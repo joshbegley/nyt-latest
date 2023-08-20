@@ -1,40 +1,40 @@
-**Zelensky Pushes Sweden to Give Ukraine Its Gripen Fighter Jets**\
-`President Volodymyr Zelensky of Ukraine, who made the plea during a weekend visit to Sweden, has long said Kyiv needs modern warplanes to fight off Russia.`\
-https://nytimes.com/2023/08/20/world/europe/ukraine-war-zelensky-sweden.html?searchResultPosition=1
+**How Ron DeSantis Joined the ‘Ruling Class’ — and Turned Against It**\
+`Over the years, Mr. DeSantis embraced and exploited his Ivy League credentials. Now he is reframing his experiences at Yale and Harvard to wage a vengeful political war.`\
+https://nytimes.com/2023/08/20/us/politics/ron-desantis-education.html?searchResultPosition=1
 
-**A New York City Migrant Contractor Faces Scrutiny in Sexual Assault Cases**\
-`The city gave DocGo contracts worth hundreds of millions of dollars to care for migrants. Now it faces problems, including a police investigation.`\
-https://nytimes.com/2023/08/20/nyregion/docgo-migrant-sexual-assaults.html?searchResultPosition=2
+**In Georgia Case Against Superstar Rapper, Hints of How Trump Case Could Unfold**\
+`The racketeering case against Young Thug has been marked by a plodding pace, an avalanche of pretrial defense motions and pressure on lower-level defendants to plead guilty.`\
+https://nytimes.com/2023/08/20/us/trump-young-thug-rico.html?searchResultPosition=2
 
-**Security Is the Main Worry as Ecuador Votes on Sunday. Here’s What to Know.**\
-`With the country’s attention riveted on violence perpetrated by gangs and drug cartels, the security issue is paramount — and may be decisive.`\
-https://nytimes.com/2023/08/20/world/americas/ecuador-election-assassination-explainer.html?searchResultPosition=3
+**Grown-Up Theater Kids Run the World**\
+`A Supreme Court justice. The governor of New Jersey. Senator Ted Cruz. A prominent MSNBC host. Practically half the tech world. What’s behind this moment of thespian power?`\
+https://nytimes.com/2023/08/20/style/grown-up-theater-kids.html?searchResultPosition=3
 
-**Think the Police Should Wear Body Cameras? That Will Cost Taxpayers Extra.**\
-`The public increasingly expects that police interactions will be recorded. And police unions increasingly expect a raise for doing the recording.`\
-https://nytimes.com/2023/08/20/us/police-body-cameras-pay.html?searchResultPosition=4
+**On the Front Lines, Ukrainians Are Buoyed to Be on the Offensive**\
+`Despite tough fighting and heavy casualties, Ukrainian commanders say their forces are in better shape now than just months ago, while Russian troops appear worse off.`\
+https://nytimes.com/2023/08/20/world/europe/ukraine-counteroffensive-commanders-fighters.html?searchResultPosition=4
 
-**One Neighborhood, 90 Trees and an 82-Year-Old Crusader**\
-`Ed Rodriguez is on a mission to convince his neighbors that they need trees to help combat summer heat — and to make the world a better place. It’s not always so easy.`\
-https://nytimes.com/2023/08/20/us/trees-heat-wave-new-haven-ct.html?searchResultPosition=5
+**China Is on Edge as Fallout From Its Real Estate Crisis Spreads**\
+`Beijing wanted to cool its housing market, but created a bigger problem, as the fallout from debt-laden developers and sinking sales spreads to the broader economy.`\
+https://nytimes.com/2023/08/20/business/china-property-crisis-country-garden.html?searchResultPosition=5
 
-**‘I Saw a Woman Standing and Staring Up at the Sky’**\
-`Pausing one evening on the Upper West Side, subway sketching and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2023/08/20/nyregion/metropolitan-diary.html?searchResultPosition=6
+**A Way to Feel the Music Through Your Skin**\
+`Wearable backpacks designed by Music: Not Impossible, which allow people to experience music as vibrations on their bodies, are becoming more accessible to the public.`\
+https://nytimes.com/2023/08/20/style/haptic-suits-deaf-music.html?searchResultPosition=6
 
-**A Dinner for One**\
-`During a race to the North Pole in 1909, The New York Times supported one explorer, while the rival New York Herald backed another.`\
-https://nytimes.com/2023/08/20/pageoneplus/north-pole-cook-peary.html?searchResultPosition=7
+**Guatemala’s Election Could Be a Watershed Moment. Here’s What to Know.**\
+`A former first lady and an anticorruption candidate are on the ballot in a runoff contest.`\
+https://nytimes.com/2023/08/20/world/americas/guatemala-presidential-election-explained.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/20/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**A Summer Rite in Spain: Coping With the British Tourist Invasion**\
+`On the front lines of a low-cost resort, Spanish residents complain that U.K. visitors drink too much and don’t spend enough.`\
+https://nytimes.com/2023/08/20/business/british-tourists-mallorca-drinking-local-economy.html?searchResultPosition=8
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/08/20/crosswords/wordle-review-answer-792.html?searchResultPosition=9
+**How G.O.P. Views of Biden Are Helping Trump in the Republican Primary**\
+`In interviews and polling, many Republican voters believe President Biden is so weak that picking the most electable candidate to beat him no longer matters.`\
+https://nytimes.com/2023/08/20/us/politics/biden-trump-republican-primary.html?searchResultPosition=9
 
-**Corrections: Aug. 20, 2023**\
-`Corrections that appeared in print on Sunday, Aug. 20, 2023.`\
-https://nytimes.com/2023/08/20/corrections/corrections-aug-20-2023.html?searchResultPosition=10
+**A Languid, Atmospheric Thriller Steeped in Postwar Melancholy**\
+`Christine Mangan’s “The Continental Affair,” a cat-and-mouse chase across 1960s Europe, evokes Gauloises, orange blossoms and corner cafes.`\
+https://nytimes.com/2023/08/20/books/review/christine-mangan-the-continental-affair.html?searchResultPosition=10
 
