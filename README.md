@@ -1,4 +1,4 @@
-**California Quake Rattled Nerves, But Didn’t Appear to Cause Major Damage**\
+**California Quake Rattled Nerves, but Didn’t Appear to Cause Major Damage**\
 `There were no initial reports of significant damage or injuries from the 5.1-magnitude earthquake, one of several emergencies officials had to juggle.`\
 https://nytimes.com/2023/08/20/us/california-quake.html?searchResultPosition=1
 
