@@ -1,5 +1,5 @@
 **‘This Can’t Be Happening’**\
-`After another demoralizing loss — making it eight in a row — the Yankees have gone from contender to afterthought. A 30-season streak of winning seasons is in jeopardy.`\
+`After another demoralizing loss — making it eight in a row — the Yankees have gone from contender to afterthought. A 30-year streak of winning seasons is in jeopardy.`\
 https://nytimes.com/2023/08/20/sports/baseball/yankees-red-sox.html?searchResultPosition=1
 
 **Tropical Storm Franklin Forms in the Atlantic**\
