@@ -6,13 +6,13 @@ https://nytimes.com/2023/08/20/opinion/camp-summer-campsickness.html?searchResul
 `Local news organizations are in crisis, and courts need to protect their constitutional freedom to report the news.`\
 https://nytimes.com/2023/08/20/opinion/kansas-press-freedom.html?searchResultPosition=2
 
-**Why Were Nearly 100 Bears Shot by the State of Alaska?**\
-`A hapless effort to protect a shrinking caribou herd has come in for criticism by wildlife experts.`\
-https://nytimes.com/2023/08/20/opinion/alaska-brown-bear-killing.html?searchResultPosition=3
-
 **Appeasing Donald Trump Won’t Work**\
 `A conservative legal argument offers a path to avoid a second term, if only there were the will to take it.`\
-https://nytimes.com/2023/08/20/opinion/donald-trump-republicans.html?searchResultPosition=4
+https://nytimes.com/2023/08/20/opinion/donald-trump-republicans.html?searchResultPosition=3
+
+**Why Were Nearly 100 Bears Shot by the State of Alaska?**\
+`A hapless effort to protect a shrinking caribou herd has come in for criticism by wildlife experts.`\
+https://nytimes.com/2023/08/20/opinion/alaska-brown-bear-killing.html?searchResultPosition=4
 
 **Republicans Are Making the Liberal Arts Scarce in the Poorest States**\
 `Just look at West Virginia University.`\
