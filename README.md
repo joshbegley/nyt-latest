@@ -18,8 +18,8 @@ https://nytimes.com/2023/08/21/world/flight-risk-staffing-issues-plane-safety.ht
 `Japan’s plan to discharge treated water from its destroyed Fukushima nuclear plant has triggered a backlash in the region, especially in highly polarized South Korea.`\
 https://nytimes.com/2023/08/21/world/asia/korea-japan-fukushima.html?searchResultPosition=5
 
-**U.K. Nurse Faces Possible Life in Prison for Killing Newborns**\
-`Lucy Letby was convicted last week of murdering seven newborns and trying to kill six other babies, making her the most prolific killer of children in modern British history.`\
+**U.K. Nurse Lucy Letby Handed Whole Life Sentence for Killing Newborns**\
+`Ms. Letby was convicted last week of murdering seven babies and trying to kill six others, making her the most prolific killer of children in modern British history.`\
 https://nytimes.com/2023/08/21/world/europe/lucy-letby-sentence-nurse-babies-killed.html?searchResultPosition=6
 
 **Do You Work in Aviation and Have Concerns About Safety? We Want to Hear From You.**\
