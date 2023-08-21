@@ -6,7 +6,7 @@ https://nytimes.com/2023/08/21/opinion/columnists/china-financial-crisis-economy
 `How Sohrab Ahmari got serious about economic populism.`\
 https://nytimes.com/2023/08/21/opinion/columnists/sohrab-ahmari-social-democracy.html?searchResultPosition=2
 
-**‘This Experience May Feel Futuristic:’ Three Rides in Waymo Robot Taxis**\
+**‘This Experience May Feel Futuristic’: Three Rides in Waymo Robot Taxis**\
 `On Monday, Waymo began letting the public pay for rides in its driverless cars in San Francisco. The New York Times dispatched three reporters around the city to test the service.`\
 https://nytimes.com/2023/08/21/technology/waymo-driverless-cars-san-francisco.html?searchResultPosition=3
 
