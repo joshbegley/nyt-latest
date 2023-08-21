@@ -1,40 +1,40 @@
-**Tropical Storm Gert Forms in the Atlantic, but Is Expected to be Short-Lived**\
-`There were no coastal watches or warnings in effect and the storm was expected to dissipate by Tuesday, meteorologists said.`\
-https://nytimes.com/article/tropical-storm-gert-hurricane.html?searchResultPosition=1
+**The Steepest Hill**\
+`A man, his daughter, and the many items left behind.`\
+https://nytimes.com/2023/08/21/world/americas/darien-gap-migrants.html?searchResultPosition=1
 
-**Where Her Father Became a Hero, Caroline Kennedy Redefines Diplomacy**\
-`Ms. Kennedy’s recent swim in the Pacific waters where J.F.K. survived a wartime ordeal shows how her family legacy informs her work.`\
-https://nytimes.com/2023/08/21/world/australia/caroline-kennedy-solomon-islands.html?searchResultPosition=2
+**I Can’t Believe I’m Saying This, but I Have Hope for Gun Reform in My State**\
+`Our governor has failed on gun reform. Now he has a chance for change.`\
+https://nytimes.com/2023/08/21/opinion/tennessee-governor-gun-reform.html?searchResultPosition=2
 
-**The BRICS Club of Emerging Nations Debates Letting Others In**\
-`Brazil, Russia, India, China and South Africa will consider at their summit this week whether to admit more countries to their bloc. China wants to expand it, to challenge the West, but the members’ conflicting interests may get in the way.`\
-https://nytimes.com/2023/08/21/world/asia/brics-summit-members.html?searchResultPosition=3
+**In Japan’s ‘Gateway to Asia’: Street Food, Night Life and a Thriving Arts Scene**\
+`Fukuoka, known for its outdoor food stalls, is a popular destination for Japanese tourists. Now it’s starting to draw more international travelers, too.`\
+https://nytimes.com/2023/08/21/travel/fukuoka-japan-a-guide-to-food-and-culture.html?searchResultPosition=3
 
-**Casino Developers Are Funding Children’s Sports. Some Parents Object.**\
-`In the race to win a coveted license to open one of the first casinos in the New York City area, developers are showing how far they’ll go for local support.`\
-https://nytimes.com/2023/08/21/nyregion/nyc-casino-marketing-children.html?searchResultPosition=4
+**For Hawaii’s Governor, a Balancing Act With No Margin for Error**\
+`Gov. Josh Green of Hawaii sees lessons far beyond the islands in the disaster that has unfolded on Maui.`\
+https://nytimes.com/2023/08/21/us/politics/hawaii-governor-josh-green-maui-fires.html?searchResultPosition=4
 
-**At a Tense Moment, Eric Adams Visits Israel in a Show of Solidarity**\
-`As Mayor Eric Adams faces mounting challenges at home, he is making a trip to Israel, a rite of passage for New York mayors.`\
-https://nytimes.com/2023/08/21/nyregion/eric-adams-nyc-israel-netanyahu.html?searchResultPosition=5
+**Maui Knew Dangerous Wildfires Had Become Inevitable. It Still Wasn’t Ready.**\
+`As President Biden arrives to survey the damage with state and local officials, shock and grief are giving way to anger and questions about the government’s preparation.`\
+https://nytimes.com/2023/08/21/us/maui-wildfire-response.html?searchResultPosition=5
 
-**Grieving Governor’s Moderate Gun Proposal Is Spurned by G.O.P. Allies**\
-`Tennessee’s Republican governor called a special session to address public safety in the wake of a school shooting, but his own party is set to thwart his key measure.`\
-https://nytimes.com/2023/08/21/us/politics/tennessee-gun-law-nashville-shooting.html?searchResultPosition=6
+**In a War of Tanks, Ukrainian Soldiers Play World of Tanks Online**\
+`The urge to play a violent video game in the midst of the most brutal land war in Europe since World War II may seem baffling. But it’s a way to cope.`\
+https://nytimes.com/2023/08/21/world/europe/ukraine-russia-world-of-tanks.html?searchResultPosition=6
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/08/21/crosswords/todays-wordle-review-793.html?searchResultPosition=7
+**A Great Team, an Ambitious Plan and an ‘Existential’ Issue**\
+`John Angelos wants to reimagine the way Baltimore approaches the business of baseball, but his team’s electric young core may not be around to see the result.`\
+https://nytimes.com/2023/08/21/sports/baseball/john-angelos-orioles.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/21/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**As China Falls Into Deflation, the Mood Turns Dark**\
+`Consumers and business owners say they feel paralyzed by despair, and their reluctance to spend and borrow is feeding what could become a dangerous cycle.`\
+https://nytimes.com/2023/08/21/business/china-deflation.html?searchResultPosition=8
 
-**When Candidates Ghost Debates**\
-`Donald Trump has said he will skip the first G.O.P. debate, potentially joining history's ranks of debate no-shows.`\
-https://nytimes.com/interactive/2023/08/21/us/politics/gop-debate-history.html?searchResultPosition=9
+**The Armed Is One of Punk’s Biggest, Oddest Mysteries. That’s Changing.**\
+`For around 14 years, the Detroit hardcore collective has kept its members’ identities secret. For “Perfect Saviors,” it’s breaking with its longtime sound — and opening up.`\
+https://nytimes.com/2023/08/21/arts/music/the-armed-perfect-saviors.html?searchResultPosition=9
 
-**Word of the Day: laureate**\
-`This word has appeared in 156 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/08/21/learning/word-of-the-day-laureate.html?searchResultPosition=10
+**Can There Be Too Many Cafes in Paris?**\
+`The neighbors may complain about the noise, but outdoor spaces that bloomed under a pandemic program are now a permanent and vibrant fixture of city life.`\
+https://nytimes.com/2023/08/21/world/europe/paris-cafes-summer-terraces.html?searchResultPosition=10
 
