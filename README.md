@@ -10,7 +10,7 @@ https://nytimes.com/2023/08/21/us/alabama-transgender-care-ban.html?searchResult
 `The final tally of the damage will be higher, officials said, although no buildings have been destroyed over the past 24 hours as the fires ease.`\
 https://nytimes.com/2023/08/21/world/canada/british-columbia-wildfires-kelowna.html?searchResultPosition=3
 
-**Biden Surveys Wildfire Damage in Maui**\
+**Biden Surveys Wildfire Damage on Maui**\
 `During a visit to Lahaina, Hawaii, President Biden vowed to rebuild the fire-ravaged community “the way people of Maui want it built.”`\
 https://nytimes.com/video/us/politics/100000009051477/biden-lahaina-hawaii-wildfire.html?searchResultPosition=4
 
