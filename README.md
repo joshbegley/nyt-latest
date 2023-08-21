@@ -1,40 +1,40 @@
+**Where Her Father Became a Hero, Caroline Kennedy Redefines Diplomacy**\
+`Ms. Kennedy’s recent swim in the Pacific waters where J.F.K. survived a wartime ordeal shows how her family legacy informs her work.`\
+https://nytimes.com/2023/08/21/world/australia/caroline-kennedy-solomon-islands.html?searchResultPosition=1
+
+**The BRICS Club of Emerging Nations Debates Letting Others In**\
+`Brazil, Russia, India, China and South Africa will consider at their summit this week whether to admit more countries to their bloc. China wants to expand it, to challenge the West, but the members’ conflicting interests may get in the way.`\
+https://nytimes.com/2023/08/21/world/asia/brics-summit-members.html?searchResultPosition=2
+
+**Casino Developers Are Funding Children’s Sports. Some Parents Object.**\
+`In the race to win a coveted license to open one of the first casinos in the New York City area, developers are showing how far they’ll go for local support.`\
+https://nytimes.com/2023/08/21/nyregion/nyc-casino-marketing-children.html?searchResultPosition=3
+
+**At a Tense Moment, Eric Adams Visits Israel in a Show of Solidarity**\
+`As Mayor Eric Adams faces mounting challenges at home, he is making a trip to Israel, a rite of passage for New York mayors.`\
+https://nytimes.com/2023/08/21/nyregion/eric-adams-nyc-israel-netanyahu.html?searchResultPosition=4
+
+**Grieving Governor’s Moderate Gun Proposal Is Spurned by G.O.P. Allies**\
+`Tennessee’s Republican governor called a special session to address public safety in the wake of a school shooting, but his own party is set to thwart his key measure.`\
+https://nytimes.com/2023/08/21/us/politics/tennessee-gun-law-nashville-shooting.html?searchResultPosition=5
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/08/21/crosswords/todays-wordle-review-793.html?searchResultPosition=6
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/08/21/crosswords/spelling-bee-forum.html?searchResultPosition=7
+
+**When Candidates Ghost Debates**\
+`Donald Trump has said he will skip the first G.O.P. debate, potentially joining history's ranks of debate no-shows.`\
+https://nytimes.com/interactive/2023/08/21/us/politics/gop-debate-history.html?searchResultPosition=8
+
 **Word of the Day: laureate**\
 `This word has appeared in 156 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/08/21/learning/word-of-the-day-laureate.html?searchResultPosition=1
+https://nytimes.com/2023/08/21/learning/word-of-the-day-laureate.html?searchResultPosition=9
 
 **China Cuts Key Interest Rate Again as Property Slump Spreads**\
 `The action by the People’s Bank of China, the central bank, the latest in a series of steps to try to spur lending, was more modest than expected.`\
-https://nytimes.com/2023/08/21/business/china-central-bank-rate-cut.html?searchResultPosition=2
-
-**What’s on TV This Week: ‘The Bachelorette’ and ‘Riverdale’**\
-`Charity Lawson decides among her final three men, and the long-running CW show ends.`\
-https://nytimes.com/2023/08/21/arts/television/whats-on-tv-this-week-the-bachelorette-and-riverdale.html?searchResultPosition=3
-
-**If Republicans Narrow the Field, We Will Beat Trump**\
-`As Governor of the First-in-the-Nation Primary state, I will do everything I can to help narrow the field. I plan to endorse and campaign for the best alternative to Trump.`\
-https://nytimes.com/2023/08/21/opinion/if-republicans-narrow-the-field-we-will-beat-trump.html?searchResultPosition=4
-
-**A Statue That Survived Hiroshima Stands in Manhattan**\
-`The statue of a Buddhist monk, on Riverside Drive, used to be in Japan, about a mile from where the bomb that is the focus of “Oppenheimer” hit.`\
-https://nytimes.com/2023/08/21/nyregion/buddhist-statue-hiroshima.html?searchResultPosition=5
-
-**Monday Briefing**\
-`Ukraine will get F-16s.`\
-https://nytimes.com/2023/08/21/briefing/ukraine-jets-world-cup-spain.html?searchResultPosition=6
-
-**Saudi Border Guards Accused of Killing Hundreds of African Migrants**\
-`A Human Rights Watch report says the guards regularly fire on African migrants trying to enter the kingdom from Yemen and have killed hundreds in a 15-month period.`\
-https://nytimes.com/2023/08/21/world/middleeast/saudi-arabia-migrants-yemen.html?searchResultPosition=7
-
-**A Track Mentality in the Boxing Ring**\
-`Some of boxing’s most well-known fighters have been helped by Larry Wade, a strength and conditioning coach who was an elite hurdler.`\
-https://nytimes.com/2023/08/21/sports/boxing-larry-wade.html?searchResultPosition=8
-
-**Establishment Leftist and Newcomer Businessman Appear Headed to Ecuador Runoff**\
-`Luisa González and Daniel Noboa were poised to be the top candidates of Sunday’s election in a country where declining security has been the leading issue for most voters.`\
-https://nytimes.com/2023/08/20/world/americas/ecuador-election.html?searchResultPosition=9
-
-**No Corrections: Aug. 21, 2023**\
-`No corrections appeared in print on Monday, Aug. 21, 2023.`\
-https://nytimes.com/2023/08/20/corrections/no-corrections-aug-21-2023.html?searchResultPosition=10
+https://nytimes.com/2023/08/21/business/china-central-bank-rate-cut.html?searchResultPosition=10
 
