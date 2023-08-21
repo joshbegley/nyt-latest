@@ -16,7 +16,7 @@ https://nytimes.com/2023/08/21/arts/music/rich-men-north-of-richmond-billboard-c
 
 **A School Lunch Solution: The Bento Box**\
 `Endlessly adaptable, a bento-box lunch comes to the rescue as school begins, Kenji López-Alt writes.`\
-https://nytimes.com/article/best-school-lunch-solution-bento-box.html?searchResultPosition=5
+https://nytimes.com/article/best-school-lunch-ideas-bento-box.html?searchResultPosition=5
 
 **John Oliver and Seth Meyers: Looser but Less Pointed Onstage**\
 `With the strike silencing their late-night shows, the comics showed different sides of themselves in front of a friendly crowd in New York.`\
