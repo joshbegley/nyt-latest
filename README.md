@@ -1,4 +1,4 @@
-**Firm Hired to Help Migrants Investigated for Possibly Mistreating Them**\
+**New York Attorney General Will Investigate Troubled Migrant Contractor**\
 `Migrants have said the contractor, DocGo, which was hired by New York City, misled and mistreated them. The police are investigating whether the company improperly interfered in two sexual assault investigations.`\
 https://nytimes.com/2023/08/21/nyregion/nyc-migrants-docgo-investigation.html?searchResultPosition=1
 
