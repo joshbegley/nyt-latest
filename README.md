@@ -1,40 +1,40 @@
+**In Germany’s Rust Belt, Industrial Ruins Become Stages**\
+`The best productions at the Ruhrtrienniale festival created a sense of unity with their unique, often vast, settings.`\
+https://nytimes.com/2023/08/21/theater/ruhrtrienniale-festival.html?searchResultPosition=1
+
 **Nuclear War Could End the World, but What if It’s All in Our Heads?**\
 `Some experts want to apply recent neuroscience research to the decision making that could lead to doomsday.`\
-https://nytimes.com/2023/08/21/science/nuclear-war-brain-neuroscience.html?searchResultPosition=1
+https://nytimes.com/2023/08/21/science/nuclear-war-brain-neuroscience.html?searchResultPosition=2
 
 **Private Jet Loaded With Fake Gold Unfurls a Mystery in 2 Countries**\
 `After a plane arrived from Egypt bearing cash, weapons and what looked like gold bars, Zambia arrested 12 people. Egyptian reporters covering the case were briefly detained.`\
-https://nytimes.com/2023/08/21/world/africa/egypt-zambia-plane.html?searchResultPosition=2
+https://nytimes.com/2023/08/21/world/africa/egypt-zambia-plane.html?searchResultPosition=3
 
 **Peaches Sweet and Savory, Vegan Dan Dan Noodles With Eggplant and Perfect Whiskey Sours**\
 `Recipes that make the most of summer’s waning days.`\
-https://nytimes.com/2023/08/21/dining/peaches-sweet-and-savory-vegan-dan-dan-noodles-with-eggplant-and-perfect-whiskey-sours.html?searchResultPosition=3
+https://nytimes.com/2023/08/21/dining/peaches-sweet-and-savory-vegan-dan-dan-noodles-with-eggplant-and-perfect-whiskey-sours.html?searchResultPosition=4
 
 **Democrats, Popcorn in Hand, Root for a Rowdy G.O.P. Debate**\
 `Top Democrats, suddenly feeling a bit better about 2024, would love to see Republicans talk about a national abortion ban. They’re less excited about the inevitable Hunter Biden tirades.`\
-https://nytimes.com/2023/08/21/us/politics/gop-republican-debate-democrats.html?searchResultPosition=4
+https://nytimes.com/2023/08/21/us/politics/gop-republican-debate-democrats.html?searchResultPosition=5
 
 **Do You Know These Novels Set Outside the Lower 48 States?**\
 `Alaska and Hawaii each have a rich cultural history all their own. Can you identify these five books set outside the contiguous section of the country?`\
-https://nytimes.com/interactive/2023/08/21/books/booksupdate/alaska-hawaii-books-quiz.html?searchResultPosition=5
+https://nytimes.com/interactive/2023/08/21/books/booksupdate/alaska-hawaii-books-quiz.html?searchResultPosition=6
 
 **Judge Partly Blocks Georgia’s Ban on Transition Care for Minors**\
 `In a ruling, a federal judge temporarily blocked the part of the law that would have banned hormone replacement therapy for people under 18.`\
-https://nytimes.com/2023/08/21/us/georgia-transgender-ban-minors.html?searchResultPosition=6
+https://nytimes.com/2023/08/21/us/georgia-transgender-ban-minors.html?searchResultPosition=7
 
 **Trump Dominates in New Iowa Poll**\
 `The survey suggests a remarkably stable G.O.P. race in the state less than five months before the caucuses.`\
-https://nytimes.com/2023/08/21/us/politics/trump-poll-rating.html?searchResultPosition=7
+https://nytimes.com/2023/08/21/us/politics/trump-poll-rating.html?searchResultPosition=8
 
 **‘El Mago Pop’ Review: A Boy Next Door With the Magic Touch**\
 `In his Broadway debut, the illusionist Antonio Díaz does levitation and teleportation. But it’s simple tricks, with cards and balls, that really wow.`\
-https://nytimes.com/2023/08/21/theater/el-mago-pop-review-antonio-diaz.html?searchResultPosition=8
+https://nytimes.com/2023/08/21/theater/el-mago-pop-review-antonio-diaz.html?searchResultPosition=9
 
 **Tropical Storm Hilary Hits California**\
 `Some desert cities may be getting a year’s worth of rain in a 24-hour period.`\
-https://nytimes.com/2023/08/21/us/california-tropical-storm-hilary.html?searchResultPosition=9
-
-**Diary of a Spelling Bee Fanatic**\
-`Entries for the week of Aug. 14, 2023.`\
-https://nytimes.com/2023/08/21/crosswords/spelling-bee-diary.html?searchResultPosition=10
+https://nytimes.com/2023/08/21/us/california-tropical-storm-hilary.html?searchResultPosition=10
 
