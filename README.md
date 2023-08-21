@@ -1,4 +1,4 @@
-**Storm that killed at least one in Mexico drenches Southern California**\
+**Storm That Killed at Least One in Mexico Drenches Southern California**\
 `Tropical Storm Hilary brings widespread flooding and small landslides, as authorities fear more significant damage could be coming.`\
 https://nytimes.com/2023/08/20/us/storm-hilary-flooding-california.html?searchResultPosition=1
 
