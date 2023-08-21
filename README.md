@@ -11,7 +11,7 @@ https://nytimes.com/2023/08/21/briefing/japan-south-korea-fukushima-china-econom
 https://nytimes.com/2023/08/21/t-magazine/climate-change-movies-film.html?searchResultPosition=3
 
 **Howard S. Becker, Who Looked at Society With a Fresh Eye, Dies at 95**\
-`A sociologist, he challenged conventional thinking on matters as diverse as deviance, art making and marijuana use, and later found a particular following in France.`\
+`A sociologist, he challenged conventional thinking on matters as diverse as deviance, art making and marijuana use. He found a particular following in France.`\
 https://nytimes.com/2023/08/21/books/howard-s-becker-dead.html?searchResultPosition=4
 
 **‘Once Upon a One More Time,’ the Britney Spears Musical, Is Closing**\
