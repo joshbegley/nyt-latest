@@ -24,7 +24,7 @@ https://nytimes.com/2023/08/21/world/africa/egypt-zambia-plane.html?searchResult
 
 **Peaches Sweet and Savory, Vegan Dan Dan Noodles With Eggplant and Perfect Whiskey Sours**\
 `Recipes that make the most of summer’s waning days.`\
-https://nytimes.com/2023/08/21/dining/peaches-sweet-and-savory-vegan-dan-dan-noodles-with-eggplant-and-perfect-whiskey-sours.html?searchResultPosition=7
+https://nytimes.com/2023/08/21/dining/peach-eggplant-recipes.html?searchResultPosition=7
 
 **Democrats, Popcorn in Hand, Root for a Rowdy G.O.P. Debate**\
 `Top Democrats, suddenly feeling a bit better about 2024, would love to see Republicans talk about a national abortion ban. They’re less excited about the inevitable Hunter Biden tirades.`\
