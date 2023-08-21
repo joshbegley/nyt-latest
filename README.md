@@ -19,7 +19,7 @@ https://nytimes.com/2023/08/21/arts/television/john-oliver-seth-meyers-comedy.ht
 https://nytimes.com/2023/08/21/opinion/letters/compassionate-release-aging-prisoners.html?searchResultPosition=5
 
 **Bloomberg L.P., a Financial Data Giant, Overhauls Its Leadership Ranks**\
-`Michael Bloomberg, the company’s founder, said that Vlad Kliatchko would be its new chief executive and Jean-Paul Zammitt would be its new president.`\
+`Michael Bloomberg, the company’s founder, said Vlad Kliatchko would be its new chief executive and Jean-Paul Zammitt its new president.`\
 https://nytimes.com/2023/08/21/business/media/bloomberg-lp-succession.html?searchResultPosition=6
 
 **If Chris Christie Debates Without Donald Trump, Does He Make a Sound?**\
