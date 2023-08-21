@@ -2,7 +2,7 @@
 `The former New Jersey governor has relentlessly taunted Donald Trump, hoping for a dramatic onstage confrontation. It appears he is not going to get what he wants.`\
 https://nytimes.com/2023/08/21/us/politics/chris-christie-debate-trump.html?searchResultPosition=1
 
-**More Screen Time May Delay Development in Babies, Study Finds**\
+**More Screen Time Linked to Delayed Development in Babies, Study Finds**\
 `One-year-olds exposed to more than four hours of screen time a day experienced developmental delays in communication and problem-solving skills at ages 2 and 4, according to a new study`\
 https://nytimes.com/2023/08/21/health/screen-time-developmental-delays-babies.html?searchResultPosition=2
 
