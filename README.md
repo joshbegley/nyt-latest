@@ -6,8 +6,8 @@ https://nytimes.com/2023/08/20/corrections/no-corrections-aug-21-2023.html?searc
 `Quotation of the Day for Monday, August 21, 2023.`\
 https://nytimes.com/2023/08/20/pageoneplus/quotation-of-the-day-spain-lifts-world-cup-trophy-and-the-hopes-of-girls-back-home.html?searchResultPosition=2
 
-**Anticorruption Crusader Set to Win in Guatemala, in Rebuke to Establishment**\
-`The likely victory by the candidate of an upstart party signals an uncertain new chapter in Central America’s largest country.`\
+**Anticorruption Crusader Wins in Guatemala, in Rebuke to Establishment**\
+`The landslide victory by the candidate of an upstart party signals an uncertain new chapter in Central America’s largest country.`\
 https://nytimes.com/2023/08/20/world/americas/arevalo-wins-election-guatemala.html?searchResultPosition=3
 
 **Storm That Killed at Least One in Mexico Drenches Southern California**\
