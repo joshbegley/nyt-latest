@@ -11,7 +11,7 @@ https://nytimes.com/2023/08/21/us/california-drought-hilary.html?searchResultPos
 https://nytimes.com/2023/08/21/nyregion/manhattan-driver-crash-pedestrians.html?searchResultPosition=3
 
 **Flight Risk**\
-`We’re covering near-misses on airport runways, severe weather and the Women’s World Cup.`\
+`We’re covering near misses on airport runways, severe weather and the Women’s World Cup.`\
 https://nytimes.com/2023/08/21/world/flight-risk-staffing-issues-plane-safety.html?searchResultPosition=4
 
 **Radioactive Water Is Complicating Japan and Korea’s New Friendship**\
