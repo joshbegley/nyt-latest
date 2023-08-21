@@ -19,7 +19,7 @@ https://nytimes.com/2023/08/21/us/jimmy-carter-health-hospice.html?searchResultP
 https://nytimes.com/2023/08/21/arts/music/bob-jones-dead.html?searchResultPosition=5
 
 **Bail for Trump Set at $200,000 in Georgia Election Interference Case**\
-`The move came as it became clear that former President Donald J. Trump and 18 other defendants will be required to pay cash upon being booked in Atlanta this week.`\
+`Mr. Trump was told not to communicate with any of his 18 co-defendants in the case except through his lawyers, nor to intimidate or threaten them.`\
 https://nytimes.com/2023/08/21/us/trump-bail-georgia-election-case.html?searchResultPosition=6
 
 **Tuesday Briefing: Japan’s Radioactive Water**\
