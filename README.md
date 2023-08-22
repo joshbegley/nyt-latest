@@ -35,6 +35,6 @@ https://nytimes.com/2023/08/21/nyregion/claw-attack-blm-protest-nyc-guilty.html?
 https://nytimes.com/video/us/100000009051590/hilary-storm-damage-cathedral-city-california.html?searchResultPosition=9
 
 **California Evades Catastrophic Damage From Rare Tropical Storm**\
-`After bracing for the worst, the state so far has recorded no deaths and avoided major problems from Tropical Storm Hilary, officials said.`\
+`After bracing for the worst, the state so far has recorded no deaths from Tropical Storm Hilary, officials said. Some desert and mountain communities are digging out from a deluge of mud.`\
 https://nytimes.com/2023/08/21/us/hilary-tropical-storm-flood-rain-california.html?searchResultPosition=10
 
