@@ -34,7 +34,7 @@ https://nytimes.com/2023/08/22/arts/music/sparklehorse-mark-linkous-bird-machine
 `Exclusively from New York Times Audio, our new app.`\
 https://nytimes.com/2023/08/22/podcasts/headlines-nyt-audio-app.html?searchResultPosition=9
 
-**Children Left Dangling for Hours in Cable Car After Cables Break**\
-`A rescue operation was being mobilized in Pakistan after the cable car malfunctioned while ferrying students to school at an altitude of more than 6,000 feet.`\
+**Rescue Bid Underway for Children Trapped in Dangling Cable Car**\
+`Students on their way to school in a remote, mountainous region of Pakistan have been left stranded for hours after two cables broke as they traveled high above a valley.`\
 https://nytimes.com/2023/08/22/world/asia/pakistan-chairlift-broken-cable.html?searchResultPosition=10
 
