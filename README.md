@@ -19,7 +19,7 @@ https://nytimes.com/2023/08/21/pageoneplus/quotation-of-the-day-democrats-rootin
 https://nytimes.com/2023/08/21/crosswords/daily-puzzle-2023-08-22.html?searchResultPosition=5
 
 **After 38 Years, Cambodian Leader Hands Power to His Son**\
-`Hun Manet is expected to guide a generational shift in Cambodian politics, taking over for his father Hun Sen, one of the world’s longest-ruling prime ministers.`\
+`Gen. Hun Manet is expected to guide a generational shift in Cambodian politics, taking over for his father Hun Sen, one of the world’s longest-ruling prime ministers.`\
 https://nytimes.com/2023/08/21/world/asia/cambodia-hun-manet-prime-minister.html?searchResultPosition=6
 
 **Japan to Release Treated Water From Ruined Nuclear Plant Despite Concerns**\
