@@ -14,7 +14,7 @@ https://nytimes.com/video/climate/100000009052772/tropical-storm-hilary-aftermat
 `Harold is the first storm of this year’s Atlantic hurricane season to make landfall.`\
 https://nytimes.com/video/us/100000009052576/tropical-storm-harold-texas.html?searchResultPosition=4
 
-**Fox News Blocks Trump Allies From Spin Room After Trump Shuns Debate**\
+**Trump Allies May Be Kept Out of Fox News Spin Room After Trump Shuns Debate**\
 `Fox News, which is hosting the event, will allow aides only for the candidates on the stage.`\
 https://nytimes.com/2023/08/22/us/politics/fox-news-trump-spin-room.html?searchResultPosition=5
 
