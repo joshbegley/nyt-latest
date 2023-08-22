@@ -6,7 +6,7 @@ https://nytimes.com/2023/08/21/crosswords/daily-puzzle-2023-08-22.html?searchRes
 `Hun Manet is expected to guide a generational shift in Cambodian politics, taking over for his father Hun Sen, one of the world’s longest-ruling prime ministers.`\
 https://nytimes.com/2023/08/21/world/asia/cambodia-hun-manet-prime-minister.html?searchResultPosition=2
 
-**Japan Will Start Releasing Treated Water From Fukushima This Week**\
+**Japan to Release Treated Water From Ruined Nuclear Plant Despite Concerns**\
 `The country plans to proceed with a discharge that will eventually reach more than a million tons of water despite regional and domestic objections.`\
 https://nytimes.com/2023/08/21/world/asia/japan-fukushima-water-release.html?searchResultPosition=3
 
