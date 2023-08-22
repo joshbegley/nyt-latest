@@ -8,7 +8,7 @@ https://nytimes.com/2023/08/22/arts/mario-voice-charles-martinet-nintendo.html?s
 
 **‘I Froze’**\
 `Why some rape victims freeze rather than scream or fight back.`\
-https://nytimes.com/2023/08/22/briefing/why-rape-victims-freeze.html?searchResultPosition=3
+https://nytimes.com/2023/08/22/briefing/rape-victims-trauma-response-biden-hawaii.html?searchResultPosition=3
 
 **ABC Affiliate Cuts ‘Bachelorette’ Finale for N.F.L. Preseason Game**\
 `Fans of the reality show were not happy after a local ABC affiliate showed a preseason game between the Washington Commanders and Baltimore Ravens instead.`\
