@@ -34,7 +34,7 @@ https://nytimes.com/2023/08/22/nyregion/nyc-jail-settlement-blackout.html?search
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2023/08/22/crosswords/spelling-bee-forum.html?searchResultPosition=9
 
-**U.N. Accuses Taliban of Rights Violations Despite a Blanket Amnesty**\
+**U.N. Says Taliban Committed Rights Abuses Despite Blanket Amnesty**\
 `A U.N. mission in Afghanistan reported summary killings, arbitrary detentions and torture of hundreds of onetime soldiers, police officers and others in the old government.`\
 https://nytimes.com/2023/08/22/world/asia/taliban-revenge-united-nations.html?searchResultPosition=10
 
