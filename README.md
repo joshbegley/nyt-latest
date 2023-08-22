@@ -14,7 +14,7 @@ https://nytimes.com/2023/08/22/learning/my-ancestors-speak-to-me-the-week-9-winn
 `The dead were found near the border with Turkey, in an area that is a crossing point for thousands of migrants seeking to enter Europe.`\
 https://nytimes.com/2023/08/22/world/europe/greece-wildfires-dead-bodies.html?searchResultPosition=4
 
-**Rescuers Attempt to Save Children Trapped in Broken Cable Car**\
+**Rescuers Try to Save Children Trapped in Broken Cable Car**\
 `Two cables on the car broke while it was carrying students to school in a mountainous region of Pakistan, leaving them hanging hundreds of feet in the air.`\
 https://nytimes.com/video/world/asia/100000009052077/pakistan-cable-car-students-rescue.html?searchResultPosition=5
 
