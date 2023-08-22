@@ -1,4 +1,4 @@
-**Verano Brings Mexican Fare to Hudson Yard’s Public Gardens**\
+**Verano Brings Mexican Fare to Hudson Yards’ Public Gardens**\
 `A “chaos” menu at Guest, an update for Seasoned Vegan and more restaurant news.`\
 https://nytimes.com/2023/08/22/dining/nyc-restaurant-news.html?searchResultPosition=1
 
