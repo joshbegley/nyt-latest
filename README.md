@@ -1,5 +1,5 @@
 **One in Five Women Feel Mistreated During Maternity Care, C.D.C. Reports**\
-`Among Black, Hispanic and multiracial mothers, 40 percent said they had been mistreated by health care providers.`\
+`Among Black, Hispanic and multiracial mothers, 40 percent said they had been mistreated during pregnancy or childbirth.`\
 https://nytimes.com/2023/08/22/health/pregnancy-mistreatment-health-care.html?searchResultPosition=1
 
 **UPS Employees Approve New Contract, Averting Strike**\
