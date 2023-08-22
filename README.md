@@ -1,4 +1,4 @@
-**Canadian Officials Condemn Facebook for News Ban, as Wildfires Burn**\
+**Canadian Officials Condemn Facebook for News Ban as Wildfires Burn**\
 `Prime Minister Justin Trudeau said it was “inconceivable” that the platform had responded to a new licensing law by blocking news links, as the country confronts its worst wildfire season on record.`\
 https://nytimes.com/2023/08/22/world/canada/canada-wildfires-meta-facebook.html?searchResultPosition=1
 
