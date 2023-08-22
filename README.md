@@ -1,40 +1,40 @@
+**What Spatial Audio Can and Cannot Do for Classical Music**\
+`Immersive audio formats, while newer for pop, have been used by composers for decades. But not all works call for spatial treatment.`\
+https://nytimes.com/2023/08/22/arts/music/spatial-audio-classical-music.html?searchResultPosition=1
+
 **European Climate Czar Steps Down to Take Part in Dutch Elections**\
 `Frans Timmermans is stepping down at a crucial time for European climate laws to become the lead candidate for a left-wing coalition in the Dutch elections in November.`\
-https://nytimes.com/2023/08/22/world/europe/eu-climate-chief-dutch-elections-frans-timmermans.html?searchResultPosition=1
+https://nytimes.com/2023/08/22/world/europe/eu-climate-chief-dutch-elections-frans-timmermans.html?searchResultPosition=2
 
 **Greek Wildfire Burns for Fourth Straight Day**\
 `Firefighters battled a major wildfire near Alexandroupolis, in northern Greece, that forced residents to flee.`\
-https://nytimes.com/video/world/europe/100000009052309/greece-fire-alexandroupolis.html?searchResultPosition=2
+https://nytimes.com/video/world/europe/100000009052309/greece-fire-alexandroupolis.html?searchResultPosition=3
 
 **Extreme August Arrives With a Warning: Expect More**\
 `A mix of devastating wildfires, tropical storms, mudslides and heat waves foreshadows a future of intensified extremes as the world warms.`\
-https://nytimes.com/2023/08/22/climate/tropical-storm-california-maui-fire-extreme-august.html?searchResultPosition=3
+https://nytimes.com/2023/08/22/climate/tropical-storm-california-maui-fire-extreme-august.html?searchResultPosition=4
 
 **How Mark Meadows Pursued a High-Wire Legal Strategy in Trump Inquiries**\
 `The former White House chief of staff, a key witness to Donald J. Trump’s efforts to remain in power after his 2020 election loss, maneuvered to provide federal prosecutors only what he had to.`\
-https://nytimes.com/2023/08/22/us/politics/mark-meadows-trump-legal-strategy.html?searchResultPosition=4
+https://nytimes.com/2023/08/22/us/politics/mark-meadows-trump-legal-strategy.html?searchResultPosition=5
 
 **Is Ice the Ultimate Luxury?**\
 `Americans, in particular, tend to think of frozen water as essential. But this seemingly ubiquitous commodity is no longer something we can take for granted.`\
-https://nytimes.com/2023/08/22/t-magazine/ice-luxury.html?searchResultPosition=5
+https://nytimes.com/2023/08/22/t-magazine/ice-luxury.html?searchResultPosition=6
 
 **Sliman Bensmaia, Who Enabled Prosthetic Limbs to Feel, Dies at 49**\
 `His work in the neuroscience of touch led to devices that allow amputees and quadriplegics not just to move about the world but also to sense temperature and pressure.`\
-https://nytimes.com/2023/08/22/science/sliman-bensmaia-dead.html?searchResultPosition=6
+https://nytimes.com/2023/08/22/science/sliman-bensmaia-dead.html?searchResultPosition=7
 
 **Rays Shortstop Placed on Administrative Leave by M.L.B.**\
 `In an agreement between the league and the players’ union, Wander Franco will be out “until further notice” as an investigation continues.`\
-https://nytimes.com/2023/08/22/sports/baseball/wander-franco-rays-adminstrative-leave.html?searchResultPosition=7
+https://nytimes.com/2023/08/22/sports/baseball/wander-franco-rays-adminstrative-leave.html?searchResultPosition=8
 
 **The Met Announces Harlem Renaissance Exhibition for 2024**\
 `Artworks on loan from historically Black institutions will make the show one of the largest surveys of the era in nearly 40 years.`\
-https://nytimes.com/2023/08/22/arts/design/harlem-renaissance-met-exhibition.html?searchResultPosition=8
+https://nytimes.com/2023/08/22/arts/design/harlem-renaissance-met-exhibition.html?searchResultPosition=9
 
 **She Outgrew the Wish to Be Perfect**\
 `For years Elise Loehnen peddled wellness for Gwyneth Paltrow. Her new book explores “the price women pay to be good.”`\
-https://nytimes.com/2023/08/22/style/elise-loehnen-goop.html?searchResultPosition=9
-
-**Expert Panel Recommends New Options for H.I.V. Prevention**\
-`The “grade A” endorsement means that two additional drugs should be covered under the Affordable Care Act.`\
-https://nytimes.com/2023/08/22/health/hiv-prep-truvada-descovy.html?searchResultPosition=10
+https://nytimes.com/2023/08/22/style/elise-loehnen-goop.html?searchResultPosition=10
 
