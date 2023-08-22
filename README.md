@@ -1,40 +1,40 @@
-**A Berkshires House That Wouldn’t Need (Much) Renovating**\
-`She promised her husband that if they bought the house, they wouldn’t have to do any work on it. Almost immediately, she broke her promise.`\
-https://nytimes.com/slideshow/2023/08/22/realestate/a-berkshires-house-that-wouldnt-need-much-renovating.html?searchResultPosition=1
+**New Evidence Raises Questions in Mississippi Police Killing**\
+`Experts who reviewed the autopsy report on Damien Cameron say investigators missed clear signs that deputies suffocated him while he was being subdued.`\
+https://nytimes.com/2023/08/22/us/rankin-mississipi-killing-police.html?searchResultPosition=1
 
-**Support for Abbott’s Crackdown Is Waning on Texas Border**\
-`Gov. Greg Abbott’s intensive campaign to turn back migrants was initially welcomed on the border. But in Eagle Pass, the effort’s main focal point, residents are having second thoughts.`\
-https://nytimes.com/2023/08/22/us/texas-border-abbott-lone-star.html?searchResultPosition=2
+**She Got Her Dream House With a Promise: No Renovation**\
+`Keeping that promise turned out to be harder than she expected.`\
+https://nytimes.com/2023/08/22/realestate/berkshires-massachusetts-renovation.html?searchResultPosition=2
 
-**It Totally Peaked in High School**\
-`In his lively “Empire of the Sum,” Keith Houston looks at the best — and worst — years of the pocket calculator’s life.`\
-https://nytimes.com/2023/08/22/books/review/empire-of-the-sum-keith-houston.html?searchResultPosition=3
+**The Lines Between Red and Blue America Are Blurring, Not Hardening**\
+`Americans, from Kansas to the Bay Area, have far more in common than our politicians would have us believe.`\
+https://nytimes.com/2023/08/22/opinion/red-blue-america-politics.html?searchResultPosition=3
 
-**The Making of an Ivy League President: Two Women’s Stories**\
-`In “Necessary Trouble,” by Drew Gilpin Faust, and “Up Home,” by Ruth J. Simmons, the former presidents of Harvard and Brown recount their unlikely paths to leadership at two of America’s most elite universities.`\
-https://nytimes.com/2023/08/22/books/review/necessary-trouble-drew-gilpin-faust-up-home-ruth-simmons.html?searchResultPosition=4
+**A Writer Scrutinizes Privilege, Starting With His Own**\
+`In “Quiet Street,” Nick McDonell reflects on America’s most entrenched elite and his place within it.`\
+https://nytimes.com/2023/08/22/books/review/nick-mcdonell-quiet-street.html?searchResultPosition=4
 
-**The Met Keeps Releasing Clothing With Pacsun. Why?**\
-`The unlikely coupling of art museum and mall brand has yielded three apparel collections, with a fourth releasing this month.`\
-https://nytimes.com/2023/08/22/style/pacsun-met-museum-collaboration.html?searchResultPosition=5
+**Confused, Frustrated and Stranded at the Airport With a Service Animal**\
+`Many travelers with disabilities are encountering hurdles with a process to verify that their service dogs are fit to fly.`\
+https://nytimes.com/2023/08/22/travel/jetblue-service-animal-dot-open-form.html?searchResultPosition=5
 
-**How to Possess All World Knowledge … Kind Of**\
-`In a world where facts are currency, almanacs offer a different value.`\
-https://nytimes.com/2023/08/22/magazine/almanac-recommendation.html?searchResultPosition=6
+**Can You Get Out of Poverty Without Having to Beg?**\
+`In “Live to See the Day,” the sociologist Nikhil Goyal tracks the lives of three teenagers as they try to balance school and survival in Philadelphia.`\
+https://nytimes.com/2023/08/22/books/review/live-to-see-the-day-nikhil-goyal.html?searchResultPosition=6
 
-**In Alabama, White Tide Rushes On**\
-`Bama Rush is like royal watching through Mason-jar-tinted glasses.`\
-https://nytimes.com/2023/08/22/opinion/bama-rush-tiktok-race.html?searchResultPosition=7
+**Feminist Stories Are Being Set to a Pop Beat. But Are They Empowering?**\
+`Our critics debate how well shows like “Six,” “& Juliet” and “Once Upon a One More Time” engage with the inner worlds of women onstage.`\
+https://nytimes.com/2023/08/22/arts/music/pop-feminist-musicals-broadway.html?searchResultPosition=7
 
-**A Fun Film About a Topic That Scares Me a Lot**\
-`With a six-core processor, my avatar learns a back flip.`\
-https://nytimes.com/2023/08/22/opinion/artificial-intelligence-backflip.html?searchResultPosition=8
+**Two 2003 LPs Changed Ben Gibbard’s Life. He’s Taking Both on Tour.**\
+`The Postal Service’s “Give Up” and Death Cab for Cutie’s “Transatlanticism” arrived 20 years ago as part of a wave of indie music that found new paths to the mainstream.`\
+https://nytimes.com/2023/08/22/arts/music/ben-gibbard-postal-service-death-cab-for-cutie.html?searchResultPosition=8
 
-**Can TikTok Revive the Dead?**\
-`#Gravetok influencers post videos of themselves visiting burial sites, cleaning headstones and following recipes inscribed on them.`\
-https://nytimes.com/2023/08/22/style/gravetok-tiktok-gravestones.html?searchResultPosition=9
+**How Does Kristen Kish Feel at the Top of ‘Top Chef’? It’s Complicated.**\
+`Padma Lakshmi’s successor is a different kind of host: gay, Korean American and ready to share her emotions, including a lifelong struggle with anxiety.`\
+https://nytimes.com/2023/08/22/dining/kristen-kish-top-chef.html?searchResultPosition=9
 
-**When Great Power Conflict and Climate Action Collide**\
-`Jason Bordoff and Meghan O’Sullivan map out how decarbonization will transform the world economy and geopolitics.`\
-https://nytimes.com/2023/08/22/opinion/ezra-klein-podcast-meghan-osullivan-jason-bordoff.html?searchResultPosition=10
+**In Wheelchair Football, Camaraderie Comes With Metal-on-Metal Contact**\
+`A collision-heavy wheelchair football team in Buffalo is giving players community and purpose.`\
+https://nytimes.com/2023/08/22/sports/football/wheelchair-football-buffalo.html?searchResultPosition=10
 
