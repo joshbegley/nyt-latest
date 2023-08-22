@@ -15,7 +15,7 @@ https://nytimes.com/2023/08/22/arts/music/amplifier-newsletter-songs-parenthetic
 https://nytimes.com/2023/08/22/world/americas/bolsonaro-brazil-arrest-watches.html?searchResultPosition=4
 
 **Biden’s New Student Loan Repayment Plan Is Open. Here’s How to Enroll.**\
-`The Biden administration’s new income-driven repayment plan, SAVE, will reduce payments for millions of borrowers and more will qualify for $0 payments.`\
+`The income-driven plan, SAVE, will reduce payments for millions of borrowers, and more will qualify for $0 payments.`\
 https://nytimes.com/2023/08/22/your-money/student-loans-income-driven-repayment-save.html?searchResultPosition=5
 
 **Ukraine’s Forces and Firepower Are Misallocated, U.S. Officials Say**\
