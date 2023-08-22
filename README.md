@@ -35,6 +35,6 @@ https://nytimes.com/2023/08/22/nyregion/nyc-jail-settlement-blackout.html?search
 https://nytimes.com/2023/08/22/crosswords/spelling-bee-forum.html?searchResultPosition=9
 
 **Drones Disrupt Moscow Airport Traffic for a Second Day**\
-`Russia said it intercepted drones in two parts of the country, in what appears to be the latest in a string of Ukrainian attacks designed to bring the war home to Russia’s citizens.`\
+`Russia said it intercepted drones in two parts of the country, in what appeared to be the latest in a string of Ukrainian attacks designed to bring the war home to Russia’s citizens.`\
 https://nytimes.com/2023/08/22/world/europe/ukraine-drones-moscow-russia.html?searchResultPosition=10
 
