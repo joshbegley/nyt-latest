@@ -7,7 +7,7 @@ https://nytimes.com/2023/08/21/crosswords/daily-puzzle-2023-08-22.html?searchRes
 https://nytimes.com/2023/08/21/world/asia/cambodia-hun-manet-prime-minister.html?searchResultPosition=2
 
 **Japan to Release Treated Water From Ruined Nuclear Plant Despite Concerns**\
-`The country plans to proceed with a discharge at Fukushima that will eventually reach more than a million tons of water.`\
+`In the face of regional and domestic objections, the country plans to proceed with a discharge at Fukushima that will eventually reach more than a million tons of water.`\
 https://nytimes.com/2023/08/21/world/asia/japan-fukushima-water-release.html?searchResultPosition=3
 
 **The Stage Takes Shape for a Trump-Less First G.O.P. Debate**\
