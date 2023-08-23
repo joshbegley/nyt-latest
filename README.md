@@ -1,24 +1,24 @@
+**​North Korean Satellite Launch Fails, Again**\
+`The ​rocket failure was an embarrassment for the country’s leader, Kim Jong-un, who badly needed a morale-booster for his people.`\
+https://nytimes.com/2023/08/23/world/asia/north-korea-satellite-launch.html?searchResultPosition=5
+
+**Johaar Mosaval, Who Broke Free of Apartheid for Ballet, Dies at 95**\
+`Of South Asian descent, he was discriminated against as “colored” in South Africa, but he flourished in London as a principal dancer with the Royal Ballet.`\
+https://nytimes.com/2023/08/23/arts/dance/johaar-mosaval-dead.html?searchResultPosition=6
+
 **Trump Skips the Debate, but May Be Able to Steal the Spotlight**\
 `The former president won’t be at the debate in Milwaukee, but a recorded interview with Tucker Carlson will be posted as his competitors take the stage.`\
-https://nytimes.com/2023/08/23/us/trump-tucker-carlson-debate.html?searchResultPosition=5
+https://nytimes.com/2023/08/23/us/trump-tucker-carlson-debate.html?searchResultPosition=7
 
 **Law School That Covered Slavery Murals Didn’t Violate Artist’s Rights, Court Rules**\
 `The artist sued after Vermont Law and Graduate School installed panels in front of two murals it had commissioned in the 1990s.`\
-https://nytimes.com/2023/08/23/arts/design/vermont-law-school-slavery-murals.html?searchResultPosition=6
+https://nytimes.com/2023/08/23/arts/design/vermont-law-school-slavery-murals.html?searchResultPosition=8
 
 **Striking Workers in California Could Get Unemployment Pay Under New Bill**\
 `Democratic lawmakers have introduced a proposal that would allow workers who walk off the job to receive benefits.`\
-https://nytimes.com/2023/08/23/us/workers-strike-unemployment-california.html?searchResultPosition=7
+https://nytimes.com/2023/08/23/us/workers-strike-unemployment-california.html?searchResultPosition=9
 
 **Warren Hoge, Who Covered Wars and World Crises for The Times, Dies at 82**\
 `As a correspondent, including as a bureau chief, he wrote vividly from all corners of the globe. He later served as foreign editor and assistant managing editor.`\
-https://nytimes.com/2023/08/23/business/media/warren-hoge-dead.html?searchResultPosition=8
-
-**America Is Losing Religious Faith**\
-`At present rates, only a minority of Americans will identify as Christian by the mid-2030s.`\
-https://nytimes.com/2023/08/23/opinion/christianity-america-religion-secular.html?searchResultPosition=9
-
-**Trial Opens for Men Accused of Aiding Plot to Kidnap Michigan’s Governor**\
-`Three men accused of helping to surveil Gov. Gretchen Whitmer’s vacation home could face more than 20 years in prison if convicted.`\
-https://nytimes.com/2023/08/23/us/michigan-whitmer-plot-trial.html?searchResultPosition=10
+https://nytimes.com/2023/08/23/business/media/warren-hoge-dead.html?searchResultPosition=10
 
