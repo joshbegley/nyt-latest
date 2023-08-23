@@ -1,40 +1,40 @@
-**Surovikin has not been seen in public since the short-lived Wagner mutiny.**\
-`By Valeriya Safronova`\
-https://nytimes.com/live/2023/08/23/world/russia-ukraine-war-news/surovikin-has-not-been-seen-in-public-since-the-short-lived-wagner-mutiny?searchResultPosition=1
+**The Secret to the Greenest Pesto**\
+`A yearslong quest to replicate a favorite restaurant dish ends with the recipe itself.`\
+https://nytimes.com/2023/08/23/magazine/pesto-pasta-shrimp-recipe.html?searchResultPosition=1
 
-**Drone damages building under construction in Moscow’s financial district.**\
-`By Victoria Kim and Juston Jones`\
-https://nytimes.com/live/2023/08/23/world/russia-ukraine-war-news/drone-damages-building-under-construction-in-moscows-financial-district?searchResultPosition=2
+**How a Small Gender Clinic Landed in a Political Storm**\
+`Washington University’s youth gender clinic in St. Louis, like others around the world, was overwhelmed by new patients and struggled to provide them with mental health care.`\
+https://nytimes.com/2023/08/23/health/transgender-youth-st-louis-jamie-reed.html?searchResultPosition=2
 
-**Quotation of the Day: In Hot Job Market, Minimum Wage Isn’t Enough to Lure Workers**\
-`Quotation of the Day for Wednesday, August 23, 2023.`\
-https://nytimes.com/2023/08/23/pageoneplus/quotation-of-the-day-in-hot-job-market-minimum-wage-isnt-enough-to-lure-workers.html?searchResultPosition=3
+**First They Appeased Poseidon. Then They Ate Lobster.**\
+`Jay and Alison Carroll, the founders of the olive oil company Wonder Valley, gathered friends for a casual oceanside feast in Maine, in honor of their newly renamed fishing boat.`\
+https://nytimes.com/2023/08/23/t-magazine/jay-alison-carroll-wonder-valley-maine-feast.html?searchResultPosition=3
 
-**Beyond the Debate, Republicans Are Deep in the 2024 Ad Wars**\
-`Many of the party’s presidential candidates have spent heavily as they try to introduce themselves to voters. Ads for Donald Trump, meanwhile, look ahead to a matchup with President Biden.`\
-https://nytimes.com/2023/08/23/us/politics/advertising-republican-candidates-2024.html?searchResultPosition=4
+**In the Heart of the Outback, Safeguarding a Sacred Land**\
+`On a road trip in central Australia, a visitor learns how Indigenous custodians and conservationists are working to protect an ancient land and its animal denizens.`\
+https://nytimes.com/2023/08/23/travel/australian-outback-aboriginal-people-wildlife.html?searchResultPosition=4
 
-**A Filmmaker Honored Bella Abzug. Her Daughter Says He Took Advantage.**\
-`A new documentary traces the trailblazing legacy of the feminist congresswoman, but a conflict between her daughter and the filmmaker has clouded its opening.`\
-https://nytimes.com/2023/08/23/nyregion/bella-abzug-daughter-documentary.html?searchResultPosition=5
+**The Secrets of Debate Swag**\
+`Oh, the games campaigns play with political merch. They may surprise you.`\
+https://nytimes.com/2023/08/23/style/campaign-merch-debate-virality.html?searchResultPosition=5
 
-**In a Hot Job Market, the Minimum Wage Becomes an Afterthought**\
-`The federal wage floor of $7.25 is increasingly irrelevant when even most teenagers are earning twice that. But what happens when the economy cools?`\
-https://nytimes.com/2023/08/23/business/economy/minimum-wage.html?searchResultPosition=6
+**The Inheritance Case That Could Unravel an Art Dynasty**\
+`How a widow’s legal fight against the Wildenstein family of France has threatened their storied collection — and revealed the underbelly of the global art market.`\
+https://nytimes.com/2023/08/23/magazine/wildensteins-inheritance-case-art.html?searchResultPosition=6
 
-**The First Big Stop on the Campaign Trail**\
-`Republican candidates face off tonight in Milwaukee. Times reporters will be watching and writing.`\
-https://nytimes.com/2023/08/23/pageoneplus/the-first-big-stop-on-the-campaign-trail.html?searchResultPosition=7
+**Manliness, Prestige and Cash: How Military Service Is Sold on Russian TV**\
+`The Times tracked several months of Russian state messaging in the Kremlin’s effort to recruit soldiers.`\
+https://nytimes.com/2023/08/23/world/europe/manliness-prestige-and-cash-how-military-service-is-sold-on-russian-tv.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/08/23/crosswords/wordle-review-answer-795.html?searchResultPosition=8
+**‘They Are Not Going to Settle for the Second-Best Trump’**\
+`Why hasn’t Ron DeSantis caught on?`\
+https://nytimes.com/2023/08/23/opinion/trump-desantis-republican-party.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/23/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**Already Missing Summer? You Can Preserve It in Your Freezer.**\
+`Frozen herbs can conjure up the delights of warm weather even in the depths of winter. Here’s how to get started.`\
+https://nytimes.com/2023/08/23/realestate/frozen-herbs-garden-cooking.html?searchResultPosition=9
 
-**Word of the Day: iteration**\
-`This word has appeared in 293 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/08/23/learning/word-of-the-day-iteration.html?searchResultPosition=10
+**Can This Deck of Cards Make Your Partner Do More Chores?**\
+`The Fair Play system, a word-of-mouth hit, seeks to bring so-called invisible labor out into the open.`\
+https://nytimes.com/2023/08/23/style/fair-play-cards-heterosexual-relationships.html?searchResultPosition=10
 
