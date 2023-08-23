@@ -24,7 +24,7 @@ https://nytimes.com/2023/08/23/arts/dance/jodi-melnick-clarice-lispector.html?se
 
 **What to Know About Key Nations Seeking to Join BRICS**\
 `Saudi Arabia, Argentina, Indonesia and Egypt are among the potential candidates to expand the five-nation bloc, many of them seeking stronger ties with non-Western powers. Iran is also interested.`\
-https://nytimes.com/2023/08/23/world/brics-nations-new-members-expansion.html?searchResultPosition=8
+https://nytimes.com/2023/08/23/world/asia/brics-nations-new-members-expansion.html?searchResultPosition=8
 
 **Scenes From Greece, Where Hundreds of New Fires Burn**\
 `Firefighters are struggling to quell deadly flames, part of a crisis of wildfires in the nation this summer. Here are photos from the latest blazes.`\
