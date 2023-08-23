@@ -22,7 +22,7 @@ https://nytimes.com/2023/08/23/world/europe/greece-wildfires-athens.html?searchR
 `By Michael Roston`\
 https://nytimes.com/live/2023/08/23/science/india-moon-landing-chandrayaan-3/japan-moon-launch-slim-jaxa?searchResultPosition=7
 
-**Over 3,100 Charged with Pandemic Relief Fraud, Justice Department Says**\
+**Over 3,100 Charged With Pandemic Relief Fraud, Justice Department Says**\
 `The department outlined several cases, including one in which the defendants were accused of using fraudulently obtained funds to solicit a murder.`\
 https://nytimes.com/2023/08/23/business/pandemic-relief-fraud-justice-department.html?searchResultPosition=8
 
