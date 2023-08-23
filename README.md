@@ -2,7 +2,7 @@
 `ISRO, the country’s counterpart to NASA, is busy making way for a private enterprise`\
 https://nytimes.com/live/2023/08/23/science/india-moon-landing-chandrayaan-3/behind-indias-space-agency-a-private-space-sector-is-ready-to-lift-off?searchResultPosition=1
 
-**Basketball Injury Threatens Doug Burgum’s G.O.P. Debate Appearance**\
+**Doug Burgum Suffers Basketball Injury Ahead of G.O.P. Debate Appearance**\
 `The North Dakota governor, a long-shot Republican presidential candidate, was taken to an emergency room Tuesday. The extent of his injury was unclear.`\
 https://nytimes.com/2023/08/23/us/politics/burgum-basketball-injury-debate.html?searchResultPosition=2
 
