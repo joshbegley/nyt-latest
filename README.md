@@ -22,13 +22,13 @@ https://nytimes.com/2023/08/23/us/maui-missing.html?searchResultPosition=5
 `U.S. officials say Ukraine’s forces are misallocated.`\
 https://nytimes.com/2023/08/23/briefing/ukraine-pakistan-cable-car.html?searchResultPosition=6
 
-**Can Shrinking Be Good for Japan? A Marxist Best Seller Makes the Case.**\
-`Kohei Saito says the country should seize this moment of demographic and economic challenge to reinvent itself through “degrowth communism.”`\
-https://nytimes.com/2023/08/23/business/kohei-saito-degrowth-communism.html?searchResultPosition=7
-
 **What to Know as Zimbabwe Elects a President**\
 `The country needs a free and fair election to escape Western sanctions. But familiar concerns about government repression and ballot rigging are dogging the vote.`\
-https://nytimes.com/2023/08/23/world/africa/zimbabwe-election-emmerson-mnangagwa.html?searchResultPosition=8
+https://nytimes.com/2023/08/23/world/africa/zimbabwe-election-emmerson-mnangagwa.html?searchResultPosition=7
+
+**Can Shrinking Be Good for Japan? A Marxist Best Seller Makes the Case.**\
+`Kohei Saito says the country should seize this moment of demographic and economic challenge to reinvent itself through “degrowth communism.”`\
+https://nytimes.com/2023/08/23/business/kohei-saito-degrowth-communism.html?searchResultPosition=8
 
 **9 Things That Will Shape Wednesday’s G.O.P. Debate**\
 `Former President Donald J. Trump won’t be on the stage in Milwaukee, but his rivals still need to make a case to be the alternative.`\
