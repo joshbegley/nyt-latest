@@ -3,7 +3,7 @@
 https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/shirtless-tennis-classic-rock-candidates-prep-for-the-debate-or-not?searchResultPosition=5
 
 **​North Korean Satellite Launch Fails, Again**\
-`The ​rocket failure was an embarrassment for the country’s leader, Kim Jong-un, who badly needed a morale-booster for his people.`\
+`The ​rocket failure was an embarrassment for the country’s leader, Kim Jong-un, who badly needed a morale booster for his people.`\
 https://nytimes.com/2023/08/23/world/asia/north-korea-satellite-launch.html?searchResultPosition=6
 
 **Johaar Mosaval, Who Broke Free of Apartheid for Ballet, Dies at 95**\
