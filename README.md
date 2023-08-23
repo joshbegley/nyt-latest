@@ -4,7 +4,7 @@ https://nytimes.com/2023/08/23/nyregion/barbara-gustern-lauren-pazienza-guilty-p
 
 **The report did not say whether it had confirmed the mercenary warlord was actually on the plane.**\
 `The report by the Russian aviation authority did not`\
-https://nytimes.com/live/2023/08/23/world/russia-ukraine-war-news/prigozhin-plane-crash?searchResultPosition=4
+https://nytimes.com/live/2023/08/23/world/prigozhin-russia-ukraine-war-news/prigozhin-plane-crash?searchResultPosition=4
 
 **DeSantis’s Debate Mission: Prove He’s Still the Top Trump Alternative**\
 `Allies believe the Florida governor needs to reassure skittish donors and supporters alike that he can square off with Mr. Trump.`\
@@ -12,7 +12,7 @@ https://nytimes.com/2023/08/23/us/politics/desantis-republican-debate-trump.html
 
 **Ukraine denies Russian claims of destroying a Ukrainian naval vessel in the Black Sea.**\
 `By Constant Méheut`\
-https://nytimes.com/live/2023/08/23/world/russia-ukraine-war-news/ukraine-denies-russian-claims-of-destroying-a-ukrainian-naval-vessel-in-the-black-sea?searchResultPosition=6
+https://nytimes.com/live/2023/08/23/world/prigozhin-russia-ukraine-war-news/ukraine-denies-russian-claims-of-destroying-a-ukrainian-naval-vessel-in-the-black-sea?searchResultPosition=6
 
 **Facial Recognition Saw Through Man Who Stole Dead Brother’s Identity**\
 `Guillermo Gonzalez died as an infant in 1939, but his brother Napoleon, now 86, used his identity for decades. He was convicted of fraud last week.`\
