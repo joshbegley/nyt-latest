@@ -1,1 +1,32 @@
-**Prigozhin, chief of the Wagner group, was listed among the passengers of a business jet that crashed.**\
+**Here’s the latest on the crash.**\
+`By Anton Troianovski`\
+https://nytimes.com/live/2023/08/23/world/prigozhin-russia-ukraine-war-news/prigozhin-chief-of-the-wagner-group-was-listed-among-the-passengers-of-a-business-jet-that-crashed?searchResultPosition=3
+
+**A Dad Disappears, and His Family Cracks Open**\
+`In Angie Kim’s new novel, “Happiness Falls,” Adam Parson’s wife and children question everything they thought they knew about him.`\
+https://nytimes.com/2023/08/23/books/review/angie-kim-happiness-falls.html?searchResultPosition=4
+
+**Woman Who Fatally Shoved Broadway Voice Coach Pleads Guilty**\
+`The woman, Lauren Pazienza, agreed to serve eight years in prison for pushing Barbara Gustern, who hit her head and later died.`\
+https://nytimes.com/2023/08/23/nyregion/barbara-gustern-lauren-pazienza-guilty-plea.html?searchResultPosition=5
+
+**The report did not say whether it had confirmed the mercenary warlord was actually on the plane.**\
+`The report by the Russian aviation authority did not`\
+https://nytimes.com/live/2023/08/23/world/prigozhin-russia-ukraine-war-news/prigozhin-plane-crash?searchResultPosition=6
+
+**DeSantis’s Debate Mission: Prove He’s Still the Top Trump Alternative**\
+`Allies believe the Florida governor needs to reassure skittish donors and supporters alike that he can square off with Mr. Trump.`\
+https://nytimes.com/2023/08/23/us/politics/desantis-republican-debate-trump.html?searchResultPosition=7
+
+**Ukraine denies Russian claims of destroying a Ukrainian naval vessel in the Black Sea.**\
+`By Constant Méheut`\
+https://nytimes.com/live/2023/08/23/world/prigozhin-russia-ukraine-war-news/ukraine-denies-russian-claims-of-destroying-a-ukrainian-naval-vessel-in-the-black-sea?searchResultPosition=8
+
+**Facial Recognition Saw Through Man Who Stole Dead Brother’s Identity**\
+`Guillermo Gonzalez died as an infant in 1939, but his brother Napoleon, now 86, used his identity for decades. He was convicted of fraud last week.`\
+https://nytimes.com/2023/08/23/us/napoleon-gonzalez-identity-fraud-brother-maine.html?searchResultPosition=9
+
+**South Carolina Supreme Court Upholds Abortion Law, Reversing Earlier Decision**\
+`The ruling, by a newly all-male bench, allows the state’s new six-week abortion ban to take effect.`\
+https://nytimes.com/2023/08/23/us/south-carolina-abortion-supreme-court.html?searchResultPosition=10
+
