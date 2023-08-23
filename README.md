@@ -1,4 +1,4 @@
-**Terry Funk, Hall of Fame Hardcore Wrestler, Dies at 79**\
+**Terry Funk, Hardcore Hall of Fame Wrestler, Dies at 79**\
 `Mr. Funk also took his menacing image to Hollywood, playing a bouncer in the 1989 Patrick Swayze film “Road House.”`\
 https://nytimes.com/2023/08/23/obituaries/terry-funk-wrestler-dead.html?searchResultPosition=1
 
