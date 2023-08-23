@@ -1,6 +1,6 @@
 **Drone damages building under construction in Moscow’s financial district.**\
-`Russia blamed Ukraine for a six`\
-https://nytimes.com/2023/08/23/world/europe/drone-damages-building-under-construction-in-moscows-financial-district.html?searchResultPosition=1
+`By Victoria Kim and Juston Jones`\
+https://nytimes.com/live/2023/08/23/world/russia-ukraine-war-news/drone-damages-building-under-construction-in-moscows-financial-district?searchResultPosition=1
 
 **Quotation of the Day: In Hot Job Market, Minimum Wage Isn’t Enough to Lure Workers**\
 `Quotation of the Day for Wednesday, August 23, 2023.`\
