@@ -11,7 +11,7 @@ https://nytimes.com/2023/08/22/us/tafari-campbell-obama-chef-drown-accident.html
 https://nytimes.com/2023/08/22/crosswords/daily-puzzle-2023-08-23.html?searchResultPosition=3
 
 **For Families of Missing in Maui, Search Grows More Desperate**\
-`Hundreds of people are still unaccounted for after the deadly fires, and loved ones still hope for a “miracle.”`\
+`Hundreds of people are still unaccounted for after the deadly fires, and loved ones hope for a “miracle.”`\
 https://nytimes.com/2023/08/22/us/maui-fires-missing-search.html?searchResultPosition=4
 
 **Witness in Trump Documents Case Changed Lawyers, and Then Testimony**\
