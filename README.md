@@ -6,7 +6,7 @@ https://nytimes.com/paidpost/siemens/microgrid-technology/transforming-sustainab
 `Also, a paralyzed woman regains her voice.`\
 https://nytimes.com/2023/08/23/briefing/wagner-leader-plane-crash-india-moon-landing-hawaii-wildfire.html?searchResultPosition=6
 
-**Two men linked in their war successes, with their fates now in question.**\
+**The fates of two men key to Putin’s war are now both in question.**\
 `By Anton Troianovski`\
 https://nytimes.com/live/2023/08/23/world/prigozhin-russia-ukraine-war-news/two-men-linked-in-their-war-successes-with-their-fates-now-in-question?searchResultPosition=7
 
