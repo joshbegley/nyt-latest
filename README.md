@@ -2,8 +2,8 @@
 `The woman, Lauren Pazienza, agreed to serve eight years in prison for pushing Barbara Gustern, who hit her head and later died.`\
 https://nytimes.com/2023/08/23/nyregion/barbara-gustern-lauren-pazienza-guilty-plea.html?searchResultPosition=3
 
-**Prigozhin was listed as passenger on a plane that crashed, killing all aboard, Russian authorities report.**\
-`The report by the Russian aviation authority did not say whether it had confirmed that the mercenary warlord was actually on the plane.`\
+**The report did not say whether it had confirmed the mercenary warlord was actually on the plane.**\
+`The report by the Russian aviation authority did not`\
 https://nytimes.com/live/2023/08/23/world/russia-ukraine-war-news/prigozhin-plane-crash?searchResultPosition=4
 
 **DeSantis’s Debate Mission: Prove He’s Still the Top Trump Alternative**\
