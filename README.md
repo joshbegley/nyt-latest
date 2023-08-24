@@ -1,5 +1,5 @@
 **What’s Inside a Butter Cow? It’s Not Just Butter.**\
-`The butter cow is a state fair institution. But the sculptors there’s more than dairy to these pale yellow works of art.`\
+`The butter cow is a state fair institution. But the sculptors say there’s more than dairy to these pale yellow works of art.`\
 https://nytimes.com/2023/08/24/us/butter-cows-state-fair.html?searchResultPosition=1
 
 **Giannis Antetokounmpo Wants It All. Even if It’s Not in Milwaukee.**\
