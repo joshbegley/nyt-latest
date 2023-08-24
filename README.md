@@ -2,7 +2,7 @@
 `As a New York City deputy mayor and a lawyer for the city and state court systems, she fought for equal access and opportunity for women, immigrants and minorities.`\
 https://nytimes.com/2023/08/24/nyregion/carol-robles-roman-dead.html?searchResultPosition=1
 
-**Explosion Likely Brought Down Plane Believed to Be Carrying Mercenary Leader, U.S. Officials Say**\
+**Explosion Likely Downed Plane Believed to Be Carrying Mercenary Leader, U.S. Officials Say**\
 `The officials stressed that other theories about what brought down a plane in Russia are still being explored.`\
 https://nytimes.com/2023/08/24/us/politics/plane-crash-prigozhin-explosion.html?searchResultPosition=2
 
