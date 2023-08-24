@@ -1,40 +1,40 @@
+**What a Few Seconds of Hand Raising Said About Trump’s G.O.P.**\
+`With a halting series of raised hands, candidates on the Republican debate stage illustrated the former president’s hold on the party.`\
+https://nytimes.com/2023/08/24/us/politics/trump-convicted-republican-debate-hands.html?searchResultPosition=1
+
+**Word of the Day: paterfamilias**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2023/08/24/learning/word-of-the-day-paterfamilias.html?searchResultPosition=2
+
+**Ramaswamy Seizes Spotlight as DeSantis Hangs Back: 7 Debate Takeaways**\
+`As Republican presidential candidates traded fire at their first debate, they mostly left their party’s dominant front-runner unscathed.`\
+https://nytimes.com/2023/08/24/us/politics/republican-debate-takeaways.html?searchResultPosition=3
+
 **At the Republican Debate, an Infuriating Display of Moral Cowardice**\
 `The candidates refused to tell the full truth about Trump’s lies.`\
-https://nytimes.com/2023/08/24/opinion/republican-debate-trump-desantis.html?searchResultPosition=1
+https://nytimes.com/2023/08/24/opinion/republican-debate-trump-desantis.html?searchResultPosition=4
 
 **From a G.O.P. Stronghold, Debate Watchers Cheered Signs of a Post-Trump Era**\
 `A debate watch party at the Richard Nixon Presidential Library drew traditional Republicans pining for the policy debates of the past. They left happy.`\
-https://nytimes.com/2023/08/24/us/politics/republican-debate-voter-reaction.html?searchResultPosition=2
+https://nytimes.com/2023/08/24/us/politics/republican-debate-voter-reaction.html?searchResultPosition=5
 
 **A Fox News Debate That Skimped on ‘the Elephant Not in the Room’**\
 `Donald J. Trump is the most important figure in the Republican Party, but he merited only 10 minutes of questions from the moderators, Bret Baier and Martha MacCallum.`\
-https://nytimes.com/2023/08/24/business/media/fox-republican-debate-trump.html?searchResultPosition=3
+https://nytimes.com/2023/08/24/business/media/fox-republican-debate-trump.html?searchResultPosition=6
 
 **The BRICS summit is drawing to a close, still in the shadow of the war in Ukraine.**\
 `By Jesus Jiménez`\
-https://nytimes.com/live/2023/08/24/world/russia-prigozhin-ukraine-news/the-brics-summit-is-drawing-to-a-close-still-in-the-shadow-of-the-war-in-ukraine?searchResultPosition=4
+https://nytimes.com/live/2023/08/24/world/russia-prigozhin-ukraine-news/the-brics-summit-is-drawing-to-a-close-still-in-the-shadow-of-the-war-in-ukraine?searchResultPosition=7
 
 **What Prigozhin Did in Putin’s Russia Was the Ultimate Betrayal**\
 `His fate may have already been sealed.`\
-https://nytimes.com/2023/08/24/opinion/international-world/prigozhin-plane-crash-putin.html?searchResultPosition=5
+https://nytimes.com/2023/08/24/opinion/international-world/prigozhin-plane-crash-putin.html?searchResultPosition=8
 
 **Here’s the latest on the crash.**\
 `By Anton Troianovski`\
-https://nytimes.com/live/2023/08/24/world/russia-prigozhin-ukraine-news/heres-the-latest-on-the-crash?searchResultPosition=6
+https://nytimes.com/live/2023/08/24/world/russia-prigozhin-ukraine-news/heres-the-latest-on-the-crash?searchResultPosition=9
 
 **At Least 4 Killed, Including Gunman, in Biker Bar Shooting in Southern California**\
 `At least six others were injured at a bar in eastern Orange County, Calif., that has attracted motorcyclists and been a community hub for decades.`\
-https://nytimes.com/2023/08/24/us/shooting-cooks-corner-bar-orange-county.html?searchResultPosition=7
-
-**Japan Begins Releasing Treated Radioactive Water at Fukushima**\
-`China said it would suspend imports of Japanese seafood in response to what it has called an unsafe plan to dispose of the wastewater.`\
-https://nytimes.com/2023/08/24/world/asia/japan-fukushima-water.html?searchResultPosition=8
-
-**Thursday Briefing**\
-`Prigozhin might have died in a plane crash.`\
-https://nytimes.com/2023/08/24/briefing/prigozhin-greek-wildfires.html?searchResultPosition=9
-
-**Casino Operators and Children: The Strategy for Local Support**\
-`Casino bidders need to show community support, so they are outfitting local children in T-shirts with logos. Also, curbside composting comes to Brooklyn.`\
-https://nytimes.com/2023/08/24/nyregion/casino-operators-and-children-the-strategy-for-local-support.html?searchResultPosition=10
+https://nytimes.com/2023/08/24/us/shooting-cooks-corner-bar-orange-county.html?searchResultPosition=10
 
