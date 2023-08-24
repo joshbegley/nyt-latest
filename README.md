@@ -11,7 +11,7 @@ https://nytimes.com/2023/08/24/us/politics/trumpism-trump-debate-republicans.htm
 https://nytimes.com/2023/08/24/upshot/ron-desantis-debate.html?searchResultPosition=3
 
 **It’s 1:30 a.m., and a Clown Wants to Fix You**\
-`The breakout star of this year’s Edinburgh Fringe is Julia Masli, aperformer with a graveyard time slot who sets out to solve her audience’s problems.`\
+`The breakout star of this year’s Edinburgh Fringe is Julia Masli, a performer with a graveyard time slot who sets out to solve her audience’s problems.`\
 https://nytimes.com/2023/08/24/theater/julia-masli-clown-edinburgh-fringe.html?searchResultPosition=4
 
 **Retired Army Lawyer Will Oversee Pentagon’s War Court**\
