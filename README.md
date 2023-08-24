@@ -1,5 +1,5 @@
 **Trump’s mug shot is released, a first in his four criminal cases this year.**\
-`Mr. Trump spent about 20 minutes at the Fulton County Jail, submitting to some of the routines of criminal defendant intake. He was fingerprinted and had his photo was taken.`\
+`Mr. Trump spent about 20 minutes at the Fulton County Jail, submitting to some of the routines of criminal defendant intake. He was fingerprinted and had his photo taken.`\
 https://nytimes.com/2023/08/24/us/politics/trump-mugshot-booking-photo.html?searchResultPosition=1
 
 **Man Who Threatened to Kill Montana Senator Gets More Than 2 Years In Prison**\
