@@ -1,6 +1,6 @@
 **Ukraine claims its forces staged a brief raid in occupied Crimea.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2023/08/24/world/prigozhin-russia-ukraine-news/ukraine-crimea-raid?searchResultPosition=1
+`Taking back the peninsula, which was annexed by Russia in 2014, has remained a core part of the Ukrainian war effort.`\
+https://nytimes.com/2023/08/24/world/europe/ukraine-crimea-raid.html?searchResultPosition=1
 
 **Trump’s Shadow Over the Republican Debate**\
 `Readers discuss the debate and an interview with the former president. Also: Madonna; welcoming immigrants; animal shelters.`\
