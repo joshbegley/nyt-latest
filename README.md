@@ -22,9 +22,9 @@ https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/in-florida-w
 `By Lisa Friedman`\
 https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/china-india-emissions-climate?searchResultPosition=6
 
-**Chaos erupted when the candidates were asked if they believed in climate change.**\
-`There is no scientific dispute on`\
-https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/republican-debate-climate-change?searchResultPosition=7
+**Chaos Erupts When Republican Candidates Asked if They Believed in Climate Change**\
+`There is no scientific dispute on the question, but almost none of the Republican presidential candidates gave a straight answer.`\
+https://nytimes.com/2023/08/23/us/republican-debate-climate-change.html?searchResultPosition=7
 
 **“What we have going on in Ukraine is an example of when deterrence fails. What we have is an example of Biden’s disastrous withdrawal from Afghanistan, the fact that he green-lighted Putin moving into Ukraine.”**\
 `By Julian E. Barnes`\
