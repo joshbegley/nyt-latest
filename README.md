@@ -6,7 +6,7 @@ https://nytimes.com/2023/08/24/business/shein-forever-21.html?searchResultPositi
 `He arrives as the Queens museum redesigns its core exhibition to include more nods to video games and social media.`\
 https://nytimes.com/2023/08/24/arts/design/aziz-isham-museum-moving-image-director.html?searchResultPosition=2
 
-**Ukrainians Mark Another Independence Day as the War Rages On**\
+**Ukrainians Observe Another Independence Day as the War Rages On**\
 `On the second Independence Day since Russia’s full-scale invasion, the mood in Kyiv was subdued.`\
 https://nytimes.com/2023/08/24/world/europe/ukraine-independence-day-kyiv.html?searchResultPosition=3
 
