@@ -6,4 +6,35 @@ https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/we-eliminate
 `By Zolan Kanno-Youngs`\
 https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/we-secured-the-southern-border-of-the-united-states-of-america-and-reduced-illegal-immigration-and-asylum-abuse-by-90-percent-wh?searchResultPosition=2
 
-**“We had schools open during Covid, and a lot of the problems we have seen are because these lockdown states had their schools locked for a year, a year and a half.”**\
+**“We had schools open during Covid, and a lot of the problems that we have seen are because these lockdown states lock their kids out of school for a year, a year and a half.”**\
+`By Dana Goldstein`\
+https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/desantis-florida-covid-schools?searchResultPosition=3
+
+**“In Florida, we eliminated critical race theory from our K-12 schools.”**\
+`By Trip Gabriel`\
+https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/in-florida-we-eliminated-critical-race-theory-from-our-k-12-schools?searchResultPosition=4
+
+**“If you want to go and really change the environment, then we need to start telling China and India that they have to lower their emissions.”**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/china-india-emissions-climate?searchResultPosition=5
+
+**Chaos erupted when the candidates were asked if they believed in climate change.**\
+`There is no scientific dispute on`\
+https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/republican-debate-climate-change?searchResultPosition=6
+
+**“What we have going on in Ukraine is an example of when deterrence fails. What we have is an example of Biden’s disastrous withdrawal from Afghanistan, the fact that he green-lighted Putin moving into Ukraine.”**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/what-we-have-going-on-in-ukraine-is-an-example-of-when-deterrence-fails-what-we-have-is-an-example-of-bidens-disastrous-withdraw?searchResultPosition=7
+
+**“It is not just the 70,000 from fentanyl. We have lost 200,000 people to overdoses since Biden took office.”**\
+`By Margot Sanger-Katz`\
+https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/it-is-not-just-the-70000-from-fentanyl-we-have-lost-200000-people-to-overdoses-since-biden-took-office?searchResultPosition=8
+
+**Pence and Haley clash, underscoring the Republican divide on abortion.**\
+`Mike Pence sought once more to define himself as the staunchest opponent of abortion in the field, and Nikki Haley accused him of misleading Americans about what was politically possible.`\
+https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/abortion-pence-haley-debate?searchResultPosition=9
+
+**“We will back law enforcement because we remember who we really are. And that’s also how we address that mental health epidemic in the next generation that is directly leading to violent crime across this country.”**\
+`By Anjali Huynh`\
+https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/we-will-back-law-enforcement-because-we-remember-who-we-really-are-and-thats-also-how-we-address-that-mental-health-epidemic-in-?searchResultPosition=10
+
