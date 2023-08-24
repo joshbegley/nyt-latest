@@ -16,11 +16,11 @@ https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/we-eliminate
 
 **“We secured the southern border of the United States of America and reduced illegal immigration and asylum abuse by 90 percent. When Joe Biden took over, he threw open the southern border of the United States and the wave of humanity, the wave of fentanyl that has been eloquently described here, is a wave of human tragedy across this country.”**\
 `By Zolan Kanno-Youngs`\
-https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/we-secured-the-southern-border-of-the-united-states-of-america-and-reduced-illegal-immigration-and-asylum-abuse-by-90-percent-wh?searchResultPosition=5
+https://nytimes.com/live/2023/08/23/us/republican-debate-fact-check/we-secured-the-southern-border-of-the-united-states-of-america-and-reduced-illegal-immigration-and-asylum-abuse-by-90-percent-wh?searchResultPosition=5
 
 **“We had schools open during Covid, and a lot of the problems that we have seen are because these lockdown states lock their kids out of school for a year, a year and a half.”**\
 `By Dana Goldstein`\
-https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/desantis-florida-covid-schools?searchResultPosition=6
+https://nytimes.com/live/2023/08/23/us/republican-debate-fact-check/desantis-florida-covid-schools?searchResultPosition=6
 
 **“In Florida, we eliminated critical race theory from our K-12 schools.”**\
 `By Trip Gabriel`\
