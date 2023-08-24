@@ -1,40 +1,40 @@
+**The First Republican Debate**\
+`Donald Trump remains so popular among Republican primary voters that there is no obvious path for any of the other candidates to displace him.`\
+https://nytimes.com/2023/08/24/briefing/republican-debate.html?searchResultPosition=1
+
 **A Fiery First Republican Debate, Without Trump**\
 `The party’s first debate of the 2024 presidential race left its dominant candidate unscathed.`\
-https://nytimes.com/2023/08/24/podcasts/the-daily/gop-debate-trump.html?searchResultPosition=1
+https://nytimes.com/2023/08/24/podcasts/the-daily/gop-debate-trump.html?searchResultPosition=2
 
 **Today’s Top News: The Republican Debate Winners and Losers, and More**\
 `Exclusively from New York Times Audio, our new app.`\
-https://nytimes.com/2023/08/24/podcasts/headlines-nyt-audio-app.html?searchResultPosition=2
+https://nytimes.com/2023/08/24/podcasts/headlines-nyt-audio-app.html?searchResultPosition=3
 
 **He Couldn’t Help but Wonder …**\
 `An unexpected fan of “Sex and the City” reflects on the impact the series and its sequel “And Just Like That …” had on his life and, ultimately, his move to New York City.`\
-https://nytimes.com/2023/08/24/arts/television/and-just-like-that-sex-and-the-city.html?searchResultPosition=3
+https://nytimes.com/2023/08/24/arts/television/and-just-like-that-sex-and-the-city.html?searchResultPosition=4
 
 **Honey, I Blew Up the Family Film**\
 `What ever happened to the live-action adventures and G-rated titles adults and children could watch together in the theater?`\
-https://nytimes.com/2023/08/24/movies/honey-i-blew-up-the-family-film.html?searchResultPosition=4
+https://nytimes.com/2023/08/24/movies/honey-i-blew-up-the-family-film.html?searchResultPosition=5
 
 **A Viral Cigarette Brand? In 2023?**\
 `You can’t buy them at any bodega or tobacco shop in New York. But Hestia is getting its smokes into the hands of “cigfluencers.”`\
-https://nytimes.com/2023/08/24/style/hestia-cigarettes-downtown.html?searchResultPosition=5
+https://nytimes.com/2023/08/24/style/hestia-cigarettes-downtown.html?searchResultPosition=6
 
 **One Debate Down, Republicans Face Tougher Qualifications for Round 2**\
 `The Republican National Committee will hold its second primary debate on Sept. 27 at the Ronald Reagan Presidential Library in California.`\
-https://nytimes.com/2023/08/24/us/politics/second-republican-debate.html?searchResultPosition=6
+https://nytimes.com/2023/08/24/us/politics/second-republican-debate.html?searchResultPosition=7
 
 **How teachers and students feel about A.I.**\
 `As the school year begins, their thinking has evolved.`\
-https://nytimes.com/2023/08/24/technology/how-teachers-and-students-feel-about-ai.html?searchResultPosition=7
+https://nytimes.com/2023/08/24/technology/how-teachers-and-students-feel-about-ai.html?searchResultPosition=8
 
 **Republicans’ Onstage Clashes Highlight Fault Lines Within the Party**\
 `At the first presidential debate for the 2024 race, the rivals were divided over issues including Ukraine, abortion and the economy.`\
-https://nytimes.com/2023/08/24/us/politics/republican-debate-abortion-ukraine-debt.html?searchResultPosition=8
+https://nytimes.com/2023/08/24/us/politics/republican-debate-abortion-ukraine-debt.html?searchResultPosition=9
 
 **The Unusual Legal Agreement Behind ‘The Blind Side’**\
 `Michael Oher says Sean and Leigh Anne Tuohy used their relationship with him to unfairly profit from his story. They have denied it.`\
-https://nytimes.com/2023/08/24/sports/football/blind-side-michael-oher-tuohy.html?searchResultPosition=9
-
-**At Jackson Hole, Powell Faces a Changed Economy and Market**\
-`Jerome Powell, the Federal Reserve chair, warned in 2022 that the central bank might hurt the economy to cool inflation. This year, things look less dire.`\
-https://nytimes.com/2023/08/24/business/powell-jackson-hole-markets.html?searchResultPosition=10
+https://nytimes.com/2023/08/24/sports/football/blind-side-michael-oher-tuohy.html?searchResultPosition=10
 
