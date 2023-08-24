@@ -10,8 +10,8 @@ https://nytimes.com/2023/08/24/opinion/international-world/prigozhin-plane-crash
 `By Anton Troianovski`\
 https://nytimes.com/live/2023/08/24/world/russia-prigozhin-ukraine-news/heres-the-latest-on-the-crash?searchResultPosition=3
 
-**At Least 3 Killed in Bar Shooting Near Anaheim**\
-`The violence unfolded at a bar in eastern Orange County, Calif., the police said.`\
+**At Least 3 Killed in Biker Bar Shooting In Southern California**\
+`At least six others were injured at a bar in eastern Orange County, Calif., that has attracted motorcyclists for decades.`\
 https://nytimes.com/2023/08/24/us/shooting-cooks-corner-bar-orange-county.html?searchResultPosition=4
 
 **Japan Begins Releasing Treated Radioactive Water at Fukushima**\
