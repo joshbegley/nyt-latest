@@ -1,6 +1,6 @@
 **Who is Trump’s new lead defense lawyer?**\
-`By Anna Betts`\
-https://nytimes.com/live/2023/08/24/us/trump-georgia-surrender-indictment/steve-sadow-trump-lawyer-georgia?searchResultPosition=1
+`The former president has hired Steven H. Sadow, a veteran Atlanta defense lawyer who has handled a number of high-profile cases, to lead his team there.`\
+https://nytimes.com/2023/08/24/us/politics/steve-sadow-trump-lawyer-georgia.html?searchResultPosition=1
 
 **How does bail work in Fulton County?**\
 `By Shaila Dewan`\
