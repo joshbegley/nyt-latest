@@ -27,7 +27,7 @@ https://nytimes.com/live/2023/08/24/world/russia-prigozhin-ukraine-news/heres-th
 https://nytimes.com/2023/08/24/us/shooting-cooks-corner-bar-orange-county.html?searchResultPosition=7
 
 **Japan Begins Releasing Treated Radioactive Water at Fukushima**\
-`The nuclear plant failed 12 years ago in an earthquake and tsunami, and officials say they have run out of space to store water used to cool the ruined reactors.`\
+`China said it would suspend imports of Japanese seafood in response to what it has called an unsafe plan to dispose of the wastewater.`\
 https://nytimes.com/2023/08/24/world/asia/japan-fukushima-water.html?searchResultPosition=8
 
 **Thursday Briefing**\
