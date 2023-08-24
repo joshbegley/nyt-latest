@@ -7,7 +7,7 @@ https://nytimes.com/2023/08/24/theater/review-new-brain-william-finn.html?search
 https://nytimes.com/2023/08/24/movies/our-father-the-devil-review.html?searchResultPosition=2
 
 **Warner Bros. Discovery to Add CNN Channel to Max Streaming Service**\
-`The new channel, which will start Sept. 27, will feature distinct programming and, in an unusual move, live programming from the cable network.`\
+`The new channel, which will be offered starting on Sept. 27, will feature distinct programming and, in an unusual move, live programming from the cable network.`\
 https://nytimes.com/2023/08/24/business/media/warner-bros-discovery-cnn-streaming-max.html?searchResultPosition=3
 
 **In a Worrisome Sign, Some Emperor Penguins Had a Terrible 2022**\
