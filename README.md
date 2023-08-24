@@ -1,40 +1,40 @@
-**Jacobite Hero Bonnie Prince Charlie Gets a Fresh Face, Acne and All**\
-`The prince, Charles Edward Stuart, led a Jacobite rising in the Scottish Highlands in 1745. A new recreation of his face seeks to humanize the man behind the legend.`\
-https://nytimes.com/2023/08/24/world/europe/bonnie-prince-charlie-outlander-jacobite.html?searchResultPosition=1
+**The Unusual Legal Agreement Behind ‘The Blind Side’**\
+`Michael Oher says Sean and Leigh Anne Tuohy used their relationship with him to unfairly profit from his story. They have denied it.`\
+https://nytimes.com/2023/08/24/sports/football/blind-side-michael-oher-tuohy.html?searchResultPosition=1
 
-**Ex-Principal of Australian Girls’ School Sentenced to 15 Years for Abuse**\
-`Malka Leifer, extradited from Israel after a lengthy process, was found guilty in April of sexually abusing two students decades earlier.`\
-https://nytimes.com/2023/08/24/world/asia/australia-malka-leifer-sentence.html?searchResultPosition=2
+**At Jackson Hole, Powell Faces a Changed Economy and Market**\
+`Jerome Powell, the Federal Reserve chair, warned in 2022 that the central bank might hurt the economy to cool inflation. This year, things look less dire.`\
+https://nytimes.com/2023/08/24/business/powell-jackson-hole-markets.html?searchResultPosition=2
 
-**Russia Extends Pretrial Detention of Evan Gershkovich**\
-`A Moscow court on Thursday extended the pretrial detention of the American reporter who has denied the espionage charges he faces. The U.S. says he has been wrongfully detained.`\
-https://nytimes.com/2023/08/24/world/europe/evan-gershkovich-wsj-reporter-detained-russia.html?searchResultPosition=3
+**Despite Cheating Fears, Schools Repeal ChatGPT Bans**\
+`Some districts that once raced to block A.I. chatbots are now trying to embrace them.`\
+https://nytimes.com/2023/08/24/business/schools-chatgpt-chatbot-bans-walla.html?searchResultPosition=3
 
-**The BRICS Group Announces New Members, Expanding Its Reach**\
-`Argentina, Egypt, Ethiopia, Iran, the U.A.E. and Saudi Arabia have been invited to join the club of emerging nations, strengthening its role as a geopolitical alternative to Western-led forums.`\
-https://nytimes.com/2023/08/24/world/europe/brics-expansion-xi-lula.html?searchResultPosition=4
+**DeSantis Shrank in Ramaswamy’s Shadow**\
+`Wednesday’s debate delivered its own point to DeSantis: His star is setting while another rises.`\
+https://nytimes.com/2023/08/24/opinion/desantis-vivek-debate.html?searchResultPosition=4
 
-**After Thais Vote to Move Forward, the Old Guard Just Shifts Its Grip**\
-`The country went months without naming a new prime minister, only for Parliament to elect Srettha Thavisin, a candidate that many frustrated voters say represents the establishment.`\
-https://nytimes.com/2023/08/24/world/asia/thailand-pheu-thai-prime-minister.html?searchResultPosition=5
+**From School Bells to Wedding Bells**\
+`Picking a wedding venue can be a daunting process. But for some couples who met as college students, marrying at their alma maters is the clear choice.`\
+https://nytimes.com/2023/08/24/style/from-school-bells-to-wedding-bells.html?searchResultPosition=5
 
-**Escape China by Jet Ski? A Dissident Is Said to Have Planned It for Years**\
-`Officials in South Korea aren’t saying who crossed 200 miles of ocean to reach its shores. But people who know Kwon Pyong say it wasn’t his first audacious move.`\
-https://nytimes.com/2023/08/24/world/asia/china-jet-ski-dissident-escape.html?searchResultPosition=6
+**How a Harvard Professor Became the World’s Leading Alien Hunter**\
+`Avi Loeb’s single-minded search for extraterrestrial life has made him the most famous practicing astronomer in the country — and possibly the most controversial.`\
+https://nytimes.com/2023/08/24/magazine/avi-loeb-alien-hunter.html?searchResultPosition=6
 
-**We’re Having a Cowboy Moment**\
-`A cultural mash-up brings together Barbie, Beyoncé and the gang from “Yellowstone.”`\
-https://nytimes.com/2023/08/24/style/were-having-a-cowboy-moment.html?searchResultPosition=7
+**How China Made Its Housing Crisis Worse**\
+`Years of inattention to building an adequate safety net for seniors, the jobless and others in financial stress have left Chinese consumers afraid to spend.`\
+https://nytimes.com/2023/08/24/business/china-economy-safety-net.html?searchResultPosition=7
 
-**For Mayors of New York City, a Political Pilgrimage Awaits: Israel**\
-`In New York City, home to more Jews than anywhere but Israel, mayoral visits to Israel have become a rite of passage, with Eric Adams the latest example.`\
-https://nytimes.com/2023/08/24/nyregion/adams-israel-politics-nyc.html?searchResultPosition=8
+**On Immigration, Republican Candidates Stoke Sense of Menace at Debate**\
+`Donald Trump’s signature issue from 2016 still reverberates powerfully and prompts aggressive rhetoric on ways to shore up the southern U.S. border.`\
+https://nytimes.com/2023/08/24/us/immigration-republican-debate.html?searchResultPosition=8
 
-**Bears Are Running Amok in Connecticut. State Gives OK to Shoot Them.**\
-`A new law allows residents to kill bears in certain circumstances. But some residents want a full-fledged bear hunt, allowed in almost every nearby state.`\
-https://nytimes.com/2023/08/24/nyregion/connecticut-bears.html?searchResultPosition=9
+**What Can Literature Teach Us About Forgiveness?**\
+`American fiction has always grappled with sin, atonement and mercy. In the second installment of an essay series on literature and faith, Ayana Mathis examines what we can learn from forgiveness.`\
+https://nytimes.com/2023/08/24/books/review/american-literature-forgiveness.html?searchResultPosition=9
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/24/crosswords/spelling-bee-forum.html?searchResultPosition=10
+**A Speck of Old Iceland in Ice-Cold Lake Michigan**\
+`You can still find traces of Nordic history in the trails and trees of tiny Washington Island, Wis. And take a dip while you’re there — if you dare.`\
+https://nytimes.com/2023/08/24/travel/washington-island-wisconsin.html?searchResultPosition=10
 
