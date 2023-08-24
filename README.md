@@ -18,7 +18,7 @@ https://nytimes.com/2023/08/24/opinion/international-world/prigozhin-plane-crash
 `By Anton Troianovski`\
 https://nytimes.com/live/2023/08/24/world/russia-prigozhin-ukraine-news/heres-the-latest-on-the-crash?searchResultPosition=5
 
-**At Least 4 Killed, Including Gunman, in Biker Bar Shooting In Southern California**\
+**At Least 4 Killed, Including Gunman, in Biker Bar Shooting in Southern California**\
 `At least six others were injured at a bar in eastern Orange County, Calif., that has attracted motorcyclists and been a community hub for decades.`\
 https://nytimes.com/2023/08/24/us/shooting-cooks-corner-bar-orange-county.html?searchResultPosition=6
 
