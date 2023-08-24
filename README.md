@@ -22,7 +22,7 @@ https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/in-florida-w
 `By Lisa Friedman`\
 https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/china-india-emissions-climate?searchResultPosition=6
 
-**Chaos Erupts When Republican Candidates Asked if They Believed in Climate Change**\
+**Chaos Erupts When Republican Candidates Are Asked if They Believe in Climate Change**\
 `There is no scientific dispute on the question, but almost none of the Republican presidential candidates gave a straight answer.`\
 https://nytimes.com/2023/08/23/us/republican-debate-climate-change.html?searchResultPosition=7
 
