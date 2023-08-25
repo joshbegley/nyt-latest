@@ -14,27 +14,27 @@ https://nytimes.com/2023/08/25/us/politics/russia-intelligence-propaganda.html?s
 `Mr. Utkin, a prominent commander in the private Russian military company, was a longtime lieutenant to Yevgeny V. Prigozhin. He is believed dead at 53 in a plane crash.`\
 https://nytimes.com/2023/08/25/obituaries/dmitri-utkin-dead-wagner.html?searchResultPosition=4
 
-**Other prominent Russians have died in mysterious circumstances during the war.**\
-`By Valeriya Safronova`\
-https://nytimes.com/live/2023/08/25/world/russia-prigozhin-putin-ukraine-war/other-prominent-russians-have-died-in-mysterious-circumstances-during-the-war?searchResultPosition=5
-
 **They Started with an Inbox Full of Questions**\
 `Jason Mercado and Kristen Bateman, who met 10 years ago, didn’t begin dating until after three months of emailing. “I wanted to become friends first,” Ms. Bateman, a self-described introvert, said.`\
-https://nytimes.com/2023/08/25/style/kristen-bateman-jason-mercado-wedding.html?searchResultPosition=6
+https://nytimes.com/2023/08/25/style/kristen-bateman-jason-mercado-wedding.html?searchResultPosition=5
 
 **U.S. Consumers Are Showing Signs of Stress, Retailers Say**\
 `Consumer spending remains resilient, but retailers’ latest earnings offered a glimpse into worrying shifts in shopping habits.`\
-https://nytimes.com/2023/08/25/business/consumer-retail-shopping.html?searchResultPosition=7
+https://nytimes.com/2023/08/25/business/consumer-retail-shopping.html?searchResultPosition=6
 
 **Léa Garcia, Who Raised Black Actors’ Profile in Brazil, Dies at 90**\
 `Best known internationally for her breakout performance in the 1959 film “Black Orpheus,” she challenged racial stereotypes over a seven-decade career.`\
-https://nytimes.com/2023/08/25/movies/lea-garcia-dead.html?searchResultPosition=8
+https://nytimes.com/2023/08/25/movies/lea-garcia-dead.html?searchResultPosition=7
 
 **At Least 5 Dead in Michigan After Severe Storms**\
 `The storms brought heavy rain and high winds, including possible tornadoes.`\
-https://nytimes.com/2023/08/25/us/michigan-tornado-storm-deaths.html?searchResultPosition=9
+https://nytimes.com/2023/08/25/us/michigan-tornado-storm-deaths.html?searchResultPosition=8
 
 **The battle for Bakhmut burnished Prigozhin’s reputation.**\
 `By Anushka Patil, Anatoly Kurmanaev and Cassandra Vinograd`\
-https://nytimes.com/live/2023/08/25/world/russia-prigozhin-putin-ukraine-war/the-battle-for-bakhmut-burnished-prigozhins-reputation?searchResultPosition=10
+https://nytimes.com/live/2023/08/25/world/russia-prigozhin-putin-ukraine-war/the-battle-for-bakhmut-burnished-prigozhins-reputation?searchResultPosition=9
+
+**Readers Share Favorite Memories of the Memorial Coliseum**\
+`The Los Angeles landmark turns 100 this year.`\
+https://nytimes.com/2023/08/25/us/california-memorial-coliseum-los-angeles.html?searchResultPosition=10
 
