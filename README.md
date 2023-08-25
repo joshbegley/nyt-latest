@@ -1,40 +1,40 @@
+**He Admired Her ‘Grit and Grace.’ She Was Struck by His Kindness.**\
+`Bri Scalesse, model and disability advocate, knew Sheldon Nguyen was different right away. “We knew we could spend forever together,” she said, after quarantining together during the pandemic.`\
+https://nytimes.com/2023/08/25/style/bri-scalesse-sheldon-nguyen-wedding.html?searchResultPosition=1
+
+**After a Picture-Perfect First Date, Love Quickly Followed**\
+`Warren Whyte and Khaleeqa Rouse met at Starbucks after being drawn to each other’s photos on a dating app.`\
+https://nytimes.com/2023/08/25/style/khaleeqa-rouse-warren-whyte-wedding.html?searchResultPosition=2
+
+**Putting All My Eggs in the Boyfriend Basket**\
+`As my friends left college for exciting jobs and law school, I went to Mexico for a guy.`\
+https://nytimes.com/2023/08/25/style/modern-love-putting-all-my-eggs-in-the-boyfriend-basket.html?searchResultPosition=3
+
+**He Always Chose Career Over Love. But for Her, He Changed His Mind.**\
+`Tina Liu and Michael Ghory spent years living on opposite coasts, waiting for the right moment to make their relationship happen. Then, a well-timed selfie brought them back together.`\
+https://nytimes.com/2023/08/25/style/tina-liu-michael-ghory-wedding.html?searchResultPosition=4
+
+**A Trump Mug Shot for History**\
+`The former president’s booking photo is unprecedented. And that’s just the beginning of its significance.`\
+https://nytimes.com/2023/08/25/style/trump-mugshot.html?searchResultPosition=5
+
+**This Gecko’s Camouflage Is So Good, It Masqueraded as Another Species**\
+`A reptile found in Madagascar is impossible to tell apart from tree bark by day. For decades, scientists had mixed it up with a relative.`\
+https://nytimes.com/2023/08/25/science/gecko-camouflage-tree-bark.html?searchResultPosition=6
+
 **Quotation of the Day: Firefighters in California Are Working With A.I. to Spot and Stop Fires**\
 `Quotation of the Day for Friday, August 25, 2023.`\
-https://nytimes.com/2023/08/24/pageoneplus/quotation-of-the-day-firefighters-in-california-are-working-with-ai-to-spot-and-stop-fires.html?searchResultPosition=1
+https://nytimes.com/2023/08/24/pageoneplus/quotation-of-the-day-firefighters-in-california-are-working-with-ai-to-spot-and-stop-fires.html?searchResultPosition=7
 
 **Corrections: Aug. 25, 2023**\
 `Corrections that appeared in print on Friday, Aug. 25, 2023.`\
-https://nytimes.com/2023/08/24/pageoneplus/corrections-aug-25-2023.html?searchResultPosition=2
+https://nytimes.com/2023/08/24/pageoneplus/corrections-aug-25-2023.html?searchResultPosition=8
 
 **Bray Wyatt, Former WWE Champion, Is Dead at 36**\
 `Wyatt, whose real name was Windham Rotunda, became champion of the World Wrestling Entertainment in 2017.`\
-https://nytimes.com/2023/08/24/us/bray-wyatt-windham-rotunda-dead.html?searchResultPosition=3
+https://nytimes.com/2023/08/24/us/bray-wyatt-windham-rotunda-dead.html?searchResultPosition=9
 
 **Variety: Acrostic**\
 `David Balton and Jane Stewart expand our intelligence with a scintillating puzzle.`\
-https://nytimes.com/2023/08/24/crosswords/variety-acrostic.html?searchResultPosition=4
-
-**Places to Rub Elbows**\
-`Rafael Musa’s seed entry was inspired by an intriguing dating analogy.`\
-https://nytimes.com/2023/08/24/crosswords/daily-puzzle-2023-08-25.html?searchResultPosition=5
-
-**Trump Surrenders at Atlanta Jail in Georgia Election Interference Case**\
-`Mr. Trump spent about 20 minutes at the jail, getting fingerprinted and having his mug shot taken for the first time in the four criminal cases he has faced this year.`\
-https://nytimes.com/2023/08/24/us/trump-surrender-georgia-fulton-county-jail.html?searchResultPosition=6
-
-**Trump Returns to the Service Formerly Known as Twitter**\
-`Absent for more than two years, former President Donald J. Trump posted his mug shot on the site, now called X.`\
-https://nytimes.com/2023/08/24/technology/donald-trump-twitter-x-return.html?searchResultPosition=7
-
-**Biden Didn’t Hear Question on Maui He Appeared to Brush Off, White House Says**\
-`The president has faced criticism that his “no comment,” in apparent response to a query on the mounting death toll of the wildfires, was callous.`\
-https://nytimes.com/2023/08/24/us/politics/biden-maui-wildfire-no-comment.html?searchResultPosition=8
-
-**Trump’s mug shot is released, a first in his four criminal cases this year.**\
-`The former president spent about 20 minutes at the Fulton County Jail, submitting to some of the routines of criminal defendant intake. He was fingerprinted and had his photo taken.`\
-https://nytimes.com/2023/08/24/us/politics/trump-mugshot-booking-photo.html?searchResultPosition=9
-
-**Man Who Threatened to Kill Montana Senator Gets More Than 2 Years In Prison**\
-`Prosecutors said that Kevin Patrick Smith left about 60 voice mail messages for Senator Jon Tester of Montana that included death threats, even after being warned by F.B.I. agents.`\
-https://nytimes.com/2023/08/24/us/jon-tester-threats-montana.html?searchResultPosition=10
+https://nytimes.com/2023/08/24/crosswords/variety-acrostic.html?searchResultPosition=10
 
