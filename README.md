@@ -27,7 +27,7 @@ https://nytimes.com/live/2023/08/25/world/russia-prigozhin-putin-ukraine-war/luk
 https://nytimes.com/video/world/europe/100000009057506/greece-wildfires-evros.html?searchResultPosition=7
 
 **Jeffrey Clark, Former Justice Department Official, Booked in Trump Georgia Case**\
-`With his surrender, only two of the 19 defendants in the state election interference case had yet to turn themselves in as of Friday morning.`\
+`As of late Friday morning, only one of the 19 defendants in the state election interference case had yet to turn himself in.`\
 https://nytimes.com/2023/08/25/us/jeffrey-clark-trump-georgia.html?searchResultPosition=8
 
 **Fed Chair’s Message Is Clear: The Fight Against Inflation Isn’t Over**\
