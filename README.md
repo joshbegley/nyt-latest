@@ -24,7 +24,7 @@ https://nytimes.com/2023/08/25/crosswords/wordle-review-answer-797.html?searchRe
 
 **Here is the latest on the presumed death of the Wagner chief.**\
 `By Victoria Kim`\
-https://nytimes.com/live/2023/08/25/world/russia-ukraine-war-news/here-is-the-latest-on-the-presumed-death-of-the-wagner-chief?searchResultPosition=7
+https://nytimes.com/live/2023/08/25/world/russia-prigozhin-ukraine-war-news/here-is-the-latest-on-the-presumed-death-of-the-wagner-chief?searchResultPosition=7
 
 **Word of the Day: scabrous**\
 `This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
