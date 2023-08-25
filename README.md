@@ -1,4 +1,4 @@
-**Man Accused in 9/11 Plot Is Deemed Not Fit to Face Trial**\
+**Man Accused in 9/11 Plot Is Not Fit to Face Trial, Board Says**\
 `The question of Ramzi bin al-Shibh’s sanity has shadowed the case since he first appeared at the Guantánamo court in 2008. A new medical panel report says he has a mental illness making him incompetent for trial.`\
 https://nytimes.com/2023/08/25/us/politics/september-11-guantanamo-shibh.html?searchResultPosition=1
 
