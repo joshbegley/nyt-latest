@@ -6,7 +6,7 @@ https://nytimes.com/2023/08/24/pageoneplus/quotation-of-the-day-firefighters-in-
 `Corrections that appeared in print on Friday, Aug. 25, 2023.`\
 https://nytimes.com/2023/08/24/pageoneplus/corrections-aug-25-2023.html?searchResultPosition=2
 
-**Bray Wyatt, Former WWE Champion, Dead at 36**\
+**Bray Wyatt, Former WWE Champion, Is Dead at 36**\
 `Wyatt, whose real name was Windham Rotunda, became champion of the World Wrestling Entertainment in 2017.`\
 https://nytimes.com/2023/08/24/us/bray-wyatt-windham-rotunda-dead.html?searchResultPosition=3
 
