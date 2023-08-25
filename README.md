@@ -14,9 +14,9 @@ https://nytimes.com/2023/08/25/world/europe/luis-rubiales-spain-soccer-hermoso-k
 `Since Yevgeny Prigozhin’s brief mutiny in June, the Kremlin has tried to assure African clients that it was in control. But analysts suggested that without its leader, Wagner’s future was uncertain.`\
 https://nytimes.com/2023/08/25/world/africa/wagner-group-africa-prigozhin-russia.html?searchResultPosition=4
 
-**Russia says Ukraine targeted Crimea with dozens of drones overnight.**\
-`By Victoria Kim and Matthew Mpoke Bigg`\
-https://nytimes.com/2023/08/25/world/russia-says-ukraine-targeted-crimea-with-dozens-of-drones-overnight.html?searchResultPosition=5
+**Russia Says Ukraine Targeted Crimea With Dozens of Drones**\
+`The attacks came the day after Ukraine claimed that its special forces had staged a brief raid into the occupied Crimean Peninsula and fought with Russian forces.`\
+https://nytimes.com/2023/08/25/world/europe/russia-crimea-drones.html?searchResultPosition=5
 
 **‘You Are So Not Invited to My Bat Mitzvah’ Review: She’s Growing Up**\
 `Sandler family members (plus Idina Menzel) lean on each other in this Netflix comedy about growing up.`\
