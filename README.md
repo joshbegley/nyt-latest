@@ -23,7 +23,7 @@ https://nytimes.com/live/2023/08/25/world/russia-prigozhin-putin-ukraine-war/a-j
 https://nytimes.com/2023/08/25/opinion/fixed-rate-mortgages-inflation.html?searchResultPosition=6
 
 **Instacart Reveals $428 Million in Profit but Slowing Growth Ahead of I.P.O.**\
-`Nearly a third of Instacart’s revenue came from advertising, and grocery orders were flat in the first half of this year, the company said.`\
+`Nearly 30 percent of Instacart’s revenue came from advertising, and grocery orders were flat in the first half of this year, the company said.`\
 https://nytimes.com/2023/08/25/technology/instacart-profit-slowing-growth-ipo.html?searchResultPosition=7
 
 **My Sister Thinks Prayer Will Cure My Cancer. How Do I Talk to Her?**\
