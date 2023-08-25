@@ -16,7 +16,7 @@ https://nytimes.com/2023/08/25/obituaries/dmitri-utkin-dead-wagner.html?searchRe
 
 **Other prominent Russians have died in mysterious circumstances during the war.**\
 `By Valeriya Safronova`\
-https://nytimes.com/live/2023/08/25/world/russia-prigozhin-ukraine-war-news/other-prominent-russians-have-died-in-mysterious-circumstances-during-the-war?searchResultPosition=5
+https://nytimes.com/live/2023/08/25/world/russia-prigozhin-putin-ukraine-war/other-prominent-russians-have-died-in-mysterious-circumstances-during-the-war?searchResultPosition=5
 
 **They Started with an Inbox Full of Questions**\
 `Jason Mercado and Kristen Bateman, who met 10 years ago, didn’t begin dating until after three months of emailing. “I wanted to become friends first,” Ms. Bateman, a self-described introvert, said.`\
@@ -36,5 +36,5 @@ https://nytimes.com/2023/08/25/us/michigan-tornado-storm-deaths.html?searchResul
 
 **The battle for Bakhmut burnished Prigozhin’s reputation.**\
 `By Anushka Patil, Anatoly Kurmanaev and Cassandra Vinograd`\
-https://nytimes.com/live/2023/08/25/world/russia-prigozhin-ukraine-war-news/the-battle-for-bakhmut-burnished-prigozhins-reputation?searchResultPosition=10
+https://nytimes.com/live/2023/08/25/world/russia-prigozhin-putin-ukraine-war/the-battle-for-bakhmut-burnished-prigozhins-reputation?searchResultPosition=10
 
