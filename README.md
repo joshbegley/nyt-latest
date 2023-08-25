@@ -1,4 +1,4 @@
-**Fed Chair’s Message Is Clear: The Fight Against Inflation Isn’t Over.**\
+**Fed Chair’s Message Is Clear: The Fight Against Inflation Isn’t Over**\
 `Jerome H. Powell, the head of the Federal Reserve, struck a resolute tone in a speech at the central bank’s most closely watched conference.`\
 https://nytimes.com/2023/08/25/business/economy/fed-powell-inflation-jackson-hole.html?searchResultPosition=1
 
