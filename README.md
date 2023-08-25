@@ -3,8 +3,8 @@
 https://nytimes.com/2023/08/25/world/europe/luis-rubiales-spain-soccer-hermoso-kiss.html?searchResultPosition=1
 
 **Wagner Group May Have Lost ‘Mythical Appeal’ in Africa**\
-`Since Yevgeny Prigozhin’s short-lived mutiny two months ago, the Kremlin has tried to assure African clients that it was in control. But analysts suggested that without its leader, the future of Wagner was in doubt.`\
-https://nytimes.com/2023/08/25/world/wagner-group-africa-prigozhin-russia.html?searchResultPosition=2
+`Since Yevgeny Prigozhin’s brief mutiny in June, the Kremlin has tried to assure African clients that it was in control. But analysts suggested that without its leader, Wagner’s future was uncertain.`\
+https://nytimes.com/2023/08/25/world/africa/wagner-group-africa-prigozhin-russia.html?searchResultPosition=2
 
 **Russia says Ukraine targeted Crimea with dozens of drones overnight.**\
 `By Victoria Kim and Matthew Mpoke Bigg`\
