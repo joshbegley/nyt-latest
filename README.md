@@ -15,7 +15,7 @@ https://nytimes.com/2023/08/25/crosswords/easy-mode-clues-for-august-25.html?sea
 https://nytimes.com/2023/08/25/podcasts/rich-men-north-of-richmonds-barbie.html?searchResultPosition=4
 
 **Hawaii Officials Release List of 388 People Missing From Maui Fires**\
-`The list names people who are unaccounted for after wildfires in Maui. They asked anyone on the list who survived the fires to come forward and help narrow the tally.`\
+`The list names people who are unaccounted for after wildfires in Maui. Officials asked anyone on the list who survived the fires to come forward and help narrow the tally.`\
 https://nytimes.com/2023/08/25/us/maui-fire-missing-list.html?searchResultPosition=5
 
 **How an Aboriginal ‘Voice to Parliament’ Could Be Australia’s Brexit Moment**\
