@@ -1,6 +1,6 @@
 **After the Fires, Native Hawaiians Seek Revival Through Ritual**\
 `On an island where Christianity and Buddhism are also prominent, many are finding strength in traditional Hawaiian spirituality and culture.`\
-https://nytimes.com/2023/08/25/us/maui-hawaii-spirtual-healing.html?searchResultPosition=1
+https://nytimes.com/2023/08/25/us/maui-hawaii-spiritual-healing.html?searchResultPosition=1
 
 **U.S. Consumers Show Signs of Stress**\
 `Also, Maui continues its search for victims. Here’s the latest at the end of Friday.`\
