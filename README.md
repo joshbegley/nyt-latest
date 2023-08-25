@@ -2,7 +2,7 @@
 `The Kremlin appears to be sending the signal that no degree of effectiveness can protect someone from punishment for disloyalty.`\
 https://nytimes.com/live/2023/08/25/world/russia-prigozhin-putin-ukraine-war/with-prigozhins-death-putin-projects-a-message-of-power?searchResultPosition=1
 
-**Isabel Crook, Whose Life in China Spanned a Century of Change, Dies at 107**\
+**Isabel Crook, 107, Dies; Her Life in China Spanned a Century of Change**\
 `A noted educator and anthropologist, she spent almost her entire life in China, where she was a committed friend of the Communist government.`\
 https://nytimes.com/2023/08/25/world/asia/isabel-crook-dead.html?searchResultPosition=2
 
