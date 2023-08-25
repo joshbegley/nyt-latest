@@ -1,4 +1,4 @@
-**Texas Appeals Ruling Aimed at Blocking State’s Ban on Transgender Care for Minors**\
+**Texas Appeals Ruling Aimed at Blocking Its Transgender Care Ban**\
 `Texas was the largest state to pass a law banning transition care for transgender minors. The law is set to go into effect next week.`\
 https://nytimes.com/2023/08/25/us/texas-transgender-youth-medical-ban.html?searchResultPosition=1
 
