@@ -30,7 +30,7 @@ https://nytimes.com/2023/08/25/briefing/china-economy.html?searchResultPosition=
 `It can’t be easy to weigh a meerkat, but boy, does it look like fun.`\
 https://nytimes.com/2023/08/25/world/europe/london-zoo-animals.html?searchResultPosition=8
 
-**A Plane Crash and the Likely Death of a Rebellion Leader: Was This Putin’s Revenge?**\
+**A Plane Crash, 10 Dead People And a Question: Was This Putin’s Revenge?**\
 `The crash of a private jet is believed to have killed Yevgeny Prigozhin, who staged an armed rebellion against Moscow earlier this summer.`\
 https://nytimes.com/2023/08/25/podcasts/the-daily/plane-prigozhin-russia.html?searchResultPosition=9
 
