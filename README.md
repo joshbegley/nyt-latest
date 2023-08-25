@@ -1,4 +1,4 @@
-**The Story Behind DeSantis’s Anecdote About Abortion Survival**\
+**The Story Behind DeSantis’s Anecdote About an ‘Abortion Survivor’**\
 `Gov. Ron DeSantis of Florida has been retelling Miriam Hopper’s 1955 birth story. The details are jarring, highly unusual and unverifiable.`\
 https://nytimes.com/2023/08/25/us/politics/desantis-penny-abortion.html?searchResultPosition=1
 
