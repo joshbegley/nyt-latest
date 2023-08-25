@@ -12,7 +12,7 @@ https://nytimes.com/2023/08/25/world/australia/how-an-aboriginal-voice-to-parlia
 
 **Heineken Sells Its Business in Russia for 1 Euro**\
 `After Russia’s invasion of Ukraine in February 2022, hundreds of Western companies announced they would quit operating in Russia. But actually selling their assets and withdrawing has taken time.`\
-https://nytimes.com/2023/08/25/world/heineken-russia-exit-sale.html?searchResultPosition=4
+https://nytimes.com/2023/08/25/world/europe/heineken-russia-exit-sale.html?searchResultPosition=4
 
 **With Prigozhin’s Death, Putin Projects a Message of Power**\
 `The Kremlin appears to be sending the signal that no degree of effectiveness can protect someone from punishment for disloyalty.`\
