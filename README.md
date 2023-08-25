@@ -1,6 +1,6 @@
 **Russia says Ukraine targeted Crimea with dozens of drones overnight.**\
 `By Victoria Kim and Matthew Mpoke Bigg`\
-https://nytimes.com/live/2023/08/25/world/russia-prigozhin-ukraine-war-news/russia-says-ukraine-targeted-crimea-with-dozens-of-drones-overnight?searchResultPosition=1
+https://nytimes.com/2023/08/25/world/russia-says-ukraine-targeted-crimea-with-dozens-of-drones-overnight.html?searchResultPosition=1
 
 **‘You Are So Not Invited to My Bat Mitzvah’ Review: She’s Growing Up**\
 `Sandler family members (plus Idina Menzel) lean on each other in this Netflix comedy about growing up.`\
