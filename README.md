@@ -1,5 +1,5 @@
-**Multiple Fatalities in Shooting at Florida Store, Officials Say**\
-`The shooting occurred at a Dollar General store near Edward Waters College in Jacksonville. The mayor said the gunman was among the dead.`\
+**3 Dead in Racially Motivated Shooting at Florida Store, Officials Say**\
+`The shooting occurred at a Dollar General store near Edward Waters University in Jacksonville. The gunman also died, officials said.`\
 https://nytimes.com/2023/08/26/us/dollar-general-shooting-jacksonville-florida.html?searchResultPosition=1
 
 **Through Philanthropy and Activism, Bob Barker Fought Animal Cruelty**\
