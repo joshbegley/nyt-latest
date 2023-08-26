@@ -26,15 +26,15 @@ https://nytimes.com/2023/08/26/opinion/republican-debate-trump-candidate.html?se
 `Life after marriage; life with prostitutes.`\
 https://nytimes.com/2023/08/26/books/read-like-wind-recommended-books.html?searchResultPosition=7
 
+**Listen Early to ‘This American Life’: The Super**\
+`The mysterious hold supers have on their buildings, or that their buildings have on them.`\
+https://nytimes.com/2023/08/26/podcasts/listen-early-to-this-american-life-the-super.html?searchResultPosition=8
+
 **Can Liberalism Save Itself?**\
 `The ideology needs to rediscover its potential as an agent of liberation and emancipation.`\
-https://nytimes.com/2023/08/26/opinion/liberalism-trump-russia-china-cold-war.html?searchResultPosition=8
+https://nytimes.com/2023/08/26/opinion/liberalism-trump-russia-china-cold-war.html?searchResultPosition=9
 
 **Scenes From Waiting for Trump on a Hot Atlanta Afternoon**\
 `Just like much of the country, the people outside the Fulton County Jail this week were waiting for the news they knew was coming.`\
-https://nytimes.com/2023/08/26/opinion/fulton-county-jail-media-trump.html?searchResultPosition=9
-
-**Catch the Smug Mug on That Thug!**\
-`Donald Trump, Dorian Gray, and a tale of two portraits.`\
-https://nytimes.com/2023/08/26/opinion/donald-trump-mug-shot.html?searchResultPosition=10
+https://nytimes.com/2023/08/26/opinion/fulton-county-jail-media-trump.html?searchResultPosition=10
 
