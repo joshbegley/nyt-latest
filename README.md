@@ -7,7 +7,7 @@ https://nytimes.com/2023/08/25/pageoneplus/quotation-of-the-day-documenting-braz
 https://nytimes.com/2023/08/25/pageoneplus/corrections-aug-26-2023.html?searchResultPosition=2
 
 **Two People Are Shot at Chicago White Sox Baseball Game**\
-`A Major League Baseball game between the Chicago White Sox and the Oakland Athletics at Guaranteed Rate Field was not interrupted but a postgame Vanilla Ice performance was canceled.`\
+`A Major League Baseball game between the Chicago White Sox and the Oakland Athletics at Guaranteed Rate Field was not interrupted, but a postgame Vanilla Ice performance was canceled.`\
 https://nytimes.com/2023/08/25/us/chicago-white-sox-baseball-game-shooting.html?searchResultPosition=3
 
 **Take Two**\
