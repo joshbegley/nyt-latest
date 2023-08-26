@@ -11,7 +11,7 @@ https://nytimes.com/2023/08/26/us/bob-barker-animal-rights.html?searchResultPosi
 https://nytimes.com/2023/08/26/crosswords/daily-puzzle-2023-08-27.html?searchResultPosition=3
 
 **Incumbent Claims Victory in Zimbabwe Election Amid Fraud Accusations**\
-`President Emmerson Mnangagwa won another five-year term by intimidating voters and manipulating the campaign process.`\
+`President Emmerson Mnangagwa won another five-year term, but did so by intimidating voters and manipulating the campaign process, the opposition says.`\
 https://nytimes.com/2023/08/26/world/africa/zimbabwe-election-mnangagwa-wins.html?searchResultPosition=4
 
 **In Iowa, a Voter Asks DeSantis: Why Should I Choose You Over Trump?**\
