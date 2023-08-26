@@ -22,19 +22,19 @@ https://nytimes.com/2023/08/26/opinion/republican-debate-trump-candidate.html?se
 `Life after marriage; life with prostitutes.`\
 https://nytimes.com/2023/08/26/books/read-like-wind-recommended-books.html?searchResultPosition=6
 
+**Listen Early to ‘This American Life’: The Super**\
+`The mysterious hold supers have on their buildings, or that their buildings have on them.`\
+https://nytimes.com/2023/08/26/podcasts/listen-early-to-this-american-life-the-super.html?searchResultPosition=7
+
 **Can Liberalism Save Itself?**\
 `The ideology needs to rediscover its potential as an agent of liberation and emancipation.`\
-https://nytimes.com/2023/08/26/opinion/liberalism-trump-russia-china-cold-war.html?searchResultPosition=7
+https://nytimes.com/2023/08/26/opinion/liberalism-trump-russia-china-cold-war.html?searchResultPosition=8
 
 **Scenes From Waiting for Trump on a Hot Atlanta Afternoon**\
 `Just like much of the country, the people outside the Fulton County Jail this week were waiting for the news they knew was coming.`\
-https://nytimes.com/2023/08/26/opinion/fulton-county-jail-media-trump.html?searchResultPosition=8
+https://nytimes.com/2023/08/26/opinion/fulton-county-jail-media-trump.html?searchResultPosition=9
 
 **Catch the Smug Mug on That Thug!**\
 `Donald Trump, Dorian Gray, and a tale of two portraits.`\
-https://nytimes.com/2023/08/26/opinion/donald-trump-mug-shot.html?searchResultPosition=9
-
-**The Problems With China’s Economy Start at the Top**\
-`Consumers and businesses are losing confidence in Xi Jinping’s government.`\
-https://nytimes.com/2023/08/26/opinion/china-economy-xi-jinping.html?searchResultPosition=10
+https://nytimes.com/2023/08/26/opinion/donald-trump-mug-shot.html?searchResultPosition=10
 
