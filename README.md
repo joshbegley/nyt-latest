@@ -1,40 +1,40 @@
-**Ukraine Is Still Grappling With the Battlefield Prigozhin Left Behind**\
-`He shored up Russian forces at their most vulnerable and drew Ukraine into a costly fight for Bakhmut, giving Moscow time to build defenses that are slowing Ukraine’s counteroffensive.`\
-https://nytimes.com/2023/08/26/world/europe/prigozhin-ukraine-bakhmut-legacy.html?searchResultPosition=1
+**‘He Has Blood on His Hands’**\
+`In a Ukraine village, there are no tears for Yevgeny V. Prigozhin, the leader of the Wagner private militia, whose presumed death in a plane crash was reported this week.`\
+https://nytimes.com/2023/08/26/world/europe/ukraine-russia-prigozhin-wagner.html?searchResultPosition=1
 
-**Raimondo Heads to China to Both Promote Trade, and Restrict It**\
-`The commerce secretary’s trip may be the clearest demonstration yet of the balancing act the Biden administration is trying to pull off in its relations with China.`\
-https://nytimes.com/2023/08/26/business/economy/raimondo-heads-to-china-to-both-promote-trade-and-restrict-it.html?searchResultPosition=2
+**Kremlin Considers How to Bring Private Military Group Under Its Control**\
+`Wagner could be absorbed into Russia’s Defense Ministry or its military intelligence arm. A Russian general could also be installed to lead the group, U.S. and Western officials said.`\
+https://nytimes.com/2023/08/26/us/politics/prigozhin-wagner-russia-military.html?searchResultPosition=2
 
-**The 1963 March on Washington Changed America. Its Roots Were in Harlem.**\
-`Before Martin Luther King Jr. gave his “I Have a Dream” speech to 250,000 people, a group of civil rights activists spent a summer planning an event many didn’t want to happen.`\
-https://nytimes.com/2023/08/26/nyregion/march-on-washington-harlem.html?searchResultPosition=3
+**Trump and His Co-Defendants in Georgia Are Already at Odds**\
+`Some defendants have already sought to move the case to federal court, while others are seeking speedy or separate trials.`\
+https://nytimes.com/2023/08/26/us/trump-georgia-trial.html?searchResultPosition=3
 
-**Women Say Sexual Harassment and Discrimination Is Rife in Group for Realtors**\
-`The powerful National Association of Realtors has ignored sexual harassment complaints, including those against the group’s president, current and former employees say.`\
-https://nytimes.com/2023/08/26/realestate/national-association-of-realtors-sexual-harassment.html?searchResultPosition=4
+**Top 10 Hardest and Easiest Spelling Bee Words, Aug. 19-25**\
+`There’s nothing tragic about missing this week’s toughest word, other than the word itself.`\
+https://nytimes.com/2023/08/26/upshot/spelling-bee-words.html?searchResultPosition=4
 
-**The N.Y.C. Neighborhood That’s Getting Even Thinner on Ozempic**\
-`Prescriptions for a new class of medications used for diabetes and weight loss are concentrated in the city’s wealthier, whiter and healthier neighborhoods.`\
-https://nytimes.com/2023/08/26/nyregion/ozempic-nyc-neighborhoods-diabetes.html?searchResultPosition=5
+**Fact-Checking Vivek Ramaswamy on the Campaign Trail**\
+`The upstart Republican candidate has made inaccurate claims about climate change as well as the Jan. 6 attack on the Capitol, while mischaracterizing his own positions and past comments.`\
+https://nytimes.com/2023/08/26/us/politics/vivek-ramaswamy-2024-campaign-fact-check.html?searchResultPosition=5
 
-**How an Ice Cream Scooper and Aspiring Actor Spends His Sundays**\
-`Denzel Rodriguez, a 21-year-old from Harlem, works every summer at a local ice cream shop in between TV and film gigs.`\
-https://nytimes.com/2023/08/26/nyregion/denzel-rodriguez-sugar-hill-creamery.html?searchResultPosition=6
+**Today You Are an Adult: What Hollywood Gets Right and Wrong About B’nai Mitzvah**\
+`The Jewish ceremony can be the setting for a sharp look at growing up. But it has too often been used for glosses that ignore the rite’s deeper meaning.`\
+https://nytimes.com/2023/08/26/movies/adam-sandler-sunny-sandler-bat-mitzvah.html?searchResultPosition=6
 
-**Why Are Mortgage Rates So High, and How Long Will They Stay Up?**\
-`Economists say loan rates are affected by a complicated combination of factors, but there are tactics consumers can use to land a lower rate.`\
-https://nytimes.com/2023/08/26/business/mortgage-rates-housing-market.html?searchResultPosition=7
+**How a Judge’s Ruling on Torture Imperils a Guantánamo Prosecution Strategy**\
+`In dismissing a confession in the bombing of the U.S.S. Cole, Col. Lanny J. Acosta Jr. has shaken a foundation of U.S. government cases at the post-9/11 court.`\
+https://nytimes.com/2023/08/26/us/politics/torture-uss-cole-september-11.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/08/26/crosswords/wordle-review-answer-798.html?searchResultPosition=8
+**Jeff Daniels Unwinds With Hidden-Camera TV**\
+`The actor, musician and playwright has made a career out of finding ways to stay creative between “Dumb and Dumber” and “To Kill a Mockingbird.”`\
+https://nytimes.com/2023/08/26/arts/jeff-daniels-alive-well-enough-audio.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/26/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**What China’s Economic Woes May Mean for the U.S.**\
+`The fallout is probably limited — and there may be some upside for American interests.`\
+https://nytimes.com/2023/08/26/business/economy/us-economy-china.html?searchResultPosition=9
 
-**The Eternal Search for the ‘Nemesis Bird’**\
-`For every devoted birder, there is a bird that continues to elude sighting.`\
-https://nytimes.com/2023/08/26/science/birds-birdwatching-nemesis.html?searchResultPosition=10
+**A Night of Cheers and Jeers**\
+`The famed Amateur Night at the Apollo enters its 89th year, and audiences are as outspoken as ever.`\
+https://nytimes.com/2023/08/26/arts/television/amateur-night-apollo-theater-nyc.html?searchResultPosition=10
 
