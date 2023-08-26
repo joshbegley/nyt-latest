@@ -14,27 +14,27 @@ https://nytimes.com/2023/08/26/realestate/national-association-of-realtors-sexua
 `Prescriptions for a new class of medications used for diabetes and weight loss are concentrated in the city’s wealthier, whiter and healthier neighborhoods.`\
 https://nytimes.com/2023/08/26/nyregion/ozempic-nyc-neighborhoods-diabetes.html?searchResultPosition=4
 
+**How an Ice Cream Scooper and Aspiring Actor Spends His Sundays**\
+`Denzel Rodriguez, a 21-year-old from Harlem, works every summer at a local ice cream shop in between TV and film gigs.`\
+https://nytimes.com/2023/08/26/nyregion/denzel-rodriguez-sugar-hill-creamery.html?searchResultPosition=5
+
+**Why Are Mortgage Rates So High, and How Long Will They Stay Up?**\
+`Economists say loan rates are affected by a complicated combination of factors, but there are tactics consumers can use to land a lower rate.`\
+https://nytimes.com/2023/08/26/business/mortgage-rates-housing-market.html?searchResultPosition=6
+
 **Today’s Wordle Review**\
 `Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/08/26/crosswords/wordle-review-answer-798.html?searchResultPosition=5
+https://nytimes.com/2023/08/26/crosswords/wordle-review-answer-798.html?searchResultPosition=7
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/08/26/crosswords/spelling-bee-forum.html?searchResultPosition=8
 
 **The Eternal Search for the ‘Nemesis Bird’**\
 `For every devoted birder, there is a bird that continues to elude sighting.`\
-https://nytimes.com/2023/08/26/science/birds-birdwatching-nemesis.html?searchResultPosition=6
+https://nytimes.com/2023/08/26/science/birds-birdwatching-nemesis.html?searchResultPosition=9
 
 **Putin Had Every Reason to Want Prigozhin Gone**\
 `Russia’s president had ample reason to wish for Yevgeny Prigozhin’s demise.`\
-https://nytimes.com/2023/08/26/opinion/prigozhin-death-putin.html?searchResultPosition=7
-
-**Corrections: Aug. 26, 2023**\
-`Corrections that appeared in print on Saturday, Aug. 26, 2023.`\
-https://nytimes.com/2023/08/25/pageoneplus/corrections-aug-26-2023.html?searchResultPosition=8
-
-**Two People Are Shot at Chicago White Sox Baseball Game**\
-`A Major League Baseball game between the Chicago White Sox and the Oakland Athletics at Guaranteed Rate Field was not interrupted, but a postgame Vanilla Ice performance was canceled.`\
-https://nytimes.com/2023/08/25/us/chicago-white-sox-baseball-game-shooting.html?searchResultPosition=9
-
-**Singer of ‘Rich Men North of Richmond’ Says It’s Not a Republican Anthem**\
-`“I wrote this song about those people,” Oliver Anthony said of his No. 1 hit, after presidential candidates answered a question about his Billboard hit at their first debate.`\
-https://nytimes.com/2023/08/25/arts/music/oliver-anthony-rich-men-north-of-richmond.html?searchResultPosition=10
+https://nytimes.com/2023/08/26/opinion/prigozhin-death-putin.html?searchResultPosition=10
 
