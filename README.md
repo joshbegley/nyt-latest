@@ -19,7 +19,7 @@ https://nytimes.com/2023/08/27/world/americas/haiti-shooting-protest-port-au-pri
 https://nytimes.com/2023/08/27/briefing/monday-briefing-russia-confirmed-prigozhins-death.html?searchResultPosition=5
 
 **11 Fatal Minutes That Have Jacksonville Confronting Racism Yet Again**\
-`The sheriff’s office identified the three victims and the gunman who fatally shot himself in the attack on Saturday, which authorities are investigating as a hate crime.`\
+`The sheriff’s office identified the three victims and the gunman who fatally shot himself in the attack, which authorities are investigating as a hate crime.`\
 https://nytimes.com/2023/08/27/us/jacksonville-shooting-victims-timeline.html?searchResultPosition=6
 
 **Hailstorm in Germany Rips Through a Town, Damaging Buildings and Cars**\
