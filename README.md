@@ -26,8 +26,8 @@ https://nytimes.com/live/2023/08/27/world/russia-ukraine-war-news/the-crash-also
 `By Constant Méheut`\
 https://nytimes.com/live/2023/08/27/world/russia-ukraine-war-news/prigozhin-leaves-behind-a-family-that-has-helped-run-his-business-empire?searchResultPosition=7
 
-**Tropical Storm Idalia Forms in the Atlantic and Threatens Florida**\
-`By the time it reaches western Florida, the storm could become a hurricane, bringing winds of up to 90 miles per hour and causing storm surge and flooding, forecasters said.`\
+**Florida Braces for Tropical Storm Idalia, Which Could Become a Hurricane**\
+`The state was mobilizing resources ahead of the storm, which could be a Category 2 hurricane with winds of up to 90 miles per hour when it reaches western Florida, officials said.`\
 https://nytimes.com/article/tropical-storm-idalia-hurricane.html?searchResultPosition=8
 
 **In Moscow, mourners cry at a makeshift Wagner memorial.**\
