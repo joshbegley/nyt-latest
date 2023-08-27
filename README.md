@@ -1,6 +1,6 @@
 **What to Know About the Jacksonville Shooting**\
 `Three people, all Black, were fatally shot in a dollar store before the gunman, a white man, killed himself. Investigators are treating the killing as a hate crime.`\
-https://nytimes.com/2023/08/27/world/asia/what-to-know-about-the-jacksonville-shooting.html?searchResultPosition=1
+https://nytimes.com/2023/08/27/us/jacksonville-shooting-dollar-general.html?searchResultPosition=1
 
 **How Indigenous Techniques Saved a Community From Wildfire**\
 `A movement to fight wildfires by making forests more resilient and, in some cases, deliberately setting blazes is gaining ground in Canada.`\
