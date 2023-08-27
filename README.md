@@ -12,7 +12,7 @@ https://nytimes.com/article/tropical-storm-idalia-hurricane.html?searchResultPos
 
 **In Moscow, mourners cry at a makeshift Wagner memorial.**\
 `Hundreds of people have placed flowers and other tributes on a sidewalk near Red Square in Moscow.`\
-https://nytimes.com/live/2023/08/27/world/russia-ukraine-war-news/prigozhin-wagner-memorial-russia?searchResultPosition=4
+https://nytimes.com/2023/08/27/world/europe/prigozhin-wagner-memorial-russia.html?searchResultPosition=4
 
 **A.I. Comes to the U.S. Air Force**\
 `The Air Force gave The New York Times a behind-the-scenes look at its effort to build a new generation of autonomous combat planes that rely on artificial intelligence — meaning they have no pilot in the air or on the ground.`\
