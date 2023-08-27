@@ -10,9 +10,9 @@ https://nytimes.com/live/2023/08/27/world/russia-ukraine-war-news/prigozhin-leav
 `By the time it reaches western Florida, the storm could become a hurricane, bringing winds of up to 90 miles per hour and causing storm surge and flooding, forecasters said.`\
 https://nytimes.com/article/tropical-storm-idalia-hurricane.html?searchResultPosition=3
 
-**In Moscow, mourners cry at a makeshift Wagner memorial.**\
-`By Valerie Hopkins`\
-https://nytimes.com/live/2023/08/27/world/russia-ukraine-war-news/in-moscow-mourners-cry-at-a-makeshift-wagner-memorial?searchResultPosition=4
+**sidewaIn Moscow, mourners cry at a makeshift Wagner memorial.**\
+`Hundreds of people have placed flowers at a small sidewalk memorial near Red Square in Moscow`\
+https://nytimes.com/live/2023/08/27/world/russia-ukraine-war-news/prigozhin-wagner-memorial-russia?searchResultPosition=4
 
 **A.I. Comes to the U.S. Air Force**\
 `The Air Force gave The New York Times a behind-the-scenes look at its effort to build a new generation of autonomous combat planes that rely on artificial intelligence — meaning they have no pilot in the air or on the ground.`\
