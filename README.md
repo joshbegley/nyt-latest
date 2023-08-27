@@ -26,8 +26,8 @@ https://nytimes.com/2023/08/27/us/jacksonville-shooting-victims-timeline.html?se
 `An estimated 80 percent of buildings were damaged during a hailstorm in Bad Bayersoien, Germany.`\
 https://nytimes.com/2023/08/27/world/europe/hailstorm-damage-germany-bavaria.html?searchResultPosition=7
 
-**Japan Will Join the New Moon Race, and Launch an X-Ray Telescope, Too**\
-`The telescope will help astronomers study some of the most energetic places in the cosmos, while the lunar mission will aid the development of Japanese landing technologies.`\
+**Japan Scrubs Launch of X-Ray Telescope and Experimental Moon Lander**\
+`The flight of the telescope and lunar mission were postponed less than 30 minutes ahead of the scheduled liftoff because of poor weather.`\
 https://nytimes.com/2023/08/27/science/japan-space-launch-xrism-slim.html?searchResultPosition=8
 
 **Leaderless and Exposed, Russia’s Wagner Faces an Uncertain Future**\
