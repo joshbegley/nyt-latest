@@ -27,7 +27,7 @@ https://nytimes.com/2023/08/27/us/jacksonville-shooting-victims-timeline.html?se
 https://nytimes.com/2023/08/27/world/europe/hailstorm-damage-germany-bavaria.html?searchResultPosition=7
 
 **Japan Scrubs Launch of X-Ray Telescope and Experimental Moon Lander**\
-`The flight of the telescope and lunar mission were postponed less than 30 minutes ahead of the scheduled liftoff because of poor weather.`\
+`The flight of the telescope and lunar mission was postponed less than 30 minutes ahead of the scheduled liftoff because of poor weather.`\
 https://nytimes.com/2023/08/27/science/japan-space-launch-xrism-slim.html?searchResultPosition=8
 
 **Leaderless and Exposed, Russia’s Wagner Faces an Uncertain Future**\
