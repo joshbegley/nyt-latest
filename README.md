@@ -10,8 +10,8 @@ https://nytimes.com/2023/08/27/briefing/now-time-to-play.html?searchResultPositi
 `How to get cleaner air in the nation's school buildings.`\
 https://nytimes.com/interactive/2023/08/27/health/schools-air.html?searchResultPosition=3
 
-**Russia Officially Confirms Prigozhin’s Death**\
-`Russian investigators said genetic tests showed that the Wagner chief, Yevgeny V. Prigozhin, who led a brief mutiny against Moscow’s military leadership, was among the victims of a plane crash last week.`\
+**Investigators said genetic testing showed the dead match the names on the flight log.**\
+`Investigators saying on Sunday that genetic testing showed that the victims of a plane crash last week matched all the names on the jet’s manifest.`\
 https://nytimes.com/2023/08/27/world/europe/prigozhin-wagner-russia.html?searchResultPosition=4
 
 **A Legacy of Colonialism Set the Stage for the Maui Wildfires**\
