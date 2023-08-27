@@ -11,7 +11,7 @@ https://nytimes.com/2023/08/27/science/japan-space-launch-xrism-slim.html?search
 https://nytimes.com/2023/08/27/world/europe/russia-wagner-prigozhin-future.html?searchResultPosition=3
 
 **In a Departure, Zimbabwe’s Neighbors Question the Legitimacy of Its Elections**\
-`The main regional bloc in southern African and the African Union declined to rubber-stamped the elections and cast doubt on a vote that led to President Emmerson Mnangagwa’s re-election.`\
+`The main regional bloc in southern African and the African Union declined to rubber stamp the elections and cast doubt on a vote that led to President Emmerson Mnangagwa’s re-election.`\
 https://nytimes.com/2023/08/27/world/africa/zimbabwe-elections-mnangagwa.html?searchResultPosition=4
 
 **Bob Barker, Betty White and Their Fight Over Billy the Elephant**\
