@@ -19,7 +19,7 @@ https://nytimes.com/2023/08/28/sports/tennis/alcaraz-vs-djokovic-us-open.html?se
 https://nytimes.com/video/world/americas/100000009059836/haiti-shooting-pastor-protest-gang.html?searchResultPosition=5
 
 **Simone Biles Shows She’s Not Just Easing Her Way Back**\
-`In just her second elite meet following a two-year hiatus, Biles, 26, won a record eighth U.S. all-around title and became the oldest gymnast to win the championship.`\
+`In her second elite meet following a two-year hiatus, Biles, 26, won a record eighth U.S. all-around title and became the oldest gymnast to win the championship.`\
 https://nytimes.com/2023/08/27/sports/simone-biles-gymnastics-championships.html?searchResultPosition=6
 
 **Man Accused of Injecting Substance Into Neighbor’s Home Is Charged**\
