@@ -7,7 +7,7 @@ https://nytimes.com/2023/08/28/us/california-instagram-bay-area.html?searchResul
 https://nytimes.com/2023/08/28/crosswords/spelling-bee-fanatic.html?searchResultPosition=2
 
 **U.S. and China Agree to Broaden Talks in Bid to Ease Tensions**\
-`During a visit to Beijing, Gina Raimondo, the commerce secretary, said the two sides would meet at least annually to discuss export restrictions and intellectual property, among other issues.`\
+`During a visit to Beijing, Gina Raimondo, the commerce secretary, said the two sides would meet to discuss export restrictions and intellectual property, among other issues.`\
 https://nytimes.com/2023/08/28/business/economy/united-states-china-trade-talks-raimondo.html?searchResultPosition=3
 
 **A Russian missile strike on an oil refinery kills three, Ukrainian officials say.**\
