@@ -1,40 +1,40 @@
-**Monday Briefing**\
-`The future of the Wagner private military company.`\
-https://nytimes.com/2023/08/28/briefing/wagner-zimbabwe-elections-egypt.html?searchResultPosition=1
-
-**What ‘Playing Forest Hills’ Means to Tennis Fans**\
-`The U.S. Open begins today in Flushing, Queens. The national championship used to be played at a different stadium.`\
-https://nytimes.com/2023/08/28/nyregion/forest-hills-tennis-open.html?searchResultPosition=2
-
 **A Field Guide to the 2023 U.S. Open**\
 `Carlos Alcaraz and Iga Swiatek will try to defend their singles titles, but the likes of Novak Djokovic, Frances Tiafoe, Ons Jabeur and Coco Gauff won’t make it easy.`\
-https://nytimes.com/2023/08/28/sports/tennis/us-open-guide.html?searchResultPosition=3
-
-**A 12,000-Year-Old Bird Call, Made of Bird Bones**\
-`A collection of small flutes carved from waterfowl bones may have been used as hunting aids, a new study suggests.`\
-https://nytimes.com/2023/08/28/science/archaeology-birds-flute.html?searchResultPosition=4
-
-**In Carlos Alcaraz, Novak Djokovic Has a Much-Needed Gift: A Rival**\
-`The budding rivalry between the two top-ranked players has added an unexpected thrill to the final act of Djokovic’s career, our columnist writes.`\
-https://nytimes.com/2023/08/28/sports/tennis/alcaraz-vs-djokovic-us-open.html?searchResultPosition=5
+https://nytimes.com/2023/08/28/sports/tennis/us-open-guide.html?searchResultPosition=1
 
 **Pastor Leads Followers Into Gunfire While Protesting Haiti Gangs**\
 `Pastor Marco, an evangelical church leader, told his followers that they were bulletproof as they marched against a gang on the outskirts of Port-au-Prince, a witness said.`\
-https://nytimes.com/video/world/americas/100000009059836/haiti-shooting-pastor-protest-gang.html?searchResultPosition=6
-
-**Simone Biles Shows She’s Not Just Easing Her Way Back**\
-`In her second elite meet following a two-year hiatus, Biles, 26, won a record eighth U.S. all-around title and became the oldest gymnast to win the championship.`\
-https://nytimes.com/2023/08/27/sports/simone-biles-gymnastics-championships.html?searchResultPosition=7
-
-**Man Accused of Injecting Substance Into Neighbor’s Home Is Charged**\
-`Xuming Li, a chemistry student, was arrested after a condominium resident in Tampa, Fla., set up a camera to investigate the source of a chemical smell.`\
-https://nytimes.com/2023/08/27/us/florida-neighbor-chemical-agent.html?searchResultPosition=8
-
-**Eagle’s Abode**\
-`Brian Callahan makes his New York Times debut.`\
-https://nytimes.com/2023/08/27/crosswords/daily-puzzle-2023-08-28.html?searchResultPosition=9
+https://nytimes.com/video/world/americas/100000009059836/haiti-shooting-pastor-protest-gang.html?searchResultPosition=2
 
 **A second cargo ship sails from Odesa, this time carrying steel.**\
 `By Jesus Jiménez`\
-https://nytimes.com/live/2023/08/27/world/russia-ukraine-war-news/a-second-cargo-ship-sails-from-odesa-this-time-carrying-steel?searchResultPosition=10
+https://nytimes.com/live/2023/08/27/world/russia-ukraine-war-news/a-second-cargo-ship-sails-from-odesa-this-time-carrying-steel?searchResultPosition=3
+
+**Haiti Gang Fires on Protest Called by Church Leader, Killing Several People**\
+`The shooting reflects escalating tensions as vigilante groups push back against gangs in areas around Port-au-Prince.`\
+https://nytimes.com/2023/08/27/world/americas/haiti-shooting-protest-port-au-prince.html?searchResultPosition=4
+
+**Monday Briefing: Russia Confirmed Prigozhin’s Death**\
+`Also, three U.S. Marines died in an air crash in Australia.`\
+https://nytimes.com/2023/08/27/briefing/monday-briefing-russia-confirmed-prigozhins-death.html?searchResultPosition=5
+
+**Hailstorm in Germany Rips Through a Town, Damaging Buildings and Cars**\
+`An estimated 80 percent of buildings were damaged during a hailstorm in Bad Bayersoien, Germany.`\
+https://nytimes.com/2023/08/27/world/europe/hailstorm-damage-germany-bavaria.html?searchResultPosition=6
+
+**Japan Scrubs Launch of X-Ray Telescope and Experimental Moon Lander**\
+`The flight of the telescope and lunar mission was postponed less than 30 minutes ahead of the scheduled liftoff because of poor weather.`\
+https://nytimes.com/2023/08/27/science/japan-space-launch-xrism-slim.html?searchResultPosition=7
+
+**In a Departure, Zimbabwe’s Neighbors Question the Legitimacy of Its Elections**\
+`The main regional bloc in southern Africa and the African Union declined to rubber stamp the elections and cast doubt on a vote that led to President Emmerson Mnangagwa’s re-election.`\
+https://nytimes.com/2023/08/27/world/africa/zimbabwe-elections-mnangagwa.html?searchResultPosition=8
+
+**Bob Barker, Betty White and Their Fight Over Billy the Elephant**\
+`Barker and White were known for supporting animal welfare but took opposite sides in a debate about the best home for an elephant.`\
+https://nytimes.com/2023/08/27/arts/television/bob-barker-betty-white-elephant-zoo.html?searchResultPosition=9
+
+**The crash also killed Dmitri Utkin, Wagner’s field commander.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2023/08/27/world/russia-ukraine-war-news/the-crash-also-killed-dmitri-utkin-wagners-field-commander?searchResultPosition=10
 
