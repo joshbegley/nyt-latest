@@ -1,40 +1,40 @@
-**Lungs as We’ve Never Published Them Before**\
-`To show the long-term effects of severe Covid on the lungs, the Graphics desk created visual renderings based on data from CT scans.`\
-https://nytimes.com/2023/08/28/insider/lungs-as-weve-never-published-them-before.html?searchResultPosition=1
+**Searching for Last-Minute Labor Day Plans? Try These Travel Tools.**\
+`Pulling off one last summer getaway, even over a holiday weekend, is still possible. Here’s how.`\
+https://nytimes.com/2023/08/28/travel/labor-day-travel-apps-flights-hotels.html?searchResultPosition=1
 
-**His Job Helping Drug Users Is Illegal. He Says He Does It to Save Lives.**\
-`Bryan Ortiz quit a job as a paramedic to help people at a safe injection site for drugs like fentanyl and heroin. Now, his job is under legal threat.`\
-https://nytimes.com/2023/08/28/nyregion/safe-injection-sites-drugs-nyc.html?searchResultPosition=2
+**Phillips Adds Geneva to its Jewelry Auction Calendar**\
+`The house’s chief executive described the decision to include the city, a key hub for high-profile jewelry sales, as a “statement of strategic intent.”`\
+https://nytimes.com/2023/08/28/fashion/jewelry-auctions-phillips-geneva.html?searchResultPosition=2
 
-**Democrats Want to Flip N.Y. House Seats. But There’s a Primary Problem.**\
-`To win back a key seat it lost in 2022, the party must first deal with a battle between Mondaire Jones and Liz Whitmer Gereghty, Gov. Gretchen Whitmer’s sister.`\
-https://nytimes.com/2023/08/28/nyregion/democratic-primary-gereghty-jones.html?searchResultPosition=3
+**Electric Vehicle Charging Can Be Confusing. Here’s What to Know.**\
+`Many carmakers and charging companies are switching to the Tesla plug for electric vehicles. Why are they doing that and what will it mean?`\
+https://nytimes.com/2023/08/28/business/energy-environment/electric-vehicle-chargers-plugs-tesla.html?searchResultPosition=3
 
-**Hearings Set for Monday in Two Election Cases Against Trump**\
-`Proceedings before federal judges in Washington and Atlanta could begin to address some of the many complexities and scheduling challenges in the cases against the former president.`\
-https://nytimes.com/2023/08/28/us/politics/trump-hearings-jan-6-trial.html?searchResultPosition=4
+**An Escalator, but in 18-Karat Gold**\
+`The founders of Jemma Wynne spent a year ensuring that an articulated design had the fluidity they wanted.`\
+https://nytimes.com/2023/08/28/fashion/jewelry-escalator-jemma-wynne.html?searchResultPosition=4
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/08/28/crosswords/wordle-review-answer-800.html?searchResultPosition=5
+**Creative Designs in Gold Are Taking the Spotlight This Fall**\
+`An exhibition by Chaumet in October will feature 56 jewels and objets d’art from its archives.`\
+https://nytimes.com/2023/08/28/fashion/jewelry-gold-exhibition-chaumet-paris.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/28/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**Can’t Sleep? Try This Proven Alternative to Medication.**\
+`Cognitive behavioral therapy for insomnia is considered the most effective treatment for people who continually struggle to fall or stay asleep.`\
+https://nytimes.com/2023/08/28/well/mind/insomnia-cognitive-behavioral-therapy.html?searchResultPosition=6
 
-**Carlos Alcaraz Is Bending Tennis to His Will and Taking Over the Game**\
-`Alcaraz, the defending U.S. Open men’s singles champion, has forced the best players in the world to adapt to his playing style, or risk losing for a long time.`\
-https://nytimes.com/2023/08/28/sports/tennis/us-open-carlos-alcaraz.html?searchResultPosition=7
+**Raising Teens Is Hard. Lisa Damour Has Some Answers.**\
+`As adolescent mental health has worsened, the psychologist offers advice for parents about anxiety, academics and friend struggles.`\
+https://nytimes.com/2023/08/28/well/mind/teen-anxiety-school-lisa-damour.html?searchResultPosition=7
 
-**Word of the Day: unseemly**\
-`This word has appeared in 44 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/08/28/learning/word-of-the-day-unseemly.html?searchResultPosition=8
+**A Novelist Writing on Colonization Finds an Audience in France, at Last**\
+`Mathieu Belezi has been fascinated by the history of colonial Algeria for years. Acclaim finally came with his latest book, a sign of changing times.`\
+https://nytimes.com/2023/08/28/books/france-algeria-mathieu-belezi.html?searchResultPosition=8
 
-**Zelensky says he believes the United States will offer Ukraine an Israel-like relationship.**\
-`By Daniel Victor`\
-https://nytimes.com/live/2023/08/28/world/russia-ukraine-news-war/zelensky-says-he-believes-the-united-states-will-offer-ukraine-an-israel-like-relationship?searchResultPosition=9
+**The Race to Unlock a Vast Source of Clean Energy Beneath Our Feet**\
+`There’s enough geothermal energy below ground to power the entire country. Some are trying to tap it — by using techniques from the fracking boom.`\
+https://nytimes.com/2023/08/28/climate/geothermal-energy-projects.html?searchResultPosition=9
 
-**What’s on TV This Week: ‘Claim to Fame’ and ‘Family Law’**\
-`The ABC reality show hosted by Kevin and Frankie Jonas wraps up, as does Canadian legal drama on the CW.`\
-https://nytimes.com/2023/08/28/arts/television/whats-on-tv-this-week-claim-to-fame-and-family-law.html?searchResultPosition=10
+**What Teaching History in Texas Looks Like**\
+`By returning to the same elementary school I attended, I can see changes in how schoolchildren are taught about America’s past.`\
+https://nytimes.com/2023/08/28/opinion/teaching-history-in-texas.html?searchResultPosition=10
 
