@@ -7,7 +7,7 @@ https://nytimes.com/2023/08/28/arts/television/invasion-simon-kinberg.html?searc
 https://nytimes.com/2023/08/28/style/loyalty-test-infidelity-cheating.html?searchResultPosition=2
 
 **U.K. Airports Hit by Flight Delays Over ‘Technical Issue’**\
-`Britain’s airlines warned of significant delays and cancellations because of an air traffic control issue.`\
+`Britain’s air traffic control agency warned of “flow restrictions” while it tried to find and fix a system fault, with long waits likely as a result.`\
 https://nytimes.com/2023/08/28/world/europe/uk-airport-flight-delays.html?searchResultPosition=3
 
 **Russia Charges Former U.S. Consulate Employee for Collecting Information About Ukraine War**\
