@@ -1,6 +1,6 @@
-**Searching for the ‘People’s Spelling Alphabet’**\
-`The NATO alphabet is an international standard of communication. That doesn’t stop people from saying ‘N as in Nancy.’`\
-https://nytimes.com/2023/08/28/crosswords/searching-for-the-peoples-spelling-alphabet.html?searchResultPosition=1
+**Waves Along California’s Coast Are Getting Bigger, Study Says**\
+`Climate change is fueling storms that have increased the size and frequency of big waves, according to a recent study published by the Journal of Geophysical Research.`\
+https://nytimes.com/2023/08/28/climate/waves-california-climate-change.html?searchResultPosition=1
 
 **Tell Us About How You Gather**\
 `What are the ways you play through parties or events? Share your story.`\
