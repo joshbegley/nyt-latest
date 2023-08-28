@@ -1,4 +1,4 @@
-**Man Who Was Recorded Injecting Substance in Neighbor’s Home Is Charged**\
+**Man Accused of Injecting Substance Into Neighbor’s Home Is Charged**\
 `Xuming Li, a chemistry student, was arrested after a condominium resident in Tampa, Fla., set up a camera to investigate the source of a chemical smell.`\
 https://nytimes.com/2023/08/27/us/florida-neighbor-chemical-agent.html?searchResultPosition=1
 
