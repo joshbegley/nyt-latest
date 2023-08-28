@@ -6,7 +6,7 @@ https://nytimes.com/2023/08/28/dining/new-restaurants-nyc.html?searchResultPosit
 `Between three and six inches of rain fell in the Upper Kanawha Valley area, near Charleston, with radar picking up more than eight inches of rain in some areas.`\
 https://nytimes.com/2023/08/28/us/west-virginia-flooding.html?searchResultPosition=2
 
-**Pilot known as a face of Kyiv’s efforts to get F-16s dies in training accident.**\
+**A pilot who became a face of Kyiv’s efforts to get F-16s dies in a training accident.**\
 `By Andrew E. Kramer`\
 https://nytimes.com/live/2023/08/28/world/russia-ukraine-news-war/pilot-known-as-a-face-of-kyivs-efforts-to-get-f-16s-dies-in-training-accident?searchResultPosition=3
 
