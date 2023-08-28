@@ -26,7 +26,7 @@ https://nytimes.com/2023/08/28/style/loyalty-test-infidelity-cheating.html?searc
 `Britain’s air traffic control agency warned of “flow restrictions” while it tried to find and fix a system fault, with long waits likely as a result.`\
 https://nytimes.com/2023/08/28/world/europe/uk-airport-flight-delays.html?searchResultPosition=7
 
-**Russia Charges Former U.S. Consulate Employee for Collecting Information About Ukraine War**\
+**Russia Charges Former U.S. Consulate Employee With Collecting Information About Ukraine War**\
 `Robert Shonov, a Russian national, faces up to eight years in prison. The U.S. has said the allegations against him are “wholly without merit.”`\
 https://nytimes.com/2023/08/28/world/europe/russia-us-consulate-shonov.html?searchResultPosition=8
 
