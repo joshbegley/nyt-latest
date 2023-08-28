@@ -1,6 +1,6 @@
 **4 Are Found Dead in Upper West Side Apartment, Including 2 Children**\
 `The children, ages 1 and 3, suffered fatal wounds, authorities said. The police did not say how the four people might be related.`\
-https://nytimes.com/2023/08/28/nyregion/upper-west-side-apartment-4-dead.html?searchResultPosition=1
+https://nytimes.com/2023/08/28/nyregion/4-dead-upper-west-side-apartment.html?searchResultPosition=1
 
 **3 Hosts of an Eric Adams Fund-Raiser Are Said to Face Indictment**\
 `An investigation into the mayor’s former buildings commissioner is expected to yield bribery and mob-related charges against several people who helped raise money for Mr. Adams.`\
