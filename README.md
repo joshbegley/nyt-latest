@@ -30,8 +30,8 @@ https://nytimes.com/2023/08/29/world/europe/totem-pole-nisga-a-nation-scotland.h
 `By Constant Méheut`\
 https://nytimes.com/live/2023/08/29/world/russia-ukraine-news-war/the-fighting-around-kupiansk-poses-strategic-dilemmas-for-both-russia-and-ukraine?searchResultPosition=8
 
-**If rain swells Lake Okeechobee, officials might have to release water full of toxic algae.**\
-`Lake levels are high,`\
+**Hurricane Idalia Threatens to Stir Up Lake Okeechobee’s Toxic Algae Blooms**\
+`Cyanobacteria have overrun this lake an hour outside West Palm Beach, and excessive rain could spread that algae to nearby waterways.`\
 https://nytimes.com/2023/08/29/us/lake-okeechobee-florida-idalia.html?searchResultPosition=9
 
 **Pat Corrales, Manager of Three Major League Teams, Dies at 82**\
