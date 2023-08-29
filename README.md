@@ -26,15 +26,15 @@ https://nytimes.com/live/2023/08/29/us/hurricane-idalia-florida/fort-myers-beach
 `An unwanted kiss cast a pall over the Spanish team’s victory at the Women’s World Cup. Some are calling it a #MeToo moment for the country and for soccer there.`\
 https://nytimes.com/2023/08/29/world/europe/spain-world-cup-kiss-rubiales-what-happened.html?searchResultPosition=7
 
-**Meta’s ‘Biggest Single Takedown’ Removes Chinese Influence Campaign**\
-`The campaign began at least four years ago and spanned thousands of accounts on Facebook, Instagram, TikTok, X, Substack and Chinese websites, Meta said.`\
-https://nytimes.com/2023/08/29/technology/meta-china-influence-campaign.html?searchResultPosition=8
-
 **Preyed On by Gangs: Gun Violence Surges Within Israel’s Arab Communities**\
 `At least 155 Arab citizens have died this year in violence largely attributed to organized crime. Some say the government has not done enough to stop the killing.`\
-https://nytimes.com/2023/08/29/world/middleeast/israel-arab-gun-violence.html?searchResultPosition=9
+https://nytimes.com/2023/08/29/world/middleeast/israel-arab-gun-violence.html?searchResultPosition=8
 
 **While western Florida braces for Idalia, excessive heat is expected for the state’s Atlantic coast.**\
 `By Claire Moses`\
-https://nytimes.com/live/2023/08/29/us/hurricane-idalia-florida/while-western-florida-braces-for-idalia-excessive-heat-is-expected-for-the-states-atlantic-coast?searchResultPosition=10
+https://nytimes.com/live/2023/08/29/us/hurricane-idalia-florida/while-western-florida-braces-for-idalia-excessive-heat-is-expected-for-the-states-atlantic-coast?searchResultPosition=9
+
+**U.S. Announces First Drugs Picked for Medicare Price Negotiations**\
+`The price negotiation program, established by Democrats as part of the Inflation Reduction Act, is expected to save the government tens of billions of dollars in the coming years.`\
+https://nytimes.com/2023/08/29/us/politics/medicare-drug-pricing-negotiations.html?searchResultPosition=10
 
