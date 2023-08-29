@@ -30,11 +30,11 @@ https://nytimes.com/2023/08/28/realestate/kenny-parcell-resigns-national-associa
 `Tiafoe, who made a sensational run to the semifinal in New York last year where he ran into Carlos Alcaraz, got an easy first-round win over Learner Tien on Monday.`\
 https://nytimes.com/2023/08/28/sports/tennis/us-open-frances-tiafoe.html?searchResultPosition=8
 
-**Tech Chiefs to Gather in Washington Next Month on A.I. Regulations**\
-`The leaders of Google, OpenAI, Microsoft and others will meet with lawmakers on Sept. 13 to kick off listening sessions that may shape A.I. rules in the United States.`\
-https://nytimes.com/2023/08/28/technology/tech-ai-regulations-listening-session-lawmakers.html?searchResultPosition=9
-
 **Hawaii’s Big Utility Pushes Back on Blame for Deadly Wildfire**\
 `Hawaiian Electric says power was shut off and an initial fire put out before a second blaze razed Lahaina. The county continues to blame the company.`\
-https://nytimes.com/2023/08/28/business/energy-environment/hawaiian-electric-maui-wildfire.html?searchResultPosition=10
+https://nytimes.com/2023/08/28/business/energy-environment/hawaiian-electric-maui-wildfire.html?searchResultPosition=9
+
+**The Paranoid Style in American Plutocrats**\
+`Of climate denial, Covid denial and cryptocurrency.`\
+https://nytimes.com/2023/08/28/opinion/columnists/covid-climate-cryptocurrency-plutocrats.html?searchResultPosition=10
 
