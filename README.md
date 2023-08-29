@@ -19,7 +19,7 @@ https://nytimes.com/2023/08/29/world/middleeast/israel-arab-gun-violence.html?se
 https://nytimes.com/live/2023/08/29/us/hurricane-idalia-florida/while-western-florida-braces-for-idalia-excessive-heat-is-expected-for-the-states-atlantic-coast?searchResultPosition=5
 
 **U.S. Announces First Drugs Picked for Medicare Price Negotiations**\
-`The Biden administration’s announcement was an important moment for Democrats, who have campaigned on a promise to lower the cost of prescription drugs.`\
+`The price negotiation program, established by Democrats as part of the Inflation Reduction Act, is expected to save the government tens of billions of dollars in the coming years.`\
 https://nytimes.com/2023/08/29/us/politics/medicare-drug-pricing-negotiations.html?searchResultPosition=6
 
 **C.E.O.s Side with New York in the Migrant Crisis**\
