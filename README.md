@@ -28,7 +28,7 @@ https://nytimes.com/2023/08/29/climate/how-to-track-a-hurricane.html?searchResul
 
 **In the path of Hurricane Idalia, residents of Cedar Key prepare for the worst.**\
 `By Abigail Geiger`\
-https://nytimes.com/live/2023/08/29/us/hurricane-idalia-florida/in-the-path-of-hurricane-idalia-residents-of-cedar-key-prepare-for-the-worst?searchResultPosition=8
+https://nytimes.com/live/2023/08/29/us/hurricane-idalia-florida-weather/in-the-path-of-hurricane-idalia-residents-of-cedar-key-prepare-for-the-worst?searchResultPosition=8
 
 **The Lives Lost to the Jacksonville Gunman**\
 `A community remembers a recent high school graduate, a women known as a bright soul and a doting dad, all victims of a racial shooting.`\
