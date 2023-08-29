@@ -12,7 +12,7 @@ https://nytimes.com/2023/08/29/world/asia/china-economic-gloom.html?searchResult
 
 **U.S. Does Not Want to ‘Decouple’ From China, Commerce Chief Says**\
 `Gina Raimondo, the commerce secretary, also emphasized U.S. national security concerns in a meeting in Beijing with Vice Premier He Lifeng, who oversees China’s economy.`\
-https://nytimes.com/2023/08/29/business/us-china-raimondo-he-lifeng.html?searchResultPosition=4
+https://nytimes.com/2023/08/29/business/us-china-raimondo-decouple-he-lifeng.html?searchResultPosition=4
 
 **Denver Settles With Black Lives Matter Protesters for $4.7 Million**\
 `The settlement resolves a class-action lawsuit that accused Denver police officers of using excessive force to control crowds and enforce a curfew in 2020.`\
