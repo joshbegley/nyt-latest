@@ -36,5 +36,5 @@ https://nytimes.com/2023/08/29/us/hurricane-idalia-path-south-carolina-georgia.h
 
 **So You’re Done With ‘Suits’ …**\
 `The USA legal soap improbably became the show of the summer after it landed on Netflix. Here’s what to watch after you finish or just get tired of it.`\
-https://nytimes.com/2023/08/29/arts/television/suits.html?searchResultPosition=10
+https://nytimes.com/2023/08/29/arts/television/suits-netflix.html?searchResultPosition=10
 
