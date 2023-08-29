@@ -22,19 +22,19 @@ https://nytimes.com/2023/08/29/technology/meta-china-influence-campaign.html?sea
 `At least 155 Arab citizens have died this year in violence largely attributed to organized crime. Some say the government has not done enough to stop the killing.`\
 https://nytimes.com/2023/08/29/world/middleeast/israel-arab-gun-violence.html?searchResultPosition=6
 
-**While western Florida braces for Idalia, excessive heat is expected for the state’s Atlantic coast.**\
-`By Claire Moses`\
-https://nytimes.com/live/2023/08/29/us/hurricane-idalia-florida/while-western-florida-braces-for-idalia-excessive-heat-is-expected-for-the-states-atlantic-coast?searchResultPosition=7
-
 **U.S. Announces First Drugs Picked for Medicare Price Negotiations**\
 `The price negotiation program, established by Democrats as part of the Inflation Reduction Act, is expected to save the government tens of billions of dollars in the coming years.`\
-https://nytimes.com/2023/08/29/us/politics/medicare-drug-pricing-negotiations.html?searchResultPosition=8
+https://nytimes.com/2023/08/29/us/politics/medicare-drug-pricing-negotiations.html?searchResultPosition=7
 
 **C.E.O.s Side with New York in the Migrant Crisis**\
 `More than 120 business leaders, including Jamie Dimon of JPMorgan Chase, are urging President Biden and congressional leaders to provide aid to the city.`\
-https://nytimes.com/2023/08/29/business/dealbook/ceos-new-york-migrants.html?searchResultPosition=9
+https://nytimes.com/2023/08/29/business/dealbook/ceos-new-york-migrants.html?searchResultPosition=8
 
 **A resident of Kupiansk dies in Russian shelling, Ukraine says.**\
 `By Constant Méheut`\
-https://nytimes.com/live/2023/08/29/world/russia-ukraine-news-war/a-resident-of-kupiansk-dies-in-russian-shelling-ukraine-says?searchResultPosition=10
+https://nytimes.com/live/2023/08/29/world/russia-ukraine-news-war/a-resident-of-kupiansk-dies-in-russian-shelling-ukraine-says?searchResultPosition=9
+
+**3M Says It Will Pay $6 Billion to Resolve Combat Earplug Lawsuits**\
+`The settlement would end years of litigation brought by military service members and veterans who claimed that the earplugs sold by 3M had led to hearing damage and tinnitus.`\
+https://nytimes.com/2023/08/29/business/3m-earplug-litigation.html?searchResultPosition=10
 
