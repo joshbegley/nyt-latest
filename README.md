@@ -34,7 +34,7 @@ https://nytimes.com/2023/08/29/technology/meta-china-influence-campaign.html?sea
 `At least 155 Arab citizens have died this year in violence largely attributed to organized crime. Some say the government has not done enough to stop the killing.`\
 https://nytimes.com/2023/08/29/world/middleeast/israel-arab-gun-violence.html?searchResultPosition=9
 
-**U.S. Announces First Drugs Picked for Medicare Price Negotiations**\
-`The price negotiation program, established by Democrats as part of the Inflation Reduction Act, is expected to save the government tens of billions of dollars in the coming years.`\
-https://nytimes.com/2023/08/29/us/politics/medicare-drug-pricing-negotiations.html?searchResultPosition=10
+**While western Florida braces for Idalia, excessive heat is expected for the state’s Atlantic coast.**\
+`By Claire Moses`\
+https://nytimes.com/live/2023/08/29/us/hurricane-idalia-florida/while-western-florida-braces-for-idalia-excessive-heat-is-expected-for-the-states-atlantic-coast?searchResultPosition=10
 
