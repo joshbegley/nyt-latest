@@ -1,6 +1,6 @@
-**U.S. and China Hold Talks Aimed at Thawing Tensions**\
-`Officials from the two countries, who have agreed to meet regularly, gathered to discuss economic policy.`\
-https://nytimes.com/2023/08/29/business/us-china-start-new-talks.html?searchResultPosition=1
+**U.S. Commerce Secretary Meets With China’s Economic Czar Amid Tensions**\
+`Gina Raimondo, the commerce secretary, held talks with Vice Premier He Lifeng in Beijing. Mr. He oversees China’s economy and is a close ally of Xi Jinping.`\
+https://nytimes.com/2023/08/29/business/us-china-raimondo-he-lifeng.html?searchResultPosition=1
 
 **Denver Settles With Black Lives Matter Protesters for $4.7 Million**\
 `The settlement resolves a class-action lawsuit that accused Denver police officers of using excessive force to control crowds and enforce a curfew in 2020.`\
