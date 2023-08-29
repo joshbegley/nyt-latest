@@ -1,4 +1,4 @@
-**U.N.C. Graduate Student Charged With Murder in Fatal Shooting of Professor**\
+**U.N.C. Graduate Student Is Charged in Fatal Shooting of Professor**\
 `Tailei Qi, 34, was charged with first-degree murder in the killing of Zijie Yan, an associate professor in the Department of Applied Physical Sciences, inside a campus lab on Monday.`\
 https://nytimes.com/2023/08/29/us/unc-chapel-hill-shooting-gunman-charges.html?searchResultPosition=1
 
