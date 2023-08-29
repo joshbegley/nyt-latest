@@ -2,8 +2,8 @@
 `Beijing has characterized concerns about the economic slowdown as being inflated by Western critics. Widespread anxiety and pessimism paint a different picture.`\
 https://nytimes.com/2023/08/29/world/asia/china-economic-gloom.html?searchResultPosition=1
 
-**U.S. Commerce Secretary Meets With China’s Economic Czar Amid Tensions**\
-`Gina Raimondo, the commerce secretary, held talks with Vice Premier He Lifeng in Beijing. Mr. He oversees China’s economy and is a close ally of Xi Jinping.`\
+**U.S. Does Not Want to ‘Decouple’ From China, Commerce Chief Says**\
+`Gina Raimondo, the commerce secretary, also emphasized U.S. national security concerns in a meeting in Beijing with Vice Premier He Lifeng, who oversees China’s economy.`\
 https://nytimes.com/2023/08/29/business/us-china-raimondo-he-lifeng.html?searchResultPosition=2
 
 **Denver Settles With Black Lives Matter Protesters for $4.7 Million**\
