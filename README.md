@@ -3,7 +3,7 @@
 https://nytimes.com/2023/08/29/us/unc-chapel-hill-shooting-gunman-charges.html?searchResultPosition=1
 
 **Francis Suarez Drops Out of the G.O.P. Presidential Race**\
-`The mayor of Miami, who had announced his run in early June, had not qualified for the first Republican debate last week.`\
+`The mayor of Miami, who had announced his run in June, had not qualified for the first Republican debate last week.`\
 https://nytimes.com/2023/08/29/us/politics/francis-suarez-presidential-race.html?searchResultPosition=2
 
 **How to Handle Flight Delays and Cancellations**\
