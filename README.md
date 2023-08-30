@@ -1,5 +1,5 @@
 **Trump, Under Oath, Says He Averted ‘Nuclear Holocaust’**\
-`During a deposition in his civil case, the former president offered a series of strange defenses, digressions and meandering explanations of his political and professional dealings.`\
+`During a deposition in his civil case, the former president offered a series of defenses, digressions and meandering explanations of his political and professional dealings.`\
 https://nytimes.com/2023/08/30/nyregion/trump-deposition-excerpts.html?searchResultPosition=1
 
 **Idalia Brings Surge of Seawater, but Less Damage Than Feared**\
