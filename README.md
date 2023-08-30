@@ -1,40 +1,40 @@
+**On the Coney Island Boardwalk, It’s the Summer of Snakes (and a Wallaby)**\
+`The authorities recently confiscated an unusual pet that a man brought to the beach, highlighting what has become an impromptu petting zoo.`\
+https://nytimes.com/2023/08/30/nyregion/on-the-coney-island-boardwalk-its-the-summer-of-snakes-and-a-wallaby.html?searchResultPosition=1
+
+**Philadelphia Asks if Race of Tubman Sculptor Matters**\
+`A white artist was invited to design a statue of Harriet Tubman. After complaints, the city held an open call for submissions.`\
+https://nytimes.com/2023/08/30/arts/design/tubman-sculpture-philadelphia.html?searchResultPosition=2
+
+**In San Francisco, Hope for ‘Rebirth and Renewal’**\
+`As he moves to a new role, Thomas Fuller reflects on his time as the bureau chief of a city undergoing a major transformation.`\
+https://nytimes.com/2023/08/30/insider/in-san-francisco-hope-for-rebirth-and-renewal.html?searchResultPosition=3
+
+**City Students Spend a Day Afloat**\
+`A kayaking club at the Borough of Manhattan Community College, whose members represent a "United Nations" of countries, took its first excursion outside the city.`\
+https://nytimes.com/interactive/2023/08/30/nyregion/bmcc-kayak-club.html?searchResultPosition=4
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/08/30/crosswords/wordle-review-answer-802.html?searchResultPosition=5
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/08/30/crosswords/spelling-bee-forum.html?searchResultPosition=6
+
 **Typhoon Saola, Nearing Category 5 Strength, Threatens China**\
 `The tropical cyclone was passing near Taiwan on Wednesday and edging closer to Hong Kong and the Chinese mainland.`\
-https://nytimes.com/2023/08/30/world/asia/typhoon-saola-hong-kong-taiwan-china.html?searchResultPosition=1
+https://nytimes.com/2023/08/30/world/asia/typhoon-saola-hong-kong-taiwan-china.html?searchResultPosition=7
 
 **Word of the Day: putative**\
 `This word has appeared in 49 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/08/30/learning/word-of-the-day-putative.html?searchResultPosition=2
+https://nytimes.com/2023/08/30/learning/word-of-the-day-putative.html?searchResultPosition=8
 
 **Tallahassee could see its strongest storm in years.**\
 `By Lauren McCarthy`\
-https://nytimes.com/live/2023/08/29/us/hurricane-idalia-florida-weather/tallahassee-could-see-its-strongest-storm-in-years?searchResultPosition=3
+https://nytimes.com/live/2023/08/29/us/hurricane-idalia-florida-weather/tallahassee-could-see-its-strongest-storm-in-years?searchResultPosition=9
 
 **Gabon Military Officers Say They Are Seizing Power**\
 `The televised announcement came hours after the Central African nation’s president, Ali Bongo Ondimba, was re-elected for a third term.`\
-https://nytimes.com/2023/08/30/world/africa/gabon-coup-election.html?searchResultPosition=4
-
-**‘Freedom’ Is a Word I No Longer Trust**\
-`Afghanistan has always been at the mercy of would-be liberators.`\
-https://nytimes.com/2023/08/30/opinion/afghanistan-pullout-anniversary-freedom.html?searchResultPosition=5
-
-**Corrections: Aug. 30, 2023**\
-`Corrections that appeared in print on Wednesday, Aug. 30, 2023.`\
-https://nytimes.com/2023/08/30/pageoneplus/corrections-aug-30-2023.html?searchResultPosition=6
-
-**Quotation of the Day: Do Cocktail Glasses Have a Gender? For Some Men, the Answer Is Clear.**\
-`Quotation of the Day for Wednesday, August 30, 2023.`\
-https://nytimes.com/2023/08/30/pageoneplus/quotation-of-the-day-do-cocktail-glasses-have-a-gender-for-some-men-the-answer-is-clear.html?searchResultPosition=7
-
-**Wednesday Briefing**\
-`Two lines of attack.`\
-https://nytimes.com/2023/08/30/briefing/russia-uganda-antigay-greece-fires.html?searchResultPosition=8
-
-**China’s Biggest Homebuilder Raises Capital in Scramble to Pay Debts**\
-`Country Garden is teetering on the brink of default with $190 billion in debt, in a sign of the country’s rapidly spreading real estate crisis.`\
-https://nytimes.com/2023/08/30/business/china-country-garden-share-sell.html?searchResultPosition=9
-
-**Once in a (Super) Blue Moon**\
-`The second full moon in August is tonight. And it’s a big one.`\
-https://nytimes.com/2023/08/30/nyregion/newyorktoday/once-in-a-super-blue-moon.html?searchResultPosition=10
+https://nytimes.com/2023/08/30/world/africa/gabon-coup-election.html?searchResultPosition=10
 
