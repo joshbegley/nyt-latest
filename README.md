@@ -1,40 +1,40 @@
+**CNN Names Mark Thompson Its Next Chief Executive**\
+`Mr. Thompson, who oversaw a period of growth at The New York Times, will lead the network during a pivotal period.`\
+https://nytimes.com/2023/08/30/business/media/cnn-mark-thompson-ceo.html?searchResultPosition=1
+
+**Idalia Could Become Another Multibillion-Dollar Superstorm**\
+`The Category 3 hurricane could expose insurers and their customers to huge losses across a wide stretch of Florida, Georgia and the Carolinas.`\
+https://nytimes.com/2023/08/30/business/dealbook/idalia-hurricane-billions.html?searchResultPosition=2
+
 **As Ukraine’s counteroffensive pushes south, Tokmak is a strategic target.**\
 `By Constant Méheut`\
-https://nytimes.com/live/2023/08/30/world/russia-ukraine-news/as-ukraines-counteroffensive-pushes-south-tokmak-is-a-strategic-target?searchResultPosition=1
+https://nytimes.com/live/2023/08/30/world/russia-ukraine-news/as-ukraines-counteroffensive-pushes-south-tokmak-is-a-strategic-target?searchResultPosition=3
 
 **Stream These Three Great Documentaries**\
 `This month’s picks include a look back at a presidential primary, a remembrance of the victims of a hate crime and an intriguing visit to a Northwest Atlantic island.`\
-https://nytimes.com/2023/08/30/movies/documentary-streaming.html?searchResultPosition=2
+https://nytimes.com/2023/08/30/movies/documentary-streaming.html?searchResultPosition=4
+
+**A Category 4 Hurricane**\
+`Idalia is barreling toward Florida.`\
+https://nytimes.com/2023/08/30/briefing/hurricane-idalia.html?searchResultPosition=5
 
 **Narcan Is Headed to Stores: What You Need to Know**\
 `The overdose-reversal drug should be more widely available, health experts have said. It arrives in many stores next week, no prescription necessary.`\
-https://nytimes.com/2023/08/30/health/narcan-drug-stores.html?searchResultPosition=3
+https://nytimes.com/2023/08/30/health/narcan-drug-stores.html?searchResultPosition=6
 
 **A Breakout Moment for Vivek Ramaswamy**\
 `The message and strategy of the republican newcomer.`\
-https://nytimes.com/2023/08/30/podcasts/the-daily/ramaswamy-republicans-election.html?searchResultPosition=4
+https://nytimes.com/2023/08/30/podcasts/the-daily/ramaswamy-republicans-election.html?searchResultPosition=7
 
 **Ukraine’s drone strikes against Russia are a message for its own people, U.S. officials say.**\
 `By Julian E. Barnes`\
-https://nytimes.com/live/2023/08/30/world/russia-ukraine-news/ukraines-drone-strikes-against-russia-are-a-message-for-its-own-people-us-officials-say?searchResultPosition=5
+https://nytimes.com/live/2023/08/30/world/russia-ukraine-news/ukraines-drone-strikes-against-russia-are-a-message-for-its-own-people-us-officials-say?searchResultPosition=8
 
 **Today’s Top News: Florida Braces for Hurricane Idalia, and More**\
 `Exclusively from New York Times Audio, our new app.`\
-https://nytimes.com/2023/08/30/podcasts/headlines-nyt-audio-app.html?searchResultPosition=6
+https://nytimes.com/2023/08/30/podcasts/headlines-nyt-audio-app.html?searchResultPosition=9
 
-**Trump Could Clinch the Nomination Before the G.O.P. Knows if He’s a Felon**\
-`The federal election interference case — one of four — is set to start just before Super Tuesday and a cascade of consequential primaries.`\
-https://nytimes.com/2023/08/30/us/politics/trump-gop-calendar.html?searchResultPosition=7
-
-**Did the British Government Order Their Father’s Murder?**\
-`Proposed legislation may keep them from ever finding out.`\
-https://nytimes.com/2023/08/30/opinion/finucane-assassination-northern-ireland.html?searchResultPosition=8
-
-**The Evolution of A.O.C.**\
-`The congresswoman from New York says she’s different from when she first took office. But she’s not ready to call herself an insider.`\
-https://nytimes.com/2023/08/30/us/politics/aoc-third-term-congress.html?searchResultPosition=9
-
-**The Trump Trial Date Is a Big Mistake**\
-`Why a Super Tuesday court date is bad for both the law and for democracy.`\
-https://nytimes.com/2023/08/30/opinion/trump-trial-date-democracy.html?searchResultPosition=10
+**After Jacksonville, Tensions Flare Between DeSantis and Black Floridians**\
+`At a vigil for the shooting victims, Mr. DeSantis had to speak over loud boos from a largely Black crowd. His agenda in Florida has earned him few Black allies.`\
+https://nytimes.com/2023/08/30/us/politics/jacksonville-desantis-black-community.html?searchResultPosition=10
 
