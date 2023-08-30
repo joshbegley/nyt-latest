@@ -1,40 +1,40 @@
+**Sadie Dupuis Confronts Her Darkest Memories on Speedy Ortiz’s New LP**\
+`The indie rocker found herself writing about what she had long suppressed on “Rabbit Rabbit,” due Friday.`\
+https://nytimes.com/2023/08/30/arts/music/speedy-ortiz-rabbit-rabbit.html?searchResultPosition=1
+
 **Water Is Essential to Life. How Could It Ever Go Out of Style?**\
 `The fashion world has long been fascinated with the natural world, but the love affair poses one major challenge: how to create the (convincing) illusion of wetness.`\
-https://nytimes.com/2023/08/30/style/wet-style-water-droplet-kim-kardashian.html?searchResultPosition=1
+https://nytimes.com/2023/08/30/style/wet-style-water-droplet-kim-kardashian.html?searchResultPosition=2
 
 **Laszlo Birinyi, Leading Stock Picker and Market Forecaster, Dies at 79**\
 `His investment strategy, which tracked the flow of money, won him a reputation for prescience in the 1990s.`\
-https://nytimes.com/2023/08/30/business/laszlo-birinyi-dead.html?searchResultPosition=2
+https://nytimes.com/2023/08/30/business/laszlo-birinyi-dead.html?searchResultPosition=3
 
 **Women May Face Higher Risk of Stroke Following Infertility Treatment**\
 `In the largest study of its kind, scientists found higher odds of stroke after childbirth among women who had received the treatments. Still, the number of strokes remained very low overall.`\
-https://nytimes.com/2023/08/30/health/infertility-stroke.html?searchResultPosition=3
+https://nytimes.com/2023/08/30/health/infertility-stroke.html?searchResultPosition=4
 
 **‘High level discussions may continue in coming months,’ a White House spokesman, John Kirby, says.**\
 `By Erica L. Green`\
-https://nytimes.com/live/2023/08/30/world/russia-ukraine-news/high-level-discussions-may-continue-in-coming-months-al-white-house-spokesman-john-kirby-says?searchResultPosition=4
+https://nytimes.com/live/2023/08/30/world/russia-ukraine-news/high-level-discussions-may-continue-in-coming-months-al-white-house-spokesman-john-kirby-says?searchResultPosition=5
 
 **Cities in Florida urge residents to conserve water in Hurricane Idalia’s wake.**\
 `By Johnny Diaz`\
-https://nytimes.com/live/2023/08/30/us/hurricane-idalia-landfall-florida/conserve-water-hurricane-idalia?searchResultPosition=5
+https://nytimes.com/live/2023/08/30/us/hurricane-idalia-landfall-florida/conserve-water-hurricane-idalia?searchResultPosition=6
 
 **The war will leave poorer countries struggling for food this year, a U.S. intelligence report says.**\
 `By Julian E. Barnes`\
-https://nytimes.com/live/2023/08/30/world/russia-ukraine-news/the-war-will-leave-poorer-countries-struggling-for-food-this-year-a-us-intelligence-report-says?searchResultPosition=6
+https://nytimes.com/live/2023/08/30/world/russia-ukraine-news/the-war-will-leave-poorer-countries-struggling-for-food-this-year-a-us-intelligence-report-says?searchResultPosition=7
 
 **Former Cardinal McCarrick Found Unfit for Trial Over Sexual Abuse**\
 `The 93-year-old former prelate is the most senior cleric to face charges in the Catholic Church’s abuse crisis.`\
-https://nytimes.com/2023/08/30/us/cardinal-mccarrick-sexual-abuse-trial.html?searchResultPosition=7
+https://nytimes.com/2023/08/30/us/cardinal-mccarrick-sexual-abuse-trial.html?searchResultPosition=8
 
 **For migrating birds, it’s the flight of their lives**\
 `By Emily Anthes`\
-https://nytimes.com/explain/2023/birds-science/for-migrating-birds-its-the-flight-of-their-lives?searchResultPosition=8
+https://nytimes.com/explain/2023/birds-science/for-migrating-birds-its-the-flight-of-their-lives?searchResultPosition=9
 
 **Giuliani Is Liable for Defaming Georgia Election Workers, Judge Says**\
 `The ruling means that a defamation case against Rudolph W. Giuliani, stemming from his role in seeking to overturn the 2020 election, can proceed to a trial where damages will be considered.`\
-https://nytimes.com/2023/08/30/us/politics/giuliani-defamation-georgia.html?searchResultPosition=9
-
-**Wind Energy Giant Orsted Says Delays in U.S. May Cost $2 Billion**\
-`Supply chain problems and high interest rates are hurting U.S. projects, the Danish company said.`\
-https://nytimes.com/2023/08/30/business/orsted-write-down-wind-power.html?searchResultPosition=10
+https://nytimes.com/2023/08/30/us/politics/giuliani-defamation-georgia.html?searchResultPosition=10
 
