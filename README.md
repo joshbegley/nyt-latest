@@ -1,4 +1,4 @@
-**Cedar Key Residents Survived Idalia’s Wrath**\
+**‘We Should Have Gotten Off the Island’: Cedar Key Residents Survived Idalia’s Wrath**\
 `Much of Cedar Key, a series of tiny islands that jut into the Gulf, was covered by storm surge overnight as the hurricane came ashore.`\
 https://nytimes.com/2023/08/30/us/cedar-key.html?searchResultPosition=1
 
