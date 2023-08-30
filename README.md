@@ -1,5 +1,5 @@
 **Trump Inflated Property Values by Up to $2.2 Billion, New York A.G. Says**\
-`A lawsuit against the former president and his family business is scheduled to reach trial in April, several months earlier than any of the four criminal indictments.`\
+`Letitia James, the attorney general, asked a judge to find, without a trial, that the former president had fraudulently overvalued his assets.`\
 https://nytimes.com/2023/08/30/nyregion/trump-james-civil-lawsuit-trial.html?searchResultPosition=1
 
 **Trader Joe’s Recalls Tamales After Potential Milk Contamination**\
