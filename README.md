@@ -8,7 +8,7 @@ https://nytimes.com/live/2023/08/30/us/hurricane-idalia-landfall-florida/fort-my
 
 **The Fight to Control Big Gay Ice Cream, Which Made the Rainbow Its Brand**\
 `A company that rode to success with an inclusive message has shrunk to a single store, as a founder sues a partner he accuses of mismanagement and fraud.`\
-https://nytimes.com/2023/08/30/dining/big-gay-ice-cream-nyc-hits-hard-times.html?searchResultPosition=3
+https://nytimes.com/2023/08/30/dining/big-gay-ice-cream-nyc.html?searchResultPosition=3
 
 **Ray Hildebrand, the ‘Paul’ of Hitmakers Paul and Paula, Dies at 82**\
 `He wrote a romantic song for his friend’s girlfriend, Paula, and recorded it as a duet with Jill Jackson. It became a No. 1 hit.`\
