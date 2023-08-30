@@ -30,7 +30,7 @@ https://nytimes.com/2023/08/30/business/economy/labor-department-overtime-rule.h
 `Readers discuss a tech column offering solutions. Also: Airbrushing older models; Haley’s raised hand; sea life in captivity.`\
 https://nytimes.com/2023/08/30/opinion/letters/struggling-to-understand-tv-dialogue.html?searchResultPosition=8
 
-**A Thousand Tiny Quakes: Documenting Russian Bombings in New Detail**\
+**A Thousand Tiny Quakes**\
 `Scientists are mapping war in an entirely new way.`\
 https://nytimes.com/interactive/2023/08/30/world/europe/ukraine-war-russia-attacks-seismic-waves.html?searchResultPosition=9
 
