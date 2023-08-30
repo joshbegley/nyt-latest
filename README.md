@@ -30,7 +30,7 @@ https://nytimes.com/2023/08/30/us/politics/the-evolution-of-aoc.html?searchResul
 `Why a Super Tuesday court date is bad for both the law and for democracy.`\
 https://nytimes.com/2023/08/30/opinion/trump-trial-date-democracy.html?searchResultPosition=8
 
-**Trump’s Mug Shot Has More in Common with Washington’s Portrait Than You Might Think**\
+**Trump’s Mug Shot Has More in Common With Washington’s Portrait Than You Might Think**\
 `Whether the images were in oil paint or digital photography, presidents have always sought the same thing: control.`\
 https://nytimes.com/2023/08/30/opinion/trump-mug-shot-washington-presidential-portrait.html?searchResultPosition=9
 
