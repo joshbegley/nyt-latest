@@ -22,13 +22,13 @@ https://nytimes.com/live/2023/08/30/world/russia-ukraine-news/ukraines-drone-str
 `Exclusively from New York Times Audio, our new app.`\
 https://nytimes.com/2023/08/30/podcasts/headlines-nyt-audio-app.html?searchResultPosition=6
 
-**After Jacksonville, Tensions Flare Between DeSantis and Black Floridians**\
-`At a vigil for the shooting victims, Mr. DeSantis had to speak over loud boos from a largely Black crowd. His agenda in Florida has earned him few Black allies.`\
-https://nytimes.com/2023/08/30/us/politics/after-jacksonville-tensions-flare-between-desantis-and-black-floridians.html?searchResultPosition=7
-
 **Trump Could Clinch the Nomination Before the G.O.P. Knows if He’s a Felon**\
 `The federal election interference case — one of four — is set to start just before Super Tuesday and a cascade of consequential primaries.`\
-https://nytimes.com/2023/08/30/us/politics/trump-gop-calendar.html?searchResultPosition=8
+https://nytimes.com/2023/08/30/us/politics/trump-gop-calendar.html?searchResultPosition=7
+
+**After Jacksonville, Tensions Flare Between DeSantis and Black Floridians**\
+`At a vigil for the shooting victims, Mr. DeSantis had to speak over loud boos from a largely Black crowd. His agenda in Florida has earned him few Black allies.`\
+https://nytimes.com/2023/08/30/us/politics/jacksonville-desantis-black-community.html?searchResultPosition=8
 
 **Small Donors Are a Big Problem**\
 `The rise of low-dollar contributions has been a key element driving the continuing decline of political parties. Don’t be so sure that’s a good thing.`\
