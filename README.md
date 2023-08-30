@@ -1,40 +1,40 @@
-**Here’s the latest on the storm.**\
-`By Victoria Kim and John Yoon`\
-https://nytimes.com/live/2023/08/30/us/hurricane-idalia-florida/heres-the-latest-on-the-storm?searchResultPosition=1
+**After Jacksonville, Tensions Flare Between DeSantis and Black Floridians**\
+`At a vigil for the shooting victims, Mr. DeSantis had to speak over loud boos from a largely Black crowd. His agenda in Florida has earned him few Black allies.`\
+https://nytimes.com/2023/08/30/us/politics/after-jacksonville-tensions-flare-between-desantis-and-black-floridians.html?searchResultPosition=1
 
-**Drones were fired at six Russian regions, damaging military planes at an airport.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2023/08/30/world/russia-ukraine-news/drones-were-fired-at-six-russian-regions-damaging-military-planes-at-an-airport?searchResultPosition=2
+**Trump Could Clinch the Nomination Before the G.O.P. Knows if He’s a Felon**\
+`The federal election interference case — one of four — is set to start just before Super Tuesday and a cascade of consequential primaries.`\
+https://nytimes.com/2023/08/30/us/politics/trump-gop-calendar.html?searchResultPosition=2
 
-**On the Coney Island Boardwalk, It’s the Summer of Snakes (and a Wallaby)**\
-`The authorities recently confiscated an unusual pet that a man brought to the beach, highlighting what has become an impromptu petting zoo.`\
-https://nytimes.com/2023/08/30/nyregion/on-the-coney-island-boardwalk-its-the-summer-of-snakes-and-a-wallaby.html?searchResultPosition=3
+**Small Donors Are a Big Problem**\
+`The rise of low-dollar contributions has been a key element driving the continuing decline of political parties. Don’t be so sure that’s a good thing.`\
+https://nytimes.com/2023/08/30/opinion/campaign-finance-small-donors.html?searchResultPosition=3
 
-**Philadelphia Asks if Race of Tubman Sculptor Matters**\
-`A white artist was invited to design a statue of Harriet Tubman. After complaints, the city held an open call for submissions.`\
-https://nytimes.com/2023/08/30/arts/design/tubman-sculpture-philadelphia.html?searchResultPosition=4
+**Did the British Government Order Their Father’s Murder?**\
+`Proposed legislation may keep them from ever finding out.`\
+https://nytimes.com/2023/08/30/opinion/finucane-assassination-northern-ireland.html?searchResultPosition=4
 
-**In San Francisco, Hope for ‘Rebirth and Renewal’**\
-`As he moves to a new role, Thomas Fuller reflects on his time as the bureau chief of a city undergoing a major transformation.`\
-https://nytimes.com/2023/08/30/insider/in-san-francisco-hope-for-rebirth-and-renewal.html?searchResultPosition=5
+**Life at a Grand Slam: What You Don’t See on TV at the U.S. Open**\
+`The commute, the fight for court time and the sponsorship commitments make the life of a tennis player demanding during this tournament.`\
+https://nytimes.com/2023/08/30/sports/tennis/us-open-behind-the-scenes.html?searchResultPosition=5
 
-**City Students Spend a Day Afloat**\
-`A kayaking club at the Borough of Manhattan Community College, whose members represent a "United Nations" of countries, took its first excursion outside the city.`\
-https://nytimes.com/interactive/2023/08/30/nyregion/bmcc-kayak-club.html?searchResultPosition=6
+**The Evolution of A.O.C.**\
+`The congresswoman from New York says she’s different from when she first took office. But she’s not ready to call herself an insider.`\
+https://nytimes.com/2023/08/30/us/politics/the-evolution-of-aoc.html?searchResultPosition=6
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/08/30/crosswords/wordle-review-answer-802.html?searchResultPosition=7
+**The Trump Trial Date Is a Big Mistake**\
+`Why a Super Tuesday court date is bad for both the law and for democracy.`\
+https://nytimes.com/2023/08/30/opinion/trump-trial-date-democracy.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/08/30/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**Trump’s Mug Shot Has More in Common with Washington’s Portrait Than You Might Think**\
+`Whether the images were in oil paint or digital photography, presidents have always sought the same thing: control.`\
+https://nytimes.com/2023/08/30/opinion/trump-mug-shot-washington-presidential-portrait.html?searchResultPosition=8
 
-**Typhoon Saola, Nearing Category 5 Strength, Threatens China**\
-`The tropical cyclone was passing near Taiwan on Wednesday and edging closer to Hong Kong and the Chinese mainland.`\
-https://nytimes.com/article/typhoon-saola-hong-kong-taiwan-china.html?searchResultPosition=9
+**Astoria, Queens: ‘A Mix of Traditional and Trendy’**\
+`With relatively affordable prices and an easy commute to Manhattan, the area is attracting new residents, but it still has a strong sense of community.`\
+https://nytimes.com/2023/08/30/realestate/astoria-queens-nyc-neighborhood.html?searchResultPosition=9
 
-**Word of the Day: putative**\
-`This word has appeared in 49 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/08/30/learning/word-of-the-day-putative.html?searchResultPosition=10
+**When Your ‘Doppelganger’ Becomes a Conspiracy Theorist**\
+`If you’re Naomi Klein, you write a book about it.`\
+https://nytimes.com/2023/08/30/magazine/naomi-klein-doppelganger.html?searchResultPosition=10
 
