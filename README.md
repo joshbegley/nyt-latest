@@ -1,6 +1,6 @@
 **Combined with Idalia, a ‘supermoon’ could pull huge tides into cities like Charleston and Savannah.**\
-`By Judson Jones and Sara Novak`\
-https://nytimes.com/2023/08/30/us/supermoon.html?searchResultPosition=1
+`A full moon is passing close to earth, exerting a greater gravitational pull and creating higher tides than usual just as the storm is forecast to push more water ashore.`\
+https://nytimes.com/2023/08/30/us/supermoon-idalia-tides.html?searchResultPosition=1
 
 **Reviving America’s Fading Cities Isn’t Impossible**\
 `But it requires a clearer aim — and a lot more money.`\
