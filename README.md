@@ -11,7 +11,7 @@ https://nytimes.com/2023/08/30/us/cardinal-mccarrick-sexual-abuse-trial.html?sea
 https://nytimes.com/explain/2023/birds-science/for-migrating-birds-its-the-flight-of-their-lives?searchResultPosition=3
 
 **Giuliani Is Liable for Defaming Georgia Election Workers, Judge Says**\
-`The ruling means that a defamation case against Rudolph W. Giuliani, stemming from his role in seeking to overturn the 2020 election, can proceed to a trial where damages will be set.`\
+`The ruling means that a defamation case against Rudolph W. Giuliani, stemming from his role in seeking to overturn the 2020 election, can proceed to a trial where damages will be considered.`\
 https://nytimes.com/2023/08/30/us/politics/giuliani-defamation-georgia.html?searchResultPosition=4
 
 **Wind Energy Giant Orsted Says Delays in U.S. May Cost $2 Billion**\
