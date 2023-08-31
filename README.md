@@ -30,9 +30,9 @@ https://nytimes.com/2023/08/31/crosswords/spelling-bee-forum.html?searchResultPo
 `By Jesus Jiménez`\
 https://nytimes.com/live/2023/08/31/world/russia-ukraine-news/russia-and-turkey-to-discuss-moscows-grain-proposal?searchResultPosition=8
 
-**At Least 63 Dead in Building Fire in Johannesburg**\
+**Here are the latest developments.**\
 `The early-morning blaze tore through a five-story building that had become a sprawling informal settlement, officials said. The cause was not yet known.`\
-https://nytimes.com/2023/08/31/world/africa/south-africa-fire-johannesburg.html?searchResultPosition=9
+https://nytimes.com/live/2023/08/31/world/south-africa-fire-johannesburg/south-africa-fire-johannesburg?searchResultPosition=9
 
 **Word of the Day: disingenuous**\
 `This word has appeared in 87 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
