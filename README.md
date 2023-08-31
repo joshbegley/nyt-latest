@@ -1,40 +1,40 @@
+**What’s in a Name? For These Design Brands, Generations of Expectations.**\
+`Scions of their family businesses are embracing legacies, whether lost or lasting, while tackling a future that their forebears would barely recognize.`\
+https://nytimes.com/2023/08/31/style/legacy-design-brands.html?searchResultPosition=1
+
 **Teenager Who Rang Wrong Doorbell Faces Homeowner Who Shot Him**\
 `Ralph Yarl, a Black teenager, testified in court on Thursday about being shot on a man’s doorstep. A judge ruled that the charges against the white homeowner could proceed.`\
-https://nytimes.com/2023/08/31/us/ralph-yarl-shooting-testimony.html?searchResultPosition=1
+https://nytimes.com/2023/08/31/us/ralph-yarl-shooting-testimony.html?searchResultPosition=2
 
 **Remarks on Diversity Lead to Investigation of North Carolina Judge**\
 `A justice of the North Carolina Supreme Court is being investigated by a state judicial commission after saying a report of bias in the judiciary should be examined.`\
-https://nytimes.com/2023/08/31/us/north-carolina-supreme-court-anita-earls-bias.html?searchResultPosition=2
+https://nytimes.com/2023/08/31/us/north-carolina-supreme-court-anita-earls-bias.html?searchResultPosition=3
 
 **Judge Temporarily Blocks Texas Law That Would Restrict Drag Shows**\
 `If a permanent order is issued later, the ruling would most likely be appealed by the state.`\
-https://nytimes.com/2023/08/31/us/drag-show-ruling-texas.html?searchResultPosition=3
+https://nytimes.com/2023/08/31/us/drag-show-ruling-texas.html?searchResultPosition=4
 
 **Biden Administration Proposes Expanding Background Checks on Gun Sales**\
 `The proposed rules are part of President Biden’s piecemeal efforts to enact a key policy goal, universal background checks, which has been repeatedly stymied by congressional Republicans.`\
-https://nytimes.com/2023/08/31/us/politics/biden-background-checks-guns.html?searchResultPosition=4
+https://nytimes.com/2023/08/31/us/politics/biden-background-checks-guns.html?searchResultPosition=5
 
 **Peter Meijer, Republican Who Backed Impeachment, Eyes Michigan Senate Race**\
 `Mr. Meijer, who lost his House primary last year, has formed an exploratory committee to run for an open Senate seat.`\
-https://nytimes.com/2023/08/31/us/politics/peter-meijer-michigan-senate-race.html?searchResultPosition=5
+https://nytimes.com/2023/08/31/us/politics/peter-meijer-michigan-senate-race.html?searchResultPosition=6
 
 **With a Village Recaptured, Ukraine Takes the Next Step in Its Counteroffensive**\
 `After penetrating Russian defenses to retake the village of Robotyne, Ukrainian forces have pushed the fight a few miles east, but formidable obstacles lie ahead.`\
-https://nytimes.com/2023/08/31/world/europe/ukraine-counteroffensive-robotyne-verbove.html?searchResultPosition=6
+https://nytimes.com/2023/08/31/world/europe/ukraine-counteroffensive-robotyne-verbove.html?searchResultPosition=7
 
 **People Are More Generous Than You May Think**\
 `People are driven by a lot more than self-interest.`\
-https://nytimes.com/2023/08/31/opinion/human-nature-good-bad-generous.html?searchResultPosition=7
+https://nytimes.com/2023/08/31/opinion/human-nature-good-bad-generous.html?searchResultPosition=8
 
 **Why Is China in So Much Trouble?**\
 `When ideology gets in the way of the obvious solutions.`\
-https://nytimes.com/2023/08/31/opinion/china-xi-jinping-policy-thrift.html?searchResultPosition=8
+https://nytimes.com/2023/08/31/opinion/china-xi-jinping-policy-thrift.html?searchResultPosition=9
 
 **‘Five Eyes’ intelligence allies link a Russian hacking group to an attack on Ukraine’s battlefield devices.**\
 `By Julian E. Barnes`\
-https://nytimes.com/live/2023/08/31/world/russia-ukraine-news/five-eyes-intelligence-allies-link-a-russian-hacking-group-to-an-attack-on-ukraines-battlefield-devices?searchResultPosition=9
-
-**Oprah and Dwayne Johnson Give $10 Million to Help Maui Wildfire Victims**\
-`The stars helped establish the People’s Fund of Maui, which will give direct payments of $1,200 a month to residents displaced by the wildfires.`\
-https://nytimes.com/2023/08/31/us/oprah-dwayne-johnson-maui-fires-relief.html?searchResultPosition=10
+https://nytimes.com/live/2023/08/31/world/russia-ukraine-news/five-eyes-intelligence-allies-link-a-russian-hacking-group-to-an-attack-on-ukraines-battlefield-devices?searchResultPosition=10
 
