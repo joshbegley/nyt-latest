@@ -1,40 +1,40 @@
+**Elevators at Most Subway Stations? ‘I’ll Believe It When I See It.’**\
+`The Metropolitan Transportation Authority has vowed to make the city’s public transit system easier to navigate, but said it will take 32 years. For disabled New Yorkers, the subway is still a nightmare.`\
+https://nytimes.com/2023/08/31/nyregion/nyc-subway-accessible-disabled.html?searchResultPosition=1
+
+**After Fox News, Geraldo Rivera Boats Into the Sunset (via Cleveland)**\
+`At 80 years old, the longtime television personality found himself unexpectedly unemployed after more than half a century. So he steered his boat toward the Erie Canal, seeking one last adventure.`\
+https://nytimes.com/2023/08/31/nyregion/geraldo-rivera-fox-erie-canal.html?searchResultPosition=2
+
+**Along for the Ride, With No One Behind the Wheel**\
+`Three New York Times technology reporters recently buckled up for a ride in Waymo’s autonomous vehicles.`\
+https://nytimes.com/2023/08/31/insider/along-for-the-ride-with-no-one-behind-the-wheel.html?searchResultPosition=3
+
+**Weed at the U.S. Open? Some Players Swear They Can Smell It**\
+`The smell of marijuana is drifting over Court 17. The explanation appears to have nothing to do with tennis.`\
+https://nytimes.com/2023/08/31/nyregion/weed-smell-us-open.html?searchResultPosition=4
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/08/31/crosswords/wordle-review-answer-803.html?searchResultPosition=5
+
+**‘One Piece’ Review: Netflix Tries to Translate the Anime Magic (Again)**\
+`Remember the live-action, English-language “Cowboy Bebop”?`\
+https://nytimes.com/2023/08/31/arts/television/one-piece-review-netflix.html?searchResultPosition=6
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/08/31/crosswords/spelling-bee-forum.html?searchResultPosition=7
+
 **Russia and Turkey to discuss Moscow’s grain proposal.**\
 `By Jesus Jiménez`\
-https://nytimes.com/live/2023/08/31/world/russia-ukraine-news/russia-and-turkey-to-discuss-moscows-grain-proposal?searchResultPosition=1
+https://nytimes.com/live/2023/08/31/world/russia-ukraine-news/russia-and-turkey-to-discuss-moscows-grain-proposal?searchResultPosition=8
 
 **At Least 58 Dead in Building Fire in Johannesburg**\
 `The early-morning blaze tore through a five-story building that had become a sprawling informal settlement, officials said. The cause was not yet known.`\
-https://nytimes.com/2023/08/31/world/africa/south-africa-fire-johannesburg.html?searchResultPosition=2
+https://nytimes.com/2023/08/31/world/africa/south-africa-fire-johannesburg.html?searchResultPosition=9
 
 **Word of the Day: disingenuous**\
 `This word has appeared in 87 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/08/31/learning/word-of-the-day-disingenuous.html?searchResultPosition=3
-
-**Sticking with one ritual of life in coastal North Carolina.**\
-`By Brandon Sneed`\
-https://nytimes.com/live/2023/08/30/us/hurricane-idalia-landfall-florida/sticking-with-one-ritual-of-life-in-coastal-north-carolina?searchResultPosition=4
-
-**Thursday Briefing**\
-`Drone attacks in the war in Ukraine.`\
-https://nytimes.com/2023/08/31/briefing/drones-ukraine-gabon-coup.html?searchResultPosition=5
-
-**Corrections: Aug. 31, 2023**\
-`Corrections that appeared in print on Thursday, Aug. 31, 2023.`\
-https://nytimes.com/2023/08/31/corrections/corrections-aug-31-2023.html?searchResultPosition=6
-
-**Quotation of the Day: In a Storied River on Vancouver Island, Fish Are Dying in Droves**\
-`Quotation of the Day for Thursday, August 31, 2023.`\
-https://nytimes.com/2023/08/31/pageoneplus/quotation-of-the-day-in-a-storied-river-on-vancouver-island-fish-are-dying-in-droves.html?searchResultPosition=7
-
-**The Final Days of Wall Street’s Beloved ‘Tacky’ ’80s Lobby**\
-`The Egyptian-columned marble lobby at 60 Wall Street has many fans, but it is likely to be replaced by a neutral, minimalist interior.`\
-https://nytimes.com/2023/08/31/nyregion/60-wall-street-lobby.html?searchResultPosition=8
-
-**China’s Misinformation Fuels Anger Over Fukushima Water Release**\
-`By exaggerating the risks from Japan’s discharge of treated wastewater, Beijing hopes to cast Japan and its allies as conspirators in malfeasance, analysts say.`\
-https://nytimes.com/2023/08/31/world/asia/china-fukushima-water-protest.html?searchResultPosition=9
-
-**A Resurgent Labour Party Sees Scotland as a Springboard to Power**\
-`As the Scottish nationalists stumble, a by-election near Glasgow this fall will test support for the opposition Labour party ahead of Britain’s coming general election.`\
-https://nytimes.com/2023/08/31/world/europe/scotland-labour-election-parliament.html?searchResultPosition=10
+https://nytimes.com/2023/08/31/learning/word-of-the-day-disingenuous.html?searchResultPosition=10
 
