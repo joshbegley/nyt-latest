@@ -2,7 +2,7 @@
 `The blaze consumed an abandoned five-story building that had become a sprawling informal settlement, officials said.`\
 https://nytimes.com/video/world/africa/100000009065398/johannesburg-fire-south-africa.html?searchResultPosition=1
 
-**They Prepared for Idalia’s Floods But Lost Their Forever Home in a Fire**\
+**They Prepared for Idalia’s Floods But Lost Their Home in a Fire**\
 `Heather and David Durst’s children have set up a GoFundMe to help them rebuild their lives.`\
 https://nytimes.com/video/climate/100000009065186/idalia-hudson-florida-durst-fire.html?searchResultPosition=2
 
@@ -34,7 +34,7 @@ https://nytimes.com/2023/08/31/arts/television/one-piece-review-netflix.html?sea
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2023/08/31/crosswords/spelling-bee-forum.html?searchResultPosition=9
 
-**Russia and Turkey to discuss Moscow’s grain proposal.**\
-`By Jesus Jiménez`\
-https://nytimes.com/live/2023/08/31/world/russia-ukraine-news/russia-and-turkey-to-discuss-moscows-grain-proposal?searchResultPosition=10
+**Here are the latest developments.**\
+`The early-morning blaze tore through a five-story building that had become a sprawling informal settlement, officials said. The cause was not yet known.`\
+https://nytimes.com/live/2023/08/31/world/south-africa-fire-johannesburg/south-africa-fire-johannesburg?searchResultPosition=10
 
