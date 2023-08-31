@@ -34,7 +34,7 @@ https://nytimes.com/2023/08/31/arts/television/one-piece-review-netflix.html?sea
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2023/08/31/crosswords/spelling-bee-forum.html?searchResultPosition=9
 
-**Here are the latest developments.**\
-`The early-morning blaze tore through a five-story building that had become a sprawling informal settlement, officials said. The cause was not yet known.`\
-https://nytimes.com/live/2023/08/31/world/south-africa-fire-johannesburg/south-africa-fire-johannesburg?searchResultPosition=10
+**Russia and Turkey will discuss Moscow’s grain proposal.**\
+`By Jesus Jiménez`\
+https://nytimes.com/live/2023/08/31/world/russia-ukraine-news/russia-and-turkey-to-discuss-moscows-grain-proposal?searchResultPosition=10
 
