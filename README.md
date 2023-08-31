@@ -1,5 +1,5 @@
 **Christie’s Cancels Sale of Jewelry Connected to Nazi-Era Fortune**\
-`The decision follows a backlash from Jewish organizations after the auction house generated $202 million in a spring sale from the jewelry connection of Heidi Horten.`\
+`The decision follows a backlash from Jewish organizations after the auction house generated $202 million in a spring sale from the jewelry collection of Heidi Horten.`\
 https://nytimes.com/2023/08/31/arts/design/christies-heidi-horten-sale.html?searchResultPosition=1
 
 **A Time Capsule Appeared to Be Full of Dirt. Then, They Looked Closer.**\
