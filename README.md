@@ -2,7 +2,7 @@
 `The blaze struck an abandoned building that had become a crowded squatter camp. The authorities were investigating the cause.`\
 https://nytimes.com/2023/08/31/world/africa/johannesburg-fire-photos.html?searchResultPosition=1
 
-**U.K. Replaces Defense Secretary Ben Wallace with Grant Shapps**\
+**U.K. Replaces Defense Secretary Ben Wallace With Grant Shapps**\
 `Mr. Wallace, a former soldier, had come to symbolize Britain’s steadfast support for Ukraine in the war against Russia.`\
 https://nytimes.com/2023/08/31/world/europe/uk-defense-secretary-wallace-shapps.html?searchResultPosition=2
 
