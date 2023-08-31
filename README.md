@@ -1,4 +1,4 @@
-**5 Standup Specials to Stream for the Labor Day Weekend**\
+**5 Stand-Up Specials to Stream for the Labor Day Weekend**\
 `Todd Barry, Tracy Morgan, Sasheer Zamata, Chris Fleming and Jason Fried riff on weird characters, middle age, lost histories and more.`\
 https://nytimes.com/2023/08/31/arts/television/standup-comedy-specials-streaming.html?searchResultPosition=1
 
