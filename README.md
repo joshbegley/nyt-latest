@@ -1,40 +1,40 @@
+**An undated video of Prigozhin discussing his well-being surfaces a day after his funeral.**\
+`By Valeriya Safronova`\
+https://nytimes.com/live/2023/08/31/world/russia-ukraine-news/an-undated-video-of-prigozhin-discussing-his-well-being-surfaces-a-day-after-his-funeral?searchResultPosition=1
+
+**On Fire Island, a Home for Art — and the Artists Who Make It**\
+`How a New York homeowner and a pair of gay architects turned a midcentury Sears catalog kit house in the Pines into a contemporary refuge that looks nothing like its neighbors.`\
+https://nytimes.com/2023/08/31/t-magazine/ilan-cohen-fire-island-pines-house.html?searchResultPosition=2
+
+**Homes for Sale in Connecticut and New York**\
+`This week’s properties are five-bedroom homes in Westport, Conn., and White Plains, N.Y.`\
+https://nytimes.com/2023/08/31/realestate/housing-market-near-nyc.html?searchResultPosition=3
+
+**Homes for Sale in Manhattan and the Bronx**\
+`This week’s properties are in Murray Hill, on the Lower East Side and in Parkchester.`\
+https://nytimes.com/2023/08/31/realestate/housing-market-nyc.html?searchResultPosition=4
+
+**A Cluster of Wildfires Is Burning in California’s Northwest Corner**\
+`The Smith River Complex, covering more than 75,000 acres, has closed roads, forced power outages and delayed the start of school for thousands of students.`\
+https://nytimes.com/2023/08/31/us/california-wildfire-smith-river-complex.html?searchResultPosition=5
+
+**How to Win at Monopoly**\
+`Pro tip: Don’t sleep on the red and orange properties. Players land on them the most.`\
+https://nytimes.com/2023/08/31/crosswords/monopoly-how-to-win.html?searchResultPosition=6
+
 **The Fed’s Preferred Inflation Gauge Ticked Up in July**\
 `Overall inflation climbed to 3.3 percent, from 3 percent previously, underscoring the Fed’s long road back to 2 percent price increases.`\
-https://nytimes.com/2023/08/31/business/economy/fed-inflation-july.html?searchResultPosition=1
+https://nytimes.com/2023/08/31/business/economy/fed-inflation-july.html?searchResultPosition=7
 
 **Taylor Swift Eras Tour Concert Film Coming to Movie Theaters**\
 `A theatrical version of the billion-dollar tour — a cultural juggernaut that just ended its North American leg — opens Oct. 13.`\
-https://nytimes.com/2023/08/31/arts/music/taylor-swift-eras-tour-concert-movie.html?searchResultPosition=2
+https://nytimes.com/2023/08/31/arts/music/taylor-swift-eras-tour-concert-movie.html?searchResultPosition=8
 
 **More than 600 derelict buildings in Johannesburg are illegally occupied, a local official says.**\
 `By John Eligon`\
-https://nytimes.com/live/2023/08/31/world/south-africa-fire-johannesburg/more-than-600-derelict-buildings-in-johannesburg-are-illegally-occupied-a-local-official-says?searchResultPosition=3
+https://nytimes.com/live/2023/08/31/world/south-africa-fire-johannesburg/more-than-600-derelict-buildings-in-johannesburg-are-illegally-occupied-a-local-official-says?searchResultPosition=9
 
 **The Dirtiest Corners of New York City**\
 `A study examined 311 complaints to isolate the ZIP codes with the most.`\
-https://nytimes.com/2023/08/31/realestate/the-dirtiest-corners-of-new-york-city.html?searchResultPosition=4
-
-**A family searches for a man missing in the fire.**\
-`By Lynsey Chutel`\
-https://nytimes.com/live/2023/08/31/world/south-africa-fire-johannesburg/a-family-searches-for-a-man-missing-in-the-fire?searchResultPosition=5
-
-**UBS Gets a $29 Billion Bump From M.&A. Accounting**\
-`The Swiss bank’s sharply discounted takeover of Credit Suisse led to a paper gain that gave it the biggest quarterly profit by a bank in history.`\
-https://nytimes.com/2023/08/31/business/dealbook/ubs-billion-credit-suisse-deal.html?searchResultPosition=6
-
-**Scenes From Johannesburg: A Deadly Fire Downtown Kills Scores**\
-`The blaze struck an abandoned building that had become a crowded squatter camp. The authorities were investigating the cause.`\
-https://nytimes.com/2023/08/31/world/africa/johannesburg-fire-photos.html?searchResultPosition=7
-
-**U.K. Replaces Defense Secretary Ben Wallace With Grant Shapps**\
-`Mr. Wallace, a former soldier, had come to symbolize Britain’s steadfast support for Ukraine in the war against Russia.`\
-https://nytimes.com/2023/08/31/world/europe/uk-defense-secretary-wallace-shapps.html?searchResultPosition=8
-
-**Fire in a Garment Printing Shop Kills at Least 15 in the Philippines**\
-`Employees, the business owner and some of his relatives were among the dead at the shop near Manila. The cause of the blaze was unknown.`\
-https://nytimes.com/2023/08/31/world/asia/philippines-manila-factory-fire.html?searchResultPosition=9
-
-**Review: In the ‘Ernest & Celestine’ Sequel, a Prodigal Cub Returns**\
-`The delightful odd couple of the Oscar-nominated French film head to the mountains in ‘A Trip to Gibberitia.’ Every frame brims with painterly detail.`\
-https://nytimes.com/2023/08/31/movies/review-ernest-celestine-trip-to-gibberitia.html?searchResultPosition=10
+https://nytimes.com/2023/08/31/realestate/the-dirtiest-corners-of-new-york-city.html?searchResultPosition=10
 
