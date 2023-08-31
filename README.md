@@ -2,7 +2,7 @@
 `By Lynsey Chutel`\
 https://nytimes.com/live/2023/08/31/world/south-africa-fire-johannesburg/one-former-resident-recounts-the-tumultuous-recent-history-of-the-building?searchResultPosition=1
 
-**Wagner leader, Dmitri Utkin, has been buried, Russian state media says.**\
+**Wagner leader, Dmitri Utkin, has been buried at military cemetery.**\
 `By Gaya Gupta and Cassandra Vinograd`\
 https://nytimes.com/live/2023/08/31/world/russia-ukraine-news/wagner-leader-dmitri-utkin-has-been-buried-russian-state-media-says?searchResultPosition=2
 
