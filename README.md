@@ -18,7 +18,7 @@ https://nytimes.com/2023/08/31/crosswords/variety-puns-and-anagrams.html?searchR
 `Robert Logan opens our solving weekend with an abundance of debut entries.`\
 https://nytimes.com/2023/08/31/crosswords/daily-puzzle-2023-09-01.html?searchResultPosition=5
 
-**In a Visit to a Tiny Flock in Mongolia, Pope Has an Eye on Russia and China**\
+**In Visit to Tiny Flock in Mongolia, Pope Has an Eye on Russia and China**\
 `The pontiff arrived Friday on a trip that the Vatican said was meant to encourage the fewer than 1,500 Catholics there. But it also brings him close to two great powers that have vexed him.`\
 https://nytimes.com/2023/08/31/world/europe/pope-mongolia-russia-china.html?searchResultPosition=6
 
