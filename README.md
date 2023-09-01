@@ -2,8 +2,8 @@
 `A former Goldman Sachs trader moved to the Bay Area to make it in tech. He ended up buying rural land with money from some of Silicon Valley’s wealthiest people.`\
 https://nytimes.com/2023/08/31/business/california-solano-county-city.html?searchResultPosition=1
 
-**Convicted Murderer Escapes from Pennsylvania Prison**\
-`Danelo Cavalcante had been serving a life sentence for homicide in a prison near Philadelphia, the authorities said.`\
+**Police Hunt for Convicted Murderer Who Escaped Pennsylvania Prison**\
+`Danelo Cavalcante, a Brazilian national, escaped from a prison near Philadelphia days after receiving a life sentence for homicide.`\
 https://nytimes.com/2023/08/31/us/danelo-cavalcante-pennsylvania-prison-escape.html?searchResultPosition=2
 
 **DeSantis Super PAC’s Urgent Plea to Donors: ‘We Need 50 Million Bucks’**\
