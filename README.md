@@ -1,40 +1,40 @@
+**Sasha Waltz’s Dance Company: 30 Years of Giving Form to Feeling**\
+`As Waltz’s Berlin troupe commemorates its anniversary, its founder looks back on the lessons of those years, and forward to what comes next.`\
+https://nytimes.com/2023/09/01/arts/dance/sasha-waltz-and-guests-30th-anniversary.html?searchResultPosition=1
+
+**A Scandal and Its Fallout Compound the British Museum’s Woes**\
+`After it fired a worker for theft and its director stepped down, the museum faces renewed calls to give back contested objects and an uphill battle to raise funds for refurbishment.`\
+https://nytimes.com/2023/09/01/arts/british-museum-thefts.html?searchResultPosition=2
+
+**In a Crisis (or Two), They Both Knew Where to Turn for Help**\
+`Jennifer Lee and Dr. Sachin Jain bonded over commonalities in their upbringings. They also discovered, after separate car accidents, that they could count on each other.`\
+https://nytimes.com/2023/09/01/style/jennifer-lee-sachin-jain-wedding.html?searchResultPosition=3
+
+**Making it Official With a Song and a Scroll**\
+`Stephen Meeneghan, a naturopathic doctor, was hesitant when he received a message on a dating app from Ryan Cassata, a transgender advocate and musician. Yet they clicked right away.`\
+https://nytimes.com/2023/09/01/style/making-it-official-with-a-song-and-a-scroll.html?searchResultPosition=4
+
+**Friday Briefing**\
+`The deaths of dozens of people in a fire in South Africa.`\
+https://nytimes.com/2023/09/01/briefing/south-africa-fire-ukraine.html?searchResultPosition=5
+
+**Finding a Lifetime Karaoke Partner Miles From Home**\
+`Vipin Chamakkala and Robby Robson, who both work in venture capital, met two years ago while working temporarily in New York.`\
+https://nytimes.com/2023/09/01/style/robby-robson-vipin-chamakkala-wedding.html?searchResultPosition=6
+
+**Finding Her ‘Barack Obama’ With the Help of a Friend**\
+`Olivia Castor and Austin McNair met at Harvard through Ms. Castor’s roommate, who had a knack for matchmaking.`\
+https://nytimes.com/2023/09/01/style/olivia-castor-austin-mcnair-wedding.html?searchResultPosition=7
+
+**Quotation of the Day: California Reconsiders Identity as Siren Song Fades**\
+`Quotation of the Day for Friday, September 1, 2023.`\
+https://nytimes.com/2023/09/01/pageoneplus/quotation-of-the-day-california-reconsiders-identity-as-siren-song-fades.html?searchResultPosition=8
+
+**Why I Dress (and Act) Like a Man**\
+`Tired of being deferential to men in my relationships, I decided to create my own drag king persona.`\
+https://nytimes.com/2023/09/01/style/modern-love-drag-king-dress-and-act-like-a-man.html?searchResultPosition=9
+
 **How the Dream of Building a California City From Scratch Got Started**\
 `A former Goldman Sachs trader moved to the Bay Area to make it in tech. He ended up buying rural land with money from some of Silicon Valley’s wealthiest people.`\
-https://nytimes.com/2023/08/31/business/california-solano-county-city.html?searchResultPosition=1
-
-**Police Hunt for Convicted Murderer Who Escaped Pennsylvania Prison**\
-`Danelo Cavalcante, a Brazilian national, escaped from a prison near Philadelphia days after receiving a life sentence for homicide.`\
-https://nytimes.com/2023/08/31/us/danelo-cavalcante-pennsylvania-prison-escape.html?searchResultPosition=2
-
-**DeSantis Super PAC’s Urgent Plea to Donors: ‘We Need 50 Million Bucks’**\
-`In an audio recording made just before the first G.O.P. debate, the super PAC’s chief strategist disparaged rivals and described an expensive attempt to thwart Donald Trump in Iowa.`\
-https://nytimes.com/2023/08/31/us/politics/desantis-super-pac-audio.html?searchResultPosition=3
-
-**Variety: Puns and Anagrams**\
-`Joel Fagliano delivers a puzzle filled with visual tricks and tests.`\
-https://nytimes.com/2023/08/31/crosswords/variety-puns-and-anagrams.html?searchResultPosition=4
-
-**Adventures in the Serengeti**\
-`Robert Logan opens our solving weekend with an abundance of debut entries.`\
-https://nytimes.com/2023/08/31/crosswords/daily-puzzle-2023-09-01.html?searchResultPosition=5
-
-**In Visit to Tiny Flock in Mongolia, Pope Has an Eye on Russia and China**\
-`The pontiff arrived Friday on a trip that the Vatican said was meant to encourage the fewer than 1,500 Catholics there. But it also brings him close to two great powers that have vexed him.`\
-https://nytimes.com/2023/08/31/world/europe/pope-mongolia-russia-china.html?searchResultPosition=6
-
-**Corrections: Sept. 1, 2023**\
-`Corrections that appeared in print on Friday, Sept. 1, 2023.`\
-https://nytimes.com/2023/08/31/pageoneplus/corrections-sept-1-2023.html?searchResultPosition=7
-
-**John Isner Says Goodbye to Pro Tennis at the U.S. Open**\
-`A 6-foot-10 American, Isner had announced he would retire following the tournament. Losses in singles and doubles on Thursday ended a career known for powerful serves and a marathon match.`\
-https://nytimes.com/2023/08/31/sports/tennis/us-open-john-isner-retirement.html?searchResultPosition=8
-
-**Could Australia and New Zealand Become One Nation?**\
-`A New Zealand lawmaker talked about the idea last week, though a union is unlikely ever to take place.`\
-https://nytimes.com/2023/08/31/world/australia/australia-new-zealand-one-country.html?searchResultPosition=9
-
-**What’s in a Name? For These Design Brands, Generations of Expectations.**\
-`Scions of their family businesses are embracing legacies, whether lost or lasting, while tackling a future that their forebears would barely recognize.`\
-https://nytimes.com/2023/08/31/style/legacy-design-brands.html?searchResultPosition=10
+https://nytimes.com/2023/08/31/business/california-solano-county-city.html?searchResultPosition=10
 
