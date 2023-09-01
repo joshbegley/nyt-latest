@@ -18,13 +18,13 @@ https://nytimes.com/2023/09/01/style/jennifer-lee-sachin-jain-wedding.html?searc
 `Stephen Meeneghan, a naturopathic doctor, was hesitant when he received a message on a dating app from Ryan Cassata, a transgender advocate and musician. Yet they clicked right away.`\
 https://nytimes.com/2023/09/01/style/making-it-official-with-a-song-and-a-scroll.html?searchResultPosition=5
 
-**Friday Briefing**\
-`The deaths of dozens of people in a fire in South Africa.`\
-https://nytimes.com/2023/09/01/briefing/south-africa-fire-ukraine.html?searchResultPosition=6
-
 **Finding a Lifetime Karaoke Partner Miles From Home**\
 `Vipin Chamakkala and Robby Robson, who both work in venture capital, met two years ago while working temporarily in New York.`\
-https://nytimes.com/2023/09/01/style/robby-robson-vipin-chamakkala-wedding.html?searchResultPosition=7
+https://nytimes.com/2023/09/01/style/robby-robson-vipin-chamakkala-wedding.html?searchResultPosition=6
+
+**Friday Briefing**\
+`The deaths of dozens of people in a fire in South Africa.`\
+https://nytimes.com/2023/09/01/briefing/south-africa-fire-ukraine.html?searchResultPosition=7
 
 **Finding Her ‘Barack Obama’ With the Help of a Friend**\
 `Olivia Castor and Austin McNair met at Harvard through Ms. Castor’s roommate, who had a knack for matchmaking.`\
