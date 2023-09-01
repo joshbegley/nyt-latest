@@ -11,7 +11,7 @@ https://nytimes.com/2023/09/01/business/economy/wage-growth-inflation.html?searc
 https://nytimes.com/interactive/2023/09/01/books/review/new-paperbacks-howery.html?searchResultPosition=3
 
 **French Citizen Killed After Straying Into Algerian Waters**\
-`The man was among a group of French-Moroccan dual citizens vacationing in northern Morocco when their jet skis drifted into Algerian waters and the coast guard opened fire.`\
+`The man was among a group including French-Moroccan dual citizens vacationing in northern Morocco when their jet skis, low on fuel, drifted and the coast guard opened fire.`\
 https://nytimes.com/2023/09/01/world/europe/algeria-french-citizen-jet-ski.html?searchResultPosition=4
 
 **An Easy, Summery Tomato Pasta That’s Ready for Fall**\
