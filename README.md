@@ -1,6 +1,6 @@
 **Meta May Allow Instagram, Facebook Users in Europe to Pay and Avoid Ads**\
 `The subscription plan is a response to European Union policies and court rulings to restrict Meta’s data-collection practices.`\
-https://nytimes.com/2023/09/01/technology/meta-instagram-facebook-europe-ads.html?searchResultPosition=1
+https://nytimes.com/2023/09/01/technology/meta-instagram-facebook-ads-europe.html?searchResultPosition=1
 
 **Federal Officials Propose New Nursing Home Standards to Increase Staffing**\
 `Citing worker shortages, nursing home operators said the standard could not be met without additional funding for higher wages.`\
