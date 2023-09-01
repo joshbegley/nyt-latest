@@ -1,4 +1,4 @@
-**Former Thai Prime Minister Has His Sentence Commuted by the King**\
+**Thai King Commutes Former Prime Minister’s Sentence**\
 `Thaksin Shinawatra’s eight-year punishment was reduced to one year, days after his return from self-imposed exile. He remains one of the country’s most influential politicians.`\
 https://nytimes.com/2023/09/01/world/asia/thailand-thaksin-shinawatra-prison.html?searchResultPosition=1
 
