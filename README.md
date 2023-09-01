@@ -11,7 +11,7 @@ https://nytimes.com/2023/09/01/business/dealbook/mike-bloomberg-lp-future.html?s
 https://nytimes.com/live/2023/09/01/world/russia-ukraine-news/ukrainian-students-begin-a-new-school-year-in-the-shadow-of-war?searchResultPosition=3
 
 **Nobel Foundation Invites Russia, Belarus and Iran to 2023 Prize Ceremony**\
-`The executive director of the Nobel Foundation said it was reversing course from a year ago in an effort lower tensions at a time of growing geopolitical divisions.`\
+`The executive director of the Nobel Foundation said it was reversing course from a year ago in an effort to lower tensions at a time of growing geopolitical divisions.`\
 https://nytimes.com/2023/09/01/world/europe/russia-belarus-iran-nobel-prize.html?searchResultPosition=4
 
 **Five Children’s Movies to Stream Now**\
