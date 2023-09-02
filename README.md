@@ -27,7 +27,7 @@ https://nytimes.com/2023/09/02/world/asia/pope-francis-mongolia.html?searchResul
 https://nytimes.com/2023/09/02/opinion/prostitution-or-sex-work.html?searchResultPosition=7
 
 **Nobel Foundation Reverses Prize Ceremony Invite for Russia and Belarus**\
-`The foundation, which had barred both countries last year because of Russia’s invasion of Ukraine, changed course again after the move drew outrage.`\
+`The foundation, which also excluded both countries last year because of Russia’s invasion of Ukraine, retracted an invite after the move drew outrage.`\
 https://nytimes.com/2023/09/02/world/europe/nobel-foundation-russia-belarus.html?searchResultPosition=8
 
 **A Ship That Sank in 1881 Is Found Nearly Intact in Lake Michigan**\
