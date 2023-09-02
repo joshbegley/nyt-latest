@@ -1,6 +1,6 @@
 **The Disruptive Power of Weight Loss Drugs Is Being Felt Beyond Pharma**\
 `Retailers, the makers of foods marketed for weight loss, and other types of companies could see knock-on effects from the rise of diabetes and weight loss drugs like Ozempic.`\
-https://nytimes.com/2023/09/02/business/dealbook/the-disruptive-power-of-weight-loss-drugs-is-being-felt-beyond-pharma.html?searchResultPosition=1
+https://nytimes.com/2023/09/02/business/dealbook/weight-loss-drugs-diet-companies-ozempic.html?searchResultPosition=1
 
 **Listen Early to ‘This American Life’: Rest Stop**\
 `Nine reporters. Two days. One rest stop on the New York State Thruway.`\
