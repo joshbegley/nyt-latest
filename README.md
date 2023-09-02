@@ -1,5 +1,5 @@
 **Bill Richardson, Champion of Americans Held Overseas, Dies at 75**\
-`After serving two terms as governor of New Mexico, he practiced quasi-public diplomacy, working to secure the release of people he believed were being wrongfully detained.`\
+`After serving in Congress and as governor of New Mexico, he practiced quasi-public diplomacy, working to secure the release of people he believed were being wrongfully detained.`\
 https://nytimes.com/2023/09/02/us/politics/bill-richardson-dead.html?searchResultPosition=1
 
 **What the Contradiction of Slavery Tells Us About Abortion Rights**\
