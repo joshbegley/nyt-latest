@@ -1,40 +1,40 @@
+**Biden Team Isn’t Waiting for Impeachment to Go on the Offensive**\
+`The White House has enlisted two dozen attorneys, legislative liaisons and others to craft strategies in the face of Republican threats to charge the president with high crimes and misdemeanors.`\
+https://nytimes.com/2023/09/02/us/politics/biden-impeachment-defense.html?searchResultPosition=1
+
 **Officials in South Africa Knew About the Problems at a ‘Bad Building,’ but Did Nothing**\
 `An extensive paper trail reveals that the authorities in Johannesburg knew about the litany of dangers in the derelict building where 76 people died in a fire this week.`\
-https://nytimes.com/2023/09/02/world/africa/south-africa-fire-causes.html?searchResultPosition=1
+https://nytimes.com/2023/09/02/world/africa/south-africa-fire-causes.html?searchResultPosition=2
 
 **Tropical Storm Katia Forms in the Atlantic**\
 `The storm is expected to be short-lived and to weaken by early Sunday, forecasters said.`\
-https://nytimes.com/article/tropical-storm-katia-hurricane.html?searchResultPosition=2
+https://nytimes.com/article/tropical-storm-katia-hurricane.html?searchResultPosition=3
 
 **A Nation With Few Catholics Gives Pope a Welcome Fit for an Emperor**\
 `Mongolia put its history and culture on display as Pope Francis visited the Asian nation. Although it was the first trip to the country by a Roman Catholic pontiff, he noted that the two entities have ties dating back many centuries.`\
-https://nytimes.com/2023/09/02/world/asia/pope-francis-mongolia.html?searchResultPosition=3
+https://nytimes.com/2023/09/02/world/asia/pope-francis-mongolia.html?searchResultPosition=4
 
 **Is It ‘Prostitution’ or ‘Sex Work’?**\
 `Readers respond to a column by Pamela Paul about how the term “sex work” legitimizes the exploitative sex trade.`\
-https://nytimes.com/2023/09/02/opinion/prostitution-or-sex-work.html?searchResultPosition=4
+https://nytimes.com/2023/09/02/opinion/prostitution-or-sex-work.html?searchResultPosition=5
 
 **Nobel Foundation Reverses Prize Ceremony Invite for Russia and Belarus**\
 `The foundation, which had barred both countries last year because of Russia’s invasion of Ukraine, changed course again after the move drew outrage.`\
-https://nytimes.com/2023/09/02/world/europe/nobel-foundation-russia-belarus.html?searchResultPosition=5
+https://nytimes.com/2023/09/02/world/europe/nobel-foundation-russia-belarus.html?searchResultPosition=6
 
 **A Ship That Sank in 1881 Is Found Nearly Intact in Lake Michigan**\
 `Trinidad, built in 1867, was part of the lucrative grain trade on the Great Lakes. Its remarkably intact wreckage, which included stacks of dishes, was just discovered.`\
-https://nytimes.com/2023/09/02/us/lake-michigan-trinidad-shipwreck.html?searchResultPosition=6
+https://nytimes.com/2023/09/02/us/lake-michigan-trinidad-shipwreck.html?searchResultPosition=7
 
 **The Disruptive Power of Weight Loss Drugs Is Being Felt Beyond Pharma**\
 `Retailers, the makers of foods marketed for weight loss, and other types of companies could see knock-on effects from the rise of diabetes and weight loss drugs like Ozempic.`\
-https://nytimes.com/2023/09/02/business/dealbook/weight-loss-drugs-diet-companies-ozempic.html?searchResultPosition=7
+https://nytimes.com/2023/09/02/business/dealbook/weight-loss-drugs-diet-companies-ozempic.html?searchResultPosition=8
 
 **Listen Early to ‘This American Life’: Rest Stop**\
 `Nine reporters. Two days. One rest stop on the New York State Thruway.`\
-https://nytimes.com/2023/09/02/podcasts/listen-early-to-this-american-life-rest-stop.html?searchResultPosition=8
+https://nytimes.com/2023/09/02/podcasts/listen-early-to-this-american-life-rest-stop.html?searchResultPosition=9
 
 **Another Ethnic Cleansing Could Be Underway — and We’re Not Paying Attention**\
 `Azerbaijan is blockading the enclave of Nagorno-Karabakh, and people are dying.`\
-https://nytimes.com/2023/09/02/opinion/armenia-azerbaijan-nagorno-karabakh.html?searchResultPosition=9
-
-**Anxiety in the Age of Barbie**\
-`Young women in crisis are wondering, “What was I made for?”`\
-https://nytimes.com/2023/09/02/opinion/columnists/anxiety-women-barbie.html?searchResultPosition=10
+https://nytimes.com/2023/09/02/opinion/armenia-azerbaijan-nagorno-karabakh.html?searchResultPosition=10
 
