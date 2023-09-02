@@ -2,7 +2,7 @@
 `The White House has enlisted two dozen attorneys, legislative liaisons and others to craft strategies in the face of Republican threats to charge the president with high crimes and misdemeanors.`\
 https://nytimes.com/2023/09/02/us/politics/biden-impeachment-defense.html?searchResultPosition=1
 
-**Officials in South Africa Knew About the Problems at a ‘Bad Building,’ but Did Nothing**\
+**Officials in South Africa Knew About Problems at a ‘Bad Building,’ but Did Nothing**\
 `An extensive paper trail reveals that the authorities in Johannesburg were warned repeatedly about the dangers in the derelict building where 76 people died in a fire this week.`\
 https://nytimes.com/2023/09/02/world/africa/south-africa-fire-causes.html?searchResultPosition=2
 
