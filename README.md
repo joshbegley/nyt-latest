@@ -3,7 +3,7 @@
 https://nytimes.com/2023/09/02/us/politics/biden-impeachment-defense.html?searchResultPosition=1
 
 **Officials in South Africa Knew About the Problems at a ‘Bad Building,’ but Did Nothing**\
-`An extensive paper trail reveals that the authorities in Johannesburg knew about the litany of dangers in the derelict building where 76 people died in a fire this week.`\
+`An extensive paper trail reveals that the authorities in Johannesburg were warned repeatedly about the dangers in the derelict building where 76 people died in a fire this week.`\
 https://nytimes.com/2023/09/02/world/africa/south-africa-fire-causes.html?searchResultPosition=2
 
 **Tropical Storm Katia Forms in the Atlantic**\
