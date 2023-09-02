@@ -15,7 +15,7 @@ https://nytimes.com/2023/09/02/us/politics/bill-richardson-dead.html?searchResul
 https://nytimes.com/2023/09/02/opinion/slavery-abortion-rights-laws.html?searchResultPosition=4
 
 **Heavy Rain Drenches the Las Vegas Valley Area**\
-`Parts of the Las Vegas Strip and surrounding areas were inundated by thunderstorms that flooded streets and parking structures.`\
+`Parts of the Las Vegas Strip and surrounding areas were inundated by thunderstorms as floodwaters filled the streets and flowed through a storm drain.`\
 https://nytimes.com/video/us/100000009069210/las-vegas-flooding-rain.html?searchResultPosition=5
 
 **Biden Team Isn’t Waiting for Impeachment to Go on the Offensive**\
