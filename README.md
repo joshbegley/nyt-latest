@@ -1,5 +1,5 @@
 **Bill Richardson Reveled in Role of Freelance Envoy to Dictators**\
-`The former New Mexico governor and energy secretary filled a specialized diplomatic niche, talking to strongmen when presidents and other officials could — or would — not.`\
+`The former New Mexico governor and ambassador to the U.N. filled a specialized diplomatic niche, talking to strongmen when presidents and other officials could — or would — not.`\
 https://nytimes.com/2023/09/02/us/politics/bill-richardson-dictators.html?searchResultPosition=1
 
 **DeSantis Snubs Biden During Tour of Hurricane Damage in Florida**\
