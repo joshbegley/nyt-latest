@@ -2,7 +2,7 @@
 `President Biden said he was not disappointed that Gov. Ron DeSantis did not meet with him while he toured an area in Florida hit by Hurricane Idalia.`\
 https://nytimes.com/video/us/100000009069366/biden-florida-desantis-snub.html?searchResultPosition=1
 
-**Driverless Taxis Blocked Ambulance Response to Fatal Accident, San Francisco Fire Dept. Says**\
+**Driverless Taxis Blocked Ambulance in Fatal Accident, San Francisco Fire Dept. Says**\
 `Two Cruise taxis delayed an ambulance carrying a car accident victim to a hospital, a department report said. The company said it was not at fault.`\
 https://nytimes.com/2023/09/02/technology/driverless-cars-cruise-san-francisco.html?searchResultPosition=2
 
