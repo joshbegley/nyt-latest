@@ -7,7 +7,7 @@ https://nytimes.com/2023/09/02/movies/maestro-bradley-cooper-venice-film-festiva
 https://nytimes.com/2023/09/02/arts/music/jimmy-buffett.html?searchResultPosition=2
 
 **Bill Richardson, Champion of Americans Held Overseas, Dies at 75**\
-`After serving in Congress and as governor of New Mexico, he practiced quasi-public diplomacy, working to secure the release of people he believed were being wrongfully detained.`\
+`After serving in Congress and as governor of New Mexico, he practiced quasi-public and freelance diplomacy, often with considerable success.`\
 https://nytimes.com/2023/09/02/us/politics/bill-richardson-dead.html?searchResultPosition=3
 
 **What the Contradiction of Slavery Tells Us About Abortion Rights**\
