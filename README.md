@@ -1,40 +1,40 @@
-**The Hardest Ticket at the U.S. Open? Ball Person.**\
-`The road to becoming a U.S. Open ball person is not for the faint of heart.`\
-https://nytimes.com/2023/09/02/sports/tennis/us-open-ball-crew.html?searchResultPosition=1
+**In Florida, Even a Hurricane Can’t Sweep Away Presidential Politics**\
+`President Biden said he would meet with Gov. Ron DeSantis of Florida during a visit to tour the aftermath of Hurricane Idalia. An aide to the governor said he had no such plans.`\
+https://nytimes.com/2023/09/02/us/politics/biden-florida-idalia-desantis.html?searchResultPosition=1
 
-**In Chile, a Quest for Truth Driven by Survivor’s Guilt**\
-`Ariel Dorfman’s novel “The Suicide Museum” uses the controversy around a president’s death to examine personal and collective grief.`\
-https://nytimes.com/2023/09/02/books/review/ariel-dorfman-suicide-museum.html?searchResultPosition=2
+**For Politicians, Vacations Can Be a Lot of Work**\
+`Taking a break from the campaign trail is risky. History is littered with cautionary tales of candidates who got it wrong.`\
+https://nytimes.com/2023/09/02/us/politics/2024-campaign-labor-day-vacation.html?searchResultPosition=2
 
-**Shows That Give Off Pleasure, and a Bit of Body Heat**\
-`Roberta Smith, co-chief art critic, on fall exhibitions at the Met, MoMA, Whitney, Folk Art Museum and more that she’s looking forward to.`\
-https://nytimes.com/2023/09/02/arts/design/roberta-smith-art-exhibitions-museums-fall.html?searchResultPosition=3
+**Why Charter and Disney Are Fighting, and What It Means for Viewers**\
+`Millions of subscribers to Charter’s Spectrum service cannot watch the U.S. Open or college football games this weekend, and the dispute has far-reaching implications for the industry.`\
+https://nytimes.com/2023/09/02/business/comcast-disney-spectrum-espn.html?searchResultPosition=3
 
-**Cross-Cultural Exchanges from Vietnam, Ethiopia, the Caribbean**\
-`Solo shows also abound, from Charles Gaines to Harry Smith, while the women of Land Art and Fluxus keep rocking in major exhibitions.`\
-https://nytimes.com/2023/09/02/arts/design/holland-cotter-art-exhibitions-museums-fall.html?searchResultPosition=4
+**Top 10 Hardest and Easiest Spelling Bee Words, Aug. 26-Sept. 1**\
+`“Honey” easily attracted Bee adherents, but players had only isolated success with “abbacy.”`\
+https://nytimes.com/2023/09/02/upshot/spelling-bee-words.html?searchResultPosition=4
 
-**The Glamorous, Lonely Lives of Private Chefs**\
-`More cooks are pursuing careers in cooking for wealthy clients, but the glitz that makes it into viral TikTok videos isn’t always the whole picture.`\
-https://nytimes.com/2023/09/02/dining/private-chefs-tiktok-instagram.html?searchResultPosition=5
+**A Tough Draw for the Favorites at the 2023 Rugby World Cup**\
+`The top four teams in the world may have to face off in the tournament’s first knockout round. Other formidable contenders are lurking in the field, though.`\
+https://nytimes.com/2023/09/02/sports/rugby/rugby-world-cup-pools.html?searchResultPosition=5
 
-**Jimmy Buffett, Roguish Bard of Island Escapism, Is Dead at 76**\
-`With songs like “Margaritaville” and “Fins,” he became a folk hero to fans known as Parrot Heads. He also became a millionaire hundreds of times over.`\
-https://nytimes.com/2023/09/02/arts/jimmy-buffett-dead.html?searchResultPosition=6
+**A California Beach Town Is Desperate to Save Its Vanishing Sand**\
+`Sea-level rise and man-made projects have left Oceanside with precious little beach space. That’s a problem if coastal life is part of your city’s identity.`\
+https://nytimes.com/2023/09/02/us/oceanside-california-sand.html?searchResultPosition=6
 
-**India Launches Its First Solar Mission**\
-`The goal is to study the sun’s outer layers, to better understand its physics and dynamics and to improve understanding of space weather.`\
-https://nytimes.com/2023/09/02/world/asia/india-solar-mission-launch.html?searchResultPosition=7
+**The Season’s Hottest Accessory: The Honey Deuce Cup**\
+`Tennis fans stack, stash and take home the collectible cup after downing the U.S. Open’s signature cocktail.`\
+https://nytimes.com/2023/09/02/sports/tennis/us-open-honey-deuce.html?searchResultPosition=7
 
-**Europe’s Boars Still Hold Radioactivity. What Surprised Scientists Is Why.**\
-`Some wild boar hunted in German forests have radiation levels that exceed the limit deemed safe for human consumption. New research suggests that it’s not just because of Chernobyl.`\
-https://nytimes.com/2023/09/02/world/europe/germany-boars-radioactivity-study.html?searchResultPosition=8
+**Biden Struggles to Make ‘Bidenomics’ a Plus, Not a Minus**\
+`Wages are up, inflation has slowed and the White House has a new slogan. Still, President Biden’s poor marks on the economy are making Democratic worried.`\
+https://nytimes.com/2023/09/02/us/politics/biden-economy-inflation-voters.html?searchResultPosition=8
 
-**Has New York City Reached Peak Lanternfly?**\
-`The infestation of invasive spotted lanternflies is leveling off in some parts of the city, and growing in others. Officials are urging New Yorkers to keep killing them.`\
-https://nytimes.com/2023/09/02/nyregion/spotted-lanternfly-nyc.html?searchResultPosition=9
+**Seen from Close-up: How the U.S. Open Dials in its Court Speed**\
+`The tiny granules of sand that make up the hardcourt surfaces at Flushing Meadows shape the outcome of every match.`\
+https://nytimes.com/interactive/2023/09/02/sports/tennis/us-open-tennis-court-speed.html?searchResultPosition=9
 
-**How the Executive Editor of Sports Illustrated Spends His Sundays**\
-`L. Jon Wertheim cherishes an hour of writing without distractions at a local diner and a weekly trip to Trader Joe’s.`\
-https://nytimes.com/2023/09/02/nyregion/l-jon-wertheim-sports-illustrated.html?searchResultPosition=10
+**The Tennis Education of Ben Shelton**\
+`The late-blooming 20-year-old is a rising star thanks to a blistering serve that he is learning to balance with the rest of his game.`\
+https://nytimes.com/2023/09/02/sports/tennis/us-open-ben-shelton.html?searchResultPosition=10
 
