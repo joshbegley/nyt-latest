@@ -1,4 +1,4 @@
-**Biden Won’t Meet DeSantis in Florida During Tour of Hurricane Damage**\
+**DeSantis and Biden Won’t Meet in Florida During Tour of Hurricane Damage**\
 `Though the president said earlier on Friday that he would see the governor on Saturday, Mr. DeSantis’s office said there were no plans for a meeting.`\
 https://nytimes.com/2023/09/01/us/politics/biden-desantis-florida-hurricane-idalia.html?searchResultPosition=1
 
