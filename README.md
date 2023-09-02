@@ -1,5 +1,5 @@
 **Manhunt for Pennsylvania Fugitive Narrows to Area Near Prison**\
-`As authorities continued their search on Saturday, they said video from surveillance cameras suggested he was hiding close by.`\
+`As the authorities continued their search on Saturday, they said video from surveillance cameras suggested he was hiding close by.`\
 https://nytimes.com/2023/09/02/us/philadelphia-prisoner-escape-manhunt.html?searchResultPosition=1
 
 **Venice Film Festival: All Your Questions About Bradley Cooper’s ‘Maestro’ Answered**\
