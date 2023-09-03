@@ -10,7 +10,7 @@ https://nytimes.com/2023/09/03/briefing/monday-briefing-chinas-mobilization-agai
 `Thousands of people were stuck at the Burning Man festival in Nevada this weekend because of rain and mud. It was not clear when, or how, attendees would get out.`\
 https://nytimes.com/article/burning-man-mud-trapped.html?searchResultPosition=3
 
-**Zelensky Says He’ll Replace Ukraine’s Defense Minister**\
+**Zelensky Replaces Defense Minister, Citing Need for ‘New Approaches’**\
 `The fate of the defense minister, Oleksii Reznikov, had been the subject of increasing speculation in Ukraine. It was the biggest shake-up in Ukraine’s government since Russia’s full-scale invasion.`\
 https://nytimes.com/2023/09/03/world/europe/zelensky-ukraine-defense-minister.html?searchResultPosition=4
 
