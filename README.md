@@ -1,40 +1,40 @@
-**Corrections: Sept. 3, 2023**\
-`Corrections that appeared in print on Sunday, Sept. 3, 2023.`\
-https://nytimes.com/2023/09/03/pageoneplus/corrections-sept-3-2023.html?searchResultPosition=1
+**Rape Cases Seize Italy’s Attention and Expose Cultural Rifts**\
+`A summer of horrific crimes, including the gang rapes of two young girls, has put a new focus on the country’s attitudes toward women and the amplifying role of social media.`\
+https://nytimes.com/2023/09/03/world/europe/italy-rape-women-violence.html?searchResultPosition=1
 
-**Quotation of the Day: Russia Says It Thwarted Night Attack on Bridge**\
-`Quotation of the Day for Sunday, September 3, 2023.`\
-https://nytimes.com/2023/09/03/pageoneplus/quotation-of-the-day-russia-says-it-thwarted-night-attack-on-bridge.html?searchResultPosition=2
+**Maui Sent an Evacuation Alert. Why Did So Few People Get It?**\
+`The Hawaii wildfire offered insights into the promises and shortcomings of a wireless alert system that relies on cellphones for emergency warnings.`\
+https://nytimes.com/2023/09/03/us/fema-cell-phone-alerts-lahaina-san-bernardino.html?searchResultPosition=2
 
-**Trapped in Mud, Burning Man Attendees Are Told to Conserve Food**\
-`The festival in the remote Nevada desert became encased in mud after heavy rains on Friday night. Organizers cut off access in and out of the festival.`\
-https://nytimes.com/2023/09/02/us/burning-man-storm-flood-mud.html?searchResultPosition=3
+**Auto Strike Looms, Threatening to Shut Detroit’s Big 3**\
+`With their contract expiring Sept. 14, the United Auto Workers and the companies are far apart in talks. A walkout could take a big economic toll.`\
+https://nytimes.com/2023/09/03/business/economy/uaw-autoworkers-strike.html?searchResultPosition=3
 
-**Flashback: Your Weekly History Quiz, September 3, 2023**\
-`Test your knowledge of history by sorting eight events in chronological order.`\
-https://nytimes.com/interactive/2023/09/02/upshot/flashback.html?searchResultPosition=4
+**In Venezuela, a Mission Amid Heartbreak**\
+`After studying journalism abroad, a photographer returned home, where economic collapse needed documenting.`\
+https://nytimes.com/2023/09/03/pageoneplus/in-venezuela-a-mission-amid-heartbreak.html?searchResultPosition=4
 
-**Judge Vacates Convictions in Bribery Case Over Soccer Broadcast Deals**\
-`Hernán López, a former Fox employee, and an Argentine sports marketing company had been convicted of participating in a bribery scheme to secure rights to widely viewed tournaments.`\
-https://nytimes.com/2023/09/02/nyregion/fox-employee-soccer-deal-bribes.html?searchResultPosition=5
+**A Furniture Shop’s Bland Facade Conceals a Trove of Tennis History**\
+`In Mineola, N.Y., Rosini Furniture Service restores and refinishes, but its owner’s true passion is the racket sport.`\
+https://nytimes.com/2023/09/03/nyregion/rosini-furniture-service-tennis-history.html?searchResultPosition=5
 
-**When Coco Gauff and Zendaya Need Tennis Tips, They Ask Brad Gilbert**\
-`Gilbert, a former pro, coached Andre Agassi to a U.S. Open victory in 1994. Now he’s advising Gauff — in between calling matches — at this year’s tournament.`\
-https://nytimes.com/2023/09/02/sports/tennis/us-open-coco-gauff-brad-gilbert.html?searchResultPosition=6
+**An Unexpected Hotbed of Y.A. Authors: Utah**\
+`A tight-knit community of young-adult writers who belong to the Church of Jesus Christ of Latter-day Saints has yielded smashes like “Twilight.” But religious doctrine can clash with creative freedoms.`\
+https://nytimes.com/2023/09/03/style/ya-authors-utah-mormon.html?searchResultPosition=6
 
-**In Key West, Where Buffett Met His Muse, the Tributes Flow**\
-`On Saturday, the island that inspired him, and grew in fame because of him, celebrated a life and a way of life.`\
-https://nytimes.com/2023/09/02/us/jimmy-buffett-tributes-key-west.html?searchResultPosition=7
+**‘That First Subway Ride Was Punctuated by a Whooshing Sound’**\
+`A journey to the World’s Fair, condolences from a stranger and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2023/09/03/nyregion/metropolitan-diary.html?searchResultPosition=7
 
-**Bill Richardson Reveled in Role of Freelance Envoy to Dictators**\
-`The former New Mexico governor and ambassador to the U.N. filled a specialized diplomatic niche, talking to strongmen when presidents and other officials could — or would — not.`\
-https://nytimes.com/2023/09/02/us/politics/bill-richardson-dictators.html?searchResultPosition=8
+**New York’s Migrant Crisis Is Growing. So Are Democrats’ Anxieties.**\
+`The influx of asylum seekers has the makings of a potent political force, and Republicans are ready to test it in key 2024 house races.`\
+https://nytimes.com/2023/09/03/nyregion/migrants-house-races-ny.html?searchResultPosition=8
 
-**DeSantis Snubs Biden During Tour of Hurricane Damage in Florida**\
-`President Biden said he was not disappointed that Gov. Ron DeSantis did not meet with him while he toured an area in Florida hit by Hurricane Idalia.`\
-https://nytimes.com/video/us/100000009069366/biden-florida-desantis-snub.html?searchResultPosition=9
+**A Summer of Strikes**\
+`See how a wave of labor activity in the United States this summer compares with decades past.`\
+https://nytimes.com/interactive/2023/09/03/business/economy/strikes-union-sag-uaw.html?searchResultPosition=9
 
-**Driverless Taxis Blocked Ambulance in Fatal Accident, San Francisco Fire Dept. Says**\
-`Two Cruise taxis delayed an ambulance carrying a car accident victim to a hospital, a department report said. The company said it was not at fault.`\
-https://nytimes.com/2023/09/02/technology/driverless-cars-cruise-san-francisco.html?searchResultPosition=10
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/09/03/crosswords/wordle-review-answer-806.html?searchResultPosition=10
 
