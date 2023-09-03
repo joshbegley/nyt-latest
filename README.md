@@ -6,8 +6,8 @@ https://nytimes.com/2023/09/03/sports/tennis/us-open-tiafoe-paul-fritz-shelton.h
 `Tom Pepper and Zhouqin Burnikel’s Labor Day crossword is not to scale … or is it?`\
 https://nytimes.com/2023/09/03/crosswords/daily-puzzle-2023-09-04.html?searchResultPosition=2
 
-**Manhattan Prosecutors Seize a Bronze Bust From the Third Century**\
-`The life-size sculpture, believed to represent the daughter of the Emperor Marcus Aurelius, had been in the Worcester Art Museum in Massachusetts.`\
+**Manhattan Prosecutors Seize a Bronze Bust Valued at $5 Million**\
+`The life-size sculpture, believed to represent the daughter of the Roman Emperor Marcus Aurelius, was in the Worcester Art Museum in Massachusetts.`\
 https://nytimes.com/2023/09/03/arts/design/manhattan-prosecutors-seize-3rd-century-bust.html?searchResultPosition=3
 
 **Monday Briefing: China’s Mobilization Against Espionage**\
