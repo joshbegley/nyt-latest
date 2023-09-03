@@ -1,6 +1,6 @@
 **Burning Man 2023: What We Know**\
 `Thousands of people were stuck at the Burning Man festival in Nevada this weekend because of rain and mud. It was not clear when, or how, attendees would get out.`\
-https://nytimes.com/2023/09/03/us/burning-man-mud-trapped.html?searchResultPosition=1
+https://nytimes.com/article/burning-man-mud-trapped.html?searchResultPosition=1
 
 **Zelensky Says He’ll Replace Ukraine’s Defense Minister**\
 `The fate of the defense minister, Oleksii Reznikov, had been the subject of increasing speculation in Ukraine. It was the biggest shake-up in Ukraine’s government since Russia’s full-scale invasion.`\
