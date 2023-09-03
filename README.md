@@ -1,40 +1,40 @@
-**Amid Struggles, Turkey Finds Heroes in Its Women’s Volleyball Team**\
-`Turkey is basking in the success of players it calls “Sultans of the Net,” seeing paragons of female empowerment in a country grappling with multiple crises.`\
-https://nytimes.com/2023/09/03/world/middleeast/turkey-womens-volleyball.html?searchResultPosition=1
+**Liberating? Exploitative? A Nude Scene Summer Report Card.**\
+`From “The Idol” to “Oppenheimer,” women’s bodies were on display on our screens the past few months. Some executions succeeded with humor, others felt misguided.`\
+https://nytimes.com/2023/09/03/movies/nudity-onscreen-idol-oppenheimer.html?searchResultPosition=1
 
-**Russia Attacks Ukrainian Port in Odesa Region, Injuring at Least 2**\
-`The assault came as Ukraine’s president announced that two more ships had traveled through a temporary corridor established by Kyiv after Moscow pulled out of the Black Sea grain deal.`\
-https://nytimes.com/2023/09/03/world/europe/ukraine-war-russia-odesa.html?searchResultPosition=2
+**Meet Fabian Nelson, Mississippi’s First Openly L.G.B.T.Q. Legislator**\
+`Mr. Nelson, 38, won a Democratic primary runoff on Tuesday in a blue district. He talked to The New York Times about the significance of being the first — but why he never focused on it on the trail.`\
+https://nytimes.com/2023/09/03/us/politics/fabian-nelson-mississippi-lgbtq.html?searchResultPosition=2
 
-**Saudi Dissident’s Brother Is Sentenced to Death in Social Media Case**\
-`Under a crackdown on dissent by Crown Prince Mohammed bin Salman, prosecutors accused a retired teacher of treason after he criticized the ruling family.`\
-https://nytimes.com/2023/09/03/world/middleeast/saudi-death-sentence-social-media.html?searchResultPosition=3
+**Anderson Cooper Is Still Learning to Live With Loss**\
+`“The fact that I’m 56 and still realizing I never grieved when I was 11? That’s ridiculous,” says the CNN anchor.`\
+https://nytimes.com/interactive/2023/09/03/magazine/anderson-cooper-interview.html?searchResultPosition=3
 
-**Rape Cases Seize Italy’s Attention and Expose Cultural Rifts**\
-`A summer of horrific crimes, including the gang rapes of two young girls, has put a new focus on the country’s attitudes toward women and the amplifying role of social media.`\
-https://nytimes.com/2023/09/03/world/europe/italy-rape-women-violence.html?searchResultPosition=4
+**Long Covid Poses Special Challenges for Seniors**\
+`Older people are less likely to be diagnosed but more likely to experience certain kinds of illnesses, research suggests.`\
+https://nytimes.com/2023/09/03/science/long-covid-seniors.html?searchResultPosition=4
 
-**Maui Sent an Evacuation Alert. Why Did So Few People Get It?**\
-`The Hawaii wildfire offered insights into the promises and shortcomings of a wireless alert system that relies on cellphones for emergency warnings.`\
-https://nytimes.com/2023/09/03/us/fema-cell-phone-alerts-lahaina-san-bernardino.html?searchResultPosition=5
+**To Experience Paris Up Close and Personal, Plunge Into a Public Pool**\
+`Swimming in Paris is a full-on cultural experience, offering intimate views into the French psyche, which is on near-naked display in the swimming lanes, locker rooms and (mostly coed) showers.`\
+https://nytimes.com/2023/09/03/world/europe/paris-france-swimming-pools.html?searchResultPosition=5
 
-**Auto Strike Looms, Threatening to Shut Detroit’s Big 3**\
-`With their contract expiring Sept. 14, the United Auto Workers and the companies are far apart in talks. A walkout could take a big economic toll.`\
-https://nytimes.com/2023/09/03/business/economy/uaw-autoworkers-strike.html?searchResultPosition=6
+**The Soprano Ailyn Pérez Doesn’t Feel Like a Beginner Anymore**\
+`Long a rising star, she is getting a new Metropolitan Opera production built around her, and it’s the house’s first Spanish-language show.`\
+https://nytimes.com/2023/09/03/arts/music/ailyn-perez-soprano-florencia-met-opera.html?searchResultPosition=6
 
-**In Venezuela, a Mission Amid Heartbreak**\
-`After studying journalism abroad, a photographer returned home, where economic collapse needed documenting.`\
-https://nytimes.com/2023/09/03/pageoneplus/in-venezuela-a-mission-amid-heartbreak.html?searchResultPosition=7
+**Big Farms and Flawless Fries Are Gulping Water in the Land of 10,000 Lakes**\
+`When Minnesota farmers cranked up their powerful wells, they blew through state limits. Thirsty crops included corn, soybeans and perfect, fry-friendly potatoes.`\
+https://nytimes.com/interactive/2023/09/03/climate/minnesota-drought-potatoes.html?searchResultPosition=7
 
-**A Furniture Shop’s Bland Facade Conceals a Trove of Tennis History**\
-`In Mineola, N.Y., Rosini Furniture Service restores and refinishes, but its owner’s true passion is the racket sport.`\
-https://nytimes.com/2023/09/03/nyregion/rosini-furniture-service-tennis-history.html?searchResultPosition=8
+**Leaping ‘Into the Next Unknown’: Robert Lyons on the End of New Ohio Theater**\
+`The handwriting on the company’s wall, in chalk, was traced by a closing night crowd sharing memories of more than 30 years of landmarks and larks.`\
+https://nytimes.com/2023/09/03/theater/new-ohio-theater-robert-lyons-interview.html?searchResultPosition=8
 
-**An Unexpected Hotbed of Y.A. Authors: Utah**\
-`A tight-knit community of young-adult writers who belong to the Church of Jesus Christ of Latter-day Saints has yielded smashes like “Twilight.” But religious doctrine can clash with creative freedoms.`\
-https://nytimes.com/2023/09/03/style/ya-authors-utah-mormon.html?searchResultPosition=9
+**The Never-Ending Nightmare of Ukraine’s Dam Disaster**\
+`Environmentally, economically and in terms of pure human suffering, the destruction of the Kakhovka dam unleashed untold damage. Months later, many communities are still reeling.`\
+https://nytimes.com/2023/09/03/world/europe/ukraine-dam-flooding-damage.html?searchResultPosition=9
 
-**‘That First Subway Ride Was Punctuated by a Whooshing Sound’**\
-`A journey to the World’s Fair, condolences from a stranger and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2023/09/03/nyregion/metropolitan-diary.html?searchResultPosition=10
+**How a New City Council Map of L.A. Turned Into a Political Brawl**\
+`Blatant political gerrymandering occurs in cities across the country, many of them run by Democrats. In Los Angeles, a scandal over a racist recording was only the tip of the iceberg.`\
+https://nytimes.com/2023/09/03/us/los-angeles-city-council-redistricting.html?searchResultPosition=10
 
