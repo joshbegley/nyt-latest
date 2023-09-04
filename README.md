@@ -1,5 +1,5 @@
 **‘Where Is the Money?’ Military Graft Becomes a Headache for Ukraine**\
-`The removal of Ukraine’s defense minister highlights the enduring challenge of corruption in Ukraine, which has emerged as a rare area of criticism of President Volodymyr Zelensky’s leadership.`\
+`The removal of the defense minister highlights the enduring challenge of corruption in Ukraine, which has emerged as a rare area of criticism of President Volodymyr Zelensky’s leadership.`\
 https://nytimes.com/2023/09/04/world/europe/ukraine-military-spending-corruption.html?searchResultPosition=1
 
 **What’s Next for Hurricane Season**\
