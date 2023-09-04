@@ -19,7 +19,7 @@ https://nytimes.com/2023/09/04/world/europe/pope-china-mongolia.html?searchResul
 https://nytimes.com/live/2023/09/04/world/russia-ukraine-news/russia-and-turkey-talk-up-a-new-gas-trading-hub-but-experts-are-skeptical?searchResultPosition=5
 
 **Steve Harwell, Former Smash Mouth Lead Singer, Dies at 56**\
-`Harwell was a founding member of the band, which broke out in the late 1990s with hit songs like “Walkin’ on the Sun” and “All Star.”`\
+`He was a founding member of the band, which broke out in the late 1990s with hit songs like “Walkin’ on the Sun” and “All Star.”`\
 https://nytimes.com/2023/09/04/arts/music/steve-harwell-smash-mouth-all-star-dead.html?searchResultPosition=6
 
 **Urban Animals Can’t Take the Heat, Study Finds**\
