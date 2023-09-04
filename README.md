@@ -11,7 +11,7 @@ https://nytimes.com/2023/09/04/us/leo-burt-fbi-bomber.html?searchResultPosition=
 https://nytimes.com/live/2023/09/04/world/russia-ukraine-news/ukraines-defense-minister-formally-submits-his-resignation?searchResultPosition=3
 
 **China’s Leader Looks Set to Skip G20 Summit in Snub to India**\
-`Xi Jinping has never missed the annual Group of 20 gathering since taking power in 2012. Beijing would not explain his apparent decision to forgo the event.`\
+`Xi Jinping has never missed the annual Group of 20 gathering since taking power in 2012. Beijing would not explain his apparent decision to forgo the event in New Delhi.`\
 https://nytimes.com/2023/09/04/world/asia/china-g20-xi-snub.html?searchResultPosition=4
 
 **‘Office Race’ Review: Slow and Not So Steady**\
