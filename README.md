@@ -34,7 +34,7 @@ https://nytimes.com/2023/09/04/business/media/sag-aftra-strike-telluride.html?se
 `Russia seeks more weaponry for its war in Ukraine, and a North Korean delegation recently traveled to Russia by train to plan for Mr. Kim’s visit this month, officials say.`\
 https://nytimes.com/2023/09/04/us/politics/putin-kim-meeting-russia-north-korea-weapons.html?searchResultPosition=9
 
-**Douglas Lenat, Who Tried to Make Computers More Human, Dies at 72**\
-`He spent decades working on artificial intelligence, striving to create machines that could replicate common sense.`\
+**Douglas Lenat, Who Tried to Make A.I. More Human, Dies at 72**\
+`He spent decades working on artificial intelligence, striving to create computers that could replicate common sense.`\
 https://nytimes.com/2023/09/04/technology/douglas-lenat-dead.html?searchResultPosition=10
 
