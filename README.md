@@ -27,7 +27,7 @@ https://nytimes.com/2023/09/04/briefing/hurricane-season.html?searchResultPositi
 https://nytimes.com/2023/09/04/world/asia/australia-rescue-antarctica.html?searchResultPosition=7
 
 **Burning Man Attendees May Get to Leave on Monday**\
-`Tens of thousands of people have been stranded for days at the festival’s remote desert site in Nevada because of torrential rain.`\
+`Thousands of people have been stranded for days at the festival’s remote desert site in Nevada because of torrential rain.`\
 https://nytimes.com/2023/09/04/us/burning-man-festival-rain-mud-updates.html?searchResultPosition=8
 
 **Ukraine’s Arrest of Powerful Oligarch Is Latest Sign of Anti-Corruption Efforts**\
