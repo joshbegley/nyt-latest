@@ -1,5 +1,5 @@
 **Have You Seen Paul McCartney’s Lost Bass Guitar? Tips Welcome.**\
-`For decades, mystery has surrounded the fate of the missing bass that accompanied the Beatles as they rocketed to fame. Hundreds of people have responded to a new campaign to try and find it.`\
+`For decades, mystery has surrounded the fate of the missing bass that accompanied the Beatles as they rocketed to fame. A new campaign to trying to find it.`\
 https://nytimes.com/2023/09/04/world/europe/paul-mccartneys-lost-bass-guitar.html?searchResultPosition=1
 
 **Priscilla Presley’s Emotional Reaction to Sofia Coppola’s New Elvis Film**\
