@@ -1,40 +1,40 @@
-**Federal Court Again Strikes Down Alabama’s Congressional Map**\
-`Republicans failed to comply with a court order to create a second majority-Black district or something “close to it,” the judicial panel said.`\
-https://nytimes.com/2023/09/05/us/politics/alabama-congressional-map.html?searchResultPosition=1
-
-**Zelensky visits troops fighting on the front lines around Bakhmut.**\
-`By Constant Méheut`\
-https://nytimes.com/live/2023/09/05/world/russia-ukraine-news/zelensky-visits-troops-fighting-on-the-front-lines-around-bakhmut?searchResultPosition=2
-
 **Battlefield Update: Some Ukrainian forces reach another Russian defensive line in the south, analysts say.**\
 `By Constant Méheut and Thomas Gibbons-Neff`\
-https://nytimes.com/live/2023/09/05/world/russia-ukraine-news/battlefield-update-some-ukrainian-forces-have-reached-another-russian-defensive-line-in-the-south-analysts-say?searchResultPosition=3
+https://nytimes.com/live/2023/09/05/world/russia-ukraine-news/battlefield-update-some-ukrainian-forces-have-reached-another-russian-defensive-line-in-the-south-analysts-say?searchResultPosition=1
 
 **Hong Kong Must Have Framework to Recognize Same-Sex Unions, Court Rules**\
 `The ruling by the city’s Court of Final Appeal stops short of recognizing same-sex marriage, but some experts see the outcome as a small step forward.`\
-https://nytimes.com/2023/09/05/world/asia/hong-kong-same-sex-partnership-court-ruling.html?searchResultPosition=4
+https://nytimes.com/2023/09/05/world/asia/hong-kong-same-sex-partnership-court-ruling.html?searchResultPosition=2
 
 **A Colorado City Has Been Battling for Decades to Use Its Own Water**\
 `Lawsuits, protests and fierce disputes over who controls water in the parched American West have held up a crucial pipeline.`\
-https://nytimes.com/interactive/2023/09/05/climate/colorado-water-climate-change.html?searchResultPosition=5
+https://nytimes.com/interactive/2023/09/05/climate/colorado-water-climate-change.html?searchResultPosition=3
 
 **The Texas House approved 20 articles of impeachment.**\
 `By David Montgomery`\
-https://nytimes.com/live/2023/09/05/us/ken-paxton-impeachment-trial-texas/the-texas-house-approved-20-articles-of-impeachment?searchResultPosition=6
+https://nytimes.com/live/2023/09/05/us/ken-paxton-impeachment-trial-texas/the-texas-house-approved-20-articles-of-impeachment?searchResultPosition=4
 
 **Northern Ireland Police Chief Resigns Amid Mounting Scandals**\
 `A data breach and a court ruling have piled pressure on a police force that was founded on a promise to move past sectarian strife.`\
-https://nytimes.com/2023/09/05/world/europe/northern-ireland-police-simon-byrne.html?searchResultPosition=7
+https://nytimes.com/2023/09/05/world/europe/northern-ireland-police-simon-byrne.html?searchResultPosition=5
 
 **How Ken Paxton became conservatives’ favorite attorney general.**\
 `Mr. Paxton has used his office using the office to aggressively pursue legal cases that appeal to conservatives, and by strongly aligning himself with former President Donald J. Trump.`\
-https://nytimes.com/live/2023/09/05/us/ken-paxton-impeachment-trial-texas/how-ken-paxton-became-conservatives-favorite-attorney-general?searchResultPosition=8
+https://nytimes.com/live/2023/09/05/us/ken-paxton-impeachment-trial-texas/how-ken-paxton-became-conservatives-favorite-attorney-general?searchResultPosition=6
 
 **Here’s what to know about the trial.**\
 `By J. David Goodman`\
-https://nytimes.com/live/2023/09/05/us/ken-paxton-impeachment-trial-texas/heres-what-to-know-about-the-trial?searchResultPosition=9
+https://nytimes.com/live/2023/09/05/us/ken-paxton-impeachment-trial-texas/heres-what-to-know-about-the-trial?searchResultPosition=7
 
 **An Evolving Salt Lake City Hopes to Be ‘Just Like Austin’**\
 `Shedding its stodgy image, the city has become a destination for start-ups looking for cheaper space and younger workers on the hunt for roomier housing.`\
-https://nytimes.com/2023/09/05/business/salt-lake-city-real-estate-jobs.html?searchResultPosition=10
+https://nytimes.com/2023/09/05/business/salt-lake-city-real-estate-jobs.html?searchResultPosition=8
+
+**California’s Hot Labor Summer Is Not Over Yet**\
+`A coalition of 85,000 Kaiser Permanente employees, most of whom are based in California, have begun voting on whether to authorize a strike.`\
+https://nytimes.com/2023/09/05/us/california-unions-kaiser-permanente.html?searchResultPosition=9
+
+**At Telluride, the Performances Speak Volumes Even if the Actors Can’t**\
+`In films like “All of Us Strangers,” “Poor Things” and “Rustin,” vivid turns kept audiences rapt even as the Hollywood strikes made it a less starry affair.`\
+https://nytimes.com/2023/09/05/movies/telluride-film-festival-emma-stone-andrew-scott-colman-domingo.html?searchResultPosition=10
 
