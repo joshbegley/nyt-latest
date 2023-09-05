@@ -24,7 +24,7 @@ https://nytimes.com/live/2023/09/05/us/ken-paxton-impeachment-trial-texas/new-po
 
 **Spectator Is Removed From U.S. Open After Remark Associated With Nazi Regime**\
 `Alexander Zverev, from Germany, told the umpire that the man had said the phrase. He was escorted out after the “disparaging remark,” a spokesman said.`\
-https://nytimes.com/2023/09/05/us/us-open-fan-zverev-hitler-phrase.html?searchResultPosition=7
+https://nytimes.com/2023/09/05/sports/us-open-fan-zverev-hitler-phrase.html?searchResultPosition=7
 
 **Wrestling With Inequality, Some Conservatives Redraw Economic Blueprint**\
 `A growing number of Republican politicians and theorists are challenging party orthodoxy on pocketbook issues, corporate power and government’s role.`\
