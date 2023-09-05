@@ -1,4 +1,4 @@
-**Spectator Is Removed from U.S. Open After Remark Associated With Nazi Regime**\
+**Spectator Is Removed From U.S. Open After Remark Associated With Nazi Regime**\
 `Alexander Zverev, from Germany, told the umpire that the man had said the phrase. He was “escorted” out after the “disparaging remark,” a spokesman said.`\
 https://nytimes.com/2023/09/05/us/us-open-fan-zverev-hitler-phrase.html?searchResultPosition=1
 
