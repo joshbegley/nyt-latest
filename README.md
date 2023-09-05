@@ -4,7 +4,7 @@ https://nytimes.com/live/2023/09/05/world/russia-ukraine-news/a-report-on-cluste
 
 **Maps: Tracking Tropical Storm Lee**\
 `See the path and estimated wind arrival times for Lee.`\
-https://nytimes.com/interactive/2023/us/05wea-tracking-lee.html?searchResultPosition=2
+https://nytimes.com/interactive/2023/us/lee-storm-map-tracker-path.html?searchResultPosition=2
 
 **Former Proud Boys Leader Sentenced to 22 Years**\
 `Also, a very American U.S. Open. Here’s the latest at the end of Tuesday.`\
