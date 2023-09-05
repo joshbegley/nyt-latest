@@ -1,40 +1,40 @@
-**Cuba Says Its Citizens Were Lured to Fight in Russia’s War in Ukraine**\
-`The Cuban government said it had begun criminal proceedings against a “trafficking network” that had been recruiting its citizens in both Russia and Cuba for Russia’s armed forces.`\
-https://nytimes.com/2023/09/05/world/europe/cuba-russia-war-human-trafficking.html?searchResultPosition=1
+**BonBon Brings Its Swedish Fish to the Upper East Side**\
+`Check out the candy emporium’s new shop, pick up a new filled cookie from Ladurée and more food news.`\
+https://nytimes.com/2023/09/05/dining/bonbon-swedish-fish-upper-east-side.html?searchResultPosition=1
 
-**Rhode Island Special Primary Election Results**\
-`See all results and maps for the 2023 Rhode Island special primary election.`\
-https://nytimes.com/interactive/2023/09/05/us/elections/results-rhode-island.html?searchResultPosition=2
+**Russia arrests a mathematician minutes after his release from a penal colony, local media say.**\
+`By Valeriya Safronova`\
+https://nytimes.com/live/2023/09/05/world/russia-ukraine-news/russia-arrests-a-mathematician-minutes-after-his-release-from-a-penal-colony-local-media-say?searchResultPosition=2
 
-**Margaritaville Aims to Hang On After Jimmy Buffett’s Death**\
-`The musician and his carefree vacation vibes inspired a sprawling business empire. Can it go on without its founder?`\
-https://nytimes.com/2023/09/05/business/jimmy-buffett-margaritaville-business.html?searchResultPosition=3
-
-**Coach of Spain’s Women’s Soccer Team Is Fired**\
-`Players had accused the coach, Jorge Vilda, of outdated methods and controlling behavior. His boss, Luis Rubiales, is still embroiled in scandal over a nonconsensual kiss.`\
-https://nytimes.com/2023/09/05/world/europe/jorge-vilda-coach-spain-soccer.html?searchResultPosition=4
-
-**Rhode Island First Congressional District Special Primary Election Results**\
-`See all results and maps for the 2023 Rhode Island 1st Congressional District special primary election.`\
-https://nytimes.com/interactive/2023/09/05/us/elections/results-rhode-island-us-house-district-1.html?searchResultPosition=5
+**Putin Attacks Zelensky and His Jewish Ethnicity During Interview**\
+`President Vladimir V. Putin of Russia claimed the West chose an “ethnic jew” to lead Ukraine in order to “cover up the anti-human nature that underlies the modern Ukrainian state.”`\
+https://nytimes.com/video/world/europe/100000009071557/putin-zelensky-ukraine.html?searchResultPosition=3
 
 **Utah 2nd Congressional District Special Primary Election Results **\
 `See all results and maps for the 2023 Utah 2nd Congressional District special primary election.`\
-https://nytimes.com/interactive/2023/09/05/us/elections/results-utah-us-house-district-2.html?searchResultPosition=6
+https://nytimes.com/interactive/2023/09/05/us/elections/results-utah-us-house-district-2.html?searchResultPosition=4
 
-**Biden Picks Jack Lew as Envoy to Israel During Time of Friction**\
-`Mr. Lew, a former Treasury secretary, would bring stature and a low-key style to the assignment of representing the president to Prime Minister Benjamin Netanyahu’s government.`\
-https://nytimes.com/2023/09/05/us/politics/jack-lew-israel-biden.html?searchResultPosition=7
+**The Power of Adult Immunization**\
+`For adults over 60, disease prevention outweighs treatment.`\
+https://nytimes.com/paidpost/gsk/the-power-of-adult-immunization.html?searchResultPosition=5
 
-**Simple Recipes That Are Short on Budget, Big on Flavor**\
-`Eric Kim’s shrimp fried rice puts those freezer goodies to good use, and kimchi chicken lettuce wraps come together with just five ingredients (and 25 minutes).`\
-https://nytimes.com/2023/09/05/dining/simple-recipes-that-are-short-on-budget-big-on-flavor.html?searchResultPosition=8
+**Record Rains Flood Greece Just as Wildfires Let Up**\
+`The deluge caused extensive damage in central Greece, and killed at least one person, just as firefighters contained blazes in the north. One area had over 25 inches of rain in 15 hours.`\
+https://nytimes.com/2023/09/05/world/europe/greece-flooding-rain.html?searchResultPosition=6
 
-**Saudi Arabia and Russia Extend Oil Production Cuts Through December**\
-`The move reflected renewed efforts by the two major exporters to bolster the price of crude.`\
-https://nytimes.com/2023/09/05/business/saudi-arabia-russia-oil-cuts.html?searchResultPosition=9
+**The impeachment trial is like a criminal trial, but with a few unique rules.**\
+`The State Senate set the rules for the trial, delaying consideration of some charges and allowing the senators themselves to be witnesses.`\
+https://nytimes.com/live/2023/09/05/us/ken-paxton-impeachment-trial-texas/ken-paxton-impeachement-rules?searchResultPosition=7
 
-**Get Ready for the New Gucci, and Other Surprises of the Fashion Season**\
-`It’s going to be something to see, from designer debuts to the celebrities on the front rows.`\
-https://nytimes.com/2023/09/05/style/fashion-week-shows-events.html?searchResultPosition=10
+**Graft in military spending becomes a headache for Ukraine.**\
+`The removal of Ukraine’s defense minister highlights the enduring challenge of corruption in Ukraine, which has emerged as a rare area of criticism of President Volodymyr Zelensky’s leadership.`\
+https://nytimes.com/live/2023/09/05/world/russia-ukraine-news/graft-in-military-spending-becomes-a-headache-for-ukraine?searchResultPosition=8
+
+**Rhode Island First Congressional District Special Primary Election Results**\
+`See all results and maps for the 2023 Rhode Island 1st Congressional District special primary election.`\
+https://nytimes.com/interactive/2023/09/05/us/elections/results-rhode-island-us-house-district-1.html?searchResultPosition=9
+
+**Rhode Island Special Primary Election Results**\
+`See all results and maps for the 2023 Rhode Island special primary election.`\
+https://nytimes.com/interactive/2023/09/05/us/elections/results-rhode-island.html?searchResultPosition=10
 
