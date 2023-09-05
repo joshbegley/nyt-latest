@@ -2,7 +2,7 @@
 `Shareholders in a shell company that has been trying for nearly two years to merge with former President Donald Trump’s media company approved a 12-month extension to complete the deal.`\
 https://nytimes.com/2023/09/05/business/trump-media-merger.html?searchResultPosition=1
 
-**Paxton’s lawyers are seeking to have the case dismissed before it starts.**\
+**Paxton’s lawyers are seeking to have the case dismissed before testimony in the trial starts.**\
 `The motions to dismiss are subject to a majority vote by all the state senators, which could take place before the trial begins on Tuesday.`\
 https://nytimes.com/live/2023/09/05/us/ken-paxton-impeachment-trial-texas/paxton-impeachment-dismissal?searchResultPosition=2
 
