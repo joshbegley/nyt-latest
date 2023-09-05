@@ -6,7 +6,7 @@ https://nytimes.com/2023/09/05/us/politics/enrique-tarrio-proud-boys-sentenced.h
 `Lawyers for Alex Murdaugh, a South Carolina lawyer convicted of murder, said in a court filing that an official told jurors not to be “fooled by” his testimony.`\
 https://nytimes.com/2023/09/05/us/alex-murdaugh-clerk-rebecca-hill.html?searchResultPosition=2
 
-**Supermodel Linda Evangelista Had Breast Cancer Twice in 5 Years**\
+**Linda Evangelista, ’90s Supermodel, Had Breast Cancer Twice in 5 Years**\
 `The fashion photographer disclosed her health challenges in an interview with The Wall Street Journal Magazine.`\
 https://nytimes.com/2023/09/05/fashion/linda-evangelista-breast-cancer.html?searchResultPosition=3
 
