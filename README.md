@@ -7,7 +7,7 @@ https://nytimes.com/2023/09/05/dining/bonbon-swedish-fish-upper-east-side.html?s
 https://nytimes.com/live/2023/09/05/world/russia-ukraine-news/russia-arrests-a-mathematician-minutes-after-his-release-from-a-penal-colony-local-media-say?searchResultPosition=2
 
 **Putin Attacks Zelensky and His Jewish Ethnicity During Interview**\
-`President Vladimir V. Putin of Russia claimed the West chose an “ethnic jew” to lead Ukraine in order to “cover up the anti-human nature that underlies the modern Ukrainian state.”`\
+`President Vladimir V. Putin of Russia made spurious claims that the West had chosen an “ethnic Jew” to lead Ukraine in order to “cover up the anti-human nature that underlies the modern Ukrainian state.”`\
 https://nytimes.com/video/world/europe/100000009071557/putin-zelensky-ukraine.html?searchResultPosition=3
 
 **Utah 2nd Congressional District Special Primary Election Results **\
