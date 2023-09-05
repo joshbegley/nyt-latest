@@ -1,4 +1,4 @@
-**After Rhode Island Primary, State Appears Set for Its First Black U.S. Representative**\
+**After Primary, Rhode Island Looks Set to Have Its First Black Member of Congress**\
 `Gabriel Amo, a moderate Democrat who served in the Obama and Biden administrations, won a special House primary to succeed Representative David N. Cicilline in the deep-blue state.`\
 https://nytimes.com/2023/09/05/us/elections/rhode-island-democratic-primary.html?searchResultPosition=1
 
