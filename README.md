@@ -11,7 +11,7 @@ https://nytimes.com/2023/09/06/business/economy/huawei-phone-us-china-raimondo.h
 https://nytimes.com/2023/09/06/business/media/comcast-disney-hulu-deal.html?searchResultPosition=3
 
 **Trump’s Next Defamation Trial Will Skip to What Damages He Should Pay**\
-`E. Jean Carroll’s suit is scheduled for a January trial. The judge ruled she does not have to prove a second time that he defamed her after she accused him of raping her.`\
+`E. Jean Carroll’s suit is scheduled for a January trial. The judge ruled she did not have to prove a second time that Donald J. Trump defamed her after she accused him of raping her.`\
 https://nytimes.com/2023/09/06/nyregion/trumps-defamation-trial-january.html?searchResultPosition=4
 
 **Jessica Lange Leads Starry Cast of New Paula Vogel Play on Broadway**\
