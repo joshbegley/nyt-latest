@@ -10,8 +10,8 @@ https://nytimes.com/2023/09/06/world/europe/spain-kiss-rubiales-hermoso-complain
 `Surveillance video posted on social media by President Volodymyr Zelensky of Ukraine shows a large fireball hitting a street in Kostyantynivka, Ukraine, and people running for cover.`\
 https://nytimes.com/video/world/europe/100000009073031/russian-strike-kostyantynivka-ukraine.html?searchResultPosition=3
 
-**Here’s What It’s Like to Take the Classic Learning Test**\
-`Florida’s public university system is expected to approve the Classic Learning Test for college admissions as an alternative to the SAT or ACT.`\
+**This page was published in error.**\
+`This page was published in error.`\
 https://nytimes.com/interactive/2023/09/06/us/florida-classic-learning-test-quiz.html?searchResultPosition=4
 
 **My Neighbors Are Illegally Breeding Dogs. Do I Report Them?**\
