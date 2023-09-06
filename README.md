@@ -34,7 +34,7 @@ https://nytimes.com/2023/09/06/crosswords/wordle-review-answer-809.html?searchRe
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2023/09/06/crosswords/spelling-bee-forum.html?searchResultPosition=9
 
-**Russian drone attack kills one in Danube port city.**\
+**Blinken is the latest U.S. official to visit Ukraine this year.**\
 `By Andrew E. Kramer and Erin Mendell`\
 https://nytimes.com/live/2023/09/06/world/russia-ukraine-news/russian-drone-attack-kills-one-in-danube-port-city?searchResultPosition=10
 
