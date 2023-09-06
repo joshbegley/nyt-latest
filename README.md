@@ -1,6 +1,6 @@
-**Ben Shelton Beats Frances Tiafoe to Advance to U.S. Open Semifinal**\
+**Ben Shelton Advances to U.S. Open Semifinal Against Novak Djokovic**\
 `Shelton, 20, becomes the youngest American man to reach a U.S. Open semifinal since Andy Roddick in 2003.`\
-https://nytimes.com/2023/09/06/sports/tennis/us-open-tiafoe-shelton-quarterfinals.html?searchResultPosition=1
+https://nytimes.com/2023/09/06/sports/tennis/us-open-shelton-tiafoe-djokovic.html?searchResultPosition=1
 
 **Making Electric-Car Chargers Faster (and Making Them Fit in Manhattan)**\
 `An entrepreneur confronts the challenges of bringing electric vehicles into wide use in New York City.`\
