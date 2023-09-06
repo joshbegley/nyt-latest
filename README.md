@@ -1,40 +1,40 @@
-**Deadly Floodwaters Submerge Brazil’s South**\
-`Volunteers held hands to create a human chain and pull in boats carrying people rescued from the floods.`\
-https://nytimes.com/video/world/americas/100000009072834/brazil-flooding-rio-grande-do-sul.html?searchResultPosition=1
+**Behold the Free Speech Chutzpah of the Republican Party**\
+`But that is only part of the problem.`\
+https://nytimes.com/2023/09/06/opinion/republicans-democrats-free-speech.html?searchResultPosition=1
 
-**His Mind Helped Rebuild New York. His Body Is Failing Him.**\
-`Dan Doctoroff’s efforts to rebuild the city after 9/11 brought him power. A terrible diagnosis brought him peace.`\
-https://nytimes.com/2023/09/06/nyregion/doctoroff-new-york-als.html?searchResultPosition=2
+**G.O.P. Impeachment Threats in Wisconsin Whip Up a Political Firestorm**\
+`Republicans have floated impeaching a newly seated liberal State Supreme Court justice who is threatening conservatives’ grip on state politics.`\
+https://nytimes.com/2023/09/06/us/politics/justice-protasiewicz-impeachment-wisconsin.html?searchResultPosition=2
 
-**New York City’s Lucrative No-Bid Migrant Services Contract Is Rejected**\
-`Brad Lander, the New York City comptroller, refused to approve the $432 million contract, questioning the qualifications of DocGo, the medical services company awarded the contract.`\
-https://nytimes.com/2023/09/06/nyregion/docgo-migrants-contract-adams.html?searchResultPosition=3
+**Alabama Cherishes Its History of Defying the Federal Courts**\
+`Alabama’s resistance to the Supreme Court’s voting rights decision recalls its similar stand against school integration in 1954.`\
+https://nytimes.com/2023/09/06/opinion/alabama-congressional-district-ruling.html?searchResultPosition=3
 
-**80,000 Students With One Dilemma: Will N.Y.C. School Bus Workers Strike?**\
-`New York City public schools start on Thursday, as union leaders and school bus companies are locked in contract negotiations.`\
-https://nytimes.com/2023/09/06/nyregion/school-bus-strike-nyc.html?searchResultPosition=4
+**How to Interpret Polling Showing Biden’s Loss of Nonwhite Support**\
+`Yes, there’s reason for skepticism, but also reason for concern for Democrats, particularly over turnout.`\
+https://nytimes.com/2023/09/06/upshot/biden-polls-black-voters.html?searchResultPosition=4
 
-**At Yale, a Surge of Activism Forced Changes in Mental Health Policies**\
-`For decades, the university required students seeking medical leaves to withdraw and reapply. A campus suicide set off a cascade of revisions.`\
-https://nytimes.com/2023/09/06/health/yale-mental-health.html?searchResultPosition=5
+**A Progressive James Bond Is Proof of American Cultural Imperialism**\
+`Wokeness is an American ideology. Why does it seem so powerful in Britain and Canada?`\
+https://nytimes.com/2023/09/06/opinion/columnists/james-bond-woke-uk-progressive.html?searchResultPosition=5
 
-**Fall Video Games**\
-`Which new releases are you most excited about? Why?`\
-https://nytimes.com/2023/09/06/learning/fall-video-games.html?searchResultPosition=6
+**Burning Man Is Always a Challenge, but Burners Like Me Know This Time Is Different**\
+`The festival has to change, as does everything else.`\
+https://nytimes.com/2023/09/06/opinion/burning-man-flood-playa-climate-change.html?searchResultPosition=6
 
-**To Win Big, Top Tennis Pros Turn to Marshmallows**\
-`Carlos Alcaraz is among the ranked players on the men’s and women's tours who have increasingly dared to use the drop shot on crucial points.`\
-https://nytimes.com/2023/09/06/sports/tennis/us-open-alcaraz-dropshot.html?searchResultPosition=7
+**The City Looks Different When You’re Older**\
+`Cracked sidewalks, fast cars, nowhere to sit — it’s hard to navigate the streets when you’re older. But it doesn’t have to be.`\
+https://nytimes.com/interactive/2023/09/06/opinion/seniors-urban-planning.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/09/06/crosswords/wordle-review-answer-809.html?searchResultPosition=8
+**5 Minutes That Will Make You Love Max Roach**\
+`The drummer helped pioneer bebop in the 1940s and delivered a message of resistance and liberation from the 1960s on. Listen to 13 selections from musicians, writers and critics.`\
+https://nytimes.com/2023/09/06/arts/music/max-roach-jazz-music.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/09/06/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**The 4 Arguments You Will Hear Against Drug Price Negotiation**\
+`Most Americans support lowering drug prices.`\
+https://nytimes.com/2023/09/06/opinion/medicare-drug-price-negotiation.html?searchResultPosition=9
 
-**Blinken is the latest U.S. official to visit Ukraine this year.**\
-`By Andrew E. Kramer and Erin Mendell`\
-https://nytimes.com/live/2023/09/06/world/russia-ukraine-news/russian-drone-attack-kills-one-in-danube-port-city?searchResultPosition=10
+**In Jail, Writing in Short Bursts as Therapy and Performance Art**\
+`A former prosecutor found solace and renewal in a writing process he teaches to inmates in Minnesota.`\
+https://nytimes.com/2023/09/06/us/jail-free-writing.html?searchResultPosition=10
 
