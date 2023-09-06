@@ -6,8 +6,8 @@ https://nytimes.com/live/2023/09/06/world/russia-ukraine-news/a-deadly-russian-s
 `The number of sightings of Asian hornets, an invasive species that can wipe out bee colonies, has spiked this year, raising concerns among British beekeepers.`\
 https://nytimes.com/2023/09/06/world/europe/asian-hornet-bees-uk.html?searchResultPosition=2
 
-**The Rolling Stones Will Unveil ‘Hackney Diamonds,’ a New Album**\
-`Mick Jagger, Keith Richards and Ronnie Wood will provide details about their first record of new material in 18 years on Wednesday.`\
+**Rolling Stones Unveil ‘Hackney Diamonds’ in a Trendy London District**\
+`Mick Jagger, Keith Richards and Ronnie Wood provided details about their first record of new material in 18 years, which will be released on Oct. 20.`\
 https://nytimes.com/2023/09/06/arts/music/the-rolling-stones-hackney-diamonds-new-album.html?searchResultPosition=3
 
 **California Democrats Want Courts to Let Cities Clear Homeless Camps**\
