@@ -12,7 +12,7 @@ https://nytimes.com/2023/09/06/business/media/comcast-disney-hulu-deal.html?sear
 
 **Trump’s Next Defamation Trial Will Skip to What Damages He Should Pay**\
 `E. Jean Carroll’s suit is scheduled for a January trial. The judge ruled she did not have to prove a second time that Donald J. Trump defamed her after she accused him of raping her.`\
-https://nytimes.com/2023/09/06/nyregion/trumps-defamation-trial-january.html?searchResultPosition=4
+https://nytimes.com/2023/09/06/nyregion/trump-e-jean-carroll-defamation-trial-january.html?searchResultPosition=4
 
 **Jessica Lange Leads Starry Cast of New Paula Vogel Play on Broadway**\
 `“Mother Play,” set in the 1960s, will feature Lange as a mother raising two children, played by Jim Parsons and Celia Keenan-Bolger.`\
