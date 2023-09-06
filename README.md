@@ -1,40 +1,40 @@
+**His Mind Helped Rebuild New York. His Body Is Failing Him.**\
+`Dan Doctoroff’s efforts to rebuild the city after 9/11 brought him power. A terrible diagnosis brought him peace.`\
+https://nytimes.com/2023/09/06/nyregion/doctoroff-new-york-als.html?searchResultPosition=1
+
+**New York City’s Lucrative No-Bid Migrant Services Contract Is Rejected**\
+`Brad Lander, the New York City comptroller, refused to approve the $432 million contract, questioning the qualifications of DocGo, the medical services company awarded the contract.`\
+https://nytimes.com/2023/09/06/nyregion/docgo-migrants-contract-adams.html?searchResultPosition=2
+
+**80,000 Students With One Dilemma: Will N.Y.C. School Bus Workers Strike?**\
+`New York City public schools start on Thursday, as union leaders and school bus companies are locked in contract negotiations.`\
+https://nytimes.com/2023/09/06/nyregion/school-bus-strike-nyc.html?searchResultPosition=3
+
+**At Yale, a Surge of Activism Forced Changes in Mental Health Policies**\
+`For decades, the university required students seeking medical leaves to withdraw and reapply. A campus suicide set off a cascade of revisions.`\
+https://nytimes.com/2023/09/06/health/yale-mental-health.html?searchResultPosition=4
+
+**Fall Video Games**\
+`Which new releases are you most excited about? Why?`\
+https://nytimes.com/2023/09/06/learning/fall-video-games.html?searchResultPosition=5
+
+**To Win Big, Top Tennis Pros Turn to Marshmallows**\
+`Carlos Alcaraz is among the ranked players on the men’s and women's tours who have increasingly dared to use the drop shot on crucial points.`\
+https://nytimes.com/2023/09/06/sports/tennis/us-open-alcaraz-dropshot.html?searchResultPosition=6
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/09/06/crosswords/wordle-review-answer-809.html?searchResultPosition=7
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/09/06/crosswords/spelling-bee-forum.html?searchResultPosition=8
+
 **Russian drone attack kills one in Danube port city.**\
 `By Andrew E. Kramer and Erin Mendell`\
-https://nytimes.com/live/2023/09/06/world/russia-ukraine-news/russian-drone-attack-kills-one-in-danube-port-city?searchResultPosition=1
+https://nytimes.com/live/2023/09/06/world/russia-ukraine-news/russian-drone-attack-kills-one-in-danube-port-city?searchResultPosition=9
 
 **Word of the Day: histrionic**\
 `This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/09/06/learning/word-of-the-day-histrionic.html?searchResultPosition=2
-
-**Ben Shelton Advances to U.S. Open Semifinal Against Novak Djokovic**\
-`Shelton, 20, becomes the youngest American man to reach a U.S. Open semifinal since Andy Roddick in 2003.`\
-https://nytimes.com/2023/09/06/sports/tennis/us-open-shelton-tiafoe-djokovic.html?searchResultPosition=3
-
-**Making Electric-Car Chargers Faster (and Making Them Fit in Manhattan)**\
-`An entrepreneur confronts the challenges of bringing electric vehicles into wide use in New York City.`\
-https://nytimes.com/2023/09/06/nyregion/making-electric-car-chargers-faster-and-making-them-fit-in-manhattan.html?searchResultPosition=4
-
-**Quotation of the Day: Lonely at the Top**\
-`Quotation of the Day for Wednesday, September 6, 2023.`\
-https://nytimes.com/2023/09/06/pageoneplus/quotation-of-the-day-lonely-at-the-top.html?searchResultPosition=5
-
-**Corrections: Sept. 6, 2023**\
-`Corrections that appeared in print on Wednesday, Sept. 6, 2023.`\
-https://nytimes.com/2023/09/06/pageoneplus/corrections-sept-6-2023.html?searchResultPosition=6
-
-**Wednesday Briefing**\
-`A possible advance by Ukraine’s army.`\
-https://nytimes.com/2023/09/06/briefing/ukraine-russia-greece-flooding.html?searchResultPosition=7
-
-**Why the G20 Keeps Failing, and Still Matters**\
-`Summits like the one in India this weekend have produced many ambitious statements — and, often, disappointing results. Critics say an upgrade is needed.`\
-https://nytimes.com/2023/09/06/world/asia/g20-summit-india.html?searchResultPosition=8
-
-**China’s Economic Pain Is a Test of Xi’s Fixation With Control**\
-`The slowdown is posing perhaps the most sustained challenge to President Xi Jinping’s agenda in over a decade in power. He now faces a tangle of difficult choices.`\
-https://nytimes.com/2023/09/06/world/asia/china-economy-xi-jinping.html?searchResultPosition=9
-
-**It’s One of Ukraine’s Fiercest Allies. But an Election Could Change That.**\
-`The vote in Slovakia this month will be a test of European unity on Ukraine, and of Russia’s efforts to undermine it. The front-runner wants to halt arms shipments to Kyiv.`\
-https://nytimes.com/2023/09/06/world/europe/slovakia-election-russia-ukraine.html?searchResultPosition=10
+https://nytimes.com/2023/09/06/learning/word-of-the-day-histrionic.html?searchResultPosition=10
 
