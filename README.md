@@ -1,4 +1,4 @@
-**A Three-Legged Bear Walks Into a Bar …**\
+**A Three-Legged Bear Walks Into a Bar**\
 `Tripod, a three-legged bear, has become a local celebrity in a Central Florida neighborhood, drinking a family’s White Claws and eating its shrimp meal.`\
 https://nytimes.com/2023/09/07/us/three-legged-bear-tripod-florida-lake-mary.html?searchResultPosition=1
 
