@@ -14,7 +14,7 @@ https://nytimes.com/2023/09/07/world/europe/france-abaya-muslims-school.html?sea
 `The lingerie brand introduces a feature-length film meant to be the final piece of its reinvention.`\
 https://nytimes.com/2023/09/07/style/victorias-secret-fashion-show-return.html?searchResultPosition=4
 
-**Join the Times Climate EventWith Bill Gates, Marie Kondo and Others**\
+**Join the Times Climate Event With Bill Gates, Marie Kondo and Others**\
 `Sign up to watch the livestream and connect with online attendees about solutions to the climate crisis on Thursday, Sept. 21.`\
 https://nytimes.com/2023/09/07/climate/climate-forward-event.html?searchResultPosition=5
 
