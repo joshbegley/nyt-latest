@@ -14,7 +14,7 @@ https://nytimes.com/2023/09/07/opinion/columnists/paxton-gop-corrupt.html?search
 `Art fairs come early, tailoring their calendars to compete with the city’s big fall gallery and museum exhibitions. A critic’s 11 favorite booths.`\
 https://nytimes.com/2023/09/07/arts/design/the-armory-show-javits-center.html?searchResultPosition=4
 
-**‘The Devil They Know’: McConnell’s Health Issues Alarm Democrats**\
+**‘The Devil They Know’: McConnell’s Health Issues Worry Democrats**\
 `The legislative stances of the G.O.P. leader and his usual opponents are aligned on Ukraine, spending and impeachment as he faces mounting health scrutiny.`\
 https://nytimes.com/2023/09/07/us/politics/mcconnell-democrats-senate-schumer.html?searchResultPosition=5
 
