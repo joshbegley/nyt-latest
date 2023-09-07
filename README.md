@@ -4,7 +4,7 @@ https://nytimes.com/video/world/europe/100000009074845/russia-explosions-drone-r
 
 **Mattel’s Windfall From ‘Barbie’ Goes Far Beyond Dolls**\
 `The company’s approach has paid off to a degree that even the C.E.O. could hardly have believed possible.`\
-https://nytimes.com/2023/09/07/technology/barbie-movie-mattel-windfall.html?searchResultPosition=2
+https://nytimes.com/2023/09/07/business/barbie-movie-mattel-windfall.html?searchResultPosition=2
 
 **The Russian military hub of Rostov-on-Don plays a key role in operations in Ukraine.**\
 `By Valeriya Safronova`\
