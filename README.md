@@ -1,40 +1,40 @@
+**A Dozen Looted Artifacts Are Returned to Lebanon**\
+`Some of the pieces were seized from the Metropolitan Museum of Art and others from the New Jersey storage unit of a Lebanese collector and dealer.`\
+https://nytimes.com/2023/09/07/arts/a-dozen-looted-artifacts-are-returned-to-lebanon.html?searchResultPosition=1
+
+**Prison Officials Say Human Error Played Role in Pennsylvania Escape**\
+`An officer who was in a watchtower is on administrative leave, as prison officials review what went wrong during Danelo Cavalcante’s escape last week.`\
+https://nytimes.com/2023/09/07/us/prison-escape-chester-county-cavalcante.html?searchResultPosition=2
+
+**Police Investigating Whether Court Clerk Influenced Murdaugh Jurors**\
+`Lawyers for Alex Murdaugh said the clerk had told jurors not to be “fooled” by his defense before he was convicted of murdering his wife and son.`\
+https://nytimes.com/2023/09/07/us/murdaugh-clerk-attorney-general-investigation.html?searchResultPosition=3
+
+**Drone Strikes Rock Russian City That Is Home to Key Military Base**\
+`Ukraine never acknowledges strikes on Russian soil, but the incursions are happening with increasing frequency.`\
+https://nytimes.com/2023/09/07/world/europe/drone-strikes-rostov-russia.html?searchResultPosition=4
+
+**‘I’m OK, but Things Are Terrible’**\
+`The mystery of Americans’ economic negativity.`\
+https://nytimes.com/2023/09/07/opinion/economy-inflation-negativity.html?searchResultPosition=5
+
+**‘My Big Fat Greek Wedding 3’ Review: N’opa!**\
+`Nia Vardalos is back in a noisy sequel that cedes the punchlines, and the plotlines, to the more cacophonous members of the Portokalos clan.`\
+https://nytimes.com/2023/09/07/movies/my-big-fat-greek-wedding-3-review-nopa.html?searchResultPosition=6
+
+**The American Renaissance Is Already at Hand**\
+`As China Stumbles, Ohio Rebounds.`\
+https://nytimes.com/2023/09/07/opinion/economy-china-america-decline.html?searchResultPosition=7
+
+**Patricia Caulfield, 91, Dies; Battled Warhol Over Use of Her Photograph**\
+`She sued the pop artist while she was executive editor of Modern Photography. She later travel the world as a nature photographer.`\
+https://nytimes.com/2023/09/07/arts/patricia-caulfield-dead.html?searchResultPosition=8
+
 **What is Peptic Ulcer Disease?**\
 `Bruce Springsteen postponed shows to get treatment for symptoms of the disease.`\
-https://nytimes.com/2023/09/07/well/live/what-is-peptic-ulcer-disease.html?searchResultPosition=1
+https://nytimes.com/2023/09/07/well/live/what-is-peptic-ulcer-disease.html?searchResultPosition=9
 
 **Jill Biden Tests Negative for Coronavirus**\
 `The first lady’s brief Covid episode had threatened to upend President Biden’s trip to a Group of 20 summit in India.`\
-https://nytimes.com/2023/09/07/us/politics/jill-biden-covid-negative.html?searchResultPosition=2
-
-**New York’s Migrant Crisis Is Growing**\
-`Also, a prison escape near Philadelphia. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2023/09/07/briefing/new-york-migrants-nfl-returns.html?searchResultPosition=3
-
-**Arleen Sorkin, Soap Opera Star With a Claim to Batman Fame, Dies at 67**\
-`Her “Days of Our Lives” character provided a rare burst of daytime-drama comedy. She was later the voice of Harley Quinn, the Joker’s henchwoman.`\
-https://nytimes.com/2023/09/07/arts/television/arleen-sorkin-dead.html?searchResultPosition=4
-
-**2 Senators Propose Bipartisan Framework for A.I. Laws**\
-`The effort by Senators Richard Blumenthal and Josh Hawley is the latest move by lawmakers to catch up with the rapidly evolving technology.`\
-https://nytimes.com/2023/09/07/technology/artificial-intelligence-framework-senate.html?searchResultPosition=5
-
-**Why Does Duke Have So Few Low-Income Students?**\
-`A case study in elite college admissions.`\
-https://nytimes.com/interactive/2023/09/07/magazine/duke-economic-diversity.html?searchResultPosition=6
-
-**The Top U.S. Colleges With the Greatest Economic Diversity**\
-`The college access index 2023.`\
-https://nytimes.com/interactive/2023/09/07/magazine/college-access-index.html?searchResultPosition=7
-
-**Tropical Storm Margot Forms in the Atlantic Ocean**\
-`The storm is forecast to grow into a hurricane, but posed no immediate threat to land.`\
-https://nytimes.com/article/tropical-storm-margot-hurricane.html?searchResultPosition=8
-
-**‘The Nun II’ Review: Back in the Habit**\
-`The latest installment in the “Conjuring” franchise continues a formula of frights with a splash of religious world building.`\
-https://nytimes.com/2023/09/07/movies/the-nun-ii-review-sequel.html?searchResultPosition=9
-
-**Friday Briefing: A G20 Preview**\
-`Also, how Mattel made “Barbie” a hit.`\
-https://nytimes.com/2023/09/07/briefing/g20-china-exports-barbie.html?searchResultPosition=10
+https://nytimes.com/2023/09/07/us/politics/jill-biden-covid-negative.html?searchResultPosition=10
 
