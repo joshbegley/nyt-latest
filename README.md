@@ -12,7 +12,7 @@ https://nytimes.com/2023/09/07/nyregion/nyc-public-schools-reading.html?searchRe
 
 **A Fashion ‘Prodigy’ Makes a Big Debut. No Pressure.**\
 `With his new post at Helmut Lang, can Peter Do bring the cool minimalism of the 1990s back to American fashion?`\
-https://nytimes.com/2023/09/07/style/a-fashion-prodigy-makes-a-big-debut-no-pressure.html?searchResultPosition=4
+https://nytimes.com/2023/09/07/style/peter-do-helmut-lang-nyfw.html?searchResultPosition=4
 
 **The Concert**\
 `Tell us a story, real or made up, that is inspired by this image.`\
