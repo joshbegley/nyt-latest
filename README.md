@@ -4,7 +4,7 @@ https://nytimes.com/2023/09/07/arts/television/arleen-sorkin-dead.html?searchRes
 
 **2 Senators Propose Bipartisan Framework for A.I. Laws**\
 `The effort by Senators Richard Blumenthal and Josh Hawley is the latest move by lawmakers to catch up with the rapidly evolving technology.`\
-https://nytimes.com/2023/09/07/technology/bipartisan-framework-artificial-intelligence.html?searchResultPosition=2
+https://nytimes.com/2023/09/07/technology/artificial-intelligence-framework-senate.html?searchResultPosition=2
 
 **Why Does Duke Have So Few Low-Income Students?**\
 `A case study in elite college admissions.`\
