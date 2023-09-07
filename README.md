@@ -3,7 +3,7 @@
 https://nytimes.com/2023/09/07/nyregion/mother-legal-marijuana-settlement.html?searchResultPosition=1
 
 **India’s Preparations for G20 Must Also Account for Monkeys**\
-`For India, monkeys are a minor problem, compared with poverty and pollution, but the government doesn’t want them stealing the spotlight when world leaders arrive.`\
+`For New Delhi, monkeys are a minor problem, compared with poverty and pollution, but the government doesn’t want them stealing the spotlight when world leaders arrive.`\
 https://nytimes.com/2023/09/07/world/asia/g20-summit-monkeys-india-delhi.html?searchResultPosition=2
 
 **Mayor Adams Says Migrant Crisis Will ‘Destroy New York City’**\
