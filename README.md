@@ -1,5 +1,5 @@
 **China’s Exports Fall for Fourth Straight Month**\
-`New data on trade showed continuing declines in both overseas sales and imports, signs of China’s continuing economic struggles.`\
+`New data on trade showed continuing declines in both overseas sales and imports, signs of China’s economic struggles.`\
 https://nytimes.com/2023/09/06/business/china-exports-august.html?searchResultPosition=1
 
 **U.S. Seized Iranian Oil Over Smuggling Incident That Escalated Tensions in Gulf**\
