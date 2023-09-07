@@ -12,7 +12,7 @@ https://nytimes.com/video/world/europe/100000009075739/central-greece-flooding.h
 
 **DeSantis and Ramaswamy Call Proud Boys’ Sentences ‘Excessive’ and ‘Wrong’**\
 `The two G.O.P. presidential candidates also floated the idea of pardoning some of the Jan. 6 defendants if they are elected.`\
-https://nytimes.com/2023/09/07/us/politics/desantis-and-ramaswamy-pardons-proud-boys.html?searchResultPosition=4
+https://nytimes.com/2023/09/07/us/politics/desantis-ramaswamy-proud-boys-pardons.html?searchResultPosition=4
 
 **Researchers Identify Jews Aided by Catholics in Nazi Era as Pope Was Silent**\
 `The names were found in documents recently studied by the Vatican, but historians say they don’t change the fundamental understanding of the church’s actions during the war.`\
