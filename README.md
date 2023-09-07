@@ -4,7 +4,7 @@ https://nytimes.com/2023/09/07/nyregion/nyc-heat-back-to-school.html?searchResul
 
 **France Extends a Welcome to Woody Allen, Louis C.K. and Johnny Depp**\
 `Under fire in America, Mr. Allen made his 50th film in and around Paris, where he was able to secure a deal, despite the sexual abuse accusations against him.`\
-https://nytimes.com/2023/09/07/style/france-extends-a-welcome-to-woody-allen-louis-ck-and-johnny-depp.html?searchResultPosition=2
+https://nytimes.com/2023/09/07/style/woody-allen-movie-france-sexual-abuse.html?searchResultPosition=2
 
 **N.Y.C. Schools Reimagine Reading This Fall to Fix Dismal Literacy Rates**\
 `A new semester means a whole new way of teaching reading at hundreds of schools in the nation’s largest school system.`\
