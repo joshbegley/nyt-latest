@@ -34,7 +34,7 @@ https://nytimes.com/2023/09/06/pageoneplus/quotation-of-the-day-to-make-fries-fl
 `An unseasonal stretch of extreme heat and humidity has left the stadiums at the Open sweltering. But a few players, Coco Gauff among them, say the hotter, the better.`\
 https://nytimes.com/2023/09/06/sports/tennis/us-open-heat-medvedev-gauff.html?searchResultPosition=9
 
-**We Know the Cure for Loneliness. So Why Do We Suffer?**\
+**One of the Best Things We Can Do for Our Health Is Free — and Fun**\
 `Britain’s minister for loneliness offers a model of how to knit together a lonely crowd.`\
 https://nytimes.com/2023/09/06/opinion/loneliness-epidemic-solutions.html?searchResultPosition=10
 
