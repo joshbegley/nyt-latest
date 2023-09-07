@@ -1,4 +1,4 @@
-**A Historic First for Mexico as Two Women Vie for Presidency**\
+**A Historic First for Mexico as Two Women Vie for the Presidency**\
 `Mexico will elect its first woman as president next year after the governing party chose Claudia Sheinbaum to square off against the opposition’s candidate, Xóchitl Gálvez.`\
 https://nytimes.com/2023/09/06/world/americas/mexico-women-president-candidates.html?searchResultPosition=1
 
