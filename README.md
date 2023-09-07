@@ -1,6 +1,6 @@
 **A Dozen Looted Artifacts Are Returned to Lebanon**\
 `Some of the pieces were seized from the Metropolitan Museum of Art and others from the New Jersey storage unit of a Lebanese collector and dealer.`\
-https://nytimes.com/2023/09/07/arts/a-dozen-looted-artifacts-are-returned-to-lebanon.html?searchResultPosition=1
+https://nytimes.com/2023/09/07/arts/looted-artifacts-lebanon.html?searchResultPosition=1
 
 **Prison Officials Say Human Error Played Role in Pennsylvania Escape**\
 `An officer who was in a watchtower is on administrative leave, as prison officials review what went wrong during Danelo Cavalcante’s escape last week.`\
