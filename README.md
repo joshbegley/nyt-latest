@@ -10,7 +10,7 @@ https://nytimes.com/live/2023/09/07/world/russia-ukraine-news/on-his-second-day-
 `Gauff, 19, is one match win away from making the U.S. Open singles final for the first time in her career.`\
 https://nytimes.com/2023/09/07/sports/tennis/usopen-gauff-muchova-semifinal-preview.html?searchResultPosition=3
 
-**Escalating His Rhetoric, Adams Says Migrants Will ‘Destroy New York’**\
+**Escalating His Rhetoric, Adams Says Migrant Crisis Will ‘Destroy New York’**\
 `In provocative remarks at a town hall meeting, Mayor Eric Adams said that he did not “see an ending” to the migrant crisis and renewed his push for federal help.`\
 https://nytimes.com/2023/09/07/nyregion/adams-migrants-destroy-nyc.html?searchResultPosition=4
 
