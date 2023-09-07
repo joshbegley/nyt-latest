@@ -27,7 +27,7 @@ https://nytimes.com/2023/09/07/movies/my-big-fat-greek-wedding-3-review-nopa.htm
 https://nytimes.com/2023/09/07/opinion/economy-china-america-decline.html?searchResultPosition=7
 
 **Patricia Caulfield, 91, Dies; Battled Warhol Over Use of Her Photograph**\
-`She sued the pop artist while she was executive editor of Modern Photography. She later travel the world as a nature photographer.`\
+`She sued the pop artist while she was executive editor of Modern Photography. She later traveled the world as a nature photographer.`\
 https://nytimes.com/2023/09/07/arts/patricia-caulfield-dead.html?searchResultPosition=8
 
 **What is Peptic Ulcer Disease?**\
