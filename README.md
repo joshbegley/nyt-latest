@@ -3,7 +3,7 @@
 https://nytimes.com/2023/09/07/world/africa/mali-islamist-attack-ferry-soldiers.html?searchResultPosition=1
 
 **Protest Stops U.S. Open Semifinal Match**\
-`The more than 40-minute delay during the match between Coco Gauff and Karolina Muchova appeared to be caused by environmental protesters.`\
+`The delay of more than 40 minutes during the match between Coco Gauff and Karolina Muchova appeared to be caused by environmental protesters.`\
 https://nytimes.com/2023/09/07/sports/tennis/protest-stops-us-open-semifinal-match.html?searchResultPosition=2
 
 **A Dozen Looted Artifacts Are Returned to Lebanon**\
