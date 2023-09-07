@@ -1,40 +1,40 @@
-**Back to School or Back to Summer? A Heat Wave Arrives Late to New York.**\
-`A three-day bout of extreme weather in the Northeast is sending temperatures 20 degrees higher than usual.`\
-https://nytimes.com/2023/09/07/nyregion/nyc-heat-back-to-school.html?searchResultPosition=1
+**Can India’s Global Ambitions Survive Its Deepening Chasms at Home?**\
+`India’s hosting of the G20 summit this weekend will put its growing power on display. But its leader’s divisive religious politics threatens its rise.`\
+https://nytimes.com/2023/09/07/world/asia/g20-india-modi.html?searchResultPosition=1
 
-**France Extends a Welcome to Woody Allen, Louis C.K. and Johnny Depp**\
-`Under fire in America, Mr. Allen made his 50th film in and around Paris, where he was able to secure a deal, despite the sexual abuse accusations against him.`\
-https://nytimes.com/2023/09/07/style/woody-allen-movie-france-sexual-abuse.html?searchResultPosition=2
+**DeSantis’s Immigration Law May Affect Hurricane Cleanup in Florida**\
+`Undocumented workers who once flocked to Florida to help remove debris and rebuild said they feared that a new immigration law could result in their deportation.`\
+https://nytimes.com/2023/09/07/us/florida-immigration-hurricane-cleanup.html?searchResultPosition=2
 
-**N.Y.C. Schools Reimagine Reading This Fall to Fix Dismal Literacy Rates**\
-`A new semester means a whole new way of teaching reading at hundreds of schools in the nation’s largest school system.`\
-https://nytimes.com/2023/09/07/nyregion/nyc-public-schools-reading.html?searchResultPosition=3
+**Who’s Really Paying to Bus Migrants From the Border?**\
+`Gov. Greg Abbott of Texas has run a high-profile campaign to send migrants to Los Angeles, New York and other cities. But they are a fraction of the number of new migrants boarding buses.`\
+https://nytimes.com/2023/09/07/us/migrant-buses.html?searchResultPosition=3
 
-**A Fashion ‘Prodigy’ Makes a Big Debut. No Pressure.**\
-`With his new post at Helmut Lang, can Peter Do bring the cool minimalism of the 1990s back to American fashion?`\
-https://nytimes.com/2023/09/07/style/peter-do-helmut-lang-nyfw.html?searchResultPosition=4
+**From Hoover to Nixon to Obama, Presidential Centers Call to Protect Democracy**\
+`A rare statement released jointly from groups representing nearly a century of presidents stresses the importance of the pillars of democracy and civility in politics.`\
+https://nytimes.com/2023/09/07/us/politics/presidential-centers-democracy-bush.html?searchResultPosition=4
 
-**The Concert**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2023/09/07/learning/the-concert.html?searchResultPosition=5
+**Two New Yorkers Hiked Up to the Hudson Valley With $700,000. Which House Was the Right Fit?**\
+`Knowing they would be competing against others from the city, a couple searched Ulster and Dutchess Counties for a house they could afford near the natural wonders they love.`\
+https://nytimes.com/interactive/2023/09/07/realestate/07hunt-poughkeepsie.html?searchResultPosition=5
 
-**How the N.F.L. Used Supercomputers to Set Its TV (and Streaming) Schedule**\
-`The N.F.L. leaned into optimizing its 2023 schedule for TV (and streaming), turning to high-powered computers rather than football tradition to create matchups.`\
-https://nytimes.com/2023/09/07/sports/football/nfl-tv-streaming-schedule.html?searchResultPosition=6
+**What Are Your Favorite Travel Hacks?**\
+`Have you mastered the credit card points game? Figured out how to waltz through security? Perfected the leisurely layover? Now, it’s your turn to teach us.`\
+https://nytimes.com/2023/09/07/travel/trip-advice-hacks-tips.html?searchResultPosition=6
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/09/07/crosswords/wordle-review-answer-810.html?searchResultPosition=7
+**10 Nail Trends to Try on Your Wedding Day**\
+`From manicures that make a splash to those that shine bright, here is a roundup of bridal nail art that goes beyond traditional hues of pale pink.`\
+https://nytimes.com/interactive/2023/09/07/style/nail-art-weddings.html?searchResultPosition=7
 
-**In Schools, an Invisible Threat Becomes Clear**\
-`Apoorva Mandavilli, a health and science reporter for The New York Times, traveled across the country to learn how educators are preparing for the next pandemic.`\
-https://nytimes.com/2023/09/07/insider/in-schools-an-invisible-threat-becomes-clear.html?searchResultPosition=8
+**New Corporate Minimum Tax Ushers In Confusion and a Lobbying Blitz**\
+`Large companies are bracing for the impact of a 15 percent tax that went into effect this year.`\
+https://nytimes.com/2023/09/07/business/corporate-minimum-tax-impact.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/09/07/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**How Ben Sasse Became a Combatant in Florida’s Education Wars**\
+`As Ron DeSantis has turned public education into a political battleground, his state’s flagship university, now led by the former G.O.P. senator from Nebraska, has not remained neutral territory.`\
+https://nytimes.com/2023/09/07/magazine/ben-sasse-university-florida.html?searchResultPosition=9
 
-**How the Pennsylvania Fugitive Scaled a Prison Wall and Escaped**\
-`Surveillance video released by the police shows the convicted killer wedging himself between two opposing walls and propelling himself upward.`\
-https://nytimes.com/2023/09/07/us/danelo-cavalcante-scaled-wall-escape.html?searchResultPosition=10
+**How Does a Best-Selling Author Name Her Characters?**\
+`Lisa Jewell puts a great deal of thought into the monikers she chooses for the people who populate her books. Here are her rules of thumb.`\
+https://nytimes.com/2023/09/07/books/review/none-of-this-is-true-lisa-jewell.html?searchResultPosition=10
 
