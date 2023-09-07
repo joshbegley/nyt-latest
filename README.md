@@ -1,5 +1,5 @@
 **Extreme Weather in Greece Traps Residents and Submerges Villages**\
-`Greek military forces were called in to assist the rescue efforts. At least four people in Greece and at least eight in neighboring Turkey have died this week amid torrential rains and flooding.`\
+`Greek military forces were called in to assist the rescue efforts. At least four people in Greece and at least nine in neighboring Turkey have died this week amid torrential rains and flooding.`\
 https://nytimes.com/2023/09/07/world/europe/greece-turkey-floods.html?searchResultPosition=1
 
 **What’s Going On in This Graph? | Sept. 13, 2023**\
