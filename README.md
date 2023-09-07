@@ -23,7 +23,7 @@ https://nytimes.com/2023/09/07/world/africa/sudan-refugees-south-sudan.html?sear
 https://nytimes.com/2023/09/07/world/europe/ukraine-cluster-munitions.html?searchResultPosition=6
 
 **N.F.L. Week 1 Predictions: Our Picks Against the Spread**\
-`The Packers-Bears rivalry begins anew, the Chiefs start their title defense and the hyped-up Jets will be tested against the Bills in a strong slate of games.`\
+`The Packers-Bears rivalry begins anew, the Chiefs start their title defense, and the hyped-up Jets will be tested against the Bills in a strong slate of games.`\
 https://nytimes.com/2023/09/07/sports/football/nfl-picks-week-1.html?searchResultPosition=7
 
 **Abortions Rose in Most States This Year, New Data Shows**\
