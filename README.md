@@ -10,7 +10,7 @@ https://nytimes.com/2023/09/08/books/sarah-young-dead.html?searchResultPosition=
 `The American was accused of donating money to the jailed opposition leader’s Anti-Corruption Foundation, which the Russian government considers an extremist organization.`\
 https://nytimes.com/2023/09/08/us/a-us-citizen-is-among-navalny-supporters-detained-in-russia.html?searchResultPosition=3
 
-**This is how Ukraine has made vital use of Space X’s Starlink system.**\
+**This is how Ukraine has made vital use of SpaceX’s Starlink system.**\
 `By Andrew E. Kramer`\
 https://nytimes.com/live/2023/09/08/world/russia-ukraine-news/this-is-how-ukraine-has-made-vital-use-of-space-xs-starlink-system?searchResultPosition=4
 
