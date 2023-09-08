@@ -26,7 +26,7 @@ https://nytimes.com/2023/09/08/crosswords/spelling-bee-forum.html?searchResultPo
 `The labor action at liquefied natural gas plants, responsible for about 6 percent of the world’s supply of the fuel, came as talks over pay and work conditions stalled.`\
 https://nytimes.com/2023/09/08/business/energy-environment/chevron-lng-strike.html?searchResultPosition=7
 
-**Storms Deluge Hong Kong and Southern Chinese Cities**\
+**Storms Deluge Hong Kong and Other Southern Chinese Cities**\
 `Rainstorms caused by remnants of Typhoon Haikui, which had been churning along the Chinese coast, submerged roads and homes, and set rainfall records.`\
 https://nytimes.com/2023/09/08/world/asia/china-hong-kong-floods.html?searchResultPosition=8
 
