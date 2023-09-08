@@ -10,7 +10,7 @@ https://nytimes.com/video/world/europe/100000009077000/ukraine-kryvyi-rih-strike
 `In a potentially troubling sign for the industry, wind farm developers declined to bid. They say rising costs make the terms offered by the government unreasonable.`\
 https://nytimes.com/2023/09/08/business/no-bidders-in-british-offshore-wind-auction.html?searchResultPosition=3
 
-**Tahesha Way Is Sworn In as New Jersey Lieutenant Governor**\
+**Tahesha Way Is Named New Jersey Lieutenant Governor**\
 `Ms. Way, New Jersey’s secretary of state, was selected for the post after Sheila Y. Oliver, the former lieutenant governor, died in office Aug. 1.`\
 https://nytimes.com/2023/09/08/nyregion/tahesha-way-nj-lieutenant-governor.html?searchResultPosition=4
 
