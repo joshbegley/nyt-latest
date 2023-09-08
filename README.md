@@ -2,7 +2,7 @@
 `The government declared three days of mourning after the attacks on a passenger ferry and a military camp. At least 49 civilians and 15 soldiers were killed.`\
 https://nytimes.com/2023/09/07/world/africa/mali-islamist-attack-ferry-soldiers.html?searchResultPosition=1
 
-**Protest Stops U.S. Open Semifinal Match**\
+**Environmental Protest Stops U.S. Open Semifinal Match**\
 `The delay of more than 40 minutes during the match between Coco Gauff and Karolina Muchova appeared to be caused by environmental protesters.`\
 https://nytimes.com/2023/09/07/sports/tennis/protest-stops-us-open-semifinal-match.html?searchResultPosition=2
 
