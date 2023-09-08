@@ -26,7 +26,7 @@ https://nytimes.com/2023/09/08/business/media/jimmy-fallon-workplace-tonight-sho
 `Hear songs from her new LP in conversation with ones from the past.`\
 https://nytimes.com/2023/09/08/arts/music/amplifier-newsletter-olivia-rodrigo-guts.html?searchResultPosition=7
 
-**Murder Suspect Missing After Escaping From D.C. Hospital**\
+**Murder Suspect Is Missing After Escape From D.C. Hospital**\
 `The authorities are searching for Christopher Haynes, who, the police said, assaulted an officer and fled from a hospital where he had been taken for treatment.`\
 https://nytimes.com/2023/09/08/us/dc-murder-suspect-hospital-escape.html?searchResultPosition=8
 
