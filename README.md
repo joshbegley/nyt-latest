@@ -23,7 +23,7 @@ https://nytimes.com/live/2023/09/08/world/russia-ukraine-news/the-us-will-expand
 https://nytimes.com/2023/09/08/podcasts/the-daily/johannesburg-fires.html?searchResultPosition=6
 
 **After Prigozhin’s Death, a High-Stakes Scramble for His Empire**\
-`A shadowy fight is playing out on three continents for control of Yevgeny Prigozhin’s sprawling interests as head of the Wagner mercenary group. The biggest prize: His lucrative operations in Africa.`\
+`A shadowy fight is playing out on three continents for control of Yevgeny Prigozhin’s sprawling interests as head of the Wagner mercenary group. The biggest prize: his lucrative operations in Africa.`\
 https://nytimes.com/2023/09/08/world/europe/prigozhin-wagner-russia-africa.html?searchResultPosition=7
 
 **Today’s Top News: Biden’s Ambitions at the G20, and More**\
