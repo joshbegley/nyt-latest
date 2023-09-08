@@ -27,7 +27,7 @@ https://nytimes.com/2023/09/07/crosswords/daily-puzzle-2023-09-08.html?searchRes
 https://nytimes.com/2023/09/07/world/africa/mali-islamist-attack-ferry-soldiers.html?searchResultPosition=7
 
 **Protest Stops U.S. Open Semifinal Match**\
-`The delay of 49 minutes during the match between Coco Gauff and Karolina Muchova appeared to be caused by environmental protesters, including one who glued his feet to the ground.`\
+`The delay of 49 minutes during the match between Coco Gauff and Karolina Muchova was caused by environmental protesters, including one who glued his feet to the ground.`\
 https://nytimes.com/2023/09/07/sports/tennis/protest-stops-us-open-semifinal-match.html?searchResultPosition=8
 
 **A Dozen Looted Artifacts Are Returned to Lebanon**\
