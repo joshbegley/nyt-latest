@@ -1,4 +1,4 @@
-**Race to Be Trump’s Running Mate Kicks Off With a Likely Noem Endorsement**\
+**Race to Be Trump’s Running Mate Begins, With Noem Likely to Endorse Him**\
 `Gov. Kristi Noem of South Dakota is likely to issue a Friday endorsement of the former president, whose large lead in polls has stirred speculation about the No. 2 job.`\
 https://nytimes.com/2023/09/08/us/politics/kristi-noem-trump.html?searchResultPosition=1
 
