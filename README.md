@@ -10,31 +10,31 @@ https://nytimes.com/2023/09/08/nyregion/congestion-pricing-.html?searchResultPos
 `“We are in a climate change emergency,” said Rohit T. Aggarwala. “And two things are unhelpful in an emergency: Panic and despair.”`\
 https://nytimes.com/2023/09/08/nyregion/nyc-climate-rohit-aggarwala.html?searchResultPosition=3
 
-**At the U.S. Open, a Tennis Reporter on Familiar Grounds**\
-`Matthew Futterman, a Sports journalist, reflects on his many years attending, and later, covering, the Grand Slam tournament in Flushing, Queens.`\
-https://nytimes.com/2023/09/08/insider/us-open-tennis-reporter.html?searchResultPosition=4
-
 **Land, Man and Sky**\
 `This photo was in the news this week. Do you know why?`\
-https://nytimes.com/2023/09/08/learning/land-man-and-sky.html?searchResultPosition=5
+https://nytimes.com/2023/09/08/learning/land-man-and-sky.html?searchResultPosition=4
 
 **Today’s Wordle Review**\
 `Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/09/08/crosswords/wordle-review-answer-811.html?searchResultPosition=6
+https://nytimes.com/2023/09/08/crosswords/wordle-review-answer-811.html?searchResultPosition=5
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/09/08/crosswords/spelling-bee-forum.html?searchResultPosition=7
-
-**Hundreds Halt Work at Three Energy Plants in Australia**\
-`The labor action at liquefied natural gas plants, responsible for about 6 percent of the world’s supply of the fuel, came as talks over pay and work conditions stalled.`\
-https://nytimes.com/2023/09/08/business/energy-environment/chevron-lng-strike.html?searchResultPosition=8
+https://nytimes.com/2023/09/08/crosswords/spelling-bee-forum.html?searchResultPosition=6
 
 **Storms Deluge Hong Kong and Other Southern Chinese Cities**\
 `Rainstorms caused by remnants of Typhoon Haikui, which had been churning along the Chinese coast, submerged roads and homes, and set rainfall records.`\
-https://nytimes.com/2023/09/08/world/asia/china-hong-kong-floods.html?searchResultPosition=9
+https://nytimes.com/2023/09/08/world/asia/china-hong-kong-floods.html?searchResultPosition=7
 
 **Word of the Day: verdant**\
 `This word has appeared in 128 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/09/08/learning/word-of-the-day-verdant.html?searchResultPosition=10
+https://nytimes.com/2023/09/08/learning/word-of-the-day-verdant.html?searchResultPosition=8
+
+**Lions Dare Their Way to a Win Over Short-Handed Chiefs**\
+`Detroit benefited from a fake punt and dropped passes from Kansas City’s wide receivers to beat Patrick Mahomes and the Chiefs to open the N.F.L. season.`\
+https://nytimes.com/2023/09/08/sports/football/lions-chiefs-score.html?searchResultPosition=9
+
+**What to See in N.Y.C. Galleries in September**\
+`Want to see new art in New York this weekend? Check out an exhibition at Mishkin Gallery that pays homage to Puerto Rican art. And at MoMA PS1, in Queens, two artists explore their Aymaran roots.`\
+https://nytimes.com/2023/09/08/arts/design/what-to-see-in-nyc-galleries-in-september.html?searchResultPosition=10
 
