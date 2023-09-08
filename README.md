@@ -19,7 +19,7 @@ https://nytimes.com/2023/09/08/briefing/g20-new-delhi-drones-russia.html?searchR
 https://nytimes.com/2023/09/08/nyregion/satie-nyu-piano.html?searchResultPosition=5
 
 **Grim Reality in Maui: Hundreds Still on Missing List a Month After Inferno**\
-`The F.B.I. says that 380 people remain unaccounted for. Many residents have begun to accept that their loved ones will not be coming back, and survivors wonder what comes next.`\
+`The F.B.I. says more than 380 people remain unaccounted for. Many residents have begun to accept that their loved ones will not be coming back, and survivors wonder what comes next.`\
 https://nytimes.com/2023/09/08/us/lahaina-fire-families.html?searchResultPosition=6
 
 **When ‘the Academic Girl’ Meets ‘the Popular Guy’**\
