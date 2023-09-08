@@ -15,7 +15,7 @@ https://nytimes.com/video/world/europe/100000009077000/ukraine-kryvyi-rih-strike
 https://nytimes.com/2023/09/08/business/no-bidders-in-british-offshore-wind-auction.html?searchResultPosition=4
 
 **Tahesha Way Is Sworn In as New Jersey Lieutenant Governor**\
-`Ms. Way, New Jersey’s secretary of state, was selected for the post after Sheila Y. Oliver, the former lieutenant governor, died in office Aug. 1.`\
+`Ms. Way, who was New Jersey’s secretary of state, was selected for the post after Sheila Y. Oliver, the former lieutenant governor, died in office Aug. 1.`\
 https://nytimes.com/2023/09/08/nyregion/tahesha-way-nj-lieutenant-governor.html?searchResultPosition=5
 
 **Climate Report Card Says Countries Are Trying, but Urgently Need Improvement**\
