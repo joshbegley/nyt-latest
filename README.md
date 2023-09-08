@@ -14,8 +14,8 @@ https://nytimes.com/2023/09/08/business/no-bidders-in-british-offshore-wind-auct
 `Ms. Way, New Jersey’s secretary of state, was selected for the post after Sheila Y. Oliver, the former lieutenant governor, died in office Aug. 1.`\
 https://nytimes.com/2023/09/08/nyregion/tahesha-way-nj-lieutenant-governor.html?searchResultPosition=4
 
-**World’s Climate Report Card Says We’re Trying, but Urgently Need Improvement**\
-`The assessment, two years in the making, is the first official gauge of progress under the 2015 Paris Agreement.`\
+**Climate Report Card Says Countries Are Trying, but Urgently Need Improvement**\
+`The global assessment, two years in the making, is the first official gauge of progress under the 2015 Paris Agreement.`\
 https://nytimes.com/2023/09/08/climate/paris-agreement-stocktake.html?searchResultPosition=5
 
 **A Sudden Bond Binge on Wall St. Reflects Rising Optimism**\
