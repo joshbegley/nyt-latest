@@ -30,7 +30,7 @@ https://nytimes.com/2023/09/08/opinion/industrial-policy-biden.html?searchResult
 `A new addition to the list of bad date villains.`\
 https://nytimes.com/2023/09/08/style/the-tabi-swiper-vs-tiktoks-vigilantes.html?searchResultPosition=8
 
-**Zelensky says continued U.S. aid for war is riding on 2024 presidential race.**\
+**Zelensky says Russia is counting on the U.S. elections to stop flow of aid to Ukraine.**\
 `By Andrew E. Kramer`\
 https://nytimes.com/live/2023/09/08/world/russia-ukraine-news/zelensky-says-continued-us-aid-for-war-is-riding-on-2024-presidential-race?searchResultPosition=9
 
