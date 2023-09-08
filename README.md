@@ -1,4 +1,4 @@
-**Lions Dare Their Way to a Win Over Short-handed Chiefs**\
+**Lions Dare Their Way to a Win Over Short-Handed Chiefs**\
 `Detroit benefited from a fake punt and dropped passes from Kansas City’s wide receivers to beat Patrick Mahomes and the Chiefs to open the N.F.L. season.`\
 https://nytimes.com/2023/09/08/sports/football/lions-chiefs-score.html?searchResultPosition=1
 
