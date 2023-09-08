@@ -1,22 +1,22 @@
+**Lions Dare Their Way to a Win Over Short-handed Chiefs**\
+`Detroit benefited from a fake punt and dropped passes from Kansas City’s wide receivers to beat Patrick Mahomes and the Chiefs to open the N.F.L. season.`\
+https://nytimes.com/2023/09/08/sports/football/lions-chiefs-score.html?searchResultPosition=1
+
 **What to See in N.Y.C. Galleries in September**\
 `Want to see new art in New York this weekend? Check out an exhibition at Mishkin Gallery that pays homage to Puerto Rican art. And at MoMA PS1, in Queens, two artists explore their Aymaran roots.`\
-https://nytimes.com/2023/09/08/arts/design/what-to-see-in-nyc-galleries-in-september.html?searchResultPosition=1
+https://nytimes.com/2023/09/08/arts/design/what-to-see-in-nyc-galleries-in-september.html?searchResultPosition=2
 
 **Friday Briefing**\
 `The G20 summit in New Delhi.`\
-https://nytimes.com/2023/09/08/briefing/g20-new-delhi-drones-russia.html?searchResultPosition=2
+https://nytimes.com/2023/09/08/briefing/g20-new-delhi-drones-russia.html?searchResultPosition=3
 
 **Why 24 Pianists Are Playing the Same Piece 840 Times**\
 `A French composer specified that his composition be repeated hundreds of times. His wishes will be followed at N.Y.U. today.`\
-https://nytimes.com/2023/09/08/nyregion/satie-nyu-piano.html?searchResultPosition=3
+https://nytimes.com/2023/09/08/nyregion/satie-nyu-piano.html?searchResultPosition=4
 
 **One Month After the Lahaina Fire, Families and Residents Seek Closure**\
 `More than 380 people remain on the F.B.I.’s official list of missing people, while surviving residents wonder what comes next and wait for a glimpse of their burned homes.`\
-https://nytimes.com/2023/09/08/us/lahaina-fire-families.html?searchResultPosition=4
-
-**When ‘the Academic Girl’ Meets ‘the Popular Guy’**\
-`Ladi Fatade felt an instant attraction to Kimberly Alexander after seeing her dating app profile three years ago. “It gave me a window into her personality,” he said.`\
-https://nytimes.com/2023/09/08/style/kimberly-alexander-ladi-fatade-wedding.html?searchResultPosition=5
+https://nytimes.com/2023/09/08/us/lahaina-fire-families.html?searchResultPosition=5
 
 **Offscreen, They Got Their Perfect Ending**\
 `When KJ Smith and Skyh Black first met on the set of the TV show “Sistas,” Covid precautions kept them apart. After exchanging numbers months later, their story extended beyond the screen.`\
