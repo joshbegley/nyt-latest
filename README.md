@@ -1,40 +1,40 @@
+**F.A.A. Spells Out Needed Fixes for SpaceX’s Starship Rocket**\
+`The agency closed an investigation into what went wrong during an April flight of the massive spacecraft that NASA will rely on to land astronauts on the moon.`\
+https://nytimes.com/2023/09/08/science/spacex-starship-faa-launch.html?searchResultPosition=1
+
 **The Subtlety of J.R.R. Tolkien**\
 `Does ‘The Lord of the Rings’ paint exclusively in black and white?`\
-https://nytimes.com/2023/09/08/opinion/jrr-tolkien.html?searchResultPosition=1
+https://nytimes.com/2023/09/08/opinion/jrr-tolkien.html?searchResultPosition=2
 
 **The Best Grape Jelly Is Homemade**\
 `Concord grape season is a short one, but you can extend it by making this delicious preserve, Yewande Komolafe writes.`\
-https://nytimes.com/2023/09/08/dining/concord-grape-jelly-recipe.html?searchResultPosition=2
+https://nytimes.com/2023/09/08/dining/concord-grape-jelly-recipe.html?searchResultPosition=3
 
 **Amid Reading Wars, Columbia Will Close a Star Professor’s Shop**\
 `Lucy Calkins ran a beloved — and criticized — center at Teachers College for four decades. It is being dissolved.`\
-https://nytimes.com/2023/09/08/us/lucy-calkins-teachers-college.html?searchResultPosition=3
+https://nytimes.com/2023/09/08/us/lucy-calkins-teachers-college.html?searchResultPosition=4
 
 **Justice Alito Rejects Calls for Recusal After Interviews in Wall Street Journal**\
 `The justice dismissed demands from Democratic legislators that he recuse himself from a pending case involving a lawyer who interviewed him.`\
-https://nytimes.com/2023/09/08/us/politics/alito-recusal-wall-street-journal.html?searchResultPosition=4
+https://nytimes.com/2023/09/08/us/politics/alito-recusal-wall-street-journal.html?searchResultPosition=5
 
 **Race to Be Trump’s Running Mate Begins, With Noem Likely to Endorse Him**\
 `Gov. Kristi Noem of South Dakota is likely to issue a Friday endorsement of the former president, whose large lead in polls has stirred speculation about the No. 2 job.`\
-https://nytimes.com/2023/09/08/us/politics/kristi-noem-trump.html?searchResultPosition=5
+https://nytimes.com/2023/09/08/us/politics/kristi-noem-trump.html?searchResultPosition=6
 
 **How a Company That Makes Gun Safes Angered Gun Owners**\
 `Liberty Safe faced intense criticism this week after it acknowledged that it had voluntarily given the F.B.I. the access code to a safe in response to a search warrant for a property.`\
-https://nytimes.com/2023/09/08/business/liberty-safe-codes.html?searchResultPosition=6
+https://nytimes.com/2023/09/08/business/liberty-safe-codes.html?searchResultPosition=7
 
 **The Rolling Stones Roar Back, and 13 More New Songs**\
 `Hear tracks by Allison Russell, Cardi B featuring Megan Thee Stallion, Ashley McBryde and others.`\
-https://nytimes.com/2023/09/08/arts/music/playlist-rolling-stones-cardi-b-megan-thee-stallion.html?searchResultPosition=7
+https://nytimes.com/2023/09/08/arts/music/playlist-rolling-stones-cardi-b-megan-thee-stallion.html?searchResultPosition=8
 
 **Manchin Mulls His Political Future, Keeping Washington Guessing**\
 `The West Virginia Democrat could run for re-election to the Senate, make a third-party presidential bid or simply retire from politics. To his party’s consternation, he’s not ready to say which.`\
-https://nytimes.com/2023/09/08/us/politics/joe-manchin-future.html?searchResultPosition=8
+https://nytimes.com/2023/09/08/us/politics/joe-manchin-future.html?searchResultPosition=9
 
 **News Analysis: North Korea finds new leverage in the war in Ukraine.**\
 `Kim Jong-un is likely to seek missile and warhead technology in an expected visit to Russia, and he is already getting a public embrace he has long sought.`\
-https://nytimes.com/live/2023/09/08/world/russia-ukraine-news/news-analysis-north-korea-finds-new-leverage-in-the-war-in-ukraine?searchResultPosition=9
-
-**Lockheed Martin, but Make It Fashion**\
-`The American defense contractor, best known as the world’s largest arms dealer, is getting into the streetwear business.`\
-https://nytimes.com/2023/09/08/style/lockheed-martin-fashion.html?searchResultPosition=10
+https://nytimes.com/live/2023/09/08/world/russia-ukraine-news/news-analysis-north-korea-finds-new-leverage-in-the-war-in-ukraine?searchResultPosition=10
 
