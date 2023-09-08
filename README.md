@@ -1,6 +1,6 @@
 **Trump Is Said to Have Told Blake Masters He’d Lose Senate Primary to Kari Lake**\
 `Neither potential candidate has entered the race to unseat Senator Kyrsten Sinema in Arizona.`\
-https://nytimes.com/2023/09/08/us/politics/trump-is-said-to-have-told-blake-masters-hed-lose-senate-primary-to-kari-lake.html?searchResultPosition=1
+https://nytimes.com/2023/09/08/us/politics/trump-blake-masters-kari-lake-primary-arizona.html?searchResultPosition=1
 
 **Judge Denies Meadows’s Request to Move Georgia Case to Federal Court**\
 `Moving the case to federal court would have given Mark Meadows, a former White House chief of staff, one key advantage: a jury pool that was more favorable to Donald J. Trump.`\
