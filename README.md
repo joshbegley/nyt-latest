@@ -18,8 +18,8 @@ https://nytimes.com/2023/09/08/briefing/g20-new-delhi-drones-russia.html?searchR
 `A French composer specified that his composition be repeated hundreds of times. His wishes will be followed at N.Y.U. today.`\
 https://nytimes.com/2023/09/08/nyregion/satie-nyu-piano.html?searchResultPosition=5
 
-**One Month After the Lahaina Fire, Families and Residents Seek Closure**\
-`More than 380 people remain on the F.B.I.’s official list of missing people, while surviving residents wonder what comes next and wait for a glimpse of their burned homes.`\
+**Grim Reality in Maui: Hundreds Still on Missing List a Month After Inferno**\
+`The F.B.I. says that 380 people remain unaccounted for. Many residents have begun to accept that their loved ones will not be coming back, and survivors wonder what comes next.`\
 https://nytimes.com/2023/09/08/us/lahaina-fire-families.html?searchResultPosition=6
 
 **When ‘the Academic Girl’ Meets ‘the Popular Guy’**\
