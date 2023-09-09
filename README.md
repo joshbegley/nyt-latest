@@ -10,7 +10,7 @@ https://nytimes.com/2023/09/09/us/deportation-pennsylvania-fugitive-danelo-caval
 `Known as Dr. Max (he was not a medical doctor. but had a Ph.D. in neuroscience), he reported on health and science with an easygoing gravitas.`\
 https://nytimes.com/2023/09/09/business/media/max-gomez-dead.html?searchResultPosition=3
 
-**After a deadly quake, tourists and locals are both on uncharted ground.**\
+**After a deadly quake, residents and tourists are both on uncharted ground.**\
 `By Aurelien Breeden and Catie Edmondson`\
 https://nytimes.com/live/2023/09/09/world/morocco-earthquake-marrakesh/after-a-deadly-quake-tourists-and-locals-are-both-on-uncharted-ground?searchResultPosition=4
 
