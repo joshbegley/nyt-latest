@@ -6,7 +6,7 @@ https://nytimes.com/2023/09/08/crosswords/daily-puzzle-2023-09-09.html?searchRes
 `A Fifth Circuit panel partly upheld restrictions on the Biden administration’s communications with online platforms about their content.`\
 https://nytimes.com/2023/09/08/business/appeals-court-first-amendment-social-media.html?searchResultPosition=2
 
-**About 100 Killed as Strong Quake Strikes Morocco, Military Says**\
+**Nearly 300 Killed as Strong Quake Strikes Morocco, Military Says**\
 `The armed forces released a preliminary toll after shaking was felt from Rabat to Marrakesh.`\
 https://nytimes.com/2023/09/08/world/africa/morocco-earthquake-marrakesh.html?searchResultPosition=3
 
