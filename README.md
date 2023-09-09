@@ -26,7 +26,7 @@ https://nytimes.com/live/2023/09/09/world/morocco-earthquake-marrakesh/in-photos
 `By Maya Wei-Haas and Constant Méheut`\
 https://nytimes.com/live/2023/09/09/world/morocco-earthquake-marrakesh/measurements-of-the-earthquakes-precise-strength-could-shift-in-the-coming-days?searchResultPosition=7
 
-**Via his cabinet, Morocco’s King Mohammed VI issues his first statement.**\
+**Via his cabinet, King Mohammed VI of Morocco issues his first statement.**\
 `By Vivian Yee`\
 https://nytimes.com/live/2023/09/09/world/morocco-earthquake-marrakesh/the-moroccan-king-takes-a-low-profile-after-the-quake?searchResultPosition=8
 
