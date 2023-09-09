@@ -1,40 +1,40 @@
-**Tensions deepen between China and India as Xi skips the summit.**\
-`By Sameer Yasir`\
-https://nytimes.com/live/2023/09/09/world/g20-summit-india/tensions-deepen-between-china-and-india-as-xi-skips-the-summit?searchResultPosition=1
+**A Physical and Spiritual Awakening (but No Steady Paycheck)**\
+`To make a company, George Balanchine first needed to make dancers. At 75, New York City Ballet pays tribute to its dancers, including three who were there at the start.`\
+https://nytimes.com/2023/09/09/arts/dance/new-york-city-ballet-dancers-1948.html?searchResultPosition=1
 
-**How a Chef and Bronx Evangelist Spends His Sundays**\
-`Pierre Serrao, co-founder of the Bronx culinary collective Ghetto Gastro, catches up with friends over a homemade feast.`\
-https://nytimes.com/2023/09/09/nyregion/ghetto-gastro-pierre-serrao.html?searchResultPosition=2
+**The Long Life and Long Reach of George Balanchine’s Butterflies**\
+`Balanchine didn’t think his ballets would last. But many have become classics, the cornerstone of repertory not just at City Ballet but around the world.`\
+https://nytimes.com/2023/09/09/arts/dance/george-balanchine-new-york-city-ballet-legacy.html?searchResultPosition=2
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/09/09/crosswords/wordle-review-answer-812.html?searchResultPosition=3
+**‘Stop Making Sense’ Is Back, and Talking Heads Have More to Say**\
+`The 40th-anniversary restoration of a great concert film is a funk spectacle. It has also united the band, which split in 1991, to discuss a landmark achievement.`\
+https://nytimes.com/2023/09/09/arts/music/talking-heads-stop-making-sense.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/09/09/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**New York City Ballet Was in Peril. Then Came a Revival.**\
+`The company has rebounded after the pandemic and a series of scandals, stabilizing its finances, revamping its culture and attracting younger audiences.`\
+https://nytimes.com/2023/09/09/arts/dance/new-york-city-ballet-75th-anniversary.html?searchResultPosition=4
 
-**Serious earthquakes have hit Morocco before.**\
-`By John Yoon`\
-https://nytimes.com/live/2023/09/09/world/morocco-earthquake-marrakesh/serious-earthquakes-have-hit-morocco-before?searchResultPosition=5
+**My Windows Are Filthy and the Landlord Won’t Clean Them**\
+`It’s not just dirt that dims city views. Windows are often caked in air pollutants that pose a health hazard.`\
+https://nytimes.com/2023/09/09/realestate/windows-cleaners-apartment-landlord-nyc.html?searchResultPosition=5
 
-**Expect more pressure on rich countries to help poorer ones deal with climate change.**\
-`By Mike Ives and Alex Travelli`\
-https://nytimes.com/live/2023/09/09/world/g20-summit-india/expect-more-pressure-on-rich-countries-to-help-poorer-ones-deal-with-climate-change?searchResultPosition=6
+**Why Some Ex-Workers at Bed Bath & Beyond Face 401(k) Losses**\
+`Federal law generally protects retirement savings when a company files for bankruptcy. But that’s not always the case.`\
+https://nytimes.com/2023/09/09/your-money/bed-bath-beyond-employees-401k.html?searchResultPosition=6
 
-**As the G20 invites the African Union to join, the ‘Global South’ continues its advance.**\
-`By Damien Cave`\
-https://nytimes.com/live/2023/09/09/world/g20-summit-india/as-the-g20-invites-the-african-union-to-join-the-global-south-continues-its-advance?searchResultPosition=7
+**States’ Paid Leave Plans Could Help Protect Caregivers’ Savings**\
+`It’s not unusual for people caring for family members to tap their retirement accounts or go into debt to pay bills. Some states are trying to help them avoid that.`\
+https://nytimes.com/2023/09/09/business/retirement-paid-leave-caregiving.html?searchResultPosition=7
 
-**The earthquake was the strongest to hit the area in well over a century.**\
-`By Mike Ives`\
-https://nytimes.com/live/2023/09/09/world/morocco-earthquake-marrakesh/the-earthquake-was-the-strongest-to-hit-the-area-in-well-over-a-century?searchResultPosition=8
+**A Miracle in Missouri? The Nun Who Put Her Abbey on the Map.**\
+`Four years after her death, the body of Sister Wilhelmina Lancaster has not decomposed, her fellow nuns said. Believers come from all over to see for themselves.`\
+https://nytimes.com/2023/09/09/us/missouri-nun-habit.html?searchResultPosition=8
 
-**Mangosuthu Buthelezi, Zulu Nationalist and a Mandela Rival, Dies at 95**\
-`He was a powerful force as apartheid ended and bargaining over South Africa’s future began, emerging as a voice for tribal and ethnic rights, and powers for regional governments.`\
-https://nytimes.com/2023/09/09/obituaries/mangosuthu-buthelezi-dead.html?searchResultPosition=9
+**The 19th Century’s Most Scandalous Painting Comes to New York**\
+`“Olympia,” the brothel scene that birthed modern art, crosses the Atlantic for the first time in the Met exhibition “Manet/Degas.”`\
+https://nytimes.com/2023/09/09/arts/design/olympia-manet-degas-new-york-met-museum.html?searchResultPosition=9
 
-**Here’s the latest on the G20 gathering in India.**\
-`By Mujib Mashal and Katie Rogers`\
-https://nytimes.com/live/2023/09/09/world/g20-summit-india/heres-the-latest-on-the-g20-gathering-in-india?searchResultPosition=10
+**An Electric Novel About Space, a Poignant Story About Loss**\
+`In her new novel, “Digging Stars,” Novuyo Rosa Tshuma explores science, identity and grief through a young astronomer who immigrates to America after her father dies mysteriously.`\
+https://nytimes.com/2023/09/09/books/review/digging-stars-novuyo-rosa-tshuma.html?searchResultPosition=10
 
