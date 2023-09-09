@@ -1,4 +1,4 @@
-**Mangosuthu Buthelezi, Zulu Chief and Formidable Leader of Inkatha, Dies at 95**\
+**Mangosuthu Buthelezi, Zulu Nationalist and a Mandela Rival, Dies at 95**\
 `He was a powerful force as apartheid ended and bargaining over South Africa’s future began, emerging as a voice for tribal and ethnic rights, and powers for regional governments.`\
 https://nytimes.com/2023/09/09/obituaries/mangosuthu-buthelezi-dead.html?searchResultPosition=1
 
