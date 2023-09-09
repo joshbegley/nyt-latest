@@ -18,13 +18,13 @@ https://nytimes.com/live/2023/09/09/world/morocco-earthquake-marrakesh/many-buil
 `By Elian Peltier`\
 https://nytimes.com/live/2023/09/09/world/g20-summit-india/the-african-union-gets-a-long-sought-voice-on-the-global-stage?searchResultPosition=5
 
-**I’m Not a Joiner. Was I Born That Way?**\
-`Is it personality, nurture, life stage or even genes that make one long to be part of groups?`\
-https://nytimes.com/2023/09/09/opinion/religion-joiners-nones.html?searchResultPosition=6
-
 **Saudi Arabia Is Pouring Money in Sports. Is Tennis Next?**\
 `Despite the popularity of tennis, its business has struggled.`\
-https://nytimes.com/2023/09/09/business/dealbook/tennis-business-saudi-arabia.html?searchResultPosition=7
+https://nytimes.com/2023/09/09/business/dealbook/tennis-business-saudi-arabia.html?searchResultPosition=6
+
+**I’m Not a Joiner. Was I Born That Way?**\
+`Is it personality, nurture, life stage or even genes that make one long to be part of groups?`\
+https://nytimes.com/2023/09/09/opinion/religion-joiners-nones.html?searchResultPosition=7
 
 **Tumultuous Family Stories, Two Ways**\
 `Dissolving a marriage; raising a granddaughter.`\
