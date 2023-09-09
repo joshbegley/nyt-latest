@@ -26,7 +26,7 @@ https://nytimes.com/live/2023/09/09/world/morocco-earthquake-marrakesh/rescue-ef
 `Here’s how to contribute to organizations that are aiding the rescue and recovery efforts in Morocco.`\
 https://nytimes.com/2023/09/09/world/africa/how-to-help-victims-morocco-earthquake.html?searchResultPosition=7
 
-**The U.S. Open Men’s Singles We Only Half Expected: Djokovic vs. Medvedev**\
+**The U.S. Open Men’s Singles Final We Only Half Expected: Djokovic vs. Medvedev**\
 `Novak Djokovic will be playing for his 24th Grand Slam title. Daniil Medvedev will be conjuring his 2021 Open outcome.`\
 https://nytimes.com/2023/09/09/sports/tennis/us-open-alcaraz-djokovic-final-preview.html?searchResultPosition=8
 
