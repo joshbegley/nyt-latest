@@ -18,23 +18,23 @@ https://nytimes.com/live/2023/09/09/sports/us-open-gauff-sabalenka/us-open-gauff
 `The film, directed by Yorgos Lanthimos, stars Emma Stone as a woman who goes on a sexual and philosophical journey. The announcement of its win was met with a roar of applause.`\
 https://nytimes.com/2023/09/09/movies/venice-film-festival-winner-poor-things.html?searchResultPosition=5
 
+**Detours Ahead**\
+`Adam Wagner’s puzzle gets us moving.`\
+https://nytimes.com/2023/09/09/crosswords/daily-puzzle-2023-09-10.html?searchResultPosition=6
+
 **Gauff takes the second set.**\
 `By Jesus Jiménez`\
-https://nytimes.com/live/2023/09/09/sports/us-open-gauff-sabalenka/gauff-takes-the-second-set?searchResultPosition=6
+https://nytimes.com/live/2023/09/09/sports/us-open-gauff-sabalenka/gauff-takes-the-second-set?searchResultPosition=7
 
 **Sabalenka takes the first set, 6-2.**\
 `By Jesus Jiménez`\
-https://nytimes.com/live/2023/09/09/sports/us-open-gauff-sabalenka/sabalenka-takes-the-first-set-6-2?searchResultPosition=7
+https://nytimes.com/live/2023/09/09/sports/us-open-gauff-sabalenka/sabalenka-takes-the-first-set-6-2?searchResultPosition=8
+
+**Still recovering from its own recent devastating earthquake, Turkey offers aid to Morocco.**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2023/09/09/world/morocco-earthquake-marrakesh/still-recovering-from-its-own-recent-devastating-earthquake-turkey-offers-aid-to-morocco?searchResultPosition=9
 
 **Here’s how Gauff and Sabalenka reached the final.**\
 `By Jesus Jiménez`\
-https://nytimes.com/live/2023/09/09/sports/us-open-gauff-sabalenka/heres-how-gauff-and-sabalenka-reached-the-final?searchResultPosition=8
-
-**Slow-moving seismology can result in Morocco’s infrequent but deadly eruptions.**\
-`By Maya Wei-Haas`\
-https://nytimes.com/live/2023/09/09/world/morocco-earthquake-marrakesh/slow-moving-seismology-can-result-in-moroccos-infrequent-but-deadly-eruptions?searchResultPosition=9
-
-**When Coco Gauff and Zendaya need tennis tips, they ask Brad Gilbert.**\
-`By Matthew Futterman`\
-https://nytimes.com/live/2023/09/09/sports/us-open-gauff-sabalenka/when-coco-gauff-and-zendaya-need-tennis-tips-they-ask-brad-gilbert?searchResultPosition=10
+https://nytimes.com/live/2023/09/09/sports/us-open-gauff-sabalenka/heres-how-gauff-and-sabalenka-reached-the-final?searchResultPosition=10
 
