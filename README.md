@@ -34,7 +34,7 @@ https://nytimes.com/2023/09/09/books/tumultuous-family-stories-two-ways.html?sea
 `By Aida Alami and Aurelien Breeden`\
 https://nytimes.com/live/2023/09/09/world/morocco-earthquake-marrakesh/it-felt-like-years-for-earthquake-victims-a-night-of-fear-and-chaos?searchResultPosition=9
 
-**Former Soldier Who Escaped From a British Prison Is Recaptured in London**\
-`The fugitive broke out by strapping himself to the bottom of a food delivery van. He was arrested on Saturday morning in the city’s Chiswick district.`\
+**Ex-Soldier Who Escaped From U.K. Prison Is Recaptured in London**\
+`The fugitive broke out by strapping himself under a food delivery van. He was arrested three days later just a few miles away.`\
 https://nytimes.com/2023/09/09/world/europe/soldier-prison-escape-daniel-khalife-uk.html?searchResultPosition=10
 
