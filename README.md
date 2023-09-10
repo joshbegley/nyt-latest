@@ -4,7 +4,7 @@ https://nytimes.com/2023/09/09/us/guns-ban-new-mexico-albuquerque.html?searchRes
 
 **Powerful Earthquake Shakes Morocco, Killing More Than 2,000**\
 `The quake, centered in the mountains just outside of Marrakesh, was the strongest to hit that area in a century. “It didn’t last long, but felt like years,” said one woman who lives near the epicenter.`\
-https://nytimes.com/2023/09/09/world/europe/morocco-earthquake-marrakesh.html?searchResultPosition=2
+https://nytimes.com/2023/09/09/world/africa/morocco-earthquake-marrakesh.html?searchResultPosition=2
 
 **Citing Costs of Migrant Care, Adams Calls for More Budget Cuts**\
 `The mayor ordered New York City agencies to reduce spending by 15 percent in the coming months, but said that federal and state aid could prevent the need for cuts.`\
