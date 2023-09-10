@@ -3,7 +3,7 @@
 https://nytimes.com/2023/09/09/us/politics/iowa-football-trump-desantis.html?searchResultPosition=1
 
 **Coco Gauff Says She’s ‘Ready’ for the Headiest Levels of Fame**\
-`Gauff, 19, has been in the spotlight since she was a 15-year-old playing Wimbledon, but after winning the U.S. Open singles title, those lights will burn far hotter.`\
+`Gauff, 19, has been in the spotlight since she was a 15-year-old playing Wimbledon, but after she won the U.S. Open singles title, those lights will burn far hotter.`\
 https://nytimes.com/2023/09/09/sports/tennis/us-open-gauff-fame.html?searchResultPosition=2
 
 **New Mexico Governor Issues 30-Day Ban on Carrying Guns in Public in Albuquerque**\
