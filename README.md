@@ -6,9 +6,9 @@ https://nytimes.com/2023/09/10/us/bear-cam-hiker-rescue-alaska.html?searchResult
 `Walter Isaacson said he wrestled with the competing identities of a brilliant but “mercurial” entrepreneur.`\
 https://nytimes.com/2023/09/10/business/dealbook/walter-isaacson-elon-musk-biography.html?searchResultPosition=2
 
-**Novak Djokovic wins the U.S. Open and a 24th Grand Slam title.**\
+**Novak Djokovic Wins the U.S. Open and a 24th Grand Slam Title**\
 `On a court where he had regularly played the villain, Djokovic soaked in the fan adoration as he beat Daniil Medvedev in straight sets.`\
-https://nytimes.com/live/2023/09/10/sports/us-open-djokovic-medvedev/djokovic-wins-us-open-medvedev?searchResultPosition=3
+https://nytimes.com/2023/09/10/sports/tennis/djokovic-wins-us-open-medvedev.html?searchResultPosition=3
 
 **Michigan State Suspends Football Coach Amid Sexual Harassment Allegations**\
 `Mel Tucker, the head coach, is accused of harassing Brenda Tracy, who speaks out against sexual violence in college sports, according to a report in USA Today.`\
