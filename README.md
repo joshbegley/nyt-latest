@@ -6,7 +6,7 @@ https://nytimes.com/2023/09/10/arts/music/chinese-singer-mariupol-ukraine.html?s
 `When the quake struck a remote village in the Atlas Mountains outside of Marrakesh, it knocked out power and phones, making it impossible to call for help. Now food and water are running very low.`\
 https://nytimes.com/live/2023/09/10/world/earthquake-morocco-marrakesh-news/we-didnt-wait-for-anybody-to-start-saving-peoples-lives?searchResultPosition=2
 
-**Covid Hero or ‘Lockdown Ron’? For DeSantis, Virus Offers a Contrast With Trump**\
+**Covid Hero or ‘Lockdown Ron’? DeSantis and Trump Renew Pandemic Politics**\
 `The Florida governor has recently highlighted his state’s response to the coronavirus in hopes of striking some distance from Donald Trump.`\
 https://nytimes.com/2023/09/10/us/politics/desantis-covid-trump-2024-iowa.html?searchResultPosition=3
 
