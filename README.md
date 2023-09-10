@@ -2,7 +2,7 @@
 `By Hannah Beech`\
 https://nytimes.com/live/2023/09/10/world/biden-vietnam-g20-summit/vietnams-pursuit-of-a-russian-arms-deal-undercuts-its-us-outreach?searchResultPosition=1
 
-**Escaped Prisoner in Pennsylvania Is Seen More Than 20 Miles From Previous Search Area**\
+**Pennsylvania Fugitive Is Seen More Than 20 Miles From Previous Search Area**\
 `Danelo Cavalcante obtained a van and appeared on a door camera near the city of Phoenixville, the police said on Sunday.`\
 https://nytimes.com/2023/09/10/us/danelo-cavalcante-pennsylvania-search.html?searchResultPosition=2
 
