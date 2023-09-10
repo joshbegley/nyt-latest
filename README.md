@@ -1,40 +1,40 @@
-**As Migrants Are Placed Around Massachusetts, Towns Are Welcoming but Worried**\
-`The mayor of Woburn, where hotels are housing 150 migrant families, said the state’s 40-year-old right-to-shelter law “was not meant to cover what we’re seeing now.”`\
-https://nytimes.com/2023/09/10/us/migrant-crisis-massachusetts-woburn.html?searchResultPosition=1
+**Seeing the U.S. Open in an Unusual Light**\
+`An infrared-converted camera gives a unique perspective on New York’s major tennis tournament.`\
+https://nytimes.com/2023/09/10/sports/tennis/us-open-infrared-photography.html?searchResultPosition=1
 
-**To Test the A.I. Learning Hype, I Visited Classrooms**\
-`Some tech proponents say generative artificial intelligence will revolutionize education. Yet, some schools are blocking it. Here was a chance for reporting.`\
-https://nytimes.com/2023/09/10/business/ai-learning-classrooms.html?searchResultPosition=2
+**Russia’s ‘Merchant of Death’ Is Looking to Forge a New Life in Politics**\
+`The convicted arms trafficker Viktor A. Bout hasn’t much flair for retail politicking, but his celebrity may compensate for that in regional elections.`\
+https://nytimes.com/2023/09/10/world/europe/russia-bout-arms-dealing-politics.html?searchResultPosition=2
 
-**Salvation Mountain in California Searches for How to Save Itself**\
-`The folk art monument in the desert near the Salton Sea grapples with extreme weather, social-media-fueled tourism and its own tattering beauty.`\
-https://nytimes.com/2023/09/10/style/salvation-mountain-california.html?searchResultPosition=3
+**Families Cut Adrift by Concrete Crisis in U.K. Schools**\
+`More than 100 schools have had to shut or close areas off because of dangerous lightweight concrete, leaving many parents, especially those whose children have special needs, scrambling for care.`\
+https://nytimes.com/2023/09/10/world/europe/uk-schools-raac-concrete.html?searchResultPosition=3
 
-**A Hacker, by Many Other Names**\
-`Someone with the distinction could be a prankster, a computer programmer or a “real lively” cutter of stone.`\
-https://nytimes.com/2023/09/10/insider/a-hacker-by-many-other-names.html?searchResultPosition=4
+**Roz Chast Knows You’ll Always Regret Leaving the City for the Suburbs**\
+`“All of it: horrible,” says the beloved cartoonist. “Sorry.”`\
+https://nytimes.com/interactive/2023/09/10/magazine/roz-chast-interview.html?searchResultPosition=4
 
-**11 Things You Forgot About the 2023 N.F.L. Season**\
-`After a busy off-season, Damar Hamlin is back, Odell Beckham Jr. is a Raven, Sean Payton leads the Broncos, and 10 players are out because of gambling violations.`\
-https://nytimes.com/2023/09/10/sports/football/2023-nfl-season-start.html?searchResultPosition=5
+**More Than Gum and Coins Are Stuffed in These ‘Pockets’**\
+`In her nifty “Intimate History of How We Keep Things Close,” Hannah Carlson unbuttons the politics behind who gets to hide their belongings, and where.`\
+https://nytimes.com/2023/09/10/books/review/pockets-hannah-carlson-fashion-history.html?searchResultPosition=5
 
-**President Biden Keeps Hunter Close Despite the Political Peril**\
-`The possibility of a federal indictment of Hunter Biden stunned the president. Yet the bond between him and his only surviving son is ironclad.`\
-https://nytimes.com/2023/09/10/us/politics/joe-biden-hunter-relationship.html?searchResultPosition=6
+**Losing Sleep, but Not About Things on the Field**\
+`As Los Angeles raced to the top of the N.L. West yet again, six of the team’s players formed a bond by welcoming new babies into their families.`\
+https://nytimes.com/2023/09/10/sports/baseball/dodgers-babies.html?searchResultPosition=6
 
-**‘I Hailed a Cab at My Hotel Near Central Park to Go to 47th Street’**\
-`A taxi makes an unplanned stop, a cozy flight to J.F.K. and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2023/09/10/nyregion/metropolitan-diary.html?searchResultPosition=7
+**For ‘Silver Tsunami’ With H.I.V., New Hope for Healthy Aging**\
+`A recent study showed that a statin drug significantly lowered the risk of heart attacks and strokes among middle-aged and older people with the virus.`\
+https://nytimes.com/2023/09/10/health/hiv-aging-statins.html?searchResultPosition=7
 
-**What Leotard Can Compare to This?**\
-`More than 100 designer costumes from the New York City Ballet are featured in a new book photographed by Pari Dukovic.`\
-https://nytimes.com/2023/09/10/style/new-york-city-ballet-costumes-pari-dukovic.html?searchResultPosition=8
+**How Our Roads Hurt Us and Everything Around Us**\
+`In “Crossings,” Ben Goldfarb shows that our dependence on highways and freeways is an environmental concern as well as a social one.`\
+https://nytimes.com/2023/09/10/books/review/crossings-ben-goldfarb.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/09/10/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**Flowers and Fake Marble: How TV Production Designers Create the Past**\
+`The people who designed the look of “The Buccaneers,” “The Gilded Age,” “Lessons in Chemistry” and “The Continental” discuss the importance of gilding, sledgehammers and eBay.`\
+https://nytimes.com/2023/09/10/arts/television/gilded-age-lessons-in-chemistry-production-design.html?searchResultPosition=9
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/09/10/crosswords/wordle-review-answer-813.html?searchResultPosition=10
+**Ambrose Akinmusire Learned to Let Go (With Help From Joni Mitchell)**\
+`The trumpeter will release “Owl Song,” a spare new album, this fall as he takes on a new role as artistic director of the Herbie Hancock Institute of Jazz.`\
+https://nytimes.com/2023/09/10/arts/music/ambrose-akinmusire-owl-song.html?searchResultPosition=10
 
