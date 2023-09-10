@@ -3,7 +3,7 @@
 https://nytimes.com/2023/09/10/learning/whats-going-on-in-this-picture-sept-11-2023.html?searchResultPosition=1
 
 **An A.I. Leader Urges Regulation and a Rethink**\
-`The  entrepreneur Mustafa Suleyman’s new book calls for lawmakers to seize the opportunities and mitigate the potentially catastrophic risks of artificial intelligence.`\
+`The entrepreneur Mustafa Suleyman’s new book calls for lawmakers to seize the opportunities and mitigate the potentially catastrophic risks of artificial intelligence.`\
 https://nytimes.com/2023/09/10/business/dealbook/an-ai-leader-urges-regulation-and-a-rethink.html?searchResultPosition=2
 
 **Foreign aid teams join the intensifying search for survivors.**\
