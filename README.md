@@ -2,9 +2,9 @@
 `Danelo Cavalcante obtained a van and appeared on a door camera in the city of Phoenixville, the police said on Sunday.`\
 https://nytimes.com/2023/09/10/us/danelo-cavalcante-pennsylvania-search.html?searchResultPosition=1
 
-**For a woman bereaved in the quake, first came shock and then a wail.**\
-`By Vivian Yee`\
-https://nytimes.com/live/2023/09/10/world/morocco-earthquake-marrakesh/for-a-woman-bereaved-in-the-quake-first-came-shock-and-then-a-wail?searchResultPosition=2
+**For a Woman Bereaved in Quake, First Came Shock and Then a Wail.**\
+`More than 2,000 people were killed in the quake that hit Morocco on Friday night. Hardest hit was the province of Al Haouz, which is home to Amizmiz.`\
+https://nytimes.com/2023/09/10/world/africa/morocco-earthquake-azizmiz.html?searchResultPosition=2
 
 **What’s Going On in This Picture? | Sept. 11, 2023**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
