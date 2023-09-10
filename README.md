@@ -1,4 +1,4 @@
-**Escaped Prisoner in Pennsylvania Is Seen 25 Miles From Previous Search Area**\
+**Escaped Prisoner in Pennsylvania Is Seen More Than 20 Miles From Previous Search Area**\
 `Danelo Cavalcante obtained a van and appeared on a door camera in the city of Phoenixville, the police said on Sunday.`\
 https://nytimes.com/2023/09/10/us/danelo-cavalcante-pennsylvania-search.html?searchResultPosition=1
 
