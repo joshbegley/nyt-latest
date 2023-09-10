@@ -1,4 +1,4 @@
-**Djokovic Honors Kobe Bryant with ‘Mamba Forever’ Shirt**\
+**Djokovic Honors Kobe Bryant With ‘Mamba Forever’ Shirt**\
 `Bryant, the N.B.A. star who died in a helicopter crash in 2020, was known for using No. 24 as one of his jersey numbers while playing for the Los Angeles Lakers.`\
 https://nytimes.com/2023/09/10/sports/tennis/novak-djokovic-kobe-bryant-tribute.html?searchResultPosition=1
 
