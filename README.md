@@ -7,8 +7,8 @@ https://nytimes.com/2023/09/10/us/bear-cam-hiker-rescue-alaska.html?searchResult
 https://nytimes.com/2023/09/10/business/dealbook/walter-isaacson-elon-musk-biography.html?searchResultPosition=2
 
 **Novak Djokovic wins the U.S. Open and a 24th Grand Slam title.**\
-`By Matthew Futterman`\
-https://nytimes.com/live/2023/09/10/sports/us-open-djokovic-medvedev/us-open-djokovic-medvedev?searchResultPosition=3
+`On a court where he had regularly played the villain, Djokovic soaked in the fan adoration as he beat Daniil Medvedev in straight sets.`\
+https://nytimes.com/live/2023/09/10/sports/us-open-djokovic-medvedev/djokovic-wins-us-open-medvedev?searchResultPosition=3
 
 **Michigan State Suspends Football Coach Amid Sexual Harassment Allegations**\
 `Mel Tucker, the head coach, is accused of harassing Brenda Tracy, who speaks out against sexual violence in college sports, according to a report in USA Today.`\
