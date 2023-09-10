@@ -23,7 +23,7 @@ https://nytimes.com/2023/09/09/nyregion/nyc-budget-cuts-adams-migrants.html?sear
 https://nytimes.com/video/world/africa/100000009079100/morocco-deadly-earthquake.html?searchResultPosition=6
 
 **Coco Gauff captures first major title with U.S. Open singles win.**\
-`The three-set victory over Aryna Sabalenka makes Gauff the first American teenager to win the Open since Serena Williams in 2001.`\
+`The three-set victory over Aryna Sabalenka makes Gauff the first American teenager to win the Open since Serena Williams in 1999.`\
 https://nytimes.com/live/2023/09/09/sports/us-open-gauff-sabalenka/us-open-gauff-sabalenka-final?searchResultPosition=7
 
 **‘Poor Things’ Takes Top Prize at Venice Film Festival**\
