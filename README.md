@@ -3,7 +3,7 @@
 https://nytimes.com/live/2023/09/10/sports/us-open-djokovic-medvedev/us-open-djokovic-medvedev?searchResultPosition=1
 
 **Michigan State Suspends Football Coach Amid Sexual Harassment Allegations**\
-`Mel Tucker, the head coach, is accused of harassing Brenda Tracy, an advocate against sexual violence in college sports, according to a report in USA Today.`\
+`Mel Tucker, the head coach, is accused of harassing Brenda Tracy, who speaks out against sexual violence in college sports, according to a report in USA Today.`\
 https://nytimes.com/2023/09/10/us/mel-tucker-michigan-football-sexual-harassment.html?searchResultPosition=2
 
 **Djokovic wins a tiebreaker to take the second set.**\
