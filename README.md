@@ -24,7 +24,7 @@ https://nytimes.com/2023/09/11/us/politics/trump-recusal-judge.html?searchResult
 
 **A Party for Steven Meisel, Without Steven Meisel**\
 `The fashion world came out to honor the star photographer. He didn’t show.`\
-https://nytimes.com/2023/09/11/fashion/a-party-for-steven-meisel-without-steven-meisel.html?searchResultPosition=7
+https://nytimes.com/2023/09/11/fashion/steven-meisel-party-supermodels.html?searchResultPosition=7
 
 **Robin Roberts and Amber Laign Speak ‘Freely, Openly and Passionately’ About Their Love**\
 `The couple were wed Sept. 8 in an intimate ceremony at their home in Farmington, Conn. The newlyweds spoke to The New York Times in an exclusive interview about their relationship.`\
