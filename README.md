@@ -2,8 +2,8 @@
 `“It shouldn’t take a national tragedy to remind us of the power of national unity,” President Biden said.`\
 https://nytimes.com/2023/09/11/us/politics/biden-9-11-anniversary.html?searchResultPosition=1
 
-**The Straitjacket of Minority Rule**\
-`Why the authors of “How Democracies Die” overestimated the Republicans.`\
+**The Authors of ‘How Democracies Die’ Overestimated the Republicans**\
+`In a new book, they grapple with why Trump turned out to be even worse than they expected.`\
 https://nytimes.com/2023/09/11/opinion/columnists/democracies-minority-rule.html?searchResultPosition=2
 
 **How Goldilocks Came to the U.S. Economy**\
