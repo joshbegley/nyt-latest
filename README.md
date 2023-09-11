@@ -6,7 +6,7 @@ https://nytimes.com/live/2023/09/11/world/earthquake-morocco-marrakesh/moroccos-
 `Check out new vegetable varieties from Dan Barber’s Row 7, pick up a round braided challah for the holiday and more food news.`\
 https://nytimes.com/2023/09/11/dining/food-fashion-fit.html?searchResultPosition=2
 
-**Those Hawaii Wildfires? Caused by U.S. Weather Weapon, China Says**\
+**China Sows Disinformation About Hawaii Fires Using New Techniques**\
 `Beijing’s influence campaign using artificial intelligence is a rapid change in tactics, researchers from Microsoft and other organizations say.`\
 https://nytimes.com/2023/09/11/us/politics/china-disinformation-ai.html?searchResultPosition=3
 
