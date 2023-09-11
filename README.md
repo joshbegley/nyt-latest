@@ -20,7 +20,7 @@ https://nytimes.com/2023/09/11/upshot/electoral-college-trump-2024.html?searchRe
 
 **Covid Vaccines May Roll Out Within Days**\
 `The F.D.A. is expected to approve a new round of shots by Pfizer and Moderna as early as Monday to prepare Americans for the fall and winter season when infections usually tick upward.`\
-https://nytimes.com/2023/09/11/health/covid-vaccines-may-roll-out-within-days.html?searchResultPosition=6
+https://nytimes.com/2023/09/11/health/covid-vaccine-boosters-fda-pfizer-moderna.html?searchResultPosition=6
 
 **Elon Musk Has Crossed a Line**\
 `A consistent booster of far-right and antisemitic accounts on Twitter, Elon Musk is now melding a sense of victimhood with the most toxic elements of the right.`\
