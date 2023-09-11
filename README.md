@@ -1,6 +1,6 @@
 **Disney and Charter Reach Agreement, Ending Cable Standoff**\
 `The standoff between the two companies had raised questions about the future of the cable bundle.`\
-https://nytimes.com/2023/09/11/business/media/disney-and-charter-reach-agreement-ending-cable-standoff.html?searchResultPosition=1
+https://nytimes.com/2023/09/11/business/media/disney-charter-agreement-cable.html?searchResultPosition=1
 
 **Review: Boris Charmatz Unveils a Different Tanztheater Wuppertal**\
 `Charmatz’s first new work for the company founded by Pina Bausch was a messy, meandering grab-bag of ideas and inspirations.`\
