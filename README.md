@@ -35,6 +35,6 @@ https://nytimes.com/2023/09/11/opinion/inflation-unemployment-phillips-recession
 https://nytimes.com/2023/09/11/us/politics/biden-vietnam-news-conference-age.html?searchResultPosition=9
 
 **McCarthy Is Under the Gun as the House Returns for a Spending Fight**\
-`Speaker Kevin McCarthy faces his biggest test since the debt ceiling showdown as right-wing Republicans demand deep spending cuts and tougher border policies opposed by the White House and the Senate.`\
+`Speaker Kevin McCarthy faces his biggest test since the debt ceiling showdown as right-wing Republicans demand deep spending cuts and tougher border policies opposed by the White House and Senate.`\
 https://nytimes.com/2023/09/11/us/politics/mccarthy-house-spending-fight.html?searchResultPosition=10
 
