@@ -1,40 +1,40 @@
+**Inside Los Angeles’s Fraught Redistricting Process**\
+`A conversation with Jill Cowan, who spent months reporting on how members of the City Council redrew political maps to largely maintain their power.`\
+https://nytimes.com/2023/09/11/us/los-angeles-redistricting-process.html?searchResultPosition=1
+
+**Getting to Genius, Part 2: Becoming Queen Bee**\
+`How to use the game’s tools and the “Hivemind” to your advantage.`\
+https://nytimes.com/2023/09/11/crosswords/getting-to-genius-part-2.html?searchResultPosition=2
+
+**Getting to Genius, Part 1: Spelling Bee for Beginners**\
+`Two Games editors take you through the best ways to move up the ranks.`\
+https://nytimes.com/2023/09/11/crosswords/getting-to-genius-part-1.html?searchResultPosition=3
+
+**Joey Votto Is Finally Ready to Meet You**\
+`In the 17th season of a Hall of Fame-worthy career, Votto has made the unusual shift from meticulous hitting savant to social media star.`\
+https://nytimes.com/2023/09/11/sports/baseball/joey-votto-reds.html?searchResultPosition=4
+
+**Diary of a Spelling Bee Fanatic**\
+`Entries for the week of Sept. 4, 2023.`\
+https://nytimes.com/2023/09/11/crosswords/spelling-bee-diary.html?searchResultPosition=5
+
 **For Biden, Who Neither Fought in Vietnam Nor Protested War, Trip Offers Opportunity**\
 `While others of his generation were scarred by the conflict, President Biden forged a strategic partnership on his first visit to the country, framing it in pragmatic terms.`\
-https://nytimes.com/2023/09/11/us/politics/biden-vietnam-veteran-visit.html?searchResultPosition=1
+https://nytimes.com/2023/09/11/us/politics/biden-vietnam-veteran-visit.html?searchResultPosition=6
 
 **The Moroccan government defends its quake response.**\
 `By Nada Rashwan`\
-https://nytimes.com/live/2023/09/11/world/earthquake-morocco-marrakesh/the-moroccan-government-defends-its-quake-response?searchResultPosition=2
+https://nytimes.com/live/2023/09/11/world/earthquake-morocco-marrakesh/the-moroccan-government-defends-its-quake-response?searchResultPosition=7
 
 **Investors Warily Await the Instacart and Arm I.P.O.s**\
 `The valuations for both companies have come in below expectations, reflecting a cautious outlook on Wall Street as firms start to go public again after a fallow patch.`\
-https://nytimes.com/2023/09/11/business/investors-instacart-arm-ipo.html?searchResultPosition=3
+https://nytimes.com/2023/09/11/business/investors-instacart-arm-ipo.html?searchResultPosition=8
 
 **Kim Jong-un will hold talks with Vladimir Putin, the Kremlin says.**\
 `By Valeriya Safronova`\
-https://nytimes.com/live/2023/09/11/world/russia-ukraine-news/kim-jong-un-will-visit-russia-at-vladimir-putins-invitation-the-kremlin-says?searchResultPosition=4
+https://nytimes.com/live/2023/09/11/world/russia-ukraine-news/kim-jong-un-will-visit-russia-at-vladimir-putins-invitation-the-kremlin-says?searchResultPosition=9
 
 **Treating Overdoses Over the Counter**\
 `It is now easier than ever to get a medication that stops overdoses.`\
-https://nytimes.com/2023/09/11/briefing/drug-overdoses-narcan-opioids.html?searchResultPosition=5
-
-**U.S. v. Google**\
-`The government has set its sights on the internet behemoth in the first monopoly trial of the modern internet era.`\
-https://nytimes.com/2023/09/11/podcasts/the-daily/google-monopoly-trial.html?searchResultPosition=6
-
-**Today’s Top News: The Aftermath of the Earthquake in Morocco, and More**\
-`Exclusively from New York Times Audio, our new app.`\
-https://nytimes.com/2023/09/11/podcasts/headlines-nyt-audio-app.html?searchResultPosition=7
-
-**Once Again You Lose Me at the Wall**\
-`The wall isn’t very useful at stopping migrants, but it’s great as a symbol of our worst impulses.`\
-https://nytimes.com/2023/09/11/opinion/biden-trump-immigration-hunter.html?searchResultPosition=8
-
-**Chinese Warnings on iPhones Tap Deep Strain of Security Concerns**\
-`For years, officials in China have been told to shun foreign devices. Now reports of renewed curbs have unnerved Apple’s investors, heightening geopolitical tensions.`\
-https://nytimes.com/2023/09/11/business/apple-china-iphones.html?searchResultPosition=9
-
-**Trump’s Electoral College Edge Seems to Be Fading**\
-`Democrats appear resilient in the battleground states despite a nationwide loss of nonwhite support. New issues may be one reason.`\
-https://nytimes.com/2023/09/11/upshot/electoral-college-trump-2024.html?searchResultPosition=10
+https://nytimes.com/2023/09/11/briefing/drug-overdoses-narcan-opioids.html?searchResultPosition=10
 
