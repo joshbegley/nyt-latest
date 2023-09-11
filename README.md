@@ -18,7 +18,7 @@ https://nytimes.com/live/2023/09/11/world/earthquake-morocco-marrakesh/satellite
 `Paul-Henri Nargeolet mixed decades of passion for the ship of dreams with repeated dives and recoveries meant to save what remained of the famous ocean liner.`\
 https://nytimes.com/2023/09/11/science/paul-henri-nargeolet-titanic-titan-submersible.html?searchResultPosition=5
 
-**Mourners Gather in Ground Zero to Remember 9/11 Victims**\
+**Mourners Gather at Ground Zero to Remember 9/11 Victims**\
 `Relatives of those who died went to Lower Manhattan to mark the 22nd anniversary of the terrorist attack, where they were joined by governors, senators and the vice president.`\
 https://nytimes.com/2023/09/11/nyregion/september-11-memorial-event.html?searchResultPosition=6
 
