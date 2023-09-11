@@ -10,9 +10,9 @@ https://nytimes.com/2023/09/11/arts/television/the-morning-show-mimi-leder.html?
 `Responses to Mayor Eric Adams’s remarks about the migrant influx. Also: President Biden’s silence on the Trump indictments; football; pornography; plastics.`\
 https://nytimes.com/2023/09/11/opinion/letters/mayor-adams-migrants-new-york.html?searchResultPosition=3
 
-**Ukraine claims to have retaken oil and gas platforms in the Black Sea.**\
-`By Marc Santora`\
-https://nytimes.com/live/2023/09/11/world/russia-ukraine-news/ukraine-oil-platforms-black-sea?searchResultPosition=4
+**Ukraine Claims to Have Retaken Oil and Gas Platforms in the Black Sea**\
+`The platforms have played a role in Russia’s ability to project power off Ukraine’s coast since Moscow seized them in 2015.`\
+https://nytimes.com/2023/09/11/world/europe/ukraine-black-sea-oil-platforms.html?searchResultPosition=4
 
 **A New N.B.A. Champion’s Takeaway From a U.F.C. Champ: Relax**\
 `Denver Nuggets guard Jamal Murray’s friendship with Alexander Volkanovski, the U.F.C. featherweight champion, is changing his approach to winning.`\
