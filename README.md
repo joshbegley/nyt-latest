@@ -1,5 +1,5 @@
 **Jets’ Aaron Rodgers Leaves Monday Night Football With Injury**\
-`Rodgers, the star quarterback acquired in an off-season trade as the team hoped to right a beleaguered offense, took a sack on the team’s first offensive series and departed with an ankle injury.`\
+`Rodgers, the star quarterback acquired in an off-season trade as the team hoped to right a beleaguered offense, took a sack on the team’s first offensive series and will not return.`\
 https://nytimes.com/2023/09/11/sports/aaron-rodgers-jets-injury.html?searchResultPosition=1
 
 **Footage Shows Rescue of American Caver in Turkey**\
