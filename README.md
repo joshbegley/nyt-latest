@@ -15,7 +15,7 @@ https://nytimes.com/2023/09/11/world/africa/morocco-earthquake.html?searchResult
 https://nytimes.com/2023/09/11/opinion/poverty-measure.html?searchResultPosition=4
 
 **Kim Jong-un Has Something Putin Needs, and That’s a New Wrinkle**\
-`Kim Jong-un has ammunition stocks that Russia covets as it continues its war in Ukraine, and North Korea may get advanced  technology and badly needed food aid in return.`\
+`Kim Jong-un has ammunition stocks that Russia covets as it continues its war in Ukraine, and North Korea may get advanced technology and badly needed food aid in return.`\
 https://nytimes.com/2023/09/11/world/asia/putin-kim-russia-north-korea.html?searchResultPosition=5
 
 **Manhattan Judge May Be Open to Moving Trump Trial Date as Cases Mount**\
