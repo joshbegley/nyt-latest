@@ -18,8 +18,8 @@ https://nytimes.com/2023/09/11/podcasts/the-daily/google-monopoly-trial.html?sea
 `Exclusively from New York Times Audio, our new app.`\
 https://nytimes.com/2023/09/11/podcasts/headlines-nyt-audio-app.html?searchResultPosition=5
 
-**Which Crisis Should We Talk About First?**\
-`Immigration, housing, jobs and strained budgets are all coming together to create a volatile political situation.`\
+**Once Again You Lose Me at the Wall**\
+`The wall isn’t very useful at stopping migrants, but it’s great as a symbol of our worst impulses.`\
 https://nytimes.com/2023/09/11/opinion/biden-trump-immigration-hunter.html?searchResultPosition=6
 
 **Chinese Warnings on iPhones Tap Deep Strain of Security Concerns**\
