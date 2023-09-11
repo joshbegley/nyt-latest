@@ -4,7 +4,7 @@ https://nytimes.com/2023/09/11/podcasts/the-daily/google-monopoly-trial.html?sea
 
 **Today’s Top News: The Aftermath of the Earthquake in Morocco, and More**\
 `Exclusively from New York Times Audio, our new app.`\
-https://nytimes.com/2023/09/11/podcasts/todays-top-news-the-aftermath-of-the-earthquake-in-morocco-and-more.html?searchResultPosition=2
+https://nytimes.com/2023/09/11/podcasts/headlines-nyt-audio-app.html?searchResultPosition=2
 
 **Which Crisis Should We Talk About First?**\
 `Immigration, housing, jobs and strained budgets are all coming together to create a volatile political situation.`\
