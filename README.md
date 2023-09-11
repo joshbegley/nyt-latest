@@ -1,40 +1,40 @@
-**‘It Is Evening, Isn’t It?’ An 80-Year-Old President’s Whirlwind Trip.**\
-`President Biden went to Asia with a diplomatic to-do list. But he also wanted to show he remains up to the rigors of globe-trotting statesmanship.`\
-https://nytimes.com/2023/09/11/world/asia/biden-age.html?searchResultPosition=1
+**Chinese Warnings on iPhones Tap Deep Strain of Security Concerns**\
+`For years, officials in China have been told to shun foreign devices. Now reports of renewed curbs have unnerved Apple’s investors, heightening geopolitical tensions.`\
+https://nytimes.com/2023/09/11/business/apple-china-iphones.html?searchResultPosition=1
 
-**Island Nations Hope for Court’s Help on Climate’s Effects**\
-`A tribunal is expected to issue an advisory opinion on behalf of Pacific and Caribbean countries on whether greenhouse gases are pollutants that violate international law.`\
-https://nytimes.com/2023/09/11/world/asia/island-nations-ocean-court-climate.html?searchResultPosition=2
+**Trump Is Really Old, Too**\
+`Why is Joe Biden’s age a bigger issue than the former president’s?`\
+https://nytimes.com/2023/09/11/opinion/biden-trump-age.html?searchResultPosition=2
 
-**This Could Be the Jets’ Year, Fireman Ed Says**\
-`A superfan, he thinks Aaron Rodgers will give the team momentum. He’ll be in the stands, leading cheers.`\
-https://nytimes.com/2023/09/11/nyregion/jets-football-fireman-ed.html?searchResultPosition=3
+**Trump’s Electoral College Edge Seems to Be Fading**\
+`Democrats appear resilient in the battleground states despite a nationwide loss of nonwhite support. New issues may be one reason.`\
+https://nytimes.com/2023/09/11/upshot/electoral-college-trump-2024.html?searchResultPosition=3
 
-**Quotation of the Day: Child Care Is a Strain for Most in New York City**\
-`Quotation of the Day for Monday, September 11, 2023.`\
-https://nytimes.com/2023/09/11/pageoneplus/quotation-of-the-day-child-care-is-a-strain-for-most-in-new-york-city.html?searchResultPosition=4
+**Covid Vaccines May Roll Out Within Days**\
+`The F.D.A. is expected to approve a new round of shots by Pfizer and Moderna as early as Monday to prepare Americans for the fall and winter season when infections usually tick upward.`\
+https://nytimes.com/2023/09/11/health/covid-vaccines-may-roll-out-within-days.html?searchResultPosition=4
 
-**The 343 Reasons a Small Town in Ireland Mourns on Sept. 11**\
-`Kinsale, an Irish fishing village, is home to a 9/11 memorial honoring the firefighters who were killed in New York that day.`\
-https://nytimes.com/2023/09/11/nyregion/sept-11-memorial-ireland-kinsale.html?searchResultPosition=5
+**Elon Musk Has Crossed a Line**\
+`A consistent booster of far-right and antisemitic accounts on Twitter, Elon Musk is now melding a sense of victimhood with the most toxic elements of the right.`\
+https://nytimes.com/2023/09/11/opinion/elon-musk-adl.html?searchResultPosition=5
 
-**How Child Care in New York City Became Unaffordable for Nearly Everyone**\
-`Even upper-middle-class New Yorkers are struggling with the soaring costs of child care. So are the workers they pay.`\
-https://nytimes.com/2023/09/11/nyregion/child-care-nyc.html?searchResultPosition=6
+**When Does a Style Become a Classic?**\
+`In a sea of trends, a reader wonders how to identify a timeless clothing item.`\
+https://nytimes.com/2023/09/11/style/classic-timeless-style.html?searchResultPosition=6
 
-**With Straws, Gourds and Tea in Tow, Syrians Spread Their Love of Maté**\
-`The strong, grassy South American tea was popular in Syria even before the war began there 12 years ago. As millions of people were internally displaced, they shared it around the country.`\
-https://nytimes.com/2023/09/11/world/middleeast/with-straws-gourds-and-tea-in-tow-syrians-spread-their-love-of-mate.html?searchResultPosition=7
+**A Saudi-Israel Deal Would Bring Big Benefits — to the U.S.**\
+`Washington is pushing for ties between the two countries, with a promise of security guarantees for Riyadh.`\
+https://nytimes.com/2023/09/11/opinion/israel-saudi-arabia-us.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/09/11/crosswords/wordle-review-answer-814.html?searchResultPosition=8
+**A Detailed Look at How Income Influences Attendance at 139 Top Colleges**\
+`Unlike many elite colleges, most flagship public colleges are “pretty fair in who gets in.”`\
+https://nytimes.com/interactive/2023/09/11/upshot/college-income-lookup.html?searchResultPosition=8
 
-**Remembering 9/11 on the Trail**\
-`How politicians have navigated their campaigns around Sept. 11 tributes.`\
-https://nytimes.com/interactive/2023/09/11/us/politics/7018.html?searchResultPosition=9
+**How I Learned to Stop Worrying and Love the Mall**\
+`Despite my deep conviction that conspicuous consumption is one of the many reasons our planet is in terrible trouble, I have come to love the mall.`\
+https://nytimes.com/2023/09/11/opinion/how-i-learned-to-stop-worrying-and-love-the-mall.html?searchResultPosition=9
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/09/11/crosswords/spelling-bee-forum.html?searchResultPosition=10
+**As Smartphone Industry Sputters, the iPhone Expands Its Dominance**\
+`Apple, which is set to release a new iPhone on Tuesday, has increased its share of smartphone sales by converting Android customers and adding teenagers.`\
+https://nytimes.com/2023/09/11/business/apple-iphone-17.html?searchResultPosition=10
 
