@@ -1,5 +1,5 @@
 **Fans Bet Their Bar Tabs on the Jets Losing. It Wasn’t a Safe Bet.**\
-`A bar in Wisconsin, where Aaron Rogers played for years, offered free drinks if the New York Jets lost on Monday. But after a surprising comeback, patrons were left to pay for their tabs.`\
+`A bar in Wisconsin, where Aaron Rodgers played for years, offered free drinks if the New York Jets lost on Monday. But after a surprising comeback, patrons were left to pay for their tabs.`\
 https://nytimes.com/2023/09/12/sports/football/milwaukee-pub-jets-rodgers-loss.html?searchResultPosition=1
 
 **State Dept. Defends Limited Release of Iranian Funds for Prisoners**\
