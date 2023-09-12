@@ -30,8 +30,8 @@ https://nytimes.com/2023/09/11/crosswords/daily-puzzle-2023-09-12.html?searchRes
 `Company websites were down, and some guests complained of problems with slot machines and hotel room access. Cybersecurity experts point to a likely cyberattack.`\
 https://nytimes.com/2023/09/11/us/cyberattack-mgm-hotel-las-vegas.html?searchResultPosition=8
 
-**Jets’ Aaron Rodgers Leaves Monday Night Football With Injury**\
-`Rodgers, the star quarterback acquired in an off-season trade, took a sack on the Jets’ first offensive series and will not return to the game against the Buffalo Bills.`\
+**After Rodgers’s Injury, the Rest of the Jets Rally to Beat the Bills**\
+`Aaron Rodgers’s Jets debut disappointed when the quarterback departed in the first quarter with an ankle injury. His teammates mustered a crucial touchdown catch and overtime walk-off touchdown.`\
 https://nytimes.com/2023/09/11/sports/aaron-rodgers-jets-injury.html?searchResultPosition=9
 
 **Footage Shows Rescue of American Caver in Turkey**\
