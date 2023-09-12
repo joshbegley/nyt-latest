@@ -1,40 +1,40 @@
-**To Save My Sister, and Myself, I Had to Walk Away**\
-`Two siblings learn to balance love and self-preservation.`\
-https://nytimes.com/video/opinion/100000009048502/borderline-personality-disorder-kaitlin-prest.html?searchResultPosition=1
+**Who Has Qualified for the Second Republican Presidential Debate?**\
+`Six candidates appear to have made the cut for the next debate. Donald J. Trump might not be there.`\
+https://nytimes.com/interactive/2023/09/12/us/elections/second-republican-debate.html?searchResultPosition=1
 
-**North Korea’s leader heads to Russia as nations seek closer military ties.**\
-`By Daniel Victor`\
-https://nytimes.com/live/2023/09/12/world/russia-ukraine-news/north-koreas-leader-heads-to-russia-as-nations-seek-closer-military-ties?searchResultPosition=2
+**Pennsylvania Fugitive Joins Long History of Notable Manhunts**\
+`Here is a look at five expansive searches that lasted weeks, months or even years before the authorities caught their targets.`\
+https://nytimes.com/2023/09/12/us/pennsylvania-fugitive-joins-long-history-of-notable-manhunts.html?searchResultPosition=2
 
-**Maria Ressa, Journalist and Nobel Laureate, Is Cleared of Tax Fraud**\
-`It was the latest legal victory for the veteran journalist and her news site, Rappler, who have faced a barrage of charges from the Philippine government.`\
-https://nytimes.com/2023/09/12/world/asia/philippines-maria-ressa-tax-acquitted.html?searchResultPosition=3
+**America’s Top Librarian on the Rise of Book Bans**\
+`The American Library Association president Emily Drabinski takes stock of why libraries have become epicenters of the culture wars.`\
+https://nytimes.com/2023/09/12/opinion/ezra-klein-podcast-emily-drabinski.html?searchResultPosition=3
 
-**Can India Challenge China for Leadership of the ‘Global South’?**\
-`A rising India has moved aggressively to champion developing nations, pursuing compromise in polarized times and promising to make America listen.`\
-https://nytimes.com/2023/09/12/world/asia/india-china-global-south.html?searchResultPosition=4
+**C.D.C. Advisers to Decide Who Should Receive New Covid Vaccines**\
+`Scientists will meet on Tuesday to consider data on newly approved shots from Pfizer and Moderna.`\
+https://nytimes.com/2023/09/12/health/covid-cdc-vaccines.html?searchResultPosition=4
 
-**‘Zombie Trout’ Unsettle Montana, Long a Fly-Fishing Mecca**\
-`Warming waters and other factors along the state’s rivers like the Big Hole appear to be contributing to alarmingly low numbers of the state’s renowned rainbow and brown trout.`\
-https://nytimes.com/2023/09/12/science/trout-big-hole-river-climate-change.html?searchResultPosition=5
+**Why Google Is On Trial**\
+`The Justice Department claims that Google illegally used its monopoly power to beat rivals, while the company says its practices are legal and mainstream.`\
+https://nytimes.com/interactive/2023/09/12/business/google-antitrust-explainer.html?searchResultPosition=5
 
-**Football Season**\
-`Which teams, players and matchups do you have your eye on?`\
-https://nytimes.com/2023/09/12/learning/football-season.html?searchResultPosition=6
+**Arm, a British Chip Designer, Juggles Challenges Before 2023’s Biggest I.P.O.**\
+`The SoftBank-owned company, which for decades has defined how mobile phones operate, is grappling with geopolitical and commercial complexities as it prepares to go public this week.`\
+https://nytimes.com/2023/09/12/technology/arm-ipo-chips-softbank.html?searchResultPosition=6
 
-**TikTok Popularizes Products. Can It Sell Them, Too?**\
-`The company is beginning to introduce TikTok Shop to all of the app’s users in the U.S., hoping to add a major new revenue stream.`\
-https://nytimes.com/2023/09/12/business/tiktok-shop-e-commerce.html?searchResultPosition=7
+**‘Black’ Like Each Other**\
+`Two new series about young culture-industry workers, “The Other Black Girl” and “Dreaming Whilst Black,” explore how representation can be a challenge — or even a horror story.`\
+https://nytimes.com/2023/09/12/arts/television/dreaming-whilst-black-the-other-black-girl.html?searchResultPosition=7
 
-**U.S. Seeks to Repatriate Family of 10 Americans From Camps in Syria**\
-`A Kurdish-led militia that is battling the Islamic State has been holding a mother and nine of her children for several years.`\
-https://nytimes.com/2023/09/12/us/politics/syria-family-repatriate.html?searchResultPosition=8
+**A Tradition Going Strong: Brides Who Take Their Husbands’ Name**\
+`The women least likely to do so tend to be liberal or highly educated or Hispanic, new data shows.`\
+https://nytimes.com/2023/09/12/upshot/maiden-names-change.html?searchResultPosition=8
 
-**Michelin’s Coveted Stars Can Come With Some Costs**\
-`As its universe of dining guides expands to new places, the company is asking those regions to help pay the bill. And some chefs fear the honors are fostering a world of restaurant clones.`\
-https://nytimes.com/2023/09/12/dining/michelin-star-restaurants-america.html?searchResultPosition=9
+**What Ancient Greek Tragedies Can Teach Us About Grief**\
+`The live performances in Athens and Epidaurus are critical lessons in pain, grief and memory.`\
+https://nytimes.com/2023/09/12/magazine/greek-tragedy.html?searchResultPosition=9
 
-**Could $2,000 a Year Keep Students in College?**\
-`New York’s public university system is starting a program that uses simple strategies, like transportation money, to keep students enrolled and on the path to graduation.`\
-https://nytimes.com/2023/09/12/nyregion/suny-college-financial-support-asap.html?searchResultPosition=10
+**Why Are We Obsessed With the Destruction of L.A.?**\
+`A video appeared to show Dodger Stadium in ruins. Was it a religious sign, climate disaster or something else entirely?`\
+https://nytimes.com/2023/09/12/magazine/los-angeles-destruction.html?searchResultPosition=10
 
