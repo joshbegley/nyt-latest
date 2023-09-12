@@ -7,8 +7,8 @@ https://nytimes.com/2023/09/12/arts/music/desmond-child-livin-on-a-prayer-book.h
 https://nytimes.com/live/2023/09/12/business/google-antitrust-trial/a-veteran-justice-department-lawyer-is-leading-the-governments-case?searchResultPosition=2
 
 **Putin says the cases against Donald Trump show the ‘rottenness’ of the U.S. system.**\
-`By Paul Sonne`\
-https://nytimes.com/live/2023/09/12/world/russia-ukraine-news/putin-says-the-cases-against-donald-trump-show-the-rottenness-of-the-us-system?searchResultPosition=3
+`President Vladimir V. Putin’s wide-ranging remarks also touched on the war in Ukraine, China and Elon Musk.`\
+https://nytimes.com/live/2023/09/12/world/russia-ukraine-news/putin-trump-russia-ukraine-musk?searchResultPosition=3
 
 **Plenty is at stake in the first U.S. monopoly trial of the modern internet era.**\
 `By David McCabe and Cecilia Kang`\
