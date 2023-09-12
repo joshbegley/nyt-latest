@@ -1,6 +1,6 @@
 **Putin says the cases against Donald Trump show the ‘rottenness’ of the U.S. system.**\
 `By Paul Sonne`\
-https://nytimes.com/live/2023/09/12/world/russia-ukraine-news/putin-says-the-cases-against-donald-trump-show-the-rottenness-of-the-us-system?searchResultPosition=1
+https://nytimes.com/live/2023/09/12/world/russia-ukraine-news/putin-trump-musk?searchResultPosition=1
 
 **Civil Disobedience Against Book Bans?**\
 `Readers react to a guest essay by a school official. Also: Nancy Pelosi; censorship by China; A.I.-generated college essays; easing anxiety.`\
