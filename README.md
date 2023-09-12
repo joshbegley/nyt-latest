@@ -12,7 +12,7 @@ https://nytimes.com/2023/09/12/world/europe/venice-tourist-fee-italy.html?search
 
 **Earthquake Puts Morocco’s Elusive King in Spotlight**\
 `The monarchy is revered and nearly all powerful in Morocco. But details about the lives and actions of the king, his family and his entourage remain mysterious and subject to speculation.`\
-https://nytimes.com/2023/09/12/world/europe/morocco-earthquake-king-mohammed-vi.html?searchResultPosition=4
+https://nytimes.com/2023/09/12/world/middleeast/morocco-earthquake-king-mohammed-vi.html?searchResultPosition=4
 
 **Tiny Love Stories: ‘I Know Something She Doesn’t’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
