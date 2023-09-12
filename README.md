@@ -20,7 +20,7 @@ https://nytimes.com/2023/09/12/us/politics/syria-family-repatriate.html?searchRe
 
 **Michelin’s Coveted Stars Can Come With Some Costs**\
 `As its universe of dining guides expands to new places, the company is asking those regions to help pay the bill. And some chefs fear the honors are fostering a world of restaurant clones.`\
-https://nytimes.com/2023/09/12/dining/michelins-star-restaurants-america.html?searchResultPosition=6
+https://nytimes.com/2023/09/12/dining/michelin-star-restaurants-america.html?searchResultPosition=6
 
 **Could $2,000 a Year Keep Students in College?**\
 `New York’s public university system is starting a program that uses simple strategies, like transportation money, to keep students enrolled and on the path to graduation.`\
