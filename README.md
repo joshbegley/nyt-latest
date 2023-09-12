@@ -22,8 +22,8 @@ https://nytimes.com/2023/09/12/world/europe/portugal-red-wine-flood.html?searchR
 `Two tanks containing 600,000 gallons of wine collapsed at a distillery in Levira, Portugal, flooding the small town’s streets.`\
 https://nytimes.com/video/world/europe/100000009082604/portugal-wine-spill.html?searchResultPosition=6
 
-**McCarthy, Under Threat From Right Flank, to Endorse Impeachment Inquiry**\
-`The move against President Biden, which Speaker Kevin McCarthy has been signaling for weeks, comes as some far-right House Republicans are irate over spending and threatening to depose him.`\
+**McCarthy, Under Threat From Right, Orders Biden Impeachment Inquiry**\
+`The move against President Biden, which Speaker Kevin McCarthy had been signaling for weeks, comes as some far-right House Republicans are irate over spending and threatening to depose him.`\
 https://nytimes.com/2023/09/12/us/politics/mccarthy-biden-impeachment-inquiry.html?searchResultPosition=7
 
 **Review: This London ‘Ring’ Is on the Met Opera’s Radar**\
