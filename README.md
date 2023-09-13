@@ -1,4 +1,4 @@
-**Peter C. Newman, Journalist and Scourge of Canada’s Powerful, Dies at 94**\
+**Peter C. Newman, 94, Journalist and Scourge of Canada’s Powerful, Dies**\
 `A historian as well, he challenged, with a muckraker’s spirit, the political and corporate establishment of a country he adopted after fleeing Nazi-occupied Europe.`\
 https://nytimes.com/2023/09/13/world/canada/peter-c-newman-dead.html?searchResultPosition=1
 
