@@ -11,7 +11,7 @@ https://nytimes.com/2023/09/13/business/uaw-automakers-strike-explained.html?sea
 https://nytimes.com/2023/09/13/theater/no-good-things-dwell-in-the-flesh-review.html?searchResultPosition=3
 
 **Romney to Retire, Calling For a ‘New Generation’ Beyond Biden and Trump**\
-`The Utah Republican and 2012 G.O.P. presidential nominee said in a video statement that he would step aside to make way for younger leaders and strongly suggested the president and former president should, too.`\
+`The Utah Republican and 2012 G.O.P. presidential nominee, 76, said he would step aside to make way for younger leaders and strongly suggested the president and former president should, too.`\
 https://nytimes.com/2023/09/13/us/politics/mitt-romney-retirement.html?searchResultPosition=4
 
 **Husband of Rep. Mary Peltola Is Killed in Plane Crash, Officials Say**\
