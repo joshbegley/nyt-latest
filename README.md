@@ -19,7 +19,7 @@ https://nytimes.com/live/2023/09/13/world/russia-ukraine-news/north-korea-test-f
 https://nytimes.com/2023/09/13/briefing/libya-flooding-putin-trump.html?searchResultPosition=5
 
 **At Least 50 Casualties in Vietnam Apartment Block Fire, Officials Say**\
-`The fire broke out at a nine-story tower in Hanoi, the capital, on Tuesday night. The exact death toll was not immediately clear.`\
+`The fire broke out at a nine-story residential tower in Hanoi, the capital, late Tuesday night. The exact death toll was not immediately clear.`\
 https://nytimes.com/2023/09/13/world/asia/fire-vietnam-hanoi-apartment.html?searchResultPosition=6
 
 **The two leaders are expected to discuss Russia’s need for weapons.**\
