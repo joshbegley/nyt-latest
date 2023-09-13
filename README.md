@@ -15,7 +15,7 @@ https://nytimes.com/live/2023/09/13/world/russia-ukraine-news/cosmodrome-summit-
 https://nytimes.com/2023/09/13/world/europe/ukraine-eu-von-der-leyen-expand.html?searchResultPosition=4
 
 **Fire Erupts at Hanoi Apartment Building**\
-`Local reports said the fire was hard to contain because the building is situated in a narrow alley.`\
+`Local reports said the fire was hard to contain because the building is in a narrow alley.`\
 https://nytimes.com/video/world/asia/100000009084367/hanoi-vietnam-apartment-fire.html?searchResultPosition=5
 
 **Summit Signals How Ukraine War Drives Russian Foreign Policy**\
