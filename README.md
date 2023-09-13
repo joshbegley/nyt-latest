@@ -34,7 +34,7 @@ https://nytimes.com/2023/09/13/business/india-semiconductors.html?searchResultPo
 `Channel 14, formerly a small and niche outlet, has turned into a major force in the public discourse of a deeply divided country.`\
 https://nytimes.com/2023/09/13/world/middleeast/israel-tv-news-channel-14-netanyahu.html?searchResultPosition=9
 
-**Explosions Rock Russian Naval Facilities in Crimea**\
-`Officials in the Russian-occupied peninsula said dozens were injured near a Russian shipyard. The area hosts naval operations that are key to Moscow’s war efforts in Ukraine.`\
+**Ukraine Strikes Russian Naval Ships in Black Sea**\
+`The Russian Ministry of Defense said that Ukraine fired 10 cruise missiles at the facility in the city of Sevastopol. The area hosts naval operations that are key to Moscow’s war efforts in Ukraine.`\
 https://nytimes.com/2023/09/12/world/europe/sevastopol-explosion-black-sea-ukraine.html?searchResultPosition=10
 
