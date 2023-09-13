@@ -26,7 +26,7 @@ https://nytimes.com/2023/09/13/us/politics/mitt-romney-retirement.html?searchRes
 `The Federal Aviation Administration said that a small plane with only a pilot on board crashed shortly after takeoff near St. Mary’s, Alaska, on Tuesday.`\
 https://nytimes.com/2023/09/13/us/mary-peltola-husband-plane-crash.html?searchResultPosition=7
 
-**A Party with a Lot of Baggage**\
+**A Party With a Lot of Baggage**\
 `Martha Stewart, Spike Lee, Jenna Lyons and Justin Theroux gathered for an event for Rimowa in Chelsea, the luggage brand to the stars.`\
 https://nytimes.com/2023/09/13/style/rimowa-baggage.html?searchResultPosition=8
 
