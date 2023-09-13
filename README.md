@@ -10,9 +10,9 @@ https://nytimes.com/2023/09/13/world/europe/dublin-marathon-medal-yeats-misquote
 `By Paul Sonne`\
 https://nytimes.com/live/2023/09/13/world/russia-ukraine-news/cosmodrome-summit-follows-setbacks-in-russian-and-north-korean-space-programs?searchResultPosition=3
 
-**The E.U.’s top official calls for expanding the bloc after Russia’s war in Ukraine.**\
-`By Matina Stevis-Gridneff`\
-https://nytimes.com/live/2023/09/13/world/russia-ukraine-news/the-eus-top-official-calls-for-expanding-the-bloc-after-russias-war-in-ukraine?searchResultPosition=4
+**Top E.U. Official Calls for Major Expansion of Bloc**\
+`In an address, Ursula von der Leyen, the president of the European Commission, expressed support for Ukraine and several other nations joining the bloc over the next few years.`\
+https://nytimes.com/2023/09/13/world/europe/ukraine-eu-von-der-leyen-expand.html?searchResultPosition=4
 
 **Fire Erupts at Hanoi Apartment Building**\
 `Local reports said the fire was hard to contain because the building is situated in a narrow alley.`\
