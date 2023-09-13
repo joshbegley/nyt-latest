@@ -7,7 +7,7 @@ https://nytimes.com/live/2023/09/13/world/russia-ukraine-news/a-papal-envoy-head
 https://nytimes.com/2023/09/13/business/media/writers-strike-showrunners.html?searchResultPosition=2
 
 **Vandals Smash Dozens of Subway Windows, Snarling Service**\
-`Service remained suspended along the W line, which connects Manhattan and Queens, after the Tuesday night vandalism.`\
+`Service remained suspended along the W line, which connects Manhattan and Queens, after the Tuesday evening vandalism.`\
 https://nytimes.com/2023/09/13/nyregion/nyc-subway-smashed-windows.html?searchResultPosition=3
 
 **Defying Industry, California Lawmakers Vote for Employer-Paid Food Training**\
