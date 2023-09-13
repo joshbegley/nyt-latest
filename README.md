@@ -4,7 +4,7 @@ https://nytimes.com/2023/09/13/world/asia/fire-vietnam-hanoi-apartment.html?sear
 
 **Kim and Putin Arrive at Russian Site for Talks, State Media Says**\
 `The summit between Kim Jong-un and Vladimir V. Putin will be closely watched for indications that North Korea has agreed to supply munitions Moscow needs for its war in Ukraine.`\
-https://nytimes.com/2023/09/13/world/europe/kim-putin-russia-weapons-ukraine.html?searchResultPosition=2
+https://nytimes.com/live/2023/09/13/world/russia-ukraine-news/kim-putin-russia-weapons-ukraine?searchResultPosition=2
 
 **Gannett Is Looking for a Taylor Swift Reporter**\
 `Newspapers rarely assign a reporter to cover a single artist. But Swift is a cultural force whose tour continues breaking records.`\
