@@ -23,7 +23,7 @@ https://nytimes.com/2023/09/13/theater/no-good-things-dwell-in-the-flesh-review.
 https://nytimes.com/2023/09/13/us/politics/mitt-romney-retirement.html?searchResultPosition=6
 
 **Husband of Rep. Mary Peltola Is Killed in Plane Crash, Officials Say**\
-`The Federal Aviation Administration said that a small plane with only a pilot on board crashed shortly after takeoff near St. Mary’s, Alaska, on Tuesday.`\
+`Eugene Peltola Jr., 57, died after the small plane he was piloting crashed in a remote area near St. Mary’s, Alaska, on Tuesday, federal officials said.`\
 https://nytimes.com/2023/09/13/us/mary-peltola-husband-plane-crash.html?searchResultPosition=7
 
 **A Party With a Lot of Baggage**\
