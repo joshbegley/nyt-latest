@@ -1,5 +1,5 @@
 **Kim Jong-un Meets Vladimir Putin at Russian Spaceport**\
-`North Korea’s leader took a tour of the Vostochny Cosmodrome in Russia’s Far East with the Russian president before they gave remarks.`\
+`North Korea’s leader took a tour of the Vostochny Cosmodrome in Russia’s far east with the Russian president before they gave remarks.`\
 https://nytimes.com/video/world/asia/100000009084308/kim-jong-un-vladimir-putin-cosmodrome.html?searchResultPosition=1
 
 **Word of the Day: zenith**\
