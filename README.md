@@ -14,9 +14,9 @@ https://nytimes.com/live/2023/09/13/business/cpi-inflation-fed/food-prices-eased
 `Britain’s largest pub company is charging more for drinks during weekends and evenings.`\
 https://nytimes.com/2023/09/13/business/surge-pricing-drinks-slug-lettuce.html?searchResultPosition=4
 
-**Convicted Murderer Captured After 13-Day Manhunt in Pennsylvania**\
-`School districts canceled classes and roads were closed as officers used drones, dogs and helicopters to search woods and waterways for the fugitive, Danelo Cavalcante.`\
-https://nytimes.com/2023/09/13/us/danelo-cavalcante-captured-manhunt-pennsylvania.html?searchResultPosition=5
+**Here’s the latest on the manhunt.**\
+`The fugitive, Danelo Cavalcante, slipped out of Chester County Prison on Thursday morning, roughly two weeks after he was convicted of first-degree murder in the April 2021 killing of his former girlfriend.`\
+https://nytimes.com/live/2023/09/13/us/pa-fugitive-captured-danelo-cavalcante/danelo-cavalcante-captured-manhunt-pennsylvania?searchResultPosition=5
 
 **Tech Leaders Gather for an A.I. Week in Washington**\
 `Elon Musk, Mark Zuckerberg and Sam Altman are among the tech moguls meeting with lawmakers to discuss how to regulate the fast-growing technology.`\
