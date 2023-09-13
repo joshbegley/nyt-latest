@@ -10,7 +10,7 @@ https://nytimes.com/2023/09/13/arts/music/pharoah-sanders.html?searchResultPosit
 `Plus a road trip in Mongolia.`\
 https://nytimes.com/2023/09/13/briefing/ukraine-black-sea-strike-libya-floods-europe-china-electric-vehicles.html?searchResultPosition=3
 
-**A Border Patrol tactical unit helped capture Cavalcante.**\
+**A Border Patrol tactical unit was involved in the fugitive’s apprehension.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2023/09/13/us/pa-fugitive-captured-danelo-cavalcante/a-border-patrol-tactical-unit-helped-capture-cavalcante?searchResultPosition=4
 
