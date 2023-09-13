@@ -2,7 +2,7 @@
 `Vivek Ramaswamy, whose campaign for the Republican nomination has gained attention in recent months, has vowed to dismantle much of the federal government and shutter key agencies.`\
 https://nytimes.com/2023/09/13/us/politics/vivek-ramaswamy-dismantle-government.html?searchResultPosition=1
 
-**Arm, the Chip Maker, Raises $4.87 Billion in the Year’s Largest I.P.O.**\
+**Arm, the Chip Designer, Raises $4.87 Billion in the Year’s Largest I.P.O.**\
 `Arm’s return to public markets is being watched, by both Wall Street and Silicon Valley, as a barometer of investor appetite for new tech offerings.`\
 https://nytimes.com/2023/09/13/business/arm-ipo-pricing.html?searchResultPosition=2
 
