@@ -19,7 +19,7 @@ https://nytimes.com/2023/09/13/well/turmeric-health-benefits.html?searchResultPo
 https://nytimes.com/2023/09/13/dining/shakshuka-easy-chicken-noodle-soup-recipe.html?searchResultPosition=5
 
 **Jim Nutt’s Art Remains a Mystery. Even to Him.**\
-`In his first show of new work in over a decade, he creates studies of women and human emotion — irritation, fear, suspicion — from his own discomfort.`\
+`In his first show of new work in over a decade, he has been occupied with a single subject: a portrait of a woman, in which he finds endless variation and human emotion.`\
 https://nytimes.com/2023/09/13/arts/design/jim-nutt-drawing-david-nolan-gallery.html?searchResultPosition=6
 
 **Have an Idea for an Overlooked Obituary? We Want Your Suggestions**\
