@@ -14,7 +14,7 @@ https://nytimes.com/2023/09/13/opinion/birmingham-sarah-collins-rudolph.html?sea
 `We can’t have a serious conversation about poverty and inequality without contemplating the breakdown of marriage and family.`\
 https://nytimes.com/2023/09/13/opinion/single-parent-poverty.html?searchResultPosition=4
 
-**U.A.W. Prepares for Partial Strike Against Detroit Automakers on Friday**\
+**U.A.W. Prepares for Limited Strike Against Detroit Automakers on Friday**\
 `The union’s president, Shawn Fain, said negotiators were nowhere near an agreement and ruled out a contract extension while talks continued.`\
 https://nytimes.com/2023/09/13/business/uaw-strike-shawn-fain.html?searchResultPosition=5
 
