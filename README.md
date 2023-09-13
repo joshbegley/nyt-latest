@@ -1,40 +1,40 @@
-**European Union Will Investigate Chinese Subsidies of Electric Cars**\
-`The European Commission president, Ursula von der Leyen, announced the inquiry amid growing concern about China’s dominance over electric vehicles.`\
-https://nytimes.com/2023/09/13/business/eu-china-electric-vehicles.html?searchResultPosition=1
+**A Spectacular Marble Cube Rises at Ground Zero**\
+`The Perelman Performing Arts Center, a glamorous $500 million project, may yet turn the World Trade Center into a neighborhood, our critic writes.`\
+https://nytimes.com/2023/09/13/arts/design/perelman-performing-arts-center-review.html?searchResultPosition=1
 
-**Dublin Marathon Medals Commemorate Yeats, and Misquote Him**\
-`Those who complete this year’s race in October will receive a medal that reads, “There are no strangers here; only friends you haven’t met yet.”`\
-https://nytimes.com/2023/09/13/world/europe/dublin-marathon-medal-yeats-misquote.html?searchResultPosition=2
+**A Hidden Reason Cities Fall Apart**\
+`The loss of civic and corporate elites played a huge role in the erosion of urnam life.`\
+https://nytimes.com/2023/09/13/opinion/cities-elites-baltimore-pittsburgh.html?searchResultPosition=2
 
-**Cosmodrome summit follows setbacks in Russian and North Korean space programs.**\
-`By Paul Sonne`\
-https://nytimes.com/live/2023/09/13/world/russia-ukraine-news/cosmodrome-summit-follows-setbacks-in-russian-and-north-korean-space-programs?searchResultPosition=3
+**Biden’s Climate Law Is Reshaping Private Investment in the United States**\
+`Lucrative tax incentives have fueled a surge in solar panels but failed to boost wind power, data from a new project show.`\
+https://nytimes.com/2023/09/13/us/politics/biden-climate-law-investment.html?searchResultPosition=3
 
-**Top E.U. Official Calls for Major Expansion of Bloc**\
-`In an address, Ursula von der Leyen, the president of the European Commission, expressed support for Ukraine and several other nations joining the bloc over the next few years.`\
-https://nytimes.com/2023/09/13/world/europe/ukraine-eu-von-der-leyen-expand.html?searchResultPosition=4
+**2024’s Field of Nightmares**\
+`What a harsh truth from baseball says about Biden and Trump.`\
+https://nytimes.com/2023/09/13/opinion/biden-age-red-sox.html?searchResultPosition=4
 
-**Fire Erupts at Hanoi Apartment Building**\
-`Local reports said the fire was hard to contain because the building is in a narrow alley.`\
-https://nytimes.com/video/world/asia/100000009084367/hanoi-vietnam-apartment-fire.html?searchResultPosition=5
+**‘Wrestlers’ Is Greg Whiteley’s Latest Underdog Tale**\
+`The director’s sports docu-series, like “Last Chance U” and “Cheer,” deliver high-stakes drama on and off the field. His new one explores a regional pro wrestling outfit.`\
+https://nytimes.com/2023/09/13/arts/television/wrestlers-netflix-greg-whiteley.html?searchResultPosition=5
 
-**Summit Signals How Ukraine War Drives Russian Foreign Policy**\
-`The backdrop of the war has made North Korea more relevant than in years past for Russia, despite the North’s history as an impoverished, sometimes troublesome partner.`\
-https://nytimes.com/2023/09/13/world/europe/putin-kim-summit-analysis.html?searchResultPosition=6
+**How to Fall in Love With the World Again**\
+`A visual meditation on loss and finding comfort in the natural world.`\
+https://nytimes.com/interactive/2023/09/13/opinion/summer-photographs-loss.html?searchResultPosition=6
 
-**Behold: New York City’s Trash Can of the Future**\
-`Generations in the making, the new, sleeker receptacles will soon replace the iconic green mesh bins.`\
-https://nytimes.com/2023/09/13/nyregion/new-york-city-trash-cans.html?searchResultPosition=7
+**As Flames Closed In, They Tried to Escape Lahaina as a Family**\
+`The nation’s deadliest wildfire in more than a century gave almost no time for Lahaina residents to flee. Friends and family tried to save one another, but some ran into impossible challenges on Maui.`\
+https://nytimes.com/2023/09/13/us/maui-lahaina-fire-family-escape.html?searchResultPosition=7
 
-**Lazy Days**\
-`Do you enjoy lounging around?`\
-https://nytimes.com/2023/09/13/learning/lazy-days.html?searchResultPosition=8
+**The Fine Art of Naming a Group Chat**\
+`As texting continues to be central to our social circles, the name and image attached are often more considered than the messages themselves.`\
+https://nytimes.com/2023/09/13/style/group-text-thread-name.html?searchResultPosition=8
 
-**Expecting Cannabis Boom, New York Lays Down the Rules**\
-`Licensing requirements for distributors, dispensaries and others.`\
-https://nytimes.com/2023/09/13/nyregion/cannabis-marijuana-regulations-ny.html?searchResultPosition=9
+**A Viable Alternative to Conventional Lawn? Cornell May Have Found One.**\
+`Cornell Botanic Gardens is testing sustainable options for replacing your backyard grass. The bonus: They don’t need to be cut more than twice a year.`\
+https://nytimes.com/2023/09/13/realestate/native-grass-lawn.html?searchResultPosition=9
 
-**Who Is the GOAT?**\
-`Brady. Serena. LeBron. Messi. We invite you to make a case for the greatest athlete ever.`\
-https://nytimes.com/2023/09/13/learning/who-is-the-goat.html?searchResultPosition=10
+**Saratoga Springs, N.Y.: An Urban Oasis at the Foot of the Adirondacks**\
+`The Saratoga Race Course has long been a big draw, but it’s not the only one in this small, walkable city with a ‘phenomenal quality of life.’`\
+https://nytimes.com/2023/09/13/realestate/saratoga-springs-ny.html?searchResultPosition=10
 
