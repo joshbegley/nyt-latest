@@ -2,7 +2,7 @@
 `The fire broke out at a nine-story tower in Hanoi, the capital, on Tuesday night. The exact death toll was not immediately clear.`\
 https://nytimes.com/2023/09/13/world/asia/fire-vietnam-hanoi-apartment.html?searchResultPosition=1
 
-**Kim and Putin Arrive at Russian Site for Talks, State Media Says**\
+**The two leaders are expected to discuss Russia’s need for weapons.**\
 `The summit between Kim Jong-un and Vladimir V. Putin will be closely watched for indications that North Korea has agreed to supply munitions Moscow needs for its war in Ukraine.`\
 https://nytimes.com/live/2023/09/13/world/russia-ukraine-news/kim-putin-russia-weapons-ukraine?searchResultPosition=2
 
