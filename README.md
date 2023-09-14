@@ -1,5 +1,5 @@
-**Three Schiele Works Are Seized From U.S. Museums**\
-`The Manhattan district attorney’s office is charging the institutions with criminal possession of stolen property in a case that had been a civil one.`\
+**Schiele Works Believed to Be Stolen Are Seized From U.S. Museums**\
+`Manhattan prosecutors file criminal charges against several institutions in what began as a civil suit by heirs of an art collector killed at Dachau.`\
 https://nytimes.com/2023/09/13/arts/design/nazi-stolen-schiele-works-seized.html?searchResultPosition=1
 
 **Prosecution Rests in Paxton Impeachment, Focusing on Favors**\
