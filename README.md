@@ -10,7 +10,7 @@ https://nytimes.com/2023/09/14/opinion/mitt-romney-trump-retiring.html?searchRes
 `The Alliance of Motion Picture and Television Producers said the union had asked for a meeting, which would be the first in nearly a month.`\
 https://nytimes.com/2023/09/14/business/hollywood-strike-studios-writers.html?searchResultPosition=3
 
-**Trump Fraud Trial in New York Is Paused After He Sues the Judge**\
+**Trump Lawsuit Against Judge Could Delay N.Y. Fraud Trial**\
 `The delay came as federal prosecutors pushed back against the former president’s efforts to attack another judge in his election interference case in Washington.`\
 https://nytimes.com/2023/09/14/nyregion/trump-james-trial-lawsuit.html?searchResultPosition=4
 
