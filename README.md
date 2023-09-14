@@ -1,6 +1,6 @@
 **Motion to Strike**\
 `Vasu Seralathan sends us on a hunt for — what is that, buried treasure?`\
-https://nytimes.com/2023/09/13/crosswords/daily-puzzle-09-14.html?searchResultPosition=1
+https://nytimes.com/2023/09/13/crosswords/daily-puzzle-2023-09-14.html?searchResultPosition=1
 
 **Schiele Works Believed to Be Stolen Are Seized From U.S. Museums**\
 `Manhattan prosecutors file criminal charges against several institutions in what began as a civil suit by heirs of an art collector killed at Dachau.`\
