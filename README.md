@@ -2,7 +2,7 @@
 `The Dominican president said the military would enforce the measure on Friday morning. Experts warned the closure could deepen Haiti’s economic crisis.`\
 https://nytimes.com/2023/09/14/world/americas/dominican-republic-haiti-border-water.html?searchResultPosition=1
 
-**Libya Flood Victims: ‘I Survived By a Miracle’**\
+**Libya Flood Victims: ‘I Survived by a Miracle’**\
 `Days after the catastrophic flood in northeastern Libya killed thousands of people, the city of Derna remains largely cut off from the outside world. The New York Times reached residents by phone who described dire conditions and sent videos capturing the toll of the destruction.`\
 https://nytimes.com/video/world/africa/100000009082706/derna-libya-flooding.html?searchResultPosition=2
 
