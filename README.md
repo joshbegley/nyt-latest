@@ -1,6 +1,6 @@
 **Georgia Judge Orders Two Separate Trials for Defendants in Election Case**\
 `Two defendants will get a speedy trial starting in October, but the others, including Donald Trump, can have more time to prepare, the judge ruled.`\
-https://nytimes.com/2023/09/14/us/trump-chesebro-and-sidney-powell-georgia-election-case.html?searchResultPosition=1
+https://nytimes.com/2023/09/14/us/trump-chesebro-powell-trial-georgia.html?searchResultPosition=1
 
 **Yiddish, Though Homeless, Survives**\
 `Responses to a guest essay about how Yiddish is having a bit of a revival. Also: America’s immigration system; the purpose of college; Republican hypocrisy.`\
