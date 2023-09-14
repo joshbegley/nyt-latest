@@ -1,40 +1,40 @@
-**Google on Trial**\
-`An antitrust trial is the most significant attempt in decades to undo the Bork consensus.`\
-https://nytimes.com/2023/09/14/briefing/google-on-trial.html?searchResultPosition=1
+**‘Rebel’ Review: A Family Caught in the Islamic State’s Snare**\
+`This musical drama about Islamic extremism (yes, you read that right) crowds out its finer points with spectacle.`\
+https://nytimes.com/2023/09/14/movies/rebel-review-islamic-state.html?searchResultPosition=1
 
-**Until 3183 A.D., This Public Sculpture Is a Work in Progress**\
-`The “Time Pyramid” is being assembled slowly by the residents of a German town, who can scarcely imagine the world in which the artwork will be completed.`\
-https://nytimes.com/2023/09/14/arts/design/wemding-time-pyramid-zeitpyramide.html?searchResultPosition=2
+**‘Radical Wolfe’ Review: The Substance of Style**\
+`This by-the-book documentary about Tom Wolfe, a pioneer of the New Journalism movement, can hardly match the stylistic flair that made the writer famous.`\
+https://nytimes.com/2023/09/14/movies/radical-wolfe-review.html?searchResultPosition=2
 
-**An Armored Train and a Dangerous New Alliance?**\
-`The meeting between President Vladimir V. Putin of Russia and North Korea’s leader, Kim Jong-un, could have malign consequences for the world.`\
-https://nytimes.com/2023/09/14/podcasts/the-daily/putin-north-korea.html?searchResultPosition=3
+**‘A Million Miles Away’ Review: From the Fields to Outer Space**\
+`In this biopic, a boy from a family of migrant farm workers watches the moon landing in 1969, which ignites his desire to be an astronaut.`\
+https://nytimes.com/2023/09/14/movies/a-million-miles-away-review.html?searchResultPosition=3
 
-**Today’s Top News: The Effect of an Auto Strike, and More**\
-`Exclusively from New York Times Audio, our new app.`\
-https://nytimes.com/2023/09/14/podcasts/headlines-nyt-audio-app.html?searchResultPosition=4
+**‘Outlaw Johnny Black’ Review: Vengeance Is on His Mind**\
+`This misguided Western parody, starring and directed by Michael Jai White, struggles to establish a comedic rhythm.`\
+https://nytimes.com/2023/09/14/movies/outlaw-johnny-black-review.html?searchResultPosition=4
 
-**Amid Rescue Efforts After Libya Floods, a Call for Accountability**\
-`The government of one side of the country has called for an investigation into how two dams collapsed and into reports that aid had been hindered.`\
-https://nytimes.com/2023/09/14/world/middleeast/libya-floods.html?searchResultPosition=5
+**‘Remembering Every Night’ Review: Separate Lives, Intertwined**\
+`Yui Kiyohara’s slow and graceful film follows a day in the life of three women of different ages as their paths crisscross in a Tokyo suburb.`\
+https://nytimes.com/2023/09/14/movies/remembering-every-night-review.html?searchResultPosition=5
 
-**Your End-of-Summer Politics Quiz Is Here**\
-`Test how closely you followed the news this summer.`\
-https://nytimes.com/interactive/2023/09/14/opinion/Fall-Politics-Quiz.html?searchResultPosition=6
+**‘Love at First Sight’ Review: Sense, Sensibility and Statistics**\
+`Two lovebirds-to-be meet at an airport in this unoriginal but sturdy Y.A. romance, which pivots on the probability of falling in love.`\
+https://nytimes.com/2023/09/14/movies/love-at-first-sight-review.html?searchResultPosition=6
 
-**Oprah Winfrey, Timothée Chalamet and Kylie Jenner Attend Fashion Week Parties**\
-`The Kering Foundation held a benefit, Haider Ackermann hosted an intimate dinner and LaQuan Smith threw an after-party.`\
-https://nytimes.com/2023/09/14/style/nyfw-party-oprah-kylie-jenner-timothee-chalamet.html?searchResultPosition=7
+**‘Lift’ Review: The Choreography of Mentoring Young Talents**\
+`In this documentary, ballet has life-changing power for three New York dancers whose toughest struggles are not matters of technique.`\
+https://nytimes.com/2023/09/14/movies/lift-review.html?searchResultPosition=7
 
-**‘A Ticket to Disney’? Politicians Charge Millions to Send Migrants to U.S.**\
-`The Biden administration vowed to “end the illicit movement” of people through the Darién jungle. But the number of migrants moving through the forest has never been greater — and the profits are too big to pass up.`\
-https://nytimes.com/2023/09/14/world/americas/migrant-business-darien-gap.html?searchResultPosition=8
+**‘Invisible Beauty’ Review: The Battle to Diversify**\
+`This documentary presents a vision of the fashion industry through the eyes of Bethann Hardison — a model, agent and champion of Black representation.`\
+https://nytimes.com/2023/09/14/movies/invisible-beauty-review.html?searchResultPosition=8
 
-**Welcome to the World of Competitive Boat Docking**\
-`It’s a circuit that only exists on the Maryland and Virginia shores. And the watermen who compete sort of like it that way.`\
-https://nytimes.com/2023/09/14/style/welcome-to-the-world-of-competitive-boat-docking.html?searchResultPosition=9
+**‘The Inventor’ Review: Leonardo da Vinci in the Limelight**\
+`This playful movie uses stop-motion and hand-drawn animation to pay homage to Leonardo as a thinker and tinkerer.`\
+https://nytimes.com/2023/09/14/movies/the-inventor-review.html?searchResultPosition=9
 
-**White House Strategy on Impeachment: Fight Politics With Politics**\
-`The White House says it is battling the inquiry in the court of public opinion since House Republicans have not issued any new subpoenas or laid out any potential articles of impeachment.`\
-https://nytimes.com/2023/09/14/us/politics/white-house-strategy-impeachment.html?searchResultPosition=10
+**‘Mr. Jimmy’ Review: Trying for That Perfect Page Re-Creation**\
+`Akio Sakurai is obsessed with sounding exactly like the Led Zeppelin guitarist Jimmy Page. This documentary plumbs the depths of his devotion.`\
+https://nytimes.com/2023/09/14/movies/mr-jimmy-zeppelin-obsessed.html?searchResultPosition=10
 
