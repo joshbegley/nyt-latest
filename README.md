@@ -24,7 +24,7 @@ https://nytimes.com/video/science/100000009087563/nasa-ufo-research-director.htm
 
 **‘One of the Most Hated People in the World’: Sam Bankman-Fried’s 250 Pages of Justifications**\
 `The FTX founder wrote hundreds of pages of reflections and self-justifications while under house arrest, shedding light on how he may defend himself at his criminal trial next month.`\
-https://nytimes.com/2023/09/14/technology/sam-bankman-fried-writings-during-house-arrest.html?searchResultPosition=7
+https://nytimes.com/2023/09/14/technology/sam-bankman-fried-ftx-twitter-thread.html?searchResultPosition=7
 
 **Friday Briefing: A Call for Answers in Libya**\
 `Plus an Afghan soccer captain fighting for girls.`\
