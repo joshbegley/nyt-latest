@@ -1,4 +1,4 @@
-**Three Schiele Works Stolen by Nazis Are Seized From U.S. Museums**\
+**Three Schiele Works Are Seized From U.S. Museums**\
 `The Manhattan district attorney’s office is charging the institutions with criminal possession of stolen property in a case that had been a civil one.`\
 https://nytimes.com/2023/09/13/arts/design/nazi-stolen-schiele-works-seized.html?searchResultPosition=1
 
