@@ -12,7 +12,7 @@ https://nytimes.com/2023/09/14/sports/football/nfl-picks-week-2.html?searchResul
 
 **They Shot at Her. They Forced Her From Her Home. She Won’t Stop Fighting for Girls.**\
 `Khalida Popal helped save Afghan female soccer players from the Taliban. Now she is demanding that world soccer officials let them play for their country again.`\
-https://nytimes.com/2023/09/14/sports/soccer/they-shot-at-her-they-forced-her-from-her-home-she-wont-stop-fighting-for-girls.html?searchResultPosition=4
+https://nytimes.com/2023/09/14/sports/soccer/afghanistan-womens-soccer-khalida-popal.html?searchResultPosition=4
 
 **Get Ready for Your Wedding, but Make It Glam**\
 `For brides who want to feel glamorous at every moment on their wedding day, ornate robes embellished with feathers, lace and sequins are a go-to option for pre-wedding looks.`\
