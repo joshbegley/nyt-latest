@@ -10,8 +10,8 @@ https://nytimes.com/2023/09/14/us/politics/egypt-biden-military-aid.html?searchR
 `NASA said it had hired a director of research to study “unidentified anomalous phenomenon,” or U.A.P., after a report recommended the agency do more to investigate the topic. The agency did not share the director’s name.`\
 https://nytimes.com/video/science/100000009087563/nasa-ufo-research-director.html?searchResultPosition=3
 
-**A 70-Page Twitter Thread: Sam Bankman-Fried’s Writings During House Arrest**\
-`The FTX founder wrote hundreds of pages of reflections and self-justifications, shedding light on how he may defend himself at his criminal trial next month.`\
+**‘One of the Most Hated People in the World’: Sam Bankman-Fried’s 250 Pages of Justifications**\
+`The FTX founder wrote hundreds of pages of reflections and self-justifications while under house arrest, shedding light on how he may defend himself at his criminal trial next month.`\
 https://nytimes.com/2023/09/14/technology/sam-bankman-fried-writings-during-house-arrest.html?searchResultPosition=4
 
 **Friday Briefing: A Call for Answers in Libya**\
