@@ -1,25 +1,33 @@
+**NASA Appoints a U.F.O. Research Director**\
+`NASA said it had hired a director of research to study “unidentified anomalous phenomenon,” or U.A.P., after a report recommended the agency do more to investigate the topic. The agency did not share the director’s name.`\
+https://nytimes.com/video/science/100000009087563/nasa-ufo-research-director.html?searchResultPosition=1
+
+**A 70-Page Twitter Thread: Sam Bankman-Fried’s Writings During House Arrest**\
+`The FTX founder wrote hundreds of pages of reflections and self-justifications, shedding light on how he may defend himself at his criminal trial next month.`\
+https://nytimes.com/2023/09/14/technology/sam-bankman-fried-writings-during-house-arrest.html?searchResultPosition=2
+
 **Friday Briefing: A Call for Answers in Libya**\
 `Plus an Afghan soccer captain fighting for girls.`\
-https://nytimes.com/2023/09/14/briefing/libya-floods-putin-north-korea-hunter-biden.html?searchResultPosition=1
+https://nytimes.com/2023/09/14/briefing/libya-floods-putin-north-korea-hunter-biden.html?searchResultPosition=3
 
 **Overlooked No More: Molly Nelson, Steward of Penobscot Culture**\
 `As a dancer, actress and storyteller also known as Molly Spotted Elk, she bridged her world and that of the West, captivating audiences along the way.`\
-https://nytimes.com/2023/09/14/obituaries/molly-nelson-overlooked.html?searchResultPosition=2
+https://nytimes.com/2023/09/14/obituaries/molly-nelson-overlooked.html?searchResultPosition=4
 
 **U.A.W. Strike Looms Over Detroit Auto Show**\
 `The three established U.S. automakers could struggle to get new cars and trucks to dealerships and customers during a prolonged strike that slows or stops production lines.`\
-https://nytimes.com/2023/09/14/business/uaw-strike-detroit-auto-show.html?searchResultPosition=3
+https://nytimes.com/2023/09/14/business/uaw-strike-detroit-auto-show.html?searchResultPosition=5
 
 **In Texas, a Black High School Student Is Suspended Over His Hair Length**\
 `A Texas school district said that the student’s hair, even when pinned, violated dress code. The district said the suspension did not violate a new law banning race-based hair discrimination.`\
-https://nytimes.com/2023/09/14/us/texas-student-locs-hair-crown-act.html?searchResultPosition=4
+https://nytimes.com/2023/09/14/us/texas-student-locs-hair-crown-act.html?searchResultPosition=6
 
 **Planned Parenthood Will Once Again Provide Abortions in Wisconsin**\
 `The clinic had suspended abortions during a legal battle over an 1849 law, which is ongoing.`\
-https://nytimes.com/2023/09/14/us/wisconsin-abortion-planned-parenthood.html?searchResultPosition=5
+https://nytimes.com/2023/09/14/us/wisconsin-abortion-planned-parenthood.html?searchResultPosition=7
 
 **U.S. Aims New Sanctions at Russian Military Supply Chains**\
 `The sanctions are intended to deprive President Vladimir V. Putin of equipment and technology “he needs to wage his barbaric war on Ukraine,” Treasury Secretary Janet Yellen said.`\
-https://nytimes.com/2023/09/14/world/europe/us-sanctions-russia.html?searchResultPosition=6
+https://nytimes.com/2023/09/14/world/europe/us-sanctions-russia.html?searchResultPosition=8
 
 **5 Cheap(ish) Dorm Essentials to Make College Life Easier**\
