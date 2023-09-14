@@ -3,7 +3,7 @@
 https://nytimes.com/2023/09/14/arts/design/restitution-looted-10-stories-mauritshuis.html?searchResultPosition=1
 
 **European Central Bank Raises Rates for a 10th Time**\
-`In its battle to control inflation, the bank raised its key interest rate to the highest level on record but implied that rates have reached their peak.`\
+`In its battle to control inflation, the bank raised its key interest rate to the highest level on record but suggested that rates have reached their peak.`\
 https://nytimes.com/2023/09/14/business/european-central-bank-rates.html?searchResultPosition=2
 
 **Arm’s I.P.O. Delivers a Big Test for the Markets**\
