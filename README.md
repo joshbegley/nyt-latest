@@ -3,7 +3,7 @@
 https://nytimes.com/2023/09/14/us/new-england-tornado.html?searchResultPosition=1
 
 **History Turns Upside Down in a War Where the Koreas Are Suppliers**\
-`Desperate for munitions for the war in Ukraine, the U.S. and Russia have turned to their allies in South and North Korea, which have kept stockpiling arms for decades after their own conflict.`\
+`Desperate for munitions for the war in Ukraine, the U.S. and Russia have turned to their allies in South and North Korea, which kept stockpiling arms for decades after their own conflict.`\
 https://nytimes.com/2023/09/14/world/asia/north-south-korea-ukraine.html?searchResultPosition=2
 
 **Thursday Briefing**\
