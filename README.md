@@ -34,7 +34,7 @@ https://nytimes.com/live/2023/09/14/world/russia-ukraine-news/russia-destroys-fi
 `This word has appeared in 74 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2023/09/14/learning/word-of-the-day-tantamount.html?searchResultPosition=9
 
-**Strong Winds in Southern New England Possibly a Tornado, or Tornadoes**\
+**Likely Tornado Sweeps Through Southern New England**\
 `The National Weather Service said a tornado, or several, appeared to hit parts of the region on Wednesday. No injuries were reported.`\
 https://nytimes.com/2023/09/14/us/new-england-tornado.html?searchResultPosition=10
 
