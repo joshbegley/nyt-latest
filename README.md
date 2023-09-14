@@ -3,7 +3,7 @@
 https://nytimes.com/2023/09/13/crosswords/daily-puzzle-2023-09-14.html?searchResultPosition=1
 
 **Schiele Works Believed to Be Stolen Are Seized From U.S. Museums**\
-`Manhattan prosecutors file criminal charges against several institutions in what began as a civil suit by heirs of an art collector killed at Dachau.`\
+`Manhattan prosecutors contend that the art in question belongs to the heirs of a collector who was a Holocaust victim.`\
 https://nytimes.com/2023/09/13/arts/design/nazi-stolen-schiele-works-seized.html?searchResultPosition=2
 
 **Prosecution Rests in Paxton Impeachment, Focusing on Favors**\
