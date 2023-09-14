@@ -18,7 +18,7 @@ https://nytimes.com/live/2023/09/14/world/russia-ukraine-news/putin-accepts-an-i
 `It’s facing many of the issues that will be on display at upcoming climate summits.`\
 https://nytimes.com/2023/09/14/climate/to-understand-clean-energy-challenges-we-went-to-uzbekistan.html?searchResultPosition=5
 
-**Gridlock, Confusion and Waiting: On the Road with Spanish Rescuers in Morocco**\
+**Gridlock, Confusion and Waiting: On the Road With Spanish Rescuers in Morocco**\
 `Our video journalists embedded with a team of Spanish military rescuers in Morocco as they attempted to save lives after the earthquake. They spent much of the day waiting for orders.`\
 https://nytimes.com/video/world/africa/100000009082956/spanish-rescuers-morocco.html?searchResultPosition=6
 
