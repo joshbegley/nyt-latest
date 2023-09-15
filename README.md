@@ -1,25 +1,40 @@
+**The Weekender**\
+`How Mattel made “Barbie” a cinematic hit. Also: an interview with Sean Combs, and sharks living on a golf course.`\
+https://nytimes.com/2023/09/15/briefing/the-weekender.html?searchResultPosition=1
+
+**Ukraine’s military says it has retaken the eastern village of Andriivka.**\
+`By Jeffrey Gettleman and Oleksandra Mykolyshyn`\
+https://nytimes.com/live/2023/09/15/world/russia-ukraine-news/ukraines-military-says-it-has-retaken-the-eastern-village-of-andriivka?searchResultPosition=2
+
+**Love Letters to California**\
+`Readers share why they adore living in the Golden State.`\
+https://nytimes.com/2023/09/15/us/california-love-letters.html?searchResultPosition=3
+
+**Beware Companies Selling Credit ‘Repair’ Services**\
+`Consumers have a right to dispute mistakes on their credit reports. But if they’ve made late payments, that can’t be erased, consumer experts say.`\
+https://nytimes.com/2023/09/15/your-money/credit-score-repair.html?searchResultPosition=4
+
+**Biden Administration Aims to Trump-Proof the Federal Work Force**\
+`If Donald Trump wins a second term, he and his allies want to revive a plan to allow a president to fire civil service workers who are supposed to be hired on merit. The Biden administration is trying to thwart it.`\
+https://nytimes.com/2023/09/15/us/politics/trump-biden-schedule-f.html?searchResultPosition=5
+
+**Easy Mode: Clues for Sept. 15**\
+`Get some help on the Friday crossword puzzle.`\
+https://nytimes.com/2023/09/15/crosswords/easy-mode-clues-for-september-15.html?searchResultPosition=6
+
 **European Countries to Keep Some Missile Sanctions on Iran**\
 `U.N. sanctions are set to expire in October, as part of the 2015 nuclear deal. Other nations, including Russia, will be free to buy Iranian missiles and drones.`\
-https://nytimes.com/2023/09/15/world/europe/france-germany-uk-iran-sanctions-missiles.html?searchResultPosition=1
+https://nytimes.com/2023/09/15/world/europe/france-germany-uk-iran-sanctions-missiles.html?searchResultPosition=7
 
 **Romy Madley Croft’s Solo Debut and More: The Week in Reporter Reads**\
 `Articles from around The Times, narrated just for you.`\
-https://nytimes.com/2023/09/15/podcasts/romy-madley-croft-barbie-michelin.html?searchResultPosition=2
+https://nytimes.com/2023/09/15/podcasts/romy-madley-croft-barbie-michelin.html?searchResultPosition=8
 
 **Republican Presidential Candidates on Labor and Unions**\
 `As the Republican presidential candidates campaign under the shadow of a front-runner facing dozens of felony charges, The New York Times examined their stances on ten key issues.`\
-https://nytimes.com/interactive/2023/09/15/us/politics/republican-candidates-2024-labor-unions.html?searchResultPosition=3
+https://nytimes.com/interactive/2023/09/15/us/politics/republican-candidates-2024-labor-unions.html?searchResultPosition=9
 
 **TikTok Fined $370 Million for Mishandling Child Data**\
 `The data-collection practices of TikTok that were cited by the European Union are becoming a common target for global regulators.`\
-https://nytimes.com/2023/09/15/business/tiktok-european-union-fine.html?searchResultPosition=4
+https://nytimes.com/2023/09/15/business/tiktok-european-union-fine.html?searchResultPosition=10
 
-**Chicken Karaage, Pizza Salad and a Golden Knot of Challah**\
-`The weekend is a perfect time to experiment with new flavors and techniques, to bring the delicious into your life and the lives of those around you.`\
-https://nytimes.com/2023/09/15/dining/chicken-karaage-pizza-salad-and-a-golden-knot-of-challah.html?searchResultPosition=5
-
-**U.A.W. Strike Is a Real-Time Test of Biden’s Economic Agenda**\
-`White House aides believe the outcome of the battle between the car companies and its workers will underscore many of the president’s policy positions.`\
-https://nytimes.com/2023/09/15/us/politics/biden-uaw-strike.html?searchResultPosition=6
-
-**What the automakers are saying about the strike.**\
