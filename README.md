@@ -16,7 +16,7 @@ https://nytimes.com/2023/09/15/theater/michael-mcgrath-dead.html?searchResultPos
 
 **At a Detroit rally, Bernie Sanders cheers on striking workers and condemns ‘corporate greed.’**\
 `By Santul Nerkar and Neal E. Boudette`\
-https://nytimes.com/live/2023/09/15/business/united-auto-workers-strike/at-a-detroit-rally-bernie-sanders-cheers-on-striking-workers-and-condemns-corporate-greed?searchResultPosition=5
+https://nytimes.com/2023/09/15/business/economy/bernie-sanders-uaw-detroit-rally.html?searchResultPosition=5
 
 **Tadaaki Kuwayama, Painter of Cool but Vivid Monochromes, Dies at 91**\
 `Arriving in New York from Japan in 1958, he sought to “create works with no trace of touch.”`\
