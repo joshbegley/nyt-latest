@@ -8,7 +8,7 @@ https://nytimes.com/live/2023/09/15/business/united-auto-workers-strike/from-for
 
 **Her Father Is the B.T.K. Killer. She’s Helping to Close More Cases.**\
 `Dennis Rader terrorized Kansas for decades before his arrest in 2005. His daughter, Kerri Rawson, could not bear to see him until this June, when she visited him in prison to help investigators.`\
-https://nytimes.com/2023/09/15/us/btk-daughter-dennis-rader.html?searchResultPosition=3
+https://nytimes.com/2023/09/15/us/btk-daughter-dennis-rader-kerri-rawson.html?searchResultPosition=3
 
 **London’s Buzziest Young Designer Is Sitting Out Fashion Week**\
 `Dilara Findikoglu has dressed Margot Robbie and Cardi B and has been embraced by the fashion industry. Why would she cancel her runway show at the last minute?`\
