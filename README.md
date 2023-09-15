@@ -1,6 +1,6 @@
 **London’s Buzziest Young Designer Is Sitting Out Fashion Week**\
 `Dilara Findikoglu has dressed Margot Robbie and Cardi B and has been embraced by the fashion industry. Why would she cancel her runway show at the last minute?`\
-https://nytimes.com/2023/09/15/style/londons-buzziest-young-designer-is-sitting-out-fashion-week.html?searchResultPosition=1
+https://nytimes.com/2023/09/15/style/dilara-findikoglu-london-fashion-week.html?searchResultPosition=1
 
 **Russia raises interest rates again amid persistent concerns about inflation.**\
 `By Paul Sonne`\
