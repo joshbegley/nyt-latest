@@ -19,7 +19,7 @@ https://nytimes.com/2023/09/15/arts/television/billions-recap-episode-6.html?sea
 https://nytimes.com/2023/09/15/world/europe/interpreter-books-beijing-rules-alperton-angels.html?searchResultPosition=5
 
 **Fernando Botero, Artist of Whimsical Rotundity, Is Dead at 91**\
-`His voluptuous figures, both in paintings and in sculpture, portrayed the high and mighty as well as everyday people through a magical-realist prism.`\
+`His voluptuous figures, both in paintings and in sculpture, portrayed the high and mighty as well as everyday people through a distorting prism.`\
 https://nytimes.com/2023/09/15/arts/fernando-botero-artist-of-whimsical-rotundity-is-dead-at-91.html?searchResultPosition=6
 
 **Formula 1 Keeps Adding Races**\
