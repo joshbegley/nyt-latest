@@ -6,8 +6,8 @@ https://nytimes.com/interactive/2023/09/15/upshot/flashback.html?searchResultPos
 `Also, a look at post-pandemic fashion. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2023/09/15/briefing/uaw-strike-post-pandemic-fashion.html?searchResultPosition=2
 
-**Special Counsel Seeking Limited Gag Order on Trump in Elections Case**\
-`Prosecutors have asked Judge Tanya S. Chutkan to curb statements from the former president that could intimidate witnesses, influence potential jurors and lead to harassment of others in the case.`\
+**Special Counsel Seeking Limited Gag Order on Trump in Election Case**\
+`Prosecutors have asked Judge Tanya S. Chutkan to curb statements from the former president that could intimidate witnesses, influence potential jurors or lead to harassment of others in the case.`\
 https://nytimes.com/2023/09/15/us/politics/trump-gag-order.html?searchResultPosition=3
 
 **Charles Gayle, Saxophonist of Fire and Brimstone, Dies at 84**\
