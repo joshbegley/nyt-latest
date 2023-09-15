@@ -1,5 +1,5 @@
 **Republican Presidential Candidates on Labor and Unions**\
-`As the Republican presidential candidates campaign under the shadow of a front-runner facing dozens of felony charges, The New York Times examined their stances on eight key issues.`\
+`As the Republican presidential candidates campaign under the shadow of a front-runner facing dozens of felony charges, The New York Times examined their stances on ten key issues.`\
 https://nytimes.com/interactive/2023/09/15/us/politics/republican-candidates-2024-labor-unions.html?searchResultPosition=1
 
 **TikTok Fined $370 Million for Mishandling Child Data**\
