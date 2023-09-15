@@ -15,7 +15,7 @@ https://nytimes.com/2023/09/15/world/australia/spring-culture-australia.html?sea
 https://nytimes.com/2023/09/15/theater/michael-mcgrath-dead.html?searchResultPosition=4
 
 **At a Detroit rally, Bernie Sanders cheers on striking workers and condemns ‘corporate greed.’**\
-`By Santul Nerkar and Neal E. Boudette`\
+`The senator from Vermont spoke of the growing gap between C.E.O. and worker pay, urging the leaders of the Big Three automakers to understand “the sacrifices your workers have made over the years.”`\
 https://nytimes.com/2023/09/15/business/economy/bernie-sanders-uaw-detroit-rally.html?searchResultPosition=5
 
 **Tadaaki Kuwayama, Painter of Cool but Vivid Monochromes, Dies at 91**\
