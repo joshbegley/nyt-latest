@@ -2,7 +2,7 @@
 `This word has appeared in 63 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2023/09/15/word-of-the-day-deferential.html?searchResultPosition=1
 
-**Kim Jong-un visits a fighter jet factory in Russia’s far east.**\
+**Kim Jong-un tours a fighter jet factory in Russia’s far east.**\
 `By Choe Sang-Hun`\
 https://nytimes.com/live/2023/09/15/world/russia-ukraine-news/kim-jong-un-visits-a-fighter-jet-factory-in-russias-far-east?searchResultPosition=2
 
