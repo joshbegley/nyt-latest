@@ -34,7 +34,7 @@ https://nytimes.com/2023/09/15/us/politics/biden-impeachment.html?searchResultPo
 `One reason voters don’t see the good news (yet).`\
 https://nytimes.com/2023/09/15/opinion/inflation-economy-polls.html?searchResultPosition=9
 
-**House Democrats Visit a Migrant Hotel as Political Tensions Boil Over**\
+**House Democrats Visit a Migrant Hotel as Political Tensions Erupt**\
 `After New York City’s mayor begged for help from the federal government, Congressional Democrats, including Alexandria Ocasio-Cortez, came to visit the city’s main migrant shelter.`\
 https://nytimes.com/2023/09/15/nyregion/migrant-shelter-roosevelt-hotel-aoc.html?searchResultPosition=10
 
