@@ -1,6 +1,6 @@
 **A rise in car prices would hit consumers already facing higher payments.**\
-`By J. Edward Moreno`\
-https://nytimes.com/live/2023/09/15/business/united-auto-workers-strike/car-prices-uaw-strike?searchResultPosition=1
+`If the U.A.W. strike lasts long enough, it could cut the supply of vehicles and push prices even higher.`\
+https://nytimes.com/2023/09/15/business/economy/car-prices-uaw-strike.html?searchResultPosition=1
 
 **Everything to Know About Fashion Week (So Far)**\
 `The weirdest, wildest and most wearable moments from the spring 2024 shows.`\
