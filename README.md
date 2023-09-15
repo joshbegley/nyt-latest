@@ -1,4 +1,4 @@
-**Are Men Obsessed With the Roman Empire? It Depends Who You Ask.**\
+**Are Men Obsessed With the Roman Empire? Yes, Say Men.**\
 `Women are asking the men in their lives how often they think about ancient Rome. Their responses, posted online, can be startling in their frequency.`\
 https://nytimes.com/2023/09/15/style/roman-empire-men-tiktok-instagram.html?searchResultPosition=1
 
