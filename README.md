@@ -1,40 +1,40 @@
+**From Ford Broncos to Jeep Wranglers, the strike targets several popular truck models.**\
+`By Santul Nerkar`\
+https://nytimes.com/live/2023/09/15/business/united-auto-workers-strike/from-ford-broncos-to-jeep-wranglers-the-strike-targets-several-popular-truck-models?searchResultPosition=1
+
 **Her Father Is the B.T.K. Killer. She’s Helping to Close More Cases.**\
 `Dennis Rader terrorized Kansas for decades before his arrest in 2005. His daughter, Kerri Rawson, could not bear to see him until this June, when she visited him in prison to help investigators.`\
-https://nytimes.com/2023/09/15/us/btk-daughter-dennis-rader.html?searchResultPosition=1
+https://nytimes.com/2023/09/15/us/btk-daughter-dennis-rader.html?searchResultPosition=2
 
 **London’s Buzziest Young Designer Is Sitting Out Fashion Week**\
 `Dilara Findikoglu has dressed Margot Robbie and Cardi B and has been embraced by the fashion industry. Why would she cancel her runway show at the last minute?`\
-https://nytimes.com/2023/09/15/style/dilara-findikoglu-london-fashion-week.html?searchResultPosition=2
+https://nytimes.com/2023/09/15/style/dilara-findikoglu-london-fashion-week.html?searchResultPosition=3
 
 **Russia raises interest rates again amid persistent concerns about inflation.**\
 `By Paul Sonne`\
-https://nytimes.com/live/2023/09/15/world/russia-ukraine-news/russia-raises-interest-rates-again-amid-persistent-concerns-about-inflation?searchResultPosition=3
+https://nytimes.com/live/2023/09/15/world/russia-ukraine-news/russia-raises-interest-rates-again-amid-persistent-concerns-about-inflation?searchResultPosition=4
 
 **A Podcast That Sounds the Alarm on the American Dream**\
 `In its third season, “The Dream” trains its gimlet eye on the big business of life coaching, with a twist.`\
-https://nytimes.com/2023/09/15/arts/dream-podcast-coaching-scams.html?searchResultPosition=4
+https://nytimes.com/2023/09/15/arts/dream-podcast-coaching-scams.html?searchResultPosition=5
 
 **The strike has echoes of previous fights between the union and carmakers.**\
 `By Santul Nerkar`\
-https://nytimes.com/live/2023/09/15/business/united-auto-workers-strike/the-strike-has-echoes-of-previous-fights-between-the-union-and-carmakers?searchResultPosition=5
+https://nytimes.com/live/2023/09/15/business/united-auto-workers-strike/the-strike-has-echoes-of-previous-fights-between-the-union-and-carmakers?searchResultPosition=6
 
 **The Weekender**\
 `How Mattel made “Barbie” a cinematic hit. Also: an interview with Sean Combs, and sharks living on a golf course.`\
-https://nytimes.com/2023/09/15/briefing/the-weekender.html?searchResultPosition=6
+https://nytimes.com/2023/09/15/briefing/the-weekender.html?searchResultPosition=7
 
 **Ukraine’s military says it has retaken the eastern village of Andriivka.**\
 `By Jeffrey Gettleman and Oleksandra Mykolyshyn`\
-https://nytimes.com/live/2023/09/15/world/russia-ukraine-news/ukraines-military-says-it-has-retaken-the-eastern-village-of-andriivka?searchResultPosition=7
+https://nytimes.com/live/2023/09/15/world/russia-ukraine-news/ukraines-military-says-it-has-retaken-the-eastern-village-of-andriivka?searchResultPosition=8
 
 **Love Letters to California**\
 `Readers share why they adore living in the Golden State.`\
-https://nytimes.com/2023/09/15/us/california-love-letters.html?searchResultPosition=8
+https://nytimes.com/2023/09/15/us/california-love-letters.html?searchResultPosition=9
 
 **Beware Companies Selling Credit ‘Repair’ Services**\
 `Consumers have a right to dispute mistakes on their credit reports. But if they’ve made late payments, that can’t be erased, consumer experts say.`\
-https://nytimes.com/2023/09/15/your-money/credit-score-repair.html?searchResultPosition=9
-
-**Biden Administration Aims to Trump-Proof the Federal Work Force**\
-`If Donald Trump wins a second term, he and his allies want to revive a plan to allow a president to fire civil service workers who are supposed to be hired on merit. The Biden administration is trying to thwart it.`\
-https://nytimes.com/2023/09/15/us/politics/trump-biden-schedule-f.html?searchResultPosition=10
+https://nytimes.com/2023/09/15/your-money/credit-score-repair.html?searchResultPosition=10
 
