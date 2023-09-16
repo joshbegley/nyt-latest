@@ -10,13 +10,13 @@ https://nytimes.com/2023/09/16/world/middleeast/morocco-earthquake-heritqge.html
 `His tough words about his fellow Republicans only go so far.`\
 https://nytimes.com/2023/09/16/opinion/mitt-romney-republican-biography.html?searchResultPosition=3
 
-**‘Holy Cow, We Found an X-Wing.’ Bidding Starts at $400,000.**\
-`After a Hollywood visual effects artist died last year, friends found a rare model of the Rebel Alliance starfighter from the original “Star Wars” movie in his garage.`\
-https://nytimes.com/2023/09/16/us/star-wars-x-wing-fighter-auction.html?searchResultPosition=4
-
 **Principals Made and Shared Meme of a Student’s Exposed Breast, Lawsuit Says**\
 `“I was infuriated,” the mother of the student said. “I was angry, and I’ve been angry ever since.” A lawyer for one of the principals claims his client had nothing to do with the meme.`\
-https://nytimes.com/2023/09/16/us/delaware-principal-meme-lawsuit.html?searchResultPosition=5
+https://nytimes.com/2023/09/16/us/delaware-principal-meme-lawsuit.html?searchResultPosition=4
+
+**‘Holy Cow, We Found an X-Wing.’ Bidding Starts at $400,000.**\
+`After a Hollywood visual effects artist died last year, friends found a rare model of the Rebel Alliance starfighter from the original “Star Wars” movie in his garage.`\
+https://nytimes.com/2023/09/16/us/star-wars-x-wing-fighter-auction.html?searchResultPosition=5
 
 **There’s Still Overwhelming Cultural Pressure to Get Married and Have Kids**\
 `Why friendships struggle across this divide.`\
