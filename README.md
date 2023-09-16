@@ -16,7 +16,7 @@ https://nytimes.com/2023/09/16/opinion/marriage-children-parents-friends.html?se
 
 **Tech Fears Are Showing Up on Picket Lines**\
 `What’s being called the “summer of strikes” comes at a time when workers increasingly fear new technologies will threaten their jobs.`\
-https://nytimes.com/2023/09/16/business/dealbook/tech-fears-are-showing-up-on-picket-lines.html?searchResultPosition=5
+https://nytimes.com/2023/09/16/business/dealbook/uaw-strike-tech-ai-unions.html?searchResultPosition=5
 
 **Listen Early to ‘This American Life’: Say It to My Face**\
 `Friends and ex-friends finally talk about the thing between them they’ve been avoiding.`\
