@@ -34,7 +34,7 @@ https://nytimes.com/2023/09/16/opinion/peak-woke-antiracism-canceled.html?search
 `The U.S. Open has become a bottleneck of tennis anxiety, all because of where it is, when it is, who watches it and why.`\
 https://nytimes.com/2023/09/16/opinion/coco-gauff-us-open-2023.html?searchResultPosition=9
 
-**The More They Lock Us Up, the Stronger We Become**\
-`As the anniversary of Mahsa Amini’s death approached, Iran’s leaders worked hard to suppress dissent. That will only make us stronger.`\
-https://nytimes.com/2023/09/16/opinion/narges-mohammadi-iran-women.html?searchResultPosition=10
+**Coming Soon in New York: Cocktails, Steak and Hypocrisy**\
+`At the U.N., world leaders promised to work to end poverty, illiteracy and child marriage. So much for their promises.`\
+https://nytimes.com/2023/09/16/opinion/un-sustainability-goals-poverty.html?searchResultPosition=10
 
