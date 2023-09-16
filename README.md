@@ -1,4 +1,4 @@
-**Jann Wenner Removed From Rock Hall Board After Interview**\
+**Jann Wenner Removed From Rock Hall Board After Times Interview**\
 `The Rolling Stone co-founder’s exit comes a day after The New York Times published an interview in which he made widely criticized comments.`\
 https://nytimes.com/2023/09/16/arts/music/jann-wenner-removed-rock-hall.html?searchResultPosition=1
 
