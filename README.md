@@ -4,7 +4,7 @@ https://nytimes.com/live/2023/09/16/us/ken-paxton-impeachment-texas/who-is-angel
 
 **Boebert Apologizes for Vaping in a Denver Theater**\
 `The Colorado congresswoman previously denied vaping during the performance, but could be seen doing so on surveillance video.`\
-https://nytimes.com/2023/09/16/us/politics/boebert-vaping-apology.html?searchResultPosition=2
+https://nytimes.com/2023/09/16/us/politics/boebert-theater-vaping-apology.html?searchResultPosition=2
 
 **The key players were mostly absent from the trial.**\
 `By J. David Goodman`\
