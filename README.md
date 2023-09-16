@@ -1,40 +1,40 @@
-**Kim Jong-un Inspects Missiles and Nuclear Bombers in Russia**\
-`The North Korean leader was shown key elements of the Russian nuclear force as fears grew that the two nations were expanding their military ties.`\
-https://nytimes.com/2023/09/16/world/asia/kim-jong-un-north-korea-russia.html?searchResultPosition=1
+**How Shane Gillis Both Plays to and Mocks Red Staters**\
+`The comic’s savvy approach fits into the evolving meaning of conservatism and has resulted in hugely popular stand-up specials, like “Beautiful Dogs” on Netflix.`\
+https://nytimes.com/2023/09/16/arts/television/shane-gillis-beautiful-dogs-netflix-comedy.html?searchResultPosition=1
 
-**GPS Watch? No Thanks. Top Runners Are Ditching the Data.**\
-`An increasing number of elite distance runners don’t wear activity tracking or GPS watches. They think they are better athletes because of it.`\
-https://nytimes.com/2023/09/16/sports/gps-watches-professional-runners.html?searchResultPosition=2
+**Matthew McConaughey Distills His ‘From the Hip’ Philosophy for Kids**\
+`His children’s book, “Just Because,” follows a best-selling memoir, “Greenlights,” which also drew from the actor’s musings and life lessons.`\
+https://nytimes.com/2023/09/16/books/matthew-mcconaughey-just-because.html?searchResultPosition=2
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/09/16/crosswords/wordle-review-answer-819.html?searchResultPosition=3
+**‘An Innocent and Ordinary Young Woman’**\
+`A year after Mahsa Amini’s death in police custody ignited fierce anti-government protests, her family reminisces about the young woman they called Jina.`\
+https://nytimes.com/2023/09/16/world/middleeast/mahsa-amini-iran-protests-hijab.html?searchResultPosition=3
 
-**‘Sea Chantey’ Night at the Bar: A Rowdy, Joyous Ritual for Landlubbers**\
-`Regulars flock to a Connecticut inn each Monday to listen and sing. It’s been 50 years — and counting.`\
-https://nytimes.com/2023/09/16/nyregion/connecticut-sea-chanteys.html?searchResultPosition=4
+**How the Bloody ‘Bottoms’ Reinvents the Coming-of-Age Fight**\
+`The hero vs. bully template made famous in the ’80s gets subverted in this indie comedy, as well as in Hulu’s “Miguel Wants to Fight.”`\
+https://nytimes.com/2023/09/16/movies/bottoms-movie-fight-scene.html?searchResultPosition=4
 
-**How an Advocate for Menstrual Equity Spends Her Sundays**\
-`After founding a nonprofit organization to end “period poverty,” and then a Gen Z menstrual-products company, Nadya Okamoto has learned the value of slowing down.`\
-https://nytimes.com/2023/09/16/nyregion/nadya-okamoto-august-period.html?searchResultPosition=5
+**How He Survived 13 Days: Cavalcante on the Run in Pennsylvania**\
+`The 34-year-old fugitive was desperate and resourceful, authorities said, and for days he stayed ahead of his pursuers, sometimes by steps, sometimes by miles.`\
+https://nytimes.com/2023/09/16/us/danelo-cavalcante-pennsylvania.html?searchResultPosition=5
 
-**‘So Much Suffering:’ What Migrant Children Carry to New York**\
-`The migrant crisis is a looming mental health crisis. Are city schools prepared to care for their most vulnerable new students?`\
-https://nytimes.com/2023/09/16/nyregion/nyc-migrant-crisis-mental-health.html?searchResultPosition=6
+**Should I Worry About My Co-Workers Smoking Weed on Break?**\
+`It may be ill-advised, but if their work doesn’t risk anyone’s safety, let a manager handle it.`\
+https://nytimes.com/2023/09/16/business/roxane-gay-work-advice.html?searchResultPosition=6
 
-**New York City Cracked Down on Airbnb. What Happens Next?**\
-`Hosts and guests are scrambling to adapt as the city ramps up its enforcement of tough, new rules on short-term rentals. But whether the crackdown will ease a housing shortage is up for debate.`\
-https://nytimes.com/2023/09/16/nyregion/airbnb-nyc-housing-rentals.html?searchResultPosition=7
+**Battle Over Electric Vehicles Is Central to Auto Strike**\
+`Carmakers are anxious to keep costs down as they ramp up electric vehicle manufacturing, while striking workers want to preserve jobs as the industry shifts to batteries.`\
+https://nytimes.com/2023/09/16/business/electric-vehicles-uaw-gm-ford-stellantis.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/09/16/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**Has the Era of Peacocking Come to an End?**\
+`There were plenty of stylish people on the streets at New York Fashion Week. But risk-takers were a rarer breed.`\
+https://nytimes.com/2023/09/16/style/nyfw-street-style-spring-2024.html?searchResultPosition=8
 
-**Putin and Kim’s Embrace May Place Xi in a Bind**\
-`Closer ties between Russia and North Korea could weaken Beijing’s leverage over both countries and set back China’s efforts to stabilize its ties with the West.`\
-https://nytimes.com/2023/09/16/world/asia/china-putin-kim.html?searchResultPosition=9
+**The Market Is Stuck Until the Fed Is Done**\
+`Stocks are mired in a holding pattern. The big question, our columnist says, is when will the Federal Reserve start to cut interest rates?`\
+https://nytimes.com/2023/09/16/business/stock-market-federal-reserve-interest-rates.html?searchResultPosition=9
 
-**Quotation of the Day: At the Capitol, Even the Attending Physician Can’t Escape Politics**\
-`Quotation of the Day for Saturday, September 16, 2023.`\
-https://nytimes.com/2023/09/15/pageoneplus/quotation-of-the-day-at-the-capitol-even-the-attending-physician-cant-escape-politics.html?searchResultPosition=10
+**In Moscow, the War Is Background Noise, but Ever-Present**\
+`Muscovites go about their daily lives with little major disruption. But the war’s effects are evident — in the stores, at the movies and in the increasingly repressive environment.`\
+https://nytimes.com/2023/09/16/world/europe/moscow-russia-mood-war.html?searchResultPosition=10
 
