@@ -35,6 +35,6 @@ https://nytimes.com/2023/09/16/opinion/peak-woke-antiracism-canceled.html?search
 https://nytimes.com/2023/09/16/opinion/coco-gauff-us-open-2023.html?searchResultPosition=9
 
 **The More They Lock Us Up, the Stronger We Become**\
-`As the anniversary of Mahsa Amini’s approached, Iran’s leaders worked hard to suppress dissent. That will only make us stronger.`\
+`As the anniversary of Mahsa Amini’s death approached, Iran’s leaders worked hard to suppress dissent. That will only make us stronger.`\
 https://nytimes.com/2023/09/16/opinion/narges-mohammadi-iran-women.html?searchResultPosition=10
 
