@@ -18,7 +18,7 @@ https://nytimes.com/2023/09/16/world/europe/pope-pius-holocaust.html?searchResul
 `By J. David Goodman`\
 https://nytimes.com/live/2023/09/16/us/ken-paxton-impeachment-texas/paxtons-trial-became-a-litmus-test-for-loyalty-to-the-republican-party?searchResultPosition=5
 
-**Police Questioning Person in Suspected Opioid Death at Bronx Day Care**\
+**1-Year-Old Dead and Man in Custody After Opioid Exposure at Bronx Day Care**\
 `A 1-year-old boy died and three other children were hospitalized on Friday after showing signs of drug exposure at the day care, officials said.`\
 https://nytimes.com/2023/09/16/nyregion/bronx-daycare-child-death.html?searchResultPosition=6
 
