@@ -7,7 +7,7 @@ https://nytimes.com/2023/09/16/world/canada/montreal-valerie-plante-cycling.html
 https://nytimes.com/2023/09/16/world/europe/ukraine-grain-ban-poland-hungary-slovakia.html?searchResultPosition=2
 
 **Atlantic Coast Braces as Lee Begins to Bring High Winds and Rain**\
-`Once a Category 5 hurricane, Lee was a weaker but still significant storm as it made its way toward Canada on Saturday. Coastal residents were on the alert.`\
+`Once a Category 5 hurricane, Lee was still a significant storm as it made its way toward Canada on Saturday. Coastal residents were on the alert.`\
 https://nytimes.com/2023/09/16/us/hurricane-lee-tropical-storm-canada.html?searchResultPosition=3
 
 **Dire Warnings About Libya Dams Went Unheeded**\
