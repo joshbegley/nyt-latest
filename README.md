@@ -14,8 +14,8 @@ https://nytimes.com/2023/09/15/us/politics/china-spy-balloon-program-paused.html
 `Kim Jong-un, North Korea’s leader, toured a fighter jet factory, as Russia’s president sought to cast himself as the champion of an anti-U.S. alliance in a meeting with another authoritarian.`\
 https://nytimes.com/2023/09/15/world/europe/putin-kim-russia-ukraine.html?searchResultPosition=4
 
-**1-Year-Old Boy Dies at Bronx Day Care, Officials Say**\
-`Three other children were hospitalized and an investigation was underway, but the circumstances remained unclear.`\
+**1-Year-Old Dies and 3 Children Are Hospitalized in Day Care Emergency**\
+`An investigation was underway, but the circumstances remained unclear.`\
 https://nytimes.com/2023/09/15/nyregion/bronx-daycare-child-death.html?searchResultPosition=5
 
 **G.M. and Ford say the strikes will reduce work at other plants.**\
