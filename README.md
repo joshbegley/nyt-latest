@@ -4,7 +4,7 @@ https://nytimes.com/2023/09/16/world/europe/italy-greece-eco-anxiety.html?search
 
 **Withstanding the Passage of Time, but Not the Shaking of the Earth**\
 `Many historic buildings revered by Moroccans and tourists alike were lost or damaged in the earthquake.`\
-https://nytimes.com/2023/09/16/world/middleeast/morocco-earthquake-heritqge.html?searchResultPosition=2
+https://nytimes.com/2023/09/16/world/middleeast/morocco-earthquake-heritage.html?searchResultPosition=2
 
 **What to Keep in Mind About Mitt Romney**\
 `His tough words about his fellow Republicans only go so far.`\
