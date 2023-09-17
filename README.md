@@ -30,8 +30,8 @@ https://nytimes.com/2023/09/17/us/politics/us-china-meeting.html?searchResultPos
 `The owner of the day care center and a neighbor were charged in the death of Nicholas Dominici, who never awakened from a nap. The police said they believed he had been exposed to an opioid.`\
 https://nytimes.com/2023/09/17/nyregion/opioid-bronx-daycare-fentanyl-murder-charge.html?searchResultPosition=8
 
-**Climate Protesters Around the Globe Sharpen Their Message and Head to New York**\
-`Ahead of U.N. meetings this week, thousands are marching through Midtown to demand that President Biden and other world leaders stop new oil and gas drilling.`\
+**Climate Protesters March on New York, Calling for End to Fossil Fuels**\
+`Ahead of U.N. meetings this week, thousands gathered in Midtown to demand that President Biden and other world leaders stop new oil and gas drilling.`\
 https://nytimes.com/2023/09/17/climate/climate-protests-new-york.html?searchResultPosition=9
 
 **Relief Efforts in Libya Turn to Disease Prevention, as Hopes for Finding Survivors Dim**\
