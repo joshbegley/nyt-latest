@@ -2,9 +2,9 @@
 `Three British media outlets published an investigation in which four women accused him of sexual assault in a series of incidents between 2006 and 2013.`\
 https://nytimes.com/2023/09/17/arts/russell-brand-sexual-assault-allegations.html?searchResultPosition=1
 
-**In Reversal, Drew Barrymore Pauses Show’s Return Until End of Strike**\
-`The host had defended the show’s return on Friday despite the writers’ strike, but changed course on Sunday, saying, “I have listened to everyone.”`\
-https://nytimes.com/2023/09/17/arts/television/drew-barrymore-show-pause.html?searchResultPosition=2
+**In Reversal, Drew Barrymore Presses Pause on Show Until Strike Ends**\
+`The host had defended restarting production on Friday despite the writers’ strike, but changed course on Sunday, saying, “I have listened to everyone.”`\
+https://nytimes.com/2023/09/17/arts/television/drew-barrymore-show-pause-writers-strike.html?searchResultPosition=2
 
 **Balanchine’s Gems Were His Dancers. He Honored Them With ‘Jewels.’**\
 `Original cast members talk about their experiences making the three-part plotless ballet, which opens New York City Ballet’s 75th anniversary season.`\
