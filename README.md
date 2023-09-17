@@ -3,7 +3,7 @@
 https://nytimes.com/2023/09/17/sports/brazilian-jujitsu-safety.html?searchResultPosition=1
 
 **Jets Return to Zach Wilson With Familiar Result**\
-`In the first game since Aaron Rodgers’s injury, the Jets had four giveaways, including three interceptions thrown by Wilson, under pressure from the Cowboys’ stellar defense.`\
+`Under pressure from the Cowboys’ stellar defense, the Jets had four giveaways, including three interceptions thrown by Wilson, in the first game since Aaron Rodgers’s injury.`\
 https://nytimes.com/2023/09/17/sports/football/jets-cowboys-score.html?searchResultPosition=2
 
 **California Governor to Sign Landmark Climate Disclosure Bill**\
