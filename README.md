@@ -1,6 +1,6 @@
 **Russell Brand Denies Accusations of ‘Egregious’ Sexual Assaults**\
 `Three British media outlets published an investigation in which four women accused him of sexual assault in a series of incidents between 2006 and 2013.`\
-https://nytimes.com/2023/09/17/arts/russell-brand-sexuall-assault-allegations.html?searchResultPosition=1
+https://nytimes.com/2023/09/17/arts/russell-brand-sexual-assault-allegations.html?searchResultPosition=1
 
 **In Reversal, Drew Barrymore Pauses Show’s Return Until End of Strike**\
 `The host had defended the show’s return on Friday despite the writers’ strike, but changed course on Sunday, saying, “I have listened to everyone.”`\
