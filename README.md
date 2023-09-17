@@ -35,6 +35,6 @@ https://nytimes.com/2023/09/17/us/politics/trump-meet-the-press-abortion-desanti
 https://nytimes.com/2023/09/17/us/politics/us-china-meeting.html?searchResultPosition=9
 
 **2 Charged With Murder in Day Care Death of 1-Year-Old**\
-`The owner of the day care center and a neighbor were charged in the death of Nicholas Dominici, who never awakened from a nap. The police said they believed he had been exposed to an opioid.`\
+`The owner of the day care center and a neighbor were charged in the death of Nicholas Dominici, who the police believe had been exposed to an opioid. “He was the little prince of the house,” his mother said.`\
 https://nytimes.com/2023/09/17/nyregion/opioid-bronx-daycare-fentanyl-murder-charge.html?searchResultPosition=10
 
