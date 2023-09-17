@@ -32,7 +32,7 @@ https://nytimes.com/2023/09/17/us/new-mexico-governor-gun-ban.html?searchResultP
 
 **The Stoic in the Bedroom**\
 `Learning to sleep under the stern gaze of Marcus Aurelius.`\
-https://nytimes.com/2023/09/17/style/the-stoic-in-the-bedroom.html?searchResultPosition=9
+https://nytimes.com/2023/09/17/style/marcus-aurelius-roman-emperor-stoic-philosophy.html?searchResultPosition=9
 
 **What’s Going On in This Picture? | Sept. 18, 2023**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
