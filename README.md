@@ -1,40 +1,40 @@
+**Is the Disaster in Libya Coming Soon to an Aging Dam Near You?**\
+`Aging dams are a threat around the world. Our best tool is removing them altogether.`\
+https://nytimes.com/2023/09/17/opinion/libya-floods-dams.html?searchResultPosition=1
+
+**The Sunday Read: ‘The Inheritance Case That Could Unravel an Art Dynasty’**\
+`How a widow’s legal fight against the Wildenstein family of France has threatened its storied collection — and revealed the underbelly of the global art market.`\
+https://nytimes.com/2023/09/17/podcasts/the-daily/wildenstein-art.html?searchResultPosition=2
+
+**The Most Interesting Element of the Hunter Biden Indictment**\
+`An otherwise ordinary case involving the president’s son lands at a moment of constitutional chaos regarding firearm regulations.`\
+https://nytimes.com/2023/09/17/opinion/hunter-biden-gun-indictment.html?searchResultPosition=3
+
+**Why Does Every Republican Candidate Sound the Same?**\
+`The claustrophobic reality of Ron DeSantis and the other Republicans is that they constructed their identities as Trump alternatives and ended up all the same.`\
+https://nytimes.com/2023/09/17/opinion/republican-primary-candidates-alike.html?searchResultPosition=4
+
+**They’re Ultrarich Techies, and They Want to Build a City From Scratch. What Could Go Wrong?**\
+`The latest effort by tech titans to create their own “technotopia” doesn’t bode well for cities old or new.`\
+https://nytimes.com/2023/09/17/opinion/solano-county-flannery-associates-billionaires-build-cities.html?searchResultPosition=5
+
+**When I Stopped Trying to Self-Optimize, I Got Better**\
+`The growth mind-set. The abundance mind-set. The gratitude mind-set. I threw them all away.`\
+https://nytimes.com/2023/09/17/opinion/sports-zen-mental-subtraction.html?searchResultPosition=6
+
+**The Explosive Rise of Single-Parent Families Is Not a Good Thing**\
+`How the erosion of the convention of raising children inside a two-parent home is damaging families and worsening economic inequality.`\
+https://nytimes.com/2023/09/17/opinion/single-parent-families-income-inequality-college.html?searchResultPosition=7
+
 **Quotation of the Day: A Painful Past Behind South Korean Adoptions**\
 `Quotation of the Day for Sunday, September 17, 2023.`\
-https://nytimes.com/2023/09/17/pageoneplus/quotation-of-the-day-a-painful-past-behind-south-korean-adoptions.html?searchResultPosition=1
+https://nytimes.com/2023/09/17/pageoneplus/quotation-of-the-day-a-painful-past-behind-south-korean-adoptions.html?searchResultPosition=8
 
 **Behind Paxton’s Impeachment, a Republican Battle for Control of Texas**\
 `The impeachment was the latest fight in an ongoing struggle between an emboldened hard right and the party’s more moderate old guard.`\
-https://nytimes.com/2023/09/17/us/texas-republicans-paxton-impeachment.html?searchResultPosition=2
+https://nytimes.com/2023/09/17/us/texas-republicans-paxton-impeachment.html?searchResultPosition=9
 
 **Finland’s President, No Stranger to Russia, Warns Europe About Complacency**\
 `President Biden has consulted Sauli Niinisto throughout Russia’s war against Ukraine. Europeans should not dismiss the risks of a wider war, he says.`\
-https://nytimes.com/2023/09/17/world/europe/finland-president-russia-complacency.html?searchResultPosition=3
-
-**How Coco Gauff Embodies the Biggest Story in Sports**\
-`As our Sports of The Times columnist moves to a new assignment, he reflects on a recurring theme from his tenure: the rise of female athletes.`\
-https://nytimes.com/2023/09/17/sports/tennis/coco-gauff-women-sports-streeter.html?searchResultPosition=4
-
-**‘Live With Kelly and Mark’: Till Death (or Cancellation) Do They Part**\
-`As co-hosts, Kelly Ripa and Mark Consuelos are tasked with enacting a version of their marriage on-camera. Where does that performance begin and end?`\
-https://nytimes.com/2023/09/17/arts/television/live-with-kelly-and-mark.html?searchResultPosition=5
-
-**Provenance of a Museum’s Greek Exhibit Is Questioned, Fueling a Debate**\
-`After a touring exhibition of antiquities from the Museum of Fine Arts in St. Petersburg, Fla., raised concerns at a Denver museum, a curator was dismissed.`\
-https://nytimes.com/2023/09/17/arts/curator-fired-provenance.html?searchResultPosition=6
-
-**‘Run With Joy and Love’**\
-`Markelle Taylor started running as part of the 1000 Mile Club in San Quentin State Prison. Now he’s returning as a mentor.`\
-https://nytimes.com/2023/09/17/sports/run-with-joy-and-love.html?searchResultPosition=7
-
-**Wildenstein Art Dynasty Faces a Tax Trial in France — Again**\
-`Guy Wildenstein, the billionaire art dealer, is accused of shielding a prized art collection from tax authorities to avoid a hefty inheritance bill. The case has dogged his family for more than a decade.`\
-https://nytimes.com/2023/09/17/arts/design/wildenstein-art-tax-trial.html?searchResultPosition=8
-
-**Nathan Hill’s ‘Wellness’ Satirizes the Modern Condition — Kind Of**\
-`The second novel by the author of “The Nix” follows a young Chicago couple’s trajectory from pre-internet optimism to 21st-century ennui.`\
-https://nytimes.com/2023/09/17/books/review/nathan-hill-wellness.html?searchResultPosition=9
-
-**For America’s ‘Wild Girls,’ the Natural World Meant Freedom**\
-`In her new book, the historian Tiya Miles shows how formative outdoor experiences helped diverse women — from Harriet Tubman to Indigenous athletes — transcend prescribed social and gender roles.`\
-https://nytimes.com/2023/09/17/books/review/wild-girls-tiya-miles.html?searchResultPosition=10
+https://nytimes.com/2023/09/17/world/europe/finland-president-russia-complacency.html?searchResultPosition=10
 
