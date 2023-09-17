@@ -4,7 +4,7 @@ https://nytimes.com/2023/09/17/arts/music/anna-netrebko-lady-macbeth-berlin-stat
 
 **In Ukraine, a Rosh Hashana Party Not Even War Can Stop**\
 `Every year, thousands of followers of Rebbe Nachman of Breslov descend on the town of Uman to worship, dance and pay homage at the tomb of their spiritual leader.`\
-https://nytimes.com/2023/09/17/world/asia/in-ukraine-a-rosh-hashana-party-not-even-war-can-stop.html?searchResultPosition=2
+https://nytimes.com/2023/09/17/world/asia/ukraine-rosh-hashana-uman-hasidic-jews.html?searchResultPosition=2
 
 **The Game of Their Lives**\
 `Every week, a group of former pros gathers for what may be the best pickup soccer game in the world. The appeal is a chance to engage with the sport on their terms.`\
