@@ -15,7 +15,7 @@ https://nytimes.com/2023/09/17/arts/dance/heart-of-brick-review.html?searchResul
 https://nytimes.com/2023/09/17/us/politics/trump-meadows-meet-the-press.html?searchResultPosition=4
 
 **New White House Counsel’s To-Do List: Impeachment on Day 2**\
-`A veteran of the Obama White House, Ed Siskel had one day to settle in before top congressional Republicans opened an impeachment inquiry into President Biden.`\
+`A veteran of the Obama White House, Ed Siskel had one day to settle in before Speaker Kevin McCarthy opened an impeachment inquiry into President Biden.`\
 https://nytimes.com/2023/09/17/us/politics/ed-siskel-white-house-counsel-impeachment.html?searchResultPosition=5
 
 **Jules Melancon, Oyster Farmer Who Tried Something New, Dies at 65**\
