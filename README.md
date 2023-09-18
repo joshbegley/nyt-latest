@@ -31,7 +31,7 @@ https://nytimes.com/2023/09/18/arts/russell-brand-tour-sexual-assault.html?searc
 https://nytimes.com/2023/09/18/dining/thieboudienne-rice-recipe-senegal-national-dish.html?searchResultPosition=8
 
 **Rep. Jennifer Wexton Announces Rare Neurological Disorder Diagnosis**\
-`Ms. Wexton, a Democrat who disclosed in April that she has Parkinson’s, will not seek re-election after learning she has progressive supranuclear palsy, for which there is no effective treatment.`\
+`Ms. Wexton, a Democrat who disclosed a Parkinson’s diagnosis in April, will not seek re-election after learning she has progressive supranuclear palsy, for which there is no effective treatment.`\
 https://nytimes.com/2023/09/18/us/politics/jennifer-wexton-progressive-supranuclear-palsy.html?searchResultPosition=9
 
 **Remnants of Hurricane Lee Will Bring Heavy Rain to the U.K.**\
