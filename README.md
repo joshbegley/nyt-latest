@@ -4,7 +4,7 @@ https://nytimes.com/2023/09/18/us/missing-f35-military-jet-charleston.html?searc
 
 **Meet Methuselah, the World’s Oldest Living Aquarium Fish**\
 `The nonagenarian lungfish has lived in a tank in Golden Gate Park in San Francisco since 1938.`\
-https://nytimes.com/2023/09/18/us/meet-methuselah-the-worlds-oldest-living-aquarium-fish.html?searchResultPosition=2
+https://nytimes.com/2023/09/18/us/methuselah-fish-san-francisco.html?searchResultPosition=2
 
 **California Lawmakers Push for a Court Ruling on Trump’s Eligibility**\
 `Nine California legislators asked the state’s attorney general to seek a court opinion on whether former President Donald J. Trump is disqualified from office under the 14th Amendment.`\
