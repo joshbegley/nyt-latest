@@ -1,40 +1,40 @@
-**Irish Grinstead of R&B Group 702 Dies at 43**\
-`The singer, who appeared on the hit track “Where My Girls At?,” took a “medical leave of absence” from the group late last year; a cause of death was not immediately available.`\
-https://nytimes.com/2023/09/18/arts/music/irish-grinstead-702-dead.html?searchResultPosition=1
+**In U.S. Visit, Zelensky to Make a Case for More Aid, and Say Thank You**\
+`The Ukrainian leader’s second trip to America comes at a more delicate diplomatic moment, as he tries to navigate political currents while expressing gratitude for Western support.`\
+https://nytimes.com/2023/09/18/world/europe/ukraine-zelensky-united-nations-congress.html?searchResultPosition=1
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/09/18/crosswords/spelling-bee-forum.html?searchResultPosition=2
+**An About-Face on Whether the 14th Amendment Bars Trump From Office**\
+`Steven Calabresi, a founder of the Federalist Society, recently — and forcefully — said the former president was disqualified. He has had a change of heart.`\
+https://nytimes.com/2023/09/18/us/politics/trump-calabresi-14th-amendment.html?searchResultPosition=2
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/09/18/crosswords/wordle-review-answer-821.html?searchResultPosition=3
+**U.N. to Meet Amid Growing Divisions, and Demands From the Global South**\
+`With major world leaders skipping the annual event, discussions will focus on climate change, sovereign debt relief and development goals.`\
+https://nytimes.com/2023/09/18/world/middleeast/united-nations-global-south-general-assembly.html?searchResultPosition=3
 
-**Anguish in an Immigrant Community After a Sheriff’s Deputy Kills 2 Teens**\
-`The sheriff in Syracuse, N.Y., had said his deputy acted in self-defense, but footage of the shooting cast the account into question.`\
-https://nytimes.com/2023/09/18/nyregion/syracuse-teens-sheriff-shooting.html?searchResultPosition=4
+**September Is the Cruelest Month? It Is if You’re Joe Biden.**\
+`Innocence isn’t established by arguing that the other guy is a bigger crook.`\
+https://nytimes.com/2023/09/18/opinion/trump-biden-hunter-impeachment.html?searchResultPosition=4
 
-**All the Presidents’ Children**\
-`Hunter Biden is just one of many presidential children who have become political problems for their parents.`\
-https://nytimes.com/interactive/2023/09/18/us/politics/hunter-biden-presidential-children.html?searchResultPosition=5
+**A Photo Can Tell the Truth About a Lie. Or a Lie About the Truth.**\
+`A new exhibit in Atlanta shows that a perfectly captured photograph can sometimes wake America from its slumber and inspire social change.`\
+https://nytimes.com/2023/09/18/opinion/photography-black-southern-history.html?searchResultPosition=5
 
-**One of America’s First Women’s Colleges Is Accused of Paying Men More**\
-`Vassar has maintained a gender-based pay gap for two decades, current and former female professors say in a recently filed lawsuit.`\
-https://nytimes.com/2023/09/18/nyregion/vassar-college-lawsuit-gender-pay-gap.html?searchResultPosition=6
+**Why Miró’s Yellows Have Lost Their Brilliance**\
+`Researchers discovered that a particular brand of paint favored by the Spanish artist had an atomic structure that predisposed it to degradation.`\
+https://nytimes.com/2023/09/18/science/joan-miro-yellow-paint-fading.html?searchResultPosition=6
 
-**Mayor Adams’s Ability to Freely Spend Money on Migrants May Be Curtailed**\
-`The New York City comptroller is auditing a no-bid $432 million migrant-services contract, and is weighing whether to scrap the mayor’s blanket approval to enter such contracts.`\
-https://nytimes.com/2023/09/18/nyregion/docgo-lander-audit-contract.html?searchResultPosition=7
+**How Do I Deal With a Shoes-Off Home?**\
+`A reader does not feel comfortable going barefoot at a host’s request.`\
+https://nytimes.com/2023/09/18/style/shoes-off-house.html?searchResultPosition=7
 
-**White House meeting and Gershkovich appeal: What to watch for this week.**\
-`By Anushka Patil and Andrés R. Martínez`\
-https://nytimes.com/live/2023/09/18/world/russia-ukraine-news/white-house-meeting-and-gershkovich-appeal-what-to-watch-for-this-week?searchResultPosition=8
+**The World’s Population May Peak in Your Lifetime. What Happens Next?**\
+`Most people now live in countries where two or fewer children are born for every two adults.`\
+https://nytimes.com/interactive/2023/09/18/opinion/human-population-global-growth.html?searchResultPosition=8
 
-**Zelensky warns Russia about attacks on power plants.**\
-`By Vivek Shankar`\
-https://nytimes.com/live/2023/09/18/world/russia-ukraine-news/zelensky-warns-russia-about-attacks-on-power-plants?searchResultPosition=9
+**The Google Antitrust Trial Is Really About the Future of A.I.**\
+`These prosecutions typically spark innovation in unexpected ways.`\
+https://nytimes.com/2023/09/18/opinion/contributors/google-antitrust-trial.html?searchResultPosition=9
 
-**North Korea’s leader leaves Russia after meeting with Putin and touring factories.**\
-`By Daniel Victor`\
-https://nytimes.com/live/2023/09/18/world/russia-ukraine-news/north-koreas-leader-leaves-russia-after-meeting-with-putin-and-touring-factories?searchResultPosition=10
+**After a Stroke, a Writer Loses Mobility but None of His Punch**\
+`Jonathan Raban’s “Father and Son” is a memoir of illness and recovery paired with a parental history.`\
+https://nytimes.com/2023/09/18/books/review/jonathan-raban-father-and-son.html?searchResultPosition=10
 
