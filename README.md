@@ -2,7 +2,7 @@
 `The comedian was scheduled to perform three dates in Britain this month. Now they’ve been postponed.`\
 https://nytimes.com/2023/09/18/arts/russell-brand-tour-sexual-assault.html?searchResultPosition=1
 
-**The Queen of West African One-Pot Recipes Has Entered the Chat**\
+**The Queen of West African Recipes Has Entered the Chat**\
 `Thieboudienne, the national dish of Senegal, shows how sophisticated and delicious a one-pot rice dish can be.`\
 https://nytimes.com/2023/09/18/dining/thieboudienne-rice-recipe-senegal-national-dish.html?searchResultPosition=2
 
