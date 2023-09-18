@@ -16,7 +16,7 @@ https://nytimes.com/2023/09/18/us/methuselah-fish-san-francisco.html?searchResul
 
 **California Lawmakers Push for a Court Ruling on Trump’s Eligibility**\
 `Nine California legislators asked the state’s attorney general to seek a court opinion on whether former President Donald J. Trump is disqualified from office under the 14th Amendment.`\
-https://nytimes.com/2023/09/18/us/politics/california-lawmakers-push-for-a-court-ruling-on-trumps-eligibility.html?searchResultPosition=5
+https://nytimes.com/2023/09/18/us/politics/trump-california-ballot.html?searchResultPosition=5
 
 **A Summer of Singles Events, in Pictures**\
 `Singles mingled the summer away at one event after another, often organized by identity group, common interest or gimmicky premise — sometimes the cornier, the better.`\
