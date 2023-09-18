@@ -11,7 +11,7 @@ https://nytimes.com/2023/09/18/opinion/columnists/progessive-fundraising-downtur
 https://nytimes.com/2023/09/18/opinion/economic-conservatives-extremism.html?searchResultPosition=3
 
 **Fentanyl Found Near Nap Mats at Day Care Where Boy Died, Police Say**\
-`A 1-year-old died in the day care in a Bronx apartment, and three others fell ill. Two people have been charged with murder.`\
+`A 1-year-old died in a Bronx apartment housing a day care program, and three others fell ill. Two people have been charged with murder.`\
 https://nytimes.com/2023/09/18/nyregion/day-care-death-fentanyl-bronx.html?searchResultPosition=4
 
 **Instacart Prices I.P.O. at $30 a Share, Raising $660 Million**\
