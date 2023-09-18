@@ -30,7 +30,7 @@ https://nytimes.com/2023/09/18/movies/superpower-review.html?searchResultPositio
 `The slow counteroffensive shows the realities of war.`\
 https://nytimes.com/2023/09/18/briefing/ukraine-counteroffensive-russia.html?searchResultPosition=8
 
-**Iranian Official Says Prisoner Exchange With U.S. Is Expected Today**\
+**Iranian Official Says Prisoner Exchange With U.S. Is Expected Monday**\
 `The announcement came as President Biden and Ebrahim Raisi, Iran’s president, were set to attend the annual United Nations General Assembly meeting.`\
 https://nytimes.com/2023/09/18/us/politics/iran-us-prisoner-release.html?searchResultPosition=9
 
