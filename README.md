@@ -1,40 +1,40 @@
+**F-35 Jet Is Missing After Pilot Parachutes Free in South Carolina**\
+`The pilot, whose name has not been released, was taken to a medical center in the Charleston area, where he was stable.`\
+https://nytimes.com/2023/09/18/us/missing-f35-military-jet-charleston.html?searchResultPosition=1
+
 **Meet Methuselah, the World’s Oldest Living Aquarium Fish**\
 `The nonagenarian lungfish has lived in a tank in Golden Gate Park in San Francisco since 1938.`\
-https://nytimes.com/2023/09/18/us/meet-methuselah-the-worlds-oldest-living-aquarium-fish.html?searchResultPosition=1
+https://nytimes.com/2023/09/18/us/meet-methuselah-the-worlds-oldest-living-aquarium-fish.html?searchResultPosition=2
 
 **California Lawmakers Push for a Court Ruling on Trump’s Eligibility**\
 `Nine California legislators asked the state’s attorney general to seek a court opinion on whether former President Donald J. Trump is disqualified from office under the 14th Amendment.`\
-https://nytimes.com/2023/09/18/us/politics/california-lawmakers-push-for-a-court-ruling-on-trumps-eligibility.html?searchResultPosition=2
+https://nytimes.com/2023/09/18/us/politics/california-lawmakers-push-for-a-court-ruling-on-trumps-eligibility.html?searchResultPosition=3
 
 **A Summer of Singles Events, in Pictures**\
 `Singles mingled the summer away at one event after another, often organized by identity group, common interest or gimmicky premise — sometimes the cornier, the better.`\
-https://nytimes.com/2023/09/18/style/singles-events.html?searchResultPosition=3
+https://nytimes.com/2023/09/18/style/singles-events.html?searchResultPosition=4
 
 **Bulgaria, a NATO member, says it found debris from drone.**\
 `By Cassandra Vinograd`\
-https://nytimes.com/live/2023/09/18/world/russia-ukraine-news/bulgaria-a-nato-member-says-it-found-debris-from-drone?searchResultPosition=4
+https://nytimes.com/live/2023/09/18/world/russia-ukraine-news/bulgaria-a-nato-member-says-it-found-debris-from-drone?searchResultPosition=5
 
 **Unions Keep Up Their Hardball Tactics**\
 `In contract disputes from Detroit to Hollywood, organized labor leaders are holding firm in their efforts to gain more pay and job security for members.`\
-https://nytimes.com/2023/09/18/business/dealbook/unions-strikes-uaw.html?searchResultPosition=5
+https://nytimes.com/2023/09/18/business/dealbook/unions-strikes-uaw.html?searchResultPosition=6
 
 **Watering a Precious Future**\
 `Discover how a distinguished beverage house, marking a century of whisky-making, is leading a mission to preserve life’s most precious resource, water.`\
-https://nytimes.com/paidpost/suntory-holdings/watering-a-precious-future.html?searchResultPosition=6
+https://nytimes.com/paidpost/suntory-holdings/watering-a-precious-future.html?searchResultPosition=7
 
 **Benjamin Netanyahu and Elon Musk to Meet, as Both Seek to Shrug Off Criticism**\
 `Mr. Netanyahu, the Israeli leader, flew to California, where he plans to discuss artificial intelligence investments with Mr. Musk, the owner of X, formerly Twitter. The encounter gives each a stage to set a new narrative.`\
-https://nytimes.com/2023/09/18/world/middleeast/netanyahu-musk-meeting.html?searchResultPosition=7
+https://nytimes.com/2023/09/18/world/middleeast/netanyahu-musk-meeting.html?searchResultPosition=8
 
 **Iraq’s Leader, Heading to U.N., Pitches Himself as Face of Change**\
 `Prime Minister Mohammed Shia al-Sudani hopes to persuade the world that he can solve Iraq’s problems when he addresses the U.N. General Assembly this week.`\
-https://nytimes.com/2023/09/18/world/middleeast/iraq-al-sudani-un.html?searchResultPosition=8
+https://nytimes.com/2023/09/18/world/middleeast/iraq-al-sudani-un.html?searchResultPosition=9
 
 **‘Superpower’ Review: Sean Penn Chronicles the War in Ukraine**\
 `This documentary, which Penn directed with Aaron Kaufman, includes Penn’s interview with the Ukrainian leader Volodymyr Zelensky on the first day of Russia’s invasion.`\
-https://nytimes.com/2023/09/18/movies/superpower-review.html?searchResultPosition=9
-
-**What’s Next for Ukraine**\
-`The slow counteroffensive shows the realities of war.`\
-https://nytimes.com/2023/09/18/briefing/ukraine-counteroffensive-russia.html?searchResultPosition=10
+https://nytimes.com/2023/09/18/movies/superpower-review.html?searchResultPosition=10
 
