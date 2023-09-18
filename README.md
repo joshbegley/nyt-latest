@@ -1,6 +1,6 @@
 **First Trial in the Death of Elijah McClain Expected to Start This Week**\
 `The 23-year-old died days after an encounter with the police and paramedics in 2019, which prompted investigations and demand for change within the Aurora, Colo., police force.`\
-https://nytimes.com/2023/09/18/us/first-trial-in-the-death-of-elijah-mcclain-expected-to-start-this-week.html?searchResultPosition=1
+https://nytimes.com/2023/09/18/us/elijah-mcclain-death-trial.html?searchResultPosition=1
 
 **The Amber Gleam of Yakgwa, South Korea’s ‘It’ Cookie**\
 `These glossy cookies come from ancient Korea, but their ginger-honey flavors are timeless.`\
