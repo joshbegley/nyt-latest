@@ -26,8 +26,8 @@ https://nytimes.com/2023/09/17/briefing/china-us-espionage-ukraine-libya.html?se
 `The U.A.W. returned to the bargaining table on Sunday after its president warned, “We’re going to amp this thing up” if the car companies don’t improve their offers.`\
 https://nytimes.com/2023/09/17/business/uaw-strike-ford-stellantis-gm.html?searchResultPosition=7
 
-**McCarthy to Push Pentagon Measure in Effort to Break G.O.P. Spending Impasse**\
-`The speaker’s decision to hold a vote on the stalled legislation was a bid to pressure far-right Republicans to drop demands for steeper cuts — or risk public ire for voting against military funding.`\
+**House G.O.P. Considers Stopgap Spending Bill to Avert a Shutdown**\
+`Republicans were presented a plan on Sunday night to cut spending, impose strict border restrictions and keep federal agencies open for another month to allow more time to pass annual spending bills.`\
 https://nytimes.com/2023/09/17/us/politics/mccarthy-gop-spending-impasse.html?searchResultPosition=8
 
 **‘Heart of Brick’ Review: A Homebody Goes Clubbing, and Tells All**\
