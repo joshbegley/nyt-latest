@@ -1,5 +1,5 @@
 **The Restaurant List 2023**\
-`The 50 restaurants in the United States that we’re most excited about right now.`\
+`The 50 places in the United States that we’re most excited about right now.`\
 https://nytimes.com/interactive/2023/dining/best-restaurants-america.html?searchResultPosition=1
 
 **Michigan State Seeks to Fire Football Coach Amid Sexual Harassment Case**\
