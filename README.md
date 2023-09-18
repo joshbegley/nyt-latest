@@ -2,7 +2,7 @@
 `This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2023/09/18/learning/word-of-the-day-armature.html?searchResultPosition=1
 
-**South Korean Prosecutors Seek to Arrest Hunger-Striking Opposition Leader**\
+**South Korean Prosecutors Want to Arrest Hunger-Striking Opposition Leader**\
 `Lee Jae-myung has been the subject of a series of investigations since losing the 2022 presidential election. He says his rival now runs “a dictatorship by prosecutors.​”`\
 https://nytimes.com/2023/09/18/world/asia/south-korea-hunger-strike-lee-jae-myung.html?searchResultPosition=2
 
