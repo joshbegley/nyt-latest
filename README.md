@@ -7,8 +7,8 @@ https://nytimes.com/2023/09/18/briefing/iran-american-prisoners-canada-india.htm
 https://nytimes.com/2023/09/18/us/phil-mickelson-golf-gambling-addiction.html?searchResultPosition=2
 
 **Ukraine says it is bringing a complaint to the W.T.O. about grain bans by Poland, Slovakia and Hungary.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2023/09/18/world/russia-ukraine-news/ukraine-says-it-is-bringing-a-complaint-to-the-wto-about-grain-bans-by-poland-slovakia-and-hungary?searchResultPosition=3
+`The countries said the bans were necessary to protect their own farmers, who were concerned that cheap grain from Ukraine had pushed down prices.`\
+https://nytimes.com/2023/09/18/world/europe/ukraine-wto-complaint-grain-bans.html?searchResultPosition=3
 
 **Unlicensed Acupuncturist Is Charged After a Patient’s Lungs Collapse**\
 `Practitioners who use the technique at a certain point in the upper back between the spine and shoulder blade risk puncturing a lung.`\
