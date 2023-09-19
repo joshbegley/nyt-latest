@@ -19,7 +19,7 @@ https://nytimes.com/live/2023/09/19/world/russia-ukraine-news/a-cargo-ship-is-hu
 https://nytimes.com/2023/09/19/business/hudson-river-park-development-manhattan.html?searchResultPosition=5
 
 **Strike Is a High-Stakes Gamble for Autoworkers and the Labor Movement**\
-`Experts on unions and the industry said the U.A.W. strike could accelerate a wave of worker actions, or stifle labor’s recent momentum`\
+`Experts on unions and the industry said the U.A.W. strike could accelerate a wave of worker actions, or stifle labor’s recent momentum.`\
 https://nytimes.com/2023/09/19/business/economy/strike-autoworkers-labor.html?searchResultPosition=6
 
 **Latinos Have Transformed Sleepy Hollow, but Not Their Town Board**\
