@@ -7,7 +7,7 @@ https://nytimes.com/2023/09/19/world/europe/azerbaijan-military-nagorno-karabakh
 https://nytimes.com/live/2023/09/19/world/united-nations-general-assembly/the-worlds-top-diplomat-found-a-subtle-way-to-shame-but-not-name-climate-delinquents?searchResultPosition=2
 
 **Building His Profile on Global Stage, U.K. Opposition Leader Meets Macron**\
-`Keir Starmer, the Labour Party leader, visited the French President just days after a high-profile gathering in Montreal. But efforts to improve European ties in the wake of Brexit could be fraught.`\
+`Keir Starmer, the Labour Party leader, visited the French president just days after a high-profile gathering in Montreal. But efforts to improve European ties in the wake of Brexit could be fraught.`\
 https://nytimes.com/2023/09/19/world/europe/keir-starmer-paris-brexit.html?searchResultPosition=3
 
 **Erdogan says he trusts Russia as much as he trusts the West.**\
