@@ -1,6 +1,6 @@
 **Suspects in Bronx Day Care Death to Face Federal Charges**\
 `New York investigators found a kilogram of fentanyl near an area where children had been napping on mats. Three fell ill and a 1-year-old boy died.`\
-https://nytimes.com/2023/09/19/nyregion/bronx-day-care-death-charges.html?searchResultPosition=1
+https://nytimes.com/2023/09/19/nyregion/bronx-day-care-fentanyl-death-charges.html?searchResultPosition=1
 
 **Pink Diamonds Emerged Out of One of Earth’s Most Ancient Breakups**\
 `Australian researchers said the colorful gems of the Argyle mine, which produced more than 90 percent of the world’s pink stones, may have erupted when a supercontinent split.`\
