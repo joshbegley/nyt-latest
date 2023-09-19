@@ -35,6 +35,6 @@ https://nytimes.com/2023/09/19/business/media/disney-parks-expansion.html?search
 https://nytimes.com/2023/09/19/us/california-universities-us-news-rankings.html?searchResultPosition=9
 
 **Azerbaijan Says Military Operation Underway in Nagorno-Karabakh**\
-`The Azerbaijani Defense Ministry said it had begun “local anti-terrorist operations” against an Armenian enclave, raising fears of a new armed conflict.`\
+`The Azerbaijani Defense Ministry said it had begun “local anti-terrorist operations” against an Armenian enclave, raising fears of an expanding conflict.`\
 https://nytimes.com/2023/09/19/world/europe/azerbaijan-military-nagorno-karabakh.html?searchResultPosition=10
 
