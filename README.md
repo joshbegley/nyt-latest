@@ -4,7 +4,7 @@ https://nytimes.com/2023/09/19/arts/television/difficult-men.html?searchResultPo
 
 **Ray Epps, Target of Jan. 6 Conspiracy Theory, Charged in Capitol Attack**\
 `The former Marine, baselessly portrayed as part of a government plot to discredit Trump supporters, was charged with a single count of disorderly conduct.`\
-https://nytimes.com/2023/09/19/us/politics/ray-epps-target-of-jan-6-conspiracy-theory-charged-in-capitol-attack.html?searchResultPosition=2
+https://nytimes.com/2023/09/19/us/politics/ray-epps-jan-6-conspiracy-theory-charged.html?searchResultPosition=2
 
 **Ex-Soldier on Trial Over Disappearance of Opposition Leaders in Belarus**\
 `A former security services official is charged with helping to abduct three men in Minsk in 1999. He’s being tried in Switzerland under universal jurisdiction.`\
