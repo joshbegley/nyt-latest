@@ -1,40 +1,40 @@
+**James Dolan’s Big Bet: An Enormous $2.3 Billion Orb**\
+`In Las Vegas, the chief executive of Madison Square Garden is set to open a behemoth arena that he hopes will revolutionize live entertainment. Back home in New York, he is facing the wrath of lawyers, politicians and sports fans.`\
+https://nytimes.com/2023/09/20/nyregion/james-dolans-big-bet-an-enormous-2-3-billion-orb.html?searchResultPosition=1
+
+**Prince William Draws a Star-Struck Crowd Downtown**\
+`In New York a crowd draws a crowd, but when the prince showed up at least one tourist was “awe-struck.”`\
+https://nytimes.com/2023/09/20/nyregion/prince-william-new-york.html?searchResultPosition=2
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/09/20/crosswords/spelling-bee-forum.html?searchResultPosition=3
+
+**A Hand Up**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2023/09/20/learning/a-hand-up.html?searchResultPosition=4
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/09/20/crosswords/wordle-review-answer-823.html?searchResultPosition=5
+
 **Azerbaijan Attacks Armenian Enclave of Nagorno-Karabakh**\
 `Azerbaijan’s defense ministry released video of attacks on what they said were military targets. Other videos from the region showed destruction in civilian areas.`\
-https://nytimes.com/video/world/asia/100000009094569/azerbaijan-armenia-nagorno-karabakh.html?searchResultPosition=1
+https://nytimes.com/video/world/asia/100000009094569/azerbaijan-armenia-nagorno-karabakh.html?searchResultPosition=6
 
 **Word of the Day: harried**\
 `This word has appeared in 66 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/09/20/learning/word-of-the-day-harried.html?searchResultPosition=2
+https://nytimes.com/2023/09/20/learning/word-of-the-day-harried.html?searchResultPosition=7
 
 **As a National Favorite Fumbles, New Zealand Falls for Another Rugby Team**\
 `An improbable run by the New Zealand Warriors has offered some excitement to counter the All Blacks’ recent misfortune.`\
-https://nytimes.com/2023/09/20/world/asia/nz-warriors-finals-nrl.html?searchResultPosition=3
+https://nytimes.com/2023/09/20/world/asia/nz-warriors-finals-nrl.html?searchResultPosition=8
 
 **Wednesday Briefing**\
 `Volodymyr Zelensky at the U.N.`\
-https://nytimes.com/2023/09/20/briefing/zelensky-united-nations-trudeau-india.html?searchResultPosition=4
+https://nytimes.com/2023/09/20/briefing/zelensky-united-nations-trudeau-india.html?searchResultPosition=9
 
 **How A.I. Increased the Graduation Rate at John Jay College by 32 Points**\
 `Software identified at-risk students, who were given extra help. Also, New London, Conn., hasn’t forgotten the traitor Benedict Arnold, 242 years later.`\
-https://nytimes.com/2023/09/20/nyregion/how-ai-increased-the-graduation-rate-at-john-jay-college-by-32-points.html?searchResultPosition=5
-
-**Portraits of Fire Victims: Two Toddlers Named ‘Memory,’ and a Teacher About to Wed**\
-`A picture is emerging of some of the 77 people who died when the derelict building in Johannesburg where they were living went up in flames on Aug. 31.`\
-https://nytimes.com/2023/09/20/world/africa/portraits-of-fire-victims-two-toddlers-named-memory-and-a-teacher-about-to-wed.html?searchResultPosition=6
-
-**Corrections: Sept. 20, 2023**\
-`Corrections that appeared in print on Wednesday, Sept. 20, 2023.`\
-https://nytimes.com/2023/09/19/pageoneplus/corrections-sept-20-2023.html?searchResultPosition=7
-
-**Why Rappers Stopped Writing: The Punch-In Method**\
-`Fifty years into hip-hop’s constant evolution, many of today’s rappers don’t write down their lyrics at all. Here’s how they make songs now.`\
-https://nytimes.com/video/arts/music/100000008880309/how-rap-is-written-punching-in.html?searchResultPosition=8
-
-**Quotation of the Day: From Flood-Struck Ruins, Libyans Demand Official Accountability**\
-`Quotation of the Day for Wednesday, September 20, 2023.`\
-https://nytimes.com/2023/09/19/pageoneplus/quotation-of-the-day-from-flood-struck-ruins-libyans-demand-official-accountability.html?searchResultPosition=9
-
-**James Hoge, Who Led 2 Big City Tabloids, Dies at 87**\
-`He was publisher of The Chicago Sun-Times, where he was also its top editor, and New York’s Daily News. He was later editor of the headier Foreign Affairs magazine.`\
-https://nytimes.com/2023/09/19/obituaries/james-hoge-dead.html?searchResultPosition=10
+https://nytimes.com/2023/09/20/nyregion/how-ai-increased-the-graduation-rate-at-john-jay-college-by-32-points.html?searchResultPosition=10
 
