@@ -2,7 +2,7 @@
 `Despite the headlines, the impact of social apps on adolescent mental health isn’t so clear.`\
 https://nytimes.com/2023/09/20/well/family/social-media-teen-brain-mental-health.html?searchResultPosition=5
 
-**Top Studios Executives Join Writers’ Strike Negotiations**\
+**Top Studio Executives Join Writers’ Strike Negotiations**\
 `The stalemate is in its fifth month, and talks between the union and the Hollywood studios resumed for the first time since August.`\
 https://nytimes.com/2023/09/20/business/media/writers-strike-talks-executives.html?searchResultPosition=6
 
