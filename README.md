@@ -28,7 +28,7 @@ https://nytimes.com/2023/09/20/sports/stadiums-sustainability-climate-change.htm
 
 **Can We Put a Price on Climate Damages?**\
 `A new model finds a remarkable tally for the impact of even a bit of carbon over decades.`\
-https://nytimes.com/2023/09/20/opinion/columnists/can-we-put-a-price-on-climate-damages.html?searchResultPosition=8
+https://nytimes.com/2023/09/20/opinion/can-we-put-a-price-on-climate-damages.html?searchResultPosition=8
 
 **Floods, Winds and Temperature Extremes Challenge Rail Lines**\
 `The environmental risks to railroads are rising, but the measures to reduce the danger will be costly.`\
