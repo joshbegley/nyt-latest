@@ -11,7 +11,7 @@ https://nytimes.com/2023/09/20/us/elijah-mccain-trial-death.html?searchResultPos
 https://nytimes.com/2023/09/20/us/irvo-otieno-settlement-virgini.html?searchResultPosition=3
 
 **Anheuser-Busch Says It Has Stopped Amputating Tails of Budweiser Clydesdales**\
-`The brewing company came under fire from PETA over the practice earlier this year. The procedure, known tail docking, has been denounced by multiple veterinary organizations and is banned in several states and countries.`\
+`The brewing company came under fire from PETA over the practice earlier this year. The procedure, known as tail docking, has been denounced by multiple veterinary organizations and is banned in several states and countries.`\
 https://nytimes.com/2023/09/20/us/budwesier-clydesdales-tail-docking.html?searchResultPosition=4
 
 **The leaders of Ukraine and Brazil strike a friendly note in person.**\
