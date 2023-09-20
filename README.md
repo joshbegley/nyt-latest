@@ -2,7 +2,7 @@
 `The new economics of higher education make going to college a risky bet.`\
 https://nytimes.com/2023/09/20/podcasts/the-daily/is-college-worth-it.html?searchResultPosition=1
 
-**Historic Banyan Tree That Burned in Lahaina Fires Shows Shows Signs of Recovery**\
+**Historic Banyan Tree That Burned in Lahaina Fires Shows Signs of Recovery**\
 `The 150-year-old tree was badly burned in the fires that ravaged Maui last month. New green leaves hint at the possibility of recovery for the tree and its community.`\
 https://nytimes.com/2023/09/20/us/lahaina-banyan-tree-hawaii-fire-growth.html?searchResultPosition=2
 
