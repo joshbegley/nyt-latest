@@ -2,7 +2,7 @@
 `Inflation is still expected to fade, but the central bank’s soft landing optimism is getting a stress test as threats emerge.`\
 https://nytimes.com/live/2023/09/20/business/fed-meeting-interest-rates/new-risks-cloud-the-inflation-outlook-as-the-fed-meets?searchResultPosition=1
 
-**Biden meets Netanyahu, after snubbing him all year.**\
+**Biden meets Netanyahu, after monthslong delay.**\
 `By Patrick Kingsley and Michael D. Shear`\
 https://nytimes.com/live/2023/09/20/world/united-nations-general-assembly/biden-meets-netanyahu-after-snubbing-him-all-year?searchResultPosition=2
 
