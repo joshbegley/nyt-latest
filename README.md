@@ -1,4 +1,4 @@
-**Sunak to Weaken U.K. Climate Targets as Election Approaches**\
+**Sunak Poised to Weaken U.K. Climate Targets as Election Approaches**\
 `Britain’s prime minister is expected to delay a ban on the sale of new gas- and diesel-only cars, among other measures.`\
 https://nytimes.com/2023/09/20/world/europe/uk-sunak-climate-change.html?searchResultPosition=1
 
