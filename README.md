@@ -15,7 +15,7 @@ https://nytimes.com/2023/09/19/crosswords/daily-puzzle-2023-09-20.html?searchRes
 https://nytimes.com/2023/09/19/us/trump-abortion-iowa.html?searchResultPosition=4
 
 **Unlawful Border Crossings Are Rising Fast After a Brief Decline**\
-`Officials attribute the influx to the long waits for appointments and to misinformation spread by the Mexican cartels that traffic drugs and smuggle migrants.`\
+`Migrants and advocates say that some people who have been waiting months for the opportunity to enter the U.S. legally have grown impatient and are willing to take a risk.`\
 https://nytimes.com/2023/09/19/us/politics/border-crossings-migrants.html?searchResultPosition=5
 
 **He Dissected Trump. Now Michael Wolff Performs an Autopsy on Fox News.**\
