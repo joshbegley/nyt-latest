@@ -30,8 +30,8 @@ https://nytimes.com/2023/09/20/briefing/biden-united-nations.html?searchResultPo
 `By Ivan Nechepurenko`\
 https://nytimes.com/live/2023/09/19/world/russia-ukraine-news/with-russias-focus-on-ukraine-an-armed-conflict-breaks-out-between-two-other-former-soviet-states?searchResultPosition=8
 
-**Azerbaijan Says It Will Stop Assault on Armenian Enclave**\
-`The government in Azerbaijan said pro-Armenian leaders in Nagorno-Karabakh agreed to a cease-fire, an apparent calming of hostilities that could avert a wider war in the region.`\
+**Azerbaijan Says It Stops Assault on Armenian Enclave**\
+`Pro-Armenian leaders in the breakaway region of Nagorno-Karabakh appeared to have surrendered to Azerbaijan’s demands. A calming of hostilities there could avert a wider war in the region.`\
 https://nytimes.com/2023/09/20/world/europe/azerbaijan-armenia-cease-fire.html?searchResultPosition=9
 
 **Ukraine Diary: The show goes on in Zaporizhzhia.**\
