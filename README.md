@@ -6,7 +6,7 @@ https://nytimes.com/live/2023/09/20/world/russia-ukraine-news/south-africa-will-
 `“Prometheus Firebringer” and “Bioadapted” test the waters, while the abstract “Psychic Self Defense” is a warm and pulsing counterpoint.`\
 https://nytimes.com/2023/09/20/theater/ai-stories-theater-prometheus-firebringer.html?searchResultPosition=2
 
-**Inflation is slowing across much of the world, but rates may still elevated for a long time.**\
+**Inflation is slowing across much of the world, but rates may still be elevated for a long time.**\
 `By Eshe Nelson`\
 https://nytimes.com/live/2023/09/20/business/fed-meeting-interest-rates/inflation-is-slowing-across-much-of-the-world-but-rates-may-still-elevated-for-a-long-time?searchResultPosition=3
 
