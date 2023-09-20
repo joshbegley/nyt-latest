@@ -1,5 +1,5 @@
 **Anger Erupts as Rabbis Who Started Fatal Nursing Home Fire Avoid Jail**\
-`The March 2021 fire, which began with a pre-Passover cleansing of the home’s kitchen and ovens, killed a resident and a firefighter. in th`\
+`The March 2021 fire, which began with a pre-Passover cleansing of the home’s kitchen and ovens, killed a resident and a firefighter.`\
 https://nytimes.com/2023/09/20/nyregion/nursing-home-fire-rabbis-probation.html?searchResultPosition=2
 
 **Senate Poised to Confirm Military Chiefs, Sidestepping Tuberville Blockade**\
