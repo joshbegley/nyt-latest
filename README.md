@@ -8,7 +8,7 @@ https://nytimes.com/2023/09/21/us/alabama-band-director-tased.html?searchResultP
 
 **Rising Separatism, and an Assassination, at a Sikh Temple in Canada**\
 `Hardeep Singh Nijjar, the Sikh leader whose killing has ignited tensions between Canada and India, increased calls for an independent homeland in India.`\
-https://nytimes.com/2023/09/21/world/canada/canada-hardeep-nijjar-assassination-separatism.html?searchResultPosition=3
+https://nytimes.com/2023/09/21/world/canada/hardeep-singh-nijjar-sikh-india.html?searchResultPosition=3
 
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
