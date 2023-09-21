@@ -22,7 +22,7 @@ https://nytimes.com/2023/09/21/us/california-cool-summer-climate-change.html?sea
 `Plus: Mohammed Sami’s paintings of displacement, a new omakase spot — and more recommendations from T Magazine.`\
 https://nytimes.com/2023/09/21/t-magazine/anastasia-inciardi-prints-vending-machine.html?searchResultPosition=6
 
-**Here’s what to expect.**\
+**Overview: What’s happening today.**\
 `By Adam Pasick`\
 https://nytimes.com/live/2023/09/21/climate/gates-bloomberg-world-bank/heres-what-to-expect?searchResultPosition=7
 
