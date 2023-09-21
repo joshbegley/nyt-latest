@@ -1,5 +1,5 @@
-**He Drove Off a Collapsed Bridge and Died. His Family Says Google Maps Sent Him.**\
-`Philip Paxson’s family said in a lawsuit that he was following Google Maps directions last year when he drove off a bridge in Hickory, N.C., plunged into a creek and drowned.`\
+**He Drove Into a Creek and Died. His Family Blames Google Maps.**\
+`Philip Paxson’s family said in a lawsuit that he was following Google Maps directions last year when he drove off a collapsed bridge in Hickory, N.C., plunged into a creek and drowned.`\
 https://nytimes.com/2023/09/21/us/google-maps-lawsuit-collapsed-bridge.html?searchResultPosition=1
 
 **Norway’s prime minister resists setting a date for phasing out fossil fuels.**\
