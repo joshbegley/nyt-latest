@@ -1,40 +1,40 @@
-**Syria’s Leader Visits China in Search of Friends and Funds**\
-`The trip by President Bashar al-Assad of Syria, his first to China since 2004, may bolster Beijing’s efforts to expand its influence in the Middle East.`\
-https://nytimes.com/2023/09/21/world/asia/assad-china-syria.html?searchResultPosition=1
+**It’s Not a Race, Yet, in the Republican Primary**\
+`Donald Trump is polling about as well as any candidate in the modern history of contested presidential primaries.`\
+https://nytimes.com/2023/09/21/upshot/polls-trump-republicans-primary.html?searchResultPosition=1
 
-**And Just Like That, Fendi Goes Beyond the Baguette**\
-`It’s not only about the handbag any more. Kim Jones is making great clothes.`\
-https://nytimes.com/2023/09/21/style/fendi-milan-fashion-week.html?searchResultPosition=2
+**In Washington Visit, Zelensky Will Try to Shore Up Critical Support**\
+`President Volodymyr Zelensky will meet with President Biden and members of Congress as a growing number of Republicans oppose further assistance for Ukraine.`\
+https://nytimes.com/2023/09/21/us/politics/zelensky-washington-biden-visit.html?searchResultPosition=2
 
-**Her Job Is Housing the Homeless. Will It Cost Christine Quinn Her Dream?**\
-`Once the city’s second-most powerful politician, she is now a high-profile advocate on the divisive homelessness and migrant crises. That could threaten her chances with future voters.`\
-https://nytimes.com/2023/09/21/nyregion/christine-quinn-nyc-homeless-migrants.html?searchResultPosition=3
+**In Phoenix, a Classics Teacher Goes on a Home-Buying Odyssey. Which One Did She Choose?**\
+`For her first home purchase, an associate professor at Arizona State hoped to find something for less than $400,000, with a little history to it.`\
+https://nytimes.com/interactive/2023/09/21/realestate/phoenix-arizona-house-sale.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/09/21/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**The Borking of Joe Biden**\
+`The impeachment inquiry is just the latest twisted Republican abuse of Democratic precedent.`\
+https://nytimes.com/2023/09/21/opinion/biden-republicans-impeachment.html?searchResultPosition=4
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/09/21/crosswords/wordle-review-answer-824.html?searchResultPosition=5
+**Julianne Moore’s Montauk Sanctuary**\
+`In a wild meadow by the sea, the actress and her husband, Bart Freundlich, use few materials to say many things.`\
+https://nytimes.com/interactive/2023/09/21/t-magazine/design/julianne-moore-montauk-design.html?searchResultPosition=5
 
-**Tiny Homes**\
-`Would you want to live in one?`\
-https://nytimes.com/2023/09/21/learning/tiny-homes.html?searchResultPosition=6
+**The Lawyers Sam Bankman-Fried Once Trusted Are Drawing Criticism**\
+`Mr. Bankman-Fried and his allies have blasted Sullivan & Cromwell, the New York law firm managing FTX’s bankruptcy, for its tangled relationship with the crypto exchange.`\
+https://nytimes.com/2023/09/21/technology/ftx-sam-bankman-fried-lawyers.html?searchResultPosition=6
 
-**Here’s the latest on Zelensky’s visit to the White House.**\
-`By Anushka Patil and Victoria Kim`\
-https://nytimes.com/live/2023/09/21/world/zelensky-russia-ukraine-news/heres-the-latest-on-zelenskys-visit-to-the-white-house?searchResultPosition=7
+**In Harlem, a Crumbling Former Rectory Finds New Life**\
+`How an artist turned a neo-Gothic townhouse uptown into a modern, spacious home.`\
+https://nytimes.com/interactive/2023/09/21/t-magazine/design/harlem-apartment-design-nyc.html?searchResultPosition=7
 
-**Missile Strike Hits Cherkasy, Ukraine**\
-`The State Emergency Service of Ukraine released footage of rescue operations following the attack and said that people may still be under the rubble of a building.`\
-https://nytimes.com/video/world/europe/100000009096543/missile-strike-hits-cherkasy-ukraine.html?searchResultPosition=8
+**A Wood-Lined Apartment on Washington Square Park**\
+`In Greenwich Village, a photographers’ agent creates a moody home that captures the spirit of a city that’s always building on top of itself.`\
+https://nytimes.com/interactive/2023/09/21/t-magazine/design/greenwich-village-apartment-nyc.html?searchResultPosition=8
 
-**Word of the Day: elocution**\
-`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/09/21/learning/word-of-the-day-elocution.html?searchResultPosition=9
+**Inside the Elaborate, Enviable Design of Three New York Homes**\
+`On Washington Square Park, in Harlem and on the coast in Montauk, several creative people renovate their spaces with an essential New York trait in mind: resourcefulness.`\
+https://nytimes.com/interactive/2023/09/21/t-magazine/design/new-york-apartment-design.html?searchResultPosition=9
 
-**Russia Strikes Cities Across Ukraine Hours After Zelensky Speech at U.N.**\
-`Civilians rushed to shelters in Lviv, in far western Ukraine, and Kyiv, where at least seven people were hurt.`\
-https://nytimes.com/live/2023/09/21/world/zelensky-russia-ukraine-news/russia-ukraine-kyiv-attacks?searchResultPosition=10
+**The Precarious Force of Feminist Foreign Policy**\
+`More countries are prioritizing women’s rights and representation, but the movement’s future is far from certain.`\
+https://nytimes.com/2023/09/21/opinion/international-world/feminist-foreign-policy.html?searchResultPosition=10
 
