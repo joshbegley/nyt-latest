@@ -1,4 +1,4 @@
-**A Trap Door Hid a Cache of Narcotics at the Day Care Where Child Died**\
+**A Trap Door Hid a Cache of Narcotics at the Day Care Where a Child Died**\
 `A neighbor said that the apartment had been renovated before the home-based facility opened, and workers had installed a new floor.`\
 https://nytimes.com/2023/09/21/nyregion/bronx-day-care-child-death-fentanyl-drugs.html?searchResultPosition=3
 
