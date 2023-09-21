@@ -10,9 +10,9 @@ https://nytimes.com/2023/09/21/books/book-ban-rise-libraries.html?searchResultPo
 `By Constant Méheut`\
 https://nytimes.com/live/2023/09/21/world/zelensky-russia-ukraine-news/russia-targets-ukraines-energy-infrastructure-a-reminder-of-its-winter-campaign?searchResultPosition=3
 
-**Ukraine targets Russian-occupied Crimea with missiles and drones.**\
-`By Constant Méheut`\
-https://nytimes.com/live/2023/09/21/world/zelensky-russia-ukraine-news/russia-crimea-ukraine-attack?searchResultPosition=4
+**Ukraine Targets Russian-Occupied Crimea With Missiles and Drones**\
+`Ukraine’s military said it attacked a Russian air base near the Crimean city of Saki, but gave no details. Russian officials claimed to have thwarted the aerial assaults.`\
+https://nytimes.com/2023/09/21/world/europe/russia-crimea-ukraine-attack.html?searchResultPosition=4
 
 **9 Deputies Indicted in Death of Man Beaten in Memphis Jail**\
 `Gershun Freeman, 33, died last year after being stomped, punched and pinned down by the deputies in Shelby County, Tenn., his family’s lawyer said.`\
