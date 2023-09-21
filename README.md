@@ -11,7 +11,7 @@ https://nytimes.com/live/2023/09/21/world/zelensky-russia-ukraine-news/zelensky-
 https://nytimes.com/video/climate/100000009097057/al-gore-climate-change.html?searchResultPosition=3
 
 **In Yards, Offices and Basements, New York Hopes to Build 100,000 Homes**\
-`As New York City’s housing crisis rages, Mayor Eric Adams is proposing broad changes that would make it easier to build above commercial strips, near subway stations and elsewhere.`\
+`As New York’s housing crisis rages, Mayor Eric Adams is proposing broad changes that would make it easier to build above commercial strips, near subway stations and elsewhere.`\
 https://nytimes.com/2023/09/21/nyregion/nyc-housing-plan-adams.html?searchResultPosition=4
 
 **Worries About Climate Change Should Spur Us to Action**\
