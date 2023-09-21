@@ -1,4 +1,4 @@
-**Russia Strikes Cities Across Ukraine in Overnight Attack**\
+**Russia Strikes Cities Across Ukraine Hours After Zelensky Speech at U.N.**\
 `Civilians rushed to shelters in Lviv, in far western Ukraine, and Kyiv, where at least seven people were hurt.`\
 https://nytimes.com/2023/09/21/world/europe/russia-ukraine-kyiv-attacks.html?searchResultPosition=1
 
