@@ -1,13 +1,13 @@
 **Residents of Kyiv Sift Through the Aftermath of a Missile Attack**\
 `In the Darnytsia neighborhood of the Ukrainian capital, residents were retrieving their belongings and sweeping up broken glass.`\
-https://nytimes.com/live/2023/09/21/world/zelensky-russia-ukraine-news/kyiv-russia-missile?searchResultPosition=1
+https://nytimes.com/2023/09/21/world/europe/kyiv-russia-missile.html?searchResultPosition=1
 
 **For Tesla and Musk, Auto Strike Carries Benefits and Risks**\
 `Elon Musk, the Tesla chief executive, may be able to exploit his rivals’ weaknesses, but the United Auto Workers union also has the electric carmaker in its sights.`\
 https://nytimes.com/2023/09/21/business/tesla-musk-auto-union.html?searchResultPosition=2
 
 **Will Work Authorization Draw More Venezuelan Migrants to the U.S.?**\
-`The Biden Administration will grant work permits to hundreds of thousands of migrants, a move welcomed by the leaders of big cities, especially New York.`\
+`The Biden administration will grant work permits to hundreds of thousands of migrants, a move welcomed by the leaders of big cities, especially New York.`\
 https://nytimes.com/2023/09/21/nyregion/tps-venezuelan-migrants.html?searchResultPosition=3
 
 **Right-Wing Rebels Block Defense Bill Again, Rebuking McCarthy on Spending**\
