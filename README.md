@@ -6,7 +6,7 @@ https://nytimes.com/2023/09/21/world/asia/assad-china-syria.html?searchResultPos
 `It’s not only about the handbag any more. Kim Jones is making great clothes.`\
 https://nytimes.com/2023/09/21/style/fendi-milan-fashion-week.html?searchResultPosition=2
 
-**Her Job is Housing the Homeless. Will It Cost Christine Quinn Her Dream?**\
+**Her Job Is Housing the Homeless. Will It Cost Christine Quinn Her Dream?**\
 `Once the city’s second-most powerful politician, she is now a high-profile advocate on the divisive homelessness and migrant crises. That could threaten her chances with future voters.`\
 https://nytimes.com/2023/09/21/nyregion/christine-quinn-nyc-homeless-migrants.html?searchResultPosition=3
 
