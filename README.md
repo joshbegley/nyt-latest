@@ -2,7 +2,7 @@
 `The retiring Fox leader built a noise-and-propaganda machine by giving his people what they wanted — and sometimes by teaching them what to want.`\
 https://nytimes.com/2023/09/21/arts/television/rupert-murdoch-fox.html?searchResultPosition=3
 
-**Judge Severs Deputy Accused in the 9/11 Attacks From Guantánamo Trial**\
+**Judge Severs Man Accused in the 9/11 Attacks From Guantánamo Trial**\
 `A military mental health panel said that Ramzi bin al-Shibh had PTSD, psychosis and delusions, which his lawyer blamed on his torture by the C.I.A.`\
 https://nytimes.com/2023/09/21/us/politics/september-11-guantanamo-torture.html?searchResultPosition=4
 
