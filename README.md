@@ -15,7 +15,7 @@ https://nytimes.com/2023/09/21/opinion/letters/climate-change.html?searchResultP
 https://nytimes.com/2023/09/21/world/americas/mexico-migration-border.html?searchResultPosition=4
 
 **Residents See Signs of a Crackdown on Dissent After Libya Floods**\
-`Several people have been arrested and some journalists and aid workers have been shut out of the eastern city of Derna after  dams burst, killing thousands. Communications have also been disrupted.`\
+`Several people have been arrested and some journalists and aid workers have been shut out of the eastern city of Derna after dams burst, killing thousands. Communications have also been disrupted.`\
 https://nytimes.com/2023/09/21/world/middleeast/libya-floods-derna-crackdown.html?searchResultPosition=5
 
 **Jimmy Carter’s Final Chapter: Peanut Butter Ice Cream and His 99th Birthday**\
