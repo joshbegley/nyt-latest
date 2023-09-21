@@ -20,7 +20,7 @@ https://nytimes.com/2023/09/21/opinion/rupert-murdoch-fox-news.html?searchResult
 
 **F.T.C. Sues Anesthesia Group Backed by Private-Equity Firm**\
 `The federal agency claims the company’s practices amount to antitrust activity, a new salvo in the government’s scrutiny of health care consolidation that has led to higher prices.`\
-https://nytimes.com/2023/09/21/health/policy/ftc-antitrust-healthcare.html?searchResultPosition=8
+https://nytimes.com/2023/09/21/health/ftc-antitrust-healthcare.html?searchResultPosition=8
 
 **A Theory of Elon Musk’s Maniacal Drive**\
 `The entrepreneur seems to see himself as a mythical hero.`\
