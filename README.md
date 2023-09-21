@@ -27,7 +27,7 @@ https://nytimes.com/2023/09/21/us/politics/politics-discontent.html?searchResult
 https://nytimes.com/2023/09/21/theater/lunar-eclipse-review-reed-birney.html?searchResultPosition=7
 
 **Earth’s Hottest August on Record Followed a Record-Breaking June and July**\
-`U.S. government scientists also reported a fifth consecutive monthly record for global sea surface temperatures..`\
+`U.S. government scientists also reported a fifth consecutive monthly record for global sea surface temperatures.`\
 https://nytimes.com/2023/09/21/climate/hottest-august-on-record.html?searchResultPosition=8
 
 **A Tiananmen Square Musical Worries About China’s Glare**\
