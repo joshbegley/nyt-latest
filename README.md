@@ -23,7 +23,7 @@ https://nytimes.com/2023/09/21/business/hong-kong-stocks-financial-hub.html?sear
 https://nytimes.com/2023/09/21/science/parasitoid-wasp-drill-plastic.html?searchResultPosition=6
 
 **Peso Pluma Cancels Tijuana Concert After Cartel Threats**\
-`The singer-songwriter has helped lead an international surge in what is known in the United States as regional Mexican music. He is best known for corridos tumbados, songs that tell stories of the Mexican drug trade.`\
+`The singer has helped lead an international surge in what is known in the United States as regional Mexican music. He is best known for songs that tell stories of the Mexican drug trade.`\
 https://nytimes.com/2023/09/20/us/peso-pluma-death-threat-tijuana-cancelation.html?searchResultPosition=7
 
 **U.S. Will Allow Nearly 500,000 Venezuelan Migrants to Work Legally**\
