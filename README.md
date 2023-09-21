@@ -1,40 +1,40 @@
+**‘The Trial’ Review: Seeking Justice for Argentina**\
+`Ulises de la Orden carves a documentary from film of the 1985 prosecution of the military leaders who had seized control of the government.`\
+https://nytimes.com/2023/09/21/movies/the-trial-review-seeking-justice-for-argentina.html?searchResultPosition=1
+
+**‘The Storms of Jeremy Thomas’ Review: A Man Obsessed**\
+`Thomas’s dedication to pushing the envelope of big-screen entertainment is the focus of Mark Cousins’s latest documentary.`\
+https://nytimes.com/2023/09/21/movies/the-storms-of-jeremy-thomas-review.html?searchResultPosition=2
+
+**‘Still Film’ Review: Hollywood on Trial**\
+`James N. Kienitz Wilkins’s eloquently argued experimental film warns of a contemporary Hollywood dangerously obsessed with the past.`\
+https://nytimes.com/2023/09/21/movies/still-film-review.html?searchResultPosition=3
+
+**‘Neither Confirm Nor Deny’ Review: Exhumation at Sea**\
+`A 1970s submarine recovery operation by the C.I.A. is the subject of this documentary, which prioritizes the excitement of undercover work over any serious consideration of the agency’s legacy.`\
+https://nytimes.com/2023/09/21/movies/neither-confirm-nor-deny-review.html?searchResultPosition=4
+
+**‘It Lives Inside’ Review: The Horrors of Building Self-Acceptance**\
+`This feature debut about a high schooler’s struggle with her cultural identity is promising, even if the allegory doesn’t always land.`\
+https://nytimes.com/2023/09/21/movies/it-lives-inside-review.html?searchResultPosition=5
+
+**‘Something You Said Last Night’ Review: They Holiday, but Can’t Get Away**\
+`In this too-languid drama, a young transgender woman and her family butt heads during a fraught beach vacation.`\
+https://nytimes.com/2023/09/21/movies/something-you-said-last-night-review.html?searchResultPosition=6
+
+**‘26.2 to Life’ Review: Running in Circles**\
+`Christine Yoo’s new documentary follows the inmates of San Quentin Prison in California who train to run a grueling marathon inside its yard.`\
+https://nytimes.com/2023/09/21/movies/26-2-to-life-review.html?searchResultPosition=7
+
+**‘My Sailor, My Love’ Review: When Romance Comes Ashore**\
+`A grumpy man warms to a good-natured housekeeper in this film directed by Klaus Haro.`\
+https://nytimes.com/2023/09/21/movies/my-sailor-my-love-review.html?searchResultPosition=8
+
 **Some Fortnite Players Are Owed Refunds. Here’s How to Claim Yours.**\
 `Epic Games, the maker of Fortnite, agreed to pay $245 million to refund customers over accusations that it tricked players into making unwanted purchases.`\
-https://nytimes.com/2023/09/21/business/fortnite-refund-ftc-settlement.html?searchResultPosition=1
+https://nytimes.com/2023/09/21/business/fortnite-refund-ftc-settlement.html?searchResultPosition=9
 
 **After Surrender in Nagorno-Karabakh, Leaders Discuss Armenians’ Fate**\
 `Officials of the breakaway region met with representatives of Azerbaijan to talk about the future of its residents, many of whom strongly resist the idea of coming under Azerbaijani rule.`\
-https://nytimes.com/2023/09/21/world/europe/armenia-azerbaijan-nagorno-karabakh.html?searchResultPosition=2
-
-**Life at 13**\
-`A behind-the-scenes look at teenagers’ use of social media.`\
-https://nytimes.com/2023/09/21/briefing/social-media-teenagers.html?searchResultPosition=3
-
-**India Suspends Visas for Canadians, Escalating Clash Over Sikh’s Killing**\
-`The move followed Canada’s claim of Indian government involvement in the assassination of a Canadian citizen who supported a separatist cause.`\
-https://nytimes.com/2023/09/21/world/asia/india-canada-visas.html?searchResultPosition=4
-
-**Canada Confronts India Over Alleged Assassination**\
-`Prime Minister Justin Trudeau’s accusation has further soured relations between the two nations.`\
-https://nytimes.com/2023/09/21/podcasts/the-daily/canada-india-assassination.html?searchResultPosition=5
-
-**Today’s Top News: McCarthy Won’t Host Forum for Zelensky, and More**\
-`Exclusively from New York Times Audio, our new app.`\
-https://nytimes.com/2023/09/21/podcasts/headlines-nyt-audio-app.html?searchResultPosition=6
-
-**It’s Not a Race, Yet, in the Republican Primary**\
-`Donald Trump is polling about as well as any candidate in the modern history of contested presidential primaries.`\
-https://nytimes.com/2023/09/21/upshot/polls-trump-republicans-primary.html?searchResultPosition=7
-
-**In Washington Visit, Zelensky Will Try to Shore Up Critical Support**\
-`President Volodymyr Zelensky will meet with President Biden and members of Congress as a growing number of Republicans oppose further assistance for Ukraine.`\
-https://nytimes.com/2023/09/21/us/politics/zelensky-washington-biden-visit.html?searchResultPosition=8
-
-**In Phoenix, a Classics Teacher Goes on a Home-Buying Odyssey. Which One Did She Choose?**\
-`For her first home purchase, an associate professor at Arizona State hoped to find something for less than $400,000, with a little history to it.`\
-https://nytimes.com/interactive/2023/09/21/realestate/phoenix-arizona-house-sale.html?searchResultPosition=9
-
-**The Borking of Joe Biden**\
-`The impeachment inquiry is just the latest twisted Republican abuse of Democratic precedent.`\
-https://nytimes.com/2023/09/21/opinion/biden-republicans-impeachment.html?searchResultPosition=10
+https://nytimes.com/2023/09/21/world/europe/armenia-azerbaijan-nagorno-karabakh.html?searchResultPosition=10
 
