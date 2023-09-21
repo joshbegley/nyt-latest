@@ -1,4 +1,4 @@
-**‘Burning Man for Climate Geeks?’ Welcome to Climate Week in New York**\
+**How Climate Week in New York Turned Into ‘Burning Man for Climate Geeks’**\
 `From small panel discussions in 2009, Climate Week NYC has ballooned into a weeklong happening of dinners, events, networking and spectacle.`\
 https://nytimes.com/2023/09/21/climate/climate-week-new-york.html?searchResultPosition=1
 
