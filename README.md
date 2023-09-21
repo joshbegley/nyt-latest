@@ -2,7 +2,7 @@
 `Two years into a surge in book banning efforts across the country, restrictions that were largely happening in school libraries, where they affected children, are now affecting the wider community as well.`\
 https://nytimes.com/2023/09/21/books/book-ban-rise-libraries.html?searchResultPosition=1
 
-**Russia targets Ukraine’s energy infrastructure, a reminder of its winter campaign.**\
+**Russia hits Ukraine’s energy infrastructure, a reminder of its winter campaign.**\
 `By Constant Méheut`\
 https://nytimes.com/live/2023/09/21/world/zelensky-russia-ukraine-news/russia-targets-ukraines-energy-infrastructure-a-reminder-of-its-winter-campaign?searchResultPosition=2
 
