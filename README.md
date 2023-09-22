@@ -14,7 +14,7 @@ https://nytimes.com/2023/09/22/us/supreme-court-kagan-ethics.html?searchResultPo
 `The Miller Theater at Columbia University began a series of programs to celebrate this restless and eclectic musician’s milestone year.`\
 https://nytimes.com/2023/09/22/arts/music/john-zorn-70-miller-theater.html?searchResultPosition=4
 
-**Former F.B.I. Spy Hunter Pleads Guilty to Concealing Overseas Dealings**\
+**Former F.B.I. Spy Hunter Admits to Hiding Payments in Overseas Dealings**\
 `The official, Charles F. McGonigal, also pleaded guilty to conspiring to violate U.S. sanctions and to launder payments from a Russian oligarch in a separate case in New York.`\
 https://nytimes.com/2023/09/22/nyregion/fbi-spy-charged-mcgonigal.html?searchResultPosition=5
 
