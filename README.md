@@ -1,29 +1,40 @@
+**Former F.B.I. Spy Hunter Pleads Guilty to Concealing Overseas Dealings**\
+`The official, Charles F. McGonigal, also pleaded guilty to conspiring to violate U.S. sanctions and to launder payments from a Russian oligarch in a separate case in New York.`\
+https://nytimes.com/2023/09/22/nyregion/fbi-spy-charged-mcgonigal.html?searchResultPosition=1
+
+**Did Gucci Just Score the Starriest Fashion Week Front Row?**\
+`Amid the strikes in Hollywood, the fashion house lured Julia Roberts, Ryan Gosling and Jessica Chastain to Milan for Sabato De Sarno’s debut show.`\
+https://nytimes.com/2023/09/22/style/did-gucci-just-score-the-starriest-fashion-week-front-row.html?searchResultPosition=2
+
+**Arriving Now: Fast Passenger Trains From Miami to Orlando**\
+`Brightline will make the trip in three and a half hours, with round-trip tickets starting at $158.`\
+https://nytimes.com/2023/09/22/us/brightline-train-rail-florida.html?searchResultPosition=3
+
 **Autoworkers Walked Out at Dozens More Plants**\
 `Also, Senator Menendez is charged with bribery. Here is the latest at the end of Friday.`\
-https://nytimes.com/2023/09/22/briefing/autoworker-strike-expand-senator-menendez.html?searchResultPosition=1
+https://nytimes.com/2023/09/22/briefing/autoworker-strike-expand-senator-menendez.html?searchResultPosition=4
 
 **Flashback: Your Weekly History Quiz, September 24, 2023**\
 `Can you sort 8 historical events? The fall of Rome, the first strike, and the first Christian nation.`\
-https://nytimes.com/interactive/2023/09/22/upshot/flashback.html?searchResultPosition=2
+https://nytimes.com/interactive/2023/09/22/upshot/flashback.html?searchResultPosition=5
 
 **Menendez Indictment Appears to Undercut Claims of ‘Two-Tiered System’ of Justice**\
 `The indictment of the Democratic senator from New Jersey comes at a politically opportune moment for the besieged Justice Department.`\
-https://nytimes.com/2023/09/22/us/politics/menendez-indictment-republicans-garland-justice.html?searchResultPosition=3
+https://nytimes.com/2023/09/22/us/politics/menendez-indictment-republicans-garland-justice.html?searchResultPosition=6
 
 **India’s Moon Lander Misses Wake-Up Call After Successful Mission**\
 `The Chandrayaan-3 mission did what it set out to do, but its lander and rover could not be roused after entering the cold lunar darkness two weeks ago.`\
-https://nytimes.com/2023/09/22/science/india-moon-landing-chandrayaan-3.html?searchResultPosition=4
+https://nytimes.com/2023/09/22/science/india-moon-landing-chandrayaan-3.html?searchResultPosition=7
 
 **One Day on the Border: 8,900 Migrants Arrested, and More on the Way**\
 `A sudden surge of people from around the globe is showing up at the southern border, despite dangers and deportations. ‘If you don’t take risks, you cannot win,’ said one man who traveled from Peru.`\
-https://nytimes.com/2023/09/22/us/migrant-crisis-border-surge.html?searchResultPosition=5
+https://nytimes.com/2023/09/22/us/migrant-crisis-border-surge.html?searchResultPosition=8
 
 **Zelensky Tells Canada’s Parliament Russia Is Committing Genocide**\
 `President Volodymyr Zelensky of Ukraine commended Canada for its role in equipping Ukraine with weapons and training soldiers.`\
-https://nytimes.com/video/world/americas/100000009099997/zelensky-canada-ukraine-russia.html?searchResultPosition=6
+https://nytimes.com/video/world/americas/100000009099997/zelensky-canada-ukraine-russia.html?searchResultPosition=9
 
 **The Onscreen Apartments That Made Them Want to Live in New York**\
 `Twelve designers, architects and others reflect on the movie and TV homes, from SoHo lofts to houses on the park, that inspired them to move to the city, and informed their aesthetics.`\
-https://nytimes.com/2023/09/22/t-magazine/new-york-film-tv-apartments.html?searchResultPosition=7
+https://nytimes.com/2023/09/22/t-magazine/new-york-film-tv-apartments.html?searchResultPosition=10
 
-**Samantha Irby Says It’s OK to Hate Your Body**\
