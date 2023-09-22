@@ -2,7 +2,7 @@
 `Can you sort 8 historical events? The fall of Rome, the first strike, and the first Christian nation.`\
 https://nytimes.com/interactive/2023/09/22/upshot/flashback.html?searchResultPosition=1
 
-**Menendez Indictment Appears to Undercut Claims of ‘Two-Tiered System of Justice’**\
+**Menendez Indictment Appears to Undercut Claims of ‘Two-Tiered System’ of Justice**\
 `The indictment of the Democratic senator from New Jersey comes at a politically opportune moment for the besieged Justice Department.`\
 https://nytimes.com/2023/09/22/us/politics/menendez-indictment-republicans-garland-justice.html?searchResultPosition=2
 
