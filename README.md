@@ -4,7 +4,7 @@ https://nytimes.com/2023/09/22/nyregion/fbi-spy-charged-mcgonigal.html?searchRes
 
 **Did Gucci Just Score the Starriest Fashion Week Front Row?**\
 `Amid the strikes in Hollywood, the fashion house lured Julia Roberts, Ryan Gosling and Jessica Chastain to Milan for Sabato De Sarno’s debut show.`\
-https://nytimes.com/2023/09/22/style/did-gucci-just-score-the-starriest-fashion-week-front-row.html?searchResultPosition=2
+https://nytimes.com/2023/09/22/style/gucci-milan-fashion-week-show.html?searchResultPosition=2
 
 **Arriving Now: Fast Passenger Trains From Miami to Orlando**\
 `Brightline will make the trip in three and a half hours, with round-trip tickets starting at $158.`\
