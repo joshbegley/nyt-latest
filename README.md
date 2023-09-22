@@ -15,7 +15,7 @@ https://nytimes.com/2023/09/22/us/politics/house-republicans-shutdown-gaetz.html
 https://nytimes.com/2023/09/22/style/senate-dress-code-politics.html?searchResultPosition=4
 
 **Mother Who Gave Abortion Pills to Teen Daughter Gets 2 Years in Prison**\
-`Jessica Burgess had pleaded guilty to violating Nebraska’s abortion law. Her daughter, who was 17 when she ended her pregnancy last year, was sentenced in July to 90 days in jail.`\
+`Jessica Burgess had pleaded guilty to violating Nebraska’s abortion law. Her daughter, who was 17 when she ended her late-term pregnancy last year, was sentenced in July to 90 days in jail.`\
 https://nytimes.com/2023/09/22/us/jessica-burgess-abortion-pill-nebraska.html?searchResultPosition=5
 
 **Justice Kagan Calls for the Supreme Court to Adopt an Ethics Code**\
