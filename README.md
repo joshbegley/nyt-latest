@@ -14,7 +14,7 @@ https://nytimes.com/2023/09/22/dining/big-flavors-for-the-first-weekend-of-fall.
 `The 92-year-old media tycoon is set to become chairman emeritus of Fox and News Corporation, but he still wields considerable power over the empire he built.`\
 https://nytimes.com/2023/09/22/business/dealbook/rupert-murdoch-fox-news-corp.html?searchResultPosition=4
 
-**Russia’s Black Sea Fleet in Crimea is again targeted in a strike.**\
+**One soldier is missing after the attack on Sevastopol, Russia says.**\
 `By Constant Méheut`\
 https://nytimes.com/live/2023/09/22/world/russia-ukraine-news/russias-black-sea-fleet-in-crimea-is-again-targeted-in-a-strike?searchResultPosition=5
 
