@@ -1,40 +1,40 @@
-**Biden assures Zelensky of long-term support for Ukraine.**\
-`By Erica L. Green and Katie Rogers`\
-https://nytimes.com/live/2023/09/22/world/russia-ukraine-news/biden-assures-zelensky-of-long-term-support-for-ukraine?searchResultPosition=1
+**Unmasking Lucha Libre Fashion in ‘Cassandro’**\
+`The costume designer for the new Prime Video biopic described the challenge of bridging lucha libre and drag aesthetics on film.`\
+https://nytimes.com/2023/09/22/style/cassandro-prime-video-costumes.html?searchResultPosition=1
 
-**A cargo ship departs a Ukrainian port with grain, again testing the Black Sea route.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2023/09/22/world/russia-ukraine-news/a-cargo-ship-departs-a-ukrainian-port-with-grain-testing-the-black-sea-route?searchResultPosition=2
+**Budget Drones Prove Their Value in a Billion-Dollar War**\
+`A fleet of inexpensive, mostly off-the-shelf drones is helping Ukrainian forces evade and target sophisticated Russian air defense systems.`\
+https://nytimes.com/2023/09/22/world/europe/ukraine-budget-drones-russia.html?searchResultPosition=2
 
-**Zelensky, in his push for more support, will address Canada’s Parliament.**\
-`By Ian Austen and Juston Jones`\
-https://nytimes.com/live/2023/09/22/world/russia-ukraine-news/zelensky-in-his-push-for-more-support-will-address-canadas-parliament?searchResultPosition=3
+**Supply Chain Hurdles Complicate Food Companies’ Climate Pledges**\
+`Several of the world’s largest food and restaurant companies have not made progress on their goal to cut greenhouse gas emissions. Some are even producing more.`\
+https://nytimes.com/2023/09/22/business/food-companies-emissions-climate-pledges.html?searchResultPosition=3
 
-**Microsoft Closes In on Activision Deal After Britain Signals Approval**\
-`Britain’s antitrust regulator said the companies had addressed its main concerns about the $69 billion deal, though final approval is yet to come.`\
-https://nytimes.com/2023/09/22/business/microsoft-activision-blizzard-uk.html?searchResultPosition=4
+**Biden, Warning Trump Could ‘Destroy’ Democracy, Moves Past G.O.P. Primary**\
+`The president is turning his attention to his old adversary as he tries to re-energize his party’s voters and donors, with polls showing soft support so far.`\
+https://nytimes.com/2023/09/22/us/politics/biden-trump-2024-election-polls.html?searchResultPosition=4
 
-**Governor Who Quit Politics Amid Scandal Eyes a New Job: Mayor**\
-`Jim McGreevey, New Jersey’s 52nd governor, resigned after admitting to an extramarital affair with a male employee. Now he is preparing for a political comeback.`\
-https://nytimes.com/2023/09/22/nyregion/mcgreevey-new-jersey-mayor-jersey-city.html?searchResultPosition=5
+**Donald Trump’s Abortion Shell Game**\
+`The truth, established by his record as president, is that he is as committed to outlawing abortion in the United States as any other conservative Republican.`\
+https://nytimes.com/2023/09/22/opinion/trump-republicans-abortion-2024.html?searchResultPosition=5
 
-**Children Are the Casualties in New Yorkers’ Daily Struggle for Space**\
-`Tragedies abound at the confluence of two crises: the desperate need for housing and the shortage of quality child care.`\
-https://nytimes.com/2023/09/22/nyregion/children-housing-nyc.html?searchResultPosition=6
+**The New York Times News Quiz, Sept. 22, 2023**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2023/09/22/briefing/news-quiz-zelensky-canada-india-rupert-murdoch.html?searchResultPosition=6
 
-**New iPhone**\
-`How excited are you about the latest release?`\
-https://nytimes.com/2023/09/22/learning/new-iphone.html?searchResultPosition=7
+**They Came, They Shaped, They Shredded**\
+`A book of photographs by Jimmy Metyko documents a fertile period of surf history.`\
+https://nytimes.com/2023/09/22/books/review/shaping-surf-history-jimmy-metyko.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/09/22/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**Famous People Don’t Know How to Say Sorry**\
+`The important word isn’t “I,” it’s “apologize.”`\
+https://nytimes.com/2023/09/22/opinion/famous-people-sorry-apology.html?searchResultPosition=8
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/09/22/crosswords/wordle-review-answer-825.html?searchResultPosition=9
+**Here’s Life on an Expedition to Track Declining Arctic Ice**\
+`Each September, the ice at the top of the world hits its lowest extent of the year. Researchers are studying how a warming climate is affecting a not-so-frozen ocean.`\
+https://nytimes.com/2023/09/22/climate/arctic-sea-ice-minimum.html?searchResultPosition=9
 
-**Pope to Meet Macron and Defend Migrants’ Plight in Marseille**\
-`Tens of thousands are expected at a Mass with Francis in the French port city. Although the pontiff will meet President Emmanuel Macron, it is not an official state visit.`\
-https://nytimes.com/2023/09/22/world/europe/pope-macron-migrants-marseille.html?searchResultPosition=10
+**Work: ‘The American Disease’**\
+`What does this season of strikes tell us about the future of work?`\
+https://nytimes.com/2023/09/22/opinion/work-labor-strikes.html?searchResultPosition=10
 
