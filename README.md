@@ -1,40 +1,40 @@
-**Pope Meets With Macron in Marseille Ahead of Giant Mass**\
-`Tens of thousands are converging on the Mediterranean port city to attend the service, which will be held at its soccer stadium.`\
-https://nytimes.com/2023/09/23/world/europe/pope-macron-marseille.html?searchResultPosition=1
+**Libya’s ‘City of Poets’ Pays a Heavy Price in Floods**\
+`Derna, which lost entire neighborhoods and thousands of residents in the deluge, has a history as a cultural and intellectual hub as well as a rebellious streak.`\
+https://nytimes.com/2023/09/23/world/middleeast/libya-floods-derna.html?searchResultPosition=1
 
-**The Great Gucci Reset Is Here**\
-`Sabato De Sarno’s first collection arrives. Think of it as a breeze, rather than a wind, of change.`\
-https://nytimes.com/2023/09/23/style/gucci-sabato-de-sarno-milan-fashion-week.html?searchResultPosition=2
+**Top 10 Hardest and Easiest Spelling Bee Words, Sept. 16-22**\
+`A certain monomania, the No. 2 word in this week’s list, can help get you to the top in this game.`\
+https://nytimes.com/2023/09/23/upshot/spelling-bee-words.html?searchResultPosition=2
 
-**Where Fashion Knows No Bounds**\
-`During London Fashion Week, the streets become a laboratory for experiments in getting dressed.`\
-https://nytimes.com/2023/09/23/style/london-fashion-week-street-style-spring-2024.html?searchResultPosition=3
+**TV Networks’ Last Best Hope: Boomers**\
+`Viewers have fled prime-time lineups for streaming outlets, with one notable exception: people over 60.`\
+https://nytimes.com/2023/09/23/business/media/tv-networks-last-best-hope-boomers.html?searchResultPosition=3
 
-**Gold Bullion and Halal Meat: Inside the Menendez Investigation**\
-`Federal prosecutors have accused Senator Robert Menendez of New Jersey and his wife, Nadine, of accepting bribes in exchange for official actions by Mr. Menendez.`\
-https://nytimes.com/2023/09/23/nyregion/bob-menendez-indictment-bribery-investigation.html?searchResultPosition=4
+**In Mississippi, a Small Win for Jackson Residents Battling State Control**\
+`A court says the State Legislature cannot add outside judges to Jackson’s courts, part of a larger battle over efforts to create state-run police and courts in the capitol.`\
+https://nytimes.com/2023/09/23/us/jackson-mississippi-state-legislature-judges.html?searchResultPosition=4
 
-**Does Robert Menendez Have Enough Teflon to Survive Again?**\
-`Senator Menendez, who has defeated prosecutors and political challengers, faces his sternest test yet in his federal indictment in Manhattan.`\
-https://nytimes.com/2023/09/23/nyregion/robert-menendez-political-future.html?searchResultPosition=5
+**Fears and Chaos Grow in Nagorno-Karabakh After Takeover**\
+`With food shortages and blackouts, rumors of revenge-taking abound — and are flatly denied by the Azerbaijani authorities.`\
+https://nytimes.com/2023/09/23/world/europe/fears-armenians-nagorno-karabakh-azerbaijan.html?searchResultPosition=5
 
-**How an Animal Rescuer and Cat Cafe Owner Spends Her Sundays**\
-`On top of caring for dozens of adoptable cats, Anne Levin once raised an orphaned baby subway rat. She named him Alexander Hamilton.`\
-https://nytimes.com/2023/09/23/nyregion/anne-levin-brooklyn-cat-cafe.html?searchResultPosition=6
+**Cassidy Hutchinson Reappears. She Has More Trump Stories to Tell.**\
+`“I would like not to be a hermit,” the former White House aide says upon the publication of a memoir about her journey down a political rabbit hole.`\
+https://nytimes.com/2023/09/23/us/politics/cassidy-hutchinson-trump.html?searchResultPosition=6
 
-**‘Victoria’s Secret Karen’ Video: Lawsuits Show What Viewers Didn’t See**\
-`Video of the white woman taken by a Black shopper at a New Jersey mall laid bare the power of online outrage.`\
-https://nytimes.com/2023/09/23/nyregion/victorias-secret-karen-video.html?searchResultPosition=7
+**Tyson and Perdue Are Facing Child Labor Investigations**\
+`The Labor Department has opened inquiries into whether migrant children were working inside slaughterhouses owned by the poultry-processing giants.`\
+https://nytimes.com/2023/09/23/us/tyson-perdue-child-labor.html?searchResultPosition=7
 
-**The Knicks Hardly Interested Me. The Owner Was Another Story.**\
-`A reporter who writes about New York’s personalities set her sights on James L. Dolan, whom everyone thinks they know.`\
-https://nytimes.com/2023/09/23/pageoneplus/knicks-owner-dolan.html?searchResultPosition=8
+**The Wrecking-Ball Caucus: How the Far Right Brought Washington to Its Knees**\
+`Right-wing Republicans who represent a minority in their party and in Congress have succeeded in sowing mass dysfunction, spoiling for a shutdown, an impeachment and a House coup.`\
+https://nytimes.com/2023/09/23/us/republicans-congress-freedom-caucus.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/09/23/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**Europe Made a Bold Pledge of Ammunition for Ukraine. Now Comes the Hard Part.**\
+`After 30 years of atrophy, experts say, Europe’s shrunken military industry will struggle to provide the Ukrainians with a million artillery shells by March.`\
+https://nytimes.com/2023/09/23/world/europe/eu-ukraine-war-ammunition.html?searchResultPosition=9
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/09/23/crosswords/wordle-review-answer-826.html?searchResultPosition=10
+**Ancient Arrow Is Among Artifacts to Emerge From Norway’s Melting Ice**\
+`As the earth warms, glacial archaeologists are in a race against time to preserve objects before they are destroyed by the elements. Recent field work yielded a surprisingly intact 3,000-year-old arrow.`\
+https://nytimes.com/2023/09/23/climate/arrow-glacier-melting-norway.html?searchResultPosition=10
 
