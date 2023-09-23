@@ -1,6 +1,6 @@
 **Union Deal With Ford Could Put Pressure on Other 2 Detroit Automakers**\
 `Talks continued on Saturday with all three companies, a day after the U.A.W. expanded its strike at G.M. and Stellantis.`\
-https://nytimes.com/2023/09/23/business/uaw-strike-general-motors-stellantis-ford.html?searchResultPosition=1
+https://nytimes.com/2023/09/23/business/uaw-strike-ford-general-motors-stellantis.html?searchResultPosition=1
 
 **Dick Clark, Iowan Who Walked 1,300 Miles for a Senate Seat, Dies at 95**\
 `After his unlikely win, in 1972, he spent his single term pushing for a more liberal foreign policy, particularly toward Africa.`\
