@@ -1,5 +1,5 @@
-**Louisiana Man Convicted of Attempted Murder Is Captured After 32 Years**\
-`Greg Lawson, 63, had been living in the Mexican state of Oaxaca under a stolen identity, authorities said. He was arrested and extradited this week.`\
+**Fugitive Convicted of Attempted Murder Is Captured After 32 Years**\
+`Greg Lawson, 63, of Louisiana, had been living in the Mexican state of Oaxaca under a stolen identity, authorities said. He was arrested and extradited this week.`\
 https://nytimes.com/2023/09/23/us/louisiana-fugitive-greg-lawson-mexico.html?searchResultPosition=1
 
 **For Migrants in New York Shelters, 60-Day Limit Creates More Confusion**\
