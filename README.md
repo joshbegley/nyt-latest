@@ -1,4 +1,4 @@
-**Progress in Writers’ Strike Negotiations, but No Deal**\
+**Progress in Hollywood Writers’ Strike Negotiations, but No Deal Yet**\
 `A third straight day of bargaining between the studios and the union ended without an agreement. Talks will continue on Saturday.`\
 https://nytimes.com/2023/09/23/business/media/hollywood-writers-strike-negotiations.html?searchResultPosition=1
 
