@@ -20,7 +20,7 @@ https://nytimes.com/2023/09/23/opinion/spite-exercise.html?searchResultPosition=
 
 **Are Fossil Fuels the Next Cigarettes?**\
 `California’s lawsuit against oil giants mirrors a legal strategy used in the 1990s against the tobacco industry.`\
-https://nytimes.com/2023/09/23/business/dealbook/are-fossil-fuels-the-next-cigarettes.html?searchResultPosition=6
+https://nytimes.com/2023/09/23/business/dealbook/california-fossil-fuels-cigarettes.html?searchResultPosition=6
 
 **A Beach Read and a Book Purge**\
 `Answering reader mail with a recommended crime series and a book about architecture.`\
