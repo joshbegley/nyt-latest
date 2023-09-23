@@ -34,7 +34,7 @@ https://nytimes.com/video/us/100000009100527/tropical-storm-ophelia-north-caroli
 `Recent studies suggest coffee has stolen Britons’ hearts. But for cafe patrons in a city that hosts some of the nation’s oldest coffeehouses, it’s complicated.`\
 https://nytimes.com/2023/09/23/world/europe/uk-coffee-tea.html?searchResultPosition=9
 
-**Biden to Netanyahu: You’ve Got Homework to Do**\
+**What Really Happened at the Biden-Netanyahu Meeting**\
 `With age comes wisdom.`\
 https://nytimes.com/2023/09/23/opinion/biden-netanyahu-meeting.html?searchResultPosition=10
 
