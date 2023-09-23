@@ -10,7 +10,7 @@ https://nytimes.com/2023/09/23/arts/latino-museum-american-smithsonian.html?sear
 `Amid an uptick in Covid infections, administrators, staff and patients are divided over the need for masks in health care settings.`\
 https://nytimes.com/2023/09/23/health/hospitals-masking-mandates.html?searchResultPosition=3
 
-**This Is How A.I. Ruins the Internet**\
+**The Internet Is About to Get Much Worse**\
 `Why the development of artificial intelligence might result in greater pollution of our digital public spaces.`\
 https://nytimes.com/2023/09/23/opinion/ai-internet-lawsuit.html?searchResultPosition=4
 
