@@ -15,7 +15,7 @@ https://nytimes.com/2023/09/23/opinion/letters/elderly-caregiving.html?searchRes
 https://nytimes.com/2023/09/23/opinion/teach-music-better.html?searchResultPosition=4
 
 **The Young Men of a New West**\
-`Before the fall of the self-proclaimed prophet Warren Jeffs, many teenage boys were cast out of the Crick, as had been the custom for many generations. `\
+`Before the fall of the self-proclaimed prophet Warren Jeffs, many teenage boys were cast out of the Crick, as had been the custom for many generations.`\
 https://nytimes.com/2023/09/23/opinion/flds-church.html?searchResultPosition=5
 
 **The U.S. Is Pulling Back From China. How Far Is Too Far?**\
