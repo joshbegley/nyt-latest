@@ -1,6 +1,6 @@
 **Ukraine Targets Crimea for Second Day in a Row, Russia Says**\
 `Russian-installed authorities in the occupied peninsula said debris from a downed rocket fell in the Sevastopol bay, where Moscow’s Black Sea Fleet is based.`\
-https://nytimes.com/2023/09/23/world/russia-ukraine-war.html?searchResultPosition=1
+https://nytimes.com/2023/09/23/world/europe/russia-ukraine-war.html?searchResultPosition=1
 
 **This American Life: Ends of the Earth**\
 `An exploration of the very upper limits of what you do for someone you love.`\
