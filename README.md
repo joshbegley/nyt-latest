@@ -30,7 +30,7 @@ https://nytimes.com/2023/09/23/opinion/letters/elderly-caregiving.html?searchRes
 `The problem isn’t getting instruments into students’ hands. It’s keeping them there.`\
 https://nytimes.com/2023/09/23/opinion/teach-music-better.html?searchResultPosition=8
 
-**The Young Men of a New West**\
+**The Young Men of the Crick**\
 `Before the fall of the self-proclaimed prophet Warren Jeffs, many teenage boys were cast out of the Crick, as had been the custom for many generations.`\
 https://nytimes.com/2023/09/23/opinion/flds-church.html?searchResultPosition=9
 
