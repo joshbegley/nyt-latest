@@ -1,6 +1,6 @@
 **For Migrants in New York Shelters, 60-Day Limit Creates More Confusion**\
 `The city began notifying adult migrants in July that they would soon have to reapply in order to stay in shelters. For some who have reached the deadline, the future remains uncertain.`\
-https://nytimes.com/2023/09/23/nyregion/migrant-shelters-nyc.html?searchResultPosition=1
+https://nytimes.com/2023/09/23/nyregion/migrants-shelters-nyc.html?searchResultPosition=1
 
 **Union Deal With Ford Could Put Pressure on Other 2 Detroit Automakers**\
 `Talks continued on Saturday with all three companies, a day after the U.A.W. expanded its strike at G.M. and Stellantis.`\
