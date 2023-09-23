@@ -1,40 +1,40 @@
+**Where Fashion Knows No Bounds**\
+`During London Fashion Week, the streets become a laboratory for experiments in getting dressed.`\
+https://nytimes.com/2023/09/23/style/london-fashion-week-street-style-spring-2024.html?searchResultPosition=1
+
+**Gold Bullion and Halal Meat: Inside the Menendez Investigation**\
+`Federal prosecutors have accused Senator Robert Menendez of New Jersey and his wife, Nadine, of accepting bribes in exchange for official actions by Mr. Menendez.`\
+https://nytimes.com/2023/09/23/nyregion/bob-menendez-indictment-bribery-investigation.html?searchResultPosition=2
+
+**Does Robert Menendez Have Enough Teflon to Survive Again?**\
+`Senator Menendez, who has defeated prosecutors and political challengers, faces his sternest test yet in his federal indictment in Manhattan.`\
+https://nytimes.com/2023/09/23/nyregion/robert-menendez-political-future.html?searchResultPosition=3
+
+**How an Animal Rescuer and Cat Cafe Owner Spends Her Sundays**\
+`On top of caring for dozens of adoptable cats, Anne Levin once raised an orphaned baby subway rat. She named him Alexander Hamilton.`\
+https://nytimes.com/2023/09/23/nyregion/anne-levin-brooklyn-cat-cafe.html?searchResultPosition=4
+
+**‘Victoria’s Secret Karen’ Video: Lawsuits Show What Viewers Didn’t See**\
+`Video of the white woman taken by a Black shopper at a New Jersey mall laid bare the power of online outrage.`\
+https://nytimes.com/2023/09/23/nyregion/victorias-secret-karen-video.html?searchResultPosition=5
+
+**The Knicks Hardly Interested Me. The Owner Was Another Story.**\
+`A reporter who writes about New York’s personalities set her sights on James L. Dolan, whom everyone thinks they know.`\
+https://nytimes.com/2023/09/23/pageoneplus/knicks-owner-dolan.html?searchResultPosition=6
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/09/23/crosswords/spelling-bee-forum.html?searchResultPosition=7
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/09/23/crosswords/wordle-review-answer-826.html?searchResultPosition=8
+
 **Progress in Hollywood Writers’ Strike Negotiations, but No Deal Yet**\
 `A third straight day of bargaining between the studios and the union ended without an agreement. Talks will continue on Saturday.`\
-https://nytimes.com/2023/09/23/business/media/hollywood-writers-strike-negotiations.html?searchResultPosition=1
+https://nytimes.com/2023/09/23/business/media/hollywood-writers-strike-negotiations.html?searchResultPosition=9
 
 **Corrections: Sept. 23, 2023**\
 `Corrections that appeared in print on Saturday, Sept. 23, 2023.`\
-https://nytimes.com/2023/09/23/pageoneplus/corrections-sept-23-2023.html?searchResultPosition=2
-
-**How a Storied National Airline Became Reviled in Its Own Country**\
-`A string of scandals has left Qantas Airways, which calls itself “the spirit of Australia,” near the bottom of public opinion at home.`\
-https://nytimes.com/2023/09/23/business/australia-qantas-scandals-reputation.html?searchResultPosition=3
-
-**Quotation of the Day: India’s ‘Lake Man’ Uses Ancient Ways to Ease a Water Crisis**\
-`Quotation of the Day for Saturday, September 23, 2023.`\
-https://nytimes.com/2023/09/23/pageoneplus/quotation-of-the-day-indias-lake-man-uses-ancient-ways-to-ease-a-water-crisis.html?searchResultPosition=4
-
-**Love, by Another Name**\
-`Robert Charlton delivers a winsome debut puzzle.`\
-https://nytimes.com/2023/09/22/crosswords/daily-puzzle-2023-09-23.html?searchResultPosition=5
-
-**Gold, an Investment for Some, Is a Portable Vehicle for Graft**\
-`Prosecutors say Senator Robert Menendez had a cache of ill-gotten ingots and a sudden interest in the price of the precious metal.`\
-https://nytimes.com/2023/09/22/nyregion/gold-bars-bob-menendez-bribery.html?searchResultPosition=6
-
-**Biden Announces New Office for Gun Violence Prevention**\
-`The president has tapped Vice President Kamala Harris to lead his administration’s latest efforts against gun violence.`\
-https://nytimes.com/video/us/politics/100000009100258/biden-harris-gun-violence-prevention.html?searchResultPosition=7
-
-**Biden Creates Federal Office of Gun Violence Prevention**\
-`The office will be led by Vice President Kamala Harris, who pursued gun safety measures when she was California’s top prosecutor.`\
-https://nytimes.com/2023/09/22/us/politics/biden-office-gun-violence-prevention.html?searchResultPosition=8
-
-**With House Hurtling Toward a Shutdown, Gaetz Is Leading the Resistance**\
-`The Florida Republican, who has styled himself as Speaker Kevin McCarthy’s chief tormentor, is leading the opposition to a measure to keep the government open.`\
-https://nytimes.com/2023/09/22/us/politics/house-republicans-shutdown-gaetz.html?searchResultPosition=9
-
-**What We Lose When We Loosen Dress Codes**\
-`Allowing senators to wear what they please on the Senate floor may seem like liberation, but abandoning the dress code could wind up symbolizing the failure to achieve consensus.`\
-https://nytimes.com/2023/09/22/style/senate-dress-code-politics.html?searchResultPosition=10
+https://nytimes.com/2023/09/23/pageoneplus/corrections-sept-23-2023.html?searchResultPosition=10
 
