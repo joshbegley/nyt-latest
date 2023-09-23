@@ -1,6 +1,6 @@
 **The Permanent Migration Crisis**\
 `What’s changed for formerly welcoming cities are the sheer numbers involved.`\
-https://nytimes.com/2023/09/23/opinion/the-permanent-migration-crisis.html?searchResultPosition=1
+https://nytimes.com/2023/09/23/opinion/migration-crisis-europe-us.html?searchResultPosition=1
 
 **What Thoreau Heard in the Song of the Crickets**\
 `The late summer song in the grass has a message for us.`\
