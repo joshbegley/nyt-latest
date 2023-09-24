@@ -23,7 +23,7 @@ https://nytimes.com/2023/09/24/briefing/south-china-sea-india-canada-sikh-ukrain
 https://nytimes.com/2023/09/24/arts/dance/a-disguised-welcome-review.html?searchResultPosition=6
 
 **France to Withdraw Troops From Niger After Military Coup**\
-`President Emmanuel Macron said he had recalled the country’s ambassador, after weeks of escalating tensions with Niger’s new military leaders.`\
+`President Emmanuel Macron said he had also recalled the country’s ambassador, after weeks of escalating tensions with Niger’s new military leaders.`\
 https://nytimes.com/2023/09/24/world/africa/france-troops-ambassador-niger.html?searchResultPosition=7
 
 **Tropical Storm Philippe Forms in the Atlantic**\
