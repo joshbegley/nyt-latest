@@ -1,4 +1,4 @@
-**Trump Prosecutions Spur Threats, and Concern About Violence**\
+**As Trump Prosecutions Move Forward, Threats and Concerns Increase**\
 `As criminal cases proceed against the former president, heated rhetoric and anger among his supporters have authorities worried about the risk of political dissent becoming deadly.`\
 https://nytimes.com/2023/09/24/us/politics/trump-prosecutions-threats-violence.html?searchResultPosition=1
 
