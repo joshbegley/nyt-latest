@@ -4,7 +4,7 @@ https://nytimes.com/2023/09/24/world/europe/germany-afd-mayor-election.html?sear
 
 **Sound Systems**\
 `Lynn Lempel tells us what it’s all about.`\
-https://nytimes.com/2023/09/24/crosswords/2023-09-25.html?searchResultPosition=2
+https://nytimes.com/2023/09/24/crosswords/daily-puzzle-2023-09-25.html?searchResultPosition=2
 
 **‘Dracula, a Comedy of Terrors’ Review: An Equal-Opportunity Seducer**\
 `A gender-bending play at New World Stages filters well-known characters through influences like “The Rocky Horror Show” and “Young Frankenstein.”`\
