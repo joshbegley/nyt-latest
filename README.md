@@ -30,7 +30,7 @@ https://nytimes.com/2023/09/24/opinion/paris-illness-aging.html?searchResultPosi
 `Sink your bare feet into a patch of dirt. Then, consider the ways by which the soil nourishes the plants and animals that in turn nourish us.`\
 https://nytimes.com/2023/09/24/opinion/nature-gardening-spirituality.html?searchResultPosition=8
 
-**The Battle Over a Mine That Would Destroy the World’s Most Valuable Salmon Fishery Is Not Over**\
+**This Alaska Mine Would Destroy the World’s Largest Salmon Fishery**\
 `The state’s governor has asked the Supreme Court to resurrect a widely opposed plan rejected by the federal government.`\
 https://nytimes.com/2023/09/24/opinion/alaska-salmon-mine-court.html?searchResultPosition=9
 
