@@ -26,8 +26,8 @@ https://nytimes.com/2023/09/24/opinion/social-justice-parenting.html?searchResul
 `The world is arranged to discreetly conceal the bleak side of life from us. And we are complicit.`\
 https://nytimes.com/2023/09/24/opinion/paris-illness-aging.html?searchResultPosition=7
 
-**You Too Can Listen to What the Land Has to Say**\
-`Sink your bare feet into a patch of dirt. Then, consider the ways by which the soil nourishes the plants and animals that in turn nourish us.`\
+**Go Outside, Sink Your Feet Into the Dirt and Engage With the World**\
+`The natural world has stories to tell if you listen closely.`\
 https://nytimes.com/2023/09/24/opinion/nature-gardening-spirituality.html?searchResultPosition=8
 
 **This Alaska Mine Would Destroy the World’s Largest Salmon Fishery**\
