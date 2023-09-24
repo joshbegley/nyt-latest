@@ -1,6 +1,6 @@
 **Canadian Labor Union Votes to Ratify Contract With Ford**\
 `The deal with Unifor was a relief for the Detroit automaker, whose U.S. union has begun a limited strike over better pay and benefits.`\
-https://nytimes.com/2023/09/24/business/canada-unifor-ford-labor.html?searchResultPosition=1
+https://nytimes.com/2023/09/24/business/canada-union-unifor-ford.html?searchResultPosition=1
 
 **As Trump Prosecutions Move Forward, Threats and Concerns Increase**\
 `As criminal cases proceed against the former president, heated rhetoric and anger among his supporters have authorities worried about the risk of political dissent becoming deadly.`\
