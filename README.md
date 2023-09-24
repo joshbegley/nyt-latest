@@ -1,5 +1,5 @@
 **Star Uyghur Scholar Who Vanished Was Sentenced to Life in China**\
-`Rahile Dawut, who recorded her people’s traditions, disappeared in 2018. New information indicates that she faces decades in prison.`\
+`Rahile Dawut, who recorded her people’s traditions, disappeared in 2017. New information indicates that she faces decades in prison.`\
 https://nytimes.com/2023/09/24/world/asia/rahile-dawut-uyghur-china.html?searchResultPosition=1
 
 **How to Make Friends and Influence People: Join a Watch Club**\
