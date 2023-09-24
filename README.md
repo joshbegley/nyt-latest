@@ -11,7 +11,7 @@ https://nytimes.com/2023/09/24/arts/dance/a-disguised-welcome-review.html?search
 https://nytimes.com/2023/09/24/world/africa/france-troops-ambassador-niger.html?searchResultPosition=3
 
 **Tropical Storm Philippe Forms in the Atlantic**\
-`The storm had sustained winds of 50 miles per hour and did not pose a threat to land as of Sunday morning, forecasters said.`\
+`The storm had sustained winds of 50 miles per hour and did not pose a threat to land as of Sunday evening, forecasters said.`\
 https://nytimes.com/article/tropical-storm-philippe-hurricane.html?searchResultPosition=4
 
 **‘Doppelganger’ Review: A Soldier Confronts His Mortality**\
