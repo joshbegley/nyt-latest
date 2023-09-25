@@ -22,8 +22,8 @@ https://nytimes.com/2023/09/25/dining/lemony-white-bean-and-turkey-soup-recipe.h
 `The Pierre Cardin heirs are in an epic battle over the designer’s legacy. The French fashion world is getting the popcorn ready.`\
 https://nytimes.com/2023/09/25/style/a-tale-of-family-intrigue-and-inheritance.html?searchResultPosition=6
 
-**Menendez to Address Bribery Charges in News Conference**\
-`Senator Robert Menendez of New Jersey will address the news media Monday morning for the first time since being charged with taking bribes in exchange for exerting political influence.`\
+**Menendez, Defiant, Says He Will Not Resign**\
+`Senator Robert Menendez of New Jersey spoke publicly for the first time since being charged with taking bribes in exchange for exerting political influence.`\
 https://nytimes.com/2023/09/25/nyregion/menendez-bribery-charges.html?searchResultPosition=7
 
 **What to Do About Painful Sex After Menopause**\
