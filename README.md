@@ -1,4 +1,4 @@
-**In a Blow to Russia, Ukraine Says it Killed Chief of Black Sea Fleet**\
+**In a Blow to Russia, Ukraine Says It Killed Chief of Black Sea Fleet**\
 `As they ramp up attacks on occupied Crimea, Ukrainian forces are repeatedly targeting the fleet based there, a key to Russia’s attacks deep into Ukraine and its blockade of Ukrainian ports.`\
 https://nytimes.com/2023/09/25/world/europe/ukraine-russia-black-sea-fleet.html?searchResultPosition=3
 
