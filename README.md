@@ -22,8 +22,8 @@ https://nytimes.com/2023/09/25/opinion/nature-fall-pumpkins.html?searchResultPos
 `Her new novel, “Night Watch,” is a mother-daughter story set in a West Virginia mental institution.`\
 https://nytimes.com/2023/09/25/books/review/jayne-anne-phillips-finds-anguish-and-asylum-in-civil-war-america.html?searchResultPosition=6
 
-**Finland Raced to Join NATO. Now Comes the Hard Part.**\
-`After decades of going it alone in security issues, Finns are finding that life in a large alliance is complicated, expensive and deeply political.`\
+**Finland Raced to Join NATO. What Happens Next Is Complicated.**\
+`After decades of going it alone in security issues, Finns are finding that life in a large alliance is complex, expensive and deeply political.`\
 https://nytimes.com/2023/09/25/world/europe/finland-nato-integration-nordics.html?searchResultPosition=7
 
 **Vivek Ramaswamy Is Confused**\
