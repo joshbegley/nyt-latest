@@ -30,8 +30,8 @@ https://nytimes.com/2023/09/25/learning/word-of-the-day-littoral.html?searchResu
 `The Writers Guild of America got most of what it wanted. With actors still on picket lines, however, much of Hollywood will remain shut down.`\
 https://nytimes.com/2023/09/25/business/media/hollywood-writers-strike-deal.html?searchResultPosition=8
 
-**There were fires at the port of Odesa after the attack.**\
-`By Andrés R. Martínez`\
+**A hotel was damaged and grain facilities were destroyed in the attack.**\
+`By Matthew Mpoke Bigg and Andrés R. Martínez`\
 https://nytimes.com/live/2023/09/25/world/russia-ukraine-news/there-were-fires-at-the-port-of-odesa-after-the-attack?searchResultPosition=9
 
 **Europe made a bold pledge of ammunition for Ukraine. Now comes the hard part.**\
