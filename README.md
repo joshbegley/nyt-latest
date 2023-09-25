@@ -7,7 +7,7 @@ https://nytimes.com/2023/09/25/science/nuclear-laser-fusion-nif.html?searchResul
 https://nytimes.com/2023/09/25/world/europe/azerbaijan-nagorno-karabakh-explosion.html?searchResultPosition=2
 
 **Dassai Opens Its Sprawling Sake Brewery in the Hudson Valley**\
-`JJ Johnson writes a book on the art of rice, Li-Lac celebrates a century of selling chocolate and more food news.`\
+`JJ Johnson writes a book on the art of rice, Li-Lac celebrates a century of making chocolate and more food news.`\
 https://nytimes.com/2023/09/25/dining/dassai-blue-sake-brewery-hudson-valley.html?searchResultPosition=3
 
 **A Mystery Species Was Discovered in Trafficked Pangolin Scales**\
