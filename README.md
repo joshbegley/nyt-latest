@@ -1,6 +1,6 @@
 **The agreement could put talk shows back on the air.**\
-`By Daniel Victor`\
-https://nytimes.com/live/2023/09/24/business/hollywood-writers-strike-news/the-agreement-could-put-talk-shows-back-on-the-air?searchResultPosition=1
+`Late-night and daytime talk shows could return after the resolution of the writers’ strike, potentially bringing relief to one corner of the industry.`\
+https://nytimes.com/2023/09/24/business/media/late-night-talk-shows-writers-strike.html?searchResultPosition=1
 
 **6 on the Way to a Birthday Party Are Killed After a Train Hits an S.U.V.**\
 `Five of the dead were identified as a couple and their children. They were on their way to a celebration before dying in a violent collision in Plant City, Fla., the authorities said.`\
