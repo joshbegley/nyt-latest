@@ -1,40 +1,40 @@
-**2 Looming Rulings Could Shape Trump’s Fraud Trial in New York**\
-`Donald J. Trump has adopted a long-shot legal strategy to try to delay his upcoming civil trial and severely limit the case against him.`\
-https://nytimes.com/2023/09/25/nyregion/trump-letitia-james-fraud-lawsuit-trial.html?searchResultPosition=1
+**15 New York Gallery Shows That Altered the Course of Contemporary Art**\
+`From Jackson Pollock’s solo debut to Philip Guston’s recent retrospective, a look at the exhibitions that have shaped the city’s art scene and the culture at large.`\
+https://nytimes.com/2023/09/25/t-magazine/new-york-gallery-shows.html?searchResultPosition=1
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/09/25/crosswords/wordle-review-answer-828.html?searchResultPosition=2
+**An Opera Director With the Mind of a Filmmaker**\
+`Mariusz Trelinski returns to the Metropolitan Opera next year with a new staging of “La Forza del Destino,” which leans into psychoanalysis and fate.`\
+https://nytimes.com/2023/09/25/arts/music/met-opera-mariusz-trelinski.html?searchResultPosition=2
 
-**‘Gold’: A Word Rarely Mentioned in Menendez’s Senate Disclosure Forms**\
-`Senator Robert Menendez is accused of accepting bribes in an indictment that refers to “gold” 26 times and says that 13 gold bars were found in his home.`\
-https://nytimes.com/2023/09/25/nyregion/menendez-indictment-gold-bars-senate.html?searchResultPosition=3
+**If Politicians Are Either Stainless or Shameless, Guess Which One Senator Menendez Is**\
+`“One thing that worries me is how uncool politics has become.”`\
+https://nytimes.com/2023/09/25/opinion/menendez-mccarthy-biden-trump.html?searchResultPosition=3
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/09/25/crosswords/spelling-bee-forum.html?searchResultPosition=4
+**Should I Wear a Fleece to the Office?**\
+`A reader wonders how to fashionably cope with the office air-conditioning.`\
+https://nytimes.com/2023/09/25/style/office-fleece-sweater-jacket.html?searchResultPosition=4
 
-**How the G.O.P. Candidates Get Debate-Ready**\
-`Tennis practice. Pump-up music. Prayer. Republican candidates share their pre-debate rituals.`\
-https://nytimes.com/interactive/2023/09/25/us/politics/gop-debate-rituals.html?searchResultPosition=5
+**The Parable of the Squirrel-Planted Pumpkins**\
+`Much like my grandparents’ pecan trees, this harvest requires no work of us, and almost no care.`\
+https://nytimes.com/2023/09/25/opinion/nature-fall-pumpkins.html?searchResultPosition=5
 
-**Firefighters Respond to Strike on Odesa Hotel**\
-`The hotel, which stood as a landmark in the Port of Odesa, was unoccupied, according to regional officials.`\
-https://nytimes.com/video/world/europe/100000009101561/firefighters-respond-to-strike-on-odesa-hotel.html?searchResultPosition=6
+**Jayne Anne Phillips Finds Anguish and Asylum in Civil War America**\
+`Her new novel, “Night Watch,” is a mother-daughter story set in a West Virginia mental institution.`\
+https://nytimes.com/2023/09/25/books/review/jayne-anne-phillips-finds-anguish-and-asylum-in-civil-war-america.html?searchResultPosition=6
 
-**Word of the Day: littoral**\
-`This word has appeared in 11 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/09/25/learning/word-of-the-day-littoral.html?searchResultPosition=7
+**Finland Raced to Join NATO. Now Comes the Hard Part.**\
+`After decades of going it alone in security issues, Finns are finding that life in a large alliance is complicated, expensive and deeply political.`\
+https://nytimes.com/2023/09/25/world/europe/finland-nato-integration-nordics.html?searchResultPosition=7
 
-**On Day 146, Screenwriters Reach Deal With Studios to End Their Strike**\
-`The Writers Guild of America got most of what it wanted. With actors still on picket lines, however, much of Hollywood will remain shut down.`\
-https://nytimes.com/2023/09/25/business/media/hollywood-writers-strike-deal.html?searchResultPosition=8
+**Vivek Ramaswamy Is Confused**\
+`Consistency seems irrelevant to his scattershot populism.`\
+https://nytimes.com/2023/09/25/opinion/vivek-ramaswamy-presidential-campaign.html?searchResultPosition=8
 
-**A hotel was damaged and grain facilities were destroyed in the attack.**\
-`By Matthew Mpoke Bigg and Andrés R. Martínez`\
-https://nytimes.com/live/2023/09/25/world/russia-ukraine-news/there-were-fires-at-the-port-of-odesa-after-the-attack?searchResultPosition=9
+**How a Little-Known Group Helped Resurgent Democrats Wield Power**\
+`For decades, Republicans have had a far more robust network of conservative policy groups to push their legislative agenda. Now the States Project is aiming to fill that void on the left.`\
+https://nytimes.com/2023/09/25/us/politics/states-project-democrats.html?searchResultPosition=9
 
-**Europe made a bold pledge of ammunition for Ukraine. Now comes the hard part.**\
-`After 30 years of atrophy, experts say, Europe’s shrunken military industry will struggle to provide the Ukrainians with a million artillery shells by March.`\
-https://nytimes.com/2023/09/25/world/europe/europe-made-a-bold-pledge-of-ammunition-for-ukraine-now-comes-the-hard-part.html?searchResultPosition=10
+**$2.7 Million Homes in California**\
+`A Craftsman house in Los Angeles, a four-bedroom condominium in San Francisco and a Victorian in Napa.`\
+https://nytimes.com/2023/09/25/realestate/2-million-dollar-homes-california.html?searchResultPosition=10
 
