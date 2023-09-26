@@ -7,7 +7,7 @@ https://nytimes.com/live/2023/09/26/us/biden-uaw-strike-detroit/presidents-have-
 https://nytimes.com/live/2023/09/26/us/biden-uaw-strike-detroit/trump-plans-his-own-trip-to-address-autoworkers-while-his-opponents-debate?searchResultPosition=4
 
 **Peter Nygard, Disgraced Fashion Designer, Faces Trial in Toronto**\
-`Mr. Nygard, the 82-yeard-old former executive behind a defunct women’s clothing company, is accused of sexual assault and forcible confinement.`\
+`Mr. Nygard, the 82-year-old former executive behind a defunct women’s clothing company, is accused of sexual assault and forcible confinement.`\
 https://nytimes.com/2023/09/26/world/canada/peter-nygard-toronto-sexual-assault-trial.html?searchResultPosition=5
 
 **Bust Out the Big Pot: It’s Soup Season**\
