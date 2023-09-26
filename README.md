@@ -2,7 +2,7 @@
 `The president and his leading Republican rival are heading to Michigan to address members of the U.A.W., whose political clout is growing.`\
 https://nytimes.com/2023/09/26/business/dealbook/biden-trump-uaw-strike.html?searchResultPosition=3
 
-**The Kremlin declines to comment on the fate of one of its most senior naval officers.**\
+**The naval commander appears in a brief video and does not speak.**\
 `By Valeriya Safronova`\
 https://nytimes.com/live/2023/09/26/world/russia-ukraine-news/the-kremlin-declines-to-comment-on-the-fate-of-one-of-its-most-senior-naval-officers?searchResultPosition=4
 
