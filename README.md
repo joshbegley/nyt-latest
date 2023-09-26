@@ -1,5 +1,5 @@
 **JPMorgan Agrees to Pay $75 Million to Settle Epstein Claims**\
-`The nation’s largest bank with settle with the U.S. Virgin Islands, which had claimed that it continued to do business with the disgraced financier despite warning signs.`\
+`The nation’s largest bank settled with the U.S. Virgin Islands, which had claimed that it continued to do business with the disgraced financier despite warning signs.`\
 https://nytimes.com/2023/09/26/business/jpmorgan-jeffrey-epstein-virgin-islands.html?searchResultPosition=3
 
 **Armand Hammer Keeps a Foot in the Past, but Its Eyes on the Future**\
