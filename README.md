@@ -27,6 +27,6 @@ https://nytimes.com/2023/09/26/us/politics/democrats-special-elections-biden.htm
 https://nytimes.com/2023/09/26/magazine/tabi-swiper.html?searchResultPosition=9
 
 **Is a Recession Near? Paul Krugman and Peter Coy Look Ahead.**\
-`Even if the Fed does not try to create one to fight inflation,  we might get one.`\
-https://nytimes.com/2023/09/26/opinion/columnists/is-a-recession-near-paul-krugman-and-peter-coy-look-ahead.html?searchResultPosition=10
+`Even if the Fed does not try to create one to fight inflation, we might get one.`\
+https://nytimes.com/2023/09/26/opinion/columnists/recession-federal-reserve-paul-krugman-peter-coy.html?searchResultPosition=10
 
