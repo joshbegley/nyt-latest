@@ -7,7 +7,7 @@ https://nytimes.com/2023/09/26/world/middleeast/iraq-wedding-fire.html?searchRes
 https://nytimes.com/2023/09/26/science/elephants-blindfold-walking.html?searchResultPosition=5
 
 **Trump Maintains Huge Lead in Polls Ahead of Second Republican Debate**\
-`Donald J. Trump’s lead in the Republican primary has grown since the first debate, and he plans to skip the Republican debate for a second time.`\
+`Nate Cohn, the chief political analyst for The New York Times, reports on why Donald J. Trump’s lead in the Republican primary has grown despite skipping the first debate and what Republican donors will be looking for in the second debate.`\
 https://nytimes.com/video/us/politics/100000009103599/donald-trump-republican-debate.html?searchResultPosition=6
 
 **Brooks Robinson, Slick-Fielding Hall of Fame Third Baseman, Dies at 86**\
