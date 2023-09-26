@@ -27,6 +27,6 @@ https://nytimes.com/2023/09/26/nyregion/bob-menendez-indictment-new-jersey.html?
 https://nytimes.com/2023/09/26/crosswords/spelling-bee-forum.html?searchResultPosition=9
 
 **At Least 20 Dead After Explosion at Nagorno-Karabakh Fuel Depot**\
-`The cause of the Monday blast in the breakaway region of Azerbaijan, where thousands have been fleeing for Armenia, was still unclear. Hundreds were wounded.`\
+`The cause of the blast in the breakaway region of Azerbaijan, where thousands have been fleeing for Armenia, was not immediately clear. Hundreds were wounded.`\
 https://nytimes.com/2023/09/26/world/europe/azerbaijan-nagorno-karabakh-explosion.html?searchResultPosition=10
 
