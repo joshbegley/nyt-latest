@@ -23,7 +23,7 @@ https://nytimes.com/2023/09/26/world/americas/nicaragua-political-prisoners-hous
 https://nytimes.com/2023/09/26/us/politics/republican-debate-watch-time-channel.html?searchResultPosition=8
 
 **In a Port City Severed From the Sea, Young Sailors Feel Adrift**\
-`With Russian trying to maintain military control of the Black Sea, Odesa is disconnected from its waters — and its history.`\
+`With Russia trying to maintain military control of the Black Sea, Odesa is disconnected from its waters — and its history.`\
 https://nytimes.com/2023/09/26/world/europe/ukraine-russia-war-odesa.html?searchResultPosition=9
 
 **In Peru, a Fossil-Rich Desert Faces Unruly Development**\
