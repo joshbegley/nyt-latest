@@ -2,8 +2,8 @@
 `For the second time in recent months, the Supreme Court ruled against Alabama lawmakers and their proposed congressional district map.`\
 https://nytimes.com/2023/09/26/us/politics/supreme-court-alabama-voting-map.html?searchResultPosition=3
 
-**JPMorgan Agrees to Pay $75 Million to Settle Epstein Claims**\
-`The nation’s largest bank settled with the U.S. Virgin Islands, which had claimed that it continued to do business with the disgraced financier despite warning signs.`\
+**JPMorgan Settles Epstein Suits With U.S. Virgin Islands and James Staley**\
+`The bank agreed to pay $75 million to settle with the U.S. Virgin Islands and also reached a confidential settlement with a former top banker who pushed to keep the disgraced financier as a client.`\
 https://nytimes.com/2023/09/26/business/jpmorgan-jeffrey-epstein-virgin-islands.html?searchResultPosition=4
 
 **Armand Hammer Keeps a Foot in the Past, but Its Eyes on the Future**\
