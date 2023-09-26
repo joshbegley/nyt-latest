@@ -26,7 +26,7 @@ https://nytimes.com/2023/09/26/us/politics/biden-uaw-strike-picket-michigan.html
 `Despite a flood of negative polls for Democrats, the party has delivered a string of strong results in special elections, which can be a useful gauge of the national political environment.`\
 https://nytimes.com/2023/09/26/us/politics/democrats-special-elections-biden.html?searchResultPosition=9
 
-**Why the Tabi Theft Was Really So Unforgivable**\
+**Why the Cool Kids Can Never Forgive the Tabi Theft**\
 `The viral tale of some stolen footwear says a lot about the tricky way nonconformity works.`\
 https://nytimes.com/2023/09/26/magazine/tabi-swiper.html?searchResultPosition=10
 
