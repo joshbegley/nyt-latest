@@ -3,7 +3,7 @@
 https://nytimes.com/live/2023/09/26/us/biden-uaw-strike-detroit/biden-has-long-positioned-himself-as-a-champion-of-labor-and-the-middle-class?searchResultPosition=3
 
 **The Father Has Spent His Career at Ford. The Son Might Not.**\
-`Steve and Keegan Kellums, a generation apart, represent two perspectives on their industry, a divergence that ripples through the broader work force.`\
+`Steve and Keegan Kellums, striking U.A.W. workers, represent two perspectives on their industry, a divergence that ripples through the broader work force.`\
 https://nytimes.com/2023/09/26/us/uaw-union-ford-michigan-generations.html?searchResultPosition=4
 
 **‘Stan & Ollie,’ ‘Resurrection’ and More Streaming Gems**\
