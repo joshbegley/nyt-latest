@@ -6,8 +6,8 @@ https://nytimes.com/2023/09/26/arts/music/terry-kirkman-dead.html?searchResultPo
 `Idea, the fashion industry’s go-to dealer of rare art books, is sick of social media, so it’s moving to something more physical: a bookstore.`\
 https://nytimes.com/2023/09/26/style/idea-books.html?searchResultPosition=5
 
-**New Senate Proposal Aims to Head Off Weekend Government Shutdown**\
-`An agreement between Senate Republicans and Democrats would keep agencies open through mid-November and provide billions in aid for Ukraine and disaster relief. But House Republicans are likely to balk.`\
+**Senate Reaches Spending Deal to Head Off Government Shutdown**\
+`An agreement between Senate Republicans and Democrats would keep agencies open through mid-November. But House Republicans are likely to balk.`\
 https://nytimes.com/2023/09/26/us/politics/senate-bill-government-shutdown.html?searchResultPosition=6
 
 **Overlooked No More: Alice Anderson, Who Ran Australia’s First All-Woman Garage**\
