@@ -3,7 +3,7 @@
 https://nytimes.com/2023/09/25/crosswords/daily-puzzle-2023-09-26.html?searchResultPosition=3
 
 **Woman and Teenage Girl Killed in Stabbing at Brooklyn Apartment, Police Say**\
-`A dog with a bag over its head was also found dead in the East Flatbush apartment on Monday, according to law enforcement.`\
+`A dead dog with a bag over its head was also found dead in the East Flatbush apartment on Monday, according to law enforcement.`\
 https://nytimes.com/2023/09/25/nyregion/stabbing-brooklyn-east-flatbush.html?searchResultPosition=4
 
 **7 Candidates Qualify for Second Republican Debate; Trump Won’t Attend**\
