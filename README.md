@@ -24,5 +24,5 @@ https://nytimes.com/2023/09/26/us/ohio-football-coach-nazi-resigns.html?searchRe
 
 **Biden Administration Plans to Bring Back ‘Net Neutrality’ Rules**\
 `The head of the Federal Communications Commission said the government needed to protect open access to the “essential infrastructure of modern life.”`\
-https://nytimes.com/2023/09/26/business/net-neutrality-rules-broadband-internet-biden.html?searchResultPosition=10
+https://nytimes.com/2023/09/26/technology/net-neutrality-rules-broadband-internet-biden.html?searchResultPosition=10
 
