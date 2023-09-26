@@ -12,7 +12,7 @@ https://nytimes.com/live/2023/09/26/us/biden-uaw-strike-detroit/biden-makes-a-sh
 
 **Biden Joins U.A.W. on Picket Line in Michigan**\
 `President Biden showed support for striking autoworkers by joining their picket line outside a General Motors facility west of Detroit.`\
-https://nytimes.com/video/us/politics/100000009104182/biden-uaw-ford-gm-stellantis.html?searchResultPosition=6
+https://nytimes.com/video/us/politics/biden-uaw-ford-gm-stellantis.html?searchResultPosition=6
 
 **Michigan is a crucial state that has transformed politically since 2016.**\
 `By Reid J. Epstein`\
