@@ -3,7 +3,7 @@
 https://nytimes.com/2023/09/26/style/drunk-stoned-soccer-montauk.html?searchResultPosition=3
 
 **U.S. Accuses Amazon of Illegally Protecting Monopoly in Online Retail**\
-`The Federal Trade Commission and 17 states said they filed a lawsuit against Amazon for “illegal conduct” in its online store and services to merchants, which stifled competition.`\
+`The Federal Trade Commission and 17 states filed a lawsuit against Amazon for “illegal conduct” in its online store and services to merchants, which stifled competition.`\
 https://nytimes.com/2023/09/26/technology/ftc-amazon.html?searchResultPosition=4
 
 **Levi Strauss Heir to Challenge Mayor London Breed of San Francisco**\
