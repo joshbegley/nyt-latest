@@ -1,32 +1,32 @@
+**Presidents have long struggled to balance the desires of employers and employees.**\
+`By Katie Rogers`\
+https://nytimes.com/live/2023/09/26/us/biden-uaw-strike-detroit/presidents-have-long-struggled-to-balance-the-desires-of-employers-and-employees?searchResultPosition=3
+
+**Trump plans his own trip to address autoworkers while his opponents debate.**\
+`By Shane Goldmacher and Maggie Haberman`\
+https://nytimes.com/live/2023/09/26/us/biden-uaw-strike-detroit/trump-plans-his-own-trip-to-address-autoworkers-while-his-opponents-debate?searchResultPosition=4
+
+**Peter Nygard, Disgraced Fashion Designer, Faces Trial in Toronto**\
+`Mr. Nygard, the 82-yeard-old former executive behind a defunct women’s clothing company, is accused of sexual assault and forcible confinement.`\
+https://nytimes.com/2023/09/26/world/canada/peter-nygard-toronto-sexual-assault-trial.html?searchResultPosition=5
+
+**Bust Out the Big Pot: It’s Soup Season**\
+`By Emily Weinstein`\
+https://nytimes.com/2023/09/26/dining/bust-out-the-big-pot-its-soup-season.html?searchResultPosition=6
+
 **Partnering with communities for a shared purpose: advancing health equity**\
 `Health inequities have existed for centuries but often lived in the shadows until the pandemic brought them into the light`\
-https://nytimes.com/paidpost/2023-09-26/takeda/partnering-with-communities-for-a-shared-purpose-advancing-health-equity.html?searchResultPosition=3
+https://nytimes.com/paidpost/2023-09-26/takeda/partnering-with-communities-for-a-shared-purpose-advancing-health-equity.html?searchResultPosition=7
 
 **Have We Officially Reached Peak Ribbon?**\
 `Every time it seems the bow trend has hit a saturation point, another coquette-esque or girlhood-aesthetic release keeps the momentum going.`\
-https://nytimes.com/2023/09/26/style/ribbons-bows-nyfw-tiktok.html?searchResultPosition=4
+https://nytimes.com/2023/09/26/style/ribbons-bows-nyfw-tiktok.html?searchResultPosition=8
 
 **Smithsonian Acquires Major Collection About Enslaved Poet**\
 `The National Museum of African American History and Culture has purchased a trove relating to Phillis Wheatley, the first American of African descent to publish a book.`\
-https://nytimes.com/2023/09/26/arts/phillis-wheatley-smithsonian.html?searchResultPosition=5
+https://nytimes.com/2023/09/26/arts/phillis-wheatley-smithsonian.html?searchResultPosition=9
 
 **Can the Second G.O.P. Debate Amount to More Than a Race for Second Place?**\
 `The most important audience might be Republican donors who are waiting to put their money behind a candidate who can take on Donald Trump.`\
-https://nytimes.com/2023/09/26/us/politics/second-gop-debate-preview.html?searchResultPosition=6
-
-**Supreme Court Declines to Revisit Alabama Voting Map Dispute**\
-`For the second time in recent months, the Supreme Court ruled against Alabama lawmakers and their proposed congressional district map.`\
-https://nytimes.com/2023/09/26/us/politics/supreme-court-alabama-voting-map.html?searchResultPosition=7
-
-**JPMorgan Settles Epstein Suits With U.S. Virgin Islands and James Staley**\
-`The bank agreed to pay $75 million to settle with the U.S. Virgin Islands and also reached a confidential settlement with a former top banker who pushed to keep the disgraced financier as a client.`\
-https://nytimes.com/2023/09/26/business/jpmorgan-jeffrey-epstein-virgin-islands.html?searchResultPosition=8
-
-**Armand Hammer Keeps a Foot in the Past, but Its Eyes on the Future**\
-`The New York rap duo of Billy Woods and Elucid tackle inequality, aging and anxiety on their sixth album, “We Buy Diabetic Test Strips.”`\
-https://nytimes.com/2023/09/26/arts/music/armand-hammer-we-buy-diabetic-test-strips.html?searchResultPosition=9
-
-**‘Unprecedented’ Secrecy in Google Trial as Tech Giants Push to Limit Disclosures**\
-`Efforts to seal testimony have increasingly raised questions as the federal antitrust case enters its third week in court.`\
-https://nytimes.com/2023/09/26/technology/google-antitrust-trial-secrecy.html?searchResultPosition=10
+https://nytimes.com/2023/09/26/us/politics/second-gop-debate-preview.html?searchResultPosition=10
 
