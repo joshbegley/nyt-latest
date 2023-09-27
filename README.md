@@ -19,7 +19,7 @@ https://nytimes.com/2023/09/27/us/politics/biden-israel-visa-program.html?search
 https://nytimes.com/2023/09/27/world/europe/russia-admiral-sokolov-video.html?searchResultPosition=6
 
 **North Korea Says It Will Expel U.S. Soldier Who Fled Over the Border**\
-`Pvt. Travis T. King dashed across the inter-Korean Demilitarized Zone in July to flee to North Korea.`\
+`Pvt. Travis T. King dashed across the inter-Korean Demilitarized Zone in July. After 70 days of investigation, North Korea found him guilty of “illegally intruding” into its territory.`\
 https://nytimes.com/2023/09/27/world/asia/north-korea-travis-king-expel.html?searchResultPosition=7
 
 **Christian Thielemann to Succeed Daniel Barenboim at Berlin State Opera**\
