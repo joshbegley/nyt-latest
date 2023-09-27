@@ -1,6 +1,6 @@
-**Russia puts out another video of the admiral Ukraine claims to have killed.**\
-`By Valeriya Safronova and Oleg Matsnev`\
-https://nytimes.com/live/2023/09/27/world/russia-ukraine-news/russia-puts-out-another-video-of-the-admiral-ukraine-claims-to-have-killed?searchResultPosition=2
+**Russia Puts Out New Video of Admiral Ukraine Claims to Have Killed**\
+`The latest video, and comments published in Russian news outlets, appeared to be an effort by Moscow to end speculation over the admiral’s status.`\
+https://nytimes.com/2023/09/27/world/europe/russia-admiral-sokolov-video.html?searchResultPosition=2
 
 **North Korea Says It Will Expel U.S. Soldier Who Fled Over the Border**\
 `Pvt. Travis T. King dashed across the inter-Korean Demilitarized Zone in July to flee to North Korea.`\
