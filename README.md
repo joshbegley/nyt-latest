@@ -19,7 +19,7 @@ https://nytimes.com/2023/09/26/nyregion/read-the-judges-ruling-in-the-trump-frau
 https://nytimes.com/interactive/2023/09/26/us/trump-judges-ruling.html?searchResultPosition=6
 
 **At Least 100 Are Killed in Fire at Wedding Hall in Iraq**\
-`The fire spread quickly in part because the building was made of highly flammable construction materials, state media reported.`\
+`The fire spread quickly in part because of highly flammable building materials, state media reported.`\
 https://nytimes.com/2023/09/26/world/middleeast/iraq-wedding-fire.html?searchResultPosition=9
 
 **To Knock an Elephant Off Balance, Bring Out a Giant Blindfold**\
