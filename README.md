@@ -8,7 +8,7 @@ https://nytimes.com/2023/09/27/briefing/russian-admiral-nagorno-karabakh-explosi
 
 **Deadly Fire in Iraq Reduces Wedding Hall to Charred Debris**\
 `Initial reports suggested that fireworks had started the blaze in the Hamdaniya area of Nineveh Province.`\
-https://nytimes.com/video/world/middleeast/100000009104994/deadly-fire-in-iraq-reduces-wedding-hall-to-charred-debris.html?searchResultPosition=4
+https://nytimes.com/video/world/middleeast/100000009104994/iraq-fire-wedding-hamdaniya.html?searchResultPosition=4
 
 **A Stunningly Sudden End to a Long, Bloody Conflict in the Caucasus**\
 `After decades of wars and tense stalemates, almost no one saw it coming: Azerbaijan seized Nagorno-Karabakh from Armenian control seemingly overnight.`\
