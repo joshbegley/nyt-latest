@@ -16,7 +16,7 @@ https://nytimes.com/2023/09/27/well/mind/mental-health-mattering-self-esteem.htm
 
 **Nothing’s the Matter With Antimatter, New Experiment Confirms**\
 `Consider it good news, physicists say: “The opposite result would have had big implications.”`\
-https://nytimes.com/2023/09/27/science/space/physics-universe-antimatter.html?searchResultPosition=6
+https://nytimes.com/2023/09/27/science/physics-universe-antimatter.html?searchResultPosition=6
 
 **Pizza Chicken Is a Surefire Weeknight Winner**\
 `By “pizza chicken,” we mean skillet chicken with tomatoes, pancetta and mozzarella, and by “surefire weeknight winner,” we mean five stars and over 4,000 ratings.`\
