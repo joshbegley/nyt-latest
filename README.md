@@ -1,4 +1,4 @@
-**The World Has Changed, Can the U.N.? Don’t Hold Your Breath.**\
+**The World Has Changed, but Can the U.N.? Don’t Hold Your Breath.**\
 `Most everyone agrees on the need for changes, but there is little agreement on what to do and nearly insuperable hurdles to doing anything.`\
 https://nytimes.com/2023/09/27/world/middleeast/united-nations-security-council-reform.html?searchResultPosition=2
 
