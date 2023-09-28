@@ -23,7 +23,7 @@ https://nytimes.com/2023/09/28/us/san-francisco-reputation.html?searchResultPosi
 https://nytimes.com/video/us/politics/100000009099383/republican-presidential-debate.html?searchResultPosition=6
 
 **Michael Gambon, British Actor Who Played Dumbledore in ‘Harry Potter,’ Dies at 82**\
-`The actor first made his mark in London in the 1970s. His television roles would go on to include Edward VII, Oscar Wilde and Winston Churchill.`\
+`After he made his mark in London in the 1970s, he went on to play roles that also included Edward VII, Oscar Wilde and Winston Churchill.`\
 https://nytimes.com/2023/09/28/arts/michael-gambon-dead.html?searchResultPosition=7
 
 **There’s a Building Boom, but It’s Not for Everyone**\
