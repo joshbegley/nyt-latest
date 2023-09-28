@@ -7,7 +7,7 @@ https://nytimes.com/2023/09/28/us/politics/debate-watch-party-nh.html?searchResu
 https://nytimes.com/2023/09/28/learning/word-of-the-day-griot.html?searchResultPosition=2
 
 **The Potty-Mouthed, Baby-Faced Japanese Racer Who Became a Cult Star**\
-`The impish persona and insouciant attitude of the Formula 1 driver Yuki Tsunoda have overturned stereotypes.`\
+`The impish persona and insouciant attitude of the Formula 1 driver Yuki Tsunoda have overturned stereotypes. The next step? Showing he can keep up with rivals.`\
 https://nytimes.com/2023/09/28/world/asia/yuki-tsunoda-formula-1-japan.html?searchResultPosition=3
 
 **Suspect in Killing of Baltimore Tech C.E.O. Pava LaPere is Arrested**\
