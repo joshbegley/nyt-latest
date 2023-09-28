@@ -36,5 +36,5 @@ https://nytimes.com/2023/09/28/style/marthas-vineyard-weddings.html?searchResult
 
 **Gifts, Gadgets and Greece: Inside a Huawei Lobbying Campaign**\
 `Leaked internal messages detail efforts by the Chinese tech giant to court Greek officials and fight an American-led effort against its technology.`\
-https://nytimes.com/2023/09/28/technology/gifts-gadgets-and-greece-inside-a-huawei-lobbying-campaign.html?searchResultPosition=10
+https://nytimes.com/2023/09/28/technology/huawei-greece-lobbying-campaign.html?searchResultPosition=10
 
