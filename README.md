@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000009099383/republican-presidential-debate.html?searchResultPosition=1
 
 **Michael Gambon, British Actor Who Played Dumbledore in ‘Harry Potter,’ Dies at 82**\
-`The actor’s family said he had died peacefully after a bout of pneumonia.`\
+`The actor first made his mark in London in the 1970s. His television roles would go on to include Edward VII, Oscar Wilde and Winston Churchill.`\
 https://nytimes.com/2023/09/28/arts/michael-gambon-dead.html?searchResultPosition=2
 
 **There’s a Building Boom, but It’s Not for Everyone**\
