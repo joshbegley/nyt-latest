@@ -2,7 +2,7 @@
 `Hostility over foreign policy, education and Donald Trump dominated the second Republican presidential debate as seven candidates tried to shake up the race.`\
 https://nytimes.com/video/us/politics/100000009099383/republican-presidential-debate.html?searchResultPosition=1
 
-**Michael Gambon, Celebrated British Actor, Dies at 82**\
+**Michael Gambon, British Actor Who Played Dumbledore in ‘Harry Potter,’ Dies at 82**\
 `The actor’s family said he had died peacefully after a bout of pneumonia.`\
 https://nytimes.com/2023/09/28/arts/michael-gambon-dead.html?searchResultPosition=2
 
