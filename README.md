@@ -12,7 +12,7 @@ https://nytimes.com/2023/09/28/opinion/letters/republican-debate.html?searchResu
 
 **How to Use Up That Tomato Paste**\
 `Tomato-lentil soup, vegetarian Bolognese and cheesy white bean-tomato bake are here to make the most of that open can.`\
-https://nytimes.com/2023/09/28/dining/how-to-use-up-that-tomato-paste.html?searchResultPosition=4
+https://nytimes.com/2023/09/28/dining/leftover-tomato-paste-recipes.html?searchResultPosition=4
 
 **With an eye on the longer term, France sends a defense industry delegation to Ukraine.**\
 `By Constant Méheut`\
