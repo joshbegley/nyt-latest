@@ -6,7 +6,7 @@ https://nytimes.com/2023/09/27/us/politics/republican-debate-trump-christie-desa
 `By Michael D. Shear`\
 https://nytimes.com/live/2023/09/27/us/republican-debate-presidential/fact-check-pence-mexico-negotiations?searchResultPosition=2
 
-**‘Joe Biden hides in his basement.’**\
+**“Joe Biden hides in his basement.”**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2023/09/27/us/republican-debate-presidential/fact-check-biden-basement?searchResultPosition=3
 
