@@ -1,6 +1,6 @@
 **“Wages are not keeping up with inflation.”**\
 `By Jim Tankersley`\
-https://nytimes.com/live/2023/08/23/us/republican-debate-trump-news/fact-check-inflation-wages?searchResultPosition=1
+https://nytimes.com/live/2023/09/27/us/republican-debate-presidential/fact-check-inflation-wages?searchResultPosition=1
 
 **Asa Hutchinson, who didn’t make the cut, says he’s not giving up.**\
 `By Neil Vigdor`\
