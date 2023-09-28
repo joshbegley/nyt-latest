@@ -8,7 +8,7 @@ https://nytimes.com/video/world/europe/100000009108259/rotterdam-netherlands-sho
 
 **With Shutdown Looming, Biden Points to Republican Infighting**\
 `The president and his team insist they do not want the government to shut down. But they are also confident that Republicans will receive the blame if it does.`\
-https://nytimes.com/2023/09/28/us/politics/biden-shutdown-strategy.html?searchResultPosition=3
+https://nytimes.com/2023/09/28/us/politics/biden-government-shutdown-strategy.html?searchResultPosition=3
 
 **Grilling the world’s biggest meat producer**\
 `Brazil’s JBS produces 32 billion pounds of animal products a year.`\
