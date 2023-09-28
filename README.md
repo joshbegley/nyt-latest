@@ -22,8 +22,8 @@ https://nytimes.com/2023/09/28/us/san-francisco-reputation.html?searchResultPosi
 `Hostility over foreign policy, education and Donald Trump dominated the second Republican presidential debate as seven candidates tried to shake up the race.`\
 https://nytimes.com/video/us/politics/100000009099383/republican-presidential-debate.html?searchResultPosition=6
 
-**Michael Gambon, British Actor Who Played Dumbledore in ‘Harry Potter,’ Dies at 82**\
-`After he made his mark in London in the 1970s, he went on to play roles that also included Edward VII, Oscar Wilde and Winston Churchill.`\
+**Michael Gambon, Dumbledore in the ‘Harry Potter’ Films, Dies at 82**\
+`After he made his mark in London in the 1970s, he went on to play a wide range of roles, including Edward VII, Oscar Wilde and Winston Churchill.`\
 https://nytimes.com/2023/09/28/arts/michael-gambon-dead.html?searchResultPosition=7
 
 **There’s a Building Boom, but It’s Not for Everyone**\
