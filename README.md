@@ -1,4 +1,4 @@
-**“$6 billion they traded for five people. They just now set a price on anyone’s head who’s a tourist from America, who’s a student from America for kidnapping.”**\
+**“$6 billion they traded for five people. They just now set a price on anyone’s head who’s a tourist from America, who’s a student from America, for kidnapping.”**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2023/09/27/us/republican-debate-presidential/fact-check-burgum-iran-kidnapping-ransom?searchResultPosition=1
 
