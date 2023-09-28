@@ -1,6 +1,6 @@
 **Michael Gambon, Celebrated British Actor, Dies at 82**\
 `The actor’s family said he had died peacefully after a bout of pneumonia.`\
-https://nytimes.com/2023/09/28/obituaries/michael-gambon-dead.html?searchResultPosition=1
+https://nytimes.com/2023/09/28/arts/michael-gambon-dead.html?searchResultPosition=1
 
 **There’s a Building Boom, but It’s Not for Everyone**\
 `By the end of 2023, more than 1.2 million new rental apartments will have been built in the U.S. since 2020.`\
