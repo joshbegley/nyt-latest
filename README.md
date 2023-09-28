@@ -1,5 +1,5 @@
-**Disney Theatrical Announces a Changing of the Guard**\
-`Thomas Schumacher is relinquishing his role overseeing the division’s business operations.`\
+**Disney’s Thomas Schumacher Takes on New Broadway Role**\
+`The longtime head of the company’s theater operations is becoming the division’s chief creative officer, relinquishing his role overseeing its business operations.`\
 https://nytimes.com/2023/09/28/theater/disney-broadway-schumacher.html?searchResultPosition=1
 
 **Celebrity Memorabilia Becomes the Star of Auction Season**\
