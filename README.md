@@ -1,4 +1,4 @@
-**Vivek Ramaswamy is attacked over China, Ukraine and TikTok.**\
+**Vivek Ramaswamy Is Attacked Over China, Ukraine and TikTok**\
 `Even the typically mild-mannered former Vice President Mike Pence took swipes at Mr. Ramaswamy.`\
 https://nytimes.com/2023/09/27/us/politics/vivek-ramaswamy-debate-china-ukraine.html?searchResultPosition=1
 
