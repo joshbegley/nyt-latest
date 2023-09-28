@@ -1,40 +1,40 @@
-**New Trouble Roils China Evergrande, Fueling Property Crisis Fears**\
-`The real estate firm halted critical work to settle its debts and investors dumped their stock amid news executives were under suspicion by the authorities.`\
-https://nytimes.com/2023/09/28/business/china-evergrande-trading-halted.html?searchResultPosition=1
+**After Hurricane Ian, Who Will Get to Call This Beach Town Home?**\
+`Unlike its wealthier neighbors, Fort Myers Beach had an unpolished charm and a more economically diverse population before the devastating storm.`\
+https://nytimes.com/2023/09/28/us/hurricane-ian-fort-myers-beach.html?searchResultPosition=1
 
-**New British defense minister asks Zelensky ‘what he needs to win.’**\
-`By Victoria Kim`\
-https://nytimes.com/live/2023/09/28/world/russia-ukraine-news/new-british-defense-minister-asks-zelensky-what-he-needs-to-win?searchResultPosition=2
+**In Michigan, Biden and Trump Offer a Preview of 2024**\
+`The candidates’ dueling styles were on clear display as the two men tried to woo voters affected by the United Automobile Workers strike.`\
+https://nytimes.com/2023/09/28/us/politics/biden-trump-michigan.html?searchResultPosition=2
 
-**Wait, Is That a Live Butterfly in Your Skirt?**\
-`Nothing is what you think it is any more. Two great collections from Dries Van Noten and Undercover prove that’s OK.`\
-https://nytimes.com/2023/09/28/style/dries-van-noten-undercover-paris-fashion-week.html?searchResultPosition=3
+**Biden to Create Library Honoring His Friend and Rival John McCain**\
+`In a stop in Arizona, a key battleground state in next year’s election, the president plans to embrace the longtime Republican senator and vocal Trump critic.`\
+https://nytimes.com/2023/09/28/us/politics/biden-mccain-library.html?searchResultPosition=3
 
-**‘Bring It, Tim’: South Carolinians Clash for the First Time at the G.O.P. Debate**\
-`For months, Nikki Haley and Tim Scott have been polite to one another on the campaign trail. That ended in a fiery way on Wednesday night on the debate stage.`\
-https://nytimes.com/2023/09/28/us/politics/debate-nikki-haley-tim-scott.html?searchResultPosition=4
+**Vulnerable Republicans Try to Head Off Blame for Shutdown**\
+`Some mainstream House Republicans representing districts won by President Biden have explored a bipartisan stopgap measure as right-wing lawmakers push Congress toward a shutdown.`\
+https://nytimes.com/2023/09/28/us/politics/government-shutdown-house-republicans.html?searchResultPosition=4
 
-**For New Migrants, a New Kind of Neighborhood**\
-`From every corner of the world to every corner of New York City, newcomers are carving out communities in unexpected — and sometimes hostile — places.`\
-https://nytimes.com/2023/09/28/nyregion/nyc-migrants-neighborhoods-shelters.html?searchResultPosition=5
+**The Life Cycle of New York Galleries**\
+`What does being the center of the art world do to a neighborhood? Just look at Soho.`\
+https://nytimes.com/interactive/2023/09/28/t-magazine/art/soho-art-galleries.html?searchResultPosition=5
 
-**Celebrity Relationships**\
-`How much do you care about the love lives of the famous?`\
-https://nytimes.com/2023/09/28/learning/celebrity-relationships.html?searchResultPosition=6
+**They Wanted a House in the City for $1 Million. Would They Find It in Brooklyn or Queens?**\
+`A pair of newlyweds dreamed of a three-bedroom house with a grassy yard for their dog and a reasonable commute to Manhattan. Here’s what they found.`\
+https://nytimes.com/interactive/2023/09/28/realestate/28hunt-mccullough.html?searchResultPosition=6
 
-**In Menendez Case, Prosecutors Confront Tighter Definition of Corruption**\
-`The Supreme Court has said wrongdoing must be clear cut. Some observers say the accusations in the senator’s case pass the test.`\
-https://nytimes.com/2023/09/28/nyregion/menendez-indictment-charges-corruption.html?searchResultPosition=7
+**‘The Entire Debate Was a Gong Show’: Winners and Losers From the Second Republican Showdown**\
+`Are the non-Trump candidates headed to their collective doom?`\
+https://nytimes.com/interactive/2023/09/28/opinion/republican-debate-winners-losers.html?searchResultPosition=7
 
-**An Aristocrat’s Grandson, a Precious Desk and a Storage Unit in Queens**\
-`Christian Agostino von Hassell lost a trove of family heirlooms intertwined with European history when he encountered New York’s unforgiving laws governing storage lockers.`\
-https://nytimes.com/2023/09/28/nyregion/von-hassell-heirlooms-storage-lockers-nyc.html?searchResultPosition=8
+**What’s the Story Behind Mu Shu Pork and Bird’s Nest Soup?**\
+`In “Chinese Menu,” Grace Lin takes readers and eaters on a food tour that dates back to 7000 B.C.`\
+https://nytimes.com/2023/09/28/books/review/chinese-menu-grace-lin.html?searchResultPosition=8
 
-**A New Standard-Bearer for French-Girl Style**\
-`Jane Birkin made the look famous. Now Jeanne Damas is selling her version of it to the masses through her clothing brand, Rouje.`\
-https://nytimes.com/2023/09/28/style/jeanne-damas-rouje.html?searchResultPosition=9
+**Ryder Cup: A Competition With Decades of Drama**\
+`It began in 1927 and has had many nail-biters over its almost 100 years. Here are some of them.`\
+https://nytimes.com/2023/09/28/sports/golf/ryder-cup-history.html?searchResultPosition=9
 
-**Surrounded by Trash, a Reporter Scours for Answers**\
-`This summer, Jesse McKinley, who covers upstate New York for The Times, set out to learn what may become of the state’s largest landfill.`\
-https://nytimes.com/2023/09/28/insider/seneca-meadows-landfilll.html?searchResultPosition=10
+**In the Ryder Cup, Home-Team Advantage Is Very Serious**\
+`This year the competition is in Rome, which means the European team controls the course setup and can adjust it to its players’ strengths.`\
+https://nytimes.com/2023/09/28/sports/golf/ryder-cup-home-course-advantage.html?searchResultPosition=10
 
