@@ -30,8 +30,8 @@ https://nytimes.com/2023/09/28/nyregion/nyc-homeless-shelter-levin-sentenced.htm
 `Can a comforting dish called “Marry Me Chicken” really move a partner to propose? These home cooks say yes.`\
 https://nytimes.com/2023/09/28/dining/marry-me-chicken-recipe.html?searchResultPosition=8
 
-**Trump Lawsuit Against Judge in Fraud Case Rejected by Appeals Court**\
-`Former President Donald J. Trump had accused Justice Arthur F. Engoron of ignoring an earlier decision that could have barred evidence from the case.`\
+**Appeals Court Rejects Trump’s Effort to Delay Trial in Fraud Case**\
+`Former President Donald J. Trump had sued Justice Arthur F. Engoron, aiming to push back a case that could begin as soon as Monday.`\
 https://nytimes.com/2023/09/28/nyregion/trump-fraud-judge-appeal.html?searchResultPosition=9
 
 **Onstage, Michael Gambon’s Depth Transcended the Unspoken**\
