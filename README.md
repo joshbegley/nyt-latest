@@ -14,7 +14,7 @@ https://nytimes.com/2023/09/29/us/politics/shutdown-mccarthy.html?searchResultPo
 `By Jack Healy`\
 https://nytimes.com/live/2023/09/29/us/government-shutdown/most-national-parks-will-close-in-a-shutdown-federal-officials-say?searchResultPosition=4
 
-**Dianne Feinstein, Oldest Sitting Senator and a Fixture of California Politics, Dies at 90**\
+**Dianne Feinstein, 90, Dies; Oldest Sitting Senator and Fixture of California Politics**\
 `She achieved remarkable political breakthroughs as a woman, becoming San Francisco’s first female mayor and the first woman elected to the Senate from California.`\
 https://nytimes.com/2023/09/29/us/politics/dianne-feinstein-obituary.html?searchResultPosition=5
 
