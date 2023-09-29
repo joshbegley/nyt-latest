@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2023/09/29/us/politics/gop-mccarthy-shutdown-holdouts.html?searchResultPosition=1
 
 **Toys ‘R’ Us, Once Bankrupt, Plans New Flagship Stores**\
-`WHP Global, the parent company of Toys “R” Us, said on Friday it would open up to two dozen flagship stores starting next year, along with shops in airport and cruise ships.`\
+`WHP Global, the parent company of Toys “R” Us, said on Friday it would open up to two dozen flagship stores starting next year, along with shops in airports and cruise ships.`\
 https://nytimes.com/2023/09/29/business/toys-r-us-new-stores.html?searchResultPosition=2
 
 **The Flaw in the Case Against Amazon**\
