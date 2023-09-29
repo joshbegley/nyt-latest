@@ -23,7 +23,7 @@ https://nytimes.com/2023/09/29/health/mosquitoes-genetic-engineering.html?search
 https://nytimes.com/2023/09/29/health/mosquitoes-malaria-strategies-house.html?searchResultPosition=6
 
 **Unleashing a New Weapon on the Mosquito: A Mosquito**\
-`Scientists have found a way to inject a bacteria into mosquitoes that neutralizes deadly viruses they carry.`\
+`Scientists have found a way to inject a bacteria into mosquitos that neutralizes deadly viruses they carry.`\
 https://nytimes.com/interactive/2023/09/29/health/mosquitoes-wolbachia-disease-viruses.html?searchResultPosition=7
 
 **Insecticides Can’t Stop These Mosquitoes. Now What?**\
