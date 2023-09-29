@@ -14,9 +14,9 @@ https://nytimes.com/live/2023/09/29/world/russia-ukraine-news/soccer-opens-a-doo
 `A flash-flood warning was in effect through midmorning.`\
 https://nytimes.com/2023/09/29/us/new-york-rain-flooding.html?searchResultPosition=4
 
-**Putin meets with a former Wagner deputy as questions linger about the mercenary group’s fate.**\
-`By Valeriya Safronova`\
-https://nytimes.com/live/2023/09/29/world/russia-ukraine-news/russia-putin-wagner-troshev?searchResultPosition=5
+**Putin Meets With Former Wagner Deputy as Questions Linger**\
+`The Russian leader assigned Andrei N. Troshev, a veteran of wars in Afghanistan and Chechnya, with the task of forming volunteer units to perform combat missions for Russia’s war in Ukraine.`\
+https://nytimes.com/2023/09/29/world/europe/russia-putin-wagner-troshev.html?searchResultPosition=5
 
 **Easy Mode: Clues for Sept. 29, 2023**\
 `Get some help on the Friday crossword puzzle.`\
