@@ -12,7 +12,7 @@ https://nytimes.com/live/2023/09/29/us/government-shutdown/military-personnel-wi
 
 **What to Expect Tonight: Unpredictable Rain and Possibly More Flooding**\
 `Gov. Kathy Hochul warned New Yorkers to continue exercising caution on commutes home and through the evening, with the rain expected to shift eastward to Long Island.`\
-https://nytimes.com/live/2023/09/29/nyregion/nyc-rain-flash-flooding/what-to-expect-tonight-unpredictable-rain-and-possibly-more-flooding?searchResultPosition=4
+https://nytimes.com/2023/09/29/nyregion/what-to-expect-tonight-unpredictable-rain-and-possibly-more-flooding.html?searchResultPosition=4
 
 **What New York homeowners and renters should know about flood insurance.**\
 `Standard homeowners’ and renters’ policies don’t cover damages that can be caused by the kind of heavy rains that hit New York City on Friday.`\
