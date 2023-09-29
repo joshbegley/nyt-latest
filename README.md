@@ -1,6 +1,6 @@
 **Senator Dianne Feinstein Dies at 90**\
 `The California Democrat, the oldest member of the Senate, had been declining in health for months.`\
-https://nytimes.com/2023/09/29/us/politics/dianne-feinstein-dead.html?searchResultPosition=1
+https://nytimes.com/2023/09/29/us/politics/dianne-feinstein-dead-senate.html?searchResultPosition=1
 
 **Inflation Measure Favored by the Fed Cooled in August**\
 `The Personal Consumption Expenditures Index climbed more slowly, after cutting out food and fuel prices for a sense of the underlying trend.`\
