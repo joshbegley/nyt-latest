@@ -1,4 +1,4 @@
-**Blast Kills at Least 30 at a Religious Gathering in Pakistan**\
+**Blast Kills at Least 52 at a Religious Gathering in Pakistan**\
 `The bombing, which officials believe was a suicide attack, was the latest sign of the country’s deteriorating security situation.`\
 https://nytimes.com/2023/09/29/world/asia/pakistan-bombing.html?searchResultPosition=1
 
