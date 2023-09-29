@@ -15,7 +15,7 @@ https://nytimes.com/2023/09/29/us/state-courts-mental-illness.html?searchResultP
 https://nytimes.com/2023/09/29/business/wall-street-stocks-bonds.html?searchResultPosition=4
 
 **Senator Dianne Feinstein Dies at 90**\
-`The California Democrat, the oldest member of Congress, had been declining in health for months.`\
+`The California Democrat, the oldest member of Congress, had suffered a precipitous decline in health in recent months.`\
 https://nytimes.com/2023/09/29/us/politics/dianne-feinstein-dead-senate.html?searchResultPosition=5
 
 **Inflation Measure Favored by the Fed Cooled in August**\
