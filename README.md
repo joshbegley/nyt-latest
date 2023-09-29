@@ -34,7 +34,7 @@ https://nytimes.com/2023/09/29/us/state-courts-mental-illness.html?searchResultP
 `A series of potential problems, including rising oil prices and labor strikes, have prompted a much warier mood among investors.`\
 https://nytimes.com/2023/09/29/business/wall-street-stocks-bonds.html?searchResultPosition=9
 
-**Senator Dianne Feinstein Dies at 90**\
+**Feinstein had faced calls to step down. Here’s what to know.**\
 `The California Democrat, the oldest member of Congress, had suffered a precipitous decline in health in recent months.`\
 https://nytimes.com/live/2023/09/29/us/dianne-feinstein-dead-senate/dianne-feinstein-dead-senate?searchResultPosition=10
 
