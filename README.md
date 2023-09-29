@@ -1,40 +1,40 @@
-**A Secretive U.S. Tech Firm Pushes Toward the Heart of U.K. Health Care**\
-`Palantir, the analytics company chaired by Peter Thiel, has courted N.H.S. England with pandemic help and assertive lobbying. Its big reward may be yet to come.`\
-https://nytimes.com/2023/09/29/world/europe/uk-nhs-palantir.html?searchResultPosition=1
+**Our System Makes It Clear That Some Voices Are More Equal Than Others**\
+`The history of thwarted majorities is very instructive.`\
+https://nytimes.com/2023/09/29/opinion/minority-rule-countermajoritarianism.html?searchResultPosition=1
 
-**A U.S. government shutdown would impact F-16 training for Ukrainian pilots, the Pentagon says.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2023/09/29/world/russia-ukraine-news/a-us-government-shutdown-would-impact-f-16-training-for-ukrainian-pilots-the-pentagon-says?searchResultPosition=2
+**Washington Feels a Chill as Adorable Diplomats Depart**\
+`Is America’s frosty falling out with China about to cost the United States all its giant pandas?`\
+https://nytimes.com/2023/09/29/opinion/washington-pandas-depart-china-diplomacy.html?searchResultPosition=2
 
-**The Revenge of Maximalism**\
-`Stealth wealth? Quiet luxury? Marni, Balmain and Schiaparelli beg to differ. Rick Owens has his own ideas.`\
-https://nytimes.com/2023/09/29/style/rick-owens-balmain-schiaparelli-maximalism.html?searchResultPosition=3
+**Watch Out for This Common Intimacy Killer**\
+`For couples in long-term relationships, the “bristle reaction” can make physical connection difficult, experts say.`\
+https://nytimes.com/2023/09/29/well/family/relationships-intimacy-bristle-reaction-sex.html?searchResultPosition=3
 
-**Why Doesn’t Australia Have Better Trains?**\
-`And a glimmer of high-speed hope.`\
-https://nytimes.com/2023/09/29/world/australia/australia-high-speed-trains.html?searchResultPosition=4
+**6 Paperbacks to Read This Week**\
+`This week's selection includes titles by Rachel Aviv, Rudy Ruiz, Allie Rowbottom and more.`\
+https://nytimes.com/interactive/2023/09/29/books/review/new-paperbacks-aviv.html?searchResultPosition=4
 
-**A U.S. Army hospital has quietly started admitting troops wounded in Ukraine.**\
-`The Army’s Landstuhl Regional Medical Center has quietly started admitting Ukrainian Army soldiers who were wounded in combat, most of them American volunteers.`\
-https://nytimes.com/live/2023/09/29/world/russia-ukraine-news/a-us-army-hospital-has-quietly-started-admitting-troops-wounded-in-ukraine?searchResultPosition=5
+**A Silver Lining From the Pandemic: A Surge in Start-ups**\
+`New research suggests that big shifts in consumer and company behavior — and maybe federal stimulus dollars — have fueled entrepreneurship.`\
+https://nytimes.com/2023/09/29/us/politics/pandemic-economy-surge-start-ups.html?searchResultPosition=5
 
-**Talking Peace in Sudan, the U.A.E. Secretly Fuels the Fight**\
-`From a remote air base in Chad, the Emirates is giving arms and medical treatment to fighters on one side in Sudan’s spiraling war, officials say.`\
-https://nytimes.com/2023/09/29/world/africa/sudan-war-united-arab-emirates-chad.html?searchResultPosition=6
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including John Carney’s new film, “Flora and Son.”`\
+https://nytimes.com/interactive/2023/09/29/arts/weekend-editors-picks-flora-and-son.html?searchResultPosition=6
 
-**A Changing Auto Industry, but Still ‘Good Stories in Detroit’**\
-`As electric vehicles usher in a new era for the car economy and workers strike against rooted manufacturers, Neal E. Boudette is in Motor City to cover it all.`\
-https://nytimes.com/2023/09/29/insider/united-auto-workers-strikes.html?searchResultPosition=7
+**When Will the Saltwater Wedge Reach New Orleans?**\
+`The drought-stricken Mississippi River can no longer hold back the saltwater creeping upstream, contaminating drinking water.`\
+https://nytimes.com/interactive/2023/09/29/climate/new-orleans-saltwater-map.html?searchResultPosition=7
 
-**From missile strikes to families facing loss: September in Ukraine.**\
-`By The New York Times`\
-https://nytimes.com/live/2023/09/29/world/russia-ukraine-news/from-missile-strikes-to-families-facing-loss-september-in-ukraine?searchResultPosition=8
+**The New York Times News Quiz, Sept. 29, 2023**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2023/09/29/briefing/news-quiz-menendez-biden-taylor-swift.html?searchResultPosition=8
 
-**Vulnerable New Yorkers Suffer as Some Services Decline Under Mayor Adams**\
-`Some critical services in New York City are growing less reliable under Mayor Eric Adams, from long waits for food stamps to fewer sexual health clinics.`\
-https://nytimes.com/2023/09/29/nyregion/adams-nyc-services-performance.html?searchResultPosition=9
+**Armenia: Cast Adrift in a Tough Neighborhood**\
+`While the Caucasus nation might want to reduce its reliance on Russia for a more reliable ally, Western nations have offered moral support but little else.`\
+https://nytimes.com/2023/09/29/world/europe/armenia-azerbaijan-nagorno-karabakh.html?searchResultPosition=9
 
-**Ancient Arrow**\
-`Tell us a story that is inspired by this image.`\
-https://nytimes.com/2023/09/29/learning/ancient-arrow.html?searchResultPosition=10
+**The Lying Boss and Your Bottom Line**\
+`Telling customers that the staff makes more than the owners isn’t just petulant, it’s harmful.`\
+https://nytimes.com/2023/09/29/business/the-lying-boss-and-your-bottom-line.html?searchResultPosition=10
 
