@@ -1,6 +1,6 @@
 **Many members of Congress serve past the age of 80.**\
 `By Annie Karni`\
-https://nytimes.com/2023/09/29/us/many-members-of-congress-serve-past-the-age-of-80.html?searchResultPosition=1
+https://nytimes.com/live/2023/09/29/us/dianne-feinstein-dead-senate/many-members-of-congress-serve-past-the-age-of-80?searchResultPosition=1
 
 **Dianne Feinstein, Oldest Sitting Senator and a Fixture of California Politics, Dies at 90**\
 `She achieved remarkable political breakthroughs as a woman, becoming San Francisco’s first female mayor and the first woman elected to the Senate from California.`\
