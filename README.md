@@ -6,8 +6,8 @@ https://nytimes.com/2023/09/28/us/university-of-pennsylvania-resident-advisers-u
 `A Tokyo icon’s enduring mystique, and a century of Frank Lloyd Wright history.`\
 https://nytimes.com/paidpost/imperial-hotel-tokyo/celebrating-the-legacy-of-the-imperial-hotel.html?searchResultPosition=2
 
-**U.S. Army Base in Hawaii Is Locked Down for Search for Armed Man**\
-`A man believed to be armed with a handgun was on the run on Thursday afternoon after a confrontation with a soldier at Schofield Barracks in Hawaii, officials said.`\
+**Lockdown at U.S. Army Base in Hawaii Ends, But Search Continues for Armed Man**\
+`A man believed to be armed with a handgun was on the run on Thursday after a confrontation with a soldier at Schofield Barracks in Hawaii, officials said.`\
 https://nytimes.com/2023/09/28/us/hawaii-army-schofield-barracks-lockdown.html?searchResultPosition=3
 
 **Variety: Cryptic Crossword**\
