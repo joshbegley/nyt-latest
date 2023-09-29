@@ -4,7 +4,7 @@ https://nytimes.com/live/2023/09/29/us/dianne-feinstein-dead-senate/many-members
 
 **Dianne Feinstein, Oldest Sitting Senator and a Fixture of California Politics, Dies at 90**\
 `She achieved remarkable political breakthroughs as a woman, becoming San Francisco’s first female mayor and the first woman elected to the Senate from California.`\
-https://nytimes.com/2023/09/29/us/politics/dianne-feinstein-dead.html?searchResultPosition=2
+https://nytimes.com/2023/09/29/us/politics/dianne-feinstein-obituary.html?searchResultPosition=2
 
 **At the New York Film Festival, Delicate Movies and Ones That Go Vroom**\
 `The dizzyingly diverse program ranges from the quiet “Here” to Michael Mann’s psychological portrait of a carmaker, “Ferrari.”`\
