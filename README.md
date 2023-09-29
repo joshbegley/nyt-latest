@@ -4,7 +4,7 @@ https://nytimes.com/2023/09/29/us/politics/dianne-feinstein-dead-senate.html?sea
 
 **Inflation Measure Favored by the Fed Cooled in August**\
 `The Personal Consumption Expenditures Index climbed more slowly, after cutting out food and fuel prices for a sense of the underlying trend.`\
-https://nytimes.com/2023/09/29/business/economy/inflation-measure-favored-by-the-fed-cooled-in-august.html?searchResultPosition=2
+https://nytimes.com/2023/09/29/business/economy/pce-inflation-fed-august.html?searchResultPosition=2
 
 **Biden Administration to Offer Fewest Offshore Oil and Gas Leases in History**\
 `A new plan to sell offshore drilling rights will be limited to three spots, all in the Gulf of Mexico.`\
