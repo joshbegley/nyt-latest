@@ -2,9 +2,9 @@
 `By Brendan Hoffman`\
 https://nytimes.com/live/2023/09/29/world/russia-ukraine-news/young-ukrainian-cadets-receive-their-epaulets?searchResultPosition=1
 
-**A family remembers a child and his parents, neighbors who died in the last catastrophic rains.**\
+**A Basement Apartment Flooded After Ida. On Friday, It Flooded Again.**\
 `In Queens, a home flooded again and a family wished they could find a way out: “People died in this house. We don’t want to live here.”`\
-https://nytimes.com/2023/09/29/nyregion/a-family-remembers-a-child-and-his-parents-neighbors-who-died-in-the-last-catastrophic-rains.html?searchResultPosition=2
+https://nytimes.com/2023/09/29/nyregion/nyc-flooding-storm-basement.html?searchResultPosition=2
 
 **Threatened by air raids, Ukraine stages an arms industry conference in a hotel basement.**\
 `By Matthew Mpoke Bigg`\
