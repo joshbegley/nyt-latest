@@ -1,40 +1,40 @@
+**Talking Peace in Sudan, the U.A.E. Secretly Fuels the Fight**\
+`From a remote air base in Chad, the Emirates is giving arms and medical treatment to fighters on one side in Sudan’s spiraling war, officials say.`\
+https://nytimes.com/2023/09/29/world/africa/sudan-war-united-arab-emirates-chad.html?searchResultPosition=1
+
+**A Changing Auto Industry, but Still ‘Good Stories in Detroit’**\
+`As electric vehicles usher in a new era for the car economy and workers strike against rooted manufacturers, Neal E. Boudette is in Motor City to cover it all.`\
+https://nytimes.com/2023/09/29/insider/united-auto-workers-strikes.html?searchResultPosition=2
+
+**From missile strikes to families facing loss: September in Ukraine.**\
+`By The New York Times`\
+https://nytimes.com/live/2023/09/29/world/russia-ukraine-news/from-missile-strikes-to-families-facing-loss-september-in-ukraine?searchResultPosition=3
+
+**Vulnerable New Yorkers Suffer as Some Services Decline Under Mayor Adams**\
+`Some critical services in New York City are growing less reliable under Mayor Eric Adams, from long waits for food stamps to fewer sexual health clinics.`\
+https://nytimes.com/2023/09/29/nyregion/adams-nyc-services-performance.html?searchResultPosition=4
+
+**Ancient Arrow**\
+`Tell us a story that is inspired by this image.`\
+https://nytimes.com/2023/09/29/learning/ancient-arrow.html?searchResultPosition=5
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/09/29/crosswords/wordle-review-answer-832.html?searchResultPosition=6
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/09/29/crosswords/spelling-bee-forum.html?searchResultPosition=7
+
 **Ukraine is looking to ramp up its defense industry.**\
 `By Constant Méheut`\
-https://nytimes.com/live/2023/09/29/world/russia-ukraine-news/ukraines-is-holding-a-weapons-forum-as-it-looks-to-ramp-up-its-defense-industry?searchResultPosition=1
+https://nytimes.com/live/2023/09/29/world/russia-ukraine-news/ukraines-is-holding-a-weapons-forum-as-it-looks-to-ramp-up-its-defense-industry?searchResultPosition=8
 
 **Word of the Day: opulent**\
 `This word has appeared in 124 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/09/29/learning/word-of-the-day-opulent.html?searchResultPosition=2
+https://nytimes.com/2023/09/29/learning/word-of-the-day-opulent.html?searchResultPosition=9
 
 **Friday Briefing**\
 `Sluggish progress in the war in Ukraine.`\
-https://nytimes.com/2023/09/29/briefing/ukraine-shooting-rotterdam.html?searchResultPosition=3
-
-**Fashion and Sport: An Ideal Match?**\
-`As Paris prepares to host the 2024 Olympics, new exhibitions explore the relationship between two worlds obsessed with physical perfection.`\
-https://nytimes.com/2023/09/29/style/fashion-sports-exhibition-paris.html?searchResultPosition=4
-
-**Mosquitoes Are a Growing Public Health Threat, Reversing Years of Progress**\
-`Climate change and the rapid evolution of the insect have helped drive up malaria deaths and brought dengue and other mosquito-borne viruses to places that never had to worry about them.`\
-https://nytimes.com/2023/09/29/health/mosquitoes-malaria-disease-climate-change.html?searchResultPosition=5
-
-**An Invasive Mosquito Threatens Catastrophe in Africa**\
-`A malaria-carrying species that thrives in urban areas and resists all insecticides is causing outbreaks in places that have rarely faced the disease.`\
-https://nytimes.com/2023/09/29/health/mosquitoes-stephensi-malaria-africa.html?searchResultPosition=6
-
-**The Gamble: Can Genetically Modified Mosquitoes End Disease?**\
-`Working on a remote island, scientists think they can use genetic engineering to block a malaria-carrying species of mosquito from spreading the disease — and do it in just a few months. But governments are wary.`\
-https://nytimes.com/2023/09/29/health/mosquitoes-genetic-engineering.html?searchResultPosition=7
-
-**One Village, Two Houses — and a New Tactic to Win the War on Mosquitoes**\
-`A different way of thinking about mosquito-borne diseases could save billions of dollars, and end them for good, some health experts believe.`\
-https://nytimes.com/2023/09/29/health/mosquitoes-malaria-strategies-house.html?searchResultPosition=8
-
-**Unleashing a New Weapon on the Mosquito: A Mosquito**\
-`Scientists have found a way to inject a bacteria into mosquitos that neutralizes deadly viruses they carry.`\
-https://nytimes.com/interactive/2023/09/29/health/mosquitoes-wolbachia-disease-viruses.html?searchResultPosition=9
-
-**Insecticides Can’t Stop These Mosquitoes. Now What?**\
-`With mosquitoes evolving to evade bed nets and common insecticides, scientists are experimenting with new ways to block them.`\
-https://nytimes.com/interactive/2023/09/29/health/mosquitoes-new-solutions.html?searchResultPosition=10
+https://nytimes.com/2023/09/29/briefing/ukraine-shooting-rotterdam.html?searchResultPosition=10
 
