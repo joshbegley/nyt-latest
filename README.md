@@ -2,7 +2,7 @@
 `By Andrew E. Kramer`\
 https://nytimes.com/live/2023/09/29/world/russia-ukraine-news/ukraine-is-updating-its-military-industry-to-build-precision-weaponry-and-armaments?searchResultPosition=1
 
-**‘The Mosquitoes are Winning’**\
+**‘The Mosquitoes Are Winning’**\
 `Public health crises don’t operate on the same timetable as academic journals.`\
 https://nytimes.com/2023/09/29/briefing/the-mosquitoes-are-winning.html?searchResultPosition=2
 
