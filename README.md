@@ -7,7 +7,7 @@ https://nytimes.com/2023/09/29/us/politics/general-cq-brown-joint-chiefs.html?se
 https://nytimes.com/live/2023/09/29/world/russia-ukraine-news/a-ukrainian-drone-attack-hit-a-substation-in-russia-a-local-official-says?searchResultPosition=2
 
 **Soccer Opens a Door to Russia’s Return, and Faces a Backlash**\
-`The angry reactions to a vote by European soccer’s governing body to partially lift its ban on Russian teams could be a preview of fights in other sports.`\
+`The angry reactions to a vote by European soccer’s governing body to partly lift its ban on Russian teams could be a preview of fights in other sports.`\
 https://nytimes.com/2023/09/29/world/europe/soccer-uefa-russia.html?searchResultPosition=3
 
 **Ukraine is updating its military industry to build precision weaponry and armaments.**\
