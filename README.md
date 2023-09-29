@@ -18,8 +18,8 @@ https://nytimes.com/2023/09/29/dining/homemade-cinnamon-rolls-recipe.html?search
 `Book Review editors discuss their love of listening to books out loud.`\
 https://nytimes.com/2023/09/29/books/review/an-audiobooks-bonanza.html?searchResultPosition=5
 
-**Flights were delayed or canceled at airports in the New York region.**\
-`By Christine Chung`\
+**Flights Are Delayed or Canceled After New York Floods**\
+`Passengers were experiencing hourlong delays at the area’s airports as the extreme weather grounded flights.`\
 https://nytimes.com/2023/09/29/nyregion/ny-airports-flooding-flights.html?searchResultPosition=6
 
 **Basement apartments can be deadly in rain storms. Why does the city want to legalize them?**\
