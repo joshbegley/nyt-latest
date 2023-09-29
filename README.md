@@ -35,6 +35,6 @@ https://nytimes.com/live/2023/09/29/world/russia-ukraine-news/soccer-opens-a-doo
 https://nytimes.com/2023/09/29/us/new-york-rain-flooding.html?searchResultPosition=9
 
 **Putin Meets With Former Wagner Deputy as Questions Linger**\
-`The Russian leader assigned Andrei N. Troshev, a veteran of wars in Afghanistan and Chechnya, with the task of forming volunteer units to perform combat missions for Russia’s war in Ukraine.`\
+`The Russian leader assigned Andrei Troshev, a veteran of wars in Afghanistan and Chechnya, with the task of forming volunteer units to perform combat missions for Russia’s war in Ukraine.`\
 https://nytimes.com/2023/09/29/world/europe/russia-putin-wagner-troshev.html?searchResultPosition=10
 
