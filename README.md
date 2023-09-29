@@ -23,7 +23,7 @@ https://nytimes.com/2023/09/29/dining/homemade-cinnamon-rolls-recipe.html?search
 https://nytimes.com/2023/09/29/books/review/an-audiobooks-bonanza.html?searchResultPosition=6
 
 **Flights Are Delayed or Canceled After New York Floods**\
-`Passengers were experiencing hourlong delays at the area’s airports as the extreme weather grounded flights.`\
+`Passengers were experiencing delays at the area’s airports as the extreme weather grounded flights.`\
 https://nytimes.com/2023/09/29/nyregion/ny-airports-flooding-flights.html?searchResultPosition=7
 
 **Basement apartments can be deadly in rain storms. Why does the city want to legalize them?**\
