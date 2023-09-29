@@ -1,10 +1,10 @@
-**Dianne Feinstein, Oldest Sitting Senator and a Fixture of California Politics, Dies at 90**\
-`She achieved remarkable political breakthroughs as a woman, becoming San Francisco’s first female mayor and the first woman elected to the Senate from California.`\
-https://nytimes.com/2023/09/29/us/politics/dianne-feinstein-obituary.html?searchResultPosition=1
-
 **Many members of Congress serve past the age of 80.**\
 `By Annie Karni`\
-https://nytimes.com/2023/09/29/us/many-members-of-congress-serve-past-the-age-of-80.html?searchResultPosition=2
+https://nytimes.com/2023/09/29/us/many-members-of-congress-serve-past-the-age-of-80.html?searchResultPosition=1
+
+**Dianne Feinstein, Oldest Sitting Senator and a Fixture of California Politics, Dies at 90**\
+`She achieved remarkable political breakthroughs as a woman, becoming San Francisco’s first female mayor and the first woman elected to the Senate from California.`\
+https://nytimes.com/2023/09/29/us/politics/dianne-feinstein-obituary.html?searchResultPosition=2
 
 **At the New York Film Festival, Delicate Movies and Ones That Go Vroom**\
 `The dizzyingly diverse program ranges from the quiet “Here” to Michael Mann’s psychological portrait of a carmaker, “Ferrari.”`\
@@ -36,5 +36,5 @@ https://nytimes.com/2023/09/29/business/wall-street-stocks-bonds.html?searchResu
 
 **Senator Dianne Feinstein Dies at 90**\
 `The California Democrat, the oldest member of Congress, had suffered a precipitous decline in health in recent months.`\
-https://nytimes.com/2023/09/29/us/politics/dianne-feinstein-dead-senate.html?searchResultPosition=10
+https://nytimes.com/live/2023/09/29/us/dianne-feinstein-dead-senate/dianne-feinstein-dead-senate?searchResultPosition=10
 
