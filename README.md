@@ -1,5 +1,5 @@
 **Live Vote Count: House Stopgap Measure as Shutdown Looms**\
-`See how each member of the House of Representatives is voting on a measure brought forth after Speaker McCarthy’s long-shot attempt to avert a government shutdown on Friday failed.`\
+`See how each member of the House of Representatives is voting on a measure to keep the government open for 45 days.`\
 https://nytimes.com/interactive/2023/09/30/us/politics/shutdown-live.html?searchResultPosition=1
 
 **FEMA could not continue all its relief operations during a shutdown, its leader says.**\
