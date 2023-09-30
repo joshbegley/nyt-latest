@@ -27,7 +27,7 @@ https://nytimes.com/2023/09/30/nyregion/nyc-flooding-storm.html?searchResultPosi
 https://nytimes.com/2023/09/30/world/middleeast/iraq-wedding-hall-fire.html?searchResultPosition=7
 
 **At Least 5 Dead After Crash Causes Anhydrous Ammonia Leak**\
-`A tanker carrying the toxic gas crashed and ruptured on Friday night, leading to an evacuation of residents within a one-mile radius of Teutopolis, Ill., officials said.`\
+`A tractor-trailer carrying the toxic gas crashed and ruptured on Friday night, leading to an evacuation of residents within a one-mile radius of Teutopolis, Ill., officials said.`\
 https://nytimes.com/2023/09/30/us/illinois-truck-crash-ammonia-leak.html?searchResultPosition=8
 
 **Modi’s Hindu Nationalism Stokes Tension in Indian Diaspora**\
