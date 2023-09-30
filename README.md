@@ -26,8 +26,8 @@ https://nytimes.com/2023/09/30/dining/gorgeous-thieboudienne-maple-butter-roast-
 `Biden and Trump see solidarity very differently.`\
 https://nytimes.com/2023/09/30/opinion/biden-trump-uaw-strike.html?searchResultPosition=7
 
-**Government Hurtles Toward Shutdown as G.O.P. House Hunts for Last-Ditch Deal**\
-`There was no clear path forward in the House to keep the government funded after hard-right Republicans defeated a stopgap measure and the speaker refused to turn to Democrats for help.`\
+**Here’s the latest on the funding crisis.**\
+`It was not clear whether the House could find a way to keep the government funded after hard-right Republicans defeated a stopgap measure and the speaker was forced to turn to Democrats for help.`\
 https://nytimes.com/2023/09/30/us/government-shutdown-house-republicans.html?searchResultPosition=8
 
 **U2 Returns, in Las Vegas Limbo**\
