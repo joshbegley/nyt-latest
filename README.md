@@ -6,13 +6,13 @@ https://nytimes.com/2023/09/30/business/china-evergrande-explained.html?searchRe
 `A leader who has railed against NATO and sanctions on Russia appears poised for a strong showing. That could threaten Europe’s unity on support for Ukraine.`\
 https://nytimes.com/2023/09/30/world/europe/slovakia-election-ukraine-fico.html?searchResultPosition=2
 
-**How China’s Property Crisis Is Testing Its Too-Big-to-Fail Banks**\
-`Banks hold enormous amounts of real estate debt, and regulators are nervous. But a fast-moving crisis is unlikely because the government has extensive control of the system.`\
-https://nytimes.com/2023/09/30/business/china-evergrande-banks-property.html?searchResultPosition=3
-
 **Maldives Votes in Presidential Runoff Overshadowed by India and China**\
 `The election has become a referendum on the two Asian giants’ influence on the small nation’s direction.`\
-https://nytimes.com/2023/09/30/world/asia/maldives-election-india-china.html?searchResultPosition=4
+https://nytimes.com/2023/09/30/world/asia/maldives-election-india-china.html?searchResultPosition=3
+
+**How China’s Property Crisis Is Testing Its Too-Big-to-Fail Banks**\
+`Banks hold enormous amounts of real estate debt, and regulators are nervous. But a fast-moving crisis is unlikely because the government has extensive control of the system.`\
+https://nytimes.com/2023/09/30/business/china-evergrande-banks-property.html?searchResultPosition=4
 
 **Going Solo to a Wedding? Here’s How to Make the Best of It.**\
 `Attending a wedding alone can be anxiety-inducing. Here are some tips for having fun even when you don’t know most of the guests.`\
