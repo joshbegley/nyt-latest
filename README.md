@@ -1,40 +1,40 @@
-**Model-Off-Duty Style Evolves**\
-`Some of the best looks worn by models at Milan Fashion Week weren’t on the runways.`\
-https://nytimes.com/2023/09/30/style/milan-fashion-week-street-style.html?searchResultPosition=1
+**San Francisco Mourns Its Homegrown Senator and the End of the Feinstein Era**\
+`Dianne Feinstein’s life was inseparable from the fortunes and tragedies of San Francisco over nine decades.`\
+https://nytimes.com/2023/09/30/us/dianne-feinstein-impact-san-francisco.html?searchResultPosition=1
 
-**For Biden, Menendez’s Troubles May Clear Foreign Policy Roadblocks**\
-`As the top Democrat on the Senate Foreign Relations Committee, Mr. Menendez bucked Democratic colleagues — and presidents — on matters ranging from Cuba to Iran.`\
-https://nytimes.com/2023/09/30/us/politics/biden-menendezs-foreign-policy.html?searchResultPosition=2
+**Top 10 Hardest and Easiest Spelling Bee Words, Sept. 23-29**\
+`Bad luck came in threes (and a seven) in this week’s toughest tests.`\
+https://nytimes.com/2023/09/30/upshot/spelling-bee-words.html?searchResultPosition=2
 
-**With Climate Change, Smaller Storms Are Growing More Fearsome, More Often**\
-`The Friday storm that produced vast flooding in New York City started out earlier in the week as an unremarkable — if unpredictable — weather system.`\
-https://nytimes.com/2023/09/30/nyregion/climate-change-flooding-storms.html?searchResultPosition=3
+**Anthropology Conference Drops a Panel Defending Sex as Binary**\
+`Organizers said the session did not have scientific merit and was harmful to transgender members. Critics of the move say the discipline is unfriendly to dissenting views on the subject.`\
+https://nytimes.com/2023/09/30/us/anthropology-panel-sex-binary-gender-kathleen-lowery.html?searchResultPosition=3
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/09/30/crosswords/wordle-review-answer-833.html?searchResultPosition=4
+**Should I Get a Smart Lock for My House, or Stick With a Deadbolt?**\
+`‘Everything that gets locked, gets unlocked,’ said one professional. So it’s a matter of your preference and what your home can accommodate.`\
+https://nytimes.com/2023/09/30/realestate/smart-lock-or-deadbolt.html?searchResultPosition=4
 
-**How Mary Harron, Film Director, Spends Her Sundays**\
-`The director of “Dalíland” and “American Psycho” loves the Cloisters, secondhand furniture from Housing Works, and New York’s old-school movie theaters.`\
-https://nytimes.com/2023/09/30/nyregion/mary-harron-director-daliland.html?searchResultPosition=5
+**‘Close to the Line’: Why More Seniors Are Living in Poverty**\
+`Benefits extended earlier in the coronavirus pandemic have been rolled back. But many older Americans are not taking advantage of the aid still available.`\
+https://nytimes.com/2023/09/30/health/seniors-poverty-social-security.html?searchResultPosition=5
 
-**One Way to Help Teacher Salaries Go Further: Free Housing**\
-`With affordable housing scarce, one Connecticut child care center is providing its staff with rent-free homes designed by Yale architecture students.`\
-https://nytimes.com/2023/09/30/nyregion/child-care-teachers-housing-connecticut.html?searchResultPosition=6
+**How Did the Government Get to a Shutdown, and What Will It Take to Reopen?**\
+`Any deal to keep it open would have to be bipartisan, since the Senate and White House are controlled by Democrats, and the House by Republicans.`\
+https://nytimes.com/2023/09/30/us/politics/shutdown-government-reopen.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/09/30/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Halloween in New York: Things to Do in October**\
+`Our guide for what to do this month in the city, from the Village parade to screenings of horror movies and kid-friendly haunted houses.`\
+https://nytimes.com/2023/09/30/arts/nyc-halloween-events-october.html?searchResultPosition=7
 
-**Why Evergrande’s Problems Are Only Getting Worse**\
-`The Chinese property developer’s efforts to restructure more than $300 billion in debt are being complicated by criminal investigations into current and former executives.`\
-https://nytimes.com/2023/09/30/business/china-evergrande-explained.html?searchResultPosition=8
+**Gabriela Wiener Does Not Care if You Don’t See Her Writing as Literature**\
+`The Peruvian author wants to “decolonize” everything — starting with her body and her family. Her latest book, “Undiscovered,” investigates the 19th-century European explorer that shares her last name.`\
+https://nytimes.com/2023/09/30/books/gabriela-wiener-undiscovered.html?searchResultPosition=8
 
-**Slovakia’s Election Could Echo in Ukraine. Here’s What to Expect.**\
-`A leader who has railed against NATO and sanctions on Russia appears poised for a strong showing. That could threaten Europe’s unity on support for Ukraine.`\
-https://nytimes.com/2023/09/30/world/europe/slovakia-election-ukraine-fico.html?searchResultPosition=9
+**Conducting Lessons: How Bradley Cooper Became Leonard Bernstein**\
+`For “Maestro,” Cooper learned from top conductors like Gustavo Dudamel and Yannick Nézet-Séguin — and by stealth in concert halls or from the orchestra pit.`\
+https://nytimes.com/2023/09/30/arts/music/bradley-cooper-maestro-learning-to-conduct.html?searchResultPosition=9
 
-**How China’s Property Crisis Is Testing Its Too-Big-to-Fail Banks**\
-`Banks hold enormous amounts of real estate debt, and regulators are nervous. But a fast-moving crisis is unlikely because the government has extensive control of the system.`\
-https://nytimes.com/2023/09/30/business/china-evergrande-banks-property.html?searchResultPosition=10
+**Shohei Ohtani’s Impossible, Unrivaled, Bittersweet Season**\
+`It might have been the greatest year of individual achievement in major-league history. Will we ever see its like again?`\
+https://nytimes.com/2023/09/30/magazine/shohei-ohtani.html?searchResultPosition=10
 
