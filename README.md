@@ -28,7 +28,7 @@ https://nytimes.com/2023/09/30/opinion/biden-trump-uaw-strike.html?searchResultP
 
 **Government Hurtles Toward Shutdown as G.O.P. House Hunts for Last-Ditch Deal**\
 `It was not clear whether the House could find a way to keep the government funded after hard-right Republicans defeated a stopgap measure and the speaker was forced to turn to Democrats for help.`\
-https://nytimes.com/2023/09/30/us/government-shutdown-house-republicans.html?searchResultPosition=8
+https://nytimes.com/live/2023/09/30/us/government-shutdown-news/government-shutdown-house-republicans?searchResultPosition=8
 
 **U2 Returns, in Las Vegas Limbo**\
 `In the inaugural show at Sphere, a $2.3 billion venue, a band unafraid of pomp and spectacle was sometimes out-pomped and out-spectacled.`\
