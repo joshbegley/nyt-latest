@@ -34,7 +34,7 @@ https://nytimes.com/2023/09/30/business/china-evergrande-explained.html?searchRe
 `A leader who has railed against NATO and sanctions on Russia appears poised for a strong showing. That could threaten Europe’s unity on support for Ukraine.`\
 https://nytimes.com/2023/09/30/world/europe/slovakia-election-ukraine-fico.html?searchResultPosition=9
 
-**How China’s Property Crisis Is Testing Its Too-Big-to-Fail Banks**\
-`Banks hold enormous amounts of real estate debt, and regulators are nervous. But a fast-moving crisis is unlikely because the government has extensive control of the system.`\
-https://nytimes.com/2023/09/30/business/china-evergrande-banks-property.html?searchResultPosition=10
+**Maldives Votes in Presidential Runoff Overshadowed by India and China**\
+`The election has become a referendum on the two Asian giants’ influence on the small nation’s direction.`\
+https://nytimes.com/2023/09/30/world/asia/maldives-election-india-china.html?searchResultPosition=10
 
