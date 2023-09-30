@@ -3,7 +3,7 @@
 https://nytimes.com/2023/09/30/us/maui-hawaii-fire-victim-burn-unit.html?searchResultPosition=1
 
 **At Carter’s Birthday Party, Rescheduled in Case of Shutdown, a Wary Celebration**\
-`Anticipating its closure, the Carter library moved up celebrations for the former president, who is turning 99. As partygoers played games and ate cake, some called the deadlock in Congress “a shame.”`\
+`Anticipating its closure, the Carter library moved up celebrations for the former president, who is turning 99. As partygoers played games and ate cake, some called the deadlock in Congress “shameful.”`\
 https://nytimes.com/2023/09/30/us/politics/jimmy-carter-birthday-party-library.html?searchResultPosition=2
 
 **Running San Francisco Made Dianne Feinstein**\
