@@ -1,40 +1,40 @@
+**Multiple Fatalities After Crash Causes Anhydrous Ammonia Leak**\
+`A tanker carrying the toxic gas crashed and ruptured on Friday night, leading to an evacuation of residents within a one-mile radius of Teutopolis, Ill., officials said.`\
+https://nytimes.com/2023/09/30/us/illinois-truck-crash-ammonia-leak.html?searchResultPosition=1
+
+**Modi’s Hindu Nationalism Stokes Tension in Indian Diaspora**\
+`The killing of a Canadian Sikh leader, carried out by what Canada described as Indian government agents, occurred amid widening divisions in the diaspora.`\
+https://nytimes.com/2023/09/30/world/canada/modi-canada-hindu-nationalism.html?searchResultPosition=2
+
+**For Native American Tribes, Shutdown Stakes Are Especially High**\
+`Tribal governments are heavily dependent on federal funding because of treaties guaranteeing basic services.`\
+https://nytimes.com/2023/09/30/us/native-american-tribes-government-shutdown.html?searchResultPosition=3
+
 **Gorgeous Thieboudienne, Maple-Butter Roast Chicken and Gochujang Potato Stew**\
 `Satisfying (and simple) recipes for feeding friends and family.`\
-https://nytimes.com/2023/09/30/dining/gorgeous-thieboudienne-maple-butter-roast-chicken-and-gochujang-potato-stew.html?searchResultPosition=1
+https://nytimes.com/2023/09/30/dining/gorgeous-thieboudienne-maple-butter-roast-chicken-and-gochujang-potato-stew.html?searchResultPosition=4
 
 **A President on a Picket Line**\
 `Biden and Trump see solidarity very differently.`\
-https://nytimes.com/2023/09/30/opinion/biden-trump-uaw-strike.html?searchResultPosition=2
+https://nytimes.com/2023/09/30/opinion/biden-trump-uaw-strike.html?searchResultPosition=5
 
 **Government Hurtles Toward Shutdown as G.O.P. House Hunts for Last-Ditch Deal**\
 `There was no clear path forward in the House to keep the government funded after hard-right Republicans defeated a stopgap measure and the speaker refused to turn to Democrats for help.`\
-https://nytimes.com/2023/09/30/us/government-shutdown-house-republicans.html?searchResultPosition=3
+https://nytimes.com/2023/09/30/us/government-shutdown-house-republicans.html?searchResultPosition=6
 
 **U2 Returns, in Las Vegas Limbo**\
 `In the inaugural show at Sphere, a $2.3 billion venue, a band unafraid of pomp and spectacle was sometimes out-pomped and out-spectacled.`\
-https://nytimes.com/2023/09/30/arts/music/u2-sphere-las-vegas.html?searchResultPosition=4
+https://nytimes.com/2023/09/30/arts/music/u2-sphere-las-vegas.html?searchResultPosition=7
 
 **Lori Teresa Yearwood, Journalist of Life on the Edge, Dies at 57**\
 `Once a reporter for The Miami Herald, she became homeless. She later returned to journalism, calling on her experience to cover the continuing homelessness crisis.`\
-https://nytimes.com/2023/09/30/us/lori-teresa-yearwood-dead.html?searchResultPosition=5
+https://nytimes.com/2023/09/30/us/lori-teresa-yearwood-dead.html?searchResultPosition=8
 
 **In Texas, Mums Rival Football as the Big Homecoming Attraction**\
 `The elaborate adornments have come a long way since the days of simple chrysanthemum corsages.`\
-https://nytimes.com/2023/09/30/style/mums-homecoming-football-texas.html?searchResultPosition=6
+https://nytimes.com/2023/09/30/style/mums-homecoming-football-texas.html?searchResultPosition=9
 
 **Hunter-Gatherers Were Making Baskets 9,500 Years Ago, Researchers Say**\
 `Dozens of items that were found in a cave in southern Spain more than a century ago date from the Mesolithic era and are much older than previously thought, according to a new study.`\
-https://nytimes.com/2023/09/30/science/ancient-woven-baskets-spain.html?searchResultPosition=7
-
-**Listen Early to ‘This American Life’: The One Place I Can’t Go**\
-`Regions we skirt in our private maps of the world.`\
-https://nytimes.com/2023/09/30/podcasts/listen-early-to-this-american-life-the-one-place-i-cant-go.html?searchResultPosition=8
-
-**Pandemic Relief Funding for Child Care Is Ending. What Now?**\
-`More than 80 percent of licensed child care providers in the United States received the grants, which they used to pay bills and raise wages for staff.`\
-https://nytimes.com/2023/09/30/business/dealbook/pandemic-relief-funding-for-child-care-is-ending-what-now.html?searchResultPosition=9
-
-**Make TV and Movies Weird Again**\
-`There’s a depressing sameness out there — but movies like ‘Bottoms’ are a beacon.`\
-https://nytimes.com/2023/09/30/opinion/tiktok-bottoms-max-streaming.html?searchResultPosition=10
+https://nytimes.com/2023/09/30/science/ancient-woven-baskets-spain.html?searchResultPosition=10
 
