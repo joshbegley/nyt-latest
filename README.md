@@ -1,6 +1,6 @@
 **At Carter’s Birthday Party, Rescheduled in Case of Shutdown, a Wary Celebration**\
 `Anticipating its closure, the Carter library moved up celebrations for the former president, who is turning 99. As partygoers played games and ate cake, some called the deadlock in Congress “a shame.”`\
-https://nytimes.com/2023/09/30/us/politics/at-carters-birthday-party-rescheduled-in-case-of-shutdown-a-wary-celebration.html?searchResultPosition=1
+https://nytimes.com/2023/09/30/us/politics/jimmy-carter-birthday-party-library.html?searchResultPosition=1
 
 **Running San Francisco Made Dianne Feinstein**\
 `During her decade running the cantankerous city, she managed to steer it between a liberal, freewheeling future and its more conservative traditions.`\
