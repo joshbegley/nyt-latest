@@ -4,7 +4,7 @@ https://nytimes.com/2023/09/30/world/canada/canada-parliament-speaker-vote.html?
 
 **Russian Drone Strike Sparks Fire at Plant, Ukraine Says**\
 `Ukraine’s air force said it shot down 30 of 40 of the slow-moving drones fired from the Russian-occupied region of Crimea.`\
-https://nytimes.com/2023/09/30/world/russia-ukraine-war.html?searchResultPosition=2
+https://nytimes.com/2023/09/30/world/europe/russia-ukraine-war.html?searchResultPosition=2
 
 **San Francisco Mourns Its Homegrown Senator and the End of the Feinstein Era**\
 `Dianne Feinstein’s life was inseparable from the fortunes and tragedies of San Francisco over nine decades.`\
