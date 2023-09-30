@@ -18,7 +18,7 @@ https://nytimes.com/2023/09/30/nyregion/nyc-flooding-storm.html?searchResultPosi
 `The wedding hall lacked emergency exits and a sprinkler system, and was made of materials that seemed similar to those used in Grenfell Tower in London, where a fire in 2017 killed 79 people.`\
 https://nytimes.com/2023/09/30/world/middleeast/iraq-wedding-hall-fire.html?searchResultPosition=5
 
-**Multiple Fatalities After Crash Causes Anhydrous Ammonia Leak**\
+**5 Dead After Crash Causes Anhydrous Ammonia Leak**\
 `A tanker carrying the toxic gas crashed and ruptured on Friday night, leading to an evacuation of residents within a one-mile radius of Teutopolis, Ill., officials said.`\
 https://nytimes.com/2023/09/30/us/illinois-truck-crash-ammonia-leak.html?searchResultPosition=6
 
