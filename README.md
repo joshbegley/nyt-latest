@@ -10,8 +10,8 @@ https://nytimes.com/live/2023/09/30/us/government-shutdown-news/a-key-driver-of-
 `An American who settled in Vienna, she had a prolific career in contemporary classical music and broke gender barriers in her field.`\
 https://nytimes.com/2023/09/30/arts/music/nancy-van-de-vate-dead.html?searchResultPosition=3
 
-**Live Vote Count: House Stopgap Measure as Shutdown Looms**\
-`See how each member of the House of Representatives is voting on a measure to keep the government open for 45 days.`\
+**Live Vote Count: House Stopgap Spending Measure**\
+`See how each member of the House of Representatives voted on a measure to keep the government open for 45 days.`\
 https://nytimes.com/interactive/2023/09/30/us/politics/shutdown-live.html?searchResultPosition=4
 
 **FEMA could not continue all its relief operations during a shutdown, its leader says.**\
