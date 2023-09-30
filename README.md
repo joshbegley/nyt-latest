@@ -6,8 +6,8 @@ https://nytimes.com/2023/09/30/us/marion-kansas-police-chief-suspended.html?sear
 `In much of Europe, the election was seen as a bellwether of mainstream support for Ukraine in its war with Russia. But voters seemed most concerned with pocketbook issues.`\
 https://nytimes.com/2023/09/30/world/europe/slovakia-election-ukraine.html?searchResultPosition=2
 
-**Live Vote Count: Senate Stopgap Spending Measure**\
-`The Senate is voting on a bill to fund the federal government through mid-November. See how each senator votes.`\
+**How Each Member Voted on the Senate Stopgap Spending Measure**\
+`The Senate overwhelmingly passed a bill to fund the federal government through mid-November. See how each senator voted.`\
 https://nytimes.com/interactive/2023/09/30/us/politics/senate-shutdown-vote-live.html?searchResultPosition=3
 
 **Senate Democrat Threatens to Block More of Military Aid to Egypt**\
