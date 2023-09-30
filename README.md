@@ -23,7 +23,7 @@ https://nytimes.com/live/2023/09/30/us/government-shutdown-news/a-key-driver-of-
 https://nytimes.com/2023/09/30/arts/music/nancy-van-de-vate-dead.html?searchResultPosition=6
 
 **How Each Member Voted on the House Stopgap Spending Measure**\
-`See how each member of the House of Representatives voted on a measure to keep the government open for 45 days.`\
+`See how each member of the House of Representatives voted on a measure to keep the government open through mid-November.`\
 https://nytimes.com/interactive/2023/09/30/us/politics/shutdown-live.html?searchResultPosition=7
 
 **FEMA could not continue all its relief operations during a shutdown, its leader says.**\
