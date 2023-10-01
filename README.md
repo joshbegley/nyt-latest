@@ -1,5 +1,5 @@
 **Chipotle Manager Pulled Off Worker’s Hijab, U.S. Says in Lawsuit**\
-`An official with the Equal Employment Opportunity Commission, which filed the lawsuit, said the nature of the allegations were “quite egregious.”`\
+`An official with the Equal Employment Opportunity Commission, which filed the lawsuit, said the nature of the allegations was “quite egregious.”`\
 https://nytimes.com/2023/10/01/business/chipotle-hijab-lawsuit-kansas.html?searchResultPosition=1
 
 **Unease in the West as Slovakia Appears Set to Join the Putin Sympathizers**\
