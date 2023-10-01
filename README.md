@@ -34,7 +34,7 @@ https://nytimes.com/2023/10/01/opinion/christian-nationalism-trump-renew-america
 `Pegged to the movie “Dumb Money,” a discussion of the growing stupidity in the stock market.`\
 https://nytimes.com/2023/10/01/opinion/dumb-money-movie-gamestop-stock.html?searchResultPosition=9
 
-**Have Gear, Will Deliver: Why I Carry Supplies to Ukrainian Troops**\
+**Spider Boots, Boxers, Hoverboards: When Ukrainian Troops Ask, We Deliver**\
 `An army of individuals transport needed nonlethal supplies to Ukrainian military personnel in the field.`\
 https://nytimes.com/2023/10/01/opinion/volunteering-supplies-ukraine-military.html?searchResultPosition=10
 
