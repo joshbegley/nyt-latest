@@ -26,8 +26,8 @@ https://nytimes.com/2023/10/01/opinion/rebates-tax-credits-energy-homes.html?sea
 `Its proponents trade on the moral currency of defiance, but in practice they are highly conventional.`\
 https://nytimes.com/2023/10/01/opinion/banned-books-week.html?searchResultPosition=7
 
-**Christian Nationalism May Not Be Serious, but It’s Dangerous**\
-`This is one reason the Trump won’t break.`\
+**One Reason the Trump Fever Won’t Break**\
+`Christian nationalism may not be serious, but it’s very dangerous. `\
 https://nytimes.com/2023/10/01/opinion/christian-nationalism-trump-renew-america.html?searchResultPosition=8
 
 **‘Dumb Money’ Exposes the Baffling Allure of Bad Investment Advice**\
