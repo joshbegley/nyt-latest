@@ -6,7 +6,7 @@ https://nytimes.com/2023/10/01/learning/whats-going-on-in-this-picture-oct-2-202
 `A compromise in Congress averted a government shutdown, but battles over federal spending remain ahead.`\
 https://nytimes.com/2023/10/01/briefing/government-shutdown-mccarthy.html?searchResultPosition=2
 
-**At Least 7 Killed in Nightclub Fire in Spain**\
+**At Least 13 Killed in Nightclub Fire in Spain**\
 `Spanish authorities are investigating the origins of the blaze, in the southeastern city of Murcia, which also left at least four people wounded from smoke inhalation.`\
 https://nytimes.com/2023/10/01/world/europe/spain-nightclub-fire.html?searchResultPosition=3
 
