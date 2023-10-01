@@ -18,8 +18,8 @@ https://nytimes.com/2023/10/01/world/europe/spain-nightclub-fire.html?searchResu
 `Many Chinese writers are looking for ways to capture the everyday realities that the government keeps hidden — sometimes at their own peril.`\
 https://nytimes.com/2023/10/01/podcasts/the-daily/chinese-literature-censorship.html?searchResultPosition=5
 
-**Will Biden’s Climate Law Change Your Life Before November 2024?**\
-`Why I’m worried about the next phase of the Inflation Reduction Act’s ro`\
+**The Climate Fight Will Be Won in the Appliance Aisle**\
+`Why I’m worried about the next phase of the Inflation Reduction Act’s rollout.`\
 https://nytimes.com/2023/10/01/opinion/rebates-tax-credits-energy-homes.html?searchResultPosition=6
 
 **This Is Why I Hate Banned Books Week**\
