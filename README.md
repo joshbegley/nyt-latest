@@ -16,7 +16,7 @@ https://nytimes.com/interactive/2023/09/30/us/politics/senate-shutdown-vote-live
 
 **Senate Democrat Threatens to Block More of Military Aid to Egypt**\
 `The new chairman of the Senate Foreign Relations Committee could force the Biden administration to reverse its decision to send Egypt $235 million in military assistance.`\
-https://nytimes.com/2023/09/30/us/biden-military-aid-egypt.html?searchResultPosition=5
+https://nytimes.com/2023/09/30/us/politics/biden-military-aid-egypt.html?searchResultPosition=5
 
 **A Brief History of Consequential Deaths in Congress**\
 `Lawmakers’ deaths have sometimes helped to flip partisan control. With an aging, narrowly divided Senate, it could be a possibility again.`\
