@@ -6,13 +6,13 @@ https://nytimes.com/2023/10/01/podcasts/the-daily/chinese-literature-censorship.
 `Why I’m worried about the next phase of the Inflation Reduction Act’s ro`\
 https://nytimes.com/2023/10/01/opinion/rebates-tax-credits-energy-homes.html?searchResultPosition=2
 
-**Christian Nationalism May Not Be Serious, but It’s Dangerous**\
-`This is one reason the Trump won’t break.`\
-https://nytimes.com/2023/10/01/opinion/christian-nationalism-trump-renew-america.html?searchResultPosition=3
-
 **This Is Why I Hate Banned Books Week**\
 `Its proponents trade on the moral currency of defiance, but in practice they are highly conventional.`\
-https://nytimes.com/2023/10/01/opinion/banned-books-week.html?searchResultPosition=4
+https://nytimes.com/2023/10/01/opinion/banned-books-week.html?searchResultPosition=3
+
+**Christian Nationalism May Not Be Serious, but It’s Dangerous**\
+`This is one reason the Trump won’t break.`\
+https://nytimes.com/2023/10/01/opinion/christian-nationalism-trump-renew-america.html?searchResultPosition=4
 
 **‘Dumb Money’ Exposes the Baffling Allure of Bad Investment Advice**\
 `Pegged to the movie “Dumb Money,” a discussion of the growing stupidity in the stock market.`\
