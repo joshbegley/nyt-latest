@@ -1,5 +1,5 @@
 **Tim Wakefield, Pitcher Who Helped Boston Break the Curse, Dies at 57**\
-`After pitching a walk-off home run that ended the Red Sox run in 2003, he played a critical role in the team’s World Series victory a year later.`\
+`After surrendering a homer that ended the Red Sox run in 2003, he played a critical role in the team’s World Series victory a year later.`\
 https://nytimes.com/2023/10/01/obituaries/tim-wakefield-dead.html?searchResultPosition=1
 
 **Scissors Sound**\
