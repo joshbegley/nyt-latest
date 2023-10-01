@@ -34,7 +34,7 @@ https://nytimes.com/2023/10/01/podcasts/the-daily/chinese-literature-censorship.
 `Why I’m worried about the next phase of the Inflation Reduction Act’s rollout.`\
 https://nytimes.com/2023/10/01/opinion/rebates-tax-credits-energy-homes.html?searchResultPosition=9
 
-**This Is Why I Hate Banned Books Week**\
-`Its proponents trade on the moral currency of defiance, but in practice they are highly conventional.`\
+**The Enemies of Literature Are Winning**\
+`The proponents of Banned Books Week trade on the moral currency of defiance, but in practice they are highly conventional.`\
 https://nytimes.com/2023/10/01/opinion/banned-books-week.html?searchResultPosition=10
 
