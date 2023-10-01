@@ -1,5 +1,5 @@
 **Chris Snow, Hockey Executive Who Publicly Faced A.L.S., Dies at 42**\
-`The assistant general manager of the Calgary Flames of the N.H.L. was given a year to live when he received the diagnosis in 2019. He and his wife used their time to document life with the disease. He died on Saturday.`\
+`The assistant general manager of the Calgary Flames of the N.H.L. was given a year to live when he received the diagnosis in 2019. He and his wife used their time to document life with the disease.`\
 https://nytimes.com/2023/09/30/sports/chris-snow-als-dead.html?searchResultPosition=1
 
 **Police Chief Who Ordered Raid on Kansas Newspaper Is Suspended**\
