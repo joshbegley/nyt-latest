@@ -6,7 +6,7 @@ https://nytimes.com/2023/10/02/us/politics/putin-ukraine-spy-united-states.html?
 `Josh Kruger, 39, was shot seven times. The police said that no arrests had been made.`\
 https://nytimes.com/2023/10/02/business/media/josh-kruger-journalist-shooting-philadelphia.html?searchResultPosition=2
 
-**Witness list reads like a Trump family (and company) reunion.**\
+**The witness list reads like a Trump family (and company) reunion.**\
 `By Kate Christobek`\
 https://nytimes.com/live/2023/10/02/nyregion/trump-fraud-trial/witness-list-reads-like-a-trump-family-and-company-reunion?searchResultPosition=3
 
