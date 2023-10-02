@@ -7,7 +7,7 @@ https://nytimes.com/2023/10/02/style/balenciaga-loewe-paris-fashion-week.html?se
 https://nytimes.com/2023/10/02/world/asia/typhoon-koinu-taiwan.html?searchResultPosition=2
 
 **E.U. Foreign Ministers Gather in Kyiv for Surprise Summit**\
-`The historic meeting in Kyiv, Ukraine marked the first time foreign ministers of the 27 E.U. nations would meet outside of its borders.`\
+`The gathering in Kyiv, Ukraine, was the first time foreign ministers of the 27 E.U. nations would meet outside of its borders.`\
 https://nytimes.com/video/world/europe/100000009112887/eu-mofa-kyiv-kuleba-borrell.html?searchResultPosition=3
 
 **The meeting is the first to be held outside the borders of the European Union.**\
