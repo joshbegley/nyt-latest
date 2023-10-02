@@ -1,40 +1,40 @@
-**Shoes on the Table! And Other Challenges to the Fashion Status Quo**\
-`It’s time we expect more from our clothes. Assessing the options at Balenciaga, Loewe, Hermès and Comme des Garçons.`\
-https://nytimes.com/2023/10/02/style/balenciaga-loewe-paris-fashion-week.html?searchResultPosition=1
+**Kevin McCarthy Surprised Us All**\
+`Does this mean there’s a sanity caucus out there for the taking?`\
+https://nytimes.com/2023/10/02/opinion/mccarthy-biden-trump-milley.html?searchResultPosition=1
 
-**Typhoon Koinu Moves Toward Taiwan, on Track for Thursday Landfall**\
-`Forecasters in Taiwan expected Koinu, which formed over the weekend, to get stronger in the coming days.`\
-https://nytimes.com/2023/10/02/world/asia/typhoon-koinu-taiwan.html?searchResultPosition=2
+**Investigators of Iraqi Wedding Hall Blaze Call for Officials to Be Fired**\
+`The fire that killed almost 120 people had been accidental, a report said, but occurred after a series of decisions that proved deadly.`\
+https://nytimes.com/2023/10/02/world/middleeast/iraq-wedding-fire.html?searchResultPosition=2
 
-**E.U. Foreign Ministers Gather in Kyiv for Surprise Summit**\
-`The gathering in Kyiv, Ukraine, was the first time foreign ministers of the 27 E.U. nations would meet outside of its borders.`\
-https://nytimes.com/video/world/europe/100000009112887/eu-mofa-kyiv-kuleba-borrell.html?searchResultPosition=3
+**McCarthy’s Speakership Is in Jeopardy This Week After a Threat to Oust Him**\
+`Speaker Kevin McCarthy faces a major test of his leadership in the days ahead, after one of his loudest Republican critics in the House promised to try to remove him from his post.`\
+https://nytimes.com/2023/10/02/us/politics/mccarthy-gaetz-house-speaker.html?searchResultPosition=3
 
-**The meeting is the first to be held outside the borders of the European Union.**\
-`By Vivek Shankar`\
-https://nytimes.com/live/2023/10/02/world/russia-ukraine-news/the-meeting-is-the-first-to-be-held-outside-the-borders-of-the-european-union?searchResultPosition=4
+**Why Do Runway Models Always Look So Grumpy?**\
+`A reader wonders why we rarely see smiles on the catwalk — and if that’s always been the case in fashion.`\
+https://nytimes.com/2023/10/02/style/runway-models-smile.html?searchResultPosition=4
 
-**Trump’s Trial Starts Monday. It Will Spotlight What He’s Really Worth.**\
-`The judge in the civil case has already decided Donald J. Trump inflated his financial statements. Now, he will make rulings that will affect Mr. Trump’s future as a businessman.`\
-https://nytimes.com/2023/10/02/nyregion/trump-fraud-trial-start.html?searchResultPosition=5
+**Russia May Be Planning to Test a Nuclear-Powered Missile**\
+`Visual evidence from a remote base in the Arctic shows launch preparations mirroring those that preceded earlier tests.`\
+https://nytimes.com/2023/10/02/video/russia-nuclear-missile.html?searchResultPosition=5
 
-**New York Schools Weathered a Crisis. Now They Face a Fiscal Cliff.**\
-`The city faces billions in financial pressures in the coming years that threaten to worsen inequality across the nation’s largest school system.`\
-https://nytimes.com/2023/10/02/nyregion/nyc-schools-financial-crisis.html?searchResultPosition=6
+**I Read Banned Books. So Does Almost Everybody Else.**\
+`In the end, great books will always be their own best defense.`\
+https://nytimes.com/2023/10/02/opinion/book-bans-education-librarians.html?searchResultPosition=6
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/10/02/crosswords/wordle-review-answer-835.html?searchResultPosition=7
+**What Is a Synod in the Catholic Church? And Why Does This One Matter?**\
+`A seemingly obscure meeting could be the culmination of Francis’ papacy and lay the groundwork for lasting change on issues like married priests and the blessing of gay unions.`\
+https://nytimes.com/2023/10/02/world/europe/what-is-a-synod-pope-church.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/10/02/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**Vatican Assembly Puts the Church’s Most Sensitive Issues on the Table**\
+`Pope Francis’ calls for open-minded discussion will be tested this week as bishops meet with lay people, including women, to debate topics such as married priests and the blessing of gay couples.`\
+https://nytimes.com/2023/10/02/world/europe/pope-francis-synod.html?searchResultPosition=8
 
-**Word of the Day: a cappella**\
-`This term has appeared in 56 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/10/02/learning/word-of-the-day-a-cappella.html?searchResultPosition=9
+**Abortion Bans by Any Other Name Are Still Abortion Bans**\
+`With post-Roe outrage showing no sign of waning, strategists on the right are pushing a new lexicon on abortion.`\
+https://nytimes.com/2023/10/02/opinion/abortion-bans-by-any-other-name-are-still-abortion-bans.html?searchResultPosition=9
 
-**What’s on TV This Week: ‘Catfish’ and ‘Sullivan’s Crossing’**\
-`The MTV show is back for a ninth season. The CW premieres a new show based on a novel of the same name.`\
-https://nytimes.com/2023/10/02/arts/television/whats-on-tv-this-week-catfish-and-sullivans-crossing.html?searchResultPosition=10
+**My Fellow Republicans: It’s Time to Grow Up**\
+`A former member of Congress has advice for his fellow Republicans who are considering ousting Speaker McCarthy.`\
+https://nytimes.com/2023/10/02/opinion/kevin-mccarthy-house-republicans-shutdown.html?searchResultPosition=10
 
