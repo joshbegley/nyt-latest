@@ -4,7 +4,7 @@ https://nytimes.com/2023/10/02/business/wework-misses-interest-payments.html?sea
 
 **Democrats Weigh Whether to Rescue McCarthy From G.O.P. Ouster Bid**\
 `Party officials said that without promises to address their policy priorities, the speaker should not count on Democratic votes to save him.`\
-https://nytimes.com/2023/10/02/us/politics/mccarthy-remove-speaker-democrats.html?searchResultPosition=2
+https://nytimes.com/2023/10/02/us/politics/democrats-mccarthy-speaker.html?searchResultPosition=2
 
 **U.N. Approves Kenya Mission to Haiti**\
 `Kenyan security forces are expected to head to Haiti for a year to combat gang violence that has killed thousands.`\
