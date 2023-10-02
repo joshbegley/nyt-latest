@@ -19,7 +19,7 @@ https://nytimes.com/2023/10/01/corrections/no-corrections-oct-2-2023.html?search
 https://nytimes.com/2023/10/01/pageoneplus/quotation-of-the-day-outside-the-beltway-dysfunction-induces-a-big-public-yawn.html?searchResultPosition=5
 
 **Newsom Names Emily’s List President as Feinstein Successor**\
-`Laphonza Butler will fill the Senate vacancy left by the death of Dianne Feinstein, the governor announced Sunday.`\
+`Laphonza Butler fills the Senate vacancy left by the death of Dianne Feinstein, the governor announced Sunday.`\
 https://nytimes.com/2023/10/01/us/newsom-senate-feinstein-laphonza-butler.html?searchResultPosition=6
 
 **What Role Should Young People Play in the Fight Against Climate Change?**\
