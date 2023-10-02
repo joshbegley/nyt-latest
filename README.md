@@ -11,7 +11,7 @@ https://nytimes.com/2023/10/02/world/americas/un-kenya-mission-haiti.html?search
 https://nytimes.com/2023/10/02/us/politics/supreme-court-first-step-act.html?searchResultPosition=3
 
 **At Spanish Disco Where Fire Killed 13, Grief and Unanswered Questions**\
-`With only four of the bodies pulled from the charred remains of an disco complex near the Mediterranean Coast identified, the authorities are asking families for DNA samples.`\
+`With only four of the bodies pulled from the charred remains of a nightclub complex near the Mediterranean Coast identified, the authorities are asking families for DNA samples.`\
 https://nytimes.com/2023/10/02/world/europe/spain-club-fire-murcia.html?searchResultPosition=4
 
 **Echo Brown, Young Adult Author and Performer, Dies at 39**\
