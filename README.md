@@ -1,6 +1,6 @@
 **Bears Are Having a Moment**\
 `If you’ve fallen into the rabbit hole of bear videos on TikTok, you’re not alone. But are there more bears or just more viral clips?`\
-https://nytimes.com/2023/10/02/science/bear-human-videos.html?searchResultPosition=1
+https://nytimes.com/2023/10/02/science/fat-bear-week-bear-videos.html?searchResultPosition=1
 
 **Kenyan-Led Security Mission for Haiti Goes to U.N. Vote: What to Know**\
 `With hundreds killed, abducted and injured in a worsening cycle of gang violence in Haiti, Kenya has offered to lead a mission to help stabilize the country.`\
