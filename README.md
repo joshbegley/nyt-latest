@@ -18,8 +18,8 @@ https://nytimes.com/2023/10/01/corrections/no-corrections-oct-2-2023.html?search
 `Quotation of the Day for Monday, Oct. 2, 2023.`\
 https://nytimes.com/2023/10/01/pageoneplus/quotation-of-the-day-outside-the-beltway-dysfunction-induces-a-big-public-yawn.html?searchResultPosition=5
 
-**Newsom to Name Emily’s List President as Feinstein Successor**\
-`Gov. Gavin Newsom will name Laphonza Butler to fill the vacancy left by the death of Dianne Feinstein.`\
+**Newsom Names Emily’s List President as Feinstein Successor**\
+`Laphonza Butler will fill the Senate vacancy left by the death of Dianne Feinstein, the governor announced Sunday.`\
 https://nytimes.com/2023/10/01/us/newsom-senate-feinstein-laphonza-butler.html?searchResultPosition=6
 
 **What Role Should Young People Play in the Fight Against Climate Change?**\
