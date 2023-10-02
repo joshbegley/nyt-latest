@@ -1,5 +1,5 @@
 **At Spanish Disco Where Fire Killed 13, Grief and Unanswered Questions**\
-`With only four of the bodies pulled from the charred remains of an disco complex on the Mediterranean Coast identified, the authorities are asking families for DNA samples.`\
+`With only four of the bodies pulled from the charred remains of an disco complex near the Mediterranean Coast identified, the authorities are asking families for DNA samples.`\
 https://nytimes.com/2023/10/02/world/europe/spain-club-fire-murcia.html?searchResultPosition=1
 
 **Echo Brown, Young Adult Author and Performer, Dies at 39**\
