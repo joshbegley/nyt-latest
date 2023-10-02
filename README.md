@@ -1,6 +1,6 @@
 **Here’s the latest on Trump’s civil fraud trial in New York.**\
 `By Jonah E. Bromwich, Ben Protess and William K. Rashbaum`\
-https://nytimes.com/2023/10/02/nyregion/heres-the-latest-on-trumps-civil-fraud-trial-in-new-york.html?searchResultPosition=1
+https://nytimes.com/live/2023/10/02/nyregion/trump-fraud-trial/heres-the-latest-on-trumps-civil-fraud-trial-in-new-york?searchResultPosition=1
 
 **South Asians Are Divided Over a Pending Ban on Caste Discrimination**\
 `Some say a bill awaiting Gov. Gavin Newsom’s signature that would forbid caste-based bias is badly needed, while others say it unfairly singles out Hindus for legal exposure.`\
