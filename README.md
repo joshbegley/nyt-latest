@@ -18,7 +18,7 @@ https://nytimes.com/2023/10/02/business/media/josh-kruger-journalist-shooting-ph
 `By Kate Christobek`\
 https://nytimes.com/live/2023/10/02/nyregion/trump-fraud-trial/witness-list-reads-like-a-trump-family-and-company-reunion?searchResultPosition=5
 
-**Church Collapse in Mexico Kills at Least 10 During Collective Baptism**\
+**Church Collapse in Mexico Kills 10 During Collective Baptism**\
 `A church roof collapsed in a city on Mexico’s Gulf Coast as dozens of parishioners were at Sunday Mass. Rescuers said at least three children were among the dead.`\
 https://nytimes.com/2023/10/02/world/americas/mexico-church-collapse-madero.html?searchResultPosition=6
 
