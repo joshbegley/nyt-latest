@@ -1,5 +1,5 @@
 **Nobel Prize Awarded to Covid Vaccine Pioneers**\
-`The physiology or medicine prize for Katalin Kariko and Drew Weissman recognized work that led to the development of vaccines that were administered to billions around the world.`\
+`The physiology or medicine prize for Katalin Karikó and Drew Weissman recognized work that led to the development of vaccines that were administered to billions around the world.`\
 https://nytimes.com/2023/10/02/health/nobel-prize-medicine.html?searchResultPosition=1
 
 **Today’s Top News: Trump’s Fraud Trial Begins, and More**\
