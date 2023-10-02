@@ -1,5 +1,5 @@
-**Read the Illinois Governor’s Letter**\
-`Gov. J.B. Pritzker called for President Biden to step up federal aid as Chicago struggles to house thousands of migrants.`\
+**Gov. J.B. Pritzker’s Letter to President Biden**\
+`The Illinois governor called for the president, a fellow Democrat, to step up federal aid as Chicago struggles to house thousands of migrants.`\
 https://nytimes.com/interactive/2023/10/02/us/j-b-pritzker-biden-letter-migrants.html?searchResultPosition=1
 
 **Takeaways From a New Book on Sam Bankman-Fried**\
