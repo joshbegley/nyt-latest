@@ -1,6 +1,6 @@
 **Living With Diabetes On and Off the Grid**\
 `Three Dexcom Warriors share how the G7 continuous glucose monitoring system has allowed them to pursue their passions. `\
-https://nytimes.com/paidpost/dexcom/living-with-diabetes-on-and-off-the-grid/living-with-diabetes-on-and-off-the-grid.html?searchResultPosition=1
+https://nytimes.com/paidpost/dexcom/living-with-diabetes-on-and-off-the-grid.html?searchResultPosition=1
 
 **Support for taking in refugees has dropped in Poland and Hungary, a new survey shows.**\
 `By Gaya Gupta`\
