@@ -19,7 +19,7 @@ https://nytimes.com/article/trump-fraud-trial-takeaways.html?searchResultPositio
 https://nytimes.com/2023/10/02/us/doug-larsen-senator-plane-crash-killed.html?searchResultPosition=5
 
 **Missing Girl, 9, Found Safe in New York**\
-`Charlotte Sena went missing during an early evening bike ride on Saturday in Moreau Lake State Park, something New York’s governor called “every parent’s nightmare.”`\
+`Charlotte Sena went missing during an early evening bike ride on Saturday in Moreau Lake State Park. A suspect was in custody Monday evening after police raided homes in the vicinity.`\
 https://nytimes.com/2023/10/02/nyregion/charlotte-sena-missing-child-found-ny.html?searchResultPosition=6
 
 **Why MAGA Wants to Betray Ukraine**\
