@@ -3,7 +3,7 @@
 https://nytimes.com/2023/10/03/climate/the-climate-crisis-is-also-a-health-crisis.html?searchResultPosition=1
 
 **Trump Ordered Not to Comment on Judge’s Staff in Fraud Case**\
-`The former president attacked the judge’s clerk in a social media post that quickly disappeared.`\
+`The former president attacked Justice Arthur F. Engoron’s clerk in a social media post that soon disappeared. He was called to account behind closed doors.`\
 https://nytimes.com/2023/10/03/nyregion/trump-gag-order-fraud-trial.html?searchResultPosition=2
 
 **Water-Stressed Arizona Says State Will End Leases to Saudi-Owned Farm**\
