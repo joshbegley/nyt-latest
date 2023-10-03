@@ -23,7 +23,7 @@ https://nytimes.com/2023/10/03/business/media/directv-cnn-streaming-service-deal
 https://nytimes.com/interactive/2023/10/03/learning/03StudentNewsQuiz.html?searchResultPosition=6
 
 **Kaiser Permanente Workers Poised to Strike**\
-`The health care system provides care for 13 million people in eight states. Union officials say this could be the largest strike by health care workers in recent U.S. history.`\
+`The health care system provides care for 13 million people in eight states. Union officials say the job action — threatened for Wednesday — could be the largest strike by health care workers in recent U.S. history.`\
 https://nytimes.com/2023/10/03/health/kaiser-permanente-workers-strike.html?searchResultPosition=7
 
 **Daring to Hope That Democracy Will Prevail**\
