@@ -1,4 +1,4 @@
-**Judge Places Gag Order on Trump in Civil Fraud Trial**\
+**Trump Ordered Not to Comment on Judge or Staff in Fraud Case**\
 `The former president attacked the judge’s clerk in a social media post that quickly disappeared.`\
 https://nytimes.com/2023/10/03/nyregion/trump-gag-order-fraud-trial.html?searchResultPosition=1
 
