@@ -1,21 +1,25 @@
-**Trump Ordered Not to Comment on Judge or Staff in Fraud Case**\
+**The climate crisis is also a health crisis**\
+`Rising global temperatures are undoing hard-earned progress.`\
+https://nytimes.com/2023/10/03/climate/the-climate-crisis-is-also-a-health-crisis.html?searchResultPosition=1
+
+**Trump Ordered Not to Comment on Judge’s Staff in Fraud Case**\
 `The former president attacked the judge’s clerk in a social media post that quickly disappeared.`\
-https://nytimes.com/2023/10/03/nyregion/trump-gag-order-fraud-trial.html?searchResultPosition=1
+https://nytimes.com/2023/10/03/nyregion/trump-gag-order-fraud-trial.html?searchResultPosition=2
 
 **Water-Stressed Arizona Says State Will End Leases to Saudi-Owned Farm**\
 `The farm grows alfalfa for export to Saudi Arabia, where it’s fed to dairy cows. But the farm’s water use had come under scrutiny.`\
-https://nytimes.com/2023/10/03/climate/arizona-saudi-arabia-alfalfa-groundwater.html?searchResultPosition=2
+https://nytimes.com/2023/10/03/climate/arizona-saudi-arabia-alfalfa-groundwater.html?searchResultPosition=3
 
 **What’s on Your Fall Playlist?**\
 `Tell us which songs deliver sonic coziness for you.`\
-https://nytimes.com/2023/10/03/arts/music/amplifier-newsletter-fall-playlist.html?searchResultPosition=3
+https://nytimes.com/2023/10/03/arts/music/amplifier-newsletter-fall-playlist.html?searchResultPosition=4
 
 **Tiny Love Stories: ‘To the Skinny Girl with Sad Eyes’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2023/10/03/style/tiny-modern-love-stories-to-the-skinny-girl-with-sad-eyes.html?searchResultPosition=4
+https://nytimes.com/2023/10/03/style/tiny-modern-love-stories-to-the-skinny-girl-with-sad-eyes.html?searchResultPosition=5
 
 **Stevie Nicks Is Latest Celebrity to Be Immortalized as Barbie**\
 `The performer worked with Mattel to create a doll in her likeness, wearing an outfit inspired by the one she wore on the cover of Fleetwood Mac’s “Rumours.” She showed it off onstage at Madison Square Garden.`\
-https://nytimes.com/2023/10/03/arts/music/stevie-nicks-barbie.html?searchResultPosition=5
+https://nytimes.com/2023/10/03/arts/music/stevie-nicks-barbie.html?searchResultPosition=6
 
 **The Best Deals From Target Circle Week 2023**\
