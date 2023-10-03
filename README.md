@@ -10,7 +10,7 @@ https://nytimes.com/2023/10/03/arts/design/harvey-awards-hall-of-fame-members.ht
 `Nana Kwame Adjei-Brenyah, Paul Harding and Cristina Rivera Garza are among the honorees. Winners will be announced next month.`\
 https://nytimes.com/2023/10/03/books/national-book-award-finalists-2023.html?searchResultPosition=3
 
-**McCarthy to Call Vote on His Fate, Ruling Out Deal With Democrats**\
+**Here’s the latest on the speakership fight.**\
 `Speaker Kevin McCarthy’s slender majority and the number of right-wing rebels in favor of ousting him mean that he has little chance of survival without at least some support from Democrats.`\
 https://nytimes.com/live/2023/10/03/us/mccarthy-gaetz-speaker-news/kevin-mccarthy-speaker?searchResultPosition=4
 
