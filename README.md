@@ -35,6 +35,6 @@ https://nytimes.com/2023/10/03/world/europe/conservative-party-conference-uk-sun
 https://nytimes.com/2023/10/03/podcasts/headlines-nyt-audio-app.html?searchResultPosition=9
 
 **At 104, She Wondered: Could She Skydive Again?**\
-`In spring, Dorothy Hoffner said she had a sudden yearning to fall from 10,000 feet for a second time.`\
+`This spring, Dorothy Hoffner said, she had a sudden yearning to fall from 10,000 feet for a second time.`\
 https://nytimes.com/2023/10/03/us/104-year-old-skydiver-chicago.html?searchResultPosition=10
 
