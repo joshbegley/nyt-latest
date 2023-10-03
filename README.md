@@ -7,7 +7,7 @@ https://nytimes.com/live/2023/10/03/world/russia-ukraine-news/a-tactic-known-as-
 https://nytimes.com/2023/10/03/podcasts/the-daily/sbf-trial.html?searchResultPosition=2
 
 **Nobel Prize in Physics Awarded to 3 Scientists for Work on Electrons**\
-`The work by this year’s prize recipients concerns electrons in flashes of light.`\
+`Their work “allows us to address fundamental questions” such as the time scale of the photoelectric effect for which Einstein received the 1921 Nobel, the awarding committee chair said.`\
 https://nytimes.com/2023/10/03/science/nobel-prize-physics.html?searchResultPosition=3
 
 **Ghosts of Struggles Past and Future Haunt U.K. Conservative Showpiece**\
