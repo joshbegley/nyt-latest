@@ -1,6 +1,6 @@
 **Trudeau Rejects Retaliation As India Moves to Expel Canadian Diplomats**\
 `Prime Minister Justin Trudeau of Canada said that his country is in talks with India to avert the expulsions.`\
-https://nytimes.com/2023/10/03/world/canada/trudeau-rejects-retaliation-as-india-moves-to-expel-canadian-diplomats.html?searchResultPosition=1
+https://nytimes.com/2023/10/03/world/canada/trudeau-india-canada-diplomats.html?searchResultPosition=1
 
 **Armenia, long a Russian ally, moves to join the International Criminal Court after losing an enclave.**\
 `By Valerie Hopkins`\
