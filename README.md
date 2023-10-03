@@ -1,6 +1,6 @@
 **Supreme Court Skeptical in That Could Hobble Consumer Watchdog**\
 `The justices heard a challenge to the way Congress funded the Consumer Financial Protection Bureau but seemed persuaded that it was constitutional.`\
-https://nytimes.com/2023/10/03/us/supreme-court-consumer-financial-protection-bureau.html?searchResultPosition=1
+https://nytimes.com/2023/10/03/us/supreme-court-cfpb.html?searchResultPosition=1
 
 **Inside New York’s Least Competitive Bowling League**\
 `It started with a small group of friends. They invited their friends. Now, 100 or so players, many of whom work in fashion and design, meet for games that are in turn casual and chaotic.`\
@@ -18,9 +18,9 @@ https://nytimes.com/2023/10/03/us/doj-immigrant-witnesses-border.html?searchResu
 `By Angelo Fichera`\
 https://nytimes.com/live/2023/10/03/us/mccarthy-gaetz-speaker-news/fact-check-mccarthy-claims-credit-for-some-conservative-victories-in-the-house-that-fell-flat-in-the-senate?searchResultPosition=5
 
-**No Republicans have put themselves forward to replace McCarthy.**\
+**There Is No Clear Replacement Candidate for McCarthy**\
 `Republicans focused on ousting Speaker Kevin McCarthy aren’t in agreement about who they want to replace him.`\
-https://nytimes.com/2023/10/03/us/politics/no-republicans-have-put-themselves-forward-to-replace-mccarthy.html?searchResultPosition=6
+https://nytimes.com/2023/10/03/us/politics/house-speaker-replacement-mccarthy.html?searchResultPosition=6
 
 **Trump Targets Nikki Haley as She Climbs in the Polls**\
 `Ms. Haley, a former South Carolina governor, has taken the attacks as a signal that the Republican front-runner sees her as a threat.`\
