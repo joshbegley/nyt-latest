@@ -36,5 +36,5 @@ https://nytimes.com/2023/10/03/us/alaska-army-soldiers-crash.html?searchResultPo
 
 **U.S. Congressman’s Vehicle Was Stolen After He Was Held at Gunpoint in D.C.**\
 `The police recovered Rep. Henry Cuellar’s vehicle after it was stolen from the Navy Yard in Washington. The Texas Democrat was unharmed.`\
-https://nytimes.com/2023/10/03/arts/cuellar-car-theft.html?searchResultPosition=10
+https://nytimes.com/2023/10/03/us/politics/cuellar-car-theft.html?searchResultPosition=10
 
