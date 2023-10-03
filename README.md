@@ -6,9 +6,9 @@ https://nytimes.com/interactive/2023/world/americas/lidia-map-path-tracker.html?
 `Ms. Brown’s exit indicates how Meta’s priorities around news and its relationships with media companies have changed.`\
 https://nytimes.com/2023/10/03/technology/campbell-brown-leaves-meta.html?searchResultPosition=2
 
-**Here’s the math on the voting that will determine Kevin McCarthy’s fate.**\
-`Absences, abstentions, and`\
-https://nytimes.com/2023/10/03/us/politics/how-many-votes-does-mccarthy-need.html?searchResultPosition=3
+**Here’s How Many Votes Kevin McCarthy Needs to Survive**\
+`If some Democrats vote “present” or fewer House members show up to vote than predicted, Mr. McCarthy could win out.`\
+https://nytimes.com/2023/10/03/us/politics/votes-house-mccarthy-speaker.html?searchResultPosition=3
 
 **Supreme Court Skeptical in That Could Hobble Consumer Watchdog**\
 `The justices heard a challenge to the way Congress funded the Consumer Financial Protection Bureau but seemed persuaded that it was constitutional.`\
