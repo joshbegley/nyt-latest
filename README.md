@@ -1,6 +1,6 @@
-**McCarthy To Call Vote on His Fate, Ruling Out Deal With Democrats**\
+**McCarthy to Call Vote on His Fate, Ruling Out Deal With Democrats**\
 `Speaker Kevin McCarthy’s slender majority and the number of right-wing rebels in favor of ousting him mean that he has little chance of survival without at least some support from Democrats.`\
-https://nytimes.com/2023/10/03/us/politics/kevin-mccarthy-speaker.html?searchResultPosition=1
+https://nytimes.com/live/2023/10/03/us/mccarthy-gaetz-speaker-news/kevin-mccarthy-speaker?searchResultPosition=1
 
 **A Novel Imagines the Volatile Life of a 7th-Century Saint**\
 `“Menewood” continues Nicola Griffith’s epic portrayal of the abbess Hild of Whitby.`\
