@@ -1,40 +1,40 @@
-**Russia’s latest drone barrage came from Crimea, Ukrainian officials say.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/2023/10/03/world/europe/russias-latest-drone-barrage-came-from-crimea-ukrainian-officials-say.html?searchResultPosition=1
+**How Many Face Products Do I Really Need?**\
+`Sifting through all the advice can be confusing. But dermatologists say simpler is better.`\
+https://nytimes.com/2023/10/03/well/live/skin-care-routine-products.html?searchResultPosition=1
 
-**Ukraine’s snipers are an overlooked but essential part of the fight.**\
-`By Thomas Gibbons-Neff and Natalia Yermak`\
-https://nytimes.com/2023/10/03/world/europe/ukraines-snipers-are-an-overlooked-but-essential-part-of-the-fight.html?searchResultPosition=2
+**In America, Not Having a College Degree Can Take Years Off Your Life**\
+`There are two Americas, and they are divided by a college degree.`\
+https://nytimes.com/2023/10/03/opinion/life-expectancy-college-degree.html?searchResultPosition=2
 
-**Ukraine’s war of drones runs into an obstacle: China.**\
-`As the war with Russia stretches on, so too does a contest to make more and deadlier flying machines. That means a fight over global electronics supply chains that run through China.`\
-https://nytimes.com/live/2023/10/03/world/russia-ukraine-news/ukraines-war-of-drones-runs-into-an-obstacle-china?searchResultPosition=3
+**The 25 Best Restaurants in San Francisco Right Now**\
+`From world-class Korean barbecue to Mission-style burritos to quintessential California cuisine, here are our current favorites.`\
+https://nytimes.com/article/best-san-francisco-restaurants.html?searchResultPosition=3
 
-**Sex vs. Skin**\
-`Sometimes, what you see can make you think. Games of peekaboo at Valentino and Sacai.`\
-https://nytimes.com/2023/10/03/style/valentino-sacai-paris-fashion-week.html?searchResultPosition=4
+**Not Everyone Thinks the Middle East Can Have Democracy**\
+`Vincent Bevins’s “If We Burn” and Robert D. Kaplan’s “The Loom of Time” consider protest movements of the past and the drive for democracy in countries like Egypt, Syria and Iraq.`\
+https://nytimes.com/2023/10/03/books/review/if-we-burn-vincent-bevins-the-loom-of-time-robert-d-kaplan.html?searchResultPosition=4
 
-**Who Knew Recycling Could Be So Dramatic?**\
-`At Maison Margiela, John Galliano tells an epic tale in clothes.`\
-https://nytimes.com/2023/10/03/style/maison-margiela-john-galliano-paris-fashion-week.html?searchResultPosition=5
+**Starting New Conversations About Arab Art**\
+`This month, the Arab Museum of Modern Art in Doha, Qatar, will open four shows exploring the depth and breadth of the Arab world’s contemporary works.`\
+https://nytimes.com/2023/10/03/arts/museum-modern-arab-art-qatar.html?searchResultPosition=5
 
-**In the Big City, Wildlife Researchers Are on the Prowl**\
-`Scientists are studying urban animals and the diseases they carry, to understand the potential risks to people, pets and the animals themselves.`\
-https://nytimes.com/2023/10/03/science/new-york-raccoons-wildlife.html?searchResultPosition=6
+**A Paris Museum Looks Back, and Ahead**\
+`The director of the Musée d’Orsay, Christophe Leribault, discussed a show of Vincent van Gogh’s final works and plans for the institution’s future.`\
+https://nytimes.com/2023/10/03/arts/paris-musee-dorsay.html?searchResultPosition=6
 
-**Haters, Waiters, Fools and Buffoons: Eric Adams Rates His Critics**\
-`The mayor has lashed out at the many critiques of his administration, sometimes questioning whether they may be racially biased.`\
-https://nytimes.com/2023/10/03/nyregion/eric-adams-critics-enemies.html?searchResultPosition=7
+**A Vienna Museum Mounts a Monumental Look at Robert Motherwell**\
+`This month, the Kunstforum in Vienna will host a sweeping exhibit on the Abstract Expressionist’s painting, spanning a half-century of work.`\
+https://nytimes.com/2023/10/03/arts/design/kunstforum-vienna-motherwell-paintings.html?searchResultPosition=7
 
-**Judge Let Abusive Parents Keep Daughter. Days Later, She Was Dead.**\
-`A Brooklyn judge ordered Ella Vitalis, 1, who died of blunt force trauma, to stay with her parents, after the child welfare agency argued she should be removed.`\
-https://nytimes.com/2023/10/03/nyregion/dead-baby-brooklyn-abuse.html?searchResultPosition=8
+**Young People Left in Limbo as Battle Over Transgender Care Shifts to Court**\
+`After losing in statehouses, supporters of transgender rights filed lawsuits in at least 14 states to convince judges that transition care for minors was safe.`\
+https://nytimes.com/2023/10/03/us/transgender-care-lawsuits-courts.html?searchResultPosition=8
 
-**Police Robot**\
-`New York City will deploy a “fully autonomous” security robot in one of its subway stations. Would you welcome one in your town or city?`\
-https://nytimes.com/2023/10/03/learning/police-robot.html?searchResultPosition=9
+**Allegra Kent Conjures ‘Messages From the Air, the Atmosphere’**\
+`The iridescent Balanchine ballerina returns to New York City Ballet this season to coach for “La Sonnambula.” What does she want? Mystery.`\
+https://nytimes.com/2023/10/03/arts/dance/allegra-kent-sonnambula-city-ballet.html?searchResultPosition=9
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/10/03/crosswords/spelling-bee-forum.html?searchResultPosition=10
+**In Mexico City, a Museum Celebrates Its First Decade**\
+`The Museo Jumex will mark its 10th anniversary with “Everything Gets Lighter,” a show of luminous works from its collection of more than 2,800 objects.`\
+https://nytimes.com/2023/10/03/arts/design/museo-jumex-ten-years.html?searchResultPosition=10
 
