@@ -1,40 +1,40 @@
+**China Is Suffering a Brain Drain. The U.S. Isn’t Exploiting It.**\
+`China’s brightest minds, including tech professionals, are emigrating, but many are not heading to America. We spoke to them to ask why.`\
+https://nytimes.com/2023/10/03/business/china-brain-drain.html?searchResultPosition=1
+
 **Police Chief Who Ordered Raid on Kansas Newspaper Resigns**\
 `Gideon Cody orchestrated the widely criticized raids on The Marion County Record and the home of its publisher.`\
-https://nytimes.com/2023/10/02/us/marion-kansas-police-chief-resigns.html?searchResultPosition=1
+https://nytimes.com/2023/10/02/us/marion-kansas-police-chief-resigns.html?searchResultPosition=2
 
 **Illinois Governor Tells Biden Migrant Influx Is ‘Untenable’**\
 `Gov. J.B. Pritzker of Illinois called for the president, a fellow Democrat, to step up federal aid as Chicago struggles to house thousands of migrants.`\
-https://nytimes.com/2023/10/02/us/pritzker-biden-chicago-migrants.html?searchResultPosition=2
+https://nytimes.com/2023/10/02/us/pritzker-biden-chicago-migrants.html?searchResultPosition=3
 
 **Corrections: Oct. 3, 2023**\
 `Corrections that appeared in print on Tuesday, Oct. 3, 2023.`\
-https://nytimes.com/2023/10/02/pageoneplus/corrections-oct-3-2023.html?searchResultPosition=3
+https://nytimes.com/2023/10/02/pageoneplus/corrections-oct-3-2023.html?searchResultPosition=4
 
 **Quotation of the Day: Texas Bishop Accuses Pope and the Vatican of Undermining Faith**\
 `Quotation of the Day for Tuesday, October 3, 2023.`\
-https://nytimes.com/2023/10/02/pageoneplus/quotation-of-the-day-texas-bishop-accuses-pope-and-the-vatican-of-undermining-faith.html?searchResultPosition=4
+https://nytimes.com/2023/10/02/pageoneplus/quotation-of-the-day-texas-bishop-accuses-pope-and-the-vatican-of-undermining-faith.html?searchResultPosition=5
 
 **Hollywood Actors and Studios, Resuming Talks, Plan to Meet Again Wednesday**\
 `The session on Monday was the first in more than two months and included top industry executives.`\
-https://nytimes.com/2023/10/02/business/hollywood-actors-studios-talks.html?searchResultPosition=5
+https://nytimes.com/2023/10/02/business/hollywood-actors-studios-talks.html?searchResultPosition=6
 
 **Little Troublemaker**\
 `Troy Laedtke makes his New York Times debut.`\
-https://nytimes.com/2023/10/02/crosswords/daily-puzzle-2023-10-03.html?searchResultPosition=6
+https://nytimes.com/2023/10/02/crosswords/daily-puzzle-2023-10-03.html?searchResultPosition=7
 
 **104-Year-Old Breaks World Record for Oldest Skydiver**\
 `“She did a lot better than most people,” said the skydiving instructor who jumped with Dorothy Hoffner at Skydive Chicago.`\
-https://nytimes.com/video/us/100000009114413/104-year-old-skydiver-chicago.html?searchResultPosition=7
+https://nytimes.com/video/us/100000009114413/104-year-old-skydiver-chicago.html?searchResultPosition=8
 
 **Gov. J.B. Pritzker’s Letter to President Biden**\
 `The Illinois governor called for the president, a fellow Democrat, to step up federal aid as Chicago struggles to house thousands of migrants.`\
-https://nytimes.com/interactive/2023/10/02/us/j-b-pritzker-biden-letter-migrants.html?searchResultPosition=8
+https://nytimes.com/interactive/2023/10/02/us/j-b-pritzker-biden-letter-migrants.html?searchResultPosition=9
 
 **Takeaways From a New Book on Sam Bankman-Fried**\
 `“Going Infinite,” by Michael Lewis, offers a behind-the-scenes account of Mr. Bankman-Fried’s rise and fall.`\
-https://nytimes.com/2023/10/02/technology/going-infinite-michael-lewis-sbf-takeaways.html?searchResultPosition=9
-
-**Even Michael Lewis Can’t Make a Hero Out of Sam Bankman-Fried**\
-`“Going Infinite,” Lewis’s new book about the disgraced crypto billionaire, defies the author’s winning formula of upbeat narratives and unsung genius.`\
-https://nytimes.com/2023/10/02/books/review/going-infinite-michael-lewis.html?searchResultPosition=10
+https://nytimes.com/2023/10/02/technology/going-infinite-michael-lewis-sbf-takeaways.html?searchResultPosition=10
 
