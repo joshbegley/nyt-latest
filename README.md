@@ -1,40 +1,40 @@
+**Armenia, long a Russian ally, moves to join the International Criminal Court after losing an enclave.**\
+`By Valerie Hopkins`\
+https://nytimes.com/live/2023/10/03/world/russia-ukraine-news/armenia-long-a-russian-ally-moves-to-join-the-international-criminal-court-after-losing-an-enclave?searchResultPosition=1
+
 **Tracking Tropical Storm Lidia**\
 `See the likely path and wind arrival times for Lidia.`\
-https://nytimes.com/interactive/2023/world/americas/lidia-map-path-tracker.html?searchResultPosition=1
+https://nytimes.com/interactive/2023/world/americas/lidia-map-path-tracker.html?searchResultPosition=2
 
 **Campbell Brown, Who Led Facebook News, Leaves Meta**\
 `Ms. Brown’s exit indicates how Meta’s priorities around news and its relationships with media companies have changed.`\
-https://nytimes.com/2023/10/03/technology/campbell-brown-leaves-meta.html?searchResultPosition=2
+https://nytimes.com/2023/10/03/technology/campbell-brown-leaves-meta.html?searchResultPosition=3
 
 **Here’s How Many Votes Kevin McCarthy Needs to Survive**\
-`If some Democrats vote “present” or fewer House members show up to vote than predicted, Mr. McCarthy could win out.`\
-https://nytimes.com/2023/10/03/us/politics/votes-house-mccarthy-speaker.html?searchResultPosition=3
+`The number will depend on how many House members show up to vote.`\
+https://nytimes.com/2023/10/03/us/politics/votes-house-mccarthy-speaker.html?searchResultPosition=4
 
 **Supreme Court Skeptical in That Could Hobble Consumer Watchdog**\
 `The justices heard a challenge to the way Congress funded the Consumer Financial Protection Bureau but seemed persuaded that it was constitutional.`\
-https://nytimes.com/2023/10/03/us/supreme-court-cfpb.html?searchResultPosition=4
+https://nytimes.com/2023/10/03/us/supreme-court-cfpb.html?searchResultPosition=5
 
 **Inside New York’s Least Competitive Bowling League**\
 `It started with a small group of friends. They invited their friends. Now, 100 or so players, many of whom work in fashion and design, meet for games that are in turn casual and chaotic.`\
-https://nytimes.com/2023/10/03/t-magazine/bowling-games-new-york.html?searchResultPosition=5
+https://nytimes.com/2023/10/03/t-magazine/bowling-games-new-york.html?searchResultPosition=6
 
 **Gaetz’s Challenge to McCarthy Draws Attention to His Ethics Issues**\
 `Representative Matt Gaetz is facing a House Committee inquiry into allegations of sexual misconduct and misuse of funds. Speaker Kevin McCarthy has argued Mr. Gaetz’s attempt to oust him is payback.`\
-https://nytimes.com/2023/10/03/us/politics/gaetz-ethics-committee-house.html?searchResultPosition=6
+https://nytimes.com/2023/10/03/us/politics/gaetz-ethics-committee-house.html?searchResultPosition=7
 
 **Jailed and Desperate, Immigrants Are Enlisted in Border Crackdown**\
 `The Justice Department has invoked a 200-year-old law to detain thousands of undocumented immigrants as witnesses in smuggling cases. Judges have locked up some for six months or more.`\
-https://nytimes.com/2023/10/03/us/doj-immigrant-witnesses-border.html?searchResultPosition=7
+https://nytimes.com/2023/10/03/us/doj-immigrant-witnesses-border.html?searchResultPosition=8
 
 **Fact check: McCarthy claims credit for some conservative victories in the House that fell flat in the Senate.**\
 `By Angelo Fichera`\
-https://nytimes.com/live/2023/10/03/us/mccarthy-gaetz-speaker-news/fact-check-mccarthy-claims-credit-for-some-conservative-victories-in-the-house-that-fell-flat-in-the-senate?searchResultPosition=8
+https://nytimes.com/live/2023/10/03/us/mccarthy-gaetz-speaker-news/fact-check-mccarthy-claims-credit-for-some-conservative-victories-in-the-house-that-fell-flat-in-the-senate?searchResultPosition=9
 
 **There Is No Clear Replacement Candidate for McCarthy**\
 `Republicans focused on ousting Speaker Kevin McCarthy aren’t in agreement about who they want to replace him.`\
-https://nytimes.com/2023/10/03/us/politics/house-speaker-replacement-mccarthy.html?searchResultPosition=9
-
-**Trump Targets Nikki Haley as She Climbs in the Polls**\
-`Ms. Haley, a former South Carolina governor, has taken the attacks as a signal that the Republican front-runner sees her as a threat.`\
-https://nytimes.com/2023/10/03/us/politics/trump-nikki-haley-polls.html?searchResultPosition=10
+https://nytimes.com/2023/10/03/us/politics/house-speaker-replacement-mccarthy.html?searchResultPosition=10
 
