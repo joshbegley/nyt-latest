@@ -14,7 +14,7 @@ https://nytimes.com/2023/10/03/briefing/mccarthy-ousted-ftx-trial-bangkok-shooti
 `A Times reporter hiked to a rugged region in Greece where the bodies of 18 asylum seekers were found. She returned, weeks later, with a man who had lost his brother.`\
 https://nytimes.com/2023/10/03/world/europe/greece-wildfires-migrants.html?searchResultPosition=4
 
-**Trump campaign calls on Republicans to cancel all future debates.**\
+**Trump Campaign Calls on Republicans to Cancel All Future Debates**\
 `Two top advisers to former President Donald J. Trump claimed without evidence that Democrats are working to “steal” the 2024 election.`\
 https://nytimes.com/2023/10/03/us/politics/trump-stolen-election.html?searchResultPosition=5
 
