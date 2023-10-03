@@ -10,7 +10,7 @@ https://nytimes.com/2023/10/03/opinion/letters/testing.html?searchResultPosition
 `Six people, all 35 or younger, talk about what they are doing to shake up politics on the continent, and what inspired them to step up.`\
 https://nytimes.com/2023/10/03/world/africa/africa-young-leaders.html?searchResultPosition=3
 
-**John Kelly, a former White House chief of staff, confirms Trump’s disparaging of veterans.**\
+**John Kelly, a Former White House Chief of Staff, Confirms Trump’s Disparaging of Veterans**\
 `In a statement to CNN, Mr. Kelly corroborated reporting from 2020 that he declined to confirm at the time despite pressure from friends and associates to do so.`\
 https://nytimes.com/2023/10/03/us/politics/john-kelly-trump-veterans.html?searchResultPosition=4
 
