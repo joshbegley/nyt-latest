@@ -1,4 +1,4 @@
-**McCarthy to Call Vote on His Fate, Ruling Out Deal With Democrats**\
+**cMcCarthy to call vote on his fate, ruling out deal with Democrats.**\
 `Speaker Kevin McCarthy’s slender majority and the number of right-wing rebels in favor of ousting him mean that he has little chance of survival without at least some support from Democrats.`\
 https://nytimes.com/live/2023/10/03/us/mccarthy-gaetz-speaker-news/kevin-mccarthy-speaker?searchResultPosition=1
 
