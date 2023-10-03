@@ -12,7 +12,7 @@ https://nytimes.com/2023/10/03/dining/new-restaurant-jeans-public-theater.html?s
 
 **DirecTV Says CNN Streaming Service Risks Violating Deal**\
 `The concern, raised in a letter, signals that cable and satellite providers may push back against streaming services full of shows they’re already paying for.`\
-https://nytimes.com/2023/10/03/business/media/directv-says-cnn-streaming-service-risks-violating-deal.html?searchResultPosition=4
+https://nytimes.com/2023/10/03/business/media/directv-cnn-streaming-service-deal.html?searchResultPosition=4
 
 **Student News Quiz | Trials, Taylor Swift, Nobel Prizes**\
 `Have you been paying attention to the news recently? See how many of these 10 questions you can get right.`\
