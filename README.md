@@ -2,13 +2,13 @@
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/2023/10/03/world/europe/russias-latest-drone-barrage-came-from-crimea-ukrainian-officials-say.html?searchResultPosition=1
 
-**Ukraine’s war of drones runs into an obstacle: China.**\
-`As the war with Russia stretches on, so too does a contest to make more and deadlier flying machines. That means a fight over global electronics supply chains that run through China.`\
-https://nytimes.com/live/2023/10/03/world/russia-ukraine-news/ukraines-war-of-drones-runs-into-an-obstacle-china?searchResultPosition=2
-
 **Ukraine’s snipers are an overlooked but essential part of the fight.**\
 `By Thomas Gibbons-Neff and Natalia Yermak`\
-https://nytimes.com/2023/10/03/world/europe/ukraines-snipers-are-an-overlooked-but-essential-part-of-the-fight.html?searchResultPosition=3
+https://nytimes.com/2023/10/03/world/europe/ukraines-snipers-are-an-overlooked-but-essential-part-of-the-fight.html?searchResultPosition=2
+
+**Ukraine’s war of drones runs into an obstacle: China.**\
+`As the war with Russia stretches on, so too does a contest to make more and deadlier flying machines. That means a fight over global electronics supply chains that run through China.`\
+https://nytimes.com/live/2023/10/03/world/russia-ukraine-news/ukraines-war-of-drones-runs-into-an-obstacle-china?searchResultPosition=3
 
 **Sex vs. Skin**\
 `Sometimes, what you see can make you think. Games of peekaboo at Valentino and Sacai.`\
