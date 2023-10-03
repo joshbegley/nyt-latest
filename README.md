@@ -26,8 +26,8 @@ https://nytimes.com/live/2023/10/03/world/russia-ukraine-news/a-tactic-known-as-
 `The FTX founder, once seen as crypto’s messiah, is accused of what prosecutors describe as the largest financial fraud in recent history.`\
 https://nytimes.com/2023/10/03/podcasts/the-daily/sbf-trial.html?searchResultPosition=7
 
-**Nobel Prize in Physics Awarded to 3 Scientists for Work on Electrons**\
-`Their work “allows us to address fundamental questions” such as the time scale of the photoelectric effect for which Einstein received the 1921 Nobel, the awarding committee chair said.`\
+**Nobel Prize in Physics Awarded to 3 Scientists for Illuminating How Electrons Move**\
+`Techniques resulting from the work of Pierre Agostini, Ferenc Krausz and Anne L’Huillier let scientists capture the motions of subatomic particles moving at impossible speeds.`\
 https://nytimes.com/2023/10/03/science/nobel-prize-physics.html?searchResultPosition=8
 
 **Ghosts of Struggles Past and Future Haunt U.K. Conservative Showpiece**\
