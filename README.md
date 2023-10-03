@@ -19,7 +19,7 @@ https://nytimes.com/2023/10/03/us/doj-immigrant-witnesses-border.html?searchResu
 https://nytimes.com/live/2023/10/03/us/mccarthy-gaetz-speaker-news/fact-check-mccarthy-claims-credit-for-some-conservative-victories-in-the-house-that-fell-flat-in-the-senate?searchResultPosition=5
 
 **No Republicans have put themselves forward to replace McCarthy.**\
-`By Annie Karni`\
+`Republicans focused on ousting Speaker Kevin McCarthy aren’t in agreement about who they want to replace him.`\
 https://nytimes.com/2023/10/03/us/politics/no-republicans-have-put-themselves-forward-to-replace-mccarthy.html?searchResultPosition=6
 
 **Trump Targets Nikki Haley as She Climbs in the Polls**\
