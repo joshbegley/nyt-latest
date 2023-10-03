@@ -1,5 +1,5 @@
-**Complexities of Newsom’s Senate Decision Were of His Own Making**\
-`Gov. Gavin Newsom of California boxed himself in with two television interviews, inviting political pressure from various sides as he positions himself nationally.`\
+**On Senate Choice, Newsom Was in a Box of His Own Making**\
+`Gov. Gavin Newsom of California’s choice of a successor to Dianne Feinstein was complicated by two television interviews that attracted political pressure from many sides.`\
 https://nytimes.com/2023/10/03/us/senate-newsom-butler-feinstein-pick.html?searchResultPosition=1
 
 **Alexander McQueen Names a New Top Designer**\
