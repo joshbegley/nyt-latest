@@ -1,6 +1,6 @@
 **Kevin McCarthy Is Out as Speaker. What Happens Now?**\
 `McCarthy’s unprecedented removal hurls the House into a state of havoc, as Republicans scramble to determine their next steps.`\
-https://nytimes.com/2023/10/03/us/politics/kevin-mccarthy-what-happens-now.html?searchResultPosition=1
+https://nytimes.com/2023/10/03/us/politics/kevin-mccarthy-house-speaker.html?searchResultPosition=1
 
 **Matt Gaetz, a Polarizing Figure in Congress, Is Polarizing at Home, Too**\
 `In an overwhelmingly Republican district, Mr. Gaetz is admired for shaking up the House, but he also has plenty of critics.`\
