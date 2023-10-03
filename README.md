@@ -7,7 +7,7 @@ https://nytimes.com/2023/10/03/us/supreme-court-consumer-financial-protection-bu
 https://nytimes.com/2023/10/03/t-magazine/bowling-games-new-york.html?searchResultPosition=2
 
 **Gaetz’s Challenge to McCarthy Draws Attention to His Ethics Issues**\
-`The speaker has argued that Representative Matt Gaetz is trying to oust him as payback for an Ethics Committee inquiry the Florida representative is facing into allegations of sexual misconduct and misuse of funds.`\
+`Representative Matt Gaetz is facing a House Committee inquiry into allegations of sexual misconduct and misuse of funds. Speaker Kevin McCarthy has argued Mr. Gaetz’s attempt to oust him is payback.`\
 https://nytimes.com/2023/10/03/us/politics/gaetz-ethics-committee-house.html?searchResultPosition=3
 
 **Jailed and Desperate, Immigrants Are Enlisted in Border Crackdown**\
