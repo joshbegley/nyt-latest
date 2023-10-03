@@ -1,5 +1,5 @@
-**Who is Patrick McHenry, the interim House speaker?**\
-`By Daniel Victor and Catie Edmondson`\
+**Who Is Patrick McHenry, the Interim House Speaker?**\
+`An ardent supporter of Kevin McCarthy, the Republican from North Carolina will lead the House until a new speaker is elected.`\
 https://nytimes.com/2023/10/03/us/politics/patrick-mchenry-interim-house-speaker.html?searchResultPosition=1
 
 **Wildfire Smoke From Canada Creates Unhealthy Air Quality in Florida**\
