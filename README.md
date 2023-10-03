@@ -4,7 +4,7 @@ https://nytimes.com/2023/10/03/world/europe/russias-latest-drone-barrage-came-fr
 
 **Ukraine’s war of drones runs into an obstacle: China.**\
 `As the war with Russia stretches on, so too does a contest to make more and deadlier flying machines. That means a fight over global electronics supply chains that run through China.`\
-https://nytimes.com/2023/10/03/world/europe/ukraines-war-of-drones-runs-into-an-obstacle-china.html?searchResultPosition=2
+https://nytimes.com/live/2023/10/03/world/russia-ukraine-news/ukraines-war-of-drones-runs-into-an-obstacle-china?searchResultPosition=2
 
 **Ukraine’s snipers are an overlooked but essential part of the fight.**\
 `By Thomas Gibbons-Neff and Natalia Yermak`\
