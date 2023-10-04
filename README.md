@@ -16,7 +16,7 @@ https://nytimes.com/interactive/2023/10/04/arts/editors-recommendations-pardi.ht
 
 **All Your Favorite Movies Are Already on TikTok**\
 `Paramount tried to make “Mean Girls” happen all over again for a new generation.`\
-https://nytimes.com/2023/10/04/style/all-your-favorite-movies-are-already-on-tiktok.html?searchResultPosition=7
+https://nytimes.com/2023/10/04/style/tiktok-movies-mean-girls.html?searchResultPosition=7
 
 **Actress Julia Ormond Accuses Harvey Weinstein of Battery in Lawsuit**\
 `Ms. Ormond also sued Creative Artists Agency, which represented her at the time, and Disney, which owned Mr. Weinstein’s Miramax.`\
