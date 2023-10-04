@@ -2,8 +2,8 @@
 `The university and police issued a shelter-in-place order as they searched for an active shooter on the Baltimore campus.`\
 https://nytimes.com/2023/10/03/us/morgan-state-university-baltimore-shooting.html?searchResultPosition=1
 
-**Manitoba Elects Canada’s First Provincial Government Led by a First Nations Member**\
-`Wab Kinew, an Anishinaabe politician who leads the New Democratic Party, will replace the conservative Heather Stefanson as Manitoba’s premier.`\
+**Manitoba Elects a First Nations Member as Premier, a Canadian First**\
+`Wab Kinew, an Anishinaabe politician who leads the New Democratic Party, will replace the conservative Heather Stefanson as Manitoba’s leader.`\
 https://nytimes.com/2023/10/03/world/americas/manitoba-canada-elections-wab-kinew.html?searchResultPosition=2
 
 **Make a Choice**\
