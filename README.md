@@ -1,4 +1,4 @@
-**The Iranian shipment violated a U.N. resolution, Central Command says.**\
+**Iran’s munitions shipment violated a U.N. resolution, the military says.**\
 `By Eric Schmitt`\
 https://nytimes.com/live/2023/10/04/world/russia-ukraine-news/the-iranian-shipment-violated-a-un-resolution-central-command-says?searchResultPosition=2
 
