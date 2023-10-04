@@ -11,7 +11,7 @@ https://nytimes.com/2023/10/04/business/american-airlines-david-ryan-harris-traf
 https://nytimes.com/2023/10/04/arts/cindy-birdsong-supremes-conservator.html?searchResultPosition=5
 
 **Remembering Dianne Feinstein**\
-`Senator Dianne Feinstein, who died last week, lay in state at City Hall in San Francisco on Wednesday. Here's how political leaders and residents honored her.`\
+`Senator Dianne Feinstein, who died last week, lay in state at City Hall in San Francisco on Wednesday. Here's how political leaders and residents honored her. `\
 https://nytimes.com/interactive/2023/10/04/us/dianne-feinstein-death-san-francisco.html?searchResultPosition=6
 
 **With the Writers’ Strike Over, ‘Saturday Night Live’ Will Soon Return**\
