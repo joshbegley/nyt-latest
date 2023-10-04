@@ -3,7 +3,7 @@
 https://nytimes.com/2023/10/04/podcasts/the-daily/mccarthy-ouster.html?searchResultPosition=1
 
 **Facing Cancellation, Halloween Dog Festival Gets a Formal Parade Route**\
-`Organizers of the annual Halloween dog parade in Tompkins Square Park nearly canceled the event over permitting and funding issues. Now it’s back and bigger than ever.`\
+`Organizers of the annual parade in New York’s Tompkins Square Park nearly canceled the event over permitting and funding issues. Now it’s back and bigger than ever.`\
 https://nytimes.com/2023/10/04/nyregion/tompkins-square-halloween-dog-parade-saved.html?searchResultPosition=2
 
 **Life Is Boring. Lydia Davis’s New Book Makes That Fascinating.**\
