@@ -1,32 +1,32 @@
+**Thursday Briefing: What’s Next After McCarthy’s Downfall**\
+`Plus an auction of works from China’s top art collector.`\
+https://nytimes.com/2023/10/04/briefing/thursday-briefing-whats-next-after-mccarthys-downfall.html?searchResultPosition=3
+
+**When Did You Watch Your First Scary Movie? We Want to Know.**\
+`Halloween season is here, and we’re asking readers to share their memories of the first scary film that kept them up at night, and how old they were at the time.`\
+https://nytimes.com/2023/10/04/movies/when-did-you-watch-your-first-scary-movie.html?searchResultPosition=4
+
+**Alan Murray to Step Down as C.E.O. of Fortune**\
+`Mr. Murray, who has been at the publication since 2014, will leave his role at the end of April.`\
+https://nytimes.com/2023/10/04/business/media/alan-murray-fortune-magazine.html?searchResultPosition=5
+
+**What’s in Our Queue? Jon Pardi and More**\
+`I’m a deputy editor on The Times’s Culture desk. Here are five things I’ve been watching, listening to and more.`\
+https://nytimes.com/interactive/2023/10/04/arts/editors-recommendations-pardi.html?searchResultPosition=6
+
 **All Your Favorite Movies Are Already on TikTok**\
 `Paramount tried to make “Mean Girls” happen all over again for a new generation.`\
-https://nytimes.com/2023/10/04/style/all-your-favorite-movies-are-already-on-tiktok.html?searchResultPosition=3
+https://nytimes.com/2023/10/04/style/all-your-favorite-movies-are-already-on-tiktok.html?searchResultPosition=7
 
 **Actress Julia Ormond Accuses Harvey Weinstein of Battery in Lawsuit**\
 `Ms. Ormond also sued Creative Artists Agency, which represented her at the time, and Disney, which owned Mr. Weinstein’s Miramax.`\
-https://nytimes.com/2023/10/04/business/media/julia-ormond-harvey-weinstein-lawsuit.html?searchResultPosition=4
+https://nytimes.com/2023/10/04/business/media/julia-ormond-harvey-weinstein-lawsuit.html?searchResultPosition=8
 
 **CoinDesk helped break some of the first stories on FTX. Now it faces troubles of its own.**\
 `By Katie Robertson`\
-https://nytimes.com/live/2023/10/04/business/sam-bankman-fried-ftx-trial-news/coindesk-helped-break-some-of-the-first-stories-on-ftx-now-it-faces-troubles-of-its-own?searchResultPosition=5
+https://nytimes.com/live/2023/10/04/business/sam-bankman-fried-ftx-trial-news/coindesk-helped-break-some-of-the-first-stories-on-ftx-now-it-faces-troubles-of-its-own?searchResultPosition=9
 
 **More Speaker Crisis Fallout: Pelosi Is Evicted From Bonus Office**\
 `Representative Nancy Pelosi had been given a “hideaway” office suite as a courtesy — one that was rescinded after she did nothing to help Representative Kevin McCarthy.`\
-https://nytimes.com/2023/10/04/us/politics/pelosi-hideaway-office-capitol.html?searchResultPosition=6
-
-**Georgia Dullea, 90, Dies; Reporter Chronicled a Changing Society**\
-`Writing for The Times with a gimlet eye, she examined the impact of no-fault divorces on women, the excesses of the Reagan years, the AIDS crisis, and more.`\
-https://nytimes.com/2023/10/04/style/georgia-dullea-dead.html?searchResultPosition=7
-
-**Justices Hear Civil Rights Dispute About Disability Activist**\
-`The arguments focused on whether the activist, Deborah Laufer, has the right to sue a Maine hotel, even though she did not plan to stay there.`\
-https://nytimes.com/2023/10/04/us/supreme-court-disability-rights-laufer.html?searchResultPosition=8
-
-**N.Y.P.D. Sergeant Shown on Video Pummeling Man Is Charged With Assault**\
-`Sgt. Christian Zapata was demoted after he punched a man who asked him and other officers to put on masks, prosecutors said.`\
-https://nytimes.com/2023/10/04/nyregion/nypd-punch-assault-sergeant.html?searchResultPosition=9
-
-**Bedbugs: Vacation Without an Infestation**\
-`Paris is the latest city where the pests have caused a panic among travelers. Here’s how to keep bedbugs from coming home with you, wherever you go.`\
-https://nytimes.com/2023/10/04/travel/bedbugs-paris-vacation.html?searchResultPosition=10
+https://nytimes.com/2023/10/04/us/politics/pelosi-hideaway-office-capitol.html?searchResultPosition=10
 
