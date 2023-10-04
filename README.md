@@ -6,7 +6,7 @@ https://nytimes.com/2023/10/04/us/politics/biden-student-loans.html?searchResult
 `He’s not just seeking publicity. He’s laying the groundwork for his eventual appeal — and for 2024.`\
 https://nytimes.com/2023/10/04/opinion/trump-trial-judge-engoron.html?searchResultPosition=3
 
-**Where’s All the Antarctic Sea Ice? Annual Peak Is Lowest Ever Recorded.**\
+**Where’s All the Antarctic Sea Ice? Annual Peak Is the Lowest Ever Recorded.**\
 `Earlier this year it was clear Antarctic sea ice levels were low. Now, as the continent enters spring, it’s obvious that “it’s a really exceptional year.”`\
 https://nytimes.com/2023/10/04/climate/antarctic-sea-ice-record-low.html?searchResultPosition=4
 
