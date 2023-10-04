@@ -10,7 +10,7 @@ https://nytimes.com/video/us/100000009116443/nadine-menendez-car-accident.html?s
 `For the first time in the history of the House of Representatives, its members fired their leader in the middle of a term.`\
 https://nytimes.com/2023/10/04/briefing/kevin-mccarthy-speaker-fired.html?searchResultPosition=3
 
-**Hi ‘Barbie’! Russian Theaters Find Ways to Screen Blockbusters Amid Sanctions**\
+**Hi, ‘Barbie’! Russian Theaters Find Ways to Screen Blockbusters Amid Sanctions**\
 `American studios stopped releasing Hollywood movies in Russia after the invasion of Ukraine, but many theaters have found a workaround.`\
 https://nytimes.com/2023/10/04/world/europe/barbie-russia-hollywood-ukraine-war.html?searchResultPosition=4
 
