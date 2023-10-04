@@ -1,40 +1,40 @@
+**Here’s What to Know About Tensions Over Tibetan Buddhism**\
+`Much centers on the question of who gets to choose the successor of the Dalai Lama when he dies.`\
+https://nytimes.com/2023/10/04/world/asia/mongolia-tibetan-buddhist-explainer.html?searchResultPosition=1
+
+**Turning to Street Vending, New Migrants Find a Competitive World**\
+`Newly arrived migrants are hawking candy, fruit and beverages in New York City, often with young children in tow. Turf battles with more established vendors are becoming common.`\
+https://nytimes.com/2023/10/04/nyregion/nyc-migrants-street-vendors.html?searchResultPosition=2
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/10/04/crosswords/spelling-bee-forum.html?searchResultPosition=3
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/10/04/crosswords/wordle-review-answer-837.html?searchResultPosition=4
+
+**Skydiving**\
+`How adventurous are you?`\
+https://nytimes.com/2023/10/04/learning/skydiving.html?searchResultPosition=5
+
 **Word of the Day: interlocutor**\
 `This word has appeared in 42 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/10/04/learning/word-of-the-day-interlocutor.html?searchResultPosition=1
+https://nytimes.com/2023/10/04/learning/word-of-the-day-interlocutor.html?searchResultPosition=6
 
 **Late Night Hosts Roast Kevin McCarthy on His Way Out**\
 `“Nine months? I’ve been to Phish concerts longer than that,” Jimmy Fallon joked of McCarthy’s tenure as speaker of the House.`\
-https://nytimes.com/2023/10/04/arts/television/late-night-kevin-mccarthy.html?searchResultPosition=2
+https://nytimes.com/2023/10/04/arts/television/late-night-kevin-mccarthy.html?searchResultPosition=7
 
 **It’s Getting Harder to Be Poor in New York**\
 `City services for the poor are lagging under Mayor Eric Adams. Also, Central Park’s Great Lawn, damaged in a concert, is closing six weeks early for maintenance.`\
-https://nytimes.com/2023/10/04/nyregion/its-getting-harder-to-be-poor-in-new-york.html?searchResultPosition=3
+https://nytimes.com/2023/10/04/nyregion/its-getting-harder-to-be-poor-in-new-york.html?searchResultPosition=8
 
 **When Russia Is a Neighbor, Self-Defense Is Everyone’s Concern**\
 `Even though it’s now part of NATO, a wary Finland still requires men to serve their country. Women can volunteer, and many do.`\
-https://nytimes.com/2023/10/04/world/europe/finland-military-nato-russia-ukraine.html?searchResultPosition=4
+https://nytimes.com/2023/10/04/world/europe/finland-military-nato-russia-ukraine.html?searchResultPosition=9
 
 **‘Our Language Is Dying’**\
 `The struggle to save Gagauz, a Turkic tongue used by dwindling numbers of people in an ethnic enclave of Moldova, reflects the emotional power of language loyalties across the former Soviet Union.`\
-https://nytimes.com/2023/10/04/world/europe/moldova-gagauz-languages-soviet-union.html?searchResultPosition=5
-
-**Wednesday Briefing**\
-`The ousting of Speaker Kevin McCarthy.`\
-https://nytimes.com/2023/10/03/briefing/speaker-mccarthy-biden-ukraine.html?searchResultPosition=6
-
-**Five People Shot at Morgan State University in Baltimore**\
-`The victims, four of whom were Morgan State students, were being treated for non-life-threatening gunshot wounds, the police said.`\
-https://nytimes.com/2023/10/03/us/morgan-state-university-baltimore-shooting.html?searchResultPosition=7
-
-**Manitoba Elects a First Nations Member as Premier, a Canadian First**\
-`Wab Kinew, an Anishinaabe politician who leads the New Democratic Party, will replace the conservative Heather Stefanson as Manitoba’s leader.`\
-https://nytimes.com/2023/10/03/world/americas/manitoba-canada-elections-wab-kinew.html?searchResultPosition=8
-
-**Make a Choice**\
-`Gary Larson’s puzzle gives us options.`\
-https://nytimes.com/2023/10/03/crosswords/daily-puzzle-2023-10-04.html?searchResultPosition=9
-
-**Restaurant Review: I Sodi Returns, Without the Sardine-Can Space**\
-`The popular Tuscan outpost in the West Village has moved to more generous quarters, but the bracing minimalism of its cooking remains largely intact.`\
-https://nytimes.com/2023/10/03/dining/restaurant-review-i-sodi-west-village.html?searchResultPosition=10
+https://nytimes.com/2023/10/04/world/europe/moldova-gagauz-languages-soviet-union.html?searchResultPosition=10
 
