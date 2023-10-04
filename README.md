@@ -1,5 +1,5 @@
 **Gunfire Leaves Pregnant Bystander on a Bus Critically Injured, and Her Baby Dead**\
-`Shots rang out during a dispute involving three men in Holyoke, Mass., on Wednesday afternoon, the authorities said. The suspects were taken to hospitals and are in custody.`\
+`Shots were fired during a dispute involving three men in Holyoke, Mass., on Wednesday afternoon, the authorities said. The suspects were taken to hospitals and are in custody.`\
 https://nytimes.com/2023/10/04/us/holyoke-massachusetts-shooting-pregnant-woman.html?searchResultPosition=1
 
 **Trump Announces $45.5 Million Fund-Raising Haul, Tripling DeSantis**\
