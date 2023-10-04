@@ -1,40 +1,40 @@
+**Review: Robert Gober Conjures America**\
+`The artist, displaying his own work along with his idiosyncratic holdings, invites rumination on the state of the nation at Demisch Danant gallery.`\
+https://nytimes.com/2023/10/04/arts/design/robert-gober-review-demisch-danant.html?searchResultPosition=1
+
 **Two former prosecutors have taken up Sam Bankman-Fried’s defense.**\
 `By J. Edward Moreno`\
-https://nytimes.com/live/2023/10/04/business/sam-bankman-fried-ftx-trial-news/two-former-prosecutors-have-taken-up-sam-bankman-frieds-defense?searchResultPosition=1
+https://nytimes.com/live/2023/10/04/business/sam-bankman-fried-ftx-trial-news/two-former-prosecutors-have-taken-up-sam-bankman-frieds-defense?searchResultPosition=2
 
 **Introducing Nathan Lane, the Hip New Face of A24**\
 `With roles in “Dicks: The Musical” and “Beau Is Afraid,” the stage star is now a repertory player for the hot film company. “Who would have guessed?” he says.`\
-https://nytimes.com/2023/10/04/movies/nathan-lane-a24-dicks-the-musical.html?searchResultPosition=2
+https://nytimes.com/2023/10/04/movies/nathan-lane-a24-dicks-the-musical.html?searchResultPosition=3
 
 **Police Identify Victims and Seek Cause of Deadly Bus Crash Near Venice**\
 `More than 20 people were killed and several were in intensive care after a bus crashed through a guardrail and onto an empty street below.`\
-https://nytimes.com/2023/10/04/world/europe/bus-crash-venice.html?searchResultPosition=3
+https://nytimes.com/2023/10/04/world/europe/bus-crash-venice.html?searchResultPosition=4
 
 **Extend Your Jack-o’-Lantern’s Life**\
 `Tips to help your jack-o'-lantern stick around.`\
-https://nytimes.com/interactive/2023/10/04/smarter-living/wirecutter/jackolantern-last.html?searchResultPosition=4
+https://nytimes.com/interactive/2023/10/04/smarter-living/wirecutter/jackolantern-last.html?searchResultPosition=5
 
 **The lead prosecutors have brought other high-profile cases.**\
 `By J. Edward Moreno`\
-https://nytimes.com/live/2023/10/04/business/sam-bankman-fried-ftx-trial-news/the-lead-prosecutors-have-brought-other-high-profile-cases?searchResultPosition=5
+https://nytimes.com/live/2023/10/04/business/sam-bankman-fried-ftx-trial-news/the-lead-prosecutors-have-brought-other-high-profile-cases?searchResultPosition=6
 
 **‘The Confessions’ Review: A Mother’s Tale, Told With Empathy and Care**\
 `A new play by Alexander Zeldin recreates his mother’s winding, painful path to a life of her own.`\
-https://nytimes.com/2023/10/04/theater/the-confessions-alexander-zeldin.html?searchResultPosition=6
+https://nytimes.com/2023/10/04/theater/the-confessions-alexander-zeldin.html?searchResultPosition=7
 
 **James Jorden, Creator of an Essential Opera Blog, Dies at 69**\
 `With Parterre Box, he brought together high culture, punk aesthetics and gleeful camp in an irreverent source for news, criticism and gossip.`\
-https://nytimes.com/2023/10/04/arts/music/james-jorden-dead.html?searchResultPosition=7
+https://nytimes.com/2023/10/04/arts/music/james-jorden-dead.html?searchResultPosition=8
 
 **White-collar defendants have long faced reckonings in Manhattan’s federal courthouse.**\
 `By Matthew Goldstein`\
-https://nytimes.com/live/2023/10/04/business/sam-bankman-fried-ftx-trial-news/white-collar-manhattan-federal-courthouse-sam-bankman-fried?searchResultPosition=8
+https://nytimes.com/live/2023/10/04/business/sam-bankman-fried-ftx-trial-news/white-collar-manhattan-federal-courthouse-sam-bankman-fried?searchResultPosition=9
 
 **‘Our Flag Means Death’ Review: Stormy Seas in Season 2**\
 `An offbeat pirate comedy with a devoted fan base tacks in the direction of romance.`\
-https://nytimes.com/2023/10/04/arts/television/our-flag-means-death-review.html?searchResultPosition=9
-
-**A Death Row Opera Goes to Sing Sing, With Inmates Onstage**\
-`Metropolitan Opera stars joined prisoners for a one-night-only performance of “Dead Man Walking.”`\
-https://nytimes.com/2023/10/04/arts/music/dead-man-walking-sing-sing-joyce-di-donato.html?searchResultPosition=10
+https://nytimes.com/2023/10/04/arts/television/our-flag-means-death-review.html?searchResultPosition=10
 
