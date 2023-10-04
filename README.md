@@ -23,7 +23,7 @@ https://nytimes.com/2023/10/04/world/europe/moldova-gagauz-languages-soviet-unio
 https://nytimes.com/2023/10/03/briefing/speaker-mccarthy-biden-ukraine.html?searchResultPosition=6
 
 **Five People Shot at Morgan State University in Baltimore**\
-`The victims, four of whom were Morgan State students, were being treated with non-life-threatening gunshot wounds, the police said.`\
+`The victims, four of whom were Morgan State students, were being treated for non-life-threatening gunshot wounds, the police said.`\
 https://nytimes.com/2023/10/03/us/morgan-state-university-baltimore-shooting.html?searchResultPosition=7
 
 **Manitoba Elects a First Nations Member as Premier, a Canadian First**\
