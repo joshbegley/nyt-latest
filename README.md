@@ -23,7 +23,7 @@ https://nytimes.com/2023/10/03/opinion/can-anyone-lead-house-republicans-out-of-
 https://nytimes.com/2023/10/03/theater/jajas-african-hair-braiding-review.html?searchResultPosition=6
 
 **Krayzie Bone of Bone Thugs-N-Harmony Posts About His Health Crisis**\
-`“Never take life for granted enjoy it while you have it!” the rapper wrote on social media and posted a picture from a hospital, sying he had been in a nine-day fight for his life.`\
+`“Never take life for granted enjoy it while you have it!” the rapper wrote on social media and posted a picture from a hospital, saying he had been in a nine-day fight for his life.`\
 https://nytimes.com/2023/10/03/arts/music/krayzie-bone-alive-hospitalized.html?searchResultPosition=7
 
 **McCarthy Loses House Speakership, Says He Won’t Run Again**\
