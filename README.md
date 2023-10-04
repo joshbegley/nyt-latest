@@ -1,6 +1,6 @@
 **Thursday Briefing: What’s Next After McCarthy’s Downfall**\
 `Plus an auction of works from China’s top art collector.`\
-https://nytimes.com/2023/10/04/briefing/thursday-briefing-whats-next-after-mccarthys-downfall.html?searchResultPosition=3
+https://nytimes.com/2023/10/04/briefing/mccarthy-downfall-thailand-shooting-vatican-synod.html?searchResultPosition=3
 
 **When Did You Watch Your First Scary Movie? We Want to Know.**\
 `Halloween season is here, and we’re asking readers to share their memories of the first scary film that kept them up at night, and how old they were at the time.`\
