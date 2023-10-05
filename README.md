@@ -4,7 +4,7 @@ https://nytimes.com/2023/10/05/opinion/columnists/republicans-democrats-house-sp
 
 **Feinstein rebuffed calls to step down as her health declined. Will it damage her legacy?**\
 `By Shawn Hubler`\
-https://nytimes.com/live/2023/10/05/us/dianne-feinstein-memorial/feinstein-health-senate-legacy?searchResultPosition=3
+https://nytimes.com/2023/10/05/us/politics/feinstein-health-senate-legacy.html?searchResultPosition=3
 
 **American Jet Shoots Down Turkish Drone in Syria**\
 `The Pentagon said the drone had been observed carrying out airstrikes shortly before flying within about 550 yards of U.S. forces.`\
