@@ -6,8 +6,8 @@ https://nytimes.com/2023/10/05/us/politics/trump-nuclear-submarine-classified-do
 `By cooperating with Democrats, they could elect one of their own as speaker.`\
 https://nytimes.com/2023/10/05/opinion/columnists/republicans-democrats-house-speaker.html?searchResultPosition=3
 
-**Feinstein rebuffed calls to step down as her health declined. Will it damage her legacy?**\
-`By Shawn Hubler`\
+**Did Feinstein’s Decision to Serve Until the End Damage Her Legacy?**\
+`The senator faced calls to step down as her health declined, amid concerns about the effectiveness of an aging Senate.`\
 https://nytimes.com/2023/10/05/us/politics/feinstein-health-senate-legacy.html?searchResultPosition=4
 
 **American Jet Shoots Down Turkish Drone in Syria**\
