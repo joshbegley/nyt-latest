@@ -1,6 +1,6 @@
 **A glass of wine and a binder of bills: How Feinstein paved the way for women in power.**\
 `By Emily Cochrane`\
-https://nytimes.com/live/2023/10/05/us/dianne-feinstein-memorial/a-glass-of-wine-and-a-binder-of-bills-how-feinstein-paved-the-way-for-women-in-power?searchResultPosition=2
+https://nytimes.com/2023/10/05/us/politics/a-glass-of-wine-and-a-binder-of-bills-how-feinstein-paved-the-way-for-women-in-power.html?searchResultPosition=2
 
 **North Carolina Radio Station Won’t Ban Met Opera Broadcasts After All**\
 `The station, which had called the Met’s newer operas unsuitable because of their “difficult music” and “adult themes and harsh language,” reversed course.`\
