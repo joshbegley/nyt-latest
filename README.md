@@ -1,6 +1,6 @@
 **The Remaking of The Wall Street Journal**\
 `Emma Tucker, the top editor, is moving away from some of the organization’s traditions.`\
-https://nytimes.com/2023/10/05/business/media/emily-tucker-wall-street-journal.html?searchResultPosition=1
+https://nytimes.com/2023/10/05/business/media/emma-tucker-wall-street-journal.html?searchResultPosition=1
 
 **Film Club: ‘Oasis’**\
 `How does coming-of-age test the bonds between twin brothers?`\
