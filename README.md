@@ -1,40 +1,40 @@
-**Iranian Teen in Coma After Boarding Train Without Hijab**\
-`Security footage broadcast by state media showed the girl being carried unconscious off a subway train, but footage from inside the train has not been released.`\
-https://nytimes.com/video/world/middleeast/100000009118350/iran-armita-geravand-coma.html?searchResultPosition=1
+**Shades of Gray, and Then Some**\
+`During Paris Fashion Week, almost every color could be spotted on the streets and the runways.`\
+https://nytimes.com/2023/10/05/style/paris-fashion-week-spring-2024-streetwear.html?searchResultPosition=1
 
-**Seth Meyers Spurns Suggestions for Trump to Replace McCarthy**\
-`“Only the Republicans would consider giving the job of speaker to someone who is under a gag order,” Meyers said.`\
-https://nytimes.com/2023/10/05/arts/television/seth-meyers-trump-speaker.html?searchResultPosition=2
+**Half of New York City Children Passed Math and Reading Tests**\
+`The pass rates are up, but the state’s annual exams were overhauled, so the results can’t really be compared with those from last year.`\
+https://nytimes.com/2023/10/05/nyregion/nyc-test-scores-math-reading.html?searchResultPosition=2
 
-**Word of the Day: lucidity**\
-`This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/10/05/learning/word-of-the-day-lucidity.html?searchResultPosition=3
+**Was New York City Unprepared to Handle Last Week’s Extreme Rainfall?**\
+`The city comptroller and the City Council will launch separate inquiries into the city’s preparation for the storm.`\
+https://nytimes.com/2023/10/05/nyregion/adams-flood-nyc.html?searchResultPosition=3
 
-**With Iranian Girl in Coma, Suspicion Falls on Government**\
-`Exactly what happened to Armita Geravand, 16, is unclear, but the circumstances have fueled accusations that agents enforcing Iran’s dress code must have harmed her.`\
-https://nytimes.com/2023/10/05/world/middleeast/iran-armita-geravand.html?searchResultPosition=4
+**New U.A.W. Chief Has a Nonnegotiable Demand: Eat the Rich**\
+`Shawn Fain’s disdain for the “billionaire class” informs his showdown with Detroit’s automakers. Now he must prove that his hard-core tactics pay off.`\
+https://nytimes.com/2023/10/05/business/economy/shawn-fain-uaw-profile.html?searchResultPosition=4
 
-**Thursday Briefing**\
-`The fallout from the ouster of the House speaker.`\
-https://nytimes.com/2023/10/05/briefing/mccarthy-ukraine-aid-kenya-hs2.html?searchResultPosition=5
+**Football and Bag of Money**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2023/10/05/learning/football-and-bag-of-money.html?searchResultPosition=5
 
-**Will New Yorkers Move Into Homes With Shared Kitchens and Baths?**\
-`A think tank says the best way to convert offices to apartments is “flexible co-living,” with communal kitchens and bathrooms.`\
-https://nytimes.com/2023/10/05/nyregion/office-conversions-communal-living.html?searchResultPosition=6
+**Need News Fast? Try Listening to Your Headlines.**\
+`“The Headlines,” a show by The New York Times, promises to bring listeners the most noteworthy news of the day in about 10 minutes.`\
+https://nytimes.com/2023/10/05/insider/need-news-fast-try-listening-to-your-headlines.html?searchResultPosition=6
 
-**A Wartime Election in Ukraine? It’s a Political Hot Potato.**\
-`In normal circumstances, President Volodymyr Zelensky would be running for re-election next spring. Analysts say an election is unlikely, but the prospect is causing some anxiety in Kyiv.`\
-https://nytimes.com/2023/10/05/world/europe/ukraine-zelensky-elections-war.html?searchResultPosition=7
+**The Brooklyn Subway Shooter Faces Sentencing on 10 Terrorism Counts**\
+`Prosecutors asked a judge to give Frank James 10 life sentences, one for each victim wounded in the April 2022 shooting aboard an N train in Brooklyn.`\
+https://nytimes.com/2023/10/05/nyregion/nyc-subway-shooting-sentencing.html?searchResultPosition=7
 
-**Gun Deaths Rising Sharply Among Children, Study Finds**\
-`Firearm injuries are a leading cause of death among young children and teenagers in the United States.`\
-https://nytimes.com/2023/10/05/health/gun-deaths-children.html?searchResultPosition=8
+**Workers Exposed to Extreme Heat Have Few Protections**\
+`Tens of millions of Americans are struggling to cope with soaring temperatures. OSHA is developing new workplace safety standards, but they are not yet complete.`\
+https://nytimes.com/2023/10/05/health/heat-exposure-workers-osha.html?searchResultPosition=8
 
-**Not Their Parents’ South Asian Weddings**\
-`Some couples who have a foot in two cultures are taking their ceremonies into their own hands. (See: a playlist that blends Bad Bunny and Bollywood.)`\
-https://nytimes.com/2023/10/05/style/not-their-parents-south-asian-weddings.html?searchResultPosition=9
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/10/05/crosswords/spelling-bee-forum.html?searchResultPosition=9
 
-**China’s E.V. Threat: A Carmaker That Loses $35,000 a Car**\
-`Chinese electric vehicle companies like Nio are pulling ever further ahead, partly through government support but also rapid technological advances.`\
-https://nytimes.com/2023/10/05/business/nio-china-electric-vehicles.html?searchResultPosition=10
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/10/05/crosswords/wordle-review-answer-838.html?searchResultPosition=10
 
