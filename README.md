@@ -1,40 +1,40 @@
-**America’s Political Turmoil**\
-`A survey of the chaos across the U.S. political system.`\
-https://nytimes.com/2023/10/05/briefing/republican-party-congress-mccarthy.html?searchResultPosition=1
+**Otobong Nkanga Wins the Nasher Prize for Sculpture**\
+`Her expansive sculptures that tackle the plundering of minerals and resources have earned her the $100,000 cash prize — one of the art world’s top honors.`\
+https://nytimes.com/2023/10/05/arts/design/otobong-nkanga-nasher-prize-for-sculpture.html?searchResultPosition=1
 
-**TikTok Shuts Shopping Feature in Indonesia Following Ban**\
-`TikTok’s retail ambitions have confronted an obstacle in its second-largest market, which views the app as a threat to local businesses.`\
-https://nytimes.com/2023/10/05/business/tiktok-shop-indonesia-ecommerce-ban.html?searchResultPosition=2
+**‘Shadows in the City’ Review: A Sleazy Slice of 1980s No Wave**\
+`The director Ari M. Roussimoff’s black-and-white homage to the downtown crowd gets a raw screening at the Museum of Modern Art before its restoration.`\
+https://nytimes.com/2023/10/05/movies/shadows-in-the-city-review.html?searchResultPosition=2
 
-**Annie Ernaux, last year’s recipient, was lauded as a ‘thrilling’ choice.**\
-`By Alex Marshall`\
-https://nytimes.com/live/2023/10/05/books/nobel-prize-literature/annie-ernaux-nobel-literature?searchResultPosition=3
+**Two Cult Classics Restored and Brimming With Chaotic Life**\
+`Timothy Carey’s erratically brilliant “The World’s Greatest Sinner” and Emilio Fernández’s redemption melodrama “Victims of Sin” finally come to big screens.`\
+https://nytimes.com/2023/10/05/movies/worlds-greatest-sinner-victims-of-sin-review.html?searchResultPosition=3
 
-**Do You Know the History of the Nobel Prize in Literature?**\
-`Take this short trivia quiz to see how much you remember about the esteemed award and its past recipients.`\
-https://nytimes.com/interactive/2023/10/05/books/review/nobel-quiz-2023.html?searchResultPosition=4
+**‘When Evil Lurks’ Review: These Demons Are Fast and Furious**\
+`Humans become bloodthirsty demons in a shockingly grisly new contagion horror film from Argentina.`\
+https://nytimes.com/2023/10/05/movies/when-evil-lurks-review.html?searchResultPosition=4
 
-**How to Choose the Nobel Laureate: Tap a Literature Professor**\
-`The Swedish Academy sends out thousands of invitations each year for professors and others in the literary world to nominate writers for the prize in a secretive and precise process.`\
-https://nytimes.com/live/2023/10/05/books/nobel-prize-literature/how-to-win-nobel-prize-literature?searchResultPosition=5
+**‘She Came to Me’ Review: A Sea of Troubles (the Romantic Kind)**\
+`A love-triangle comedy from Rebecca Miller, starring Peter Dinklage, Marisa Tomei and Anne Hathaway, gets an emotional boost from an unexpected source.`\
+https://nytimes.com/2023/10/05/movies/she-came-to-me-review.html?searchResultPosition=5
 
-**The Mosquitoes Are Winning**\
-`The rapid evolution of the insect has helped drive up Malaria deaths in Africa, fueling a growing public health threat.`\
-https://nytimes.com/2023/10/05/podcasts/the-daily/mosquitos-malaria.html?searchResultPosition=6
+**‘Totally Killer’ Review: More Like Marty McDie**\
+`This teen slasher comedy with a time-traveling twist can’t muster up enough charisma to make its mash-up concept sing.`\
+https://nytimes.com/2023/10/05/movies/totally-killer-review.html?searchResultPosition=6
 
-**Who’s tipped for this year’s literature prize?**\
-`By Alex Marshall`\
-https://nytimes.com/live/2023/10/05/books/nobel-prize-literature/whos-tipped-for-this-years-literature-prize?searchResultPosition=7
+**‘The Royal Hotel’ Review: Pulling Pints and Watching Their Backs**\
+`Two young women struggle to handle the obstreperous patrons of a remote Australian pub in this coolly calibrated thriller.`\
+https://nytimes.com/2023/10/05/movies/the-royal-hotel-review.html?searchResultPosition=7
 
-**Here’s what to know.**\
-`The prize, the most prestigious in literature, recognizes an author’s entire body of work`\
-https://nytimes.com/live/2023/10/05/books/nobel-prize-literature/nobel-prize-literature-winner?searchResultPosition=8
+**‘More Than Ever’ Review: A Shared Melancholy**\
+`This middlebrow weepie about a woman dying from a rare lung disease stars Vicky Krieps and Gaspard Ulliel in his final role before his death in 2022.`\
+https://nytimes.com/2023/10/05/movies/more-than-ever-review.html?searchResultPosition=8
 
-**Today’s Top News: Secretary Blinken Travels to Mexico, and More**\
-`Exclusively from New York Times Audio, our new app.`\
-https://nytimes.com/2023/10/05/podcasts/headlines-nyt-audio-app.html?searchResultPosition=9
+**‘My Love Affair With Marriage’ Review: A Tale of Love and Loss**\
+`This animated musical about a young woman’s sexual and romantic awakening uses a gloriously tactile aesthetic.`\
+https://nytimes.com/2023/10/05/movies/my-love-affair-with-marriage-review.html?searchResultPosition=9
 
-**How to Fix Wordy Writing**\
-`A writer and teacher shares a lesson for helping students understand the importance of clear, concise writing, and spotting needless words.`\
-https://nytimes.com/2023/10/05/learning/lesson-plans/how-to-fix-wordy-writing.html?searchResultPosition=10
+**‘Foe’ Review: The Space Between**\
+`Saoirse Ronan and Paul Mescal play a farm couple with a less-than-idyllic marriage in the Midwest of the future.`\
+https://nytimes.com/2023/10/05/movies/foe-review.html?searchResultPosition=10
 
