@@ -1,4 +1,4 @@
-**BooWhere to start? A guide to Fosse’s work.**\
+**Where to start? A guide to Fosse’s work.**\
 `By Joumana Khatib and Tina Jordan`\
 https://nytimes.com/live/2023/10/05/books/nobel-prize-literature/jon-fosse-nobel-prize-literature-work?searchResultPosition=1
 
