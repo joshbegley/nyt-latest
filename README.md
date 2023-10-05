@@ -1,6 +1,6 @@
 **New Details About FTX Emerge as Bankman-Fried’s Trial Begins**\
 `A new report about when employees discovered a secret link between the crypto exchange and a sister trading firm raises questions as witnesses started testifying.`\
-https://nytimes.com/2023/10/05/business/dealbook/ftx-back-door-bankman-fried-trial.html?searchResultPosition=1
+https://nytimes.com/2023/10/05/business/dealbook/ftx-sam-bankman-fried-trial.html?searchResultPosition=1
 
 **‘When I manage to write well, there is a second, silent language.’**\
 `By Alexandra Alter`\
