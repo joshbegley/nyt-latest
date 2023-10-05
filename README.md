@@ -22,7 +22,7 @@ https://nytimes.com/2023/10/05/style/not-their-parents-south-asian-weddings.html
 `Chinese electric vehicle companies like Nio are pulling ever further ahead, partly through government support but also rapid technological advances.`\
 https://nytimes.com/2023/10/05/business/nio-china-electric-vehicles.html?searchResultPosition=6
 
-**Bidens’ Dog Is No Longer Living at White House After Latest Biting Incident**\
+**Bidens’ Dog Is No Longer at White House After Latest Biting Incident**\
 `Commander, a 2-year-old German shepherd, bit a Secret Service officer last week, the 11th incident involving “aggressive behavior” by the president’s pets.`\
 https://nytimes.com/2023/10/04/us/politics/bidens-commander-dog-biting.html?searchResultPosition=7
 
