@@ -11,7 +11,7 @@ https://nytimes.com/live/2023/10/05/books/nobel-prize-literature/the-writer-attr
 https://nytimes.com/2023/10/05/us/politics/election-officials-threats.html?searchResultPosition=3
 
 **A Russian strike hit a village store, Ukrainian officials say.**\
-`By Constant Méheut`\
+`By Andrew E. Kramer`\
 https://nytimes.com/live/2023/10/05/world/russia-ukraine-news/ukrainian-officials-say-a-russian-strike-killed-dozens-in-the-kharkiv-region?searchResultPosition=4
 
 **Homes for Sale in Manhattan and the Bronx**\
