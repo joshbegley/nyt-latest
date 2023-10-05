@@ -1,6 +1,6 @@
-**Where to start? A guide to Fosse’s work.**\
+**BooWhere to start? A guide to Fosse’s work.**\
 `By Joumana Khatib and Tina Jordan`\
-https://nytimes.com/live/2023/10/05/books/nobel-prize-literature/where-to-start-a-guide-to-fosses-work?searchResultPosition=1
+https://nytimes.com/live/2023/10/05/books/nobel-prize-literature/jon-fosse-nobel-prize-literature-work?searchResultPosition=1
 
 **The writer attracts global renown for his plays.**\
 `By Alexandra Alter`\
