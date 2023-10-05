@@ -1,5 +1,5 @@
 **Alabama Is Ordered to Use Congressional Map That Likely Flips Seat to Democrats**\
-`The new voting map is a remedy to Alabama’s illegal dilution of Black voting power and could lead the state to elect two Black representatives for the first time in its history.`\
+`The new voting map, chosen by a court after it ruled that Alabama illegally diluted Black voting power, could lead the state to elect two Black representatives for the first time in its history.`\
 https://nytimes.com/2023/10/05/us/politics/alabama-congressional-map-democrat-seat.html?searchResultPosition=1
 
 **The Best Movies and TV Shows Coming to HBO, Hulu, Apple TV+ and More in October**\
