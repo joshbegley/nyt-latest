@@ -1,40 +1,40 @@
+**Will New Yorkers Move Into Homes With Shared Kitchens and Baths?**\
+`A think tank says the best way to convert offices to apartments is “flexible co-living,” with communal kitchens and bathrooms.`\
+https://nytimes.com/2023/10/05/nyregion/office-conversions-communal-living.html?searchResultPosition=1
+
 **A Wartime Election in Ukraine? It’s a Political Hot Potato.**\
 `In normal circumstances, President Volodymyr Zelensky would be running for re-election next spring. Analysts say an election is unlikely, but the prospect is causing some anxiety in Kyiv.`\
-https://nytimes.com/2023/10/05/world/europe/ukraine-zelensky-elections-war.html?searchResultPosition=1
+https://nytimes.com/2023/10/05/world/europe/ukraine-zelensky-elections-war.html?searchResultPosition=2
 
 **Gun Deaths Rising Sharply Among Children, Study Finds**\
 `Firearm injuries are a leading cause of death among young children and teenagers in the United States.`\
-https://nytimes.com/2023/10/05/health/gun-deaths-children.html?searchResultPosition=2
+https://nytimes.com/2023/10/05/health/gun-deaths-children.html?searchResultPosition=3
 
 **Not Their Parents’ South Asian Weddings**\
 `Some couples who have a foot in two cultures are taking their ceremonies into their own hands. (See: a playlist that blends Bad Bunny and Bollywood.)`\
-https://nytimes.com/2023/10/05/style/not-their-parents-south-asian-weddings.html?searchResultPosition=3
+https://nytimes.com/2023/10/05/style/not-their-parents-south-asian-weddings.html?searchResultPosition=4
 
 **China’s E.V. Threat: A Carmaker That Loses $35,000 a Car**\
 `Chinese electric vehicle companies like Nio are pulling ever further ahead, partly through government support but also rapid technological advances.`\
-https://nytimes.com/2023/10/05/business/nio-china-electric-vehicles.html?searchResultPosition=4
+https://nytimes.com/2023/10/05/business/nio-china-electric-vehicles.html?searchResultPosition=5
 
 **Bidens’ Dog Is No Longer Living at White House After Latest Biting Incident**\
 `Commander, a 2-year-old German shepherd, bit a Secret Service officer last week, the 11th incident involving “aggressive behavior” by the president’s pets.`\
-https://nytimes.com/2023/10/04/us/politics/bidens-commander-dog-biting.html?searchResultPosition=5
+https://nytimes.com/2023/10/04/us/politics/bidens-commander-dog-biting.html?searchResultPosition=6
 
 **Corrections: Oct. 5, 2023**\
 `Corrections that appeared in print on Thursday, Oct. 5, 2023.`\
-https://nytimes.com/2023/10/04/pageoneplus/corrections-oct-5-2023.html?searchResultPosition=6
+https://nytimes.com/2023/10/04/pageoneplus/corrections-oct-5-2023.html?searchResultPosition=7
 
 **Sweethearts Candy Word**\
 `Daniel Bodily’s puzzle will leave your head scrambled.`\
-https://nytimes.com/2023/10/04/crosswords/daily-puzzle-2023-10-05.html?searchResultPosition=7
+https://nytimes.com/2023/10/04/crosswords/daily-puzzle-2023-10-05.html?searchResultPosition=8
 
 **N.Y.P.D. Sergeant Charged With Assault After Punching Man**\
 `Police body camera footage shows Christian Zapata, an officer with the New York Police Department, pummeling a man who asked him and other officers to wear a mask.`\
-https://nytimes.com/video/us/100000009118061/nypd-punch-assault-sergeant.html?searchResultPosition=8
+https://nytimes.com/video/us/100000009118061/nypd-punch-assault-sergeant.html?searchResultPosition=9
 
 **Gunfire Leaves Pregnant Bystander on a Bus Critically Injured, and Her Baby Dead**\
 `Shots were fired during a dispute involving three men in Holyoke, Mass., on Wednesday afternoon, the authorities said. The suspects were taken to hospitals and are in custody.`\
-https://nytimes.com/2023/10/04/us/holyoke-massachusetts-shooting-pregnant-woman.html?searchResultPosition=9
-
-**Trump Announces $45.5 Million Fund-Raising Haul, Tripling DeSantis**\
-`The Trump campaign’s total, which cannot be independently verified until later this month, was built in part by an outpouring of money after his mug shot in Georgia was released.`\
-https://nytimes.com/2023/10/04/us/politics/trump-campaign-fund-raising-desantis.html?searchResultPosition=10
+https://nytimes.com/2023/10/04/us/holyoke-massachusetts-shooting-pregnant-woman.html?searchResultPosition=10
 
