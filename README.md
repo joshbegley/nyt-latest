@@ -1,4 +1,4 @@
-**How to choose the Nobel laureate: Tap an English professor.**\
+**How to Choose the Nobel Laureate: Tap an English Professor**\
 `The Swedish Academy sends out thousands of invitations each year for professors and others in the literary world to nominate writers for the prize in a secretive and precise process.`\
 https://nytimes.com/2023/10/05/arts/how-to-win-nobel-prize-literature.html?searchResultPosition=1
 
