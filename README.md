@@ -1,6 +1,6 @@
 **A Glass of Wine and a Binder of Bills: How Feinstein Paved the Way for Women**\
-`As they remembered Dianne Feinstein, Vice President Kamala Harris and Senator Chuck Schumer hailed her efforts to support women.`\
-https://nytimes.com/2023/10/05/us/politics/dianne-feinstein-senate-memorial.html?searchResultPosition=2
+`As they remembered Dianne Feinstein, Vice President Kamala Harris and Senator Chuck Schumer hailed her efforts to support other women in power.`\
+https://nytimes.com/2023/10/05/us/politics/feinstein-schumer-harris-senate-memorial.html?searchResultPosition=2
 
 **North Carolina Radio Station Won’t Ban Met Opera Broadcasts After All**\
 `The station, which had called the Met’s newer operas unsuitable because of their “difficult music” and “adult themes and harsh language,” reversed course.`\
