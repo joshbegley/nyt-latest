@@ -15,8 +15,8 @@ https://nytimes.com/live/2023/10/05/books/nobel-prize-literature/fosse-writes-in
 https://nytimes.com/live/2023/10/05/books/nobel-prize-literature/in-norway-fosses-win-means-a-lot?searchResultPosition=4
 
 **Where to start? A guide to Fosse’s work.**\
-`By Joumana Khatib and Tina Jordan`\
-https://nytimes.com/live/2023/10/05/books/nobel-prize-literature/jon-fosse-nobel-prize-literature-work?searchResultPosition=5
+`His writing is spare and existential, often focusing on the interior lives of rather solitary characters.`\
+https://nytimes.com/live/2023/10/05/books/nobel-prize-literature/jon-fosse-books-plays?searchResultPosition=5
 
 **The writer attracts global renown for his plays.**\
 `By Alexandra Alter`\
