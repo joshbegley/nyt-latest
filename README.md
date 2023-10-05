@@ -1,4 +1,4 @@
-**A Russian strike hit a grocery store, Ukrainian officials say.**\
+**A Russian strike hit a store, Ukrainian officials say.**\
 `By Constant Méheut`\
 https://nytimes.com/live/2023/10/05/world/russia-ukraine-news/ukrainian-officials-say-a-russian-strike-killed-dozens-in-the-kharkiv-region?searchResultPosition=1
 
