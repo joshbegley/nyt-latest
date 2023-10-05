@@ -30,7 +30,7 @@ https://nytimes.com/2023/10/05/opinion/columnists/republicans-democrats-house-sp
 `The senator faced calls to step down as her health declined, amid concerns about the effectiveness of an aging Senate.`\
 https://nytimes.com/2023/10/05/us/politics/feinstein-health-senate-legacy.html?searchResultPosition=9
 
-**Biden Is Expanding the Border Wall**\
-`Also, the Nobel Prize in Literature. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2023/10/05/briefing/biden-border-wall-jon-fosse-nobel.html?searchResultPosition=10
+**American Jet Shoots Down Turkish Drone in Syria**\
+`The Pentagon said the drone had been observed carrying out airstrikes shortly before flying within about 550 yards of U.S. forces.`\
+https://nytimes.com/2023/10/05/us/drone-syria-us-turkey.html?searchResultPosition=10
 
