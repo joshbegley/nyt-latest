@@ -1,6 +1,6 @@
 **How to Choose the Nobel Laureate: Tap an English Professor**\
 `The Swedish Academy sends out thousands of invitations each year for professors and others in the literary world to nominate writers for the prize in a secretive and precise process.`\
-https://nytimes.com/2023/10/05/arts/how-to-win-nobel-prize-literature.html?searchResultPosition=1
+https://nytimes.com/live/2023/10/05/books/nobel-prize-literature/how-to-win-nobel-prize-literature?searchResultPosition=1
 
 **The Mosquitoes Are Winning**\
 `The rapid evolution of the insect has helped drive up Malaria deaths in Africa, fueling a growing public health threat.`\
@@ -12,7 +12,7 @@ https://nytimes.com/live/2023/10/05/books/nobel-prize-literature/whos-tipped-for
 
 **Here’s what to know.**\
 `The prize, the most prestigious in literature, recognizes an author’s entire body of work`\
-https://nytimes.com/2023/10/05/arts/nobel-prize-literature-winner.html?searchResultPosition=4
+https://nytimes.com/live/2023/10/05/books/nobel-prize-literature/nobel-prize-literature-winner?searchResultPosition=4
 
 **Today’s Top News: Secretary Blinken Travels to Mexico, and More**\
 `Exclusively from New York Times Audio, our new app.`\
