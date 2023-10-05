@@ -11,7 +11,7 @@ https://nytimes.com/live/2023/10/05/books/nobel-prize-literature/fosse-as-a-play
 https://nytimes.com/2023/10/05/opinion/letters/population-decline.html?searchResultPosition=3
 
 **Russian Strike Kills Dozens at Village Store in Kharkiv Region**\
-`Video released by the Ukrainian government and verified by The New York Times shows the aftermath of a deadly attack in Groza, Ukraine.`\
+`Video released by the Ukrainian government and verified by The New York Times shows the aftermath of a deadly attack in Hroza, Ukraine.`\
 https://nytimes.com/video/world/europe/100000009118634/russia-strike-ukraine-kharkiv-groza.html?searchResultPosition=4
 
 **Trump Asks Again to Delay Documents Trial Until After Election**\
