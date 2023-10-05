@@ -14,7 +14,7 @@ https://nytimes.com/live/2023/10/05/books/nobel-prize-literature/annie-ernaux-no
 `Take this short trivia quiz to see how much you remember about the esteemed award and its past recipients.`\
 https://nytimes.com/interactive/2023/10/05/books/review/nobel-quiz-2023.html?searchResultPosition=4
 
-**How to Choose the Nobel Laureate: Tap an English Professor**\
+**How to Choose the Nobel Laureate: Tap a Literature Professor**\
 `The Swedish Academy sends out thousands of invitations each year for professors and others in the literary world to nominate writers for the prize in a secretive and precise process.`\
 https://nytimes.com/live/2023/10/05/books/nobel-prize-literature/how-to-win-nobel-prize-literature?searchResultPosition=5
 
