@@ -8,7 +8,7 @@ https://nytimes.com/2023/10/06/opinion/nobel-prize-womens-rights.html?searchResu
 
 **As Venezuelans Face Deportation, Many Still Seek to Enter the U.S.**\
 `The attempt to reduce unlawful crossings at the southern border will not deter Venezuelan migrants from traveling north, advocates say.`\
-https://nytimes.com/2023/10/06/world/pub-in-error.html?searchResultPosition=3
+https://nytimes.com/2023/10/06/world/venezuelans-deportation.html?searchResultPosition=3
 
 **A Jack-o’-lantern by Any Other Name, Lewis Is Defining Halloween**\
 `The towering decoration from Target, which has become a must-have among Halloween fans, will sass you.`\
