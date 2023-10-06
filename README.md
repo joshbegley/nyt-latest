@@ -6,8 +6,8 @@ https://nytimes.com/2023/10/06/us/border-wall-biden.html?searchResultPosition=1
 `Political calculations should not keep others from joining Narges Mohammadi of Iran.`\
 https://nytimes.com/2023/10/06/opinion/nobel-prize-womens-rights.html?searchResultPosition=2
 
-**This article was published in error.**\
-`This article was published in error.`\
+**As Venezuelans Face Deportation, Many Still Seek to Enter the U.S.**\
+`The attempt to reduce unlawful crossings at the southern border will not deter Venezuelan migrants from traveling north, advocates say.`\
 https://nytimes.com/2023/10/06/world/pub-in-error.html?searchResultPosition=3
 
 **A Jack-o’-lantern by Any Other Name, Lewis Is Defining Halloween**\
