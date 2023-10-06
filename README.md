@@ -1,6 +1,6 @@
 **Who is Narges Mohammadi?**\
 `Iran’s most prominent human rights campaigner, Ms. Mohammadi is at least the fourth Nobel laureate to win the prize while imprisoned.`\
-https://nytimes.com/2023/10/06/world/who-is-narges-mohammadi.html?searchResultPosition=1
+https://nytimes.com/live/2023/10/06/world/nobel-peace-prize/who-is-narges-mohammadi?searchResultPosition=1
 
 **Review: Scream Along With Pussy Riot**\
 `In the first major museum retrospective devoted to the Russian art provocateurs, they pump their fists and cause a fuss. They want you to do the same.`\
