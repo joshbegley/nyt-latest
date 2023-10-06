@@ -27,7 +27,7 @@ https://nytimes.com/video/science/space/100000009121655/amazon-project-kuiper-la
 https://nytimes.com/2023/10/06/us/ellsworth-johnson-dead.html?searchResultPosition=7
 
 **The Blast That Wiped Out a Family and Left Rows of Empty Homes**\
-`A missile strike on the Ukrainian village of Hroza killed at least 52 people, including every known member of one family in the area. As much as a third of the population was killed in the strike. “Everybody died,” one resident said.`\
+`A missile strike on the Ukrainian village of Hroza killed at least 52 people, including every known member of one immediate family. As much as a third of the population was killed in the strike. “Everybody died,” one resident said.`\
 https://nytimes.com/2023/10/06/world/europe/hroza-ukraine-missile-strike.html?searchResultPosition=8
 
 **Am I Still Contagious?**\
