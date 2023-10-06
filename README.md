@@ -1,40 +1,40 @@
-**It Takes a Lifetime to Survive Childhood Cancer**\
-`Years after they overcame a diagnosis, patients are still living with their treatment’s toll.`\
-https://nytimes.com/2023/10/06/opinion/childhood-cancer-recovery.html?searchResultPosition=1
+**Who is Narges Mohammadi?**\
+`Iran’s most prominent human rights campaigner, Ms. Mohammadi is at least the fourth Nobel laureate to win the prize while imprisoned.`\
+https://nytimes.com/2023/10/06/world/who-is-narges-mohammadi.html?searchResultPosition=1
 
-**A Friendship Woven of Hair and Heritage**\
-`The quest to find a stylist for my natural hair spanned continents and changed my life.`\
-https://nytimes.com/2023/10/06/opinion/race-natural-hair-heritage.html?searchResultPosition=2
+**Review: Scream Along With Pussy Riot**\
+`In the first major museum retrospective devoted to the Russian art provocateurs, they pump their fists and cause a fuss. They want you to do the same.`\
+https://nytimes.com/2023/10/06/arts/design/pussy-riot-louisiana-museum.html?searchResultPosition=2
 
-**How Advisers Help Shape the Art World**\
-`Wealthy collectors often use art advisers to establish and build collections. “I have to learn their taste and then wear their taste like glasses,” one adviser said.`\
-https://nytimes.com/2023/10/06/arts/art-advisers-frieze-london.html?searchResultPosition=3
+**As Winter Looms, Venezuelan Migrant Surge Overwhelms Chicago**\
+`Police stations have become tent encampments. More than 800 migrants are sleeping at Chicago O’Hare International Airport. City officials are scrambling.`\
+https://nytimes.com/2023/10/06/us/chicago-migrants.html?searchResultPosition=3
 
-**Ghosts Come in Many Forms in Bryan Washington’s New Novel**\
-`In “Family Meal,” the author follows the jagged reunion of two former best friends, each grappling with grief and complicated relationships.`\
-https://nytimes.com/2023/10/06/books/review/family-meal-bryan-washington.html?searchResultPosition=4
+**‘I Am Part of the Story of Art’**\
+`A pioneer of the Black Arts Movement in Britain, Claudette Johnson now has her first solo show at a major museum in London — steps away from Gauguin.`\
+https://nytimes.com/2023/10/06/arts/design/claudette-johnson-courtauld-gallery-london.html?searchResultPosition=4
 
-**Audiobook of the Week: What’s Really in a Hot Dog?**\
-`“Raw Dog,” by the comedian Jamie Loftus, is an investigative memoir that’s part gonzo travelogue and part takedown of the factory farming system.`\
-https://nytimes.com/2023/10/06/books/review/audiobook-of-the-week-whats-really-in-a-hot-dog.html?searchResultPosition=5
+**Art to See in London This Fall**\
+`During Frieze London, visitors can experience Marina Abramovic’s performance art, discover El Anatsui’s installations and view works by Daniel Richter.`\
+https://nytimes.com/2023/10/06/arts/london-fall-exhibits.html?searchResultPosition=5
 
-**His Earthquake Warnings Brought Him Fame. He Wishes More People Had Listened.**\
-`Naci Gorur, a geologist, has become a household name in Turkey for imploring the country to prepare for quakes he has predicted. He has been disappointed by the response and is deeply worried about Istanbul.`\
-https://nytimes.com/2023/10/06/world/europe/turkey-earthquakes-naci-gorur.html?searchResultPosition=6
+**Confessions of a Pop-Tarts Taste Tester**\
+`When my family was enlisted nearly 60 years ago, little did we suspect that the pastry would become a pop-culture phenomenon and inspire a Seinfeld movie.`\
+https://nytimes.com/2023/10/06/dining/pop-tarts-taste-tester.html?searchResultPosition=6
 
-**Where to Find a Horse, a Hemp Farm and a War**\
-`New books by Finn Murphy, Will Grant and Peter Stark explore the past and present of the American West.`\
-https://nytimes.com/2023/10/06/gallop-toward-the-sun-peter-stark-rocky-mountain-high-finn-murphy-the-last-ride-of-the-pony-express-will-grant.html?searchResultPosition=7
+**Peso Pluma, Mexico’s Breakout Music Star, Finds New Spotlights**\
+`The reigning king of corridos tumbados is bringing an updated version of traditional music to international collaborators and audiences.`\
+https://nytimes.com/2023/10/06/arts/music/peso-pluma-mexican-music.html?searchResultPosition=7
 
-**Jhumpa Lahiri Translates the Varieties of Strangeness**\
-`In “Roman Stories,” written in Italian, nine protagonists have little in common except their foreignness.`\
-https://nytimes.com/2023/10/06/books/review/jhumpa-lahiri-roman-stories.html?searchResultPosition=8
+**6 New Paperbacks to Read This Week**\
+`Selected paperbacks from the Book Review, including titles by Charlayne Hunter-Gault, Hua Hsu, Kate Manning and more.`\
+https://nytimes.com/interactive/2023/10/06/books/review/new-paperbacks-hunter-gault.html?searchResultPosition=8
 
-**A rise in August job openings surprised investors.**\
-`The September jobs report comes days after the Labor Department reported that openings increased for the first time in four months.`\
-https://nytimes.com/live/2023/10/06/business/jobs-report-september-economy/a-rise-in-august-job-openings-surprised-investors?searchResultPosition=9
+**In Times of Danger, There’s Strength in Numbers**\
+`An illustrated ode to Richard Adams’s novel “Watership Down.”`\
+https://nytimes.com/2023/10/06/books/review/graphic-review-watership-down.html?searchResultPosition=9
 
-**How strikes are (and aren’t) reflected in the jobs report.**\
-`By Talmon Joseph Smith`\
-https://nytimes.com/live/2023/10/06/business/jobs-report-september-economy/how-strikes-are-and-arent-reflected-in-the-jobs-report?searchResultPosition=10
+**How to Break Through When Your Teen Tunes You Out**\
+`Meaningful conversations are possible, but you might have to change your approach, experts say.`\
+https://nytimes.com/2023/10/06/well/family/parenting-teenagers-puberty.html?searchResultPosition=10
 
