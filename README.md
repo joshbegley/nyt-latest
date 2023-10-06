@@ -3,7 +3,7 @@
 https://nytimes.com/2023/10/06/podcasts/sam-bankman-fried-giuliani-trump.html?searchResultPosition=1
 
 **The N.Y.C. Subway Is No Longer Broke. Can It Buy Rider Happiness?**\
-`For as long as many New Yorkers can remember, the transit system has needed more money. Now its budget is finally whole, and the pressure for good service is on.`\
+`For as long as many New Yorkers can remember, the M.T.A. has needed more money. Now its budget is finally whole, and the pressure for good service is on.`\
 https://nytimes.com/2023/10/06/nyregion/mta-nyc-subway-service.html?searchResultPosition=2
 
 **House Speaker, Ukraine War, Border Wall: Trump’s Influence Reaches a Post-Presidency Peak**\
