@@ -1,5 +1,5 @@
 **Days Before a Vote, Republicans Feud Over How to Choose a New Speaker**\
-`A quiet rules fight highlights the depth of the divisions now plaguing House Republicans. It could set the stage for a bruising election to choose a successor to the party’s ousted speaker.`\
+`A quiet fight over the rules highlights the depth of G.O.P. divisions. It could set the stage for a bruising election to choose a successor to the party’s ousted speaker.`\
 https://nytimes.com/2023/10/06/us/politics/republicans-speaker-vote-jordan-scalise.html?searchResultPosition=1
 
 **Mike Lindell’s Lawyers Say He Owes ‘Millions’ in Fees**\
