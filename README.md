@@ -4,7 +4,7 @@ https://nytimes.com/live/2023/10/06/business/jobs-report-september-economy/strik
 
 **Despite the economy’s resilience, the outlook is hard to gauge.**\
 `By Talmon Joseph Smith`\
-https://nytimes.com/live/2023/10/06/business/jobs-report-september-economy/despite-the-economys-resilience-the-outlook-is-hard-to-gauge?searchResultPosition=2
+https://nytimes.com/live/2023/10/06/business/jobs-report-september-economy/economy-jobs-report-macro?searchResultPosition=2
 
 **Chaos or Conscience? A Republican Explains His Vote to Oust McCarthy.**\
 `Representative Tim Burchett of Tennessee talks about why he felt so betrayed.`\
