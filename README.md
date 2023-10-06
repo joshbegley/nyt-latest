@@ -11,7 +11,7 @@ https://nytimes.com/2023/10/06/arts/music/russell-batiste-dead.html?searchResult
 https://nytimes.com/interactive/2023/10/06/upshot/flashback.html?searchResultPosition=3
 
 **Former U.S. Soldier Is Accused of Trying to Give Classified Secrets to China**\
-`Joseph D. Schmidt, who served in a military intelligence battalion, had access to classified information. He was arrested this week in San Francisco after living in Hong Kong since 2020.`\
+`Joseph D. Schmidt, who served in a military intelligence battalion, was arrested this week in San Francisco after relocating to Hong Kong since 2020.`\
 https://nytimes.com/2023/10/06/us/politics/china-classified-intelligence-army-soldier.html?searchResultPosition=4
 
 **More Brokerages Leave Powerful Realtor Group**\
