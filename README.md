@@ -20,7 +20,7 @@ https://nytimes.com/2023/10/06/science/amazon-project-kuiper-launch.html?searchR
 
 **Russia Bids to Rejoin U.N. Human Rights Council**\
 `The vote scheduled for Tuesday in the U.N. General Assembly could be close, in part because of Russia’s support among some countries of the global south.`\
-https://nytimes.com/2023/10/06/world/europe/russia-bids-to-rejoin-un-human-rights-council.html?searchResultPosition=6
+https://nytimes.com/2023/10/06/world/europe/russia-un-human-rights-council.html?searchResultPosition=6
 
 **Five Action Movies to Stream Now**\
 `This month’s picks include vengeful spouses, plenty of brawling and a little bit of cheese.`\
