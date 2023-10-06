@@ -1,6 +1,6 @@
-**Jobs Gains Surge, Troubling News for the Federal Reserve.**\
+**Jobs Gains Surge, Troubling News for the Federal Reserve**\
 `Federal Reserve officials are happy when the labor market looks strong, but they are trying to cool the economy down to fully wrangle inflation.`\
-https://nytimes.com/2023/10/06/business/jobs-gains-surge-troubling-news-for-the-federal-reserve.html?searchResultPosition=1
+https://nytimes.com/2023/10/06/business/jobs-september-federal-reserve.html?searchResultPosition=1
 
 **‘A Slap in the Face of Voters’: What R.N.C. Members Say About Trump’s Calls to Cancel Debates**\
 `Many members of the Republican National Committee say they are giving little weight to the Trump campaign’s appeal.`\
