@@ -1,5 +1,5 @@
 **Britain’s Labour Scores Decisive Victory in Parliamentary Election in Scotland**\
-`The opposition party took back a Scottish parliamentary seat, in a win that observers said showed a path to power in next year’s general election.`\
+`The opposition party took back a parliamentary seat from the Scottish National Party, in a win that observers said showed a path to power in next year’s general election.`\
 https://nytimes.com/2023/10/05/world/europe/britain-labour-scottish-national-party-election.html?searchResultPosition=1
 
 **Granddaughter Recalls Dianne Feinstein’s ‘Unwavering Support’**\
