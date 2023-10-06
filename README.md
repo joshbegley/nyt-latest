@@ -2,7 +2,7 @@
 `Eliana Pipes’s new play is too pat to convincingly explore the societal imbalances resulting from race, class and gender.`\
 https://nytimes.com/2023/10/06/theater/bite-me-review.html?searchResultPosition=1
 
-**A Man’s Best Friend Is Banished. Some Wonder Why It Took So Long.**\
+**For Biden’s Dog, a Belated Exile: ‘How Many Bites Does It Take?’**\
 `The end of a pet’s troubled term in the White House hints at the complicated dynamics inside one of the world’s most exclusive mansions.`\
 https://nytimes.com/2023/10/06/us/politics/biden-commander-dog-bites-secret-service.html?searchResultPosition=2
 
