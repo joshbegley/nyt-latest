@@ -1,6 +1,6 @@
 **How strikes are (and aren’t) reflected in the jobs report.**\
 `By Talmon Joseph Smith`\
-https://nytimes.com/live/2023/10/06/business/jobs-report-september-economy/how-strikes-are-and-arent-reflected-in-the-jobs-report?searchResultPosition=1
+https://nytimes.com/live/2023/10/06/business/jobs-report-september-economy/strikes-job-report?searchResultPosition=1
 
 **Despite the economy’s resilience, the outlook is hard to gauge.**\
 `By Talmon Joseph Smith`\
