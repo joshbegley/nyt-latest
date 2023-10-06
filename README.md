@@ -1,5 +1,5 @@
 **In Mexico, Adams Praised Migrants. He Also Told Them to Stop Coming.**\
-`Mayor Eric Adams went to Latin America with two missions: to tout New York City and praise earlier immigrants, and to tell new immigrants about the misery that awaits them if they come.`\
+`Mayor Eric Adams went to Latin America with two missions: to promote New York City and praise earlier immigrants, and to tell new immigrants about the misery that awaits them if they come.`\
 https://nytimes.com/2023/10/06/nyregion/eric-adams-migrants-mexico.html?searchResultPosition=1
 
 **It’s the Flavor That Slays in This Killer Pasta**\
