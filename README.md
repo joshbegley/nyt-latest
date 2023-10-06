@@ -3,7 +3,7 @@
 https://nytimes.com/2023/10/06/arts/henri-dauman-dead.html?searchResultPosition=1
 
 **Eddie Martinez Defers to the Desires of His Paints**\
-`At his Brooklyn studio, the artist’s routine includes turkey meatballs, cut-up Crocs and the patience to let his materials set his pace.`\
+`At his studio in Queens, the artist’s routine includes turkey meatballs, cut-up Crocs and the patience to let his materials set his pace.`\
 https://nytimes.com/2023/10/06/t-magazine/eddie-martinez.html?searchResultPosition=2
 
 **Review: After Hovering, Steve Reich Brings Back the Pulse**\
