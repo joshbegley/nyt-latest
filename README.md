@@ -10,8 +10,8 @@ https://nytimes.com/live/2023/10/06/world/nobel-peace-prize/mohammadi-is-the-19t
 `The album, which had been teased all summer and then delayed, also features appearances by SZA, 21 Savage and J. Cole, plus a surprise role for an NBA star.`\
 https://nytimes.com/2023/10/06/arts/music/drake-for-all-the-dogs-album-release.html?searchResultPosition=3
 
-**A Nobel Prize-winning Russian journalist gets 47 fellow laureates to ask billionaires for $100 million.**\
-`Dmitri A. Muratov, who shared the prize in 2021, has used his win to raise funds for people affected by the war in Ukraine.`\
+**Russian Nobel Recipient and Other Laureates Ask for $100 Million in Aid**\
+`Dmitri A. Muratov, who shared the prize in 2021, has used the honor to raise funds for people affected by the war in Ukraine.`\
 https://nytimes.com/2023/10/06/world/europe/nobel-laureates-ukraine-aid.html?searchResultPosition=4
 
 **Five Children’s Movies to Stream Now**\
