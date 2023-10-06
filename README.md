@@ -1,5 +1,5 @@
 **U.A.W. Does Not Expand Strikes at Automakers**\
-`The United Automobile Workers on Friday did not expand its strike at General Motors, Ford and Stellantis, citing progress in negotiations.`\
+`The United Automobile Workers said on Friday it had secured an important concession from General Motors regarding the contracts of workers at battery factories.`\
 https://nytimes.com/2023/10/06/business/economy/uaw-strike-automakers.html?searchResultPosition=1
 
 **Schumer Leads Bipartisan Trip to China Amid Tensions**\
