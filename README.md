@@ -15,7 +15,7 @@ https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/biden-condemns-the-
 https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/some-israelis-are-barricading-themselves-in-their-homes-pleading-for-help?searchResultPosition=4
 
 **Hamas’s Control of Gaza Must End Now**\
-`Peace can soon follow, as it did after the Yom Kippur War.`\
+`Peace can soon follow, as it did after the Yom Kippur war.`\
 https://nytimes.com/2023/10/07/opinion/gaza-israel-hamas.html?searchResultPosition=5
 
 **Israel ‘at War’ After Hamas Attacks**\
