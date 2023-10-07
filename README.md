@@ -10,9 +10,9 @@ https://nytimes.com/2023/10/07/style/restless-in-minnesota.html?searchResultPosi
 `The leaves are turning shades of gold, and so are these recipes.`\
 https://nytimes.com/2023/10/07/dining/crispy-tostadas-fluffy-cheddar-biscuits-and-rich-chicken-mafe.html?searchResultPosition=3
 
-**Gaza has suffered under a 16-year blockade.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/2023/10/07/world/middleeast/gaza-has-suffered-under-a-16-year-blockade.html?searchResultPosition=4
+**Gaza Has Suffered Under 16-Year Blockade**\
+`Held in place by Israel and Egypt, the blockade restricts imports to the region and prevents most people from leaving.`\
+https://nytimes.com/2023/10/07/world/middleeast/gaza-blockade-israel.html?searchResultPosition=4
 
 **Diving Into ‘The Exorcist: Believer’**\
 `We knew Ellen Burstyn would be back. But what else? A discussion of some of the spoiler moments in the new sequel to the 1973 horror classic.`\
