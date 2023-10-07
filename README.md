@@ -1,5 +1,5 @@
 **Here is a timeline of the clashes between Palestinian militants and Israel.**\
-`By Emma Bubola`\
+`The relentless and deadly conflict has persisted for decades.`\
 https://nytimes.com/2023/10/07/world/middleeast/israel-gaza-conflict-timeline.html?searchResultPosition=1
 
 **Renewed Palestinian rocket fire strikes central Israel late Saturday.**\
