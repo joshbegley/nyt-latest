@@ -26,7 +26,7 @@ https://nytimes.com/2023/10/07/nyregion/psychedelic-drugs-athenaeum-nyc.html?sea
 `The issue of Israelis in captivity is a deeply emotional and explosive one in Israel, with the government having paid a high price in the past for the return of its citizens.`\
 https://nytimes.com/2023/10/07/world/middleeast/hamas-hostages-israel-video.html?searchResultPosition=7
 
-**Israel Has Declared War on Gaza. Now What?**\
+**An Attack From Gaza and an Israeli Declaration of War. Now What?**\
 `Prime Minister Benjamin Netanyahu is being pressured to launch a full-scale invasion that Israeli leaders have been scrupulously avoiding since 2005.`\
 https://nytimes.com/2023/10/07/world/middleeast/israel-gaza-war-hamas-palestinians.html?searchResultPosition=8
 
