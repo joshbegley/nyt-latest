@@ -23,7 +23,7 @@ https://nytimes.com/2023/10/07/movies/the-exorcist-believer-spoilers.html?search
 https://nytimes.com/2023/10/07/magazine/pemphigus-vulgaris-diagnosis.html?searchResultPosition=6
 
 **Hezbollah says it is in touch with Hamas and monitoring the attack.**\
-`By Hwaida Saad and Euan Ward`\
+`By Euan Ward and Hwaida Saad`\
 https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/hezbollah-says-it-is-in-touch-with-hamas-and-monitoring-the-attack?searchResultPosition=7
 
 **The attacks draw condemnation from Western powers, with Hamas singled out for criticism.**\
