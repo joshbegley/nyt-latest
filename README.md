@@ -7,7 +7,7 @@ https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/in-gaza-some-cheer-
 https://nytimes.com/interactive/2023/climate/extreme-summer-heat.html?searchResultPosition=2
 
 **Militants Stage a Large-Scale Infiltration Into Israel**\
-`The ground assault immediately evoked the hostage-taking attacks that scarred Israel in 2006, but it was whether any Israelis might have been seized this time.`\
+`The ground assault immediately evoked the hostage-taking attacks that scarred Israel in 2006, but it was unclear whether any Israelis might have been seized this time.`\
 https://nytimes.com/2023/10/07/world/middleeast/israel-gaza-militants-infiltrate.html?searchResultPosition=3
 
 **Nicole Scherzinger as Norma Desmond? Yes, There’s a Connection.**\
