@@ -1,40 +1,40 @@
-**In Gaza, some cheer returning fighters as others brace for Israel’s response.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/in-gaza-some-cheer-returning-fighters-as-others-brace-for-israels-response?searchResultPosition=1
+**A Curious Censorship Issue at the Guantánamo Court**\
+`A prisoner’s PTSD was discussed in open court, and was central to a ruling that he was unfit for trial. National security censors redacted it.`\
+https://nytimes.com/2023/10/07/us/politics/censorship-guantanamo-court.html?searchResultPosition=1
 
-**It’s Not Your Imagination. Summers Are Getting Hotter.**\
-`As the planet has warmed, summer temperatures have shifted toward more extreme heat.`\
-https://nytimes.com/interactive/2023/climate/extreme-summer-heat.html?searchResultPosition=2
+**Will the Motion to Vacate Be Vacated?**\
+`Some Republicans are calling for the weapon that dethroned Kevin McCarthy to be weakened. But it is not that easy.`\
+https://nytimes.com/2023/10/07/us/politics/motion-to-vacate-house-speaker.html?searchResultPosition=2
 
-**Militants stage a large-scale infiltration into Israel.**\
-`The ground assault immediately evoked the hostage-taking attacks that scarred Israel in 2006, but it was unclear whether any Israelis might have been seized this time.`\
-https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/israel-gaza-militants-infiltrate?searchResultPosition=3
+**Top 10 Hardest and Easiest Spelling Bee Words, Sept. 30-Oct. 6**\
+`If you’re not one for big hullabaloos, you might have missed this week’s toughest word.`\
+https://nytimes.com/2023/10/07/upshot/spelling-bee-words.html?searchResultPosition=3
 
-**Nicole Scherzinger as Norma Desmond? Yes, There’s a Connection.**\
-`It’s been cathartic to “create art from places of torment,” the singer-actor said ahead of the opening of “Sunset Boulevard” in London.`\
-https://nytimes.com/2023/10/07/theater/nicole-scherzinger-sunset-boulevard.html?searchResultPosition=4
+**What Sarah Jessica Parker, Molly Ringwald and Spike Lee Wore to Parties This Week**\
+`The New York City Ballet and Carnegie Hall hosted galas and Spike Lee celebrated his new exhibit at the Brooklyn Museum.`\
+https://nytimes.com/2023/10/07/style/nyc-fashion-gala-ballet-carnegie-brooklyn.html?searchResultPosition=4
 
-**Migrant Crisis Tests New Yorkers Who Thought They Supported Immigration**\
-`As the city’s resources strain under the influx of thousands of migrants, New Yorkers are still resolutely in favor of welcoming newcomers. But for how long?`\
-https://nytimes.com/2023/10/07/nyregion/nyc-migrant-crisis.html?searchResultPosition=5
+**The war threatens a potential Saudi deal with Israel.**\
+`By Douglas Schorzman`\
+https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/the-war-threatens-a-potential-saudi-deal-with-israel?searchResultPosition=5
 
-**How S. Epatha Merkerson, Actor, Spends Her Sundays**\
-`Known for “Law & Order” and now starring in “Chicago Med,” the actor can be found most Sundays at home in her favorite place: a bedroom she converted into a quilting studio.`\
-https://nytimes.com/2023/10/07/nyregion/s-epatha-merkerson-chicago-med.html?searchResultPosition=6
+**Feeling Terrible After Your Covid Shot? Then It’s Probably Working.**\
+`Fever, chills and fatigue may all be signs of vigorous antibody production, a new study finds.`\
+https://nytimes.com/2023/10/07/health/covid-vaccine-side-effects.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/10/07/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**California, Land of the Car, Could Soon Have Speed Cameras**\
+`A bill to install cameras has landed on the governor’s desk at a moment when pedestrian deaths are spiking nationwide.`\
+https://nytimes.com/2023/10/07/us/california-speed-cameras-pedestrians.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/10/07/crosswords/wordle-review-answer-840.html?searchResultPosition=8
+**Once a Labor Leader, Butler Angered Unions by Consulting for Uber**\
+`The new California senator was part of the gig company’s push to avoid having to classify its drivers as employees.`\
+https://nytimes.com/2023/10/07/us/politics/laphonza-butler-uber-lobbying.html?searchResultPosition=8
 
-**Here is what to know about the surprise attack on Israel.**\
-`Sirens sounded across southern and central Israel early Saturday as salvos of rockets hit Israeli cities and gunmen crossed the border from Gaza.`\
-https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/israel-gaza-attack?searchResultPosition=9
+**Migrants Chased and Snared in Razor Wire: A Rare Look at Texas’ Border Tactics**\
+`Videos reveal increasing militarization as Gov. Greg Abbott orders more troops and concertina wire to try to stop illegal border crossings.`\
+https://nytimes.com/2023/10/07/us/migrants-chased-and-snared-in-razor-wire-a-rare-look-at-texas-border-tactics.html?searchResultPosition=9
 
-**Corrections: Oct. 7, 2023**\
-`Corrections that appeared in print on Saturday, Oct. 7, 2023.`\
-https://nytimes.com/2023/10/07/corrections/corrections-oct-7-2023.html?searchResultPosition=10
+**Harry Smith Was a Culture-Altering Shaman. Can the Whitney Contain Him?**\
+`A solo show takes on the legacy of the painter, folk musicologist, filmmaker, obsessive collector and underground legend. It also hints at what has been lost.`\
+https://nytimes.com/2023/10/07/arts/design/harry-smith-whitney-review-artist-collector.html?searchResultPosition=10
 
