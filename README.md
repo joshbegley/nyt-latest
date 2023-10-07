@@ -1,4 +1,4 @@
-**Here is the latest on the attack**\
+**Here is what to know about the surprise attack on Israel.**\
 `Sirens sounded across southern and central Israel early Saturday as salvos of rockets hit Israeli cities and gunmen crossed the border from Gaza.`\
 https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/israel-gaza-attack?searchResultPosition=1
 
