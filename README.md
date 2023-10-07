@@ -32,7 +32,7 @@ https://nytimes.com/2023/10/07/world/middleeast/israel-gaza-photos.html?searchRe
 
 **Violence between Palestinians and Israelis has been seething for months.**\
 `By Aaron Boxerman`\
-https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/palestinians-israelis-recent-violence?searchResultPosition=9
+https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/violence-between-palestinians-and-israelis-has-been-seething-for-months?searchResultPosition=9
 
 **These Women Could Make New York Champions Again**\
 `With nearly every other local sports team stumbling, the Liberty are at long last on the rise.`\
