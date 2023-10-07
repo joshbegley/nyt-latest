@@ -1,40 +1,40 @@
+**Nicole Scherzinger as Norma Desmond? Yes, There’s a Connection.**\
+`It’s been cathartic to “create art from places of torment,” the singer-actor said ahead of the opening of “Sunset Boulevard” in London.`\
+https://nytimes.com/2023/10/07/theater/nicole-scherzinger-sunset-boulevard.html?searchResultPosition=1
+
+**Migrant Crisis Tests New Yorkers Who Thought They Supported Immigration**\
+`As the city’s resources strain under the influx of thousands of migrants, New Yorkers are still resolutely in favor of welcoming newcomers. But for how long?`\
+https://nytimes.com/2023/10/07/nyregion/nyc-migrant-crisis.html?searchResultPosition=2
+
+**How S. Epatha Merkerson, Actor, Spends Her Sundays**\
+`Known for “Law & Order” and now starring in “Chicago Med,” the actor can be found most Sundays at home in her favorite place: a bedroom she converted into a quilting studio.`\
+https://nytimes.com/2023/10/07/nyregion/s-epatha-merkerson-chicago-med.html?searchResultPosition=3
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/10/07/crosswords/spelling-bee-forum.html?searchResultPosition=4
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/10/07/crosswords/wordle-review-answer-840.html?searchResultPosition=5
+
 **Here is what to know about the surprise attack on Israel.**\
 `Sirens sounded across southern and central Israel early Saturday as salvos of rockets hit Israeli cities and gunmen crossed the border from Gaza.`\
-https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/israel-gaza-attack?searchResultPosition=1
+https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/israel-gaza-attack?searchResultPosition=6
 
 **Corrections: Oct. 7, 2023**\
 `Corrections that appeared in print on Saturday, Oct. 7, 2023.`\
-https://nytimes.com/2023/10/07/corrections/corrections-oct-7-2023.html?searchResultPosition=2
+https://nytimes.com/2023/10/07/corrections/corrections-oct-7-2023.html?searchResultPosition=7
 
 **Quotation of the Day: This Bachelor Has Seniors Hooked**\
 `Quotation of the Day for Saturday, October 7, 2023.`\
-https://nytimes.com/2023/10/07/pageoneplus/quotation-of-the-day-this-bachelor-has-seniors-hooked.html?searchResultPosition=3
+https://nytimes.com/2023/10/07/pageoneplus/quotation-of-the-day-this-bachelor-has-seniors-hooked.html?searchResultPosition=8
 
 **Suspect in Killings at Colorado Supermarket Is Mentally Competent, Judge Says**\
 `The man is accused of murdering 10 people in Boulder, Colo., in 2021.`\
-https://nytimes.com/2023/10/06/us/boulder-shooting-suspect-mentally-competent.html?searchResultPosition=4
+https://nytimes.com/2023/10/06/us/boulder-shooting-suspect-mentally-competent.html?searchResultPosition=9
 
 **From the Fringe to the Center of the G.O.P., Jordan Remains a Hard-Liner**\
 `Once a tormentor of the Republican Party’s speakers, the Ohio congressman and unapologetic right-wing pugilist has become a potential speaker himself.`\
-https://nytimes.com/2023/10/06/us/politics/jim-jordan-speaker-republicans.html?searchResultPosition=5
-
-**Get Wildly Enthusiastic**\
-`You’ll need a can-do spirit to navigate this themeless from Alex Vratsanos.`\
-https://nytimes.com/2023/10/06/crosswords/daily-puzzle-2023-10-07.html?searchResultPosition=6
-
-**As Wisconsin Supreme Court Takes Up Maps Case, Impeachment Threat Looms**\
-`Justice Janet Protasiewicz’s decision to participate in a case challenging state legislative district maps could spur Republicans to impeach her.`\
-https://nytimes.com/2023/10/06/us/politics/wisconsin-maps-janet-protasiewicz.html?searchResultPosition=7
-
-**Family Sentenced for Selling Bleach as ‘Miracle’ Covid-19 Cure**\
-`Mark Grenon, 66, and three sons sold $1 million of an industrial bleach solution that they claimed to be a cure-all, prosecutors said.`\
-https://nytimes.com/2023/10/06/us/toxic-miracle-mineral-solution-sentencing.html?searchResultPosition=8
-
-**13-Year-Old Boy Stabbed to Death on City Bus on Staten Island**\
-`The police said the teenager was killed during an argument on the bus that may have been gang-related.`\
-https://nytimes.com/2023/10/06/nyregion/teenager-stabbed-bus-staten-island.html?searchResultPosition=9
-
-**Days Before a Vote, Republicans Feud Over How to Choose a New Speaker**\
-`A quiet fight over the rules highlights the depth of G.O.P. divisions. It could set the stage for a bruising election to choose a successor to the party’s ousted speaker.`\
-https://nytimes.com/2023/10/06/us/politics/republicans-speaker-vote-jordan-scalise.html?searchResultPosition=10
+https://nytimes.com/2023/10/06/us/politics/jim-jordan-speaker-republicans.html?searchResultPosition=10
 
