@@ -1,5 +1,5 @@
 **Michael Bonallack, Britain’s Greatest Postwar Amateur Golfer, Dies at 88**\
-`He won championship after championship but never turned pro. He later led the Royal and Ancient Golf Club when it was a governing body and ran the British Open.`\
+`He won championship after championship but never turned pro. He later led the Royal and Ancient Golf Club of St. Andrews when it was a governing body in the sport.`\
 https://nytimes.com/2023/10/07/sports/michael-bonallack-dead.html?searchResultPosition=1
 
 **Biden’s Hopes for the Middle East Imperiled by Eruption of Violence**\
