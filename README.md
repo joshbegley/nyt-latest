@@ -15,7 +15,7 @@ https://nytimes.com/2023/10/07/world/middleeast/israel-gaza-war-scene.html?searc
 https://nytimes.com/interactive/2023/10/07/world/middleeast/israel-gaza-maps.html?searchResultPosition=4
 
 **Hospitals and Morgues in Gaza Are Crowded as People Seek Their Loved Ones**\
-`The Palestinian Health Ministry in Gaza said that 198 Palestinians had been killed and 1,610 wounded.`\
+`The Palestinian Health Ministry in Gaza said 198 Palestinians had been killed and 1,610 wounded.`\
 https://nytimes.com/2023/10/07/world/middleeast/gaza-hospitals-morgues.html?searchResultPosition=5
 
 **Photographs and videos suggest a significant number of casualties in Sderot.**\
