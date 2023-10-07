@@ -1,6 +1,6 @@
-**Gaza Militants Fire Barrages of Rockets Into Israel in Surprise Attack**\
+**Here is the latest on the attack**\
 `Sirens sounded across southern and central Israel early Saturday as salvos of rockets hit Israeli cities and gunmen crossed the border from Gaza.`\
-https://nytimes.com/2023/10/07/world/middleeast/israel-gaza-attack.html?searchResultPosition=1
+https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/israel-gaza-attack?searchResultPosition=1
 
 **Corrections: Oct. 7, 2023**\
 `Corrections that appeared in print on Saturday, Oct. 7, 2023.`\
