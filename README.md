@@ -30,7 +30,7 @@ https://nytimes.com/2023/10/07/books/review/krakauer-mcgar-ungar-sullivan.html?s
 `Stoneman Willie, as he is known, was a legend in Reading, where his remains were on display for generations. On Saturday, the city revealed his real name and gave him a proper send-off.`\
 https://nytimes.com/2023/10/07/us/stoneman-willie-buried-pennsylvania.html?searchResultPosition=8
 
-**Biden and other U.S. politicians condemn the Hamas attacks on Israel.**\
+**Biden and other U.S. leaders condemn the Hamas attacks on Israel.**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/biden-desantis-us-politicians-israel?searchResultPosition=9
 
