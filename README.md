@@ -12,7 +12,7 @@ https://nytimes.com/2023/10/07/dining/crispy-tostadas-fluffy-cheddar-biscuits-an
 
 **Gaza has suffered under a 16-year blockade.**\
 `By Raja Abdulrahim`\
-https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/gaza-has-suffered-under-a-16-year-blockade?searchResultPosition=4
+https://nytimes.com/2023/10/07/world/middleeast/gaza-has-suffered-under-a-16-year-blockade.html?searchResultPosition=4
 
 **Diving Into ‘The Exorcist: Believer’**\
 `We knew Ellen Burstyn would be back. But what else? A discussion of some of the spoiler moments in the new sequel to the 1973 horror classic.`\
