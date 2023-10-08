@@ -2,7 +2,7 @@
 `Corrections that appeared in print on Sunday, Oct. 8, 2023.`\
 https://nytimes.com/2023/10/08/corrections/editors-note-oct-8-2023.html?searchResultPosition=1
 
-**Israel has declared war on Gaza. Now what?**\
+**Hamas attacks and Israel declares war. Now What?**\
 `By Steven Erlanger`\
 https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/israel-has-declared-war-on-gaza-now-what?searchResultPosition=2
 
