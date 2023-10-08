@@ -1,40 +1,40 @@
-**Here’s a timeline of Saturday’s attacks and Israel’s retaliation.**\
-`The first air raid sirens went off at sunrise as Hamas launched an attack by land, sea and air. Israel declared a state of war and has destroyed buildings in Gaza.`\
-https://nytimes.com/2023/10/08/world/middleeast/timeline-gaza-israel-attacks-hamas.html?searchResultPosition=1
+**Best Time to Hold a Political Conference? Right After Your Party Wins Big.**\
+`Just ask Britain’s opposition Labour party.`\
+https://nytimes.com/2023/10/08/world/europe/labour-conservative-party-annual-conference.html?searchResultPosition=1
 
-**Here’s the latest on the fighting in Israel and Gaza.**\
-`By Patrick Kingsley and Isabel Kershner`\
-https://nytimes.com/live/2023/10/08/world/israel-gaza-attack-hamas-news/heres-the-latest-on-the-fighting-in-israel-and-gaza?searchResultPosition=2
+**The Nation’s Obsession With True Crime Meets a Mother’s Grief**\
+`Less than a year after losing her son in a murder that captivated the true crime community, Stacy Chapin spent three days navigating CrimeCon.`\
+https://nytimes.com/2023/10/08/us/crimecon-true-crime-idaho-murder-stacy-chapin.html?searchResultPosition=2
 
-**Editors’ Note: Oct. 8, 2023**\
-`Corrections that appeared in print on Sunday, Oct. 8, 2023.`\
-https://nytimes.com/2023/10/08/corrections/editors-note-oct-8-2023.html?searchResultPosition=3
+**The Liberty Are Giving New Yorkers Something to Cheer For**\
+`The W.N.B.A. team, now in the finals, is a bright spot during a rough year for local sports.`\
+https://nytimes.com/2023/10/08/nyregion/new-york-liberty-finals.html?searchResultPosition=3
 
-**Hamas attacks and Israel declares war. Now What?**\
-`By Steven Erlanger`\
-https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/israel-has-declared-war-on-gaza-now-what?searchResultPosition=4
+**An Enduring Concept of Oneness**\
+`If a term isn’t helpful, a new one will replace it. That’s not the case with “union.”`\
+https://nytimes.com/2023/10/08/insider/union-etymology.html?searchResultPosition=4
 
-**Netanyahu’s foes say they’d consider joining him in a wartime governing coalition.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/netanyahus-foes-say-theyd-consider-joining-him-in-a-wartime-governing-coalition?searchResultPosition=5
+**On the Future of Work, a Reporter Looks Back**\
+`Emma Goldberg, a journalist on the Business desk of The New York Times, reflects on her evolving beat as tens of thousands of employees return to the office.`\
+https://nytimes.com/2023/10/08/insider/future-of-work-reporter.html?searchResultPosition=5
 
-**Military experts say the Hamas attacks were unusually sophisticated.**\
-`By Eric Schmitt`\
-https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/military-experts-say-the-hamas-attacks-were-unusually-sophisticated?searchResultPosition=6
+**In New York City’s Coolest Clubs, Remixing Cumbia for the Hipster Set**\
+`Cumbia, a traditional Latin American musical genre, often features the accordion, marimba and the guacharaca. A new generation has added hip-hop, trance and lots of bass.`\
+https://nytimes.com/2023/10/08/nyregion/nyc-dj-cumbia.html?searchResultPosition=6
 
-**Chocolate Factory Failed to Evacuate Workers Before Deadly Blast, OSHA Says**\
-`A chocolate maker faces more than $44,400 in penalties for violations connected to an explosion that killed seven people at a Pennsylvania factory in March, regulators said.`\
-https://nytimes.com/2023/10/07/us/rm-palmer-chocolate-factory-explosion.html?searchResultPosition=7
+**A Dazzling Art Collection, Hiding in Plain Sight**\
+`New York City’s sprawling public health care system contains one of the largest public art collections in the country.`\
+https://nytimes.com/2023/10/08/nyregion/nyc-hospitals-public-art.html?searchResultPosition=7
 
-**Hundreds are said to be missing after fleeing a music festival near the Gaza Strip.**\
-`By Gaya Gupta and Sheera Frenkel`\
-https://nytimes.com/live/2023/10/07/world/israel-gaza-attack/hundreds-are-said-to-be-missing-after-fleeing-a-music-festival-near-the-gaza-strip?searchResultPosition=8
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/10/08/crosswords/wordle-review-answer-841.html?searchResultPosition=8
 
-**Israel’s Worst Day at War**\
-`The shock waves of the Hamas attack on Israel will reach Iran, Saudi Arabia and Ukraine.`\
-https://nytimes.com/2023/10/07/opinion/israel-hamas-attack-friedman.html?searchResultPosition=9
+**‘We Were at the Counter of a Coffee Shop on Lexington Avenue’**\
+`The counterman’s treat, tying ties in Sunnyside and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2023/10/08/nyregion/metropolitan-diary.html?searchResultPosition=9
 
-**Michael Bonallack, Britain’s Greatest Postwar Amateur Golfer, Dies at 88**\
-`He won championship after championship but never turned pro. He later led the Royal and Ancient Golf Club of St. Andrews when it was a governing body in the sport.`\
-https://nytimes.com/2023/10/07/sports/michael-bonallack-dead.html?searchResultPosition=10
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/10/08/crosswords/spelling-bee-forum.html?searchResultPosition=10
 
