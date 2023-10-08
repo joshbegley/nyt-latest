@@ -22,7 +22,7 @@ https://nytimes.com/2023/10/08/world/middleeast/hamas-israel-netanyahu-gaza.html
 `By Isabel Kershner`\
 https://nytimes.com/live/2023/10/08/world/israel-gaza-attack-hamas-news/israelis-are-making-desperate-pleas-for-missing-relatives-possibly-abducted-to-be-bargaining-chips-for-hamas?searchResultPosition=6
 
-**Foreigners among those kidnapped, killed and missing in Israel.**\
+**Foreigners are among those kidnapped, killed and missing in Israel.**\
 `By The New York Times`\
 https://nytimes.com/live/2023/10/08/world/israel-gaza-attack-hamas-news/foreigners-among-those-kidnapped-killed-and-missing-in-israel?searchResultPosition=7
 
