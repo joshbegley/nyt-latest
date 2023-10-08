@@ -2,7 +2,7 @@
 `While recovering from Israel’s retaliatory airstrikes, Gaza residents expressed surprise and shock at the brazen attack by Hamas on Israeli soil.`\
 https://nytimes.com/video/world/middleeast/100000009123230/gaza-israel-palestine-attack-hamas.html?searchResultPosition=1
 
-**U.S. Continues Push for Saudi-Israel Ties Even After Hamas Assault**\
+**U.S. Continues Push for Saudi-Israel Ties Even as War With Hamas Begins**\
 `As Israel prepares an offensive in Gaza, President Biden and his aides are gauging whether Saudi officials remain interested in opening up diplomatic relations.`\
 https://nytimes.com/2023/10/08/us/politics/saudi-arabia-israel-palestinians-hamas.html?searchResultPosition=2
 
