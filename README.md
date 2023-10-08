@@ -14,8 +14,8 @@ https://nytimes.com/live/2023/10/08/world/israel-gaza-attack-hamas-news/nova-mus
 `The attack by Hamas forces Israel once again to confront the conflict that has haunted it since the creation of the modern state.`\
 https://nytimes.com/2023/10/08/world/middleeast/israel-hamas-gaza-analysis.html?searchResultPosition=4
 
-**The U.S. is working on military assistance for Israel, Antony Blinken says.**\
-`By Michael D. Shear`\
+**Biden Says Military Assistance Is On Its Way to Israel**\
+`Israel has asked for “additional assistance,” according to Secretary of State Antony Blinken.`\
 https://nytimes.com/2023/10/08/world/middleeast/us-aid-israel-biden-blinken.html?searchResultPosition=5
 
 **Israel has evacuated civilians from towns bordering Gaza.**\
