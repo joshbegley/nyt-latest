@@ -31,7 +31,7 @@ https://nytimes.com/2023/10/08/us/politics/israel-aid-pentagon-us-hamas.html?sea
 https://nytimes.com/2023/10/08/world/middleeast/music-festival-israel-kidnapping-video.html?searchResultPosition=8
 
 **Pro-Israel and pro-Palestinian demonstrators stage impassioned protests in New York.**\
-`By Chelsia Rose Marcius, Eric Berger and Michael D. Regan`\
+`By Chelsia Rose Marcius, Liset Cruz, Eric Berger and Michael D. Regan`\
 https://nytimes.com/live/2023/10/08/world/israel-gaza-attack-hamas-news/pro-israel-and-pro-palestinian-demonstrators-stage-impassioned-protests-in-new-york?searchResultPosition=9
 
 **Monday Briefing: Israel’s Leader Warns of a Long War**\
