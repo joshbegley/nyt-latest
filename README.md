@@ -12,7 +12,7 @@ https://nytimes.com/2023/10/08/us/puerto-rico-drivers-license-usa.html?searchRes
 
 **What We Know About the Hamas Attack and Israel’s Response**\
 `Hamas, the Palestinian militant group that controls the Gaza Strip, launched one of the broadest invasions on Israeli territory for 50 years. Israel has retaliated with airstrikes.`\
-https://nytimes.com/2023/10/08/world/middleeast/israel-gaza-what-we-know.html?searchResultPosition=4
+https://nytimes.com/article/israel-gaza-hamas-what-we-know.html?searchResultPosition=4
 
 **Hezbollah and Israel exchange artillery and rocket fire.**\
 `By Euan Ward`\
