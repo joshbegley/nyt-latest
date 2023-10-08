@@ -34,7 +34,7 @@ https://nytimes.com/2023/10/08/business/israel-gaza-natural-gas.html?searchResul
 `At the New York Film Festival, auteurs conjure up moods and sensory experiences that show why the story isn’t always the thing.`\
 https://nytimes.com/2023/10/08/movies/new-york-film-festival-tyranny-of-story.html?searchResultPosition=9
 
-**Israelis Can No Longer Afford the Luxury of Vicious Infighting**\
+**Israelis Can No Longer Afford Vicious Infighting**\
 `The nation acted as if it had the luxury of a vicious internal fight.`\
 https://nytimes.com/2023/10/08/opinion/international-world/israel-hamas-attack.html?searchResultPosition=10
 
