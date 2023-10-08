@@ -16,7 +16,7 @@ https://nytimes.com/2023/10/08/world/middleeast/israel-hamas-gaza-analysis.html?
 
 **The U.S. is working on military assistance for Israel, Antony Blinken says.**\
 `By Michael D. Shear`\
-https://nytimes.com/live/2023/10/08/world/israel-gaza-attack-hamas-news/the-us-is-working-on-military-assistance-for-israel-antony-blinken-says?searchResultPosition=5
+https://nytimes.com/2023/10/08/world/middleeast/us-aid-israel-biden-blinken.html?searchResultPosition=5
 
 **Israel has evacuated civilians from towns bordering Gaza.**\
 `By Lauren Leatherby and Karen Yourish`\
