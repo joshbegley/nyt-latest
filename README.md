@@ -24,7 +24,7 @@ https://nytimes.com/2023/10/08/arts/design/claude-cormier-dead.html?searchResult
 
 **Dozens were killed at a music festival and others abducted.**\
 `By Aaron Boxerman and Sheera Frenkel`\
-https://nytimes.com/live/2023/10/08/world/israel-gaza-attack-hamas-news/nova-music-festival-palestine?searchResultPosition=7
+https://nytimes.com/live/2023/10/08/world/israel-gaza-attack-hamas-news/music-festival-israel-gaza-strip?searchResultPosition=7
 
 **A Shaken Israel Is Forced Back to Its Eternal Dilemma**\
 `The attack by Hamas forces Israel once again to confront the conflict that has haunted it since the creation of the modern state.`\
