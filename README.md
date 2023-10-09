@@ -4,7 +4,7 @@ https://nytimes.com/2023/10/09/world/middleeast/hamas-gaza-israel.html?searchRes
 
 **Tibetan Mountain Avalanches Leave 2 Dead and 2 Missing**\
 `An American climber and a Nepalese guide were killed on Mount Shishapangma, a Chinese media report said. A second American climber and a guide were reported missing.`\
-https://nytimes.com/2023/10/09/us/avalanche-climbers-dead-shishapangma-tibet.html?searchResultPosition=2
+https://nytimes.com/2023/10/09/world/asia/avalanche-climbers-dead-shishapangma-tibet.html?searchResultPosition=2
 
 **A Clash of Views Over the Israel-Hamas War**\
 `Sampling the responses as the conflict rages on. Also: A Covid Catch-22; treating drug addiction; private security guards in a distressed downtown.`\
