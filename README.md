@@ -16,7 +16,7 @@ https://nytimes.com/live/2023/10/09/world/israel-gaza-war-hamas/israel-munitions
 
 **Terence Davies, 77, Dies; Filmmaker Mined Literature and His Own Life**\
 `With a poetic sensibility, “Distant Voices, Still Lives” echoed his Liverpool upbringing, and “The House of Mirth” put Edith Wharton’s novel on the screen.`\
-https://nytimes.com/2023/10/09/movies/terence-davies-77-dead.html?searchResultPosition=5
+https://nytimes.com/2023/10/09/movies/terence-davies-dead.html?searchResultPosition=5
 
 **Skeletons of 1918 Flu Victims Reveal Clues About Who Was Likely to Die**\
 `While a narrative emerged that the pandemic indiscriminately struck the young and healthy, new evidence suggests that frail young adults were most vulnerable.`\
