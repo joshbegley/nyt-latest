@@ -4,7 +4,7 @@ https://nytimes.com/2023/10/09/us/politics/robert-f-kennedy-jr-independent.html?
 
 **For Israelis, Scale of Tragedy Starts to Set In**\
 `The feeling of shock among Israelis over the attack by Hamas and the obvious intelligence failure that allowed it to happen is compounding the fear of what might yet be to come.`\
-https://nytimes.com/2023/10/09/world/for-israelis-the-scale-of-the-tragedy-and-the-states-failure-is-starting-to-set-in.html?searchResultPosition=2
+https://nytimes.com/2023/10/09/world/israel-hamas-attack-reaction.html?searchResultPosition=2
 
 **Vermont Utility Plans to End Outages by Giving Customers Batteries**\
 `Green Mountain Power is asking state regulators to let it buy batteries it will install at customers’ homes, saying doing so will be cheaper than putting up more power lines.`\
