@@ -31,7 +31,7 @@ https://nytimes.com/live/2023/10/09/world/israel-gaza-war-hamas/a-complete-siege
 https://nytimes.com/2023/10/09/world/middleeast/hamas-gaza-israel.html?searchResultPosition=8
 
 **Lost in Tibetan Avalanches, 2 American Women Close to a Record**\
-`Two climbers hoping to become the first American women to scale the world’s 14 tallest peaks were among the mountaineers struck by avalanches on Mount Shishapangma in Tibet. One was 80 meters short of her goal, her mother said.`\
+`The mountaineers, who hoped to become the first American women to scale the world’s 14 tallest peaks, were among climbers struck by avalanches on Mount Shishapangma. One was 80 meters short of her goal, her mother said.`\
 https://nytimes.com/2023/10/09/world/asia/avalanche-climbers-dead-shishapangma-tibet.html?searchResultPosition=9
 
 **A Clash of Views Over the Israel-Hamas War**\
