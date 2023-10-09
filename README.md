@@ -1,6 +1,6 @@
 **Trump Uses Support for Israel to Revive Travel Ban Talk**\
 `His remarks echoed the type of anti-Muslim rhetoric that he successfully tapped into during his 2016 presidential run.`\
-https://nytimes.com/live/2023/10/09/world/israel-gaza-war-hamas/trump-israel-travel-ban?searchResultPosition=1
+https://nytimes.com/2023/10/09/us/politics/trump-israel-travel-ban.html?searchResultPosition=1
 
 **Tuesday Briefing: Israel Orders a ‘Siege’ of Gaza**\
 `Plus can betting save the world?`\
@@ -12,7 +12,7 @@ https://nytimes.com/2023/10/09/opinion/israel-hamas-attack.html?searchResultPosi
 
 **A mother sheltered with her husband and 14-month-old for 26 hours as their kibbutz came under attack.**\
 `By Nadav Gavrielov`\
-https://nytimes.com/2023/10/09/world/middleeast/a-mother-sheltered-with-her-husband-and-14-month-old-for-26-hours-as-their-kibbutz-came-under-attack.html?searchResultPosition=4
+https://nytimes.com/live/2023/10/09/world/israel-gaza-war-hamas/israeli-mother-?searchResultPosition=4
 
 **Video images show Palestinian gunmen abducting residents of an Israeli farming settlement.**\
 `By Yousur Al-Hlou`\
