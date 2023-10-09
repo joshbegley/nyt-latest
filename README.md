@@ -34,7 +34,7 @@ https://nytimes.com/2023/10/09/world/middleeast/israel-hostages-hamas-explained.
 `The rapper’s new album, “For All the Dogs,” comes after a summer of live-show triumph and extra-musical boredom.`\
 https://nytimes.com/2023/10/09/arts/music/drake-for-all-the-dogs-review.html?searchResultPosition=9
 
-**Israel Orders ‘Complete Siege’ of Gaza and Mobilizes 300,000 Reservists**\
-`The troop mobilization comes amid signs that Israel could be preparing for a major ground invasion of Gaza. Israeli planes bombed hundreds of sites, including mosques and a marketplace.`\
+**Israel Orders ‘Complete Siege’ of Gaza and Hamas Threatens to Kill Hostages**\
+`Israel mobilized 300,000 reservists amid signs that it could be preparing for a major ground invasion of Gaza, and it bombed hundreds of sites, including mosques and a marketplace.`\
 https://nytimes.com/2023/10/09/world/middleeast/israel-gaza-siege-hamas.html?searchResultPosition=10
 
