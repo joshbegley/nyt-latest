@@ -1,5 +1,5 @@
 **A Clash of Views Over the Israel-Hamas War**\
-`Sampling the responses to the Israel-Gaza war. Also: A Covid Catch-22; treating drug addiction; private security guards in a distressed downtown.`\
+`Sampling the responses as the conflict rages on. Also: A Covid Catch-22; treating drug addiction; private security guards in a distressed downtown.`\
 https://nytimes.com/2023/10/09/opinion/letters/israel-gaza-hamas.html?searchResultPosition=1
 
 **With 300,000 reservists mobilized, war ‘hits close to home’ for many Israelis**\
