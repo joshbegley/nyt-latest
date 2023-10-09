@@ -1,4 +1,4 @@
-**Russia, caught in its own war, takes a neutral stance on Israel and Gaza.**\
+**Russia, fighting its own war, takes a neutral stance on Israel and Gaza.**\
 `By Anton Troianovski`\
 https://nytimes.com/live/2023/10/09/world/israel-gaza-attack-hamas-news/russia-caught-in-its-own-war-takes-a-neutral-stance-on-israel-and-gaza?searchResultPosition=1
 
