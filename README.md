@@ -12,7 +12,7 @@ https://nytimes.com/2023/10/09/opinion/israel-hamas-attack.html?searchResultPosi
 
 **A mother sheltered with her husband and 14-month-old for 26 hours as their kibbutz came under attack.**\
 `By Nadav Gavrielov`\
-https://nytimes.com/live/2023/10/09/world/israel-gaza-war-hamas/israeli-mother-?searchResultPosition=4
+https://nytimes.com/2023/10/09/world/middleeast/israeli-family-kibbutz-attack.html?searchResultPosition=4
 
 **Video images show Palestinian gunmen abducting residents of an Israeli farming settlement.**\
 `By Yousur Al-Hlou`\
