@@ -2,9 +2,9 @@
 `As Canada reckons with its colonial history, a push to “decolonize” museums has rocked its National Gallery and other museums.`\
 https://nytimes.com/2023/10/09/world/canada/canada-art-museums-colonialism.html?searchResultPosition=1
 
-**‘Is he dead?’: An Israeli airstrike hits a crowded marketplace in Gaza, killing dozens.**\
-`By Raja Abdulrahim and Ameera Harouda`\
-https://nytimes.com/live/2023/10/09/world/israel-gaza-war-hamas/is-he-dead-an-israeli-airstrike-hits-a-crowded-marketplace-in-gaza-killing-dozens?searchResultPosition=2
+**Israeli Airstrike Hits Marketplace in Gazan Refugee Camp, Killing Dozens**\
+`Sixty people died in the strike in the Jabaliya refugee camp, a rescue worker said. There was no immediate confirmation from the Gazan Health Ministry.`\
+https://nytimes.com/2023/10/09/world/middleeast/israel-gaza-market-air-strike-jabaliya.html?searchResultPosition=2
 
 **Hamburg Airport Suspends Flights Over Threat to Iranian Plane**\
 `All flights were suspended for more than an hour, but after what security officials said was a vigorous search, the airport reopened.`\
