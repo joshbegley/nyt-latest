@@ -7,7 +7,7 @@ https://nytimes.com/2023/10/09/world/canada/canada-art-museums-colonialism.html?
 https://nytimes.com/live/2023/10/09/world/israel-gaza-war-hamas/is-he-dead-an-israeli-airstrike-hits-a-crowded-marketplace-in-gaza-killing-dozens?searchResultPosition=2
 
 **Hamburg Airport Suspends Flights Over Threat to Iranian Plane**\
-`All fights were suspended for more than an hour, but after what security officials said was a vigorous search, the airport reopened.`\
+`All flights were suspended for more than an hour, but after what security officials said was a vigorous search, the airport reopened.`\
 https://nytimes.com/2023/10/09/world/europe/hamburg-airport-suspends-flights.html?searchResultPosition=3
 
 **Do You Know These Science Fiction Novels That Became TV Shows?**\
