@@ -1,4 +1,4 @@
-**Robert F. Kennedy Jr. to Run as Independent, Leaving Democratic Primary**\
+**Robert F. Kennedy Jr. to Run for President as Independent, Leaving Democratic Primary**\
 `The political scion told supporters he would end his campaign as a Democratic candidate and run as an independent, potentially upsetting the dynamics of the 2024 election.`\
 https://nytimes.com/2023/10/09/us/politics/robert-f-kennedy-jr-independent.html?searchResultPosition=1
 
