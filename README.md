@@ -30,7 +30,7 @@ https://nytimes.com/2023/10/09/opinion/israel-hamas-attack.html?searchResultPosi
 `In their home’s safe room, Sarit Kurtzman, her husband and their 14-month-old daughter waited out the attack.`\
 https://nytimes.com/2023/10/09/world/middleeast/israeli-family-kibbutz-attack.html?searchResultPosition=8
 
-**Video images show Palestinian gunmen abducting residents of an Israeli farming settlement.**\
+**Video images show Palestinian gunmen abducting residents of a kibbutz.**\
 `By Yousur Al-Hlou`\
 https://nytimes.com/live/2023/10/09/world/israel-gaza-war-hamas/video-images-show-palestinian-gunmen-abducting-residents-of-an-israeli-farming-settlement?searchResultPosition=9
 
