@@ -23,7 +23,7 @@ https://nytimes.com/2023/10/09/dining/yewande-komolafes-five-star-sheet-pan-goch
 https://nytimes.com/2023/10/09/world/canada/canada-art-museums-colonialism.html?searchResultPosition=6
 
 **Israeli Airstrike Hits Marketplace in Gazan Refugee Camp, Killing Dozens**\
-`Sixty people died in the strike in the Jabaliya refugee camp, a rescue worker said. There was no immediate confirmation from the Gazan Health Ministry.`\
+`Sixty people died in a strike in the Jabalia refugee camp, a rescue worker said. There was no immediate confirmation from the Gazan Health Ministry.`\
 https://nytimes.com/2023/10/09/world/middleeast/israel-gaza-market-air-strike-jabaliya.html?searchResultPosition=7
 
 **Hamburg Airport Suspends Flights Over Threat to Iranian Plane**\
