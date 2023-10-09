@@ -1,6 +1,6 @@
 **U.A.W. Workers at Mack Truck Go on Strike**\
 `The strike at the truck manufacturer by 4,000 members of the United Automobile Workers comes in the middle of the union’s strikes at three large U.S. car companies.`\
-https://nytimes.com/2023/10/09/business/economy/uaw-mack-trucks-stirke.html?searchResultPosition=1
+https://nytimes.com/2023/10/09/business/economy/uaw-mack-trucks-strike.html?searchResultPosition=1
 
 **Teen Depression Rose Sharply During the Pandemic, but Treatment Didn’t Follow**\
 `Approximately 20 percent of teenagers had major depressive disorder in 2021, but less than half who needed treatment received it, a new study found.`\
