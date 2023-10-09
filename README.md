@@ -1,1 +1,1 @@
-**‘Persuasion’ Review: The Present Intrudes On the Past**\
+**Book Review: ‘The Philosophy of Modern Song,’ by Bob Dylan**\
