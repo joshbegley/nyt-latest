@@ -34,7 +34,7 @@ https://nytimes.com/2023/10/09/books/new-brownies-book-karida-brown-charly-palme
 `The Ukrainian president said in a speech to NATO that “terror will have no allies” if the world unites against hostage-taking and other acts of aggression.`\
 https://nytimes.com/2023/10/09/world/europe/zelensky-ukraine-russia-israel.html?searchResultPosition=9
 
-**Nikki Haley Raises $11 Million, Battling With DeSantis to Take on Trump**\
+**Nikki Haley Raises $11 Million, Battling With DeSantis to Take On Trump**\
 `The former South Carolina governor has made gains in recent months — in fund-raising and polling — that have helped her compete for the No. 2 spot in the primary field.`\
 https://nytimes.com/2023/10/09/us/politics/haley-fundraising-2024-desantis.html?searchResultPosition=10
 
