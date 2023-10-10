@@ -12,7 +12,7 @@ https://nytimes.com/2023/10/10/dining/sandra-gutierrez-latinisimo.html?searchRes
 
 **If Every Brand Is Funny Online, Is Anything Funny?**\
 `For a decade, marketers have found success on social media by roasting customers, and even flirting with them. But with Gen Z, and platforms like TikTok on the rise, the jokes may be wearing thin.`\
-https://nytimes.com/2023/10/10/business/media/if-every-brand-is-funny-online-is-anything-funny.html?searchResultPosition=4
+https://nytimes.com/2023/10/10/business/media/brands-social-media-tiktok-twitter.html?searchResultPosition=4
 
 **Budapest: The Two Sides of the Danube **\
 `Explore the rich heritage and contrasting styles of the Hungarian capital, from its Baroque castle and modern cultural center to its Michelin-starred restaurants and sumptuous public thermal baths.`\
