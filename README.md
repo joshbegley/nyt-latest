@@ -1,6 +1,6 @@
 **Rock ’n’ Roll According to the Chinese Communist Party**\
-`The song is one of China’s most influential indie rock songs, depicting a story of despair in a struggling industrial city. But a local Communist Party group decided to rewrite it. What if it could spread “positive energy” instead?`\
-https://nytimes.com/2023/10/10/world/rock-n-roll-according-to-the-chinese-communist-party.html?searchResultPosition=1
+`The rock ballad was a cult classic in China. But what if the party wanted to use it to spread “positive energy”?`\
+https://nytimes.com/interactive/2023/08/13/world/asia/china-rock-song.html?searchResultPosition=1
 
 **Tuesday Briefing**\
 `A “complete siege” of Gaza.`\
