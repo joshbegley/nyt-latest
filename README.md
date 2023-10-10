@@ -30,11 +30,11 @@ https://nytimes.com/2023/10/10/technology/hamas-violent-videos-online.html?searc
 `Kawaski Trawick was killed in his home after brandishing a knife. An independent review board took too long to file internal charges, the N.Y.P.D. official overseeing the case said.`\
 https://nytimes.com/2023/10/10/nyregion/nypd-krawaski-trawick-knife.html?searchResultPosition=8
 
-**Nowhere to Hide in Gaza as Israeli Onslaught Continues**\
-`Residents and health authorities say that mosques, hospitals and schools are being targeted by airstrikes.`\
-https://nytimes.com/2023/10/10/world/middleeast/gaza-israel-airstrikes.html?searchResultPosition=9
-
 **After Attack on Israel, Politicians Are Asked, ‘Which Side Are You On?’**\
 `The furor over a pro-Palestinian rally in Times Square exposed political divisions that were instantly heightened when Hamas attacked Israel.`\
-https://nytimes.com/2023/10/10/nyregion/palestinian-rally-times-square-israel.html?searchResultPosition=10
+https://nytimes.com/2023/10/10/nyregion/palestinian-rally-times-square-israel.html?searchResultPosition=9
+
+**Nowhere to Hide in Gaza as Israeli Onslaught Continues**\
+`Residents and health authorities say that mosques, hospitals and schools are being targeted by airstrikes.`\
+https://nytimes.com/2023/10/10/world/middleeast/gaza-israel-airstrikes.html?searchResultPosition=10
 
