@@ -3,8 +3,8 @@
 https://nytimes.com/2023/10/10/world/middleeast/israel-gaza-war-hamas-deaths-killings.html?searchResultPosition=1
 
 **Along Israel’s borders with Lebanon and Syria, clashes raise fears of another front.**\
-`By Euan Ward`\
-https://nytimes.com/live/2023/10/10/world/israel-hamas-war-gaza/along-israels-borders-with-lebanon-and-syria-clashes-raise-fears-of-another-front?searchResultPosition=2
+`Continued attacks on Israel’s northern border have deepened unease over the possibility that the conflict — already the broadest invasion in 50 years — could spread.`\
+https://nytimes.com/2023/10/10/world/middleeast/israel-syria-lebanon-shelling.html?searchResultPosition=2
 
 **Read the New George Santos Indictment**\
 `Representative George Santos of New York was charged on Tuesday by federal prosecutors with an additional 10 felony counts, including stealing the identities and credit cards of donors to his campaign.`\
