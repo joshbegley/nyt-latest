@@ -1,40 +1,40 @@
+**In Argentina, a Far-Right Candidate Rises and the Peso Plunges**\
+`Javier Milei has become the favorite in Argentina’s election this month by pledging to dollarize the economy. In response, the Argentine peso is crashing.`\
+https://nytimes.com/2023/10/10/world/americas/argentina-peso-javier-mile.html?searchResultPosition=1
+
 **Gaza’s health ministry says that Israel is striking medical facilities.**\
 `By Raja Abdulrahim`\
-https://nytimes.com/live/2023/10/10/world/israel-hamas-war-gaza/gazas-health-ministry-says-that-israel-is-striking-medical-facilities?searchResultPosition=1
+https://nytimes.com/live/2023/10/10/world/israel-hamas-war-gaza/gazas-health-ministry-says-that-israel-is-striking-medical-facilities?searchResultPosition=2
 
 **Morgan Wallen Returns to No. 1 in a Slow Chart Week**\
 `With Drake’s “For All the Dogs” and Taylor Swift’s rerecording of “1989” waiting in the wings, Wallen’s “One Thing at a Time” has its 16th time at the peak.`\
-https://nytimes.com/2023/10/10/arts/music/morgan-wallen-no-1-for-16-times.html?searchResultPosition=2
+https://nytimes.com/2023/10/10/arts/music/morgan-wallen-no-1-for-16-times.html?searchResultPosition=3
 
 **Documenting the Recipes of Latin America, One Zoom at a Time**\
 `For her latest cookbook, “Latinísimo,” Sandra A. Gutierrez found creative ways to meet cooks to document the home cooking of Central and South America, and the Caribbean.`\
-https://nytimes.com/2023/10/10/dining/sandra-gutierrez-latinisimo.html?searchResultPosition=3
+https://nytimes.com/2023/10/10/dining/sandra-gutierrez-latinisimo.html?searchResultPosition=4
 
 **If Every Brand Is Funny Online, Is Anything Funny?**\
 `For a decade, marketers have found success on social media by roasting customers, and even flirting with them. But with Gen Z, and platforms like TikTok on the rise, the jokes may be wearing thin.`\
-https://nytimes.com/2023/10/10/business/media/brands-social-media-tiktok-twitter.html?searchResultPosition=4
+https://nytimes.com/2023/10/10/business/media/brands-social-media-tiktok-twitter.html?searchResultPosition=5
 
 **Budapest: The Two Sides of the Danube **\
 `Explore the rich heritage and contrasting styles of the Hungarian capital, from its Baroque castle and modern cultural center to its Michelin-starred restaurants and sumptuous public thermal baths.`\
-https://nytimes.com/paidpost/hungarian-tourism-agency/budapest-the-two-sides-of-the-danube.html?searchResultPosition=5
+https://nytimes.com/paidpost/hungarian-tourism-agency/budapest-the-two-sides-of-the-danube.html?searchResultPosition=6
 
 **San Francisco Police Kill Driver Who Crashed Into Chinese Consulate**\
 `The fatal shooting took place after the driver crashed into the visa office and posed “a serious threat to the life and safety of staff and people on site,” according to the Chinese Consulate General.`\
-https://nytimes.com/video/us/100000009125050/car-crash-chinese-consulate-san-francisco.html?searchResultPosition=6
+https://nytimes.com/video/us/100000009125050/car-crash-chinese-consulate-san-francisco.html?searchResultPosition=7
 
 **More foreign nationals are reported killed, kidnapped or missing in Israel.**\
 `By Aurelien Breeden`\
-https://nytimes.com/live/2023/10/10/world/israel-hamas-war-gaza/more-foreign-nationals-are-reported-killed-kidnapped-or-missing-in-israel?searchResultPosition=7
+https://nytimes.com/live/2023/10/10/world/israel-hamas-war-gaza/more-foreign-nationals-are-reported-killed-kidnapped-or-missing-in-israel?searchResultPosition=8
 
 **The Israel-Gaza War: A Forum for Young People to React**\
 `We invite teenagers to share what they have thought, felt, discussed and wondered in the days since Hamas’s attack on Israel and Israel’s response.`\
-https://nytimes.com/2023/10/10/learning/the-israel-gaza-war-a-forum-for-young-people-to-react.html?searchResultPosition=8
+https://nytimes.com/2023/10/10/learning/the-israel-gaza-war-a-forum-for-young-people-to-react.html?searchResultPosition=9
 
 **Japan is among the nations that have been measured in support of Israel.**\
 `By Motoko Rich`\
-https://nytimes.com/live/2023/10/10/world/israel-hamas-war-gaza/japan-is-among-the-nations-that-have-been-measured-in-support-of-israel?searchResultPosition=9
-
-**Saying Goodbye to a San Francisco Icon**\
-`Dianne Feinstein was as much a symbol of the city as the Golden Gate Bridge is.`\
-https://nytimes.com/2023/10/10/us/dianne-feinstein-san-francisco.html?searchResultPosition=10
+https://nytimes.com/live/2023/10/10/world/israel-hamas-war-gaza/japan-is-among-the-nations-that-have-been-measured-in-support-of-israel?searchResultPosition=10
 
