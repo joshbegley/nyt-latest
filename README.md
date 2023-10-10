@@ -3,7 +3,7 @@
 https://nytimes.com/2023/10/10/briefing/hamas-gaza-russia-economy.html?searchResultPosition=1
 
 **Country Garden Caves to Debts as China’s Real Estate Crisis Worsens**\
-`The property giant is effectively declaring that it has defaulted on its debt, becoming one of the biggest casualties of China’s deepening property crisis.`\
+`The property giant was unable to repay a loan and signaled it would default on its debt, becoming one of the biggest casualties of China’s deepening property crisis.`\
 https://nytimes.com/2023/10/10/business/country-garden-default-china-real-estate-crisis.html?searchResultPosition=2
 
 **A Solar Eclipse Shines Light on Traditions That Still Matter Today**\
