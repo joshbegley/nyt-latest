@@ -20,7 +20,7 @@ https://nytimes.com/2023/10/10/technology/sam-bankman-fried-trial-lawyers-judge.
 
 **The Places That Sam Bankman-Fried Left Behind**\
 `Before his FTX crypto exchange imploded and he went on trial for fraud, Mr. Bankman-Fried ran a global business empire spanning Berkeley, Calif., Hong Kong and the Bahamas.`\
-https://nytimes.com/2023/10/10/technology/the-places-that-sam-bankman-fried-left-behind.html?searchResultPosition=6
+https://nytimes.com/2023/10/10/technology/sam-bankman-fried-ftx-photos.html?searchResultPosition=6
 
 **There’s a Reason Hasan Minhaj’s Lies Found Such a Big Audience**\
 `When you’re Muslim American, you’re very familiar with a particular kind of story. You may have even told a few yourself.`\
