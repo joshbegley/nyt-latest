@@ -3,7 +3,7 @@
 https://nytimes.com/2023/10/10/us/politics/trump-kari-lake-senate.html?searchResultPosition=1
 
 **How Israel’s Feared Security Services Failed to Stop Hamas’s Attack**\
-`Israel’s military and espionage services are considered among the word’s best, but on Saturday, operational and intelligence failures led to the worst breach of Israeli defenses in half a century.`\
+`Israel’s military and espionage services are considered among the world’s best, but on Saturday, operational and intelligence failures led to the worst breach of Israeli defenses in half a century.`\
 https://nytimes.com/2023/10/10/world/middleeast/israel-gaza-security-failure.html?searchResultPosition=2
 
 **She rushed to help the wounded. Then she was shot herself.**\
