@@ -19,7 +19,7 @@ https://nytimes.com/2023/10/10/us/florence-fisher-dead.html?searchResultPosition
 https://nytimes.com/2023/10/10/podcasts/transcript-lydia-polgreen-interviews-masha-gessen.html?searchResultPosition=5
 
 **Israel Regains Control of Border Villages as War Intensifies in Gaza**\
-`Since the war started on Saturday, Hamas has continued to fire thousands of rockets at Israel, as Israel launched retaliatory airstrikes in Gaza City.`\
+`Israeli airstrikes continued pounding Gaza on Tuesday, as soldiers began the gruesome task of extricating bodies from Israel’s southern border communities.`\
 https://nytimes.com/video/world/middleeast/100000009126019/israel-gaza-war.html?searchResultPosition=6
 
 **U.S. intelligence agencies say they have found no direct involvement from Iran in Hamas attacks.**\
