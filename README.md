@@ -26,8 +26,8 @@ https://nytimes.com/video/world/middleeast/100000009126019/israel-gaza-war.html?
 `By Julian E. Barnes and Edward Wong`\
 https://nytimes.com/live/2023/10/10/world/israel-hamas-war-gaza/us-intelligence-agencies-say-they-have-found-no-direct-involvement-from-iran-in-hamas-attacks?searchResultPosition=7
 
-**George Santos Faces New Charges Over Alleged Lies and Credit Card Fraud**\
-`Mr. Santos, a first-term Republican congressman, was charged in a superseding indictment that added 10 new felony counts to the existing indictment.`\
+**Santos Faces New Charges Accusing Him of Lies and Credit Card Fraud**\
+`Mr. Santos, a first-term Republican congressman, was charged in an indictment that added 10 new felony counts to the existing charges.`\
 https://nytimes.com/2023/10/10/nyregion/george-santos-charges.html?searchResultPosition=8
 
 **What We Know About the Americans Who Were Missing or Killed**\
