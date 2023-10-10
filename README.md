@@ -2,7 +2,7 @@
 `As Israeli soldiers regain control of areas near Gaza that came under attack, they are finding evidence seen in videos and photos and confirmed by witness accounts of the massacre of civilians by Hamas terrorists.`\
 https://nytimes.com/2023/10/10/world/middleeast/israel-gaza-war-hamas-deaths-killings.html?searchResultPosition=1
 
-**Along Israel’s borders with Lebanon and Syria, clashes raise fears of another front.**\
+**Along Israel’s Borders With Lebanon and Syria, Clashes Raise Fears of Another Front**\
 `Continued attacks on Israel’s northern border have deepened unease over the possibility that the conflict — already the broadest invasion in 50 years — could spread.`\
 https://nytimes.com/2023/10/10/world/middleeast/israel-syria-lebanon-shelling.html?searchResultPosition=2
 
