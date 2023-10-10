@@ -19,7 +19,7 @@ https://nytimes.com/live/2023/10/10/world/israel-hamas-war-gaza/she-rushed-to-he
 https://nytimes.com/2023/10/10/us/harvard-israel-gaza-hamas-reaction.html?searchResultPosition=5
 
 **Hamas Leaves Trail of Terror in Israel**\
-`As Israeli soldiers regain control of areas near Gaza that came under attack, they are finding evidence seen in videos and photos and confirmed by witness accounts of the massacre of civilians by Hamas terrorists.`\
+`As Israeli soldiers regain control of areas near Gaza that came under attack, they are finding evidence seen in videos and photos and confirmed by witness accounts of the massacre of civilians by Hamas gunmen.`\
 https://nytimes.com/2023/10/10/world/middleeast/israel-gaza-war-hamas-deaths-killings.html?searchResultPosition=6
 
 **Along Israel’s Borders With Lebanon and Syria, Clashes Raise Fears of Another Front**\
