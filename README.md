@@ -3,7 +3,7 @@
 https://nytimes.com/2023/10/10/theater/berlin-theater-prima-facie.html?searchResultPosition=1
 
 **Zelensky Says Gaza War Furthers Russian Aims**\
-`The Ukrainian president said Moscow was aiming to sew division in the region and the attack on Israel could distract allies from his country’s conflict.`\
+`The Ukrainian president said Moscow was aiming to sow division in the region and the attack on Israel could distract allies from his country’s conflict.`\
 https://nytimes.com/2023/10/10/world/europe/zelensky-israel-gaza-russia.html?searchResultPosition=2
 
 **In Argentina, a Far-Right Candidate Rises and the Peso Plunges**\
