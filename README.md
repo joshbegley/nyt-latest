@@ -26,8 +26,8 @@ https://nytimes.com/2023/10/10/world/middleeast/israel-syria-lebanon-shelling.ht
 `Representative George Santos of New York was charged on Tuesday by federal prosecutors with an additional 10 felony counts, including stealing the identities and credit cards of donors to his campaign.`\
 https://nytimes.com/interactive/2023/10/10/nyregion/santos-indictment-new-charges.html?searchResultPosition=7
 
-**When Female Frogs Face the Mating Ball, They Pretend to Croak**\
-`Female frogs have evolved a variety of tactics to avoid the advances of overeager males, proving they’re not defenseless and passive.`\
+**How Female Frogs Fight Off the Mating Ball**\
+`They pretend they’re dead and use a variety of other tactics to avoid the advances of overeager males, proving they’re not defenseless and passive.`\
 https://nytimes.com/2023/10/10/science/frogs-mating-playing-dead.html?searchResultPosition=8
 
 **Florence Fisher, Advocate for Opening Adoption Records, Dies at 95**\
