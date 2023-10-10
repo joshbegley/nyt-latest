@@ -8,7 +8,7 @@ https://nytimes.com/interactive/2023/10/10/learning/HondurasGeographyQuiz.html?s
 
 **Peace activists are among the Israelis missing and killed.**\
 `By Roni Caryn Rabin`\
-https://nytimes.com/live/2023/10/10/world/israel-gaza-war-hamas/peace-activists-are-among-the-israelis-missing-and-killed?searchResultPosition=3
+https://nytimes.com/live/2023/10/10/world/israel-hamas-war-gaza/peace-activists-are-among-the-israelis-missing-and-killed?searchResultPosition=3
 
 **‘Everyone Died’: How Gunmen Killed Dozens In Sderot**\
 `Videos filmed by residents in Sderot captured a grisly and indiscriminate shooting rampage by Palestinian gunmen in the town on Saturday.`\
