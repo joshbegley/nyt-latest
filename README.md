@@ -10,7 +10,7 @@ https://nytimes.com/2023/10/10/learning/word-of-the-day-zoonotic.html?searchResu
 `With shows that encourage listener participation, a community radio station in the Indian state of Haryana is helping women overcome deeply patriarchal attitudes.`\
 https://nytimes.com/2023/10/10/world/asia/alfaz-radio-mewat-nuh-india.html?searchResultPosition=3
 
-**Myanmar Military Kills 29 at Refugee Camp, Including Several Children**\
+**Myanmar Military Kills 29 at Refugee Camp, Including Children**\
 `It was the deadliest single assault by the military junta on civilians in six months, stoking further outrage.`\
 https://nytimes.com/2023/10/10/world/asia/myanmar-refugees-killed.html?searchResultPosition=4
 
