@@ -1,40 +1,40 @@
+**Scream Queen? More Like Stream Queen.**\
+`“Ehrengard: The Art of Seduction,” a new fantasy dramedy on Netflix, had Queen Margrethe II of Denmark as its costume and production designer.`\
+https://nytimes.com/2023/10/10/style/ehrengard-queen-margrethe-netflix.html?searchResultPosition=1
+
+**Sparks Fly When the N.F.L. and Pop Collide. So Does Coverage.**\
+`When two worlds — one dominated by the N.F.L. and the other by Taylor Swift — collided, so did culture and sports coverage at The New York Times.`\
+https://nytimes.com/2023/10/10/insider/taylor-swift-travis-kelce.html?searchResultPosition=2
+
+**Why Tugboats Are Key to the $19 Billion Overhaul of Kennedy Airport**\
+`Renovating one of the world’s busiest airports is replete with engineering challenges, such as how to circumvent the area’s overburdened roadways.`\
+https://nytimes.com/2023/10/10/nyregion/jfk-airport-reconstruction-barges.html?searchResultPosition=3
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/10/10/crosswords/spelling-bee-forum.html?searchResultPosition=4
+
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/10/10/crosswords/wordle-review-answer-843.html?searchResultPosition=5
+
 **Here is the latest on the fighting.**\
 `By Patrick Kingsley and Jin Yu Young`\
-https://nytimes.com/live/2023/10/10/world/israel-gaza-war-hamas/here-is-the-latest-on-the-fighting?searchResultPosition=1
+https://nytimes.com/live/2023/10/10/world/israel-gaza-war-hamas/here-is-the-latest-on-the-fighting?searchResultPosition=6
 
 **Late Night Hosts Address the Hamas Attacks on Israel**\
 `Seth Meyers kept things serious, while Stephen Colbert and Jimmy Kimmel tried a touch of levity around a tough subject.`\
-https://nytimes.com/2023/10/10/arts/television/late-night-hamas-israel.html?searchResultPosition=2
+https://nytimes.com/2023/10/10/arts/television/late-night-hamas-israel.html?searchResultPosition=7
 
 **Word of the Day: zoonotic**\
 `This word has appeared in 18 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/10/10/learning/word-of-the-day-zoonotic.html?searchResultPosition=3
+https://nytimes.com/2023/10/10/learning/word-of-the-day-zoonotic.html?searchResultPosition=8
 
 **How a Radio Station Is Empowering Women in a Rural Heartland**\
 `With shows that encourage listener participation, a community radio station in the Indian state of Haryana is helping women overcome deeply patriarchal attitudes.`\
-https://nytimes.com/2023/10/10/world/asia/alfaz-radio-mewat-nuh-india.html?searchResultPosition=4
+https://nytimes.com/2023/10/10/world/asia/alfaz-radio-mewat-nuh-india.html?searchResultPosition=9
 
 **Myanmar Military Kills 29 at Refugee Camp, Including Children**\
 `It was the deadliest single assault by the military junta on civilians in six months, stoking further outrage.`\
-https://nytimes.com/2023/10/10/world/asia/myanmar-refugees-killed.html?searchResultPosition=5
-
-**Quotation of the Day: ‘They Took Him’: Israeli Families Left in Dread**\
-`Quotation of the Day for Tuesday, October 10, 2023.`\
-https://nytimes.com/2023/10/10/pageoneplus/quotation-of-the-day-they-took-him-israeli-families-left-in-dread.html?searchResultPosition=6
-
-**Tuesday Briefing**\
-`A “complete siege” of Gaza.`\
-https://nytimes.com/2023/10/10/briefing/hamas-gaza-russia-economy.html?searchResultPosition=7
-
-**Country Garden Caves to Debts as China’s Real Estate Crisis Worsens**\
-`The property giant was unable to repay a loan and signaled it would default on its debt, becoming one of the biggest casualties of China’s deepening property crisis.`\
-https://nytimes.com/2023/10/10/business/country-garden-default-china-real-estate-crisis.html?searchResultPosition=8
-
-**A Solar Eclipse Shines Light on Traditions That Still Matter Today**\
-`Among Indigenous peoples of the Americas, from Navajo Nation down to the rainforests of Brazil, events like the annular eclipse on Saturday have important and distinctive cultural meanings.`\
-https://nytimes.com/2023/10/10/science/annular-eclipse-indigenous-traditions.html?searchResultPosition=9
-
-**The Mystery Company With One Foot in the Premier League**\
-`777 Partners had been scooping up big-name soccer teams for two years when it bid for Everton. Doubts about its finances could kill the deal.`\
-https://nytimes.com/2023/10/10/world/europe/everton-777-premier-league.html?searchResultPosition=10
+https://nytimes.com/2023/10/10/world/asia/myanmar-refugees-killed.html?searchResultPosition=10
 
