@@ -2,7 +2,7 @@
 `After the murder of hundreds of Israelis, pro-Palestinian demonstrators cheered.`\
 https://nytimes.com/2023/10/10/opinion/israel-hamas-protests-left.html?searchResultPosition=1
 
-**Israeli airstrikes hit targets in Gaza that are typically safe — schools, mosques and hospitals.**\
+**Israeli airstrikes hit targets in Gaza that are typically safe havens — schools, mosques and hospitals.**\
 `By Raja Abdulrahim and Ameera Harouda`\
 https://nytimes.com/live/2023/10/10/world/israel-hamas-war-gaza/israeli-airstrikes-hit-targets-in-gaza-that-are-typically-safe-schools-mosques-and-hospitals?searchResultPosition=2
 
