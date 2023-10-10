@@ -1,5 +1,5 @@
 **‘It’s Not a War or a Battlefield. It’s a Massacre.’**\
-`A Times reporter and photographer visited an Israeli village raided by Palestinian gunman.`\
+`A Times reporter and photographer visited an Israeli village raided by Palestinian gunmen.`\
 https://nytimes.com/2023/10/10/world/middleeast/israel-gaza-kibbutz-kfar-azza.html?searchResultPosition=1
 
 **Steve Garvey, Republican Former Baseball Player, Will Run for Senate in California**\
