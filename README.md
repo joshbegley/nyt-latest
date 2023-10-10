@@ -6,13 +6,13 @@ https://nytimes.com/2023/10/10/world/europe/russia-un-human-rights-council.html?
 `The Florida governor had been reluctant to criticize the former president on the trail, but in recent weeks, that has started to change.`\
 https://nytimes.com/2023/10/10/us/politics/desantis-trump-2024.html?searchResultPosition=2
 
-**Clarence Thomas Renews Call for Reconsideration of Landmark Libel Ruling**\
-`The justice wrote that the decision, New York Times v. Sullivan, lets news organizations “cast false aspersions on public figures with near impunity.’”`\
-https://nytimes.com/2023/10/10/us/clarence-thomas-libel-supreme-court.html?searchResultPosition=3
-
 **Witnesses in Subway Chokehold Case Describe Fears of Death and Violence**\
 `In a request that the case be tossed out, lawyers for the defendant, Daniel Penny, drew on testimony from passengers who described their unease before Mr. Penny intervened.`\
-https://nytimes.com/2023/10/10/nyregion/subway-chokehold-case-witnesses-daniel-penny.html?searchResultPosition=4
+https://nytimes.com/2023/10/10/nyregion/subway-chokehold-case-witnesses-daniel-penny.html?searchResultPosition=3
+
+**Clarence Thomas Renews Call for Reconsideration of Landmark Libel Ruling**\
+`The justice wrote that the decision, New York Times v. Sullivan, lets news organizations “cast false aspersions on public figures with near impunity.’”`\
+https://nytimes.com/2023/10/10/us/clarence-thomas-libel-supreme-court.html?searchResultPosition=4
 
 **Russian Court Upholds Longer Detention for American Reporter**\
 `Evan Gershkovich, a correspondent for The Wall Street Journal, was accused of espionage after being arrested during a reporting trip. He denies the charge.`\
