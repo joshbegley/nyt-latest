@@ -10,7 +10,7 @@ https://nytimes.com/2023/10/10/style/children-influencers-money.html?searchResul
 `The president’s national security adviser said “20 or more” Americans remained missing, though it is not known how many of them are actually in the hands of Hamas.`\
 https://nytimes.com/2023/10/10/us/politics/biden-israel-hamas.html?searchResultPosition=3
 
-**Kevin Phillips, 82, Dies; Predicted the G.O.P. Resurgence**\
+**Kevin Phillips, 82, Dies; Political Analyst Predicted G.O.P. Resurgence**\
 `A conservative mastermind of the race-based “Southern strategy,” he later, as a writer, had second thoughts after assessing income inequality under three Republican presidents.`\
 https://nytimes.com/2023/10/10/us/politics/kevin-phillips-dead.html?searchResultPosition=4
 
