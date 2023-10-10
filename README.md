@@ -22,7 +22,7 @@ https://nytimes.com/2023/10/10/business/dealbook/israel-hamas-war-startups.html?
 `Ayatollah Ali Khamenei suggested that Tehran was not behind the assault in Israel and warned of consequences from retaliatory strikes in Gaza.`\
 https://nytimes.com/2023/10/10/world/middleeast/iran-israel-hamas-attacks.html?searchResultPosition=6
 
-**The U.N. human rights chief warns Israel against a siege of Gaza and condemns Palestinian violence.**\
+**The U.N. human rights chief condemns Palestinian violence and warns Israel against a siege of Gaza.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2023/10/10/world/israel-hamas-war-gaza/the-un-human-rights-chief-warns-israel-against-a-siege-of-gaza-and-condemns-palestinian-violence?searchResultPosition=7
 
