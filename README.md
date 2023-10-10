@@ -23,7 +23,7 @@ https://nytimes.com/2023/10/10/sports/olympics/new-sports-olympics-2028.html?sea
 https://nytimes.com/video/us/politics/100000009125478/israel-hamas-missing-americans.html?searchResultPosition=6
 
 **Russia Is Denied a Seat on the U.N. Human Rights Council**\
-`Russia lost a vote in the General Assembly to Albania and Bulgaria, failing in its bid to be restored to the council. It was suspended following its invasion of Ukraine last year, in a diplomatic blow to Moscow.`\
+`Russia lost a vote in the General Assembly to Albania and Bulgaria, failing in its bid to be restored to the council after its suspension last year. But nearly half of the assembly backed Russia, showing that it was not completely isolated.`\
 https://nytimes.com/2023/10/10/world/europe/russia-un-human-rights-council.html?searchResultPosition=7
 
 **DeSantis Amps Up Attacks on Trump, as G.O.P. Primary Enters a New Phase**\
