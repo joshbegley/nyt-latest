@@ -16,7 +16,7 @@ https://nytimes.com/2023/10/10/magazine/stale-culture.html?searchResultPosition=
 
 **‘Don’t Do That Again’: Sam Bankman-Fried’s Lawyers Under Fire From Judge**\
 `In the first week of Mr. Bankman-Fried’s fraud trial, Judge Lewis A. Kaplan repeatedly admonished the former crypto mogul’s lawyers, in an ominous sign for the defense.`\
-https://nytimes.com/2023/10/10/technology/dont-do-that-again-sam-bankman-frieds-lawyers-under-fire-from-judge.html?searchResultPosition=5
+https://nytimes.com/2023/10/10/technology/sam-bankman-fried-trial-lawyers-judge.html?searchResultPosition=5
 
 **The Places That Sam Bankman-Fried Left Behind**\
 `Before his FTX crypto exchange imploded and he went on trial for fraud, Mr. Bankman-Fried ran a global business empire spanning Berkeley, Calif., Hong Kong and the Bahamas.`\
