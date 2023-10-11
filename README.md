@@ -35,6 +35,6 @@ https://nytimes.com/2023/10/10/crosswords/daily-puzzle-2023-10-11.html?searchRes
 https://nytimes.com/live/2023/10/10/world/israel-hamas-war-gaza/a-call-for-mourners-went-out-and-thousands-came?searchResultPosition=9
 
 **Another Powerful Quake Hits Afghanistan, Days After Deadly Temblors**\
-`A magnitude 6.3 earthquake rocked Herat City, near the site of two devastating quakes that killed more than 800 people last weekend.`\
+`A magnitude-6.3 earthquake rocked Herat City, near the site of two devastating ones that killed more than 1,000 people last weekend.`\
 https://nytimes.com/2023/10/10/world/asia/afghanistan-quake-herat.html?searchResultPosition=10
 
