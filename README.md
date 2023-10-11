@@ -1,40 +1,40 @@
-**Oceanport, N.J.: A Small Community With ‘Water Access Everywhere’**\
-`Once known as a military town, this Monmouth County borough is reinventing itself with a slew of new development. (Just ask Netflix.)`\
-https://nytimes.com/2023/10/11/realestate/oceanport-nj-netflix.html?searchResultPosition=1
+**The Abysmal Choices for House Speaker**\
+`The two candidates for the job are focused on exerting political leverage against Democrats, but they misunderstand the nature of power.`\
+https://nytimes.com/2023/10/11/opinion/jim-jordan-steve-scalise.html?searchResultPosition=1
 
-**The Aboriginal Australians Campaigning Against Constitutional Recognition**\
-`Two female Aboriginal lawmakers with drastically different political philosophies have emerged as prominent opponents of the proposed Indigenous Voice to Parliament.`\
-https://nytimes.com/2023/10/11/world/australia/australia-price-thorpe-voice-aboriginal.html?searchResultPosition=2
+**Can Usher Turn America On Again (to R.&B.)?**\
+`Almost 20 years after his sexy, best-selling album “Confessions,” Usher is back with new music that could redefine the whole genre.`\
+https://nytimes.com/2023/10/11/magazine/usher-rnb.html?searchResultPosition=2
 
-**The President vs. the Klan**\
-`A new history by Fergus M. Bordewich examines Ulysses S. Grant’s battle against white supremacist terror.`\
-https://nytimes.com/2023/10/11/books/review/klan-war-fergus-bordewich.html?searchResultPosition=3
+**Republicans Are Deadlocked Heading Into Speaker Contest**\
+`Lawmakers were set to meet at 10 a.m. to begin voting on a nominee, but there was no consensus, opening the possibility of a drawn-out fight that would leave the House leaderless for days.`\
+https://nytimes.com/2023/10/11/us/politics/republicans-house-speaker.html?searchResultPosition=3
 
-**How a Series of Air Traffic Control Lapses Nearly Killed 131 People**\
-`Two planes were moments from colliding in Texas, a harrowing example of the country’s fraying air safety system, a New York Times investigation found.`\
-https://nytimes.com/2023/10/11/business/air-traffic-control-austin-airport-fedex-southwest.html?searchResultPosition=4
+**Claudia Goldin’s Nobel-Winning Research Shows ‘Why Women Won’**\
+`The winner of the Nobel in economics has demonstrated how gender gaps in work have shrunk, and why some remain.`\
+https://nytimes.com/2023/10/11/upshot/claudia-goldin-nobel-prize.html?searchResultPosition=4
 
-**A Boat That Conjures Up Denmark’s Finest Hour**\
-`A replica of a boat that carried Danish Jews to safety in Sweden is anchored in Connecticut, part of the Museum of Jewish Heritage.`\
-https://nytimes.com/2023/10/11/nyregion/boat-denmark-jewish-museum.html?searchResultPosition=5
+**How Israel’s 9/11 Tests American Grand Strategy**\
+`The crisis in the Holy Land must be analyzed in terms of great power politics and the pressure we face from broadly aligned rivals.`\
+https://nytimes.com/2023/10/11/opinion/israel-9-11-biden-strategy.html?searchResultPosition=5
 
-**Living In ... Oceanport, N.J.**\
-`Once known as a military town, this Monmouth County borough is reinventing itself with a slew of new development. (Just ask Netflix.)`\
-https://nytimes.com/slideshow/2023/10/11/realestate/living-in-oceanport-nj.html?searchResultPosition=6
+**Nancy Mace’s District Moved Right. Then She Helped Oust McCarthy.**\
+`The Supreme Court will hear arguments Wednesday on Representative Mace’s newly drawn South Carolina district, which has gotten redder since she was first elected.`\
+https://nytimes.com/2023/10/11/us/politics/nancy-mace-gerrymandering.html?searchResultPosition=6
 
-**What if These Economic Weapons Fall Into Trump’s Hands?**\
-`The Biden administration needs to think deeply about what future administrations can do with nonmilitary powers of coercion.`\
-https://nytimes.com/2023/10/11/opinion/biden-trump-economic-weapons.html?searchResultPosition=7
+**$500,000 Homes in New York, Michigan and Georgia**\
+`A 1905 farmhouse in Kenoza Lake, a Tudor Revival home in Detroit and a Craftsman bungalow in Atlanta.`\
+https://nytimes.com/2023/10/11/realestate/500000-dollar-homes-new-york-michigan-georgia.html?searchResultPosition=7
 
-**New Novels Brimming With Mystery, Mayhem and Quite a Bit of Murder**\
-`Our crime columnist, Sarah Weinman, on four buzzy October releases.`\
-https://nytimes.com/2023/10/11/books/review/dann-mcdorman-west-heart-kill.html?searchResultPosition=8
+**Only Question for Taylor Swift Film: How Big Will It Be?**\
+`The pop star’s concert film, arriving in theaters on Friday, is expected to break box office records. “The fever and scale is unprecedented,” one analyst said.`\
+https://nytimes.com/2023/10/11/business/media/taylor-swift-movie.html?searchResultPosition=8
 
-**In Northern France, Riding the Rails Into the Past**\
-`On the Picardy Coast, where the Somme meets the Channel, there is nothing and everything to see, and a 19th-century steam railway lets you explore at the perfect pace.`\
-https://nytimes.com/2023/10/11/travel/france-steam-railway.html?searchResultPosition=9
+**Don’t Hide in the Bathroom Stall**\
+`Susan Gelles met the love of her life at a singles mixer. But first, she ran away.`\
+https://nytimes.com/2023/10/11/podcasts/modern-love-bathroom-stall.html?searchResultPosition=9
 
-**This Full-Body Workout Fits in a Backpack**\
-`Rucking, which is simply walking with a weighted backpack, is a great way to combine strength training and cardio without setting foot inside a gym.`\
-https://nytimes.com/2023/10/11/well/move/full-body-workout-backpack.html?searchResultPosition=10
+**‘Stereophonic’ Finds Drama in a ’70s Rock Recording Booth**\
+`The playwright David Adjmi explores the in-studio creation process in a play with new songs by the former Arcade Fire member Will Butler.`\
+https://nytimes.com/2023/10/11/theater/stereophonic-david-adjmi-will-butler.html?searchResultPosition=10
 
