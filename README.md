@@ -6,7 +6,7 @@ https://nytimes.com/2023/10/11/opinion/the-popes-journey-to-climate-outrage.html
 `Myrtle Brown, 73, died last month after an assault, the police in Maywood, Ill., said.`\
 https://nytimes.com/2023/10/11/sports/football/sergio-brown-nfl-arrested-mother-death.html?searchResultPosition=7
 
-**Brooklyn Safety Patrol Leader Sentenced to 17 Years for Abusing Girl**\
+**Brooklyn Safety Patrol Leader Who Abused Girl Gets 17-Year Sentence**\
 `Jacob Daskal, head of a private Orthodox crime patrol, took a 15-year-old runaway to his upstate home. Her family thought he was helping.`\
 https://nytimes.com/2023/10/11/nyregion/brooklyn-safety-patrol-leader-abuse-sentencing.html?searchResultPosition=8
 
