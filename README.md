@@ -15,7 +15,7 @@ https://nytimes.com/2023/10/11/briefing/israel-hamas-war-india-dissent-china-eco
 https://nytimes.com/live/2023/10/11/world/israel-news-hamas-war/heres-why-the-scale-of-the-hostage-situation-in-gaza-has-no-recent-precedent?searchResultPosition=4
 
 **Rescuers in Gaza Struggle With Dwindling Fuel and Lack of Equipment**\
-`Paramedics said they would need bulldozers, which they don’t have, to pull more people from destroyed buildings, amid ongoing airstrikes and power cuts.`\
+`Paramedics said they would need bulldozers, which they don’t have, to pull more people from buildings destroyed by Israeli airstrikes amid power cuts.`\
 https://nytimes.com/2023/10/11/world/middleeast/gaza-airstrikes-rescues.html?searchResultPosition=5
 
 **For Hamas, Shattering Israel’s Sense of Security Is a Major Goal**\
