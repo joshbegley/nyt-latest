@@ -1,6 +1,6 @@
 **Ukraine has some breathing space on military aid, but other assistance may be a greater worry.**\
-`By Michael Crowley`\
-https://nytimes.com/2023/10/11/us/politics/ukraine-has-some-breathing-space-on-military-aid-but-other-assistance-may-be-a-greater-worry.html?searchResultPosition=1
+`By Michael Crowley and Karoun Demirjian`\
+https://nytimes.com/live/2023/10/11/us/house-speaker-vote-news/ukraine-has-some-breathing-space-on-military-aid-but-other-assistance-may-be-a-greater-worry?searchResultPosition=1
 
 **Michael Chiarello, Chef and Food Network Star, Dies at 61**\
 `His culinary empire included several restaurants, an olive oil company, a winery and retail stores with a robust catalog business.`\
@@ -20,7 +20,7 @@ https://nytimes.com/2023/10/11/business/wall-street-interest-rates-federal-reser
 
 **A longstanding beef between McCarthy and Scalise has some mainstream Republicans backing hard-right Jordan.**\
 `By Annie Karni`\
-https://nytimes.com/live/2023/10/11/us/house-speaker-vote-news/a-longstanding-beef-between-mccarthy-and-scalise-has-some-mainstream-republicans-backing-hard-right-jordan?searchResultPosition=6
+https://nytimes.com/2023/10/11/us/politics/a-longstanding-beef-between-mccarthy-and-scalise-has-some-mainstream-republicans-backing-hard-right-jordan.html?searchResultPosition=6
 
 **A Swirling Philadelphia Mosaic Will Be Sacrificed for Housing**\
 `An architect said he could preserve a 7,000-square-foot mural if Old City allowed his new building to exceed height limits. After neighbors objected, a court ruled against him.`\
