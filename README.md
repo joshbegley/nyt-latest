@@ -26,9 +26,9 @@ https://nytimes.com/2023/10/11/arts/television/frasier-reboot-review.html?search
 `Investors doubt that central bankers will lift borrowing costs again following big market moves that are widely expected to cool growth.`\
 https://nytimes.com/2023/10/11/business/wall-street-interest-rates-federal-reserve.html?searchResultPosition=7
 
-**A longstanding beef between McCarthy and Scalise has some mainstream Republicans backing hard-right Jordan.**\
-`By Annie Karni`\
-https://nytimes.com/2023/10/11/us/politics/a-longstanding-beef-between-mccarthy-and-scalise-has-some-mainstream-republicans-backing-hard-right-jordan.html?searchResultPosition=8
+**Some Republicans Back Jordan in Reflection of McCarthy-Scalise Beef**\
+`The feud between the former speaker and the No. 2 Republican in the House has centrist Republicans backing the right-leaning Ohio senator.`\
+https://nytimes.com/2023/10/11/us/politics/scalise-mccarthy-jordan-house-speaker-vote.html?searchResultPosition=8
 
 **A Swirling Philadelphia Mosaic Will Be Sacrificed for Housing**\
 `An architect said he could preserve a 7,000-square-foot mural if Old City allowed his new building to exceed height limits. After neighbors objected, a court ruled against him.`\
