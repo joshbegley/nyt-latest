@@ -34,7 +34,7 @@ https://nytimes.com/2023/10/11/us/politics/iran-israel-gaza-hamas-us-intelligenc
 `See the likely path and wind arrival times for Sean.`\
 https://nytimes.com/interactive/2023/us/sean-map-path-tracker.html?searchResultPosition=9
 
-**Republicans will decide whether to change the party’s rules to nominate a speaker.**\
+**Republicans are feuding over whether to change the party’s rules for nominating a speaker.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2023/10/11/us/house-speaker-vote-news/republicans-will-decide-whether-to-change-the-partys-rules-to-nominate-a-speaker?searchResultPosition=10
 
