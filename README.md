@@ -22,8 +22,8 @@ https://nytimes.com/2023/10/10/world/asia/afghanistan-quake-herat.html?searchRes
 `By Claire Fahy`\
 https://nytimes.com/live/2023/10/10/world/israel-hamas-war-gaza/pro-israel-rally-outside-the-un-building-spills-into-new-york-city-streets?searchResultPosition=6
 
-**Trump Endorses Kari Lake’s Senate Run in Arizona**\
-`Ms. Lake, a Trump ally, embraced the former president’s lies about winning the 2020 election in her failed run for Arizona governor last year.`\
+**Kari Lake Stokes Fear and Leans on Trump as She Formally Opens Senate Run**\
+`Ms. Lake, a Republican who lost her bid for Arizona governor last year, is running for the seat held by Senator Kyrsten Sinema.`\
 https://nytimes.com/2023/10/10/us/politics/trump-kari-lake-senate.html?searchResultPosition=7
 
 **How Israel’s Feared Security Services Failed to Stop Hamas’s Attack**\
