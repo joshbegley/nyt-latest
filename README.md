@@ -1,6 +1,6 @@
 **Ukraine has some breathing space on military aid, but other assistance may be a greater worry.**\
 `By Michael Crowley and Karoun Demirjian`\
-https://nytimes.com/live/2023/10/11/us/house-speaker-vote-news/ukraine-has-some-breathing-space-on-military-aid-but-other-assistance-may-be-a-greater-worry?searchResultPosition=1
+https://nytimes.com/2023/10/11/us/politics/ukraine-has-some-breathing-space-on-military-aid-but-other-assistance-may-be-a-greater-worry.html?searchResultPosition=1
 
 **Michael Chiarello, Chef and Food Network Star, Dies at 61**\
 `His culinary empire included several restaurants, an olive oil company, a winery and retail stores with a robust catalog business.`\
