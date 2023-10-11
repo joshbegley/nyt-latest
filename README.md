@@ -1,5 +1,5 @@
 **Another Powerful Quake Hits Afghanistan, Days After Deadly Temblors**\
-`A magnitude 6.3 earthquake rocked Herat Province, near the site of two devastating quakes that killed more than 800 people last weekend.`\
+`A magnitude 6.3 earthquake rocked Herat City, near the site of two devastating quakes that killed more than 800 people last weekend.`\
 https://nytimes.com/2023/10/10/world/asia/afghanistan-quake-herat.html?searchResultPosition=1
 
 **Pro-Israel rally outside the U.N. building spills into New York City streets.**\
