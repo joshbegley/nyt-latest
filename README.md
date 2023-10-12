@@ -4,7 +4,7 @@ https://nytimes.com/2023/10/12/climate/fossil-fuels-arent-going-anywhere.html?se
 
 **When, Where and How to Watch the Annular Solar Eclipse**\
 `The so-called “ring of fire” will grace the skies of the Western Hemisphere on Saturday.`\
-https://nytimes.com/2023/10/12/science/solar-eclipse-when-where-how.html?searchResultPosition=2
+https://nytimes.com/2023/10/12/science/solar-eclipse-how-to-watch.html?searchResultPosition=2
 
 **Here’s What Can’t Get Done While Republicans Fight Over a Speaker**\
 `The disarray among House Republicans has left a chamber of Congress hobbled at a time of international and domestic crises.`\
