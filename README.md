@@ -6,7 +6,7 @@ https://nytimes.com/2023/10/12/us/oklahoma-judge-texting-murder-trial.html?searc
 `New Jersey prosecutors concluded that Nadine Menendez, Senator Bob Menendez’s wife, should not be charged after she killed a pedestrian with her Mercedes-Benz.`\
 https://nytimes.com/2023/10/12/nyregion/nadine-menendez-accident-report.html?searchResultPosition=2
 
-**One Officer Convicted, Another Acquitted in Elijah McClain Death**\
+**One Officer Convicted and Another Acquitted in Elijah McClain Death**\
 `The jury came back with a surprising split decision on two men tried jointly, holding the more experienced officer accountable in the first of three trials in the death of the young Black man.`\
 https://nytimes.com/2023/10/12/us/elijah-mcclain-verdict-officers.html?searchResultPosition=3
 
