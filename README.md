@@ -19,7 +19,7 @@ https://nytimes.com/2023/10/12/t-magazine/ago-projects-paris.html?searchResultPo
 https://nytimes.com/2023/10/12/crosswords/building-community-constructed-languages.html?searchResultPosition=5
 
 **Social Security Benefits Will Rise 3.2% in 2024**\
-`Millions of Social Security beneficiaries, from retirees to disabled workers, will receive the cost-of-living adjustment, which is far less than last year’s but still a healthy bump.`\
+`Millions of Social Security beneficiaries, from retirees to disabled workers, will receive the cost-of-living adjustment, which is far less than last year’s but still higher than average.`\
 https://nytimes.com/2023/10/12/your-money/social-security-cola-2024.html?searchResultPosition=6
 
 **Energy price increases cooled last month, but Mideast turmoil clouds the outlook.**\
