@@ -1,5 +1,5 @@
 **Terminal 4 at J.F.K.: Center of a Wave of Support for Israel**\
-`As soldiers, reservists and volunteers head to Israel, supporters gather near the El Al counter at Kennedy Airport to give them supplies and cheers.`\
+`As soldiers, reservists and volunteers head to Israel, supporters gathered near the El Al counter at Kennedy Airport to give them supplies and cheers.`\
 https://nytimes.com/2023/10/12/nyregion/el-al-jfk-israel.html?searchResultPosition=1
 
 **Even With Flames Abroad, Biden Keeps One Eye on the Home Front**\
