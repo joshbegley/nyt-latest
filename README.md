@@ -4,7 +4,7 @@ https://nytimes.com/2023/10/12/nyregion/the-weekender.html?searchResultPosition=
 
 **Blinken stresses U.S. support for Israel while urging ‘every possible precaution’ to not harm civilians.**\
 `By Edward Wong`\
-https://nytimes.com/live/2023/10/12/world/israel-gaza-war-hamas/blinken-us-aid-israel-netanyahu?searchResultPosition=2
+https://nytimes.com/2023/10/12/world/middleeast/blinken-us-aid-israel-netanyahu.html?searchResultPosition=2
 
 **Listen: Israel-Gaza War Explained, Unpacking the Politics of Gender, Tupac Shakur’s Murder Solved?**\
 `Each week, we share the best of new audio journalism and storytelling.`\
