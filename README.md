@@ -36,5 +36,5 @@ https://nytimes.com/2023/10/12/theater/hamilton-hamburg-closing.html?searchResul
 
 **U.S. and Qatar Block Iran’s Access to $6 Billion From Prisoner Deal**\
 `The money had recently transferred to Iran as part of a U.S.-Iran deal that led to the release of five imprisoned Americans from Iran last month.`\
-https://nytimes.com/2023/10/12/world/middleeast/us-and-qatar-block-irans-access-to-6-billion-from-prisoner-deal.html?searchResultPosition=10
+https://nytimes.com/2023/10/12/world/middleeast/us-qatar-iran-prisoner-deal.html?searchResultPosition=10
 
