@@ -1,4 +1,4 @@
-**The Retired Israeli General Who Grabbed His Pistol and Took on Hamas**\
+**The Retired Israeli General Who Grabbed His Pistol and Took On Hamas**\
 `By rushing to confront the attackers himself, Israel Ziv has become a public symbol of Israel’s former military successes — and its failure this time.`\
 https://nytimes.com/2023/10/12/world/middleeast/general-ziv-hamas-israel.html?searchResultPosition=1
 
