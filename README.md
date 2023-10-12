@@ -18,7 +18,7 @@ https://nytimes.com/2023/10/12/us/elijah-mcclain-verdict-officers.html?searchRes
 `It’s hard not to wonder whether today’s suffering could have been avoided if in 2000 Palestinians had taken the offer of a path toward statehood.`\
 https://nytimes.com/2023/10/12/opinion/israel-palestinians-gaza-peace.html?searchResultPosition=5
 
-**Gaza Hospital Inundated with Wounded Patients**\
+**Gaza Hospital Inundated With Wounded Patients**\
 `Al-Shifa Hospital, the Gaza Strip’s largest medical complex, has been overwhelmed with wounded patients since Israel launched airstrikes in Gaza in retaliation to Hamas’s attack.`\
 https://nytimes.com/video/world/middleeast/100000009130450/gaza-hospitals-injured-israel-wounded.html?searchResultPosition=6
 
