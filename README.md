@@ -1,6 +1,6 @@
 **A Flood of Evil Is Destroying My World**\
-`My son is a captive of Hamas`\
-https://nytimes.com/2023/10/12/opinion/international-world/a-flood-of-evil-is-destroying-my-world.html?searchResultPosition=1
+`My son is a captive of Hamas.`\
+https://nytimes.com/2023/10/12/opinion/israel-hamas-hostage.html?searchResultPosition=1
 
 **New Laws on Kids and Social Media Stymied by Industry Lawsuits**\
 `Federal judges in three states have blocked children’s privacy and parental oversight laws, saying they very likely violate free speech rights.`\
