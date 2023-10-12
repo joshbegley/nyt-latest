@@ -14,8 +14,8 @@ https://nytimes.com/2023/10/12/briefing/israel-hamas-war-new-zealand-election-ja
 `The company said it had reached the limit of what it could offer to the United Automobile Workers union, which has expanded its strike to Ford’s largest plant.`\
 https://nytimes.com/2023/10/12/business/economy/ford-united-automobile-workers-union.html?searchResultPosition=4
 
-**Green Energy Builders Sought $12 Billion More Subsidies. New York Said No.**\
-`The developers will have to decide whether to absorb the higher-than-expected costs or break their contracts with the state.`\
+**Green Energy Builders Sought Billions More in Subsidies. New York Said No.**\
+`The developers will have to decide whether to absorb higher-than-expected costs or break their contracts with the state.`\
 https://nytimes.com/2023/10/12/nyregion/wind-farm-subsidies.html?searchResultPosition=5
 
 **How Much Watching Time Do You Have This Weekend?**\
