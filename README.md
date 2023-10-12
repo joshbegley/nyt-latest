@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2023/10/12/nyregion/menendez-indictment-new-char
 `After a year of less-than-stellar ticket sales, the German-language translation of Lin-Manuel Miranda’s stage hit is closing. But it has helped diversify German musicals.`\
 https://nytimes.com/2023/10/12/theater/hamilton-hamburg-closing.html?searchResultPosition=9
 
-**U.S. and Qatar Block Iran’s Access to $6 Billion From Prisoner Deal**\
-`The money had recently transferred to Iran as part of a U.S.-Iran deal that led to the release of five imprisoned Americans from Iran last month.`\
+**U.S. and Qatar Deny Iran’s Access to $6 Billion From Prisoner Deal**\
+`The money had`\
 https://nytimes.com/2023/10/12/world/middleeast/us-qatar-iran-prisoner-deal.html?searchResultPosition=10
 
