@@ -1,40 +1,40 @@
-**The Retired Israeli General Who Grabbed His Pistol and Took On Hamas**\
-`By rushing to confront the attackers himself, Israel Ziv has become a public symbol of Israel’s former military successes — and its failure this time.`\
-https://nytimes.com/2023/10/12/world/middleeast/general-ziv-hamas-israel.html?searchResultPosition=1
+**What More Must the Children of Gaza Suffer?**\
+`Israel’s bombing of Gaza has taken its toll on families.`\
+https://nytimes.com/2023/10/12/opinion/gaza-children-war-hamas.html?searchResultPosition=1
 
-**The Ultimate ‘If You Know, You Know’ Fashion Line**\
-`Cristaseya isn’t trying to hide, it just knows that the right people will find it.`\
-https://nytimes.com/2023/10/12/style/cristaseya-fashion.html?searchResultPosition=2
+**For Democrats, Crisis in Israel Could Be a Unifying Force**\
+`The party’s traditional support for Israel has been tested in recent years by a vocal liberal wing, but the attacks in Israel could allow it to bridge the divide.`\
+https://nytimes.com/2023/10/12/us/politics/democrats-israel-hamas-war-palestine.html?searchResultPosition=2
 
-**The Improbable Resurrection of an All-Night Kebab Joint**\
-`A story as old as raising the rent: A beloved restaurant gets gentrified out of the neighborhood. But this time, somehow, it returns, nearly a decade later.`\
-https://nytimes.com/2023/10/12/nyregion/the-improbable-resurrection-of-an-all-night-kebab-joint.html?searchResultPosition=3
+**The New Republican Establishment**\
+`An alternative Trumpist governing elite gets closer to ruling the party.`\
+https://nytimes.com/2023/10/12/upshot/new-republican-establishment-speaker.html?searchResultPosition=3
 
-**Show Time!**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2023/10/12/learning/show-time.html?searchResultPosition=4
+**Understanding Israel’s Hard Choices**\
+`As the conflict between Israel and Hamas unfolds, the columnist Thomas Friedman shares his perspective on the evolving situation and what he’s watching for.`\
+https://nytimes.com/2023/10/12/opinion/israel-hamas-president-biden.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/10/12/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**A Vintage Market Pops Up in a U-Haul Truck**\
+`Colorful glassware, a chrome-legged couch and Japanese pants were some of the items being resold at U-Mall, a sort of outdoor-market-meets-stoop-sale.`\
+https://nytimes.com/2023/10/12/style/vintage-clothing-u-haul-moving-truck.html?searchResultPosition=5
 
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/10/12/crosswords/wordle-review-answer-845.html?searchResultPosition=6
+**The Eat-Your-Own Caucus Has Found Its New Leader. Or Has It?**\
+`If Steve Scalise does pick up the gavel as speaker, he will not be ascending to the heights of power.`\
+https://nytimes.com/2023/10/12/opinion/scalise-mccarthy-gingrich-house.html?searchResultPosition=6
 
-**Here’s the latest on the war.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2023/10/12/world/israel-gaza-war-hamas/heres-the-latest-on-the-war?searchResultPosition=7
+**An Oscar Winner Scouts Her New Location: an Uptown Pad for Less Than $500,000**\
+`Manhattan native Melissa Leo wanted a modest place with some character on the Upper East Side. Here’s what she found.`\
+https://nytimes.com/interactive/2023/10/12/realestate/melissa-leo-upper-east-side.html?searchResultPosition=7
 
-**Late Night Sees the House Getting Serious With Steve Scalise**\
-`Jimmy Kimmel said that Republicans will be successful only if they can “accept the results of an election, and that’s really not their thing.”`\
-https://nytimes.com/2023/10/12/arts/television/late-night-steve-scalise.html?searchResultPosition=8
+**To Prepare Kids for the Future, Bring Back Shop and Home Ec**\
+`Students learn from physical as well as mental work. Plus, they need a break.`\
+https://nytimes.com/2023/10/12/opinion/school-manual-labor-shop.html?searchResultPosition=8
 
-**Word of the Day: ramshackle**\
-`This word has appeared in 62 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/10/12/learning/word-of-the-day-ramshackle.html?searchResultPosition=9
+**Sam Bankman-Fried’s Closest Friends Become His Foes in Courtroom Clash**\
+`The FTX founder’s criminal trial has made clear just how much his inner circle has turned against him.`\
+https://nytimes.com/2023/10/12/technology/sam-bankman-fried-friends-witnesses.html?searchResultPosition=9
 
-**Corrections: Oct. 12, 2023**\
-`Corrections that appeared in print on Thursday, Oct. 12, 2023.`\
-https://nytimes.com/2023/10/12/pageoneplus/corrections-oct-12-2023.html?searchResultPosition=10
+**Trump’s Claim That He Can’t Be Prosecuted Collides With Precedents**\
+`The former president says he has “absolute immunity.” But an array of Supreme Court decisions tells a different story.`\
+https://nytimes.com/2023/10/12/us/politics/trump-immunity-supreme-court.html?searchResultPosition=10
 
