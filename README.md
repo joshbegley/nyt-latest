@@ -1,4 +1,4 @@
-**Macron urges ‘strong but just’ response to attack and appeals for unity at home**\
+**Macron urges ‘strong but just’ response to attack and appeals for unity at home.**\
 `By Aurelien Breeden`\
 https://nytimes.com/live/2023/10/12/world/israel-gaza-war-hamas/macron-urges-strong-but-just-response-to-attack-and-appeals-for-unity-at-home?searchResultPosition=1
 
