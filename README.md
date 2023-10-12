@@ -4,7 +4,7 @@ https://nytimes.com/2023/10/12/learning/lesson-plans/lesson-plan-on-being-13.htm
 
 **U.S. officials say that there is no immediate threat to national security, but they are watching.**\
 `By Campbell Robertson and Eileen Sullivan`\
-https://nytimes.com/live/2023/10/12/world/israel-gaza-war-hamas/us-officials-say-that-there-is-no-immediate-threat-to-national-security-but-they-are-watching?searchResultPosition=2
+https://nytimes.com/2023/10/12/world/middleeast/hamas-israel-protests-national-security.html?searchResultPosition=2
 
 **13 Conversation Starters Inspired by ‘Being 13’**\
 `Here are some questions to start discussions at dinner tables, in classrooms or with family or friends. We welcome responses from any readers who is 13 or older.`\
