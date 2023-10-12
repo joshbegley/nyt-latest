@@ -14,7 +14,7 @@ https://nytimes.com/live/2023/10/12/world/israel-gaza-war-hamas/blinken-says-thi
 `A severe weather threat was in effect in the Tampa Bay area and north of Tampa through Thursday morning.`\
 https://nytimes.com/2023/10/12/us/florida-tornado-weather.html?searchResultPosition=4
 
-**Ex-Formula 1 Chief Bernie Ecclestone Gets Suspended Sentence for Fraud**\
+**Ex-Formula 1 Chief Bernie Ecclestone to Pay $802 Million for Fraud**\
 `Mr. Ecclestone pleaded guilty to not reporting hundreds of millions of dollars he held in a trust in Singapore.`\
 https://nytimes.com/2023/10/12/sports/autoracing/bernie-ecclestone-f1-fraud.html?searchResultPosition=5
 
