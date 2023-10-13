@@ -1,5 +1,5 @@
-**Microsoft Wins Critical Approval for Activision Purchase in Britain**\
-`The sign-off from British regulators was the last remaining hurdle before the $69 billion deal could be closed.`\
+**Microsoft Deal for Activision Finally Close After Key Approval**\
+`The $69 billion video game acquisition is expected to be finalized soon after the sign-off from British regulators.`\
 https://nytimes.com/2023/10/13/technology/microsoft-activision-cma.html?searchResultPosition=1
 
 **After Three Big Quakes, Too Scared to Sleep Anywhere but Outside**\
