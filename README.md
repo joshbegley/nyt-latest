@@ -1,6 +1,6 @@
 **Putin says that civilian casualties in an Israeli ground operation in Gaza would be ‘unacceptable.’**\
 `By Anton Troianovski`\
-https://nytimes.com/live/2023/10/13/world/israel-hamas-war-gaza/putin-says-that-civilian-casualties-in-an-israeli-ground-operation-in-gaza-would-be-unacceptable?searchResultPosition=1
+https://nytimes.com/live/2023/10/13/world/israel-hamas-war-gaza-evacuation/putin-says-that-civilian-casualties-in-an-israeli-ground-operation-in-gaza-would-be-unacceptable?searchResultPosition=1
 
 **Fierce Fighting Flares Around Eastern Ukrainian Town of Avdiivka**\
 `Russia’s assault there may be a sign that Moscow is trying to regain the initiative in the war, after it spent months defending against Ukraine’s southern counteroffensive.`\
@@ -12,7 +12,7 @@ https://nytimes.com/2023/10/13/briefing/israel-gaza-evacuations-invasion.html?se
 
 **‘The Daily’ hears a father’s story of surviving the Hamas attack on his kibbutz.**\
 `By The Daily Team`\
-https://nytimes.com/live/2023/10/13/world/israel-hamas-war-gaza/the-daily-hears-a-fathers-story-of-surviving-the-hamas-attack-on-his-kibbutz?searchResultPosition=4
+https://nytimes.com/live/2023/10/13/world/israel-hamas-war-gaza-evacuation/the-daily-hears-a-fathers-story-of-surviving-the-hamas-attack-on-his-kibbutz?searchResultPosition=4
 
 **A Painting Stolen in Glasgow Returns More Than 30 Years Later**\
 `Thieves in Scotland made off with the painting “Children Wading” in 1989. The work was recently returned after showing up at an auction house in northern England.`\
