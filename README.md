@@ -6,7 +6,7 @@ https://nytimes.com/2023/10/13/us/hostages-israel-chicago-mother-daughter.html?s
 `By Hiba Yazbek`\
 https://nytimes.com/live/2023/10/13/world/israel-news-gaza-hamas-war/away-from-gaza-violence-also-flares-in-the-west-bank-and-east-jerusalem?searchResultPosition=2
 
-**Van Carrying 22 Migrants Crashes in Germany, Killing Seven**\
+**Van Carrying 23 Migrants Crashes in Germany, Killing Seven**\
 `The accident followed a police chase near the Austrian border, where more smugglers are using vans or trucks to bring in groups of migrants.`\
 https://nytimes.com/2023/10/13/world/europe/migrants-germany-border-trafficking.html?searchResultPosition=3
 
