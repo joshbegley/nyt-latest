@@ -10,8 +10,8 @@ https://nytimes.com/2023/10/13/theater/nicole-scherzinger-sunset-boulevard.html?
 `The actor and literacy advocate will host the ceremony after the National Book Foundation dropped its original host, Drew Barrymore.`\
 https://nytimes.com/2023/10/13/books/levar-burton-national-book-awards.html?searchResultPosition=3
 
-**Attack on Israel Reverberates Through Jewish New York**\
-`Usually lively and often fractious, political disagreements are put on hold among the large community of Jews in the city.`\
+**For Jewish New Yorkers, Shared Grief Puts Divisions on Hold**\
+`Usually lively and often fractious, political conversations are set aside among the large community of Jews in the city.`\
 https://nytimes.com/2023/10/13/nyregion/jewish-progressive-nyc-israel-attack.html?searchResultPosition=4
 
 **The Pentagon chief says U.S. security assistance is ‘rapidly flowing’ to Israel.**\
