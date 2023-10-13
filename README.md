@@ -1,4 +1,4 @@
-**Protests erupt across the Mideast as Israel’s siege of Gaza ignites anger.**\
+**Protests Erupt Across the Middle East Over Israel’s Siege of Gaza**\
 `Friday is a day of prayer in the Middle East, and this Friday was also a day of protest in support of the Palestinian people.`\
 https://nytimes.com/2023/10/13/world/middleeast/gaza-israel-protests-mideast.html?searchResultPosition=1
 
