@@ -32,7 +32,7 @@ https://nytimes.com/2023/10/12/world/australia/why-are-there-so-many-jacintas-ar
 
 **Israel has warned residents of northern Gaza to evacuate south within 24 hours.**\
 `A U.N. spokesman said such a movement would turn “what is already a tragedy into a calamitous situation.”`\
-https://nytimes.com/live/2023/10/13/world/israel-gaza-war-hamas/israel-un-gaza-evacuations?searchResultPosition=9
+https://nytimes.com/live/2023/10/12/world/israel-gaza-war-hamas/israel-un-gaza-evacuations?searchResultPosition=9
 
 **Corrections: Oct. 13, 2023**\
 `Corrections that appeared in print on Friday, Oct. 13, 2023.`\
