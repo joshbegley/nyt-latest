@@ -1,40 +1,40 @@
+**A Prophetic Dream Sparked a Real-Life Romance**\
+`When Kendra Morris first met Randall Woodfin, the mayor of Birmingham, Ala., she didn’t think anything of it until she had a vision about their future.`\
+https://nytimes.com/2023/10/13/style/kendra-morris-randall-woodfin-wedding.html?searchResultPosition=1
+
+**Friday Briefing**\
+`Israel calls on people in north Gaza to evacuate.`\
+https://nytimes.com/2023/10/13/briefing/israel-gaza-synod-ukraine.html?searchResultPosition=2
+
+**Jennifer Graham Likes Jennifer Graham**\
+`She shared my name. How could we not become friends? And how could I not have gone to see her when it mattered most?`\
+https://nytimes.com/2023/10/13/style/modern-love-pancreatic-cancer-jennifer-graham.html?searchResultPosition=3
+
+**Going the Distance After a Nine-Month Backpacking Trip**\
+`Lizzie Rivard and Alec Woletz knew they wanted to be married. A nine-month backpacking trip through Southeast Asia and Europe proved it.`\
+https://nytimes.com/2023/10/13/style/lizzie-rivard-alec-woletz-wedding.html?searchResultPosition=4
+
+**It All Started With a Press Pass**\
+`When Nancy Chen and Patrick McFawn started dating, she warned him that her broadcast journalism career could take her anywhere in the country. They fell in love anyway.`\
+https://nytimes.com/2023/10/13/style/nancy-chen-patrick-mcfawn-wedding.html?searchResultPosition=5
+
+**Two ‘Extreme Extroverts’ Find Love in a Pandemic Bubble**\
+`Larry Handerhan and Donnelly McDowell had no plans to marry until the third of eight weddings they attended in 2022. They have Maggie Rogers to thank.`\
+https://nytimes.com/2023/10/13/style/larry-handerhan-donnelly-mcdowell-wedding.html?searchResultPosition=6
+
 **Why Are There So Many Jacintas?**\
 `The relatively uncommon name of Jacinta or Jacinda is shared among many famous people in New Zealand and Australia, with most of them born in the 1970s.`\
-https://nytimes.com/2023/10/12/world/australia/why-are-there-so-many-jacintas-ardern.html?searchResultPosition=1
+https://nytimes.com/2023/10/12/world/australia/why-are-there-so-many-jacintas-ardern.html?searchResultPosition=7
 
 **The U.N. says the Israeli military told it that all of northern Gaza has 24 hours to move south.**\
 `A U.N. spokesman said such a movement would turn “what is already a tragedy into a calamitous situation.”`\
-https://nytimes.com/live/2023/10/12/world/israel-gaza-war-hamas/israel-un-gaza-evacuations?searchResultPosition=2
+https://nytimes.com/live/2023/10/12/world/israel-gaza-war-hamas/israel-un-gaza-evacuations?searchResultPosition=8
 
 **Corrections: Oct. 13, 2023**\
 `Corrections that appeared in print on Friday, Oct. 13, 2023.`\
-https://nytimes.com/2023/10/12/pageoneplus/corrections-oct-13-2023.html?searchResultPosition=3
+https://nytimes.com/2023/10/12/pageoneplus/corrections-oct-13-2023.html?searchResultPosition=9
 
 **Quotation of the Day: In Jamaica, a Debate Over Making Patois the Official Language**\
 `Quotation of the Day for Friday, October 13, 2023.`\
-https://nytimes.com/2023/10/12/pageoneplus/quotation-of-the-day-in-jamaica-a-debate-over-making-patois-the-official-language.html?searchResultPosition=4
-
-**For ‘Shucked,’ a Broadway Chapter Ends, and Its Future Is Uncertain**\
-`The show said Thursday that it would play a final performance at the Nederlander Theater on Jan. 14, but did not rule out continuing elsewhere.`\
-https://nytimes.com/2023/10/12/theater/shucked-broadway.html?searchResultPosition=5
-
-**Variety: Consonant Companions**\
-`Eric Berlin’s new creation lets us use the buddy system, but the relationship is complicated.`\
-https://nytimes.com/2023/10/12/crosswords/variety-consonant-companions.html?searchResultPosition=6
-
-**‘Gutenberg! The Musical!’ Review: Revenge of the Broadway Nerds**\
-`The history of movable type is a terrible idea for a show. Which is why it’s so on brand for this satire of theater and its eternal hopefuls.`\
-https://nytimes.com/2023/10/12/theater/gutenberg-musical-review-josh-gad-andrew-rannells.html?searchResultPosition=7
-
-**Where Early Tablets Were First Unveiled**\
-`John-Clark Levin opens our solving weekend.`\
-https://nytimes.com/2023/10/12/crosswords/daily-puzzle-2023-10-13.html?searchResultPosition=8
-
-**A Palestinian photographer put his camera down to try to rescue his relatives.**\
-`Ali Jadallah spent his career documenting devastation in the besieged Gaza Strip. This week, Israeli airstrikes claimed most of his immediate family.`\
-https://nytimes.com/live/2023/10/12/world/israel-gaza-war-hamas/a-palestinian-photographer-put-his-camera-down-to-try-to-rescue-his-relatives?searchResultPosition=9
-
-**Lesson Plan: On ‘Being 13’**\
-`Students explore this immersive Times feature, engage in cross-generational conversations about the issues raised and experiment with expert advice on healthy phone and social media habits.`\
-https://nytimes.com/2023/10/12/learning/lesson-plans/lesson-plan-on-being-13.html?searchResultPosition=10
+https://nytimes.com/2023/10/12/pageoneplus/quotation-of-the-day-in-jamaica-a-debate-over-making-patois-the-official-language.html?searchResultPosition=10
 
