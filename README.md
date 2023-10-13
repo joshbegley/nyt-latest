@@ -12,7 +12,7 @@ https://nytimes.com/2023/10/13/nyregion/palestine-protest-nyc-times-square.html?
 
 **Why Israel Must Reconsider Its Gaza Evacuation Order**\
 `As secretary general of the United Nations, I appeal to Israeli authorities to reconsider.`\
-https://nytimes.com/2023/10/13/opinion/international-world/why-israel-must-reconsider-its-gaza-evacuation-order.html?searchResultPosition=4
+https://nytimes.com/2023/10/13/opinion/israel-gaza-united-nations.html?searchResultPosition=4
 
 **Israel Sticks to Call for Gaza Evacuation and Readies a Possible Invasion**\
 `The United Nations and others condemned the call for more than a million people to leave northern Gaza, and Israel softened its initial 24-hour timetable.`\
