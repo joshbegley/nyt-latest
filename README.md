@@ -4,7 +4,7 @@ https://nytimes.com/2023/10/12/world/australia/why-are-there-so-many-jacintas-ar
 
 **The U.N. says the Israeli military told it that all of northern Gaza has 24 hours to move south.**\
 `A U.N. spokesman said such a movement would turn “what is already a tragedy into a calamitous situation.”`\
-https://nytimes.com/2023/10/12/world/middleeast/israel-un-gaza-evacuations.html?searchResultPosition=2
+https://nytimes.com/live/2023/10/12/world/israel-gaza-war-hamas/israel-un-gaza-evacuations?searchResultPosition=2
 
 **Corrections: Oct. 13, 2023**\
 `Corrections that appeared in print on Friday, Oct. 13, 2023.`\
