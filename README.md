@@ -30,7 +30,7 @@ https://nytimes.com/2023/10/13/crosswords/wordle-review-answer-846.html?searchRe
 `The officers were on their way to work when they confronted people breaking into a car in an airport parking garage. The suspects opened fire.`\
 https://nytimes.com/2023/10/13/us/philadelphia-airport-shooting-police-officers.html?searchResultPosition=8
 
-**Microsoft Deal for Activision Finally Close After Key Approval**\
+**Microsoft Finally Closes In on Activision Deal After Key Approval**\
 `The $69 billion video game acquisition is expected to be finalized soon after the sign-off from British regulators.`\
 https://nytimes.com/2023/10/13/technology/microsoft-activision-cma.html?searchResultPosition=9
 
