@@ -1,40 +1,40 @@
-**Dennis Kucinich Leaves Robert F. Kennedy Jr.’s Presidential Campaign**\
-`The former Democratic congressman, who served as Mr. Kennedy’s campaign manager, departed just days after he introduced Mr. Kennedy as an independent candidate.`\
-https://nytimes.com/2023/10/13/us/politics/rfk-campaign-dennis-kucinich.html?searchResultPosition=1
+**How the Washington Commanders Can Make the Playoffs: Through Week 5**\
+`The Commanders now have only an 11% chance to make the playoffs.`\
+https://nytimes.com/interactive/2023/upshot/washington-commanders-nfl-playoff-picture.html?searchResultPosition=1
 
-**How Hamas Overran Southern Israel and Killed 1,300**\
-`Hamas gunmen surged into Israel in a highly organized and meticulously planned operation that suggested a deep understanding of Israel’s military secrets and weaknesses. Here is how the attacks unfolded.`\
-https://nytimes.com/2023/10/13/world/middleeast/hamas-israel-attack-gaza.html?searchResultPosition=2
+**How the Tennessee Titans Can Make the Playoffs: Through Week 5**\
+`The Titans now have only a 26% chance to make the playoffs.`\
+https://nytimes.com/interactive/2023/upshot/tennessee-titans-nfl-playoff-picture.html?searchResultPosition=2
 
-**Supreme Court to Hear Another Broad Challenge to Agency Power**\
-`The justices apparently added the new case to ensure that Justice Ketanji Brown Jackson could take part in deciding whether to overrule a major precedent.`\
-https://nytimes.com/2023/10/13/us/supreme-court-agency-power-jackson.html?searchResultPosition=3
+**How the Tampa Bay Buccaneers Can Make the Playoffs: Through Week 4**\
+`The Buccaneers now have a 51% chance to make the playoffs.`\
+https://nytimes.com/interactive/2023/upshot/tampa-bay-buccaneers-nfl-playoff-picture.html?searchResultPosition=3
 
-**U.S. Tells World to Back Israel’s Gaza Strikes as Civilian Toll Rises**\
-`Secretary of State Antony J. Blinken is visiting the Middle East as the Israel-Palestinian conflict reaches a degree of violence not seen in many years.`\
-https://nytimes.com/2023/10/13/us/politics/blinken-israel-gaza-war.html?searchResultPosition=4
+**How the San Francisco 49ers Can Make the Playoffs: Through Week 5**\
+`The 49ers now have a greater than 99% chance to make the playoffs.`\
+https://nytimes.com/interactive/2023/upshot/san-francisco-49ers-nfl-playoff-picture.html?searchResultPosition=4
 
-**Louise Glück, Nobel-Winning Poet Who Explored Trauma and Loss, Dies at 80**\
-`Acclaimed as one of America’s greatest living writers, she blended deeply personal material with themes of mythology and nature.`\
-https://nytimes.com/2023/10/13/books/louise-gluck-dead.html?searchResultPosition=5
+**How the Seattle Seahawks Can Make the Playoffs: Through Week 4**\
+`The Seahawks now have a 57% chance to make the playoffs.`\
+https://nytimes.com/interactive/2023/upshot/seattle-seahawks-nfl-playoff-picture.html?searchResultPosition=5
 
-**A trip to visit relatives in Gaza turns into a nightmare.**\
-`By Anna Betts`\
-https://nytimes.com/live/2023/10/13/world/israel-news-gaza-hamas-war/a-trip-to-visit-relatives-in-gaza-turns-into-a-nightmare?searchResultPosition=6
+**How the Pittsburgh Steelers Can Make the Playoffs: Through Week 6**\
+`The Steelers now have a 48% chance to make the playoffs.`\
+https://nytimes.com/interactive/2023/upshot/pittsburgh-steelers-nfl-playoff-picture.html?searchResultPosition=6
 
-**Love Letter: 90 Percent of Love Is Showing Up**\
-`“Life is short. Type fast. Then get in the car and go.”`\
-https://nytimes.com/2023/10/13/style/love-letter-newsletter-90-percent-of-love-is-showing-up.html?searchResultPosition=7
+**How the New York Jets Can Make the Playoffs: Through Week 5**\
+`The Jets have a 13% chance to make the playoffs.`\
+https://nytimes.com/interactive/2023/upshot/new-york-jets-nfl-playoff-picture.html?searchResultPosition=7
 
-**Haley Hits Trump and Ramaswamy Over Israel Remarks: ‘That’s Not What We Need’**\
-`The Republican rivals exchanged barbs this week over the U.S. response to the Hamas attack on Israel.`\
-https://nytimes.com/2023/10/13/us/politics/nikki-haley-trump-ramaswamy-israel.html?searchResultPosition=8
+**How the New York Giants Can Make the Playoffs: Through Week 5**\
+`The Giants have a 2% chance to make the playoffs.`\
+https://nytimes.com/interactive/2023/upshot/new-york-giants-nfl-playoff-picture.html?searchResultPosition=8
 
-**A Reuters cameraman is killed and at least four other journalists are injured near Lebanon’s southern border.**\
-`Two journalists with Reuters and two with Al Jazeera were also injured in the area, but it was not clear if it was from the same incident.`\
-https://nytimes.com/2023/10/13/world/middleeast/lebanon-israel-reuters-issam-abdullah-killed.html?searchResultPosition=9
+**How the Minnesota Vikings Can Make the Playoffs: Through Week 5**\
+`The Vikings now have only a 20% chance to make the playoffs.`\
+https://nytimes.com/interactive/2023/upshot/minnesota-vikings-nfl-playoff-picture.html?searchResultPosition=9
 
-**North Korea Shipped Arms to Russia for Use in Ukraine, U.S. Says**\
-`American intelligence agencies tracked a shipment of 1,000 containers of military equipment and munitions from North Korea to Russia, according to the White House.`\
-https://nytimes.com/2023/10/13/us/politics/north-korea-weapons-russia-ukraine.html?searchResultPosition=10
+**How the New Orleans Saints Can Make the Playoffs: Through Week 5**\
+`The Saints now have a 61% chance to make the playoffs.`\
+https://nytimes.com/interactive/2023/upshot/new-orleans-saints-nfl-playoff-picture.html?searchResultPosition=10
 
