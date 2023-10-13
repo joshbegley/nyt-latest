@@ -1,4 +1,4 @@
-**Scenes From Northern Gaza After Orders to Evacuate**\
+**Scenes From Northern Gaza After Warning to Evacuate**\
 `Residents of northern Gaza began to flee hours after the Israeli military called for civilians to evacuate to the southern half of the territory.`\
 https://nytimes.com/video/world/middleeast/100000009131226/scenes-from-northern-gaza-after-orders-to-evacuate.html?searchResultPosition=1
 
