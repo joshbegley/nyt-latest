@@ -2,21 +2,21 @@
 `An interactive calculator that lets you explore every team’s path to the N.F.L. playoffs.`\
 https://nytimes.com/interactive/2023/upshot/nfl-playoff-picture.html?searchResultPosition=1
 
-**How the Tennessee Titans Can Make the Playoffs: Through Week 5**\
-`The Titans now have only a 26% chance to make the playoffs.`\
-https://nytimes.com/interactive/2023/upshot/tennessee-titans-nfl-playoff-picture.html?searchResultPosition=2
-
 **How the Washington Commanders Can Make the Playoffs: Through Week 5**\
 `The Commanders now have only an 11% chance to make the playoffs.`\
-https://nytimes.com/interactive/2023/upshot/washington-commanders-nfl-playoff-picture.html?searchResultPosition=3
+https://nytimes.com/interactive/2023/upshot/washington-commanders-nfl-playoff-picture.html?searchResultPosition=2
 
-**How the Tampa Bay Buccaneers Can Make the Playoffs: Through Week 4**\
-`The Buccaneers now have a 51% chance to make the playoffs.`\
-https://nytimes.com/interactive/2023/upshot/tampa-bay-buccaneers-nfl-playoff-picture.html?searchResultPosition=4
+**How the Tennessee Titans Can Make the Playoffs: Through Week 5**\
+`The Titans now have only a 26% chance to make the playoffs.`\
+https://nytimes.com/interactive/2023/upshot/tennessee-titans-nfl-playoff-picture.html?searchResultPosition=3
 
 **How the Pittsburgh Steelers Can Make the Playoffs: Through Week 6**\
 `The Steelers now have a 48% chance to make the playoffs.`\
-https://nytimes.com/interactive/2023/upshot/pittsburgh-steelers-nfl-playoff-picture.html?searchResultPosition=5
+https://nytimes.com/interactive/2023/upshot/pittsburgh-steelers-nfl-playoff-picture.html?searchResultPosition=4
+
+**How the Tampa Bay Buccaneers Can Make the Playoffs: Through Week 4**\
+`The Buccaneers now have a 51% chance to make the playoffs.`\
+https://nytimes.com/interactive/2023/upshot/tampa-bay-buccaneers-nfl-playoff-picture.html?searchResultPosition=5
 
 **How the New York Jets Can Make the Playoffs: Through Week 5**\
 `The Jets have a 13% chance to make the playoffs.`\
