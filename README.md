@@ -16,7 +16,7 @@ https://nytimes.com/2023/10/13/nyregion/jewish-progressive-nyc-israel-attack.htm
 
 **The Pentagon chief says U.S. security assistance is ‘rapidly flowing’ to Israel.**\
 `By Isabel Kershner`\
-https://nytimes.com/live/2023/10/13/world/israel-hamas-war-gaza-evacuation/the-pentagon-chief-says-us-security-assistance-is-rapidly-flowing-to-israel?searchResultPosition=5
+https://nytimes.com/live/2023/10/13/world/israel-news-gaza-hamas-war/the-pentagon-chief-says-us-security-assistance-is-rapidly-flowing-to-israel?searchResultPosition=5
 
 **Arab Citizens of Israel Were Not Spared in the Hamas-Led Massacres**\
 `About two million of Israel’s citizens are Arab. Many identify as Palestinian or share close family ties with those in the West Bank and Gaza.`\
@@ -36,5 +36,5 @@ https://nytimes.com/2023/10/13/business/jpmorgan-citigroup-wells-fargo-profits.h
 
 **The Hamas attack on Israel brings new scrutiny of the group’s ties to Iran.**\
 `Officials from Iran and Hezbollah helped plan the attack, people familiar with the operation said, but the U.S. and its allies have not found evidence directly linking Tehran.`\
-https://nytimes.com/live/2023/10/13/world/israel-hamas-war-gaza-evacuation/the-hamas-attack-on-israel-brings-new-scrutiny-of-the-groups-ties-to-iran?searchResultPosition=10
+https://nytimes.com/live/2023/10/13/world/israel-news-gaza-hamas-war/the-hamas-attack-on-israel-brings-new-scrutiny-of-the-groups-ties-to-iran?searchResultPosition=10
 
