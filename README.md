@@ -27,7 +27,7 @@ https://nytimes.com/2023/10/13/podcasts/simlish-ai-birkenstocks.html?searchResul
 https://nytimes.com/2023/10/13/us/politics/house-speaker-jordan-scalise.html?searchResultPosition=7
 
 **Dimon Warns of ‘Most Dangerous Time in Decades’ as Banks Report Big Profits**\
-`JPMorgan Chase and Wells Fargo said that consumers continued to borrow and spend, but their chiefs warned that risks were intensifying.`\
+`JPMorgan Chase, Wells Fargo and Citigroup said that consumers continued to borrow and spend, but their chiefs warned that geopolitical risks were intensifying.`\
 https://nytimes.com/2023/10/13/business/jpmorgan-citigroup-wells-fargo-profits.html?searchResultPosition=8
 
 **The Hamas attack on Israel brings new scrutiny of the group’s ties to Iran.**\
