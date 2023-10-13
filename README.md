@@ -26,7 +26,7 @@ https://nytimes.com/2023/10/13/style/larry-handerhan-donnelly-mcdowell-wedding.h
 `The relatively uncommon name of Jacinta or Jacinda is shared among many famous people in New Zealand and Australia, with most of them born in the 1970s.`\
 https://nytimes.com/2023/10/12/world/australia/why-are-there-so-many-jacintas-ardern.html?searchResultPosition=7
 
-**The U.N. says the Israeli military told it that all of northern Gaza has 24 hours to move south.**\
+**Israel has warned residents of northern Gaza to evacuate south within 24 hours.**\
 `A U.N. spokesman said such a movement would turn “what is already a tragedy into a calamitous situation.”`\
 https://nytimes.com/live/2023/10/12/world/israel-gaza-war-hamas/israel-un-gaza-evacuations?searchResultPosition=8
 
