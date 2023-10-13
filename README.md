@@ -1,5 +1,5 @@
 **How Hamas Overran Southern Israel and Killed 1,300**\
-`Hamas gunmen surged into Israel in a highly organized and meticulously planned operation that suggested a deep understanding of Israel’s military secrets and weaknesses. Here is how the atrocities unfolded.`\
+`Hamas gunmen surged into Israel in a highly organized and meticulously planned operation that suggested a deep understanding of Israel’s military secrets and weaknesses. Here is how the attacks unfolded.`\
 https://nytimes.com/2023/10/13/world/middleeast/hamas-israel-attack-gaza.html?searchResultPosition=1
 
 **Supreme Court to Hear Another Broad Challenge to Agency Power**\
