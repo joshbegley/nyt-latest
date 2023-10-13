@@ -20,7 +20,7 @@ https://nytimes.com/2023/10/13/books/frankfurt-book-fair-cancels-award-adania-sh
 
 **Fact or Fiction? In This War, It Is Hard to Tell.**\
 `Social media is full of false and misleading posts. The rise in A.I. is making it worse. And the trust in traditional news sources has declined.`\
-https://nytimes.com/2023/10/13/business/fact-or-fiction-in-this-war-it-is-hard-to-tell.html?searchResultPosition=6
+https://nytimes.com/2023/10/13/business/israel-hamas-misinformation-social-media-x.html?searchResultPosition=6
 
 **Protests Erupt Across the Middle East Over Israel’s Siege of Gaza**\
 `Friday is a day of prayer in the Middle East, and this Friday was also a day of protest in support of the Palestinian people.`\
