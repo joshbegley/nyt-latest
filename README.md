@@ -23,7 +23,7 @@ https://nytimes.com/2023/10/13/style/love-letter-newsletter-90-percent-of-love-i
 https://nytimes.com/2023/10/13/us/politics/nikki-haley-trump-ramaswamy-israel.html?searchResultPosition=6
 
 **A Reuters cameraman is killed and at least four other journalists are injured near Lebanon’s southern border.**\
-`Two journalists with Al Jazeera were also injured in the area, but it was not clear if it was from the same incident.`\
+`Two journalists with Reuters and two with Al Jazeera were also injured in the area, but it was not clear if it was from the same incident.`\
 https://nytimes.com/2023/10/13/world/middleeast/lebanon-israel-reuters-issam-abdullah-killed.html?searchResultPosition=7
 
 **North Korea Shipped Arms to Russia for Use in Ukraine, U.S. Says**\
