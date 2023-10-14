@@ -3,7 +3,7 @@
 https://nytimes.com/live/2023/10/14/science/solar-eclipse-2023/the-eclipse-is-seen-from-one-of-astronomys-most-venerable-observatories?searchResultPosition=1
 
 **Scientists Investigating Alzheimer’s Drug Faulted in Leaked Report**\
-`A professor at the City College of New York engaged in “significant research misconduct,” an investigating committee concluded.`\
+`A professor at the City College of New York engaged in “significant research misconduct,” an expert committee concluded.`\
 https://nytimes.com/2023/10/14/health/alzheimers-drug-research-simufilam.html?searchResultPosition=2
 
 **Science fact descends on the sun over a town known best for science fiction.**\
