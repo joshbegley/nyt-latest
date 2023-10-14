@@ -30,9 +30,9 @@ https://nytimes.com/live/2023/10/14/science/solar-eclipse-2023/in-2017-americans
 `By Katrina Miller`\
 https://nytimes.com/live/2023/10/14/science/solar-eclipse-2023/what-you-need-to-know-about-this-solar-eclipse?searchResultPosition=8
 
-**American citizens say the border crossing from Gaza is still closed.**\
+**American Citizens Fleeing Gaza Say Border Crossing Still Closed**\
 `A U.S. official had said that an agreement had been reached to allow Americans safe passage from the blockaded enclave to Egypt.`\
-https://nytimes.com/2023/10/14/world/middleeast/gaza-egypt-border-crossing-americans.html?searchResultPosition=9
+https://nytimes.com/live/2023/10/14/world/israel-gaza-hamas-war-news/gaza-egypt-border-crossing-americans?searchResultPosition=9
 
 **The eclipse’s initial shadow may fall on Oregon’s clouds.**\
 `By Mike Baker`\
