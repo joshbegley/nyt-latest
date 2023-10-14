@@ -35,6 +35,6 @@ https://nytimes.com/2023/10/14/magazine/open-relationship-wife-ethics.html?searc
 https://nytimes.com/live/2023/10/14/science/solar-eclipse-2023/here-is-the-latest-on-the-eclipse?searchResultPosition=9
 
 **What Happens When a Woman Chooses Career Dominance Over Her Relationship**\
-`‘Fair Play’ gets some things right about the gender gap at work.`\
+`“Fair Play” gets some things right about the gender gap at work.`\
 https://nytimes.com/2023/10/14/opinion/fair-play.html?searchResultPosition=10
 
