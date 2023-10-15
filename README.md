@@ -2,7 +2,7 @@
 `An Israeli doctor gets ready for another war. Also: Teaching music to children; restoring trust in our institutions; paperbacks at war.`\
 https://nytimes.com/2023/10/15/opinion/israel-hamas-gaza.html?searchResultPosition=1
 
-**Anxiety builds for Americans in Gaza as deal to open crossing into Egypt remains elusive.**\
+**Anxiety builds for Americans in Gaza as a deal to open a crossing into Egypt remains elusive.**\
 `By Anna Betts and Aaron Boxerman`\
 https://nytimes.com/live/2023/10/15/world/israel-news-hamas-war-gaza/anxiety-builds-for-americans-in-gaza-as-deal-to-open-crossing-into-egypt-remains-elusive?searchResultPosition=2
 
