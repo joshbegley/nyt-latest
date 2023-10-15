@@ -1,40 +1,40 @@
-**‘S.N.L’ Returns With Pete Davidson and a Taylor Swift Cameo**\
-`The show’s first new broadcast in six months opened with a somber reflection by Davidson, the host, and included a brief appearance by Swift, who was a running theme of the episode.`\
-https://nytimes.com/2023/10/15/arts/television/saturday-night-live-taylor-swift-pete-davidson.html?searchResultPosition=1
+**A Palestinian Restaurant Perseveres in War’s Shadow**\
+`For three years, Jews and Palestinians have gathered together at Ayat in Bay Ridge, Brooklyn. Now the restaurant is being flooded with bad reviews.`\
+https://nytimes.com/2023/10/15/nyregion/palestinian-restaurant-brooklyn-israel.html?searchResultPosition=1
 
-**Here’s the latest on the war.**\
-`By Edward Wong and Vivek Shankar`\
-https://nytimes.com/live/2023/10/15/world/israel-news-hamas-war-gaza/heres-the-latest-on-the-war?searchResultPosition=2
+**‘Beckham’ Is Worth Watching, Especially for the Style**\
+`The new Netflix series is about a famous athlete and his famous family. But it’s also a love story told through fashion.`\
+https://nytimes.com/2023/10/15/fashion/beckham-documentary-style.html?searchResultPosition=2
 
-**Quotation of the Day: Online Deceits Make the Truth a War Casualty**\
-`Quotation of the Day for Sunday, October 15, 2023.`\
-https://nytimes.com/2023/10/15/pageoneplus/quotation-of-the-day-online-deceits-make-the-truth-a-war-casualty.html?searchResultPosition=3
+**The Fragments of War**\
+`Mementos gathered by a correspondent in Ukraine tell their own stories.`\
+https://nytimes.com/2023/10/15/reader-center/ukraine-war-artifacts.html?searchResultPosition=3
 
-**Poland Is Voting In a ‘Pivotal’ Election: Here’s What to Know**\
-`After a brutal campaign, the polarized nation is heading to the polls on Sunday in a parliamentary election that will reverberate well beyond its borders.`\
-https://nytimes.com/2023/10/15/world/europe/poland-elections.html?searchResultPosition=4
+**Hunter Biden, Ironic Icon**\
+`A tongue-in-cheek group that includes meme-loving Leftists, frat boys and women who like troubled men, has turned the president’s son into an antihero.`\
+https://nytimes.com/2023/10/15/style/hunter-biden-fans-laptop-controversy.html?searchResultPosition=4
 
-**Hamas Bears the Blame for Every Death in This War**\
-`The terrorist group profits from Palestinian and Israeli deaths alike.`\
-https://nytimes.com/2023/10/15/opinion/hamas-war-israel-gaza.html?searchResultPosition=5
+**What It’s Like to Be 13? Ask the Experts.**\
+`There are plenty of signs that teenage girls are in trouble. So The Times followed three teenagers for an entire school year.`\
+https://nytimes.com/2023/10/15/insider/teenagers-social-media.html?searchResultPosition=5
 
-**Jeff Landry, a Hard-Line Republican, Is Elected Governor of Louisiana**\
-`The victory by Mr. Landry, the state’s attorney general, secures Republican control of Louisiana after eight years of divided government.`\
-https://nytimes.com/2023/10/14/us/politics/landry-republican-louisiana-governor.html?searchResultPosition=6
+**How Six Italian Brothers Shaped the Story of New York**\
+`The masterly Piccirilli brothers set up a shop in the Bronx and used hammers and chisels to create some of the most important public sculptures in the city.`\
+https://nytimes.com/2023/10/15/realestate/streetscapes-italian-sculptors-piccirilli-brothers.html?searchResultPosition=6
 
-**Madonna Celebrates Four Decades of Hits With Career-Spanning Spectacle**\
-`After a health-related delay, the pop superstar launched her Celebration Tour in London with a performance devoted to her full catalog of hits.`\
-https://nytimes.com/2023/10/14/arts/music/madonna-celebration-tour-london.html?searchResultPosition=7
+**‘The Woman Suggested Trying to Get a Better View From a Different Spot’**\
+`Looking for a hawk in Prospect Park, a Brooklyn Navy Yard tour and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2023/10/15/nyregion/metropolitan-diary.html?searchResultPosition=7
 
-**Known for His Pointed Questions, a 15-Year-Old Is Ejected From a G.O.P. Event**\
-`Quinn Mitchell, an aspiring journalist from New Hampshire, was escorted out of a G.O.P. candidate summit on Friday, though he was later allowed to return.`\
-https://nytimes.com/2023/10/14/us/politics/quinn-mitchell-new-hampshire-desantis.html?searchResultPosition=8
+**In an Opera About Civil War Spies, Dancers Help Drive the Drama**\
+`Houston Grand Opera, known for innovation, unveils Jake Heggie’s “Intelligence,” directed by Jawole Willa Jo Zollar and featuring Urban Bush Women.`\
+https://nytimes.com/2023/10/15/arts/music/intelligence-houston-grand-opera-heggie-zollar.html?searchResultPosition=8
 
-**At U.S. Synagogues, Calls for Peace and Too Many Emotions to Process**\
-`One week into the war in Israel, American Jews gathered for Sabbath service, expressing grief, horror and fury over the growing violence.`\
-https://nytimes.com/2023/10/14/us/israel-american-synagogues-jews.html?searchResultPosition=9
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/10/15/crosswords/spelling-bee-forum.html?searchResultPosition=9
 
-**Piper Laurie, Reluctant Starlet Turned Respected Actress, Dies at 91**\
-`She began as just another product of the studio system, but she went on to receive three Oscar nominations, win an Emmy and appear on Broadway.`\
-https://nytimes.com/2023/10/14/movies/piper-laurie-dead.html?searchResultPosition=10
+**Today’s Wordle Review**\
+`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
+https://nytimes.com/2023/10/15/crosswords/wordle-review-answer-848.html?searchResultPosition=10
 
