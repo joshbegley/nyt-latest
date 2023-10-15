@@ -4,7 +4,7 @@ https://nytimes.com/2023/10/15/us/joran-van-der-sloot-guilty.html?searchResultPo
 
 **Australia Fines X for Not Providing Information on Child Abuse Content**\
 `The service formerly known as Twitter told Australian regulators that its automated detection of abusive material had declined after Elon Musk bought it.`\
-https://nytimes.com/2023/10/15/technology/x-fined-australia.html?searchResultPosition=2
+https://nytimes.com/2023/10/15/technology/x-twitter-child-abuse-fine-australia.html?searchResultPosition=2
 
 **Gaza’s Hospitals Face ‘Impossible’ Choices With Israel Evacuation Order**\
 `As a widely anticipated ground invasion looms, hospitals in Gaza City said they had no way to evacuate thousands of sick and injured patients.`\
