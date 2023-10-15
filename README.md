@@ -1,4 +1,4 @@
-**‘We sleep fearing that we might be dead,’ a Gaza resident says.**\
+**Despite the risk, a Gazan family chooses to stay put.**\
 `By Emma Bubola`\
 https://nytimes.com/live/2023/10/15/world/israel-news-hamas-war-gaza/we-sleep-fearing-that-we-might-be-dead-a-gaza-resident-says?searchResultPosition=1
 
