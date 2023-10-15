@@ -22,19 +22,19 @@ https://nytimes.com/2023/10/15/insider/teenagers-social-media.html?searchResultP
 `The masterly Piccirilli brothers set up a shop in the Bronx and used hammers and chisels to create some of the most important public sculptures in the city.`\
 https://nytimes.com/2023/10/15/realestate/streetscapes-italian-sculptors-piccirilli-brothers.html?searchResultPosition=6
 
-**‘The Woman Suggested Trying to Get a Better View From a Different Spot’**\
-`Looking for a hawk in Prospect Park, a Brooklyn Navy Yard tour and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2023/10/15/nyregion/metropolitan-diary.html?searchResultPosition=7
-
 **In an Opera About Civil War Spies, Dancers Help Drive the Drama**\
 `Houston Grand Opera, known for innovation, unveils Jake Heggie’s “Intelligence,” directed by Jawole Willa Jo Zollar and featuring Urban Bush Women.`\
-https://nytimes.com/2023/10/15/arts/music/intelligence-houston-grand-opera-heggie-zollar.html?searchResultPosition=8
+https://nytimes.com/2023/10/15/arts/music/intelligence-houston-grand-opera-heggie-zollar.html?searchResultPosition=7
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/10/15/crosswords/spelling-bee-forum.html?searchResultPosition=9
+https://nytimes.com/2023/10/15/crosswords/spelling-bee-forum.html?searchResultPosition=8
 
 **Today’s Wordle Review**\
 `Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/10/15/crosswords/wordle-review-answer-848.html?searchResultPosition=10
+https://nytimes.com/2023/10/15/crosswords/wordle-review-answer-848.html?searchResultPosition=9
+
+**‘S.N.L’ Returns With Pete Davidson and a Taylor Swift Cameo**\
+`The show’s first new broadcast in six months opened with a somber reflection by Davidson, the host, and included a brief appearance by Swift, who was a running theme of the episode.`\
+https://nytimes.com/2023/10/15/arts/television/saturday-night-live-taylor-swift-pete-davidson.html?searchResultPosition=10
 
