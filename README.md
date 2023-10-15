@@ -26,8 +26,8 @@ https://nytimes.com/live/2023/10/15/world/israel-news-hamas-war-gaza/republicans
 `With a ground invasion into Gaza imminent, Israelis are grappling with a total breakdown of trust and a collapse of everything they believed in and relied on.`\
 https://nytimes.com/2023/10/15/world/middleeast/hamas-israel-mood-distrust.html?searchResultPosition=7
 
-**6-Year-Old Boy Fatally Stabbed in Anti-Muslim Attack, Police Say**\
-`The boy, who was stabbed more than two dozen times, and his mother were both wounded by their landlord on Saturday outside Chicago in an attack fueled by the war in the Middle East, officials said.`\
+**6-Year-Old Boy Fatally Stabbed in Anti-Muslim Attack, Authorities Say**\
+`Officials said they considered the attack, outside of Chicago, a hate crime, tied to the fighting in Israel and Gaza.`\
 https://nytimes.com/2023/10/15/us/muslim-boy-stabbed-landlord-chicago.html?searchResultPosition=8
 
 **Warning of ‘Grave’ Errors, Powerful Donors Push Universities on Hamas**\
