@@ -1,40 +1,40 @@
+**Is There Fascist DNA in the U.S. Body Politic?**\
+`Rachel Maddow’s “Prequel” and Heather Cox Richardson’s “Democracy Awakening” follow plots against America hatched by homegrown autocrats.`\
+https://nytimes.com/2023/10/15/books/review/prequel-rachel-maddow-democracy-awakening-heather-cox-richardson.html?searchResultPosition=1
+
+**Nikki Haley, Israel and the Politics of Diplomacy**\
+`The G.O.P. contender’s combative defense of Israel defined her tenure at the United Nations. Will it also define her presidential campaign?`\
+https://nytimes.com/2023/10/15/us/politics/nikki-haley-israel-trump.html?searchResultPosition=2
+
+**The Essential Vladimir Nabokov**\
+`Clever and dexterous, his writing delights in puzzles, puns and lepidoptera. Here’s where to start. (There’s so much more than “Lolita.”)`\
+https://nytimes.com/2023/10/15/books/vladimir-nabokov-best-books.html?searchResultPosition=3
+
+**A Wildlife Oasis Opens Atop a Notorious Former Dump**\
+`The first section of Freshkills Park is ready for visitors. I got a first look. Here’s what I saw.`\
+https://nytimes.com/interactive/2023/10/15/nyregion/freshkills-park-opens.html?searchResultPosition=4
+
+**Looking Beyond a Dancer’s Confident Grace in ‘States of Hope’**\
+`Hope Boykin radiated generosity and joy as a performer. As a choreographer and director, she is showing the struggle the audience couldn’t see.`\
+https://nytimes.com/2023/10/15/arts/dance/hope-boykin-states-of-hope-joyce-theater.html?searchResultPosition=5
+
+**Goodwill Tries to Figure Out Online Commerce**\
+`The nonprofit retailer helps provide jobs and training to those in need. But it needs revenue from online sales to help fund its charitable aims.`\
+https://nytimes.com/2023/10/15/business/goodwill-goodwillfinds-ecommerce.html?searchResultPosition=6
+
+**Good Mom, Bad Mom, Possessed by Evil Mom**\
+`In Jennifer McMahon’s new novel, “My Darling Girl,” a woman must protect her family from a terrible darkness lurking in her abusive mother.`\
+https://nytimes.com/2023/10/15/books/review/new-horror-books.html?searchResultPosition=7
+
+**‘Big Jim’ and Babydog Go to Washington?**\
+`The debt-ridden, party-flipping governor of struggling West Virginia is running for the Senate. Is D.C. ready for Jim Justice (and his beloved bulldog)?`\
+https://nytimes.com/2023/10/15/us/jim-justice-senate-governor-west-virginia.html?searchResultPosition=8
+
+**8 Sex Myths That Experts Wish Would Go Away**\
+`Everyone else is having more sex than you. Men want sex more than women do. And more.`\
+https://nytimes.com/2023/10/15/well/family/sex-myths.html?searchResultPosition=9
+
 **Powerful Earthquakes Hit Afghanistan for the Fourth Time in Just Over a Week**\
 `Herat Province, near the site of three earlier quakes that killed more than 1,000 people in recent days, was shaken violently again early Sunday.`\
-https://nytimes.com/2023/10/15/world/asia/afghanistan-earthquakes-again.html?searchResultPosition=1
-
-**Corrections: Oct. 15, 2023**\
-`Corrections that appeared in print on Sunday, Oct. 15, 2023.`\
-https://nytimes.com/2023/10/15/pageoneplus/corrections-oct-15-2023.html?searchResultPosition=2
-
-**A Palestinian Restaurant Perseveres in War’s Shadow**\
-`For three years, Jews and Palestinians have gathered together at Ayat in Bay Ridge, Brooklyn. Now the restaurant is being flooded with bad reviews.`\
-https://nytimes.com/2023/10/15/nyregion/palestinian-restaurant-brooklyn-israel.html?searchResultPosition=3
-
-**‘Beckham’ Is Worth Watching, Especially for the Style**\
-`The new Netflix series is about a famous athlete and his famous family. But it’s also a love story told through fashion.`\
-https://nytimes.com/2023/10/15/fashion/beckham-documentary-style.html?searchResultPosition=4
-
-**The Fragments of War**\
-`Mementos gathered by a correspondent in Ukraine tell their own stories.`\
-https://nytimes.com/2023/10/15/reader-center/ukraine-war-artifacts.html?searchResultPosition=5
-
-**Hunter Biden, Ironic Icon**\
-`A tongue-in-cheek group that includes meme-loving Leftists, frat boys and women who like troubled men, has turned the president’s son into an antihero.`\
-https://nytimes.com/2023/10/15/style/hunter-biden-fans-laptop-controversy.html?searchResultPosition=6
-
-**What It’s Like to Be 13? Ask the Experts.**\
-`There are plenty of signs that teenage girls are in trouble. So The Times followed three teenagers for an entire school year.`\
-https://nytimes.com/2023/10/15/insider/teenagers-social-media.html?searchResultPosition=7
-
-**How Six Italian Brothers Shaped the Story of New York**\
-`The masterly Piccirilli brothers set up a shop in the Bronx and used hammers and chisels to create some of the most important public sculptures in the city.`\
-https://nytimes.com/2023/10/15/realestate/streetscapes-italian-sculptors-piccirilli-brothers.html?searchResultPosition=8
-
-**‘The Woman Suggested Trying to Get a Better View From a Different Spot’**\
-`Looking for a hawk in Prospect Park, a Brooklyn Navy Yard tour and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2023/10/15/nyregion/metropolitan-diary.html?searchResultPosition=9
-
-**In an Opera About Civil War Spies, Dancers Help Drive the Drama**\
-`Houston Grand Opera, known for innovation, unveils Jake Heggie’s “Intelligence,” directed by Jawole Willa Jo Zollar and featuring Urban Bush Women.`\
-https://nytimes.com/2023/10/15/arts/music/intelligence-houston-grand-opera-heggie-zollar.html?searchResultPosition=10
+https://nytimes.com/2023/10/15/world/asia/afghanistan-earthquakes-again.html?searchResultPosition=10
 
