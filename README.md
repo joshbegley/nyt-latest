@@ -19,7 +19,7 @@ https://nytimes.com/2023/10/14/movies/piper-laurie-dead.html?searchResultPositio
 https://nytimes.com/2023/10/14/world/middleeast/israel-gaza-humanitarian-crisis.html?searchResultPosition=5
 
 **Israeli Invasion Plans Target Gaza City and Hamas Leadership**\
-`The goal, according to three senior officers,  is to wipe out the top political and military hierarchy of Hamas, the Palestinian group that controls Gaza.`\
+`The goal, according to three senior officers, is to wipe out the top political and military hierarchy of Hamas, the Palestinian group that controls Gaza.`\
 https://nytimes.com/2023/10/14/world/middleeast/israel-gaza-invasion.html?searchResultPosition=6
 
 **A Solar Eclipse Leaves Its Mark Across a Hemisphere**\
