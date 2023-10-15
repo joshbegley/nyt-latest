@@ -18,7 +18,7 @@ https://nytimes.com/live/2023/10/15/world/israel-news-hamas-war-gaza/blinken-mee
 `Dariush Mehrjui, 83, one of the pioneers of Iranian cinema’s new wave movement, was found dead, along with his wife, at their home outside Tehran.`\
 https://nytimes.com/2023/10/15/world/middleeast/dariush-mehrjui-iran-filmmaker-killed.html?searchResultPosition=5
 
-**Biden Campaign Raises $71.3 Million, Far Outpacing His Republican Rivals**\
+**Biden Campaign Raises $71.3 Million, Far Outpacing Trump and Republican Field**\
 `The president’s re-election campaign announced a substantial quarterly fund-raising haul, but it’s far short of what Donald J. Trump raised in the same quarter of his 2020 re-election campaign.`\
 https://nytimes.com/2023/10/15/us/politics/biden-campaign-q3-fundraising.html?searchResultPosition=6
 
