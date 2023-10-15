@@ -1,40 +1,40 @@
-**Is There Fascist DNA in the U.S. Body Politic?**\
-`Rachel Maddow’s “Prequel” and Heather Cox Richardson’s “Democracy Awakening” follow plots against America hatched by homegrown autocrats.`\
-https://nytimes.com/2023/10/15/books/review/prequel-rachel-maddow-democracy-awakening-heather-cox-richardson.html?searchResultPosition=1
+**Slaughter at a Festival of Peace and Love Leaves Israel Transformed**\
+`In this massacre of its youth, Israel’s 75-year-old quest for some carefree normalcy met the murderous fury of those long-oppressed Palestinians who deny the state’s right to exist.`\
+https://nytimes.com/2023/10/15/world/middleeast/israel-music-festival-massacre.html?searchResultPosition=1
 
-**Nikki Haley, Israel and the Politics of Diplomacy**\
-`The G.O.P. contender’s combative defense of Israel defined her tenure at the United Nations. Will it also define her presidential campaign?`\
-https://nytimes.com/2023/10/15/us/politics/nikki-haley-israel-trump.html?searchResultPosition=2
+**The Schoolyard**\
+`A small image reveals a larger story.`\
+https://nytimes.com/2023/10/15/world/middleeast/the-schoolyard.html?searchResultPosition=2
 
-**The Essential Vladimir Nabokov**\
-`Clever and dexterous, his writing delights in puzzles, puns and lepidoptera. Here’s where to start. (There’s so much more than “Lolita.”)`\
-https://nytimes.com/2023/10/15/books/vladimir-nabokov-best-books.html?searchResultPosition=3
+**What to Know as Ecuador Votes in an Election Tinged With Violence and Uncertainty**\
+`A center-right businessman and a leftist candidate are vying for the presidency on Sunday at a moment when the country is facing growing insecurity fueled by international criminal groups.`\
+https://nytimes.com/2023/10/15/world/americas/ecuador-election-president.html?searchResultPosition=3
 
-**A Wildlife Oasis Opens Atop a Notorious Former Dump**\
-`The first section of Freshkills Park is ready for visitors. I got a first look. Here’s what I saw.`\
-https://nytimes.com/interactive/2023/10/15/nyregion/freshkills-park-opens.html?searchResultPosition=4
+**Wearables Track Parkinson’s Better Than Human Observation, Study Finds**\
+`Researchers demonstrated that off-the-shelf sensors can measure the subtle changes of disease progression.`\
+https://nytimes.com/2023/10/15/health/wearables-parkinsons-technology.html?searchResultPosition=4
 
-**Looking Beyond a Dancer’s Confident Grace in ‘States of Hope’**\
-`Hope Boykin radiated generosity and joy as a performer. As a choreographer and director, she is showing the struggle the audience couldn’t see.`\
-https://nytimes.com/2023/10/15/arts/dance/hope-boykin-states-of-hope-joyce-theater.html?searchResultPosition=5
+**‘A Day of Horror:’ Kibbutz Massacre Survivors Recount Hamas Attack**\
+`On Oct. 7, Nir Oz kibbutz, located two kilometers from the Israel-Gaza border, was the site of a brutal massacre by Hamas assailants. Three survivors tell the New York Times how they lived through it.`\
+https://nytimes.com/video/world/middleeast/100000009131432/israel-hamas-kibbutz-massacre-survivors.html?searchResultPosition=5
 
-**Goodwill Tries to Figure Out Online Commerce**\
-`The nonprofit retailer helps provide jobs and training to those in need. But it needs revenue from online sales to help fund its charitable aims.`\
-https://nytimes.com/2023/10/15/business/goodwill-goodwillfinds-ecommerce.html?searchResultPosition=6
+**A New Membership Club Bets on Black Business**\
+`The Babel sisters closed their beloved cocktail bar and brought its vibes to a new spot for a fee. To them, the time was right.`\
+https://nytimes.com/2023/10/15/style/babel-loft-prospect-heights.html?searchResultPosition=6
 
-**Good Mom, Bad Mom, Possessed by Evil Mom**\
-`In Jennifer McMahon’s new novel, “My Darling Girl,” a woman must protect her family from a terrible darkness lurking in her abusive mother.`\
-https://nytimes.com/2023/10/15/books/review/new-horror-books.html?searchResultPosition=7
+**Facing Scrutiny, a Museum That Holds 12,000 Human Remains Changes Course**\
+`The American Museum of Natural History said it would address its collecting of remains, which stretched into the 1940s and included practices now viewed as abusive and racist.`\
+https://nytimes.com/2023/10/15/arts/american-museum-natural-history-human-remains.html?searchResultPosition=7
 
-**‘Big Jim’ and Babydog Go to Washington?**\
-`The debt-ridden, party-flipping governor of struggling West Virginia is running for the Senate. Is D.C. ready for Jim Justice (and his beloved bulldog)?`\
-https://nytimes.com/2023/10/15/us/jim-justice-senate-governor-west-virginia.html?searchResultPosition=8
+**When Roz Chast Closes Her Eyes, Chris Rock and Nasty Babies Open Theirs**\
+`In “I Must Be Dreaming,” the cartoonist serves up nutty nocturnal admissions, considers theories of sleep and, yes, imagines losing her teeth.`\
+https://nytimes.com/2023/10/15/books/review/roz-chast-i-must-be-dreaming.html?searchResultPosition=8
 
-**8 Sex Myths That Experts Wish Would Go Away**\
-`Everyone else is having more sex than you. Men want sex more than women do. And more.`\
-https://nytimes.com/2023/10/15/well/family/sex-myths.html?searchResultPosition=9
+**‘I Want to Be Forgiven. I Just Want to Be Forgiven.’**\
+`When the Minnesota Board of Pardons meets, supplicants have 10 minutes to make the case for mercy.`\
+https://nytimes.com/2023/10/15/us/minnesota-board-of-pardons.html?searchResultPosition=9
 
-**Powerful Earthquakes Hit Afghanistan for the Fourth Time in Just Over a Week**\
-`Herat Province, near the site of three earlier quakes that killed more than 1,000 people in recent days, was shaken violently again early Sunday.`\
-https://nytimes.com/2023/10/15/world/asia/afghanistan-earthquakes-again.html?searchResultPosition=10
+**What Pain Will a New Wave of Student Loan Payments Bring?**\
+`Millions of workers bore the burdens of the pandemic while others reaped the gains.`\
+https://nytimes.com/2023/10/15/opinion/student-loans-debt-pandemic.html?searchResultPosition=10
 
