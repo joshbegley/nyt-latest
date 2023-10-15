@@ -1,40 +1,40 @@
+**Corrections: Oct. 15, 2023**\
+`Corrections that appeared in print on Sunday, Oct. 15, 2023.`\
+https://nytimes.com/2023/10/15/pageoneplus/corrections-oct-15-2023.html?searchResultPosition=1
+
 **A Palestinian Restaurant Perseveres in War’s Shadow**\
 `For three years, Jews and Palestinians have gathered together at Ayat in Bay Ridge, Brooklyn. Now the restaurant is being flooded with bad reviews.`\
-https://nytimes.com/2023/10/15/nyregion/palestinian-restaurant-brooklyn-israel.html?searchResultPosition=1
+https://nytimes.com/2023/10/15/nyregion/palestinian-restaurant-brooklyn-israel.html?searchResultPosition=2
 
 **‘Beckham’ Is Worth Watching, Especially for the Style**\
 `The new Netflix series is about a famous athlete and his famous family. But it’s also a love story told through fashion.`\
-https://nytimes.com/2023/10/15/fashion/beckham-documentary-style.html?searchResultPosition=2
+https://nytimes.com/2023/10/15/fashion/beckham-documentary-style.html?searchResultPosition=3
 
 **The Fragments of War**\
 `Mementos gathered by a correspondent in Ukraine tell their own stories.`\
-https://nytimes.com/2023/10/15/reader-center/ukraine-war-artifacts.html?searchResultPosition=3
+https://nytimes.com/2023/10/15/reader-center/ukraine-war-artifacts.html?searchResultPosition=4
 
 **Hunter Biden, Ironic Icon**\
 `A tongue-in-cheek group that includes meme-loving Leftists, frat boys and women who like troubled men, has turned the president’s son into an antihero.`\
-https://nytimes.com/2023/10/15/style/hunter-biden-fans-laptop-controversy.html?searchResultPosition=4
+https://nytimes.com/2023/10/15/style/hunter-biden-fans-laptop-controversy.html?searchResultPosition=5
 
 **What It’s Like to Be 13? Ask the Experts.**\
 `There are plenty of signs that teenage girls are in trouble. So The Times followed three teenagers for an entire school year.`\
-https://nytimes.com/2023/10/15/insider/teenagers-social-media.html?searchResultPosition=5
+https://nytimes.com/2023/10/15/insider/teenagers-social-media.html?searchResultPosition=6
 
 **How Six Italian Brothers Shaped the Story of New York**\
 `The masterly Piccirilli brothers set up a shop in the Bronx and used hammers and chisels to create some of the most important public sculptures in the city.`\
-https://nytimes.com/2023/10/15/realestate/streetscapes-italian-sculptors-piccirilli-brothers.html?searchResultPosition=6
+https://nytimes.com/2023/10/15/realestate/streetscapes-italian-sculptors-piccirilli-brothers.html?searchResultPosition=7
+
+**‘The Woman Suggested Trying to Get a Better View From a Different Spot’**\
+`Looking for a hawk in Prospect Park, a Brooklyn Navy Yard tour and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2023/10/15/nyregion/metropolitan-diary.html?searchResultPosition=8
 
 **In an Opera About Civil War Spies, Dancers Help Drive the Drama**\
 `Houston Grand Opera, known for innovation, unveils Jake Heggie’s “Intelligence,” directed by Jawole Willa Jo Zollar and featuring Urban Bush Women.`\
-https://nytimes.com/2023/10/15/arts/music/intelligence-houston-grand-opera-heggie-zollar.html?searchResultPosition=7
+https://nytimes.com/2023/10/15/arts/music/intelligence-houston-grand-opera-heggie-zollar.html?searchResultPosition=9
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/10/15/crosswords/spelling-bee-forum.html?searchResultPosition=8
-
-**Today’s Wordle Review**\
-`Our columnist reviews the day’s puzzle. Warning: Contains spoilers!`\
-https://nytimes.com/2023/10/15/crosswords/wordle-review-answer-848.html?searchResultPosition=9
-
-**‘S.N.L’ Returns With Pete Davidson and a Taylor Swift Cameo**\
-`The show’s first new broadcast in six months opened with a somber reflection by Davidson, the host, and included a brief appearance by Swift, who was a running theme of the episode.`\
-https://nytimes.com/2023/10/15/arts/television/saturday-night-live-taylor-swift-pete-davidson.html?searchResultPosition=10
+https://nytimes.com/2023/10/15/crosswords/spelling-bee-forum.html?searchResultPosition=10
 
