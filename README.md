@@ -1,5 +1,5 @@
 **Biden Campaign Raises $71.3 Million, Far Outpacing His Republican Rivals**\
-`President Biden’s re-election campaign announced substantial quarterly fund-raising , but short of what Donald J. Trump managed in his 2020 re-election campaign.`\
+`The president’s re-election campaign announced a substantial quarterly fund-raising haul, but it’s far short of what Donald J. Trump raised in the same quarter of his 2020 re-election campaign.`\
 https://nytimes.com/2023/10/15/us/politics/biden-campaign-q3-fundraising.html?searchResultPosition=1
 
 **A Parade of Strikeouts**\
