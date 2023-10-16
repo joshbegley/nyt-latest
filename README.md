@@ -1,5 +1,5 @@
 **Twins Are Born in Gaza After Their Mother Flees to the South**\
-`Their mother left one hospital for another ahead of a possible Israeli ground invasion. The twins need formula, but water is scarce.`\
+`Despite complications with her pregnancy, their mother joined the hundreds of thousands evacuating ahead of a possible Israeli ground invasion. The newborns need formula, but water is scarce.`\
 https://nytimes.com/2023/10/16/world/middleeast/gaza-evacuation-twin-babies-hospital.html?searchResultPosition=1
 
 **A Shift in Gerrymandering**\
