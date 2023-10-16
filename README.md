@@ -1,6 +1,6 @@
 **What’s in Your ‘Spend the Night’ Bag?**\
 `A toothbrush, sure, but some people bring everything they need to feel comfortable (and a whole lot more) for a romantic over-night.`\
-https://nytimes.com/2023/10/16/style/whats-in-your-spend-the-night-bag.html?searchResultPosition=1
+https://nytimes.com/2023/10/16/style/overnight-bag.html?searchResultPosition=1
 
 **Israel’s Corporate Defenders Grow Louder**\
 `Wall Street magnates and tech entrepreneurs are the latest to push back against institutions over where they stand on the country and its response to the Hamas attacks.`\
