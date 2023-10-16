@@ -11,7 +11,7 @@ https://nytimes.com/2023/10/16/arts/television/whats-on-tv-this-week-aka-mr-chow
 https://nytimes.com/2023/10/16/opinion/china-us-taiwan-war.html?searchResultPosition=3
 
 **Monday Briefing**\
-`Diplomats try to ease the “siege” of Gaza.`\
+`Diplomats rush to address the shortages in Gaza.`\
 https://nytimes.com/2023/10/16/briefing/gaza-crisis-diplomats-afghanistan-poland.html?searchResultPosition=4
 
 **No Corrections: Oct. 16, 2023**\
