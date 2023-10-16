@@ -3,7 +3,7 @@
 https://nytimes.com/2023/10/16/us/politics/trump-gaza-refugees-travel-ban.html?searchResultPosition=1
 
 **Israel Invites Biden to Visit as Gaza’s Crisis Worsens Under Siege**\
-`President Biden weighed an extraordinary invitation to visit Israel as it readies a possible invasion of Gaza in response to terrorist attacks in Israeli history.`\
+`President Biden weighed an extraordinary invitation to visit Israel as it readies a possible invasion of Gaza in response to the worst terrorist attacks in Israeli history.`\
 https://nytimes.com/2023/10/16/world/middleeast/israel-biden-gaza.html?searchResultPosition=2
 
 **The Strange Decline of the Pax Americana**\
