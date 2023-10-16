@@ -22,8 +22,8 @@ https://nytimes.com/2023/10/16/business/economy/ford-uaw-strikes-tesla-toyota.ht
 `Christina Iverson, a puzzle editor for The Times, wants to answer your questions.`\
 https://nytimes.com/2023/10/16/crosswords/easy-mode-questions.html?searchResultPosition=6
 
-**Biden Weighs Trip to Israel as Conditions in Gaza Turn Dire**\
-`A presidential visit to Israel at such a critical moment would pose enormous challenges for the White House, in terms of both politics and security.`\
+**Biden Weighs the Risks of a Visit to Israel**\
+`A presidential trip to Israel at such a critical moment would pose enormous challenges for the White House, in terms of both politics and security.`\
 https://nytimes.com/2023/10/16/us/politics/biden-israel-trip.html?searchResultPosition=7
 
 **Bad Bunny Looks Back and Hunkers Down**\
