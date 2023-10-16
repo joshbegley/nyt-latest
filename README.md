@@ -1,4 +1,4 @@
-**Voices from Gaza**\
+**Voices From Gaza**\
 `As hundreds of thousands flee south from northern Gaza, we hear from two people caught in the chaos.`\
 https://nytimes.com/2023/10/16/podcasts/the-daily/gaza-israel.html?searchResultPosition=1
 
