@@ -14,7 +14,7 @@ https://nytimes.com/2023/10/16/briefing/hamas-israel-war-china-nepal-afghanistan
 `On a day when he lashed out at a federal judge in Washington, the former president asked a judge in London to let his lawsuit over the notorious Steele dossier go forward.`\
 https://nytimes.com/2023/10/16/world/europe/trump-steele-dossier-lawsuit-uk.html?searchResultPosition=4
 
-**Supreme Court Again Lets Stand Biden’s Limits on ‘Ghost Guns’**\
+**Supreme Court Again Lets Biden’s Limits on ‘Ghost Guns’ Stand**\
 `After the justices temporarily revived the regulations in August by a 5-to-4 vote, lower courts nonetheless let two manufacturers continue to sell the weapons.`\
 https://nytimes.com/2023/10/16/us/supreme-court-biden-ghost-guns.html?searchResultPosition=5
 
