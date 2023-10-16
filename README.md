@@ -1,40 +1,40 @@
-**Here’s the latest on the war.**\
-`By Vivek Shankar`\
-https://nytimes.com/live/2023/10/16/world/israel-news-hamas-war-gaza/heres-the-latest-on-the-war?searchResultPosition=1
+**There’s Still No House Speaker. What Happens Now?**\
+`The House is entering its second week without a speaker. Here is how a new one could be elected, or how the process could go off the rails yet again.`\
+https://nytimes.com/2023/10/16/us/politics/house-speaker-whats-next.html?searchResultPosition=1
 
-**A Father, an Earthquake and the Desperate Search for a Missing Son**\
-`Over a week since a major earthquake decimated his village in northwest Afghanistan, Noor Ahmad is on a harrowing hunt to find his 5-year-old.`\
-https://nytimes.com/2023/10/16/world/asia/afghanistan-earthquakes.html?searchResultPosition=2
+**I Saw What Happened to America’s Postwar Plans for Iraq. Here’s How Israel Should Plan for Gaza.**\
+`After the lessons the United States should have learned from postwar Iraq, some advice for Israel and its plans for a post-Hamas Gaza.`\
+https://nytimes.com/2023/10/16/opinion/israel-gaza-iraq-iran.html?searchResultPosition=2
 
-**‘Kidnapped’: Fliers Express Artists’ Anguish Over Israeli Hostages**\
-`In New York and in cities around the world, stark posters with photos are bringing attention to those who were abducted by Hamas.`\
-https://nytimes.com/2023/10/16/nyregion/israeli-gaza-kidnapped-posters.html?searchResultPosition=3
+**A Legal Fight Over Whether Governors Can Deny Thousands the Vote**\
+`Three states let governors use their discretion to deny voting rights to former prisoners. Lawsuits in two of them say that violates the First Amendment.`\
+https://nytimes.com/2023/10/16/us/voting-rights-felons.html?searchResultPosition=3
 
-**The Real Estate Tycoon Whose Fingerprints Are on the Menendez Indictment**\
-`Fred Daibes, a New Jersey builder, was accused of defrauding a bank that he had founded. Prosecutors say he turned to Senator Robert Menendez for help.`\
-https://nytimes.com/2023/10/16/nyregion/menedez-bribery-nj-real-estate.html?searchResultPosition=4
+**Climate Advocacy Group Plans to Spend $80 Million on Ads to Aid Biden**\
+`Climate Power says the lack of awareness and understanding of the president’s record on environmental issues is hurting him in the polls.`\
+https://nytimes.com/2023/10/16/us/politics/climate-group-advertising-biden.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/10/16/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Judge to Consider Gag Order on Trump in Federal Election Case**\
+`Defense lawyers and prosecutors will square off over whether the former president should be restricted in what he can say about the proceedings after a string of threatening statements.`\
+https://nytimes.com/2023/10/16/us/politics/trump-gag-order-chutkan.html?searchResultPosition=5
 
-**Inside the DeSantis Campaign 2.0**\
-`After mass layoffs and a big bet on Iowa, the DeSantis campaign continues to retool its strategy.`\
-https://nytimes.com/interactive/2023/10/16/us/politics/16pol-burst-desantis-reboot.html?searchResultPosition=6
+**Can I Wear Cowboy Boots Without Looking Like I’m in Costume?**\
+`A reader wonders how to separate the western footwear from their mythology.`\
+https://nytimes.com/2023/10/16/style/cowboy-boots-fashion.html?searchResultPosition=6
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2023/10/16/crosswords/wordle-review.html?searchResultPosition=7
+**The Plot Trump Lost**\
+`What I heard when I listened to Trump for more than 30 seconds.`\
+https://nytimes.com/2023/10/16/opinion/trump-republican-primaries.html?searchResultPosition=7
 
-**Word of the Day: paragon**\
-`This word has appeared in 47 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/10/16/learning/word-of-the-day-paragon.html?searchResultPosition=8
+**Should Schools Teach Students Kitchen and Household Skills?**\
+`Classes like wood shop and home economics were once part of the school curriculum. Should they make a comeback?`\
+https://nytimes.com/2023/10/16/learning/should-schools-teach-students-kitchen-and-household-skills.html?searchResultPosition=8
 
-**What’s on TV This Week: ‘aka Mr. Chow’ and Some Spooky Movies**\
-`A new HBO documentary film premieres about a restaurateur who is also an artist. A couple of scary movies will get you into the Halloween spirit.`\
-https://nytimes.com/2023/10/16/arts/television/whats-on-tv-this-week-aka-mr-chow-and-some-spooky-movies.html?searchResultPosition=9
+**The 25 Best Restaurants in New Orleans Right Now**\
+`There’s plenty of great Creole and Cajun food, of course, but also outstanding Vietnamese, Indian and Trinbagonian cuisine.`\
+https://nytimes.com/2023/10/16/dining/best-restaurants-new-orleans.html?searchResultPosition=9
 
-**The U.S. Can Still Avoid War With China Over Taiwan**\
-`To ensure peace, America must recommit to a time-tested policy of neutrality on Taiwan.`\
-https://nytimes.com/2023/10/16/opinion/china-us-taiwan-war.html?searchResultPosition=10
+**He Called the Pope a ‘Filthy Leftist.’ Now He Wants to Be President.**\
+`Javier Milei is leading the race to be Argentina’s next president. But he is dogged by his past broadsides against a fellow countryman: Pope Francis.`\
+https://nytimes.com/2023/10/16/world/americas/javier-milei-pope-francis-argentina-election.html?searchResultPosition=10
 
