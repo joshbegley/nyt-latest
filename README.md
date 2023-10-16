@@ -1,4 +1,4 @@
-**Without supplies allowed in, the U.N. agency in Gaza says it can no longer provide aid.**\
+**Without supplies allowed in, a U.N. agency in Gaza says it can no longer provide aid.**\
 `The commissioner-general of the United Nations Relief and Works Agency said Israel’s siege of the Gaza Strip had to end “before it is too late.”`\
 https://nytimes.com/live/2023/10/15/world/israel-news-hamas-war-gaza/without-supplies-allowed-in-the-un-agency-in-gaza-says-it-can-no-longer-provide-aid?searchResultPosition=1
 
