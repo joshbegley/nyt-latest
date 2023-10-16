@@ -1,4 +1,4 @@
-**U.S. and Israeli Intelligence Focus on Hezbollah’s Next Move After Hamas Attack**\
+**U.S. and Israel Focus on Hezbollah’s Next Move After Hamas Attack**\
 `American officials said they believed the deployment of aircraft carrier strike groups has, at least for now, deterred Hezbollah from opening a new front in the war.`\
 https://nytimes.com/2023/10/16/us/politics/israel-hezbollah-us-gaza-hamas.html?searchResultPosition=1
 
