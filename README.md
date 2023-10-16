@@ -1,5 +1,5 @@
 **Community Mourns Boy Killed in Anti-Muslim Attack in Illinois**\
-`A funeral was held for a 6-year-old boy stabbed to death in suburban Chicago. Officials said the attack was motivated by hate for Muslims and over the fighting in Israel and Gaza.`\
+`A funeral was held for a 6-year-old boy stabbed to death in suburban Chicago. Officials said the attack was motivated by hate for Muslims amid the fighting in Israel and Gaza.`\
 https://nytimes.com/video/us/100000009135973/illinois-muslim-boy-funeral.html?searchResultPosition=1
 
 **In Washington, a son of Gaza keeps watch for precious messages that his parents are still alive.**\
