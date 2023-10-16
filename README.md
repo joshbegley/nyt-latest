@@ -36,5 +36,5 @@ https://nytimes.com/2023/10/16/science/deer-forest-study-penn-state.html?searchR
 
 **Yellen Assures Europe That U.S. Will Provide More Funds for Ukraine**\
 `The Treasury secretary reassured allies that the Biden administration was not backing away from Ukraine despite opposition in Congress.`\
-https://nytimes.com/2023/10/16/us/politics/yellen-europe-ukraine.html?searchResultPosition=10
+https://nytimes.com/2023/10/16/us/politics/yellen-ukraine-israel-aid.html?searchResultPosition=10
 
