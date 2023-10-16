@@ -1,4 +1,4 @@
-**Hamas Posts Hostage Video of Woman Abducted From Israeli Music Festival.**\
+**Hamas Posts Hostage Video of Woman Abducted From Israeli Music Festival**\
 `The video, of Mia Shem, 21, was the first Hamas has released of any of its nearly 200 hostages. It showed her being treated for an arm injury and speaking to the camera.`\
 https://nytimes.com/2023/10/16/world/middleeast/hamas-hostage-video-israel.html?searchResultPosition=1
 
