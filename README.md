@@ -8,7 +8,7 @@ https://nytimes.com/2023/10/16/us/elections/what-is-gag-order-trump.html?searchR
 
 **Trump has used the gag order request to raise money, characterizing it falsely in the process.**\
 `By Maggie Haberman`\
-https://nytimes.com/2023/10/16/us/elections/trump-has-used-the-gag-order-request-to-raise-money-characterizing-it-falsely-in-the-process.html?searchResultPosition=3
+https://nytimes.com/live/2023/10/16/us/trump-gag-order-election-case-news/trump-has-used-the-gag-order-request-to-raise-money-characterizing-it-falsely-in-the-process?searchResultPosition=3
 
 **The Past 12 Months in California Were Among the Wettest Ever**\
 `State officials are preparing for the possibility of another very wet winter.`\
