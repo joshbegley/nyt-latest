@@ -2,7 +2,7 @@
 `Ms. Winfrey wanted to form the independent ticket to stop Donald J. Trump, according to a forthcoming book. Mr. Romney listened to the pitch but passed on the idea, the biography says.`\
 https://nytimes.com/2023/10/16/us/politics/oprah-mitt-romney-president-trump.html?searchResultPosition=1
 
-**Israel Uses Cellphone Data to Track Northern Gaza Evacuation**\
+**Tracking Cellphone Data by Neighborhood, Israel Gauges Gaza Evacuation**\
 `The Israeli military says the tracking and the call to evacuate are to preserve as many civilian lives as possible during an expected ground invasion, even as deadly airstrikes continue.`\
 https://nytimes.com/2023/10/16/world/middleeast/gaza-invasion-israel-cellphone-data.html?searchResultPosition=2
 
