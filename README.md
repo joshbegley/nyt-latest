@@ -19,7 +19,7 @@ https://nytimes.com/2023/10/17/us/jan-6-rachel-powell-sentenced.html?searchResul
 https://nytimes.com/interactive/2023/10/17/movies/the-exorcist-50th-anniversary.html?searchResultPosition=5
 
 **Islamic Jihad, the group Israel blamed for the hospital blast, is an armed group often aligned with Hamas.**\
-`By Raja Abdulrahim`\
+`Like Hamas, the group receives support from Iran in funding and weapons.`\
 https://nytimes.com/2023/10/17/world/middleeast/islamic-jihad-gaza-hospital-israel.html?searchResultPosition=6
 
 **Israeli Strikes in Southern Gaza Prompt Palestinians to Return North**\
