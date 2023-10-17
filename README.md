@@ -14,8 +14,8 @@ https://nytimes.com/2023/10/16/us/georgia-jail-escape.html?searchResultPosition=
 `Dominic Grillo does due diligence with his New York Times debut.`\
 https://nytimes.com/2023/10/16/crosswords/daily-puzzle-2023-10-17.html?searchResultPosition=4
 
-**Iran warns that ‘multiple fronts’ will open if Israel’s Gaza attacks continue.**\
-`By Farnaz Fassihi`\
+**Iran warns of ‘multiple fronts’ if Israel’s Gaza attacks continue.**\
+`Iran’s foreign minister spoke after a whirlwind tour of allies in the region. Israel’s northern border with Lebanon is being closely monitored as the first potential flashpoint where the war could spread.`\
 https://nytimes.com/2023/10/16/world/middleeast/iran-gaza-israel-hamas.html?searchResultPosition=5
 
 **Justice Barrett Calls for Supreme Court to Adopt an Ethics Code**\
