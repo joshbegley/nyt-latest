@@ -1,40 +1,40 @@
-**In Its Second Outing, Paris+ by Art Basel Embraces Its Frenchness**\
-`The newest Basel offshoot popped up when it was least expected. Now in its sophomore edition, the fair is leaning into its location.`\
-https://nytimes.com/2023/10/17/arts/design/paris-plus-art-basel.html?searchResultPosition=1
+**The Apotheosis of Jim Jordan Is a Sight to Behold**\
+`The Republican Party is on a downward spiral of dysfunction.`\
+https://nytimes.com/2023/10/17/opinion/jim-jordan-house-speaker.html?searchResultPosition=1
 
-**Stroll, Sip and Dance Through Paris, in the Footsteps of Artistic Giants**\
-`With its beautiful parks, stunning architecture and lively cafes, the French capital has long inspired creatives. Here’s where to find the magic.`\
-https://nytimes.com/2023/10/17/arts/design/paris-artists-favorite-spots.html?searchResultPosition=2
+**In Sanliurfa, the Silk Road Meets the Stone Age**\
+`The city in southeastern Turkey resounds with music, food and culture — and echoes with more than 11,000 years of human history.`\
+https://nytimes.com/2023/10/17/travel/in-sanliurfa-the-silk-road-meets-the-stone-age.html?searchResultPosition=2
 
-**U.S. Army, Navy and Air Force Struggle for Recruits. The Marines Have Plenty.**\
-`As the other large military branches fall short of their goals despite offering signing bonuses and other incentives, the Marine Corps easily fills its ranks on swagger alone.`\
-https://nytimes.com/2023/10/17/us/marines-army-recruits.html?searchResultPosition=3
+**How Mahjong Brought Me Closer to My Mother**\
+`A game that bridges continents and generations.`\
+https://nytimes.com/2023/10/17/magazine/mahjong-family.html?searchResultPosition=3
 
-**Henry Taylor’s ‘B Side’ Is Full of Grade-A Paintings**\
-`The artist brings an energy to painting that reverberates through his exuberant yet sobering survey at the Whitney Museum.`\
-https://nytimes.com/2023/10/17/arts/design/henry-taylors-b-side-whitney.html?searchResultPosition=4
+**A Higher Monthly Payment, but Less Square Footage**\
+`Homebuilders are responding to rising interest rates with an innovation: a small house in the traditionally spacious exurbs.`\
+https://nytimes.com/2023/10/17/business/economy/small-homes-higher-mortgages.html?searchResultPosition=4
 
-**A Bit of Miami Comes to a Grand Townhouse in Paris**\
-`In its first Paris edition, Design Miami has drawn nearly 30 exhibitors. “We plan to push the boundaries in Paris a little,” an official said.`\
-https://nytimes.com/2023/10/17/arts/design/design-miami-paris-art-basel.html?searchResultPosition=5
+**Paris Cultivates a New Allure**\
+`It’s a lively time for the art world in the French capital, with new art foundations, fresh outposts for major galleries and the city’s relative affordability.`\
+https://nytimes.com/2023/10/17/arts/design/paris-art-scene-london.html?searchResultPosition=5
 
-**Three Exhibitions Explore Humans’ Ties to the Natural World**\
-`In sculptures, films and paintings, artists examine how people interact with, and often misunderstand, nature.`\
-https://nytimes.com/2023/10/17/arts/design/paris-exhibitions-nature.html?searchResultPosition=6
+**Exploring the ‘Epicenter’ of Pablo Picasso in His Drawings**\
+`It’s hard to imagine a new exhibit of the famous artist’s works could be bigger than ever. But a show at the Pompidou Center is designed to be just that.`\
+https://nytimes.com/2023/10/17/arts/design/picasso-drawings-show-pompidou.html?searchResultPosition=6
 
-**How the Art World Finally Caught Up With a Mexican Artist**\
-`Roberto Gil de Montes has painted for decades, but it wasn’t until 2020 that the global spotlight found him. His work will appear at Paris+ by Art Basel.`\
-https://nytimes.com/2023/10/17/arts/design/paris-art-basel-gil-de-montes.html?searchResultPosition=7
+**As Coal Plants Shutter, a Chance to Redevelop ‘the Gates of Hell’**\
+`Developers are combining new strategies with state and federal funds to turn decayed power plants once considered a blemish into potential assets for economic growth.`\
+https://nytimes.com/2023/10/17/business/coal-plant-redevelopment.html?searchResultPosition=7
 
-**Fall Exhibitions to See in Paris**\
-`In addition to Paris+ by Art Basel, visitors can view cityscapes, paintings that became classics and treasures from the Cathedral of Notre-Dame.`\
-https://nytimes.com/2023/10/17/arts/design/paris-fall-exhibitions.html?searchResultPosition=8
+**Why a Sculptor Was Drawn to Sewer Alligators**\
+`A Swedish artist’s creation, to be unveiled today, shows a creature that has mythic status in New York City.`\
+https://nytimes.com/2023/10/17/nyregion/sewer-alligator-sculpture.html?searchResultPosition=8
 
-**What Happens When an Artist’s Technology Becomes Obsolete?**\
-`Curators and conservators are working to save — and update — art made with aging hardware.`\
-https://nytimes.com/2023/10/17/t-magazine/technology-art-ctl-electronics.html?searchResultPosition=9
+**Longer Commutes, Shorter Lives: The Costs of Not Investing in America**\
+`For decades, spending on the future put the nation ahead of all others. What would it take to revive that spirit?`\
+https://nytimes.com/2023/10/17/magazine/us-public-investment.html?searchResultPosition=9
 
-**A Paris Dining Space With One Motto: Come Hungry**\
-`Plus: kids’ furniture, boozy desserts and more from T’s cultural compendium.`\
-https://nytimes.com/2023/10/17/t-magazine/rose-chalalai-singh-kitchen.html?searchResultPosition=10
+**Those Doritos Too Expensive? More Stores Offer Their Own Alternatives.**\
+`Retailers are expanding their own private-label food and beverage offerings, attracting customers looking for less expensive options.`\
+https://nytimes.com/2023/10/17/business/private-label-food-groceries.html?searchResultPosition=10
 
