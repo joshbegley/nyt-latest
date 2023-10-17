@@ -12,7 +12,7 @@ https://nytimes.com/2023/10/17/us/politics/mississippi-governor-race-black-voter
 
 **These Pizza-Flavored Dinner Ideas Could Make You a Hero**\
 `Five easy, extremely family-friendly ways to (sort of) eat pizza.`\
-https://nytimes.com/2023/10/17/dining/these-pizza-flavored-dinner-ideas-could-make-you-a-hero.html?searchResultPosition=4
+https://nytimes.com/2023/10/17/dining/pizza-dinner-ideas.html?searchResultPosition=4
 
 **Jordan activated a pressure campaign on reluctant Republicans.**\
 `By Karoun Demirjian`\
