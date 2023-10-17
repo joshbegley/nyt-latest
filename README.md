@@ -10,7 +10,7 @@ https://nytimes.com/2023/10/17/pageoneplus/quotation-of-the-day-hope-battles-des
 `President Biden will go to Israel.`\
 https://nytimes.com/2023/10/17/briefing/biden-israel-poland-belgium-attacks.html?searchResultPosition=3
 
-**General who heads Central Command makes a surprise visit to Israel.**\
+**The general who heads Central Command makes a surprise visit to Israel.**\
 `By Eric Schmitt`\
 https://nytimes.com/live/2023/10/16/world/israel-hamas-war-news-gaza/a-us-general-made-a-surprise-visit-to-israel?searchResultPosition=4
 
