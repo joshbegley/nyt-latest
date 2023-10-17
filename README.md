@@ -1,5 +1,5 @@
 **The explosion at a Gaza City hospital draws condemnation and condolences from world leaders.**\
-`By Liam Stack`\
+`Expressions of horror over the large loss of life predominated, while many Arab governments stressed certainty that Israel was to blame.`\
 https://nytimes.com/2023/10/17/world/middleeast/gaza-hospital-israel-reaction-protests.html?searchResultPosition=1
 
 **Jordan Struggles as Republicans Sink Deeper into Division**\
