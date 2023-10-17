@@ -2,8 +2,8 @@
 `Palestinian authorities blamed the explosion on an Israeli airstrike, but the Israeli military said a failed rocket launch by a Palestinian armed group caused the blast.`\
 https://nytimes.com/video/world/middleeast/100000009137370/gaza-hospital-explosion-israel.html?searchResultPosition=1
 
-**Blast at Gaza Hospital Shows the Perils of Biden’s Wartime Visit to Israel**\
-`The episode highlights the dangers of a trip at a volatile moment in the war between Israel and Hamas.`\
+**Biden ‘Outraged’ Over Gaza Blast as He Makes a Wartime Visit to Israel**\
+`The explosion at a hospital highlights the dangers of a trip at a volatile moment in the war between Israel and Hamas.`\
 https://nytimes.com/2023/10/17/us/politics/biden-israel-trip.html?searchResultPosition=2
 
 **Venezuela Pledges Small Steps Toward Fair Elections Next Year**\
