@@ -3,7 +3,7 @@
 https://nytimes.com/2023/10/17/us/hakeem-jeffries-house-speaker.html?searchResultPosition=1
 
 **Hundreds die in an explosion at a Gaza hospital, setting off exchanges of blame.**\
-`By Hiba Yazbek and Patrick Kingsley`\
+`By Patrick Kingsley and Hiba Yazbek`\
 https://nytimes.com/live/2023/10/17/world/gaza-news-israel-hamas-war/hundreds-die-in-an-explosion-at-a-gaza-hospital-setting-off-exchanges-of-blame?searchResultPosition=2
 
 **A Prestigious Law Firm Rescinded Job Offers for Columbia and Harvard Students, but It May Reverse Itself**\
