@@ -20,7 +20,7 @@ https://nytimes.com/2023/10/17/briefing/biden-israel-poland-belgium-attacks.html
 
 **The general who heads Central Command makes a surprise visit to Israel.**\
 `By Eric Schmitt`\
-https://nytimes.com/live/2023/10/16/world/israel-hamas-war-news-gaza/a-us-general-made-a-surprise-visit-to-israel?searchResultPosition=6
+https://nytimes.com/live/2023/10/17/world/israel-hamas-war-news-gaza/a-us-general-made-a-surprise-visit-to-israel?searchResultPosition=6
 
 **Killing of Teacher and Hamas Assault Set a Jittery France on Edge**\
 `Another attack at a school, three years after the beheading of a teacher, has heightened anxiety about a new wave of terrorism in an already scarred country.`\
