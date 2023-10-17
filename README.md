@@ -20,7 +20,7 @@ https://nytimes.com/2023/10/17/style/tiny-modern-love-stories-not-especially-bea
 
 **What if We Could All Control A.I.?**\
 `Researchers at Anthropic asked roughly 1,000 Americans to write rules for their A.I. chatbot. The results could be a model for future kinds of A.I. governance.`\
-https://nytimes.com/2023/10/17/technology/what-if-we-could-all-control-ai.html?searchResultPosition=6
+https://nytimes.com/2023/10/17/technology/ai-chatbot-control.html?searchResultPosition=6
 
 **The Verdict on John Grisham’s Sequel to ‘The Firm’**\
 `Skip “The Exchange,” our columnist advises, and pick up “The Plinko Bounce” or “The Last One” instead.`\
