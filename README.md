@@ -1,4 +1,4 @@
-**Weekly Student News Quiz:**\
+**Weekly Student News Quiz:  Israel-Hamas War, Congress, Halloween**\
 `Have you been paying attention to the news recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2023/10/17/learning/17StudentNewsQuiz.html?searchResultPosition=1
 
