@@ -8,7 +8,7 @@ https://nytimes.com/interactive/2023/10/17/movies/the-exorcist-50th-anniversary.
 
 **Islamic Jihad, the group Israel blamed for the hospital blast, is an armed group often aligned with Hamas.**\
 `By Raja Abdulrahim`\
-https://nytimes.com/live/2023/10/17/world/gaza-news-israel-hamas-war/islamic-jihad-the-group-israel-blamed-for-the-hospital-blast-is-an-armed-group-often-aligned-with-hamas?searchResultPosition=3
+https://nytimes.com/2023/10/17/world/middleeast/islamic-jihad-gaza-hospital-israel.html?searchResultPosition=3
 
 **Israeli Strikes in Southern Gaza Prompt Palestinians to Return North**\
 `People in Khan Younis questioned whether southern Gaza was safer than the north after Israel shelled cities that it told Palestinians to evacuate to.`\
