@@ -4,7 +4,7 @@ https://nytimes.com/live/2023/10/17/world/israel-hamas-war-news-gaza/heres-the-l
 
 **U.S. and Israel are working on creating safe zones for aid.**\
 `By Edward Wong`\
-https://nytimes.com/live/2023/10/16/world/israel-hamas-war-news-gaza/us-and-israel-are-working-on-creating-safe-zones-for-aid?searchResultPosition=2
+https://nytimes.com/live/2023/10/17/world/israel-hamas-war-news-gaza/us-and-israel-are-working-on-creating-safe-zones-for-aid?searchResultPosition=2
 
 **Word of the Day: métier**\
 `This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
