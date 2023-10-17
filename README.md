@@ -35,6 +35,6 @@ https://nytimes.com/live/2023/10/17/world/israel-hamas-war-news-gaza/a-us-genera
 https://nytimes.com/2023/10/17/world/europe/france-teacher-attack-hamas.html?searchResultPosition=9
 
 **Food Aid Sustains Quake-Hit Villages in Morocco, for Now**\
-`The earthquake that struck Morocco on Sept. 8 killed about 3,000 people, and disrupted food supplies for thousands in regions long subject to the vagaries of fickle seasons.`\
+`The earthquake that struck Morocco on Sept. 8 killed about 3,000 people and disrupted food supplies for thousands in regions long subject to the vagaries of fickle seasons.`\
 https://nytimes.com/2023/10/17/world/africa/morocco-quake-food.html?searchResultPosition=10
 
