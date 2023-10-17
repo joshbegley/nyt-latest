@@ -34,7 +34,7 @@ https://nytimes.com/2023/10/17/arts/television/jimmy-kimmel-trump-gag-order.html
 `By Nadav Gavrielov`\
 https://nytimes.com/live/2023/10/17/world/israel-hamas-war-news-gaza/heres-the-latest-on-the-war?searchResultPosition=9
 
-**U.S. and Israel are working on creating safe zones for aid.**\
+**The U.S. and Israel are working on creating ‘safe zones’ for aid into Gaza.**\
 `By Edward Wong`\
 https://nytimes.com/live/2023/10/17/world/israel-hamas-war-news-gaza/us-and-israel-are-working-on-creating-safe-zones-for-aid?searchResultPosition=10
 
