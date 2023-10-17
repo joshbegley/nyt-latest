@@ -31,7 +31,7 @@ https://nytimes.com/live/2023/10/17/world/israel-hamas-war-news-gaza/israeli-air
 https://nytimes.com/2023/10/17/briefing/biden-israel-gaza-war.html?searchResultPosition=8
 
 **Man, Wrongfully Imprisoned for 16 Years, Is Fatally Shot During Traffic Stop**\
-`Leonard Allan Cure, who was exonerated in 2020 after being convicted of armed robbery, was shot and killed by a sheriff’s deputy in Georgia.`\
+`Leonard Allan Cure, who was exonerated in 2020 after being convicted of armed robbery, was shot and killed by a sheriff’s deputy in Georgia after being pulled over for speeding.`\
 https://nytimes.com/2023/10/17/us/leonard-allan-cure-georgia-deputy-shooting.html?searchResultPosition=9
 
 **The Arm-Twisting, Back-Stabbing Battle for House Speaker**\
