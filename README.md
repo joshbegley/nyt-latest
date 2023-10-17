@@ -15,7 +15,7 @@ https://nytimes.com/2023/10/17/us/hakeem-jeffries-house-speaker.html?searchResul
 https://nytimes.com/live/2023/10/17/world/gaza-news-israel-hamas-war/hundreds-die-in-an-explosion-at-a-gaza-hospital-setting-off-exchanges-of-blame?searchResultPosition=4
 
 **A Prestigious Law Firm Rescinded Job Offers for Columbia and Harvard Students, but It May Reverse Itself**\
-`Davis Polk said the potential hires were members of student groups that had issued statements condemning Israel. But it also said it was reconsidering because some of the students had said they didn’t authorize the letters.`\
+`Davis Polk said the potential hires were leaders of student groups that had issued statements condemning Israel. But it also said it was reconsidering because some of the students had said they didn’t authorize the letters.`\
 https://nytimes.com/2023/10/17/business/davis-polk-employment-columbia-harvard-israel-palestine.html?searchResultPosition=5
 
 **Restaurant Review: Hakka Food Makes a Rare Appearance in Chinatown**\
