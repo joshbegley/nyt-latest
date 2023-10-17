@@ -1,40 +1,40 @@
+**Killing of Teacher and Hamas Assault Set a Jittery France on Edge**\
+`Another attack at a school, three years after the beheading of a teacher, has heightened anxiety about a new wave of terrorism in an already scarred country.`\
+https://nytimes.com/2023/10/17/world/europe/france-teacher-attack-hamas.html?searchResultPosition=1
+
+**Food Aid Sustains Quake-Hit Villages in Morocco, for Now**\
+`The earthquake that struck Morocco on Sept. 8 killed about 3,000 people, and disrupted food supplies for thousands in regions long subject to the vagaries of fickle seasons.`\
+https://nytimes.com/2023/10/17/world/africa/morocco-quake-food.html?searchResultPosition=2
+
+**A Severe Drought Pushes an Imperiled Amazon to the Brink**\
+`The rainforest holds a fifth of the world’s fresh water, but deforestation, dwindling rain and unrelenting heat are sucking it dry.`\
+https://nytimes.com/2023/10/17/climate/amazon-rainforest-drought-climate-change.html?searchResultPosition=3
+
+**Netanyahu Chose Limited Strikes Until Now. This Is His First All-Out War.**\
+`In his 15 years as Israel’s prime minister, Benjamin Netanyahu has been seen as risk-averse, avoiding open-ended military engagements and peace initiatives.`\
+https://nytimes.com/2023/10/17/world/middleeast/israel-netanyahu-gaza.html?searchResultPosition=4
+
+**These Amphibians Have a Taste for Their Mom’s Skin**\
+`Caecilians are the first amphibians known to pass on their microbiomes to their offspring.`\
+https://nytimes.com/2023/10/17/science/amphibians-microbiome-caecilians.html?searchResultPosition=5
+
 **Putin Visits China as Moscow and Beijing Reaffirm Ties**\
 `The Russian leader is likely to push for more economic support when he meets with his Chinese counterpart, Xi Jinping, on Wednesday.`\
-https://nytimes.com/2023/10/16/world/asia/putin-china-xi.html?searchResultPosition=1
+https://nytimes.com/2023/10/16/world/asia/putin-china-xi.html?searchResultPosition=6
 
 **New York’s governor heads to Israel on Tuesday.**\
 `Gov. Kathy Hochul has positioned herself as an unflinching supporter of Israel and has forcefully condemned the Hamas terrorist attacks.`\
-https://nytimes.com/2023/10/16/world/middleeast/new-york-hochul-israel.html?searchResultPosition=2
+https://nytimes.com/2023/10/16/world/middleeast/new-york-hochul-israel.html?searchResultPosition=7
 
 **China Invested $1 Trillion to Gain Global Influence. Can That Go On?**\
 `Xi Jinping enhanced China’s sway in the world by lending money for infrastructure. Now he’s collecting debts and rethinking his signature aid initiative.`\
-https://nytimes.com/2023/10/16/business/chinas-belt-and-road-initiative-bri.html?searchResultPosition=3
+https://nytimes.com/2023/10/16/business/chinas-belt-and-road-initiative-bri.html?searchResultPosition=8
 
 **Four Men, Including One Held on a Murder Charge, Escape From a Georgia Jail**\
 `The authorities, who consider the men dangerous, believe they went out a window and slipped through a fence.`\
-https://nytimes.com/2023/10/16/us/georgia-jail-escape.html?searchResultPosition=4
+https://nytimes.com/2023/10/16/us/georgia-jail-escape.html?searchResultPosition=9
 
 **Disorderly Pile**\
 `Dominic Grillo does due diligence with his New York Times debut.`\
-https://nytimes.com/2023/10/16/crosswords/daily-puzzle-2023-10-17.html?searchResultPosition=5
-
-**Iran warns of ‘multiple fronts’ if Israel’s Gaza attacks continue.**\
-`Iran’s foreign minister spoke after a whirlwind tour of allies in the region. Israel’s northern border with Lebanon is being closely monitored as the first potential flashpoint where the war could spread.`\
-https://nytimes.com/2023/10/16/world/middleeast/iran-gaza-israel-hamas.html?searchResultPosition=6
-
-**Justice Barrett Calls for Supreme Court to Adopt an Ethics Code**\
-`In a wide-ranging interview at the University of Minnesota that was disrupted temporarily by demonstrators, the justice said that ethics rules would help with greater public transparency.`\
-https://nytimes.com/2023/10/16/us/politics/supreme-court-ethics-code-amy-coney-barrett.html?searchResultPosition=7
-
-**Community Mourns Boy Killed in Anti-Muslim Attack in Illinois**\
-`A funeral was held for a 6-year-old boy stabbed to death in suburban Chicago. Officials said the attack was motivated by hate for Muslims amid the fighting in Israel and Gaza.`\
-https://nytimes.com/video/us/100000009135973/illinois-muslim-boy-funeral.html?searchResultPosition=8
-
-**In Washington, a son of Gaza keeps watch for precious messages that his parents are still alive.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2023/10/16/world/israel-hamas-war-news-gaza/in-washington-a-son-of-gaza-keeps-watch-for-precious-messages-that-his-parents-are-still-alive?searchResultPosition=9
-
-**Amid Migrant Influx, Massachusetts Will No Longer Guarantee Shelter**\
-`Gov. Maura Healey said the state would have to start limiting emergency housing for new arrivals next month, calling for “a federal solution.”`\
-https://nytimes.com/2023/10/16/us/amid-migrant-influx-massachusetts-will-no-longer-guarantee-shelter.html?searchResultPosition=10
+https://nytimes.com/2023/10/16/crosswords/daily-puzzle-2023-10-17.html?searchResultPosition=10
 
