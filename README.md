@@ -18,7 +18,7 @@ https://nytimes.com/2023/10/17/technology/what-if-we-could-all-control-ai.html?s
 `Skip “The Exchange,” our columnist advises, and pick up “The Plinko Bounce” or “The Last One” instead.`\
 https://nytimes.com/2023/10/17/books/review/new-thrillers-john-grisham-exchange.html?searchResultPosition=5
 
-**Roland Griffiths, Who Led a Renaissance in Psychedelics, Dies at 77**\
+**Roland Griffiths Is Dead at 77; Led a Renaissance in Psychedelics Research**\
 `The drugs had been the third rail of scientific inquiry. But in a landmark study, he saw them as a legitimate way to help alleviate suffering and even to reach a mystical state.`\
 https://nytimes.com/2023/10/17/obituaries/roland-griffiths-dead.html?searchResultPosition=6
 
