@@ -1,5 +1,5 @@
-**Federal Government Begins Investigation Into Trenton Police**\
-`Officials reported receiving “serious and credible” reports of officers in New Jersey’s capital using improper force and illegally searching pedestrians and drivers.`\
+**Police Use of Force in New Jersey Capital Draws Justice Dept. Scrutiny**\
+`Officials said they had received “serious and credible” reports of officers in Trenton using improper force and illegally searching pedestrians and drivers.`\
 https://nytimes.com/2023/10/17/nyregion/trenton-police-federal-investigation.html?searchResultPosition=1
 
 **Cher on Her First Christmas LP, a New Beau and 25 Years of ‘Believe’**\
