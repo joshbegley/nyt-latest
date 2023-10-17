@@ -16,7 +16,7 @@ https://nytimes.com/2023/10/17/arts/music/carla-bley-dead.html?searchResultPosit
 
 **United Airlines to Change Its Boarding Process, a Win for Window Seats**\
 `The airline said in an internal memo that it would board economy passengers with window seats before others in economy to save time.`\
-https://nytimes.com/2023/10/17/us/united-airlines-boarding-window-seats.html?searchResultPosition=5
+https://nytimes.com/2023/10/17/business/united-airlines-boarding-window-seats.html?searchResultPosition=5
 
 **Police Use of Force in New Jersey Capital Draws Justice Dept. Scrutiny**\
 `Officials said they had received “serious and credible” reports of officers in Trenton using improper force and illegally searching pedestrians and drivers.`\
