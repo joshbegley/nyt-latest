@@ -1,6 +1,6 @@
 **The explosion at a Gaza City hospital draws condemnation and condolences from world leaders.**\
 `By Liam Stack`\
-https://nytimes.com/live/2023/10/17/world/gaza-news-israel-hamas-war/gaza-hospital-israel-reaction-protests?searchResultPosition=1
+https://nytimes.com/2023/10/17/world/middleeast/gaza-hospital-israel-reaction-protests.html?searchResultPosition=1
 
 **Jordan Struggles as Republicans Sink Deeper into Division**\
 `Representative Jim Jordan’s initial defeat left the man once branded a “legislative terrorist” pressing to cut the kind of deals he has long railed against.`\
