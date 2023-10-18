@@ -6,8 +6,8 @@ https://nytimes.com/live/2023/10/17/world/gaza-news-israel-hamas-war/a-gaza-prof
 `Investigators, who initially discovered the remains of 115 people at the funeral home, had been drawn by a foul odor. The authorities expect to begin notifying relatives within several days.`\
 https://nytimes.com/2023/10/17/us/colorado-funeral-home-bodies-found.html?searchResultPosition=2
 
-**China’s Economy Grew More Than Expected Over the Summer**\
-`The government invested heavily on infrastructure, state-owned banks financed a boom in factory construction and consumers spent more, but the housing sector stumbled.`\
+**China’s Economy Gets a Boost From Beijing, but Housing Woes Persist**\
+`The government invested heavily in infrastructure, state banks financed factory construction and consumers spent more, but real estate suffered.`\
 https://nytimes.com/2023/10/17/business/china-gdp-q3.html?searchResultPosition=3
 
 **Kind of Belt**\
