@@ -1,5 +1,5 @@
 **Hundreds Reported Killed in Blast at a Gaza Hospital**\
-`With President Biden about to arrive in Israel, Hamas and Israel blamed each other for the explosion that devastated the hospital, where people had sought shelter from Israeli bombing.`\
+`With President Biden about to arrive in Israel, Palestinians and Israelis blamed each other for the explosion that devastated the hospital, where people had sought shelter from Israeli bombing.`\
 https://nytimes.com/2023/10/17/world/middleeast/gaza-hospital-explosion-israel.html?searchResultPosition=1
 
 **The explosion at a Gaza City hospital draws condemnation and condolences from world leaders.**\
