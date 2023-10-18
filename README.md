@@ -1,5 +1,5 @@
 **As Speaker Chaos Grows, so Does Talk of Empowering McHenry**\
-`Several lawmakers were discussing granting the Patrick McHenry, a North Carolina Republican acting as temporary speaker, the power to run the House until a permanent speaker is chosen.`\
+`Several lawmakers were discussing granting Patrick McHenry, a North Carolina Republican acting as temporary speaker, the power to run the House until a permanent speaker is chosen.`\
 https://nytimes.com/2023/10/18/us/politics/patrick-mchenry-house-speaker.html?searchResultPosition=1
 
 **Jordan took two steps forward, four steps back in his bid for the speakership.**\
