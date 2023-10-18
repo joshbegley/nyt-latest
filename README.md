@@ -1,5 +1,5 @@
 **About 300 protesters pleading for a cease-fire were arrested on Capitol Hill, organizers say.**\
-`By Ephrat Livni`\
+`Rallies over the Israel-Hamas war have continued to be held across the country and in world capitals.`\
 https://nytimes.com/2023/10/18/world/middleeast/protest-israel-hamas-ceasefire-congress.html?searchResultPosition=1
 
 **Trump Endorses Gov. Jim Justice in West Virginia Senate Race**\
