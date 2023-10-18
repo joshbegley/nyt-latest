@@ -1,6 +1,6 @@
 **About 300 protesters pleading for a cease-fire were arrested on Capitol Hill, organizers say.**\
 `By Ephrat Livni`\
-https://nytimes.com/live/2023/10/18/world/israel-hamas-war-biden-gaza/protest-israel-hamas-ceasefire-congress?searchResultPosition=1
+https://nytimes.com/2023/10/18/world/middleeast/protest-israel-hamas-ceasefire-congress.html?searchResultPosition=1
 
 **Trump Endorses Gov. Jim Justice in West Virginia Senate Race**\
 `The endorsement is a blow to the governor’s rival for the Republican nomination as the Democrat, Senator Joe Manchin III, weighs whether to seek re-election.`\
