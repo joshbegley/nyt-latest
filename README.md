@@ -1,40 +1,40 @@
-**In This Exhibition, Gender Meets Climate Activism. It’s a Lot.**\
-`A sprawling show at the Barbican Art Gallery in London presents works under the banner of “ecofeminism,” linking women’s oppression with humanity’s destruction of nature.`\
-https://nytimes.com/2023/10/18/arts/design/ecofeminism-barbican.html?searchResultPosition=1
+**If You’ve Ever Heard a Voice That Wasn’t There, This Could Be Why**\
+`With a ghostly finger in a lab, researchers coaxed people to hear phantom voices.`\
+https://nytimes.com/2023/10/18/science/hearing-voices-hallucination-robot.html?searchResultPosition=1
 
-**Here’s the latest on the war.**\
-`By John Yoon`\
-https://nytimes.com/live/2023/10/18/world/israel-hamas-war-biden-gaza/biden-arrives-israel?searchResultPosition=2
+**The Landlords of Social Media Seem Happy to Play the Villain**\
+`Why are property owners on social media crowing about the least lovable parts of their job?`\
+https://nytimes.com/2023/10/18/magazine/tiktok-landlords-villians.html?searchResultPosition=2
 
-**Late Night Wastes No Time Jumping on Jim Jordan’s Troubles**\
-`The guest host of “The Daily Show,” Michael Kosta, likened Congress to Mitch McConnell on Tuesday: “totally frozen, and no one knows how to fix it.”`\
-https://nytimes.com/2023/10/18/arts/television/late-night-jim-jordan.html?searchResultPosition=3
+**Adapting ‘All the Light We Cannot See’ for TV, and the Blind**\
+`In a new Netflix mini-series, the two actresses playing the Pulitzer Prize-winning novel’s protagonist, are blind, just like the character.`\
+https://nytimes.com/2023/10/18/arts/television/all-the-light-we-cannot-see-adaptation.html?searchResultPosition=3
 
-**U.K. Inflation, Unchanged at 6.7 Percent, Ends String of Declines**\
-`A small drop in food prices in September was offset by rising costs for gasoline and diesel.`\
-https://nytimes.com/2023/10/18/business/uk-inflation-september.html?searchResultPosition=4
+**Jacqueline Woodson and Amber McBride Look Backward to Look Forward**\
+`“Remember Us” recalls the fires of 1970s Bushwick. “Gone Wolf” begins in a 2111 Southern breakaway nation after a second Civil War.`\
+https://nytimes.com/2023/10/18/books/review/jacqueline-woodson-remember-us-amber-mcbride-gone-wolf.html?searchResultPosition=4
 
-**Smaller Classes? At Elite Schools, Some Parents Say ‘No Thanks.’**\
-`A new law to reduce class size in New York City has large support among families, but early tensions could signal a turbulent political road ahead.`\
-https://nytimes.com/2023/10/18/nyregion/nyc-schools-class-size.html?searchResultPosition=5
+**Letting a Thousand Drones Rise on a Saturday in Central Park**\
+`A public art event based on a murmuration of starlings will resemble a silent display of fireworks, organizers say.`\
+https://nytimes.com/2023/10/18/nyregion/letting-a-thousand-drones-rise-on-a-saturday-in-central-park.html?searchResultPosition=5
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/10/18/crosswords/spelling-bee-forum.html?searchResultPosition=6
+**At the de Young, a Rousing Showcase for Bay Area Artists**\
+`A call for art went out. Almost 8,000 pieces were submitted. The 883 chosen works make up a dizzying, bursting-at-the-seams extravaganza of an exhibition.`\
+https://nytimes.com/2023/10/18/arts/design/de-young-museum-open-exhibition.html?searchResultPosition=6
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2023/10/18/crosswords/connections-companion.html?searchResultPosition=7
+**Tote Bags for Those Who Want to Have It All**\
+`Roomy, neutral accessories that go with everything.`\
+https://nytimes.com/2023/10/18/t-magazine/neutral-tote-bags.html?searchResultPosition=7
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2023/10/18/crosswords/wordle-review.html?searchResultPosition=8
+**A Museum Takes a New, Unvarnished Look at a Massacre**\
+`A revised exhibit about the 1864 Sand Creek Massacre in Colorado drew heavily on the views of members of the Cheyenne and Arapaho tribes.`\
+https://nytimes.com/2023/10/18/arts/design/colorado-sand-creek-massacre.html?searchResultPosition=8
 
-**The Mall**\
-`Love ’em or hate ’em? What’s your relationship to the shopping mall?`\
-https://nytimes.com/2023/10/18/learning/the-mall.html?searchResultPosition=9
+**Making Connections With the Unseen**\
+`At the American Museum of Natural History, “Invisible Worlds” immerses visitors in systems and experiences hidden from the human eye.`\
+https://nytimes.com/2023/10/18/arts/design/natural-history-museum-invisible-worlds.html?searchResultPosition=9
 
-**After losing his parents, a son carries on his father’s sense of optimism.**\
-`By Emma Goldberg`\
-https://nytimes.com/live/2023/10/18/world/israel-hamas-war-biden-gaza/after-losing-his-parents-a-son-carries-on-his-fathers-sense-of-optimism?searchResultPosition=10
+**Exhibitions Meant to Bridge Global Differences**\
+`Shows in New York, Cleveland and Los Angeles aim to educate the public about less-understood parts of the world.`\
+https://nytimes.com/2023/10/18/arts/design/museum-shows-global-south.html?searchResultPosition=10
 
