@@ -7,7 +7,7 @@ https://nytimes.com/live/2023/10/17/world/gaza-news-israel-hamas-war/a-gaza-prof
 https://nytimes.com/2023/10/17/us/colorado-funeral-home-bodies-found.html?searchResultPosition=2
 
 **China’s Economy Grew More Than Expected Over the Summer**\
-`The government spent heavily on infrastructure, state-owned banks financed a boom in factory construction and consumers spent more, but the housing sector stumbled.`\
+`The government invested heavily on infrastructure, state-owned banks financed a boom in factory construction and consumers spent more, but the housing sector stumbled.`\
 https://nytimes.com/2023/10/17/business/china-gdp-q3.html?searchResultPosition=3
 
 **Kind of Belt**\
