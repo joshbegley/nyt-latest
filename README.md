@@ -30,7 +30,7 @@ https://nytimes.com/2023/10/18/arts/music/taylor-swift-movie-bad-bunny-popcast.h
 `The access point, where aid trucks are waiting to enter from Egypt and people are waiting to leave, is the only land crossing into Gaza that is not controlled by Israel.`\
 https://nytimes.com/live/2023/10/18/world/israel-hamas-war-biden-gaza/gaza-rafah-border-crossing-egypt?searchResultPosition=8
 
-**Humanitarian aid has been amassing at the Egypt-Gaza crossing.**\
+**Humanitarian aid is at Egypt’s border, but it isn’t clear when it can go to Gaza.**\
 `By Matina Stevis-Gridneff, Vivian Yee and Mourad Hijazy`\
 https://nytimes.com/2023/10/18/world/middleeast/humanitarian-aid-has-been-amassing-at-the-egypt-gaza-crossing.html?searchResultPosition=9
 
