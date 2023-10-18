@@ -30,7 +30,7 @@ https://nytimes.com/2023/10/18/learning/the-mall.html?searchResultPosition=7
 `By Emma Goldberg`\
 https://nytimes.com/live/2023/10/18/world/israel-hamas-war-biden-gaza/after-losing-his-parents-a-son-carries-on-his-fathers-sense-of-optimism?searchResultPosition=8
 
-**Here’s the latest on the war.**\
+**Here’s what to watch for on Wednesday.**\
 `By Nadav Gavrielov`\
 https://nytimes.com/live/2023/10/18/world/israel-hamas-war-biden-gaza/heres-the-latest-on-the-war?searchResultPosition=9
 
