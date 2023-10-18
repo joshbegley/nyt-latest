@@ -1,5 +1,5 @@
 **With Putin by His Side, Xi Outlines His Vision of a New World Order**\
-`China’s close ties with Russia in countering American dominance points to a geopolitical rift that could shape the conflict between Israel and Hamas.`\
+`China’s close ties with Russia in countering American dominance point to a geopolitical rift that could shape the conflict between Israel and Hamas.`\
 https://nytimes.com/2023/10/18/world/asia/putin-xi-china-russia.html?searchResultPosition=1
 
 **Xi Jinping Greets Vladimir Putin at the Belt and Road Forum**\
