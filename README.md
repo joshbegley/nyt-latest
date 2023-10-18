@@ -6,7 +6,7 @@ https://nytimes.com/2023/10/18/briefing/gaza-israel-war-china-xi-putin-ukraine-w
 `The world has changed considerably since 1998. In this quiz, try to identify some of the ways our culture has evolved in that time.`\
 https://nytimes.com/interactive/2023/10/18/learning/quiz-25-anniversary-knowledge.html?searchResultPosition=2
 
-**Tracking Tropical Storm Norma**\
+**Tracking Hurricane Norma**\
 `See the likely path and wind arrival times for Norma.`\
 https://nytimes.com/interactive/2023/world/americas/norma-map-path-tracker.html?searchResultPosition=3
 
