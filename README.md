@@ -18,8 +18,8 @@ https://nytimes.com/interactive/2023/world/americas/norma-map-path-tracker.html?
 `In “The Sisterhood,” the journalist Liza Mundy chronicles the frustrations, triumphs and compromises of the women of the C.I.A.`\
 https://nytimes.com/2023/10/18/books/review/the-sisterhood-liza-mundy.html?searchResultPosition=5
 
-**Tesla’s Price Cuts Lowered Its Profit**\
-`The carmaker made less money in the third quarter as it cut car prices to attract buyers amid stronger competition.`\
+**Tesla’s Profits Plunge 44% After Big Price Cuts**\
+`The automaker reported a sharp drop in profits in the third quarter after slashing car prices by around 25 percent in an attempt to compete.`\
 https://nytimes.com/2023/10/18/business/tesla-third-quarter-earnings.html?searchResultPosition=6
 
 **Netflix Adds 9 Million Subscribers in Third Quarter**\
