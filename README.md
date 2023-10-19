@@ -23,7 +23,7 @@ https://nytimes.com/2023/10/19/us/homeless-parking-lots.html?searchResultPositio
 https://nytimes.com/2023/10/19/world/europe/jack-the-ripper-tours-london.html?searchResultPosition=6
 
 **Kathy Hochul, Grieving Her Father’s Sudden Death, Presses On in Israel**\
-`The governor’s father died of a brain hemorrhage he suffered in Florida while she was aboard a flight to Israel, to show support for the nation during wartime.`\
+`The governor’s father died of a brain hemorrhage he suffered in Florida while she was aboard a flight to Israel, on a trip to show support for the nation during wartime.`\
 https://nytimes.com/2023/10/19/nyregion/kathy-hochul-israel-father-death.html?searchResultPosition=7
 
 **‘I Had Been Exploited:’ Takeaways From Britney Spears’s Memoir**\
