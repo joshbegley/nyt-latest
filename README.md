@@ -2,7 +2,7 @@
 `By Monika Pronczuk`\
 https://nytimes.com/live/2023/10/19/world/israel-hamas-war-gaza-news/gaza-internet-phone-service?searchResultPosition=1
 
-**White Judge Who Pointed Gun at Black Man in Court Is Removed From Bench**\
+**White Judge Who Pointed Gun at Black Man in Court Is Ousted**\
 `The upstate New York judge bragged about the episode and used racist tropes to describe the man he pointed the gun at, an appeals court found.`\
 https://nytimes.com/2023/10/19/nyregion/judge-removed-loaded-gun.html?searchResultPosition=2
 
