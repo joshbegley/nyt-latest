@@ -1,40 +1,40 @@
+**How the G.O.P. Speaker Mess Has Divided N.Y. House Republicans**\
+`In the fight over Representative Jim Jordan’s bid for speaker, moderate Republicans are racing to outrun the chaos their party unleashed.`\
+https://nytimes.com/2023/10/19/nyregion/jordan-speaker-ny-republicans.html?searchResultPosition=1
+
+**Don’t Call These Clothes Minimalist. Or Quiet Luxury for That Matter.**\
+`Warning: The versatile, sumptuous pieces at Attersee may telegraph “stealth wealth,” but that’s not the point.`\
+https://nytimes.com/2023/10/19/style/dont-call-these-clothes-minimalist-or-quiet-luxury-for-that-matter.html?searchResultPosition=2
+
+**Exercise**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2023/10/19/learning/exercise.html?searchResultPosition=3
+
+**How 100,000 Apartments in New York City Disappeared**\
+`An analysis finds the city has lost more than 100,000 homes through smaller apartments being combined into larger ones.`\
+https://nytimes.com/2023/10/19/nyregion/nyc-apartments-housing-crisis.html?searchResultPosition=4
+
+**What’s Driving New York’s Parking Problem? A Reporter Explains.**\
+`Sarah Maslin Nir, a journalist for the Metro section, set out to learn about the forces fueling the city’s scarcity of parking spots.`\
+https://nytimes.com/2023/10/19/insider/new-york-city-parking.html?searchResultPosition=5
+
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2023/10/19/crosswords/connections-companion.html?searchResultPosition=6
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/10/19/crosswords/spelling-bee-forum.html?searchResultPosition=7
+
 **Here’s the latest on the war.**\
 `By Nadav Gavrielov`\
-https://nytimes.com/live/2023/10/19/world/israel-hamas-war-gaza-news/heres-the-latest-on-the-war?searchResultPosition=1
+https://nytimes.com/live/2023/10/19/world/israel-hamas-war-gaza-news/heres-the-latest-on-the-war?searchResultPosition=8
 
 **Word of the Day: oeuvre**\
 `This word has appeared in 112 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/10/19/learning/word-of-the-day-oeuvre.html?searchResultPosition=2
+https://nytimes.com/2023/10/19/learning/word-of-the-day-oeuvre.html?searchResultPosition=9
 
 **Jimmy Kimmel Recaps Biden’s Big Day in Israel**\
 `Kimmel joked that President Biden and Israel “go way back”: “You know how Moses parted the Red Sea? Joe was the guy who dared him to do it.”`\
-https://nytimes.com/2023/10/19/arts/television/jimmy-kimmel-joe-biden.html?searchResultPosition=3
-
-**Rite Aid Is Closing 154 Stores as It Starts to Shed Debt**\
-`The pharmacy chain, once the largest in the United States, detailed a batch of store closures in a bankruptcy court filing.`\
-https://nytimes.com/2023/10/19/business/rite-aid-store-closings.html?searchResultPosition=4
-
-**State Department Official Resigns Over Arms Transfers to Israel**\
-`Josh Paul spent more than 11 years as the director of congressional and public affairs at the bureau that oversees arms transfers to foreign nations.`\
-https://nytimes.com/2023/10/19/us/state-department-official-resigns-israel-arms.html?searchResultPosition=5
-
-**Why South Korea Has So Many Protests, and What That Means**\
-`Part rock concert, part revival meeting, the rallies reveal a country increasingly polarized over its leader, Yoon Suk Yeol.`\
-https://nytimes.com/2023/10/19/world/asia/south-korea-protests.html?searchResultPosition=6
-
-**Thursday Briefing**\
-`President Biden’s wartime visit to Israel.`\
-https://nytimes.com/2023/10/19/briefing/biden-israel-republicans-xi-jinping.html?searchResultPosition=7
-
-**Country Garden, Facing Debt Deadline, Says Executives Have Not Left China**\
-`The company, one of China’s biggest property developers, took the unusual step of stating that the company’s founder and its chairwoman were “working normally.”`\
-https://nytimes.com/2023/10/19/business/country-garden-bond-payment.html?searchResultPosition=8
-
-**The 5 Clones in Argentina’s Election**\
-`Javier Milei, a far-right libertarian, might soon be Argentina’s next president. He credits his cloned “four-legged children.”`\
-https://nytimes.com/2023/10/19/world/americas/argentina-election-javier-milei.html?searchResultPosition=9
-
-**Ukraine’s Economy Starts to Rebound as It Adapts to War**\
-`Economists predict a return to growth, but many challenges lie ahead, including the rebuilding of war-torn cities and labor shortages.`\
-https://nytimes.com/2023/10/19/business/ukraine-economy-war.html?searchResultPosition=10
+https://nytimes.com/2023/10/19/arts/television/jimmy-kimmel-joe-biden.html?searchResultPosition=10
 
