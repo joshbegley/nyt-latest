@@ -30,7 +30,7 @@ https://nytimes.com/live/2023/10/18/world/israel-hamas-war-biden-gaza/an-iranian
 `Jim Pillen said in a radio interview that he refused to read an investigation into his hog farms by a reporter who he said is from “Communist China.”`\
 https://nytimes.com/2023/10/18/us/jim-pillen-nebraska-reporter-china.html?searchResultPosition=8
 
-**Families of Israeli hostages are split on a possible ground invasion of Gaza.**\
+**Families of Hamas Hostages Split on Invasion of Gaza**\
 `The families are torn between wanting their loved ones returned safely at any cost and concern about more loss of life.`\
 https://nytimes.com/2023/10/18/world/middleeast/israel-hamas-hostages-gaza-invasion.html?searchResultPosition=9
 
