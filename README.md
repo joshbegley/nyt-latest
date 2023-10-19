@@ -26,15 +26,15 @@ https://nytimes.com/interactive/2023/10/19/t-magazine/greats-latifah-bening-prad
 `With a long-held dream of becoming a New Yorker, an American expatriate in London trusted her gut, and her broker, to find an affordable place remotely. Here’s how she did it.`\
 https://nytimes.com/interactive/2023/10/19/realestate/19hunt-pyne.html?searchResultPosition=7
 
-**How Henry Taylor Transformed the Way We Look at Ourselves**\
-`The figurative painter, a favorite of Barack Obama’s and Kendrick Lamar’s, has made portraiture the dominant mode of art in our era.`\
-https://nytimes.com/interactive/2023/10/19/t-magazine/henry-taylor-art.html?searchResultPosition=8
-
 **How Miuccia Prada Reinvented Fashion**\
 `The designer reimagined the industry’s relationship to art — and forever transformed what the world considers beautiful.`\
-https://nytimes.com/interactive/2023/10/19/t-magazine/miuccia-prada-fashion.html?searchResultPosition=9
+https://nytimes.com/interactive/2023/10/19/t-magazine/miuccia-prada-fashion.html?searchResultPosition=8
 
-**Queen Latifah Redefined Being a Multihyphenate — and Made It Look Easy**\
-`A woman had never before been a hip-hop star, an actress, a producer and the face of mainstream America all at once.`\
-https://nytimes.com/interactive/2023/10/19/t-magazine/queen-latifah.html?searchResultPosition=10
+**How Henry Taylor Transformed the Way We Look at Ourselves**\
+`The figurative painter, a favorite of Barack Obama’s and Kendrick Lamar’s, has made portraiture the dominant mode of art in our era.`\
+https://nytimes.com/interactive/2023/10/19/t-magazine/henry-taylor-art.html?searchResultPosition=9
+
+**Annette Bening Knows a Thing or Two About Difficult Women**\
+`Even though the actress has been celebrated for playing them, it’s the difficulty of the roles themselves that really interests her.`\
+https://nytimes.com/interactive/2023/10/19/t-magazine/annette-bening-nyad-netflix.html?searchResultPosition=10
 
