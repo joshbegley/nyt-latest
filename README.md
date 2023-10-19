@@ -1,5 +1,5 @@
 **Laphonza Butler Will Not Run for Senate in 2024**\
-`Ms. Butler, who was appointed less than three weeks ago by Gov. Gavin Newsom, said in an interview that she had realized “this is not the greatest use of my voice.”`\
+`Ms. Butler, who was appointed by Gov. Gavin Newsom just weeks ago to fill Dianne Feinstein’s seat, said she had realized that “this is not the greatest use of my voice.”`\
 https://nytimes.com/2023/10/19/us/laphonza-butler-senate-california.html?searchResultPosition=1
 
 **Malaysian Prisoners Reach Plea Agreements at Guantánamo Bay**\
