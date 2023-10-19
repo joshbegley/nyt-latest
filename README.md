@@ -34,7 +34,7 @@ https://nytimes.com/2023/10/19/world/europe/israel-biden-netanyahu-hamas.html?se
 `The city’s standing has plunged since the pandemic. Some wealthy business leaders have a $4 million plan to rehab its image.`\
 https://nytimes.com/2023/10/19/us/san-francisco-ad-campaign.html?searchResultPosition=9
 
-**Jordan Is Said to Endorse Temporary Speaker Plan, Holding Off on Third Vote**\
-`The hard-line Republican from Ohio has run headlong into opposition from a bloc of mainstream G.O.P. holdouts.`\
+**Jordan Endorses Temporary Speaker Plan, Holding Off on Third Vote**\
+`The hard-line Republican backed empowering Representative Patrick McHenry on a temporary basis after running into opposition from a bloc of mainstream G.O.P. holdouts.`\
 https://nytimes.com/2023/10/19/us/politics/house-speaker-jim-jordan.html?searchResultPosition=10
 
