@@ -18,8 +18,8 @@ https://nytimes.com/2023/10/19/nyregion/judge-removed-loaded-gun.html?searchResu
 `The museum in Amsterdam stopped giving out Pikachu cards that were part of a special collaboration after extreme demand.`\
 https://nytimes.com/2023/10/19/world/europe/van-gogh-museum-pokemon.html?searchResultPosition=5
 
-**Suspect in Subway Shoving Had Broken a Man’s Jaw Minutes Before**\
-`Officers were searching for the suspect, Sabir Jones, in Manhattan stations on Thursday. The woman he shoved was in critical condition.`\
+**Suspect in Manhattan Subway Shoving Is Arrested in Newark**\
+`The suspect, Sabir Jones, was arrested near the PATH station in New Jersey. The woman he had shoved was in critical condition.`\
 https://nytimes.com/2023/10/19/nyregion/subway-shove-suspect-hunt.html?searchResultPosition=6
 
 **Biden’s Aid, and Pointed Advice, to Israel**\
