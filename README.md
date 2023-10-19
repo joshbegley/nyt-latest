@@ -16,7 +16,7 @@ https://nytimes.com/2023/10/19/books/review/britney-spears-woman-in-me.html?sear
 
 **U.S. officials say the death toll from the Gaza hospital blast is between 100-300, according to early assessments.**\
 `By Julian E. Barnes`\
-https://nytimes.com/live/2023/10/19/world/israel-hamas-war-gaza-news/us-officials-say-the-death-toll-from-the-gaza-hospital-blast-is-between-100-300-according-to-early-assessments?searchResultPosition=5
+https://nytimes.com/2023/10/19/world/middleeast/us-officials-say-the-death-toll-from-the-gaza-hospital-blast-is-between-100-300-according-to-early-assessments.html?searchResultPosition=5
 
 **Supreme Court Delays Efforts to Redraw Louisiana Voting Map**\
 `The Louisiana dispute is one of several voting rights cases churning through the courts that challenge a state’s congressional map.`\
