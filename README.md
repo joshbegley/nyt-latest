@@ -1,40 +1,40 @@
-**Russia Detains a U.S. Journalist**\
-`Alsu Kurmasheva, who holds dual U.S.-Russian citizenship and works in Prague, was charged with failing to register as a foreign agent after going to Russia for family reasons.`\
-https://nytimes.com/2023/10/19/world/europe/russia-journalist-detain-alsu-kurmasheva.html?searchResultPosition=1
+**Helen Garner Keeps ‘Paradise Lost’ and a Bible Close at Hand**\
+`“You never know when you might need to read something coolheaded about death,” says the author of “The Children’s Bach” and “This House of Grief,” which have just been reissued, “or be reminded of angels and other majestic beings.”`\
+https://nytimes.com/2023/10/19/books/review/helen-garner-interview.html?searchResultPosition=1
 
-**How the G.O.P. Speaker Mess Has Divided N.Y. House Republicans**\
-`In the fight over Representative Jim Jordan’s bid for speaker, moderate Republicans are racing to outrun the chaos their party unleashed.`\
-https://nytimes.com/2023/10/19/nyregion/jordan-speaker-ny-republicans.html?searchResultPosition=2
+**An Artist Pushes Back Against Cultural Colonialism**\
+`Yinka Shonibare, in a New York show, uses African styles and traditions to highlight their integral role in the foundation of modern art.`\
+https://nytimes.com/2023/10/19/arts/design/yinka-shonibare-cultural-colonialism.html?searchResultPosition=2
 
-**Don’t Call These Clothes Minimalist. Or Quiet Luxury for That Matter.**\
-`Warning: The versatile, sumptuous pieces at Attersee may telegraph “stealth wealth,” but that’s not the point.`\
-https://nytimes.com/2023/10/19/style/dont-call-these-clothes-minimalist-or-quiet-luxury-for-that-matter.html?searchResultPosition=3
+**The Messy Energy of Turning Life into Art**\
+`The veteran performance artist Barbara T. Smith has a sweeping show at the Institute of Contemporary Art, Los Angeles.`\
+https://nytimes.com/2023/10/19/arts/design/barbara-smith-los-angeles.html?searchResultPosition=3
 
-**Exercise**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2023/10/19/learning/exercise.html?searchResultPosition=4
+**Microbrand Watches Are the Focus of a New Fair in Prague**\
+`Organizers of the December event in the Czech capital want to attract local visitors as well as some of the city’s many holiday tourists.`\
+https://nytimes.com/2023/10/19/fashion/watches-microbrands-fair-prague.html?searchResultPosition=4
 
-**How 100,000 Apartments in New York City Disappeared**\
-`An analysis finds the city has lost more than 100,000 homes through smaller apartments being combined into larger ones.`\
-https://nytimes.com/2023/10/19/nyregion/nyc-apartments-housing-crisis.html?searchResultPosition=5
+**A Visionary Brazilian Artist Is Rediscovered**\
+`A wave of new interest in the artist of Indigenous descent known as Chico shines a light on his dreamlike paintings of animals and the issues of authorship and autonomy that affected his life.`\
+https://nytimes.com/2023/10/19/arts/design/brazilian-artist-chico-exhibition.html?searchResultPosition=5
 
-**What’s Driving New York’s Parking Problem? A Reporter Explains.**\
-`Sarah Maslin Nir, a journalist for the Metro section, set out to learn about the forces fueling the city’s scarcity of parking spots.`\
-https://nytimes.com/2023/10/19/insider/new-york-city-parking.html?searchResultPosition=6
+**Reframing the American Landscape**\
+`In her largest New York museum show, Kay WalkingStick, an 88-year-old Cherokee painter, reminds us that “we’re all living on Indian Territory.”`\
+https://nytimes.com/2023/10/19/arts/design/kay-walkingstick-american-landscape.html?searchResultPosition=6
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2023/10/19/crosswords/connections-companion.html?searchResultPosition=7
+**In Santa Fe, a New Museum Brings the Local Art Scene Up to Date**\
+`The first show at the new Vladem Contemporary, which opened last month, spotlights works from 1970 to 2000 and centers on New Mexico artists.`\
+https://nytimes.com/2023/10/19/arts/design/santa-fe-museum-vladem.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/10/19/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**Vacheron Constantin and the Met Forge a Partnership**\
+`Educational programs are the focus of the agreement between the brand and the Metropolitan Museum of Art, but watches might come along, too.`\
+https://nytimes.com/2023/10/19/fashion/watches-vacheron-constantin-metropolitan-museum-of-art.html?searchResultPosition=8
 
-**Here’s the latest on the war.**\
-`By Nadav Gavrielov`\
-https://nytimes.com/live/2023/10/19/world/israel-hamas-war-gaza-news/heres-the-latest-on-the-war?searchResultPosition=9
+**A South Florida Museum Showcases Burgers, Fries and Beers, Made of Glass**\
+`An exhibit at the Lowe Art Museum will feature fun and nostalgic works by the artist John Miller. Just don’t take a bite.`\
+https://nytimes.com/2023/10/19/arts/design/miami-lowe-art-museum-john-miller-glass.html?searchResultPosition=9
 
-**Word of the Day: oeuvre**\
-`This word has appeared in 112 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/10/19/learning/word-of-the-day-oeuvre.html?searchResultPosition=10
+**When Courtly Love Goes Wrong, It’s Deadly**\
+`In “Hunting the Falcon,” the historians John Guy and Julia Fox take a fresh look at an infamous Tudor marriage — and find there is indeed more to know.`\
+https://nytimes.com/2023/10/19/books/review/hunting-the-falcon-john-guy-julia-fox.html?searchResultPosition=10
 
