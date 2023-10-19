@@ -1,6 +1,6 @@
 **‘I Had Been Exploited:’ Takeaways From Britney Spears’s Memoir**\
 `The pop star’s new book, “The Woman in Me,” recounts her rise to fame, struggles that became tabloid fodder and her efforts to escape a conservatorship that long governed her life.`\
-https://nytimes.com/2023/10/19/arts/music/britney-spears-the-woman-in-me-memoir.html?searchResultPosition=1
+https://nytimes.com/2023/10/19/arts/music/britney-spears-memoir-takeaways.html?searchResultPosition=1
 
 **Today’s Wordle Review**\
 `In case you need some puzzle help.`\
