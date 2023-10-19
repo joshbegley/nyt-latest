@@ -32,7 +32,7 @@ https://nytimes.com/2023/10/19/world/asia/china-military-nuclear-weapons.html?se
 
 **Sidney Powell Pleads Guilty in Georgia Trump Case**\
 `Ms. Powell, a lawyer who pushed baseless theories about ballot fraud in 2020, is the second defendant to accept a plea deal in the election interference case.`\
-https://nytimes.com/2023/10/19/us/sidney-powell-pleads-guilty-in-georgia-trump-case.html?searchResultPosition=9
+https://nytimes.com/2023/10/19/us/sidney-powell-guilty-plea-trump-georgia.html?searchResultPosition=9
 
 **Developer Promises Affordable Housing if Granted N.Y.C. Casino License**\
 `More than 510 apartments would be permanently offered below market-rate rent — but only if the developer, the Soloviev Group, wins the right to build a casino on a site near the U.N.`\
