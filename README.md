@@ -31,7 +31,7 @@ https://nytimes.com/2023/10/20/pageoneplus/corrections-oct-20-2023.html?searchRe
 https://nytimes.com/2023/10/20/style/michael-rozendal-kathryn-kenworth-wedding.html?searchResultPosition=8
 
 **The 45 King, Who Produced for Jay-Z and Eminem, Dies at 62**\
-`The 62-year-old Bronx native infused a distinctive jazzy flavor in his beats. He contributed tracks to Queen Latifah’s debut album and produced Eminem’s “Stan” and other hip-hop classics.`\
+`The 62-year-old Bronx native infused a distinctive jazzy flavor in his beats. He contributed tracks to Queen Latifah’s debut album and produced Eminem’s “Stan,” among other hip-hop classics.`\
 https://nytimes.com/2023/10/19/arts/music/dj-mark-45-king-dead.html?searchResultPosition=9
 
 **Key Suspect in Assassination of Haiti’s President Is Arrested**\
