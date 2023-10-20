@@ -2,7 +2,7 @@
 `The late night hosts had a glut of news to discuss this week, including House Republicans’ struggle to find a new speaker and Sidney Powell pleading guilty in the Georgia election interference case. Here’s what the hosts had to say.`\
 https://nytimes.com/interactive/2023/10/20/arts/television/best-of-late-night-sidney-powell.html?searchResultPosition=1
 
-**A Subway Pushing Renews Calls for Safety Measures**\
+**Shoving Attack Renews Calls for M.T.A. to Make Subway Platforms Safer**\
 `The transit system had been enjoying a recovery from the height of the coronavirus pandemic. A random attack is now threatening its progress.`\
 https://nytimes.com/2023/10/20/nyregion/subway-pushing-nyc-safety.html?searchResultPosition=2
 
