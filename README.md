@@ -1,40 +1,40 @@
-**The Most Australian Story to Ever Come Out of Vietnam**\
-`Hotels hold secrets, and some of them are a little stranger than others.`\
-https://nytimes.com/2023/10/20/world/australia/the-most-australian-story-to-ever-come-out-of-vietnam.html?searchResultPosition=1
+**The Deep Roots of Republican Dysfunction**\
+`How the party of limited government became the party of no government at all.`\
+https://nytimes.com/2023/10/20/opinion/house-republicans-jordan-gaetz-greene.html?searchResultPosition=1
 
-**On Elite Campuses, a New Protest Demand: Unwavering Support**\
-`Past student demonstrations sought to challenge the power structure. Now students also want validation.`\
-https://nytimes.com/2023/10/20/nyregion/college-protest-israel-palestine.html?searchResultPosition=2
+**War in a Time of Informational Chaos**\
+`An explosion at a Gaza hospital reveals the danger of leaping to conclusions.`\
+https://nytimes.com/2023/10/20/opinion/israel-war-gaza-hospital-danger.html?searchResultPosition=2
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2023/10/20/crosswords/connections-companion.html?searchResultPosition=3
+**5 Things to Do This Weekend**\
+`Selections from the Weekend section, including a review of Martin Scorsese's “Killers of the Flower Moon.”`\
+https://nytimes.com/interactive/2023/10/20/arts/weekend-editors-picks-killers-of-the-flower-moon.html?searchResultPosition=3
 
-**Hola! This Is Mayor Eric Adams, Making an A.I. Robocall**\
-`New York City is embracing artificial intelligence and using it to send robocalls featuring the mayor’s voice in many languages.`\
-https://nytimes.com/2023/10/20/nyregion/ai-robocalls-eric-adams.html?searchResultPosition=4
+**Why You Should Make Time for Oddball Rituals**\
+`Even the small ones add richness to our lives, experts say.`\
+https://nytimes.com/2023/10/20/well/family/ritual-mental-health-wellbeing-.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/10/20/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**The New York Times News Quiz, Oct. 20, 2023**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2023/10/20/briefing/quiz-israel-gaza-jordan-rite-aid.html?searchResultPosition=5
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2023/10/20/crosswords/wordle-review.html?searchResultPosition=6
+**7 New Paperbacks to Read This Week **\
+`Including titles by Siddhartha Mukherjee, Jemele Hill, Kelly Link and more. `\
+https://nytimes.com/interactive/2023/10/20/books/new-paperbacks-mukherjee.html?searchResultPosition=6
 
-**Spying**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2023/10/20/learning/spying.html?searchResultPosition=7
+**Javier Milei, a ‘Mini-Trump,’ Could Be Argentina’s Next President**\
+`The global far-right movement faces an important test in Argentina’s election on Sunday.`\
+https://nytimes.com/2023/10/20/world/americas/javier-milei-argentina-election.html?searchResultPosition=7
 
-**Late Night Sums Up Sidney Powell’s Plea Deal**\
-`The former Trump lawyer could testify against the ex-president in one of his cases — “and you don’t even know which one I’m talking about,” Seth Meyers marveled.`\
-https://nytimes.com/2023/10/20/arts/television/late-night-sidney-powell.html?searchResultPosition=8
+**A Thaw Between U.S. and Venezuela Ahead of a Key Vote**\
+`The release of political prisoners and the lifting of some U.S. sanctions comes as Venezuela’s opposition prepares to elect a candidate to challenge the country’s leader.`\
+https://nytimes.com/2023/10/20/world/americas/venezuela-us-sanctions-election.html?searchResultPosition=8
 
-**Here’s the latest on the war.**\
-`By Nadav Gavrielov and Patrick Kingsley`\
-https://nytimes.com/live/2023/10/20/world/israel-hamas-war-gaza-news/heres-the-latest-on-the-war?searchResultPosition=9
+**Why Egypt Can’t Solve Gaza’s Problems**\
+`Why has Egypt appeared hesitant to do what is necessary to relieve the humanitarian distress affecting Palestinian civilians on the other side of its 8-mile border with Gaza?`\
+https://nytimes.com/2023/10/20/opinion/international-world/israel-gaza-palestinians-egypt.html?searchResultPosition=9
 
-**Word of the Day: ostensible**\
-`This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/10/20/learning/word-of-the-day-ostensible.html?searchResultPosition=10
+**On Israel, Progressive Jews Feel Abandoned by Their Left-Wing Allies**\
+`Jewish leaders and voters said they were taken aback to discover that many of their ideological allies saw them as oppressors who deserved blame following the Israel attacks.`\
+https://nytimes.com/2023/10/20/us/politics/progressive-jews-united-states.html?searchResultPosition=10
 
