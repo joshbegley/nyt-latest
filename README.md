@@ -1,6 +1,6 @@
 **The 45 King, Who Produced for Jay-Z and Eminem, Dies at 62**\
 `The 62-year-old Bronx native infused a distinctive jazzy flavor in his beats. He contributed tracks to Queen Latifah’s debut album and produced Eminem’s “Stan” and other hip-hop classics.`\
-https://nytimes.com/2023/10/19/us/dj-mark-45-king-dead.html?searchResultPosition=1
+https://nytimes.com/2023/10/19/arts/music/dj-mark-45-king-dead.html?searchResultPosition=1
 
 **Key Suspect in Assassination of Haiti’s President Is Arrested**\
 `Joseph Félix Badio, a former government official, has been wanted for years in connection with the 2021 killing of President Jovenel Moïse.`\
