@@ -4,7 +4,7 @@ https://nytimes.com/live/2023/10/20/world/israel-hamas-war-gaza-news/the-us-send
 
 **Trump Seeks Freeze of Gag Order in Election Case During Appeal**\
 `Judge Tanya S. Chutkan, who imposed the order, agreed to put it on hold for eight days as the parties filed additional papers.`\
-https://nytimes.com/2023/10/20/us/politics/trump-seeks-freeze-of-gag-order-in-election-case-during-appeal.html?searchResultPosition=2
+https://nytimes.com/2023/10/20/us/politics/trump-gag-order-freeze-election.html?searchResultPosition=2
 
 **Gaza’s water crisis is deepening.**\
 `By Vivian Yee and Iyad Abuheweila`\
