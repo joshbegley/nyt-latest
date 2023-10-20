@@ -31,7 +31,7 @@ https://nytimes.com/2023/10/20/learning/spying.html?searchResultPosition=7
 https://nytimes.com/2023/10/20/arts/television/late-night-sidney-powell.html?searchResultPosition=8
 
 **Here’s the latest on the war.**\
-`By Nadav Gavrielov`\
+`By Nadav Gavrielov and Patrick Kingsley`\
 https://nytimes.com/live/2023/10/20/world/israel-hamas-war-gaza-news/heres-the-latest-on-the-war?searchResultPosition=9
 
 **Word of the Day: ostensible**\
