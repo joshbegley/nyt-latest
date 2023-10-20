@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2023/10/20/opinion/trump-voters-gop-focus-group.html?searchResultPosition=1
 
 **Police Investigate Killing of a Judge in Maryland**\
-`Another judge in the six-member county circuit court confirmed the killing of Judge Andrew F. Wilkinson.`\
+`Judge Andrew F. Wilkinson was found in a driveway with what appeared to be gunshot wounds. The police were investigating it as a homicide.`\
 https://nytimes.com/2023/10/20/us/maryland-judge-killed.html?searchResultPosition=2
 
 **Friday Briefing**\
