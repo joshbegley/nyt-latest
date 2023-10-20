@@ -2,13 +2,13 @@
 `The Florida governor’s campaign, facing a cash crunch, has found a way to offload the steep costs of private air travel. Campaign finance experts say the arrangement could test the limits of the law.`\
 https://nytimes.com/2023/10/20/us/politics/desantis-campaign-funding-money.html?searchResultPosition=1
 
-**Israel continues to gather forces for a ground invasion.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2023/10/20/world/israel-hamas-war-gaza-news/israel-continues-to-gather-forces-for-a-ground-invasion?searchResultPosition=2
-
 **Cameo to the Moon, and Back**\
 `A start-up that offers fans a way to buy personalized videos from celebrities was supercharged by pandemic boredom and venture capital. All it had to do was grow forever.`\
-https://nytimes.com/2023/10/20/technology/cameo-to-the-moon-and-back.html?searchResultPosition=3
+https://nytimes.com/2023/10/20/technology/cameo-to-the-moon-and-back.html?searchResultPosition=2
+
+**Israel continues to gather forces for a ground invasion.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2023/10/20/world/israel-hamas-war-gaza-news/israel-continues-to-gather-forces-for-a-ground-invasion?searchResultPosition=3
 
 **For the Future of Maui, Native Hawaiians Push for Honoring Its Past**\
 `The wildfire that devastated Lahaina wiped out many vestiges of the town’s past. Conservators are racing to recover what they can.`\
