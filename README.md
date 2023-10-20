@@ -1,4 +1,4 @@
-**Headline TK**\
+**Why These 11 Republican Voters Like Trump But Might Bail on Him**\
 `The group discusses what it would take for a candidate other than Trump to win their vote.`\
 https://nytimes.com/interactive/2023/10/20/opinion/trump-voters-gop-focus-group.html?searchResultPosition=1
 
