@@ -1,10 +1,10 @@
-**Some Republicans fear Jordan’s speaker bid could mean electoral doom.**\
-`By Annie Karni`\
-https://nytimes.com/live/2023/10/20/us/house-speaker-vote-jim-jordan/some-republicans-fear-jordans-speaker-bid-could-mean-electoral-doom?searchResultPosition=1
-
 **Jordan holdouts have received death threats and menacing calls.**\
 `By Catie Edmondson`\
-https://nytimes.com/live/2023/10/20/us/house-speaker-vote-jim-jordan/jordan-holdouts-have-received-death-threats-and-menacing-calls?searchResultPosition=2
+https://nytimes.com/live/2023/10/20/us/house-speaker-vote-jim-jordan/jordan-holdouts-have-received-death-threats-and-menacing-calls?searchResultPosition=1
+
+**Some Republicans fear Jordan’s speaker bid could mean electoral doom.**\
+`By Annie Karni`\
+https://nytimes.com/live/2023/10/20/us/house-speaker-vote-jim-jordan/some-republicans-fear-jordans-speaker-bid-could-mean-electoral-doom?searchResultPosition=2
 
 **With Raids Across Dnipro River, Ukraine May Be Seeking New Front in War**\
 `Military experts are reporting extensive strikes on Russian-held territory in the south, potentially with the goal of establishing a bridgehead on the east bank of the Dnipro.`\
