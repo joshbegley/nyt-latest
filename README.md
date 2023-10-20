@@ -22,9 +22,9 @@ https://nytimes.com/2023/10/20/business/treasury-bonds-rates-investing.html?sear
 `You grew bushels of tomatoes, watched a solar eclipse and married your best friend, among other delights.`\
 https://nytimes.com/2023/10/20/us/california-readers-joy.html?searchResultPosition=6
 
-**Jordan Presses Ahead With Speaker Vote, Despite Stubborn Opposition**\
+**Here’s what to know about the speaker fight.**\
 `The hard-line conservative from Ohio is likely to be defeated when the House holds another speaker vote on Friday, the third one this week.`\
-https://nytimes.com/2023/10/20/us/politics/house-speaker-jim-jordan.html?searchResultPosition=7
+https://nytimes.com/live/2023/10/20/us/house-speaker-vote-jim-jordan/house-speaker-jim-jordan?searchResultPosition=7
 
 **Violence Surges in West Bank, With 13 Palestinians and an Israeli Killed**\
 `The deadliest fighting occurred in the Nur Shams refugee camp, where Israeli forces also carried out a rare drone strike.`\
