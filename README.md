@@ -1,40 +1,40 @@
+**OpenAI in Talks for Deal That Would Value Company at $80 Billion**\
+`The San Francisco start-up’s valuation could triple in less than six months.`\
+https://nytimes.com/2023/10/20/technology/openai-artifical-intelligence-value.html?searchResultPosition=1
+
+**Storm Babet Causes Severe Flooding in Scotland**\
+`Heavy rain and flooding caused by Storm Babet prompted Britain’s weather agency to issue a rare red warning in Scotland.`\
+https://nytimes.com/video/world/europe/100000009142201/storm-babet-scotland-rain-flooding.html?searchResultPosition=2
+
 **25 Classic Horror Movies to Stream**\
 `From silent monsters to digital-age demons, these scary-movie cornerstones are available to scream — sorry, stream.`\
-https://nytimes.com/article/classic-horror-movies.html?searchResultPosition=1
+https://nytimes.com/article/classic-horror-movies.html?searchResultPosition=3
 
 **A Sweet Squash Offering for Día de los Muertos**\
 `In many Latin American countries, families attract their ancestors in cemeteries with the spiced, syrupy dessert ayote en miel.`\
-https://nytimes.com/2023/10/20/dining/dia-de-los-muertos-squash-recipe.html?searchResultPosition=2
+https://nytimes.com/2023/10/20/dining/dia-de-los-muertos-squash-recipe.html?searchResultPosition=4
 
 **With aid still blocked from entering Gaza, hospitals are ‘on the brink of collapse,’ the U.N. says.**\
 `By Monika Pronczuk`\
-https://nytimes.com/live/2023/10/20/world/israel-hamas-war-gaza-news/with-aid-still-blocked-from-entering-gaza-hospitals-are-on-the-brink-of-collapse-the-un-says?searchResultPosition=3
+https://nytimes.com/live/2023/10/20/world/israel-hamas-war-gaza-news/with-aid-still-blocked-from-entering-gaza-hospitals-are-on-the-brink-of-collapse-the-un-says?searchResultPosition=5
 
 **As Movie Theaters Embrace Swift, One Showcases Her Exes**\
 `In addition to “Taylor Swift: The Eras Tour,” a Milwaukee theater is programming films that feature some of her starry boyfriends.`\
-https://nytimes.com/2023/10/20/movies/taylor-swift-movie-exes.html?searchResultPosition=4
+https://nytimes.com/2023/10/20/movies/taylor-swift-movie-exes.html?searchResultPosition=6
 
 **The Rolling Stones’ Ragged Plea, and 8 More New Songs**\
 `Hear tracks by Kali Uchis, Helena Deland, Olof Dreijer and others.`\
-https://nytimes.com/2023/10/20/arts/music/playlist-rolling-stones-kali-uchis.html?searchResultPosition=5
+https://nytimes.com/2023/10/20/arts/music/playlist-rolling-stones-kali-uchis.html?searchResultPosition=7
 
 **DeSantis Super PAC Helps Pay for Private Flights, in Unusual Move**\
 `The Florida governor’s campaign, facing a cash crunch, has found a way to offload the steep costs of private air travel. Campaign finance experts say the arrangement could test the limits of the law.`\
-https://nytimes.com/2023/10/20/us/politics/desantis-campaign-funding-money.html?searchResultPosition=6
+https://nytimes.com/2023/10/20/us/politics/desantis-campaign-funding-money.html?searchResultPosition=8
 
 **Israel continues to gather forces for a ground invasion.**\
 `By Aaron Boxerman`\
-https://nytimes.com/live/2023/10/20/world/israel-hamas-war-gaza-news/israel-continues-to-gather-forces-for-a-ground-invasion?searchResultPosition=7
+https://nytimes.com/live/2023/10/20/world/israel-hamas-war-gaza-news/israel-continues-to-gather-forces-for-a-ground-invasion?searchResultPosition=9
 
 **Cameo to the Moon, and Back**\
 `A start-up that offers fans a way to buy personalized videos from celebrities was supercharged by pandemic boredom and venture capital. All it had to do was grow forever.`\
-https://nytimes.com/2023/10/20/technology/cameo-to-the-moon-and-back.html?searchResultPosition=8
-
-**For the Future of Maui, Native Hawaiians Push for Honoring Its Past**\
-`The wildfire that devastated Lahaina wiped out many vestiges of the town’s past. Conservators are racing to recover what they can.`\
-https://nytimes.com/2023/10/20/us/maui-lahaina-fires-rebuilding.html?searchResultPosition=9
-
-**Review: The Philharmonic Welcomes Back an Old Friend**\
-`David Robertson returned to the podium to lead the orchestra’s first in a series of performances to celebrate the centennial of Gyorgy Ligeti’s birth.`\
-https://nytimes.com/2023/10/20/arts/music/new-york-philharmonic-david-robertson-review.html?searchResultPosition=10
+https://nytimes.com/2023/10/20/technology/cameo-to-the-moon-and-back.html?searchResultPosition=10
 
