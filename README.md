@@ -1,5 +1,5 @@
-**Supreme Court to Hear Case on Biden Officials’ Contacts With Tech Platforms**\
-`The court blocked, for now, an appeals court ruling prohibiting many officials from encouraging or coercing sites to delete asserted misinformation.`\
+**Supreme Court Pauses Ban on Biden Officials’ Contacts With Tech Platforms Pending Review**\
+`The court agreed to hear the administration’s appeal, setting the stage for a major ruling on what the government may do to encourage sites to delete asserted misinformation.`\
 https://nytimes.com/2023/10/20/us/supreme-court-social-media-biden.html?searchResultPosition=1
 
 **In a tiny Israeli village decimated in the Hamas terrorist attacks, residents return to mourn.**\
