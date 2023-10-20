@@ -34,7 +34,7 @@ https://nytimes.com/live/2023/10/20/world/israel-hamas-war-gaza-news/thousands-i
 `Also, America’s deficit doubled. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2023/10/20/briefing/american-hostages-gaza-jim-jordan-speaker.html?searchResultPosition=9
 
-**Eva Kollisch, Lesbian Rights Advocate and Memoirist, Dies at 94**\
+**Eva Kollisch, Lesbian Rights Advocate and Memoirist, Dies at 98**\
 `A former refugee from Nazi-occupied Austria, she became an openly lesbian voice in the women’s movement and a key leader in feminist studies.`\
 https://nytimes.com/2023/10/20/us/eva-kollisch-dead.html?searchResultPosition=10
 
