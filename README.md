@@ -1,4 +1,4 @@
-**Aid is unlikely to flow into Gaza on Friday, officials say, as delicate talks drag on.**\
+**Aid Into Gaza Is Delayed as Talks Drag On, Officials Say**\
 `Egypt, Israel, the United States and the United Nations were still negotiating over thorny issues, including who would inspect the shipments for weapons, officials said.`\
 https://nytimes.com/2023/10/20/world/middleeast/gaza-aid-israel.html?searchResultPosition=1
 
