@@ -1,6 +1,6 @@
 **Aid is unlikely to flow into Gaza on Friday, officials say, as delicate talks drag on.**\
-`By Matina Stevis-Gridneff and Vivian Yee`\
-https://nytimes.com/live/2023/10/20/world/israel-hamas-war-gaza-news/aid-is-unlikely-to-flow-into-gaza-on-friday-officials-say-as-delicate-talks-drag-on?searchResultPosition=1
+`Egypt, Israel, the United States and the United Nations were still negotiating over thorny issues, including who would inspect the shipments for weapons, officials said.`\
+https://nytimes.com/2023/10/20/world/middleeast/gaza-aid-israel.html?searchResultPosition=1
 
 **Biden requests $105 billion in emergency funds for Israel, Ukraine and other crises.**\
 `By Michael D. Shear`\
