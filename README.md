@@ -1,40 +1,40 @@
+**Biden requests $105 billion in emergency funds for Israel, Ukraine and other crises.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2023/10/20/world/israel-hamas-war-gaza-news/biden-requests-105-billion-in-emergency-funds-for-israel-ukraine-and-other-crises?searchResultPosition=1
+
+**Audiobook of the Week: A Rich Family Saga Set in 1950s Maine**\
+`In Rachel Eliza Griffith’s debut novel, “Promise,” the Kindreds find they can’t escape past mistakes.`\
+https://nytimes.com/2023/10/20/books/review/audiobook-of-the-week-promise-rachel-eliza-griffiths.html?searchResultPosition=2
+
 **Giorgia Meloni Tells Italy She Is Dumping Her Longtime Partner**\
 `On social media, the prime minister said her 10-year relationship with a news anchor “ends here,” after a hot mic and video footage picked him up apparently hitting on other women.`\
-https://nytimes.com/2023/10/20/world/europe/giorgia-meloni-andrea-giambruno.html?searchResultPosition=1
+https://nytimes.com/2023/10/20/world/europe/giorgia-meloni-andrea-giambruno.html?searchResultPosition=3
 
 **Storm Brings ‘Exceptional’ Amount of Rain to Scotland, and More Is on the Way**\
 `Storm Babet has already dumped more than 23 inches of rain on the region.`\
-https://nytimes.com/2023/10/20/world/europe/storm-babet-flooding-scotland.html?searchResultPosition=2
+https://nytimes.com/2023/10/20/world/europe/storm-babet-flooding-scotland.html?searchResultPosition=4
 
 **To Combat the Opioid Epidemic, Cities Ponder Facilities for Drug Use**\
 `Philadelphia is again the focus of a national campaign to open — or restrict — sites where people use drugs under medical supervision.`\
-https://nytimes.com/2023/10/20/health/opioids-drug-consumption-sites.html?searchResultPosition=3
+https://nytimes.com/2023/10/20/health/opioids-drug-consumption-sites.html?searchResultPosition=5
 
 **Britney Spears, From the Conservatorship’s Demise to ‘The Woman in Me’**\
 `Before the pop star releases her memoir next week, here’s a look back at her life since the guardianship controlling her affairs was terminated in 2021.`\
-https://nytimes.com/2023/10/20/arts/music/britney-spears-timeline-conservatorship-memoir.html?searchResultPosition=4
+https://nytimes.com/2023/10/20/arts/music/britney-spears-timeline-conservatorship-memoir.html?searchResultPosition=6
 
 **Apple’s New Film Strategy Debuts With ‘Killers of the Flower Moon’**\
 `Martin Scorsese’s three-and-a-half-hour epic is the first of three high-profile movies the tech company will give wide theatrical releases in the coming months.`\
-https://nytimes.com/2023/10/20/business/media/apple-killers-of-the-flower-moon-theaters.html?searchResultPosition=5
+https://nytimes.com/2023/10/20/business/media/apple-killers-of-the-flower-moon-theaters.html?searchResultPosition=7
 
 **Movement and Memory: Dance Love and Dance Rejection in Ireland**\
 `Michael Keegan-Dolan has collaborated with his partner Rachel Poirier on “How to Be a Dancer in 72,000 Easy Lessons,” coming to St. Ann’s Warehouse.`\
-https://nytimes.com/2023/10/20/arts/dance/michael-keegan-dolan-how-to-be-a-dancer-st-anns.html?searchResultPosition=6
+https://nytimes.com/2023/10/20/arts/dance/michael-keegan-dolan-how-to-be-a-dancer-st-anns.html?searchResultPosition=8
 
 **A Filmmaker’s Fraught Specialty: Women at Work and the Men Who Scare Them**\
 `Kitty Green’s movies, “The Assistant” and now “The Royal Hotel,” address gender dynamics in familiar, but menacing, environments.`\
-https://nytimes.com/2023/10/20/movies/kitty-green-the-royal-hotel-the-assistant.html?searchResultPosition=7
+https://nytimes.com/2023/10/20/movies/kitty-green-the-royal-hotel-the-assistant.html?searchResultPosition=9
 
 **Jordan holdouts have received death threats and menacing calls.**\
 `By Catie Edmondson`\
-https://nytimes.com/live/2023/10/20/us/house-speaker-vote-jim-jordan/jordan-holdouts-have-received-death-threats-and-menacing-calls?searchResultPosition=8
-
-**Some Republicans fear Jordan’s speaker bid could mean electoral doom.**\
-`By Annie Karni`\
-https://nytimes.com/live/2023/10/20/us/house-speaker-vote-jim-jordan/some-republicans-fear-jordans-speaker-bid-could-mean-electoral-doom?searchResultPosition=9
-
-**With Raids Across Dnipro River, Ukraine May Be Seeking New Front in War**\
-`Military experts are reporting extensive strikes on Russian-held territory in the south, potentially with the goal of establishing a bridgehead on the east bank of the Dnipro.`\
-https://nytimes.com/2023/10/20/world/europe/ukraine-russia-war-dnipro-assault.html?searchResultPosition=10
+https://nytimes.com/live/2023/10/20/us/house-speaker-vote-jim-jordan/jordan-holdouts-have-received-death-threats-and-menacing-calls?searchResultPosition=10
 
