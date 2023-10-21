@@ -27,8 +27,8 @@ https://nytimes.com/2023/10/21/crosswords/wordle-review.html?searchResultPositio
 https://nytimes.com/2023/10/21/world/asia/nawaz-sharif-return-pakistan.html?searchResultPosition=7
 
 **Here’s the latest on the war.**\
-`By Nadav Gavrielov`\
-https://nytimes.com/2023/10/21/world/middleeast/heres-the-latest-on-the-war.html?searchResultPosition=8
+`By Nadav Gavrielov and Vivian Yee`\
+https://nytimes.com/live/2023/10/21/world/israel-hamas-war-gaza-news/heres-the-latest-on-the-war?searchResultPosition=8
 
 **Little Punishment or Change After South Korea’s Halloween Calamity**\
 `Families of the 159 people crushed to death last year say the government has never acknowledged its mistakes or accepted responsibility.`\
