@@ -32,7 +32,7 @@ https://nytimes.com/2023/10/21/style/buy-nothing-project-experience.html?searchR
 
 **Some Israeli Journalists Express Fear About Conveying Dissenting Views**\
 `Airing criticism of the country’s response has become even more fraught than in previous conflicts, some journalists and press advocates said.`\
-https://nytimes.com/2023/10/21/business/media/israeli-journalists-express-fear-about-conveying-dissenting-views.html?searchResultPosition=9
+https://nytimes.com/2023/10/21/business/media/israel-journalists-hamas-war.html?searchResultPosition=9
 
 **How Much Influence Should Universities Give Their Donors?**\
 `After the Hamas terrorist attack on Israel, some major donors are aiming to shape the free-speech values and top leadership on campuses.`\
