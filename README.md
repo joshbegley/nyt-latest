@@ -30,8 +30,8 @@ https://nytimes.com/2023/10/21/opinion/silence-social-media-conflict.html?search
 `Thousands of citizens with Jewish heritage left for Israel after Russia’s invasion of Ukraine.`\
 https://nytimes.com/2023/10/21/world/middleeast/israel-hama-war-russia-exiles.html?searchResultPosition=8
 
-**First Aid Convoy Enters Gaza Through Rafah Crossing**\
-`The first group of trucks carrying much-needed aid crossed into Gaza from Egypt on Saturday.`\
+**First Convoy of Aid Enters Gaza Through Rafah Crossing**\
+`A group of trucks carried much-needed humanitarian supplies into the territory from Egypt on Saturday.`\
 https://nytimes.com/video/world/middleeast/100000009143835/aid-gaza-rafah-crossing-egypt.html?searchResultPosition=9
 
 **For the Most Vulnerable Hostages, a Plea for Mercy**\
