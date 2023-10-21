@@ -31,7 +31,7 @@ https://nytimes.com/live/2023/10/21/world/israel-hamas-war-gaza-news/a-gazan-eva
 https://nytimes.com/2023/10/21/world/canada/peter-nygard-sexual-assault-trial.html?searchResultPosition=8
 
 **Bobby Charlton, a Soccer Great, Dies at 86**\
-`The England and Manchester United icon, who won the World Cup in 1966 and the European Cup in 1968, was one of the game’s best-loved figures.`\
+`A mainstay of Manchester United and one of the game’s best-loved figures, he won the World Cup in 1966 and the European Cup in 1968.`\
 https://nytimes.com/2023/10/21/sports/soccer/bobby-charlton-dead.html?searchResultPosition=9
 
 **The Path to Reducing Pedestrian Deaths Is Steep but Straight**\
