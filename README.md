@@ -1,5 +1,5 @@
 **Peace Summit in Egypt Shows a Shift in Rhetoric but no Consensus**\
-`World leaders met in Cairo on Saturday to talk about de-escalating violence in Gaza. Hours later, they had little to show but a vast divide.`\
+`World leaders met in Cairo on Saturday to talk about de-escalating violence in Gaza. Hours later, they were still deeply divided.`\
 https://nytimes.com/2023/10/21/world/middleeast/peace-summit-gaza-egypt.html?searchResultPosition=1
 
 **Americans, Weary of Foreign Conflicts, Face Another**\
