@@ -1,40 +1,40 @@
+**Running for Our Lives**\
+`Very short, slow runs can lead to better health. But that doesn’t lessen the timeless allure of being a “real runner.”`\
+https://nytimes.com/2023/10/21/briefing/slow-running-benefits.html?searchResultPosition=1
+
+**We Must Not Kill Gazan Children in Order to Protect Israel’s Children**\
+`If all lives have equal value, why do we treat Palestinian civilians as lesser victims, devalued by association with Hamas terrorism?`\
+https://nytimes.com/2023/10/21/opinion/israel-gaza-palestine-children.html?searchResultPosition=2
+
+**Running in a Body That’s My Own**\
+`Athletes like me should get to compete as ourselves.`\
+https://nytimes.com/2023/10/21/opinion/running-body-semenya.html?searchResultPosition=3
+
+**How to Navigate a Hostage Situation Like No Other**\
+`I have been in touch with leaders of both sides. Prospects remain dim.`\
+https://nytimes.com/2023/10/21/opinion/israel-hamas-hostage.html?searchResultPosition=4
+
+**Growing Old, for Better or Worse**\
+`Readers, including a 101-year-old woman, react to a guest essay by Roger Rosenblatt about the challenges of aging.`\
+https://nytimes.com/2023/10/21/opinion/aging-old.html?searchResultPosition=5
+
+**Silence on Social Media Is Not Complicity**\
+`What I learned after choosing not to post about the Israel-Hamas war.`\
+https://nytimes.com/2023/10/21/opinion/silence-social-media-conflict.html?searchResultPosition=6
+
 **Russians Who Moved to Israel Over One War Are in the Middle of Another One**\
 `Thousands of citizens with Jewish heritage left for Israel after Russia’s invasion of Ukraine.`\
-https://nytimes.com/2023/10/21/world/middleeast/israel-hama-war-russia-exiles.html?searchResultPosition=1
+https://nytimes.com/2023/10/21/world/middleeast/israel-hama-war-russia-exiles.html?searchResultPosition=7
 
 **First Aid Convoy Enters Gaza Through Rafah Crossing**\
 `The first group of trucks carrying much-needed aid crossed into Gaza from Egypt on Saturday.`\
-https://nytimes.com/video/world/middleeast/100000009143835/aid-gaza-rafah-crossing-egypt.html?searchResultPosition=2
+https://nytimes.com/video/world/middleeast/100000009143835/aid-gaza-rafah-crossing-egypt.html?searchResultPosition=8
 
 **For the Most Vulnerable Hostages, a Plea for Mercy**\
 `Hamas released two American hostages on Friday, but concern is rising about the hundreds still held in Gaza, especially the injured and ill.`\
-https://nytimes.com/2023/10/21/world/middleeast/hostages-israel-hamas-gaza.html?searchResultPosition=3
+https://nytimes.com/2023/10/21/world/middleeast/hostages-israel-hamas-gaza.html?searchResultPosition=9
 
 **How $17.2 Million in Gold and Cash Disappeared From Toronto’s Airport**\
 `A lawsuit offers a glimpse into the victim’s view of the April heist, though the case remains unsolved.`\
-https://nytimes.com/2023/10/21/world/canada/toronto-airport-theft-gold-brinks.html?searchResultPosition=4
-
-**‘Killers of the Flower Moon’ Has Some Surprising Cameos. Here’s a Guide.**\
-`Musicians, comedians and even a filmmaker make appearances in the epic drama.`\
-https://nytimes.com/2023/10/21/movies/killers-of-the-flower-moon-martin-scorsese-cameo.html?searchResultPosition=5
-
-**After Jordan Falls, House Republicans Ask Who, and What, Is Next**\
-`A band of more mainstream Republicans brought down the hard-line conservative, but the G.O.P. has hardly stemmed the chaos.`\
-https://nytimes.com/2023/10/21/us/politics/house-speaker-republicans-whats-next.html?searchResultPosition=6
-
-**In Global Conflict Zones, Hospitals and Doctors Are No Longer Spared**\
-`Over the last two decades, medical facilities and staff have become casualties of war more frequently, in violation of international law.`\
-https://nytimes.com/2023/10/21/health/gaza-ukraine-hospitals-doctors.html?searchResultPosition=7
-
-**Can Biden Change How Voters See Him? The Israel War May Give Him a Chance.**\
-`Plagued by low approval ratings, the president has projected himself as a world leader. Strategists warn, however, that his re-election may depend more on domestic issues like the economy.`\
-https://nytimes.com/2023/10/21/us/politics/biden-voters-approval-israel.html?searchResultPosition=8
-
-**Top 10 Hardest and Easiest Spelling Bee Words, Oct. 14-20**\
-`A lot of players had nonanswers for this week’s toughest word.`\
-https://nytimes.com/2023/10/21/upshot/spelling-bee-words.html?searchResultPosition=9
-
-**It’s Not Just for Throuples Anymore**\
-`Feeld, the kink- and queer-friendly dating app, has carved out a niche for customers looking for something unusual in potential romantic partners — honesty.`\
-https://nytimes.com/2023/10/21/business/feeld-dating-app.html?searchResultPosition=10
+https://nytimes.com/2023/10/21/world/canada/toronto-airport-theft-gold-brinks.html?searchResultPosition=10
 
