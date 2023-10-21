@@ -31,7 +31,7 @@ https://nytimes.com/live/2023/10/21/world/israel-hamas-war-gaza-news/antisemitis
 https://nytimes.com/2023/10/21/dining/easy-banana-bread-butternut-squash-soup-and-roasted-fish-with-leeks-and-salsa-verde.html?searchResultPosition=8
 
 **New Evidence Found of Rape and Torture by Russian Forces in Ukraine**\
-`A U.N report documented cases in the southern regions of Kherson and Zaporizhzhia, which remain partly under Moscow’s control.`\
+`A U.N. report documented cases in the southern regions of Kherson and Zaporizhzhia, which remain partly under Moscow’s control.`\
 https://nytimes.com/2023/10/21/world/europe/russia-war-crimes-ukraine.html?searchResultPosition=9
 
 **Information gaps and a two-hour line for bread: An aid worker describes life in southern Gaza.**\
