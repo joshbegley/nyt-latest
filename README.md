@@ -1,4 +1,4 @@
-**Israeli Journalists Express Fear About Conveying Dissenting Views**\
+**Some Israeli Journalists Express Fear About Conveying Dissenting Views**\
 `Airing criticism of the country’s response has become even more fraught than in previous conflicts, some journalists and press advocates said.`\
 https://nytimes.com/2023/10/21/business/media/israeli-journalists-express-fear-about-conveying-dissenting-views.html?searchResultPosition=1
 
