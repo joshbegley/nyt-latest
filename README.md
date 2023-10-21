@@ -1,40 +1,40 @@
-**Pushing the Body to Extremes to Find Serenity**\
-`The choreographer Rachid Ouramdane works with acrobats and a highliner in “Corps Extrêmes,” a hypnotic production coming to the Brooklyn Academy of Music.`\
-https://nytimes.com/2023/10/21/arts/dance/rachid-ouramdance-corps-extreme-bam.html?searchResultPosition=1
+**‘Killers of the Flower Moon’ Has Some Surprising Cameos. Here’s a Guide.**\
+`Musicians, comedians and even a filmmaker make appearances in the epic drama.`\
+https://nytimes.com/2023/10/21/movies/killers-of-the-flower-moon-martin-scorsese-cameo.html?searchResultPosition=1
 
-**Chapter 1: To Take Control, She Had to Run**\
-`This is the first part of a series by The Interpreter that examines how, for two young women, chasing opportunity in India has been a fight for their lives.`\
-https://nytimes.com/2023/10/21/world/asia/indias-daughters-women-careers.html?searchResultPosition=2
+**After Jordan Falls, House Republicans Ask Who, and What, Is Next**\
+`A band of more mainstream Republicans brought down the hard-line conservative, but the G.O.P. has hardly stemmed the chaos.`\
+https://nytimes.com/2023/10/21/us/politics/house-speaker-republicans-whats-next.html?searchResultPosition=2
 
-**Tupac Shakur’s Volatile Life, Delivered by Friendly Hands**\
-`Access to the late rapper’s journals gives Staci Robinson’s authorized biography a rare intimacy, without delving deeply into his music.`\
-https://nytimes.com/2023/10/21/books/review/tupac-shakur-authorized-biography-staci-robinson.html?searchResultPosition=3
+**In Global Conflict Zones, Hospitals and Doctors Are No Longer Spared**\
+`Over the last two decades, medical facilities and staff have become casualties of war more frequently, in violation of international law.`\
+https://nytimes.com/2023/10/21/health/gaza-ukraine-hospitals-doctors.html?searchResultPosition=3
 
-**A $96 Million Hindu Temple Opens Amid Accusations of Forced Labor**\
-`The temple in Robbinsville, N.J., about 15 years in the making, is believed to be the largest in the Western Hemisphere. But its construction has also been clouded in controversy.`\
-https://nytimes.com/2023/10/21/nyregion/nj-hindu-temple.html?searchResultPosition=4
+**Can Biden Change How Voters See Him? The Israel War May Give Him a Chance.**\
+`Plagued by low approval ratings, the president has projected himself as a world leader. Strategists warn, however, that his re-election may depend more on domestic issues like the economy.`\
+https://nytimes.com/2023/10/21/us/politics/biden-voters-approval-israel.html?searchResultPosition=4
 
-**How an Urban Forager Spends Her Sundays**\
-`Aly Stoffo knows where to find wild mushrooms, berries and other edible plants on Staten Island. But the location of her favorite paw paw patch is a secret.`\
-https://nytimes.com/2023/10/21/nyregion/glam-gardener-aly-stoffo.html?searchResultPosition=5
+**Top 10 Hardest and Easiest Spelling Bee Words, Oct. 14-20**\
+`A lot of players had nonanswers for this week’s toughest word.`\
+https://nytimes.com/2023/10/21/upshot/spelling-bee-words.html?searchResultPosition=5
 
-**Think Your City Mouse Has an Attitude? These Scientists Want to Find Out.**\
-`A research study is examining how mice that live in cities, close to humans, may have evolved differently from their country cousins.`\
-https://nytimes.com/2023/10/21/nyregion/think-your-city-mouse-has-an-attitude-these-scientists-want-to-find-out.html?searchResultPosition=6
+**It’s Not Just for Throuples Anymore**\
+`Feeld, the kink- and queer-friendly dating app, has carved out a niche for customers looking for something unusual in potential romantic partners — honesty.`\
+https://nytimes.com/2023/10/21/business/feeld-dating-app.html?searchResultPosition=6
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2023/10/21/crosswords/connections-companion.html?searchResultPosition=7
+**Climate Change Is Keeping Therapists Up at Night**\
+`How anxiety about the planet’s future is transforming the practice of psychotherapy.`\
+https://nytimes.com/2023/10/21/magazine/climate-anxiety-therapy.html?searchResultPosition=7
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/10/21/crosswords/spelling-bee-forum.html?searchResultPosition=8
+**‘I Love You. I Am Sorry.’ One Jew, One Muslim and a Friendship Tested by War**\
+`A Los Angeles program that connects Muslims and Jews has been strained by the war in Israel. But the group’s leaders found that it has strengthened their bond.`\
+https://nytimes.com/2023/10/21/us/jewish-muslim-communities-israel-hamas-war.html?searchResultPosition=8
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2023/10/21/crosswords/wordle-review.html?searchResultPosition=9
+**How the World Once Handled War Crimes**\
+`In “Judgment at Tokyo,” the political scholar Gary J. Bass examines the post-World War II prosecution of Japanese military atrocities and makes the case for the real efficacy of international law.`\
+https://nytimes.com/2023/10/21/books/review/judgment-at-tokyo-gary-j-bass.html?searchResultPosition=9
 
-**Returning to Pakistan, Nawaz Sharif Aims for a Splashy Comeback**\
-`After nearly four years in exile, Mr. Sharif, a three-time prime minister, will hold a big gathering before an upcoming election.`\
-https://nytimes.com/2023/10/21/world/asia/nawaz-sharif-return-pakistan.html?searchResultPosition=10
+**I Live in a Subdivided Apartment and My Roommate Refuses to Pay Rent**\
+`Technically you’re not roommates, but the law could still work in your favor.`\
+https://nytimes.com/2023/10/21/realestate/subdivided-apartment-rent-tenants.html?searchResultPosition=10
 
