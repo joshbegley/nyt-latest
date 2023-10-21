@@ -22,8 +22,8 @@ https://nytimes.com/2023/10/21/business/actors-studios-strike-talks.html?searchR
 `It took American and Qatari diplomacy, and self-interested decisions by Hamas, to bring two hostages safely back to Israel.`\
 https://nytimes.com/2023/10/21/world/middleeast/us-hostages-release-israel-hamas-qatar-raanan.html?searchResultPosition=6
 
-**Synagogue Leader Killed in Detroit, Michigan Attorney General Says**\
-`Samantha Woll, 40, was the president of a synagogue downtown. The motive is not known, authorities say.`\
+**Synagogue Leader Is Killed in Detroit, but Motive Is Not Known, Authorities Say**\
+`Samantha Woll, 40, the president of a synagogue downtown, was lauded as a dynamic figure in the community.`\
 https://nytimes.com/2023/10/21/us/detroit-synagogue-stabbing-samantha-woll.html?searchResultPosition=7
 
 **Crossings at the U.S. Southern Border Are Higher Than Ever**\
