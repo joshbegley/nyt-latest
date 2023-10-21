@@ -28,7 +28,7 @@ https://nytimes.com/2023/10/21/science/sunflower-sea-star-spawns.html?searchResu
 
 **Moments in the ‘Buy Nothing’ Life**\
 `Borrowing the style of Joan Didion’s “The White Album,” a writer considers an online gifting hub where people try to give away unwanted stuff.`\
-https://nytimes.com/2023/10/21/style/moments-in-the-buy-nothing-life.html?searchResultPosition=8
+https://nytimes.com/2023/10/21/style/buy-nothing-project-experience.html?searchResultPosition=8
 
 **Some Israeli Journalists Express Fear About Conveying Dissenting Views**\
 `Airing criticism of the country’s response has become even more fraught than in previous conflicts, some journalists and press advocates said.`\
