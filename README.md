@@ -23,7 +23,7 @@ https://nytimes.com/2023/10/22/business/media/killers-of-the-flower-moon-movie-b
 https://nytimes.com/2023/10/22/opinion/nazi-memorabilia-collectors.html?searchResultPosition=6
 
 **Betsy Rawls, Winner of Eight Golf Majors, Dies at 95**\
-`She won four Women’s opens and a total of 55 L.P.G.A. Tour events between 1951 and 1972. Her strong suit was the short game.`\
+`With a strong short game, she won four Women’s opens and a total of 55 L.P.G.A. Tour events between 1951 and 1972. She also had leadership roles with the tour.`\
 https://nytimes.com/2023/10/22/sports/golf/betsy-rawls-dead.html?searchResultPosition=7
 
 **Review: A ‘Rodelinda’ Brings Promise of Handel on the Hudson**\
