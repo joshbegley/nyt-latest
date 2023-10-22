@@ -1,40 +1,40 @@
-**Australia Says China Is Poised to Lift Punishing Wine Tariffs**\
-`Prime Minister Anthony Albanese said he would visit China and meet with Xi Jinping, another sign of a thaw in the countries’ once-icy relations.`\
-https://nytimes.com/2023/10/22/world/asia/australia-china-wine-tariff.html?searchResultPosition=1
+**Meet the Republicans Running for Speaker**\
+`The lawmakers vying for the job include veterans of the House, committee chairmen, a top member of Republican leadership and a sophomore.`\
+https://nytimes.com/2023/10/22/world/europe/meet-the-republicans-running-for-speaker.html?searchResultPosition=1
 
-**U.S. Sends More Missile Defense Systems to Middle East**\
-`The latest deployment is in response to growing threats from Iran and its allies in the region. President Biden has warned Iran to not join the war against Hamas.`\
-https://nytimes.com/2023/10/22/world/middleeast/patriot-israel-hamas-iran-gaza-eisenhower-pentagon.html?searchResultPosition=2
+**Argentina Election Pits Establishment vs. the Far Right**\
+`Argentines will vote on Sunday on whether to elect Javier Milei, a far-right libertarian economist who has been called a “mini-Trump,” as the nation’s new leader.`\
+https://nytimes.com/2023/10/22/world/americas/argentina-presidential-election-javier-milei.html?searchResultPosition=2
 
-**The Spirited History of ‘Ghost’**\
-`‘Ghost’ is a word that won’t soon fade from the pop-culture lexicon.`\
-https://nytimes.com/2023/10/22/insider/the-history-of-ghost.html?searchResultPosition=3
+**Venezuela Holds a Key Vote. Here’s What You Need to Know.**\
+`Ten opposition candidates are running to face off against President Nicolás Maduro next year. A center-right former legislator, María Corina Machado, is widely expected to win.`\
+https://nytimes.com/2023/10/22/world/americas/venezuela-presidential-election-vote.html?searchResultPosition=3
 
-**Drone Warfare Comes to Washington’s Opera Stage**\
-`“Grounded,” by Jeanine Tesori and George Brant, is premiering at Washington National Opera after attracting criticism over sponsorship.`\
-https://nytimes.com/2023/10/22/arts/music/grounded-washington-national-opera.html?searchResultPosition=4
+**Peace, a Forgotten Word, Renews its Claim in the Holy Land**\
+`Long derided as naïve, even traitors, the bridge builders between Israelis and Palestinians sense opportunity in the aftermath of the Hamas attack.`\
+https://nytimes.com/2023/10/22/world/middleeast/peace-activists-israel-palestinian.html?searchResultPosition=4
 
-**George Santos Swore He’d Never Talk to Me. Then the Phone Rang.**\
-`Ending months of silence, the politician began an unusual dialogue with a reporter he had long avoided.`\
-https://nytimes.com/2023/10/22/nyregion/george-santos-interview.html?searchResultPosition=5
+**When the Thrill of Victory Felt Truly Thrilling**\
+`Michael MacCambridge’s “The Big Time” rewinds to the ’70s, when showy personalities and compelling rivalries turned sports into mass entertainment.`\
+https://nytimes.com/2023/10/22/books/review/the-big-time-maccambridge-sports-1970s.html?searchResultPosition=5
 
-**‘While He Waited, He Turned His Gaze in Our Direction’**\
-`An encounter with André Watts, a holiday invitation from a cabby and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2023/10/22/nyregion/metropolitan-diary.html?searchResultPosition=6
+**From ‘Goodfellas’ to ‘Flower Moon’: How Scorsese Has Rethought Violence**\
+`The director was long identified with ornately edited set pieces. In “The Irishman” and his latest film, the flourishes have given way to blunt truths.`\
+https://nytimes.com/2023/10/22/movies/martin-scorsese-killers-of-the-flower-moon-violence.html?searchResultPosition=6
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2023/10/22/crosswords/wordle-review.html?searchResultPosition=7
+**Three Weapons That Israel and Ukraine Both Need From the U.S.**\
+`Ukraine and Israel are fighting different kinds of wars, but some weapons systems could soon be in short supply if the fighting continues for months.`\
+https://nytimes.com/2023/10/22/us/politics/israel-ukraine-weapons.html?searchResultPosition=7
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2023/10/22/crosswords/connections-companion.html?searchResultPosition=8
+**A Professional Pumpkin Carver Spills His Guts**\
+`Adam Bierton is allergic to pumpkins, but that doesn’t stop him from carving dozens each fall, the most of intricate of which can cost $5,000.`\
+https://nytimes.com/2023/10/22/style/halloween-professional-pumpkin-carver.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/10/22/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**A Hospice Nurse on Embracing the Grace of Dying**\
+`Hadley Vlahos​, TikTok star and best-selling author​, wants us to let go of our fighting words​ about death.`\
+https://nytimes.com/interactive/2023/10/22/magazine/hadley-vlahos-interview.html?searchResultPosition=9
 
-**A Glimpse Into Spain’s Future, Where Water Comes by Truck, Not Tap**\
-`Residents of Pozoblanco and 22 other villages in the country’s south have had to get their drinking water from tankers since April, when the reservoir serving the area dried up.`\
-https://nytimes.com/2023/10/22/world/europe/spain-drought-water.html?searchResultPosition=10
+**The Race to Save Our Secrets From the Computers of the Future**\
+`Quantum technology could compromise our encryption systems. Can America replace them before it’s too late?`\
+https://nytimes.com/2023/10/22/us/politics/quantum-computing-encryption.html?searchResultPosition=10
 
