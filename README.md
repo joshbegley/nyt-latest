@@ -1,4 +1,4 @@
-**Here are the Hamas officials believed to have been killed since Oct. 7**\
+**Here are the Hamas officials believed to have been killed since Oct. 7.**\
 `The dead include Gaza’s finance minister, a military commander active since the 1980s and a lawmaker who was the widow of the group’s co-founder, according to Hamas.`\
 https://nytimes.com/live/2023/10/22/world/israel-hamas-war-gaza-news/hamas-officials-killed-airstrikes?searchResultPosition=1
 
