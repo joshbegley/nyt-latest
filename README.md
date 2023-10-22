@@ -10,13 +10,13 @@ https://nytimes.com/2023/10/22/opinion/liberty-university-scandal-education.html
 `How Jack Fisk, the master production designer behind “Killers of the Flower Moon” and many other films, brings the past to life.`\
 https://nytimes.com/2023/10/22/podcasts/the-daily/fisk-killers-of-the-flower-moon.html?searchResultPosition=3
 
-**A Different Border Crisis Mirrors What’s Happening in the U.S.**\
-`The border closures reinforced the dangerous nativist Dominican rhetoric the government has deployed to contain Haitian immigration.`\
-https://nytimes.com/2023/10/22/opinion/haiti-dominican-racism-immigration.html?searchResultPosition=4
-
 **A Brief History of a Problematic Appetizer**\
 `If you buy squid at a supermarket, or what’s advertised as locally caught calamari in a restaurant, that food is part of this complicated story.`\
-https://nytimes.com/2023/10/22/opinion/calamari-squid-restaurants-china.html?searchResultPosition=5
+https://nytimes.com/2023/10/22/opinion/calamari-squid-restaurants-china.html?searchResultPosition=4
+
+**A Different Border Crisis Mirrors What’s Happening in the U.S.**\
+`The border closures reinforced the dangerous nativist Dominican rhetoric the government has deployed to contain Haitian immigration.`\
+https://nytimes.com/2023/10/22/opinion/haiti-dominican-racism-immigration.html?searchResultPosition=5
 
 **Why Jews Cannot Stop Shaking Right Now**\
 `The reverberations of pogroms past are shaping the reaction of Jews to Hamas’s attacks on Israel.`\
