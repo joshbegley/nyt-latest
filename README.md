@@ -23,7 +23,7 @@ https://nytimes.com/2023/10/22/opinion/liberty-university-scandal-education.html
 https://nytimes.com/2023/10/22/podcasts/the-daily/fisk-killers-of-the-flower-moon.html?searchResultPosition=6
 
 **A Brief History of a Problematic Appetizer**\
-`If you buy squid at a supermarket, or what’s advertised as locally caught calamari in a restaurant, that food is part of this complicated story.`\
+`If you buy squid at a supermarket, or what’s advertised as locally caught calamari in a restaurant, that food is part of a complicated story.`\
 https://nytimes.com/2023/10/22/opinion/calamari-squid-restaurants-china.html?searchResultPosition=7
 
 **A Different Border Crisis Mirrors What’s Happening in the U.S.**\
