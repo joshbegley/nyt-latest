@@ -23,7 +23,7 @@ https://nytimes.com/2023/10/22/arts/music/philadelphia-musicians-reach-agreement
 https://nytimes.com/2023/10/22/us/politics/tim-scott-israel-ukraine-aid.html?searchResultPosition=6
 
 **Israeli Reservist From Maryland Is Killed Near Lebanon Border**\
-`Omer Balva, 22, was among the 360,000 reservists Israel has mobilized. He was near Israel’s northern border when his unit was struck by anti-tank missile fire, the Israeli military said.`\
+`Omer Balva, 22, was among the 360,000 reservists Israel had mobilized. He was near Israel’s northern border when his unit was struck by anti-tank missile fire, the Israeli military said.`\
 https://nytimes.com/2023/10/22/world/middleeast/omer-balva-maryland-israel-reservist.html?searchResultPosition=7
 
 **At the Met, a Refurbished ‘Bohème’ and an Art Deco ‘Ballo’**\
