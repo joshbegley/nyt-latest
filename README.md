@@ -1,40 +1,40 @@
-**Here’s the latest on the war.**\
-`By Vivek Shankar`\
-https://nytimes.com/live/2023/10/22/world/israel-hamas-war-gaza-news/heres-the-latest-on-the-war?searchResultPosition=1
+**The Spirited History of ‘Ghost’**\
+`‘Ghost’ is a word that won’t soon fade from the pop-culture lexicon.`\
+https://nytimes.com/2023/10/22/insider/the-history-of-ghost.html?searchResultPosition=1
 
-**‘S.N.L’ Welcomes Bad Bunny and Mick Jagger**\
-`Bad Bunny was the host and musical guest in an episode that included cameos from Jagger and Pedro Pascal.`\
-https://nytimes.com/2023/10/22/arts/television/saturday-night-live-bad-bunny.html?searchResultPosition=2
+**Drone Warfare Comes to Washington’s Opera Stage**\
+`“Grounded,” by Jeanine Tesori and George Brant, is premiering at Washington National Opera after attracting criticism over sponsorship.`\
+https://nytimes.com/2023/10/22/arts/music/grounded-washington-national-opera.html?searchResultPosition=2
 
-**Corrections: Oct. 22, 2023**\
-`Corrections that appeared in print on Sunday, Oct. 22, 2023.`\
-https://nytimes.com/2023/10/22/pageoneplus/corrections-oct-22-2023.html?searchResultPosition=3
+**George Santos Swore He’d Never Talk to Me. Then the Phone Rang.**\
+`Ending months of silence, the politician began an unusual dialogue with a reporter he had long avoided.`\
+https://nytimes.com/2023/10/22/nyregion/george-santos-interview.html?searchResultPosition=3
 
-**Quotation of the Day: For the Future of Maui, Native Hawaiians Push for Honoring Its Past**\
-`Quotation of the Day for Sunday, October 22, 2023.`\
-https://nytimes.com/2023/10/22/pageoneplus/quotation-of-the-day-for-the-future-of-maui-native-hawaiians-push-for-honoring-its-past.html?searchResultPosition=4
+**‘While He Waited, He Turned His Gaze in Our Direction’**\
+`An encounter with André Watts, a holiday invitation from a cabby and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2023/10/22/nyregion/metropolitan-diary.html?searchResultPosition=4
 
-**A New York City cultural venue pulled an event with an acclaimed writer who criticized Israel.**\
-`By Jennifer Schuessler`\
-https://nytimes.com/live/2023/10/21/world/israel-hamas-war-gaza-news/a-new-york-city-cultural-venue-pulled-an-event-with-an-acclaimed-writer-who-criticized-israel?searchResultPosition=5
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2023/10/22/crosswords/wordle-review.html?searchResultPosition=5
 
-**Tompkins Square Dog Parade Draws Thousands After Near-Cancellation**\
-`After almost being canceled because of financial constraints, about 15,000 people and more than 600 pups turned out for the annual parade on Saturday — nearly doubling last year’s attendance.`\
-https://nytimes.com/2023/10/21/nyregion/dog-parade.html?searchResultPosition=6
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2023/10/22/crosswords/connections-companion.html?searchResultPosition=6
 
-**After Bruising Vote, Indigenous Australians Say ‘Reconciliation Is Dead’**\
-`The rejection of the Indigenous Voice to Parliament is likely to lead to an irreversible shift in the nation’s relationship with its first peoples.`\
-https://nytimes.com/2023/10/21/world/australia/indigenous-voice-reconciliation-dead.html?searchResultPosition=7
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/10/22/crosswords/spelling-bee-forum.html?searchResultPosition=7
 
-**First Humanitarian Aid Reaches a Hard-Pressed Gaza**\
-`But the 20-truck shipment of food, water and medical supplies is only a fraction of what is needed to head off a catastrophe, officials say.`\
-https://nytimes.com/2023/10/21/world/middleeast/humanitarian-aid-gaza-israel-cairo.html?searchResultPosition=8
+**A Glimpse Into Spain’s Future, Where Water Comes by Truck, Not Tap**\
+`Residents of Pozoblanco and 22 other villages in the country’s south have had to get their drinking water from tankers since April, when the reservoir serving the area died.`\
+https://nytimes.com/2023/10/22/world/europe/spain-drought-water.html?searchResultPosition=8
 
-**Tensions rise as deadly skirmishes continue along Lebanon border.**\
-`By Liam Stack and Aaron Boxerman`\
-https://nytimes.com/live/2023/10/22/world/israel-hamas-war-gaza-news/tensions-rise-as-deadly-skirmishes-continue-along-lebanon-border?searchResultPosition=9
+**Stories on Living Small, at Large**\
+`In a biweekly column for Real Estate, Julie Lasky and Tim McKeough dispense advice and profile people making the most of homes short on one key feature: square footage.`\
+https://nytimes.com/2023/10/22/insider/living-small-column.html?searchResultPosition=9
 
-**You’re Onto Something**\
-`Robert Ryan’s Sunday puzzle paints a pretty picture.`\
-https://nytimes.com/2023/10/21/crosswords/daily-puzzle-2023-10-22.html?searchResultPosition=10
+**Hulu, HBO and Apple TV+ Know What You’re Going Through at Work**\
+`Workplace shows, a hit genre of the streaming era, are homing in on a knotty question: Do you have to sacrifice personal happiness to excel at your job?`\
+https://nytimes.com/2023/10/22/style/hulu-hbo-and-apple-tv-know-what-youre-going-through-at-work.html?searchResultPosition=10
 
