@@ -31,7 +31,7 @@ https://nytimes.com/2023/10/22/crosswords/connections-companion.html?searchResul
 https://nytimes.com/2023/10/22/crosswords/spelling-bee-forum.html?searchResultPosition=8
 
 **A Glimpse Into Spain’s Future, Where Water Comes by Truck, Not Tap**\
-`Residents of Pozoblanco and 22 other villages in the country’s south have had to get their drinking water from tankers since April, when the reservoir serving the area died.`\
+`Residents of Pozoblanco and 22 other villages in the country’s south have had to get their drinking water from tankers since April, when the reservoir serving the area dried up.`\
 https://nytimes.com/2023/10/22/world/europe/spain-drought-water.html?searchResultPosition=9
 
 **Stories on Living Small, at Large**\
