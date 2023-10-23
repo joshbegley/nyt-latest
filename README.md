@@ -11,7 +11,7 @@ https://nytimes.com/2023/10/23/business/chevron-hess-acquisition.html?searchResu
 https://nytimes.com/2023/10/23/podcasts/the-daily/the-problem-with-a-2-trillion-deficit.html?searchResultPosition=3
 
 **Editors’ Note: Gaza Hospital Coverage**\
-`The Times’s initial accounts oattributed the claim of Israeli responsibility to Palestinian officials, and noted that the Israeli military said it was investigating the blast.`\
+`The Times’s initial accounts attributed the claim of Israeli responsibility to Palestinian officials, and noted that the Israeli military said it was investigating the blast.`\
 https://nytimes.com/2023/10/23/pageoneplus/editors-note-gaza-hospital-coverage.html?searchResultPosition=4
 
 **‘The Headlines’ in the A.M. Will Return Soon**\
