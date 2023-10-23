@@ -15,7 +15,7 @@ https://nytimes.com/2023/10/23/podcasts/the-daily/the-problem-with-a-2-trillion-
 https://nytimes.com/2023/10/23/pageoneplus/editors-note-gaza-hospital-coverage.html?searchResultPosition=4
 
 **‘The Headlines’ in the A.M. Will Return Soon**\
-`Hear about our new afternoon war briefing.`\
+`Hear about our new special afternoon spinoff.`\
 https://nytimes.com/2023/10/23/podcasts/headlines-nyt-audio-app.html?searchResultPosition=5
 
 **The People Who Broke the House**\
