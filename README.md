@@ -1,5 +1,5 @@
 **92NY Halts Reading Series After Pulling Author Critical of Israel**\
-`The organization put its literary series on pause after its decision not to hold an event last week with an author who had criticized Israel prompted an outcry from other writers.`\
+`The organization put its literary series on pause after several writers said they would withdraw from events to protest the Y’s decision not to hold an event last week with an author who had criticized Israel.`\
 https://nytimes.com/2023/10/23/arts/92ny-pauses-season-israel-hamas-war.html?searchResultPosition=1
 
 **Israel shows the raw footage from body cameras and dashcams of the Oct. 7 attacks.**\
