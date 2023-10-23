@@ -22,7 +22,7 @@ https://nytimes.com/2023/10/23/opinion/israel-hamas-gaza.html?searchResultPositi
 `The Democratic governor is supercharging climate policy and eyeing a future White House run. But critics say some of his constituents could be left behind.`\
 https://nytimes.com/2023/10/23/climate/gavin-newsom-california-climate-action.html?searchResultPosition=6
 
-**Leftist Upstart Threatens to Shake up German Politics With Her Own**\
+**Leftist Upstart Threatens to Shake up German Politics**\
 `Sahra Wagenknecht has announced a new party, which could become another populist force scrambling German politics.`\
 https://nytimes.com/2023/10/23/world/europe/germany-leftist-populist-party-wagenknecht.html?searchResultPosition=7
 
