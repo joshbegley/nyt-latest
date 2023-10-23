@@ -14,8 +14,8 @@ https://nytimes.com/2023/10/23/podcasts/the-daily/the-problem-with-a-2-trillion-
 `The Times’s initial accounts oattributed the claim of Israeli responsibility to Palestinian officials, and noted that the Israeli military said it was investigating the blast.`\
 https://nytimes.com/2023/10/23/pageoneplus/editors-note-gaza-hospital-coverage.html?searchResultPosition=4
 
-**‘The Headlines’ Will Return Soon**\
-`Hear about our new “Israel-Hamas War Briefing,” a show with a new episode every afternoon.`\
+**‘The Headlines’ in the A.M. Will Return Soon**\
+`Hear about our new afternoon war briefing.`\
 https://nytimes.com/2023/10/23/podcasts/headlines-nyt-audio-app.html?searchResultPosition=5
 
 **The People Who Broke the House**\
