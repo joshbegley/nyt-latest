@@ -15,7 +15,7 @@ https://nytimes.com/2023/10/23/arts/music/evian-christ-revanchist.html?searchRes
 https://nytimes.com/2023/10/23/world/asia/train-accident-bangladesh.html?searchResultPosition=4
 
 **92NY Halts Literary Series After Pulling Author Critical of Israel**\
-`The organization put the series on pause after several writers said they would withdraw from events to protest the Y’s decision not to hold an event last week with an author who had criticized Israel.`\
+`The organization put the series on pause after several writers withdrew from events to protest its decision not to hold a reading last week with an author who had criticized Israel.`\
 https://nytimes.com/2023/10/23/arts/92ny-pauses-season-israel-hamas-war.html?searchResultPosition=5
 
 **Israel shows the raw footage from body cameras and dashcams of the Oct. 7 attacks.**\
