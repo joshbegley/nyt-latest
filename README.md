@@ -16,7 +16,7 @@ https://nytimes.com/2023/10/23/business/media/writers-guild-israel-hamas.html?se
 
 **Hamas releases two women, but keeps their husbands in custody.**\
 `By Aaron Boxerman and Talya Minsberg`\
-https://nytimes.com/live/2023/10/23/world/israel-hamas-war-gaza-news/hamas-hostage-release?searchResultPosition=5
+https://nytimes.com/live/2023/10/22/world/israel-hamas-war-gaza-news/hamas-hostage-release?searchResultPosition=5
 
 **Behind the Editors’ Note on Gaza Hospital Coverage**\
 `Joe Kahn, the executive editor of The New York Times, speaks to Lulu Garcia-Navarro about The Times’s early coverage of an explosion at a hospital in Gaza City, and where the paper fell short.`\
