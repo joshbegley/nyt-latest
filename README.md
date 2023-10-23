@@ -1,40 +1,40 @@
-**How High Interest Rates Sting Bakers, Farmers and Consumers**\
-`Everyone who relies on credit in America is confronting a new reality: Money will cost more for a good long while.`\
-https://nytimes.com/2023/10/23/business/economy/interest-rates-economy.html?searchResultPosition=1
+**The People Who Broke the House**\
+`As the House speaker crisis drags on into a fourth week, a look at some of the Republicans who have mired the country in this mess.`\
+https://nytimes.com/2023/10/23/opinion/house-speaker-republicans.html?searchResultPosition=1
 
-**They Wished to Be Buried in Israel. But They Died on the Eve of War.**\
-`Inside the complicated logistics of sending American Jews to cemeteries in the Holy Land.`\
-https://nytimes.com/2023/10/23/nyregion/jewish-burials-israel-americans.html?searchResultPosition=2
+**Kill and Be Killed: Ukraine’s Bloody Battlefield Equation**\
+`The dynamics of Europe’s deadliest war in generations remain exceedingly violent and increasingly complicated by factors far from the battlefield.`\
+https://nytimes.com/2023/10/23/world/europe/ukraine-russia-war.html?searchResultPosition=2
 
-**When Campaign Cash Withers**\
-`When campaign coffers dry up, candidates are sometimes forced to scale back their operations — or pull the plug.`\
-https://nytimes.com/interactive/2023/10/23/us/politics/campaign-finance-2024.html?searchResultPosition=3
+**Fight for Speaker Reveals Four Types of House Republicans**\
+`Jim Jordan’s bid showed the power of the ultraconservative faction in Congress.`\
+https://nytimes.com/2023/10/23/upshot/house-speaker-republicans-jordan.html?searchResultPosition=3
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2023/10/23/crosswords/connections-companion.html?searchResultPosition=4
+**If Trump Trial Isn’t Broadcast Live, a Plea to Record It for Posterity**\
+`A request to broadcast one of Donald Trump’s federal trials made an intriguing backup argument, one rooted not in the news cycle but in ensuring a complete historical record.`\
+https://nytimes.com/2023/10/23/us/politics/trump-trial-tv.html?searchResultPosition=4
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/10/23/crosswords/spelling-bee-forum.html?searchResultPosition=5
+**Developing World Sees Double Standard in West’s Actions in Gaza and Ukraine**\
+`Resentments are complicating calls by the Biden administration to rally the world against efforts to “annihilate” democracies.`\
+https://nytimes.com/2023/10/23/us/ukraine-gaza-global-south-hypocrisy.html?searchResultPosition=5
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2023/10/23/crosswords/wordle-review.html?searchResultPosition=6
+**Republicans Grapple With Being Speakerless, but Effectively Leaderless, Too**\
+`With a speaker fight in the House, concerns about an aging Senate leader and a 2024 front-runner who has the party in a vise grip, some G.O.P. members worry the turmoil could have long-term effects.`\
+https://nytimes.com/2023/10/23/us/politics/republicans-speaker-2024-elections.html?searchResultPosition=6
 
-**Here’s the latest on the war.**\
-`By Vivek Shankar`\
-https://nytimes.com/live/2023/10/23/world/israel-hamas-war-gaza-news/heres-the-latest-on-the-war?searchResultPosition=7
+**Thurston Moore Revisits His Sonic Youth**\
+`In a new memoir, the rock luminary details his long career and the music that shaped him.`\
+https://nytimes.com/2023/10/23/books/review/thurston-moore-sonic-life.html?searchResultPosition=7
 
-**Word of the Day: plaudit**\
-`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/10/23/learning/word-of-the-day-plaudit.html?searchResultPosition=8
+**Why the World Is Watching Iran**\
+`As Iran rages over the mounting casualties in Gaza, fears are growing that its on-again-off-again proxy war with Israel will break out into a sustained conflict.`\
+https://nytimes.com/2023/10/23/opinion/gaza-hamas-hezbollah-iran.html?searchResultPosition=8
 
-**What’s on TV This Week: ‘Fellow Travelers’ and ‘Winter House’**\
-`Showtime premieres a new show about a romance in the 1950s. The Bravo reality show is back with a new cast.`\
-https://nytimes.com/2023/10/23/arts/television/whats-on-tv-this-week-fellow-travelers-and-winter-house.html?searchResultPosition=9
+**Why Do Women Still Wear Stilettos?**\
+`A reader wonders why the uncomfortable and often impractical shoes have not been retired.`\
+https://nytimes.com/2023/10/23/style/stilettos-high-heels.html?searchResultPosition=9
 
-**A Project Supporting Migrants Was Cost Effective. Why Did It End?**\
-`Britain tested an alternative to detention for people living outside the immigration system. Though praised by the U.N., its outcomes didn’t fit the government’s hard-line approach.`\
-https://nytimes.com/2023/10/23/world/europe/uk-undocumented-immigrants-detention.html?searchResultPosition=10
+**$900,000 Homes in California**\
+`A 1927 bungalow in Oakland, a two-bedroom condominium in Los Angeles and a mobile home in Agoura Hills.`\
+https://nytimes.com/2023/10/23/realestate/900000-homes-in-california.html?searchResultPosition=10
 
