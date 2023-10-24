@@ -27,7 +27,7 @@ https://nytimes.com/2023/10/24/us/california-central-coast-marine-sanctuary.html
 https://nytimes.com/2023/10/24/style/louis-vuitton-america-cup-yacht-race-2024.html?searchResultPosition=7
 
 **Divided House Republicans Meet Yet Again to Choose a Speaker**\
-`The House G.O.P. was set to meet behind closed doors to grind through multiple votes to find a nominee for speaker, with eight of their members vying for the post.`\
+`The House G.O.P. was meeting behind closed doors to grind through multiple votes to find a nominee for speaker, with eight of their members vying for the post.`\
 https://nytimes.com/2023/10/24/us/politics/house-speaker-election.html?searchResultPosition=8
 
 **Israel’s military says it is prepared for a ground offensive.**\
