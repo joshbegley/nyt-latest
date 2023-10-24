@@ -1,40 +1,40 @@
-**Late Night Finds the House Speaker Pool Lacking in Diversity**\
-`Stephen Colbert named actual candidates for the job before switching to made-up politicians — “and literally no one knows when I did, including me.”`\
-https://nytimes.com/2023/10/24/arts/television/late-night-house-speaker.html?searchResultPosition=1
+**Trump and Cohen to Meet Again, This Time as Enemies at Trial**\
+`Michael D. Cohen once said he would take a bullet for the former president. Instead, he’s giving testimony against him.`\
+https://nytimes.com/2023/10/24/nyregion/trump-michael-cohen-fraud-trial.html?searchResultPosition=1
 
-**‘Honest Mistake,’ Says U.S. Politician Arrested on Gun Charge in Hong Kong**\
-`A Washington state senator, Jeff Wilson, said he discovered the pistol on his flight and notified customs officials at the Hong Kong airport.`\
-https://nytimes.com/2023/10/24/world/asia/hong-kong-washington-senator-arrest.html?searchResultPosition=2
+**A Debate Brews Over Curbing Pollution by N.Y.C. Buildings**\
+`Regulators are putting the finishing touches on Local Law 97, which takes effect next year, and aims to restrict greenhouse gases from buildings.`\
+https://nytimes.com/2023/10/24/nyregion/local-law-97-nyc-environment.html?searchResultPosition=2
 
-**Word of the Day: quirky**\
-`This word has appeared in 319 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2023/10/24/learning/word-of-the-day-quirky.html?searchResultPosition=3
+**Carving Pumpkins**\
+`How do you celebrate Halloween?`\
+https://nytimes.com/2023/10/24/learning/carving-pumpkins.html?searchResultPosition=3
 
-**Tuesday Briefing**\
-`Israel ramps up Gaza strikes.`\
-https://nytimes.com/2023/10/24/briefing/gaza-israel-germany-politics.html?searchResultPosition=4
+**New Normal or No Normal? How Economists Got It Wrong for 3 Years.**\
+`Economists first underestimated inflation, then underestimated consumers and the labor market. The key question is why.`\
+https://nytimes.com/2023/10/24/business/economy/economy-interest-rates-inflation.html?searchResultPosition=4
 
-**Coming of Age in Ukraine**\
-`Each age group has suffered through the war, but for young adults it has been particularly hard — and not just for those who have served on the frontline.`\
-https://nytimes.com/2023/10/24/world/europe/ukraine-war-young-adults.html?searchResultPosition=5
+**How Aid in Dying Became Medical, Not Moral**\
+`The debate over aid in dying still rages in the language that medicine and the media use to describe the practice.`\
+https://nytimes.com/2023/10/24/science/medical-dying-suicide.html?searchResultPosition=5
 
-**Jamaica Fears Brain Drain as Teachers Leave for U.S. Schools**\
-`Severe teacher shortages in the United States are prompting schools to recruit foreign teachers, sparking fears that education in Jamaica will suffer.`\
-https://nytimes.com/2023/10/24/world/americas/jamaica-teacher-shortage.html?searchResultPosition=6
+**With Rent Out of Reach, a Back Seat Becomes a Bedroom**\
+`For a Times journalist, months of reporting led to surprising discoveries about the growing number of Americans who, amid a nationwide housing crisis, live in their cars.`\
+https://nytimes.com/2023/10/24/insider/housing-crisis-cars.html?searchResultPosition=6
 
-**Energy Agency Sees Peaks in Global Oil, Coal and Gas Demand By 2030**\
-`The prediction, which has stirred controversy among oil producers, is a sign of a sweeping transformation in the global energy landscape.`\
-https://nytimes.com/2023/10/24/climate/international-energy-agency-peak-demand.html?searchResultPosition=7
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2023/10/24/crosswords/spelling-bee-forum.html?searchResultPosition=7
 
-**Corrections: Oct. 24, 2023**\
-`Corrections that appeared in print on Tuesday, Oct. 24, 2023.`\
-https://nytimes.com/2023/10/23/pageoneplus/corrections-oct-24-2023.html?searchResultPosition=8
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2023/10/24/crosswords/connections-companion.html?searchResultPosition=8
 
-**Quotation of the Day: Assumptions on Israel and the Palestinians Are Smashed by War**\
-`Quotation of the Day for Tuesday, October 24, 2023.`\
-https://nytimes.com/2023/10/23/pageoneplus/quotation-of-the-day-assumptions-on-israel-and-the-palestinians-are-smashed-by-war.html?searchResultPosition=9
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2023/10/24/crosswords/wordle-review.html?searchResultPosition=9
 
-**Quotation of the Day: Borrowers Start to Process High Rates Won’t Fall Soon**\
-`Quotation of the Day for Monday, October 23, 2023.`\
-https://nytimes.com/2023/10/23/pageoneplus/quotation-of-the-day-borrowers-start-to-process-high-rates-wont-fall-soon.html?searchResultPosition=10
+**See You Later, Not-an-Alligator**\
+`Caimans are an invasive species in Florida, where they ran wild over half a century ago. Researchers known as the Croc Docs may be close to helping eradicate them.`\
+https://nytimes.com/2023/10/24/science/caiman-invasive-species-florida.html?searchResultPosition=10
 
