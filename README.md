@@ -1,6 +1,6 @@
 **Jenna Ellis, Former Trump Lawyer, Pleads Guilty in Georgia Election Case**\
 `Three lawyers indicted with Donald Trump for trying to overturn the 2020 election results will now cooperate with prosecutors in the racketeering case.`\
-https://nytimes.com/2023/10/24/us/jenna-ellis-guilty-georgia-election-trump.html?searchResultPosition=1
+https://nytimes.com/2023/10/24/us/jenna-ellis-guilty-trump-georgia.html?searchResultPosition=1
 
 **María José Llergo’s Songs Have Flamenco Roots. They Raise a Ruckus.**\
 `This Spanish singer’s debut, “Ultrabelleza,” experiments with a signature genre of her Andalusian homeland, creating an unexpected homage.`\
