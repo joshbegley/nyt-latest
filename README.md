@@ -1,4 +1,4 @@
-**Behind a Proposal to Create a Marine Sanctuary Off California’s Central Coast**\
+**Behind a Proposal to Create a Marine Sanctuary Along California’s Central Coast**\
 `The Chumash Heritage National Marine Sanctuary would be a tribal-led effort that would protect more than 7,500 square miles on and offshore.`\
 https://nytimes.com/2023/10/24/us/california-central-coast-marine-sanctuary.html?searchResultPosition=1
 
