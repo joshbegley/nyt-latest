@@ -12,7 +12,7 @@ https://nytimes.com/2023/10/24/us/california-central-coast-marine-sanctuary.html
 
 **Louis Vuitton Strikes Another Major Deal in Sports**\
 `The luxury brand will sponsor the prestigious America’s Cup yacht race in 2024 — the same year it sponsors the Olympics.`\
-https://nytimes.com/2023/10/24/style/louis-vuitton-strikes-another-major-deal-in-sports.html?searchResultPosition=4
+https://nytimes.com/2023/10/24/style/louis-vuitton-america-cup-yacht-race-2024.html?searchResultPosition=4
 
 **Divided House Republicans Meet Yet Again to Choose a Speaker**\
 `The House G.O.P. was set to meet behind closed doors to grind through multiple votes to find a nominee for speaker, with eight of their members vying for the post.`\
