@@ -1,40 +1,40 @@
-**Stabbed. Kicked. Spit On. Violence in American Hospitals Is Out of Control.**\
-`Emergency rooms are among the most dangerous workplaces in the United States.`\
-https://nytimes.com/video/opinion/100000009120996/emergency-room-hospitals-violence-attacks.html?searchResultPosition=1
+**Millennials and Gen Z Are Tilting Left and Staying There**\
+`Younger voters may get more conservative as they age, but that doesn’t mean they will become Republicans.`\
+https://nytimes.com/2023/10/24/opinion/gen-z-millennials-republicans.html?searchResultPosition=1
 
-**Here’s the latest on the war.**\
-`By Nadav Gavrielov`\
-https://nytimes.com/live/2023/10/24/world/israel-hamas-war-gaza-news/heres-the-latest-on-the-war?searchResultPosition=2
+**In Tight G.O.P. Primary in Ohio, Newt Gingrich Picks His Candidate**\
+`Three Ohio Republicans are competing in the Senate primary. Mr. Gingrich plans to back Bernie Moreno, a businessman who is a relative political newcomer.`\
+https://nytimes.com/2023/10/24/us/politics/gingrich-ohio-senate-primary.html?searchResultPosition=2
 
-**Trump and Cohen to Meet Again, This Time as Enemies at Trial**\
-`Michael D. Cohen once said he would take a bullet for the former president. Instead, he’s giving testimony against him.`\
-https://nytimes.com/2023/10/24/nyregion/trump-michael-cohen-fraud-trial.html?searchResultPosition=3
+**Israel Says It Will Destroy Hamas. But Who Will Govern Gaza?**\
+`Israel has set itself a stiff challenge in aiming to vanquish Hamas. But an even bigger question looms: Once in Gaza, how and when does Israel get out?`\
+https://nytimes.com/2023/10/24/world/europe/israel-hamas-gaza-war.html?searchResultPosition=3
 
-**A Debate Brews Over Curbing Pollution by N.Y.C. Buildings**\
-`Regulators are putting the finishing touches on Local Law 97, which takes effect next year, and aims to restrict greenhouse gases from buildings.`\
-https://nytimes.com/2023/10/24/nyregion/local-law-97-nyc-environment.html?searchResultPosition=4
+**We’re Disconnected and Lonely. David Brooks Has a Solution.**\
+`Become such a good listener you’re “burning calories.”`\
+https://nytimes.com/2023/10/24/opinion/were-disconnected-and-lonely-david-brooks-has-a-solution.html?searchResultPosition=4
 
-**Carving Pumpkins**\
-`How do you celebrate Halloween?`\
-https://nytimes.com/2023/10/24/learning/carving-pumpkins.html?searchResultPosition=5
+**‘It’s Like Our Country Exploded’: Canada’s Year of Fire**\
+`Endless evacuations, unimaginable smoke and heat, 45 million acres burned — is this the nation’s new normal?`\
+https://nytimes.com/2023/10/24/magazine/canada-wildfires.html?searchResultPosition=5
 
-**New Normal or No Normal? How Economists Got It Wrong for 3 Years.**\
-`Economists first underestimated inflation, then underestimated consumers and the labor market. The key question is why.`\
-https://nytimes.com/2023/10/24/business/economy/economy-interest-rates-inflation.html?searchResultPosition=6
+**How the Right’s Purity Tests Are Haunting the House G.O.P.**\
+`The question for House Republicans is: Does anybody here want to play this game?`\
+https://nytimes.com/2023/10/24/opinion/house-republican-elect-speaker.html?searchResultPosition=6
 
-**How Aid in Dying Became Medical, Not Moral**\
-`The debate over aid in dying still rages in the language that medicine and the media use to describe the practice.`\
-https://nytimes.com/2023/10/24/science/medical-dying-suicide.html?searchResultPosition=7
+**Two Illinois Parishes Live on Either Side of a Catholic Divide**\
+`As the pope and church leaders meet in Rome to discuss the Roman Catholic Church’s future, they face a chasm between conservatives and progressives in the pews.`\
+https://nytimes.com/2023/10/24/us/catholic-church-pope-francis-vatican-synod-rome-chicago.html?searchResultPosition=7
 
-**With Rent Out of Reach, a Back Seat Becomes a Bedroom**\
-`For a Times journalist, months of reporting led to surprising discoveries about the growing number of Americans who, amid a nationwide housing crisis, live in their cars.`\
-https://nytimes.com/2023/10/24/insider/housing-crisis-cars.html?searchResultPosition=8
+**The Soothing Futility of Picking Up Beach Trash**\
+`The simple act of picking up trash, I’ve found, has an outsize effect on my worrying over climate change and ecological catastrophe.`\
+https://nytimes.com/2023/10/24/opinion/plastic-pollution-beaches-trash.html?searchResultPosition=8
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2023/10/24/crosswords/spelling-bee-forum.html?searchResultPosition=9
+**When a Book Deal Feels Like ‘Winning the Middle-Age Lottery’**\
+`Dann McDorman, the executive producer of “The Beat With Ari Melber,” gave up writing fiction in his 20s. Now, he’s publishing his first novel at age 47.`\
+https://nytimes.com/2023/10/24/books/dann-mcdorman-west-heart-kill.html?searchResultPosition=9
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2023/10/24/crosswords/connections-companion.html?searchResultPosition=10
+**The Jewish Left Is Trying to Hold Two Thoughts at Once**\
+`Spencer Ackerman and Peter Beinart navigate the tensions between grief and solidarity in the aftermath of Hamas’s Oct. 7 attack.`\
+https://nytimes.com/2023/10/24/opinion/ezra-klein-podcast-spencer-ackerman-peter-beinart.html?searchResultPosition=10
 
