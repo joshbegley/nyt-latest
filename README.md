@@ -1,4 +1,4 @@
-**Earlier this week, Nikki Haley pledged she would not drop out if she loses in South Carolina.**\
-`By Jazmine Ulloa`\
-https://nytimes.com/live/2024/02/24/us/south-carolina-republican-primary/earlier-this-week-nikki-haley-pledged-she-would-not-drop-out-if-she-loses-in-south-carolina?searchResultPosition=1
+**Ukraine’s Deepening Fog of War**\
+`Two years after Russia’s full-scale invasion, Ukrainian leaders are seeking a path forward in the face of ferocious assaults and daunting unknowns.`\
+https://nytimes.com/2024/02/24/world/europe/ukraine-russia-war.html?searchResultPosition=1
 
