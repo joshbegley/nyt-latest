@@ -1,4 +1,4 @@
-**Nikki Haley Forges Ahead Despite Another Loss: ‘I Am a Woman of My Word’**\
-`Striking a more serious tone, Ms. Haley said she would continue her campaign despite a heavy defeat to Donald Trump in South Carolina, her home state.`\
-https://nytimes.com/2024/02/24/us/politics/nikki-haley-south-carolina-speech.html?searchResultPosition=8
+**In South Carolina, Haley and Trump Changed Their Tune**\
+`Nikki Haley’s fortitude after losing her home state on Saturday looked more like stubborn grit and determination than upbeat confidence. Donald J. Trump didn’t even mention her, let alone insult her.`\
+https://nytimes.com/2024/02/24/us/politics/haley-trump-speeches-south-carolina.html?searchResultPosition=1
 
