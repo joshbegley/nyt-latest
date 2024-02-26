@@ -1,12 +1,16 @@
+**The war cabinet approved a plan to provide humanitarian aid in Gaza as well.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/02/26/world/israel-hamas-war-gaza-news/the-war-cabinet-approved-a-plan-to-provide-humanitarian-aid-in-gaza-as-well?searchResultPosition=1
+
 **‘Oppenheimer’ Wins Producers Guild Award. Is the Best-Picture Oscar Next?**\
 `With the victory, the Christopher Nolan biopic has swept the guild prizes, a strong predictor of its chances at the Academy Awards.`\
-https://nytimes.com/2024/02/26/movies/oppenheimer-producers-guild-awards.html?searchResultPosition=1
+https://nytimes.com/2024/02/26/movies/oppenheimer-producers-guild-awards.html?searchResultPosition=2
 
 **Quotation of the Day: Florida Man Is In on the Joke, and Ready to Make a Game of It**\
 `Quotation of the Day for Monday, February 26, 2024.`\
-https://nytimes.com/2024/02/26/pageoneplus/quotation-of-the-day-florida-man-is-in-on-the-joke-and-ready-to-make-a-game-of-it.html?searchResultPosition=2
+https://nytimes.com/2024/02/26/pageoneplus/quotation-of-the-day-florida-man-is-in-on-the-joke-and-ready-to-make-a-game-of-it.html?searchResultPosition=3
 
 **No Corrections: Feb. 26, 2024**\
 `No corrections appeared in print on Monday, Feb. 26, 2024.`\
-https://nytimes.com/2024/02/26/corrections/no-corrections-feb-26-2024.html?searchResultPosition=3
+https://nytimes.com/2024/02/26/corrections/no-corrections-feb-26-2024.html?searchResultPosition=4
 
