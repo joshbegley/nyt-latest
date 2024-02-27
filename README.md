@@ -12,7 +12,7 @@ https://nytimes.com/2024/02/27/style/american-school-ballet-justin-peck.html?sea
 
 **As Spending Talks Intensify, Johnson’s Bind Grows Tighter**\
 `Four months into his job as the top leader in the House, Speaker Mike Johnson finds himself the odd man out in increasingly intense talks on how to fund the government and whether to continue aid to Ukraine.`\
-https://nytimes.com/2024/02/27/us/politics/spending-talks-johnsons.html?searchResultPosition=4
+https://nytimes.com/2024/02/27/us/politics/mike-johnson-shutdown-ukraine.html?searchResultPosition=4
 
 **Criticism of Israel at Berlin Film Festival Stirs Antisemitism Debate**\
 `The backlash to some winners’ speeches at the festival shows how polarized and fraught Germany’s culture scene has become.`\
