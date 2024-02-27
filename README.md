@@ -12,7 +12,7 @@ https://nytimes.com/2024/02/27/nyregion/adams-deport-migrants-crime.html?searchR
 
 **As Michigan Votes, Haley Slams Trump in Colorado and Presses Party Officials**\
 `Ms. Haley, crisscrossing the country in ahead of Super Tuesday next week, sought to pressure the Republican National Committee for transparency over Donald J. Trump’s legal bills.`\
-https://nytimes.com/2024/02/27/us/politics/as-michigan-votes-haley-slams-trump-in-colorado-and-presses-party-officials.html?searchResultPosition=6
+https://nytimes.com/2024/02/27/us/politics/haley-colorado-trump.html?searchResultPosition=6
 
 **Nikki Haley’s Last Ditch**\
 `The former South Carolina governor has good reasons to fight on.`\
