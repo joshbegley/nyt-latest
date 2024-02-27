@@ -24,7 +24,7 @@ https://nytimes.com/2024/02/27/business/wendys-prices-inflation.html?searchResul
 
 **Apple Kills Its Electric Car Project**\
 `The car, which Apple spent billions of dollars researching, had been intended as a rival to Tesla’s E.V.s, which include autonomous driving features.`\
-https://nytimes.com/2024/02/27/technology/personaltech/apple-ends-electric-car-plan.html?searchResultPosition=7
+https://nytimes.com/2024/02/27/technology/apple-ends-electric-car-plan.html?searchResultPosition=7
 
 **2 Men Are Convicted in 2002 Killing of Run-DMC D.J. Jam Master Jay**\
 `Karl Jordan Jr. and Ronald Washington were convicted of fatally shooting the D.J., born Jason Mizell, in his Queens recording studio.`\
