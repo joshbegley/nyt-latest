@@ -10,7 +10,7 @@ https://nytimes.com/2024/02/27/style/no-nazar-party-brooklyn.html?searchResultPo
 `Gov. Philip D. Murphy, who let the 11.5 percent tax expire at the end of last year, will propose bringing it back for corporations with profits of more than $10 million.`\
 https://nytimes.com/2024/02/27/nyregion/new-jersey-transit-taxes.html?searchResultPosition=3
 
-**OpenAI Seeks to DismissParts of The New York Times’s Lawsuit**\
+**OpenAI Seeks to Dismiss Parts of The New York Times’s Lawsuit**\
 `The artificial intelligence start-up argued that its online chatbot, ChatGPT, is not a substitute for a New York Times subscription.`\
 https://nytimes.com/2024/02/27/technology/openai-new-york-times-lawsuit.html?searchResultPosition=4
 
