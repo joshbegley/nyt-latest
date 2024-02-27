@@ -1,40 +1,40 @@
-**What if Mom’s Not to Blame?**\
-`In a recent crop of films and television shows, grown men are obsessed with their mothers — even if they’re not the monsters audiences expect them to be.`\
-https://nytimes.com/2024/02/27/t-magazine/mommy-issues-saltburn-all-of-us-strangers.html?searchResultPosition=1
+**Outfitting Closets When Fewer People Came Out of Them**\
+`Michael Salem built a retail business by selling to customers like male cross-dressers and transgender women at a time when serving both was more taboo.`\
+https://nytimes.com/2024/02/27/style/cross-dressing-trans-fashion.html?searchResultPosition=1
 
-**The Timeless Ease of Suede**\
-`A soft, supple hide lends both loafers and lace-ups a laid-back attitude.`\
-https://nytimes.com/2024/02/27/t-magazine/suede-loafers-shoes.html?searchResultPosition=2
+**An Emboldened F.T.C. Bolsters Biden’s Efforts to Address Inflation**\
+`With few unilateral options and little hope of legislation from Congress, the president’s early investment in competition policy could pay a political dividend.`\
+https://nytimes.com/2024/02/27/us/politics/biden-ftc-competition-mergers.html?searchResultPosition=2
 
-**A Designer’s Endlessly Versatile Clothes**\
-`The London-based Charlie Constantinou creates shape-shifting garments with zippers and detachable legs.`\
-https://nytimes.com/2024/02/27/t-magazine/charlie-constantinou.html?searchResultPosition=3
+**The Scars Left From a Shooting at a Street Protest**\
+`A new investigative film examines what happened when a woman was killed at a 2022 demonstration in Portland, Ore.`\
+https://nytimes.com/live/2024/02/20/opinion/thepoint/portland-protest-shooting?searchResultPosition=3
 
-**High-Stakes Capers Starring Low-Wage Workers**\
-`Adelle Waldman’s “Help Wanted” and Madeleine Gray’s “Green Dot” skewer the modern workplace.`\
-https://nytimes.com/2024/02/27/books/review/green-dot-madeleine-gray-help-wanted-adelle-waldman.html?searchResultPosition=4
+**Trump Gave Evangelicals Dobbs. They Don’t Seem Satisfied.**\
+`What the former president says is less important than what key parts of the Republican coalition want.`\
+https://nytimes.com/2024/02/27/opinion/trump-alabama-ivf-embryos.html?searchResultPosition=4
 
-**What Are Your Favorite Local Businesses?**\
-`Bookstores, pizza joints, Chinese restaurants, vintage shops, toy stores or anything else. What local spots do you want to celebrate?`\
-https://nytimes.com/2024/02/27/learning/what-are-your-favorite-local-businesses.html?searchResultPosition=5
+**Mercury Pollution Is Falling, but Not in Tuna. This Might Be Why.**\
+`Old accumulations of the toxic metal in the deep sea are circulating into shallower waters where the fish feed, new research found.`\
+https://nytimes.com/2024/02/27/climate/tuna-mercury.html?searchResultPosition=5
 
-**Dancing on the Rooftops of New York in a Rediscovered Short Film**\
-`Louis Johnson, the choreographer of “The Wiz,” could “outdance anyone.” Watch two rarely seen performances here.`\
-https://nytimes.com/2024/02/27/opinion/louis-johnson-dance-ballet.html?searchResultPosition=6
+**I.V.F. Is a Miracle. For Republicans, It Is a Land Mine.**\
+`I believe children are miraculous blessings and that science is one way miracles are made possible.`\
+https://nytimes.com/2024/02/27/opinion/ivf-alabama-republicans.html?searchResultPosition=6
 
-**Some of the Best Bards Were Women**\
-`In “Shakespeare’s Sisters,” the Renaissance scholar Ramie Targoff presents an astounding group of Elizabethan women of letters.`\
-https://nytimes.com/2024/02/27/books/review/shakespeares-sisters-ramie-targoff.html?searchResultPosition=7
+**Corner Offices Are Out; Collaboration Is In. Say Hello to the New Law Firm.**\
+`The resiliency of remote work has prompted large law firms to rethink their real estate footprint, shedding space even as they bulk up their head count.`\
+https://nytimes.com/2024/02/27/business/law-firms-office-space.html?searchResultPosition=7
 
-**Kirsten Bakis’s Long-Awaited Second Novel Is a Busy Gothic Noir**\
-`Decades after “Lives of the Monster Dogs” comes “King Nyx,” where the wife of a paranormal researcher explores why girls have gone missing from a remote island.`\
-https://nytimes.com/2024/02/27/books/review/king-nyx-kirsten-bakis.html?searchResultPosition=8
+**China’s Electric Vehicles Are Going to Hit Detroit Like a Wrecking Ball**\
+`Do we really want America to become a backwater of bloated, expensive, gas-guzzling cars?`\
+https://nytimes.com/2024/02/27/opinion/gm-ford-electric-vehicles.html?searchResultPosition=8
 
-**How Do I Get Rid of the ‘Chicken Skin’ on My Arms and Legs?**\
-`Keratosis pilaris is a common skin condition. It’s also easily treated at home.`\
-https://nytimes.com/2024/02/27/well/live/how-do-i-get-rid-of-the-chicken-skin-on-my-arms-and-legs.html?searchResultPosition=9
+**Myth and Reality in Israel’s Hostage Negotiations**\
+`It’s been a long time since the Entebbe rescue.`\
+https://nytimes.com/2024/02/27/opinion/israel-hostage-negotiations-entebbe.html?searchResultPosition=9
 
-**Two by Louis Johnson**\
-`Louis Johnson, the choreographer of “The Wiz,” could “outdance anyone.” Watch two rarely seen performances here.`\
-https://nytimes.com/video/opinion/100000009295563/two-by-louis-johnson.html?searchResultPosition=10
+**‘Shogun’ Series Premiere Recap: House of Lords**\
+`When an English ship pilot lands in feudal 1600s Japan, five lords must decide whether he’s an enemy or a useful pawn in their quest for power.`\
+https://nytimes.com/2024/02/27/arts/television/shogun-season-premiere-recap-anjin.html?searchResultPosition=10
 
