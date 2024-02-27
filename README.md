@@ -1,4 +1,4 @@
-**North Carolina‘Forever Chemical’ Plant Violates Human Rights, U.N. Panel Says**\
+**North Carolina ‘Forever Chemical’ Plant Violates Human Rights, U.N. Panel Says**\
 `The allegations of human rights violations linked to pollution from the factory broadens a yearslong battle over the site and over the chemicals known as PFAS.`\
 https://nytimes.com/2024/02/27/climate/pfas-forever-chemicals-north-carolina.html?searchResultPosition=1
 
