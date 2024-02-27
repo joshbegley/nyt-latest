@@ -1,5 +1,5 @@
 **As Michigan Votes, Haley Slams Trump in Colorado and Presses Party Officials**\
-`Ms. Haley, crisscrossing the country in ahead of Super Tuesday next week, sought to pressure the Republican National Committee for transparency over footing Donald J. Trump’s legal bills.`\
+`Ms. Haley, crisscrossing the country in ahead of Super Tuesday next week, sought to pressure the Republican National Committee for transparency over Donald J. Trump’s legal bills.`\
 https://nytimes.com/2024/02/27/us/politics/as-michigan-votes-haley-slams-trump-in-colorado-and-presses-party-officials.html?searchResultPosition=3
 
 **Nikki Haley’s Last Ditch**\
