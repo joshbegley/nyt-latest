@@ -1,5 +1,5 @@
 **What’s Going On in This Graph? | March 6, 2024**\
-`How is Americans’ love for hamburgers, chicken nuggets and pizza with cheese affecting the environment and, specifically groundwater?`\
+`How is Americans’ love for hamburgers, chicken nuggets and cheese pizza affecting the environment — and specifically groundwater levels?`\
 https://nytimes.com/2024/02/27/learning/whats-going-on-in-this-graph-march-6-2024.html?searchResultPosition=1
 
 **A Fading Weapon in the H.I.V. Fight: Condoms**\
