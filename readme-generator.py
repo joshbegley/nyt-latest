@@ -11,8 +11,6 @@ for a in soup.find_all("a",href=True):
 	if "ResultPosition=" in a["href"]:
 		if "cooking.nytimes.com" in a["href"]:
 			pass
-		if "/list/" in a["href"]:
-			pass
 		else:
 			print ("**" + (a.h4.text.encode("utf-8")) + "**" + "\\")
 			print ("`" + (a.p.text.encode("utf-8")) + "`" + "\\")
