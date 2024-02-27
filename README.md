@@ -1,4 +1,4 @@
-**Biden Should Worry More About Interest Rates Than Prices**\
+**Biden Should Worry About Interest Rates More Than Prices**\
 `But a new working paper argues that a focus on the cost of goods and services understates the importance of the cost of borrowing money.`\
 https://nytimes.com/live/2024/02/20/opinion/thepoint/inflation-pricing-sentiment?searchResultPosition=1
 
