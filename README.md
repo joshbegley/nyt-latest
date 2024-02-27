@@ -27,6 +27,6 @@ https://nytimes.com/2024/02/27/us/politics/biden-netanyahu-israel-gaza.html?sear
 https://nytimes.com/live/2024/02/27/opinion/thepoint/the-ftc-speaks-up-on-behalf-of-unionized-workers?searchResultPosition=9
 
 **How the protest vote has played out in past primaries.**\
-`By Christine Zhang`\
-https://nytimes.com/live/2024/02/27/us/trump-biden-michigan-primary-election/how-the-protest-vote-has-played-out-in-past-primaries?searchResultPosition=10
+`In past uncompetitive presidential primaries, the typical protest vote has been about 7 percent.`\
+https://nytimes.com/2024/02/27/us/politics/past-protest-vote-michigan-primary.html?searchResultPosition=10
 
