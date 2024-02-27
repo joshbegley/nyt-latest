@@ -4,7 +4,7 @@ https://nytimes.com/video/world/middleeast/100000009332268/who-evacuates-gaza-ho
 
 **Jewish and Uncommitted in Michigan**\
 `Why some Democrats won’t be supporting Biden in the primary.`\
-https://nytimes.com/live/2024/02/20/opinion/thepoint/uncommitted-michigan-gaza?searchResultPosition=2
+https://nytimes.com/live/2024/02/27/opinion/thepoint/uncommitted-michigan-gaza?searchResultPosition=2
 
 **Scientists Are Freaking Out About Ocean Temperatures**\
 `“It’s like an omen of the future.”`\
