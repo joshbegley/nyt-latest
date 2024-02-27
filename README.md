@@ -15,7 +15,7 @@ https://nytimes.com/2024/02/27/briefing/michigan-primary-president-biden-governm
 https://nytimes.com/live/2024/02/27/opinion/thepoint/detroit-older-black-voters-biden?searchResultPosition=6
 
 **Ex-N.Y.U. Official Admits She Stole Public Money to Add Pool at Her Home**\
-`Cindy Tappe pleaded guilty to grand larceny in connection with her theft of $660,000 in state grant money as part of a broa$3.5 million fraud she engineered`\
+`Cindy Tappe pleaded guilty to grand larceny in connection with her theft of $660,000 in state grant money as part of a broader $3.5 million fraud.`\
 https://nytimes.com/2024/02/27/nyregion/cindy-tappe-guilty-theft.html?searchResultPosition=7
 
 **The U.S. announces $53 million in additional aid for Gaza and the West Bank.**\
