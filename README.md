@@ -6,7 +6,7 @@ https://nytimes.com/2024/02/27/arts/music/amplifier-newsletter-olivia-rodrigo-gu
 `A humanitarian convoy led by the Palestine Red Crescent Society and the United Nations evacuated 24 patients from Al Amal hospital in Khan Younis.`\
 https://nytimes.com/video/world/middleeast/100000009332268/who-evacuates-gaza-hospital.html?searchResultPosition=2
 
-**Jewish and Uncommitted in Michigan**\
+**Jewish and Voting ‘Uncommitted’ in Michigan**\
 `Why some Democrats won’t be supporting Biden in the primary.`\
 https://nytimes.com/live/2024/02/27/opinion/thepoint/uncommitted-michigan-gaza?searchResultPosition=3
 
