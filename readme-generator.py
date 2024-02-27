@@ -2,7 +2,7 @@ import urllib2
 from bs4 import BeautifulSoup
 import csv
 
-url = ("https://www.nytimes.com/search?query=&sort=newest")
+url = ("https://www.nytimes.com/search?query=a&sort=newest")
 
 page = urllib2.urlopen(url)
 soup = BeautifulSoup(page, 'html.parser')
