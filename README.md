@@ -1,6 +1,6 @@
 **The Killing at U. of Georgia: What We Know**\
 `A nursing student’s body was found on Thursday at the University of Georgia in Athens. The authorities called the homicide “a crime of opportunity.”`\
-https://nytimes.com/article/georgia-nursing-student-death.html?searchResultPosition=1
+https://nytimes.com/article/uga-nursing-student-death.html?searchResultPosition=1
 
 **Faye Webster Hates Attention. But Her Songs Keep Getting Bigger.**\
 `Music that walks the line between indie-rock and country — and her easy access to her emotions — has brought the singer-songwriter a growing fan base.`\
