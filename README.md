@@ -1,5 +1,5 @@
 **‘Uncommitted’ Supporters Dance and Celebrate in Dearborn**\
-`“This is a resounding victory for our country’s pro-Palestinian, antiwar movement,” said the spokesman for Listen to Michigan, the group that first organized the effort to oppose President Biden.`\
+`At an election night party, a group that organized a protest against President Biden in Michigan played up the thousands of votes in support of its cause.`\
 https://nytimes.com/2024/02/28/us/politics/uncommitted-dearborn.html?searchResultPosition=3
 
 **Quotation of the Day: Food Safety Gaps Let Children Eat Toxic Applesauce**\
