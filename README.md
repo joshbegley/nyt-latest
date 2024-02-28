@@ -1,32 +1,32 @@
+**Review: Diasporic History, in Which Motion Is the Message**\
+`The Afro-Colombian company Sankofa Danzafro presents “Behind the South: Dances for Manuel” at the Joyce Theater.`\
+https://nytimes.com/2024/02/28/arts/dance/review-sankofa-danzafro-joyce-theater.html?searchResultPosition=3
+
+**With Gaza Facing ‘Famine,’ Cease-Fire Remains Elusive**\
+`With the approach of Ramadan, as well as protests by hostage families and a threatened Palestinian march on the Aqsa mosque, pressure is rising to reach a deal.`\
+https://nytimes.com/2024/02/28/world/middleeast/gaza-ceasefire-remains-elusive.html?searchResultPosition=4
+
+**Thursday Briefing: U.N. Warns of Famine in Gaza**\
+`Plus a protest vote against President Biden.`\
+https://nytimes.com/2024/02/28/briefing/gaza-famine-biden-protest-vote-goo-hara-suicide.html?searchResultPosition=5
+
+**Biden’s Gaza Problem Will Persist, but Michigan May Have Been Unique**\
+`Democratic unease with the president’s handling of the Mideast war will continue to trail him, but his allies hope that no other state on the primary calendar will present the same challenges.`\
+https://nytimes.com/2024/02/28/us/politics/biden-gaza-michigan.html?searchResultPosition=6
+
 **Digital Media Outlets Sue OpenAI for Copyright Infringement**\
 `Raw Story, AlterNet and The Intercept sued for copyright infringement over the way the ChatGPT creator trains its technology.`\
-https://nytimes.com/2024/02/28/technology/openai-copyright-suit-media.html?searchResultPosition=3
+https://nytimes.com/2024/02/28/technology/openai-copyright-suit-media.html?searchResultPosition=7
 
 **Arab American Fury Toward Biden**\
 `If alarms weren’t already sounding in the Biden campaign, now they have to be.`\
-https://nytimes.com/2024/02/28/opinion/voters-michigan-biden-gaza.html?searchResultPosition=4
+https://nytimes.com/2024/02/28/opinion/voters-michigan-biden-gaza.html?searchResultPosition=8
 
 **A Botched Execution in Idaho Renews Scrutiny of Lethal Injection**\
 `Idaho attempted its first execution in 12 years on Wednesday, but medical workers could not tap into a vein on the inmate.`\
-https://nytimes.com/2024/02/28/us/idaho-death-penalty-thomas-creech.html?searchResultPosition=5
+https://nytimes.com/2024/02/28/us/idaho-death-penalty-thomas-creech.html?searchResultPosition=9
 
 **Construction Safety Firm Charged With Faking Training of Worker Who Died**\
 `The company and 25 people were also charged with running a scheme that falsely certified thousands of workers as having completed required safety training.`\
-https://nytimes.com/2024/02/28/nyregion/valor-construction-deaths.html?searchResultPosition=6
-
-**What’s in Our Queue? ‘American Fiction’ and More**\
-`I’m the night editor for The Times’s London bureau. Here are five of my current favorites.`\
-https://nytimes.com/interactive/2024/02/28/arts/editors-recommendations-americanfiction.html?searchResultPosition=7
-
-**Happy Leap Day Birthday to Me (See You Again in Four Years)**\
-`Yes, our driver’s licenses give our real birthday. No, you’re not the first person to joke that we’re too young to drink or drive. A Feb. 29 baby demystifies the quadrennial calendar quirk.`\
-https://nytimes.com/2024/02/28/style/leap-year-explained.html?searchResultPosition=8
-
-**Lauren Boebert’s son is arrested on felony charges, adding to her challenges amid a tough campaign.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/02/28/us/michigan-primary-super-tuesday/boebert-colorado-congress?searchResultPosition=9
-
-**France Moves Closer to Enshrining Abortion Access in Its Constitution**\
-`The vote by lawmakers comes after supporters of the measure in France were galvanized by the U.S. Supreme Court’s decision overturning Roe v. Wade.`\
-https://nytimes.com/2024/02/28/france-abortion-constitution.html?searchResultPosition=10
+https://nytimes.com/2024/02/28/nyregion/valor-construction-deaths.html?searchResultPosition=10
 
