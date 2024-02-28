@@ -23,7 +23,7 @@ https://nytimes.com/2024/02/28/technology/open-ai-investigation.html?searchResul
 https://nytimes.com/2024/02/28/dining/prep-ahead-dinner-party-menu.html?searchResultPosition=8
 
 **Trump Offers Court a $100 Million Bond to Pause a $454 Million Judgment**\
-`The former president, who is appealing the judgment in his civil fraud case, asked an appeals court to let him avoid paying the full amount in the meantime`\
+`The former president, who is appealing the judgment in his civil fraud case, asked an appeals court to let him avoid paying the full amount in the meantime.`\
 https://nytimes.com/2024/02/28/nyregion/trump-bond-civil-fraud.html?searchResultPosition=9
 
 **To Protect Your Miles, Be Careful How You Book**\
