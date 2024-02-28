@@ -19,7 +19,7 @@ https://nytimes.com/2024/02/28/podcasts/the-daily/us-russia-space.html?searchRes
 https://nytimes.com/2024/02/28/podcasts/michigan-primary-cbd-data-sales.html?searchResultPosition=7
 
 **Navalny’s Funeral to Be Held on Friday, Spokeswoman Says**\
-`The memorial service for the Russian opposition leader could be a rare chance for a show of dissent in Moscow, but members of the public who attend will be taking a risk.`\
+`The service for the Russian opposition leader will be open to the public, but it was unclear whether the authorities will try to stop people from attending.`\
 https://nytimes.com/2024/02/28/world/europe/navalny-funeral-russia-march-1.html?searchResultPosition=8
 
 **Nikolai I. Ryzhkov, Soviet Premier Who Presided Over Economic Chaos, Dies at 94**\
