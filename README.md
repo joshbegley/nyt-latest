@@ -1,32 +1,32 @@
-**Companies Were Big on CBD. Not Anymore.**\
-`A lack of federal regulation and a mishmash of state laws have made selling products featuring the cannabis-derived ingredient not worth the trouble.`\
-https://nytimes.com/2024/02/28/business/cbd-companies-regulations.html?searchResultPosition=3
+**How Visiting the U.S. Border Became a Potent Form of Political Theater**\
+`The 2,000-mile frontier has become a symbol in American politics as the debate over immigration grows increasingly polarized.`\
+https://nytimes.com/2024/02/28/us/politics/us-mexico-border-politics.html?searchResultPosition=3
 
-**A Land Once Emptied by War Now Faces a Peacetime Exodus**\
-`Bosnia is being hit by a combination of a low birthrate and emigration, a trend fueled by ethnic tensions and disgust with corruption.`\
-https://nytimes.com/2024/02/28/world/europe/bosnia-population-emigration-birthrate.html?searchResultPosition=4
+**Three Powerful Lessons About Love**\
+`It’s been 20 years since Daniel Jones started Modern Love as a weekly column in The New York Times. Today, he shares what the job has taught him about love.`\
+https://nytimes.com/2024/02/28/podcasts/modern-love-three-lessons-about-love.html?searchResultPosition=4
 
-**TEFAF Aims to Prove There’s Nothing Like a Real-Life Art Fair**\
-`With a tighter schedule, new programming and a multimillion-dollar Kandinsky, the European fine art event looks to remain competitive in a changed world.`\
-https://nytimes.com/2024/02/28/arts/design/tefaf-maastricht-fair.html?searchResultPosition=5
+**How the Senate G.O.P. Scored a Top Recruit and Widened Its Path to a Majority**\
+`The recruitment of Larry Hogan in Maryland served as a capstone to months of quiet success for Senate Republicans, after years of recruiting disappointments.`\
+https://nytimes.com/2024/02/28/us/politics/gop-senate-recruitment-hogan.html?searchResultPosition=5
 
-**How the Media Industry Keeps Losing the Future**\
-`Roger Fidler tried his best, but the excellent business of journalism is gone for good. Can the idea of “news” survive in a digital world?`\
-https://nytimes.com/2024/02/28/technology/how-the-media-industry-keeps-losing-the-future.html?searchResultPosition=6
+**Florida Suspends Bill to Protect ‘Unborn Child’ After I.V.F. Ruling**\
+`Democrats warned that the proposed legislation, which would allow civil lawsuits over the death of a fetus, would affect fertility treatments.`\
+https://nytimes.com/2024/02/28/us/florida-suspends-bill-to-protect-unborn-child-after-ivf-ruling.html?searchResultPosition=6
 
-**How the French Revived a Classic Japanese Art Form**\
-`Ahead of TEFAF Maastricht, Tamio Ikeda, of the Paris gallery Tanakaya, shares the complex history behind the woodblock print, and how mutual admiration may have saved it.`\
-https://nytimes.com/2024/02/28/arts/design/tanakaya-gallery-japanese-woodblock-tefaf.html?searchResultPosition=7
+**An Easy Way to Elevate Your Grapes**\
+`The unassuming fruit can reveal so many layers when you give them a little love.`\
+https://nytimes.com/2024/02/28/magazine/roasted-grapes-ricotta-toast-recipe.html?searchResultPosition=7
 
-**The Pianist Amaro Freitas Takes His Jazz Somewhere New: The Amazon**\
-`For his latest album, “Y’Y,” the Brazilian composer looked to inspirations in nature and experiments with prepared pianos.`\
-https://nytimes.com/2024/02/28/arts/music/amaro-freitas-y-y.html?searchResultPosition=8
+**A Boring Capital for a Young Democracy. Just the Way Residents Like It.**\
+`The British-designed capital, Belmopan, is bureaucratic and, some say, boring. Some in the city want it to stay that way.`\
+https://nytimes.com/2024/02/28/world/americas/belize-belmopan-capital.html?searchResultPosition=8
 
-**Is There Something Radical About Painting Flowers?**\
-`Many artists who made their names in figurative work are now creating a different sort of portrait.`\
-https://nytimes.com/2024/02/28/t-magazine/flower-portraits-paintings.html?searchResultPosition=9
+**All Eyes Are on Red Bull in F1 This Season**\
+`It ran away with last season, so this first race of 2024 may show how dominant its new car is and if other teams have caught up.`\
+https://nytimes.com/2024/02/28/sports/autoracing/f1-red-bull-bahrain-grand-prix.html?searchResultPosition=9
 
-**Outdoorsy Men’s Wear That Suits the City Too**\
-`When out for adventure, whether hiking a trail or navigating the sidewalk, it helps to look the part.`\
-https://nytimes.com/2024/02/28/t-magazine/mens-spring-fashion-outdoor-adventure.html?searchResultPosition=10
+**Iran’s Parliament Election 2024: What You Need to Know**\
+`Iran is holding Parliament elections on March 1, the first general vote since an uprising swept across the country in 2022 calling for an end to the Islamic Republic’s rule.`\
+https://nytimes.com/2024/02/28/world/middleeast/iran-election-parliament.html?searchResultPosition=10
 
