@@ -20,7 +20,7 @@ https://nytimes.com/2024/02/28/us/politics/gop-senate-recruitment-hogan.html?sea
 
 **Florida Suspends Bill to Protect ‘Unborn Child’ After I.V.F. Ruling**\
 `Democrats warned that the proposed legislation, which would allow civil lawsuits over the death of a fetus, would affect fertility treatments.`\
-https://nytimes.com/2024/02/28/us/florida-suspends-bill-to-protect-unborn-child-after-ivf-ruling.html?searchResultPosition=8
+https://nytimes.com/2024/02/28/us/florida-fetus-bill-ivf-ruling.html?searchResultPosition=8
 
 **An Easy Way to Elevate Your Grapes**\
 `The unassuming fruit can reveal so many layers when you give them a little love.`\
