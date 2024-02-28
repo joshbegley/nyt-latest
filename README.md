@@ -3,7 +3,7 @@
 https://nytimes.com/2024/02/27/arts/television/ole-anderson-dead.html?searchResultPosition=3
 
 **Death of David Gail, ‘Port Charles’ Star, Was Drug Related, Publicist Says**\
-`The 58-year-old actor, who was also on “Beverly Hills 90210,” died last month in a Tampa, Fla., hospital days after going into cardiac arrest.`\
+`The 58-year-old actor, who was also on “Beverly Hills, 90210,” died last month in a Tampa, Fla., hospital days after going into cardiac arrest.`\
 https://nytimes.com/2024/02/27/arts/television/david-gail-cause-of-death.html?searchResultPosition=4
 
 **Michigan Judge Orders Deposed G.O.P. Leader to Stand Down**\
