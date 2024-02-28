@@ -8,7 +8,7 @@ https://nytimes.com/live/2024/02/28/us/supreme-court-bump-stocks-ban/what-is-a-b
 
 **Here’s what to know about the hearing.**\
 `A Texas gun shop owner sued to challenge the ban, which outlawed the gun attachment after a federal agency said bump stocks transformed rifles into machine guns.`\
-https://nytimes.com/2024/02/28/us/politics/heres-what-to-know-about-the-hearing.html?searchResultPosition=5
+https://nytimes.com/live/2024/02/28/us/supreme-court-bump-stocks-ban/heres-what-to-know-about-the-hearing?searchResultPosition=5
 
 **Philadelphia Orchestra’s Home to Be Renamed Marian Anderson Hall**\
 `Because of a $25 million gift, the venue, Verizon Hall, will be renamed to honor Anderson, a pioneering Black opera singer.`\
