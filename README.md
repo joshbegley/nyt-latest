@@ -6,7 +6,7 @@ https://nytimes.com/2024/02/28/technology/personaltech/streaming-service-subscri
 `Put off by pitying displays of concern for her son’s paralysis, a reader wonders how to handle a well-meaning friend whose support misses the mark.`\
 https://nytimes.com/2024/02/28/style/disability-pity-friendship.html?searchResultPosition=4
 
-**Disney Joins a Media Empire Run by India’s Biggest Tycoon**\
+**Disney and Reliance Industries Announce Media Mega Deal in India**\
 `Mukesh Ambani’s Reliance Industries will control what is left of Disney’s grasp at India’s burgeoning media market.`\
 https://nytimes.com/2024/02/28/business/disney-reliance-industries.html?searchResultPosition=5
 
