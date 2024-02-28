@@ -1,4 +1,4 @@
-**Biden faces a robust protest vote as he and Trump carry Michigan. Here’s the latest.**\
+**Biden faces a substantial number of ‘uncommitted’ votes. Here’s the latest.**\
 `By Nicholas Nehamas and Reid J. Epstein`\
 https://nytimes.com/live/2024/02/27/us/trump-biden-michigan-primary-election/biden-faces-a-robust-protest-vote-as-he-and-trump-carry-michigan-heres-the-latest?searchResultPosition=3
 
