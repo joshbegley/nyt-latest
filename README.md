@@ -1,5 +1,5 @@
-**Suspicious Powder Found at Courthouse Containing Offices of Trump Judge**\
-`An envelope with white powder was found Wednesday at the New York State Supreme Courthouse. Justice Arthur F. Engoron, who oversaw Donald J. Trump’s civil fraud trial, has offices there.`\
+**Suspicious Powder Found at Courthouse Where Trump Judge Has Offices**\
+`An envelope with white powder was found Wednesday at the New York State Supreme Courthouse. Justice Arthur F. Engoron, who has offices there, oversaw Donald J. Trump’s civil fraud trial.`\
 https://nytimes.com/2024/02/28/nyregion/judge-engoron-powder-trump.html?searchResultPosition=3
 
 **In an Age of Intercepts, the C.I.A. Makes the Case for Spies**\
