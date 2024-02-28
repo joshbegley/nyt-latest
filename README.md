@@ -7,7 +7,7 @@ https://nytimes.com/2024/02/28/arts/design/what-to-see-in-nyc-galleries-in-march
 https://nytimes.com/2024/02/28/dining/bacon-brussels-sprouts-salad.html?searchResultPosition=4
 
 **McConnell to Step Down as Republican Senate Leader**\
-`Senator Mitch McConnell, Republican of Kentucky and the minority leader, said he would give up his spot as the party’s leader at the end of this year.`\
+`Senator Mitch McConnell, Republican of Kentucky, became the longest-serving Senate leader in history at the start of this Congress.`\
 https://nytimes.com/video/us/politics/100000009334640/mcconnell-senate-leader.html?searchResultPosition=5
 
 **McConnell to Step Down as Leader at the End of the Year**\
