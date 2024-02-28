@@ -4,7 +4,7 @@ https://nytimes.com/2024/02/28/arts/dance/review-sankofa-danzafro-joyce-theater.
 
 **With Gaza Facing ‘Famine,’ Cease-Fire Remains Elusive**\
 `With the approach of Ramadan, as well as protests by hostage families and a threatened Palestinian march on the Aqsa mosque, pressure is rising to reach a deal.`\
-https://nytimes.com/2024/02/28/world/middleeast/gaza-ceasefire-remains-elusive.html?searchResultPosition=4
+https://nytimes.com/2024/02/28/world/middleeast/israel-gaza-ceasefire-hamas.html?searchResultPosition=4
 
 **Thursday Briefing: U.N. Warns of Famine in Gaza**\
 `Plus a protest vote against President Biden.`\
