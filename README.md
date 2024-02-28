@@ -1,32 +1,32 @@
+**E-Bike Battery Caused Fire That Killed Young Journalist, Officials Say**\
+`Fazil Khan, 27, the first New Yorker this year whose death was linked to lithium-ion batteries, was motivated in his work by a strong sense of justice, his friends said.`\
+https://nytimes.com/2024/02/28/nyregion/fazil-khan-fire-lithium-ion-battery.html?searchResultPosition=3
+
+**Point of No Return**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/02/28/learning/point-of-no-return.html?searchResultPosition=4
+
+**Writers: Always Pack a Notebook**\
+`A Times critic didn’t have his laptop when he learned a renowned chef had died. But he did have a stenographer’s pad.`\
+https://nytimes.com/2024/02/28/insider/writers-always-pack-a-notebook.html?searchResultPosition=5
+
+**In Fight Over Bump Stock Ban, Lawyers Take Aim at Administrative State**\
+`The Supreme Court will hear arguments on Wednesday about the Trump administration rule put in place by the A.T.F. after the Las Vegas massacre.`\
+https://nytimes.com/2024/02/28/us/politics/supreme-court-hearing-gun.html?searchResultPosition=6
+
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/02/28/crosswords/connections-companion.html?searchResultPosition=7
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/02/28/crosswords/spelling-bee-forum.html?searchResultPosition=8
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/02/28/crosswords/wordle-review.html?searchResultPosition=9
+
 **Late Night Chides Biden for Talking About Gaza While Eating Ice Cream**\
 `“Not the most dignified way to deliver world-changing news,” Michael Kosta said on Tuesday’s “Daily Show.’`\
-https://nytimes.com/2024/02/28/arts/television/biden-ice-cream.html?searchResultPosition=3
-
-**What Does the Uncommitted Vote in Michigan Mean for 2024?**\
-`The share of Arab American and Muslim voters is small but could be decisive in a close race.`\
-https://nytimes.com/2024/02/28/upshot/michigan-primary-biden-2024.html?searchResultPosition=4
-
-**Word of the Day: oblivious**\
-`This word has appeared in 138 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/02/28/learning/word-of-the-day-oblivious.html?searchResultPosition=5
-
-**Michigan Primary Takeaways: ‘Uncommitted’ Makes Itself Heard**\
-`President Biden endured a protest vote, Donald Trump fended off Nikki Haley again, and both may face challenges with their party coalitions as they start to look toward November.`\
-https://nytimes.com/2024/02/28/us/politics/michigan-primary-biden-trump.html?searchResultPosition=6
-
-**Wildfires Prompt Evacuations in Texas and Oklahoma**\
-`As high winds and dry air fueled the blazes in the Texas Panhandle, Gov. Greg Abbott issued a disaster declaration for 60 counties.`\
-https://nytimes.com/2024/02/28/us/texas-wildfires-smokehouse-creek-panhandle.html?searchResultPosition=7
-
-**Wednesday Briefing**\
-`Hamas denies that a cease-fire is near.`\
-https://nytimes.com/2024/02/28/briefing/gaza-cease-fire-russia-nato.html?searchResultPosition=8
-
-**‘Uncommitted’ Supporters Dance and Celebrate in Dearborn**\
-`At an election night party, a group that organized a protest against President Biden in Michigan played up the thousands of votes in support of its cause.`\
-https://nytimes.com/2024/02/28/us/politics/uncommitted-dearborn.html?searchResultPosition=9
-
-**Quotation of the Day: Food Safety Gaps Let Children Eat Toxic Applesauce**\
-`Quotation of the Day for Wednesday, February 28, 2024.`\
-https://nytimes.com/2024/02/28/pageoneplus/quotation-of-the-day-food-safety-gaps-let-children-eat-toxic-applesauce.html?searchResultPosition=10
+https://nytimes.com/2024/02/28/arts/television/biden-ice-cream.html?searchResultPosition=10
 
