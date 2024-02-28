@@ -27,6 +27,6 @@ https://nytimes.com/2024/02/28/business/china-country-garden.html?searchResultPo
 https://nytimes.com/2024/02/28/world/middleeast/israel-reserve-soldiers-gaza.html?searchResultPosition=9
 
 **Chicago Area Is Hit by Severe Storms**\
-`The Chicago region and parts of western Illinois were threatened by tornadoes as the severe weather headed southeast toward Louisville, Ky. Flights were grounded earlier at O’Hare Airport.`\
+`The Chicago region and parts of western Illinois were threatened by tornadoes as the severe weather headed east toward Indiana and Michigan. Flights were grounded earlier at O’Hare Airport.`\
 https://nytimes.com/2024/02/28/us/tornado-storms-chicago-midwest.html?searchResultPosition=10
 
