@@ -4,7 +4,7 @@ https://nytimes.com/2024/02/28/nyregion/rikers-island-jail-contempt-order.html?s
 
 **Richard Lewis, Acerbic Comedian and Character Actor, Dies at 76**\
 `After rising to prominence for his stand-up act, he became a regular in movies and TV, most recently on “Curb Your Enthusiasm.”`\
-https://nytimes.com/2024/02/28/arts/television/richard-lewis-acerbic-comedian-and-character-actor-dies-at-76.html?searchResultPosition=4
+https://nytimes.com/2024/02/28/arts/television/richard-lewis-dead.html?searchResultPosition=4
 
 **Republican House candidate who belittled the Special Olympics says he will stay in the race.**\
 `By Neil Vigdor`\
