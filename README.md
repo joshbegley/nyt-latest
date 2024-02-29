@@ -1,32 +1,32 @@
+**Pace of Supreme Court Immunity Case Shadowed by Looming Election**\
+`In an ordinary case, the justices’ decision to hear arguments in April might seem a sober compromise. But the electoral calendar prompts questions.`\
+https://nytimes.com/2024/02/29/us/politics/supreme-court-immunity-case.html?searchResultPosition=3
+
+**Men Are From Mercury, Women Are From Neptune**\
+`Why the sexes are moving farther apart, socially and politically`\
+https://nytimes.com/2024/02/29/opinion/men-women-political-gap.html?searchResultPosition=4
+
+**Black English Doesn’t Have to Be Just for Black People**\
+`Switching in and out of different modes of speech is our natural approach to language.`\
+https://nytimes.com/2024/02/29/opinion/black-english-white-people.html?searchResultPosition=5
+
+**Immigration and the southern border have been central to Trump’s political identity.**\
+`As he runs for a second term this year, Donald Trump has sharpened his anti-immigration rhetoric.`\
+https://nytimes.com/live/2024/02/29/us/biden-trump-border-visit/immigration-southern-border-trump?searchResultPosition=6
+
+**Brownsville residents say their city does not have a border crisis.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2024/02/29/us/biden-trump-border-visit/brownsville-residents-say-their-city-does-not-have-a-border-crisis?searchResultPosition=7
+
 **Oprah to Leave Weight Watchers Board**\
 `The company announced the departure of its most famous spokeswoman in a corporate filing that sent the stock into a tailspin.`\
-https://nytimes.com/2024/02/29/business/oprah-weight-watchers-board-stock.html?searchResultPosition=3
+https://nytimes.com/2024/02/29/business/oprah-weight-watchers-board-stock.html?searchResultPosition=8
 
 **The Farming Conundrum**\
 `Agriculture is a big contributor to climate change — is there a path to reinvention?`\
-https://nytimes.com/2024/02/29/climate/the-farming-conundrum.html?searchResultPosition=4
+https://nytimes.com/2024/02/29/climate/the-farming-conundrum.html?searchResultPosition=9
 
 **Canada Restores Visa Requirement for Mexican Visitors**\
 `The immigration minister said Mexico had not done enough to address the surge of asylum seekers arriving in Canada.`\
-https://nytimes.com/2024/02/29/world/canada/canada-mexico-visa-travel.html?searchResultPosition=5
-
-**Ali Hassan Mwinyi, Former President of Tanzania, Dies at 98**\
-`Handpicked by his socialist predecessor, Julius K. Nyerere, Mr. Mwinyi was credited with reforms, among them permitting the sale of mobile phones and computers.`\
-https://nytimes.com/2024/02/29/world/africa/ali-hassan-mwinyi-dead.html?searchResultPosition=6
-
-**Ramona Fradon, Longtime Force in the World of Comic Books, Dies at 97**\
-`One of the first women to work steadily in the field, she was best known for creating art for the superheroes Aquaman and Metamorpho.`\
-https://nytimes.com/2024/02/29/arts/ramona-fradon-dead.html?searchResultPosition=7
-
-**What is Biden thinking of doing at the border?**\
-`By Hamed Aleaziz`\
-https://nytimes.com/live/2024/02/29/us/biden-trump-border-visit/what-is-biden-thinking-of-doing-at-the-border?searchResultPosition=8
-
-**The Trump Immunity Case Before the Supreme Court: Justice Delayed?**\
-`Readers bemoan the justices’ decision to hear the case and urge a quick ruling. Also: A gift to a medical school; gender identity; the loss of a herbarium.`\
-https://nytimes.com/2024/02/29/opinion/trump-immunity-supreme-court.html?searchResultPosition=9
-
-**A witness said he saw people with gunshot wounds and sacks of flour covered in blood.**\
-`By Iyad Abuheweila, Abu Bakr Bashir and Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/02/29/world/israel-hamas-war-gaza-news/a-witness-said-he-saw-people-with-gunshot-wounds-and-sacks-of-flour-covered-in-blood?searchResultPosition=10
+https://nytimes.com/2024/02/29/world/canada/canada-mexico-visa-travel.html?searchResultPosition=10
 
