@@ -26,7 +26,7 @@ https://nytimes.com/2024/02/29/us/politics/katie-britt-republican-response-state
 `The hit Netflix dating show seems to prove that looks matter as much as ever.`\
 https://nytimes.com/2024/02/29/style/love-is-blind-season-6.html?searchResultPosition=9
 
-**As Hungry Gazans Crowd an Aid Convoy, a Crush of Bodies, Israeli Gunshots and Chaos**\
+**As Hungry Gazans Crowd an Aid Convoy, a Crush of Bodies, Israeli Gunshots and a Deadly Toll**\
 `Palestinian and Israeli officials offered differing accounts of a deadly scene in northern Gaza, in which local health officials said more than 100 people were killed.`\
 https://nytimes.com/2024/02/29/world/middleeast/israel-gaza-palestinian-death-toll.html?searchResultPosition=10
 
