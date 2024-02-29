@@ -1,32 +1,32 @@
-**This Spring, Men’s Wear Comes in Crisp White Hues**\
-`Sharp suiting — softened by drapey cuts and unabashedly pretty details — is the season’s freshest style.`\
-https://nytimes.com/2024/02/29/t-magazine/mens-summer-fashion-white-suits.html?searchResultPosition=3
+**U.S. Proposes New Rules to Ease Flying for Travelers in Wheelchairs**\
+`The Transportation Department said the proposed regulations would make it easier to hold airlines accountable for mishandling passengers’ wheelchairs.`\
+https://nytimes.com/2024/02/29/us/politics/air-travel-wheelchairs.html?searchResultPosition=3
 
-**Josh Brolin Never Thought He’d End Up in Malibu**\
-`How the “Dune” actor made a home in a place he once resisted.`\
-https://nytimes.com/2024/02/29/t-magazine/josh-brolin-malibu-california-home.html?searchResultPosition=4
+**On the Arizona Border, Even a Slow Day Is Busy**\
+`Illegal crossings have dropped in the last month, but the migrant crisis still defines life on the border, where many are skeptical that Biden or Trump can help.`\
+https://nytimes.com/2024/02/29/us/on-the-arizona-border-even-a-slow-day-is-busy.html?searchResultPosition=4
 
-**House Tour | Josh Brolin**\
-`The actor gives a tour of his guesthouse and Airstream trailer in Malibu, Calif.`\
-https://nytimes.com/video/t-magazine/100000009315350/house-tour-josh-brolin.html?searchResultPosition=5
+**This TikTok Series May Be the ‘Beowulf’ of Our Time**\
+`Epic, multipart tales are a tradition that extends beyond social media, transcending culture and time.`\
+https://nytimes.com/live/2024/02/27/opinion/thepoint/tiktok-reesa-teesa?searchResultPosition=5
 
-**6 Young Adult Novels That Reimagine and Retell Greek Mythology**\
-`Deborah Crossland, the author of “The Quiet Part Out Loud,” recommends some of her favorite Y.A. reimaginings of classical myths.`\
-https://nytimes.com/2024/02/29/books/review/greek-mythology-young-adult-books.html?searchResultPosition=6
+**Biden Calls Chinese Electric Vehicles a Security Threat**\
+`The president ordered an investigation into auto software that could track U.S. drivers, part of a broader effort to stop E.V. imports from China.`\
+https://nytimes.com/2024/02/29/us/politics/biden-chinese-electric-vehicles.html?searchResultPosition=6
 
-**After U. of Georgia Killing, Lawmakers Seek Tougher Immigration Laws**\
-`As residents lamented the killing of a 22-year-old woman, immigration policies in Georgia have come under renewed scrutiny, with state Republicans calling for stricter legislation.`\
-https://nytimes.com/2024/02/29/us/uga-laken-riley-immigration.html?searchResultPosition=7
+**For Suspect in U. of Georgia Killing, an Obscure Trail Across States**\
+`After leaving Venezuela, he entered the U.S. through Texas and stopped in New York before living in Georgia.`\
+https://nytimes.com/2024/02/29/us/uga-student-death-timeline.html?searchResultPosition=7
 
-**He’s Probably in Your House, Lurking on Your Bookshelf**\
-`The Museo Bodoniano in Parma, Italy, is a mecca for one of the world’s most enduring, and ubiquitous, typefaces. Meet Giambattista Bodoni, the “prince of typography.”`\
-https://nytimes.com/2024/02/29/books/bodoni-museum-typeface.html?searchResultPosition=8
+**Stream These 8 Titles Before They Leave Netflix in March**\
+`Star-led titles including Jerry Seinfeld’s animated feature, a James Brown biopic and a Steve Martin-Meryl Streep rom-com are leaving the streaming service. Watch them while you can.`\
+https://nytimes.com/2024/02/29/movies/netflix-expiring-march.html?searchResultPosition=8
 
-**Kim Gordon’s Coolest Act Yet**\
-`At 70, the onetime Sonic Youth musician is releasing a blistering new solo LP, finding new fans on TikTok and making art that continues to surprise.`\
-https://nytimes.com/2024/02/29/arts/music/kim-gordon-the-collective.html?searchResultPosition=9
+**He Tested His $450,000 Budget All Over New York: Would It Be Williamsburg, Hell’s Kitchen or the South Bronx?**\
+`For his first home purchase, a resourceful renter stockpiled a down payment and looked for the ideal spot to invest it.`\
+https://nytimes.com/interactive/2024/02/29/realestate/williamsburg-manhattan-bronx-apartment.html?searchResultPosition=9
 
-**Kate DiCamillo Says ‘Paying Attention Is a Way to Love the World’**\
-`The feisty title character of her new book, “Ferris,” has a sharp eye for detail, and so, its author hopes, does she. Meanwhile, she is on an Alice McDermott reading jag.`\
-https://nytimes.com/2024/02/29/books/review/kate-dicamillo-by-the-book-ferris.html?searchResultPosition=10
+**Let’s Thank the Alabama Supreme Court**\
+`Its decision that embryos are people offers a warning of the future toward which America may be heading.`\
+https://nytimes.com/2024/02/29/opinion/alabama-abortion-ivf.html?searchResultPosition=10
 
