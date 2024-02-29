@@ -1,32 +1,32 @@
-**A Key Inflation Measure Moderated in January**\
-`The Federal Reserve’s preferred inflation measure continued to cool on an annual basis, even as a key monthly gauge nudged higher.`\
-https://nytimes.com/2024/02/29/business/inflation-federal-reserve-economy.html?searchResultPosition=3
+**Blizzard Is Forecast to Bring ‘Life-Threatening’ Conditions to California**\
+`For the second year in a row, the Greater Lake Tahoe area is expected to begin March buried in deep, powdery, windswept snow.`\
+https://nytimes.com/2024/02/29/us/tahoe-blizzard-snow-forecast.html?searchResultPosition=3
 
-**Unpacking the Investigations Into OpenAI**\
-`The high-flying A.I. start-up and its C.E.O. are under regulatory scrutiny, and that could stall their ambitions.`\
-https://nytimes.com/2024/02/29/business/dealbook/sam-altman-openai-scrutiny.html?searchResultPosition=4
+**How Does a Day Job Affect an Artist’s Work? This Exhibition Has an Idea**\
+`Plus: an installation in an Indian palace, a farm shop in upstate New York — and more recommendations from T Magazine.`\
+https://nytimes.com/2024/02/29/t-magazine/artists-day-jobs-exhibition-stanford-university.html?searchResultPosition=4
 
-**A far-right Israeli minister will no longer oversee security at a major mosque, officials say.**\
-`By Adam Sella and Patrick Kingsley`\
-https://nytimes.com/live/2024/02/29/world/israel-hamas-war-gaza-news/a-far-right-israeli-minister-will-no-longer-oversee-security-at-a-major-mosque-officials-say?searchResultPosition=5
+**Homes for Sale in New York State**\
+`This week’s properties are in Rockville Centre, N.Y., and Tarrytown, N.Y.`\
+https://nytimes.com/2024/02/29/realestate/housing-market-near-nyc.html?searchResultPosition=5
 
-**The U.N.’s top rights official condemns the ‘brutality’ of Israel’s offensive in Gaza.**\
-`By Nick Cumming-Bruce`\
-https://nytimes.com/live/2024/02/29/world/israel-hamas-war-gaza-news/un-human-rights-gaza-israel?searchResultPosition=6
+**Homes for Sale in Manhattan and the Bronx**\
+`This week’s properties are in Manhattan Valley, Hell’s Kitchen and Spuyten Duyvil.`\
+https://nytimes.com/2024/02/29/realestate/housing-market-nyc.html?searchResultPosition=6
 
-**‘Shayda’ Review: Finding Refuge in Community**\
-`This stirring film from Noora Niasari follows an Iranian woman and her daughter living in a women’s shelter in Australia.`\
-https://nytimes.com/2024/02/29/movies/shayda-review.html?searchResultPosition=7
+**A.I. Frenzy Complicates Efforts to Keep Power-Hungry Data Sites Green**\
+`Artificial intelligence’s booming growth is radically reshaping an already red-hot data center market, raising questions about whether these sites can be operated sustainably.`\
+https://nytimes.com/2024/02/29/business/artificial-intelligence-data-centers-green-power.html?searchResultPosition=7
 
-**Three Great Documentaries to Stream**\
-`A broken family, a family remembered and a family’s generation-spanning struggles are at the heart of this month’s picks.`\
-https://nytimes.com/2024/02/29/movies/documentaries-streaming.html?searchResultPosition=8
+**Alone on the Ocean, With 400,000 Friends**\
+`As Cole Brauer speeds to the finish of a solo race around the world, she is using Instagram to blow up sailing’s elitist image.`\
+https://nytimes.com/2024/02/29/style/cole-brauer-solo-sailing.html?searchResultPosition=8
 
-**Researchers Dispute Claim That Ancient Whale Was Heaviest Animal Ever**\
-`A new study argues that Perucetus, an ancient whale species, was certainly big, but not as big as today’s blue whales.`\
-https://nytimes.com/2024/02/29/science/giant-whale-perucetus.html?searchResultPosition=9
+**The Best, Most California Movies**\
+`The water-wars thriller “Chinatown” was recommended most by readers.`\
+https://nytimes.com/2024/02/29/us/california-movies.html?searchResultPosition=9
 
-**‘Problemista’ Review: Craven New World**\
-`The first feature film from the writer and comedian Julio Torres is a social problem drama with the frippery of a Michel Gondry romance.`\
-https://nytimes.com/2024/02/29/movies/problemista-review.html?searchResultPosition=10
+**Pentagon Weighs New Plan to Ship Weapons to Ukraine Quickly**\
+`A short-term measure carries political and military risks as the Biden administration considers whether to tap into U.S. stockpiles again.`\
+https://nytimes.com/2024/02/29/us/politics/ukraine-weapons-pentagon.html?searchResultPosition=10
 
