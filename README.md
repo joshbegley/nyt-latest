@@ -4,7 +4,7 @@ https://nytimes.com/2024/02/29/opinion/nikki-haley-trump-election.html?searchRes
 
 **Texts Show Witness Readily Helped Build a Case to Disqualify Trump Prosecutors**\
 `Terrence Bradley was a reluctant witness in court, but text messages show he was eager to help an effort to disqualify Fani Willis, the Fulton County district attorney.`\
-https://nytimes.com/2024/02/29/us/trump-georgia-text-fani-willis-terrence-bradley-ashleigh-merchant.html?searchResultPosition=4
+https://nytimes.com/2024/02/29/us/trump-georgia-fani-willis-texts.html?searchResultPosition=4
 
 **Federal Judge Blocks Sweeping New Immigration Law in Texas**\
 `The ruling halts implementation of a law that would allow police officers to arrest and expel migrants, a victory for the federal government in its clash with Texas over immigration powers.`\
