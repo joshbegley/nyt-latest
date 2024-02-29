@@ -7,7 +7,7 @@ https://nytimes.com/2024/02/29/opinion/supreme-court-trump-immunity.html?searchR
 https://nytimes.com/2024/02/29/climate/groundwater-aquifer-depletion-courts.html?searchResultPosition=4
 
 **Calls for a Boycott Roil Iran’s Parliamentary Elections**\
-`Voters enraged by a violent crackdown on female protesters and disaffected by years of voting manipulation are vowing to make a statement by staying home during Friday’s elections.`\
+`Voters enraged by a violent crackdown on protesters and disaffected by the failure of elections to yield substantive changes are vowing to make a statement by staying home during Friday’s elections.`\
 https://nytimes.com/2024/02/29/world/middleeast/boycott-iran-parliamentary-elections.html?searchResultPosition=5
 
 **Trump Is Unlike Any Other Criminal Defendant**\
