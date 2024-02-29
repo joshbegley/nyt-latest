@@ -1,6 +1,6 @@
 **Richard Lewis and Larry David, Best Frenemies Forever**\
 `The two comics were born three days apart in the same Brooklyn hospital, and their paths never stopped crossing. They became the best of friends — in their own way.`\
-https://nytimes.com/2024/02/29/arts/television/richard-lewis-larry-david-friendship.html?searchResultPosition=3
+https://nytimes.com/2024/02/29/arts/television/richard-lewis-larry-david-curb-your-enthusiasm.html?searchResultPosition=3
 
 **Is Your Landlord Overcharging You? This TikTok Shows How to Find Out.**\
 `In a popular video, Carla Badami, a Manhattan resident, described how she got $6,000 back from her landlord and her rent reduced by about $400. Then state officials got swamped with inquiries.`\
