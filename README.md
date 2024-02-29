@@ -1,32 +1,32 @@
+**In Britain, Shockwaves From Israel-Hamas War Are Jolting Domestic Politics**\
+`The United States and several European nations have been caught up in toxic debates that have altered election campaigns and led to eruptions of inflammatory language over the conflict.`\
+https://nytimes.com/2024/02/29/world/europe/israel-hamas-war-uk-parliament.html?searchResultPosition=3
+
+**Why Leap Day Is Really About Party Planning**\
+`Judah Levine, top time researcher, explains how Feb. 29 was invented to keep the major holidays from colliding.`\
+https://nytimes.com/2024/02/29/science/leap-day-easter.html?searchResultPosition=4
+
+**China Has Thousands of Navalnys, Hidden From the Public**\
+`China has no dissident with the kind of public profile that Aleksei A. Navalny had. The government has many critics, but they all disappear from view.`\
+https://nytimes.com/2024/02/29/business/china-dissidents-aleksei-navalny.html?searchResultPosition=5
+
 **Pause to Play**\
 `Esha Datta’s second New York Times Crossword is a nice illustration of the genre.`\
-https://nytimes.com/2024/02/28/crosswords/daily-puzzle-2024-02-29.html?searchResultPosition=3
+https://nytimes.com/2024/02/28/crosswords/daily-puzzle-2024-02-29.html?searchResultPosition=6
 
 **Richard Lewis and ‘The (Blank) From Hell’**\
 `The comedian, who died on Wednesday, said he coined the ubiquitous phrase. An episode of “Curb Your Enthusiasm” about a “nanny from hell” recounted his efforts to get credit for it.`\
-https://nytimes.com/2024/02/28/arts/television/richard-lewis-from-hell.html?searchResultPosition=4
+https://nytimes.com/2024/02/28/arts/television/richard-lewis-from-hell.html?searchResultPosition=7
 
 **How Are You, Really?**\
 `This self-guided check-in will help you take stock of your emotional well-being — and learn how to make changes.`\
-https://nytimes.com/interactive/2024/02/28/well/mind/mental-health-wellbeing-check-in.html?searchResultPosition=5
+https://nytimes.com/interactive/2024/02/28/well/mind/mental-health-wellbeing-check-in.html?searchResultPosition=8
 
 **‘Chiefsaholic’ Superfan Pleads Guilty in String of Bank Robberies**\
 `Xaviar Michael Babudar, a popular Kansas City Chiefs fan who dressed as a wolf at games, pleaded guilty on Wednesday in a series of robberies in 2022 and 2023, prosecutors said.`\
-https://nytimes.com/2024/02/28/us/chiefsaholic-bank-robbery-guilty.html?searchResultPosition=6
+https://nytimes.com/2024/02/28/us/chiefsaholic-bank-robbery-guilty.html?searchResultPosition=9
 
 **Boeing Faces Justice Dept. Review Over Max 9 Incident**\
 `The department is looking into whether the blowout of a door panel in January violated a 2021 settlement after two fatal plane crashes.`\
-https://nytimes.com/2024/02/28/business/boeing-doj-max-9-review.html?searchResultPosition=7
-
-**Review: In ‘Brooklyn Laundry,’ There’s No Ordering Off the Menu**\
-`John Patrick Shanley’s new play, starring Cecily Strong and David Zayas, is a romantic comedy with a penchant for the resolutely dismal.`\
-https://nytimes.com/2024/02/28/theater/brooklyn-laundry-review.html?searchResultPosition=8
-
-**Read the Illinois Judge’s Ruling**\
-`A state judge in Illinois ruled that former President Donald J. Trump had engaged in insurrection and was ineligible to appear on the state’s primary ballot.`\
-https://nytimes.com/interactive/2024/02/28/us/illinois-trump-ballot-ruling.html?searchResultPosition=9
-
-**Cat Janice, Singer Who Released a Dance Track From Hospice, Dies at 31**\
-`TikTok rallied around the singer, who revealed during her cancer treatment that she had transferred the rights to her final song to her son, as an inheritance of sorts.`\
-https://nytimes.com/2024/02/28/style/cat-janice-cancer-tiktok.html?searchResultPosition=10
+https://nytimes.com/2024/02/28/business/boeing-doj-max-9-review.html?searchResultPosition=10
 
