@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/02/27/opinion/thepoint/trump-immunity-supreme-cour
 
 **Israeli officials say a ‘terrorist’ attack in the West Bank has left two dead.**\
 `By Adam Sella`\
-https://nytimes.com/live/2024/02/29/world/israel-hamas-war-gaza-news/israeli-officials-say-a-terrorist-attack-in-the-west-bank-has-left-two-dead?searchResultPosition=4
+https://nytimes.com/2024/02/29/world/middleeast/israel-west-bank-shooting.html?searchResultPosition=4
 
 **With Richard Lewis, Kvetching Was Charismatic**\
 `The comedian gave his Jewish neurotic persona a nervy cool even as he threw his whole body into his comedy.`\
