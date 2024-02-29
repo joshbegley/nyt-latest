@@ -16,7 +16,7 @@ https://nytimes.com/2024/02/29/arts/design/john-singer-sargent-london.html?searc
 
 **Biden says the shooting will complicate cease-fire talks.**\
 `By The New York Times`\
-https://nytimes.com/live/2024/02/29/world/israel-hamas-war-gaza-news/biden-says-the-shooting-will-complicate-cease-fire-talks?searchResultPosition=7
+https://nytimes.com/2024/02/29/world/middleeast/biden-cease-fire-israel-gaza.html?searchResultPosition=7
 
 **Top Senate Republican to Campaign With Kari Lake in Arizona**\
 `John Barrasso of Wyoming will join Ms. Lake for a packed day of events in Phoenix. The pair is expected to criticize President Biden’s handling of the border crisis.`\
