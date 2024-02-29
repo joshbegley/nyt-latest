@@ -1,32 +1,32 @@
+**Big and Bizarre Headlines From a Bonus News Day**\
+`A leap year brings 366 days — and daily newspapers. Times Insider scoured the archives to find the most significant or silliest New York Times headlines published on Feb. 29.`\
+https://nytimes.com/2024/02/29/insider/big-and-bizarre-headlines-from-a-bonus-news-day.html?searchResultPosition=3
+
+**Leap Day**\
+`It only comes around once every four years. How do you make the most of it?`\
+https://nytimes.com/2024/02/29/learning/leap-day.html?searchResultPosition=4
+
+**Disney Sued Over Doctor’s Allergy Death After Meal at Resort Restaurant**\
+`Kanokporn Tangsuan’s husband said his wife had been served dishes containing allergens despite being assured she would not be.`\
+https://nytimes.com/2024/02/29/nyregion/disney-world-allergy-death-lawsuit.html?searchResultPosition=5
+
+**A Billion-Dollar Donation (Without a Billion-Dollar Ego)**\
+`The gift to the Albert Einstein College of Medicine in the Bronx was notable not only for its size but also for the humility of the philanthropist.`\
+https://nytimes.com/2024/02/29/nyregion/billion-dollar-gift-einstein-medical-college.html?searchResultPosition=6
+
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/02/29/crosswords/connections-companion.html?searchResultPosition=7
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/02/29/crosswords/spelling-bee-forum.html?searchResultPosition=8
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/02/29/crosswords/wordle-review.html?searchResultPosition=9
+
 **Late Night Speculates About Mitch McConnell’s Next Career Move**\
 `The senator is giving up his G.O.P. leadership post. “McConnell just turned 82, so that can only mean one thing: He’s running for president,” Jimmy Fallon said.`\
-https://nytimes.com/2024/02/29/arts/television/jimmy-fallon-mitch-mcconnell.html?searchResultPosition=3
-
-**Word of the Day: liminal**\
-`This word has appeared in 55 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/02/29/learning/word-of-the-day-liminal.html?searchResultPosition=4
-
-**Quotation of the Day: From Cell Blocks to Bay, Scientists 3-D Map Every Last Corner of Alcatraz**\
-`Quotation of the Day for Thursday, February 29, 2024.`\
-https://nytimes.com/2024/02/29/pageoneplus/quotation-of-the-day-from-cell-blocks-to-bay-scientists-3-d-map-every-last-corner-of-alcatraz.html?searchResultPosition=5
-
-**Corrections: Feb. 29, 2024**\
-`Corrections that appeared in print on Thursday, Feb. 29, 2024.`\
-https://nytimes.com/2024/02/29/pageoneplus/corrections-feb-29-2024.html?searchResultPosition=6
-
-**What to Know About the Doctor Protests in South Korea**\
-`More than a week after thousands of doctors walked off the job, their dispute with the government shows no signs of resolution.`\
-https://nytimes.com/2024/02/29/world/asia/doctor-strike-south-korea.html?searchResultPosition=7
-
-**Thursday Briefing**\
-`U.N. warns of dire food shortages in Gaza.`\
-https://nytimes.com/2024/02/29/briefing/gaza-famine-macron-nato-soldier.html?searchResultPosition=8
-
-**In Britain, Shockwaves From Israel-Hamas War Are Jolting Domestic Politics**\
-`The United States and several European nations have been caught up in toxic debates that have altered election campaigns and led to eruptions of inflammatory language over the conflict.`\
-https://nytimes.com/2024/02/29/world/europe/israel-hamas-war-uk-parliament.html?searchResultPosition=9
-
-**Why Leap Day Is Really About Party Planning**\
-`Judah Levine, top time researcher, explains how Feb. 29 was invented to keep the major holidays from colliding.`\
-https://nytimes.com/2024/02/29/science/leap-day-easter.html?searchResultPosition=10
+https://nytimes.com/2024/02/29/arts/television/jimmy-fallon-mitch-mcconnell.html?searchResultPosition=10
 
