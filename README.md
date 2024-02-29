@@ -1,4 +1,4 @@
-**Richard Lewis and ‘The (blank) From Hell’**\
+**Richard Lewis and ‘The (Blank) From Hell’**\
 `The comedian, who died on Wednesday, said he coined the ubiquitous phrase. An episode of “Curb Your Enthusiasm” about a “nanny from hell” recounted his efforts to get credit for it.`\
 https://nytimes.com/2024/02/28/arts/television/richard-lewis-from-hell.html?searchResultPosition=3
 
