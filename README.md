@@ -14,8 +14,8 @@ https://nytimes.com/2024/02/29/world/middleeast/boycott-iran-parliamentary-elect
 `That’s why the Supreme Court should not have delayed his federal criminal case.`\
 https://nytimes.com/live/2024/02/27/opinion/thepoint/trump-immunity-supreme-court?searchResultPosition=6
 
-**Israeli officials say a ‘terrorist’ attack in the West Bank has left two dead.**\
-`By Adam Sella`\
+**Two Israeli Men Killed in West Bank Shooting, Officials Say**\
+`It was another sign of escalating tensions between Israelis and Palestinians in the West Bank since Hamas’s attack on Oct. 7.`\
 https://nytimes.com/2024/02/29/world/middleeast/israel-west-bank-shooting.html?searchResultPosition=7
 
 **With Richard Lewis, Kvetching Was Charismatic**\
