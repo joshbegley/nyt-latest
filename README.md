@@ -6,13 +6,13 @@ https://nytimes.com/video/world/middleeast/100000009336313/israel-palestinian-wa
 `Gazans are killed near an aid convoy.`\
 https://nytimes.com/2024/03/01/briefing/gaza-convoy-putin-nuclear.html?searchResultPosition=4
 
-**Quotation of the Day: Brutalist Oasis Lacks Bustle, but Residents Love It That Way**\
-`Quotation of the Day for Friday, March 1, 2024.`\
-https://nytimes.com/2024/03/01/pageoneplus/quotation-of-the-day-brutalist-oasis-lacks-bustle-but-residents-love-it-that-way.html?searchResultPosition=5
-
 **Corrections: March 1, 2024**\
 `Corrections that appeared in print on Friday, March 1, 2024.`\
-https://nytimes.com/2024/03/01/pageoneplus/corrections-march-1-2024.html?searchResultPosition=6
+https://nytimes.com/2024/03/01/pageoneplus/corrections-march-1-2024.html?searchResultPosition=5
+
+**Quotation of the Day: Brutalist Oasis Lacks Bustle, but Residents Love It That Way**\
+`Quotation of the Day for Friday, March 1, 2024.`\
+https://nytimes.com/2024/03/01/pageoneplus/quotation-of-the-day-brutalist-oasis-lacks-bustle-but-residents-love-it-that-way.html?searchResultPosition=6
 
 **An Unexpected Matchmaker and a Trip to Costco Sealed the Deal**\
 `Ilana Maier and Scott Berlin first connected via email while working on a campaign. Sparks flew when they met in person during a snack run.`\
