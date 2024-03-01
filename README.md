@@ -2,7 +2,7 @@
 `Once united over the future of artificial intelligence, they have become increasingly estranged over the years.`\
 https://nytimes.com/2024/03/01/technology/elon-musk-sam-altman-conversations-lawsuit.html?searchResultPosition=3
 
-**Lawsuits Threaten to Delay Trump Media’s Merger With a Shell Company**\
+**Lawsuits Threaten to Delay Trump Media’s Merger**\
 `Lawsuits could stall the long-delayed merger, which would provide Trump Media with cash to fund the former president’s social media platform, Truth Social.`\
 https://nytimes.com/2024/03/01/business/trump-media-digital-world-merger.html?searchResultPosition=4
 
