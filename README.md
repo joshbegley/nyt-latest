@@ -6,8 +6,8 @@ https://nytimes.com/2024/03/01/nyregion/boy-13-shot-killed-brooklyn.html?searchR
 `In a striking display of dissent, thousands gathered in Moscow to bid farewell to the Russian opposition leader on Friday.`\
 https://nytimes.com/2024/03/01/world/europe/russia-aleksei-navalny-funeral-photos.html?searchResultPosition=4
 
-**Bill to Boost Nuclear Power Receives Overwhelming Support in the House**\
-`It’s the latest sign that nuclear power, a once-contentious source of energy, is now attracting broad political support in Washington.`\
+**Support for Nuclear Power Grows in Congress**\
+`A big bipartisan vote in the House is the latest sign that nuclear power, a once-contentious source of energy, is now attracting broad political support in Washington.`\
 https://nytimes.com/2024/03/01/climate/nuclear-power-legislation-congress.html?searchResultPosition=5
 
 **Unemployment Casts a Shadow Over California’s Economy**\
