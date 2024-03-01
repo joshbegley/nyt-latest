@@ -1,32 +1,32 @@
-**Celebrating Classic Australian Picture Books**\
-`Stories about distinctive wildlife, Aboriginal mythology and idyllic Australian childhoods.`\
-https://nytimes.com/2024/03/01/world/australia/classic-australian-picture-books.html?searchResultPosition=3
+**Murder and Magic Realism: A Rising Literary Star Mines China’s Rust Belt**\
+`In gritty tales from China’s northeast, Shuang Xuetao chronicles a traumatic chapter of Chinese history with fresh resonance today: the mass layoffs that afflicted the region in the 1990s.`\
+https://nytimes.com/2024/03/01/world/asia/china-shenyang-shuang-xuetao.html?searchResultPosition=3
 
-**5 Things to Do This Weekend**\
-`A selection of entertainment highlights this weekend, including the second installment of Denis Villeneuve’s “Dune” series.`\
-https://nytimes.com/interactive/2024/03/01/arts/weekend-editors-picks-dune2.html?searchResultPosition=4
+**Israel Is More Fortress Than Home Right Now**\
+`Will exhaustion and despair lead to some kind of resolution for Palestinians and Israelis?`\
+https://nytimes.com/2024/03/01/opinion/israel-gaza-palestinians-hostages.html?searchResultPosition=4
 
-**There’s a New (Old) It Girl in Paris**\
-`In her debut, Chemena Kamali revives the Chloé Girl.`\
-https://nytimes.com/2024/03/01/style/chemena-kamali-chloe-paris-fashion-week.html?searchResultPosition=5
+**The Ugly History at the Root of the Border Standoff**\
+`Republicans are using an old battle cry to defend razor wire.`\
+https://nytimes.com/2024/03/01/opinion/border-immigration-texas.html?searchResultPosition=5
 
-**Macron calls for a cease-fire after scores die after gathering for food aid in Gaza.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2024/03/01/world/israel-hamas-war-gaza-news/macron-calls-for-a-cease-fire-after-scores-die-in-rush-for-food-in-gaza?searchResultPosition=6
+**Tommy Tune Lists a Penthouse on the Far East Side**\
+`The celebrated Broadway performer, director and choreographer is asking $2.3 million for the apartment at 414 East 52nd Street, one of two he owns in the same co-op complex.`\
+https://nytimes.com/2024/03/01/realestate/tommy-tune-penthouse.html?searchResultPosition=6
 
-**Israeli military videos provide a limited view of what happened at a deadly scene in Gaza.**\
-`By Aric Toler, Robin Stein, Haley Willis and Ainara Tiefenthäler`\
-https://nytimes.com/2024/03/01/world/middleeast/israeli-military-videos-provide-a-limited-view-of-what-happened-at-a-deadly-scene-in-gaza.html?searchResultPosition=7
+**John Schu’s Novel-in-Verse Lets a Boy Speak About Anorexia**\
+`“Louder Than Hunger” joins a very small shelf of novels and memoirs that address eating disorders from a male point of view.`\
+https://nytimes.com/2024/03/01/books/review/john-schu-louder-than-hunger.html?searchResultPosition=7
 
-**College Dorm Decorations Become a Front in the Campus Free Speech Wars**\
-`Barnard College is requiring students to strip decorations from their dorm doors in the wake of protests over the Israel-Hamas war.`\
-https://nytimes.com/2024/03/01/nyregion/campus-free-speech-barnard-columbia.html?searchResultPosition=8
+**This Season, Mix Texture and Transparency**\
+`See-through elements bring a playful edge to glossy materials.`\
+https://nytimes.com/2024/03/01/t-magazine/texture-transparency-spring-mens-fashion.html?searchResultPosition=8
 
-**What to Know About Trump’s Cash as He Faces Penalties of $537 Million**\
-`Donald J. Trump and his lawyers have bragged in public about his cash hoard. Court papers tell a different story.`\
-https://nytimes.com/2024/03/01/nyregion/donald-trump-money.html?searchResultPosition=9
+**Meet One of America’s Most Elusive Artists**\
+`Joan Jonas’s maximalist, category-defying work combines video, performance, folklore, sculpture and ecology. At 87, she still has no intention of simplifying anything.`\
+https://nytimes.com/2024/03/01/t-magazine/joan-jonas-moma-retrospective.html?searchResultPosition=9
 
-**Inside the Massive Repair Shops Where Subway Cars Go for a Makeover**\
-`An in-depth look at the process that overhauls every single wheel, motor, brake, axel, wire and door on every car in the New York City system.`\
-https://nytimes.com/2024/03/01/nyregion/subway-repair-shop-new-york.html?searchResultPosition=10
+**The ‘Griselda’ Creator’s Miami**\
+`Eric Newman, who created the Netflix show “Narcos” and produced his new show with Sofia Vergara, shares his love for a lesser-known side of the South Florida playground.`\
+https://nytimes.com/2024/03/01/travel/miami-griselda-narcos.html?searchResultPosition=10
 
