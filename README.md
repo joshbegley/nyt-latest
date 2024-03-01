@@ -7,7 +7,7 @@ https://nytimes.com/2024/03/01/fashion/iris-apfel-dead.html?searchResultPosition
 https://nytimes.com/2024/03/01/world/middleeast/iran-elections-boycott.html?searchResultPosition=2
 
 **News Leaders Around the World Pledge Support for Journalists in Gaza**\
-`The leaders from The Associated Press, Reuters and others called for the safety of the Palestinian media workers doing the on-the-ground reporting.`\
+`Leaders from The Associated Press, Reuters and others called for the safety of the Palestinian media workers doing the on-the-ground reporting.`\
 https://nytimes.com/2024/03/01/world/middleeast/israel-gaza-journalists-news-organizations.html?searchResultPosition=3
 
 **Biden Unites With an Unlikely Ally to Champion Ukraine**\
