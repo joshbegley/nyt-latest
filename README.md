@@ -1,32 +1,32 @@
+**Quotation of the Day: Brutalist Oasis Lacks Bustle, but Residents Love It That Way**\
+`Quotation of the Day for Friday, March 1, 2024.`\
+https://nytimes.com/2024/03/01/pageoneplus/quotation-of-the-day-brutalist-oasis-lacks-bustle-but-residents-love-it-that-way.html?searchResultPosition=3
+
+**Corrections: March 1, 2024**\
+`Corrections that appeared in print on Friday, March 1, 2024.`\
+https://nytimes.com/2024/03/01/pageoneplus/corrections-march-1-2024.html?searchResultPosition=4
+
+**An Unexpected Matchmaker and a Trip to Costco Sealed the Deal**\
+`Ilana Maier and Scott Berlin first connected via email while working on a campaign. Sparks flew when they met in person during a snack run.`\
+https://nytimes.com/2024/03/01/style/ilana-maier-scott-berlin-wedding.html?searchResultPosition=5
+
+**A Secret Crush and a Not-So-Obvious First Date Leads to Romance**\
+`Talia Bernstein and Kristen Zublin became friends after meeting at an improv class in Los Angeles, but their relationship shifted after Ms. Bernstein invited Ms. Zublin over for homemade pizza.`\
+https://nytimes.com/2024/03/01/style/talia-bernstein-kristen-zublin-wedding.html?searchResultPosition=6
+
+**Hey, Stranger, Here’s My Heart**\
+`Perhaps what’s making me sick is not the lack of love I have received but the love I have ceased to give.`\
+https://nytimes.com/2024/03/01/style/modern-love-hey-stranger-heres-my-heart.html?searchResultPosition=7
+
+**How Their Corporate Speak Turned Into a Language of Love**\
+`Andrew McCaskill was happy to provide career advice when Marcus Johnson reached out, but he was also hoping for something more.`\
+https://nytimes.com/2024/03/01/style/andrew-mccaskill-marcus-johnson-wedding.html?searchResultPosition=8
+
+**She Spent Her Birthday at an Airbnb, and Never Left**\
+`As Angie Lucas floated on a raft in the pool at Dennis Weisse’s home, she recalled thinking, “I wish I could live here.” Her wish came true.`\
+https://nytimes.com/2024/03/01/style/angie-lucas-dennis-weisse-wedding.html?searchResultPosition=9
+
 **Pro-Palestinian Rally Becomes Mass Subway Ride to Confront Kathy Hochul**\
 `After a rally at Union Square in Manhattan, hundreds of demonstrators flooded a subway platform, took a train downtown and marched to a restaurant where the governor of New York was to speak.`\
-https://nytimes.com/2024/02/29/nyregion/wall-street-gaza-protest-hochul.html?searchResultPosition=3
-
-**Former M.I.T. Student Pleads Guilty in 2021 Killing of Yale Student**\
-`Qinxuan Pan, 32, evaded law enforcement for three months before his arrest. He could face 35 years in prison for the killing of Kevin Jiang.`\
-https://nytimes.com/2024/02/29/nyregion/qinxuan-pan-mit-yale-killing.html?searchResultPosition=4
-
-**Judge Awards $6.2 Million to New Zealand Volcano Victims**\
-`Dozens of tourists and guides were killed or injured when a volcanic island erupted in 2019. The disaster was ruled to be a violation of New Zealand’s workplace safety rules.`\
-https://nytimes.com/2024/02/29/world/australia/new-zealand-volcano-victims-award.html?searchResultPosition=5
-
-**Variety: Split Decisions**\
-`Fred Piscop’s puzzle makes solvers strategize.`\
-https://nytimes.com/2024/02/29/crosswords/variety-split-decisions.html?searchResultPosition=6
-
-**The Works of Many Conductors**\
-`Julian Xiao opens our solving weekend with a challenging Friday puzzle.`\
-https://nytimes.com/2024/02/29/crosswords/daily-puzzle-2024-03-01.html?searchResultPosition=7
-
-**Judge Fines Ex-Fox News Reporter for Not Revealing Sources**\
-`The journalist, Catherine Herridge, had reported on an F.B.I. investigation of a scientist’s Chinese ties. She was held in contempt of court.`\
-https://nytimes.com/2024/02/29/business/catherine-herridge-fox-news-sources.html?searchResultPosition=8
-
-**George Galloway, Leftist Firebrand, Wins U.K. Seat in Blow to Labour Party**\
-`Mr. Galloway is likely to be a thorn in the main opposition party’s side. Labour was forced to disown its candidate in the special election over remarks he made about Israel.`\
-https://nytimes.com/2024/02/29/world/europe/george-galloway-rochdale-by-election.html?searchResultPosition=9
-
-**How the Biden-Trump Border Visits Revealed a Deeper Divide**\
-`Their approaches to immigration represent a test of voters’ appetite for the messiness of democracy, pitting the president’s belief in legislating against his rival’s pledge to be a “Day 1” dictator.`\
-https://nytimes.com/2024/02/29/us/politics/trump-biden-border-analysis.html?searchResultPosition=10
+https://nytimes.com/2024/02/29/nyregion/wall-street-gaza-protest-hochul.html?searchResultPosition=10
 
