@@ -11,7 +11,7 @@ https://nytimes.com/2024/03/01/dining/how-to-roast-vegetables.html?searchResultP
 https://nytimes.com/2024/03/01/world/africa/haiti-kenya-police-security.html?searchResultPosition=5
 
 **Elon Musk Sues OpenAI and Sam Altman for Violating the Company’s Principles**\
-`Musk said the high-profile A.I. startup had prioritized profit and commercial interests instead of seeking to benefit humanity.`\
+`Musk said the prominent A.I. start-up had prioritized profit and commercial interests instead of seeking to benefit humanity.`\
 https://nytimes.com/2024/03/01/business/elon-musk-openai-sam-altman-lawsuit.html?searchResultPosition=6
 
 **Gaza Aid Declined Significantly in February**\
