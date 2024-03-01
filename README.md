@@ -7,7 +7,7 @@ https://nytimes.com/2024/03/01/technology/elon-musk-sam-altman-conversations-law
 https://nytimes.com/2024/03/01/business/trump-media-digital-world-merger.html?searchResultPosition=4
 
 **Boy, 13, Is Killed Near His Brooklyn Home**\
-`The child, Troy Gill, had been walking home from a Brooklyn Nets game at Barclays Center when he was shot multiple times,  a law enforcement official said.`\
+`The child, Troy Gill, had been walking home from a Brooklyn Nets game at Barclays Center when he was shot multiple times, a law enforcement official said.`\
 https://nytimes.com/2024/03/01/nyregion/boy-13-shot-killed-brooklyn.html?searchResultPosition=5
 
 **The Funeral of Aleksei Navalny, in Photos**\
