@@ -1,6 +1,6 @@
 **Macron calls for a cease-fire after scores die in rush for food in Gaza.**\
 `By Victoria Kim`\
-https://nytimes.com/2024/03/01/world/middleeast/macron-calls-for-a-cease-fire-after-scores-die-in-rush-for-food-in-gaza.html?searchResultPosition=3
+https://nytimes.com/live/2024/03/01/world/israel-hamas-war-gaza-news/macron-calls-for-a-cease-fire-after-scores-die-in-rush-for-food-in-gaza?searchResultPosition=3
 
 **Israeli military videos provide a limited view of what happened at a deadly scene in Gaza.**\
 `By Aric Toler, Robin Stein, Haley Willis and Ainara Tiefenthäler`\
