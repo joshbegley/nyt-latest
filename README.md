@@ -6,8 +6,8 @@ https://nytimes.com/live/2024/02/27/opinion/thepoint/biden-airdrop-aid-gaza?sear
 `By Annie Karni`\
 https://nytimes.com/live/2024/03/01/us/trump-haley-biden-election/haley-murkowski-endorsement?searchResultPosition=4
 
-**Dressing for the Cameras, if Not the Fray**\
-`In their visits to the border, President Biden and former President Donald J. Trump were image making for a national audience.`\
+**Image Making for a National Audience**\
+`In their visits to the border, President Biden and former President Donald J. Trump were dressing for the cameras, if not the fray.`\
 https://nytimes.com/2024/03/01/style/trump-biden-mexican-border-style.html?searchResultPosition=5
 
 **Paramedic Sentenced to Five Years in Death of Elijah McClain**\
