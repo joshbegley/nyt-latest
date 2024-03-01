@@ -11,7 +11,7 @@ https://nytimes.com/2024/02/29/crosswords/daily-puzzle-2024-03-01.html?searchRes
 https://nytimes.com/2024/02/29/business/catherine-herridge-fox-news-sources.html?searchResultPosition=5
 
 **George Galloway, Leftist Firebrand, Wins U.K. Seat in Blow to Labour Party**\
-`Mr. Galloway is likely to be a thorn in the main opposition party’s side. Labour was forced to disown its candidate in the special election over antisemitic remarks.`\
+`Mr. Galloway is likely to be a thorn in the main opposition party’s side. Labour was forced to disown its candidate in the special election over remarks he made about Israel.`\
 https://nytimes.com/2024/02/29/world/europe/george-galloway-rochdale-by-election.html?searchResultPosition=6
 
 **How the Biden-Trump Border Visits Revealed a Deeper Divide**\
