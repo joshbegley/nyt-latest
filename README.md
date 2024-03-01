@@ -7,7 +7,7 @@ https://nytimes.com/live/2024/03/01/world/israel-hamas-war-gaza-news/the-us-is-c
 https://nytimes.com/2024/03/01/arts/gunter-brus-dead.html?searchResultPosition=4
 
 **Businessman Pleads Guilty to Trying to Bribe Menendez With a Mercedes-Benz**\
-`Senator Robert Menendez, a Democrat, his wife and two other co-defendants have pleaded not guilty.`\
+`Senator Robert Menendez, a Democrat, has pleaded not guilty, as have his wife and two other co-defendants.`\
 https://nytimes.com/2024/03/01/nyregion/menendez-bribery-defendant-guilty.html?searchResultPosition=5
 
 **The Best of Late Night This Week**\
