@@ -1,5 +1,5 @@
 **Can Donald Trump clinch the nomination next week?**\
-`More than half of Republican delegates will have been awarded by week’s end.`\
+`Just under half of Republican delegates will have been awarded by week’s end.`\
 https://nytimes.com/2024/03/01/us/politics/trump-republican-nomination.html?searchResultPosition=3
 
 **Biden Can Do Better Than Airdropping Food to Gaza**\
