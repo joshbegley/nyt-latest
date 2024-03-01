@@ -1,5 +1,5 @@
 **Judge Awards $6.2 Million to New Zealand Volcano Victims**\
-`Dozens of tourists and guides were killed or injured when a volcanic island erupted in 2109. The disaster was ruled to be a violation of New Zealand’s workplace safety rules.`\
+`Dozens of tourists and guides were killed or injured when a volcanic island erupted in 2019. The disaster was ruled to be a violation of New Zealand’s workplace safety rules.`\
 https://nytimes.com/2024/02/29/world/australia/new-zealand-volcano-victims-award.html?searchResultPosition=3
 
 **Variety: Split Decisions**\
