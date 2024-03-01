@@ -3,7 +3,7 @@
 https://nytimes.com/2024/03/01/technology/elon-musk-sam-altman-conversations-lawsuit.html?searchResultPosition=3
 
 **Lawsuits Threaten to Delay Trump Media’s Merger**\
-`Lawsuits could stall the long-delayed merger, which would provide Trump Media with cash to fund the former president’s social media platform, Truth Social.`\
+`Lawsuits could stall Trump Media’s long-delayed merger, which would provide the social media company with cash to fund Donald J. Trump’s Truth Social.`\
 https://nytimes.com/2024/03/01/business/trump-media-digital-world-merger.html?searchResultPosition=4
 
 **Boy, 13, Is Killed Near His Brooklyn Home**\
