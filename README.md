@@ -10,9 +10,9 @@ https://nytimes.com/2024/03/01/movies/robert-m-young-dead.html?searchResultPosit
 `The president’s son insisted his father had nothing to do with his business deals, offered a blunt and unflattering account of his own conduct and said he did not know or could not remember key details.`\
 https://nytimes.com/2024/03/01/us/politics/six-takeaways-from-hunter-bidens-testimony.html?searchResultPosition=5
 
-**Witnesses describe seeing people shot as Israeli soldiers fired toward crowds surging around aid convoy.**\
-`By Raja Abdulrahim and Abu Bakr Bashir`\
-https://nytimes.com/2024/03/01/world/middleeast/witnesses-describe-seeing-people-shot-as-israeli-soldiers-fired-toward-crowds-surging-around-aid-convoy.html?searchResultPosition=6
+**Witnesses Describe Seeing People Shot as Israeli Soldiers Fired Toward Crowds Surging Around Aid Convoy**\
+`“I saw things I never ever thought I would see,” said a Palestinian who was in the crowd.`\
+https://nytimes.com/2024/03/01/world/middleeast/gaza-aid-convoy.html?searchResultPosition=6
 
 **McConnell’s Early Decision to Step Aside Fuels G.O.P. Fight to Succeed Him**\
 `Contenders to be the new Republican leader have quickly begun making overtures to colleagues for a rare opening at the top of the G.O.P. hierarchy in the Senate.`\
