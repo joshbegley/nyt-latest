@@ -1,32 +1,32 @@
+**Kenya Signs Deal With Haiti to Send 1,000 Police to Caribbean**\
+`The two countries are pushing ahead with the plan, even though it has been criticized by rights groups and blocked by a Kenyan court.`\
+https://nytimes.com/2024/03/01/world/africa/haiti-kenya-police-security.html?searchResultPosition=3
+
 **Elon Musk Sues OpenAI and Sam Altman for Violating the Company’s Principles**\
 `Musk said the high-profile A.I. startup had prioritized profit and commercial interests instead of seeking to benefit humanity.`\
-https://nytimes.com/2024/03/01/business/elon-musk-openai-sam-altman-lawsuit.html?searchResultPosition=3
+https://nytimes.com/2024/03/01/business/elon-musk-openai-sam-altman-lawsuit.html?searchResultPosition=4
 
 **Gaza Aid Declined Significantly in February**\
 `The deaths of dozens of people amid a rush for aid trucks in Gaza City showed the degree of hunger in the territory.`\
-https://nytimes.com/2024/03/01/world/middleeast/gaza-aid-decline.html?searchResultPosition=4
+https://nytimes.com/2024/03/01/world/middleeast/gaza-aid-decline.html?searchResultPosition=5
 
 **In a Land of Lavish Weddings, This Prenuptial Party Takes the Cake**\
 `A three-day pre-wedding ceremony for the son of one of India’s richest men raises the bar for extravagant festivity.`\
-https://nytimes.com/2024/03/01/world/asia/india-wedding-party-ambani.html?searchResultPosition=5
+https://nytimes.com/2024/03/01/world/asia/india-wedding-party-ambani.html?searchResultPosition=6
 
 **How Germany’s Most Wanted Criminal Hid in Plain Sight**\
 `Daniela Klette, a militant from the Red Army Faction, was on the run for decades. Yet with publicly available digital recognition tools, German police could probably have found her much sooner.`\
-https://nytimes.com/2024/03/01/world/europe/daniela-klette-red-army-faction.html?searchResultPosition=6
+https://nytimes.com/2024/03/01/world/europe/daniela-klette-red-army-faction.html?searchResultPosition=7
 
 **Republicans Who Like Putin**\
 `The Putin-friendly faction of the party is ascendant, while some of his biggest critics are retiring.`\
-https://nytimes.com/2024/03/01/briefing/putin-republicans-trump-tucker-carlson.html?searchResultPosition=7
+https://nytimes.com/2024/03/01/briefing/putin-republicans-trump-tucker-carlson.html?searchResultPosition=8
 
 **Buying Houses Before Finding Spouses**\
 `Single men traditionally get a head start in homeownership and reap the benefits faster, but single women are thinking creatively to close the gap.`\
-https://nytimes.com/2024/03/01/realestate/single-women-homeowner.html?searchResultPosition=8
+https://nytimes.com/2024/03/01/realestate/single-women-homeowner.html?searchResultPosition=9
 
 **Crowds Gather for Navalny’s Funeral, and Gazans Killed Near Aid Convoy**\
 `Plus, a federal court blocks a Texas border law.`\
-https://nytimes.com/2024/03/01/podcasts/navalny-funeral-gaza-aid-convoy.html?searchResultPosition=9
-
-**Biden, Trump and a Split Screen at the Texas Border**\
-`The president and his likely election opponent visited the political hot spot on the same day and gave dueling speeches.`\
-https://nytimes.com/2024/03/01/podcasts/the-daily/biden-trump-border.html?searchResultPosition=10
+https://nytimes.com/2024/03/01/podcasts/navalny-funeral-gaza-aid-convoy.html?searchResultPosition=10
 
