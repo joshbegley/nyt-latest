@@ -8,7 +8,7 @@ https://nytimes.com/2024/03/01/us/politics/six-takeaways-from-hunter-bidens-test
 
 **Witnesses describe seeing people shot as Israeli soldiers fired toward crowds surging around aid convoy.**\
 `By Raja Abdulrahim and Abu Bakr Bashir`\
-https://nytimes.com/live/2024/03/01/world/israel-hamas-war-gaza-news/witnesses-describe-seeing-people-shot-as-israeli-soldiers-fired-toward-crowds-surging-around-aid-convoy?searchResultPosition=5
+https://nytimes.com/2024/03/01/world/middleeast/witnesses-describe-seeing-people-shot-as-israeli-soldiers-fired-toward-crowds-surging-around-aid-convoy.html?searchResultPosition=5
 
 **McConnell’s Early Decision to Step Aside Fuels G.O.P. Fight to Succeed Him**\
 `Contenders to be the new Republican leader have quickly begun making overtures to colleagues for a rare opening at the top of the G.O.P. hierarchy in the Senate.`\
