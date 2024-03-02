@@ -30,7 +30,7 @@ https://nytimes.com/interactive/2024/03/02/world/middleeast/gaza-deaths.html?sea
 `Implanted after the monarch, 87, contracted an infection, the device is intended to aid in transporting him back to Norway, his royal house said.`\
 https://nytimes.com/2024/03/02/world/europe/king-harald-norway-pacemaker-infection.html?searchResultPosition=8
 
-**Freight Cars Derail Along Lehigh River in Pennsylvania**\
+**Freight Cars Derail on Lehigh River in Pennsylvania After 3-Train Crash**\
 `Photos on social media showed two locomotives and several container cars derailed. No one was injured and no hazardous materials leaked, officials said.`\
 https://nytimes.com/2024/03/02/us/train-derailment-lehigh-river-pennsylvania.html?searchResultPosition=9
 
