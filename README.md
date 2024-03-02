@@ -24,7 +24,7 @@ https://nytimes.com/2024/03/02/us/train-derailment-lehigh-river-pennsylvania.htm
 
 **U.S. Makes First Airdrop of Food Into Gaza**\
 `Three U.S. Air Force cargo planes dropped 66 pallets over southwest Gaza with 38,000 ready-to-eat military rations, in a joint mission with Jordan.`\
-https://nytimes.com/2024/03/02/world/middleeast/the-us-has-made-its-first-airdrop-of-aid-to-gaza.html?searchResultPosition=7
+https://nytimes.com/2024/03/02/world/middleeast/us-airdrop-gaza-aid.html?searchResultPosition=7
 
 **A Fresh Look at a Sensational 1843 Murder Case and Its Fallout**\
 `In “The Witch of New York,” Alex Hortis revisits a Staten Island case that helped usher in a lurid new era of journalism.`\
