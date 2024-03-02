@@ -15,7 +15,7 @@ https://nytimes.com/2024/03/02/opinion/journaling-diary-iphone-app.html?searchRe
 https://nytimes.com/2024/03/02/opinion/deepfakes-teenagers.html?searchResultPosition=4
 
 **The Big Questions Raised by Elon Musk’s Lawsuit Against OpenAI**\
-`Legal experts say the case against the start-up and its chief executive, Sam Altman, is unusual .`\
+`Experts say the case against the start-up and its chief executive, Sam Altman, raises unusual legal issues that do not have a clear precedent.`\
 https://nytimes.com/2024/03/02/business/dealbook/the-big-questions-raised-by-elon-musks-lawsuit-against-openai.html?searchResultPosition=5
 
 **Two Books About Lovable Unlikable People**\
