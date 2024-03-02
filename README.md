@@ -12,7 +12,7 @@ https://nytimes.com/2024/03/02/us/texas-fires-rancher.html?searchResultPosition=
 
 **Trump’s Support Among Latinos Grows, New Poll Shows**\
 `A New York Times/Siena College poll found President Biden losing support among Latino voters, who now account for nearly 15 percent of eligible voters, a record high.`\
-https://nytimes.com/live/2024/03/02/us/trump-haley-biden-election/trumps-support-among-latinos-grows-new-poll-shows?searchResultPosition=4
+https://nytimes.com/2024/03/02/us/politics/trumps-support-among-latinos-grows-new-poll-shows.html?searchResultPosition=4
 
 **The Face of The Times, and the Man Who Commissioned It**\
 `Tom Bodkin ordered up NYTCheltenham to replace a mélange of typefaces and sharpen the design of the newspaper.`\
