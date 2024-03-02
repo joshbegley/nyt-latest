@@ -1,5 +1,5 @@
 **Trump Makes Baseless Claims About Immigration and Voter Fraud**\
-`At a rally in Greensboro, N.C., former President Donald J. Trump asserted without evidence that President Biden was urging migrants to enter the country and vote illegally in November.`\
+`At rallies in North Carolina and Virginia, former President Donald J. Trump asserted without evidence that President Biden was urging migrants to enter the country and vote illegally in November.`\
 https://nytimes.com/2024/03/02/us/politics/trump-immigration-voter-fraud.html?searchResultPosition=1
 
 **‘I Have You’: Firefighter Rescues Driver From Truck Dangling Off Bridge**\
