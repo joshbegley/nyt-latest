@@ -8,7 +8,7 @@ https://nytimes.com/live/2024/03/02/us/trump-haley-biden-election/trumps-support
 
 **The Face of The Times, and the Man Who Commissioned It**\
 `Tom Bodkin ordered up NYTCheltenham to replace a mélange of typefaces and sharpen the design of the newspaper.`\
-https://nytimes.com/2024/03/02/insider/the-face-of-the-times-and-the-man-who-commissioned-it.html?searchResultPosition=3
+https://nytimes.com/2024/03/02/insider/cheltenham.html?searchResultPosition=3
 
 **Iris Apfel, a Full Life in Full Looks**\
 `The New York society figure, former interior designer and self-proclaimed “geriatric starlet” made dressing a delight.`\
