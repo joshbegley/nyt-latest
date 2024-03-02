@@ -11,8 +11,8 @@ https://nytimes.com/video/us/100000009340093/kentucky-truck-dangling-bridge.html
 https://nytimes.com/2024/03/02/crosswords/daily-puzzle-2024-03-03.html?searchResultPosition=3
 
 **An Israeli strike near a hospital in Rafah killed at least 11 people, Gaza health officials say.**\
-`By Anushka Patil`\
-https://nytimes.com/2024/03/02/world/middleeast/an-israeli-strike-near-a-hospital-in-rafah-killed-at-least-11-people-gaza-health-officials-say.html?searchResultPosition=4
+`Dozens of other displaced Palestinians who had been sheltering nearby were also injured, the officials said.`\
+https://nytimes.com/2024/03/02/world/middleeast/rafah-hospital-strike.html?searchResultPosition=4
 
 **Israel Helped Organize Convoy That Ended in Disaster**\
 `It was one of four convoys put together by local Palestinian businessmen this week at the behest of Israeli officials, who promised to provide security.`\
