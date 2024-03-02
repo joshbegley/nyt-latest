@@ -1,40 +1,40 @@
+**The Fires Sweeping Across Texas Offer a Terrifying Warning**\
+`We’re entering the clima incognita.`\
+https://nytimes.com/2024/03/02/opinion/texas-wildfires-climate-change.html?searchResultPosition=1
+
+**My Joe Biden Fantasy**\
+`Only in D.C. do you dream about the State of the Union.`\
+https://nytimes.com/2024/03/02/opinion/joe-biden-state-of-the-union.html?searchResultPosition=2
+
+**The Unexpected Celebrity of Adam Schiff**\
+`Adam Schiff’s resistance to Trump has made him a Democratic hero in California, to the frustration of candidates further to the left.`\
+https://nytimes.com/2024/03/02/opinion/schiff-california-progressive-election.html?searchResultPosition=3
+
+**The Justice of Israel’s War in Gaza Will Depend on How It Ends**\
+`How to think about the moral complexities in the Israel-Gaza war.`\
+https://nytimes.com/2024/03/02/opinion/israel-hamas-war-civilians.html?searchResultPosition=4
+
+**Israel, Gaza and Double Standards, Including Our Own**\
+`Sure, the West applies more scrutiny to Israel than to other countries, but that shouldn’t deflect from the catastrophe in Gaza.`\
+https://nytimes.com/2024/03/02/opinion/israel-gaza-double-standard.html?searchResultPosition=5
+
+**What Happened to Lab-Grown Meat?**\
+`Readers discuss the viability of the flailing industry.`\
+https://nytimes.com/2024/03/02/opinion/lab-grown-meat.html?searchResultPosition=6
+
 **What You Need to Know for the 2024 Tax Season**\
 `There are tax breaks for electric car purchases, SALT workarounds, benefits for retirees and a new system for eligible taxpayers to file their returns.`\
-https://nytimes.com/2024/03/02/business/tax-breaks-2024.html?searchResultPosition=1
+https://nytimes.com/2024/03/02/business/tax-breaks-2024.html?searchResultPosition=7
 
 **Why We Can’t Stop Rushing**\
 `We know that happiness is to be found in taking our time and being present. How can we slow down?`\
-https://nytimes.com/2024/03/02/briefing/why-we-cant-stop-rushing.html?searchResultPosition=2
+https://nytimes.com/2024/03/02/briefing/why-we-cant-stop-rushing.html?searchResultPosition=8
 
 **Brian Mulroney Divided and Reshaped Canada Through Free Trade With the U.S.**\
 `The former prime minister, who died this week, brought dramatic changes, good and bad, to the country’s economy with the pact.`\
-https://nytimes.com/2024/03/02/world/canada/brian-mulroney-free-trade.html?searchResultPosition=3
+https://nytimes.com/2024/03/02/world/canada/brian-mulroney-free-trade.html?searchResultPosition=9
 
 **The Big Change Between the 2020 and 2024 Races: Biden Is Unpopular**\
 `Donald Trump has the largest national lead in an NYT poll since first running for president in 2015.`\
-https://nytimes.com/2024/03/02/upshot/poll-biden-trump-2024.html?searchResultPosition=4
-
-**Toplines: February 2024 Times/Siena Poll of Registered Voters Nationwide**\
-`Results of a nationwide New York Times/Siena College poll conducted Feb. 25-28, 2024.`\
-https://nytimes.com/interactive/2024/03/02/us/elections/times-siena-national-poll-toplines.html?searchResultPosition=5
-
-**Cross-Tabs: February 2024 Times/Siena Poll of the Likely Electorate**\
-`Donald Trump leads Joe Biden, 48 percent to 44 percent, among the likely electorate.`\
-https://nytimes.com/interactive/2024/03/02/us/elections/times-siena-poll-likely-electorate-crosstabs.html?searchResultPosition=6
-
-**Cross-Tabs: February 2024 Times/Siena Poll of Registered Voters Nationwide**\
-`Donald Trump leads Joe Biden, 48 percent to 43 percent, among registered voters.`\
-https://nytimes.com/interactive/2024/03/02/us/elections/times-siena-poll-registered-voter-crosstabs.html?searchResultPosition=7
-
-**The Paradox at the Heart of Elon Musk’s OpenAI Lawsuit**\
-`Mr. Musk says in his complaint that the company’s technology is now so good that it must be made freely available to the public — and held back from Microsoft.`\
-https://nytimes.com/2024/03/02/technology/elon-musk-openai-lawsuit-paradox.html?searchResultPosition=8
-
-**Why Elon Musk’s OpenAI Lawsuit Leans on A.I. Research From Microsoft**\
-`In his lawsuit against OpenAI and its chief executive, Sam Altman, Mr. Musk relies on a provocative paper from the start-up’s closest partner.`\
-https://nytimes.com/2024/03/02/technology/elon-musk-openai-lawsuit-microsoft-research.html?searchResultPosition=9
-
-**In Los Angeles, Even an Art Fair Is Really About the Parties**\
-`Ahead of the four-day Frieze Los Angeles art fair, partying at the Getty Villa and outbidding Dr. Dre in a roller rink turned auction house.`\
-https://nytimes.com/2024/03/02/style/frieze-los-angeles-art-fashion.html?searchResultPosition=10
+https://nytimes.com/2024/03/02/upshot/poll-biden-trump-2024.html?searchResultPosition=10
 
