@@ -18,9 +18,9 @@ https://nytimes.com/2024/03/02/world/europe/king-harald-norway-pacemaker-infecti
 `Photos on social media showed two locomotives and several container cars derailed. No injuries or leaks were reported, officials said.`\
 https://nytimes.com/2024/03/02/us/train-derailment-lehigh-river-pennsylvania.html?searchResultPosition=5
 
-**The U.S. has made its first airdrop of aid to Gaza.**\
-`By Michael Crowley and Eric Schmitt`\
-https://nytimes.com/live/2024/03/02/world/israel-hamas-war-gaza-news/the-us-has-made-its-first-airdrop-of-aid-to-gaza?searchResultPosition=6
+**U.S. Makes First Airdrop of Food Into Gaza**\
+`Three U.S. Air Force cargo planes dropped 66 pallets over southwest Gaza with 38,000 ready-to-eat military rations, in a joint mission with Jordan.`\
+https://nytimes.com/2024/03/02/world/middleeast/the-us-has-made-its-first-airdrop-of-aid-to-gaza.html?searchResultPosition=6
 
 **A Fresh Look at a Sensational 1843 Murder Case and Its Fallout**\
 `In “The Witch of New York,” Alex Hortis revisits a Staten Island case that helped usher in a lurid new era of journalism.`\
