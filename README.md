@@ -34,7 +34,7 @@ https://nytimes.com/2024/03/02/world/europe/king-harald-norway-pacemaker-infecti
 `Photos on social media showed two locomotives and several container cars derailed. No one was injured and no hazardous materials leaked, officials said.`\
 https://nytimes.com/2024/03/02/us/train-derailment-lehigh-river-pennsylvania.html?searchResultPosition=9
 
-**U.S. Makes First Airdrop of Food Into Gaza**\
-`Three U.S. Air Force cargo planes dropped 66 pallets over southwest Gaza with 38,000 ready-to-eat military rations, in a joint mission with Jordan.`\
+**U.S. Begins Airdrop of Humanitarian Aid in Gaza**\
+`Three Air Force cargo planes dropped 38,000 ready-to-eat meals in Gaza, but critics called that insufficient. A U.S. official said it was the beginning of a broader campaign.`\
 https://nytimes.com/2024/03/02/world/middleeast/us-airdrop-gaza-aid.html?searchResultPosition=10
 
