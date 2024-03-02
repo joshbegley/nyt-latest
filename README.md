@@ -22,7 +22,7 @@ https://nytimes.com/2024/03/02/insider/cheltenham.html?searchResultPosition=5
 `The New York society figure, former interior designer and self-proclaimed “geriatric starlet” made dressing a delight.`\
 https://nytimes.com/2024/03/02/style/iris-apfel-style-fashion-photos.html?searchResultPosition=6
 
-**Gaza convoy that ended in death was part of plan to try to fill a void in aid distribution.**\
+**Gaza convoy that ended in death was part of a plan to try to fill a void in aid distribution.**\
 `By Aaron Boxerman and Adam Rasgon`\
 https://nytimes.com/live/2024/03/02/world/israel-hamas-war-gaza-news/gaza-aid-convoy-that-ended-in-death-was-part-of-a-new-israeli-operation?searchResultPosition=7
 
