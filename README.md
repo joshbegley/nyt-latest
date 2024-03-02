@@ -12,7 +12,7 @@ https://nytimes.com/2024/03/02/crosswords/daily-puzzle-2024-03-03.html?searchRes
 
 **An Israeli strike near a hospital in Rafah killed at least 11 people, Gaza health officials say.**\
 `By Anushka Patil`\
-https://nytimes.com/live/2024/03/02/world/israel-hamas-war-gaza-news/an-israeli-strike-near-a-hospital-in-rafah-killed-at-least-11-people-gaza-health-officials-say?searchResultPosition=4
+https://nytimes.com/2024/03/02/world/middleeast/an-israeli-strike-near-a-hospital-in-rafah-killed-at-least-11-people-gaza-health-officials-say.html?searchResultPosition=4
 
 **Israel Helped Organize Convoy That Ended in Disaster**\
 `It was one of four convoys put together by local Palestinian businessmen this week at the behest of Israeli officials, who promised to provide security.`\
