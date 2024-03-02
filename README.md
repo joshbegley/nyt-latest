@@ -34,7 +34,7 @@ https://nytimes.com/2024/03/02/books/two-books-about-lovable-unlikable-people.ht
 `Can he find his family a safe place to stay in Gaza?`\
 https://nytimes.com/2024/03/02/podcasts/yousef.html?searchResultPosition=9
 
-**The U.S. should focus on stopping the fighting, not on airdrops, one aid group says.**\
+**The U.S. should focus on stopping Israeli obstruction of aid, not on airdrops, aid group says.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2024/03/02/world/israel-hamas-war-gaza-news/the-us-should-do-more-to-push-israel-to-lift-its-siege-of-gaza-one-aid-group-says?searchResultPosition=10
 
