@@ -1,6 +1,6 @@
 **Inmates Escape After an Attack on Haiti’s Largest Prison**\
 `The assault on the prison is the latest in a wave of violent episodes in the past few days staged by gangs who have vowed to oust the prime minister.`\
-https://nytimes.com/2024/03/03/world/americas/haiti-gangs-prison-break.html?searchResultPosition=1
+https://nytimes.com/2024/03/03/world/americas/haiti-prison-escape-gangs.html?searchResultPosition=1
 
 **U.N. Aid Agency Researchers Allege Abuse of Gazans in Israeli Detention**\
 `UNRWA, the aid agency for Palestinians, is preparing to publish an investigation based on testimony from more than 100 detainees that accuses Israeli troops of abuse.`\
