@@ -6,7 +6,7 @@ https://nytimes.com/2024/03/03/opinion/joe-biden-democratic-convention.html?sear
 `It’s a showstopping kaleidoscope of bulgogi, shiitakes, bean sprouts, spinach, carrots and cucumbers, all drizzled with a spicy gochujang sauce.`\
 https://nytimes.com/2024/03/03/dining/go-big-with-bibimbap.html?searchResultPosition=2
 
-**Nikki Haley hedges on her pledge to support the Republican nominee**\
+**Nikki Haley Hedges on Her Pledge to Support the Republican Nominee**\
 `Ms. Haley suggested she might no longer feel bound to honor the commitment, which was a requirement set by the R.N.C. for candidates to participate in the primary debates.`\
 https://nytimes.com/2024/03/03/us/politics/nikki-haley-rnc-trump.html?searchResultPosition=3
 
