@@ -2,7 +2,7 @@
 `Delivering supplies into Gaza, especially the north, has taken on increased urgency as the United Nations has warned that many Gazans are on the edge of famine.`\
 https://nytimes.com/2024/03/03/world/middleeast/gaza-aid-un-child-deaths-famine.html?searchResultPosition=1
 
-**Harris calls for an ‘immediate cease-fire’ in her most forceful comments on the conflict in Gaza.**\
+**Harris Calls for an ‘Immediate Cease-Fire’ in Gaza**\
 `The vice president urged Hamas to agree to a six-week cease-fire proposal currently on the table, and also called on Israel to increase the flow of aid into the enclave.`\
 https://nytimes.com/2024/03/03/world/middleeast/kamala-harris-cease-fire.html?searchResultPosition=2
 
