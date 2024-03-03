@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/03/03/world/israel-hamas-war-gaza-news/most-of-the
 
 **‘Dune: Part Two’ Draws Large Audiences**\
 `The science-fiction sequel sold an estimated $81.5 million in tickets in the United States and Canada, the biggest opening for a Hollywood film since “Barbie.”`\
-https://nytimes.com/2024/03/03/business/dune-part-box-office.html?searchResultPosition=2
+https://nytimes.com/2024/03/03/business/dune-part-two-box-office.html?searchResultPosition=2
 
 **OPEC to Extend Oil Production Cuts Through June**\
 `Saudi Arabia’s announcement appears to be aimed at bolstering oil prices as growth in demand remains modest.`\
