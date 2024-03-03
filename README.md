@@ -30,8 +30,8 @@ https://nytimes.com/2024/03/03/us/supreme-court-trump.html?searchResultPosition=
 `Terence Blanchard and Anthony Davis, recent pioneers at the Metropolitan Opera, returned to earlier works in a pair of performances over the weekend.`\
 https://nytimes.com/2024/03/03/arts/music/terence-blanchard-anthony-davis.html?searchResultPosition=8
 
-**Inmates Escape After an Attack on Haiti’s Largest Prison**\
-`The assault on the prison is the latest in a wave of violent episodes in the past few days staged by gangs who have vowed to oust the prime minister.`\
+**Inmates Escape After Attacks on Two Prisons in Haiti’s Capital**\
+`The assault on prisons is the latest in a wave of violent episodes in the past few days staged by gangs who have vowed to oust the prime minister.`\
 https://nytimes.com/2024/03/03/world/americas/haiti-prison-escape-gangs.html?searchResultPosition=9
 
 **U.N. Aid Agency Researchers Allege Abuse of Gazans in Israeli Detention**\
