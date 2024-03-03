@@ -26,8 +26,8 @@ https://nytimes.com/2024/03/03/opinion/joe-biden-democratic-convention.html?sear
 `It’s a showstopping kaleidoscope of bulgogi, shiitakes, bean sprouts, spinach, carrots and cucumbers, all drizzled with a spicy gochujang sauce.`\
 https://nytimes.com/2024/03/03/dining/go-big-with-bibimbap.html?searchResultPosition=7
 
-**Nikki Haley Hedges on Her Pledge to Support the Republican Nominee**\
-`Ms. Haley suggested she might no longer feel bound to honor the commitment, which was a requirement set by the R.N.C. for candidates to participate in the primary debates.`\
+**Nikki Haley Ducks and Weaves on Trump Endorsement, I.V.F. and Jan. 6**\
+`In a Sunday interview, Ms. Haley suggested she might no longer feel bound to support the eventual Republican nominee and also said that she supported I.V.F. but that states should be able to ban it.`\
 https://nytimes.com/2024/03/03/us/politics/nikki-haley-rnc-trump.html?searchResultPosition=8
 
 **What’s Hidden in Woodlawn’s Mausoleums? Extraordinary Stained Glass.**\
