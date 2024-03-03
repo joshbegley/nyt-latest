@@ -8,7 +8,7 @@ https://nytimes.com/2024/03/03/dining/go-big-with-bibimbap.html?searchResultPosi
 
 **Nikki Haley hedges on her pledge to support the Republican nominee**\
 `Ms. Haley suggested she might no longer feel bound to honor the commitment, which was a requirement set by the R.N.C. for candidates to participate in the primary debates.`\
-https://nytimes.com/live/2024/03/03/us/trump-haley-biden-election/nikki-haley-rnc-trump?searchResultPosition=3
+https://nytimes.com/2024/03/03/us/politics/nikki-haley-rnc-trump.html?searchResultPosition=3
 
 **What’s Hidden in Woodlawn’s Mausoleums? Extraordinary Stained Glass.**\
 `Many artworks commissioned by the rich and powerful for their final resting places have rarely been seen by the living for the last century.`\
