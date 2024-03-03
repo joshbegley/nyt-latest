@@ -4,7 +4,7 @@ https://nytimes.com/2024/03/03/world/americas/haiti-prison-escape-gangs.html?sea
 
 **U.N. Aid Agency Researchers Allege Abuse of Gazans in Israeli Detention**\
 `UNRWA, the aid agency for Palestinians, is preparing to publish an investigation based on testimony from more than 100 detainees that accuses Israeli troops of abuse.`\
-https://nytimes.com/2024/03/03/world/middleeast/un-aid-agency-researchers-allege-abuse-of-gazans-in-israeli-detention.html?searchResultPosition=2
+https://nytimes.com/2024/03/03/world/middleeast/unrwa-gaza-detention-israel.html?searchResultPosition=2
 
 **Imagining a Brokered Democratic Convention if Biden Drops Out**\
 `Readers react to political commentary by Jamelle Bouie and Ezra Klein. Also: Human skills in an A.I. world; not all fun and games in Florida.`\
