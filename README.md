@@ -1,4 +1,4 @@
-**Nikki Haley Hedges on Her Pledge to Support the Republican Nominee**\
+**Nikki Haley hedges on her pledge to support the Republican nominee**\
 `Ms. Haley suggested she might no longer feel bound to honor the commitment, which was a requirement set by the R.N.C. for candidates to participate in the primary debates.`\
 https://nytimes.com/live/2024/03/03/us/trump-haley-biden-election/nikki-haley-rnc-trump?searchResultPosition=1
 
