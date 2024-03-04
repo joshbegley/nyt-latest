@@ -14,7 +14,7 @@ https://nytimes.com/series/in-one-image?searchResultPosition=3
 `She received 63 percent to Donald J. Trump’s 33 percent, becoming the first woman ever to win a Republican presidential primary. But only about 2,000 people voted.`\
 https://nytimes.com/2024/03/04/us/politics/nikki-haley-wins-washington-dc.html?searchResultPosition=4
 
-**Key Figure in Trump’s Business Will Plead Guilty to Lying During Trial**\
+**Key Figure in Trump’s Business Will Plead Guilty to Perjury**\
 `Allen H. Weisselberg, the former Trump Organization finance chief, has already spent time at the Rikers Island jail complex. A perjury plea could send him back.`\
 https://nytimes.com/2024/03/04/nyregion/weisselberg-guilty-trump-business.html?searchResultPosition=5
 
