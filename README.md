@@ -1,40 +1,40 @@
-**Playing Infinite Craft Is Like Peering Into an A.I.’s Brain**\
-`A large language model generates answers as gamers combine blocks of text. It can get as weird as “Farming Simulator 2013: Furry Shades of Grey” and “Osama Bin Donuts.”`\
-https://nytimes.com/2024/03/04/arts/infinite-craft-ai-video-game.html?searchResultPosition=1
+**The Tip Sheet: How Biden Can Flip the Script Against Republicans**\
+`He needs to use the State of the Union speech to go on offense against the doubters.`\
+https://nytimes.com/live/2024/02/27/opinion/thepoint/biden-super-tuesday-speech?searchResultPosition=1
 
-**The ZIP Code Shift: Why Many Americans No Longer Live Where They Work**\
-`A new study shows that white-collar employees who can work remotely now live roughly twice as far from their offices as they did prepandemic.`\
-https://nytimes.com/2024/03/04/business/the-zip-code-shift-why-many-americans-no-longer-live-where-they-work.html?searchResultPosition=2
+**Trump Is the Leading Man**\
+`And Mitch McConnell is leaving the scene.`\
+https://nytimes.com/2024/03/04/opinion/trump-mcconnell-biden.html?searchResultPosition=2
 
-**Could a New Mythology Save the United States?**\
-`After a career of framing the country’s past through the myths that inspire Americans to fight, kill and make money, Richard Slotkin wants to find a gentler story.`\
-https://nytimes.com/2024/03/04/books/review/a-great-disorder-richard-slotkin.html?searchResultPosition=3
+**Biden vs. Trump: The Looming Rematch Hits a ‘Kickoff’ Moment**\
+`Both campaigns view this week, with Super Tuesday and the State of the Union, as a critical period that will set the tone and define the early contours of the coming general election campaign.`\
+https://nytimes.com/2024/03/04/us/politics/biden-trump-campaign-week.html?searchResultPosition=3
 
-**The Miracle Weight-Loss Drug Is Also a Major Budgetary Threat**\
-`Ozempic threatens to bust the national budget. That may finally force the government to address the problem of overly expensive medical treatments.`\
-https://nytimes.com/2024/03/04/opinion/ozempic-wegovy-medicare-federal-budget.html?searchResultPosition=4
+**In Texas’ Largest Fire, a Race to Save Animals Big and Small**\
+`An elite team of veterinarians is helping to save cows, horses, donkeys, cats and dogs. “There’s been so much devastation,” one said.`\
+https://nytimes.com/2024/03/04/us/texas-fires-animals-veterinarian.html?searchResultPosition=4
 
-**This Couple Won Their Dream Apartment Through the N.Y.C. Housing Lottery**\
-`During the quarantine, a couple worked hard on an application for the city’s housing lottery, and their efforts paid off: a two-bedroom for $1,241 a month in Long Island City.`\
-https://nytimes.com/2024/03/04/realestate/housing-lottery-nyc-queens.html?searchResultPosition=5
+**Do Designers Really Expect Us to Wear Those Ridiculous Clothes?**\
+`Our critic explains why runway shows feature outfits far more outlandish than the ones most of us actually wear.`\
+https://nytimes.com/2024/03/04/style/fashion-week-designer-clothes.html?searchResultPosition=5
 
-**The Brink**\
-`The risk of nuclear conflict is rising. It’s time for the world to pull itself back from the edge.`\
-https://nytimes.com/interactive/2024/03/04/opinion/nuclear-war-prevention.html?searchResultPosition=6
+**Why It’s So Challenging to Land Upright on the Moon**\
+`Two spacecraft have ended up askew on the lunar surface this year. It is easier to tip over in the weaker gravity on the moon than you may imagine.`\
+https://nytimes.com/2024/03/04/science/moon-landing-sideways-gravity.html?searchResultPosition=6
 
-**Big-League Dreams**\
-`The New York Times traveled to a remote Indian village to see how the new Women’s Premier League has inspired young girls to fulfill their dreams. `\
-https://nytimes.com/2024/03/04/world/asia/big-league-dreams.html?searchResultPosition=7
+**Flaco Never Had a Chance**\
+`As human populations grow and the built environment expands, protecting the creatures who share our ecosystems will become more difficult and crucial.`\
+https://nytimes.com/2024/03/04/opinion/flaco-owl-dead.html?searchResultPosition=7
 
-**The Pitbull Impersonator and Killer Whale Who Both Miss Their Moms**\
-`In her novel “Say Hello to My Little Friend,” Jennine Capó Crucet explores existential questions of isolation and belonging through two unlikely figures.`\
-https://nytimes.com/2024/03/04/books/review/say-hello-to-my-little-friend-jennine-capo-crucet.html?searchResultPosition=8
+**North Carolina’s Race for Governor: Expensive, Closely Watched and Probably Tight**\
+`The leading candidates — Josh Stein, the Democratic attorney general, and Mark Robinson, the Republican lieutenant governor — could not be more different.`\
+https://nytimes.com/2024/03/04/us/north-carolina-race-governor.html?searchResultPosition=8
 
-**A Shape-Shifting Novel About the Power of Stories**\
-`In Helen Oyeyemi’s “Parasol Against the Axe,” a woman’s trip to Prague becomes a meta-narrative about connection with art, people and more.`\
-https://nytimes.com/2024/03/04/books/review/parasol-against-the-axe-helen-oyeyemi.html?searchResultPosition=9
+**Select Sources From ‘The Brink’**\
+`A selection of studies, research and information sources used in the reporting of “At the Brink.”`\
+https://nytimes.com/2024/03/04/opinion/nuclear-weapons-bibliography.html?searchResultPosition=9
 
-**Inspired by a Real Mystery, This Novel Skewers the Art World**\
-`In “Anita de Monte Laughs Last,” by Xochitl Gonzalez, two Latina women working a decade apart fight to break out in the New York art scene.`\
-https://nytimes.com/2024/03/04/books/review/anita-de-monte-laughs-last-xochitl-gonzalez.html?searchResultPosition=10
+**7 Expert Tips for Cooking Chicken**\
+`In the third installment of her YouTube series, the cookbook author and chef Sohla El-Waylly will teach you how to master the basics of the bird.`\
+https://nytimes.com/2024/03/04/dining/chicken-tips-how-to.html?searchResultPosition=10
 
