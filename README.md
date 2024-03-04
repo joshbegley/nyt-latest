@@ -30,7 +30,7 @@ https://nytimes.com/2024/03/04/theater/teeth-musical-michael-r-jackson.html?sear
 `The most detailed research yet on corporate response to the 2017 Republican tax law shows modest gains for workers and high cost to the federal debt.`\
 https://nytimes.com/2024/03/04/us/politics/trump-corporate-tax-cut.html?searchResultPosition=8
 
-**Brace yourself for Super Tuesday, the State of the Union and a possible Supreme Court ruling.**\
+**Brace yourself for Super Tuesday and the State of the Union, after a Supreme Court ruling.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/03/04/us/trump-biden-haley-elections/brace-yourself-for-super-tuesday-the-state-of-the-union-and-a-possible-supreme-court-ruling?searchResultPosition=9
 
