@@ -1,4 +1,4 @@
-**Rikers Island Will Not Close by 2027 Deadline, N.Y.C. Official Admits**\
+**Rikers Island Not Likely to Close by 2027 Deadline, N.Y.C. Official Says**\
 `The city is required by law to shutter the Rikers Island jail complex by August 2027 and replace it with four borough-based facilities.`\
 https://nytimes.com/2024/03/04/nyregion/rikers-closing-2027.html?searchResultPosition=1
 
