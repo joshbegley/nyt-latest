@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/03/04/us/trump-supreme-court-colorado-ballot/a-loo
 
 **Read the Decision in the Trump Colorado Ballot Case**\
 `The justices ruled that the 14th Amendment did not allow Colorado to bar the former president from the state’s primary ballot. The justices offered different reasons, but the decision was unanimous.`\
-https://nytimes.com/interactive/2024/03/04/us/supreme-court-decision-in-the-trump-colorado-ballot-case.html?searchResultPosition=2
+https://nytimes.com/interactive/2024/03/04/us/supreme-court-ruling-trump-colorado.html?searchResultPosition=2
 
 **RuPaul Is Sending a Rainbow Bus to Give Away Books Targeted by Bans**\
 `The star, whose show “RuPaul’s Drag Race” has an international following, is one of the founders of a new online bookstore promoting underrepresented authors. The giveaways are part of its outreach.`\
