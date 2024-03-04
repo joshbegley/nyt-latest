@@ -24,7 +24,7 @@ https://nytimes.com/2024/03/04/us/arizona-law-voters-citizenship.html?searchResu
 
 **San Francisco Art Institute Headquarters Sold to Group Led by Laurene Powell Jobs**\
 `The sale includes a 1931 Diego Rivera mural, which has been valued at $50 million.`\
-https://nytimes.com/2024/03/04/arts/design/laurene-powell-jobs-san-francisco-art-institute.html?searchResultPosition=7
+https://nytimes.com/2024/03/04/arts/design/laurene-powell-jobs-sf-art-institute.html?searchResultPosition=7
 
 **Tuesday Briefing: Trump can appear on ballots**\
 `Also, France protects abortion rights and a U.N. report on sexual assault during the Oct. 7 attack.`\
