@@ -35,6 +35,6 @@ https://nytimes.com/2024/03/03/business/macys-activist-investor.html?searchResul
 https://nytimes.com/2024/03/03/world/middleeast/gaza-aid-un-child-deaths-famine.html?searchResultPosition=9
 
 **Harris Calls for an ‘Immediate Cease-Fire’ in Gaza**\
-`The vice president urged Hamas to agree to a six-week cease-fire proposal currently on the table, and also called on Israel to increase the flow of aid into the enclave.`\
+`The vice president urged Hamas to agree to a six-week cease-fire proposal and called on Israel to increase the flow of aid into the enclave.`\
 https://nytimes.com/2024/03/03/world/middleeast/kamala-harris-cease-fire.html?searchResultPosition=10
 
