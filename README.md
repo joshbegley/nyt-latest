@@ -1,4 +1,4 @@
-**JetBlue Calls Off Spirit Acquisition**\
+**JetBlue and Spirit Call Off Their Merger**\
 `JetBlue said it would pay Spirit $69 million to terminate the $3.8 billion deal, which had been blocked by federal antitrust regulators.`\
 https://nytimes.com/2024/03/04/business/jetblue-spirit-airlines-merger.html?searchResultPosition=1
 
