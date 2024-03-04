@@ -4,7 +4,7 @@ https://nytimes.com/video/us/100000009341737/albert-einstein-college-of-medicine
 
 **Only a trickle of aid reaches northern Gaza, where the threat of famine looms.**\
 `By Aaron Boxerman and Adam Rasgon`\
-https://nytimes.com/live/2024/03/04/world/israel-hamas-war-gaza-news/only-a-trickle-of-aid-reaches-northern-gaza-where-the-threat-of-famine-looms?searchResultPosition=2
+https://nytimes.com/2024/03/04/world/middleeast/only-a-trickle-of-aid-reaches-northern-gaza-where-the-threat-of-famine-looms.html?searchResultPosition=2
 
 **The Vienna Philharmonic Tours With a Favorite Conductor**\
 `Franz Welser-Möst, who stands at the top of this storied orchestra’s roster of conductors, led three meaty programs at Carnegie Hall over the weekend.`\
