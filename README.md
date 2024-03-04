@@ -3,7 +3,7 @@
 https://nytimes.com/2024/03/04/dining/hot-sheet-cookbook-sheet-pan.html?searchResultPosition=1
 
 **Do You Know These Books That Became Best Picture Winners?**\
-`“Killers of the Flower Moon” and “Oppenheimer” are among this year’s Academy Award-nominated films that drew source material and inspiration from nonfiction books. Take this short quiz to test your knowledge of other books and their film adaptations that won the Oscar for best picture.`\
+`“Killers of the Flower Moon” and “Oppenheimer” are among this year’s Academy Award-nominated films based on nonfiction books. Take this short quiz to test your knowledge of other books that inspired films that won the Oscar for best picture.`\
 https://nytimes.com/interactive/2024/03/04/books/review/oscar-books-quiz.html?searchResultPosition=2
 
 **In Rare Interview, Biden Insists He Is Democrats’ Best Option Against Trump**\
