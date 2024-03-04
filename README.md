@@ -3,7 +3,7 @@
 https://nytimes.com/2024/03/04/nyregion/weisselberg-guilty-trump-business.html?searchResultPosition=1
 
 **Apple Fined $2 Billion by E.U. for Using App Store to Thwart Competition**\
-`Apple is expected to appeal the penalty, the latest in a series of regulatory setbacks for the tech giant.`\
+`Apple said it would appeal the penalty, the latest in a series of regulatory setbacks for the tech giant.`\
 https://nytimes.com/2024/03/04/business/apple-eu-fine-app-store.html?searchResultPosition=2
 
 **The Supreme Court and the Election**\
