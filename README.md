@@ -7,7 +7,7 @@ https://nytimes.com/2024/03/04/world/middleeast/israel-haredi-military-service-i
 https://nytimes.com/2024/03/04/technology/europe-apple-meta-google-microsoft.html?searchResultPosition=2
 
 **How Regulations Fractured Apple’s App Store**\
-`As the App Store approaches its 16th anniversary, a patchwork of rules have turned what was a single store into different shops across many countries.`\
+`As the App Store approaches its 16th anniversary, patchwork rules have turned what was a single store into different shops across many countries.`\
 https://nytimes.com/2024/03/04/technology/app-store-europe-law.html?searchResultPosition=3
 
 **Kamala Harris Calls for ‘Immediate Cease-Fire’ in Gaza**\
