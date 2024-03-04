@@ -22,7 +22,7 @@ https://nytimes.com/2024/03/04/opinion/supreme-court-trump-colorado-constitution
 `By The New York Times`\
 https://nytimes.com/live/2024/03/04/world/israel-hamas-war-gaza-news/the-un-teams-sexual-violence-report-describes-its-members-expertise-in-the-field-as-extensive?searchResultPosition=6
 
-**Tony’s Booth From the ‘Sopranos’ Finale Sets Off Online Bidding War**\
+**Tony’s Booth From ‘Sopranos’ Finale Sets Off Online Bidding War**\
 `The New Jersey ice cream parlor where “The Sopranos” abruptly cut to black in 2007 put the booth on eBay, hoping to fetch $10,000. Within days, bidders had pushed the price above $82,000.`\
 https://nytimes.com/2024/03/04/arts/sopranos-booth-ebay-sale.html?searchResultPosition=7
 
