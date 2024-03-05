@@ -1,3 +1,7 @@
+**‘A Revolution on Canvas’ Review: The Personal, the Political and the Painting**\
+`A documentary about lost artwork intimately involves one of its directors.`\
+https://nytimes.com/2024/03/05/movies/a-revolution-on-canvas-review.html
+
 **Tiny Love Stories: ‘Why Did I Choose Her?’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/03/05/style/tiny-modern-love-stories-why-did-i-choose-her.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/science/rabbi-ellen-bernstein-dead.html
 **Why Is This $2.99 Tote Bag Causing Chaos?**\
 `It’s tiny. It’s cheap. Trader Joe’s stores can’t seem to keep them on shelves.`\
 https://nytimes.com/2024/03/05/style/trader-joes-mini-tote.html
-
-**Transcript: Ezra Klein Interviews Richard Haass**\
-`The March 1, 2023, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/03/05/podcasts/transcript-ezra-klein-interviews-richard-haass.html
 
