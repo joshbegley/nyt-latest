@@ -1,3 +1,7 @@
+**House Races to Watch in California**\
+`Several races in the state could prove crucial to House control next year, including one that might be decided on Tuesday.`\
+https://nytimes.com/2024/03/05/us/politics/house-races-to-watch-in-california.html
+
 **Dartmouth Basketball’s Union Took Shape in the Campus Dining Hall**\
 `On Tuesday, the historic 13-2 vote by the men’s basketball team to unionize took a significant step toward classifying student-athletes as employees.`\
 https://nytimes.com/2024/03/05/us/dartmouth-basketball-union-athletes-employees.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/us/politics/biden-age.html
 **Shafiqah Hudson, Who Fought Trolls on Social Media, Dies at 46**\
 `When the hashtag #EndFathersDay began trending on Twitter, she realized it was more than just an absurd joke. It was a coordinated disinformation effort.`\
 https://nytimes.com/2024/03/05/us/shafiqah-hudson-dead.html
-
-**How a Climate Rule Got Watered Down**\
-`The S.E.C. was the target of intense corporate lobbying and a backlash from Republicans.`\
-https://nytimes.com/2024/03/05/climate/how-a-climate-rule-got-watered-down.html
 
