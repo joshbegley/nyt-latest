@@ -1,3 +1,7 @@
+**It’s the Biggest Day of This Year’s Primary Elections**\
+`Also, China set an ambitious goal for economic growth. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/03/05/briefing/super-tuesday-china-growth-target.html
+
 **Here are the House races to watch in California.**\
 `By Jill Cowan and Amy Qin`\
 https://nytimes.com/live/2024/03/05/us/super-tuesday-election-updates/here-are-the-house-races-to-watch-in-california
@@ -12,7 +16,7 @@ https://nytimes.com/2024/03/05/us/dartmouth-basketball-union-athletes-employees.
 
 **Why Trump and Biden Can’t Clinch Nominations on Super Tuesday**\
 `Mathematically, Super Tuesday won’t secure either candidate a majority of his party’s delegates.`\
-https://nytimes.com/2024/03/05/us/politics/biden-trump-when-clinch-nominations.html
+https://nytimes.com/2024/03/05/us/politics/biden-trump-delegates-super-tuesday.html
 
 **U.S. Warns Spring Breakers Headed to Mexico, Jamaica or the Bahamas**\
 `In recent weeks, American travelers to some of the busiest international destinations during spring vacation have been urged by the State Department to exercise extra caution.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/us/brown-university-admission-test-optional.html
 **Learning to Love Fitness, Despite Dreading Gym Class**\
 `Memories of the Presidential Physical Fitness Test, the grade-school assessment, inspired one reporter to reflect on her movement journey.`\
 https://nytimes.com/2024/03/05/insider/learning-to-love-fitness-despite-disliking-gym-class.html
-
-**Amid Age Concerns, the White House Tries a New Strategy: Let Joe Be Joe**\
-`President Biden tries to take on worries about a tough race by turning to TikTok influencers, a late-night talk show and more give-and-take with reporters.`\
-https://nytimes.com/2024/03/05/us/politics/biden-age.html
 
