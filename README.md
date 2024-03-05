@@ -30,8 +30,8 @@ https://nytimes.com/2024/03/04/fashion/jewelry-kia-schwaninger.html?searchResult
 `Hemmerle is leaving its historic boutique for a discreet suite down the street. “It’s more in line with who we are today,” Christian Hemmerle said.`\
 https://nytimes.com/2024/03/04/fashion/jewelry-hemmerle-munich.html?searchResultPosition=8
 
-**China Signals Robust Goal for Economic Growth**\
-`Premier Li Qiang targets economic growth of about 5 percent this year as China signals readiness to borrow more for spending programs.`\
+**China Sets Robust Economic Growth Goal but No Big Bang Stimulus**\
+`Premier Li Qiang targets growth of about 5 percent this year but signals continued reluctance to use deficit spending for economic stimulus.`\
 https://nytimes.com/2024/03/04/business/china-gdp-target.html?searchResultPosition=9
 
 **Microsoft Seeks to Dismiss Parts of Suit Filed by The New York Times**\
