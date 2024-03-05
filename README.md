@@ -1,3 +1,7 @@
+**Starbucks Lays Off Workers in Mideast Amid Gaza-Tied Boycotts**\
+`Store traffic has dropped off in the Middle East and Southeast Asia as customers protest perceptions of Starbucks’ stance on the Israel-Hamas conflict.`\
+https://nytimes.com/2024/03/05/business/starbucks-layoffs-middle-east.html
+
 **Cyberattack Wreaks Havoc on Hospitals and Doctors**\
 `The hacking shut down the nation’s biggest health care payment system, causing financial chaos that affected a broad spectrum ranging from large hospitals to single-doctor practices.`\
 https://nytimes.com/2024/03/05/health/cyberattack-healthcare-cash.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/05/world/israel-hamas-war-gaza-news/biden-expre
 **Gaza Cease-Fire Deal Is ‘In the Hands of Hamas,’ Biden Says**\
 `President Biden said the Israelis had been cooperating in negotiations over a possible six-week cease-fire in Gaza, being mediated by Qatar and Egypt, and that “a rational offer” was made.`\
 https://nytimes.com/video/us/politics/100000009344529/biden-hamas-ceasefire-deal.html
-
-**How Hiroshima and Nagasaki Survivors Informed ‘The Brink’**\
-`The voices of those who experienced a nuclear attack need to be heard to help prevent another one.`\
-https://nytimes.com/live/2024/02/27/opinion/thepoint/nuclear-weapons-survivors
 
