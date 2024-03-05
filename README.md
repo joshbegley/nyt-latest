@@ -22,7 +22,7 @@ https://nytimes.com/2024/03/05/health/cyberattack-healthcare-cash.html
 `The school joins Yale, Dartmouth and M.I.T. in backtracking on “test optional” policies adopted during the pandemic.`\
 https://nytimes.com/2024/03/05/us/brown-university-admission-test-optional.html
 
-**Learning to Love Fitness, Despite Disliking Gym Class**\
+**Learning to Love Fitness, Despite Dreading Gym Class**\
 `Memories of the Presidential Physical Fitness Test, the grade-school assessment, inspired one reporter to reflect on her movement journey.`\
 https://nytimes.com/2024/03/05/insider/learning-to-love-fitness-despite-disliking-gym-class.html
 
