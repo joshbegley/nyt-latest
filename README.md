@@ -1,3 +1,11 @@
+**Brown University Will Reinstate Standardized Tests for Admission**\
+`The school joins Yale, Dartmouth and M.I.T. in backtracking on “test optional” policies adopted during the pandemic.`\
+https://nytimes.com/2024/03/05/us/brown-university-admission-test-optional.html
+
+**Learning to Love Fitness, Despite Disliking Gym Class**\
+`Memories of the Presidential Physical Fitness Test, the grade-school assessment, inspired one reporter to reflect on her movement journey.`\
+https://nytimes.com/2024/03/05/insider/learning-to-love-fitness-despite-disliking-gym-class.html
+
 **Amid Age Concerns, the White House Tries a New Strategy: Let Joe Be Joe**\
 `President Biden tries to take on worries about a tough race by turning to TikTok influencers, a late-night talk show and more give-and-take with reporters.`\
 https://nytimes.com/2024/03/05/us/politics/biden-age.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/02/27/opinion/thepoint/nuclear-weapons-survivors
 **A Grainy Photo and a Dilemma: How U.K. Papers Are Covering Princess Catherine**\
 `In a country where the health struggles of even public figures are generally viewed as out of bounds, journalists are trying to balance the right to privacy with a thirst for royal stories.`\
 https://nytimes.com/2024/03/05/world/europe/princess-kate-middleton-royals.html
-
-**Wednesday Briefing: Americans Vote on Super Tuesday**\
-`Also, China’s ambitious growth goal and this year’s winner of the Pritzker Prize.`\
-https://nytimes.com/2024/03/05/world/asia/super-tuesday-vote-china-asia.html
-
-**The Rich Spend Differently From You and Me**\
-`Your inflation rate may not be mine. Does it matter?`\
-https://nytimes.com/2024/03/05/opinion/inflation-income-inequality.html
 
