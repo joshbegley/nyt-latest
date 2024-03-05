@@ -2,7 +2,7 @@
 `The New Jersey senator and his wife, Nadine Menendez, who already faced bribery charges, were charged in an 18-count superseding indictment that was unsealed on Tuesday.`\
 https://nytimes.com/2024/03/05/nyregion/robert-menendez-indicted.html
 
-**Biden expresses hope for a cease-fire deal, but Hamas appears to reject the latest offer.**\
+**‘We need a cease-fire,’ Biden says.**\
 `By Michael D. Shear, Hwaida Saad and Andrea Kannapell`\
 https://nytimes.com/live/2024/03/05/world/israel-hamas-war-gaza-news/biden-expresses-hope-for-a-cease-fire-deal-but-hamas-appears-to-reject-the-latest-offer
 
@@ -15,7 +15,7 @@ https://nytimes.com/video/us/politics/100000009344529/biden-hamas-ceasefire-deal
 https://nytimes.com/live/2024/02/27/opinion/thepoint/nuclear-weapons-survivors
 
 **A Grainy Photo and a Dilemma: How U.K. Papers Are Covering Princess Catherine**\
-`In a country where the health struggles of even public figures are generally viewed as largely out of bounds, journalists are trying to balance the right to privacy with a thirst for royal stories.`\
+`In a country where the health struggles of even public figures are generally viewed as out of bounds, journalists are trying to balance the right to privacy with a thirst for royal stories.`\
 https://nytimes.com/2024/03/05/world/europe/princess-kate-middleton-royals.html
 
 **Wednesday Briefing: Americans Vote on Super Tuesday**\
