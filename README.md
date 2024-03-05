@@ -31,7 +31,7 @@ https://nytimes.com/2024/03/05/us/politics/trump-supreme-court-election.html?sea
 https://nytimes.com/2024/03/05/us/politics/victoria-nuland-state-department.html?searchResultPosition=8
 
 **Iditarod Racer Kills Moose to Protect Himself and Dogs, Officials Say**\
-`Dallas Seavey, a five-time Iditarod winner, had to gut the moose during the sled dog race to comply with the competition's rules.`\
+`Dallas Seavey, a five-time Iditarod winner, had to gut the moose during the sled dog race to comply with the competition’s rules.`\
 https://nytimes.com/2024/03/05/sports/iditarod-dog-race-moose-shooting.html?searchResultPosition=9
 
 **Even Katie Porter’s Neighbors Might Not Vote for Her**\
