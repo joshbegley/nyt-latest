@@ -1,3 +1,7 @@
+**Philadelphia Man Is Freed After 34 Years in Prison**\
+`Police had hidden evidence showing that Ronald Johnson did not participate in the crime he was convicted of, his lawyer said.`\
+https://nytimes.com/2024/03/05/us/ronald-johnson-sentence-vacated.html
+
 **Josh Stein Wins Democratic Primary for North Carolina Governor**\
 `Mr. Stein, the state attorney general, easily defeated four primary opponents and will likely face Mark Robinson, the Republican lieutenant governor, in November.`\
 https://nytimes.com/2024/03/05/us/politics/josh-stein-north-carolina-governor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/world/americas/venezuela-maduro-election-date.htm
 **Maker of Raw Milk Cheese Pleads Guilty in Listeria Outbreak That Killed 2**\
 `The Federal Drug Administration linked cheese from the Vulto Creamery in Walton, N.Y., to an outbreak of listeria that also sickened six from 2016 to 2017.`\
 https://nytimes.com/2024/03/05/nyregion/listeria-outbreak-cheese-guilty-plea.html
-
-**Israeli forces trade fire with Hezbollah over the Lebanese border.**\
-`By Hwaida Saad`\
-https://nytimes.com/live/2024/03/05/world/israel-hamas-war-gaza-news/israeli-forces-trade-fire-with-hezbollah-over-the-lebanese-border
 
