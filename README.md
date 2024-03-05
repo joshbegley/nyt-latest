@@ -1,3 +1,7 @@
+**Dartmouth Basketball’s Union Took Shape in the Campus Dining Hall**\
+`On Tuesday, the historic 13-2 vote by the men’s basketball team to unionize took a significant step toward classifying student-athletes as employees.`\
+https://nytimes.com/2024/03/05/us/dartmouth-basketball-union-athletes-employees.html
+
 **Why Trump and Biden Can’t Clinch Nominations on Super Tuesday**\
 `Mathematically, Super Tuesday won’t secure either candidate a majority of his party’s delegates.`\
 https://nytimes.com/2024/03/05/us/politics/biden-trump-when-clinch-nominations.html
@@ -10,7 +14,7 @@ https://nytimes.com/2024/03/05/travel/spring-break-resort-safety.html
 `Store traffic has dropped off in the Middle East and Southeast Asia as customers protest perceptions of Starbucks’ stance on the Israel-Hamas conflict.`\
 https://nytimes.com/2024/03/05/business/starbucks-layoffs-middle-east.html
 
-**Cyberattack Wreaks Havoc on Hospitals and Doctors**\
+**Cyberattack Paralyzes the Largest U.S. Health Care Payment System**\
 `The hacking shut down the nation’s biggest health care payment system, causing financial chaos that affected a broad spectrum ranging from large hospitals to single-doctor practices.`\
 https://nytimes.com/2024/03/05/health/cyberattack-healthcare-cash.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/us/shafiqah-hudson-dead.html
 **How a Climate Rule Got Watered Down**\
 `The S.E.C. was the target of intense corporate lobbying and a backlash from Republicans.`\
 https://nytimes.com/2024/03/05/climate/how-a-climate-rule-got-watered-down.html
-
-**Robert Menendez and Wife Are Charged With Obstruction of Justice**\
-`The New Jersey senator and his wife, Nadine Menendez, who already faced bribery charges, were charged in an 18-count superseding indictment that was unsealed on Tuesday.`\
-https://nytimes.com/2024/03/05/nyregion/robert-menendez-indicted.html
 
