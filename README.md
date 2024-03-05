@@ -1,3 +1,7 @@
+**Damage to Cables Under Red Sea Highlights Mideast Conflict’s Broader Threat**\
+`What disabled three major cables liking East to West is still not clear. Suspicion has centered on Yemen’s Houthi rebels, who have attacked numerous ships in the area, but they have denied responsibility.`\
+https://nytimes.com/2024/03/05/business/damage-to-cables-under-red-sea-highlights-mideast-conflicts-broader-threat.html
+
 **‘A Revolution on Canvas’ Review: The Personal, the Political and the Painting**\
 `A documentary about lost artwork intimately involves one of its directors.`\
 https://nytimes.com/2024/03/05/movies/a-revolution-on-canvas-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/us/politics/kyrsten-sinema-arizona-senate.html
 **Rabbi Ellen Bernstein, Who Saw Ecology as God’s Work, Dies at 70**\
 `She linked her passion for the natural environment to the precepts of the Hebrew Bible, beginning with the Garden of Eden.`\
 https://nytimes.com/2024/03/05/science/rabbi-ellen-bernstein-dead.html
-
-**Why Is This $2.99 Tote Bag Causing Chaos?**\
-`It’s tiny. It’s cheap. Trader Joe’s stores can’t seem to keep them on shelves.`\
-https://nytimes.com/2024/03/05/style/trader-joes-mini-tote.html
 
