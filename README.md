@@ -12,7 +12,7 @@ https://nytimes.com/2024/03/05/well/eat/yogurt-diabetes-risk-fda.html
 
 **Sinema’s Retirement Is a Gift to Exasperated Democrats**\
 `Many are happy to see her go, and they can stop worrying that she might help elect a Republican.`\
-https://nytimes.com/live/2024/02/27/opinion/thepoint/sinema-retirement-democrats-arizona
+https://nytimes.com/live/2024/03/05/opinion/thepoint/sinema-retirement-democrats-arizona
 
 **Panama Bans Ex-Leader Martinelli From Presidential Election**\
 `The electoral tribunal disqualified Ricardo Martinelli, saying he was ineligible to run because of his conviction for money laundering and sentencing to more than five years in prison.`\
