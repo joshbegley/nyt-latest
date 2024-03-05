@@ -7,7 +7,7 @@ https://nytimes.com/live/2024/03/05/us/super-tuesday-election-updates/here-are-t
 https://nytimes.com/2024/03/05/us/politics/house-races-to-watch-in-california.html
 
 **Dartmouth Basketball’s Union Took Shape in the Campus Dining Hall**\
-`On Tuesday, the historic 13-2 vote by the men’s basketball team to unionize took a significant step toward classifying student-athletes as employees.`\
+`On Tuesday, the historic 13-to-2 vote by the men’s basketball team to unionize took a significant step toward classifying student-athletes as employees.`\
 https://nytimes.com/2024/03/05/us/dartmouth-basketball-union-athletes-employees.html
 
 **Why Trump and Biden Can’t Clinch Nominations on Super Tuesday**\
