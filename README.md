@@ -1,3 +1,19 @@
+**Biden expresses hope for a cease-fire deal, but Hamas appears to reject the latest offer.**\
+`By Michael D. Shear, Hwaida Saad and Andrea Kannapell`\
+https://nytimes.com/live/2024/03/05/world/israel-hamas-war-gaza-news/biden-expresses-hope-for-a-cease-fire-deal-but-hamas-appears-to-reject-the-latest-offer
+
+**Gaza Cease-Fire Deal Is ‘In the Hands of Hamas,’ Biden Says**\
+`President Biden said the Israelis had been cooperating in negotiations over a possible six-week cease-fire in Gaza, being mediated by Qatar and Egypt, and that “a rational offer” was made.`\
+https://nytimes.com/video/us/politics/100000009344529/biden-hamas-ceasefire-deal.html
+
+**How Hiroshima and Nagasaki Survivors Informed ‘The Brink’**\
+`The voices of those who experienced a nuclear attack need to be heard to help prevent another one.`\
+https://nytimes.com/live/2024/02/27/opinion/thepoint/nuclear-weapons-survivors
+
+**A Grainy Photo and a Dilemma: How U.K. Papers Are Covering Princess Catherine**\
+`In a country where the health struggles of even public figures are generally viewed as largely out of bounds, journalists are trying to balance the right to privacy with a thirst for royal stories.`\
+https://nytimes.com/2024/03/05/world/europe/princess-kate-middleton-royals.html
+
 **Wednesday Briefing: Americans Vote on Super Tuesday**\
 `Also, China’s ambitious growth goal and this year’s winner of the Pritzker Prize.`\
 https://nytimes.com/2024/03/05/world/asia/super-tuesday-vote-china-asia.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/03/05/style/tiny-modern-love-stories-why-did-i-choose-h
 **New Federal Rule Caps Most Credit Card Late Fees at $8**\
 `The Consumer Financial Protection Bureau said its new restriction would save households $10 billion a year in “junk fees.”`\
 https://nytimes.com/2024/03/05/business/credit-card-late-fees.html
-
-**Janice Burgess, Nickelodeon Executive and ‘Backyardigans’ Creator, Dies at 72**\
-`Ms. Burgess oversaw the production of “Blue’s Clues” and drew on her own childhood for “The Backyardigans,” in which five cartoon animals imagine their yard as a place of otherworldly adventure.`\
-https://nytimes.com/2024/03/05/arts/janice-burgess-dead.html
-
-**A Music Festival Headlined by Alexandria Ocasio-Cortez**\
-`The New York Democrat had top billing at a recent concert event in Florida that took a partisan approach to politics as entertainment.`\
-https://nytimes.com/2024/03/05/style/madsoul-festival-aoc-florida.html
-
-**1 Killed as Explosion at Michigan Vape Distributor Sends Canisters Flying**\
-`A 19-year-old man was looking at the glowing orange sky when he was struck by a butane canister from a quarter-mile away, the authorities said.`\
-https://nytimes.com/2024/03/05/us/michigan-explosions-fire.html
-
-**Is Crypto Back? What to Know About Bitcoin’s Surge.**\
-`Bitcoin just hit a record high, but there are big differences between now and the last crypto boom, when digital currencies became a cultural phenomenon.`\
-https://nytimes.com/2024/03/05/technology/cryptocurrencies-bitcoin-explainer.html
 
