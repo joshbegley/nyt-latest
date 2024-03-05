@@ -1,3 +1,15 @@
+**Read the Latest Menendez Indictment**\
+`Federal prosecutors on Tuesday charged Senator Robert Menendez of New Jersey and his wife, Nadine Menendez, with obstruction of justice, adding to the bribery and corruption charges they already face.`\
+https://nytimes.com/interactive/2024/03/05/nyregion/bob-menendez-obstruction-justice.html
+
+**Patti Smith Sings for a ‘New York Gem’**\
+`The Morgan Library & Museum drew devotees out for a party celebrating its centennial, including Peter Marino, Vito Schnabel and Walton Ford.`\
+https://nytimes.com/2024/03/05/style/patti-smith-nyc-morgan-library.html
+
+**6 Charged With Smuggling Goose and Duck Intestines From China**\
+`Six New York City residents were arrested on Tuesday and charged with importing the sought-after delicacies in violation of federal rules.`\
+https://nytimes.com/2024/03/05/nyregion/illegal-import-intestines-charge.html
+
 **Frank Popoff, Who Sought to Lead a Friendlier Dow Chemical, Dies at 88**\
 `As chief executive, he pushed a company known for Agent Orange, napalm and chlorine to undo its confrontational reputation and promote environmental sustainability.`\
 https://nytimes.com/2024/03/05/business/frank-popoff-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/05/world/americas/panama-martinelli-disqualified-pre
 **When Will We Get Results on Super Tuesday?**\
 `A lot of polls will close around 8 p.m. Eastern time, but delegate-rich California, which is famously slow to count ballots, will be one of the last states to wrap up.`\
 https://nytimes.com/2024/03/05/us/politics/super-tuesday-results-when.html
-
-**Estella Bergere Leopold Dies at 97; Found Climate Clues in Ancient Pollen**\
-`The last child of the pioneering ecologist Aldo Leopold, she also helped preserve her father’s legacy as a founder of the modern environmental movement.`\
-https://nytimes.com/2024/03/05/science/earth/estella-bergere-leopold-dead.html
-
-**It’s the Biggest Day of This Year’s Primary Elections**\
-`Also, China set an ambitious goal for economic growth. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/03/05/briefing/super-tuesday-china-growth-target.html
-
-**Here are the House races to watch in California.**\
-`By Jill Cowan and Amy Qin`\
-https://nytimes.com/live/2024/03/05/us/super-tuesday-election-updates/here-are-the-house-races-to-watch-in-california
 
