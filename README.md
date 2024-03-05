@@ -1,5 +1,5 @@
 **Facebook and Instagram Users Report Meta Services Are Down**\
-`People reported issues with the websites starting around 10 a.m., according to Down Detector, a website that tracks user reports of internet disruptions.`\
+`People reported issues with the websites starting around 10 a.m. Eastern, according to Down Detector, a website that tracks user reports of internet disruptions.`\
 https://nytimes.com/2024/03/05/technology/facebook-instagram-meta-down.html?searchResultPosition=1
 
 **She Boxes. She Conducts. She Delights in Defying Stereotypes.**\
