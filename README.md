@@ -1,3 +1,7 @@
+**Maker of Raw Milk Cheese Pleads Guilty in Listeria Outbreak That Killed 2**\
+`The Federal Drug Administration linked cheese from the Vulto Creamery in Walton, N.Y., to an outbreak of listeria that also sickened six from 2016 to 2017.`\
+https://nytimes.com/2024/03/05/nyregion/listeria-outbreak-cheese-guilty-plea.html
+
 **Israeli forces trade fire with Hezbollah over the Lebanese border.**\
 `By Hwaida Saad`\
 https://nytimes.com/live/2024/03/05/world/israel-hamas-war-gaza-news/israeli-forces-trade-fire-with-hezbollah-over-the-lebanese-border
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/05/nyregion/bob-menendez-obstruction-jus
 **Patti Smith Sings for a ‘New York Gem’**\
 `The Morgan Library & Museum drew devotees out for a party celebrating its centennial, including Peter Marino, Vito Schnabel and Walton Ford.`\
 https://nytimes.com/2024/03/05/style/patti-smith-nyc-morgan-library.html
-
-**6 Charged With Smuggling Goose and Duck Intestines From China**\
-`Six New York City residents were arrested on Tuesday and charged with importing the sought-after delicacies in violation of federal rules.`\
-https://nytimes.com/2024/03/05/nyregion/illegal-import-intestines-charge.html
 
