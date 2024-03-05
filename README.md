@@ -4,7 +4,7 @@ https://nytimes.com/interactive/2024/03/05/learning/05StudentNewsQuiz.html?searc
 
 **Tesla Halts Production in Germany After Suspected Arson Attack**\
 `Police believe the blaze at a high-voltage power pylon had been deliberately set, amid ongoing turmoil over the automaker’s plans to expand its assembly plant near Berlin.`\
-https://nytimes.com/2024/03/05/world/europe/tesla-germany-factory-fire.html?searchResultPosition=2
+https://nytimes.com/2024/03/05/business/tesla-germany-factory-fire.html?searchResultPosition=2
 
 **Some states will confront wet weather on Super Tuesday.**\
 `Lingering snow showers are expected in some states, and coastal storms may affect others.`\
