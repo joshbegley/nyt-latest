@@ -1,3 +1,11 @@
+**Biden Wins Democratic Caucuses in Iowa, Starting Expected Sweep**\
+`The contest was the first of 16 on Super Tuesday he is expected to dominate as he turns fully to the general election.`\
+https://nytimes.com/2024/03/05/us/politics/biden-iowa-democratic-caucus.html
+
+**Does Yogurt Reduce Diabetes Risk? That’s What Labels Can Now Claim**\
+`The F.D.A. will allow yogurt makers to put the benefit on their packaging. But experts say the evidence to support it is mixed.`\
+https://nytimes.com/2024/03/05/well/eat/yogurt-diabetes-risk-fda.html
+
 **Sinema’s Retirement is a Gift to Exasperated Democrats**\
 `Many are happy to see her go, and they can stop worrying that she might help elect a Republican.`\
 https://nytimes.com/live/2024/02/27/opinion/thepoint/sinemas-retirement-is-a-gift-to-exasperated-democrats
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/05/us/politics/house-races-to-watch-in-california.ht
 **‘Scary and Daunting’: Dartmouth Players Detail How Union Plan Came Together**\
 `On Tuesday, the historic 13-to-2 vote by the men’s basketball team to unionize took a significant step toward classifying student-athletes as employees.`\
 https://nytimes.com/2024/03/05/us/dartmouth-basketball-union-athletes-employees.html
-
-**Why Trump and Biden Can’t Clinch Nominations on Super Tuesday**\
-`Mathematically, Super Tuesday won’t secure either candidate a majority of his party’s delegates.`\
-https://nytimes.com/2024/03/05/us/politics/biden-trump-delegates-super-tuesday.html
-
-**U.S. Warns Spring Breakers Headed to Mexico, Jamaica or the Bahamas**\
-`In recent weeks, American travelers to some of the busiest international destinations during spring vacation have been urged by the State Department to exercise extra caution.`\
-https://nytimes.com/2024/03/05/travel/spring-break-resort-safety.html
 
