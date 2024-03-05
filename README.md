@@ -1,14 +1,18 @@
+**How the ‘Uncommitted’ Effort to Protest Biden Has Spread in Super Tuesday States**\
+`The campaigns have been fragmented, organized with far less time and resources than Michigan’s operation.`\
+https://nytimes.com/2024/03/05/us/politics/biden-uncommitted-vote-super-tuesday.html
+
 **Biden Wins Democratic Caucuses in Iowa, Starting Expected Sweep**\
 `The contest was the first of 16 on Super Tuesday he is expected to dominate as he turns fully to the general election.`\
-https://nytimes.com/2024/03/05/us/politics/biden-iowa-democratic-caucus.html
+https://nytimes.com/2024/03/05/us/politics/biden-democratic-primary-nomination.html
 
 **Does Yogurt Reduce Diabetes Risk? That’s What Labels Can Now Claim**\
 `The F.D.A. will allow yogurt makers to put the benefit on their packaging. But experts say the evidence to support it is mixed.`\
 https://nytimes.com/2024/03/05/well/eat/yogurt-diabetes-risk-fda.html
 
-**Sinema’s Retirement is a Gift to Exasperated Democrats**\
+**Sinema’s Retirement Is a Gift to Exasperated Democrats**\
 `Many are happy to see her go, and they can stop worrying that she might help elect a Republican.`\
-https://nytimes.com/live/2024/02/27/opinion/thepoint/sinemas-retirement-is-a-gift-to-exasperated-democrats
+https://nytimes.com/live/2024/02/27/opinion/thepoint/sinema-retirement-democrats-arizona
 
 **Panama Bans Ex-Leader Martinelli From Presidential Election**\
 `The electoral tribunal disqualified Ricardo Martinelli, saying he was ineligible to run because of his conviction for money laundering and sentencing to more than five years in prison.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/05/us/super-tuesday-election-updates/here-are-t
 **House Races to Watch in California**\
 `Several races in the state could prove crucial to House control next year, including one that might be decided on Tuesday.`\
 https://nytimes.com/2024/03/05/us/politics/house-races-to-watch-in-california.html
-
-**‘Scary and Daunting’: Dartmouth Players Detail How Union Plan Came Together**\
-`On Tuesday, the historic 13-to-2 vote by the men’s basketball team to unionize took a significant step toward classifying student-athletes as employees.`\
-https://nytimes.com/2024/03/05/us/dartmouth-basketball-union-athletes-employees.html
 
