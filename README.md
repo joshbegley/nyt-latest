@@ -16,7 +16,7 @@ https://nytimes.com/live/2024/03/05/us/super-tuesday-trump-haley/biden-vs-trump-
 
 **Trump’s on the Ballot for Super Tuesday, and France Puts Abortion in Its Constitution**\
 `Plus, what screen time is doing to toddlers.`\
-https://nytimes.com/2024/03/05/podcasts/trumps-on-the-ballot-for-super-tuesday-and-france-puts-abortion-in-its-constitution.html?searchResultPosition=5
+https://nytimes.com/2024/03/05/podcasts/super-tuesday-abortion-france.html?searchResultPosition=5
 
 **A Deadly Aid Delivery and Growing Threat of Famine in Gaza**\
 `Desperate Gazans descended on aid trucks. Israeli troops opened fire. But exactly how people died, and who was responsible, remains contested.`\
