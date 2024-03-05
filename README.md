@@ -1,5 +1,5 @@
 **Are We in the ‘Anthropocene,’ the Human Age? Nope, Scientists Say.**\
-`A panel of experts voted down a proposal to declare the start of a new interval of geologic time, one defined by humanity’s changes to the planet.`\
+`A panel of experts voted down a proposal to officially declare the start of a new interval of geologic time, one defined by humanity’s changes to the planet.`\
 https://nytimes.com/2024/03/05/climate/anthropocene-epoch-vote-rejected.html?searchResultPosition=1
 
 **A Trans-Atlantic Crackdown**\
