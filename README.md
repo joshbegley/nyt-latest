@@ -1,3 +1,11 @@
+**Amid Age Concerns, the White House Tries a New Strategy: Let Joe Be Joe**\
+`President Biden tries to take on worries about a tough race by turning to TikTok influencers, a late-night talk show and more give-and-take with reporters.`\
+https://nytimes.com/2024/03/05/us/politics/biden-age.html
+
+**Shafiqah Hudson, Who Fought Trolls on Social Media, Dies at 46**\
+`When the hashtag #EndFathersDay began trending on Twitter, she realized it was more than just an absurd joke. It was a coordinated disinformation effort.`\
+https://nytimes.com/2024/03/05/us/shafiqah-hudson-dead.html
+
 **How a Climate Rule Got Watered Down**\
 `The S.E.C. was the target of intense corporate lobbying and a backlash from Republicans.`\
 https://nytimes.com/2024/03/05/climate/how-a-climate-rule-got-watered-down.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/05/world/asia/super-tuesday-vote-china-asia.html
 **The Rich Spend Differently From You and Me**\
 `Your inflation rate may not be mine. Does it matter?`\
 https://nytimes.com/2024/03/05/opinion/inflation-income-inequality.html
-
-**Damage to Cables Under Red Sea Highlights Mideast Conflict’s Broader Threat**\
-`What disabled three major cables linking East to West is still not clear. Suspicion has centered on Yemen’s Houthi rebels, who have attacked numerous ships in the area, but they have denied responsibility.`\
-https://nytimes.com/2024/03/05/business/damage-to-cables-under-red-sea-highlights-mideast-conflicts-broader-threat.html
-
-**‘A Revolution on Canvas’ Review: The Personal, the Political and the Painting**\
-`A documentary about lost artwork intimately involves one of its directors.`\
-https://nytimes.com/2024/03/05/movies/a-revolution-on-canvas-review.html
 
