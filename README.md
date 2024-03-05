@@ -1,10 +1,6 @@
-**Josh Stein Wins Democratic Primary for North Carolina Governor**\
-`Mr. Stein, the state attorney general, easily defeated four primary opponents and will likely face Mark Robinson, the Republican lieutenant governor, in November.`\
-https://nytimes.com/2024/03/05/us/politics/josh-stein-wins-democratic-primary-for-north-carolina-governor.html
-
 **Mark Robinson Wins Republican Primary for North Carolina Governor**\
 `Mr. Robinson, the state’s lieutenant governor, had never run for office until 2020. He is a political firebrand whose harsh rhetoric could work for or against him.`\
-https://nytimes.com/2024/03/05/us/politics/mark-robinson-wins-republican-primary-for-north-carolina-governor.html
+https://nytimes.com/2024/03/05/us/politics/mark-robinson-north-carolina-governor.html
 
 **Review: For ‘Jack Tucker,’ Failure Is the Only Option**\
 `Zach Zucker delivers a raucously funny portrait of a catastrophically dim stand-up comic at SoHo Playhouse.`\
@@ -37,4 +33,8 @@ https://nytimes.com/2024/03/05/nyregion/listeria-outbreak-cheese-guilty-plea.htm
 **Israeli forces trade fire with Hezbollah over the Lebanese border.**\
 `By Hwaida Saad`\
 https://nytimes.com/live/2024/03/05/world/israel-hamas-war-gaza-news/israeli-forces-trade-fire-with-hezbollah-over-the-lebanese-border
+
+**The New Rape Denialism**\
+`How quickly the far left pivots from “believe women” to “believe Hamas” when the identity of the victim changes.`\
+https://nytimes.com/2024/03/05/opinion/hamas-sexual-violence-israel.html
 
