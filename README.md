@@ -1,3 +1,11 @@
+**Why Trump and Biden Can’t Clinch Nominations on Super Tuesday**\
+`Mathematically, Super Tuesday won’t secure either candidate a majority of his party’s delegates.`\
+https://nytimes.com/2024/03/05/us/politics/biden-trump-when-clinch-nominations.html
+
+**U.S. Warns Spring Breakers Headed to Mexico, Jamaica or the Bahamas**\
+`In recent weeks, American travelers to some of the busiest international destinations during spring vacation have been urged by the State Department to exercise extra caution.`\
+https://nytimes.com/2024/03/05/travel/spring-break-resort-safety.html
+
 **Starbucks Lays Off Workers in Mideast Amid Gaza-Tied Boycotts**\
 `Store traffic has dropped off in the Middle East and Southeast Asia as customers protest perceptions of Starbucks’ stance on the Israel-Hamas conflict.`\
 https://nytimes.com/2024/03/05/business/starbucks-layoffs-middle-east.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/05/climate/how-a-climate-rule-got-watered-down.html
 **Robert Menendez and Wife Are Charged With Obstruction of Justice**\
 `The New Jersey senator and his wife, Nadine Menendez, who already faced bribery charges, were charged in an 18-count superseding indictment that was unsealed on Tuesday.`\
 https://nytimes.com/2024/03/05/nyregion/robert-menendez-indicted.html
-
-**‘We need a cease-fire,’ Biden says.**\
-`By Michael D. Shear, Hwaida Saad and Andrea Kannapell`\
-https://nytimes.com/live/2024/03/05/world/israel-hamas-war-gaza-news/biden-expresses-hope-for-a-cease-fire-deal-but-hamas-appears-to-reject-the-latest-offer
-
-**Gaza Cease-Fire Deal Is ‘In the Hands of Hamas,’ Biden Says**\
-`President Biden said the Israelis had been cooperating in negotiations over a possible six-week cease-fire in Gaza, being mediated by Qatar and Egypt, and that “a rational offer” was made.`\
-https://nytimes.com/video/us/politics/100000009344529/biden-hamas-ceasefire-deal.html
 
