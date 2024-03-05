@@ -15,4 +15,4 @@ for a in soup.find_all("a",href=True):
 			cleaned_href = a["href"].split("?")[0]
 			print ("**" + (a.h4.text.encode("utf-8")) + "**" + "\\")
 			print ("`" + (a.p.text.encode("utf-8")) + "`" + "\\")
-			print ("https://nytimes.com{}" + cleaned_href + "\n"
+			print ("https://nytimes.com{}" + cleaned_href + "\n")
