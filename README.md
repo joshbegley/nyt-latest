@@ -2,7 +2,7 @@
 `It’s not clear whether Mr. Musk will spend any of his billions on the former president’s behalf. If he does, he could erase Mr. Trump’s financial disadvantage in the 2024 race.`\
 https://nytimes.com/2024/03/05/us/politics/trump-elon-musk.html
 
-**In Testimony, Former Honduras President Denies Trafficking Drugs**\
+**Ex-President of Honduras Denies at Trial That He Trafficked Drugs**\
 `Juan Orlando Hernández, who is accused of conspiring to import cocaine into the United States, also denied receiving a bribe from the Mexican drug lord El Chapo.`\
 https://nytimes.com/2024/03/05/nyregion/juan-orlando-hernandez-honduras-drug-trafficking.html
 
