@@ -1,3 +1,7 @@
+**Israeli forces trade fire with Hezbollah over the Lebanese border.**\
+`By Hwaida Saad`\
+https://nytimes.com/live/2024/03/05/world/israel-hamas-war-gaza-news/israeli-forces-trade-fire-with-hezbollah-over-the-lebanese-border
+
 **The New Rape Denialism**\
 `How quickly the far left pivots from “believe women” to “believe Hamas” when the identity of the victim changes.`\
 https://nytimes.com/2024/03/05/opinion/hamas-sexual-violence-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/style/patti-smith-nyc-morgan-library.html
 **6 Charged With Smuggling Goose and Duck Intestines From China**\
 `Six New York City residents were arrested on Tuesday and charged with importing the sought-after delicacies in violation of federal rules.`\
 https://nytimes.com/2024/03/05/nyregion/illegal-import-intestines-charge.html
-
-**Frank Popoff, Who Sought to Lead a Friendlier Dow Chemical, Dies at 88**\
-`As chief executive, he pushed a company known for Agent Orange, napalm and chlorine to undo its confrontational reputation and promote environmental sustainability.`\
-https://nytimes.com/2024/03/05/business/frank-popoff-dead.html
 
