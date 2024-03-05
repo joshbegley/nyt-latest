@@ -1,3 +1,7 @@
+**How a Climate Rule Got Watered Down**\
+`The S.E.C. was the target of intense corporate lobbying and a backlash from Republicans.`\
+https://nytimes.com/2024/03/05/climate/how-a-climate-rule-got-watered-down.html
+
 **Robert Menendez and Wife Are Charged With Obstruction of Justice**\
 `The New Jersey senator and his wife, Nadine Menendez, who already faced bribery charges, were charged in an 18-count superseding indictment that was unsealed on Tuesday.`\
 https://nytimes.com/2024/03/05/nyregion/robert-menendez-indicted.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/business/damage-to-cables-under-red-sea-highlight
 **‘A Revolution on Canvas’ Review: The Personal, the Political and the Painting**\
 `A documentary about lost artwork intimately involves one of its directors.`\
 https://nytimes.com/2024/03/05/movies/a-revolution-on-canvas-review.html
-
-**Tiny Love Stories: ‘Why Did I Choose Her?’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/03/05/style/tiny-modern-love-stories-why-did-i-choose-her.html
 
