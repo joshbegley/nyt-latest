@@ -1,3 +1,7 @@
+**New Federal Rule Caps Most Credit Card Late Fees at $8**\
+`The Consumer Financial Protection Bureau said its new restriction would save households $10 billion a year in “junk fees.”`\
+https://nytimes.com/2024/03/05/business/credit-card-late-fees.html
+
 **Janice Burgess, Nickelodeon Executive and ‘Backyardigans’ Creator, Dies at 72**\
 `Ms. Burgess oversaw the production of “Blue’s Clues” and drew on her own childhood for “The Backyardigans,” in which five cartoon animals imagine their yard as a place of otherworldly adventure.`\
 https://nytimes.com/2024/03/05/arts/janice-burgess-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/podcasts/transcript-ezra-klein-interviews-richard
 **Whatever We Call This Age, Humans Are Changing the Planet. Here’s How.**\
 `Many of our imprints on nature will be preserved in the rocks, scientists say, even if this time isn’t yet recognized as a new geologic epoch.`\
 https://nytimes.com/2024/03/05/climate/anthropocene-humans-climate.html
-
-**New Vuitton Watches Showcase Artisanal Skills**\
-`Six specialists worked on three timepieces that feature enameling, marquetry, engraving and several other techniques.`\
-https://nytimes.com/2024/03/05/fashion/watches-louis-vuitton.html
 

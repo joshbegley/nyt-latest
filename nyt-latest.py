@@ -13,6 +13,7 @@ for a in soup.find_all("a",href=True):
 		if "cooking.nytimes.com" in a["href"]:
 			print("<br>")
 		else:
+			cleaned_href = a["href"].split("?")[0]
 			print (a.h4)
-			print ("<a href=\"https://nytimes.com{}".format(a.attrs['href']) + "\">" + "https://nytimes.com{}".format(a.attrs['href']) + "</a><br><br>")
+			print ("<a href=\"https://nytimes.com" + cleaned_href + "\">" + "https://nytimes.com" + cleaned_href + "</a><br><br>")
 print ("</html>")
