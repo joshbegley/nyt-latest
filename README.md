@@ -1,3 +1,15 @@
+**In California, Senate Battle Has the Most Intrigue**\
+`An intraparty fight for the late Senator Dianne Feinstein’s seat has been complicated by the entrance of the former baseball star Steve Garvey.`\
+https://nytimes.com/2024/03/05/us/politics/senate-california-primary-election.html
+
+**Liberty University Fined $14 Million for Mishandling Sex Assaults and Other Crimes**\
+`The penalty is the largest ever imposed by the Education Department, which found that the school had punished sexual assault victims but not their assailants and created a “culture of silence.”`\
+https://nytimes.com/2024/03/05/us/politics/liberty-university-fine-crime-sexual-assaults.html
+
+**It’s Been All Tumbleweeds, All the Time, in Utah and Beyond**\
+`Over the weekend the spiny orbs buried cars and piled up against the sides of houses as an unusual storm swept the region with dust and snow. And tumbleweeds. They’re still digging out.`\
+https://nytimes.com/2024/03/05/climate/tumbleweeds-utah-nevada-winds.html
+
 **Read the Latest Menendez Indictment**\
 `Federal prosecutors on Tuesday charged Senator Robert Menendez of New Jersey and his wife, Nadine Menendez, with obstruction of justice, adding to the bribery and corruption charges they already face.`\
 https://nytimes.com/interactive/2024/03/05/nyregion/bob-menendez-obstruction-justice.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/05/us/politics/biden-democratic-primary-nomination.h
 **Does Eating Yogurt Reduce Your Diabetes Risk?**\
 `The F.D.A. will now allow yogurt makers to claim it can — but the evidence is mixed.`\
 https://nytimes.com/2024/03/05/well/eat/yogurt-diabetes-risk-fda.html
-
-**Sinema’s Retirement Is a Gift to Exasperated Democrats**\
-`Many are happy to see her go, and they can stop worrying that she might help elect a Republican.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/sinema-retirement-democrats-arizona
-
-**Panama Bans Ex-Leader Martinelli From Presidential Election**\
-`The electoral tribunal disqualified Ricardo Martinelli, saying he was ineligible to run because of his conviction for money laundering and sentencing to more than five years in prison.`\
-https://nytimes.com/2024/03/05/world/americas/panama-martinelli-disqualified-president.html
-
-**When Will We Get Results on Super Tuesday?**\
-`A lot of polls will close around 8 p.m. Eastern time, but delegate-rich California, which is famously slow to count ballots, will be one of the last states to wrap up.`\
-https://nytimes.com/2024/03/05/us/politics/super-tuesday-results-when.html
 
