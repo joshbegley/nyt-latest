@@ -1,3 +1,19 @@
+**Donald Trump, Seeking Donors, Meets With Elon Musk**\
+`It’s not clear whether Mr. Musk will spend any of his billions on the former president’s behalf. If he does, he could erase Mr. Trump’s financial disadvantage in the 2024 race.`\
+https://nytimes.com/2024/03/05/us/politics/trump-elon-musk.html
+
+**In Testimony, Former Honduras President Denies Trafficking Drugs**\
+`Juan Orlando Hernández, who is accused of conspiring to import cocaine into the United States, also denied receiving a bribe from the Mexican drug lord El Chapo.`\
+https://nytimes.com/2024/03/05/nyregion/juan-orlando-hernandez-honduras-drug-trafficking.html
+
+**Andrew Cuomo Faces House Subpoena Over Covid Deaths in Nursing Homes**\
+`Mr. Cuomo was accused of stonewalling a House subcommittee trying to interview him about his administration’s handling of nursing homes during the Covid pandemic.`\
+https://nytimes.com/2024/03/05/nyregion/cuomo-covid-nursing-homes-subpoena.html
+
+**Venezuela Announces Election Date, With Opposition Candidate Still Banned**\
+`The decision to hold a vote on July 28 is a partial fulfillment of a commitment to the United States, but with the top opposition figure barred, many wondered how free and fair the balloting would be.`\
+https://nytimes.com/2024/03/05/world/americas/venezuela-maduro-election-date.html
+
 **Maker of Raw Milk Cheese Pleads Guilty in Listeria Outbreak That Killed 2**\
 `The Federal Drug Administration linked cheese from the Vulto Creamery in Walton, N.Y., to an outbreak of listeria that also sickened six from 2016 to 2017.`\
 https://nytimes.com/2024/03/05/nyregion/listeria-outbreak-cheese-guilty-plea.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/03/05/opinion/biden-iran-middle-east.html
 **In California, Senate Battle Has the Most Intrigue**\
 `An intraparty fight for the late Senator Dianne Feinstein’s seat has been complicated by the entrance of the former baseball star Steve Garvey.`\
 https://nytimes.com/2024/03/05/us/politics/senate-california-primary-election.html
-
-**Liberty University Fined $14 Million for Mishandling Sex Assaults and Other Crimes**\
-`The penalty is the largest ever imposed by the Education Department, which found that the school had punished sexual assault victims but not their assailants and created a “culture of silence.”`\
-https://nytimes.com/2024/03/05/us/politics/liberty-university-fine-crime-sexual-assaults.html
-
-**It’s Been All Tumbleweeds, All the Time, in Utah and Beyond**\
-`Over the weekend the spiny orbs buried cars and piled up against the sides of houses as an unusual storm swept the region with dust and snow. And tumbleweeds. They’re still digging out.`\
-https://nytimes.com/2024/03/05/climate/tumbleweeds-utah-nevada-winds.html
-
-**Read the Latest Menendez Indictment**\
-`Federal prosecutors on Tuesday charged Senator Robert Menendez of New Jersey and his wife, Nadine Menendez, with obstruction of justice, adding to the bribery and corruption charges they already face.`\
-https://nytimes.com/interactive/2024/03/05/nyregion/bob-menendez-obstruction-justice.html
-
-**Patti Smith Sings for a ‘New York Gem’**\
-`The Morgan Library & Museum drew devotees out for a party celebrating its centennial, including Peter Marino, Vito Schnabel and Walton Ford.`\
-https://nytimes.com/2024/03/05/style/patti-smith-nyc-morgan-library.html
 
