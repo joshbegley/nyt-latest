@@ -1,40 +1,40 @@
-**Stephen Colbert Scoffs at Supreme Court’s Ruling on Trump**\
-`Colbert joked that justices were “again shoving their gavels up the election” by ruling that former President Donald Trump can appear on all state ballots in 2024.`\
-https://nytimes.com/2024/03/05/arts/television/stephen-colbert-trump-supreme-court.html?searchResultPosition=1
+**A Novel About the Lives We Leave Behind in the Minds of Others**\
+`“Tell,” by Jonathan Buckley, is a missing-person mystery recounted in fragmentary anecdotes.`\
+https://nytimes.com/2024/03/05/books/review/jonathan-buckley-tell.html?searchResultPosition=1
 
-**Don’t Just Get Dressed, Get Mad**\
-`Rei Kawakubo, Stella McCartney and Marine Serre make some noise and score some points.`\
-https://nytimes.com/2024/03/05/style/comme-des-garcons-stella-mccartney-hermes.html?searchResultPosition=2
+**D.C. Is Raising Restaurant Pay. What Does That Mean for the Rest of Us?**\
+`Higher prices? Fewer places? As several states consider lifting wages for tipped workers, here’s how the shift is already playing out in the nation’s capital.`\
+https://nytimes.com/2024/03/05/dining/restaurant-minimum-wage-tipped-workers-dc.html?searchResultPosition=2
 
-**Singapore Has Taylor Swift to Itself This Week, and the Neighbors Are Complaining**\
-`The country is defending paying the pop star to play nowhere else in Southeast Asia. Thailand’s prime minister said the price was up to $3 million per show.`\
-https://nytimes.com/2024/03/05/world/asia/taylor-swift-singapore-eras-tour.html?searchResultPosition=3
+**A Shape-Shifting House in Los Angeles**\
+`Even a quarter of a century ago, the one-bedroom bungalow was a bargain. Several renovations later, it’s the home of their dreams.`\
+https://nytimes.com/slideshow/2024/03/05/realestate/a-shape-shifting-house-in-los-angeles.html?searchResultPosition=3
 
-**Powerful Psychedelic Gains Renewed Attention as a Treatment for Opioid Addiction**\
-`New research is stirring interest in ibogaine, which appears to help ease the agony of detox and prevent relapse. Used in other countries, it remains illegal in the U.S.`\
-https://nytimes.com/2024/03/05/health/powerful-psychedelic-gains-renewed-attention-as-a-treatment-for-opioid-addiction.html?searchResultPosition=4
+**Kids’ Art Projects Go From Paint and Feathers to 18-Karat Gold**\
+`Some jewelers have been turning children’s work into fine jewelry items. “It sparked something inside of me,” one of them said.`\
+https://nytimes.com/2024/03/05/fashion/jewelry-childrens-art-projects.html?searchResultPosition=4
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/05/crosswords/wordle-review.html?searchResultPosition=5
+**Marlene Dietrich’s Legacy Still Glitters**\
+`The movie star’s penchant for high jewelry continues to attract attention today.`\
+https://nytimes.com/2024/03/05/fashion/jewelry-marlene-dietrich-van-cleef-and-arpels.html?searchResultPosition=5
 
-**Concerts**\
-`Whom would you most want to see live? Why?`\
-https://nytimes.com/2024/03/05/learning/concerts.html?searchResultPosition=6
+**In Watches, He’s a ‘Bit of a Maverick’**\
+`Romaric André, best known as seconde/seconde/, spends his time putting art and whimsy into timepieces.`\
+https://nytimes.com/2024/03/05/fashion/watches-romaric-andre-seconde-seconde.html?searchResultPosition=6
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/03/05/crosswords/spelling-bee-forum.html?searchResultPosition=7
+**Cartier Collection Mixes Innovation and Heritage**\
+`The new Cartier Libre Polymorph pieces include a jeweled carabiner watch and lapel clips.`\
+https://nytimes.com/2024/03/05/fashion/jewelry-watches-cartier-libre-polymorph.html?searchResultPosition=7
 
-**Why Bicycle Deaths in New York City Are at a 23-Year High**\
-`Fatalities and serious injuries among cyclists had been trending downward for years, but both increased in 2023.`\
-https://nytimes.com/2024/03/05/nyregion/nyc-cyclist-deaths-ebike.html?searchResultPosition=8
+**‘That One Is for Me’**\
+`Following a Korean tradition, Yeana and James Ahn’s engagement gifts included watches. Then Ms. Ahn appropriated her husband’s Rolex.`\
+https://nytimes.com/2024/03/05/fashion/watches-rolex-korean-tradition.html?searchResultPosition=8
 
-**Is New York City Back? Not for Everyone.**\
-`The city has rebounded from the worst of the coronavirus pandemic in meaningful ways. But the recovery is incomplete and uneven.`\
-https://nytimes.com/2024/03/05/nyregion/nyc-economy-comeback.html?searchResultPosition=9
+**Just Try to Find Women in Horology History**\
+`In Switzerland, for example, they have long been a large proportion of the industry’s work force. But that hasn’t meant recognition.`\
+https://nytimes.com/2024/03/05/fashion/watches-women-workers-switzerland.html?searchResultPosition=9
 
-**What to Know About Ibogaine**\
-`Some researchers hope the drug, still illegal in the United States, may be considered as a treatment for addiction, PTSD and brain injuries.`\
-https://nytimes.com/2024/03/05/health/psychedelic-ibogaine-what-to-know.html?searchResultPosition=10
+**‘It’s All in the Way You Tell the Story’**\
+`Charles Leung, Chaumet’s new chief executive, started his tale at the house by introducing its designs for the 2024 Olympic and Paralympic medals.`\
+https://nytimes.com/2024/03/05/fashion/jewelry-chaumet-charles-leung-paris.html?searchResultPosition=10
 
