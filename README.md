@@ -1,3 +1,7 @@
+**Frank Popoff, Who Sought to Lead a Friendlier Dow Chemical, Dies at 88**\
+`As chief executive, he pushed a company known for Agent Orange, napalm and chlorine to undo its confrontational reputation and promote environmental sustainability.`\
+https://nytimes.com/2024/03/05/business/frank-popoff-dead.html
+
 **How the ‘Uncommitted’ Effort to Protest Biden Has Spread in Super Tuesday States**\
 `The campaigns have been fragmented, organized with far less time and resources than Michigan’s operation.`\
 https://nytimes.com/2024/03/05/us/politics/biden-uncommitted-vote-super-tuesday.html
@@ -6,7 +10,7 @@ https://nytimes.com/2024/03/05/us/politics/biden-uncommitted-vote-super-tuesday.
 `The contest was the first of 16 on Super Tuesday he is expected to dominate as he turns fully to the general election.`\
 https://nytimes.com/2024/03/05/us/politics/biden-democratic-primary-nomination.html
 
-**Does Yogurt Reduce Diabetes Risk? That’s What Labels Can Now Claim**\
+**Does Yogurt Reduce Diabetes Risk? That’s What Labels Can Now Claim.**\
 `The F.D.A. will allow yogurt makers to put the benefit on their packaging. But experts say the evidence to support it is mixed.`\
 https://nytimes.com/2024/03/05/well/eat/yogurt-diabetes-risk-fda.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/briefing/super-tuesday-china-growth-target.html
 **Here are the House races to watch in California.**\
 `By Jill Cowan and Amy Qin`\
 https://nytimes.com/live/2024/03/05/us/super-tuesday-election-updates/here-are-the-house-races-to-watch-in-california
-
-**House Races to Watch in California**\
-`Several races in the state could prove crucial to House control next year, including one that might be decided on Tuesday.`\
-https://nytimes.com/2024/03/05/us/politics/house-races-to-watch-in-california.html
 
