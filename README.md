@@ -1,40 +1,40 @@
-**A Novel About the Lives We Leave Behind in the Minds of Others**\
-`“Tell,” by Jonathan Buckley, is a missing-person mystery recounted in fragmentary anecdotes.`\
-https://nytimes.com/2024/03/05/books/review/jonathan-buckley-tell.html?searchResultPosition=1
+**With a New Holocaust Museum, the Netherlands Faces Its Past**\
+`The new institution in Amsterdam is the first to tell the full story of the persecution of Dutch Jews during World War II.`\
+https://nytimes.com/2024/03/05/arts/design/holocaust-museum-the-netherlands.html?searchResultPosition=1
 
-**D.C. Is Raising Restaurant Pay. What Does That Mean for the Rest of Us?**\
-`Higher prices? Fewer places? As several states consider lifting wages for tipped workers, here’s how the shift is already playing out in the nation’s capital.`\
-https://nytimes.com/2024/03/05/dining/restaurant-minimum-wage-tipped-workers-dc.html?searchResultPosition=2
+**Marilynne Robinson on Biblical Beauty, Human Evil and the Idea of Israel**\
+`The Pulitzer Prize-winning writer shares insights from her close reading of the Book of Genesis.`\
+https://nytimes.com/2024/03/05/opinion/ezra-klein-podcast-marilynne-robinson.html?searchResultPosition=2
 
-**A Shape-Shifting House in Los Angeles**\
-`Even a quarter of a century ago, the one-bedroom bungalow was a bargain. Several renovations later, it’s the home of their dreams.`\
-https://nytimes.com/slideshow/2024/03/05/realestate/a-shape-shifting-house-in-los-angeles.html?searchResultPosition=3
+**The Best Actress Nominee Who Will Keep You Guessing**\
+`Our critic on Sandra Hüller in “Anatomy of a Fall”`\
+https://nytimes.com/2024/03/05/podcasts/culture-desk-oscars-sandra-huller.html?searchResultPosition=3
 
-**Kids’ Art Projects Go From Paint and Feathers to 18-Karat Gold**\
-`Some jewelers have been turning children’s work into fine jewelry items. “It sparked something inside of me,” one of them said.`\
-https://nytimes.com/2024/03/05/fashion/jewelry-childrens-art-projects.html?searchResultPosition=4
+**Go Behind the Scenes of All 10 Best Picture Oscar Nominees**\
+`In these videos, directors walked us through pivotal scenes from their Academy Award-nominated films.`\
+https://nytimes.com/2024/03/05/movies/oscars-best-picture-nominees-scenes.html?searchResultPosition=4
 
-**Marlene Dietrich’s Legacy Still Glitters**\
-`The movie star’s penchant for high jewelry continues to attract attention today.`\
-https://nytimes.com/2024/03/05/fashion/jewelry-marlene-dietrich-van-cleef-and-arpels.html?searchResultPosition=5
+**If You See Only One Beaver Movie This Year …**\
+`The makers of “Hundreds of Beavers,” a mostly wordless indie comedy, have been touring the country and holding energetic screenings, complete with appearances by the star species.`\
+https://nytimes.com/2024/03/05/movies/hundreds-of-beavers-screening.html?searchResultPosition=5
 
-**In Watches, He’s a ‘Bit of a Maverick’**\
-`Romaric André, best known as seconde/seconde/, spends his time putting art and whimsy into timepieces.`\
-https://nytimes.com/2024/03/05/fashion/watches-romaric-andre-seconde-seconde.html?searchResultPosition=6
+**Champagne. Caviar. Bora Bora. Are You Not Entertained?**\
+`As part of a promotional campaign, the beauty brand Tarte flew 30 social media influencers on a private jet to paradise. Many observers were not amused.`\
+https://nytimes.com/2024/03/05/style/tarte-cosmetics-influencers-tiktok-backlash.html?searchResultPosition=6
 
-**Cartier Collection Mixes Innovation and Heritage**\
-`The new Cartier Libre Polymorph pieces include a jeweled carabiner watch and lapel clips.`\
-https://nytimes.com/2024/03/05/fashion/jewelry-watches-cartier-libre-polymorph.html?searchResultPosition=7
+**What Would Nancy Reagan Do?**\
+`The choice Jill Biden faces — promoting her husband’s ambition for a second term or protecting the legacy of his first term — can no longer be avoided.`\
+https://nytimes.com/2024/03/05/opinion/nancy-reagan-jill-biden.html?searchResultPosition=7
 
-**‘That One Is for Me’**\
-`Following a Korean tradition, Yeana and James Ahn’s engagement gifts included watches. Then Ms. Ahn appropriated her husband’s Rolex.`\
-https://nytimes.com/2024/03/05/fashion/watches-rolex-korean-tradition.html?searchResultPosition=8
+**The Trial of James Crumbley in the Oxford High Killings: What to Know**\
+`The parents of a teenager who killed four students at a Michigan high school were charged with involuntary manslaughter. His mother was convicted last month. Now the father will stand trial.`\
+https://nytimes.com/2024/03/05/us/james-crumbley-trial-oxford-shooting.html?searchResultPosition=8
 
-**Just Try to Find Women in Horology History**\
-`In Switzerland, for example, they have long been a large proportion of the industry’s work force. But that hasn’t meant recognition.`\
-https://nytimes.com/2024/03/05/fashion/watches-women-workers-switzerland.html?searchResultPosition=9
+**Everything You Need to Know About Super Tuesday**\
+`The results are expected to be more “tepid” than boiling, but we’ll still be able to understand 2024 better after 16 states or territories vote.`\
+https://nytimes.com/2024/03/05/podcasts/super-tuesday-trump-biden-primary.html?searchResultPosition=9
 
-**‘It’s All in the Way You Tell the Story’**\
-`Charles Leung, Chaumet’s new chief executive, started his tale at the house by introducing its designs for the 2024 Olympic and Paralympic medals.`\
-https://nytimes.com/2024/03/05/fashion/jewelry-chaumet-charles-leung-paris.html?searchResultPosition=10
+**A New Publisher Promises Authors ‘the Lion’s Share of the Profit’**\
+`Authors Equity is tiny but has big industry names behind it. Its founders hope their profit-sharing approach and experience will entice authors.`\
+https://nytimes.com/2024/03/05/books/publisher-authors-equity.html?searchResultPosition=10
 
