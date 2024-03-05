@@ -1,3 +1,7 @@
+**Robert Menendez and Wife Are Charged With Obstruction of Justice**\
+`The New Jersey senator and his wife, Nadine Menendez, who already faced bribery charges, were charged in an 18-count superseding indictment that was unsealed on Tuesday.`\
+https://nytimes.com/2024/03/05/nyregion/robert-menendez-indicted.html
+
 **Biden expresses hope for a cease-fire deal, but Hamas appears to reject the latest offer.**\
 `By Michael D. Shear, Hwaida Saad and Andrea Kannapell`\
 https://nytimes.com/live/2024/03/05/world/israel-hamas-war-gaza-news/biden-expresses-hope-for-a-cease-fire-deal-but-hamas-appears-to-reject-the-latest-offer
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/movies/a-revolution-on-canvas-review.html
 **Tiny Love Stories: ‘Why Did I Choose Her?’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/03/05/style/tiny-modern-love-stories-why-did-i-choose-her.html
-
-**New Federal Rule Caps Most Credit Card Late Fees at $8**\
-`The Consumer Financial Protection Bureau said its new restriction would save households $10 billion a year in “junk fees.”`\
-https://nytimes.com/2024/03/05/business/credit-card-late-fees.html
 
