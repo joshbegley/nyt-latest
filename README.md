@@ -1,3 +1,7 @@
+**Cyberattack Wreaks Havoc on Hospitals and Doctors**\
+`The hacking shut down the nation’s biggest health care payment system, causing financial chaos that affected a broad spectrum ranging from large hospitals to single-doctor practices.`\
+https://nytimes.com/2024/03/05/health/cyberattack-healthcare-cash.html
+
 **Brown University Will Reinstate Standardized Tests for Admission**\
 `The school joins Yale, Dartmouth and M.I.T. in backtracking on “test optional” policies adopted during the pandemic.`\
 https://nytimes.com/2024/03/05/us/brown-university-admission-test-optional.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009344529/biden-hamas-ceasefire-deal
 **How Hiroshima and Nagasaki Survivors Informed ‘The Brink’**\
 `The voices of those who experienced a nuclear attack need to be heard to help prevent another one.`\
 https://nytimes.com/live/2024/02/27/opinion/thepoint/nuclear-weapons-survivors
-
-**A Grainy Photo and a Dilemma: How U.K. Papers Are Covering Princess Catherine**\
-`In a country where the health struggles of even public figures are generally viewed as out of bounds, journalists are trying to balance the right to privacy with a thirst for royal stories.`\
-https://nytimes.com/2024/03/05/world/europe/princess-kate-middleton-royals.html
 
