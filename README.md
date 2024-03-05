@@ -1,4 +1,16 @@
-**Donald Trump, Seeking Donors, Meets With Elon Musk**\
+**Mark Robinson Wins Republican Primary for North Carolina Governor**\
+`Mr. Robinson, the state’s lieutenant governor, had never run for office until 2020. He is a political firebrand whose harsh rhetoric could work for or against him.`\
+https://nytimes.com/live/2024/03/05/us/super-tuesday-election-updates/mark-robinson-wins-republican-primary-for-north-carolina-governor
+
+**Review: For ‘Jack Tucker,’ Failure Is the Only Option**\
+`Zach Zucker delivers a raucously funny portrait of a catastrophically dim stand-up comic at SoHo Playhouse.`\
+https://nytimes.com/2024/03/05/theater/jack-tucker-comedy-standup-hour-review.html
+
+**Harvard’s Response to Subpoenas Is Called ‘Useless’ by House Committee**\
+`Harvard said it has been acting in good faith and submitted nearly 1,500 pages of new material.`\
+https://nytimes.com/2024/03/05/us/harvard-subpoena-antisemitism.html
+
+**Donald Trump, Seeking Cash Infusion, Meets With Elon Musk**\
 `It’s not clear whether Mr. Musk will spend any of his billions on the former president’s behalf. If he does, he could erase Mr. Trump’s financial disadvantage in the 2024 race.`\
 https://nytimes.com/2024/03/05/us/politics/trump-elon-musk.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/03/05/world/israel-hamas-war-gaza-news/israeli-for
 **The New Rape Denialism**\
 `How quickly the far left pivots from “believe women” to “believe Hamas” when the identity of the victim changes.`\
 https://nytimes.com/2024/03/05/opinion/hamas-sexual-violence-israel.html
-
-**Israel Sees Vindication in U.N.’s Report, but Tensions Between Them Rise**\
-`A U.N. inquiry found support for Israel’s allegations of sexual violence in the Hamas-led Oct. 7 attack, but they remain bitterly at odds over the war in the Gaza Strip.`\
-https://nytimes.com/2024/03/05/world/middleeast/israel-gaza-un.html
-
-**Inside America’s Shadow War With Iran**\
-`There’s another Middle East conflict going on, and U.S. soldiers are on the front lines of it.`\
-https://nytimes.com/2024/03/05/opinion/biden-iran-middle-east.html
-
-**In California, Senate Battle Has the Most Intrigue**\
-`An intraparty fight for the late Senator Dianne Feinstein’s seat has been complicated by the entrance of the former baseball star Steve Garvey.`\
-https://nytimes.com/2024/03/05/us/politics/senate-california-primary-election.html
 
