@@ -1,3 +1,7 @@
+**Here are the House races to watch in California.**\
+`By Jill Cowan and Amy Qin`\
+https://nytimes.com/live/2024/03/05/us/super-tuesday-election-updates/here-are-the-house-races-to-watch-in-california
+
 **House Races to Watch in California**\
 `Several races in the state could prove crucial to House control next year, including one that might be decided on Tuesday.`\
 https://nytimes.com/2024/03/05/us/politics/house-races-to-watch-in-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/insider/learning-to-love-fitness-despite-dislikin
 **Amid Age Concerns, the White House Tries a New Strategy: Let Joe Be Joe**\
 `President Biden tries to take on worries about a tough race by turning to TikTok influencers, a late-night talk show and more give-and-take with reporters.`\
 https://nytimes.com/2024/03/05/us/politics/biden-age.html
-
-**Shafiqah Hudson, Who Fought Trolls on Social Media, Dies at 46**\
-`When the hashtag #EndFathersDay began trending on Twitter, she realized it was more than just an absurd joke. It was a coordinated disinformation effort.`\
-https://nytimes.com/2024/03/05/us/shafiqah-hudson-dead.html
 
