@@ -36,5 +36,5 @@ https://nytimes.com/2024/03/05/business/tesla-germany-factory-fire.html?searchRe
 
 **Some states will confront wet weather on Super Tuesday.**\
 `Lingering snow showers are expected in some states, and coastal storms may affect others.`\
-https://nytimes.com/live/2024/03/05/us/super-tuesday-trump-haley/super-tuesday-weather?searchResultPosition=10
+https://nytimes.com/2024/03/05/us/politics/super-tuesday-weather-forecast.html?searchResultPosition=10
 
