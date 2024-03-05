@@ -1,3 +1,11 @@
+**When Will We Get Results on Super Tuesday?**\
+`A lot of polls will close around 8 p.m. Eastern time, but delegate-rich California, which is famously slow to count ballots, will be one of the last states to wrap up.`\
+https://nytimes.com/2024/03/05/us/politics/super-tuesday-results-when.html
+
+**Estella Bergere Leopold Dies at 97; Found Climate Clues in Ancient Pollen**\
+`The last child of the pioneering ecologist Aldo Leopold, she also helped preserve her father’s legacy as a founder of the modern environmental movement.`\
+https://nytimes.com/2024/03/05/science/earth/estella-bergere-leopold-dead.html
+
 **It’s the Biggest Day of This Year’s Primary Elections**\
 `Also, China set an ambitious goal for economic growth. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/03/05/briefing/super-tuesday-china-growth-target.html
@@ -10,7 +18,7 @@ https://nytimes.com/live/2024/03/05/us/super-tuesday-election-updates/here-are-t
 `Several races in the state could prove crucial to House control next year, including one that might be decided on Tuesday.`\
 https://nytimes.com/2024/03/05/us/politics/house-races-to-watch-in-california.html
 
-**Dartmouth Basketball’s Union Took Shape in the Campus Dining Hall**\
+**‘Scary and Daunting’: Dartmouth Players Detail How Union Plan Came Together**\
 `On Tuesday, the historic 13-to-2 vote by the men’s basketball team to unionize took a significant step toward classifying student-athletes as employees.`\
 https://nytimes.com/2024/03/05/us/dartmouth-basketball-union-athletes-employees.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/05/business/starbucks-layoffs-middle-east.html
 **Cyberattack Paralyzes the Largest U.S. Health Care Payment System**\
 `The hacking shut down the nation’s biggest health care payment system, causing financial chaos that affected a broad spectrum ranging from large hospitals to single-doctor practices.`\
 https://nytimes.com/2024/03/05/health/cyberattack-healthcare-cash.html
-
-**Brown University Will Reinstate Standardized Tests for Admission**\
-`The school joins Yale, Dartmouth and M.I.T. in backtracking on “test optional” policies adopted during the pandemic.`\
-https://nytimes.com/2024/03/05/us/brown-university-admission-test-optional.html
-
-**Learning to Love Fitness, Despite Dreading Gym Class**\
-`Memories of the Presidential Physical Fitness Test, the grade-school assessment, inspired one reporter to reflect on her movement journey.`\
-https://nytimes.com/2024/03/05/insider/learning-to-love-fitness-despite-disliking-gym-class.html
 
