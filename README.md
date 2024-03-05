@@ -1,3 +1,11 @@
+**Wednesday Briefing: Americans Vote on Super Tuesday**\
+`Also, China’s ambitious growth goal and this year’s winner of the Pritzker Prize.`\
+https://nytimes.com/2024/03/05/world/asia/super-tuesday-vote-china-asia.html
+
+**The Rich Spend Differently From You and Me**\
+`Your inflation rate may not be mine. Does it matter?`\
+https://nytimes.com/2024/03/05/opinion/inflation-income-inequality.html
+
 **Damage to Cables Under Red Sea Highlights Mideast Conflict’s Broader Threat**\
 `What disabled three major cables linking East to West is still not clear. Suspicion has centered on Yemen’s Houthi rebels, who have attacked numerous ships in the area, but they have denied responsibility.`\
 https://nytimes.com/2024/03/05/business/damage-to-cables-under-red-sea-highlights-mideast-conflicts-broader-threat.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/05/us/michigan-explosions-fire.html
 **Is Crypto Back? What to Know About Bitcoin’s Surge.**\
 `Bitcoin just hit a record high, but there are big differences between now and the last crypto boom, when digital currencies became a cultural phenomenon.`\
 https://nytimes.com/2024/03/05/technology/cryptocurrencies-bitcoin-explainer.html
-
-**Kyrsten Sinema Bows Out of Arizona Senate Race**\
-`The independent incumbent’s decision clears the field for a two-person race, most likely between Representative Ruben Gallego and Kari Lake.`\
-https://nytimes.com/2024/03/05/us/politics/kyrsten-sinema-arizona-senate.html
-
-**Rabbi Ellen Bernstein, Who Saw Ecology as God’s Work, Dies at 70**\
-`She linked her passion for the natural environment to the precepts of the Hebrew Bible, beginning with the Garden of Eden.`\
-https://nytimes.com/2024/03/05/science/rabbi-ellen-bernstein-dead.html
 
