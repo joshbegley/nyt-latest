@@ -1,5 +1,5 @@
 **Damage to Cables Under Red Sea Highlights Mideast Conflict’s Broader Threat**\
-`What disabled three major cables liking East to West is still not clear. Suspicion has centered on Yemen’s Houthi rebels, who have attacked numerous ships in the area, but they have denied responsibility.`\
+`What disabled three major cables linking East to West is still not clear. Suspicion has centered on Yemen’s Houthi rebels, who have attacked numerous ships in the area, but they have denied responsibility.`\
 https://nytimes.com/2024/03/05/business/damage-to-cables-under-red-sea-highlights-mideast-conflicts-broader-threat.html
 
 **‘A Revolution on Canvas’ Review: The Personal, the Political and the Painting**\
