@@ -10,8 +10,8 @@ https://nytimes.com/2024/03/05/us/politics/biden-uncommitted-vote-super-tuesday.
 `The contest was the first of 16 on Super Tuesday he is expected to dominate as he turns fully to the general election.`\
 https://nytimes.com/2024/03/05/us/politics/biden-democratic-primary-nomination.html
 
-**Does Yogurt Reduce Diabetes Risk? That’s What Labels Can Now Claim.**\
-`The F.D.A. will allow yogurt makers to put the benefit on their packaging. But experts say the evidence to support it is mixed.`\
+**Does Eating Yogurt Reduce Your Diabetes Risk?**\
+`The F.D.A. will now allow yogurt makers to claim it can — but the evidence is mixed.`\
 https://nytimes.com/2024/03/05/well/eat/yogurt-diabetes-risk-fda.html
 
 **Sinema’s Retirement Is a Gift to Exasperated Democrats**\
