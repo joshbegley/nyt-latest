@@ -10,7 +10,7 @@ https://nytimes.com/2024/03/05/us/california-primary-election.html?searchResultP
 `The museum, which has been the site of protests in recent years, has chosen Michael Lee as its director as it focuses on rebuilding trust.`\
 https://nytimes.com/2024/03/05/arts/design/museum-of-chinese-in-america-new-leader.html?searchResultPosition=3
 
-**Israel recalls its U.N. ambassador to protest what it sees as inaction on a sexual violence report.**\
+**Israel’s recall of its U.N. ambassador comes as tensions are rising.**\
 `By Adam Sella`\
 https://nytimes.com/live/2024/03/05/world/israel-hamas-war-gaza-news/israel-recalls-its-un-ambassador-to-protest-what-it-sees-as-inaction-on-a-sexual-violence-report?searchResultPosition=4
 
@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2024/03/05/learning/05StudentNewsQuiz.html?searc
 `Police believe the blaze at a high-voltage power pylon had been deliberately set, amid ongoing turmoil over the automaker’s plans to expand its assembly plant near Berlin.`\
 https://nytimes.com/2024/03/05/business/tesla-germany-factory-fire.html?searchResultPosition=9
 
-**Some states will confront wet weather on Super Tuesday.**\
-`Lingering snow showers are expected in some states, and coastal storms may affect others.`\
+**Some States Will Confront Wet Weather on Super Tuesday**\
+`Lingering snow showers are expected in California, Utah and Colorado, and coastal storms may affect other states.`\
 https://nytimes.com/2024/03/05/us/politics/super-tuesday-weather-forecast.html?searchResultPosition=10
 
