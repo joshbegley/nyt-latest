@@ -1,3 +1,7 @@
+**International Court Accuses 2 Russian Officers of War Crimes in Ukraine**\
+`Arrest warrants were issued by the International Criminal Court for two military officials, a general and an admiral, both accused of targeting civilians and destroying crucial energy infrastructure.`\
+https://nytimes.com/2024/03/05/world/europe/international-court-russia-ukraine.html
+
 **Philadelphia Man Is Freed After 34 Years in Prison**\
 `Police had hidden evidence showing that Ronald Johnson did not participate in the crime he was convicted of, his lawyer said.`\
 https://nytimes.com/2024/03/05/us/ronald-johnson-sentence-vacated.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/nyregion/cuomo-covid-nursing-homes-subpoena.html
 **Venezuela Announces Election Date, With Opposition Candidate Still Banned**\
 `The decision to hold a vote on July 28 is a partial fulfillment of a commitment to the United States, but with the top opposition figure barred, many wondered how free and fair the balloting would be.`\
 https://nytimes.com/2024/03/05/world/americas/venezuela-maduro-election-date.html
-
-**Maker of Raw Milk Cheese Pleads Guilty in Listeria Outbreak That Killed 2**\
-`The Federal Drug Administration linked cheese from the Vulto Creamery in Walton, N.Y., to an outbreak of listeria that also sickened six from 2016 to 2017.`\
-https://nytimes.com/2024/03/05/nyregion/listeria-outbreak-cheese-guilty-plea.html
 
