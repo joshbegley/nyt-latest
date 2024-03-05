@@ -10,7 +10,7 @@ https://nytimes.com/2024/03/05/us/politics/biden-trump-when-clinch-nominations.h
 `In recent weeks, American travelers to some of the busiest international destinations during spring vacation have been urged by the State Department to exercise extra caution.`\
 https://nytimes.com/2024/03/05/travel/spring-break-resort-safety.html
 
-**Starbucks Lays Off Workers in Mideast Amid Gaza-Tied Boycotts**\
+**Starbucks Franchise Lays Off Workers in Mideast Amid Gaza-Tied Boycotts**\
 `Store traffic has dropped off in the Middle East and Southeast Asia as customers protest perceptions of Starbucks’ stance on the Israel-Hamas conflict.`\
 https://nytimes.com/2024/03/05/business/starbucks-layoffs-middle-east.html
 
