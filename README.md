@@ -1,3 +1,11 @@
+**girl in red: The Popcast (Deluxe) Interview**\
+`An interview with the Norwegian singer girl in red (Marie Ulven) about her second album, “I’m Doing It Again Baby!,” opening for Taylor Swift and more.`\
+https://nytimes.com/2024/03/06/arts/music/girl-in-red-interview-popcast-deluxe.html
+
+**Mitch McConnell Endorses Trump, Whom He Once Denounced**\
+`The Kentucky Republican, who plans to step down as Senate minority leader at the end of the year, had blamed the former president’s lies about the 2020 election for the Jan. 6 riot.`\
+https://nytimes.com/2024/03/06/us/politics/mcconnell-endorses-trump.html
+
 **Haley’s Failed Campaign Highlights G.O.P. Rifts and Trump’s Dominance**\
 `Falling well short in a spirited campaign to dethrone Mr. Trump, Ms. Haley brought to a close the latest struggle over the soul and direction of the Republican Party.`\
 https://nytimes.com/2024/03/06/us/politics/nikki-haley-drops-out-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/06/dining/persian-rice-recipe.html
 **Bracing for a Trump Rematch, Biden Confronts Four Thorny Challenges**\
 `Before his State of the Union address, the president faces several political problems that are largely out of his control and present dangers to his re-election bid.`\
 https://nytimes.com/2024/03/06/us/politics/biden-democrats-state-of-the-union.html
-
-**‘Ricky Stanicky’ Review: Best Fiends Forever**\
-`In this slapdash, off-color comedy directed by Peter Farrelly, three buddies use the same imaginary friend as an excuse to get them out of binds.`\
-https://nytimes.com/2024/03/06/movies/ricky-stanicky-review.html
-
-**Full Transcript of Nikki Haley’s Remarks as She Dropped Out of G.O.P. Primary**\
-`Nikki Haley wished Donald J. Trump well, but she did not endorse him.`\
-https://nytimes.com/2024/03/06/us/politics/haley-out-speech-transcript.html
 
