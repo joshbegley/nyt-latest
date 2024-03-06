@@ -1,3 +1,11 @@
+**Christopher Walken’s Hidden ‘Dune’ Connection**\
+`The actor who plays the malevolent emperor in the new film actually brought an element of the saga to life once before. Remember “Weapon of Choice”?`\
+https://nytimes.com/2024/03/06/movies/christopher-walken-dune-weapon-of-choice.html
+
+**Reflections on a Trump-Biden Rematch**\
+`Readers react to articles about the two candidates’ dominance on Super Tuesday. Also: Older bike riders; French abortion amendment; shrinkflation. `\
+https://nytimes.com/2024/03/06/opinion/letters/trump-biden-rematch.html
+
 **Despite the Doubters, Haley’s Real Goal Was to Be a Choice**\
 `People kept asking what she really wanted, but ultimately the party didn’t accept her answer.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/haley-withdraw-endorse
