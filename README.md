@@ -1,3 +1,7 @@
+**‘Uncommitted’ Voters Show Strength Against Biden in Minnesota**\
+`The effort to pressure the president over his support for Israel garnered a sizable share of the vote, despite being more hastily organized. Voters in other states also voiced unease.`\
+https://nytimes.com/2024/03/05/us/politics/biden-uncommitted-protest-vote-minnesota.html
+
 **Colin Allred Wins Democratic Contest to Take On Senator Ted Cruz**\
 `The Dallas-area congressman presented himself as an across-the-aisle politician who could appeal to a wide range of voters.`\
 https://nytimes.com/2024/03/05/us/politics/colin-allred-democrat-texas-senate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/us/politics/houston-district-attorney-kim-ogg.htm
 **Transcript: Ezra Klein Interviews Marilynne Robinson**\
 `The March 5, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/03/05/podcasts/transcript-ezra-klein-interviews-marilynne-robinson.html
-
-**Something to Bat Around**\
-`Brad Wiegmann figures he can trick us. And he does.`\
-https://nytimes.com/2024/03/05/crosswords/daily-puzzle-2024-03-06.html
 
