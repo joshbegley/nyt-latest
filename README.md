@@ -1,3 +1,7 @@
+**Biden Promised Calm After Trump Chaos, but the World Has Not Cooperated**\
+`Inflation, an explosion of migration at the border and wars in Europe and the Middle East have created a sense of instability that polls show have eroded his support.`\
+https://nytimes.com/2024/03/06/us/politics/biden-trump-chaos.html
+
 **After 217 Covid Vaccines, Man Had No Side Effects and Robust Immunity**\
 `Media accounts of a German man’s extreme vaccination history spurred researchers to analyze his immune responses.`\
 https://nytimes.com/2024/03/06/health/217-covid-vaccines.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/arts/dance/review-ursula-eagly-dream-body-body-bu
 **With Haley’s departure, the nominees will be two men. Again.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/03/06/us/haley-out-trump-election-updates/haley-women-candidates-2024-election
-
-**Spinosaurus Didn’t Swim After Its Supper, Study Claims**\
-`A new paper challenges the idea that the large, carnivorous dinosaur dived after prey rather than wading and plucking it out of the water.`\
-https://nytimes.com/2024/03/06/science/spinosaurus-dinosaur-fossil-dive.html
 
