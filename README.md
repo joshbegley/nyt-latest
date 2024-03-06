@@ -1,3 +1,11 @@
+**Christopher Walken’s Hidden ‘Dune’ Connection**\
+`The actor who plays the malevolent emperor in the new film actually brought an element of the saga to life once before. Remember “Weapon of Choice”?`\
+https://nytimes.com/2024/03/06/movies/christopher-walken-dune-weapon-of-choice.html
+
+**Reflections on a Trump-Biden Rematch**\
+`Readers react to articles about the two candidates’ dominance on Super Tuesday. Also: Older bike riders; French abortion amendment; shrinkflation. `\
+https://nytimes.com/2024/03/06/opinion/letters/trump-biden-rematch.html
+
 **Despite the Doubters, Haley’s Real Goal Was to Be a Choice**\
 `People kept asking what she really wanted, but ultimately the party didn’t accept her answer.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/haley-withdraw-endorse
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/the-us-plac
 **And the Oscars Carpet Color Goes … Back to Red**\
 `Following the surprise of last year’s champagne-hued rug, the Academy of Motion Picture Arts and Sciences unveiled a bright red one on Wednesday at the Dolby Theater.`\
 https://nytimes.com/2024/03/06/style/oscars-red-carpet.html
-
-**John Kerry: ‘I Feel Deeply Frustrated’**\
-`The outgoing climate envoy on what the world has, and hasn’t, achieved.`\
-https://nytimes.com/2024/03/06/opinion/john-kerry-climate-change-china.html
-
-**Paper Bag Players Celebrate 65 Years of Making Magic Out of the Ordinary**\
-`The children’s theater company will bring its latest production, “It’s a Marvelous Paper Bag World!,” to stages in New York this spring.`\
-https://nytimes.com/2024/03/06/theater/paper-bag-players-childrens-theater.html
 

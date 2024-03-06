@@ -1,3 +1,7 @@
+**Despite the Doubters, Haley’s Real Goal Was to Be a Choice**\
+`People kept asking what she really wanted, but ultimately the party didn’t accept her answer.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/haley-withdraw-endorse
+
 **Haiti Engulfed by Crisis as Gangs Press Prime Minister to Step Down**\
 `The power struggle in Haiti is raising pressure on the United States to ease tensions while casting doubt on plans for a Kenyan-led security mission.`\
 https://nytimes.com/2024/03/06/world/americas/haiti-gangs-prime-minister.html
