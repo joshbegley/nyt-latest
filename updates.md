@@ -1,3 +1,15 @@
+**John Walker, Tech Executive Who Popularized AutoCAD, Dies at 74**\
+`He avoided the spotlight, but he helped bring to market an explosively popular computer program that revolutionized the architecture and design industries.`\
+https://nytimes.com/2024/03/06/technology/john-walker-dead.html
+
+**With Haley Out, Will States Still Hold Primaries?**\
+`It’s likely too late for them to do anything else.`\
+https://nytimes.com/2024/03/06/us/politics/state-primaries-haley-out-trump.html
+
+**The Anti-Abortion Movement Traps Republicans on I.V.F.**\
+`It turns out it was easier for Republicans to indulge the movement’s maximalism when their voters didn’t have to live with the repercussions.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/ivf-access-alabama
+
 **Please, President Biden: Don’t Blame Corporate Greed for Inflation**\
 `Instead of casting blame, Biden should tout what he’s done to ease Americans’ financial pressures.`\
 https://nytimes.com/2024/03/06/opinion/biden-inflation-greed-profits.html
