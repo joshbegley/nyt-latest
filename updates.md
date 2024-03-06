@@ -1,3 +1,7 @@
+**Supper Clubs in New York Are a Vanishing Breed. Café Carlyle Is Keeping the Tradition Alive**\
+`Any night at the Upper East Side’s nearly 70-year-old cabaret still feels like a big night out.`\
+https://nytimes.com/2024/03/06/t-magazine/cafe-carlyle-cabaret-supper-club-new-york.html
+
 **Expecting Protests at the Oscars, Police Plan to Beef Up Security**\
 `The Los Angeles police said it would increase its presence at the Academy Awards, given the potential for protests related to the Israel-Hamas war.`\
 https://nytimes.com/2024/03/06/arts/oscars-security-protests-police.html
