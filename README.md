@@ -26,7 +26,7 @@ https://nytimes.com/2024/03/06/crosswords/spelling-bee-forum.html
 `Israeli’s Military Turns Back Convoy Trying to Get Food Into Gaza, U.N. Agency Says`\
 https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news
 
-**Aid group says it was turned away as desperation intensifies.**\
+**The W.F.P. says it was turned away as desperation intensifies.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/aid-group-says-it-was-turned-away-as-desperation-intensifies
 
