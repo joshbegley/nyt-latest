@@ -1,3 +1,11 @@
+**John Kerry: ‘I Feel Deeply Frustrated’**\
+`The outgoing climate envoy on what the world has, and hasn’t, achieved.`\
+https://nytimes.com/2024/03/06/opinion/john-kerry-climate-change-china.html
+
+**Paper Bag Players Celebrate 65 Years of Making Magic Out of the Ordinary**\
+`The children’s theater company will bring its latest production, “It’s a Marvelous Paper Bag World!,” to stages in New York this spring.`\
+https://nytimes.com/2024/03/06/theater/paper-bag-players-childrens-theater.html
+
 **Protesters Interrupt Adam Schiff’s Victory Speech, Chanting ‘Cease-Fire Now’**\
 `The California Democrat was thrilled by Tuesday’s election results, but his celebration was tempered by protests of his support of Israel.`\
 https://nytimes.com/2024/03/06/us/politics/adam-schiff-speech-gaza-protest.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/06/us/politics/ntsb-boeing-737-max.html
 **Off the Board Game, Onto the Digital Canvas**\
 `Are role-playing games enriching culture, or destroying it? In two shows, the artist Simon Denny spoofs the grandiose fantasy worlds of tech entrepreneurs designing virtual reality.`\
 https://nytimes.com/2024/03/06/arts/design/simon-denny-art-computers-gaming-review-musk-grimes.html
-
-**Federal Reserve Expects to Lower Interest Rates Later This Year**\
-`Jerome H. Powell, the chair of the Federal Reserve, said that cuts in borrowing costs could be possible in 2024 if the data continued to signal a control on inflation.`\
-https://nytimes.com/video/us/politics/100000009346653/fed-interest-rates.html
-
-**What It Takes to Be an Award Show Writer**\
-`Jason Zinoman, a New York Times critic who writes the On Comedy column, explains the struggles of the underappreciated award show writing staff and how its job often goes beyond writing.`\
-https://nytimes.com/video/arts/television/100000009335368/diplomatic-skills-award-show-writers.html
 
