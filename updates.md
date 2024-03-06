@@ -1,3 +1,7 @@
+**Review: Lucid Dreaming, Person to Person**\
+`In Ursula Eagly’s “Dream Body Body Building” at the Chocolate Factory, the dancers seem to be transmitting a dream state to the audience.`\
+https://nytimes.com/2024/03/06/arts/dance/review-ursula-eagly-dream-body-body-building.html
+
 **With Haley’s departure, the nominees will be two men. Again.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/03/06/us/haley-out-trump-election-updates/haley-women-candidates-2024-election
