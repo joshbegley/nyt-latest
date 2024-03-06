@@ -1,3 +1,7 @@
+**Despite the Doubters, Haley’s Real Goal Was to Be a Choice**\
+`People kept asking what she really wanted, but ultimately the party didn’t accept her answer.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/haley-withdraw-endorse
+
 **Haiti Engulfed by Crisis as Gangs Press Prime Minister to Step Down**\
 `The power struggle in Haiti is raising pressure on the United States to ease tensions while casting doubt on plans for a Kenyan-led security mission.`\
 https://nytimes.com/2024/03/06/world/americas/haiti-gangs-prime-minister.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/opinion/john-kerry-climate-change-china.html
 **Paper Bag Players Celebrate 65 Years of Making Magic Out of the Ordinary**\
 `The children’s theater company will bring its latest production, “It’s a Marvelous Paper Bag World!,” to stages in New York this spring.`\
 https://nytimes.com/2024/03/06/theater/paper-bag-players-childrens-theater.html
-
-**Protesters Interrupt Adam Schiff’s Victory Speech, Chanting ‘Cease-Fire Now’**\
-`The California Democrat was thrilled by Tuesday’s election results, but his celebration was tempered by protests of his support of Israel.`\
-https://nytimes.com/2024/03/06/us/politics/adam-schiff-speech-gaza-protest.html
 
