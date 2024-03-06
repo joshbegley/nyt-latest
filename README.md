@@ -1,3 +1,7 @@
+**Super Tuesday Exposed Vulnerabilities for Trump and Biden, and Bitcoin Completes Comeback**\
+`Plus, bad blood in Southeast Asia over Taylor Swift’s tour.`\
+https://nytimes.com/2024/03/06/podcasts/super-tuesday-exposed-vulnerabilities-for-trump-and-biden-and-bitcoin-completes-comeback.html
+
 **The Unhappy Voters Who Could Swing the Election**\
 `In 2020 as in 2016, a potentially decisive slice of the electorate dislikes both main candidates. That could make for a volatile race.`\
 https://nytimes.com/2024/03/06/podcasts/the-daily/swing-voters-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/science/sea-stars-reproduction-climate-change.htm
 **The Babe Paley in ‘Feud’ Is Not the Woman I Knew**\
 `In a popular TV show, my grandmother is fictionalized as one of Truman Capote’s swans. I wish she’d had the chance to tell her story in her way.`\
 https://nytimes.com/2024/03/06/opinion/feud-swans-paley.html
-
-**The Privileges and Pitfalls of Making Movies About Real People**\
-`The Oscars slate this year is packed with films rooted in historical events and biographies. How much influence should the subjects have?`\
-https://nytimes.com/2024/03/06/movies/oppenheimer-maestro-rustin-may-december.html
 
