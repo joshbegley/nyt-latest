@@ -1,3 +1,15 @@
+**Nikki Haley Wins Vermont, Her Second Victory Against Trump**\
+`The win signals her limited strength in places with large numbers of younger people, college-educated voters and independents.`\
+https://nytimes.com/2024/03/05/us/politics/nikki-haley-wins-vermont.html
+
+**OpenAI Says Elon Musk Tried To Merge It With Tesla**\
+`In its first public comment since Mr. Musk sued the artificial intelligence lab, OpenAI claims he tried to commercialize its operations years ago.`\
+https://nytimes.com/2024/03/05/technology/openai-elon-musk-tesla.html
+
+**Challenger Beats Houston’s District Attorney in Democratic Primary**\
+`The incumbent, Kim Ogg, had made herself a lightning rod within her party by tacking to the center and clashing with fellow Democrats.`\
+https://nytimes.com/2024/03/05/us/politics/houston-district-attorney-kim-ogg.html
+
 **Transcript: Ezra Klein Interviews Marilynne Robinson**\
 `The March 5, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/03/05/podcasts/transcript-ezra-klein-interviews-marilynne-robinson.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/05/us/politics/josh-stein-north-carolina-governor.ht
 **Mark Robinson Wins Republican Primary for North Carolina Governor**\
 `Mr. Robinson, the state’s lieutenant governor, had never run for office until 2020. He is a political firebrand whose harsh rhetoric could work for or against him.`\
 https://nytimes.com/2024/03/05/us/politics/mark-robinson-north-carolina-governor.html
-
-**Review: For ‘Jack Tucker,’ Failure Is the Only Option**\
-`Zach Zucker delivers a raucously funny portrait of a catastrophically dim stand-up comic at SoHo Playhouse.`\
-https://nytimes.com/2024/03/05/theater/jack-tucker-comedy-standup-hour-review.html
-
-**Harvard’s Response to Subpoenas Is Called ‘Useless’ by House Committee**\
-`Harvard said it has been acting in good faith and submitted nearly 1,500 pages of new material.`\
-https://nytimes.com/2024/03/05/us/harvard-subpoena-antisemitism.html
-
-**Donald Trump, Seeking Cash Infusion, Meets With Elon Musk**\
-`It’s not clear whether Mr. Musk will spend any of his billions on the former president’s behalf. If he does, he could erase Mr. Trump’s financial disadvantage in the 2024 race.`\
-https://nytimes.com/2024/03/05/us/politics/trump-elon-musk.html
 
