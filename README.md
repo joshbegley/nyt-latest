@@ -1,3 +1,15 @@
+**Corrections: March 6, 2024**\
+`Corrections that appeared in print on Wednesday, March 6, 2024.`\
+https://nytimes.com/2024/03/05/pageoneplus/corrections-march-6-2024.html
+
+**Quotation of the Day: She Boxes. She Conducts. She Defies Stereotypes.**\
+`Quotation of the Day for Wednesday, March 6, 2024.`\
+https://nytimes.com/2024/03/05/pageoneplus/quotation-of-the-day-she-boxes-she-conducts-she-defies-stereotypes.html
+
+**Little-Known Democrat Beats Biden in American Samoa**\
+`Jason Palmer, an entrepreneur from Maryland, was the only candidate to campaign in the island territory. He collected four of the six delegates awarded in the caucus.`\
+https://nytimes.com/2024/03/05/us/politics/biden-american-samoa-jason-palmer.html
+
 **Nikki Haley Wins Vermont, Her Second Victory Against Trump**\
 `The win signals her limited strength in places with large numbers of younger people, college-educated voters and independents.`\
 https://nytimes.com/2024/03/05/us/politics/nikki-haley-wins-vermont.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/03/05/opinion/thepoint/robinson-governor-north-car
 **International Court Accuses 2 Russian Officers of War Crimes in Ukraine**\
 `Arrest warrants were issued by the International Criminal Court for two military officials, a general and an admiral, both accused of targeting civilians and destroying crucial energy infrastructure.`\
 https://nytimes.com/2024/03/05/world/europe/international-court-russia-ukraine.html
-
-**Philadelphia Man Is Freed After 34 Years in Prison**\
-`Police had hidden evidence showing that Ronald Johnson did not participate in the crime he was convicted of, his lawyer said.`\
-https://nytimes.com/2024/03/05/us/ronald-johnson-sentence-vacated.html
-
-**Josh Stein Wins Democratic Primary for North Carolina Governor**\
-`Mr. Stein, the state attorney general, easily defeated four primary opponents and will likely face Mark Robinson, the Republican lieutenant governor, in November.`\
-https://nytimes.com/2024/03/05/us/politics/josh-stein-north-carolina-governor.html
-
-**Mark Robinson Wins Republican Primary for North Carolina Governor**\
-`Mr. Robinson, the state’s lieutenant governor, had never run for office until 2020. He is a political firebrand whose harsh rhetoric could work for or against him.`\
-https://nytimes.com/2024/03/05/us/politics/mark-robinson-north-carolina-governor.html
 
