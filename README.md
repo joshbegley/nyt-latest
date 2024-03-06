@@ -18,7 +18,7 @@ https://nytimes.com/2024/03/05/us/politics/biden-uncommitted-protest-vote-minnes
 `The Dallas-area congressman presented himself as an across-the-aisle politician who could appeal to a wide range of voters.`\
 https://nytimes.com/2024/03/05/us/politics/colin-allred-democrat-texas-senate.html
 
-**Schiff and Garvey Advance in the California Senate Race for Feinstein’s Seat.**\
+**Schiff and Garvey Advance in the California Senate Race for Feinstein’s Seat**\
 `Representative Adam Schiff, a prominent antagonist of former President Donald J. Trump, will face Steve Garvey, a Republican former baseball star, in a November runoff.`\
 https://nytimes.com/2024/03/05/us/politics/california-senate-schiff-garvey.html
 
