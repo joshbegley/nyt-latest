@@ -7,7 +7,7 @@ https://nytimes.com/2024/03/05/us/politics/biden-uncommitted-protest-vote-minnes
 https://nytimes.com/2024/03/05/us/politics/colin-allred-democrat-texas-senate.html
 
 **Schiff Advances in the California Senate Race for Feinstein’s Seat**\
-`Republican Steve Garvey, a former baseball star, and Representative Katie Porter, a Democrat from Orange County, were battling for the second spot in the November runoff.`\
+`With Representative Adam Schiff securing a spot in the November runoff, Republican Steve Garvey, a former baseball star, and Representative Katie Porter, an Orange County Democrat, were battling for the second spot.`\
 https://nytimes.com/2024/03/05/us/politics/california-senate-schiff-garvey.html
 
 **Corrections: March 6, 2024**\
