@@ -1,3 +1,11 @@
+**After 217 Covid Vaccines, Man Had No Side Effects and Robust Immunity**\
+`Media accounts of a German man’s extreme vaccination history spurred researchers to analyze his immune responses.`\
+https://nytimes.com/2024/03/06/health/217-covid-vaccines.html
+
+**The Trump-Biden Rematch Is Here. Americans Are Processing.**\
+`They’ve worked through denial, bargaining and grief over the 2024 matchup. Are discontented voters inching toward acceptance?`\
+https://nytimes.com/2024/03/06/us/politics/trump-biden-presidential-campaign.html
+
 **John Walker, Tech Executive Who Popularized AutoCAD, Dies at 74**\
 `He avoided the spotlight, but he helped bring to market an explosively popular computer program that revolutionized the architecture and design industries.`\
 https://nytimes.com/2024/03/06/technology/john-walker-dead.html

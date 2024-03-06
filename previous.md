@@ -1,3 +1,11 @@
+**After 217 Covid Vaccines, Man Had No Side Effects and Robust Immunity**\
+`Media accounts of a German man’s extreme vaccination history spurred researchers to analyze his immune responses.`\
+https://nytimes.com/2024/03/06/health/217-covid-vaccines.html
+
+**The Trump-Biden Rematch Is Here. Americans Are Processing.**\
+`They’ve worked through denial, bargaining and grief over the 2024 matchup. Are discontented voters inching toward acceptance?`\
+https://nytimes.com/2024/03/06/us/politics/trump-biden-presidential-campaign.html
+
 **John Walker, Tech Executive Who Popularized AutoCAD, Dies at 74**\
 `He avoided the spotlight, but he helped bring to market an explosively popular computer program that revolutionized the architecture and design industries.`\
 https://nytimes.com/2024/03/06/technology/john-walker-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/06/us/haley-out-trump-election-updates/haley-wo
 **Spinosaurus Didn’t Swim After Its Supper, Study Claims**\
 `A new paper challenges the idea that the large, carnivorous dinosaur dived after prey rather than wading and plucking it out of the water.`\
 https://nytimes.com/2024/03/06/science/spinosaurus-dinosaur-fossil-dive.html
-
-**Federal Judge Rules Minority Business Agency Must Serve White People as Well**\
-`The ruling by a judge in Texas was the latest in a string of court decisions that have eroded or struck down federal affirmative-action mandates in a variety of arenas.`\
-https://nytimes.com/2024/03/06/us/business-development-race-affirmative-action.html
-
-**Christopher Walken’s Hidden ‘Dune’ Connection**\
-`The actor who plays the malevolent emperor in the new film actually brought an element of the saga to life once before. Remember “Weapon of Choice”?`\
-https://nytimes.com/2024/03/06/movies/christopher-walken-dune-weapon-of-choice.html
 
