@@ -1,3 +1,11 @@
+**Russians Flock to Navalny’s Grave as They Grapple With His Legacy**\
+`The loss of the optimism in the face of oppression espoused by Aleksei Navalny, Russia’s most prominent opposition leader, has hit many Russians hard. Now, as one mourner said, “I don’t have any vision of the future.”`\
+https://nytimes.com/2024/03/06/world/europe/navalny-grave-russia.html
+
+**A Comforting Rice Dish That Won’t Break the Bank**\
+`Adas polo, a Persian recipe perfumed with cinnamon and layered with caramelized onions and dates, only feels expensive.`\
+https://nytimes.com/2024/03/06/dining/persian-rice-recipe.html
+
 **Bracing for a Trump Rematch, Biden Confronts Four Thorny Challenges**\
 `Before his State of the Union address, the president faces several political problems that are largely out of his control and present dangers to his re-election bid.`\
 https://nytimes.com/2024/03/06/us/politics/biden-democrats-state-of-the-union.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/06/arts/music/john-cage-europeras-detroit-yuval-shar
 **New Data Details the Risk of Sea-Level Rise for U.S. Coastal Cities**\
 `A new study of sinking and rising land along American coasts offers a more specific understanding of potential flooding in 32 coastal cities.`\
 https://nytimes.com/2024/03/06/climate/sea-level-rise-east-coast-sinking-land-flooding.html
-
-**The War That Will Haunt Democrats Through the Campaign**\
-`Protesters could create echoes of the 1968 convention in Chicago.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/gaza-protesters-democrats-schiff
-
-**The fatalities appear to be the first since Houthi attacks began.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/a-commercial-vessel-has-been-hit-in-the-red-sea-a-british-naval-organization-says
 
