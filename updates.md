@@ -1,3 +1,7 @@
+**The National Guard Might Help Subway Riders Feel Safer**\
+`But Governor Hochul needs to ensure that the state’s role is to deter crime, not harass riders.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/nyc-subway-crime-national-guard
+
 **Haley Dropped Out, Making Way for a Biden-Trump Rematch**\
 `Also, National Guard troops will patrol New York’s subway. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/03/06/briefing/haley-drops-out-national-guard-new-york-subway.html

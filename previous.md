@@ -1,3 +1,7 @@
+**The National Guard Might Help Subway Riders Feel Safer**\
+`But Governor Hochul needs to ensure that the state’s role is to deter crime, not harass riders.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/nyc-subway-crime-national-guard
+
 **Haley Dropped Out, Making Way for a Biden-Trump Rematch**\
 `Also, National Guard troops will patrol New York’s subway. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/03/06/briefing/haley-drops-out-national-guard-new-york-subway.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/us/politics/ivf-ad-michigan-congress-democrats.ht
 **How Trump’s Crushing Primary Triumph Masked Quiet Weaknesses**\
 `Even though he easily defeated Nikki Haley, the primary results suggested that he still has long-term problems with suburban voters, moderates and independents.`\
 https://nytimes.com/2024/03/06/us/politics/donald-trump-primary-wins.html
-
-**One Twin Was Hurt, the Other Was Not. Their Adult Mental Health Diverged.**\
-`A large study of “discordant twins,” in which only one suffered abuse or neglect, adds to evidence linking childhood trauma to adult illness.`\
-https://nytimes.com/2024/03/06/health/one-twin-was-hurt-the-other-was-not-their-adult-mental-health-diverged.html
 
