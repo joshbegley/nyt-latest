@@ -1,3 +1,7 @@
+**Spinosaurus Didn’t Swim After Its Supper, Study Claims**\
+`A new paper challenges the idea that the large, carnivorous dinosaur dived after prey rather than wading and plucking it out of the water.`\
+https://nytimes.com/2024/03/06/science/spinosaurus-dinosaur-fossil-dive.html
+
 **Federal Judge Rules Minority Business Agency Must Serve White People as Well**\
 `The ruling by a judge in Texas was the latest in a string of court decisions that have eroded or struck down federal affirmative-action mandates in a variety of arenas.`\
 https://nytimes.com/2024/03/06/us/business-development-race-affirmative-action.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/us/politics/dean-phillips-drops-out.html
 **Who are the Houthis?**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/who-are-the-houthis
-
-**The U.S. places sanctions on shipping companies for helping Iran to finance the Houthis.**\
-`By Alan Rappeport`\
-https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/the-us-places-sanctions-on-shipping-companies-for-helping-iran-to-finance-the-houthis
 
