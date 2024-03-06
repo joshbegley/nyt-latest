@@ -1,3 +1,7 @@
+**Michael Chabon Wants to Help You Win Connections**\
+`The author of “Moonglow” and “The Yiddish Policeman’s Union” has a method for solving, and he’s sharing it with other puzzle lovers on Threads.`\
+https://nytimes.com/2024/03/06/crosswords/michael-chabon-win-connections.html
+
 **‘As Living as Opera Can Get’: John Cage’s Anarchic Anti-Canon**\
 `In his “Europeras,” Cage dismantled centuries of tradition and expectations, for musicians and audiences alike. A rare revival is coming to Detroit.`\
 https://nytimes.com/2024/03/06/arts/music/john-cage-europeras-detroit-yuval-sharon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/world/asia/malaysia-airlines-missing-flight-mh370
 **There Was Always Crying in Sports. The Kelces Made It Cool.**\
 `A tear-filled retirement announcement was just the latest instance of Jason and Travis Kelce, two of the toughest guys around, putting their emotions on full display.`\
 https://nytimes.com/2024/03/06/style/jason-kelce-crying.html
-
-**National Guard and State Police Will Patrol the Subways and Check Bags**\
-`Gov. Kathy Hochul, amid a series of violent crimes on the subway, said she would deploy 1,000 members of the State Police and National Guard to the transit system.`\
-https://nytimes.com/2024/03/06/nyregion/subway-national-guard-police.html
 
