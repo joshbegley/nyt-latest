@@ -2,7 +2,7 @@
 `The primaries are effectively over —  and the general election begins.`\
 https://nytimes.com/2024/03/06/briefing/super-tuesday-2024-election-haley-trump-biden.html
 
-**Super Tuesday Exposed Vulnerabilities for Trump and Biden, and Bitcoin Completes Comeback**\
+**Haley Expected to Drop Out, and Bitcoin Completes Comeback**\
 `Plus, bad blood in Southeast Asia over Taylor Swift’s tour.`\
 https://nytimes.com/2024/03/06/podcasts/super-tuesday-exposed-vulnerabilities-for-trump-and-biden-and-bitcoin-completes-comeback.html
 
