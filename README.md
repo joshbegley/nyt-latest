@@ -1,3 +1,7 @@
+**U.K. to Cut Taxes Again as Election Nears**\
+`The Conservative government, trailing badly in the polls, proposed the second tax cut in four months.`\
+https://nytimes.com/2024/03/06/business/uk-budget-tax-cut-election.html
+
 **Atom Bombs in Space Are Back to Scare Us Again**\
 `Russian President Vladimir V. Putin may find that a nuclear weapon in orbit is less useful for war than intimidation.`\
 https://nytimes.com/2024/03/06/science/space-nuclear-bomb-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/opinion/college-enrollment.html
 **Flood Watch Issued for Wednesday in New York and Southern New England**\
 `As a storm neared the coastal Northeast, officials predicted heavy rain and said travel delays were possible during the evening commute.`\
 https://nytimes.com/2024/03/06/nyregion/nyc-forecast-rain-flood.html
-
-**Israel Rejects Far-Right Plan for New Limits on Access to Important Mosque**\
-`As the Muslim holy month of Ramadan approaches, the move may reduce tensions at the Aqsa Mosque compound, which has long been a flashpoint for unrest.`\
-https://nytimes.com/2024/03/06/world/middleeast/israel-aqsa-mosque-ramadan.html
 
