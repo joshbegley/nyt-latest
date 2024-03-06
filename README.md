@@ -1,3 +1,11 @@
+**Truce talks have been an exhausting tangle of emotions for Gazans.**\
+`“It’s a form of psychological torture,” said one man in Rafah. “It’s unbearable. We’re told one day that the war is ending and then the opposite the next day.”`\
+https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/truce-talks-have-been-an-exhausting-tangle-of-emotions-for-gazans
+
+**Too Little Ammunition, Too Many Russians: The Harrowing Retreat from Avdiivka**\
+`The fall of the city, when it came in mid-February, was brutal and fast. Soldiers fought for their lives. Many did not make it.`\
+https://nytimes.com/2024/03/06/world/europe/ukraine-avdiivka-russia.html
+
 **The One Thing You Need Next Season**\
 `Louis Vuitton, Chanel and Miu Miu bring the ready-to-wear shows to an end. What’s the takeaway?`\
 https://nytimes.com/2024/03/06/style/louis-vuitton-chanel-miu-miu.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/06/movies/oppenheimer-maestro-rustin-may-december.ht
 **Why Power Eludes the French Left**\
 `France has often been the vanguard of leftist politics — but support in the streets doesn’t always translate to votes at the ballot box.`\
 https://nytimes.com/2024/03/06/magazine/french-left-politics-melenchon.html
-
-**The Youths Have Spoken: Wallets Are Lame. Go Digital.**\
-`A wallet-free lifestyle relying on your phone is attainable, but it requires preparation and some compromise.`\
-https://nytimes.com/2024/03/06/technology/personaltech/mobile-wallet-app.html
-
-**The 2020 Election Is Back**\
-`Donald J. Trump begins the 2024 general election campaign in the lead.`\
-https://nytimes.com/2024/03/06/upshot/biden-trump-super-tuesday.html
 
