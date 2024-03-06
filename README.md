@@ -1,3 +1,7 @@
+**Fed Chair Powell Still Expects to Cut Rates This Year, but Not Yet**\
+`Jerome H. Powell, chair of the Federal Reserve, said policymakers still expect to lower rates in 2024 — but the timing hinges on data.`\
+https://nytimes.com/2024/03/06/business/fed-powell-interest-rates.html
+
 **With Haley Expected to Drop Out, What Will Her Voters Do in November?**\
 `Nikki Haley’s supporters tend to be moderate and college educated, the type of voters who have helped decide recent presidential races. The New York Times spoke with nearly 40 to see where they’re leaning.`\
 https://nytimes.com/2024/03/06/us/politics/haley-out-supporters-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/podcasts/nikki-haley-super-tuesday-bitcoin.html
 **The Unhappy Voters Who Could Swing the Election**\
 `In 2020 as in 2016, a potentially decisive slice of the electorate dislikes both main candidates. That could make for a volatile race.`\
 https://nytimes.com/2024/03/06/podcasts/the-daily/swing-voters-election.html
-
-**Truce talks have been an exhausting tangle of emotions for Gazans.**\
-`“It’s a form of psychological torture,” said one man in Rafah. “It’s unbearable. We’re told one day that the war is ending and then the opposite the next day.”`\
-https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/truce-talks-have-been-an-exhausting-tangle-of-emotions-for-gazans
 
