@@ -1,3 +1,11 @@
+**New Data Details the Risk of Sea-Level Rise for U.S. Coastal Cities**\
+`A new study of sinking and rising land along American coasts offers a more specific understanding of potential flooding in 32 coastal cities.`\
+https://nytimes.com/2024/03/06/climate/sea-level-rise-east-coast-sinking-land-flooding.html
+
+**The War That Will Haunt Democrats Through the Campaign**\
+`Protesters could create echoes of the 1968 convention in Chicago.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/gaza-protesters-democrats-schiff
+
 **A commercial vessel has been hit in the Red Sea, a British naval organization says.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/a-commercial-vessel-has-been-hit-in-the-red-sea-a-british-naval-organization-says
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/06/nyregion/subway-national-guard-police.html
 **‘Bérénice’ Review: Crushed by Isabelle Huppert’s Star Power**\
 `Romeo Castellucci’s production of the classic play by Jean Racine is all about the lead performer — and that’s it.`\
 https://nytimes.com/2024/03/06/theater/berenice-isabelle-huppert-romeo-castellucci.html
-
-**Ukraine’s First Lady Declines Invitation to State of the Union Address**\
-`Olena Zelenska’s office cited a scheduling conflict. The Russian opposition figure Yulia Navalnaya also declined an invitation.`\
-https://nytimes.com/2024/03/06/world/europe/biden-state-of-the-union-olena-zelensky.html
-
-**With Haley’s Departure, the Rematch Between Biden and Trump Is Now Set**\
-`The contest that many Americans had long hoped to avoid — the 2024 sequel of Biden vs. Trump — is now an inescapable reality.`\
-https://nytimes.com/2024/03/06/us/politics/trump-biden-rematch-election.html
 
