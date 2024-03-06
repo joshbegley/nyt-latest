@@ -1,3 +1,15 @@
+**Off the Board Game, Onto the Digital Canvas**\
+`Are role-playing games enriching culture, or destroying it? In two shows, the artist Simon Denny spoofs the grandiose fantasy worlds of tech entrepreneurs designing virtual reality.`\
+https://nytimes.com/2024/03/06/arts/design/simon-denny-art-computers-gaming-review-musk-grimes.html
+
+**Federal Reserve Expects to Lower Interest Rates Later This Year**\
+`Jerome H. Powell, the chair of the Federal Reserve, said that cuts in borrowing costs could be possible in 2024 if the data continued to signal a control on inflation.`\
+https://nytimes.com/video/us/politics/100000009346653/fed-interest-rates.html
+
+**The Diplomatic Skills of Award Show Writers**\
+`Jason Zinoman, a New York Times critic who writes the On Comedy column, explains the struggles of the underappreciated award show writing staff and how its job often goes beyond writing.`\
+https://nytimes.com/video/arts/television/100000009335368/diplomatic-skills-award-show-writers.html
+
 **Russians Flock to Navalny’s Grave as They Grapple With His Legacy**\
 `The loss of the optimism in the face of oppression espoused by Aleksei Navalny, Russia’s most prominent opposition leader, has hit many Russians hard. Now, as one mourner said, “I don’t have any vision of the future.”`\
 https://nytimes.com/2024/03/06/world/europe/navalny-grave-russia.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/06/magazine/breadwinner-assets-divorce-ethics.html
 **Russia Strikes Odesa During Visit by Zelensky and Greek Leader**\
 `Neither was hurt and it was unclear whether the Russian Army was targeting them.`\
 https://nytimes.com/2024/03/06/world/europe/zelensky-mitsotakis-odesa-russian-attack.html
-
-**Michael Chabon Wants to Help You Win Connections**\
-`The author of “Moonglow” and “The Yiddish Policeman’s Union” has a method for solving, and he’s sharing it with other puzzle lovers on Threads.`\
-https://nytimes.com/2024/03/06/crosswords/michael-chabon-win-connections.html
-
-**‘As Living as Opera Can Get’: John Cage’s Anarchic Anti-Canon**\
-`In his “Europeras,” Cage dismantled centuries of tradition and expectations, for musicians and audiences alike. A rare revival is coming to Detroit.`\
-https://nytimes.com/2024/03/06/arts/music/john-cage-europeras-detroit-yuval-sharon.html
-
-**New Data Details the Risk of Sea-Level Rise for U.S. Coastal Cities**\
-`A new study of sinking and rising land along American coasts offers a more specific understanding of potential flooding in 32 coastal cities.`\
-https://nytimes.com/2024/03/06/climate/sea-level-rise-east-coast-sinking-land-flooding.html
 
