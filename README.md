@@ -1,3 +1,11 @@
+**California’s Primary Results: What We Know So Far**\
+`Representative Adam Schiff and the former M.L.B. player Steve Garvey will face off in November for a U.S. Senate seat.`\
+https://nytimes.com/2024/03/06/us/california-super-tuesday-election.html
+
+**Why Won’t Our Daughter Introduce Us to Her New Boyfriend?**\
+`Parents who enjoy an otherwise close relationship with their 33-year-old daughter feel hurt not to have been introduced to a man she met three months ago and with whom she now lives.`\
+https://nytimes.com/2024/03/06/style/children-partners-introductions.html
+
 **Fed Chair Powell Still Expects to Cut Rates This Year, but Not Yet**\
 `Jerome H. Powell, chair of the Federal Reserve, said policymakers still expect to lower rates in 2024 — but the timing hinges on data.`\
 https://nytimes.com/2024/03/06/business/fed-powell-interest-rates.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/06/world/middleeast/israel-aqsa-mosque-ramadan.html
 **The Election is Set**\
 `The primaries are effectively over —  and the general election begins.`\
 https://nytimes.com/2024/03/06/briefing/super-tuesday-2024-election-haley-trump-biden.html
-
-**Haley Expected to Drop Out, and Bitcoin Completes Comeback**\
-`Plus, bad blood in Southeast Asia over Taylor Swift’s tour.`\
-https://nytimes.com/2024/03/06/podcasts/nikki-haley-super-tuesday-bitcoin.html
-
-**The Unhappy Voters Who Could Swing the Election**\
-`In 2020 as in 2016, a potentially decisive slice of the electorate dislikes both main candidates. That could make for a volatile race.`\
-https://nytimes.com/2024/03/06/podcasts/the-daily/swing-voters-election.html
 
