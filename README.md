@@ -1,3 +1,11 @@
+**‘Bérénice’ Review: Crushed by Isabelle Huppert’s Star Power**\
+`Romeo Castellucci’s production of the classic play by Jean Racine is all about the lead performer — and that’s it.`\
+https://nytimes.com/2024/03/06/theater/berenice-isabelle-huppert-romeo-castellucci.html
+
+**Ukraine’s First Lady Declines Invitation to State of the Union Address**\
+`Olena Zelenska’s office cited a scheduling conflict. The Russian opposition figure Yulia Navalnaya also declined an invitation.`\
+https://nytimes.com/2024/03/06/world/europe/biden-state-of-the-union-olena-zelensky.html
+
 **With Haley’s Departure, the Rematch Between Biden and Trump Is Now Set**\
 `The contest that many Americans had long hoped to avoid — the 2024 sequel of Biden vs. Trump — is now an inescapable reality.`\
 https://nytimes.com/2024/03/06/us/politics/trump-biden-rematch-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/06/us/california-super-tuesday-election.html
 **Why Won’t Our Daughter Introduce Us to Her New Boyfriend?**\
 `Parents who enjoy an otherwise close relationship with their 33-year-old daughter feel hurt not to have been introduced to a man she met three months ago and with whom she now lives.`\
 https://nytimes.com/2024/03/06/style/children-partners-introductions.html
-
-**Fed Chair Powell Still Expects to Cut Rates This Year, but Not Yet**\
-`Jerome H. Powell, chair of the Federal Reserve, said policymakers still expect to lower rates in 2024 — but the timing hinges on data.`\
-https://nytimes.com/2024/03/06/business/fed-powell-interest-rates.html
-
-**With Haley Expected to Drop Out, What Will Her Voters Do in November?**\
-`Nikki Haley’s supporters tend to be moderate and college educated, the type of voters who have helped decide recent presidential races. The New York Times spoke with nearly 40 to see where they’re leaning.`\
-https://nytimes.com/2024/03/06/us/politics/haley-out-supporters-trump.html
 
