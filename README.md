@@ -1,3 +1,11 @@
+**Thursday Briefing: Haley Drops Out**\
+`Also, Israel-Hamas talks stall before Ramadan.`\
+https://nytimes.com/2024/03/06/world/asia/haley-trump-hostage-gaza-asia.html
+
+**Republicans’ Dilemma on Mayorkas Impeachment: When to Take the Loss**\
+`House Republicans rushed to impeach the homeland security secretary but are taking their time delivering the charges to the Senate, where a trial is likely to be over before it begins — or yield a quick acquittal.`\
+https://nytimes.com/2024/03/06/us/politics/mayorkas-impeachment-republicans.html
+
 **Israel-Hamas Talks Over Hostage Releases and a Cease-Fire Stall**\
 `Officials say Hamas has continued to press Israel for a commitment to a permanent cease-fire after a multistage release of all hostages, but Israel has refused.`\
 https://nytimes.com/2024/03/06/us/politics/israel-hamas-hostages.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/06/technology/john-walker-dead.html
 **With Haley Out, Will States Still Hold Primaries?**\
 `It’s likely too late for them to do anything else.`\
 https://nytimes.com/2024/03/06/us/politics/state-primaries-haley-out-trump.html
-
-**The Anti-Abortion Movement Traps Republicans on I.V.F.**\
-`It turns out it was easier for Republicans to indulge the movement’s maximalism when their voters didn’t have to live with the repercussions.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/ivf-access-alabama
-
-**Please, President Biden: Don’t Blame Corporate Greed for Inflation**\
-`Instead of casting blame, Biden should tout what he’s done to ease Americans’ financial pressures.`\
-https://nytimes.com/2024/03/06/opinion/biden-inflation-greed-profits.html
 
