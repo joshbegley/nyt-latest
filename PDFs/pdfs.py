@@ -2,9 +2,9 @@ import requests
 from datetime import datetime
 
 today = datetime.now().strftime("%Y/%m/%d")
-url = f"https://static01.nyt.com/images/{today}/nytfrontpage/scan.pdf"
+url = "https://static01.nyt.com/images/{0}/nytfrontpage/scan.pdf".format(today)
 
-save_path = f"{datetime.now().strftime('%Y-%m-%d')}.pdf"
+save_path = "{0}.pdf".format(datetime.now().strftime('%Y-%m-%d'))
 
 response = requests.get(url)
 if response.status_code == 200:
