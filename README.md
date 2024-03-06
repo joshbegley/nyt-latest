@@ -26,7 +26,7 @@ https://nytimes.com/2024/03/06/business/china-national-peoples-congress.html
 `As he dominated the Super Tuesday battlefield, former President Donald Trump warned of dark days ahead if President Biden were to win a second term. “We’re a third-world country,” he said repeatedly.`\
 https://nytimes.com/2024/03/05/us/politics/trump-speech-super-tuesday.html
 
-**‘Uncommitted’ Voters Show Strength Against Biden in Minnesota**\
+**‘Uncommitted’ Draws Strong Support Against Biden in Minnesota**\
 `The effort to pressure the president over his support for Israel garnered a sizable share of the vote, despite being more hastily organized. Voters in other states also voiced unease.`\
 https://nytimes.com/2024/03/05/us/politics/biden-uncommitted-protest-vote-minnesota.html
 
