@@ -1,3 +1,7 @@
+**Katie Porter, a Rising Star in Congress, Finds Herself Without Another Seat**\
+`The California representative harnessed social media and her committee perch to build a following. But it wasn’t enough to survive a brutal Senate contest, and she has nowhere to go this election season.`\
+https://nytimes.com/2024/03/06/us/katie-porter-california-senate-primary.html
+
 **I.M.F. Agrees to Much Larger Rescue Package for Egypt**\
 `The International Monetary Fund will provide $8 billion to Egypt, which is going through its worst economic crisis in decades.`\
 https://nytimes.com/2024/03/06/world/middleeast/egypt-imf-package-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/climate/epa-soot-lawsuit.html
 **Before N.Y.C. Snow Day Debacle, IBM Had Warned of Tech Limitations**\
 `Technical failures blocked thousands of students who tried to log on to school during a snowstorm. At a City Council hearing on Wednesday, an IBM official said it wasn’t the company’s fault.`\
 https://nytimes.com/2024/03/06/nyregion/remote-class-technical-problems-nyc-schools-ibm.html
-
-**Supper Clubs in New York Are a Vanishing Breed. Café Carlyle Is Keeping the Tradition Alive**\
-`Any night at the Upper East Side’s nearly 70-year-old cabaret still feels like a big night out.`\
-https://nytimes.com/2024/03/06/t-magazine/cafe-carlyle-cabaret-supper-club-new-york.html
 
