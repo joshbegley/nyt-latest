@@ -1,3 +1,7 @@
+**With Haley’s Departure, the Rematch Between Biden and Trump Is Now Set**\
+`The contest that many Americans had long hoped to avoid — the 2024 sequel of Biden vs. Trump — is now an inescapable reality.`\
+https://nytimes.com/2024/03/06/us/politics/trump-biden-rematch-election.html
+
 **Scientists Create Elephant Stem Cells in the Lab**\
 `The results could shed light on why the animals rarely get cancer. But the researchers’ ultimate goal of bringing back woolly mammoths is still aspirational.`\
 https://nytimes.com/2024/03/06/science/elephant-stem-cells-woolly-mammoth.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/business/fed-powell-interest-rates.html
 **With Haley Expected to Drop Out, What Will Her Voters Do in November?**\
 `Nikki Haley’s supporters tend to be moderate and college educated, the type of voters who have helped decide recent presidential races. The New York Times spoke with nearly 40 to see where they’re leaning.`\
 https://nytimes.com/2024/03/06/us/politics/haley-out-supporters-trump.html
-
-**Inflation Fears Stalk Presidential Politics and the Markets**\
-`Lawmakers on Capitol Hill are set to grill Jay Powell, the Fed chair, about interest rates and the economy, topics that are top of mind for voters and investors alike.`\
-https://nytimes.com/2024/03/06/business/dealbook/inflation-biden-trump-elections-markets.html
 
