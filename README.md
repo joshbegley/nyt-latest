@@ -1,3 +1,7 @@
+**Lucien Pellat-Finet, Fashion’s ‘King of Cashmere,’ Dies at 78**\
+`The aesthetic of the sweaters he designed, which included provocative symbols like marijuana leaves and skulls, was casual. Their price tags were not.`\
+https://nytimes.com/2024/03/06/fashion/lucien-pellat-finet-dead.html
+
 **Katie Porter, a Rising Star in Congress, Finds Herself Without Another Seat**\
 `The California representative harnessed social media and her committee perch to build a following. But it wasn’t enough to survive a brutal Senate contest, and she has nowhere to go this election season.`\
 https://nytimes.com/2024/03/06/us/katie-porter-california-senate-primary.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/briefing/haley-drops-out-national-guard-new-york-
 **Nearly Half the States Sue E.P.A. Over New Limits on Deadly Pollution**\
 `Republican attorneys general from 24 states said the crackdown on fine industrial particles would raise costs. The E.P.A. said it would save lives.`\
 https://nytimes.com/2024/03/06/climate/epa-soot-lawsuit.html
-
-**Before N.Y.C. Snow Day Debacle, IBM Had Warned of Tech Limitations**\
-`Technical failures blocked thousands of students who tried to log on to school during a snowstorm. At a City Council hearing on Wednesday, an IBM official said it wasn’t the company’s fault.`\
-https://nytimes.com/2024/03/06/nyregion/remote-class-technical-problems-nyc-schools-ibm.html
 
