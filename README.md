@@ -1,3 +1,7 @@
+**N.T.S.B. Says Boeing Has Not Provided Key Information in 737 Max Inquiry**\
+`The National Transportation Safety Board is trying to get the plane maker to turn over documentation and provide the names of employees, the safety board’s chairwoman told a Senate committee.`\
+https://nytimes.com/2024/03/06/us/politics/ntsb-boeing-737-max.html
+
 **Off the Board Game, Onto the Digital Canvas**\
 `Are role-playing games enriching culture, or destroying it? In two shows, the artist Simon Denny spoofs the grandiose fantasy worlds of tech entrepreneurs designing virtual reality.`\
 https://nytimes.com/2024/03/06/arts/design/simon-denny-art-computers-gaming-review-musk-grimes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/us/politics/haley-out-speech-transcript.html
 **My Spouse Is the Breadwinner. How Should We Divvy Assets in the Divorce?**\
 `The magazine’s Ethicist columnist on how to equitably divide marital assets after a split.`\
 https://nytimes.com/2024/03/06/magazine/breadwinner-assets-divorce-ethics.html
-
-**Russia Strikes Odesa During Visit by Zelensky and Greek Leader**\
-`Neither was hurt and it was unclear whether the Russian Army was targeting them.`\
-https://nytimes.com/2024/03/06/world/europe/zelensky-mitsotakis-odesa-russian-attack.html
 
