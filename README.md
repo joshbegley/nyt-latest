@@ -1,3 +1,7 @@
+**Displaced Gazans Are Hoping for a Cease-Fire**\
+`Palestinians living in tents in Rafah, Gaza, are hoping for a cease-fire and an end to the war so they can return to their homes.`\
+https://nytimes.com/video/world/middleeast/100000009343851/gaza-ceasefire-hopes.html
+
 **There Were Lynchings in the North, Too**\
 `An N.Y.U. project examines the history of lynchings after the Civil War, including one in New York State.`\
 https://nytimes.com/2024/03/06/nyregion/lynchings-north-nyu-project.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/upshot/biden-trump-super-tuesday.html
 **Texas Fires Bring Loss to a Small Town That Already Knows It Well**\
 `Fritch has endured tornadoes and wildfires over the years, and a fire now burning through the Panhandle struck dozens of homes. On Tuesday, the fire chief died fighting a house fire.`\
 https://nytimes.com/2024/03/06/us/texas-panhandle-fires.html
-
-**Where Electric Vehicles Are (and Aren’t) Taking Off Across the U.S.**\
-`New data show where E.V.s are booming and reveal some surprising places where they’re getting a foothold.`\
-https://nytimes.com/interactive/2024/03/06/climate/hybrid-electric-vehicle-popular.html
 
