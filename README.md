@@ -1,3 +1,7 @@
+**Schiff advances in the California Senate race for Feinstein’s seat.**\
+`By Shawn Hubler`\
+https://nytimes.com/2024/03/05/us/politics/california-senate-schiff-garvey.html
+
 **Corrections: March 6, 2024**\
 `Corrections that appeared in print on Wednesday, March 6, 2024.`\
 https://nytimes.com/2024/03/05/pageoneplus/corrections-march-6-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/crosswords/daily-puzzle-2024-03-06.html
 **North Carolina Republicans Pick Their Man, and He’s a Doozy**\
 `But a Democrat might beat him in November by focusing on voter concerns.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/robinson-governor-north-carolina
-
-**International Court Accuses 2 Russian Officers of War Crimes in Ukraine**\
-`Arrest warrants were issued by the International Criminal Court for two military officials, a general and an admiral, both accused of targeting civilians and destroying crucial energy infrastructure.`\
-https://nytimes.com/2024/03/05/world/europe/international-court-russia-ukraine.html
 
