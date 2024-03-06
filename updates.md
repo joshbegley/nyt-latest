@@ -1,3 +1,7 @@
+**Cruise Ship Worker Accused of Hiding Cameras in Bathrooms to Spy on Guests**\
+`The former employee of Royal Caribbean told investigators that he had been secretly recording people since he started working there in December 2023. He faces federal and state charges.`\
+https://nytimes.com/2024/03/06/us/royal-caribbean-cruise-bathroom-charges.html
+
 **Gray Whale, Long Absent From the Atlantic, Is Spotted Off Massachusetts**\
 `Gray whales are regularly found in the North Pacific, but sightings in the Atlantic, from which they had vanished by the 18th century, are extremely rare.`\
 https://nytimes.com/2024/03/06/science/gray-whale-nantucket.html
