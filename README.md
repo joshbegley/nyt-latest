@@ -1,3 +1,15 @@
+**I.M.F. Agrees to Much Larger Rescue Package for Egypt**\
+`The International Monetary Fund will provide $8 billion to Egypt, which is going through its worst economic crisis in decades.`\
+https://nytimes.com/2024/03/06/world/middleeast/egypt-imf-bailout-8billion.html
+
+**Was Trump’s Nomination Always Inevitable?**\
+`As recently as a year ago, less than half of Republican voters named Trump as their preferred candidate.`\
+https://nytimes.com/2024/03/06/us/politics/trump-nomination-republican-candidate.html
+
+**‘Rust’ Armorer Convicted of Manslaughter in Alec Baldwin Shooting**\
+`The armorer, Hannah Gutierrez-Reed, had placed a live round in a gun the actor was rehearsing with when it fired, killing the film’s cinematographer, Halyna Hutchins.`\
+https://nytimes.com/2024/03/06/arts/rust-armorer-convicted-alec-baldwin-shooting.html
+
 **Cruise Ship Worker Accused of Hiding Cameras in Bathrooms to Spy on Guests**\
 `The former employee of Royal Caribbean told investigators that he had been secretly recording people since he started working there in December 2023. He faces federal and state charges.`\
 https://nytimes.com/2024/03/06/us/royal-caribbean-cruise-bathroom-charges.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/06/nyregion/remote-class-technical-problems-nyc-scho
 **Supper Clubs in New York Are a Vanishing Breed. Café Carlyle Is Keeping the Tradition Alive**\
 `Any night at the Upper East Side’s nearly 70-year-old cabaret still feels like a big night out.`\
 https://nytimes.com/2024/03/06/t-magazine/cafe-carlyle-cabaret-supper-club-new-york.html
-
-**Expecting Protests at the Oscars, Police Plan to Beef Up Security**\
-`The Los Angeles police said it would increase its presence at the Academy Awards, given the potential for protests related to the Israel-Hamas war.`\
-https://nytimes.com/2024/03/06/arts/oscars-security-protests-police.html
-
-**‘Martin Luther King on Steroids’? Meet a Perfect MAGA Mirror.**\
-`Trump’s pick for North Carolina governor is, like Trump himself, all about ire.`\
-https://nytimes.com/2024/03/06/opinion/trump-mark-robinson-north-carolina.html
-
-**The Pioneer in College Sports Unionization Is … Dartmouth?**\
-`It won’t be the last, however.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/dartmouth-college-unionization
 
