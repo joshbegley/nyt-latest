@@ -22,7 +22,7 @@ https://nytimes.com/2024/03/06/us/politics/haley-out-speech-transcript.html
 `The magazine’s Ethicist columnist on how to equitably divide marital assets after a split.`\
 https://nytimes.com/2024/03/06/magazine/breadwinner-assets-divorce-ethics.html
 
-**Russian Strike on Odesa Comes as Zelensky and Greek Leader Were There**\
+**Russia Strikes Odesa During Visit by Zelensky and Greek Leader**\
 `Neither was hurt and it was unclear whether the Russian Army was targeting them.`\
 https://nytimes.com/2024/03/06/world/europe/zelensky-mitsotakis-odesa-russian-attack.html
 
