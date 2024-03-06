@@ -6,7 +6,7 @@ https://nytimes.com/2024/03/05/us/politics/nikki-haley-wins-vermont.html
 `In its first public comment since Mr. Musk sued the artificial intelligence lab, OpenAI claims he tried to commercialize its operations years ago.`\
 https://nytimes.com/2024/03/05/technology/openai-elon-musk-tesla.html
 
-**Challenger Beats Houston’s District Attorney in Democratic Primary**\
+**Houston’s District Attorney Concedes in Democratic Primary**\
 `The incumbent, Kim Ogg, had made herself a lightning rod within her party by tacking to the center and clashing with fellow Democrats.`\
 https://nytimes.com/2024/03/05/us/politics/houston-district-attorney-kim-ogg.html
 
