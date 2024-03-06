@@ -1,3 +1,7 @@
+**Who Won, Who Lost and What’s Still Undecided From Super Tuesday**\
+`The presidential candidates weren’t the only ones on the ballot.`\
+https://nytimes.com/2024/03/06/us/politics/super-tuesday-won-lost.html
+
 **5 Takeaways From Super Tuesday**\
 `Donald Trump racked up delegates, but also revealed weaknesses. Nikki Haley reckoned with cold, hard math. And restive Democrats sent a message to President Biden.`\
 https://nytimes.com/2024/03/06/us/politics/super-tuesday-trump-biden-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/us/politics/biden-uncommitted-protest-vote-minnes
 **Colin Allred Wins Democratic Contest to Take On Senator Ted Cruz in Texas**\
 `The Dallas-area congressman presented himself as an across-the-aisle politician who could appeal to a wide range of voters.`\
 https://nytimes.com/2024/03/05/us/politics/colin-allred-democrat-texas-senate.html
-
-**Schiff and Garvey Advance in the California Senate Race for Feinstein’s Seat**\
-`Representative Adam Schiff, a prominent antagonist of former President Donald J. Trump, will face Steve Garvey, a Republican former baseball star, in a November runoff.`\
-https://nytimes.com/2024/03/05/us/politics/california-senate-schiff-garvey.html
 
