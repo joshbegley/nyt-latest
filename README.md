@@ -1,3 +1,11 @@
+**A commercial vessel has been hit in the Red Sea, a British naval organization says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/a-commercial-vessel-has-been-hit-in-the-red-sea-a-british-naval-organization-says
+
+**‘This Is the Best Dinner I’ve Ever Made’**\
+`“This meal was simple, healthy, and so incredibly tasty. I’d eat this every night of my life,” a reader says of my sheet-pan chicken with garlic yogurt.`\
+https://nytimes.com/2024/03/06/dining/this-is-the-best-dinner-ive-ever-made.html
+
 **Charges Dismissed in ‘Hotel California’ Theft Conspiracy Case**\
 `Don Henley, a co-founder of the Eagles, has been trying to get back draft lyrics from some of his group’s biggest hits.`\
 https://nytimes.com/2024/03/06/nyregion/don-henley-eagles-dismissed.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/06/world/europe/biden-state-of-the-union-olena-zelen
 **With Haley’s Departure, the Rematch Between Biden and Trump Is Now Set**\
 `The contest that many Americans had long hoped to avoid — the 2024 sequel of Biden vs. Trump — is now an inescapable reality.`\
 https://nytimes.com/2024/03/06/us/politics/trump-biden-rematch-election.html
-
-**Scientists Create Elephant Stem Cells in the Lab**\
-`The results could shed light on why the animals rarely get cancer. But the researchers’ ultimate goal of bringing back woolly mammoths is still aspirational.`\
-https://nytimes.com/2024/03/06/science/elephant-stem-cells-woolly-mammoth.html
-
-**Denzel Washington and Jake Gyllenhaal to Lead Broadway ‘Othello’**\
-`Kenny Leon will direct a starry revival of Shakespeare’s tragedy in the spring of 2025.`\
-https://nytimes.com/2024/03/06/theater/denzel-washington-jake-gyllenhaal-othello-broadway.html
 
