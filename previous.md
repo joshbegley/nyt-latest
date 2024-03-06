@@ -1,3 +1,7 @@
+**Gray Whale, Long Absent From the Atlantic, Is Spotted Off Massachusetts**\
+`Gray whales are regularly found in the North Pacific, but sightings in the Atlantic, from which they had vanished by the 18th century, are extremely rare.`\
+https://nytimes.com/2024/03/06/science/gray-whale-nantucket.html
+
 **The National Guard Might Help Subway Riders Feel Safer**\
 `But Governor Hochul needs to ensure that the state’s role is to deter crime, not harass riders.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/nyc-subway-crime-national-guard
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/05/opinion/thepoint/dartmouth-college-unionizat
 **Democratic Congressional Candidate in Michigan to Air First I.V.F. Ad of Election Cycle**\
 `The spot provides a glimpse of how Democrats plan to make the issue of access to fertility treatments central to campaigns across the country.`\
 https://nytimes.com/2024/03/06/us/politics/ivf-ad-michigan-congress-democrats.html
-
-**How Trump’s Crushing Primary Triumph Masked Quiet Weaknesses**\
-`Even though he easily defeated Nikki Haley, the primary results suggested that he still has long-term problems with suburban voters, moderates and independents.`\
-https://nytimes.com/2024/03/06/us/politics/donald-trump-primary-wins.html
 
