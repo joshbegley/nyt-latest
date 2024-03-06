@@ -1,3 +1,7 @@
+**Protesters Interrupt Adam Schiff During Victory Speech**\
+`Some people in the crowd chanted “Cease-fire now!” after Representative Adam Schiff secured a spot on November’s ballot for a Senate seat in California.`\
+https://nytimes.com/video/us/elections/100000009346222/california-schiff-protest-senate.html
+
 **Checking Your Watch**\
 `Are you always in a rush?`\
 https://nytimes.com/2024/03/06/learning/checking-your-watch.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/learning/word-of-the-day-eventuality.html
 **Who Won, Who Lost and What’s Still Undecided From Super Tuesday**\
 `The presidential candidates weren’t the only ones on the ballot.`\
 https://nytimes.com/2024/03/06/us/politics/super-tuesday-won-lost.html
-
-**5 Takeaways From Super Tuesday**\
-`Donald Trump racked up delegates, but also revealed weaknesses. Nikki Haley reckoned with cold, hard math. And restive Democrats sent a message to President Biden.`\
-https://nytimes.com/2024/03/06/us/politics/super-tuesday-trump-biden-takeaways.html
 
