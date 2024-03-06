@@ -1,40 +1,40 @@
-**Israeli war cabinet member to meet with British foreign secretary as allies push for a cease-fire.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/israeli-war-cabinet-member-to-meet-with-british-foreign-secretary-as-allies-push-for-a-cease-fire
+**After Super Tuesday, Trump Is Stronger Than He’s Ever Been**\
+`A rule of the Trump era: The lower his profile, the higher his polls.`\
+https://nytimes.com/2024/03/06/opinion/trump-super-tuesday.html
 
-**Late Night Finds Super Tuesday Super Predictable**\
-`“Spoiler: It’s Biden/Trump,” Stephen Colbert said. “It’s always been Biden/Trump. It will always be Biden/Trump.”`\
-https://nytimes.com/2024/03/06/arts/television/late-night-super-tuesday.html
+**The Answer to America’s Addiction Crisis Could Come Out of Tulsa**\
+`Nicholas Kristof on the most effective recovery program he’s ever seen.`\
+https://nytimes.com/2024/03/06/opinion/addiction-tusla-recovery.html
 
-**Protesters Interrupt Adam Schiff During Victory Speech**\
-`Some people in the crowd chanted “Cease-fire now!” after Representative Adam Schiff secured a spot on November’s ballot for a Senate seat in California.`\
-https://nytimes.com/video/us/elections/100000009346222/california-schiff-protest-senate.html
+**A Best-Actor Nominee Who Could Make Make Oscar History**\
+`Our critic on Colman Domingo in “Rustin.”`\
+https://nytimes.com/2024/03/06/podcasts/culture-desk-oscars-rustin.html
 
-**Checking Your Watch**\
-`Are you always in a rush?`\
-https://nytimes.com/2024/03/06/learning/checking-your-watch.html
+**What Is Teenage Bullying Like Today?**\
+`An Opinion columnist writes that meanness among teenagers hasn’t gone away, it’s just gotten more stealthy. Do you agree?`\
+https://nytimes.com/2024/03/06/learning/what-is-teenage-bullying-like-today.html
 
-**From China to New York, by Way of the Southern Border**\
-`Thousands of Chinese migrants have made their way to Queens, Brooklyn and Chinatown after first passing through Central and South America.`\
-https://nytimes.com/2024/03/06/nyregion/chinese-immigrants-new-york-city.html
+**Novelist Celeste Ng on the Big Power of Little Things**\
+`The acclaimed author delves into a Modern Love essay about parenting, poetry and persistence.`\
+https://nytimes.com/2024/03/06/podcasts/celeste-ng-modern-love-20th-anniversary.html
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/06/crosswords/connections-companion.html
+**Biden Preps for the State of the Union Speech and Rowdy Republicans**\
+`The speech, which will be edited up until the president delivers it, will be watched by one of his biggest audiences before the November election.`\
+https://nytimes.com/2024/03/06/us/politics/biden-state-of-the-union.html
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/06/crosswords/wordle-review.html
+**$950,000 Homes in Maine, Florida and Washington**\
+`A cottage in Southwest Harbor, a two-bedroom condominium in Miami Beach and a four-bedroom bungalow in Seattle.`\
+https://nytimes.com/2024/03/06/realestate/950000-dollar-homes-maine-florida-washington.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/03/06/crosswords/spelling-bee-forum.html
+**If They Can’t Make a Federal Case Out of Trump …**\
+`The Supreme Court may well decide another presidential election.`\
+https://nytimes.com/2024/03/06/opinion/trump-trials-supreme-court.html
 
-**06mideast-crisis**\
-`Israel’s Military Turns Back Convoy Trying to Get Food Into Gaza, U.N. Agency Says`\
-https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news
+**When Caitlin Clark Comes to Town**\
+`Measures of her star power include huge jumps in attendance at road games, and the logistical planning required.`\
+https://nytimes.com/2024/03/06/upshot/caitlin-clark-popularity-attendance.html
 
-**The W.F.P. says it was turned away as desperation intensifies.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/aid-group-says-it-was-turned-away-as-desperation-intensifies
+**We’re Not Asking the Most Important Questions About Age**\
+`A presidential contest between two older candidates is an opportunity for us to start recognizing the crucial needs of our aging population.`\
+https://nytimes.com/2024/03/06/opinion/biden-aging-america-population.html
 
