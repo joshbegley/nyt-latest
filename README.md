@@ -1,3 +1,7 @@
+**Russian Strike on Odesa Comes as Zelensky and Greek Leader Were There**\
+`Neither was hurt and it was unclear whether the Russian Army was targeting them.`\
+https://nytimes.com/2024/03/06/world/europe/zelensky-mitsotakis-odesa-russian-attack.html
+
 **Michael Chabon Wants to Help You Win Connections**\
 `The author of “Moonglow” and “The Yiddish Policeman’s Union” has a method for solving, and he’s sharing it with other puzzle lovers on Threads.`\
 https://nytimes.com/2024/03/06/crosswords/michael-chabon-win-connections.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009346609/nikki-haley-presidential-c
 **MH370 Disappeared a Decade Ago. Here’s What We Know Today.**\
 `The disappearance of the Malaysia Airlines flight has remained one the greatest aviation mysteries of all time. A new search may begin soon.`\
 https://nytimes.com/2024/03/06/world/asia/malaysia-airlines-missing-flight-mh370.html
-
-**There Was Always Crying in Sports. The Kelces Made It Cool.**\
-`A tear-filled retirement announcement was just the latest instance of Jason and Travis Kelce, two of the toughest guys around, putting their emotions on full display.`\
-https://nytimes.com/2024/03/06/style/jason-kelce-crying.html
 
