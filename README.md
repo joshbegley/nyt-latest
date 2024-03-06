@@ -1,3 +1,7 @@
+**Two Democrats emerge from a crowded field in a newly competitive House district in Alabama.**\
+`Shomari Figures, a former Justice Department official, and State Representative Anthony Daniels will head to a runoff election in the Democratic primary in the Second Congressional District.`\
+https://nytimes.com/2024/03/06/us/politics/alabama-second-congressional-district-runoff.html
+
 **In Showdown Over G.O.P. Control in Texas, the Race for House Speaker’s Seat Heads to a Runoff**\
 `Dade Phelan’s failure to secure his seat on Tuesday indicated that fights over the future direction of the Republican Party in Texas would continue roiling the state.`\
 https://nytimes.com/2024/03/06/us/politics/texas-house-races.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/pageoneplus/corrections-march-6-2024.html
 **Quotation of the Day: She Boxes. She Conducts. She Defies Stereotypes.**\
 `Quotation of the Day for Wednesday, March 6, 2024.`\
 https://nytimes.com/2024/03/05/pageoneplus/quotation-of-the-day-she-boxes-she-conducts-she-defies-stereotypes.html
-
-**Little-Known Democrat Beats Biden in American Samoa**\
-`Jason Palmer, an entrepreneur from Maryland, was the only candidate to campaign in the island territory. He collected four of the six delegates awarded in the caucus.`\
-https://nytimes.com/2024/03/05/us/politics/biden-american-samoa-jason-palmer.html
 
