@@ -1,3 +1,7 @@
+**Dean Phillips Halts Long-Shot Presidential Bid**\
+`Mr. Phillips, President Biden’s most significant Democratic rival, had argued that voters wanted a younger alternative to the president. But his candidacy stalled soon after he entered the race.`\
+https://nytimes.com/2024/03/06/us/politics/dean-phillips-drops-out.html
+
 **Who are the Houthis?**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/who-are-the-houthis
@@ -7,7 +11,7 @@ https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/who-are-the
 https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/the-us-places-sanctions-on-shipping-companies-for-helping-iran-to-finance-the-houthis
 
 **And the Oscars Carpet Color Goes … Back to Red**\
-`The Academy of Motion Picture Arts and Sciences unveiled a bright red rug on Wednesday at the Dolby Theater.`\
+`Following the surprise of last year’s champagne-hued rug, the Academy of Motion Picture Arts and Sciences unveiled a bright red one on Wednesday at the Dolby Theater.`\
 https://nytimes.com/2024/03/06/style/oscars-red-carpet.html
 
 **John Kerry: ‘I Feel Deeply Frustrated’**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/technology/apple-epic-games-feud.html
 **girl in red: The Popcast (Deluxe) Interview**\
 `An interview with the Norwegian singer girl in red (Marie Ulven) about her second album, “I’m Doing It Again Baby!,” opening for Taylor Swift and more.`\
 https://nytimes.com/2024/03/06/arts/music/girl-in-red-interview-popcast-deluxe.html
-
-**Mitch McConnell Endorses Trump, Whom He Once Denounced**\
-`The Kentucky Republican, who plans to step down as Senate minority leader at the end of the year, had blamed the former president’s lies about the 2020 election for the Jan. 6 riot.`\
-https://nytimes.com/2024/03/06/us/politics/mcconnell-endorses-trump.html
 
