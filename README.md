@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news
 
 **Aid group says it was turned away as desperation intensifies.**\
 `By Anushka Patil`\
-https://nytimes.com/live/2024/03/05/world/israel-hamas-war-gaza-news/aid-group-says-it-was-turned-away-as-desperation-intensifies
+https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/aid-group-says-it-was-turned-away-as-desperation-intensifies
 
 **Word of the Day: eventuality**\
 `This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
