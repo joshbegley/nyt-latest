@@ -2,8 +2,8 @@
 `The Dallas-area congressman presented himself as an across-the-aisle politician who could appeal to a wide range of voters.`\
 https://nytimes.com/2024/03/05/us/politics/colin-allred-democrat-texas-senate.html
 
-**Schiff advances in the California Senate race for Feinstein’s seat.**\
-`By Shawn Hubler`\
+**Schiff Advances in the California Senate Race for Feinstein’s Seat**\
+`Republican Steve Garvey, a former baseball star, and Representative Katie Porter, a Democrat from Orange County, were battling for the second spot in the November runoff.`\
 https://nytimes.com/2024/03/05/us/politics/california-senate-schiff-garvey.html
 
 **Corrections: March 6, 2024**\
