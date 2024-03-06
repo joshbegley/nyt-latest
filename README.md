@@ -1,3 +1,7 @@
+**Flood Watch Issued for Wednesday in New York and Southern New England**\
+`As a storm neared the coastal Northeast, officials predicted heavy rain and said travel delays were possible during the evening commute.`\
+https://nytimes.com/2024/03/06/nyregion/nyc-forecast-rain-flood.html
+
 **Israel Rejects Far-Right Plan for New Limits on Access to Important Mosque**\
 `As the Muslim holy month of Ramadan approaches, the move may reduce tensions at the Aqsa Mosque compound, which has long been a flashpoint for unrest.`\
 https://nytimes.com/2024/03/06/world/middleeast/israel-aqsa-mosque-ramadan.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009343851/gaza-ceasefire-hopes.
 **There Were Lynchings in the North, Too**\
 `An N.Y.U. project examines the history of lynchings after the Civil War, including one in New York State.`\
 https://nytimes.com/2024/03/06/nyregion/lynchings-north-nyu-project.html
-
-**With Sweeping New Laws, Louisiana Embraces Tough-on-Crime Approach**\
-`Gov. Jeff Landry is enacting stringent new measures that he says are crucial to address crime; critics say the laws resemble failed policies of the past.`\
-https://nytimes.com/2024/03/06/us/louisiana-laws-crime.html
 
