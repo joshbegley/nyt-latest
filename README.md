@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Marilynne Robinson**\
+`The March 5, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/03/05/podcasts/transcript-ezra-klein-interviews-marilynne-robinson.html
+
 **Something to Bat Around**\
 `Brad Wiegmann figures he can trick us. And he does.`\
 https://nytimes.com/2024/03/05/crosswords/daily-puzzle-2024-03-06.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/us/harvard-subpoena-antisemitism.html
 **Donald Trump, Seeking Cash Infusion, Meets With Elon Musk**\
 `It’s not clear whether Mr. Musk will spend any of his billions on the former president’s behalf. If he does, he could erase Mr. Trump’s financial disadvantage in the 2024 race.`\
 https://nytimes.com/2024/03/05/us/politics/trump-elon-musk.html
-
-**Ex-President of Honduras Denies at Trial That He Trafficked Drugs**\
-`Juan Orlando Hernández, who is accused of conspiring to import cocaine into the United States, also denied receiving a bribe from the Mexican drug lord El Chapo.`\
-https://nytimes.com/2024/03/05/nyregion/juan-orlando-hernandez-honduras-drug-trafficking.html
 
