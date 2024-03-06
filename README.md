@@ -1,3 +1,11 @@
+**Scientists Create Elephant Stem Cells in the Lab**\
+`The results could shed light on why the animals rarely get cancer. But the researchers’ ultimate goal of bringing back woolly mammoths is still aspirational.`\
+https://nytimes.com/2024/03/06/science/elephant-stem-cells-woolly-mammoth.html
+
+**Denzel Washington and Jake Gyllenhaal to Lead Broadway ‘Othello’**\
+`Kenny Leon will direct a starry revival of Shakespeare’s tragedy in the spring of 2025.`\
+https://nytimes.com/2024/03/06/theater/denzel-washington-jake-gyllenhaal-othello-broadway.html
+
 **S.E.C. to Approve New Climate Rules Far Weaker Than Originally Proposed**\
 `The rules, designed to inform investors of business risks from climate change, were rolled back amid opposition from the G.O.P., fossil fuel producers, farmers and others.`\
 https://nytimes.com/2024/03/06/climate/sec-climate-disclosure-regulations.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/06/us/politics/haley-out-supporters-trump.html
 **Inflation Fears Stalk Presidential Politics and the Markets**\
 `Lawmakers on Capitol Hill are set to grill Jay Powell, the Fed chair, about interest rates and the economy, topics that are top of mind for voters and investors alike.`\
 https://nytimes.com/2024/03/06/business/dealbook/inflation-biden-trump-elections-markets.html
-
-**Despite U.S. rebuke, Israel advances plans for more housing in West Bank settlements.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/despite-us-rebuke-israel-advances-plans-for-more-housing-in-west-bank-settlements
-
-**How to Fix the Crisis of Trust in Higher Education**\
-`Start listening to students about what makes college relevant.`\
-https://nytimes.com/2024/03/06/opinion/college-enrollment.html
 
