@@ -1,3 +1,7 @@
+**Inflation Fears Stalk Presidential Politics and the Markets**\
+`Lawmakers on Capitol Hill are set to grill Jay Powell, the Fed chair, about interest rates and the economy, topics that are top of mind for voters and investors alike.`\
+https://nytimes.com/2024/03/06/business/dealbook/inflation-biden-trump-elections-markets.html
+
 **Despite U.S. rebuke, Israel advances plans for more housing in West Bank settlements.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/despite-us-rebuke-israel-advances-plans-for-more-housing-in-west-bank-settlements
@@ -30,11 +34,7 @@ https://nytimes.com/2024/03/06/podcasts/the-daily/swing-voters-election.html
 `“It’s a form of psychological torture,” said one man in Rafah. “It’s unbearable. We’re told one day that the war is ending and then the opposite the next day.”`\
 https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/truce-talks-have-been-an-exhausting-tangle-of-emotions-for-gazans
 
-**Too Little Ammunition, Too Many Russians: The Harrowing Retreat from Avdiivka**\
+**Too Little Ammunition, Too Many Russians: The Harrowing Retreat From Avdiivka**\
 `The fall of the city, when it came in mid-February, was brutal and fast. Soldiers fought for their lives. Many did not make it.`\
 https://nytimes.com/2024/03/06/world/europe/ukraine-avdiivka-russia.html
-
-**The One Thing You Need Next Season**\
-`Louis Vuitton, Chanel and Miu Miu bring the ready-to-wear shows to an end. What’s the takeaway?`\
-https://nytimes.com/2024/03/06/style/louis-vuitton-chanel-miu-miu.html
 
