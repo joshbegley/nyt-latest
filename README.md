@@ -1,3 +1,7 @@
+**Onstage in Chicago, Zach Bryan Howled, and the Crowd Found Its Voice**\
+`The singer and songwriter has become one of pop’s least expected new stars. On opening night of his arena tour, he showcased the bond with his fans that brought him there.`\
+https://nytimes.com/2024/03/06/arts/music/zach-bryan-quittin-time-tour-review.html
+
 **Dean Phillips Halts Long-Shot Presidential Bid**\
 `Mr. Phillips, President Biden’s most significant Democratic rival, had argued that voters wanted a younger alternative to the president. But his candidacy stalled soon after he entered the race.`\
 https://nytimes.com/2024/03/06/us/politics/dean-phillips-drops-out.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/us/steve-garvey-senate-california-primary.html
 **Apple Blocks Epic Games From Using iPhone Tools in Escalation of Feud**\
 `The move tests the European Union’s new tech competition law, which was designed to allow competing app stores.`\
 https://nytimes.com/2024/03/06/technology/apple-epic-games-feud.html
-
-**girl in red: The Popcast (Deluxe) Interview**\
-`An interview with the Norwegian singer girl in red (Marie Ulven) about her second album, “I’m Doing It Again Baby!,” opening for Taylor Swift and more.`\
-https://nytimes.com/2024/03/06/arts/music/girl-in-red-interview-popcast-deluxe.html
 
