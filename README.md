@@ -14,7 +14,7 @@ https://nytimes.com/2024/03/06/climate/sea-level-rise-east-coast-sinking-land-fl
 `Protesters could create echoes of the 1968 convention in Chicago.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/gaza-protesters-democrats-schiff
 
-**The fatalities appear to the first since Houthi attacks began.**\
+**The fatalities appear to be the first since Houthi attacks began.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/a-commercial-vessel-has-been-hit-in-the-red-sea-a-british-naval-organization-says
 
