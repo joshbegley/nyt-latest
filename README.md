@@ -1,3 +1,15 @@
+**06mideast-crisis**\
+`Israeli’s Military Turns Back Convoy Trying to Get Food Into Gaza, U.N. Agency Says`\
+https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news
+
+**Aid group says it was turned away as desperation intensifies.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/03/05/world/israel-hamas-war-gaza-news/aid-group-says-it-was-turned-away-as-desperation-intensifies
+
+**Word of the Day: eventuality**\
+`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/06/learning/word-of-the-day-eventuality.html
+
 **Who Won, Who Lost and What’s Still Undecided From Super Tuesday**\
 `The presidential candidates weren’t the only ones on the ballot.`\
 https://nytimes.com/2024/03/06/us/politics/super-tuesday-won-lost.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/06/books/gabriel-garcia-marquez-last-novel-until-aug
 **A Window Into Chinese Government Has Now Slammed Shut**\
 `Once a year, the premier held a news conference, explaining the economy and giving Chinese a taste of political participation. That has come to an end.`\
 https://nytimes.com/2024/03/06/business/china-national-peoples-congress.html
-
-**On a Bright Night for His Campaign, Trump Again Conjures a Dark Vision**\
-`As he dominated the Super Tuesday battlefield, former President Donald Trump warned of dark days ahead if President Biden were to win a second term. “We’re a third-world country,” he said repeatedly.`\
-https://nytimes.com/2024/03/05/us/politics/trump-speech-super-tuesday.html
-
-**‘Uncommitted’ Draws Strong Support Against Biden in Minnesota**\
-`The effort to pressure the president over his support for Israel garnered a sizable share of the vote, despite being more hastily organized. Voters in other states also voiced unease.`\
-https://nytimes.com/2024/03/05/us/politics/biden-uncommitted-protest-vote-minnesota.html
-
-**Colin Allred Wins Democratic Contest to Take On Senator Ted Cruz in Texas**\
-`The Dallas-area congressman presented himself as an across-the-aisle politician who could appeal to a wide range of voters.`\
-https://nytimes.com/2024/03/05/us/politics/colin-allred-democrat-texas-senate.html
 
