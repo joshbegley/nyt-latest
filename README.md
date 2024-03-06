@@ -1,3 +1,7 @@
+**Charges Dismissed in ‘Hotel California’ Theft Conspiracy Case**\
+`Don Henley, a co-founder of the Eagles, has been trying to get back draft lyrics from some of his group’s biggest hits.`\
+https://nytimes.com/2024/03/06/nyregion/don-henley-eagles-dismissed.html
+
 **Nikki Haley Suspends Presidential Campaign**\
 `Nikki Haley did not endorse former President Donald J. Trump for the Republican nomination, and said he must earn the votes of her supporters.`\
 https://nytimes.com/video/us/politics/100000009346609/nikki-haley-presidential-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/science/elephant-stem-cells-woolly-mammoth.html
 **Denzel Washington and Jake Gyllenhaal to Lead Broadway ‘Othello’**\
 `Kenny Leon will direct a starry revival of Shakespeare’s tragedy in the spring of 2025.`\
 https://nytimes.com/2024/03/06/theater/denzel-washington-jake-gyllenhaal-othello-broadway.html
-
-**S.E.C. to Approve New Climate Rules Far Weaker Than Originally Proposed**\
-`The rules, designed to inform investors of business risks from climate change, were rolled back amid opposition from the G.O.P., fossil fuel producers, farmers and others.`\
-https://nytimes.com/2024/03/06/climate/sec-climate-disclosure-regulations.html
 
