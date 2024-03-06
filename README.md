@@ -1,3 +1,7 @@
+**Israel Rejects Far-Right Plan for New Limits on Access to Important Mosque**\
+`As the Muslim holy month of Ramadan approaches, the move may reduce tensions at the Aqsa Mosque compound, which has long been a flashpoint for unrest.`\
+https://nytimes.com/2024/03/06/world/middleeast/israel-aqsa-mosque-ramadan.html
+
 **The Election is Set**\
 `The primaries are effectively over —  and the general election begins.`\
 https://nytimes.com/2024/03/06/briefing/super-tuesday-2024-election-haley-trump-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/nyregion/lynchings-north-nyu-project.html
 **With Sweeping New Laws, Louisiana Embraces Tough-on-Crime Approach**\
 `Gov. Jeff Landry is enacting stringent new measures that he says are crucial to address crime; critics say the laws resemble failed policies of the past.`\
 https://nytimes.com/2024/03/06/us/louisiana-laws-crime.html
-
-**Seeing Stars, Sperm and Millions of Spawn After a Valentine’s Day Rendezvous**\
-`Sunflower sea stars, a species of giant starfish, are critically endangered. Researchers tinkered with sperm in an aquarium lab to help them reproduce.`\
-https://nytimes.com/2024/03/06/science/sea-stars-reproduction-climate-change.html
 
