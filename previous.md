@@ -1,3 +1,23 @@
+**How Trump’s Crushing Primary Triumph Masked Quiet Weaknesses**\
+`Even though he easily defeated Nikki Haley, the primary results suggested that he still has long-term problems with suburban voters, moderates and independents.`\
+https://nytimes.com/2024/03/06/us/politics/donald-trump-primary-wins.html
+
+**One Twin Was Hurt, the Other Was Not. Their Adult Mental Health Diverged.**\
+`A large study of “discordant twins,” in which only one suffered abuse or neglect, adds to evidence linking childhood trauma to adult illness.`\
+https://nytimes.com/2024/03/06/health/one-twin-was-hurt-the-other-was-not-their-adult-mental-health-diverged.html
+
+**Josette Molland’s Testimony: Scenes of Life in Nazi Camps**\
+`In her 80s, she created a series of paintings depicting the horrors she endured in forced-labor camps during World War II.`\
+https://nytimes.com/2024/03/06/world/europe/josette-mollands-paintings.html
+
+**Josette Molland, Who Told of Life in Nazi Camps Through Art, Dies at 100**\
+`She endured horrors as a captured member of the French Resistance and — to ensure that her story, too, would survive — depicted them years later in a series of stark paintings.`\
+https://nytimes.com/2024/03/06/world/europe/josette-molland-dead.html
+
+**House Passes Bipartisan $460 Billion Spending Bill to Avert a Partial Shutdown**\
+`Staring down yet another spending deadline, Speaker Mike Johnson again relied on Democratic votes to push through a six-bill package to fund about half the government through the fall.`\
+https://nytimes.com/2024/03/06/us/politics/house-spending-bill-shutdown.html
+
 **Do You Have Experience Working With Boeing? We Want to Hear From You.**\
 `Boeing’s quality control practices have been criticized after a panel on one of the company’s 737 Max jets blew open during a flight in January.`\
 https://nytimes.com/2024/03/06/business/boeing-safety-quality-control.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/03/06/us/politics/mayorkas-impeachment-republicans.html
 **Israel-Hamas Talks Over Hostage Releases and a Cease-Fire Stall**\
 `Officials say Hamas has continued to press Israel for a commitment to a permanent cease-fire after a multistage release of all hostages, but Israel has refused.`\
 https://nytimes.com/2024/03/06/us/politics/israel-hamas-hostages.html
-
-**Drake Bell Will Detail Abuse He Suffered as a Child Star**\
-`The former Nickelodeon actor is set to describe sexual abuse he experienced at the hands of a former dialogue coach, according to a new docuseries. Court documents detail the back story.`\
-https://nytimes.com/2024/03/06/arts/television/drake-bell-sexual-abuse-docuseries.html
-
-**‘Uncommitted’ Effort to Protest Biden Will Shift Its Focus to Washington State**\
-`The campaign is urging Democrats to register their discontent with President Biden’s handling of the war in Gaza by voting “uncommitted.” Washington’s primary is on Tuesday.`\
-https://nytimes.com/2024/03/06/us/politics/uncommitted-biden-washington-state.html
-
-**Biden Promised Calm After Trump Chaos, but the World Has Not Cooperated**\
-`Inflation, an explosion of migration at the border and wars in Europe and the Middle East have created a sense of instability that polls show have eroded his support.`\
-https://nytimes.com/2024/03/06/us/politics/biden-trump-chaos.html
-
-**After 217 Covid Vaccines, Man Had No Side Effects and Robust Immunity**\
-`Media accounts of a German man’s extreme vaccination history spurred researchers to analyze his immune responses.`\
-https://nytimes.com/2024/03/06/health/217-covid-vaccines.html
-
-**The Trump-Biden Rematch Is Here. Americans Are Processing.**\
-`They’ve worked through denial, bargaining and grief over the 2024 matchup. Are discontented voters inching toward acceptance?`\
-https://nytimes.com/2024/03/06/us/politics/trump-biden-presidential-campaign.html
 
