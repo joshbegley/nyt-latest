@@ -1,3 +1,15 @@
+**John Walker, Tech Executive Who Popularized AutoCAD, Dies at 74**\
+`He avoided the spotlight, but he helped bring to market an explosively popular computer program that revolutionized the architecture and design industries.`\
+https://nytimes.com/2024/03/06/technology/john-walker-dead.html
+
+**With Haley Out, Will States Still Hold Primaries?**\
+`It’s likely too late for them to do anything else.`\
+https://nytimes.com/2024/03/06/us/politics/state-primaries-haley-out-trump.html
+
+**The Anti-Abortion Movement Traps Republicans on I.V.F.**\
+`It turns out it was easier for Republicans to indulge the movement’s maximalism when their voters didn’t have to live with the repercussions.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/ivf-access-alabama
+
 **Please, President Biden: Don’t Blame Corporate Greed for Inflation**\
 `Instead of casting blame, Biden should tout what he’s done to ease Americans’ financial pressures.`\
 https://nytimes.com/2024/03/06/opinion/biden-inflation-greed-profits.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/06/us/business-development-race-affirmative-action.h
 **Christopher Walken’s Hidden ‘Dune’ Connection**\
 `The actor who plays the malevolent emperor in the new film actually brought an element of the saga to life once before. Remember “Weapon of Choice”?`\
 https://nytimes.com/2024/03/06/movies/christopher-walken-dune-weapon-of-choice.html
-
-**Reflections on a Trump-Biden Rematch**\
-`Readers react to articles about the two candidates’ dominance on Super Tuesday. Also: Older bike riders; French abortion amendment; shrinkflation. `\
-https://nytimes.com/2024/03/06/opinion/letters/trump-biden-rematch.html
-
-**Despite the Doubters, Haley’s Real Goal Was to Be a Choice**\
-`People kept asking what she really wanted, but ultimately the party didn’t accept her answer.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/haley-withdraw-endorse
-
-**Haiti Engulfed by Crisis as Gangs Press Prime Minister to Step Down**\
-`The power struggle in Haiti is raising pressure on the United States to ease tensions while casting doubt on plans for a Kenyan-led security mission.`\
-https://nytimes.com/2024/03/06/world/americas/haiti-gangs-prime-minister.html
 
