@@ -1,6 +1,6 @@
 **I.M.F. Agrees to Much Larger Rescue Package for Egypt**\
 `The International Monetary Fund will provide $8 billion to Egypt, which is going through its worst economic crisis in decades.`\
-https://nytimes.com/2024/03/06/world/middleeast/egypt-imf-bailout-8billion.html
+https://nytimes.com/2024/03/06/world/middleeast/egypt-imf-package-economy.html
 
 **Was Trump’s Nomination Always Inevitable?**\
 `As recently as a year ago, less than half of Republican voters named Trump as their preferred candidate.`\
