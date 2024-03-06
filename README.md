@@ -1,3 +1,7 @@
+**S.E.C. to Approve New Climate Rules Far Weaker Than Originally Proposed**\
+`The rules, designed to inform investors of business risks from climate change, were rolled back amid opposition from the G.O.P., fossil fuel producers, farmers and others.`\
+https://nytimes.com/2024/03/06/climate/sec-climate-disclosure-regulations.html
+
 **U.K. to Cut Taxes Again as Election Nears**\
 `The Conservative government, trailing badly in the polls, proposed the second tax cut in four months.`\
 https://nytimes.com/2024/03/06/business/uk-budget-tax-cut-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/despite-us-
 **How to Fix the Crisis of Trust in Higher Education**\
 `Start listening to students about what makes college relevant.`\
 https://nytimes.com/2024/03/06/opinion/college-enrollment.html
-
-**Flood Watch Issued for Wednesday in New York and Southern New England**\
-`As a storm neared the coastal Northeast, officials predicted heavy rain and said travel delays were possible during the evening commute.`\
-https://nytimes.com/2024/03/06/nyregion/nyc-forecast-rain-flood.html
 
