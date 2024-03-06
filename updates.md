@@ -1,3 +1,7 @@
+**The Pioneer in College Sports Unionization Is … Dartmouth?**\
+`It won’t be the last, however.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/dartmouth-college-unionization
+
 **Democratic Congressional Candidate in Michigan to Air First I.V.F. Ad of Election Cycle**\
 `The spot provides a glimpse of how Democrats plan to make the issue of access to fertility treatments central to campaigns across the country.`\
 https://nytimes.com/2024/03/06/us/politics/ivf-ad-michigan-congress-democrats.html

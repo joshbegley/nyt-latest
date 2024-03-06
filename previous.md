@@ -1,3 +1,7 @@
+**The Pioneer in College Sports Unionization Is … Dartmouth?**\
+`It won’t be the last, however.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/dartmouth-college-unionization
+
 **Democratic Congressional Candidate in Michigan to Air First I.V.F. Ad of Election Cycle**\
 `The spot provides a glimpse of how Democrats plan to make the issue of access to fertility treatments central to campaigns across the country.`\
 https://nytimes.com/2024/03/06/us/politics/ivf-ad-michigan-congress-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/business/nycb-overhaul-cash-mnuchin.html
 **Thursday Briefing: Haley Drops Out**\
 `Also, Israel-Hamas talks stall before Ramadan.`\
 https://nytimes.com/2024/03/06/world/asia/haley-trump-hostage-gaza-asia.html
-
-**Republicans’ Dilemma on Mayorkas Impeachment: When to Take the Loss**\
-`House Republicans rushed to impeach the homeland security secretary but are taking their time delivering the charges to the Senate, where a trial is likely to be over before it begins — or yield a quick acquittal.`\
-https://nytimes.com/2024/03/06/us/politics/mayorkas-impeachment-republicans.html
 
