@@ -1,40 +1,40 @@
-**After Super Tuesday, Trump Is Stronger Than He’s Ever Been**\
-`A rule of the Trump era: The lower his profile, the higher his polls.`\
-https://nytimes.com/2024/03/06/opinion/trump-super-tuesday.html
+**There Were Lynchings in the North, Too**\
+`An N.Y.U. project examines the history of lynchings after the Civil War, including one in New York State.`\
+https://nytimes.com/2024/03/06/nyregion/lynchings-north-nyu-project.html
 
-**The Answer to America’s Addiction Crisis Could Come Out of Tulsa**\
-`Nicholas Kristof on the most effective recovery program he’s ever seen.`\
-https://nytimes.com/2024/03/06/opinion/addiction-tusla-recovery.html
+**With Sweeping New Laws, Louisiana Embraces Tough-on-Crime Approach**\
+`Gov. Jeff Landry is enacting stringent new measures that he says are crucial to address crime; critics say the laws resemble failed policies of the past.`\
+https://nytimes.com/2024/03/06/us/louisiana-laws-crime.html
 
-**A Best-Actor Nominee Who Could Make Make Oscar History**\
-`Our critic on Colman Domingo in “Rustin.”`\
-https://nytimes.com/2024/03/06/podcasts/culture-desk-oscars-rustin.html
+**Seeing Stars, Sperm and Millions of Spawn After a Valentine’s Day Rendezvous**\
+`Sunflower sea stars, a species of giant starfish, are critically endangered. Researchers tinkered with sperm in an aquarium lab to help them reproduce.`\
+https://nytimes.com/2024/03/06/science/sea-stars-reproduction-climate-change.html
 
-**What Is Teenage Bullying Like Today?**\
-`An Opinion columnist writes that meanness among teenagers hasn’t gone away, it’s just gotten more stealthy. Do you agree?`\
-https://nytimes.com/2024/03/06/learning/what-is-teenage-bullying-like-today.html
+**The Babe Paley in ‘Feud’ Is Not the Woman I Knew**\
+`In a popular TV show, my grandmother is fictionalized as one of Truman Capote’s swans. I wish she’d had the chance to tell her story in her way.`\
+https://nytimes.com/2024/03/06/opinion/feud-swans-paley.html
 
-**Novelist Celeste Ng on the Big Power of Little Things**\
-`The acclaimed author delves into a Modern Love essay about parenting, poetry and persistence.`\
-https://nytimes.com/2024/03/06/podcasts/celeste-ng-modern-love-20th-anniversary.html
+**The Privileges and Pitfalls of Making Movies About Real People**\
+`The Oscars slate this year is packed with films rooted in historical events and biographies. How much influence should the subjects have?`\
+https://nytimes.com/2024/03/06/movies/oppenheimer-maestro-rustin-may-december.html
 
-**Biden Preps for the State of the Union Speech and Rowdy Republicans**\
-`The speech, which will be edited up until the president delivers it, will be watched by one of his biggest audiences before the November election.`\
-https://nytimes.com/2024/03/06/us/politics/biden-state-of-the-union.html
+**Why Power Eludes the French Left**\
+`France has often been the vanguard of leftist politics — but support in the streets doesn’t always translate to votes at the ballot box.`\
+https://nytimes.com/2024/03/06/magazine/french-left-politics-melenchon.html
 
-**$950,000 Homes in Maine, Florida and Washington**\
-`A cottage in Southwest Harbor, a two-bedroom condominium in Miami Beach and a four-bedroom bungalow in Seattle.`\
-https://nytimes.com/2024/03/06/realestate/950000-dollar-homes-maine-florida-washington.html
+**The Youths Have Spoken: Wallets Are Lame. Go Digital.**\
+`A wallet-free lifestyle relying on your phone is attainable, but it requires preparation and some compromise.`\
+https://nytimes.com/2024/03/06/technology/personaltech/mobile-wallet-app.html
 
-**If They Can’t Make a Federal Case Out of Trump …**\
-`The Supreme Court may well decide another presidential election.`\
-https://nytimes.com/2024/03/06/opinion/trump-trials-supreme-court.html
+**The 2020 Election Is Back**\
+`Donald J. Trump begins the 2024 general election campaign in the lead.`\
+https://nytimes.com/2024/03/06/upshot/biden-trump-super-tuesday.html
 
-**When Caitlin Clark Comes to Town**\
-`Measures of her star power include huge jumps in attendance at road games, and the logistical planning required.`\
-https://nytimes.com/2024/03/06/upshot/caitlin-clark-popularity-attendance.html
+**Texas Fires Bring Loss to a Small Town That Already Knows It Well**\
+`Fritch has endured tornadoes and wildfires over the years, and a fire now burning through the Panhandle struck dozens of homes. On Tuesday, the fire chief died fighting a house fire.`\
+https://nytimes.com/2024/03/06/us/texas-panhandle-fires.html
 
-**We’re Not Asking the Most Important Questions About Age**\
-`A presidential contest between two older candidates is an opportunity for us to start recognizing the crucial needs of our aging population.`\
-https://nytimes.com/2024/03/06/opinion/biden-aging-america-population.html
+**Where Electric Vehicles Are (and Aren’t) Taking Off Across the U.S.**\
+`New data show where E.V.s are booming and reveal some surprising places where they’re getting a foothold.`\
+https://nytimes.com/interactive/2024/03/06/climate/hybrid-electric-vehicle-popular.html
 
