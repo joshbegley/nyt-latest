@@ -1,3 +1,7 @@
+**Late Night Finds Super Tuesday Super Predictable**\
+`“Spoiler: It’s Biden/Trump,” Stephen Colbert said. “It’s always been Biden/Trump. It will always be Biden/Trump.”`\
+https://nytimes.com/2024/03/06/arts/television/late-night-super-tuesday.html
+
 **Protesters Interrupt Adam Schiff During Victory Speech**\
 `Some people in the crowd chanted “Cease-fire now!” after Representative Adam Schiff secured a spot on November’s ballot for a Senate seat in California.`\
 https://nytimes.com/video/us/elections/100000009346222/california-schiff-protest-senate.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/aid-group-s
 **Word of the Day: eventuality**\
 `This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/06/learning/word-of-the-day-eventuality.html
-
-**Who Won, Who Lost and What’s Still Undecided From Super Tuesday**\
-`The presidential candidates weren’t the only ones on the ballot.`\
-https://nytimes.com/2024/03/06/us/politics/super-tuesday-won-lost.html
 
