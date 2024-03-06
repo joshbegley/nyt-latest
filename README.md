@@ -1,3 +1,7 @@
+**The Election is Set**\
+`The primaries are effectively over —  and the general election begins.`\
+https://nytimes.com/2024/03/06/briefing/super-tuesday-2024-election-haley-trump-biden.html
+
 **Super Tuesday Exposed Vulnerabilities for Trump and Biden, and Bitcoin Completes Comeback**\
 `Plus, bad blood in Southeast Asia over Taylor Swift’s tour.`\
 https://nytimes.com/2024/03/06/podcasts/super-tuesday-exposed-vulnerabilities-for-trump-and-biden-and-bitcoin-completes-comeback.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/us/louisiana-laws-crime.html
 **Seeing Stars, Sperm and Millions of Spawn After a Valentine’s Day Rendezvous**\
 `Sunflower sea stars, a species of giant starfish, are critically endangered. Researchers tinkered with sperm in an aquarium lab to help them reproduce.`\
 https://nytimes.com/2024/03/06/science/sea-stars-reproduction-climate-change.html
-
-**The Babe Paley in ‘Feud’ Is Not the Woman I Knew**\
-`In a popular TV show, my grandmother is fictionalized as one of Truman Capote’s swans. I wish she’d had the chance to tell her story in her way.`\
-https://nytimes.com/2024/03/06/opinion/feud-swans-paley.html
 
