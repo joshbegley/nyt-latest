@@ -1,3 +1,7 @@
+**With Haley’s departure, the nominees will be two men. Again.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/03/06/us/haley-out-trump-election-updates/haley-women-candidates-2024-election
+
 **Spinosaurus Didn’t Swim After Its Supper, Study Claims**\
 `A new paper challenges the idea that the large, carnivorous dinosaur dived after prey rather than wading and plucking it out of the water.`\
 https://nytimes.com/2024/03/06/science/spinosaurus-dinosaur-fossil-dive.html
