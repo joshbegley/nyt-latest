@@ -1,3 +1,11 @@
+**5 Takeaways From Super Tuesday**\
+`Donald Trump racked up delegates, but also revealed weaknesses. Nikki Haley reckoned with cold, hard math. And restive Democrats sent a message to President Biden.`\
+https://nytimes.com/2024/03/06/us/politics/super-tuesday-trump-biden-takeaways.html
+
+**Wednesday Briefing**\
+`A big day in American politics.`\
+https://nytimes.com/2024/03/06/briefing/super-tuesday-trump-biden.html
+
 **Two Democrats emerge from a crowded field in a newly competitive House district in Alabama.**\
 `Shomari Figures, a former Justice Department official, and State Representative Anthony Daniels will head to a runoff election in the Democratic primary in the Second Congressional District.`\
 https://nytimes.com/2024/03/06/us/politics/alabama-second-congressional-district-runoff.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/05/us/politics/colin-allred-democrat-texas-senate.ht
 **Schiff and Garvey Advance in the California Senate Race for Feinstein’s Seat**\
 `Representative Adam Schiff, a prominent antagonist of former President Donald J. Trump, will face Steve Garvey, a Republican former baseball star, in a November runoff.`\
 https://nytimes.com/2024/03/05/us/politics/california-senate-schiff-garvey.html
-
-**Corrections: March 6, 2024**\
-`Corrections that appeared in print on Wednesday, March 6, 2024.`\
-https://nytimes.com/2024/03/05/pageoneplus/corrections-march-6-2024.html
-
-**Quotation of the Day: She Boxes. She Conducts. She Defies Stereotypes.**\
-`Quotation of the Day for Wednesday, March 6, 2024.`\
-https://nytimes.com/2024/03/05/pageoneplus/quotation-of-the-day-she-boxes-she-conducts-she-defies-stereotypes.html
 
