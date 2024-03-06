@@ -14,7 +14,7 @@ https://nytimes.com/2024/03/06/arts/design/simon-denny-art-computers-gaming-revi
 `Jerome H. Powell, the chair of the Federal Reserve, said that cuts in borrowing costs could be possible in 2024 if the data continued to signal a control on inflation.`\
 https://nytimes.com/video/us/politics/100000009346653/fed-interest-rates.html
 
-**The Diplomatic Skills of Award Show Writers**\
+**What It Takes to Be an Award Show Writer**\
 `Jason Zinoman, a New York Times critic who writes the On Comedy column, explains the struggles of the underappreciated award show writing staff and how its job often goes beyond writing.`\
 https://nytimes.com/video/arts/television/100000009335368/diplomatic-skills-award-show-writers.html
 
