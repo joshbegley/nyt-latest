@@ -1,3 +1,11 @@
+**Takeaways From the Texas Primary: Ken Paxton Ousts Some of His Enemies**\
+`The Republican attorney general succeeded in defeating some politicians and judges who opposed him. But Democrats showed they also know how to punish incumbents.`\
+https://nytimes.com/2024/03/06/us/texas-election-takeaways-paxton.html
+
+**Senegal’s Leader Breaks Up Cabinet and Sets Date for Presidential Election**\
+`President Macky Sall previously postponed the election without setting a date. On Wednesday, he also fired the prime minister, his party’s candidate for president.`\
+https://nytimes.com/2024/03/06/world/africa/senegal-election-macky-sall.html
+
 **Lucien Pellat-Finet, Fashion’s ‘King of Cashmere,’ Dies at 78**\
 `The aesthetic of the sweaters he designed, which included provocative symbols like marijuana leaves and skulls, was casual. Their price tags were not.`\
 https://nytimes.com/2024/03/06/fashion/lucien-pellat-finet-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/06/science/gray-whale-nantucket.html
 **The National Guard Might Help Subway Riders Feel Safer**\
 `But Governor Hochul needs to ensure that the state’s role is to deter crime, not harass riders.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/nyc-subway-crime-national-guard
-
-**Haley Dropped Out, Making Way for a Biden-Trump Rematch**\
-`Also, National Guard troops will patrol New York’s subway. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/03/06/briefing/haley-drops-out-national-guard-new-york-subway.html
-
-**Nearly Half the States Sue E.P.A. Over New Limits on Deadly Pollution**\
-`Republican attorneys general from 24 states said the crackdown on fine industrial particles would raise costs. The E.P.A. said it would save lives.`\
-https://nytimes.com/2024/03/06/climate/epa-soot-lawsuit.html
 
