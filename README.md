@@ -1,3 +1,7 @@
+**Democratic Congressional Candidate in Michigan to Air First I.V.F. Ad of Election Cycle**\
+`The spot provides a glimpse of how Democrats plan to make the issue of access to fertility treatments central to campaigns across the country.`\
+https://nytimes.com/2024/03/06/us/politics/ivf-ad-michigan-congress-democrats.html
+
 **How Trump’s Crushing Primary Triumph Masked Quiet Weaknesses**\
 `Even though he easily defeated Nikki Haley, the primary results suggested that he still has long-term problems with suburban voters, moderates and independents.`\
 https://nytimes.com/2024/03/06/us/politics/donald-trump-primary-wins.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/world/asia/haley-trump-hostage-gaza-asia.html
 **Republicans’ Dilemma on Mayorkas Impeachment: When to Take the Loss**\
 `House Republicans rushed to impeach the homeland security secretary but are taking their time delivering the charges to the Senate, where a trial is likely to be over before it begins — or yield a quick acquittal.`\
 https://nytimes.com/2024/03/06/us/politics/mayorkas-impeachment-republicans.html
-
-**Israel-Hamas Talks Over Hostage Releases and a Cease-Fire Stall**\
-`Officials say Hamas has continued to press Israel for a commitment to a permanent cease-fire after a multistage release of all hostages, but Israel has refused.`\
-https://nytimes.com/2024/03/06/us/politics/israel-hamas-hostages.html
 
