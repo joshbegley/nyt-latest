@@ -1,3 +1,11 @@
+**Do You Have Experience Working With Boeing? We Want to Hear From You.**\
+`Boeing’s quality control practices have been criticized after a panel on one of the company’s 737 Max jets blew open during a flight in January.`\
+https://nytimes.com/2024/03/06/business/boeing-safety-quality-control.html
+
+**New York Community Bank Raises $1 Billion in Emergency Cash**\
+`Investors include Steven Mnuchin, who joined the board of the struggling midsize lender.`\
+https://nytimes.com/2024/03/06/business/nycb-overhaul-cash-mnuchin.html
+
 **Thursday Briefing: Haley Drops Out**\
 `Also, Israel-Hamas talks stall before Ramadan.`\
 https://nytimes.com/2024/03/06/world/asia/haley-trump-hostage-gaza-asia.html
