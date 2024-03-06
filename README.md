@@ -1,3 +1,7 @@
+**My Spouse Is the Breadwinner. How Should We Divvy Assets in the Divorce?**\
+`The magazine’s Ethicist columnist on how to equitably divide marital assets after a split.`\
+https://nytimes.com/2024/03/06/magazine/breadwinner-assets-divorce-ethics.html
+
 **Russian Strike on Odesa Comes as Zelensky and Greek Leader Were There**\
 `Neither was hurt and it was unclear whether the Russian Army was targeting them.`\
 https://nytimes.com/2024/03/06/world/europe/zelensky-mitsotakis-odesa-russian-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/nyregion/don-henley-eagles-dismissed.html
 **Nikki Haley Suspends Presidential Campaign**\
 `Nikki Haley did not endorse former President Donald J. Trump for the Republican nomination, and said he must earn the votes of her supporters.`\
 https://nytimes.com/video/us/politics/100000009346609/nikki-haley-presidential-campaign.html
-
-**MH370 Disappeared a Decade Ago. Here’s What We Know Today.**\
-`The disappearance of the Malaysia Airlines flight has remained one the greatest aviation mysteries of all time. A new search may begin soon.`\
-https://nytimes.com/2024/03/06/world/asia/malaysia-airlines-missing-flight-mh370.html
 
