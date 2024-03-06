@@ -1,3 +1,7 @@
+**Before N.Y.C. Snow Day Debacle, IBM Had Warned of Tech Limitations**\
+`Technical failures blocked thousands of students who tried to log on to school during a snowstorm. At a City Council hearing on Wednesday, an IBM official said it wasn’t the company’s fault.`\
+https://nytimes.com/2024/03/06/nyregion/remote-class-technical-problems-nyc-schools-ibm.html
+
 **Supper Clubs in New York Are a Vanishing Breed. Café Carlyle Is Keeping the Tradition Alive**\
 `Any night at the Upper East Side’s nearly 70-year-old cabaret still feels like a big night out.`\
 https://nytimes.com/2024/03/06/t-magazine/cafe-carlyle-cabaret-supper-club-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/world/europe/josette-mollands-paintings.html
 **Josette Molland, Who Told of Life in Nazi Camps Through Art, Dies at 100**\
 `She endured horrors as a captured member of the French Resistance and — to ensure that her story, too, would survive — depicted them years later in a series of stark paintings.`\
 https://nytimes.com/2024/03/06/world/europe/josette-molland-dead.html
-
-**House Passes Bipartisan $460 Billion Spending Bill to Avert a Partial Shutdown**\
-`Staring down yet another spending deadline, Speaker Mike Johnson again relied on Democratic votes to push through a six-bill package to fund about half the government through the fall.`\
-https://nytimes.com/2024/03/06/us/politics/house-spending-bill-shutdown.html
 
