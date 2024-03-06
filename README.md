@@ -1,3 +1,7 @@
+**Haiti Engulfed by Crisis as Gangs Press Prime Minister to Step Down**\
+`The power struggle in Haiti is raising pressure on the United States to ease tensions while casting doubt on plans for a Kenyan-led security mission.`\
+https://nytimes.com/2024/03/06/world/americas/haiti-gangs-prime-minister.html
+
 **Alabama Bill to Protect I.V.F. Will Reopen Clinics but Curb Patient Rights**\
 `Here’s what to know about the legislation, which the state legislature is expected to approve overwhelmingly on Wednesday.`\
 https://nytimes.com/2024/03/06/health/ivf-law-alabama.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/theater/paper-bag-players-childrens-theater.html
 **Protesters Interrupt Adam Schiff’s Victory Speech, Chanting ‘Cease-Fire Now’**\
 `The California Democrat was thrilled by Tuesday’s election results, but his celebration was tempered by protests of his support of Israel.`\
 https://nytimes.com/2024/03/06/us/politics/adam-schiff-speech-gaza-protest.html
-
-**Steve Garvey’s Improbable Rise, Decades After His Baseball Heyday**\
-`The former Major League Baseball star running for the Senate faces long odds in Democratic-run California. He hopes to appeal to voters who are frustrated — and love a good sports analogy.`\
-https://nytimes.com/2024/03/06/us/steve-garvey-senate-california-primary.html
 
