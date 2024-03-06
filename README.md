@@ -1,3 +1,7 @@
+**‘As Living as Opera Can Get’: John Cage’s Anarchic Anti-Canon**\
+`In his “Europeras,” Cage dismantled centuries of tradition and expectations, for musicians and audiences alike. A rare revival is coming to Detroit.`\
+https://nytimes.com/2024/03/06/arts/music/john-cage-europeras-detroit-yuval-sharon.html
+
 **New Data Details the Risk of Sea-Level Rise for U.S. Coastal Cities**\
 `A new study of sinking and rising land along American coasts offers a more specific understanding of potential flooding in 32 coastal cities.`\
 https://nytimes.com/2024/03/06/climate/sea-level-rise-east-coast-sinking-land-flooding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/style/jason-kelce-crying.html
 **National Guard and State Police Will Patrol the Subways and Check Bags**\
 `Gov. Kathy Hochul, amid a series of violent crimes on the subway, said she would deploy 1,000 members of the State Police and National Guard to the transit system.`\
 https://nytimes.com/2024/03/06/nyregion/subway-national-guard-police.html
-
-**‘Bérénice’ Review: Crushed by Isabelle Huppert’s Star Power**\
-`Romeo Castellucci’s production of the classic play by Jean Racine is all about the lead performer — and that’s it.`\
-https://nytimes.com/2024/03/06/theater/berenice-isabelle-huppert-romeo-castellucci.html
 
