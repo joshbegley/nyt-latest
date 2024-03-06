@@ -1,3 +1,15 @@
+**Bracing for a Trump Rematch, Biden Confronts Four Thorny Challenges**\
+`Before his State of the Union address, the president faces several political problems that are largely out of his control and present dangers to his re-election bid.`\
+https://nytimes.com/2024/03/06/us/politics/biden-democrats-state-of-the-union.html
+
+**‘Ricky Stanicky’ Review: Best Fiends Forever**\
+`In this slapdash, off-color comedy directed by Peter Farrelly, three buddies use the same imaginary friend as an excuse to get them out of binds.`\
+https://nytimes.com/2024/03/06/movies/ricky-stanicky-review.html
+
+**Full Transcript of Nikki Haley’s Remarks as She Dropped Out of G.O.P. Primary**\
+`Nikki Haley wished Donald J. Trump well, but she did not endorse him.`\
+https://nytimes.com/2024/03/06/us/politics/haley-out-speech-transcript.html
+
 **My Spouse Is the Breadwinner. How Should We Divvy Assets in the Divorce?**\
 `The magazine’s Ethicist columnist on how to equitably divide marital assets after a split.`\
 https://nytimes.com/2024/03/06/magazine/breadwinner-assets-divorce-ethics.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/03/05/opinion/thepoint/gaza-protesters-democrats-s
 **The fatalities appear to be the first since Houthi attacks began.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/a-commercial-vessel-has-been-hit-in-the-red-sea-a-british-naval-organization-says
-
-**‘This Is the Best Dinner I’ve Ever Made’**\
-`“This meal was simple, healthy, and so incredibly tasty. I’d eat this every night of my life,” a reader says of my sheet-pan chicken with garlic yogurt.`\
-https://nytimes.com/2024/03/06/dining/this-is-the-best-dinner-ive-ever-made.html
-
-**Charges Dismissed in ‘Hotel California’ Theft Conspiracy Case**\
-`Don Henley, a co-founder of the Eagles, has been trying to get back draft lyrics from some of his group’s biggest hits.`\
-https://nytimes.com/2024/03/06/nyregion/don-henley-eagles-dismissed.html
-
-**Nikki Haley Suspends Presidential Campaign**\
-`Nikki Haley did not endorse former President Donald J. Trump for the Republican nomination, and said he must earn the votes of her supporters.`\
-https://nytimes.com/video/us/politics/100000009346609/nikki-haley-presidential-campaign.html
 
