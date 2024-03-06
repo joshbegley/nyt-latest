@@ -1,3 +1,11 @@
+**Who are the Houthis?**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/who-are-the-houthis
+
+**The U.S. places sanctions on shipping companies for helping Iran to finance the Houthis.**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/the-us-places-sanctions-on-shipping-companies-for-helping-iran-to-finance-the-houthis
+
 **And the Oscars Carpet Color Goes … Back to Red**\
 `The Academy of Motion Picture Arts and Sciences unveiled a bright red rug on Wednesday at the Dolby Theater.`\
 https://nytimes.com/2024/03/06/style/oscars-red-carpet.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/06/arts/music/girl-in-red-interview-popcast-deluxe.h
 **Mitch McConnell Endorses Trump, Whom He Once Denounced**\
 `The Kentucky Republican, who plans to step down as Senate minority leader at the end of the year, had blamed the former president’s lies about the 2020 election for the Jan. 6 riot.`\
 https://nytimes.com/2024/03/06/us/politics/mcconnell-endorses-trump.html
-
-**Haley’s Failed Campaign Highlights G.O.P. Rifts and Trump’s Dominance**\
-`Falling well short in a spirited campaign to dethrone Mr. Trump, Ms. Haley brought to a close the latest struggle over the soul and direction of the Republican Party.`\
-https://nytimes.com/2024/03/06/us/politics/nikki-haley-drops-out-trump.html
-
-**N.T.S.B. Says Boeing Has Not Provided Key Information in 737 Max Inquiry**\
-`The National Transportation Safety Board is trying to get the plane maker to turn over documentation and provide the names of employees, the safety board’s chairwoman told a Senate committee.`\
-https://nytimes.com/2024/03/06/us/politics/ntsb-boeing-737-max.html
 
