@@ -1,3 +1,11 @@
+**Despite U.S. rebuke, Israel advances plans for more housing in West Bank settlements.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/despite-us-rebuke-israel-advances-plans-for-more-housing-in-west-bank-settlements
+
+**How to Fix the Crisis of Trust in Higher Education**\
+`Start listening to students about what makes college relevant.`\
+https://nytimes.com/2024/03/06/opinion/college-enrollment.html
+
 **Flood Watch Issued for Wednesday in New York and Southern New England**\
 `As a storm neared the coastal Northeast, officials predicted heavy rain and said travel delays were possible during the evening commute.`\
 https://nytimes.com/2024/03/06/nyregion/nyc-forecast-rain-flood.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/06/world/europe/ukraine-avdiivka-russia.html
 **The One Thing You Need Next Season**\
 `Louis Vuitton, Chanel and Miu Miu bring the ready-to-wear shows to an end. What’s the takeaway?`\
 https://nytimes.com/2024/03/06/style/louis-vuitton-chanel-miu-miu.html
-
-**Displaced Gazans Are Hoping for a Cease-Fire**\
-`Palestinians living in tents in Rafah, Gaza, are hoping for a cease-fire and an end to the war so they can return to their homes.`\
-https://nytimes.com/video/world/middleeast/100000009343851/gaza-ceasefire-hopes.html
-
-**There Were Lynchings in the North, Too**\
-`An N.Y.U. project examines the history of lynchings after the Civil War, including one in New York State.`\
-https://nytimes.com/2024/03/06/nyregion/lynchings-north-nyu-project.html
 
