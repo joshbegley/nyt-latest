@@ -1,3 +1,7 @@
+**With Haley Expected to Drop Out, What Will Her Voters Do in November?**\
+`Nikki Haley’s supporters tend to be moderate and college educated, the type of voters who have helped decide recent presidential races. The New York Times spoke with nearly 40 to see where they’re leaning.`\
+https://nytimes.com/2024/03/06/us/politics/haley-out-supporters-trump.html
+
 **Inflation Fears Stalk Presidential Politics and the Markets**\
 `Lawmakers on Capitol Hill are set to grill Jay Powell, the Fed chair, about interest rates and the economy, topics that are top of mind for voters and investors alike.`\
 https://nytimes.com/2024/03/06/business/dealbook/inflation-biden-trump-elections-markets.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/podcasts/the-daily/swing-voters-election.html
 **Truce talks have been an exhausting tangle of emotions for Gazans.**\
 `“It’s a form of psychological torture,” said one man in Rafah. “It’s unbearable. We’re told one day that the war is ending and then the opposite the next day.”`\
 https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/truce-talks-have-been-an-exhausting-tangle-of-emotions-for-gazans
-
-**Too Little Ammunition, Too Many Russians: The Harrowing Retreat From Avdiivka**\
-`The fall of the city, when it came in mid-February, was brutal and fast. Soldiers fought for their lives. Many did not make it.`\
-https://nytimes.com/2024/03/06/world/europe/ukraine-avdiivka-russia.html
 
