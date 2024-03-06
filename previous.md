@@ -1,3 +1,19 @@
+**Dean Phillips Halts Long-Shot Presidential Bid**\
+`Mr. Phillips, President Biden’s most significant Democratic rival, had argued that voters wanted a younger alternative to the president. But his candidacy stalled soon after he entered the race.`\
+https://nytimes.com/2024/03/06/us/politics/dean-phillips-drops-out.html
+
+**Who are the Houthis?**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/who-are-the-houthis
+
+**The U.S. places sanctions on shipping companies for helping Iran to finance the Houthis.**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/the-us-places-sanctions-on-shipping-companies-for-helping-iran-to-finance-the-houthis
+
+**And the Oscars Carpet Color Goes … Back to Red**\
+`Following the surprise of last year’s champagne-hued rug, the Academy of Motion Picture Arts and Sciences unveiled a bright red one on Wednesday at the Dolby Theater.`\
+https://nytimes.com/2024/03/06/style/oscars-red-carpet.html
+
 **John Kerry: ‘I Feel Deeply Frustrated’**\
 `The outgoing climate envoy on what the world has, and hasn’t, achieved.`\
 https://nytimes.com/2024/03/06/opinion/john-kerry-climate-change-china.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/03/06/technology/apple-epic-games-feud.html
 **girl in red: The Popcast (Deluxe) Interview**\
 `An interview with the Norwegian singer girl in red (Marie Ulven) about her second album, “I’m Doing It Again Baby!,” opening for Taylor Swift and more.`\
 https://nytimes.com/2024/03/06/arts/music/girl-in-red-interview-popcast-deluxe.html
-
-**Mitch McConnell Endorses Trump, Whom He Once Denounced**\
-`The Kentucky Republican, who plans to step down as Senate minority leader at the end of the year, had blamed the former president’s lies about the 2020 election for the Jan. 6 riot.`\
-https://nytimes.com/2024/03/06/us/politics/mcconnell-endorses-trump.html
-
-**Haley’s Failed Campaign Highlights G.O.P. Rifts and Trump’s Dominance**\
-`Falling well short in a spirited campaign to dethrone Mr. Trump, Ms. Haley brought to a close the latest struggle over the soul and direction of the Republican Party.`\
-https://nytimes.com/2024/03/06/us/politics/nikki-haley-drops-out-trump.html
-
-**N.T.S.B. Says Boeing Has Not Provided Key Information in 737 Max Inquiry**\
-`The National Transportation Safety Board is trying to get the plane maker to turn over documentation and provide the names of employees, the safety board’s chairwoman told a Senate committee.`\
-https://nytimes.com/2024/03/06/us/politics/ntsb-boeing-737-max.html
-
-**Off the Board Game, Onto the Digital Canvas**\
-`Are role-playing games enriching culture, or destroying it? In two shows, the artist Simon Denny spoofs the grandiose fantasy worlds of tech entrepreneurs designing virtual reality.`\
-https://nytimes.com/2024/03/06/arts/design/simon-denny-art-computers-gaming-review-musk-grimes.html
 
