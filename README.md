@@ -1,3 +1,7 @@
+**Atom Bombs in Space Are Back to Scare Us Again**\
+`Russian President Vladimir V. Putin may find that a nuclear weapon in orbit is less useful for war than intimidation.`\
+https://nytimes.com/2024/03/06/science/space-nuclear-bomb-putin.html
+
 **California’s Primary Results: What We Know So Far**\
 `Representative Adam Schiff and the former M.L.B. player Steve Garvey will face off in November for a U.S. Senate seat.`\
 https://nytimes.com/2024/03/06/us/california-super-tuesday-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/nyregion/nyc-forecast-rain-flood.html
 **Israel Rejects Far-Right Plan for New Limits on Access to Important Mosque**\
 `As the Muslim holy month of Ramadan approaches, the move may reduce tensions at the Aqsa Mosque compound, which has long been a flashpoint for unrest.`\
 https://nytimes.com/2024/03/06/world/middleeast/israel-aqsa-mosque-ramadan.html
-
-**The Election is Set**\
-`The primaries are effectively over —  and the general election begins.`\
-https://nytimes.com/2024/03/06/briefing/super-tuesday-2024-election-haley-trump-biden.html
 
