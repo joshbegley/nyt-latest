@@ -1,3 +1,7 @@
+**Please, President Biden: Don’t Blame Corporate Greed for Inflation**\
+`Instead of casting blame, Biden should tout what he’s done to ease Americans’ financial pressures.`\
+https://nytimes.com/2024/03/06/opinion/biden-inflation-greed-profits.html
+
 **What’s in Our Queue? ‘Alex Neptune’ and More**\
 `I’m the Asia business correspondent for The New York Times. Here are five things I’ve been watching, reading and listening to.`\
 https://nytimes.com/interactive/2024/03/06/arts/editors-recommendations-alexneptune.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/05/opinion/thepoint/haley-withdraw-endorse
 **Haiti Engulfed by Crisis as Gangs Press Prime Minister to Step Down**\
 `The power struggle in Haiti is raising pressure on the United States to ease tensions while casting doubt on plans for a Kenyan-led security mission.`\
 https://nytimes.com/2024/03/06/world/americas/haiti-gangs-prime-minister.html
-
-**Alabama Bill to Protect I.V.F. Will Reopen Clinics but Curb Patient Rights**\
-`Here’s what to know about the legislation, which the state legislature is expected to approve overwhelmingly on Wednesday.`\
-https://nytimes.com/2024/03/06/health/ivf-law-alabama.html
 
