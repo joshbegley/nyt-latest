@@ -6,9 +6,9 @@ https://nytimes.com/2024/03/06/books/gabriel-garcia-marquez-last-novel-until-aug
 `Once a year, the premier held a news conference, explaining the economy and giving Chinese a taste of political participation. That has come to an end.`\
 https://nytimes.com/2024/03/06/business/china-national-peoples-congress.html
 
-**On a bright night for his campaign, Trump again conjures a dark vision.**\
+**On a Bright Night for His Campaign, Trump Again Conjures a Dark Vision**\
 `As he dominated the Super Tuesday battlefield, former President Donald Trump warned of dark days ahead if President Biden were to win a second term. “We’re a third-world country,” he said repeatedly.`\
-https://nytimes.com/live/2024/03/05/us/super-tuesday-election-updates/on-a-bright-night-for-his-campaign-trump-again-conjures-a-dark-vision
+https://nytimes.com/2024/03/05/us/politics/on-a-bright-night-for-his-campaign-trump-again-conjures-a-dark-vision.html
 
 **‘Uncommitted’ Voters Show Strength Against Biden in Minnesota**\
 `The effort to pressure the president over his support for Israel garnered a sizable share of the vote, despite being more hastily organized. Voters in other states also voiced unease.`\
