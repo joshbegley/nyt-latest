@@ -4,7 +4,7 @@ https://nytimes.com/2024/03/06/briefing/super-tuesday-2024-election-haley-trump-
 
 **Haley Expected to Drop Out, and Bitcoin Completes Comeback**\
 `Plus, bad blood in Southeast Asia over Taylor Swift’s tour.`\
-https://nytimes.com/2024/03/06/podcasts/super-tuesday-exposed-vulnerabilities-for-trump-and-biden-and-bitcoin-completes-comeback.html
+https://nytimes.com/2024/03/06/podcasts/nikki-haley-super-tuesday-bitcoin.html
 
 **The Unhappy Voters Who Could Swing the Election**\
 `In 2020 as in 2016, a potentially decisive slice of the electorate dislikes both main candidates. That could make for a volatile race.`\
