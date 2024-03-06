@@ -1,3 +1,7 @@
+**The One Thing You Need Next Season**\
+`Louis Vuitton, Chanel and Miu Miu bring the ready-to-wear shows to an end. What’s the takeaway?`\
+https://nytimes.com/2024/03/06/style/louis-vuitton-chanel-miu-miu.html
+
 **Displaced Gazans Are Hoping for a Cease-Fire**\
 `Palestinians living in tents in Rafah, Gaza, are hoping for a cease-fire and an end to the war so they can return to their homes.`\
 https://nytimes.com/video/world/middleeast/100000009343851/gaza-ceasefire-hopes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/technology/personaltech/mobile-wallet-app.html
 **The 2020 Election Is Back**\
 `Donald J. Trump begins the 2024 general election campaign in the lead.`\
 https://nytimes.com/2024/03/06/upshot/biden-trump-super-tuesday.html
-
-**Texas Fires Bring Loss to a Small Town That Already Knows It Well**\
-`Fritch has endured tornadoes and wildfires over the years, and a fire now burning through the Panhandle struck dozens of homes. On Tuesday, the fire chief died fighting a house fire.`\
-https://nytimes.com/2024/03/06/us/texas-panhandle-fires.html
 
