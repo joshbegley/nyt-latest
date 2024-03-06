@@ -1,3 +1,7 @@
+**In Showdown Over G.O.P. Control in Texas, the Race for House Speaker’s Seat Heads to a Runoff**\
+`Dade Phelan’s failure to secure his seat on Tuesday indicated that fights over the future direction of the Republican Party in Texas would continue roiling the state.`\
+https://nytimes.com/2024/03/06/us/politics/texas-house-races.html
+
 **Gabriel García Márquez Wanted to Destroy His Last Novel. It’s About to Be Published.**\
 `The publication of “Until August” adds an surprising twist to his legacy, and may stir questions about posthumous releases that contradict a writer’s directives.`\
 https://nytimes.com/2024/03/06/books/gabriel-garcia-marquez-last-novel-until-august.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/pageoneplus/quotation-of-the-day-she-boxes-she-co
 **Little-Known Democrat Beats Biden in American Samoa**\
 `Jason Palmer, an entrepreneur from Maryland, was the only candidate to campaign in the island territory. He collected four of the six delegates awarded in the caucus.`\
 https://nytimes.com/2024/03/05/us/politics/biden-american-samoa-jason-palmer.html
-
-**Nikki Haley Wins Vermont, Her Second Victory Against Trump**\
-`The win signals her limited strength in places with large numbers of younger people, college-educated voters and independents.`\
-https://nytimes.com/2024/03/05/us/politics/nikki-haley-wins-vermont.html
 
