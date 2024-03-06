@@ -1,3 +1,7 @@
+**Colin Allred Wins Democratic Contest to Take On Senator Ted Cruz**\
+`The Dallas-area congressman presented himself as an across-the-aisle politician who could appeal to a wide range of voters.`\
+https://nytimes.com/2024/03/05/us/politics/colin-allred-democrat-texas-senate.html
+
 **Schiff advances in the California Senate race for Feinstein’s seat.**\
 `By Shawn Hubler`\
 https://nytimes.com/2024/03/05/us/politics/california-senate-schiff-garvey.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/podcasts/transcript-ezra-klein-interviews-marilyn
 **Something to Bat Around**\
 `Brad Wiegmann figures he can trick us. And he does.`\
 https://nytimes.com/2024/03/05/crosswords/daily-puzzle-2024-03-06.html
-
-**North Carolina Republicans Pick Their Man, and He’s a Doozy**\
-`But a Democrat might beat him in November by focusing on voter concerns.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/robinson-governor-north-carolina
 
