@@ -1,3 +1,7 @@
+**Expecting Protests at the Oscars, Police Plan to Beef Up Security**\
+`The Los Angeles police said it would increase its presence at the Academy Awards, given the potential for protests related to the Israel-Hamas war.`\
+https://nytimes.com/2024/03/06/arts/oscars-security-protests-police.html
+
 **‘Martin Luther King on Steroids’? Meet a Perfect MAGA Mirror.**\
 `Trump’s pick for North Carolina governor is, like Trump himself, all about ire.`\
 https://nytimes.com/2024/03/06/opinion/trump-mark-robinson-north-carolina.html
