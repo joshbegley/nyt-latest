@@ -1,3 +1,7 @@
+**Supper Clubs in New York Are a Vanishing Breed. Café Carlyle Is Keeping the Tradition Alive**\
+`Any night at the Upper East Side’s nearly 70-year-old cabaret still feels like a big night out.`\
+https://nytimes.com/2024/03/06/t-magazine/cafe-carlyle-cabaret-supper-club-new-york.html
+
 **Expecting Protests at the Oscars, Police Plan to Beef Up Security**\
 `The Los Angeles police said it would increase its presence at the Academy Awards, given the potential for protests related to the Israel-Hamas war.`\
 https://nytimes.com/2024/03/06/arts/oscars-security-protests-police.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/world/europe/josette-molland-dead.html
 **House Passes Bipartisan $460 Billion Spending Bill to Avert a Partial Shutdown**\
 `Staring down yet another spending deadline, Speaker Mike Johnson again relied on Democratic votes to push through a six-bill package to fund about half the government through the fall.`\
 https://nytimes.com/2024/03/06/us/politics/house-spending-bill-shutdown.html
-
-**Do You Have Experience Working With Boeing? We Want to Hear From You.**\
-`Boeing’s quality control practices have been criticized after a panel on one of the company’s 737 Max jets blew open during a flight in January.`\
-https://nytimes.com/2024/03/06/business/boeing-safety-quality-control.html
 
