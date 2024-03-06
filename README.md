@@ -1,3 +1,7 @@
+**Apple Blocks Epic Games From Using iPhone Tools in Escalation of Feud**\
+`The move tests the European Union’s new tech competition law, which was designed to allow competing app stores.`\
+https://nytimes.com/2024/03/06/technology/apple-epic-games-feud.html
+
 **girl in red: The Popcast (Deluxe) Interview**\
 `An interview with the Norwegian singer girl in red (Marie Ulven) about her second album, “I’m Doing It Again Baby!,” opening for Taylor Swift and more.`\
 https://nytimes.com/2024/03/06/arts/music/girl-in-red-interview-popcast-deluxe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/world/europe/navalny-grave-russia.html
 **A Comforting Rice Dish That Won’t Break the Bank**\
 `Adas polo, a Persian recipe perfumed with cinnamon and layered with caramelized onions and dates, only feels expensive.`\
 https://nytimes.com/2024/03/06/dining/persian-rice-recipe.html
-
-**Bracing for a Trump Rematch, Biden Confronts Four Thorny Challenges**\
-`Before his State of the Union address, the president faces several political problems that are largely out of his control and present dangers to his re-election bid.`\
-https://nytimes.com/2024/03/06/us/politics/biden-democrats-state-of-the-union.html
 
