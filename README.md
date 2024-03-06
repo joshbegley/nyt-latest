@@ -1,3 +1,11 @@
+**There Was Always Crying in Sports. The Kelces Made It Cool.**\
+`A tear-filled retirement announcement was just the latest instance of Jason and Travis Kelce, two of the toughest guys around, putting their emotions on full display.`\
+https://nytimes.com/2024/03/06/style/jason-kelce-crying.html
+
+**National Guard and State Police Will Patrol the Subways and Check Bags**\
+`Gov. Kathy Hochul, amid a series of violent crimes on the subway, said she would deploy 1,000 members of the State Police and National Guard to the transit system.`\
+https://nytimes.com/2024/03/06/nyregion/subway-national-guard-police.html
+
 **‘Bérénice’ Review: Crushed by Isabelle Huppert’s Star Power**\
 `Romeo Castellucci’s production of the classic play by Jean Racine is all about the lead performer — and that’s it.`\
 https://nytimes.com/2024/03/06/theater/berenice-isabelle-huppert-romeo-castellucci.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/06/business/uk-budget-tax-cut-election.html
 **Atom Bombs in Space Are Back to Scare Us Again**\
 `Russian President Vladimir V. Putin may find that a nuclear weapon in orbit is less useful for war than intimidation.`\
 https://nytimes.com/2024/03/06/science/space-nuclear-bomb-putin.html
-
-**California’s Primary Results: What We Know So Far**\
-`Representative Adam Schiff and the former M.L.B. player Steve Garvey will face off in November for a U.S. Senate seat.`\
-https://nytimes.com/2024/03/06/us/california-super-tuesday-election.html
-
-**Why Won’t Our Daughter Introduce Us to Her New Boyfriend?**\
-`Parents who enjoy an otherwise close relationship with their 33-year-old daughter feel hurt not to have been introduced to a man she met three months ago and with whom she now lives.`\
-https://nytimes.com/2024/03/06/style/children-partners-introductions.html
 
