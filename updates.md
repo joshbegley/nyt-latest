@@ -1,3 +1,7 @@
+**‘Uncommitted’ Effort to Protest Biden Will Shift Its Focus to Washington State**\
+`The campaign is urging Democrats to register their discontent with President Biden’s handling of the war in Gaza by voting “uncommitted.” Washington’s primary is on Tuesday.`\
+https://nytimes.com/2024/03/06/us/politics/uncommitted-biden-washington-state.html
+
 **Biden Promised Calm After Trump Chaos, but the World Has Not Cooperated**\
 `Inflation, an explosion of migration at the border and wars in Europe and the Middle East have created a sense of instability that polls show have eroded his support.`\
 https://nytimes.com/2024/03/06/us/politics/biden-trump-chaos.html
