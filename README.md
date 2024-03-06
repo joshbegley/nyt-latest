@@ -1,3 +1,11 @@
+**Josette Molland, Who Told of Life in Nazi Camps Through Art, Dies at 100**\
+`She endured horrors as a captured member of the French Resistance and — to ensure that her story, too, would survive — depicted them years later in a series of stark paintings.`\
+https://nytimes.com/2024/03/06/world/europe/josette-molland-dead.html
+
+**House Passes Bipartisan $460 Billion Spending Bill to Avert a Partial Shutdown**\
+`Staring down yet another spending deadline, Speaker Mike Johnson again relied on Democratic votes to push through a six-bill package to fund about half the government through the fall.`\
+https://nytimes.com/2024/03/06/us/politics/house-spending-bill-shutdown.html
+
 **Do You Have Experience Working With Boeing? We Want to Hear From You.**\
 `Boeing’s quality control practices have been criticized after a panel on one of the company’s 737 Max jets blew open during a flight in January.`\
 https://nytimes.com/2024/03/06/business/boeing-safety-quality-control.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/06/us/politics/uncommitted-biden-washington-state.ht
 **Biden Promised Calm After Trump Chaos, but the World Has Not Cooperated**\
 `Inflation, an explosion of migration at the border and wars in Europe and the Middle East have created a sense of instability that polls show have eroded his support.`\
 https://nytimes.com/2024/03/06/us/politics/biden-trump-chaos.html
-
-**After 217 Covid Vaccines, Man Had No Side Effects and Robust Immunity**\
-`Media accounts of a German man’s extreme vaccination history spurred researchers to analyze his immune responses.`\
-https://nytimes.com/2024/03/06/health/217-covid-vaccines.html
-
-**The Trump-Biden Rematch Is Here. Americans Are Processing.**\
-`They’ve worked through denial, bargaining and grief over the 2024 matchup. Are discontented voters inching toward acceptance?`\
-https://nytimes.com/2024/03/06/us/politics/trump-biden-presidential-campaign.html
 
