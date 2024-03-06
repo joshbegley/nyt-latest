@@ -1,3 +1,15 @@
+**Gabriel García Márquez Wanted to Destroy His Last Novel. It’s About to Be Published.**\
+`The publication of “Until August” adds an surprising twist to his legacy, and may stir questions about posthumous releases that contradict a writer’s directives.`\
+https://nytimes.com/2024/03/06/books/gabriel-garcia-marquez-last-novel-until-august.html
+
+**A Tiny Window Into Chinese Government Has Now Slammed Shut**\
+`Once a year, the premier held a news conference, explaining the economy and giving Chinese a taste of political participation. That has come to an end.`\
+https://nytimes.com/2024/03/06/business/china-national-peoples-congress.html
+
+**On a bright night for his campaign, Trump again conjures a dark vision.**\
+`As he dominated the Super Tuesday battlefield, former President Donald Trump warned of dark days ahead if President Biden were to win a second term. “We’re a third-world country,” he said repeatedly.`\
+https://nytimes.com/live/2024/03/05/us/super-tuesday-election-updates/on-a-bright-night-for-his-campaign-trump-again-conjures-a-dark-vision
+
 **‘Uncommitted’ Voters Show Strength Against Biden in Minnesota**\
 `The effort to pressure the president over his support for Israel garnered a sizable share of the vote, despite being more hastily organized. Voters in other states also voiced unease.`\
 https://nytimes.com/2024/03/05/us/politics/biden-uncommitted-protest-vote-minnesota.html
@@ -6,8 +18,8 @@ https://nytimes.com/2024/03/05/us/politics/biden-uncommitted-protest-vote-minnes
 `The Dallas-area congressman presented himself as an across-the-aisle politician who could appeal to a wide range of voters.`\
 https://nytimes.com/2024/03/05/us/politics/colin-allred-democrat-texas-senate.html
 
-**Schiff Advances in the California Senate Race for Feinstein’s Seat**\
-`With Representative Adam Schiff securing a spot in the November runoff, Republican Steve Garvey, a former baseball star, and Representative Katie Porter, an Orange County Democrat, were battling for the second spot.`\
+**Schiff and Garvey Advance in the California Senate Race for Feinstein’s Seat.**\
+`Representative Adam Schiff, a prominent antagonist of former President Donald J. Trump, will face Steve Garvey, a Republican former baseball star, in a November runoff.`\
 https://nytimes.com/2024/03/05/us/politics/california-senate-schiff-garvey.html
 
 **Corrections: March 6, 2024**\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/05/us/politics/biden-american-samoa-jason-palmer.htm
 **Nikki Haley Wins Vermont, Her Second Victory Against Trump**\
 `The win signals her limited strength in places with large numbers of younger people, college-educated voters and independents.`\
 https://nytimes.com/2024/03/05/us/politics/nikki-haley-wins-vermont.html
-
-**OpenAI Says Elon Musk Tried to Merge It With Tesla**\
-`In its first public comment since Mr. Musk sued the artificial intelligence lab, OpenAI claims he tried to commercialize its operations years ago.`\
-https://nytimes.com/2024/03/05/technology/openai-elon-musk-tesla.html
-
-**Houston’s District Attorney Concedes in Democratic Primary**\
-`The incumbent, Kim Ogg, had made herself a lightning rod within her party by tacking to the center and clashing with fellow Democrats.`\
-https://nytimes.com/2024/03/05/us/politics/houston-district-attorney-kim-ogg.html
-
-**Transcript: Ezra Klein Interviews Marilynne Robinson**\
-`The March 5, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/03/05/podcasts/transcript-ezra-klein-interviews-marilynne-robinson.html
 
