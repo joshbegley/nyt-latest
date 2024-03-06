@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘Alex Neptune’ and More**\
+`I’m the Asia business correspondent for The New York Times. Here are five things I’ve been watching, reading and listening to.`\
+https://nytimes.com/interactive/2024/03/06/arts/editors-recommendations-alexneptune.html
+
 **Review: Lucid Dreaming, Person to Person**\
 `In Ursula Eagly’s “Dream Body Body Building” at the Chocolate Factory, the dancers seem to be transmitting a dream state to the audience.`\
 https://nytimes.com/2024/03/06/arts/dance/review-ursula-eagly-dream-body-body-building.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/world/americas/haiti-gangs-prime-minister.html
 **Alabama Bill to Protect I.V.F. Will Reopen Clinics but Curb Patient Rights**\
 `Here’s what to know about the legislation, which the state legislature is expected to approve overwhelmingly on Wednesday.`\
 https://nytimes.com/2024/03/06/health/ivf-law-alabama.html
-
-**Onstage in Chicago, Zach Bryan Howled, and the Crowd Found Its Voice**\
-`The singer and songwriter has become one of pop’s least expected new stars. On opening night of his arena tour, he showcased the bond with his fans that brought him there.`\
-https://nytimes.com/2024/03/06/arts/music/zach-bryan-quittin-time-tour-review.html
 
