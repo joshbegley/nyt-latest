@@ -2,7 +2,7 @@
 `The publication of “Until August” adds an surprising twist to his legacy, and may stir questions about posthumous releases that contradict a writer’s directives.`\
 https://nytimes.com/2024/03/06/books/gabriel-garcia-marquez-last-novel-until-august.html
 
-**A Tiny Window Into Chinese Government Has Now Slammed Shut**\
+**A Window Into Chinese Government Has Now Slammed Shut**\
 `Once a year, the premier held a news conference, explaining the economy and giving Chinese a taste of political participation. That has come to an end.`\
 https://nytimes.com/2024/03/06/business/china-national-peoples-congress.html
 
