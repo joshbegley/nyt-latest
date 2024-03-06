@@ -1,3 +1,7 @@
+**Israeli war cabinet member to meet with British foreign secretary as allies push for a cease-fire.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/israeli-war-cabinet-member-to-meet-with-british-foreign-secretary-as-allies-push-for-a-cease-fire
+
 **Late Night Finds Super Tuesday Super Predictable**\
 `“Spoiler: It’s Biden/Trump,” Stephen Colbert said. “It’s always been Biden/Trump. It will always be Biden/Trump.”`\
 https://nytimes.com/2024/03/06/arts/television/late-night-super-tuesday.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news
 **The W.F.P. says it was turned away as desperation intensifies.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/aid-group-says-it-was-turned-away-as-desperation-intensifies
-
-**Word of the Day: eventuality**\
-`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/03/06/learning/word-of-the-day-eventuality.html
 
