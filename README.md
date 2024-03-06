@@ -1,3 +1,7 @@
+**Expecting Protests at the Oscars, Police Plan to Beef Up Security**\
+`The Los Angeles police said it would increase its presence at the Academy Awards, given the potential for protests related to the Israel-Hamas war.`\
+https://nytimes.com/2024/03/06/arts/oscars-security-protests-police.html
+
 **‘Martin Luther King on Steroids’? Meet a Perfect MAGA Mirror.**\
 `Trump’s pick for North Carolina governor is, like Trump himself, all about ire.`\
 https://nytimes.com/2024/03/06/opinion/trump-mark-robinson-north-carolina.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/us/politics/house-spending-bill-shutdown.html
 **Do You Have Experience Working With Boeing? We Want to Hear From You.**\
 `Boeing’s quality control practices have been criticized after a panel on one of the company’s 737 Max jets blew open during a flight in January.`\
 https://nytimes.com/2024/03/06/business/boeing-safety-quality-control.html
-
-**New York Community Bank Raises $1 Billion in Emergency Cash**\
-`Investors include Steven Mnuchin, who joined the board of the struggling midsize lender.`\
-https://nytimes.com/2024/03/06/business/nycb-overhaul-cash-mnuchin.html
 
