@@ -14,7 +14,7 @@ https://nytimes.com/2024/03/05/us/politics/biden-american-samoa-jason-palmer.htm
 `The win signals her limited strength in places with large numbers of younger people, college-educated voters and independents.`\
 https://nytimes.com/2024/03/05/us/politics/nikki-haley-wins-vermont.html
 
-**OpenAI Says Elon Musk Tried To Merge It With Tesla**\
+**OpenAI Says Elon Musk Tried to Merge It With Tesla**\
 `In its first public comment since Mr. Musk sued the artificial intelligence lab, OpenAI claims he tried to commercialize its operations years ago.`\
 https://nytimes.com/2024/03/05/technology/openai-elon-musk-tesla.html
 
