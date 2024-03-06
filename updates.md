@@ -1,3 +1,7 @@
+**Drake Bell Will Detail Abuse He Suffered as a Child Star**\
+`The former Nickelodeon actor is set to describe sexual abuse he experienced at the hands of a former dialogue coach, according to a new docuseries. Court documents detail the back story.`\
+https://nytimes.com/2024/03/06/arts/television/drake-bell-sexual-abuse-docuseries.html
+
 **‘Uncommitted’ Effort to Protest Biden Will Shift Its Focus to Washington State**\
 `The campaign is urging Democrats to register their discontent with President Biden’s handling of the war in Gaza by voting “uncommitted.” Washington’s primary is on Tuesday.`\
 https://nytimes.com/2024/03/06/us/politics/uncommitted-biden-washington-state.html

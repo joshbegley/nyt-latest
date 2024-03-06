@@ -1,3 +1,7 @@
+**Drake Bell Will Detail Abuse He Suffered as a Child Star**\
+`The former Nickelodeon actor is set to describe sexual abuse he experienced at the hands of a former dialogue coach, according to a new docuseries. Court documents detail the back story.`\
+https://nytimes.com/2024/03/06/arts/television/drake-bell-sexual-abuse-docuseries.html
+
 **‘Uncommitted’ Effort to Protest Biden Will Shift Its Focus to Washington State**\
 `The campaign is urging Democrats to register their discontent with President Biden’s handling of the war in Gaza by voting “uncommitted.” Washington’s primary is on Tuesday.`\
 https://nytimes.com/2024/03/06/us/politics/uncommitted-biden-washington-state.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/opinion/biden-inflation-greed-profits.html
 **What’s in Our Queue? ‘Alex Neptune’ and More**\
 `I’m the Asia business correspondent for The New York Times. Here are five things I’ve been watching, reading and listening to.`\
 https://nytimes.com/interactive/2024/03/06/arts/editors-recommendations-alexneptune.html
-
-**Review: Lucid Dreaming, Person to Person**\
-`In Ursula Eagly’s “Dream Body Body Building” at the Chocolate Factory, the dancers seem to be transmitting a dream state to the audience.`\
-https://nytimes.com/2024/03/06/arts/dance/review-ursula-eagly-dream-body-body-building.html
 
