@@ -1,3 +1,11 @@
+**Haley Dropped Out, Making Way for a Biden-Trump Rematch**\
+`Also, National Guard troops will patrol New York’s subway. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/03/06/briefing/haley-drops-out-national-guard-new-york-subway.html
+
+**Nearly Half the States Sue E.P.A. Over New Limits on Deadly Pollution**\
+`Republican attorneys general from 24 states said the crackdown on fine industrial particles would raise costs. The E.P.A. said it would save lives.`\
+https://nytimes.com/2024/03/06/climate/epa-soot-lawsuit.html
+
 **Before N.Y.C. Snow Day Debacle, IBM Had Warned of Tech Limitations**\
 `Technical failures blocked thousands of students who tried to log on to school during a snowstorm. At a City Council hearing on Wednesday, an IBM official said it wasn’t the company’s fault.`\
 https://nytimes.com/2024/03/06/nyregion/remote-class-technical-problems-nyc-schools-ibm.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/06/us/politics/donald-trump-primary-wins.html
 **One Twin Was Hurt, the Other Was Not. Their Adult Mental Health Diverged.**\
 `A large study of “discordant twins,” in which only one suffered abuse or neglect, adds to evidence linking childhood trauma to adult illness.`\
 https://nytimes.com/2024/03/06/health/one-twin-was-hurt-the-other-was-not-their-adult-mental-health-diverged.html
-
-**Josette Molland’s Testimony: Scenes of Life in Nazi Camps**\
-`In her 80s, she created a series of paintings depicting the horrors she endured in forced-labor camps during World War II.`\
-https://nytimes.com/2024/03/06/world/europe/josette-mollands-paintings.html
-
-**Josette Molland, Who Told of Life in Nazi Camps Through Art, Dies at 100**\
-`She endured horrors as a captured member of the French Resistance and — to ensure that her story, too, would survive — depicted them years later in a series of stark paintings.`\
-https://nytimes.com/2024/03/06/world/europe/josette-molland-dead.html
 

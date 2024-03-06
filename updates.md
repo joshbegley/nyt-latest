@@ -1,3 +1,11 @@
+**Haley Dropped Out, Making Way for a Biden-Trump Rematch**\
+`Also, National Guard troops will patrol New York’s subway. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/03/06/briefing/haley-drops-out-national-guard-new-york-subway.html
+
+**Nearly Half the States Sue E.P.A. Over New Limits on Deadly Pollution**\
+`Republican attorneys general from 24 states said the crackdown on fine industrial particles would raise costs. The E.P.A. said it would save lives.`\
+https://nytimes.com/2024/03/06/climate/epa-soot-lawsuit.html
+
 **Before N.Y.C. Snow Day Debacle, IBM Had Warned of Tech Limitations**\
 `Technical failures blocked thousands of students who tried to log on to school during a snowstorm. At a City Council hearing on Wednesday, an IBM official said it wasn’t the company’s fault.`\
 https://nytimes.com/2024/03/06/nyregion/remote-class-technical-problems-nyc-schools-ibm.html
