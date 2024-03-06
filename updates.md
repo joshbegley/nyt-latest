@@ -1,3 +1,15 @@
+**I.M.F. Agrees to Much Larger Rescue Package for Egypt**\
+`The International Monetary Fund will provide $8 billion to Egypt, which is going through its worst economic crisis in decades.`\
+https://nytimes.com/2024/03/06/world/middleeast/egypt-imf-package-economy.html
+
+**Was Trump’s Nomination Always Inevitable?**\
+`As recently as a year ago, less than half of Republican voters named Trump as their preferred candidate.`\
+https://nytimes.com/2024/03/06/us/politics/trump-nomination-republican-candidate.html
+
+**‘Rust’ Armorer Convicted of Manslaughter in Alec Baldwin Shooting**\
+`The armorer, Hannah Gutierrez-Reed, had placed a live round in a gun the actor was rehearsing with when it fired, killing the film’s cinematographer, Halyna Hutchins.`\
+https://nytimes.com/2024/03/06/arts/rust-armorer-convicted-alec-baldwin-shooting.html
+
 **Cruise Ship Worker Accused of Hiding Cameras in Bathrooms to Spy on Guests**\
 `The former employee of Royal Caribbean told investigators that he had been secretly recording people since he started working there in December 2023. He faces federal and state charges.`\
 https://nytimes.com/2024/03/06/us/royal-caribbean-cruise-bathroom-charges.html
