@@ -31,7 +31,7 @@ https://nytimes.com/2024/03/06/crosswords/wordle-review.html
 https://nytimes.com/2024/03/06/crosswords/spelling-bee-forum.html
 
 **06mideast-crisis**\
-`Israeli’s Military Turns Back Convoy Trying to Get Food Into Gaza, U.N. Agency Says`\
+`Israel’s Military Turns Back Convoy Trying to Get Food Into Gaza, U.N. Agency Says`\
 https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news
 
 **The W.F.P. says it was turned away as desperation intensifies.**\
