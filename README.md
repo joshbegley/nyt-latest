@@ -1,3 +1,7 @@
+**Haley’s Failed Campaign Highlights G.O.P. Rifts and Trump’s Dominance**\
+`Falling well short in a spirited campaign to dethrone Mr. Trump, Ms. Haley brought to a close the latest struggle over the soul and direction of the Republican Party.`\
+https://nytimes.com/2024/03/06/us/politics/nikki-haley-drops-out-trump.html
+
 **N.T.S.B. Says Boeing Has Not Provided Key Information in 737 Max Inquiry**\
 `The National Transportation Safety Board is trying to get the plane maker to turn over documentation and provide the names of employees, the safety board’s chairwoman told a Senate committee.`\
 https://nytimes.com/2024/03/06/us/politics/ntsb-boeing-737-max.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/movies/ricky-stanicky-review.html
 **Full Transcript of Nikki Haley’s Remarks as She Dropped Out of G.O.P. Primary**\
 `Nikki Haley wished Donald J. Trump well, but she did not endorse him.`\
 https://nytimes.com/2024/03/06/us/politics/haley-out-speech-transcript.html
-
-**My Spouse Is the Breadwinner. How Should We Divvy Assets in the Divorce?**\
-`The magazine’s Ethicist columnist on how to equitably divide marital assets after a split.`\
-https://nytimes.com/2024/03/06/magazine/breadwinner-assets-divorce-ethics.html
 
