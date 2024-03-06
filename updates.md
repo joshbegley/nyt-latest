@@ -1,3 +1,7 @@
+**Biden Promised Calm After Trump Chaos, but the World Has Not Cooperated**\
+`Inflation, an explosion of migration at the border and wars in Europe and the Middle East have created a sense of instability that polls show have eroded his support.`\
+https://nytimes.com/2024/03/06/us/politics/biden-trump-chaos.html
+
 **After 217 Covid Vaccines, Man Had No Side Effects and Robust Immunity**\
 `Media accounts of a German man’s extreme vaccination history spurred researchers to analyze his immune responses.`\
 https://nytimes.com/2024/03/06/health/217-covid-vaccines.html
