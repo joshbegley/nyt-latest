@@ -1,3 +1,7 @@
+**North Carolina Republicans Pick Their Man, and He’s a Doozy**\
+`But a Democrat might beat him in November by focusing on voter concerns.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/robinson-governor-north-carolina
+
 **International Court Accuses 2 Russian Officers of War Crimes in Ukraine**\
 `Arrest warrants were issued by the International Criminal Court for two military officials, a general and an admiral, both accused of targeting civilians and destroying crucial energy infrastructure.`\
 https://nytimes.com/2024/03/05/world/europe/international-court-russia-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/05/nyregion/juan-orlando-hernandez-honduras-drug-tra
 **Andrew Cuomo Faces House Subpoena Over Covid Deaths in Nursing Homes**\
 `Mr. Cuomo was accused of stonewalling a House subcommittee trying to interview him about his administration’s handling of nursing homes during the Covid pandemic.`\
 https://nytimes.com/2024/03/05/nyregion/cuomo-covid-nursing-homes-subpoena.html
-
-**Venezuela Announces Election Date, With Opposition Candidate Still Banned**\
-`The decision to hold a vote on July 28 is a partial fulfillment of a commitment to the United States, but with the top opposition figure barred, many wondered how free and fair the balloting would be.`\
-https://nytimes.com/2024/03/05/world/americas/venezuela-maduro-election-date.html
 
