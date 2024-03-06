@@ -1,3 +1,7 @@
+**Alabama Bill to Protect I.V.F. Will Reopen Clinics but Curb Patient Rights**\
+`Here’s what to know about the legislation, which the state legislature is expected to approve overwhelmingly on Wednesday.`\
+https://nytimes.com/2024/03/06/health/ivf-law-alabama.html
+
 **Onstage in Chicago, Zach Bryan Howled, and the Crowd Found Its Voice**\
 `The singer and songwriter has become one of pop’s least expected new stars. On opening night of his arena tour, he showcased the bond with his fans that brought him there.`\
 https://nytimes.com/2024/03/06/arts/music/zach-bryan-quittin-time-tour-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/us/politics/adam-schiff-speech-gaza-protest.html
 **Steve Garvey’s Improbable Rise, Decades After His Baseball Heyday**\
 `The former Major League Baseball star running for the Senate faces long odds in Democratic-run California. He hopes to appeal to voters who are frustrated — and love a good sports analogy.`\
 https://nytimes.com/2024/03/06/us/steve-garvey-senate-california-primary.html
-
-**Apple Blocks Epic Games From Using iPhone Tools in Escalation of Feud**\
-`The move tests the European Union’s new tech competition law, which was designed to allow competing app stores.`\
-https://nytimes.com/2024/03/06/technology/apple-epic-games-feud.html
 

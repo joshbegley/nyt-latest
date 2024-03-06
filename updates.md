@@ -1,3 +1,7 @@
+**Alabama Bill to Protect I.V.F. Will Reopen Clinics but Curb Patient Rights**\
+`Here’s what to know about the legislation, which the state legislature is expected to approve overwhelmingly on Wednesday.`\
+https://nytimes.com/2024/03/06/health/ivf-law-alabama.html
+
 **Onstage in Chicago, Zach Bryan Howled, and the Crowd Found Its Voice**\
 `The singer and songwriter has become one of pop’s least expected new stars. On opening night of his arena tour, he showcased the bond with his fans that brought him there.`\
 https://nytimes.com/2024/03/06/arts/music/zach-bryan-quittin-time-tour-review.html
