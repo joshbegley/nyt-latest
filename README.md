@@ -1,3 +1,7 @@
+**The Unhappy Voters Who Could Swing the Election**\
+`In 2020 as in 2016, a potentially decisive slice of the electorate dislikes both main candidates. That could make for a volatile race.`\
+https://nytimes.com/2024/03/06/podcasts/the-daily/swing-voters-election.html
+
 **Truce talks have been an exhausting tangle of emotions for Gazans.**\
 `“It’s a form of psychological torture,” said one man in Rafah. “It’s unbearable. We’re told one day that the war is ending and then the opposite the next day.”`\
 https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/truce-talks-have-been-an-exhausting-tangle-of-emotions-for-gazans
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/opinion/feud-swans-paley.html
 **The Privileges and Pitfalls of Making Movies About Real People**\
 `The Oscars slate this year is packed with films rooted in historical events and biographies. How much influence should the subjects have?`\
 https://nytimes.com/2024/03/06/movies/oppenheimer-maestro-rustin-may-december.html
-
-**Why Power Eludes the French Left**\
-`France has often been the vanguard of leftist politics — but support in the streets doesn’t always translate to votes at the ballot box.`\
-https://nytimes.com/2024/03/06/magazine/french-left-politics-melenchon.html
 
