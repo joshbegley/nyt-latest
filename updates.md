@@ -1,3 +1,7 @@
+**‘Martin Luther King on Steroids’? Meet a Perfect MAGA Mirror.**\
+`Trump’s pick for North Carolina governor is, like Trump himself, all about ire.`\
+https://nytimes.com/2024/03/06/opinion/trump-mark-robinson-north-carolina.html
+
 **The Pioneer in College Sports Unionization Is … Dartmouth?**\
 `It won’t be the last, however.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/dartmouth-college-unionization

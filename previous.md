@@ -1,3 +1,7 @@
+**‘Martin Luther King on Steroids’? Meet a Perfect MAGA Mirror.**\
+`Trump’s pick for North Carolina governor is, like Trump himself, all about ire.`\
+https://nytimes.com/2024/03/06/opinion/trump-mark-robinson-north-carolina.html
+
 **The Pioneer in College Sports Unionization Is … Dartmouth?**\
 `It won’t be the last, however.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/dartmouth-college-unionization
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/business/boeing-safety-quality-control.html
 **New York Community Bank Raises $1 Billion in Emergency Cash**\
 `Investors include Steven Mnuchin, who joined the board of the struggling midsize lender.`\
 https://nytimes.com/2024/03/06/business/nycb-overhaul-cash-mnuchin.html
-
-**Thursday Briefing: Haley Drops Out**\
-`Also, Israel-Hamas talks stall before Ramadan.`\
-https://nytimes.com/2024/03/06/world/asia/haley-trump-hostage-gaza-asia.html
 
