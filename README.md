@@ -1,3 +1,11 @@
+**Protesters Interrupt Adam Schiff’s Victory Speech, Chanting ‘Cease-Fire Now’**\
+`The California Democrat was thrilled by Tuesday’s election results, but his celebration was tempered by protests of his support of Israel.`\
+https://nytimes.com/2024/03/06/us/politics/adam-schiff-speech-gaza-protest.html
+
+**Steve Garvey’s Improbable Rise, Decades After His Baseball Heyday**\
+`The former Major League Baseball star running for the Senate faces long odds in Democratic-run California. He hopes to appeal to voters who are frustrated — and love a good sports analogy.`\
+https://nytimes.com/2024/03/06/us/steve-garvey-senate-california-primary.html
+
 **Apple Blocks Epic Games From Using iPhone Tools in Escalation of Feud**\
 `The move tests the European Union’s new tech competition law, which was designed to allow competing app stores.`\
 https://nytimes.com/2024/03/06/technology/apple-epic-games-feud.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009346653/fed-interest-rates.html
 **What It Takes to Be an Award Show Writer**\
 `Jason Zinoman, a New York Times critic who writes the On Comedy column, explains the struggles of the underappreciated award show writing staff and how its job often goes beyond writing.`\
 https://nytimes.com/video/arts/television/100000009335368/diplomatic-skills-award-show-writers.html
-
-**Russians Flock to Navalny’s Grave as They Grapple With His Legacy**\
-`The loss of the optimism in the face of oppression espoused by Aleksei Navalny, Russia’s most prominent opposition leader, has hit many Russians hard. Now, as one mourner said, “I don’t have any vision of the future.”`\
-https://nytimes.com/2024/03/06/world/europe/navalny-grave-russia.html
-
-**A Comforting Rice Dish That Won’t Break the Bank**\
-`Adas polo, a Persian recipe perfumed with cinnamon and layered with caramelized onions and dates, only feels expensive.`\
-https://nytimes.com/2024/03/06/dining/persian-rice-recipe.html
 
