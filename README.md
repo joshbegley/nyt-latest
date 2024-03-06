@@ -1,3 +1,7 @@
+**‘Uncommitted’ Effort to Protest Biden Will Shift Its Focus to Washington State**\
+`The campaign is urging Democrats to register their discontent with President Biden’s handling of the war in Gaza by voting “uncommitted.” Washington’s primary is on Tuesday.`\
+https://nytimes.com/2024/03/06/us/politics/uncommitted-biden-washington-state.html
+
 **Biden Promised Calm After Trump Chaos, but the World Has Not Cooperated**\
 `Inflation, an explosion of migration at the border and wars in Europe and the Middle East have created a sense of instability that polls show have eroded his support.`\
 https://nytimes.com/2024/03/06/us/politics/biden-trump-chaos.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/06/arts/editors-recommendations-alexnept
 **Review: Lucid Dreaming, Person to Person**\
 `In Ursula Eagly’s “Dream Body Body Building” at the Chocolate Factory, the dancers seem to be transmitting a dream state to the audience.`\
 https://nytimes.com/2024/03/06/arts/dance/review-ursula-eagly-dream-body-body-building.html
-
-**With Haley’s departure, the nominees will be two men. Again.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/03/06/us/haley-out-trump-election-updates/haley-women-candidates-2024-election
 
