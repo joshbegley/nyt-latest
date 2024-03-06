@@ -1,3 +1,11 @@
+**Do You Have Experience Working With Boeing? We Want to Hear From You.**\
+`Boeing’s quality control practices have been criticized after a panel on one of the company’s 737 Max jets blew open during a flight in January.`\
+https://nytimes.com/2024/03/06/business/boeing-safety-quality-control.html
+
+**New York Community Bank Raises $1 Billion in Emergency Cash**\
+`Investors include Steven Mnuchin, who joined the board of the struggling midsize lender.`\
+https://nytimes.com/2024/03/06/business/nycb-overhaul-cash-mnuchin.html
+
 **Thursday Briefing: Haley Drops Out**\
 `Also, Israel-Hamas talks stall before Ramadan.`\
 https://nytimes.com/2024/03/06/world/asia/haley-trump-hostage-gaza-asia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/06/health/217-covid-vaccines.html
 **The Trump-Biden Rematch Is Here. Americans Are Processing.**\
 `They’ve worked through denial, bargaining and grief over the 2024 matchup. Are discontented voters inching toward acceptance?`\
 https://nytimes.com/2024/03/06/us/politics/trump-biden-presidential-campaign.html
-
-**John Walker, Tech Executive Who Popularized AutoCAD, Dies at 74**\
-`He avoided the spotlight, but he helped bring to market an explosively popular computer program that revolutionized the architecture and design industries.`\
-https://nytimes.com/2024/03/06/technology/john-walker-dead.html
-
-**With Haley Out, Will States Still Hold Primaries?**\
-`It’s likely too late for them to do anything else.`\
-https://nytimes.com/2024/03/06/us/politics/state-primaries-haley-out-trump.html
 
