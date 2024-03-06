@@ -2,7 +2,7 @@
 `The effort to pressure the president over his support for Israel garnered a sizable share of the vote, despite being more hastily organized. Voters in other states also voiced unease.`\
 https://nytimes.com/2024/03/05/us/politics/biden-uncommitted-protest-vote-minnesota.html
 
-**Colin Allred Wins Democratic Contest to Take On Senator Ted Cruz**\
+**Colin Allred Wins Democratic Contest to Take On Senator Ted Cruz in Texas**\
 `The Dallas-area congressman presented himself as an across-the-aisle politician who could appeal to a wide range of voters.`\
 https://nytimes.com/2024/03/05/us/politics/colin-allred-democrat-texas-senate.html
 
