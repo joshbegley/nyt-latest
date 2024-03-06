@@ -38,7 +38,3 @@ https://nytimes.com/2024/03/06/us/steve-garvey-senate-california-primary.html
 `The move tests the European Union’s new tech competition law, which was designed to allow competing app stores.`\
 https://nytimes.com/2024/03/06/technology/apple-epic-games-feud.html
 
-**girl in red: The Popcast (Deluxe) Interview**\
-`An interview with the Norwegian singer girl in red (Marie Ulven) about her second album, “I’m Doing It Again Baby!,” opening for Taylor Swift and more.`\
-https://nytimes.com/2024/03/06/arts/music/girl-in-red-interview-popcast-deluxe.html
-
