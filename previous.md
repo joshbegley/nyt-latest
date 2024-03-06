@@ -1,3 +1,7 @@
+**Federal Judge Rules Minority Business Agency Must Serve White People as Well**\
+`The ruling by a judge in Texas was the latest in a string of court decisions that have eroded or struck down federal affirmative-action mandates in a variety of arenas.`\
+https://nytimes.com/2024/03/06/us/business-development-race-affirmative-action.html
+
 **Christopher Walken’s Hidden ‘Dune’ Connection**\
 `The actor who plays the malevolent emperor in the new film actually brought an element of the saga to life once before. Remember “Weapon of Choice”?`\
 https://nytimes.com/2024/03/06/movies/christopher-walken-dune-weapon-of-choice.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/who-are-the
 **The U.S. places sanctions on shipping companies for helping Iran to finance the Houthis.**\
 `By Alan Rappeport`\
 https://nytimes.com/live/2024/03/06/world/israel-hamas-war-gaza-news/the-us-places-sanctions-on-shipping-companies-for-helping-iran-to-finance-the-houthis
-
-**And the Oscars Carpet Color Goes … Back to Red**\
-`Following the surprise of last year’s champagne-hued rug, the Academy of Motion Picture Arts and Sciences unveiled a bright red one on Wednesday at the Dolby Theater.`\
-https://nytimes.com/2024/03/06/style/oscars-red-carpet.html
 
