@@ -1,3 +1,11 @@
+**Biden wants Congress to reduce the risks of social media for children.**\
+`By Natasha Singer`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-wants-congress-to-reduce-the-risks-of-social-media-for-children
+
+**Prosecutors Say Trump’s Secret Files Case ‘Starkly Different’ from Biden’s**\
+`The special counsel, Jack Smith, filed an array of rebuttals to motions by former President Donald J. Trump to dismiss his documents case.`\
+https://nytimes.com/2024/03/07/us/politics/prosecutors-trump-secret-files.html
+
 **Biden could speak about the challenge posed by China, though relations are more stable.**\
 `By Edward Wong`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-could-speak-about-the-challenge-posed-by-china-though-relations-are-more-stable
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/07/nyregion/8-year-old-gun-school.html
 **Rivian Will Delay Construction of a $5 Billion Factory in Georgia**\
 `The money-losing electric vehicle company, which makes vans, trucks and S.U.V.s, is trying to preserve cash as it works to produce and sell more affordable vehicles.`\
 https://nytimes.com/2024/03/07/business/economy/rivian-georgia-factory.html
-
-**Johnson will host the parents of Evan Gershkovich, a reporter imprisoned in Russia, while refusing to take up Ukraine aid.**\
-`By Annie Karni`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/johnson-will-host-the-parents-of-evan-gershkovich-a-reporter-imprisoned-in-russia-while-refusing-to-take-up-ukraine-aid
-
-**Oscars 2024: Print Your Ballot!**\
-`Now it’s your turn to predict which nominees will win.`\
-https://nytimes.com/interactive/2024/03/07/movies/2024-oscars-ballot.html
 
