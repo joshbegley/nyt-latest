@@ -1,3 +1,15 @@
+**National Guard in the Subway? New Yorkers Have Their Doubts.**\
+`Some commuters said they felt safer after learning that heavily armed soldiers would patrol the subway system. Others were critical of the governor’s plan.`\
+https://nytimes.com/2024/03/07/nyregion/nyc-subway-national-guard.html
+
+**A Chicken Stew With Mayan Roots**\
+`The modern version of jocón incorporates Mayan techniques and ingredients, as well as Spanish components.`\
+https://nytimes.com/2024/03/07/dining/chicken-stew-jocon.html
+
+**What Students Are Saying About Lowering the Voting Age**\
+`After New Jersey’s largest city granted 16- and 17-year-olds the right to vote in school board elections, we asked teenagers: Should the rest of the country follow?`\
+https://nytimes.com/2024/03/07/learning/what-students-are-saying-about-lowering-the-voting-age.html
+
 **Lucas Samaras, Artist Who Was His Own Canvas, Dies at 87**\
 `A wild card even by the rabble-rousing standards of the 1960s, he once said that he used himself in his art “because it is still unorthodox to use one’s self.”`\
 https://nytimes.com/2024/03/07/arts/lucas-samaras-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009348777/indian-navy-carries-o
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/03/07/books/review/new-books-recommendations.html
-
-**It’s Date Night**\
-`Dates add their rich, molasses-y flavor to roasted fennel and farro salad, blackened broccoli and a pantry friendly Persian lentil rice.`\
-https://nytimes.com/2024/03/07/dining/its-date-night.html
-
-**New York Community Bank Tries to Reassure Markets After $1 Billion Rescue**\
-`Management told investors that deposits had fallen, but the bank’s shares jumped on the details of a shift in strategy and large cash infusion led by the former Treasury secretary Steven Mnuchin.`\
-https://nytimes.com/2024/03/07/business/new-york-community-bank-rescue-stock.html
-
-**‘Glitter & Doom’ Review: As a Vibe, it’s Fun. As a Film? Closer to Fine.**\
-`Songs by the Indigo Girls soundtrack a musical romance.`\
-https://nytimes.com/2024/03/07/movies/glitter-and-doom-review-indigo-girls.html
 

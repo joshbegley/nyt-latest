@@ -1,3 +1,15 @@
+**National Guard in the Subway? New Yorkers Have Their Doubts.**\
+`Some commuters said they felt safer after learning that heavily armed soldiers would patrol the subway system. Others were critical of the governor’s plan.`\
+https://nytimes.com/2024/03/07/nyregion/nyc-subway-national-guard.html
+
+**A Chicken Stew With Mayan Roots**\
+`The modern version of jocón incorporates Mayan techniques and ingredients, as well as Spanish components.`\
+https://nytimes.com/2024/03/07/dining/chicken-stew-jocon.html
+
+**What Students Are Saying About Lowering the Voting Age**\
+`After New Jersey’s largest city granted 16- and 17-year-olds the right to vote in school board elections, we asked teenagers: Should the rest of the country follow?`\
+https://nytimes.com/2024/03/07/learning/what-students-are-saying-about-lowering-the-voting-age.html
+
 **Lucas Samaras, Artist Who Was His Own Canvas, Dies at 87**\
 `A wild card even by the rabble-rousing standards of the 1960s, he once said that he used himself in his art “because it is still unorthodox to use one’s self.”`\
 https://nytimes.com/2024/03/07/arts/lucas-samaras-dead.html
