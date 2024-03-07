@@ -1,3 +1,7 @@
+**Oil and gas production hit records under Biden, who is expected to trumpet climate policies.**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/oil-and-gas-production-hit-records-under-biden-who-is-expected-to-trumpet-climate-policies
+
 **The ‘Rule’ Against Ending Sentences With Prepositions Has Always Been Silly**\
 `Where does the ‘rule’ come from? Latin. Why do we do it anyway? Vikings.`\
 https://nytimes.com/2024/03/07/opinion/preposition-grammar-rules.html

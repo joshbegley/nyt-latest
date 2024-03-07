@@ -1,3 +1,7 @@
+**Oil and gas production hit records under Biden, who is expected to trumpet climate policies.**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/oil-and-gas-production-hit-records-under-biden-who-is-expected-to-trumpet-climate-policies
+
 **The ‘Rule’ Against Ending Sentences With Prepositions Has Always Been Silly**\
 `Where does the ‘rule’ come from? Latin. Why do we do it anyway? Vikings.`\
 https://nytimes.com/2024/03/07/opinion/preposition-grammar-rules.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/us/politics/ohio-senate-debate-takeaways.html
 **A Well-Meaning Challenge to Biden Ends on a Classy Note**\
 `Dean Phillips knew he had to drop out, but did so without rancor.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/dean-phillips-biden
-
-**Illustrating Ideas: The Winners of Our Second Annual One-Pager Challenge**\
-`We challenged teenagers to respond to the Times piece of their choice by creating a visual guide to what they learned. Here are our favorites.`\
-https://nytimes.com/2024/03/07/learning/illustrating-ideas-the-winners-of-our-second-annual-one-pager-challenge.html
 
