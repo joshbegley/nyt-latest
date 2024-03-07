@@ -1,3 +1,11 @@
+**Richard Truly, 86, Dies; Shuttle Astronaut Who Went On to Lead NASA**\
+`In 1983, he commanded a Challenger shuttle flight. After the 1986 disaster, he was charged with leading NASA’s return to space.`\
+https://nytimes.com/2024/03/07/obituaries/richard-truly-dead.html
+
+**State of the Union Guests Highlight Biden’s Efforts on Gun Violence, the Climate and More**\
+`The sister of a 9-year-old girl killed in the Uvalde school shooting is set to attend the speech, along with the head of the U.A.W. and business owners focused on the environment.`\
+https://nytimes.com/2024/03/07/us/politics/state-of-the-union-guests.html
+
 **Yep, He Did It Again**\
 `The media titan Rupert Murdoch, 92, is engaged once more. This time it is to Elena Zhukova, a retired molecular biologist.`\
 https://nytimes.com/2024/03/07/business/media/rupert-murdoch-engaged-elena-zhukova.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news/the-indian-
 **Senate Approves Expansion of Fund for Nuclear Waste Exposure Victims**\
 `Senators estimate the measure would provide as much as $40 billion in compensation, extending and substantially broadening a benefit that had been scheduled to expire in June.`\
 https://nytimes.com/2024/03/07/us/politics/senate-nuclear-waste-exposure-fund.html
-
-**The speech will give Biden one of the biggest audiences of his administration.**\
-`A president who rarely appears on TV for extended periods will be watched on Thursday by an audience comparable to an N.F.L. playoff game.`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/state-of-the-union-tv-audience
-
-**New York City’s New Power Lunch Restaurants**\
-`Ladies who lunch, rejoice.`\
-https://nytimes.com/2024/03/07/dining/new-york-citys-new-power-lunch-restaurants.html
 
