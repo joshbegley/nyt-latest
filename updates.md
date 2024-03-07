@@ -1,3 +1,7 @@
+**How the State of the Union Became a Picture of Disunion**\
+`What used to be a solemn event, governed by dignity and protocol, has more recently become marked by partisan disruption.`\
+https://nytimes.com/interactive/2024/03/06/us/state-of-the-union-partisan-history.html
+
 **Southern Baptists Say Justice Dept. Has Closed Abuse Inquiry Into Leadership Body**\
 `A Southern Baptist Convention leader said federal investigators had informed the executive committee that there would be no charges against it.`\
 https://nytimes.com/2024/03/06/us/southern-baptists-abuse-justice-department.html
