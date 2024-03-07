@@ -1,3 +1,7 @@
+**Voyager 1, First Craft in Interstellar Space, May Have Gone Dark**\
+`The 46-year-old probe, which flew by Jupiter and Saturn in its youth and inspired earthlings with images of the planet as a “Pale Blue Dot,” hasn’t sent usable data from interstellar space in months.`\
+https://nytimes.com/2024/03/07/us/voyager-1-nasa-mission.html
+
 **South Africa asks the U.N.’s highest court to intervene to avert ‘genocidal starvation.’**\
 `By Victoria Kim`\
 https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news/south-africa-asks-the-uns-highest-court-to-intervene-to-avert-genocidal-starvation
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/movies/rust-live-ammunition.html
 **Behind the Scenes of a Manatee Rescue**\
 `When a seagrass shortage caused a mass manatee die-off, scientists rushed to save the orphaned young.`\
 https://nytimes.com/video/science/earth/100000009346616/behind-the-scenes-manatee-rescue.html
-
-**Three Reasons Biden Must Rethink His 2024 Strategy**\
-`It will take more than Jan. 6 to convince those voters who are still skeptical.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-campaign-2024
 
