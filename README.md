@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Nikki Haley ends her presidential campaign.`\
+https://nytimes.com/2024/03/07/briefing/nikki-haley-out-gaza-ceasefire.html
+
 **A Popular Israeli Leader’s Meeting in London Sends a Message to Netanyahu**\
 `A meeting between the British foreign secretary, David Cameron, and an Israeli minister, Benny Gantz, carried more weight than usual, analysts said, and stressed the frustration of Israel’s allies.`\
 https://nytimes.com/2024/03/07/world/middleeast/netanyahu-cameron-gantz-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/climate/winter-february-heat-wave.html
 **Alabama Passes Law to Protect I.V.F. Treatments**\
 `Two major fertility clinics said they were moving to resume treatments quickly, though legal experts cautioned that state constitutional challenges may still arise.`\
 https://nytimes.com/2024/03/06/us/politics/alabama-ivf-law.html
-
-**Which President Can Claim These Economic Wins?**\
-`Both President Biden and former President Trump presided over robust economies in their first three years in office. Can you tell who did better in each metric?`\
-https://nytimes.com/interactive/2024/03/06/us/biden-trump-economy-quiz.html
 
