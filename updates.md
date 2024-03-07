@@ -1,3 +1,11 @@
+**Ronny Chieng Is Sad to See Nikki Haley Go**\
+`“The Daily Show” guest host bemoaned that Haley dropped out after President Joe Biden and former President Donald Trump crushed Super Tuesday “like it was an audition for a Life Alert commercial.”`\
+https://nytimes.com/2024/03/07/arts/television/ronny-chieng-nikki-haley.html
+
+**Word of the Day: scrupulous**\
+`This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/07/learning/word-of-the-day-scrupulous.html
+
 **Quotation of the Day: Big Tech Bows to Force of Law**\
 `Quotation of the Day for Thursday, March 7, 2024.`\
 https://nytimes.com/2024/03/07/pageoneplus/quotation-of-the-day-big-tech-bows-to-force-of-law.html
