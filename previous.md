@@ -1,3 +1,7 @@
+**Southern Baptists Say Justice Dept. Has Closed Abuse Inquiry Into Leadership Body**\
+`A Southern Baptist Convention leader said federal investigators had informed the executive committee that there would be no charges against it.`\
+https://nytimes.com/2024/03/06/us/southern-baptists-abuse-justice-department.html
+
 **Are You Embarking on a GLP-1 Journey? We Want to Hear From You.**\
 `The New York Times is looking to speak with people who are about to start GLP-1 medications such as Ozempic and are open to allowing us to chronicle their experiences.`\
 https://nytimes.com/2024/03/06/NYT-Presents/ozempic-experience-questionnaire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/opinion/book-banning-crt-education.html
 **Takeaways From the Texas Primary: Ken Paxton Ousts Some of His Enemies**\
 `The Republican attorney general succeeded in defeating some politicians and judges who opposed him. But Democrats showed they also know how to punish incumbents.`\
 https://nytimes.com/2024/03/06/us/texas-election-takeaways-paxton.html
-
-**Senegal’s Leader Breaks Up Cabinet and Sets Date for Presidential Election**\
-`President Macky Sall previously postponed the election without setting a date. On Wednesday, he also fired the prime minister, his party’s candidate for president.`\
-https://nytimes.com/2024/03/06/world/africa/senegal-election-macky-sall.html
 
