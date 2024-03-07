@@ -1,3 +1,7 @@
+**Here’s a look at how the president’s annual address became a picture of disunion.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/heres-a-look-at-how-the-presidents-annual-address-became-a-picture-of-disunion
+
 **Steve Lawrence, Who Sang His Listeners Down Memory Lane, Dies at 88**\
 `With his wife, Eydie Gorme, and sometimes on his own, he kept pop standards in vogue long past their prime. He also acted on television and on Broadway.`\
 https://nytimes.com/2024/03/07/arts/music/steve-lawrence-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/us/politics/prosecutors-trump-secret-files.html
 **Biden could speak about the challenge posed by China, though relations are more stable.**\
 `By Edward Wong`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-could-speak-about-the-challenge-posed-by-china-though-relations-are-more-stable
-
-**Met Opera’s Orchestra Will Tour Asia for the First Time**\
-`After the pandemic forced the cancellation of a tour planned for 2022, the ensemble will visit Japan, South Korea and Taiwan in June.`\
-https://nytimes.com/2024/03/07/arts/music/met-opera-asia-tour.html
 
