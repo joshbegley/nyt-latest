@@ -18,13 +18,13 @@ https://nytimes.com/2024/03/07/opinion/biden-state-of-the-union.html
 `Nikki Haley ends her presidential campaign.`\
 https://nytimes.com/2024/03/07/briefing/nikki-haley-out-gaza-ceasefire.html
 
-**A Popular Israeli Leader’s Meeting in London Sends a Message to Netanyahu**\
-`A meeting between the British foreign secretary, David Cameron, and an Israeli minister, Benny Gantz, carried more weight than usual, analysts said, and stressed the frustration of Israel’s allies.`\
-https://nytimes.com/2024/03/07/world/middleeast/netanyahu-cameron-gantz-israel.html
-
 **Britain Is Cutting Taxes Again. Why Now?**\
 `The government announced a budget as a national election looms. Here’s what you need to know.`\
 https://nytimes.com/2024/03/07/business/britain-is-cutting-taxes-again-why-now.html
+
+**A Popular Israeli Leader’s Meeting in London Sends a Message to Netanyahu**\
+`A meeting between the British foreign secretary, David Cameron, and an Israeli minister, Benny Gantz, carried more weight than usual, analysts said, and stressed the frustration of Israel’s allies.`\
+https://nytimes.com/2024/03/07/world/middleeast/netanyahu-cameron-gantz-israel.html
 
 **Crowdfunding, Auctions and Raffles: How Ukrainians Are Aiding the Army**\
 `Fund-raisers are borrowing heavily from business techniques to keep donations flowing to the military. The latest trend? Broad approaches that rely on networks of friends and acquaintances.`\
