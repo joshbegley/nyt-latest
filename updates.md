@@ -1,3 +1,11 @@
+**How ‘MagaBabe’ and a Fake Investor Targeted Critics of Viktor Orban**\
+`A covert campaign to entrap and discredit people linked to rights groups in Hungary has added fuel to longstanding complaints of democratic backsliding in the country.`\
+https://nytimes.com/2024/03/07/world/europe/orban-hungary-trump-investor.html
+
+**‘Kung Fu Panda 4’ Review: Trouble in Juniper City**\
+`Jack Black’s Po faces a new adversary, a chameleon voiced by Viola Davis, in the latest installment of this popular animated franchise.`\
+https://nytimes.com/2024/03/07/movies/kung-fu-panda-4-review.html
+
 **Duke Asks Its Crazed Basketball Fans to Heckle Responsibly**\
 `As part of a D.E.I. initiative, the student government held a town hall with fans who are known for their biting intel about opposing players.`\
 https://nytimes.com/2024/03/07/arts/duke-unc-basketball-dei-heckling.html
