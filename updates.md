@@ -1,3 +1,15 @@
+**Johnson will host the parents of Evan Gershkovich, a reporter imprisoned in Russia, while refusing to take up Ukraine aid.**\
+`By Annie Karni`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/johnson-will-host-the-parents-of-evan-gershkovich-a-reporter-imprisoned-in-russia-while-refusing-to-take-up-ukraine-aid
+
+**Oscars 2024: Print Your Ballot!**\
+`Now it’s your turn to predict which nominees will win.`\
+https://nytimes.com/interactive/2024/03/07/movies/2024-oscars-ballot.html
+
+**Biden’s Gaza Port Is Not Enough**\
+`This looks more like a photo op than an all-out effort to address a humanitarian crisis that the United States has helped to create.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/gaza-port-biden
+
 **Richard Truly, 86, Dies; Shuttle Astronaut Who Went On to Lead NASA**\
 `In 1983, he commanded a Challenger shuttle flight. After the 1986 disaster, he was charged with leading NASA’s return to space.`\
 https://nytimes.com/2024/03/07/obituaries/richard-truly-dead.html

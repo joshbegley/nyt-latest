@@ -1,3 +1,15 @@
+**Johnson will host the parents of Evan Gershkovich, a reporter imprisoned in Russia, while refusing to take up Ukraine aid.**\
+`By Annie Karni`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/johnson-will-host-the-parents-of-evan-gershkovich-a-reporter-imprisoned-in-russia-while-refusing-to-take-up-ukraine-aid
+
+**Oscars 2024: Print Your Ballot!**\
+`Now it’s your turn to predict which nominees will win.`\
+https://nytimes.com/interactive/2024/03/07/movies/2024-oscars-ballot.html
+
+**Biden’s Gaza Port Is Not Enough**\
+`This looks more like a photo op than an all-out effort to address a humanitarian crisis that the United States has helped to create.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/gaza-port-biden
+
 **Richard Truly, 86, Dies; Shuttle Astronaut Who Went On to Lead NASA**\
 `In 1983, he commanded a Challenger shuttle flight. After the 1986 disaster, he was charged with leading NASA’s return to space.`\
 https://nytimes.com/2024/03/07/obituaries/richard-truly-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/biden-will-speak
 **Katie Britt to Deliver the Republican Response to Biden’s State of the Union**\
 `Republicans are turning to one of their youngest members of Congress to burnish the image of their aging, male-dominated party and draw a contrast with a president nearly 40 years older.`\
 https://nytimes.com/2024/03/07/us/politics/katie-britt-republican-response.html
-
-**Film Club: ‘Go Behind the Scenes of All 10 Best Picture Oscar Nominees’**\
-`Directors walk viewers through pivotal scenes from their Academy Award-nominated films. What does it take to create a Best Picture nominee?`\
-https://nytimes.com/2024/03/07/learning/film-club-go-behind-the-scenes-of-all-10-best-picture-oscar-nominees.html
-
-**The Indian Navy releases images of its rescue mission after a lethal Houthi attack on a vessel off Yemen.**\
-`By Gaya Gupta`\
-https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news/the-indian-navy-releases-images-of-its-rescue-mission-after-a-lethal-houthi-attack-on-a-vessel-off-yemen
-
-**Senate Approves Expansion of Fund for Nuclear Waste Exposure Victims**\
-`Senators estimate the measure would provide as much as $40 billion in compensation, extending and substantially broadening a benefit that had been scheduled to expire in June.`\
-https://nytimes.com/2024/03/07/us/politics/senate-nuclear-waste-exposure-fund.html
 
