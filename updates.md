@@ -1,5 +1,13 @@
 **Johnson will host the parents of Evan Gershkovich, a reporter imprisoned in Russia, while refusing to take up Ukraine aid.**\
 `By Annie Karni`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/johnson-will-host-the-parents-of-evan-gershkovich-a-reporter-imprisoned-in-russia-while-refusing-to-take-up-ukraine-aid
+
+**Biden will speak from where House Republicans are trying to impeach him.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-will-speak-from-where-house-republicans-are-trying-to-impeach-him
+
+**Johnson will host the parents of Evan Gershkovich, a reporter imprisoned in Russia, while refusing to take up Ukraine aid.**\
+`By Annie Karni`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/johnson-will-host-the-parents-of-evan-gershkovich-a-reporter-imprisoned-in-russia-while-refusing-to-take-up-ukraine-aid
 
 **Oscars 2024: Print Your Ballot!**\
