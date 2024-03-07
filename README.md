@@ -1,3 +1,19 @@
+**The Film Christopher Nolan Doesn’t Want You to Watch**\
+`Nolan’s short film “Larceny” has not been shown publicly since a 1996 film festival. With the director in position to win his first Oscar, its cast and crew want to preserve that mystery.`\
+https://nytimes.com/2024/03/07/movies/christopher-nolan-larceny.html
+
+**Six People Found Dead in Ottawa Home**\
+`The police are investigating the circumstances surrounding the killings Wednesday of four children and two adults.`\
+https://nytimes.com/2024/03/07/world/canada/canada-ottawa-homicides.html
+
+**Dog Sledder Penalized for Poor Moose Gutting**\
+`While mushing across Alaska in the Iditarod sled dog race, Dallas Seavey shot a moose, and then got a penalty for not gutting it well enough.`\
+https://nytimes.com/2024/03/07/sports/iditarod-race-musher-moose-penalty.html
+
+**Southeast on Edge as Forecast Threatens More Rain**\
+`Soppy soil is creating a concern for more flooding in the South and the Northeast after recent rains.`\
+https://nytimes.com/2024/03/07/us/georgia-rain-flooding-atlanta.html
+
 **Mutual Frustrations Arise in U.S.-Ukraine Alliance**\
 `Ukrainian officials are disheartened about stalled aid. The Pentagon wants Kyiv to heed its advice on how to fight.`\
 https://nytimes.com/2024/03/07/us/politics/ukraine-us-military-frustrations.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/03/07/nyregion/sheldon-johnson-queens-defenders-murder.
 **How ‘MagaBabe’ and a Fake Investor Targeted Critics of Viktor Orban**\
 `A covert campaign to entrap and discredit people linked to rights groups in Hungary has added fuel to longstanding complaints of democratic backsliding in the country.`\
 https://nytimes.com/2024/03/07/world/europe/orban-hungary-trump-investor.html
-
-**‘Kung Fu Panda 4’ Review: Trouble in Juniper City**\
-`Jack Black’s Po faces a new adversary, a chameleon voiced by Viola Davis, in the latest installment of this popular animated franchise.`\
-https://nytimes.com/2024/03/07/movies/kung-fu-panda-4-review.html
-
-**Duke Asks Its Crazed Basketball Fans to Heckle Responsibly**\
-`As part of a D.E.I. initiative, the student government held a town hall with fans who are known for their biting intel about opposing players.`\
-https://nytimes.com/2024/03/07/arts/duke-unc-basketball-dei-heckling.html
-
-**Hamas negotiators leave Cairo with no breakthrough in cease-fire talks.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news/hamas-negotiators-leave-cairo-with-no-breakthrough-in-cease-fire-talks
-
-**For Biden, It’s the Little Things That Count**\
-`A small tax idea that could make a big difference.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-tax-filing
 
