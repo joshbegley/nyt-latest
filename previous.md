@@ -1,3 +1,11 @@
+**Steve Lawrence, Who Sang His Listeners Down Memory Lane, Dies at 88**\
+`With his wife, Eydie Gorme, and sometimes on his own, he kept pop standards in vogue long past their prime. He also acted on television and on Broadway.`\
+https://nytimes.com/2024/03/07/arts/music/steve-lawrence-dead.html
+
+**Who Are the Gangs That Have Overrun Haiti’s Capital?**\
+`The Caribbean nation has plunged into disorder and violence with gangs controlling access to the main airport and seaports, and taking command of many parts of Port-au-Prince.`\
+https://nytimes.com/2024/03/07/world/americas/haiti-gangs-explainer.html
+
 **José Andrés's World Central Kitchen, Central to U.S. Gaza Aid Plan, Aims to Ramp Up**\
 `The organization, founded by the Spanish chef José Andrés, has served more than 32 millions meals in Gaza, and he hopes to do more.`\
 https://nytimes.com/2024/03/07/world/middleeast/world-central-kitchen-gaza-aid.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-co
 **Met Opera’s Orchestra Will Tour Asia for the First Time**\
 `After the pandemic forced the cancellation of a tour planned for 2022, the ensemble will visit Japan, South Korea and Taiwan in June.`\
 https://nytimes.com/2024/03/07/arts/music/met-opera-asia-tour.html
-
-**City Inquiry: Uvalde Officers Made Mistakes, but Did Not Violate Policy**\
-`An investigator for the city of Uvalde found that despite the many failures from police officers during a 2022 school shooting, they did not violate protocol and acted in good faith.`\
-https://nytimes.com/2024/03/07/us/uvalde-police-city-investigation.html
-
-**State Investigations Create More Peril for Trump Prosecutor in Georgia**\
-`A claim made about the prosecutor, Fani Willis, at a State Senate hearing proved false, but it hinted at the turbulence she might face even if an effort to disqualify her fails.`\
-https://nytimes.com/2024/03/07/us/fani-willis-trump-georgia-state-investigation.html
 
