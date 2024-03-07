@@ -1,3 +1,11 @@
+**South Africa asks the U.N.’s highest court to intervene to avert ‘genocidal starvation.’**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news/south-africa-asks-the-uns-highest-court-to-intervene-to-avert-genocidal-starvation
+
+**07mideast-crisis**\
+`South Africa Asks U.N. Court to Act as Hunger Worsens in Gaza`\
+https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news
+
 **The 20 Guests Who Will Sit With Jill Biden at the State of the Union**\
 `Among the attendees will be the prime minister of Sweden and women who were denied an abortion and in vitro fertilization.`\
 https://nytimes.com/2024/03/07/us/politics/sotu-guest-list-biden.html
