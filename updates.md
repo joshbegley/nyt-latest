@@ -1,3 +1,7 @@
+**Quotation of the Day: Big Tech Bows to Force of Law**\
+`Quotation of the Day for Thursday, March 7, 2024.`\
+https://nytimes.com/2024/03/07/pageoneplus/quotation-of-the-day-big-tech-bows-to-force-of-law.html
+
 **Dark Brandon in the House**\
 `What President Biden needs to accomplish at Thursday’s State of the Union address.`\
 https://nytimes.com/2024/03/07/opinion/biden-state-of-the-union.html
