@@ -1,3 +1,7 @@
+**Big American Tech Profits From Chinese Ad Spending Spree**\
+`Temu, Shein, and streaming and gaming apps looking to break into the U.S. market are spending huge sums to get their wares in front of American consumers.`\
+https://nytimes.com/2024/03/06/business/google-meta-temu-shein.html
+
 **How Bad Is Crime in the Subways?**\
 `Officials have spent millions to make New Yorkers transit riders feel safe. The investment is motivated more by passengers’ perception than by crime rates.`\
 https://nytimes.com/2024/03/06/nyregion/nyc-subway-crime.html
