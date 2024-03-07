@@ -1,3 +1,11 @@
+**European Central Bank, Citing Wage Growth, Keeps Rates Steady**\
+`Although inflation has eased, the eurozone’s central bank said that “domestic price pressures remain high.” Rates remain the highest in the central bank’s history.`\
+https://nytimes.com/2024/03/07/business/european-central-bank-interest-rates.html
+
+**Should Either of These People Have the Power to End the World?**\
+`The president’s sole authority to use nuclear weapons needs to be re-examined in today’s world.`\
+https://nytimes.com/2024/03/07/opinion/nyt-nuclear-sole-authority.html
+
 **Jay Powell Signals a Retreat on Banking Rules**\
 `The Fed chair said regulators could scale back or rework a sweeping capital-requirements proposal that Wall Street has been fighting for months.`\
 https://nytimes.com/2024/03/07/business/dealbook/fed-powell-banks-capital-rules.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/07/podcasts/biden-haley-haiti-rust.html
 **Voyager 1, First Craft in Interstellar Space, May Have Gone Dark**\
 `The 46-year-old probe, which flew by Jupiter and Saturn in its youth and inspired earthlings with images of the planet as a “Pale Blue Dot,” hasn’t sent usable data from interstellar space in months.`\
 https://nytimes.com/2024/03/07/us/voyager-1-nasa-mission.html
-
-**South Africa asks the U.N.’s highest court to intervene to avert ‘genocidal starvation.’**\
-`By Victoria Kim`\
-https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news/south-africa-asks-the-uns-highest-court-to-intervene-to-avert-genocidal-starvation
-
-**07mideast-crisis**\
-`South Africa Asks U.N. Court to Act as Hunger Worsens in Gaza`\
-https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news
 

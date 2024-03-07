@@ -1,3 +1,11 @@
+**European Central Bank, Citing Wage Growth, Keeps Rates Steady**\
+`Although inflation has eased, the eurozone’s central bank said that “domestic price pressures remain high.” Rates remain the highest in the central bank’s history.`\
+https://nytimes.com/2024/03/07/business/european-central-bank-interest-rates.html
+
+**Should Either of These People Have the Power to End the World?**\
+`The president’s sole authority to use nuclear weapons needs to be re-examined in today’s world.`\
+https://nytimes.com/2024/03/07/opinion/nyt-nuclear-sole-authority.html
+
 **Jay Powell Signals a Retreat on Banking Rules**\
 `The Fed chair said regulators could scale back or rework a sweeping capital-requirements proposal that Wall Street has been fighting for months.`\
 https://nytimes.com/2024/03/07/business/dealbook/fed-powell-banks-capital-rules.html
