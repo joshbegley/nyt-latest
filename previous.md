@@ -1,3 +1,11 @@
+**Self-Service for Airport Security? It’s Happening in Las Vegas.**\
+`At security lanes at Harry Reid International Airport, travelers with PreCheck clearance can test a new self-service screening process with remote T.S.A. agents and video monitors.`\
+https://nytimes.com/2024/03/07/travel/airport-tsa-pre-check-self-screen.html
+
+**Biden will speak from where House Republicans are trying to impeach him.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/biden-will-speak-from-where-house-republicans-are-trying-to-impeach-him
+
 **Katie Britt to Deliver the Republican Response to Biden’s State of the Union**\
 `Republicans are turning to one of their youngest members of Congress to burnish the image of their aging, male-dominated party and draw a contrast with a president nearly 40 years older.`\
 https://nytimes.com/2024/03/07/us/politics/katie-britt-republican-response.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/07/us/politics/house-laken-riley-immigration.html
 **Friday Briefing: A New Plan for Gaza Aid**\
 `Also, President Biden’s annual address and Oscar predictions.`\
 https://nytimes.com/2024/03/07/world/asia/gaza-pier-biden-union-asia.html
-
-**TikTok Prompts Users to Call Congress to Fight Possible Ban**\
-`Many Capitol Hill offices were inundated with phone calls after TikTok urged users to tell their representatives they opposed a new bill aimed at the company.`\
-https://nytimes.com/2024/03/07/business/tiktok-phone-calls-congress.html
-
-**Zelensky Names Ukraine’s Ex-Top General Ambassador to U.K.**\
-`The former top general, Valery Zaluzhny, was dismissed last month amid tensions with the civilian leadership. He has been a very popular figure in Ukraine.`\
-https://nytimes.com/2024/03/07/world/europe/ukraine-uk-valery-zaluzhny.html
 
