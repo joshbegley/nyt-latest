@@ -1,3 +1,7 @@
+**Alabama Passes Law to Protect I.V.F. Treatments**\
+`Some doctors said the law would allow them to resume treatments quickly, though legal experts cautioned that state constitutional challenges may still arise.`\
+https://nytimes.com/2024/03/06/us/politics/alabama-ivf-law.html
+
 **String of Islands**\
 `Joe O’Neill makes a poetic debut.`\
 https://nytimes.com/2024/03/06/crosswords/daily-puzzle-2024-03-07.html
