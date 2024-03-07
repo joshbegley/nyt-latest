@@ -1,3 +1,15 @@
+**War in Gaza Presents Biden With Challenges at Home and Abroad**\
+`Domestic and international anger over Israel’s response to the Oct. 7 attacks have complicated President Biden’s diplomatic and re-election efforts.`\
+https://nytimes.com/2024/03/07/us/politics/gaza-war-biden-state-union.html
+
+**The Subways Are Not a War Zone, Governor Hochul**\
+`Crime data provides no justification for a militaristic response underground.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/subways-national-guard-crime
+
+**The Case Trump Really Hates**\
+`Prosecutors want to present steamy details at the hush money trial.`\
+https://nytimes.com/2024/03/07/us/politics/trump-trial-hush-money-stormy-daniels.html
+
 **9 Paris Fashion Week Moments That Kept Us Talking**\
 `Audiences were abuzz over breathing runways, drone models, social media blackouts, tartan codpieces and kisses on the catwalk.`\
 https://nytimes.com/2024/03/07/style/paris-fashion-week-highlights-celebrities.html

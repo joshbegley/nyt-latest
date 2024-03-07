@@ -1,3 +1,15 @@
+**War in Gaza Presents Biden With Challenges at Home and Abroad**\
+`Domestic and international anger over Israel’s response to the Oct. 7 attacks have complicated President Biden’s diplomatic and re-election efforts.`\
+https://nytimes.com/2024/03/07/us/politics/gaza-war-biden-state-union.html
+
+**The Subways Are Not a War Zone, Governor Hochul**\
+`Crime data provides no justification for a militaristic response underground.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/subways-national-guard-crime
+
+**The Case Trump Really Hates**\
+`Prosecutors want to present steamy details at the hush money trial.`\
+https://nytimes.com/2024/03/07/us/politics/trump-trial-hush-money-stormy-daniels.html
+
 **9 Paris Fashion Week Moments That Kept Us Talking**\
 `Audiences were abuzz over breathing runways, drone models, social media blackouts, tartan codpieces and kisses on the catwalk.`\
 https://nytimes.com/2024/03/07/style/paris-fashion-week-highlights-celebrities.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/07/business/strategic-financial-solutions-lawsuit-ry
 **Inflation has come down some, but prices remain high and consumers cranky.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/inflation-has-come-down-some-but-prices-remain-high-and-consumers-cranky
-
-**2 Women Were Found Dead in the 1980s. DNA Links a Man to the Murders.**\
-`A Virginia man was arrested on Tuesday in connection with the 1986 murder of Jacqueline Lard. The authorities said his DNA was also linked to the 1989 killing of Amy Baker.`\
-https://nytimes.com/2024/03/07/us/elroy-harrison-baker-lard.html
-
-**Canadian Jailed by China in Tit-for-Tat Dispute Gets a Settlement**\
-`Michael Spavor, a Canadian businessman, was arrested by China in what his lawyers said was an act of retaliation for Canada’s detention of a Chinese tech giant executive.`\
-https://nytimes.com/2024/03/07/world/americas/michael-spavor-canada-china.html
-
-**3 Degrees of Trumpiness: Ohio’s Republican Senate Candidates Clash**\
-`Donald Trump’s choice for the nomination, Bernie Moreno, has eagerly showed off his endorsement, but his two rivals have also embraced the former president or his policies.`\
-https://nytimes.com/2024/03/07/us/politics/ohio-senate-debate-takeaways.html
 
