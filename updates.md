@@ -1,3 +1,7 @@
+**Indian Navy Carries Out Rescue Mission After Houthis Attacked Ship**\
+`Video from the Indian Navy shows crew members being rescued from a commercial ship after it was hit in a missile attack by Yemen’s Houthi militia.`\
+https://nytimes.com/video/world/middleeast/100000009348777/indian-navy-carries-out-rescue-mission-after-houthis-attacked-ship.html
+
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/03/07/books/review/new-books-recommendations.html

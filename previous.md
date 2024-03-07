@@ -1,3 +1,7 @@
+**Indian Navy Carries Out Rescue Mission After Houthis Attacked Ship**\
+`Video from the Indian Navy shows crew members being rescued from a commercial ship after it was hit in a missile attack by Yemen’s Houthi militia.`\
+https://nytimes.com/video/world/middleeast/100000009348777/indian-navy-carries-out-rescue-mission-after-houthis-attacked-ship.html
+
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/03/07/books/review/new-books-recommendations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/health/adolescents-mental-health.html
 **What Is Your Earliest Pandemic Memory?**\
 `As the fourth anniversary of the Covid lockdowns approaches, we’re collecting stories of the moments readers’ worlds shut down.`\
 https://nytimes.com/2024/03/07/well/live/what-is-your-earliest-pandemic-memory.html
-
-**Here’s How to Watch the State of the Union Address**\
-`In a speech scheduled for 9 p.m., President Biden is set to lay out his agenda directly to the American people. The New York Times will carry the address live.`\
-https://nytimes.com/2024/03/07/us/politics/state-of-the-union-time-guests.html
 
