@@ -1,3 +1,11 @@
+**Biden Makes the Case on Climate**\
+`The president’s campaign is eager to tell the story of his first term’s accomplishments.`\
+https://nytimes.com/2024/03/07/climate/biden-makes-the-case-on-climate.html
+
+**Biden plans to unveil steps to reduce housing costs in his State of the Union speech.**\
+`The president plans to propose new tax credits and target real estate industry fees.`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/biden-plans-to-unveil-steps-to-reduce-housing-costs-in-his-state-of-the-union-speech
+
 **War in Gaza Presents Biden With Challenges at Home and Abroad**\
 `Domestic and international anger over Israel’s response to the Oct. 7 attacks have complicated President Biden’s diplomatic and re-election efforts.`\
 https://nytimes.com/2024/03/07/us/politics/gaza-war-biden-state-union.html
