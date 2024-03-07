@@ -1,3 +1,7 @@
+**With Immigration a top concern of voters, Biden will make an appeal for the passage of a border bill.**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/with-immigration-a-top-concern-of-voters-biden-will-make-an-appeal-for-the-passage-of-a-border-bill
+
 **A Subway Plan Aimed to Ease Fears. The Blowback Was Immediate.**\
 `Gov. Kathy Hochul’s subway safety plan was meant to show how Democrats can take action on crime, but the response illustrated how the issue divides her party.`\
 https://nytimes.com/2024/03/07/nyregion/hochul-police-subway-search.html
@@ -33,8 +37,4 @@ https://nytimes.com/explain/2024/aves-observacion-ciencia/datos-curiosos-aves
 **Democrats invite reproductive rights advocates, putting abortion and I.V.F. in the spotlight.**\
 `Democrats are contrasting their support for reproductive rights with Republicans’ records of opposing protections for abortion and fertility treatments.`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/ivf-alabama-state-of-the-union
-
-**Biden wants Congress to reduce the risks of social media for children.**\
-`By Natasha Singer`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-wants-congress-to-reduce-the-risks-of-social-media-for-children
 
