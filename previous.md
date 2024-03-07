@@ -1,3 +1,11 @@
+**Spate of Mock News Sites With Russian Ties Pop Up in U.S.**\
+`The fake news organizations, experts say, represent a technological leap in the Kremlin’s efforts to spread false and misleading narratives.`\
+https://nytimes.com/2024/03/07/business/media/spate-of-mock-news-sites-with-russian-ties-pop-up-in-us.html
+
+**Man Who Became Champion of Rehabilitation Is Charged With Murder**\
+`Sheldon Johnson became a youth worker with the Queens Defenders after his release from prison last May.`\
+https://nytimes.com/2024/03/07/nyregion/sheldon-johnson-queens-defenders-murder.html
+
 **How ‘MagaBabe’ and a Fake Investor Targeted Critics of Viktor Orban**\
 `A covert campaign to entrap and discredit people linked to rights groups in Hungary has added fuel to longstanding complaints of democratic backsliding in the country.`\
 https://nytimes.com/2024/03/07/world/europe/orban-hungary-trump-investor.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/07/sports/baseball/mlb-the-show-24-women-players.htm
 **Mike Tyson to Fight Jake Paul in Match on Netflix**\
 `The July bout between Mr. Tyson, the former world champion, and Mr. Paul, the influencer turned boxer, is part of Netflix’s push into “sports-adjacent” live events.`\
 https://nytimes.com/2024/03/07/business/media/mike-tyson-jake-paul-fight-netflix.html
-
-**Chelsea Hotel’s Cast of Characters, Captured by Its Resident Photographer**\
-`Plus: a chef’s guesthouse in Bali, art that explores girlhood — and more recommendations from T Magazine.`\
-https://nytimes.com/2024/03/07/t-magazine/chelsea-hotel-portraits-tony-notarberardino.html
-
-**Why California Hasn’t Ditched Daylight Saving Time**\
-`Our clocks will have to spring forward an hour on Sunday, as in most of the country.`\
-https://nytimes.com/2024/03/07/us/california-daylight-saving-time.html
 

@@ -1,3 +1,11 @@
+**Spate of Mock News Sites With Russian Ties Pop Up in U.S.**\
+`The fake news organizations, experts say, represent a technological leap in the Kremlin’s efforts to spread false and misleading narratives.`\
+https://nytimes.com/2024/03/07/business/media/spate-of-mock-news-sites-with-russian-ties-pop-up-in-us.html
+
+**Man Who Became Champion of Rehabilitation Is Charged With Murder**\
+`Sheldon Johnson became a youth worker with the Queens Defenders after his release from prison last May.`\
+https://nytimes.com/2024/03/07/nyregion/sheldon-johnson-queens-defenders-murder.html
+
 **How ‘MagaBabe’ and a Fake Investor Targeted Critics of Viktor Orban**\
 `A covert campaign to entrap and discredit people linked to rights groups in Hungary has added fuel to longstanding complaints of democratic backsliding in the country.`\
 https://nytimes.com/2024/03/07/world/europe/orban-hungary-trump-investor.html
