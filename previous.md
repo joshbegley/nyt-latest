@@ -1,3 +1,7 @@
+**New Trump Super PAC Ad Attacks Biden Over His Age**\
+`The ad, which aired on MSNBC on Thursday morning, asks, “Can Biden even survive until 2029?”`\
+https://nytimes.com/2024/03/07/us/politics/trump-super-pac-ad.html
+
 **‘Space: The Longest Goodbye’ Review: Alone Up There**\
 `This documentary by Ido Mizrahy examines the psychological challenges of space exploration for astronauts and their loved ones as scientists consider whether humans could reach Mars.`\
 https://nytimes.com/2024/03/07/movies/space-the-longest-goodbye-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news
 **The 20 Guests Who Will Sit With Jill Biden at the State of the Union**\
 `Among the attendees will be the prime minister of Sweden and women who were denied an abortion and in vitro fertilization.`\
 https://nytimes.com/2024/03/07/us/politics/sotu-guest-list-biden.html
-
-**Where Nikki Haley Won and What It Means**\
-`Some affluent and highly educated Republicans could be in play for Biden as Haley steps aside.`\
-https://nytimes.com/2024/03/07/upshot/nikki-haley-biden-2024.html
 

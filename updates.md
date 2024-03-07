@@ -1,3 +1,7 @@
+**New Trump Super PAC Ad Attacks Biden Over His Age**\
+`The ad, which aired on MSNBC on Thursday morning, asks, “Can Biden even survive until 2029?”`\
+https://nytimes.com/2024/03/07/us/politics/trump-super-pac-ad.html
+
 **‘Space: The Longest Goodbye’ Review: Alone Up There**\
 `This documentary by Ido Mizrahy examines the psychological challenges of space exploration for astronauts and their loved ones as scientists consider whether humans could reach Mars.`\
 https://nytimes.com/2024/03/07/movies/space-the-longest-goodbye-review.html
