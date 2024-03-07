@@ -1,3 +1,11 @@
+**Katie Britt to Deliver the Republican Response to Biden’s State of the Union**\
+`Republicans are turning to one of their youngest members of Congress to burnish the image of their aging, male-dominated party and draw a contrast with a president nearly 40 years older.`\
+https://nytimes.com/2024/03/07/us/politics/katie-britt-republican-response.html
+
+**Film Club: ‘Go Behind the Scenes of All 10 Best Picture Oscar Nominees’**\
+`Directors walk viewers through pivotal scenes from their Academy Award-nominated films. What does it take to create a Best Picture nominee?`\
+https://nytimes.com/2024/03/07/learning/film-club-go-behind-the-scenes-of-all-10-best-picture-oscar-nominees.html
+
 **The Indian Navy releases images of its rescue mission after a lethal Houthi attack on a vessel off Yemen.**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news/the-indian-navy-releases-images-of-its-rescue-mission-after-a-lethal-houthi-attack-on-a-vessel-off-yemen
