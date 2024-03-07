@@ -1,3 +1,11 @@
+**Legal Muddle Adds to Stress of I.V.F. Patients in Alabama**\
+`Many suffered setbacks after the State Supreme Court ruled that frozen embryos were children. “Someone else’s opinion changed my future,” one woman said.`\
+https://nytimes.com/2024/03/07/health/ivf-alabama-families.html
+
+**More aid trucks reached Gaza this week, but nowhere near prewar figures, U.N. data shows.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news/more-aid-trucks-reached-gaza-this-week-but-nowhere-near-prewar-figures-un-data-shows
+
 **Opposition Blasts Macron for Risking Escalation in Ukraine**\
 `The French president attempted to forge a united front on a harder line against Russia. But few were persuaded.`\
 https://nytimes.com/2024/03/07/world/europe/ukraine-france-macron-nato.html
