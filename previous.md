@@ -1,3 +1,23 @@
+**9 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/03/07/books/review/new-books-recommendations.html
+
+**It’s Date Night**\
+`Dates add their rich, molasses-y flavor to roasted fennel and farro salad, blackened broccoli and a pantry friendly Persian lentil rice.`\
+https://nytimes.com/2024/03/07/dining/its-date-night.html
+
+**New York Community Bank Tries to Reassure Markets After $1 Billion Rescue**\
+`Management told investors that deposits had fallen, but the bank’s shares jumped on the details of a shift in strategy and large cash infusion led by the former Treasury secretary Steven Mnuchin.`\
+https://nytimes.com/2024/03/07/business/new-york-community-bank-rescue-stock.html
+
+**‘Glitter & Doom’ Review: As a Vibe, it’s Fun. As a Film? Closer to Fine.**\
+`Songs by the Indigo Girls soundtrack a musical romance.`\
+https://nytimes.com/2024/03/07/movies/glitter-and-doom-review-indigo-girls.html
+
+**Review: A Gentle Nightmare (Paging Dr. Freud)**\
+`Pontus Lidberg’s “On the Nature of Rabbits” at the Joyce Theater is a dance haunted by AIDS.`\
+https://nytimes.com/2024/03/07/arts/dance/review-pontus-lidberg-on-the-nature-of-rabbits.html
+
 **Sweden Officially Enters NATO Alliance, a Strategic Blow to Moscow**\
 `Sweden applied to become a member two years ago after Russia invaded Ukraine.`\
 https://nytimes.com/2024/03/07/world/europe/sweden-nato-neutrality.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/03/07/well/live/what-is-your-earliest-pandemic-memory.h
 **Here’s How to Watch the State of the Union Address**\
 `In a speech scheduled for 9 p.m., President Biden is set to lay out his agenda directly to the American people. The New York Times will carry the address live.`\
 https://nytimes.com/2024/03/07/us/politics/state-of-the-union-time-guests.html
-
-**It is unclear whether Israel will be involved in constructing the pier.**\
-`By David E. Sanger and Michael D. Shear`\
-https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news/us-gaza-aid
-
-**Jerome Powell, Take My Money!**\
-`The New York Federal Reserve, my local branch, already has a defunct teller’s window in the building. Dust it off.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/fed-inflation-banks
-
-**Utility Says Its Equipment May Have Started Record Texas Fire**\
-`The company, Xcel Energy, said that its facilities in the Texas Panhandle “appear to have been involved in an ignition” of the fire, which has burned more than 1 million acres.`\
-https://nytimes.com/2024/03/07/us/texas-smokehouse-creek-fire-xcel-energy.html
-
-**The Film Christopher Nolan Doesn’t Want You to Watch**\
-`Nolan’s short film “Larceny” has not been shown publicly since a 1996 film festival. With the director in position to win his first Oscar, its cast and crew want to preserve that mystery.`\
-https://nytimes.com/2024/03/07/movies/christopher-nolan-larceny.html
-
-**Six People Found Dead in Ottawa Home**\
-`The police are investigating the circumstances surrounding the killings Wednesday of four children and two adults.`\
-https://nytimes.com/2024/03/07/world/canada/canada-ottawa-homicides.html
 
