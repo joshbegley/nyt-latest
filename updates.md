@@ -1,3 +1,19 @@
+**3 Degrees of Trumpiness: Ohio’s Republican Senate Candidates Clash**\
+`Donald Trump’s choice for the nomination, Bernie Moreno, has eagerly showed off his endorsement, but his two rivals have also embraced the former president or his policies.`\
+https://nytimes.com/2024/03/07/us/politics/ohio-senate-debate-takeaways.html
+
+**A Well-Meaning Challenge to Biden Ends on a Classy Note**\
+`Dean Phillips knew he had to drop out, but did so without rancor.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/dean-phillips-biden
+
+**Illustrating Ideas: The Winners of Our Second Annual One-Pager Challenge**\
+`We challenged teenagers to respond to the Times piece of their choice by creating a visual guide to what they learned. Here are our favorites.`\
+https://nytimes.com/2024/03/07/learning/illustrating-ideas-the-winners-of-our-second-annual-one-pager-challenge.html
+
+**Biden is facing low approval ratings and age concerns ahead of his speech.**\
+`By Ruth Igielnik`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/biden-is-facing-low-approval-ratings-and-age-concerns-ahead-of-his-speech
+
 **Here’s the latest on the speech.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/heres-the-latest-on-the-speech
