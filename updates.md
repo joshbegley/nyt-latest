@@ -1,3 +1,7 @@
+**Baseball Video Game Will Include Women for the First Time**\
+`MLB The Show 24 will feature a career mode that allows gamers to create a female player and steer her journey to the big leagues. The game draws on the experiences of female baseball players.`\
+https://nytimes.com/2024/03/07/sports/baseball/mlb-the-show-24-women-players.html
+
 **Mike Tyson to Fight Jake Paul in Match on Netflix**\
 `The July bout between Mr. Tyson, the former world champion, and Mr. Paul, the influencer turned boxer, is part of Netflix’s push into “sports-adjacent” live events.`\
 https://nytimes.com/2024/03/07/business/media/mike-tyson-jake-paul-fight-netflix.html
