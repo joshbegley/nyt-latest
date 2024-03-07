@@ -1,3 +1,7 @@
+**Jay Powell Signals a Retreat on Banking Rules**\
+`The Fed chair said regulators could scale back or rework a sweeping capital-requirements proposal that Wall Street has been fighting for months.`\
+https://nytimes.com/2024/03/07/business/dealbook/fed-powell-banks-capital-rules.html
+
 **New Trump Super PAC Ad Attacks Biden Over His Age**\
 `The ad, which aired on MSNBC on Thursday morning, asks, “Can Biden even survive until 2029?”`\
 https://nytimes.com/2024/03/07/us/politics/trump-super-pac-ad.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news/south-afric
 **07mideast-crisis**\
 `South Africa Asks U.N. Court to Act as Hunger Worsens in Gaza`\
 https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news
-
-**The 20 Guests Who Will Sit With Jill Biden at the State of the Union**\
-`Among the attendees will be the prime minister of Sweden and women who were denied an abortion and in vitro fertilization.`\
-https://nytimes.com/2024/03/07/us/politics/sotu-guest-list-biden.html
 
