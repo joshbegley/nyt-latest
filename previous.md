@@ -1,3 +1,7 @@
+**‘Space: The Longest Goodbye’ Review: Alone Up There**\
+`This documentary by Ido Mizrahy examines the psychological challenges of space exploration for astronauts and their loved ones as scientists consider whether humans could reach Mars.`\
+https://nytimes.com/2024/03/07/movies/space-the-longest-goodbye-review.html
+
 **‘Cabrini’ Review: Embarking on a Pious Mission**\
 `From the team behind “Sound of Freedom,” this biopic of an Italian nun in 19th-century New York City is stuffed with sanctimonious speeches.`\
 https://nytimes.com/2024/03/07/movies/cabrini-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/us/politics/sotu-guest-list-biden.html
 **Where Nikki Haley Won and What It Means**\
 `Some affluent and highly educated Republicans could be in play for Biden as Haley steps aside.`\
 https://nytimes.com/2024/03/07/upshot/nikki-haley-biden-2024.html
-
-**Nervous Democrats Press Biden on Gaza Ahead of State of the Union**\
-`Mainstream Democratic lawmakers want the president to speak out more forcefully for the policies that his administration has embraced, including a cease-fire.`\
-https://nytimes.com/2024/03/07/us/politics/biden-gaza.html
 

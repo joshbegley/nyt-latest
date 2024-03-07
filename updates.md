@@ -1,3 +1,7 @@
+**‘Space: The Longest Goodbye’ Review: Alone Up There**\
+`This documentary by Ido Mizrahy examines the psychological challenges of space exploration for astronauts and their loved ones as scientists consider whether humans could reach Mars.`\
+https://nytimes.com/2024/03/07/movies/space-the-longest-goodbye-review.html
+
 **‘Cabrini’ Review: Embarking on a Pious Mission**\
 `From the team behind “Sound of Freedom,” this biopic of an Italian nun in 19th-century New York City is stuffed with sanctimonious speeches.`\
 https://nytimes.com/2024/03/07/movies/cabrini-review.html
