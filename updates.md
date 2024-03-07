@@ -1,3 +1,15 @@
+**Mike Tyson to Fight Jake Paul in Match on Netflix**\
+`The July bout between Mr. Tyson, the former world champion, and Mr. Paul, the influencer turned boxer, is part of Netflix’s push into “sports-adjacent” live events.`\
+https://nytimes.com/2024/03/07/business/media/mike-tyson-jake-paul-fight-netflix.html
+
+**Chelsea Hotel’s Cast of Characters, Captured by Its Resident Photographer**\
+`Plus: a chef’s guesthouse in Bali, art that explores girlhood — and more recommendations from T Magazine.`\
+https://nytimes.com/2024/03/07/t-magazine/chelsea-hotel-portraits-tony-notarberardino.html
+
+**Why California Hasn’t Ditched Daylight Saving Time**\
+`Our clocks will have to spring forward an hour on Sunday, as in most of the country.`\
+https://nytimes.com/2024/03/07/us/california-daylight-saving-time.html
+
 **European Central Bank, Citing Wage Growth, Keeps Rates Steady**\
 `Although inflation has eased, the eurozone’s central bank said that “domestic price pressures remain high.” Rates remain the highest in the central bank’s history.`\
 https://nytimes.com/2024/03/07/business/european-central-bank-interest-rates.html

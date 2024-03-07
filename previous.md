@@ -1,3 +1,15 @@
+**Mike Tyson to Fight Jake Paul in Match on Netflix**\
+`The July bout between Mr. Tyson, the former world champion, and Mr. Paul, the influencer turned boxer, is part of Netflix’s push into “sports-adjacent” live events.`\
+https://nytimes.com/2024/03/07/business/media/mike-tyson-jake-paul-fight-netflix.html
+
+**Chelsea Hotel’s Cast of Characters, Captured by Its Resident Photographer**\
+`Plus: a chef’s guesthouse in Bali, art that explores girlhood — and more recommendations from T Magazine.`\
+https://nytimes.com/2024/03/07/t-magazine/chelsea-hotel-portraits-tony-notarberardino.html
+
+**Why California Hasn’t Ditched Daylight Saving Time**\
+`Our clocks will have to spring forward an hour on Sunday, as in most of the country.`\
+https://nytimes.com/2024/03/07/us/california-daylight-saving-time.html
+
 **European Central Bank, Citing Wage Growth, Keeps Rates Steady**\
 `Although inflation has eased, the eurozone’s central bank said that “domestic price pressures remain high.” Rates remain the highest in the central bank’s history.`\
 https://nytimes.com/2024/03/07/business/european-central-bank-interest-rates.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/07/movies/cabrini-review.html
 **Is Hungary a Model for Trump?**\
 `We examine Donald Trump’s affinity for Viktor Orban, Hungary’s prime minister.`\
 https://nytimes.com/2024/03/07/briefing/hungary-orban-trump.html
-
-**The Miseducation of Google’s A.I.**\
-`Gemini, Google’s new chatbot, has provoked a fierce debate about social values and artificial intelligence.`\
-https://nytimes.com/2024/03/07/podcasts/the-daily/gemini-google-ai.html
-
-**Biden’s State of the Union Strategy, and Haiti in Crisis**\
-`Plus, a guilty verdict in the “Rust” film shooting.`\
-https://nytimes.com/2024/03/07/podcasts/biden-haley-haiti-rust.html
-
-**Voyager 1, First Craft in Interstellar Space, May Have Gone Dark**\
-`The 46-year-old probe, which flew by Jupiter and Saturn in its youth and inspired earthlings with images of the planet as a “Pale Blue Dot,” hasn’t sent usable data from interstellar space in months.`\
-https://nytimes.com/2024/03/07/us/voyager-1-nasa-mission.html
 
