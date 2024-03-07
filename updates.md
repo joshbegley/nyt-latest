@@ -1,3 +1,7 @@
+**Eight Teens Are Shot at Philadelphia Bus Stop, Police Say**\
+`The injured high school students, one of whom was in critical condition, range in age from 15 to 17, the police said. It was the latest in a series of shootings on or near public buses in the city.`\
+https://nytimes.com/2024/03/06/us/philadelphia-septa-bus-shooting.html
+
 **Dr. Anthony Epstein, Pathologist Who Discovered Epstein-Barr Virus, Dies at 102**\
 `His groundbreaking research, which he performed with Yvonne Barr, his doctoral student, uncovered the first virus capable of causing cancer in humans.`\
 https://nytimes.com/2024/03/06/science/anthony-epstein-dead.html
