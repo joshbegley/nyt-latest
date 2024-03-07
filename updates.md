@@ -1,3 +1,7 @@
+**Embryo Transfers Are Resuming in Alabama, Even as Legal Questions Remain**\
+`Hours after the governor signed a law that offers legal protections to clinics and doctors performing I.V.F. procedures, at least one clinic resumed embryo transfers.`\
+https://nytimes.com/2024/03/07/us/politics/alabama-embryo-ivf.html
+
 **When Teens Visit Doctors, Increasingly the Subject is Mental Health**\
 `A new study provides further evidence of the challenges that adolescents and young adults face.`\
 https://nytimes.com/2024/03/07/health/adolescents-mental-health.html
