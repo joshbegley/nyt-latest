@@ -1,5 +1,5 @@
 **Legal Muddle Adds to Stress of I.V.F. Patients in Alabama**\
-`Many suffered setbacks after the State Supreme Court ruled that frozen embryos were children. “Someone else’s opinion changed my future,” one woman said.`\
+`Many suffered setbacks after the state supreme court ruled that frozen embryos were children. “Someone else’s opinion changed my future,” one woman said.`\
 https://nytimes.com/2024/03/07/health/ivf-alabama-families.html
 
 **More aid trucks reached Gaza this week, but nowhere near prewar figures, U.N. data shows.**\
