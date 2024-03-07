@@ -1,3 +1,11 @@
+**Dr. Anthony Epstein, Pathologist Who Discovered Epstein-Barr Virus, Dies at 102**\
+`His groundbreaking research, which he performed with Yvonne Barr, his doctoral student, uncovered the first virus capable of causing cancer in humans.`\
+https://nytimes.com/2024/03/06/science/anthony-epstein-dead.html
+
+**The School Issues We’re Battling Over Aren’t the Ones That Matter**\
+`What’s worse than censoring a book? Kids not being able to read it anyway.`\
+https://nytimes.com/2024/03/06/opinion/book-banning-crt-education.html
+
 **Takeaways From the Texas Primary: Ken Paxton Ousts Some of His Enemies**\
 `The Republican attorney general succeeded in defeating some politicians and judges who opposed him. But Democrats showed they also know how to punish incumbents.`\
 https://nytimes.com/2024/03/06/us/texas-election-takeaways-paxton.html
