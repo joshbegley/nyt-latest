@@ -1,3 +1,7 @@
+**Lucas Samaras, Artist Who Was His Own Canvas, Dies at 87**\
+`A wild card even by the rabble-rousing standards of the 1960s, he once said that he used himself in his art “because it is still unorthodox to use one’s self.”`\
+https://nytimes.com/2024/03/07/arts/lucas-samaras-dead.html
+
 **How a Sudden Halt to In Vitro Fertilization Shook Alabama Couples**\
 `Many suffered setbacks after the state supreme court ruled that frozen embryos were children. “Someone else’s opinion changed my future,” one woman said.`\
 https://nytimes.com/2024/03/07/health/ivf-alabama-families.html

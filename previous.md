@@ -1,3 +1,7 @@
+**Lucas Samaras, Artist Who Was His Own Canvas, Dies at 87**\
+`A wild card even by the rabble-rousing standards of the 1960s, he once said that he used himself in his art “because it is still unorthodox to use one’s self.”`\
+https://nytimes.com/2024/03/07/arts/lucas-samaras-dead.html
+
 **Moms Marketing Their Daughters on Social Media**\
 `Readers are appalled by mothers who profit from images that attract pedophiles. Also: Haley and Trump; lives lost in Gaza; exclusionary zoning.`\
 https://nytimes.com/2024/03/07/opinion/letters/moms-marketing-daughters-social-media.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/business/new-york-community-bank-rescue-stock.htm
 **‘Glitter & Doom’ Review: As a Vibe, it’s Fun. As a Film? Closer to Fine.**\
 `Songs by the Indigo Girls soundtrack a musical romance.`\
 https://nytimes.com/2024/03/07/movies/glitter-and-doom-review-indigo-girls.html
-
-**Review: A Gentle Nightmare (Paging Dr. Freud)**\
-`Pontus Lidberg’s “On the Nature of Rabbits” at the Joyce Theater is a dance haunted by AIDS.`\
-https://nytimes.com/2024/03/07/arts/dance/review-pontus-lidberg-on-the-nature-of-rabbits.html
 
