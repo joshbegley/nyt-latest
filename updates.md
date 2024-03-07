@@ -1,3 +1,7 @@
+**Mutual Frustrations Arise in U.S.-Ukraine Alliance**\
+`Ukrainian officials are disheartened about stalled aid. The Pentagon wants Kyiv to heed its advice on how to fight.`\
+https://nytimes.com/2024/03/07/us/politics/ukraine-us-military-frustrations.html
+
 **F.D.A. Urges Recall of Cinnamon Brands Tainted by Lead**\
 `The agency tested 75 types of cinnamon after hundreds of children were poisoned by the spice in applesauce. It found some lead in cinnamon brands sold at some dollar stores and other markets.`\
 https://nytimes.com/2024/03/07/health/fda-lead-cinnamon-recall.html
