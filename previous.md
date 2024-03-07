@@ -1,3 +1,15 @@
+**Hamas negotiators leave Cairo with no breakthrough in cease-fire talks.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news/hamas-negotiators-leave-cairo-with-no-breakthrough-in-cease-fire-talks
+
+**For Biden, It’s the Little Things That Count**\
+`A small tax idea that could make a big difference.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-tax-filing
+
+**Top Senators Urge Stores to Stop Selling Illicit Vapes**\
+`Lawmakers want shopkeepers to remove e-cigarettes that were not authorized by the F.D.A. Retailers say it is not that simple.`\
+https://nytimes.com/2024/03/07/health/vaping-senators-warning-fda.html
+
 **Baseball Video Game Will Include Women for the First Time**\
 `MLB The Show 24 will feature a career mode that allows gamers to create a female player and steer her journey to the big leagues. The game draws on the experiences of female baseball players.`\
 https://nytimes.com/2024/03/07/sports/baseball/mlb-the-show-24-women-players.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/07/opinion/nyt-nuclear-sole-authority.html
 **Jay Powell Signals a Retreat on Banking Rules**\
 `The Fed chair said regulators could scale back or rework a sweeping capital-requirements proposal that Wall Street has been fighting for months.`\
 https://nytimes.com/2024/03/07/business/dealbook/fed-powell-banks-capital-rules.html
-
-**New Trump Super PAC Ad Attacks Biden Over His Age**\
-`The ad, which aired on MSNBC on Thursday morning, asks, “Can Biden even survive until 2029?”`\
-https://nytimes.com/2024/03/07/us/politics/trump-super-pac-ad.html
-
-**‘Space: The Longest Goodbye’ Review: Alone Up There**\
-`This documentary by Ido Mizrahy examines the psychological challenges of space exploration for astronauts and their loved ones as scientists consider whether humans could reach Mars.`\
-https://nytimes.com/2024/03/07/movies/space-the-longest-goodbye-review.html
-
-**‘Cabrini’ Review: Embarking on a Pious Mission**\
-`From the team behind “Sound of Freedom,” this biopic of an Italian nun in 19th-century New York City is stuffed with sanctimonious speeches.`\
-https://nytimes.com/2024/03/07/movies/cabrini-review.html
 
