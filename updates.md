@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Nikki Haley ends her presidential campaign.`\
+https://nytimes.com/2024/03/07/briefing/nikki-haley-out-gaza-ceasefire.html
+
 **A Popular Israeli Leader’s Meeting in London Sends a Message to Netanyahu**\
 `A meeting between the British foreign secretary, David Cameron, and an Israeli minister, Benny Gantz, carried more weight than usual, analysts said, and stressed the frustration of Israel’s allies.`\
 https://nytimes.com/2024/03/07/world/middleeast/netanyahu-cameron-gantz-israel.html
