@@ -1,3 +1,11 @@
+**José Andrés's World Central Kitchen, Central to U.S. Gaza Aid Plan, Aims to Ramp Up**\
+`The organization, founded by the Spanish chef José Andrés, has served more than 32 millions meals in Gaza, and he hopes to do more.`\
+https://nytimes.com/2024/03/07/world/middleeast/world-central-kitchen-gaza-aid.html
+
+**Judge’s Order Will Prevent Trump From Revealing Names of Jurors**\
+`Donald J. Trump’s legal team agreed with the restrictions regarding his hush-money trial. The judge also ruled that only the lawyers in the case will know the jurors’ addresses.`\
+https://nytimes.com/2024/03/07/nyregion/trump-gag-order-jury-criminal-trial.html
+
 **Semana 4: cuenta cuánto sabes**\
 `By Elda Cantú and Elaine Chen`\
 https://nytimes.com/explain/2024/aves-observacion-ciencia/datos-curiosos-aves

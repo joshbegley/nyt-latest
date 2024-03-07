@@ -1,3 +1,11 @@
+**José Andrés's World Central Kitchen, Central to U.S. Gaza Aid Plan, Aims to Ramp Up**\
+`The organization, founded by the Spanish chef José Andrés, has served more than 32 millions meals in Gaza, and he hopes to do more.`\
+https://nytimes.com/2024/03/07/world/middleeast/world-central-kitchen-gaza-aid.html
+
+**Judge’s Order Will Prevent Trump From Revealing Names of Jurors**\
+`Donald J. Trump’s legal team agreed with the restrictions regarding his hush-money trial. The judge also ruled that only the lawyers in the case will know the jurors’ addresses.`\
+https://nytimes.com/2024/03/07/nyregion/trump-gag-order-jury-criminal-trial.html
+
 **Semana 4: cuenta cuánto sabes**\
 `By Elda Cantú and Elaine Chen`\
 https://nytimes.com/explain/2024/aves-observacion-ciencia/datos-curiosos-aves
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/07/us/uvalde-police-city-investigation.html
 **State Investigations Create More Peril for Trump Prosecutor in Georgia**\
 `A claim made about the prosecutor, Fani Willis, at a State Senate hearing proved false, but it hinted at the turbulence she might face even if an effort to disqualify her fails.`\
 https://nytimes.com/2024/03/07/us/fani-willis-trump-georgia-state-investigation.html
-
-**Biden tries to rally support for Ukraine as unity in Congress gives way to bickering.**\
-`By Helene Cooper and Eric Schmitt`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-tries-to-rally-support-for-ukraine-as-unity-in-congress-gives-way-to-bickering
-
-**Tonight’s State of the Union Is a Big Moment for Biden**\
-`Also, a plan to help get aid into Gaza. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/03/07/briefing/state-of-the-union-aid-plan-gaza.html
 
