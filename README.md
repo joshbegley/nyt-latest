@@ -1,5 +1,5 @@
 **Judge Blocks Debt Settlement Company From Resuming Operations**\
-`Strategic Financial Solutions was accused of fraud in a lawsuit by federal and state prosecutors.`\
+`Strategic Financial Solutions is accused of fraud in a lawsuit by federal and state prosecutors.`\
 https://nytimes.com/2024/03/07/business/strategic-financial-solutions-lawsuit-ryan-sasson.html
 
 **Inflation has come down some, but prices remain high and consumers cranky.**\
