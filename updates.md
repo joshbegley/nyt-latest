@@ -1,3 +1,7 @@
+**‘Cabrini’ Review: Embarking on a Pious Mission**\
+`From the team behind “Sound of Freedom,” this biopic of an Italian nun in 19th-century New York City is stuffed with sanctimonious speeches.`\
+https://nytimes.com/2024/03/07/movies/cabrini-review.html
+
 **Is Hungary a Model for Trump?**\
 `We examine Donald Trump’s affinity for Viktor Orban, Hungary’s prime minister.`\
 https://nytimes.com/2024/03/07/briefing/hungary-orban-trump.html

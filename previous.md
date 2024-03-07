@@ -1,3 +1,7 @@
+**‘Cabrini’ Review: Embarking on a Pious Mission**\
+`From the team behind “Sound of Freedom,” this biopic of an Italian nun in 19th-century New York City is stuffed with sanctimonious speeches.`\
+https://nytimes.com/2024/03/07/movies/cabrini-review.html
+
 **Is Hungary a Model for Trump?**\
 `We examine Donald Trump’s affinity for Viktor Orban, Hungary’s prime minister.`\
 https://nytimes.com/2024/03/07/briefing/hungary-orban-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/upshot/nikki-haley-biden-2024.html
 **Nervous Democrats Press Biden on Gaza Ahead of State of the Union**\
 `Mainstream Democratic lawmakers want the president to speak out more forcefully for the policies that his administration has embraced, including a cease-fire.`\
 https://nytimes.com/2024/03/07/us/politics/biden-gaza.html
-
-**They Wanted a Waterfront House in New York City for $450,000 (but Not for Themselves)**\
-`A couple loved living in Sea Gate, Brooklyn, so much that they wanted to share the experience with others. So they looked for a distressed property they could restore and rent to a low-income tenant.`\
-https://nytimes.com/interactive/2024/03/07/realestate/queens-staten-island-houses-sale.html
 
