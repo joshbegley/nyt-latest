@@ -1,3 +1,11 @@
+**Biden wants Congress to reduce the risks of social media for children.**\
+`By Natasha Singer`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-wants-congress-to-reduce-the-risks-of-social-media-for-children
+
+**Prosecutors Say Trump’s Secret Files Case ‘Starkly Different’ from Biden’s**\
+`The special counsel, Jack Smith, filed an array of rebuttals to motions by former President Donald J. Trump to dismiss his documents case.`\
+https://nytimes.com/2024/03/07/us/politics/prosecutors-trump-secret-files.html
+
 **Biden could speak about the challenge posed by China, though relations are more stable.**\
 `By Edward Wong`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-could-speak-about-the-challenge-posed-by-china-though-relations-are-more-stable
