@@ -1,3 +1,27 @@
+**A Journalist Who Moves Between Writing and Recording**\
+`In an interview, the reporter Annie Correal discussed why she was “thinking for audio” during a recent assignment in South America.`\
+https://nytimes.com/2024/03/07/insider/audio-reporting-colombia.html
+
+**Home Care Aides Fight to End 24-Hour Shifts: ‘This Work Is Killing Them’**\
+`Home health care, among the fastest growing industries in New York and nationwide, is also one of the lowest paying, with often grueling hours.`\
+https://nytimes.com/2024/03/07/nyregion/home-care-aides-city-council-bill-end-24-hour-shifts.html
+
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/07/crosswords/connections-companion.html
+
+**Are You Buying What Kylie Jenner Is Selling?**\
+`The youngest Kardashian-Jenner sister has a new look. And a slew of new products to go along with it.`\
+https://nytimes.com/2024/03/07/style/kylie-jenner-kardashians.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/07/crosswords/wordle-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/03/07/crosswords/spelling-bee-forum.html
+
 **Ronny Chieng Is Sad to See Nikki Haley Go**\
 `“The Daily Show” guest host bemoaned that Haley dropped out after President Joe Biden and former President Donald Trump crushed Super Tuesday “like it was an audition for a Life Alert commercial.”`\
 https://nytimes.com/2024/03/07/arts/television/ronny-chieng-nikki-haley.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/03/07/pageoneplus/quotation-of-the-day-big-tech-bows-to
 **Dark Brandon in the House**\
 `What President Biden needs to accomplish at Thursday’s State of the Union address.`\
 https://nytimes.com/2024/03/07/opinion/biden-state-of-the-union.html
-
-**Thursday Briefing**\
-`Nikki Haley ends her presidential campaign.`\
-https://nytimes.com/2024/03/07/briefing/nikki-haley-out-gaza-ceasefire.html
-
-**Britain Is Cutting Taxes Again. Why Now?**\
-`The government announced a budget as a national election looms. Here’s what you need to know.`\
-https://nytimes.com/2024/03/07/business/britain-is-cutting-taxes-again-why-now.html
-
-**A Popular Israeli Leader’s Meeting in London Sends a Message to Netanyahu**\
-`A meeting between the British foreign secretary, David Cameron, and an Israeli minister, Benny Gantz, carried more weight than usual, analysts said, and stressed the frustration of Israel’s allies.`\
-https://nytimes.com/2024/03/07/world/middleeast/netanyahu-cameron-gantz-israel.html
-
-**Crowdfunding, Auctions and Raffles: How Ukrainians Are Aiding the Army**\
-`Fund-raisers are borrowing heavily from business techniques to keep donations flowing to the military. The latest trend? Broad approaches that rely on networks of friends and acquaintances.`\
-https://nytimes.com/2024/03/07/world/europe/ukraine-war-donations-crowdfunding.html
-
-**Playing a British Rogue, With Added Firepower**\
-`Daniel Ings has built a career playing charming, posh men. His latest role is a chaotic aristocrat in Guy Ritchie’s series “The Gentlemen.”`\
-https://nytimes.com/2024/03/07/arts/television/daniel-ings-the-gentlemen.html
-
-**How China Came to Dominate the World in Solar Energy**\
-`Beijing is set to further increase its manufacturing and installation of solar panels as it seeks to master global markets and wean itself from imports.`\
-https://nytimes.com/2024/03/07/business/china-solar-energy-exports.html
 
