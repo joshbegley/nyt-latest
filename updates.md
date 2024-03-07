@@ -1,3 +1,7 @@
+**Inflation has come down some, but prices remain high and consumers cranky.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/inflation-has-come-down-some-but-prices-remain-high-and-consumers-cranky
+
 **2 Women Were Found Dead in the 1980s. DNA Links a Man to the Murders.**\
 `A Virginia man was arrested on Tuesday in connection with the 1986 murder of Jacqueline Lard. The authorities said his DNA was also linked to the 1989 killing of Amy Baker.`\
 https://nytimes.com/2024/03/07/us/elroy-harrison-baker-lard.html
