@@ -1,3 +1,7 @@
+**Dark Brandon in the House**\
+`What President Biden needs to accomplish at Thursday’s State of the Union address.`\
+https://nytimes.com/2024/03/07/opinion/biden-state-of-the-union.html
+
 **Thursday Briefing**\
 `Nikki Haley ends her presidential campaign.`\
 https://nytimes.com/2024/03/07/briefing/nikki-haley-out-gaza-ceasefire.html
