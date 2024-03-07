@@ -1,3 +1,7 @@
+**Ex-Google Engineer Charged With Stealing A.I. Secrets for Chinese Firm**\
+`Linwei Ding, a Chinese national, was arrested in California and accused of uploading hundreds of files to the cloud.`\
+https://nytimes.com/2024/03/06/us/politics/google-engineer-china-ai-theft.html
+
 **Trump’s Super Tuesday Speech: Assessing 10 False and Misleading Claims**\
 `After racking up a series of wins that cleared the field, former President Donald J. Trump moved to a general election message. Here’s a fact check.`\
 https://nytimes.com/2024/03/06/us/politics/trump-super-tuesday-fact-check.html
