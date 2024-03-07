@@ -1,3 +1,11 @@
+**A Subway Plan Aimed to Ease Fears. The Blowback Was Immediate.**\
+`Gov. Kathy Hochul’s subway safety plan was meant to show how Democrats can take action on crime, but the response illustrated how the issue divides her party.`\
+https://nytimes.com/2024/03/07/nyregion/hochul-police-subway-search.html
+
+**U.S. Military to Build Floating Pier to Ferry Gaza Aid, White House Says**\
+`U.S. officials said that a temporary port, built from ships and then moved close to shore, would allow hundreds of truckloads of aid to reach Gazans on the brink of starvation.`\
+https://nytimes.com/2024/03/07/world/middleeast/us-gaza-pier-ships-aid.html
+
 **Here’s a look at how the president’s annual address became a picture of disunion.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/heres-a-look-at-how-the-presidents-annual-address-became-a-picture-of-disunion
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/ivf-alab
 **Biden wants Congress to reduce the risks of social media for children.**\
 `By Natasha Singer`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-wants-congress-to-reduce-the-risks-of-social-media-for-children
-
-**Prosecutors Say Trump’s Secret Files Case ‘Starkly Different’ from Biden’s**\
-`The special counsel, Jack Smith, filed an array of rebuttals to motions by former President Donald J. Trump to dismiss his documents case.`\
-https://nytimes.com/2024/03/07/us/politics/prosecutors-trump-secret-files.html
-
-**Biden could speak about the challenge posed by China, though relations are more stable.**\
-`By Edward Wong`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-could-speak-about-the-challenge-posed-by-china-though-relations-are-more-stable
 
