@@ -1,3 +1,11 @@
+**The Miseducation of Google’s A.I.**\
+`Gemini, Google’s new chatbot, has provoked a fierce debate about social values and artificial intelligence.`\
+https://nytimes.com/2024/03/07/podcasts/the-daily/gemini-google-ai.html
+
+**Biden’s State of the Union Strategy, and Haiti in Crisis**\
+`Plus, a guilty verdict in the “Rust” film shooting.`\
+https://nytimes.com/2024/03/07/podcasts/biden-haley-haiti-rust.html
+
 **Voyager 1, First Craft in Interstellar Space, May Have Gone Dark**\
 `The 46-year-old probe, which flew by Jupiter and Saturn in its youth and inspired earthlings with images of the planet as a “Pale Blue Dot,” hasn’t sent usable data from interstellar space in months.`\
 https://nytimes.com/2024/03/07/us/voyager-1-nasa-mission.html

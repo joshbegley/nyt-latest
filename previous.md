@@ -1,3 +1,11 @@
+**The Miseducation of Google’s A.I.**\
+`Gemini, Google’s new chatbot, has provoked a fierce debate about social values and artificial intelligence.`\
+https://nytimes.com/2024/03/07/podcasts/the-daily/gemini-google-ai.html
+
+**Biden’s State of the Union Strategy, and Haiti in Crisis**\
+`Plus, a guilty verdict in the “Rust” film shooting.`\
+https://nytimes.com/2024/03/07/podcasts/biden-haley-haiti-rust.html
+
 **Voyager 1, First Craft in Interstellar Space, May Have Gone Dark**\
 `The 46-year-old probe, which flew by Jupiter and Saturn in its youth and inspired earthlings with images of the planet as a “Pale Blue Dot,” hasn’t sent usable data from interstellar space in months.`\
 https://nytimes.com/2024/03/07/us/voyager-1-nasa-mission.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/03/07/realestate/queens-staten-island-house
 **Six Key Questions Ahead of Biden’s State of the Union**\
 `What campaign themes will he lay out? How directly will he attack Donald Trump? Will he say the word abortion?`\
 https://nytimes.com/2024/03/07/us/politics/biden-state-of-the-union-questions.html
-
-**What the ‘Rust’ Jury Heard About How Live Rounds Got on a Film Set**\
-`The prosecution pointed to a photo of the film’s armorer, arguing she had brought the live rounds. Her lawyers tried to focus attention on the movie’s primary ammunition supplier.`\
-https://nytimes.com/2024/03/07/movies/rust-live-ammunition.html
-
-**Behind the Scenes of a Manatee Rescue**\
-`When a seagrass shortage caused a mass manatee die-off, scientists rushed to save the orphaned young.`\
-https://nytimes.com/video/science/earth/100000009346616/behind-the-scenes-manatee-rescue.html
 
