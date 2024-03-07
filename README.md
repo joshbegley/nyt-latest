@@ -1,3 +1,7 @@
+**Mutual Frustrations Arise in U.S.-Ukraine Alliance**\
+`Ukrainian officials are disheartened about stalled aid. The Pentagon wants Kyiv to heed its advice on how to fight.`\
+https://nytimes.com/2024/03/07/us/politics/ukraine-us-military-frustrations.html
+
 **F.D.A. Urges Recall of Cinnamon Brands Tainted by Lead**\
 `The agency tested 75 types of cinnamon after hundreds of children were poisoned by the spice in applesauce. It found some lead in cinnamon brands sold at some dollar stores and other markets.`\
 https://nytimes.com/2024/03/07/health/fda-lead-cinnamon-recall.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news/hamas-negot
 **For Biden, It’s the Little Things That Count**\
 `A small tax idea that could make a big difference.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-tax-filing
-
-**Top Senators Urge Stores to Stop Selling Illicit Vapes**\
-`Lawmakers want shopkeepers to remove e-cigarettes that were not authorized by the F.D.A. Retailers say it is not that simple.`\
-https://nytimes.com/2024/03/07/health/vaping-senators-warning-fda.html
 
