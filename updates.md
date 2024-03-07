@@ -1,3 +1,11 @@
+**F.D.A. Urges Recall of Cinnamon Brands Tainted by Lead**\
+`The agency tested 75 types of cinnamon after hundreds of children were poisoned by the spice in applesauce. It found some lead in cinnamon brands sold at some dollar stores and other markets.`\
+https://nytimes.com/2024/03/07/health/fda-lead-cinnamon-recall.html
+
+**Breakfast Pasta for Dinner (or Dinner Pasta for Breakfast)**\
+`Ali Slagle’s new carbonara-leaning skillet pasta with bacon and eggs is a quick and easy meal for any time of day.`\
+https://nytimes.com/2024/03/07/dining/breakfast-pasta-for-dinner-or-dinner-pasta-for-breakfast.html
+
 **Spate of Mock News Sites With Russian Ties Pop Up in U.S.**\
 `The fake news organizations, experts say, represent a technological leap in the Kremlin’s efforts to spread false and misleading narratives.`\
 https://nytimes.com/2024/03/07/business/media/spate-of-mock-news-sites-with-russian-ties-pop-up-in-us.html
