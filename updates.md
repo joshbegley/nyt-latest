@@ -1,3 +1,11 @@
+**Here’s the latest on the speech.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/heres-the-latest-on-the-speech
+
+**07sotu**\
+`State of the Union Live Updates: Biden to Speak at High-Stakes Moment`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union
+
 **What’s Going On in This Graph? | March 13, 2024**\
 `What do some fourth graders think are humanity’s biggest problems? Do they think adults are doing a good job of running the world?`\
 https://nytimes.com/2024/03/07/learning/whats-going-on-in-this-graph-march-13-2024.html
