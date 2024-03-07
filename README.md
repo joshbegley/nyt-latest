@@ -1,3 +1,7 @@
+**Quotation of the Day: Big Tech Bows to Force of Law**\
+`Quotation of the Day for Thursday, March 7, 2024.`\
+https://nytimes.com/2024/03/07/pageoneplus/quotation-of-the-day-big-tech-bows-to-force-of-law.html
+
 **Dark Brandon in the House**\
 `What President Biden needs to accomplish at Thursday’s State of the Union address.`\
 https://nytimes.com/2024/03/07/opinion/biden-state-of-the-union.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/us/maine-shooting-brain-injury.html
 **String of Islands**\
 `Joe O’Neill makes a poetic debut.`\
 https://nytimes.com/2024/03/06/crosswords/daily-puzzle-2024-03-07.html
-
-**Weirdly Warm Winter Has Climate Fingerprints All Over It, Study Says**\
-`Recent heat waves in cities worldwide have the hallmarks of global warming, researchers said. And last month was the hottest February on record.`\
-https://nytimes.com/2024/03/06/climate/winter-february-heat-wave.html
 
