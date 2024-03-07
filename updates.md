@@ -1,3 +1,11 @@
+**Jerome Powell, Take My Money!**\
+`The New York Federal Reserve, my local branch, already has a defunct teller’s window in the building. Dust it off.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/fed-inflation-banks
+
+**Utility Says Its Equipment May Have Started Record Texas Fire**\
+`The company, Xcel Energy, said that its facilities in the Texas Panhandle “appear to have been involved in an ignition” of the fire, which has burned more than 1 million acres.`\
+https://nytimes.com/2024/03/07/us/texas-smokehouse-creek-fire-xcel-energy.html
+
 **The Film Christopher Nolan Doesn’t Want You to Watch**\
 `Nolan’s short film “Larceny” has not been shown publicly since a 1996 film festival. With the director in position to win his first Oscar, its cast and crew want to preserve that mystery.`\
 https://nytimes.com/2024/03/07/movies/christopher-nolan-larceny.html
