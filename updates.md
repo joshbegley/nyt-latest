@@ -1,3 +1,11 @@
+**What’s Going On in This Graph? | March 13, 2024**\
+`What do some fourth graders think are humanity’s biggest problems? Do they think adults are doing a good job of running the world?`\
+https://nytimes.com/2024/03/07/learning/whats-going-on-in-this-graph-march-13-2024.html
+
+**You’ll Never Believe Which Animal Makes Milk for Its Babies**\
+`Wormlike amphibians called caecilians add cloacal secretions of a nutritious material similar to milk to their numerous quirks, according to a new study.`\
+https://nytimes.com/2024/03/07/science/caecilians-milk-amphibians-worms.html
+
 **National Guard in the Subway? New Yorkers Have Their Doubts.**\
 `Some commuters said they felt safer after learning that heavily armed soldiers would patrol the subway system. Others were critical of the governor’s plan.`\
 https://nytimes.com/2024/03/07/nyregion/nyc-subway-national-guard.html
