@@ -1,3 +1,11 @@
+**Dr. Anthony Epstein, Pathologist Who Discovered Epstein-Barr Virus, Dies at 102**\
+`His groundbreaking research, which he performed with Yvonne Barr, his doctoral student, uncovered the first virus capable of causing cancer in humans.`\
+https://nytimes.com/2024/03/06/science/anthony-epstein-dead.html
+
+**The School Issues We’re Battling Over Aren’t the Ones That Matter**\
+`What’s worse than censoring a book? Kids not being able to read it anyway.`\
+https://nytimes.com/2024/03/06/opinion/book-banning-crt-education.html
+
 **Takeaways From the Texas Primary: Ken Paxton Ousts Some of His Enemies**\
 `The Republican attorney general succeeded in defeating some politicians and judges who opposed him. But Democrats showed they also know how to punish incumbents.`\
 https://nytimes.com/2024/03/06/us/texas-election-takeaways-paxton.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/06/arts/rust-armorer-convicted-alec-baldwin-shooting
 **Cruise Ship Worker Accused of Hiding Cameras in Bathrooms to Spy on Guests**\
 `The former employee of Royal Caribbean told investigators that he had been secretly recording people since he started working there in December 2023. He faces federal and state charges.`\
 https://nytimes.com/2024/03/06/us/royal-caribbean-cruise-bathroom-charges.html
-
-**Gray Whale, Long Absent From the Atlantic, Is Spotted Off Massachusetts**\
-`Gray whales are regularly found in the North Pacific, but sightings in the Atlantic, from which they had vanished by the 18th century, are extremely rare.`\
-https://nytimes.com/2024/03/06/science/gray-whale-nantucket.html
-
-**The National Guard Might Help Subway Riders Feel Safer**\
-`But Governor Hochul needs to ensure that the state’s role is to deter crime, not harass riders.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/nyc-subway-crime-national-guard
 
