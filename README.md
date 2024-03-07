@@ -1,3 +1,23 @@
+**Met Opera’s Orchestra Will Tour Asia for the First Time**\
+`After the pandemic forced the cancellation of a tour planned for 2022, the ensemble will visit Japan, South Korea and Taiwan in June.`\
+https://nytimes.com/2024/03/07/arts/music/met-opera-asia-tour.html
+
+**City Inquiry: Uvalde Officers Made Mistakes, but Did Not Violate Policy**\
+`An investigator for the city of Uvalde found that despite the many failures from police officers during a 2022 school shooting, they did not violate protocol and acted in good faith.`\
+https://nytimes.com/2024/03/07/us/uvalde-police-city-investigation.html
+
+**State Investigations Create More Peril for Trump Prosecutor in Georgia**\
+`A claim made about the prosecutor, Fani Willis, at a State Senate hearing proved false, but it hinted at the turbulence she might face even if an effort to disqualify her fails.`\
+https://nytimes.com/2024/03/07/us/fani-willis-trump-georgia-state-investigation.html
+
+**Biden tries to rally support for Ukraine as unity in Congress gives way to bickering.**\
+`By Helene Cooper and Eric Schmitt`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-tries-to-rally-support-for-ukraine-as-unity-in-congress-gives-way-to-bickering
+
+**Tonight’s State of the Union Is a Big Moment for Biden**\
+`Also, a plan to help get aid into Gaza. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/03/07/briefing/state-of-the-union-aid-plan-gaza.html
+
 **8-Year-Old Carried a Gun Into a New York City School, Police Say**\
 `The gun was unloaded, and no students were injured, according to the Police Department.`\
 https://nytimes.com/2024/03/07/nyregion/8-year-old-gun-school.html
@@ -17,24 +37,4 @@ https://nytimes.com/interactive/2024/03/07/movies/2024-oscars-ballot.html
 **Biden’s Gaza Port Is Not Enough**\
 `This looks more like a photo op than an all-out effort to address a humanitarian crisis that the United States has helped to create.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/gaza-port-biden
-
-**Richard Truly, 86, Dies; Shuttle Astronaut Who Went On to Lead NASA**\
-`In 1983, he commanded a Challenger shuttle flight. After the 1986 disaster, he was charged with leading NASA’s return to space.`\
-https://nytimes.com/2024/03/07/obituaries/richard-truly-dead.html
-
-**State of the Union Guests Highlight Biden’s Efforts on Gun Violence, the Climate and More**\
-`The sister of a 9-year-old girl killed in the Uvalde school shooting is set to attend the speech, along with the head of the U.A.W. and business owners focused on the environment.`\
-https://nytimes.com/2024/03/07/us/politics/state-of-the-union-guests.html
-
-**Yep, He Did It Again**\
-`The media titan Rupert Murdoch, 92, is engaged once more. This time it is to Elena Zhukova, a retired molecular biologist.`\
-https://nytimes.com/2024/03/07/business/media/rupert-murdoch-engaged-elena-zhukova.html
-
-**Key OpenAI Executive Played a Pivotal Role in Sam Altman’s Ouster**\
-`Mira Murati, OpenAI’s chief technology officer, brought questions about Mr. Altman’s management to the board last year before he was briefly ousted from the company.`\
-https://nytimes.com/2024/03/07/technology/openai-executives-role-in-sam-altman-ouster.html
-
-**Self-Service for Airport Security? It’s Happening in Las Vegas.**\
-`At security lanes at Harry Reid International Airport, travelers with PreCheck clearance can test a new self-service screening process with remote T.S.A. agents and video monitors.`\
-https://nytimes.com/2024/03/07/travel/airport-tsa-pre-check-self-screen.html
 
