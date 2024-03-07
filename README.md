@@ -1,3 +1,11 @@
+**How ‘MagaBabe’ and a Fake Investor Targeted Critics of Viktor Orban**\
+`A covert campaign to entrap and discredit people linked to rights groups in Hungary has added fuel to longstanding complaints of democratic backsliding in the country.`\
+https://nytimes.com/2024/03/07/world/europe/orban-hungary-trump-investor.html
+
+**‘Kung Fu Panda 4’ Review: Trouble in Juniper City**\
+`Jack Black’s Po faces a new adversary, a chameleon voiced by Viola Davis, in the latest installment of this popular animated franchise.`\
+https://nytimes.com/2024/03/07/movies/kung-fu-panda-4-review.html
+
 **Duke Asks Its Crazed Basketball Fans to Heckle Responsibly**\
 `As part of a D.E.I. initiative, the student government held a town hall with fans who are known for their biting intel about opposing players.`\
 https://nytimes.com/2024/03/07/arts/duke-unc-basketball-dei-heckling.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/07/t-magazine/chelsea-hotel-portraits-tony-notarbera
 **Why California Hasn’t Ditched Daylight Saving Time**\
 `Our clocks will have to spring forward an hour on Sunday, as in most of the country.`\
 https://nytimes.com/2024/03/07/us/california-daylight-saving-time.html
-
-**European Central Bank, Citing Wage Growth, Keeps Rates Steady**\
-`Although inflation has eased, the eurozone’s central bank said that “domestic price pressures remain high.” Rates remain the highest in the central bank’s history.`\
-https://nytimes.com/2024/03/07/business/european-central-bank-interest-rates.html
-
-**Should Either of These People Have the Power to End the World?**\
-`The president’s sole authority to use nuclear weapons needs to be re-examined in today’s world.`\
-https://nytimes.com/2024/03/07/opinion/nyt-nuclear-sole-authority.html
 
