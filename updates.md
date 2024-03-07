@@ -1,3 +1,15 @@
+**House Passes Migrant Detention Bill, Denouncing Biden Border Policies**\
+`Thirty-seven Democrats joined Republicans in support of the legislation, which has little chance of enactment but offered the G.O.P. a chance to attack President Biden and Democrats on immigration.`\
+https://nytimes.com/2024/03/07/us/politics/house-laken-riley-immigration.html
+
+**Friday Briefing: A New Plan for Gaza Aid**\
+`Also, President Biden’s annual address and Oscar predictions.`\
+https://nytimes.com/2024/03/07/world/asia/gaza-pier-biden-union-asia.html
+
+**War in Gaza Presents Biden With Challenges at Home and Abroad**\
+`Domestic and international anger over Israel’s response to the Oct. 7 attacks has complicated President Biden’s diplomatic and re-election efforts.`\
+https://nytimes.com/2024/03/07/us/politics/gaza-war-biden-state-union.html
+
 **TikTok Prompts Users to Call Congress to Fight Possible Ban**\
 `Many Capitol Hill offices were inundated with phone calls after TikTok urged users to tell their representatives they opposed a new bill aimed at the company.`\
 https://nytimes.com/2024/03/07/business/tiktok-phone-calls-congress.html
