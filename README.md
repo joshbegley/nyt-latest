@@ -1,3 +1,7 @@
+**Dark Brandon in the House**\
+`What President Biden needs to accomplish at Thursday’s State of the Union address.`\
+https://nytimes.com/2024/03/07/opinion/biden-state-of-the-union.html
+
 **Thursday Briefing**\
 `Nikki Haley ends her presidential campaign.`\
 https://nytimes.com/2024/03/07/briefing/nikki-haley-out-gaza-ceasefire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/crosswords/daily-puzzle-2024-03-07.html
 **Weirdly Warm Winter Has Climate Fingerprints All Over It, Study Says**\
 `Recent heat waves in cities worldwide have the hallmarks of global warming, researchers said. And last month was the hottest February on record.`\
 https://nytimes.com/2024/03/06/climate/winter-february-heat-wave.html
-
-**Alabama Passes Law to Protect I.V.F. Treatments**\
-`Two major fertility clinics said they were moving to resume treatments quickly, though legal experts cautioned that state constitutional challenges may still arise.`\
-https://nytimes.com/2024/03/06/us/politics/alabama-ivf-law.html
 
