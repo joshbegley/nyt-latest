@@ -1,3 +1,7 @@
+**2 Women Were Found Dead in the 1980s. DNA Links a Man to the Murders.**\
+`A Virginia man was arrested on Tuesday in connection with the 1986 murder of Jacqueline Lard. The authorities said his DNA was also linked to the 1989 killing of Amy Baker.`\
+https://nytimes.com/2024/03/07/us/elroy-harrison-baker-lard.html
+
 **Canadian Jailed by China in Tit-for-Tat Dispute Gets a Settlement**\
 `Michael Spavor, a Canadian businessman, was arrested by China in what his lawyers said was an act of retaliation for Canada’s detention of a Chinese tech giant executive.`\
 https://nytimes.com/2024/03/07/world/americas/michael-spavor-canada-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/learning/whats-going-on-in-this-graph-march-13-20
 **You’ll Never Believe Which Animal Makes Milk for Its Babies**\
 `Wormlike amphibians called caecilians add cloacal secretions of a nutritious material similar to milk to their numerous quirks, according to a new study.`\
 https://nytimes.com/2024/03/07/science/caecilians-milk-amphibians-worms.html
-
-**National Guard in the Subway? New Yorkers Have Their Doubts.**\
-`Some commuters said they felt safer after learning that heavily armed soldiers would patrol the subway system. Others were critical of the governor’s plan.`\
-https://nytimes.com/2024/03/07/nyregion/nyc-subway-national-guard.html
 

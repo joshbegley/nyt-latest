@@ -1,3 +1,7 @@
+**2 Women Were Found Dead in the 1980s. DNA Links a Man to the Murders.**\
+`A Virginia man was arrested on Tuesday in connection with the 1986 murder of Jacqueline Lard. The authorities said his DNA was also linked to the 1989 killing of Amy Baker.`\
+https://nytimes.com/2024/03/07/us/elroy-harrison-baker-lard.html
+
 **Canadian Jailed by China in Tit-for-Tat Dispute Gets a Settlement**\
 `Michael Spavor, a Canadian businessman, was arrested by China in what his lawyers said was an act of retaliation for Canada’s detention of a Chinese tech giant executive.`\
 https://nytimes.com/2024/03/07/world/americas/michael-spavor-canada-china.html
