@@ -1,3 +1,11 @@
+**The ‘Rule’ Against Ending Sentences With Prepositions Has Always Been Silly**\
+`Where does the ‘rule’ come from? Latin. Why do we do it anyway? Vikings.`\
+https://nytimes.com/2024/03/07/opinion/preposition-grammar-rules.html
+
+**Hundreds Are Feared Seized in Nigeria, as Kidnapping Epidemic Worsens**\
+`A mass abduction reported in a region terrorized by Boko Haram, and another days later at a primary school, highlighted the government’s inability to control crime and armed insurgency.`\
+https://nytimes.com/2024/03/07/world/africa/nigeria-kidnappings.html
+
 **What to Watch This Weekend: A Surreal Family Comedy**\
 `The Turkish series “A Round of Applause” offers a fresh and surprising vision of anxiety and alienation.`\
 https://nytimes.com/2024/03/07/arts/television/watch-a-round-of-applause.html

@@ -1,3 +1,11 @@
+**The ‘Rule’ Against Ending Sentences With Prepositions Has Always Been Silly**\
+`Where does the ‘rule’ come from? Latin. Why do we do it anyway? Vikings.`\
+https://nytimes.com/2024/03/07/opinion/preposition-grammar-rules.html
+
+**Hundreds Are Feared Seized in Nigeria, as Kidnapping Epidemic Worsens**\
+`A mass abduction reported in a region terrorized by Boko Haram, and another days later at a primary school, highlighted the government’s inability to control crime and armed insurgency.`\
+https://nytimes.com/2024/03/07/world/africa/nigeria-kidnappings.html
+
 **What to Watch This Weekend: A Surreal Family Comedy**\
 `The Turkish series “A Round of Applause” offers a fresh and surprising vision of anxiety and alienation.`\
 https://nytimes.com/2024/03/07/arts/television/watch-a-round-of-applause.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/05/opinion/thepoint/dean-phillips-biden
 **Illustrating Ideas: The Winners of Our Second Annual One-Pager Challenge**\
 `We challenged teenagers to respond to the Times piece of their choice by creating a visual guide to what they learned. Here are our favorites.`\
 https://nytimes.com/2024/03/07/learning/illustrating-ideas-the-winners-of-our-second-annual-one-pager-challenge.html
-
-**Biden is facing low approval ratings and age concerns ahead of his speech.**\
-`By Ruth Igielnik`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/biden-is-facing-low-approval-ratings-and-age-concerns-ahead-of-his-speech
-
-**Here’s the latest on the speech.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/heres-the-latest-on-the-speech
 
