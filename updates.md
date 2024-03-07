@@ -1,3 +1,7 @@
+**Sweden Officially Enters NATO Alliance, a Strategic Blow to Moscow**\
+`Sweden applied to become a member two years ago after Russia invaded Ukraine.`\
+https://nytimes.com/2024/03/07/world/europe/sweden-nato-neutrality.html
+
 **Embryo Transfers Are Resuming in Alabama, Even as Legal Questions Remain**\
 `Hours after the governor signed a law that offers legal protections to clinics and doctors performing I.V.F. procedures, at least one clinic resumed embryo transfers.`\
 https://nytimes.com/2024/03/07/us/politics/alabama-embryo-ivf.html
