@@ -1,3 +1,27 @@
+**A Prayer App Turns to TikTok to Find Its Flock**\
+`Ads for Hallow, with its pitchman Mark Wahlberg, are reaching nonreligious social media users, much to their surprise.`\
+https://nytimes.com/2024/03/07/style/a-prayer-app-turns-to-tiktok-to-find-its-flock.html
+
+**Those Lines on the Wall Are More Than Just Scrawls and Squiggles**\
+`The artist Shantell Martin sees her trademark line drawings as a meditation of sorts on the meaning of life.`\
+https://nytimes.com/2024/03/07/arts/design/shantell-martin-line-drawings.html
+
+**Not Just for Scooby-Doo Anymore — the Secret Door Is Having a Moment**\
+`Homeowners are adding hidden doors and rooms to foil burglars, eke out extra storage space and prepare for Armageddon.`\
+https://nytimes.com/2024/03/07/realestate/design-trend-secret-doors.html
+
+**Bond of Brothers: The Black Crowes Are Back, and Bygones Are Bygones**\
+`After ego clashes and substance abuse drove Chris and Rich Robinson apart, they’ve reunited for their first album of raw rock ’n’ roll together in 15 years.`\
+https://nytimes.com/2024/03/07/arts/music/black-crowes-happiness-bastards.html
+
+**A Move to England Led Armistead Maupin Back to ‘Tales of the City’**\
+`Some familiar San Franciscans turn up in the British countryside in “Mona of the Manor,” which the author vows is the 10th, and last, in the series: “That has a nice symmetry.”`\
+https://nytimes.com/2024/03/07/books/review/armistead-maupin-by-the-book-interview.html
+
+**The Disappearance of Mayor Adams**\
+`Unlike most of his predecessors, he has had few accomplishments while leading New York City. But there’s still time to change that.`\
+https://nytimes.com/2024/03/07/opinion/eric-adams-mayor-new-york-city.html
+
 **A Journalist Who Moves Between Writing and Recording**\
 `In an interview, the reporter Annie Correal discussed why she was “thinking for audio” during a recent assignment in South America.`\
 https://nytimes.com/2024/03/07/insider/audio-reporting-colombia.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/03/07/crosswords/connections-companion.html
 **Are You Buying What Kylie Jenner Is Selling?**\
 `The youngest Kardashian-Jenner sister has a new look. And a slew of new products to go along with it.`\
 https://nytimes.com/2024/03/07/style/kylie-jenner-kardashians.html
-
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/07/crosswords/wordle-review.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/03/07/crosswords/spelling-bee-forum.html
-
-**Ronny Chieng Is Sad to See Nikki Haley Go**\
-`“The Daily Show” guest host bemoaned that Haley dropped out after President Joe Biden and former President Donald Trump crushed Super Tuesday “like it was an audition for a Life Alert commercial.”`\
-https://nytimes.com/2024/03/07/arts/television/ronny-chieng-nikki-haley.html
-
-**Word of the Day: scrupulous**\
-`This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/03/07/learning/word-of-the-day-scrupulous.html
-
-**Quotation of the Day: Big Tech Bows to Force of Law**\
-`Quotation of the Day for Thursday, March 7, 2024.`\
-https://nytimes.com/2024/03/07/pageoneplus/quotation-of-the-day-big-tech-bows-to-force-of-law.html
-
-**Dark Brandon in the House**\
-`What President Biden needs to accomplish at Thursday’s State of the Union address.`\
-https://nytimes.com/2024/03/07/opinion/biden-state-of-the-union.html
 
