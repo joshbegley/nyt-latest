@@ -1,3 +1,11 @@
+**TikTok Prompts Users to Call Congress to Fight Possible Ban**\
+`Many Capitol Hill offices were inundated with phone calls after TikTok urged users to tell their representatives they opposed a new bill aimed at the company.`\
+https://nytimes.com/2024/03/07/business/tiktok-phone-calls-congress.html
+
+**Zelensky Names Ukraine’s Ex-Top General Ambassador to U.K.**\
+`The former top general, Valery Zaluzhny, was dismissed last month amid tensions with the civilian leadership. He has been a very popular figure in Ukraine.`\
+https://nytimes.com/2024/03/07/world/europe/ukraine-uk-valery-zaluzhny.html
+
 **Biden Makes the Case on Climate**\
 `The president’s campaign is eager to tell the story of his first term’s accomplishments.`\
 https://nytimes.com/2024/03/07/climate/biden-makes-the-case-on-climate.html
