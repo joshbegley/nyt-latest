@@ -1,3 +1,7 @@
+**Jay Powell Signals a Retreat on Banking Rules**\
+`The Fed chair said regulators could scale back or rework a sweeping capital-requirements proposal that Wall Street has been fighting for months.`\
+https://nytimes.com/2024/03/07/business/dealbook/fed-powell-banks-capital-rules.html
+
 **New Trump Super PAC Ad Attacks Biden Over His Age**\
 `The ad, which aired on MSNBC on Thursday morning, asks, “Can Biden even survive until 2029?”`\
 https://nytimes.com/2024/03/07/us/politics/trump-super-pac-ad.html
