@@ -1,6 +1,6 @@
 **Johnson will host the parents of Evan Gershkovich, a reporter imprisoned in Russia, while refusing to take up Ukraine aid.**\
 `By Annie Karni`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/johnson-will-host-the-parents-of-evan-gershkovich-a-reporter-imprisoned-in-russia-while-refusing-to-take-up-ukraine-aid
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/johnson-will-host-the-parents-of-evan-gershkovich-a-reporter-imprisoned-in-russia-while-refusing-to-take-up-ukraine-aid
 
 **Oscars 2024: Print Your Ballot!**\
 `Now it’s your turn to predict which nominees will win.`\
@@ -32,7 +32,7 @@ https://nytimes.com/2024/03/07/travel/airport-tsa-pre-check-self-screen.html
 
 **Biden will speak from where House Republicans are trying to impeach him.**\
 `By Luke Broadwater`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/biden-will-speak-from-where-house-republicans-are-trying-to-impeach-him
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-will-speak-from-where-house-republicans-are-trying-to-impeach-him
 
 **Katie Britt to Deliver the Republican Response to Biden’s State of the Union**\
 `Republicans are turning to one of their youngest members of Congress to burnish the image of their aging, male-dominated party and draw a contrast with a president nearly 40 years older.`\
