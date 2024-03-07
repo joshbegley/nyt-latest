@@ -1,3 +1,7 @@
+**What Is Your Earliest Pandemic Memory?**\
+`As the fourth anniversary of the Covid lockdowns approaches, we’re collecting stories of the moments readers’ worlds shut down.`\
+https://nytimes.com/2024/03/07/well/live/what-is-your-earliest-pandemic-memory.html
+
 **Here’s How to Watch the State of the Union Address**\
 `In a speech scheduled for 9 p.m., President Biden is set to lay out his agenda directly to the American people. The New York Times will carry the address live.`\
 https://nytimes.com/2024/03/07/us/politics/state-of-the-union-time-guests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/us/georgia-rain-flooding-atlanta.html
 **Mutual Frustrations Arise in U.S.-Ukraine Alliance**\
 `Ukrainian officials are disheartened about stalled aid. The Pentagon wants Kyiv to heed its advice on how to fight.`\
 https://nytimes.com/2024/03/07/us/politics/ukraine-us-military-frustrations.html
-
-**F.D.A. Urges Recall of Cinnamon Brands Tainted by Lead**\
-`The agency tested 75 types of cinnamon after hundreds of children were poisoned by the spice in applesauce. It found some lead in cinnamon brands sold at some dollar stores and other markets.`\
-https://nytimes.com/2024/03/07/health/fda-lead-cinnamon-recall.html
 
