@@ -1,3 +1,7 @@
+**Embryo Transfers Are Resuming in Alabama, Even as Legal Questions Remain**\
+`Hours after the governor signed a law that offers legal protections to clinics and doctors performing I.V.F. procedures, at least one clinic resumed embryo transfers.`\
+https://nytimes.com/2024/03/07/us/politics/alabama-embryo-ivf.html
+
 **When Teens Visit Doctors, Increasingly the Subject is Mental Health**\
 `A new study provides further evidence of the challenges that adolescents and young adults face.`\
 https://nytimes.com/2024/03/07/health/adolescents-mental-health.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/world/canada/canada-ottawa-homicides.html
 **Dog Sledder Penalized for Poor Moose Gutting**\
 `While mushing across Alaska in the Iditarod sled dog race, Dallas Seavey shot a moose, and then got a penalty for not gutting it well enough.`\
 https://nytimes.com/2024/03/07/sports/iditarod-race-musher-moose-penalty.html
-
-**Southeast on Edge as Forecast Threatens More Rain**\
-`Soppy soil is creating a concern for more flooding in the South and the Northeast after recent rains.`\
-https://nytimes.com/2024/03/07/us/georgia-rain-flooding-atlanta.html
 
