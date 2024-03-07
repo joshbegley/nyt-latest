@@ -1,3 +1,19 @@
+**The Film Christopher Nolan Doesn’t Want You to Watch**\
+`Nolan’s short film “Larceny” has not been shown publicly since a 1996 film festival. With the director in position to win his first Oscar, its cast and crew want to preserve that mystery.`\
+https://nytimes.com/2024/03/07/movies/christopher-nolan-larceny.html
+
+**Six People Found Dead in Ottawa Home**\
+`The police are investigating the circumstances surrounding the killings Wednesday of four children and two adults.`\
+https://nytimes.com/2024/03/07/world/canada/canada-ottawa-homicides.html
+
+**Dog Sledder Penalized for Poor Moose Gutting**\
+`While mushing across Alaska in the Iditarod sled dog race, Dallas Seavey shot a moose, and then got a penalty for not gutting it well enough.`\
+https://nytimes.com/2024/03/07/sports/iditarod-race-musher-moose-penalty.html
+
+**Southeast on Edge as Forecast Threatens More Rain**\
+`Soppy soil is creating a concern for more flooding in the South and the Northeast after recent rains.`\
+https://nytimes.com/2024/03/07/us/georgia-rain-flooding-atlanta.html
+
 **Mutual Frustrations Arise in U.S.-Ukraine Alliance**\
 `Ukrainian officials are disheartened about stalled aid. The Pentagon wants Kyiv to heed its advice on how to fight.`\
 https://nytimes.com/2024/03/07/us/politics/ukraine-us-military-frustrations.html
