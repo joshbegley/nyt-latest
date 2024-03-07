@@ -1,3 +1,7 @@
+**Is Hungary a Model for Trump?**\
+`We examine Donald Trump’s affinity for Viktor Orban, Hungary’s prime minister.`\
+https://nytimes.com/2024/03/07/briefing/hungary-orban-trump.html
+
 **The Miseducation of Google’s A.I.**\
 `Gemini, Google’s new chatbot, has provoked a fierce debate about social values and artificial intelligence.`\
 https://nytimes.com/2024/03/07/podcasts/the-daily/gemini-google-ai.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/us/politics/biden-gaza.html
 **They Wanted a Waterfront House in New York City for $450,000 (but Not for Themselves)**\
 `A couple loved living in Sea Gate, Brooklyn, so much that they wanted to share the experience with others. So they looked for a distressed property they could restore and rent to a low-income tenant.`\
 https://nytimes.com/interactive/2024/03/07/realestate/queens-staten-island-houses-sale.html
-
-**Six Key Questions Ahead of Biden’s State of the Union**\
-`What campaign themes will he lay out? How directly will he attack Donald Trump? Will he say the word abortion?`\
-https://nytimes.com/2024/03/07/us/politics/biden-state-of-the-union-questions.html
 
