@@ -1,3 +1,7 @@
+**Which President Can Claim These Economic Wins?**\
+`Both President Biden and former President Trump presided over robust economies in their first three years in office. Can you tell who did better in each metric?`\
+https://nytimes.com/interactive/2024/03/06/us/biden-trump-economy-quiz.html
+
 **How the State of the Union Became a Picture of Disunion**\
 `What used to be a solemn event, governed by dignity and protocol, has more recently become marked by partisan disruption.`\
 https://nytimes.com/interactive/2024/03/06/us/state-of-the-union-partisan-history.html
