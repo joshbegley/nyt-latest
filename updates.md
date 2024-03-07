@@ -1,3 +1,7 @@
+**It is unclear whether Israel will be involved in constructing the pier.**\
+`By David E. Sanger and Michael D. Shear`\
+https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news/us-gaza-aid
+
 **Here’s How to Watch the State of the Union Address**\
 `In a speech scheduled for 9 p.m., President Biden is set to lay out his agenda directly to the American people. The New York Times will carry the address live.`\
 https://nytimes.com/2024/03/07/us/politics/state-of-the-union-time-guests.html
