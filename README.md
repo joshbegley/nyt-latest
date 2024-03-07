@@ -1,3 +1,7 @@
+**Opposition Blasts Macron for Risking Escalation in Ukraine**\
+`The French president attempted to forge a united front on a harder line against Russia. But few were persuaded.`\
+https://nytimes.com/2024/03/07/world/europe/ukraine-france-macron-nato.html
+
 **Indian Navy Carries Out Rescue Mission After Houthis Attacked Ship**\
 `Video from the Indian Navy shows crew members being rescued from a commercial ship after it was hit in a missile attack by Yemen’s Houthi militia.`\
 https://nytimes.com/video/world/middleeast/100000009348777/indian-navy-carries-out-rescue-mission-after-houthis-attacked-ship.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/us/politics/alabama-embryo-ivf.html
 **When Teens Visit Doctors, Increasingly the Subject is Mental Health**\
 `A new study provides further evidence of the challenges that adolescents and young adults face.`\
 https://nytimes.com/2024/03/07/health/adolescents-mental-health.html
-
-**What Is Your Earliest Pandemic Memory?**\
-`As the fourth anniversary of the Covid lockdowns approaches, we’re collecting stories of the moments readers’ worlds shut down.`\
-https://nytimes.com/2024/03/07/well/live/what-is-your-earliest-pandemic-memory.html
 
