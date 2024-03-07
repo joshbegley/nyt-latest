@@ -1,5 +1,5 @@
 **Profound Damage Found in Maine Gunman’s Brain, Possibly From Blasts**\
-`A laboratory found a pattern of cell damage that has been seen in veterans exposed to weapons blasts, and said it probably played a role in the gunman’s spiral into violence.`\
+`A laboratory found a pattern of cell damage that has been seen in veterans exposed to weapons blasts, and said it probably played a role in symptoms the gunman displayed before the shooting.`\
 https://nytimes.com/2024/03/06/us/maine-shooting-brain-injury.html
 
 **String of Islands**\
