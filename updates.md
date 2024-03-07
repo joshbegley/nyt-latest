@@ -1,3 +1,11 @@
+**Semana 4: cuenta cuánto sabes**\
+`By Elda Cantú and Elaine Chen`\
+https://nytimes.com/explain/2024/aves-observacion-ciencia/datos-curiosos-aves
+
+**Democrats invite reproductive rights advocates, putting abortion and I.V.F. in the spotlight.**\
+`Democrats are contrasting their support for reproductive rights with Republicans’ records of opposing protections for abortion and fertility treatments.`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/ivf-alabama-state-of-the-union
+
 **Biden wants Congress to reduce the risks of social media for children.**\
 `By Natasha Singer`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-wants-congress-to-reduce-the-risks-of-social-media-for-children
