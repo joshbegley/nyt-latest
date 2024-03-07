@@ -1,3 +1,7 @@
+**Trump’s Super Tuesday Speech: Assessing 10 False and Misleading Claims**\
+`After racking up a series of wins that cleared the field, former President Donald J. Trump moved to a general election message. Here’s a fact check.`\
+https://nytimes.com/2024/03/06/us/politics/trump-super-tuesday-fact-check.html
+
 **Big American Tech Profits From Chinese Ad Spending Spree**\
 `Temu, Shein, and streaming and gaming apps looking to break into the U.S. market are spending huge sums to get their wares in front of American consumers.`\
 https://nytimes.com/2024/03/06/business/google-meta-temu-shein.html
