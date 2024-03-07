@@ -1,3 +1,11 @@
+**Jerome Powell, Take My Money!**\
+`The New York Federal Reserve, my local branch, already has a defunct teller’s window in the building. Dust it off.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/fed-inflation-banks
+
+**Utility Says Its Equipment May Have Started Record Texas Fire**\
+`The company, Xcel Energy, said that its facilities in the Texas Panhandle “appear to have been involved in an ignition” of the fire, which has burned more than 1 million acres.`\
+https://nytimes.com/2024/03/07/us/texas-smokehouse-creek-fire-xcel-energy.html
+
 **The Film Christopher Nolan Doesn’t Want You to Watch**\
 `Nolan’s short film “Larceny” has not been shown publicly since a 1996 film festival. With the director in position to win his first Oscar, its cast and crew want to preserve that mystery.`\
 https://nytimes.com/2024/03/07/movies/christopher-nolan-larceny.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/07/dining/breakfast-pasta-for-dinner-or-dinner-pasta
 **Spate of Mock News Sites With Russian Ties Pop Up in U.S.**\
 `The fake news organizations, experts say, represent a technological leap in the Kremlin’s efforts to spread false and misleading narratives.`\
 https://nytimes.com/2024/03/07/business/media/spate-of-mock-news-sites-with-russian-ties-pop-up-in-us.html
-
-**Man Who Became Champion of Rehabilitation Is Charged With Murder**\
-`Sheldon Johnson became a youth worker with the Queens Defenders after his release from prison last May.`\
-https://nytimes.com/2024/03/07/nyregion/sheldon-johnson-queens-defenders-murder.html
-
-**How ‘MagaBabe’ and a Fake Investor Targeted Critics of Viktor Orban**\
-`A covert campaign to entrap and discredit people linked to rights groups in Hungary has added fuel to longstanding complaints of democratic backsliding in the country.`\
-https://nytimes.com/2024/03/07/world/europe/orban-hungary-trump-investor.html
 
