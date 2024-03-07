@@ -1,3 +1,7 @@
+**9 Paris Fashion Week Moments That Kept Us Talking**\
+`Audiences were abuzz over breathing runways, drone models, social media blackouts, tartan codpieces and kisses on the catwalk.`\
+https://nytimes.com/2024/03/07/style/paris-fashion-week-highlights-celebrities.html
+
 **Oil and gas production hit records under Biden, who is expected to trumpet climate policies.**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/oil-and-gas-production-hit-records-under-biden-who-is-expected-to-trumpet-climate-policies
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/world/americas/michael-spavor-canada-china.html
 **3 Degrees of Trumpiness: Ohio’s Republican Senate Candidates Clash**\
 `Donald Trump’s choice for the nomination, Bernie Moreno, has eagerly showed off his endorsement, but his two rivals have also embraced the former president or his policies.`\
 https://nytimes.com/2024/03/07/us/politics/ohio-senate-debate-takeaways.html
-
-**A Well-Meaning Challenge to Biden Ends on a Classy Note**\
-`Dean Phillips knew he had to drop out, but did so without rancor.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/dean-phillips-biden
 
