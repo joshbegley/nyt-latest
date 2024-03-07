@@ -1,3 +1,7 @@
+**What to Watch This Weekend: A Surreal Family Comedy**\
+`The Turkish series “A Round of Applause” offers a fresh and surprising vision of anxiety and alienation.`\
+https://nytimes.com/2024/03/07/arts/television/watch-a-round-of-applause.html
+
 **Judge Blocks Debt Settlement Company From Resuming Operations**\
 `Strategic Financial Solutions is accused of fraud in a lawsuit by federal and state prosecutors.`\
 https://nytimes.com/2024/03/07/business/strategic-financial-solutions-lawsuit-ryan-sasson.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/biden-is-facing-
 **Here’s the latest on the speech.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union/heres-the-latest-on-the-speech
-
-**07sotu**\
-`State of the Union Live Updates: Biden to Speak at High-Stakes Moment`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union
 
