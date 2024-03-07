@@ -1,3 +1,7 @@
+**Are You Embarking on a GLP-1 Journey? We Want to Hear From You.**\
+`The New York Times is looking to speak with people who are about to start GLP-1 medications such as Ozempic and are open to allowing us to chronicle their experiences.`\
+https://nytimes.com/2024/03/06/NYT-Presents/ozempic-experience-questionnaire.html
+
 **Ex-Google Engineer Charged With Stealing A.I. Secrets for Chinese Firm**\
 `Linwei Ding, a Chinese national, was arrested in California and accused of uploading hundreds of files to the cloud.`\
 https://nytimes.com/2024/03/06/us/politics/google-engineer-china-ai-theft.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/us/texas-election-takeaways-paxton.html
 **Senegal’s Leader Breaks Up Cabinet and Sets Date for Presidential Election**\
 `President Macky Sall previously postponed the election without setting a date. On Wednesday, he also fired the prime minister, his party’s candidate for president.`\
 https://nytimes.com/2024/03/06/world/africa/senegal-election-macky-sall.html
-
-**Lucien Pellat-Finet, Fashion’s ‘King of Cashmere,’ Dies at 78**\
-`The aesthetic of the sweaters he designed, which included provocative symbols like marijuana leaves and skulls, was casual. Their price tags were not.`\
-https://nytimes.com/2024/03/06/fashion/lucien-pellat-finet-dead.html
 
