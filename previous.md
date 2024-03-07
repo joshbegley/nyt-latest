@@ -1,3 +1,7 @@
+**When Teens Visit Doctors, Increasingly the Subject is Mental Health**\
+`A new study provides further evidence of the challenges that adolescents and young adults face.`\
+https://nytimes.com/2024/03/07/health/adolescents-mental-health.html
+
 **What Is Your Earliest Pandemic Memory?**\
 `As the fourth anniversary of the Covid lockdowns approaches, we’re collecting stories of the moments readers’ worlds shut down.`\
 https://nytimes.com/2024/03/07/well/live/what-is-your-earliest-pandemic-memory.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/sports/iditarod-race-musher-moose-penalty.html
 **Southeast on Edge as Forecast Threatens More Rain**\
 `Soppy soil is creating a concern for more flooding in the South and the Northeast after recent rains.`\
 https://nytimes.com/2024/03/07/us/georgia-rain-flooding-atlanta.html
-
-**Mutual Frustrations Arise in U.S.-Ukraine Alliance**\
-`Ukrainian officials are disheartened about stalled aid. The Pentagon wants Kyiv to heed its advice on how to fight.`\
-https://nytimes.com/2024/03/07/us/politics/ukraine-us-military-frustrations.html
 
