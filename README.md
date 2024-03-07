@@ -1,3 +1,7 @@
+**Duke Asks Its Crazed Basketball Fans to Heckle Responsibly**\
+`As part of a D.E.I. initiative, the student government held a town hall with fans who are known for their biting intel about opposing players.`\
+https://nytimes.com/2024/03/07/arts/duke-unc-basketball-dei-heckling.html
+
 **Hamas negotiators leave Cairo with no breakthrough in cease-fire talks.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news/hamas-negotiators-leave-cairo-with-no-breakthrough-in-cease-fire-talks
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/business/european-central-bank-interest-rates.htm
 **Should Either of These People Have the Power to End the World?**\
 `The president’s sole authority to use nuclear weapons needs to be re-examined in today’s world.`\
 https://nytimes.com/2024/03/07/opinion/nyt-nuclear-sole-authority.html
-
-**Jay Powell Signals a Retreat on Banking Rules**\
-`The Fed chair said regulators could scale back or rework a sweeping capital-requirements proposal that Wall Street has been fighting for months.`\
-https://nytimes.com/2024/03/07/business/dealbook/fed-powell-banks-capital-rules.html
 
