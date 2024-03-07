@@ -1,3 +1,7 @@
+**Alabama Lawmakers Pass Bill to Protect I.V.F. Treatments**\
+`Some doctors said the measure would allow them to resume treatments quickly, though legal experts cautioned that state constitutional challenges may still arise.`\
+https://nytimes.com/2024/03/06/us/politics/alabama-ivf-law.html
+
 **Which President Can Claim These Economic Wins?**\
 `Both President Biden and former President Trump presided over robust economies in their first three years in office. Can you tell who did better in each metric?`\
 https://nytimes.com/interactive/2024/03/06/us/biden-trump-economy-quiz.html
