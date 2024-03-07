@@ -1,3 +1,7 @@
+**Sweden Officially Enters NATO Alliance, Ending Decades of Neutrality**\
+`Sweden applied to become a member two years ago after Russia invaded Ukraine.`\
+https://nytimes.com/2024/03/07/world/europe/sweden-nato-neutrality.html
+
 **Embryo Transfers Are Resuming in Alabama, Even as Legal Questions Remain**\
 `Hours after the governor signed a law that offers legal protections to clinics and doctors performing I.V.F. procedures, at least one clinic resumed embryo transfers.`\
 https://nytimes.com/2024/03/07/us/politics/alabama-embryo-ivf.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/movies/christopher-nolan-larceny.html
 **Six People Found Dead in Ottawa Home**\
 `The police are investigating the circumstances surrounding the killings Wednesday of four children and two adults.`\
 https://nytimes.com/2024/03/07/world/canada/canada-ottawa-homicides.html
-
-**Dog Sledder Penalized for Poor Moose Gutting**\
-`While mushing across Alaska in the Iditarod sled dog race, Dallas Seavey shot a moose, and then got a penalty for not gutting it well enough.`\
-https://nytimes.com/2024/03/07/sports/iditarod-race-musher-moose-penalty.html
 
