@@ -1,3 +1,11 @@
+**Here’s How to Watch the State of the Union Address**\
+`In a speech scheduled for 9 p.m., President Biden is set to lay out his agenda directly to the American people. The New York Times will carry the address live.`\
+https://nytimes.com/2024/03/07/us/politics/state-of-the-union-time-guests.html
+
+**The U.S. will build a floating pier off Gaza for delivering aid by sea.**\
+`By David E. Sanger and Michael D. Shear`\
+https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news/us-gaza-aid
+
 **Jerome Powell, Take My Money!**\
 `The New York Federal Reserve, my local branch, already has a defunct teller’s window in the building. Dust it off.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/fed-inflation-banks
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/07/us/politics/ukraine-us-military-frustrations.html
 **F.D.A. Urges Recall of Cinnamon Brands Tainted by Lead**\
 `The agency tested 75 types of cinnamon after hundreds of children were poisoned by the spice in applesauce. It found some lead in cinnamon brands sold at some dollar stores and other markets.`\
 https://nytimes.com/2024/03/07/health/fda-lead-cinnamon-recall.html
-
-**Breakfast Pasta for Dinner (or Dinner Pasta for Breakfast)**\
-`Ali Slagle’s new carbonara-leaning skillet pasta with bacon and eggs is a quick and easy meal for any time of day.`\
-https://nytimes.com/2024/03/07/dining/breakfast-pasta-for-dinner-or-dinner-pasta-for-breakfast.html
-
-**Spate of Mock News Sites With Russian Ties Pop Up in U.S.**\
-`The fake news organizations, experts say, represent a technological leap in the Kremlin’s efforts to spread false and misleading narratives.`\
-https://nytimes.com/2024/03/07/business/media/spate-of-mock-news-sites-with-russian-ties-pop-up-in-us.html
 
