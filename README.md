@@ -1,3 +1,11 @@
+**What’s Going On in This Graph? | March 13, 2024**\
+`What do some fourth graders think are humanity’s biggest problems? Do they think adults are doing a good job of running the world?`\
+https://nytimes.com/2024/03/07/learning/whats-going-on-in-this-graph-march-13-2024.html
+
+**You’ll Never Believe Which Animal Makes Milk for Its Babies**\
+`Wormlike amphibians called caecilians add cloacal secretions of a nutritious material similar to milk to their numerous quirks, according to a new study.`\
+https://nytimes.com/2024/03/07/science/caecilians-milk-amphibians-worms.html
+
 **National Guard in the Subway? New Yorkers Have Their Doubts.**\
 `Some commuters said they felt safer after learning that heavily armed soldiers would patrol the subway system. Others were critical of the governor’s plan.`\
 https://nytimes.com/2024/03/07/nyregion/nyc-subway-national-guard.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news/more-aid-tr
 **Opposition Blasts Macron for Risking Escalation in Ukraine**\
 `The French president attempted to forge a united front on a harder line against Russia. But few were persuaded.`\
 https://nytimes.com/2024/03/07/world/europe/ukraine-france-macron-nato.html
-
-**Indian Navy Carries Out Rescue Mission After Houthis Attacked Ship**\
-`Video from the Indian Navy shows crew members being rescued from a commercial ship after it was hit in a missile attack by Yemen’s Houthi militia.`\
-https://nytimes.com/video/world/middleeast/100000009348777/indian-navy-carries-out-rescue-mission-after-houthis-attacked-ship.html
-
-**9 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/03/07/books/review/new-books-recommendations.html
 
