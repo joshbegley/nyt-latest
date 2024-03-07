@@ -1,4 +1,8 @@
-**Legal Muddle Adds to Stress of I.V.F. Patients in Alabama**\
+**Moms Marketing Their Daughters on Social Media**\
+`Readers are appalled by mothers who profit from images that attract pedophiles. Also: Haley and Trump; lives lost in Gaza; exclusionary zoning.`\
+https://nytimes.com/2024/03/07/opinion/letters/moms-marketing-daughters-social-media.html
+
+**Weeks of Stress, Confusion for I.V.F. Patients in Alabama**\
 `Many suffered setbacks after the state supreme court ruled that frozen embryos were children. “Someone else’s opinion changed my future,” one woman said.`\
 https://nytimes.com/2024/03/07/health/ivf-alabama-families.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/movies/glitter-and-doom-review-indigo-girls.html
 **Review: A Gentle Nightmare (Paging Dr. Freud)**\
 `Pontus Lidberg’s “On the Nature of Rabbits” at the Joyce Theater is a dance haunted by AIDS.`\
 https://nytimes.com/2024/03/07/arts/dance/review-pontus-lidberg-on-the-nature-of-rabbits.html
-
-**Sweden Officially Enters NATO Alliance, a Strategic Blow to Moscow**\
-`Sweden applied to become a member two years ago after Russia invaded Ukraine.`\
-https://nytimes.com/2024/03/07/world/europe/sweden-nato-neutrality.html
 
