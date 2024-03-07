@@ -1,3 +1,7 @@
+**What to Watch This Weekend: A Surreal Family Comedy**\
+`The Turkish series “A Round of Applause” offers a fresh and surprising vision of anxiety and alienation.`\
+https://nytimes.com/2024/03/07/arts/television/watch-a-round-of-applause.html
+
 **Judge Blocks Debt Settlement Company From Resuming Operations**\
 `Strategic Financial Solutions is accused of fraud in a lawsuit by federal and state prosecutors.`\
 https://nytimes.com/2024/03/07/business/strategic-financial-solutions-lawsuit-ryan-sasson.html
