@@ -1,3 +1,7 @@
+**How Bad Is Crime in the Subways?**\
+`Officials have spent millions to make New Yorkers transit riders feel safe. The investment is motivated more by passengers’ perception than by crime rates.`\
+https://nytimes.com/2024/03/06/nyregion/nyc-subway-crime.html
+
 **Eight Teens Are Shot at Philadelphia Bus Stop, Police Say**\
 `The injured high school students, one of whom was in critical condition, range in age from 15 to 17, the police said. It was the latest in a series of shootings on or near public buses in the city.`\
 https://nytimes.com/2024/03/06/us/philadelphia-septa-bus-shooting.html
