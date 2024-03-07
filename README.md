@@ -1,3 +1,11 @@
+**F.D.A. Urges Recall of Cinnamon Brands Tainted by Lead**\
+`The agency tested 75 types of cinnamon after hundreds of children were poisoned by the spice in applesauce. It found some lead in cinnamon brands sold at some dollar stores and other markets.`\
+https://nytimes.com/2024/03/07/health/fda-lead-cinnamon-recall.html
+
+**Breakfast Pasta for Dinner (or Dinner Pasta for Breakfast)**\
+`Ali Slagle’s new carbonara-leaning skillet pasta with bacon and eggs is a quick and easy meal for any time of day.`\
+https://nytimes.com/2024/03/07/dining/breakfast-pasta-for-dinner-or-dinner-pasta-for-breakfast.html
+
 **Spate of Mock News Sites With Russian Ties Pop Up in U.S.**\
 `The fake news organizations, experts say, represent a technological leap in the Kremlin’s efforts to spread false and misleading narratives.`\
 https://nytimes.com/2024/03/07/business/media/spate-of-mock-news-sites-with-russian-ties-pop-up-in-us.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-tax-filing
 **Top Senators Urge Stores to Stop Selling Illicit Vapes**\
 `Lawmakers want shopkeepers to remove e-cigarettes that were not authorized by the F.D.A. Retailers say it is not that simple.`\
 https://nytimes.com/2024/03/07/health/vaping-senators-warning-fda.html
-
-**Baseball Video Game Will Include Women for the First Time**\
-`MLB The Show 24 will feature a career mode that allows gamers to create a female player and steer her journey to the big leagues. The game draws on the experiences of female baseball players.`\
-https://nytimes.com/2024/03/07/sports/baseball/mlb-the-show-24-women-players.html
-
-**Mike Tyson to Fight Jake Paul in Match on Netflix**\
-`The July bout between Mr. Tyson, the former world champion, and Mr. Paul, the influencer turned boxer, is part of Netflix’s push into “sports-adjacent” live events.`\
-https://nytimes.com/2024/03/07/business/media/mike-tyson-jake-paul-fight-netflix.html
 
