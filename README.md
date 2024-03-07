@@ -1,3 +1,11 @@
+**South Africa asks the U.N.’s highest court to intervene to avert ‘genocidal starvation.’**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news/south-africa-asks-the-uns-highest-court-to-intervene-to-avert-genocidal-starvation
+
+**07mideast-crisis**\
+`South Africa Asks U.N. Court to Act as Hunger Worsens in Gaza`\
+https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news
+
 **The 20 Guests Who Will Sit With Jill Biden at the State of the Union**\
 `Among the attendees will be the prime minister of Sweden and women who were denied an abortion and in vitro fertilization.`\
 https://nytimes.com/2024/03/07/us/politics/sotu-guest-list-biden.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/science/earth/100000009346616/behind-the-scenes-manate
 **Three Reasons Biden Must Rethink His 2024 Strategy**\
 `It will take more than Jan. 6 to convince those voters who are still skeptical.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-campaign-2024
-
-**Histories of the American West and Southeast Asian Wars Win Bancroft Prize**\
-`The award, one of the most distinguished in the field of American history, honors “scope, significance, depth of research and richness of interpretation.”`\
-https://nytimes.com/2024/03/07/arts/bancroft-prize-history-america.html
-
-**The Oscar-Nominated Documentary That Made My Heart Race**\
-`Our critic on the experience of watching “20 Days in Mariupol.”`\
-https://nytimes.com/2024/03/07/podcasts/culture-desk-the-oscars-20-days-in-mariupol.html
 
