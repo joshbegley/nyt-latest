@@ -1,4 +1,4 @@
-**Sweden Officially Enters NATO Alliance, Ending Decades of Neutrality**\
+**Sweden Officially Enters NATO Alliance, a Strategic Blow to Moscow**\
 `Sweden applied to become a member two years ago after Russia invaded Ukraine.`\
 https://nytimes.com/2024/03/07/world/europe/sweden-nato-neutrality.html
 
