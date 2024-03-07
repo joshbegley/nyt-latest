@@ -1,3 +1,7 @@
+**Profound Damage Found in Maine Gunman’s Brain, Possibly From Blasts**\
+`A laboratory found a pattern of cell damage that has been seen in veterans exposed to weapons blasts, and said it probably played a role in the gunman’s spiral into violence.`\
+https://nytimes.com/2024/03/06/us/maine-shooting-brain-injury.html
+
 **String of Islands**\
 `Joe O’Neill makes a poetic debut.`\
 https://nytimes.com/2024/03/06/crosswords/daily-puzzle-2024-03-07.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/06/us/politics/google-engineer-china-ai-theft.html
 **Trump’s Super Tuesday Speech: Assessing 10 False and Misleading Claims**\
 `After racking up a series of wins that cleared the field, former President Donald J. Trump moved to a general election message. Here’s a fact check.`\
 https://nytimes.com/2024/03/06/us/politics/trump-super-tuesday-fact-check.html
-
-**Big American Tech Profits From Chinese Ad Spending Spree**\
-`Temu, Shein, and streaming and gaming apps looking to break into the U.S. market are spending huge sums to get their wares in front of American consumers.`\
-https://nytimes.com/2024/03/06/business/google-meta-temu-shein.html
 

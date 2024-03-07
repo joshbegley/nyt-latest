@@ -1,3 +1,7 @@
+**Profound Damage Found in Maine Gunman’s Brain, Possibly From Blasts**\
+`A laboratory found a pattern of cell damage that has been seen in veterans exposed to weapons blasts, and said it probably played a role in the gunman’s spiral into violence.`\
+https://nytimes.com/2024/03/06/us/maine-shooting-brain-injury.html
+
 **Alabama Passes Law to Protect I.V.F. Treatments**\
 `Some doctors said the law would allow them to resume treatments quickly, though legal experts cautioned that state constitutional challenges may still arise.`\
 https://nytimes.com/2024/03/06/us/politics/alabama-ivf-law.html
