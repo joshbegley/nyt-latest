@@ -1,3 +1,7 @@
+**Biden could speak about the challenge posed by China, though relations are more stable.**\
+`By Edward Wong`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-could-speak-about-the-challenge-posed-by-china-though-relations-are-more-stable
+
 **Met Opera’s Orchestra Will Tour Asia for the First Time**\
 `After the pandemic forced the cancellation of a tour planned for 2022, the ensemble will visit Japan, South Korea and Taiwan in June.`\
 https://nytimes.com/2024/03/07/arts/music/met-opera-asia-tour.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/johnson-
 **Oscars 2024: Print Your Ballot!**\
 `Now it’s your turn to predict which nominees will win.`\
 https://nytimes.com/interactive/2024/03/07/movies/2024-oscars-ballot.html
-
-**Biden’s Gaza Port Is Not Enough**\
-`This looks more like a photo op than an all-out effort to address a humanitarian crisis that the United States has helped to create.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/gaza-port-biden
 
