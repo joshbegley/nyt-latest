@@ -1,3 +1,7 @@
+**Canadian Jailed by China in Tit-for-Tat Dispute Gets a Settlement**\
+`Michael Spavor, a Canadian businessman, was arrested by China in what his lawyers said was an act of retaliation for Canada’s detention of a Chinese tech giant executive.`\
+https://nytimes.com/2024/03/07/world/americas/michael-spavor-canada-china.html
+
 **3 Degrees of Trumpiness: Ohio’s Republican Senate Candidates Clash**\
 `Donald Trump’s choice for the nomination, Bernie Moreno, has eagerly showed off his endorsement, but his two rivals have also embraced the former president or his policies.`\
 https://nytimes.com/2024/03/07/us/politics/ohio-senate-debate-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/science/caecilians-milk-amphibians-worms.html
 **National Guard in the Subway? New Yorkers Have Their Doubts.**\
 `Some commuters said they felt safer after learning that heavily armed soldiers would patrol the subway system. Others were critical of the governor’s plan.`\
 https://nytimes.com/2024/03/07/nyregion/nyc-subway-national-guard.html
-
-**A Chicken Stew With Mayan Roots**\
-`The modern version of jocón incorporates Mayan techniques and ingredients, as well as Spanish components.`\
-https://nytimes.com/2024/03/07/dining/chicken-stew-jocon.html
 
