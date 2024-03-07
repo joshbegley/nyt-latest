@@ -1,3 +1,11 @@
+**Here’s How to Watch the State of the Union Address**\
+`In a speech scheduled for 9 p.m., President Biden is set to lay out his agenda directly to the American people. The New York Times will carry the address live.`\
+https://nytimes.com/2024/03/07/us/politics/state-of-the-union-time-guests.html
+
+**The U.S. will build a floating pier off Gaza for delivering aid by sea.**\
+`By David E. Sanger and Michael D. Shear`\
+https://nytimes.com/live/2024/03/07/world/israel-hamas-war-gaza-news/us-gaza-aid
+
 **Jerome Powell, Take My Money!**\
 `The New York Federal Reserve, my local branch, already has a defunct teller’s window in the building. Dust it off.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/fed-inflation-banks
