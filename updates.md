@@ -1,3 +1,7 @@
+**Is Hungary a Model for Trump?**\
+`We examine Donald Trump’s affinity for Viktor Orban, Hungary’s prime minister.`\
+https://nytimes.com/2024/03/07/briefing/hungary-orban-trump.html
+
 **The Miseducation of Google’s A.I.**\
 `Gemini, Google’s new chatbot, has provoked a fierce debate about social values and artificial intelligence.`\
 https://nytimes.com/2024/03/07/podcasts/the-daily/gemini-google-ai.html
