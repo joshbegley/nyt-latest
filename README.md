@@ -1,3 +1,15 @@
+**Judge Upholds Biden Program Giving Some Immigrants Short-Term Legal Status**\
+`The initiative allows up to 360,000 people a year from Cuba, Haiti, Nicaragua and Venezuela to live and work in the United States if supported by a financial sponsor.`\
+https://nytimes.com/2024/03/08/us/biden-texas-temporary-status-program-immigration.html
+
+**Mexican Officers Shoot and Kill Student From Rural Teachers College**\
+`The 23-year-old victim was enrolled at the same school that 43 students attended before they were abducted in 2014.`\
+https://nytimes.com/2024/03/08/world/americas/mexico-police-student-death-shooting.html
+
+**With Goku, Akira Toriyama Created a Hero That Crossed Generations and Continents**\
+`The creator of “Dragon Ball” helped bring anime to the world. Its main character became a cultural phenomenon.`\
+https://nytimes.com/2024/03/08/arts/television/akira-toriyama-dragon-ball-goku.html
+
 **Biden Takes His Fiery State of the Union Pitch on the Road**\
 `Also, the Pentagon found no evidence of an alien cover-up. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/03/08/briefing/biden-speech-campaign-pentagon-ufo-report.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/08/us/politics/prince-harry-visa-heritage-foundation
 **Former Republican Candidate for U.S. House Is Charged With Murder**\
 `Dan Rodimer, who promoted former President Trump’s endorsement in two failed bids for Congress, was charged with killing a man at a Las Vegas Strip resort in October.`\
 https://nytimes.com/2024/03/08/us/politics/ex-gop-candidate-dan-rodimer-murder.html
-
-**The U.N. human rights chief warns that Israeli settlements could amount to war crimes.**\
-`By Nick Cumming-Bruce`\
-https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/the-un-human-rights-chief-warns-that-israeli-settlements-could-amount-to-war-crimes
-
-**Ratings Jump 18% for Biden’s Feisty State of the Union**\
-`President Biden attracted about five million more viewers than last year for his prime-time address on Thursday, Nielsen said.`\
-https://nytimes.com/2024/03/08/business/media/biden-state-of-the-union-ratings.html
-
-**The Best Actress Race Is an Embarrassment of Riches**\
-`The face-off is a shout that asks those voters to pick their form of bigotry, choose their manner of cruelty.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/oscar-best-actress
 
