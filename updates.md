@@ -1,3 +1,19 @@
+**A Feisty State of the Union, and a Leadership Change at the R.N.C.**\
+`Plus, do the new Oscars diversity rules work?`\
+https://nytimes.com/2024/03/08/podcasts/biden-state-union-rnc-oscars.html
+
+**The State of the Union**\
+`Delivering the final annual address of his first term, President Biden made the case for a second.`\
+https://nytimes.com/2024/03/08/podcasts/the-daily/biden-state-of-the-union.html
+
+**Biden Vows to ‘Save the Planet From the Climate Crisis’**\
+`In his speech to Congress, the president spoke in sweeping terms about global warming, and contrasted his record with that of Donald Trump.`\
+https://nytimes.com/2024/03/08/climate/biden-state-of-the-union-climate.html
+
+**California’s relatively high unemployment rate stands out.**\
+`Tech layoffs, fallout from Hollywood strikes and an uptick in rural joblessness helped drive the state’s unemployment rate to 5.1 percent in December.`\
+https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/californias-relatively-high-unemployment-rate-stands-out
+
 **What We Learned From Biden’s State of the Union**\
 `President Biden delivered a spirited speech, sparring at times with Republicans, and addressed concerns about his age.`\
 https://nytimes.com/video/us/politics/100000009347147/what-we-learned-from-bidens-state-of-the-union.html
