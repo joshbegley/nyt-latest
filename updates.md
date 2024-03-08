@@ -1,3 +1,11 @@
+**Biden and his team will hit the road to sell his agenda.**\
+`The presid`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-and-his-team-will-hit-the-road-to-sell-his-agenda
+
+**A ‘Tipping Point’ for News in New Zealand**\
+`“There was no single trigger that caused this,” James Gibbons, a regional executive at Warner Bros Discovery, said.`\
+https://nytimes.com/2024/03/07/world/australia/new-zealand-news-media.html
+
 **4 Takeaways From the State of the Union**\
 `Verbal swings at Donald Trump, though not by name. A spirited back-and-forth with G.O.P. lawmakers. And a loud and feisty delivery.`\
 https://nytimes.com/2024/03/07/us/politics/state-of-the-union-takeaways.html
