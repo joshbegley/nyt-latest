@@ -1,3 +1,19 @@
+**Biden’s Border Taunts Clearly Hit a Republican Nerve**\
+`His provocation on this issue may have been the most successful moment of the evening.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-border-republicans
+
+**With Unusual Speed, Hong Kong Pushes Strict New Security Law**\
+`The law targets political offenses like treason and insurrection with penalties as harsh as life imprisonment, giving officials more power to curb dissent.`\
+https://nytimes.com/2024/03/07/world/asia/hong-kong-security-law.html
+
+**Judge Denies Trump’s Request to Delay Due Date of $83.3 Million Penalty**\
+`The money or a bond is due Monday as Donald J. Trump faces a daunting array of legal and financial challenges.`\
+https://nytimes.com/2024/03/07/nyregion/trump-carroll-trial-83-million.html
+
+**Katie Britt, With Smiles and Menace, Delivers G.O.P. Response to Biden**\
+`The Alabama senator, 42, who has been floated as a possible running mate for Donald Trump, gave a discordant speech arguing that “our commander in chief is not in command.”`\
+https://nytimes.com/2024/03/07/us/politics/alabama-senator-gop-response.html
+
 **Democratic Women Keep Up Their Tradition of Wearing Suffragist White**\
 `The show of solidarity at State of the Union addresses started during Donald Trump’s presidency.`\
 https://nytimes.com/2024/03/07/us/politics/white-suits-women-state-of-union.html
