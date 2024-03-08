@@ -1,3 +1,11 @@
+**F.D.A. Delays Action on Closely Watched Alzheimer’s Drug**\
+`Eli Lilly’s donanemab was expected to be approved this month, but the agency has decided to convene a panel of independent experts to evaluate the drug’s safety and efficacy.`\
+https://nytimes.com/2024/03/08/health/alzheimers-drug-donanemab.html
+
+**President Biden’s Economic Optimism**\
+`The economy has rebounded. But to win re-election, Biden must help voters believe the good news.`\
+https://nytimes.com/2024/03/08/briefing/state-of-the-union-biden-economy.html
+
 **Theresa May, Former U.K. Prime Minister, Won’t Stand in Next Election**\
 `The veteran Conservative Party lawmaker, whose time as leader was plagued by Brexit turmoil, said she would step down after 27 years in Parliament.`\
 https://nytimes.com/2024/03/08/world/europe/uk-theresa-may.html

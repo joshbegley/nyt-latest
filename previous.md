@@ -1,3 +1,11 @@
+**F.D.A. Delays Action on Closely Watched Alzheimer’s Drug**\
+`Eli Lilly’s donanemab was expected to be approved this month, but the agency has decided to convene a panel of independent experts to evaluate the drug’s safety and efficacy.`\
+https://nytimes.com/2024/03/08/health/alzheimers-drug-donanemab.html
+
+**President Biden’s Economic Optimism**\
+`The economy has rebounded. But to win re-election, Biden must help voters believe the good news.`\
+https://nytimes.com/2024/03/08/briefing/state-of-the-union-biden-economy.html
+
 **Theresa May, Former U.K. Prime Minister, Won’t Stand in Next Election**\
 `The veteran Conservative Party lawmaker, whose time as leader was plagued by Brexit turmoil, said she would step down after 27 years in Parliament.`\
 https://nytimes.com/2024/03/08/world/europe/uk-theresa-may.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009347147/what-we-learned-from-biden
 **Strong Winds Moved a Lake in Death Valley Two Miles**\
 `Powerful winds last week pushed Lake Manly, a temporary body of water, two miles from its original location in the national park.`\
 https://nytimes.com/2024/03/08/us/death-valley-lake-manly-wind.html
-
-**Katie Britt Attacks Biden in G.O.P. Response**\
-`Seated at her kitchen table in Montgomery, Ala., the Republican senator called President Biden “a dithering and diminished leader” and addressed issues including immigration and I.V.F.`\
-https://nytimes.com/video/us/politics/100000009350404/alabama-senator-gop-response.html
-
-**Joe Biden: The Eras Tour**\
-`What we think is a question of age may be a matter of style.`\
-https://nytimes.com/2024/03/08/books/review/joe-biden-age-style.html
 
