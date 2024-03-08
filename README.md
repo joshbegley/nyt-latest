@@ -1,3 +1,11 @@
+**Ronny Jackson, Former White House Physician, Was Demoted by the Navy**\
+`Now a Republican member of the House and a Trump ally, his previously unpublicized demotion from rear admiral to captain came after a Pentagon investigation found misconduct on the job.`\
+https://nytimes.com/2024/03/07/us/politics/ronny-jackson-demoted-navy.html
+
+**Biden will put abortion center-stage in his address.**\
+`By Erica L. Green and Lisa Lerer`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-will-put-abortion-center-stage-in-his-address
+
 **Public Workers Joined Ring That Stole IDs of Homeless People, D.A. Says**\
 `Eighteen people, including nine New York City public employees, were charged with joining a conspiracy that made ghost guns and defrauded a state Covid relief program.`\
 https://nytimes.com/2024/03/07/nyregion/nyc-investigation-da-employees.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/07/us/politics/brian-jack-trump-congress-georgia.htm
 **Grenada Prison Escapees Are Charged With Murder of American Couple**\
 `The couple, Ralph Hendry and Kathy Brandel, went missing while sailing off the coast of Grenada.`\
 https://nytimes.com/2024/03/07/world/americas/couple-boat-grenada-murder.html
-
-**An unusual collision: The general election season began before the State of the Union.**\
-`President Biden isn’t the first sitting president to know his fall rival before he gives his speech to Congress: In 1800, John Adams did, too.`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/an-unusual-collision-the-general-election-season-began-before-the-state-of-the-union
-
-**We Need to Talk About This Republican Candidate’s Antisemitism**\
-`Mark Robinson has a history of anti-Jewish conspiracy theories. His party doesn’t care.`\
-https://nytimes.com/2024/03/07/opinion/mark-robinson-antisemitism.html
 
