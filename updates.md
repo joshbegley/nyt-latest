@@ -1,3 +1,7 @@
+**Pentagon Review Finds No Evidence of Alien Cover-Up**\
+`But the new report suggests that the public’s belief that the government is hiding what it knows will probably continue.`\
+https://nytimes.com/2024/03/08/us/politics/pentagon-ufo-alien-review.html
+
 **Crypto Super PAC to Target Races in Ohio and Montana That Could Swing the Senate**\
 `The group spent millions of dollars in the Democratic Senate primary in California and is looking to influence other races in the general election.`\
 https://nytimes.com/2024/03/08/us/politics/crypto-super-pac-senate-oh-mt.html
