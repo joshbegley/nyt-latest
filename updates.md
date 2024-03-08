@@ -1,3 +1,7 @@
+**Asian Celebrities Were Fashion Week’s Biggest Influencers**\
+`K-pop and soccer stars, actresses and singers — the fashion week A-list increasingly hails from South Korea, Thailand and the Philippines.`\
+https://nytimes.com/2024/03/08/style/fashion-week-asian-celebrities-kpop.html
+
 **The Best of Late Night This Week**\
 `Major political developments kept the hosts busy this week, including a crucial Supreme Court ruling and Super Tuesday, which all but solidified the 2024 presidential candidates. Here’s what they had to say.`\
 https://nytimes.com/interactive/2024/03/08/arts/television/best-of-late-night-super-tuesday.html
