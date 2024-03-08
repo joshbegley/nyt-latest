@@ -7,7 +7,7 @@ https://nytimes.com/2024/03/08/briefing/biden-speech-campaign-pentagon-ufo-repor
 https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/an-audio-clip-emerges-of-biden-saying-he-told-netanyahu-they-are-nearing-a-come-to-jesus-meeting-on-gaza-aid
 
 **Sam Altman to Return to OpenAI’s Board of Directors**\
-`Mr. Altman was among new additions to the board announced on Friday, more than three months after he was briefly pushed out of the company.`\
+`Mr. Altman was among new additions to the board announced on Friday, more than three months after he was briefly forced out of the company.`\
 https://nytimes.com/2024/03/08/technology/sam-altman-to-return-to-openais-board-of-directors.html
 
 **Former Trump Lawyer Emerges as Challenger to Atlanta District Attorney**\

@@ -1,3 +1,7 @@
+**Sam Altman to Return to OpenAI’s Board of Directors**\
+`Mr. Altman was among new additions to the board announced on Friday, more than three months after he was briefly forced out of the company.`\
+https://nytimes.com/2024/03/08/technology/sam-altman-to-return-to-openais-board-of-directors.html
+
 **Biden Takes His Fiery State of the Union Pitch on the Road**\
 `Also, the Pentagon found no evidence of an alien cover-up. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/03/08/briefing/biden-speech-campaign-pentagon-ufo-report.html
