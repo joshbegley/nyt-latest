@@ -1,3 +1,7 @@
+**Review: Two Electric Debuts at the New York Philharmonic**\
+`An exciting program featured the conductor Elim Chan and the cellist Sol Gabetta in a pairing of music by Martinu and Rimsky-Korsakov.`\
+https://nytimes.com/2024/03/08/arts/music/review-elim-chan-sol-gabetta-new-york-philharmonic.html
+
 **A look ‘under the hood’ reveals both strength and caution signs in the report.**\
 `By Talmon Joseph Smith`\
 https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/jobs-report-strength-caution
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/business/biden-trump-rematch-economy-history.html
 **Crypto Super PAC to Target Races in Ohio and Montana That Could Swing the Senate**\
 `The group spent millions of dollars in the Democratic Senate primary in California and is looking to influence other races in the general election.`\
 https://nytimes.com/2024/03/08/us/politics/crypto-super-pac-senate-oh-mt.html
-
-**Pentagon Review Finds No Evidence of Alien Cover-Up**\
-`But the new report suggests that the public’s belief that the government is hiding what it knows will probably continue.`\
-https://nytimes.com/2024/03/08/us/politics/pentagon-ufo-alien-review.html
 
