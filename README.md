@@ -1,6 +1,10 @@
-**Offering a Choice of ‘Revenge’ vs. ‘Decency,’ Biden Strikes a Contrast With Trump**\
+**The Republican Party wants “families to grow. It’s why we strongly support continued nationwide access to in vitro fertilization.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/the-republican-party-wants-families-to-grow-its-why-we-strongly-support-continued-nationwide-access-to-in-vitro-fertilization
+
+**Biden strikes a contrast with Trump, offering a choice between ‘revenge’ and ‘decency.’**\
 `The president made it clear in a State of the Union address that he sees the election as an existential struggle between democracy and extremism.`\
-https://nytimes.com/live/2022/03/01/us/biden-state-of-the-union/biden-sotu
+https://nytimes.com/2022/03/01/us/politics/biden-sotu.html
 
 **Biden’s Border Taunts Clearly Hit a Republican Nerve**\
 `His provocation on this issue may have been the most successful moment of the evening.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/world/australia/new-zealand-news-media.html
 **5 Takeaways From the State of the Union**\
 `Verbal swings at Donald Trump, though not by name. A spirited back-and-forth with G.O.P. lawmakers. And a loud and feisty delivery.`\
 https://nytimes.com/2024/03/07/us/politics/state-of-the-union-takeaways.html
-
-**George Santos Says He’s Running for Congress Again**\
-`Mr. Santos, who was expelled from the House in December, filed paperwork to run in a different district held by Representative Nick LaLota, a Republican.`\
-https://nytimes.com/2024/03/07/nyregion/george-santos-congress.html
 
