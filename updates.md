@@ -1,3 +1,11 @@
+**A New Speaker’s Many Faces Show Everything but Approval**\
+`Representative Mike Johnson had urged his side to refrain from disruptions. He more or less succeeded at keeping Republicans under control, but his own brows, lips and eyes were another matter.`\
+https://nytimes.com/2024/03/08/us/politics/speaker-mike-johnson-facial-expressions.html
+
+**Selfies, Handshakes and Hugs: Biden Lingers After Last Call**\
+`President Biden soaked up the atmosphere after finishing his State of the Union address, shooting the breeze with well-wishers and taking his time before departing for the White House.`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/selfies-handshakes-and-hugs-biden-lingers-after-last-call
+
 **Full Transcript of Biden’s State of the Union Speech**\
 `In an address that previewed the issues his campaign will focus on in the November election, President Biden made the case for a second term.`\
 https://nytimes.com/2024/03/08/us/politics/state-of-the-union-transcript-biden.html

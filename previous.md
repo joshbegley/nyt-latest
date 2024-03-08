@@ -1,10 +1,14 @@
+**A New Speaker’s Many Faces Show Everything but Approval**\
+`Representative Mike Johnson had urged his side to refrain from disruptions. He more or less succeeded at keeping Republicans under control, but his own brows, lips and eyes were another matter.`\
+https://nytimes.com/2024/03/08/us/politics/speaker-mike-johnson-facial-expressions.html
+
 **Full Transcript of Biden’s State of the Union Speech**\
 `In an address that previewed the issues his campaign will focus on in the November election, President Biden made the case for a second term.`\
 https://nytimes.com/2024/03/08/us/politics/state-of-the-union-transcript-biden.html
 
 **Selfies, Handshakes and Hugs: Biden Lingers After Last Call**\
 `President Biden soaked up the atmosphere after finishing his State of the Union address, shooting the breeze with well-wishers and taking his time before departing for the White House.`\
-https://nytimes.com/2024/03/08/us/politics/selfies-handshakes-and-hugs-biden-lingers-after-last-call.html
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/selfies-handshakes-and-hugs-biden-lingers-after-last-call
 
 **Father of Marine Killed in Afghanistan Is Arrested During Biden’s Address**\
 `Steve Nikoui yelled “Abbey Gate, Abbey Gate” during the speech, a reference to where his son, Lance Cpl. Kareem Nikoui, and 12 other troops were killed during the chaotic final days of the U.S. presence in Kabul.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/pageoneplus/quotation-of-the-day-where-are-the-wo
 **The I.C.C. arrest warrants for Russian officers will echo beyond Russia.**\
 `The warrants for two commanders over alleged war crimes may set an interesting precedent, legal experts said, including for the conflict in Gaza.`\
 https://nytimes.com/2024/03/08/world/europe/the-icc-arrest-warrants-for-russian-officers-will-echo-beyond-russia.html
-
-**My Husband Keeps Leaving Me**\
-`A marriage between a soldier and a pacifist strains and changes.`\
-https://nytimes.com/2024/03/08/style/modern-love-my-husband-keeps-leaving-me.html
 
