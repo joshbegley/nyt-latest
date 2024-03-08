@@ -1,3 +1,7 @@
+**Who’s Afraid of the Big Black Suit?**\
+`As so many Oscars hopefuls do, it is time to make friends with the tuxedo.`\
+https://nytimes.com/2024/03/08/style/oscars-tuxedos-black-tie.html
+
 **Is It Wrong to Go to a Guys-Only Night?**\
 `The magazine’s Ethicist columnist on the appropriateness of gender-exclusive spaces.`\
 https://nytimes.com/2024/03/08/magazine/guys-only-night-ethics.html
