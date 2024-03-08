@@ -1,3 +1,7 @@
+**Former Trump Lawyer Emerges as Challenger to Atlanta District Attorney**\
+`A Republican lawyer who has worked in the Trump White House is running to unseat Fani T. Willis, the district attorney prosecuting the Georgia election interference case.`\
+https://nytimes.com/2024/03/08/us/courtney-kramer-fani-willis-election.html
+
 **With Cyberattack Fix Weeks Away, Health Providers Slam United**\
 `Hospitals, doctors and clinics expressed frustration that they will have to wait even longer for reimbursements after hackers paralyzed the largest U.S. billing clearinghouse.`\
 https://nytimes.com/2024/03/08/health/united-healthcare-cyberattack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/world/middleeast/gaza-aid-by-sea.html
 **A Night With New York’s Lesbian and Bisexual Backgammon League**\
 `At the invitation-only art world games evenings, painters, gallerists, collectors and assistants mingle and compete on a level playing field.`\
 https://nytimes.com/2024/03/08/t-magazine/lesbian-bisexual-backgammon-league-new-york.html
-
-**States Dig Into Homeowners Insurance and Why It’s Hard to Buy**\
-`State regulators asked more than 400 companies for data on their homeowners insurance businesses. The inquiry comes at a moment when severe weather is increasing risk.`\
-https://nytimes.com/2024/03/08/business/homeowners-insurance-state-regulators.html
 
