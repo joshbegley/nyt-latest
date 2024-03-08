@@ -1,3 +1,11 @@
+**The Quiet Man Who Makes Fashion Brands Pop**\
+`Known for his spare design sense, Eric Wrenn is an “industry secret” trusted by designers and artists.`\
+https://nytimes.com/2024/03/08/style/brand-design-eric-wrenn.html
+
+**Appeals Court Revives Corruption Case Against Ex-Lieutenant Governor**\
+`Prosecutors have said Brian Benjamin, the former lieutenant governor of New York, planned to funnel $50,000 in state money to a developer in exchange for campaign donations.`\
+https://nytimes.com/2024/03/08/nyregion/brian-benjamin-corruption-charges.html
+
 **Saturn’s Been Doing a Lot of Returning Lately**\
 `In the last month, the planet has figured in new releases by SZA, Kacey Musgraves and Ariana Grande. But for the astrologically inclined, what does a “Saturn return” signify?`\
 https://nytimes.com/2024/03/08/style/saturn-return-astrology-ariana-grande.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/08/arts/design/mercer-labs-roy-nachum-braille.html
 **Has San Francisco Lost Its Liberal Soul?**\
 `In a city known as a progressive bastion, voters resoundingly passed two conservative-leaning ballot measures this week, on police authority and drug screening.`\
 https://nytimes.com/2024/03/08/us/san-francisco-progressive-ballot-measures.html
-
-**Israel Says Its Forces ‘Fired Precisely’ During Aid Convoy Chaos**\
-`An initial review by the Israeli military of the episode differed from accounts of witnesses and Palestinian officials, who described extensive shooting after thousands massed around aid trucks.`\
-https://nytimes.com/2024/03/08/world/middleeast/israel-military-gaza-aid-convoy-report.html
-
-**The jobs report comes as the Fed considers when to cut interest rates.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/the-jobs-report-comes-as-the-fed-considers-when-to-cut-interest-rates
 
