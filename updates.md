@@ -1,3 +1,7 @@
+**More Tuned In for State of the Union Than Last Year**\
+`President Biden attracted a bigger prime-time audience for a feisty and high-energy speech, according to early figures released by Nielsen.`\
+https://nytimes.com/2024/03/08/business/media/biden-state-of-the-union-ratings.html
+
 **The Best Actress Race Is an Embarrassment of Riches**\
 `The face-off is a shout that asks those voters to pick their form of bigotry, choose their manner of cruelty.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/oscar-best-actress
