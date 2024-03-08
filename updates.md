@@ -1,3 +1,11 @@
+**The Quiet Man Who Makes Fashion Brands Pop**\
+`Known for his spare design sense, Eric Wrenn is an “industry secret” trusted by designers and artists.`\
+https://nytimes.com/2024/03/08/style/brand-design-eric-wrenn.html
+
+**Appeals Court Revives Corruption Case Against Ex-Lieutenant Governor**\
+`Prosecutors have said Brian Benjamin, the former lieutenant governor of New York, planned to funnel $50,000 in state money to a developer in exchange for campaign donations.`\
+https://nytimes.com/2024/03/08/nyregion/brian-benjamin-corruption-charges.html
+
 **Saturn’s Been Doing a Lot of Returning Lately**\
 `In the last month, the planet has figured in new releases by SZA, Kacey Musgraves and Ariana Grande. But for the astrologically inclined, what does a “Saturn return” signify?`\
 https://nytimes.com/2024/03/08/style/saturn-return-astrology-ariana-grande.html
