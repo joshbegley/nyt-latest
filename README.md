@@ -1,3 +1,7 @@
+**In Two Speeches, Trump and Biden Offer Starkly Different Views of the Country**\
+`President Biden’s State of the Union address and former President Donald Trump’s victory speech on Super Tuesday conjured diametrically opposed visions of America’s past, present and future.`\
+https://nytimes.com/2024/03/08/us/politics/trump-biden-speeches.html
+
 **A Hearty Irish Bread Absolutely Anyone Can Make**\
 `This brown bread recipe, a staple of the Ballymaloe Cookery School in Cork, Ireland, is as satisfying and foolproof as they come.`\
 https://nytimes.com/2024/03/08/dining/irish-brown-bread.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009351002/maritime-corridor-gaza.ht
 **One Family’s Long Road Out of Gaza**\
 `Grieving from afar but still dreaming of peace.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/gaza-refugees
-
-**What Weight Did Biden’s Words Carry?**\
-`Readers assess the State of the Union address. Also: Trump trauma; National Guard in the subway; unionized college basketball.`\
-https://nytimes.com/2024/03/08/opinion/letters/biden-state-of-union-speech.html
 

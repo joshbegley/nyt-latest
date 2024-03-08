@@ -1,3 +1,15 @@
+**A Hearty Irish Bread Absolutely Anyone Can Make**\
+`This brown bread recipe, a staple of the Ballymaloe Cookery School in Cork, Ireland, is as satisfying and foolproof as they come.`\
+https://nytimes.com/2024/03/08/dining/irish-brown-bread.html
+
+**Book Club: Let’s Talk About ‘Erasure,’ by Percival Everett**\
+`A scathing satire about race, publishing and identity politics, Everett’s acclaimed 2001 novel is the basis of the Oscar-nominated movie “American Fiction.”`\
+https://nytimes.com/2024/03/08/books/review/podcast-percival-everett-erasure.html
+
+**No Labels, a Centrist Group, Moves Toward a Third-Party Presidential Bid**\
+`The group said it had voted to nominate a ticket, but did not announce which candidate might run on its ballot line. Democrats have worried that such a bid could siphon support from President Biden.`\
+https://nytimes.com/2024/03/08/us/politics/no-labels-presidential-candidate.html
+
 **Gazan authorities say 5 people were killed in airdrop accident.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/gazan-authorities-say-5-people-were-killed-in-airdrop-accident
