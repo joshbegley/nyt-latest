@@ -1,3 +1,11 @@
+**Biden Spars With Marjorie Taylor Greene About a Murder He Said Was Committed ‘by an Illegal’**\
+`The far-right representative from Georgia with a history of interrupting the president at the State of the Union, shouted at Mr. Biden about crimes committed by undocumented migrants, leading him to go off script.`\
+https://nytimes.com/2024/03/07/us/politics/laken-riley-sotu-biden-marjorie-taylor-greene.html
+
+**Biden’s Border Taunts Clearly Hit a Republican Nerve**\
+`His provocation on this issue might have been the most successful moment of the evening.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-border-republicans
+
 **The Republican Party wants “families to grow. It’s why we strongly support continued nationwide access to in vitro fertilization.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/the-republican-party-wants-families-to-grow-its-why-we-strongly-support-continued-nationwide-access-to-in-vitro-fertilization
