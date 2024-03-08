@@ -1,3 +1,7 @@
+**Wide Ramifications Seen for Brain Damage Found in Maine Gunman**\
+`Exposure to blasts, even at low levels, may play a much greater role in veterans’ mental health struggles than has been known, with implications for treatment strategies and for criminal justice.`\
+https://nytimes.com/2024/03/08/us/lewiston-mass-shooting-robert-card.html
+
 **‘Was It Feisty or Angry?’: Readers Rate the State of the Union**\
 `We asked readers to rate Biden’s performance at the State of the Union.`\
 https://nytimes.com/2024/03/08/opinion/state-of-the-union-reader-comments.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/arts/television/akira-toriyama-dragon-ball-goku.h
 **Biden Takes His Fiery State of the Union Pitch on the Road**\
 `Also, the Pentagon found no evidence of an alien cover-up. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/03/08/briefing/biden-speech-campaign-pentagon-ufo-report.html
-
-**An audio clip emerges of Biden saying he told Netanyahu they are nearing a ‘come-to-Jesus meeting’ on Gaza aid.**\
-`By Erica L. Green`\
-https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/an-audio-clip-emerges-of-biden-saying-he-told-netanyahu-they-are-nearing-a-come-to-jesus-meeting-on-gaza-aid
 

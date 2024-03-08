@@ -1,3 +1,7 @@
+**Wide Ramifications Seen for Brain Damage Found in Maine Gunman**\
+`Exposure to blasts, even at low levels, may play a much greater role in veterans’ mental health struggles than has been known, with implications for treatment strategies and for criminal justice.`\
+https://nytimes.com/2024/03/08/us/lewiston-mass-shooting-robert-card.html
+
 **‘Was It Feisty or Angry?’: Readers Rate the State of the Union**\
 `We asked readers to rate Biden’s performance at the State of the Union.`\
 https://nytimes.com/2024/03/08/opinion/state-of-the-union-reader-comments.html
