@@ -1,3 +1,7 @@
+**Britain and the E.U. say they will participate in a sea route for aid to Gaza.**\
+`By Monika Pronczuk and Aaron Boxerman`\
+https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/britain-and-the-eu-say-they-will-participate-in-a-sea-route-for-aid-to-gaza
+
 **A Feisty State of the Union, and a Leadership Change at the R.N.C.**\
 `Plus, do the new Oscars diversity rules work?`\
 https://nytimes.com/2024/03/08/podcasts/biden-state-union-rnc-oscars.html
