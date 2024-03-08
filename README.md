@@ -1,3 +1,7 @@
+**One Family’s Long Road Out of Gaza**\
+`Grieving from afar but still dreaming of peace.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/gaza-refugees
+
 **What Weight Did Biden’s Words Carry?**\
 `Readers assess the State of the Union address. Also: Trump trauma; National Guard in the subway; unionized college basketball.`\
 https://nytimes.com/2024/03/08/opinion/letters/biden-state-of-union-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/us-emp
 **Covid Became a Pandemic 4 Years Ago. How Does Your Life Look Now?**\
 `We want to hear from readers on how your life has or hasn’t changed.`\
 https://nytimes.com/2024/03/08/us/covid-pandemic-callout.html
-
-**Five International Movies to Stream Now**\
-`This month’s picks include a coming-of-age story set in Quebec, an observational Tunisian drama, an erotic French movie about a strip club and more.`\
-https://nytimes.com/2024/03/08/movies/international-movies-streaming.html
 
