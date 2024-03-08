@@ -1,3 +1,7 @@
+**The U.N. human rights chief warns that Israeli settlements could amount to war crimes.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/the-un-human-rights-chief-warns-that-israeli-settlements-could-amount-to-war-crimes
+
 **More Tuned In for State of the Union Than Last Year**\
 `President Biden attracted a bigger prime-time audience for a feisty and high-energy speech, according to early figures released by Nielsen.`\
 https://nytimes.com/2024/03/08/business/media/biden-state-of-the-union-ratings.html
