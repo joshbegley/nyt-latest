@@ -1,3 +1,7 @@
+**Biden Plan to Build Gaza Aid Port Could Deliver 2 Million Meals a Day**\
+`However, the planned pier and causeway will take at least a month and maybe two to complete, the Pentagon said.`\
+https://nytimes.com/2024/03/08/world/middleeast/biden-gaza-aid-port-meals.html
+
 **Judge Upholds Biden Program Giving Some Immigrants Short-Term Legal Status**\
 `The initiative allows up to 360,000 people a year from Cuba, Haiti, Nicaragua and Venezuela to live and work in the United States if supported by a financial sponsor.`\
 https://nytimes.com/2024/03/08/us/biden-texas-temporary-status-program-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/health/united-healthcare-cyberattack.html
 **Judge to Review Prince Harry’s Visa Papers in Dispute Over Release**\
 `The documents have been sought by the Heritage Foundation in a freedom of information lawsuit. The group wants to know if the prince’s drug use was considered in granting him a U.S. visa.`\
 https://nytimes.com/2024/03/08/us/politics/prince-harry-visa-heritage-foundation.html
-
-**Former Republican Candidate for U.S. House Is Charged With Murder**\
-`Dan Rodimer, who promoted former President Trump’s endorsement in two failed bids for Congress, was charged with killing a man at a Las Vegas Strip resort in October.`\
-https://nytimes.com/2024/03/08/us/politics/ex-gop-candidate-dan-rodimer-murder.html
 
