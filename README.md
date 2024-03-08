@@ -1,3 +1,7 @@
+**Biden and his team will hit the road to sell his agenda.**\
+`The presid`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-and-his-team-will-hit-the-road-to-sell-his-agenda
+
 **A ‘Tipping Point’ for News in New Zealand**\
 `“There was no single trigger that caused this,” James Gibbons, a regional executive at Warner Bros Discovery, said.`\
 https://nytimes.com/2024/03/07/world/australia/new-zealand-news-media.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/us/politics/katie-britt-talking-points-influencer
 **Variety: Acrostic**\
 `David Balton and Jane Stewart’s puzzle is about an incredible history.`\
 https://nytimes.com/2024/03/07/crosswords/variety-acrostic.html
-
-**Needle on a Thread**\
-`Jackson Matz makes his New York Times Crossword debut.`\
-https://nytimes.com/2024/03/07/crosswords/daily-puzzle-2024-03-08.html
 
