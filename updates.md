@@ -1,3 +1,11 @@
+**Is It Wrong to Go to a Guys-Only Night?**\
+`The magazine’s Ethicist columnist on the appropriateness of gender-exclusive spaces.`\
+https://nytimes.com/2024/03/08/magazine/guys-only-night-ethics.html
+
+**Flau’jae and Wyclef Jean Are Rapping About Personal Finance. Good.**\
+`Culture, including music and social media, can be an important medium for financial education.`\
+https://nytimes.com/2024/03/08/opinion/personal-finance-flaujae-wyclef.html
+
 **Judge John Hodgman on the Gullibility Test**\
 `Should a husband be allowed to spout fake “facts”?`\
 https://nytimes.com/2024/03/08/magazine/judge-john-hodgman-on-the-gullibility-test.html
