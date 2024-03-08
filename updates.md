@@ -1,3 +1,7 @@
+**Israeli forces ‘fired precisely’ at Gazans during chaos near an aid convoy, the military says in an initial review.**\
+`The Israeli military account differs from those of witnesses and Palestinian officials who described extensive shooting after thousands massed around an aid convoy.`\
+https://nytimes.com/2024/03/08/world/middleeast/israel-military-gaza-aid-convoy-report.html
+
 **Two surveys tell different stories.**\
 `Household data shows the labor market cooling and employment recently falling. How can that be reconciled with the job gains reported by employers?`\
 https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/two-surveys-tell-different-stories

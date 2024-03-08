@@ -27,8 +27,8 @@ https://nytimes.com/2024/03/08/arts/design/mercer-labs-roy-nachum-braille.html
 https://nytimes.com/2024/03/08/us/san-francisco-progressive-ballot-measures.html
 
 **Israeli forces ‘fired precisely’ at Gazans during chaos near an aid convoy, the military says in an initial review.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/israeli-forces-fired-precisely-at-gazans-during-chaos-near-an-aid-convoy-the-military-says-in-an-initial-review
+`The Israeli military account differs from those of witnesses and Palestinian officials who described extensive shooting after thousands massed around an aid convoy.`\
+https://nytimes.com/2024/03/08/world/middleeast/israel-military-gaza-aid-convoy-report.html
 
 **The jobs report comes as the Fed considers when to cut interest rates.**\
 `By Jeanna Smialek`\
