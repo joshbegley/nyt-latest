@@ -1,3 +1,7 @@
+**‘Was It Feisty or Angry?’: Readers Rate the State of the Union**\
+`We asked readers to rate Biden’s performance at the State of the Union.`\
+https://nytimes.com/2024/03/08/opinion/state-of-the-union-reader-comments.html
+
 **Howard Hiatt, 98, Dies; Steered Public Health Toward Greater Accountability**\
 `A physician, scientist and academic, he brought together experts across disciplines to focus on the economic, political and social causes of poor health, not just the biological factors.`\
 https://nytimes.com/2024/03/08/health/howard-hiatt-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/briefing/biden-speech-campaign-pentagon-ufo-repor
 **An audio clip emerges of Biden saying he told Netanyahu they are nearing a ‘come-to-Jesus meeting’ on Gaza aid.**\
 `By Erica L. Green`\
 https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/an-audio-clip-emerges-of-biden-saying-he-told-netanyahu-they-are-nearing-a-come-to-jesus-meeting-on-gaza-aid
-
-**Sam Altman to Return to OpenAI’s Board of Directors**\
-`Mr. Altman was among new additions to the board announced on Friday, more than three months after he was briefly forced out of the company.`\
-https://nytimes.com/2024/03/08/technology/sam-altman-to-return-to-openais-board-of-directors.html
 
