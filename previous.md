@@ -1,40 +1,40 @@
-**Biden urges Israel to ‘do its part’ to increase aid to Gaza.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/biden-urges-israel-to-do-its-part-to-increase-aid-to-gaza
+**The New York Times News Quiz, Mar. 8, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/03/08/briefing/nikki-haley-california-primary-biden-quiz.html
 
-**08mideast-crisis**\
-`Biden Defends U.S. Efforts to Ease Suffering in Gaza`\
-https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news
+**6 Paperbacks to Read This Week**\
+`Recommended reading from the Book Review, including titles by Aleksandar Hemon, Jenny Jackson, Nina Totenberg and more.`\
+https://nytimes.com/interactive/2024/03/08/books/new-paperbacks-hemon.html
 
-**‘The Late Show’ Goes Live to Recap the State of the Union**\
-`“Depending on what happens in November, next year might just be a Kid Rock concert and an immigrant catapult,” Stephen Colbert joked.`\
-https://nytimes.com/2024/03/08/arts/television/the-late-show-live-sotu.html
+**Who Still Works From Home?**\
+`Four years after the pandemic began, American employers have reached a new hybrid-work status quo.`\
+https://nytimes.com/interactive/2024/03/08/business/economy/remote-work-home.html
 
-**How New York’s Schoolchildren Got Their French Toast Sticks Back**\
-`Mayor Eric Adams’s administration reversed course on school menu cuts after an uproar among students over the loss of popular items.`\
-https://nytimes.com/2024/03/08/nyregion/nyc-school-cafeteria-food-cuts-reversed-adams.html
+**The Coolest Grocery Store That Never Existed**\
+`A meme portraying a City Fresh Market in Brooklyn as the “Bushwick Erewhon” confounded many as it spread on social media.`\
+https://nytimes.com/2024/03/08/style/bushwick-city-fresh-market-erewhon-tiktok.html
 
-**Playing Dominoes**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2024/03/08/learning/playing-dominoes.html
+**In Parliamentary Vote, Iranians Vented Their Rage With the Ruling Elite**\
+`Whether handing in blank ballots or voting for fringe candidates, analysts say, citizens registered their frustration with the status quo.`\
+https://nytimes.com/2024/03/08/world/middleeast/parliamentary-election-iran-conservatives.html
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/08/crosswords/connections-companion.html
+**The Night Sky Will Soon Get ‘a New Star.’ Here’s How to See It.**\
+`A nova named T Coronae Borealis lit up the night about 80 years ago, and astronomers say it’s expected to put on another show in the coming months.`\
+https://nytimes.com/article/nova-new-star-t-coronae-borealis.html
 
-**$1 Million Homes in London**\
-`A cottage in Nunhead Green, a two-bedroom apartment in Wapping and a three-bedroom duplex in Kingsland Basin.`\
-https://nytimes.com/2024/03/08/realestate/london-1-million-dollar-homes.html
+**Performance Space New York Unveils Its New Leadership Model**\
+`Taja Cheek joins the organization, a leading venue for experimental performance. She and two other executives will have equal say in big decisions.`\
+https://nytimes.com/2024/03/08/arts/design/performance-space-taja-cheek.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/03/08/crosswords/spelling-bee-forum.html
+**An Oscar-Winning Concert Documentary That Speaks Volumes About America**\
+`“Woodstock” involved filmmakers who figure in this year’s awards ceremony.`\
+https://nytimes.com/2024/03/08/movies/woodstock-oscars.html
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/08/crosswords/wordle-review.html
+**Are You a ‘Floor Person’? Why Lying on the Ground Feels So Good**\
+`For some, just a few minutes can quiet the mind.`\
+https://nytimes.com/2024/03/08/well/mind/floor-time-benefits.html
 
-**Trump’s Man at the R.N.C. Will Face Pressure to Satisfy His Election Lies**\
-`The former president believes his pick to lead the Republican National Committee, Michael Whatley, is more in sync with his views about voter fraud than Ronna McDaniel, who steps aside Friday.`\
-https://nytimes.com/2024/03/08/us/politics/rnc-trump-whatley.html
+**Teaching Kids to Count With Hermès Bags**\
+`A new book promises to do just that. Plus, a chance to buy an interior designer’s designer clothes and portrait art showcasing a rarefied breed: dandies.`\
+https://nytimes.com/2024/03/08/style/high-fashion-books.html
 
