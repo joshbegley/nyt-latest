@@ -1,3 +1,7 @@
+**The jobs report comes as the Fed considers when to cut interest rates.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/the-jobs-report-comes-as-the-fed-considers-when-to-cut-interest-rates
+
 **The Apocalypse in Katie Britt’s Kitchen**\
 `The senator’s performance was completely over the top, just the way her admirers like it.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/katie-britt-kitchen-response
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/the-ec
 **F.D.A. Delays Action on Closely Watched Alzheimer’s Drug**\
 `Eli Lilly’s donanemab was expected to be approved this month, but the agency has decided to convene a panel of independent experts to evaluate the drug’s safety and efficacy.`\
 https://nytimes.com/2024/03/08/health/alzheimers-drug-donanemab.html
-
-**President Biden’s Economic Optimism**\
-`The economy has rebounded. But to win re-election, Biden must help voters believe the good news.`\
-https://nytimes.com/2024/03/08/briefing/state-of-the-union-biden-economy.html
 
