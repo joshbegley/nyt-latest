@@ -1,3 +1,11 @@
+**States Dig Into Homeowners Insurance and Why It’s Hard to Buy**\
+`State regulators asked more than 400 companies for data on their homeowners insurance businesses. The inquiry comes at a moment when severe weather is increasing risk.`\
+https://nytimes.com/2024/03/08/business/homeowners-insurance-state-regulators.html
+
+**How to Survive Daylight Saving Time**\
+`A few tips can help you make the adjustment.`\
+https://nytimes.com/interactive/2024/03/08/smarter-living/wirecutter/survive-daylight-saving-2024.html
+
 **Oscars Quiz: Test Your Movie Knowledge**\
 `The Oscars are Sunday. It’s been a busy awards season filled with Barbies and biopics. Now that we’re nearing the end, let’s see how much you know.`\
 https://nytimes.com/2024/03/08/movies/oscars-quiz-test-your-movie-knowledge.html

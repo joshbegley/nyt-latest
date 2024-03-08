@@ -1,3 +1,11 @@
+**Europe and U.S. Plan to Supply Gaza by Sea, but Aid Groups Say It’s Not Enough**\
+`Relief organizations say cumbersome new strategies cannot substitute for Israel allowing more supply trucks into the Gaza Strip, while an airdrop of aid reportedly went awry and killed five people.`\
+https://nytimes.com/2024/03/08/world/middleeast/gaza-aid-by-sea.html
+
+**A Night With New York’s Lesbian and Bisexual Backgammon League**\
+`At the invitation-only art world games evenings, painters, gallerists, collectors and assistants mingle and compete on a level playing field.`\
+https://nytimes.com/2024/03/08/t-magazine/lesbian-bisexual-backgammon-league-new-york.html
+
 **States Dig Into Homeowners Insurance and Why It’s Hard to Buy**\
 `State regulators asked more than 400 companies for data on their homeowners insurance businesses. The inquiry comes at a moment when severe weather is increasing risk.`\
 https://nytimes.com/2024/03/08/business/homeowners-insurance-state-regulators.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/08/theater/ingrid-michaelson-the-notebook-broadway.h
 **Who’s Afraid of the Big Black Suit?**\
 `As so many Oscars hopefuls do, it is time to make friends with the tuxedo.`\
 https://nytimes.com/2024/03/08/style/oscars-tuxedos-black-tie.html
-
-**Is It Wrong to Go to a Guys-Only Night?**\
-`The magazine’s Ethicist columnist on the appropriateness of gender-exclusive spaces.`\
-https://nytimes.com/2024/03/08/magazine/guys-only-night-ethics.html
-
-**Flau’jae and Wyclef Jean Are Rapping About Personal Finance. Good.**\
-`Culture, including music and social media, can be an important medium for financial education.`\
-https://nytimes.com/2024/03/08/opinion/personal-finance-flaujae-wyclef.html
 
