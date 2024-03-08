@@ -1,3 +1,11 @@
+**Full Transcript of Biden’s State of the Union Speech**\
+`In an address that previewed the issues his campaign will focus on in the November election, President Biden made the case for a second term.`\
+https://nytimes.com/2024/03/08/us/politics/state-of-the-union-transcript-biden.html
+
+**Selfies, Handshakes and Hugs: Biden Lingers After Last Call**\
+`President Biden soaked up the atmosphere after finishing his State of the Union address, shooting the breeze with well-wishers and taking his time before departing for the White House.`\
+https://nytimes.com/2024/03/08/us/politics/selfies-handshakes-and-hugs-biden-lingers-after-last-call.html
+
 **Father of Marine Killed in Afghanistan Is Arrested During Biden’s Address**\
 `Steve Nikoui yelled “Abbey Gate, Abbey Gate” during the speech, a reference to where his son, Lance Cpl. Kareem Nikoui, and 12 other troops were killed during the chaotic final days of the U.S. presence in Kabul.`\
 https://nytimes.com/2024/03/08/us/politics/abbey-gate-yelling-state-of-union.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/08/world/europe/the-icc-arrest-warrants-for-russian-
 **My Husband Keeps Leaving Me**\
 `A marriage between a soldier and a pacifist strains and changes.`\
 https://nytimes.com/2024/03/08/style/modern-love-my-husband-keeps-leaving-me.html
-
-**Love Italian American Style: That’s Amore**\
-`Chris Marazzo fell for Rose Minutaglio across the crowded backroom at Forlini’s Italian restaurant.`\
-https://nytimes.com/2024/03/08/style/rose-minutaglio-chris-marazzo-wedding.html
-
-**‘Decolonizing’ Ukrainian Art, One Name-and-Shame Post at a Time**\
-`Oksana Semenik’s social media campaign both educates the curious about overlooked Ukrainian artists — and pressures global museums to relabel art long described as Russian.`\
-https://nytimes.com/2024/03/08/world/europe/decolonizing-ukrainian-art-oksana-semenik.html
 
