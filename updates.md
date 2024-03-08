@@ -1,3 +1,7 @@
+**U.S. employers added 275,000 jobs last month.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/us-employers-added-275000-jobs-last-month
+
 **Covid Became a Pandemic 4 Years Ago. How Does Your Life Look Now?**\
 `We want to hear from readers on how your life has or hasn’t changed.`\
 https://nytimes.com/2024/03/08/us/covid-pandemic-callout.html
