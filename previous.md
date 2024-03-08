@@ -1,3 +1,7 @@
+**The Functional Dysfunctional Congress**\
+`Lawmakers have found a messy bipartisan way to pass spending bills, though the final test later this month promises to be much more challenging.`\
+https://nytimes.com/2024/03/08/us/politics/congress-dysfunction-spending-bills.html
+
 **Review: Igor Levit Wields Orchestral Power With Just a Piano**\
 `For his latest Carnegie Hall appearance, Levit played solo piano transcriptions of symphonic works by Mahler and Beethoven.`\
 https://nytimes.com/2024/03/08/arts/music/igor-levit-carnegie-hall-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/style/fashion-week-asian-celebrities-kpop.html
 **Biden Aims to Pump Energy Into Campaign After a Fiery National Address**\
 `The president will follow up his State of the Union speech with a campaign swing to several battleground states, and will begin a $30 million advertising push.`\
 https://nytimes.com/2024/03/08/us/politics/biden-campaign.html
-
-**Big Birds, Baked Beans and Brown Bread**\
-`What to cook this weekend: chicken with couscous, dates and buttered almonds; easy roast duck; and a heavy pot of Boston baked beans.`\
-https://nytimes.com/2024/03/08/dining/big-birds-baked-beans-and-brown-bread.html
 

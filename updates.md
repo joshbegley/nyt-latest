@@ -1,3 +1,7 @@
+**The Functional Dysfunctional Congress**\
+`Lawmakers have found a messy bipartisan way to pass spending bills, though the final test later this month promises to be much more challenging.`\
+https://nytimes.com/2024/03/08/us/politics/congress-dysfunction-spending-bills.html
+
 **Review: Igor Levit Wields Orchestral Power With Just a Piano**\
 `For his latest Carnegie Hall appearance, Levit played solo piano transcriptions of symphonic works by Mahler and Beethoven.`\
 https://nytimes.com/2024/03/08/arts/music/igor-levit-carnegie-hall-review.html
