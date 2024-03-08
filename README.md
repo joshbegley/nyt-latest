@@ -1,3 +1,7 @@
+**Oscars Quiz: Test Your Movie Knowledge**\
+`The Oscars are Sunday. It’s been a busy awards season filled with Barbies and biopics. Now that we’re nearing the end, let’s see how much you know.`\
+https://nytimes.com/2024/03/08/movies/oscars-quiz-test-your-movie-knowledge.html
+
 **California Officials Investigate Possible Oil Spill Off Huntington Beach**\
 `It was not immediately clear what caused an oil sheen that officials said was about 2.5 miles long and half a mile wide.`\
 https://nytimes.com/2024/03/08/us/oil-spill-huntington-beach-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/magazine/judge-john-hodgman-on-the-gullibility-te
 **Apple Reverses Course and Allows Epic Games to Start Competing App Store**\
 `After an inquiry by European regulators, Epic Games said Apple would allow it to access the software tools necessary to develop a game store.`\
 https://nytimes.com/2024/03/08/technology/apple-epic-games-app-store.html
-
-**Spurned, Slighted, Rejected: 25 Oscar Snubs We’ll Never Get Over**\
-`Greta Gerwig, you’re not alone. These artists and films memorably — outrageously in our view — got the brush-off from the academy. We’re still in disbelief.`\
-https://nytimes.com/2024/03/08/movies/oscar-snubs-history.html
 
