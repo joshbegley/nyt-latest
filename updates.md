@@ -1,3 +1,7 @@
+**Covid Became a Pandemic 4 Years Ago. How Does Your Life Look Now?**\
+`We want to hear from readers on how your life has or hasn’t changed.`\
+https://nytimes.com/2024/03/08/us/covid-pandemic-callout.html
+
 **Five International Movies to Stream Now**\
 `This month’s picks include a coming-of-age story set in Quebec, an observational Tunisian drama, an erotic French movie about a strip club and more.`\
 https://nytimes.com/2024/03/08/movies/international-movies-streaming.html

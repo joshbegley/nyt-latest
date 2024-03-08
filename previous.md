@@ -1,3 +1,7 @@
+**Covid Became a Pandemic 4 Years Ago. How Does Your Life Look Now?**\
+`We want to hear from readers on how your life has or hasn’t changed.`\
+https://nytimes.com/2024/03/08/us/covid-pandemic-callout.html
+
 **Five International Movies to Stream Now**\
 `This month’s picks include a coming-of-age story set in Quebec, an observational Tunisian drama, an erotic French movie about a strip club and more.`\
 https://nytimes.com/2024/03/08/movies/international-movies-streaming.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/arts/music/review-elim-chan-sol-gabetta-new-york-
 **A look ‘under the hood’ reveals both strength and caution signs in the report.**\
 `By Talmon Joseph Smith`\
 https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/jobs-report-strength-caution
-
-**‘Crusty’ and ‘Pillowy’: How N.Y.C.-Style Bagels Made It Big in London**\
-`Bakeries selling big, doughy bagels have opened to rave reviews in Britain, but some traditionalists are standing by the London “beigel.”`\
-https://nytimes.com/2024/03/08/world/europe/new-york-bagels-london-beigel.html
 
