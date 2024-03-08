@@ -1,3 +1,7 @@
+**‘The Late Show’ Goes Live to Recap the State of the Union**\
+`“Depending on what happens in November, next year might just be a Kid Rock concert and an immigrant catapult,” Stephen Colbert joked.`\
+https://nytimes.com/2024/03/08/arts/television/the-late-show-live-sotu.html
+
 **How New York’s Schoolchildren Got Their French Toast Sticks Back**\
 `Mayor Eric Adams’s administration reversed course on school menu cuts after an uproar among students over the loss of popular items.`\
 https://nytimes.com/2024/03/08/nyregion/nyc-school-cafeteria-food-cuts-reversed-adams.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/nyregion/gilgo-beach-murders-heuermann.html
 **Word of the Day: dwindle**\
 `This word has appeared in 76 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/08/learning/word-of-the-day-dwindle.html
-
-**On Foreign Policy, Biden’s Agenda Faces Multiplying Challenges**\
-`The president’s call for aid to Ukraine and his pledge of assistance for Gaza came against a backdrop of Republican opposition, splits in his own party and tension with allies.`\
-https://nytimes.com/2024/03/08/us/politics/biden-foreign-policy-challenges.html
 
