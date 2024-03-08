@@ -1,3 +1,11 @@
+**States Dig Into Homeowners Insurance and Why It’s Hard to Buy**\
+`State regulators asked more than 400 companies for data on their homeowners insurance businesses. The inquiry comes at a moment when severe weather is increasing risk.`\
+https://nytimes.com/2024/03/08/business/homeowners-insurance-state-regulators.html
+
+**How to Survive Daylight Saving Time**\
+`A few tips can help you make the adjustment.`\
+https://nytimes.com/interactive/2024/03/08/smarter-living/wirecutter/survive-daylight-saving-2024.html
+
 **Oscars Quiz: Test Your Movie Knowledge**\
 `The Oscars are Sunday. It’s been a busy awards season filled with Barbies and biopics. Now that we’re nearing the end, let’s see how much you know.`\
 https://nytimes.com/2024/03/08/movies/oscars-quiz-test-your-movie-knowledge.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/08/magazine/guys-only-night-ethics.html
 **Flau’jae and Wyclef Jean Are Rapping About Personal Finance. Good.**\
 `Culture, including music and social media, can be an important medium for financial education.`\
 https://nytimes.com/2024/03/08/opinion/personal-finance-flaujae-wyclef.html
-
-**Judge John Hodgman on the Gullibility Test**\
-`Should a husband be allowed to spout fake “facts”?`\
-https://nytimes.com/2024/03/08/magazine/judge-john-hodgman-on-the-gullibility-test.html
-
-**Apple Reverses Course and Allows Epic Games to Start Competing App Store**\
-`After an inquiry by European regulators, Epic Games said Apple would allow it to access the software tools necessary to develop a game store.`\
-https://nytimes.com/2024/03/08/technology/apple-epic-games-app-store.html
 
