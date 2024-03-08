@@ -1,3 +1,7 @@
+**What Weight Did Biden’s Words Carry?**\
+`Readers assess the State of the Union address. Also: Trump trauma; National Guard in the subway; unionized college basketball.`\
+https://nytimes.com/2024/03/08/opinion/letters/biden-state-of-union-speech.html
+
 **Activists Deface Portrait of Balfour, Who Supported Jewish Homeland**\
 `A pro-Palestinian group slashed and spray-painted a century-old portrait of the author of the Balfour Declaration at the University of Cambridge in England.`\
 https://nytimes.com/2024/03/08/arts/design/balfour-declaration-portrait-slashed.html

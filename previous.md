@@ -1,3 +1,7 @@
+**What Weight Did Biden’s Words Carry?**\
+`Readers assess the State of the Union address. Also: Trump trauma; National Guard in the subway; unionized college basketball.`\
+https://nytimes.com/2024/03/08/opinion/letters/biden-state-of-union-speech.html
+
 **Activists Deface Portrait of Balfour, Who Supported Jewish Homeland**\
 `A pro-Palestinian group slashed and spray-painted a century-old portrait of the author of the Balfour Declaration at the University of Cambridge in England.`\
 https://nytimes.com/2024/03/08/arts/design/balfour-declaration-portrait-slashed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/us/covid-pandemic-callout.html
 **Five International Movies to Stream Now**\
 `This month’s picks include a coming-of-age story set in Quebec, an observational Tunisian drama, an erotic French movie about a strip club and more.`\
 https://nytimes.com/2024/03/08/movies/international-movies-streaming.html
-
-**Trump Ally and Daughter-in-Law Officially Take Over R.N.C. Leadership**\
-`With the installation of Lara Trump and Michael Whatley, Donald Trump tightened his already firm grip on the party apparatus.`\
-https://nytimes.com/2024/03/08/us/politics/trump-rnc-lara-michael-whatley.html
 
