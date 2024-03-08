@@ -1,3 +1,11 @@
+**From ‘Dune’ to Decadence (and Back)**\
+`What the new ‘Dune’ sequel says about the state of our world — and the movie business.`\
+https://nytimes.com/2024/03/08/opinion/dune-movies.html
+
+**The Crisis in Haiti, in Photos**\
+`A photographic narrative of the growing upheaval.`\
+https://nytimes.com/2024/03/08/world/americas/haiti-violence-photos.html
+
 **Kamasi Washington’s Ecstatic Return, and 9 More New Songs**\
 `Hear tracks by 4batz featuring Drake, Salt Cathedral, Swamp Dogg and others.`\
 https://nytimes.com/2024/03/08/arts/music/playlist-kamasi-washington-drake-4batz.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/08/us/politics/trump-rnc-lara-michael-whatley.html
 **Iran’s 2022 Protest Crackdown Included Killings, Torture and Rape, U.N. Finds**\
 `A fact-finding mission looking into the demonstrations that followed the death of Mahsa Amini found brutality and rejected Iran’s version of Ms. Amini’s death.`\
 https://nytimes.com/2024/03/08/world/middleeast/iran-protest-mahsa-amini-un-report.html
-
-**Leave Kate Middleton Alone!**\
-`She has a right to keep her health issues private.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/kate-middleton-disappearance
-
-**The Functional Dysfunctional Congress**\
-`Lawmakers have found a messy bipartisan way to pass spending bills, though the final test later this month promises to be much more challenging.`\
-https://nytimes.com/2024/03/08/us/politics/congress-dysfunction-spending-bills.html
 
