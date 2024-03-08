@@ -1,3 +1,11 @@
+**Battling Dress Codes at the State of the Union**\
+`Democratic women in suffragist white, Marjorie Taylor Greene in MAGA red — there was messaging mayhem on the congressional floor.`\
+https://nytimes.com/2024/03/08/style/women-white-laken-riley-pins-state-of-the-union.html
+
+**Several nations say they will participate in a sea route for aid to Gaza.**\
+`By Monika Pronczuk and Aaron Boxerman`\
+https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/britain-and-the-eu-say-they-will-participate-in-a-sea-route-for-aid-to-gaza
+
 **“You know, there are 1,000 billionaires in America. You know what the average federal tax is for these billionaires? They are making great sacrifices: 8.2 percent. That’s far less than the vast majority of Americans’ pay.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/03/08/us/sotu-fact-check/you-know-there-are-1000-billionaires-in-america-you-know-what-the-average-federal-tax-is-for-these-billionaires-they-are-making-
