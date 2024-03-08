@@ -1,3 +1,7 @@
+**Theresa May, Former U.K. Prime Minister, Won’t Stand in Next Election**\
+`The veteran Conservative Party lawmaker, whose time as leader was plagued by Brexit turmoil, said she would step down after 27 years in Parliament.`\
+https://nytimes.com/2024/03/08/world/europe/uk-theresa-may.html
+
 **Britain and the E.U. say they will participate in a sea route for aid to Gaza.**\
 `By Monika Pronczuk and Aaron Boxerman`\
 https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/britain-and-the-eu-say-they-will-participate-in-a-sea-route-for-aid-to-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009350404/alabama-senator-gop-respon
 **Joe Biden: The Eras Tour**\
 `What we think is a question of age may be a matter of style.`\
 https://nytimes.com/2024/03/08/books/review/joe-biden-age-style.html
-
-**The Alt-Rock Legend Kim Gordon Has a New Album**\
-`And her music is as cool and experimental as ever.`\
-https://nytimes.com/2024/03/08/podcasts/the-alt-rock-legend-kim-gordon-has-a-new-album.html
 
