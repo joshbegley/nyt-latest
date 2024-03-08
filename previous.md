@@ -1,3 +1,11 @@
+**Review: Welcome to ‘Illinoise,’ Land of Love, Grief and Zombies**\
+`Sufjan Stevens’s 2005 concept album has become an unlikely and unforgettable dance-musical hybrid, directed and choreographed by Justin Peck.`\
+https://nytimes.com/2024/03/07/theater/illinoise-review-sufjan-stevens-justin-pick.html
+
+**‘Imaginary’ Review: Bear Necessity**\
+`An imaginary friend causes real trouble in this creepy haunted-house picture.`\
+https://nytimes.com/2024/03/07/movies/imaginary-review.html
+
 **‘Shrinkflation’ is a popular talking point. Here’s how it works in practice.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/shrinkflation-is-a-popular-talking-point-heres-how-it-works-in-practice
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/is-there
 **Do You Have to Let the National Guard Search Your Bag on the Subway?**\
 `Gov. Kathy Hochul would not say how long she planned to keep hundreds of soldiers and state police officers in the subway system.`\
 https://nytimes.com/2024/03/07/nyregion/national-guard-subway-bag-checks.html
-
-**The Capitol is abuzz ahead of the president’s speech.**\
-`By Marisa Schwartz Taylor`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/the-capitol-is-abuzz-ahead-of-the-presidents-speech
-
-**Female Genital Cutting Continues to Increase Worldwide**\
-`Campaigns in some countries have reduced the practice, but it remains widespread in those with high rates of population growth.`\
-https://nytimes.com/2024/03/07/health/female-genital-cutting.html
 
