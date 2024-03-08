@@ -1,3 +1,7 @@
+**The Apocalypse in Katie Britt’s Kitchen**\
+`The senator’s performance was completely over the top, just the way her admirers like it.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/katie-britt-kitchen-response
+
 **Biden Targets Big Business and Billionaires**\
 `The president used his State of the Union address to plug his economic record and, and announce a policy wish list that involves raising taxes on multinationals and the wealthy.`\
 https://nytimes.com/2024/03/08/business/dealbook/biden-sotu-big-business-billionaires.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/health/alzheimers-drug-donanemab.html
 **President Biden’s Economic Optimism**\
 `The economy has rebounded. But to win re-election, Biden must help voters believe the good news.`\
 https://nytimes.com/2024/03/08/briefing/state-of-the-union-biden-economy.html
-
-**Theresa May, Former U.K. Prime Minister, Won’t Stand in Next Election**\
-`The veteran Conservative Party lawmaker, whose time as leader was plagued by Brexit turmoil, said she would step down after 27 years in Parliament.`\
-https://nytimes.com/2024/03/08/world/europe/uk-theresa-may.html
 
