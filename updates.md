@@ -1,3 +1,7 @@
+**To Make ‘The Notebook’ a Musical, She Wove in Memories of Her Parents**\
+`Family history is “wrapped up in these songs,” said the singer-songwriter Ingrid Michaelson, who is making the leap to Broadway with an adaptation of the popular romance novel.`\
+https://nytimes.com/2024/03/08/theater/ingrid-michaelson-the-notebook-broadway.html
+
 **Who’s Afraid of the Big Black Suit?**\
 `As so many Oscars hopefuls do, it is time to make friends with the tuxedo.`\
 https://nytimes.com/2024/03/08/style/oscars-tuxedos-black-tie.html

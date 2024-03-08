@@ -1,3 +1,7 @@
+**To Make ‘The Notebook’ a Musical, She Wove in Memories of Her Parents**\
+`Family history is “wrapped up in these songs,” said the singer-songwriter Ingrid Michaelson, who is making the leap to Broadway with an adaptation of the popular romance novel.`\
+https://nytimes.com/2024/03/08/theater/ingrid-michaelson-the-notebook-broadway.html
+
 **Who’s Afraid of the Big Black Suit?**\
 `As so many Oscars hopefuls do, it is time to make friends with the tuxedo.`\
 https://nytimes.com/2024/03/08/style/oscars-tuxedos-black-tie.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/05/opinion/thepoint/trump-policies
 **In Two Speeches, Trump and Biden Offer Starkly Different Views of the Country**\
 `President Biden’s State of the Union address and former President Donald Trump’s victory speech on Super Tuesday conjured diametrically opposed visions of America’s past, present and future.`\
 https://nytimes.com/2024/03/08/us/politics/trump-biden-speeches.html
-
-**A Hearty Irish Bread Absolutely Anyone Can Make**\
-`This brown bread recipe, a staple of the Ballymaloe Cookery School in Cork, Ireland, is as satisfying and foolproof as they come.`\
-https://nytimes.com/2024/03/08/dining/irish-brown-bread.html
 
