@@ -1,3 +1,7 @@
+**With Immigration a top concern of voters, Biden will make an appeal for the passage of a border bill.**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/with-immigration-a-top-concern-of-voters-biden-will-make-an-appeal-for-the-passage-of-a-border-bill
+
 **A Subway Plan Aimed to Ease Fears. The Blowback Was Immediate.**\
 `Gov. Kathy Hochul’s subway safety plan was meant to show how Democrats can take action on crime, but the response illustrated how the issue divides her party.`\
 https://nytimes.com/2024/03/07/nyregion/hochul-police-subway-search.html
