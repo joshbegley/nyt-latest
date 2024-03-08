@@ -26,7 +26,7 @@ https://nytimes.com/2024/03/07/opinion/trump-biden-fatigue.html
 `Banking groups and Texas business associations asked a federal court to abolish a new federal rule that would cap most late fees at $8.`\
 https://nytimes.com/2024/03/07/business/credit-cards-fee-cfpb-sued.html
 
-**With Immigration a top concern of voters, Biden will make an appeal for the passage of a border bill.**\
+**With immigration a top concern of voters, Biden will make an appeal for the passage of a border bill.**\
 `By Zolan Kanno-Youngs`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/with-immigration-a-top-concern-of-voters-biden-will-make-an-appeal-for-the-passage-of-a-border-bill
 
