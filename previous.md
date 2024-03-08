@@ -1,3 +1,27 @@
+**What the ‘Rust’ Trial Says About the Case Against Alec Baldwin**\
+`The trial of the “Rust” armorer offered a preview of the case against Mr. Baldwin, who is set to stand trial on an involuntary manslaughter charge in July.`\
+https://nytimes.com/2024/03/08/arts/rust-shooting-alec-baldwin.html
+
+**Dozens of Top Scientists Sign Effort to Prevent A.I. Bioweapons**\
+`An agreement by more than 90 said, however, that artificial intelligence’s benefit to the field of biology would exceed any potential harm.`\
+https://nytimes.com/2024/03/08/technology/biologists-ai-agreement-bioweapons.html
+
+**Car Deals Are Easier to Find but Lenders Are Tightening Their Terms**\
+`It has become harder for some borrowers to get affordable car loans as banks and dealerships face a rising number of delinquencies.`\
+https://nytimes.com/2024/03/08/your-money/car-loans-rates.html
+
+**An Instagram-Ready Immersive Museum Uses Braille. But Is It Accessible?**\
+`Roy Nachum designed the spectacle-filled Mercer Labs, which he touts as inclusive. But some advocates for blind people say his use of Braille can feel exploitative.`\
+https://nytimes.com/2024/03/08/arts/design/mercer-labs-roy-nachum-braille.html
+
+**Has San Francisco Lost Its Liberal Soul?**\
+`In a city known as a progressive bastion, voters resoundingly passed two conservative-leaning ballot measures this week, on police authority and drug screening.`\
+https://nytimes.com/2024/03/08/us/san-francisco-progressive-ballot-measures.html
+
+**Israeli forces ‘fired precisely’ at Gazans during chaos near an aid convoy, the military says in an initial review.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/israeli-forces-fired-precisely-at-gazans-during-chaos-near-an-aid-convoy-the-military-says-in-an-initial-review
+
 **The jobs report comes as the Fed considers when to cut interest rates.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/the-jobs-report-comes-as-the-fed-considers-when-to-cut-interest-rates
@@ -13,28 +37,4 @@ https://nytimes.com/2024/03/08/business/dealbook/biden-sotu-big-business-billion
 **Battling Dress Codes at the State of the Union**\
 `Democratic women in suffragist white, Marjorie Taylor Greene in MAGA red — there was messaging mayhem on the congressional floor.`\
 https://nytimes.com/2024/03/08/style/women-white-laken-riley-pins-state-of-the-union.html
-
-**“You know, there are 1,000 billionaires in America. You know what the average federal tax is for these billionaires? They are making great sacrifices: 8.2 percent. That’s far less than the vast majority of Americans’ pay.”**\
-`By Angelo Fichera`\
-https://nytimes.com/live/2024/03/08/us/sotu-fact-check/you-know-there-are-1000-billionaires-in-america-you-know-what-the-average-federal-tax-is-for-these-billionaires-they-are-making-
-
-**How Would You Describe the State of Our Union?**\
-`President Biden says it’s “strong and getting stronger.” Do you agree? How do you think the country is doing right now?`\
-https://nytimes.com/2024/03/08/learning/how-would-you-describe-the-state-of-our-union.html
-
-**A.L.S. Drug Relyvrio Fails Clinical Trial and May Be Withdrawn From the Market**\
-`Leaders of the treatment’s manufacturer, Amylyx, said they would announce their plans for it within eight weeks.`\
-https://nytimes.com/2024/03/08/health/als-drug-relyvrio.html
-
-**5 Children’s Movies to Stream Now**\
-`This month’s picks include a space adventure from Richard Linklater and two critically acclaimed tales from Pixar.`\
-https://nytimes.com/2024/03/08/movies/kids-movies-streaming.html
-
-**The economy is rebounding, but Americans remain gloomy.**\
-`By Ben Casselman and Lydia DePillis`\
-https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/the-economy-is-rebounding-but-americans-remain-gloomy
-
-**F.D.A. Delays Action on Closely Watched Alzheimer’s Drug**\
-`Eli Lilly’s donanemab was expected to be approved this month, but the agency has decided to convene a panel of independent experts to evaluate the drug’s safety and efficacy.`\
-https://nytimes.com/2024/03/08/health/alzheimers-drug-donanemab.html
 
