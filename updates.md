@@ -1,3 +1,7 @@
+**Progressives hope to use the occasion to express anger and pressure Biden on Gaza.**\
+`At least one member of Congress invited a Palestinian as their guest inside the House chamber, and pro-Palestinian groups planned a demonstration outside the White House.`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/progressives-hope-to-use-the-occasion-to-express-anger-and-pressure-biden-on-gaza
+
 **Grenada Prison Escapees Are Charged With Murder of American Couple**\
 `The couple, Ralph Hendry and Kathy Brandel, went missing while sailing off the coast of Grenada.`\
 https://nytimes.com/2024/03/07/world/americas/couple-boat-grenada-murder.html

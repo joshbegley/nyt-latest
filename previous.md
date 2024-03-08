@@ -1,3 +1,7 @@
+**Progressives hope to use the occasion to express anger and pressure Biden on Gaza.**\
+`At least one member of Congress invited a Palestinian as their guest inside the House chamber, and pro-Palestinian groups planned a demonstration outside the White House.`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/progressives-hope-to-use-the-occasion-to-express-anger-and-pressure-biden-on-gaza
+
 **Review: Welcome to ‘Illinoise,’ Land of Love, Grief and Zombies**\
 `Sufjan Stevens’s 2005 concept album has become an unlikely and unforgettable dance-musical hybrid, directed and choreographed by Justin Peck.`\
 https://nytimes.com/2024/03/07/theater/illinoise-review-sufjan-stevens-justin-pick.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-wi
 **Is there an ‘L.B.J. Moment’ in store? Don’t count on it.**\
 `Fifty-six years ago, Lyndon B. Johnson stunned the nation with a secret ending to a speech to the nation announcing that he would`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/is-there-an-lbj-moment-in-store-dont-count-on-it
-
-**Do You Have to Let the National Guard Search Your Bag on the Subway?**\
-`Gov. Kathy Hochul would not say how long she planned to keep hundreds of soldiers and state police officers in the subway system.`\
-https://nytimes.com/2024/03/07/nyregion/national-guard-subway-bag-checks.html
 
