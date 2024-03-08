@@ -1,3 +1,11 @@
+**9 Musicians Who Play a Role in This Year’s Oscars**\
+`Hear songs by Dua Lipa, Jarvis Cocker and yes, Bradley Cooper.`\
+https://nytimes.com/2024/03/08/arts/music/amplifier-newsletter-musicians-oscars.html
+
+**Why Trump Gets Away With All Those Horrible Things**\
+`Voters don’t care about moral affirmation; they want policies to improve their lives.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/trump-policies
+
 **In Two Speeches, Trump and Biden Offer Starkly Different Views of the Country**\
 `President Biden’s State of the Union address and former President Donald Trump’s victory speech on Super Tuesday conjured diametrically opposed visions of America’s past, present and future.`\
 https://nytimes.com/2024/03/08/us/politics/trump-biden-speeches.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/08/us/politics/trump-instagram-biden-state-of-union.
 **David Bordwell, Scholar Who Demystified the Art of Film, Dies at 76**\
 `Roger Ebert called him “our best writer on the cinema.” His scholarship focused on how movies work.`\
 https://nytimes.com/2024/03/08/movies/david-bordwell-dead.html
-
-**E.U. Will Participate in Maritime Corridor to Aid Gaza**\
-`The European Union will join the U.S., the United Arab Emirates and other partner countries in launching a sea corridor to deliver humanitarian aid to Gaza.`\
-https://nytimes.com/video/world/europe/100000009351002/maritime-corridor-gaza.html
-
-**One Family’s Long Road Out of Gaza**\
-`Grieving from afar but still dreaming of peace.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/gaza-refugees
 

@@ -1,3 +1,11 @@
+**9 Musicians Who Play a Role in This Year’s Oscars**\
+`Hear songs by Dua Lipa, Jarvis Cocker and yes, Bradley Cooper.`\
+https://nytimes.com/2024/03/08/arts/music/amplifier-newsletter-musicians-oscars.html
+
+**Why Trump Gets Away With All Those Horrible Things**\
+`Voters don’t care about moral affirmation; they want policies to improve their lives.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/trump-policies
+
 **Gaza Authorities Say Accident Involving Airdropped Aid Killed 5**\
 `If confirmed, the deaths would underscore the dangers and difficulties of relying on airdrops to get food to people facing severe hunger in northern Gaza after five months of war.`\
 https://nytimes.com/2024/03/08/world/middleeast/gaza-deaths-airdrop-aid.html
