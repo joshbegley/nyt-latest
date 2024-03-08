@@ -1,6 +1,6 @@
 **Miguel Cardona is the designated survivor during the State of the Union.**\
 `The tradition ensures that a top member of the government would be able to step up in case of any catastrophe.`\
-https://nytimes.com/2024/03/07/us/politics/miguel-cardona-is-the-designated-survivor-during-the-state-of-the-union.html
+https://nytimes.com/2024/03/07/us/politics/miguel-cardona-designated-survivor-state-of-union.html
 
 **An Expulsion Couldn’t Keep George Santos From Attending the State of the Union**\
 `The former representative from New York put to use the lifetime floor privileges conferred on former members of the House — even the ones who are removed from office.`\
