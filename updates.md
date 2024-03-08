@@ -1,3 +1,11 @@
+**Review: Igor Levit Wields Orchestral Power With Just a Piano**\
+`For his latest Carnegie Hall appearance, Levit played solo piano transcriptions of symphonic works by Mahler and Beethoven.`\
+https://nytimes.com/2024/03/08/arts/music/igor-levit-carnegie-hall-review.html
+
+**This Man Turned the Worst Job in College Basketball Into a Slam Dunk**\
+`South Carolina Salkehatchie had no budget, players or running water in the locker room when Matt Lynch arrived. One season in, the first publicly gay head coach is figuring out how to win, on the court and off.`\
+https://nytimes.com/2024/03/08/us/matt-lynch-south-carolina-salkehatchie.html
+
 **Review: Two Electric Debuts at the New York Philharmonic**\
 `An exciting program featured the conductor Elim Chan and the cellist Sol Gabetta in a pairing of music by Martinu and Rimsky-Korsakov.`\
 https://nytimes.com/2024/03/08/arts/music/review-elim-chan-sol-gabetta-new-york-philharmonic.html
