@@ -1,40 +1,40 @@
-**Biden urges Israel to ‘do its part’ to increase aid to Gaza.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/biden-urges-israel-to-do-its-part-to-increase-aid-to-gaza
+**At City Ballet, 2 Sparkling Premieres and Many Moments to Remember**\
+`New works, by Alexei Ratmansky and Tiler Peck, and revivals brought solace and sadness, beauty and humor — and full-out, thrilling dancing this winter season.`\
+https://nytimes.com/2024/03/08/arts/dance/new-york-city-ballet-winter-season-solitude.html
 
-**08mideast-crisis**\
-`Biden Defends U.S. Efforts to Ease Suffering in Gaza`\
-https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news
+**Switching the Clocks Twice a Year Isn’t Just Annoying. It’s Deadly.**\
+`Standard time leads to far more vehicles colliding with deer.`\
+https://nytimes.com/2024/03/08/opinion/daylight-saving-time-change-circadian-rhythms.html
 
-**‘The Late Show’ Goes Live to Recap the State of the Union**\
-`“Depending on what happens in November, next year might just be a Kid Rock concert and an immigrant catapult,” Stephen Colbert joked.`\
-https://nytimes.com/2024/03/08/arts/television/the-late-show-live-sotu.html
+**Good News and Bad News for Astronomers’ Biggest Dream**\
+`The National Science Foundation takes a step (just one) toward an “extremely large telescope.”`\
+https://nytimes.com/2024/03/08/science/astronomy-extremely-large-telescope.html
 
-**How New York’s Schoolchildren Got Their French Toast Sticks Back**\
-`Mayor Eric Adams’s administration reversed course on school menu cuts after an uproar among students over the loss of popular items.`\
-https://nytimes.com/2024/03/08/nyregion/nyc-school-cafeteria-food-cuts-reversed-adams.html
+**Melissa Benoist Hits the Campaign Trail in ‘The Girls on the Bus’**\
+`After six years on “Supergirl,” the actor and producer took a crash course in political journalism to prep for a new Max series.`\
+https://nytimes.com/2024/03/08/arts/television/the-girls-on-the-bus-melissa-benoist.html
 
-**Playing Dominoes**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2024/03/08/learning/playing-dominoes.html
+**The jobs report comes as the Fed considers the timing of interest rate cuts.**\
+`The Federal Reserve is primarily watching progress on inflation as it contemplates its next steps, but it is also keeping an eye on the labor market.`\
+https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/jobs-report-fed-wages
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/08/crosswords/connections-companion.html
+**A French Star Brings Her Career-Saving Play to New York**\
+`After roles dried up, Dominique Blanc reclaimed her artistic agency by taking a one-woman play on the road. Now she’s making a rare appearance in Manhattan.`\
+https://nytimes.com/2024/03/08/theater/dominique-blanc.html
 
-**$1 Million Homes in London**\
-`A cottage in Nunhead Green, a two-bedroom apartment in Wapping and a three-bedroom duplex in Kingsland Basin.`\
-https://nytimes.com/2024/03/08/realestate/london-1-million-dollar-homes.html
+**No More No. 2 Pencils: The SAT Goes Fully Digital**\
+`The new format cuts nearly an hour out of the exam and has shorter reading passages.`\
+https://nytimes.com/2024/03/08/us/sat-online-digital-test-college.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/03/08/crosswords/spelling-bee-forum.html
+**08jobs-report**\
+`U.S. Job Growth Expected to Cool`\
+https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/08/crosswords/wordle-review.html
+**When the Oscars Were Held Against the Backdrop of Another Divisive War**\
+`Three days before the 2003 ceremony, the United States invaded Iraq. Despite pleas to delay the awards, the academy went ahead with what became a politics-suffused evening.`\
+https://nytimes.com/2024/03/08/movies/oscars-iraq-2003.html
 
-**Trump’s Man at the R.N.C. Will Face Pressure to Satisfy His Election Lies**\
-`The former president believes his pick to lead the Republican National Committee, Michael Whatley, is more in sync with his views about voter fraud than Ronna McDaniel, who steps aside Friday.`\
-https://nytimes.com/2024/03/08/us/politics/rnc-trump-whatley.html
+**The Oscars Now Have D.E.I. Rules, but Some Say It’s Just a Performance**\
+`How “Oppenheimer,” a movie about the men who developed the atomic bomb, met the new standards.`\
+https://nytimes.com/2024/03/08/us/oscars-oppenheimer-dei-diversity.html
 
