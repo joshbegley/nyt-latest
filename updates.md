@@ -1,3 +1,11 @@
+**Biden urges Israel to ‘do its part’ to increase aid to Gaza.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/biden-urges-israel-to-do-its-part-to-increase-aid-to-gaza
+
+**08mideast-crisis**\
+`Biden Defends U.S. Efforts to Ease Suffering in Gaza`\
+https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news
+
 **‘The Late Show’ Goes Live to Recap the State of the Union**\
 `“Depending on what happens in November, next year might just be a Kid Rock concert and an immigrant catapult,” Stephen Colbert joked.`\
 https://nytimes.com/2024/03/08/arts/television/the-late-show-live-sotu.html
