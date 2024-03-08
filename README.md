@@ -1,3 +1,7 @@
+**Apple Reverses Course and Allows Epic Games to Start Competing App Store**\
+`After an inquiry by European regulators, Epic Games said Apple would allow it to access the software tools necessary to develop a game store.`\
+https://nytimes.com/2024/03/08/technology/apple-epic-games-app-store.html
+
 **Spurned, Slighted, Rejected: 25 Oscar Snubs We’ll Never Get Over**\
 `Greta Gerwig, you’re not alone. These artists and films memorably — outrageously in our view — got the brushoff from the academy. We’re still in disbelief.`\
 https://nytimes.com/2024/03/08/movies/oscar-snubs-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/world/middleeast/gaza-deaths-airdrop-aid.html
 **Ex-Honduras President Found Guilty in Drug Trafficking Trial**\
 `Juan Orlando Hernández had been accused of conspiring to import cocaine into the United States and working with notorious drug traffickers like El Chapo.`\
 https://nytimes.com/2024/03/08/nyregion/juan-orlando-hernandez-honduras-guilty-verdict.html
-
-**Trump’s State of the Union Response: Social Media Glitches and Mocking Filters**\
-`Outages on Donald Trump’s platform, Truth Social, interrupted the barrage of derogatory posts that served as his retort to President Biden’s remarks.`\
-https://nytimes.com/2024/03/08/us/politics/trump-instagram-biden-state-of-union.html
 
