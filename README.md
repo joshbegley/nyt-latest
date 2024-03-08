@@ -1,3 +1,7 @@
+**A ‘Tipping Point’ for News in New Zealand**\
+`“There was no single trigger that caused this,” James Gibbons, a regional executive at Warner Bros Discovery, said.`\
+https://nytimes.com/2024/03/07/world/australia/new-zealand-news-media.html
+
 **4 Takeaways From the State of the Union**\
 `Verbal swings at Donald Trump, though not by name. A spirited back-and-forth with G.O.P. lawmakers. And a loud and feisty delivery.`\
 https://nytimes.com/2024/03/07/us/politics/state-of-the-union-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/crosswords/variety-acrostic.html
 **Needle on a Thread**\
 `Jackson Matz makes his New York Times Crossword debut.`\
 https://nytimes.com/2024/03/07/crosswords/daily-puzzle-2024-03-08.html
-
-**“15 million new jobs in just three years — a record.”**\
-`By Angelo Fichera`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/15-million-new-jobs-in-just-three-years-a-record
 
