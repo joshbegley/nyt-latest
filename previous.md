@@ -1,3 +1,11 @@
+**5 Children’s Movies to Stream Now**\
+`This month’s picks include a space adventure from Richard Linklater and two critically acclaimed tales from Pixar.`\
+https://nytimes.com/2024/03/08/movies/kids-movies-streaming.html
+
+**The economy is rebounding, but Americans remain gloomy.**\
+`By Ben Casselman and Lydia DePillis`\
+https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/the-economy-is-rebounding-but-americans-remain-gloomy
+
 **F.D.A. Delays Action on Closely Watched Alzheimer’s Drug**\
 `Eli Lilly’s donanemab was expected to be approved this month, but the agency has decided to convene a panel of independent experts to evaluate the drug’s safety and efficacy.`\
 https://nytimes.com/2024/03/08/health/alzheimers-drug-donanemab.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/08/climate/biden-state-of-the-union-climate.html
 **California’s relatively high unemployment rate stands out.**\
 `Tech layoffs, fallout from Hollywood strikes and an uptick in rural joblessness helped drive the state’s unemployment rate to 5.1 percent in December.`\
 https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/californias-relatively-high-unemployment-rate-stands-out
-
-**What We Learned From Biden’s State of the Union**\
-`President Biden delivered a spirited speech, sparring at times with Republicans, and addressed concerns about his age.`\
-https://nytimes.com/video/us/politics/100000009347147/what-we-learned-from-bidens-state-of-the-union.html
-
-**Strong Winds Moved a Lake in Death Valley Two Miles**\
-`Powerful winds last week pushed Lake Manly, a temporary body of water, two miles from its original location in the national park.`\
-https://nytimes.com/2024/03/08/us/death-valley-lake-manly-wind.html
 

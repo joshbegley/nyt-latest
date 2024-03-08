@@ -1,3 +1,11 @@
+**5 Children’s Movies to Stream Now**\
+`This month’s picks include a space adventure from Richard Linklater and two critically acclaimed tales from Pixar.`\
+https://nytimes.com/2024/03/08/movies/kids-movies-streaming.html
+
+**The economy is rebounding, but Americans remain gloomy.**\
+`By Ben Casselman and Lydia DePillis`\
+https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/the-economy-is-rebounding-but-americans-remain-gloomy
+
 **F.D.A. Delays Action on Closely Watched Alzheimer’s Drug**\
 `Eli Lilly’s donanemab was expected to be approved this month, but the agency has decided to convene a panel of independent experts to evaluate the drug’s safety and efficacy.`\
 https://nytimes.com/2024/03/08/health/alzheimers-drug-donanemab.html

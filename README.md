@@ -1,3 +1,7 @@
+**A.L.S. Drug Relyvrio Fails Clinical Trial and May Be Withdrawn From the Market**\
+`Leaders of the treatment’s manufacturer, Amylyx, said they would announce their plans for it within eight weeks.`\
+https://nytimes.com/2024/03/08/health/als-drug-relyvrio.html
+
 **5 Children’s Movies to Stream Now**\
 `This month’s picks include a space adventure from Richard Linklater and two critically acclaimed tales from Pixar.`\
 https://nytimes.com/2024/03/08/movies/kids-movies-streaming.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/podcasts/the-daily/biden-state-of-the-union.html
 **Biden Vows to ‘Save the Planet From the Climate Crisis’**\
 `In his speech to Congress, the president spoke in sweeping terms about global warming, and contrasted his record with that of Donald Trump.`\
 https://nytimes.com/2024/03/08/climate/biden-state-of-the-union-climate.html
-
-**California’s relatively high unemployment rate stands out.**\
-`Tech layoffs, fallout from Hollywood strikes and an uptick in rural joblessness helped drive the state’s unemployment rate to 5.1 percent in December.`\
-https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/californias-relatively-high-unemployment-rate-stands-out
 
