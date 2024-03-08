@@ -1,3 +1,11 @@
+**Kamasi Washington’s Ecstatic Return, and 9 More New Songs**\
+`Hear tracks by 4batz featuring Drake, Salt Cathedral, Swamp Dogg and others.`\
+https://nytimes.com/2024/03/08/arts/music/playlist-kamasi-washington-drake-4batz.html
+
+**The Big Number: $1 Billion**\
+`New York Community Bank's new management team is working to reassure investors and regulators that a cash infusion will help it right itself.`\
+https://nytimes.com/interactive/2024/03/08/business/new-york-community-bank-losses-rescue.html
+
 **At TEFAF Art Fair, Museums Make Up for Shrinking Private Sales**\
 `Curators are looking for old art that can resonate with a new audience at the venerable event in the Netherlands.`\
 https://nytimes.com/2024/03/08/arts/design/tefaf-maastricht.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/05/opinion/thepoint/kate-middleton-disappearanc
 **The Functional Dysfunctional Congress**\
 `Lawmakers have found a messy bipartisan way to pass spending bills, though the final test later this month promises to be much more challenging.`\
 https://nytimes.com/2024/03/08/us/politics/congress-dysfunction-spending-bills.html
-
-**Review: Igor Levit Wields Orchestral Power With Just a Piano**\
-`For his latest Carnegie Hall appearance, Levit played solo piano transcriptions of symphonic works by Mahler and Beethoven.`\
-https://nytimes.com/2024/03/08/arts/music/igor-levit-carnegie-hall-review.html
-
-**This Man Turned the Worst Job in College Basketball Into a Slam Dunk**\
-`South Carolina Salkehatchie had no budget, players or running water in the locker room when Matt Lynch arrived. One season in, the first publicly gay head coach is figuring out how to win, on the court and off.`\
-https://nytimes.com/2024/03/08/us/matt-lynch-south-carolina-salkehatchie.html
 
