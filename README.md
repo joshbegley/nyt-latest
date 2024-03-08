@@ -1,3 +1,7 @@
+**Britain and the E.U. say they will participate in a sea route for aid to Gaza.**\
+`By Monika Pronczuk and Aaron Boxerman`\
+https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/britain-and-the-eu-say-they-will-participate-in-a-sea-route-for-aid-to-gaza
+
 **A Feisty State of the Union, and a Leadership Change at the R.N.C.**\
 `Plus, do the new Oscars diversity rules work?`\
 https://nytimes.com/2024/03/08/podcasts/biden-state-union-rnc-oscars.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/books/review/joe-biden-age-style.html
 **The Alt-Rock Legend Kim Gordon Has a New Album**\
 `And her music is as cool and experimental as ever.`\
 https://nytimes.com/2024/03/08/podcasts/the-alt-rock-legend-kim-gordon-has-a-new-album.html
-
-**Biden Portrays Next Phase of Economic Agenda as Middle-Class Lifeline**\
-`The president used his State of the Union speech to pitch tax increases for the rich, along with plans to cut costs and protect consumers.`\
-https://nytimes.com/2024/03/08/us/politics/biden-economic-agenda-middle-class-lifeline.html
 
