@@ -1,4 +1,4 @@
-**Democratic women keep up their tradition of wearing suffragist white.**\
+**Democratic Women Keep Up Their Tradition of Wearing Suffragist White**\
 `The show of solidarity at State of the Union addresses started during Donald Trump’s presidency.`\
 https://nytimes.com/2024/03/07/us/politics/white-suits-women-state-of-union.html
 
