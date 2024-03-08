@@ -1,3 +1,11 @@
+**We Need to Talk About This Republican Candidate’s Antisemitism**\
+`Mark Robinson has a history of anti-Jewish conspiracy theories. His party doesn’t care.`\
+https://nytimes.com/2024/03/07/opinion/mark-robinson-antisemitism.html
+
+**Biden will highlight his efforts to lower prescription drug costs.**\
+`A White House official said that the president would propose increasing the number of drugs subject to price negotiations with Medicare.`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-will-highlight-his-efforts-to-lower-prescription-drug-costs
+
 **Is there an ‘L.B.J. Moment’ in store? Don’t count on it.**\
 `Fifty-six years ago, Lyndon B. Johnson stunned the nation with a secret ending to a speech to the nation announcing that he would`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/is-there-an-lbj-moment-in-store-dont-count-on-it
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/07/opinion/trump-biden-fatigue.html
 **Trade Groups Sue to Block Credit Card Late Fee Limit**\
 `Banking groups and Texas business associations asked a federal court to abolish a new federal rule that would cap most late fees at $8.`\
 https://nytimes.com/2024/03/07/business/credit-cards-fee-cfpb-sued.html
-
-**With immigration a top concern of voters, Biden will make an appeal for the passage of a border bill.**\
-`By Zolan Kanno-Youngs`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/with-immigration-a-top-concern-of-voters-biden-will-make-an-appeal-for-the-passage-of-a-border-bill
-
-**A Subway Plan Aimed to Ease Fears. The Blowback Was Immediate.**\
-`Gov. Kathy Hochul’s subway safety plan was meant to show how Democrats can take action on crime, but the response illustrated how the issue divides her party.`\
-https://nytimes.com/2024/03/07/nyregion/hochul-police-subway-search.html
 

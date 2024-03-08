@@ -1,3 +1,11 @@
+**We Need to Talk About This Republican Candidate’s Antisemitism**\
+`Mark Robinson has a history of anti-Jewish conspiracy theories. His party doesn’t care.`\
+https://nytimes.com/2024/03/07/opinion/mark-robinson-antisemitism.html
+
+**Biden will highlight his efforts to lower prescription drug costs.**\
+`A White House official said that the president would propose increasing the number of drugs subject to price negotiations with Medicare.`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-will-highlight-his-efforts-to-lower-prescription-drug-costs
+
 **Is there an ‘L.B.J. Moment’ in store? Don’t count on it.**\
 `Fifty-six years ago, Lyndon B. Johnson stunned the nation with a secret ending to a speech to the nation announcing that he would`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/is-there-an-lbj-moment-in-store-dont-count-on-it
