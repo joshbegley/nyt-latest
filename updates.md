@@ -1,3 +1,11 @@
+**From ‘Dune’ to Decadence (and Back)**\
+`What the new ‘Dune’ sequel says about the state of our world — and the movie business.`\
+https://nytimes.com/2024/03/08/opinion/dune-movies.html
+
+**The Crisis in Haiti, in Photos**\
+`A photographic narrative of the growing upheaval.`\
+https://nytimes.com/2024/03/08/world/americas/haiti-violence-photos.html
+
 **Kamasi Washington’s Ecstatic Return, and 9 More New Songs**\
 `Hear tracks by 4batz featuring Drake, Salt Cathedral, Swamp Dogg and others.`\
 https://nytimes.com/2024/03/08/arts/music/playlist-kamasi-washington-drake-4batz.html
