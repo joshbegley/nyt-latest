@@ -1,3 +1,15 @@
+**Variety: Acrostic**\
+`David Balton and Jane Stewart’s puzzle is about an incredible history.`\
+https://nytimes.com/2024/03/07/crosswords/variety-acrostic.html
+
+**Needle on a Thread**\
+`Jackson Matz makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/03/07/crosswords/daily-puzzle-2024-03-08.html
+
+**“15 million new jobs in just three years — a record.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/15-million-new-jobs-in-just-three-years-a-record
+
 **“In fact, my policies have attracted $650 billion in private sector investment, in clean energy, advanced manufacturing, creating tens of thousands of jobs here in America!”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/in-fact-my-policies-have-attracted-650-billion-in-private-sector-investment-in-clean-energy-advanced-manufacturing-creating-tens
@@ -26,16 +38,4 @@ https://nytimes.com/2024/03/07/us/lewiston-maine-shooting-hearing.html
 **Ronny Jackson, Former White House Physician, Was Demoted by the Navy**\
 `Now a Republican member of the House and a Trump ally, his previously unpublicized demotion from rear admiral to captain came after a Pentagon investigation found misconduct on the job.`\
 https://nytimes.com/2024/03/07/us/politics/ronny-jackson-demoted-navy.html
-
-**Biden will put abortion center-stage in his address.**\
-`By Erica L. Green and Lisa Lerer`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-will-put-abortion-center-stage-in-his-address
-
-**Public Workers Joined Ring That Stole IDs of Homeless People, D.A. Says**\
-`Eighteen people, including nine New York City public employees, were charged with joining a conspiracy that made ghost guns and defrauded a state Covid relief program.`\
-https://nytimes.com/2024/03/07/nyregion/nyc-investigation-da-employees.html
-
-**Two Men Charged in Deadly Boat Accident in Hudson River**\
-`A 47-year-old woman and a 7-year-old boy drowned after the private boat capsized in July 2022. Prosecutors said the boat was being operated recklessly.`\
-https://nytimes.com/2024/03/07/nyregion/boat-capsize-hudson-river-charges.html
 

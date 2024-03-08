@@ -1,3 +1,15 @@
+**Variety: Acrostic**\
+`David Balton and Jane Stewart’s puzzle is about an incredible history.`\
+https://nytimes.com/2024/03/07/crosswords/variety-acrostic.html
+
+**Needle on a Thread**\
+`Jackson Matz makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/03/07/crosswords/daily-puzzle-2024-03-08.html
+
+**“15 million new jobs in just three years — a record.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/15-million-new-jobs-in-just-three-years-a-record
+
 **“In fact, my policies have attracted $650 billion in private sector investment, in clean energy, advanced manufacturing, creating tens of thousands of jobs here in America!”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/in-fact-my-policies-have-attracted-650-billion-in-private-sector-investment-in-clean-energy-advanced-manufacturing-creating-tens
