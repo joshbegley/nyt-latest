@@ -1,3 +1,7 @@
+**‘Shrinkflation’ is a popular talking point. Here’s how it works in practice.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/shrinkflation-is-a-popular-talking-point-heres-how-it-works-in-practice
+
 **Brian Jack, a Trump Adviser, Will Run for Congress in Georgia**\
 `Mr. Jack, the final White House political director under President Donald J. Trump, will run for an open seat in a deeply conservative district with Mr. Trump’s backing.`\
 https://nytimes.com/2024/03/07/us/politics/brian-jack-trump-congress-georgia.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/the-capi
 **Female Genital Cutting Continues to Increase Worldwide**\
 `Campaigns in some countries have reduced the practice, but it remains widespread in those with high rates of population growth.`\
 https://nytimes.com/2024/03/07/health/female-genital-cutting.html
-
-**Reminder: Trump’s Last Year in Office Was a National Nightmare**\
-`And he made the nightmare much worse.`\
-https://nytimes.com/2024/03/07/opinion/trump-pandemic-president.html
 
