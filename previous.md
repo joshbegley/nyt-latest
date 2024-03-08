@@ -1,3 +1,7 @@
+**Miguel Cardona is the designated survivor during the State of the Union.**\
+`The tradition ensures that a top member of the government would be able to step up in case of any catastrophe.`\
+https://nytimes.com/2024/03/07/us/politics/miguel-cardona-designated-survivor-state-of-union.html
+
 **An Expulsion Couldn’t Keep George Santos From Attending the State of the Union**\
 `The former representative from New York put to use the lifetime floor privileges conferred on former members of the House — even the ones who are removed from office.`\
 https://nytimes.com/2024/03/07/us/politics/george-santos-expelled-sotu.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/03/07/nyregion/boat-capsize-hudson-river-charges.html
 **Progressives hope to use the occasion to express anger and pressure Biden on Gaza.**\
 `At least one member of Congress invited a Palestinian as their guest inside the House chamber, and pro-Palestinian groups planned a demonstration outside the White House.`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/progressives-hope-to-use-the-occasion-to-express-anger-and-pressure-biden-on-gaza
-
-**Review: Welcome to ‘Illinoise,’ Land of Love, Grief and Zombies**\
-`Sufjan Stevens’s 2005 concept album has become an unlikely and unforgettable dance-musical hybrid, directed and choreographed by Justin Peck.`\
-https://nytimes.com/2024/03/07/theater/illinoise-review-sufjan-stevens-justin-pick.html
 
