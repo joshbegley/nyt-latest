@@ -1,3 +1,7 @@
+**Offering a Choice of ‘Revenge’ vs. ‘Decency,’ Biden Strikes a Contrast With Trump**\
+`The president made it clear in a State of the Union address that he sees the election as an existential struggle between democracy and extremism.`\
+https://nytimes.com/2024/03/07/us/politics/biden-sotu.html
+
 **Biden’s Border Taunts Clearly Hit a Republican Nerve**\
 `His provocation on this issue may have been the most successful moment of the evening.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-border-republicans
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/state-of
 **George Santos Says He’s Running for Congress Again**\
 `Mr. Santos, who was expelled from the House in December, filed paperwork to run in a different district held by Representative Nick LaLota, a Republican.`\
 https://nytimes.com/2024/03/07/nyregion/george-santos-congress.html
-
-**“Many of my friends on the other side of the aisle want to put Social Security on the chopping block.”**\
-`By Angelo Fichera`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/many-of-my-friends-on-the-other-side-of-the-aisle-want-to-put-social-security-on-the-chopping-block
 
