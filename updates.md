@@ -1,3 +1,11 @@
+**Do You Have to Let the National Guard Search Your Bag on the Subway?**\
+`Gov. Kathy Hochul would not say how long she planned to keep hundreds of soldiers and state police officers in the subway system.`\
+https://nytimes.com/2024/03/07/nyregion/national-guard-subway-bag-checks.html
+
+**With immigration a top concern of voters, Biden will make an appeal for the passage of a border bill.**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/with-immigration-a-top-concern-of-voters-biden-will-make-an-appeal-for-the-passage-of-a-border-bill
+
 **The Capitol is abuzz ahead of the president’s speech.**\
 `By Marisa Schwartz Taylor`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/the-capitol-is-abuzz-ahead-of-the-presidents-speech

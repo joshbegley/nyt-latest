@@ -1,3 +1,7 @@
+**Do You Have to Let the National Guard Search Your Bag on the Subway?**\
+`Gov. Kathy Hochul would not say how long she planned to keep hundreds of soldiers and state police officers in the subway system.`\
+https://nytimes.com/2024/03/07/nyregion/national-guard-subway-bag-checks.html
+
 **The Capitol is abuzz ahead of the president’s speech.**\
 `By Marisa Schwartz Taylor`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/the-capitol-is-abuzz-ahead-of-the-presidents-speech
@@ -22,7 +26,7 @@ https://nytimes.com/2024/03/07/opinion/trump-biden-fatigue.html
 `Banking groups and Texas business associations asked a federal court to abolish a new federal rule that would cap most late fees at $8.`\
 https://nytimes.com/2024/03/07/business/credit-cards-fee-cfpb-sued.html
 
-**With Immigration a top concern of voters, Biden will make an appeal for the passage of a border bill.**\
+**With immigration a top concern of voters, Biden will make an appeal for the passage of a border bill.**\
 `By Zolan Kanno-Youngs`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/with-immigration-a-top-concern-of-voters-biden-will-make-an-appeal-for-the-passage-of-a-border-bill
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/nyregion/hochul-police-subway-search.html
 **U.S. Military to Build Floating Pier to Ferry Gaza Aid, White House Says**\
 `U.S. officials said that a temporary port, built from ships and then moved close to shore, would allow hundreds of truckloads of aid to reach Gazans on the brink of starvation.`\
 https://nytimes.com/2024/03/07/world/middleeast/us-gaza-pier-ships-aid.html
-
-**Here’s a look at how the president’s annual address became a picture of disunion.**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/heres-a-look-at-how-the-presidents-annual-address-became-a-picture-of-disunion
 
