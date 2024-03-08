@@ -1,3 +1,7 @@
+**Word of the Day: dwindle**\
+`This word has appeared in 76 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/08/learning/word-of-the-day-dwindle.html
+
 **On Foreign Policy, Biden’s Agenda Faces Multiplying Challenges**\
 `The president’s call for aid to Ukraine and his pledge of assistance for Gaza came against a backdrop of Republican opposition, splits in his own party and tension with allies.`\
 https://nytimes.com/2024/03/08/us/politics/biden-foreign-policy-challenges.html
