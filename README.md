@@ -1,3 +1,11 @@
+**Brian Jack, a Trump Adviser, Will Run for Congress in Georgia**\
+`Mr. Jack, the final White House political director under President Donald J. Trump, will run for an open seat in a deeply conservative district with Mr. Trump’s backing.`\
+https://nytimes.com/2024/03/07/us/politics/brian-jack-trump-congress-georgia.html
+
+**Prison Escapees Are Charged With Murder of American Couple in Grenada**\
+`The couple, Ralph Hendry and Kathy Brandel, went missing while sailing off the coast of Grenada.`\
+https://nytimes.com/2024/03/07/world/americas/couple-boat-grenada-murder.html
+
 **An unusual collision: The general election season began before the State of the Union.**\
 `President Biden isn’t the first sitting president to know his fall rival before he gives his speech to Congress: In 1800, John Adams did, too.`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/an-unusual-collision-the-general-election-season-began-before-the-state-of-the-union
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/07/health/female-genital-cutting.html
 **Reminder: Trump’s Last Year in Office Was a National Nightmare**\
 `And he made the nightmare much worse.`\
 https://nytimes.com/2024/03/07/opinion/trump-pandemic-president.html
-
-**‘Damsel’ Review: Yet Another Strong Female Lead**\
-`Millie Bobby Brown is a daring princess in a fairy tale that unspools its surprises far too soon.`\
-https://nytimes.com/2024/03/07/movies/damsel-review.html
-
-**Surviving the Ugliness of It All**\
-`Winston Churchill and Franklin D. Roosevelt offered the confidence in our country that we need right now.`\
-https://nytimes.com/2024/03/07/opinion/trump-biden-fatigue.html
 
