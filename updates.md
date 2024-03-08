@@ -1,3 +1,11 @@
+**Abolish the Razzies**\
+`When your jokey awards ceremony has to self-police to not traumatize children, maybe the world doesn’t need your jokey awards ceremony anymore.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/razzies-2024-abolish
+
+**Republicans’ Big F.B.I. Cut Came From Scrapping One Senator’s Earmark**\
+`The G.O.P. has boasted about cutting the budget of what it calls the “weaponized” F.B.I. by 6 percent. Most of that came from wiping out the pet project of retired Senator Richard C. Shelby.`\
+https://nytimes.com/2024/03/08/us/politics/fbi-budget-earmark.html
+
 **To Make ‘The Notebook’ a Musical, She Wove in Memories of Her Parents**\
 `Family history is “wrapped up in these songs,” said the singer-songwriter Ingrid Michaelson, who is making the leap to Broadway with an adaptation of the popular romance novel.`\
 https://nytimes.com/2024/03/08/theater/ingrid-michaelson-the-notebook-broadway.html
