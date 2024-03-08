@@ -1,3 +1,7 @@
+**At TEFAF Art Fair, Museums Make Up for Shrinking Private Sales**\
+`Curators are looking for old art that can resonate with a new audience at the venerable event in the Netherlands.`\
+https://nytimes.com/2024/03/08/arts/design/tefaf-maastricht.html
+
 **U.S. employers added 275,000 jobs last month.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/us-employers-added-275000-jobs-last-month
