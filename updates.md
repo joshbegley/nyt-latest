@@ -1,3 +1,15 @@
+**Asian Celebrities Were Fashion Week’s Biggest Influencers**\
+`K-pop and soccer stars, actresses and singers — the fashion week A-list increasingly hails from South Korea, Thailand and the Philippines.`\
+https://nytimes.com/2024/03/08/style/asian-celebrities-were-fashion-weeks-biggest-influencers.html
+
+**Biden Aims to Pump Energy Into Campaign After a Fiery National Address**\
+`The president will follow up his State of the Union speech with a campaign swing to several battleground states, and will begin a $30 million advertising push.`\
+https://nytimes.com/2024/03/08/us/politics/biden-campaign.html
+
+**Big Birds, Baked Beans and Brown Bread**\
+`What to cook this weekend: chicken with couscous, dates and buttered almonds; easy roast duck; and a heavy pot of Boston baked beans.`\
+https://nytimes.com/2024/03/08/dining/big-birds-baked-beans-and-brown-bread.html
+
 **What History and Economics Suggest About Biden-Trump, Round 2**\
 `Underlying economic and market factors mattered in previous presidential rematches. They may help President Biden, even if polls aren’t showing that so far.`\
 https://nytimes.com/2024/03/08/business/biden-trump-rematch-economy-history.html
