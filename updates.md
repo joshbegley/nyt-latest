@@ -1,3 +1,7 @@
+**Biden Plan to Build Gaza Aid Port Could Deliver 2 Million Meals a Day**\
+`However, the planned pier and causeway will take at least a month and maybe two to complete, the Pentagon said.`\
+https://nytimes.com/2024/03/08/world/middleeast/biden-gaza-aid-port-meals.html
+
 **Judge Upholds Biden Program Giving Some Immigrants Short-Term Legal Status**\
 `The initiative allows up to 360,000 people a year from Cuba, Haiti, Nicaragua and Venezuela to live and work in the United States if supported by a financial sponsor.`\
 https://nytimes.com/2024/03/08/us/biden-texas-temporary-status-program-immigration.html
