@@ -1,3 +1,7 @@
+**“In fact, my policies have attracted $650 billion in private sector investment, in clean energy, advanced manufacturing, creating tens of thousands of jobs here in America!”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/in-fact-my-policies-have-attracted-650-billion-in-private-sector-investment-in-clean-energy-advanced-manufacturing-creating-tens
+
 **Miguel Cardona is the designated survivor during the State of the Union.**\
 `The tradition ensures that a top member of the government would be able to step up in case of any catastrophe.`\
 https://nytimes.com/2024/03/07/us/politics/miguel-cardona-designated-survivor-state-of-union.html
