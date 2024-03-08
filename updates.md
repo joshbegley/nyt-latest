@@ -1,3 +1,7 @@
+**How Would You Describe the State of Our Union?**\
+`President Biden says it’s “strong and getting stronger.” Do you agree? How do you think the country is doing right now?`\
+https://nytimes.com/2024/03/08/learning/how-would-you-describe-the-state-of-our-union.html
+
 **A.L.S. Drug Relyvrio Fails Clinical Trial and May Be Withdrawn From the Market**\
 `Leaders of the treatment’s manufacturer, Amylyx, said they would announce their plans for it within eight weeks.`\
 https://nytimes.com/2024/03/08/health/als-drug-relyvrio.html
