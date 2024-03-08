@@ -1,3 +1,7 @@
+**An unusual collision: The general election season began before the State of the Union.**\
+`President Biden isn’t the first sitting president to know his fall rival before he gives his speech to Congress: In 1800, John Adams did, too.`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/an-unusual-collision-the-general-election-season-began-before-the-state-of-the-union
+
 **We Need to Talk About This Republican Candidate’s Antisemitism**\
 `Mark Robinson has a history of anti-Jewish conspiracy theories. His party doesn’t care.`\
 https://nytimes.com/2024/03/07/opinion/mark-robinson-antisemitism.html

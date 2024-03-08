@@ -1,3 +1,7 @@
+**An unusual collision: The general election season began before the State of the Union.**\
+`President Biden isn’t the first sitting president to know his fall rival before he gives his speech to Congress: In 1800, John Adams did, too.`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/an-unusual-collision-the-general-election-season-began-before-the-state-of-the-union
+
 **We Need to Talk About This Republican Candidate’s Antisemitism**\
 `Mark Robinson has a history of anti-Jewish conspiracy theories. His party doesn’t care.`\
 https://nytimes.com/2024/03/07/opinion/mark-robinson-antisemitism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/movies/damsel-review.html
 **Surviving the Ugliness of It All**\
 `Winston Churchill and Franklin D. Roosevelt offered the confidence in our country that we need right now.`\
 https://nytimes.com/2024/03/07/opinion/trump-biden-fatigue.html
-
-**Trade Groups Sue to Block Credit Card Late Fee Limit**\
-`Banking groups and Texas business associations asked a federal court to abolish a new federal rule that would cap most late fees at $8.`\
-https://nytimes.com/2024/03/07/business/credit-cards-fee-cfpb-sued.html
 
