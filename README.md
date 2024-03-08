@@ -1,3 +1,7 @@
+**U.S. employers added 275,000 jobs last month.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/us-employers-added-275000-jobs-last-month
+
 **Covid Became a Pandemic 4 Years Ago. How Does Your Life Look Now?**\
 `We want to hear from readers on how your life has or hasn’t changed.`\
 https://nytimes.com/2024/03/08/us/covid-pandemic-callout.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/us/matt-lynch-south-carolina-salkehatchie.html
 **Review: Two Electric Debuts at the New York Philharmonic**\
 `An exciting program featured the conductor Elim Chan and the cellist Sol Gabetta in a pairing of music by Martinu and Rimsky-Korsakov.`\
 https://nytimes.com/2024/03/08/arts/music/review-elim-chan-sol-gabetta-new-york-philharmonic.html
-
-**A look ‘under the hood’ reveals both strength and caution signs in the report.**\
-`By Talmon Joseph Smith`\
-https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/jobs-report-strength-caution
 
