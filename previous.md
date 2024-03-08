@@ -1,3 +1,11 @@
+**Judge to Review Prince Harry’s Visa Papers in Dispute Over Release**\
+`The documents have been sought by the Heritage Foundation in a freedom of information lawsuit. The group wants to know if the prince’s drug use was considered in granting him a U.S. visa.`\
+https://nytimes.com/2024/03/08/us/politics/prince-harry-visa-heritage-foundation.html
+
+**Former Republican Candidate for U.S. House Is Charged With Murder**\
+`Dan Rodimer, who touted former President Trump’s endorsements in two failed bids for Congress, was charged with killing a man at a Las Vegas Strip resort in October.`\
+https://nytimes.com/2024/03/08/us/politics/ex-gop-candidate-dan-rodimer-murder.html
+
 **The U.N. human rights chief warns that Israeli settlements could amount to war crimes.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/the-un-human-rights-chief-warns-that-israeli-settlements-could-amount-to-war-crimes
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/08/business/homeowners-insurance-state-regulators.ht
 **How to Survive Daylight Saving Time**\
 `A few tips can help you make the adjustment.`\
 https://nytimes.com/interactive/2024/03/08/smarter-living/wirecutter/survive-daylight-saving-2024.html
-
-**Oscars Quiz: Test Your Movie Knowledge**\
-`The Oscars are Sunday. It’s been a busy awards season filled with Barbies and biopics. Now that we’re nearing the end, let’s see how much you know.`\
-https://nytimes.com/2024/03/08/movies/oscars-quiz-test-your-movie-knowledge.html
-
-**California Officials Investigate Possible Oil Spill Off Huntington Beach**\
-`It was not immediately clear what caused an oil sheen that officials said was about 2.5 miles long and half a mile wide.`\
-https://nytimes.com/2024/03/08/us/oil-spill-huntington-beach-california.html
 

@@ -1,3 +1,11 @@
+**Judge to Review Prince Harry’s Visa Papers in Dispute Over Release**\
+`The documents have been sought by the Heritage Foundation in a freedom of information lawsuit. The group wants to know if the prince’s drug use was considered in granting him a U.S. visa.`\
+https://nytimes.com/2024/03/08/us/politics/prince-harry-visa-heritage-foundation.html
+
+**Former Republican Candidate for U.S. House Is Charged With Murder**\
+`Dan Rodimer, who touted former President Trump’s endorsements in two failed bids for Congress, was charged with killing a man at a Las Vegas Strip resort in October.`\
+https://nytimes.com/2024/03/08/us/politics/ex-gop-candidate-dan-rodimer-murder.html
+
 **The U.N. human rights chief warns that Israeli settlements could amount to war crimes.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/the-un-human-rights-chief-warns-that-israeli-settlements-could-amount-to-war-crimes
