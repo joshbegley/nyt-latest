@@ -1,3 +1,11 @@
+**Don’t Be Fooled by a Big Jobs Gain**\
+`A weak job report could help give the Federal Reserve the confidence to start cutting interest rates.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/jobs-data-february
+
+**Ariana Grande Spins Heartbreak Into Gold on ‘Eternal Sunshine’**\
+`The pop star sets the end of a romance and the start of a new one to a soundtrack awash in lavish atmosphere and adventurous melodies, with help from Max Martin.`\
+https://nytimes.com/2024/03/08/arts/music/ariana-grande-eternal-sunshine-review.html
+
 **Transcript: Ezra Klein Interviews Mary Ziegler**\
 `The March 8, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/03/08/podcasts/transcript-ezra-klein-interviews-mary-ziegler.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/08/arts/rust-shooting-alec-baldwin.html
 **Dozens of Top Scientists Sign Effort to Prevent A.I. Bioweapons**\
 `An agreement by more than 90 said, however, that artificial intelligence’s benefit to the field of biology would exceed any potential harm.`\
 https://nytimes.com/2024/03/08/technology/biologists-ai-agreement-bioweapons.html
-
-**Car Deals Are Easier to Find but Lenders Are Tightening Their Terms**\
-`It has become harder for some borrowers to get affordable car loans as banks and dealerships face a rising number of delinquencies.`\
-https://nytimes.com/2024/03/08/your-money/car-loans-rates.html
-
-**An Instagram-Ready Immersive Museum Uses Braille. But Is It Accessible?**\
-`Roy Nachum designed the spectacle-filled Mercer Labs, which he touts as inclusive. But some advocates for blind people say his use of Braille can feel exploitative.`\
-https://nytimes.com/2024/03/08/arts/design/mercer-labs-roy-nachum-braille.html
 

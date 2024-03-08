@@ -1,3 +1,11 @@
+**Don’t Be Fooled by a Big Jobs Gain**\
+`A weak job report could help give the Federal Reserve the confidence to start cutting interest rates.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/jobs-data-february
+
+**Ariana Grande Spins Heartbreak Into Gold on ‘Eternal Sunshine’**\
+`The pop star sets the end of a romance and the start of a new one to a soundtrack awash in lavish atmosphere and adventurous melodies, with help from Max Martin.`\
+https://nytimes.com/2024/03/08/arts/music/ariana-grande-eternal-sunshine-review.html
+
 **Transcript: Ezra Klein Interviews Mary Ziegler**\
 `The March 8, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/03/08/podcasts/transcript-ezra-klein-interviews-mary-ziegler.html
