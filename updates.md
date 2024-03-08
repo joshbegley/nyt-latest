@@ -1,3 +1,7 @@
+**Two surveys tell different stories.**\
+`Household data shows the labor market cooling and employment recently falling. How can that be reconciled with the job gains reported by employers?`\
+https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/two-surveys-tell-different-stories
+
 **Bad Parents, Beware. These Harpy Sisters Are Coming for You.**\
 `Terese Svoboda considers what’s worth protecting in a new novel and a story collection.`\
 https://nytimes.com/2024/03/08/books/review/terese-svoboda-long-swim-roxy-coco.html

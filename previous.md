@@ -1,3 +1,7 @@
+**Two surveys tell different stories.**\
+`Household data shows the labor market cooling and employment recently falling. How can that be reconciled with the job gains reported by employers?`\
+https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/two-surveys-tell-different-stories
+
 **Bad Parents, Beware. These Harpy Sisters Are Coming for You.**\
 `Terese Svoboda considers what’s worth protecting in a new novel and a story collection.`\
 https://nytimes.com/2024/03/08/books/review/terese-svoboda-long-swim-roxy-coco.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/the-jo
 **The Apocalypse in Katie Britt’s Kitchen**\
 `The senator’s performance was completely over the top, just the way her admirers like it.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/katie-britt-kitchen-response
-
-**Biden Targets Big Business and Billionaires**\
-`The president used his State of the Union address to plug his economic record and announce a policy wish list that involves raising taxes on multinationals and the wealthy.`\
-https://nytimes.com/2024/03/08/business/dealbook/biden-sotu-big-business-billionaires.html
 
