@@ -3,7 +3,7 @@
 https://nytimes.com/2024/03/08/movies/international-movies-streaming.html
 
 **Trump Ally and Daughter-in-Law Officially Take Over R.N.C. Leadership**\
-`With the installation of Lara Trump and Michael Whatley as co-chairs, Donald Trump tightened his already firm grip on the party apparatus.`\
+`With the installation of Lara Trump and Michael Whatley, Donald Trump tightened his already firm grip on the party apparatus.`\
 https://nytimes.com/2024/03/08/us/politics/trump-rnc-lara-michael-whatley.html
 
 **Iran’s 2022 Protest Crackdown Included Killings, Torture and Rape, U.N. Finds**\
