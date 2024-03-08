@@ -1,3 +1,7 @@
+**Oscars Quiz: Test Your Movie Knowledge**\
+`The Oscars are Sunday. It’s been a busy awards season filled with Barbies and biopics. Now that we’re nearing the end, let’s see how much you know.`\
+https://nytimes.com/2024/03/08/movies/oscars-quiz-test-your-movie-knowledge.html
+
 **California Officials Investigate Possible Oil Spill Off Huntington Beach**\
 `It was not immediately clear what caused an oil sheen that officials said was about 2.5 miles long and half a mile wide.`\
 https://nytimes.com/2024/03/08/us/oil-spill-huntington-beach-california.html
