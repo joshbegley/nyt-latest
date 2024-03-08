@@ -1,3 +1,7 @@
+**“In fact, my policies have attracted $650 billion in private sector investment, in clean energy, advanced manufacturing, creating tens of thousands of jobs here in America!”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/in-fact-my-policies-have-attracted-650-billion-in-private-sector-investment-in-clean-energy-advanced-manufacturing-creating-tens
+
 **Miguel Cardona is the designated survivor during the State of the Union.**\
 `The tradition ensures that a top member of the government would be able to step up in case of any catastrophe.`\
 https://nytimes.com/2024/03/07/us/politics/miguel-cardona-designated-survivor-state-of-union.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/03/07/nyregion/nyc-investigation-da-employees.html
 **Two Men Charged in Deadly Boat Accident in Hudson River**\
 `A 47-year-old woman and a 7-year-old boy drowned after the private boat capsized in July 2022. Prosecutors said the boat was being operated recklessly.`\
 https://nytimes.com/2024/03/07/nyregion/boat-capsize-hudson-river-charges.html
-
-**Progressives hope to use the occasion to express anger and pressure Biden on Gaza.**\
-`At least one member of Congress invited a Palestinian as their guest inside the House chamber, and pro-Palestinian groups planned a demonstration outside the White House.`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/progressives-hope-to-use-the-occasion-to-express-anger-and-pressure-biden-on-gaza
 
