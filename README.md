@@ -1,3 +1,11 @@
+**An audio clip emerges of Biden saying he told Netanyahu they are nearing a ‘come-to-Jesus meeting’ on Gaza aid.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/an-audio-clip-emerges-of-biden-saying-he-told-netanyahu-they-are-nearing-a-come-to-jesus-meeting-on-gaza-aid
+
+**Sam Altman to Return to OpenAI’s Board of Directors**\
+`Mr. Altman was among new additions to the board announced on Friday, more than three months after he was briefly pushed out of the company.`\
+https://nytimes.com/2024/03/08/technology/sam-altman-to-return-to-openais-board-of-directors.html
+
 **Former Trump Lawyer Emerges as Challenger to Atlanta District Attorney**\
 `A Republican lawyer who has worked in the Trump White House is running to unseat Fani T. Willis, the district attorney prosecuting the Georgia election interference case.`\
 https://nytimes.com/2024/03/08/us/courtney-kramer-fani-willis-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/05/opinion/thepoint/oscar-best-actress
 **Max Hardy, 40, Dies; Helped Bring Chef-Driven Cuisine to Detroit**\
 `With his unique blend of Lowcountry and Caribbean influences, he ranked among the best of a new generation of Black culinary wizards.`\
 https://nytimes.com/2024/03/08/dining/max-hardy-dead.html
-
-**Europe and U.S. Plan to Supply Gaza by Sea, but Aid Groups Say It’s Not Enough**\
-`Relief organizations say cumbersome new strategies cannot substitute for Israel allowing more supply trucks into the Gaza Strip, while an airdrop of aid reportedly went awry and killed five people.`\
-https://nytimes.com/2024/03/08/world/middleeast/gaza-aid-by-sea.html
-
-**A Night With New York’s Lesbian and Bisexual Backgammon League**\
-`At the invitation-only art world games evenings, painters, gallerists, collectors and assistants mingle and compete on a level playing field.`\
-https://nytimes.com/2024/03/08/t-magazine/lesbian-bisexual-backgammon-league-new-york.html
 
