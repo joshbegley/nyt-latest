@@ -1,3 +1,11 @@
+**Gazan authorities say 5 people were killed in airdrop accident.**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/gazan-authorities-say-5-people-were-killed-in-airdrop-accident
+
+**Ex-Honduras President Found Guilty in Drug Trafficking Trial**\
+`Juan Orlando Hernández had been accused of conspiring to import cocaine into the United States and working with notorious drug traffickers like El Chapo.`\
+https://nytimes.com/2024/03/08/nyregion/juan-orlando-hernandez-honduras-guilty-verdict.html
+
 **Trump’s State of the Union Response: Social Media Glitches and Mocking Filters**\
 `Outages on Donald Trump’s platform, Truth Social, interrupted the barrage of derogatory posts that served as his retort to President Biden’s remarks.`\
 https://nytimes.com/2024/03/08/us/politics/trump-instagram-biden-state-of-union.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/08/opinion/dune-movies.html
 **The Crisis in Haiti, in Photos**\
 `A photographic narrative of the growing upheaval.`\
 https://nytimes.com/2024/03/08/world/americas/haiti-violence-photos.html
-
-**Kamasi Washington’s Ecstatic Return, and 9 More New Songs**\
-`Hear tracks by 4batz featuring Drake, Salt Cathedral, Swamp Dogg and others.`\
-https://nytimes.com/2024/03/08/arts/music/playlist-kamasi-washington-drake-4batz.html
-
-**The Big Number: $1 Billion**\
-`New York Community Bank's new management team is working to reassure investors and regulators that a cash infusion will help it right itself. `\
-https://nytimes.com/interactive/2024/03/08/business/new-york-community-bank-losses-rescue.html
 

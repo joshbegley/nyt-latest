@@ -1,3 +1,11 @@
+**Gazan authorities say 5 people were killed in airdrop accident.**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/gazan-authorities-say-5-people-were-killed-in-airdrop-accident
+
+**Ex-Honduras President Found Guilty in Drug Trafficking Trial**\
+`Juan Orlando Hernández had been accused of conspiring to import cocaine into the United States and working with notorious drug traffickers like El Chapo.`\
+https://nytimes.com/2024/03/08/nyregion/juan-orlando-hernandez-honduras-guilty-verdict.html
+
 **Trump’s State of the Union Response: Social Media Glitches and Mocking Filters**\
 `Outages on Donald Trump’s platform, Truth Social, interrupted the barrage of derogatory posts that served as his retort to President Biden’s remarks.`\
 https://nytimes.com/2024/03/08/us/politics/trump-instagram-biden-state-of-union.html
