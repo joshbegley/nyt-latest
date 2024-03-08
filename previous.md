@@ -1,3 +1,7 @@
+**Biden Targets Big Business and Billionaires**\
+`The president used his State of the Union address to plug his economic record and, and announce a policy wish list that involves raising taxes on multinationals and the wealthy.`\
+https://nytimes.com/2024/03/08/business/dealbook/biden-sotu-big-business-billionaires.html
+
 **Battling Dress Codes at the State of the Union**\
 `Democratic women in suffragist white, Marjorie Taylor Greene in MAGA red — there was messaging mayhem on the congressional floor.`\
 https://nytimes.com/2024/03/08/style/women-white-laken-riley-pins-state-of-the-union.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/briefing/state-of-the-union-biden-economy.html
 **Theresa May, Former U.K. Prime Minister, Won’t Stand in Next Election**\
 `The veteran Conservative Party lawmaker, whose time as leader was plagued by Brexit turmoil, said she would step down after 27 years in Parliament.`\
 https://nytimes.com/2024/03/08/world/europe/uk-theresa-may.html
-
-**Several nations say they will participate in a sea route for aid to Gaza.**\
-`By Monika Pronczuk and Aaron Boxerman`\
-https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/britain-and-the-eu-say-they-will-participate-in-a-sea-route-for-aid-to-gaza
 
