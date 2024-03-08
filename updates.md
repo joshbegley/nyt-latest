@@ -1,3 +1,27 @@
+**The Capitol is abuzz ahead of the president’s speech.**\
+`By Marisa Schwartz Taylor`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/the-capitol-is-abuzz-ahead-of-the-presidents-speech
+
+**Female Genital Cutting Continues to Increase Worldwide**\
+`Campaigns in some countries have reduced the practice, but it remains widespread in those with high rates of population growth.`\
+https://nytimes.com/2024/03/07/health/female-genital-cutting.html
+
+**Reminder: Trump’s Last Year in Office Was a National Nightmare**\
+`And he made the nightmare much worse.`\
+https://nytimes.com/2024/03/07/opinion/trump-pandemic-president.html
+
+**‘Damsel’ Review: Yet Another Strong Female Lead**\
+`Millie Bobby Brown is a daring princess in a fairy tale that unspools its surprises far too soon.`\
+https://nytimes.com/2024/03/07/movies/damsel-review.html
+
+**Surviving the Ugliness of It All**\
+`Winston Churchill and Franklin D. Roosevelt offered the confidence in our country that we need right now.`\
+https://nytimes.com/2024/03/07/opinion/trump-biden-fatigue.html
+
+**Trade Groups Sue to Block Credit Card Late Fee Limit**\
+`Banking groups and Texas business associations asked a federal court to abolish a new federal rule that would cap most late fees at $8.`\
+https://nytimes.com/2024/03/07/business/credit-cards-fee-cfpb-sued.html
+
 **With Immigration a top concern of voters, Biden will make an appeal for the passage of a border bill.**\
 `By Zolan Kanno-Youngs`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/with-immigration-a-top-concern-of-voters-biden-will-make-an-appeal-for-the-passage-of-a-border-bill
