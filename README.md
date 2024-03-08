@@ -4,7 +4,7 @@ https://nytimes.com/2024/03/08/world/middleeast/iran-protest-mahsa-amini-un-repo
 
 **Leave Kate Alone!**\
 `She has a right to keep her health issues private.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/leave-kate-alone
+https://nytimes.com/live/2024/03/05/opinion/thepoint/kate-middleton-disappearance
 
 **The Functional Dysfunctional Congress**\
 `Lawmakers have found a messy bipartisan way to pass spending bills, though the final test later this month promises to be much more challenging.`\
