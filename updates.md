@@ -1,3 +1,7 @@
+**‘Was It Feisty or Angry?’: Readers Rate the State of the Union**\
+`We asked readers to rate Biden’s performance at the State of the Union.`\
+https://nytimes.com/2024/03/08/opinion/state-of-the-union-reader-comments.html
+
 **Howard Hiatt, 98, Dies; Steered Public Health Toward Greater Accountability**\
 `A physician, scientist and academic, he brought together experts across disciplines to focus on the economic, political and social causes of poor health, not just the biological factors.`\
 https://nytimes.com/2024/03/08/health/howard-hiatt-dead.html
