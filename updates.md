@@ -1,3 +1,7 @@
+**‘Crusty’ and ‘Pillowy’: How N.Y.C.-Style Bagels Made It Big in London**\
+`Bakeries selling big, doughy bagels have opened to rave reviews in Britain, but some traditionalists are standing by the London “beigel.”`\
+https://nytimes.com/2024/03/08/world/europe/new-york-bagels-london-beigel.html
+
 **Asian Celebrities Were Fashion Week’s Biggest Influencers**\
 `K-pop and soccer stars, actresses and singers — the fashion week A-list increasingly hails from South Korea, Thailand and the Philippines.`\
 https://nytimes.com/2024/03/08/style/fashion-week-asian-celebrities-kpop.html

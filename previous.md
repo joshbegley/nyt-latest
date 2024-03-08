@@ -1,3 +1,7 @@
+**‘Crusty’ and ‘Pillowy’: How N.Y.C.-Style Bagels Made It Big in London**\
+`Bakeries selling big, doughy bagels have opened to rave reviews in Britain, but some traditionalists are standing by the London “beigel.”`\
+https://nytimes.com/2024/03/08/world/europe/new-york-bagels-london-beigel.html
+
 **The Best of Late Night This Week**\
 `Major political developments kept the hosts busy this week, including a crucial Supreme Court ruling and Super Tuesday, which all but solidified the 2024 presidential candidates. Here’s what they had to say.`\
 https://nytimes.com/interactive/2024/03/08/arts/television/best-of-late-night-super-tuesday.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/us/politics/pentagon-ufo-alien-review.html
 **The Best Player in the Premier League? Look Deeper.**\
 `Rodri’s genius is not in making things happen. He is employed by Manchester City, at least in part, to make sure they do not.`\
 https://nytimes.com/2024/03/08/world/europe/liverpool-manchester-city-rodri.html
-
-**Don’t Be Fooled by a Big Jobs Gain**\
-`A weak job report could help give the Federal Reserve the confidence to start cutting interest rates.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/jobs-data-february
 
