@@ -1,3 +1,11 @@
+**California Officials Investigate Possible Oil Spill Off Huntington Beach**\
+`It was not immediately clear what caused an oil sheen that officials said was about 2.5 miles long and half a mile wide.`\
+https://nytimes.com/2024/03/08/us/oil-spill-huntington-beach-california.html
+
+**Spurned, Slighted, Rejected: 25 Oscar Snubs We’ll Never Get Over**\
+`Greta Gerwig, you’re not alone. These artists and films memorably — outrageously in our view — got the brush-off from the academy. We’re still in disbelief.`\
+https://nytimes.com/2024/03/08/movies/oscar-snubs-history.html
+
 **Abolish the Razzies**\
 `When your jokey awards ceremony has to self-police to not traumatize children, maybe the world doesn’t need your jokey awards ceremony anymore.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/razzies-2024-abolish
