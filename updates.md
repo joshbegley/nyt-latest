@@ -1,3 +1,7 @@
+**Former Republican Candidate for U.S. House Is Charged With Murder**\
+`Dan Rodimer, who touted former President Trump’s endorsement in two failed bids for Congress, was charged with killing a man at a Las Vegas Strip resort in October.`\
+https://nytimes.com/2024/03/08/us/politics/ex-gop-candidate-dan-rodimer-murder.html
+
 **Former Trump Lawyer Emerges as Challenger to Atlanta District Attorney**\
 `A Republican lawyer who has worked in the Trump White House is running to unseat Fani T. Willis, the district attorney prosecuting the Georgia election interference case.`\
 https://nytimes.com/2024/03/08/us/courtney-kramer-fani-willis-election.html
