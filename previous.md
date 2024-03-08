@@ -1,3 +1,15 @@
+**Crypto Super PAC to Target Races in Ohio and Montana That Could Swing the Senate**\
+`The group spent millions of dollars in the Democratic Senate primary in California and is looking to influence other races in the general election.`\
+https://nytimes.com/2024/03/08/us/politics/crypto-super-pac-senate-oh-mt.html
+
+**Pentagon Review Finds No Evidence of Alien Coverup**\
+`But the new report suggests that the public’s belief that the government is hiding what it knows will probably continue.`\
+https://nytimes.com/2024/03/08/us/politics/pentagon-ufo-alien-review.html
+
+**The Best Player in the Premier League? Look Deeper.**\
+`Rodri’s genius is not in making things happen. He is employed by Manchester City, at least in part, to make sure they do not.`\
+https://nytimes.com/2024/03/08/world/europe/liverpool-manchester-city-rodri.html
+
 **Don’t Be Fooled by a Big Jobs Gain**\
 `A weak job report could help give the Federal Reserve the confidence to start cutting interest rates.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/jobs-data-february
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/08/style/saturn-return-astrology-ariana-grande.html
 **Two surveys tell different stories.**\
 `Household data shows the labor market cooling and employment recently falling. How can that be reconciled with the job gains reported by employers?`\
 https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/two-surveys-tell-different-stories
-
-**Bad Parents, Beware. These Harpy Sisters Are Coming for You.**\
-`Terese Svoboda considers what’s worth protecting in a new novel and a story collection.`\
-https://nytimes.com/2024/03/08/books/review/terese-svoboda-long-swim-roxy-coco.html
-
-**What the ‘Rust’ Trial Says About the Case Against Alec Baldwin**\
-`The trial of the “Rust” armorer offered a preview of the case against Mr. Baldwin, who is set to stand trial on an involuntary manslaughter charge in July.`\
-https://nytimes.com/2024/03/08/arts/rust-shooting-alec-baldwin.html
-
-**Dozens of Top Scientists Sign Effort to Prevent A.I. Bioweapons**\
-`An agreement by more than 90 said, however, that artificial intelligence’s benefit to the field of biology would exceed any potential harm.`\
-https://nytimes.com/2024/03/08/technology/biologists-ai-agreement-bioweapons.html
 
