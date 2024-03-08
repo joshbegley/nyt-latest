@@ -1,3 +1,7 @@
+**What We Learned From Biden’s State of the Union**\
+`President Biden delivered a spirited speech, sparring at times with Republicans, and addressed concerns about his age.`\
+https://nytimes.com/video/us/politics/100000009347147/what-we-learned-from-bidens-state-of-the-union.html
+
 **Strong Winds Moved a Lake in Death Valley Two Miles**\
 `Powerful winds last week pushed Lake Manly, a temporary body of water, two miles from its original location in the national park.`\
 https://nytimes.com/2024/03/08/us/death-valley-lake-manly-wind.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/08/business/what-is-sweaty-academy-award
 **How to Make End-of-Life Planning Less Stressful**\
 `One tip: Do it over chocolate cake.`\
 https://nytimes.com/2024/03/08/well/live/end-of-life-planning.html
-
-**The New York Times News Quiz, Mar. 8, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/03/08/briefing/nikki-haley-california-primary-biden-quiz.html
 
