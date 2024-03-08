@@ -32,7 +32,7 @@ https://nytimes.com/2024/03/08/business/media/how-cable-news-reacted-to-the-spee
 
 **Akira Toriyama, Creator of ‘Dragon Ball,’ Dies at 68**\
 `His popular manga inspired numerous television, film and video game adaptations, reaching fans far beyond Japan’s borders.`\
-https://nytimes.com/2024/03/08/obituaries/akira-toriyama-dead.html
+https://nytimes.com/2024/03/08/arts/akira-toriyama-dead.html
 
 **Ireland to Vote on Replacing Women ‘in the Home’ Language in Constitution**\
 `The country will consider two amendments: one to remove the reference to a woman’s domestic duties and another to expand the definition of family.`\
