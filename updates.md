@@ -1,3 +1,15 @@
+**The Republican Party wants “families to grow. It’s why we strongly support continued nationwide access to in vitro fertilization.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/the-republican-party-wants-families-to-grow-its-why-we-strongly-support-continued-nationwide-access-to-in-vitro-fertilization
+
+**Biden strikes a contrast with Trump, offering a choice between ‘revenge’ and ‘decency.’**\
+`The president made it clear in a State of the Union address that he sees the election as an existential struggle between democracy and extremism.`\
+https://nytimes.com/2022/03/01/us/politics/biden-sotu.html
+
+**5 Takeaways From the State of the Union**\
+`Verbal swings at Donald Trump, though not by name. A spirited back-and-forth with G.O.P. lawmakers. And a loud and feisty delivery.`\
+https://nytimes.com/2024/03/07/us/politics/state-of-the-union-takeaways.html
+
 **Offering a Choice of ‘Revenge’ vs. ‘Decency,’ Biden Strikes a Contrast With Trump**\
 `The president made it clear in a State of the Union address that he sees the election as an existential struggle between democracy and extremism.`\
 https://nytimes.com/2024/03/07/us/politics/biden-sotu.html
