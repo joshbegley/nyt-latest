@@ -1,3 +1,7 @@
+**Selfies, Handshakes and Hugs: Biden Lingers After Last Call**\
+`President Biden soaked up the atmosphere after finishing his State of the Union address, shooting the breeze with well-wishers and taking his time before departing for the White House.`\
+https://nytimes.com/2024/03/07/us/politics/selfies-handshakes-and-hugs-biden-lingers-after-last-call.html
+
 **In-Your-Face Biden Takes on Trump and His Own Doubters**\
 `In a raucous State of the Union address, the president’s goal was to reassure Americans that at 81 he is ready for a second term. He made his case, loudly and forcefully.`\
 https://nytimes.com/2024/03/08/us/politics/biden-sotu-speech.html
