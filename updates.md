@@ -1,3 +1,7 @@
+**The jobs report comes as the Fed considers when to cut interest rates.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/the-jobs-report-comes-as-the-fed-considers-when-to-cut-interest-rates
+
 **The Apocalypse in Katie Britt’s Kitchen**\
 `The senator’s performance was completely over the top, just the way her admirers like it.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/katie-britt-kitchen-response
