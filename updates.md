@@ -1,3 +1,7 @@
+**With Cyberattack Fix Weeks Away, Health Providers Slam United**\
+`Hospitals, doctors and clinics expressed frustration that they will have to wait even longer for reimbursements after hackers paralyzed the largest U.S. billing clearinghouse.`\
+https://nytimes.com/2024/03/08/health/united-healthcare-cyberattack.html
+
 **Judge to Review Prince Harry’s Visa Papers in Dispute Over Release**\
 `The documents have been sought by the Heritage Foundation in a freedom of information lawsuit. The group wants to know if the prince’s drug use was considered in granting him a U.S. visa.`\
 https://nytimes.com/2024/03/08/us/politics/prince-harry-visa-heritage-foundation.html

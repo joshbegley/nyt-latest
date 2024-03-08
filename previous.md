@@ -1,3 +1,7 @@
+**With Cyberattack Fix Weeks Away, Health Providers Slam United**\
+`Hospitals, doctors and clinics expressed frustration that they will have to wait even longer for reimbursements after hackers paralyzed the largest U.S. billing clearinghouse.`\
+https://nytimes.com/2024/03/08/health/united-healthcare-cyberattack.html
+
 **Judge to Review Prince Harry’s Visa Papers in Dispute Over Release**\
 `The documents have been sought by the Heritage Foundation in a freedom of information lawsuit. The group wants to know if the prince’s drug use was considered in granting him a U.S. visa.`\
 https://nytimes.com/2024/03/08/us/politics/prince-harry-visa-heritage-foundation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/t-magazine/lesbian-bisexual-backgammon-league-new
 **States Dig Into Homeowners Insurance and Why It’s Hard to Buy**\
 `State regulators asked more than 400 companies for data on their homeowners insurance businesses. The inquiry comes at a moment when severe weather is increasing risk.`\
 https://nytimes.com/2024/03/08/business/homeowners-insurance-state-regulators.html
-
-**How to Survive Daylight Saving Time**\
-`A few tips can help you make the adjustment.`\
-https://nytimes.com/interactive/2024/03/08/smarter-living/wirecutter/survive-daylight-saving-2024.html
 
