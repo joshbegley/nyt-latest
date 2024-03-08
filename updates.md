@@ -1,3 +1,7 @@
+**America’s Reaganesque Mom: How to Praise Katie Britt, Even Before She Speaks**\
+`Talking points from the Alabama senator’s team, helpfully sent out before the State of the Union address, suggested how to extol her delivery of the Republican response.`\
+https://nytimes.com/2024/03/07/us/politics/katie-britt-talking-points-influencers.html
+
 **Variety: Acrostic**\
 `David Balton and Jane Stewart’s puzzle is about an incredible history.`\
 https://nytimes.com/2024/03/07/crosswords/variety-acrostic.html
