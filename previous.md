@@ -1,3 +1,35 @@
+**How New York’s Schoolchildren Got Their French Toast Sticks Back**\
+`Mayor Eric Adams’s administration reversed course on school menu cuts after an uproar among students over the loss of popular items.`\
+https://nytimes.com/2024/03/08/nyregion/nyc-school-cafeteria-food-cuts-reversed-adams.html
+
+**Playing Dominoes**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/03/08/learning/playing-dominoes.html
+
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/08/crosswords/connections-companion.html
+
+**$1 Million Homes in London**\
+`A cottage in Nunhead Green, a two-bedroom apartment in Wapping and a three-bedroom duplex in Kingsland Basin.`\
+https://nytimes.com/2024/03/08/realestate/london-1-million-dollar-homes.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/03/08/crosswords/spelling-bee-forum.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/08/crosswords/wordle-review.html
+
+**Trump’s Man at the R.N.C. Will Face Pressure to Satisfy His Election Lies**\
+`The former president believes his pick to lead the Republican National Committee, Michael Whatley, is more in sync with his views about voter fraud than Ronna McDaniel, who steps aside Friday.`\
+https://nytimes.com/2024/03/08/us/politics/rnc-trump-whatley.html
+
+**A Man Faces Charges in Killings of the Gilgo 4. What About the Other 6?**\
+`Rex Heuermann has been charged in four murders, but 10 bodies have been found. Investigators hope fresh leads and new technology may close the cases.`\
+https://nytimes.com/2024/03/08/nyregion/gilgo-beach-murders-heuermann.html
+
 **Word of the Day: dwindle**\
 `This word has appeared in 76 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/08/learning/word-of-the-day-dwindle.html
@@ -5,36 +37,4 @@ https://nytimes.com/2024/03/08/learning/word-of-the-day-dwindle.html
 **On Foreign Policy, Biden’s Agenda Faces Multiplying Challenges**\
 `The president’s call for aid to Ukraine and his pledge of assistance for Gaza came against a backdrop of Republican opposition, splits in his own party and tension with allies.`\
 https://nytimes.com/2024/03/08/us/politics/biden-foreign-policy-challenges.html
-
-**Friday Briefing**\
-`President Biden’s forceful State of the Union address.`\
-https://nytimes.com/2024/03/08/briefing/biden-trump-speech-gaza.html
-
-**The State of the Union Was Rowdy for Biden’s Election-Year Speech**\
-`The president was feisty and confrontational. Republicans jeered from their seats. And Democrats enthusiastically cheered their presidential nominee even as a few aired their grievances about the war in Gaza.`\
-https://nytimes.com/2024/03/08/us/politics/biden-state-of-the-union-rowdy.html
-
-**In-Your-Face Biden Takes on Trump and His Own Doubters**\
-`In a raucous State of the Union address, the president’s goal was to reassure Americans that at 81 he is ready for a second term. He made his case, loudly and forcefully.`\
-https://nytimes.com/2024/03/08/us/politics/biden-sotu-speech.html
-
-**A New Speaker’s Many Faces Show Everything but Approval**\
-`Representative Mike Johnson had urged his side to refrain from disruptions. He more or less succeeded at keeping Republicans under control, but his own brows, lips and eyes were another matter.`\
-https://nytimes.com/2024/03/08/us/politics/speaker-mike-johnson-facial-expressions.html
-
-**Full Transcript of Biden’s State of the Union Speech**\
-`In an address that previewed the issues his campaign will focus on in the November election, President Biden made the case for a second term.`\
-https://nytimes.com/2024/03/08/us/politics/state-of-the-union-transcript-biden.html
-
-**Selfies, Handshakes and Hugs: Biden Lingers After Last Call**\
-`President Biden soaked up the atmosphere after finishing his State of the Union address, shooting the breeze with well-wishers and taking his time before departing for the White House.`\
-https://nytimes.com/2024/03/07/us/politics/selfies-handshakes-and-hugs-biden-lingers-after-last-call.html
-
-**Father of Marine Killed in Afghanistan Is Arrested During Biden’s Address**\
-`Steve Nikoui yelled “Abbey Gate, Abbey Gate” during the speech, a reference to where his son, Lance Cpl. Kareem Nikoui, and 12 other troops were killed during the chaotic final days of the U.S. presence in Kabul.`\
-https://nytimes.com/2024/03/08/us/politics/abbey-gate-yelling-state-of-union.html
-
-**07dc-factcheck**\
-`Fact-Checking Biden’s 2024 State of the Union Address`\
-https://nytimes.com/live/2024/03/08/us/sotu-fact-check
 
