@@ -1,3 +1,11 @@
+**Iran’s 2022 Protest Crackdown Included Killings, Torture and Rape, U.N. Finds**\
+`A fact-finding mission looking into the demonstrations that followed the death of Mahsa Amini found brutality and rejected Iran’s version of Ms. Amini’s death.`\
+https://nytimes.com/2024/03/08/world/middleeast/iran-protest-mahsa-amini-un-report.html
+
+**Leave Kate Alone!**\
+`She has a right to keep her health issues private.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/leave-kate-alone
+
 **The Functional Dysfunctional Congress**\
 `Lawmakers have found a messy bipartisan way to pass spending bills, though the final test later this month promises to be much more challenging.`\
 https://nytimes.com/2024/03/08/us/politics/congress-dysfunction-spending-bills.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/03/08/arts/television/best-of-late-night-su
 **Trump Posts $91.6 Million Bond for Defamation Judgment in Carroll Case**\
 `Donald J. Trump is contending with civil penalties that are together worth more than half a billion dollars.`\
 https://nytimes.com/2024/03/08/nyregion/trump-carroll-bond-defamation.html
-
-**Asian Celebrities Were Fashion Week’s Biggest Influencers**\
-`K-pop and soccer stars, actresses and singers — the fashion week A-list increasingly hails from South Korea, Thailand and the Philippines.`\
-https://nytimes.com/2024/03/08/style/fashion-week-asian-celebrities-kpop.html
-
-**Biden Aims to Pump Energy Into Campaign After a Fiery National Address**\
-`The president will follow up his State of the Union speech with a campaign swing to several battleground states, and will begin a $30 million advertising push.`\
-https://nytimes.com/2024/03/08/us/politics/biden-campaign.html
 
