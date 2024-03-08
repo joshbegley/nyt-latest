@@ -1,3 +1,11 @@
+**Full Transcript of Biden’s State of the Union Speech**\
+`In an address that previewed the issues his campaign will focus on in the November election, President Biden made the case for a second term.`\
+https://nytimes.com/2024/03/08/us/politics/state-of-the-union-transcript-biden.html
+
+**Selfies, Handshakes and Hugs: Biden Lingers After Last Call**\
+`President Biden soaked up the atmosphere after finishing his State of the Union address, shooting the breeze with well-wishers and taking his time before departing for the White House.`\
+https://nytimes.com/2024/03/08/us/politics/selfies-handshakes-and-hugs-biden-lingers-after-last-call.html
+
 **Father of Marine Killed in Afghanistan Is Arrested During Biden’s Address**\
 `Steve Nikoui yelled “Abbey Gate, Abbey Gate” during the speech, a reference to where his son, Lance Cpl. Kareem Nikoui, and 12 other troops were killed during the chaotic final days of the U.S. presence in Kabul.`\
 https://nytimes.com/2024/03/08/us/politics/abbey-gate-yelling-state-of-union.html
