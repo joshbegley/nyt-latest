@@ -1,3 +1,11 @@
+**A Pop Culture Reporter With His Eye on the Prizes**\
+`Kyle Buchanan shares why stamina is paramount during Hollywood awards season and how he approaches interviews with media-shy (and media-savvy) celebrities.`\
+https://nytimes.com/2024/03/08/insider/oscar-awards-columnist.html
+
+**A Big Night — but Will It Matter?**\
+`There will be only one more moment before Election Day when Biden can speak to such a large audience.`\
+https://nytimes.com/2024/03/08/us/politics/biden-state-of-the-union-campaign.html
+
 **Biden Plan to Build Gaza Aid Port Could Deliver 2 Million Meals a Day**\
 `However, the planned pier and causeway will take at least a month and maybe two to complete, the Pentagon said.`\
 https://nytimes.com/2024/03/08/world/middleeast/biden-gaza-aid-port-meals.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/08/technology/sam-altman-to-return-to-openais-board-
 **Former Trump Lawyer Emerges as Challenger to Atlanta District Attorney**\
 `A Republican lawyer who has worked in the Trump White House is running to unseat Fani T. Willis, the district attorney prosecuting the Georgia election interference case.`\
 https://nytimes.com/2024/03/08/us/courtney-kramer-fani-willis-election.html
-
-**With Cyberattack Fix Weeks Away, Health Providers Slam United**\
-`Hospitals, doctors and clinics expressed frustration that they will have to wait even longer for reimbursements after hackers paralyzed the largest U.S. billing clearinghouse.`\
-https://nytimes.com/2024/03/08/health/united-healthcare-cyberattack.html
-
-**Judge to Review Prince Harry’s Visa Papers in Dispute Over Release**\
-`The documents have been sought by the Heritage Foundation in a freedom of information lawsuit. The group wants to know if the prince’s drug use was considered in granting him a U.S. visa.`\
-https://nytimes.com/2024/03/08/us/politics/prince-harry-visa-heritage-foundation.html
 

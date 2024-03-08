@@ -1,3 +1,11 @@
+**A Pop Culture Reporter With His Eye on the Prizes**\
+`Kyle Buchanan shares why stamina is paramount during Hollywood awards season and how he approaches interviews with media-shy (and media-savvy) celebrities.`\
+https://nytimes.com/2024/03/08/insider/oscar-awards-columnist.html
+
+**A Big Night — but Will It Matter?**\
+`There will be only one more moment before Election Day when Biden can speak to such a large audience.`\
+https://nytimes.com/2024/03/08/us/politics/biden-state-of-the-union-campaign.html
+
 **Biden Plan to Build Gaza Aid Port Could Deliver 2 Million Meals a Day**\
 `However, the planned pier and causeway will take at least a month and maybe two to complete, the Pentagon said.`\
 https://nytimes.com/2024/03/08/world/middleeast/biden-gaza-aid-port-meals.html
