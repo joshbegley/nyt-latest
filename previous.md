@@ -31,7 +31,7 @@ https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/the-jo
 https://nytimes.com/live/2024/03/05/opinion/thepoint/katie-britt-kitchen-response
 
 **Biden Targets Big Business and Billionaires**\
-`The president used his State of the Union address to plug his economic record and, and announce a policy wish list that involves raising taxes on multinationals and the wealthy.`\
+`The president used his State of the Union address to plug his economic record and announce a policy wish list that involves raising taxes on multinationals and the wealthy.`\
 https://nytimes.com/2024/03/08/business/dealbook/biden-sotu-big-business-billionaires.html
 
 **Battling Dress Codes at the State of the Union**\
