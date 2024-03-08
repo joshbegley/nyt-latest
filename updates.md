@@ -1,3 +1,7 @@
+**Howard Hiatt, 98, Dies; Steered Public Health Toward Greater Accountability**\
+`A physician, scientist and academic, he brought together experts across disciplines to focus on the economic, political and social causes of poor health, not just the biological factors.`\
+https://nytimes.com/2024/03/08/health/howard-hiatt-dead.html
+
 **A Pop Culture Reporter With His Eye on the Prizes**\
 `Kyle Buchanan shares why stamina is paramount during Hollywood awards season and how he approaches interviews with media-shy (and media-savvy) celebrities.`\
 https://nytimes.com/2024/03/08/insider/oscar-awards-columnist.html
