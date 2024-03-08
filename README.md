@@ -1,3 +1,11 @@
+**“We’ve already cut the federal deficit over a trillion dollars.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/weve-already-cut-the-federal-deficit-over-a-trillion-dollars
+
+**“I am cutting our carbon emissions in half by 2030.”**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/i-am-cutting-our-carbon-emissions-in-half-by-2030
+
 **America’s Reaganesque Mom: How to Praise Katie Britt, Even Before She Speaks**\
 `Talking points from the Alabama senator’s team, helpfully sent out before the State of the Union address, suggested how to extol her delivery of the Republican response.`\
 https://nytimes.com/2024/03/07/us/politics/katie-britt-talking-points-influencers.html
@@ -30,12 +38,4 @@ https://nytimes.com/2024/03/07/us/politics/george-santos-expelled-sotu.html
 `Meet a leader who’s opening new paths for girls in STEM education and the award from Clé de Peau Beauté that’s helping to expand her inspiring vision.
 `\
 https://nytimes.com/paidpost/cle-de-peau-beaute/empowering-radiant-futures-reshma-saujanis-impact-on-girls-in-stem.html
-
-**Review: In ‘Doubt,’ What He Knows, She Knows, God Knows**\
-`Liev Schreiber and Amy Ryan star in a revival of John Patrick Shanley’s moral head spinner about pride, the priesthood and presumptions of pedophilia.`\
-https://nytimes.com/2024/03/07/theater/doubt-review.html
-
-**Panel Examining Lewiston Shooting Presses Army Reservists on Gunman**\
-`A commission in Maine asked former colleagues of the shooter about key moments of inaction before the rampage.`\
-https://nytimes.com/2024/03/07/us/lewiston-maine-shooting-hearing.html
 
