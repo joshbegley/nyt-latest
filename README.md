@@ -1,3 +1,31 @@
+**Joe Biden: The Eras Tour**\
+`What we think is a question of age may be a matter of style.`\
+https://nytimes.com/2024/03/08/books/review/joe-biden-age-style.html
+
+**The Alt-Rock Legend Kim Gordon Has a New Album**\
+`And her music is as cool and experimental as ever.`\
+https://nytimes.com/2024/03/08/podcasts/the-alt-rock-legend-kim-gordon-has-a-new-album.html
+
+**Biden Portrays Next Phase of Economic Agenda as Middle-Class Lifeline**\
+`The president used his State of the Union speech to pitch tax increases for the rich, along with plans to cut costs and protect consumers.`\
+https://nytimes.com/2024/03/08/us/politics/biden-economic-agenda-middle-class-lifeline.html
+
+**Musk vs. OpenAI, Europe’s Tech Crackdown and a Month With the Vision Pro**\
+`Just when we thought the feud was cooling off, OpenAI pulled out the receipts.`\
+https://nytimes.com/2024/03/08/podcasts/musk-vs-openai-europes-tech-crackdown-and-a-month-with-the-vision-pro.html
+
+**5 Things to Do This Weekend**\
+`Selections from the Weekend section, including a review of the neo-noir film starring Kristen Stewart, “Love Lies Bleeding.”`\
+https://nytimes.com/interactive/2024/03/08/arts/weekend-editors-picks-love-lies-bleeding.html
+
+**Who’s Too ‘Sweaty’ for an Oscar?**\
+`The term, borrowed from gaming culture, means trying too hard, to the point of desperation.`\
+https://nytimes.com/interactive/2024/03/08/business/what-is-sweaty-academy-awards.html
+
+**How to Make End-of-Life Planning Less Stressful**\
+`One tip: Do it over chocolate cake.`\
+https://nytimes.com/2024/03/08/well/live/end-of-life-planning.html
+
 **The New York Times News Quiz, Mar. 8, 2024**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2024/03/08/briefing/nikki-haley-california-primary-biden-quiz.html
@@ -9,32 +37,4 @@ https://nytimes.com/interactive/2024/03/08/books/new-paperbacks-hemon.html
 **Who Still Works From Home?**\
 `Four years after the pandemic began, American employers have reached a new hybrid-work status quo.`\
 https://nytimes.com/interactive/2024/03/08/business/economy/remote-work-home.html
-
-**The Coolest Grocery Store That Never Existed**\
-`A meme portraying a City Fresh Market in Brooklyn as the “Bushwick Erewhon” confounded many as it spread on social media.`\
-https://nytimes.com/2024/03/08/style/bushwick-city-fresh-market-erewhon-tiktok.html
-
-**In Parliamentary Vote, Iranians Vented Their Rage With the Ruling Elite**\
-`Whether handing in blank ballots or voting for fringe candidates, analysts say, citizens registered their frustration with the status quo.`\
-https://nytimes.com/2024/03/08/world/middleeast/parliamentary-election-iran-conservatives.html
-
-**The Night Sky Will Soon Get ‘a New Star.’ Here’s How to See It.**\
-`A nova named T Coronae Borealis lit up the night about 80 years ago, and astronomers say it’s expected to put on another show in the coming months.`\
-https://nytimes.com/article/nova-new-star-t-coronae-borealis.html
-
-**Performance Space New York Unveils Its New Leadership Model**\
-`Taja Cheek joins the organization, a leading venue for experimental performance. She and two other executives will have equal say in big decisions.`\
-https://nytimes.com/2024/03/08/arts/design/performance-space-taja-cheek.html
-
-**An Oscar-Winning Concert Documentary That Speaks Volumes About America**\
-`“Woodstock” involved filmmakers who figure in this year’s awards ceremony.`\
-https://nytimes.com/2024/03/08/movies/woodstock-oscars.html
-
-**Are You a ‘Floor Person’? Why Lying on the Ground Feels So Good**\
-`For some, just a few minutes can quiet the mind.`\
-https://nytimes.com/2024/03/08/well/mind/floor-time-benefits.html
-
-**Teaching Kids to Count With Hermès Bags**\
-`A new book promises to do just that. Plus, a chance to buy an interior designer’s designer clothes and portrait art showcasing a rarefied breed: dandies.`\
-https://nytimes.com/2024/03/08/style/high-fashion-books.html
 
