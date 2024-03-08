@@ -1,3 +1,7 @@
+**What History and Economics Suggest About Biden-Trump, Round 2**\
+`Underlying economic and market factors mattered in previous presidential rematches. They may help President Biden, even if polls aren’t showing that so far.`\
+https://nytimes.com/2024/03/08/business/biden-trump-rematch-economy-history.html
+
 **Crypto Super PAC to Target Races in Ohio and Montana That Could Swing the Senate**\
 `The group spent millions of dollars in the Democratic Senate primary in California and is looking to influence other races in the general election.`\
 https://nytimes.com/2024/03/08/us/politics/crypto-super-pac-senate-oh-mt.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/nyregion/brian-benjamin-corruption-charges.html
 **Saturn’s Been Doing a Lot of Returning Lately**\
 `In the last month, the planet has figured in new releases by SZA, Kacey Musgraves and Ariana Grande. But for the astrologically inclined, what does a “Saturn return” signify?`\
 https://nytimes.com/2024/03/08/style/saturn-return-astrology-ariana-grande.html
-
-**Two surveys tell different stories.**\
-`Household data shows the labor market cooling and employment recently falling. How can that be reconciled with the job gains reported by employers?`\
-https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/two-surveys-tell-different-stories
 

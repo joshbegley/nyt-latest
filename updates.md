@@ -1,3 +1,7 @@
+**What History and Economics Suggest About Biden-Trump, Round 2**\
+`Underlying economic and market factors mattered in previous presidential rematches. They may help President Biden, even if polls aren’t showing that so far.`\
+https://nytimes.com/2024/03/08/business/biden-trump-rematch-economy-history.html
+
 **Pentagon Review Finds No Evidence of Alien Cover-Up**\
 `But the new report suggests that the public’s belief that the government is hiding what it knows will probably continue.`\
 https://nytimes.com/2024/03/08/us/politics/pentagon-ufo-alien-review.html
