@@ -16,7 +16,7 @@ https://nytimes.com/2024/03/07/us/politics/white-suits-women-state-of-union.html
 
 **Katie Britt, With Smiles and Menace, Delivers G.O.P. Response to Biden**\
 `The Alabama senator, 42, who has been floated as a possible running mate for Donald Trump, gave a discordant speech arguing that “our commander in chief is not in command.”`\
-https://nytimes.com/2024/03/07/us/politics/katie-britt-response.html
+https://nytimes.com/2024/03/07/us/politics/alabama-senator-gop-response.html
 
 **Biden and his team will hit the road to sell his agenda.**\
 `The presid`\
