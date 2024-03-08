@@ -2,7 +2,7 @@
 `A fact-finding mission looking into the demonstrations that followed the death of Mahsa Amini found brutality and rejected Iran’s version of Ms. Amini’s death.`\
 https://nytimes.com/2024/03/08/world/middleeast/iran-protest-mahsa-amini-un-report.html
 
-**Leave Kate Alone!**\
+**Leave Kate Middleton Alone!**\
 `She has a right to keep her health issues private.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/kate-middleton-disappearance
 
