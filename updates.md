@@ -1,3 +1,11 @@
+**Saturn’s Been Doing a Lot of Returning Lately**\
+`In the last month, the planet has figured in new releases by SZA, Kacey Musgraves and Ariana Grande. But for the astrologically inclined, what does a “Saturn return” signify?`\
+https://nytimes.com/2024/03/08/style/saturn-return-astrology-ariana-grande.html
+
+**Israel Says Its Forces ‘Fired Precisely’ During Aid Convoy Chaos**\
+`An initial review by the Israeli military of the episode differed from accounts of witnesses and Palestinian officials, who described extensive shooting after thousands massed around aid trucks.`\
+https://nytimes.com/2024/03/08/world/middleeast/israel-military-gaza-aid-convoy-report.html
+
 **Israel Says Its Forces ‘Fired Precisely’ During Aid Convoy Chaos**\
 `An initial review by the Israeli military differs from those of witnesses and Palestinian officials who described extensive shooting after thousands massed around aid trucks.`\
 https://nytimes.com/2024/03/08/world/middleeast/israel-military-gaza-aid-convoy-report.html

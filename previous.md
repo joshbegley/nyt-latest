@@ -1,3 +1,7 @@
+**Saturn’s Been Doing a Lot of Returning Lately**\
+`In the last month, the planet has figured in new releases by SZA, Kacey Musgraves and Ariana Grande. But for the astrologically inclined, what does a “Saturn return” signify?`\
+https://nytimes.com/2024/03/08/style/saturn-return-astrology-ariana-grande.html
+
 **Two surveys tell different stories.**\
 `Household data shows the labor market cooling and employment recently falling. How can that be reconciled with the job gains reported by employers?`\
 https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/two-surveys-tell-different-stories
@@ -27,14 +31,10 @@ https://nytimes.com/2024/03/08/arts/design/mercer-labs-roy-nachum-braille.html
 https://nytimes.com/2024/03/08/us/san-francisco-progressive-ballot-measures.html
 
 **Israel Says Its Forces ‘Fired Precisely’ During Aid Convoy Chaos**\
-`An initial review by the Israeli military differs from those of witnesses and Palestinian officials who described extensive shooting after thousands massed around aid trucks.`\
+`An initial review by the Israeli military of the episode differed from accounts of witnesses and Palestinian officials, who described extensive shooting after thousands massed around aid trucks.`\
 https://nytimes.com/2024/03/08/world/middleeast/israel-military-gaza-aid-convoy-report.html
 
 **The jobs report comes as the Fed considers when to cut interest rates.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/the-jobs-report-comes-as-the-fed-considers-when-to-cut-interest-rates
-
-**The Apocalypse in Katie Britt’s Kitchen**\
-`The senator’s performance was completely over the top, just the way her admirers like it.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/katie-britt-kitchen-response
 
