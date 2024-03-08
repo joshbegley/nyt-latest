@@ -1,3 +1,7 @@
+**Spurned, Slighted, Rejected: 25 Oscar Snubs We’ll Never Get Over**\
+`Greta Gerwig, you’re not alone. These artists and films memorably — outrageously in our view — got the brushoff from the academy. We’re still in disbelief.`\
+https://nytimes.com/2024/03/08/movies/oscar-snubs-history.html
+
 **9 Musicians Who Play a Role in This Year’s Oscars**\
 `Hear songs by Dua Lipa, Jarvis Cocker and yes, Bradley Cooper.`\
 https://nytimes.com/2024/03/08/arts/music/amplifier-newsletter-musicians-oscars.html

@@ -1,3 +1,7 @@
+**Spurned, Slighted, Rejected: 25 Oscar Snubs We’ll Never Get Over**\
+`Greta Gerwig, you’re not alone. These artists and films memorably — outrageously in our view — got the brushoff from the academy. We’re still in disbelief.`\
+https://nytimes.com/2024/03/08/movies/oscar-snubs-history.html
+
 **9 Musicians Who Play a Role in This Year’s Oscars**\
 `Hear songs by Dua Lipa, Jarvis Cocker and yes, Bradley Cooper.`\
 https://nytimes.com/2024/03/08/arts/music/amplifier-newsletter-musicians-oscars.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/nyregion/juan-orlando-hernandez-honduras-guilty-v
 **Trump’s State of the Union Response: Social Media Glitches and Mocking Filters**\
 `Outages on Donald Trump’s platform, Truth Social, interrupted the barrage of derogatory posts that served as his retort to President Biden’s remarks.`\
 https://nytimes.com/2024/03/08/us/politics/trump-instagram-biden-state-of-union.html
-
-**David Bordwell, Scholar Who Demystified the Art of Film, Dies at 76**\
-`Roger Ebert called him “our best writer on the cinema.” His scholarship focused on how movies work.`\
-https://nytimes.com/2024/03/08/movies/david-bordwell-dead.html
 
