@@ -1,3 +1,7 @@
+**Review: Two Electric Debuts at the New York Philharmonic**\
+`An exciting program featured the conductor Elim Chan and the cellist Sol Gabetta in a pairing of music by Martinu and Rimsky-Korsakov.`\
+https://nytimes.com/2024/03/08/arts/music/review-elim-chan-sol-gabetta-new-york-philharmonic.html
+
 **A look ‘under the hood’ reveals both strength and caution signs in the report.**\
 `By Talmon Joseph Smith`\
 https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/jobs-report-strength-caution
