@@ -1,3 +1,7 @@
+**In Two Speeches, Trump and Biden Offer Starkly Different Views of the Country**\
+`President Biden’s State of the Union address and former President Donald Trump’s victory speech on Super Tuesday conjured diametrically opposed visions of America’s past, present and future.`\
+https://nytimes.com/2024/03/08/us/politics/trump-biden-speeches.html
+
 **A Hearty Irish Bread Absolutely Anyone Can Make**\
 `This brown bread recipe, a staple of the Ballymaloe Cookery School in Cork, Ireland, is as satisfying and foolproof as they come.`\
 https://nytimes.com/2024/03/08/dining/irish-brown-bread.html
@@ -12,7 +16,7 @@ https://nytimes.com/2024/03/08/us/politics/no-labels-presidential-candidate.html
 
 **Gazan authorities say 5 people were killed in airdrop accident.**\
 `By Hiba Yazbek`\
-https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/gazan-authorities-say-5-people-were-killed-in-airdrop-accident
+https://nytimes.com/2024/03/08/world/middleeast/gazan-authorities-say-5-people-were-killed-in-airdrop-accident.html
 
 **Ex-Honduras President Found Guilty in Drug Trafficking Trial**\
 `Juan Orlando Hernández had been accused of conspiring to import cocaine into the United States and working with notorious drug traffickers like El Chapo.`\
@@ -23,7 +27,7 @@ https://nytimes.com/2024/03/08/nyregion/juan-orlando-hernandez-honduras-guilty-v
 https://nytimes.com/2024/03/08/us/politics/trump-instagram-biden-state-of-union.html
 
 **David Bordwell, Scholar Who Demystified the Art of Film, Dies at 76**\
-`Roger Ebert called him “our best writer on cinema.” His scholarship focused on how movies work.`\
+`Roger Ebert called him “our best writer on the cinema.” His scholarship focused on how movies work.`\
 https://nytimes.com/2024/03/08/movies/david-bordwell-dead.html
 
 **E.U. Will Participate in Maritime Corridor to Aid Gaza**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009351002/maritime-corridor-gaza.ht
 **One Family’s Long Road Out of Gaza**\
 `Grieving from afar but still dreaming of peace.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/gaza-refugees
-
-**What Weight Did Biden’s Words Carry?**\
-`Readers assess the State of the Union address. Also: Trump trauma; National Guard in the subway; unionized college basketball.`\
-https://nytimes.com/2024/03/08/opinion/letters/biden-state-of-union-speech.html
 

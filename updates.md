@@ -1,3 +1,15 @@
+**In Two Speeches, Trump and Biden Offer Starkly Different Views of the Country**\
+`President Biden’s State of the Union address and former President Donald Trump’s victory speech on Super Tuesday conjured diametrically opposed visions of America’s past, present and future.`\
+https://nytimes.com/2024/03/08/us/politics/trump-biden-speeches.html
+
+**Gazan authorities say 5 people were killed in airdrop accident.**\
+`By Hiba Yazbek`\
+https://nytimes.com/2024/03/08/world/middleeast/gazan-authorities-say-5-people-were-killed-in-airdrop-accident.html
+
+**David Bordwell, Scholar Who Demystified the Art of Film, Dies at 76**\
+`Roger Ebert called him “our best writer on the cinema.” His scholarship focused on how movies work.`\
+https://nytimes.com/2024/03/08/movies/david-bordwell-dead.html
+
 **A Hearty Irish Bread Absolutely Anyone Can Make**\
 `This brown bread recipe, a staple of the Ballymaloe Cookery School in Cork, Ireland, is as satisfying and foolproof as they come.`\
 https://nytimes.com/2024/03/08/dining/irish-brown-bread.html
