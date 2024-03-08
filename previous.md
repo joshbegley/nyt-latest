@@ -1,3 +1,7 @@
+**4 Takeaways From the State of the Union**\
+`Verbal swings at Donald Trump, though not by name. A spirited back-and-forth with G.O.P. lawmakers. And a loud and feisty delivery.`\
+https://nytimes.com/2024/03/07/us/politics/state-of-the-union-takeaways.html
+
 **George Santos Says He’s Running for Congress Again**\
 `Mr. Santos, who was expelled from the House in December, filed paperwork to run in a different district held by Representative Nick LaLota, a Republican.`\
 https://nytimes.com/2024/03/07/nyregion/george-santos-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/07/crosswords/daily-puzzle-2024-03-08.html
 **“15 million new jobs in just three years — a record.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/15-million-new-jobs-in-just-three-years-a-record
-
-**“In fact, my policies have attracted $650 billion in private sector investment, in clean energy, advanced manufacturing, creating tens of thousands of jobs here in America!”**\
-`By Angelo Fichera`\
-https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/in-fact-my-policies-have-attracted-650-billion-in-private-sector-investment-in-clean-energy-advanced-manufacturing-creating-tens
 
