@@ -1,3 +1,7 @@
+**Judge John Hodgman on the Gullibility Test**\
+`Should a husband be allowed to spout fake “facts”?`\
+https://nytimes.com/2024/03/08/magazine/judge-john-hodgman-on-the-gullibility-test.html
+
 **Apple Reverses Course and Allows Epic Games to Start Competing App Store**\
 `After an inquiry by European regulators, Epic Games said Apple would allow it to access the software tools necessary to develop a game store.`\
 https://nytimes.com/2024/03/08/technology/apple-epic-games-app-store.html
