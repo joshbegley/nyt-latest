@@ -1,3 +1,7 @@
+**Biden Takes His Fiery State of the Union Pitch on the Road**\
+`Also, the Pentagon found no evidence of an alien cover-up. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/03/08/briefing/biden-speech-campaign-pentagon-ufo-report.html
+
 **An audio clip emerges of Biden saying he told Netanyahu they are nearing a ‘come-to-Jesus meeting’ on Gaza aid.**\
 `By Erica L. Green`\
 https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/an-audio-clip-emerges-of-biden-saying-he-told-netanyahu-they-are-nearing-a-come-to-jesus-meeting-on-gaza-aid

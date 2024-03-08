@@ -1,3 +1,7 @@
+**Biden Takes His Fiery State of the Union Pitch on the Road**\
+`Also, the Pentagon found no evidence of an alien cover-up. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/03/08/briefing/biden-speech-campaign-pentagon-ufo-report.html
+
 **An audio clip emerges of Biden saying he told Netanyahu they are nearing a ‘come-to-Jesus meeting’ on Gaza aid.**\
 `By Erica L. Green`\
 https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/an-audio-clip-emerges-of-biden-saying-he-told-netanyahu-they-are-nearing-a-come-to-jesus-meeting-on-gaza-aid
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/business/media/biden-state-of-the-union-ratings.h
 **The Best Actress Race Is an Embarrassment of Riches**\
 `The face-off is a shout that asks those voters to pick their form of bigotry, choose their manner of cruelty.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/oscar-best-actress
-
-**Max Hardy, 40, Dies; Helped Bring Chef-Driven Cuisine to Detroit**\
-`With his unique blend of Lowcountry and Caribbean influences, he ranked among the best of a new generation of Black culinary wizards.`\
-https://nytimes.com/2024/03/08/dining/max-hardy-dead.html
 
