@@ -14,7 +14,7 @@ https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/shrinkfl
 `Mr. Jack, the final White House political director under President Donald J. Trump, will run for an open seat in a deeply conservative district with Mr. Trump’s backing.`\
 https://nytimes.com/2024/03/07/us/politics/brian-jack-trump-congress-georgia.html
 
-**Prison Escapees Are Charged With Murder of American Couple in Grenada**\
+**Grenada Prison Escapees Are Charged With Murder of American Couple**\
 `The couple, Ralph Hendry and Kathy Brandel, went missing while sailing off the coast of Grenada.`\
 https://nytimes.com/2024/03/07/world/americas/couple-boat-grenada-murder.html
 
