@@ -1,3 +1,15 @@
+**Father of Marine Killed in Afghanistan Is Arrested During Biden’s Address**\
+`Steve Nikoui yelled “Abbey Gate, Abbey Gate” during the speech, a reference to where his son, Lance Cpl. Kareem Nikoui, and 12 other troops were killed during the chaotic final days of the U.S. presence in Kabul.`\
+https://nytimes.com/2024/03/08/us/politics/abbey-gate-yelling-state-of-union.html
+
+**07dc-factcheck**\
+`Fact-Checking Biden’s 2024 State of the Union Address`\
+https://nytimes.com/live/2024/03/08/us/sotu-fact-check
+
+**How Cable News Reacted to the Speech**\
+`Television hosts responded to the State of the Union address along partisan lines. But almost everyone agreed the president was feisty.`\
+https://nytimes.com/2024/03/08/business/media/how-cable-news-reacted-to-the-speech.html
+
 **Akira Toriyama, Creator of ‘Dragon Ball,’ Dies at 68**\
 `His popular manga inspired numerous television, film and video game adaptations, reaching fans far beyond Japan’s borders.`\
 https://nytimes.com/2024/03/08/obituaries/akira-toriyama-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/08/style/rose-minutaglio-chris-marazzo-wedding.html
 **‘Decolonizing’ Ukrainian Art, One Name-and-Shame Post at a Time**\
 `Oksana Semenik’s social media campaign both educates the curious about overlooked Ukrainian artists — and pressures global museums to relabel art long described as Russian.`\
 https://nytimes.com/2024/03/08/world/europe/decolonizing-ukrainian-art-oksana-semenik.html
-
-**A Wedding Do-Over After a Broken Heart (Not the Kind You’re Thinking)**\
-`Just minutes after Eli Newell and Dr. Erika Amundson exchanged vows last spring, he was rushed to the hospital. Their second go-round was far less traumatic.`\
-https://nytimes.com/2024/03/08/style/erika-amundson-eli-newell-wedding.html
-
-**An Instant Crush Over Mashed Potatoes**\
-`Luke Robinson was rendered nearly speechless as he grabbed takeout from Gustavo Lopes, whose first impression was a little less romantic.`\
-https://nytimes.com/2024/03/08/style/luke-robinson-gustavo-lopes-wedding.html
-
-**Biden Spars With Marjorie Taylor Greene About a Murder He Said Was Committed ‘by an Illegal’**\
-`The far-right representative from Georgia with a history of interrupting the president at the State of the Union, shouted at Mr. Biden about crimes committed by undocumented migrants, leading him to go off script.`\
-https://nytimes.com/2024/03/07/us/politics/laken-riley-sotu-biden-marjorie-taylor-greene.html
 

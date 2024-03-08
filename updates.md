@@ -1,3 +1,15 @@
+**Father of Marine Killed in Afghanistan Is Arrested During Biden’s Address**\
+`Steve Nikoui yelled “Abbey Gate, Abbey Gate” during the speech, a reference to where his son, Lance Cpl. Kareem Nikoui, and 12 other troops were killed during the chaotic final days of the U.S. presence in Kabul.`\
+https://nytimes.com/2024/03/08/us/politics/abbey-gate-yelling-state-of-union.html
+
+**07dc-factcheck**\
+`Fact-Checking Biden’s 2024 State of the Union Address`\
+https://nytimes.com/live/2024/03/08/us/sotu-fact-check
+
+**How Cable News Reacted to the Speech**\
+`Television hosts responded to the State of the Union address along partisan lines. But almost everyone agreed the president was feisty.`\
+https://nytimes.com/2024/03/08/business/media/how-cable-news-reacted-to-the-speech.html
+
 **Akira Toriyama, Creator of ‘Dragon Ball,’ Dies at 68**\
 `His popular manga inspired numerous television, film and video game adaptations, reaching fans far beyond Japan’s borders.`\
 https://nytimes.com/2024/03/08/obituaries/akira-toriyama-dead.html
