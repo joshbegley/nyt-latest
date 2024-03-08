@@ -1,3 +1,15 @@
+**Judge Upholds Biden Program Giving Some Immigrants Short-Term Legal Status**\
+`The initiative allows up to 360,000 people a year from Cuba, Haiti, Nicaragua and Venezuela to live and work in the United States if supported by a financial sponsor.`\
+https://nytimes.com/2024/03/08/us/biden-texas-temporary-status-program-immigration.html
+
+**Mexican Officers Shoot and Kill Student From Rural Teachers College**\
+`The 23-year-old victim was enrolled at the same school that 43 students attended before they were abducted in 2014.`\
+https://nytimes.com/2024/03/08/world/americas/mexico-police-student-death-shooting.html
+
+**With Goku, Akira Toriyama Created a Hero That Crossed Generations and Continents**\
+`The creator of “Dragon Ball” helped bring anime to the world. Its main character became a cultural phenomenon.`\
+https://nytimes.com/2024/03/08/arts/television/akira-toriyama-dragon-ball-goku.html
+
 **Sam Altman to Return to OpenAI’s Board of Directors**\
 `Mr. Altman was among new additions to the board announced on Friday, more than three months after he was briefly forced out of the company.`\
 https://nytimes.com/2024/03/08/technology/sam-altman-to-return-to-openais-board-of-directors.html
