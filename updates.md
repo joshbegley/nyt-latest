@@ -1,3 +1,11 @@
+**Ronny Jackson, Former White House Physician, Was Demoted by the Navy**\
+`Now a Republican member of the House and a Trump ally, his previously unpublicized demotion from rear admiral to captain came after a Pentagon investigation found misconduct on the job.`\
+https://nytimes.com/2024/03/07/us/politics/ronny-jackson-demoted-navy.html
+
+**Biden will put abortion center-stage in his address.**\
+`By Erica L. Green and Lisa Lerer`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-will-put-abortion-center-stage-in-his-address
+
 **Public Workers Joined Ring That Stole IDs of Homeless People, D.A. Says**\
 `Eighteen people, including nine New York City public employees, were charged with joining a conspiracy that made ghost guns and defrauded a state Covid relief program.`\
 https://nytimes.com/2024/03/07/nyregion/nyc-investigation-da-employees.html
