@@ -1,3 +1,11 @@
+**Iran’s 2022 Protest Crackdown Included Killings, Torture and Rape, U.N. Finds**\
+`A fact-finding mission looking into the demonstrations that followed the death of Mahsa Amini found brutality and rejected Iran’s version of Ms. Amini’s death.`\
+https://nytimes.com/2024/03/08/world/middleeast/iran-protest-mahsa-amini-un-report.html
+
+**Leave Kate Alone!**\
+`She has a right to keep her health issues private.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/leave-kate-alone
+
 **The Functional Dysfunctional Congress**\
 `Lawmakers have found a messy bipartisan way to pass spending bills, though the final test later this month promises to be much more challenging.`\
 https://nytimes.com/2024/03/08/us/politics/congress-dysfunction-spending-bills.html
