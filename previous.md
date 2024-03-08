@@ -1,3 +1,7 @@
+**Panel Examining Lewiston Shooting Presses Army Reservists on Gunman**\
+`A commission in Maine asked former colleagues of the shooter about key moments of inaction before the rampage.`\
+https://nytimes.com/2024/03/07/us/lewiston-maine-shooting-hearing.html
+
 **Ronny Jackson, Former White House Physician, Was Demoted by the Navy**\
 `Now a Republican member of the House and a Trump ally, his previously unpublicized demotion from rear admiral to captain came after a Pentagon investigation found misconduct on the job.`\
 https://nytimes.com/2024/03/07/us/politics/ronny-jackson-demoted-navy.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/shrinkfl
 **Brian Jack, a Trump Adviser, Will Run for Congress in Georgia**\
 `Mr. Jack, the final White House political director under President Donald J. Trump, will run for an open seat in a deeply conservative district with Mr. Trump’s backing.`\
 https://nytimes.com/2024/03/07/us/politics/brian-jack-trump-congress-georgia.html
-
-**Grenada Prison Escapees Are Charged With Murder of American Couple**\
-`The couple, Ralph Hendry and Kathy Brandel, went missing while sailing off the coast of Grenada.`\
-https://nytimes.com/2024/03/07/world/americas/couple-boat-grenada-murder.html
 
