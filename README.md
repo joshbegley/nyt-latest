@@ -16,7 +16,7 @@ https://nytimes.com/2024/03/08/us/politics/no-labels-presidential-candidate.html
 
 **Gazan authorities say 5 people were killed in airdrop accident.**\
 `By Hiba Yazbek`\
-https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/gazan-authorities-say-5-people-were-killed-in-airdrop-accident
+https://nytimes.com/2024/03/08/world/middleeast/gazan-authorities-say-5-people-were-killed-in-airdrop-accident.html
 
 **Ex-Honduras President Found Guilty in Drug Trafficking Trial**\
 `Juan Orlando Hernández had been accused of conspiring to import cocaine into the United States and working with notorious drug traffickers like El Chapo.`\
@@ -27,7 +27,7 @@ https://nytimes.com/2024/03/08/nyregion/juan-orlando-hernandez-honduras-guilty-v
 https://nytimes.com/2024/03/08/us/politics/trump-instagram-biden-state-of-union.html
 
 **David Bordwell, Scholar Who Demystified the Art of Film, Dies at 76**\
-`Roger Ebert called him “our best writer on cinema.” His scholarship focused on how movies work.`\
+`Roger Ebert called him “our best writer on the cinema.” His scholarship focused on how movies work.`\
 https://nytimes.com/2024/03/08/movies/david-bordwell-dead.html
 
 **E.U. Will Participate in Maritime Corridor to Aid Gaza**\
