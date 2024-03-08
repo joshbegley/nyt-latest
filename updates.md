@@ -1,4 +1,12 @@
 **Former Republican Candidate for U.S. House Is Charged With Murder**\
+`Dan Rodimer, who promoted former President Trump’s endorsement in two failed bids for Congress, was charged with killing a man at a Las Vegas Strip resort in October.`\
+https://nytimes.com/2024/03/08/us/politics/ex-gop-candidate-dan-rodimer-murder.html
+
+**Ratings Jump 18% for Biden’s Feisty State of the Union**\
+`President Biden attracted about five million more viewers than last year for his prime-time address on Thursday, Nielsen said.`\
+https://nytimes.com/2024/03/08/business/media/biden-state-of-the-union-ratings.html
+
+**Former Republican Candidate for U.S. House Is Charged With Murder**\
 `Dan Rodimer, who touted former President Trump’s endorsement in two failed bids for Congress, was charged with killing a man at a Las Vegas Strip resort in October.`\
 https://nytimes.com/2024/03/08/us/politics/ex-gop-candidate-dan-rodimer-murder.html
 

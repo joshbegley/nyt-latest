@@ -11,15 +11,15 @@ https://nytimes.com/2024/03/08/health/united-healthcare-cyberattack.html
 https://nytimes.com/2024/03/08/us/politics/prince-harry-visa-heritage-foundation.html
 
 **Former Republican Candidate for U.S. House Is Charged With Murder**\
-`Dan Rodimer, who touted former President Trump’s endorsement in two failed bids for Congress, was charged with killing a man at a Las Vegas Strip resort in October.`\
+`Dan Rodimer, who promoted former President Trump’s endorsement in two failed bids for Congress, was charged with killing a man at a Las Vegas Strip resort in October.`\
 https://nytimes.com/2024/03/08/us/politics/ex-gop-candidate-dan-rodimer-murder.html
 
 **The U.N. human rights chief warns that Israeli settlements could amount to war crimes.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/the-un-human-rights-chief-warns-that-israeli-settlements-could-amount-to-war-crimes
 
-**More Tuned In for State of the Union Than Last Year**\
-`President Biden attracted a bigger prime-time audience for a feisty and high-energy speech, according to early figures released by Nielsen.`\
+**Ratings Jump 18% for Biden’s Feisty State of the Union**\
+`President Biden attracted about five million more viewers than last year for his prime-time address on Thursday, Nielsen said.`\
 https://nytimes.com/2024/03/08/business/media/biden-state-of-the-union-ratings.html
 
 **The Best Actress Race Is an Embarrassment of Riches**\
