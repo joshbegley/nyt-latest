@@ -14,9 +14,9 @@ https://nytimes.com/2024/03/08/books/review/podcast-percival-everett-erasure.htm
 `The group said it had voted to nominate a ticket, but did not announce which candidate might run on its ballot line. Democrats have worried that such a bid could siphon support from President Biden.`\
 https://nytimes.com/2024/03/08/us/politics/no-labels-presidential-candidate.html
 
-**Gazan authorities say 5 people were killed in airdrop accident.**\
-`By Hiba Yazbek`\
-https://nytimes.com/2024/03/08/world/middleeast/gazan-authorities-say-5-people-were-killed-in-airdrop-accident.html
+**Gaza Authorities Say Accident Involving Airdropped Aid Killed 5**\
+`If confirmed, the deaths would underscore the dangers and difficulties of relying on airdrops to get food to people facing severe hunger in northern Gaza after five months of war.`\
+https://nytimes.com/2024/03/08/world/middleeast/gaza-deaths-airdrop-aid.html
 
 **Ex-Honduras President Found Guilty in Drug Trafficking Trial**\
 `Juan Orlando Hernández had been accused of conspiring to import cocaine into the United States and working with notorious drug traffickers like El Chapo.`\

@@ -1,3 +1,7 @@
+**Gaza Authorities Say Accident Involving Airdropped Aid Killed 5**\
+`If confirmed, the deaths would underscore the dangers and difficulties of relying on airdrops to get food to people facing severe hunger in northern Gaza after five months of war.`\
+https://nytimes.com/2024/03/08/world/middleeast/gaza-deaths-airdrop-aid.html
+
 **In Two Speeches, Trump and Biden Offer Starkly Different Views of the Country**\
 `President Biden’s State of the Union address and former President Donald Trump’s victory speech on Super Tuesday conjured diametrically opposed visions of America’s past, present and future.`\
 https://nytimes.com/2024/03/08/us/politics/trump-biden-speeches.html
