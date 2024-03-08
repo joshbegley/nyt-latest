@@ -1,3 +1,7 @@
+**‘Shrinkflation’ is a popular talking point. Here’s how it works in practice.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/shrinkflation-is-a-popular-talking-point-heres-how-it-works-in-practice
+
 **Brian Jack, a Trump Adviser, Will Run for Congress in Georgia**\
 `Mr. Jack, the final White House political director under President Donald J. Trump, will run for an open seat in a deeply conservative district with Mr. Trump’s backing.`\
 https://nytimes.com/2024/03/07/us/politics/brian-jack-trump-congress-georgia.html
