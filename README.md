@@ -16,7 +16,7 @@ https://nytimes.com/2024/03/07/world/australia/new-zealand-news-media.html
 
 **4 Takeaways From the State of the Union**\
 `Verbal swings at Donald Trump, though not by name. A spirited back-and-forth with G.O.P. lawmakers. And a loud and feisty delivery.`\
-https://nytimes.com/2024/03/07/us/politics/state-of-the-union-takeaways.html
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/state-of-the-union-takeaways
 
 **George Santos Says He’s Running for Congress Again**\
 `Mr. Santos, who was expelled from the House in December, filed paperwork to run in a different district held by Representative Nick LaLota, a Republican.`\
