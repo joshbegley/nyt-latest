@@ -1,3 +1,7 @@
+**Judge John Hodgman on the Gullibility Test**\
+`Should a husband be allowed to spout fake “facts”?`\
+https://nytimes.com/2024/03/08/magazine/judge-john-hodgman-on-the-gullibility-test.html
+
 **Apple Reverses Course and Allows Epic Games to Start Competing App Store**\
 `After an inquiry by European regulators, Epic Games said Apple would allow it to access the software tools necessary to develop a game store.`\
 https://nytimes.com/2024/03/08/technology/apple-epic-games-app-store.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/us/politics/no-labels-presidential-candidate.html
 **Gaza Authorities Say Accident Involving Airdropped Aid Killed 5**\
 `If confirmed, the deaths would underscore the dangers and difficulties of relying on airdrops to get food to people facing severe hunger in northern Gaza after five months of war.`\
 https://nytimes.com/2024/03/08/world/middleeast/gaza-deaths-airdrop-aid.html
-
-**Ex-Honduras President Found Guilty in Drug Trafficking Trial**\
-`Juan Orlando Hernández had been accused of conspiring to import cocaine into the United States and working with notorious drug traffickers like El Chapo.`\
-https://nytimes.com/2024/03/08/nyregion/juan-orlando-hernandez-honduras-guilty-verdict.html
 
