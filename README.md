@@ -1,3 +1,7 @@
+**More Tuned In for State of the Union Than Last Year**\
+`President Biden attracted a bigger prime-time audience for a feisty and high-energy speech, according to early figures released by Nielsen.`\
+https://nytimes.com/2024/03/08/business/media/biden-state-of-the-union-ratings.html
+
 **The Best Actress Race Is an Embarrassment of Riches**\
 `The face-off is a shout that asks those voters to pick their form of bigotry, choose their manner of cruelty.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/oscar-best-actress
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/us/oil-spill-huntington-beach-california.html
 **Abolish the Razzies**\
 `When your jokey awards ceremony has to self-police to not traumatize children, maybe the world doesn’t need your jokey awards ceremony anymore.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/razzies-2024-abolish
-
-**Republicans’ Big F.B.I. Cut Came From Scrapping One Senator’s Earmark**\
-`The G.O.P. has boasted about cutting the budget of what it calls the “weaponized” F.B.I. by 6 percent. Most of that came from wiping out the pet project of retired Senator Richard C. Shelby.`\
-https://nytimes.com/2024/03/08/us/politics/fbi-budget-earmark.html
 
