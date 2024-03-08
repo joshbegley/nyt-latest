@@ -1,3 +1,11 @@
+**The Best of Late Night This Week**\
+`Major political developments kept the hosts busy this week, including a crucial Supreme Court ruling and Super Tuesday, which all but solidified the 2024 presidential candidates. Here’s what they had to say.`\
+https://nytimes.com/interactive/2024/03/08/arts/television/best-of-late-night-super-tuesday.html
+
+**Trump Posts $91.6 Million Bond for Defamation Judgment in Carroll Case**\
+`Donald J. Trump is contending with civil penalties that are together worth more than half a billion dollars.`\
+https://nytimes.com/2024/03/08/nyregion/trump-carroll-bond-defamation.html
+
 **Asian Celebrities Were Fashion Week’s Biggest Influencers**\
 `K-pop and soccer stars, actresses and singers — the fashion week A-list increasingly hails from South Korea, Thailand and the Philippines.`\
 https://nytimes.com/2024/03/08/style/asian-celebrities-were-fashion-weeks-biggest-influencers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/08/world/europe/liverpool-manchester-city-rodri.html
 **Don’t Be Fooled by a Big Jobs Gain**\
 `A weak job report could help give the Federal Reserve the confidence to start cutting interest rates.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/jobs-data-february
-
-**Ariana Grande Spins Heartbreak Into Gold on ‘Eternal Sunshine’**\
-`The pop star sets the end of a romance and the start of a new one to a soundtrack awash in lavish atmosphere and adventurous melodies, with help from Max Martin.`\
-https://nytimes.com/2024/03/08/arts/music/ariana-grande-eternal-sunshine-review.html
-
-**Transcript: Ezra Klein Interviews Mary Ziegler**\
-`The March 8, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/03/08/podcasts/transcript-ezra-klein-interviews-mary-ziegler.html
 

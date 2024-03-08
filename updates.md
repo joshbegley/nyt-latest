@@ -1,3 +1,11 @@
+**The Best of Late Night This Week**\
+`Major political developments kept the hosts busy this week, including a crucial Supreme Court ruling and Super Tuesday, which all but solidified the 2024 presidential candidates. Here’s what they had to say.`\
+https://nytimes.com/interactive/2024/03/08/arts/television/best-of-late-night-super-tuesday.html
+
+**Trump Posts $91.6 Million Bond for Defamation Judgment in Carroll Case**\
+`Donald J. Trump is contending with civil penalties that are together worth more than half a billion dollars.`\
+https://nytimes.com/2024/03/08/nyregion/trump-carroll-bond-defamation.html
+
 **Asian Celebrities Were Fashion Week’s Biggest Influencers**\
 `K-pop and soccer stars, actresses and singers — the fashion week A-list increasingly hails from South Korea, Thailand and the Philippines.`\
 https://nytimes.com/2024/03/08/style/asian-celebrities-were-fashion-weeks-biggest-influencers.html
