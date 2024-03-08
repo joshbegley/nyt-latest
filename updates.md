@@ -1,3 +1,7 @@
+**‘The Late Show’ Goes Live to Recap the State of the Union**\
+`“Depending on what happens in November, next year might just be a Kid Rock concert and an immigrant catapult,” Stephen Colbert joked.`\
+https://nytimes.com/2024/03/08/arts/television/the-late-show-live-sotu.html
+
 **How New York’s Schoolchildren Got Their French Toast Sticks Back**\
 `Mayor Eric Adams’s administration reversed course on school menu cuts after an uproar among students over the loss of popular items.`\
 https://nytimes.com/2024/03/08/nyregion/nyc-school-cafeteria-food-cuts-reversed-adams.html
