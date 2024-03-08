@@ -1,3 +1,7 @@
+**Israel Says Its Forces ‘Fired Precisely’ During Aid Convoy Chaos**\
+`An initial review by the Israeli military differs from those of witnesses and Palestinian officials who described extensive shooting after thousands massed around aid trucks.`\
+https://nytimes.com/2024/03/08/world/middleeast/israel-military-gaza-aid-convoy-report.html
+
 **Israeli forces ‘fired precisely’ at Gazans during chaos near an aid convoy, the military says in an initial review.**\
 `The Israeli military account differs from those of witnesses and Palestinian officials who described extensive shooting after thousands massed around an aid convoy.`\
 https://nytimes.com/2024/03/08/world/middleeast/israel-military-gaza-aid-convoy-report.html
