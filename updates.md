@@ -1,3 +1,11 @@
+**The State of the Union Was Rowdy for Biden’s Election-Year Speech**\
+`The president was feisty and confrontational. Republicans jeered from their seats. And Democrats enthusiastically cheered their presidential nominee even as a few aired their grievances about the war in Gaza.`\
+https://nytimes.com/2024/03/08/us/politics/biden-state-of-the-union-rowdy.html
+
+**Akira Toriyama, Creator of ‘Dragon Ball,’ Dies at 68**\
+`His popular manga inspired numerous television, film and video game adaptations, reaching fans far beyond Japan’s borders.`\
+https://nytimes.com/2024/03/08/arts/akira-toriyama-dead.html
+
 **Selfies, Handshakes and Hugs: Biden Lingers After Last Call**\
 `President Biden soaked up the atmosphere after finishing his State of the Union address, shooting the breeze with well-wishers and taking his time before departing for the White House.`\
 https://nytimes.com/2024/03/07/us/politics/selfies-handshakes-and-hugs-biden-lingers-after-last-call.html

@@ -1,3 +1,7 @@
+**The State of the Union Was Rowdy for Biden’s Election-Year Speech**\
+`The president was feisty and confrontational. Republicans jeered from their seats. And Democrats enthusiastically cheered their presidential nominee even as a few aired their grievances about the war in Gaza.`\
+https://nytimes.com/2024/03/08/us/politics/biden-state-of-the-union-rowdy.html
+
 **In-Your-Face Biden Takes on Trump and His Own Doubters**\
 `In a raucous State of the Union address, the president’s goal was to reassure Americans that at 81 he is ready for a second term. He made his case, loudly and forcefully.`\
 https://nytimes.com/2024/03/08/us/politics/biden-sotu-speech.html
@@ -28,13 +32,9 @@ https://nytimes.com/2024/03/08/business/media/how-cable-news-reacted-to-the-spee
 
 **Akira Toriyama, Creator of ‘Dragon Ball,’ Dies at 68**\
 `His popular manga inspired numerous television, film and video game adaptations, reaching fans far beyond Japan’s borders.`\
-https://nytimes.com/2024/03/08/obituaries/akira-toriyama-dead.html
+https://nytimes.com/2024/03/08/arts/akira-toriyama-dead.html
 
 **Ireland to Vote on Replacing Women ‘in the Home’ Language in Constitution**\
 `The country will consider two amendments: one to remove the reference to a woman’s domestic duties and another to expand the definition of family.`\
 https://nytimes.com/2024/03/08/world/europe/ireland-constitution-referendum-women.html
-
-**Quotation of the Day: Where Are The Women Working in Hollywood?**\
-`Quotation of the Day for Friday, March 8, 2024.`\
-https://nytimes.com/2024/03/08/pageoneplus/quotation-of-the-day-where-are-the-women-working-in-hollywood.html
 
