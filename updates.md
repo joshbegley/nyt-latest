@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Mary Ziegler**\
+`The March 8, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/03/08/podcasts/transcript-ezra-klein-interviews-mary-ziegler.html
+
 **The Quiet Man Who Makes Fashion Brands Pop**\
 `Known for his spare design sense, Eric Wrenn is an “industry secret” trusted by designers and artists.`\
 https://nytimes.com/2024/03/08/style/brand-design-eric-wrenn.html

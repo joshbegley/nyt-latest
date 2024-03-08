@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Mary Ziegler**\
+`The March 8, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/03/08/podcasts/transcript-ezra-klein-interviews-mary-ziegler.html
+
 **The Quiet Man Who Makes Fashion Brands Pop**\
 `Known for his spare design sense, Eric Wrenn is an “industry secret” trusted by designers and artists.`\
 https://nytimes.com/2024/03/08/style/brand-design-eric-wrenn.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/your-money/car-loans-rates.html
 **An Instagram-Ready Immersive Museum Uses Braille. But Is It Accessible?**\
 `Roy Nachum designed the spectacle-filled Mercer Labs, which he touts as inclusive. But some advocates for blind people say his use of Braille can feel exploitative.`\
 https://nytimes.com/2024/03/08/arts/design/mercer-labs-roy-nachum-braille.html
-
-**Has San Francisco Lost Its Liberal Soul?**\
-`In a city known as a progressive bastion, voters resoundingly passed two conservative-leaning ballot measures this week, on police authority and drug screening.`\
-https://nytimes.com/2024/03/08/us/san-francisco-progressive-ballot-measures.html
 
