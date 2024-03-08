@@ -1,3 +1,7 @@
+**Max Hardy, 40, Dies; Helped Bring Chef-Driven Cuisine to Detroit**\
+`With his unique blend of Lowcountry and Caribbean influences, he ranked among the best of a new generation of Black culinary wizards.`\
+https://nytimes.com/2024/03/08/dining/max-hardy-dead.html
+
 **Europe and U.S. Plan to Supply Gaza by Sea, but Aid Groups Say It’s Not Enough**\
 `Relief organizations say cumbersome new strategies cannot substitute for Israel allowing more supply trucks into the Gaza Strip, while an airdrop of aid reportedly went awry and killed five people.`\
 https://nytimes.com/2024/03/08/world/middleeast/gaza-aid-by-sea.html

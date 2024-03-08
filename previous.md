@@ -1,3 +1,7 @@
+**Max Hardy, 40, Dies; Helped Bring Chef-Driven Cuisine to Detroit**\
+`With his unique blend of Lowcountry and Caribbean influences, he ranked among the best of a new generation of Black culinary wizards.`\
+https://nytimes.com/2024/03/08/dining/max-hardy-dead.html
+
 **Europe and U.S. Plan to Supply Gaza by Sea, but Aid Groups Say It’s Not Enough**\
 `Relief organizations say cumbersome new strategies cannot substitute for Israel allowing more supply trucks into the Gaza Strip, while an airdrop of aid reportedly went awry and killed five people.`\
 https://nytimes.com/2024/03/08/world/middleeast/gaza-aid-by-sea.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/us/politics/fbi-budget-earmark.html
 **To Make ‘The Notebook’ a Musical, She Wove in Memories of Her Parents**\
 `Family history is “wrapped up in these songs,” said the singer-songwriter Ingrid Michaelson, who is making the leap to Broadway with an adaptation of the popular romance novel.`\
 https://nytimes.com/2024/03/08/theater/ingrid-michaelson-the-notebook-broadway.html
-
-**Who’s Afraid of the Big Black Suit?**\
-`As so many Oscars hopefuls do, it is time to make friends with the tuxedo.`\
-https://nytimes.com/2024/03/08/style/oscars-tuxedos-black-tie.html
 
