@@ -1,3 +1,7 @@
+**Apple Reverses Course and Allows Epic Games to Start Competing App Store**\
+`After an inquiry by European regulators, Epic Games said Apple would allow it to access the software tools necessary to develop a game store.`\
+https://nytimes.com/2024/03/08/technology/apple-epic-games-app-store.html
+
 **Spurned, Slighted, Rejected: 25 Oscar Snubs We’ll Never Get Over**\
 `Greta Gerwig, you’re not alone. These artists and films memorably — outrageously in our view — got the brushoff from the academy. We’re still in disbelief.`\
 https://nytimes.com/2024/03/08/movies/oscar-snubs-history.html
