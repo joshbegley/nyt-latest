@@ -1,3 +1,7 @@
+**How Would You Describe the State of Our Union?**\
+`President Biden says it’s “strong and getting stronger.” Do you agree? How do you think the country is doing right now?`\
+https://nytimes.com/2024/03/08/learning/how-would-you-describe-the-state-of-our-union.html
+
 **A.L.S. Drug Relyvrio Fails Clinical Trial and May Be Withdrawn From the Market**\
 `Leaders of the treatment’s manufacturer, Amylyx, said they would announce their plans for it within eight weeks.`\
 https://nytimes.com/2024/03/08/health/als-drug-relyvrio.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/podcasts/biden-state-union-rnc-oscars.html
 **The State of the Union**\
 `Delivering the final annual address of his first term, President Biden made the case for a second.`\
 https://nytimes.com/2024/03/08/podcasts/the-daily/biden-state-of-the-union.html
-
-**Biden Vows to ‘Save the Planet From the Climate Crisis’**\
-`In his speech to Congress, the president spoke in sweeping terms about global warming, and contrasted his record with that of Donald Trump.`\
-https://nytimes.com/2024/03/08/climate/biden-state-of-the-union-climate.html
 
