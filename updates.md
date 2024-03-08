@@ -1,3 +1,15 @@
+**Democratic Women Keep Up Their Tradition of Wearing Suffragist White**\
+`The show of solidarity at State of the Union addresses started during Donald Trump’s presidency.`\
+https://nytimes.com/2024/03/07/us/politics/white-suits-women-state-of-union.html
+
+**Katie Britt, With Smiles and Menace, Delivers G.O.P. Response to Biden**\
+`The Alabama senator, 42, who has been floated as a possible running mate for Donald Trump, gave a discordant speech arguing that “our commander in chief is not in command.”`\
+https://nytimes.com/2024/03/07/us/politics/katie-britt-response.html
+
+**4 Takeaways From the State of the Union**\
+`Verbal swings at Donald Trump, though not by name. A spirited back-and-forth with G.O.P. lawmakers. And a loud and feisty delivery.`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/state-of-the-union-takeaways
+
 **Biden and his team will hit the road to sell his agenda.**\
 `The presid`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-and-his-team-will-hit-the-road-to-sell-his-agenda

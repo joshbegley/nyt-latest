@@ -1,3 +1,11 @@
+**Democratic Women Keep Up Their Tradition of Wearing Suffragist White**\
+`The show of solidarity at State of the Union addresses started during Donald Trump’s presidency.`\
+https://nytimes.com/2024/03/07/us/politics/white-suits-women-state-of-union.html
+
+**Katie Britt, With Smiles and Menace, Delivers G.O.P. Response to Biden**\
+`The Alabama senator, 42, who has been floated as a possible running mate for Donald Trump, gave a discordant speech arguing that “our commander in chief is not in command.”`\
+https://nytimes.com/2024/03/07/us/politics/katie-britt-response.html
+
 **Biden and his team will hit the road to sell his agenda.**\
 `The presid`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-and-his-team-will-hit-the-road-to-sell-his-agenda
@@ -8,7 +16,7 @@ https://nytimes.com/2024/03/07/world/australia/new-zealand-news-media.html
 
 **4 Takeaways From the State of the Union**\
 `Verbal swings at Donald Trump, though not by name. A spirited back-and-forth with G.O.P. lawmakers. And a loud and feisty delivery.`\
-https://nytimes.com/2024/03/07/us/politics/state-of-the-union-takeaways.html
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/state-of-the-union-takeaways
 
 **George Santos Says He’s Running for Congress Again**\
 `Mr. Santos, who was expelled from the House in December, filed paperwork to run in a different district held by Representative Nick LaLota, a Republican.`\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/weve-alr
 **“I am cutting our carbon emissions in half by 2030.”**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/i-am-cutting-our-carbon-emissions-in-half-by-2030
-
-**America’s Reaganesque Mom: How to Praise Katie Britt, Even Before She Speaks**\
-`Talking points from the Alabama senator’s team, helpfully sent out before the State of the Union address, suggested how to extol her delivery of the Republican response.`\
-https://nytimes.com/2024/03/07/us/politics/katie-britt-talking-points-influencers.html
-
-**Variety: Acrostic**\
-`David Balton and Jane Stewart’s puzzle is about an incredible history.`\
-https://nytimes.com/2024/03/07/crosswords/variety-acrostic.html
 
