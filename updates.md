@@ -1,3 +1,7 @@
+**Address Showed Biden Seeking Tricky Balance on Immigration**\
+`The president used his State of the Union speech to try to demonstrate that he could be tough on the border without demonizing immigrants.`\
+https://nytimes.com/2024/03/08/us/politics/biden-immigration-state-of-the-union.html
+
 **Wide Ramifications Seen for Brain Damage Found in Maine Gunman**\
 `Exposure to blasts, even at low levels, may play a much greater role in veterans’ mental health struggles than has been known, with implications for treatment strategies and for criminal justice.`\
 https://nytimes.com/2024/03/08/us/lewiston-mass-shooting-robert-card.html
