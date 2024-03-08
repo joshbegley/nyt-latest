@@ -1,3 +1,7 @@
+**The Best Actress Race Is an Embarrassment of Riches**\
+`The face-off is a shout that asks those voters to pick their form of bigotry, choose their manner of cruelty.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/oscar-best-actress
+
 **Max Hardy, 40, Dies; Helped Bring Chef-Driven Cuisine to Detroit**\
 `With his unique blend of Lowcountry and Caribbean influences, he ranked among the best of a new generation of Black culinary wizards.`\
 https://nytimes.com/2024/03/08/dining/max-hardy-dead.html
