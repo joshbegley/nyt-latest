@@ -1,3 +1,7 @@
+**Biden Spars With Marjorie Taylor Greene About a Murder He Said Was Committed ‘by an Illegal’**\
+`The far-right representative from Georgia with a history of interrupting the president at the State of the Union, shouted at Mr. Biden about crimes committed by undocumented migrants, leading him to go off script.`\
+https://nytimes.com/2024/03/07/us/politics/laken-riley-sotu-biden-marjorie-taylor-greene.html
+
 **The Republican Party wants “families to grow. It’s why we strongly support continued nationwide access to in vitro fertilization.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/the-republican-party-wants-families-to-grow-its-why-we-strongly-support-continued-nationwide-access-to-in-vitro-fertilization
@@ -7,7 +11,7 @@ https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/the-repu
 https://nytimes.com/2022/03/01/us/politics/biden-sotu.html
 
 **Biden’s Border Taunts Clearly Hit a Republican Nerve**\
-`His provocation on this issue may have been the most successful moment of the evening.`\
+`His provocation on this issue might have been the most successful moment of the evening.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-border-republicans
 
 **With Unusual Speed, Hong Kong Pushes Strict New Security Law**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/biden-an
 **A ‘Tipping Point’ for News in New Zealand**\
 `“There was no single trigger that caused this,” James Gibbons, a regional executive at Warner Bros Discovery, said.`\
 https://nytimes.com/2024/03/07/world/australia/new-zealand-news-media.html
-
-**5 Takeaways From the State of the Union**\
-`Verbal swings at Donald Trump, though not by name. A spirited back-and-forth with G.O.P. lawmakers. And a loud and feisty delivery.`\
-https://nytimes.com/2024/03/07/us/politics/state-of-the-union-takeaways.html
 
