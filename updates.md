@@ -1,3 +1,11 @@
+**Five International Movies to Stream Now**\
+`This month’s picks include a coming-of-age story set in Quebec, an observational Tunisian drama, an erotic French movie about a strip club and more.`\
+https://nytimes.com/2024/03/08/movies/international-movies-streaming.html
+
+**Trump Ally and Daughter-in-Law Officially Take Over R.N.C. Leadership**\
+`With the installation of Lara Trump and Michael Whatley, Donald Trump tightened his already firm grip on the party apparatus.`\
+https://nytimes.com/2024/03/08/us/politics/trump-rnc-lara-michael-whatley.html
+
 **Leave Kate Middleton Alone!**\
 `She has a right to keep her health issues private.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/kate-middleton-disappearance
