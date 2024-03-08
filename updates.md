@@ -1,3 +1,11 @@
+**Activists Deface Portrait of Balfour, Who Supported Jewish Homeland**\
+`A pro-Palestinian group slashed and spray-painted a century-old portrait of the author of the Balfour Declaration at the University of Cambridge in England.`\
+https://nytimes.com/2024/03/08/arts/design/balfour-declaration-portrait-slashed.html
+
+**The Big Number: $1 Billion**\
+`New York Community Bank's new management team is working to reassure investors and regulators that a cash infusion will help it right itself. `\
+https://nytimes.com/interactive/2024/03/08/business/new-york-community-bank-losses-rescue.html
+
 **From ‘Dune’ to Decadence (and Back)**\
 `What the new ‘Dune’ sequel says about the state of our world — and the movie business.`\
 https://nytimes.com/2024/03/08/opinion/dune-movies.html
