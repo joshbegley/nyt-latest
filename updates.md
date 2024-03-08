@@ -1,3 +1,7 @@
+**Katie Britt Attacks Biden in G.O.P. Response**\
+`Seated at her kitchen table in Montgomery, Ala., the Republican senator called President Biden “a dithering and diminished leader” and addressed issues including immigration and I.V.F.`\
+https://nytimes.com/video/us/politics/100000009350404/alabama-senator-gop-response.html
+
 **Joe Biden: The Eras Tour**\
 `What we think is a question of age may be a matter of style.`\
 https://nytimes.com/2024/03/08/books/review/joe-biden-age-style.html
