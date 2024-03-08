@@ -1,3 +1,15 @@
+**Trump’s State of the Union Response: Social Media Glitches and Mocking Filters**\
+`Outages on Donald Trump’s platform, Truth Social, interrupted the barrage of derogatory posts that served as his retort to President Biden’s remarks.`\
+https://nytimes.com/2024/03/08/us/politics/trump-instagram-biden-state-of-union.html
+
+**David Bordwell, Scholar Who Demystified the Art of Film, Dies at 76**\
+`Roger Ebert called him “our best writer on cinema.” His scholarship focused on how movies work.`\
+https://nytimes.com/2024/03/08/movies/david-bordwell-dead.html
+
+**E.U. Will Participate in Maritime Corridor to Aid Gaza**\
+`The European Union will join the U.S., the United Arab Emirates and other partner countries in launching a sea corridor to deliver humanitarian aid to Gaza.`\
+https://nytimes.com/video/world/europe/100000009351002/maritime-corridor-gaza.html
+
 **One Family’s Long Road Out of Gaza**\
 `Grieving from afar but still dreaming of peace.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/gaza-refugees
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/08/arts/music/playlist-kamasi-washington-drake-4batz
 **The Big Number: $1 Billion**\
 `New York Community Bank's new management team is working to reassure investors and regulators that a cash infusion will help it right itself. `\
 https://nytimes.com/interactive/2024/03/08/business/new-york-community-bank-losses-rescue.html
-
-**At TEFAF Art Fair, Museums Make Up for Shrinking Private Sales**\
-`Curators are looking for old art that can resonate with a new audience at the venerable event in the Netherlands.`\
-https://nytimes.com/2024/03/08/arts/design/tefaf-maastricht.html
-
-**U.S. employers added 275,000 jobs last month.**\
-`By Lydia DePillis`\
-https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/us-employers-added-275000-jobs-last-month
-
-**Covid Became a Pandemic 4 Years Ago. How Does Your Life Look Now?**\
-`We want to hear from readers on how your life has or hasn’t changed.`\
-https://nytimes.com/2024/03/08/us/covid-pandemic-callout.html
 
