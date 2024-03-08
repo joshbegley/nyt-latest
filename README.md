@@ -1,3 +1,7 @@
+**The U.N. human rights chief warns that Israeli settlements could amount to war crimes.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/the-un-human-rights-chief-warns-that-israeli-settlements-could-amount-to-war-crimes
+
 **More Tuned In for State of the Union Than Last Year**\
 `President Biden attracted a bigger prime-time audience for a feisty and high-energy speech, according to early figures released by Nielsen.`\
 https://nytimes.com/2024/03/08/business/media/biden-state-of-the-union-ratings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/movies/oscars-quiz-test-your-movie-knowledge.html
 **California Officials Investigate Possible Oil Spill Off Huntington Beach**\
 `It was not immediately clear what caused an oil sheen that officials said was about 2.5 miles long and half a mile wide.`\
 https://nytimes.com/2024/03/08/us/oil-spill-huntington-beach-california.html
-
-**Abolish the Razzies**\
-`When your jokey awards ceremony has to self-police to not traumatize children, maybe the world doesn’t need your jokey awards ceremony anymore.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/razzies-2024-abolish
 
