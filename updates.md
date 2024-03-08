@@ -1,3 +1,7 @@
+**Grenada Prison Escapees Are Charged With Murder of American Couple**\
+`The couple, Ralph Hendry and Kathy Brandel, went missing while sailing off the coast of Grenada.`\
+https://nytimes.com/2024/03/07/world/americas/couple-boat-grenada-murder.html
+
 **Review: Welcome to ‘Illinoise,’ Land of Love, Grief and Zombies**\
 `Sufjan Stevens’s 2005 concept album has become an unlikely and unforgettable dance-musical hybrid, directed and choreographed by Justin Peck.`\
 https://nytimes.com/2024/03/07/theater/illinoise-review-sufjan-stevens-justin-pick.html
