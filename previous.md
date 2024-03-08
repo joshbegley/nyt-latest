@@ -1,3 +1,7 @@
+**A Vigorous Biden Made the Case for a Second Look**\
+`He’ll need to stay as nimble on the campaign trail as he was in his speech.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-speech-campaign
+
 **“We’ve already cut the federal deficit over a trillion dollars.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/weve-already-cut-the-federal-deficit-over-a-trillion-dollars
@@ -33,9 +37,4 @@ https://nytimes.com/2024/03/07/us/politics/miguel-cardona-designated-survivor-st
 **An Expulsion Couldn’t Keep George Santos From Attending the State of the Union**\
 `The former representative from New York put to use the lifetime floor privileges conferred on former members of the House — even the ones who are removed from office.`\
 https://nytimes.com/2024/03/07/us/politics/george-santos-expelled-sotu.html
-
-**Empowering Radiant Futures: Reshma Saujani's Impact on Girls in STEM**\
-`Meet a leader who’s opening new paths for girls in STEM education and the award from Clé de Peau Beauté that’s helping to expand her inspiring vision.
-`\
-https://nytimes.com/paidpost/cle-de-peau-beaute/empowering-radiant-futures-reshma-saujanis-impact-on-girls-in-stem.html
 
