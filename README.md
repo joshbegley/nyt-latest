@@ -1,6 +1,6 @@
 **Offering a Choice of ‘Revenge’ vs. ‘Decency,’ Biden Strikes a Contrast With Trump**\
 `The president made it clear in a State of the Union address that he sees the election as an existential struggle between democracy and extremism.`\
-https://nytimes.com/2024/03/07/us/politics/biden-sotu.html
+https://nytimes.com/live/2022/03/01/us/biden-state-of-the-union/biden-sotu
 
 **Biden’s Border Taunts Clearly Hit a Republican Nerve**\
 `His provocation on this issue may have been the most successful moment of the evening.`\
