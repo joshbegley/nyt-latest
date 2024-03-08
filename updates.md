@@ -1,3 +1,7 @@
+**Is there an ‘L.B.J. Moment’ in store? Don’t count on it.**\
+`Fifty-six years ago, Lyndon B. Johnson stunned the nation with a secret ending to a speech to the nation announcing that he would`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/is-there-an-lbj-moment-in-store-dont-count-on-it
+
 **Do You Have to Let the National Guard Search Your Bag on the Subway?**\
 `Gov. Kathy Hochul would not say how long she planned to keep hundreds of soldiers and state police officers in the subway system.`\
 https://nytimes.com/2024/03/07/nyregion/national-guard-subway-bag-checks.html

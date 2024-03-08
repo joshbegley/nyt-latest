@@ -1,3 +1,7 @@
+**Is there an ‘L.B.J. Moment’ in store? Don’t count on it.**\
+`Fifty-six years ago, Lyndon B. Johnson stunned the nation with a secret ending to a speech to the nation announcing that he would`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/is-there-an-lbj-moment-in-store-dont-count-on-it
+
 **Do You Have to Let the National Guard Search Your Bag on the Subway?**\
 `Gov. Kathy Hochul would not say how long she planned to keep hundreds of soldiers and state police officers in the subway system.`\
 https://nytimes.com/2024/03/07/nyregion/national-guard-subway-bag-checks.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/with-imm
 **A Subway Plan Aimed to Ease Fears. The Blowback Was Immediate.**\
 `Gov. Kathy Hochul’s subway safety plan was meant to show how Democrats can take action on crime, but the response illustrated how the issue divides her party.`\
 https://nytimes.com/2024/03/07/nyregion/hochul-police-subway-search.html
-
-**U.S. Military to Build Floating Pier to Ferry Gaza Aid, White House Says**\
-`U.S. officials said that a temporary port, built from ships and then moved close to shore, would allow hundreds of truckloads of aid to reach Gazans on the brink of starvation.`\
-https://nytimes.com/2024/03/07/world/middleeast/us-gaza-pier-ships-aid.html
 
