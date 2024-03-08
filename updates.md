@@ -1,3 +1,7 @@
+**Former Trump Lawyer Emerges as Challenger to Atlanta District Attorney**\
+`A Republican lawyer who has worked in the Trump White House is running to unseat Fani T. Willis, the district attorney prosecuting the Georgia election interference case.`\
+https://nytimes.com/2024/03/08/us/courtney-kramer-fani-willis-election.html
+
 **With Cyberattack Fix Weeks Away, Health Providers Slam United**\
 `Hospitals, doctors and clinics expressed frustration that they will have to wait even longer for reimbursements after hackers paralyzed the largest U.S. billing clearinghouse.`\
 https://nytimes.com/2024/03/08/health/united-healthcare-cyberattack.html
