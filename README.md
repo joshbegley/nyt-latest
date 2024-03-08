@@ -1,3 +1,11 @@
+**Is It Wrong to Go to a Guys-Only Night?**\
+`The magazine’s Ethicist columnist on the appropriateness of gender-exclusive spaces.`\
+https://nytimes.com/2024/03/08/magazine/guys-only-night-ethics.html
+
+**Flau’jae and Wyclef Jean Are Rapping About Personal Finance. Good.**\
+`Culture, including music and social media, can be an important medium for financial education.`\
+https://nytimes.com/2024/03/08/opinion/personal-finance-flaujae-wyclef.html
+
 **Judge John Hodgman on the Gullibility Test**\
 `Should a husband be allowed to spout fake “facts”?`\
 https://nytimes.com/2024/03/08/magazine/judge-john-hodgman-on-the-gullibility-test.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/08/dining/irish-brown-bread.html
 **Book Club: Let’s Talk About ‘Erasure,’ by Percival Everett**\
 `A scathing satire about race, publishing and identity politics, Everett’s acclaimed 2001 novel is the basis of the Oscar-nominated movie “American Fiction.”`\
 https://nytimes.com/2024/03/08/books/review/podcast-percival-everett-erasure.html
-
-**No Labels, a Centrist Group, Moves Toward a Third-Party Presidential Bid**\
-`The group said it had voted to nominate a ticket, but did not announce which candidate might run on its ballot line. Democrats have worried that such a bid could siphon support from President Biden.`\
-https://nytimes.com/2024/03/08/us/politics/no-labels-presidential-candidate.html
-
-**Gaza Authorities Say Accident Involving Airdropped Aid Killed 5**\
-`If confirmed, the deaths would underscore the dangers and difficulties of relying on airdrops to get food to people facing severe hunger in northern Gaza after five months of war.`\
-https://nytimes.com/2024/03/08/world/middleeast/gaza-deaths-airdrop-aid.html
 
