@@ -1,3 +1,7 @@
+**In-Your-Face Biden Takes on Trump and His Own Doubters**\
+`In a raucous State of the Union address, the president’s goal was to reassure Americans that at 81 he is ready for a second term. He made his case, loudly and forcefully.`\
+https://nytimes.com/2024/03/08/us/politics/biden-sotu-speech.html
+
 **A New Speaker’s Many Faces Show Everything but Approval**\
 `Representative Mike Johnson had urged his side to refrain from disruptions. He more or less succeeded at keeping Republicans under control, but his own brows, lips and eyes were another matter.`\
 https://nytimes.com/2024/03/08/us/politics/speaker-mike-johnson-facial-expressions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/world/europe/ireland-constitution-referendum-wome
 **Quotation of the Day: Where Are The Women Working in Hollywood?**\
 `Quotation of the Day for Friday, March 8, 2024.`\
 https://nytimes.com/2024/03/08/pageoneplus/quotation-of-the-day-where-are-the-women-working-in-hollywood.html
-
-**The I.C.C. arrest warrants for Russian officers will echo beyond Russia.**\
-`The warrants for two commanders over alleged war crimes may set an interesting precedent, legal experts said, including for the conflict in Gaza.`\
-https://nytimes.com/2024/03/08/world/europe/the-icc-arrest-warrants-for-russian-officers-will-echo-beyond-russia.html
 

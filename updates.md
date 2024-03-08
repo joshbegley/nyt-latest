@@ -1,3 +1,7 @@
+**In-Your-Face Biden Takes on Trump and His Own Doubters**\
+`In a raucous State of the Union address, the president’s goal was to reassure Americans that at 81 he is ready for a second term. He made his case, loudly and forcefully.`\
+https://nytimes.com/2024/03/08/us/politics/biden-sotu-speech.html
+
 **A New Speaker’s Many Faces Show Everything but Approval**\
 `Representative Mike Johnson had urged his side to refrain from disruptions. He more or less succeeded at keeping Republicans under control, but his own brows, lips and eyes were another matter.`\
 https://nytimes.com/2024/03/08/us/politics/speaker-mike-johnson-facial-expressions.html
