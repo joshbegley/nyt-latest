@@ -1,3 +1,7 @@
+**Bad Parents, Beware. These Harpy Sisters Are Coming for You.**\
+`Terese Svoboda considers what’s worth protecting in a new novel and a story collection.`\
+https://nytimes.com/2024/03/08/books/review/terese-svoboda-long-swim-roxy-coco.html
+
 **What the ‘Rust’ Trial Says About the Case Against Alec Baldwin**\
 `The trial of the “Rust” armorer offered a preview of the case against Mr. Baldwin, who is set to stand trial on an involuntary manslaughter charge in July.`\
 https://nytimes.com/2024/03/08/arts/rust-shooting-alec-baldwin.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/05/opinion/thepoint/katie-britt-kitchen-respons
 **Biden Targets Big Business and Billionaires**\
 `The president used his State of the Union address to plug his economic record and announce a policy wish list that involves raising taxes on multinationals and the wealthy.`\
 https://nytimes.com/2024/03/08/business/dealbook/biden-sotu-big-business-billionaires.html
-
-**Battling Dress Codes at the State of the Union**\
-`Democratic women in suffragist white, Marjorie Taylor Greene in MAGA red — there was messaging mayhem on the congressional floor.`\
-https://nytimes.com/2024/03/08/style/women-white-laken-riley-pins-state-of-the-union.html
 
