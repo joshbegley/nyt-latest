@@ -1,3 +1,11 @@
+**Five International Movies to Stream Now**\
+`This month’s picks include a coming-of-age story set in Quebec, an observational Tunisian drama, an erotic French movie about a strip club and more.`\
+https://nytimes.com/2024/03/08/movies/international-movies-streaming.html
+
+**Trump Ally and Daughter-in-Law Officially Take Over R.N.C. Leadership**\
+`With the installation of Lara Trump and Michael Whatley as co-chairs, Donald Trump tightened his already firm grip on the party apparatus.`\
+https://nytimes.com/2024/03/08/us/politics/trump-rnc-lara-michael-whatley.html
+
 **Iran’s 2022 Protest Crackdown Included Killings, Torture and Rape, U.N. Finds**\
 `A fact-finding mission looking into the demonstrations that followed the death of Mahsa Amini found brutality and rejected Iran’s version of Ms. Amini’s death.`\
 https://nytimes.com/2024/03/08/world/middleeast/iran-protest-mahsa-amini-un-report.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/jobs-r
 **‘Crusty’ and ‘Pillowy’: How N.Y.C.-Style Bagels Made It Big in London**\
 `Bakeries selling big, doughy bagels have opened to rave reviews in Britain, but some traditionalists are standing by the London “beigel.”`\
 https://nytimes.com/2024/03/08/world/europe/new-york-bagels-london-beigel.html
-
-**The Best of Late Night This Week**\
-`Major political developments kept the hosts busy this week, including a crucial Supreme Court ruling and Super Tuesday, which all but solidified the 2024 presidential candidates. Here’s what they had to say.`\
-https://nytimes.com/interactive/2024/03/08/arts/television/best-of-late-night-super-tuesday.html
-
-**Trump Posts $91.6 Million Bond for Defamation Judgment in Carroll Case**\
-`Donald J. Trump is contending with civil penalties that are together worth more than half a billion dollars.`\
-https://nytimes.com/2024/03/08/nyregion/trump-carroll-bond-defamation.html
 

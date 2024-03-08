@@ -1,3 +1,7 @@
+**Leave Kate Middleton Alone!**\
+`She has a right to keep her health issues private.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/kate-middleton-disappearance
+
 **Leave Kate Alone!**\
 `She has a right to keep her health issues private.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/kate-middleton-disappearance
