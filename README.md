@@ -1,3 +1,7 @@
+**Howard Hiatt, 98, Dies; Steered Public Health Toward Greater Accountability**\
+`A physician, scientist and academic, he brought together experts across disciplines to focus on the economic, political and social causes of poor health, not just the biological factors.`\
+https://nytimes.com/2024/03/08/health/howard-hiatt-dead.html
+
 **A Pop Culture Reporter With His Eye on the Prizes**\
 `Kyle Buchanan shares why stamina is paramount during Hollywood awards season and how he approaches interviews with media-shy (and media-savvy) celebrities.`\
 https://nytimes.com/2024/03/08/insider/oscar-awards-columnist.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/an-audio-cl
 **Sam Altman to Return to OpenAI’s Board of Directors**\
 `Mr. Altman was among new additions to the board announced on Friday, more than three months after he was briefly forced out of the company.`\
 https://nytimes.com/2024/03/08/technology/sam-altman-to-return-to-openais-board-of-directors.html
-
-**Former Trump Lawyer Emerges as Challenger to Atlanta District Attorney**\
-`A Republican lawyer who has worked in the Trump White House is running to unseat Fani T. Willis, the district attorney prosecuting the Georgia election interference case.`\
-https://nytimes.com/2024/03/08/us/courtney-kramer-fani-willis-election.html
 
