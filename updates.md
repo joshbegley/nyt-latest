@@ -1,3 +1,11 @@
+**An audio clip emerges of Biden saying he told Netanyahu they are nearing a ‘come-to-Jesus meeting’ on Gaza aid.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2024/03/08/world/israel-hamas-war-gaza-news/an-audio-clip-emerges-of-biden-saying-he-told-netanyahu-they-are-nearing-a-come-to-jesus-meeting-on-gaza-aid
+
+**Sam Altman to Return to OpenAI’s Board of Directors**\
+`Mr. Altman was among new additions to the board announced on Friday, more than three months after he was briefly pushed out of the company.`\
+https://nytimes.com/2024/03/08/technology/sam-altman-to-return-to-openais-board-of-directors.html
+
 **Former Republican Candidate for U.S. House Is Charged With Murder**\
 `Dan Rodimer, who promoted former President Trump’s endorsement in two failed bids for Congress, was charged with killing a man at a Las Vegas Strip resort in October.`\
 https://nytimes.com/2024/03/08/us/politics/ex-gop-candidate-dan-rodimer-murder.html
