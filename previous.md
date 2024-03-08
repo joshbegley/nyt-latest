@@ -1,3 +1,7 @@
+**Strong Winds Moved a Lake in Death Valley Two Miles**\
+`Powerful winds last week pushed Lake Manly, a temporary body of water, two miles from its original location in the national park.`\
+https://nytimes.com/2024/03/08/us/death-valley-lake-manly-wind.html
+
 **Katie Britt Attacks Biden in G.O.P. Response**\
 `Seated at her kitchen table in Montgomery, Ala., the Republican senator called President Biden “a dithering and diminished leader” and addressed issues including immigration and I.V.F.`\
 https://nytimes.com/video/us/politics/100000009350404/alabama-senator-gop-response.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/well/live/end-of-life-planning.html
 **The New York Times News Quiz, Mar. 8, 2024**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2024/03/08/briefing/nikki-haley-california-primary-biden-quiz.html
-
-**6 Paperbacks to Read This Week**\
-`Recommended reading from the Book Review, including titles by Aleksandar Hemon, Jenny Jackson, Nina Totenberg and more.`\
-https://nytimes.com/interactive/2024/03/08/books/new-paperbacks-hemon.html
 
