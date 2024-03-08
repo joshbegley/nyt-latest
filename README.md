@@ -1,3 +1,7 @@
+**At TEFAF Art Fair, Museums Make Up for Shrinking Private Sales**\
+`Curators are looking for old art that can resonate with a new audience at the venerable event in the Netherlands.`\
+https://nytimes.com/2024/03/08/arts/design/tefaf-maastricht.html
+
 **U.S. employers added 275,000 jobs last month.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/us-employers-added-275000-jobs-last-month
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/arts/music/igor-levit-carnegie-hall-review.html
 **This Man Turned the Worst Job in College Basketball Into a Slam Dunk**\
 `South Carolina Salkehatchie had no budget, players or running water in the locker room when Matt Lynch arrived. One season in, the first publicly gay head coach is figuring out how to win, on the court and off.`\
 https://nytimes.com/2024/03/08/us/matt-lynch-south-carolina-salkehatchie.html
-
-**Review: Two Electric Debuts at the New York Philharmonic**\
-`An exciting program featured the conductor Elim Chan and the cellist Sol Gabetta in a pairing of music by Martinu and Rimsky-Korsakov.`\
-https://nytimes.com/2024/03/08/arts/music/review-elim-chan-sol-gabetta-new-york-philharmonic.html
 
