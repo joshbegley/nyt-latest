@@ -1,3 +1,7 @@
+**“You know, there are 1,000 billionaires in America. You know what the average federal tax is for these billionaires? They are making great sacrifices: 8.2 percent. That’s far less than the vast majority of Americans’ pay.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/03/08/us/sotu-fact-check/you-know-there-are-1000-billionaires-in-america-you-know-what-the-average-federal-tax-is-for-these-billionaires-they-are-making-
+
 **How Would You Describe the State of Our Union?**\
 `President Biden says it’s “strong and getting stronger.” Do you agree? How do you think the country is doing right now?`\
 https://nytimes.com/2024/03/08/learning/how-would-you-describe-the-state-of-our-union.html
