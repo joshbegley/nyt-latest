@@ -11,7 +11,7 @@ https://nytimes.com/2024/03/08/health/united-healthcare-cyberattack.html
 https://nytimes.com/2024/03/08/us/politics/prince-harry-visa-heritage-foundation.html
 
 **Former Republican Candidate for U.S. House Is Charged With Murder**\
-`Dan Rodimer, who touted former President Trump’s endorsements in two failed bids for Congress, was charged with killing a man at a Las Vegas Strip resort in October.`\
+`Dan Rodimer, who touted former President Trump’s endorsement in two failed bids for Congress, was charged with killing a man at a Las Vegas Strip resort in October.`\
 https://nytimes.com/2024/03/08/us/politics/ex-gop-candidate-dan-rodimer-murder.html
 
 **The U.N. human rights chief warns that Israeli settlements could amount to war crimes.**\
