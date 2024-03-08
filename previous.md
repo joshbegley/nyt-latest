@@ -1,3 +1,7 @@
+**A look ‘under the hood’ reveals both strength and caution signs in the report.**\
+`By Talmon Joseph Smith`\
+https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/jobs-report-strength-caution
+
 **‘Crusty’ and ‘Pillowy’: How N.Y.C.-Style Bagels Made It Big in London**\
 `Bakeries selling big, doughy bagels have opened to rave reviews in Britain, but some traditionalists are standing by the London “beigel.”`\
 https://nytimes.com/2024/03/08/world/europe/new-york-bagels-london-beigel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/us/politics/crypto-super-pac-senate-oh-mt.html
 **Pentagon Review Finds No Evidence of Alien Cover-Up**\
 `But the new report suggests that the public’s belief that the government is hiding what it knows will probably continue.`\
 https://nytimes.com/2024/03/08/us/politics/pentagon-ufo-alien-review.html
-
-**The Best Player in the Premier League? Look Deeper.**\
-`Rodri’s genius is not in making things happen. He is employed by Manchester City, at least in part, to make sure they do not.`\
-https://nytimes.com/2024/03/08/world/europe/liverpool-manchester-city-rodri.html
 

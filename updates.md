@@ -1,3 +1,7 @@
+**A look ‘under the hood’ reveals both strength and caution signs in the report.**\
+`By Talmon Joseph Smith`\
+https://nytimes.com/live/2024/03/08/business/jobs-report-february-economy/jobs-report-strength-caution
+
 **‘Crusty’ and ‘Pillowy’: How N.Y.C.-Style Bagels Made It Big in London**\
 `Bakeries selling big, doughy bagels have opened to rave reviews in Britain, but some traditionalists are standing by the London “beigel.”`\
 https://nytimes.com/2024/03/08/world/europe/new-york-bagels-london-beigel.html
