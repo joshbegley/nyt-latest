@@ -1,3 +1,7 @@
+**“Many of my friends on the other side of the aisle want to put Social Security on the chopping block.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/many-of-my-friends-on-the-other-side-of-the-aisle-want-to-put-social-security-on-the-chopping-block
+
 **A Vigorous Biden Made the Case for a Second Look**\
 `He’ll need to stay as nimble on the campaign trail as he was in his speech.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-speech-campaign
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/07/us/biden-state-of-the-union-updates/in-fact-
 **Miguel Cardona is the designated survivor during the State of the Union.**\
 `The tradition ensures that a top member of the government would be able to step up in case of any catastrophe.`\
 https://nytimes.com/2024/03/07/us/politics/miguel-cardona-designated-survivor-state-of-union.html
-
-**An Expulsion Couldn’t Keep George Santos From Attending the State of the Union**\
-`The former representative from New York put to use the lifetime floor privileges conferred on former members of the House — even the ones who are removed from office.`\
-https://nytimes.com/2024/03/07/us/politics/george-santos-expelled-sotu.html
 
