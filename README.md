@@ -1,3 +1,7 @@
+**Activists Deface Portrait of Balfour, Who Supported Jewish Homeland**\
+`A pro-Palestinian group slashed and spray-painted a century-old portrait of the author of the Balfour Declaration at the University of Cambridge in England.`\
+https://nytimes.com/2024/03/08/arts/design/balfour-declaration-portrait-slashed.html
+
 **From ‘Dune’ to Decadence (and Back)**\
 `What the new ‘Dune’ sequel says about the state of our world — and the movie business.`\
 https://nytimes.com/2024/03/08/opinion/dune-movies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/movies/international-movies-streaming.html
 **Trump Ally and Daughter-in-Law Officially Take Over R.N.C. Leadership**\
 `With the installation of Lara Trump and Michael Whatley, Donald Trump tightened his already firm grip on the party apparatus.`\
 https://nytimes.com/2024/03/08/us/politics/trump-rnc-lara-michael-whatley.html
-
-**Iran’s 2022 Protest Crackdown Included Killings, Torture and Rape, U.N. Finds**\
-`A fact-finding mission looking into the demonstrations that followed the death of Mahsa Amini found brutality and rejected Iran’s version of Ms. Amini’s death.`\
-https://nytimes.com/2024/03/08/world/middleeast/iran-protest-mahsa-amini-un-report.html
 
