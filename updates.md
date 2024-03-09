@@ -1,3 +1,7 @@
+**Frostbitten Kansas City Chiefs Fans Needed Amputations After Frigid Game**\
+`A Missouri hospital said the amputations involved mostly fingers and toes after a game in January when temperatures were below zero.`\
+https://nytimes.com/2024/03/09/us/chiefs-game-frostbite-amputations.html
+
 **Britt Faces Accusations of Misleading on Border in State of the Union Response**\
 `The Alabama senator used a story about sex trafficking to criticize the Biden administration’s border policies. But the events appear to have occurred in Mexico years ago.`\
 https://nytimes.com/2024/03/09/us/politics/katie-britt-republican-response-sotu-border.html

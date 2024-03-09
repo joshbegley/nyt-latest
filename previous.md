@@ -1,3 +1,7 @@
+**Frostbitten Kansas City Chiefs Fans Needed Amputations After Frigid Game**\
+`A Missouri hospital said the amputations involved mostly fingers and toes after a game in January when temperatures were below zero.`\
+https://nytimes.com/2024/03/09/us/chiefs-game-frostbite-amputations.html
+
 **Biden Signs Legislation to Extend Funding for Critical Departments**\
 `With a partial shutdown averted, President Biden and Congress face tough negotiations ahead to finance the remaining federal agencies and departments by March 22.`\
 https://nytimes.com/2024/03/09/us/politics/biden-signs-spending-legislation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/dining/luscious-miso-leeks-with-white-beans.html
 **Fighting Hopelessness in Treating Addiction**\
 `Readers praise a column by Nicholas Kristof about an effective program.`\
 https://nytimes.com/2024/03/09/opinion/addiction-treatment-recovery.html
-
-**Meghan, Duchess of Sussex, Speaks Out About ‘Hateful’ Online Bullying**\
-`In an appearance at SXSW, Meghan said she experienced the heaviest online abuse during her pregnancies.`\
-https://nytimes.com/2024/03/09/us/meghan-markle-sxsw-online-bullying.html
 
