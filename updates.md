@@ -1,3 +1,7 @@
+**MacGyvering**\
+`Let’s see if we can puzzle our way out of John Guzzetta’s tough themeless.`\
+https://nytimes.com/2024/03/08/crosswords/daily-puzzle-2024-03-09.html
+
 **Pet Shop That Sold Sick and Hurt Puppies Will Repay Nearly 200 Customers**\
 `Shake A Paw agreed to settle a lawsuit brought by New York’s attorney general after investigators found that the Long Island business was selling puppies from so-called puppy mills.`\
 https://nytimes.com/2024/03/08/nyregion/long-island-sick-puppies-pay.html
