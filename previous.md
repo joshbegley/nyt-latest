@@ -1,3 +1,7 @@
+**With Haiti in Chaos, a Humanitarian Crisis Is Rapidly Unfolding**\
+`As gangs have united in concerted attacks against the state, the prime minister is stranded in Puerto Rico, and food, water, fuel and medical care are in short supply.`\
+https://nytimes.com/2024/03/09/us/haiti-gangs-political-uprising-ariel-henry-humanitarian-crisis.html
+
 **Pope Says Ukraine Should Have the ‘Courage of the White Flag’**\
 `Francis’s words have raised questions about whether he was suggesting that Ukraine surrender, but a Vatican spokesman said the pope meant “cease-fire and negotiation.”`\
 https://nytimes.com/2024/03/09/world/europe/pope-ukraine-white-flag.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/health/microplastics-sxsw-health-plastic-people.h
 **Ireland Rejects Constitution Changes, Keeping ‘Women in the Home’ Language**\
 `Two proposed amendments, which voters considered on Friday, were intended to reflect the more secular, liberal values of the nation’s modern era.`\
 https://nytimes.com/2024/03/09/world/europe/ireland-constitution-referendums-women-home.html
-
-**Luscious Miso Leeks With White Beans**\
-`Hetty Lui McKinnon’s satisfying take on leeks vinaigrette combines silky leeks with a mustardy miso dressing and creamy white beans.`\
-https://nytimes.com/2024/03/09/dining/luscious-miso-leeks-with-white-beans.html
 

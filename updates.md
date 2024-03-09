@@ -1,3 +1,7 @@
+**With Haiti in Chaos, a Humanitarian Crisis Is Rapidly Unfolding**\
+`As gangs have united in concerted attacks against the state, the prime minister is stranded in Puerto Rico, and food, water, fuel and medical care are in short supply.`\
+https://nytimes.com/2024/03/09/us/haiti-gangs-political-uprising-ariel-henry-humanitarian-crisis.html
+
 **Northeast Braces for Heavy Rain After Severe Weather Moves Across the South**\
 `Forecasters said the New York City area could get up to two inches of rain into Sunday morning, with the highest totals expected in northeastern New Jersey.`\
 https://nytimes.com/2024/03/09/us/weather-storm-tornado-rain.html
