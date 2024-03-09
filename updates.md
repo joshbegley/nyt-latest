@@ -1,3 +1,7 @@
+**Britt Faces Accusations of Misleading on Border in State of the Union Response**\
+`The Alabama senator used a story about sex trafficking to criticize the Biden administration’s border policies. But the events appear to have occurred in Mexico years ago.`\
+https://nytimes.com/2024/03/09/us/politics/katie-britt-republican-response-sotu-border.html
+
 **Ireland Rejects Constitution Changes, Keeping ‘Women in the Home’ Language**\
 `Two proposed amendments, which voters considered on Friday, were intended to reflect the more secular, liberal values of the nation’s modern era.`\
 https://nytimes.com/2024/03/09/world/europe/ireland-constitution-referendums-women-home.html
