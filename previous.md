@@ -6,8 +6,8 @@ https://nytimes.com/2024/03/09/crosswords/daily-puzzle-2024-03-10.html
 `After writing memorable character sketches and fine-tuning others’ copy at The New Yorker, he spent two decades as editor in chief of The Atlantic Monthly.`\
 https://nytimes.com/2024/03/09/business/media/william-whitworth-dead.html
 
-**U.S. Said to Open Criminal Inquiry Into Boeing**\
-`The investigation is tied to a near-catastrophic incident involving an Alaska Airlines flight in early January.`\
+**U.S. Is Said to Open Criminal Inquiry Into Boeing**\
+`The investigation is tied to an incident on an Alaska Airlines flight in early January. Boeing also told a Senate panel that it cannot find a record of the work done on the Alaska plane.`\
 https://nytimes.com/2024/03/09/business/boeing-criminal-inquiry-alaska-airlines-flight.html
 
 **Petra Mathers, Author Whose Children’s Stories Soared, Dies at 78**\

@@ -1,3 +1,7 @@
+**U.S. Is Said to Open Criminal Inquiry Into Boeing**\
+`The investigation is tied to an incident on an Alaska Airlines flight in early January. Boeing also told a Senate panel that it cannot find a record of the work done on the Alaska plane.`\
+https://nytimes.com/2024/03/09/business/boeing-criminal-inquiry-alaska-airlines-flight.html
+
 **Rack ’Em Up**\
 `Enrique Henestroza Anguiano and Matthew Stock are friends with words.`\
 https://nytimes.com/2024/03/09/crosswords/daily-puzzle-2024-03-10.html
