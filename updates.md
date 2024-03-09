@@ -1,3 +1,7 @@
+**U.S. Said to Open Criminal Inquiry Into Boeing**\
+`The investigation is tied to a near-catastrophic incident involving an Alaska Airlines flight in early January.`\
+https://nytimes.com/2024/03/09/business/boeing-criminal-inquiry-alaska-airlines-flight.html
+
 **Petra Mathers, Author Whose Children’s Stories Soared, Dies at 78**\
 `Her winsome animal characters and their comic adventures expressed universal truths and feelings, rendered in a naïve and often surrealistic style.`\
 https://nytimes.com/2024/03/09/books/petra-mathers-dead.html
