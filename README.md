@@ -1,3 +1,7 @@
+**A Call to End Gambling Ads as Athletes and Celebrities Are Shut Out of Them**\
+`A group wants the federal government to mirror its blanket restrictions on tobacco ads, citing addiction and its effect on sports.`\
+https://nytimes.com/2024/03/09/world/canada/canada-sports-gambling-advertising.html
+
 **Colin Farrell and Brendan Gleason Drank There. Now You Can, Too.**\
 `A bar set built for “The Banshees of Inisherin” was discarded in a backyard after filming, then resurrected by a pub in Ireland. It’s up for sale.`\
 https://nytimes.com/2024/03/09/world/europe/banshees-inisherin-pub-ireland.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/climate/palm-oil-lab-startup.html
 **A Panorama of Design**\
 `A look at design-world events, products and people.`\
 https://nytimes.com/2024/03/09/style/design-products.html
-
-**The Long, Strange History of ‘Manifesting’**\
-`Americans have long been attracted to the idea that we can shape reality with our will.`\
-https://nytimes.com/2024/03/09/opinion/the-long-strange-history-of-manifesting.html
 
