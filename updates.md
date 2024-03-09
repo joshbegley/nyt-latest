@@ -1,3 +1,7 @@
+**A Call to End Gambling Ads as Athletes and Celebrities Are Shut Out of Them**\
+`A group wants the federal government to mirror its blanket restrictions on tobacco ads, citing addiction and its effect on sports.`\
+https://nytimes.com/2024/03/09/world/canada/canada-sports-gambling-advertising.html
+
 **Colin Farrell and Brendan Gleason Drank There. Now You Can, Too.**\
 `A bar set built for “The Banshees of Inisherin” was discarded in a backyard after filming, then resurrected by a pub in Ireland. It’s up for sale.`\
 https://nytimes.com/2024/03/09/world/europe/banshees-inisherin-pub-ireland.html
