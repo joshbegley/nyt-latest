@@ -1,40 +1,40 @@
-**Three Is Best: How China’s Family Planning Propaganda Has Changed**\
-`Faced with a shrinking and aging population, China is using propaganda channels to send the message: have more babies.`\
-https://nytimes.com/interactive/2024/03/09/world/asia/china-childbirth-propaganda.html
+**These May Be the Oldest Olive Trees in the World**\
+`While the sentinel trees of Northern Lebanon may not be as old as some traditions hold, one tree might be more than 1,000 years old.`\
+https://nytimes.com/2024/03/09/science/olive-tree-oldest.html
 
-**Lily Gladstone for Best Actress? Oscars Gamblers Are Betting Big.**\
-`Inside the world of people making bets on the winners of the Academy Awards — with some taking home thousands of dollars.`\
-https://nytimes.com/2024/03/09/business/oscars-betting.html
+**Miami Beach Is Done With Spring Breakers: ‘It’s Not Us. It’s You.’**\
+`This weekend and next, Miami Beach visitors will face extraordinary measures meant to head off disorderly crowds, including bag checks at beach entrances and closed parking garages.`\
+https://nytimes.com/2024/03/09/us/miami-beach-spring-break.html
 
-**How Fraudsters Break Into Social Security Accounts and Steal Benefits**\
-`Thousands of people receiving Social Security benefits have had their money diverted into criminal accounts. Here’s what to know.`\
-https://nytimes.com/2024/03/09/business/social-security-scams.html
+**They Want to Make Palm Oil in a Lab. Without Palm Trees.**\
+`Palm oil. It’s in your snacks, your soap, pretty much everything. But palm oil plantations have caused vast deforestation. Can these three tech executives help fix things?`\
+https://nytimes.com/2024/03/09/climate/palm-oil-lab-startup.html
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/09/crosswords/connections-companion.html
+**A Panorama of Design**\
+`A look at design-world events, products and people.`\
+https://nytimes.com/2024/03/09/style/design-products.html
 
-**How a Pioneering Jazz Musician and Teacher Spends Her Sundays**\
-`There weren’t many female jazz musicians when Carol Sudhalter started her career. Now she spends her Sundays sharing what she has learned.`\
-https://nytimes.com/2024/03/09/nyregion/saxophonist-carol-sudhalter.html
+**The Long, Strange History of ‘Manifesting’**\
+`Americans have long been attracted to the idea that we can shape reality with our will.`\
+https://nytimes.com/2024/03/09/opinion/the-long-strange-history-of-manifesting.html
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/09/crosswords/wordle-review.html
+**BMW Is a Surprise Winner in Electric Vehicles**\
+`Once considered a laggard, the German luxury carmaker is one of only a few established automakers that has been able to compete effectively against Tesla.`\
+https://nytimes.com/2024/03/09/business/bmw-electric-vehicles.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/03/09/crosswords/spelling-bee-forum.html
+**Toyota’s Hybrid-First Strategy Is Delivering Big Profits**\
+`Toyota, the world’s largest automaker, has been criticized for selling few electric vehicles, but its decision to focus on hybrids is paying off financially.`\
+https://nytimes.com/2024/03/09/business/toyotas-hybrid-electric-vehicles.html
 
-**Canadian officials say UNRWA has taken immediate steps to improve oversight.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/canadian-officials-say-unrwa-has-taken-immediate-steps-to-improve-oversight
+**These Oscar Snubs Still Rile Up Readers**\
+`You can’t forgive the Academy for passing up “Brokeback Mountain” or omitting Amy Adams in “Arrival,” among other oversights that still sting.`\
+https://nytimes.com/2024/03/09/movies/readers-oscar-snubs.html
 
-**09mideast-crisis**\
-`Canada Resumes Funding U.N. Agency Providing Aid in Gaza`\
-https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news
+**The Biden-Trump Rerun: A Nation Craving Change Gets More of the Same**\
+`Americans love a candidate who promises something new. But when a sitting president runs against a former one, can either claim the mantle of change?`\
+https://nytimes.com/2024/03/09/us/politics/trump-biden-presidential-campaign-2024.html
 
-**The 10-Year-Old Boy Who Has Become the Face of Starvation in Gaza**\
-`The harrowing image of a skeletal Yazan Kafarneh circulated widely on social media and has served as a graphic warning about the enclave’s dire food situation.`\
-https://nytimes.com/2024/03/09/world/middleeast/yazan-kafarneh-gaza-starvation.html
+**This Debut Novel Is a Wondrous Babel of Ideas and Language**\
+`In “The Extinction of Irena Rey,” a writer goes missing and her translators give pursuit — until things get weird.`\
+https://nytimes.com/2024/03/09/books/review/jennifer-croft-extinction-of-irena-rey.html
 
