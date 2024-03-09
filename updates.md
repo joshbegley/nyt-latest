@@ -1,3 +1,7 @@
+**Three Is Best: How China’s Family Planning Propaganda Has Changed**\
+`Faced with a shrinking and aging population, China is using propaganda channels to send the message: have more babies.`\
+https://nytimes.com/interactive/2024/03/09/world/asia/china-childbirth-propaganda.html
+
 **‘You Can Hear a Pin Drop’: The Rise of Super Strict Schools in England**\
 `Inspired by the academic success of schools like the Michaela secondary school in northwest London, some principals are introducing tight controls on students’ behavior.`\
 https://nytimes.com/2024/03/09/world/europe/you-can-hear-a-pin-drop-the-rise-of-super-strict-schools-in-england.html
