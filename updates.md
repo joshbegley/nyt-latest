@@ -1,3 +1,7 @@
+**Petra Mathers, Author Whose Children’s Stories Soared, Dies at 78**\
+`Her winsome animal characters and their comic adventures expressed universal truths and feelings, rendered in a naïve and often surrealistic style.`\
+https://nytimes.com/2024/03/09/books/petra-mathers-dead.html
+
 **With Haiti in Chaos, a Humanitarian Crisis Is Rapidly Unfolding**\
 `As gangs have united in concerted attacks against the state, the prime minister is stranded in Puerto Rico, and food, water, fuel and medical care are in short supply.`\
 https://nytimes.com/2024/03/09/us/haiti-gangs-political-uprising-ariel-henry-humanitarian-crisis.html

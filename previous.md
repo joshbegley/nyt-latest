@@ -1,3 +1,7 @@
+**Petra Mathers, Author Whose Children’s Stories Soared, Dies at 78**\
+`Her winsome animal characters and their comic adventures expressed universal truths and feelings, rendered in a naïve and often surrealistic style.`\
+https://nytimes.com/2024/03/09/books/petra-mathers-dead.html
+
 **With Haiti in Chaos, a Humanitarian Crisis Is Rapidly Unfolding**\
 `As gangs have united in concerted attacks against the state, the prime minister is stranded in Puerto Rico, and food, water, fuel and medical care are in short supply.`\
 https://nytimes.com/2024/03/09/us/haiti-gangs-political-uprising-ariel-henry-humanitarian-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009352246/meghan-markle-online-bullying.html
 **Microplastics Are a Big Problem, a New Film Warns**\
 `At SXSW, a documentary traces the arc of plastics in our lives, and highlights evolving research of the potential harm of its presence in our bodies.`\
 https://nytimes.com/2024/03/09/health/microplastics-sxsw-health-plastic-people.html
-
-**Ireland Rejects Constitution Changes, Keeping ‘Women in the Home’ Language**\
-`Two proposed amendments, which voters considered on Friday, were intended to reflect the more secular, liberal values of the nation’s modern era.`\
-https://nytimes.com/2024/03/09/world/europe/ireland-constitution-referendums-women-home.html
 
