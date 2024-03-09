@@ -31,7 +31,7 @@ https://nytimes.com/2024/03/09/books/petra-mathers-dead.html
 https://nytimes.com/2024/03/09/us/haiti-gangs-political-uprising-ariel-henry-humanitarian-crisis.html
 
 **Pope Says Ukraine Should Have the ‘Courage of the White Flag’**\
-`Francis’s words have raised questions about whether he was suggesting that Ukraine surrender, but a Vatican spokesman said the pope meant “cease-fire and negotiation.”`\
+`His words have raised questions about whether Francis was suggesting that Ukraine surrender, but a Vatican spokesman said the pope meant “cease-fire and negotiation.”`\
 https://nytimes.com/2024/03/09/world/europe/pope-ukraine-white-flag.html
 
 **Frostbitten Kansas City Fans Needed Amputations After Frigid Game**\
