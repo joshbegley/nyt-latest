@@ -1,3 +1,11 @@
+**Canadian officials say UNRWA has taken immediate steps to improve oversight.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/canadian-officials-say-unrwa-has-taken-immediate-steps-to-improve-oversight
+
+**09mideast-crisis**\
+`Canada Resumes Funding U.N. Agency Providing Aid in Gaza`\
+https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news
+
 **The 10-Year-Old Boy Who Has Become the Face of Starvation in Gaza**\
 `The harrowing image of a skeletal Yazan Kafarneh circulated widely on social media and has served as a graphic warning about the enclave’s dire food situation.`\
 https://nytimes.com/2024/03/09/world/middleeast/yazan-kafarneh-gaza-starvation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/08/us/helicopter-crash-border-texas-mexico.html
 **Biden Makes a Rare Mention of Marijuana in the State of the Union**\
 `The president pointed toward his efforts to ease restrictions on cannabis, a potential signal that he could talk more during the campaign about an issue he has been reluctant to embrace.`\
 https://nytimes.com/2024/03/08/us/politics/biden-marijuana-state-of-union.html
-
-**MacGyvering**\
-`Let’s see if we can puzzle our way out of John Guzzetta’s tough themeless.`\
-https://nytimes.com/2024/03/08/crosswords/daily-puzzle-2024-03-09.html
-
-**Pet Shop That Sold Sick and Hurt Puppies Will Repay Nearly 200 Customers**\
-`Shake A Paw agreed to settle a lawsuit brought by New York’s attorney general after investigators found that the Long Island business was selling puppies from so-called puppy mills.`\
-https://nytimes.com/2024/03/08/nyregion/long-island-sick-puppies-pay.html
 

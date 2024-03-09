@@ -1,3 +1,11 @@
+**Canadian officials say UNRWA has taken immediate steps to improve oversight.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/canadian-officials-say-unrwa-has-taken-immediate-steps-to-improve-oversight
+
+**09mideast-crisis**\
+`Canada Resumes Funding U.N. Agency Providing Aid in Gaza`\
+https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news
+
 **3 Killed in National Guard Helicopter Crash Near Mexican Border**\
 `The helicopter, patrolling in southern Texas, was carrying soldiers and a Border Patrol agent, officials said.`\
 https://nytimes.com/2024/03/08/us/helicopter-crash-border-texas-mexico.html
