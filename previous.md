@@ -1,3 +1,15 @@
+**The 10-Year-Old Boy Who Has Become the Face of Starvation in Gaza**\
+`The harrowing image of a skeletal Yazan Kafarneh circulated widely on social media and has served as a graphic warning about the enclave’s dire food situation.`\
+https://nytimes.com/2024/03/09/world/middleeast/yazan-kafarneh-gaza-starvation.html
+
+**Macron and Scholz, Never Close, Spar Over Policy Toward Ukraine and Russia**\
+`A fraught relationship has recently turned bitter, with insults and barbs threatening European unity at a critical moment.`\
+https://nytimes.com/2024/03/09/world/europe/macron-scholz-russia-ukraine-aid.html
+
+**‘You Can Hear a Pin Drop’: The Rise of Super Strict Schools in England**\
+`Inspired by the academic success of schools like the Michaela secondary school in northwest London, some principals are introducing tight controls on students’ behavior.`\
+https://nytimes.com/2024/03/09/world/europe/you-can-hear-a-pin-drop-the-rise-of-super-strict-schools-in-england.html
+
 **Corrections: March 9, 2024**\
 `Corrections that appeared in print on Saturday, March 9, 2024.`\
 https://nytimes.com/2024/03/09/pageoneplus/corrections-march-9-2024.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/08/crosswords/daily-puzzle-2024-03-09.html
 **Pet Shop That Sold Sick and Hurt Puppies Will Repay Nearly 200 Customers**\
 `Shake A Paw agreed to settle a lawsuit brought by New York’s attorney general after investigators found that the Long Island business was selling puppies from so-called puppy mills.`\
 https://nytimes.com/2024/03/08/nyregion/long-island-sick-puppies-pay.html
-
-**Read the Federal Judge’s Ruling**\
-`A U.S. district judge allowed the Biden administration to continue a program that it has used to give temporary legal status to hundreds of thousands of citizens of Cuba, Haiti, Nicaragua and Venezuela.`\
-https://nytimes.com/interactive/2024/03/08/us/biden-humanitarian-parole-ruling.html
-
-**About 600 Workers Unionize at Microsoft-Owned Activision**\
-`The group will become the largest union at a video game company in the United States, while Microsoft pledged to stay neutral on the vote.`\
-https://nytimes.com/2024/03/08/technology/microsoft-activision-gaming-union.html
-
-**National Guard in the Subway? A Transit Reporter Explains.**\
-`Ana Ley covers mass transit and commuters in New York City. In an interview, she discussed Gov. Kathy Hochul’s decision to beef up security on the city’s subway.`\
-https://nytimes.com/2024/03/08/pageoneplus/national-guard-subway.html
 
