@@ -1,3 +1,7 @@
+**Heretics**\
+`The Rev. Carlton Pearson was a rising evangelical star — until he rejected hell.`\
+https://nytimes.com/2024/03/09/podcasts/heretics.html
+
 **Cramming for the Oscars**\
 `It’s been a rough year for Hollywood, but the post-awards season landscape offers some hints of hope for audiences.`\
 https://nytimes.com/2024/03/09/briefing/cramming-for-the-oscars.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/science/olive-tree-oldest.html
 **Miami Beach Is Done With Spring Breakers: ‘It’s Not Us. It’s You.’**\
 `This weekend and next, Miami Beach visitors will face extraordinary measures meant to head off disorderly crowds, including bag checks at beach entrances and closed parking garages.`\
 https://nytimes.com/2024/03/09/us/miami-beach-spring-break.html
-
-**They Want to Make Palm Oil in a Lab. Without Palm Trees.**\
-`Palm oil. It’s in your snacks, your soap, pretty much everything. But palm oil plantations have caused vast deforestation. Can these three tech executives help fix things?`\
-https://nytimes.com/2024/03/09/climate/palm-oil-lab-startup.html
 

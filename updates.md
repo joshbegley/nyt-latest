@@ -1,3 +1,7 @@
+**Heretics**\
+`The Rev. Carlton Pearson was a rising evangelical star — until he rejected hell.`\
+https://nytimes.com/2024/03/09/podcasts/heretics.html
+
 **Cramming for the Oscars**\
 `It’s been a rough year for Hollywood, but the post-awards season landscape offers some hints of hope for audiences.`\
 https://nytimes.com/2024/03/09/briefing/cramming-for-the-oscars.html
