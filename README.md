@@ -1,3 +1,7 @@
+**Two Novels About Social Withdrawal**\
+`A chilly marriage; a catatonic protagonist.`\
+https://nytimes.com/2024/03/09/books/read-like-wind-recommendations.html
+
 **New Biden Ad Pokes Fun at His Age: ‘I’m Not a Young Guy. That’s No Secret.’**\
 `The ad, which will target a youthful demographic, represents a shift in tone, trying to turn one of the president’s greatest perceived liabilities into an asset.`\
 https://nytimes.com/2024/03/09/us/politics/biden-ad-age.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/podcasts/heretics.html
 **Cramming for the Oscars**\
 `It’s been a rough year for Hollywood, but the post-awards season landscape offers some hints of hope for audiences.`\
 https://nytimes.com/2024/03/09/briefing/cramming-for-the-oscars.html
-
-**A Call to End Gambling Ads as Athletes and Celebrities Are Shut Out of Them**\
-`A group wants the federal government to mirror its blanket restrictions on tobacco ads, citing addiction and its effect on sports.`\
-https://nytimes.com/2024/03/09/world/canada/canada-sports-gambling-advertising.html
 
