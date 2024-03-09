@@ -1,3 +1,7 @@
+**William Whitworth, Revered Writer and Editor, Is Dead at 87**\
+`After writing memorable character sketches and fine-tuning others’ copy at The New Yorker, he spent two decades as editor in chief of The Atlantic Monthly.`\
+https://nytimes.com/2024/03/09/business/media/william-whitworth-dead.html
+
 **U.S. Said to Open Criminal Inquiry Into Boeing**\
 `The investigation is tied to a near-catastrophic incident involving an Alaska Airlines flight in early January.`\
 https://nytimes.com/2024/03/09/business/boeing-criminal-inquiry-alaska-airlines-flight.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/us/weather-storm-tornado-rain.html
 **Britt Faces Accusations of Misleading on Border in State of the Union Response**\
 `The Alabama senator used a story about sex trafficking to criticize the Biden administration’s border policies. But the events appear to have occurred in Mexico years ago.`\
 https://nytimes.com/2024/03/09/us/politics/katie-britt-republican-response-sotu-border.html
-
-**Meghan, Duchess of Sussex, Calls Out ‘Cruel’ Social Media Comments**\
-`Meghan, Duchess of Sussex, described the negative attention she received online during her pregnancies as “hateful” and “cruel,” and urged a change in social media culture.`\
-https://nytimes.com/video/us/100000009352246/meghan-markle-online-bullying.html
 

@@ -1,3 +1,7 @@
+**William Whitworth, Revered Writer and Editor, Is Dead at 87**\
+`After writing memorable character sketches and fine-tuning others’ copy at The New Yorker, he spent two decades as editor in chief of The Atlantic Monthly.`\
+https://nytimes.com/2024/03/09/business/media/william-whitworth-dead.html
+
 **U.S. Said to Open Criminal Inquiry Into Boeing**\
 `The investigation is tied to a near-catastrophic incident involving an Alaska Airlines flight in early January.`\
 https://nytimes.com/2024/03/09/business/boeing-criminal-inquiry-alaska-airlines-flight.html
