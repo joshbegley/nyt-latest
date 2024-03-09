@@ -1,6 +1,6 @@
-**Questions arise about facts in Katie Britt’s Republican response to the State of the Union.**\
-`By Ken Bensinger`\
-https://nytimes.com/2024/03/09/us/politics/questions-arise-about-facts-in-katie-britts-republican-response-to-the-state-of-the-union.html
+**Questions Arise About Britt’s State of the Union Response**\
+`The Alabama senator used a story about sex trafficking to criticize the Biden administration’s border policies. But it wasn’t fully accurate.`\
+https://nytimes.com/2024/03/09/us/politics/katie-britt-republican-response-sotu-trafficking.html
 
 **Meghan, Duchess of Sussex, Calls Out ‘Cruel’ Social Media Comments**\
 `Meghan, Duchess of Sussex, described the negative attention she received online during her pregnancies as “hateful” and “cruel,” and urged a change in social media culture.`\
