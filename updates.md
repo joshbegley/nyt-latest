@@ -1,3 +1,7 @@
+**As U.S. Rushes to Build Gaza Port, Major Challenges Loom**\
+`Famine is stalking Gaza, but the American-led initiative faces daunting obstacles in logistics, security and cost.`\
+https://nytimes.com/2024/03/09/world/middleeast/us-gaza-aid-port-israel.html
+
 **Biden Signs Legislation to Extend Funding for Critical Departments**\
 `With a partial shutdown averted, President Biden and Congress face tough negotiations ahead to finance the remaining federal agencies and departments by March 22.`\
 https://nytimes.com/2024/03/09/us/politics/biden-signs-spending-legislation.html
