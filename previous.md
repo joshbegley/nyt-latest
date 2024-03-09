@@ -1,3 +1,11 @@
+**Police Shoot and Kill Man Suspected of Stabbing a Woman at a Party**\
+`The police said they had found the man, 46, holding a knife in the hallway of a Queens apartment building when they responded to reports of an assault.`\
+https://nytimes.com/2024/03/08/nyregion/queens-man-shot-taser-nypd.html
+
+**3 Killed and 1 Injured in National Guard Helicopter Crash in Texas**\
+`The helicopter, patrolling the state’s southern border, was carrying soldiers and a Border Patrol agent, officials said.`\
+https://nytimes.com/2024/03/08/us/helicopter-crash-border-texas-mexico.html
+
 **Biden Makes a Rare Mention of Marijuana in the State of the Union**\
 `The president pointed toward his efforts to ease restrictions on cannabis, a potential signal that he could talk more during the campaign about an issue he has been reluctant to embrace.`\
 https://nytimes.com/2024/03/08/us/politics/biden-marijuana-state-of-union.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/08/us/politics/senate-spending-bill-shutdown.html
 **Providing Both Bombs and Food, Biden Puts Himself in the Middle of Gaza’s War**\
 `The president’s decision to send aid by air and sea represents a shift prompted by the growing humanitarian crisis. But it raised uncomfortable questions about America’s role.`\
 https://nytimes.com/2024/03/08/us/politics/biden-israel-gaza-war.html
-
-**Biden Makes a Campaign Stop in Pennsylvania**\
-`President Biden held a campaign rally outside Philadelphia on Friday to amplify his message from his State of the Union address.`\
-https://nytimes.com/video/us/elections/100000009351972/biden-2024-election.html
-
-**Prosecutors Charge Man With Firing Shots Outside the Capitol on Jan. 6**\
-`The charges once again laid bare one of the most persistent myths about the attack promoted by pro-Trump politicians and media figures: that none of the rioters were armed.`\
-https://nytimes.com/2024/03/08/us/politics/john-banuelos-jan-6-gun-charges.html
 
