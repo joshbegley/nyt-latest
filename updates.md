@@ -1,3 +1,7 @@
+**Colin Farrell and Brendan Gleason Drank There. Now You Can, Too.**\
+`A bar set built for “The Banshees of Inisherin” was discarded in a backyard after filming, then resurrected by a pub in Ireland. It’s up for sale.`\
+https://nytimes.com/2024/03/09/world/europe/banshees-inisherin-pub-ireland.html
+
 **Navalny’s Heirs Seek a Political Future in Russia**\
 `Aleksei Navalny’s team has found a new leader in the opposition leader’s widow, Yulia Navalnaya. But Navalny’s death has so far brought little change to their insular tactics.`\
 https://nytimes.com/2024/03/09/world/europe/yulia-navalnaya-russia-putin.html
