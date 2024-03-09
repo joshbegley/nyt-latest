@@ -1,3 +1,11 @@
+**Corrections: March 9, 2024**\
+`Corrections that appeared in print on Saturday, March 9, 2024.`\
+https://nytimes.com/2024/03/09/pageoneplus/corrections-march-9-2024.html
+
+**Quotation of the Day: Baffled Londoners Start Spreading the Schmear**\
+`Quotation of the Day for Saturday, March 9, 2024.`\
+https://nytimes.com/2024/03/09/pageoneplus/quotation-of-the-day-baffled-londoners-start-spreading-the-schmear.html
+
 **Police Shoot and Kill Man Suspected of Stabbing a Woman at a Party**\
 `The police said they had found the man, 46, holding a knife in the hallway of a Queens apartment building when they responded to reports of an assault.`\
 https://nytimes.com/2024/03/08/nyregion/queens-man-shot-taser-nypd.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/08/technology/microsoft-activision-gaming-union.html
 **National Guard in the Subway? A Transit Reporter Explains.**\
 `Ana Ley covers mass transit and commuters in New York City. In an interview, she discussed Gov. Kathy Hochul’s decision to beef up security on the city’s subway.`\
 https://nytimes.com/2024/03/08/pageoneplus/national-guard-subway.html
-
-**Senate Clears $460 Billion Bill to Avert Partial Shutdown, Sending It to Biden**\
-`The White House said the executive branch was halting shutdown preparations and that President Biden would sign the bill on Saturday. But the spending fight isn’t over yet.`\
-https://nytimes.com/2024/03/08/us/politics/senate-spending-bill-shutdown.html
-
-**Providing Both Bombs and Food, Biden Puts Himself in the Middle of Gaza’s War**\
-`The president’s decision to send aid by air and sea represents a shift prompted by the growing humanitarian crisis. But it raised uncomfortable questions about America’s role.`\
-https://nytimes.com/2024/03/08/us/politics/biden-israel-gaza-war.html
 
