@@ -1,3 +1,7 @@
+**Three Is Best: How China’s Family Planning Propaganda Has Changed**\
+`Faced with a shrinking and aging population, China is using propaganda channels to send the message: have more babies.`\
+https://nytimes.com/interactive/2024/03/09/world/asia/china-childbirth-propaganda.html
+
 **Lily Gladstone for Best Actress? Oscars Gamblers Are Betting Big.**\
 `Inside the world of people making bets on the winners of the Academy Awards — with some taking home thousands of dollars.`\
 https://nytimes.com/2024/03/09/business/oscars-betting.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news
 **The 10-Year-Old Boy Who Has Become the Face of Starvation in Gaza**\
 `The harrowing image of a skeletal Yazan Kafarneh circulated widely on social media and has served as a graphic warning about the enclave’s dire food situation.`\
 https://nytimes.com/2024/03/09/world/middleeast/yazan-kafarneh-gaza-starvation.html
-
-**‘You Can Hear a Pin Drop’: The Rise of Super Strict Schools in England**\
-`Inspired by the academic success of schools like the Michaela secondary school in northwest London, some principals are introducing tight controls on students’ behavior.`\
-https://nytimes.com/2024/03/09/world/europe/you-can-hear-a-pin-drop-the-rise-of-super-strict-schools-in-england.html
 
