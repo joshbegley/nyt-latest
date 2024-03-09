@@ -1,3 +1,19 @@
+**Navalny’s Heirs Seek a Political Future in Russia**\
+`Aleksei Navalny’s team has found a new leader in the opposition leader’s widow, Yulia Navalnaya. But Navalny’s death has so far brought little change to their insular tactics.`\
+https://nytimes.com/2024/03/09/world/europe/yulia-navalnaya-russia-putin.html
+
+**A Former Trump Aide Becomes a Liberal Favorite**\
+`After breaking with her onetime boss, Alyssa Farah Griffin finds a warm welcome on “The View” and CNN.`\
+https://nytimes.com/2024/03/09/style/a-former-trump-aide-becomes-a-liberal-favorite.html
+
+**Rains Are Scarce in the Amazon. Instead, Megafires Are Raging.**\
+`Hundreds of square miles of the rainforest have burned as countries in the region battle a record number of fires fueled by extreme weather.`\
+https://nytimes.com/2024/03/09/climate/rains-are-scarce-in-the-amazon-instead-megafires-are-raging.html
+
+**The Surprising Left-Right Alliance That Wants More Apartments in Suburbs**\
+`The YIMBY movement isn’t just for liberals any more. Legislators from both sides of the political divide are working to add duplexes and apartments to single-family neighborhoods.`\
+https://nytimes.com/2024/03/09/business/economy/the-surprising-left-right-alliance-that-wants-more-apartments-in-suburbs.html
+
 **These May Be the Oldest Olive Trees in the World**\
 `While the sentinel trees of Northern Lebanon may not be as old as some traditions hold, one tree might be more than 1,000 years old.`\
 https://nytimes.com/2024/03/09/science/olive-tree-oldest.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/03/09/opinion/the-long-strange-history-of-manifesting.h
 **BMW Is a Surprise Winner in Electric Vehicles**\
 `Once considered a laggard, the German luxury carmaker is one of only a few established automakers that has been able to compete effectively against Tesla.`\
 https://nytimes.com/2024/03/09/business/bmw-electric-vehicles.html
-
-**Toyota’s Hybrid-First Strategy Is Delivering Big Profits**\
-`Toyota, the world’s largest automaker, has been criticized for selling few electric vehicles, but its decision to focus on hybrids is paying off financially.`\
-https://nytimes.com/2024/03/09/business/toyotas-hybrid-electric-vehicles.html
-
-**These Oscar Snubs Still Rile Up Readers**\
-`You can’t forgive the Academy for passing up “Brokeback Mountain” or omitting Amy Adams in “Arrival,” among other oversights that still sting.`\
-https://nytimes.com/2024/03/09/movies/readers-oscar-snubs.html
-
-**The Biden-Trump Rerun: A Nation Craving Change Gets More of the Same**\
-`Americans love a candidate who promises something new. But when a sitting president runs against a former one, can either claim the mantle of change?`\
-https://nytimes.com/2024/03/09/us/politics/trump-biden-presidential-campaign-2024.html
-
-**This Debut Novel Is a Wondrous Babel of Ideas and Language**\
-`In “The Extinction of Irena Rey,” a writer goes missing and her translators give pursuit — until things get weird.`\
-https://nytimes.com/2024/03/09/books/review/jennifer-croft-extinction-of-irena-rey.html
 
