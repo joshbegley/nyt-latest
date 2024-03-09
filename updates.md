@@ -1,3 +1,11 @@
+**Corrections: March 9, 2024**\
+`Corrections that appeared in print on Saturday, March 9, 2024.`\
+https://nytimes.com/2024/03/09/pageoneplus/corrections-march-9-2024.html
+
+**Quotation of the Day: Baffled Londoners Start Spreading the Schmear**\
+`Quotation of the Day for Saturday, March 9, 2024.`\
+https://nytimes.com/2024/03/09/pageoneplus/quotation-of-the-day-baffled-londoners-start-spreading-the-schmear.html
+
 **Police Shoot and Kill Man Suspected of Stabbing a Woman at a Party**\
 `The police said they had found the man, 46, holding a knife in the hallway of a Queens apartment building when they responded to reports of an assault.`\
 https://nytimes.com/2024/03/08/nyregion/queens-man-shot-taser-nypd.html
