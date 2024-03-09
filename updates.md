@@ -1,3 +1,7 @@
+**Pope Says Ukraine Should Have the ‘Courage of the White Flag’**\
+`His words have raised questions about whether Francis was suggesting that Ukraine surrender, but a Vatican spokesman said the pope meant “cease-fire and negotiation.”`\
+https://nytimes.com/2024/03/09/world/europe/pope-ukraine-white-flag.html
+
 **Potential Obstacle to Trump Media’s Merger Appears to Have Been Cleared**\
 `Two early founders of Donald Trump’s social media company reached a temporary truce with the company on Saturday.`\
 https://nytimes.com/2024/03/09/business/trump-media-digital-world-merger.html
