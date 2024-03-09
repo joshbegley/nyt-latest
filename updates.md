@@ -1,3 +1,7 @@
+**There are enormous logistical hurdles to deliver much-needed aid to Gaza by sea.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/there-are-enormous-logistical-hurdles-to-deliver-much-needed-aid-to-gaza-by-sea
+
 **Biden and Trump campaign in Georgia, a critical battleground state.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/03/09/us/2024-presidential-election/biden-and-trump-campaign-in-georgia-a-critical-battleground-state
