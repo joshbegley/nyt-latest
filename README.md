@@ -1,3 +1,7 @@
+**What Would Paying Student Athletes Look Like?**\
+`A college team’s vote to unionize adds pressure on the N.C.A.A. to abandon rules that forbid paying student athletes like employees.`\
+https://nytimes.com/2024/03/09/business/dealbook/what-would-paying-student-athletes-look-like.html
+
 **Two Novels About Social Withdrawal**\
 `A chilly marriage; a catatonic protagonist.`\
 https://nytimes.com/2024/03/09/books/read-like-wind-recommendations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/opinion/famine-war-gaza.html
 **Heretics**\
 `The Rev. Carlton Pearson was a rising evangelical star — until he rejected hell.`\
 https://nytimes.com/2024/03/09/podcasts/heretics.html
-
-**Cramming for the Oscars**\
-`It’s been a rough year for Hollywood, but the post-awards season landscape offers some hints of hope for audiences.`\
-https://nytimes.com/2024/03/09/briefing/cramming-for-the-oscars.html
 
