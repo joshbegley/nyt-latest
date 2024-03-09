@@ -1,3 +1,7 @@
+**As U.S. Rushes to Build Gaza Port, Major Challenges Loom**\
+`Famine is stalking Gaza, but the American-led initiative faces daunting obstacles in logistics, security and cost.`\
+https://nytimes.com/2024/03/09/world/middleeast/as-us-rushes-to-build-gaza-port-major-challenges-loom.html
+
 **Questions Arise About Britt’s State of the Union Response**\
 `The Alabama senator used a story about sex trafficking to criticize the Biden administration’s border policies. But it misleading.`\
 https://nytimes.com/2024/03/09/us/politics/katie-britt-republican-response-sotu-trafficking.html
