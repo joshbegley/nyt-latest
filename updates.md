@@ -1,3 +1,7 @@
+**Microplastics Are a Big Problem, a New Film Warns**\
+`At SXSW, a documentary traces the arc of plastics in our lives, and highlights evolving research of the potential harm of its presence in our bodies.`\
+https://nytimes.com/2024/03/09/health/microplastics-sxsw-health-plastic-people.html
+
 **Ireland Rejects Constitution Changes, Keeping ‘Women in the Home’ Language**\
 `Two proposed amendments, which voters considered on Friday, were intended to reflect the more secular liberal values of the nation’s modern era.`\
 https://nytimes.com/2024/03/09/world/europe/ireland-constitution-referendums-women-home.html
