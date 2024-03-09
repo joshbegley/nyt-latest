@@ -4,7 +4,7 @@ https://nytimes.com/2024/03/09/us/politics/biden-signs-spending-legislation.html
 
 **As U.S. Rushes to Build Gaza Port, Major Challenges Loom**\
 `Famine is stalking Gaza, but the American-led initiative faces daunting obstacles in logistics, security and cost.`\
-https://nytimes.com/2024/03/09/world/middleeast/as-us-rushes-to-build-gaza-port-major-challenges-loom.html
+https://nytimes.com/2024/03/09/world/middleeast/us-gaza-aid-port-israel.html
 
 **Severe Weather Moves Across the South as the Northeast Braces for Heavy Rain**\
 `Forecasters said the New York City area could get up to two inches of rain into Sunday morning, with the highest totals expected in northeastern New Jersey.`\
