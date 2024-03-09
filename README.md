@@ -1,3 +1,7 @@
+**Biden Signs Legislation to Extend Funding for Critical Departments**\
+`With a partial shutdown averted, President Biden and Congress face tough negotiations ahead to finance the remaining federal agencies and departments by March 22.`\
+https://nytimes.com/2024/03/09/us/politics/biden-signs-spending-legislation.html
+
 **As U.S. Rushes to Build Gaza Port, Major Challenges Loom**\
 `Famine is stalking Gaza, but the American-led initiative faces daunting obstacles in logistics, security and cost.`\
 https://nytimes.com/2024/03/09/world/middleeast/as-us-rushes-to-build-gaza-port-major-challenges-loom.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/opinion/addiction-treatment-recovery.html
 **Meghan, Duchess of Sussex, Speaks Out About ‘Hateful’ Online Bullying**\
 `In an appearance at SXSW, Meghan said she experienced the heaviest online abuse during her pregnancies.`\
 https://nytimes.com/2024/03/09/us/meghan-markle-sxsw-online-bullying.html
-
-**There are enormous logistical hurdles to deliver much-needed aid to Gaza by sea.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/there-are-enormous-logistical-hurdles-to-deliver-much-needed-aid-to-gaza-by-sea
 
