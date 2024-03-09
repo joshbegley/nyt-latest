@@ -14,7 +14,7 @@ https://nytimes.com/2024/03/09/us/politics/biden-signs-spending-legislation.html
 `Famine is stalking Gaza, but the American-led initiative faces daunting obstacles in logistics, security and cost.`\
 https://nytimes.com/2024/03/09/world/middleeast/us-gaza-aid-port-israel.html
 
-**Severe Weather Moves Across the South as the Northeast Braces for Heavy Rain**\
+**Northeast Braces for Heavy Rain After Severe Weather Moves Across the South**\
 `Forecasters said the New York City area could get up to two inches of rain into Sunday morning, with the highest totals expected in northeastern New Jersey.`\
 https://nytimes.com/2024/03/09/us/weather-storm-tornado-rain.html
 
