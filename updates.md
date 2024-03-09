@@ -1,3 +1,7 @@
+**Northeast Braces for Heavy Rain After Severe Weather Moves Across the South**\
+`Forecasters said the New York City area could get up to two inches of rain into Sunday morning, with the highest totals expected in northeastern New Jersey.`\
+https://nytimes.com/2024/03/09/us/weather-storm-tornado-rain.html
+
 **Pope Says Ukraine Should Have the ‘Courage of the White Flag’**\
 `Francis’s words have raised questions about whether he was suggesting that Ukraine surrender, but a Vatican spokesman said the pope meant “cease-fire and negotiation.”`\
 https://nytimes.com/2024/03/09/world/europe/pope-ukraine-white-flag.html
