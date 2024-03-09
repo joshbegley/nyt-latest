@@ -1,3 +1,11 @@
+**Potential Obstacle to Trump Media’s Merger Appears to Have Been Cleared**\
+`Two early founders of Donald Trump’s social media company reached a temporary truce with the company on Saturday.`\
+https://nytimes.com/2024/03/09/business/trump-media-digital-world-merger.html
+
+**Trump praises Hungary’s nationalist prime minister as ‘the boss.’**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/03/09/us/2024-presidential-election/trump-orban-hungary
+
 **U.S. carries out a fifth airdrop in Gaza, delivering nearly 41,500 meals and 23,000 bottles of water.**\
 `By James C. McKinley Jr.`\
 https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/us-carries-out-a-fifth-airdrop-in-gaza-delivering-nearly-41500-meals-and-23000-bottles-of-water
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/09/world/europe/pope-ukraine-white-flag.html
 **Frostbitten Kansas City Fans Needed Amputations After Frigid Game**\
 `A Missouri hospital said the amputations involved mostly fingers and toes after a game in January when temperatures were below zero.`\
 https://nytimes.com/2024/03/09/us/chiefs-game-frostbite-amputations.html
-
-**Biden Signs Legislation to Extend Funding for Critical Departments**\
-`With a partial shutdown averted, President Biden and Congress face tough negotiations ahead to finance the remaining federal agencies and departments by March 22.`\
-https://nytimes.com/2024/03/09/us/politics/biden-signs-spending-legislation.html
-
-**As U.S. Rushes to Build Gaza Port, Major Challenges Loom**\
-`Famine is stalking Gaza, but the American-led initiative faces daunting obstacles in logistics, security and cost.`\
-https://nytimes.com/2024/03/09/world/middleeast/us-gaza-aid-port-israel.html
 
