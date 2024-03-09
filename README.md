@@ -23,7 +23,7 @@ https://nytimes.com/video/us/100000009352246/meghan-markle-online-bullying.html
 https://nytimes.com/2024/03/09/health/microplastics-sxsw-health-plastic-people.html
 
 **Ireland Rejects Constitution Changes, Keeping ‘Women in the Home’ Language**\
-`Two proposed amendments, which voters considered on Friday, were intended to reflect the more secular liberal values of the nation’s modern era.`\
+`Two proposed amendments, which voters considered on Friday, were intended to reflect the more secular, liberal values of the nation’s modern era.`\
 https://nytimes.com/2024/03/09/world/europe/ireland-constitution-referendums-women-home.html
 
 **Luscious Miso Leeks With White Beans**\
