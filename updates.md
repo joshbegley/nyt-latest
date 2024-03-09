@@ -1,3 +1,7 @@
+**Meghan, Duchess of Sussex, Calls Out ‘Cruel’ Social Media Comments**\
+`Meghan, Duchess of Sussex, described the negative attention she received online during her pregnancies as “hateful” and “cruel,” and urged a change in social media culture.`\
+https://nytimes.com/video/us/100000009352246/meghan-markle-online-bullying.html
+
 **Microplastics Are a Big Problem, a New Film Warns**\
 `At SXSW, a documentary traces the arc of plastics in our lives, and highlights evolving research of the potential harm of its presence in our bodies.`\
 https://nytimes.com/2024/03/09/health/microplastics-sxsw-health-plastic-people.html
