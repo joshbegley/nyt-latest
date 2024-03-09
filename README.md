@@ -1,3 +1,7 @@
+**Russia’s Advance Around Avdiivka Loses Momentum After Quick Gains**\
+`Ukraine has committed significant forces to defending the area, and Russian troops are now attacking across open fields with little cover.`\
+https://nytimes.com/2024/03/09/world/europe/russia-ukraine-avdiivka-villages.html
+
 **What Would Paying Student Athletes Look Like?**\
 `A college team’s vote to unionize adds pressure on the N.C.A.A. to abandon rules that forbid paying student athletes like employees.`\
 https://nytimes.com/2024/03/09/business/dealbook/what-would-paying-student-athletes-look-like.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/opinion/oppenheimer-films-nuclear-war.html
 **I Said the Era of Famines Might Be Ending. I Was Wrong.**\
 `Many things go into the conditions that create a food crisis: crop failures, high food prices, unemployment. But it’s war that has created the famines unfolding today.`\
 https://nytimes.com/2024/03/09/opinion/famine-war-gaza.html
-
-**Heretics**\
-`The Rev. Carlton Pearson was a rising evangelical star — until he rejected hell.`\
-https://nytimes.com/2024/03/09/podcasts/heretics.html
 
