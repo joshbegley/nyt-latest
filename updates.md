@@ -1,3 +1,7 @@
+**About 600 Workers Unionize at Microsoft-Owned Activision**\
+`The group will become the largest union at a video game company in the United States, while Microsoft pledged to stay neutral on the vote.`\
+https://nytimes.com/2024/03/08/technology/microsoft-activision-gaming-union.html
+
 **National Guard in the Subway? A Transit Reporter Explains.**\
 `Ana Ley covers mass transit and commuters in New York City. In an interview, she discussed Gov. Kathy Hochul’s decision to beef up security on the city’s subway.`\
 https://nytimes.com/2024/03/08/pageoneplus/national-guard-subway.html
