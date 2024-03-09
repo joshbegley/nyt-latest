@@ -1,3 +1,7 @@
+**Two Novels About Social Withdrawal**\
+`A chilly marriage; a catatonic protagonist.`\
+https://nytimes.com/2024/03/09/books/read-like-wind-recommendations.html
+
 **New Biden Ad Pokes Fun at His Age: ‘I’m Not a Young Guy. That’s No Secret.’**\
 `The ad, which will target a youthful demographic, represents a shift in tone, trying to turn one of the president’s greatest perceived liabilities into an asset.`\
 https://nytimes.com/2024/03/09/us/politics/biden-ad-age.html
