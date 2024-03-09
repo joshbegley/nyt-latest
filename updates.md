@@ -1,3 +1,19 @@
+**Ireland Rejects Constitution Changes, Keeping ‘Women in the Home’ Language**\
+`Two proposed amendments, which voters considered on Friday, were intended to reflect the more secular liberal values of the nation’s modern era.`\
+https://nytimes.com/2024/03/09/world/europe/ireland-constitution-referendums-women-home.html
+
+**Luscious Miso Leeks With White Beans**\
+`Hetty Lui McKinnon’s satisfying take on leeks vinaigrette combines silky leeks with a mustardy miso dressing and creamy white beans.`\
+https://nytimes.com/2024/03/09/dining/luscious-miso-leeks-with-white-beans.html
+
+**Fighting Hopelessness in Treating Addiction**\
+`Readers praise a column by Nicholas Kristof about an effective program.`\
+https://nytimes.com/2024/03/09/opinion/addiction-treatment-recovery.html
+
+**What Would Paying Student Athletes Look Like?**\
+`A college team’s vote to unionize adds pressure on the N.C.A.A. to abandon rules that forbid paying student athletes like employees.`\
+https://nytimes.com/2024/03/09/business/dealbook/ncaa-athletes-union-pay.html
+
 **Meghan, Duchess of Sussex, Speaks Out About ‘Hateful’ Online Bullying**\
 `In an appearance at SXSW, Meghan said she experienced the heaviest online abuse during her pregnancies.`\
 https://nytimes.com/2024/03/09/us/meghan-markle-sxsw-online-bullying.html
