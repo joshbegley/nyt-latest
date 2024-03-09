@@ -1,3 +1,11 @@
+**Reading the Federal Judge’s Ruling**\
+`A U.S. district judge allowed the Biden administration to continue a program that it has used to give temporary legal status to hundreds of thousands of citizens of Cuba, Haiti, Nicaragua and Venezuela.`\
+https://nytimes.com/interactive/2024/03/08/us/biden-humanitarian-parole-ruling.html
+
+**Biden Makes a Campaign Stop in Pennsylvania**\
+`President Biden held a campaign rally outside Philadelphia on Friday to amplify his message from his State of the Union address.`\
+https://nytimes.com/video/us/elections/100000009351972/biden-2024-election.html
+
 **About 600 Workers Unionize at Microsoft-Owned Activision**\
 `The group will become the largest union at a video game company in the United States, while Microsoft pledged to stay neutral on the vote.`\
 https://nytimes.com/2024/03/08/technology/microsoft-activision-gaming-union.html
