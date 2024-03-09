@@ -1,3 +1,7 @@
+**Questions arise about facts in Katie Britt’s Republican response to the State of the Union.**\
+`By Ken Bensinger`\
+https://nytimes.com/2024/03/09/us/politics/questions-arise-about-facts-in-katie-britts-republican-response-to-the-state-of-the-union.html
+
 **Meghan, Duchess of Sussex, Calls Out ‘Cruel’ Social Media Comments**\
 `Meghan, Duchess of Sussex, described the negative attention she received online during her pregnancies as “hateful” and “cruel,” and urged a change in social media culture.`\
 https://nytimes.com/video/us/100000009352246/meghan-markle-online-bullying.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/09/us/2024-presidential-election/biden-and-trum
 **Russia’s Advance Around Avdiivka Loses Momentum After Quick Gains**\
 `Ukraine has committed significant forces to defending the area, and Russian troops are now attacking across open fields with little cover.`\
 https://nytimes.com/2024/03/09/world/europe/russia-ukraine-avdiivka-villages.html
-
-**What Would Paying Student Athletes Look Like?**\
-`A college team’s vote to unionize adds pressure on the N.C.A.A. to abandon rules that forbid paying student athletes like employees.`\
-https://nytimes.com/2024/03/09/business/dealbook/ncaa-athletes-union-pay.html
 
