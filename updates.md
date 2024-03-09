@@ -1,3 +1,7 @@
+**Severe Weather Moves Across the South as the Northeast Braces for Heavy Rain**\
+`Forecasters said the New York City area could get up to two inches of rain into Sunday morning, with the highest totals expected in northeastern New Jersey.`\
+https://nytimes.com/2024/03/09/us/weather-storm-tornado-rain.html
+
 **Questions Arise About Britt’s State of the Union Response**\
 `The Alabama senator used a story about sex trafficking to criticize the Biden administration’s border policies. But it wasn’t fully accurate.`\
 https://nytimes.com/2024/03/09/us/politics/katie-britt-republican-response-sotu-trafficking.html
