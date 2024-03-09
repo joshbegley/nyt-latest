@@ -1,3 +1,7 @@
+**Ireland Rejects Constitution Changes, Keeping ‘Women in the Home’ Language**\
+`Two proposed amendments, which voters considered on Friday, were intended to reflect the more secular, liberal values of the nation’s modern era.`\
+https://nytimes.com/2024/03/09/world/europe/ireland-constitution-referendums-women-home.html
+
 **As U.S. Rushes to Build Gaza Port, Major Challenges Loom**\
 `Famine is stalking Gaza, but the American-led initiative faces daunting obstacles in logistics, security and cost.`\
 https://nytimes.com/2024/03/09/world/middleeast/us-gaza-aid-port-israel.html
