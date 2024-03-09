@@ -1,5 +1,9 @@
 **Biden and Trump campaign in Georgia, a critical battleground state.**\
 `By Chris Cameron`\
+https://nytimes.com/live/2024/03/09/us/2024-presidential-election/biden-and-trump-campaign-in-georgia-a-critical-battleground-state
+
+**Biden and Trump campaign in Georgia, a critical battleground state.**\
+`By Chris Cameron`\
 https://nytimes.com/2024/03/09/us/politics/biden-and-trump-campaign-in-georgia-a-critical-battleground-state.html
 
 **Russia’s Advance Around Avdiivka Loses Momentum After Quick Gains**\
