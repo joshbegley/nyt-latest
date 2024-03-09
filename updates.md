@@ -1,3 +1,7 @@
+**3 Killed in National Guard Helicopter Crash Near Mexican Border**\
+`The helicopter, patrolling in southern Texas, was carrying soldiers and a Border Patrol agent, officials said.`\
+https://nytimes.com/2024/03/08/us/helicopter-crash-border-texas-mexico.html
+
 **The 10-Year-Old Boy Who Has Become the Face of Starvation in Gaza**\
 `The harrowing image of a skeletal Yazan Kafarneh circulated widely on social media and has served as a graphic warning about the enclave’s dire food situation.`\
 https://nytimes.com/2024/03/09/world/middleeast/yazan-kafarneh-gaza-starvation.html
