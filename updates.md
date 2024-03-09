@@ -1,3 +1,7 @@
+**‘You Can Hear a Pin Drop’: The Rise of Super Strict Schools in England**\
+`Inspired by the academic success of schools like the Michaela secondary school in northwest London, some principals are introducing tight controls on students’ behavior.`\
+https://nytimes.com/2024/03/09/world/europe/you-can-hear-a-pin-drop-the-rise-of-super-strict-schools-in-england.html
+
 **Lily Gladstone for Best Actress? Oscars Gamblers Are Betting Big.**\
 `Inside the world of people making bets on the winners of the Academy Awards — with some taking home thousands of dollars.`\
 https://nytimes.com/2024/03/09/business/oscars-betting.html

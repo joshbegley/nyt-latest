@@ -34,7 +34,7 @@ https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news
 `The harrowing image of a skeletal Yazan Kafarneh circulated widely on social media and has served as a graphic warning about the enclave’s dire food situation.`\
 https://nytimes.com/2024/03/09/world/middleeast/yazan-kafarneh-gaza-starvation.html
 
-**Macron and Scholz, Never Close, Spar Over Policy Toward Ukraine and Russia**\
-`A fraught relationship has recently turned bitter, with insults and barbs threatening European unity at a critical moment.`\
-https://nytimes.com/2024/03/09/world/europe/macron-scholz-russia-ukraine-aid.html
+**‘You Can Hear a Pin Drop’: The Rise of Super Strict Schools in England**\
+`Inspired by the academic success of schools like the Michaela secondary school in northwest London, some principals are introducing tight controls on students’ behavior.`\
+https://nytimes.com/2024/03/09/world/europe/you-can-hear-a-pin-drop-the-rise-of-super-strict-schools-in-england.html
 
