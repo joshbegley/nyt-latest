@@ -1,3 +1,7 @@
+**U.S. carries out a fifth airdrop in Gaza, delivering nearly 41,500 meals and 23,000 bottles of water.**\
+`By James C. McKinley Jr.`\
+https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/us-carries-out-a-fifth-airdrop-in-gaza-delivering-nearly-41500-meals-and-23000-bottles-of-water
+
 **U.S. Is Said to Open Criminal Inquiry Into Boeing**\
 `The investigation is tied to an incident on an Alaska Airlines flight in early January. Boeing also told a Senate panel that it cannot find a record of the work done on the Alaska plane.`\
 https://nytimes.com/2024/03/09/business/boeing-criminal-inquiry-alaska-airlines-flight.html
