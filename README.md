@@ -10,9 +10,9 @@ https://nytimes.com/2024/03/09/world/middleeast/us-gaza-aid-port-israel.html
 `Forecasters said the New York City area could get up to two inches of rain into Sunday morning, with the highest totals expected in northeastern New Jersey.`\
 https://nytimes.com/2024/03/09/us/weather-storm-tornado-rain.html
 
-**Questions Arise About Britt’s State of the Union Response**\
-`The Alabama senator used a story about sex trafficking to criticize the Biden administration’s border policies. But it was misleading.`\
-https://nytimes.com/2024/03/09/us/politics/katie-britt-republican-response-sotu-trafficking.html
+**Britt Faces Accusations of Misleading on Border in State of the Union Response**\
+`The Alabama senator used a story about sex trafficking to criticize the Biden administration’s border policies. But the events appear to have occurred in Mexico years ago.`\
+https://nytimes.com/2024/03/09/us/politics/katie-britt-republican-response-sotu-border.html
 
 **Meghan, Duchess of Sussex, Calls Out ‘Cruel’ Social Media Comments**\
 `Meghan, Duchess of Sussex, described the negative attention she received online during her pregnancies as “hateful” and “cruel,” and urged a change in social media culture.`\
