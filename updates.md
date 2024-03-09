@@ -1,3 +1,11 @@
+**Prosecutors Charge Man With Firing Shots Outside the Capitol on Jan. 6**\
+`The charges once again laid bare one of the most persistent myths about the attack promoted by pro-Trump politicians and media figures: that none of the rioters were armed.`\
+https://nytimes.com/2024/03/08/us/politics/john-banuelos-jan-6-gun-charges.html
+
+**Biden the President Wants to Curb TikTok. Biden the Candidate Embraces Its Stars.**\
+`At a party for social media influencers at the White House this week, President Biden’s political concerns collided with his national security concerns.`\
+https://nytimes.com/2024/03/08/us/politics/biden-tiktok.html
+
 **Address Showed Biden Seeking Tricky Balance on Immigration**\
 `The president used his State of the Union speech to try to demonstrate that he could be tough on the border without demonizing immigrants.`\
 https://nytimes.com/2024/03/08/us/politics/biden-immigration-state-of-the-union.html

@@ -1,3 +1,11 @@
+**Prosecutors Charge Man With Firing Shots Outside the Capitol on Jan. 6**\
+`The charges once again laid bare one of the most persistent myths about the attack promoted by pro-Trump politicians and media figures: that none of the rioters were armed.`\
+https://nytimes.com/2024/03/08/us/politics/john-banuelos-jan-6-gun-charges.html
+
+**Biden the President Wants to Curb TikTok. Biden the Candidate Embraces Its Stars.**\
+`At a party for social media influencers at the White House this week, President Biden’s political concerns collided with his national security concerns.`\
+https://nytimes.com/2024/03/08/us/politics/biden-tiktok.html
+
 **Address Showed Biden Seeking Tricky Balance on Immigration**\
 `The president used his State of the Union speech to try to demonstrate that he could be tough on the border without demonizing immigrants.`\
 https://nytimes.com/2024/03/08/us/politics/biden-immigration-state-of-the-union.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/08/world/middleeast/biden-gaza-aid-port-meals.html
 **Judge Upholds Biden Program Giving Some Immigrants Short-Term Legal Status**\
 `The initiative allows up to 360,000 people a year from Cuba, Haiti, Nicaragua and Venezuela to live and work in the United States if supported by a financial sponsor.`\
 https://nytimes.com/2024/03/08/us/biden-texas-temporary-status-program-immigration.html
-
-**Mexican Officers Shoot and Kill Student From Rural Teachers College**\
-`The 23-year-old victim was enrolled at the same school that 43 students attended before they were abducted in 2014.`\
-https://nytimes.com/2024/03/08/world/americas/mexico-police-student-death-shooting.html
-
-**With Goku, Akira Toriyama Created a Hero That Crossed Generations and Continents**\
-`The creator of “Dragon Ball” helped bring anime to the world. Its main character became a cultural phenomenon.`\
-https://nytimes.com/2024/03/08/arts/television/akira-toriyama-dragon-ball-goku.html
 
