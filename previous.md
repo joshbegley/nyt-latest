@@ -1,3 +1,7 @@
+**Biden and Trump campaign in Georgia, a critical battleground state.**\
+`By Chris Cameron`\
+https://nytimes.com/2024/03/09/us/politics/biden-and-trump-campaign-in-georgia-a-critical-battleground-state.html
+
 **Russia’s Advance Around Avdiivka Loses Momentum After Quick Gains**\
 `Ukraine has committed significant forces to defending the area, and Russian troops are now attacking across open fields with little cover.`\
 https://nytimes.com/2024/03/09/world/europe/russia-ukraine-avdiivka-villages.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/opinion/emmanuel-todd-decline-west.html
 **‘Oppenheimer’ Is the Origin Story. These Three Movies Reveal Our Nuclear Present.**\
 `This Oscars weekend: How films and culture help us imagine the unimaginable.`\
 https://nytimes.com/2024/03/09/opinion/oppenheimer-films-nuclear-war.html
-
-**I Said the Era of Famines Might Be Ending. I Was Wrong.**\
-`Many things go into the conditions that create a food crisis: crop failures, high food prices, unemployment. But it’s war that has created the famines unfolding today.`\
-https://nytimes.com/2024/03/09/opinion/famine-war-gaza.html
 
