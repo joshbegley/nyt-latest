@@ -1,4 +1,4 @@
-**Frostbitten Kansas City Chiefs Fans Needed Amputations After Frigid Game**\
+**Frostbitten Kansas City Fans Needed Amputations After Frigid Game**\
 `A Missouri hospital said the amputations involved mostly fingers and toes after a game in January when temperatures were below zero.`\
 https://nytimes.com/2024/03/09/us/chiefs-game-frostbite-amputations.html
 
