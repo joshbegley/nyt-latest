@@ -3,7 +3,7 @@
 https://nytimes.com/2024/03/09/us/weather-storm-tornado-rain.html
 
 **Questions Arise About Britt’s State of the Union Response**\
-`The Alabama senator used a story about sex trafficking to criticize the Biden administration’s border policies. But it wasn’t fully accurate.`\
+`The Alabama senator used a story about sex trafficking to criticize the Biden administration’s border policies. But it misleading.`\
 https://nytimes.com/2024/03/09/us/politics/katie-britt-republican-response-sotu-trafficking.html
 
 **Meghan, Duchess of Sussex, Calls Out ‘Cruel’ Social Media Comments**\
