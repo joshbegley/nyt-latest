@@ -1,3 +1,7 @@
+**Pet Shop That Sold Sick and Hurt Puppies Will Repay Nearly 200 Customers**\
+`Shake A Paw agreed to settle a lawsuit brought by New York’s attorney general after investigators found that the Long Island business was selling puppies from so-called puppy mills.`\
+https://nytimes.com/2024/03/08/nyregion/long-island-sick-puppies-pay.html
+
 **Read the Federal Judge’s Ruling**\
 `A U.S. district judge allowed the Biden administration to continue a program that it has used to give temporary legal status to hundreds of thousands of citizens of Cuba, Haiti, Nicaragua and Venezuela.`\
 https://nytimes.com/interactive/2024/03/08/us/biden-humanitarian-parole-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/us/politics/biden-tiktok.html
 **Address Showed Biden Seeking Tricky Balance on Immigration**\
 `The president used his State of the Union speech to try to demonstrate that he could be tough on the border without demonizing immigrants.`\
 https://nytimes.com/2024/03/08/us/politics/biden-immigration-state-of-the-union.html
-
-**Wide Ramifications Seen for Brain Damage Found in Maine Gunman**\
-`Exposure to blasts, even at low levels, may play a much greater role in veterans’ mental health struggles than has been known, with implications for treatment strategies and for criminal justice.`\
-https://nytimes.com/2024/03/08/us/lewiston-mass-shooting-robert-card.html
 
