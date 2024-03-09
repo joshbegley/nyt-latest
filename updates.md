@@ -1,3 +1,7 @@
+**Rack ’Em Up**\
+`Enrique Henestroza Anguiano and Matthew Stock are friends with words.`\
+https://nytimes.com/2024/03/09/crosswords/daily-puzzle-2024-03-10.html
+
 **William Whitworth, Revered Writer and Editor, Is Dead at 87**\
 `After writing memorable character sketches and fine-tuning others’ copy at The New Yorker, he spent two decades as editor in chief of The Atlantic Monthly.`\
 https://nytimes.com/2024/03/09/business/media/william-whitworth-dead.html

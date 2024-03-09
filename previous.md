@@ -1,3 +1,7 @@
+**Rack ’Em Up**\
+`Enrique Henestroza Anguiano and Matthew Stock are friends with words.`\
+https://nytimes.com/2024/03/09/crosswords/daily-puzzle-2024-03-10.html
+
 **William Whitworth, Revered Writer and Editor, Is Dead at 87**\
 `After writing memorable character sketches and fine-tuning others’ copy at The New Yorker, he spent two decades as editor in chief of The Atlantic Monthly.`\
 https://nytimes.com/2024/03/09/business/media/william-whitworth-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/world/middleeast/us-gaza-aid-port-israel.html
 **Northeast Braces for Heavy Rain After Severe Weather Moves Across the South**\
 `Forecasters said the New York City area could get up to two inches of rain into Sunday morning, with the highest totals expected in northeastern New Jersey.`\
 https://nytimes.com/2024/03/09/us/weather-storm-tornado-rain.html
-
-**Britt Faces Accusations of Misleading on Border in State of the Union Response**\
-`The Alabama senator used a story about sex trafficking to criticize the Biden administration’s border policies. But the events appear to have occurred in Mexico years ago.`\
-https://nytimes.com/2024/03/09/us/politics/katie-britt-republican-response-sotu-border.html
 
