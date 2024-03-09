@@ -1,3 +1,7 @@
+**What Would Paying Student Athletes Look Like?**\
+`A college team’s vote to unionize adds pressure on the N.C.A.A. to abandon rules that forbid paying student athletes like employees.`\
+https://nytimes.com/2024/03/09/business/dealbook/what-would-paying-student-athletes-look-like.html
+
 **Two Novels About Social Withdrawal**\
 `A chilly marriage; a catatonic protagonist.`\
 https://nytimes.com/2024/03/09/books/read-like-wind-recommendations.html
