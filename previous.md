@@ -1,3 +1,7 @@
+**Cramming for the Oscars**\
+`It’s been a rough year for Hollywood, but the post-awards season landscape offers some hints of hope for audiences.`\
+https://nytimes.com/2024/03/09/briefing/cramming-for-the-oscars.html
+
 **A Call to End Gambling Ads as Athletes and Celebrities Are Shut Out of Them**\
 `A group wants the federal government to mirror its blanket restrictions on tobacco ads, citing addiction and its effect on sports.`\
 https://nytimes.com/2024/03/09/world/canada/canada-sports-gambling-advertising.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/us/miami-beach-spring-break.html
 **They Want to Make Palm Oil in a Lab. Without Palm Trees.**\
 `Palm oil. It’s in your snacks, your soap, pretty much everything. But palm oil plantations have caused vast deforestation. Can these three tech executives help fix things?`\
 https://nytimes.com/2024/03/09/climate/palm-oil-lab-startup.html
-
-**A Panorama of Design**\
-`A look at design-world events, products and people.`\
-https://nytimes.com/2024/03/09/style/design-products.html
 
