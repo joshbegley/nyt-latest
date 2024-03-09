@@ -1,3 +1,7 @@
+**U.S. carries out a fifth airdrop in Gaza, delivering nearly 41,500 meals and 23,000 bottles of water.**\
+`By James C. McKinley Jr.`\
+https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/us-carries-out-a-fifth-airdrop-in-gaza-delivering-nearly-41500-meals-and-23000-bottles-of-water
+
 **Rack ’Em Up**\
 `Enrique Henestroza Anguiano and Matthew Stock are friends with words.`\
 https://nytimes.com/2024/03/09/crosswords/daily-puzzle-2024-03-10.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/us/politics/biden-signs-spending-legislation.html
 **As U.S. Rushes to Build Gaza Port, Major Challenges Loom**\
 `Famine is stalking Gaza, but the American-led initiative faces daunting obstacles in logistics, security and cost.`\
 https://nytimes.com/2024/03/09/world/middleeast/us-gaza-aid-port-israel.html
-
-**Northeast Braces for Heavy Rain After Severe Weather Moves Across the South**\
-`Forecasters said the New York City area could get up to two inches of rain into Sunday morning, with the highest totals expected in northeastern New Jersey.`\
-https://nytimes.com/2024/03/09/us/weather-storm-tornado-rain.html
 
