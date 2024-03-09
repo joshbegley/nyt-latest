@@ -1,3 +1,19 @@
+**Navalny’s Heirs Seek a Political Future in Russia**\
+`Aleksei Navalny’s team has found a new leader in the opposition leader’s widow, Yulia Navalnaya. But Navalny’s death has so far brought little change to their insular tactics.`\
+https://nytimes.com/2024/03/09/world/europe/yulia-navalnaya-russia-putin.html
+
+**A Former Trump Aide Becomes a Liberal Favorite**\
+`After breaking with her onetime boss, Alyssa Farah Griffin finds a warm welcome on “The View” and CNN.`\
+https://nytimes.com/2024/03/09/style/a-former-trump-aide-becomes-a-liberal-favorite.html
+
+**Rains Are Scarce in the Amazon. Instead, Megafires Are Raging.**\
+`Hundreds of square miles of the rainforest have burned as countries in the region battle a record number of fires fueled by extreme weather.`\
+https://nytimes.com/2024/03/09/climate/rains-are-scarce-in-the-amazon-instead-megafires-are-raging.html
+
+**The Surprising Left-Right Alliance That Wants More Apartments in Suburbs**\
+`The YIMBY movement isn’t just for liberals any more. Legislators from both sides of the political divide are working to add duplexes and apartments to single-family neighborhoods.`\
+https://nytimes.com/2024/03/09/business/economy/the-surprising-left-right-alliance-that-wants-more-apartments-in-suburbs.html
+
 **These May Be the Oldest Olive Trees in the World**\
 `While the sentinel trees of Northern Lebanon may not be as old as some traditions hold, one tree might be more than 1,000 years old.`\
 https://nytimes.com/2024/03/09/science/olive-tree-oldest.html
