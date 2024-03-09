@@ -31,7 +31,7 @@ https://nytimes.com/2024/03/08/technology/microsoft-activision-gaming-union.html
 https://nytimes.com/2024/03/08/pageoneplus/national-guard-subway.html
 
 **Senate Clears $460 Billion Bill to Avert Partial Shutdown, Sending It to Biden**\
-`President Biden is expected to sign the legislation, the product of a bipartisan deal, ahead of the midnight shutdown deadline — but the spending fight isn’t over yet.`\
+`The White House said the executive branch was halting shutdown preparations and that President Biden would sign the bill on Saturday. But the spending fight isn’t over yet.`\
 https://nytimes.com/2024/03/08/us/politics/senate-spending-bill-shutdown.html
 
 **Providing Both Bombs and Food, Biden Puts Himself in the Middle of Gaza’s War**\

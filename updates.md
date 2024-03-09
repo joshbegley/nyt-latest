@@ -1,3 +1,7 @@
+**Senate Clears $460 Billion Bill to Avert Partial Shutdown, Sending It to Biden**\
+`The White House said the executive branch was halting shutdown preparations and that President Biden would sign the bill on Saturday. But the spending fight isn’t over yet.`\
+https://nytimes.com/2024/03/08/us/politics/senate-spending-bill-shutdown.html
+
 **Police Shoot and Kill Man Suspected of Stabbing a Woman at a Party**\
 `The police said they had found the man, 46, holding a knife in the hallway of a Queens apartment building when they responded to reports of an assault.`\
 https://nytimes.com/2024/03/08/nyregion/queens-man-shot-taser-nypd.html
