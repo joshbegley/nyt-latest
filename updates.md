@@ -1,3 +1,7 @@
+**Read the Federal Judge’s Ruling**\
+`A U.S. district judge allowed the Biden administration to continue a program that it has used to give temporary legal status to hundreds of thousands of citizens of Cuba, Haiti, Nicaragua and Venezuela.`\
+https://nytimes.com/interactive/2024/03/08/us/biden-humanitarian-parole-ruling.html
+
 **Reading the Federal Judge’s Ruling**\
 `A U.S. district judge allowed the Biden administration to continue a program that it has used to give temporary legal status to hundreds of thousands of citizens of Cuba, Haiti, Nicaragua and Venezuela.`\
 https://nytimes.com/interactive/2024/03/08/us/biden-humanitarian-parole-ruling.html
