@@ -1,3 +1,7 @@
+**Colin Farrell and Brendan Gleason Drank There. Now You Can, Too.**\
+`A bar set built for “The Banshees of Inisherin” was discarded in a backyard after filming, then resurrected by a pub in Ireland. It’s up for sale.`\
+https://nytimes.com/2024/03/09/world/europe/banshees-inisherin-pub-ireland.html
+
 **Navalny’s Heirs Seek a Political Future in Russia**\
 `Aleksei Navalny’s team has found a new leader in the opposition leader’s widow, Yulia Navalnaya. But Navalny’s death has so far brought little change to their insular tactics.`\
 https://nytimes.com/2024/03/09/world/europe/yulia-navalnaya-russia-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/style/design-products.html
 **The Long, Strange History of ‘Manifesting’**\
 `Americans have long been attracted to the idea that we can shape reality with our will.`\
 https://nytimes.com/2024/03/09/opinion/the-long-strange-history-of-manifesting.html
-
-**BMW Is a Surprise Winner in Electric Vehicles**\
-`Once considered a laggard, the German luxury carmaker is one of only a few established automakers that has been able to compete effectively against Tesla.`\
-https://nytimes.com/2024/03/09/business/bmw-electric-vehicles.html
 
