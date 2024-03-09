@@ -1,3 +1,7 @@
+**As U.S. Rushes to Build Gaza Port, Major Challenges Loom**\
+`Famine is stalking Gaza, but the American-led initiative faces daunting obstacles in logistics, security and cost.`\
+https://nytimes.com/2024/03/09/world/middleeast/as-us-rushes-to-build-gaza-port-major-challenges-loom.html
+
 **Severe Weather Moves Across the South as the Northeast Braces for Heavy Rain**\
 `Forecasters said the New York City area could get up to two inches of rain into Sunday morning, with the highest totals expected in northeastern New Jersey.`\
 https://nytimes.com/2024/03/09/us/weather-storm-tornado-rain.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/us/meghan-markle-sxsw-online-bullying.html
 **There are enormous logistical hurdles to deliver much-needed aid to Gaza by sea.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/there-are-enormous-logistical-hurdles-to-deliver-much-needed-aid-to-gaza-by-sea
-
-**Biden and Trump campaign in Georgia, a critical battleground state.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/03/09/us/2024-presidential-election/biden-and-trump-campaign-in-georgia-a-critical-battleground-state
 
