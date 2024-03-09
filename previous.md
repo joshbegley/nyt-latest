@@ -1,3 +1,7 @@
+**Meghan, Duchess of Sussex, Speaks Out About ‘Hateful’ Online Bullying**\
+`In an appearance at SXSW, Meghan said she experienced the heaviest online abuse during her pregnancies.`\
+https://nytimes.com/2024/03/09/us/meghan-markle-sxsw-online-bullying.html
+
 **There are enormous logistical hurdles to deliver much-needed aid to Gaza by sea.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/there-are-enormous-logistical-hurdles-to-deliver-much-needed-aid-to-gaza-by-sea
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/opinion/gaza-israel-war.html
 **How ‘Past Lives’ Changed My Mind About My Relationship**\
 `In the movie’s central love triangle, I rooted for one outcome. But my dating life told a different story.`\
 https://nytimes.com/2024/03/09/opinion/past-lives-love-triangle.html
-
-**This Prophetic Academic Now Foresees the West’s Defeat**\
-`Emmanuel Todd, a historian and anthropologist, has a knack for prediction.`\
-https://nytimes.com/2024/03/09/opinion/emmanuel-todd-decline-west.html
 

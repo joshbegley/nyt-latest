@@ -1,3 +1,7 @@
+**Meghan, Duchess of Sussex, Speaks Out About ‘Hateful’ Online Bullying**\
+`In an appearance at SXSW, Meghan said she experienced the heaviest online abuse during her pregnancies.`\
+https://nytimes.com/2024/03/09/us/meghan-markle-sxsw-online-bullying.html
+
 **There are enormous logistical hurdles to deliver much-needed aid to Gaza by sea.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/there-are-enormous-logistical-hurdles-to-deliver-much-needed-aid-to-gaza-by-sea
