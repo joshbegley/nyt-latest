@@ -1,3 +1,7 @@
+**Biden Makes a Rare Mention of Marijuana in the State of the Union**\
+`The president pointed toward his efforts to ease restrictions on cannabis, a potential signal that he could talk more during the campaign about an issue he has been reluctant to embrace.`\
+https://nytimes.com/2024/03/08/us/politics/biden-marijuana-state-of-union.html
+
 **MacGyvering**\
 `Let’s see if we can puzzle our way out of John Guzzetta’s tough themeless.`\
 https://nytimes.com/2024/03/08/crosswords/daily-puzzle-2024-03-09.html
