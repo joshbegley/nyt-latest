@@ -1,3 +1,7 @@
+**MacGyvering**\
+`Let’s see if we can puzzle our way out of John Guzzetta’s tough themeless.`\
+https://nytimes.com/2024/03/08/crosswords/daily-puzzle-2024-03-09.html
+
 **Pet Shop That Sold Sick and Hurt Puppies Will Repay Nearly 200 Customers**\
 `Shake A Paw agreed to settle a lawsuit brought by New York’s attorney general after investigators found that the Long Island business was selling puppies from so-called puppy mills.`\
 https://nytimes.com/2024/03/08/nyregion/long-island-sick-puppies-pay.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/08/us/politics/john-banuelos-jan-6-gun-charges.html
 **Biden the President Wants to Curb TikTok. Biden the Candidate Embraces Its Stars.**\
 `At a party for social media influencers at the White House this week, President Biden’s political concerns collided with his national security concerns.`\
 https://nytimes.com/2024/03/08/us/politics/biden-tiktok.html
-
-**Address Showed Biden Seeking Tricky Balance on Immigration**\
-`The president used his State of the Union speech to try to demonstrate that he could be tough on the border without demonizing immigrants.`\
-https://nytimes.com/2024/03/08/us/politics/biden-immigration-state-of-the-union.html
 
