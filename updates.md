@@ -1,3 +1,7 @@
+**Pope Says Ukraine Should Have the ‘Courage of the White Flag’**\
+`Francis’s words have raised questions about whether he was suggesting that Ukraine surrender, but a Vatican spokesman said the pope meant “cease-fire and negotiation.”`\
+https://nytimes.com/2024/03/09/world/europe/pope-ukraine-white-flag.html
+
 **Frostbitten Kansas City Fans Needed Amputations After Frigid Game**\
 `A Missouri hospital said the amputations involved mostly fingers and toes after a game in January when temperatures were below zero.`\
 https://nytimes.com/2024/03/09/us/chiefs-game-frostbite-amputations.html
