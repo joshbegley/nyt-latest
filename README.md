@@ -26,8 +26,8 @@ https://nytimes.com/2024/03/10/us/virginia-legacy-admissions-public-colleges-uni
 `By Kyle Buchanan`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/politics-oscars
 
-**Here’s what you can expect at the ceremony, including the presenters and the performances.**\
-`By Sarah Bahr`\
+**Here Are the 2024 Oscars Host, Presenters and Performers**\
+`Jimmy Kimmel will return as the host. Here’s who else you can expect to see tonight.`\
 https://nytimes.com/2024/03/10/movies/oscars-host-presenters-performers.html
 
 **Here’s how to watch Sunday night’s ceremony.**\
