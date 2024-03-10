@@ -28,7 +28,7 @@ https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/politics-oscars
 
 **Here’s what you can expect at the ceremony, including the presenters and the performances.**\
 `By Sarah Bahr`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/heres-what-you-can-expect-at-the-ceremony-including-the-presenters-and-the-performances
+https://nytimes.com/2024/03/10/movies/oscars-host-presenters-performers.html
 
 **Here’s how to watch Sunday night’s ceremony.**\
 `By Sarah Bahr`\
