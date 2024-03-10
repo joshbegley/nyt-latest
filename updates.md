@@ -1,3 +1,7 @@
+**Portugal Votes in a Tight Race With a Hard-Right Surge**\
+`The early general election comes after a corruption scandal that plunged the Socialist government into chaos. The far right could play kingmaker.`\
+https://nytimes.com/2024/03/10/world/europe/portugal-election-far-right.html
+
 **Xi Sticks to His Vision for China’s Rise Even as Growth Slows**\
 `China’s leader, Xi Jinping, believes his vision for technological dominance will keep powering the country’s ascent while the West recedes.`\
 https://nytimes.com/2024/03/09/world/asia/china-economy-xi.html
