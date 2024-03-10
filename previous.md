@@ -1,3 +1,11 @@
+**Here’s what you can expect at the ceremony, including the presenters and the performances.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/heres-what-you-can-expect-at-the-ceremony-including-the-presenters-and-the-performances
+
+**Here’s how to watch Sunday night’s ceremony.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/heres-how-to-watch-sunday-nights-ceremony
+
 **After Woman Loses Feet in Subway Shoving, Her Boyfriend Is Charged**\
 `Christian Valdez was charged with attempted murder after the police said he pushed his girlfriend onto the tracks at Fulton Street station.`\
 https://nytimes.com/2024/03/10/nyregion/subway-shove-amputation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/10/us/politics/schiff-porter-california-senate-prima
 **A Sudden Turn in Voter Sentiment Helped Quash Changes to Ireland’s Constitution**\
 `The vote against the changes dealt a blow to a government that had hoped for an easy victory. But the outcome does not necessarily reflect a turn toward a more conservative electorate.`\
 https://nytimes.com/2024/03/10/world/europe/ireland-constitution-change-voters.html
-
-**On Oscars Carpet, Red Pins Planned to Call for Cease-Fire in Gaza**\
-`Artists4Ceasefire asked many attendees to wear red lapel pins that also represent a call for increased humanitarian aid and the release of “all hostages.” Which stars will wear them remains to be seen.`\
-https://nytimes.com/2024/03/10/style/red-pins-gaza-ceasefire-oscars.html
-
-**Kathy Goldman, Who Fought Hunger in New York City, Dies at 92**\
-`She helped introduce free breakfasts and lunches for schoolchildren and open pantries and soup kitchens for the poor.`\
-https://nytimes.com/2024/03/10/nyregion/kathy-goldman-dead.html
 

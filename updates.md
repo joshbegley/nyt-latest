@@ -1,3 +1,11 @@
+**Here’s what you can expect at the ceremony, including the presenters and the performances.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/heres-what-you-can-expect-at-the-ceremony-including-the-presenters-and-the-performances
+
+**Here’s how to watch Sunday night’s ceremony.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/heres-how-to-watch-sunday-nights-ceremony
+
 **After Woman Loses Feet in Subway Shoving, Her Boyfriend Is Charged**\
 `Christian Valdez was charged with attempted murder after the police said he pushed his girlfriend onto the tracks at Fulton Street station.`\
 https://nytimes.com/2024/03/10/nyregion/subway-shove-amputation.html
