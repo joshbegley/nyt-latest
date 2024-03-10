@@ -1,3 +1,7 @@
+**Will ‘Barbie,’ one of the year’s biggest films, win only one Oscar?**\
+`By Matt Stevens`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/barbie-win-one-oscar-prediction
+
 **Hundreds of pro-Palestinian protesters gather in Los Angeles.**\
 `The protesters chanted “Cease-fire now” and “Long live Palestine” about a mile away from the red carpet.`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/hundreds-of-pro-palestinian-protesters-gather-in-los-angeles
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/us/virginia-legacy-admissions-public-colleges-uni
 **Will there be political protests at the ceremony?**\
 `By Kyle Buchanan`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/politics-oscars
-
-**Here Are the 2024 Oscars Host, Presenters and Performers**\
-`Jimmy Kimmel will return as the host. Here’s who else you can expect to see tonight.`\
-https://nytimes.com/2024/03/10/movies/oscars-host-presenters-performers.html
 
