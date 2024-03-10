@@ -1,3 +1,7 @@
+**After Woman Loses Feet in Subway Shoving, Her Boyfriend Is Charged**\
+`Christian Valdez was charged with attempted murder after the police said he pushed his girlfriend onto the tracks at Fulton Street station.`\
+https://nytimes.com/2024/03/10/nyregion/subway-shove-amputation.html
+
 **Julia Roberts, Ice Spice, Robert De Niro and More Party Before the Oscars Even Start**\
 `Stars descend on the scene, and the biggest fashion brands in the world get into the action with as many events as people can possibly attend in one short weekend.`\
 https://nytimes.com/2024/03/10/style/hotel-parties-pre-oscars-la.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/style/red-pins-gaza-ceasefire-oscars.html
 **Kathy Goldman, Who Fought Hunger in New York City, Dies at 92**\
 `She helped introduce free breakfasts and lunches for schoolchildren and open pantries and soup kitchens for the poor.`\
 https://nytimes.com/2024/03/10/nyregion/kathy-goldman-dead.html
-
-**Listening to the Homeless in America**\
-`Responses to a special Sunday Opinion feature. Also: The rewards of being a chef; atoning for past horrors.`\
-https://nytimes.com/2024/03/10/opinion/homeless-in-america.html
 

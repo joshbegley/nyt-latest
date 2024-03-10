@@ -1,3 +1,7 @@
+**After Woman Loses Feet in Subway Shoving, Her Boyfriend Is Charged**\
+`Christian Valdez was charged with attempted murder after the police said he pushed his girlfriend onto the tracks at Fulton Street station.`\
+https://nytimes.com/2024/03/10/nyregion/subway-shove-amputation.html
+
 **Julia Roberts, Ice Spice, Robert De Niro and More Party Before the Oscars Even Start**\
 `Stars descend on the scene, and the biggest fashion brands in the world get into the action with as many events as people can possibly attend in one short weekend.`\
 https://nytimes.com/2024/03/10/style/hotel-parties-pre-oscars-la.html
