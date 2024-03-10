@@ -1,3 +1,7 @@
+**Hundreds of pro-Palestinian protesters gather in Los Angeles.**\
+`The protesters chanted “Cease-fire now” and “Long live Palestine” about a mile away from the red carpet.`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/hundreds-of-pro-palestinian-protesters-gather-in-los-angeles
+
 **And the Oscars carpet color goes … back to red.**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/and-the-oscars-carpet-color-goes-back-to-red

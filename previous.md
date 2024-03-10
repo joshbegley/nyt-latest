@@ -1,3 +1,7 @@
+**Hundreds of pro-Palestinian protesters gather in Los Angeles.**\
+`The protesters chanted “Cease-fire now” and “Long live Palestine” about a mile away from the red carpet.`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/hundreds-of-pro-palestinian-protesters-gather-in-los-angeles
+
 **And the Oscars carpet color goes … back to red.**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/and-the-oscars-carpet-color-goes-back-to-red
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/politics-oscars
 **Here Are the 2024 Oscars Host, Presenters and Performers**\
 `Jimmy Kimmel will return as the host. Here’s who else you can expect to see tonight.`\
 https://nytimes.com/2024/03/10/movies/oscars-host-presenters-performers.html
-
-**Here’s how to watch Sunday night’s ceremony.**\
-`By Sarah Bahr`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/heres-how-to-watch-sunday-nights-ceremony
 
