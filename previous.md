@@ -1,3 +1,7 @@
+**Trump goes after Carroll and judge for defamation ruling after posting $91.6 million bond.**\
+`By Maggie Haberman and Michael Gold`\
+https://nytimes.com/live/2024/03/09/us/2024-presidential-election/trump-carroll
+
 **Biden’s Armageddon Moment: When Nuclear Detonation Seemed Possible in Ukraine**\
 `For a few weeks in October 2022, the White House was consumed in a crisis whose depths were not publicly acknowledged at the time. It was a glimpse of what seemed like a terrifying new era.`\
 https://nytimes.com/2024/03/09/us/politics/biden-nuclear-russia-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/crosswords/daily-puzzle-2024-03-10.html
 **William Whitworth, Revered Writer and Editor, Is Dead at 87**\
 `After writing memorable character sketches and fine-tuning others’ copy at The New Yorker, he spent two decades as editor in chief of The Atlantic Monthly.`\
 https://nytimes.com/2024/03/09/business/media/william-whitworth-dead.html
-
-**U.S. Is Said to Open Criminal Inquiry Into Boeing**\
-`The investigation is tied to an incident on an Alaska Airlines flight in early January. Boeing also told a Senate panel that it cannot find a record of the work done on the Alaska plane.`\
-https://nytimes.com/2024/03/09/business/boeing-criminal-inquiry-alaska-airlines-flight.html
 
