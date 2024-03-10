@@ -1,3 +1,7 @@
+**Where is the dog from ‘Anatomy of a Fall’?**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/where-is-the-dog-from-anatomy-of-a-fall
+
 **Gaza Begins Ramadan With No Cease-Fire**\
 `There were hopes for a last-minute deal, but both sides said they weren’t close to an agreement.`\
 https://nytimes.com/2024/03/10/world/middleeast/ramadan-israel-gaza-cease-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/style/oscars-red-carpet-photos.html
 **Paolo Taviani, Half of a Famed Italian Filmmaking Duo, Dies at 92**\
 `He and his brother Vittorio made films, including “Padre Padrone,” that mixed neorealism with a lyrical, almost magical sense of storytelling.`\
 https://nytimes.com/2024/03/10/movies/paolo-taviani-dead.html
-
-**At the Oscars, many hopefuls may take on the classic tuxedo.**\
-`By Guy Trebay`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/at-the-oscars-many-hopefuls-may-take-on-the-classic-tuxedo
 
