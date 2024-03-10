@@ -1,3 +1,7 @@
+**Da’Vine Joy Randolph wins best supporting actress, her first Oscar.**\
+`By Matt Stevens`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/davine-joy-randolph-wins-best-supporting-actress-her-first-oscar
+
 **A writer has accused ‘The Holdovers’ of plagiarizing his script, according to a report.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/a-writer-has-accused-the-holdovers-of-plagiarizing-his-script-according-to-a-report
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/heres-what-to-w
 **Pose Questions**\
 `How will you fare in this puzzle by Rebecca Goldstein and Rachel Fabi?`\
 https://nytimes.com/2024/03/10/crosswords/daily-puzzle-2024-03-11.html
-
-**Will ‘Barbie,’ one of the year’s biggest films, win only one Oscar?**\
-`By Matt Stevens`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/barbie-win-one-oscar-prediction
 
