@@ -1,3 +1,7 @@
+**New York State Trooper Among Those Killed in Military Helicopter Crash**\
+`John M. Grassia III was one of three people killed when a National Guard helicopter crashed along the U.S.-Mexico border in Texas.`\
+https://nytimes.com/2024/03/10/us/helicopter-crash-texas-soldiers.html
+
 **In general-election mode, Trump and Biden escalate attacks in Georgia.**\
 `By Neil Vigdor, Nicholas Nehamas and Michael Gold`\
 https://nytimes.com/live/2024/03/10/us/2024-presidential-election/in-general-election-mode-trump-and-biden-escalate-attacks-in-georgia
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/opinion/covid-endemic-fear.html
 **What David Marchese Learned Talking to the World’s Most Interesting People**\
 `Actors are different from musicians, Lou Reed is serious about salad, and other tidbits from our great Talk columnist at the end of his run.`\
 https://nytimes.com/interactive/2024/03/10/magazine/david-marchese-interview.html
-
-**What’s Going On in This Picture? | March 11, 2024**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/03/10/learning/whats-going-on-in-this-picture-march-11-2024.html
 

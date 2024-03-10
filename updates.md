@@ -1,3 +1,7 @@
+**New York State Trooper Among Those Killed in Military Helicopter Crash**\
+`John M. Grassia III was one of three people killed when a National Guard helicopter crashed along the U.S.-Mexico border in Texas.`\
+https://nytimes.com/2024/03/10/us/helicopter-crash-texas-soldiers.html
+
 **In general-election mode, Trump and Biden escalate attacks in Georgia.**\
 `By Neil Vigdor, Nicholas Nehamas and Michael Gold`\
 https://nytimes.com/live/2024/03/10/us/2024-presidential-election/in-general-election-mode-trump-and-biden-escalate-attacks-in-georgia
