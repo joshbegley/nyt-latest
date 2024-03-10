@@ -1,3 +1,11 @@
+**Jimmy Kimmel Opens with Quips and a Salute to Film Crews**\
+`The late-night TV host celebrated the blockbuster nominated films and poked fun at many of their stars.`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/jimmy-kimmel-oscars-monologue
+
+**Messi made it to the Oscars after all.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/messi-made-it-to-the-oscars-after-all
+
 **Da’Vine Joy Randolph wins best supporting actress, her first Oscar.**\
 `Randolph, who was favored to win, was honored for her turn as a warm, witty cafeteria matriarch in “The Holdovers.”`\
 https://nytimes.com/2024/03/10/movies/davine-joy-randolph-oscar-best-supporting-actress.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/where-is-the-do
 **Gaza Begins Ramadan With No Cease-Fire**\
 `There were hopes for a last-minute deal, but both sides said they weren’t close to an agreement.`\
 https://nytimes.com/2024/03/10/world/middleeast/ramadan-israel-gaza-cease-fire.html
-
-**Here’s the latest on the Academy Awards.**\
-`“Oppenheimer”`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/heres-what-to-watch-for-in-the-academy-awards
-
-**Pose Questions**\
-`How will you fare in this puzzle by Rebecca Goldstein and Rachel Fabi?`\
-https://nytimes.com/2024/03/10/crosswords/daily-puzzle-2024-03-11.html
 
