@@ -1,3 +1,7 @@
+**Julia Roberts, Ice Spice, Robert De Niro and More Party Before the Oscars Even Start**\
+`Stars descend on the scene, and the biggest fashion brands in the world get into the action with as many events as people can possibly attend in one short weekend.`\
+https://nytimes.com/2024/03/10/style/hotel-parties-pre-oscars-la.html
+
 **Brooklyn Scores With the First All-Electric Building in New York City**\
 `Alloy Development decided to keep gas appliances out of its new building, 505 State Street, for sustainability. The rule that would have required that move goes into effect in 2026.`\
 https://nytimes.com/2024/03/10/realestate/all-electric-building-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/nyregion/kathy-goldman-dead.html
 **Listening to the Homeless in America**\
 `Responses to a special Sunday Opinion feature. Also: The rewards of being a chef; atoning for past horrors.`\
 https://nytimes.com/2024/03/10/opinion/homeless-in-america.html
-
-**Your Grilled Cheese Needs Toum**\
-`Just as your leeks need miso, and as your barley soup could use some kielbasa.`\
-https://nytimes.com/2024/03/10/dining/your-grilled-cheese-needs-toum.html
 
