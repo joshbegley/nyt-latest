@@ -1,3 +1,11 @@
+**What’s Going On in This Picture? | March 11, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/03/10/learning/whats-going-on-in-this-picture-march-11-2024.html
+
+**Indonesia Investigates How Two Pilots Dozed Off During a Flight**\
+`The incident, which caused the plane carrying 153 people to veer off course before landing safely, added to the country’s troubling aviation safety record.`\
+https://nytimes.com/2024/03/10/world/asia/indonesia-batik-air-pilots-asleep.html
+
 **Cabbage Is Having a Moment**\
 `How a workhorse vegetable became a darling of the culinary world.`\
 https://nytimes.com/2024/03/10/briefing/cabbage-culinary-star.html

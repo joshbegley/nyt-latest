@@ -1,3 +1,11 @@
+**What’s Going On in This Picture? | March 11, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/03/10/learning/whats-going-on-in-this-picture-march-11-2024.html
+
+**Indonesia Investigates How Two Pilots Dozed Off During a Flight**\
+`The incident, which caused the plane carrying 153 people to veer off course before landing safely, added to the country’s troubling aviation safety record.`\
+https://nytimes.com/2024/03/10/world/asia/indonesia-batik-air-pilots-asleep.html
+
 **Cabbage Is Having a Moment**\
 `How a workhorse vegetable became a darling of the culinary world.`\
 https://nytimes.com/2024/03/10/briefing/cabbage-culinary-star.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/10/world/israel-hamas-war-gaza-news/biden-says-
 **‘Saturday Night Live’ Feasts on the Bounty of the State of the Union**\
 `The Republican rebuttal delivered by Senator Katie Britt already struck many viewers as parody, making Scarlett Johansson’s job look easy.`\
 https://nytimes.com/2024/03/10/arts/television/saturday-night-live-scarlett-johansson.html
-
-**Gabriel García Márquez’s Hometown Awaits His Last Book and More Visitors**\
-`The legacy of the global literary titan and Colombia’s most famous author has helped transform the small mountain town of Aracataca, where he was born.`\
-https://nytimes.com/2024/03/10/world/americas/colombia-gabriel-garcia-marquez-aracataca.html
-
-**Elon Musk Keeps His Money Close**\
-`After making billions in tax-deductible donations to his philanthropy, Elon Musk gave away far less than required in some years — and what he did give often supported his own interests.`\
-https://nytimes.com/video/us/100000009350979/elon-musk-keeps-his-money-close.html
 
