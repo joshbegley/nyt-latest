@@ -1,3 +1,11 @@
+**About 63,000 Infant Swings Are Recalled Over Suffocation Hazard**\
+`Federal regulators said that the Jool Baby swings should not have been marketed as sleep products because they have an incline angle that is not safe.`\
+https://nytimes.com/2024/03/10/business/jool-baby-swings-recall.html
+
+**Schiff denies Porter’s claim that his donors worked to ‘rig’ California primary.**\
+`By Minho Kim`\
+https://nytimes.com/2024/03/10/us/politics/schiff-denies-porters-claim-that-his-donors-worked-to-rig-california-primary.html
+
 **Amid Criticism, Britt Seeks to Defend Her Misleading Border Comments**\
 `Katie Britt, a Republican senator from Alabama, suggested on Fox News that viewers should have parsed her wording to determine that a sex-trafficking case she referred to wasn’t recent.`\
 https://nytimes.com/2024/03/10/us/politics/katie-britt-sotu-response-border.html
