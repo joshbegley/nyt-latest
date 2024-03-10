@@ -1,3 +1,7 @@
+**What David Marchese Learned Talking to the World’s Most Interesting People**\
+`Actors are different from musicians, Lou Reed is serious about salad, and other tidbits from our great Talk columnist at the end of his run.`\
+https://nytimes.com/interactive/2024/03/10/magazine/david-marchese-interview.html
+
 **What’s Going On in This Picture? | March 11, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/03/10/learning/whats-going-on-in-this-picture-march-11-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/10/world/israel-hamas-war-gaza-news
 **Biden says Netanyahu is ‘hurting Israel more than helping Israel.’**\
 `By Vivek Shankar`\
 https://nytimes.com/live/2024/03/10/world/israel-hamas-war-gaza-news/biden-says-netanyahu-is-hurting-israel-more-than-helping-israel
-
-**‘Saturday Night Live’ Feasts on the Bounty of the State of the Union**\
-`The Republican rebuttal delivered by Senator Katie Britt already struck many viewers as parody, making Scarlett Johansson’s job look easy.`\
-https://nytimes.com/2024/03/10/arts/television/saturday-night-live-scarlett-johansson.html
 
