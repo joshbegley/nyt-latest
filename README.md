@@ -1,3 +1,7 @@
+**It will be a crowded stage when the acting winners are announced.**\
+`By Kyle Buchanan`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/it-will-be-a-crowded-stage-when-the-acting-winners-are-announced
+
 **Where is the dog from ‘Anatomy of a Fall’?**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/where-is-the-dog-from-anatomy-of-a-fall
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/some-on-the-red
 **Oscars Red Carpet 2024: See the Stars’ Arrival Looks**\
 `Nominees, presenters and performers have begun to make their appearances for the 96th Academy Awards.`\
 https://nytimes.com/2024/03/10/style/oscars-red-carpet-photos.html
-
-**Paolo Taviani, Half of a Famed Italian Filmmaking Duo, Dies at 92**\
-`He and his brother Vittorio made films, including “Padre Padrone,” that mixed neorealism with a lyrical, almost magical sense of storytelling.`\
-https://nytimes.com/2024/03/10/movies/paolo-taviani-dead.html
 
