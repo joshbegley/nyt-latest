@@ -1,3 +1,7 @@
+**National Guard Can’t Carry Long Guns While Checking Bags in Subway**\
+`Gov. Kathy Hochul issued an order forbidding the weapons at bag-check stations on Wednesday, directly after her announcement that soldiers would be deployed to New York City’s subways.`\
+https://nytimes.com/2024/03/09/nyregion/long-guns-subway.html
+
 **Potential Obstacle to Trump Media’s Merger Appears to Have Been Cleared**\
 `Two early founders of Donald Trump’s social media company reached a temporary truce with the company on Saturday.`\
 https://nytimes.com/2024/03/09/business/trump-media-digital-world-merger.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/us/haiti-gangs-political-uprising-ariel-henry-hum
 **Pope Says Ukraine Should Have the ‘Courage of the White Flag’**\
 `His words have raised questions about whether Francis was suggesting that Ukraine surrender, but a Vatican spokesman said the pope meant “cease-fire and negotiation.”`\
 https://nytimes.com/2024/03/09/world/europe/pope-ukraine-white-flag.html
-
-**Frostbitten Kansas City Fans Needed Amputations After Frigid Game**\
-`A Missouri hospital said the amputations involved mostly fingers and toes after a game in January when temperatures were below zero.`\
-https://nytimes.com/2024/03/09/us/chiefs-game-frostbite-amputations.html
 
