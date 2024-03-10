@@ -1,3 +1,7 @@
+**About 63,000 Infant Swings Are Recalled Over Suffocation Hazard**\
+`Federal regulators said that the Jool Baby swings should not have been marketed as sleep products because they have an incline angle that is not safe.`\
+https://nytimes.com/2024/03/10/business/jool-baby-swings-recall.html
+
 **Amid Criticism, Britt Seeks to Defend Her Misleading Border Comments**\
 `Katie Britt, a Republican senator from Alabama, suggested on Fox News that viewers should have parsed her wording to determine that a sex-trafficking case she referred to wasn’t recent.`\
 https://nytimes.com/2024/03/10/us/politics/katie-britt-sotu-response-border.html
@@ -8,7 +12,7 @@ https://nytimes.com/2024/03/10/movies/oscars-winners-list.html
 
 **Schiff denies Porter’s claim that his donors worked to ‘rig’ California primary.**\
 `By Minho Kim`\
-https://nytimes.com/live/2024/03/10/us/2024-presidential-election/schiff-denies-porters-claim-that-his-donors-worked-to-rig-california-primary
+https://nytimes.com/2024/03/10/us/politics/schiff-denies-porters-claim-that-his-donors-worked-to-rig-california-primary.html
 
 **A Sudden Turn in Voter Sentiment Helped Quash Changes to Ireland’s Constitution**\
 `The vote against the changes dealt a blow to a government that had hoped for an easy victory. But the outcome does not necessarily reflect a turn toward a more conservative electorate.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/dining/your-grilled-cheese-needs-toum.html
 **New York State Trooper Among Those Killed in Military Helicopter Crash**\
 `John M. Grassia III was one of three people killed when a National Guard helicopter crashed along the U.S.-Mexico border in Texas.`\
 https://nytimes.com/2024/03/10/us/helicopter-crash-texas-soldiers.html
-
-**In general-election mode, Trump and Biden escalate attacks in Georgia.**\
-`By Neil Vigdor, Nicholas Nehamas and Michael Gold`\
-https://nytimes.com/live/2024/03/10/us/2024-presidential-election/in-general-election-mode-trump-and-biden-escalate-attacks-in-georgia
 
