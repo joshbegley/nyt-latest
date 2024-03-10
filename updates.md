@@ -1,3 +1,7 @@
+**Schiff Denies Porter’s Claim That the California Senate Primary Was Rigged**\
+`In an interview on NBC’s “Meet the Press,” Mr. Schiff pushed back on the assertion from one of his primary opponents that wealthy donors had spent millions of dollars to “rig” the race.`\
+https://nytimes.com/2024/03/10/us/politics/schiff-porter-california-senate-primary-rigged.html
+
 **Schiff Denies Porter’s Claim That the California Senate Primary Was ‘Rigged’**\
 `In an interview on NBC’s “Meet the Press,” Mr. Schiff pushed back on the assertion from one of his primary opponents that wealthy donors had spent millions of dollars to “rig” the race.`\
 https://nytimes.com/2024/03/10/us/politics/schiff-porter-california-senate-primary-rigged.html
