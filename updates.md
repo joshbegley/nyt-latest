@@ -1,3 +1,7 @@
+**Monday Briefing: Biden Clashes With Netanyahu**\
+`By Amelia Nierenberg`\
+https://nytimes.com/2024/03/10/world/asia/biden-netanyahu-haiti-hong-kong-asia.html
+
 **Virginia Bans Legacy Admissions in Public Universities and Colleges**\
 `The new law comes as the practice of giving preferential treatment to applicants with family ties to alumni has come under renewed scrutiny.`\
 https://nytimes.com/2024/03/10/us/virginia-legacy-admissions-public-colleges-universities.html
