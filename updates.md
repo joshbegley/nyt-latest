@@ -1,3 +1,7 @@
+**Biden Expresses Regret for Calling an Undocumented Immigrant ‘an Illegal’**\
+`The president had used the word in an unscripted exchange with Republicans during his State of the Union address on Thursday.`\
+https://nytimes.com/2024/03/09/us/politics/biden-undocumented-immigrant-regret.html
+
 **A Gaza aid ship in Cyprus awaits approval to head out with 200 tons of rice, flour and proteins.**\
 `The first sea delivery of food and aid for Gaza could leave Cyprus soon.`\
 https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/a-gaza-aid-ship-in-cyprus-awaits-approval-to-head-out-with-200-tons-of-rice-flour-and-proteins
