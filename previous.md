@@ -1,3 +1,7 @@
+**Xi Sticks to His Vision for China’s Rise Even as Growth Slows**\
+`China’s leader, Xi Jinping, believes his vision for technological dominance will keep powering the country’s ascent while the West recedes.`\
+https://nytimes.com/2024/03/09/world/asia/china-economy-xi.html
+
 **Will Memes About Politicians Now Get Sri Lankans Thrown in Jail?**\
 `A sweeping new law on online speech threatens the political humor that has helped the island nation get through tough stretches.`\
 https://nytimes.com/2024/03/09/world/asia/sri-lanka-online-safety-act.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/nyregion/long-guns-subway.html
 **Potential Obstacle to Trump Media’s Merger Appears to Have Been Cleared**\
 `Two early founders of Donald Trump’s social media company reached a temporary truce with the company on Saturday.`\
 https://nytimes.com/2024/03/09/business/trump-media-digital-world-merger.html
-
-**Trump praises Hungary’s nationalist prime minister as ‘the boss.’**\
-`By Michael Gold`\
-https://nytimes.com/live/2024/03/09/us/2024-presidential-election/trump-orban-hungary
 
