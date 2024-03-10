@@ -12,7 +12,7 @@ https://nytimes.com/2024/03/10/briefing/cabbage-culinary-star.html
 
 **Two Months After Surgery, Palace Releases a Photo of Catherine**\
 `Amid rampant rumors on social media about the condition of the princess, Kensington Palace issued the picture to mark Mother’s Day in Britain, but provided no details on her condition.`\
-https://nytimes.com/2024/03/10/world/europe/princess-catherine-photograph.html
+https://nytimes.com/2024/03/10/world/europe/princess-kate-middleton-surgery-photo.html
 
 **Thousands of pregnant women in Gaza suffer from malnutrition, health authorities say.**\
 `The U.N. has warned that famine is looming in the enclave, and an obstetrician there said that pregnant women face particularly high risks of malnourishment.`\

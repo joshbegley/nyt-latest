@@ -1,3 +1,7 @@
+**Two Months After Surgery, Palace Releases a Photo of Catherine**\
+`Amid rampant rumors on social media about the condition of the princess, Kensington Palace issued the picture to mark Mother’s Day in Britain, but provided no details on her condition.`\
+https://nytimes.com/2024/03/10/world/europe/princess-kate-middleton-surgery-photo.html
+
 **What’s Going On in This Picture? | March 11, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/03/10/learning/whats-going-on-in-this-picture-march-11-2024.html
