@@ -1,3 +1,7 @@
+**‘Saturday Night Live’ Feasts on the Bounty of the State of the Union**\
+`The Republican rebuttal delivered by Senator Katie Britt already struck many viewers as parody, making Scarlett Johansson’s job look easy.`\
+https://nytimes.com/2024/03/10/arts/television/saturday-night-live-scarlett-johansson.html
+
 **Gabriel García Márquez’s Hometown Awaits His Last Book and More Visitors**\
 `The legacy of the global literary titan and Colombia’s most famous author has helped transform the small mountain town of Aracataca, where he was born.`\
 https://nytimes.com/2024/03/10/world/americas/colombia-gabriel-garcia-marquez-aracataca.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/books/booksupdate/colum-mccann-diane-foley-books-
 **One Year After Bank Crisis, a Struggle Over What Needs to Change**\
 `Silicon Valley Bank’s collapse last March set the stage for a clash between bankers and their regulators.`\
 https://nytimes.com/2024/03/10/business/silicon-valley-bank-one-year-regulations.html
-
-**Klimt Landscape Show Is More, and Less, Than Expected**\
-`An engrossing exhibition at the Neue Galerie in Manhattan offers a small number of these fabled lush paintings but plenty of other treasures.`\
-https://nytimes.com/2024/03/10/arts/design/klimt-landscapes-review.html
 
