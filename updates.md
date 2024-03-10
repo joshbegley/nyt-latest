@@ -1,3 +1,7 @@
+**Biden’s Armageddon Moment: When Nuclear Detonation Seemed Possible in Ukraine**\
+`For a few weeks in October 2022, the White House was consumed in a crisis whose depths were not publicly acknowledged at the time. It was a glimpse of what seemed like a terrifying new era.`\
+https://nytimes.com/2024/03/09/us/politics/biden-nuclear-russia-ukraine.html
+
 **Biden Expresses Regret for Calling an Undocumented Immigrant ‘an Illegal’**\
 `The president had used the word in an unscripted exchange with Republicans during his State of the Union address on Thursday.`\
 https://nytimes.com/2024/03/09/us/politics/biden-undocumented-immigrant-regret.html

@@ -1,3 +1,7 @@
+**Biden’s Armageddon Moment: When Nuclear Detonation Seemed Possible in Ukraine**\
+`For a few weeks in October 2022, the White House was consumed in a crisis whose depths were not publicly acknowledged at the time. It was a glimpse of what seemed like a terrifying new era.`\
+https://nytimes.com/2024/03/09/us/politics/biden-nuclear-russia-ukraine.html
+
 **Biden Expresses Regret for Calling an Undocumented Immigrant ‘an Illegal’**\
 `The president had used the word in an unscripted exchange with Republicans during his State of the Union address on Thursday.`\
 https://nytimes.com/2024/03/09/us/politics/biden-undocumented-immigrant-regret.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/business/media/william-whitworth-dead.html
 **U.S. Is Said to Open Criminal Inquiry Into Boeing**\
 `The investigation is tied to an incident on an Alaska Airlines flight in early January. Boeing also told a Senate panel that it cannot find a record of the work done on the Alaska plane.`\
 https://nytimes.com/2024/03/09/business/boeing-criminal-inquiry-alaska-airlines-flight.html
-
-**Petra Mathers, Author Whose Children’s Stories Soared, Dies at 78**\
-`Her winsome animal characters and their comic adventures expressed universal truths and feelings, rendered in a naïve and often surrealistic style.`\
-https://nytimes.com/2024/03/09/books/petra-mathers-dead.html
 
