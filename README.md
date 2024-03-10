@@ -1,3 +1,7 @@
+**Pose Questions**\
+`How will you fare in this puzzle by Rebecca Goldstein and Rachel Fabi?`\
+https://nytimes.com/2024/03/10/crosswords/daily-puzzle-2024-03-11.html
+
 **Will ‘Barbie,’ one of the year’s biggest films, win only one Oscar?**\
 `By Matt Stevens`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/barbie-win-one-oscar-prediction
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/world/asia/biden-netanyahu-haiti-hong-kong-asia.h
 **Virginia Bans Legacy Admissions in Public Universities and Colleges**\
 `The new law comes as the practice of giving preferential treatment to applicants with family ties to alumni has come under renewed scrutiny.`\
 https://nytimes.com/2024/03/10/us/virginia-legacy-admissions-public-colleges-universities.html
-
-**Will there be political protests at the ceremony?**\
-`By Kyle Buchanan`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/politics-oscars
 
