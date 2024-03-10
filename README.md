@@ -1,4 +1,4 @@
-**In combative speech filled with insults, Trump vilifies Biden, migrants and others.**\
+**In a combative speech filled with insults, Trump vilifies Biden, migrants and others.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/03/09/us/2024-presidential-election/trump-biden-georgia-rally
 
