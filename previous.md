@@ -35,6 +35,6 @@ https://nytimes.com/2024/03/10/books/booksupdate/colum-mccann-diane-foley-books-
 https://nytimes.com/2024/03/10/business/silicon-valley-bank-one-year-regulations.html
 
 **Klimt Landscape Show Is More, and Less, Than Expected**\
-`An engrossing exhibition at the Neue Galerie in Manhattan offers a small number of these fabled paintings but plenty of other treasures.`\
+`An engrossing exhibition at the Neue Galerie in Manhattan offers a small number of these fabled lush paintings but plenty of other treasures.`\
 https://nytimes.com/2024/03/10/arts/design/klimt-landscapes-review.html
 

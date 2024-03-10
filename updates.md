@@ -1,3 +1,7 @@
+**Klimt Landscape Show Is More, and Less, Than Expected**\
+`An engrossing exhibition at the Neue Galerie in Manhattan offers a small number of these fabled lush paintings but plenty of other treasures.`\
+https://nytimes.com/2024/03/10/arts/design/klimt-landscapes-review.html
+
 **Gabriel García Márquez’s Hometown Awaits His Last Book and More Visitors**\
 `The legacy of the global literary titan and Colombia’s most famous author has helped transform the small mountain town of Aracataca, where he was born.`\
 https://nytimes.com/2024/03/10/world/americas/colombia-gabriel-garcia-marquez-aracataca.html
