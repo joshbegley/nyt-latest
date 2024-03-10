@@ -1,3 +1,7 @@
+**Brooklyn Scores With the First All-Electric Building in New York City**\
+`Alloy Development decided to keep gas appliances out of its new building, 505 State Street, for sustainability. The rule that would have required that move goes into effect in 2026.`\
+https://nytimes.com/2024/03/10/realestate/all-electric-building-new-york.html
+
 **About 63,000 Infant Swings Are Recalled Over Suffocation Hazard**\
 `Federal regulators said that the Jool Baby swings should not have been marketed as sleep products because they have an incline angle that is not safe.`\
 https://nytimes.com/2024/03/10/business/jool-baby-swings-recall.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/opinion/homeless-in-america.html
 **Your Grilled Cheese Needs Toum**\
 `Just as your leeks need miso, and as your barley soup could use some kielbasa.`\
 https://nytimes.com/2024/03/10/dining/your-grilled-cheese-needs-toum.html
-
-**New York State Trooper Among Those Killed in Military Helicopter Crash**\
-`John M. Grassia III was one of three people killed when a National Guard helicopter crashed along the U.S.-Mexico border in Texas.`\
-https://nytimes.com/2024/03/10/us/helicopter-crash-texas-soldiers.html
 
