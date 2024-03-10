@@ -1,6 +1,6 @@
 **Da’Vine Joy Randolph wins best supporting actress, her first Oscar.**\
-`By Matt Stevens`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/davine-joy-randolph-wins-best-supporting-actress-her-first-oscar
+`Randolph, who was favored to win, was honored for her turn as a warm, witty cafeteria matriarch in “The Holdovers.”`\
+https://nytimes.com/2024/03/10/movies/davine-joy-randolph-oscar-best-supporting-actress.html
 
 **A writer has accused ‘The Holdovers’ of plagiarizing his script, according to a report.**\
 `By The New York Times`\
