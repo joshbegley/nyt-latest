@@ -1,3 +1,11 @@
+**At a rally in Atlanta, Biden attacks Trump — this time by name.**\
+`By Nicholas Nehamas`\
+https://nytimes.com/live/2024/03/09/us/2024-presidential-election/at-a-rally-in-atlanta-biden-attacks-trump-this-time-by-name
+
+**U.S. Military Enters a New Phase With Gaza Aid Operations**\
+`As the United States continues providing Israel with munitions, the Pentagon will deliver food and other assistance to Gazans by sea and air.`\
+https://nytimes.com/2024/03/09/us/politics/us-military-gaza-aid.html
+
 **Trump goes after Carroll and judge for defamation ruling after posting $91.6 million bond.**\
 `By Maggie Haberman and Michael Gold`\
 https://nytimes.com/live/2024/03/09/us/2024-presidential-election/trump-carroll
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/09/us/2024-presidential-election/trump-orban-hu
 **U.S. carries out a fifth airdrop in Gaza, delivering nearly 41,500 meals and 23,000 bottles of water.**\
 `By James C. McKinley Jr.`\
 https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/us-carries-out-a-fifth-airdrop-in-gaza-delivering-nearly-41500-meals-and-23000-bottles-of-water
-
-**Rack ’Em Up**\
-`Enrique Henestroza Anguiano and Matthew Stock are friends with words.`\
-https://nytimes.com/2024/03/09/crosswords/daily-puzzle-2024-03-10.html
-
-**William Whitworth, Revered Writer and Editor, Is Dead at 87**\
-`After writing memorable character sketches and fine-tuning others’ copy at The New Yorker, he spent two decades as editor in chief of The Atlantic Monthly.`\
-https://nytimes.com/2024/03/09/business/media/william-whitworth-dead.html
 
