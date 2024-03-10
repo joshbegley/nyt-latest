@@ -1,3 +1,7 @@
+**Two Months After Surgery, Palace Releases a Photo of Catherine**\
+`Amid rampant rumors on social media about the condition of the princess, Kensington Palace issued the picture to mark Mother’s Day in Britain, but provided no details on her condition.`\
+https://nytimes.com/2024/03/10/world/europe/princess-catherine-photograph.html
+
 **Thousands of pregnant women in Gaza suffer from malnutrition, health authorities say.**\
 `The U.N. has warned that famine is looming in the enclave, and an obstetrician there said that pregnant women face particularly high risks of malnourishment.`\
 https://nytimes.com/2024/03/10/world/middleeast/gaza-malnutrition-hunger-pregnant-women.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009350979/elon-musk-keeps-his-money-close.htm
 **Jeremy Strong Isn’t Sure He Knows Who He Is**\
 `After “Succession,” says the actor, “I felt a profound sense of, Was this the event of my life?”`\
 https://nytimes.com/interactive/2024/03/10/magazine/jeremy-strong-interview.html
-
-**He’s Not Just Looking to Make a Quick Billion**\
-`Marc Lore, the entrepreneur behind Diapers.com and Jet.com, would like to disrupt food delivery. But he really wants to build a brand that actually lasts.`\
-https://nytimes.com/2024/03/10/business/marc-lore-wonder-food-delivery.html
 
