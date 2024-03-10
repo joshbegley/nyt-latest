@@ -1,3 +1,11 @@
+**10mideast-crisis**\
+`Biden Rebukes Netanyahu Over Civilian Deaths but Reaffirms Support`\
+https://nytimes.com/live/2024/03/10/world/israel-hamas-war-gaza-news
+
+**Biden says Netanyahu is ‘hurting Israel more than helping Israel.’**\
+`By Vivek Shankar`\
+https://nytimes.com/live/2024/03/10/world/israel-hamas-war-gaza-news/biden-says-netanyahu-is-hurting-israel-more-than-helping-israel
+
 **‘Saturday Night Live’ Feasts on the Bounty of the State of the Union**\
 `The Republican rebuttal delivered by Senator Katie Britt already struck many viewers as parody, making Scarlett Johansson’s job look easy.`\
 https://nytimes.com/2024/03/10/arts/television/saturday-night-live-scarlett-johansson.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/10/world/middleeast/uae-israel-gaza-war.html
 **Kari Lake Tries a New Tactic: Mending Fences**\
 `The close Trump ally is courting former foes and trying to mend fences as she runs for Senate in Arizona. But bad blood from her 2022 campaign simmers at home.`\
 https://nytimes.com/2024/03/10/us/politics/kari-lake-arizona-senate.html
-
-**A Book Celebrates James Foley and Confronts a Man Involved in His Murder**\
-`Colum McCann and Diane Foley, James’s mother, came together to question one of his kidnappers and write a book that delves into the lives of both men.`\
-https://nytimes.com/2024/03/10/books/booksupdate/colum-mccann-diane-foley-books-james-foley.html
-
-**One Year After Bank Crisis, a Struggle Over What Needs to Change**\
-`Silicon Valley Bank’s collapse last March set the stage for a clash between bankers and their regulators.`\
-https://nytimes.com/2024/03/10/business/silicon-valley-bank-one-year-regulations.html
 
