@@ -1,3 +1,7 @@
+**Cabbage Is Having a Moment**\
+`How a workhorse vegetable became a darling of the culinary world.`\
+https://nytimes.com/2024/03/10/briefing/cabbage-culinary-star.html
+
 **Two Months After Surgery, Palace Releases a Photo of Catherine**\
 `Amid rampant rumors on social media about the condition of the princess, Kensington Palace issued the picture to mark Mother’s Day in Britain, but provided no details on her condition.`\
 https://nytimes.com/2024/03/10/world/europe/princess-catherine-photograph.html
