@@ -1,3 +1,11 @@
+**Pose Questions**\
+`How will you fare in this puzzle by Rebecca Goldstein and Rachel Fabi?`\
+https://nytimes.com/2024/03/10/crosswords/daily-puzzle-2024-03-11.html
+
+**Hundreds of Pro-Palestinian Protesters Gather in Los Angeles**\
+`The protesters chanted “Cease-fire now” and “Long live Palestine” about a mile away from the red carpet.`\
+https://nytimes.com/2024/03/10/movies/gaza-protest-los-angeles-oscars.html
+
 **Will ‘Barbie,’ one of the year’s biggest films, win only one Oscar?**\
 `By Matt Stevens`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/barbie-win-one-oscar-prediction
