@@ -1,3 +1,11 @@
+**10mideast-crisis**\
+`Biden Rebukes Netanyahu Over Civilian Deaths but Reaffirms Support`\
+https://nytimes.com/live/2024/03/10/world/israel-hamas-war-gaza-news
+
+**Biden says Netanyahu is ‘hurting Israel more than helping Israel.’**\
+`By Vivek Shankar`\
+https://nytimes.com/live/2024/03/10/world/israel-hamas-war-gaza-news/biden-says-netanyahu-is-hurting-israel-more-than-helping-israel
+
 **‘Saturday Night Live’ Feasts on the Bounty of the State of the Union**\
 `The Republican rebuttal delivered by Senator Katie Britt already struck many viewers as parody, making Scarlett Johansson’s job look easy.`\
 https://nytimes.com/2024/03/10/arts/television/saturday-night-live-scarlett-johansson.html
