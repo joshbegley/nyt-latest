@@ -1,3 +1,15 @@
+**Oscars Red Carpet 2024: See the Stars’ Arrival Looks**\
+`Nominees, presenters and performers have begun to make their appearances for the 96th Academy Awards.`\
+https://nytimes.com/2024/03/10/style/oscars-red-carpet-photos.html
+
+**Paolo Taviani, Half of a Famed Italian Filmmaking Duo, Dies at 92**\
+`He and his brother Vittorio made films, including “Padre Padrone,” that mixed neorealism with a lyrical, almost magical sense of storytelling.`\
+https://nytimes.com/2024/03/10/movies/paolo-taviani-dead.html
+
+**At the Oscars, many hopefuls may take on the classic tuxedo.**\
+`By Guy Trebay`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/at-the-oscars-many-hopefuls-may-take-on-the-classic-tuxedo
+
 **Monday Briefing: Biden Clashes With Netanyahu**\
 `By Amelia Nierenberg`\
 https://nytimes.com/2024/03/10/world/asia/biden-netanyahu-haiti-hong-kong-asia.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/10/nyregion/subway-shove-amputation.html
 **Julia Roberts, Ice Spice, Robert De Niro and More Party Before the Oscars Even Start**\
 `Stars descend on the scene, and the biggest fashion brands in the world get into the action with as many events as people can possibly attend in one short weekend.`\
 https://nytimes.com/2024/03/10/style/hotel-parties-pre-oscars-la.html
-
-**Brooklyn Scores With the First All-Electric Building in New York City**\
-`Alloy Development decided to keep gas appliances out of its new building, 505 State Street, for sustainability. The rule that would have required that move goes into effect in 2026.`\
-https://nytimes.com/2024/03/10/realestate/all-electric-building-new-york.html
-
-**About 63,000 Infant Swings Are Recalled Over Suffocation Hazard**\
-`Federal regulators said that the Jool Baby swings should not have been marketed as sleep products because they have an incline angle that is not safe.`\
-https://nytimes.com/2024/03/10/business/jool-baby-swings-recall.html
-
-**Amid Criticism, Britt Seeks to Defend Her Misleading Border Comments**\
-`Katie Britt, a Republican senator from Alabama, suggested on Fox News that viewers should have parsed her wording to determine that a sex-trafficking case she referred to wasn’t recent.`\
-https://nytimes.com/2024/03/10/us/politics/katie-britt-sotu-response-border.html
 
