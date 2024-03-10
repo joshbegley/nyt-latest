@@ -1,3 +1,7 @@
+**Kathy Goldman, Who Fought Hunger in New York City, Dies at 92**\
+`She helped introduce free breakfasts and lunches for schoolchildren and open pantries and soup kitchens for the poor.`\
+https://nytimes.com/2024/03/10/nyregion/kathy-goldman-dead.html
+
 **Listening to the Homeless in America**\
 `Responses to a special Sunday Opinion feature. Also: The rewards of being a chef; atoning for past horrors.`\
 https://nytimes.com/2024/03/10/opinion/homeless-in-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/opinion/biden-hamilton-china-chips.html
 **If There’s One Thing Trump Is Right About, It’s Republicans**\
 `For the thousandth time, the G.O.P. refused an off-ramp that would free itself from him.`\
 https://nytimes.com/2024/03/10/opinion/trump-republicans-mcconnell-2024.html
-
-**America Has No Official Language. Instead It Has Hundreds.**\
-`These languages and their speakers revitalize the profound social experiment that is America.`\
-https://nytimes.com/2024/03/10/opinion/language-diversity-america.html
 

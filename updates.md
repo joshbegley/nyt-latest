@@ -1,3 +1,7 @@
+**Kathy Goldman, Who Fought Hunger in New York City, Dies at 92**\
+`She helped introduce free breakfasts and lunches for schoolchildren and open pantries and soup kitchens for the poor.`\
+https://nytimes.com/2024/03/10/nyregion/kathy-goldman-dead.html
+
 **Listening to the Homeless in America**\
 `Responses to a special Sunday Opinion feature. Also: The rewards of being a chef; atoning for past horrors.`\
 https://nytimes.com/2024/03/10/opinion/homeless-in-america.html
