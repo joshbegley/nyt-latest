@@ -1,3 +1,7 @@
+**A U.S. military ship has set sail to help build a pier off Gaza for aid.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/03/10/world/israel-hamas-war-gaza-news/a-us-military-ship-has-set-sail-to-help-build-a-pier-off-gaza-for-aid
+
 **The Sunday Read: ‘Can Humans Endure the Psychological Torment of Mars?’**\
 `NASA is conducting tests on what might be the greatest challenge of a Mars mission: the trauma of isolation.`\
 https://nytimes.com/2024/03/10/podcasts/the-daily/mars-isolation-nasa.html

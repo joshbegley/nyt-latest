@@ -1,3 +1,7 @@
+**A U.S. military ship has set sail to help build a pier off Gaza for aid.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/03/10/world/israel-hamas-war-gaza-news/a-us-military-ship-has-set-sail-to-help-build-a-pier-off-gaza-for-aid
+
 **The Sunday Read: ‘Can Humans Endure the Psychological Torment of Mars?’**\
 `NASA is conducting tests on what might be the greatest challenge of a Mars mission: the trauma of isolation.`\
 https://nytimes.com/2024/03/10/podcasts/the-daily/mars-isolation-nasa.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/business/marc-lore-wonder-food-delivery.html
 **The Coolest Menu Item at the Moment Is … Cabbage?**\
 `This stolid supporting player has slowly risen to a starring role in creative restaurants across the country. Some diners, though, may need a little coaxing.`\
 https://nytimes.com/2024/03/10/dining/cabbage-popularity.html
-
-**As Israel’s Ties to Arab Countries Fray, a Strained Lifeline Remains**\
-`The United Arab Emirates has maintained its links to Israel throughout the war in Gaza, but the relationship, built on a U.S.-brokered deal, is under pressure as anger against Israel grows.`\
-https://nytimes.com/2024/03/10/world/middleeast/uae-israel-gaza-war.html
 
