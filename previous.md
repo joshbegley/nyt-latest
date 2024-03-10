@@ -1,3 +1,7 @@
+**A Sudden Turn in Voter Sentiment Helped Quash Changes to Ireland’s Constitution**\
+`The vote against the changes dealt a blow to a government that had hoped for an easy victory. But the outcome does not necessarily reflect a turn toward a more conservative electorate.`\
+https://nytimes.com/2024/03/10/world/europe/ireland-constitution-change-voters.html
+
 **On Oscars Carpet, Red Pins Planned to Call for Cease-Fire in Gaza**\
 `Artists4Ceasefire asked many attendees to wear red lapel pins that also represent a call for increased humanitarian aid and the release of “all hostages.” Which stars will wear them remains to be seen.`\
 https://nytimes.com/2024/03/10/style/red-pins-gaza-ceasefire-oscars.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/opinion/biden-state-union-message.html
 **Why Haley Voters Should Support Biden**\
 `The MAGA break with Reagan Republicans is so severe that they should ally with Democrats against Trump.`\
 https://nytimes.com/2024/03/10/opinion/haley-voters-support-biden.html
-
-**There Is a Secret Hamiltonian in the White House**\
-`America needs a strong industrial strategy to support its long-term security.`\
-https://nytimes.com/2024/03/10/opinion/biden-hamilton-china-chips.html
 
