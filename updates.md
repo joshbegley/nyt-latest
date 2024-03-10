@@ -1,3 +1,7 @@
+**Brooklyn Scores With the First All-Electric Building in New York City**\
+`Alloy Development decided to keep gas appliances out of its new building, 505 State Street, for sustainability. The rule that would have required that move goes into effect in 2026.`\
+https://nytimes.com/2024/03/10/realestate/all-electric-building-new-york.html
+
 **Schiff Denies Porter’s Claim That the California Senate Primary Was Rigged**\
 `In an interview on NBC’s “Meet the Press,” Mr. Schiff pushed back on the assertion from one of his primary opponents that wealthy donors had spent millions of dollars to “rig” the race.`\
 https://nytimes.com/2024/03/10/us/politics/schiff-porter-california-senate-primary-rigged.html
