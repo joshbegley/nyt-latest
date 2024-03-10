@@ -1,3 +1,15 @@
+**Jimmy Kimmel Opens with Quips and a Salute to Film Crews**\
+`The late-night TV host celebrated the blockbuster nominated films and poked fun at many of their stars.`\
+https://nytimes.com/2024/03/10/movies/jimmy-kimmel-oscars-monologue.html
+
+**Messi made it to the Oscars after all.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/messi-made-it-to-the-oscars-after-all
+
+**Da’Vine Joy Randolph Wins Best Supporting Actress, Her First Oscar**\
+`Randolph, who was favored to win, was honored for her turn as a warm, witty cafeteria matriarch in “The Holdovers.”`\
+https://nytimes.com/2024/03/10/movies/davine-joy-randolph-oscar-best-supporting-actress.html
+
 **Da’Vine Joy Randolph wins best supporting actress, her first Oscar.**\
 `Randolph, who was favored to win, was honored for her turn as a warm, witty cafeteria matriarch in “The Holdovers.”`\
 https://nytimes.com/2024/03/10/movies/davine-joy-randolph-oscar-best-supporting-actress.html
