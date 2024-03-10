@@ -1,3 +1,7 @@
+**Cabbage Is Having a Moment**\
+`How a workhorse vegetable became a darling of the culinary world.`\
+https://nytimes.com/2024/03/10/briefing/cabbage-culinary-star.html
+
 **Two Months After Surgery, Palace Releases a Photo of Catherine**\
 `Amid rampant rumors on social media about the condition of the princess, Kensington Palace issued the picture to mark Mother’s Day in Britain, but provided no details on her condition.`\
 https://nytimes.com/2024/03/10/world/europe/princess-catherine-photograph.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/world/americas/colombia-gabriel-garcia-marquez-ar
 **Elon Musk Keeps His Money Close**\
 `After making billions in tax-deductible donations to his philanthropy, Elon Musk gave away far less than required in some years — and what he did give often supported his own interests.`\
 https://nytimes.com/video/us/100000009350979/elon-musk-keeps-his-money-close.html
-
-**Jeremy Strong Isn’t Sure He Knows Who He Is**\
-`After “Succession,” says the actor, “I felt a profound sense of, Was this the event of my life?”`\
-https://nytimes.com/interactive/2024/03/10/magazine/jeremy-strong-interview.html
 
