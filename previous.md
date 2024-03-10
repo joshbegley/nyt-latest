@@ -1,3 +1,7 @@
+**A Gaza aid ship in Cyprus awaits approval to head out with 200 tons of rice, flour and proteins.**\
+`The first sea delivery of food and aid for Gaza could leave Cyprus soon.`\
+https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/a-gaza-aid-ship-in-cyprus-awaits-approval-to-head-out-with-200-tons-of-rice-flour-and-proteins
+
 **National Guard Can’t Carry Long Guns While Checking Bags in Subway**\
 `Gov. Kathy Hochul issued an order forbidding the weapons at bag-check stations on Wednesday, directly after her announcement that soldiers would be deployed to New York City’s subways.`\
 https://nytimes.com/2024/03/09/nyregion/long-guns-subway.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/books/petra-mathers-dead.html
 **With Haiti in Chaos, a Humanitarian Crisis Is Rapidly Unfolding**\
 `As gangs have united in concerted attacks against the state, the prime minister is stranded in Puerto Rico, and food, water, fuel and medical care are in short supply.`\
 https://nytimes.com/2024/03/09/us/haiti-gangs-political-uprising-ariel-henry-humanitarian-crisis.html
-
-**Pope Says Ukraine Should Have the ‘Courage of the White Flag’**\
-`His words have raised questions about whether Francis was suggesting that Ukraine surrender, but a Vatican spokesman said the pope meant “cease-fire and negotiation.”`\
-https://nytimes.com/2024/03/09/world/europe/pope-ukraine-white-flag.html
 

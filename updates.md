@@ -1,3 +1,7 @@
+**A Gaza aid ship in Cyprus awaits approval to head out with 200 tons of rice, flour and proteins.**\
+`The first sea delivery of food and aid for Gaza could leave Cyprus soon.`\
+https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/a-gaza-aid-ship-in-cyprus-awaits-approval-to-head-out-with-200-tons-of-rice-flour-and-proteins
+
 **National Guard Can’t Carry Long Guns While Checking Bags in Subway**\
 `Gov. Kathy Hochul issued an order forbidding the weapons at bag-check stations on Wednesday, directly after her announcement that soldiers would be deployed to New York City’s subways.`\
 https://nytimes.com/2024/03/09/nyregion/long-guns-subway.html

@@ -1,3 +1,7 @@
+**Biden Expresses Regret for Calling an Undocumented Immigrant ‘an Illegal’**\
+`The president had used the word in an unscripted exchange with Republicans during his State of the Union address on Thursday.`\
+https://nytimes.com/2024/03/09/us/politics/biden-undocumented-immigrant-regret.html
+
 **A Gaza aid ship in Cyprus awaits approval to head out with 200 tons of rice, flour and proteins.**\
 `The first sea delivery of food and aid for Gaza could leave Cyprus soon.`\
 https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/a-gaza-aid-ship-in-cyprus-awaits-approval-to-head-out-with-200-tons-of-rice-flour-and-proteins
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/business/boeing-criminal-inquiry-alaska-airlines-
 **Petra Mathers, Author Whose Children’s Stories Soared, Dies at 78**\
 `Her winsome animal characters and their comic adventures expressed universal truths and feelings, rendered in a naïve and often surrealistic style.`\
 https://nytimes.com/2024/03/09/books/petra-mathers-dead.html
-
-**With Haiti in Chaos, a Humanitarian Crisis Is Rapidly Unfolding**\
-`As gangs have united in concerted attacks against the state, the prime minister is stranded in Puerto Rico, and food, water, fuel and medical care are in short supply.`\
-https://nytimes.com/2024/03/09/us/haiti-gangs-political-uprising-ariel-henry-humanitarian-crisis.html
 
