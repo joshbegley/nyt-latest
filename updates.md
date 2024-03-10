@@ -1,3 +1,11 @@
+**Listening to the Homeless in America**\
+`Responses to a special Sunday Opinion feature. Also: The rewards of being a chef; atoning for past horrors.`\
+https://nytimes.com/2024/03/10/opinion/homeless-in-america.html
+
+**Your Grilled Cheese Needs Toum**\
+`Just as your leeks need miso, and as your barley soup could use some kielbasa.`\
+https://nytimes.com/2024/03/10/dining/your-grilled-cheese-needs-toum.html
+
 **New York State Trooper Among Those Killed in Military Helicopter Crash**\
 `John M. Grassia III was one of three people killed when a National Guard helicopter crashed along the U.S.-Mexico border in Texas.`\
 https://nytimes.com/2024/03/10/us/helicopter-crash-texas-soldiers.html
