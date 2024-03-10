@@ -1,3 +1,7 @@
+**California’s Ballot Measure on Mental Health Care Still Isn’t Decided. Why?**\
+`Proposition 1 was expected to be widely approved, but the vote is close. Here’s what the measure is and what’s at stake.`\
+https://nytimes.com/2024/03/10/us/california-prop-1-mental-health.html
+
 **Just how many Oscars could ‘Oppenheimer’ win tonight?**\
 `By Kyle Buchanan`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/just-how-many-oscars-could-oppenheimer-win-tonight
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/movies/gaza-protest-los-angeles-oscars.html
 **And the Oscars carpet color goes … back to red.**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/and-the-oscars-carpet-color-goes-back-to-red
-
-**Some on the red carpet plan to wear red pins in support of a cease-fire in Gaza.**\
-`By Callie Holtermann`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/some-on-the-red-carpet-plan-to-wear-red-pins-in-support-of-a-cease-fire-in-gaza
 
