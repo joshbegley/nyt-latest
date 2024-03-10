@@ -1,3 +1,7 @@
+**In general-election mode, Trump and Biden escalate attacks in Georgia.**\
+`By Neil Vigdor, Nicholas Nehamas and Michael Gold`\
+https://nytimes.com/live/2024/03/10/us/2024-presidential-election/in-general-election-mode-trump-and-biden-escalate-attacks-in-georgia
+
 **Who Needs Paper? Many Students Embrace the All-Digital SAT.**\
 `Several test takers across the country found themselves in favor of the new format of the college admissions exam — even with some technical glitches.`\
 https://nytimes.com/2024/03/10/us/sat-digital-exam-students-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/10/magazine/david-marchese-interview.htm
 **What’s Going On in This Picture? | March 11, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/03/10/learning/whats-going-on-in-this-picture-march-11-2024.html
-
-**Indonesia Investigates How Two Pilots Dozed Off During a Flight**\
-`The incident, which caused the plane carrying 153 people to veer off course before landing safely, added to the country’s troubling aviation safety record.`\
-https://nytimes.com/2024/03/10/world/asia/indonesia-batik-air-pilots-asleep.html
 
