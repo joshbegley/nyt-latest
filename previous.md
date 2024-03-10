@@ -1,3 +1,11 @@
+**Quotation of the Day: A Club Too Good to Be Ignored**\
+`Quotation of the Day for Sunday, March 10, 2024.`\
+https://nytimes.com/2024/03/10/pageoneplus/quotation-of-the-day-a-club-too-good-to-be-ignored.html
+
+**Corrections: March 10, 2024**\
+`Corrections that appeared in print on Sunday, March 10, 2024.`\
+https://nytimes.com/2024/03/10/pageoneplus/corrections-march-10-2024.html
+
 **In a combative speech filled with insults, Trump vilifies Biden, migrants and others.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/03/09/us/2024-presidential-election/trump-biden-georgia-rally
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/09/us/politics/us-military-gaza-aid.html
 **Trump goes after Carroll and judge for defamation ruling after posting $91.6 million bond.**\
 `By Maggie Haberman and Michael Gold`\
 https://nytimes.com/live/2024/03/09/us/2024-presidential-election/trump-carroll
-
-**Biden’s Armageddon Moment: When Nuclear Detonation Seemed Possible in Ukraine**\
-`For a few weeks in October 2022, the White House was consumed in a crisis whose depths were not publicly acknowledged at the time. It was a glimpse of what seemed like a terrifying new era.`\
-https://nytimes.com/2024/03/09/us/politics/biden-nuclear-russia-ukraine.html
-
-**Biden Expresses Regret for Calling an Undocumented Immigrant ‘an Illegal’**\
-`The president had used the word in an unscripted exchange with Republicans during his State of the Union address on Thursday.`\
-https://nytimes.com/2024/03/09/us/politics/biden-undocumented-immigrant-regret.html
 

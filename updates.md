@@ -1,3 +1,11 @@
+**Quotation of the Day: A Club Too Good to Be Ignored**\
+`Quotation of the Day for Sunday, March 10, 2024.`\
+https://nytimes.com/2024/03/10/pageoneplus/quotation-of-the-day-a-club-too-good-to-be-ignored.html
+
+**Corrections: March 10, 2024**\
+`Corrections that appeared in print on Sunday, March 10, 2024.`\
+https://nytimes.com/2024/03/10/pageoneplus/corrections-march-10-2024.html
+
 **In a combative speech filled with insults, Trump vilifies Biden, migrants and others.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/03/09/us/2024-presidential-election/trump-biden-georgia-rally
