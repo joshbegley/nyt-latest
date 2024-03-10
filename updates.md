@@ -1,5 +1,9 @@
 **At a rally in Atlanta, Biden attacks Trump — this time by name.**\
 `By Nicholas Nehamas`\
+https://nytimes.com/live/2024/03/09/us/2024-presidential-election/biden-trump-election
+
+**At a rally in Atlanta, Biden attacks Trump — this time by name.**\
+`By Nicholas Nehamas`\
 https://nytimes.com/live/2024/03/09/us/2024-presidential-election/at-a-rally-in-atlanta-biden-attacks-trump-this-time-by-name
 
 **U.S. Military Enters a New Phase With Gaza Aid Operations**\
