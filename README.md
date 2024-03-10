@@ -1,6 +1,6 @@
 **Jimmy Kimmel Opens with Quips and a Salute to Film Crews**\
 `The late-night TV host celebrated the blockbuster nominated films and poked fun at many of their stars.`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/jimmy-kimmel-oscars-monologue
+https://nytimes.com/2024/03/10/movies/jimmy-kimmel-oscars-monologue.html
 
 **Messi made it to the Oscars after all.**\
 `By Sarah Bahr`\
