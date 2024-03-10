@@ -1,3 +1,7 @@
+**‘It’s a Way of Life’: Women Make Their Mark in the Ukrainian Army**\
+`As Ukraine struggles against Russian assaults and its losses mount, there has been a surge of women enlisting, and they are increasingly volunteering for combat roles.`\
+https://nytimes.com/2024/03/10/world/europe/ukraine-women-soldiers-army.html
+
 **Portugal Votes in a Tight Race With a Hard-Right Surge**\
 `The early general election comes after a corruption scandal that plunged the Socialist government into chaos. The far right could play kingmaker.`\
 https://nytimes.com/2024/03/10/world/europe/portugal-election-far-right.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/us/politics/biden-undocumented-immigrant-regret.h
 **A Gaza aid ship in Cyprus awaits approval to head out with 200 tons of rice, flour and proteins.**\
 `The first sea delivery of food and aid for Gaza could leave Cyprus soon.`\
 https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/a-gaza-aid-ship-in-cyprus-awaits-approval-to-head-out-with-200-tons-of-rice-flour-and-proteins
-
-**National Guard Can’t Carry Long Guns While Checking Bags in Subway**\
-`Gov. Kathy Hochul issued an order forbidding the weapons at bag-check stations on Wednesday, directly after her announcement that soldiers would be deployed to New York City’s subways.`\
-https://nytimes.com/2024/03/09/nyregion/long-guns-subway.html
 

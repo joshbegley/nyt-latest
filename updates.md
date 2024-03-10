@@ -1,3 +1,7 @@
+**‘It’s a Way of Life’: Women Make Their Mark in the Ukrainian Army**\
+`As Ukraine struggles against Russian assaults and its losses mount, there has been a surge of women enlisting, and they are increasingly volunteering for combat roles.`\
+https://nytimes.com/2024/03/10/world/europe/ukraine-women-soldiers-army.html
+
 **Portugal Votes in a Tight Race With a Hard-Right Surge**\
 `The early general election comes after a corruption scandal that plunged the Socialist government into chaos. The far right could play kingmaker.`\
 https://nytimes.com/2024/03/10/world/europe/portugal-election-far-right.html
