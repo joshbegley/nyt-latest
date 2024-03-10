@@ -1,3 +1,7 @@
+**And the Oscars carpet color goes … back to red.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/and-the-oscars-carpet-color-goes-back-to-red
+
 **Here Are the 2024 Oscars Host, Presenters and Performers**\
 `Jimmy Kimmel will return as the host. Here’s who else you can expect to see tonight.`\
 https://nytimes.com/2024/03/10/movies/oscars-host-presenters-performers.html
