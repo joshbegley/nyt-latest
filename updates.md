@@ -1,4 +1,8 @@
 **Who Needs Paper? Many Students Embrace the All-Digital SAT.**\
+`Several test takers across the country found themselves in favor of the new format of the college admissions exam — even with some technical glitches.`\
+https://nytimes.com/2024/03/10/us/sat-digital-exam-students-reaction.html
+
+**Who Needs Paper? Many Students Embrace the All-Digital SAT.**\
 `Test takers across the country generally found themselves in favor of the new format of the college admissions exam — even with some technical glitches.`\
 https://nytimes.com/2024/03/10/us/sat-digital-exam-students-reaction.html
 
