@@ -1,3 +1,7 @@
+**Will ‘Barbie,’ one of the year’s biggest films, win only one Oscar?**\
+`By Matt Stevens`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/barbie-win-one-oscar-prediction
+
 **Hundreds of pro-Palestinian protesters gather in Los Angeles.**\
 `The protesters chanted “Cease-fire now” and “Long live Palestine” about a mile away from the red carpet.`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/hundreds-of-pro-palestinian-protesters-gather-in-los-angeles
