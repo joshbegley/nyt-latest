@@ -1,3 +1,7 @@
+**Monday Briefing: Biden Clashes With Netanyahu**\
+`By Amelia Nierenberg`\
+https://nytimes.com/2024/03/10/world/asia/biden-netanyahu-haiti-hong-kong-asia.html
+
 **Virginia Bans Legacy Admissions in Public Universities and Colleges**\
 `The new law comes as the practice of giving preferential treatment to applicants with family ties to alumni has come under renewed scrutiny.`\
 https://nytimes.com/2024/03/10/us/virginia-legacy-admissions-public-colleges-universities.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/business/jool-baby-swings-recall.html
 **Amid Criticism, Britt Seeks to Defend Her Misleading Border Comments**\
 `Katie Britt, a Republican senator from Alabama, suggested on Fox News that viewers should have parsed her wording to determine that a sex-trafficking case she referred to wasn’t recent.`\
 https://nytimes.com/2024/03/10/us/politics/katie-britt-sotu-response-border.html
-
-**Oscars 2024 Winners: Updating List**\
-`The list of winners for the 96th Academy Awards.`\
-https://nytimes.com/2024/03/10/movies/oscars-winners-list.html
 
