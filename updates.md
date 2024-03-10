@@ -1,3 +1,15 @@
+**Amid Criticism, Britt Seeks to Defend Her Misleading Border Comments**\
+`Katie Britt, a Republican senator from Alabama, suggested on Fox News that viewers should have parsed her wording to determine that a sex-trafficking case she referred to wasn’t recent.`\
+https://nytimes.com/2024/03/10/us/politics/katie-britt-sotu-response-border.html
+
+**Oscars 2024 Winners: Updating List**\
+`The list of winners for the 96th Academy Awards.`\
+https://nytimes.com/2024/03/10/movies/oscars-winners-list.html
+
+**Schiff denies Porter’s claim that his donors worked to ‘rig’ California primary.**\
+`By Minho Kim`\
+https://nytimes.com/live/2024/03/10/us/2024-presidential-election/schiff-denies-porters-claim-that-his-donors-worked-to-rig-california-primary
+
 **A Sudden Turn in Voter Sentiment Helped Quash Changes to Ireland’s Constitution**\
 `The vote against the changes dealt a blow to a government that had hoped for an easy victory. But the outcome does not necessarily reflect a turn toward a more conservative electorate.`\
 https://nytimes.com/2024/03/10/world/europe/ireland-constitution-change-voters.html
