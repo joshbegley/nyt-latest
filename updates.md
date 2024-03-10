@@ -1,3 +1,7 @@
+**Thousands of pregnant women in Gaza suffer from malnutrition, health authorities say.**\
+`The U.N. has warned that famine is looming in the enclave, and an obstetrician there said that pregnant women face particularly high risks of malnourishment.`\
+https://nytimes.com/2024/03/10/world/middleeast/gaza-malnutrition-hunger-pregnant-women.html
+
 **A U.S. military ship has set sail to help build a pier off Gaza for aid.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/10/world/israel-hamas-war-gaza-news/a-us-military-ship-has-set-sail-to-help-build-a-pier-off-gaza-for-aid

@@ -1,3 +1,7 @@
+**Thousands of pregnant women in Gaza suffer from malnutrition, health authorities say.**\
+`The U.N. has warned that famine is looming in the enclave, and an obstetrician there said that pregnant women face particularly high risks of malnourishment.`\
+https://nytimes.com/2024/03/10/world/middleeast/gaza-malnutrition-hunger-pregnant-women.html
+
 **A U.S. military ship has set sail to help build a pier off Gaza for aid.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/10/world/israel-hamas-war-gaza-news/a-us-military-ship-has-set-sail-to-help-build-a-pier-off-gaza-for-aid
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/10/magazine/jeremy-strong-interview.html
 **He’s Not Just Looking to Make a Quick Billion**\
 `Marc Lore, the entrepreneur behind Diapers.com and Jet.com, would like to disrupt food delivery. But he really wants to build a brand that actually lasts.`\
 https://nytimes.com/2024/03/10/business/marc-lore-wonder-food-delivery.html
-
-**The Coolest Menu Item at the Moment Is … Cabbage?**\
-`This stolid supporting player has slowly risen to a starring role in creative restaurants across the country. Some diners, though, may need a little coaxing.`\
-https://nytimes.com/2024/03/10/dining/cabbage-popularity.html
 
