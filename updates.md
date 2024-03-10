@@ -1,3 +1,7 @@
+**What David Marchese Learned Talking to the World’s Most Interesting People**\
+`Actors are different from musicians, Lou Reed is serious about salad, and other tidbits from our great Talk columnist at the end of his run.`\
+https://nytimes.com/interactive/2024/03/10/magazine/david-marchese-interview.html
+
 **Two Months After Surgery, Palace Releases a Photo of Catherine**\
 `Amid rampant rumors on social media about the condition of the princess, Kensington Palace issued the picture to mark Mother’s Day in Britain, but provided no details on her condition.`\
 https://nytimes.com/2024/03/10/world/europe/princess-kate-middleton-surgery-photo.html
