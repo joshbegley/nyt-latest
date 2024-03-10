@@ -1,3 +1,15 @@
+**Dispute Over Gaza War Heats Up Between Biden and Netanyahu**\
+`The Israeli prime minister rejected a rebuke from the U.S. president over the scale of the Israel assault.`\
+https://nytimes.com/2024/03/10/world/middleeast/biden-netanyahu-gaza.html
+
+**How did Jimmy Kimmel do? Our critic has thoughts.**\
+`By Jason Zinoman`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/how-did-jimmy-kimmel-do-our-critic-has-thoughts
+
+**Cord Jefferson wins adapted screenplay award for ‘American Fiction.’**\
+`By Marc Tracy`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/cord-jefferson-wins-adapted-screenplay-award-for-american-fiction
+
 **Jimmy Kimmel Opens with Quips and a Salute to Film Crews**\
 `The late-night TV host celebrated the blockbuster nominated films and poked fun at many of their stars.`\
 https://nytimes.com/2024/03/10/movies/jimmy-kimmel-oscars-monologue.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/10/us/california-prop-1-mental-health.html
 **Just how many Oscars could ‘Oppenheimer’ win tonight?**\
 `By Kyle Buchanan`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/just-how-many-oscars-could-oppenheimer-win-tonight
-
-**It will be a crowded stage when the acting winners are announced.**\
-`By Kyle Buchanan`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/it-will-be-a-crowded-stage-when-the-acting-winners-are-announced
-
-**Where is the dog from ‘Anatomy of a Fall’?**\
-`By Sarah Bahr`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/where-is-the-dog-from-anatomy-of-a-fall
-
-**Gaza Begins Ramadan With No Cease-Fire**\
-`There were hopes for a last-minute deal, but both sides said they weren’t close to an agreement.`\
-https://nytimes.com/2024/03/10/world/middleeast/ramadan-israel-gaza-cease-fire.html
 
