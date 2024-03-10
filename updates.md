@@ -1,3 +1,7 @@
+**Here’s the latest on the Academy Awards.**\
+`“Oppenheimer”`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/heres-what-to-watch-for-in-the-academy-awards
+
 **Palace Photo, Meant to Dispel Rumors About Catherine, Fans Them Instead**\
 `Kensington Palace released a Mother’s Day photo of Catherine, Princess of Wales, to showcase her health, but news agencies later said it had been manipulated.`\
 https://nytimes.com/2024/03/10/world/europe/prince-catherine-photogreaph.html

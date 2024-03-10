@@ -22,7 +22,7 @@ https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/where-is-the-do
 `There were hopes for a last-minute deal, but both sides said they weren’t close to an agreement.`\
 https://nytimes.com/2024/03/10/world/middleeast/ramadan-israel-gaza-cease-fire.html
 
-**Here’s what to watch for in the Academy Awards.**\
+**Here’s the latest on the Academy Awards.**\
 `“Oppenheimer”`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/heres-what-to-watch-for-in-the-academy-awards
 
