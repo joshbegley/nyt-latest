@@ -1,3 +1,11 @@
+**Listening to the Homeless in America**\
+`Responses to a special Sunday Opinion feature. Also: The rewards of being a chef; atoning for past horrors.`\
+https://nytimes.com/2024/03/10/opinion/homeless-in-america.html
+
+**Your Grilled Cheese Needs Toum**\
+`Just as your leeks need miso, and as your barley soup could use some kielbasa.`\
+https://nytimes.com/2024/03/10/dining/your-grilled-cheese-needs-toum.html
+
 **New York State Trooper Among Those Killed in Military Helicopter Crash**\
 `John M. Grassia III was one of three people killed when a National Guard helicopter crashed along the U.S.-Mexico border in Texas.`\
 https://nytimes.com/2024/03/10/us/helicopter-crash-texas-soldiers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/10/opinion/trump-republicans-mcconnell-2024.html
 **America Has No Official Language. Instead It Has Hundreds.**\
 `These languages and their speakers revitalize the profound social experiment that is America.`\
 https://nytimes.com/2024/03/10/opinion/language-diversity-america.html
-
-**As a Doctor, I Don’t Fear Covid as I Once Did. But I Carry Its Grave Lessons Forward.**\
-`Covid is now a permanent part of our lives. Are we finally ready to accept that?`\
-https://nytimes.com/2024/03/10/opinion/covid-endemic-fear.html
-
-**What David Marchese Learned Talking to the World’s Most Interesting People**\
-`Actors are different from musicians, Lou Reed is serious about salad, and other tidbits from our great Talk columnist at the end of his run.`\
-https://nytimes.com/interactive/2024/03/10/magazine/david-marchese-interview.html
 
