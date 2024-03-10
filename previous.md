@@ -1,3 +1,7 @@
+**A writer has accused ‘The Holdovers’ of plagiarizing his script, according to a report.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/a-writer-has-accused-the-holdovers-of-plagiarizing-his-script-according-to-a-report
+
 **Palace Photo, Meant to Dispel Rumors About Catherine, Fans Them Instead**\
 `Kensington Palace released a Mother’s Day photo of Catherine, Princess of Wales, to showcase her health, but news agencies later said it had been manipulated.`\
 https://nytimes.com/2024/03/10/world/europe/prince-catherine-photogreaph.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/crosswords/daily-puzzle-2024-03-11.html
 **Will ‘Barbie,’ one of the year’s biggest films, win only one Oscar?**\
 `By Matt Stevens`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/barbie-win-one-oscar-prediction
-
-**Before the Oscars, Protesters Call for Cease-Fire in Gaza**\
-`The demonstrators chanted “Long live Palestine” about a mile away from the red carpet.`\
-https://nytimes.com/2024/03/10/movies/gaza-protest-los-angeles-oscars.html
 

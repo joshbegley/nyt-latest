@@ -1,3 +1,7 @@
+**A writer has accused ‘The Holdovers’ of plagiarizing his script, according to a report.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/a-writer-has-accused-the-holdovers-of-plagiarizing-his-script-according-to-a-report
+
 **Here’s the latest on the Academy Awards.**\
 `“Oppenheimer”`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/heres-what-to-watch-for-in-the-academy-awards
