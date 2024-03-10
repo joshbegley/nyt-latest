@@ -10,9 +10,9 @@ https://nytimes.com/2024/03/10/us/politics/katie-britt-sotu-response-border.html
 `The list of winners for the 96th Academy Awards.`\
 https://nytimes.com/2024/03/10/movies/oscars-winners-list.html
 
-**Schiff denies Porter’s claim that his donors worked to ‘rig’ California primary.**\
-`By Minho Kim`\
-https://nytimes.com/2024/03/10/us/politics/schiff-denies-porters-claim-that-his-donors-worked-to-rig-california-primary.html
+**Schiff Denies Porter’s Claim That the California Senate Primary Was ‘Rigged’**\
+`In an interview on NBC’s “Meet the Press,” Mr. Schiff pushed back on the assertion from one of his primary opponents that wealthy donors had spent millions of dollars to “rig” the race.`\
+https://nytimes.com/2024/03/10/us/politics/schiff-porter-california-senate-primary-rigged.html
 
 **A Sudden Turn in Voter Sentiment Helped Quash Changes to Ireland’s Constitution**\
 `The vote against the changes dealt a blow to a government that had hoped for an easy victory. But the outcome does not necessarily reflect a turn toward a more conservative electorate.`\
