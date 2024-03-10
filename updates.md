@@ -1,3 +1,7 @@
+**It will be a crowded stage when the acting winners are announced.**\
+`By Kyle Buchanan`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/it-will-be-a-crowded-stage-when-the-acting-winners-are-announced
+
 **Where is the dog from ‘Anatomy of a Fall’?**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/where-is-the-dog-from-anatomy-of-a-fall
