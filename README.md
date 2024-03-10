@@ -6,7 +6,7 @@ https://nytimes.com/2024/03/10/crosswords/daily-puzzle-2024-03-11.html
 `By Matt Stevens`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/barbie-win-one-oscar-prediction
 
-**Hundreds of pro-Palestinian protesters gather in Los Angeles.**\
+**Hundreds of Pro-Palestinian Protesters Gather in Los Angeles**\
 `The protesters chanted “Cease-fire now” and “Long live Palestine” about a mile away from the red carpet.`\
 https://nytimes.com/2024/03/10/movies/gaza-protest-los-angeles-oscars.html
 
