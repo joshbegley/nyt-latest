@@ -1,3 +1,7 @@
+**National Guard Can’t Carry Long Guns While Checking Bags in Subway**\
+`Gov. Kathy Hochul issued an order forbidding the weapons at bag-check stations on Wednesday, directly after her announcement that soldiers would be deployed to New York City’s subways.`\
+https://nytimes.com/2024/03/09/nyregion/long-guns-subway.html
+
 **Pope Says Ukraine Should Have the ‘Courage of the White Flag’**\
 `His words have raised questions about whether Francis was suggesting that Ukraine surrender, but a Vatican spokesman said the pope meant “cease-fire and negotiation.”`\
 https://nytimes.com/2024/03/09/world/europe/pope-ukraine-white-flag.html
