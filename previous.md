@@ -1,3 +1,7 @@
+**Just how many Oscars could ‘Oppenheimer’ win tonight?**\
+`By Kyle Buchanan`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/just-how-many-oscars-could-oppenheimer-win-tonight
+
 **It will be a crowded stage when the acting winners are announced.**\
 `By Kyle Buchanan`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/it-will-be-a-crowded-stage-when-the-acting-winners-are-announced
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/and-the-oscars-
 **Some on the red carpet plan to wear red pins in support of a cease-fire in Gaza.**\
 `By Callie Holtermann`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/some-on-the-red-carpet-plan-to-wear-red-pins-in-support-of-a-cease-fire-in-gaza
-
-**Oscars Red Carpet 2024: See the Stars’ Arrival Looks**\
-`Nominees, presenters and performers have begun to make their appearances for the 96th Academy Awards.`\
-https://nytimes.com/2024/03/10/style/oscars-red-carpet-photos.html
 
