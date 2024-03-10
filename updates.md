@@ -1,3 +1,7 @@
+**Where is the dog from ‘Anatomy of a Fall’?**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/where-is-the-dog-from-anatomy-of-a-fall
+
 **Gaza Begins Ramadan With No Cease-Fire**\
 `There were hopes for a last-minute deal, but both sides said they weren’t close to an agreement.`\
 https://nytimes.com/2024/03/10/world/middleeast/ramadan-israel-gaza-cease-fire.html
