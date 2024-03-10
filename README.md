@@ -6,7 +6,7 @@ https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/jimmy-kimmel-os
 `By Sarah Bahr`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/messi-made-it-to-the-oscars-after-all
 
-**Da’Vine Joy Randolph wins best supporting actress, her first Oscar.**\
+**Da’Vine Joy Randolph Wins Best Supporting Actress, Her First Oscar**\
 `Randolph, who was favored to win, was honored for her turn as a warm, witty cafeteria matriarch in “The Holdovers.”`\
 https://nytimes.com/2024/03/10/movies/davine-joy-randolph-oscar-best-supporting-actress.html
 
