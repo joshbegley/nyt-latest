@@ -1,3 +1,7 @@
+**Palace Photo, Meant to Dispel Rumors About Catherine, Fans Them Instead**\
+`Kensington Palace released a Mother’s Day photo of Catherine, Princess of Wales, to showcase her health, but news agencies later said it had been manipulated.`\
+https://nytimes.com/2024/03/10/world/europe/prince-catherine-photogreaph.html
+
 **California’s Ballot Measure on Mental Health Care Still Isn’t Decided. Why?**\
 `Proposition 1 was expected to be widely approved, but the vote is close. Here’s what the measure is and what’s at stake.`\
 https://nytimes.com/2024/03/10/us/california-prop-1-mental-health.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/barbie-win-one-
 **Before the Oscars, Protesters Call for Cease-Fire in Gaza**\
 `The demonstrators chanted “Long live Palestine” about a mile away from the red carpet.`\
 https://nytimes.com/2024/03/10/movies/gaza-protest-los-angeles-oscars.html
-
-**And the Oscars carpet color goes … back to red.**\
-`By Sarah Bahr`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/and-the-oscars-carpet-color-goes-back-to-red
 

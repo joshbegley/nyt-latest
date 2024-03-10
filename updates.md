@@ -1,3 +1,7 @@
+**Palace Photo, Meant to Dispel Rumors About Catherine, Fans Them Instead**\
+`Kensington Palace released a Mother’s Day photo of Catherine, Princess of Wales, to showcase her health, but news agencies later said it had been manipulated.`\
+https://nytimes.com/2024/03/10/world/europe/prince-catherine-photogreaph.html
+
 **California’s Ballot Measure on Mental Health Care Still Isn’t Decided. Why?**\
 `Proposition 1 was expected to be widely approved, but the vote is close. Here’s what the measure is and what’s at stake.`\
 https://nytimes.com/2024/03/10/us/california-prop-1-mental-health.html
