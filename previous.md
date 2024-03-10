@@ -1,3 +1,31 @@
+**‘I Watched Her Descend the Stairs Into the Station Carefully’**\
+`Lost in Brooklyn, two easily identified flying objects and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/03/10/nyregion/metropolitan-diary.html
+
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/10/crosswords/connections-companion.html
+
+**After Letitia James Wins Big in Courtrooms, She Celebrates in Public**\
+`Prevailing over former President Donald J. Trump and the National Rifle Association makes an elected Democrat a lightning rod. Foes call her vindictive. Allies say she’s just doing her job.`\
+https://nytimes.com/2024/03/10/nyregion/letitia-james-trump-nra.html
+
+**Elon Musk Has a Giant Charity. Its Money Stays Close to Home.**\
+`After making billions in tax-deductible donations to his philanthropy, the owner of Tesla and SpaceX gave away far less than required in some years — and what he did give often supported his own interests.`\
+https://nytimes.com/2024/03/10/us/elon-musk-charity.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/10/crosswords/wordle-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/03/10/crosswords/spelling-bee-forum.html
+
+**A Brooklyn Sex Club Promised Freedom. Some Called It Rape.**\
+`The leaders of Hacienda, perhaps New York City’s most prominent sex club, preach a gospel of continuous consent. Former members say when things went wrong, the group did not keep them safe.`\
+https://nytimes.com/2024/03/10/nyregion/hacienda-sex-club-consent.html
+
 **Quotation of the Day: A Club Too Good to Be Ignored**\
 `Quotation of the Day for Sunday, March 10, 2024.`\
 https://nytimes.com/2024/03/10/pageoneplus/quotation-of-the-day-a-club-too-good-to-be-ignored.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/03/10/pageoneplus/corrections-march-10-2024.html
 **In a combative speech filled with insults, Trump vilifies Biden, migrants and others.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/03/09/us/2024-presidential-election/trump-biden-georgia-rally
-
-**‘It’s a Way of Life’: Women Make Their Mark in the Ukrainian Army**\
-`As Ukraine struggles against Russian assaults and its losses mount, there has been a surge of women enlisting, and they are increasingly volunteering for combat roles.`\
-https://nytimes.com/2024/03/10/world/europe/ukraine-women-soldiers-army.html
-
-**Portugal Votes in a Tight Race With a Hard-Right Surge**\
-`The early general election comes after a corruption scandal that plunged the Socialist government into chaos. The far right could play kingmaker.`\
-https://nytimes.com/2024/03/10/world/europe/portugal-election-far-right.html
-
-**Xi Sticks to His Vision for China’s Rise Even as Growth Slows**\
-`China’s leader, Xi Jinping, believes his vision for technological dominance will keep powering the country’s ascent while the West recedes.`\
-https://nytimes.com/2024/03/09/world/asia/china-economy-xi.html
-
-**Will Memes About Politicians Now Get Sri Lankans Thrown in Jail?**\
-`A sweeping new law on online speech threatens the political humor that has helped the island nation get through tough stretches.`\
-https://nytimes.com/2024/03/09/world/asia/sri-lanka-online-safety-act.html
-
-**At a rally in Atlanta, Biden attacks Trump — this time by name.**\
-`By Nicholas Nehamas`\
-https://nytimes.com/live/2024/03/09/us/2024-presidential-election/biden-trump-election
-
-**U.S. Military Enters a New Phase With Gaza Aid Operations**\
-`As the United States continues providing Israel with munitions, the Pentagon will deliver food and other assistance to Gazans by sea and air.`\
-https://nytimes.com/2024/03/09/us/politics/us-military-gaza-aid.html
-
-**Trump goes after Carroll and judge for defamation ruling after posting $91.6 million bond.**\
-`By Maggie Haberman and Michael Gold`\
-https://nytimes.com/live/2024/03/09/us/2024-presidential-election/trump-carroll
 
