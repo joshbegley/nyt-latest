@@ -1,3 +1,7 @@
+**The Sunday Read: ‘Can Humans Endure the Psychological Torment of Mars?’**\
+`NASA is conducting tests on what might be the greatest challenge of a Mars mission: the trauma of isolation.`\
+https://nytimes.com/2024/03/10/podcasts/the-daily/mars-isolation-nasa.html
+
 **10mideast-crisis**\
 `Biden Rebukes Netanyahu Over Civilian Deaths but Reaffirms Support`\
 https://nytimes.com/live/2024/03/10/world/israel-hamas-war-gaza-news
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/dining/cabbage-popularity.html
 **As Israel’s Ties to Arab Countries Fray, a Strained Lifeline Remains**\
 `The United Arab Emirates has maintained its links to Israel throughout the war in Gaza, but the relationship, built on a U.S.-brokered deal, is under pressure as anger against Israel grows.`\
 https://nytimes.com/2024/03/10/world/middleeast/uae-israel-gaza-war.html
-
-**Kari Lake Tries a New Tactic: Mending Fences**\
-`The close Trump ally is courting former foes and trying to mend fences as she runs for Senate in Arizona. But bad blood from her 2022 campaign simmers at home.`\
-https://nytimes.com/2024/03/10/us/politics/kari-lake-arizona-senate.html
 
