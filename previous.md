@@ -1,3 +1,7 @@
+**Will Memes About Politicians Now Get Sri Lankans Thrown in Jail?**\
+`A sweeping new law on online speech threatens the political humor that has helped the island nation get through tough stretches.`\
+https://nytimes.com/2024/03/09/world/asia/sri-lanka-online-safety-act.html
+
 **At a rally in Atlanta, Biden attacks Trump — this time by name.**\
 `By Nicholas Nehamas`\
 https://nytimes.com/live/2024/03/09/us/2024-presidential-election/biden-trump-election
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/09/business/trump-media-digital-world-merger.html
 **Trump praises Hungary’s nationalist prime minister as ‘the boss.’**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/03/09/us/2024-presidential-election/trump-orban-hungary
-
-**U.S. carries out a fifth airdrop in Gaza, delivering nearly 41,500 meals and 23,000 bottles of water.**\
-`By James C. McKinley Jr.`\
-https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/us-carries-out-a-fifth-airdrop-in-gaza-delivering-nearly-41500-meals-and-23000-bottles-of-water
 

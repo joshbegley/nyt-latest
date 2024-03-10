@@ -1,3 +1,7 @@
+**Will Memes About Politicians Now Get Sri Lankans Thrown in Jail?**\
+`A sweeping new law on online speech threatens the political humor that has helped the island nation get through tough stretches.`\
+https://nytimes.com/2024/03/09/world/asia/sri-lanka-online-safety-act.html
+
 **At a rally in Atlanta, Biden attacks Trump — this time by name.**\
 `By Nicholas Nehamas`\
 https://nytimes.com/live/2024/03/09/us/2024-presidential-election/biden-trump-election
