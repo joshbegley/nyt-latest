@@ -1,3 +1,7 @@
+**Portugal Votes in a Tight Race With a Hard-Right Surge**\
+`The early general election comes after a corruption scandal that plunged the Socialist government into chaos. The far right could play kingmaker.`\
+https://nytimes.com/2024/03/10/world/europe/portugal-election-far-right.html
+
 **Xi Sticks to His Vision for China’s Rise Even as Growth Slows**\
 `China’s leader, Xi Jinping, believes his vision for technological dominance will keep powering the country’s ascent while the West recedes.`\
 https://nytimes.com/2024/03/09/world/asia/china-economy-xi.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/09/world/israel-hamas-war-gaza-news/a-gaza-aid-
 **National Guard Can’t Carry Long Guns While Checking Bags in Subway**\
 `Gov. Kathy Hochul issued an order forbidding the weapons at bag-check stations on Wednesday, directly after her announcement that soldiers would be deployed to New York City’s subways.`\
 https://nytimes.com/2024/03/09/nyregion/long-guns-subway.html
-
-**Potential Obstacle to Trump Media’s Merger Appears to Have Been Cleared**\
-`Two early founders of Donald Trump’s social media company reached a temporary truce with the company on Saturday.`\
-https://nytimes.com/2024/03/09/business/trump-media-digital-world-merger.html
 
