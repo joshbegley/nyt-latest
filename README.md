@@ -8,7 +8,7 @@ https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/barbie-win-one-
 
 **Hundreds of pro-Palestinian protesters gather in Los Angeles.**\
 `The protesters chanted “Cease-fire now” and “Long live Palestine” about a mile away from the red carpet.`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/hundreds-of-pro-palestinian-protesters-gather-in-los-angeles
+https://nytimes.com/2024/03/10/movies/gaza-protest-los-angeles-oscars.html
 
 **And the Oscars carpet color goes … back to red.**\
 `By Sarah Bahr`\
