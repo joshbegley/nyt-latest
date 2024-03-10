@@ -1,3 +1,7 @@
+**On Oscars Carpet, Red Pins Planned to Call for Cease-Fire in Gaza**\
+`Artists4Ceasefire asked many attendees to wear red lapel pins that also represent a call for increased humanitarian aid and the release of “all hostages.” Which stars will wear them remains to be seen.`\
+https://nytimes.com/2024/03/10/style/red-pins-gaza-ceasefire-oscars.html
+
 **Kathy Goldman, Who Fought Hunger in New York City, Dies at 92**\
 `She helped introduce free breakfasts and lunches for schoolchildren and open pantries and soup kitchens for the poor.`\
 https://nytimes.com/2024/03/10/nyregion/kathy-goldman-dead.html
