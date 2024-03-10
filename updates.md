@@ -1,3 +1,7 @@
+**Hundreds of Pro-Palestinian Protesters Gather Before the Oscars**\
+`The protesters chanted “Cease-fire now” and “Long live Palestine” about a mile away from the red carpet.`\
+https://nytimes.com/2024/03/10/movies/gaza-protest-los-angeles-oscars.html
+
 **Pose Questions**\
 `How will you fare in this puzzle by Rebecca Goldstein and Rachel Fabi?`\
 https://nytimes.com/2024/03/10/crosswords/daily-puzzle-2024-03-11.html

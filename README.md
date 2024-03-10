@@ -1,3 +1,11 @@
+**Gaza Begins Ramadan With No Cease-Fire**\
+`There were hopes for a last-minute deal, but both sides said they weren’t close to an agreement.`\
+https://nytimes.com/2024/03/10/world/middleeast/ramadan-israel-gaza-cease-fire.html
+
+**Here’s what to watch for in the Academy Awards.**\
+`“Oppenheimer”`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/heres-what-to-watch-for-in-the-academy-awards
+
 **Pose Questions**\
 `How will you fare in this puzzle by Rebecca Goldstein and Rachel Fabi?`\
 https://nytimes.com/2024/03/10/crosswords/daily-puzzle-2024-03-11.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/10/movies/paolo-taviani-dead.html
 **At the Oscars, many hopefuls may take on the classic tuxedo.**\
 `By Guy Trebay`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/at-the-oscars-many-hopefuls-may-take-on-the-classic-tuxedo
-
-**Monday Briefing: Biden Clashes With Netanyahu**\
-`By Amelia Nierenberg`\
-https://nytimes.com/2024/03/10/world/asia/biden-netanyahu-haiti-hong-kong-asia.html
-
-**Virginia Bans Legacy Admissions in Public Universities and Colleges**\
-`The new law comes as the practice of giving preferential treatment to applicants with family ties to alumni has come under renewed scrutiny.`\
-https://nytimes.com/2024/03/10/us/virginia-legacy-admissions-public-colleges-universities.html
 
