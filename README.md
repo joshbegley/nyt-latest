@@ -30,8 +30,8 @@ https://nytimes.com/2024/03/10/crosswords/daily-puzzle-2024-03-11.html
 `By Matt Stevens`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/barbie-win-one-oscar-prediction
 
-**Hundreds of Pro-Palestinian Protesters Gather Before the Oscars**\
-`The protesters chanted “Cease-fire now” and “Long live Palestine” about a mile away from the red carpet.`\
+**Before the Oscars, Protesters Call for Cease-Fire in Gaza**\
+`The demonstrators chanted “Long live Palestine” about a mile away from the red carpet.`\
 https://nytimes.com/2024/03/10/movies/gaza-protest-los-angeles-oscars.html
 
 **And the Oscars carpet color goes … back to red.**\
