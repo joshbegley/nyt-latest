@@ -1,3 +1,7 @@
+**Highlights From the 2024 Oscars**\
+`The biopic “Oppenheimer” was showered with honors, and the race for best actress culminated in a second Oscar for Emma Stone.`\
+https://nytimes.com/video/movies/100000009354996/oscars-2024-highlights-oppenheimer.html
+
 **‘Even without Ramadan, we are fasting.’ In Gaza, people brace for a holiday of hardship.**\
 `By Raja Abdulrahim and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/even-without-ramadan-we-are-fasting-in-gaza-people-brace-for-a-holiday-of-hardship
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/crosswords/spelling-bee-forum.html
 **The Connections Companion**\
 `In case you need some puzzle help.`\
 https://nytimes.com/2024/03/11/crosswords/connections-companion.html
-
-**Word of the Day: colossal**\
-`This word has appeared in 217 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/03/11/learning/word-of-the-day-colossal.html
 
