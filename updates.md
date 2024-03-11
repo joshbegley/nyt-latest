@@ -1,3 +1,7 @@
+**Emma Stone Wins Her Second Best Actress Oscar for ‘Poor Things’**\
+`Stone, who portrayed Bella Baxter in the Yorgos Lanthimos-directed film, was visibly overwhelmed in her acceptance speech.`\
+https://nytimes.com/2024/03/10/movies/emma-stone-oscars-poor-things.html
+
 **Lily Gladstone, breakout star of the season, ends her awards season run.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/lily-gladstone-breakout-star-of-the-season-ends-her-awards-season-run

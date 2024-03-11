@@ -6,8 +6,8 @@ https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/lily-gladstone-
 `By Kyle Buchanan`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/a-big-night-for-oppenheimer-ends-with-best-picture
 
-**Emma Stone wins her second Oscar for best actress, for ‘Poor Things.’**\
-`By Julia Jacobs`\
+**Emma Stone Wins Her Second Best Actress Oscar for ‘Poor Things’**\
+`Stone, who portrayed Bella Baxter in the Yorgos Lanthimos-directed film, was visibly overwhelmed in her acceptance speech.`\
 https://nytimes.com/2024/03/10/movies/emma-stone-oscars-poor-things.html
 
 **Oscars’ In Memoriam Segment Honors Aleksei Navalny, Among Film Greats**\
