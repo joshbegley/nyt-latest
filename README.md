@@ -1,3 +1,7 @@
+**Ryan Gosling performs ‘Just Ken.’**\
+`By Esther Zuckerman`\
+https://nytimes.com/2024/03/10/movies/ryan-gosling-just-ken-oscars.html
+
 **A short film wins Wes Anderson his first Oscar.**\
 `By Marc Tracy`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/a-short-film-wins-wes-anderson-his-first-oscar
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/movies/vanessa-hudgens-pregnant-oscars.html
 **Dispute Over Gaza War Heats Up Between Biden and Netanyahu**\
 `The Israeli prime minister rejected a rebuke from the U.S. president over the scale of the Israel assault.`\
 https://nytimes.com/2024/03/10/world/middleeast/biden-netanyahu-gaza.html
-
-**How did Jimmy Kimmel do? Our critic has thoughts.**\
-`By Jason Zinoman`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/how-did-jimmy-kimmel-do-our-critic-has-thoughts
 
