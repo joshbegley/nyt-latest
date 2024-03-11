@@ -1,3 +1,15 @@
+**Dispute Over Gaza War Heats Up Between Biden and Netanyahu**\
+`The Israeli prime minister rejected a rebuke from the U.S. president over the scale of the Israel assault.`\
+https://nytimes.com/2024/03/10/world/middleeast/biden-netanyahu-gaza.html
+
+**How did Jimmy Kimmel do? Our critic has thoughts.**\
+`By Jason Zinoman`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/how-did-jimmy-kimmel-do-our-critic-has-thoughts
+
+**Cord Jefferson wins adapted screenplay award for ‘American Fiction.’**\
+`By Marc Tracy`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/cord-jefferson-wins-adapted-screenplay-award-for-american-fiction
+
 **Jimmy Kimmel Opens with Quips and a Salute to Film Crews**\
 `The late-night TV host celebrated the blockbuster nominated films and poked fun at many of their stars.`\
 https://nytimes.com/2024/03/10/movies/jimmy-kimmel-oscars-monologue.html

@@ -1,3 +1,15 @@
+**‘Dead Outlaw’ Review: Not Much of a Bandit, but What a Corpse**\
+`The creators of “The Band’s Visit” return with this mischievous ghost story of a musical based on an odd slice of Old West history.`\
+https://nytimes.com/2024/03/10/theater/dead-outlaw-review.html
+
+**Scientists Discover 100 New Marine Species in New Zealand**\
+`The findings, from the largely uncharted waters of Bounty Trough, show that “we’ve got a long way to go in terms of understanding where life is found in the ocean,” a researcher said.`\
+https://nytimes.com/2024/03/10/science/new-species-sea-discovery.html
+
+**Vanessa Hudgens reveals her pregnancy on the red carpet.**\
+`The star said she had “a lot to be excited for” during ABC’s Oscars pre-show.`\
+https://nytimes.com/2024/03/10/movies/vanessa-hudgens-pregnant-oscars.html
+
 **Dispute Over Gaza War Heats Up Between Biden and Netanyahu**\
 `The Israeli prime minister rejected a rebuke from the U.S. president over the scale of the Israel assault.`\
 https://nytimes.com/2024/03/10/world/middleeast/biden-netanyahu-gaza.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/10/movies/davine-joy-randolph-oscar-best-supporting-
 **A writer has accused ‘The Holdovers’ of plagiarizing his script, according to a report.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/a-writer-has-accused-the-holdovers-of-plagiarizing-his-script-according-to-a-report
-
-**Palace Photo, Meant to Dispel Rumors About Catherine, Fans Them Instead**\
-`Kensington Palace released a Mother’s Day photo of Catherine, Princess of Wales, to showcase her health, but news agencies later said it had been manipulated.`\
-https://nytimes.com/2024/03/10/world/europe/prince-catherine-photogreaph.html
-
-**California’s Ballot Measure on Mental Health Care Still Isn’t Decided. Why?**\
-`Proposition 1 was expected to be widely approved, but the vote is close. Here’s what the measure is and what’s at stake.`\
-https://nytimes.com/2024/03/10/us/california-prop-1-mental-health.html
-
-**Just how many Oscars could ‘Oppenheimer’ win tonight?**\
-`By Kyle Buchanan`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/just-how-many-oscars-could-oppenheimer-win-tonight
 
