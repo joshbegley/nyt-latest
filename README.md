@@ -1,3 +1,7 @@
+**What an Oscar for ‘20 Days in Mariupol’ Reveals About Hollywood**\
+`Where cinema is made and what language it speaks is not what defines its influence.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/oscars-best-documentary
+
 **4 Ways to Build a More Resilient Biopharma Industry**\
 `From life-saving cancer drugs to seasonal flu shots, innovations in pharmaceuticals and biotechnology have a positive impact on countless lives on a daily basis.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2024/03/11/style/pamela-anderson-no-makeup-vanity-fair.html
 **Do You Know These Pulitzer-Winning Women and Their Books?**\
 `Try this short quiz to test your literary knowledge — and get a few reading suggestions along the way.`\
 https://nytimes.com/interactive/2024/03/11/books/review/pulitzer-prize-women.html
-
-**Where to Stream 2024 Oscar Winners, From ‘Oppenheimer’ to ‘Poor Things’**\
-`Most of the night’s winners can be watched at home. Here’s a guide to help you find the honorees.`\
-https://nytimes.com/2024/03/11/movies/oscars-winners-streaming.html
 
