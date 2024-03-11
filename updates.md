@@ -1,3 +1,11 @@
+**He Was in Prison. She Was in Covid Lockdown. They Freed Each Other.**\
+`During the pandemic Jessica Jacobs binge-watched true crime shows. Inspired, she started working on cases with a lawyer. Two men who spent decades behind bars walked free.`\
+https://nytimes.com/2024/03/11/us/los-angeles-exoneration-jofama-coleman-abel-soto.html
+
+**Testimony Fleshes Out Account of Trump’s Demand to Go to Capitol on Jan. 6**\
+`But a newly released transcript of an interview of the Secret Service agent who drove Donald Trump’s vehicle that day disputes that he tried to grab the steering wheel or lunged at another agent.`\
+https://nytimes.com/2024/03/11/us/politics/jan-6-trump-motorcade-secret-service.html
+
 **One of New York’s ‘Worst Landlords’ Faces Arrest Over Building Neglect**\
 `In a rare step, the city’s housing department asked the court to issue an arrest warrant for the landlord, Daniel Ohebshalom.`\
 https://nytimes.com/2024/03/11/nyregion/landlord-arrest-building-dangerous-conditions.html
