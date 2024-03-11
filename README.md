@@ -1,3 +1,7 @@
+**U. of Texas at Austin Will Return to Standardized Test Requirement**\
+`The university said SAT and ACT scores help it place students in programs that fit them best.`\
+https://nytimes.com/2024/03/11/us/ut-austin-standardized-test-admission.html
+
 **The general election is set. Welcome to the next 8 months.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/03/11/us/2024-election-trump-biden/the-general-election-is-set-welcome-to-the-next-8-months
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/crosswords/children-family-video-games.html
 **Israeli police officers blocked many Palestinians from Al Aqsa Mosque at the start of Ramadan, videos show.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israeli-police-officers-blocked-many-palestinians-from-entering-al-aqsa-mosque-at-the-start-of-ramadan-video-shows
-
-**Princess Catherine Apologizes, Saying She Edited Image**\
-`A Mother’s Day portrait of Catherine, Princess of Wales, with her three children was withdrawn by several news agencies on Sunday over concerns it had been digitally altered.`\
-https://nytimes.com/2024/03/11/world/europe/princess-kate-middleton-photo-edit-apology.html
 
