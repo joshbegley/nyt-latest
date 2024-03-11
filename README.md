@@ -1,3 +1,7 @@
+**Quotation of the Day: Gang Uprising Is Aggravating Crisis in Haiti**\
+`Quotation of the Day for Monday, March 11, 2024.`\
+https://nytimes.com/2024/03/11/pageoneplus/quotation-of-the-day-gang-uprising-is-aggravating-crisis-in-haiti.html
+
 **Monday Briefing**\
 `Biden and Netanyahu clash over Gaza.`\
 https://nytimes.com/2024/03/11/briefing/gaza-biden-netanyahu-oscars.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/world/europe/olympic-medals-paris-2024.html
 **Jimmy Kimmel Jabbed Back at Donald Trump During the Oscars**\
 `Yes, that was a real post by the former president.`\
 https://nytimes.com/2024/03/10/movies/trump-kimmel-oscars.html
-
-**19 Looks That Did the Most at the Oscars**\
-`The red carpet at the Academy Awards had elegant, over-the-top and even political fashion. These were the best (and the not-so-best) outfits.`\
-https://nytimes.com/2024/03/10/style/oscars-fashion-2024.html
 
