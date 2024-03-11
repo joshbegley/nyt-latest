@@ -6,8 +6,8 @@ https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/oscars-godzilla
 `By Alissa Wilkinson`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/dissension-hits-the-documentary-category
 
-**The Israel-Hamas war is mentioned in a speech by the ‘Zone of Interest’ director.**\
-`By Matt Stevens`\
+**Jonathan Glazer Condemns ‘Occupation’ and Violence in Israel and Gaza**\
+`Glazer, the director of “The Zone of Interest,” spoke about the war while accepting the Oscar for best international feature.`\
 https://nytimes.com/2024/03/10/movies/the-israel-hamas-war-is-mentioned-in-a-speech-by-the-zone-of-interest-director.html
 
 **Robert Downey Jr., the front-runner, wins best supporting actor.**\
