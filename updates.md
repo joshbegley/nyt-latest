@@ -1,3 +1,7 @@
+**Cillian Murphy wins his first Oscar, best actor for ‘Oppenheimer.’**\
+`By Christopher Kuo`\
+https://nytimes.com/2024/03/10/movies/cillian-murphy-oscar-oppenheimer.html
+
 **Emma Stone Wins Her Second Best Actress Oscar for ‘Poor Things’**\
 `Stone, who portrayed Bella Baxter in the Yorgos Lanthimos-directed film, was visibly overwhelmed in her acceptance speech.`\
 https://nytimes.com/2024/03/10/movies/emma-stone-oscars-poor-things.html

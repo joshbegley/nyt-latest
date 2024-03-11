@@ -16,7 +16,7 @@ https://nytimes.com/2024/03/10/movies/oscars-in-memoriam-navalny.html
 
 **Cillian Murphy wins his first Oscar, best actor for ‘Oppenheimer.’**\
 `By Christopher Kuo`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/cillian-murphy-oscar-oppenheimer
+https://nytimes.com/2024/03/10/movies/cillian-murphy-oscar-oppenheimer.html
 
 **Ukrainian Director Says He’d Rather Have No Oscar and No War**\
 `‘20 Days in Mariupol,’ Mstyslav Chernov’s harrowing first-person account from the early days of Russia’s invasion, won for best documentary feature.`\
