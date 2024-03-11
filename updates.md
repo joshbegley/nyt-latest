@@ -1,3 +1,15 @@
+**‘Oppenheimer,’ My Uncle and the Secrets America Still Doesn’t Like to Tell**\
+`The Oscar-winning film centers on one man’s remarkable history. My uncle’s life tells a very different story about the fallout of the atomic bomb.`\
+https://nytimes.com/2024/03/11/opinion/oppenheimer-secret-lives.html
+
+**What’s on TV This Week: ‘Grey’s Anatomy’ and 55th N.A.A.C.P. Image Awards**\
+`The 20th season of this medical drama airs on ABC. And CBS hosts the annual awards show honoring excellence in film and television.`\
+https://nytimes.com/2024/03/11/arts/television/whats-on-tv-this-week-greys-anatomy-and-55th-naacp-image-awards.html
+
+**Our Favorite Photos From the Oscars Red Carpet**\
+`An array of stars turned up the wattage, including Emma Stone and Billie Eilish and Oscar newcomers like Colman Domingo and Danielle Brooks.`\
+https://nytimes.com/2024/03/11/arts/oscars-red-carpet-photos-favorite.html
+
 **Navigating Israeli Restrictions, Many Palestinians Find It Hard to Reach Al Aqsa**\
 `Muslim access to the mosque compound has long been a point of contention as Israel has exerted tighter control.`\
 https://nytimes.com/2024/03/11/world/middleeast/palestinians-al-aqsa-mosque-ramadan.html
