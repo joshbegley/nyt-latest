@@ -1,3 +1,7 @@
+**Princess Catherine Apologizes, Saying She Edited Image**\
+`A Mother’s Day portrait of Catherine, Princess of Wales, with her three children shows a range of anomalies indicating it had been digitally altered.`\
+https://nytimes.com/2024/03/11/world/europe/princess-kate-middleton-photo-edit-apology.html
+
 **U. of Texas at Austin Will Return to Standardized Test Requirement**\
 `The university said SAT and ACT scores help it place students in programs that fit them best.`\
 https://nytimes.com/2024/03/11/us/ut-austin-standardized-test-admission.html
