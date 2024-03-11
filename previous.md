@@ -6,8 +6,8 @@ https://nytimes.com/2024/03/10/style/john-cena-naked-men-oscars.html
 `Once again, the movie industry had the film to thank for some respite from its all-too-common pablum.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/ken-oscars-barbie
 
-**‘My eyes see “Oppenheimer”’: Al Pacino’s awkward best picture announcement.**\
-`By Matt Stevens`\
+**‘My Eyes See “Oppenheimer”’: Al Pacino’s Awkward Best Picture Announcement**\
+`Pacino did not name the 10 nominees before saying the prize went to “Oppenheimer,” the favorite to win.`\
 https://nytimes.com/2024/03/10/movies/al-pacino-oscars-best-picture-oppenheimer.html
 
 **Lily Gladstone, breakout star of the season, ends her awards season run.**\
