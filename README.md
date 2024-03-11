@@ -7,7 +7,7 @@ https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/how-do-propose
 https://nytimes.com/2024/03/11/us/politics/marcia-fudge-hud-resigns.html
 
 **When Cicadas Emerge, Things Might Get a Little Wet**\
-`A new study reveals that cicadas can discharge urine with far more force than their size would suggest. This spring’s deluge could be significant.`\
+`A new study reveals that cicadas can discharge urine with far more force than their size would suggest. This spring’s  output could be significant.`\
 https://nytimes.com/2024/03/11/science/cicadas-pee-stream.html
 
 **Deadspin Sells to European Media Company, Leaving Staff Behind**\
