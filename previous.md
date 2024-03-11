@@ -1,3 +1,15 @@
+**U.S. Judge Blocks Rule Extending Reach of Labor Law to Franchisers**\
+`The ruling upends the National Labor Relations Board’s move to broaden the standard for determining when a company is liable for labor law violations.`\
+https://nytimes.com/2024/03/11/business/economy/nlrb-joint-employer-court-ruling.html
+
+**NYC Restaurant Sheds Are Here to Stay. Here Are the New Guidelines.**\
+`The city’s Department of Transportation issued new rules for Dining Out NYC, its official program, and more food news.`\
+https://nytimes.com/2024/03/11/dining/nyc-dining-sheds-guidelines.html
+
+**Trump Mentions Cutting Entitlements, and Biden Pounces**\
+`Donald Trump’s campaign said he “will continue to strongly protect Social Security and Medicare in his second term,” clarifying more ambiguous comments in a CNBC interview.`\
+https://nytimes.com/live/2024/03/11/us/2024-election-trump-biden/trump-mentions-cutting-entitlements-and-biden-pounces
+
 **Oscar Highlights: The Good, the Ken and the Naked**\
 `Our movie critic looks back on the Academy Awards.`\
 https://nytimes.com/2024/03/11/podcasts/culture-desk-oscars-highlights-2024.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/11/books/spring-nonfiction-books.html
 **27 Works of Fiction Coming This Spring**\
 `Stories by Amor Towles, a sequel to Colm Toibin’s “Brooklyn,” a new thriller by Tana French and more.`\
 https://nytimes.com/2024/03/11/books/new-spring-fiction.html
-
-**Biden Has a Ways to Go on That Manufacturing Renaissance**\
-`His boosterism about factory jobs is backed by policy, but not yet strong results.`\
-https://nytimes.com/2024/03/11/opinion/biden-economy-manufacturing-jobs.html
-
-**An Old Trick to the Crispiest Tofu**\
-`Why fry when you can freeze?`\
-https://nytimes.com/2024/03/11/dining/how-to-make-crispy-tofu.html
-
-**American Man Sentenced to Life After Killing Woman at German Castle**\
-`The U.S. citizen attacked two women, also Americans, near Germany’s iconic Neuschwanstein Castle, and attempted to push both of them to their deaths, a court found. One was killed, the other survived.`\
-https://nytimes.com/2024/03/11/world/europe/germany-american-murder-neuschwanstein-castle.html
 
