@@ -1,3 +1,15 @@
+**What’s So Funny About a Naked Man?**\
+`John Cena’s skit at the Academy Awards underscores an intractable gender imbalance, even as it gets legitimate laughs.`\
+https://nytimes.com/2024/03/10/style/john-cena-naked-men-oscars.html
+
+**Once Again, Thank God for ‘Barbie’**\
+`Once again, the movie industry had the film to thank for some respite from its all-too-common pablum.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/ken-oscars-barbie
+
+**‘My eyes see “Oppenheimer”’: Al Pacino’s awkward best picture announcement.**\
+`By Matt Stevens`\
+https://nytimes.com/2024/03/10/movies/al-pacino-oscars-best-picture-oppenheimer.html
+
 **Lily Gladstone, breakout star of the season, ends her awards season run.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/lily-gladstone-breakout-star-of-the-season-ends-her-awards-season-run
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/10/movies/20-days-in-mariupol-ukraine-oscars.html
 **Christopher Nolan wins his first directing Oscar.**\
 `By Marc Tracy`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/christopher-nolan-wins-his-first-directing-oscar
-
-**When Oscar Winners Have a Bigger Point to Make**\
-`Tonight, I was both struck and moved by the two big political speeches at the ceremony so far.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/oscars-war-speech-gaza-ukraine
-
-**Wait, Were Those Shoulder Straps Floating?**\
-`A sculptural element on Emily Blunt and Florence Pugh raised some eyebrows.`\
-https://nytimes.com/2024/03/10/style/emily-blunt-florence-pugh-oscars.html
-
-**‘What Was I Made For?’ Wins Billie Eilish (and ‘Barbie’) an Oscar**\
-`The song, which Eilish wrote with her brother, Finneas O’Connell, is the siblings’ second award in the category.`\
-https://nytimes.com/2024/03/10/movies/what-was-i-made-for-billie-eilish-oscars.html
 
