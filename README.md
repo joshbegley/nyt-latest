@@ -1,3 +1,7 @@
+**A Conservative Court Rebukes Republican Censorship**\
+`Earlier this month, classical liberals prevailed again.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/republican-censorship-ruling
+
 **Cillian Murphy: Get to Know the New Oscar Winner’s Work**\
 `“Oppenheimer” wasn’t the first time he’s played a physicist. In “Sunshine,” “28 Days Later” and more, you can get a sense of just how wide his range is.`\
 https://nytimes.com/2024/03/11/movies/cillian-murphy-oscar-streaming.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/podcasts/culture-desk-oscars-highlights-2024.html
 **How do proposed budgets match reality? Compare presidents.**\
 `By Josh Katz, Alicia Parlapiano and Margot Sanger-Katz`\
 https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/how-do-proposed-budgets-match-reality-compare-presidents
-
-**Fudge Steps Down as Housing Secretary**\
-`Marcia Fudge, who has led the Department of Housing and Urban Development since the early days of the Biden administration, announced her resignation, citing family concerns.`\
-https://nytimes.com/2024/03/11/us/politics/marcia-fudge-hud-resigns.html
 
