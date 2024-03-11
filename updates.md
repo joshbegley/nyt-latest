@@ -1,3 +1,7 @@
+**Biden’s budget kicks off a long and likely painful process on Capitol Hill.**\
+`In theory, funding the government takes place in two major stages. But it’s a fraught and complicated process; here’s a step-by-step guide.`\
+https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/bidens-budget-kicks-off-a-long-and-likely-painful-process-on-capitol-hill
+
 **Biden’s Budget Calls for Tax Increases on Corporations and the Wealthy**\
 `The budget, which would cut the deficit by $3 trillion over the next decade, reinforces Biden’s efforts to counter Republican tax proposals that Democrats deride as giveaways to the wealthy.`\
 https://nytimes.com/2024/03/11/us/politics/biden-budget-tax-proposal.html
