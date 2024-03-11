@@ -1,3 +1,11 @@
+**One of New York’s ‘Worst Landlords’ Faces Arrest Over Building Neglect**\
+`In a rare step, the city’s housing department asked the court to issue an arrest warrant for the landlord, Daniel Ohebshalom.`\
+https://nytimes.com/2024/03/11/nyregion/landlord-arrest-building-dangerous-conditions.html
+
+**Coming Soon to Manhattan, a Brand-New Tiny Forest**\
+`Pocket-size forests filled with native plants have been embraced worldwide for their environmental benefits. Now one is planned for New York City.`\
+https://nytimes.com/2024/03/11/climate/tiny-forest-roosevelt-island.html
+
 **Biden’s budget kicks off a long and likely painful process on Capitol Hill.**\
 `In theory, funding the government takes place in two major stages. But it’s a fraught and complicated process; here’s a step-by-step guide.`\
 https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/bidens-budget-kicks-off-a-long-and-likely-painful-process-on-capitol-hill
