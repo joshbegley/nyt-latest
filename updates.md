@@ -1,3 +1,7 @@
+**House Republicans unveiled their own budget blueprint with steep cuts.**\
+`By Catie Edmondson`\
+https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/house-republicans-unveiled-their-own-budget-blueprint-with-steep-cuts
+
 **Biden’s budget calls for $5 trillion in additional taxes on corporations and the wealthy over the next decade.**\
 `By Alan Rappeport`\
 https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/bidens-budget-calls-for-5-trillion-in-additional-taxes-on-corporations-and-the-wealthy-over-the-next-decade
