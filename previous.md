@@ -1,5 +1,13 @@
-**Ryan Gosling performs ‘Just Ken.’**\
-`By Esther Zuckerman`\
+**Wait, Were Those Shoulder Straps Floating?**\
+`A sculptural element on Emily Blunt and Florence Pugh raised some eyebrows.`\
+https://nytimes.com/2024/03/10/style/emily-blunt-florence-pugh-oscars.html
+
+**‘What Was I Made For?’ wins Billie Eilish (and ‘Barbie’) an Oscar.**\
+`By Matt Stevens`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/what-was-i-made-for-oscar
+
+**Ryan Gosling Delivers a ‘Just Ken’ Spectacle at the Oscars**\
+`In one of the evening’s most anticipated performances, Gosling and dozens of dancers went over the top and even brought out Slash for a cameo on guitar.`\
 https://nytimes.com/2024/03/10/movies/ryan-gosling-just-ken-oscars.html
 
 **A short film wins Wes Anderson his first Oscar.**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/10/theater/dead-outlaw-review.html
 **Scientists Discover 100 New Marine Species in New Zealand**\
 `The findings, from the largely uncharted waters of Bounty Trough, show that “we’ve got a long way to go in terms of understanding where life is found in the ocean,” a researcher said.`\
 https://nytimes.com/2024/03/10/science/new-species-sea-discovery.html
-
-**Vanessa Hudgens reveals her pregnancy on the red carpet.**\
-`The star said she had “a lot to be excited for” during ABC’s Oscars pre-show.`\
-https://nytimes.com/2024/03/10/movies/vanessa-hudgens-pregnant-oscars.html
-
-**Dispute Over Gaza War Heats Up Between Biden and Netanyahu**\
-`The Israeli prime minister rejected a rebuke from the U.S. president over the scale of the Israel assault.`\
-https://nytimes.com/2024/03/10/world/middleeast/biden-netanyahu-gaza.html
 
