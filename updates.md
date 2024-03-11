@@ -1,3 +1,15 @@
+**17 Works of Nonfiction Coming This Spring**\
+`Memoirs from Brittney Griner and Salman Rushdie, a look at pioneering Black ballerinas, a new historical account from Erik Larson — and plenty more.`\
+https://nytimes.com/2024/03/11/books/spring-nonfiction-books.html
+
+**27 Works of Fiction Coming This Spring**\
+`Stories by Amor Towles, a sequel to Colm Toibin’s “Brooklyn,” a new thriller by Tana French and more.`\
+https://nytimes.com/2024/03/11/books/new-spring-fiction.html
+
+**Biden Has a Ways to Go on That Manufacturing Renaissance**\
+`His boosterism about factory jobs is backed by policy, but not yet strong results.`\
+https://nytimes.com/2024/03/11/opinion/biden-economy-manufacturing-jobs.html
+
 **An Old Trick to the Crispiest Tofu**\
 `Why fry when you can freeze?`\
 https://nytimes.com/2024/03/11/dining/how-to-make-crispy-tofu.html
