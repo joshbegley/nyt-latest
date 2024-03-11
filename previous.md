@@ -1,3 +1,7 @@
+**Oscar Highlights: The Good, the Ken and the Naked**\
+`Our movie critic looks back on the Academy Awards.`\
+https://nytimes.com/2024/03/11/podcasts/culture-desk-oscars-highlights-2024.html
+
 **How do proposed budgets match reality? Compare presidents.**\
 `By Josh Katz, Alicia Parlapiano and Margot Sanger-Katz`\
 https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/how-do-proposed-budgets-match-reality-compare-presidents
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/dining/how-to-make-crispy-tofu.html
 **American Man Sentenced to Life After Killing Woman at German Castle**\
 `The U.S. citizen attacked two women, also Americans, near Germany’s iconic Neuschwanstein Castle, and attempted to push both of them to their deaths, a court found. One was killed, the other survived.`\
 https://nytimes.com/2024/03/11/world/europe/germany-american-murder-neuschwanstein-castle.html
-
-**He Was in Prison. She Was in Covid Lockdown. They Freed Each Other.**\
-`During the pandemic Jessica Jacobs binge-watched true crime shows. Inspired, she started working on cases with a lawyer. Two men who spent decades behind bars walked free.`\
-https://nytimes.com/2024/03/11/us/los-angeles-exoneration-jofama-coleman-abel-soto.html
 

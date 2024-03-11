@@ -1,3 +1,7 @@
+**Oscar Highlights: The Good, the Ken and the Naked**\
+`Our movie critic looks back on the Academy Awards.`\
+https://nytimes.com/2024/03/11/podcasts/culture-desk-oscars-highlights-2024.html
+
 **How do proposed budgets match reality? Compare presidents.**\
 `By Josh Katz, Alicia Parlapiano and Margot Sanger-Katz`\
 https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/how-do-proposed-budgets-match-reality-compare-presidents
