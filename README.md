@@ -1,3 +1,7 @@
+**A new generation of abortion voters**\
+`Plus: Trump flips on a TikTok ban.`\
+https://nytimes.com/2024/03/11/us/politics/abortion-trump-tiktok.html
+
 **The Price of a Very Royal Scandal**\
 `The royal family’s foothold has grown so fragile that they no longer have room for error.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/kate-middleton-photoshop-controversy
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/world/asia/tiktok-trump-kate-photo-asia.html
 **Israel struck an area used by a high-ranking Hamas commander, a military spokesman says.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israel-struck-an-area-used-by-a-high-ranking-hamas-commander-a-military-spokesman-says
-
-**A Conservative Court Rebukes Republican Censorship**\
-`Earlier this month, classical liberals prevailed again.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/republican-censorship-ruling
 
