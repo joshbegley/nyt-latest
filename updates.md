@@ -1,3 +1,15 @@
+**A big night for ‘Oppenheimer’ ends with best picture.**\
+`By Kyle Buchanan`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/a-big-night-for-oppenheimer-ends-with-best-picture
+
+**Oscars’ In Memoriam Segment Honors Aleksei Navalny, Among Film Greats**\
+`Before paying tribute to the industry figures who died in the past year, a clip of the Russian opposition leader played as an introduction to the segment.`\
+https://nytimes.com/2024/03/10/movies/oscars-in-memoriam-navalny.html
+
+**Cillian Murphy wins his first Oscar, best actor for ‘Oppenheimer.’**\
+`By Christopher Kuo`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/cillian-murphy-oscar-oppenheimer
+
 **Emma Stone wins her second Oscar for best actress, for ‘Poor Things.’**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/emma-stone-wins-her-second-oscar-for-best-actress-for-poor-things

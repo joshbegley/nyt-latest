@@ -1,14 +1,18 @@
+**A big night for ‘Oppenheimer’ ends with best picture.**\
+`By Kyle Buchanan`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/a-big-night-for-oppenheimer-ends-with-best-picture
+
 **Emma Stone wins her second Oscar for best actress, for ‘Poor Things.’**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/emma-stone-wins-her-second-oscar-for-best-actress-for-poor-things
 
-**Oscars’ In Memoriam segment honors Aleksei Navalny, among film greats.**\
-`By Julia Jacobs`\
+**Oscars’ In Memoriam Segment Honors Aleksei Navalny, Among Film Greats**\
+`Before paying tribute to the industry figures who died in the past year, a clip of the Russian opposition leader played as an introduction to the segment.`\
 https://nytimes.com/2024/03/10/movies/oscars-in-memoriam-navalny.html
 
 **Cillian Murphy wins his first Oscar, best actor for ‘Oppenheimer.’**\
 `By Christopher Kuo`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/cillian-murphy-wins-his-first-oscar-best-actor-for-oppenheimer
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/cillian-murphy-oscar-oppenheimer
 
 **Ukrainian Director Says He’d Rather Have No Oscar and No War**\
 `‘20 Days in Mariupol,’ Mstyslav Chernov’s harrowing first-person account from the early days of Russia’s invasion, won for best documentary feature.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/movies/what-was-i-made-for-billie-eilish-oscars.h
 **Ryan Gosling Delivers a ‘Just Ken’ Spectacle at the Oscars**\
 `In one of the evening’s most anticipated performances, Gosling and dozens of dancers went over the top and even brought out Slash for a cameo on guitar.`\
 https://nytimes.com/2024/03/10/movies/ryan-gosling-just-ken-oscars.html
-
-**A short film wins Wes Anderson his first Oscar.**\
-`By Marc Tracy`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/a-short-film-wins-wes-anderson-his-first-oscar
 
