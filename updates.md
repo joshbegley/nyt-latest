@@ -1,3 +1,7 @@
+**‘What Was I Made For?’ Wins Billie Eilish (and ‘Barbie’) an Oscar.**\
+`The song, which Eilish wrote with her brother, Finneas O’Connell, is the siblings’ second award in the category.`\
+https://nytimes.com/2024/03/10/movies/what-was-i-made-for-billie-eilish-oscars.html
+
 **When Oscar Winners Have a Bigger Point to Make**\
 `Tonight, I was both struck and moved by the two big political speeches at the ceremony so far.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/oscars-war-speech-gaza-ukraine
