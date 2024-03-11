@@ -1,3 +1,7 @@
+**The British Royal Family: A Timeline of the Last Few Months**\
+`It’s been a busy few months for King Charles III and his family. There have been surgeries, health announcements, and one family photograph people can’t stop talking about.`\
+https://nytimes.com/2024/03/11/world/europe/princess-kate-middleton-royal-family-timeline.html
+
 **Swiss Rescuers Find Bodies of Five Missing Skiers**\
 `The police said weather conditions had deteriorated after the group set out from the town of Zermatt over the weekend. The search continued for a sixth person.`\
 https://nytimes.com/2024/03/11/world/europe/swiss-alps-skiers-missing.html
