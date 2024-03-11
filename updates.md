@@ -1,3 +1,7 @@
+**Dissension hits the documentary category.**\
+`By Alissa Wilkinson`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/dissension-hits-the-documentary-category
+
 **The Israel-Hamas war is mentioned in a speech by the ‘Zone of Interest’ director.**\
 `By Matt Stevens`\
 https://nytimes.com/2024/03/10/movies/the-israel-hamas-war-is-mentioned-in-a-speech-by-the-zone-of-interest-director.html
