@@ -1,3 +1,7 @@
+**‘No Ramadan Atmosphere’: Gazans Shop for Feasts**\
+`The war and hunger have cast a somber tone over this year’s holy month as people struggle to find affordable essentials to celebrate.`\
+https://nytimes.com/video/world/middleeast/100000009355030/gaza-ramadan-market-rafah.html
+
 **Biden Budget Will Underscore Divide With Republicans and Trump**\
 `The president’s fiscal 2025 budget proposal includes about $3 trillion in deficit reduction over a decade, largely from raising taxes on high earners and corporations.`\
 https://nytimes.com/2024/03/11/us/politics/biden-budget-will-underscore-divide-with-republicans-and-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/books/review/percival-everett-james.html
 **Change Is Coming to Iran, Just Not the Change We Hoped For**\
 `The next generation of the country’s leaders want authority, not theocracy.`\
 https://nytimes.com/2024/03/11/opinion/iran-election-theocracy.html
-
-**You Haven’t Seen Blue Until You’ve Seen San Andres**\
-`The island, close to Nicaragua but part of Colombia, boasts waters in seven shades of the color. Counting them — from a boat, from a cay, from the shade of a coconut tree — is a meditative experience.`\
-https://nytimes.com/2024/03/11/travel/san-andres-colombia.html
 
