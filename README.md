@@ -1,3 +1,7 @@
+**Biden’s budget kicks off a long and likely painful process on Capitol Hill.**\
+`In theory, funding the government takes place in two major stages. But it’s a fraught and complicated process; here’s a step-by-step guide.`\
+https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/bidens-budget-kicks-off-a-long-and-likely-painful-process-on-capitol-hill
+
 **Confronted by an Angry Moose? Here’s What to Do.**\
 `Moose are ordinarily docile animals. The chances of having to defend yourself against one in the wild are slim, but not zero.`\
 https://nytimes.com/2024/03/11/us/moose-encounter-what-to-do.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/us/politics/biden-trump-north-carolina-georgia.ht
 **Biden budget calls for expanding price negotiations for more drugs.**\
 `By Margot Sanger-Katz`\
 https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/biden-budget-calls-for-expanding-price-negotiations-for-more-drugs
-
-**What an Oscar for ‘20 Days in Mariupol’ Reveals About Hollywood**\
-`Where cinema is made and what language it speaks is not what defines its influence.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/oscars-best-documentary
 
