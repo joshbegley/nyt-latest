@@ -1,3 +1,7 @@
+**Torn Between Golden Past and Thorny Present, Oscars Still Had Some Fun**\
+`Even as the telecast indulged in the usual jokes, references to the 2023 strikes and current wars had their place, in our critics’ view.`\
+https://nytimes.com/2024/03/11/movies/academy-awards-oscars-critics.html
+
 **House Republicans unveiled their own budget blueprint with steep cuts.**\
 `By Catie Edmondson`\
 https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/house-republicans-unveiled-their-own-budget-blueprint-with-steep-cuts
@@ -34,8 +38,4 @@ https://nytimes.com/paidpost/cytiva/4-ways-to-build-a-more-resilient-biopharma-i
 **Menendez Is Arraigned for the Third Time in 6 Months**\
 `Senator Robert Menendez, Democrat of New Jersey, pleaded not guilty to obstruction of justice. So did his wife, Nadine Menendez.`\
 https://nytimes.com/2024/03/11/nyregion/senator-menendez-arraigned-bribery-obstruction.html
-
-**With Pride and Hope, Ukraine Celebrates Oscar Win for Mariupol Documentary**\
-`Ukrainians say recognition for “20 Days in Mariupol” will help debunk Russian propaganda and refocus attention on the situation in Russian-occupied territories.`\
-https://nytimes.com/2024/03/11/world/europe/ukraine-20-days-mariupol-oscars.html
 

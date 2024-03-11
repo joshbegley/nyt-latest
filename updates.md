@@ -1,3 +1,7 @@
+**Torn Between Golden Past and Thorny Present, Oscars Still Had Some Fun**\
+`Even as the telecast indulged in the usual jokes, references to the 2023 strikes and current wars had their place, in our critics’ view.`\
+https://nytimes.com/2024/03/11/movies/academy-awards-oscars-critics.html
+
 **House Republicans unveiled their own budget blueprint with steep cuts.**\
 `By Catie Edmondson`\
 https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/house-republicans-unveiled-their-own-budget-blueprint-with-steep-cuts
