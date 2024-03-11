@@ -18,7 +18,7 @@ https://nytimes.com/2024/03/11/world/europe/princess-kate-middleton-royal-family
 `The police said weather conditions had deteriorated after the group set out from the town of Zermatt over the weekend. The search continued for a sixth person.`\
 https://nytimes.com/2024/03/11/world/europe/swiss-alps-skiers-missing.html
 
-**Inside Vanity Fair’s Oscars Party**\
+**Kim Kardashian, Sydney Sweeney and Serena Williams at theVanity Fair Oscar Party**\
 `The magazine welcomed the famous (and the fame-adjacent) while toasting itself for hosting the extravaganza 30 times over the years.`\
 https://nytimes.com/2024/03/11/style/oscars-vanity-fair-party.html
 

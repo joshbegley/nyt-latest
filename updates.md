@@ -1,3 +1,7 @@
+**Kim Kardashian, Sydney Sweeney and Serena Williams at theVanity Fair Oscar Party**\
+`The magazine welcomed the famous (and the fame-adjacent) while toasting itself for hosting the extravaganza 30 times over the years.`\
+https://nytimes.com/2024/03/11/style/oscars-vanity-fair-party.html
+
 **The Oscar Night Hollywood Needed**\
 `Overall, there weren’t many huge risks but the safe choices were smart ones that routinely paid off.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/oscars-hollywood-success
