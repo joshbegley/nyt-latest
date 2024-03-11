@@ -16,7 +16,7 @@ https://nytimes.com/2024/03/11/dining/nyc-dining-sheds-guidelines.html
 
 **Trump Mentions Cutting Entitlements, and Biden Pounces**\
 `Donald Trump’s campaign said he “will continue to strongly protect Social Security and Medicare in his second term,” clarifying more ambiguous comments in a CNBC interview.`\
-https://nytimes.com/live/2024/03/11/us/2024-election-trump-biden/trump-mentions-cutting-entitlements-and-biden-pounces
+https://nytimes.com/2024/03/11/us/politics/trump-mentions-cutting-entitlements-and-biden-pounces.html
 
 **Oscar Highlights: The Good, the Ken and the Naked**\
 `Our movie critic looks back on the Academy Awards.`\
