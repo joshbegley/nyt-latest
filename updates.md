@@ -1,3 +1,7 @@
+**Lily Gladstone, breakout star of the season, ends her awards season run.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/lily-gladstone-breakout-star-of-the-season-ends-her-awards-season-run
+
 **Emma Stone wins her second Oscar for best actress, for ‘Poor Things.’**\
 `By Julia Jacobs`\
 https://nytimes.com/2024/03/10/movies/emma-stone-oscars-poor-things.html
