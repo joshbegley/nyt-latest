@@ -1,3 +1,7 @@
+**Al Pacino Explains Awkward Oscars Moment Presenting Best Picture**\
+`The star, whose abrupt announcement that “Oppenheimer” had won best picture took some viewers by surprise, said the show’s producers had asked him not to name the other nominees.`\
+https://nytimes.com/2024/03/11/movies/al-pacino-oscars.html
+
 **A new generation of abortion voters**\
 `Plus: Trump flips on a TikTok ban.`\
 https://nytimes.com/2024/03/11/us/politics/abortion-trump-tiktok.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israels-mil
 **Tuesday Briefing: U.S. Moves to Crack Down on TikTok**\
 `Also, uproar about a retouched royal photo and an Oscars recap.`\
 https://nytimes.com/2024/03/11/world/asia/tiktok-trump-kate-photo-asia.html
-
-**Israel struck an area used by a high-ranking Hamas commander, a military spokesman says.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israel-struck-an-area-used-by-a-high-ranking-hamas-commander-a-military-spokesman-says
 
