@@ -1,3 +1,15 @@
+**17 Works of Nonfiction Coming This Spring**\
+`Memoirs from Brittney Griner and Salman Rushdie, a look at pioneering Black ballerinas, a new historical account from Erik Larson — and plenty more.`\
+https://nytimes.com/2024/03/11/books/spring-nonfiction-books.html
+
+**27 Works of Fiction Coming This Spring**\
+`Stories by Amor Towles, a sequel to Colm Toibin’s “Brooklyn,” a new thriller by Tana French and more.`\
+https://nytimes.com/2024/03/11/books/new-spring-fiction.html
+
+**Biden Has a Ways to Go on That Manufacturing Renaissance**\
+`His boosterism about factory jobs is backed by policy, but not yet strong results.`\
+https://nytimes.com/2024/03/11/opinion/biden-economy-manufacturing-jobs.html
+
 **An Old Trick to the Crispiest Tofu**\
 `Why fry when you can freeze?`\
 https://nytimes.com/2024/03/11/dining/how-to-make-crispy-tofu.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/11/climate/tiny-forest-roosevelt-island.html
 **Biden’s budget kicks off a long and likely painful process on Capitol Hill.**\
 `In theory, funding the government takes place in two major stages. But it’s a fraught and complicated process; here’s a step-by-step guide.`\
 https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/bidens-budget-kicks-off-a-long-and-likely-painful-process-on-capitol-hill
-
-**Confronted by an Angry Moose? Here’s What to Do.**\
-`Moose are ordinarily docile animals. The chances of having to defend yourself against one in the wild are slim, but not zero.`\
-https://nytimes.com/2024/03/11/us/moose-encounter-what-to-do.html
-
-**Biden proposes hiring thousands of Border Patrol agents and asylum officers.**\
-`By Zolan Kanno-Youngs`\
-https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/biden-proposes-hiring-thousands-of-border-patrol-agents-and-asylum-officers
-
-**Torn Between Golden Past and Thorny Present, Oscars Still Had Some Fun**\
-`Even as the telecast indulged in the usual jokes, references to the 2023 strikes and current wars had their place, in our critics’ view.`\
-https://nytimes.com/2024/03/11/movies/academy-awards-oscars-critics.html
 
