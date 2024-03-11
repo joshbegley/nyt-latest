@@ -1,3 +1,11 @@
+**Why Democrats Are Hopeful in North Carolina and Nervous in Georgia**\
+`President Biden’s campaign and its allies are targeting both battlegrounds — but only one state has a highly controversial Republican nominee lower on the ballot.`\
+https://nytimes.com/2024/03/11/us/politics/biden-trump-north-carolina-georgia.html
+
+**Biden budget calls for expanding price negotiations for more drugs.**\
+`By Margot Sanger-Katz`\
+https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/biden-budget-calls-for-expanding-price-negotiations-for-more-drugs
+
 **What an Oscar for ‘20 Days in Mariupol’ Reveals About Hollywood**\
 `Where cinema is made and what language it speaks is not what defines its influence.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/oscars-best-documentary
