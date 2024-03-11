@@ -1,3 +1,19 @@
+**Navigating Israeli Restrictions, Many Palestinians Find It Hard to Reach Al Aqsa**\
+`Muslim access to the mosque compound has long been a point of contention as Israel has exerted tighter control.`\
+https://nytimes.com/2024/03/11/world/middleeast/palestinians-al-aqsa-mosque-ramadan.html
+
+**Ukraine Could Deploy F-16s as Soon as July, but Only a Few**\
+`Countries promised the fighter jets last year, but delivering them and training pilots have proved complex. Ukraine may start with as few as six, out of about 45 pledged.`\
+https://nytimes.com/2024/03/11/world/europe/ukraine-f16-pilots.html
+
+**A Dutch Quandary Offers a Glimpse of a Deepening Problem for Europe**\
+`The ascent of Geert Wilders has vexed parties struggling with how to work with a far-right leader too popular to shun. It’s a puzzle bigger than the Netherlands.`\
+https://nytimes.com/2024/03/11/world/europe/geert-wilders-dutch-election-politics.html
+
+**How the Wait for Olympic Medals Became an Endurance Sport**\
+`Doping rules, legal challenges and endless appeals have left some medalists waiting (and waiting) for their golds.`\
+https://nytimes.com/2024/03/11/world/europe/olympic-medals-paris-2024.html
+
 **Jimmy Kimmel Jabbed Back at Donald Trump During the Oscars**\
 `Yes, that was a real post by the former president.`\
 https://nytimes.com/2024/03/10/movies/trump-kimmel-oscars.html
