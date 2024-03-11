@@ -1,3 +1,7 @@
+**Tuesday Briefing: U.S. Moves to Crack Down on TikTok**\
+`Also, uproar about a retouched royal photo and an Oscars recap.`\
+https://nytimes.com/2024/03/11/world/asia/tiktok-trump-kate-photo-asia.html
+
 **Israel struck an area used by a high-ranking Hamas commander, a military spokesman says.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israel-struck-an-area-used-by-a-high-ranking-hamas-commander-a-military-spokesman-says
