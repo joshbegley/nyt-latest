@@ -1,8 +1,12 @@
+**Could Trump Save TikTok?**\
+`The former president targeted the platform while in office but has now come out against a bill that could ban the short video app in the U.S.`\
+https://nytimes.com/2024/03/11/business/dealbook/trump-tiktok-ban.html
+
 **My Children Helped Me Remember How to Fly**\
 `The best present I have ever received is that my grown children still want to play with me.`\
 https://nytimes.com/2024/03/11/crosswords/children-family-video-games.html
 
-**Israeli police officers blocked many Palestinians from entering Al Aqsa Mosque at the start of Ramadan, video shows.**\
+**Israeli police officers blocked many Palestinians from Al Aqsa Mosque at the start of Ramadan, video shows.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israeli-police-officers-blocked-many-palestinians-from-entering-al-aqsa-mosque-at-the-start-of-ramadan-video-shows
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/movies/oscars-best-worst.html
 **Why Does Ramadan Start at Different Times in Different Places?**\
 `The exact start date of Islam’s holiest month depends on when local Islamic authorities declare the sighting of the new moon.`\
 https://nytimes.com/2024/03/11/world/middleeast/ramadan-moon-sighting.html
-
-**Food Shortages Overshadow Ramadan in Gaza**\
-`The war and hunger have cast a somber tone over this year’s holy month as people struggle to find affordable essentials to celebrate.`\
-https://nytimes.com/video/world/middleeast/100000009355030/gaza-ramadan-market-rafah.html
 
