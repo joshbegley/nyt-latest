@@ -1,3 +1,11 @@
+**‘Even without Ramadan, we are fasting.’ In Gaza, people brace for a holiday of hardship.**\
+`By Raja Abdulrahim and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/even-without-ramadan-we-are-fasting-in-gaza-people-brace-for-a-holiday-of-hardship
+
+**11mideast-crisis**\
+`Ramadan Begins as Hunger and Fear Stalk Gaza`\
+https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news
+
 **To Fix a Housing Crisis, New York Leaders Seek to Revive a 1950s Idea**\
 `State Democrats are set to propose a series of ideas to address affordability and a lack of new homes. Some of the ideas are new. And some are very, very old.`\
 https://nytimes.com/2024/03/11/nyregion/housing-crisis-new-york-senate-mitchell-lama.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/11/crosswords/connections-companion.html
 **Word of the Day: colossal**\
 `This word has appeared in 217 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/11/learning/word-of-the-day-colossal.html
-
-**Quotation of the Day: Gang Uprising Is Aggravating Crisis in Haiti**\
-`Quotation of the Day for Monday, March 11, 2024.`\
-https://nytimes.com/2024/03/11/pageoneplus/quotation-of-the-day-gang-uprising-is-aggravating-crisis-in-haiti.html
-
-**Monday Briefing**\
-`Biden and Netanyahu clash over Gaza.`\
-https://nytimes.com/2024/03/11/briefing/gaza-biden-netanyahu-oscars.html
 
