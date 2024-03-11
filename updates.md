@@ -1,3 +1,7 @@
+**Ryan Gosling performs ‘Just Ken.’**\
+`By Esther Zuckerman`\
+https://nytimes.com/2024/03/10/movies/ryan-gosling-just-ken-oscars.html
+
 **A short film wins Wes Anderson his first Oscar.**\
 `By Marc Tracy`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/a-short-film-wins-wes-anderson-his-first-oscar
