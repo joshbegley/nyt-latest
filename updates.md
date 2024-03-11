@@ -1,3 +1,7 @@
+**Israel’s military lightly rebukes a general for a demolition at a university in Gaza.**\
+`By Matthew Mpoke Bigg and Adam Rasgon`\
+https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israels-military-lightly-rebukes-a-general-for-a-demolition-at-a-university-in-gaza
+
 **Tuesday Briefing: U.S. Moves to Crack Down on TikTok**\
 `Also, uproar about a retouched royal photo and an Oscars recap.`\
 https://nytimes.com/2024/03/11/world/asia/tiktok-trump-kate-photo-asia.html

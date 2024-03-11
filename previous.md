@@ -1,3 +1,7 @@
+**Israel’s military lightly rebukes a general for a demolition at a university in Gaza.**\
+`By Matthew Mpoke Bigg and Adam Rasgon`\
+https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israels-military-lightly-rebukes-a-general-for-a-demolition-at-a-university-in-gaza
+
 **Tuesday Briefing: U.S. Moves to Crack Down on TikTok**\
 `Also, uproar about a retouched royal photo and an Oscars recap.`\
 https://nytimes.com/2024/03/11/world/asia/tiktok-trump-kate-photo-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/business/economy/nlrb-joint-employer-court-ruling
 **NYC Restaurant Sheds Are Here to Stay. Here Are the New Guidelines.**\
 `The city’s Department of Transportation issued new rules for Dining Out NYC, its official program, and more food news.`\
 https://nytimes.com/2024/03/11/dining/nyc-dining-sheds-guidelines.html
-
-**Trump Mentions Cutting Entitlements, and Biden Pounces**\
-`Donald Trump’s campaign said he “will continue to strongly protect Social Security and Medicare in his second term,” clarifying more ambiguous comments in a CNBC interview.`\
-https://nytimes.com/2024/03/11/us/politics/trump-mentions-cutting-entitlements-and-biden-pounces.html
 
