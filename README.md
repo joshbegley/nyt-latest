@@ -4,7 +4,7 @@ https://nytimes.com/2024/03/11/books/malachy-mccourt-dead.html
 
 **Oscar Glory for ‘Oppenheimer’ Rewards Studio Chief’s Vision**\
 `Under Donna Langley’s leadership, Universal has managed the rare feat of achieving creative dominance and commercial supremacy at the same time.`\
-https://nytimes.com/2024/03/11/arts/donna-langley-universal-oppenheimer.html
+https://nytimes.com/2024/03/11/movies/donna-langley-universal-oppenheimer.html
 
 **The Woman Who Tried to Make Porn Safe for Feminism**\
 `How the archive of Candida Royalle, a porn star turned pioneering director, landed at Harvard — and inspired a new book challenging the conventional history of the sexual revolution.`\
