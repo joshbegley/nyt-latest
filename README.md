@@ -1,3 +1,7 @@
+**Israeli police officers blocked many Palestinians from entering Al Aqsa Mosque at the start of Ramadan, video shows.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israeli-police-officers-blocked-many-palestinians-from-entering-al-aqsa-mosque-at-the-start-of-ramadan-video-shows
+
 **Princess Catherine Apologizes, Saying She Edited Image**\
 `A Mother’s Day portrait of Catherine, Princess of Wales, with her three children was withdrawn by several news agencies on Sunday over concerns it had been digitally altered.`\
 https://nytimes.com/2024/03/11/world/europe/princess-kate-middleton-photo-edit-apology.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009355030/gaza-ramadan-market-r
 **Biden Budget Will Underscore Divide With Republicans and Trump**\
 `The president’s fiscal 2025 budget proposal includes about $3 trillion in deficit reduction over a decade, largely from raising taxes on high earners and corporations.`\
 https://nytimes.com/2024/03/11/us/politics/biden-budget-will-underscore-divide-with-republicans-and-trump.html
-
-**In Death Penalty Cases, a Texas Court Tests the Supreme Court’s Patience**\
-`The Texas Court of Criminal Appeals, one law professor said, treats Supreme Court rulings as “optional guideposts rather than the commands of a higher tribunal.”`\
-https://nytimes.com/2024/03/11/us/supreme-court-texas-death-penalty.html
 
