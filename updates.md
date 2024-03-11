@@ -1,3 +1,7 @@
+**Cillian Murphy: Get to Know the New Oscar Winner’s Work**\
+`“Oppenheimer” wasn’t the first time he’s played a physicist. In “Sunshine,” “28 Days Later” and more, you can get a sense of just how wide his range is.`\
+https://nytimes.com/2024/03/11/movies/cillian-murphy-oscar-streaming.html
+
 **Biden Plan Would Raise Taxes on Corporations and the Wealthy**\
 `The proposals in President Biden’s budget plan, including the tax increases, project to reduce deficits by about $3 trillion over a decade.`\
 https://nytimes.com/video/us/politics/100000009356315/biden-budget-plan-taxes.html
