@@ -1,3 +1,11 @@
+**Malachy McCourt, Actor, Memoirist and Gadabout, Dies at 92**\
+`Playing the professional Irishman, he returned from Limerick to New York where he tended bar and appeared in soap operas and, with his family, scattered “Angela’s Ashes.”`\
+https://nytimes.com/2024/03/11/books/malachy-mccourt-dead.html
+
+**Oscar Glory for ‘Oppenheimer’ Rewards Studio Chief’s Vision**\
+`Under Donna Langley’s leadership, Universal has managed the rare feat of achieving creative dominance and commercial supremacy at the same time.`\
+https://nytimes.com/2024/03/11/arts/donna-langley-universal-oppenheimer.html
+
 **The Woman Who Tried to Make Porn Safe for Feminism**\
 `How the archive of Candida Royalle, a porn star turned pioneering director, landed at Harvard — and inspired a new book challenging the conventional history of the sexual revolution.`\
 https://nytimes.com/2024/03/11/arts/candida-royalle-jane-kamensky.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/11/us/2024-election-trump-biden/the-general-ele
 **The British Royal Family: A Timeline of the Last Few Months**\
 `It’s been a busy few months for King Charles III and his family. There have been surgeries, health announcements, and one family photograph people can’t stop talking about.`\
 https://nytimes.com/2024/03/11/world/europe/princess-kate-middleton-royal-family-timeline.html
-
-**Swiss Rescuers Find Bodies of Five Missing Skiers**\
-`The police said weather conditions had deteriorated after the group set out from the town of Zermatt over the weekend. The search continued for a sixth person.`\
-https://nytimes.com/2024/03/11/world/europe/swiss-alps-skiers-missing.html
-
-**Kim Kardashian, Sydney Sweeney and Serena Williams at theVanity Fair Oscar Party**\
-`The magazine welcomed the famous (and the fame-adjacent) while toasting itself for hosting the extravaganza 30 times over the years.`\
-https://nytimes.com/2024/03/11/style/oscars-vanity-fair-party.html
 
