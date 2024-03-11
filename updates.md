@@ -1,3 +1,11 @@
+**Inside Vanity Fair’s Oscars Party**\
+`The magazine welcomed the famous (and the fame-adjacent) while toasting itself for hosting the extravaganza 30 times over the years.`\
+https://nytimes.com/2024/03/11/style/oscars-vanity-fair-party.html
+
+**Inside the Governors Ball 2024 Oscars Party**\
+`Emma Stone and Christopher Nolan were among the winners celebrating at the official after-party of the Academy Awards.`\
+https://nytimes.com/2024/03/11/movies/oscars-governors-ball.html
+
 **California’s Economy Has Been Pinched by Unemployment**\
 `The Golden State’s jobless rate remains stubbornly high.`\
 https://nytimes.com/2024/03/11/us/california-economy-unemployment.html
