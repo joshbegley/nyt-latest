@@ -1,6 +1,10 @@
+**Biden Plan Would Raise Taxes on Corporations and the Wealthy**\
+`The proposals in President Biden’s budget plan, including the tax increases, project to reduce deficits by about $3 trillion over a decade.`\
+https://nytimes.com/video/us/politics/100000009356315/biden-budget-plan-taxes.html
+
 **Even Photoshop Can’t Erase Royals’ Latest P.R. Blemish**\
 `A Mother’s Day photo was meant to douse speculation about the Princess of Wales’ health. It did the opposite — and threatened to undermine trust in the royal family.`\
-https://nytimes.com/2024/03/11/world/europe/catherine-princess-of-wales-photo.html
+https://nytimes.com/2024/03/11/world/europe/kate-middleton-photo-princess-wales.html
 
 **Wegovy Moves Beyond Weight Loss**\
 `The F.D.A. has approved a new use for heart health that will fuel even more demand for the drug.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/us/politics/marcia-fudge-hud-resigns.html
 **When Cicadas Emerge, Things Might Get a Little Wet**\
 `A new study reveals that cicadas can discharge urine with far more force than their size would suggest. This spring’s  output could be significant.`\
 https://nytimes.com/2024/03/11/science/cicadas-pee-stream.html
-
-**Deadspin Sells to European Media Company, Leaving Staff Behind**\
-`The new owner, Lineup Publishing, will not be bringing on any of the sports website’s existing staff members.`\
-https://nytimes.com/2024/03/11/business/media/deadspin-sells-layoffs.html
 

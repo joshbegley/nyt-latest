@@ -1,3 +1,11 @@
+**Biden Plan Would Raise Taxes on Corporations and the Wealthy**\
+`The proposals in President Biden’s budget plan, including the tax increases, project to reduce deficits by about $3 trillion over a decade.`\
+https://nytimes.com/video/us/politics/100000009356315/biden-budget-plan-taxes.html
+
+**Even Photoshop Can’t Erase Royals’ Latest P.R. Blemish**\
+`A Mother’s Day photo was meant to douse speculation about the Princess of Wales’ health. It did the opposite — and threatened to undermine trust in the royal family.`\
+https://nytimes.com/2024/03/11/world/europe/kate-middleton-photo-princess-wales.html
+
 **Trump Mentions Cutting Entitlements, and Biden Pounces**\
 `Donald Trump’s campaign said he “will continue to strongly protect Social Security and Medicare in his second term,” clarifying more ambiguous comments in a CNBC interview.`\
 https://nytimes.com/2024/03/11/us/politics/trump-mentions-cutting-entitlements-and-biden-pounces.html
