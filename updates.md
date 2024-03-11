@@ -1,3 +1,7 @@
+**California’s Economy Has Been Pinched by Unemployment**\
+`The Golden State’s jobless rate remains stubbornly high.`\
+https://nytimes.com/2024/03/11/us/california-economy-unemployment.html
+
 **Israeli police officers blocked many Palestinians from Al Aqsa Mosque at the start of Ramadan, videos show.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israeli-police-officers-blocked-many-palestinians-from-entering-al-aqsa-mosque-at-the-start-of-ramadan-video-shows
