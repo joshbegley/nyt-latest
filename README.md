@@ -1,3 +1,11 @@
+**The Price of a Very Royal Scandal**\
+`The royal family’s foothold has grown so fragile that they no longer have room for error.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/kate-middleton-photoshop-controversy
+
+**The Big Debate Over Retirement Benefits Officially Begins**\
+`Trump and Biden could not be further apart when it comes to Social Security and Medicare.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/trump-biden-medicare-social-security
+
 **Legal Settlement Clarifies Reach of Florida’s ‘Don’t Say Gay’ Law**\
 `The law will stay on the books, but the settlement makes clear it that does not ban classroom references to L.G.B.T.Q. people, including in literature and class discussions.`\
 https://nytimes.com/2024/03/11/us/florida-dont-say-gay-law-settlement.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israel-stru
 **A Conservative Court Rebukes Republican Censorship**\
 `Earlier this month, classical liberals prevailed again.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/republican-censorship-ruling
-
-**Cillian Murphy: Get to Know the New Oscar Winner’s Work**\
-`“Oppenheimer” wasn’t the first time he’s played a physicist. In “Sunshine,” “28 Days Later” and more, you can get a sense of just how wide his range is.`\
-https://nytimes.com/2024/03/11/movies/cillian-murphy-oscar-streaming.html
-
-**Biden Plan Would Raise Taxes on Corporations and the Wealthy**\
-`The proposals in President Biden’s budget plan, including the tax increases, project to reduce deficits by about $3 trillion over a decade.`\
-https://nytimes.com/video/us/politics/100000009356315/biden-budget-plan-taxes.html
 
