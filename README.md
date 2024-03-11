@@ -1,6 +1,6 @@
 **Highlights From the 2024 Oscars**\
 `The biopic “Oppenheimer” was showered with honors, and the race for best actress culminated in a second Oscar for Emma Stone.`\
-https://nytimes.com/video/movies/100000009354996/oscars-behind-the-reporting.html
+https://nytimes.com/video/movies/100000009354996/oscars-2024-highlights-oppenheimer.html
 
 **‘Even without Ramadan, we are fasting.’ In Gaza, people brace for a holiday of hardship.**\
 `By Raja Abdulrahim and Rawan Sheikh Ahmad`\
