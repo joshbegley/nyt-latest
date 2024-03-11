@@ -1,3 +1,7 @@
+**Trump Mentions Cutting Entitlements, and Biden Pounces**\
+`Donald Trump’s campaign said he “will continue to strongly protect Social Security and Medicare in his second term,” clarifying more ambiguous comments in a CNBC interview.`\
+https://nytimes.com/live/2024/03/11/us/2024-election-trump-biden/trump-mentions-cutting-entitlements-and-biden-pounces
+
 **Oscar Highlights: The Good, the Ken and the Naked**\
 `Our movie critic looks back on the Academy Awards.`\
 https://nytimes.com/2024/03/11/podcasts/culture-desk-oscars-highlights-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/opinion/biden-economy-manufacturing-jobs.html
 **An Old Trick to the Crispiest Tofu**\
 `Why fry when you can freeze?`\
 https://nytimes.com/2024/03/11/dining/how-to-make-crispy-tofu.html
-
-**American Man Sentenced to Life After Killing Woman at German Castle**\
-`The U.S. citizen attacked two women, also Americans, near Germany’s iconic Neuschwanstein Castle, and attempted to push both of them to their deaths, a court found. One was killed, the other survived.`\
-https://nytimes.com/2024/03/11/world/europe/germany-american-murder-neuschwanstein-castle.html
 
