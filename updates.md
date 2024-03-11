@@ -1,3 +1,19 @@
+**What’s So Funny About a Naked Man?**\
+`John Cena’s skit at the Academy Awards underscores an intractable gender imbalance, even as it gets legitimate laughs.`\
+https://nytimes.com/2024/03/10/style/john-cena-naked-men-oscars.html
+
+**Once Again, Thank God for ‘Barbie’**\
+`Once again, the movie industry had the film to thank for some respite from its all-too-common pablum.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/ken-oscars-barbie
+
+**‘My eyes see “Oppenheimer”’: Al Pacino’s awkward best picture announcement.**\
+`By Matt Stevens`\
+https://nytimes.com/2024/03/10/movies/al-pacino-oscars-best-picture-oppenheimer.html
+
+**Cillian Murphy Wins His First Oscar, Best Actor for ‘Oppenheimer’**\
+`Murphy, who was nominated for the first time, portrayed the physicist J. Robert Oppenheimer in the Christopher Nolan film.`\
+https://nytimes.com/2024/03/10/movies/cillian-murphy-oscar-oppenheimer.html
+
 **Cillian Murphy wins his first Oscar, best actor for ‘Oppenheimer.’**\
 `By Christopher Kuo`\
 https://nytimes.com/2024/03/10/movies/cillian-murphy-oscar-oppenheimer.html
