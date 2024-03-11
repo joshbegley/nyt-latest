@@ -1,3 +1,11 @@
+**Morgan Wallen, With Latest No. 1, Tops a Garth Brooks Record**\
+`Wallen’s “One Thing at a Time” notches its 19th week atop the all-genre Billboard 200 chart a year after its release.`\
+https://nytimes.com/2024/03/11/arts/music/morgan-wallen-billboard-record-country.html
+
+**Trump Gives Rambling Answer on Why He Backtracked on a TikTok Ban**\
+`Donald Trump told CNBC that banning TikTok would make young people “go crazy” and could benefit Facebook, which he called an “enemy of the people.”`\
+https://nytimes.com/2024/03/11/us/politics/trump-tiktok-ban-cnbc.html
+
 **Malachy McCourt, Actor, Memoirist and Gadabout, Dies at 92**\
 `Playing the professional Irishman, he returned from Limerick to New York, where he tended bar, appeared in soap operas, wrote a best seller, and, with his family, scattered “Angela’s Ashes.”`\
 https://nytimes.com/2024/03/11/books/malachy-mccourt-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/05/opinion/thepoint/oscars-hollywood-success
 **U. of Texas at Austin Will Return to Standardized Test Requirement**\
 `The university said SAT and ACT scores help it place students in programs that fit them best.`\
 https://nytimes.com/2024/03/11/us/ut-austin-standardized-test-admission.html
-
-**The general election is set. Welcome to the next 8 months.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/03/11/us/2024-election-trump-biden/the-general-election-is-set-welcome-to-the-next-8-months
-
-**The British Royal Family: A Timeline of the Last Few Months**\
-`It’s been a busy few months for King Charles III and his family. There have been surgeries, health announcements, and one family photograph people can’t stop talking about.`\
-https://nytimes.com/2024/03/11/world/europe/princess-kate-middleton-royal-family-timeline.html
 
