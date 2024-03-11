@@ -1,3 +1,7 @@
+**Best and Worst Moments From the 2024 Oscars**\
+`In a fairly even-keeled night, emotions still ran high, whether it was the rush of “I’m Just Ken” or heartfelt words from Rita Moreno to America Ferrera.`\
+https://nytimes.com/2024/03/11/movies/oscars-best-worst.html
+
 **Why Does Ramadan Start at Different Times in Different Places?**\
 `The exact start date of Islam’s holiest month depends on when local Islamic authorities declare the sighting of the new moon.`\
 https://nytimes.com/2024/03/11/world/middleeast/ramadan-moon-sighting.html

@@ -1,3 +1,7 @@
+**Best and Worst Moments From the 2024 Oscars**\
+`In a fairly even-keeled night, emotions still ran high, whether it was the rush of “I’m Just Ken” or heartfelt words from Rita Moreno to America Ferrera.`\
+https://nytimes.com/2024/03/11/movies/oscars-best-worst.html
+
 **Why Does Ramadan Start at Different Times in Different Places?**\
 `The exact start date of Islam’s holiest month depends on when local Islamic authorities declare the sighting of the new moon.`\
 https://nytimes.com/2024/03/11/world/middleeast/ramadan-moon-sighting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/opinion/trump-supreme-court-jack-smith.html
 **And the Award for Best Performance at the State of the Union Goes to …**\
 `Did Biden change anyone’s mind? And can he maintain the momentum?`\
 https://nytimes.com/2024/03/11/opinion/biden-trump-state-union.html
-
-**‘Huck Finn’ Is a Masterpiece. This Retelling Just Might Be, Too.**\
-`Percival Everett’s new novel amends Mark Twain’s classic tale with the enslaved sidekick, Jim, at its center.`\
-https://nytimes.com/2024/03/11/books/review/percival-everett-james.html
 
