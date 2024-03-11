@@ -1,3 +1,7 @@
+**The Israel-Hamas war is mentioned in a speech by the ‘Zone of Interest’ director.**\
+`By Matt Stevens`\
+https://nytimes.com/2024/03/10/movies/the-israel-hamas-war-is-mentioned-in-a-speech-by-the-zone-of-interest-director.html
+
 **‘Dead Outlaw’ Review: Not Much of a Bandit, but What a Corpse**\
 `The creators of “The Band’s Visit” return with this mischievous ghost story of a musical based on an odd slice of Old West history.`\
 https://nytimes.com/2024/03/10/theater/dead-outlaw-review.html
