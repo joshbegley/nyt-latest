@@ -1,3 +1,7 @@
+**A new generation of abortion voters**\
+`Plus: Trump flips on a TikTok ban.`\
+https://nytimes.com/2024/03/11/us/politics/abortion-trump-tiktok.html
+
 **The Price of a Very Royal Scandal**\
 `The royal family’s foothold has grown so fragile that they no longer have room for error.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/kate-middleton-photoshop-controversy
