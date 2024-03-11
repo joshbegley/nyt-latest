@@ -1,3 +1,7 @@
+**A Conservative Court Rebukes Republican Censorship**\
+`Earlier this month, classical liberals prevailed again.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/republican-censorship-ruling
+
 **Cillian Murphy: Get to Know the New Oscar Winner’s Work**\
 `“Oppenheimer” wasn’t the first time he’s played a physicist. In “Sunshine,” “28 Days Later” and more, you can get a sense of just how wide his range is.`\
 https://nytimes.com/2024/03/11/movies/cillian-murphy-oscar-streaming.html
