@@ -1,4 +1,4 @@
-**Princess Catherine Apologizes for Editing Photo and Creating ‘Confusion’**\
+**Princess Catherine Apologizes, Saying She Edited Image**\
 `A Mother’s Day portrait of Catherine, Princess of Wales, with her three children was withdrawn by several news agencies on Sunday over concerns it had been digitally altered.`\
 https://nytimes.com/2024/03/11/world/europe/princess-kate-middleton-photo-edit-apology.html
 
