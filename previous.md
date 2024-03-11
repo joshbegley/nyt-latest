@@ -26,7 +26,7 @@ https://nytimes.com/2024/03/11/movies/oscars-best-worst.html
 `The exact start date of Islam’s holiest month depends on when local Islamic authorities declare the sighting of the new moon.`\
 https://nytimes.com/2024/03/11/world/middleeast/ramadan-moon-sighting.html
 
-**‘No Ramadan Atmosphere’: Gazans Shop for Feasts**\
+**Food Shortages Overshadow Ramadan in Gaza**\
 `The war and hunger have cast a somber tone over this year’s holy month as people struggle to find affordable essentials to celebrate.`\
 https://nytimes.com/video/world/middleeast/100000009355030/gaza-ramadan-market-rafah.html
 
