@@ -24,7 +24,7 @@ https://nytimes.com/2024/03/10/movies/emma-stone-oscars-poor-things.html
 
 **Oscars’ In Memoriam Segment Honors Aleksei Navalny, Among Film Greats**\
 `Before paying tribute to the industry figures who died in the past year, a clip of the Russian opposition leader played as an introduction to the segment.`\
-https://nytimes.com/2024/03/10/movies/oscars-in-memoriam-navalny.html
+https://nytimes.com/2024/03/10/movies/oscars-in-memoriam-navalny-bocelli.html
 
 **Cillian Murphy Wins His First Oscar, Best Actor for ‘Oppenheimer’**\
 `Murphy, who was nominated for the first time, portrayed the physicist J. Robert Oppenheimer in the Christopher Nolan film.`\
