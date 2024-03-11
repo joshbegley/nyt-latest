@@ -1,3 +1,7 @@
+**When Oscar Winners Have a Bigger Point to Make**\
+`Tonight, I was both struck and moved by the two big political speeches at the ceremony so far.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/oscars-war-speech-gaza-ukraine
+
 **Wait, Were Those Shoulder Straps Floating?**\
 `A sculptural element on Emily Blunt and Florence Pugh raised some eyebrows.`\
 https://nytimes.com/2024/03/10/style/emily-blunt-florence-pugh-oscars.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/robert-downey-j
 **‘Dead Outlaw’ Review: Not Much of a Bandit, but What a Corpse**\
 `The creators of “The Band’s Visit” return with this mischievous ghost story of a musical based on an odd slice of Old West history.`\
 https://nytimes.com/2024/03/10/theater/dead-outlaw-review.html
-
-**Scientists Discover 100 New Marine Species in New Zealand**\
-`The findings, from the largely uncharted waters of Bounty Trough, show that “we’ve got a long way to go in terms of understanding where life is found in the ocean,” a researcher said.`\
-https://nytimes.com/2024/03/10/science/new-species-sea-discovery.html
 
