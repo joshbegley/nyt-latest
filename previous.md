@@ -1,3 +1,7 @@
+**Jimmy Kimmel Jabbed Back at Donald Trump During the Oscars**\
+`Yes, that was a real post by the former president.`\
+https://nytimes.com/2024/03/10/movies/trump-kimmel-oscars.html
+
 **19 Looks That Did the Most at the Oscars**\
 `The red carpet at the Academy Awards had elegant, over-the-top and even political fashion. These were the best (and the not-so-best) outfits.`\
 https://nytimes.com/2024/03/10/style/oscars-fashion-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/movies/oscars-in-memoriam-navalny-bocelli.html
 **Cillian Murphy Wins His First Oscar, Best Actor for ‘Oppenheimer’**\
 `Murphy, who was nominated for the first time, portrayed the physicist J. Robert Oppenheimer in the Christopher Nolan film.`\
 https://nytimes.com/2024/03/10/movies/cillian-murphy-oscar-oppenheimer.html
-
-**Ukrainian Director Says He’d Rather Have No Oscar and No War**\
-`‘20 Days in Mariupol,’ Mstyslav Chernov’s harrowing first-person account from the early days of Russia’s invasion, won for best documentary feature.`\
-https://nytimes.com/2024/03/10/movies/20-days-in-mariupol-ukraine-oscars.html
 

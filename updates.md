@@ -1,3 +1,7 @@
+**Jimmy Kimmel Jabbed Back at Donald Trump During the Oscars**\
+`Yes, that was a real post by the former president.`\
+https://nytimes.com/2024/03/10/movies/trump-kimmel-oscars.html
+
 **19 Looks That Did the Most at the Oscars**\
 `The red carpet at the Academy Awards had elegant, over-the-top and even political fashion. These were the best (and the not-so-best) outfits.`\
 https://nytimes.com/2024/03/10/style/oscars-fashion-2024.html
