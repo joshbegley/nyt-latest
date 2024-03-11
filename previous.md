@@ -1,3 +1,7 @@
+**The Fourth Anniversary of the Covid Pandemic**\
+`And where things stand today.`\
+https://nytimes.com/2024/03/11/briefing/covid-pandemic-anniversary.html
+
 **Biden and Netanyahu at Odds Over Gaza, and Catherine’s Palace Photo Fans Rumors**\
 `Plus, highlights from last night’s Oscars`\
 https://nytimes.com/2024/03/11/podcasts/biden-netanyahu-gaza-princess-catherine-oscars.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-steps-reelection
 **On the Wild Intoxications of Spring**\
 `My happiness is twofold. Spring is here! But also: Thank God it didn’t come too terribly early this year.`\
 https://nytimes.com/2024/03/11/opinion/anthropocene-spring-backyard-census.html
-
-**Surprise: An ‘Extraterrestrial’ Gadget Was Something More Familiar**\
-`In 2014 a fireball from outer space was posited to be an alien artifact. A recent study suggests otherwise.`\
-https://nytimes.com/2024/03/11/science/meteor-avi-loeb.html
 

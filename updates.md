@@ -1,3 +1,7 @@
+**The Fourth Anniversary of the Covid Pandemic**\
+`And where things stand today.`\
+https://nytimes.com/2024/03/11/briefing/covid-pandemic-anniversary.html
+
 **Biden and Netanyahu at Odds Over Gaza, and Catherine’s Palace Photo Fans Rumors**\
 `Plus, highlights from last night’s Oscars`\
 https://nytimes.com/2024/03/11/podcasts/biden-netanyahu-gaza-princess-catherine-oscars.html
