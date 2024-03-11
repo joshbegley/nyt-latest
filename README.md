@@ -4,7 +4,7 @@ https://nytimes.com/2024/03/10/style/emily-blunt-florence-pugh-oscars.html
 
 **‘What Was I Made For?’ wins Billie Eilish (and ‘Barbie’) an Oscar.**\
 `By Matt Stevens`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/what-was-i-made-for-wins-billie-eilish-and-barbie-an-oscar
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/what-was-i-made-for-oscar
 
 **Ryan Gosling Delivers a ‘Just Ken’ Spectacle at the Oscars**\
 `In one of the evening’s most anticipated performances, Gosling and dozens of dancers went over the top and even brought out Slash for a cameo on guitar.`\
