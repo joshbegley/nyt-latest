@@ -1,3 +1,7 @@
+**‘Strong Movement’ on Flight to New Zealand Leaves Dozens Injured**\
+`The airline, Latam, said a “technical problem” had caused the incident. Most of the injuries were minor, but one person was in serious condition.`\
+https://nytimes.com/2024/03/11/world/australia/auckland-sydney-flight-latam.html
+
 **Highlights From the 2024 Oscars**\
 `The biopic “Oppenheimer” was showered with honors, and the race for best actress culminated in a second Oscar for Emma Stone.`\
 https://nytimes.com/video/movies/100000009354996/oscars-2024-highlights-oppenheimer.html
