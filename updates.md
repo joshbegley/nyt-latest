@@ -1,3 +1,7 @@
+**U. of Texas at Austin Will Return to Standardized Test Requirement**\
+`The university said SAT and ACT scores help it place students in programs that fit them best.`\
+https://nytimes.com/2024/03/11/us/ut-austin-standardized-test-admission.html
+
 **The general election is set. Welcome to the next 8 months.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/03/11/us/2024-election-trump-biden/the-general-election-is-set-welcome-to-the-next-8-months
