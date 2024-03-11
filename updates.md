@@ -1,3 +1,15 @@
+**How the A.I. That Drives ChatGPT Will Move Into the Physical World**\
+`Covariant, a robotics start-up, is designing technology that lets robots learn skills much like chatbots do.`\
+https://nytimes.com/2024/03/11/technology/ai-robots-technology.html
+
+**The Challenges of Teaching Constitutional Law Today**\
+`Readers discuss an Opinion piece about a politicized Supreme Court. Also: Trump’s mockery of Biden; fans of the president; alcoholism; great literature.`\
+https://nytimes.com/2024/03/11/opinion/teaching-constitutional-law.html
+
+**Pamela Anderson Still Isn’t Wearing Makeup**\
+`A new campaign for the denim brand Re/Done shows the actress in the barefaced look she has embraced in Hollywood and at fashion week.`\
+https://nytimes.com/2024/03/11/style/pamela-anderson-no-makeup-vanity-fair.html
+
 **Do You Know These Pulitzer-Winning Women and Their Books?**\
 `Try this short quiz to test your literary knowledge — and get a few reading suggestions along the way.`\
 https://nytimes.com/interactive/2024/03/11/books/review/pulitzer-prize-women.html

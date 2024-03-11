@@ -1,3 +1,15 @@
+**How the A.I. That Drives ChatGPT Will Move Into the Physical World**\
+`Covariant, a robotics start-up, is designing technology that lets robots learn skills much like chatbots do.`\
+https://nytimes.com/2024/03/11/technology/ai-robots-technology.html
+
+**The Challenges of Teaching Constitutional Law Today**\
+`Readers discuss an Opinion piece about a politicized Supreme Court. Also: Trump’s mockery of Biden; fans of the president; alcoholism; great literature.`\
+https://nytimes.com/2024/03/11/opinion/teaching-constitutional-law.html
+
+**Pamela Anderson Still Isn’t Wearing Makeup**\
+`A new campaign for the denim brand Re/Done shows the actress in the barefaced look she has embraced in Hollywood and at fashion week.`\
+https://nytimes.com/2024/03/11/style/pamela-anderson-no-makeup-vanity-fair.html
+
 **Do You Know These Pulitzer-Winning Women and Their Books?**\
 `Try this short quiz to test your literary knowledge — and get a few reading suggestions along the way.`\
 https://nytimes.com/interactive/2024/03/11/books/review/pulitzer-prize-women.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/11/us/politics/trump-tiktok-ban-cnbc.html
 **Malachy McCourt, Actor, Memoirist and Gadabout, Dies at 92**\
 `Playing the professional Irishman, he returned from Limerick to New York, where he tended bar, appeared in soap operas, wrote a best seller, and, with his family, scattered “Angela’s Ashes.”`\
 https://nytimes.com/2024/03/11/books/malachy-mccourt-dead.html
-
-**Oscar Glory for ‘Oppenheimer’ Rewards Studio Chief’s Vision**\
-`Under Donna Langley’s leadership, Universal has managed the rare feat of achieving creative dominance and commercial supremacy at the same time.`\
-https://nytimes.com/2024/03/11/movies/donna-langley-universal-oppenheimer.html
-
-**The Woman Who Tried to Make Porn Safe for Feminism**\
-`How the archive of Candida Royalle, a porn star turned pioneering director, landed at Harvard — and inspired a new book challenging the conventional history of the sexual revolution.`\
-https://nytimes.com/2024/03/11/arts/candida-royalle-jane-kamensky.html
-
-**Pantry-Friendly Persian Lentil Rice With Dates**\
-`More weeknight dishes that wow: herby pork larb, sticky chicken with brussels sprouts and shrimp in purgatory.`\
-https://nytimes.com/2024/03/11/dining/pantry-friendly-persian-lentil-rice-with-dates.html
 
