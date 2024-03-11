@@ -1,3 +1,11 @@
+**Trump’s Biden Mockery Upsets People Who Stutter: ‘We’ve Heard This Before’**\
+`The former president mimicked his rival while at a rally over the weekend. For those who stutter, his remark “hits that familiar humiliation feeling.”`\
+https://nytimes.com/2024/03/11/us/politics/trump-mocks-biden-stutter.html
+
+**Biden Pushes Lower Health Care Costs and Takes a Dig at Trump**\
+`Speaking in New Hampshire, the president highlighted his pledges to cap insulin prices, make permanent expanded tax credits under the Affordable Care Act and limit out-of-pocket prescription drug costs.`\
+https://nytimes.com/2024/03/11/us/politics/biden-health-care.html
+
 **Republicans Threaten to Ban TikTok, Despite Trump’s Dissent**\
 `Also, Biden proposed new taxes and larger social programs. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/03/11/briefing/trump-tiktok-ban-biden-budget-proposal.html
