@@ -1,3 +1,7 @@
+**Why Democrats Are Hopeful in North Carolina and Nervous in Georgia**\
+`President Biden’s campaign and its allies are targeting both battlegrounds — but only one state has a highly controversial Republican nominee lower on the ballot.`\
+https://nytimes.com/2024/03/11/us/politics/biden-trump-north-carolina-georgia.html
+
 **Biden budget calls for expanding price negotiations for more drugs.**\
 `By Margot Sanger-Katz`\
 https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/biden-budget-calls-for-expanding-price-negotiations-for-more-drugs
@@ -34,8 +38,4 @@ https://nytimes.com/2024/03/11/technology/ai-robots-technology.html
 **The Challenges of Teaching Constitutional Law Today**\
 `Readers discuss an Opinion piece about a politicized Supreme Court. Also: Trump’s mockery of Biden; fans of the president; alcoholism; great literature.`\
 https://nytimes.com/2024/03/11/opinion/teaching-constitutional-law.html
-
-**Pamela Anderson Still Isn’t Wearing Makeup**\
-`A new campaign for the denim brand Re/Done shows the actress in the barefaced look she has embraced in Hollywood and at fashion week.`\
-https://nytimes.com/2024/03/11/style/pamela-anderson-no-makeup-vanity-fair.html
 
