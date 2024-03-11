@@ -1,3 +1,7 @@
+**Sex Trafficking, De Facto Lies and Immigration**\
+`Senator Katie Britt’s deeply misleading tale.`\
+https://nytimes.com/2024/03/11/opinion/katie-britt-trump-immigration.html
+
 **Al Pacino Explains Awkward Oscars Moment Presenting Best Picture**\
 `The star, whose abrupt announcement that “Oppenheimer” had won best picture took some viewers by surprise, said the show’s producers had asked him not to name the other nominees.`\
 https://nytimes.com/2024/03/11/movies/al-pacino-oscars.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/briefing/trump-tiktok-ban-biden-budget-proposal.h
 **Israel’s military lightly rebukes a general for a demolition at a university in Gaza.**\
 `By Matthew Mpoke Bigg and Adam Rasgon`\
 https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israels-military-lightly-rebukes-a-general-for-a-demolition-at-a-university-in-gaza
-
-**Tuesday Briefing: U.S. Moves to Crack Down on TikTok**\
-`Also, uproar about a retouched royal photo and an Oscars recap.`\
-https://nytimes.com/2024/03/11/world/asia/tiktok-trump-kate-photo-asia.html
 

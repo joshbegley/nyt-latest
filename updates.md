@@ -1,3 +1,7 @@
+**Sex Trafficking, De Facto Lies and Immigration**\
+`Senator Katie Britt’s deeply misleading tale.`\
+https://nytimes.com/2024/03/11/opinion/katie-britt-trump-immigration.html
+
 **Al Pacino Explains Awkward Oscars Moment Presenting Best Picture**\
 `The star, whose abrupt announcement that “Oppenheimer” had won best picture took some viewers by surprise, said the show’s producers had asked him not to name the other nominees.`\
 https://nytimes.com/2024/03/11/movies/al-pacino-oscars.html
