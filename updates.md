@@ -1,3 +1,7 @@
+**Emma Stone wins her second Oscar for best actress, for ‘Poor Things.’**\
+`By Julia Jacobs`\
+https://nytimes.com/2024/03/10/movies/emma-stone-oscars-poor-things.html
+
 **A big night for ‘Oppenheimer’ ends with best picture.**\
 `By Kyle Buchanan`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/a-big-night-for-oppenheimer-ends-with-best-picture
