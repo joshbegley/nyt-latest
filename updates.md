@@ -1,3 +1,7 @@
+**Word of the Day: colossal**\
+`This word has appeared in 217 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/11/learning/word-of-the-day-colossal.html
+
 **Quotation of the Day: Gang Uprising Is Aggravating Crisis in Haiti**\
 `Quotation of the Day for Monday, March 11, 2024.`\
 https://nytimes.com/2024/03/11/pageoneplus/quotation-of-the-day-gang-uprising-is-aggravating-crisis-in-haiti.html

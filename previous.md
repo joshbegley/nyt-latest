@@ -1,3 +1,7 @@
+**Word of the Day: colossal**\
+`This word has appeared in 217 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/11/learning/word-of-the-day-colossal.html
+
 **Quotation of the Day: Gang Uprising Is Aggravating Crisis in Haiti**\
 `Quotation of the Day for Monday, March 11, 2024.`\
 https://nytimes.com/2024/03/11/pageoneplus/quotation-of-the-day-gang-uprising-is-aggravating-crisis-in-haiti.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/world/europe/geert-wilders-dutch-election-politic
 **How the Wait for Olympic Medals Became an Endurance Sport**\
 `Doping rules, legal challenges and endless appeals have left some medalists waiting (and waiting) for their golds.`\
 https://nytimes.com/2024/03/11/world/europe/olympic-medals-paris-2024.html
-
-**Jimmy Kimmel Jabbed Back at Donald Trump During the Oscars**\
-`Yes, that was a real post by the former president.`\
-https://nytimes.com/2024/03/10/movies/trump-kimmel-oscars.html
 
