@@ -1,3 +1,11 @@
+**Could Trump Save TikTok?**\
+`The former president targeted the platform while in office but has now come out against a bill that could ban the short video app in the U.S.`\
+https://nytimes.com/2024/03/11/business/dealbook/trump-tiktok-ban.html
+
+**Israeli police officers blocked many Palestinians from Al Aqsa Mosque at the start of Ramadan, video shows.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israeli-police-officers-blocked-many-palestinians-from-entering-al-aqsa-mosque-at-the-start-of-ramadan-video-shows
+
 **My Children Helped Me Remember How to Fly**\
 `The best present I have ever received is that my grown children still want to play with me.`\
 https://nytimes.com/2024/03/11/crosswords/children-family-video-games.html
