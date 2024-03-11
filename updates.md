@@ -1,3 +1,7 @@
+**Israeli police officers blocked many Palestinians from entering Al Aqsa Mosque at the start of Ramadan, video shows.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israeli-police-officers-blocked-many-palestinians-from-entering-al-aqsa-mosque-at-the-start-of-ramadan-video-shows
+
 **Princess Catherine Apologizes, Saying She Edited Image**\
 `A Mother’s Day portrait of Catherine, Princess of Wales, with her three children was withdrawn by several news agencies on Sunday over concerns it had been digitally altered.`\
 https://nytimes.com/2024/03/11/world/europe/princess-kate-middleton-photo-edit-apology.html
