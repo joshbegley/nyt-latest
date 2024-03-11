@@ -1,3 +1,11 @@
+**Netanyahu’s Coalition ‘May Be in Jeopardy,’ Intelligence Report Says**\
+`The document predicted that Israel would struggle to achieve its goal of destroying Hamas in Gaza.`\
+https://nytimes.com/2024/03/11/us/politics/netanyahu-gaza-intelligence-report.html
+
+**‘Bling Bishop’ Who Boasted of Ties to Eric Adams Is Convicted of Fraud**\
+`Lamor Whitehead was accused of using $90,000 of a parishioner’s retirement savings to buy luxury goods and trying to force a businessman to lend him $500,000.`\
+https://nytimes.com/2024/03/11/nyregion/lamor-whitehead-bling-bishop-verdict.html
+
 **Sex Trafficking, De Facto Lies and Immigration**\
 `Senator Katie Britt’s deeply misleading tale.`\
 https://nytimes.com/2024/03/11/opinion/katie-britt-trump-immigration.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/11/us/politics/trump-mocks-biden-stutter.html
 **Biden Pushes Lower Health Care Costs and Takes a Dig at Trump**\
 `Speaking in New Hampshire, the president highlighted his pledges to cap insulin prices, make permanent expanded tax credits under the Affordable Care Act and limit out-of-pocket prescription drug costs.`\
 https://nytimes.com/2024/03/11/us/politics/biden-health-care.html
-
-**Republicans Threaten to Ban TikTok, Despite Trump’s Dissent**\
-`Also, Biden proposed new taxes and larger social programs. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/03/11/briefing/trump-tiktok-ban-biden-budget-proposal.html
-
-**Israel’s military lightly rebukes a general for a demolition at a university in Gaza.**\
-`By Matthew Mpoke Bigg and Adam Rasgon`\
-https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israels-military-lightly-rebukes-a-general-for-a-demolition-at-a-university-in-gaza
 
