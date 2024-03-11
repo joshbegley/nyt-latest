@@ -1,3 +1,7 @@
+**Legal Settlement Clarifies Reach of Florida’s ‘Don’t Say Gay’ Law**\
+`The law will stay on the books, but the settlement makes clear it that does not ban classroom references to L.G.B.T.Q. people, including in literature and class discussions.`\
+https://nytimes.com/2024/03/11/us/florida-dont-say-gay-law-settlement.html
+
 **Trump’s Biden Mockery Upsets People Who Stutter: ‘We’ve Heard This Before’**\
 `The former president mimicked his rival while at a rally over the weekend. For those who stutter, his remark “hits that familiar humiliation feeling.”`\
 https://nytimes.com/2024/03/11/us/politics/trump-mocks-biden-stutter.html
