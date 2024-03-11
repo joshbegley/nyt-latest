@@ -1,3 +1,7 @@
+**U.S. Pledges Another $130 Million to Restore Order to Haiti**\
+`The U.S. secretary of state announced more aid for the multinational security mission planned to deploy to Haiti, as well as more humanitarian aid.`\
+https://nytimes.com/2024/03/11/world/americas/blinken-haiti-aid-gangs.html
+
 **3 Children and 2 Adults Killed as School Bus and Truck Collide in Illinois**\
 `All four people in the bus died, as did the driver of a semi-truck, the authorities. The school district canceled classes on Tuesday and Wednesday out of respect for the victims.`\
 https://nytimes.com/2024/03/11/us/urlillinois-school-bus-crash-five-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/05/opinion/thepoint/trump-biden-medicare-social
 **Legal Settlement Clarifies Reach of Florida’s ‘Don’t Say Gay’ Law**\
 `The law will stay on the books, but the settlement makes clear it that does not ban classroom references to L.G.B.T.Q. people, including in literature and class discussions.`\
 https://nytimes.com/2024/03/11/us/florida-dont-say-gay-law-settlement.html
-
-**Trump’s Biden Mockery Upsets People Who Stutter: ‘We’ve Heard This Before’**\
-`The former president mimicked his rival while at a rally over the weekend. For those who stutter, his remark “hits that familiar humiliation feeling.”`\
-https://nytimes.com/2024/03/11/us/politics/trump-mocks-biden-stutter.html
 
