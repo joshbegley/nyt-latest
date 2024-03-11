@@ -1,3 +1,7 @@
+**House Republicans unveiled their own budget blueprint with steep cuts.**\
+`By Catie Edmondson`\
+https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/house-republicans-unveiled-their-own-budget-blueprint-with-steep-cuts
+
 **Biden’s budget calls for $5 trillion in additional taxes on corporations and the wealthy over the next decade.**\
 `By Alan Rappeport`\
 https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/bidens-budget-calls-for-5-trillion-in-additional-taxes-on-corporations-and-the-wealthy-over-the-next-decade
@@ -34,8 +38,4 @@ https://nytimes.com/2024/03/11/nyregion/senator-menendez-arraigned-bribery-obstr
 **With Pride and Hope, Ukraine Celebrates Oscar Win for Mariupol Documentary**\
 `Ukrainians say recognition for “20 Days in Mariupol” will help debunk Russian propaganda and refocus attention on the situation in Russian-occupied territories.`\
 https://nytimes.com/2024/03/11/world/europe/ukraine-20-days-mariupol-oscars.html
-
-**Review: A ‘Roméo et Juliette’ Is Saved by Its Stars**\
-`Bartlett Sher’s middling production returned to the Metropolitan Opera, with a glorious Benjamin Bernheim and Nadine Sierra in the title roles.`\
-https://nytimes.com/2024/03/11/arts/music/romeo-et-juliette-met-opera-review.html
 
