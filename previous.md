@@ -1,3 +1,11 @@
+**Biden’s budget calls for $5 trillion in additional taxes on corporations and the wealthy over the next decade.**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/bidens-budget-calls-for-5-trillion-in-additional-taxes-on-corporations-and-the-wealthy-over-the-next-decade
+
+**Ira von Fürstenberg, Jet-Setting Princess and Actress, Dies at 83**\
+`With her aristocratic lineage, high-profile husbands and famous friends, she embodied a chic life of luxury as an international social figure.`\
+https://nytimes.com/2024/03/11/style/ira-von-furstenberg-dead.html
+
 **Graffiti With Swastikas and Racist Rant Rattles a New York High School**\
 `The police said the vandalism found in a boys’ bathroom at Beacon High School in Manhattan was being investigated as a potential hate crime.`\
 https://nytimes.com/2024/03/11/nyregion/racist-graffiti-swastikas-beacon-high-school.html
@@ -30,12 +38,4 @@ https://nytimes.com/2024/03/11/world/europe/ukraine-20-days-mariupol-oscars.html
 **Review: A ‘Roméo et Juliette’ Is Saved by Its Stars**\
 `Bartlett Sher’s middling production returned to the Metropolitan Opera, with a glorious Benjamin Bernheim and Nadine Sierra in the title roles.`\
 https://nytimes.com/2024/03/11/arts/music/romeo-et-juliette-met-opera-review.html
-
-**Biden unveils proposals to reduce housing costs.**\
-`By Madeleine Ngo and Alan Rappeport`\
-https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/biden-unveils-proposals-to-reduce-housing-costs
-
-**How the A.I. That Drives ChatGPT Will Move Into the Physical World**\
-`Covariant, a robotics start-up, is designing technology that lets robots learn skills much like chatbots do.`\
-https://nytimes.com/2024/03/11/technology/ai-robots-technology.html
 
