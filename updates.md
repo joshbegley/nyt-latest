@@ -1,3 +1,7 @@
+**Biden, marking Ramadan, says the war has inflicted ‘terrible suffering’ on Gazans.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/biden-marking-ramadan-says-the-war-has-inflicted-terrible-suffering-on-gazans
+
 **The Fourth Anniversary of the Covid Pandemic**\
 `And where things stand today.`\
 https://nytimes.com/2024/03/11/briefing/covid-pandemic-anniversary.html

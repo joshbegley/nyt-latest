@@ -1,3 +1,7 @@
+**Biden, marking Ramadan, says the war has inflicted ‘terrible suffering’ on Gazans.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/biden-marking-ramadan-says-the-war-has-inflicted-terrible-suffering-on-gazans
+
 **The Fourth Anniversary of the Covid Pandemic**\
 `And where things stand today.`\
 https://nytimes.com/2024/03/11/briefing/covid-pandemic-anniversary.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/us/supreme-court-texas-death-penalty.html
 **Three Steps That Biden Needs to Take This Spring**\
 `He’s off to a good start, but building enthusiasm will take a lot more work.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-steps-reelection
-
-**On the Wild Intoxications of Spring**\
-`My happiness is twofold. Spring is here! But also: Thank God it didn’t come too terribly early this year.`\
-https://nytimes.com/2024/03/11/opinion/anthropocene-spring-backyard-census.html
 
