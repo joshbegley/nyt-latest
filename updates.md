@@ -1,3 +1,7 @@
+**Republicans Threaten to Ban TikTok, Despite Trump’s Dissent**\
+`Also, Biden proposed new taxes and larger social programs. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/03/11/briefing/trump-tiktok-ban-biden-budget-proposal.html
+
 **Israel’s military lightly rebukes a general for a demolition at a university in Gaza.**\
 `By Matthew Mpoke Bigg and Adam Rasgon`\
 https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israels-military-lightly-rebukes-a-general-for-a-demolition-at-a-university-in-gaza
