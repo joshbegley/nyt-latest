@@ -26,8 +26,8 @@ https://nytimes.com/2024/03/10/movies/emma-stone-oscars-poor-things.html
 `Before paying tribute to the industry figures who died in the past year, a clip of the Russian opposition leader played as an introduction to the segment.`\
 https://nytimes.com/2024/03/10/movies/oscars-in-memoriam-navalny.html
 
-**Cillian Murphy wins his first Oscar, best actor for ‘Oppenheimer.’**\
-`By Christopher Kuo`\
+**Cillian Murphy Wins His First Oscar, Best Actor for ‘Oppenheimer’**\
+`Murphy, who was nominated for the first time, portrayed the physicist J. Robert Oppenheimer in the Christopher Nolan film.`\
 https://nytimes.com/2024/03/10/movies/cillian-murphy-oscar-oppenheimer.html
 
 **Ukrainian Director Says He’d Rather Have No Oscar and No War**\
