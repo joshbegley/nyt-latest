@@ -1,3 +1,15 @@
+**Menendez Is Arraigned for the Third Time in 6 Months**\
+`Senator Robert Menendez, Democrat of New Jersey, pleaded not guilty to obstruction of justice. So did his wife, Nadine Menendez.`\
+https://nytimes.com/2024/03/11/nyregion/senator-menendez-arraigned-bribery-obstruction.html
+
+**With Pride and Hope, Ukraine Celebrates Oscar Win for Mariupol Documentary**\
+`Ukrainians say recognition for “20 Days in Mariupol” will help debunk Russian propaganda and refocus attention on the situation in Russian-occupied territories.`\
+https://nytimes.com/2024/03/11/world/europe/ukraine-20-days-mariupol-oscars.html
+
+**Review: A ‘Roméo et Juliette’ Is Saved by Its Stars**\
+`Bartlett Sher’s middling production returned to the Metropolitan Opera, with a glorious Benjamin Bernheim and Nadine Sierra in the title roles.`\
+https://nytimes.com/2024/03/11/arts/music/romeo-et-juliette-met-opera-review.html
+
 **Biden unveils proposals to reduce housing costs.**\
 `By Madeleine Ngo and Alan Rappeport`\
 https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/biden-unveils-proposals-to-reduce-housing-costs
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/11/movies/oscars-winners-streaming.html
 **Al Qaeda’s Yemen Branch Says Its Leader Has Died**\
 `The group, whose power and reach have diminished in recent years, did not give a cause of death for Khaled Batarfi, who once fought alongside the Taliban.`\
 https://nytimes.com/2024/03/11/world/middleeast/qaeda-yemen-leader-death.html
-
-**E. Jean Carroll Could Sue Trump Again Over New Attacks, Lawyer Suggests**\
-`Ms. Carroll will not contest the former president’s $91.6 million bond, but her lawyer, Roberta Kaplan, said she had been tracking Donald Trump’s campaign trail remarks.`\
-https://nytimes.com/2024/03/11/nyregion/trump-carroll-bond.html
-
-**Morgan Wallen, With Latest No. 1, Tops a Garth Brooks Record**\
-`Wallen’s “One Thing at a Time” notches its 19th week atop the all-genre Billboard 200 chart a year after its release.`\
-https://nytimes.com/2024/03/11/arts/music/morgan-wallen-billboard-record-country.html
-
-**Trump Gives Rambling Answer on Why He Backtracked on a TikTok Ban**\
-`Donald Trump told CNBC that banning TikTok would make young people “go crazy” and could benefit Facebook, which he called an “enemy of the people.”`\
-https://nytimes.com/2024/03/11/us/politics/trump-tiktok-ban-cnbc.html
 
