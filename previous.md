@@ -1,3 +1,7 @@
+**Do You Know These Pulitzer-Winning Women and Their Books?**\
+`Try this short quiz to test your literary knowledge — and get a few reading suggestions along the way.`\
+https://nytimes.com/interactive/2024/03/11/books/review/pulitzer-prize-women.html
+
 **Where to Stream 2024 Oscar Winners, From ‘Oppenheimer’ to ‘Poor Things’**\
 `Most of the night’s winners can be watched at home. Here’s a guide to help you find the honorees.`\
 https://nytimes.com/2024/03/11/movies/oscars-winners-streaming.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/arts/candida-royalle-jane-kamensky.html
 **Pantry-Friendly Persian Lentil Rice With Dates**\
 `More weeknight dishes that wow: herby pork larb, sticky chicken with brussels sprouts and shrimp in purgatory.`\
 https://nytimes.com/2024/03/11/dining/pantry-friendly-persian-lentil-rice-with-dates.html
-
-**A Multitasker’s Guide to Regaining Focus**\
-`We can’t really do more than one thing at a time, experts say. But these tactics can help.`\
-https://nytimes.com/2024/03/11/well/mind/multitasking-tips.html
 
