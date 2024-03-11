@@ -6,7 +6,7 @@ https://nytimes.com/live/2024/03/05/opinion/thepoint/oscars-war-speech-gaza-ukra
 `A sculptural element on Emily Blunt and Florence Pugh raised some eyebrows.`\
 https://nytimes.com/2024/03/10/style/emily-blunt-florence-pugh-oscars.html
 
-**‘What Was I Made For?’ Wins Billie Eilish (and ‘Barbie’) an Oscar.**\
+**‘What Was I Made For?’ Wins Billie Eilish (and ‘Barbie’) an Oscar**\
 `The song, which Eilish wrote with her brother, Finneas O’Connell, is the siblings’ second award in the category.`\
 https://nytimes.com/2024/03/10/movies/what-was-i-made-for-billie-eilish-oscars.html
 
