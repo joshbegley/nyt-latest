@@ -1,3 +1,7 @@
+**3 Children and 2 Adults Killed as School Bus and Truck Collide in Illinois**\
+`All four people in the bus died, as did the driver of a semi-truck, the authorities. The school district canceled classes on Tuesday and Wednesday out of respect for the victims.`\
+https://nytimes.com/2024/03/11/us/urlillinois-school-bus-crash-five-dead.html
+
 **Netanyahu’s Coalition ‘May Be in Jeopardy,’ Intelligence Report Says**\
 `The document predicted that Israel would struggle to achieve its goal of destroying Hamas in Gaza.`\
 https://nytimes.com/2024/03/11/us/politics/netanyahu-gaza-intelligence-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/us/florida-dont-say-gay-law-settlement.html
 **Trump’s Biden Mockery Upsets People Who Stutter: ‘We’ve Heard This Before’**\
 `The former president mimicked his rival while at a rally over the weekend. For those who stutter, his remark “hits that familiar humiliation feeling.”`\
 https://nytimes.com/2024/03/11/us/politics/trump-mocks-biden-stutter.html
-
-**Biden Pushes Lower Health Care Costs and Takes a Dig at Trump**\
-`Speaking in New Hampshire, the president highlighted his pledges to cap insulin prices, make permanent expanded tax credits under the Affordable Care Act and limit out-of-pocket prescription drug costs.`\
-https://nytimes.com/2024/03/11/us/politics/biden-health-care.html
 
