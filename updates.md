@@ -1,3 +1,11 @@
+**When Cicadas Emerge, Things Might Get a Little Wet**\
+`A new study reveals that cicadas can discharge urine with far more force than their size would suggest. This spring’s deluge could be significant.`\
+https://nytimes.com/2024/03/11/science/cicadas-pee-stream.html
+
+**Deadspin Sells to European Media Company, Leaving Staff Behind**\
+`The new owner, Lineup Publishing, will not be bringing on any of the sports website’s existing staff members.`\
+https://nytimes.com/2024/03/11/business/media/deadspin-sells-layoffs.html
+
 **17 Works of Nonfiction Coming This Spring**\
 `Memoirs from Brittney Griner and Salman Rushdie, a look at pioneering Black ballerinas, a new historical account from Erik Larson — and plenty more.`\
 https://nytimes.com/2024/03/11/books/spring-nonfiction-books.html
