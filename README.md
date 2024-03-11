@@ -8,7 +8,7 @@ https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/dissension-hits
 
 **Jonathan Glazer Condemns ‘Occupation’ and Violence in Israel and Gaza**\
 `Glazer, the director of “The Zone of Interest,” spoke about the war while accepting the Oscar for best international feature.`\
-https://nytimes.com/2024/03/10/movies/the-israel-hamas-war-is-mentioned-in-a-speech-by-the-zone-of-interest-director.html
+https://nytimes.com/2024/03/10/movies/jonathan-glazer-israel-hamas-war-occupation.html
 
 **Robert Downey Jr., the front-runner, wins best supporting actor.**\
 `By Jonathan Abrams`\
