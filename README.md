@@ -1,3 +1,7 @@
+**Cillian Murphy: Get to Know the New Oscar Winner’s Work**\
+`“Oppenheimer” wasn’t the first time he’s played a physicist. In “Sunshine,” “28 Days Later” and more, you can get a sense of just how wide his range is.`\
+https://nytimes.com/2024/03/11/movies/cillian-murphy-oscar-streaming.html
+
 **Biden Plan Would Raise Taxes on Corporations and the Wealthy**\
 `The proposals in President Biden’s budget plan, including the tax increases, project to reduce deficits by about $3 trillion over a decade.`\
 https://nytimes.com/video/us/politics/100000009356315/biden-budget-plan-taxes.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/how-do-propose
 **Fudge Steps Down as Housing Secretary**\
 `Marcia Fudge, who has led the Department of Housing and Urban Development since the early days of the Biden administration, announced her resignation, citing family concerns.`\
 https://nytimes.com/2024/03/11/us/politics/marcia-fudge-hud-resigns.html
-
-**When Cicadas Emerge, Things Might Get a Little Wet**\
-`A new study reveals that cicadas can discharge urine with far more force than their size would suggest. This spring’s  output could be significant.`\
-https://nytimes.com/2024/03/11/science/cicadas-pee-stream.html
 
