@@ -1,3 +1,7 @@
+**A short film wins Wes Anderson his first Oscar.**\
+`By Marc Tracy`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/a-short-film-wins-wes-anderson-his-first-oscar
+
 **Godzilla finally gets an Oscar.**\
 `By Jonathan Abrams`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/oscars-godzilla
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/world/middleeast/biden-netanyahu-gaza.html
 **How did Jimmy Kimmel do? Our critic has thoughts.**\
 `By Jason Zinoman`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/how-did-jimmy-kimmel-do-our-critic-has-thoughts
-
-**Cord Jefferson wins adapted screenplay award for ‘American Fiction.’**\
-`By Marc Tracy`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/cord-jefferson-wins-adapted-screenplay-award-for-american-fiction
 
