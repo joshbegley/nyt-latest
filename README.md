@@ -1,3 +1,7 @@
+**Princess Catherine Apologizes for Editing Photo and Creating ‘Confusion’**\
+`A Mother’s Day portrait of Catherine, Princess of Wales, with her three children was withdrawn by several news agencies on Sunday over concerns it had been digitally altered.`\
+https://nytimes.com/2024/03/11/world/europe/princess-kate-middleton-photo-edit-apology.html
+
 **Biden, marking Ramadan, says the war has inflicted ‘terrible suffering’ on Gazans.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/biden-marking-ramadan-says-the-war-has-inflicted-terrible-suffering-on-gazans
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/us/politics/biden-budget-will-underscore-divide-w
 **In Death Penalty Cases, a Texas Court Tests the Supreme Court’s Patience**\
 `The Texas Court of Criminal Appeals, one law professor said, treats Supreme Court rulings as “optional guideposts rather than the commands of a higher tribunal.”`\
 https://nytimes.com/2024/03/11/us/supreme-court-texas-death-penalty.html
-
-**Three Steps That Biden Needs to Take This Spring**\
-`He’s off to a good start, but building enthusiasm will take a lot more work.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-steps-reelection
 
