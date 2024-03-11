@@ -1,5 +1,5 @@
 **Malachy McCourt, Actor, Memoirist and Gadabout, Dies at 92**\
-`Playing the professional Irishman, he returned from Limerick to New York where he tended bar and appeared in soap operas and, with his family, scattered “Angela’s Ashes.”`\
+`Playing the professional Irishman, he returned from Limerick to New York, where he tended bar, appeared in soap operas, wrote a best seller, and, with his family, scattered “Angela’s Ashes.”`\
 https://nytimes.com/2024/03/11/books/malachy-mccourt-dead.html
 
 **Oscar Glory for ‘Oppenheimer’ Rewards Studio Chief’s Vision**\
