@@ -1,3 +1,15 @@
+**Godzilla finally gets an Oscar.**\
+`By Jonathan Abrams`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/oscars-godzilla
+
+**Jonathan Glazer Condemns ‘Occupation’ and Violence in Israel and Gaza**\
+`Glazer, the director of “The Zone of Interest,” spoke about the war while accepting the Oscar for best international feature.`\
+https://nytimes.com/2024/03/10/movies/jonathan-glazer-israel-hamas-war-occupation.html
+
+**Robert Downey Jr., the front-runner, wins best supporting actor.**\
+`By Jonathan Abrams`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/robert-downey-jr-oscar-best-supporting-actor
+
 **Dissension hits the documentary category.**\
 `By Alissa Wilkinson`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/dissension-hits-the-documentary-category
