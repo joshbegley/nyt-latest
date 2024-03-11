@@ -1,3 +1,7 @@
+**The general election is set. Welcome to the next 8 months.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/03/11/us/2024-election-trump-biden/the-general-election-is-set-welcome-to-the-next-8-months
+
 **The British Royal Family: A Timeline of the Last Few Months**\
 `It’s been a busy few months for King Charles III and his family. There have been surgeries, health announcements, and one family photograph people can’t stop talking about.`\
 https://nytimes.com/2024/03/11/world/europe/princess-kate-middleton-royal-family-timeline.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israeli-pol
 **Princess Catherine Apologizes, Saying She Edited Image**\
 `A Mother’s Day portrait of Catherine, Princess of Wales, with her three children was withdrawn by several news agencies on Sunday over concerns it had been digitally altered.`\
 https://nytimes.com/2024/03/11/world/europe/princess-kate-middleton-photo-edit-apology.html
-
-**Biden, marking Ramadan, says the war has inflicted ‘terrible suffering’ on Gazans.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/biden-marking-ramadan-says-the-war-has-inflicted-terrible-suffering-on-gazans
 

@@ -1,3 +1,7 @@
+**The general election is set. Welcome to the next 8 months.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/03/11/us/2024-election-trump-biden/the-general-election-is-set-welcome-to-the-next-8-months
+
 **The British Royal Family: A Timeline of the Last Few Months**\
 `It’s been a busy few months for King Charles III and his family. There have been surgeries, health announcements, and one family photograph people can’t stop talking about.`\
 https://nytimes.com/2024/03/11/world/europe/princess-kate-middleton-royal-family-timeline.html
