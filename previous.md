@@ -1,3 +1,7 @@
+**American Man Sentenced to Life After Killing Woman at German Castle**\
+`The U.S. citizen attacked two women, also Americans, near Germany’s iconic Neuschwanstein Castle, and attempted to push both of them to their deaths, a court found. One was killed, the other survived.`\
+https://nytimes.com/2024/03/11/world/europe/germany-american-murder-neuschwanstein-castle.html
+
 **He Was in Prison. She Was in Covid Lockdown. They Freed Each Other.**\
 `During the pandemic Jessica Jacobs binge-watched true crime shows. Inspired, she started working on cases with a lawyer. Two men who spent decades behind bars walked free.`\
 https://nytimes.com/2024/03/11/us/los-angeles-exoneration-jofama-coleman-abel-soto.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/movies/academy-awards-oscars-critics.html
 **House Republicans unveiled their own budget blueprint with steep cuts.**\
 `By Catie Edmondson`\
 https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/house-republicans-unveiled-their-own-budget-blueprint-with-steep-cuts
-
-**Biden’s Budget Calls for Tax Increases on Corporations and the Wealthy**\
-`The budget, which would cut the deficit by $3 trillion over the next decade, reinforces Biden’s efforts to counter Republican tax proposals that Democrats deride as giveaways to the wealthy.`\
-https://nytimes.com/2024/03/11/us/politics/biden-budget-tax-proposal.html
 
