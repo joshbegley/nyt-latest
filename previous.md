@@ -1,3 +1,7 @@
+**Fudge Steps Down as Housing Secretary**\
+`Marcia Fudge, who has led the Department of Housing and Urban Development since the early days of the Biden administration, announced her resignation, citing family concerns.`\
+https://nytimes.com/2024/03/11/us/politics/marcia-fudge-hud-resigns.html
+
 **When Cicadas Emerge, Things Might Get a Little Wet**\
 `A new study reveals that cicadas can discharge urine with far more force than their size would suggest. This spring’s deluge could be significant.`\
 https://nytimes.com/2024/03/11/science/cicadas-pee-stream.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/us/los-angeles-exoneration-jofama-coleman-abel-so
 **Testimony Fleshes Out Account of Trump’s Demand to Go to Capitol on Jan. 6**\
 `But a newly released transcript of an interview of the Secret Service agent who drove Donald Trump’s vehicle that day disputes that he tried to grab the steering wheel or lunged at another agent.`\
 https://nytimes.com/2024/03/11/us/politics/jan-6-trump-motorcade-secret-service.html
-
-**One of New York’s ‘Worst Landlords’ Faces Arrest Over Building Neglect**\
-`In a rare step, the city’s housing department asked the court to issue an arrest warrant for the landlord, Daniel Ohebshalom.`\
-https://nytimes.com/2024/03/11/nyregion/landlord-arrest-building-dangerous-conditions.html
 
