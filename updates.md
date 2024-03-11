@@ -1,3 +1,7 @@
+**Israel struck an area used by a high-ranking Hamas commander, a military spokesman says.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israel-struck-an-area-used-by-a-high-ranking-hamas-commander-a-military-spokesman-says
+
 **A Conservative Court Rebukes Republican Censorship**\
 `Earlier this month, classical liberals prevailed again.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/republican-censorship-ruling

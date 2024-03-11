@@ -1,3 +1,7 @@
+**Israel struck an area used by a high-ranking Hamas commander, a military spokesman says.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israel-struck-an-area-used-by-a-high-ranking-hamas-commander-a-military-spokesman-says
+
 **A Conservative Court Rebukes Republican Censorship**\
 `Earlier this month, classical liberals prevailed again.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/republican-censorship-ruling
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/us/politics/trump-mentions-cutting-entitlements-a
 **Oscar Highlights: The Good, the Ken and the Naked**\
 `Our movie critic looks back on the Academy Awards.`\
 https://nytimes.com/2024/03/11/podcasts/culture-desk-oscars-highlights-2024.html
-
-**How do proposed budgets match reality? Compare presidents.**\
-`By Josh Katz, Alicia Parlapiano and Margot Sanger-Katz`\
-https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/how-do-proposed-budgets-match-reality-compare-presidents
 
