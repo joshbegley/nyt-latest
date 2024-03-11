@@ -1,40 +1,40 @@
-**‘Strong Movement’ on Flight to New Zealand Leaves Dozens Injured**\
-`The airline, Latam, said a “technical problem” had caused the incident. Most of the injuries were minor, but one person was in serious condition.`\
-https://nytimes.com/2024/03/11/world/australia/auckland-sydney-flight-latam.html
+**Biden Budget Will Underscore Divide With Republicans and Trump**\
+`The president’s fiscal 2025 budget proposal includes about $3 trillion in deficit reduction over a decade, largely from raising taxes on high earners and corporations.`\
+https://nytimes.com/2024/03/11/us/politics/biden-budget-will-underscore-divide-with-republicans-and-trump.html
 
-**Highlights From the 2024 Oscars**\
-`The biopic “Oppenheimer” was showered with honors, and the race for best actress culminated in a second Oscar for Emma Stone.`\
-https://nytimes.com/video/movies/100000009354996/oscars-2024-highlights-oppenheimer.html
+**In Death Penalty Cases, a Texas Court Tests the Supreme Court’s Patience**\
+`The Texas Court of Criminal Appeals, one law professor said, treats Supreme Court rulings as “optional guideposts rather than the commands of a higher tribunal.”`\
+https://nytimes.com/2024/03/11/us/supreme-court-texas-death-penalty.html
 
-**‘Even without Ramadan, we are fasting.’ In Gaza, people brace for a holiday of hardship.**\
-`By Raja Abdulrahim and Rawan Sheikh Ahmad`\
-https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/even-without-ramadan-we-are-fasting-in-gaza-people-brace-for-a-holiday-of-hardship
+**Three Steps That Biden Needs to Take This Spring**\
+`He’s off to a good start, but building enthusiasm will take a lot more work.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-steps-reelection
 
-**11mideast-crisis**\
-`Ramadan Begins as Hunger and Fear Stalk Gaza`\
-https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news
+**On the Wild Intoxications of Spring**\
+`My happiness is twofold. Spring is here! But also: Thank God it didn’t come too terribly early this year.`\
+https://nytimes.com/2024/03/11/opinion/anthropocene-spring-backyard-census.html
 
-**To Fix a Housing Crisis, New York Leaders Seek to Revive a 1950s Idea**\
-`State Democrats are set to propose a series of ideas to address affordability and a lack of new homes. Some of the ideas are new. And some are very, very old.`\
-https://nytimes.com/2024/03/11/nyregion/housing-crisis-new-york-senate-mitchell-lama.html
+**Surprise: An ‘Extraterrestrial’ Gadget Was Something More Familiar**\
+`In 2014 a fireball from outer space was posited to be an alien artifact. A recent study suggests otherwise.`\
+https://nytimes.com/2024/03/11/science/meteor-avi-loeb.html
 
-**How Much Access to Government Records Does the Public Deserve?**\
-`Proposed restrictions in New Jersey are pitting municipal and county officials against supporters of government transparency.`\
-https://nytimes.com/2024/03/11/nyregion/nj-opra-bill-public-records.html
+**Why the Supreme Court Should Clear the Way for a Pre-Election Trump Trial**\
+`In the Jan. 6 case, when the court decides will be as important as what it decides.`\
+https://nytimes.com/2024/03/11/opinion/trump-supreme-court-jack-smith.html
 
-**A Showcase for Israeli Property Creates Rancor in a Diverse Town**\
-`A synagogue in Teaneck, N.J., hosted a show promoting real estate in Israel. Muslim American groups organized angry demonstrations outside.`\
-https://nytimes.com/2024/03/11/nyregion/synagogue-protest-teaneck-nj.html
+**And the Award for Best Performance at the State of the Union Goes to …**\
+`Did Biden change anyone’s mind? And can he maintain the momentum?`\
+https://nytimes.com/2024/03/11/opinion/biden-trump-state-union.html
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/11/crosswords/wordle-review.html
+**‘Huck Finn’ Is a Masterpiece. This Retelling Just Might Be, Too.**\
+`Percival Everett’s new novel amends Mark Twain’s classic tale with the enslaved sidekick, Jim, at its center.`\
+https://nytimes.com/2024/03/11/books/review/percival-everett-james.html
 
-**Overdose or Poisoning? A New Debate Over What to Call a Drug Death.**\
-`Grieving families want official records and popular discourse to move away from reflexive use of “overdose,” which they believe blames victims for their deaths.`\
-https://nytimes.com/2024/03/11/health/overdose-poison-fentanyl.html
+**Change Is Coming to Iran, Just Not the Change We Hoped For**\
+`The next generation of the country’s leaders want authority, not theocracy.`\
+https://nytimes.com/2024/03/11/opinion/iran-election-theocracy.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/03/11/crosswords/spelling-bee-forum.html
+**You Haven’t Seen Blue Until You’ve Seen San Andres**\
+`The island, close to Nicaragua but part of Colombia, boasts waters in seven shades of the color. Counting them — from a boat, from a cay, from the shade of a coconut tree — is a meditative experience.`\
+https://nytimes.com/2024/03/11/travel/san-andres-colombia.html
 
