@@ -1,3 +1,7 @@
+**California’s Economy Has Been Pinched by Unemployment**\
+`The Golden State’s jobless rate remains stubbornly high.`\
+https://nytimes.com/2024/03/11/us/california-economy-unemployment.html
+
 **Could Trump Save TikTok?**\
 `The former president targeted the platform while in office but has now come out against a bill that could ban the short video app in the U.S.`\
 https://nytimes.com/2024/03/11/business/dealbook/trump-tiktok-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/podcasts/the-daily/california-forever-tech-housin
 **Best and Worst Moments From the 2024 Oscars**\
 `In a fairly even-keeled night, emotions still ran high, whether it was the rush of “I’m Just Ken” or heartfelt words from Rita Moreno to America Ferrera.`\
 https://nytimes.com/2024/03/11/movies/oscars-best-worst.html
-
-**Why Does Ramadan Start at Different Times in Different Places?**\
-`The exact start date of Islam’s holiest month depends on when local Islamic authorities declare the sighting of the new moon.`\
-https://nytimes.com/2024/03/11/world/middleeast/ramadan-moon-sighting.html
 
