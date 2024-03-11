@@ -1,3 +1,7 @@
+**Biden budget calls for expanding price negotiations for more drugs.**\
+`By Margot Sanger-Katz`\
+https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/biden-budget-calls-for-expanding-price-negotiations-for-more-drugs
+
 **What an Oscar for ‘20 Days in Mariupol’ Reveals About Hollywood**\
 `Where cinema is made and what language it speaks is not what defines its influence.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/oscars-best-documentary
@@ -34,8 +38,4 @@ https://nytimes.com/2024/03/11/opinion/teaching-constitutional-law.html
 **Pamela Anderson Still Isn’t Wearing Makeup**\
 `A new campaign for the denim brand Re/Done shows the actress in the barefaced look she has embraced in Hollywood and at fashion week.`\
 https://nytimes.com/2024/03/11/style/pamela-anderson-no-makeup-vanity-fair.html
-
-**Do You Know These Pulitzer-Winning Women and Their Books?**\
-`Try this short quiz to test your literary knowledge — and get a few reading suggestions along the way.`\
-https://nytimes.com/interactive/2024/03/11/books/review/pulitzer-prize-women.html
 
