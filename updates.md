@@ -1,3 +1,7 @@
+**Princess Catherine Apologizes for Editing Photo and Creating ‘Confusion’**\
+`A Mother’s Day portrait of Catherine, Princess of Wales, with her three children was withdrawn by several news agencies on Sunday over concerns it had been digitally altered.`\
+https://nytimes.com/2024/03/11/world/europe/princess-kate-middleton-photo-edit-apology.html
+
 **Biden, marking Ramadan, says the war has inflicted ‘terrible suffering’ on Gazans.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/biden-marking-ramadan-says-the-war-has-inflicted-terrible-suffering-on-gazans
