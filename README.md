@@ -1,3 +1,11 @@
+**Confronted by an Angry Moose? Here’s What to Do.**\
+`Moose are ordinarily docile animals. The chances of having to defend yourself against one in the wild are slim, but not zero.`\
+https://nytimes.com/2024/03/11/us/moose-encounter-what-to-do.html
+
+**Biden proposes hiring thousands of Border Patrol agents and asylum officers.**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/biden-proposes-hiring-thousands-of-border-patrol-agents-and-asylum-officers
+
 **Torn Between Golden Past and Thorny Present, Oscars Still Had Some Fun**\
 `Even as the telecast indulged in the usual jokes, references to the 2023 strikes and current wars had their place, in our critics’ view.`\
 https://nytimes.com/2024/03/11/movies/academy-awards-oscars-critics.html
@@ -29,13 +37,4 @@ https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/biden-budget-c
 **What an Oscar for ‘20 Days in Mariupol’ Reveals About Hollywood**\
 `Where cinema is made and what language it speaks is not what defines its influence.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/oscars-best-documentary
-
-**4 Ways to Build a More Resilient Biopharma Industry**\
-`From life-saving cancer drugs to seasonal flu shots, innovations in pharmaceuticals and biotechnology have a positive impact on countless lives on a daily basis.
-`\
-https://nytimes.com/paidpost/cytiva/4-ways-to-build-a-more-resilient-biopharma-industry.html
-
-**Menendez Is Arraigned for the Third Time in 6 Months**\
-`Senator Robert Menendez, Democrat of New Jersey, pleaded not guilty to obstruction of justice. So did his wife, Nadine Menendez.`\
-https://nytimes.com/2024/03/11/nyregion/senator-menendez-arraigned-bribery-obstruction.html
 
