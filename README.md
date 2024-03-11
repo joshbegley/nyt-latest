@@ -1,3 +1,7 @@
+**Republicans Threaten to Ban TikTok, Despite Trump’s Dissent**\
+`Also, Biden proposed new taxes and larger social programs. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/03/11/briefing/trump-tiktok-ban-biden-budget-proposal.html
+
 **Israel’s military lightly rebukes a general for a demolition at a university in Gaza.**\
 `By Matthew Mpoke Bigg and Adam Rasgon`\
 https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israels-military-lightly-rebukes-a-general-for-a-demolition-at-a-university-in-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/well/live/wegovy-ozempic-heart-risk.html
 **U.S. Judge Blocks Rule Extending Reach of Labor Law to Franchisers**\
 `The ruling upends the National Labor Relations Board’s move to broaden the standard for determining when a company is liable for labor law violations.`\
 https://nytimes.com/2024/03/11/business/economy/nlrb-joint-employer-court-ruling.html
-
-**NYC Restaurant Sheds Are Here to Stay. Here Are the New Guidelines.**\
-`The city’s Department of Transportation issued new rules for Dining Out NYC, its official program, and more food news.`\
-https://nytimes.com/2024/03/11/dining/nyc-dining-sheds-guidelines.html
 
