@@ -1,3 +1,7 @@
+**Why Does Ramadan Start at Different Times in Different Places?**\
+`The exact start date of Islam’s holiest month depends on when local Islamic authorities declare the sighting of the new moon.`\
+https://nytimes.com/2024/03/11/world/middleeast/ramadan-moon-sighting.html
+
 **‘No Ramadan Atmosphere’: Gazans Shop for Feasts**\
 `The war and hunger have cast a somber tone over this year’s holy month as people struggle to find affordable essentials to celebrate.`\
 https://nytimes.com/video/world/middleeast/100000009355030/gaza-ramadan-market-rafah.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/opinion/biden-trump-state-union.html
 **‘Huck Finn’ Is a Masterpiece. This Retelling Just Might Be, Too.**\
 `Percival Everett’s new novel amends Mark Twain’s classic tale with the enslaved sidekick, Jim, at its center.`\
 https://nytimes.com/2024/03/11/books/review/percival-everett-james.html
-
-**Change Is Coming to Iran, Just Not the Change We Hoped For**\
-`The next generation of the country’s leaders want authority, not theocracy.`\
-https://nytimes.com/2024/03/11/opinion/iran-election-theocracy.html
 
