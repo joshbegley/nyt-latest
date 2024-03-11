@@ -1,3 +1,7 @@
+**An Old Trick to the Crispiest Tofu**\
+`Why fry when you can freeze?`\
+https://nytimes.com/2024/03/11/dining/how-to-make-crispy-tofu.html
+
 **American Man Sentenced to Life After Killing Woman at German Castle**\
 `The U.S. citizen attacked two women, also Americans, near Germany’s iconic Neuschwanstein Castle, and attempted to push both of them to their deaths, a court found. One was killed, the other survived.`\
 https://nytimes.com/2024/03/11/world/europe/germany-american-murder-neuschwanstein-castle.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/biden-proposes
 **Torn Between Golden Past and Thorny Present, Oscars Still Had Some Fun**\
 `Even as the telecast indulged in the usual jokes, references to the 2023 strikes and current wars had their place, in our critics’ view.`\
 https://nytimes.com/2024/03/11/movies/academy-awards-oscars-critics.html
-
-**House Republicans unveiled their own budget blueprint with steep cuts.**\
-`By Catie Edmondson`\
-https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/house-republicans-unveiled-their-own-budget-blueprint-with-steep-cuts
 
