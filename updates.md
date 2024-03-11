@@ -1,3 +1,15 @@
+**Jonathan Glazer Condemns ‘Occupation’ and Violence in Israel and Gaza**\
+`Glazer, the director of “The Zone of Interest,” spoke about the war while accepting the Oscar for best international feature.`\
+https://nytimes.com/2024/03/10/movies/jonathan-glazer-israel-hamas-war-occupation.html
+
+**Robert Downey Jr., the front-runner, wins best supporting actor.**\
+`By Jonathan Abrams`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/robert-downey-jr-oscar-best-supporting-actor
+
+**‘Dead Outlaw’ Review: Not Much of a Bandit, but What a Corpse**\
+`The creators of “The Band’s Visit” return with this mischievous ghost story of a musical based on an odd slice of Old West history.`\
+https://nytimes.com/2024/03/10/theater/dead-outlaw-review.html
+
 **Cillian Murphy wins his first Oscar, best actor for ‘Oppenheimer.’**\
 `By Christopher Kuo`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/cillian-murphy-wins-his-first-oscar-best-actor-for-oppenheimer
