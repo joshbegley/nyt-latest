@@ -1,3 +1,19 @@
+**Cillian Murphy wins his first Oscar, best actor for ‘Oppenheimer.’**\
+`By Christopher Kuo`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/cillian-murphy-wins-his-first-oscar-best-actor-for-oppenheimer
+
+**Ukrainian Director Says He’d Rather Have No Oscar and No War**\
+`‘20 Days in Mariupol,’ Mstyslav Chernov’s harrowing first-person account from the early days of Russia’s invasion, won for best documentary feature.`\
+https://nytimes.com/2024/03/10/movies/20-days-in-mariupol-ukraine-oscars.html
+
+**Christopher Nolan wins his first directing Oscar.**\
+`By Marc Tracy`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/christopher-nolan-wins-his-first-directing-oscar
+
+**‘What Was I Made For?’ Wins Billie Eilish (and ‘Barbie’) an Oscar**\
+`The song, which Eilish wrote with her brother, Finneas O’Connell, is the siblings’ second award in the category.`\
+https://nytimes.com/2024/03/10/movies/what-was-i-made-for-billie-eilish-oscars.html
+
 **‘What Was I Made For?’ Wins Billie Eilish (and ‘Barbie’) an Oscar.**\
 `The song, which Eilish wrote with her brother, Finneas O’Connell, is the siblings’ second award in the category.`\
 https://nytimes.com/2024/03/10/movies/what-was-i-made-for-billie-eilish-oscars.html
