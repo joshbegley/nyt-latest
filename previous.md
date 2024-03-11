@@ -1,3 +1,15 @@
+**Where to Stream 2024 Oscar Winners, From ‘Oppenheimer’ to ‘Poor Things’**\
+`Most of the night’s winners can be watched at home. Here’s a guide to help you find the honorees.`\
+https://nytimes.com/2024/03/11/movies/oscars-winners-streaming.html
+
+**Al Qaeda’s Yemen Branch Says Its Leader Has Died**\
+`The group, whose power and reach have diminished in recent years, did not give a cause of death for Khaled Batarfi, who once fought alongside the Taliban.`\
+https://nytimes.com/2024/03/11/world/middleeast/qaeda-yemen-leader-death.html
+
+**E. Jean Carroll Could Sue Trump Again Over New Attacks, Lawyer Suggests**\
+`Ms. Carroll will not contest the former president’s $91.6 million bond, but her lawyer, Roberta Kaplan, said she had been tracking Donald Trump’s campaign trail remarks.`\
+https://nytimes.com/2024/03/11/nyregion/trump-carroll-bond.html
+
 **Morgan Wallen, With Latest No. 1, Tops a Garth Brooks Record**\
 `Wallen’s “One Thing at a Time” notches its 19th week atop the all-genre Billboard 200 chart a year after its release.`\
 https://nytimes.com/2024/03/11/arts/music/morgan-wallen-billboard-record-country.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/11/dining/pantry-friendly-persian-lentil-rice-with-d
 **A Multitasker’s Guide to Regaining Focus**\
 `We can’t really do more than one thing at a time, experts say. But these tactics can help.`\
 https://nytimes.com/2024/03/11/well/mind/multitasking-tips.html
-
-**The Promise of the PCOS Diet Falls Apart**\
-`Patients were told for years that cutting calories would ease the symptoms of polycystic ovary syndrome. But research suggests dieting may not help at all.`\
-https://nytimes.com/2024/03/11/well/eat/pcos-diet-weight-loss-calories.html
-
-**The Oscar Night Hollywood Needed**\
-`Overall, there weren’t many huge risks but the safe choices were smart ones that routinely paid off.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/oscars-hollywood-success
-
-**U. of Texas at Austin Will Return to Standardized Test Requirement**\
-`The university said SAT and ACT scores help it place students in programs that fit them best.`\
-https://nytimes.com/2024/03/11/us/ut-austin-standardized-test-admission.html
 
