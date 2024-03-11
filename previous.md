@@ -14,9 +14,9 @@ https://nytimes.com/2024/03/11/movies/academy-awards-oscars-critics.html
 `By Catie Edmondson`\
 https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/house-republicans-unveiled-their-own-budget-blueprint-with-steep-cuts
 
-**Biden’s budget calls for $5 trillion in additional taxes on corporations and the wealthy over the next decade.**\
-`By Alan Rappeport`\
-https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/bidens-budget-calls-for-5-trillion-in-additional-taxes-on-corporations-and-the-wealthy-over-the-next-decade
+**Biden’s Budget Calls for Tax Increases on Corporations and the Wealthy**\
+`The budget, which would cut the deficit by $3 trillion over the next decade, reinforces Biden’s efforts to counter Republican tax proposals that Democrats deride as giveaways to the wealthy.`\
+https://nytimes.com/2024/03/11/us/politics/biden-budget-tax-proposal.html
 
 **Ira von Fürstenberg, Jet-Setting Princess and Actress, Dies at 83**\
 `With her aristocratic lineage, high-profile husbands and famous friends, she embodied a chic life of luxury as an international social figure.`\

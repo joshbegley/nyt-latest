@@ -1,3 +1,7 @@
+**Biden’s Budget Calls for Tax Increases on Corporations and the Wealthy**\
+`The budget, which would cut the deficit by $3 trillion over the next decade, reinforces Biden’s efforts to counter Republican tax proposals that Democrats deride as giveaways to the wealthy.`\
+https://nytimes.com/2024/03/11/us/politics/biden-budget-tax-proposal.html
+
 **Confronted by an Angry Moose? Here’s What to Do.**\
 `Moose are ordinarily docile animals. The chances of having to defend yourself against one in the wild are slim, but not zero.`\
 https://nytimes.com/2024/03/11/us/moose-encounter-what-to-do.html
