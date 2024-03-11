@@ -1,3 +1,7 @@
+**When Oscar Winners Have a Bigger Point to Make**\
+`Tonight, I was both struck and moved by the two big political speeches at the ceremony so far.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/oscars-war-speech-gaza-ukraine
+
 **Wait, Were Those Shoulder Straps Floating?**\
 `A sculptural element on Emily Blunt and Florence Pugh raised some eyebrows.`\
 https://nytimes.com/2024/03/10/style/emily-blunt-florence-pugh-oscars.html
