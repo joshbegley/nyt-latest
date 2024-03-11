@@ -1,3 +1,11 @@
+**Trump’s Biden Mockery Upsets People Who Stutter: ‘We’ve Heard This Before’**\
+`The former president mimicked his rival while at a rally over the weekend. For those who stutter, his remark “hits that familiar humiliation feeling.”`\
+https://nytimes.com/2024/03/11/us/politics/trump-mocks-biden-stutter.html
+
+**Biden Pushes Lower Health Care Costs and Takes a Dig at Trump**\
+`Speaking in New Hampshire, the president highlighted his pledges to cap insulin prices, make permanent expanded tax credits under the Affordable Care Act and limit out-of-pocket prescription drug costs.`\
+https://nytimes.com/2024/03/11/us/politics/biden-health-care.html
+
 **Republicans Threaten to Ban TikTok, Despite Trump’s Dissent**\
 `Also, Biden proposed new taxes and larger social programs. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/03/11/briefing/trump-tiktok-ban-biden-budget-proposal.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009356315/biden-budget-plan-taxes.ht
 **Even Photoshop Can’t Erase Royals’ Latest P.R. Blemish**\
 `A Mother’s Day photo was meant to douse speculation about the Princess of Wales’ health. It did the opposite — and threatened to undermine trust in the royal family.`\
 https://nytimes.com/2024/03/11/world/europe/kate-middleton-photo-princess-wales.html
-
-**Wegovy Moves Beyond Weight Loss**\
-`The F.D.A. has approved a new use for heart health that will fuel even more demand for the drug.`\
-https://nytimes.com/2024/03/11/well/live/wegovy-ozempic-heart-risk.html
-
-**U.S. Judge Blocks Rule Extending Reach of Labor Law to Franchisers**\
-`The ruling upends the National Labor Relations Board’s move to broaden the standard for determining when a company is liable for labor law violations.`\
-https://nytimes.com/2024/03/11/business/economy/nlrb-joint-employer-court-ruling.html
 
