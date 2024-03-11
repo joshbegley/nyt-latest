@@ -1,3 +1,7 @@
+**The Israel-Hamas war is mentioned in a speech by the ‘Zone of Interest’ director.**\
+`By Matt Stevens`\
+https://nytimes.com/2024/03/10/movies/the-israel-hamas-war-is-mentioned-in-a-speech-by-the-zone-of-interest-director.html
+
 **‘Dead Outlaw’ Review: Not Much of a Bandit, but What a Corpse**\
 `The creators of “The Band’s Visit” return with this mischievous ghost story of a musical based on an odd slice of Old West history.`\
 https://nytimes.com/2024/03/10/theater/dead-outlaw-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/messi-made-it-t
 **Da’Vine Joy Randolph Wins Best Supporting Actress, Her First Oscar**\
 `Randolph, who was favored to win, was honored for her turn as a warm, witty cafeteria matriarch in “The Holdovers.”`\
 https://nytimes.com/2024/03/10/movies/davine-joy-randolph-oscar-best-supporting-actress.html
-
-**A writer has accused ‘The Holdovers’ of plagiarizing his script, according to a report.**\
-`By The New York Times`\
-https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/a-writer-has-accused-the-holdovers-of-plagiarizing-his-script-according-to-a-report
 
