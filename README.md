@@ -4,7 +4,7 @@ https://nytimes.com/video/us/politics/100000009356315/biden-budget-plan-taxes.ht
 
 **Even Photoshop Can’t Erase Royals’ Latest P.R. Blemish**\
 `A Mother’s Day photo was meant to douse speculation about the Princess of Wales’ health. It did the opposite — and threatened to undermine trust in the royal family.`\
-https://nytimes.com/2024/03/11/world/europe/catherine-princess-of-wales-photo.html
+https://nytimes.com/2024/03/11/world/europe/kate-middleton-photo-princess-wales.html
 
 **Wegovy Moves Beyond Weight Loss**\
 `The F.D.A. has approved a new use for heart health that will fuel even more demand for the drug.`\
