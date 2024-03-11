@@ -1,3 +1,7 @@
+**What an Oscar for ‘20 Days in Mariupol’ Reveals About Hollywood**\
+`Where cinema is made and what language it speaks is not what defines its influence.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/oscars-best-documentary
+
 **4 Ways to Build a More Resilient Biopharma Industry**\
 `From life-saving cancer drugs to seasonal flu shots, innovations in pharmaceuticals and biotechnology have a positive impact on countless lives on a daily basis.
 `\
