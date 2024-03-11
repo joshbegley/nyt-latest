@@ -1,3 +1,11 @@
+**How do proposed budgets match reality? Compare presidents.**\
+`By Josh Katz, Alicia Parlapiano and Margot Sanger-Katz`\
+https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/how-do-proposed-budgets-match-reality-compare-presidents
+
+**When Cicadas Emerge, Things Might Get a Little Wet**\
+`A new study reveals that cicadas can discharge urine with far more force than their size would suggest. This spring’s  output could be significant.`\
+https://nytimes.com/2024/03/11/science/cicadas-pee-stream.html
+
 **Fudge Steps Down as Housing Secretary**\
 `Marcia Fudge, who has led the Department of Housing and Urban Development since the early days of the Biden administration, announced her resignation, citing family concerns.`\
 https://nytimes.com/2024/03/11/us/politics/marcia-fudge-hud-resigns.html
