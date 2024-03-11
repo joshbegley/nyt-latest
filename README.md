@@ -1,3 +1,7 @@
+**Legal Settlement Clarifies Reach of Florida’s ‘Don’t Say Gay’ Law**\
+`The law will stay on the books, but the settlement makes clear it that does not ban classroom references to L.G.B.T.Q. people, including in literature and class discussions.`\
+https://nytimes.com/2024/03/11/us/florida-dont-say-gay-law-settlement.html
+
 **Trump’s Biden Mockery Upsets People Who Stutter: ‘We’ve Heard This Before’**\
 `The former president mimicked his rival while at a rally over the weekend. For those who stutter, his remark “hits that familiar humiliation feeling.”`\
 https://nytimes.com/2024/03/11/us/politics/trump-mocks-biden-stutter.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/movies/cillian-murphy-oscar-streaming.html
 **Biden Plan Would Raise Taxes on Corporations and the Wealthy**\
 `The proposals in President Biden’s budget plan, including the tax increases, project to reduce deficits by about $3 trillion over a decade.`\
 https://nytimes.com/video/us/politics/100000009356315/biden-budget-plan-taxes.html
-
-**Even Photoshop Can’t Erase Royals’ Latest P.R. Blemish**\
-`A Mother’s Day photo was meant to douse speculation about the Princess of Wales’ health. It did the opposite — and threatened to undermine trust in the royal family.`\
-https://nytimes.com/2024/03/11/world/europe/kate-middleton-photo-princess-wales.html
 
