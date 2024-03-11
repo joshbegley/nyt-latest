@@ -1,3 +1,7 @@
+**‘No Ramadan Atmosphere’: Gazans Shop for Feasts**\
+`The war and hunger have cast a somber tone over this year’s holy month as people struggle to find affordable essentials to celebrate.`\
+https://nytimes.com/video/world/middleeast/100000009355030/gaza-ramadan-market-rafah.html
+
 **Biden Budget Will Underscore Divide With Republicans and Trump**\
 `The president’s fiscal 2025 budget proposal includes about $3 trillion in deficit reduction over a decade, largely from raising taxes on high earners and corporations.`\
 https://nytimes.com/2024/03/11/us/politics/biden-budget-will-underscore-divide-with-republicans-and-trump.html
