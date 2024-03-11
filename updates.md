@@ -1,3 +1,11 @@
+**The U.N. Security Council discusses sexual violence against Israeli women.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/the-un-security-council-discusses-sexual-violence-against-israeli-women
+
+**U.S. Pledges Another $130 Million to Restore Order to Haiti**\
+`The U.S. secretary of state announced more aid for the multinational security mission planned to deploy to Haiti, as well as more humanitarian aid.`\
+https://nytimes.com/2024/03/11/world/americas/blinken-haiti-aid-gangs.html
+
 **3 Children and 2 Adults Killed as School Bus and Truck Collide in Illinois**\
 `All four people in the bus died, as did the driver of a semi-truck, the authorities. The school district canceled classes on Tuesday and Wednesday out of respect for the victims.`\
 https://nytimes.com/2024/03/11/us/urlillinois-school-bus-crash-five-dead.html
