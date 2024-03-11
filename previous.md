@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`Biden and Netanyahu clash over Gaza.`\
+https://nytimes.com/2024/03/11/briefing/gaza-biden-netanyahu-oscars.html
+
 **‘Oppenheimer,’ My Uncle and the Secrets America Still Doesn’t Like to Tell**\
 `The Oscar-winning film centers on one man’s remarkable history. My uncle’s life tells a very different story about the fallout of the atomic bomb.`\
 https://nytimes.com/2024/03/11/opinion/oppenheimer-secret-lives.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/10/movies/trump-kimmel-oscars.html
 **19 Looks That Did the Most at the Oscars**\
 `The red carpet at the Academy Awards had elegant, over-the-top and even political fashion. These were the best (and the not-so-best) outfits.`\
 https://nytimes.com/2024/03/10/style/oscars-fashion-2024.html
-
-**What’s So Funny About a Naked Man?**\
-`John Cena’s skit at the Academy Awards underscores an intractable gender imbalance, even as it gets legitimate laughs.`\
-https://nytimes.com/2024/03/10/style/john-cena-naked-men-oscars.html
 

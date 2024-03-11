@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`Biden and Netanyahu clash over Gaza.`\
+https://nytimes.com/2024/03/11/briefing/gaza-biden-netanyahu-oscars.html
+
 **‘Oppenheimer,’ My Uncle and the Secrets America Still Doesn’t Like to Tell**\
 `The Oscar-winning film centers on one man’s remarkable history. My uncle’s life tells a very different story about the fallout of the atomic bomb.`\
 https://nytimes.com/2024/03/11/opinion/oppenheimer-secret-lives.html
