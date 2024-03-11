@@ -1,3 +1,31 @@
+**To Fix a Housing Crisis, New York Leaders Seek to Revive a 1950s Idea**\
+`State Democrats are set to propose a series of ideas to address affordability and a lack of new homes. Some of the ideas are new. And some are very, very old.`\
+https://nytimes.com/2024/03/11/nyregion/housing-crisis-new-york-senate-mitchell-lama.html
+
+**How Much Access to Government Records Does the Public Deserve?**\
+`Proposed restrictions in New Jersey are pitting municipal and county officials against supporters of government transparency.`\
+https://nytimes.com/2024/03/11/nyregion/nj-opra-bill-public-records.html
+
+**A Showcase for Israeli Property Creates Rancor in a Diverse Town**\
+`A synagogue in Teaneck, N.J., hosted a show promoting real estate in Israel. Muslim American groups organized angry demonstrations outside.`\
+https://nytimes.com/2024/03/11/nyregion/synagogue-protest-teaneck-nj.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/11/crosswords/wordle-review.html
+
+**Overdose or Poisoning? A New Debate Over What to Call a Drug Death.**\
+`Grieving families want official records and popular discourse to move away from reflexive use of “overdose,” which they believe blames victims for their deaths.`\
+https://nytimes.com/2024/03/11/health/overdose-poison-fentanyl.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/03/11/crosswords/spelling-bee-forum.html
+
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/11/crosswords/connections-companion.html
+
 **Word of the Day: colossal**\
 `This word has appeared in 217 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/11/learning/word-of-the-day-colossal.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/03/11/pageoneplus/quotation-of-the-day-gang-uprising-is
 **Monday Briefing**\
 `Biden and Netanyahu clash over Gaza.`\
 https://nytimes.com/2024/03/11/briefing/gaza-biden-netanyahu-oscars.html
-
-**‘Oppenheimer,’ My Uncle and the Secrets America Still Doesn’t Like to Tell**\
-`The Oscar-winning film centers on one man’s remarkable history. My uncle’s life tells a very different story about the fallout of the atomic bomb.`\
-https://nytimes.com/2024/03/11/opinion/oppenheimer-secret-lives.html
-
-**What’s on TV This Week: ‘Grey’s Anatomy’ and 55th N.A.A.C.P. Image Awards**\
-`The 20th season of this medical drama airs on ABC. And CBS hosts the annual awards show honoring excellence in film and television.`\
-https://nytimes.com/2024/03/11/arts/television/whats-on-tv-this-week-greys-anatomy-and-55th-naacp-image-awards.html
-
-**Our Favorite Photos From the Oscars Red Carpet**\
-`An array of stars turned up the wattage, including Emma Stone and Billie Eilish and Oscar newcomers like Colman Domingo and Danielle Brooks.`\
-https://nytimes.com/2024/03/11/arts/oscars-red-carpet-photos-favorite.html
-
-**Navigating Israeli Restrictions, Many Palestinians Find It Hard to Reach Al Aqsa**\
-`Muslim access to the mosque compound has long been a point of contention as Israel has exerted tighter control.`\
-https://nytimes.com/2024/03/11/world/middleeast/palestinians-al-aqsa-mosque-ramadan.html
-
-**Ukraine Could Deploy F-16s as Soon as July, but Only a Few**\
-`Countries promised the fighter jets last year, but delivering them and training pilots have proved complex. Ukraine may start with as few as six, out of about 45 pledged.`\
-https://nytimes.com/2024/03/11/world/europe/ukraine-f16-pilots.html
-
-**A Dutch Quandary Offers a Glimpse of a Deepening Problem for Europe**\
-`The ascent of Geert Wilders has vexed parties struggling with how to work with a far-right leader too popular to shun. It’s a puzzle bigger than the Netherlands.`\
-https://nytimes.com/2024/03/11/world/europe/geert-wilders-dutch-election-politics.html
-
-**How the Wait for Olympic Medals Became an Endurance Sport**\
-`Doping rules, legal challenges and endless appeals have left some medalists waiting (and waiting) for their golds.`\
-https://nytimes.com/2024/03/11/world/europe/olympic-medals-paris-2024.html
 
