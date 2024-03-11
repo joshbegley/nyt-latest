@@ -1,3 +1,7 @@
+**Quotation of the Day: Gang Uprising Is Aggravating Crisis in Haiti**\
+`Quotation of the Day for Monday, March 11, 2024.`\
+https://nytimes.com/2024/03/11/pageoneplus/quotation-of-the-day-gang-uprising-is-aggravating-crisis-in-haiti.html
+
 **Monday Briefing**\
 `Biden and Netanyahu clash over Gaza.`\
 https://nytimes.com/2024/03/11/briefing/gaza-biden-netanyahu-oscars.html
