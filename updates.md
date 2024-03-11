@@ -1,3 +1,7 @@
+**A short film wins Wes Anderson his first Oscar.**\
+`By Marc Tracy`\
+https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/a-short-film-wins-wes-anderson-his-first-oscar
+
 **Godzilla finally gets an Oscar.**\
 `By Jonathan Abrams`\
 https://nytimes.com/live/2024/03/10/movies/oscars-academy-awards/oscars-godzilla
