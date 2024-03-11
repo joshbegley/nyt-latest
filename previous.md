@@ -1,3 +1,7 @@
+**My Children Helped Me Remember How to Fly**\
+`The best present I have ever received is that my grown children still want to play with me.`\
+https://nytimes.com/2024/03/11/crosswords/children-family-video-games.html
+
 **Israeli police officers blocked many Palestinians from entering Al Aqsa Mosque at the start of Ramadan, video shows.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/israeli-police-officers-blocked-many-palestinians-from-entering-al-aqsa-mosque-at-the-start-of-ramadan-video-shows
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/world/middleeast/ramadan-moon-sighting.html
 **Food Shortages Overshadow Ramadan in Gaza**\
 `The war and hunger have cast a somber tone over this year’s holy month as people struggle to find affordable essentials to celebrate.`\
 https://nytimes.com/video/world/middleeast/100000009355030/gaza-ramadan-market-rafah.html
-
-**Biden Budget Will Underscore Divide With Republicans and Trump**\
-`The president’s fiscal 2025 budget proposal includes about $3 trillion in deficit reduction over a decade, largely from raising taxes on high earners and corporations.`\
-https://nytimes.com/2024/03/11/us/politics/biden-budget-will-underscore-divide-with-republicans-and-trump.html
 
