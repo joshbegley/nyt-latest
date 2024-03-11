@@ -1,3 +1,7 @@
+**Biden unveils proposals to reduce housing costs.**\
+`By Madeleine Ngo and Alan Rappeport`\
+https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/biden-unveils-proposals-to-reduce-housing-costs
+
 **How the A.I. That Drives ChatGPT Will Move Into the Physical World**\
 `Covariant, a robotics start-up, is designing technology that lets robots learn skills much like chatbots do.`\
 https://nytimes.com/2024/03/11/technology/ai-robots-technology.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/arts/music/morgan-wallen-billboard-record-country
 **Trump Gives Rambling Answer on Why He Backtracked on a TikTok Ban**\
 `Donald Trump told CNBC that banning TikTok would make young people “go crazy” and could benefit Facebook, which he called an “enemy of the people.”`\
 https://nytimes.com/2024/03/11/us/politics/trump-tiktok-ban-cnbc.html
-
-**Malachy McCourt, Actor, Memoirist and Gadabout, Dies at 92**\
-`Playing the professional Irishman, he returned from Limerick to New York, where he tended bar, appeared in soap operas, wrote a best seller, and, with his family, scattered “Angela’s Ashes.”`\
-https://nytimes.com/2024/03/11/books/malachy-mccourt-dead.html
 

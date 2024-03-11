@@ -1,3 +1,7 @@
+**Biden unveils proposals to reduce housing costs.**\
+`By Madeleine Ngo and Alan Rappeport`\
+https://nytimes.com/live/2024/03/11/us/biden-budget-proposal-2025/biden-unveils-proposals-to-reduce-housing-costs
+
 **How the A.I. That Drives ChatGPT Will Move Into the Physical World**\
 `Covariant, a robotics start-up, is designing technology that lets robots learn skills much like chatbots do.`\
 https://nytimes.com/2024/03/11/technology/ai-robots-technology.html
