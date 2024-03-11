@@ -1,3 +1,11 @@
+**Biden and Netanyahu at Odds Over Gaza, and Catherine’s Palace Photo Fans Rumors**\
+`Plus, highlights from last night’s Oscars`\
+https://nytimes.com/2024/03/11/podcasts/biden-netanyahu-gaza-princess-catherine-oscars.html
+
+**The Billionaires’ Secret Plan to Solve California’s Housing Crisis**\
+`A company has spent hundreds of millions of dollars buying land in the Bay Area in the hopes of building a new city.`\
+https://nytimes.com/2024/03/11/podcasts/the-daily/california-forever-tech-housing.html
+
 **Best and Worst Moments From the 2024 Oscars**\
 `In a fairly even-keeled night, emotions still ran high, whether it was the rush of “I’m Just Ken” or heartfelt words from Rita Moreno to America Ferrera.`\
 https://nytimes.com/2024/03/11/movies/oscars-best-worst.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/11/opinion/anthropocene-spring-backyard-census.html
 **Surprise: An ‘Extraterrestrial’ Gadget Was Something More Familiar**\
 `In 2014 a fireball from outer space was posited to be an alien artifact. A recent study suggests otherwise.`\
 https://nytimes.com/2024/03/11/science/meteor-avi-loeb.html
-
-**Why the Supreme Court Should Clear the Way for a Pre-Election Trump Trial**\
-`In the Jan. 6 case, when the court decides will be as important as what it decides.`\
-https://nytimes.com/2024/03/11/opinion/trump-supreme-court-jack-smith.html
-
-**And the Award for Best Performance at the State of the Union Goes to …**\
-`Did Biden change anyone’s mind? And can he maintain the momentum?`\
-https://nytimes.com/2024/03/11/opinion/biden-trump-state-union.html
 

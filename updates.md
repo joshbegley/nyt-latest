@@ -1,3 +1,11 @@
+**Biden and Netanyahu at Odds Over Gaza, and Catherine’s Palace Photo Fans Rumors**\
+`Plus, highlights from last night’s Oscars`\
+https://nytimes.com/2024/03/11/podcasts/biden-netanyahu-gaza-princess-catherine-oscars.html
+
+**The Billionaires’ Secret Plan to Solve California’s Housing Crisis**\
+`A company has spent hundreds of millions of dollars buying land in the Bay Area in the hopes of building a new city.`\
+https://nytimes.com/2024/03/11/podcasts/the-daily/california-forever-tech-housing.html
+
 **Best and Worst Moments From the 2024 Oscars**\
 `In a fairly even-keeled night, emotions still ran high, whether it was the rush of “I’m Just Ken” or heartfelt words from Rita Moreno to America Ferrera.`\
 https://nytimes.com/2024/03/11/movies/oscars-best-worst.html
