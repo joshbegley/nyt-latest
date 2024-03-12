@@ -1,3 +1,15 @@
+**Avalanche Expert’s Death Shows Dangers of Backcountry Skiing**\
+`Nick Burks, 37, an avalanche forecaster and experienced backcountry skier, was killed while skiing in the Elkhorn Mountains in northeastern Oregon last week, the authorities said.`\
+https://nytimes.com/2024/03/12/us/oregon-avalanche-forecaster-killed.html
+
+**U.K. Conservative Party Under Fire Over Donor’s Alleged Racist Remarks**\
+`Frank Hester, the leading supporter of Britain’s Conservative Party, is accused of making the comments about Diane Abbott, a well-known lawmaker.`\
+https://nytimes.com/2024/03/12/world/europe/uk-diane-abbott-frank-hester.html
+
+**Taxing the Rich, School Funding, Housing: N.Y. Budget Battle Begins**\
+`Both of New York’s legislative chambers have announced their budget proposals. They have until April 1 to hash out a spending plan with the governor.`\
+https://nytimes.com/2024/03/12/nyregion/ny-budget-taxes-housing.html
+
 **Biden Interview with Special Counsel Hur**\
 `President Biden was questioned for about five hours by Robert K. Hur, the special counsel investigating the president’s retention of sensitive government documents. This is a transcript of the interview.`\
 https://nytimes.com/interactive/2024/03/12/us/biden-hur-transcript-both-days.html
