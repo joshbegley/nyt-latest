@@ -1,3 +1,7 @@
+**Food price gains eased in February.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed/food-price-gains-eased-in-february
+
 **Weekly Student News Quiz: Super Tuesday, Oscars, SAT**\
 `Have you been paying attention to the current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/03/12/learning/12StudentNewsQuiz.html

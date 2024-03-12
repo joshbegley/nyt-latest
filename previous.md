@@ -1,3 +1,7 @@
+**Food price gains eased in February.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed/food-price-gains-eased-in-february
+
 **Weekly Student News Quiz: Super Tuesday, Oscars, SAT**\
 `Have you been paying attention to the current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/03/12/learning/12StudentNewsQuiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/world/europe/andrew-tate-arrested-uk-romania.html
 **Family Goes Missing After Heavy Rains Drench Western Australia**\
 `Seven people, including four children, haven’t been seen in more than a day after 5.5 inches of rain in 24 hours led to floods and closed roads.`\
 https://nytimes.com/2024/03/12/world/australia/wa-nullarbor-floods.html
-
-**Convicting Politicians**\
-`As a bribery case against a U.S. senator moves forward, a look at why corruption charges are so hard to prove.`\
-https://nytimes.com/2024/03/12/briefing/bob-menendez-bribery-case.html
 
