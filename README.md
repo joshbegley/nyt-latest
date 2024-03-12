@@ -1,3 +1,11 @@
+**U.K. Conservative Party Under Fire Over Donor’s Alleged Racist Remarks**\
+`Frank Hester, the leading supporter of Britain’s Conservative Party, is accused of making the comments about Diane Abbott, a well-known lawmaker.`\
+https://nytimes.com/2024/03/12/world/europe/uk-diane-abbott-frank-hester.html
+
+**Taxing the Rich, School Funding, Housing: N.Y. Budget Battle Begins**\
+`Both of New York’s legislative chambers have announced their budget proposals. They have until April 1 to hash out a spending plan with the governor.`\
+https://nytimes.com/2024/03/12/nyregion/ny-budget-taxes-housing.html
+
 **Biden Interview with Special Counsel Hur**\
 `President Biden was questioned for about five hours by Robert K. Hur, the special counsel investigating the president’s retention of sensitive government documents. This is a transcript of the interview.`\
 https://nytimes.com/interactive/2024/03/12/us/biden-hur-transcript-both-days.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/12/us/meghan-markle-defamation-lawsuit-netflix-oprah
 **Children Evacuated From Gazan Orphanage to West Bank**\
 `The German Embassy said it had helped a charity, SOS Children’s Villages International, move nearly 70 children from the city of Rafah to get them “out of acute danger.”`\
 https://nytimes.com/2024/03/12/world/middleeast/orphans-gaza-rafah-west-bank.html
-
-**Inflation ticked up last month, backing the Fed’s caution on rate cuts.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed/inflation-ticked-up-last-month-backing-the-feds-caution-on-rate-cuts
-
-**Transcript: Ezra Klein Talks About the State of the Union and Biden’s 2024 Campaign**\
-`The March 12, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/03/12/podcasts/transript-ezra-klein-sotu-qa.html
 
