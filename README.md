@@ -1,3 +1,11 @@
+**A Pop Star’s Wonky Climate Campaign**\
+`Adam Met wants to make it easier to build wind and solar projects.`\
+https://nytimes.com/2024/03/12/climate/a-pop-stars-wonky-climate-campaign.html
+
+**Karl Wallinger, Who Sang With World Party and the Waterboys, Dies at 66**\
+`As a songwriter and instrumentalist as well, he blended pop and folk influences into music that helped define college radio in the 1980s and ’90s.`\
+https://nytimes.com/2024/03/12/arts/music/karl-wallinger-dead.html
+
 **At San Sabino, the Don Angie Team Looks to the Sea**\
 `Siete serves up vegan Mexican dishes, Tucci brings contemporary Italian into the Delmonico’s portfolio and more restaurant news.`\
 https://nytimes.com/2024/03/12/dining/don-angie-new-restaurant.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/12/us/nebraska-drugs-needle-exchange.html
 **The Israeli military acknowledges mistaking a bike for a weapon in a strike, but stands by the attack.**\
 `By Aric Toler, Haley Willis and Neil Collier`\
 https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news/the-israeli-military-acknowledges-mistaking-a-bike-for-a-weapon-in-a-strike-but-stands-by-the-attack
-
-**U.S. to Send $300 Million in Weapons to Ukraine Under Makeshift Plan**\
-`The package will keep advancing Russian troops at bay for only a few weeks, an official said.`\
-https://nytimes.com/2024/03/12/us/politics/us-aid-ukraine-war.html
-
-**Polling has indicated a majority of voters are concerned about Biden’s age — including Democrats.**\
-`By Ruth Igielnik`\
-https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/polling-has-indicated-a-majority-of-voters-are-concerned-about-bidens-age-including-democrats
 
