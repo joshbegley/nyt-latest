@@ -1,3 +1,7 @@
+**Aaron Rodgers and Jesse Ventura Top R.F.K. Jr.’s List for Running Mate**\
+`Mr. Kennedy said he had been speaking with the Jets quarterback “pretty continuously” for the past month.`\
+https://nytimes.com/2024/03/12/us/politics/rfk-jr-aaron-rodgers-jesse-ventura.html
+
 **Uvalde Police Chief Announces Resignation**\
 `The news comes less than a week after an investigation by the city of Uvalde found that city police officers made mistakes during a 2022 mass shooting, but did not violate policy.`\
 https://nytimes.com/2024/03/12/us/daniel-rodriguez-uvalde-police-resign.html
