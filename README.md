@@ -1,40 +1,40 @@
-**France Continues to Rethink Its Furnishings**\
-`Mobilier National, the national repository of furniture and decorative arts, adds 54 creations by contemporary artisans.`\
-https://nytimes.com/2024/03/12/arts/design/craftsmanship-mobilier-national-france.html
+**What a Second Biden Term Would Look Like**\
+`How Biden’s pitch for 2024 — and beyond — has crystallized in recent weeks.`\
+https://nytimes.com/2024/03/12/opinion/ezra-klein-podcast-sotu.html
 
-**A Biography of a Feminist Porn Pioneer Bares All**\
-`In “Candida Royalle and the Sexual Revolution,” the historian Jane Kamensky presents a raw personal — and cultural — history.`\
-https://nytimes.com/2024/03/12/books/review/candida-royalle-and-the-sexual-revolution-jane-kamensky.html
+**Mitch McConnell Doesn’t Wear a MAGA Hat. I’m Not Fooled.**\
+`The senate minority leader may not like the former president, but he has done more for him than many other Republican leaders.`\
+https://nytimes.com/2024/03/12/opinion/mitch-mcconnell-trump-senate.html
 
-**Hanging Out in the Boiler Room With Andre Dubus III**\
-`When the writer built a dream home for his family, he forgot to include one important thing: a place to write. So he found an unconventional solution.`\
-https://nytimes.com/2024/03/12/realestate/andre-dubus-boiler-room-newbury-massachusetts.html
+**This Is What Happens When You Smash Great Expectations**\
+`We built a real social safety net and then abruptly ripped it apart. What did we think would happen next?`\
+https://nytimes.com/2024/03/12/opinion/covid-economy-safety-net.html
 
-**Sprouts of Hope in a Gloomy Media Landscape**\
-`A handful of digital start-ups are finding success — so far, at least — by learning lessons from their troubled predecessors.`\
-https://nytimes.com/2024/03/12/business/media/digital-media-new-startups-business-model.html
+**Robert Hur, Special Counsel Who Investigated Biden, to Testify Before Congress**\
+`Republicans are likely to pepper him about his justifications for not charging the president. Democrats will almost certainly slam him for making broad assertions about Mr. Biden’s memory.`\
+https://nytimes.com/2024/03/12/us/politics/robert-hur-biden-report.html
 
-**At Home With Andre Dubus III**\
-`When the writer built a dream home for his family, he forgot to include one important thing: a place to write. So he found an unconventional solution.`\
-https://nytimes.com/slideshow/2024/03/12/realestate/at-home-with-andre-dubus-iii.html
+**Polish Leader to Press for Surge in NATO Spending to Counter Russia**\
+`President Andrzej Duda of Poland plans to use a White House meeting on Tuesday to propose that NATO members increase their military spending by at least half.`\
+https://nytimes.com/2024/03/12/us/politics/biden-poland-nato-duda-tusk.html
 
-**A Filmmaker’s Road Trip to U.F.O. Country: ‘Time is the Real Enemy’**\
-`Why did a U.F.O. allegedly crash in Roswell, N. M., of all places? In 1994, the filmmaker Bill Brown set out on a road trip to explore the 1947 incident.`\
-https://nytimes.com/2024/03/12/opinion/ufo-roswell-1947-new-mexico.html
+**Senators Urge Biden to Stop Arming Israel, Citing Violation of U.S. Aid Law**\
+`An independent and seven Democrats argued in a letter that the administration had run afoul of a part of a law that bars military aid from going to any country that blocks humanitarian aid.`\
+https://nytimes.com/2024/03/12/us/politics/democrats-biden-israel-letter.html
 
-**Obama, More Than Dickens, Looms Over This ‘Great Expectations’**\
-`Vinson Cunningham’s impressive debut novel finds a watchful campaign aide measuring his ambitions on the trail of a magnetic presidential candidate.`\
-https://nytimes.com/2024/03/12/books/review/vinson-cunningham-great-expectations.html
+**On the Tripwire of a ‘Red Line,’ It’s Often Presidents Who Trip**\
+`Barack Obama drew one for Syria. George W. Bush drew several, for North Korea and Iran. Now President Biden has drawn one for Israel. The hard part is figuring out what to do when they are crossed.`\
+https://nytimes.com/2024/03/12/us/politics/biden-red-line-israel.html
 
-**Holding Onto Korea’s Past, a Tile at a Time**\
-`The hanok, a traditional home design, has been bypassed in Seoul’s vertical building boom. But some fans are trying to preserve it.`\
-https://nytimes.com/2024/03/12/realestate/craftsmanship-hanok-traditional-homes-seoul.html
+**Anti-Trump Group of Republicans Lays Out $50 Million Plan of Attack**\
+`The group, Republican Voters Against Trump, will run a series of homemade videos of Americans who voted for him in the past but say they can no longer do so in 2024.`\
+https://nytimes.com/2024/03/12/us/politics/republican-voters-against-trump.html
 
-**Roswell**\
-`Why did a U.F.O. allegedly crash in Roswell, N. M., of all places? In 1994, the filmmaker Bill Brown set out on a road trip to explore the 1947 incident.`\
-https://nytimes.com/video/opinion/100000009295564/roswell.html
+**Subterranean ‘Baby Dragons’ Are Revealed to Sneak to the Surface**\
+`Scientists never imagined that the blind cave salamanders called olms willingly left their caves. But at numerous aboveground springs, there they were.`\
+https://nytimes.com/2024/03/12/science/olms-salamanders-caves-surface.html
 
-**The shipment of food from World Central Kitchen includes beans and flour.**\
-`By Monika Pronczuk`\
-https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news/the-shipment-of-food-from-world-central-kitchen-includes-beans-and-flour
+**Gaza Is Showing Us We Need New Tools to Measure Trauma**\
+`Diagnoses like PTSD aren’t sufficient.`\
+https://nytimes.com/2024/03/12/opinion/gaza-trauma-freedom.html
 
