@@ -1,3 +1,7 @@
+**Where Antisemitism and Anti-Zionism Collide**\
+`People spit out the word “Zionist” when they really seem to mean “Jew.”`\
+https://nytimes.com/2024/03/11/opinion/antisemitism-vs-anti-zionism.html
+
 **‘Barbenheimer,’ and an Early Start, Boost Oscar Ratings to 4-Year High**\
 `ABC’s telecast of the 96th Academy Awards on Sunday drew 19.5 million viewers, according to Nielsen.`\
 https://nytimes.com/2024/03/11/business/media/oscar-viewers-ratings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/opinion/katie-britt-trump-immigration.html
 **Al Pacino Explains Awkward Oscars Moment Presenting Best Picture**\
 `The star, whose abrupt announcement that “Oppenheimer” had won best picture took some viewers by surprise, said the show’s producers had asked him not to name the other nominees.`\
 https://nytimes.com/2024/03/11/movies/al-pacino-oscars.html
-
-**A new generation of abortion voters**\
-`Plus: Trump flips on a TikTok ban.`\
-https://nytimes.com/2024/03/11/us/politics/abortion-trump-tiktok.html
 
