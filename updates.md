@@ -1,3 +1,7 @@
+**5 Takeaways From Hur’s Testimony About the Biden Classified Documents Inquiry**\
+`A former special counsel, Robert K. Hur, faced sharp scrutiny over his conclusion that the evidence was insufficient to charge President Biden with a crime and his disparaging remarks about the president’s memory.`\
+https://nytimes.com/2024/03/12/us/politics/biden-hur-special-counsel-takeaways.html
+
 **A Pop Star’s Wonky Climate Campaign**\
 `Adam Met wants to make it easier to build wind and solar projects.`\
 https://nytimes.com/2024/03/12/climate/a-pop-stars-wonky-climate-campaign.html

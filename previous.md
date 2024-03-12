@@ -1,3 +1,7 @@
+**5 Takeaways From Hur’s Testimony About the Biden Classified Documents Inquiry**\
+`A former special counsel, Robert K. Hur, faced sharp scrutiny over his conclusion that the evidence was insufficient to charge President Biden with a crime and his disparaging remarks about the president’s memory.`\
+https://nytimes.com/2024/03/12/us/politics/biden-hur-special-counsel-takeaways.html
+
 **A Pop Star’s Wonky Climate Campaign**\
 `Adam Met wants to make it easier to build wind and solar projects.`\
 https://nytimes.com/2024/03/12/climate/a-pop-stars-wonky-climate-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/arts/music/amplifier-newsletter-sunny-songs.html
 **Nebraska Lawmakers Sustain Veto of Needle Exchange Bill**\
 `As the harm reduction approach to illegal drug use loses favor across the country, Nebraska legislators failed on Tuesday to override the governor’s veto of a bill to provide drug users with access to clean needles.`\
 https://nytimes.com/2024/03/12/us/nebraska-drugs-needle-exchange.html
-
-**The Israeli military acknowledges mistaking a bike for a weapon in a strike, but stands by the attack.**\
-`By Aric Toler, Haley Willis and Neil Collier`\
-https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news/the-israeli-military-acknowledges-mistaking-a-bike-for-a-weapon-in-a-strike-but-stands-by-the-attack
 
