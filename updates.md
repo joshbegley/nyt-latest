@@ -1,3 +1,7 @@
+**Convicting Politicians**\
+`As a bribery case against a U.S. senator moves forward, a look at why corruption charges are so hard to prove.`\
+https://nytimes.com/2024/03/12/briefing/bob-menendez-bribery-case.html
+
 **Biden’s Budget and Mass Layoffs at R.N.C.**\
 `Plus, a problem with M.L.B.’s new pants.`\
 https://nytimes.com/2024/03/12/podcasts/bidens-budget-and-mass-layoffs-at-rnc.html

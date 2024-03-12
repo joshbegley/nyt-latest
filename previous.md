@@ -1,3 +1,7 @@
+**Convicting Politicians**\
+`As a bribery case against a U.S. senator moves forward, a look at why corruption charges are so hard to prove.`\
+https://nytimes.com/2024/03/12/briefing/bob-menendez-bribery-case.html
+
 **Biden’s Budget and Mass Layoffs at R.N.C.**\
 `Plus, a problem with M.L.B.’s new pants.`\
 https://nytimes.com/2024/03/12/podcasts/bidens-budget-and-mass-layoffs-at-rnc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/opinion/covid-economy-safety-net.html
 **Robert Hur, Special Counsel Who Investigated Biden, to Testify Before Congress**\
 `Republicans are likely to pepper him about his justifications for not charging the president. Democrats will almost certainly slam him for making broad assertions about Mr. Biden’s memory.`\
 https://nytimes.com/2024/03/12/us/politics/robert-hur-biden-report.html
-
-**Polish Leader to Press for Surge in NATO Spending to Counter Russia**\
-`President Andrzej Duda of Poland plans to use a White House meeting on Tuesday to propose that NATO members increase their military spending by at least half.`\
-https://nytimes.com/2024/03/12/us/politics/biden-poland-nato-duda-tusk.html
 
