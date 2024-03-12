@@ -1,3 +1,11 @@
+**Biden’s Budget and Mass Layoffs at R.N.C.**\
+`Plus, a problem with baseball’s new pants.`\
+https://nytimes.com/2024/03/12/podcasts/bidens-budget-and-mass-layoffs-at-rnc.html
+
+**Oregon Decriminalized Drugs. Voters Now Regret It.**\
+`State lawmakers are about to reverse course, making the possession of hard narcotics an offense again.`\
+https://nytimes.com/2024/03/12/podcasts/the-daily/oregon-drugs.html
+
 **Insurance Costs Are Pushing Up Overall Inflation**\
 `Insurance costs are on the rise for various reasons, adding to overall inflation.`\
 https://nytimes.com/2024/03/12/business/insurance-inflation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/12/us/politics/robert-hur-biden-report.html
 **Polish Leader to Press for Surge in NATO Spending to Counter Russia**\
 `President Andrzej Duda of Poland plans to use a White House meeting on Tuesday to propose that NATO members increase their military spending by at least half.`\
 https://nytimes.com/2024/03/12/us/politics/biden-poland-nato-duda-tusk.html
-
-**Senators Urge Biden to Stop Arming Israel, Citing Violation of U.S. Aid Law**\
-`An independent and seven Democrats argued in a letter that the administration had run afoul of a part of a law that bars military aid from going to any country that blocks humanitarian aid.`\
-https://nytimes.com/2024/03/12/us/politics/democrats-biden-israel-letter.html
-
-**On the Tripwire of a ‘Red Line,’ It’s Often Presidents Who Trip**\
-`Barack Obama drew one for Syria. George W. Bush drew several, for North Korea and Iran. Now President Biden has drawn one for Israel. The hard part is figuring out what to do when they are crossed.`\
-https://nytimes.com/2024/03/12/us/politics/biden-red-line-israel.html
 
