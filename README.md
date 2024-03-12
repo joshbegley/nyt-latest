@@ -1,3 +1,11 @@
+**How Education and Experience Can Help Prisoners Achieve Parole**\
+`Responses to a guest essay about the plight of the older incarcerated. Also: Close call on Jan. 6; the killing of innocents; the purpose of college.`\
+https://nytimes.com/2024/03/12/opinion/older-prisoners-parole.html
+
+**Biden Budget Lays Out Economic Battle Lines Against Trump**\
+`President Biden and former President Donald J. Trump offer vastly different policy paths on almost every aspect of the economy.`\
+https://nytimes.com/2024/03/12/us/politics/biden-budget-trump.html
+
 **Police Officers Used Stun Gun on Migrant Holding Toddler, Video Shows**\
 `The altercation occurred at a migrant shelter in Queens following a dispute between the man and a shelter employee. New York City officials are investigating.`\
 https://nytimes.com/2024/03/12/nyregion/migrant-police-stun-gun-video.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/12/dining/five-easy-dill-dinners.html
 **What to Know About the Accusations Against Andrew Tate**\
 `The antagonistic online influencer is facing charges in two separate cases.`\
 https://nytimes.com/2024/03/12/world/europe/andrew-tate-arrests-explained.html
-
-**For Biden, the hearing on Capitol Hill is a mixed political blessing.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/for-biden-the-hearing-on-capitol-hill-is-a-mixed-political-blessing
-
-**Who Are Hamas’s Top Leaders in Gaza?**\
-`Israel targeted Marwan Issa, a Hamas military leader, with a strike over the weekend. He is one of three leaders of the group in Gaza who Israel says were the main planners of the Oct. 7 attack.`\
-https://nytimes.com/2024/03/12/world/middleeast/hamas-leaders-gaza.html
 
