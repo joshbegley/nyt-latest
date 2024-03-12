@@ -1,3 +1,7 @@
+**Is the Landing Soft? Will It Stay That Way?**\
+`Parsing the inflation and unemployment numbers.`\
+https://nytimes.com/2024/03/12/opinion/inflation-soft-landing-economy-unemployment.html
+
 **Tiny Love Stories: ‘When Mom Left’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/03/12/style/tiny-modern-love-stories-when-mom-left.html
