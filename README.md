@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Super Tuesday, Oscars, SAT**\
+`Have you been paying attention to the current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/03/12/learning/12StudentNewsQuiz.html
+
 **The Clock Ticks for TikTok**\
 `Advertisers are sticking with the social media platform, even as the House prepares to vote on a bill to force the company to cut its China ties this week.`\
 https://nytimes.com/2024/03/12/business/dealbook/tiktok-house-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/world/australia/wa-nullarbor-floods.html
 **Convicting Politicians**\
 `As a bribery case against a U.S. senator moves forward, a look at why corruption charges are so hard to prove.`\
 https://nytimes.com/2024/03/12/briefing/bob-menendez-bribery-case.html
-
-**Biden’s Budget and Mass Layoffs at R.N.C.**\
-`Plus, a problem with M.L.B.’s new pants.`\
-https://nytimes.com/2024/03/12/podcasts/bidens-budget-and-mass-layoffs-at-rnc.html
 
