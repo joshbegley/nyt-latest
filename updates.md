@@ -1,3 +1,7 @@
+**Word of the Day: proviso**\
+`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/12/learning/word-of-the-day-proviso.html
+
 **Eric Carmen, Raspberries Frontman and ‘All By Myself’ Singer, Dies at 74**\
 `He sang on the power-pop pioneers’ 1972 breakout hit, “Go All the Way,” before launching a successful solo career as a soft rock crooner.`\
 https://nytimes.com/2024/03/12/arts/music/eric-carmen-dead.html

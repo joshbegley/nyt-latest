@@ -1,3 +1,7 @@
+**Word of the Day: proviso**\
+`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/12/learning/word-of-the-day-proviso.html
+
 **‘He Lost Me’: Why 10 Voters Who Backed Trump in 2016 and 2020 Have Moved On**\
 `They cover why the former president has lost their support, why they aren’t necessarily fans of Biden and who might get their votes instead.`\
 https://nytimes.com/interactive/2024/03/12/opinion/former-trump-voters-focus-group.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/us/politics/faa-audit-boeing-737-max.html
 **Start of a Spell**\
 `Andrew Kingsley and Garrett Chalfin have a pitch-perfect puzzle for us.`\
 https://nytimes.com/2024/03/11/crosswords/daily-puzzle-2024-03-12.html
-
-**‘Corruption’ Review: Onstage, a Scandal’s Human Drama Is Muffled**\
-`A new play by J.T. Rogers goes behind the scenes of the shady “news-gathering” that rocked Rupert Murdoch’s British media empire over a decade ago.`\
-https://nytimes.com/2024/03/11/theater/corruption-review-phone-hacking-murdoch.html
 
