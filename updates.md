@@ -1,3 +1,19 @@
+**This 1,000-Year-Old Smartphone Just Dialed In**\
+`An 11th-century astrolabe, a complex instrument for precisely mapping the heavens, recently turned up in an Italian museum.`\
+https://nytimes.com/2024/03/12/science/astrolabe-hebrew-arabic.html
+
+**Here are 5 takeaways from Hur’s investigation into classified documents kept by Biden.**\
+`The special counsel, Robert K. Hur, concluded that the evidence was insufficient to charge President Biden with a crime, but sharply criticized him.`\
+https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/here-are-5-takeaways-from-hurs-investigation-into-classified-documents-kept-by-biden
+
+**In Hospitals, Affordable Housing Gets the Long-Term Investor It Needs**\
+`Health care systems and affordable housing developers have a mutual financial interest in helping communities live healthier.`\
+https://nytimes.com/2024/03/12/business/affordable-housing-hospitals-investment.html
+
+**The Bay Area Leads the National Shift to Electric Vehicles**\
+`San Jose and San Francisco had the highest E.V. adoption rate among major U.S. metropolitan areas last year.`\
+https://nytimes.com/2024/03/12/us/bay-area-electric-vehicles.html
+
 **Housing cost increases moderated in February but remain elevated.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed/housing-cost-increases-moderated-in-february-but-remain-elevated
