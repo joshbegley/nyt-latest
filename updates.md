@@ -1,3 +1,11 @@
+**The shipment of food from World Central Kitchen includes beans and flour.**\
+`By Monika Pronczuk`\
+https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news/the-shipment-of-food-from-world-central-kitchen-includes-beans-and-flour
+
+**12mideast-crisis**\
+`First Sea Shipment of Aid Departs for Gaza`\
+https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news
+
 **‘Floor Person’**\
 `Do you enjoy lying on the ground every once in a while?`\
 https://nytimes.com/2024/03/12/learning/floor-person.html

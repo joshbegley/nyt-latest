@@ -1,3 +1,7 @@
+**The shipment of food from World Central Kitchen includes beans and flour.**\
+`By Monika Pronczuk`\
+https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news/the-shipment-of-food-from-world-central-kitchen-includes-beans-and-flour
+
 **‘Floor Person’**\
 `Do you enjoy lying on the ground every once in a while?`\
 https://nytimes.com/2024/03/12/learning/floor-person.html
@@ -22,6 +26,10 @@ https://nytimes.com/2024/03/12/crosswords/spelling-bee-forum.html
 `Why did Donald Trump go online during the Oscars to criticize Kimmel’s performance as host? Kimmel thinks he was upset because no one had mentioned his name.`\
 https://nytimes.com/2024/03/12/arts/television/jimmy-kimmel-trump-oscars.html
 
+**12mideast-crisis**\
+`First Sea Shipment of Aid Departs for Gaza`\
+https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news
+
 **Tuesday Briefing**\
 `Republicans target TikTok, despite Donald Trump’s objection.`\
 https://nytimes.com/2024/03/12/briefing/tiktok-trump-republican-catherine-photo.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/12/briefing/tiktok-trump-republican-catherine-photo.
 **Word of the Day: proviso**\
 `This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/12/learning/word-of-the-day-proviso.html
-
-**‘He Lost Me’: Why 10 Voters Who Backed Trump in 2016 and 2020 Have Moved On**\
-`They cover why the former president has lost their support, why they aren’t necessarily fans of Biden and who might get their votes instead.`\
-https://nytimes.com/interactive/2024/03/12/opinion/former-trump-voters-focus-group.html
-
-**Corrections: March 12, 2024**\
-`Corrections that appeared in print on Tuesday, March 12, 2024.`\
-https://nytimes.com/2024/03/12/pageoneplus/corrections-march-12-2024.html
 
