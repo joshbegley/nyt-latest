@@ -1,3 +1,7 @@
+**Intelligence Officials Warn of Losses for Ukraine Without More U.S. Aid**\
+`William J. Burns, the C.I.A. director, and Avril D. Haines, the director of national intelligence, described an increasingly dire situation.`\
+https://nytimes.com/2024/03/11/us/politics/intelligence-officials-ukraine-aid.html
+
 **Where Antisemitism and Anti-Zionism Collide**\
 `People spit out the word “Zionist” when they really seem to mean “Jew.”`\
 https://nytimes.com/2024/03/11/opinion/antisemitism-vs-anti-zionism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/nyregion/lamor-whitehead-bling-bishop-verdict.htm
 **Sex Trafficking, De Facto Lies and Immigration**\
 `Senator Katie Britt’s deeply misleading tale.`\
 https://nytimes.com/2024/03/11/opinion/katie-britt-trump-immigration.html
-
-**Al Pacino Explains Awkward Oscars Moment Presenting Best Picture**\
-`The star, whose abrupt announcement that “Oppenheimer” had won best picture took some viewers by surprise, said the show’s producers had asked him not to name the other nominees.`\
-https://nytimes.com/2024/03/11/movies/al-pacino-oscars.html
 
