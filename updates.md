@@ -1,3 +1,7 @@
+**Marnia Lazreg, Scholar of Algeria and the Veil, Dies at 83**\
+`A Hunter College sociologist, she examined the power dynamics and difficult history of her native land from a feminist and anticolonial perspective.`\
+https://nytimes.com/2024/03/12/world/middleeast/marnia-lazreg-dead.html
+
 **Wednesday Briefing: Turmoil in Haiti**\
 `Also, more U.S. weapons for Ukraine and a looming financial crisis for dating apps`\
 https://nytimes.com/2024/03/12/world/asia/haiti-henry-ukraine-gaza-asia.html
