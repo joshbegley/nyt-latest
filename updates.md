@@ -1,3 +1,7 @@
+**Judge Throws Out Defamation Lawsuit Against Meghan, Duchess of Sussex**\
+`Meghan’s half sister had accused her of making “disparaging, hurtful and false” statements in an interview with Oprah Winfrey and in a Netflix documentary series.`\
+https://nytimes.com/2024/03/12/us/meghan-markle-defamation-lawsuit-netflix-oprah.html
+
 **Children Evacuated From Gazan Orphanage to West Bank**\
 `The German Embassy said it had helped a charity, SOS Children’s Villages International, move nearly 70 children from the city of Rafah to get them “out of acute danger.”`\
 https://nytimes.com/2024/03/12/world/middleeast/orphans-gaza-rafah-west-bank.html
