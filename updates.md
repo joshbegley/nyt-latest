@@ -1,3 +1,7 @@
+**What to Know About the Accusations Against Andrew Tate**\
+`The antagonistic online influencer is facing charges in two separate cases.`\
+https://nytimes.com/2024/03/12/world/europe/andrew-tate-arrests-explained.html
+
 **For Biden, the hearing on Capitol Hill is a mixed political blessing.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/for-biden-the-hearing-on-capitol-hill-is-a-mixed-political-blessing
