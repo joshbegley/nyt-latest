@@ -1,3 +1,11 @@
+**Who Are Hamas’s Top Leaders in Gaza?**\
+`Israel targeted Marwan Issa, a Hamas military leader, with a strike over the weekend. He is one of three leaders of the group in Gaza who Israel says were the main planners of the Oct. 7 attack.`\
+https://nytimes.com/2024/03/12/world/middleeast/hamas-leaders-gaza.html
+
+**Robert Hur is no stranger to high-wire investigations.**\
+`By Glenn Thrush, Adam Goldman and Luke Broadwater`\
+https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/robert-hur-is-no-stranger-to-high-wire-investigations
+
 **A Broadway-Bound ‘Sunset Boulevard’ Leads Olivier Award Nominations**\
 `The musical, starring Nicole Scherzinger, secured 11 nominations at Britain’s equivalent of the Tony Awards.`\
 https://nytimes.com/2024/03/12/theater/olivier-award-nominations-sunset-boulevard.html

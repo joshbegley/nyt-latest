@@ -1,3 +1,11 @@
+**Who Are Hamas’s Top Leaders in Gaza?**\
+`Israel targeted Marwan Issa, a Hamas military leader, with a strike over the weekend. He is one of three leaders of the group in Gaza who Israel says were the main planners of the Oct. 7 attack.`\
+https://nytimes.com/2024/03/12/world/middleeast/hamas-leaders-gaza.html
+
+**Robert Hur is no stranger to high-wire investigations.**\
+`By Glenn Thrush, Adam Goldman and Luke Broadwater`\
+https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/robert-hur-is-no-stranger-to-high-wire-investigations
+
 **A Broadway-Bound ‘Sunset Boulevard’ Leads Olivier Award Nominations**\
 `The musical, starring Nicole Scherzinger, secured 11 nominations at Britain’s equivalent of the Tony Awards.`\
 https://nytimes.com/2024/03/12/theater/olivier-award-nominations-sunset-boulevard.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/12/business/affordable-housing-hospitals-investment.
 **The Bay Area Leads the National Shift to Electric Vehicles**\
 `San Jose and San Francisco had the highest E.V. adoption rate among major U.S. metropolitan areas last year.`\
 https://nytimes.com/2024/03/12/us/bay-area-electric-vehicles.html
-
-**Housing cost increases moderated in February but remain elevated.**\
-`By Lydia DePillis`\
-https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed/housing-cost-increases-moderated-in-february-but-remain-elevated
-
-**Food price gains eased in February.**\
-`By Madeleine Ngo`\
-https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed/food-price-gains-eased-in-february
 
