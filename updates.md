@@ -1,3 +1,19 @@
+**India Law That Sparked Deadly Riots Is Enacted After a 4-Year Delay**\
+`The announcement about a citizenship law criticized as anti-Muslim is timed for Prime Minister Narendra Modi’s re-election campaign.`\
+https://nytimes.com/2024/03/12/world/asia/india-law-muslim-citizenship.html
+
+**All eyes are on housing as a big inflation driver.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed/all-eyes-are-on-housing-as-a-big-inflation-driver
+
+**Andrew Tate Is Arrested in Romania on U.K. Warrant, Spokesman Says**\
+`Mr. Tate and his brother, Tristan, were arrested on charges made between 2012 and 2015, which include allegations of sexual aggression, a spokesman said.`\
+https://nytimes.com/2024/03/12/world/europe/andrew-tate-arrested-uk-romania.html
+
+**Family Goes Missing After Heavy Rains Drench Western Australia**\
+`Seven people, including four children, haven’t been seen in more than a day after 5.5 inches of rain in 24 hours led to floods and closed roads.`\
+https://nytimes.com/2024/03/12/world/australia/wa-nullarbor-floods.html
+
 **Convicting Politicians**\
 `As a bribery case against a U.S. senator moves forward, a look at why corruption charges are so hard to prove.`\
 https://nytimes.com/2024/03/12/briefing/bob-menendez-bribery-case.html
