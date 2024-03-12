@@ -1,3 +1,7 @@
+**The Royals Tried to Control Their Image Online. The Internet Had Other Ideas.**\
+`Prince William and Princess Catherine, along with Prince Harry, initially embraced social media as a way to bypass the media they reviled.`\
+https://nytimes.com/2024/03/12/world/europe/princess-kate-middleton-royals-photo.html
+
 **Taxes Are a Big Gray Area in Biden’s Budget**\
 `His pledge not to raise middle-class taxes will be expensive, but offsetting increases on the rich remain unspecified.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-budget-income-tax
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/dining/don-angie-new-restaurant.html
 **Avalanche Expert’s Death Shows Dangers of Backcountry Skiing**\
 `Nick Burks, 37, an avalanche forecaster and experienced backcountry skier, was killed while skiing in the Elkhorn Mountains in northeastern Oregon last week, the authorities said.`\
 https://nytimes.com/2024/03/12/us/oregon-avalanche-forecaster-killed.html
-
-**U.K. Conservative Party Under Fire Over Donor’s Alleged Racist Remarks**\
-`Frank Hester, the leading supporter of Britain’s Conservative Party, is accused of making the comments about Diane Abbott, a well-known lawmaker.`\
-https://nytimes.com/2024/03/12/world/europe/uk-diane-abbott-frank-hester.html
 
