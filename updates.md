@@ -1,3 +1,7 @@
+**Top Navalny Aide Attacked With Hammer Outside Home in Lithuania**\
+`Leonid Volkov, a top aide to Aleksei Navalny, was beaten and sprayed with tear gas as he was pulling up to his house in Vilnius.`\
+https://nytimes.com/2024/03/12/world/europe/navalny-aide-leonid-volkov-attacked.html
+
 **Republicans Should Have Thanked Robert Hur. Instead, They Yelled.**\
 `A hearing where grievances muscled aside fact-finding.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/hur-hearing-republicans

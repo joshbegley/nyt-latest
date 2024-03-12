@@ -1,3 +1,7 @@
+**Top Navalny Aide Attacked With Hammer Outside Home in Lithuania**\
+`Leonid Volkov, a top aide to Aleksei Navalny, was beaten and sprayed with tear gas as he was pulling up to his house in Vilnius.`\
+https://nytimes.com/2024/03/12/world/europe/navalny-aide-leonid-volkov-attacked.html
+
 **Republicans Should Have Thanked Robert Hur. Instead, They Yelled.**\
 `A hearing where grievances muscled aside fact-finding.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/hur-hearing-republicans
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/us/politics/russia-navy-commander-fired.html
 **Olga Murray, Who Changed the Lives of Children in Nepal, Dies at 98**\
 `Her foundation rescued thousands of girls and young women from bonded slavery and secured meals and schooling for impoverished children.`\
 https://nytimes.com/2024/03/12/world/asia/olga-murray-dead.html
-
-**Boeing Whistleblower Who Raised Quality Concerns Is Found Dead**\
-`John Barnett had accused the plane manufacturer for retaliating against him after he flagged problems he saw at Boeing’s 787 factory in South Carolina.`\
-https://nytimes.com/2024/03/12/business/john-barnett-boeing-whistleblower-dead.html
 

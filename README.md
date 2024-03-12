@@ -1,9 +1,29 @@
+**First Aid Ship Heads to Gaza, but Far More Is Needed**\
+`The maritime package of more than 200 tons of food is a welcome milestone, but not nearly enough to prevent famine, said relief officials, who called on Israel to allow more aid delivery by land.`\
+https://nytimes.com/2024/03/12/world/middleeast/israel-gaza-aid-ship.html
+
+**A Chance for Hope in Haiti’s Latest Crisis**\
+`Why I am hopeful — and fearful — about the country’s future.`\
+https://nytimes.com/2024/03/12/opinion/haiti-crisis-united-states.html
+
+**Israel Has No Choice but to Fight On**\
+`As long as Hamas maintains military power, there is no hope for peace.`\
+https://nytimes.com/2024/03/12/opinion/israel-hamas-war-military.html
+
+**Netanyahu Is Making Israel Radioactive**\
+`Things have gone terribly wrong in Gaza. They could get worse soon.`\
+https://nytimes.com/2024/03/12/opinion/israel-hamas-war-netanyahu.html
+
+**Literary Magazine Retracts Israeli Writer’s Essay as Staffers Quit**\
+`An Israeli writer’s essay about seeking common ground with Palestinians led to the resignation of at least 10 staff members at Guernica.`\
+https://nytimes.com/2024/03/12/arts/guernica-magazine-staff-quits-israel.html
+
 **Top Navalny Aide Attacked With Hammer Outside Home in Lithuania**\
 `Leonid Volkov, a top aide to Aleksei Navalny, was beaten and sprayed with tear gas as he was pulling up to his house in Vilnius.`\
 https://nytimes.com/2024/03/12/world/europe/navalny-aide-leonid-volkov-attacked.html
 
 **Republicans Should Have Thanked Robert Hur. Instead, They Yelled.**\
-`A hearing where grievances muscled aside fact-finding.`\
+`A hearing where grievances muscled aside fact finding.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/hur-hearing-republicans
 
 **New Federal Judiciary Rule Will Limit ‘Forum Shopping’ by Plaintiffs**\
@@ -17,24 +37,4 @@ https://nytimes.com/2024/03/12/world/europe/monolith-wales-uk.html
 **Why Are Aid Workers Getting Killed in Gaza?**\
 `Israel must do a better job of protecting those trying to prevent Palestinian starvation.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/aid-workers-killed-gaza
-
-**The U.S. Cobbled Together $300 Million More for Ukraine**\
-`Also, the Biden special counsel was attacked on Capitol Hill. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/03/12/briefing/us-aid-ukraine-special-counsel-biden-hill.html
-
-**Israel and Hamas are not near a cease-fire deal, Qatar says.**\
-`By Anushka Patil and Adam Rasgon`\
-https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news/israel-and-hamas-are-not-near-a-cease-fire-deal-qatar-says
-
-**Sotomayor and Barrett, Lately at Odds, Discuss Relations at the Supreme Court**\
-`A conversation on civics and civility included discussion of whether the court is more like a really good preschool or an arranged marriage with no possibility of divorce.`\
-https://nytimes.com/2024/03/12/us/sotomayor-barrett-supreme-court.html
-
-**After Ukrainian Strikes, Russia Fires Top Naval Commander**\
-`American officials estimated that Ukraine, a country without a traditional navy, has sunk 15 Russian ships in the past six months.`\
-https://nytimes.com/2024/03/12/us/politics/russia-navy-commander-fired.html
-
-**Olga Murray, Who Changed the Lives of Children in Nepal, Dies at 98**\
-`Her foundation rescued thousands of girls and young women from bonded slavery and secured meals and schooling for impoverished children.`\
-https://nytimes.com/2024/03/12/world/asia/olga-murray-dead.html
 
