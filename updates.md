@@ -1,3 +1,11 @@
+**Uvalde Police Chief Announces Resignation**\
+`The news comes less than a week after an investigation by the city of Uvalde found that city police officers made mistakes during a 2022 mass shooting, but did not violate policy.`\
+https://nytimes.com/2024/03/12/us/daniel-rodriguez-uvalde-police-resign.html
+
+**Warden Ousted From Federal Women’s Prison Plagued by Sex Abuse**\
+`Leaders of a Northern California prison were removed on the same day that the F.B.I. raided the troubled facility.`\
+https://nytimes.com/2024/03/12/us/warden-ousted-sex-abuse-womens-prison.html
+
 **The Tension Behind Trump’s Appeals to Black Voters**\
 `The former president traffics in stereotypes about Black Americans, yet he is counting on them, and aggressively courting them, in seeking to return to the White House.`\
 https://nytimes.com/2024/03/12/us/politics/trump-black-voters.html
