@@ -1,3 +1,7 @@
+**Wednesday Briefing: Turmoil in Haiti**\
+`Also, more U.S. weapons for Ukraine and a looming financial crisis for dating apps`\
+https://nytimes.com/2024/03/12/world/asia/haiti-henry-ukraine-gaza-asia.html
+
 **White House Denies Biden Has Set ‘Red Lines’ for Israel-Hamas War in Gaza**\
 `The Biden administration repeated its warning that Israel should not attack the city of Rafah, the southernmost city in the enclave, without protections for the more than a million people sheltering there.`\
 https://nytimes.com/2024/03/12/world/middleeast/biden-netanyahu-israel-gaza-red-lines.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/world/europe/princess-kate-middleton-royals-photo
 **Taxes Are a Big Gray Area in Biden’s Budget**\
 `His pledge not to raise middle-class taxes will be expensive, but offsetting increases on the rich remain unspecified.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/biden-budget-income-tax
-
-**Where Will Kyrsten Sinema’s Centrist Voters Go?**\
-`The Democrat-turned-independent senator from Arizona said she will not run for re-election. Some voters who supported her say they are feeling squeezed out of politics.`\
-https://nytimes.com/2024/03/12/us/kyrsten-sinema-arizona-moderate-voters.html
 
