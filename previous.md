@@ -1,3 +1,11 @@
+**Airbnb Bans All Indoor Security Cameras**\
+`Widespread use of indoor security cameras has raised concerns about privacy in vacation rentals, hotels, public bathrooms, locker rooms and on cruise ships.`\
+https://nytimes.com/2024/03/12/business/airbnb-indoor-camera-ban.html
+
+**Audience Snapshot: Four Years After Shutdown, a Mixed Recovery**\
+`Covid brought live performance to a halt. Now the audience for pop concerts and sporting events has roared back, while attendance on Broadway and at some major museums is still down.`\
+https://nytimes.com/2024/03/12/arts/covid-shutdown-live-audiences.html
+
 **Smithsonian American Women’s History Museum Names New Director**\
 `Elizabeth C. Babcock, the chief executive of Forever Balboa Park, will start this summer, after Nancy Yao’s withdrawal.`\
 https://nytimes.com/2024/03/12/arts/design/elizabeth-babcock-smithsonian-american-womens-history-museum-director.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/12/theater/olivier-award-nominations-sunset-boulevar
 **Washington State Will Be Next Test of ‘Uncommitted’ Protest Against Biden**\
 `The state’s primary election on Tuesday is the latest site of a movement to reject the president over his stance on Israel, though it may be days before the results are fully clear.`\
 https://nytimes.com/2024/03/12/us/politics/biden-uncommitted-washington-israel-gaza.html
-
-**Trump and Biden could formally clinch their parties’ nominations with Tuesday’s primaries.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/03/12/us/2024-election-trump-biden/trump-and-biden-could-formally-clinch-their-parties-nominations-with-tuesdays-primaries
-
-**Ukraine-Backed Russian Exile Groups Stage Assaults on Moscow’s Turf**\
-`The attacks and drone strikes across the southern border were intended to counter President Vladimir V. Putin’s control over Russia, a leader in one of the groups said.`\
-https://nytimes.com/2024/03/12/world/europe/ukraine-russia-drone-attacks-putin.html
 
