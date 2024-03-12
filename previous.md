@@ -1,3 +1,7 @@
+**U.S.-Israeli Citizen Itay Chen Was Killed in Oct. 7 Attack, Parents Say**\
+`Ruby and Hagit Chen said that they expected the Israeli prime minister, Benjamin Netanyahu, and President Biden to do “everything in their power” to bring Itay’s remains and the other hostages home.`\
+https://nytimes.com/2024/03/12/world/middleeast/us-israeli-citizen-itay-chen-killed.html
+
 **For Some Mammals, Large Adult Daughters, Not Sons, Are the Norm**\
 `Despite a common narrative that male mammals tend to dwarf female ones, fewer than half of mammalian species display that pattern, a new study suggests.`\
 https://nytimes.com/2024/03/12/science/mammals-size-male-female.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/us/politics/biden-budget-trump.html
 **Police Officers Used Stun Gun on Migrant Holding Toddler, Video Shows**\
 `The altercation occurred at a migrant shelter in Queens following a dispute between the man and a shelter employee. New York City officials are investigating.`\
 https://nytimes.com/2024/03/12/nyregion/migrant-police-stun-gun-video.html
-
-**Dating Apps Have Hit a Wall. Can They Turn Things Around?**\
-`The apps have changed our love lives, but they haven’t been able to convince enough young users to pay.`\
-https://nytimes.com/2024/03/12/business/dating-apps-tinder-bumble.html
 

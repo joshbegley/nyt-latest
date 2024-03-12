@@ -1,3 +1,7 @@
+**U.S.-Israeli Citizen Itay Chen Was Killed in Oct. 7 Attack, Parents Say**\
+`Ruby and Hagit Chen said that they expected the Israeli prime minister, Benjamin Netanyahu, and President Biden to do “everything in their power” to bring Itay’s remains and the other hostages home.`\
+https://nytimes.com/2024/03/12/world/middleeast/us-israeli-citizen-itay-chen-killed.html
+
 **For Some Mammals, Large Adult Daughters, Not Sons, Are the Norm**\
 `Despite a common narrative that male mammals tend to dwarf female ones, fewer than half of mammalian species display that pattern, a new study suggests.`\
 https://nytimes.com/2024/03/12/science/mammals-size-male-female.html
