@@ -1,3 +1,7 @@
+**Bitcoin’s Winning Streak Continues**\
+`The cryptocurrency has recently set a series of records, extending a rapid rally that has emboldened the virtual currency industry to flex its political muscle.`\
+https://nytimes.com/2024/03/12/business/dealbook/bitcoin-price.html
+
 **Hur’s appearance gives Republicans a political opening for their attacks on Biden.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/hurs-appearance-gives-republicans-a-political-opening-for-their-attacks-on-biden

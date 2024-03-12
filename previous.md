@@ -1,3 +1,7 @@
+**Bitcoin’s Winning Streak Continues**\
+`The cryptocurrency has recently set a series of records, extending a rapid rally that has emboldened the virtual currency industry to flex its political muscle.`\
+https://nytimes.com/2024/03/12/business/dealbook/bitcoin-price.html
+
 **Hur’s appearance gives Republicans a political opening for their attacks on Biden.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/hurs-appearance-gives-republicans-a-political-opening-for-their-attacks-on-biden
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/business/airbnb-indoor-camera-ban.html
 **Audience Snapshot: Four Years After Shutdown, a Mixed Recovery**\
 `Covid brought live performance to a halt. Now the audience for pop concerts and sporting events has roared back, while attendance on Broadway and at some major museums is still down.`\
 https://nytimes.com/2024/03/12/arts/covid-shutdown-live-audiences.html
-
-**Smithsonian American Women’s History Museum Names New Director**\
-`Elizabeth C. Babcock, the chief executive of Forever Balboa Park, will start this summer, after Nancy Yao’s withdrawal.`\
-https://nytimes.com/2024/03/12/arts/design/elizabeth-babcock-smithsonian-american-womens-history-museum-director.html
 
