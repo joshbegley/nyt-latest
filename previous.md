@@ -1,3 +1,11 @@
+**Sotomayor and Barrett, Lately at Odds, Discuss Relations at the Supreme Court**\
+`A conversation on civics and civility included discussion of whether the court is more like a really good preschool or an arranged marriage with no possibility of divorce.`\
+https://nytimes.com/2024/03/12/us/sotomayor-barrett-supreme-court.html
+
+**After Ukrainian Strikes, Russia Fires Top Naval Commander**\
+`American officials estimated that Ukraine, a country without a traditional navy, has sunk 15 Russian ships in the past six months.`\
+https://nytimes.com/2024/03/12/us/politics/russia-navy-commander-fired.html
+
 **Olga Murray, Who Changed the Lives of Children in Nepal, Dies at 98**\
 `Her foundation rescued thousands of girls and young women from bonded slavery and secured meals and schooling for impoverished children.`\
 https://nytimes.com/2024/03/12/world/asia/olga-murray-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/12/us/politics/rfk-jr-aaron-rodgers-jesse-ventura.ht
 **Uvalde Police Chief Announces Resignation**\
 `The news comes less than a week after an investigation by the city of Uvalde found that city police officers made mistakes during a 2022 mass shooting, but did not violate policy.`\
 https://nytimes.com/2024/03/12/us/daniel-rodriguez-uvalde-police-resign.html
-
-**Warden Ousted From Federal Women’s Prison Plagued by Sex Abuse**\
-`Leaders of a Northern California prison were removed on the same day that the F.B.I. raided the troubled facility.`\
-https://nytimes.com/2024/03/12/us/warden-ousted-sex-abuse-womens-prison.html
-
-**Trump Courts Black Voters Even as He Traffics in Stereotypes**\
-`The former president traffics in stereotypes about Black Americans, yet he is counting on them, and aggressively courting them, in seeking to return to the White House.`\
-https://nytimes.com/2024/03/12/us/politics/trump-black-voters.html
 

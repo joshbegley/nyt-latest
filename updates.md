@@ -1,3 +1,11 @@
+**Sotomayor and Barrett, Lately at Odds, Discuss Relations at the Supreme Court**\
+`A conversation on civics and civility included discussion of whether the court is more like a really good preschool or an arranged marriage with no possibility of divorce.`\
+https://nytimes.com/2024/03/12/us/sotomayor-barrett-supreme-court.html
+
+**After Ukrainian Strikes, Russia Fires Top Naval Commander**\
+`American officials estimated that Ukraine, a country without a traditional navy, has sunk 15 Russian ships in the past six months.`\
+https://nytimes.com/2024/03/12/us/politics/russia-navy-commander-fired.html
+
 **Olga Murray, Who Changed the Lives of Children in Nepal, Dies at 98**\
 `Her foundation rescued thousands of girls and young women from bonded slavery and secured meals and schooling for impoverished children.`\
 https://nytimes.com/2024/03/12/world/asia/olga-murray-dead.html
