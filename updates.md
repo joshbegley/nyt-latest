@@ -1,3 +1,7 @@
+**Boeing Whistleblower Who Raised Quality Concerns Is Found Dead**\
+`John Barnett had accused the plane manufacturer for retaliating against him after he flagged problems he saw at Boeing’s 787 factory in South Carolina.`\
+https://nytimes.com/2024/03/12/business/john-barnett-boeing-whistleblower-dead.html
+
 **Marnia Lazreg, Scholar of Algeria and the Veil, Dies at 83**\
 `A Hunter College sociologist, she examined the power dynamics and difficult history of her native land from a feminist and anticolonial perspective.`\
 https://nytimes.com/2024/03/12/world/middleeast/marnia-lazreg-dead.html
