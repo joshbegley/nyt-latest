@@ -1,3 +1,7 @@
+**Ukraine-Backed Russian Exile Groups Stage Assaults on Moscow’s Turf**\
+`The attacks and drone strikes across the southern border were intended to counter President Vladimir V. Putin’s control over Russia, a leader in one of the groups said.`\
+https://nytimes.com/2024/03/12/world/europe/ukraine-russia-drone-attacks-putin.html
+
 **This 1,000-Year-Old Smartphone Just Dialed In**\
 `An 11th-century astrolabe, a complex instrument for precisely mapping the heavens, recently turned up in an Italian museum.`\
 https://nytimes.com/2024/03/12/science/astrolabe-hebrew-arabic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/business/dealbook/tiktok-house-ban.html
 **How the Special Counsel’s Portrayal of Biden’s Memory Compares With the Transcript**\
 `The special counsel, Robert K. Hur, accused the president last month of “significant” memory problems. The interview transcript offers context to his report.`\
 https://nytimes.com/2024/03/12/us/politics/hur-biden-memory-transcript.html
-
-**Hezbollah Fires More Than 100 Rockets Into Israel, Drawing Retaliation**\
-`The barrage by Hezbollah was among the heaviest in the months of cross-border strikes that have fed fears that the war in Gaza could expand.`\
-https://nytimes.com/2024/03/12/world/middleeast/hezbollah-rockets-israel-lebanon.html
 

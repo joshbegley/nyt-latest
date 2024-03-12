@@ -1,3 +1,7 @@
+**Ukraine-Backed Russian Exile Groups Stage Assaults on Moscow’s Turf**\
+`The attacks and drone strikes across the southern border were intended to counter President Vladimir V. Putin’s control over Russia, a leader in one of the groups said.`\
+https://nytimes.com/2024/03/12/world/europe/ukraine-russia-drone-attacks-putin.html
+
 **This 1,000-Year-Old Smartphone Just Dialed In**\
 `An 11th-century astrolabe, a complex instrument for precisely mapping the heavens, recently turned up in an Italian museum.`\
 https://nytimes.com/2024/03/12/science/astrolabe-hebrew-arabic.html
