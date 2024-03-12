@@ -1,3 +1,7 @@
+**The Clock Ticks for TikTok**\
+`Advertisers are sticking with the social media platform, even as the House prepares to vote on a bill to force the company to cut its China ties this week.`\
+https://nytimes.com/2024/03/12/business/dealbook/tiktok-house-ban.html
+
 **How the Special Counsel’s Portrayal of Biden’s Memory Compares With the Transcript**\
 `The special counsel, Robert K. Hur, accused the president last month of “significant” memory problems. The interview transcript offers context to his report.`\
 https://nytimes.com/2024/03/12/us/politics/hur-biden-memory-transcript.html
