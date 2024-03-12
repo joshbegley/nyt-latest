@@ -1,3 +1,15 @@
+**China’s Exports Are Surging. Get Ready for the Global Backlash.**\
+`Increasing overseas sales of manufactured goods are helping China’s economy and creating employment, but countries from Europe to South Asia may lose jobs.`\
+https://nytimes.com/2024/03/12/business/china-exports-backlash.html
+
+**The Daily Hunt for Food in Gaza**\
+`Aid is scarce and food prices are high. Three families shared their recent struggles to find something to eat.`\
+https://nytimes.com/interactive/2024/03/12/world/middleeast/gaza-hunger.html
+
+**It’s Never Too Late to Find a New Career (a Mile Above Your Old One)**\
+`Patrick Milando, an accomplished French horn player, now splits his time between the orchestra pit and the cockpit, where he teaches budding pilots like he himself once was.`\
+https://nytimes.com/2024/03/12/business/pilot-learn-flying-french-horn-player.html
+
 **F.A.A. Audit of Boeing’s 737 Max Production Found Dozens of Issues**\
 `The company failed 33 of 89 audits during an examination conducted by the Federal Aviation Administration after a panel blew off an Alaska Airlines jet in January.`\
 https://nytimes.com/2024/03/11/us/politics/faa-audit-boeing-737-max.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/11/movies/oscars-ryan-gosling-just-ken-mandy-moore.h
 **Intelligence Officials Warn of Losses for Ukraine Without More U.S. Aid**\
 `William J. Burns, the C.I.A. director, and Avril D. Haines, the director of national intelligence, described an increasingly dire situation.`\
 https://nytimes.com/2024/03/11/us/politics/intelligence-officials-ukraine-aid.html
-
-**Where Antisemitism and Anti-Zionism Collide**\
-`People spit out the word “Zionist” when they really seem to mean “Jew.”`\
-https://nytimes.com/2024/03/11/opinion/antisemitism-vs-anti-zionism.html
-
-**‘Barbenheimer,’ and an Early Start, Boost Oscar Ratings to 4-Year High**\
-`ABC’s telecast of the 96th Academy Awards on Sunday drew 19.5 million viewers, according to Nielsen.`\
-https://nytimes.com/2024/03/11/business/media/oscar-viewers-ratings.html
-
-**Trump Aides, Taking Over R.N.C., Order Mass Layoffs**\
-`The Republican Party apparatus is undergoing a large cut with just eight months until the election.`\
-https://nytimes.com/2024/03/11/us/politics/rnc-trump-layoffs.html
 
