@@ -1,3 +1,11 @@
+**Eric Carmen, Raspberries Frontman and ‘All By Myself’ Singer, Dies at 74**\
+`He sang on the power-pop pioneers’ 1972 breakout hit, “Go All The Way,” before launching a successful solo career as a soft rock crooner.`\
+https://nytimes.com/2024/03/12/arts/music/eric-carmen-dead.html
+
+**Zimbabwe, After Expelling U.S. Officials, Accuses Them of Promoting ‘Regime Change’**\
+`American officials say their team was in the country to assess governance issues, but was detained and interrogated before being deported.`\
+https://nytimes.com/2024/03/12/world/africa/zimbabwe-expels-us-officials.html
+
 **China’s Exports Are Surging. Get Ready for the Global Backlash.**\
 `Increasing overseas sales of manufactured goods are helping China’s economy and creating employment, but countries from Europe to South Asia may lose jobs.`\
 https://nytimes.com/2024/03/12/business/china-exports-backlash.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/11/us/oil-sheen-huntington-beach.html
 **Attendees at Kansas G.O.P. Event Punch and Kick Mannequin Wearing a Biden Mask**\
 `The mannequin was dressed in a T-shirt that said “Let’s Go Brandon.” The county party chair said that “the mask was regrettable and removed.”`\
 https://nytimes.com/2024/03/11/us/politics/biden-effigy-mannequin-kansas.html
-
-**How ‘I’m Just Ken’ Won the Oscars Without Winning an Actual Oscar**\
-`Working off ideas from Ryan Gosling and Greta Gerwig, the choreographer Mandy Moore created the crowd-pleasing number in days.`\
-https://nytimes.com/2024/03/11/movies/oscars-ryan-gosling-just-ken-mandy-moore.html
-
-**Intelligence Officials Warn of Losses for Ukraine Without More U.S. Aid**\
-`William J. Burns, the C.I.A. director, and Avril D. Haines, the director of national intelligence, described an increasingly dire situation.`\
-https://nytimes.com/2024/03/11/us/politics/intelligence-officials-ukraine-aid.html
 

@@ -1,3 +1,11 @@
+**Eric Carmen, Raspberries Frontman and ‘All By Myself’ Singer, Dies at 74**\
+`He sang on the power-pop pioneers’ 1972 breakout hit, “Go All The Way,” before launching a successful solo career as a soft rock crooner.`\
+https://nytimes.com/2024/03/12/arts/music/eric-carmen-dead.html
+
+**Zimbabwe, After Expelling U.S. Officials, Accuses Them of Promoting ‘Regime Change’**\
+`American officials say their team was in the country to assess governance issues, but was detained and interrogated before being deported.`\
+https://nytimes.com/2024/03/12/world/africa/zimbabwe-expels-us-officials.html
+
 **China’s Exports Are Surging. Get Ready for the Global Backlash.**\
 `Increasing overseas sales of manufactured goods are helping China’s economy and creating employment, but countries from Europe to South Asia may lose jobs.`\
 https://nytimes.com/2024/03/12/business/china-exports-backlash.html
