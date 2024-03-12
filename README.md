@@ -1,3 +1,7 @@
+**David Mixner, Fierce Fighter for Gay Rights, Is Dead at 77**\
+`He persuaded Ronald Reagan to help defeat a proposed ban on L.G.B.T.Q. schoolteachers in California in 1978, and he sparred with his friend Bill Clinton over “don’t ask, don’t tell.”`\
+https://nytimes.com/2024/03/12/us/politics/david-mixner-dead.html
+
 **How Education and Experience Can Help Prisoners Achieve Parole**\
 `Responses to a guest essay about the plight of the older incarcerated. Also: Close call on Jan. 6; the killing of innocents; the purpose of college.`\
 https://nytimes.com/2024/03/12/opinion/older-prisoners-parole.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/arts/design/elizabeth-babcock-smithsonian-america
 **Five Easy Dill Dinners**\
 `Ginger-dill salmon, skillet chicken with orzo, dill and feta and (frozen) fava bean stew are herbaceously springy.`\
 https://nytimes.com/2024/03/12/dining/five-easy-dill-dinners.html
-
-**What to Know About the Accusations Against Andrew Tate**\
-`The antagonistic online influencer is facing charges in two separate cases.`\
-https://nytimes.com/2024/03/12/world/europe/andrew-tate-arrests-explained.html
 
