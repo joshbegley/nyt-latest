@@ -23,7 +23,7 @@ https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/the-un-secu
 https://nytimes.com/2024/03/11/world/americas/blinken-haiti-aid-gangs.html
 
 **3 Children and 2 Adults Killed as School Bus and Truck Collide in Illinois**\
-`All four people in the bus died, as did the driver of a semi-truck, the authorities said. The school district canceled classes on Tuesday and Wednesday out of respect for the victims.`\
+`All four people in the bus died, as did the driver of a semi-truck, the authorities. The school district canceled classes on Tuesday and Wednesday out of respect for the victims.`\
 https://nytimes.com/2024/03/11/us/urlillinois-school-bus-crash-five-dead.html
 
 **Netanyahu’s Coalition ‘May Be in Jeopardy,’ Intelligence Report Says**\
