@@ -1,3 +1,7 @@
+**Hezbollah Fires More Than 100 Rockets Into Israel, Drawing Retaliation**\
+`The barrage by Hezbollah was among the heaviest in the months of cross-border strikes that have fed fears that the war in Gaza could expand.`\
+https://nytimes.com/2024/03/12/world/middleeast/hezbollah-rockets-israel-lebanon.html
+
 **Tuxedos Stole the Show at This Year’s Oscars**\
 `And they were more than a fashion statement.`\
 https://nytimes.com/2024/03/12/podcasts/tuxedos-stole-the-show-at-this-years-oscars.html
