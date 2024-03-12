@@ -1,3 +1,7 @@
+**Poised and Precise, Hur Enters Fray Over Special Counsel’s Report on Biden**\
+`Robert K. Hur defended himself in the unhurried, forceful cadence of a veteran prosecutor, delivering his responses in a flat, matter-of-fact tone.`\
+https://nytimes.com/2024/03/12/us/politics/robert-hur-testimony.html
+
 **Biden Clinches Democratic Nomination as Trump Awaits**\
 `The president secured enough delegates to become his party’s standard-bearer after a mostly uncontested primary campaign marked by Democratic doubts.`\
 https://nytimes.com/2024/03/12/us/politics/biden-democratic-nomination.html
