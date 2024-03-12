@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘When Mom Left’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/03/12/style/tiny-modern-love-stories-when-mom-left.html
+
 **5 Takeaways From Hur’s Testimony About the Biden Classified Documents Inquiry**\
 `A former special counsel, Robert K. Hur, faced sharp scrutiny over his conclusion that the evidence was insufficient to charge President Biden with a crime and his disparaging remarks about the president’s memory.`\
 https://nytimes.com/2024/03/12/us/politics/biden-hur-special-counsel-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/12/us/biden-hur-transcript-both-days.htm
 **9 Sunny Songs for Springing Ahead**\
 `To celebrate the return of daylight saving time, here’s a playlist full of songs about sunshine and daylight.`\
 https://nytimes.com/2024/03/12/arts/music/amplifier-newsletter-sunny-songs.html
-
-**Nebraska Lawmakers Sustain Veto of Needle Exchange Bill**\
-`As the harm reduction approach to illegal drug use loses favor across the country, Nebraska legislators failed on Tuesday to override the governor’s veto of a bill to provide drug users with access to clean needles.`\
-https://nytimes.com/2024/03/12/us/nebraska-drugs-needle-exchange.html
 
