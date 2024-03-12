@@ -1,3 +1,7 @@
+**Biden Clinches Democratic Nomination as Trump Awaits**\
+`The president secured enough delegates to become his party’s standard-bearer after a mostly uncontested primary campaign marked by Democratic doubts.`\
+https://nytimes.com/2024/03/12/us/politics/biden-democratic-nomination.html
+
 **To Whom Would You Write an Open Letter?**\
 `A politician or a celebrity? A leader of a company? A school administrator? Your mom? Use our questions below to brainstorm ideas for our contest.`\
 https://nytimes.com/2024/03/12/learning/to-whom-would-you-write-an-open-letter.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/12/opinion/thepoint/hur-hearing-republicans
 **New Federal Judiciary Rule Will Limit ‘Forum Shopping’ by Plaintiffs**\
 `For years, litigants have tried to cherry-pick the judges in sweeping cases on abortion and immigration. Random judge selection is about to make that harder.`\
 https://nytimes.com/2024/03/12/us/judge-selection-forum-shopping.html
-
-**A ‘Perfect Monolith’ Appears in Wales**\
-`A local resident said he discovered the shiny, silver object on a prominent hill during his daily walk.`\
-https://nytimes.com/2024/03/12/world/europe/monolith-wales-uk.html
 

@@ -1,3 +1,7 @@
+**Biden Clinches Democratic Nomination as Trump Awaits**\
+`The president secured enough delegates to become his party’s standard-bearer after a mostly uncontested primary campaign marked by Democratic doubts.`\
+https://nytimes.com/2024/03/12/us/politics/biden-democratic-nomination.html
+
 **To Whom Would You Write an Open Letter?**\
 `A politician or a celebrity? A leader of a company? A school administrator? Your mom? Use our questions below to brainstorm ideas for our contest.`\
 https://nytimes.com/2024/03/12/learning/to-whom-would-you-write-an-open-letter.html
