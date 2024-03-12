@@ -1,3 +1,11 @@
+**Police Officers Used Stun Gun on Migrant Holding Toddler, Video Shows**\
+`The altercation occurred at a migrant shelter in Queens following a dispute between the man and a shelter employee. New York City officials are investigating.`\
+https://nytimes.com/2024/03/12/nyregion/migrant-police-stun-gun-video.html
+
+**Dating Apps Have Hit a Wall. Can They Turn Things Around?**\
+`The apps have changed our love lives, but they haven’t been able to convince enough young users to pay.`\
+https://nytimes.com/2024/03/12/business/dating-apps-tinder-bumble.html
+
 **She Trusted God and Science. They Both Failed Her.**\
 `In “Devout,” an author who grew up in the evangelical church recounts her struggle to find spiritual and psychological well-being after a mental health challenge.`\
 https://nytimes.com/2024/03/12/books/review/devout-anna-gazmarian.html
