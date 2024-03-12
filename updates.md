@@ -1,3 +1,7 @@
+**For Biden, the hearing on Capitol Hill is a mixed political blessing.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/for-biden-the-hearing-on-capitol-hill-is-a-mixed-political-blessing
+
 **Who Are Hamas’s Top Leaders in Gaza?**\
 `Israel targeted Marwan Issa, a Hamas military leader, with a strike over the weekend. He is one of three leaders of the group in Gaza who Israel says were the main planners of the Oct. 7 attack.`\
 https://nytimes.com/2024/03/12/world/middleeast/hamas-leaders-gaza.html
