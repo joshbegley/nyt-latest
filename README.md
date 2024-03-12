@@ -1,3 +1,7 @@
+**Judge Throws Out Defamation Lawsuit Against Meghan, Duchess of Sussex**\
+`Meghan’s half sister had accused her of making “disparaging, hurtful and false” statements in an interview with Oprah Winfrey and in a Netflix documentary series.`\
+https://nytimes.com/2024/03/12/us/meghan-markle-defamation-lawsuit-netflix-oprah.html
+
 **Children Evacuated From Gazan Orphanage to West Bank**\
 `The German Embassy said it had helped a charity, SOS Children’s Villages International, move nearly 70 children from the city of Rafah to get them “out of acute danger.”`\
 https://nytimes.com/2024/03/12/world/middleeast/orphans-gaza-rafah-west-bank.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/science/mammals-size-male-female.html
 **Kenya Hits Pause on Police Deployment to Haiti**\
 `The African nation said it would not send a force until Haiti forms a new government after the Haitian prime minister announced his intention to resign.`\
 https://nytimes.com/2024/03/12/world/americas/kenya-haiti-police-deployment.html
-
-**‘We’re All Living in Oppenheimer’s World’**\
-`The danger he created requires moral leadership, as he warned in 1945.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/oppenheimer-nolan-murphy
 
