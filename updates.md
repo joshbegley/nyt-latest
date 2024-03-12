@@ -1,3 +1,7 @@
+**An Artist’s Response to a Racist Mural Walks a Fine Line**\
+`Activists urged Tate Britain to take an offensive artwork from 1927 off its walls, but the museum instead commissioned Keith Piper to create a response.`\
+https://nytimes.com/2024/03/12/arts/design/tate-britain-mural-keith-piper.html
+
 **U.S.-Israeli Citizen Itay Chen Was Killed in Oct. 7 Attack, Parents Say**\
 `Ruby and Hagit Chen said that they expected the Israeli prime minister, Benjamin Netanyahu, and President Biden to do “everything in their power” to bring Itay’s remains and the other hostages home.`\
 https://nytimes.com/2024/03/12/world/middleeast/us-israeli-citizen-itay-chen-killed.html
