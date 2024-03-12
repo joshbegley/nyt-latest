@@ -1,3 +1,7 @@
+**How the Special Counsel’s Portrayal of Biden’s Memory Compares With the Transcript**\
+`The special counsel, Robert K. Hur, accused the president last month of “significant” memory problems. The interview transcript offers context to his report.`\
+https://nytimes.com/2024/03/12/us/politics/hur-biden-memory-transcript.html
+
 **Hezbollah Fires More Than 100 Rockets Into Israel, Drawing Retaliation**\
 `The barrage by Hezbollah was among the heaviest in the months of cross-border strikes that have fed fears that the war in Gaza could expand.`\
 https://nytimes.com/2024/03/12/world/middleeast/hezbollah-rockets-israel-lebanon.html
