@@ -1,3 +1,7 @@
+**Olga Murray, Who Changed the Lives of Children in Nepal, Dies at 98**\
+`Her foundation rescued thousands of girls and young women from bonded slavery and secured meals and schooling for impoverished children.`\
+https://nytimes.com/2024/03/12/world/asia/olga-murray-dead.html
+
 **Boeing Whistleblower Who Raised Quality Concerns Is Found Dead**\
 `John Barnett had accused the plane manufacturer for retaliating against him after he flagged problems he saw at Boeing’s 787 factory in South Carolina.`\
 https://nytimes.com/2024/03/12/business/john-barnett-boeing-whistleblower-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/us/warden-ousted-sex-abuse-womens-prison.html
 **Trump Courts Black Voters Even as He Traffics in Stereotypes**\
 `The former president traffics in stereotypes about Black Americans, yet he is counting on them, and aggressively courting them, in seeking to return to the White House.`\
 https://nytimes.com/2024/03/12/us/politics/trump-black-voters.html
-
-**The Israeli government restricts West Bank Palestinians’ entry to Al Aqsa Mosque during Ramadan.**\
-`By Adam Sella`\
-https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news/the-israeli-government-restricts-west-bank-palestinians-entry-to-al-aqsa-mosque-during-ramadan
 

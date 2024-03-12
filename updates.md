@@ -1,3 +1,7 @@
+**Olga Murray, Who Changed the Lives of Children in Nepal, Dies at 98**\
+`Her foundation rescued thousands of girls and young women from bonded slavery and secured meals and schooling for impoverished children.`\
+https://nytimes.com/2024/03/12/world/asia/olga-murray-dead.html
+
 **Boeing Whistleblower Who Raised Quality Concerns Is Found Dead**\
 `John Barnett had accused the plane manufacturer for retaliating against him after he flagged problems he saw at Boeing’s 787 factory in South Carolina.`\
 https://nytimes.com/2024/03/12/business/john-barnett-boeing-whistleblower-dead.html
