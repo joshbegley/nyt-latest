@@ -1,10 +1,14 @@
+**The Israeli government restricts West Bank Palestinians’ entry to Al Aqsa Mosque during Ramadan.**\
+`By Adam Sella`\
+https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news/the-israeli-government-restricts-west-bank-palestinians-entry-to-al-aqsa-mosque-during-ramadan
+
 **The Royals Tried to Control Their Image Online. The Internet Had Other Ideas.**\
 `Prince William and Princess Catherine, along with Prince Harry, initially embraced social media as a way to bypass the media they reviled.`\
 https://nytimes.com/2024/03/12/world/europe/princess-kate-middleton-royals-photo.html
 
 **Taxes Are a Big Gray Area in Biden’s Budget**\
 `His pledge not to raise middle-class taxes will be expensive, but offsetting increases on the rich remain unspecified.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-budget-income-tax
+https://nytimes.com/live/2024/03/12/opinion/thepoint/biden-budget-income-tax
 
 **Where Will Kyrsten Sinema’s Centrist Voters Go?**\
 `The Democrat-turned-independent senator from Arizona said she will not run for re-election. Some voters who supported her say they are feeling squeezed out of politics.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/arts/music/karl-wallinger-dead.html
 **At San Sabino, the Don Angie Team Looks to the Sea**\
 `Siete serves up vegan Mexican dishes, Tucci brings contemporary Italian into the Delmonico’s portfolio and more restaurant news.`\
 https://nytimes.com/2024/03/12/dining/don-angie-new-restaurant.html
-
-**Avalanche Expert’s Death Shows Dangers of Backcountry Skiing**\
-`Nick Burks, 37, an avalanche forecaster and experienced backcountry skier, was killed while skiing in the Elkhorn Mountains in northeastern Oregon last week, the authorities said.`\
-https://nytimes.com/2024/03/12/us/oregon-avalanche-forecaster-killed.html
 
