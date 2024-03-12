@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`Republicans target TikTok, despite Donald Trump’s objection.`\
+https://nytimes.com/2024/03/12/briefing/tiktok-trump-republican-catherine-photo.html
+
 **Word of the Day: proviso**\
 `This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/12/learning/word-of-the-day-proviso.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/business/pilot-learn-flying-french-horn-player.ht
 **F.A.A. Audit of Boeing’s 737 Max Production Found Dozens of Issues**\
 `The company failed 33 of 89 audits during an examination conducted by the Federal Aviation Administration after a panel blew off an Alaska Airlines jet in January.`\
 https://nytimes.com/2024/03/11/us/politics/faa-audit-boeing-737-max.html
-
-**Start of a Spell**\
-`Andrew Kingsley and Garrett Chalfin have a pitch-perfect puzzle for us.`\
-https://nytimes.com/2024/03/11/crosswords/daily-puzzle-2024-03-12.html
 

@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`Republicans target TikTok, despite Donald Trump’s objection.`\
+https://nytimes.com/2024/03/12/briefing/tiktok-trump-republican-catherine-photo.html
+
 **Word of the Day: proviso**\
 `This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/12/learning/word-of-the-day-proviso.html
