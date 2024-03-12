@@ -1,3 +1,15 @@
+**For Some Mammals, Large Adult Daughters, Not Sons, Are the Norm**\
+`Despite a common narrative that male mammals tend to dwarf female ones, fewer than half of mammalian species display that pattern, a new study suggests.`\
+https://nytimes.com/2024/03/12/science/mammals-size-male-female.html
+
+**Kenya Hits Pause on Police Deployment to Haiti**\
+`The African nation said it would not send a force until Haiti forms a new government after the Haitian prime minister announced his intention to resign.`\
+https://nytimes.com/2024/03/12/world/americas/kenya-haiti-police-deployment.html
+
+**‘We’re All Living in Oppenheimer’s World’**\
+`The danger he created requires moral leadership, as he warned in 1945.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/oppenheimer-nolan-murphy
+
 **Bitcoin’s Winning Streak Continues**\
 `The cryptocurrency has recently set a series of records, extending a rapid rally that has emboldened the virtual currency industry to flex its political muscle.`\
 https://nytimes.com/2024/03/12/business/dealbook/bitcoin-price.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/12/nyregion/migrant-police-stun-gun-video.html
 **Dating Apps Have Hit a Wall. Can They Turn Things Around?**\
 `The apps have changed our love lives, but they haven’t been able to convince enough young users to pay.`\
 https://nytimes.com/2024/03/12/business/dating-apps-tinder-bumble.html
-
-**She Trusted God and Science. They Both Failed Her.**\
-`In “Devout,” an author who grew up in the evangelical church recounts her struggle to find spiritual and psychological well-being after a mental health challenge.`\
-https://nytimes.com/2024/03/12/books/review/devout-anna-gazmarian.html
-
-**Airbnb Bans All Indoor Security Cameras**\
-`Widespread use of indoor security cameras has raised concerns about privacy in vacation rentals, hotels, public bathrooms, locker rooms and on cruise ships.`\
-https://nytimes.com/2024/03/12/business/airbnb-indoor-camera-ban.html
-
-**Audience Snapshot: Four Years After Shutdown, a Mixed Recovery**\
-`Covid brought live performance to a halt. Now the audience for pop concerts and sporting events has roared back, while attendance on Broadway and at some major museums is still down.`\
-https://nytimes.com/2024/03/12/arts/covid-shutdown-live-audiences.html
 
