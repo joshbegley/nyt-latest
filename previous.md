@@ -1,3 +1,7 @@
+**Southern California Oil Sheen Is Unlikely to Stem From Spill, Tests Indicate**\
+`Samples from an oil sheen in the Pacific Ocean off the coast of Huntington Beach, Calif., were more consistent with oil that seeps naturally.`\
+https://nytimes.com/2024/03/11/us/oil-sheen-huntington-beach.html
+
 **Attendees at Kansas G.O.P. Event Punch and Kick Mannequin Wearing a Biden Mask**\
 `The mannequin was dressed in a T-shirt that said “Let’s Go Brandon.” The county party chair said that “the mask was regrettable and removed.”`\
 https://nytimes.com/2024/03/11/us/politics/biden-effigy-mannequin-kansas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/world/americas/blinken-haiti-aid-gangs.html
 **3 Children and 2 Adults Killed as School Bus and Truck Collide in Illinois**\
 `All four people in the bus died, as did the driver of a semi-truck, the authorities. The school district canceled classes on Tuesday and Wednesday out of respect for the victims.`\
 https://nytimes.com/2024/03/11/us/urlillinois-school-bus-crash-five-dead.html
-
-**Netanyahu’s Coalition ‘May Be in Jeopardy,’ Intelligence Report Says**\
-`The document predicted that Israel would struggle to achieve its goal of destroying Hamas in Gaza.`\
-https://nytimes.com/2024/03/11/us/politics/netanyahu-gaza-intelligence-report.html
 
