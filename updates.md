@@ -1,3 +1,7 @@
+**‘Barbenheimer,’ and an Early Start, Boost Oscar Ratings to 4-Year High**\
+`ABC’s telecast of the 96th Academy Awards on Sunday drew 19.5 million viewers, according to Nielsen.`\
+https://nytimes.com/2024/03/11/business/media/oscar-viewers-ratings.html
+
 **Trump Aides, Taking Over R.N.C., Order Mass Layoffs**\
 `The Republican Party apparatus is undergoing a large cut with just eight months until the election.`\
 https://nytimes.com/2024/03/11/us/politics/rnc-trump-layoffs.html
