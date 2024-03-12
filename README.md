@@ -14,7 +14,7 @@ https://nytimes.com/2024/03/12/us/daniel-rodriguez-uvalde-police-resign.html
 `Leaders of a Northern California prison were removed on the same day that the F.B.I. raided the troubled facility.`\
 https://nytimes.com/2024/03/12/us/warden-ousted-sex-abuse-womens-prison.html
 
-**The Tension Behind Trump’s Appeals to Black Voters**\
+**Trump Courts Black Voters Even as He Traffics in Stereotypes**\
 `The former president traffics in stereotypes about Black Americans, yet he is counting on them, and aggressively courting them, in seeking to return to the White House.`\
 https://nytimes.com/2024/03/12/us/politics/trump-black-voters.html
 
