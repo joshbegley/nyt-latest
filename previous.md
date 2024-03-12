@@ -1,3 +1,7 @@
+**A Broadway-Bound ‘Sunset Boulevard’ Leads Olivier Award Nominations**\
+`The musical, starring Nicole Scherzinger, secured 11 nominations at Britain’s equivalent of the Tony Awards.`\
+https://nytimes.com/2024/03/12/theater/olivier-award-nominations-sunset-boulevard.html
+
 **Washington State Will Be Next Test of ‘Uncommitted’ Protest Against Biden**\
 `The state’s primary election on Tuesday is the latest site of a movement to reject the president over his stance on Israel, though it may be days before the results are fully clear.`\
 https://nytimes.com/2024/03/12/us/politics/biden-uncommitted-washington-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed/housing-cost-incr
 **Food price gains eased in February.**\
 `By Madeleine Ngo`\
 https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed/food-price-gains-eased-in-february
-
-**Weekly Student News Quiz: Super Tuesday, Oscars, SAT**\
-`Have you been paying attention to the current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2024/03/12/learning/12StudentNewsQuiz.html
 
