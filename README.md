@@ -1,3 +1,11 @@
+**Smithsonian American Women’s History Museum Names New Director**\
+`Elizabeth C. Babcock, the chief executive of Forever Balboa Park, will start this summer, after Nancy Yao’s withdrawal.`\
+https://nytimes.com/2024/03/12/arts/design/elizabeth-babcock-smithsonian-american-womens-history-museum-director.html
+
+**Five Easy Dill Dinners**\
+`Ginger-dill salmon, skillet chicken with orzo, dill and feta and (frozen) fava bean stew are herbaceously springy.`\
+https://nytimes.com/2024/03/12/dining/five-easy-dill-dinners.html
+
 **What to Know About the Accusations Against Andrew Tate**\
 `The antagonistic online influencer is facing charges in two separate cases.`\
 https://nytimes.com/2024/03/12/world/europe/andrew-tate-arrests-explained.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/12/us/2024-election-trump-biden/trump-and-biden
 **Ukraine-Backed Russian Exile Groups Stage Assaults on Moscow’s Turf**\
 `The attacks and drone strikes across the southern border were intended to counter President Vladimir V. Putin’s control over Russia, a leader in one of the groups said.`\
 https://nytimes.com/2024/03/12/world/europe/ukraine-russia-drone-attacks-putin.html
-
-**This 1,000-Year-Old Smartphone Just Dialed In**\
-`An 11th-century astrolabe, a complex instrument for precisely mapping the heavens, recently turned up in an Italian museum.`\
-https://nytimes.com/2024/03/12/science/astrolabe-hebrew-arabic.html
-
-**Here is what to know about Hur’s report.**\
-`The special counsel, Robert K. Hur, concluded that the evidence was insufficient to charge President Biden with a crime, but sharply criticized him.`\
-https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/here-are-5-takeaways-from-hurs-investigation-into-classified-documents-kept-by-biden
 
