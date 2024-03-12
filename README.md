@@ -1,3 +1,7 @@
+**Polling has indicated a majority of voters are concerned about Biden’s age — including Democrats.**\
+`By Ruth Igielnik`\
+https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/polling-has-indicated-a-majority-of-voters-are-concerned-about-bidens-age-including-democrats
+
 **Judge Throws Out Defamation Lawsuit Against Meghan, Duchess of Sussex**\
 `Meghan’s half sister had accused her of making “disparaging, hurtful and false” statements in an interview with Oprah Winfrey and in a Netflix documentary series.`\
 https://nytimes.com/2024/03/12/us/meghan-markle-defamation-lawsuit-netflix-oprah.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/world/middleeast/us-israeli-citizen-itay-chen-kil
 **For Some Mammals, Large Adult Daughters, Not Sons, Are the Norm**\
 `Despite a common narrative that male mammals tend to dwarf female ones, fewer than half of mammalian species display that pattern, a new study suggests.`\
 https://nytimes.com/2024/03/12/science/mammals-size-male-female.html
-
-**Kenya Hits Pause on Police Deployment to Haiti**\
-`The African nation said it would not send a force until Haiti forms a new government after the Haitian prime minister announced his intention to resign.`\
-https://nytimes.com/2024/03/12/world/americas/kenya-haiti-police-deployment.html
 
