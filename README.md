@@ -1,3 +1,7 @@
+**Biden Interview with Special Counsel Hur**\
+`President Biden was questioned for about five hours by Robert K. Hur, the special counsel investigating the president’s retention of sensitive government documents. This is a transcript of the interview.`\
+https://nytimes.com/interactive/2024/03/12/us/biden-hur-transcript-both-days.html
+
 **9 Sunny Songs for Springing Ahead**\
 `To celebrate the return of daylight saving time, here’s a playlist full of songs about sunshine and daylight.`\
 https://nytimes.com/2024/03/12/arts/music/amplifier-newsletter-sunny-songs.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed/inflation-ticked-
 **Transcript: Ezra Klein Talks About the State of the Union and Biden’s 2024 Campaign**\
 `The March 12, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/03/12/podcasts/transript-ezra-klein-sotu-qa.html
-
-**A special counsel’s job is known to be perilous.**\
-`Critics have called Robert K. Hur’s descriptions of President Biden’s memory outside his purview. Others say his narrative was probably motivated by seeking to justify not charging Mr. Biden.`\
-https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/a-special-counsels-job-is-known-to-be-perilous
 
