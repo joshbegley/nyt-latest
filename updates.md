@@ -1,3 +1,11 @@
+**The U.S. Cobbled Together $300 Million More for Ukraine**\
+`Also, the Biden special counsel was attacked on Capitol Hill. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/03/12/briefing/us-aid-ukraine-special-counsel-biden-hill.html
+
+**Israel and Hamas are not near a cease-fire deal, Qatar says.**\
+`By Anushka Patil and Adam Rasgon`\
+https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news/israel-and-hamas-are-not-near-a-cease-fire-deal-qatar-says
+
 **Sotomayor and Barrett, Lately at Odds, Discuss Relations at the Supreme Court**\
 `A conversation on civics and civility included discussion of whether the court is more like a really good preschool or an arranged marriage with no possibility of divorce.`\
 https://nytimes.com/2024/03/12/us/sotomayor-barrett-supreme-court.html

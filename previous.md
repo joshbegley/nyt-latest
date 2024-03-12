@@ -1,3 +1,11 @@
+**The U.S. Cobbled Together $300 Million More for Ukraine**\
+`Also, the Biden special counsel was attacked on Capitol Hill. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/03/12/briefing/us-aid-ukraine-special-counsel-biden-hill.html
+
+**Israel and Hamas are not near a cease-fire deal, Qatar says.**\
+`By Anushka Patil and Adam Rasgon`\
+https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news/israel-and-hamas-are-not-near-a-cease-fire-deal-qatar-says
+
 **Sotomayor and Barrett, Lately at Odds, Discuss Relations at the Supreme Court**\
 `A conversation on civics and civility included discussion of whether the court is more like a really good preschool or an arranged marriage with no possibility of divorce.`\
 https://nytimes.com/2024/03/12/us/sotomayor-barrett-supreme-court.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/12/world/middleeast/biden-netanyahu-israel-gaza-red-
 **Alaska Airlines Flight Was Scheduled for Safety Check on Day Panel Blew Off**\
 `The 737 Max remained in service for a day after the airline’s engineers, concerned about warning lights, scheduled it to come in for maintenance. During that period, a door plug came off in flight.`\
 https://nytimes.com/2024/03/12/us/politics/alaska-airlines-flight-door.html
-
-**Aaron Rodgers and Jesse Ventura Top R.F.K. Jr.’s List for Running Mate**\
-`Mr. Kennedy said he had been speaking with the Jets quarterback “pretty continuously” for the past month.`\
-https://nytimes.com/2024/03/12/us/politics/rfk-jr-aaron-rodgers-jesse-ventura.html
-
-**Uvalde Police Chief Announces Resignation**\
-`The news comes less than a week after an investigation by the city of Uvalde found that city police officers made mistakes during a 2022 mass shooting, but did not violate policy.`\
-https://nytimes.com/2024/03/12/us/daniel-rodriguez-uvalde-police-resign.html
 
