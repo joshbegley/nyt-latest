@@ -1,3 +1,7 @@
+**Biden Interview with Special Counsel Hur**\
+`President Biden was questioned for about five hours by Robert K. Hur, the special counsel investigating the president’s retention of sensitive government documents. This is a transcript of the interview.`\
+https://nytimes.com/interactive/2024/03/12/us/biden-hur-transcript-both-days.html
+
 **9 Sunny Songs for Springing Ahead**\
 `To celebrate the return of daylight saving time, here’s a playlist full of songs about sunshine and daylight.`\
 https://nytimes.com/2024/03/12/arts/music/amplifier-newsletter-sunny-songs.html
