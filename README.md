@@ -1,3 +1,7 @@
+**Tuxedos Stole the Show at This Year’s Oscars**\
+`And they were more than a fashion statement.`\
+https://nytimes.com/2024/03/12/podcasts/tuxedos-stole-the-show-at-this-years-oscars.html
+
 **India Law That Sparked Deadly Riots Is Enacted After a 4-Year Delay**\
 `The announcement about a citizenship law criticized as anti-Muslim is timed for Prime Minister Narendra Modi’s re-election campaign.`\
 https://nytimes.com/2024/03/12/world/asia/india-law-muslim-citizenship.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/business/insurance-inflation.html
 **With inflation report coming, economists ask: Will the last mile be the hardest?**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed/with-inflation-report-coming-economists-ask-will-the-last-mile-be-the-hardest
-
-**12inflation-blog**\
-`Consumer Price Rises Likely Held Steady`\
-https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed
 
