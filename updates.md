@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘When Mom Left’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/03/12/style/tiny-modern-love-stories-when-mom-left.html
+
 **5 Takeaways From Hur’s Testimony About the Biden Classified Documents Inquiry**\
 `A former special counsel, Robert K. Hur, faced sharp scrutiny over his conclusion that the evidence was insufficient to charge President Biden with a crime and his disparaging remarks about the president’s memory.`\
 https://nytimes.com/2024/03/12/us/politics/biden-hur-special-counsel-takeaways.html
