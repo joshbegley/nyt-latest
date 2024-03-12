@@ -1,3 +1,7 @@
+**Roswell**\
+`Why did a U.F.O. allegedly crash in Roswell, N. M., of all places? In 1994, the filmmaker Bill Brown set out on a road trip to explore the 1947 incident.`\
+https://nytimes.com/video/opinion/100000009295564/roswell.html
+
 **The shipment of food from World Central Kitchen includes beans and flour.**\
 `By Monika Pronczuk`\
 https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news/the-shipment-of-food-from-world-central-kitchen-includes-beans-and-flour
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news
 **Tuesday Briefing**\
 `Republicans target TikTok, despite Donald Trump’s objection.`\
 https://nytimes.com/2024/03/12/briefing/tiktok-trump-republican-catherine-photo.html
-
-**Word of the Day: proviso**\
-`This word has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/03/12/learning/word-of-the-day-proviso.html
 
