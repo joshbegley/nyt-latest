@@ -1,3 +1,15 @@
+**Insurance Costs Are Pushing Up Overall Inflation**\
+`Insurance costs are on the rise for various reasons, adding to overall inflation.`\
+https://nytimes.com/2024/03/12/business/insurance-inflation.html
+
+**With inflation report coming, economists ask: Will the last mile be the hardest?**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed/with-inflation-report-coming-economists-ask-will-the-last-mile-be-the-hardest
+
+**12inflation-blog**\
+`Consumer Price Rises Likely Held Steady`\
+https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed
+
 **What a Second Biden Term Would Look Like**\
 `How Biden’s pitch for 2024 — and beyond — has crystallized in recent weeks.`\
 https://nytimes.com/2024/03/12/opinion/ezra-klein-podcast-sotu.html
