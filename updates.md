@@ -1,3 +1,7 @@
+**Polling has indicated a majority of voters are concerned about Biden’s age — including Democrats.**\
+`By Ruth Igielnik`\
+https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/polling-has-indicated-a-majority-of-voters-are-concerned-about-bidens-age-including-democrats
+
 **Judge Throws Out Defamation Lawsuit Against Meghan, Duchess of Sussex**\
 `Meghan’s half sister had accused her of making “disparaging, hurtful and false” statements in an interview with Oprah Winfrey and in a Netflix documentary series.`\
 https://nytimes.com/2024/03/12/us/meghan-markle-defamation-lawsuit-netflix-oprah.html
