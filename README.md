@@ -1,3 +1,7 @@
+**Taxes Are a Big Gray Area in Biden’s Budget**\
+`His pledge not to raise middle-class taxes will be expensive, but offsetting increases on the rich remain unspecified.`\
+https://nytimes.com/live/2024/03/05/opinion/thepoint/biden-budget-income-tax
+
 **Where Will Kyrsten Sinema’s Centrist Voters Go?**\
 `The Democrat-turned-independent senator from Arizona said she will not run for re-election. Some voters who supported her say they are feeling squeezed out of politics.`\
 https://nytimes.com/2024/03/12/us/kyrsten-sinema-arizona-moderate-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/us/oregon-avalanche-forecaster-killed.html
 **U.K. Conservative Party Under Fire Over Donor’s Alleged Racist Remarks**\
 `Frank Hester, the leading supporter of Britain’s Conservative Party, is accused of making the comments about Diane Abbott, a well-known lawmaker.`\
 https://nytimes.com/2024/03/12/world/europe/uk-diane-abbott-frank-hester.html
-
-**Taxing the Rich, School Funding, Housing: N.Y. Budget Battle Begins**\
-`Both of New York’s legislative chambers have announced their budget proposals. They have until April 1 to hash out a spending plan with the governor.`\
-https://nytimes.com/2024/03/12/nyregion/ny-budget-taxes-housing.html
 
