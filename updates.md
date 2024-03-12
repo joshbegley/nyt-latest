@@ -1,3 +1,11 @@
+**Biden’s Budget and Mass Layoffs at R.N.C.**\
+`Plus, a problem with baseball’s new pants.`\
+https://nytimes.com/2024/03/12/podcasts/bidens-budget-and-mass-layoffs-at-rnc.html
+
+**Oregon Decriminalized Drugs. Voters Now Regret It.**\
+`State lawmakers are about to reverse course, making the possession of hard narcotics an offense again.`\
+https://nytimes.com/2024/03/12/podcasts/the-daily/oregon-drugs.html
+
 **Insurance Costs Are Pushing Up Overall Inflation**\
 `Insurance costs are on the rise for various reasons, adding to overall inflation.`\
 https://nytimes.com/2024/03/12/business/insurance-inflation.html
