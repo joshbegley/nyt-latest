@@ -1,3 +1,7 @@
+**Housing cost increases moderated in February but remain elevated.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed/housing-cost-increases-moderated-in-february-but-remain-elevated
+
 **Food price gains eased in February.**\
 `By Madeleine Ngo`\
 https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed/food-price-gains-eased-in-february
