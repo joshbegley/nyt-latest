@@ -1,3 +1,7 @@
+**Jimmy Kimmel Explains His Run-In (Sort of) With Trump at the Oscars**\
+`Why did Donald Trump go online during the Oscars to criticize Kimmel’s performance as host? Kimmel thinks he was upset because no one had mentioned his name.`\
+https://nytimes.com/2024/03/12/arts/television/jimmy-kimmel-trump-oscars.html
+
 **Tuesday Briefing**\
 `Republicans target TikTok, despite Donald Trump’s objection.`\
 https://nytimes.com/2024/03/12/briefing/tiktok-trump-republican-catherine-photo.html
