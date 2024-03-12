@@ -1,3 +1,7 @@
+**Hezbollah Fires More Than 100 Rockets Into Israel, Drawing Retaliation**\
+`The barrage by Hezbollah was among the heaviest in the months of cross-border strikes that have fed fears that the war in Gaza could expand.`\
+https://nytimes.com/2024/03/12/world/middleeast/hezbollah-rockets-israel-lebanon.html
+
 **Tuxedos Stole the Show at This Year’s Oscars**\
 `And they were more than a fashion statement.`\
 https://nytimes.com/2024/03/12/podcasts/tuxedos-stole-the-show-at-this-years-oscars.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/podcasts/the-daily/oregon-drugs.html
 **Insurance Costs Are Pushing Up Overall Inflation**\
 `Insurance costs are on the rise for various reasons, adding to overall inflation.`\
 https://nytimes.com/2024/03/12/business/insurance-inflation.html
-
-**With inflation report coming, economists ask: Will the last mile be the hardest?**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed/with-inflation-report-coming-economists-ask-will-the-last-mile-be-the-hardest
 
