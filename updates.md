@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Super Tuesday, Oscars, SAT**\
+`Have you been paying attention to the current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/03/12/learning/12StudentNewsQuiz.html
+
 **The Clock Ticks for TikTok**\
 `Advertisers are sticking with the social media platform, even as the House prepares to vote on a bill to force the company to cut its China ties this week.`\
 https://nytimes.com/2024/03/12/business/dealbook/tiktok-house-ban.html
