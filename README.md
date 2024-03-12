@@ -1,3 +1,11 @@
+**Police Officers Used Stun Gun on Migrant Holding Toddler, Video Shows**\
+`The altercation occurred at a migrant shelter in Queens following a dispute between the man and a shelter employee. New York City officials are investigating.`\
+https://nytimes.com/2024/03/12/nyregion/migrant-police-stun-gun-video.html
+
+**Dating Apps Have Hit a Wall. Can They Turn Things Around?**\
+`The apps have changed our love lives, but they haven’t been able to convince enough young users to pay.`\
+https://nytimes.com/2024/03/12/business/dating-apps-tinder-bumble.html
+
 **She Trusted God and Science. They Both Failed Her.**\
 `In “Devout,” an author who grew up in the evangelical church recounts her struggle to find spiritual and psychological well-being after a mental health challenge.`\
 https://nytimes.com/2024/03/12/books/review/devout-anna-gazmarian.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/for-biden-the-hearing
 **Who Are Hamas’s Top Leaders in Gaza?**\
 `Israel targeted Marwan Issa, a Hamas military leader, with a strike over the weekend. He is one of three leaders of the group in Gaza who Israel says were the main planners of the Oct. 7 attack.`\
 https://nytimes.com/2024/03/12/world/middleeast/hamas-leaders-gaza.html
-
-**Robert Hur is no stranger to high-wire investigations.**\
-`By Glenn Thrush, Adam Goldman and Luke Broadwater`\
-https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/robert-hur-is-no-stranger-to-high-wire-investigations
-
-**A Broadway-Bound ‘Sunset Boulevard’ Leads Olivier Award Nominations**\
-`The musical, starring Nicole Scherzinger, secured 11 nominations at Britain’s equivalent of the Tony Awards.`\
-https://nytimes.com/2024/03/12/theater/olivier-award-nominations-sunset-boulevard.html
 
