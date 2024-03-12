@@ -1,4 +1,8 @@
 **Biden’s Budget and Mass Layoffs at R.N.C.**\
+`Plus, a problem with M.L.B.’s new pants.`\
+https://nytimes.com/2024/03/12/podcasts/bidens-budget-and-mass-layoffs-at-rnc.html
+
+**Biden’s Budget and Mass Layoffs at R.N.C.**\
 `Plus, a problem with baseball’s new pants.`\
 https://nytimes.com/2024/03/12/podcasts/bidens-budget-and-mass-layoffs-at-rnc.html
 
