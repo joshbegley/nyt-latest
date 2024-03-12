@@ -1,3 +1,11 @@
+**Where Antisemitism and Anti-Zionism Collide**\
+`People spit out the word “Zionist” when they really seem to mean “Jew.”`\
+https://nytimes.com/2024/03/11/opinion/antisemitism-vs-anti-zionism.html
+
+**3 Children and 2 Adults Killed as School Bus and Truck Collide in Illinois**\
+`All four people in the bus died, as did the driver of a semi-truck, the authorities said. The school district canceled classes on Tuesday and Wednesday out of respect for the victims.`\
+https://nytimes.com/2024/03/11/us/urlillinois-school-bus-crash-five-dead.html
+
 **‘Barbenheimer,’ and an Early Start, Boost Oscar Ratings to 4-Year High**\
 `ABC’s telecast of the 96th Academy Awards on Sunday drew 19.5 million viewers, according to Nielsen.`\
 https://nytimes.com/2024/03/11/business/media/oscar-viewers-ratings.html
