@@ -1,3 +1,7 @@
+**At San Sabino, the Don Angie Team Looks to the Sea**\
+`Siete serves up vegan Mexican dishes, Tucci brings contemporary Italian into the Delmonico’s portfolio and more restaurant news.`\
+https://nytimes.com/2024/03/12/dining/don-angie-new-restaurant.html
+
 **Avalanche Expert’s Death Shows Dangers of Backcountry Skiing**\
 `Nick Burks, 37, an avalanche forecaster and experienced backcountry skier, was killed while skiing in the Elkhorn Mountains in northeastern Oregon last week, the authorities said.`\
 https://nytimes.com/2024/03/12/us/oregon-avalanche-forecaster-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/us/politics/us-aid-ukraine-war.html
 **Polling has indicated a majority of voters are concerned about Biden’s age — including Democrats.**\
 `By Ruth Igielnik`\
 https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/polling-has-indicated-a-majority-of-voters-are-concerned-about-bidens-age-including-democrats
-
-**Judge Throws Out Defamation Lawsuit Against Meghan, Duchess of Sussex**\
-`Meghan’s half sister had accused her of making “disparaging, hurtful and false” statements in an interview with Oprah Winfrey and in a Netflix documentary series.`\
-https://nytimes.com/2024/03/12/us/meghan-markle-defamation-lawsuit-netflix-oprah.html
 
