@@ -1,3 +1,7 @@
+**Republicans Can’t Restructure North Carolina Election Boards, Judges Rule**\
+`A panel made up of two Republicans and one Democrat ruled that a law passed last year to change the makeup of election boards is unconstitutional.`\
+https://nytimes.com/2024/03/12/us/politics/north-carolina-election-boards.html
+
 **An Artist’s Response to a Racist Mural Walks a Fine Line**\
 `Activists urged Tate Britain to take an offensive artwork from 1927 off its walls, but the museum instead commissioned Keith Piper to create a response.`\
 https://nytimes.com/2024/03/12/arts/design/tate-britain-mural-keith-piper.html
