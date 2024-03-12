@@ -1,3 +1,7 @@
+**How the Special Counsel’s Portrayal of Biden’s Memory Compares With the Transcript**\
+`The special counsel, Robert K. Hur, accused the president last month of “significant” memory problems. The interview transcript offers context to his report.`\
+https://nytimes.com/2024/03/12/us/politics/hur-biden-memory-transcript.html
+
 **Hezbollah Fires More Than 100 Rockets Into Israel, Drawing Retaliation**\
 `The barrage by Hezbollah was among the heaviest in the months of cross-border strikes that have fed fears that the war in Gaza could expand.`\
 https://nytimes.com/2024/03/12/world/middleeast/hezbollah-rockets-israel-lebanon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/podcasts/bidens-budget-and-mass-layoffs-at-rnc.ht
 **Oregon Decriminalized Drugs. Voters Now Regret It.**\
 `State lawmakers are about to reverse course, making the possession of hard narcotics an offense again.`\
 https://nytimes.com/2024/03/12/podcasts/the-daily/oregon-drugs.html
-
-**Insurance Costs Are Pushing Up Overall Inflation**\
-`Insurance costs are on the rise for various reasons, adding to overall inflation.`\
-https://nytimes.com/2024/03/12/business/insurance-inflation.html
 
