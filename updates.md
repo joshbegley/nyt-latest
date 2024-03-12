@@ -1,3 +1,7 @@
+**Trump Aides, Taking Over R.N.C., Order Mass Layoffs**\
+`The Republican Party apparatus is undergoing a large cut with just eight months until the election.`\
+https://nytimes.com/2024/03/11/us/politics/rnc-trump-layoffs.html
+
 **The U.N. Security Council discusses sexual violence against Israeli women.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/the-un-security-council-discusses-sexual-violence-against-israeli-women
