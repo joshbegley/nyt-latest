@@ -1,3 +1,7 @@
+**Where Will Kyrsten Sinema’s Centrist Voters Go?**\
+`The Democrat-turned-independent senator from Arizona said she will not run for re-election. Some voters who supported her say they are feeling squeezed out of politics.`\
+https://nytimes.com/2024/03/12/us/kyrsten-sinema-arizona-moderate-voters.html
+
 **Is the Landing Soft? Will It Stay That Way?**\
 `Parsing the inflation and unemployment numbers.`\
 https://nytimes.com/2024/03/12/opinion/inflation-soft-landing-economy-unemployment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/world/europe/uk-diane-abbott-frank-hester.html
 **Taxing the Rich, School Funding, Housing: N.Y. Budget Battle Begins**\
 `Both of New York’s legislative chambers have announced their budget proposals. They have until April 1 to hash out a spending plan with the governor.`\
 https://nytimes.com/2024/03/12/nyregion/ny-budget-taxes-housing.html
-
-**Biden Interview with Special Counsel Hur**\
-`President Biden was questioned for about five hours by Robert K. Hur, the special counsel investigating the president’s retention of sensitive government documents. This is a transcript of the interview.`\
-https://nytimes.com/interactive/2024/03/12/us/biden-hur-transcript-both-days.html
 
