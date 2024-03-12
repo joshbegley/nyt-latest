@@ -1,3 +1,11 @@
+**Attendees at Kansas G.O.P. Event Punch and Kick Mannequin Wearing a Biden Mask**\
+`The mannequin was dressed in a T-shirt that said “Let’s Go Brandon.” The county party chair said that “the mask was regrettable and removed.”`\
+https://nytimes.com/2024/03/11/us/politics/biden-effigy-mannequin-kansas.html
+
+**How ‘I’m Just Ken’ Won the Oscars Without Winning an Actual Oscar**\
+`Working off ideas from Ryan Gosling and Greta Gerwig, the choreographer Mandy Moore created the crowd-pleasing number in days.`\
+https://nytimes.com/2024/03/11/movies/oscars-ryan-gosling-just-ken-mandy-moore.html
+
 **Intelligence Officials Warn of Losses for Ukraine Without More U.S. Aid**\
 `William J. Burns, the C.I.A. director, and Avril D. Haines, the director of national intelligence, described an increasingly dire situation.`\
 https://nytimes.com/2024/03/11/us/politics/intelligence-officials-ukraine-aid.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/11/us/urlillinois-school-bus-crash-five-dead.html
 **Netanyahu’s Coalition ‘May Be in Jeopardy,’ Intelligence Report Says**\
 `The document predicted that Israel would struggle to achieve its goal of destroying Hamas in Gaza.`\
 https://nytimes.com/2024/03/11/us/politics/netanyahu-gaza-intelligence-report.html
-
-**‘Bling Bishop’ Who Boasted of Ties to Eric Adams Is Convicted of Fraud**\
-`Lamor Whitehead was accused of using $90,000 of a parishioner’s retirement savings to buy luxury goods and trying to force a businessman to lend him $500,000.`\
-https://nytimes.com/2024/03/11/nyregion/lamor-whitehead-bling-bishop-verdict.html
-
-**Sex Trafficking, De Facto Lies and Immigration**\
-`Senator Katie Britt’s deeply misleading tale.`\
-https://nytimes.com/2024/03/11/opinion/katie-britt-trump-immigration.html
 
