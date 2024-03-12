@@ -1,5 +1,9 @@
+**Corrections: March 12, 2024**\
+`Corrections that appeared in print on Tuesday, March 12, 2024.`\
+https://nytimes.com/2024/03/12/pageoneplus/corrections-march-12-2024.html
+
 **Eric Carmen, Raspberries Frontman and ‘All by Myself’ Singer, Dies at 74**\
-`He sang on the power-pop pioneers’ 1972 breakout hit, “Go All The Way,” before launching a successful solo career as a soft rock crooner.`\
+`He sang on the power-pop pioneers’ 1972 breakout hit, “Go All the Way,” before launching a successful solo career as a soft rock crooner.`\
 https://nytimes.com/2024/03/12/arts/music/eric-carmen-dead.html
 
 **Zimbabwe, After Expelling U.S. Officials, Accuses Them of Promoting ‘Regime Change’**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/theater/corruption-review-phone-hacking-murdoch.h
 **Southern California Oil Sheen Is Unlikely to Stem From Spill, Tests Indicate**\
 `Samples from an oil sheen in the Pacific Ocean off the coast of Huntington Beach, Calif., were more consistent with oil that seeps naturally.`\
 https://nytimes.com/2024/03/11/us/oil-sheen-huntington-beach.html
-
-**Attendees at Kansas G.O.P. Event Punch and Kick Mannequin Wearing a Biden Mask**\
-`The mannequin was dressed in a T-shirt that said “Let’s Go Brandon.” The county party chair said that “the mask was regrettable and removed.”`\
-https://nytimes.com/2024/03/11/us/politics/biden-effigy-mannequin-kansas.html
 
