@@ -1,3 +1,7 @@
+**Why Are Aid Workers Getting Killed in Gaza?**\
+`Israel must do a better job of protecting those trying to prevent Palestinian starvation.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/aid-workers-killed-gaza
+
 **The U.S. Cobbled Together $300 Million More for Ukraine**\
 `Also, the Biden special counsel was attacked on Capitol Hill. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/03/12/briefing/us-aid-ukraine-special-counsel-biden-hill.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/world/asia/haiti-henry-ukraine-gaza-asia.html
 **White House Denies Biden Has Set ‘Red Lines’ for Israel-Hamas War in Gaza**\
 `The Biden administration repeated its warning that Israel should not attack the city of Rafah, the southernmost city in the enclave, without protections for the more than a million people sheltering there.`\
 https://nytimes.com/2024/03/12/world/middleeast/biden-netanyahu-israel-gaza-red-lines.html
-
-**Alaska Airlines Flight Was Scheduled for Safety Check on Day Panel Blew Off**\
-`The 737 Max remained in service for a day after the airline’s engineers, concerned about warning lights, scheduled it to come in for maintenance. During that period, a door plug came off in flight.`\
-https://nytimes.com/2024/03/12/us/politics/alaska-airlines-flight-door.html
 

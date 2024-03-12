@@ -1,3 +1,7 @@
+**Why Are Aid Workers Getting Killed in Gaza?**\
+`Israel must do a better job of protecting those trying to prevent Palestinian starvation.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/aid-workers-killed-gaza
+
 **The U.S. Cobbled Together $300 Million More for Ukraine**\
 `Also, the Biden special counsel was attacked on Capitol Hill. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/03/12/briefing/us-aid-ukraine-special-counsel-biden-hill.html
