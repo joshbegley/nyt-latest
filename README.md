@@ -1,3 +1,7 @@
+**F.A.A. Audit of Boeing’s 737 Max Production Found Dozens of Issues**\
+`The company failed 33 of 89 audits during an examination conducted by the Federal Aviation Administration after a panel blew off an Alaska Airlines jet in January.`\
+https://nytimes.com/2024/03/11/us/politics/faa-audit-boeing-737-max.html
+
 **Start of a Spell**\
 `Andrew Kingsley and Garrett Chalfin have a pitch-perfect puzzle for us.`\
 https://nytimes.com/2024/03/11/crosswords/daily-puzzle-2024-03-12.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/business/media/oscar-viewers-ratings.html
 **Trump Aides, Taking Over R.N.C., Order Mass Layoffs**\
 `The Republican Party apparatus is undergoing a large cut with just eight months until the election.`\
 https://nytimes.com/2024/03/11/us/politics/rnc-trump-layoffs.html
-
-**The U.N. Security Council discusses sexual violence against Israeli women.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/the-un-security-council-discusses-sexual-violence-against-israeli-women
 
