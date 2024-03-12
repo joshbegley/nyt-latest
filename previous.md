@@ -1,3 +1,11 @@
+**Start of a Spell**\
+`Andrew Kingsley and Garrett Chalfin have a pitch-perfect puzzle for us.`\
+https://nytimes.com/2024/03/11/crosswords/daily-puzzle-2024-03-12.html
+
+**‘Corruption’ Review: Onstage, a Scandal’s Human Drama Is Muffled**\
+`A new play by J.T. Rogers goes behind the scenes of the shady “news-gathering” that rocked Rupert Murdoch’s British media empire over a decade ago.`\
+https://nytimes.com/2024/03/11/theater/corruption-review-phone-hacking-murdoch.html
+
 **Southern California Oil Sheen Is Unlikely to Stem From Spill, Tests Indicate**\
 `Samples from an oil sheen in the Pacific Ocean off the coast of Huntington Beach, Calif., were more consistent with oil that seeps naturally.`\
 https://nytimes.com/2024/03/11/us/oil-sheen-huntington-beach.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/11/us/politics/rnc-trump-layoffs.html
 **The U.N. Security Council discusses sexual violence against Israeli women.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/the-un-security-council-discusses-sexual-violence-against-israeli-women
-
-**U.S. Pledges Another $130 Million to Restore Order to Haiti**\
-`The U.S. secretary of state announced more aid for the multinational security mission planned to deploy to Haiti, as well as more humanitarian aid.`\
-https://nytimes.com/2024/03/11/world/americas/blinken-haiti-aid-gangs.html
-
-**3 Children and 2 Adults Killed as School Bus and Truck Collide in Illinois**\
-`All four people in the bus died, as did the driver of a semi-truck, the authorities. The school district canceled classes on Tuesday and Wednesday out of respect for the victims.`\
-https://nytimes.com/2024/03/11/us/urlillinois-school-bus-crash-five-dead.html
 
