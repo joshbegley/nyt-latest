@@ -1,3 +1,7 @@
+**Marnia Lazreg, Scholar of Algeria and the Veil, Dies at 83**\
+`A Hunter College sociologist, she examined the power dynamics and difficult history of her native land from a feminist and anticolonial perspective.`\
+https://nytimes.com/2024/03/12/world/middleeast/marnia-lazreg-dead.html
+
 **Wednesday Briefing: Turmoil in Haiti**\
 `Also, more U.S. weapons for Ukraine and a looming financial crisis for dating apps`\
 https://nytimes.com/2024/03/12/world/asia/haiti-henry-ukraine-gaza-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news/the-israeli
 **The Royals Tried to Control Their Image Online. The Internet Had Other Ideas.**\
 `Prince William and Princess Catherine, along with Prince Harry, initially embraced social media as a way to bypass the media they reviled.`\
 https://nytimes.com/2024/03/12/world/europe/princess-kate-middleton-royals-photo.html
-
-**Taxes Are a Big Gray Area in Biden’s Budget**\
-`His pledge not to raise middle-class taxes will be expensive, but offsetting increases on the rich remain unspecified.`\
-https://nytimes.com/live/2024/03/12/opinion/thepoint/biden-budget-income-tax
 
