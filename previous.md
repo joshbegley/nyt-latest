@@ -14,13 +14,13 @@ https://nytimes.com/2024/03/12/world/middleeast/israel-gaza-aid-ship.html
 `Why I am hopeful — and fearful — about the country’s future.`\
 https://nytimes.com/2024/03/12/opinion/haiti-crisis-united-states.html
 
-**Israel Has No Choice but to Fight On**\
-`As long as Hamas maintains military power, there is no hope for peace.`\
-https://nytimes.com/2024/03/12/opinion/israel-hamas-war-military.html
-
 **Netanyahu Is Making Israel Radioactive**\
 `Things have gone terribly wrong in Gaza. They could get worse soon.`\
 https://nytimes.com/2024/03/12/opinion/israel-hamas-war-netanyahu.html
+
+**Israel Has No Choice but to Fight On**\
+`As long as Hamas maintains military power, there is no hope for peace.`\
+https://nytimes.com/2024/03/12/opinion/israel-hamas-war-military.html
 
 **Literary Magazine Retracts Israeli Writer’s Essay as Staffers Quit**\
 `An Israeli writer’s essay about seeking common ground with Palestinians led to the resignation of at least 10 staff members at Guernica.`\
