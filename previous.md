@@ -1,3 +1,7 @@
+**Hur’s appearance gives Republicans a political opening for their attacks on Biden.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/hurs-appearance-gives-republicans-a-political-opening-for-their-attacks-on-biden
+
 **David Mixner, Fierce Fighter for Gay Rights, Is Dead at 77**\
 `He persuaded Ronald Reagan to help defeat a proposed ban on L.G.B.T.Q. schoolteachers in California in 1978, and he sparred with his friend Bill Clinton over “don’t ask, don’t tell.”`\
 https://nytimes.com/2024/03/12/us/politics/david-mixner-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/arts/covid-shutdown-live-audiences.html
 **Smithsonian American Women’s History Museum Names New Director**\
 `Elizabeth C. Babcock, the chief executive of Forever Balboa Park, will start this summer, after Nancy Yao’s withdrawal.`\
 https://nytimes.com/2024/03/12/arts/design/elizabeth-babcock-smithsonian-american-womens-history-museum-director.html
-
-**Five Easy Dill Dinners**\
-`Ginger-dill salmon, skillet chicken with orzo, dill and feta and (frozen) fava bean stew are herbaceously springy.`\
-https://nytimes.com/2024/03/12/dining/five-easy-dill-dinners.html
 
