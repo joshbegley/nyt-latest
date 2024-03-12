@@ -1,3 +1,7 @@
+**A special counsel’s job is known to be perilous.**\
+`Critics have called Robert K. Hur’s descriptions of President Biden’s memory outside his purview. Others say his narrative was probably motivated by seeking to justify not charging Mr. Biden.`\
+https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/a-special-counsels-job-is-known-to-be-perilous
+
 **Republicans Can’t Restructure North Carolina Election Boards, Judges Rule**\
 `A panel made up of two Republicans and one Democrat ruled that a law passed last year to change the makeup of election boards is unconstitutional.`\
 https://nytimes.com/2024/03/12/us/politics/north-carolina-election-boards.html
