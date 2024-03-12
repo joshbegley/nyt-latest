@@ -1,3 +1,7 @@
+**Republicans Should Have Thanked Robert Hur. Instead, They Yelled.**\
+`A hearing where grievances muscled aside fact-finding.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/hur-hearing-republicans
+
 **New Federal Judiciary Rule Will Limit ‘Forum Shopping’ by Plaintiffs**\
 `For years, litigants have tried to cherry-pick the judges in sweeping cases on abortion and immigration. Random judge selection is about to make that harder.`\
 https://nytimes.com/2024/03/12/us/judge-selection-forum-shopping.html
