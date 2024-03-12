@@ -1,3 +1,7 @@
+**Eric Carmen, Raspberries Frontman and ‘All by Myself’ Singer, Dies at 74**\
+`He sang on the power-pop pioneers’ 1972 breakout hit, “Go All The Way,” before launching a successful solo career as a soft rock crooner.`\
+https://nytimes.com/2024/03/12/arts/music/eric-carmen-dead.html
+
 **Eric Carmen, Raspberries Frontman and ‘All By Myself’ Singer, Dies at 74**\
 `He sang on the power-pop pioneers’ 1972 breakout hit, “Go All The Way,” before launching a successful solo career as a soft rock crooner.`\
 https://nytimes.com/2024/03/12/arts/music/eric-carmen-dead.html
