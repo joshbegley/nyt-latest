@@ -1,3 +1,7 @@
+**9 Sunny Songs for Springing Ahead**\
+`To celebrate the return of daylight saving time, here’s a playlist full of songs about sunshine and daylight.`\
+https://nytimes.com/2024/03/12/arts/music/amplifier-newsletter-sunny-songs.html
+
 **Nebraska Lawmakers Sustain Veto of Needle Exchange Bill**\
 `As the harm reduction approach to illegal drug use loses favor across the country, Nebraska legislators failed on Tuesday to override the governor’s veto of a bill to provide drug users with access to clean needles.`\
 https://nytimes.com/2024/03/12/us/nebraska-drugs-needle-exchange.html
