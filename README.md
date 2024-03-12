@@ -1,3 +1,23 @@
+**‘Floor Person’**\
+`Do you enjoy lying on the ground every once in a while?`\
+https://nytimes.com/2024/03/12/learning/floor-person.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/12/crosswords/wordle-review.html
+
+**Walmart Wants to Teach Store Managers Compassion**\
+`The retailer brings about 2,000 managers a year to its headquarters to discuss how to relate to workers and customers, part of a U.S. corporate trend.`\
+https://nytimes.com/2024/03/12/business/walmart-manager-training.html
+
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/12/crosswords/connections-companion.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/03/12/crosswords/spelling-bee-forum.html
+
 **Jimmy Kimmel Explains His Run-In (Sort of) With Trump at the Oscars**\
 `Why did Donald Trump go online during the Oscars to criticize Kimmel’s performance as host? Kimmel thinks he was upset because no one had mentioned his name.`\
 https://nytimes.com/2024/03/12/arts/television/jimmy-kimmel-trump-oscars.html
@@ -17,24 +37,4 @@ https://nytimes.com/interactive/2024/03/12/opinion/former-trump-voters-focus-gro
 **Corrections: March 12, 2024**\
 `Corrections that appeared in print on Tuesday, March 12, 2024.`\
 https://nytimes.com/2024/03/12/pageoneplus/corrections-march-12-2024.html
-
-**Eric Carmen, Raspberries Frontman and ‘All By Myself’ Singer, Dies at 74**\
-`He sang on the power-pop pioneers’ 1972 breakout hit, “Go All the Way,” before launching a successful solo career as a soft rock crooner.`\
-https://nytimes.com/2024/03/12/arts/music/eric-carmen-dead.html
-
-**Zimbabwe, After Expelling U.S. Officials, Accuses Them of Promoting ‘Regime Change’**\
-`American officials say their team was in the country to assess governance issues, but was detained and interrogated before being deported.`\
-https://nytimes.com/2024/03/12/world/africa/zimbabwe-expels-us-officials.html
-
-**China’s Exports Are Surging. Get Ready for the Global Backlash.**\
-`Increasing overseas sales of manufactured goods are helping China’s economy and creating employment, but countries from Europe to South Asia may lose jobs.`\
-https://nytimes.com/2024/03/12/business/china-exports-backlash.html
-
-**The Daily Hunt for Food in Gaza**\
-`Aid is scarce and food prices are high. Three families shared their recent struggles to find something to eat.`\
-https://nytimes.com/interactive/2024/03/12/world/middleeast/gaza-hunger.html
-
-**It’s Never Too Late to Find a New Career (a Mile Above Your Old One)**\
-`Patrick Milando, an accomplished French horn player, now splits his time between the orchestra pit and the cockpit, where he teaches budding pilots like he himself once was.`\
-https://nytimes.com/2024/03/12/business/pilot-learn-flying-french-horn-player.html
 
