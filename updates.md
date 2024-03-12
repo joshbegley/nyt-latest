@@ -1,3 +1,11 @@
+**Smithsonian American Women’s History Museum Names New Director**\
+`Elizabeth C. Babcock, the chief executive of Forever Balboa Park, will start this summer, after Nancy Yao’s withdrawal.`\
+https://nytimes.com/2024/03/12/arts/design/elizabeth-babcock-smithsonian-american-womens-history-museum-director.html
+
+**Five Easy Dill Dinners**\
+`Ginger-dill salmon, skillet chicken with orzo, dill and feta and (frozen) fava bean stew are herbaceously springy.`\
+https://nytimes.com/2024/03/12/dining/five-easy-dill-dinners.html
+
 **What to Know About the Accusations Against Andrew Tate**\
 `The antagonistic online influencer is facing charges in two separate cases.`\
 https://nytimes.com/2024/03/12/world/europe/andrew-tate-arrests-explained.html
