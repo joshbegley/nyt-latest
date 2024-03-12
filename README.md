@@ -1,3 +1,7 @@
+**What to Know About the Accusations Against Andrew Tate**\
+`The antagonistic online influencer is facing charges in two separate cases.`\
+https://nytimes.com/2024/03/12/world/europe/andrew-tate-arrests-explained.html
+
 **For Biden, the hearing on Capitol Hill is a mixed political blessing.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/for-biden-the-hearing-on-capitol-hill-is-a-mixed-political-blessing
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/science/astrolabe-hebrew-arabic.html
 **Here is what to know about Hur’s report.**\
 `The special counsel, Robert K. Hur, concluded that the evidence was insufficient to charge President Biden with a crime, but sharply criticized him.`\
 https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/here-are-5-takeaways-from-hurs-investigation-into-classified-documents-kept-by-biden
-
-**In Hospitals, Affordable Housing Gets the Long-Term Investor It Needs**\
-`Health care systems and affordable housing developers have a mutual financial interest in helping communities live healthier.`\
-https://nytimes.com/2024/03/12/business/affordable-housing-hospitals-investment.html
 
