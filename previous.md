@@ -1,3 +1,7 @@
+**‘He Lost Me’: Why 10 Voters Who Backed Trump in 2016 and 2020 Have Moved On**\
+`They cover why the former president has lost their support, why they aren’t necessarily fans of Biden and who might get their votes instead.`\
+https://nytimes.com/interactive/2024/03/12/opinion/former-trump-voters-focus-group.html
+
 **Corrections: March 12, 2024**\
 `Corrections that appeared in print on Tuesday, March 12, 2024.`\
 https://nytimes.com/2024/03/12/pageoneplus/corrections-march-12-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/crosswords/daily-puzzle-2024-03-12.html
 **‘Corruption’ Review: Onstage, a Scandal’s Human Drama Is Muffled**\
 `A new play by J.T. Rogers goes behind the scenes of the shady “news-gathering” that rocked Rupert Murdoch’s British media empire over a decade ago.`\
 https://nytimes.com/2024/03/11/theater/corruption-review-phone-hacking-murdoch.html
-
-**Southern California Oil Sheen Is Unlikely to Stem From Spill, Tests Indicate**\
-`Samples from an oil sheen in the Pacific Ocean off the coast of Huntington Beach, Calif., were more consistent with oil that seeps naturally.`\
-https://nytimes.com/2024/03/11/us/oil-sheen-huntington-beach.html
 

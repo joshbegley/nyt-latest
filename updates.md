@@ -1,3 +1,7 @@
+**‘He Lost Me’: Why 10 Voters Who Backed Trump in 2016 and 2020 Have Moved On**\
+`They cover why the former president has lost their support, why they aren’t necessarily fans of Biden and who might get their votes instead.`\
+https://nytimes.com/interactive/2024/03/12/opinion/former-trump-voters-focus-group.html
+
 **Corrections: March 12, 2024**\
 `Corrections that appeared in print on Tuesday, March 12, 2024.`\
 https://nytimes.com/2024/03/12/pageoneplus/corrections-march-12-2024.html
