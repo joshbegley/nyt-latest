@@ -1,3 +1,7 @@
+**Trump Courts Black Voters Even as He Traffics in Stereotypes**\
+`The former president traffics in stereotypes about Black Americans, yet he is counting on them, and aggressively courting them, in seeking to return to the White House.`\
+https://nytimes.com/2024/03/12/us/politics/trump-black-voters.html
+
 **Alaska Airlines Flight Was Scheduled for Safety Check on Day Panel Blew Off**\
 `The 737 Max remained in service for a day after the airline’s engineers, concerned about warning lights, scheduled it to come in for maintenance. During that period, a door plug came off in flight.`\
 https://nytimes.com/2024/03/12/us/politics/alaska-airlines-flight-door.html
