@@ -1,4 +1,4 @@
-**Is the Landing Soft? Will it Stay That Way?**\
+**Is the Landing Soft? Will It Stay That Way?**\
 `Parsing the inflation and unemployment numbers.`\
 https://nytimes.com/2024/03/12/opinion/inflation-soft-landing-economy-unemployment.html
 
