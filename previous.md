@@ -6,7 +6,7 @@ https://nytimes.com/2024/03/12/world/europe/ukraine-russia-drone-attacks-putin.h
 `An 11th-century astrolabe, a complex instrument for precisely mapping the heavens, recently turned up in an Italian museum.`\
 https://nytimes.com/2024/03/12/science/astrolabe-hebrew-arabic.html
 
-**Here are 5 takeaways from Hur’s investigation into classified documents kept by Biden.**\
+**Here is what to know about Hur’s report.**\
 `The special counsel, Robert K. Hur, concluded that the evidence was insufficient to charge President Biden with a crime, but sharply criticized him.`\
 https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/here-are-5-takeaways-from-hurs-investigation-into-classified-documents-kept-by-biden
 

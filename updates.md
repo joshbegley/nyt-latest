@@ -1,3 +1,7 @@
+**Here is what to know about Hur’s report.**\
+`The special counsel, Robert K. Hur, concluded that the evidence was insufficient to charge President Biden with a crime, but sharply criticized him.`\
+https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/here-are-5-takeaways-from-hurs-investigation-into-classified-documents-kept-by-biden
+
 **Ukraine-Backed Russian Exile Groups Stage Assaults on Moscow’s Turf**\
 `The attacks and drone strikes across the southern border were intended to counter President Vladimir V. Putin’s control over Russia, a leader in one of the groups said.`\
 https://nytimes.com/2024/03/12/world/europe/ukraine-russia-drone-attacks-putin.html
