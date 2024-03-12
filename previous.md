@@ -1,3 +1,7 @@
+**Open Letters: Our New Opinion-Writing Contest**\
+`We invite students to write public-facing letters to people or groups about issues that matter to them. Contest dates: March 13 to May 1.`\
+https://nytimes.com/2024/03/12/learning/open-letters-our-new-opinion-writing-contest.html
+
 **Poised and Precise, Hur Enters Fray Over Special Counsel’s Report on Biden**\
 `Robert K. Hur defended himself in the unhurried, forceful cadence of a veteran prosecutor, delivering his responses in a flat, matter-of-fact tone.`\
 https://nytimes.com/2024/03/12/us/politics/robert-hur-testimony.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/arts/guernica-magazine-staff-quits-israel.html
 **Top Navalny Aide Attacked With Hammer Outside Home in Lithuania**\
 `Leonid Volkov, a top aide to Aleksei Navalny, was beaten and sprayed with tear gas as he was pulling up to his house in Vilnius.`\
 https://nytimes.com/2024/03/12/world/europe/navalny-aide-leonid-volkov-attacked.html
-
-**Republicans Should Have Thanked Robert Hur. Instead, They Yelled.**\
-`A hearing where grievances muscled aside fact finding.`\
-https://nytimes.com/live/2024/03/12/opinion/thepoint/hur-hearing-republicans
 
