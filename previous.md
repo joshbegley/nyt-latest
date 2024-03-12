@@ -1,3 +1,7 @@
+**The Tension Behind Trump’s Appeals to Black Voters**\
+`The former president traffics in stereotypes about Black Americans, yet he is counting on them, and aggressively courting them, in seeking to return to the White House.`\
+https://nytimes.com/2024/03/12/us/politics/trump-black-voters.html
+
 **The Israeli government restricts West Bank Palestinians’ entry to Al Aqsa Mosque during Ramadan.**\
 `By Adam Sella`\
 https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news/the-israeli-government-restricts-west-bank-palestinians-entry-to-al-aqsa-mosque-during-ramadan
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/climate/a-pop-stars-wonky-climate-campaign.html
 **Karl Wallinger, Who Sang With World Party and the Waterboys, Dies at 66**\
 `As a songwriter and instrumentalist as well, he blended pop and folk influences into music that helped define college radio in the 1980s and ’90s.`\
 https://nytimes.com/2024/03/12/arts/music/karl-wallinger-dead.html
-
-**At San Sabino, the Don Angie Team Looks to the Sea**\
-`Siete serves up vegan Mexican dishes, Tucci brings contemporary Italian into the Delmonico’s portfolio and more restaurant news.`\
-https://nytimes.com/2024/03/12/dining/don-angie-new-restaurant.html
 

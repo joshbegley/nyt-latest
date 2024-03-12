@@ -1,3 +1,7 @@
+**The Tension Behind Trump’s Appeals to Black Voters**\
+`The former president traffics in stereotypes about Black Americans, yet he is counting on them, and aggressively courting them, in seeking to return to the White House.`\
+https://nytimes.com/2024/03/12/us/politics/trump-black-voters.html
+
 **The Israeli government restricts West Bank Palestinians’ entry to Al Aqsa Mosque during Ramadan.**\
 `By Adam Sella`\
 https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news/the-israeli-government-restricts-west-bank-palestinians-entry-to-al-aqsa-mosque-during-ramadan
