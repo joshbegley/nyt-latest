@@ -1,3 +1,15 @@
+**The Israeli government restricts West Bank Palestinians’ entry to Al Aqsa Mosque during Ramadan.**\
+`By Adam Sella`\
+https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news/the-israeli-government-restricts-west-bank-palestinians-entry-to-al-aqsa-mosque-during-ramadan
+
+**The Royals Tried to Control Their Image Online. The Internet Had Other Ideas.**\
+`Prince William and Princess Catherine, along with Prince Harry, initially embraced social media as a way to bypass the media they reviled.`\
+https://nytimes.com/2024/03/12/world/europe/princess-kate-middleton-royals-photo.html
+
+**Taxes Are a Big Gray Area in Biden’s Budget**\
+`His pledge not to raise middle-class taxes will be expensive, but offsetting increases on the rich remain unspecified.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/biden-budget-income-tax
+
 **Where Will Kyrsten Sinema’s Centrist Voters Go?**\
 `The Democrat-turned-independent senator from Arizona said she will not run for re-election. Some voters who supported her say they are feeling squeezed out of politics.`\
 https://nytimes.com/2024/03/12/us/kyrsten-sinema-arizona-moderate-voters.html
