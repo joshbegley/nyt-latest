@@ -1,3 +1,11 @@
+**Washington State Will Be Next Test of ‘Uncommitted’ Protest Against Biden**\
+`The state’s primary election on Tuesday is the latest site of a movement to reject the president over his stance on Israel, though it may be days before the results are fully clear.`\
+https://nytimes.com/2024/03/12/us/politics/biden-uncommitted-washington-israel-gaza.html
+
+**Trump and Biden could formally clinch their parties’ nominations with Tuesday’s primaries.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/03/12/us/2024-election-trump-biden/trump-and-biden-could-formally-clinch-their-parties-nominations-with-tuesdays-primaries
+
 **Here is what to know about Hur’s report.**\
 `The special counsel, Robert K. Hur, concluded that the evidence was insufficient to charge President Biden with a crime, but sharply criticized him.`\
 https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/here-are-5-takeaways-from-hurs-investigation-into-classified-documents-kept-by-biden

@@ -1,3 +1,11 @@
+**Washington State Will Be Next Test of ‘Uncommitted’ Protest Against Biden**\
+`The state’s primary election on Tuesday is the latest site of a movement to reject the president over his stance on Israel, though it may be days before the results are fully clear.`\
+https://nytimes.com/2024/03/12/us/politics/biden-uncommitted-washington-israel-gaza.html
+
+**Trump and Biden could formally clinch their parties’ nominations with Tuesday’s primaries.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/03/12/us/2024-election-trump-biden/trump-and-biden-could-formally-clinch-their-parties-nominations-with-tuesdays-primaries
+
 **Ukraine-Backed Russian Exile Groups Stage Assaults on Moscow’s Turf**\
 `The attacks and drone strikes across the southern border were intended to counter President Vladimir V. Putin’s control over Russia, a leader in one of the groups said.`\
 https://nytimes.com/2024/03/12/world/europe/ukraine-russia-drone-attacks-putin.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed/food-price-gains-
 **Weekly Student News Quiz: Super Tuesday, Oscars, SAT**\
 `Have you been paying attention to the current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/03/12/learning/12StudentNewsQuiz.html
-
-**The Clock Ticks for TikTok**\
-`Advertisers are sticking with the social media platform, even as the House prepares to vote on a bill to force the company to cut its China ties this week.`\
-https://nytimes.com/2024/03/12/business/dealbook/tiktok-house-ban.html
-
-**How the Special Counsel’s Portrayal of Biden’s Memory Compares With the Transcript**\
-`The special counsel, Robert K. Hur, accused the president last month of “significant” memory problems. The interview transcript offers context to his report.`\
-https://nytimes.com/2024/03/12/us/politics/hur-biden-memory-transcript.html
 
