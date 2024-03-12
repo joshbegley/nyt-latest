@@ -1,3 +1,11 @@
+**Uvalde Police Chief Announces Resignation**\
+`The news comes less than a week after an investigation by the city of Uvalde found that city police officers made mistakes during a 2022 mass shooting, but did not violate policy.`\
+https://nytimes.com/2024/03/12/us/daniel-rodriguez-uvalde-police-resign.html
+
+**Warden Ousted From Federal Women’s Prison Plagued by Sex Abuse**\
+`Leaders of a Northern California prison were removed on the same day that the F.B.I. raided the troubled facility.`\
+https://nytimes.com/2024/03/12/us/warden-ousted-sex-abuse-womens-prison.html
+
 **The Tension Behind Trump’s Appeals to Black Voters**\
 `The former president traffics in stereotypes about Black Americans, yet he is counting on them, and aggressively courting them, in seeking to return to the White House.`\
 https://nytimes.com/2024/03/12/us/politics/trump-black-voters.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/12/style/tiny-modern-love-stories-when-mom-left.html
 **5 Takeaways From Hur’s Testimony About the Biden Classified Documents Inquiry**\
 `A former special counsel, Robert K. Hur, faced sharp scrutiny over his conclusion that the evidence was insufficient to charge President Biden with a crime and his disparaging remarks about the president’s memory.`\
 https://nytimes.com/2024/03/12/us/politics/biden-hur-special-counsel-takeaways.html
-
-**A Pop Star’s Wonky Climate Campaign**\
-`Adam Met wants to make it easier to build wind and solar projects.`\
-https://nytimes.com/2024/03/12/climate/a-pop-stars-wonky-climate-campaign.html
-
-**Karl Wallinger, Who Sang With World Party and the Waterboys, Dies at 66**\
-`As a songwriter and instrumentalist as well, he blended pop and folk influences into music that helped define college radio in the 1980s and ’90s.`\
-https://nytimes.com/2024/03/12/arts/music/karl-wallinger-dead.html
 
