@@ -1,3 +1,15 @@
+**Nebraska Lawmakers Sustain Veto of Needle Exchange Bill**\
+`As the harm reduction approach to illegal drug use loses favor across the country, Nebraska legislators failed on Tuesday to override the governor’s veto of a bill to provide drug users with access to clean needles.`\
+https://nytimes.com/2024/03/12/us/nebraska-drugs-needle-exchange.html
+
+**The Israeli military acknowledges mistaking a bike for a weapon in a strike, but stands by the attack.**\
+`By Aric Toler, Haley Willis and Neil Collier`\
+https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news/the-israeli-military-acknowledges-mistaking-a-bike-for-a-weapon-in-a-strike-but-stands-by-the-attack
+
+**U.S. to Send $300 Million in Weapons to Ukraine Under Makeshift Plan**\
+`The package will keep advancing Russian troops at bay for only a few weeks, an official said.`\
+https://nytimes.com/2024/03/12/us/politics/us-aid-ukraine-war.html
+
 **Polling has indicated a majority of voters are concerned about Biden’s age — including Democrats.**\
 `By Ruth Igielnik`\
 https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/polling-has-indicated-a-majority-of-voters-are-concerned-about-bidens-age-including-democrats
