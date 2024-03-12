@@ -1,3 +1,7 @@
+**Boeing Whistleblower Who Raised Quality Concerns Is Found Dead**\
+`John Barnett had accused the plane manufacturer for retaliating against him after he flagged problems he saw at Boeing’s 787 factory in South Carolina.`\
+https://nytimes.com/2024/03/12/business/john-barnett-boeing-whistleblower-dead.html
+
 **Marnia Lazreg, Scholar of Algeria and the Veil, Dies at 83**\
 `A Hunter College sociologist, she examined the power dynamics and difficult history of her native land from a feminist and anticolonial perspective.`\
 https://nytimes.com/2024/03/12/world/middleeast/marnia-lazreg-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/us/politics/trump-black-voters.html
 **The Israeli government restricts West Bank Palestinians’ entry to Al Aqsa Mosque during Ramadan.**\
 `By Adam Sella`\
 https://nytimes.com/live/2024/03/12/world/israel-hamas-war-gaza-news/the-israeli-government-restricts-west-bank-palestinians-entry-to-al-aqsa-mosque-during-ramadan
-
-**The Royals Tried to Control Their Image Online. The Internet Had Other Ideas.**\
-`Prince William and Princess Catherine, along with Prince Harry, initially embraced social media as a way to bypass the media they reviled.`\
-https://nytimes.com/2024/03/12/world/europe/princess-kate-middleton-royals-photo.html
 
