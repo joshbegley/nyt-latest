@@ -1,3 +1,7 @@
+**New Federal Judiciary Rule Will Limit ‘Forum Shopping’ by Plaintiffs**\
+`For years, litigants have tried to cherry-pick the judges in sweeping cases on abortion and immigration. Random judge selection is about to make that harder.`\
+https://nytimes.com/2024/03/12/us/judge-selection-forum-shopping.html
+
 **A ‘Perfect Monolith’ Appears in Wales**\
 `A local resident said he discovered the shiny, silver object on a prominent hill during his daily walk.`\
 https://nytimes.com/2024/03/12/world/europe/monolith-wales-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/business/john-barnett-boeing-whistleblower-dead.h
 **Marnia Lazreg, Scholar of Algeria and the Veil, Dies at 83**\
 `A Hunter College sociologist, she examined the power dynamics and difficult history of her native land from a feminist and anticolonial perspective.`\
 https://nytimes.com/2024/03/12/world/middleeast/marnia-lazreg-dead.html
-
-**Wednesday Briefing: Turmoil in Haiti**\
-`Also, more U.S. weapons for Ukraine and a looming financial crisis for dating apps`\
-https://nytimes.com/2024/03/12/world/asia/haiti-henry-ukraine-gaza-asia.html
 
