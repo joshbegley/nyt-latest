@@ -1,3 +1,7 @@
+**Eric Carmen, Raspberries Frontman and ‘All By Myself’ Singer, Dies at 74**\
+`He sang on the power-pop pioneers’ 1972 breakout hit, “Go All the Way,” before launching a successful solo career as a soft rock crooner.`\
+https://nytimes.com/2024/03/12/arts/music/eric-carmen-dead.html
+
 **‘He Lost Me’: Why 10 Voters Who Backed Trump in 2016 and 2020 Have Moved On**\
 `They cover why the former president has lost their support, why they aren’t necessarily fans of Biden and who might get their votes instead.`\
 https://nytimes.com/interactive/2024/03/12/opinion/former-trump-voters-focus-group.html
