@@ -1,3 +1,15 @@
+**Children Evacuated From Gazan Orphanage to West Bank**\
+`The German Embassy said it had helped a charity, SOS Children’s Villages International, move nearly 70 children from the city of Rafah to get them “out of acute danger.”`\
+https://nytimes.com/2024/03/12/world/middleeast/orphans-gaza-rafah-west-bank.html
+
+**Inflation ticked up last month, backing the Fed’s caution on rate cuts.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed/inflation-ticked-up-last-month-backing-the-feds-caution-on-rate-cuts
+
+**Transcript: Ezra Klein Talks About the State of the Union and Biden’s 2024 Campaign**\
+`The March 12, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/03/12/podcasts/transript-ezra-klein-sotu-qa.html
+
 **A special counsel’s job is known to be perilous.**\
 `Critics have called Robert K. Hur’s descriptions of President Biden’s memory outside his purview. Others say his narrative was probably motivated by seeking to justify not charging Mr. Biden.`\
 https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/a-special-counsels-job-is-known-to-be-perilous
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/12/world/americas/kenya-haiti-police-deployment.html
 **‘We’re All Living in Oppenheimer’s World’**\
 `The danger he created requires moral leadership, as he warned in 1945.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/oppenheimer-nolan-murphy
-
-**Bitcoin’s Winning Streak Continues**\
-`The cryptocurrency has recently set a series of records, extending a rapid rally that has emboldened the virtual currency industry to flex its political muscle.`\
-https://nytimes.com/2024/03/12/business/dealbook/bitcoin-price.html
-
-**Hur’s appearance gives Republicans a political opening for their attacks on Biden.**\
-`By Luke Broadwater`\
-https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/hurs-appearance-gives-republicans-a-political-opening-for-their-attacks-on-biden
-
-**David Mixner, Fierce Fighter for Gay Rights, Is Dead at 77**\
-`He persuaded Ronald Reagan to help defeat a proposed ban on L.G.B.T.Q. schoolteachers in California in 1978, and he sparred with his friend Bill Clinton over “don’t ask, don’t tell.”`\
-https://nytimes.com/2024/03/12/us/politics/david-mixner-dead.html
 

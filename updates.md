@@ -1,3 +1,15 @@
+**Children Evacuated From Gazan Orphanage to West Bank**\
+`The German Embassy said it had helped a charity, SOS Children’s Villages International, move nearly 70 children from the city of Rafah to get them “out of acute danger.”`\
+https://nytimes.com/2024/03/12/world/middleeast/orphans-gaza-rafah-west-bank.html
+
+**Inflation ticked up last month, backing the Fed’s caution on rate cuts.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/03/12/business/cpi-inflation-fed/inflation-ticked-up-last-month-backing-the-feds-caution-on-rate-cuts
+
+**Transcript: Ezra Klein Talks About the State of the Union and Biden’s 2024 Campaign**\
+`The March 12, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/03/12/podcasts/transript-ezra-klein-sotu-qa.html
+
 **A special counsel’s job is known to be perilous.**\
 `Critics have called Robert K. Hur’s descriptions of President Biden’s memory outside his purview. Others say his narrative was probably motivated by seeking to justify not charging Mr. Biden.`\
 https://nytimes.com/live/2024/03/12/us/hur-biden-testimony/a-special-counsels-job-is-known-to-be-perilous
