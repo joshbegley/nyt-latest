@@ -1,3 +1,7 @@
+**She Trusted God and Science. They Both Failed Her.**\
+`In “Devout,” an author who grew up in the evangelical church recounts her struggle to find spiritual and psychological well-being after a mental health challenge.`\
+https://nytimes.com/2024/03/12/books/review/devout-anna-gazmarian.html
+
 **Airbnb Bans All Indoor Security Cameras**\
 `Widespread use of indoor security cameras has raised concerns about privacy in vacation rentals, hotels, public bathrooms, locker rooms and on cruise ships.`\
 https://nytimes.com/2024/03/12/business/airbnb-indoor-camera-ban.html
