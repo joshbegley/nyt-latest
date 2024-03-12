@@ -1,3 +1,7 @@
+**A ‘Perfect Monolith’ Appears in Wales**\
+`A local resident said he discovered the shiny, silver object on a prominent hill during his daily walk.`\
+https://nytimes.com/2024/03/12/world/europe/monolith-wales-uk.html
+
 **Why Are Aid Workers Getting Killed in Gaza?**\
 `Israel must do a better job of protecting those trying to prevent Palestinian starvation.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/aid-workers-killed-gaza

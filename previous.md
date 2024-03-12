@@ -1,3 +1,7 @@
+**A ‘Perfect Monolith’ Appears in Wales**\
+`A local resident said he discovered the shiny, silver object on a prominent hill during his daily walk.`\
+https://nytimes.com/2024/03/12/world/europe/monolith-wales-uk.html
+
 **Why Are Aid Workers Getting Killed in Gaza?**\
 `Israel must do a better job of protecting those trying to prevent Palestinian starvation.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/aid-workers-killed-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/world/middleeast/marnia-lazreg-dead.html
 **Wednesday Briefing: Turmoil in Haiti**\
 `Also, more U.S. weapons for Ukraine and a looming financial crisis for dating apps`\
 https://nytimes.com/2024/03/12/world/asia/haiti-henry-ukraine-gaza-asia.html
-
-**White House Denies Biden Has Set ‘Red Lines’ for Israel-Hamas War in Gaza**\
-`The Biden administration repeated its warning that Israel should not attack the city of Rafah, the southernmost city in the enclave, without protections for the more than a million people sheltering there.`\
-https://nytimes.com/2024/03/12/world/middleeast/biden-netanyahu-israel-gaza-red-lines.html
 
