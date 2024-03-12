@@ -1,3 +1,7 @@
+**Trump Aides, Taking Over R.N.C., Order Mass Layoffs**\
+`The Republican Party apparatus is undergoing a large cut with just eight months until the election.`\
+https://nytimes.com/2024/03/11/us/politics/rnc-trump-layoffs.html
+
 **The U.N. Security Council discusses sexual violence against Israeli women.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/03/11/world/israel-hamas-war-gaza-news/the-un-security-council-discusses-sexual-violence-against-israeli-women
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/11/us/politics/abortion-trump-tiktok.html
 **The Price of a Very Royal Scandal**\
 `The royal family’s foothold has grown so fragile that they no longer have room for error.`\
 https://nytimes.com/live/2024/03/05/opinion/thepoint/kate-middleton-photoshop-controversy
-
-**The Big Debate Over Retirement Benefits Officially Begins**\
-`Trump and Biden could not be further apart when it comes to Social Security and Medicare.`\
-https://nytimes.com/live/2024/03/05/opinion/thepoint/trump-biden-medicare-social-security
 
