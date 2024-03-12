@@ -1,3 +1,7 @@
+**White House Denies Biden Has Set ‘Red Lines’ for Israel-Hamas War in Gaza**\
+`The Biden administration repeated its warning that Israel should not attack the city of Rafah, the southernmost city in the enclave, without protections for the more than a million people sheltering there.`\
+https://nytimes.com/2024/03/12/world/middleeast/biden-netanyahu-israel-gaza-red-lines.html
+
 **Trump Courts Black Voters Even as He Traffics in Stereotypes**\
 `The former president traffics in stereotypes about Black Americans, yet he is counting on them, and aggressively courting them, in seeking to return to the White House.`\
 https://nytimes.com/2024/03/12/us/politics/trump-black-voters.html

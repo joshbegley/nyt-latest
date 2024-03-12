@@ -1,3 +1,7 @@
+**White House Denies Biden Has Set ‘Red Lines’ for Israel-Hamas War in Gaza**\
+`The Biden administration repeated its warning that Israel should not attack the city of Rafah, the southernmost city in the enclave, without protections for the more than a million people sheltering there.`\
+https://nytimes.com/2024/03/12/world/middleeast/biden-netanyahu-israel-gaza-red-lines.html
+
 **Alaska Airlines Flight Was Scheduled for Safety Check on Day Panel Blew Off**\
 `The 737 Max remained in service for a day after the airline’s engineers, concerned about warning lights, scheduled it to come in for maintenance. During that period, a door plug came off in flight.`\
 https://nytimes.com/2024/03/12/us/politics/alaska-airlines-flight-door.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/12/opinion/thepoint/biden-budget-income-tax
 **Where Will Kyrsten Sinema’s Centrist Voters Go?**\
 `The Democrat-turned-independent senator from Arizona said she will not run for re-election. Some voters who supported her say they are feeling squeezed out of politics.`\
 https://nytimes.com/2024/03/12/us/kyrsten-sinema-arizona-moderate-voters.html
-
-**Is the Landing Soft? Will It Stay That Way?**\
-`Parsing the inflation and unemployment numbers.`\
-https://nytimes.com/2024/03/12/opinion/inflation-soft-landing-economy-unemployment.html
 
