@@ -1,3 +1,7 @@
+**Alaska Airlines Flight Was Scheduled for Safety Check on Day Panel Blew Off**\
+`The 737 Max remained in service for a day after the airline’s engineers, concerned about warning lights, scheduled it to come in for maintenance. During that period, a door plug came off in flight.`\
+https://nytimes.com/2024/03/12/us/politics/alaska-airlines-flight-door.html
+
 **Aaron Rodgers and Jesse Ventura Top R.F.K. Jr.’s List for Running Mate**\
 `Mr. Kennedy said he had been speaking with the Jets quarterback “pretty continuously” for the past month.`\
 https://nytimes.com/2024/03/12/us/politics/rfk-jr-aaron-rodgers-jesse-ventura.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/us/kyrsten-sinema-arizona-moderate-voters.html
 **Is the Landing Soft? Will It Stay That Way?**\
 `Parsing the inflation and unemployment numbers.`\
 https://nytimes.com/2024/03/12/opinion/inflation-soft-landing-economy-unemployment.html
-
-**Tiny Love Stories: ‘When Mom Left’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/03/12/style/tiny-modern-love-stories-when-mom-left.html
 
