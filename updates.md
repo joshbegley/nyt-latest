@@ -1,3 +1,7 @@
+**Where Will Kyrsten Sinema’s Centrist Voters Go?**\
+`The Democrat-turned-independent senator from Arizona said she will not run for re-election. Some voters who supported her say they are feeling squeezed out of politics.`\
+https://nytimes.com/2024/03/12/us/kyrsten-sinema-arizona-moderate-voters.html
+
 **Is the Landing Soft? Will It Stay That Way?**\
 `Parsing the inflation and unemployment numbers.`\
 https://nytimes.com/2024/03/12/opinion/inflation-soft-landing-economy-unemployment.html
