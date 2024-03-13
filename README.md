@@ -1,3 +1,7 @@
+**After Testy Interview With Elon Musk, Don Lemon Says His Deal With X Is Canceled**\
+`Days before the former television anchor’s new talk show debuted, his deal combusted after an interview with the site’s owner, he said.`\
+https://nytimes.com/2024/03/13/technology/don-lemon-elon-musk-x.html
+
 **Israel’s defense minister visits northern Gaza.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/israels-defense-minister-visits-northern-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/us/politics/filibuster-senate-manchin-sinema.html
 **Bipartisan Tax Bill Is Stuck in Senate Limbo After Broad House Approval**\
 `The measure would expand the child tax credit and restore three popular business tax breaks. But Senate Republicans have rejected the existing package as elections loom.`\
 https://nytimes.com/2024/03/13/us/politics/tax-bill-child-credit-senate.html
-
-**New U.S. Arms for Ukraine Will Help, for a Little While**\
-`The $300 million package will help hold off the Russians for a few weeks, analysts say, but without far more Ukraine may go on losing ground.`\
-https://nytimes.com/2024/03/13/world/europe/us-arms-ukraine.html
 
