@@ -1,3 +1,7 @@
+**What Happens Next With TikTok?**\
+`Even though legislation is moving forward, our video apps won’t disappear any time soon.`\
+https://nytimes.com/2024/03/13/technology/tiktok-bill-whats-next.html
+
 **Geert Wilders Says He Will Forgo Becoming Dutch Prime Minister**\
 `Mr. Wilders, a hard-right icon, won the last elections decisively. His announcement may help facilitate the creation of a right-wing government in the Netherlands.`\
 https://nytimes.com/2024/03/13/world/europe/geert-wilders-netherlands-prime-minister.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/arts/music/los-angeles-opera-james-conlon.html
 **Thursday Briefing: U.S. Targets TikTok**\
 `Also, aid to northern Gaza and whimsical wooden automatons`\
 https://nytimes.com/2024/03/13/world/asia/target-us-gaza-aid-asia.html
-
-**A Blood Test Shows Promise for Early Colon Cancer Detection**\
-`Many patients are reluctant to undergo colonoscopies or conduct at-home fecal tests. Doctors see potential in another screening method.`\
-https://nytimes.com/2024/03/13/health/colon-cancer-blood-test.html
 
