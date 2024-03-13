@@ -1,3 +1,7 @@
+**Trailing Trump in Polls, Biden Can Be More Bullish in One Battleground**\
+`The president faces lagging energy in many key states. But in Wisconsin, which he will visit on Wednesday, rolling clashes over abortion rights and democracy have kept Democratic voters fired up.`\
+https://nytimes.com/2024/03/13/us/politics/biden-wisconsin-trump.html
+
 **Putin, in Pre-Election Messaging, Plays Down Threat of Nuclear War**\
 `The Russian leader struck a softer tone in an interview with state television than in last month’s state-of-the-nation address. He is aiming to project stability before this weekend’s vote.`\
 https://nytimes.com/2024/03/13/world/europe/russia-putin-nuclear-war-ukraine.html
