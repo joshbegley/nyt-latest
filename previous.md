@@ -1,3 +1,7 @@
+**Heirs Awarded Nazi-Looted Art Are Still Waiting, 17 Years Later**\
+`A Dutch panel ruled in 2007 to return the painting to a Jewish family, but a notary handling the restitution for the government says he still doesn’t have all the right documents.`\
+https://nytimes.com/2024/03/13/arts/heirs-awarded-nazi-looted-art-are-still-waiting-17-years-later.html
+
 **Neil Young Will Return to Spotify After Joe Rogan Protest**\
 `The rock musician removed his songs from the streamer in 2022 to protest coronavirus podcast episodes, but reversed course in light of the show’s wider distribution.`\
 https://nytimes.com/2024/03/13/arts/music/neil-young-spotify-joe-rogan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/arts/television/apples-never-fall-review-a-drama-
 **Weeknight Chicken Marbella, Briny and Lush With Olives and Prunes**\
 `Rick Martinez’s streamlined recipe updates a 1980s favorite for 2024 weeknights.`\
 https://nytimes.com/2024/03/13/dining/weeknight-chicken-marbella-briny-and-lush-with-olives-and-prunes.html
-
-**House Passes Bill to Force TikTok Sale From Chinese Owner or Ban the App**\
-`The legislation received wide bipartisan support, with both Republicans and Democrats showing an eagerness to appear tough on China.`\
-https://nytimes.com/2024/03/13/technology/tiktok-ban-house-vote.html
 

@@ -1,3 +1,7 @@
+**Heirs Awarded Nazi-Looted Art Are Still Waiting, 17 Years Later**\
+`A Dutch panel ruled in 2007 to return the painting to a Jewish family, but a notary handling the restitution for the government says he still doesn’t have all the right documents.`\
+https://nytimes.com/2024/03/13/arts/heirs-awarded-nazi-looted-art-are-still-waiting-17-years-later.html
+
 **Neil Young Will Return to Spotify After Joe Rogan Protest**\
 `The rock musician removed his songs from the streamer in 2022 to protest coronavirus podcast episodes, but reversed course in light of the show’s wider distribution.`\
 https://nytimes.com/2024/03/13/arts/music/neil-young-spotify-joe-rogan.html
