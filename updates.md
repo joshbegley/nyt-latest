@@ -1,3 +1,11 @@
+**The Israeli military allowed six U.N. trucks to enter northern Gaza directly.**\
+`By Lars Dolder and Adam Rasgon`\
+https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/the-israeli-military-allowed-six-un-trucks-to-enter-northern-gaza-directly
+
+**13mideast-crisis**\
+`U.N. Trucks Get Food Aid Directly Into Northern Gaza`\
+https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news
+
 **Texting Styles**\
 `Are you usually quick — or slow — to reply? How much does your response time depend on who you’re messaging?`\
 https://nytimes.com/2024/03/13/learning/texting-styles.html
