@@ -1,3 +1,7 @@
+**Should China own TikTok?**\
+`Inside the bipartisan effort to end Chinese ownership of the app.`\
+https://nytimes.com/2024/03/13/briefing/tiktok-china-congress.html
+
 **A Vote Targeting TikTok and an Unexpected Win for Ukraine**\
 `Plus, dating apps are feeling rejected.`\
 https://nytimes.com/2024/03/13/podcasts/a-vote-targeting-tiktok-and-an-unexpected-win-for-ukraine.html
