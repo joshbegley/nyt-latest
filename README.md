@@ -7,7 +7,7 @@ https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/israels-def
 https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/abbas-chooses-prime-minister
 
 **Racial Justice Should Include Survivors of Sexual Violence**\
-`There is a strong intersection between the two movements.`\
+`The two movements have a strong intersection.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/sexual-violence-survivors-justice
 
 **Olivia Munn Had Double Mastectomy After Breast Cancer Diagnosis**\
