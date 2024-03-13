@@ -1,3 +1,7 @@
+**Why a Sale of TikTok Would Not Be Easy**\
+`As legislation moves ahead that could eventually mandate a sale by the Chinese parent company ByteDance, hurdles include finding buyers.`\
+https://nytimes.com/2024/03/13/technology/tiktok-ban-sale-china.html
+
 **Israel Allows Aid Directly Into North Gaza, Raising Hopes for More**\
 `The World Food Program delivery, containing food for 25,000 people, was the first since Oct. 7 to go directly from Israel into the northern Gaza Strip, where many people are at risk of starvation.`\
 https://nytimes.com/2024/03/13/world/middleeast/israel-gaza-aid-convoy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/opinion/internet-web-3-tech.html
 **A U.N. agency says one of its workers was killed when Israeli forces hit an aid warehouse in Rafah.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/israeli-forces-hit-an-aid-warehouse-in-rafah-killing-a-un-worker-unrwa-says
-
-**Michigan Vows to Destroy Buyback Guns After Resale Uproar**\
-`Police agencies in Michigan and elsewhere were handing off surrendered firearms to companies that resold the parts in gun kits.`\
-https://nytimes.com/2024/03/13/us/michigan-gun-disposal.html
 
