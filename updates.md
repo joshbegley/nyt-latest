@@ -1,3 +1,7 @@
+**Should China Own TikTok?**\
+`Inside the bipartisan effort to end Chinese ownership of the app.`\
+https://nytimes.com/2024/03/13/briefing/tiktok-china-congress.html
+
 **Should China own TikTok?**\
 `Inside the bipartisan effort to end Chinese ownership of the app.`\
 https://nytimes.com/2024/03/13/briefing/tiktok-china-congress.html
