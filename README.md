@@ -1,3 +1,11 @@
+**From Moscow to Mumbai: Russia Pivots South for Trade**\
+`Once dependent on Europe for trade, Russia has been forging new routes that will allow it to skirt Western restrictions. A planned railway through Iran could be key for those ambitions.`\
+https://nytimes.com/2024/03/13/world/europe/russia-trade-economy-ukraine.html
+
+**These Workers Are Risking Their Lives to Restore Gaza’s Phone Network**\
+`Telecommunications infrastructure has been devastated in the territory, largely preventing Palestinians from calling for help, coordinating the delivery of aid and communicating with family abroad.`\
+https://nytimes.com/2024/03/13/world/middleeast/gaza-phone-networks.html
+
 **Chip Makers Searching for ‘China Plus 1’ Are Finding Malaysia**\
 `A flood of American and European companies are expanding there and around Southeast Asia, a sign of how geopolitics is reshaping tech manufacturing.`\
 https://nytimes.com/2024/03/13/business/malaysia-semiconductors.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/03/12/well/live/covid-pandemic-lockdown-ann
 **Ken Buck Cuts Short House Term, Leaving Republicans Down Yet Another Member**\
 `The Colorado Republican, who announced his retirement last fall, said he would leave Congress at the end of next week, further shrinking his party’s already minuscule majority.`\
 https://nytimes.com/2024/03/12/us/politics/ken-buck-resignation-gop-smaller-majority.html
-
-**Open Letters: Our New Opinion-Writing Contest**\
-`We invite students to write public-facing letters to people or groups about issues that matter to them. Contest dates: March 13 to May 1.`\
-https://nytimes.com/2024/03/12/learning/open-letters-our-new-opinion-writing-contest.html
-
-**Poised and Precise, Hur Enters Fray Over Special Counsel’s Report on Biden**\
-`Robert K. Hur defended himself in the unhurried, forceful cadence of a veteran prosecutor, delivering his responses in a flat, matter-of-fact tone.`\
-https://nytimes.com/2024/03/12/us/politics/robert-hur-testimony.html
 
