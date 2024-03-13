@@ -1,4 +1,4 @@
-**The Actor Who Rides a Subway to the Oscars**\
+**The Actor Who Rides the Subway to the Oscars**\
 `Ed Begley Jr. has made a tradition of taking public transportation to the Academy Awards. And, like many commuters, he wears sensible shoes.`\
 https://nytimes.com/2024/03/13/style/ed-begley-jr-oscars-public-transportation.html
 
