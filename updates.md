@@ -1,3 +1,7 @@
+**Boebert Opts Out of Special Election to Focus on Primary in a New District**\
+`Lauren Boebert’s decision will protect the House Republicans’ razor-thin majority, but it could make her pursuit of the new seat more challenging.`\
+https://nytimes.com/2024/03/13/us/politics/lauren-boebert-special-election-ken-buck.html
+
 **E.U. Removes Russian Tech Tycoon From Sanctions List**\
 `Yandex’s co-founder, Arkady Volozh, received rare sanctions relief after condemning Russia’s war and severing ties to the country.`\
 https://nytimes.com/2024/03/13/world/europe/yandex-eu-sanctions-russia-ukraine.html
