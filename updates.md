@@ -1,3 +1,7 @@
+**Neil Young Will Return to Spotify, Ending Protest of Joe Rogan**\
+`The rock musician removed his songs from the streamer in 2022 to protest coronavirus podcast episodes, but reversed course in light of the show’s wider distribution.`\
+https://nytimes.com/2024/03/13/arts/music/neil-young-spotify-joe-rogan.html
+
 **With Humor, Kobi Libii Gives His Characters a Different Superpower**\
 `The writer and director of “The American Society of Magical Negroes” has made a satire that may feel primed to be provocative. He responds to some of the discourse.`\
 https://nytimes.com/2024/03/13/movies/kobi-libii-american-society-of-magical-negroes.html
