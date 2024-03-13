@@ -1,3 +1,11 @@
+**The Actress Who Looks Out for Denmark**\
+`Hunting murderers, delivering babies or guarding inmates, Sofie Grabol plays women who try to keep their country safe.`\
+https://nytimes.com/2024/03/13/arts/television/sofie-grabol-prisoner.html
+
+**Outdoor Voices to Close All Stores This Week**\
+`The athleisure retailer will go online only, according to employees who were surprised by the announcement.`\
+https://nytimes.com/2024/03/13/style/outdoor-voices-closing-stores.html
+
 **Is the End of the Filibuster Near?**\
 `The Senate’s signature procedural tactic is losing some of its staunchest defenders in Senators Kyrsten Sinema and Joe Manchin, leaving its future in doubt.`\
 https://nytimes.com/2024/03/13/us/politics/filibuster-senate-manchin-sinema.html
