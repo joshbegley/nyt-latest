@@ -1,3 +1,7 @@
+**Trailing Trump in Polls, Biden Can Be More Bullish in One Battleground**\
+`The president faces lagging energy in many key states. But in Wisconsin, which he will visit on Wednesday, rolling clashes over abortion rights and democracy have kept Democratic voters fired up.`\
+https://nytimes.com/2024/03/13/us/politics/biden-wisconsin-trump.html
+
 **Putin, in Pre-Election Messaging, Plays Down Threat of Nuclear War**\
 `The Russian leader struck a softer tone in an interview with state television than in last month’s state-of-the-nation address. He is aiming to project stability before this weekend’s vote.`\
 https://nytimes.com/2024/03/13/world/europe/russia-putin-nuclear-war-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/business/dealbook/sale-tiktok-house-vote.html
 **Many Aid Deliveries for Gaza Are Rejected for ‘Dual-Use’ Items, Groups Say**\
 `One truck was turned away because it contained scissors in medical kits for children, a U.N. official said. Israeli authorities accused the official of lying.`\
 https://nytimes.com/2024/03/13/world/middleeast/unrwa-gaza-aid-trucks-israel.html
-
-**China Condemns U.S. Proposal to Force the Sale of TikTok**\
-`The foreign ministry accused Washington of “resorting to hegemonic moves” ahead of House vote on a bill aimed at ByteDance, TikTok’s Chinese parent company.`\
-https://nytimes.com/2024/03/13/business/china-tiktok-congress.html
 
