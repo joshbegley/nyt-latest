@@ -1,3 +1,7 @@
+**Geert Wilders Says He Will Forgo Becoming Dutch Prime Minister**\
+`Mr. Wilders, a hard-right icon, won the last elections decisively. His announcement may help facilitate the creation of a right-wing government in the Netherlands.`\
+https://nytimes.com/2024/03/13/world/europe/geert-wilders-netherlands-prime-minister.html
+
 **Family drama in the Garden State**\
 `Two of New Jersey’s three statewide offices could be held by people living in the same mansion.`\
 https://nytimes.com/2024/03/13/us/politics/murphy-menendez-senate.html
