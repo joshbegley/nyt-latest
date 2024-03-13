@@ -1,3 +1,7 @@
+**How Will I Know if My Braise Is Ready?**\
+`In the second installment of Ask Kenji, the cookbook author Kenji López-Alt tackles tough questions about tender meat.`\
+https://nytimes.com/article/how-to-braise-meat.html
+
 **After Testy Interview With Elon Musk, Don Lemon Says His Deal With X Is Canceled**\
 `Days before the former television anchor’s new talk show debuted, his deal combusted after an interview with the site’s owner, he said.`\
 https://nytimes.com/2024/03/13/technology/don-lemon-elon-musk-x.html
