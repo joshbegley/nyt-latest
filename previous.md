@@ -1,3 +1,15 @@
+**Is the End of the Filibuster Near?**\
+`The Senate’s signature procedural tactic is losing some of its staunchest defenders in Senators Kyrsten Sinema and Joe Manchin, leaving its future in doubt.`\
+https://nytimes.com/2024/03/13/us/politics/filibuster-senate-manchin-sinema.html
+
+**Bipartisan Tax Bill Is Stuck in Senate Limbo After Broad House Approval**\
+`The measure would expand the child tax credit and restore three popular business tax breaks. But Senate Republicans have rejected the existing package as elections loom.`\
+https://nytimes.com/2024/03/13/us/politics/tax-bill-child-credit-senate.html
+
+**New U.S. Arms for Ukraine Will Help, for a Little While**\
+`The $300 million package will help hold off the Russians for a few weeks, analysts say, but without far more Ukraine may go on losing ground.`\
+https://nytimes.com/2024/03/13/world/europe/us-arms-ukraine.html
+
 **Boebert Opts Out of Special Election to Focus on Primary in a New District**\
 `Lauren Boebert’s decision will protect the House Republicans’ razor-thin majority, but it could make her pursuit of the new seat more challenging.`\
 https://nytimes.com/2024/03/13/us/politics/lauren-boebert-special-election-ken-buck.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/13/arts/dance/review-rennie-harris-hubbard-street-da
 **A Weeknight Skillet Chicken Dinner, Rich With Greens**\
 `This forgiving and adaptable weeknight dinner stars tender chicken thighs, braising greens and whole garlic cloves.`\
 https://nytimes.com/2024/03/13/dining/easy-chicken-dinner-recipe-with-greens.html
-
-**Why Do Whales Go Through Menopause?**\
-`A new study argues that the change brought these females an evolutionary advantage — and perhaps did the same for humans.`\
-https://nytimes.com/2024/03/13/science/whale-menopause.html
-
-**Oil Fields Release Far More Methane Than Thought, Study Finds**\
-`In parts of New Mexico, more than 9 percent of all natural gas produced goes into the atmosphere, where it acts as a powerful greenhouse gas.`\
-https://nytimes.com/2024/03/13/climate/oil-gas-industry-methane-release.html
-
-**Heirs Awarded Nazi-Looted Art Are Still Waiting, 17 Years Later**\
-`A Dutch panel ruled in 2007 to return the painting to a Jewish family, but a notary handling the restitution for the government says he still doesn’t have all the right documents.`\
-https://nytimes.com/2024/03/13/arts/heirs-awarded-nazi-looted-art-are-still-waiting-17-years-later.html
 

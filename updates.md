@@ -1,3 +1,15 @@
+**Is the End of the Filibuster Near?**\
+`The Senate’s signature procedural tactic is losing some of its staunchest defenders in Senators Kyrsten Sinema and Joe Manchin, leaving its future in doubt.`\
+https://nytimes.com/2024/03/13/us/politics/filibuster-senate-manchin-sinema.html
+
+**Bipartisan Tax Bill Is Stuck in Senate Limbo After Broad House Approval**\
+`The measure would expand the child tax credit and restore three popular business tax breaks. But Senate Republicans have rejected the existing package as elections loom.`\
+https://nytimes.com/2024/03/13/us/politics/tax-bill-child-credit-senate.html
+
+**New U.S. Arms for Ukraine Will Help, for a Little While**\
+`The $300 million package will help hold off the Russians for a few weeks, analysts say, but without far more Ukraine may go on losing ground.`\
+https://nytimes.com/2024/03/13/world/europe/us-arms-ukraine.html
+
 **Boebert Opts Out of Special Election to Focus on Primary in a New District**\
 `Lauren Boebert’s decision will protect the House Republicans’ razor-thin majority, but it could make her pursuit of the new seat more challenging.`\
 https://nytimes.com/2024/03/13/us/politics/lauren-boebert-special-election-ken-buck.html
