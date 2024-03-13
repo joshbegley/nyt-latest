@@ -1,3 +1,11 @@
+**Family drama in the Garden State**\
+`Two of New Jersey’s three statewide offices could be held by people living in the same mansion.`\
+https://nytimes.com/2024/03/13/us/politics/murphy-menendez-senate.html
+
+**R.F.K. Jr.’s Possible V.P. Picks Are No Joke**\
+`There are voters who might see Aaron Rodgers or Jesse Ventura as regular people.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/kennedy-rodgers-ventura
+
 **The House Dealt TikTok a Blow**\
 `Also, this college admission season has been a disaster. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/03/13/briefing/house-tiktok-bill-student-aid-delays.html
