@@ -1,3 +1,7 @@
+**Philippe de Gaulle, Admiral and Son of Charles de Gaulle, Dies at 102**\
+`His exploits in World War II and later in Algeria and Indochina were not enough for him emerge from the shadow of his father, for whom a thousand streets in France are named.`\
+https://nytimes.com/2024/03/13/world/europe/philippe-de-gaulle-dead.html
+
 **R.N.C. Shutting Down Community Centers Aimed at Minority Outreach**\
 `An overhaul of the party’s operations continues after Donald Trump’s allies take over.`\
 https://nytimes.com/2024/03/13/us/politics/republican-community-centers-closed.html

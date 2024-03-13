@@ -1,3 +1,7 @@
+**Philippe de Gaulle, Admiral and Son of Charles de Gaulle, Dies at 102**\
+`His exploits in World War II and later in Algeria and Indochina were not enough for him emerge from the shadow of his father, for whom a thousand streets in France are named.`\
+https://nytimes.com/2024/03/13/world/europe/philippe-de-gaulle-dead.html
+
 **R.N.C. Shutting Down Community Centers Aimed at Minority Outreach**\
 `An overhaul of the party’s operations continues after Donald Trump’s allies take over.`\
 https://nytimes.com/2024/03/13/us/politics/republican-community-centers-closed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/briefing/house-tiktok-bill-student-aid-delays.htm
 **A New Plan to Hire Thousands of Workers to Help N.Y.C. Families in Need**\
 `Adrienne Adams, the speaker of the City Council, described the initiative in a speech that highlighted policies aimed at making New York a more affordable place to live.`\
 https://nytimes.com/2024/03/13/nyregion/nyc-job-vacancies-employment.html
-
-**R.F.K. Jr. Will Reveal Running Mate on March 26, His Campaign Says**\
-`The independent presidential candidate’s shortlist of potential running mates includes the N.F.L. quarterback Aaron Rodgers.`\
-https://nytimes.com/2024/03/13/us/politics/rfk-jr-vice-president.html
 
