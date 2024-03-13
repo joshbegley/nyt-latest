@@ -1,3 +1,7 @@
+**Top French University Faces Yet Another Crisis as Leader Resigns**\
+`Mathias Vicherat, the director of Sciences Po, and his former partner are expected to face trial over mutual accusations of violence. His resignation prolongs years of tumult in the school’s highest ranks.`\
+https://nytimes.com/2024/03/13/world/europe/france-sciences-po-mathias-vicherat-resigns.html
+
 **Israeli Strike Kills a Hamas Operative in Lebanon**\
 `It was the latest in a string of targeted killings there of what Israel has called senior figures from both Hezbollah and Hamas.`\
 https://nytimes.com/2024/03/13/world/middleeast/israel-kills-hamas-leader-lebanon.html
