@@ -1,3 +1,7 @@
+**Biden attacks Trump for floating Medicare and Social Security cuts.**\
+`Visiting Wisconsin, one of the nation’s top battleground states, President Biden said he would “never allow” Donald Trump to cut entitlements.`\
+https://nytimes.com/live/2024/03/13/us/2024-election-trump-biden/medicare-social-security
+
 **Some Black Voters Are Souring on Democrats. It May Be Part of a Natural Drift.**\
 `There are signs that Black voters are inching closer to the patterns of other demographic groups.`\
 https://nytimes.com/2024/03/13/opinion/black-democrats-trump-biden.html
