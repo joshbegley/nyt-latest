@@ -1,3 +1,11 @@
+**R.F.K. Jr. Will Reveal Running Mate on March 26, His Campaign Says**\
+`The independent presidential candidate’s shortlist of potential running mates includes the N.F.L. quarterback Aaron Rodgers.`\
+https://nytimes.com/2024/03/13/us/politics/rfk-jr-vice-president.html
+
+**Canada’s equal funding to help Israeli and Palestinian victims of sexual violence draws Israeli fire.**\
+`By Ian Austen`\
+https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/canadas-equal-funding-to-help-israeli-and-palestinian-victims-of-sexual-violence-draws-israeli-fire
+
 **Los Angeles Opera’s Music Director to Step Down After 20 Years**\
 `James Conlon, who has conducted more performances with the company than anyone else, will step down from his post in 2026.`\
 https://nytimes.com/2024/03/13/arts/music/los-angeles-opera-james-conlon.html
