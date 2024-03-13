@@ -1,3 +1,15 @@
+**A Provocative New Biography of Emerson Focuses on the Man**\
+`In “Glad to the Brink of Fear,” James Marcus frames the great Transcendentalist as a writer for our times.`\
+https://nytimes.com/2024/03/13/books/review/james-marcus-glad-to-the-brink-of-fear.html
+
+**Yes, the Internet Is Broken. But What Does a Fix Look Like?**\
+`There’s no obvious way to reclaim control over the web from Big Tech, but technologists are trying.`\
+https://nytimes.com/2024/03/13/opinion/internet-web-3-tech.html
+
+**Israeli forces hit an aid warehouse in Rafah, killing a U.N. worker, UNRWA says.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/israeli-forces-hit-an-aid-warehouse-in-rafah-killing-a-un-worker-unrwa-says
+
 **Michigan Vows to Destroy Buyback Guns After Resale Uproar**\
 `Police agencies in Michigan and elsewhere were handing off surrendered firearms to companies that resold the parts in gun kits.`\
 https://nytimes.com/2024/03/13/us/michigan-gun-disposal.html

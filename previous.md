@@ -1,3 +1,15 @@
+**A Provocative New Biography of Emerson Focuses on the Man**\
+`In “Glad to the Brink of Fear,” James Marcus frames the great Transcendentalist as a writer for our times.`\
+https://nytimes.com/2024/03/13/books/review/james-marcus-glad-to-the-brink-of-fear.html
+
+**Yes, the Internet Is Broken. But What Does a Fix Look Like?**\
+`There’s no obvious way to reclaim control over the web from Big Tech, but technologists are trying.`\
+https://nytimes.com/2024/03/13/opinion/internet-web-3-tech.html
+
+**Israeli forces hit an aid warehouse in Rafah, killing a U.N. worker, UNRWA says.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/israeli-forces-hit-an-aid-warehouse-in-rafah-killing-a-un-worker-unrwa-says
+
 **Michigan Vows to Destroy Buyback Guns After Resale Uproar**\
 `Police agencies in Michigan and elsewhere were handing off surrendered firearms to companies that resold the parts in gun kits.`\
 https://nytimes.com/2024/03/13/us/michigan-gun-disposal.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/israels-def
 **Abbas is holding final consultations with Arab countries before making the appointment, officials say.**\
 `The Palestinian leader has been under international pressure to choose a prime minister who can revitalize the Palestinian Authority.`\
 https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/abbas-chooses-prime-minister
-
-**Racial Justice Should Include Survivors of Sexual Violence**\
-`The two movements have a strong intersection.`\
-https://nytimes.com/live/2024/03/12/opinion/thepoint/sexual-violence-survivors-justice
-
-**Olivia Munn Had Double Mastectomy After Breast Cancer Diagnosis**\
-`Munn said she was given the diagnosis last April, two months after negative results on a test that checked for 90 cancer genes.`\
-https://nytimes.com/2024/03/13/arts/olivia-munn-breast-cancer-mastectomy.html
-
-**What’s in Our Queue? Usher and More**\
-`I’m an assistant editor for The New York Times, covering pop culture. Here are five things I’m into right now.`\
-https://nytimes.com/interactive/2024/03/13/arts/editors-recommendations-usher.html
 
