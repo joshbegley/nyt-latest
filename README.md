@@ -1,3 +1,11 @@
+**The Israeli military allowed six U.N. trucks to enter northern Gaza directly.**\
+`By Lars Dolder and Adam Rasgon`\
+https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/the-israeli-military-allowed-six-un-trucks-to-enter-northern-gaza-directly
+
+**13mideast-crisis**\
+`U.N. Trucks Get Food Aid Directly Into Northern Gaza`\
+https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news
+
 **Texting Styles**\
 `Are you usually quick — or slow — to reply? How much does your response time depend on who you’re messaging?`\
 https://nytimes.com/2024/03/13/learning/texting-styles.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/13/nyregion/migrant-children-selling-candy-subway-la
 **Stephen Colbert Slams Former Special Counsel’s Conclusions**\
 `Colbert objected to Robert K. Hur calling President Biden a “well-meaning, elderly man with a poor memory” in a report on the handling of classified documents.`\
 https://nytimes.com/2024/03/13/arts/television/stephen-colbert-special-counsel-hur.html
-
-**Corrections: March 13, 2024**\
-`Corrections that appeared in print on Wednesday, March 13, 2024.`\
-https://nytimes.com/2024/03/13/pageoneplus/corrections-march-13-2024.html
-
-**Quotation of the Day: With Lackluster Growth, Dating Apps Are in Need of a Spark**\
-`Quotation of the Day for Wednesday, March 13, 2024.`\
-https://nytimes.com/2024/03/13/pageoneplus/quotation-of-the-day-with-lackluster-growth-dating-apps-are-in-need-of-a-spark.html
 
