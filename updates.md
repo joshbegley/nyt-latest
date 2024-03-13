@@ -1,3 +1,7 @@
+**A Ban? A Sale? The Big Questions Hanging Over TikTok**\
+`The popular app could be banned in the U.S. unless its Chinese parent divests. There’s a growing debate on whether that’s even possible.`\
+https://nytimes.com/2024/03/13/business/dealbook/sale-tiktok-house-vote.html
+
 **The Alarming Findings Inside a Mass Shooter’s Brain**\
 `An attack by an Army reservist prompted a search for answers about whether the soldier’s service could have been a factor.`\
 https://nytimes.com/2024/03/13/podcasts/the-daily/maine-shooter-brain.html

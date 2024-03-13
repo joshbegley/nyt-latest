@@ -1,3 +1,7 @@
+**A Ban? A Sale? The Big Questions Hanging Over TikTok**\
+`The popular app could be banned in the U.S. unless its Chinese parent divests. There’s a growing debate on whether that’s even possible.`\
+https://nytimes.com/2024/03/13/business/dealbook/sale-tiktok-house-vote.html
+
 **Many Aid Deliveries for Gaza Are Rejected for ‘Dual-Use’ Items, Groups Say**\
 `One truck was turned away because it contained scissors in medical kits for children, a U.N. official said. Israeli authorities accused the official of lying.`\
 https://nytimes.com/2024/03/13/world/middleeast/unrwa-gaza-aid-trucks-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/technology/reddit-public-offering-stock-market.ht
 **What the ‘Rust’ Shooting Case Is Really About**\
 `The conviction of a “Rust” crew member in a tragic on-set death highlights what Hollywood must do to avoid fatal accidents in the future.`\
 https://nytimes.com/2024/03/13/opinion/rust-hollywood-gun-safety.html
-
-**$550,000 Homes in New York, Ohio and New Jersey**\
-`An A-frame cabin in Greene County, a renovated bungalow in Columbus and a 1911 home outside Philadelphia.`\
-https://nytimes.com/2024/03/13/realestate/550000-dollar-homes-new-york-ohio-new-jersey.html
 
