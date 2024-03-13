@@ -1,3 +1,7 @@
+**Racial Justice Should Include Survivors of Sexual Violence**\
+`There is a strong intersection between the two movements.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/sexual-violence-survivors-justice
+
 **Olivia Munn Had Double Mastectomy After Breast Cancer Diagnosis**\
 `Munn said she was given the diagnosis last April, two months after negative results on a test that checked for 90 cancer genes.`\
 https://nytimes.com/2024/03/13/arts/olivia-munn-breast-cancer-mastectomy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/us/politics/lauren-boebert-special-election-ken-b
 **E.U. Removes Russian Tech Tycoon From Sanctions List**\
 `Yandex’s co-founder, Arkady Volozh, received rare sanctions relief after condemning Russia’s war and severing ties to the country.`\
 https://nytimes.com/2024/03/13/world/europe/yandex-eu-sanctions-russia-ukraine.html
-
-**Robert Hur’s Testimony About His Report on Biden**\
-`Readers discuss the special counsel’s decision not to prosecute. Also: Covid and the “nocebo effect”; New York’s primary; Black English; journaling.`\
-https://nytimes.com/2024/03/13/opinion/robert-hur-joe-biden.html
 
