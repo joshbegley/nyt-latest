@@ -1,3 +1,7 @@
+**The Allure of Getting Dressed**\
+`It’s a genuine trend. Just look at Hedi Slimane’s Celine.`\
+https://nytimes.com/2024/03/13/style/celine-hedi-slimane.html
+
 **Trailing Trump in Polls, Biden Can Be More Bullish in One Battleground**\
 `The president faces lagging energy in many key states. But in Wisconsin, which he will visit on Wednesday, rolling clashes over abortion rights and democracy have kept Democratic voters fired up.`\
 https://nytimes.com/2024/03/13/us/politics/biden-wisconsin-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/style/parental-support-siblings.html
 **A Ban? A Sale? The Big Questions Hanging Over TikTok**\
 `The popular app could be banned in the U.S. unless its Chinese parent divests. There’s a growing debate on whether that’s even possible.`\
 https://nytimes.com/2024/03/13/business/dealbook/sale-tiktok-house-vote.html
-
-**Many Aid Deliveries for Gaza Are Rejected for ‘Dual-Use’ Items, Groups Say**\
-`One truck was turned away because it contained scissors in medical kits for children, a U.N. official said. Israeli authorities accused the official of lying.`\
-https://nytimes.com/2024/03/13/world/middleeast/unrwa-gaza-aid-trucks-israel.html
 

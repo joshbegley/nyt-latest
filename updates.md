@@ -1,3 +1,7 @@
+**The Allure of Getting Dressed**\
+`It’s a genuine trend. Just look at Hedi Slimane’s Celine.`\
+https://nytimes.com/2024/03/13/style/celine-hedi-slimane.html
+
 **Trailing Trump in Polls, Biden Can Be More Bullish in One Battleground**\
 `The president faces lagging energy in many key states. But in Wisconsin, which he will visit on Wednesday, rolling clashes over abortion rights and democracy have kept Democratic voters fired up.`\
 https://nytimes.com/2024/03/13/us/politics/biden-wisconsin-trump.html
