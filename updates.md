@@ -1,3 +1,7 @@
+**Robert Hur’s Testimony About His Report on Biden**\
+`Readers discuss the special counsel’s decision not to prosecute. Also: Covid and the “nocebo effect”; New York’s primary; Black English; journaling.`\
+https://nytimes.com/2024/03/13/opinion/robert-hur-joe-biden.html
+
 **Neil Young Will Return to Spotify, Ending Protest of Joe Rogan**\
 `The rock musician removed his songs from the streamer in 2022 to protest coronavirus podcast episodes, but reversed course in light of the show’s wider distribution.`\
 https://nytimes.com/2024/03/13/arts/music/neil-young-spotify-joe-rogan.html

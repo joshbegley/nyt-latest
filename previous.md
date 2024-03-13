@@ -1,3 +1,7 @@
+**Robert Hur’s Testimony About His Report on Biden**\
+`Readers discuss the special counsel’s decision not to prosecute. Also: Covid and the “nocebo effect”; New York’s primary; Black English; journaling.`\
+https://nytimes.com/2024/03/13/opinion/robert-hur-joe-biden.html
+
 **With Humor, Kobi Libii Gives His Characters a Different Superpower**\
 `The writer and director of “The American Society of Magical Negroes” has made a satire that may feel primed to be provocative. He responds to some of the discourse.`\
 https://nytimes.com/2024/03/13/movies/kobi-libii-american-society-of-magical-negroes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/opinion/politics/politics-nostalgia-economic-grow
 **Anna Wintour Sings! (Sort Of.)**\
 `In a trio of shows about prominent women in media, Ryan Raftery portrays the Vogue editor, as well as Martha Stewart and Kris Jenner.`\
 https://nytimes.com/2024/03/13/fashion/ryan-raftery-joes-pub-anna-wintour.html
-
-**My Ex-Boss Sexually Harassed Me. Do I Owe Him Credit When Sharing Past Work?**\
-`The magazine’s Ethicist columnist on how to uphold a professional expectation after leaving an abusive workplace.`\
-https://nytimes.com/2024/03/13/magazine/boss-harassment-credit-ethics.html
 
