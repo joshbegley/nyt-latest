@@ -1,3 +1,7 @@
+**Neil Young Will Return to Spotify After Joe Rogan Protest**\
+`The rock musician removed his songs from the streamer in 2022 to protest coronavirus podcast episodes, but reversed course in light of the show’s wider distribution.`\
+https://nytimes.com/2024/03/13/arts/music/neil-young-spotify-joe-rogan.html
+
 **Why We Gave Up on the Future**\
 `The rise of political nostalgia isn’t just about “vibes”`\
 https://nytimes.com/2024/03/13/opinion/politics/politics-nostalgia-economic-growth-pessimism.html
