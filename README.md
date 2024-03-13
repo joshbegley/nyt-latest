@@ -1,3 +1,11 @@
+**Tate McRae, Dua Lipa and the Fight to Be ‘Main Pop Girl’**\
+`A conversation about a title that emerged from stan communities, and how it’s played a role in pop singers’ careers.`\
+https://nytimes.com/2024/03/13/arts/music/popcast-main-pop-girl.html
+
+**Hunter Biden Refuses to Testify Publicly, Calling G.O.P. Inquiry a ‘Circus’**\
+`In a letter, a lawyer for the president’s son cited a scheduling conflict and denounced the Republican impeachment inquiry as a “carnival side show.”`\
+https://nytimes.com/2024/03/13/us/politics/hunter-biden-testify.html
+
 **A Provocative New Biography of Emerson Focuses on the Man**\
 `In “Glad to the Brink of Fear,” James Marcus frames the great Transcendentalist as a writer for our times.`\
 https://nytimes.com/2024/03/13/books/review/james-marcus-glad-to-the-brink-of-fear.html
@@ -29,12 +37,4 @@ https://nytimes.com/article/how-to-braise-meat.html
 **After Testy Interview With Elon Musk, Don Lemon Says His Deal With X Is Canceled**\
 `Days before the former television anchor’s new talk show debuted, his deal combusted after an interview with the site’s owner, he said.`\
 https://nytimes.com/2024/03/13/technology/don-lemon-elon-musk-x.html
-
-**Israel’s defense minister visits northern Gaza.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/israels-defense-minister-visits-northern-gaza
-
-**Abbas is holding final consultations with Arab countries before making the appointment, officials say.**\
-`The Palestinian leader has been under international pressure to choose a prime minister who can revitalize the Palestinian Authority.`\
-https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/abbas-chooses-prime-minister
 
