@@ -1,3 +1,11 @@
+**A Blood Test Shows Promise for Early Colon Cancer Detection**\
+`Many patients are reluctant to undergo colonoscopies or conduct at-home fecal tests. Doctors see potential in another screening method.`\
+https://nytimes.com/2024/03/13/health/colon-cancer-blood-test.html
+
+**Autopsy Shows Nex Benedict Died of Suicide**\
+`Nex Benedict, a nonbinary high school student in Oklahoma, died by suicide, with evidence of drug toxicity found, a medical examiner concluded.`\
+https://nytimes.com/2024/03/13/us/nex-benedict-oklahoma-nonbinary-suicide.html
+
 **Christopher Nolan’s ‘Oppenheimer’ Payday Rewards His Artistic Boldness**\
 `It’s not surprising that, in a remunerative sense, he’s treated like a star.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/nolan-salary-oppenheimer
