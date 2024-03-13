@@ -1,3 +1,7 @@
+**Donald Trump and Joe Biden Clinch Their Party Nominations**\
+`After sweeping another set of contests on Tuesday, the former president and the current president have won the delegates they need for a long-anticipated rematch.`\
+https://nytimes.com/2024/03/12/us/politics/trump-republican-nomination.html
+
 **Dallas Seavey Overcomes Moose-Gutting Penalty to Win Iditarod**\
 `It was a record sixth win for Seavey in the sled dog race, despite a harrowing close encounter with a large mammal and a strange punishment.`\
 https://nytimes.com/2024/03/12/sports/dallas-seavey-iditarod-winner-2024.html
