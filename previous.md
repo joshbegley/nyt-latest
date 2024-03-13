@@ -1,3 +1,7 @@
+**Los Angeles Opera’s Music Director to Step Down After 20 Years**\
+`James Conlon, who has conducted more performances with the company than anyone else, will step down from his post in 2026.`\
+https://nytimes.com/2024/03/13/arts/music/los-angeles-opera-james-conlon.html
+
 **Thursday Briefing: U.S. Targets TikTok**\
 `Also, aid to northern Gaza and whimsical wooden automatons`\
 https://nytimes.com/2024/03/13/world/asia/target-us-gaza-aid-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/world/middleeast/israel-boy-killed-east-jerusalem
 **Artists and Speakers Withdraw From SXSW Over U.S. Military’s Support of Israel**\
 `About 80 musical acts, conference speakers and sponsors pulled out of engagements at the festival in Austin to protest the Defense Department’s support of Israel in the war in Gaza.`\
 https://nytimes.com/2024/03/13/us/sxsw-army-sponsorship-protest.html
-
-**Family Dollar to Close Nearly 1,000 Stores**\
-`The chain has struggled for years. Its parent company, Dollar Tree, cited inflation, theft and reduced government benefits as challenges that had prompted the closings.`\
-https://nytimes.com/2024/03/13/business/family-dollar-stores-closing.html
 

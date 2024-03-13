@@ -1,3 +1,7 @@
+**Los Angeles Opera’s Music Director to Step Down After 20 Years**\
+`James Conlon, who has conducted more performances with the company than anyone else, will step down from his post in 2026.`\
+https://nytimes.com/2024/03/13/arts/music/los-angeles-opera-james-conlon.html
+
 **Thursday Briefing: U.S. Targets TikTok**\
 `Also, aid to northern Gaza and whimsical wooden automatons`\
 https://nytimes.com/2024/03/13/world/asia/target-us-gaza-aid-asia.html
