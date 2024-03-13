@@ -1,3 +1,7 @@
+**Israel’s Justice Ministry Opens Inquiry Into Police Killing of Youth in East Jerusalem**\
+`The Israeli police said they fired in response to a firework shot directly at them. The Palestinian news agency said the boy was 13, while the Jerusalem hospital where he was pronounced dead said he was 12.`\
+https://nytimes.com/2024/03/13/world/middleeast/israel-boy-killed-east-jerusalem-palestinian.html
+
 **United States House Passes Bill That Could Ban TikTok**\
 `If the TikTok bill were to become law, it would likely deepen a cold war between the United States and China over the control of important technologies.`\
 https://nytimes.com/video/us/politics/100000009360168/tiktok-ban-house-china.html
