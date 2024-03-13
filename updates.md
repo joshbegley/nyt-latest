@@ -1,3 +1,7 @@
+**Close Call**\
+`Drew Schmenner proves that constructing puzzles is his forte.`\
+https://nytimes.com/2024/03/12/crosswords/daily-puzzle-2024-03-13.html
+
 **When the Pandemic Hit Home**\
 `New York Times readers share the moment they realized Covid would change the world.`\
 https://nytimes.com/interactive/2024/03/12/well/live/covid-pandemic-lockdown-anniversary.html

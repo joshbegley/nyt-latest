@@ -1,3 +1,7 @@
+**Close Call**\
+`Drew Schmenner proves that constructing puzzles is his forte.`\
+https://nytimes.com/2024/03/12/crosswords/daily-puzzle-2024-03-13.html
+
 **When the Pandemic Hit Home**\
 `New York Times readers share the moment they realized Covid would change the world.`\
 https://nytimes.com/interactive/2024/03/12/well/live/covid-pandemic-lockdown-anniversary.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/opinion/haiti-crisis-united-states.html
 **Netanyahu Is Making Israel Radioactive**\
 `Things have gone terribly wrong in Gaza. They could get worse soon.`\
 https://nytimes.com/2024/03/12/opinion/israel-hamas-war-netanyahu.html
-
-**Israel Has No Choice but to Fight On**\
-`As long as Hamas maintains military power, there is no hope for peace.`\
-https://nytimes.com/2024/03/12/opinion/israel-hamas-war-military.html
 
