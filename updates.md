@@ -1,3 +1,7 @@
+**What Happens Next With TikTok?**\
+`Even though legislation is moving forward, our video apps won’t disappear any time soon.`\
+https://nytimes.com/2024/03/13/technology/tiktok-bill-whats-next.html
+
 **Geert Wilders Says He Will Forgo Becoming Dutch Prime Minister**\
 `Mr. Wilders, a hard-right icon, won the last elections decisively. His announcement may help facilitate the creation of a right-wing government in the Netherlands.`\
 https://nytimes.com/2024/03/13/world/europe/geert-wilders-netherlands-prime-minister.html
