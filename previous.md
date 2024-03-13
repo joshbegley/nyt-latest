@@ -1,3 +1,7 @@
+**Len Sirowitz, Whose Bold, Offbeat Ads Captured an Era, Dies at 91**\
+`An award-winning agency art director, he brought a striking visual touch to campaigns for the Volkswagen Beetle, Sara Lee and Sony in the ’60s as well as to the antiwar and antinuclear movements.`\
+https://nytimes.com/2024/03/13/business/len-sirowitz-dead.html
+
 **TikTok’s Security Threats Go Beyond the Scope of House Legislation**\
 `The security threat has less to do with who owns the app than who writes the code and algorithms that make TikTok tick.`\
 https://nytimes.com/2024/03/13/us/politics/tiktok-ban-house-bill.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/world/europe/philippe-de-gaulle-dead.html
 **R.N.C. Shutting Down Community Centers Aimed at Minority Outreach**\
 `An overhaul of the party’s operations continues after Donald Trump’s allies take over.`\
 https://nytimes.com/2024/03/13/us/politics/republican-community-centers-closed.html
-
-**‘Devastated’ Widow Says M.T.A. Workers Shared Photos of Slain Husband**\
-`Jakeba Dockery says graphic photos of her husband, Richard Henderson, after he was shot on a No. 3 train were shared online in violation of New York’s civil rights law.`\
-https://nytimes.com/2024/03/13/nyregion/subway-shooting-photos-richard-henderson.html
 
