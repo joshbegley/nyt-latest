@@ -1,3 +1,7 @@
+**Under Armour’s Founder Will Return as C.E.O.**\
+`Kevin Plank, the sports apparel company’s controlling shareholder, will seek to reinvigorate the struggling brand.`\
+https://nytimes.com/2024/03/13/business/under-armour-kevin-plank-chief-executive.html
+
 **Trooper Cleared in Killing of Unarmed Man He Shot After High-Speed Chase**\
 `A state court judge found Anthony Nigro not guilty of manslaughter charges in the fatal shooting of James Huber in Buffalo in February 2022.`\
 https://nytimes.com/2024/03/13/nyregion/anthony-nigro-state-police-shooting.html
