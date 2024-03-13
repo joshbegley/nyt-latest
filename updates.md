@@ -1,3 +1,7 @@
+**Trooper Cleared in Killing of Unarmed Man He Shot After High-Speed Chase**\
+`A state court judge found Anthony Nigro not guilty of manslaughter charges in the fatal shooting of James Huber in Buffalo in February 2022.`\
+https://nytimes.com/2024/03/13/nyregion/anthony-nigro-state-police-shooting.html
+
 **Biden attacks Trump for floating Medicare and Social Security cuts.**\
 `Visiting Wisconsin, one of the nation’s top battleground states, President Biden said he would “never allow” Donald Trump to cut entitlements.`\
 https://nytimes.com/live/2024/03/13/us/2024-election-trump-biden/medicare-social-security
