@@ -1,3 +1,7 @@
+**Artists and Speakers Withdraw From SXSW Over U.S. Military’s Support of Israel**\
+`About 80 musical acts, conference speakers and sponsors pulled out of engagements at the festival in Austin to protest the Defense Department’s support of Israel in the war in Gaza.`\
+https://nytimes.com/2024/03/13/us/sxsw-army-sponsorship-protest.html
+
 **Family Dollar to Close Nearly 1,000 Stores**\
 `The chain has struggled for years. Its parent company, Dollar Tree, cited inflation, theft and reduced government benefits as challenges that had prompted the closings.`\
 https://nytimes.com/2024/03/13/business/family-dollar-stores-closing.html
