@@ -1,3 +1,7 @@
+**Trump and Biden turn focus to fall, now as the presumptive nominees.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/03/13/us/2024-election-trump-biden/trump-and-biden-turn-focus-to-fall-now-as-the-presumptive-nominees
+
 **Top French University Faces Yet Another Crisis as Leader Resigns**\
 `Mathias Vicherat, the director of Sciences Po, and his former partner are expected to face trial over mutual accusations of violence. His resignation prolongs years of tumult in the school’s highest ranks.`\
 https://nytimes.com/2024/03/13/world/europe/france-sciences-po-mathias-vicherat-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/business/china-tiktok-congress.html
 **Should China Own TikTok?**\
 `Inside the bipartisan effort to end Chinese ownership of the app.`\
 https://nytimes.com/2024/03/13/briefing/tiktok-china-congress.html
-
-**A Vote Targeting TikTok and an Unexpected Win for Ukraine**\
-`Plus, dating apps are feeling rejected.`\
-https://nytimes.com/2024/03/13/podcasts/a-vote-targeting-tiktok-and-an-unexpected-win-for-ukraine.html
 
