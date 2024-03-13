@@ -30,7 +30,7 @@ https://nytimes.com/2024/03/13/books/review/james-marcus-glad-to-the-brink-of-fe
 `There’s no obvious way to reclaim control over the web from Big Tech, but technologists are trying.`\
 https://nytimes.com/2024/03/13/opinion/internet-web-3-tech.html
 
-**Israeli forces hit an aid warehouse in Rafah, killing a U.N. worker, UNRWA says.**\
+**A U.N. agency says one of its workers was killed when Israeli forces hit an aid warehouse in Rafah.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/israeli-forces-hit-an-aid-warehouse-in-rafah-killing-a-un-worker-unrwa-says
 

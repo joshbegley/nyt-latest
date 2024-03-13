@@ -1,3 +1,7 @@
+**A U.N. agency says one of its workers was killed when Israeli forces hit an aid warehouse in Rafah.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/israeli-forces-hit-an-aid-warehouse-in-rafah-killing-a-un-worker-unrwa-says
+
 **Israel Allows Aid Directly Into North Gaza, Raising Hopes for More**\
 `The World Food Program delivery, containing food for 25,000 people, was the first since Oct. 7 to go directly from Israel into the northern Gaza Strip, where many people are at risk of starvation.`\
 https://nytimes.com/2024/03/13/world/middleeast/israel-gaza-aid-convoy.html
