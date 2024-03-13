@@ -1,3 +1,7 @@
+**Dallas Seavey Overcomes Moose-Gutting Penalty to Win Iditarod**\
+`It was a record sixth win for Seavey in the sled dog race, despite a harrowing close encounter with a large mammal and a strange punishment.`\
+https://nytimes.com/2024/03/12/sports/dallas-seavey-iditarod-winner-2024.html
+
 **Close Call**\
 `Drew Schmenner proves that constructing puzzles is his forte.`\
 https://nytimes.com/2024/03/12/crosswords/daily-puzzle-2024-03-13.html
