@@ -1,3 +1,11 @@
+**A Blood Test Shows Promise for Early Colon Cancer Detection**\
+`Many patients are reluctant to undergo colonoscopies or conduct at-home fecal tests. Doctors see potential in another screening method.`\
+https://nytimes.com/2024/03/13/health/colon-cancer-blood-test.html
+
+**Autopsy Shows Nex Benedict Died of Suicide**\
+`Nex Benedict, a nonbinary high school student in Oklahoma, died by suicide, with evidence of drug toxicity found, a medical examiner concluded.`\
+https://nytimes.com/2024/03/13/us/nex-benedict-oklahoma-nonbinary-suicide.html
+
 **Christopher Nolan’s ‘Oppenheimer’ Payday Rewards His Artistic Boldness**\
 `It’s not surprising that, in a remunerative sense, he’s treated like a star.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/nolan-salary-oppenheimer
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/13/business/family-dollar-stores-closing.html
 **Tate McRae, Dua Lipa and the Fight to Be ‘Main Pop Girl’**\
 `A conversation about a title that emerged from stan communities, and how it’s played a role in pop singers’ careers.`\
 https://nytimes.com/2024/03/13/arts/music/popcast-main-pop-girl.html
-
-**Hunter Biden Refuses to Testify Publicly, Calling G.O.P. Inquiry a ‘Circus’**\
-`In a letter, a lawyer for the president’s son cited a scheduling conflict and denounced the Republican impeachment inquiry as a “carnival side show.”`\
-https://nytimes.com/2024/03/13/us/politics/hunter-biden-testify.html
-
-**A Provocative New Biography of Emerson Focuses on the Man**\
-`In “Glad to the Brink of Fear,” James Marcus frames the great Transcendentalist as a writer for our times.`\
-https://nytimes.com/2024/03/13/books/review/james-marcus-glad-to-the-brink-of-fear.html
 
