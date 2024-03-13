@@ -1,9 +1,13 @@
+**Thursday Briefing: U.S. Targets TikTok**\
+`Also, aid to northern Gaza and whimsical wooden automatons`\
+https://nytimes.com/2024/03/13/world/asia/target-us-gaza-aid-asia.html
+
 **A Blood Test Shows Promise for Early Colon Cancer Detection**\
 `Many patients are reluctant to undergo colonoscopies or conduct at-home fecal tests. Doctors see potential in another screening method.`\
 https://nytimes.com/2024/03/13/health/colon-cancer-blood-test.html
 
 **Autopsy Shows Nex Benedict Died of Suicide**\
-`Nex Benedict, a nonbinary high school student in Oklahoma, died by suicide, with evidence of drug toxicity found, a medical examiner concluded.`\
+`A medical examiner found evidence of a toxic mix of drugs in the 16-year-old nonbinary high school student in Oklahoma, who died one day after an altercation in a girls’ bathroom.`\
 https://nytimes.com/2024/03/13/us/nex-benedict-oklahoma-nonbinary-suicide.html
 
 **Christopher Nolan’s ‘Oppenheimer’ Payday Rewards His Artistic Boldness**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/us/sxsw-army-sponsorship-protest.html
 **Family Dollar to Close Nearly 1,000 Stores**\
 `The chain has struggled for years. Its parent company, Dollar Tree, cited inflation, theft and reduced government benefits as challenges that had prompted the closings.`\
 https://nytimes.com/2024/03/13/business/family-dollar-stores-closing.html
-
-**Tate McRae, Dua Lipa and the Fight to Be ‘Main Pop Girl’**\
-`A conversation about a title that emerged from stan communities, and how it’s played a role in pop singers’ careers.`\
-https://nytimes.com/2024/03/13/arts/music/popcast-main-pop-girl.html
 
