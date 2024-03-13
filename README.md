@@ -35,6 +35,6 @@ https://nytimes.com/2024/03/13/opinion/biden-win-election-global.html
 https://nytimes.com/2024/03/13/world/europe/philippe-de-gaulle-dead.html
 
 **R.N.C. Shutting Down Community Centers Aimed at Minority Outreach**\
-`An overhaul of the party’s operations continues after Donald Trump’s allies take over.`\
+`While the new chairman says the party still plans to use the centers, an overhaul of G.O.P. operations continues as Donald Trump’s allies take over.`\
 https://nytimes.com/2024/03/13/us/politics/republican-community-centers-closed.html
 
