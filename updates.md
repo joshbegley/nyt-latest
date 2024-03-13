@@ -1,3 +1,7 @@
+**Why We Gave Up on the Future**\
+`The rise of political nostalgia isn’t just about “vibes.”`\
+https://nytimes.com/2024/03/13/opinion/politics/politics-nostalgia-economic-growth-pessimism.html
+
 **Heirs Awarded Nazi-Looted Art Are Still Waiting, 17 Years Later**\
 `A Dutch panel ruled in 2007 to return the painting to a Jewish family, but a notary handling the restitution for the government says he still doesn’t have all the right documents.`\
 https://nytimes.com/2024/03/13/arts/heirs-awarded-nazi-looted-art-are-still-waiting-17-years-later.html

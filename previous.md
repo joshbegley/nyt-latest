@@ -7,7 +7,7 @@ https://nytimes.com/2024/03/13/arts/heirs-awarded-nazi-looted-art-are-still-wait
 https://nytimes.com/2024/03/13/arts/music/neil-young-spotify-joe-rogan.html
 
 **Why We Gave Up on the Future**\
-`The rise of political nostalgia isn’t just about “vibes”`\
+`The rise of political nostalgia isn’t just about “vibes.”`\
 https://nytimes.com/2024/03/13/opinion/politics/politics-nostalgia-economic-growth-pessimism.html
 
 **Anna Wintour Sings! (Sort Of.)**\
