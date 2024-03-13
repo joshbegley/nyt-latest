@@ -1,3 +1,7 @@
+**Israel’s defense minister visits northern Gaza.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/israels-defense-minister-visits-northern-gaza
+
 **Abbas is holding final consultations with Arab countries before making the appointment, officials say.**\
 `The Palestinian leader has been under international pressure to choose a prime minister who can revitalize the Palestinian Authority.`\
 https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/abbas-chooses-prime-minister
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/us/politics/tax-bill-child-credit-senate.html
 **New U.S. Arms for Ukraine Will Help, for a Little While**\
 `The $300 million package will help hold off the Russians for a few weeks, analysts say, but without far more Ukraine may go on losing ground.`\
 https://nytimes.com/2024/03/13/world/europe/us-arms-ukraine.html
-
-**Boebert Opts Out of Special Election to Focus on Primary in a New District**\
-`Lauren Boebert’s decision will protect the House Republicans’ razor-thin majority, but it could make her pursuit of the new seat more challenging.`\
-https://nytimes.com/2024/03/13/us/politics/lauren-boebert-special-election-ken-buck.html
 

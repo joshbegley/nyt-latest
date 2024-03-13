@@ -1,3 +1,7 @@
+**Abbas is holding final consultations with Arab countries before making the appointment, officials say.**\
+`The Palestinian leader has been under international pressure to choose a prime minister who can revitalize the Palestinian Authority.`\
+https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/abbas-chooses-prime-minister
+
 **Racial Justice Should Include Survivors of Sexual Violence**\
 `There is a strong intersection between the two movements.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/sexual-violence-survivors-justice
