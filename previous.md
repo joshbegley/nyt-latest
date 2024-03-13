@@ -1,3 +1,7 @@
+**James Crumbley Declines to Testify in His Michigan School Shooting Trial**\
+`Witness testimony in the trial ended on Wednesday. Mr. Crumbley faces involuntary manslaughter charges for the four students killed by his son.`\
+https://nytimes.com/2024/03/13/us/james-crumbley-trial-michigan-shooting.html
+
 **‘Apples Never Fall’ Review: A Drama Wrapped in a Mystery Inside a Formula**\
 `This Peacock mini-series about a bitter family and a missing woman is TV’s latest adaptation of a novel by the author of “Big Little Lies.”`\
 https://nytimes.com/2024/03/13/arts/television/apples-never-fall-review-a-drama-wrapped-in-a-mystery-inside-a-formula.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/world/europe/russia-putin-nuclear-war-ukraine.htm
 **Trump and Biden turn focus to fall, now as the presumptive nominees.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/03/13/us/2024-election-trump-biden/trump-and-biden-turn-focus-to-fall-now-as-the-presumptive-nominees
-
-**Top French University Faces Yet Another Crisis as Leader Resigns**\
-`Mathias Vicherat, the director of Sciences Po, and his former partner are expected to face trial over mutual accusations of violence. His resignation prolongs years of tumult in the school’s highest ranks.`\
-https://nytimes.com/2024/03/13/world/europe/france-sciences-po-mathias-vicherat-resigns.html
 
