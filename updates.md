@@ -1,3 +1,7 @@
+**Inside the Blunders That Plunged the College Admission Season Into Disarray**\
+`The Education Department was supposed to make applying for federal financial aid easier. Instead, it got worse.`\
+https://nytimes.com/2024/03/13/us/politics/inside-the-blunders-that-plunged-the-college-admission-season-into-disarray.html
+
 **Robert Hur’s Testimony About His Report on Biden**\
 `Readers discuss the special counsel’s decision not to prosecute. Also: Covid and the “nocebo effect”; New York’s primary; Black English; journaling.`\
 https://nytimes.com/2024/03/13/opinion/robert-hur-joe-biden.html

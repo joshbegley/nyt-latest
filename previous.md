@@ -2,6 +2,10 @@
 `Readers discuss the special counsel’s decision not to prosecute. Also: Covid and the “nocebo effect”; New York’s primary; Black English; journaling.`\
 https://nytimes.com/2024/03/13/opinion/robert-hur-joe-biden.html
 
+**Inside the Blunders That Plunged the College Admission Season Into Disarray**\
+`The Education Department was supposed to make applying for federal financial aid easier. Instead, it got worse.`\
+https://nytimes.com/2024/03/13/us/politics/inside-the-blunders-that-plunged-the-college-admission-season-into-disarray.html
+
 **With Humor, Kobi Libii Gives His Characters a Different Superpower**\
 `The writer and director of “The American Society of Magical Negroes” has made a satire that may feel primed to be provocative. He responds to some of the discourse.`\
 https://nytimes.com/2024/03/13/movies/kobi-libii-american-society-of-magical-negroes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/arts/music/neil-young-spotify-joe-rogan.html
 **Why We Gave Up on the Future**\
 `The rise of political nostalgia isn’t just about “vibes.”`\
 https://nytimes.com/2024/03/13/opinion/politics/politics-nostalgia-economic-growth-pessimism.html
-
-**Anna Wintour Sings! (Sort Of.)**\
-`In a trio of shows about prominent women in media, Ryan Raftery portrays the Vogue editor, as well as Martha Stewart and Kris Jenner.`\
-https://nytimes.com/2024/03/13/fashion/ryan-raftery-joes-pub-anna-wintour.html
 
