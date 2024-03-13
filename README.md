@@ -1,3 +1,7 @@
+**Dallas Seavey Overcomes Moose-Gutting Penalty to Win Iditarod**\
+`It was a record sixth win for Seavey in the sled dog race, despite a harrowing close encounter with a large mammal and a strange punishment.`\
+https://nytimes.com/2024/03/12/sports/dallas-seavey-iditarod-winner-2024.html
+
 **Close Call**\
 `Drew Schmenner proves that constructing puzzles is his forte.`\
 https://nytimes.com/2024/03/12/crosswords/daily-puzzle-2024-03-13.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/world/middleeast/israel-gaza-aid-ship.html
 **A Chance for Hope in Haiti’s Latest Crisis**\
 `Why I am hopeful — and fearful — about the country’s future.`\
 https://nytimes.com/2024/03/12/opinion/haiti-crisis-united-states.html
-
-**Netanyahu Is Making Israel Radioactive**\
-`Things have gone terribly wrong in Gaza. They could get worse soon.`\
-https://nytimes.com/2024/03/12/opinion/israel-hamas-war-netanyahu.html
 
