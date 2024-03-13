@@ -14,8 +14,8 @@ https://nytimes.com/2024/03/13/world/europe/russia-trade-economy-ukraine.html
 `Telecommunications infrastructure has been devastated in the territory, largely preventing Palestinians from calling for help, coordinating the delivery of aid and communicating with family abroad.`\
 https://nytimes.com/2024/03/13/world/middleeast/gaza-phone-networks.html
 
-**Chip Makers Searching for ‘China Plus 1’ Are Finding Malaysia**\
-`A flood of American and European companies are expanding there and around Southeast Asia, a sign of how geopolitics is reshaping tech manufacturing.`\
+**Malaysia Rises as Crucial Link in Chip Supply Chain**\
+`U.S. and European companies looking to diversify from China are expanding around Southeast Asia, a sign of how geopolitics is reshaping tech manufacturing.`\
 https://nytimes.com/2024/03/13/business/malaysia-semiconductors.html
 
 **A Trump ally and election denier is hired for a leadership role at the R.N.C.**\

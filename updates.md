@@ -1,3 +1,7 @@
+**Malaysia Rises as Crucial Link in Chip Supply Chain**\
+`U.S. and European companies looking to diversify from China are expanding around Southeast Asia, a sign of how geopolitics is reshaping tech manufacturing.`\
+https://nytimes.com/2024/03/13/business/malaysia-semiconductors.html
+
 **Japanese Rocket Explodes After Liftoff**\
 `A plume of smoke rose over the launch site as the surrounding area caught fire.`\
 https://nytimes.com/video/world/asia/100000009358900/japanese-rocket-explodes-after-liftoff.html
