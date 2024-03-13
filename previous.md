@@ -1,3 +1,7 @@
+**There Is Something Putin Can’t Control**\
+`As “The Master and Margarita” shows, power never totally succeeds in shaping art to its ends.`\
+https://nytimes.com/2024/03/13/opinion/putin-russia-master-margarita.html
+
 **Space One Rocket Explodes Seconds After Launch in Japan**\
 `The Japanese company hoped to become the country’s first private business to put a satellite into orbit. The failed launch was its inaugural flight.`\
 https://nytimes.com/2024/03/13/world/asia/japan-rocket-space-one-kairos.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/12/us/2024-election-trump-biden/uncommitted-bid
 **Donald Trump and Joe Biden Clinch Their Party Nominations**\
 `After sweeping another set of contests on Tuesday, the former president and the current president have won the delegates they need for a long-anticipated rematch.`\
 https://nytimes.com/2024/03/12/us/politics/trump-republican-nomination.html
-
-**Dallas Seavey Overcomes Moose-Gutting Penalty to Win Iditarod**\
-`It was a record sixth win for Seavey in the sled dog race, despite a harrowing close encounter with a large mammal and a strange punishment.`\
-https://nytimes.com/2024/03/12/sports/dallas-seavey-iditarod-winner-2024.html
 

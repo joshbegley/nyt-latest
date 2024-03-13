@@ -1,3 +1,7 @@
+**There Is Something Putin Can’t Control**\
+`As “The Master and Margarita” shows, power never totally succeeds in shaping art to its ends.`\
+https://nytimes.com/2024/03/13/opinion/putin-russia-master-margarita.html
+
 **Space One Rocket Explodes Seconds After Launch in Japan**\
 `The Japanese company hoped to become the country’s first private business to put a satellite into orbit. The failed launch was its inaugural flight.`\
 https://nytimes.com/2024/03/13/world/asia/japan-rocket-space-one-kairos.html
