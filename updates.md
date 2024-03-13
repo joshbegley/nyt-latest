@@ -1,3 +1,7 @@
+**Israeli Strike Kills a Hamas Operative in Lebanon**\
+`It was the latest in a string of targeted killings there of what Israel has called senior figures from both Hezbollah and Hamas.`\
+https://nytimes.com/2024/03/13/world/middleeast/israel-kills-hamas-leader-lebanon.html
+
 **Time-Saving Tips for Using Your Phone as a … Telephone**\
 `The latest smartphone software includes tools to help you more easily connect with the people you want to contact — and avoid those you don’t.`\
 https://nytimes.com/2024/03/13/technology/personaltech/save-time-on-the-telephone.html

@@ -1,3 +1,7 @@
+**Israeli Strike Kills a Hamas Operative in Lebanon**\
+`It was the latest in a string of targeted killings there of what Israel has called senior figures from both Hezbollah and Hamas.`\
+https://nytimes.com/2024/03/13/world/middleeast/israel-kills-hamas-leader-lebanon.html
+
 **Time-Saving Tips for Using Your Phone as a … Telephone**\
 `The latest smartphone software includes tools to help you more easily connect with the people you want to contact — and avoid those you don’t.`\
 https://nytimes.com/2024/03/13/technology/personaltech/save-time-on-the-telephone.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/podcasts/a-vote-targeting-tiktok-and-an-unexpecte
 **The Alarming Findings Inside a Mass Shooter’s Brain**\
 `An attack by an Army reservist prompted a search for answers about whether the soldier’s service could have been a factor.`\
 https://nytimes.com/2024/03/13/podcasts/the-daily/maine-shooter-brain.html
-
-**Seattle University to Receive $300 Million Art Collection**\
-`The hotel developer Richard Hedreen is donating more than 200 artworks, and $25 million in seed money, in honor of his wife, Betty, an alumna.`\
-https://nytimes.com/2024/03/13/arts/design/hedreen-university-of-seattle-art-gift.html
 
