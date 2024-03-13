@@ -1,3 +1,11 @@
+**Corrections: March 13, 2024**\
+`Corrections that appeared in print on Wednesday, March 13, 2024.`\
+https://nytimes.com/2024/03/13/pageoneplus/corrections-march-13-2024.html
+
+**Quotation of the Day: With Lackluster Growth, Dating Apps Are in Need of a Spark**\
+`Quotation of the Day for Wednesday, March 13, 2024.`\
+https://nytimes.com/2024/03/13/pageoneplus/quotation-of-the-day-with-lackluster-growth-dating-apps-are-in-need-of-a-spark.html
+
 **Word of the Day: gauzy**\
 `This word has appeared in 46 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/13/learning/word-of-the-day-gauzy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/13/world/europe/russia-trade-economy-ukraine.html
 **These Workers Are Risking Their Lives to Restore Gaza’s Phone Network**\
 `Telecommunications infrastructure has been devastated in the territory, largely preventing Palestinians from calling for help, coordinating the delivery of aid and communicating with family abroad.`\
 https://nytimes.com/2024/03/13/world/middleeast/gaza-phone-networks.html
-
-**Malaysia Rises as Crucial Link in Chip Supply Chain**\
-`U.S. and European companies looking to diversify from China are expanding around Southeast Asia, a sign of how geopolitics is reshaping tech manufacturing.`\
-https://nytimes.com/2024/03/13/business/malaysia-semiconductors.html
-
-**A Trump ally and election denier is hired for a leadership role at the R.N.C.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/03/12/us/2024-election-trump-biden/trump-election-denier-rnc
 
