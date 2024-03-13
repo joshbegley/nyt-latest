@@ -1,3 +1,7 @@
+**When the Pandemic Hit Home**\
+`New York Times readers share the moment they realized Covid would change the world.`\
+https://nytimes.com/interactive/2024/03/12/well/live/covid-pandemic-lockdown-anniversary.html
+
 **Ken Buck Cuts Short House Term, Leaving Republicans Down Yet Another Member**\
 `The Colorado Republican, who announced his retirement last fall, said he would leave Congress at the end of next week, further shrinking his party’s already minuscule majority.`\
 https://nytimes.com/2024/03/12/us/politics/ken-buck-resignation-gop-smaller-majority.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/opinion/israel-hamas-war-netanyahu.html
 **Israel Has No Choice but to Fight On**\
 `As long as Hamas maintains military power, there is no hope for peace.`\
 https://nytimes.com/2024/03/12/opinion/israel-hamas-war-military.html
-
-**Literary Magazine Retracts Israeli Writer’s Essay as Staffers Quit**\
-`An Israeli writer’s essay about seeking common ground with Palestinians led to the resignation of at least 10 staff members at Guernica.`\
-https://nytimes.com/2024/03/12/arts/guernica-magazine-staff-quits-israel.html
 

@@ -1,3 +1,7 @@
+**When the Pandemic Hit Home**\
+`New York Times readers share the moment they realized Covid would change the world.`\
+https://nytimes.com/interactive/2024/03/12/well/live/covid-pandemic-lockdown-anniversary.html
+
 **Ken Buck Cuts Short House Term, Leaving Republicans Down Yet Another Member**\
 `The Colorado Republican, who announced his retirement last fall, said he would leave Congress at the end of next week, further shrinking his party’s already minuscule majority.`\
 https://nytimes.com/2024/03/12/us/politics/ken-buck-resignation-gop-smaller-majority.html
