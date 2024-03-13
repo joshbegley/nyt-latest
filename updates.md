@@ -1,3 +1,11 @@
+**The House Dealt TikTok a Blow**\
+`Also, this college admission season has been a disaster. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/03/13/briefing/house-tiktok-bill-student-aid-delays.html
+
+**A New Plan to Hire Thousands of Workers to Help N.Y.C. Families in Need**\
+`Adrienne Adams, the speaker of the City Council, described the initiative in a speech that highlighted policies aimed at making New York a more affordable place to live.`\
+https://nytimes.com/2024/03/13/nyregion/nyc-job-vacancies-employment.html
+
 **R.F.K. Jr. Will Reveal Running Mate on March 26, His Campaign Says**\
 `The independent presidential candidate’s shortlist of potential running mates includes the N.F.L. quarterback Aaron Rodgers.`\
 https://nytimes.com/2024/03/13/us/politics/rfk-jr-vice-president.html

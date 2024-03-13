@@ -1,3 +1,11 @@
+**The House Dealt TikTok a Blow**\
+`Also, this college admission season has been a disaster. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/03/13/briefing/house-tiktok-bill-student-aid-delays.html
+
+**A New Plan to Hire Thousands of Workers to Help N.Y.C. Families in Need**\
+`Adrienne Adams, the speaker of the City Council, described the initiative in a speech that highlighted policies aimed at making New York a more affordable place to live.`\
+https://nytimes.com/2024/03/13/nyregion/nyc-job-vacancies-employment.html
+
 **R.F.K. Jr. Will Reveal Running Mate on March 26, His Campaign Says**\
 `The independent presidential candidate’s shortlist of potential running mates includes the N.F.L. quarterback Aaron Rodgers.`\
 https://nytimes.com/2024/03/13/us/politics/rfk-jr-vice-president.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/12/opinion/thepoint/nolan-salary-oppenheimer
 **United States House Passes Bill That Could Ban TikTok**\
 `If the TikTok bill were to become law, it would likely deepen a cold war between the United States and China over the control of important technologies.`\
 https://nytimes.com/video/us/politics/100000009360168/tiktok-ban-house-china.html
-
-**Why a Sale of TikTok Would Not Be Easy**\
-`As legislation moves ahead that could eventually mandate a sale by the Chinese parent company ByteDance, hurdles include finding buyers.`\
-https://nytimes.com/2024/03/13/technology/tiktok-ban-sale-china.html
-
-**Israel Allows Aid Directly Into North Gaza, Raising Hopes for More**\
-`The World Food Program delivery, containing food for 25,000 people, was the first since Oct. 7 to go directly from Israel into the northern Gaza Strip, where many people are at risk of starvation.`\
-https://nytimes.com/2024/03/13/world/middleeast/israel-gaza-aid-convoy.html
 
