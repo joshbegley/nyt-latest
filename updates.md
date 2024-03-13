@@ -1,3 +1,7 @@
+**E.U. Removes Russian Tech Tycoon From Sanctions List**\
+`Yandex’s co-founder, Arkady Volozh, received rare sanctions relief after condemning Russia’s war and severing ties to the country.`\
+https://nytimes.com/2024/03/13/world/europe/yandex-eu-sanctions-russia-ukraine.html
+
 **Inside the Blunders That Plunged the College Admission Season Into Disarray**\
 `The Education Department was supposed to make applying for federal financial aid easier. Instead, it got worse.`\
 https://nytimes.com/2024/03/13/us/politics/inside-the-blunders-that-plunged-the-college-admission-season-into-disarray.html
