@@ -1,3 +1,7 @@
+**How Will I Know if My Braise Is Ready?**\
+`In the second installment of Ask Kenji, the cookbook author Kenji López-Alt tackles tough questions about tender meat.`\
+https://nytimes.com/article/how-to-braise-meat.html
+
 **After Testy Interview With Elon Musk, Don Lemon Says His Deal With X Is Canceled**\
 `Days before the former television anchor’s new talk show debuted, his deal combusted after an interview with the site’s owner, he said.`\
 https://nytimes.com/2024/03/13/technology/don-lemon-elon-musk-x.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/style/outdoor-voices-closing-stores.html
 **Is the End of the Filibuster Near?**\
 `The Senate’s signature procedural tactic is losing some of its staunchest defenders in Senators Kyrsten Sinema and Joe Manchin, leaving its future in doubt.`\
 https://nytimes.com/2024/03/13/us/politics/filibuster-senate-manchin-sinema.html
-
-**Bipartisan Tax Bill Is Stuck in Senate Limbo After Broad House Approval**\
-`The measure would expand the child tax credit and restore three popular business tax breaks. But Senate Republicans have rejected the existing package as elections loom.`\
-https://nytimes.com/2024/03/13/us/politics/tax-bill-child-credit-senate.html
 
