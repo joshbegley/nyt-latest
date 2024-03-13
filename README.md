@@ -1,3 +1,7 @@
+**Space One Rocket Explodes Seconds After Launch in Japan**\
+`The Japanese company hoped to become the country’s first private business to put a satellite into orbit. The failed launch was its inaugural flight.`\
+https://nytimes.com/2024/03/13/world/asia/japan-rocket-space-one-kairos.html
+
 **Japanese Rocket Explodes After Liftoff**\
 `A plume of smoke rose over the launch site as the surrounding area caught fire.`\
 https://nytimes.com/video/world/asia/100000009358900/japanese-rocket-explodes-after-liftoff.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/us/politics/trump-republican-nomination.html
 **Dallas Seavey Overcomes Moose-Gutting Penalty to Win Iditarod**\
 `It was a record sixth win for Seavey in the sled dog race, despite a harrowing close encounter with a large mammal and a strange punishment.`\
 https://nytimes.com/2024/03/12/sports/dallas-seavey-iditarod-winner-2024.html
-
-**Close Call**\
-`Drew Schmenner proves that constructing puzzles is his forte.`\
-https://nytimes.com/2024/03/12/crosswords/daily-puzzle-2024-03-13.html
 
