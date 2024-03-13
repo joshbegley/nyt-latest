@@ -1,3 +1,11 @@
+**Anna Wintour Sings! (Sort of.)**\
+`In a trio of shows about prominent women in media, Ryan Raftery portrays the Vogue editor, as well as Martha Stewart and Kris Jenner.`\
+https://nytimes.com/2024/03/13/fashion/ryan-raftery-joes-pub-anna-wintour.html
+
+**My Ex-Boss Sexually Harassed Me. Do I Owe Him Credit When Sharing Past Work?**\
+`The magazine’s Ethicist columnist on how to uphold a professional expectation after leaving an abusive workplace.`\
+https://nytimes.com/2024/03/13/magazine/boss-harassment-credit-ethics.html
+
 **A Deadly Journey on the U.S.-Mexico Border**\
 `The day before President Biden and former President Donald J. Trump both visited the U.S.-Mexico border, I traveled to the spot where Mr. Trump was scheduled to speak.`\
 https://nytimes.com/2024/03/13/us/a-deadly-journey-on-the-us-mexico-border.html

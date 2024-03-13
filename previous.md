@@ -1,3 +1,11 @@
+**Anna Wintour Sings! (Sort of.)**\
+`In a trio of shows about prominent women in media, Ryan Raftery portrays the Vogue editor, as well as Martha Stewart and Kris Jenner.`\
+https://nytimes.com/2024/03/13/fashion/ryan-raftery-joes-pub-anna-wintour.html
+
+**My Ex-Boss Sexually Harassed Me. Do I Owe Him Credit When Sharing Past Work?**\
+`The magazine’s Ethicist columnist on how to uphold a professional expectation after leaving an abusive workplace.`\
+https://nytimes.com/2024/03/13/magazine/boss-harassment-credit-ethics.html
+
 **A Deadly Journey on the U.S.-Mexico Border**\
 `The day before President Biden and former President Donald J. Trump both visited the U.S.-Mexico border, I traveled to the spot where Mr. Trump was scheduled to speak.`\
 https://nytimes.com/2024/03/13/us/a-deadly-journey-on-the-us-mexico-border.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/13/us/politics/aipac-israel-gaza-democrats-republica
 **Judge Quashes Six Charges in Georgia Election Case Against Trump**\
 `The ruling said charges that Donald Trump and allies solicited public officials to break the law were not specific enough; it left the rest of the case intact.`\
 https://nytimes.com/2024/03/13/us/donald-trump-charges-quashed-georgia-mcafee.html
-
-**The Allure of Getting Dressed**\
-`It’s a genuine trend. Just look at Hedi Slimane’s Celine.`\
-https://nytimes.com/2024/03/13/style/celine-hedi-slimane.html
-
-**Trailing Trump in Polls, Biden Can Be More Bullish in One Battleground**\
-`The president faces lagging energy in many key states. But in Wisconsin, which he will visit on Wednesday, rolling clashes over abortion rights and democracy have kept Democratic voters fired up.`\
-https://nytimes.com/2024/03/13/us/politics/biden-wisconsin-trump.html
 
