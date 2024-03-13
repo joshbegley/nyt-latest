@@ -1,3 +1,15 @@
+**A Vote Targeting TikTok and an Unexpected Win for Ukraine**\
+`Plus, dating apps are feeling rejected.`\
+https://nytimes.com/2024/03/13/podcasts/a-vote-targeting-tiktok-and-an-unexpected-win-for-ukraine.html
+
+**The Alarming Findings Inside a Mass Shooter’s Brain**\
+`An attack by an Army reservist prompted a search for answers about whether the soldier’s service could have been a factor.`\
+https://nytimes.com/2024/03/13/podcasts/the-daily/main-shooter-brain.html
+
+**Seattle University to Receive $300 Million Art Collection**\
+`The hotel developer Richard Hedreen is donating more than 200 artworks, and $25 million in seed money, in honor of his wife, Betty, an alumna.`\
+https://nytimes.com/2024/03/13/arts/design/hedreen-university-of-seattle-art-gift.html
+
 **Ramadan’s Start Brings ‘No Joy’ to Palestinians in the West Bank**\
 `One woman said she had a hard time sitting down for meals knowing that many in Gaza were starving: “I keep asking myself, did they eat?”`\
 https://nytimes.com/2024/03/13/world/middleeast/ramadan-west-bank-gaza.html
