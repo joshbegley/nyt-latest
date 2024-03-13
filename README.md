@@ -1,3 +1,7 @@
+**Ramadan’s Start Brings ‘No Joy’ to Palestinians in the West Bank**\
+`One woman said she had a hard time sitting down for meals knowing that many in Gaza were starving: “I keep asking myself, did they eat?”`\
+https://nytimes.com/2024/03/13/world/middleeast/ramadan-west-bank-gaza.html
+
 **Reddit’s Long, Rocky Road to an Initial Public Offering**\
 `The site, a throwback to an earlier era of social media, is poised to go public as soon as next week. It hasn’t been easy to reach this point.`\
 https://nytimes.com/2024/03/13/technology/reddits-long-rocky-road-to-an-initial-public-offering.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/opinion/haley-voters-biden.html
 **Yvonne Loriod Was So Much More Than a Composer’s Muse**\
 `Loriod, the vessel for Olivier Messiaen’s piano works, had a rich musical life beyond him, which is captured in a new set of recordings.`\
 https://nytimes.com/2024/03/13/arts/music/yvonne-loriod-olivier-messiaen.html
-
-**Dozens of Artists, 3 Critics: Who’s Afraid of the Whitney Biennial 2024?**\
-`“Even Better Than the Real Thing” will go down as a well-intentioned edition of the perpetually debated show. Will it go down as a notable one?`\
-https://nytimes.com/2024/03/13/arts/design/whitney-biennial-review-museum-art.html
 
