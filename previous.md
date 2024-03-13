@@ -1,3 +1,31 @@
+**Texting Styles**\
+`Are you usually quick — or slow — to reply? How much does your response time depend on who you’re messaging?`\
+https://nytimes.com/2024/03/13/learning/texting-styles.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/13/crosswords/wordle-review.html
+
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/13/crosswords/connections-companion.html
+
+**A Finance Reporter Who Invests in Readers’ Well-Being**\
+`Taxes. Tuition. Cryptocurrency trading. Since 2008, Ron Lieber has answered hard-hitting questions about personal finance as the Your Money columnist.`\
+https://nytimes.com/2024/03/13/insider/your-money-column.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/03/13/crosswords/spelling-bee-forum.html
+
+**In the Fight Over N.Y.C. Sidewalks, Tree Beds Are the Smallest Frontier**\
+`In a city with little private green space, tree beds on public streets have become coveted territory. But who gets to decide how they’re used?`\
+https://nytimes.com/2024/03/13/nyregion/tree-beds-new-york-city.html
+
+**Migrant Children Sell Candy on the Subway. New York Has No Solutions.**\
+`Letting children work in the train system during school hours breaks several laws and rules. But a series of agencies said it is not their place to stop the practice.`\
+https://nytimes.com/2024/03/13/nyregion/migrant-children-selling-candy-subway-laws.html
+
 **Stephen Colbert Slams Former Special Counsel’s Conclusions**\
 `Colbert objected to Robert K. Hur calling President Biden a “well-meaning, elderly man with a poor memory” in a report on the handling of classified documents.`\
 https://nytimes.com/2024/03/13/arts/television/stephen-colbert-special-counsel-hur.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/03/13/pageoneplus/corrections-march-13-2024.html
 **Quotation of the Day: With Lackluster Growth, Dating Apps Are in Need of a Spark**\
 `Quotation of the Day for Wednesday, March 13, 2024.`\
 https://nytimes.com/2024/03/13/pageoneplus/quotation-of-the-day-with-lackluster-growth-dating-apps-are-in-need-of-a-spark.html
-
-**Word of the Day: gauzy**\
-`This word has appeared in 46 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/03/13/learning/word-of-the-day-gauzy.html
-
-**Kate Middleton’s Story Is About So Much More Than Kate Middleton**\
-`The scandal is another blatant display of royal double standards.`\
-https://nytimes.com/2024/03/13/opinion/kate-middleton-scandal.html
-
-**There Is Something Putin Can’t Control**\
-`As “The Master and Margarita” shows, power never totally succeeds in shaping art to its ends.`\
-https://nytimes.com/2024/03/13/opinion/putin-russia-master-margarita.html
-
-**Space One Rocket Explodes Seconds After Launch in Japan**\
-`The Japanese company hoped to become the country’s first private business to put a satellite into orbit. The failed launch was its inaugural flight.`\
-https://nytimes.com/2024/03/13/world/asia/japan-rocket-space-one-kairos.html
-
-**Japanese Rocket Explodes After Liftoff**\
-`A plume of smoke rose over the launch site as the surrounding area caught fire.`\
-https://nytimes.com/video/world/asia/100000009358900/japanese-rocket-explodes-after-liftoff.html
-
-**Wednesday Briefing**\
-`Russia fires the leader of its navy.`\
-https://nytimes.com/2024/03/13/briefing/russia-navy-fired-haiti.html
-
-**From Moscow to Mumbai: Russia Pivots South for Trade**\
-`Once dependent on Europe for trade, Russia has been forging new routes that will allow it to skirt Western restrictions. A planned railway through Iran could be key for those ambitions.`\
-https://nytimes.com/2024/03/13/world/europe/russia-trade-economy-ukraine.html
 
