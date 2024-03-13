@@ -1,3 +1,7 @@
+**Ken Buck Cuts Short House Term, Leaving Republicans Down Yet Another Member**\
+`The Colorado Republican, who announced his retirement last fall, said he would leave Congress at the end of next week, further shrinking his party’s already minuscule majority.`\
+https://nytimes.com/2024/03/12/us/politics/ken-buck-resignation-gop-smaller-majority.html
+
 **Open Letters: Our New Opinion-Writing Contest**\
 `We invite students to write public-facing letters to people or groups about issues that matter to them. Contest dates: March 13 to May 1.`\
 https://nytimes.com/2024/03/12/learning/open-letters-our-new-opinion-writing-contest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/opinion/israel-hamas-war-military.html
 **Literary Magazine Retracts Israeli Writer’s Essay as Staffers Quit**\
 `An Israeli writer’s essay about seeking common ground with Palestinians led to the resignation of at least 10 staff members at Guernica.`\
 https://nytimes.com/2024/03/12/arts/guernica-magazine-staff-quits-israel.html
-
-**Top Navalny Aide Attacked With Hammer Outside Home in Lithuania**\
-`Leonid Volkov, a top aide to Aleksei Navalny, was beaten and sprayed with tear gas as he was pulling up to his house in Vilnius.`\
-https://nytimes.com/2024/03/12/world/europe/navalny-aide-leonid-volkov-attacked.html
 
