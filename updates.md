@@ -1,3 +1,11 @@
+**Pro-Israel Lobby Faces Challenges Amid Gaza War and Shifting Politics**\
+`AIPAC, long influential with both parties in Washington, is drawing criticism from Democrats for trying to defeat incumbents while it struggles to move aid for Israel through Congress.`\
+https://nytimes.com/2024/03/13/us/politics/aipac-israel-gaza-democrats-republicans.html
+
+**Judge Quashes Six Charges in Georgia Election Case Against Trump**\
+`The ruling said charges that Donald Trump and allies solicited public officials to break the law were not specific enough; it left the rest of the case intact.`\
+https://nytimes.com/2024/03/13/us/donald-trump-charges-quashed-georgia-mcafee.html
+
 **The Allure of Getting Dressed**\
 `It’s a genuine trend. Just look at Hedi Slimane’s Celine.`\
 https://nytimes.com/2024/03/13/style/celine-hedi-slimane.html

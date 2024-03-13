@@ -1,3 +1,11 @@
+**Pro-Israel Lobby Faces Challenges Amid Gaza War and Shifting Politics**\
+`AIPAC, long influential with both parties in Washington, is drawing criticism from Democrats for trying to defeat incumbents while it struggles to move aid for Israel through Congress.`\
+https://nytimes.com/2024/03/13/us/politics/aipac-israel-gaza-democrats-republicans.html
+
+**Judge Quashes Six Charges in Georgia Election Case Against Trump**\
+`The ruling said charges that Donald Trump and allies solicited public officials to break the law were not specific enough; it left the rest of the case intact.`\
+https://nytimes.com/2024/03/13/us/donald-trump-charges-quashed-georgia-mcafee.html
+
 **The Allure of Getting Dressed**\
 `It’s a genuine trend. Just look at Hedi Slimane’s Celine.`\
 https://nytimes.com/2024/03/13/style/celine-hedi-slimane.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/13/technology/personaltech/save-time-on-the-telephon
 **Love Pi Day? You Can Thank San Francisco for That.**\
 `The celebration of March 14 began as a weird Bay Area tradition.`\
 https://nytimes.com/2024/03/13/us/california-pi-day.html
-
-**How Do I Get My Unemployed Brother Out of Our Father’s House?**\
-`Four years after being laid off, a man in his 50s is still relying on his father, who just moved into an assisted living facility, for support and housing. Should his sister say something?`\
-https://nytimes.com/2024/03/13/style/parental-support-siblings.html
-
-**A Ban? A Sale? The Big Questions Hanging Over TikTok**\
-`The popular app could be banned in the U.S. unless its Chinese parent divests. There’s a growing debate on whether that’s even possible.`\
-https://nytimes.com/2024/03/13/business/dealbook/sale-tiktok-house-vote.html
 
