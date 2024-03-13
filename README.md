@@ -1,3 +1,7 @@
+**Trooper Cleared in Killing of Unarmed Man He Shot After High-Speed Chase**\
+`A state court judge found Anthony Nigro not guilty of manslaughter charges in the fatal shooting of James Huber in Buffalo in February 2022.`\
+https://nytimes.com/2024/03/13/nyregion/anthony-nigro-state-police-shooting.html
+
 **Biden attacks Trump for floating Medicare and Social Security cuts.**\
 `Visiting Wisconsin, one of the nation’s top battleground states, President Biden said he would “never allow” Donald Trump to cut entitlements.`\
 https://nytimes.com/live/2024/03/13/us/2024-election-trump-biden/medicare-social-security
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/technology/tiktok-bill-whats-next.html
 **Geert Wilders Says He Will Forgo Becoming Dutch Prime Minister**\
 `Mr. Wilders, a hard-right icon, won the last elections decisively. His announcement may help facilitate the creation of a right-wing government in the Netherlands.`\
 https://nytimes.com/2024/03/13/world/europe/geert-wilders-netherlands-prime-minister.html
-
-**Family drama in the Garden State**\
-`Two of New Jersey’s three statewide offices could be held by people living in the same mansion.`\
-https://nytimes.com/2024/03/13/us/politics/murphy-menendez-senate.html
 
