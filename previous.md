@@ -1,4 +1,8 @@
-**Anna Wintour Sings! (Sort of.)**\
+**Why We Gave Up on the Future**\
+`The rise of political nostalgia isn’t just about “vibes”`\
+https://nytimes.com/2024/03/13/opinion/politics/politics-nostalgia-economic-growth-pessimism.html
+
+**Anna Wintour Sings! (Sort Of.)**\
 `In a trio of shows about prominent women in media, Ryan Raftery portrays the Vogue editor, as well as Martha Stewart and Kris Jenner.`\
 https://nytimes.com/2024/03/13/fashion/ryan-raftery-joes-pub-anna-wintour.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/technology/tiktok-ban-house-vote.html
 **Pro-Israel Lobby Faces Challenges Amid Gaza War and Shifting Politics**\
 `AIPAC, long influential with both parties in Washington, is drawing criticism from Democrats for trying to defeat incumbents while it struggles to move aid for Israel through Congress.`\
 https://nytimes.com/2024/03/13/us/politics/aipac-israel-gaza-democrats-republicans.html
-
-**Judge Quashes Six Charges in Georgia Election Case Against Trump**\
-`The ruling said charges that Donald Trump and allies solicited public officials to break the law were not specific enough; it left the rest of the case intact.`\
-https://nytimes.com/2024/03/13/us/donald-trump-charges-quashed-georgia-mcafee.html
 

@@ -1,3 +1,11 @@
+**Why We Gave Up on the Future**\
+`The rise of political nostalgia isn’t just about “vibes”`\
+https://nytimes.com/2024/03/13/opinion/politics/politics-nostalgia-economic-growth-pessimism.html
+
+**Anna Wintour Sings! (Sort Of.)**\
+`In a trio of shows about prominent women in media, Ryan Raftery portrays the Vogue editor, as well as Martha Stewart and Kris Jenner.`\
+https://nytimes.com/2024/03/13/fashion/ryan-raftery-joes-pub-anna-wintour.html
+
 **Anna Wintour Sings! (Sort of.)**\
 `In a trio of shows about prominent women in media, Ryan Raftery portrays the Vogue editor, as well as Martha Stewart and Kris Jenner.`\
 https://nytimes.com/2024/03/13/fashion/ryan-raftery-joes-pub-anna-wintour.html
