@@ -1,3 +1,11 @@
+**The Alarming Findings Inside a Mass Shooter’s Brain**\
+`An attack by an Army reservist prompted a search for answers about whether the soldier’s service could have been a factor.`\
+https://nytimes.com/2024/03/13/podcasts/the-daily/maine-shooter-brain.html
+
+**Reddit’s Long, Rocky Road to an Initial Public Offering**\
+`The site, a throwback to an earlier era of social media, is poised to go public as soon as next week. It hasn’t been easy to reach this point.`\
+https://nytimes.com/2024/03/13/technology/reddit-public-offering-stock-market.html
+
 **Many Aid Deliveries for Gaza Are Rejected for ‘Dual-Use’ Items, Groups Say**\
 `One truck was turned away because it contained scissors in medical kits for children, a U.N. official said. Israeli authorities accused the official of lying.`\
 https://nytimes.com/2024/03/13/world/middleeast/unrwa-gaza-aid-trucks-israel.html
