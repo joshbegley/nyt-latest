@@ -1,3 +1,11 @@
+**Michigan Vows to Destroy Buyback Guns After Resale Uproar**\
+`Police agencies in Michigan and elsewhere were handing off surrendered firearms to companies that resold the parts in gun kits.`\
+https://nytimes.com/2024/03/13/us/michigan-gun-disposal.html
+
+**A Corvette, Swimsuit Shots and a Trip to Mongolia: Biden Offers a Selfie Tour of His Life**\
+`Transcripts of five hours of interviews with the special counsel released this week reveal a president with a lot on his mind and a storehouse of stories to tell.`\
+https://nytimes.com/2024/03/13/us/politics/biden-special-counsel-interview.html
+
 **U.K. Moves to Bar Foreign State Ownership of Newspapers, a Blow to Telegraph Bid**\
 `A roughly $1 billion bid from the former CNN chief Jeff Zucker and his Emirati backers raised concerns among lawmakers over a storied conservative newspaper.`\
 https://nytimes.com/2024/03/13/business/media/jeff-zucker-telegraph-delay.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/13/arts/olivia-munn-breast-cancer-mastectomy.html
 **What’s in Our Queue? Usher and More**\
 `I’m an assistant editor for The New York Times, covering pop culture. Here are five things I’m into right now.`\
 https://nytimes.com/interactive/2024/03/13/arts/editors-recommendations-usher.html
-
-**The Actress Who Looks Out for Denmark**\
-`Hunting murderers, delivering babies or guarding inmates, Sofie Grabol plays women who try to keep their country safe.`\
-https://nytimes.com/2024/03/13/arts/television/sofie-grabol-prisoner.html
-
-**Outdoor Voices to Close All Stores This Week**\
-`The athleisure retailer will go online only, according to employees who were surprised by the announcement.`\
-https://nytimes.com/2024/03/13/style/outdoor-voices-closing-stores.html
 
