@@ -1,3 +1,19 @@
+**From Moscow to Mumbai: Russia Pivots South for Trade**\
+`Once dependent on Europe for trade, Russia has been forging new routes that will allow it to skirt Western restrictions. A planned railway through Iran could be key for those ambitions.`\
+https://nytimes.com/2024/03/13/world/europe/russia-trade-economy-ukraine.html
+
+**These Workers Are Risking Their Lives to Restore Gaza’s Phone Network**\
+`Telecommunications infrastructure has been devastated in the territory, largely preventing Palestinians from calling for help, coordinating the delivery of aid and communicating with family abroad.`\
+https://nytimes.com/2024/03/13/world/middleeast/gaza-phone-networks.html
+
+**Chip Makers Searching for ‘China Plus 1’ Are Finding Malaysia**\
+`A flood of American and European companies are expanding there and around Southeast Asia, a sign of how geopolitics is reshaping tech manufacturing.`\
+https://nytimes.com/2024/03/13/business/malaysia-semiconductors.html
+
+**A Trump ally and election denier is hired for a leadership role at the R.N.C.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/03/12/us/2024-election-trump-biden/trump-election-denier-rnc
+
 **Support for ‘uncommitted’ weakens in Washington State in early tallies.**\
 `By Reid J. Epstein`\
 https://nytimes.com/live/2024/03/12/us/2024-election-trump-biden/uncommitted-biden-washington-state
