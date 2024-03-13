@@ -1,3 +1,11 @@
+**Trucks entered northern Gaza as pressure grows on Israel to allow more food aid.**\
+`By Lars Dolder and Adam Rasgon`\
+https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/the-israeli-military-allowed-six-un-trucks-to-enter-northern-gaza-directly
+
+**13mideast-crisis**\
+`Israel Allows U.N. Trucks to Take Food Directly Into Northern Gaza`\
+https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news
+
 **The Israeli military allowed six U.N. trucks to enter northern Gaza directly.**\
 `By Lars Dolder and Adam Rasgon`\
 https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/the-israeli-military-allowed-six-un-trucks-to-enter-northern-gaza-directly
