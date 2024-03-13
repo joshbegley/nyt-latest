@@ -1,3 +1,7 @@
+**Racial Justice Should Include Survivors of Sexual Violence**\
+`There is a strong intersection between the two movements.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/sexual-violence-survivors-justice
+
 **Olivia Munn Had Double Mastectomy After Breast Cancer Diagnosis**\
 `Munn said she was given the diagnosis last April, two months after negative results on a test that checked for 90 cancer genes.`\
 https://nytimes.com/2024/03/13/arts/olivia-munn-breast-cancer-mastectomy.html
