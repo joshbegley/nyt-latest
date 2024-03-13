@@ -1,3 +1,7 @@
+**Support for ‘uncommitted’ weakens in Washington State in early tallies.**\
+`By Reid J. Epstein`\
+https://nytimes.com/live/2024/03/12/us/2024-election-trump-biden/uncommitted-biden-washington-state
+
 **Donald Trump and Joe Biden Clinch Their Party Nominations**\
 `After sweeping another set of contests on Tuesday, the former president and the current president have won the delegates they need for a long-anticipated rematch.`\
 https://nytimes.com/2024/03/12/us/politics/trump-republican-nomination.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/us/politics/biden-democratic-nomination.html
 **To Whom Would You Write an Open Letter?**\
 `A politician or a celebrity? A leader of a company? A school administrator? Your mom? Use our questions below to brainstorm ideas for our contest.`\
 https://nytimes.com/2024/03/12/learning/to-whom-would-you-write-an-open-letter.html
-
-**First Aid Ship Heads to Gaza, but Far More Is Needed**\
-`The maritime package of more than 200 tons of food is a welcome milestone, but not nearly enough to prevent famine, said relief officials, who called on Israel to allow more aid delivery by land.`\
-https://nytimes.com/2024/03/12/world/middleeast/israel-gaza-aid-ship.html
 

@@ -1,3 +1,7 @@
+**Support for ‘uncommitted’ weakens in Washington State in early tallies.**\
+`By Reid J. Epstein`\
+https://nytimes.com/live/2024/03/12/us/2024-election-trump-biden/uncommitted-biden-washington-state
+
 **Donald Trump and Joe Biden Clinch Their Party Nominations**\
 `After sweeping another set of contests on Tuesday, the former president and the current president have won the delegates they need for a long-anticipated rematch.`\
 https://nytimes.com/2024/03/12/us/politics/trump-republican-nomination.html
