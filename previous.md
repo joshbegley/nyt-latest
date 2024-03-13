@@ -1,3 +1,15 @@
+**Time-Saving Tips for Using Your Phone as a … Telephone**\
+`The latest smartphone software includes tools to help you more easily connect with the people you want to contact — and avoid those you don’t.`\
+https://nytimes.com/2024/03/13/technology/personaltech/save-time-on-the-telephone.html
+
+**Love Pi Day? You Can Thank San Francisco for That.**\
+`The celebration of March 14 began as a weird Bay Area tradition.`\
+https://nytimes.com/2024/03/13/us/california-pi-day.html
+
+**How Do I Get My Unemployed Brother Out of Our Father’s House?**\
+`Four years after being laid off, a man in his 50s is still relying on his father, who just moved into an assisted living facility, for support and housing. Should his sister say something?`\
+https://nytimes.com/2024/03/13/style/parental-support-siblings.html
+
 **A Ban? A Sale? The Big Questions Hanging Over TikTok**\
 `The popular app could be banned in the U.S. unless its Chinese parent divests. There’s a growing debate on whether that’s even possible.`\
 https://nytimes.com/2024/03/13/business/dealbook/sale-tiktok-house-vote.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/13/podcasts/the-daily/maine-shooter-brain.html
 **Seattle University to Receive $300 Million Art Collection**\
 `The hotel developer Richard Hedreen is donating more than 200 artworks, and $25 million in seed money, in honor of his wife, Betty, an alumna.`\
 https://nytimes.com/2024/03/13/arts/design/hedreen-university-of-seattle-art-gift.html
-
-**Ramadan’s Start Brings ‘No Joy’ to Palestinians in the West Bank**\
-`One woman said she had a hard time sitting down for meals knowing that many in Gaza were starving: “I keep asking myself, did they eat?”`\
-https://nytimes.com/2024/03/13/world/middleeast/ramadan-west-bank-gaza.html
-
-**Reddit’s Long, Rocky Road to an Initial Public Offering**\
-`The site, a throwback to an earlier era of social media, is poised to go public as soon as next week. It hasn’t been easy to reach this point.`\
-https://nytimes.com/2024/03/13/technology/reddit-public-offering-stock-market.html
-
-**What the ‘Rust’ Shooting Case Is Really About**\
-`The conviction of a “Rust” crew member in a tragic on-set death highlights what Hollywood must do to avoid fatal accidents in the future.`\
-https://nytimes.com/2024/03/13/opinion/rust-hollywood-gun-safety.html
 

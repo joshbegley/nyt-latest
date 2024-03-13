@@ -1,3 +1,15 @@
+**Time-Saving Tips for Using Your Phone as a … Telephone**\
+`The latest smartphone software includes tools to help you more easily connect with the people you want to contact — and avoid those you don’t.`\
+https://nytimes.com/2024/03/13/technology/personaltech/save-time-on-the-telephone.html
+
+**Love Pi Day? You Can Thank San Francisco for That.**\
+`The celebration of March 14 began as a weird Bay Area tradition.`\
+https://nytimes.com/2024/03/13/us/california-pi-day.html
+
+**How Do I Get My Unemployed Brother Out of Our Father’s House?**\
+`Four years after being laid off, a man in his 50s is still relying on his father, who just moved into an assisted living facility, for support and housing. Should his sister say something?`\
+https://nytimes.com/2024/03/13/style/parental-support-siblings.html
+
 **A Ban? A Sale? The Big Questions Hanging Over TikTok**\
 `The popular app could be banned in the U.S. unless its Chinese parent divests. There’s a growing debate on whether that’s even possible.`\
 https://nytimes.com/2024/03/13/business/dealbook/sale-tiktok-house-vote.html
