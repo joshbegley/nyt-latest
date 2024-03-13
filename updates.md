@@ -1,3 +1,11 @@
+**Tate McRae, Dua Lipa and the Fight to Be ‘Main Pop Girl’**\
+`A conversation about a title that emerged from stan communities, and how it’s played a role in pop singers’ careers.`\
+https://nytimes.com/2024/03/13/arts/music/popcast-main-pop-girl.html
+
+**Hunter Biden Refuses to Testify Publicly, Calling G.O.P. Inquiry a ‘Circus’**\
+`In a letter, a lawyer for the president’s son cited a scheduling conflict and denounced the Republican impeachment inquiry as a “carnival side show.”`\
+https://nytimes.com/2024/03/13/us/politics/hunter-biden-testify.html
+
 **A Provocative New Biography of Emerson Focuses on the Man**\
 `In “Glad to the Brink of Fear,” James Marcus frames the great Transcendentalist as a writer for our times.`\
 https://nytimes.com/2024/03/13/books/review/james-marcus-glad-to-the-brink-of-fear.html
