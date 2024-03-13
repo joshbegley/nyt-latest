@@ -1,3 +1,7 @@
+**Should China own TikTok?**\
+`Inside the bipartisan effort to end Chinese ownership of the app.`\
+https://nytimes.com/2024/03/13/briefing/tiktok-china-congress.html
+
 **A Vote Targeting TikTok and an Unexpected Win for Ukraine**\
 `Plus, dating apps are feeling rejected.`\
 https://nytimes.com/2024/03/13/podcasts/a-vote-targeting-tiktok-and-an-unexpected-win-for-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/style/do-not-disturb-phone-setting.html
 **Gabriel García Márquez Did Not Want His Final Book Published. But Should That Really Be the End of the Story?**\
 `We all benefit when works by great artists that are marked for destruction are instead preserved.`\
 https://nytimes.com/2024/03/13/opinion/gabriel-garcia-marquez-until-august.html
-
-**Four Years On, Covid Has Reshaped Life for Many Americans**\
-`Covid was declared a national emergency on March 13, 2020. Even as the threat of severe illness and death has faded, the pandemic’s effects linger.`\
-https://nytimes.com/2024/03/13/us/covid-national-emergency-anniversary.html
 
