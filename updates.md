@@ -1,3 +1,7 @@
+**House Passes Bill to Force TikTok Sale From Chinese Owner or Ban the App**\
+`The legislation received wide bipartisan support, with both Republicans and Democrats showing an eagerness to appear tough on China.`\
+https://nytimes.com/2024/03/13/technology/tiktok-ban-house-vote.html
+
 **Pro-Israel Lobby Faces Challenges Amid Gaza War and Shifting Politics**\
 `AIPAC, long influential with both parties in Washington, is drawing criticism from Democrats for trying to defeat incumbents while it struggles to move aid for Israel through Congress.`\
 https://nytimes.com/2024/03/13/us/politics/aipac-israel-gaza-democrats-republicans.html
