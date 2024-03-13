@@ -1,3 +1,7 @@
+**China Condemns U.S. Proposal to Force the Sale of TikTok**\
+`The foreign ministry accused Washington of “resorting to hegemonic moves” ahead of House vote on a bill aimed at ByteDance, TikTok’s Chinese parent company.`\
+https://nytimes.com/2024/03/13/business/china-tiktok-congress.html
+
 **Should China Own TikTok?**\
 `Inside the bipartisan effort to end Chinese ownership of the app.`\
 https://nytimes.com/2024/03/13/briefing/tiktok-china-congress.html

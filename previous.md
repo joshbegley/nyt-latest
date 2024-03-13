@@ -1,3 +1,7 @@
+**China Condemns U.S. Proposal to Force the Sale of TikTok**\
+`The foreign ministry accused Washington of “resorting to hegemonic moves” ahead of House vote on a bill aimed at ByteDance, TikTok’s Chinese parent company.`\
+https://nytimes.com/2024/03/13/business/china-tiktok-congress.html
+
 **Should China Own TikTok?**\
 `Inside the bipartisan effort to end Chinese ownership of the app.`\
 https://nytimes.com/2024/03/13/briefing/tiktok-china-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/realestate/550000-dollar-homes-new-york-ohio-new-
 **You Texted? I Hadn’t Noticed.**\
 `“Do Not Disturb” mode lets smartphone users silence notifications — and signals that they may take a while to respond.`\
 https://nytimes.com/2024/03/13/style/do-not-disturb-phone-setting.html
-
-**Gabriel García Márquez Did Not Want His Final Book Published. But Should That Really Be the End of the Story?**\
-`We all benefit when works by great artists that are marked for destruction are instead preserved.`\
-https://nytimes.com/2024/03/13/opinion/gabriel-garcia-marquez-until-august.html
 
