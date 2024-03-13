@@ -1,3 +1,11 @@
+**Some Black Voters Are Souring on Democrats. It May Be Part of a Natural Drift.**\
+`There are signs that Black voters are inching closer to the patterns of other demographic groups.`\
+https://nytimes.com/2024/03/13/opinion/black-democrats-trump-biden.html
+
+**Lessons From Abroad on How Biden Can Win**\
+`Incumbents are unpopular in all Western democracies, but there may be ways to allay the angst driving voter dissatisfaction.`\
+https://nytimes.com/2024/03/13/opinion/biden-win-election-global.html
+
 **Philippe de Gaulle, Admiral and Son of Charles de Gaulle, Dies at 102**\
 `His exploits in World War II and later in Algeria and Indochina were not enough for him emerge from the shadow of his father, for whom a thousand streets in France are named.`\
 https://nytimes.com/2024/03/13/world/europe/philippe-de-gaulle-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/13/us/politics/murphy-menendez-senate.html
 **R.F.K. Jr.’s Possible V.P. Picks Are No Joke**\
 `There are voters who might see Aaron Rodgers or Jesse Ventura as regular people.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/kennedy-rodgers-ventura
-
-**The House Dealt TikTok a Blow**\
-`Also, this college admission season has been a disaster. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/03/13/briefing/house-tiktok-bill-student-aid-delays.html
-
-**A New Plan to Hire Thousands of Workers to Help N.Y.C. Families in Need**\
-`Adrienne Adams, the speaker of the City Council, described the initiative in a speech that highlighted policies aimed at making New York a more affordable place to live.`\
-https://nytimes.com/2024/03/13/nyregion/nyc-job-vacancies-employment.html
 
