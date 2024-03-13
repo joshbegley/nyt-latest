@@ -1,3 +1,7 @@
+**Christopher Nolan’s ‘Oppenheimer’ Payday Rewards His Artistic Bravado**\
+`It’s not surprising that, in a remunerative sense, he’s treated like a star.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/nolan-salary-oppenheimer
+
 **United States House Passes Bill That Could Ban TikTok**\
 `If the TikTok bill were to become law, it would likely deepen a cold war between the United States and China over the control of important technologies.`\
 https://nytimes.com/video/us/politics/100000009360168/tiktok-ban-house-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/us/politics/hunter-biden-testify.html
 **A Provocative New Biography of Emerson Focuses on the Man**\
 `In “Glad to the Brink of Fear,” James Marcus frames the great Transcendentalist as a writer for our times.`\
 https://nytimes.com/2024/03/13/books/review/james-marcus-glad-to-the-brink-of-fear.html
-
-**Yes, the Internet Is Broken. But What Does a Fix Look Like?**\
-`There’s no obvious way to reclaim control over the web from Big Tech, but technologists are trying.`\
-https://nytimes.com/2024/03/13/opinion/internet-web-3-tech.html
 
