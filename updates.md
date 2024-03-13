@@ -1,3 +1,15 @@
+**R.N.C. Shutting Down Community Centers Aimed at Minority Outreach**\
+`An overhaul of the party’s operations continues after Donald Trump’s allies take over.`\
+https://nytimes.com/2024/03/13/us/politics/republican-community-centers-closed.html
+
+**‘Devastated’ Widow Says M.T.A. Workers Shared Photos of Slain Husband**\
+`Jakeba Dockery says graphic photos of her husband, Richard Henderson, after he was shot on a No. 3 train were shared online in violation of New York’s civil rights law.`\
+https://nytimes.com/2024/03/13/nyregion/subway-shooting-photos-richard-henderson.html
+
+**Lawyer, Author and TikTok Star Spent 72 Years in an Iron Lung**\
+`Paul Alexander, who died at 78, was paralyzed with polio at age 6 and relied on the machine to breathe. Still, he was able to earn a law degree, write a book and, late in life, build a following on TikTok.`\
+https://nytimes.com/2024/03/13/us/paul-alexander-iron-lung-dead.html
+
 **What Happens Next With TikTok?**\
 `Even though legislation is moving forward, our video apps won’t disappear any time soon.`\
 https://nytimes.com/2024/03/13/technology/tiktok-bill-whats-next.html

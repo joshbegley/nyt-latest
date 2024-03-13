@@ -1,3 +1,15 @@
+**R.N.C. Shutting Down Community Centers Aimed at Minority Outreach**\
+`An overhaul of the party’s operations continues after Donald Trump’s allies take over.`\
+https://nytimes.com/2024/03/13/us/politics/republican-community-centers-closed.html
+
+**‘Devastated’ Widow Says M.T.A. Workers Shared Photos of Slain Husband**\
+`Jakeba Dockery says graphic photos of her husband, Richard Henderson, after he was shot on a No. 3 train were shared online in violation of New York’s civil rights law.`\
+https://nytimes.com/2024/03/13/nyregion/subway-shooting-photos-richard-henderson.html
+
+**Lawyer, Author and TikTok Star Spent 72 Years in an Iron Lung**\
+`Paul Alexander, who died at 78, was paralyzed with polio at age 6 and relied on the machine to breathe. Still, he was able to earn a law degree, write a book and, late in life, build a following on TikTok.`\
+https://nytimes.com/2024/03/13/us/paul-alexander-iron-lung-dead.html
+
 **What Happens Next With TikTok?**\
 `Even though legislation is moving forward, our video apps won’t disappear any time soon.`\
 https://nytimes.com/2024/03/13/technology/tiktok-bill-whats-next.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/13/nyregion/nyc-job-vacancies-employment.html
 **R.F.K. Jr. Will Reveal Running Mate on March 26, His Campaign Says**\
 `The independent presidential candidate’s shortlist of potential running mates includes the N.F.L. quarterback Aaron Rodgers.`\
 https://nytimes.com/2024/03/13/us/politics/rfk-jr-vice-president.html
-
-**Canada’s equal funding to help Israeli and Palestinian victims of sexual violence draws Israeli fire.**\
-`By Ian Austen`\
-https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/canadas-equal-funding-to-help-israeli-and-palestinian-victims-of-sexual-violence-draws-israeli-fire
-
-**Los Angeles Opera’s Music Director to Step Down After 20 Years**\
-`James Conlon, who has conducted more performances with the company than anyone else, will step down from his post in 2026.`\
-https://nytimes.com/2024/03/13/arts/music/los-angeles-opera-james-conlon.html
-
-**Thursday Briefing: U.S. Targets TikTok**\
-`Also, aid to northern Gaza and whimsical wooden automatons`\
-https://nytimes.com/2024/03/13/world/asia/target-us-gaza-aid-asia.html
 
