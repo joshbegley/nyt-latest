@@ -1,3 +1,11 @@
+**A Deadly Journey on the U.S.-Mexico Border**\
+`The day before President Biden and former President Donald J. Trump both visited the U.S.-Mexico border, I traveled to the spot where Mr. Trump was scheduled to speak.`\
+https://nytimes.com/2024/03/13/us/a-deadly-journey-on-the-us-mexico-border.html
+
+**Trending at the Oscars, Brooches for Men**\
+`The brooch has shed its granny’s jewel box connotations and is making a comeback as a must-have accessory for guys.`\
+https://nytimes.com/2024/03/13/style/brooches-male-celebrities-oscars.html
+
 **James Crumbley Declines to Testify in His Michigan School Shooting Trial**\
 `Witness testimony in the trial ended on Wednesday. Mr. Crumbley faces involuntary manslaughter charges for the four students killed by his son.`\
 https://nytimes.com/2024/03/13/us/james-crumbley-trial-michigan-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/13/style/celine-hedi-slimane.html
 **Trailing Trump in Polls, Biden Can Be More Bullish in One Battleground**\
 `The president faces lagging energy in many key states. But in Wisconsin, which he will visit on Wednesday, rolling clashes over abortion rights and democracy have kept Democratic voters fired up.`\
 https://nytimes.com/2024/03/13/us/politics/biden-wisconsin-trump.html
-
-**Putin, in Pre-Election Messaging, Plays Down Threat of Nuclear War**\
-`The Russian leader struck a softer tone in an interview with state television than in last month’s state-of-the-nation address. He is aiming to project stability before this weekend’s vote.`\
-https://nytimes.com/2024/03/13/world/europe/russia-putin-nuclear-war-ukraine.html
-
-**Trump and Biden turn focus to fall, now as the presumptive nominees.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/03/13/us/2024-election-trump-biden/trump-and-biden-turn-focus-to-fall-now-as-the-presumptive-nominees
 
