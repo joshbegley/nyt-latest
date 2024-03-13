@@ -1,3 +1,7 @@
+**U.K. Moves to Bar Foreign State Ownership of Newspapers, a Blow to Telegraph Bid**\
+`A roughly $1 billion bid from the former CNN chief Jeff Zucker and his Emirati backers raised concerns among lawmakers over a storied conservative newspaper.`\
+https://nytimes.com/2024/03/13/business/media/jeff-zucker-telegraph-delay.html
+
 **How Will I Know if My Braise Is Ready?**\
 `In the second installment of Ask Kenji, the cookbook author Kenji López-Alt tackles tough questions about tender meat.`\
 https://nytimes.com/article/how-to-braise-meat.html
