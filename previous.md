@@ -1,40 +1,40 @@
-**For Washington, TikTok Has Become a Propaganda Tool**\
-`The new attitude explains the surprising unanimity among lawmakers to ban it.`\
-https://nytimes.com/live/2024/03/12/opinion/thepoint/tiktok-washington-ban-propaganda
+**Reddit’s Long, Rocky Road to an Initial Public Offering**\
+`The site, a throwback to an earlier era of social media, is poised to go public as soon as next week. It hasn’t been easy to reach this point.`\
+https://nytimes.com/2024/03/13/technology/reddits-long-rocky-road-to-an-initial-public-offering.html
 
-**Five Takeaways From Nikole Hannah-Jones’s Essay on the ‘Colorblindness’ Trap**\
-`How a 50-year campaign has undermined the progress of the civil rights movement.`\
-https://nytimes.com/2024/03/13/magazine/nikole-hannah-jones-colorblind-racial-justice.html
+**What the ‘Rust’ Shooting Case Is Really About**\
+`The conviction of a “Rust” crew member in a tragic on-set death highlights what Hollywood must do to avoid fatal accidents in the future.`\
+https://nytimes.com/2024/03/13/opinion/rust-hollywood-gun-safety.html
 
-**Nikole Hannah-Jones on Her ‘Colorblindness’ Essay**\
-`In a new essay, Nikole Hannah-Jones argues that the fall of affirmative action is part of a 50-year campaign to roll back racial progress.`\
-https://nytimes.com/video/magazine/100000009357936/nikole-hannah-jones-on-her-colorblindness-essay.html
+**$550,000 Homes in New York, Ohio and New Jersey**\
+`An A-frame cabin in Greene County, a renovated bungalow in Columbus and a 1911 home outside Philadelphia.`\
+https://nytimes.com/2024/03/13/realestate/550000-dollar-homes-new-york-ohio-new-jersey.html
 
-**Child Care Is ‘Just a Huge Mess.’ Will Government Finally Fix It?**\
-`Four years after the pandemic began, American families continue to struggle, but there’s reason to hope for a better future.`\
-https://nytimes.com/2024/03/13/opinion/child-care.html
+**You Texted? I Hadn’t Noticed.**\
+`“Do Not Disturb” mode lets smartphone users silence notifications — and signals that they may take a while to respond.`\
+https://nytimes.com/2024/03/13/style/do-not-disturb-phone-setting.html
 
-**What to Know About the Proposed TikTok Legislation**\
-`The House plans to vote on Wednesday on a bill that would force TikTok’s Chinese parent to sell the popular social media app.`\
-https://nytimes.com/2024/03/13/technology/tiktok-ban-law-congress.html
+**Gabriel García Márquez Did Not Want His Final Book Published. But Should That Really Be the End of the Story?**\
+`We all benefit when works by great artists that are marked for destruction are instead preserved.`\
+https://nytimes.com/2024/03/13/opinion/gabriel-garcia-marquez-until-august.html
 
-**Brittany Howard Sings Through the Pangs of New Love**\
-`On her second solo record since leaving Alabama Shakes, “What Now,” Brittany Howard traces a path out of heartbreak. Today, she reads a Modern Love essay about that treacherous, hopeful journey back to love.`\
-https://nytimes.com/2024/03/13/podcasts/brittany-howard-modern-love-20th-anniversary.html
+**Four Years On, Covid Has Reshaped Life for Many Americans**\
+`Covid was declared a national emergency on March 13, 2020. Even as the threat of severe illness and death has faded, the pandemic’s effects linger.`\
+https://nytimes.com/2024/03/13/us/covid-national-emergency-anniversary.html
 
-**The ‘Colorblindness’ Trap: How a Civil Rights Ideal Got Hijacked**\
-`The fall of affirmative action is part of a 50-year campaign to roll back racial progress.`\
-https://nytimes.com/2024/03/13/magazine/civil-rights-affirmative-action-colorblind.html
+**Could ‘Mitchell-Lama 2.0’ Help New York’s Housing Crisis?**\
+`The State Senate has proposed a new version of a popular program from the 1950s that built affordable housing.`\
+https://nytimes.com/2024/03/13/nyregion/mitchell-lama-housing-new-york.html
 
-**Brazil’s Clashing Goals: Protect the Amazon and Pump Lots More Oil**\
-`State-owned Petrobras could soon be the world’s third-biggest oil producer, in stark contrast to the country’s promises to fight climate change and slow Amazon destruction.`\
-https://nytimes.com/2024/03/13/climate/brazil-oil-production.html
+**Why Haley Supporters Should Turn to Biden, Not Trump**\
+`David French on why “MAGA will not accommodate Reagan conservatism.”`\
+https://nytimes.com/2024/03/13/opinion/haley-voters-biden.html
 
-**A Rare Inside Look at Human Smuggling on the Border**\
-`In “Soldiers and Kings,” the anthropologist Jason De León interviews smugglers, arguing that they are victims of poverty and violence, even as they exploit the humans in their care.`\
-https://nytimes.com/2024/03/13/books/review/soldiers-and-kings-jason-de-leon.html
+**Yvonne Loriod Was So Much More Than a Composer’s Muse**\
+`Loriod, the vessel for Olivier Messiaen’s piano works, had a rich musical life beyond him, which is captured in a new set of recordings.`\
+https://nytimes.com/2024/03/13/arts/music/yvonne-loriod-olivier-messiaen.html
 
-**In Silicon Valley, Venture Capital Meets a Generational Shift**\
-`Big-name investors such as Reid Hoffman and Michael Moritz are pulling back, creating room for a new generation of tech power brokers.`\
-https://nytimes.com/2024/03/13/technology/venture-capital-silicon-valley-investors.html
+**Dozens of Artists, 3 Critics: Who’s Afraid of the Whitney Biennial 2024?**\
+`“Even Better Than the Real Thing” will go down as a well-intentioned edition of the perpetually debated show. Will it go down as a notable one?`\
+https://nytimes.com/2024/03/13/arts/design/whitney-biennial-review-museum-art.html
 
