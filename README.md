@@ -1,3 +1,7 @@
+**Donald Trump and Joe Biden Clinch Their Party Nominations**\
+`After sweeping another set of contests on Tuesday, the former president and the current president have won the delegates they need for a long-anticipated rematch.`\
+https://nytimes.com/2024/03/12/us/politics/trump-republican-nomination.html
+
 **Dallas Seavey Overcomes Moose-Gutting Penalty to Win Iditarod**\
 `It was a record sixth win for Seavey in the sled dog race, despite a harrowing close encounter with a large mammal and a strange punishment.`\
 https://nytimes.com/2024/03/12/sports/dallas-seavey-iditarod-winner-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/learning/to-whom-would-you-write-an-open-letter.h
 **First Aid Ship Heads to Gaza, but Far More Is Needed**\
 `The maritime package of more than 200 tons of food is a welcome milestone, but not nearly enough to prevent famine, said relief officials, who called on Israel to allow more aid delivery by land.`\
 https://nytimes.com/2024/03/12/world/middleeast/israel-gaza-aid-ship.html
-
-**A Chance for Hope in Haiti’s Latest Crisis**\
-`Why I am hopeful — and fearful — about the country’s future.`\
-https://nytimes.com/2024/03/12/opinion/haiti-crisis-united-states.html
 
