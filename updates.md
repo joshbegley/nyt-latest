@@ -1,3 +1,11 @@
+**‘Apples Never Fall’ Review: A Drama Wrapped in a Mystery Inside a Formula**\
+`This Peacock mini-series about a bitter family and a missing woman is TV’s latest adaptation of a novel by the author of “Big Little Lies.”`\
+https://nytimes.com/2024/03/13/arts/television/apples-never-fall-review-a-drama-wrapped-in-a-mystery-inside-a-formula.html
+
+**Weeknight Chicken Marbella, Briny and Lush With Olives and Prunes**\
+`Rick Martinez’s streamlined recipe updates a 1980s favorite for 2024 weeknights.`\
+https://nytimes.com/2024/03/13/dining/weeknight-chicken-marbella-briny-and-lush-with-olives-and-prunes.html
+
 **House Passes Bill to Force TikTok Sale From Chinese Owner or Ban the App**\
 `The legislation received wide bipartisan support, with both Republicans and Democrats showing an eagerness to appear tough on China.`\
 https://nytimes.com/2024/03/13/technology/tiktok-ban-house-vote.html

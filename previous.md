@@ -1,3 +1,11 @@
+**‘Apples Never Fall’ Review: A Drama Wrapped in a Mystery Inside a Formula**\
+`This Peacock mini-series about a bitter family and a missing woman is TV’s latest adaptation of a novel by the author of “Big Little Lies.”`\
+https://nytimes.com/2024/03/13/arts/television/apples-never-fall-review-a-drama-wrapped-in-a-mystery-inside-a-formula.html
+
+**Weeknight Chicken Marbella, Briny and Lush With Olives and Prunes**\
+`Rick Martinez’s streamlined recipe updates a 1980s favorite for 2024 weeknights.`\
+https://nytimes.com/2024/03/13/dining/weeknight-chicken-marbella-briny-and-lush-with-olives-and-prunes.html
+
 **House Passes Bill to Force TikTok Sale From Chinese Owner or Ban the App**\
 `The legislation received wide bipartisan support, with both Republicans and Democrats showing an eagerness to appear tough on China.`\
 https://nytimes.com/2024/03/13/technology/tiktok-ban-house-vote.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/13/us/2024-election-trump-biden/trump-and-biden
 **Top French University Faces Yet Another Crisis as Leader Resigns**\
 `Mathias Vicherat, the director of Sciences Po, and his former partner are expected to face trial over mutual accusations of violence. His resignation prolongs years of tumult in the school’s highest ranks.`\
 https://nytimes.com/2024/03/13/world/europe/france-sciences-po-mathias-vicherat-resigns.html
-
-**Israeli Strike Kills a Hamas Operative in Lebanon**\
-`It was the latest in a string of targeted killings there of what Israel has called senior figures from both Hezbollah and Hamas.`\
-https://nytimes.com/2024/03/13/world/middleeast/israel-kills-hamas-leader-lebanon.html
-
-**Time-Saving Tips for Using Your Phone as a … Telephone**\
-`The latest smartphone software includes tools to help you more easily connect with the people you want to contact — and avoid those you don’t.`\
-https://nytimes.com/2024/03/13/technology/personaltech/save-time-on-the-telephone.html
 
