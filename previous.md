@@ -1,3 +1,7 @@
+**TikTok’s Security Threats Go Beyond the Scope of House Legislation**\
+`The security threat has less to do with who owns the app than who writes the code and algorithms that make TikTok tick.`\
+https://nytimes.com/2024/03/13/us/politics/tiktok-ban-house-bill.html
+
 **The Actor Who Rides the Subway to the Oscars**\
 `Ed Begley Jr. has made a tradition of taking public transportation to the Academy Awards. And, like many commuters, he wears sensible shoes.`\
 https://nytimes.com/2024/03/13/style/ed-begley-jr-oscars-public-transportation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/us/politics/republican-community-centers-closed.h
 **‘Devastated’ Widow Says M.T.A. Workers Shared Photos of Slain Husband**\
 `Jakeba Dockery says graphic photos of her husband, Richard Henderson, after he was shot on a No. 3 train were shared online in violation of New York’s civil rights law.`\
 https://nytimes.com/2024/03/13/nyregion/subway-shooting-photos-richard-henderson.html
-
-**Lawyer, Author and TikTok Star Spent 72 Years in an Iron Lung**\
-`Paul Alexander, who died at 78, was paralyzed with polio at age 6 and relied on the machine to breathe. Still, he was able to earn a law degree, write a book and, late in life, build a following on TikTok.`\
-https://nytimes.com/2024/03/13/us/paul-alexander-iron-lung-dead.html
 
