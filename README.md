@@ -1,3 +1,11 @@
+**Family drama in the Garden State**\
+`Two of New Jersey’s three statewide offices could be held by people living in the same mansion.`\
+https://nytimes.com/2024/03/13/us/politics/murphy-menendez-senate.html
+
+**R.F.K. Jr.’s Possible V.P. Picks Are No Joke**\
+`There are voters who might see Aaron Rodgers or Jesse Ventura as regular people.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/kennedy-rodgers-ventura
+
 **The House Dealt TikTok a Blow**\
 `Also, this college admission season has been a disaster. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/03/13/briefing/house-tiktok-bill-student-aid-delays.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/13/health/colon-cancer-blood-test.html
 **Autopsy Shows Nex Benedict Died of Suicide**\
 `A medical examiner found evidence of a toxic mix of drugs in the 16-year-old nonbinary high school student in Oklahoma, who died one day after an altercation in a girls’ bathroom.`\
 https://nytimes.com/2024/03/13/us/nex-benedict-oklahoma-nonbinary-suicide.html
-
-**Christopher Nolan’s ‘Oppenheimer’ Payday Rewards His Artistic Boldness**\
-`It’s not surprising that, in a remunerative sense, he’s treated like a star.`\
-https://nytimes.com/live/2024/03/12/opinion/thepoint/nolan-salary-oppenheimer
-
-**United States House Passes Bill That Could Ban TikTok**\
-`If the TikTok bill were to become law, it would likely deepen a cold war between the United States and China over the control of important technologies.`\
-https://nytimes.com/video/us/politics/100000009360168/tiktok-ban-house-china.html
 
