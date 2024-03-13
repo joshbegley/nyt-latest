@@ -16,7 +16,7 @@ https://nytimes.com/2024/03/13/podcasts/a-vote-targeting-tiktok-and-an-unexpecte
 
 **The Alarming Findings Inside a Mass Shooter’s Brain**\
 `An attack by an Army reservist prompted a search for answers about whether the soldier’s service could have been a factor.`\
-https://nytimes.com/2024/03/13/podcasts/the-daily/main-shooter-brain.html
+https://nytimes.com/2024/03/13/podcasts/the-daily/maine-shooter-brain.html
 
 **Seattle University to Receive $300 Million Art Collection**\
 `The hotel developer Richard Hedreen is donating more than 200 artworks, and $25 million in seed money, in honor of his wife, Betty, an alumna.`\
@@ -28,7 +28,7 @@ https://nytimes.com/2024/03/13/world/middleeast/ramadan-west-bank-gaza.html
 
 **Reddit’s Long, Rocky Road to an Initial Public Offering**\
 `The site, a throwback to an earlier era of social media, is poised to go public as soon as next week. It hasn’t been easy to reach this point.`\
-https://nytimes.com/2024/03/13/technology/reddits-long-rocky-road-to-an-initial-public-offering.html
+https://nytimes.com/2024/03/13/technology/reddit-public-offering-stock-market.html
 
 **What the ‘Rust’ Shooting Case Is Really About**\
 `The conviction of a “Rust” crew member in a tragic on-set death highlights what Hollywood must do to avoid fatal accidents in the future.`\
