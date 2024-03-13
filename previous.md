@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`Russia fires the leader of its navy.`\
+https://nytimes.com/2024/03/13/briefing/russia-navy-fired-haiti.html
+
 **From Moscow to Mumbai: Russia Pivots South for Trade**\
 `Once dependent on Europe for trade, Russia has been forging new routes that will allow it to skirt Western restrictions. A planned railway through Iran could be key for those ambitions.`\
 https://nytimes.com/2024/03/13/world/europe/russia-trade-economy-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/crosswords/daily-puzzle-2024-03-13.html
 **When the Pandemic Hit Home**\
 `New York Times readers share the moment they realized Covid would change the world.`\
 https://nytimes.com/interactive/2024/03/12/well/live/covid-pandemic-lockdown-anniversary.html
-
-**Ken Buck Cuts Short House Term, Leaving Republicans Down Yet Another Member**\
-`The Colorado Republican, who announced his retirement last fall, said he would leave Congress at the end of next week, further shrinking his party’s already minuscule majority.`\
-https://nytimes.com/2024/03/12/us/politics/ken-buck-resignation-gop-smaller-majority.html
 

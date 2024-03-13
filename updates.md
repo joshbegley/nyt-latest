@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`Russia fires the leader of its navy.`\
+https://nytimes.com/2024/03/13/briefing/russia-navy-fired-haiti.html
+
 **From Moscow to Mumbai: Russia Pivots South for Trade**\
 `Once dependent on Europe for trade, Russia has been forging new routes that will allow it to skirt Western restrictions. A planned railway through Iran could be key for those ambitions.`\
 https://nytimes.com/2024/03/13/world/europe/russia-trade-economy-ukraine.html
