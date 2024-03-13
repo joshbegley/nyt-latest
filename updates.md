@@ -1,3 +1,19 @@
+**Review: Rennie Harris and Chicago House to the Rescue**\
+`Hubbard Street Dance Chicago presents the first of two programs at the Joyce Theater, including a sparkling New York premiere by the hip-hop choreographer Rennie Harris.`\
+https://nytimes.com/2024/03/13/arts/dance/review-rennie-harris-hubbard-street-dance.html
+
+**A Weeknight Skillet Chicken Dinner, Rich With Greens**\
+`This forgiving and adaptable weeknight dinner stars tender chicken thighs, braising greens and whole garlic cloves.`\
+https://nytimes.com/2024/03/13/dining/easy-chicken-dinner-recipe-with-greens.html
+
+**Why Do Whales Go Through Menopause?**\
+`A new study argues that the change brought these females an evolutionary advantage — and perhaps did the same for humans.`\
+https://nytimes.com/2024/03/13/science/whale-menopause.html
+
+**Oil Fields Release Far More Methane Than Thought, Study Finds**\
+`In parts of New Mexico, more than 9 percent of all natural gas produced goes into the atmosphere, where it acts as a powerful greenhouse gas.`\
+https://nytimes.com/2024/03/13/climate/oil-gas-industry-methane-release.html
+
 **Why We Gave Up on the Future**\
 `The rise of political nostalgia isn’t just about “vibes.”`\
 https://nytimes.com/2024/03/13/opinion/politics/politics-nostalgia-economic-growth-pessimism.html

@@ -1,3 +1,19 @@
+**Review: Rennie Harris and Chicago House to the Rescue**\
+`Hubbard Street Dance Chicago presents the first of two programs at the Joyce Theater, including a sparkling New York premiere by the hip-hop choreographer Rennie Harris.`\
+https://nytimes.com/2024/03/13/arts/dance/review-rennie-harris-hubbard-street-dance.html
+
+**A Weeknight Skillet Chicken Dinner, Rich With Greens**\
+`This forgiving and adaptable weeknight dinner stars tender chicken thighs, braising greens and whole garlic cloves.`\
+https://nytimes.com/2024/03/13/dining/easy-chicken-dinner-recipe-with-greens.html
+
+**Why Do Whales Go Through Menopause?**\
+`A new study argues that the change brought these females an evolutionary advantage — and perhaps did the same for humans.`\
+https://nytimes.com/2024/03/13/science/whale-menopause.html
+
+**Oil Fields Release Far More Methane Than Thought, Study Finds**\
+`In parts of New Mexico, more than 9 percent of all natural gas produced goes into the atmosphere, where it acts as a powerful greenhouse gas.`\
+https://nytimes.com/2024/03/13/climate/oil-gas-industry-methane-release.html
+
 **Heirs Awarded Nazi-Looted Art Are Still Waiting, 17 Years Later**\
 `A Dutch panel ruled in 2007 to return the painting to a Jewish family, but a notary handling the restitution for the government says he still doesn’t have all the right documents.`\
 https://nytimes.com/2024/03/13/arts/heirs-awarded-nazi-looted-art-are-still-waiting-17-years-later.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/03/13/magazine/boss-harassment-credit-ethics.html
 **A Deadly Journey on the U.S.-Mexico Border**\
 `The day before President Biden and former President Donald J. Trump both visited the U.S.-Mexico border, I traveled to the spot where Mr. Trump was scheduled to speak.`\
 https://nytimes.com/2024/03/13/us/a-deadly-journey-on-the-us-mexico-border.html
-
-**Trending at the Oscars, Brooches for Men**\
-`The brooch has shed its granny’s jewel box connotations and is making a comeback as a must-have accessory for guys.`\
-https://nytimes.com/2024/03/13/style/brooches-male-celebrities-oscars.html
-
-**James Crumbley Declines to Testify in His Michigan School Shooting Trial**\
-`Witness testimony in the trial ended on Wednesday. Mr. Crumbley faces involuntary manslaughter charges for the four students killed by his son.`\
-https://nytimes.com/2024/03/13/us/james-crumbley-trial-michigan-shooting.html
-
-**‘Apples Never Fall’ Review: A Drama Wrapped in a Mystery Inside a Formula**\
-`This Peacock mini-series about a bitter family and a missing woman is TV’s latest adaptation of a novel by the author of “Big Little Lies.”`\
-https://nytimes.com/2024/03/13/arts/television/apples-never-fall-review-a-drama-wrapped-in-a-mystery-inside-a-formula.html
-
-**Weeknight Chicken Marbella, Briny and Lush With Olives and Prunes**\
-`Rick Martinez’s streamlined recipe updates a 1980s favorite for 2024 weeknights.`\
-https://nytimes.com/2024/03/13/dining/weeknight-chicken-marbella-briny-and-lush-with-olives-and-prunes.html
 
