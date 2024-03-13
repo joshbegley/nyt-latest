@@ -1,3 +1,7 @@
+**House Passes Bill to Force TikTok Sale From Chinese Owner or Ban the App**\
+`The legislation received wide bipartisan support, with both Republicans and Democrats showing an eagerness to appear tough on China.`\
+https://nytimes.com/2024/03/13/technology/tiktok-ban-house-vote.html
+
 **Pro-Israel Lobby Faces Challenges Amid Gaza War and Shifting Politics**\
 `AIPAC, long influential with both parties in Washington, is drawing criticism from Democrats for trying to defeat incumbents while it struggles to move aid for Israel through Congress.`\
 https://nytimes.com/2024/03/13/us/politics/aipac-israel-gaza-democrats-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/world/middleeast/israel-kills-hamas-leader-lebano
 **Time-Saving Tips for Using Your Phone as a … Telephone**\
 `The latest smartphone software includes tools to help you more easily connect with the people you want to contact — and avoid those you don’t.`\
 https://nytimes.com/2024/03/13/technology/personaltech/save-time-on-the-telephone.html
-
-**Love Pi Day? You Can Thank San Francisco for That.**\
-`The celebration of March 14 began as a weird Bay Area tradition.`\
-https://nytimes.com/2024/03/13/us/california-pi-day.html
 
