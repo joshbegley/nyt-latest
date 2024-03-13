@@ -1,3 +1,7 @@
+**The Actor Who Rides a Subway to the Oscars**\
+`Ed Begley Jr. has made a tradition of taking public transportation to the Academy Awards. And, like many commuters, he wears sensible shoes.`\
+https://nytimes.com/2024/03/13/style/ed-begley-jr-oscars-public-transportation.html
+
 **Under Armour’s Founder Will Return as C.E.O.**\
 `Kevin Plank, the sports apparel company’s controlling shareholder, will seek to reinvigorate the struggling brand.`\
 https://nytimes.com/2024/03/13/business/under-armour-kevin-plank-chief-executive.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/nyregion/subway-shooting-photos-richard-henderson
 **Lawyer, Author and TikTok Star Spent 72 Years in an Iron Lung**\
 `Paul Alexander, who died at 78, was paralyzed with polio at age 6 and relied on the machine to breathe. Still, he was able to earn a law degree, write a book and, late in life, build a following on TikTok.`\
 https://nytimes.com/2024/03/13/us/paul-alexander-iron-lung-dead.html
-
-**What Happens Next With TikTok?**\
-`Even though legislation is moving forward, our video apps won’t disappear any time soon.`\
-https://nytimes.com/2024/03/13/technology/tiktok-bill-whats-next.html
 
