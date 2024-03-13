@@ -1,3 +1,7 @@
+**Japanese Rocket Explodes After Liftoff**\
+`A plume of smoke rose over the launch site as the surrounding area caught fire.`\
+https://nytimes.com/video/world/asia/100000009358900/japanese-rocket-explodes-after-liftoff.html
+
 **Wednesday Briefing**\
 `Russia fires the leader of its navy.`\
 https://nytimes.com/2024/03/13/briefing/russia-navy-fired-haiti.html
