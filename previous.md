@@ -1,3 +1,7 @@
+**Kate Middleton’s Story Is About So Much More Than Kate Middleton**\
+`The scandal is another blatant display of royal double standards.`\
+https://nytimes.com/2024/03/13/opinion/kate-middleton-scandal.html
+
 **There Is Something Putin Can’t Control**\
 `As “The Master and Margarita” shows, power never totally succeeds in shaping art to its ends.`\
 https://nytimes.com/2024/03/13/opinion/putin-russia-master-margarita.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/12/us/2024-election-trump-biden/trump-election-
 **Support for ‘uncommitted’ weakens in Washington State in early tallies.**\
 `By Reid J. Epstein`\
 https://nytimes.com/live/2024/03/12/us/2024-election-trump-biden/uncommitted-biden-washington-state
-
-**Donald Trump and Joe Biden Clinch Their Party Nominations**\
-`After sweeping another set of contests on Tuesday, the former president and the current president have won the delegates they need for a long-anticipated rematch.`\
-https://nytimes.com/2024/03/12/us/politics/trump-republican-nomination.html
 

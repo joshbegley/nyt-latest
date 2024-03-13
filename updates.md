@@ -1,3 +1,7 @@
+**Kate Middleton’s Story Is About So Much More Than Kate Middleton**\
+`The scandal is another blatant display of royal double standards.`\
+https://nytimes.com/2024/03/13/opinion/kate-middleton-scandal.html
+
 **There Is Something Putin Can’t Control**\
 `As “The Master and Margarita” shows, power never totally succeeds in shaping art to its ends.`\
 https://nytimes.com/2024/03/13/opinion/putin-russia-master-margarita.html
