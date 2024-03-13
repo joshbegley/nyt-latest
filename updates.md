@@ -1,3 +1,7 @@
+**Why a Sale of TikTok Would Not Be Easy**\
+`As legislation moves ahead that could eventually mandate a sale by the Chinese parent company ByteDance, hurdles include finding buyers.`\
+https://nytimes.com/2024/03/13/technology/tiktok-ban-sale-china.html
+
 **A U.N. agency says one of its workers was killed when Israeli forces hit an aid warehouse in Rafah.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/israeli-forces-hit-an-aid-warehouse-in-rafah-killing-a-un-worker-unrwa-says
