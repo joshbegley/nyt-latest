@@ -1,3 +1,7 @@
+**United States House Passes Bill That Could Ban TikTok**\
+`If the TikTok bill were to become law, it would likely deepen a cold war between the United States and China over the control of important technologies.`\
+https://nytimes.com/video/us/politics/100000009360168/tiktok-ban-house-china.html
+
 **Why a Sale of TikTok Would Not Be Easy**\
 `As legislation moves ahead that could eventually mandate a sale by the Chinese parent company ByteDance, hurdles include finding buyers.`\
 https://nytimes.com/2024/03/13/technology/tiktok-ban-sale-china.html

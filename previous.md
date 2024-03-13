@@ -1,3 +1,7 @@
+**United States House Passes Bill That Could Ban TikTok**\
+`If the TikTok bill were to become law, it would likely deepen a cold war between the United States and China over the control of important technologies.`\
+https://nytimes.com/video/us/politics/100000009360168/tiktok-ban-house-china.html
+
 **Why a Sale of TikTok Would Not Be Easy**\
 `As legislation moves ahead that could eventually mandate a sale by the Chinese parent company ByteDance, hurdles include finding buyers.`\
 https://nytimes.com/2024/03/13/technology/tiktok-ban-sale-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/books/review/james-marcus-glad-to-the-brink-of-fe
 **Yes, the Internet Is Broken. But What Does a Fix Look Like?**\
 `There’s no obvious way to reclaim control over the web from Big Tech, but technologists are trying.`\
 https://nytimes.com/2024/03/13/opinion/internet-web-3-tech.html
-
-**A U.N. agency says one of its workers was killed when Israeli forces hit an aid warehouse in Rafah.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/israeli-forces-hit-an-aid-warehouse-in-rafah-killing-a-un-worker-unrwa-says
 
