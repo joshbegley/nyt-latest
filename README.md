@@ -1,3 +1,7 @@
+**U.K. Moves to Bar Foreign State Ownership of Newspapers, a Blow to Telegraph Bid**\
+`A roughly $1 billion bid from the former CNN chief Jeff Zucker and his Emirati backers raised concerns among lawmakers over a storied conservative newspaper.`\
+https://nytimes.com/2024/03/13/business/media/jeff-zucker-telegraph-delay.html
+
 **How Will I Know if My Braise Is Ready?**\
 `In the second installment of Ask Kenji, the cookbook author Kenji López-Alt tackles tough questions about tender meat.`\
 https://nytimes.com/article/how-to-braise-meat.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/arts/television/sofie-grabol-prisoner.html
 **Outdoor Voices to Close All Stores This Week**\
 `The athleisure retailer will go online only, according to employees who were surprised by the announcement.`\
 https://nytimes.com/2024/03/13/style/outdoor-voices-closing-stores.html
-
-**Is the End of the Filibuster Near?**\
-`The Senate’s signature procedural tactic is losing some of its staunchest defenders in Senators Kyrsten Sinema and Joe Manchin, leaving its future in doubt.`\
-https://nytimes.com/2024/03/13/us/politics/filibuster-senate-manchin-sinema.html
 
