@@ -1,3 +1,7 @@
+**Japanese Rocket Explodes After Liftoff**\
+`A plume of smoke rose over the launch site as the surrounding area caught fire.`\
+https://nytimes.com/video/world/asia/100000009358900/japanese-rocket-explodes-after-liftoff.html
+
 **Wednesday Briefing**\
 `Russia fires the leader of its navy.`\
 https://nytimes.com/2024/03/13/briefing/russia-navy-fired-haiti.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/12/sports/dallas-seavey-iditarod-winner-2024.html
 **Close Call**\
 `Drew Schmenner proves that constructing puzzles is his forte.`\
 https://nytimes.com/2024/03/12/crosswords/daily-puzzle-2024-03-13.html
-
-**When the Pandemic Hit Home**\
-`New York Times readers share the moment they realized Covid would change the world.`\
-https://nytimes.com/interactive/2024/03/12/well/live/covid-pandemic-lockdown-anniversary.html
 
