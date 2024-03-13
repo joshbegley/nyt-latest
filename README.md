@@ -1,3 +1,7 @@
+**Review: Rennie Harris and Chicago House to the Rescue**\
+`Hubbard Street Dance Chicago presents the first of two programs at the Joyce Theater, including a sparkling New York premiere by the hip-hop choreographer Rennie Harris.`\
+https://nytimes.com/2024/03/13/arts/dance/review-rennie-harris-hubbard-street-dance.html
+
 **A Weeknight Skillet Chicken Dinner, Rich With Greens**\
 `This forgiving and adaptable weeknight dinner stars tender chicken thighs, braising greens and whole garlic cloves.`\
 https://nytimes.com/2024/03/13/dining/easy-chicken-dinner-recipe-with-greens.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/magazine/boss-harassment-credit-ethics.html
 **A Deadly Journey on the U.S.-Mexico Border**\
 `The day before President Biden and former President Donald J. Trump both visited the U.S.-Mexico border, I traveled to the spot where Mr. Trump was scheduled to speak.`\
 https://nytimes.com/2024/03/13/us/a-deadly-journey-on-the-us-mexico-border.html
-
-**Trending at the Oscars, Brooches for Men**\
-`The brooch has shed its granny’s jewel box connotations and is making a comeback as a must-have accessory for guys.`\
-https://nytimes.com/2024/03/13/style/brooches-male-celebrities-oscars.html
 
