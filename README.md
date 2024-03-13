@@ -1,3 +1,7 @@
+**Family Dollar to Close Nearly 1,000 Stores**\
+`The chain has struggled for years. Its parent company, Dollar Tree, cited inflation, theft and reduced government benefits as challenges that had prompted the closings.`\
+https://nytimes.com/2024/03/13/business/family-dollar-stores-closing.html
+
 **Tate McRae, Dua Lipa and the Fight to Be ‘Main Pop Girl’**\
 `A conversation about a title that emerged from stan communities, and how it’s played a role in pop singers’ careers.`\
 https://nytimes.com/2024/03/13/arts/music/popcast-main-pop-girl.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/business/media/jeff-zucker-telegraph-delay.html
 **How Will I Know if My Braise Is Ready?**\
 `In the second installment of Ask Kenji, the cookbook author Kenji López-Alt tackles tough questions about tender meat.`\
 https://nytimes.com/article/how-to-braise-meat.html
-
-**After Testy Interview With Elon Musk, Don Lemon Says His Deal With X Is Canceled**\
-`Days before the former television anchor’s new talk show debuted, his deal combusted after an interview with the site’s owner, he said.`\
-https://nytimes.com/2024/03/13/technology/don-lemon-elon-musk-x.html
 
