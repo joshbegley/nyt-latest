@@ -1,3 +1,11 @@
+**Olivia Munn Had Double Mastectomy After Breast Cancer Diagnosis**\
+`Munn said she was given the diagnosis last April, two months after negative results on a test that checked for 90 cancer genes.`\
+https://nytimes.com/2024/03/13/arts/olivia-munn-breast-cancer-mastectomy.html
+
+**What’s in Our Queue? Usher and More**\
+`I’m an assistant editor for The New York Times, covering pop culture. Here are five things I’m into right now.`\
+https://nytimes.com/interactive/2024/03/13/arts/editors-recommendations-usher.html
+
 **The Actress Who Looks Out for Denmark**\
 `Hunting murderers, delivering babies or guarding inmates, Sofie Grabol plays women who try to keep their country safe.`\
 https://nytimes.com/2024/03/13/arts/television/sofie-grabol-prisoner.html
