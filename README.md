@@ -1,3 +1,11 @@
+**Olivia Munn Had Double Mastectomy After Breast Cancer Diagnosis**\
+`Munn said she was given the diagnosis last April, two months after negative results on a test that checked for 90 cancer genes.`\
+https://nytimes.com/2024/03/13/arts/olivia-munn-breast-cancer-mastectomy.html
+
+**What’s in Our Queue? Usher and More**\
+`I’m an assistant editor for The New York Times, covering pop culture. Here are five things I’m into right now.`\
+https://nytimes.com/interactive/2024/03/13/arts/editors-recommendations-usher.html
+
 **The Actress Who Looks Out for Denmark**\
 `Hunting murderers, delivering babies or guarding inmates, Sofie Grabol plays women who try to keep their country safe.`\
 https://nytimes.com/2024/03/13/arts/television/sofie-grabol-prisoner.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/13/world/europe/yandex-eu-sanctions-russia-ukraine.h
 **Robert Hur’s Testimony About His Report on Biden**\
 `Readers discuss the special counsel’s decision not to prosecute. Also: Covid and the “nocebo effect”; New York’s primary; Black English; journaling.`\
 https://nytimes.com/2024/03/13/opinion/robert-hur-joe-biden.html
-
-**Inside the Blunders That Plunged the College Admission Season Into Disarray**\
-`The Education Department was supposed to make applying for federal financial aid easier. Instead, it got worse.`\
-https://nytimes.com/2024/03/13/us/politics/inside-the-blunders-that-plunged-the-college-admission-season-into-disarray.html
-
-**With Humor, Kobi Libii Gives His Characters a Different Superpower**\
-`The writer and director of “The American Society of Magical Negroes” has made a satire that may feel primed to be provocative. He responds to some of the discourse.`\
-https://nytimes.com/2024/03/13/movies/kobi-libii-american-society-of-magical-negroes.html
 
