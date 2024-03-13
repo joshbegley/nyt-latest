@@ -1,3 +1,11 @@
+**The Actress Who Looks Out for Denmark**\
+`Hunting murderers, delivering babies or guarding inmates, Sofie Grabol plays women who try to keep their country safe.`\
+https://nytimes.com/2024/03/13/arts/television/sofie-grabol-prisoner.html
+
+**Outdoor Voices to Close All Stores This Week**\
+`The athleisure retailer will go online only, according to employees who were surprised by the announcement.`\
+https://nytimes.com/2024/03/13/style/outdoor-voices-closing-stores.html
+
 **Is the End of the Filibuster Near?**\
 `The Senate’s signature procedural tactic is losing some of its staunchest defenders in Senators Kyrsten Sinema and Joe Manchin, leaving its future in doubt.`\
 https://nytimes.com/2024/03/13/us/politics/filibuster-senate-manchin-sinema.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/13/us/politics/inside-the-blunders-that-plunged-the-
 **With Humor, Kobi Libii Gives His Characters a Different Superpower**\
 `The writer and director of “The American Society of Magical Negroes” has made a satire that may feel primed to be provocative. He responds to some of the discourse.`\
 https://nytimes.com/2024/03/13/movies/kobi-libii-american-society-of-magical-negroes.html
-
-**Review: Rennie Harris and Chicago House to the Rescue**\
-`Hubbard Street Dance Chicago presents the first of two programs at the Joyce Theater, including a sparkling New York premiere by the hip-hop choreographer Rennie Harris.`\
-https://nytimes.com/2024/03/13/arts/dance/review-rennie-harris-hubbard-street-dance.html
-
-**A Weeknight Skillet Chicken Dinner, Rich With Greens**\
-`This forgiving and adaptable weeknight dinner stars tender chicken thighs, braising greens and whole garlic cloves.`\
-https://nytimes.com/2024/03/13/dining/easy-chicken-dinner-recipe-with-greens.html
 
