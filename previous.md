@@ -1,3 +1,7 @@
+**With Humor, Kobi Libii Gives His Characters a Different Superpower**\
+`The writer and director of “The American Society of Magical Negroes” has made a satire that may feel primed to be provocative. He responds to some of the discourse.`\
+https://nytimes.com/2024/03/13/movies/kobi-libii-american-society-of-magical-negroes.html
+
 **Review: Rennie Harris and Chicago House to the Rescue**\
 `Hubbard Street Dance Chicago presents the first of two programs at the Joyce Theater, including a sparkling New York premiere by the hip-hop choreographer Rennie Harris.`\
 https://nytimes.com/2024/03/13/arts/dance/review-rennie-harris-hubbard-street-dance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/fashion/ryan-raftery-joes-pub-anna-wintour.html
 **My Ex-Boss Sexually Harassed Me. Do I Owe Him Credit When Sharing Past Work?**\
 `The magazine’s Ethicist columnist on how to uphold a professional expectation after leaving an abusive workplace.`\
 https://nytimes.com/2024/03/13/magazine/boss-harassment-credit-ethics.html
-
-**A Deadly Journey on the U.S.-Mexico Border**\
-`The day before President Biden and former President Donald J. Trump both visited the U.S.-Mexico border, I traveled to the spot where Mr. Trump was scheduled to speak.`\
-https://nytimes.com/2024/03/13/us/a-deadly-journey-on-the-us-mexico-border.html
 

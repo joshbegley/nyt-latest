@@ -1,3 +1,7 @@
+**With Humor, Kobi Libii Gives His Characters a Different Superpower**\
+`The writer and director of “The American Society of Magical Negroes” has made a satire that may feel primed to be provocative. He responds to some of the discourse.`\
+https://nytimes.com/2024/03/13/movies/kobi-libii-american-society-of-magical-negroes.html
+
 **Review: Rennie Harris and Chicago House to the Rescue**\
 `Hubbard Street Dance Chicago presents the first of two programs at the Joyce Theater, including a sparkling New York premiere by the hip-hop choreographer Rennie Harris.`\
 https://nytimes.com/2024/03/13/arts/dance/review-rennie-harris-hubbard-street-dance.html
