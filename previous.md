@@ -1,3 +1,7 @@
+**Stephen Colbert Slams Former Special Counsel’s Conclusions**\
+`Colbert objected to Robert K. Hur calling President Biden a “well-meaning, elderly man with a poor memory” in a report on the handling of classified documents.`\
+https://nytimes.com/2024/03/13/arts/television/stephen-colbert-special-counsel-hur.html
+
 **Corrections: March 13, 2024**\
 `Corrections that appeared in print on Wednesday, March 13, 2024.`\
 https://nytimes.com/2024/03/13/pageoneplus/corrections-march-13-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/briefing/russia-navy-fired-haiti.html
 **From Moscow to Mumbai: Russia Pivots South for Trade**\
 `Once dependent on Europe for trade, Russia has been forging new routes that will allow it to skirt Western restrictions. A planned railway through Iran could be key for those ambitions.`\
 https://nytimes.com/2024/03/13/world/europe/russia-trade-economy-ukraine.html
-
-**These Workers Are Risking Their Lives to Restore Gaza’s Phone Network**\
-`Telecommunications infrastructure has been devastated in the territory, largely preventing Palestinians from calling for help, coordinating the delivery of aid and communicating with family abroad.`\
-https://nytimes.com/2024/03/13/world/middleeast/gaza-phone-networks.html
 

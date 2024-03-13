@@ -1,3 +1,7 @@
+**Stephen Colbert Slams Former Special Counsel’s Conclusions**\
+`Colbert objected to Robert K. Hur calling President Biden a “well-meaning, elderly man with a poor memory” in a report on the handling of classified documents.`\
+https://nytimes.com/2024/03/13/arts/television/stephen-colbert-special-counsel-hur.html
+
 **Corrections: March 13, 2024**\
 `Corrections that appeared in print on Wednesday, March 13, 2024.`\
 https://nytimes.com/2024/03/13/pageoneplus/corrections-march-13-2024.html
