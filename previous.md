@@ -1,3 +1,7 @@
+**Word of the Day: gauzy**\
+`This word has appeared in 46 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/13/learning/word-of-the-day-gauzy.html
+
 **Kate Middleton’s Story Is About So Much More Than Kate Middleton**\
 `The scandal is another blatant display of royal double standards.`\
 https://nytimes.com/2024/03/13/opinion/kate-middleton-scandal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/business/malaysia-semiconductors.html
 **A Trump ally and election denier is hired for a leadership role at the R.N.C.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/03/12/us/2024-election-trump-biden/trump-election-denier-rnc
-
-**Support for ‘uncommitted’ weakens in Washington State in early tallies.**\
-`By Reid J. Epstein`\
-https://nytimes.com/live/2024/03/12/us/2024-election-trump-biden/uncommitted-biden-washington-state
 
