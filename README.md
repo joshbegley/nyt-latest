@@ -3,7 +3,7 @@
 https://nytimes.com/2024/03/13/business/len-sirowitz-dead.html
 
 **TikTok’s Security Threats Go Beyond the Scope of House Legislation**\
-`The security threat has less to do with who owns the app than who writes the code and algorithms that make TikTok tick.`\
+`The risks have less to do with who owns the app than who writes the code and algorithms that make TikTok tick.`\
 https://nytimes.com/2024/03/13/us/politics/tiktok-ban-house-bill.html
 
 **The Actor Who Rides the Subway to the Oscars**\
