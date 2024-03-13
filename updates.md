@@ -1,3 +1,11 @@
+**A Deadly Journey on the U.S.-Mexico Border**\
+`The day before President Biden and former President Donald J. Trump both visited the U.S.-Mexico border, I traveled to the spot where Mr. Trump was scheduled to speak.`\
+https://nytimes.com/2024/03/13/us/a-deadly-journey-on-the-us-mexico-border.html
+
+**Trending at the Oscars, Brooches for Men**\
+`The brooch has shed its granny’s jewel box connotations and is making a comeback as a must-have accessory for guys.`\
+https://nytimes.com/2024/03/13/style/brooches-male-celebrities-oscars.html
+
 **James Crumbley Declines to Testify in His Michigan School Shooting Trial**\
 `Witness testimony in the trial ended on Wednesday. Mr. Crumbley faces involuntary manslaughter charges for the four students killed by his son.`\
 https://nytimes.com/2024/03/13/us/james-crumbley-trial-michigan-shooting.html
