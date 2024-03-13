@@ -1,4 +1,4 @@
-**Christopher Nolan’s ‘Oppenheimer’ Payday Rewards His Artistic Bravado**\
+**Christopher Nolan’s ‘Oppenheimer’ Payday Rewards His Artistic Boldness**\
 `It’s not surprising that, in a remunerative sense, he’s treated like a star.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/nolan-salary-oppenheimer
 
