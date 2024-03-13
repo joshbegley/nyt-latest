@@ -1,3 +1,11 @@
+**Israel Allows Aid Directly Into North Gaza, Raising Hopes for More**\
+`The World Food Program delivery, containing food for 25,000 people, was the first since Oct. 7 to go directly from Israel into the northern Gaza Strip, where many people are at risk of starvation.`\
+https://nytimes.com/2024/03/13/world/middleeast/israel-gaza-aid-convoy.html
+
+**Israeli Forces Kill a Teen in East Jerusalem, Palestinian Media Say**\
+`Israel’s justice ministry opened an investigation into the killing, which the police said was in response to a firework shot directly at them. The Palestinian news agency said he was 13.`\
+https://nytimes.com/2024/03/13/world/middleeast/israel-boy-killed-east-jerusalem-palestinian.html
+
 **Artists and Speakers Withdraw From SXSW Over U.S. Military’s Support of Israel**\
 `About 80 musical acts, conference speakers and sponsors pulled out of engagements at the festival in Austin to protest the Defense Department’s support of Israel in the war in Gaza.`\
 https://nytimes.com/2024/03/13/us/sxsw-army-sponsorship-protest.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/13/world/israel-hamas-war-gaza-news/israeli-for
 **Michigan Vows to Destroy Buyback Guns After Resale Uproar**\
 `Police agencies in Michigan and elsewhere were handing off surrendered firearms to companies that resold the parts in gun kits.`\
 https://nytimes.com/2024/03/13/us/michigan-gun-disposal.html
-
-**A Corvette, Swimsuit Shots and a Trip to Mongolia: Biden Offers a Selfie Tour of His Life**\
-`Transcripts of five hours of interviews with the special counsel released this week reveal a president with a lot on his mind and a storehouse of stories to tell.`\
-https://nytimes.com/2024/03/13/us/politics/biden-special-counsel-interview.html
-
-**U.K. Moves to Bar Foreign State Ownership of Newspapers, a Blow to Telegraph Bid**\
-`A roughly $1 billion bid from the former CNN chief Jeff Zucker and his Emirati backers raised concerns among lawmakers over a storied conservative newspaper.`\
-https://nytimes.com/2024/03/13/business/media/jeff-zucker-telegraph-delay.html
 

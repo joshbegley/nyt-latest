@@ -1,3 +1,11 @@
+**Israel Allows Aid Directly Into North Gaza, Raising Hopes for More**\
+`The World Food Program delivery, containing food for 25,000 people, was the first since Oct. 7 to go directly from Israel into the northern Gaza Strip, where many people are at risk of starvation.`\
+https://nytimes.com/2024/03/13/world/middleeast/israel-gaza-aid-convoy.html
+
+**Israeli Forces Kill a Teen in East Jerusalem, Palestinian Media Say**\
+`Israel’s justice ministry opened an investigation into the killing, which the police said was in response to a firework shot directly at them. The Palestinian news agency said he was 13.`\
+https://nytimes.com/2024/03/13/world/middleeast/israel-boy-killed-east-jerusalem-palestinian.html
+
 **Artists and Speakers Withdraw From SXSW Over U.S. Military’s Support of Israel**\
 `About 80 musical acts, conference speakers and sponsors pulled out of engagements at the festival in Austin to protest the Defense Department’s support of Israel in the war in Gaza.`\
 https://nytimes.com/2024/03/13/us/sxsw-army-sponsorship-protest.html
