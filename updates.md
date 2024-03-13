@@ -1,3 +1,11 @@
+**Thursday Briefing: U.S. Targets TikTok**\
+`Also, aid to northern Gaza and whimsical wooden automatons`\
+https://nytimes.com/2024/03/13/world/asia/target-us-gaza-aid-asia.html
+
+**Autopsy Shows Nex Benedict Died of Suicide**\
+`A medical examiner found evidence of a toxic mix of drugs in the 16-year-old nonbinary high school student in Oklahoma, who died one day after an altercation in a girls’ bathroom.`\
+https://nytimes.com/2024/03/13/us/nex-benedict-oklahoma-nonbinary-suicide.html
+
 **A Blood Test Shows Promise for Early Colon Cancer Detection**\
 `Many patients are reluctant to undergo colonoscopies or conduct at-home fecal tests. Doctors see potential in another screening method.`\
 https://nytimes.com/2024/03/13/health/colon-cancer-blood-test.html
