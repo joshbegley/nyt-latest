@@ -1,3 +1,7 @@
+**Under Armour’s Founder Will Return as C.E.O.**\
+`Kevin Plank, the sports apparel company’s controlling shareholder, will seek to reinvigorate the struggling brand.`\
+https://nytimes.com/2024/03/13/business/under-armour-kevin-plank-chief-executive.html
+
 **Trooper Cleared in Killing of Unarmed Man He Shot After High-Speed Chase**\
 `A state court judge found Anthony Nigro not guilty of manslaughter charges in the fatal shooting of James Huber in Buffalo in February 2022.`\
 https://nytimes.com/2024/03/13/nyregion/anthony-nigro-state-police-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/us/paul-alexander-iron-lung-dead.html
 **What Happens Next With TikTok?**\
 `Even though legislation is moving forward, our video apps won’t disappear any time soon.`\
 https://nytimes.com/2024/03/13/technology/tiktok-bill-whats-next.html
-
-**Geert Wilders Says He Will Forgo Becoming Dutch Prime Minister**\
-`Mr. Wilders, a hard-right icon, won the last elections decisively. His announcement may help facilitate the creation of a right-wing government in the Netherlands.`\
-https://nytimes.com/2024/03/13/world/europe/geert-wilders-netherlands-prime-minister.html
 
