@@ -1,3 +1,7 @@
+**Space One Rocket Explodes Seconds After Launch in Japan**\
+`The Japanese company hoped to become the country’s first private business to put a satellite into orbit. The failed launch was its inaugural flight.`\
+https://nytimes.com/2024/03/13/world/asia/japan-rocket-space-one-kairos.html
+
 **Malaysia Rises as Crucial Link in Chip Supply Chain**\
 `U.S. and European companies looking to diversify from China are expanding around Southeast Asia, a sign of how geopolitics is reshaping tech manufacturing.`\
 https://nytimes.com/2024/03/13/business/malaysia-semiconductors.html
