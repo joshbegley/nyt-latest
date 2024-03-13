@@ -1,3 +1,7 @@
+**The Actor Who Rides the Subway to the Oscars**\
+`Ed Begley Jr. has made a tradition of taking public transportation to the Academy Awards. And, like many commuters, he wears sensible shoes.`\
+https://nytimes.com/2024/03/13/style/ed-begley-jr-oscars-public-transportation.html
+
 **Under Armour’s Founder Will Return as C.E.O.**\
 `Kevin Plank, the sports apparel company’s controlling shareholder, will seek to reinvigorate the struggling brand.`\
 https://nytimes.com/2024/03/13/business/under-armour-kevin-plank-chief-executive.html
