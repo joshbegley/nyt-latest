@@ -1,3 +1,15 @@
+**No, the SAT Isn’t Racist**\
+`Lowering expectations in academia does Black people no favors.`\
+https://nytimes.com/2024/03/14/opinion/sat-college-admissions-antiracism.html
+
+**Harvard, M.I.T. and Systemic Antisemitism**\
+`Two new lawsuits describe a rash of bigotry on elite campuses.`\
+https://nytimes.com/2024/03/14/opinion/harvard-mit-and-systemic-antisemitism.html
+
+**Orban Endangers Hungary’s Status as an Ally, U.S. Diplomat Says**\
+`The U.S. ambassador to Budapest raised the temperature in a long-running standoff, citing Prime Minister Viktor Orban’s pro-Russia, anti-U.S. stance and opposition to supporting Ukraine.`\
+https://nytimes.com/2024/03/14/world/europe/orban-hungary-nato-us.html
+
 **Netanyahu’s allies reject Schumer’s criticism.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/netanyahus-allies-reject-schumers-criticism

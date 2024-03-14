@@ -1,3 +1,11 @@
+**No, the SAT Isn’t Racist**\
+`Lowering expectations in academia does Black people no favors.`\
+https://nytimes.com/2024/03/14/opinion/sat-college-admissions-antiracism.html
+
+**Harvard, M.I.T. and Systemic Antisemitism**\
+`Two new lawsuits describe a rash of bigotry on elite campuses.`\
+https://nytimes.com/2024/03/14/opinion/harvard-mit-and-systemic-antisemitism.html
+
 **Netanyahu’s allies reject Schumer’s criticism.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/netanyahus-allies-reject-schumers-criticism
@@ -18,7 +26,7 @@ https://nytimes.com/interactive/2024/science/solar-eclipse-cloud-cover-forecast-
 `Zolan Kanno-Youngs, a White House correspondent for The New York Times, analyzes how a potential ban on TikTok is colliding with President Biden’s campaign strategy of using the app to energize a frustrated bloc of young voters.`\
 https://nytimes.com/video/us/elections/100000009359867/biden-tiktok-election-bytedance.html
 
-**Orban Endangers Hungary’s Status in NATO, U.S. Diplomat Says**\
+**Orban Endangers Hungary’s Status as an Ally, U.S. Diplomat Says**\
 `The U.S. ambassador to Budapest raised the temperature in a long-running standoff, citing Prime Minister Viktor Orban’s pro-Russia, anti-U.S. stance and opposition to supporting Ukraine.`\
 https://nytimes.com/2024/03/14/world/europe/orban-hungary-nato-us.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009361878/schumer-netanyahu.htm
 **Biden Administration Moves to Protect the Sage Grouse**\
 `A new proposal lays out six possible plans, singling out one compromise approach as the preferred option.`\
 https://nytimes.com/2024/03/14/climate/sage-grouse-protection.html
-
-**Dozens of Migrants Die After Their Dinghy Deflates in the Mediterranean**\
-`Survivors, who departed from Libya, said they had been adrift for four days when they were found.`\
-https://nytimes.com/2024/03/14/world/europe/migrants-death-italy-libya.html
-
-**What About Nature Risk?**\
-`Draft preview text here for visibility and workshopping (It will not show up in newsletter)`\
-https://nytimes.com/2024/03/14/climate/what-about-nature-risk.html
 
