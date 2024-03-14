@@ -1,3 +1,7 @@
+**Ukraine, Stalled on the Battlefield, Targets Russia’s Oil Industry**\
+`Ukrainian drone strikes have been able to hit refineries deep in Russian territory, indicating a new vulnerability. But it is unclear if that will impact the fighting.`\
+https://nytimes.com/2024/03/14/world/europe/ukraine-drone-strike-russia-oil.html
+
 **No, the SAT Isn’t Racist**\
 `Lowering expectations in academia does Black people no favors.`\
 https://nytimes.com/2024/03/14/opinion/sat-college-admissions-antiracism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/world/europe/orban-hungary-nato-us.html
 **Prime Minister Netanyahu Has ‘Lost His Way,’ Schumer says**\
 `Senator Chuck Schumer, the majority leader, said the Israeli Prime Minister Benjamin Netanyahu is a major obstacle to peace in the Middle East.`\
 https://nytimes.com/video/world/middleeast/100000009361878/schumer-netanyahu.html
-
-**Biden Administration Moves to Protect the Sage Grouse**\
-`A new proposal lays out six possible plans, singling out one compromise approach as the preferred option.`\
-https://nytimes.com/2024/03/14/climate/sage-grouse-protection.html
 

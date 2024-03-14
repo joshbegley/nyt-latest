@@ -1,3 +1,7 @@
+**Ukraine, Stalled on the Battlefield, Targets Russia’s Oil Industry**\
+`Ukrainian drone strikes have been able to hit refineries deep in Russian territory, indicating a new vulnerability. But it is unclear if that will impact the fighting.`\
+https://nytimes.com/2024/03/14/world/europe/ukraine-drone-strike-russia-oil.html
+
 **No, the SAT Isn’t Racist**\
 `Lowering expectations in academia does Black people no favors.`\
 https://nytimes.com/2024/03/14/opinion/sat-college-admissions-antiracism.html
