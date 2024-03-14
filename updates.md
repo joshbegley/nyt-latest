@@ -1,3 +1,11 @@
+**Permanent Lettuce: A Pageant of Hockey Hair**\
+`At Minnesota’s state hockey tournament, outrageously coifed high school stars competed for the best “salad” and “flow.” And then the games began.`\
+https://nytimes.com/2024/03/14/style/minnesota-hockey-hair.html
+
+**They Helped a Family Facing Discrimination 80 Years Ago. Now They’re Being Celebrated.**\
+`In 1939, a Black couple rented a California home to a Chinese American family when others would not. Now, members of that family are donating house sale proceeds to Black students.`\
+https://nytimes.com/2024/03/14/us/sdsu-college-donation-chinese-immigrants.html
+
 **Biden and Harris campaign in ‘uncommitted’ territory.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/03/14/us/2024-election-biden-trump/biden-and-harris-campaign-in-uncommitted-territory
