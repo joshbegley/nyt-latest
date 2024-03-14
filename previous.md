@@ -1,3 +1,7 @@
+**Snakes in the Grass — and Under the Piano, by the Pool and in the Prison**\
+`Business is good for snake catchers in Australia, as the period of brumation, a sort of hibernation for reptiles, is shrinking — a result of the warming earth.`\
+https://nytimes.com/2024/03/14/world/australia/snakes-climate-change.html
+
 **Thursday Briefing**\
 `The U.S. House passes a bill that could ban TikTok.`\
 https://nytimes.com/2024/03/14/briefing/tiktok-ban-israel-gaza-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/world/middleeast/iran-fire-festival-protest.html
 **Democrats Meddle in Ohio G.O.P. Senate Primary, Pushing Trump’s Choice**\
 `A Democratic group is spending nearly $900,000 on a television ad promoting Bernie Moreno, who was endorsed by Donald Trump, just ahead of next week’s Republican primary.`\
 https://nytimes.com/2024/03/13/us/politics/moreno-trump-democrats-ohio.html
-
-**‘The Effect’ Review: Dissecting the Science of Desire**\
-`In Jamie Lloyd’s revival of Lucy Prebble’s play, Paapa Essiedu and Taylor Russell are a couple who fall in love during a pharmaceutical trial.`\
-https://nytimes.com/2024/03/13/theater/the-effect-review.html
 

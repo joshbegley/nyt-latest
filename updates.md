@@ -1,3 +1,7 @@
+**Snakes in the Grass — and Under the Piano, by the Pool and in the Prison**\
+`Business is good for snake catchers in Australia, as the period of brumation, a sort of hibernation for reptiles, is shrinking — a result of the warming earth.`\
+https://nytimes.com/2024/03/14/world/australia/snakes-climate-change.html
+
 **Thursday Briefing**\
 `The U.S. House passes a bill that could ban TikTok.`\
 https://nytimes.com/2024/03/14/briefing/tiktok-ban-israel-gaza-aid.html
