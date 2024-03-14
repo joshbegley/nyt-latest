@@ -1,3 +1,19 @@
+**Here is what to know about Thursday’s SpaceX launch.**\
+`By Kenneth Chang and Michael Roston`\
+https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/here-is-what-to-know-about-thursdays-spacex-launch
+
+**14starship-launch**\
+`Live Updates: SpaceX Prepares to Launch Third Starship Flight`\
+https://nytimes.com/live/2024/03/14/science/starship-spacex-launch
+
+**It Sucks to Be 33**\
+`“Peak millennials,” the microgeneration born in 1990 and 1991, have ended up competing for, well, almost everything.`\
+https://nytimes.com/2024/03/14/podcasts/the-daily/millenial-economy.html
+
+**Attempts to Ban Books Accelerated Last Year**\
+`Book challenges around the country reached the highest levels ever recorded by a library organization.`\
+https://nytimes.com/2024/03/14/books/book-bans.html
+
 **TikTok Could Disappear but the Problems It Poses Remain**\
 `How banning TikTok could backfire.`\
 https://nytimes.com/2024/03/14/opinion/tiktok-ban-house-vote.html
