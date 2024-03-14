@@ -1,3 +1,7 @@
+**James Crumbley Convicted in Michigan School Shooting Trial**\
+`Prosecutors charged Mr. Crumbley and his wife with involuntary manslaughter after their son killed four schoolmates. She was convicted last month on the same charges.`\
+https://nytimes.com/2024/03/14/us/james-crumbley-oxford-school-shooting.html
+
 **Read the Rejection of Trump’s Motion to Dismiss the Documents Case**\
 `Judge Aileen M. Cannon rebuffed arguments by former President Donald J. Trump’s lawyers that the Espionage Act was impermissibly vague and should be struck down entirely.`\
 https://nytimes.com/interactive/2024/03/14/us/0314trumpdocuments.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/14/us/trump-documents-pdf.html
 **Meghan Debuts New Brand, American Riviera Orchard, Amid Royal Family Drama**\
 `The Duchess of Sussex released a mysterious 15-second video on Instagram, but what little is known about the brand has been gleaned from a trademark application.`\
 https://nytimes.com/2024/03/14/style/meghan-markle-american-riviera-orchard.html
-
-**U.S. Approves $500 Million for Bahrain Oil Project, Despite Opposition**\
-`The financing faced criticism that it doesn’t mesh with U.S. commitments on climate change. Earlier, two climate advisers had resigned over the plan.`\
-https://nytimes.com/2024/03/14/climate/exim-financing-biden-bahrain-oil.html
 
