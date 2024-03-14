@@ -1,3 +1,7 @@
+**Cat Demons and Vietnamese Celadon in Asia Week’s 15th Year**\
+`A mini-fair offers an opportunity for aesthetes steeped mainly in Western art to broaden their horizons.`\
+https://nytimes.com/2024/03/14/arts/design/asia-week-festival.html
+
 **Judge Denies One of Trump’s Efforts to Derail Documents Case**\
 `With the former president in attendance, Judge Aileen Cannon held a hearing in federal court in Florida to weigh some of Donald Trump’s motions to have the classified documents case dismissed.`\
 https://nytimes.com/2024/03/14/us/politics/trump-classified-documents-case.html
