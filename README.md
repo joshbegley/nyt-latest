@@ -4,7 +4,7 @@ https://nytimes.com/2024/03/14/nyregion/new-york-subway-national-guard.html
 
 **The Conflict at the Heart of the Galliano Documentary**\
 `“High & Low: John Galliano” captures one of the fashion world’s greatest talents, while raising troubling industrywide issues that go beyond one man’s story.`\
-https://nytimes.com/2024/03/14/style/the-conflict-at-the-heart-of-the-galliano-documentary.html
+https://nytimes.com/2024/03/14/style/john-galliano-documentary-high-low-review.html
 
 **Hidden Doorway**\
 `Tell us a story, real or made up, that is inspired by this video.`\
