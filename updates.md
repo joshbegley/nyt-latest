@@ -1,3 +1,7 @@
+**SpaceX Launches Starship for Third Time**\
+`The rocket, a version of which will eventually carry NASA astronauts to the moon, traveled almost halfway around the Earth before it was lost as it re-entered the atmosphere.`\
+https://nytimes.com/video/science/space/100000009361668/spacex-starship-launch.html
+
 **Hillary Clinton and Lin-Manuel Miranda to Host Biden Broadway Fund-Raiser**\
 `The event will be at a production of “Suffs: The Musical,” which Mrs. Clinton co-produced.`\
 https://nytimes.com/2024/03/14/us/politics/hillary-clinton-lin-manuel-miranda-biden-fund-raiser.html
