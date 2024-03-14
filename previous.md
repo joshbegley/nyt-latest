@@ -1,3 +1,15 @@
+**Investigation Finds World Bank Failed to Police Abuse at Kenyan Schools**\
+`The World Bank’s investment arm has been facing scrutiny over sexual abuse at a program it was financing.`\
+https://nytimes.com/2024/03/14/business/world-bank-kenya-schools.html
+
+**Sydell L. Miller, Self-Made Eyelash and Hair Care Mogul, Dies at 86**\
+`She and her husband, Arnold, made it big in the beauty industry by giving new skills, products and dignity to the workaday salon hairdresser.`\
+https://nytimes.com/2024/03/14/fashion/sydell-miller-dead.html
+
+**Judge Appears Skeptical of Trump’s Efforts to Derail Documents Case**\
+`With the former president in attendance, Judge Aileen Cannon held a hearing in federal court in Florida to weigh some of Donald Trump’s motions to have the classified documents case dismissed.`\
+https://nytimes.com/2024/03/14/us/politics/trump-classified-documents-case.html
+
 **Read Manhattan District Attorney’s Filing on Potential Trump Trial Delay**\
 `The district attorney, Alvin L.`\
 https://nytimes.com/interactive/2024/03/14/nyregion/bragg-trump-hush-money-trial-delay.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/14/nyregion/menendez-bribery-charges-congressional-i
 **Appeals Court Overturns Vybz Kartel’s Murder Conviction**\
 `A judge ruled that the dancehall artist’s 2014 trial had proceeded improperly after a claim of juror misconduct.`\
 https://nytimes.com/2024/03/14/arts/music/vybz-kartel-murder-appeal.html
-
-**Schumer Tells Netanyahu to Get Lost**\
-`The Senate majority leader delivered an unusually blunt warning to Israel.`\
-https://nytimes.com/live/2024/03/12/opinion/thepoint/schumer-netanyahu-criticism
-
-**Restaurant Pop-Ups Are About the Thrill of the Hunt**\
-`They’re here today, gone tomorrow. Here are three worth tracking down.`\
-https://nytimes.com/2024/03/14/dining/restaurant-pop-ups-nyc.html
-
-**TikTok Is Its Own Worst Enemy**\
-`The video-sharing app has received unfair treatment in Washington. But the company’s biggest wounds are self-inflicted.`\
-https://nytimes.com/2024/03/14/technology/tiktok-ban.html
 

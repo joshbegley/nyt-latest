@@ -1,3 +1,15 @@
+**Investigation Finds World Bank Failed to Police Abuse at Kenyan Schools**\
+`The World Bank’s investment arm has been facing scrutiny over sexual abuse at a program it was financing.`\
+https://nytimes.com/2024/03/14/business/world-bank-kenya-schools.html
+
+**Sydell L. Miller, Self-Made Eyelash and Hair Care Mogul, Dies at 86**\
+`She and her husband, Arnold, made it big in the beauty industry by giving new skills, products and dignity to the workaday salon hairdresser.`\
+https://nytimes.com/2024/03/14/fashion/sydell-miller-dead.html
+
+**Judge Appears Skeptical of Trump’s Efforts to Derail Documents Case**\
+`With the former president in attendance, Judge Aileen Cannon held a hearing in federal court in Florida to weigh some of Donald Trump’s motions to have the classified documents case dismissed.`\
+https://nytimes.com/2024/03/14/us/politics/trump-classified-documents-case.html
+
 **Read Manhattan District Attorney’s Filing on Potential Trump Trial Delay**\
 `The district attorney, Alvin L.`\
 https://nytimes.com/interactive/2024/03/14/nyregion/bragg-trump-hush-money-trial-delay.html
