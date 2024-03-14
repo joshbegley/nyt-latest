@@ -1,3 +1,27 @@
+**22 of the Funniest Novels Since ‘Catch-22’**\
+`Because we could all use a laugh.`\
+https://nytimes.com/2024/03/14/books/funny-novels-humor.html
+
+**One Big Reason Gen Z Is Still on Facebook: To Save Money**\
+`For a generation that loves thrift-shopping, Facebook isn’t a place to socialize online — it’s the best place to score some deals.`\
+https://nytimes.com/2024/03/14/business/gen-z-facebook-marketplace.html
+
+**How Mariachi, a Mexican Wedding Standard, Is Evolving for a New Age**\
+`Mariachi, a soundtrack for celebration in Mexico, offers a way for couples to honor their heritage at their weddings.`\
+https://nytimes.com/2024/03/14/fashion/weddings/mariachi-music-mexican-weddings.html
+
+**Kate Zambreno Takes Issue With What Counts as ‘Literature’**\
+`Men’s personal narratives are dissected; women’s are “dismissed as merely autofiction or memoir,” says the author of “The Light Room: On Art and Care.” Her 2012 “Heroines” has just been reissued.`\
+https://nytimes.com/2024/03/14/books/review/kate-zambreno-by-the-book-interview-heroines.html
+
+**A New Soho House in Portland Brings Soul-Searching (and a Rooftop Pool)**\
+`The status-conscious social club has landed in the Pacific Northwest’s crunchiest city. Some locals wonder: Why?`\
+https://nytimes.com/2024/03/14/style/soho-house-portland.html
+
+**36 Hours in Sarasota, Fl.**\
+`Kayak through mangroves, take a Black history trolley tour and spot dolphins from a white-sand beach on Florida’s Gulf Coast.`\
+https://nytimes.com/interactive/2024/03/14/travel/things-to-do-sarasota.html
+
 **‘What’s My Life Worth?’ The Big Business of Denying Medical Care**\
 `Insurance companies have weaponized a seemingly benign process to protect their profits, and it’s putting patients at risk.`\
 https://nytimes.com/video/opinion/100000009345904/health-insurance-prior-authorization.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/03/14/style/john-galliano-documentary-high-low-review.h
 **Hidden Doorway**\
 `Tell us a story, real or made up, that is inspired by this video.`\
 https://nytimes.com/2024/03/14/learning/hidden-doorway.html
-
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/14/crosswords/wordle-review.html
-
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/14/crosswords/connections-companion.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/03/14/crosswords/spelling-bee-forum.html
-
-**Late Night Tackles the House Bill That Could Ban TikTok**\
-`“This is like iPhone ‘Footloose,’ and there’s no Kevin Bacon to save us,” Jimmy Kimmel joked.`\
-https://nytimes.com/2024/03/14/arts/television/late-night-tiktok.html
-
-**14mideast-crisis**\
-`Palestinian Authority Leader Expected to Choose Insider as Prime Minister`\
-https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news
-
-**Word of the Day: tarnish**\
-`This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/03/14/learning/word-of-the-day-tarnish.html
 
