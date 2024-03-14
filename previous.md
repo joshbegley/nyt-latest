@@ -1,3 +1,11 @@
+**Latinos, Shifting Toward Trump, Land at the Center of the 2024 Campaign**\
+`Donald Trump’s rising support has turned many Latino voters into swing voters.`\
+https://nytimes.com/2024/03/14/us/politics/trump-biden-campaign-latino-voters.html
+
+**Friday Briefing: Putin’s Re-Election**\
+`Also, a top U.S. senator calls for Israeli elections.`\
+https://nytimes.com/2024/03/14/world/asia/putin-election-schumer-israel-asia.html
+
 **Judge Refuses to Dismiss Charges Against Menendez on Grounds of Immunity**\
 `Senator Robert Menendez of New Jersey could appeal the ruling, which could end up delaying his trial for months.`\
 https://nytimes.com/2024/03/14/nyregion/menendez-bribery-charges-congressional-immunity.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/14/movies/oscars-celebrities-candid-photos.html
 **At Abortion Clinic Visit, Harris Says U.S. Is Confronting ‘Health Care Crisis’**\
 `The trip made history and offered a vivid look at how the politics of abortion rights have transformed since the Supreme Court overturned Roe v. Wade.`\
 https://nytimes.com/2024/03/14/us/politics/kamala-harris-abortion.html
-
-**JPMorgan Fined $348 Million for Lapses in Trade Monitoring**\
-`Regulators, which rely on the bank for information that helps prevent insider trading and market manipulation, said customer data from around 30 platforms was missing.`\
-https://nytimes.com/2024/03/14/business/jpmorgan-fine-trading-lapses.html
-
-**Republicans Move to Block a Policing Change Made After Tyre Nichols’s Death**\
-`A new Memphis law had prevented the police from intervening over more minor traffic offenses, such as a broken taillight.`\
-https://nytimes.com/2024/03/14/us/politics/tyre-nichols-tennessee-republicans-police.html
 
