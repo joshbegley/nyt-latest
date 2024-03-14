@@ -1,5 +1,5 @@
 **Manhattan Prosecutors Seek 30-Day Delay of Trump Trial**\
-`The Manhattan district attorney’s office, which accused Mr. Trump of covering up a sex scandal during the 2016 presidential campaign, sought the delay so it could review a new batch of records.`\
+`The Manhattan district attorney’s office, which accused Mr. Trump of covering up a sex scandal during the 2016 presidential campaign, sought the delay so a new batch of records could be reviewed.`\
 https://nytimes.com/2024/03/14/nyregion/alvin-bragg-trump-trial-delay.html
 
 **Ukraine, Stalled on the Battlefield, Targets Russia’s Oil Industry**\
