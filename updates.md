@@ -1,3 +1,11 @@
+**Hillary Clinton and Lin-Manuel Miranda to Host Biden Broadway Fund-Raiser**\
+`The event will be at a production of “Suffs: The Musical,” which Mrs. Clinton co-produced.`\
+https://nytimes.com/2024/03/14/us/politics/hillary-clinton-lin-manuel-miranda-biden-fund-raiser.html
+
+**In Commercial Space, There’s Nobody Like SpaceX**\
+`Can its standing last?`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/spacex-starship-launch
+
 **Handmade Porcelain Painted With Brooklyn Blossoms**\
 `Plus: a collection of writings by a star of bohemian New York, a line of pajamas from a bed linen company — and more recommendations from T Magazine.`\
 https://nytimes.com/2024/03/14/t-magazine/mg-by-hand-porcelain-dinnerware.html
