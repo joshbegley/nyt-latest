@@ -1,3 +1,15 @@
+**Biden and Harris campaign in ‘uncommitted’ territory.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/03/14/us/2024-election-biden-trump/biden-and-harris-campaign-in-uncommitted-territory
+
+**14pol-swiper**\
+`Election Updates: Harris’s visit to an abortion clinic will be a historic first; Biden heads to Michigan.`\
+https://nytimes.com/live/2024/03/14/us/2024-election-biden-trump
+
+**What to Know About the New York City St. Patrick’s Day Parade**\
+`The parade will be held on a Saturday this year, the day before St. Patrick’s Day, in accordance with religious observances.`\
+https://nytimes.com/2024/03/14/nyregion/how-watch-nyc-st-patricks-day-parade.html
+
 **Editor’s Note: Joel Fagliano Edits the Daily Crossword**\
 `Starting with the March 14 puzzle, Joel’s byline will accompany the daily crossword.`\
 https://nytimes.com/2024/03/14/crosswords/editors-note-joel-fagliano-edits-the-daily-crossword.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/what-went-rig
 **How to Write an Open Letter: A Guide to Our Opinion Contest**\
 `Six steps to help you understand the format and write a powerful open letter of your own — with help from Times texts along the way.`\
 https://nytimes.com/2024/03/14/learning/how-to-write-an-open-letter-a-guide-to-our-opinion-contest.html
-
-**TikTok Faces a Senate Showdown**\
-`A bill to potentially ban the video app breezed through the House, but its fate is less certain in the upper chamber as Big Tech weighs the wider implications.`\
-https://nytimes.com/2024/03/14/business/dealbook/tiktok-ban-senate-showdown.html
-
-**What is Starship?**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/what-is-starship
-
-**New U.K. Extremism Policy Raises Concerns Over Free Speech**\
-`The government said it would use a new legal definition of extremism to blacklist certain groups from public funding or engagement.`\
-https://nytimes.com/2024/03/14/world/europe/uk-extremism-plan-free-speech.html
 
