@@ -1,3 +1,15 @@
+**Quotation of the Day: Risking Their Lives to Restore a Phone Network**\
+`Quotation of the Day for Thursday, March 14, 2024.`\
+https://nytimes.com/2024/03/13/pageoneplus/quotation-of-the-day-risking-their-lives-to-restore-a-phone-network.html
+
+**Dancing and Jumping Over Fire, Iranians Use Holiday to Defy Rules**\
+`Large crowds packed the streets to celebrate the tradition of Chaharshanbeh Suri. Iran has banned dancing in public, which has also been a way to protest.`\
+https://nytimes.com/2024/03/13/world/middleeast/iran-fire-festival-protest.html
+
+**Democrats Meddle in Ohio G.O.P. Senate Primary, Pushing Trump’s Choice**\
+`A Democratic group is spending nearly $900,000 on a television ad promoting Bernie Moreno, who was endorsed by Donald Trump, just ahead of next week’s Republican primary.`\
+https://nytimes.com/2024/03/13/us/politics/moreno-trump-democrats-ohio.html
+
 **‘The Effect’ Review: Dissecting the Science of Desire**\
 `In Jamie Lloyd’s revival of Lucy Prebble’s play, Paapa Essiedu and Taylor Russell are a couple who fall in love during a pharmaceutical trial.`\
 https://nytimes.com/2024/03/13/theater/the-effect-review.html
