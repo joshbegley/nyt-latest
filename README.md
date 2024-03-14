@@ -1,3 +1,7 @@
+**A Sign, a Sunset and a Fall: Poems, Stories and Memoirs by Teens**\
+`Some favorite student responses to three recent Picture Prompts.`\
+https://nytimes.com/2024/03/14/learning/a-sign-a-sunset-and-a-fall-poems-stories-and-memoirs-by-teens.html
+
 **Film Club: ‘Motaz Azaiza Captured Gaza’s Suffering. But ‘Nothing Changed.’’**\
 `A Palestinian photographer has been documenting the war in Gaza while also trying to survive it. What can we learn from his story and about the role of photojournalists during wartime?`\
 https://nytimes.com/2024/03/14/learning/film-club-motaz-azaiza-captured-gazas-suffering-but-nothing-changed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/books/review/new-books-recommendations.html
 **5-Year-Old Twins Found Dead in the Bronx Were Smothered, Official Says**\
 `The medical examiner’s office ruled that the deaths of the boy and girl, who were found lifeless in their mother’s bed in December, were homicides. No arrests have been made.`\
 https://nytimes.com/2024/03/14/nyregion/bronx-twins-death-homicide.html
-
-**Giandomenico Picco, Diplomat Who Freed Hostages in Lebanon, Dies at 75**\
-`As the “chief troubleshooter” for the United Nations, he spent months shuttling around the Middle East to secure the release of 11 captives.`\
-https://nytimes.com/2024/03/14/us/giandomenico-picco-dead.html
 
