@@ -1,3 +1,7 @@
+**Three Men Face Federal Gun Charges in Kansas City Super Bowl Parade Shooting**\
+`Prosecutors said some of the weapons recovered from the scene of the Feb. 14 shooting had been unlawfully purchased or trafficked.`\
+https://nytimes.com/2024/03/13/us/kansas-city-super-bowl-shooting-federal-gun-charges.html
+
 **TikTok’s Security Threats Go Beyond the Scope of House Legislation**\
 `The risks have less to do with who owns the app than who writes the code and algorithms that make TikTok tick.`\
 https://nytimes.com/2024/03/13/us/politics/tiktok-ban-house-bill.html
