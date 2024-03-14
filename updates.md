@@ -1,3 +1,7 @@
+**Sports Illustrated’s Future in Print Is Thrown Into Question**\
+`Its operators told employees that the last print edition would be in May, but its owner has signaled that it wants the magazine to endure.`\
+https://nytimes.com/2024/03/14/business/media/sports-illustrated-print-edition.html
+
 **Latinos, Shifting Toward Trump, Land at the Center of the 2024 Campaign**\
 `Donald Trump’s rising support has turned many Latino voters into swing voters.`\
 https://nytimes.com/2024/03/14/us/politics/trump-biden-campaign-latino-voters.html
