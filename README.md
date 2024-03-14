@@ -1,3 +1,7 @@
+**What will happen during Starship’s third test flight.**\
+`By Michael Roston`\
+https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/what-will-happen-during-starships-third-test-flight
+
 **Black Family That Defied Segregation Honored by Family They Helped**\
 `In 1939, Gus and Emma Thompson rented a California home to the Dong family when others would not. Now, the Dongs are donating house sale proceeds to Black students.`\
 https://nytimes.com/2024/03/14/us/sdsu-college-donation-chinese-immigrants.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/world/europe/uk-extremism-plan-free-speech.html
 **‘Classe Tous Risques’: Bromance in the Dark**\
 `Claude Sautet’s 1960 existential buddy adventure opens Friday at Film Forum in a new 4K restoration.`\
 https://nytimes.com/2024/03/14/movies/classe-tous-risques-film-forum.html
-
-**‘The Tuba Thieves’ Review: The Real Meaning of Listening**\
-`In this film, the artist Alison O’Daniel uses the theft of tubas from Southern California high schools as a central hub in a wheel with many spokes.`\
-https://nytimes.com/2024/03/14/movies/the-tuba-thieves-review.html
 
