@@ -1,3 +1,11 @@
+**‘The Effect’ Review: Dissecting the Science of Desire**\
+`In Jamie Lloyd’s revival of Lucy Prebble’s play, Paapa Essiedu and Taylor Russell are a couple who fall in love during a pharmaceutical trial.`\
+https://nytimes.com/2024/03/13/theater/the-effect-review.html
+
+**An Irrational Reason to Celebrate**\
+`Jeffrey Martinovic wishes us all a happy holiday.`\
+https://nytimes.com/2024/03/13/crosswords/daily-puzzle-2024-03-14.html
+
 **Gerald M. Levin, Time Warner Chief in a Merger Debacle, Dies at 84**\
 `He was called a visionary in cable television, but his foray into the world of the internet, in a marriage with AOL, proved disastrous.`\
 https://nytimes.com/2024/03/13/obituaries/gerald-m-levin-dead.html
