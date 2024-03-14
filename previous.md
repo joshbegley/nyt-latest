@@ -1,3 +1,7 @@
+**Teen Pregnancy Linked to Risk of Earlier Death in Adulthood, Study Finds**\
+`A large analysis in Canada finds that teenagers who had babies were twice as likely to die before age 31.`\
+https://nytimes.com/2024/03/14/health/teen-pregnancy-early-death.html
+
 **Student Pilot Charged After Trying to Access Alaska Airlines Cockpit**\
 `The crew blocked the cockpit with a beverage cart as the man, who had a student pilot card, was put in flex cuffs for the remainder of the flight from California to Virginia.`\
 https://nytimes.com/2024/03/14/us/student-pilot-alaska-airlines.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/us/giandomenico-picco-dead.html
 **SpaceX Launches Starship for Third Time**\
 `The rocket, a version of which will eventually carry NASA astronauts to the moon, traveled almost halfway around the Earth before it was lost as it re-entered the atmosphere.`\
 https://nytimes.com/video/science/space/100000009361668/spacex-starship-launch.html
-
-**Hillary Clinton and Lin-Manuel Miranda to Host Biden Broadway Fund-Raiser**\
-`The event will be at a production of “Suffs: The Musical,” which Mrs. Clinton co-produced.`\
-https://nytimes.com/2024/03/14/us/politics/hillary-clinton-lin-manuel-miranda-biden-fund-raiser.html
 

@@ -1,3 +1,7 @@
+**Teen Pregnancy Linked to Risk of Earlier Death in Adulthood, Study Finds**\
+`A large analysis in Canada finds that teenagers who had babies were twice as likely to die before age 31.`\
+https://nytimes.com/2024/03/14/health/teen-pregnancy-early-death.html
+
 **Student Pilot Charged After Trying to Access Alaska Airlines Cockpit**\
 `The crew blocked the cockpit with a beverage cart as the man, who had a student pilot card, was put in flex cuffs for the remainder of the flight from California to Virginia.`\
 https://nytimes.com/2024/03/14/us/student-pilot-alaska-airlines.html
