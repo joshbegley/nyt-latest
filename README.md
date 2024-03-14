@@ -1,3 +1,11 @@
+**‘The Effect’ Review: Dissecting the Science of Desire**\
+`In Jamie Lloyd’s revival of Lucy Prebble’s play, Paapa Essiedu and Taylor Russell are a couple who fall in love during a pharmaceutical trial.`\
+https://nytimes.com/2024/03/13/theater/the-effect-review.html
+
+**An Irrational Reason to Celebrate**\
+`Jeffrey Martinovic wishes us all a happy holiday.`\
+https://nytimes.com/2024/03/13/crosswords/daily-puzzle-2024-03-14.html
+
 **Gerald M. Levin, Time Warner Chief in a Merger Debacle, Dies at 84**\
 `He was called a visionary in cable television, but his foray into the world of the internet, in a marriage with AOL, proved disastrous.`\
 https://nytimes.com/2024/03/13/obituaries/gerald-m-levin-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/13/business/len-sirowitz-dead.html
 **TikTok’s Security Threats Go Beyond the Scope of House Legislation**\
 `The risks have less to do with who owns the app than who writes the code and algorithms that make TikTok tick.`\
 https://nytimes.com/2024/03/13/us/politics/tiktok-ban-house-bill.html
-
-**The Actor Who Rides the Subway to the Oscars**\
-`Ed Begley Jr. has made a tradition of taking public transportation to the Academy Awards. And, like many commuters, he wears sensible shoes.`\
-https://nytimes.com/2024/03/13/style/ed-begley-jr-oscars-public-transportation.html
-
-**Under Armour’s Founder Will Return as C.E.O.**\
-`Kevin Plank, the sports apparel company’s controlling shareholder, will seek to reinvigorate the struggling brand.`\
-https://nytimes.com/2024/03/13/business/under-armour-kevin-plank-chief-executive.html
 
