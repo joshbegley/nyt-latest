@@ -1,3 +1,7 @@
+**Florida Man Sues G.M. and LexisNexis Over Sale of His Cadillac Data**\
+`Romeo Chicco’s auto insurance rate doubled because of information about his speeding, braking and acceleration, according to his complaint.`\
+https://nytimes.com/2024/03/14/technology/gm-lexis-nexis-driving-data.html
+
 **As Irish Leader Visits U.S., Shamrock Camaraderie is Strained by Gaza War**\
 `Prime Minister Leo Varadkar of Ireland has been one of the most outspoken critics of Israel’s war and has promised to raise the issue during a White House meeting meant to mark St. Patrick’s Day.`\
 https://nytimes.com/2024/03/14/us/politics/ireland-us-gaza.html
