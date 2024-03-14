@@ -1,3 +1,7 @@
+**Dan Wakefield, Multifaceted Writer on a Spiritual Journey, Dies at 91**\
+`He was prolific and acclaimed, producing novels, journalism, essays, criticism, screenplays and, in a memoir, an account of his path from faith to atheism and back again.`\
+https://nytimes.com/2024/03/14/books/dan-wakefield-dead.html
+
 **Manhattan Prosecutors Propose a 30-Day Delay of Trump Trial**\
 `The Manhattan district attorney’s office sought to delay Donald J. Trump’s first criminal trial so a new batch of records could be reviewed.`\
 https://nytimes.com/2024/03/14/nyregion/alvin-bragg-trump-trial-delay.html
