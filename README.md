@@ -26,7 +26,7 @@ https://nytimes.com/2024/03/14/business/world-bank-kenya-schools.html
 `She and her husband, Arnold, made it big in the beauty industry by giving new skills, products and dignity to the workaday salon hairdresser.`\
 https://nytimes.com/2024/03/14/fashion/sydell-miller-dead.html
 
-**Judge Appears Skeptical of Trump’s Efforts to Derail Documents Case**\
+**Judge Denies One of Trump’s Efforts to Derail Documents Case**\
 `With the former president in attendance, Judge Aileen Cannon held a hearing in federal court in Florida to weigh some of Donald Trump’s motions to have the classified documents case dismissed.`\
 https://nytimes.com/2024/03/14/us/politics/trump-classified-documents-case.html
 
