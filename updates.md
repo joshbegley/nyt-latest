@@ -1,3 +1,7 @@
+**Restaurant Pop-Ups Are About the Thrill of the Hunt**\
+`They’re here today, gone tomorrow. Here are three worth tracking down.`\
+https://nytimes.com/2024/03/14/dining/restaurant-pop-ups-nyc.html
+
 **Montana Rancher Pleads Guilty in Scheme to Create Giant Sheep Hybrid**\
 `Arthur Schubarth, 80, of Vaughn, Mont., illegally used tissue from a Marco Polo argali sheep and the testicles from a bighorn sheep to try to create a hybrid species that he could sell, prosecutors said.`\
 https://nytimes.com/2024/03/14/us/montana-giant-sheep-hybrid-guilty.html

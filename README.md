@@ -1,3 +1,7 @@
+**Read Manhattan District Attorney’s Filing on Potential Trump Trial Delay**\
+`The district attorney, Alvin L.`\
+https://nytimes.com/interactive/2024/03/14/nyregion/bragg-trump-hush-money-trial-delay.html
+
 **Montana Rancher Pleads Guilty in Scheme to Create Giant Sheep Hybrid**\
 `Arthur Schubarth, 80, of Vaughn, Mont., illegally used tissue from a Marco Polo argali sheep and the testicles from a bighorn sheep to try to create a hybrid species that he could sell, prosecutors said.`\
 https://nytimes.com/2024/03/14/us/montana-giant-sheep-hybrid-guilty.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/dining/restaurant-pop-ups-nyc.html
 **TikTok Is Its Own Worst Enemy**\
 `The video-sharing app has received unfair treatment in Washington. But the company’s biggest wounds are self-inflicted.`\
 https://nytimes.com/2024/03/14/technology/tiktok-ban.html
-
-**What to Watch this Weekend: A Fun Biographical Drama**\
-`“Nolly,” premiering Sunday on PBS, stars Helena Bonham Carter as Noele Gordon, a pioneer of British television.`\
-https://nytimes.com/2024/03/14/arts/television/nolly-pbs-masterpiece.html
 

@@ -28,7 +28,7 @@ https://nytimes.com/live/2024/03/12/opinion/thepoint/schumer-netanyahu-criticism
 
 **Restaurant Pop-Ups Are About the Thrill of the Hunt**\
 `They’re here today, gone tomorrow. Here are three worth tracking down.`\
-https://nytimes.com/2024/03/14/dining/restaurant-pop-ups-are-about-the-thrill-of-the-hunt.html
+https://nytimes.com/2024/03/14/dining/restaurant-pop-ups-nyc.html
 
 **TikTok Is Its Own Worst Enemy**\
 `The video-sharing app has received unfair treatment in Washington. But the company’s biggest wounds are self-inflicted.`\
