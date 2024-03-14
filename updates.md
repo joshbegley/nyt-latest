@@ -1,3 +1,7 @@
+**Paul Alexander on Living Inside an Iron Lung**\
+`During an interview in 2018, Alexander called the iron lung, a machine that helped him breathe, “my friend” and “my enemy.”`\
+https://nytimes.com/video/us/100000009360912/iron-lung-paul-alexander-dallas.html
+
 **Snakes in the Grass — and Under the Piano, by the Pool and in the Prison**\
 `Business is good for snake catchers in Australia, as the period of brumation, a sort of hibernation for reptiles, is shrinking — a result of the warming earth.`\
 https://nytimes.com/2024/03/14/world/australia/snakes-climate-change.html
