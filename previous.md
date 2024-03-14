@@ -1,3 +1,7 @@
+**Manhattan Prosecutors Seek 30-Day Delay of Trump Trial**\
+`The Manhattan district attorney’s office, which accused Mr. Trump of covering up a sex scandal during the 2016 presidential campaign, sought the delay so it could review a new batch of records.`\
+https://nytimes.com/2024/03/14/nyregion/alvin-bragg-trump-trial-delay.html
+
 **Ukraine, Stalled on the Battlefield, Targets Russia’s Oil Industry**\
 `Ukrainian drone strikes have been able to hit refineries deep in Russian territory, indicating a new vulnerability. But it is unclear if that will impact the fighting.`\
 https://nytimes.com/2024/03/14/world/europe/ukraine-drone-strike-russia-oil.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009359867/biden-tiktok-election-byt
 **Orban Endangers Hungary’s Status as an Ally, U.S. Diplomat Says**\
 `The U.S. ambassador to Budapest raised the temperature in a long-running standoff, citing Prime Minister Viktor Orban’s pro-Russia, anti-U.S. stance and opposition to supporting Ukraine.`\
 https://nytimes.com/2024/03/14/world/europe/orban-hungary-nato-us.html
-
-**Prime Minister Netanyahu Has ‘Lost His Way,’ Schumer says**\
-`Senator Chuck Schumer, the majority leader, said the Israeli Prime Minister Benjamin Netanyahu is a major obstacle to peace in the Middle East.`\
-https://nytimes.com/video/world/middleeast/100000009361878/schumer-netanyahu.html
 
