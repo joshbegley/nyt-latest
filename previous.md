@@ -1,3 +1,11 @@
+**San Francisco Symphony’s Maestro to Step Down, Citing Split With Board**\
+`Esa-Pekka Salonen, the ensemble’s music director, said that he no longer shared the same goals as the administration, which has been cutting costs.`\
+https://nytimes.com/2024/03/14/arts/music/esa-pekka-salonen-leaving-san-francisco-symphony.html
+
+**Freeze Your Tofu**\
+`A short stay in the freezer removes just enough moisture to create an impressively crisp exterior and pleasantly spongy interior when roasted.`\
+https://nytimes.com/2024/03/14/dining/freeze-your-tofu.html
+
 **SpaceX Blazes Forward With Latest Starship Launch**\
 `The third test flight of the most powerful rocket ever built achieved a series of milestones before the spacecraft was lost as it re-entered Earth’s atmosphere.`\
 https://nytimes.com/2024/03/14/science/spacex-starship-rocket-launch.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/12/opinion/thepoint/spacex-starship-launch
 **Handmade Porcelain Painted With Brooklyn Blossoms**\
 `Plus: a collection of writings by a star of bohemian New York, a line of pajamas from a bed linen company — and more recommendations from T Magazine.`\
 https://nytimes.com/2024/03/14/t-magazine/mg-by-hand-porcelain-dinnerware.html
-
-**SpaceX Launch’s Rare Sight: The Bright Orange Glow of Re-Entry**\
-`Seeing plasma build up beneath a spacecraft in near-real time is uncommon.`\
-https://nytimes.com/2024/03/14/science/spacex-starship-reentry-plasma.html
-
-**A Roman Head Is Unearthed, but Mysteries Remain**\
-`A marble head from the first or second century was found buried in England. But how did it get there?`\
-https://nytimes.com/2024/03/14/world/europe/roman-statue-found-uk.html
 

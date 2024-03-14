@@ -1,3 +1,11 @@
+**San Francisco Symphony’s Maestro to Step Down, Citing Split With Board**\
+`Esa-Pekka Salonen, the ensemble’s music director, said that he no longer shared the same goals as the administration, which has been cutting costs.`\
+https://nytimes.com/2024/03/14/arts/music/esa-pekka-salonen-leaving-san-francisco-symphony.html
+
+**Freeze Your Tofu**\
+`A short stay in the freezer removes just enough moisture to create an impressively crisp exterior and pleasantly spongy interior when roasted.`\
+https://nytimes.com/2024/03/14/dining/freeze-your-tofu.html
+
 **SpaceX Blazes Forward With Latest Starship Launch**\
 `The third test flight of the most powerful rocket ever built achieved a series of milestones before the spacecraft was lost as it re-entered Earth’s atmosphere.`\
 https://nytimes.com/2024/03/14/science/spacex-starship-rocket-launch.html
