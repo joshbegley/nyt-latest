@@ -1,3 +1,7 @@
+**Palestinian Rights Activists Skip Meeting With White House Officials**\
+`Many of those who had been invited to the Chicago meeting got together separately last week and decided the time for such listening sessions had passed.`\
+https://nytimes.com/live/2024/03/14/us/2024-election-biden-trump/palestinian-activists-white-house-meeting
+
 **Investigation Finds World Bank Failed to Police Abuse at Kenyan Schools**\
 `The World Bank’s investment arm has been facing scrutiny over sexual abuse at a program it was financing.`\
 https://nytimes.com/2024/03/14/business/world-bank-kenya-schools.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/world/asia/putin-election-schumer-israel-asia.htm
 **Judge Refuses to Dismiss Charges Against Menendez on Grounds of Immunity**\
 `Senator Robert Menendez of New Jersey could appeal the ruling, which could end up delaying his trial for months.`\
 https://nytimes.com/2024/03/14/nyregion/menendez-bribery-charges-congressional-immunity.html
-
-**Appeals Court Overturns Vybz Kartel’s Murder Conviction**\
-`A judge ruled that the dancehall artist’s 2014 trial had proceeded improperly after a claim of juror misconduct.`\
-https://nytimes.com/2024/03/14/arts/music/vybz-kartel-murder-appeal.html
 
