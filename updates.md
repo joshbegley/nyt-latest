@@ -1,3 +1,7 @@
+**Word of the Day: tarnish**\
+`This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/14/learning/word-of-the-day-tarnish.html
+
 **New Wildfires Threaten Chile’s Pacific Coast**\
 `Several communities in the Valparaíso region were being evacuated. Fires along the coast killed more than 100 people last month.`\
 https://nytimes.com/2024/03/13/world/americas/chile-wildfires-valparaiso.html
