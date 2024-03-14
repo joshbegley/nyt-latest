@@ -1,3 +1,11 @@
+**Road, sea or air: How is aid entering Gaza?**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/road-sea-or-air-how-is-aid-entering-gaza
+
+**Hospital vs. Insurer Dispute Could Force Thousands to Switch Doctors**\
+`As Mount Sinai Hospital and UnitedHealthcare haggle over pay rates, patients may have to pay out-of-network prices if they want to keep their doctors.`\
+https://nytimes.com/2024/03/14/nyregion/united-healthcare-mount-sinai-insurance.html
+
 **Starship already has private customers booked for deep space trips.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/starship-private-space-trips
