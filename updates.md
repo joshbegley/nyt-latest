@@ -1,3 +1,11 @@
+**Handmade Porcelain Painted With Brooklyn Blossoms**\
+`Plus: a collection of writings by a star of bohemian New York, a line of pajamas from a bed linen company — and more recommendations from T Magazine.`\
+https://nytimes.com/2024/03/14/t-magazine/mg-by-hand-porcelain-dinnerware.html
+
+**SpaceX Launch’s Rare Sight: The Bright Orange Glow of Re-Entry**\
+`Seeing plasma build up beneath a spacecraft in near-real time is uncommon.`\
+https://nytimes.com/2024/03/14/science/spacex-starship-reentry-plasma.html
+
 **A Roman Head Is Unearthed, but Mysteries Remain**\
 `A marble head from the first or second century was found buried in England. But how did it get there?`\
 https://nytimes.com/2024/03/14/world/europe/roman-statue-found-uk.html
