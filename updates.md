@@ -1,3 +1,7 @@
+**Black Family That Defied Segregation Honored by Family They Helped**\
+`In 1939, Gus and Emma Thompson rented a California home to the Dong family when others would not. Now, the Dongs are donating house sale proceeds to Black students.`\
+https://nytimes.com/2024/03/14/us/sdsu-college-donation-chinese-immigrants.html
+
 **We’re Adding to Our California Movie List**\
 `“The Big Lebowski,” “American Graffiti” and more classics are among the new choices.`\
 https://nytimes.com/2024/03/14/us/california-movie-list.html
