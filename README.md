@@ -2,7 +2,7 @@
 `Ashwin Deshmukh built a reputation as a nightlife impresario by burning close friends, new acquaintances, big corporations, local bars and even his subletter.`\
 https://nytimes.com/2024/03/14/style/superiority-burger-ashwin-deshmukh.html
 
-**Road, sea or air: How is aid entering Gaza?**\
+**Road, Sea and Air: How Is Aid Entering Gaza?**\
 `The amount of aid reaching Gaza has fallen sharply since Israel went to war with Hamas, leading to what humanitarian agencies say is a disaster for more than two million people.`\
 https://nytimes.com/2024/03/14/world/middleeast/gaza-aid-routes.html
 
