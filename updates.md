@@ -1,3 +1,15 @@
+**Netanyahu’s allies reject Schumer’s criticism.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/netanyahus-allies-reject-schumers-criticism
+
+**For Noem, an Odd Video Promoting Her New Smile Comes With Legal Headaches**\
+`Kristi Noem, the South Dakota governor and rising conservative star, flew to Texas for a dental procedure, which she shared on Instagram.`\
+https://nytimes.com/2024/03/14/us/politics/kristi-noem-instagram-teeth-smile.html
+
+**Popcast (Deluxe): What’s an Industry Plant Anyway? Plus: Ariana Grande**\
+`Discussing the quick ascent of the downtempo R&B singer 4batz, the new Ariana Grande album, “eternal sunshine,” music at the Oscars and more.`\
+https://nytimes.com/2024/03/14/arts/music/popcast-deluxe-industry-plant-4batz-ariana-grande.html
+
 **What’s the Cloud Outlook for Eclipse Day? See if History Is On Your Side.**\
 `April 8 could be your best opportunity to see a total solar eclipse for decades. But if clouds fill the sky, your shot at seeing the spectacle could be lost.`\
 https://nytimes.com/interactive/2024/science/solar-eclipse-cloud-cover-forecast-map.html

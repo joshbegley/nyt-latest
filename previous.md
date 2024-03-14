@@ -1,3 +1,15 @@
+**Netanyahu’s allies reject Schumer’s criticism.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/netanyahus-allies-reject-schumers-criticism
+
+**For Noem, an Odd Video Promoting Her New Smile Comes With Legal Headaches**\
+`Kristi Noem, the South Dakota governor and rising conservative star, flew to Texas for a dental procedure, which she shared on Instagram.`\
+https://nytimes.com/2024/03/14/us/politics/kristi-noem-instagram-teeth-smile.html
+
+**Popcast (Deluxe): What’s an Industry Plant Anyway? Plus: Ariana Grande**\
+`Discussing the quick ascent of the downtempo R&B singer 4batz, the new Ariana Grande album, “eternal sunshine,” music at the Oscars and more.`\
+https://nytimes.com/2024/03/14/arts/music/popcast-deluxe-industry-plant-4batz-ariana-grande.html
+
 **What’s the Cloud Outlook for Eclipse Day? See if History Is On Your Side.**\
 `April 8 could be your best opportunity to see a total solar eclipse for decades. But if clouds fill the sky, your shot at seeing the spectacle could be lost.`\
 https://nytimes.com/interactive/2024/science/solar-eclipse-cloud-cover-forecast-map.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/14/world/europe/migrants-death-italy-libya.html
 **What About Nature Risk?**\
 `Draft preview text here for visibility and workshopping (It will not show up in newsletter)`\
 https://nytimes.com/2024/03/14/climate/what-about-nature-risk.html
-
-**Mitch Albom Is Among Group of American Volunteers Rescued From Haiti**\
-`The “Tuesdays With Morrie” author was visiting an orphanage he runs in Port-au-Prince when gangs overran the country.`\
-https://nytimes.com/2024/03/14/us/mitch-albom-haiti-rescue.html
-
-**Why Taiwan Is Building a Satellite Network Without Elon Musk**\
-`The island democracy urgently needs an internet backup. Mr. Musk’s total control over his Starlink service, which dominates the market, left Taiwan wary.`\
-https://nytimes.com/2024/03/14/business/taiwan-starlink-satellite.html
-
-**Missing Teachers Are the Invisible School Crisis**\
-`Absenteeism among teachers is creating long-term setbacks for students.`\
-https://nytimes.com/live/2024/03/12/opinion/thepoint/absentee-teachers
 
