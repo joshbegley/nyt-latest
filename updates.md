@@ -1,3 +1,7 @@
+**Michael Culver, ‘Star Wars’ Actor and Victim of Darth Vader, Dies at 85**\
+`Mr. Culver, who was best known for his demise as Captain Needa in “The Empire Strikes Back,” was also a familiar actor on British TV and in theater.`\
+https://nytimes.com/2024/03/13/arts/television/michael-culver-dead.html
+
 **New Wildfires Threaten Chile’s Pacific Coast**\
 `Several communities in the Valparaíso region were being evacuated on Wednesday night. Fires along the coast killed more than 100 people last month.`\
 https://nytimes.com/2024/03/13/world/americas/chile-wildfires-valparaiso.html
