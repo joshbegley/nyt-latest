@@ -1,3 +1,7 @@
+**14mideast-crisis**\
+`Palestinian Authority Leader Expected to Choose Insider as Prime Minister`\
+https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news
+
 **Word of the Day: tarnish**\
 `This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/14/learning/word-of-the-day-tarnish.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/corrections/corrections-march-14-2024.html
 **New Wildfires Threaten Chile’s Pacific Coast**\
 `Several communities in the Valparaíso region were being evacuated. Fires along the coast killed more than 100 people last month.`\
 https://nytimes.com/2024/03/13/world/americas/chile-wildfires-valparaiso.html
-
-**Quotation of the Day: Risking Their Lives to Restore a Phone Network**\
-`Quotation of the Day for Thursday, March 14, 2024.`\
-https://nytimes.com/2024/03/13/pageoneplus/quotation-of-the-day-risking-their-lives-to-restore-a-phone-network.html
 

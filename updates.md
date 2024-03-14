@@ -1,3 +1,7 @@
+**14mideast-crisis**\
+`Palestinian Authority Leader Expected to Choose Insider as Prime Minister`\
+https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news
+
 **Word of the Day: tarnish**\
 `This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/14/learning/word-of-the-day-tarnish.html
