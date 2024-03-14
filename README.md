@@ -2,7 +2,7 @@
 `Lawyers for the actor have begun his defense by denouncing the way the prosecutors carried out grand jury proceedings.`\
 https://nytimes.com/2024/03/14/arts/alec-baldwin-rust-shooting-indictment.html
 
-**James Crumbley Convicted in Michigan School Shooting Trial**\
+**James Crumbley Found Guilty in Michigan School Shooting Trial**\
 `Prosecutors charged Mr. Crumbley and his wife with involuntary manslaughter after their son killed four schoolmates. She was convicted last month on the same charges.`\
 https://nytimes.com/2024/03/14/us/james-crumbley-oxford-school-shooting.html
 
