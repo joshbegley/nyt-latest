@@ -1,3 +1,7 @@
+**Word of the Day: tarnish**\
+`This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/14/learning/word-of-the-day-tarnish.html
+
 **Paul Alexander on Living Inside an Iron Lung**\
 `During an interview in 2018, Alexander called the iron lung, a machine that helped him breathe, “my friend” and “my enemy.”`\
 https://nytimes.com/video/us/100000009360912/iron-lung-paul-alexander-dallas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/world/americas/chile-wildfires-valparaiso.html
 **Quotation of the Day: Risking Their Lives to Restore a Phone Network**\
 `Quotation of the Day for Thursday, March 14, 2024.`\
 https://nytimes.com/2024/03/13/pageoneplus/quotation-of-the-day-risking-their-lives-to-restore-a-phone-network.html
-
-**Dancing and Jumping Over Fire, Iranians Use Holiday to Defy Rules**\
-`Large crowds packed the streets to celebrate the tradition of Chaharshanbeh Suri. Iran has banned dancing in public, which has also been a way to protest.`\
-https://nytimes.com/2024/03/13/world/middleeast/iran-fire-festival-protest.html
 
