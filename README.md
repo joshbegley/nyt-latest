@@ -1,5 +1,13 @@
+**On ‘Deeper Well,’ Kacey Musgraves Is Closer to Fine**\
+`The country singer and songwriter’s fifth album of original songs is a study in quiet thoughtfulness rooted in gratitude.`\
+https://nytimes.com/2024/03/14/arts/music/kacey-musgraves-deeper-well-review.html
+
+**Hello, Halloumi**\
+`A new recipe from Hetty Lui McKinnon combines salty halloumi cheese, jarred marinara and harissa for a fantastically easy five-ingredient baked pasta.`\
+https://nytimes.com/2024/03/14/dining/hello-halloumi.html
+
 **Schumer Urges New Leadership in Israel, Calling Netanyahu an Obstacle to Peace**\
-`The top Senate Democrat, the highest-ranking Jewish elected official in the United States, spoke from the Senate floor to condemn Prime Minister Benjamin Netanyahu and call for elections to replace him.`\
+`The top Senate Democrat, the highest-ranking Jewish elected official in the United States, spoke from the Senate floor to condemn Prime Minister Benjamin Netanyahu and to call for elections to replace him.`\
 https://nytimes.com/2024/03/14/us/politics/schumer-netanyahu-israel-elections.html
 
 **How to Win Friends and Hustle People**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/questions-p
 **Permanent Lettuce: A Pageant of Hockey Hair**\
 `At Minnesota’s state hockey tournament, outrageously coifed high school stars competed for the best “salad” and “flow.” And then the games began.`\
 https://nytimes.com/2024/03/14/style/minnesota-hockey-hair.html
-
-**Biden and Harris campaign in ‘uncommitted’ territory.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/03/14/us/2024-election-biden-trump/biden-and-harris-campaign-in-uncommitted-territory
-
-**14pol-swiper**\
-`Election Updates: Harris’s visit to an abortion clinic will be a historic first; Biden heads to Michigan.`\
-https://nytimes.com/live/2024/03/14/us/2024-election-biden-trump
 
