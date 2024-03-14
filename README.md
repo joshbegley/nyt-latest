@@ -1,3 +1,7 @@
+**Cities Face Cutbacks as Commercial Real Estate Prices Tumble**\
+`Lost tax revenue fuels concerns over an urban ‘doom loop.’`\
+https://nytimes.com/2024/03/14/business/commercial-real-estate-tax-revenue.html
+
 **American Ballet Theater Names Dance Veteran as Executive Director**\
 `Barry Hughson, a leader at the National Ballet of Canada, will join the company as it tries to get beyond financial woes.`\
 https://nytimes.com/2024/03/14/arts/dance/american-ballet-theater-barry-hughson-executive-director.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/style/superiority-burger-ashwin-deshmukh.html
 **Road, Sea and Air: How Is Aid Entering Gaza?**\
 `The amount of aid reaching Gaza has fallen sharply since Israel went to war with Hamas, leading to what humanitarian agencies say is a disaster for more than two million people.`\
 https://nytimes.com/2024/03/14/world/middleeast/gaza-aid-routes.html
-
-**Hospital vs. Insurer Dispute Could Force Thousands to Switch Doctors**\
-`As Mount Sinai Hospital and UnitedHealthcare haggle over pay rates, patients may have to pay out-of-network prices if they want to keep their doctors.`\
-https://nytimes.com/2024/03/14/nyregion/united-healthcare-mount-sinai-insurance.html
 
