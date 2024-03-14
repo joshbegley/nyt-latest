@@ -32,7 +32,7 @@ https://nytimes.com/interactive/2024/03/13/climate/electric-power-climate-change
 
 **As Biden Impeachment Flails, House Republicans Explore Criminal Referrals**\
 `Lacking evidence or the votes to support impeachment charges against President Biden, Republicans are considering criminal referrals against him and his allies instead.`\
-https://nytimes.com/2024/03/14/us/politics/as-biden-impeachment-flails-house-republicans-explore-criminal-referrals.html
+https://nytimes.com/2024/03/14/us/politics/biden-impeachment-republicans-criminal-referrals.html
 
 **A New Yorker Decamped to the Philadelphia Area With a Townhouse in Mind. What Would $500,000 Buy?**\
 `With a new job at Bryn Mawr and a grandchild on the way, an academic looked for the things she couldn’t afford in Manhattan: more space, more green, more parking.`\
