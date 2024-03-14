@@ -1,3 +1,19 @@
+**Here is what to know about Thursday’s SpaceX launch.**\
+`By Kenneth Chang and Michael Roston`\
+https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/here-is-what-to-know-about-thursdays-spacex-launch
+
+**14starship-launch**\
+`Live Updates: SpaceX Prepares to Launch Third Starship Flight`\
+https://nytimes.com/live/2024/03/14/science/starship-spacex-launch
+
+**It Sucks to Be 33**\
+`“Peak millennials,” the microgeneration born in 1990 and 1991, have ended up competing for, well, almost everything.`\
+https://nytimes.com/2024/03/14/podcasts/the-daily/millenial-economy.html
+
+**Attempts to Ban Books Accelerated Last Year**\
+`Book challenges around the country reached the highest levels ever recorded by a library organization.`\
+https://nytimes.com/2024/03/14/books/book-bans.html
+
 **TikTok Could Disappear but the Problems It Poses Remain**\
 `How banning TikTok could backfire.`\
 https://nytimes.com/2024/03/14/opinion/tiktok-ban-house-vote.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2024/03/14/realestate/philadelphia-home-sale-pri
 **How Did the Covid-19 Pandemic Affect You, Your Family and Your Community?**\
 `This week is the fourth anniversary of the pandemic. What are your most lasting memories? How did it reshape your life — and the world?`\
 https://nytimes.com/2024/03/14/learning/how-did-the-covid-19-pandemic-affect-you-your-family-and-your-community.html
-
-**TikTok Turns to Creators to Fight Possible Ban**\
-`Dozens of popular figures on the app have traveled to Washington to urge lawmakers to oppose a bill that could result in the platform being blocked in the United States.`\
-https://nytimes.com/2024/03/14/business/tiktok-creators-congress-ban.html
-
-**Russia’s 2024 Presidential Election: What to Know**\
-`The presidential vote in Russia begins on Friday and lasts through Sunday, and although it features the trappings of a horse race, it is more of a predetermined, Soviet-style referendum.`\
-https://nytimes.com/2024/03/14/world/europe/russia-election-explained.html
-
-**5 Minutes to Love Jazz Flute**\
-`How this ancient instrument played its way into popular American Music.`\
-https://nytimes.com/2024/03/14/podcasts/culture-desk-love-jazz-flute.html
-
-**Jonathan Kozol Fought School Inequality for Decades. Here’s One Final Plea.**\
-`With his latest, and last, book, the 87-year-old writer refuses false optimism.`\
-https://nytimes.com/2024/03/14/us/jonathan-kozol-school-inequality.html
 
