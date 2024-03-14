@@ -1,3 +1,7 @@
+**Read the Class Action Complaint Against G.M. and LexisNexis Risk Solutions**\
+`Romeo Chicco filed the complaint, alleging unfair and deceptive car data collection, in the Southern District of Florida on Wednesday, March 13, 2024`\
+https://nytimes.com/interactive/2024/03/14/business/chicco-vs-gm-lexisnexis.html
+
 **Cat Demons and Vietnamese Celadon in Asia Week’s 15th Year**\
 `A mini-fair offers an opportunity for aesthetes steeped mainly in Western art to broaden their horizons.`\
 https://nytimes.com/2024/03/14/arts/design/asia-week-festival.html

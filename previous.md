@@ -1,3 +1,7 @@
+**Read the Class Action Complaint Against G.M. and LexisNexis Risk Solutions**\
+`Romeo Chicco filed the complaint, alleging unfair and deceptive car data collection, in the Southern District of Florida on Wednesday, March 13, 2024`\
+https://nytimes.com/interactive/2024/03/14/business/chicco-vs-gm-lexisnexis.html
+
 **Cat Demons and Vietnamese Celadon in Asia Week’s 15th Year**\
 `A mini-fair offers an opportunity for aesthetes steeped mainly in Western art to broaden their horizons.`\
 https://nytimes.com/2024/03/14/arts/design/asia-week-festival.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/fashion/sydell-miller-dead.html
 **Judge Denies One of Trump’s Efforts to Derail Documents Case**\
 `With the former president in attendance, Judge Aileen Cannon held a hearing in federal court in Florida to weigh some of Donald Trump’s motions to have the classified documents case dismissed.`\
 https://nytimes.com/2024/03/14/us/politics/trump-classified-documents-case.html
-
-**Read Manhattan District Attorney’s Filing on Potential Trump Trial Delay**\
-`The district attorney, Alvin L.`\
-https://nytimes.com/interactive/2024/03/14/nyregion/bragg-trump-hush-money-trial-delay.html
 
