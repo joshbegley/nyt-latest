@@ -1,3 +1,7 @@
+**Some of Washington’s Iconic Cherry Trees Are About to Disappear**\
+`The National Park Service plans to chop down 140 of the trees as it builds a new sea wall to protect the area around the Jefferson Memorial.`\
+https://nytimes.com/2024/03/13/us/politics/washington-dc-cherry-trees.html
+
 **S.E.I.U. Plans $200 Million Effort to Aid Biden and Democrats**\
 `The program would be the largest investment ever for the union, which spent around $150 million in the 2020 presidential cycle.`\
 https://nytimes.com/2024/03/13/us/politics/seiu-biden-democrats.html
