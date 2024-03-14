@@ -1,3 +1,15 @@
+**Man Shot in Head at Brooklyn Subway Station**\
+`The victim was taken to a nearby hospital with serious injuries. It was unclear if he knew the person who shot him.`\
+https://nytimes.com/2024/03/14/nyregion/subway-shooting-brooklyn.html
+
+**Schumer Urged New Leadership in Israel**\
+`Plus, another Trump trial delay. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/03/14/briefing/schumer-israel-trump-trial-delay.html
+
+**Colorado Snowstorm Causes Flight Cancellations, Road Closures and Power Outages**\
+`Snow is typical for the state this time of the year, said a forecaster, who called the amount abnormal, but not overly so.`\
+https://nytimes.com/2024/03/14/us/colorado-snow-storm-weather.html
+
 **Palestinian Rights Activists Skip Meeting With White House Officials**\
 `Many of those who had been invited to the Chicago meeting got together separately last week and decided the time for such listening sessions had passed.`\
 https://nytimes.com/live/2024/03/14/us/2024-election-biden-trump/palestinian-activists-white-house-meeting
