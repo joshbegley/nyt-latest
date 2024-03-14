@@ -1,3 +1,7 @@
+**TikTok Faces a Senate Showdown**\
+`A bill to potentially ban the video app breezed through the House, but its fate is less certain in the upper chamber as Big Tech weighs the wider implications.`\
+https://nytimes.com/2024/03/14/business/dealbook/tiktok-ban-senate-showdown.html
+
 **What is Starship?**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/what-is-starship
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/movies/arthur-the-king-review.html
 **America Pulls Back from Ukraine**\
 `What the war may look like if Ukraine does not receive more U.S. support.`\
 https://nytimes.com/2024/03/14/briefing/ukraine-us-aid.html
-
-**A Historic Visit to an Abortion Clinic, and What Could Happen to TikTok**\
-`Plus, why America is suddenly using so much electricity.`\
-https://nytimes.com/2024/03/14/podcasts/harris-abortion-clinic-gaza-tiktok.html
 
