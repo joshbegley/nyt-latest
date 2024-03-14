@@ -3,7 +3,7 @@
 https://nytimes.com/2024/03/13/obituaries/gerald-m-levin-dead.html
 
 **Kamala Harris Will Visit Abortion Clinic, in Historic First**\
-`The vice president plans to meet with abortion providers and patients in Minneapolis, a striking political move that shows how assertive Democrats have grown on the issue.`\
+`The vice president plans to meet with abortion providers and staff members in Minneapolis, a striking political move that shows how assertive Democrats have grown on the issue.`\
 https://nytimes.com/2024/03/13/us/politics/kamala-harris-abortion-clinic.html
 
 **Michael Culver, ‘Star Wars’ Actor And Victim of Darth Vader, Dies at 85**\
