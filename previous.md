@@ -1,3 +1,7 @@
+**Questions persist as Israel signals it will help more aid get into Gaza.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/questions-persist-as-israel-signals-it-will-help-more-aid-get-into-gaza
+
 **Permanent Lettuce: A Pageant of Hockey Hair**\
 `At Minnesota’s state hockey tournament, outrageously coifed high school stars competed for the best “salad” and “flow.” And then the games began.`\
 https://nytimes.com/2024/03/14/style/minnesota-hockey-hair.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/us/california-movie-list.html
 **E.P.A. Sets Limits on Carcinogenic Gas Used to Sterilize Medical Devices**\
 `New limits on emissions of ethylene oxide are pitting public health advocates against makers of medical devices.`\
 https://nytimes.com/2024/03/14/climate/epa-sets-limits-on-ethylene-oxide.html
-
-**What went right and wrong during the 2nd Starship test flight.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/what-went-right-and-wrong-during-the-2nd-starship-test-flight
 

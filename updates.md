@@ -1,3 +1,7 @@
+**Questions persist as Israel signals it will help more aid get into Gaza.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/questions-persist-as-israel-signals-it-will-help-more-aid-get-into-gaza
+
 **Permanent Lettuce: A Pageant of Hockey Hair**\
 `At Minnesota’s state hockey tournament, outrageously coifed high school stars competed for the best “salad” and “flow.” And then the games began.`\
 https://nytimes.com/2024/03/14/style/minnesota-hockey-hair.html
