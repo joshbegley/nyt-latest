@@ -1,3 +1,7 @@
+**Schumer Urges New Leadership in Israel, Calling Netanyahu an Obstacle to Peace**\
+`The top Senate Democrat, the highest-ranking Jewish elected official in the United States, spoke from the Senate floor to condemn Prime Minister Benjamin Netanyahu and call for elections to replace him.`\
+https://nytimes.com/2024/03/14/us/politics/schumer-netanyahu-israel-elections.html
+
 **How to Win Friends and Hustle People**\
 `Ashwin Deshmukh built a reputation as a nightlife impresario by burning close friends, new acquaintances, big corporations, local bars and even his subletter.`\
 https://nytimes.com/2024/03/14/style/superiority-burger-ashwin-deshmukh.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/14/us/2024-election-biden-trump/biden-and-harri
 **14pol-swiper**\
 `Election Updates: Harris’s visit to an abortion clinic will be a historic first; Biden heads to Michigan.`\
 https://nytimes.com/live/2024/03/14/us/2024-election-biden-trump
-
-**What to Know About the New York City St. Patrick’s Day Parade**\
-`The parade will be held on a Saturday this year, the day before St. Patrick’s Day, in accordance with religious observances.`\
-https://nytimes.com/2024/03/14/nyregion/how-watch-nyc-st-patricks-day-parade.html
 
