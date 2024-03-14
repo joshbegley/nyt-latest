@@ -1,3 +1,7 @@
+**Read Manhattan District Attorney’s Filing on Potential Trump Trial Delay**\
+`The district attorney, Alvin L.`\
+https://nytimes.com/interactive/2024/03/14/nyregion/bragg-trump-hush-money-trial-delay.html
+
 **Restaurant Pop-Ups Are About the Thrill of the Hunt**\
 `They’re here today, gone tomorrow. Here are three worth tracking down.`\
 https://nytimes.com/2024/03/14/dining/restaurant-pop-ups-nyc.html
