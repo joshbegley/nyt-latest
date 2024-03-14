@@ -1,3 +1,11 @@
+**Gerald M. Levin, Time Warner Chief in a Merger Debacle, Dies at 84**\
+`He was called a visionary in cable television, but his foray into the world of the internet, in a marriage with AOL, proved disastrous.`\
+https://nytimes.com/2024/03/13/obituaries/gerald-m-levin-dead.html
+
+**Kamala Harris Will Visit Abortion Clinic, in Historic First**\
+`The vice president plans to meet with abortion providers and patients in Minneapolis, a striking political move that shows how assertive Democrats have grown on the issue.`\
+https://nytimes.com/2024/03/13/us/politics/kamala-harris-abortion-clinic.html
+
 **Michael Culver, ‘Star Wars’ Actor And Victim of Darth Vader, Dies at 85**\
 `Mr. Culver, who was best known for his demise as Captain Needa in “The Empire Strikes Back,” was also a familiar actor on British TV and in theater.`\
 https://nytimes.com/2024/03/13/arts/television/michael-culver-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/13/style/ed-begley-jr-oscars-public-transportation.h
 **Under Armour’s Founder Will Return as C.E.O.**\
 `Kevin Plank, the sports apparel company’s controlling shareholder, will seek to reinvigorate the struggling brand.`\
 https://nytimes.com/2024/03/13/business/under-armour-kevin-plank-chief-executive.html
-
-**Trooper Cleared in Killing of Unarmed Man He Shot After High-Speed Chase**\
-`A state court judge found Anthony Nigro not guilty of manslaughter charges in the fatal shooting of James Huber in Buffalo in February 2022.`\
-https://nytimes.com/2024/03/13/nyregion/anthony-nigro-state-police-shooting.html
-
-**Biden attacks Trump for floating Medicare and Social Security cuts.**\
-`Visiting Wisconsin, one of the nation’s top battleground states, President Biden said he would “never allow” Donald Trump to cut entitlements.`\
-https://nytimes.com/live/2024/03/13/us/2024-election-trump-biden/medicare-social-security
 
