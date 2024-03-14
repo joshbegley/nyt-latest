@@ -1,3 +1,15 @@
+**American Ballet Theater Names Dance Veteran as Executive Director**\
+`Barry Hughson, a leader at the National Ballet of Canada, will join the company as it tries to get beyond financial woes.`\
+https://nytimes.com/2024/03/14/arts/dance/american-ballet-theater-barry-hughson-executive-director.html
+
+**How to Clean a Water Bottle**\
+`Once you see mold, it's time.`\
+https://nytimes.com/interactive/2024/03/14/smarter-living/wirecutter/clean-water-bottle.html
+
+**Artforum Selects Tina Rivers Ryan as New Top Editor**\
+`The curator and essayist will become the magazine’s next leader after a period of turmoil.`\
+https://nytimes.com/2024/03/14/arts/design/artforum-editor-tina-rivers-ryan.html
+
 **310 Prompts for Argumentative Writing**\
 `Questions on everything from mental health and sports to video games and dating. Which ones inspire you to take a stand?`\
 https://nytimes.com/2024/03/14/learning/310-prompts-for-argumentative-writing.html
