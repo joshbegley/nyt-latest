@@ -1,3 +1,7 @@
+**As Biden Impeachment Flails, House Republicans Explore Criminal Referrals**\
+`Lacking evidence or the votes to support impeachment charges against President Biden, Republicans are considering criminal referrals against him and his allies instead.`\
+https://nytimes.com/2024/03/14/us/politics/biden-impeachment-republicans-criminal-referrals.html
+
 **A Historic Visit to an Abortion Clinic, and What Could Happen to TikTok**\
 `Plus, why America is suddenly using so much electricity.`\
 https://nytimes.com/2024/03/14/podcasts/harris-abortion-clinic-gaza-tiktok.html
