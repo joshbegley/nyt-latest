@@ -1,3 +1,7 @@
+**310 Prompts for Argumentative Writing**\
+`Questions on everything from mental health and sports to video games and dating. Which ones inspire you to take a stand?`\
+https://nytimes.com/2024/03/14/learning/310-prompts-for-argumentative-writing.html
+
 **On ‘Deeper Well,’ Kacey Musgraves Is Closer to Fine**\
 `The country singer and songwriter’s fifth album of original songs is a study in quiet thoughtfulness rooted in gratitude.`\
 https://nytimes.com/2024/03/14/arts/music/kacey-musgraves-deeper-well-review.html
