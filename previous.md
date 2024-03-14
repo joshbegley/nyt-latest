@@ -1,3 +1,7 @@
+**S.E.I.U. Plans $200 Million Effort to Aid Biden and Democrats**\
+`The program would be the largest investment ever for the union, which spent around $150 million in the 2020 presidential cycle.`\
+https://nytimes.com/2024/03/13/us/politics/seiu-biden-democrats.html
+
 **Three Men Face Federal Gun Charges in Kansas City Super Bowl Parade Shooting**\
 `Prosecutors said some of the weapons recovered from the scene of the Feb. 14 shooting had been unlawfully purchased or trafficked.`\
 https://nytimes.com/2024/03/13/us/kansas-city-super-bowl-shooting-federal-gun-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/opinion/black-democrats-trump-biden.html
 **Lessons From Abroad on How Biden Can Win**\
 `Incumbents are unpopular in all Western democracies, but there may be ways to allay the angst driving voter dissatisfaction.`\
 https://nytimes.com/2024/03/13/opinion/biden-win-election-global.html
-
-**Philippe de Gaulle, Admiral and Son of Charles de Gaulle, Dies at 102**\
-`His exploits in World War II and later in Algeria and Indochina were not enough for him emerge from the shadow of his father, for whom a thousand streets in France are named.`\
-https://nytimes.com/2024/03/13/world/europe/philippe-de-gaulle-dead.html
 

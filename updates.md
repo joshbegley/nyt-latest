@@ -1,3 +1,7 @@
+**S.E.I.U. Plans $200 Million Effort to Aid Biden and Democrats**\
+`The program would be the largest investment ever for the union, which spent around $150 million in the 2020 presidential cycle.`\
+https://nytimes.com/2024/03/13/us/politics/seiu-biden-democrats.html
+
 **Three Men Face Federal Gun Charges in Kansas City Super Bowl Parade Shooting**\
 `Prosecutors said some of the weapons recovered from the scene of the Feb. 14 shooting had been unlawfully purchased or trafficked.`\
 https://nytimes.com/2024/03/13/us/kansas-city-super-bowl-shooting-federal-gun-charges.html
