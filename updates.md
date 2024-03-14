@@ -1,3 +1,15 @@
+**Biden Embraces TikTok as a Campaign Tool Amid National Security Concerns**\
+`Zolan Kanno-Youngs, a White House correspondent for The New York Times, analyzes how a potential ban on TikTok is colliding with President Biden’s campaign strategy of using the app to energize a frustrated bloc of young voters.`\
+https://nytimes.com/video/us/elections/100000009359867/biden-tiktok-election-bytedance.html
+
+**Orban Endangers Hungary’s Status in NATO, U.S. Diplomat Says**\
+`The U.S. ambassador to Budapest raised the temperature in a long-running standoff, citing Prime Minister Viktor Orban’s pro-Russia, anti-U.S. stance, and opposition to supporting Ukraine.`\
+https://nytimes.com/2024/03/14/world/europe/orban-hungary-nato-us.html
+
+**Prime Minister Netanyahu Has ‘Lost His Way,’ Schumer says**\
+`Senator Chuck Schumer, the majority leader, said the Israeli Prime Minister Benjamin Netanyahu is a major obstacle to peace in the Middle East.`\
+https://nytimes.com/video/world/middleeast/100000009361878/schumer-netanyahu.html
+
 **Biden Administration Moves to Protect the Sage Grouse**\
 `A new proposal lays out six possible plans, singling out one compromise approach as the preferred option.`\
 https://nytimes.com/2024/03/14/climate/sage-grouse-protection.html
