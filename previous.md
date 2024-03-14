@@ -1,3 +1,7 @@
+**5-Year-Old Twins Found Dead in the Bronx Were Smothered, Official Says**\
+`The medical examiner’s office ruled that the deaths of the boy and girl, who were found lifeless in their mother’s bed in December, were homicides. No arrests have been made.`\
+https://nytimes.com/2024/03/14/nyregion/bronx-twins-death-homicide.html
+
 **Giandomenico Picco, Diplomat Who Freed Hostages in Lebanon, Dies at 75**\
 `As the “chief troubleshooter” for the United Nations, he spent months shuttling around the Middle East to secure the release of 11 captives.`\
 https://nytimes.com/2024/03/14/us/giandomenico-picco-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/opinion/family-caregivers-nursing-homes.html
 **The Friends Who Got Away**\
 `We don’t mean to lose all the people who vanish from our lives.`\
 https://nytimes.com/2024/03/14/opinion/friend-breakup-friendship.html
-
-**In Whitney Biennial Artwork, a Message Reveals Itself: ‘Free Palestine’**\
-`Museum curators said they had been unaware that the artist Demian DinéYazhi’ included the message through the flickering letters of his neon installation.`\
-https://nytimes.com/2024/03/14/arts/design/whitney-biennial-art-palestinians-message-gaza.html
 
