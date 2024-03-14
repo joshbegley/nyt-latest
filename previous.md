@@ -1,3 +1,7 @@
+**As Irish Leader Visits U.S., Shamrock Camaraderie is Strained by Gaza War**\
+`Prime Minister Leo Varadkar of Ireland has been one of the most outspoken critics of Israel’s war and has promised to raise the issue during a White House meeting meant to mark St. Patrick’s Day.`\
+https://nytimes.com/2024/03/14/us/politics/ireland-us-gaza.html
+
 **Pierce Brosnan Pleads Guilty to Hiking in a Restricted Area at Yellowstone**\
 `The actor was ordered to pay a $500 fine and make a $1,000 donation to Yellowstone Forever, a nonprofit partner of the park.`\
 https://nytimes.com/2024/03/14/us/pierce-brosnan-yellowstone-hiking-guilty.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/us/politics/peter-navarro-appeal-prison.html
 **Man Shot in Head at Brooklyn Subway Station**\
 `The victim was taken to a nearby hospital with serious injuries. It was unclear if he knew the person who shot him.`\
 https://nytimes.com/2024/03/14/nyregion/subway-shooting-brooklyn.html
-
-**Schumer Urged New Leadership in Israel**\
-`Also, another Trump trial delay. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/03/14/briefing/schumer-israel-trump-trial-delay.html
 
