@@ -1,3 +1,7 @@
+**Film Club: ‘Motaz Azaiza Captured Gaza’s Suffering. But ‘Nothing Changed.’’**\
+`A Palestinian photographer has been documenting the war in Gaza while also trying to survive it. What can we learn from his story and about the role of photojournalists during wartime?`\
+https://nytimes.com/2024/03/14/learning/film-club-motaz-azaiza-captured-gazas-suffering-but-nothing-changed.html
+
 **Teen Pregnancy Linked to Risk of Earlier Death in Adulthood, Study Finds**\
 `A large analysis in Canada finds that teenagers who had babies were twice as likely to die before age 31.`\
 https://nytimes.com/2024/03/14/health/teen-pregnancy-early-death.html

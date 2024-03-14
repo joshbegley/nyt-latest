@@ -1,3 +1,7 @@
+**Film Club: ‘Motaz Azaiza Captured Gaza’s Suffering. But ‘Nothing Changed.’’**\
+`A Palestinian photographer has been documenting the war in Gaza while also trying to survive it. What can we learn from his story and about the role of photojournalists during wartime?`\
+https://nytimes.com/2024/03/14/learning/film-club-motaz-azaiza-captured-gazas-suffering-but-nothing-changed.html
+
 **Teen Pregnancy Linked to Risk of Earlier Death in Adulthood, Study Finds**\
 `A large analysis in Canada finds that teenagers who had babies were twice as likely to die before age 31.`\
 https://nytimes.com/2024/03/14/health/teen-pregnancy-early-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/nyregion/bronx-twins-death-homicide.html
 **Giandomenico Picco, Diplomat Who Freed Hostages in Lebanon, Dies at 75**\
 `As the “chief troubleshooter” for the United Nations, he spent months shuttling around the Middle East to secure the release of 11 captives.`\
 https://nytimes.com/2024/03/14/us/giandomenico-picco-dead.html
-
-**SpaceX Launches Starship for Third Time**\
-`The rocket, a version of which will eventually carry NASA astronauts to the moon, traveled almost halfway around the Earth before it was lost as it re-entered the atmosphere.`\
-https://nytimes.com/video/science/space/100000009361668/spacex-starship-launch.html
 
