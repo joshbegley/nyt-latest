@@ -1,3 +1,7 @@
+**New Wildfires Threaten Chile’s Pacific Coast**\
+`Several communities in the Valparaíso region were being evacuated. Fires along the coast killed more than 100 people last month.`\
+https://nytimes.com/2024/03/13/world/americas/chile-wildfires-valparaiso.html
+
 **Paul Alexander on Living Inside an Iron Lung**\
 `During an interview in 2018, Alexander called the iron lung, a machine that helped him breathe, “my friend” and “my enemy.”`\
 https://nytimes.com/video/us/100000009360912/iron-lung-paul-alexander-dallas.html
