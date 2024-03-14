@@ -1,3 +1,11 @@
+**Pierce Brosnan Pleads Guilty to Hiking in a Restricted Area at Yellowstone**\
+`The actor was ordered to pay a $500 fine and make a $1,000 donation to Yellowstone Forever, a nonprofit partner of the park.`\
+https://nytimes.com/2024/03/14/us/pierce-brosnan-yellowstone-hiking-guilty.html
+
+**Big Appeal, and Big Question Marks, in Possible TikTok Sale**\
+`Wall Street is abuzz about a potential deal, but the large price tag for the app is one of many factors that could limit the number of suitors.`\
+https://nytimes.com/2024/03/14/business/tiktok-ban-sale-mnuchin.html
+
 **Read the Rejection of Trump’s Motion to Dismiss the Documents Case**\
 `Judge Aileen M. Cannon rebuffed arguments by former President Donald J. Trump’s lawyers that the Espionage Act was impermissibly vague and should be struck down entirely.`\
 https://nytimes.com/interactive/2024/03/14/us/trump-documents-pdf.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/14/nyregion/subway-shooting-brooklyn.html
 **Schumer Urged New Leadership in Israel**\
 `Also, another Trump trial delay. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/03/14/briefing/schumer-israel-trump-trial-delay.html
-
-**Colorado Snowstorm Causes Flight Cancellations, Road Closures and Power Outages**\
-`Snow is typical for the state this time of the year, said a forecaster, who called the amount abnormal, but not overly so.`\
-https://nytimes.com/2024/03/14/us/colorado-snow-storm-weather.html
-
-**Palestinian Rights Activists Skip Meeting With White House Officials**\
-`Many of those who had been invited to the Chicago meeting got together separately last week and decided the time for such listening sessions had passed.`\
-https://nytimes.com/live/2024/03/14/us/2024-election-biden-trump/palestinian-activists-white-house-meeting
 
