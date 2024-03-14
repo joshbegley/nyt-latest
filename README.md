@@ -1,3 +1,7 @@
+**Judge Refuses to Dismiss Charges Against Menendez on Grounds of Immunity**\
+`Senator Robert Menendez of New Jersey could appeal the ruling, which could end up delaying his trial for months.`\
+https://nytimes.com/2024/03/14/nyregion/menendez-bribery-charges-congressoinal-immunity.html
+
 **Appeals Court Overturns Vybz Kartel’s Murder Conviction**\
 `A judge ruled that the dancehall artist’s 2014 trial had proceeded improperly after a claim of juror misconduct.`\
 https://nytimes.com/2024/03/14/arts/music/vybz-kartel-murder-appeal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/business/jpmorgan-fine-trading-lapses.html
 **Republicans Move to Block a Policing Change Made After Tyre Nichols’s Death**\
 `A new Memphis law had prevented the police from intervening over more minor traffic offenses, such as a broken taillight.`\
 https://nytimes.com/2024/03/14/us/politics/tyre-nichols-tennessee-republicans-police.html
-
-**Dan Wakefield, Multifaceted Writer on a Spiritual Journey, Dies at 91**\
-`He was prolific and acclaimed, producing novels, journalism, essays, criticism, screenplays and, in a memoir, an account of his path from faith to atheism and back again.`\
-https://nytimes.com/2024/03/14/books/dan-wakefield-dead.html
 
