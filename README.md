@@ -1,3 +1,7 @@
+**A Roman Head Is Unearthed, but Mysteries Remain**\
+`A marble head from the first or second century was found buried in England. But how did it get there?`\
+https://nytimes.com/2024/03/14/world/europe/roman-statue-found-uk.html
+
 **Investing in Caregivers and Nursing Homes**\
 `Two readers call for more federal funding for care of the sick and the elderly. Also: Data on drivers; Covid lessons; diversity in college admissions.`\
 https://nytimes.com/2024/03/14/opinion/family-caregivers-nursing-homes.html
@@ -6,8 +10,8 @@ https://nytimes.com/2024/03/14/opinion/family-caregivers-nursing-homes.html
 `We don’t mean to lose all the people who vanish from our lives.`\
 https://nytimes.com/2024/03/14/opinion/friend-breakup-friendship.html
 
-**In Whitney Biennial Artwork, a Message Reveals Itself: “Free Palestine”**\
-`Museum curators said they had been unaware that the artist Demian DinéYazhi' included the message through the flickering letters of his neon installation.`\
+**In Whitney Biennial Artwork, a Message Reveals Itself: ‘Free Palestine’**\
+`Museum curators said they had been unaware that the artist Demian DinéYazhi’ included the message through the flickering letters of his neon installation.`\
 https://nytimes.com/2024/03/14/arts/design/whitney-biennial-art-palestinians-message-gaza.html
 
 **State Department imposes new sanctions on Israeli settlers over West Bank violence.**\
