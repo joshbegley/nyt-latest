@@ -1,3 +1,5 @@
+**‘Snoop’ Pearson Wants to Tell Her Story, With Help From a Friend From ‘The Wire’ **\
+
 **Cities Face Cutbacks as Commercial Real Estate Prices Tumble**\
 `Lost tax revenue fuels concerns over an urban ‘doom loop.’`\
 https://nytimes.com/2024/03/14/business/commercial-real-estate-tax-revenue.html
