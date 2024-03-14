@@ -1,3 +1,15 @@
+**Biden Embraces TikTok as a Campaign Tool Amid National Security Concerns**\
+`Zolan Kanno-Youngs, a White House correspondent for The New York Times, analyzes how a potential ban on TikTok is colliding with President Biden’s campaign strategy of using the app to energize a frustrated bloc of young voters.`\
+https://nytimes.com/video/us/elections/100000009359867/biden-tiktok-election-bytedance.html
+
+**Orban Endangers Hungary’s Status in NATO, U.S. Diplomat Says**\
+`The U.S. ambassador to Budapest raised the temperature in a long-running standoff, citing Prime Minister Viktor Orban’s pro-Russia, anti-U.S. stance, and opposition to supporting Ukraine.`\
+https://nytimes.com/2024/03/14/world/europe/orban-hungary-nato-us.html
+
+**Prime Minister Netanyahu Has ‘Lost His Way,’ Schumer says**\
+`Senator Chuck Schumer, the majority leader, said the Israeli Prime Minister Benjamin Netanyahu is a major obstacle to peace in the Middle East.`\
+https://nytimes.com/video/world/middleeast/100000009361878/schumer-netanyahu.html
+
 **Biden Administration Moves to Protect the Sage Grouse**\
 `A new proposal lays out six possible plans, singling out one compromise approach as the preferred option.`\
 https://nytimes.com/2024/03/14/climate/sage-grouse-protection.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/03/12/opinion/thepoint/absentee-teachers
 **A Sign, a Sunset and a Fall: Poems, Stories and Memoirs by Teens**\
 `Some favorite student responses to three recent Picture Prompts.`\
 https://nytimes.com/2024/03/14/learning/a-sign-a-sunset-and-a-fall-poems-stories-and-memoirs-by-teens.html
-
-**Film Club: ‘Motaz Azaiza Captured Gaza’s Suffering. But ‘Nothing Changed.’’**\
-`A Palestinian photographer has been documenting the war in Gaza while also trying to survive it. What can we learn from his story and about the role of photojournalists during wartime?`\
-https://nytimes.com/2024/03/14/learning/film-club-motaz-azaiza-captured-gazas-suffering-but-nothing-changed.html
-
-**Teen Pregnancy Linked to Risk of Earlier Death in Adulthood, Study Finds**\
-`A large analysis in Canada finds that teenagers who had babies were twice as likely to die before age 31.`\
-https://nytimes.com/2024/03/14/health/teen-pregnancy-early-death.html
-
-**Student Pilot Charged After Trying to Access Alaska Airlines Cockpit**\
-`The crew blocked the cockpit with a beverage cart as the man, who had a student pilot card, was put in flex cuffs for the remainder of the flight from California to Virginia.`\
-https://nytimes.com/2024/03/14/us/student-pilot-alaska-airlines.html
 
