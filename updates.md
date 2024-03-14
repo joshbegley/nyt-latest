@@ -1,3 +1,11 @@
+**We’re Adding to Our California Movie List**\
+`“The Big Lebowski,” “American Graffiti” and more classics are among the new choices.`\
+https://nytimes.com/2024/03/14/us/california-movie-list.html
+
+**E.P.A. Sets Limits on Carcinogenic Gas Used to Sterilize Medical Devices**\
+`New limits on emissions of ethylene oxide are pitting public health advocates against makers of medical devices.`\
+https://nytimes.com/2024/03/14/climate/epa-sets-limits-on-ethylene-oxide.html
+
 **What went right and wrong during the 2nd Starship test flight.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/what-went-right-and-wrong-during-the-2nd-starship-test-flight
