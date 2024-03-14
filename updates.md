@@ -1,3 +1,7 @@
+**TikTok Faces a Senate Showdown**\
+`A bill to potentially ban the video app breezed through the House, but its fate is less certain in the upper chamber as Big Tech weighs the wider implications.`\
+https://nytimes.com/2024/03/14/business/dealbook/tiktok-ban-senate-showdown.html
+
 **What is Starship?**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/what-is-starship
