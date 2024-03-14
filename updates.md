@@ -1,3 +1,7 @@
+**The Delays Keep Piling Up**\
+`All four criminal cases against Donald Trump have become mired in issues that have pushed back the start of trials.`\
+https://nytimes.com/2024/03/14/us/politics/trump-trial-delays-manhattan-documents.html
+
 **Social Security and Medicare Are on the Ballot**\
 `Biden has a plan. Trump doesn’t but could wind up gutting those programs.`\
 https://nytimes.com/2024/03/14/opinion/trump-biden-social-security-medicare.html
