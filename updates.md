@@ -1,3 +1,7 @@
+**The Conflict at the Heart of the Galliano Documentary**\
+`“High & Low: John Galliano” captures one of the fashion world’s greatest talents, while raising troubling industrywide issues that go beyond one man’s story.`\
+https://nytimes.com/2024/03/14/style/john-galliano-documentary-high-low-review.html
+
 **Why the National Guard Can’t Ease All Fears About Riding the Subway**\
 `More bag checks will not calm the nerves of New Yorkers worried about being shoved onto the tracks by someone with mental illness.`\
 https://nytimes.com/2024/03/14/nyregion/new-york-subway-national-guard.html
