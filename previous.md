@@ -1,3 +1,11 @@
+**Meghan Debuts New Brand, American Riviera Orchard, Amid Royal Family Tumult**\
+`The Duchess of Sussex released a mysterious 15-second video on Instagram, but what little is known about the brand has been gleaned from a trademark application.`\
+https://nytimes.com/2024/03/14/style/meghan-markle-american-riviera-orchard.html
+
+**U.S. Approves $500 Million for Bahrain Oil Project, Despite Opposition**\
+`The financing faced criticism that it doesn’t mesh with U.S. commitments on climate change. Earlier, two climate advisers had resigned over the plan.`\
+https://nytimes.com/2024/03/14/climate/exim-financing-biden-bahrain-oil.html
+
 **Read the Class Action Complaint Against G.M. and LexisNexis Risk Solutions**\
 `Romeo Chicco filed the complaint, alleging unfair and deceptive car data collection, in the Southern District of Florida on Wednesday, March 13, 2024`\
 https://nytimes.com/interactive/2024/03/14/business/chicco-vs-gm-lexisnexis.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/14/us/2024-election-biden-trump/palestinian-act
 **Investigation Finds World Bank Failed to Police Abuse at Kenyan Schools**\
 `The World Bank’s investment arm has been facing scrutiny over sexual abuse at a program it was financing.`\
 https://nytimes.com/2024/03/14/business/world-bank-kenya-schools.html
-
-**Sydell L. Miller, Self-Made Eyelash and Hair Care Mogul, Dies at 86**\
-`She and her husband, Arnold, made it big in the beauty industry by giving new skills, products and dignity to the workaday salon hairdresser.`\
-https://nytimes.com/2024/03/14/fashion/sydell-miller-dead.html
-
-**Judge Denies One of Trump’s Efforts to Derail Documents Case**\
-`With the former president in attendance, Judge Aileen Cannon held a hearing in federal court in Florida to weigh some of Donald Trump’s motions to have the classified documents case dismissed.`\
-https://nytimes.com/2024/03/14/us/politics/trump-classified-documents-case.html
 
