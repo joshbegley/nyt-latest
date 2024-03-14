@@ -1,3 +1,15 @@
+**Quotation of the Day: Risking Their Lives to Restore a Phone Network**\
+`Quotation of the Day for Thursday, March 14, 2024.`\
+https://nytimes.com/2024/03/13/pageoneplus/quotation-of-the-day-risking-their-lives-to-restore-a-phone-network.html
+
+**Dancing and Jumping Over Fire, Iranians Use Holiday to Defy Rules**\
+`Large crowds packed the streets to celebrate the tradition of Chaharshanbeh Suri. Iran has banned dancing in public, which has also been a way to protest.`\
+https://nytimes.com/2024/03/13/world/middleeast/iran-fire-festival-protest.html
+
+**Democrats Meddle in Ohio G.O.P. Senate Primary, Pushing Trump’s Choice**\
+`A Democratic group is spending nearly $900,000 on a television ad promoting Bernie Moreno, who was endorsed by Donald Trump, just ahead of next week’s Republican primary.`\
+https://nytimes.com/2024/03/13/us/politics/moreno-trump-democrats-ohio.html
+
 **‘The Effect’ Review: Dissecting the Science of Desire**\
 `In Jamie Lloyd’s revival of Lucy Prebble’s play, Paapa Essiedu and Taylor Russell are a couple who fall in love during a pharmaceutical trial.`\
 https://nytimes.com/2024/03/13/theater/the-effect-review.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/13/us/politics/washington-dc-cherry-trees.html
 **S.E.I.U. Plans $200 Million Effort to Aid Biden and Democrats**\
 `The program would be the largest investment ever for the union, which spent around $150 million in the 2020 presidential cycle.`\
 https://nytimes.com/2024/03/13/us/politics/seiu-biden-democrats.html
-
-**Three Men Face Federal Gun Charges in Kansas City Super Bowl Parade Shooting**\
-`Prosecutors said some of the weapons recovered from the scene of the Feb. 14 shooting had been unlawfully purchased or trafficked.`\
-https://nytimes.com/2024/03/13/us/kansas-city-super-bowl-shooting-federal-gun-charges.html
-
-**Len Sirowitz, Whose Bold, Offbeat Ads Captured an Era, Dies at 91**\
-`An award-winning agency art director, he brought a striking visual touch to campaigns for the Volkswagen Beetle, Sara Lee and Sony in the ’60s as well as to the antiwar and antinuclear movements.`\
-https://nytimes.com/2024/03/13/business/len-sirowitz-dead.html
-
-**TikTok’s Security Threats Go Beyond the Scope of House Legislation**\
-`The risks have less to do with who owns the app than who writes the code and algorithms that make TikTok tick.`\
-https://nytimes.com/2024/03/13/us/politics/tiktok-ban-house-bill.html
 
