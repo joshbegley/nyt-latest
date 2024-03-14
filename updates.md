@@ -1,3 +1,7 @@
+**Montana Rancher Pleads Guilty in Scheme to Create Giant Sheep Hybrid**\
+`Arthur Schubarth, 80, of Vaughn, Mont., illegally used tissue from a Marco Polo argali sheep and the testicles from a bighorn sheep to try to create a hybrid species that he could sell, prosecutors said.`\
+https://nytimes.com/2024/03/14/us/montana-giant-sheep-hybrid-guilty.html
+
 **Sports Illustrated’s Future in Print Is Thrown Into Question**\
 `Its operators told employees that the last print edition would be in May, but its owner has signaled that it wants the magazine to endure.`\
 https://nytimes.com/2024/03/14/business/media/sports-illustrated-print-edition.html
