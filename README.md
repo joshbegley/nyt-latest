@@ -1,3 +1,7 @@
+**Republicans Move to Block a Policing Change Made After Tyre Nichols’s Death**\
+`A new Memphis law had prevented the police from intervening over more minor traffic offenses, such as a broken taillight.`\
+https://nytimes.com/2024/03/14/us/politics/tyre-nichols-tennessee-republicans-police.html
+
 **Dan Wakefield, Multifaceted Writer on a Spiritual Journey, Dies at 91**\
 `He was prolific and acclaimed, producing novels, journalism, essays, criticism, screenplays and, in a memoir, an account of his path from faith to atheism and back again.`\
 https://nytimes.com/2024/03/14/books/dan-wakefield-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/arts/music/popcast-deluxe-industry-plant-4batz-ar
 **What’s the Cloud Outlook for Eclipse Day? See if History Is On Your Side.**\
 `April 8 could be your best opportunity to see a total solar eclipse for decades. But if clouds fill the sky, your shot at seeing the spectacle could be lost.`\
 https://nytimes.com/interactive/2024/science/solar-eclipse-cloud-cover-forecast-map.html
-
-**Biden Embraces TikTok as a Campaign Tool Amid National Security Concerns**\
-`Zolan Kanno-Youngs, a White House correspondent for The New York Times, analyzes how a potential ban on TikTok is colliding with President Biden’s campaign strategy of using the app to energize a frustrated bloc of young voters.`\
-https://nytimes.com/video/us/elections/100000009359867/biden-tiktok-election-bytedance.html
 
