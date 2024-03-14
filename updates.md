@@ -1,3 +1,15 @@
+**Restaurant Pop-Ups Are About the Thrill of the Hunt**\
+`They’re here today, gone tomorrow. Here are three worth tracking down.`\
+https://nytimes.com/2024/03/14/dining/restaurant-pop-ups-are-about-the-thrill-of-the-hunt.html
+
+**TikTok Is Its Own Worst Enemy**\
+`The video-sharing app has received unfair treatment in Washington. But the company’s biggest wounds are self-inflicted.`\
+https://nytimes.com/2024/03/14/technology/tiktok-ban.html
+
+**Manhattan Prosecutors Propose a 30-Day Delay of Trump Trial**\
+`The Manhattan district attorney’s office, likely the first to take Donald J. Trump to trial on criminal charges, said the delay would allow his lawyers time to review a new batch of records.`\
+https://nytimes.com/2024/03/14/nyregion/alvin-bragg-trump-trial-delay.html
+
 **What to Watch this Weekend: A Fun Biographical Drama**\
 `“Nolly,” premiering Sunday on PBS, stars Helena Bonham Carter as Noele Gordon, a pioneer of British television.`\
 https://nytimes.com/2024/03/14/arts/television/nolly-pbs-masterpiece.html

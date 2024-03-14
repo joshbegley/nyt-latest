@@ -1,3 +1,11 @@
+**Restaurant Pop-Ups Are About the Thrill of the Hunt**\
+`They’re here today, gone tomorrow. Here are three worth tracking down.`\
+https://nytimes.com/2024/03/14/dining/restaurant-pop-ups-are-about-the-thrill-of-the-hunt.html
+
+**TikTok Is Its Own Worst Enemy**\
+`The video-sharing app has received unfair treatment in Washington. But the company’s biggest wounds are self-inflicted.`\
+https://nytimes.com/2024/03/14/technology/tiktok-ban.html
+
 **What to Watch this Weekend: A Fun Biographical Drama**\
 `“Nolly,” premiering Sunday on PBS, stars Helena Bonham Carter as Noele Gordon, a pioneer of British television.`\
 https://nytimes.com/2024/03/14/arts/television/nolly-pbs-masterpiece.html
@@ -23,18 +31,10 @@ https://nytimes.com/2024/03/14/us/politics/tyre-nichols-tennessee-republicans-po
 https://nytimes.com/2024/03/14/books/dan-wakefield-dead.html
 
 **Manhattan Prosecutors Propose a 30-Day Delay of Trump Trial**\
-`The Manhattan district attorney’s office sought to delay Donald J. Trump’s first criminal trial so a new batch of records could be reviewed.`\
+`The Manhattan district attorney’s office, likely the first to take Donald J. Trump to trial on criminal charges, said the delay would allow his lawyers time to review a new batch of records.`\
 https://nytimes.com/2024/03/14/nyregion/alvin-bragg-trump-trial-delay.html
 
 **Ukraine, Stalled on the Battlefield, Targets Russia’s Oil Industry**\
 `Ukrainian drone strikes have been able to hit refineries deep in Russian territory, indicating a new vulnerability. But it is unclear if that will impact the fighting.`\
 https://nytimes.com/2024/03/14/world/europe/ukraine-drone-strike-russia-oil.html
-
-**No, the SAT Isn’t Racist**\
-`Lowering expectations in academia does Black people no favors.`\
-https://nytimes.com/2024/03/14/opinion/sat-college-admissions-antiracism.html
-
-**Harvard, M.I.T. and Systemic Antisemitism**\
-`Two new lawsuits describe a rash of bigotry on elite campuses.`\
-https://nytimes.com/2024/03/14/opinion/harvard-mit-and-systemic-antisemitism.html
 
