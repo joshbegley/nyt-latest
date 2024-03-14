@@ -1,8 +1,12 @@
+**Social Security and Medicare Are on the Ballot**\
+`Biden has a plan. Trump doesn’t but could wind up gutting those programs.`\
+https://nytimes.com/2024/03/14/opinion/trump-biden-social-security-medicare.html
+
 **Florida Man Sues G.M. and LexisNexis Over Sale of His Cadillac Data**\
 `Romeo Chicco’s auto insurance rate doubled because of information about his speeding, braking and acceleration, according to his complaint.`\
 https://nytimes.com/2024/03/14/technology/gm-lexis-nexis-driving-data.html
 
-**As Irish Leader Visits U.S., Shamrock Camaraderie is Strained by Gaza War**\
+**As Irish Leader Visits U.S., Shamrock Camaraderie Is Strained by Gaza War**\
 `Prime Minister Leo Varadkar of Ireland has been one of the most outspoken critics of Israel’s war and has promised to raise the issue during a White House meeting meant to mark St. Patrick’s Day.`\
 https://nytimes.com/2024/03/14/us/politics/ireland-us-gaza.html
 
@@ -18,7 +22,7 @@ https://nytimes.com/2024/03/14/business/tiktok-ban-sale-mnuchin.html
 `Judge Aileen M. Cannon rebuffed arguments by former President Donald J. Trump’s lawyers that the Espionage Act was impermissibly vague and should be struck down entirely.`\
 https://nytimes.com/interactive/2024/03/14/us/trump-documents-pdf.html
 
-**Meghan Debuts New Brand, American Riviera Orchard, Amid Royal Family Tumult**\
+**Meghan Debuts New Brand, American Riviera Orchard, Amid Royal Family Drama**\
 `The Duchess of Sussex released a mysterious 15-second video on Instagram, but what little is known about the brand has been gleaned from a trademark application.`\
 https://nytimes.com/2024/03/14/style/meghan-markle-american-riviera-orchard.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/14/business/chicco-vs-gm-lexisnexis.html
 **Cat Demons and Vietnamese Celadon in Asia Week’s 15th Year**\
 `A mini-fair offers an opportunity for aesthetes steeped mainly in Western art to broaden their horizons.`\
 https://nytimes.com/2024/03/14/arts/design/asia-week-festival.html
-
-**Appeals Court Denies Peter Navarro’s Motion to Remain Out of Prison**\
-`The order on Thursday left Mr. Navarro on track to begin a four-month sentence next week for ignoring a congressional subpoena.`\
-https://nytimes.com/2024/03/14/us/politics/peter-navarro-appeal-prison.html
 
