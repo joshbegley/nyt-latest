@@ -1,3 +1,7 @@
+**Permanent Lettuce: A Pageant of Hockey Hair**\
+`At Minnesota’s state hockey tournament, outrageously coifed high school stars competed for the best “salad” and “flow.” And then the games began.`\
+https://nytimes.com/2024/03/14/style/minnesota-hockey-hair.html
+
 **Biden and Harris campaign in ‘uncommitted’ territory.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/03/14/us/2024-election-biden-trump/biden-and-harris-campaign-in-uncommitted-territory
@@ -19,7 +23,7 @@ https://nytimes.com/2024/03/14/crosswords/editors-note-joel-fagliano-edits-the-d
 https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/what-will-happen-during-starships-third-test-flight
 
 **They Helped a Family Facing Discrimination 80 Years Ago. Now They’re Being Celebrated.**\
-`In 1939, Gus and Emma Thompson rented a California home to the Dong family when others would not. Now, the Dongs are donating house sale proceeds to Black students.`\
+`In 1939, a Black couple rented a California home to a Chinese American family when others would not. Now, members of that family are donating house sale proceeds to Black students.`\
 https://nytimes.com/2024/03/14/us/sdsu-college-donation-chinese-immigrants.html
 
 **We’re Adding to Our California Movie List**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/climate/epa-sets-limits-on-ethylene-oxide.html
 **What went right and wrong during the 2nd Starship test flight.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/what-went-right-and-wrong-during-the-2nd-starship-test-flight
-
-**How to Write an Open Letter: A Guide to Our Opinion Contest**\
-`Six steps to help you understand the format and write a powerful open letter of your own — with help from Times texts along the way.`\
-https://nytimes.com/2024/03/14/learning/how-to-write-an-open-letter-a-guide-to-our-opinion-contest.html
 
