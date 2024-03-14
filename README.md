@@ -30,7 +30,7 @@ https://nytimes.com/2024/03/13/obituaries/gerald-m-levin-dead.html
 `The vice president plans to meet with abortion providers and staff members in Minneapolis, a striking political move that shows how assertive Democrats have grown on the issue.`\
 https://nytimes.com/2024/03/13/us/politics/kamala-harris-abortion-clinic.html
 
-**Michael Culver, ‘Star Wars’ Actor And Victim of Darth Vader, Dies at 85**\
+**Michael Culver, ‘Star Wars’ Actor and Victim of Darth Vader, Dies at 85**\
 `Mr. Culver, who was best known for his demise as Captain Needa in “The Empire Strikes Back,” was also a familiar actor on British TV and in theater.`\
 https://nytimes.com/2024/03/13/arts/television/michael-culver-dead.html
 
