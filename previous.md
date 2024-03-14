@@ -1,3 +1,7 @@
+**Energy Department Offers $2.3 Billion Loan to Boost Lithium Production**\
+`Demand for lithium, which is used in electric vehicle batteries, has soared but domestic production of the metal has lagged behind other countries.`\
+https://nytimes.com/2024/03/14/us/politics/us-lithium-loan-electric-vehicles.html
+
 **San Francisco Symphony’s Maestro to Step Down, Citing Split With Board**\
 `Esa-Pekka Salonen, the ensemble’s music director, said that he no longer shared the same goals as the administration, which has been cutting costs.`\
 https://nytimes.com/2024/03/14/arts/music/esa-pekka-salonen-leaving-san-francisco-symphony.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/us/politics/hillary-clinton-lin-manuel-miranda-bi
 **In Commercial Space, There’s Nobody Like SpaceX**\
 `Can its standing last?`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/spacex-starship-launch
-
-**Handmade Porcelain Painted With Brooklyn Blossoms**\
-`Plus: a collection of writings by a star of bohemian New York, a line of pajamas from a bed linen company — and more recommendations from T Magazine.`\
-https://nytimes.com/2024/03/14/t-magazine/mg-by-hand-porcelain-dinnerware.html
 
