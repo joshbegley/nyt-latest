@@ -1,3 +1,7 @@
+**Black Family That Defied Segregation Honored by Family They Helped**\
+`In 1939, Gus and Emma Thompson rented a California home to the Dong family when others would not. Now, the Dongs are donating house sale proceeds to Black students.`\
+https://nytimes.com/2024/03/14/us/sdsu-college-donation-chinese-immigrants.html
+
 **We’re Adding to Our California Movie List**\
 `“The Big Lebowski,” “American Graffiti” and more classics are among the new choices.`\
 https://nytimes.com/2024/03/14/us/california-movie-list.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/movies/classe-tous-risques-film-forum.html
 **‘The Tuba Thieves’ Review: The Real Meaning of Listening**\
 `In this film, the artist Alison O’Daniel uses the theft of tubas from Southern California high schools as a central hub in a wheel with many spokes.`\
 https://nytimes.com/2024/03/14/movies/the-tuba-thieves-review.html
-
-**‘Snack Shack’ Review: The Kids Are Alright**\
-`Performances from the two main characters elevate this boisterous teen comedy to the level of raunchy art.`\
-https://nytimes.com/2024/03/14/movies/snack-shack-review.html
 
