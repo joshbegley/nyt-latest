@@ -1,3 +1,7 @@
+**Republicans Move to Block a Policing Change Made After Tyre Nichols’s Death**\
+`A new Memphis law had prevented the police from intervening over more minor traffic offenses, such as a broken taillight.`\
+https://nytimes.com/2024/03/14/us/politics/tyre-nichols-tennessee-republicans-police.html
+
 **Dan Wakefield, Multifaceted Writer on a Spiritual Journey, Dies at 91**\
 `He was prolific and acclaimed, producing novels, journalism, essays, criticism, screenplays and, in a memoir, an account of his path from faith to atheism and back again.`\
 https://nytimes.com/2024/03/14/books/dan-wakefield-dead.html
