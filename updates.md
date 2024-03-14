@@ -1,3 +1,15 @@
+**On ‘Deeper Well,’ Kacey Musgraves Is Closer to Fine**\
+`The country singer and songwriter’s fifth album of original songs is a study in quiet thoughtfulness rooted in gratitude.`\
+https://nytimes.com/2024/03/14/arts/music/kacey-musgraves-deeper-well-review.html
+
+**Hello, Halloumi**\
+`A new recipe from Hetty Lui McKinnon combines salty halloumi cheese, jarred marinara and harissa for a fantastically easy five-ingredient baked pasta.`\
+https://nytimes.com/2024/03/14/dining/hello-halloumi.html
+
+**Schumer Urges New Leadership in Israel, Calling Netanyahu an Obstacle to Peace**\
+`The top Senate Democrat, the highest-ranking Jewish elected official in the United States, spoke from the Senate floor to condemn Prime Minister Benjamin Netanyahu and to call for elections to replace him.`\
+https://nytimes.com/2024/03/14/us/politics/schumer-netanyahu-israel-elections.html
+
 **Schumer Urges New Leadership in Israel, Calling Netanyahu an Obstacle to Peace**\
 `The top Senate Democrat, the highest-ranking Jewish elected official in the United States, spoke from the Senate floor to condemn Prime Minister Benjamin Netanyahu and call for elections to replace him.`\
 https://nytimes.com/2024/03/14/us/politics/schumer-netanyahu-israel-elections.html
