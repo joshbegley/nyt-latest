@@ -1,3 +1,11 @@
+**Appeals Court Overturns Vybz Kartel’s Murder Conviction**\
+`A judge ruled that the dancehall artist’s 2014 trial had proceeded improperly after a claim of juror misconduct.`\
+https://nytimes.com/2024/03/14/arts/music/vybz-kartel-murder-appeal.html
+
+**Schumer Tells Netanyahu to Get Lost**\
+`The Senate majority leader delivered an unusually blunt warning to Israel.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/schumer-netanyahu-criticism
+
 **Restaurant Pop-Ups Are About the Thrill of the Hunt**\
 `They’re here today, gone tomorrow. Here are three worth tracking down.`\
 https://nytimes.com/2024/03/14/dining/restaurant-pop-ups-are-about-the-thrill-of-the-hunt.html

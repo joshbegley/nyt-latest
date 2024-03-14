@@ -1,3 +1,11 @@
+**Appeals Court Overturns Vybz Kartel’s Murder Conviction**\
+`A judge ruled that the dancehall artist’s 2014 trial had proceeded improperly after a claim of juror misconduct.`\
+https://nytimes.com/2024/03/14/arts/music/vybz-kartel-murder-appeal.html
+
+**Schumer Tells Netanyahu to Get Lost**\
+`The Senate majority leader delivered an unusually blunt warning to Israel.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/schumer-netanyahu-criticism
+
 **Restaurant Pop-Ups Are About the Thrill of the Hunt**\
 `They’re here today, gone tomorrow. Here are three worth tracking down.`\
 https://nytimes.com/2024/03/14/dining/restaurant-pop-ups-are-about-the-thrill-of-the-hunt.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/14/us/politics/tyre-nichols-tennessee-republicans-po
 **Dan Wakefield, Multifaceted Writer on a Spiritual Journey, Dies at 91**\
 `He was prolific and acclaimed, producing novels, journalism, essays, criticism, screenplays and, in a memoir, an account of his path from faith to atheism and back again.`\
 https://nytimes.com/2024/03/14/books/dan-wakefield-dead.html
-
-**Manhattan Prosecutors Propose a 30-Day Delay of Trump Trial**\
-`The Manhattan district attorney’s office, likely the first to take Donald J. Trump to trial on criminal charges, said the delay would allow his lawyers time to review a new batch of records.`\
-https://nytimes.com/2024/03/14/nyregion/alvin-bragg-trump-trial-delay.html
-
-**Ukraine, Stalled on the Battlefield, Targets Russia’s Oil Industry**\
-`Ukrainian drone strikes have been able to hit refineries deep in Russian territory, indicating a new vulnerability. But it is unclear if that will impact the fighting.`\
-https://nytimes.com/2024/03/14/world/europe/ukraine-drone-strike-russia-oil.html
 
