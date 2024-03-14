@@ -1,3 +1,7 @@
+**Palestinian Rights Activists Skip Meeting With White House Officials**\
+`Many of those who had been invited to the Chicago meeting got together separately last week and decided the time for such listening sessions had passed.`\
+https://nytimes.com/live/2024/03/14/us/2024-election-biden-trump/palestinian-activists-white-house-meeting
+
 **Investigation Finds World Bank Failed to Police Abuse at Kenyan Schools**\
 `The World Bank’s investment arm has been facing scrutiny over sexual abuse at a program it was financing.`\
 https://nytimes.com/2024/03/14/business/world-bank-kenya-schools.html
