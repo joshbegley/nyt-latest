@@ -1,3 +1,7 @@
+**What went right and wrong during the 2nd Starship test flight.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/what-went-right-and-wrong-during-the-2nd-starship-test-flight
+
 **How to Write an Open Letter: A Guide to Our Opinion Contest**\
 `Six steps to help you understand the format and write a powerful open letter of your own — with help from Times texts along the way.`\
 https://nytimes.com/2024/03/14/learning/how-to-write-an-open-letter-a-guide-to-our-opinion-contest.html

@@ -1,3 +1,7 @@
+**What went right and wrong during the 2nd Starship test flight.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/what-went-right-and-wrong-during-the-2nd-starship-test-flight
+
 **How to Write an Open Letter: A Guide to Our Opinion Contest**\
 `Six steps to help you understand the format and write a powerful open letter of your own — with help from Times texts along the way.`\
 https://nytimes.com/2024/03/14/learning/how-to-write-an-open-letter-a-guide-to-our-opinion-contest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/movies/knox-goes-away-review-a-not-so-simple-plan
 **‘French Girl’ Review: Cuckold au Vin**\
 `In this romantic comedy featuring Zach Braff and Vanessa Hudgens, a New York man heads to Quebec City with his French Canadian girlfriend. Shenanigans ensue.`\
 https://nytimes.com/2024/03/14/movies/french-girl-review.html
-
-**‘Arthur the King’ Review: Dog Days With Mark Wahlberg**\
-`Wahlberg stars in this drama directed by Simon Cellan Jones, based on the true story of a Swedish adventure racer and his beloved adopted dog.`\
-https://nytimes.com/2024/03/14/movies/arthur-the-king-review.html
 
