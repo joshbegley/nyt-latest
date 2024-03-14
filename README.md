@@ -1,3 +1,31 @@
+**Why the National Guard Can’t Ease All Fears About Riding the Subway**\
+`More bag checks will not calm the nerves of New Yorkers worried about being shoved onto the tracks by someone with mental illness.`\
+https://nytimes.com/2024/03/14/nyregion/new-york-subway-national-guard.html
+
+**The Conflict at the Heart of the Galliano Documentary**\
+`“High & Low: John Galliano” captures one of the fashion world’s greatest talents, while raising troubling industrywide issues that go beyond one man’s story.`\
+https://nytimes.com/2024/03/14/style/the-conflict-at-the-heart-of-the-galliano-documentary.html
+
+**Hidden Doorway**\
+`Tell us a story, real or made up, that is inspired by this video.`\
+https://nytimes.com/2024/03/14/learning/hidden-doorway.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/14/crosswords/wordle-review.html
+
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/14/crosswords/connections-companion.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/03/14/crosswords/spelling-bee-forum.html
+
+**Late Night Tackles the House Bill That Could Ban TikTok**\
+`“This is like iPhone ‘Footloose,’ and there’s no Kevin Bacon to save us,” Jimmy Kimmel joked.`\
+https://nytimes.com/2024/03/14/arts/television/late-night-tiktok.html
+
 **14mideast-crisis**\
 `Palestinian Authority Leader Expected to Choose Insider as Prime Minister`\
 https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news
@@ -9,32 +37,4 @@ https://nytimes.com/2024/03/14/learning/word-of-the-day-tarnish.html
 **Paul Alexander on Living Inside an Iron Lung**\
 `During an interview in 2018, Alexander called the iron lung, a machine that helped him breathe, “my friend” and “my enemy.”`\
 https://nytimes.com/video/us/100000009360912/iron-lung-paul-alexander-dallas.html
-
-**Snakes in the Grass — and Under the Piano, by the Pool and in the Prison**\
-`Business is good for snake catchers in Australia, as the period of brumation, a sort of hibernation for reptiles, is shrinking — a result of the warming earth.`\
-https://nytimes.com/2024/03/14/world/australia/snakes-climate-change.html
-
-**Thursday Briefing**\
-`The U.S. House passes a bill that could ban TikTok.`\
-https://nytimes.com/2024/03/14/briefing/tiktok-ban-israel-gaza-aid.html
-
-**Can Europe Save Forests Without Killing Jobs in Malaysia?**\
-`A new regulation aims to rid the palm oil supply chain of imports that come from former forestland. Southeast Asian countries say it threatens livelihoods.`\
-https://nytimes.com/2024/03/14/business/economy/malaysia-palm-oil-european-union.html
-
-**Why Everything Changed in Haiti: The Gangs United**\
-`“The situation totally changed now, because the gangs are now working together,” a Haitian consultant said. Their unity forced the prime minister to resign.`\
-https://nytimes.com/2024/03/14/world/americas/haiti-gangs-ariel-henry.html
-
-**New York City’s Population Shrinks by 78,000**\
-`City officials said that the new census estimates did not fully account for the growing number of migrants, which would have resulted in a minimal drop being reported.`\
-https://nytimes.com/2024/03/14/nyregion/nyc-population-decline.html
-
-**Corrections: March 14, 2024**\
-`Corrections that appeared in print on Thursday, March 14, 2024.`\
-https://nytimes.com/2024/03/13/corrections/corrections-march-14-2024.html
-
-**New Wildfires Threaten Chile’s Pacific Coast**\
-`Several communities in the Valparaíso region were being evacuated. Fires along the coast killed more than 100 people last month.`\
-https://nytimes.com/2024/03/13/world/americas/chile-wildfires-valparaiso.html
 
