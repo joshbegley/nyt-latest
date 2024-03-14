@@ -1,3 +1,11 @@
+**Starship already has private customers booked for deep space trips.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/starship-private-space-trips
+
+**What’s Going On in This Graph? | March 27, 2024**\
+`Over the next quarter-century, what is projected to happen to the distribution of young people around the world? What benefits and challenges might result because of this shift?`\
+https://nytimes.com/2024/03/14/learning/whats-going-on-in-this-graph-march-27-2024.html
+
 **Questions persist as Israel signals it will help more aid get into Gaza.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/questions-persist-as-israel-signals-it-will-help-more-aid-get-into-gaza
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/what-will-hap
 **They Helped a Family Facing Discrimination 80 Years Ago. Now They’re Being Celebrated.**\
 `In 1939, a Black couple rented a California home to a Chinese American family when others would not. Now, members of that family are donating house sale proceeds to Black students.`\
 https://nytimes.com/2024/03/14/us/sdsu-college-donation-chinese-immigrants.html
-
-**We’re Adding to Our California Movie List**\
-`“The Big Lebowski,” “American Graffiti” and more classics are among the new choices.`\
-https://nytimes.com/2024/03/14/us/california-movie-list.html
-
-**E.P.A. Sets Limits on Carcinogenic Gas Used to Sterilize Medical Devices**\
-`New limits on emissions of ethylene oxide are pitting public health advocates against makers of medical devices.`\
-https://nytimes.com/2024/03/14/climate/epa-sets-limits-on-ethylene-oxide.html
 
