@@ -1,3 +1,7 @@
+**A Sign, a Sunset and a Fall: Poems, Stories and Memoirs by Teens**\
+`Some favorite student responses to three recent Picture Prompts.`\
+https://nytimes.com/2024/03/14/learning/a-sign-a-sunset-and-a-fall-poems-stories-and-memoirs-by-teens.html
+
 **Film Club: ‘Motaz Azaiza Captured Gaza’s Suffering. But ‘Nothing Changed.’’**\
 `A Palestinian photographer has been documenting the war in Gaza while also trying to survive it. What can we learn from his story and about the role of photojournalists during wartime?`\
 https://nytimes.com/2024/03/14/learning/film-club-motaz-azaiza-captured-gazas-suffering-but-nothing-changed.html
