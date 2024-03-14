@@ -1,3 +1,7 @@
+**‘What’s My Life Worth?’ The Big Business of Denying Medical Care**\
+`Insurance companies have weaponized a seemingly benign process to protect their profits, and it’s putting patients at risk.`\
+https://nytimes.com/video/opinion/100000009345904/health-insurance-prior-authorization.html
+
 **Why the National Guard Can’t Ease All Fears About Riding the Subway**\
 `More bag checks will not calm the nerves of New Yorkers worried about being shoved onto the tracks by someone with mental illness.`\
 https://nytimes.com/2024/03/14/nyregion/new-york-subway-national-guard.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news
 **Word of the Day: tarnish**\
 `This word has appeared in 60 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/14/learning/word-of-the-day-tarnish.html
-
-**Paul Alexander on Living Inside an Iron Lung**\
-`During an interview in 2018, Alexander called the iron lung, a machine that helped him breathe, “my friend” and “my enemy.”`\
-https://nytimes.com/video/us/100000009360912/iron-lung-paul-alexander-dallas.html
 

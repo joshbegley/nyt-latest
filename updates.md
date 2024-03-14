@@ -1,3 +1,7 @@
+**‘What’s My Life Worth?’ The Big Business of Denying Medical Care**\
+`Insurance companies have weaponized a seemingly benign process to protect their profits, and it’s putting patients at risk.`\
+https://nytimes.com/video/opinion/100000009345904/health-insurance-prior-authorization.html
+
 **The Conflict at the Heart of the Galliano Documentary**\
 `“High & Low: John Galliano” captures one of the fashion world’s greatest talents, while raising troubling industrywide issues that go beyond one man’s story.`\
 https://nytimes.com/2024/03/14/style/john-galliano-documentary-high-low-review.html
