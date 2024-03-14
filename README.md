@@ -1,3 +1,7 @@
+**Read the Rejection of Trump’s Motion to Dismiss the Documents Case**\
+`Judge Aileen M. Cannon rebuffed arguments by former President Donald J. Trump’s lawyers that the Espionage Act was impermissibly vague and should be struck down entirely.`\
+https://nytimes.com/interactive/2024/03/14/us/trump-documents-pdf.html
+
 **Meghan Debuts New Brand, American Riviera Orchard, Amid Royal Family Tumult**\
 `The Duchess of Sussex released a mysterious 15-second video on Instagram, but what little is known about the brand has been gleaned from a trademark application.`\
 https://nytimes.com/2024/03/14/style/meghan-markle-american-riviera-orchard.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/us/colorado-snow-storm-weather.html
 **Palestinian Rights Activists Skip Meeting With White House Officials**\
 `Many of those who had been invited to the Chicago meeting got together separately last week and decided the time for such listening sessions had passed.`\
 https://nytimes.com/live/2024/03/14/us/2024-election-biden-trump/palestinian-activists-white-house-meeting
-
-**Investigation Finds World Bank Failed to Police Abuse at Kenyan Schools**\
-`The World Bank’s investment arm has been facing scrutiny over sexual abuse at a program it was financing.`\
-https://nytimes.com/2024/03/14/business/world-bank-kenya-schools.html
 
