@@ -1,3 +1,7 @@
+**Three Men Face Federal Gun Charges in Kansas City Super Bowl Parade Shooting**\
+`Prosecutors said some of the weapons recovered from the scene of the Feb. 14 shooting had been unlawfully purchased or trafficked.`\
+https://nytimes.com/2024/03/13/us/kansas-city-super-bowl-shooting-federal-gun-charges.html
+
 **Len Sirowitz, Whose Bold, Offbeat Ads Captured an Era, Dies at 91**\
 `An award-winning agency art director, he brought a striking visual touch to campaigns for the Volkswagen Beetle, Sara Lee and Sony in the ’60s as well as to the antiwar and antinuclear movements.`\
 https://nytimes.com/2024/03/13/business/len-sirowitz-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/opinion/biden-win-election-global.html
 **Philippe de Gaulle, Admiral and Son of Charles de Gaulle, Dies at 102**\
 `His exploits in World War II and later in Algeria and Indochina were not enough for him emerge from the shadow of his father, for whom a thousand streets in France are named.`\
 https://nytimes.com/2024/03/13/world/europe/philippe-de-gaulle-dead.html
-
-**R.N.C. Shutting Down Community Centers Aimed at Minority Outreach**\
-`While the new chairman says the party still plans to use the centers, an overhaul of G.O.P. operations continues as Donald Trump’s allies take over.`\
-https://nytimes.com/2024/03/13/us/politics/republican-community-centers-closed.html
 
