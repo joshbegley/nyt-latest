@@ -1,3 +1,7 @@
+**New Wildfires Threaten Chile’s Pacific Coast**\
+`Several communities in the Valparaíso region were being evacuated on Wednesday night. Fires along the coast killed more than 100 people last month.`\
+https://nytimes.com/2024/03/13/world/americas/chile-wildfires-valparaiso.html
+
 **Quotation of the Day: Risking Their Lives to Restore a Phone Network**\
 `Quotation of the Day for Thursday, March 14, 2024.`\
 https://nytimes.com/2024/03/13/pageoneplus/quotation-of-the-day-risking-their-lives-to-restore-a-phone-network.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/arts/television/michael-culver-dead.html
 **Some of Washington’s Iconic Cherry Trees Are About to Disappear**\
 `The National Park Service plans to chop down 140 of the trees as it builds a new sea wall to protect the area around the Jefferson Memorial.`\
 https://nytimes.com/2024/03/13/us/politics/washington-dc-cherry-trees.html
-
-**S.E.I.U. Plans $200 Million Effort to Aid Biden and Democrats**\
-`The program would be the largest investment ever for the union, which spent around $150 million in the 2020 presidential cycle.`\
-https://nytimes.com/2024/03/13/us/politics/seiu-biden-democrats.html
 

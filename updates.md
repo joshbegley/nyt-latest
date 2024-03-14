@@ -1,3 +1,7 @@
+**New Wildfires Threaten Chile’s Pacific Coast**\
+`Several communities in the Valparaíso region were being evacuated on Wednesday night. Fires along the coast killed more than 100 people last month.`\
+https://nytimes.com/2024/03/13/world/americas/chile-wildfires-valparaiso.html
+
 **Quotation of the Day: Risking Their Lives to Restore a Phone Network**\
 `Quotation of the Day for Thursday, March 14, 2024.`\
 https://nytimes.com/2024/03/13/pageoneplus/quotation-of-the-day-risking-their-lives-to-restore-a-phone-network.html
