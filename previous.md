@@ -1,3 +1,7 @@
+**Michael Culver, ‘Star Wars’ Actor And Victim of Darth Vader, Dies at 85**\
+`Mr. Culver, who was best known for his demise as Captain Needa in “The Empire Strikes Back,” was also a familiar actor on British TV and in theater.`\
+https://nytimes.com/2024/03/13/arts/television/michael-culver-dead.html
+
 **Some of Washington’s Iconic Cherry Trees Are About to Disappear**\
 `The National Park Service plans to chop down 140 of the trees as it builds a new sea wall to protect the area around the Jefferson Memorial.`\
 https://nytimes.com/2024/03/13/us/politics/washington-dc-cherry-trees.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/nyregion/anthony-nigro-state-police-shooting.html
 **Biden attacks Trump for floating Medicare and Social Security cuts.**\
 `Visiting Wisconsin, one of the nation’s top battleground states, President Biden said he would “never allow” Donald Trump to cut entitlements.`\
 https://nytimes.com/live/2024/03/13/us/2024-election-trump-biden/medicare-social-security
-
-**Some Black Voters Are Souring on Democrats. It May Be Part of a Natural Drift.**\
-`There are signs that Black voters are inching closer to the patterns of other demographic groups.`\
-https://nytimes.com/2024/03/13/opinion/black-democrats-trump-biden.html
 
