@@ -1,3 +1,7 @@
+**Student Pilot Charged After Trying to Access Alaska Airlines Cockpit**\
+`The crew blocked the cockpit with a beverage cart as the man, who had a student pilot card, was put in flex cuffs for the remainder of the flight from California to Virginia.`\
+https://nytimes.com/2024/03/14/us/student-pilot-alaska-airlines.html
+
 **Energy Department Offers $2.3 Billion Loan to Boost Lithium Production**\
 `Demand for lithium, which is used in electric vehicle batteries, has soared but domestic production of the metal has lagged behind other countries.`\
 https://nytimes.com/2024/03/14/us/politics/us-lithium-loan-electric-vehicles.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/science/space/100000009361668/spacex-starship-launch.h
 **Hillary Clinton and Lin-Manuel Miranda to Host Biden Broadway Fund-Raiser**\
 `The event will be at a production of “Suffs: The Musical,” which Mrs. Clinton co-produced.`\
 https://nytimes.com/2024/03/14/us/politics/hillary-clinton-lin-manuel-miranda-biden-fund-raiser.html
-
-**In Commercial Space, There’s Nobody Like SpaceX**\
-`Can its standing last?`\
-https://nytimes.com/live/2024/03/12/opinion/thepoint/spacex-starship-launch
 

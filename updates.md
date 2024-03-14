@@ -1,3 +1,7 @@
+**Student Pilot Charged After Trying to Access Alaska Airlines Cockpit**\
+`The crew blocked the cockpit with a beverage cart as the man, who had a student pilot card, was put in flex cuffs for the remainder of the flight from California to Virginia.`\
+https://nytimes.com/2024/03/14/us/student-pilot-alaska-airlines.html
+
 **Energy Department Offers $2.3 Billion Loan to Boost Lithium Production**\
 `Demand for lithium, which is used in electric vehicle batteries, has soared but domestic production of the metal has lagged behind other countries.`\
 https://nytimes.com/2024/03/14/us/politics/us-lithium-loan-electric-vehicles.html
