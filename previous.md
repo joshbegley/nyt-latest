@@ -12,7 +12,7 @@ https://nytimes.com/live/2024/03/14/science/starship-spacex-launch
 
 **It Sucks to Be 33**\
 `“Peak millennials,” the microgeneration born in 1990 and 1991, have ended up competing for, well, almost everything.`\
-https://nytimes.com/2024/03/14/podcasts/the-daily/millenial-economy.html
+https://nytimes.com/2024/03/14/podcasts/the-daily/millennial-economy.html
 
 **Attempts to Ban Books Accelerated Last Year**\
 `Book challenges around the country reached the highest levels ever recorded by a library organization.`\

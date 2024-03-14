@@ -1,3 +1,7 @@
+**It Sucks to Be 33**\
+`“Peak millennials,” the microgeneration born in 1990 and 1991, have ended up competing for, well, almost everything.`\
+https://nytimes.com/2024/03/14/podcasts/the-daily/millennial-economy.html
+
 **As Biden Impeachment Flails, House Republicans Explore Criminal Referrals**\
 `Lacking evidence or the votes to support impeachment charges against President Biden, Republicans are considering criminal referrals against him and his allies instead.`\
 https://nytimes.com/2024/03/14/us/politics/biden-impeachment-republicans-criminal-referrals.html
