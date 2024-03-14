@@ -1,3 +1,11 @@
+**SpaceX Blazes Forward With Latest Starship Launch**\
+`The third test flight of the most powerful rocket ever built achieved a series of milestones before the spacecraft was lost as it re-entered Earth’s atmosphere.`\
+https://nytimes.com/2024/03/14/science/spacex-starship-rocket-launch.html
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/03/14/books/review/new-books-recommendations.html
+
 **5-Year-Old Twins Found Dead in the Bronx Were Smothered, Official Says**\
 `The medical examiner’s office ruled that the deaths of the boy and girl, who were found lifeless in their mother’s bed in December, were homicides. No arrests have been made.`\
 https://nytimes.com/2024/03/14/nyregion/bronx-twins-death-homicide.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/14/science/spacex-starship-reentry-plasma.html
 **A Roman Head Is Unearthed, but Mysteries Remain**\
 `A marble head from the first or second century was found buried in England. But how did it get there?`\
 https://nytimes.com/2024/03/14/world/europe/roman-statue-found-uk.html
-
-**Investing in Caregivers and Nursing Homes**\
-`Two readers call for more federal funding for care of the sick and the elderly. Also: Data on drivers; Covid lessons; diversity in college admissions.`\
-https://nytimes.com/2024/03/14/opinion/family-caregivers-nursing-homes.html
-
-**The Friends Who Got Away**\
-`We don’t mean to lose all the people who vanish from our lives.`\
-https://nytimes.com/2024/03/14/opinion/friend-breakup-friendship.html
 

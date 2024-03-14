@@ -1,3 +1,11 @@
+**SpaceX Blazes Forward With Latest Starship Launch**\
+`The third test flight of the most powerful rocket ever built achieved a series of milestones before the spacecraft was lost as it re-entered Earth’s atmosphere.`\
+https://nytimes.com/2024/03/14/science/spacex-starship-rocket-launch.html
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/03/14/books/review/new-books-recommendations.html
+
 **5-Year-Old Twins Found Dead in the Bronx Were Smothered, Official Says**\
 `The medical examiner’s office ruled that the deaths of the boy and girl, who were found lifeless in their mother’s bed in December, were homicides. No arrests have been made.`\
 https://nytimes.com/2024/03/14/nyregion/bronx-twins-death-homicide.html
