@@ -1,3 +1,19 @@
+**Biden Administration Moves to Protect the Sage Grouse**\
+`A new proposal lays out six possible plans, singling out one compromise approach as the preferred option.`\
+https://nytimes.com/2024/03/14/climate/sage-grouse-protection.html
+
+**Dozens of Migrants Die After Their Dinghy Deflates in the Mediterranean**\
+`Survivors, who departed from Libya, said they had been adrift for four days when they were found.`\
+https://nytimes.com/2024/03/14/world/europe/migrants-death-italy-libya.html
+
+**What About Nature Risk?**\
+`Draft preview text here for visibility and workshopping (It will not show up in newsletter)`\
+https://nytimes.com/2024/03/14/climate/what-about-nature-risk.html
+
+**Mitch Albom Is Among Group of American Volunteers Rescued From Haiti**\
+`The “Tuesdays With Morrie” author was visiting an orphanage he runs in Port-au-Prince when gangs overran the country.`\
+https://nytimes.com/2024/03/14/us/mitch-albom-haiti-rescue.html
+
 **Why Taiwan Is Building a Satellite Network Without Elon Musk**\
 `The island democracy urgently needs an internet backup. Mr. Musk’s total control over his Starlink service, which dominates the market, left Taiwan wary.`\
 https://nytimes.com/2024/03/14/business/taiwan-starlink-satellite.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/03/14/health/teen-pregnancy-early-death.html
 **Student Pilot Charged After Trying to Access Alaska Airlines Cockpit**\
 `The crew blocked the cockpit with a beverage cart as the man, who had a student pilot card, was put in flex cuffs for the remainder of the flight from California to Virginia.`\
 https://nytimes.com/2024/03/14/us/student-pilot-alaska-airlines.html
-
-**Energy Department Offers $2.3 Billion Loan to Boost Lithium Production**\
-`Demand for lithium, which is used in electric vehicle batteries, has soared but domestic production of the metal has lagged behind other countries.`\
-https://nytimes.com/2024/03/14/us/politics/us-lithium-loan-electric-vehicles.html
-
-**San Francisco Symphony’s Maestro to Step Down, Citing Split With Board**\
-`Esa-Pekka Salonen, the ensemble’s music director, said that he no longer shared the same goals as the administration, which has been cutting costs.`\
-https://nytimes.com/2024/03/14/arts/music/esa-pekka-salonen-leaving-san-francisco-symphony.html
-
-**Freeze Your Tofu**\
-`A short stay in the freezer removes just enough moisture to create an impressively crisp exterior and pleasantly spongy interior when roasted.`\
-https://nytimes.com/2024/03/14/dining/freeze-your-tofu.html
-
-**SpaceX Blazes Forward With Latest Starship Launch**\
-`The third test flight of the most powerful rocket ever built achieved a series of milestones before the spacecraft was lost as it re-entered Earth’s atmosphere.`\
-https://nytimes.com/2024/03/14/science/spacex-starship-rocket-launch.html
 
