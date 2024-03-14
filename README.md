@@ -1,3 +1,19 @@
+**What to Watch this Weekend: A Fun Biographical Drama**\
+`“Nolly,” premiering Sunday on PBS, stars Helena Bonham Carter as Noele Gordon, a pioneer of British television.`\
+https://nytimes.com/2024/03/14/arts/television/nolly-pbs-masterpiece.html
+
+**In the Oscars Audience, the Superstars Were the Superfans**\
+`See Da’Vine Joy Randolph, Martin Scorsese, Billie Eilish, Emma Stone and other stars in candid scenes that viewers may have missed.`\
+https://nytimes.com/2024/03/14/movies/oscars-celebrities-candid-photos.html
+
+**At Abortion Clinic Visit, Harris Says U.S. Is Confronting ‘Health Care Crisis’**\
+`The trip made history and offered a vivid look at how the politics of abortion rights have transformed since the Supreme Court overturned Roe v. Wade.`\
+https://nytimes.com/2024/03/14/us/politics/kamala-harris-abortion.html
+
+**JPMorgan Fined $348 Million for Lapses in Trade Monitoring**\
+`Regulators, which rely on the bank for information that helps prevent insider trading and market manipulation, said customer data from around 30 platforms was missing.`\
+https://nytimes.com/2024/03/14/business/jpmorgan-fine-trading-lapses.html
+
 **Republicans Move to Block a Policing Change Made After Tyre Nichols’s Death**\
 `A new Memphis law had prevented the police from intervening over more minor traffic offenses, such as a broken taillight.`\
 https://nytimes.com/2024/03/14/us/politics/tyre-nichols-tennessee-republicans-police.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/03/14/opinion/sat-college-admissions-antiracism.html
 **Harvard, M.I.T. and Systemic Antisemitism**\
 `Two new lawsuits describe a rash of bigotry on elite campuses.`\
 https://nytimes.com/2024/03/14/opinion/harvard-mit-and-systemic-antisemitism.html
-
-**Netanyahu’s allies reject Schumer’s criticism.**\
-`By The New York Times`\
-https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/netanyahus-allies-reject-schumers-criticism
-
-**For Noem, an Odd Video Promoting Her New Smile Comes With Legal Headaches**\
-`Kristi Noem, the South Dakota governor and rising conservative star, flew to Texas for a dental procedure, which she shared on Instagram.`\
-https://nytimes.com/2024/03/14/us/politics/kristi-noem-instagram-teeth-smile.html
-
-**Popcast (Deluxe): What’s an Industry Plant Anyway? Plus: Ariana Grande**\
-`Discussing the quick ascent of the downtempo R&B singer 4batz, the new Ariana Grande album, “eternal sunshine,” music at the Oscars and more.`\
-https://nytimes.com/2024/03/14/arts/music/popcast-deluxe-industry-plant-4batz-ariana-grande.html
-
-**What’s the Cloud Outlook for Eclipse Day? See if History Is On Your Side.**\
-`April 8 could be your best opportunity to see a total solar eclipse for decades. But if clouds fill the sky, your shot at seeing the spectacle could be lost.`\
-https://nytimes.com/interactive/2024/science/solar-eclipse-cloud-cover-forecast-map.html
 
