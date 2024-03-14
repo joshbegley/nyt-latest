@@ -1,3 +1,7 @@
+**Paul Alexander on Living Inside an Iron Lung**\
+`During an interview in 2018, Alexander called the iron lung, a machine that helped him breathe, “my friend” and “my enemy.”`\
+https://nytimes.com/video/us/100000009360912/iron-lung-paul-alexander-dallas.html
+
 **Snakes in the Grass — and Under the Piano, by the Pool and in the Prison**\
 `Business is good for snake catchers in Australia, as the period of brumation, a sort of hibernation for reptiles, is shrinking — a result of the warming earth.`\
 https://nytimes.com/2024/03/14/world/australia/snakes-climate-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/13/pageoneplus/quotation-of-the-day-risking-their-li
 **Dancing and Jumping Over Fire, Iranians Use Holiday to Defy Rules**\
 `Large crowds packed the streets to celebrate the tradition of Chaharshanbeh Suri. Iran has banned dancing in public, which has also been a way to protest.`\
 https://nytimes.com/2024/03/13/world/middleeast/iran-fire-festival-protest.html
-
-**Democrats Meddle in Ohio G.O.P. Senate Primary, Pushing Trump’s Choice**\
-`A Democratic group is spending nearly $900,000 on a television ad promoting Bernie Moreno, who was endorsed by Donald Trump, just ahead of next week’s Republican primary.`\
-https://nytimes.com/2024/03/13/us/politics/moreno-trump-democrats-ohio.html
 
