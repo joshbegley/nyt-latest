@@ -1,3 +1,7 @@
+**A Historic Visit to an Abortion Clinic, and What Could Happen to TikTok**\
+`Plus, why America is suddenly using so much electricity.`\
+https://nytimes.com/2024/03/14/podcasts/harris-abortion-clinic-gaza-tiktok.html
+
 **Here is what to know about Thursday’s SpaceX launch.**\
 `By Kenneth Chang and Michael Roston`\
 https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/here-is-what-to-know-about-thursdays-spacex-launch
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/us/politics/as-biden-impeachment-flails-house-rep
 **A New Yorker Decamped to the Philadelphia Area With a Townhouse in Mind. What Would $500,000 Buy?**\
 `With a new job at Bryn Mawr and a grandchild on the way, an academic looked for the things she couldn’t afford in Manhattan: more space, more green, more parking.`\
 https://nytimes.com/interactive/2024/03/14/realestate/philadelphia-home-sale-prices.html
-
-**How Did the Covid-19 Pandemic Affect You, Your Family and Your Community?**\
-`This week is the fourth anniversary of the pandemic. What are your most lasting memories? How did it reshape your life — and the world?`\
-https://nytimes.com/2024/03/14/learning/how-did-the-covid-19-pandemic-affect-you-your-family-and-your-community.html
 
