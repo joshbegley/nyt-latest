@@ -1,3 +1,7 @@
+**Dan Wakefield, Multifaceted Writer on a Spiritual Journey, Dies at 91**\
+`He was prolific and acclaimed, producing novels, journalism, essays, criticism, screenplays and, in a memoir, an account of his path from faith to atheism and back again.`\
+https://nytimes.com/2024/03/14/books/dan-wakefield-dead.html
+
 **Manhattan Prosecutors Propose a 30-Day Delay of Trump Trial**\
 `The Manhattan district attorney’s office sought to delay Donald J. Trump’s first criminal trial so a new batch of records could be reviewed.`\
 https://nytimes.com/2024/03/14/nyregion/alvin-bragg-trump-trial-delay.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/science/solar-eclipse-cloud-cover-forecast-
 **Biden Embraces TikTok as a Campaign Tool Amid National Security Concerns**\
 `Zolan Kanno-Youngs, a White House correspondent for The New York Times, analyzes how a potential ban on TikTok is colliding with President Biden’s campaign strategy of using the app to energize a frustrated bloc of young voters.`\
 https://nytimes.com/video/us/elections/100000009359867/biden-tiktok-election-bytedance.html
-
-**Orban Endangers Hungary’s Status as an Ally, U.S. Diplomat Says**\
-`The U.S. ambassador to Budapest raised the temperature in a long-running standoff, citing Prime Minister Viktor Orban’s pro-Russia, anti-U.S. stance and opposition to supporting Ukraine.`\
-https://nytimes.com/2024/03/14/world/europe/orban-hungary-nato-us.html
 
