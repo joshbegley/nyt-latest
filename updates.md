@@ -1,5 +1,9 @@
 **Judge Refuses to Dismiss Charges Against Menendez on Grounds of Immunity**\
 `Senator Robert Menendez of New Jersey could appeal the ruling, which could end up delaying his trial for months.`\
+https://nytimes.com/2024/03/14/nyregion/menendez-bribery-charges-congressional-immunity.html
+
+**Judge Refuses to Dismiss Charges Against Menendez on Grounds of Immunity**\
+`Senator Robert Menendez of New Jersey could appeal the ruling, which could end up delaying his trial for months.`\
 https://nytimes.com/2024/03/14/nyregion/menendez-bribery-charges-congressoinal-immunity.html
 
 **Appeals Court Overturns Vybz Kartel’s Murder Conviction**\
