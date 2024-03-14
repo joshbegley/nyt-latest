@@ -1,3 +1,7 @@
+**How to Write an Open Letter: A Guide to Our Opinion Contest**\
+`Six steps to help you understand the format and write a powerful open letter of your own — with help from Times texts along the way.`\
+https://nytimes.com/2024/03/14/learning/how-to-write-an-open-letter-a-guide-to-our-opinion-contest.html
+
 **TikTok Faces a Senate Showdown**\
 `A bill to potentially ban the video app breezed through the House, but its fate is less certain in the upper chamber as Big Tech weighs the wider implications.`\
 https://nytimes.com/2024/03/14/business/dealbook/tiktok-ban-senate-showdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/movies/french-girl-review.html
 **‘Arthur the King’ Review: Dog Days With Mark Wahlberg**\
 `Wahlberg stars in this drama directed by Simon Cellan Jones, based on the true story of a Swedish adventure racer and his beloved adopted dog.`\
 https://nytimes.com/2024/03/14/movies/arthur-the-king-review.html
-
-**America Pulls Back from Ukraine**\
-`What the war may look like if Ukraine does not receive more U.S. support.`\
-https://nytimes.com/2024/03/14/briefing/ukraine-us-aid.html
 

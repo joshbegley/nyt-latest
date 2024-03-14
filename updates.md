@@ -1,3 +1,7 @@
+**How to Write an Open Letter: A Guide to Our Opinion Contest**\
+`Six steps to help you understand the format and write a powerful open letter of your own — with help from Times texts along the way.`\
+https://nytimes.com/2024/03/14/learning/how-to-write-an-open-letter-a-guide-to-our-opinion-contest.html
+
 **TikTok Faces a Senate Showdown**\
 `A bill to potentially ban the video app breezed through the House, but its fate is less certain in the upper chamber as Big Tech weighs the wider implications.`\
 https://nytimes.com/2024/03/14/business/dealbook/tiktok-ban-senate-showdown.html
