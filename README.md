@@ -7,7 +7,7 @@ https://nytimes.com/2024/03/14/world/europe/russia-election-explainer.html
 https://nytimes.com/2024/03/14/podcasts/culture-desk-love-jazz-flute.html
 
 **Jonathan Kozol Fought School Inequality for Decades. Here’s One Final Plea.**\
-`With his latest, and last, book, the 87-year old writer refuses false optimism.`\
+`With his latest, and last, book, the 87-year-old writer refuses false optimism.`\
 https://nytimes.com/2024/03/14/us/jonathan-kozol-school-inequality.html
 
 **Why the Young and the Single Just Can’t Commit to Dating Apps**\
