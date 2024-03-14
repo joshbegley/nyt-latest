@@ -1,3 +1,11 @@
+**Road, sea or air: How is aid entering Gaza?**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/road-sea-or-air-how-is-aid-entering-gaza
+
+**Hospital vs. Insurer Dispute Could Force Thousands to Switch Doctors**\
+`As Mount Sinai Hospital and UnitedHealthcare haggle over pay rates, patients may have to pay out-of-network prices if they want to keep their doctors.`\
+https://nytimes.com/2024/03/14/nyregion/united-healthcare-mount-sinai-insurance.html
+
 **Starship already has private customers booked for deep space trips.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/starship-private-space-trips
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/14/nyregion/how-watch-nyc-st-patricks-day-parade.htm
 **Editor’s Note: Joel Fagliano Edits the Daily Crossword**\
 `Starting with the March 14 puzzle, Joel’s byline will accompany the daily crossword.`\
 https://nytimes.com/2024/03/14/crosswords/editors-note-joel-fagliano-edits-the-daily-crossword.html
-
-**What will happen during Starship’s third test flight.**\
-`By Michael Roston`\
-https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/what-will-happen-during-starships-third-test-flight
-
-**They Helped a Family Facing Discrimination 80 Years Ago. Now They’re Being Celebrated.**\
-`In 1939, a Black couple rented a California home to a Chinese American family when others would not. Now, members of that family are donating house sale proceeds to Black students.`\
-https://nytimes.com/2024/03/14/us/sdsu-college-donation-chinese-immigrants.html
 
