@@ -1,3 +1,11 @@
+**Why Taiwan Is Building a Satellite Network Without Elon Musk**\
+`The island democracy urgently needs an internet backup. Mr. Musk’s total control over his Starlink service, which dominates the market, left Taiwan wary.`\
+https://nytimes.com/2024/03/14/business/taiwan-starlink-satellite.html
+
+**Missing Teachers Are the Invisible School Crisis**\
+`Absenteeism among teachers is creating long-term setbacks for students.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/absentee-teachers
+
 **A Sign, a Sunset and a Fall: Poems, Stories and Memoirs by Teens**\
 `Some favorite student responses to three recent Picture Prompts.`\
 https://nytimes.com/2024/03/14/learning/a-sign-a-sunset-and-a-fall-poems-stories-and-memoirs-by-teens.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/14/dining/freeze-your-tofu.html
 **SpaceX Blazes Forward With Latest Starship Launch**\
 `The third test flight of the most powerful rocket ever built achieved a series of milestones before the spacecraft was lost as it re-entered Earth’s atmosphere.`\
 https://nytimes.com/2024/03/14/science/spacex-starship-rocket-launch.html
-
-**7 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/03/14/books/review/new-books-recommendations.html
-
-**5-Year-Old Twins Found Dead in the Bronx Were Smothered, Official Says**\
-`The medical examiner’s office ruled that the deaths of the boy and girl, who were found lifeless in their mother’s bed in December, were homicides. No arrests have been made.`\
-https://nytimes.com/2024/03/14/nyregion/bronx-twins-death-homicide.html
 
