@@ -1,3 +1,11 @@
+**Editor’s Note: Joel Fagliano Edits the Daily Crossword**\
+`Starting with the March 14 puzzle, Joel’s byline will accompany the daily crossword.`\
+https://nytimes.com/2024/03/14/crosswords/editors-note-joel-fagliano-edits-the-daily-crossword.html
+
+**They Helped a Family Facing Discrimination 80 Years Ago. Now They’re Being Celebrated.**\
+`In 1939, Gus and Emma Thompson rented a California home to the Dong family when others would not. Now, the Dongs are donating house sale proceeds to Black students.`\
+https://nytimes.com/2024/03/14/us/sdsu-college-donation-chinese-immigrants.html
+
 **What will happen during Starship’s third test flight.**\
 `By Michael Roston`\
 https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/what-will-happen-during-starships-third-test-flight

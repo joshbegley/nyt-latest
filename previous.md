@@ -1,8 +1,12 @@
+**Editor’s Note: Joel Fagliano Edits the Daily Crossword**\
+`Starting with the March 14 puzzle, Joel’s byline will accompany the daily crossword.`\
+https://nytimes.com/2024/03/14/crosswords/editors-note-joel-fagliano-edits-the-daily-crossword.html
+
 **What will happen during Starship’s third test flight.**\
 `By Michael Roston`\
 https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/what-will-happen-during-starships-third-test-flight
 
-**Black Family That Defied Segregation Honored by Family They Helped**\
+**They Helped a Family Facing Discrimination 80 Years Ago. Now They’re Being Celebrated.**\
 `In 1939, Gus and Emma Thompson rented a California home to the Dong family when others would not. Now, the Dongs are donating house sale proceeds to Black students.`\
 https://nytimes.com/2024/03/14/us/sdsu-college-donation-chinese-immigrants.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/14/science/starship-spacex-launch/what-is-stars
 **New U.K. Extremism Policy Raises Concerns Over Free Speech**\
 `The government said it would use a new legal definition of extremism to blacklist certain groups from public funding or engagement.`\
 https://nytimes.com/2024/03/14/world/europe/uk-extremism-plan-free-speech.html
-
-**‘Classe Tous Risques’: Bromance in the Dark**\
-`Claude Sautet’s 1960 existential buddy adventure opens Friday at Film Forum in a new 4K restoration.`\
-https://nytimes.com/2024/03/14/movies/classe-tous-risques-film-forum.html
 
