@@ -1,3 +1,7 @@
+**Read the Rejection of Trump’s Motion to Dismiss the Documents Case**\
+`Judge Aileen M. Cannon rebuffed arguments by former President Donald J. Trump’s lawyers that the Espionage Act was impermissibly vague and should be struck down entirely.`\
+https://nytimes.com/interactive/2024/03/14/us/0314trumpdocuments.html
+
 **The Delays Keep Piling Up**\
 `All four criminal cases against Donald Trump have become mired in issues that have pushed back the start of trials.`\
 https://nytimes.com/2024/03/14/us/politics/trump-trial-delays-manhattan-documents.html

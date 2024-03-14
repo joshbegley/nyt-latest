@@ -1,3 +1,7 @@
+**Read the Rejection of Trump’s Motion to Dismiss the Documents Case**\
+`Judge Aileen M. Cannon rebuffed arguments by former President Donald J. Trump’s lawyers that the Espionage Act was impermissibly vague and should be struck down entirely.`\
+https://nytimes.com/interactive/2024/03/14/us/0314trumpdocuments.html
+
 **The Delays Keep Piling Up**\
 `All four criminal cases against Donald Trump have become mired in issues that have pushed back the start of trials.`\
 https://nytimes.com/2024/03/14/us/politics/trump-trial-delays-manhattan-documents.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/style/meghan-markle-american-riviera-orchard.html
 **U.S. Approves $500 Million for Bahrain Oil Project, Despite Opposition**\
 `The financing faced criticism that it doesn’t mesh with U.S. commitments on climate change. Earlier, two climate advisers had resigned over the plan.`\
 https://nytimes.com/2024/03/14/climate/exim-financing-biden-bahrain-oil.html
-
-**Read the Class Action Complaint Against G.M. and LexisNexis Risk Solutions**\
-`Romeo Chicco filed the complaint, alleging unfair and deceptive car data collection, in the Southern District of Florida on Wednesday, March 13, 2024`\
-https://nytimes.com/interactive/2024/03/14/business/chicco-vs-gm-lexisnexis.html
 
