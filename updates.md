@@ -1,3 +1,7 @@
+**Cities Face Cutbacks as Commercial Real Estate Prices Tumble**\
+`Lost tax revenue fuels concerns over an urban ‘doom loop.’`\
+https://nytimes.com/2024/03/14/business/commercial-real-estate-tax-revenue.html
+
 **American Ballet Theater Names Dance Veteran as Executive Director**\
 `Barry Hughson, a leader at the National Ballet of Canada, will join the company as it tries to get beyond financial woes.`\
 https://nytimes.com/2024/03/14/arts/dance/american-ballet-theater-barry-hughson-executive-director.html
