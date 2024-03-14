@@ -1,3 +1,7 @@
+**Judge Denies One of Trump’s Efforts to Derail Documents Case**\
+`With the former president in attendance, Judge Aileen Cannon held a hearing in federal court in Florida to weigh some of Donald Trump’s motions to have the classified documents case dismissed.`\
+https://nytimes.com/2024/03/14/us/politics/trump-classified-documents-case.html
+
 **Appeals Court Denies Peter Navarro’s Motion to Remain Out of Prison**\
 `The order on Thursday left Mr. Navarro on track to begin a four-month sentence next week for ignoring a congressional subpoena.`\
 https://nytimes.com/2024/03/14/us/politics/peter-navarro-appeal-prison.html
