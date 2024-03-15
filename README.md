@@ -1,3 +1,7 @@
+**Down the Rabbit Hole in Search of a Few Frames of Irish American History**\
+`The silent film “The Callahans and the Murphys” was pulled after an uproar over stereotyping. What happened next tantalized one fan of old movies.`\
+https://nytimes.com/2024/03/15/movies/down-the-rabbit-hole-in-search-of-a-few-frames-of-irish-american-history.html
+
 **When Debuts Flop: Katie Britt Is the Latest in a Long Line of Botched Opening Acts**\
 `The Republican senator, whose State of the Union response drew savage criticism, is not the first novice lawmaker from the South to see her introductory event veer off the rails.`\
 https://nytimes.com/2024/03/15/us/politics/katie-britt-sotu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/dining/make-guinness-beef-stew-on-saturday-for-su
 **Five Science Fiction Movies to Stream Now**\
 `Time loops in Japan, a seductive interface for agoraphobes and artificial intelligence battles make up this month’s science fiction streaming picks.`\
 https://nytimes.com/2024/03/15/movies/science-fiction-movies-streaming.html
-
-**Once You Watch an Ernie Gehr Film, You’ll Never See the World the Same Way**\
-`A MoMA series shows how the artist pushes the boundaries of cinema in short movies that both delight and baffle.`\
-https://nytimes.com/2024/03/15/movies/ernie-gehr-moma.html
 
