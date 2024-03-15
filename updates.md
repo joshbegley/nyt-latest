@@ -1,3 +1,7 @@
+**Read Nathan Wade’s Resignation Letter**\
+`Fani Willis, the Fulton County district attorney, accepts Nathan Wade’s resignation from the Trump prosecution in Georgia.`\
+https://nytimes.com/interactive/2024/03/15/us/nathan-wade-resignation-letter.html
+
 **A Welcome Precedent for the Parents of Mass Shooters**\
 `Parents should be held responsible if they provide a gun to their deeply troubled child.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/crumbley-parents-guilty
