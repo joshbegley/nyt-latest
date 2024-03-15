@@ -1,4 +1,4 @@
-**At Least 3 Dead in Indiana as Severe Weather Tears Through Midwest**\
+**Severe Weather Tears Through Midwest**\
 `A storm, believed to be a tornado, ripped through a mobile home community in eastern Indiana. Ohio and Kentucky were also hit.`\
 https://nytimes.com/2024/03/14/us/tornado-storms-ohio-indiana-kentucky.html
 
