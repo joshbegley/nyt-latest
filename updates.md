@@ -1,3 +1,7 @@
+**Schumer’s Strong Condemnation of Netanyahu**\
+`Responses to the senator’s call for new elections in Israel. Also: The United Arab Emirates and Israel; a view from New York’s City Hall; Haley voters.`\
+https://nytimes.com/2024/03/15/opinion/schumer-netanyahu-israel.html
+
 **How Revelations of a Prosecutors’ Romance Upended the Georgia Trump Case**\
 `A timeline of when the relationship between Fani Willis and Nathan Wade came to light, and how defense lawyers used it to attack the prosecutors.`\
 https://nytimes.com/2024/03/15/us/elections/fani-willis-nathan-wade-trump-timeline.html
