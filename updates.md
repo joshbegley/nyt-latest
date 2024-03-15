@@ -1,3 +1,11 @@
+**Variety: Cryptic Crossword**\
+`Richard Silvestri delivers a doozy of a challenge.`\
+https://nytimes.com/2024/03/14/crosswords/variety-cryptic-crossword.html
+
+**Unlikely Gift**\
+`Daniel Grinberg adds a themeless grid to his portfolio of New York Times crosswords.`\
+https://nytimes.com/2024/03/14/crosswords/daily-puzzle-2024-03-15.html
+
 **New R.N.C. chair declares ‘a united front’ with Trump after sweeping changes.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/03/14/us/2024-election-biden-trump/new-rnc-chair-declares-a-united-front-with-trump-after-sweeping-changes
