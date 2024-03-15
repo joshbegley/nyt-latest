@@ -1,3 +1,11 @@
+**What a Breast Cancer Risk Calculator Can and Can’t Tell You**\
+`The actress Olivia Munn credited a simple tool with helping her doctor catch the disease early. But experts cautioned that it can’t give you the full picture.`\
+https://nytimes.com/2024/03/15/well/live/breast-cancer-risk-assessment.html
+
+**Severe Malnutrition in Young Children in Gaza Is Rising Fast, UNICEF Says**\
+`Experts have been alarmed by not only the number of children suffering from malnutrition, but how quickly their health is deteriorating.`\
+https://nytimes.com/2024/03/15/world/middleeast/gaza-malnutrition-food-children.html
+
 **Severe malnutrition in young children is rising fast in Gaza, UNICEF says.**\
 `By Gaya Gupta`\
 https://nytimes.com/2024/03/15/world/middleeast/gaza-malnutrition-food-children.html
