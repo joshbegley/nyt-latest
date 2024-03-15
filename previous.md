@@ -1,3 +1,7 @@
+**2024 Is Hardly the Same Race as 2020**\
+`As President Biden and Donald J. Trump enter a new phase of the presidential race, they face different challenges compared to four years ago.`\
+https://nytimes.com/video/us/elections/100000009362694/trump-biden-2024-election.html
+
 **5 Cases When Parents Were Convicted After a Shooting by Their Child**\
 `The mother and father of a Michigan teenager who carried out a school shooting are among the parents who have been convicted of crimes in the aftermath.`\
 https://nytimes.com/2024/03/14/us/crumbley-michigan-shooting-parents-convicted.html
@@ -18,7 +22,7 @@ https://nytimes.com/2024/03/14/us/james-crumbley-oxford-school-shooting.html
 `Judge Aileen M. Cannon rebuffed arguments by former President Donald J. Trump’s lawyers that the Espionage Act was impermissibly vague and should be struck down entirely.`\
 https://nytimes.com/interactive/2024/03/14/us/0314trumpdocuments.html
 
-**The Delays Keep Piling Up**\
+**Trump’s Court Delays Pile Up While the Presidential Race Gathers Speed**\
 `All four criminal cases against Donald Trump have become mired in issues that have pushed back the start of trials.`\
 https://nytimes.com/2024/03/14/us/politics/trump-trial-delays-manhattan-documents.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/technology/gm-lexis-nexis-driving-data.html
 **As Irish Leader Visits U.S., Shamrock Camaraderie Is Strained by Gaza War**\
 `Prime Minister Leo Varadkar of Ireland has been one of the most outspoken critics of Israel’s war and has promised to raise the issue during a White House meeting meant to mark St. Patrick’s Day.`\
 https://nytimes.com/2024/03/14/us/politics/ireland-us-gaza.html
-
-**Pierce Brosnan Pleads Guilty to Hiking in a Restricted Area at Yellowstone**\
-`The actor was ordered to pay a $500 fine and make a $1,000 donation to Yellowstone Forever, a nonprofit partner of the park.`\
-https://nytimes.com/2024/03/14/us/pierce-brosnan-yellowstone-hiking-guilty.html
 

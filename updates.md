@@ -1,3 +1,11 @@
+**2024 Is Hardly the Same Race as 2020**\
+`As President Biden and Donald J. Trump enter a new phase of the presidential race, they face different challenges compared to four years ago.`\
+https://nytimes.com/video/us/elections/100000009362694/trump-biden-2024-election.html
+
+**Trump’s Court Delays Pile Up While the Presidential Race Gathers Speed**\
+`All four criminal cases against Donald Trump have become mired in issues that have pushed back the start of trials.`\
+https://nytimes.com/2024/03/14/us/politics/trump-trial-delays-manhattan-documents.html
+
 **5 Cases When Parents Were Convicted After a Shooting by Their Child**\
 `The mother and father of a Michigan teenager who carried out a school shooting are among the parents who have been convicted of crimes in the aftermath.`\
 https://nytimes.com/2024/03/14/us/crumbley-michigan-shooting-parents-convicted.html
