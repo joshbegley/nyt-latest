@@ -1,3 +1,7 @@
+**At Least 3 Dead in Indiana as Severe Weather Tears Through Midwest**\
+`A storm, believed to be a tornado, tore through a mobile home community in eastern Indiana. Ohio and Kentucky were also hit.`\
+https://nytimes.com/2024/03/14/us/tornado-storms-ohio-indiana-kentucky.html
+
 **Variety: Cryptic Crossword**\
 `Richard Silvestri delivers a doozy of a challenge.`\
 https://nytimes.com/2024/03/14/crosswords/variety-cryptic-crossword.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/gaza-food-a
 **Alec Baldwin Seeks Dismissal of ‘Rust’ Manslaughter Indictment**\
 `Lawyers for the actor have begun his defense by denouncing the way the prosecutors carried out grand jury proceedings.`\
 https://nytimes.com/2024/03/14/arts/alec-baldwin-rust-shooting-indictment.html
-
-**James Crumbley Found Guilty in Michigan School Shooting Trial**\
-`Mr. Crumbley and his wife, Jennifer Crumbley, who was found guilty on identical charges last month, are the first parents in the country to be directly charged for the deaths caused by their child in a mass shooting.`\
-https://nytimes.com/2024/03/14/us/james-crumbley-oxford-school-shooting.html
 

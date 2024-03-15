@@ -1,3 +1,7 @@
+**At Least 3 Dead in Indiana as Severe Weather Tears Through Midwest**\
+`A storm, believed to be a tornado, tore through a mobile home community in eastern Indiana. Ohio and Kentucky were also hit.`\
+https://nytimes.com/2024/03/14/us/tornado-storms-ohio-indiana-kentucky.html
+
 **James Crumbley Found Guilty in Michigan School Shooting Trial**\
 `Mr. Crumbley and his wife, Jennifer Crumbley, who was found guilty on identical charges last month, are the first parents in the country to be directly charged for the deaths caused by their child in a mass shooting.`\
 https://nytimes.com/2024/03/14/us/james-crumbley-oxford-school-shooting.html
