@@ -1,3 +1,7 @@
+**A Watershed Moment for the Politics of Israel, Courtesy of Chuck Schumer**\
+`Republicans have long sought to make Israel a partisan issue, framing their party as the only one truly supportive of the Jewish state. The Senate majority leader’s blistering speech may have helped.`\
+https://nytimes.com/2024/03/15/us/politics/israel-schumer.html
+
 **Sheriff Had Cause to Take Maine Gunman Into Custody Before Shootings**\
 `An interim report from a commission investigating the mass shooting in Lewiston, Maine, found that the gunman’s weapons could and should have been removed.`\
 https://nytimes.com/2024/03/15/us/maine-shooting-report.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/15/us/miami-beach-spring-break-curfew.html
 **What a Breast Cancer Risk Calculator Can and Can’t Tell You**\
 `The actress Olivia Munn credited a simple tool with helping her doctor catch the disease early. But experts cautioned that it can’t give you the full picture.`\
 https://nytimes.com/2024/03/15/well/live/breast-cancer-risk-assessment.html
-
-**The East Coast Is Winning the Battle of the Orchestras**\
-`Two Los Angeles institutions have recently lost their musical directors.`\
-https://nytimes.com/live/2024/03/12/opinion/thepoint/salonen-orchestra-conductor
 
