@@ -1,3 +1,15 @@
+**How Revelations of a Prosecutors’ Romance Upended the Georgia Trump Case**\
+`A timeline of when the relationship between Fani Willis and Nathan Wade came to light, and how defense lawyers used it to attack the prosecutors.`\
+https://nytimes.com/2024/03/15/us/elections/fani-willis-nathan-wade-trump-timeline.html
+
+**Thomas Adès Takes a Step Toward the Classical Music Canon**\
+`As Adès premieres an orchestral work, “The Exterminating Angel” is receiving something rare in contemporary opera: a new production.`\
+https://nytimes.com/2024/03/15/arts/music/thomas-ades-exterminating-angel-aquifer.html
+
+**Welcome to the London Book Fair, Where Everyone Knows Their Place**\
+`If you want to understand the power map of the publishing industry, just look at this event’s floor plan.`\
+https://nytimes.com/2024/03/15/books/london-book-fair.html
+
 **Overlooked No More: Miriam Solovieff, Lauded Violinist Who Suffered Tragedy**\
 `She led a successful career despite coping with a horrific event that she witnessed at 18: the killing of her mother and sister at the hands of her father.`\
 https://nytimes.com/2024/03/15/obituaries/miriam-solovieff-overlooked.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/15/business/media/amc-theaters-blumhouse.html
 **The Big Number: $40 Billion**\
 `The market values of Match Group and Bumble have tumbled since 2021.`\
 https://nytimes.com/interactive/2024/03/15/business/match-group-bumble.html
-
-**Frightening Confrontation Led to Brooklyn Subway Shooting, Videos Show**\
-`Two men who the police say did not know each other were engaged in a violent argument before one of them was shot. A woman also appeared to stab one of the men in the back, a video shows.`\
-https://nytimes.com/2024/03/15/nyregion/subway-shooting-brooklyn-video-hoyt-schermerhorn.html
-
-**Down the Rabbit Hole in Search of a Few Frames of Irish American History**\
-`The silent film “The Callahans and the Murphys” was pulled after an uproar over stereotyping. What happened next tantalized one fan of old movies.`\
-https://nytimes.com/2024/03/15/movies/silent-film-irish-callahans-muphys.html
-
-**When Debuts Flop: Katie Britt Is the Latest in a Long Line of Botched Opening Acts**\
-`The Republican senator, whose State of the Union response drew savage criticism, is not the first novice lawmaker from the South to see her introductory event veer off the rails.`\
-https://nytimes.com/2024/03/15/us/politics/katie-britt-sotu.html
 
