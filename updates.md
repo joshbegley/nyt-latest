@@ -1,3 +1,15 @@
+**Biden Embraces Schumer’s Speech Castigating Netanyahu**\
+`President Biden did not explicitly endorse any of the specific criticisms in the speech. But his comments were the latest step in his escalating public critique of the Israeli prime minister.`\
+https://nytimes.com/2024/03/15/us/politics/biden-netanyahu-schumer-speech.html
+
+**Second Gaza Aid Convoy Ends in Violence, With at Least 20 Killed**\
+`The Gaza Health Ministry accused Israel of a “targeted” attack. Israel’s military denied the accusation, blaming Palestinian gunmen for the violence.`\
+https://nytimes.com/2024/03/15/world/middleeast/gaza-convoy-israel.html
+
+**Judge Rules D.A. Can Stay on Trump Georgia Case With Ex-Boyfriend Stepping Down**\
+`The highly anticipated ruling cut a middle path between removing Fani T. Willis for a conflict of interest and her full vindication.`\
+https://nytimes.com/2024/03/15/us/judge-rules-da-can-stay-on-trump-georgia-case-with-ex-boyfriend-stepping-down.html
+
 **Without Senators in Sight, Christine Blasey Ford Retells Her Story**\
 `Her lucid memoir, “One Way Back,” describes life before, during and after she testified that Brett Kavanaugh had sexually assaulted her in high school.`\
 https://nytimes.com/2024/03/15/books/review/christine-blasey-ford-memoir-one-way-back.html
