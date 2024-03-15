@@ -1,3 +1,19 @@
+**Serge Raoul, Whose SoHo Bistro Glittered With Stars, Dies at 86**\
+`Raoul’s, which he founded, was a celebrity magnet and a neighborhood institution in the 1970s and ’80s. But he had never planned on a life in the restaurant business.`\
+https://nytimes.com/2024/03/15/dining/serge-raoul-dead.html
+
+**We Want to See Your Grocery Shopping Receipts**\
+`We’re looking for shoppers to document their habits for a story that will paint a portrait of food purchasing in America today.`\
+https://nytimes.com/2024/03/15/dining/we-want-to-see-your-grocery-shopping-receipts.html
+
+**A Thirst for the Irish**\
+`Barry Keoghan, Paul Mescal and Cillian Murphy are among a crop of Irish hunks who have infused popular culture with big Irish energy.`\
+https://nytimes.com/2024/03/15/style/irish-actors-cillian-murphy-barry-keoghan.html
+
+**Tesla Settles Discrimination Suit With Former Factory Worker**\
+`The carmaker and energy company settled with a Black man who had worked at its California factory and had won a $3 million judgment against the company.`\
+https://nytimes.com/2024/03/15/business/tesla-discrimination-lawsuit-settlement.html
+
 **New York City to Impose Stricter Limits on Migrant Adults in Shelters**\
 `A legal agreement scales back the longstanding requirement that the city provide shelter to homeless people who seek it. Families will not be affected.`\
 https://nytimes.com/2024/03/15/nyregion/nyc-right-to-shelter-homeless-migrants.html

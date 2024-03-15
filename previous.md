@@ -1,3 +1,19 @@
+**Serge Raoul, Whose SoHo Bistro Glittered With Stars, Dies at 86**\
+`Raoul’s, which he founded, was a celebrity magnet and a neighborhood institution in the 1970s and ’80s. But he had never planned on a life in the restaurant business.`\
+https://nytimes.com/2024/03/15/dining/serge-raoul-dead.html
+
+**We Want to See Your Grocery Shopping Receipts**\
+`We’re looking for shoppers to document their habits for a story that will paint a portrait of food purchasing in America today.`\
+https://nytimes.com/2024/03/15/dining/we-want-to-see-your-grocery-shopping-receipts.html
+
+**A Thirst for the Irish**\
+`Barry Keoghan, Paul Mescal and Cillian Murphy are among a crop of Irish hunks who have infused popular culture with big Irish energy.`\
+https://nytimes.com/2024/03/15/style/irish-actors-cillian-murphy-barry-keoghan.html
+
+**Tesla Settles Discrimination Suit With Former Factory Worker**\
+`The carmaker and energy company settled with a Black man who had worked at its California factory and had won a $3 million judgment against the company.`\
+https://nytimes.com/2024/03/15/business/tesla-discrimination-lawsuit-settlement.html
+
 **Doug Blevins, Kicking Guru for College and N.F.L. Players, Dies at 60**\
 `He fine-tuned the mechanics of punters and kickers, including Adam Vinatieri, the N.F.L.’s career scoring leader, even as he lived with cerebral palsy.`\
 https://nytimes.com/2024/03/15/sports/football/doug-blevins-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/03/15/nyregion/nyc-right-to-shelter-homeless-migrants.h
 **Kushner Developing Deals Overseas Even as His Father-in-Law Runs for President**\
 `Donald Trump’s son-in-law, who was also a senior White House official, said he was close to finalizing real estate projects in Albania and Serbia.`\
 https://nytimes.com/2024/03/15/us/politics/jared-kushner-pursuing-development-deals-in-albania-and-serbia.html
-
-**Takeaways From the Ruling on Georgia Trump Prosecutor’s Conduct**\
-`Fani Willis faces an unusual decision after the much-anticipated ruling on whether she should be disqualified for having had a romantic relationship with a subordinate.`\
-https://nytimes.com/2024/03/15/us/elections/fani-willis-trump-georgia-takeaways.html
-
-**Working in Old Age Can’t Be the Only Answer to the Retirement Crisis**\
-`Longer lives mean longer careers, right? It’s not so simple.`\
-https://nytimes.com/2024/03/15/opinion/retirement-old-age-savings.html
-
-**My Wife Plans to End Her Life. Should I Tell My Very Religious Father?**\
-`The magazine’s Ethicist columnist on whether to disclose a delicate decision to a loved one who may oppose it.`\
-https://nytimes.com/2024/03/15/magazine/wife-assisted-father-ethics.html
-
-**Kent Campbell, Pivotal Figure in the Fight Against Malaria, Dies at 80**\
-`Among his accomplishments during a four-decade career in public health, he helped to pioneer programs providing bed nets in Africa.`\
-https://nytimes.com/2024/03/15/health/kent-campbell-dead.html
 
