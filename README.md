@@ -8,7 +8,7 @@ https://nytimes.com/2024/03/15/us/politics/mike-pence-trump-endorsement.html
 
 **Severe malnutrition in young children is rising fast in Gaza, UNICEF says.**\
 `By Gaya Gupta`\
-https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/severe-malnutrition-in-young-children-is-rising-fast-in-gaza-unicef-says
+https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/gaza-malnutrition-food-children
 
 **Joe Camp, Filmmaker Behind ‘Benji’ Franchise, Dies at 84**\
 `He defied the odds to turn “Benji,” a live-action film series from a dog’s perspective, into a smash hit, and turned the film industry on its head in the process.`\
