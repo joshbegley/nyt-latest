@@ -1,3 +1,7 @@
+**Sheriff Had Cause to Take Maine Gunman Into Custody Before Shootings**\
+`An interim report from a commission investigating the mass shooting in Lewiston, Maine, found that the gunman’s weapons could and should have been removed.`\
+https://nytimes.com/2024/03/15/us/maine-shooting-report.html
+
 **At These New York Art World Parties, Everyone’s a Critic**\
 `Guests like Darren Aronofsky, David Byrne and Huma Abedin channeled their inner Jerry Saltz at two of this season’s major events.`\
 https://nytimes.com/2024/03/15/style/whitney-biennial-opening-art-production-fund.html
