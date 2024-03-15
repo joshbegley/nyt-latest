@@ -1,3 +1,43 @@
+**Schumer’s Blast at Netanyahu Might Have an Unintended Effect**\
+`Israelis aren’t likely to appreciate being told who should lead their government.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/schumer-netanyahu-israel
+
+**White House Calls on Republicans to End Biden Impeachment Inquiry**\
+`The president’s counsel told Speaker Mike Johnson that it was “obviously time to move on,” citing G.O.P. lawmakers’ own doubts about the impeachment bid.`\
+https://nytimes.com/2024/03/15/us/politics/biden-impeachment-republicans-letter.html
+
+**Why Is Congress Probing a Union for Being Anti-Israel?**\
+`Republicans issue a subpoena over a resolution condemning the Gaza war.`\
+https://nytimes.com/2024/03/15/opinion/congress-anti-israel-antisemitism.html
+
+**The New York Times News Quiz, March 15, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/03/15/briefing/news-quiz-oscars-covid-ramadan.html
+
+**A Looming TikTok Ban, a Royal Photoshop Mystery and Your Snitching Car**\
+`Maybe go ahead and download your favorite TikToks.`\
+https://nytimes.com/2024/03/15/podcasts/tiktok-princess-photoshop.html
+
+**Don’t Think of It as a Contest Between Biden and Trump**\
+`What matters even more than the candidates is the coalitions they lead.`\
+https://nytimes.com/2024/03/15/opinion/columnists/trump-biden-rematch.html
+
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including Kacey Musgraves's new album, “Deeper Well.”`\
+https://nytimes.com/interactive/2024/03/15/arts/weekend-editors-picks-kacey-musgraves.html
+
+**Dressing the Part of Barbara Walters**\
+`Women in media recently had a chance to browse and buy clothes owned by the trailblazing TV news anchor.`\
+https://nytimes.com/2024/03/15/style/barbara-walters-clothing-shop-repurpose.html
+
+**Who Has the Secret to Well-Being? The Answer May Surprise You.**\
+`Toddlers — full of energy, curiosity and laughter — have a lot to teach adults, experts say.`\
+https://nytimes.com/2024/03/15/well/live/tips-happiness-mental-health-well-being.html
+
+**Deadly Foosball, Nefarious Pool Guys and the Loony Musings of ‘Valley Heat’**\
+`Christian Duguay’s podcast purports to be about the neighbors in the Rancho Equestrian District of Burbank. One thing is for sure: It’s masterfully absurd.`\
+https://nytimes.com/2024/03/15/arts/television/valley-heat-christian-duguay-patton-oswalt.html
+
 **With the Capital One/Discover Deal, Credit Holds All the Cards**\
 `The Capital One/Discover deal will do nothing to fix our broken and predatory credit-card system.`\
 https://nytimes.com/2024/03/15/opinion/capital-one-discover-credit-cards-rewards-swipe-fees.html
