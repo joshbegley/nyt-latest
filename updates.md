@@ -1,3 +1,7 @@
+**Judge Delays Trump’s Manhattan Trial Until at Least Mid-April**\
+`The judge scheduled a hearing for March 25, the day the trial had been scheduled to begin, to consider Donald J. Trump’s request to further delay or dismiss the case.`\
+https://nytimes.com/2024/03/15/nyregion/trump-bragg-trial-date-delay.html
+
 **Serge Raoul, Whose SoHo Bistro Glittered With Stars, Dies at 86**\
 `Raoul’s, which he founded, was a celebrity magnet and a neighborhood institution in the 1970s and ’80s. But he had never planned on a life in the restaurant business.`\
 https://nytimes.com/2024/03/15/dining/serge-raoul-dead.html
