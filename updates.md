@@ -1,3 +1,7 @@
+**15mideast-crisis**\
+`At Least 20 Killed in Attack While Waiting for Aid, Gaza Officials Say`\
+https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news
+
 **Word of the Day: advocate**\
 `This word has appeared in 879 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/15/learning/word-of-the-day-advocate.html
