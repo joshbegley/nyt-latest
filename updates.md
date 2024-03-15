@@ -1,3 +1,7 @@
+**James Crumbley Found Guilty in Michigan School Shooting Trial**\
+`Mr. Crumbley and his wife, Jennifer Crumbley, who was found guilty on identical charges last month, are the first parents in the country to be directly charged for the deaths caused by their child in a mass shooting.`\
+https://nytimes.com/2024/03/14/us/james-crumbley-oxford-school-shooting.html
+
 **Variety: Cryptic Crossword**\
 `Richard Silvestri delivers a doozy of a challenge.`\
 https://nytimes.com/2024/03/14/crosswords/variety-cryptic-crossword.html

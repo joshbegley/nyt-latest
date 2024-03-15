@@ -35,6 +35,6 @@ https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/gaza-food-a
 https://nytimes.com/2024/03/14/arts/alec-baldwin-rust-shooting-indictment.html
 
 **James Crumbley Found Guilty in Michigan School Shooting Trial**\
-`Prosecutors charged Mr. Crumbley and his wife with involuntary manslaughter after their son killed four schoolmates. She was convicted last month on the same charges.`\
+`Mr. Crumbley and his wife, Jennifer Crumbley, who was found guilty on identical charges last month, are the first parents in the country to be directly charged for the deaths caused by their child in a mass shooting.`\
 https://nytimes.com/2024/03/14/us/james-crumbley-oxford-school-shooting.html
 
