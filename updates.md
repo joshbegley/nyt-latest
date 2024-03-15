@@ -1,3 +1,7 @@
+**Down the Rabbit Hole in Search of a Few Frames of Irish American History**\
+`The silent film “The Callahans and the Murphys” was pulled after an uproar over stereotyping. What happened next tantalized one fan of old movies.`\
+https://nytimes.com/2024/03/15/movies/silent-film-irish-callahans-muphys.html
+
 **Supreme Court Sets Rules for Blocking Citizens From Officials’ Accounts**\
 `In two unanimous rulings, the justices tried to distinguish between private conduct, which is not subject to the First Amendment, and state action, which is.`\
 https://nytimes.com/2024/03/15/us/supreme-court-social-media-free-speech.html
