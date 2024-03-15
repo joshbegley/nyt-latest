@@ -1,3 +1,7 @@
+**The East Coast Is Winning the Battle of the Orchestras**\
+`Two Los Angeles institutions have recently lost their musical directors.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/salonen-orchestra-conductor
+
 **Severe malnutrition in young children is rising fast in Gaza, UNICEF says.**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/gaza-malnutrition-food-children
