@@ -1,3 +1,7 @@
+**Kent Campbell, Pivotal Figure in the Fight Against Malaria, Dies at 80**\
+`Among his accomplishments during a four-decade career in public health, he helped to pioneer programs providing bed nets in Africa.`\
+https://nytimes.com/2024/03/15/health/kent-campbell-dead.html
+
 **Talking ‘Dune’: Book and Movies**\
 `The Times’s critic Alissa Wilkinson discusses Frank Herbert’s classic science fiction novel and Denis Villeneuve’s film adaptations.`\
 https://nytimes.com/2024/03/15/books/review/dune-book-movies.html
