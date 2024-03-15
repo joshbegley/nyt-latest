@@ -1,3 +1,7 @@
+**Severe malnutrition in young children is rising fast in Gaza, UNICEF says.**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/gaza-malnutrition-food-children
+
 **The House Races That Tell a Bigger Story**\
 `Four primary races that will shed light on some broader trends.`\
 https://nytimes.com/2024/03/15/us/politics/the-house-races-that-tell-a-bigger-story.html

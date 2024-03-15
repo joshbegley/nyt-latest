@@ -1,3 +1,7 @@
+**The East Coast Is Winning the Battle of the Orchestras**\
+`Two Los Angeles institutions have recently lost their musical directors.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/salonen-orchestra-conductor
+
 **The House Races That Tell a Bigger Story**\
 `Four primary races that will shed light on some broader trends.`\
 https://nytimes.com/2024/03/15/us/politics/the-house-races-that-tell-a-bigger-story.html
@@ -13,8 +17,4 @@ https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/gaza-malnut
 **Joe Camp, Filmmaker Behind ‘Benji’ Franchise, Dies at 84**\
 `He defied the odds to turn “Benji,” a live-action film series from a dog’s perspective, into a smash hit, and turned the film industry on its head in the process.`\
 https://nytimes.com/2024/03/15/us/joe-camp-benji-dead.html
-
-**A Prosecutor in the Trump Georgia Case Resigns**\
-`Also, a jolt to the housing market.`\
-https://nytimes.com/2024/03/15/briefing/georgia-trump-case-national-association-of-realtors-putin-gaza.html
 
