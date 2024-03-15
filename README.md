@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`The Russian election.`\
+https://nytimes.com/2024/03/15/briefing/russia-election-schumer-israel-netanyahu.html
+
 **Little Expected of New Palestinian Prime Minister**\
 `Muhammad Mustafa, a longtime adviser to President Mahmoud Abbas, is unlikely to produce the “revitalized Palestinian Authority” that Washington wants.`\
 https://nytimes.com/2024/03/15/world/europe/palestinian-authority-prime-minister.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/style/melanie-white-drew-trotter-wedding.html
 **Russia Strengthens Its Internet Controls in Critical Year for Putin**\
 `Facing an election this weekend and the fallout from Aleksei Navalny’s death and the war in Ukraine, Russia has intensified online censorship using techniques pioneered by China.`\
 https://nytimes.com/2024/03/15/technology/russia-internet-censors-vladimir-putin.html
-
-**Tornadoes Reported as Severe Weather Tears Through Midwest**\
-`A storm, believed to be a tornado, ripped through a mobile home community in eastern Indiana. Ohio and Kentucky were also hit.`\
-https://nytimes.com/2024/03/14/us/tornado-storms-ohio-indiana-kentucky.html
 
