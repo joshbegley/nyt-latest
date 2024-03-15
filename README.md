@@ -1,3 +1,7 @@
+**What’s the Best ‘Wheel of Fortune’ Strategy?**\
+`For 40 years, contestants on “Wheel of Fortune,” the TV game show staple, have hoped to reach the final puzzle, called the bonus round. A correct guess can mean a new car, $40,000 or even $1 million.`\
+https://nytimes.com/video/admin/100000009361492/whats-the-best-wheel-of-fortune-strategy.html
+
 **Macron and Scholz Meet, Looking to Patch Up Differences on Ukraine**\
 `The leaders of France and Germany will try to heal an increasingly public rift over their approach to the war, and hold talks alongside Poland’s prime minister on support for Kyiv.`\
 https://nytimes.com/2024/03/15/world/europe/macron-ukraine-war-support-eu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/us/elections/fani-willis-trump-georgia-prosecutio
 **Beach Town Residents Paid $600,000 for Sand. It Lasted a Few Days.**\
 `Residents who live on Salisbury Beach, a seaside community in northern Massachusetts, paid for the sand dunes to protect their beachfront homes from storms. Then a storm came.`\
 https://nytimes.com/2024/03/15/us/salisbury-beach-storm-sand.html
-
-**Scott McAfee, the presiding judge, is new to the bench.**\
-`By Richard Fausset and Danny Hakim`\
-https://nytimes.com/live/2024/03/15/us/fani-willis-trump-georgia/scott-mcafee-trump-georgia-case
 
