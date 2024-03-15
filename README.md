@@ -1,3 +1,15 @@
+**Witnesses say Israeli shelling killed Gazans awaiting food, but Israel blames Palestinian gunmen.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/witnesses-say-israeli-shelling-killed-gazans-awaiting-food-but-israel-blames-palestinian-gunmen
+
+**A Seal’s Spray Adds a Chapter to the Science of Spitting**\
+`The observation suggests that seals join cobras, archerfish and other animals known to spit, although researchers can only speculate about the reason for the mammal’s expectoration.`\
+https://nytimes.com/2024/03/15/science/spitting-seal-eagle.html
+
+**‘Masters of the Air’ Review: Hanks and Spielberg, Back at War**\
+`The team behind “Band of Brothers” and “The Pacific” returns to World War II and the Greatest Generation, this time piloting B-17 bombers.`\
+https://nytimes.com/2024/03/15/arts/television/masters-of-the-air-review.html
+
 **Who Is Ashleigh Merchant, the Lawyer Who Led the Effort to Oust Fani Willis?**\
 `Her revelation of a romantic relationship between the lead prosecutors in the Trump case threw the proceedings into turmoil.`\
 https://nytimes.com/2024/03/15/us/elections/ashleigh-merchant-fani-willis.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/15/arts/music/amplifier-newsletter-tanner-adell-that
 **A Damaged Fani Willis Picks Up the Pieces of Her Case Against Trump**\
 `By David French`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/fani-willis-trump-trial
-
-**A French Castle Filled With a Collector’s Treasures**\
-`The art and antiques dealer Yves Gastou was passionate about objects and their stories. His home in Biarritz overflowed with both.`\
-https://nytimes.com/2024/03/15/t-magazine/yves-gastou-biarritz-france-home.html
-
-**Becky G’s Rowdy Obsession and 8 More New Songs**\
-`Hear tracks by Willow, Tierra Whack, Willie Nelson and others.`\
-https://nytimes.com/2024/03/15/arts/music/becky-g-tierra-whack-willie-nelson.html
-
-**Supreme Court Narrowly Interprets Landmark Reduced Sentencing Law**\
-`The justices sided with the government in a case focused on who is eligible for shorter prison sentences under the bipartisan First Step Act passed in 2018.`\
-https://nytimes.com/2024/03/15/us/politics/supreme-court-sentencing-first-step-act.html
 
