@@ -1,3 +1,7 @@
+**The Big Number: $40 Billion**\
+`The market values of Match Group and Bumble have tumbled since 2021.`\
+https://nytimes.com/interactive/2024/03/15/business/match-group-bumble.html
+
 **Frightening Confrontation Led to Brooklyn Subway Shooting, Videos Show**\
 `Two men who the police say did not know each other were engaged in a violent argument before one of them was shot. A woman also appeared to stab one of the men in the back, a video shows.`\
 https://nytimes.com/2024/03/15/nyregion/subway-shooting-brooklyn-video-hoyt-schermerhorn.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/business/dealbook/soho-house-seeks-to-knock-back-
 **Senegal’s Leading Opposition Politicians Freed from Jail Just Before Election**\
 `The presidential candidate of the main opposition party, as well as its powerful founder, were released 10 days before the West African country is set to hold a national election.`\
 https://nytimes.com/2024/03/15/world/africa/senegal-sonko-opposition-released.html
-
-**Make Guinness Beef Stew on Saturday for Sunday**\
-`That way the flavors have time to deepen in the fridge, with plenty of celery root, carrots and parsnips, and lemon juice to make it pop.`\
-https://nytimes.com/2024/03/15/dining/make-guinness-beef-stew-on-saturday-for-sunday.html
 

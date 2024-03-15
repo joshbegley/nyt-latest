@@ -1,3 +1,7 @@
+**The Big Number: $40 Billion**\
+`The market values of Match Group and Bumble have tumbled since 2021.`\
+https://nytimes.com/interactive/2024/03/15/business/match-group-bumble.html
+
 **Frightening Confrontation Led to Brooklyn Subway Shooting, Videos Show**\
 `Two men who the police say did not know each other were engaged in a violent argument before one of them was shot. A woman also appeared to stab one of the men in the back, a video shows.`\
 https://nytimes.com/2024/03/15/nyregion/subway-shooting-brooklyn-video-hoyt-schermerhorn.html
