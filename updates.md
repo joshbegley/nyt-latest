@@ -1,3 +1,7 @@
+**Frightening Confrontation Led to Brooklyn Subway Shooting, Videos Show**\
+`Two men who the police say did not know each other were engaged in a violent argument before one of them was shot. A woman also appeared to stab one of the men in the back, a video shows.`\
+https://nytimes.com/2024/03/15/nyregion/subway-shooting-brooklyn-video-hoyt-schermerhorn.html
+
 **Down the Rabbit Hole in Search of a Few Frames of Irish American History**\
 `The silent film “The Callahans and the Murphys” was pulled after an uproar over stereotyping. What happened next tantalized one fan of old movies.`\
 https://nytimes.com/2024/03/15/movies/down-the-rabbit-hole-in-search-of-a-few-frames-of-irish-american-history.html
