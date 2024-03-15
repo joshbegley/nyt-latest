@@ -1,3 +1,7 @@
+**Little Expected of New Palestinian Prime Minister**\
+`Muhammad Mustafa, a longtime adviser to President Mahmoud Abbas, is unlikely to produce the “revitalized Palestinian Authority” that Washington wants.`\
+https://nytimes.com/2024/03/16/world/europe/palestinian-authority-prime-minister.html
+
 **15mideast-crisis**\
 `At Least 20 Killed in Attack While Waiting for Aid, Gaza Officials Say`\
 https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news
