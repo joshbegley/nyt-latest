@@ -1,3 +1,7 @@
+**The threat of unrest looms over the first Friday of Ramadan.**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/the-threat-of-unrest-looms-over-the-first-friday-of-ramadan
+
 **Technical Issues Reported at McDonald’s in Japan, Australia and Elsewhere**\
 `McDonald’s Japan apologized for a “system failure.” Some outlets in Australia closed their doors, while others reverted to taking orders with pen and paper, news outlets said.`\
 https://nytimes.com/2024/03/15/world/asia/mcdonalds-outage.html
