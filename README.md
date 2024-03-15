@@ -1,3 +1,15 @@
+**Biden Embraces Schumer’s Speech Castigating Netanyahu**\
+`President Biden did not explicitly endorse any of the specific criticisms in the speech. But his comments were the latest step in his escalating public critique of the Israeli prime minister.`\
+https://nytimes.com/2024/03/15/us/politics/biden-netanyahu-schumer-speech.html
+
+**Second Gaza Aid Convoy Ends in Violence, With at Least 20 Killed**\
+`The Gaza Health Ministry accused Israel of a “targeted” attack. Israel’s military denied the accusation, blaming Palestinian gunmen for the violence.`\
+https://nytimes.com/2024/03/15/world/middleeast/gaza-convoy-israel.html
+
+**Judge Rules D.A. Can Stay on Trump Georgia Case With Ex-Boyfriend Stepping Down**\
+`The highly anticipated ruling cut a middle path between removing Fani T. Willis for a conflict of interest and her full vindication.`\
+https://nytimes.com/2024/03/15/us/judge-rules-da-can-stay-on-trump-georgia-case-with-ex-boyfriend-stepping-down.html
+
 **Without Senators in Sight, Christine Blasey Ford Retells Her Story**\
 `Her lucid memoir, “One Way Back,” describes life before, during and after she testified that Brett Kavanaugh had sexually assaulted her in high school.`\
 https://nytimes.com/2024/03/15/books/review/christine-blasey-ford-memoir-one-way-back.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/15/business/tesla-discrimination-lawsuit-settlement.
 **Doug Blevins, Kicking Guru for College and N.F.L. Players, Dies at 60**\
 `He fine-tuned the mechanics of punters and kickers, including Adam Vinatieri, the N.F.L.’s career scoring leader, even as he lived with cerebral palsy.`\
 https://nytimes.com/2024/03/15/sports/football/doug-blevins-dead.html
-
-**Read Nathan Wade’s Resignation Letter**\
-`Fani Willis, the Fulton County district attorney, accepts Nathan Wade’s resignation from the Trump prosecution in Georgia.`\
-https://nytimes.com/interactive/2024/03/15/us/nathan-wade-resignation-letter.html
-
-**A Welcome Precedent for the Parents of Mass Shooters**\
-`Parents should be held responsible if they provide a gun to their deeply troubled child.`\
-https://nytimes.com/live/2024/03/12/opinion/thepoint/crumbley-parents-guilty
-
-**Uber and Lyft Threaten to Pull Out of Minneapolis After City Council Vote**\
-`Local lawmakers in the Minnesota city voted on Thursday to guarantee a minimum hourly wage to ride-hailing drivers.`\
-https://nytimes.com/2024/03/15/technology/uber-lyft-minneapolis-minimum-wage.html
 
