@@ -1,3 +1,7 @@
+**What’s the Best ‘Wheel of Fortune’ Strategy?**\
+`For 40 years, contestants on “Wheel of Fortune,” the TV game show staple, have hoped to reach the final puzzle, called the bonus round. A correct guess can mean a new car, $40,000 or even $1 million.`\
+https://nytimes.com/video/admin/100000009361492/whats-the-best-wheel-of-fortune-strategy.html
+
 **Macron and Scholz Meet, Looking to Patch Up Differences on Ukraine**\
 `The leaders of France and Germany will try to heal an increasingly public rift over their approach to the war, and hold talks alongside Poland’s prime minister on support for Kyiv.`\
 https://nytimes.com/2024/03/15/world/europe/macron-ukraine-war-support-eu.html
