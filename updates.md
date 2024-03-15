@@ -1,3 +1,7 @@
+**Truck Driver Charged Over Role in Deadly ‘Super Fog’ Pileup in Louisiana**\
+`Seven people were killed. The driver, Ronald Britt, is charged with negligent homicide in a crash that killed one of them.`\
+https://nytimes.com/2024/03/14/us/new-orleans-superfog-driver-charged.html
+
 **‘The Notebook’ Review: A Musical Tear-Jerker or Just All Wet?**\
 `The 2004 weepie comes to Broadway with songs by Ingrid Michaelson and a $5 box of tissues.`\
 https://nytimes.com/2024/03/14/theater/the-notebook-review-broadway-musical.html
