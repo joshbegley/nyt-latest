@@ -1,3 +1,11 @@
+**Netanyahu calls Hamas’s demands ‘ludicrous’ and proceeds with plans for ground invasion in Rafah.**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/netanyahu-calls-hamass-demands-ludicrous-and-proceeds-with-plans-for-ground-invasion-in-rafah
+
+**AMC Theaters, Looking for Movies, Turns to Blumhouse**\
+`The theater chain and the entertainment company are teaming up for a five-day festival of old horror films in 40 cities, compensating for a lack of new films.`\
+https://nytimes.com/2024/03/15/business/media/amc-theaters-blumhouse.html
+
 **The Big Number: $40 Billion**\
 `The market values of Match Group and Bumble have tumbled since 2021.`\
 https://nytimes.com/interactive/2024/03/15/business/match-group-bumble.html

@@ -1,3 +1,11 @@
+**Netanyahu calls Hamas’s demands ‘ludicrous’ and proceeds with plans for ground invasion in Rafah.**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/netanyahu-calls-hamass-demands-ludicrous-and-proceeds-with-plans-for-ground-invasion-in-rafah
+
+**AMC Theaters, Looking for Movies, Turns to Blumhouse**\
+`The theater chain and the entertainment company are teaming up for a five-day festival of old horror films in 40 cities, compensating for a lack of new films.`\
+https://nytimes.com/2024/03/15/business/media/amc-theaters-blumhouse.html
+
 **The Big Number: $40 Billion**\
 `The market values of Match Group and Bumble have tumbled since 2021.`\
 https://nytimes.com/interactive/2024/03/15/business/match-group-bumble.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/15/world/europe/ukraine-russia-odesa-missile-strikes
 **Highlights of the Judge’s Decision in the Georgia Trump Case**\
 `The district attorney, Fani T. Willis, was given two choices: have her ex-boyfriend withdraw from the prosecution team or step aside herself.`\
 https://nytimes.com/2024/03/15/us/elections/judge-mcafee-fani-willis-trump-georgia.html
-
-**Soho House Seeks to Knock Back Its Critics**\
-`The members club operator disclosed improving financial results as it faces criticism from a short seller and weighs going private again.`\
-https://nytimes.com/2024/03/15/business/dealbook/soho-house-seeks-to-knock-back-its-critics.html
-
-**Senegal’s Leading Opposition Politicians Freed from Jail Just Before Election**\
-`The presidential candidate of the main opposition party, as well as its powerful founder, were released 10 days before the West African country is set to hold a national election.`\
-https://nytimes.com/2024/03/15/world/africa/senegal-sonko-opposition-released.html
 
