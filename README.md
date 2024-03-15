@@ -16,7 +16,7 @@ https://nytimes.com/2024/03/15/world/africa/shabab-militants-somalia-syl-hotel.h
 
 **Anthony Boyle Is Moving Forward by Looking Backward**\
 `The actor has broken out on TV this year in the historical series “Masters of the Air” and “Manhunt.”`\
-https://nytimes.com/2024/03/15/arts/television/anthony-boyle-is-moving-forward-by-looking-backward.html
+https://nytimes.com/2024/03/15/arts/television/anthony-boyle-manhunt-masters-of-the-air.html
 
 **U.S. Taxpayers Have Subsidized Fossil Fuels for 111 Years, and Counting**\
 `For the fourth year in a row, President Biden is trying to eliminate federal tax breaks for coal, oil and gas companies. But fossil fuel subsidies have proven difficult to kill.`\
