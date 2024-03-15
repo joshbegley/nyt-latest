@@ -1,3 +1,19 @@
+**Senegal’s Leading Opposition Politicians Freed from Jail Just Before Election**\
+`The presidential candidate of the main opposition party, as well as its powerful founder, were released 10 days before the West African country is set to hold a national election.`\
+https://nytimes.com/2024/03/15/world/africa/senegal-sonko-opposition-released.html
+
+**Make Guinness Beef Stew on Saturday for Sunday**\
+`That way the flavors have time to deepen in the fridge, with plenty of celery root, carrots and parsnips, and lemon juice to make it pop.`\
+https://nytimes.com/2024/03/15/dining/make-guinness-beef-stew-on-saturday-for-sunday.html
+
+**Five Science Fiction Movies to Stream Now**\
+`Time loops in Japan, a seductive interface for agoraphobes and artificial intelligence battles make up this month’s science fiction streaming picks.`\
+https://nytimes.com/2024/03/15/movies/science-fiction-movies-streaming.html
+
+**Once You Watch an Ernie Gehr Film, You’ll Never See the World the Same Way**\
+`A MoMA series shows how the artist pushes the boundaries of cinema in short movies that both delight and baffle.`\
+https://nytimes.com/2024/03/15/movies/ernie-gehr-moma.html
+
 **The Best of Late Night This Week**\
 `TikTok was a big topic this week for the late-night hosts, as a bill to force the app’s sale made its way through the U.S. legislature. The hosts also discussed last Sunday’s Oscars. Here’s what they had to say.`\
 https://nytimes.com/interactive/2024/03/15/arts/television/best-of-late-night-tiktok.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/03/15/us/home-ownership-obstacles.html
 **6 Paperbacks to Read This Week **\
 `Including titles by Eleanor Catton, Catherine Lacey, Ilyon Woo and more. `\
 https://nytimes.com/interactive/2024/03/15/books/review/new-paperbacks-catton.html
-
-**Here’s How the Decision in the Trump Case Could Be Appealed**\
-`The defendants could ask the judge to go straight to an appeals court before trial, delaying the prosecution of the former president and his allies.`\
-https://nytimes.com/2024/03/15/us/elections/trump-georgia-appeal.html
-
-**Powerful Realtor Group Agrees to Slash Commissions to Settle Lawsuits**\
-`The National Association of Realtors will pay $418 million in damages and will amend several rules that housing experts say will drive down housing costs.`\
-https://nytimes.com/2024/03/15/realestate/national-association-realtors-commission-settlement.html
-
-**4 Ways a Settlement Could Change the Housing Industry**\
-`The influential National Association of Realtors agreed to make several changes to its policies to settle class-action lawsuits brought by home sellers who say they were forced to pay inflated commissions to real estate agents.`\
-https://nytimes.com/2024/03/15/realestate/nar-realtors-settlement-takeaways.html
-
-**Disqualification Isn’t the Only Threat to Fani Willis’s Prosecution**\
-`The Fulton County district attorney faces a series of inquiries that could perpetuate uncertainty about the Trump case for months to come.`\
-https://nytimes.com/2024/03/15/us/elections/fani-willis-trump-georgia-prosecution.html
 

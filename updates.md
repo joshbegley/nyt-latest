@@ -1,3 +1,19 @@
+**Senegal’s Leading Opposition Politicians Freed from Jail Just Before Election**\
+`The presidential candidate of the main opposition party, as well as its powerful founder, were released 10 days before the West African country is set to hold a national election.`\
+https://nytimes.com/2024/03/15/world/africa/senegal-sonko-opposition-released.html
+
+**Make Guinness Beef Stew on Saturday for Sunday**\
+`That way the flavors have time to deepen in the fridge, with plenty of celery root, carrots and parsnips, and lemon juice to make it pop.`\
+https://nytimes.com/2024/03/15/dining/make-guinness-beef-stew-on-saturday-for-sunday.html
+
+**Five Science Fiction Movies to Stream Now**\
+`Time loops in Japan, a seductive interface for agoraphobes and artificial intelligence battles make up this month’s science fiction streaming picks.`\
+https://nytimes.com/2024/03/15/movies/science-fiction-movies-streaming.html
+
+**Once You Watch an Ernie Gehr Film, You’ll Never See the World the Same Way**\
+`A MoMA series shows how the artist pushes the boundaries of cinema in short movies that both delight and baffle.`\
+https://nytimes.com/2024/03/15/movies/ernie-gehr-moma.html
+
 **The Best of Late Night This Week**\
 `TikTok was a big topic this week for the late-night hosts, as a bill to force the app’s sale made its way through the U.S. legislature. The hosts also discussed last Sunday’s Oscars. Here’s what they had to say.`\
 https://nytimes.com/interactive/2024/03/15/arts/television/best-of-late-night-tiktok.html
