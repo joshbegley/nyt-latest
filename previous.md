@@ -1,3 +1,7 @@
+**‘The Notebook’ Review: A Musical Tear-Jerker or Just All Wet?**\
+`The 2004 weepie comes to Broadway with songs by Ingrid Michaelson and a $5 box of tissues.`\
+https://nytimes.com/2024/03/14/theater/the-notebook-review-broadway-musical.html
+
 **2024 Is Hardly the Same Race as 2020**\
 `As President Biden and Donald J. Trump enter a new phase of the presidential race, they face different challenges compared to four years ago.`\
 https://nytimes.com/video/us/elections/100000009362694/trump-biden-2024-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/opinion/trump-biden-social-security-medicare.html
 **Florida Man Sues G.M. and LexisNexis Over Sale of His Cadillac Data**\
 `Romeo Chicco’s auto insurance rate doubled because of information about his speeding, braking and acceleration, according to his complaint.`\
 https://nytimes.com/2024/03/14/technology/gm-lexis-nexis-driving-data.html
-
-**As Irish Leader Visits U.S., Shamrock Camaraderie Is Strained by Gaza War**\
-`Prime Minister Leo Varadkar of Ireland has been one of the most outspoken critics of Israel’s war and has promised to raise the issue during a White House meeting meant to mark St. Patrick’s Day.`\
-https://nytimes.com/2024/03/14/us/politics/ireland-us-gaza.html
 
