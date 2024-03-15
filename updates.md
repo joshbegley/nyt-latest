@@ -1,3 +1,11 @@
+**A Welcome Precedent for the Parents of Mass Shooters**\
+`Parents should be held responsible if they provide a gun to their deeply troubled child.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/crumbley-parents-guilty
+
+**Kushner Developing Deals Overseas Even as His Father-in-Law Runs for President**\
+`Donald Trump’s son-in-law, who was also a senior White House official, said he was close to finalizing real estate projects in Albania and Serbia.`\
+https://nytimes.com/2024/03/15/us/politics/jared-kushner-pursuing-development-deals-in-albania-and-serbia.html
+
 **Uber and Lyft Threaten to Pull Out of Minneapolis After City Council Vote**\
 `Local lawmakers in the Minnesota city voted on Thursday to guarantee a minimum hourly wage to ride-hailing drivers.`\
 https://nytimes.com/2024/03/15/technology/uber-lyft-minneapolis-minimum-wage.html

@@ -1,3 +1,7 @@
+**A Welcome Precedent for the Parents of Mass Shooters**\
+`Parents should be held responsible if they provide a gun to their deeply troubled child.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/crumbley-parents-guilty
+
 **Uber and Lyft Threaten to Pull Out of Minneapolis After City Council Vote**\
 `Local lawmakers in the Minnesota city voted on Thursday to guarantee a minimum hourly wage to ride-hailing drivers.`\
 https://nytimes.com/2024/03/15/technology/uber-lyft-minneapolis-minimum-wage.html
@@ -6,8 +10,8 @@ https://nytimes.com/2024/03/15/technology/uber-lyft-minneapolis-minimum-wage.htm
 `A legal agreement scales back the longstanding requirement that the city provide shelter to homeless people who seek it. Families will not be affected.`\
 https://nytimes.com/2024/03/15/nyregion/nyc-right-to-shelter-homeless-migrants.html
 
-**Jared Kushner Pursuing Development Deals in Albania and Serbia**\
-`Donald Trump’s son-in-law said he was close to finalizing real estate projects in the two Balkan nations, an example of the Trump family’s pursuit of deals abroad as the former president seeks the White House.`\
+**Kushner Developing Deals Overseas Even as His Father-in-Law Runs for President**\
+`Donald Trump’s son-in-law, who was also a senior White House official, said he was close to finalizing real estate projects in Albania and Serbia.`\
 https://nytimes.com/2024/03/15/us/politics/jared-kushner-pursuing-development-deals-in-albania-and-serbia.html
 
 **Takeaways From the Ruling on Georgia Trump Prosecutor’s Conduct**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/technology/sam-bankman-fried-sentencing.html
 **Witnesses say Israeli shelling killed Gazans awaiting food, but Israel blames Palestinian gunmen.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/witnesses-say-israeli-shelling-killed-gazans-awaiting-food-but-israel-blames-palestinian-gunmen
-
-**A Seal’s Spray Adds a Chapter to the Science of Spitting**\
-`The observation suggests that seals join cobras, archerfish and other animals known to spit, although researchers can only speculate about the reason for the mammal’s expectoration.`\
-https://nytimes.com/2024/03/15/science/spitting-seal-eagle.html
 
