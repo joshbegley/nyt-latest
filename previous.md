@@ -1,3 +1,7 @@
+**The Big Dilemma Facing ByteDance’s U.S. Investors**\
+`Potential bidders are circling TikTok as many in Congress demand its split from its Chinese parent. But obstacles remain, starting with Beijing.`\
+https://nytimes.com/2024/03/15/business/dealbook/bytedance-tiktok-us-investors.html
+
 **A Potentially Hazardous Cat Puts a Japanese City on Alert**\
 `The animal fell into a tank of chemicals at a plating factory in Fukuyama and then wandered off into the night.`\
 https://nytimes.com/2024/03/15/world/asia/cat-chemicals-fukuyama-japan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/us/politics/biden-impeachment-republicans-letter.
 **Why Is Congress Probing a Union for Being Anti-Israel?**\
 `Republicans issue a subpoena over a resolution condemning the Gaza war.`\
 https://nytimes.com/2024/03/15/opinion/congress-anti-israel-antisemitism.html
-
-**The New York Times News Quiz, March 15, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/03/15/briefing/news-quiz-oscars-covid-ramadan.html
 

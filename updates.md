@@ -1,3 +1,7 @@
+**The Big Dilemma Facing ByteDance’s U.S. Investors**\
+`Potential bidders are circling TikTok as many in Congress demand its split from its Chinese parent. But obstacles remain, starting with Beijing.`\
+https://nytimes.com/2024/03/15/business/dealbook/bytedance-tiktok-us-investors.html
+
 **A Potentially Hazardous Cat Puts a Japanese City on Alert**\
 `The animal fell into a tank of chemicals at a plating factory in Fukuyama and then wandered off into the night.`\
 https://nytimes.com/2024/03/15/world/asia/cat-chemicals-fukuyama-japan.html
