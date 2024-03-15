@@ -1,3 +1,7 @@
+**15trump-georgia**\
+`Live Updates: Judge Says Fani Willis Can Stay on Trump Case, but Only if Former Romantic Partner Leaves`\
+https://nytimes.com/live/2024/03/15/us/fani-willis-trump-georgia
+
 **Closing Costs for Buying a Home Have Risen Along With Rates**\
 `These mortgage fees increased 22 percent from 2021 to 2022. One likely factor is the greater use of discount points to nudge interest rates down.`\
 https://nytimes.com/2024/03/15/business/home-closing-costs-rise.html
