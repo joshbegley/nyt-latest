@@ -1,3 +1,7 @@
+**Late Night Isn’t Shocked to See Trump Back in Court**\
+`”What’s still a mystery is why a bunch of top secret documents were taken by a president who, by all accounts, does not read,” Jimmy Kimmel said.`\
+https://nytimes.com/2024/03/15/arts/television/late-night-trump-court-case.html
+
 **‘Irish Wish’ Review: Beware of Getting What You Want**\
 `Lindsay Lohan plays a book editor whose romantic dream comes true in this Netflix rom-com. But then Ed Speleers shows up in a red sports car.`\
 https://nytimes.com/2024/03/15/movies/irish-wish-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/learning/word-of-the-day-advocate.html
 **Pets or Pests? How Australia Tackles its Two Cat Populations**\
 `Experts say that since the overpopulation of both affects native wildlife similarly, the country should use the same strategies in managing them.`\
 https://nytimes.com/2024/03/15/world/australia/australia-feral-domestic-cat-populations.html
-
-**‘Squid Game’ Actor Found Guilty of Sexual Misconduct**\
-`Oh Young-soo, who portrayed a contestant in the Netflix drama, was given a suspended sentence. He had been accused of inappropriately touching an actress.`\
-https://nytimes.com/2024/03/15/arts/squid-game-actor.html
 

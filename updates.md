@@ -1,3 +1,7 @@
+**Late Night Isn’t Shocked to See Trump Back in Court**\
+`”What’s still a mystery is why a bunch of top secret documents were taken by a president who, by all accounts, does not read,” Jimmy Kimmel said.`\
+https://nytimes.com/2024/03/15/arts/television/late-night-trump-court-case.html
+
 **‘Irish Wish’ Review: Beware of Getting What You Want**\
 `Lindsay Lohan plays a book editor whose romantic dream comes true in this Netflix rom-com. But then Ed Speleers shows up in a red sports car.`\
 https://nytimes.com/2024/03/15/movies/irish-wish-review.html
