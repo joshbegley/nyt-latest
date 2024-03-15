@@ -1,3 +1,7 @@
+**Gazan authorities said that more than 100 people waiting for food were also injured.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/gaza-food-aid-attack-israel
+
 **More than 100 were injured, Gazan authorities said.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/gaza-food-aid-attack-israel
