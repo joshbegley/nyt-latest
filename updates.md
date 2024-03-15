@@ -1,3 +1,7 @@
+**5 Cases When Parents Were Convicted After a Shooting by Their Child**\
+`The mother and father of a Michigan teenager who carried out a school shooting are among the parents who have been convicted of crimes in the aftermath.`\
+https://nytimes.com/2024/03/14/us/crumbley-michigan-shooting-parents-convicted.html
+
 **Gazan authorities said that more than 100 people waiting for food were also injured.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/gaza-food-aid-attack-israel
