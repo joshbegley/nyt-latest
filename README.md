@@ -22,7 +22,7 @@ https://nytimes.com/2024/03/14/us/james-crumbley-oxford-school-shooting.html
 `Judge Aileen M. Cannon rebuffed arguments by former President Donald J. Trump’s lawyers that the Espionage Act was impermissibly vague and should be struck down entirely.`\
 https://nytimes.com/interactive/2024/03/14/us/0314trumpdocuments.html
 
-**The Delays Keep Piling Up**\
+**Trump’s Court Delays Pile Up While the Presidential Race Gathers Speed**\
 `All four criminal cases against Donald Trump have become mired in issues that have pushed back the start of trials.`\
 https://nytimes.com/2024/03/14/us/politics/trump-trial-delays-manhattan-documents.html
 
