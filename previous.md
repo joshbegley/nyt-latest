@@ -1,3 +1,7 @@
+**The Best of Late Night This Week**\
+`TikTok was a big topic this week for the late-night hosts, as a bill to force the app’s sale made its way through the U.S. legislature. The hosts also discussed last Sunday’s Oscars. Here’s what they had to say.`\
+https://nytimes.com/interactive/2024/03/15/arts/television/best-of-late-night-tiktok.html
+
 **What’s the Best ‘Wheel of Fortune’ Strategy?**\
 `For 40 years, contestants on “Wheel of Fortune,” the TV game show staple, have hoped to reach the final puzzle, called the bonus round. A correct guess can mean a new car, $40,000 or even $1 million.`\
 https://nytimes.com/video/admin/100000009361492/whats-the-best-wheel-of-fortune-strategy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/realestate/nar-realtors-settlement-takeaways.html
 **Disqualification Isn’t the Only Threat to Fani Willis’s Prosecution**\
 `The Fulton County district attorney faces a series of inquiries that could perpetuate uncertainty about the Trump case for months to come.`\
 https://nytimes.com/2024/03/15/us/elections/fani-willis-trump-georgia-prosecution.html
-
-**Beach Town Residents Paid $600,000 for Sand. It Lasted a Few Days.**\
-`Residents who live on Salisbury Beach, a seaside community in northern Massachusetts, paid for the sand dunes to protect their beachfront homes from storms. Then a storm came.`\
-https://nytimes.com/2024/03/15/us/salisbury-beach-storm-sand.html
 
