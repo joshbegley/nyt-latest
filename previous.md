@@ -1,3 +1,7 @@
+**At These New York Art World Parties, Everyone’s a Critic**\
+`Guests like Darren Aronofsky, David Byrne and Huma Abedin channeled their inner Jerry Saltz at two of this season’s major events.`\
+https://nytimes.com/2024/03/15/style/whitney-biennial-opening-art-production-fund.html
+
 **Miami Beach, Seeking Quieter Spring Break, Sets Curfew**\
 `Revelers will be barred from staying out past midnight each night this weekend. In the weeks leading up to peak spring break season, city officials had warned that a curfew was likely.`\
 https://nytimes.com/2024/03/15/us/miami-beach-spring-break-curfew.html
@@ -13,8 +17,4 @@ https://nytimes.com/live/2024/03/12/opinion/thepoint/salonen-orchestra-conductor
 **The House Races That Tell a Bigger Story**\
 `Four primary races that will shed light on some broader trends.`\
 https://nytimes.com/2024/03/15/us/politics/the-house-races-that-tell-a-bigger-story.html
-
-**Pence Says He Won’t Endorse Trump, but Won’t Vote for Biden Either**\
-`The former vice president under Donald J. Trump said that the Jan. 6 attack on the U.S. Capitol was not the sole factor in his decision.`\
-https://nytimes.com/2024/03/15/us/politics/mike-pence-trump-endorsement.html
 

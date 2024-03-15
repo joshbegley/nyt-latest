@@ -1,3 +1,7 @@
+**At These New York Art World Parties, Everyone’s a Critic**\
+`Guests like Darren Aronofsky, David Byrne and Huma Abedin channeled their inner Jerry Saltz at two of this season’s major events.`\
+https://nytimes.com/2024/03/15/style/whitney-biennial-opening-art-production-fund.html
+
 **Miami Beach, Seeking Quieter Spring Break, Sets Curfew**\
 `Revelers will be barred from staying out past midnight each night this weekend. In the weeks leading up to peak spring break season, city officials had warned that a curfew was likely.`\
 https://nytimes.com/2024/03/15/us/miami-beach-spring-break-curfew.html
