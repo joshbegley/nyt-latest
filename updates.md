@@ -1,3 +1,11 @@
+**Highlights of the Judge’s Decision in the Georgia Trump Case**\
+`The district attorney, Fani T. Willis, was given two choices: have her ex-boyfriend withdraw from the prosecution team or step aside herself.`\
+https://nytimes.com/2024/03/15/us/elections/judge-mcafee-fani-willis-trump-georgia.html
+
+**Soho House Seeks to Knock Back Its Critics**\
+`The members club operator disclosed improving financial results as it faces criticism from a short seller and weighs going private again.`\
+https://nytimes.com/2024/03/15/business/dealbook/soho-house-seeks-to-knock-back-its-critics.html
+
 **Senegal’s Leading Opposition Politicians Freed from Jail Just Before Election**\
 `The presidential candidate of the main opposition party, as well as its powerful founder, were released 10 days before the West African country is set to hold a national election.`\
 https://nytimes.com/2024/03/15/world/africa/senegal-sonko-opposition-released.html
