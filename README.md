@@ -1,3 +1,7 @@
+**5 Cases When Parents Were Convicted After a Shooting by Their Child**\
+`The mother and father of a Michigan teenager who carried out a school shooting are among the parents who have been convicted of crimes in the aftermath.`\
+https://nytimes.com/2024/03/14/us/crumbley-michigan-shooting-parents-convicted.html
+
 **Gazan authorities said that more than 100 people waiting for food were also injured.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/gaza-food-aid-attack-israel
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/us/politics/ireland-us-gaza.html
 **Pierce Brosnan Pleads Guilty to Hiking in a Restricted Area at Yellowstone**\
 `The actor was ordered to pay a $500 fine and make a $1,000 donation to Yellowstone Forever, a nonprofit partner of the park.`\
 https://nytimes.com/2024/03/14/us/pierce-brosnan-yellowstone-hiking-guilty.html
-
-**Big Appeal, and Big Question Marks, in Possible TikTok Sale**\
-`Wall Street is abuzz about a potential deal, but the large price tag for the app is one of many factors that could limit the number of suitors.`\
-https://nytimes.com/2024/03/14/business/tiktok-ban-sale-mnuchin.html
 
