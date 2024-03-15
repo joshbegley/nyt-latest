@@ -1,3 +1,7 @@
+**Russian Missile Strikes Kill at Least 16 in Odesa, Ukraine Says**\
+`Two missiles hit the same spot, Ukrainian authorities said, killing some rescuers who had responded to the first attack.`\
+https://nytimes.com/2024/03/15/world/europe/ukraine-russia-odesa-missile-strikes.html
+
 **Highlights of the Judge’s Decision in the Georgia Trump Case**\
 `The district attorney, Fani T. Willis, was given two choices: have her ex-boyfriend withdraw from the prosecution team or step aside herself.`\
 https://nytimes.com/2024/03/15/us/elections/judge-mcafee-fani-willis-trump-georgia.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/admin/100000009361492/whats-the-best-wheel-of-fortune-
 **Macron and Scholz Meet, Looking to Patch Up Differences on Ukraine**\
 `The leaders of France and Germany will try to heal an increasingly public rift over their approach to the war, and hold talks alongside Poland’s prime minister on support for Kyiv.`\
 https://nytimes.com/2024/03/15/world/europe/macron-ukraine-war-support-eu.html
-
-**A Columbia Surgeon’s Study Was Pulled. He Kept Publishing Flawed Data.**\
-`The quiet withdrawal of a 2021 cancer study by Dr. Sam Yoon highlights scientific publishers’ lack of transparency around data problems.`\
-https://nytimes.com/video/science/100000009361577/cancer-studies-flawed-data.html
 
