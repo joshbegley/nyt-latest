@@ -1,3 +1,7 @@
+**More than 100 were injured, Gazan authorities said.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/gaza-food-aid-attack-israel
+
 **Alec Baldwin Seeks Dismissal of ‘Rust’ Manslaughter Indictment**\
 `Lawyers for the actor have begun his defense by denouncing the way the prosecutors carried out grand jury proceedings.`\
 https://nytimes.com/2024/03/14/arts/alec-baldwin-rust-shooting-indictment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/us/pierce-brosnan-yellowstone-hiking-guilty.html
 **Big Appeal, and Big Question Marks, in Possible TikTok Sale**\
 `Wall Street is abuzz about a potential deal, but the large price tag for the app is one of many factors that could limit the number of suitors.`\
 https://nytimes.com/2024/03/14/business/tiktok-ban-sale-mnuchin.html
-
-**Read the Rejection of Trump’s Motion to Dismiss the Documents Case**\
-`Judge Aileen M. Cannon rebuffed arguments by former President Donald J. Trump’s lawyers that the Espionage Act was impermissibly vague and should be struck down entirely.`\
-https://nytimes.com/interactive/2024/03/14/us/trump-documents-pdf.html
 

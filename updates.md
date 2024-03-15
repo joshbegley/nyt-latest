@@ -1,3 +1,7 @@
+**More than 100 were injured, Gazan authorities said.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/03/14/world/israel-hamas-war-gaza-news/gaza-food-aid-attack-israel
+
 **Alec Baldwin Seeks Dismissal of ‘Rust’ Manslaughter Indictment**\
 `Lawyers for the actor have begun his defense by denouncing the way the prosecutors carried out grand jury proceedings.`\
 https://nytimes.com/2024/03/14/arts/alec-baldwin-rust-shooting-indictment.html
