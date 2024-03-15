@@ -6,7 +6,7 @@ https://nytimes.com/2024/03/15/style/sturbridge-show-nyc-vintage-clothes.html
 `Pete Distad, the former executive in charge of distribution of Apple TV+, will run a new joint venture from Fox, Disney and Warner Bros. Discovery.`\
 https://nytimes.com/2024/03/15/business/media/pete-distad-sports-streaming.html
 
-**Biden embraces Schumer’s ‘good speech’ castigating Netanyahu.**\
+**Biden Embraces Schumer’s ‘Good Speech’ Castigating Netanyahu**\
 `While the president did not endorse Senator Chuck Schumer’s call for new elections in Israel, his general praise of the senator’s speech will be seen as a rebuke of Prime Minister Benjamin Netanyahu.`\
 https://nytimes.com/2024/03/15/world/middleeast/biden-netanyahu-schumer-speech.html
 
