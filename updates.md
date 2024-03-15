@@ -1,3 +1,7 @@
+**Word of the Day: advocate**\
+`This word has appeared in 879 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/15/learning/word-of-the-day-advocate.html
+
 **Pets or Pests? How Australia Tackles its Two Cat Populations**\
 `Experts say that since the overpopulation of both affects native wildlife similarly, the country should use the same strategies in managing them.`\
 https://nytimes.com/2024/03/15/world/australia/australia-feral-domestic-cat-populations.html
