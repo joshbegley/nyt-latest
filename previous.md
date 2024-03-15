@@ -1,40 +1,40 @@
-**The threat of unrest looms over the first Friday of Ramadan.**\
-`By Hiba Yazbek`\
-https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/the-threat-of-unrest-looms-over-the-first-friday-of-ramadan
+**With the Capital One/Discover Deal, Credit Holds All the Cards**\
+`The Capital One/Discover deal will do nothing to fix our broken and predatory credit-card system.`\
+https://nytimes.com/2024/03/15/opinion/capital-one-discover-credit-cards-rewards-swipe-fees.html
 
-**Technical Issues Reported at McDonald’s in Japan, Australia and Elsewhere**\
-`McDonald’s Japan apologized for a “system failure.” Some outlets in Australia closed their doors, while others reverted to taking orders with pen and paper, news outlets said.`\
-https://nytimes.com/2024/03/15/world/asia/mcdonalds-outage.html
+**Thinking of Driving in Manhattan This Weekend? Think Again.**\
+`The St. Patrick’s Day Parade and Half Marathon will tie up traffic on Saturday and Sunday.`\
+https://nytimes.com/2024/03/15/nyregion/st-patricks-day-parade-half-marathon-traffic.html
 
-**Late Night Isn’t Shocked to See Trump Back in Court**\
-`”What’s still a mystery is why a bunch of top secret documents were taken by a president who, by all accounts, does not read,” Jimmy Kimmel said.`\
-https://nytimes.com/2024/03/15/arts/television/late-night-trump-court-case.html
+**$1.5 Million Homes in Paris**\
+`An industrial loft in La Villette, a former workshop in Sainte-Avoye and an updated apartment with 19-century touches on Île Saint-Louis.`\
+https://nytimes.com/2024/03/15/realestate/paris-homes-sale-1-5-million.html
 
-**‘Irish Wish’ Review: Beware of Getting What You Want**\
-`Lindsay Lohan plays a book editor whose romantic dream comes true in this Netflix rom-com. But then Ed Speleers shows up in a red sports car.`\
-https://nytimes.com/2024/03/15/movies/irish-wish-review.html
+**We Cannot Condemn Crimes We Do Not Name**\
+`Russia’s invasion of Ukraine, justified with homophobia, has seen horrifying persecution of L.G.B.T.Q. people. The world should recognize it as a crime against humanity.`\
+https://nytimes.com/2024/03/15/opinion/ukraine-russia-putin-crimes.html
 
-**Families Moved From Shelter Where Police Fired Stun Gun at Migrant**\
-`Several families, including that of the man who recorded a video of officers using a stun gun on a migrant holding a toddler, were transferred to other shelters with little explanation.`\
-https://nytimes.com/2024/03/15/nyregion/migrants-queens-shelter.html
+**In Louisiana, Extreme Weather Does the Unforgivable: Endanger Crawfish Season**\
+`Drought conditions over the summer boiled crawfish before farmers could harvest them, creating a dire situation that the governor has declared a disaster.`\
+https://nytimes.com/2024/03/15/us/louisiana-extreme-weather-crawfish.html
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/15/crosswords/wordle-review.html
+**Aspen Has 153 New Acres of Terrain. Cue the Champagne.**\
+`This Colorado enclave draws both die-hard snow lovers and those who don’t even dream of skiing, be they museum-goers, gourmands or influencers.`\
+https://nytimes.com/2024/03/15/travel/aspen-colorado-skiing.html
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/15/crosswords/connections-companion.html
+**Irish Dance for All Levels, All Bodies, All Genders**\
+`Gayli, a dance night at a Brooklyn bar, provides a welcoming atmosphere for Irish social dancing, an exacting art form known for high-pressure competition.`\
+https://nytimes.com/2024/03/15/arts/dance/gayli-gender-inclusive-irish-dance-in-brooklyn.html
 
-**Why a Native American Nation Is Challenging the U.S. Over a 1794 Treaty**\
-`The Onondaga have asked an international commission to find that the United States violated a treaty guaranteeing the nation 2.5 million acres of land.`\
-https://nytimes.com/2024/03/15/nyregion/onondaga-reparations-lawsuit.html
+**‘Below Deck’ Sails Into a New Era**\
+`With a different captain at the helm and new production elements, the reality show about charter yachts is switching up its style.`\
+https://nytimes.com/2024/03/15/arts/television/below-deck-bravo-season-11.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/03/15/crosswords/spelling-bee-forum.html
+**Judge John Hodgman on the Lake Michigan Truther**\
+`His wife finds it offensive that he says it should also be considered part of Lake Huron.`\
+https://nytimes.com/2024/03/15/magazine/judge-john-hodgman-lake-michigan.html
 
-**15mideast-crisis**\
-`At Least 20 Killed in Attack While Waiting for Aid, Gaza Officials Say`\
-https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news
+**Justin Timberlake Looks Back but Does Not Reckon**\
+`On “Everything I Thought It Was,” his sixth solo album, this artist feigns new vulnerability but relies on old tricks and his ’N Sync bandmates.`\
+https://nytimes.com/2024/03/15/arts/music/justin-timberlake-everything-review-.html
 
