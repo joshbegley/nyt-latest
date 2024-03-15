@@ -1,3 +1,7 @@
+**Technical Issues Reported at McDonald’s in Japan, Australia and Elsewhere**\
+`McDonald’s Japan apologized for a “system failure.” Some outlets in Australia closed their doors, while others reverted to taking orders with pen and paper, news outlets said.`\
+https://nytimes.com/2024/03/15/world/asia/mcdonalds-outage.html
+
 **Late Night Isn’t Shocked to See Trump Back in Court**\
 `”What’s still a mystery is why a bunch of top secret documents were taken by a president who, by all accounts, does not read,” Jimmy Kimmel said.`\
 https://nytimes.com/2024/03/15/arts/television/late-night-trump-court-case.html
