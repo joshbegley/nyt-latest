@@ -1,3 +1,11 @@
+**Variety: Cryptic Crossword**\
+`Richard Silvestri delivers a doozy of a challenge.`\
+https://nytimes.com/2024/03/14/crosswords/variety-cryptic-crossword.html
+
+**Unlikely Gift**\
+`Daniel Grinberg adds a themeless grid to his portfolio of New York Times crosswords.`\
+https://nytimes.com/2024/03/14/crosswords/daily-puzzle-2024-03-15.html
+
 **New R.N.C. chair declares ‘a united front’ with Trump after sweeping changes.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/03/14/us/2024-election-biden-trump/new-rnc-chair-declares-a-united-front-with-trump-after-sweeping-changes
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/14/arts/alec-baldwin-rust-shooting-indictment.html
 **James Crumbley Found Guilty in Michigan School Shooting Trial**\
 `Prosecutors charged Mr. Crumbley and his wife with involuntary manslaughter after their son killed four schoolmates. She was convicted last month on the same charges.`\
 https://nytimes.com/2024/03/14/us/james-crumbley-oxford-school-shooting.html
-
-**Read the Rejection of Trump’s Motion to Dismiss the Documents Case**\
-`Judge Aileen M. Cannon rebuffed arguments by former President Donald J. Trump’s lawyers that the Espionage Act was impermissibly vague and should be struck down entirely.`\
-https://nytimes.com/interactive/2024/03/14/us/0314trumpdocuments.html
-
-**Trump’s Court Delays Pile Up While the Presidential Race Gathers Speed**\
-`All four criminal cases against Donald Trump have become mired in issues that have pushed back the start of trials.`\
-https://nytimes.com/2024/03/14/us/politics/trump-trial-delays-manhattan-documents.html
 
