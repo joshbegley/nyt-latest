@@ -1,3 +1,11 @@
+**A French Castle Filled With a Collector’s Treasures**\
+`The art and antiques dealer Yves Gastou was passionate about objects and their stories. His home in Biarritz overflowed with both.`\
+https://nytimes.com/2024/03/15/t-magazine/yves-gastou-biarritz-france-home.html
+
+**Becky G’s Rowdy Obsession and 8 More New Songs**\
+`Hear tracks by Willow, Tierra Whack, Willie Nelson and others.`\
+https://nytimes.com/2024/03/15/arts/music/becky-g-tierra-whack-willie-nelson.html
+
 **Supreme Court Narrowly Interprets Landmark Reduced Sentencing Law**\
 `The justices sided with the government in a case focused on who is eligible for shorter prison sentences under the bipartisan First Step Act passed in 2018.`\
 https://nytimes.com/2024/03/15/us/politics/supreme-court-sentencing-first-step-act.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/15/style/sturbridge-show-nyc-vintage-clothes.html
 **Former Apple Executive to Lead Sports Streaming Service**\
 `Pete Distad, the former executive in charge of distribution of Apple TV+, will run a new joint venture from Fox, Disney and Warner Bros. Discovery.`\
 https://nytimes.com/2024/03/15/business/media/pete-distad-sports-streaming.html
-
-**Biden Embraces Schumer’s ‘Good Speech’ Castigating Netanyahu**\
-`While the president did not endorse Senator Chuck Schumer’s call for new elections in Israel, his general praise of the senator’s speech will be seen as a rebuke of Prime Minister Benjamin Netanyahu.`\
-https://nytimes.com/2024/03/15/world/middleeast/biden-netanyahu-schumer-speech.html
-
-**Video Shows Moments Leading Up to Brooklyn Subway Shooting**\
-`Video taken by a passenger on the subway shows two men fighting as panicked riders rush to the opposite side of the subway car. Gunshots can be heard as people run out of the train car.`\
-https://nytimes.com/video/us/100000009363784/subway-shooting-brooklyn-hoyt-schermerhorn.html
 
