@@ -1,3 +1,7 @@
+**Judge Delays Trump’s Manhattan Trial Until at Least Mid-April**\
+`The judge scheduled a hearing for March 25, the day the trial had been scheduled to begin, to consider Donald J. Trump’s request to further delay or dismiss the case.`\
+https://nytimes.com/2024/03/15/nyregion/trump-bragg-trial-date-delay.html
+
 **Serge Raoul, Whose SoHo Bistro Glittered With Stars, Dies at 86**\
 `Raoul’s, which he founded, was a celebrity magnet and a neighborhood institution in the 1970s and ’80s. But he had never planned on a life in the restaurant business.`\
 https://nytimes.com/2024/03/15/dining/serge-raoul-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/technology/uber-lyft-minneapolis-minimum-wage.htm
 **New York City to Impose Stricter Limits on Migrant Adults in Shelters**\
 `A legal agreement scales back the longstanding requirement that the city provide shelter to homeless people who seek it. Families will not be affected.`\
 https://nytimes.com/2024/03/15/nyregion/nyc-right-to-shelter-homeless-migrants.html
-
-**Kushner Developing Deals Overseas Even as His Father-in-Law Runs for President**\
-`Donald Trump’s son-in-law, who was also a senior White House official, said he was close to finalizing real estate projects in Albania and Serbia.`\
-https://nytimes.com/2024/03/15/us/politics/jared-kushner-pursuing-development-deals-in-albania-and-serbia.html
 
