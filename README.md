@@ -18,7 +18,3 @@ https://nytimes.com/2024/03/15/us/politics/biden-netanyahu-schumer-speech.html
 `The Gaza Health Ministry accused Israel of a “targeted” attack. Israel’s military denied the accusation, blaming Palestinian gunmen for the violence.`\
 https://nytimes.com/2024/03/15/world/middleeast/gaza-convoy-israel.html
 
-**Judge Rules D.A. Can Stay on Trump Georgia Case With Ex-Boyfriend Stepping Down**\
-`The highly anticipated ruling cut a middle path between removing Fani T. Willis for a conflict of interest and her full vindication.`\
-https://nytimes.com/2024/03/15/us/fani-willis-trump-georgia-ruling.html
-
