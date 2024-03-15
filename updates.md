@@ -1,3 +1,7 @@
+**New R.N.C. chair declares ‘a united front’ with Trump after sweeping changes.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/03/14/us/2024-election-biden-trump/new-rnc-chair-declares-a-united-front-with-trump-after-sweeping-changes
+
 **Truck Driver Charged Over Role in Deadly ‘Super Fog’ Pileup in Louisiana**\
 `Seven people were killed. The driver, Ronald Britt, is charged with negligent homicide in a crash that killed one of them.`\
 https://nytimes.com/2024/03/14/us/new-orleans-superfog-driver-charged.html
