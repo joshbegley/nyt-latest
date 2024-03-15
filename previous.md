@@ -1,4 +1,8 @@
-**New York City Will No Longer Shelter Migrant Adults After 30 Days**\
+**Uber and Lyft Threaten to Pull Out of Minneapolis After City Council Vote**\
+`Local lawmakers in the Minnesota city voted on Thursday to guarantee a minimum hourly wage to ride-hailing drivers.`\
+https://nytimes.com/2024/03/15/technology/uber-lyft-minneapolis-minimum-wage.html
+
+**New York City Will No Longer Shelter Many Migrant Adults After 30 Days**\
 `A legal agreement scales back the longstanding requirement that the city provide shelter to homeless people who seek it. Families will not be affected.`\
 https://nytimes.com/2024/03/15/nyregion/nyc-right-to-shelter-homeless-migrants.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/witnesses-s
 **A Seal’s Spray Adds a Chapter to the Science of Spitting**\
 `The observation suggests that seals join cobras, archerfish and other animals known to spit, although researchers can only speculate about the reason for the mammal’s expectoration.`\
 https://nytimes.com/2024/03/15/science/spitting-seal-eagle.html
-
-**‘Masters of the Air’ Review: Hanks and Spielberg, Back at War**\
-`The team behind “Band of Brothers” and “The Pacific” returns to World War II and the Greatest Generation, this time piloting B-17 bombers.`\
-https://nytimes.com/2024/03/15/arts/television/masters-of-the-air-review.html
 

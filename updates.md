@@ -1,3 +1,11 @@
+**Uber and Lyft Threaten to Pull Out of Minneapolis After City Council Vote**\
+`Local lawmakers in the Minnesota city voted on Thursday to guarantee a minimum hourly wage to ride-hailing drivers.`\
+https://nytimes.com/2024/03/15/technology/uber-lyft-minneapolis-minimum-wage.html
+
+**New York City Will No Longer Shelter Many Migrant Adults After 30 Days**\
+`A legal agreement scales back the longstanding requirement that the city provide shelter to homeless people who seek it. Families will not be affected.`\
+https://nytimes.com/2024/03/15/nyregion/nyc-right-to-shelter-homeless-migrants.html
+
 **New York City Will No Longer Shelter Migrant Adults After 30 Days**\
 `A legal agreement scales back the longstanding requirement that the city provide shelter to homeless people who seek it. Families will not be affected.`\
 https://nytimes.com/2024/03/15/nyregion/nyc-right-to-shelter-homeless-migrants.html
