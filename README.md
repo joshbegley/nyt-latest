@@ -1,3 +1,11 @@
+**Supreme Court Sets Rules for Blocking Citizens From Officials’ Accounts**\
+`In two unanimous rulings, the justices tried to distinguish between private conduct, which is not subject to the First Amendment, and state action, which is.`\
+https://nytimes.com/2024/03/15/us/supreme-court-social-media-free-speech.html
+
+**U.S. and Allies Warn Iran Not to Send Missiles to Russia**\
+`The Group of 7 major industrial powers threatened “significant measures” against Tehran if it aids Moscow’s war against Ukraine, including a cutoff of Iran Air flights to Europe.`\
+https://nytimes.com/2024/03/15/us/politics/us-warns-iran-missiles-russia.html
+
 **Netanyahu calls Hamas’s demands ‘ludicrous’ and proceeds with plans for ground invasion in Rafah.**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/netanyahu-calls-hamass-demands-ludicrous-and-proceeds-with-plans-for-ground-invasion-in-rafah
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/15/world/europe/xabi-alonso-liverpool-bayern.html
 **First Ship Carrying Food Aid Arrives in Gaza**\
 `The ship, the Open Arms, carried some 200 metric tons of rice, flour and other food from Cyprus. It is seen as a pilot effort for a new maritime aid corridor.`\
 https://nytimes.com/2024/03/15/world/middleeast/gaza-food-aid-ship.html
-
-**Russian Missile Strikes Kill at Least 16 in Odesa, Ukraine Says**\
-`Two missiles hit the same spot, Ukrainian authorities said, killing some rescuers who had responded to the first attack.`\
-https://nytimes.com/2024/03/15/world/europe/ukraine-russia-odesa-missile-strikes.html
-
-**Highlights of the Judge’s Decision in the Georgia Trump Case**\
-`The district attorney, Fani T. Willis, was given two choices: have her ex-boyfriend withdraw from the prosecution team or step aside herself.`\
-https://nytimes.com/2024/03/15/us/elections/judge-mcafee-fani-willis-trump-georgia.html
 
