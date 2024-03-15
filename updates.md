@@ -1,3 +1,11 @@
+**New York City Will No Longer Shelter Migrant Adults After 30 Days**\
+`A legal agreement scales back the longstanding requirement that the city provide shelter to homeless people who seek it. Families will not be affected.`\
+https://nytimes.com/2024/03/15/nyregion/nyc-right-to-shelter-homeless-migrants.html
+
+**Jared Kushner Pursuing Development Deals in Albania and Serbia**\
+`Donald Trump’s son-in-law said he was close to finalizing real estate projects in the two Balkan nations, an example of the Trump family’s pursuit of deals abroad as the former president seeks the White House.`\
+https://nytimes.com/2024/03/15/us/politics/jared-kushner-pursuing-development-deals-in-albania-and-serbia.html
+
 **Takeaways From the Ruling on Georgia Trump Prosecutor’s Conduct**\
 `Fani Willis faces an unusual decision after the much-anticipated ruling on whether she should be disqualified for having had a romantic relationship with a subordinate.`\
 https://nytimes.com/2024/03/15/us/elections/fani-willis-trump-georgia-takeaways.html
