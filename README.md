@@ -1,3 +1,7 @@
+**Here’s How the Decision in the Trump Case Could Be Appealed**\
+`The defendants could ask the judge to go straight to an appeals court before trial, delaying the prosecution of the former president and his allies.`\
+https://nytimes.com/2024/03/15/us/elections/trump-georgia-appeal.html
+
 **Powerful Realtor Group Agrees to Slash Commissions to Settle Lawsuits**\
 `The National Association of Realtors will pay $418 million in damages and will amend several rules that housing experts say will drive down housing costs.`\
 https://nytimes.com/2024/03/15/realestate/national-association-realtors-commission-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/us/elections/fani-willis-nathan-wade-trump-prosec
 **This Treasure Hunter’s Latest Find? A 1,000-Year-Old Viking Sword.**\
 `Trevor Penny was magnet fishing in an English waterway near Oxford when he pulled out a rusty sword. Experts say it’s a Viking sword that is probably more than 1,000 years old.`\
 https://nytimes.com/2024/03/15/world/europe/viking-sword-found-uk-river.html
-
-**What China Is Saying About the TikTok Furor in Washington**\
-`A bill to force TikTok’s sale in the United States has been criticized by Beijing but has not triggered a high-alert public response or retaliation.`\
-https://nytimes.com/2024/03/15/business/china-tiktok-house-bill.html
 
