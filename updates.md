@@ -1,3 +1,7 @@
+**‘Squid Game’ Actor Found Guilty of Sexual Misconduct**\
+`Oh Young-soo, who portrayed a contestant in the Netflix drama, was given a suspended sentence. He had been accused of inappropriately touching an actress.`\
+https://nytimes.com/2024/03/15/arts/squid-game-actor.html
+
 **Friday Briefing**\
 `The Russian election.`\
 https://nytimes.com/2024/03/15/briefing/russia-election-schumer-israel-netanyahu.html
