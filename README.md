@@ -1,3 +1,7 @@
+**‘Squid Game’ Actor Found Guilty of Sexual Misconduct**\
+`Oh Young-soo, who portrayed a contestant in the Netflix drama, was given a suspended sentence. He had been accused of inappropriately touching an actress.`\
+https://nytimes.com/2024/03/15/arts/squid-game-actor.html
+
 **Friday Briefing**\
 `The Russian election.`\
 https://nytimes.com/2024/03/15/briefing/russia-election-schumer-israel-netanyahu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/style/modern-love-miscarriage-please-stay-baby-pl
 **First Came Family. Then Came Marriage (to a Grandmother’s Relief).**\
 `Twelve years ago, Melanie White sold Drew Trotter nine pairs of jeans. She also won his heart.`\
 https://nytimes.com/2024/03/15/style/melanie-white-drew-trotter-wedding.html
-
-**Russia Strengthens Its Internet Controls in Critical Year for Putin**\
-`Facing an election this weekend and the fallout from Aleksei Navalny’s death and the war in Ukraine, Russia has intensified online censorship using techniques pioneered by China.`\
-https://nytimes.com/2024/03/15/technology/russia-internet-censors-vladimir-putin.html
 
