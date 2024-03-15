@@ -1,3 +1,11 @@
+**Supreme Court Narrowly Interprets Landmark Reduced Sentencing Law**\
+`The justices sided with the government in a case focused on who is eligible for shorter prison sentences under the bipartisan First Step Act passed in 2018.`\
+https://nytimes.com/2024/03/15/us/politics/supreme-court-sentencing-first-step-act.html
+
+**Shabab Gunmen Penetrate Heavy Security to Besiege Hotel in Somalia**\
+`The attack in the capital, which left three dead and 27 injured, points to Al Shabab’s ability to continue terrorizing the country, despite a Somali government offensive and American airstrikes.`\
+https://nytimes.com/2024/03/15/world/africa/shabab-militants-somalia-syl-hotel.html
+
 **Anthony Boyle Is Moving Forward by Looking Backward**\
 `The actor has broken out on TV this year in the historical series “Masters of the Air” and “Manhunt.”`\
 https://nytimes.com/2024/03/15/arts/television/anthony-boyle-is-moving-forward-by-looking-backward.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/15/world/middleeast/biden-netanyahu-schumer-speech.h
 **Video Shows Moments Leading Up to Brooklyn Subway Shooting**\
 `Video taken by a passenger on the subway shows two men fighting as panicked riders rush to the opposite side of the subway car. Gunshots can be heard as people run out of the train car.`\
 https://nytimes.com/video/us/100000009363784/subway-shooting-brooklyn-hoyt-schermerhorn.html
-
-**Boeing Directs Airlines to Check 787 Cockpit Seats After Latam Incident**\
-`The sudden plunge of a Latam Airlines 787 Dreamliner this week might have been caused by a flight attendant hitting a switch on a cockpit seat.`\
-https://nytimes.com/2024/03/15/business/boeing-787-dreamliner-cockpit-seat-latam.html
-
-**Schumer’s Strong Condemnation of Netanyahu**\
-`Responses to the senator’s call for new elections in Israel. Also: The United Arab Emirates and Israel; a view from New York’s City Hall; Haley voters.`\
-https://nytimes.com/2024/03/15/opinion/schumer-netanyahu-israel.html
 
