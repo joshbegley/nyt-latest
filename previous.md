@@ -1,3 +1,19 @@
+**Disqualification Isn’t the Only Threat to Fani Willis’s Prosecution**\
+`The Fulton County district attorney faces a series of inquiries that could perpetuate uncertainty about the Trump case for months to come.`\
+https://nytimes.com/2024/03/15/us/elections/fani-willis-trump-georgia-prosecution.html
+
+**Beach Town Residents Paid $600,000 for Sand. Much of It Was Washed Away.**\
+`Residents who live on Salisbury Beach, a seaside community in northern Massachusetts, paid for the sand dunes to protect their beachfront homes from storms. Then a storm came.`\
+https://nytimes.com/2024/03/15/us/salisbury-beach-storm-sand.html
+
+**Scott McAfee, the presiding judge, is new to the bench.**\
+`By Richard Fausset and Danny Hakim`\
+https://nytimes.com/live/2024/03/15/us/fani-willis-trump-georgia/scott-mcafee-trump-georgia-case
+
+**Schumer’s Critique of Netanyahu Reveals a Growing Gap, Analysts Say**\
+`Many Israelis support the Senate majority leader’s call for early elections, but even Netanyahu’s rivals were reluctant to seize on the criticism while the country is focused on the war in Gaza.`\
+https://nytimes.com/2024/03/15/world/middleeast/schumer-israel-netanyahu-us.html
+
 **Read the Judge’s Decision on Disqualification in the Trump Case**\
 `Read the ruling by Judge Scott McAfee.`\
 https://nytimes.com/interactive/2024/03/15/us/judge-s-decision-on-disqualification-in-the-trump-case.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/03/15/business/home-closing-costs-rise.html
 **How a Tiny Arts Center Is Helping a Rural County Heal After Wildfires**\
 `The Middletown Art Center in Lake County has turned into a “focal point for the area’s resilience and growth,” one resident said.`\
 https://nytimes.com/2024/03/15/us/lake-county-california-art-center.html
-
-**If Nvidia Keeps Rising Like This, It Will Be Bigger Than the Global Economy**\
-`A.I. fervor has rocketed the chip company’s share price upward. Our columnist asked A.I. chatbots how big Nvidia would become if it kept growing as fast as it had over the past year.`\
-https://nytimes.com/2024/03/15/business/nvidia-stock-market-ai-bubble.html
-
-**15trump-georgia**\
-`Live Updates: Judge Says Fani Willis Can Stay on Trump Case, but Only if Former Romantic Partner Leaves`\
-https://nytimes.com/live/2024/03/15/us/fani-willis-trump-georgia
-
-**Data Dump Exposes the Fuzzy Lines Between Money and Politics in India**\
-`Lists of donors and beneficiaries cast government contracts and police investigations in an unflattering new light.`\
-https://nytimes.com/2024/03/15/world/asia/india-election-donations.html
-
-**The Big Dilemma Facing ByteDance’s U.S. Investors**\
-`Potential bidders are circling TikTok as many in Congress demand its split from its Chinese parent. But obstacles remain, starting with Beijing.`\
-https://nytimes.com/2024/03/15/business/dealbook/bytedance-tiktok-us-investors.html
 
