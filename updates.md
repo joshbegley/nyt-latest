@@ -1,3 +1,15 @@
+**Takeaways From the Ruling on Georgia Trump Prosecutor’s Conduct**\
+`Fani Willis faces an unusual decision after the much-anticipated ruling on whether she should be disqualified for having had a romantic relationship with a subordinate.`\
+https://nytimes.com/2024/03/15/us/elections/fani-willis-trump-georgia-takeaways.html
+
+**Working in Old Age Can’t Be the Only Answer to the Retirement Crisis**\
+`Longer lives mean longer careers, right? It’s not so simple.`\
+https://nytimes.com/2024/03/15/opinion/retirement-old-age-savings.html
+
+**My Wife Plans to End Her Life. Should I Tell My Very Religious Father?**\
+`The magazine’s Ethicist columnist on whether to disclose a delicate decision to a loved one who may oppose it.`\
+https://nytimes.com/2024/03/15/magazine/wife-assisted-father-ethics.html
+
 **Kent Campbell, Pivotal Figure in the Fight Against Malaria, Dies at 80**\
 `Among his accomplishments during a four-decade career in public health, he helped to pioneer programs providing bed nets in Africa.`\
 https://nytimes.com/2024/03/15/health/kent-campbell-dead.html
