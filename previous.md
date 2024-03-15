@@ -1,3 +1,11 @@
+**Anthony Boyle Is Moving Forward by Looking Backward**\
+`The actor has broken out on TV this year in the historical series “Masters of the Air” and “Manhunt.”`\
+https://nytimes.com/2024/03/15/arts/television/anthony-boyle-is-moving-forward-by-looking-backward.html
+
+**U.S. Taxpayers Have Subsidized Fossil Fuels for 111 Years, and Counting**\
+`For the fourth year in a row, President Biden is trying to eliminate federal tax breaks for coal, oil and gas companies. But fossil fuel subsidies have proven difficult to kill.`\
+https://nytimes.com/2024/03/15/climate/tax-breaks-oil-gas-us.html
+
 **Mainstream G.O.P. Group to Target Bob Good As It Shifts Mission and Members**\
 `An organization founded to support Republican moderates is taking aim at a Representative Bob Good of Virginia and backing a hard-right candidate who aligns with its new focus: purging Congress of G.O.P. rebels.`\
 https://nytimes.com/2024/03/15/us/politics/mainstream-gop-group-to-target-bob-good-as-it-shifts-mission-and-members.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/15/business/boeing-787-dreamliner-cockpit-seat-latam
 **Schumer’s Strong Condemnation of Netanyahu**\
 `Responses to the senator’s call for new elections in Israel. Also: The United Arab Emirates and Israel; a view from New York’s City Hall; Haley voters.`\
 https://nytimes.com/2024/03/15/opinion/schumer-netanyahu-israel.html
-
-**How Revelations of a Prosecutors’ Romance Upended the Georgia Trump Case**\
-`A timeline of when the relationship between Fani Willis and Nathan Wade came to light, and how defense lawyers used it to attack the prosecutors.`\
-https://nytimes.com/2024/03/15/us/elections/fani-willis-nathan-wade-trump-timeline.html
-
-**Thomas Adès Takes a Step Toward the Classical Music Canon**\
-`As Adès premieres an orchestral work, “The Exterminating Angel” is receiving something rare in contemporary opera: a new production.`\
-https://nytimes.com/2024/03/15/arts/music/thomas-ades-exterminating-angel-aquifer.html
 
