@@ -1,6 +1,6 @@
 **Disqualification Isn’t the Only Threat to Fani Willis’s Prosecution**\
 `The Fulton County district attorney faces a series of inquiries that could perpetuate uncertainty about the Trump case for months to come.`\
-https://nytimes.com/2024/03/15/us/elections/disqualification-isnt-the-only-threat-to-fani-williss-prosecution.html
+https://nytimes.com/2024/03/15/us/elections/fani-willis-trump-georgia-prosecution.html
 
 **Beach Town Residents Paid $600,000 for Sand. Much of It Was Washed Away.**\
 `Residents who live on Salisbury Beach, a seaside community in northern Massachusetts, paid for the sand dunes to protect their beachfront homes from storms. Then a storm came.`\
