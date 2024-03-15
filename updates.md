@@ -1,3 +1,15 @@
+**How Revelations of a Prosecutors’ Romance Upended the Georgia Trump Case**\
+`A timeline of when the relationship between Fani Willis and Nathan Wade came to light, and how defense lawyers used it to attack the prosecutors.`\
+https://nytimes.com/2024/03/15/us/elections/fani-willis-nathan-wade-trump-timeline.html
+
+**Thomas Adès Takes a Step Toward the Classical Music Canon**\
+`As Adès premieres an orchestral work, “The Exterminating Angel” is receiving something rare in contemporary opera: a new production.`\
+https://nytimes.com/2024/03/15/arts/music/thomas-ades-exterminating-angel-aquifer.html
+
+**Welcome to the London Book Fair, Where Everyone Knows Their Place**\
+`If you want to understand the power map of the publishing industry, just look at this event’s floor plan.`\
+https://nytimes.com/2024/03/15/books/london-book-fair.html
+
 **Overlooked No More: Miriam Solovieff, Lauded Violinist Who Suffered Tragedy**\
 `She led a successful career despite coping with a horrific event that she witnessed at 18: the killing of her mother and sister at the hands of her father.`\
 https://nytimes.com/2024/03/15/obituaries/miriam-solovieff-overlooked.html
