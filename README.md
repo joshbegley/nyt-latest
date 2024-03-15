@@ -34,7 +34,3 @@ https://nytimes.com/2024/03/15/dining/we-want-to-see-your-grocery-shopping-recei
 `Barry Keoghan, Paul Mescal and Cillian Murphy are among a crop of Irish hunks who have infused popular culture with big Irish energy.`\
 https://nytimes.com/2024/03/15/style/irish-actors-cillian-murphy-barry-keoghan.html
 
-**Tesla Settles Discrimination Suit With Former Factory Worker**\
-`The carmaker and energy company settled with a Black man who had worked at its California factory and had won a $3 million judgment against the company.`\
-https://nytimes.com/2024/03/15/business/tesla-discrimination-lawsuit-settlement.html
-
