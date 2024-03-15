@@ -1,40 +1,40 @@
-**With the Capital One/Discover Deal, Credit Holds All the Cards**\
-`The Capital One/Discover deal will do nothing to fix our broken and predatory credit-card system.`\
-https://nytimes.com/2024/03/15/opinion/capital-one-discover-credit-cards-rewards-swipe-fees.html
+**Schumer’s Blast at Netanyahu Might Have an Unintended Effect**\
+`Israelis aren’t likely to appreciate being told who should lead their government.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/schumer-netanyahu-israel
 
-**Thinking of Driving in Manhattan This Weekend? Think Again.**\
-`The St. Patrick’s Day Parade and Half Marathon will tie up traffic on Saturday and Sunday.`\
-https://nytimes.com/2024/03/15/nyregion/st-patricks-day-parade-half-marathon-traffic.html
+**White House Calls on Republicans to End Biden Impeachment Inquiry**\
+`The president’s counsel told Speaker Mike Johnson that it was “obviously time to move on,” citing G.O.P. lawmakers’ own doubts about the impeachment bid.`\
+https://nytimes.com/2024/03/15/us/politics/biden-impeachment-republicans-letter.html
 
-**$1.5 Million Homes in Paris**\
-`An industrial loft in La Villette, a former workshop in Sainte-Avoye and an updated apartment with 19-century touches on Île Saint-Louis.`\
-https://nytimes.com/2024/03/15/realestate/paris-homes-sale-1-5-million.html
+**Why Is Congress Probing a Union for Being Anti-Israel?**\
+`Republicans issue a subpoena over a resolution condemning the Gaza war.`\
+https://nytimes.com/2024/03/15/opinion/congress-anti-israel-antisemitism.html
 
-**We Cannot Condemn Crimes We Do Not Name**\
-`Russia’s invasion of Ukraine, justified with homophobia, has seen horrifying persecution of L.G.B.T.Q. people. The world should recognize it as a crime against humanity.`\
-https://nytimes.com/2024/03/15/opinion/ukraine-russia-putin-crimes.html
+**The New York Times News Quiz, March 15, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/03/15/briefing/news-quiz-oscars-covid-ramadan.html
 
-**In Louisiana, Extreme Weather Does the Unforgivable: Endanger Crawfish Season**\
-`Drought conditions over the summer boiled crawfish before farmers could harvest them, creating a dire situation that the governor has declared a disaster.`\
-https://nytimes.com/2024/03/15/us/louisiana-extreme-weather-crawfish.html
+**A Looming TikTok Ban, a Royal Photoshop Mystery and Your Snitching Car**\
+`Maybe go ahead and download your favorite TikToks.`\
+https://nytimes.com/2024/03/15/podcasts/tiktok-princess-photoshop.html
 
-**Aspen Has 153 New Acres of Terrain. Cue the Champagne.**\
-`This Colorado enclave draws both die-hard snow lovers and those who don’t even dream of skiing, be they museum-goers, gourmands or influencers.`\
-https://nytimes.com/2024/03/15/travel/aspen-colorado-skiing.html
+**Don’t Think of It as a Contest Between Biden and Trump**\
+`What matters even more than the candidates is the coalitions they lead.`\
+https://nytimes.com/2024/03/15/opinion/columnists/trump-biden-rematch.html
 
-**Irish Dance for All Levels, All Bodies, All Genders**\
-`Gayli, a dance night at a Brooklyn bar, provides a welcoming atmosphere for Irish social dancing, an exacting art form known for high-pressure competition.`\
-https://nytimes.com/2024/03/15/arts/dance/gayli-gender-inclusive-irish-dance-in-brooklyn.html
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including Kacey Musgraves's new album, “Deeper Well.”`\
+https://nytimes.com/interactive/2024/03/15/arts/weekend-editors-picks-kacey-musgraves.html
 
-**‘Below Deck’ Sails Into a New Era**\
-`With a different captain at the helm and new production elements, the reality show about charter yachts is switching up its style.`\
-https://nytimes.com/2024/03/15/arts/television/below-deck-bravo-season-11.html
+**Dressing the Part of Barbara Walters**\
+`Women in media recently had a chance to browse and buy clothes owned by the trailblazing TV news anchor.`\
+https://nytimes.com/2024/03/15/style/barbara-walters-clothing-shop-repurpose.html
 
-**Judge John Hodgman on the Lake Michigan Truther**\
-`His wife finds it offensive that he says it should also be considered part of Lake Huron.`\
-https://nytimes.com/2024/03/15/magazine/judge-john-hodgman-lake-michigan.html
+**Who Has the Secret to Well-Being? The Answer May Surprise You.**\
+`Toddlers — full of energy, curiosity and laughter — have a lot to teach adults, experts say.`\
+https://nytimes.com/2024/03/15/well/live/tips-happiness-mental-health-well-being.html
 
-**Justin Timberlake Looks Back but Does Not Reckon**\
-`On “Everything I Thought It Was,” his sixth solo album, this artist feigns new vulnerability but relies on old tricks and his ’N Sync bandmates.`\
-https://nytimes.com/2024/03/15/arts/music/justin-timberlake-everything-review-.html
+**Deadly Foosball, Nefarious Pool Guys and the Loony Musings of ‘Valley Heat’**\
+`Christian Duguay’s podcast purports to be about the neighbors in the Rancho Equestrian District of Burbank. One thing is for sure: It’s masterfully absurd.`\
+https://nytimes.com/2024/03/15/arts/television/valley-heat-christian-duguay-patton-oswalt.html
 
