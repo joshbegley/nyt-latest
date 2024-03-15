@@ -1,3 +1,7 @@
+**Bernie Sanders Proposes Reducing Americans’ Workweek to 32 Hours**\
+`His proposal would pare down the workweek over a four-year period. The 40-hour workweek has stood as the standard in the U.S. since it became enshrined in federal law in 1940.`\
+https://nytimes.com/2024/03/15/us/politics/bernie-sanders-work-week-bill.html
+
 **Trump’s Court Delays Pile Up, and Schumer Says Netanyahu ‘Lost His Way’**\
 `Plus, the chaos in college financial aid.`\
 https://nytimes.com/2024/03/15/podcasts/trumps-court-delays-michigan.html
