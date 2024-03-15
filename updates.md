@@ -1,3 +1,7 @@
+**Trump’s Court Delays Pile Up, and Schumer Says Netanyahu ‘Lost His Way’**\
+`Plus, the chaos in college financial aid.`\
+https://nytimes.com/2024/03/15/podcasts/trumps-court-delays-michigan.html
+
 **A Journey Through Putin’s Russia**\
 `Our Moscow-based reporter traveled around the country to gauge the mood before a presidential vote.`\
 https://nytimes.com/2024/03/15/podcasts/the-daily/putin-russia-election.html
