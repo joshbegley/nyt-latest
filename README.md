@@ -1,3 +1,7 @@
+**Kent Campbell, Pivotal Figure in the Fight Against Malaria, Dies at 80**\
+`Among his accomplishments during a four-decade career in public health, he helped to pioneer programs providing bed nets in Africa.`\
+https://nytimes.com/2024/03/15/health/kent-campbell-dead.html
+
 **Sam Bankman-Fried Should Get 40 to 50 Years in Prison, Prosecutors Say**\
 `Mr. Bankman-Fried, who was convicted of seven counts of fraud and conspiracy, faces a maximum penalty of 110 years.`\
 https://nytimes.com/2024/03/15/technology/sam-bankman-fried-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/books/booksupdate/pen-world-voices-festival-israe
 **Supreme Court Stays Out of Dispute Over Drag Show at Texas University**\
 `An L.G.B.T.Q. student group had asked the justices to intercede, saying the performance was protected by the First Amendment.`\
 https://nytimes.com/2024/03/15/us/politics/supreme-court-texas-drag-show.html
-
-**7 Artists Shaping the Sound of 2024**\
-`Hear songs from Tanner Adell, Bizarrap and Young Miko, and more.`\
-https://nytimes.com/2024/03/15/arts/music/amplifier-newsletter-tanner-adell-that-mexican-ot.html
 

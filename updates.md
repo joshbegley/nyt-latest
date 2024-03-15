@@ -1,3 +1,7 @@
+**Talking ‘Dune’: Book and Movies**\
+`The Times’s critic Alissa Wilkinson discusses Frank Herbert’s classic science fiction novel and Denis Villeneuve’s film adaptations.`\
+https://nytimes.com/2024/03/15/books/review/dune-book-movies.html
+
 **Sam Bankman-Fried Should Get 40 to 50 Years in Prison, Prosecutors Say**\
 `Mr. Bankman-Fried, who was convicted of seven counts of fraud and conspiracy, faces a maximum penalty of 110 years.`\
 https://nytimes.com/2024/03/15/technology/sam-bankman-fried-sentencing.html

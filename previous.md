@@ -24,7 +24,7 @@ https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/hamas-drops
 
 **Talking ‘Dune’: Book and Movies**\
 `The Times’s critic Alissa Wilkinson discusses Frank Herbert’s classic science fiction novel and Denis Villeneuve’s film adaptations.`\
-https://nytimes.com/2024/03/15/books/review/talking-dune-book-and-movies.html
+https://nytimes.com/2024/03/15/books/review/dune-book-movies.html
 
 **Authors Withdraw From PEN World Voices Festival Over Its Response to Gaza War**\
 `More than a dozen authors, including Lorrie Moore, Naomi Klein, Michelle Alexander, Hisham Matar and Isabella Hammad, have signed a protest letter that announced their withdrawal.`\
