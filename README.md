@@ -1,3 +1,7 @@
+**Word of the Day: advocate**\
+`This word has appeared in 879 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/15/learning/word-of-the-day-advocate.html
+
 **Pets or Pests? How Australia Tackles its Two Cat Populations**\
 `Experts say that since the overpopulation of both affects native wildlife similarly, the country should use the same strategies in managing them.`\
 https://nytimes.com/2024/03/15/world/australia/australia-feral-domestic-cat-populations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/style/jared-jones-caroline-darmody-wedding.html
 **She Had Three Nonnegotiables. He Had One.**\
 `Amanda Cook and Drew Anello breezed through each other’s nonnegotiables. She won his heart, as well as his grandmother’s.`\
 https://nytimes.com/2024/03/15/style/amanda-cook-drew-anello-wedding.html
-
-**Please Stay, Baby. Please?**\
-`The grief of miscarriage is largely invisible. And with each loss, the longing multiplies.`\
-https://nytimes.com/2024/03/15/style/modern-love-miscarriage-please-stay-baby-please.html
 
