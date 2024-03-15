@@ -1,3 +1,11 @@
+**Powerful Realtor Group Agrees to Slash Commissions to Settle Lawsuits**\
+`The National Association of Realtors will pay $418 million in damages and will amend several rules that housing experts say will drive down housing costs.`\
+https://nytimes.com/2024/03/15/realestate/national-association-realtors-commission-settlement.html
+
+**4 Ways a Settlement Could Change the Housing Industry**\
+`The influential National Association of Realtors agreed to make several changes to its policies to settle class-action lawsuits brought by home sellers who say they were forced to pay inflated commissions to real estate agents.`\
+https://nytimes.com/2024/03/15/realestate/nar-realtors-settlement-takeaways.html
+
 **Disqualification Isn’t the Only Threat to Fani Willis’s Prosecution**\
 `The Fulton County district attorney faces a series of inquiries that could perpetuate uncertainty about the Trump case for months to come.`\
 https://nytimes.com/2024/03/15/us/elections/fani-willis-trump-georgia-prosecution.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/15/world/europe/viking-sword-found-uk-river.html
 **What China Is Saying About the TikTok Furor in Washington**\
 `A bill to force TikTok’s sale in the United States has been criticized by Beijing but has not triggered a high-alert public response or retaliation.`\
 https://nytimes.com/2024/03/15/business/china-tiktok-house-bill.html
-
-**Closing Costs for Buying a Home Have Risen Along With Rates**\
-`These mortgage fees increased 22 percent from 2021 to 2022. One likely factor is the greater use of discount points to nudge interest rates down.`\
-https://nytimes.com/2024/03/15/business/home-closing-costs-rise.html
-
-**How a Tiny Arts Center Is Helping a Rural County Heal After Wildfires**\
-`The Middletown Art Center in Lake County has turned into a “focal point for the area’s resilience and growth,” one resident said.`\
-https://nytimes.com/2024/03/15/us/lake-county-california-art-center.html
 

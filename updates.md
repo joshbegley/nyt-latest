@@ -1,3 +1,11 @@
+**Powerful Realtor Group Agrees to Slash Commissions to Settle Lawsuits**\
+`The National Association of Realtors will pay $418 million in damages and will amend several rules that housing experts say will drive down housing costs.`\
+https://nytimes.com/2024/03/15/realestate/national-association-realtors-commission-settlement.html
+
+**4 Ways a Settlement Could Change the Housing Industry**\
+`The influential National Association of Realtors agreed to make several changes to its policies to settle class-action lawsuits brought by home sellers who say they were forced to pay inflated commissions to real estate agents.`\
+https://nytimes.com/2024/03/15/realestate/nar-realtors-settlement-takeaways.html
+
 **Disqualification Isn’t the Only Threat to Fani Willis’s Prosecution**\
 `The Fulton County district attorney faces a series of inquiries that could perpetuate uncertainty about the Trump case for months to come.`\
 https://nytimes.com/2024/03/15/us/elections/fani-willis-trump-georgia-prosecution.html
