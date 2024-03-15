@@ -22,7 +22,3 @@ https://nytimes.com/2024/03/15/world/middleeast/gaza-convoy-israel.html
 `The highly anticipated ruling cut a middle path between removing Fani T. Willis for a conflict of interest and her full vindication.`\
 https://nytimes.com/2024/03/15/us/fani-willis-trump-georgia-ruling.html
 
-**Without Senators in Sight, Christine Blasey Ford Retells Her Story**\
-`Her lucid memoir, “One Way Back,” describes life before, during and after she testified that Brett Kavanaugh had sexually assaulted her in high school.`\
-https://nytimes.com/2024/03/15/books/review/christine-blasey-ford-memoir-one-way-back.html
-
