@@ -8,7 +8,7 @@ https://nytimes.com/2024/03/15/business/media/pete-distad-sports-streaming.html
 
 **Biden embraces Schumer’s ‘good speech’ castigating Netanyahu.**\
 `While the president did not endorse Senator Chuck Schumer’s call for new elections in Israel, his general praise of the senator’s speech will be seen as a rebuke of Prime Minister Benjamin Netanyahu.`\
-https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/biden-embraces-schumers-good-speech-castigating-netanyahu
+https://nytimes.com/2024/03/15/world/middleeast/biden-netanyahu-schumer-speech.html
 
 **Video Shows Moments Leading Up to Brooklyn Subway Shooting**\
 `Video taken by a passenger on the subway shows two men fighting as panicked riders rush to the opposite side of the subway car. Gunshots can be heard as people run out of the train car.`\

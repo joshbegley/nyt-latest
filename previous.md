@@ -1,3 +1,15 @@
+**Who Loves Fashion More Than a Vintage Clothing Buff?**\
+`Laverne Cox, Anna Sui and other enthusiasts shop at the Sturbridge Show, a gold mine for people who buy and wear exquisite old things.`\
+https://nytimes.com/2024/03/15/style/sturbridge-show-nyc-vintage-clothes.html
+
+**Former Apple Executive to Lead Sports Streaming Service**\
+`Pete Distad, the former executive in charge of distribution of Apple TV+, will run a new joint venture from Fox, Disney and Warner Bros. Discovery.`\
+https://nytimes.com/2024/03/15/business/media/pete-distad-sports-streaming.html
+
+**Biden embraces Schumer’s ‘good speech’ castigating Netanyahu.**\
+`While the president did not endorse Senator Chuck Schumer’s call for new elections in Israel, his general praise of the senator’s speech will be seen as a rebuke of Prime Minister Benjamin Netanyahu.`\
+https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/biden-embraces-schumers-good-speech-castigating-netanyahu
+
 **Video Shows Moments Leading Up to Brooklyn Subway Shooting**\
 `Video taken by a passenger on the subway shows two men fighting as panicked riders rush to the opposite side of the subway car. Gunshots can be heard as people run out of the train car.`\
 https://nytimes.com/video/us/100000009363784/subway-shooting-brooklyn-hoyt-schermerhorn.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/15/books/london-book-fair.html
 **Overlooked No More: Miriam Solovieff, Lauded Violinist Who Suffered Tragedy**\
 `She led a successful career despite coping with a horrific event that she witnessed at 18: the killing of her mother and sister at the hands of her father.`\
 https://nytimes.com/2024/03/15/obituaries/miriam-solovieff-overlooked.html
-
-**‘Welcome to Hell’: U.N. Panel Says Russian War Crimes Are Widespread**\
-`In a report headed to the Human Rights Council in Geneva next week, an investigative commission outlines the ongoing torture and starvation of Ukrainian prisoners.`\
-https://nytimes.com/2024/03/15/world/europe/russia-war-crimes.html
-
-**Supreme Court Sets Rules for Blocking Citizens From Officials’ Accounts**\
-`In two unanimous rulings, the justices tried to distinguish between private conduct, which is not subject to the First Amendment, and state action, which is.`\
-https://nytimes.com/2024/03/15/us/supreme-court-social-media-free-speech.html
-
-**U.S. and Allies Warn Iran Not to Send Missiles to Russia**\
-`The Group of 7 major industrial powers threatened “significant measures” against Tehran if it aids Moscow’s war against Ukraine, including a cutoff of Iran Air flights to Europe.`\
-https://nytimes.com/2024/03/15/us/politics/us-warns-iran-missiles-russia.html
 
