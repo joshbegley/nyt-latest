@@ -1,3 +1,7 @@
+**Read Nathan Wade’s Resignation Letter**\
+`Fani Willis, the Fulton County district attorney, accepts Nathan Wade’s resignation from the Trump prosecution in Georgia.`\
+https://nytimes.com/interactive/2024/03/15/us/nathan-wade-resignation-letter.html
+
 **A Welcome Precedent for the Parents of Mass Shooters**\
 `Parents should be held responsible if they provide a gun to their deeply troubled child.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/crumbley-parents-guilty
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/health/kent-campbell-dead.html
 **Sam Bankman-Fried Should Get 40 to 50 Years in Prison, Prosecutors Say**\
 `Mr. Bankman-Fried, who was convicted of seven counts of fraud and conspiracy, faces a maximum penalty of 110 years.`\
 https://nytimes.com/2024/03/15/technology/sam-bankman-fried-sentencing.html
-
-**Witnesses say Israeli shelling killed Gazans awaiting food, but Israel blames Palestinian gunmen.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/witnesses-say-israeli-shelling-killed-gazans-awaiting-food-but-israel-blames-palestinian-gunmen
 
