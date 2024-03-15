@@ -1,3 +1,7 @@
+**A Journey Through Putin’s Russia**\
+`Our Moscow-based reporter traveled around the country to gauge the mood before a presidential vote.`\
+https://nytimes.com/2024/03/15/podcasts/the-daily/putin-russia-election.html
+
 **‘The Regime’ and the Dictators I Have Known**\
 `The HBO show is set in a fictional European country, but The Times’s chief diplomatic correspondent recognizes references to many real despots and failed states.`\
 https://nytimes.com/2024/03/15/arts/television/the-regime-references.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/15/arts/weekend-editors-picks-kacey-musg
 **Dressing the Part of Barbara Walters**\
 `Women in media recently had a chance to browse and buy clothes owned by the trailblazing TV news anchor.`\
 https://nytimes.com/2024/03/15/style/barbara-walters-clothing-shop-repurpose.html
-
-**Who Has the Secret to Well-Being? The Answer May Surprise You.**\
-`Toddlers — full of energy, curiosity and laughter — have a lot to teach adults, experts say.`\
-https://nytimes.com/2024/03/15/well/live/tips-happiness-mental-health-well-being.html
 
