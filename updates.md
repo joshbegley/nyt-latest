@@ -1,3 +1,7 @@
+**Down the Rabbit Hole in Search of a Few Frames of Irish American History**\
+`The silent film “The Callahans and the Murphys” was pulled after an uproar over stereotyping. What happened next tantalized one fan of old movies.`\
+https://nytimes.com/2024/03/15/movies/down-the-rabbit-hole-in-search-of-a-few-frames-of-irish-american-history.html
+
 **When Debuts Flop: Katie Britt Is the Latest in a Long Line of Botched Opening Acts**\
 `The Republican senator, whose State of the Union response drew savage criticism, is not the first novice lawmaker from the South to see her introductory event veer off the rails.`\
 https://nytimes.com/2024/03/15/us/politics/katie-britt-sotu.html
