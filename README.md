@@ -11,7 +11,7 @@ https://nytimes.com/2024/03/15/us/lake-county-california-art-center.html
 https://nytimes.com/2024/03/15/business/nvidia-stock-market-ai-bubble.html
 
 **15trump-georgia**\
-`Live Updates: Judge Says Fani Willis Can Stay on Trump Case, but Only if Romantic Partner Leaves`\
+`Live Updates: Judge Says Fani Willis Can Stay on Trump Case, but Only if Former Romantic Partner Leaves`\
 https://nytimes.com/live/2024/03/15/us/fani-willis-trump-georgia
 
 **Data Dump Exposes the Fuzzy Lines Between Money and Politics in India**\
