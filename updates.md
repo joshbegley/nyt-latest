@@ -1,3 +1,15 @@
+**Supreme Court Narrowly Interprets Landmark Reduced Sentencing Law**\
+`The justices sided with the government in a case focused on who is eligible for shorter prison sentences under the bipartisan First Step Act passed in 2018.`\
+https://nytimes.com/2024/03/15/us/politics/supreme-court-sentencing-first-step-act.html
+
+**Shabab Gunmen Penetrate Heavy Security to Besiege Hotel in Somalia**\
+`The attack in the capital, which left three dead and 27 injured, points to Al Shabab’s ability to continue terrorizing the country, despite a Somali government offensive and American airstrikes.`\
+https://nytimes.com/2024/03/15/world/africa/shabab-militants-somalia-syl-hotel.html
+
+**Mainstream G.O.P. Group to Target Bob Good as It Shifts Mission and Members**\
+`An organization founded to support Republican moderates is taking aim at a Representative Bob Good of Virginia and backing a hard-right candidate who aligns with its new focus: purging Congress of G.O.P. rebels.`\
+https://nytimes.com/2024/03/15/us/politics/mainstream-gop-group-to-target-bob-good-as-it-shifts-mission-and-members.html
+
 **Anthony Boyle Is Moving Forward by Looking Backward**\
 `The actor has broken out on TV this year in the historical series “Masters of the Air” and “Manhunt.”`\
 https://nytimes.com/2024/03/15/arts/television/anthony-boyle-is-moving-forward-by-looking-backward.html
