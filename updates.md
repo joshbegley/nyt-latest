@@ -1,3 +1,7 @@
+**Connecticut State Trooper Is Acquitted in Killing of a Black Teenager**\
+`Brian North faced up to 40 years in prison for firing seven times at Mubarak Soulemane after a car chase.`\
+https://nytimes.com/2024/03/15/nyregion/connecticut-trooper-acquitted-mubarak-soulemane.html
+
 **Court Temporarily Halts S.E.C.’s New Climate Rules**\
 `Two fracking companies had challenged requirements that some businesses disclose more information about the risks they face from climate change.`\
 https://nytimes.com/2024/03/15/climate/sec-climate-rules-lawsuit.html
