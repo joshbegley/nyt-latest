@@ -1,3 +1,7 @@
+**Mainstream G.O.P. Group to Target Bob Good As It Shifts Mission and Members**\
+`An organization founded to support Republican moderates is taking aim at a Representative Bob Good of Virginia and backing a hard-right candidate who aligns with its new focus: purging Congress of G.O.P. rebels.`\
+https://nytimes.com/2024/03/15/us/politics/mainstream-gop-group-to-target-bob-good-as-it-shifts-mission-and-members.html
+
 **Climate Protesters Disrupt Broadway Play Starring Jeremy Strong**\
 `A performance of a new production of Ibsen’s “An Enemy of the People” was interrupted by protesters who shouted “no theater on a dead planet.”`\
 https://nytimes.com/2024/03/15/theater/climate-protests-broadway-jeremy-strong.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/us/elections/fani-willis-nathan-wade-trump-timeli
 **Thomas Adès Takes a Step Toward the Classical Music Canon**\
 `As Adès premieres an orchestral work, “The Exterminating Angel” is receiving something rare in contemporary opera: a new production.`\
 https://nytimes.com/2024/03/15/arts/music/thomas-ades-exterminating-angel-aquifer.html
-
-**Welcome to the London Book Fair, Where Everyone Knows Their Place**\
-`If you want to understand the power map of the publishing industry, just look at this event’s floor plan.`\
-https://nytimes.com/2024/03/15/books/london-book-fair.html
 
