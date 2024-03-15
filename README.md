@@ -1,3 +1,7 @@
+**Connecticut State Trooper Is Acquitted in Killing of a Black Teenager**\
+`Brian North faced up to 40 years in prison for firing seven times at Mubarak Soulemane after a car chase.`\
+https://nytimes.com/2024/03/15/nyregion/connecticut-trooper-acquitted-mubarak-soulemane.html
+
 **Court Temporarily Halts S.E.C.’s New Climate Rules**\
 `Two fracking companies had challenged requirements that some businesses disclose more information about the risks they face from climate change.`\
 https://nytimes.com/2024/03/15/climate/sec-climate-rules-lawsuit.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/15/world/middleeast/iran-us-secret-talks.html
 **A Watershed Moment for the Politics of Israel, Courtesy of Chuck Schumer**\
 `Republicans have long sought to make Israel a partisan issue, framing their party as the only one truly supportive of the Jewish state. The Senate majority leader’s blistering speech may have helped.`\
 https://nytimes.com/2024/03/15/us/politics/israel-schumer.html
-
-**Sheriff Had Cause to Take Maine Gunman Into Custody Before Shootings**\
-`An interim report from a commission investigating the mass shooting in Lewiston, Maine, found that the gunman’s weapons could and should have been removed.`\
-https://nytimes.com/2024/03/15/us/maine-shooting-report.html
 
