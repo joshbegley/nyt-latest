@@ -1,3 +1,7 @@
+**Data Dump Exposes the Fuzzy Lines Between Money and Politics in India**\
+`Lists of donors and beneficiaries cast government contracts and police investigations in an unflattering new light.`\
+https://nytimes.com/2024/03/15/world/asia/india-election-donations.html
+
 **The Big Dilemma Facing ByteDance’s U.S. Investors**\
 `Potential bidders are circling TikTok as many in Congress demand its split from its Chinese parent. But obstacles remain, starting with Beijing.`\
 https://nytimes.com/2024/03/15/business/dealbook/bytedance-tiktok-us-investors.html

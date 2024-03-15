@@ -1,3 +1,7 @@
+**Data Dump Exposes the Fuzzy Lines Between Money and Politics in India**\
+`Lists of donors and beneficiaries cast government contracts and police investigations in an unflattering new light.`\
+https://nytimes.com/2024/03/15/world/asia/india-election-donations.html
+
 **The Big Dilemma Facing ByteDance’s U.S. Investors**\
 `Potential bidders are circling TikTok as many in Congress demand its split from its Chinese parent. But obstacles remain, starting with Beijing.`\
 https://nytimes.com/2024/03/15/business/dealbook/bytedance-tiktok-us-investors.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/12/opinion/thepoint/schumer-netanyahu-israel
 **White House Calls on Republicans to End Biden Impeachment Inquiry**\
 `The president’s counsel told Speaker Mike Johnson that it was “obviously time to move on,” citing G.O.P. lawmakers’ own doubts about the impeachment bid.`\
 https://nytimes.com/2024/03/15/us/politics/biden-impeachment-republicans-letter.html
-
-**Why Is Congress Probing a Union for Being Anti-Israel?**\
-`Republicans issue a subpoena over a resolution condemning the Gaza war.`\
-https://nytimes.com/2024/03/15/opinion/congress-anti-israel-antisemitism.html
 
