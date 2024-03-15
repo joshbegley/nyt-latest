@@ -1,3 +1,11 @@
+**Climate Protesters Disrupt Broadway Play Starring Jeremy Strong**\
+`A performance of a new production of Ibsen’s “An Enemy of the People” was interrupted by protesters who shouted “no theater on a dead planet.”`\
+https://nytimes.com/2024/03/15/theater/climate-protests-broadway-jeremy-strong.html
+
+**Biden Embraces Schumer’s ‘Good Speech’ Castigating Netanyahu**\
+`While the president did not endorse Senator Chuck Schumer’s call for new elections in Israel, his general praise of the senator’s speech will be seen as a rebuke of Prime Minister Benjamin Netanyahu.`\
+https://nytimes.com/2024/03/15/world/middleeast/biden-netanyahu-schumer-speech.html
+
 **Who Loves Fashion More Than a Vintage Clothing Buff?**\
 `Laverne Cox, Anna Sui and other enthusiasts shop at the Sturbridge Show, a gold mine for people who buy and wear exquisite old things.`\
 https://nytimes.com/2024/03/15/style/sturbridge-show-nyc-vintage-clothes.html
