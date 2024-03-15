@@ -1,3 +1,7 @@
+**Without Senators in Sight, Christine Blasey Ford Retells Her Story**\
+`Her lucid memoir, “One Way Back,” describes life before, during and after she testified that Brett Kavanaugh had sexually assaulted her in high school.`\
+https://nytimes.com/2024/03/15/books/review/christine-blasey-ford-memoir-one-way-back.html
+
 **Judge Delays Trump’s Manhattan Trial Until at Least Mid-April**\
 `The judge scheduled a hearing for March 25, the day the trial had been scheduled to begin, to consider Donald J. Trump’s request to further delay or dismiss the case.`\
 https://nytimes.com/2024/03/15/nyregion/trump-bragg-trial-date-delay.html

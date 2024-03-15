@@ -1,3 +1,7 @@
+**Without Senators in Sight, Christine Blasey Ford Retells Her Story**\
+`Her lucid memoir, “One Way Back,” describes life before, during and after she testified that Brett Kavanaugh had sexually assaulted her in high school.`\
+https://nytimes.com/2024/03/15/books/review/christine-blasey-ford-memoir-one-way-back.html
+
 **Judge Delays Trump’s Manhattan Trial Until at Least Mid-April**\
 `The judge scheduled a hearing for March 25, the day the trial had been scheduled to begin, to consider Donald J. Trump’s request to further delay or dismiss the case.`\
 https://nytimes.com/2024/03/15/nyregion/trump-bragg-trial-date-delay.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/12/opinion/thepoint/crumbley-parents-guilty
 **Uber and Lyft Threaten to Pull Out of Minneapolis After City Council Vote**\
 `Local lawmakers in the Minnesota city voted on Thursday to guarantee a minimum hourly wage to ride-hailing drivers.`\
 https://nytimes.com/2024/03/15/technology/uber-lyft-minneapolis-minimum-wage.html
-
-**New York City to Impose Stricter Limits on Migrant Adults in Shelters**\
-`A legal agreement scales back the longstanding requirement that the city provide shelter to homeless people who seek it. Families will not be affected.`\
-https://nytimes.com/2024/03/15/nyregion/nyc-right-to-shelter-homeless-migrants.html
 
