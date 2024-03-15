@@ -1,3 +1,7 @@
+**Sam Bankman-Fried Should Get 40 to 50 Years in Prison, Prosecutors Say**\
+`Mr. Bankman-Fried, who was convicted of seven counts of fraud and conspiracy, faces a maximum penalty of 110 years.`\
+https://nytimes.com/2024/03/15/technology/sam-bankman-fried-sentencing.html
+
 **Witnesses say Israeli shelling killed Gazans awaiting food, but Israel blames Palestinian gunmen.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/witnesses-say-israeli-shelling-killed-gazans-awaiting-food-but-israel-blames-palestinian-gunmen
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/us/politics/supreme-court-texas-drag-show.html
 **7 Artists Shaping the Sound of 2024**\
 `Hear songs from Tanner Adell, Bizarrap and Young Miko, and more.`\
 https://nytimes.com/2024/03/15/arts/music/amplifier-newsletter-tanner-adell-that-mexican-ot.html
-
-**A Damaged Fani Willis Picks Up the Pieces of Her Case Against Trump**\
-`By David French`\
-https://nytimes.com/live/2024/03/12/opinion/thepoint/fani-willis-trump-trial
 
