@@ -1,3 +1,7 @@
+**What Groups Need Affirmative Action?**\
+`The demise of the old version of affirmative action is likely to affect some of its previous beneficiaries much more than others.`\
+https://nytimes.com/2024/03/15/briefing/affirmative-action.html
+
 **Bernie Sanders Proposes Reducing Americans’ Workweek to 32 Hours**\
 `His proposal would pare down the workweek over a four-year period. The 40-hour workweek has stood as the standard in the U.S. since it became enshrined in federal law in 1940.`\
 https://nytimes.com/2024/03/15/us/politics/bernie-sanders-work-week-bill.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/15/briefing/news-quiz-oscars-covid-ramad
 **A Looming TikTok Ban, a Royal Photoshop Mystery and Your Snitching Car**\
 `Maybe go ahead and download your favorite TikToks.`\
 https://nytimes.com/2024/03/15/podcasts/tiktok-princess-photoshop.html
-
-**Don’t Think of It as a Contest Between Biden and Trump**\
-`What matters even more than the candidates is the coalitions they lead.`\
-https://nytimes.com/2024/03/15/opinion/columnists/trump-biden-rematch.html
 
