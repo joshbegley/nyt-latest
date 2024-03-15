@@ -1,3 +1,7 @@
+**Iran and U.S. Held Secret Talks on Proxy Attacks and Cease-Fire**\
+`Diplomats gathered in Oman in January, with the U.S. side seeking to stop attacks on Red Sea shipping and American bases, and Iran looking for a Gaza cease-fire.`\
+https://nytimes.com/2024/03/15/world/middleeast/iran-us-secret-talks.html
+
 **A Watershed Moment for the Politics of Israel, Courtesy of Chuck Schumer**\
 `Republicans have long sought to make Israel a partisan issue, framing their party as the only one truly supportive of the Jewish state. The Senate majority leader’s blistering speech may have helped.`\
 https://nytimes.com/2024/03/15/us/politics/israel-schumer.html
