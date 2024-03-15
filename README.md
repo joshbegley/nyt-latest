@@ -1,3 +1,7 @@
+**A Welcome Precedent for the Parents of Mass Shooters**\
+`Parents should be held responsible if they provide a gun to their deeply troubled child.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/crumbley-parents-guilty
+
 **Uber and Lyft Threaten to Pull Out of Minneapolis After City Council Vote**\
 `Local lawmakers in the Minnesota city voted on Thursday to guarantee a minimum hourly wage to ride-hailing drivers.`\
 https://nytimes.com/2024/03/15/technology/uber-lyft-minneapolis-minimum-wage.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/technology/sam-bankman-fried-sentencing.html
 **Witnesses say Israeli shelling killed Gazans awaiting food, but Israel blames Palestinian gunmen.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/witnesses-say-israeli-shelling-killed-gazans-awaiting-food-but-israel-blames-palestinian-gunmen
-
-**A Seal’s Spray Adds a Chapter to the Science of Spitting**\
-`The observation suggests that seals join cobras, archerfish and other animals known to spit, although researchers can only speculate about the reason for the mammal’s expectoration.`\
-https://nytimes.com/2024/03/15/science/spitting-seal-eagle.html
 
