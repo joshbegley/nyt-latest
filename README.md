@@ -1,3 +1,11 @@
+**Macron and Scholz Meet, Looking to Patch Up Differences on Ukraine**\
+`The leaders of France and Germany will try to heal an increasingly public rift over their approach to the war, and hold talks alongside Poland’s prime minister on support for Kyiv.`\
+https://nytimes.com/2024/03/15/world/europe/macron-ukraine-war-support-eu.html
+
+**A Columbia Surgeon’s Study Was Pulled. He Kept Publishing Flawed Data.**\
+`The quiet withdrawal of a 2021 cancer study by Dr. Sam Yoon highlights scientific publishers’ lack of transparency around data problems.`\
+https://nytimes.com/video/science/100000009361577/cancer-studies-flawed-data.html
+
 **The Obstacles to Buying Your First Home**\
 `The rate of homeownership continues to lag among Black, Latino, Asian American and Native American people, compared with America’s white population.`\
 https://nytimes.com/2024/03/15/us/home-ownership-obstacles.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/15/us/salisbury-beach-storm-sand.html
 **Scott McAfee, the presiding judge, is new to the bench.**\
 `By Richard Fausset and Danny Hakim`\
 https://nytimes.com/live/2024/03/15/us/fani-willis-trump-georgia/scott-mcafee-trump-georgia-case
-
-**Schumer’s Critique of Netanyahu Reveals a Growing Gap, Analysts Say**\
-`Many Israelis support the Senate majority leader’s call for early elections, but even Netanyahu’s rivals were reluctant to seize on the criticism while the country is focused on the war in Gaza.`\
-https://nytimes.com/2024/03/15/world/middleeast/schumer-israel-netanyahu-us.html
-
-**Read the Judge’s Decision on Disqualification in the Trump Case**\
-`Read the ruling by Judge Scott McAfee.`\
-https://nytimes.com/interactive/2024/03/15/us/judge-s-decision-on-disqualification-in-the-trump-case.html
 
