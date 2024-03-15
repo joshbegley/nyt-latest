@@ -1,3 +1,7 @@
+**Schumer’s Critique of Netanyahu Reveals a Growing Gap, Analysts Say**\
+`Many Israelis support the Senate majority leader’s call for early elections, but even Netanyahu’s rivals were reluctant to seize on the criticism while the country is focused on the war in Gaza.`\
+https://nytimes.com/2024/03/15/world/middleeast/schumer-israel-netanyahu-us.html
+
 **Read the Judge’s Decision on Disqualification in the Trump Case**\
 `Read the ruling by Judge Scott McAfee.`\
 https://nytimes.com/interactive/2024/03/15/us/fani-willis-ruling-judge-mcafee.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/15/us/fani-willis-trump-georgia
 **Data Dump Exposes the Fuzzy Lines Between Money and Politics in India**\
 `Lists of donors and beneficiaries cast government contracts and police investigations in an unflattering new light.`\
 https://nytimes.com/2024/03/15/world/asia/india-election-donations.html
-
-**The Big Dilemma Facing ByteDance’s U.S. Investors**\
-`Potential bidders are circling TikTok as many in Congress demand its split from its Chinese parent. But obstacles remain, starting with Beijing.`\
-https://nytimes.com/2024/03/15/business/dealbook/bytedance-tiktok-us-investors.html
 

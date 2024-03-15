@@ -1,3 +1,19 @@
+**Read the Judge’s Decision on Disqualification in the Trump Case**\
+`Read the ruling by Judge Scott McAfee.`\
+https://nytimes.com/interactive/2024/03/15/us/fani-willis-ruling-judge-mcafee.html
+
+**What We Know About the Relationship Between the Trump Prosecutors**\
+`Defense lawyers accused Fani Willis of “self-dealing” by hiring Nathan Wade to manage the Trump prosecution, then going on vacations with him that he paid for, at least in part.`\
+https://nytimes.com/2024/03/15/us/elections/what-we-know-willis-wade.html
+
+**This Treasure Hunter’s Latest Find? A 1,000-Year-Old Viking Sword.**\
+`Trevor Penny was magnet fishing in an English waterway near Oxford when he pulled out a rusty sword. Experts say it’s a Viking sword that is probably more than 1,000 years old.`\
+https://nytimes.com/2024/03/15/world/europe/viking-sword-found-uk-river.html
+
+**What China Is Saying About the TikTok Furor in Washington**\
+`A bill to force TikTok’s sale in the United States has been criticized by Beijing but has not triggered a high-alert public response or retaliation.`\
+https://nytimes.com/2024/03/15/business/china-tiktok-house-bill.html
+
 **Closing Costs for Buying a Home Have Risen Along With Rates**\
 `These mortgage fees increased 22 percent from 2021 to 2022. One likely factor is the greater use of discount points to nudge interest rates down.`\
 https://nytimes.com/2024/03/15/business/home-closing-costs-rise.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/03/15/world/asia/india-election-donations.html
 **The Big Dilemma Facing ByteDance’s U.S. Investors**\
 `Potential bidders are circling TikTok as many in Congress demand its split from its Chinese parent. But obstacles remain, starting with Beijing.`\
 https://nytimes.com/2024/03/15/business/dealbook/bytedance-tiktok-us-investors.html
-
-**A Potentially Hazardous Cat Puts a Japanese City on Alert**\
-`The animal fell into a tank of chemicals at a plating factory in Fukuyama and then wandered off into the night.`\
-https://nytimes.com/2024/03/15/world/asia/cat-chemicals-fukuyama-japan.html
-
-**What Groups Need Affirmative Action?**\
-`The demise of the old version of affirmative action is likely to affect some of its previous beneficiaries much more than others.`\
-https://nytimes.com/2024/03/15/briefing/affirmative-action.html
-
-**Bernie Sanders Proposes Reducing Americans’ Workweek to 32 Hours**\
-`His proposal would pare down the workweek over a four-year period. The 40-hour workweek has stood as the standard in the U.S. since it became enshrined in federal law in 1940.`\
-https://nytimes.com/2024/03/15/us/politics/bernie-sanders-work-week-bill.html
-
-**Trump’s Court Delays Pile Up, and Schumer Says Netanyahu ‘Lost His Way’**\
-`Plus, the chaos in college financial aid.`\
-https://nytimes.com/2024/03/15/podcasts/trumps-court-delays-michigan.html
 

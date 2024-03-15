@@ -1,3 +1,19 @@
+**Read the Judge’s Decision on Disqualification in the Trump Case**\
+`Read the ruling by Judge Scott McAfee.`\
+https://nytimes.com/interactive/2024/03/15/us/fani-willis-ruling-judge-mcafee.html
+
+**What We Know About the Relationship Between the Trump Prosecutors**\
+`Defense lawyers accused Fani Willis of “self-dealing” by hiring Nathan Wade to manage the Trump prosecution, then going on vacations with him that he paid for, at least in part.`\
+https://nytimes.com/2024/03/15/us/elections/what-we-know-willis-wade.html
+
+**This Treasure Hunter’s Latest Find? A 1,000-Year-Old Viking Sword.**\
+`Trevor Penny was magnet fishing in an English waterway near Oxford when he pulled out a rusty sword. Experts say it’s a Viking sword that is probably more than 1,000 years old.`\
+https://nytimes.com/2024/03/15/world/europe/viking-sword-found-uk-river.html
+
+**What China Is Saying About the TikTok Furor in Washington**\
+`A bill to force TikTok’s sale in the United States has been criticized by Beijing but has not triggered a high-alert public response or retaliation.`\
+https://nytimes.com/2024/03/15/business/china-tiktok-house-bill.html
+
 **15trump-georgia**\
 `Live Updates: Judge Says Fani Willis Can Stay on Trump Case, but Only if Former Romantic Partner Leaves`\
 https://nytimes.com/live/2024/03/15/us/fani-willis-trump-georgia
