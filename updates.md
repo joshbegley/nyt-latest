@@ -1,3 +1,15 @@
+**When Debuts Flop: Katie Britt Is the Latest in a Long Line of Botched Opening Acts**\
+`The Republican senator, whose State of the Union response drew savage criticism, is not the first novice lawmaker from the South to see her introductory event veer off the rails.`\
+https://nytimes.com/2024/03/15/us/politics/katie-britt-sotu.html
+
+**Where’s the Next Generation of Great Coaches?**\
+`A trip back to 2004 suggests even sure things can sometimes be a gamble.`\
+https://nytimes.com/2024/03/15/world/europe/xabi-alonso-liverpool-bayern.html
+
+**First Ship Carrying Food Aid Arrives in Gaza**\
+`The ship, the Open Arms, carried some 200 metric tons of rice, flour and other food from Cyprus. It is seen as a pilot effort for a new maritime aid corridor.`\
+https://nytimes.com/2024/03/15/world/middleeast/gaza-food-aid-ship.html
+
 **Russian Missile Strikes Kill at Least 16 in Odesa, Ukraine Says**\
 `Two missiles hit the same spot, Ukrainian authorities said, killing some rescuers who had responded to the first attack.`\
 https://nytimes.com/2024/03/15/world/europe/ukraine-russia-odesa-missile-strikes.html

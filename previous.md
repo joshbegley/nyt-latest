@@ -1,3 +1,15 @@
+**When Debuts Flop: Katie Britt Is the Latest in a Long Line of Botched Opening Acts**\
+`The Republican senator, whose State of the Union response drew savage criticism, is not the first novice lawmaker from the South to see her introductory event veer off the rails.`\
+https://nytimes.com/2024/03/15/us/politics/katie-britt-sotu.html
+
+**Where’s the Next Generation of Great Coaches?**\
+`A trip back to 2004 suggests even sure things can sometimes be a gamble.`\
+https://nytimes.com/2024/03/15/world/europe/xabi-alonso-liverpool-bayern.html
+
+**First Ship Carrying Food Aid Arrives in Gaza**\
+`The ship, the Open Arms, carried some 200 metric tons of rice, flour and other food from Cyprus. It is seen as a pilot effort for a new maritime aid corridor.`\
+https://nytimes.com/2024/03/15/world/middleeast/gaza-food-aid-ship.html
+
 **Russian Missile Strikes Kill at Least 16 in Odesa, Ukraine Says**\
 `Two missiles hit the same spot, Ukrainian authorities said, killing some rescuers who had responded to the first attack.`\
 https://nytimes.com/2024/03/15/world/europe/ukraine-russia-odesa-missile-strikes.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/15/movies/science-fiction-movies-streaming.html
 **Once You Watch an Ernie Gehr Film, You’ll Never See the World the Same Way**\
 `A MoMA series shows how the artist pushes the boundaries of cinema in short movies that both delight and baffle.`\
 https://nytimes.com/2024/03/15/movies/ernie-gehr-moma.html
-
-**The Best of Late Night This Week**\
-`TikTok was a big topic this week for the late-night hosts, as a bill to force the app’s sale made its way through the U.S. legislature. The hosts also discussed last Sunday’s Oscars. Here’s what they had to say.`\
-https://nytimes.com/interactive/2024/03/15/arts/television/best-of-late-night-tiktok.html
-
-**What’s the Best ‘Wheel of Fortune’ Strategy?**\
-`For 40 years, contestants on “Wheel of Fortune,” the TV game show staple, have hoped to reach the final puzzle, called the bonus round. A correct guess can mean a new car, $40,000 or even $1 million.`\
-https://nytimes.com/video/admin/100000009361492/whats-the-best-wheel-of-fortune-strategy.html
-
-**Macron and Scholz Meet, Looking to Patch Up Differences on Ukraine**\
-`The leaders of France and Germany will try to heal an increasingly public rift over their approach to the war, and hold talks alongside Poland’s prime minister on support for Kyiv.`\
-https://nytimes.com/2024/03/15/world/europe/macron-ukraine-war-support-eu.html
 
