@@ -1,3 +1,7 @@
+**Here’s How the Decision in the Trump Case Could Be Appealed**\
+`The defendants could ask the judge to go straight to an appeals court before trial, delaying the prosecution of the former president and his allies.`\
+https://nytimes.com/2024/03/15/us/elections/trump-georgia-appeal.html
+
 **Beach Town Residents Paid $600,000 for Sand. It Lasted a Few Days.**\
 `Residents who live on Salisbury Beach, a seaside community in northern Massachusetts, paid for the sand dunes to protect their beachfront homes from storms. Then a storm came.`\
 https://nytimes.com/2024/03/15/us/salisbury-beach-storm-sand.html
