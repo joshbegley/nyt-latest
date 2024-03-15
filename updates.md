@@ -1,3 +1,7 @@
+**Doug Blevins, Kicking Guru for College and N.F.L. Players, Dies at 60**\
+`He fine-tuned the mechanics of punters and kickers, including Adam Vinatieri, the N.F.L.’s career scoring leader, even as he lived with cerebral palsy.`\
+https://nytimes.com/2024/03/15/sports/football/doug-blevins-dead.html
+
 **Read Nathan Wade’s Resignation Letter**\
 `Fani Willis, the Fulton County district attorney, accepts Nathan Wade’s resignation from the Trump prosecution in Georgia.`\
 https://nytimes.com/interactive/2024/03/15/us/nathan-wade-resignation-letter.html

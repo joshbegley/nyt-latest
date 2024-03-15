@@ -1,3 +1,7 @@
+**Doug Blevins, Kicking Guru for College and N.F.L. Players, Dies at 60**\
+`He fine-tuned the mechanics of punters and kickers, including Adam Vinatieri, the N.F.L.’s career scoring leader, even as he lived with cerebral palsy.`\
+https://nytimes.com/2024/03/15/sports/football/doug-blevins-dead.html
+
 **Read Nathan Wade’s Resignation Letter**\
 `Fani Willis, the Fulton County district attorney, accepts Nathan Wade’s resignation from the Trump prosecution in Georgia.`\
 https://nytimes.com/interactive/2024/03/15/us/nathan-wade-resignation-letter.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/magazine/wife-assisted-father-ethics.html
 **Kent Campbell, Pivotal Figure in the Fight Against Malaria, Dies at 80**\
 `Among his accomplishments during a four-decade career in public health, he helped to pioneer programs providing bed nets in Africa.`\
 https://nytimes.com/2024/03/15/health/kent-campbell-dead.html
-
-**Sam Bankman-Fried Should Get 40 to 50 Years in Prison, Prosecutors Say**\
-`Mr. Bankman-Fried, who was convicted of seven counts of fraud and conspiracy, faces a maximum penalty of 110 years.`\
-https://nytimes.com/2024/03/15/technology/sam-bankman-fried-sentencing.html
 
