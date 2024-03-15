@@ -1,3 +1,7 @@
+**6 Paperbacks to Read This Week **\
+`Including titles by Eleanor Catton, Catherine Lacey, Ilyon Woo and more. `\
+https://nytimes.com/interactive/2024/03/15/books/review/new-paperbacks-catton.html
+
 **Here’s How the Decision in the Trump Case Could Be Appealed**\
 `The defendants could ask the judge to go straight to an appeals court before trial, delaying the prosecution of the former president and his allies.`\
 https://nytimes.com/2024/03/15/us/elections/trump-georgia-appeal.html

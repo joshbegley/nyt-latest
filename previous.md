@@ -1,3 +1,7 @@
+**6 Paperbacks to Read This Week **\
+`Including titles by Eleanor Catton, Catherine Lacey, Ilyon Woo and more. `\
+https://nytimes.com/interactive/2024/03/15/books/review/new-paperbacks-catton.html
+
 **Here’s How the Decision in the Trump Case Could Be Appealed**\
 `The defendants could ask the judge to go straight to an appeals court before trial, delaying the prosecution of the former president and his allies.`\
 https://nytimes.com/2024/03/15/us/elections/trump-georgia-appeal.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/15/us/judge-s-decision-on-disqualificati
 **What We Know About the Relationship Between the Trump Prosecutors**\
 `Defense lawyers accused Fani Willis of “self-dealing” by hiring Nathan Wade to manage the Trump prosecution, then going on vacations with him that he paid for, at least in part.`\
 https://nytimes.com/2024/03/15/us/elections/fani-willis-nathan-wade-trump-prosecutors.html
-
-**This Treasure Hunter’s Latest Find? A 1,000-Year-Old Viking Sword.**\
-`Trevor Penny was magnet fishing in an English waterway near Oxford when he pulled out a rusty sword. Experts say it’s a Viking sword that is probably more than 1,000 years old.`\
-https://nytimes.com/2024/03/15/world/europe/viking-sword-found-uk-river.html
 
