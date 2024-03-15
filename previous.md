@@ -1,10 +1,10 @@
 **Read the Judge’s Decision on Disqualification in the Trump Case**\
 `Read the ruling by Judge Scott McAfee.`\
-https://nytimes.com/interactive/2024/03/15/us/fani-willis-ruling-judge-mcafee.html
+https://nytimes.com/interactive/2024/03/15/us/judge-s-decision-on-disqualification-in-the-trump-case.html
 
 **What We Know About the Relationship Between the Trump Prosecutors**\
 `Defense lawyers accused Fani Willis of “self-dealing” by hiring Nathan Wade to manage the Trump prosecution, then going on vacations with him that he paid for, at least in part.`\
-https://nytimes.com/2024/03/15/us/elections/what-we-know-willis-wade.html
+https://nytimes.com/2024/03/15/us/elections/fani-willis-nathan-wade-trump-prosecutors.html
 
 **This Treasure Hunter’s Latest Find? A 1,000-Year-Old Viking Sword.**\
 `Trevor Penny was magnet fishing in an English waterway near Oxford when he pulled out a rusty sword. Experts say it’s a Viking sword that is probably more than 1,000 years old.`\

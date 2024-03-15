@@ -1,5 +1,13 @@
 **Read the Judge’s Decision on Disqualification in the Trump Case**\
 `Read the ruling by Judge Scott McAfee.`\
+https://nytimes.com/interactive/2024/03/15/us/judge-s-decision-on-disqualification-in-the-trump-case.html
+
+**What We Know About the Relationship Between the Trump Prosecutors**\
+`Defense lawyers accused Fani Willis of “self-dealing” by hiring Nathan Wade to manage the Trump prosecution, then going on vacations with him that he paid for, at least in part.`\
+https://nytimes.com/2024/03/15/us/elections/fani-willis-nathan-wade-trump-prosecutors.html
+
+**Read the Judge’s Decision on Disqualification in the Trump Case**\
+`Read the ruling by Judge Scott McAfee.`\
 https://nytimes.com/interactive/2024/03/15/us/fani-willis-ruling-judge-mcafee.html
 
 **What We Know About the Relationship Between the Trump Prosecutors**\
