@@ -1,3 +1,7 @@
+**Climate Protesters Disrupt Broadway Play Starring Jeremy Strong**\
+`A performance of a new production of Ibsen’s “An Enemy of the People” was interrupted by protesters who shouted “no theater on a dead planet.”`\
+https://nytimes.com/2024/03/15/theater/climate-protests-broadway-jeremy-strong.html
+
 **Who Loves Fashion More Than a Vintage Clothing Buff?**\
 `Laverne Cox, Anna Sui and other enthusiasts shop at the Sturbridge Show, a gold mine for people who buy and wear exquisite old things.`\
 https://nytimes.com/2024/03/15/style/sturbridge-show-nyc-vintage-clothes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/arts/music/thomas-ades-exterminating-angel-aquife
 **Welcome to the London Book Fair, Where Everyone Knows Their Place**\
 `If you want to understand the power map of the publishing industry, just look at this event’s floor plan.`\
 https://nytimes.com/2024/03/15/books/london-book-fair.html
-
-**Overlooked No More: Miriam Solovieff, Lauded Violinist Who Suffered Tragedy**\
-`She led a successful career despite coping with a horrific event that she witnessed at 18: the killing of her mother and sister at the hands of her father.`\
-https://nytimes.com/2024/03/15/obituaries/miriam-solovieff-overlooked.html
 
