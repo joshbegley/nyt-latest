@@ -1,3 +1,7 @@
+**Truck Driver Charged Over Role in Deadly ‘Super Fog’ Pileup in Louisiana**\
+`Seven people were killed. The driver, Ronald Britt, is charged with negligent homicide in a crash that killed one of them.`\
+https://nytimes.com/2024/03/14/us/new-orleans-superfog-driver-charged.html
+
 **‘The Notebook’ Review: A Musical Tear-Jerker or Just All Wet?**\
 `The 2004 weepie comes to Broadway with songs by Ingrid Michaelson and a $5 box of tissues.`\
 https://nytimes.com/2024/03/14/theater/the-notebook-review-broadway-musical.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/14/us/politics/trump-trial-delays-manhattan-document
 **Social Security and Medicare Are on the Ballot**\
 `Biden has a plan. Trump doesn’t but could wind up gutting those programs.`\
 https://nytimes.com/2024/03/14/opinion/trump-biden-social-security-medicare.html
-
-**Florida Man Sues G.M. and LexisNexis Over Sale of His Cadillac Data**\
-`Romeo Chicco’s auto insurance rate doubled because of information about his speeding, braking and acceleration, according to his complaint.`\
-https://nytimes.com/2024/03/14/technology/gm-lexis-nexis-driving-data.html
 
