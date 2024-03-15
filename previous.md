@@ -1,3 +1,11 @@
+**Video Shows Moments Leading Up to Brooklyn Subway Shooting**\
+`Video taken by a passenger on the subway shows two men fighting as panicked riders rush to the opposite side of the subway car. Gunshots can be heard as people run out of the train car.`\
+https://nytimes.com/video/us/100000009363784/subway-shooting-brooklyn-hoyt-schermerhorn.html
+
+**Boeing Directs Airlines to Check 787 Cockpit Seats After Latam Incident**\
+`The sudden plunge of a Latam Airlines 787 Dreamliner this week might have been caused by a flight attendant hitting a switch on a cockpit seat.`\
+https://nytimes.com/2024/03/15/business/boeing-787-dreamliner-cockpit-seat-latam.html
+
 **Schumer’s Strong Condemnation of Netanyahu**\
 `Responses to the senator’s call for new elections in Israel. Also: The United Arab Emirates and Israel; a view from New York’s City Hall; Haley voters.`\
 https://nytimes.com/2024/03/15/opinion/schumer-netanyahu-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/15/us/supreme-court-social-media-free-speech.html
 **U.S. and Allies Warn Iran Not to Send Missiles to Russia**\
 `The Group of 7 major industrial powers threatened “significant measures” against Tehran if it aids Moscow’s war against Ukraine, including a cutoff of Iran Air flights to Europe.`\
 https://nytimes.com/2024/03/15/us/politics/us-warns-iran-missiles-russia.html
-
-**Netanyahu calls Hamas’s demands ‘ludicrous’ and proceeds with plans for ground invasion in Rafah.**\
-`By Gaya Gupta`\
-https://nytimes.com/live/2024/03/15/world/israel-hamas-war-gaza-news/netanyahu-calls-hamass-demands-ludicrous-and-proceeds-with-plans-for-ground-invasion-in-rafah
-
-**AMC Theaters, Looking for Movies, Turns to Blumhouse**\
-`The theater chain and the entertainment company are teaming up for a five-day festival of old horror films in 40 cities, compensating for a lack of new films.`\
-https://nytimes.com/2024/03/15/business/media/amc-theaters-blumhouse.html
 

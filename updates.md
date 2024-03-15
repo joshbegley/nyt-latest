@@ -1,3 +1,11 @@
+**Video Shows Moments Leading Up to Brooklyn Subway Shooting**\
+`Video taken by a passenger on the subway shows two men fighting as panicked riders rush to the opposite side of the subway car. Gunshots can be heard as people run out of the train car.`\
+https://nytimes.com/video/us/100000009363784/subway-shooting-brooklyn-hoyt-schermerhorn.html
+
+**Boeing Directs Airlines to Check 787 Cockpit Seats After Latam Incident**\
+`The sudden plunge of a Latam Airlines 787 Dreamliner this week might have been caused by a flight attendant hitting a switch on a cockpit seat.`\
+https://nytimes.com/2024/03/15/business/boeing-787-dreamliner-cockpit-seat-latam.html
+
 **Schumer’s Strong Condemnation of Netanyahu**\
 `Responses to the senator’s call for new elections in Israel. Also: The United Arab Emirates and Israel; a view from New York’s City Hall; Haley voters.`\
 https://nytimes.com/2024/03/15/opinion/schumer-netanyahu-israel.html
