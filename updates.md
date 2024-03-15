@@ -1,3 +1,11 @@
+**7 Artists Shaping the Sound of 2024**\
+`Hear songs from Tanner Adell, Bizarrap and Young Miko, and more.`\
+https://nytimes.com/2024/03/15/arts/music/amplifier-newsletter-tanner-adell-that-mexican-ot.html
+
+**A Damaged Fani Willis Picks Up the Pieces of Her Case Against Trump**\
+`By David French`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/fani-willis-trump-trial
+
 **A French Castle Filled With a Collector’s Treasures**\
 `The art and antiques dealer Yves Gastou was passionate about objects and their stories. His home in Biarritz overflowed with both.`\
 https://nytimes.com/2024/03/15/t-magazine/yves-gastou-biarritz-france-home.html

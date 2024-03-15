@@ -1,3 +1,11 @@
+**7 Artists Shaping the Sound of 2024**\
+`Hear songs from Tanner Adell, Bizarrap and Young Miko, and more.`\
+https://nytimes.com/2024/03/15/arts/music/amplifier-newsletter-tanner-adell-that-mexican-ot.html
+
+**A Damaged Fani Willis Picks Up the Pieces of Her Case Against Trump**\
+`By David French`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/fani-willis-trump-trial
+
 **A French Castle Filled With a Collector’s Treasures**\
 `The art and antiques dealer Yves Gastou was passionate about objects and their stories. His home in Biarritz overflowed with both.`\
 https://nytimes.com/2024/03/15/t-magazine/yves-gastou-biarritz-france-home.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/15/us/politics/mainstream-gop-group-to-target-bob-go
 **Climate Protesters Disrupt Broadway Play Starring Jeremy Strong**\
 `A performance of a new production of Ibsen’s “An Enemy of the People” was interrupted by protesters who shouted “no theater on a dead planet.”`\
 https://nytimes.com/2024/03/15/theater/climate-protests-broadway-jeremy-strong.html
-
-**Who Loves Fashion More Than a Vintage Clothing Buff?**\
-`Laverne Cox, Anna Sui and other enthusiasts shop at the Sturbridge Show, a gold mine for people who buy and wear exquisite old things.`\
-https://nytimes.com/2024/03/15/style/sturbridge-show-nyc-vintage-clothes.html
-
-**Former Apple Executive to Lead Sports Streaming Service**\
-`Pete Distad, the former executive in charge of distribution of Apple TV+, will run a new joint venture from Fox, Disney and Warner Bros. Discovery.`\
-https://nytimes.com/2024/03/15/business/media/pete-distad-sports-streaming.html
 
