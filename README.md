@@ -1,3 +1,7 @@
+**New R.N.C. chair declares ‘a united front’ with Trump after sweeping changes.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/03/14/us/2024-election-biden-trump/new-rnc-chair-declares-a-united-front-with-trump-after-sweeping-changes
+
 **Truck Driver Charged Over Role in Deadly ‘Super Fog’ Pileup in Louisiana**\
 `Seven people were killed. The driver, Ronald Britt, is charged with negligent homicide in a crash that killed one of them.`\
 https://nytimes.com/2024/03/14/us/new-orleans-superfog-driver-charged.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/14/us/0314trumpdocuments.html
 **Trump’s Court Delays Pile Up While the Presidential Race Gathers Speed**\
 `All four criminal cases against Donald Trump have become mired in issues that have pushed back the start of trials.`\
 https://nytimes.com/2024/03/14/us/politics/trump-trial-delays-manhattan-documents.html
-
-**Social Security and Medicare Are on the Ballot**\
-`Biden has a plan. Trump doesn’t but could wind up gutting those programs.`\
-https://nytimes.com/2024/03/14/opinion/trump-biden-social-security-medicare.html
 
