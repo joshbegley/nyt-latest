@@ -1,3 +1,7 @@
+**Trump’s Court Delays Pile Up, and Schumer Says Netanyahu ‘Lost His Way’**\
+`Plus, the chaos in college financial aid.`\
+https://nytimes.com/2024/03/15/podcasts/trumps-court-delays-michigan.html
+
 **A Journey Through Putin’s Russia**\
 `Our Moscow-based reporter traveled around the country to gauge the mood before a presidential vote.`\
 https://nytimes.com/2024/03/15/podcasts/the-daily/putin-russia-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/opinion/columnists/trump-biden-rematch.html
 **5 Things to Do This Weekend**\
 `A selection of entertainment highlights this weekend, including Kacey Musgraves's new album, “Deeper Well.”`\
 https://nytimes.com/interactive/2024/03/15/arts/weekend-editors-picks-kacey-musgraves.html
-
-**Dressing the Part of Barbara Walters**\
-`Women in media recently had a chance to browse and buy clothes owned by the trailblazing TV news anchor.`\
-https://nytimes.com/2024/03/15/style/barbara-walters-clothing-shop-repurpose.html
 
