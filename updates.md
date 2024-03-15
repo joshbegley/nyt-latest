@@ -1,3 +1,7 @@
+**A Potentially Hazardous Cat Puts a Japanese City on Alert**\
+`The animal fell into a tank of chemicals at a plating factory in Fukuyama and then wandered off into the night.`\
+https://nytimes.com/2024/03/15/world/asia/cat-chemicals-fukuyama-japan.html
+
 **What Groups Need Affirmative Action?**\
 `The demise of the old version of affirmative action is likely to affect some of its previous beneficiaries much more than others.`\
 https://nytimes.com/2024/03/15/briefing/affirmative-action.html
