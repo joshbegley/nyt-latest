@@ -1,3 +1,7 @@
+**‘The Regime’ and the Dictators I Have Known**\
+`The HBO show is set in a fictional European country, but The Times’s chief diplomatic correspondent recognizes references to many real despots and failed states.`\
+https://nytimes.com/2024/03/15/arts/television/the-regime-references.html
+
 **Schumer’s Blast at Netanyahu Might Have an Unintended Effect**\
 `Israelis aren’t likely to appreciate being told who should lead their government.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/schumer-netanyahu-israel
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/style/barbara-walters-clothing-shop-repurpose.htm
 **Who Has the Secret to Well-Being? The Answer May Surprise You.**\
 `Toddlers — full of energy, curiosity and laughter — have a lot to teach adults, experts say.`\
 https://nytimes.com/2024/03/15/well/live/tips-happiness-mental-health-well-being.html
-
-**Deadly Foosball, Nefarious Pool Guys and the Loony Musings of ‘Valley Heat’**\
-`Christian Duguay’s podcast purports to be about the neighbors in the Rancho Equestrian District of Burbank. One thing is for sure: It’s masterfully absurd.`\
-https://nytimes.com/2024/03/15/arts/television/valley-heat-christian-duguay-patton-oswalt.html
 
