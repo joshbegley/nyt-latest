@@ -1,3 +1,7 @@
+**Beach Town Residents Paid $600,000 for Sand. It Lasted a Few Days.**\
+`Residents who live on Salisbury Beach, a seaside community in northern Massachusetts, paid for the sand dunes to protect their beachfront homes from storms. Then a storm came.`\
+https://nytimes.com/2024/03/15/us/salisbury-beach-storm-sand.html
+
 **Powerful Realtor Group Agrees to Slash Commissions to Settle Lawsuits**\
 `The National Association of Realtors will pay $418 million in damages and will amend several rules that housing experts say will drive down housing costs.`\
 https://nytimes.com/2024/03/15/realestate/national-association-realtors-commission-settlement.html

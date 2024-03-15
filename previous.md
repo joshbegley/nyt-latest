@@ -10,7 +10,7 @@ https://nytimes.com/2024/03/15/realestate/nar-realtors-settlement-takeaways.html
 `The Fulton County district attorney faces a series of inquiries that could perpetuate uncertainty about the Trump case for months to come.`\
 https://nytimes.com/2024/03/15/us/elections/fani-willis-trump-georgia-prosecution.html
 
-**Beach Town Residents Paid $600,000 for Sand. Much of It Was Washed Away.**\
+**Beach Town Residents Paid $600,000 for Sand. It Lasted a Few Days.**\
 `Residents who live on Salisbury Beach, a seaside community in northern Massachusetts, paid for the sand dunes to protect their beachfront homes from storms. Then a storm came.`\
 https://nytimes.com/2024/03/15/us/salisbury-beach-storm-sand.html
 
