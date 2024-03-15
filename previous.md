@@ -1,3 +1,7 @@
+**The Obstacles to Buying Your First Home**\
+`The rate of homeownership continues to lag among Black, Latino, Asian American and Native American people, compared with America’s white population.`\
+https://nytimes.com/2024/03/15/us/home-ownership-obstacles.html
+
 **6 Paperbacks to Read This Week **\
 `Including titles by Eleanor Catton, Catherine Lacey, Ilyon Woo and more. `\
 https://nytimes.com/interactive/2024/03/15/books/review/new-paperbacks-catton.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/world/middleeast/schumer-israel-netanyahu-us.html
 **Read the Judge’s Decision on Disqualification in the Trump Case**\
 `Read the ruling by Judge Scott McAfee.`\
 https://nytimes.com/interactive/2024/03/15/us/judge-s-decision-on-disqualification-in-the-trump-case.html
-
-**What We Know About the Relationship Between the Trump Prosecutors**\
-`Defense lawyers accused Fani Willis of “self-dealing” by hiring Nathan Wade to manage the Trump prosecution, then going on vacations with him that he paid for, at least in part.`\
-https://nytimes.com/2024/03/15/us/elections/fani-willis-nathan-wade-trump-prosecutors.html
 

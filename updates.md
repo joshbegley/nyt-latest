@@ -1,3 +1,7 @@
+**The Obstacles to Buying Your First Home**\
+`The rate of homeownership continues to lag among Black, Latino, Asian American and Native American people, compared with America’s white population.`\
+https://nytimes.com/2024/03/15/us/home-ownership-obstacles.html
+
 **6 Paperbacks to Read This Week **\
 `Including titles by Eleanor Catton, Catherine Lacey, Ilyon Woo and more. `\
 https://nytimes.com/interactive/2024/03/15/books/review/new-paperbacks-catton.html
