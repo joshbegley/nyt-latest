@@ -1,3 +1,7 @@
+**Mainstream G.O.P. Group to Target Bob Good As It Shifts Mission and Members**\
+`An organization founded to support Republican moderates is taking aim at a Representative Bob Good of Virginia and backing a hard-right candidate who aligns with its new focus: purging Congress of G.O.P. rebels.`\
+https://nytimes.com/2024/03/15/us/politics/mainstream-gop-group-to-target-bob-good-as-it-shifts-mission-and-members.html
+
 **Climate Protesters Disrupt Broadway Play Starring Jeremy Strong**\
 `A performance of a new production of Ibsen’s “An Enemy of the People” was interrupted by protesters who shouted “no theater on a dead planet.”`\
 https://nytimes.com/2024/03/15/theater/climate-protests-broadway-jeremy-strong.html
