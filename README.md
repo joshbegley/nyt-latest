@@ -1,3 +1,7 @@
+**‘The American Society of Magical Negroes’ Review: Lampooning an Offensive Cliché**\
+`Kobi Libii’s satirical comedy, starring Justice Smith, tries to explore the trope but leans too hard on the conventions of superhero tales and rom-coms.`\
+https://nytimes.com/2024/03/15/movies/the-american-society-of-magical-negroes-review.html
+
 **Biden Embraces Schumer’s Speech Castigating Netanyahu**\
 `President Biden did not explicitly endorse any of the specific criticisms in the speech. But his comments were the latest step in his escalating public critique of the Israeli prime minister.`\
 https://nytimes.com/2024/03/15/us/politics/biden-netanyahu-schumer-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/style/irish-actors-cillian-murphy-barry-keoghan.h
 **Tesla Settles Discrimination Suit With Former Factory Worker**\
 `The carmaker and energy company settled with a Black man who had worked at its California factory and had won a $3 million judgment against the company.`\
 https://nytimes.com/2024/03/15/business/tesla-discrimination-lawsuit-settlement.html
-
-**Doug Blevins, Kicking Guru for College and N.F.L. Players, Dies at 60**\
-`He fine-tuned the mechanics of punters and kickers, including Adam Vinatieri, the N.F.L.’s career scoring leader, even as he lived with cerebral palsy.`\
-https://nytimes.com/2024/03/15/sports/football/doug-blevins-dead.html
 
