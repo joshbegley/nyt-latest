@@ -1,3 +1,11 @@
+**‘The American Society of Magical Negroes’ Review: Lampooning an Offensive Cliché**\
+`Kobi Libii’s satirical comedy, starring Justice Smith, tries to explore the trope but leans too hard on the conventions of superhero tales and rom-coms.`\
+https://nytimes.com/2024/03/15/movies/the-american-society-of-magical-negroes-review.html
+
+**Judge Rules D.A. Can Stay on Trump Georgia Case With Ex-Boyfriend Stepping Down**\
+`The highly anticipated ruling cut a middle path between removing Fani T. Willis for a conflict of interest and her full vindication.`\
+https://nytimes.com/2024/03/15/us/fani-willis-trump-georgia-ruling.html
+
 **Biden Embraces Schumer’s Speech Castigating Netanyahu**\
 `President Biden did not explicitly endorse any of the specific criticisms in the speech. But his comments were the latest step in his escalating public critique of the Israeli prime minister.`\
 https://nytimes.com/2024/03/15/us/politics/biden-netanyahu-schumer-speech.html
