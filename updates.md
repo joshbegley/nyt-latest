@@ -1,3 +1,7 @@
+**What Groups Need Affirmative Action?**\
+`The demise of the old version of affirmative action is likely to affect some of its previous beneficiaries much more than others.`\
+https://nytimes.com/2024/03/15/briefing/affirmative-action.html
+
 **Bernie Sanders Proposes Reducing Americans’ Workweek to 32 Hours**\
 `His proposal would pare down the workweek over a four-year period. The 40-hour workweek has stood as the standard in the U.S. since it became enshrined in federal law in 1940.`\
 https://nytimes.com/2024/03/15/us/politics/bernie-sanders-work-week-bill.html
