@@ -20,7 +20,7 @@ https://nytimes.com/2024/03/15/briefing/russia-election-schumer-israel-netanyahu
 
 **Little Expected of New Palestinian Prime Minister**\
 `Muhammad Mustafa, a longtime adviser to President Mahmoud Abbas, is unlikely to produce the “revitalized Palestinian Authority” that Washington wants.`\
-https://nytimes.com/2024/03/16/world/europe/palestinian-authority-prime-minister.html
+https://nytimes.com/2024/03/15/world/europe/palestinian-authority-prime-minister.html
 
 **Quotation of the Day: A Slithering, Hissing Business That’s Booming**\
 `Quotation of the Day for Friday, March 15, 2024.`\
