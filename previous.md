@@ -1,3 +1,7 @@
+**Pets or Pests? How Australia Tackles its Two Cat Populations**\
+`Experts say that since the overpopulation of both affects native wildlife similarly, the country should use the same strategies in managing them.`\
+https://nytimes.com/2024/03/15/world/australia/australia-feral-domestic-cat-populations.html
+
 **‘Squid Game’ Actor Found Guilty of Sexual Misconduct**\
 `Oh Young-soo, who portrayed a contestant in the Netflix drama, was given a suspended sentence. He had been accused of inappropriately touching an actress.`\
 https://nytimes.com/2024/03/15/arts/squid-game-actor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/15/style/amanda-cook-drew-anello-wedding.html
 **Please Stay, Baby. Please?**\
 `The grief of miscarriage is largely invisible. And with each loss, the longing multiplies.`\
 https://nytimes.com/2024/03/15/style/modern-love-miscarriage-please-stay-baby-please.html
-
-**First Came Family. Then Came Marriage (to a Grandmother’s Relief).**\
-`Twelve years ago, Melanie White sold Drew Trotter nine pairs of jeans. She also won his heart.`\
-https://nytimes.com/2024/03/15/style/melanie-white-drew-trotter-wedding.html
 
