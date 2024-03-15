@@ -1,3 +1,7 @@
+**New York City to Impose Stricter Limits on Migrant Adults in Shelters**\
+`A legal agreement scales back the longstanding requirement that the city provide shelter to homeless people who seek it. Families will not be affected.`\
+https://nytimes.com/2024/03/15/nyregion/nyc-right-to-shelter-homeless-migrants.html
+
 **Doug Blevins, Kicking Guru for College and N.F.L. Players, Dies at 60**\
 `He fine-tuned the mechanics of punters and kickers, including Adam Vinatieri, the N.F.L.’s career scoring leader, even as he lived with cerebral palsy.`\
 https://nytimes.com/2024/03/15/sports/football/doug-blevins-dead.html
