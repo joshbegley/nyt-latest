@@ -1,3 +1,11 @@
+**Overlooked No More: Miriam Solovieff, Lauded Violinist Who Suffered Tragedy**\
+`She led a successful career despite coping with a horrific event that she witnessed at 18: the killing of her mother and sister at the hands of her father.`\
+https://nytimes.com/2024/03/15/obituaries/miriam-solovieff-overlooked.html
+
+**‘Welcome to Hell’: U.N. Panel Says Russian War Crimes Are Widespread**\
+`In a report headed to the Human Rights Council in Geneva next week, an investigative commission outlines the ongoing torture and starvation of Ukrainian prisoners.`\
+https://nytimes.com/2024/03/15/world/europe/russia-war-crimes.html
+
 **Down the Rabbit Hole in Search of a Few Frames of Irish American History**\
 `The silent film “The Callahans and the Murphys” was pulled after an uproar over stereotyping. What happened next tantalized one fan of old movies.`\
 https://nytimes.com/2024/03/15/movies/silent-film-irish-callahans-muphys.html
