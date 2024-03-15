@@ -1,3 +1,15 @@
+**A French Castle Filled With a Collector’s Treasures**\
+`The art and antiques dealer Yves Gastou was passionate about objects and their stories. His home in Biarritz overflowed with both.`\
+https://nytimes.com/2024/03/15/t-magazine/yves-gastou-biarritz-france-home.html
+
+**Becky G’s Rowdy Obsession and 8 More New Songs**\
+`Hear tracks by Willow, Tierra Whack, Willie Nelson and others.`\
+https://nytimes.com/2024/03/15/arts/music/becky-g-tierra-whack-willie-nelson.html
+
+**Anthony Boyle Is Moving Forward by Looking Backward**\
+`The actor has broken out on TV this year in the historical series “Masters of the Air” and “Manhunt.”`\
+https://nytimes.com/2024/03/15/arts/television/anthony-boyle-manhunt-masters-of-the-air.html
+
 **Supreme Court Narrowly Interprets Landmark Reduced Sentencing Law**\
 `The justices sided with the government in a case focused on who is eligible for shorter prison sentences under the bipartisan First Step Act passed in 2018.`\
 https://nytimes.com/2024/03/15/us/politics/supreme-court-sentencing-first-step-act.html
