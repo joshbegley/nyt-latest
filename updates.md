@@ -1,3 +1,7 @@
+**U.N. Documents More Than Two Dozen Attacks on Gazans Waiting for Aid Since January**\
+`The United Nations human rights office has not blamed any side for the attacks, including one on Thursday that Gazan health officials say killed 20.`\
+https://nytimes.com/2024/03/16/world/middleeast/united-nations-gaza-aid-attacks.html
+
 **The U.N. has documented more than two dozen attacks on Gazans waiting for aid since January.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/2024/03/16/world/middleeast/united-nations-gaza-aid-attacks.html
