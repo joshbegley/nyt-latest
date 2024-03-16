@@ -1,3 +1,7 @@
+**Supplies are to be brought by truck, including in the north, where conditions are particularly dire.**\
+`By Monika Pronczuk`\
+https://nytimes.com/live/2024/03/16/world/israel-hamas-war-gaza-news/supplies-are-to-be-brought-by-truck-including-in-the-north-where-conditions-are-particularly-dire
+
 **Unprepared for What Has Already Happened**\
 `Stories of people waking up to a suddenly changed world.`\
 https://nytimes.com/2024/03/16/podcasts/unprepared-for-what-has-already-happened-this-american-life-nyt-audio.html
