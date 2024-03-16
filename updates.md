@@ -1,3 +1,7 @@
+**Kellyanne Conway Has Some Weak Advice for Her Party**\
+`Voters’ concerns over abortion rights won’t be easy to avoid.`\
+https://nytimes.com/2024/03/16/opinion/abortion-republican-kellyanne-conway.html
+
 **Landline Users Remain Proudly ‘Old-Fashioned’ in the Digital Age**\
 `Traditional phones may seem like relics in the iPhone era, but a recent AT&T cellular service outage had some landline lovers extolling their virtues.`\
 https://nytimes.com/2024/03/16/business/landline-phones-att.html
