@@ -1,3 +1,7 @@
+**Australia Wanted to Catch Chinese Spies. Is This Really Whom It Had in Mind?**\
+`The first case tried under Australia’s foreign interference laws has raised tough questions about the breadth of the regulations.`\
+https://nytimes.com/2024/03/16/world/australia/foreign-interference-laws-sunny-duong.html
+
 **Standing Up to China, Philippine Leader Courts New Network of Partners**\
 `Escalating tensions in the South China Sea, President Ferdinand R. Marcos Jr. says, are not only a regional issue, but a global one.`\
 https://nytimes.com/2024/03/16/world/asia/philippines-south-china-sea.html
