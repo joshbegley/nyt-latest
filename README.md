@@ -1,3 +1,7 @@
+**A Financial Crisis May Jeopardize Local News in Most of Atlantic Canada**\
+`The main lender for SaltWire, which owns most of the region’s legacy newspapers outside New Brunswick, has moved to dissolve the publisher.`\
+https://nytimes.com/2024/03/16/world/canada/canada-newspapers-financial-crisis.html
+
 **In Occupied Ukraine, Casting a Vote (for Putin) as Armed Soldiers Watch**\
 `Russia is holding a presidential vote in the occupied regions of Ukraine to try to legitimize its rule there, expose dissenters and present a veneer of democracy.`\
 https://nytimes.com/2024/03/16/world/europe/ukraine-occupied-territories-russia-election.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/16/us/crumbley-michigan-oxford-school-shooting.html
 **How Trump Is Scrambling to Raise Cash**\
 `The former president is facing converging financial crunches as he and the Republican Party confront a shortfall against President Biden and the Democrats.`\
 https://nytimes.com/2024/03/16/us/politics/trump-finances-money-fundraising.html
-
-**When Manahahtáanung Became European**\
-`The New-York Historical Society acknowledges a notorious purchase 400 years ago — and lets the Lenape tell their side: “We are still here.”`\
-https://nytimes.com/2024/03/16/arts/manhattan-lenape-exhibition.html
 
