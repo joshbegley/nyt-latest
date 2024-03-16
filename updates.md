@@ -1,3 +1,11 @@
+**How Do You Solve a Problem Like North Korea?**\
+`Biden should act to prevent North Korea from adding to the list of U.S. headaches.`\
+https://nytimes.com/2024/03/16/opinion/north-korea-kim-jong-un-peace.html
+
+**Part-Time Employees: The Plight of the Mistreated**\
+`Readers discuss a novelist’s guest essay about how the retailers benefit but the workers struggle.`\
+https://nytimes.com/2024/03/16/opinion/letters/part-time-workers.html
+
 **India’s 2024 General Election: What to Know**\
 `India’s general elections will determine the political direction of the world’s most populous nation for the next five years.`\
 https://nytimes.com/2024/03/16/world/asia/india-2024-election.html
