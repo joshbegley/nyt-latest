@@ -1,3 +1,11 @@
+**It’s a Visual Effects Extravaganza, but There’s Not an Explosion in Sight**\
+`Though blockbusters are synonymous with computer imagery, dramas and art-house films rely extensively on tech magic, too. Don’t be fooled by the naturalism.`\
+https://nytimes.com/2024/03/16/movies/visual-effects.html
+
+**‘No Water in the Hydrants’: Communities Left Defenseless Against Chile’s Deadliest Wildfire**\
+`Weeks after Chile’s deadliest wildfire, some firefighters and residents said a lack of water to fire hydrants had hampered efforts to combat the inferno that destroyed thousands of homes and killed 134.`\
+https://nytimes.com/video/world/americas/100000009306678/chile-fires-water-access.html
+
 **Stalling: A Time-Tested Legal Strategy That Keeps Working for Trump**\
 `A delay in the former president’s impending Manhattan trial date was just the latest example of his ability to bend his busy court calendar in his favor.`\
 https://nytimes.com/2024/03/16/nyregion/donald-trump-trial-delay-strategy.html
@@ -9,12 +17,4 @@ https://nytimes.com/2024/03/16/nyregion/senator-robert-menendez-re-election.html
 **How a Marathoner and Sommelier Spends His Sundays**\
 `Yannick Benjamin has been training for the wheelchair race at the New York City Half Marathon, meditating and taking breaks to enjoy (but not critique) wine with his wife.`\
 https://nytimes.com/2024/03/16/nyregion/yannick-benjamin-sommelier-contento.html
-
-**For Irish L.G.B.T.Q. New Yorkers, It’s Been a Long Way to Staten Island**\
-`Activists like Brendan Fay have campaigned for decades to make St. Patrick’s Day festivities open to L.G.B.T.Q. groups. A new parade in Staten Island on Sunday is their final achievement.`\
-https://nytimes.com/2024/03/16/nyregion/lgbtq-st-patricks-parade-staten-island.html
-
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/16/crosswords/wordle-review.html
 
