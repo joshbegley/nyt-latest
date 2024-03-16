@@ -4,7 +4,7 @@ https://nytimes.com/2024/03/16/dining/irish-cream-coffee-cake.html
 
 **The U.N. has documented more than two dozen attacks on Gazans waiting for aid since January.**\
 `By Raja Abdulrahim`\
-https://nytimes.com/live/2024/03/16/world/israel-hamas-war-gaza-news/the-un-has-documented-more-than-two-dozen-attacks-on-gazans-waiting-for-aid-since-january
+https://nytimes.com/2024/03/16/world/middleeast/united-nations-gaza-aid-attacks.html
 
 **More primaries are around the corner, even if the presidential race is settled.**\
 `By Chris Cameron`\
