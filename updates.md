@@ -1,3 +1,7 @@
+**Gunman at Large After Fatally Shooting 3 in Pennsylvania Township, Police Say**\
+`The authorities warned residents in Falls Township, Pa., on Saturday morning to shelter in place and urged some public venues to close.`\
+https://nytimes.com/2024/03/16/us/falls-township-pa-shooting.html
+
 **The Tinge of Stained Glass**\
 `In the old New York Times headquarters, stained-glass panels adorned the editorial offices — and colored the place in more ways than one.`\
 https://nytimes.com/2024/03/16/insider/the-tinge-of-stained-glass.html
