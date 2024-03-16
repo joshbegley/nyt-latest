@@ -1,5 +1,5 @@
 **When Medicaid Comes After the Family Home**\
-`Federal law requires states to go after the assets, usually homes, of people who died after receiving benefits for long-term care.`\
+`Federal law requires states to seek reimbursement from the assets, usually homes, of people who died after receiving benefits for long-term care.`\
 https://nytimes.com/2024/03/16/health/medicaid-estate-recovery-seniors.html
 
 **Americans Invested Billions in Chinese Companies. Now Their Money Is Stuck.**\
