@@ -1,3 +1,7 @@
+**The U.N. has documented more than two dozen attacks on Gazans waiting for aid since January.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/2024/03/16/world/middleeast/united-nations-gaza-aid-attacks.html
+
 **Irish Cream Coffee Cake**\
 `Four words, a lot of weekend baking delight.`\
 https://nytimes.com/2024/03/16/dining/irish-cream-coffee-cake.html
