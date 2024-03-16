@@ -1,3 +1,7 @@
+**Americans Invested Billions in Chinese Companies. Now Their Money Is Stuck.**\
+`TikTok’s turn in geopolitical cross hairs highlights the narrowing paths to liquidity for investments in Chinese companies.`\
+https://nytimes.com/2024/03/16/business/dealbook/china-zombie-companies-tiktok.html
+
 **Kellyanne Conway Has Some Weak Advice for Her Party**\
 `Voters’ concerns over abortion rights won’t be easy to avoid.`\
 https://nytimes.com/2024/03/16/opinion/abortion-republican-kellyanne-conway.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/16/us/politics/trumps-counterfactuals-alternate-real
 **Does Everyone Want to Be on the ‘Mommy Track’?**\
 `More people are rejecting the false binary of remote work vs. the corporate ladder.`\
 https://nytimes.com/2024/03/16/opinion/remote-work-mommy-track.html
-
-**2 Novels to Make You Sweat and Shiver**\
-`A love affair between jurors; reclaiming a classic.`\
-https://nytimes.com/2024/03/16/books/2-novels-to-make-you-sweat-and-shiver.html
 

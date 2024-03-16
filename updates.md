@@ -1,3 +1,7 @@
+**Americans Invested Billions in Chinese Companies. Now Their Money Is Stuck.**\
+`TikTok’s turn in geopolitical cross hairs highlights the narrowing paths to liquidity for investments in Chinese companies.`\
+https://nytimes.com/2024/03/16/business/dealbook/china-zombie-companies-tiktok.html
+
 **Kellyanne Conway Has Some Weak Advice for Her Party**\
 `Voters’ concerns over abortion rights won’t be easy to avoid.`\
 https://nytimes.com/2024/03/16/opinion/abortion-republican-kellyanne-conway.html
