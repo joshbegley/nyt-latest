@@ -1,3 +1,7 @@
+**Authorities Seize Alligator Being Held Illegally in Home Near Buffalo**\
+`The alligator, Albert Edward, had been with his owner for 34 years.`\
+https://nytimes.com/2024/03/16/nyregion/albert-alligator-buffalo-ny.html
+
 **3 People Fatally Shot in Two Pennsylvania Township Homes, Police Say**\
 `The authorities lifted a shelter-in-place directive in Falls Township, Pa., on Saturday after the gunman fled and was tracked to Trenton, N.J.`\
 https://nytimes.com/2024/03/16/us/falls-township-pa-shooting.html
