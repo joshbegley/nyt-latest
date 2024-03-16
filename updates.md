@@ -1,3 +1,7 @@
+**3 People Fatally Shot in Two Pennsylvania Township Homes, Police Say**\
+`The authorities lifted a shelter-in-place directive in Falls Township, Pa., on Saturday after the gunman fled and was tracked to Trenton, N.J.`\
+https://nytimes.com/2024/03/16/us/falls-township-pa-shooting.html
+
 **Five Ways Buying and Selling a House Could Change**\
 `The National Association of Realtors has agreed to change its policies to settle several lawsuits brought by home sellers — a move that could reduce commissions.`\
 https://nytimes.com/2024/03/16/realestate/buy-sell-house.html
