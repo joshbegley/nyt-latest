@@ -1,3 +1,7 @@
+**In Occupied Ukraine, Casting a Vote (for Putin) as Armed Soldiers Watch**\
+`Russia is holding a presidential vote in the occupied regions of Ukraine to try to legitimize its rule there, expose dissenters and present a veneer of democracy.`\
+https://nytimes.com/2024/03/16/world/europe/ukraine-occupied-territories-russia-election.html
+
 **Chile’s Deadliest Wildfire Is Said to Have Been Made Worse by a Lack of Water**\
 `Poor water pressure and dry hydrants posed major obstacles to fighting the February fire that killed scores of people along the country’s Pacific Coast.`\
 https://nytimes.com/2024/03/16/world/americas/chile-wildfires-water-drought.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/16/us/politics/trump-finances-money-fundraising.html
 **When Manahahtáanung Became European**\
 `The New-York Historical Society acknowledges a notorious purchase 400 years ago — and lets the Lenape tell their side: “We are still here.”`\
 https://nytimes.com/2024/03/16/arts/manhattan-lenape-exhibition.html
-
-**Hitting the Slopes With a Wild, and Skilled, ‘old’ Bunch**\
-`Skiers in their 70s, 80s and 90s aren’t letting age stop them from doing what they love. One reporter hitched a ride on their chairlift — and tried to keep up.`\
-https://nytimes.com/2024/03/16/insider/hitting-the-slopes-with-a-wild-and-skilled-old-bunch.html
 
