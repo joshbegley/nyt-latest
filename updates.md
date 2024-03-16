@@ -1,3 +1,7 @@
+**Colorado Man Died From Venomous Gila Monster Bite, Autopsy Confirms**\
+`The rare fatality happened after the man endured a four-minute-long bite from the lizard to his right hand in February, records show.`\
+https://nytimes.com/2024/03/16/us/gila-monster-bite-death.html
+
 **First Sea-Borne Aid Reaches Gaza Amid Fears About Security and Malnutrition**\
 `The 200 tons of food provided by a celebrity chef’s charity arrived as UNICEF said rising numbers of children in Gaza were facing food deprivation.`\
 https://nytimes.com/2024/03/16/world/middleeast/ocean-aid-gaza-malnutrition.html
