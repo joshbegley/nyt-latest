@@ -1,3 +1,7 @@
+**Larry H. Parker, an Injury Lawyer Who Promised to ‘Fight for You,’ Dies at 75**\
+`In the Los Angeles area, Mr. Parker was a common sight on billboards and television commercials in which he promised to stand up to faceless insurance companies.`\
+https://nytimes.com/2024/03/16/us/larry-h-parker-attorney-dead.html
+
 **3 People Fatally Shot in Two Pennsylvania Township Homes, Police Say**\
 `The authorities lifted a shelter-in-place directive in Falls Township, Pa., on Saturday after the gunman fled to Trenton, N.J., where the police have surrounded a house.`\
 https://nytimes.com/2024/03/16/us/falls-township-pa-shooting.html
