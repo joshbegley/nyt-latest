@@ -1,3 +1,7 @@
+**Five Ways Buying and Selling a House Could Change**\
+`The National Association of Realtors has agreed to change its policies to settle several lawsuits brought by home sellers — a move that could reduce commissions.`\
+https://nytimes.com/2024/03/16/realestate/buy-sell-house.html
+
 **Gunman at Large After Fatally Shooting 3 in Pennsylvania Township, Police Say**\
 `The authorities warned residents in Falls Township, Pa., on Saturday morning to shelter in place and urged some public venues to close.`\
 https://nytimes.com/2024/03/16/us/falls-township-pa-shooting.html
