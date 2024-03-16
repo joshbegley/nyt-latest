@@ -1,3 +1,11 @@
+**How Do You Solve a Problem Like North Korea?**\
+`Biden should act to prevent North Korea from adding to the list of U.S. headaches.`\
+https://nytimes.com/2024/03/16/opinion/north-korea-kim-jong-un-peace.html
+
+**Part-Time Employees: The Plight of the Mistreated**\
+`Readers discuss a novelist’s guest essay about how the retailers benefit but the workers struggle.`\
+https://nytimes.com/2024/03/16/opinion/letters/part-time-workers.html
+
 **India’s 2024 General Election: What to Know**\
 `India’s general elections will determine the political direction of the world’s most populous nation for the next five years.`\
 https://nytimes.com/2024/03/16/world/asia/india-2024-election.html
@@ -9,12 +17,4 @@ https://nytimes.com/2024/03/16/briefing/in-search-of-spring.html
 **A Financial Crisis May Jeopardize Local News in Most of Atlantic Canada**\
 `The main lender for SaltWire, which owns most of the region’s legacy newspapers outside New Brunswick, has moved to dissolve the publisher.`\
 https://nytimes.com/2024/03/16/world/canada/canada-newspapers-financial-crisis.html
-
-**In Occupied Ukraine, Casting a Vote (for Putin) as Armed Soldiers Watch**\
-`Russia is holding a presidential vote in the occupied regions of Ukraine to try to legitimize its rule there, expose dissenters and present a veneer of democracy.`\
-https://nytimes.com/2024/03/16/world/europe/ukraine-occupied-territories-russia-election.html
-
-**Chile’s Deadliest Wildfire Is Said to Have Been Made Worse by a Lack of Water**\
-`Poor water pressure and dry hydrants posed major obstacles to fighting the February fire that killed scores of people along the country’s Pacific Coast.`\
-https://nytimes.com/2024/03/16/world/americas/chile-wildfires-water-drought.html
 
