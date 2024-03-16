@@ -1,3 +1,7 @@
+**In Paris, the Olympics Clean Up Their Act**\
+`Organizers of the Games promise to slash greenhouse gas emissions by re-using historic buildings, adding bike lanes, even putting solar panels on the Seine. Will it work?`\
+https://nytimes.com/2024/03/16/climate/paris-olympics-climate.html
+
 **Supplies are to be brought by truck, including in the north, where conditions are particularly dire.**\
 `By Monika Pronczuk`\
 https://nytimes.com/live/2024/03/16/world/israel-hamas-war-gaza-news/supplies-are-to-be-brought-by-truck-including-in-the-north-where-conditions-are-particularly-dire
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/16/opinion/biden-israel-gaza.html
 **America Owes a Historical Debt to Haiti**\
 `The United States is complicit in the nation’s political chaos. It’s time to change that.`\
 https://nytimes.com/2024/03/16/opinion/haiti-america-conflict-peace.html
-
-**Covid Precautions Are Still With Us. Just Look Down.**\
-`Tattered vestiges of the pandemic serve as a reminder of a scary and surreal time.`\
-https://nytimes.com/2024/03/16/opinion/covid-precautions-social-distancing.html
 
