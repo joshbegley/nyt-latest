@@ -1,3 +1,7 @@
+**Was He Secretly Working for China? This Is What He Told Us.**\
+`Di Sanh Duong openly said that some people might mistake him for a Chinese spy, but he maintained that he never did anything to hurt Australia.`\
+https://nytimes.com/2024/03/16/world/australia/sunny-duong-statements.html
+
 **Australia Wanted to Catch Chinese Spies. Is This Really Whom It Had in Mind?**\
 `The first case tried under Australia’s foreign interference laws has raised tough questions about the breadth of the regulations.`\
 https://nytimes.com/2024/03/16/world/australia/foreign-interference-laws-sunny-duong.html
