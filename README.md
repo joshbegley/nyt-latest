@@ -11,7 +11,7 @@ https://nytimes.com/2024/03/16/nyregion/albert-alligator-buffalo-ny.html
 https://nytimes.com/2024/03/16/realestate/buy-sell-house.html
 
 **3 People Fatally Shot in Two Pennsylvania Township Homes, Police Say**\
-`The authorities lifted a shelter-in-place directive in Falls Township, Pa., on Saturday after the gunman fled and to Trenton, N.J., where the police have surrounded a house.`\
+`The authorities lifted a shelter-in-place directive in Falls Township, Pa., on Saturday after the gunman fled to Trenton, N.J., where the police have surrounded a house.`\
 https://nytimes.com/2024/03/16/us/falls-township-pa-shooting.html
 
 **The Tinge of Stained Glass**\
