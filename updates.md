@@ -1,3 +1,7 @@
+**2 Novels to Make You Sweat and Shiver**\
+`A love affair between jurors; reclaiming a classic.`\
+https://nytimes.com/2024/03/16/books/2-novels-to-make-you-sweat-and-shiver.html
+
 **In Paris, the Olympics Clean Up Their Act**\
 `Organizers of the Games promise to slash greenhouse gas emissions by re-using historic buildings, adding bike lanes, even putting solar panels on the Seine. Will it work?`\
 https://nytimes.com/2024/03/16/climate/paris-olympics-climate.html
