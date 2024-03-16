@@ -1,3 +1,7 @@
+**After R.B.G. Awards Go to Musk and Murdoch, Justice Ginsburg’s Family Objects**\
+`The children of Ruth Bader Ginsburg, who championed liberal causes and women’s rights, said the choice of recipients this year was an “affront” to the memory of their mother.`\
+https://nytimes.com/2024/03/15/us/politics/ruth-bader-ginsburg-leadership-award.html
+
 **Connecticut State Trooper Is Acquitted in Killing of a Black Teenager**\
 `Brian North faced up to 40 years in prison for firing seven times at Mubarak Soulemane after a car chase.`\
 https://nytimes.com/2024/03/15/nyregion/connecticut-trooper-acquitted-mubarak-soulemane.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/15/us/dorie-ladner-dead.html
 **Iran and U.S. Held Secret Talks on Proxy Attacks and Cease-Fire**\
 `Diplomats gathered in Oman in January, with the U.S. side seeking to stop attacks on Red Sea shipping and American bases, and Iran looking for a Gaza cease-fire.`\
 https://nytimes.com/2024/03/15/world/middleeast/iran-us-secret-talks.html
-
-**A Watershed Moment for the Politics of Israel, Courtesy of Chuck Schumer**\
-`Republicans have long sought to make Israel a partisan issue, framing their party as the only one truly supportive of the Jewish state. The Senate majority leader’s blistering speech may have helped.`\
-https://nytimes.com/2024/03/15/us/politics/israel-schumer.html
 

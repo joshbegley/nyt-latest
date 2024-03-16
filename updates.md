@@ -1,3 +1,7 @@
+**After R.B.G. Awards Go to Musk and Murdoch, Justice Ginsburg’s Family Objects**\
+`The children of Ruth Bader Ginsburg, who championed liberal causes and women’s rights, said the choice of recipients this year was an “affront” to the memory of their mother.`\
+https://nytimes.com/2024/03/15/us/politics/ruth-bader-ginsburg-leadership-award.html
+
 **Connecticut State Trooper Is Acquitted in Killing of a Black Teenager**\
 `Brian North faced up to 40 years in prison for firing seven times at Mubarak Soulemane after a car chase.`\
 https://nytimes.com/2024/03/15/nyregion/connecticut-trooper-acquitted-mubarak-soulemane.html
