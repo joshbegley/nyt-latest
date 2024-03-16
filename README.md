@@ -1,3 +1,7 @@
+**The Tinge of Stained Glass**\
+`In the old New York Times headquarters, stained-glass panels adorned the editorial offices — and colored the place in more ways than one.`\
+https://nytimes.com/2024/03/16/insider/the-tinge-of-stained-glass.html
+
 **Irish Cream Coffee Cake**\
 `Four words, a lot of weekend baking delight.`\
 https://nytimes.com/2024/03/16/dining/irish-cream-coffee-cake.html
@@ -13,8 +17,4 @@ https://nytimes.com/live/2024/03/16/us/2024-presidential-election/trump-biden-pr
 **When Medicaid Comes After the Family Home**\
 `Federal law requires states to seek reimbursement from the assets, usually homes, of people who died after receiving benefits for long-term care.`\
 https://nytimes.com/2024/03/16/health/medicaid-estate-recovery-seniors.html
-
-**Americans Invested Billions in Chinese Companies. Now Their Money Is Stuck.**\
-`TikTok’s turn in geopolitical cross hairs highlights the narrowing paths to liquidity for investments in Chinese companies.`\
-https://nytimes.com/2024/03/16/business/dealbook/china-zombie-companies-tiktok.html
 
