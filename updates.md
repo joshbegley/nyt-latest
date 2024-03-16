@@ -1,3 +1,7 @@
+**Rebellious Russians Stage Daring Attacks From Ukraine on Russian Soil**\
+`The surprise attacks, timed to Russia’s election, are meant to undermine the sense of stability in Russia and divert the country’s military resources from Ukraine.`\
+https://nytimes.com/2024/03/16/world/europe/anti-putin-russians-ukraine-attacks.html
+
 **Authorities Seize Alligator Being Held Illegally in Home Near Buffalo**\
 `The alligator, Albert Edward, had been with his owner for 34 years.`\
 https://nytimes.com/2024/03/16/nyregion/albert-alligator-buffalo-ny.html
