@@ -1,3 +1,7 @@
+**Took the Lead?**\
+`Carly Schuna’s Saturday debut gets the day started off right.`\
+https://nytimes.com/2024/03/15/crosswords/daily-puzzle-2024-03-16.html
+
 **TikTok Bill’s Progress Slows in the Senate**\
 `Legislation to force TikTok’s Chinese owner to sell the app or have it banned in the United States sailed through the House, but the Senate has no plans to move hastily.`\
 https://nytimes.com/2024/03/15/technology/tiktok-ban-bill-senate.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/15/us/fani-willis-trump-georgia-case.html
 **A Reporter With a Fear of Snakes Joins a Snake Catcher**\
 `To write about the increase in snake encounters in Australia, a journalist had to get hands-on with the slithering reptiles.`\
 https://nytimes.com/2024/03/15/insider/a-reporter-with-a-fear-of-snakes-joins-a-snake-catcher.html
-
-**After R.B.G. Awards Go to Musk and Murdoch, Justice Ginsburg’s Family Objects**\
-`The children of Ruth Bader Ginsburg, who championed liberal causes and women’s rights, said the choice of recipients this year was an “affront” to the memory of their mother.`\
-https://nytimes.com/2024/03/15/us/politics/ruth-bader-ginsburg-leadership-award.html
 

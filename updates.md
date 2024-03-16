@@ -1,3 +1,7 @@
+**Took the Lead?**\
+`Carly Schuna’s Saturday debut gets the day started off right.`\
+https://nytimes.com/2024/03/15/crosswords/daily-puzzle-2024-03-16.html
+
 **TikTok Bill’s Progress Slows in the Senate**\
 `Legislation to force TikTok’s Chinese owner to sell the app or have it banned in the United States sailed through the House, but the Senate has no plans to move hastily.`\
 https://nytimes.com/2024/03/15/technology/tiktok-ban-bill-senate.html
