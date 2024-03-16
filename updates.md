@@ -1,3 +1,7 @@
+**Boeing Criminal Inquiry Expands With Subpoenas and Grand Jury**\
+`The Justice Department, which is investigating the blowout of a panel on an Alaska Airlines flight, is using a recently convened grand jury in Seattle.`\
+https://nytimes.com/2024/03/15/business/boeing-subpoenas-grand-jury.html
+
 **Took the Lead?**\
 `Carly Schuna’s Saturday debut gets the day started off right.`\
 https://nytimes.com/2024/03/15/crosswords/daily-puzzle-2024-03-16.html
