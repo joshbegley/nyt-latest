@@ -1,3 +1,7 @@
+**When Medicaid Comes After the Family Home**\
+`Federal law requires states to go after the assets, usually homes, of people who died after receiving benefits for long-term care.`\
+https://nytimes.com/2024/03/16/health/medicaid-estate-recovery-seniors.html
+
 **Americans Invested Billions in Chinese Companies. Now Their Money Is Stuck.**\
 `TikTok’s turn in geopolitical cross hairs highlights the narrowing paths to liquidity for investments in Chinese companies.`\
 https://nytimes.com/2024/03/16/business/dealbook/china-zombie-companies-tiktok.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/16/business/landline-phones-att.html
 **Examining Trump’s Alternate Reality Pitch**\
 `The war in Ukraine. Hamas’s attack on Israel. Inflation. The former president has insisted that none would have occurred if he had remained in office after 2020.`\
 https://nytimes.com/2024/03/16/us/politics/trumps-counterfactuals-alternate-reality.html
-
-**Does Everyone Want to Be on the ‘Mommy Track’?**\
-`More people are rejecting the false binary of remote work vs. the corporate ladder.`\
-https://nytimes.com/2024/03/16/opinion/remote-work-mommy-track.html
 
