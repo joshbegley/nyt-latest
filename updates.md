@@ -1,3 +1,7 @@
+**3 People Fatally Shot in Two Pennsylvania Township Homes, Police Say**\
+`The authorities lifted a shelter-in-place directive in Falls Township, Pa., on Saturday after the gunman fled to Trenton, N.J., where the police have surrounded a house.`\
+https://nytimes.com/2024/03/16/us/falls-township-pa-shooting.html
+
 **Rebellious Russians Stage Daring Attacks From Ukraine on Russian Soil**\
 `The surprise attacks, timed to Russia’s election, are meant to undermine the sense of stability in Russia and divert the country’s military resources from Ukraine.`\
 https://nytimes.com/2024/03/16/world/europe/anti-putin-russians-ukraine-attacks.html
