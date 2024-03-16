@@ -1,3 +1,7 @@
+**First Sea-Borne Aid Reaches Gaza Amid Fears About Security and Malnutrition**\
+`The 200 tons of food provided by a celebrity chef’s charity arrived as UNICEF said rising numbers of children in Gaza were facing food deprivation.`\
+https://nytimes.com/2024/03/16/world/middleeast/ocean-aid-gaza-malnutrition.html
+
 **After Another Subway Shooting, New York Wrestles With Question of Safety**\
 `Even with the National Guard patrolling the system, some New Yorkers say they don’t feel secure, particularly after the subway shooting in Brooklyn on Thursday. Others remain unfazed.`\
 https://nytimes.com/2024/03/16/nyregion/subway-shooting-national-guard-safety.html
