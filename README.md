@@ -1,5 +1,5 @@
 **Quotation of the Day: ‘Practically Fasting for Months’: A Joyless Ramadan in Gaza**\
-`Quotation of the Day for Monday, March 18, 2024.`\
+`Quotation of the Day for Sunday, March 17, 2024.`\
 https://nytimes.com/2024/03/17/pageoneplus/quotation-of-the-day-practically-fasting-for-months-a-joyless-ramadan-in-gaza.html
 
 **A Video Captures a Searing Portrait of the Subway, and of the City Above**\
