@@ -1,3 +1,7 @@
+**Many Russian voters say they have good reason to back Putin.**\
+`By Valerie Hopkins, Nanna Heitmann and Alina Lobzina`\
+https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/many-russian-voters-say-they-have-good-reason-to-back-putin
+
 **Armed soldiers oversaw voting in the occupied areas of Ukraine.**\
 `By Anatoly Kurmanaev, Andrew E. Kramer, Oleksandra Mykolyshyn and Oleg Matsnev`\
 https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/armed-soldiers-oversaw-voting-in-the-occupied-areas-of-ukraine

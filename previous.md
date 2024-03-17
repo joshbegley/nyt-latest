@@ -1,3 +1,7 @@
+**Many Russian voters say they have good reason to back Putin.**\
+`By Valerie Hopkins, Nanna Heitmann and Alina Lobzina`\
+https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/many-russian-voters-say-they-have-good-reason-to-back-putin
+
 **Armed soldiers oversaw voting in the occupied areas of Ukraine.**\
 `By Anatoly Kurmanaev, Andrew E. Kramer, Oleksandra Mykolyshyn and Oleg Matsnev`\
 https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/armed-soldiers-oversaw-voting-in-the-occupied-areas-of-ukraine
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/17/us/politics/nicole-shanahan-rfk-jr-running-mate.h
 **Navalny’s Widow Casts Her Ballot in Berlin**\
 `Yulia Navalnaya, who has vowed to carry on her husband’s work, waited in line for hours with voters outside of the Russian embassy.`\
 https://nytimes.com/2024/03/17/world/europe/yulia-navalnaya-election-protest.html
-
-**Chef Helping Send Aid Ships to Gaza Calls for a Cease-Fire**\
-`The chef, José Andrés, also said that he hoped his group, World Central Kitchen, would be eventually able to transport “huge quantities of food daily into the shores of Gaza.”`\
-https://nytimes.com/2024/03/17/world/middleeast/gaza-aid-ceasefire-chef.html
 
