@@ -1,3 +1,7 @@
+**Selection Sunday**\
+`Recent changes in college sports have made March Madness even more unpredictable.`\
+https://nytimes.com/2024/03/17/briefing/selection-sunday.html
+
 **The Sunday Read: ‘Sure, It Won an Oscar. But Is It Criterion?’**\
 `How the Criterion Collection became the film world’s arbiter of taste.`\
 https://nytimes.com/2024/03/17/podcasts/the-daily/the-sunday-read-sure-it-won-an-oscar-but-is-it-criterion.html

@@ -1,3 +1,7 @@
+**Selection Sunday**\
+`Recent changes in college sports have made March Madness even more unpredictable.`\
+https://nytimes.com/2024/03/17/briefing/selection-sunday.html
+
 **The Sunday Read: ‘Sure, It Won an Oscar. But Is It Criterion?’**\
 `How the Criterion Collection became the film world’s arbiter of taste.`\
 https://nytimes.com/2024/03/17/podcasts/the-daily/the-sunday-read-sure-it-won-an-oscar-but-is-it-criterion.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/17/world/europe/iceland-volcano-eruption.html
 **Biden’s $53 Million February Haul Fuels Money Edge Over Trump**\
 `The president’s campaign and affiliated groups, including the D.N.C., hold a significant cash-on-hand advantage over Donald J. Trump and Republicans, as Mr. Trump continues to spend on legal bills.`\
 https://nytimes.com/2024/03/17/us/politics/biden-february-fundraising-2024.html
-
-**Haiti’s Hospitals Survived Cholera and Covid. Gangs Are Closing Them.**\
-`Many hospitals in Haiti’s capital have been looted by gangs or abandoned by their staffs amid the violence. Some are open, but too dangerous for people in need of care to reach.`\
-https://nytimes.com/2024/03/17/world/americas/haiti-gang-violence-health.html
 
