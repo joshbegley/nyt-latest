@@ -1,3 +1,11 @@
+**The Sunday Read: ‘Sure, It Won an Oscar. But Is It Criterion?’**\
+`How the Criterion Collection became the film world’s arbiter of taste.`\
+https://nytimes.com/2024/03/17/podcasts/the-daily/the-sunday-read-sure-it-won-an-oscar-but-is-it-criterion.html
+
+**Elephants and Rihanna and Billionaires, Oh My!**\
+`What the lavish Ambani-Merchant wedding event reveals about India today.`\
+https://nytimes.com/2024/03/17/opinion/india-ambani-merchant-wedding.html
+
 **Iceland Volcano Erupts in Plumes of Fire With Little Notice**\
 `The authorities said the eruption on Saturday night was the most powerful of a series that started in December.`\
 https://nytimes.com/2024/03/17/world/europe/iceland-volcano-eruption.html
@@ -9,12 +17,4 @@ https://nytimes.com/2024/03/17/us/politics/biden-february-fundraising-2024.html
 **Haiti’s Hospitals Survived Cholera and Covid. Gangs Are Closing Them.**\
 `Many hospitals in Haiti’s capital have been looted by gangs or abandoned by their staffs amid the violence. Some are open, but too dangerous for people in need of care to reach.`\
 https://nytimes.com/2024/03/17/world/americas/haiti-gang-violence-health.html
-
-**Entering the ‘Matrix of Language’ With a Crossword Puzzle Fiend**\
-`Anna Shechtman’s new memoir-history hybrid, “The Riddles of the Sphinx,” explores the gender politics behind one of the world’s most popular word games.`\
-https://nytimes.com/2024/03/17/books/booksupdate/riddles-of-the-sphinx-anna-shechtman.html
-
-**The Foreign Language That Changed My Teenage Son’s Life**\
-`I worried about his ability to fit in. But then he fell in love with Russian — and on a trip to Central Asia, he flourished.`\
-https://nytimes.com/2024/03/17/magazine/russian-language-kazakhstan.html
 
