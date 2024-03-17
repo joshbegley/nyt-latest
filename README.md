@@ -1,3 +1,7 @@
+**‘Winterreise’ Review: Hiding a Roiling Grief**\
+`On Friday, the pianist Mitsuko Uchida and the tenor Mark Padmore illuminated the bleakness of Schubert’s genre-defining song cycle at Zankel Hall.`\
+https://nytimes.com/2024/03/17/arts/music/winterreise-review.html
+
 **As Putin promotes his vision, Russians look away from the war in Ukraine.**\
 `By Valerie Hopkins`\
 https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/as-putin-promotes-his-vision-russians-look-away-from-the-war-in-ukraine
@@ -13,8 +17,4 @@ https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/russian-
 **17russia-blog**\
 `Live Updates: Putin Is Set to Cement His Hold Over Russia`\
 https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine
-
-**Chicago Begins Evicting Migrants From Shelters, Citing Strain on Resources**\
-`Officials say more than 2,000 people would be evicted by the end of April, as volunteer groups scramble to assist them.`\
-https://nytimes.com/2024/03/17/us/chicago-migrants-eviction.html
 
