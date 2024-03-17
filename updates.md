@@ -1,3 +1,7 @@
+**Russians Know Putin Will Be Re-Elected, but Many Worry What Comes Next**\
+`While there is little doubt about the vote’s outcome, there is concern that an emboldened President Putin may use a win to start a new war mobilization.`\
+https://nytimes.com/2024/03/17/world/europe/russia-elelction-mood.html
+
 **Trump Says Some Migrants Are ‘Not People’ and Predicts a ‘Blood Bath’ if He Loses**\
 `In a caustic and discursive speech in Ohio, former President Donald J. Trump once again doubled down on a doomsday vision of the United States.`\
 https://nytimes.com/2024/03/16/us/politics/trump-speech-ohio.html
