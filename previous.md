@@ -1,3 +1,11 @@
+**In Latest A.I. War Escalation, Elon Musk Releases Chatbot Code**\
+`Mr. Musk’s move to open up the code behind Grok is the latest volley in a war to win the A.I. battle, after a suit against OpenAI on the same topic.`\
+https://nytimes.com/2024/03/17/technology/chatbot-xai-code-musk.html
+
+**Putin Breaks Silence on Navalny’s Death, Calling It an ‘Unfortunate Incident’**\
+`The Russian leader claimed he had been ready to release Navalny in a prisoner swap when the opposition leader died last month at an Arctic penal colony.`\
+https://nytimes.com/2024/03/17/world/europe/navalny-death-putin.html
+
 **A Doughnut With No Icing**\
 `Trent H. Evans sends out a few letters.`\
 https://nytimes.com/2024/03/17/crosswords/daily-puzzle-2024-03-18.html
@@ -9,12 +17,4 @@ https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/russian-
 **Kushner Deal in Serbia Follows Earlier Interest by Trump**\
 `More than a decade ago, before running for president, Donald Trump expressed interest in developing the same site in Belgrade that his son-in-law now plans to invest $500 million in rebuilding.`\
 https://nytimes.com/2024/03/17/us/politics/kushner-deal-serbia-trump.html
-
-**New York Must Figure Out How to Fix Cannabis Mess, Hochul Orders**\
-`Gov. Kathy Hochul ordered a review of the way New York State licenses cannabis businesses after calling the sluggish rollout of legal cannabis a “disaster.”`\
-https://nytimes.com/2024/03/17/nyregion/ny-cannabis-hochul.html
-
-**In Kansas City, a Festive Yet Cautious St. Patrick’s Day Parade**\
-`A sizable but smaller crowd gathered one month after the Super Bowl parade shooting. Some were wary, but many were determined to not let the tragedy disrupt a treasured tradition.`\
-https://nytimes.com/2024/03/17/us/st-patricks-day-kc-parade.html
 
