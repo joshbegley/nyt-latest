@@ -1,3 +1,7 @@
+**Quotation of the Day: ‘Practically Fasting for Months’: A Joyless Ramadan in Gaza**\
+`Quotation of the Day for Sunday, March 17, 2024.`\
+https://nytimes.com/2024/03/17/pageoneplus/quotation-of-the-day-practically-fasting-for-months-a-joyless-ramadan-in-gaza.html
+
 **A Video Captures a Searing Portrait of the Subway, and of the City Above**\
 `A nearly five-minute recording of a fight on the A train shows New York’s gravest problems, like illegal guns and mental illness, distilled in a single subway car.`\
 https://nytimes.com/2024/03/17/nyregion/brooklyn-subway-shooting-video.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/17/us/politics/trump-disinformation-2024-social-medi
 **‘Hundreds of People a Day Would Walk By and Admire His Work’**\
 `A Fire Island tradition, a late-night flat-tire fix in the Bronx and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2024/03/17/nyregion/metropolitan-diary.html
-
-**Few Smartphones, Some Beer: A Christian Village Grapples With Modernity**\
-`A rare look at how the Bruderhof of the Hudson Valley navigate the outside world while keeping it at arm’s length.`\
-https://nytimes.com/2024/03/17/nyregion/hudson-valley-bruderhof-community.html
 
