@@ -1,3 +1,7 @@
+**European nations dismiss an election ‘without any surprises.’**\
+`By Constant Méheut`\
+https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/european-nations-dismiss-an-election-without-any-surprises
+
 **‘We’re Not a Banana Republic,’ Netanyahu Says, Rejecting Criticism From U.S.**\
 `The Israeli leader lashed back at a call from a prominent Democratic senator for elections in Israel.`\
 https://nytimes.com/2024/03/17/world/middleeast/gaza-netanyahu-schumer-israel-us.html
