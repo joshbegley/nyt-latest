@@ -1,3 +1,7 @@
+**As Putin promotes his vision, Russians look away from the war in Ukraine.**\
+`By Valerie Hopkins`\
+https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/as-putin-promotes-his-vision-russians-look-away-from-the-war-in-ukraine
+
 **Ukrainian drones target Russia on the final day of voting, Russian officials say.**\
 `By Andrew E. Kramer`\
 https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/ukrainian-drones-target-russia-on-the-final-day-of-voting-russian-officials-say
@@ -13,8 +17,4 @@ https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine
 **Chicago Begins Evicting Migrants From Shelters, Citing Strain on Resources**\
 `Officials say more than 2,000 people would be evicted by the end of April, as volunteer groups scramble to assist them.`\
 https://nytimes.com/2024/03/17/us/chicago-migrants-eviction.html
-
-**What Really Causes Poor Performance in School**\
-`Responses to a column by Nicholas Kristof about schools’ inadequacies. Also: A lefty in the G.O.P.; countering fossil fuel industry propaganda.`\
-https://nytimes.com/2024/03/17/opinion/letters/school-performance.html
 

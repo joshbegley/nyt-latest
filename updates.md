@@ -1,3 +1,7 @@
+**As Putin promotes his vision, Russians look away from the war in Ukraine.**\
+`By Valerie Hopkins`\
+https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/as-putin-promotes-his-vision-russians-look-away-from-the-war-in-ukraine
+
 **Ukrainian drones target Russia on the final day of voting, Russian officials say.**\
 `By Andrew E. Kramer`\
 https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/ukrainian-drones-target-russia-on-the-final-day-of-voting-russian-officials-say
