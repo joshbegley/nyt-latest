@@ -1,3 +1,7 @@
+**Will Mexico’s Claudia Sheinbaum, a Jewish Woman, Blaze a Trail or Follow One?**\
+`Her ascent shows how pluralism has redefined the country’s texture.`\
+https://nytimes.com/2024/03/17/opinion/mexico-election-claudia-sheinbaum.html
+
 **Corrections: March 17, 2024**\
 `Corrections that appeared in print on Sunday, March 17, 2024.`\
 https://nytimes.com/2024/03/17/pageoneplus/corrections-march-17-2024.html
