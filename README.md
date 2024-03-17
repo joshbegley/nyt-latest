@@ -1,20 +1,20 @@
-**Piety and Profanity: The Raunchy Christians Are Here**\
-`In the Trump era, a surprising number of evangelicals are rejecting modesty and turning toward the risqué.`\
-https://nytimes.com/2024/03/17/us/evangelicals-christians-conservative-trump.html
+**Biden’s $53 Million February Haul Fuels Money Edge Over Trump**\
+`The president’s campaign and affiliated groups, including the D.N.C., hold a significant cash-on-hand advantage over Donald J. Trump and Republicans, as Mr. Trump continues to spend on legal bills.`\
+https://nytimes.com/2024/03/17/us/politics/biden-february-fundraising-2024.html
 
-**When Arguing Was an Art, Not a Free-for-All**\
-`In “The Ancient Art of Thinking for Yourself,” Robin Reames contends that Greek and Roman rhetorical techniques can help us speak — and listen — to one another today.`\
-https://nytimes.com/2024/03/17/books/review/the-ancient-art-of-thinking-for-yourself-robin-reames.html
+**Haiti’s Hospitals Survived Cholera and Covid. Gangs Are Closing Them.**\
+`Many hospitals in Haiti’s capital have been looted by gangs or abandoned by their staffs amid the violence. Some are open, but too dangerous for people in need of care to reach.`\
+https://nytimes.com/2024/03/17/world/americas/haiti-gang-violence-health.html
 
-**Rescue Worker Says Northern Gaza Is a ‘Catastrophe in Every Way’**\
-`As famine looms, a rescue worker with the Gaza government’s Palestinian Civil Defense gives a first-hand account of life on the ground amid Israel’s bombing of northern Gaza.`\
-https://nytimes.com/video/world/middleeast/100000009321758/northern-gaza-rescue-worker.html
+**Entering the ‘Matrix of Language’ With a Crossword Puzzle Fiend**\
+`Anna Shechtman’s new memoir-history hybrid, “The Riddles of the Sphinx,” explores the gender politics behind one of the world’s most popular word games.`\
+https://nytimes.com/2024/03/17/books/booksupdate/riddles-of-the-sphinx-anna-shechtman.html
 
-**Kali Reis Fought Her Way to HBO. What’s Next?**\
-`The “True Detective” star, who first made her name in the boxing ring, isn’t scared of online trolling — even by the creator of her show.`\
-https://nytimes.com/2024/03/17/style/kali-reis-true-detective.html
+**The Foreign Language That Changed My Teenage Son’s Life**\
+`I worried about his ability to fit in. But then he fell in love with Russian — and on a trip to Central Asia, he flourished.`\
+https://nytimes.com/2024/03/17/magazine/russian-language-kazakhstan.html
 
-**With Bold Colors and Big Feelings, a Pioneering Painter Tells Her Story**\
-`In “With Darkness Came Stars,” the photorealist Audrey Flack offers a vivid, gossipy chronicle of her career among some of New York City’s most famous artists.`\
-https://nytimes.com/2024/03/17/books/review/with-darkness-came-stars-audrey-flack.html
+**Crafting a Universe in Clay**\
+`The ceramic artist Toshiko Takaezu is getting a posthumous reappraisal, thanks to her devoted acolytes — and major shows highlighting her poetic forms.`\
+https://nytimes.com/2024/03/17/arts/design/toshiko-takaezu-retrospective-noguchi-museum.html
 
