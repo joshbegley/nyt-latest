@@ -1,3 +1,7 @@
+**Netanyahu to Schumer: ‘We’re not a banana republic.’**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/03/17/world/israel-hamas-war-gaza-news/netanyahu-schumer-rafah
+
 **What Trump’s TikTok Flip-Flop Tells America**\
 `On yet another issue, Trump sides with a foreign adversary over America.`\
 https://nytimes.com/2024/03/17/opinion/trump-tiktok-ban-china.html
