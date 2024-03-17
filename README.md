@@ -1,3 +1,7 @@
+**Russians Know Putin Will Be Re-Elected, but Many Worry What Comes Next**\
+`While there is little doubt about the vote’s outcome, there is concern that an emboldened President Putin may use a win to start a new war mobilization.`\
+https://nytimes.com/2024/03/17/world/europe/russia-elelction-mood.html
+
 **Trump Says Some Migrants Are ‘Not People’ and Predicts a ‘Blood Bath’ if He Loses**\
 `In a caustic and discursive speech in Ohio, former President Donald J. Trump once again doubled down on a doomsday vision of the United States.`\
 https://nytimes.com/2024/03/16/us/politics/trump-speech-ohio.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/16/us/gila-monster-bite-death.html
 **First Sea-Borne Aid Reaches Gaza Amid Fears About Security and Malnutrition**\
 `The 200 tons of food provided by a celebrity chef’s charity arrived as UNICEF said rising numbers of children in Gaza were facing food deprivation.`\
 https://nytimes.com/2024/03/16/world/middleeast/ocean-aid-gaza-malnutrition.html
-
-**After Another Subway Shooting, New York Wrestles With Question of Safety**\
-`Even with the National Guard patrolling the system, some New Yorkers say they don’t feel secure, particularly after the subway shooting in Brooklyn on Thursday. Others remain unfazed.`\
-https://nytimes.com/2024/03/16/nyregion/subway-shooting-national-guard-safety.html
 
