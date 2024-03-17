@@ -1,3 +1,7 @@
+**Trump Doubles Down on Migrants ‘Poisoning’ the Country**\
+`In an interview on Fox News, the former president said again that migrants crossing the southern border were criminals from prisons and mental institutions.`\
+https://nytimes.com/live/2024/03/17/us/2024-presidential-election/trump-fox-interview-migrants
+
 **While Putin skipped campaigning, his image was everywhere.**\
 `By Ivan Nechepurenko and Oleg Matsnev`\
 https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/while-putin-skipped-campaigning-his-image-was-everywhere
