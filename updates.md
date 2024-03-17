@@ -1,3 +1,7 @@
+**Chef Helping Send Aid Ships to Gaza Calls for a Cease-Fire**\
+`The chef, José Andrés, also said that he hoped his group, World Central Kitchen, would be eventually able to transport “huge quantities of food daily into the shores of Gaza.”`\
+https://nytimes.com/2024/03/17/world/middleeast/gaza-aid-ceasefire-chef.html
+
 **Trump Doubles Down on Migrants ‘Poisoning’ the Country**\
 `In an interview on Fox News, the former president said again that migrants crossing the southern border were criminals from prisons and mental institutions.`\
 https://nytimes.com/live/2024/03/17/us/2024-presidential-election/trump-fox-interview-migrants
