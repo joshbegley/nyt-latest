@@ -1,6 +1,6 @@
-**In a discursive and caustic speech, Trump says some migrants are ‘not people.’**\
-`At a rally in Ohio, ostensibly designed to boost a Republican candidate for Senate, former President Donald J. Trump once again doubled down on a doomsday vision of the United States.`\
-https://nytimes.com/live/2024/03/16/us/2024-presidential-election/in-a-discursive-and-caustic-speech-trump-says-some-migrants-are-not-people
+**Trump says some migrants are ‘not people’ and predicts a ‘blood bath’ if he doesn’t win.**\
+`In a caustic and discursive speech in Ohio, former President Donald J. Trump once again doubled down on a doomsday vision of the United States.`\
+https://nytimes.com/2024/03/16/us/politics/trump-speech-ohio.html
 
 **Haitian Migrant in Massachusetts Is Charged With Raping a Teenager**\
 `The suspect and the 15-year-old were both living in a hotel that currently serves as a migrants shelter. The charge comes amid heightened scrutiny over America’s immigration policy.`\
