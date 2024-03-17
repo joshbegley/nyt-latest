@@ -1,20 +1,20 @@
-**Will Mexico’s Claudia Sheinbaum, a Jewish Woman, Blaze a Trail or Follow One?**\
-`Her ascent shows how pluralism has redefined the country’s texture.`\
-https://nytimes.com/2024/03/17/opinion/mexico-election-claudia-sheinbaum.html
+**A Video Captures a Searing Portrait of the Subway, and of the City Above**\
+`A nearly five-minute recording of a fight on the A train shows New York’s gravest problems, like illegal guns and mental illness, distilled in a single subway car.`\
+https://nytimes.com/2024/03/17/nyregion/brooklyn-subway-shooting-video.html
 
-**Corrections: March 17, 2024**\
-`Corrections that appeared in print on Sunday, March 17, 2024.`\
-https://nytimes.com/2024/03/17/pageoneplus/corrections-march-17-2024.html
+**Now Arriving at J.F.K.: Ponies From Iceland and Dogs From the West Bank**\
+`The ARK, a 14-acre facility at Kennedy International Airport, is often the first stop for animals of all kinds arriving in the United States.`\
+https://nytimes.com/2024/03/17/nyregion/now-arriving-at-jfk-ponies-from-iceland-and-dogs-from-the-west-bank.html
 
-**Russians Know Putin Will Be Re-Elected, but Many Worry What Comes Next**\
-`While there is little doubt about the vote’s outcome, there is concern that an emboldened President Putin may use a win to start a new war mobilization.`\
-https://nytimes.com/2024/03/17/world/europe/russia-elelction-mood.html
+**How Trump’s Allies Are Winning the War Over Disinformation**\
+`Their claims of censorship have successfully stymied the effort to filter election lies online.`\
+https://nytimes.com/2024/03/17/us/politics/trump-disinformation-2024-social-media.html
 
-**Trump Says Some Migrants Are ‘Not People’ and Predicts a ‘Blood Bath’ if He Loses**\
-`In a caustic and discursive speech in Ohio, former President Donald J. Trump once again doubled down on a doomsday vision of the United States.`\
-https://nytimes.com/2024/03/16/us/politics/trump-speech-ohio.html
+**‘Hundreds of People a Day Would Walk By and Admire His Work’**\
+`A Fire Island tradition, a late-night flat-tire fix in the Bronx and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/03/17/nyregion/metropolitan-diary.html
 
-**Haitian Migrant in Massachusetts Is Charged With Raping a Teenager**\
-`The suspect and the 15-year-old were both living in a hotel that currently serves as a migrants shelter. The charge comes amid heightened scrutiny over America’s immigration policy.`\
-https://nytimes.com/2024/03/16/us/haitian-migrant-massachusetts.html
+**Few Smartphones, Some Beer: A Christian Village Grapples With Modernity**\
+`A rare look at how the Bruderhof of the Hudson Valley navigate the outside world while keeping it at arm’s length.`\
+https://nytimes.com/2024/03/17/nyregion/hudson-valley-bruderhof-community.html
 
