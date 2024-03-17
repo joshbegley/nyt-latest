@@ -1,3 +1,7 @@
+**Malnutrition persists despite airdrops and seaborne aid deliveries.**\
+`By Gaya Gupta and Vivek Shankar`\
+https://nytimes.com/live/2024/03/17/world/israel-hamas-war-gaza-news/malnutrition-persists-despite-airdrops-and-seaborne-aid-deliveries
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/03/17/crosswords/spelling-bee-forum.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/17/nyregion/brooklyn-subway-shooting-video.html
 **Now Arriving at J.F.K.: Ponies From Iceland and Dogs From the West Bank**\
 `The ARK, a 14-acre facility at Kennedy International Airport, is often the first stop for animals of all kinds arriving in the United States.`\
 https://nytimes.com/2024/03/17/nyregion/now-arriving-at-jfk-ponies-from-iceland-and-dogs-from-the-west-bank.html
-
-**How Trump’s Allies Are Winning the War Over Disinformation**\
-`Their claims of censorship have successfully stymied the effort to filter election lies online.`\
-https://nytimes.com/2024/03/17/us/politics/trump-disinformation-2024-social-media.html
 
