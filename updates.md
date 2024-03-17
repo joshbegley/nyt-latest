@@ -1,3 +1,7 @@
+**Trump Says Some Migrants Are ‘Not People’ and Predicts a ‘Blood Bath’ if He Loses**\
+`In a caustic and discursive speech in Ohio, former President Donald J. Trump once again doubled down on a doomsday vision of the United States.`\
+https://nytimes.com/2024/03/16/us/politics/trump-speech-ohio.html
+
 **Trump says some migrants are ‘not people’ and predicts a ‘blood bath’ if he doesn’t win.**\
 `In a caustic and discursive speech in Ohio, former President Donald J. Trump once again doubled down on a doomsday vision of the United States.`\
 https://nytimes.com/2024/03/16/us/politics/trump-speech-ohio.html
