@@ -1,3 +1,7 @@
+**Margaret Grade, Whose California Inn Was Beloved by Stars, Dies at 72**\
+`Her Manka’s Inverness Lodge drew actors and writers who dined at Ms. Grade’s farm-to-table restaurant and reveled in her eccentric flair.`\
+https://nytimes.com/2024/03/17/dining/margaret-grade-dead.html
+
 **Nicole Shanahan Emerges as a Top Candidate to Be R.F.K. Jr.’s Running Mate**\
 `The Bay Area lawyer and investor, who was once married to a Google co-founder, was a creative force and primary financial backer behind Mr. Kennedy’s Super Bowl ad.`\
 https://nytimes.com/2024/03/17/us/politics/nicole-shanahan-rfk-jr-running-mate.html
