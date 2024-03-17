@@ -1,3 +1,7 @@
+**Armed soldiers oversaw voting in the occupied areas of Ukraine.**\
+`By Anatoly Kurmanaev, Andrew E. Kramer, Oleksandra Mykolyshyn and Oleg Matsnev`\
+https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/armed-soldiers-oversaw-voting-in-the-occupied-areas-of-ukraine
+
 **Margaret Grade, Whose California Inn Was Beloved by Stars, Dies at 72**\
 `Her Manka’s Inverness Lodge drew actors and writers who dined at Ms. Grade’s farm-to-table restaurant and reveled in her eccentric flair.`\
 https://nytimes.com/2024/03/17/dining/margaret-grade-dead.html

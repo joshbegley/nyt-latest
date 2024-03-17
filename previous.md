@@ -1,3 +1,7 @@
+**Armed soldiers oversaw voting in the occupied areas of Ukraine.**\
+`By Anatoly Kurmanaev, Andrew E. Kramer, Oleksandra Mykolyshyn and Oleg Matsnev`\
+https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/armed-soldiers-oversaw-voting-in-the-occupied-areas-of-ukraine
+
 **Margaret Grade, Whose California Inn Was Beloved by Stars, Dies at 72**\
 `Her Manka’s Inverness Lodge drew actors and writers who dined at Ms. Grade’s farm-to-table restaurant and reveled in her eccentric flair.`\
 https://nytimes.com/2024/03/17/dining/margaret-grade-dead.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/17/world/europe/yulia-navalnaya-election-protest.htm
 **Chef Helping Send Aid Ships to Gaza Calls for a Cease-Fire**\
 `The chef, José Andrés, also said that he hoped his group, World Central Kitchen, would be eventually able to transport “huge quantities of food daily into the shores of Gaza.”`\
 https://nytimes.com/2024/03/17/world/middleeast/gaza-aid-ceasefire-chef.html
-
-**Trump Doubles Down on Migrants ‘Poisoning’ the Country**\
-`In an interview on Fox News, the former president said again that migrants crossing the southern border were criminals from prisons and mental institutions.`\
-https://nytimes.com/2024/03/17/us/politics/trump-fox-interview-migrants.html
 
