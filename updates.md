@@ -1,3 +1,7 @@
+**Ukrainian Drones Target Russia on Final Day of Voting, Russian Officials Say**\
+`An oil refinery was set on fire in southern Russia and air defense forces shot down two drones flying toward Moscow, officials said, as Ukraine continued a flurry of attacks timed for the election.`\
+https://nytimes.com/2024/03/17/world/europe/ukraine-drone-attack-russia.html
+
 **‘Winterreise’ Review: Hiding a Roiling Grief**\
 `On Friday, the pianist Mitsuko Uchida and the tenor Mark Padmore illuminated the bleakness of Schubert’s genre-defining song cycle at Zankel Hall.`\
 https://nytimes.com/2024/03/17/arts/music/winterreise-review.html
