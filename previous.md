@@ -1,3 +1,7 @@
+**In Kansas City, a Festive Yet Cautious St. Patrick’s Day Parade**\
+`A sizable but smaller crowd gathered one month after the Super Bowl parade shooting. Some were wary, but many were determined to not let the tragedy disrupt a treasured tradition.`\
+https://nytimes.com/2024/03/17/us/st-patricks-day-kc-parade.html
+
 **Monday Briefing: Putin Extends His Rule**\
 `Also, new avenues to get aid into Gaza are not yet relieving hunger.`\
 https://nytimes.com/2024/03/17/world/asia/putin-vote-results-gaza-asia.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/17/arts/music/byron-janis-dead.html
 **Khanna Explains Opposition to TikTok Bill While Senators Signal Openness**\
 `The California Democrat Ro Khanna pointed to the need for a federal data privacy law, and a Democrat and a Republican in the Senate suggested sympathy for the calls to ban the app.`\
 https://nytimes.com/2024/03/17/us/politics/khanna-tiktok-bill-senate.html
-
-**Many Russian voters say they have good reason to back Putin.**\
-`By Valerie Hopkins, Nanna Heitmann and Alina Lobzina`\
-https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/many-russian-voters-say-they-have-good-reason-to-back-putin
 
