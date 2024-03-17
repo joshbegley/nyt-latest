@@ -1,3 +1,7 @@
+**Margaret Grade, Whose California Inn Was Beloved by Stars, Dies at 72**\
+`Her Manka’s Inverness Lodge drew actors and writers who dined at Ms. Grade’s farm-to-table restaurant and reveled in her eccentric flair.`\
+https://nytimes.com/2024/03/17/dining/margaret-grade-dead.html
+
 **Nicole Shanahan Emerges as a Top Candidate to Be R.F.K. Jr.’s Running Mate**\
 `The Bay Area lawyer and investor, who was once married to a Google co-founder, was a creative force and primary financial backer behind Mr. Kennedy’s Super Bowl ad.`\
 https://nytimes.com/2024/03/17/us/politics/nicole-shanahan-rfk-jr-running-mate.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/17/world/middleeast/gaza-aid-ceasefire-chef.html
 **Trump Doubles Down on Migrants ‘Poisoning’ the Country**\
 `In an interview on Fox News, the former president said again that migrants crossing the southern border were criminals from prisons and mental institutions.`\
 https://nytimes.com/2024/03/17/us/politics/trump-fox-interview-migrants.html
-
-**While Putin skipped campaigning, his image was everywhere.**\
-`By Ivan Nechepurenko and Oleg Matsnev`\
-https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/while-putin-skipped-campaigning-his-image-was-everywhere
 
