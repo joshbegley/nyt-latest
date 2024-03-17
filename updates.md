@@ -1,3 +1,7 @@
+**Khanna Explains Opposition to TikTok Bill While Senators Signal Openness**\
+`The California Democrat Ro Khanna pointed to the need for a federal data privacy law, and a Democrat and a Republican in the Senate suggested sympathy for the calls to ban the app.`\
+https://nytimes.com/2024/03/17/us/politics/khanna-tiktok-bill-senate.html
+
 **Many Russian voters say they have good reason to back Putin.**\
 `By Valerie Hopkins, Nanna Heitmann and Alina Lobzina`\
 https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/many-russian-voters-say-they-have-good-reason-to-back-putin
