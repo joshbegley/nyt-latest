@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | March 18, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/03/17/learning/whats-going-on-in-this-picture-march-18-2024.html
+
 **Selection Sunday**\
 `Recent changes in college sports have made March Madness even more unpredictable.`\
 https://nytimes.com/2024/03/17/briefing/selection-sunday.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/17/opinion/india-ambani-merchant-wedding.html
 **Iceland Volcano Erupts in Plumes of Fire With Little Notice**\
 `The authorities said the eruption on Saturday night was the most powerful of a series that started in December.`\
 https://nytimes.com/2024/03/17/world/europe/iceland-volcano-eruption.html
-
-**Biden’s $53 Million February Haul Fuels Money Edge Over Trump**\
-`The president’s campaign and affiliated groups, including the D.N.C., hold a significant cash-on-hand advantage over Donald J. Trump and Republicans, as Mr. Trump continues to spend on legal bills.`\
-https://nytimes.com/2024/03/17/us/politics/biden-february-fundraising-2024.html
 
