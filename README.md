@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/03/17/crosswords/spelling-bee-forum.html
+
 **Quotation of the Day: ‘Practically Fasting for Months’: A Joyless Ramadan in Gaza**\
 `Quotation of the Day for Sunday, March 17, 2024.`\
 https://nytimes.com/2024/03/17/pageoneplus/quotation-of-the-day-practically-fasting-for-months-a-joyless-ramadan-in-gaza.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/17/nyregion/now-arriving-at-jfk-ponies-from-iceland-
 **How Trump’s Allies Are Winning the War Over Disinformation**\
 `Their claims of censorship have successfully stymied the effort to filter election lies online.`\
 https://nytimes.com/2024/03/17/us/politics/trump-disinformation-2024-social-media.html
-
-**‘Hundreds of People a Day Would Walk By and Admire His Work’**\
-`A Fire Island tradition, a late-night flat-tire fix in the Bronx and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/03/17/nyregion/metropolitan-diary.html
 
