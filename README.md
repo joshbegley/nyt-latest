@@ -1,3 +1,7 @@
+**Will Mexico’s Claudia Sheinbaum, a Jewish Woman, Blaze a Trail or Follow One?**\
+`Her ascent shows how pluralism has redefined the country’s texture.`\
+https://nytimes.com/2024/03/17/opinion/mexico-election-claudia-sheinbaum.html
+
 **Corrections: March 17, 2024**\
 `Corrections that appeared in print on Sunday, March 17, 2024.`\
 https://nytimes.com/2024/03/17/pageoneplus/corrections-march-17-2024.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/16/us/politics/trump-speech-ohio.html
 **Haitian Migrant in Massachusetts Is Charged With Raping a Teenager**\
 `The suspect and the 15-year-old were both living in a hotel that currently serves as a migrants shelter. The charge comes amid heightened scrutiny over America’s immigration policy.`\
 https://nytimes.com/2024/03/16/us/haitian-migrant-massachusetts.html
-
-**Colorado Man Died From Venomous Gila Monster Bite, Autopsy Confirms**\
-`The rare fatality happened after the man endured a four-minute-long bite from the lizard to his right hand in February, records show.`\
-https://nytimes.com/2024/03/16/us/gila-monster-bite-death.html
 
