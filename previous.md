@@ -1,3 +1,7 @@
+**Chicago Begins Evicting Migrants From Shelters, Citing Strain on Resources**\
+`Officials say more than 2,000 people would be evicted by the end of April, as volunteer groups scramble to assist them.`\
+https://nytimes.com/2024/03/17/us/chicago-migrants-eviction.html
+
 **What Really Causes Poor Performance in School**\
 `Responses to a column by Nicholas Kristof about schools’ inadequacies. Also: A lefty in the G.O.P.; countering fossil fuel industry propaganda.`\
 https://nytimes.com/2024/03/17/opinion/letters/school-performance.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/17/us/politics/biden-gridiron-dinner.html
 **Netanyahu to Schumer: ‘We’re not a banana republic.’**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/03/17/world/israel-hamas-war-gaza-news/netanyahu-schumer-rafah
-
-**17pol-swiper**\
-`Biden joked and jabbed at the Gridiron dinner Saturday while Trump gave a freewheeling speech in Ohio.`\
-https://nytimes.com/live/2024/03/17/us/2024-presidential-election
 
