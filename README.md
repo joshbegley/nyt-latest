@@ -1,20 +1,20 @@
-**Malnutrition persists despite airdrops and seaborne aid deliveries.**\
-`By Gaya Gupta and Vivek Shankar`\
-https://nytimes.com/live/2024/03/17/world/israel-hamas-war-gaza-news/malnutrition-persists-despite-airdrops-and-seaborne-aid-deliveries
+**Piety and Profanity: The Raunchy Christians Are Here**\
+`In the Trump era, a surprising number of evangelicals are rejecting modesty and turning toward the risqué.`\
+https://nytimes.com/2024/03/17/us/evangelicals-christians-conservative-trump.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/03/17/crosswords/spelling-bee-forum.html
+**When Arguing Was an Art, Not a Free-for-All**\
+`In “The Ancient Art of Thinking for Yourself,” Robin Reames contends that Greek and Roman rhetorical techniques can help us speak — and listen — to one another today.`\
+https://nytimes.com/2024/03/17/books/review/the-ancient-art-of-thinking-for-yourself-robin-reames.html
 
-**Quotation of the Day: ‘Practically Fasting for Months’: A Joyless Ramadan in Gaza**\
-`Quotation of the Day for Sunday, March 17, 2024.`\
-https://nytimes.com/2024/03/17/pageoneplus/quotation-of-the-day-practically-fasting-for-months-a-joyless-ramadan-in-gaza.html
+**Rescue Worker Says Northern Gaza Is a ‘Catastrophe in Every Way’**\
+`As famine looms, a rescue worker with the Gaza government’s Palestinian Civil Defense gives a first-hand account of life on the ground amid Israel’s bombing of northern Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009321758/northern-gaza-rescue-worker.html
 
-**A Video Captures a Searing Portrait of the Subway, and of the City Above**\
-`A nearly five-minute recording of a fight on the A train shows New York’s gravest problems, like illegal guns and mental illness, distilled in a single subway car.`\
-https://nytimes.com/2024/03/17/nyregion/brooklyn-subway-shooting-video.html
+**Kali Reis Fought Her Way to HBO. What’s Next?**\
+`The “True Detective” star, who first made her name in the boxing ring, isn’t scared of online trolling — even by the creator of her show.`\
+https://nytimes.com/2024/03/17/style/kali-reis-true-detective.html
 
-**Now Arriving at J.F.K.: Ponies From Iceland and Dogs From the West Bank**\
-`The ARK, a 14-acre facility at Kennedy International Airport, is often the first stop for animals of all kinds arriving in the United States.`\
-https://nytimes.com/2024/03/17/nyregion/now-arriving-at-jfk-ponies-from-iceland-and-dogs-from-the-west-bank.html
+**With Bold Colors and Big Feelings, a Pioneering Painter Tells Her Story**\
+`In “With Darkness Came Stars,” the photorealist Audrey Flack offers a vivid, gossipy chronicle of her career among some of New York City’s most famous artists.`\
+https://nytimes.com/2024/03/17/books/review/with-darkness-came-stars-audrey-flack.html
 
