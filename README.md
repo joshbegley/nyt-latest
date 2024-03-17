@@ -6,8 +6,8 @@ https://nytimes.com/2024/03/17/opinion/letters/school-performance.html
 `Boneless beef chuck burbles with maple syrup, caramelized tomato paste, thyme, soy sauce and bay leaves in Vallery Lomas’s bourbon-braised beef.`\
 https://nytimes.com/2024/03/17/dining/a-rich-braise-from-a-cheap-cut.html
 
-**Biden mixes comedy with dire warnings on democracy at Gridiron Club dinner.**\
-`“One candidate’s too old and mentally unfit to be president,” President Biden said at the journalism association’s annual event. “The other guy’s me.”`\
+**Biden Mixes Comedy With Dire Warnings on Democracy at Washington Gala**\
+`“One candidate’s too old and mentally unfit to be president,” President Biden said at the Gridiron Club’s annual dinner. “The other guy’s me.”`\
 https://nytimes.com/2024/03/17/us/politics/biden-gridiron-dinner.html
 
 **Netanyahu to Schumer: ‘We’re not a banana republic.’**\
