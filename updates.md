@@ -1,3 +1,7 @@
+**17pol-swiper**\
+`Biden joked and jabbed at the Gridiron dinner Saturday while Trump gave a freewheeling speech in Ohio.`\
+https://nytimes.com/live/2024/03/17/us/2024-presidential-election
+
 **What Really Causes Poor Performance in School**\
 `Responses to a column by Nicholas Kristof about schools’ inadequacies. Also: A lefty in the G.O.P.; countering fossil fuel industry propaganda.`\
 https://nytimes.com/2024/03/17/opinion/letters/school-performance.html
