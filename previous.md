@@ -1,3 +1,7 @@
+**Trump says some migrants are ‘not people’ and predicts a ‘blood bath’ if he doesn’t win.**\
+`In a caustic and discursive speech in Ohio, former President Donald J. Trump once again doubled down on a doomsday vision of the United States.`\
+https://nytimes.com/2024/03/16/us/politics/trump-speech-ohio.html
+
 **Haitian Migrant in Massachusetts Is Charged With Raping a Teenager**\
 `The suspect and the 15-year-old were both living in a hotel that currently serves as a migrants shelter. The charge comes amid heightened scrutiny over America’s immigration policy.`\
 https://nytimes.com/2024/03/16/us/haitian-migrant-massachusetts.html
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/16/world/middleeast/ocean-aid-gaza-malnutrition.html
 **After Another Subway Shooting, New York Wrestles With Question of Safety**\
 `Even with the National Guard patrolling the system, some New Yorkers say they don’t feel secure, particularly after the subway shooting in Brooklyn on Thursday. Others remain unfazed.`\
 https://nytimes.com/2024/03/16/nyregion/subway-shooting-national-guard-safety.html
-
-**All Over the Map**\
-`Simeon Seigel’s Sunday debut lays out an awe-inspiring itinerary.`\
-https://nytimes.com/2024/03/16/crosswords/daily-puzzle-2024-03-17.html
 
