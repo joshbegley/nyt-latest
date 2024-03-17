@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | March 18, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/03/17/learning/whats-going-on-in-this-picture-march-18-2024.html
+
 **Selection Sunday**\
 `Recent changes in college sports have made March Madness even more unpredictable.`\
 https://nytimes.com/2024/03/17/briefing/selection-sunday.html
