@@ -1,3 +1,7 @@
+**Corrections: March 17, 2024**\
+`Corrections that appeared in print on Sunday, March 17, 2024.`\
+https://nytimes.com/2024/03/17/pageoneplus/corrections-march-17-2024.html
+
 **Russians Know Putin Will Be Re-Elected, but Many Worry What Comes Next**\
 `While there is little doubt about the vote’s outcome, there is concern that an emboldened President Putin may use a win to start a new war mobilization.`\
 https://nytimes.com/2024/03/17/world/europe/russia-elelction-mood.html
