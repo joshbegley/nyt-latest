@@ -1,3 +1,7 @@
+**Malnutrition persists despite airdrops and seaborne aid deliveries.**\
+`By Gaya Gupta and Vivek Shankar`\
+https://nytimes.com/live/2024/03/17/world/israel-hamas-war-gaza-news/malnutrition-persists-despite-airdrops-and-seaborne-aid-deliveries
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/03/17/crosswords/spelling-bee-forum.html
