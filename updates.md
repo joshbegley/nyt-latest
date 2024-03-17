@@ -1,3 +1,7 @@
+**Biden mixes comedy with dire warnings on democracy at Gridiron Club dinner.**\
+`“One candidate’s too old and mentally unfit to be president,” President Biden said at the journalism association’s annual event. “The other guy’s me.”`\
+https://nytimes.com/live/2024/03/17/us/2024-presidential-election/biden-gridiron-dinner
+
 **17pol-swiper**\
 `Biden joked and jabbed at the Gridiron dinner Saturday while Trump gave a freewheeling speech in Ohio.`\
 https://nytimes.com/live/2024/03/17/us/2024-presidential-election
