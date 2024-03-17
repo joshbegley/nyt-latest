@@ -1,3 +1,7 @@
+**While Putin skipped campaigning, his image was everywhere.**\
+`By Ivan Nechepurenko and Oleg Matsnev`\
+https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/while-putin-skipped-campaigning-his-image-was-everywhere
+
 **17russia-blog**\
 `Live Updates: Putin Is Set to Cement His Rule Over Russia`\
 https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine
