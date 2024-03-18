@@ -1,3 +1,11 @@
+**James D. Robinson III, Former Chief of American Express, Dies at 88**\
+`He led the company from 1977 to 1993 and helped transform Wall Street into a more competitive financial marketplace.`\
+https://nytimes.com/2024/03/18/business/james-d-robinson-3d-dead.html
+
+**A White House official says Israeli forces killed a senior Hamas military leader in Gaza.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/a-white-house-official-says-israeli-forces-killed-a-senior-hamas-military-leader-in-gaza
+
 **Trump’s Violent Language Toward EVs**\
 `The former president has deployed increasingly aggressive talk about electric vehicles and their effect on the American economy.`\
 https://nytimes.com/2024/03/18/climate/trump-electric-vehicles-blood-bath.html
