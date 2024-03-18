@@ -1,3 +1,11 @@
+**Chief Justice Roberts Rejects Peter Navarro’s Last-Ditch Bid to Avoid Prison**\
+`Mr. Navarro, a former adviser to President Trump, must report to a Miami prison on Tuesday for a four-month sentence after he was convicted of contempt of Congress for defying a subpoena.`\
+https://nytimes.com/2024/03/18/us/peter-navarro-supreme-court-trump.html
+
+**Justices Were Wary of Curbing Federal Input on Social Media**\
+`Also, Trump’s lawyers said he can’t secure a bond for his civil fraud judgment. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/03/18/briefing/supreme-court-social-media-shakira-album.html
+
 **Why Donald Trump Can’t Put Up a Bond**\
 `Regulations make it uneconomical for insurers to underwrite one.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/trump-bond-denied-insurance
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/18/world/asia/putin-red-square-gambia-gaza-asia.html
 **Washington’s Cherry Blossoms Reach Near-Record Early Bloom**\
 `A warm winter ushered the blossoms through the bloom cycle faster than usual, a spokesman for the National Park Service said.`\
 https://nytimes.com/2024/03/18/us/washington-dc-cherry-blossoms-peak-bloom.html
-
-**Putin Hails Conquests in Ukraine in Red Square Spectacle**\
-`A day after a rubber-stamp presidential election, President Vladimir Putin said he would not back down in Russia’s war against Ukraine.`\
-https://nytimes.com/2024/03/18/world/europe/russia-putin-election.html
-
-**Justices Seem Likely to Side With N.R.A. in First Amendment Dispute**\
-`The National Rifle Association argued that a New York official violated the First Amendment by encouraging entities to break ties with the group after the Parkland mass shooting.`\
-https://nytimes.com/2024/03/18/us/politics/supreme-court-nra-free-speech.html
 

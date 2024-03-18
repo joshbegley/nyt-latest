@@ -1,3 +1,11 @@
+**Chief Justice Roberts Rejects Peter Navarro’s Last-Ditch Bid to Avoid Prison**\
+`Mr. Navarro, a former adviser to President Trump, must report to a Miami prison on Tuesday for a four-month sentence after he was convicted of contempt of Congress for defying a subpoena.`\
+https://nytimes.com/2024/03/18/us/peter-navarro-supreme-court-trump.html
+
+**Justices Were Wary of Curbing Federal Input on Social Media**\
+`Also, Trump’s lawyers said he can’t secure a bond for his civil fraud judgment. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/03/18/briefing/supreme-court-social-media-shakira-album.html
+
 **Why Donald Trump Can’t Put Up a Bond**\
 `Regulations make it uneconomical for insurers to underwrite one.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/trump-bond-denied-insurance
