@@ -1,3 +1,15 @@
+**The case is one of several about the intersection of free speech and technology on the court’s docket.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/the-case-is-one-of-several-about-the-intersection-of-free-speech-and-technology-on-the-courts-docket
+
+**A New Chapter for Sports Illustrated, With Plans to Keep Print**\
+`Minute Media, owner of The Players’ Tribune, has struck a deal to operate Sports Illustrated for at least 10 years.`\
+https://nytimes.com/2024/03/18/business/sports-illustrated-magazine.html
+
+**California Lawmakers Propose Reparations, but Not Cash Payments**\
+`None of the proposals introduced since January include the direct cash payments to Black Californians that the state’s reparations task force recommended.`\
+https://nytimes.com/2024/03/18/us/california-reparations-bills-cash-payments.html
+
 **Israeli Negotiators Head to Qatar for Cease-Fire Talks, Officials Say**\
 `Hamas and Israel failed to reach an agreement ahead of Ramadan. Last week, Hamas dropped one of its demands.`\
 https://nytimes.com/2024/03/18/world/middleeast/hamas-israel-cease-fire-talks.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/18/movies/stormy-daniels-documentary.html
 **The Realtors’ Big Defeat**\
 `A settlement in the real estate industry is a case study of a central flaw in free-market economic theory.`\
 https://nytimes.com/2024/03/18/briefing/real-estate-agent-commissions-free-market.html
-
-**Blinken Warns of Disinformation Threat to Democracies**\
-`At an international forum, the secretary of state said artificial intelligence’s ability to disrupt the global flow of information could prove politically perilous during a year of elections.`\
-https://nytimes.com/2024/03/18/us/politics/blinken-artificial-intelligence-threat.html
-
-**What’s Next After Putin’s Win, and Why U.S. Home Prices May Start to Drop**\
-`Plus, the impossibility of a perfect March Madness bracket.`\
-https://nytimes.com/2024/03/18/podcasts/russia-election-march-madness.html
-
-**Your Car May Be Spying on You**\
-`Modern vehicles can track all kinds of data, including location and driving style, raising a host of troubling privacy issues.`\
-https://nytimes.com/2024/03/18/podcasts/the-daily/car-gm-insurance-spying.html
 
