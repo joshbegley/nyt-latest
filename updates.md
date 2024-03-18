@@ -1,3 +1,11 @@
+**Can You Find These 13 Hidden Nonfiction Book Titles?**\
+`See how many books you can uncover in this literary word search puzzle — and build a new reading list to explore at the same time.`\
+https://nytimes.com/interactive/2024/03/18/books/review/nonfiction-book-search.html
+
+**‘I Have Made This Recipe Many, Many (Many!) Times’**\
+`My garlicky chicken with lemon-anchovy sauce is a well-loved weeknight classic.`\
+https://nytimes.com/2024/03/18/dining/i-have-made-this-recipe-many-many-many-times.html
+
 **Kennedy Family, Sans R.F.K. Jr., Poses With Biden at the White House**\
 `Relatives of Robert F. Kennedy Jr. have pointedly backed President Biden as their family member pursues a White House bid that they’ve condemned as “dangerous.”`\
 https://nytimes.com/2024/03/18/us/politics/kennedy-family-biden-white-house.html
