@@ -1,3 +1,11 @@
+**Thomas Stafford, 93, Commander of First U.S.-Soviet Space Mission, Dies**\
+`The Apollo-Soyuz mission, amid the Cold War, broke new ground in space cooperation when an American capsule docked with a Soviet craft 140 miles above the earth.`\
+https://nytimes.com/2024/03/18/science/space/thomas-p-stafford-dead.html
+
+**Trump’s Violent Language Toward EVs**\
+`The former president has deployed increasingly aggressive talk about electric vehicles and their effect on the American economy.`\
+https://nytimes.com/2024/03/18/climate/trumps-violent-language-toward-evs.html
+
 **Mayor Adams Is Accused of Sexually Assaulting a Colleague in 1993**\
 `In a lawsuit, a former police colleague of Eric Adams said that he demanded oral sex in exchange for career help in 1993 and assaulted her when she refused.`\
 https://nytimes.com/2024/03/18/nyregion/eric-adams-sexual-assault.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/18/arts/dance/flamenco-festival-city-center-olga-per
 **Justice Breyer Is Only Partly Right About Originalism**\
 `If American law is to evolve, the change should come from lawmakers, not judges.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/breyer-supreme-court-originalism
-
-**Learn ‘Modernist’ Bread Making Basics With This Free Online Course**\
-`Peruse vintage home goods from Provence, pick up chocolate-dipped matzo and more food news.`\
-https://nytimes.com/2024/03/18/dining/modernist-bread-making-basics.html
-
-**Israeli restrictions leave crucial relief for Gazans idling in Egypt, Saudi aid chief says.**\
-`By Vivian Nereim`\
-https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/israeli-restrictions-leave-crucial-relief-for-gazans-idling-in-egypt-saudi-aid-chief-says
 

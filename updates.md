@@ -1,3 +1,11 @@
+**Thomas Stafford, 93, Commander of First U.S.-Soviet Space Mission, Dies**\
+`The Apollo-Soyuz mission, amid the Cold War, broke new ground in space cooperation when an American capsule docked with a Soviet craft 140 miles above the earth.`\
+https://nytimes.com/2024/03/18/science/space/thomas-p-stafford-dead.html
+
+**Trump’s Violent Language Toward EVs**\
+`The former president has deployed increasingly aggressive talk about electric vehicles and their effect on the American economy.`\
+https://nytimes.com/2024/03/18/climate/trumps-violent-language-toward-evs.html
+
 **Mayor Adams Is Accused of Sexually Assaulting a Colleague in 1993**\
 `In a lawsuit, a former police colleague of Eric Adams said that he demanded oral sex in exchange for career help in 1993 and assaulted her when she refused.`\
 https://nytimes.com/2024/03/18/nyregion/eric-adams-sexual-assault.html
