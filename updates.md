@@ -1,3 +1,11 @@
+**2nd Man Charged in Theft of Judy Garland’s Ruby Slippers**\
+`Jerry Hal Saliterman threatened to release a sex tape of a woman if she told the F.B.I. about the theft of the famed red pumps, according to an indictment.`\
+https://nytimes.com/2024/03/18/us/wizard-of-oz-ruby-slippers-theft.html
+
+**Toby Keith Will Be Inducted Into the Country Hall of Fame This Year**\
+`The organization behind the honors avoids electing artists in the year of their death, but the singer died in February just after this year’s vote closed.`\
+https://nytimes.com/2024/03/18/arts/music/toby-keith-country-hall-of-fame.html
+
 **Chief Justice Roberts Rejects Peter Navarro’s Last-Ditch Bid to Avoid Prison**\
 `Mr. Navarro, a former adviser to President Trump, must report to a Miami prison on Tuesday for a four-month sentence after he was convicted of contempt of Congress for defying a subpoena.`\
 https://nytimes.com/2024/03/18/us/peter-navarro-supreme-court-trump.html
