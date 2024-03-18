@@ -1,3 +1,7 @@
+**Review: ‘The Shell Trial’ Seeks a Guilty Party in Climate Change**\
+`Ellen Reid and Roxie Perkins’s new opera, about events still in progress, finds fault and complicity in every player of a global blame game.`\
+https://nytimes.com/2024/03/18/arts/music/shell-trial-dutch-national-opera-review.html
+
 **Can You Find These 13 Hidden Nonfiction Book Titles?**\
 `See how many books you can uncover in this literary word search puzzle — and build a new reading list to explore at the same time.`\
 https://nytimes.com/interactive/2024/03/18/books/review/nonfiction-book-search.html
