@@ -1,3 +1,7 @@
+**Trump Defends His Warning of a ‘Blood Bath for the Country’**\
+`He said he had been referring only to the auto industry.`\
+https://nytimes.com/2024/03/18/us/politics/trump-blood-bath-auto-industry.html
+
 **Biden is heading to Nevada and Arizona, and five states will vote.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/03/18/us/trump-biden-election/biden-nevada-arizona
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009363863/democrat-governors-state-j
 **Famine Is Projected for Northern Gaza, Experts Say**\
 `A global authority on food security said that in the coming months, as many as 1.1 million people in Gaza could face the severest levels of hunger.`\
 https://nytimes.com/2024/03/18/world/middleeast/gaza-famine-report-starvation.html
-
-**Dan Loeb Enters the Chip Wars**\
-`The hedge fund mogul has been bankrolling a European patent fight against Intel, Dell, Amazon and other tech giants.`\
-https://nytimes.com/2024/03/18/business/dealbook/dan-loeb-chip-wars-intel-amazon.html
 
