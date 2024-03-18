@@ -1,3 +1,11 @@
+**Biden Administration Bans Asbestos**\
+`The United States joins more than 50 other countries that have banned the deadly carcinogen, although the phaseout will take more than a decade.`\
+https://nytimes.com/2024/03/18/climate/biden-administration-bans-asbestos.html
+
+**Trump Spurned by 30 Companies as He Seeks Bond in $454 Million Judgment**\
+`Donald J. Trump’s lawyers said in a court filing that he faces “insurmountable difficulties” as he tries to raise cash for the civil fraud penalty he faces in New York.`\
+https://nytimes.com/2024/03/18/nyregion/trump-bond-civil-fraud-case.html
+
 **Shakira’s Family Came Apart. Then Her Music Soared.**\
 `With “Las Mujeres Ya No Lloran,” her first album in seven years, the Colombian superstar said she “transformed pain into productivity.”`\
 https://nytimes.com/2024/03/18/arts/music/shakira-las-mujeres-ya-no-lloran.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/18/arts/music/met-opera-jonathan-tetelman.html
 **Ariana Grande’s ‘Eternal Sunshine’ Is the Biggest Album of 2024 Yet**\
 `The pop singer’s sixth No. 1 album opens at the top with the equivalent of 227,000 sales in the United States.`\
 https://nytimes.com/2024/03/18/arts/music/ariana-grande-eternal-sunshine-billboard-chart.html
-
-**New Studies Find No Evidence of Brain Injury in Havana Syndrome Cases**\
-`The findings from the National Institutes of Health are at odds with previous research that looked into the mysterious health incidents experienced by U.S. diplomats and spies.`\
-https://nytimes.com/2024/03/18/us/politics/havana-syndrome-brain-studies-nih.html
-
-**VW Workers Seek Union Vote at Tennessee Plant for Third Time**\
-`The United Automobile Workers union said that 70 percent of the 4,000 eligible Volkswagen workers at a Chattanooga factory had signed cards expressing support.`\
-https://nytimes.com/2024/03/18/business/volkswagen-uaw-union-chattanooga.html
 
