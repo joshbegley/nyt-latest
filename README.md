@@ -1,3 +1,7 @@
+**Shakira’s Family Came Apart. Then Her Music Soared.**\
+`With “Las Mujeres Ya No Lloran,” her first album in seven years, the Colombian superstar said she “transformed pain into productivity.”`\
+https://nytimes.com/2024/03/18/arts/music/shakira-las-mujeres-ya-no-lloran.html
+
 **Review: ‘The Shell Trial’ Seeks a Guilty Party in Climate Change**\
 `Ellen Reid and Roxie Perkins’s new opera, about events still in progress, finds fault and complicity in every player of a global blame game.`\
 https://nytimes.com/2024/03/18/arts/music/shell-trial-dutch-national-opera-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/us/politics/havana-syndrome-brain-studies-nih.htm
 **VW Workers Seek Union Vote at Tennessee Plant for Third Time**\
 `The United Automobile Workers union said that 70 percent of the 4,000 eligible Volkswagen workers at a Chattanooga factory had signed cards expressing support.`\
 https://nytimes.com/2024/03/18/business/volkswagen-uaw-union-chattanooga.html
-
-**A Bronx Teacher Asked. Tommy Orange Answered.**\
-`When the author received an impassioned email, he dropped everything to visit the students who inspired it.`\
-https://nytimes.com/2024/03/18/books/tommy-orange-there-there-wandering-stars.html
 
