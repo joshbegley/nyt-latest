@@ -1,3 +1,11 @@
+**Tesla’s Troubles Raise Questions About Its Invincibility**\
+`As the share price plunges, investors wonder whether the company, led by Elon Musk, can withstand intensifying competition.`\
+https://nytimes.com/2024/03/18/business/tesla-elon-musk-troubles.html
+
+**An American Tenor, a Puccini Specialist, Arrives at the Met**\
+`Jonathan Tetelman will sing in “La Rondine” and “Madama Butterfly” in New York. He trained as a baritone and worked as a D.J. before finding his “authentic voice” as a tenor.`\
+https://nytimes.com/2024/03/18/arts/music/met-opera-jonathan-tetelman.html
+
 **Ariana Grande’s ‘Eternal Sunshine’ Is the Biggest Album of 2024 Yet**\
 `The pop singer’s sixth No. 1 album opens at the top with the equivalent of 227,000 sales in the United States.`\
 https://nytimes.com/2024/03/18/arts/music/ariana-grande-eternal-sunshine-billboard-chart.html
