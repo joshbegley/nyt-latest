@@ -1,3 +1,7 @@
+**‘Stormy’ Review: Trials and Travails**\
+`A new documentary on Stormy Daniels traces how fame, frenzy and legal battles involving a former president upended her life.`\
+https://nytimes.com/2024/03/18/movies/stormy-daniels-documentary.html
+
 **The Realtors’ Big Defeat**\
 `A settlement in the real estate industry is a case study of a central flaw in free-market economic theory.`\
 https://nytimes.com/2024/03/18/briefing/real-estate-agent-commissions-free-market.html
