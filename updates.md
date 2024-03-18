@@ -1,3 +1,7 @@
+**Famine Is Projected for Northern Gaza, Experts Say**\
+`A global authority on food security said that in the coming months, as many as 1.1 million people in Gaza could face the severest levels of hunger.`\
+https://nytimes.com/2024/03/18/world/middleeast/gaza-famine-report-starvation.html
+
 **Israeli Negotiators Head to Qatar for Cease-Fire Talks, Officials Say**\
 `Hamas and Israel failed to reach an agreement ahead of Ramadan. Last week, Hamas dropped one of its demands.`\
 https://nytimes.com/2024/03/18/world/middleeast/hamas-israel-cease-fire-talks.html
