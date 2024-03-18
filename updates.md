@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/03/18/crosswords/spelling-bee-forum.html
+
 **2 Schools Clash as One Shrinks and the Other Gains Migrant Students**\
 `The schools share a building in Manhattan, but their paths forward have diverged as they contend with two major crises challenging urban school districts.`\
 https://nytimes.com/2024/03/18/nyregion/migrants-student-enrollment-building-space-fights.html
