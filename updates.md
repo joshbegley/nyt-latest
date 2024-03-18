@@ -1,3 +1,11 @@
+**Biden Administration Bans Asbestos**\
+`The United States joins more than 50 other countries that have banned the deadly carcinogen, although the phaseout will take more than a decade.`\
+https://nytimes.com/2024/03/18/climate/biden-administration-bans-asbestos.html
+
+**Trump Spurned by 30 Companies as He Seeks Bond in $454 Million Judgment**\
+`Donald J. Trump’s lawyers said in a court filing that he faces “insurmountable difficulties” as he tries to raise cash for the civil fraud penalty he faces in New York.`\
+https://nytimes.com/2024/03/18/nyregion/trump-bond-civil-fraud-case.html
+
 **Shakira’s Family Came Apart. Then Her Music Soared.**\
 `With “Las Mujeres Ya No Lloran,” her first album in seven years, the Colombian superstar said she “transformed pain into productivity.”`\
 https://nytimes.com/2024/03/18/arts/music/shakira-las-mujeres-ya-no-lloran.html
