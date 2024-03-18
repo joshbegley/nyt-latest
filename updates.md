@@ -1,3 +1,7 @@
+**Ariana Grande’s ‘Eternal Sunshine’ Is the Biggest Album of 2024 Yet**\
+`The pop singer’s sixth No. 1 album opens at the top with the equivalent of 227,000 sales in the United States.`\
+https://nytimes.com/2024/03/18/arts/music/ariana-grande-eternal-sunshine-billboard-chart.html
+
 **New Studies Find No Evidence of Brain Injury in Havana Syndrome Cases**\
 `The findings from the National Institutes of Health are at odds with previous research that looked into the mysterious health incidents experienced by U.S. diplomats and spies.`\
 https://nytimes.com/2024/03/18/us/politics/havana-syndrome-brain-studies-nih.html
