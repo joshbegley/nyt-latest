@@ -1,3 +1,7 @@
+**Biden and Irish Leader Use St. Patrick’s Day Visit to Address Gaza**\
+`Prime Minister Leo Varadkar, at the White House, referred to his own country’s struggles when saying that “the Irish people have such empathy for the Palestinian people.”`\
+https://nytimes.com/2024/03/17/us/politics/biden-ireland-palestinians-gaza.html
+
 **European nations dismiss an election ‘without any surprises.’**\
 `By Constant Méheut`\
 https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/european-nations-dismiss-an-election-without-any-surprises
@@ -13,8 +17,4 @@ https://nytimes.com/2024/03/17/technology/chatbot-xai-code-musk.html
 **Putin Breaks Silence on Navalny’s Death, Calling It an ‘Unfortunate Incident’**\
 `The Russian leader claimed he had been ready to release Navalny in a prisoner swap when the opposition leader died last month at an Arctic penal colony.`\
 https://nytimes.com/2024/03/17/world/europe/navalny-death-putin.html
-
-**A Doughnut With No Icing**\
-`Trent H. Evans sends out a few letters.`\
-https://nytimes.com/2024/03/17/crosswords/daily-puzzle-2024-03-18.html
 

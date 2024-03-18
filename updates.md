@@ -1,3 +1,7 @@
+**Biden and Irish Leader Use St. Patrick’s Day Visit to Address Gaza**\
+`Prime Minister Leo Varadkar, at the White House, referred to his own country’s struggles when saying that “the Irish people have such empathy for the Palestinian people.”`\
+https://nytimes.com/2024/03/17/us/politics/biden-ireland-palestinians-gaza.html
+
 **European nations dismiss an election ‘without any surprises.’**\
 `By Constant Méheut`\
 https://nytimes.com/live/2024/03/17/world/russia-election-putin-ukraine/european-nations-dismiss-an-election-without-any-surprises
