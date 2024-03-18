@@ -1,3 +1,15 @@
+**New Studies Find No Evidence of Brain Injury in Havana Syndrome Cases**\
+`The findings from the National Institutes of Health are at odds with previous research that looked into the mysterious health incidents experienced by U.S. diplomats and spies.`\
+https://nytimes.com/2024/03/18/us/politics/havana-syndrome-brain-studies-nih.html
+
+**VW Workers Seek Union Vote at Tennessee Plant for Third Time**\
+`The United Automobile Workers union said that 70 percent of the 4,000 eligible Volkswagen workers at a Chattanooga factory had signed cards expressing support.`\
+https://nytimes.com/2024/03/18/business/volkswagen-uaw-union-chattanooga.html
+
+**A Bronx Teacher Asked. Tommy Orange Answered.**\
+`When the author received an impassioned email, he dropped everything to visit the students who inspired it.`\
+https://nytimes.com/2024/03/18/books/tommy-orange-there-there-wandering-stars.html
+
 **Here’s how a Trump-appointed judge saw the Biden administration pressuring companies to censor speech.**\
 `The case is a flashpoint in a broader effort by conservatives to document what they contend is a liberal conspiracy to silence their views.`\
 https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/heres-how-a-trump-appointed-judge-saw-the-biden-administration-pressuring-companies-to-censor-speech
