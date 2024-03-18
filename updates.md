@@ -1,3 +1,7 @@
+**Shakira’s Family Came Apart. Then Her Music Soared.**\
+`With “Las Mujeres Ya No Lloran,” her first album in seven years, the Colombian superstar said she “transformed pain into productivity.”`\
+https://nytimes.com/2024/03/18/arts/music/shakira-las-mujeres-ya-no-lloran.html
+
 **Review: ‘The Shell Trial’ Seeks a Guilty Party in Climate Change**\
 `Ellen Reid and Roxie Perkins’s new opera, about events still in progress, finds fault and complicity in every player of a global blame game.`\
 https://nytimes.com/2024/03/18/arts/music/shell-trial-dutch-national-opera-review.html
