@@ -1,3 +1,7 @@
+**The Internet Is a Wasteland, So Give Kids Better Places to Go**\
+`Young people won’t escape social media misery without freedom in the real world.`\
+https://nytimes.com/2024/03/18/opinion/internet-kids-social-media.html
+
 **Serbian Leader Says Kushner Deal Is Not an Effort to Influence Trump**\
 `After news reports that Jared Kushner plans to redevelop a site in Belgrade bombed by NATO in 1999, Serbian politicians clashed over whether the deal was appropriate.`\
 https://nytimes.com/2024/03/18/us/politics/jared-kushner-serbia-president.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009368929/witness-films-israeli
 **David Seidler, Oscar-Winning Writer of ‘The King’s Speech,’ Dies at 86**\
 `He drew on his own painful experiences with a stutter in depicting King George VI’s struggles to overcome his impediment and rally Britain in World War II.`\
 https://nytimes.com/2024/03/18/movies/david-seidler-dead.html
-
-**Trump Seeks to Appeal Ruling Allowing Prosecutor to Keep Georgia Case**\
-`Because the defendants want to pursue an appeal now, ahead of any trial, Georgia law requires them to get permission from the judge who wrote the ruling.`\
-https://nytimes.com/2024/03/18/us/trump-georgia-fani-willis-appeal.html
 
