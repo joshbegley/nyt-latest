@@ -1,3 +1,11 @@
+**The Most Famous Cowboy Hat in the World Right Now**\
+`Beyoncé, Shania Twain, Kevin Costner and many reality TV regulars are loyal customers of Kemo Sabe hats. The shop in Aspen can’t believe its luck.`\
+https://nytimes.com/2024/03/18/style/aspen-kemo-sabe-cowboy-hat-alix-earle.html
+
+**Marginal Military Gains Won’t Stop a Famine in Gaza**\
+`The hospital assault raises further questions about Israel’s stated aim of eradicating Hamas in Gaza as a whole.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/al-shifa-hospital-attack
+
 **Who was Marwan Issa, the Hamas commander killed by Israel?**\
 `Mr. Issa, a presumed planner of the Oct. 7 attacks, is one of the most senior Hamas leaders killed in Gaza since the start of the war.`\
 https://nytimes.com/2024/03/18/world/middleeast/who-was-marwan-issa.html

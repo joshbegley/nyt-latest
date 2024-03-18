@@ -1,3 +1,11 @@
+**The Most Famous Cowboy Hat in the World Right Now**\
+`Beyoncé, Shania Twain, Kevin Costner and many reality TV regulars are loyal customers of Kemo Sabe hats. The shop in Aspen can’t believe its luck.`\
+https://nytimes.com/2024/03/18/style/aspen-kemo-sabe-cowboy-hat-alix-earle.html
+
+**Marginal Military Gains Won’t Stop a Famine in Gaza**\
+`The hospital assault raises further questions about Israel’s stated aim of eradicating Hamas in Gaza as a whole.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/al-shifa-hospital-attack
+
 **Tuesday Briefing: Putin’s Victory Spectacle**\
 `Also, Gambia moves to overturn a ban on female genital cutting.`\
 https://nytimes.com/2024/03/18/world/asia/putin-red-square-gambia-gaza-asia.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/12/opinion/thepoint/pen-world-voices-censorship
 **James D. Robinson III, Former Chief of American Express, Dies at 88**\
 `He led the company from 1977 to 1993 and helped transform Wall Street into a more competitive financial marketplace.`\
 https://nytimes.com/2024/03/18/business/james-d-robinson-3d-dead.html
-
-**A White House official says Israeli forces killed a senior Hamas military leader in Gaza.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/a-white-house-official-says-israeli-forces-killed-a-senior-hamas-military-leader-in-gaza
-
-**Thomas Stafford, 93, Commander of First U.S.-Soviet Space Mission, Dies**\
-`The Apollo-Soyuz mission, amid the Cold War, broke new ground in space cooperation when an American capsule docked with a Soviet craft 140 miles above the earth.`\
-https://nytimes.com/2024/03/18/science/space/thomas-p-stafford-dead.html
 
