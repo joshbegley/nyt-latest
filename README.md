@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/what-happens-n
 
 **Manafort in Talks to Return for the Republican National Convention**\
 `Paul Manafort, who served as a top adviser to Donald Trump’s 2016 campaign, was pardoned by Mr. Trump after being convicted of tax and bank fraud.`\
-https://nytimes.com/2024/03/18/us/politics/manafort-in-talks-to-return-for-the-republican-national-convention.html
+https://nytimes.com/2024/03/18/us/politics/manafort-rnc-trump.html
 
 **Where the Wild Things Went During the Pandemic**\
 `A new study of camera-trap images complicates the idea that all wildlife thrived during the Covid lockdowns.`\
