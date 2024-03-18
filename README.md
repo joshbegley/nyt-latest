@@ -1,3 +1,11 @@
+**Storing Renewable Energy, One Balloon at a Time**\
+`To decarbonize the electrical grid, companies are finding creative ways to store energy during periods of low demand.`\
+https://nytimes.com/2024/03/18/science/renewable-energy-storage-climate.html
+
+**What’s on TV This Week: ‘The Valley’ and Figure Skating Championships**\
+`A new reality show with familiar faces comes to Bravo, and NBC airs competitive skating.`\
+https://nytimes.com/2024/03/18/arts/television/whats-on-tv-this-week-the-valley-and-figure-skating-championships.html
+
 **What Meltdown? Crypto Comes Roaring Back in the Philippines.**\
 `Two years after the cryptocurrency market crashed, internet cafes for playing crypto-earning video games are opening and farmers have started harvesting virtual crops from the games for income.`\
 https://nytimes.com/2024/03/18/technology/crypto-video-games-philippines.html
