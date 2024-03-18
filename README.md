@@ -1,3 +1,11 @@
+**Where the Wild Things Went During the Pandemic**\
+`A new study of camera-trap images complicates the idea that all wildlife thrived during the Covid lockdowns.`\
+https://nytimes.com/2024/03/18/science/pandemic-lockdowns-wildlife-anthropause.html
+
+**The Financial Aid Debacle Hurts Poor Students the Most**\
+`Aid doesn’t cover as much as it should, and the process of getting it is harder than ever.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/the-financial-aid-debacle-hurts-poor-students-the-most
+
 **The court is hearing a related case on the N.R.A.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/the-court-is-hearing-a-related-case-on-the-nra
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/03/18/books/review/nonfiction-book-search.h
 **‘I Have Made This Recipe Many, Many (Many!) Times’**\
 `My garlicky chicken with lemon-anchovy sauce is a well-loved weeknight classic.`\
 https://nytimes.com/2024/03/18/dining/i-have-made-this-recipe-many-many-many-times.html
-
-**Kennedy Family, Sans R.F.K. Jr., Poses With Biden at the White House**\
-`Relatives of Robert F. Kennedy Jr. have pointedly backed President Biden as their family member pursues a White House bid that they’ve condemned as “dangerous.”`\
-https://nytimes.com/2024/03/18/us/politics/kennedy-family-biden-white-house.html
-
-**Tesla’s Troubles Raise Questions About Its Invincibility**\
-`As the share price plunges, investors wonder whether the company, led by Elon Musk, can withstand intensifying competition.`\
-https://nytimes.com/2024/03/18/business/tesla-elon-musk-troubles.html
 
