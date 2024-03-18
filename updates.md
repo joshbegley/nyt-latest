@@ -1,3 +1,7 @@
+**Trump’s Violent Language Toward EVs**\
+`The former president has deployed increasingly aggressive talk about electric vehicles and their effect on the American economy.`\
+https://nytimes.com/2024/03/18/climate/trump-electric-vehicles-blood-bath.html
+
 **Thomas Stafford, 93, Commander of First U.S.-Soviet Space Mission, Dies**\
 `The Apollo-Soyuz mission, amid the Cold War, broke new ground in space cooperation when an American capsule docked with a Soviet craft 140 miles above the earth.`\
 https://nytimes.com/2024/03/18/science/space/thomas-p-stafford-dead.html

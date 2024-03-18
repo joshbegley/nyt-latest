@@ -1,3 +1,11 @@
+**James D. Robinson III, Former Chief of American Express, Dies at 88**\
+`He led the company from 1977 to 1993 and helped transform Wall Street into a more competitive financial marketplace.`\
+https://nytimes.com/2024/03/18/business/james-d-robinson-3d-dead.html
+
+**A White House official says Israeli forces killed a senior Hamas military leader in Gaza.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/a-white-house-official-says-israeli-forces-killed-a-senior-hamas-military-leader-in-gaza
+
 **Thomas Stafford, 93, Commander of First U.S.-Soviet Space Mission, Dies**\
 `The Apollo-Soyuz mission, amid the Cold War, broke new ground in space cooperation when an American capsule docked with a Soviet craft 140 miles above the earth.`\
 https://nytimes.com/2024/03/18/science/space/thomas-p-stafford-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/18/obituaries/bernard-schwartz-dead.html
 **Beyoncé Is Riding Into Her Country Era. Here’s What to Know.**\
 `The singer and her collaborators have been dropping hints about “Cowboy Carter,” her upcoming album and first full-length foray into country music.`\
 https://nytimes.com/2024/03/18/arts/music/beyonce-country-album-cowboy-carter.html
-
-**On the Menu at Flamenco Fest, Tradition With a Side of Nuttiness**\
-`At City Center, performers like Olga Pericet and Manuel Liñán knew the rules they were bending.`\
-https://nytimes.com/2024/03/18/arts/dance/flamenco-festival-city-center-olga-pericet-miguel-linan.html
-
-**Justice Breyer Is Only Partly Right About Originalism**\
-`If American law is to evolve, the change should come from lawmakers, not judges.`\
-https://nytimes.com/live/2024/03/12/opinion/thepoint/breyer-supreme-court-originalism
 
