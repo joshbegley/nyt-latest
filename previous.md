@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`Russia’s election results.`\
+https://nytimes.com/2024/03/18/briefing/russia-election-putin-netanyahu.html
+
 **Storing Renewable Energy, One Balloon at a Time**\
 `To decarbonize the electrical grid, companies are finding creative ways to store energy during periods of low demand.`\
 https://nytimes.com/2024/03/18/science/renewable-energy-storage-climate.html
