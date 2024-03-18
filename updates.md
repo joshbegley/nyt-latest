@@ -1,3 +1,7 @@
+**Israeli restrictions leave crucial relief for Gazans idling in Egypt, Saudi aid chief says.**\
+`By Vivian Nereim`\
+https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/israeli-restrictions-leave-crucial-relief-for-gazans-idling-in-egypt-saudi-aid-chief-says
+
 **Modernism, but Make It Cool**\
 `Britain exported the architectural style to West Africa and India, but local practitioners adapted it for a different climate and a new kind of politics.`\
 https://nytimes.com/2024/03/18/arts/design/tropical-modernism-victoria-and-albert-museum.html
