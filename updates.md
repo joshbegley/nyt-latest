@@ -1,3 +1,7 @@
+**The Internet Is a Wasteland, So Give Kids Better Places to Go**\
+`Young people won’t escape social media misery without freedom in the real world.`\
+https://nytimes.com/2024/03/18/opinion/internet-kids-social-media.html
+
 **Serbian Leader Says Kushner Deal Is Not an Effort to Influence Trump**\
 `After news reports that Jared Kushner plans to redevelop a site in Belgrade bombed by NATO in 1999, Serbian politicians clashed over whether the deal was appropriate.`\
 https://nytimes.com/2024/03/18/us/politics/jared-kushner-serbia-president.html
