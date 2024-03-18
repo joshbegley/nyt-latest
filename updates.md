@@ -1,3 +1,7 @@
+**With New Six-Year Term, Putin Cements Hold on Russian Leadership**\
+`A rubber-stamp presidential election with no real competition allows Vladimir Putin to claim strong public support for his domestic dominance and the invasion of Ukraine.`\
+https://nytimes.com/2024/03/17/world/europe/russia-putin-election.html
+
 **Biden and Irish Leader Use St. Patrick’s Day Visit to Address Gaza**\
 `Prime Minister Leo Varadkar, at the White House, referred to his own country’s struggles when saying that “the Irish people have such empathy for the Palestinian people.”`\
 https://nytimes.com/2024/03/17/us/politics/biden-ireland-palestinians-gaza.html
