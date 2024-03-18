@@ -1,3 +1,19 @@
+**2 Schools Clash as One Shrinks and the Other Gains Migrant Students**\
+`The schools share a building in Manhattan, but their paths forward have diverged as they contend with two major crises challenging urban school districts.`\
+https://nytimes.com/2024/03/18/nyregion/migrants-student-enrollment-building-space-fights.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/03/18/crosswords/spelling-.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/18/crosswords/todays-wordle-review.html
+
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/18/crosswords/connections-companion.html
+
 **Israel’s military says Hamas had returned to Gaza’s largest hospital.**\
 `Israel has long claimed that Gaza’s biggest hospital is hiding a Hamas command center. Hamas has denied it is operating from beneath the hospital.`\
 https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/israels-military-says-hamas-had-returned-to-gazas-largest-hospital
