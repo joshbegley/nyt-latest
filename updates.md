@@ -1,3 +1,19 @@
+**Infamous Trump Tape May Be Discussed, Not Played, at Trial, Judge Rules**\
+`Jurors in Donald J. Trump’s hush-money case will hear testimony about the “Access Hollywood” recording in which he boasts about groping women. They will not hear his voice.`\
+https://nytimes.com/2024/03/18/nyregion/trump-hush-money-trial-access-hollywood.html
+
+**Israel blocked the chief of the U.N. agency for Palestinians from visiting Gaza.**\
+`By Anushka Patil and Adam Rasgon`\
+https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/israel-blocked-the-chief-of-the-un-agency-for-palestinians-from-visiting-gaza
+
+**Food Experts Predict ‘Imminent’ Famine in Northern Gaza**\
+`The warning came amid an Israeli raid on Al-Shifa Hospital. Prime Minister Benjamin Netanyahu also agreed to send military and humanitarian officials to Washington to hear the Biden administration’s concerns.`\
+https://nytimes.com/2024/03/18/world/middleeast/gaza-famine-israel-hamas.html
+
+**Why Are Americans Still Down on the Economy?**\
+`When asked about their own finances, most people are upbeat.`\
+https://nytimes.com/2024/03/18/opinion/biden-trump-economy-election.html
+
 **Supreme Court Lets Public Office Ban Stand for ‘Cowboys for Trump’ Founder**\
 `After a conviction arising from the Jan. 6 riot at the Capitol, Couy Griffin was removed from his county commissioner post in New Mexico and banned from holding public office again.`\
 https://nytimes.com/2024/03/18/us/politics/cuoy-griffin-jan-6-cowboys-for-trump.html
