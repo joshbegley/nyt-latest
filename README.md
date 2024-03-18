@@ -1,3 +1,7 @@
+**The Realtors’ Big Defeat**\
+`A settlement in the real estate industry is a case study of a central flaw in free-market economic theory.`\
+https://nytimes.com/2024/03/18/briefing/real-estate-agent-commissions-free-market.html
+
 **Blinken Warns of Disinformation Threat to Democracies**\
 `At an international forum, the secretary of state said artificial intelligence’s ability to disrupt the global flow of information could prove politically perilous during a year of elections.`\
 https://nytimes.com/2024/03/18/us/politics/blinken-artificial-intelligence-threat.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/arts/design/unsolved-gardner-museum-heist.html
 **The G.O.P. Flamethrower With a Right-Wing Vision for North Carolina**\
 `Mark Robinson, the Republican nominee for governor, has a long history of inflammatory statements. He has also called for weaving conservative religious beliefs into the fabric of government.`\
 https://nytimes.com/2024/03/18/us/politics/mark-robinson-north-carolina.html
-
-**Same Old Song: Private Equity Is Destroying Our Music Ecosystem**\
-`Private equity is cannibalizing the music industry by buying up old hits and pushing them back into our cultural consciousness. `\
-https://nytimes.com/2024/03/18/opinion/private-equity-music-spotify.html
 
