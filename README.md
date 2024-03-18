@@ -1,3 +1,7 @@
+**Serbian Leader Says Kushner Deal Is Not an Effort to Influence Trump**\
+`After news reports that Jared Kushner plans to redevelop a site in Belgrade bombed by NATO in 1999, Serbian politicians clashed over whether the deal was appropriate.`\
+https://nytimes.com/2024/03/18/us/politics/jared-kushner-serbia-president.html
+
 **Infamous Trump Tape May Be Discussed, Not Played, at Trial, Judge Rules**\
 `Jurors in Donald J. Trump’s hush-money case will hear testimony about the “Access Hollywood” recording in which he boasts about groping women. They will not hear his voice.`\
 https://nytimes.com/2024/03/18/nyregion/trump-hush-money-trial-access-hollywood.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/movies/david-seidler-dead.html
 **Trump Seeks to Appeal Ruling Allowing Prosecutor to Keep Georgia Case**\
 `Because the defendants want to pursue an appeal now, ahead of any trial, Georgia law requires them to get permission from the judge who wrote the ruling.`\
 https://nytimes.com/2024/03/18/us/trump-georgia-fani-willis-appeal.html
-
-**Trump Says Jews Who Support Democrats ‘Hate Israel’ and ‘Their Religion’**\
-`The comments, on a conservative radio program, echo an antisemitic trope and escalate claims he made as president that were widely criticized.`\
-https://nytimes.com/2024/03/18/us/politics/trump-israel-jewish-voters.html
 
