@@ -23,7 +23,7 @@ https://nytimes.com/2024/03/18/climate/trump-electric-vehicles-blood-bath.html
 https://nytimes.com/2024/03/18/nyregion/eric-adams-sexual-assault.html
 
 **Gylan Kain, a Founder of the Last Poets and a Progenitor of Rap, Dies at 81**\
-`He spun gripping portraits of the Black experience starting in the 1960s with the seminal Harlem spoken-word collective, lay a foundation for what was to come.`\
+`He spun gripping portraits of the Black experience starting in the 1960s with the seminal Harlem spoken-word collective, laying a foundation for what was to come.`\
 https://nytimes.com/2024/03/18/arts/gylan-kain-dead.html
 
 **What Makes a Coincidence Meaningful?**\

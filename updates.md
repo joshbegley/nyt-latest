@@ -1,3 +1,7 @@
+**Gylan Kain, a Founder of the Last Poets and a Progenitor of Rap, Dies at 81**\
+`He spun gripping portraits of the Black experience starting in the 1960s with the seminal Harlem spoken-word collective, laying a foundation for what was to come.`\
+https://nytimes.com/2024/03/18/arts/gylan-kain-dead.html
+
 **How Can So Many Prominent Authors Turn Against Free Expression?**\
 `Those urging nonpartisan organizations to favor certain speech over others should consider that the tables can always turn.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/pen-world-voices-censorship
