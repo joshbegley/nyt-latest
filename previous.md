@@ -1,3 +1,7 @@
+**Trump Says Jews Who Support Democrats ‘Hate Israel’ and ‘Their Religion’**\
+`The comments, on a conservative radio program, echo an antisemitic trope and escalate claims he made as president that were widely criticized.`\
+https://nytimes.com/2024/03/18/us/politics/trump-israel-jewish-voters.html
+
 **Democrats Are Meddling in Republican Primaries**\
 `The strategy has risks, especially in red states like Ohio.`\
 https://nytimes.com/2024/03/18/us/politics/democrats-republican-primaries.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/travel/united-airlines-boeing-airplane-safety.htm
 **Philadelphia Man Is Cleared in Shooting After About a Dozen Years in Prison**\
 `Charles Rice had been sentenced to prison for 30 to 60 years for attempted murder. Prosecutors said the case did not meet the burden of proof needed for a conviction.`\
 https://nytimes.com/2024/03/18/us/cj-rice-exonerated-philadelphia.html
-
-**The Most Famous Cowboy Hat in the World Right Now**\
-`Beyoncé, Shania Twain, Kevin Costner and many reality TV regulars are loyal customers of Kemo Sabe hats. The shop in Aspen can’t believe its luck.`\
-https://nytimes.com/2024/03/18/style/aspen-kemo-sabe-cowboy-hat-alix-earle.html
 

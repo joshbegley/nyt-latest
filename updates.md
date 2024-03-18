@@ -1,3 +1,7 @@
+**Trump Says Jews Who Support Democrats ‘Hate Israel’ and ‘Their Religion’**\
+`The comments, on a conservative radio program, echo an antisemitic trope and escalate claims he made as president that were widely criticized.`\
+https://nytimes.com/2024/03/18/us/politics/trump-israel-jewish-voters.html
+
 **Democrats Are Meddling in Republican Primaries**\
 `The strategy has risks, especially in red states like Ohio.`\
 https://nytimes.com/2024/03/18/us/politics/democrats-republican-primaries.html
