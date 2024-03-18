@@ -1,3 +1,7 @@
+**Serbian Leader Says Kushner Deal Is Not an Effort to Influence Trump**\
+`After news reports that Jared Kushner plans to redevelop a site in Belgrade bombed by NATO in 1999, Serbian politicians clashed over whether the deal was appropriate.`\
+https://nytimes.com/2024/03/18/us/politics/jared-kushner-serbia-president.html
+
 **Infamous Trump Tape May Be Discussed, Not Played, at Trial, Judge Rules**\
 `Jurors in Donald J. Trump’s hush-money case will hear testimony about the “Access Hollywood” recording in which he boasts about groping women. They will not hear his voice.`\
 https://nytimes.com/2024/03/18/nyregion/trump-hush-money-trial-access-hollywood.html
