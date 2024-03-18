@@ -1,3 +1,11 @@
+**Where the Wild Things Went During the Pandemic**\
+`A new study of camera-trap images complicates the idea that all wildlife thrived during the Covid lockdowns.`\
+https://nytimes.com/2024/03/18/science/pandemic-lockdowns-wildlife-anthropause.html
+
+**The Financial Aid Debacle Hurts Poor Students the Most**\
+`Aid doesn’t cover as much as it should, and the process of getting it is harder than ever.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/the-financial-aid-debacle-hurts-poor-students-the-most
+
 **The court is hearing a related case on the N.R.A.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/the-court-is-hearing-a-related-case-on-the-nra
