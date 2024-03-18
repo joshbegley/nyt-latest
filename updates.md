@@ -1,3 +1,7 @@
+**The court is hearing a related case on the N.R.A.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/the-court-is-hearing-a-related-case-on-the-nra
+
 **U.S. Bans the Last Type of Asbestos Still in Use**\
 `The United States joins more than 50 other countries that have banned the deadly carcinogen, although the phaseout will take more than a decade.`\
 https://nytimes.com/2024/03/18/climate/biden-administration-bans-asbestos.html

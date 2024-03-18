@@ -1,3 +1,7 @@
+**The court is hearing a related case on the N.R.A.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/the-court-is-hearing-a-related-case-on-the-nra
+
 **Even before the latest Israeli raid, Gaza’s largest hospital was barely functioning, the U.N. says.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/even-before-the-latest-israeli-raid-gazas-largest-hospital-was-barely-functioning-the-un-says
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/us/politics/kennedy-family-biden-white-house.html
 **Tesla’s Troubles Raise Questions About Its Invincibility**\
 `As the share price plunges, investors wonder whether the company, led by Elon Musk, can withstand intensifying competition.`\
 https://nytimes.com/2024/03/18/business/tesla-elon-musk-troubles.html
-
-**An American Tenor, a Puccini Specialist, Arrives at the Met**\
-`Jonathan Tetelman will sing in “La Rondine” and “Madama Butterfly” in New York. He trained as a baritone and worked as a D.J. before finding his “authentic voice” as a tenor.`\
-https://nytimes.com/2024/03/18/arts/music/met-opera-jonathan-tetelman.html
 
