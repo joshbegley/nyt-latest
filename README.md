@@ -1,3 +1,7 @@
+**Biden is heading to Nevada and Arizona, and five states will vote.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/03/18/us/trump-biden-election/biden-nevada-arizona
+
 **The case sets up a showdown between the justices and a conservative appeals court.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/the-case-sets-up-a-showdown-between-the-justices-and-a-conservative-appeals-court
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/world/middleeast/gaza-famine-report-starvation.ht
 **Dan Loeb Enters the Chip Wars**\
 `The hedge fund mogul has been bankrolling a European patent fight against Intel, Dell, Amazon and other tech giants.`\
 https://nytimes.com/2024/03/18/business/dealbook/dan-loeb-chip-wars-intel-amazon.html
-
-**‘Stormy’ Review: Trials and Travails**\
-`A new documentary on Stormy Daniels traces how fame, frenzy and legal battles involving a former president upended her life.`\
-https://nytimes.com/2024/03/18/movies/stormy-daniels-documentary.html
 
