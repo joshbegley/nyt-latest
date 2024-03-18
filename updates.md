@@ -1,3 +1,7 @@
+**Tuesday Briefing: Putin’s Victory Spectacle**\
+`Also, Gambia moves to overturn a ban on female genital cutting.`\
+https://nytimes.com/2024/03/18/world/asia/putin-red-square-gambia-gaza-asia.html
+
 **Washington’s Cherry Blossoms Reach Near-Record Early Bloom**\
 `A warm winter ushered the blossoms through the bloom cycle faster than usual, a spokesman for the National Park Service said.`\
 https://nytimes.com/2024/03/18/us/washington-dc-cherry-blossoms-peak-bloom.html

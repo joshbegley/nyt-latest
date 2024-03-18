@@ -1,3 +1,7 @@
+**Tuesday Briefing: Putin’s Victory Spectacle**\
+`Also, Gambia moves to overturn a ban on female genital cutting.`\
+https://nytimes.com/2024/03/18/world/asia/putin-red-square-gambia-gaza-asia.html
+
 **Washington’s Cherry Blossoms Reach Near-Record Early Bloom**\
 `A warm winter ushered the blossoms through the bloom cycle faster than usual, a spokesman for the National Park Service said.`\
 https://nytimes.com/2024/03/18/us/washington-dc-cherry-blossoms-peak-bloom.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/a-white-hou
 **Thomas Stafford, 93, Commander of First U.S.-Soviet Space Mission, Dies**\
 `The Apollo-Soyuz mission, amid the Cold War, broke new ground in space cooperation when an American capsule docked with a Soviet craft 140 miles above the earth.`\
 https://nytimes.com/2024/03/18/science/space/thomas-p-stafford-dead.html
-
-**Trump’s Violent Language Toward EVs**\
-`The former president has deployed increasingly aggressive talk about electric vehicles and their effect on the American economy.`\
-https://nytimes.com/2024/03/18/climate/trump-electric-vehicles-blood-bath.html
 
