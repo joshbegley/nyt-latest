@@ -1,3 +1,7 @@
+**Israeli Negotiators Head to Qatar for Cease-Fire Talks, Officials Say**\
+`Hamas and Israel failed to reach an agreement ahead of Ramadan. Last week, Hamas dropped one of its demands.`\
+https://nytimes.com/2024/03/18/world/middleeast/hamas-israel-cease-fire-talks.html
+
 **Pakistani Airstrikes in Afghanistan Kill at Least 8, Taliban Officials Say**\
 `The pre-dawn strikes escalated tensions between two countries that have clashed over the recent rise in militant violence on Pakistan’s soil.`\
 https://nytimes.com/2024/03/18/world/asia/pakistan-airstrikes-afghanistan-taliban.html
