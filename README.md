@@ -1,3 +1,11 @@
+**Gossip Dance Back Into Action After a 12-Year Pause**\
+`The trio fronted by Beth Ditto wasn’t sure it would return after scattering in different directions. But music united them for a new LP, “Real Power.”`\
+https://nytimes.com/2024/03/18/arts/music/gossip-real-power.html
+
+**Hollywood Actors Are Leaping Into Video Games**\
+`Onscreen stars have increasingly been going virtual. Jodie Comer and David Harbour are making their video game debuts in a remake of the 1992 horror game Alone in the Dark.`\
+https://nytimes.com/2024/03/18/movies/video-games-actors-comer-harbour.html
+
 **2 Schools Clash as One Shrinks and the Other Gains Migrant Students**\
 `The schools share a building in Manhattan, but their paths forward have diverged as they contend with two major crises challenging urban school districts.`\
 https://nytimes.com/2024/03/18/nyregion/migrants-student-enrollment-building-space-fights.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/18/briefing/russia-election-putin-netanyahu.html
 **Storing Renewable Energy, One Balloon at a Time**\
 `To decarbonize the electrical grid, companies are finding creative ways to store energy during periods of low demand.`\
 https://nytimes.com/2024/03/18/science/renewable-energy-storage-climate.html
-
-**What’s on TV This Week: ‘The Valley’ and Figure Skating Championships**\
-`A new reality show with familiar faces comes to Bravo, and NBC airs competitive skating.`\
-https://nytimes.com/2024/03/18/arts/television/whats-on-tv-this-week-the-valley-and-figure-skating-championships.html
-
-**What Meltdown? Crypto Comes Roaring Back in the Philippines.**\
-`Two years after the cryptocurrency market crashed, internet cafes for playing crypto-earning video games are opening and farmers have started harvesting virtual crops from the games for income.`\
-https://nytimes.com/2024/03/18/technology/crypto-video-games-philippines.html
 
