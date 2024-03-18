@@ -1,3 +1,7 @@
+**What’s Next After Putin’s Win, and Why U.S. Home Prices May Start to Drop**\
+`Plus, the impossibility of a perfect March Madness bracket.`\
+https://nytimes.com/2024/03/18/podcasts/russia-election-march-madness.html
+
 **Your Car May Be Spying on You**\
 `Modern vehicles can track all kinds of data, including location and driving style, raising a host of troubling privacy issues.`\
 https://nytimes.com/2024/03/18/podcasts/the-daily/car-gm-insurance-spying.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/opinion/private-equity-music-spotify.html
 **$4 Million Homes in California**\
 `A Victorian-style home in San Rafael, a ranch house in Santa Barbara and a Spanish-style home in Los Angeles.`\
 https://nytimes.com/2024/03/18/realestate/4-million-dollar-homes-california.html
-
-**We’re Not Burdens on Society. We’re Engines of Economic Progress.**\
-`Most Latinos are not rootless, illegal transients as some citizens may think, but a force for American progress.`\
-https://nytimes.com/2024/03/18/opinion/hispanic-immigrants-economic-progress.html
 

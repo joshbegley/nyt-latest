@@ -1,3 +1,7 @@
+**What’s Next After Putin’s Win, and Why U.S. Home Prices May Start to Drop**\
+`Plus, the impossibility of a perfect March Madness bracket.`\
+https://nytimes.com/2024/03/18/podcasts/russia-election-march-madness.html
+
 **Your Car May Be Spying on You**\
 `Modern vehicles can track all kinds of data, including location and driving style, raising a host of troubling privacy issues.`\
 https://nytimes.com/2024/03/18/podcasts/the-daily/car-gm-insurance-spying.html
