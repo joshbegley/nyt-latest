@@ -1,3 +1,7 @@
+**Infamous Trump Tape May Be Discussed, Not Played, at Trial, Judge Rules**\
+`Jurors in Donald J. Trump’s hush-money case will hear testimony about the “Access Hollywood” recording in which he boasts about groping women. They will not hear his voice.`\
+https://nytimes.com/2024/03/18/nyregion/trump-hush-money-trial-access-hollywood.html
+
 **Israel blocked the chief of the U.N. agency for Palestinians from visiting Gaza.**\
 `By Anushka Patil and Adam Rasgon`\
 https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/israel-blocked-the-chief-of-the-un-agency-for-palestinians-from-visiting-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/us/trump-georgia-fani-willis-appeal.html
 **Trump Says Jews Who Support Democrats ‘Hate Israel’ and ‘Their Religion’**\
 `The comments, on a conservative radio program, echo an antisemitic trope and escalate claims he made as president that were widely criticized.`\
 https://nytimes.com/2024/03/18/us/politics/trump-israel-jewish-voters.html
-
-**Democrats Are Meddling in Republican Primaries**\
-`The strategy has risks, especially in red states like Ohio.`\
-https://nytimes.com/2024/03/18/us/politics/democrats-republican-primaries.html
 
