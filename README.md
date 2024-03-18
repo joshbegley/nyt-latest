@@ -1,3 +1,11 @@
+**Mayor Adams Is Accused of Sexually Assaulting a Colleague in 1993**\
+`In a lawsuit, a former police colleague of Eric Adams said that he demanded oral sex in exchange for career help in 1993 and assaulted her when she refused.`\
+https://nytimes.com/2024/03/18/nyregion/eric-adams-sexual-assault.html
+
+**Gylan Kain, a Founder of the Last Poets and a Progenitor of Rap, Dies at 81**\
+`He spun gripping portraits of the Black experience starting in the 1960s with the seminal Harlem spoken-word collective, lay a foundation for what was to come.`\
+https://nytimes.com/2024/03/18/arts/gylan-kain-dead.html
+
 **What Makes a Coincidence Meaningful?**\
 `The human tendency to see patterns everywhere is both fruitful and dangerous.`\
 https://nytimes.com/2024/03/18/opinion/coincidences-conspiracy-theories-psychology.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/18/dining/modernist-bread-making-basics.html
 **Israeli restrictions leave crucial relief for Gazans idling in Egypt, Saudi aid chief says.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/israeli-restrictions-leave-crucial-relief-for-gazans-idling-in-egypt-saudi-aid-chief-says
-
-**Modernism, but Make It Cool**\
-`Britain exported the architectural style to West Africa and India, but local practitioners adapted it for a different climate and a new kind of politics.`\
-https://nytimes.com/2024/03/18/arts/design/tropical-modernism-victoria-and-albert-museum.html
-
-**Trump’s Warning of a ‘Blood Bath’ if He Loses**\
-`Readers are shocked by the former president’s speech over the weekend. Also: The death of a daughter; drug “poisoning”; class-based admissions.`\
-https://nytimes.com/2024/03/18/opinion/donald-trump-blood-bath.html
 
