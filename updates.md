@@ -1,3 +1,7 @@
+**Washington’s Cherry Blossoms Reach Near-Record Early Bloom**\
+`A warm winter ushered the blossoms through the bloom cycle faster than usual, a spokesman for the National Park Service said.`\
+https://nytimes.com/2024/03/18/us/washington-dc-cherry-blossoms-peak-bloom.html
+
 **Putin Hails Conquests in Ukraine in Red Square Spectacle**\
 `A day after a rubber-stamp presidential election, President Vladimir Putin said he would not back down in Russia’s war against Ukraine.`\
 https://nytimes.com/2024/03/18/world/europe/russia-putin-election.html
