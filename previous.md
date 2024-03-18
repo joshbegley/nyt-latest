@@ -1,3 +1,11 @@
+**Why Donald Trump Can’t Put Up a Bond**\
+`Regulations make it uneconomical for insurers to underwrite one.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/trump-bond-denied-insurance
+
+**Israel agrees to send a team to Washington to discuss plans for Rafah.**\
+`By Zach Montague`\
+https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/biden-netanyahu-call-rafah
+
 **8 Incidents in 2 Weeks: What’s Going on With United’s Planes?**\
 `While no one was injured, most of the mishaps required emergency landings or diversions. One safety expert said the incidents were not the result of “systemic problems.”`\
 https://nytimes.com/2024/03/18/travel/united-airlines-boeing-airplane-safety.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/18/world/europe/russia-putin-election.html
 **Justices Seem Likely to Side With N.R.A. in First Amendment Dispute**\
 `The National Rifle Association argued that a New York official violated the First Amendment by encouraging entities to break ties with the group after the Parkland mass shooting.`\
 https://nytimes.com/2024/03/18/us/politics/supreme-court-nra-free-speech.html
-
-**Who was Marwan Issa, the Hamas commander killed by Israel?**\
-`Mr. Issa, a presumed planner of the Oct. 7 attacks, is one of the most senior Hamas leaders killed in Gaza since the start of the war.`\
-https://nytimes.com/2024/03/18/world/middleeast/who-was-marwan-issa.html
-
-**A senior Democratic senator says Netanyahu is in a compromised position.**\
-`By Eric Schmitt`\
-https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/senator-jack-reed-netanyahu-schumer
 

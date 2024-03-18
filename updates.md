@@ -1,3 +1,11 @@
+**Why Donald Trump Can’t Put Up a Bond**\
+`Regulations make it uneconomical for insurers to underwrite one.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/trump-bond-denied-insurance
+
+**Israel agrees to send a team to Washington to discuss plans for Rafah.**\
+`By Zach Montague`\
+https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/biden-netanyahu-call-rafah
+
 **8 Incidents in 2 Weeks: What’s Going on With United’s Planes?**\
 `While no one was injured, most of the mishaps required emergency landings or diversions. One safety expert said the incidents were not the result of “systemic problems.”`\
 https://nytimes.com/2024/03/18/travel/united-airlines-boeing-airplane-safety.html
