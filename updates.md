@@ -1,3 +1,7 @@
+**Crafts Retailer Joann Files for Bankruptcy**\
+`After pandemic-era boom in sales, Joann has been dealing with a pullback in consumer spending on at-home projects. The retailer will become a private company owned by a group of its creditors.`\
+https://nytimes.com/2024/03/18/business/joanna-retail-banktruptcy.html
+
 **What happens next? The court will probably not issue a decision until June.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/what-happens-next-the-court-will-probably-not-issue-a-decision-until-june
