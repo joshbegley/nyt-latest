@@ -1,3 +1,15 @@
+**On the Menu at Flamenco Fest, Tradition With a Side of Nuttiness**\
+`At City Center, performers like Olga Pericet and Manuel Liñán knew the rules they were bending.`\
+https://nytimes.com/2024/03/18/arts/dance/flamenco-festival-city-center-olga-pericet-miguel-linan.html
+
+**Justice Breyer Is Only Partly Right About Originalism**\
+`If American law is to evolve, the change should come from lawmakers, not judges.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/breyer-supreme-court-originalism
+
+**Learn ‘Modernist’ Bread Making Basics With This Free Online Course**\
+`Peruse vintage home goods from Provence, pick up chocolate-dipped matzo and more food news.`\
+https://nytimes.com/2024/03/18/dining/modernist-bread-making-basics.html
+
 **Crafts Retailer Joann Files for Bankruptcy**\
 `After a pandemic-era boom in sales, Joann has been dealing with a pullback in consumer spending on at-home projects. The retailer will become a private company owned by a group of its creditors.`\
 https://nytimes.com/2024/03/18/business/joanna-retail-banktruptcy.html
