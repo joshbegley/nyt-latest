@@ -1,3 +1,7 @@
+**Beyoncé Is Riding Into Her Country Era. Here’s What to Know.**\
+`The singer and her collaborators have been dropping hints about “Cowboy Carter,” her upcoming album and first full-length foray into country music.`\
+https://nytimes.com/2024/03/18/arts/music/beyonce-country-album-cowboy-carter.html
+
 **On the Menu at Flamenco Fest, Tradition With a Side of Nuttiness**\
 `At City Center, performers like Olga Pericet and Manuel Liñán knew the rules they were bending.`\
 https://nytimes.com/2024/03/18/arts/dance/flamenco-festival-city-center-olga-pericet-miguel-linan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/business/joanna-retail-banktruptcy.html
 **What happens next? The court will probably not issue a decision until June.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/what-happens-next-the-court-will-probably-not-issue-a-decision-until-june
-
-**Manafort in Talks to Return for the Republican National Convention**\
-`Paul Manafort, who served as a top adviser to Donald Trump’s 2016 campaign, was pardoned by Mr. Trump after being convicted of tax and bank fraud.`\
-https://nytimes.com/2024/03/18/us/politics/manafort-rnc-trump.html
 

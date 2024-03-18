@@ -1,3 +1,7 @@
+**Beyoncé Is Riding Into Her Country Era. Here’s What to Know.**\
+`The singer and her collaborators have been dropping hints about “Cowboy Carter,” her upcoming album and first full-length foray into country music.`\
+https://nytimes.com/2024/03/18/arts/music/beyonce-country-album-cowboy-carter.html
+
 **On the Menu at Flamenco Fest, Tradition With a Side of Nuttiness**\
 `At City Center, performers like Olga Pericet and Manuel Liñán knew the rules they were bending.`\
 https://nytimes.com/2024/03/18/arts/dance/flamenco-festival-city-center-olga-pericet-miguel-linan.html
