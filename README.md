@@ -1,3 +1,7 @@
+**‘Stormy’ Review: Trials and Travails**\
+`A new documentary on Stormy Daniels traces how fame, frenzy and legal battles involving a former president upended her life.`\
+https://nytimes.com/2024/03/18/movies/stormy-daniels-documentary.html
+
 **The Realtors’ Big Defeat**\
 `A settlement in the real estate industry is a case study of a central flaw in free-market economic theory.`\
 https://nytimes.com/2024/03/18/briefing/real-estate-agent-commissions-free-market.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/learning/do-you-use-like-too-many-filler-words.ht
 **Empty Frames and Other Oddities From the Unsolved Gardner Museum Heist**\
 `After 34 years, not one of the 13 works stolen during the largest art theft in history has surfaced but the puzzling peculiarities of the case still draw interest.`\
 https://nytimes.com/2024/03/18/arts/design/unsolved-gardner-museum-heist.html
-
-**The G.O.P. Flamethrower With a Right-Wing Vision for North Carolina**\
-`Mark Robinson, the Republican nominee for governor, has a long history of inflammatory statements. He has also called for weaving conservative religious beliefs into the fabric of government.`\
-https://nytimes.com/2024/03/18/us/politics/mark-robinson-north-carolina.html
 
