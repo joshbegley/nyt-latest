@@ -1,3 +1,7 @@
+**Dan Loeb Enters the Chip Wars**\
+`The hedge fund mogul has been bankrolling a European patent fight against Intel, Dell, Amazon and other tech giants.`\
+https://nytimes.com/2024/03/18/business/dealbook/dan-loeb-chip-wars-intel-amazon.html
+
 **‘Stormy’ Review: Trials and Travails**\
 `A new documentary on Stormy Daniels traces how fame, frenzy and legal battles involving a former president upended her life.`\
 https://nytimes.com/2024/03/18/movies/stormy-daniels-documentary.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/12/opinion/thepoint/trump-biden-tipsheet
 **Do You Use, Like, Too Many Filler Words?**\
 `A Times columnist writes about the ubiquity of the word “like” in everyday speech. Is it an annoying verbal tic that we should try to avoid? Or does it actually improve our communication?`\
 https://nytimes.com/2024/03/18/learning/do-you-use-like-too-many-filler-words.html
-
-**Empty Frames and Other Oddities From the Unsolved Gardner Museum Heist**\
-`After 34 years, not one of the 13 works stolen during the largest art theft in history has surfaced but the puzzling peculiarities of the case still draw interest.`\
-https://nytimes.com/2024/03/18/arts/design/unsolved-gardner-museum-heist.html
 
