@@ -1,3 +1,11 @@
+**What Meltdown? Crypto Comes Roaring Back in the Philippines.**\
+`Two years after the cryptocurrency market crashed, internet cafes for playing crypto-earning video games are opening and farmers have started harvesting virtual crops from the games for income.`\
+https://nytimes.com/2024/03/18/technology/crypto-video-games-philippines.html
+
+**The Department of Homeland Security Is Embracing A.I.**\
+`The agency will be the first in the federal government to roll out a comprehensive plan to integrate the technology into a variety of uses, from fighting crime to helping disaster survivors.`\
+https://nytimes.com/2024/03/18/business/homeland-security-artificial-intelligence.html
+
 **Five Takeaways From Putin’s Orchestrated Win in Russia**\
 `President Vladimir V. Putin is expected to use the scale of his victory to justify more aggression in Ukraine. Many Russians are uneasy about what comes next.`\
 https://nytimes.com/2024/03/17/world/europe/russia-election-putin-takeaways.html
