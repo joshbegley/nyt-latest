@@ -1,3 +1,7 @@
+**Bernard Schwartz, Antiwar Executive Who Built an Arms Maker, Dies at 98**\
+`Despite his opposition to the Vietnam War, as an investor he took over an ailing defense contractor, Loral, and turned it into multibillion-dollar company.`\
+https://nytimes.com/2024/03/18/obituaries/bernard-schwartz-dead.html
+
 **Beyoncé Is Riding Into Her Country Era. Here’s What to Know.**\
 `The singer and her collaborators have been dropping hints about “Cowboy Carter,” her upcoming album and first full-length foray into country music.`\
 https://nytimes.com/2024/03/18/arts/music/beyonce-country-album-cowboy-carter.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/books/review/no-judgment-lauren-oyler.html
 **Crafts Retailer Joann Files for Bankruptcy**\
 `After a pandemic-era boom in sales, Joann has been dealing with a pullback in consumer spending on at-home projects. The retailer will become a private company owned by a group of its creditors.`\
 https://nytimes.com/2024/03/18/business/joanna-retail-banktruptcy.html
-
-**What happens next? The court will probably not issue a decision until June.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/what-happens-next-the-court-will-probably-not-issue-a-decision-until-june
 
