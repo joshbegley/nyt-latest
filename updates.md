@@ -1,3 +1,7 @@
+**Blinken Warns of Disinformation Threat to Democracies**\
+`At an international forum, the secretary of state said artificial intelligence’s ability to disrupt the global flow of information could prove politically perilous during a year of elections.`\
+https://nytimes.com/2024/03/18/us/politics/blinken-artificial-intelligence-threat.html
+
 **What’s Next After Putin’s Win, and Why U.S. Home Prices May Start to Drop**\
 `Plus, the impossibility of a perfect March Madness bracket.`\
 https://nytimes.com/2024/03/18/podcasts/russia-election-march-madness.html

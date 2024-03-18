@@ -1,3 +1,7 @@
+**Blinken Warns of Disinformation Threat to Democracies**\
+`At an international forum, the secretary of state said artificial intelligence’s ability to disrupt the global flow of information could prove politically perilous during a year of elections.`\
+https://nytimes.com/2024/03/18/us/politics/blinken-artificial-intelligence-threat.html
+
 **What’s Next After Putin’s Win, and Why U.S. Home Prices May Start to Drop**\
 `Plus, the impossibility of a perfect March Madness bracket.`\
 https://nytimes.com/2024/03/18/podcasts/russia-election-march-madness.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/us/politics/mark-robinson-north-carolina.html
 **Same Old Song: Private Equity Is Destroying Our Music Ecosystem**\
 `Private equity is cannibalizing the music industry by buying up old hits and pushing them back into our cultural consciousness. `\
 https://nytimes.com/2024/03/18/opinion/private-equity-music-spotify.html
-
-**$4 Million Homes in California**\
-`A Victorian-style home in San Rafael, a ranch house in Santa Barbara and a Spanish-style home in Los Angeles.`\
-https://nytimes.com/2024/03/18/realestate/4-million-dollar-homes-california.html
 
