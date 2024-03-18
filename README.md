@@ -10,7 +10,7 @@ https://nytimes.com/2024/03/18/world/asia/pakistan-airstrikes-afghanistan-taliba
 `Nick Corasaniti, a politics reporter for The New York Times, explains how Democrats are aiming to gain a political advantage by appointing more state judges.`\
 https://nytimes.com/video/us/politics/100000009363863/democrat-governors-state-judges.html
 
-**‘Famine Is Imminent’ in Northern Gaza, Report Warns**\
+**Famine Is Projected for Northern Gaza, Experts Say**\
 `A global authority on food security said that in the coming months, as many as 1.1 million people in Gaza could face the severest levels of hunger.`\
 https://nytimes.com/2024/03/18/world/middleeast/gaza-famine-report-starvation.html
 
