@@ -1,3 +1,11 @@
+**Behind Putin’s Potemkin Vote, Real Support. But No Other Choices.**\
+`Many Russians say they back their president, but it is far less clear what they might do if they were given alternatives.`\
+https://nytimes.com/2024/03/18/world/europe/putin-russia-election.html
+
+**Empty Frames and Other Oddities From the Unsolved Gardner Museum Heist**\
+`After 34 years, not one of the 13 works stolen during the largest art theft in history has surfaced but the puzzling peculiarities of the case still draw interest.`\
+https://nytimes.com/2024/03/18/arts/design/unsolved-gardner-museum-heist.html
+
 **Mike Pence Rues the Day**\
 `And not just Jan. 6.`\
 https://nytimes.com/2024/03/18/opinion/tiktok-trump-pence-biden.html
