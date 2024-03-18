@@ -1,3 +1,7 @@
+**Who Was Marwan Issa, the Hamas Commander Killed by Israel?**\
+`Mr. Issa, a planner of the Oct. 7 attacks, is one of the most senior Hamas leaders killed in Gaza since the start of the war.`\
+https://nytimes.com/2024/03/18/world/middleeast/who-was-marwan-issa.html
+
 **A senior Democratic senator says Netanyahu is in a compromised position.**\
 `By Eric Schmitt`\
 https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/senator-jack-reed-netanyahu-schumer
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/arts/gylan-kain-dead.html
 **What Makes a Coincidence Meaningful?**\
 `The human tendency to see patterns everywhere is both fruitful and dangerous.`\
 https://nytimes.com/2024/03/18/opinion/coincidences-conspiracy-theories-psychology.html
-
-**Ed Mintz, Who Gave Audiences the Chance to Grade Films, Dies at 83**\
-`With CinemaScore, he broke new ground by building a business based on the opinions of moviegoers rather than critics.`\
-https://nytimes.com/2024/03/18/movies/ed-mintz-dead.html
 
