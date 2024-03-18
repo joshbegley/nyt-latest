@@ -1,3 +1,11 @@
+**Witness Films Israeli Raid on Al-Shifa Hospital**\
+`Emmy Shaheen, a resident of Gaza City, filmed clashes around Al-Shifa Hospital, where the the Israeli military carried out an operation.`\
+https://nytimes.com/video/world/middleeast/100000009368929/witness-films-israeli-raid-on-al-shifa-hospital.html
+
+**David Seidler, Oscar-Winning Writer of ‘The King’s Speech,’ Dies at 86**\
+`He drew on his own painful experiences with a stutter in depicting King George VI’s struggles to overcome his impediment and rally Britain in World War II.`\
+https://nytimes.com/2024/03/18/movies/david-seidler-dead.html
+
 **Trump Seeks to Appeal Ruling Allowing Prosecutor to Keep Georgia Case**\
 `Because the defendants want to pursue an appeal now, ahead of any trial, Georgia law requires them to get permission from the judge who wrote the ruling.`\
 https://nytimes.com/2024/03/18/us/trump-georgia-fani-willis-appeal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/18/briefing/supreme-court-social-media-shakira-album
 **Why Donald Trump Can’t Put Up a Bond**\
 `Regulations make it uneconomical for insurers to underwrite one.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/trump-bond-denied-insurance
-
-**Israel agrees to send a team to Washington to discuss plans for Rafah.**\
-`By Zach Montague`\
-https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/biden-netanyahu-call-rafah
-
-**8 Incidents in 2 Weeks: What’s Going on With United’s Planes?**\
-`While no one was injured, most of the mishaps required emergency landings or diversions. One safety expert said the incidents were not the result of “systemic problems.”`\
-https://nytimes.com/2024/03/18/travel/united-airlines-boeing-airplane-safety.html
 
