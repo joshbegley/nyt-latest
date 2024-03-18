@@ -1,3 +1,11 @@
+**Gossip Dance Back Into Action After a 12-Year Pause**\
+`The trio fronted by Beth Ditto wasn’t sure it would return after scattering in different directions. But music united them for a new LP, “Real Power.”`\
+https://nytimes.com/2024/03/18/arts/music/gossip-real-power.html
+
+**Hollywood Actors Are Leaping Into Video Games**\
+`Onscreen stars have increasingly been going virtual. Jodie Comer and David Harbour are making their video game debuts in a remake of the 1992 horror game Alone in the Dark.`\
+https://nytimes.com/2024/03/18/movies/video-games-actors-comer-harbour.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/03/18/crosswords/spelling-bee-forum.html
