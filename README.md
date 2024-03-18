@@ -1,3 +1,15 @@
+**On the Menu at Flamenco Fest, Tradition With a Side of Nuttiness**\
+`At City Center, performers like Olga Pericet and Manuel Liñán knew the rules they were bending.`\
+https://nytimes.com/2024/03/18/arts/dance/flamenco-festival-city-center-olga-pericet-miguel-linan.html
+
+**Justice Breyer Is Only Partly Right About Originalism**\
+`If American law is to evolve, the change should come from lawmakers, not judges.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/breyer-supreme-court-originalism
+
+**Learn ‘Modernist’ Bread Making Basics With This Free Online Course**\
+`Peruse vintage home goods from Provence, pick up chocolate-dipped matzo and more food news.`\
+https://nytimes.com/2024/03/18/dining/modernist-bread-making-basics.html
+
 **Israeli restrictions leave crucial relief for Gazans idling in Egypt, Saudi aid chief says.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/israeli-restrictions-leave-crucial-relief-for-gazans-idling-in-egypt-saudi-aid-chief-says
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/what-happens-n
 **Manafort in Talks to Return for the Republican National Convention**\
 `Paul Manafort, who served as a top adviser to Donald Trump’s 2016 campaign, was pardoned by Mr. Trump after being convicted of tax and bank fraud.`\
 https://nytimes.com/2024/03/18/us/politics/manafort-rnc-trump.html
-
-**Where the Wild Things Went During the Pandemic**\
-`A new study of camera-trap images complicates the idea that all wildlife thrived during the Covid lockdowns.`\
-https://nytimes.com/2024/03/18/science/pandemic-lockdowns-wildlife-anthropause.html
-
-**The Financial Aid Debacle Hurts Poor Students the Most**\
-`Aid doesn’t cover as much as it should, and the process of getting it is harder than ever.`\
-https://nytimes.com/live/2024/03/12/opinion/thepoint/the-financial-aid-debacle-hurts-poor-students-the-most
-
-**The court is hearing a related case on the N.R.A.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/the-court-is-hearing-a-related-case-on-the-nra
 
