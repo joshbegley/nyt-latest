@@ -1,3 +1,7 @@
+**Crafts Retailer Joann Files for Bankruptcy**\
+`After a pandemic-era boom in sales, Joann has been dealing with a pullback in consumer spending on at-home projects. The retailer will become a private company owned by a group of its creditors.`\
+https://nytimes.com/2024/03/18/business/joanna-retail-banktruptcy.html
+
 **Israeli restrictions leave crucial relief for Gazans idling in Egypt, Saudi aid chief says.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/israeli-restrictions-leave-crucial-relief-for-gazans-idling-in-egypt-saudi-aid-chief-says
