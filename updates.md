@@ -1,3 +1,7 @@
+**The Realtors’ Big Defeat**\
+`A settlement in the real estate industry is a case study of a central flaw in free-market economic theory.`\
+https://nytimes.com/2024/03/18/briefing/real-estate-agent-commissions-free-market.html
+
 **Blinken Warns of Disinformation Threat to Democracies**\
 `At an international forum, the secretary of state said artificial intelligence’s ability to disrupt the global flow of information could prove politically perilous during a year of elections.`\
 https://nytimes.com/2024/03/18/us/politics/blinken-artificial-intelligence-threat.html
