@@ -1,4 +1,8 @@
-**Biden Administration Bans Asbestos**\
+**Even before the latest Israeli raid, Gaza’s largest hospital was barely functioning, the U.N. says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/even-before-the-latest-israeli-raid-gazas-largest-hospital-was-barely-functioning-the-un-says
+
+**U.S. Bans the Last Type of Asbestos Still in Use in the Country**\
 `The United States joins more than 50 other countries that have banned the deadly carcinogen, although the phaseout will take more than a decade.`\
 https://nytimes.com/2024/03/18/climate/biden-administration-bans-asbestos.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/business/tesla-elon-musk-troubles.html
 **An American Tenor, a Puccini Specialist, Arrives at the Met**\
 `Jonathan Tetelman will sing in “La Rondine” and “Madama Butterfly” in New York. He trained as a baritone and worked as a D.J. before finding his “authentic voice” as a tenor.`\
 https://nytimes.com/2024/03/18/arts/music/met-opera-jonathan-tetelman.html
-
-**Ariana Grande’s ‘Eternal Sunshine’ Is the Biggest Album of 2024 Yet**\
-`The pop singer’s sixth No. 1 album opens at the top with the equivalent of 227,000 sales in the United States.`\
-https://nytimes.com/2024/03/18/arts/music/ariana-grande-eternal-sunshine-billboard-chart.html
 

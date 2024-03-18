@@ -1,3 +1,11 @@
+**Even before the latest Israeli raid, Gaza’s largest hospital was barely functioning, the U.N. says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/even-before-the-latest-israeli-raid-gazas-largest-hospital-was-barely-functioning-the-un-says
+
+**U.S. Bans the Last Type of Asbestos Still in Use in the Country**\
+`The United States joins more than 50 other countries that have banned the deadly carcinogen, although the phaseout will take more than a decade.`\
+https://nytimes.com/2024/03/18/climate/biden-administration-bans-asbestos.html
+
 **Biden Administration Bans Asbestos**\
 `The United States joins more than 50 other countries that have banned the deadly carcinogen, although the phaseout will take more than a decade.`\
 https://nytimes.com/2024/03/18/climate/biden-administration-bans-asbestos.html
