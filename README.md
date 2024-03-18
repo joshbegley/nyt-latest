@@ -1,3 +1,7 @@
+**Behind Putin’s Potemkin Vote, Real Support. But No Other Choices.**\
+`Many Russians say they back their president, but it is far less clear what they might do if they were given alternatives.`\
+https://nytimes.com/2024/03/18/world/europe/putin-russia-election.html
+
 **Mike Pence Rues the Day**\
 `And not just Jan. 6.`\
 https://nytimes.com/2024/03/18/opinion/tiktok-trump-pence-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/opinion/hispanic-immigrants-economic-progress.htm
 **What the Data Says About Pandemic School Closures, Four Years Later**\
 `The more time students spent in remote instruction, the further they fell behind. And, experts say, extended closures did little to stop the spread of Covid.`\
 https://nytimes.com/2024/03/18/upshot/pandemic-school-closures-data.html
-
-**Justice Breyer, Off the Bench, Sounds an Alarm Over the Supreme Court’s Direction**\
-`In an interview in his chambers and in a new book, the justice, who retired in 2022, discussed Dobbs, originalism and the decline of trust in the court.`\
-https://nytimes.com/2024/03/18/us/breyer-supreme-court-interview.html
 

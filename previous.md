@@ -1,40 +1,40 @@
-**Gossip Dance Back Into Action After a 12-Year Pause**\
-`The trio fronted by Beth Ditto wasn’t sure it would return after scattering in different directions. But music united them for a new LP, “Real Power.”`\
-https://nytimes.com/2024/03/18/arts/music/gossip-real-power.html
+**Mike Pence Rues the Day**\
+`And not just Jan. 6.`\
+https://nytimes.com/2024/03/18/opinion/tiktok-trump-pence-biden.html
 
-**Hollywood Actors Are Leaping Into Video Games**\
-`Onscreen stars have increasingly been going virtual. Jodie Comer and David Harbour are making their video game debuts in a remake of the 1992 horror game Alone in the Dark.`\
-https://nytimes.com/2024/03/18/movies/video-games-actors-comer-harbour.html
+**Trump Just Made the 2024 Choice as Vivid as Possible**\
+`Two recent speeches sum up his and Biden’s candidacies.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/trump-biden-tipsheet
 
-**2 Schools Clash as One Shrinks and the Other Gains Migrant Students**\
-`The schools share a building in Manhattan, but their paths forward have diverged as they contend with two major crises challenging urban school districts.`\
-https://nytimes.com/2024/03/18/nyregion/migrants-student-enrollment-building-space-fights.html
+**Do You Use, Like, Too Many Filler Words?**\
+`A Times columnist writes about the ubiquity of the word “like” in everyday speech. Is it an annoying verbal tic that we should try to avoid? Or does it actually improve our communication?`\
+https://nytimes.com/2024/03/18/learning/do-you-use-like-too-many-filler-words.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/03/18/crosswords/spelling-bee-forum.html
+**Empty Frames and Other Oddities from the Unsolved Gardner Museum Heist**\
+`After 34 years, not one of the 13 works stolen during the largest art theft in history has surfaced but the puzzling peculiarities of the case still draw interest.`\
+https://nytimes.com/2024/03/18/arts/design/unsolved-gardner-museum-heist.html
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/18/crosswords/todays-wordle-review.html
+**The G.O.P. Flamethrower With a Right-Wing Vision for North Carolina**\
+`Mark Robinson, the Republican nominee for governor, has a long history of inflammatory statements. He has also called for weaving conservative religious beliefs into the fabric of government.`\
+https://nytimes.com/2024/03/18/us/politics/mark-robinson-north-carolina.html
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/18/crosswords/connections-companion.html
+**Same Old Song: Private Equity Is Destroying Our Music Ecosystem**\
+`Private equity is cannibalizing the music industry by buying up old hits and pushing them back into our cultural consciousness. `\
+https://nytimes.com/2024/03/18/opinion/private-equity-music-spotify.html
 
-**Israel’s military says Hamas had returned to Gaza’s largest hospital.**\
-`Israel has long claimed that Gaza’s biggest hospital is hiding a Hamas command center. Hamas has denied it is operating from beneath the hospital.`\
-https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/israels-military-says-hamas-had-returned-to-gazas-largest-hospital
+**$4 Million Homes in California**\
+`A Victorian-style home in San Rafael, a ranch house in Santa Barbara and a Spanish-style home in Los Angeles.`\
+https://nytimes.com/2024/03/18/realestate/4-million-dollar-homes-california.html
 
-**Word of the Day: counterintuitive**\
-`This word has appeared in 114 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/03/18/learning/word-of-the-day-counterintuitive.html
+**We’re Not Burdens on Society. We’re Engines of Economic Progress.**\
+`Most Latinos are not rootless, illegal transients as some citizens may think, but a force for American progress.`\
+https://nytimes.com/2024/03/18/opinion/hispanic-immigrants-economic-progress.html
 
-**Monday Briefing**\
-`Russia’s election results.`\
-https://nytimes.com/2024/03/18/briefing/russia-election-putin-netanyahu.html
+**What the Data Says About Pandemic School Closures, Four Years Later**\
+`The more time students spent in remote instruction, the further they fell behind. And, experts say, extended closures did little to stop the spread of Covid.`\
+https://nytimes.com/2024/03/18/upshot/pandemic-school-closures-data.html
 
-**Storing Renewable Energy, One Balloon at a Time**\
-`To decarbonize the electrical grid, companies are finding creative ways to store energy during periods of low demand.`\
-https://nytimes.com/2024/03/18/science/renewable-energy-storage-climate.html
+**Justice Breyer, Off the Bench, Sounds an Alarm Over the Supreme Court’s Direction**\
+`In an interview in his chambers and in a new book, the justice, who retired in 2022, discussed Dobbs, originalism and the decline of trust in the court.`\
+https://nytimes.com/2024/03/18/us/breyer-supreme-court-interview.html
 
