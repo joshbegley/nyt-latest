@@ -1,3 +1,7 @@
+**‘Famine Is Imminent’ in Northern Gaza, Report Warns**\
+`A global authority on food security said that in the coming months, as many as 1.1 million people in Gaza could face the severest levels of hunger.`\
+https://nytimes.com/2024/03/18/world/middleeast/gaza-famine-report-starvation.html
+
 **Dan Loeb Enters the Chip Wars**\
 `The hedge fund mogul has been bankrolling a European patent fight against Intel, Dell, Amazon and other tech giants.`\
 https://nytimes.com/2024/03/18/business/dealbook/dan-loeb-chip-wars-intel-amazon.html

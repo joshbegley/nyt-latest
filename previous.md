@@ -1,3 +1,7 @@
+**‘Famine Is Imminent’ in Northern Gaza, Report Warns**\
+`A global authority on food security said that in the coming months, as many as 1.1 million people in Gaza could face the severest levels of hunger.`\
+https://nytimes.com/2024/03/18/world/middleeast/gaza-famine-report-starvation.html
+
 **Dan Loeb Enters the Chip Wars**\
 `The hedge fund mogul has been bankrolling a European patent fight against Intel, Dell, Amazon and other tech giants.`\
 https://nytimes.com/2024/03/18/business/dealbook/dan-loeb-chip-wars-intel-amazon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/opinion/tiktok-trump-pence-biden.html
 **Trump Just Made the 2024 Choice as Vivid as Possible**\
 `Two recent speeches sum up his and Biden’s candidacies.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/trump-biden-tipsheet
-
-**Do You Use, Like, Too Many Filler Words?**\
-`A Times columnist writes about the ubiquity of the word “like” in everyday speech. Is it an annoying verbal tic that we should try to avoid? Or does it actually improve our communication?`\
-https://nytimes.com/2024/03/18/learning/do-you-use-like-too-many-filler-words.html
 
