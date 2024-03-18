@@ -1,3 +1,7 @@
+**Trump Seeks to Appeal Ruling Allowing Prosecutor to Keep Georgia Case**\
+`Because the defendants want to pursue an appeal now, ahead of any trial, Georgia law requires them to get permission from the judge who wrote the ruling.`\
+https://nytimes.com/2024/03/18/us/trump-georgia-fani-willis-appeal.html
+
 **Trump Says Jews Who Support Democrats ‘Hate Israel’ and ‘Their Religion’**\
 `The comments, on a conservative radio program, echo an antisemitic trope and escalate claims he made as president that were widely criticized.`\
 https://nytimes.com/2024/03/18/us/politics/trump-israel-jewish-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/biden-netan
 **8 Incidents in 2 Weeks: What’s Going on With United’s Planes?**\
 `While no one was injured, most of the mishaps required emergency landings or diversions. One safety expert said the incidents were not the result of “systemic problems.”`\
 https://nytimes.com/2024/03/18/travel/united-airlines-boeing-airplane-safety.html
-
-**Philadelphia Man Is Cleared in Shooting After About a Dozen Years in Prison**\
-`Charles Rice had been sentenced to prison for 30 to 60 years for attempted murder. Prosecutors said the case did not meet the burden of proof needed for a conviction.`\
-https://nytimes.com/2024/03/18/us/cj-rice-exonerated-philadelphia.html
 
