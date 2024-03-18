@@ -1,3 +1,15 @@
+**The case is one of several about the intersection of free speech and technology on the court’s docket.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/the-case-is-one-of-several-about-the-intersection-of-free-speech-and-technology-on-the-courts-docket
+
+**A New Chapter for Sports Illustrated, With Plans to Keep Print**\
+`Minute Media, owner of The Players’ Tribune, has struck a deal to operate Sports Illustrated for at least 10 years.`\
+https://nytimes.com/2024/03/18/business/sports-illustrated-magazine.html
+
+**California Lawmakers Propose Reparations, but Not Cash Payments**\
+`None of the proposals introduced since January include the direct cash payments to Black Californians that the state’s reparations task force recommended.`\
+https://nytimes.com/2024/03/18/us/california-reparations-bills-cash-payments.html
+
 **Famine Is Projected for Northern Gaza, Experts Say**\
 `A global authority on food security said that in the coming months, as many as 1.1 million people in Gaza could face the severest levels of hunger.`\
 https://nytimes.com/2024/03/18/world/middleeast/gaza-famine-report-starvation.html
