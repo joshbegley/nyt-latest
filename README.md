@@ -1,3 +1,7 @@
+**Review: ‘The Shell Trial’ Seeks a Guilty Party in Climate Change**\
+`Ellen Reid and Roxie Perkins’s new opera, about events still in progress, finds fault and complicity in every player of a global blame game.`\
+https://nytimes.com/2024/03/18/arts/music/shell-trial-dutch-national-opera-review.html
+
 **Can You Find These 13 Hidden Nonfiction Book Titles?**\
 `See how many books you can uncover in this literary word search puzzle — and build a new reading list to explore at the same time.`\
 https://nytimes.com/interactive/2024/03/18/books/review/nonfiction-book-search.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/business/volkswagen-uaw-union-chattanooga.html
 **A Bronx Teacher Asked. Tommy Orange Answered.**\
 `When the author received an impassioned email, he dropped everything to visit the students who inspired it.`\
 https://nytimes.com/2024/03/18/books/tommy-orange-there-there-wandering-stars.html
-
-**Here’s how a Trump-appointed judge saw the Biden administration pressuring companies to censor speech.**\
-`The case is a flashpoint in a broader effort by conservatives to document what they contend is a liberal conspiracy to silence their views.`\
-https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/heres-how-a-trump-appointed-judge-saw-the-biden-administration-pressuring-companies-to-censor-speech
 
