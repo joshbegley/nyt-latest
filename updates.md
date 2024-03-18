@@ -1,3 +1,7 @@
+**Democrats Are Meddling in Republican Primaries**\
+`The strategy has risks, especially in red states like Ohio.`\
+https://nytimes.com/2024/03/18/us/politics/democrats-republican-primaries.html
+
 **2nd Man Charged in Theft of Judy Garland’s Ruby Slippers**\
 `Jerry Hal Saliterman threatened to release a sex tape of a woman if she told the F.B.I. about the theft of the famed red pumps, according to an indictment.`\
 https://nytimes.com/2024/03/18/us/wizard-of-oz-ruby-slippers-theft.html

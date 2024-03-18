@@ -1,3 +1,7 @@
+**Democrats Are Meddling in Republican Primaries**\
+`The strategy has risks, especially in red states like Ohio.`\
+https://nytimes.com/2024/03/18/us/politics/democrats-republican-primaries.html
+
 **2nd Man Charged in Theft of Judy Garland’s Ruby Slippers**\
 `Jerry Hal Saliterman threatened to release a sex tape of a woman if she told the F.B.I. about the theft of the famed red pumps, according to an indictment.`\
 https://nytimes.com/2024/03/18/us/wizard-of-oz-ruby-slippers-theft.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/us/cj-rice-exonerated-philadelphia.html
 **The Most Famous Cowboy Hat in the World Right Now**\
 `Beyoncé, Shania Twain, Kevin Costner and many reality TV regulars are loyal customers of Kemo Sabe hats. The shop in Aspen can’t believe its luck.`\
 https://nytimes.com/2024/03/18/style/aspen-kemo-sabe-cowboy-hat-alix-earle.html
-
-**Marginal Military Gains Won’t Stop a Famine in Gaza**\
-`The hospital assault raises further questions about Israel’s stated aim of eradicating Hamas in Gaza as a whole.`\
-https://nytimes.com/live/2024/03/12/opinion/thepoint/al-shifa-hospital-attack
 
