@@ -1,3 +1,11 @@
+**What happens next? The court will probably not issue a decision until June.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/what-happens-next-the-court-will-probably-not-issue-a-decision-until-june
+
+**Manafort in Talks to Return for the Republican National Convention**\
+`Paul Manafort, who served as a top adviser to Donald Trump’s 2016 campaign, was pardoned by Mr. Trump after being convicted of tax and bank fraud.`\
+https://nytimes.com/2024/03/18/us/politics/manafort-rnc-trump.html
+
 **Where the Wild Things Went During the Pandemic**\
 `A new study of camera-trap images complicates the idea that all wildlife thrived during the Covid lockdowns.`\
 https://nytimes.com/2024/03/18/science/pandemic-lockdowns-wildlife-anthropause.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/18/arts/music/shakira-las-mujeres-ya-no-lloran.html
 **Review: ‘The Shell Trial’ Seeks a Guilty Party in Climate Change**\
 `Ellen Reid and Roxie Perkins’s new opera, about events still in progress, finds fault and complicity in every player of a global blame game.`\
 https://nytimes.com/2024/03/18/arts/music/shell-trial-dutch-national-opera-review.html
-
-**Can You Find These 13 Hidden Nonfiction Book Titles?**\
-`See how many books you can uncover in this literary word search puzzle — and build a new reading list to explore at the same time.`\
-https://nytimes.com/interactive/2024/03/18/books/review/nonfiction-book-search.html
-
-**‘I Have Made This Recipe Many, Many (Many!) Times’**\
-`My garlicky chicken with lemon-anchovy sauce is a well-loved weeknight classic.`\
-https://nytimes.com/2024/03/18/dining/i-have-made-this-recipe-many-many-many-times.html
 
