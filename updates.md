@@ -1,3 +1,7 @@
+**Israel’s military says Hamas had returned to Gaza’s largest hospital.**\
+`Israel has long claimed that Gaza’s biggest hospital is hiding a Hamas command center. Hamas has denied it is operating from beneath the hospital.`\
+https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/israels-military-says-hamas-had-returned-to-gazas-largest-hospital
+
 **Word of the Day: counterintuitive**\
 `This word has appeared in 114 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/18/learning/word-of-the-day-counterintuitive.html
