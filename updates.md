@@ -1,3 +1,11 @@
+**Putin Hails Conquests in Ukraine in Red Square Spectacle**\
+`A day after a rubber-stamp presidential election, President Vladimir Putin said he would not back down in Russia’s war against Ukraine.`\
+https://nytimes.com/2024/03/18/world/europe/russia-putin-election.html
+
+**Justices Seem Likely to Side With N.R.A. in First Amendment Dispute**\
+`The National Rifle Association argued that a New York official violated the First Amendment by encouraging entities to break ties with the group after the Parkland mass shooting.`\
+https://nytimes.com/2024/03/18/us/politics/supreme-court-nra-free-speech.html
+
 **Who Was Marwan Issa, the Hamas Commander Killed by Israel?**\
 `Mr. Issa, a planner of the Oct. 7 attacks, is one of the most senior Hamas leaders killed in Gaza since the start of the war.`\
 https://nytimes.com/2024/03/18/world/middleeast/who-was-marwan-issa.html
