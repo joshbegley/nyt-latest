@@ -4,7 +4,7 @@ https://nytimes.com/2024/03/18/nyregion/migrants-student-enrollment-building-spa
 
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/03/18/crosswords/spelling-.html
+https://nytimes.com/2024/03/18/crosswords/spelling-bee-forum.html
 
 **Today’s Wordle Review**\
 `In case you need some puzzle help.`\
