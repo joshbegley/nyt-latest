@@ -1,3 +1,7 @@
+**Kennedy Family, Sans R.F.K. Jr., Poses With Biden at the White House**\
+`Relatives of Robert F. Kennedy Jr. have pointedly backed President Biden as their family member pursues a White House bid that they’ve condemned as “dangerous.”`\
+https://nytimes.com/2024/03/18/us/politics/kennedy-family-biden-white-house.html
+
 **Tesla’s Troubles Raise Questions About Its Invincibility**\
 `As the share price plunges, investors wonder whether the company, led by Elon Musk, can withstand intensifying competition.`\
 https://nytimes.com/2024/03/18/business/tesla-elon-musk-troubles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/business/media/elon-musk-don-lemon-interview.html
 **Trump Defends His Warning of a ‘Blood Bath for the Country’**\
 `He said he had been referring only to the auto industry.`\
 https://nytimes.com/2024/03/18/us/politics/trump-blood-bath-auto-industry.html
-
-**Biden is heading to Nevada and Arizona, and five states will vote.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/03/18/us/trump-biden-election/biden-nevada-arizona
 
