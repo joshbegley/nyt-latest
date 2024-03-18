@@ -1,3 +1,11 @@
+**Biden is heading to Nevada and Arizona, and five states will vote.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/03/18/us/trump-biden-election/biden-nevada-arizona
+
+**The case sets up a showdown between the justices and a conservative appeals court.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/the-case-sets-up-a-showdown-between-the-justices-and-a-conservative-appeals-court
+
 **The case is one of several about the intersection of free speech and technology on the court’s docket.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/the-case-is-one-of-several-about-the-intersection-of-free-speech-and-technology-on-the-courts-docket
