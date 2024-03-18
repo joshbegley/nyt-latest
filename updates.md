@@ -1,3 +1,11 @@
+**8 Incidents in 2 Weeks: What’s Going on With United’s Planes?**\
+`While no one was injured, most of the mishaps required emergency landings or diversions. One safety expert said the incidents were not the result of “systemic problems.”`\
+https://nytimes.com/2024/03/18/travel/united-airlines-boeing-airplane-safety.html
+
+**Philadelphia Man Is Cleared in Shooting After About a Dozen Years in Prison**\
+`Charles Rice had been sentenced to prison for 30 to 60 years for attempted murder. Prosecutors said the case did not meet the burden of proof needed for a conviction.`\
+https://nytimes.com/2024/03/18/us/cj-rice-exonerated-philadelphia.html
+
 **The Most Famous Cowboy Hat in the World Right Now**\
 `Beyoncé, Shania Twain, Kevin Costner and many reality TV regulars are loyal customers of Kemo Sabe hats. The shop in Aspen can’t believe its luck.`\
 https://nytimes.com/2024/03/18/style/aspen-kemo-sabe-cowboy-hat-alix-earle.html
