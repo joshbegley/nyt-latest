@@ -1,3 +1,11 @@
+**What Makes a Coincidence Meaningful?**\
+`The human tendency to see patterns everywhere is both fruitful and dangerous.`\
+https://nytimes.com/2024/03/18/opinion/coincidences-conspiracy-theories-psychology.html
+
+**Ed Mintz, Who Gave Audiences the Chance to Grade Films, Dies at 83**\
+`With CinemaScore, he broke new ground by building a business based on the opinions of moviegoers rather than critics.`\
+https://nytimes.com/2024/03/18/movies/ed-mintz-dead.html
+
 **Bernard Schwartz, Antiwar Executive Who Built an Arms Maker, Dies at 98**\
 `Despite his opposition to the Vietnam War, as an investor he took over an ailing defense contractor, Loral, and turned it into multibillion-dollar company.`\
 https://nytimes.com/2024/03/18/obituaries/bernard-schwartz-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/18/arts/design/tropical-modernism-victoria-and-alber
 **Trump’s Warning of a ‘Blood Bath’ if He Loses**\
 `Readers are shocked by the former president’s speech over the weekend. Also: The death of a daughter; drug “poisoning”; class-based admissions.`\
 https://nytimes.com/2024/03/18/opinion/donald-trump-blood-bath.html
-
-**A Salty Young Critic Explains Internet Culture, Patiently**\
-`Famed for her fearless literary takedowns, Lauren Oyler adopts a softer tone in the new essay collection “No Judgment.”`\
-https://nytimes.com/2024/03/18/books/review/no-judgment-lauren-oyler.html
-
-**Crafts Retailer Joann Files for Bankruptcy**\
-`After a pandemic-era boom in sales, Joann has been dealing with a pullback in consumer spending on at-home projects. The retailer will become a private company owned by a group of its creditors.`\
-https://nytimes.com/2024/03/18/business/joanna-retail-banktruptcy.html
 

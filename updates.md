@@ -1,3 +1,11 @@
+**What Makes a Coincidence Meaningful?**\
+`The human tendency to see patterns everywhere is both fruitful and dangerous.`\
+https://nytimes.com/2024/03/18/opinion/coincidences-conspiracy-theories-psychology.html
+
+**Ed Mintz, Who Gave Audiences the Chance to Grade Films, Dies at 83**\
+`With CinemaScore, he broke new ground by building a business based on the opinions of moviegoers rather than critics.`\
+https://nytimes.com/2024/03/18/movies/ed-mintz-dead.html
+
 **Bernard Schwartz, Antiwar Executive Who Built an Arms Maker, Dies at 98**\
 `Despite his opposition to the Vietnam War, as an investor he took over an ailing defense contractor, Loral, and turned it into multibillion-dollar company.`\
 https://nytimes.com/2024/03/18/obituaries/bernard-schwartz-dead.html
