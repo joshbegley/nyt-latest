@@ -1,3 +1,7 @@
+**Modernism, but Make It Cool**\
+`Britain exported the architectural style to West Africa and India, but local practitioners adapted it for a different climate and a new kind of politics.`\
+https://nytimes.com/2024/03/18/arts/design/tropical-modernism-victoria-and-albert-museum.html
+
 **Trump’s Warning of a ‘Blood Bath’ if He Loses**\
 `Readers are shocked by the former president’s speech over the weekend. Also: The death of a daughter; drug “poisoning”; class-based admissions.`\
 https://nytimes.com/2024/03/18/opinion/donald-trump-blood-bath.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/the-court-is-h
 **Even before the latest Israeli raid, Gaza’s largest hospital was barely functioning, the U.N. says.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/even-before-the-latest-israeli-raid-gazas-largest-hospital-was-barely-functioning-the-un-says
-
-**U.S. Bans the Last Type of Asbestos Still in Use**\
-`The United States joins more than 50 other countries that have banned the deadly carcinogen, although the phaseout will take more than a decade.`\
-https://nytimes.com/2024/03/18/climate/biden-administration-bans-asbestos.html
 
