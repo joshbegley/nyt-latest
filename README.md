@@ -1,3 +1,15 @@
+**Israel blocked the chief of the U.N. agency for Palestinians from visiting Gaza.**\
+`By Anushka Patil and Adam Rasgon`\
+https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/israel-blocked-the-chief-of-the-un-agency-for-palestinians-from-visiting-gaza
+
+**Food Experts Predict ‘Imminent’ Famine in Northern Gaza**\
+`The warning came amid an Israeli raid on Al-Shifa Hospital. Prime Minister Benjamin Netanyahu also agreed to send military and humanitarian officials to Washington to hear the Biden administration’s concerns.`\
+https://nytimes.com/2024/03/18/world/middleeast/gaza-famine-israel-hamas.html
+
+**Why Are Americans Still Down on the Economy?**\
+`When asked about their own finances, most people are upbeat.`\
+https://nytimes.com/2024/03/18/opinion/biden-trump-economy-election.html
+
 **Supreme Court Lets Public Office Ban Stand for ‘Cowboys for Trump’ Founder**\
 `After a conviction arising from the Jan. 6 riot at the Capitol, Couy Griffin was removed from his county commissioner post in New Mexico and banned from holding public office again.`\
 https://nytimes.com/2024/03/18/us/politics/cuoy-griffin-jan-6-cowboys-for-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/18/us/politics/trump-israel-jewish-voters.html
 **Democrats Are Meddling in Republican Primaries**\
 `The strategy has risks, especially in red states like Ohio.`\
 https://nytimes.com/2024/03/18/us/politics/democrats-republican-primaries.html
-
-**2nd Man Charged in Theft of Judy Garland’s Ruby Slippers**\
-`Jerry Hal Saliterman threatened to release a sex tape of a woman if she told the F.B.I. about the theft of the famed red pumps, according to an indictment.`\
-https://nytimes.com/2024/03/18/us/wizard-of-oz-ruby-slippers-theft.html
-
-**Toby Keith Will Be Inducted Into the Country Hall of Fame This Year**\
-`The organization behind the honors avoids electing artists in the year of their death, but the singer died in February just after this year’s vote closed.`\
-https://nytimes.com/2024/03/18/arts/music/toby-keith-country-hall-of-fame.html
-
-**Chief Justice Roberts Rejects Peter Navarro’s Last-Ditch Bid to Avoid Prison**\
-`Mr. Navarro, a former adviser to President Trump, must report to a Miami prison on Tuesday for a four-month sentence after he was convicted of contempt of Congress for defying a subpoena.`\
-https://nytimes.com/2024/03/18/us/peter-navarro-supreme-court-trump.html
 
