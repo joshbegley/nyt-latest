@@ -1,3 +1,7 @@
+**Who was Marwan Issa, the Hamas commander killed by Israel?**\
+`Mr. Issa, a presumed planner of the Oct. 7 attacks, is one of the most senior Hamas leaders killed in Gaza since the start of the war.`\
+https://nytimes.com/2024/03/18/world/middleeast/who-was-marwan-issa.html
+
 **Tuesday Briefing: Putin’s Victory Spectacle**\
 `Also, Gambia moves to overturn a ban on female genital cutting.`\
 https://nytimes.com/2024/03/18/world/asia/putin-red-square-gambia-gaza-asia.html
