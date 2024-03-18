@@ -1,3 +1,7 @@
+**Your Car May Be Spying on You**\
+`Modern vehicles can track all kinds of data, including location and driving style, raising a host of troubling privacy issues.`\
+https://nytimes.com/2024/03/18/podcasts/the-daily/car-gm-insurance-spying.html
+
 **Behind Putin’s Potemkin Vote, Real Support. But No Other Choices.**\
 `Many Russians say they back their president, but it is far less clear what they might do if they were given alternatives.`\
 https://nytimes.com/2024/03/18/world/europe/putin-russia-election.html

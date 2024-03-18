@@ -1,3 +1,7 @@
+**Your Car May Be Spying on You**\
+`Modern vehicles can track all kinds of data, including location and driving style, raising a host of troubling privacy issues.`\
+https://nytimes.com/2024/03/18/podcasts/the-daily/car-gm-insurance-spying.html
+
 **Behind Putin’s Potemkin Vote, Real Support. But No Other Choices.**\
 `Many Russians say they back their president, but it is far less clear what they might do if they were given alternatives.`\
 https://nytimes.com/2024/03/18/world/europe/putin-russia-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/realestate/4-million-dollar-homes-california.html
 **We’re Not Burdens on Society. We’re Engines of Economic Progress.**\
 `Most Latinos are not rootless, illegal transients as some citizens may think, but a force for American progress.`\
 https://nytimes.com/2024/03/18/opinion/hispanic-immigrants-economic-progress.html
-
-**What the Data Says About Pandemic School Closures, Four Years Later**\
-`The more time students spent in remote instruction, the further they fell behind. And, experts say, extended closures did little to stop the spread of Covid.`\
-https://nytimes.com/2024/03/18/upshot/pandemic-school-closures-data.html
 
