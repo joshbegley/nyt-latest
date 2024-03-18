@@ -1,3 +1,7 @@
+**How Can So Many Prominent Authors Turn Against Free Expression?**\
+`Those urging nonpartisan organizations to favor certain speech over others should consider that the tables can always turn.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/pen-world-voices-censorship
+
 **James D. Robinson III, Former Chief of American Express, Dies at 88**\
 `He led the company from 1977 to 1993 and helped transform Wall Street into a more competitive financial marketplace.`\
 https://nytimes.com/2024/03/18/business/james-d-robinson-3d-dead.html
