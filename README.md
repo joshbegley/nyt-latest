@@ -1,3 +1,7 @@
+**Ariana Grande’s ‘Eternal Sunshine’ Is the Biggest Album of 2024 Yet**\
+`The pop singer’s sixth No. 1 album opens at the top with the equivalent of 227,000 sales in the United States.`\
+https://nytimes.com/2024/03/18/arts/music/ariana-grande-eternal-sunshine-billboard-chart.html
+
 **New Studies Find No Evidence of Brain Injury in Havana Syndrome Cases**\
 `The findings from the National Institutes of Health are at odds with previous research that looked into the mysterious health incidents experienced by U.S. diplomats and spies.`\
 https://nytimes.com/2024/03/18/us/politics/havana-syndrome-brain-studies-nih.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/the-case-sets-
 **The case is one of several about the intersection of free speech and technology on the court’s docket.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/the-case-is-one-of-several-about-the-intersection-of-free-speech-and-technology-on-the-courts-docket
-
-**A New Chapter for Sports Illustrated, With Plans to Keep Print**\
-`Minute Media, owner of The Players’ Tribune, has struck a deal to operate Sports Illustrated for at least 10 years.`\
-https://nytimes.com/2024/03/18/business/sports-illustrated-magazine.html
 
