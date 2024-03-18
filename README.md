@@ -1,3 +1,11 @@
+**Here’s how a Trump-appointed judge saw the Biden administration pressuring companies to censor speech.**\
+`The case is a flashpoint in a broader effort by conservatives to document what they contend is a liberal conspiracy to silence their views.`\
+https://nytimes.com/live/2024/03/18/us/supreme-court-social-media/heres-how-a-trump-appointed-judge-saw-the-biden-administration-pressuring-companies-to-censor-speech
+
+**What Elon Musk Said in Testy Interview on Don Lemon’s New Show**\
+`The former CNN frontman released a wide-ranging interview with the billionaire about business, politics, hate speech online and more.`\
+https://nytimes.com/2024/03/18/business/media/elon-musk-don-lemon-interview.html
+
 **Trump Defends His Warning of a ‘Blood Bath for the Country’**\
 `He said he had been referring only to the auto industry.`\
 https://nytimes.com/2024/03/18/us/politics/trump-blood-bath-auto-industry.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/18/world/middleeast/hamas-israel-cease-fire-talks.ht
 **Pakistani Airstrikes in Afghanistan Kill at Least 8, Taliban Officials Say**\
 `The pre-dawn strikes escalated tensions between two countries that have clashed over the recent rise in militant violence on Pakistan’s soil.`\
 https://nytimes.com/2024/03/18/world/asia/pakistan-airstrikes-afghanistan-taliban.html
-
-**Democrats Hope to Quietly Expand Their Power at the State Level**\
-`Nick Corasaniti, a politics reporter for The New York Times, explains how Democrats are aiming to gain a political advantage by appointing more state judges.`\
-https://nytimes.com/video/us/politics/100000009363863/democrat-governors-state-judges.html
-
-**Famine Is Projected for Northern Gaza, Experts Say**\
-`A global authority on food security said that in the coming months, as many as 1.1 million people in Gaza could face the severest levels of hunger.`\
-https://nytimes.com/2024/03/18/world/middleeast/gaza-famine-report-starvation.html
 
