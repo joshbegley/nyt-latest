@@ -1,3 +1,7 @@
+**Dan Loeb Enters the Chip Wars**\
+`The hedge fund mogul has been bankrolling a European patent fight against Intel, Dell, Amazon and other tech giants.`\
+https://nytimes.com/2024/03/18/business/dealbook/dan-loeb-chip-wars-intel-amazon.html
+
 **‘Stormy’ Review: Trials and Travails**\
 `A new documentary on Stormy Daniels traces how fame, frenzy and legal battles involving a former president upended her life.`\
 https://nytimes.com/2024/03/18/movies/stormy-daniels-documentary.html
