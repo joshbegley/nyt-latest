@@ -1,3 +1,11 @@
+**Trump’s Warning of a ‘Blood Bath’ if He Loses**\
+`Readers are shocked by the former president’s speech over the weekend. Also: The death of a daughter; drug “poisoning”; class-based admissions.`\
+https://nytimes.com/2024/03/18/opinion/donald-trump-blood-bath.html
+
+**A Salty Young Critic Explains Internet Culture, Patiently**\
+`Famed for her fearless literary takedowns, Lauren Oyler adopts a softer tone in the new essay collection “No Judgment.”`\
+https://nytimes.com/2024/03/18/books/review/no-judgment-lauren-oyler.html
+
 **Crafts Retailer Joann Files for Bankruptcy**\
 `After pandemic-era boom in sales, Joann has been dealing with a pullback in consumer spending on at-home projects. The retailer will become a private company owned by a group of its creditors.`\
 https://nytimes.com/2024/03/18/business/joanna-retail-banktruptcy.html

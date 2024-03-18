@@ -1,3 +1,11 @@
+**Trump’s Warning of a ‘Blood Bath’ if He Loses**\
+`Readers are shocked by the former president’s speech over the weekend. Also: The death of a daughter; drug “poisoning”; class-based admissions.`\
+https://nytimes.com/2024/03/18/opinion/donald-trump-blood-bath.html
+
+**A Salty Young Critic Explains Internet Culture, Patiently**\
+`Famed for her fearless literary takedowns, Lauren Oyler adopts a softer tone in the new essay collection “No Judgment.”`\
+https://nytimes.com/2024/03/18/books/review/no-judgment-lauren-oyler.html
+
 **Crafts Retailer Joann Files for Bankruptcy**\
 `After pandemic-era boom in sales, Joann has been dealing with a pullback in consumer spending on at-home projects. The retailer will become a private company owned by a group of its creditors.`\
 https://nytimes.com/2024/03/18/business/joanna-retail-banktruptcy.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/even-before
 **U.S. Bans the Last Type of Asbestos Still in Use**\
 `The United States joins more than 50 other countries that have banned the deadly carcinogen, although the phaseout will take more than a decade.`\
 https://nytimes.com/2024/03/18/climate/biden-administration-bans-asbestos.html
-
-**Trump Spurned by 30 Companies as He Seeks Bond in $454 Million Judgment**\
-`Donald J. Trump’s lawyers said in a court filing that he faces “insurmountable difficulties” as he tries to raise cash for the civil fraud penalty he faces in New York.`\
-https://nytimes.com/2024/03/18/nyregion/trump-bond-civil-fraud-case.html
-
-**Shakira’s Family Came Apart. Then Her Music Soared.**\
-`With “Las Mujeres Ya No Lloran,” her first album in seven years, the Colombian superstar said she “transformed pain into productivity.”`\
-https://nytimes.com/2024/03/18/arts/music/shakira-las-mujeres-ya-no-lloran.html
 
