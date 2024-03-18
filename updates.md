@@ -1,3 +1,7 @@
+**Five Takeaways From Putin’s Orchestrated Win in Russia**\
+`President Vladimir V. Putin is expected to use the scale of his victory to justify more aggression in Ukraine. Many Russians are uneasy about what comes next.`\
+https://nytimes.com/2024/03/17/world/europe/russia-election-putin-takeaways.html
+
 **Steve Harley, ‘Make Me Smile’ Singer, Dies at 73**\
 `Mr. Harley was the frontman of the 1970s rock band Cockney Rebel, which landed several hits on the British charts.`\
 https://nytimes.com/2024/03/17/arts/steve-harley-dead.html
