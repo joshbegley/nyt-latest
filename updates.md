@@ -1,3 +1,7 @@
+**Modernism, but Make It Cool**\
+`Britain exported the architectural style to West Africa and India, but local practitioners adapted it for a different climate and a new kind of politics.`\
+https://nytimes.com/2024/03/18/arts/design/tropical-modernism-victoria-and-albert-museum.html
+
 **Trump’s Warning of a ‘Blood Bath’ if He Loses**\
 `Readers are shocked by the former president’s speech over the weekend. Also: The death of a daughter; drug “poisoning”; class-based admissions.`\
 https://nytimes.com/2024/03/18/opinion/donald-trump-blood-bath.html
