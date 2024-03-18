@@ -1,3 +1,7 @@
+**Steve Harley, ‘Make Me Smile’ Singer, Dies at 73**\
+`Mr. Harley was the frontman of the 1970s rock band Cockney Rebel, which landed several hits on the British charts.`\
+https://nytimes.com/2024/03/17/arts/steve-harley-dead.html
+
 **With New Six-Year Term, Putin Cements Hold on Russian Leadership**\
 `A rubber-stamp presidential election with no real competition allows Vladimir Putin to claim strong public support for his domestic dominance and the invasion of Ukraine.`\
 https://nytimes.com/2024/03/17/world/europe/russia-putin-election.html
