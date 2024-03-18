@@ -1,3 +1,7 @@
+**How Can So Many Prominent Authors Turn Against Free Expression?**\
+`Those urging nonpartisan organizations to favor certain speech over others should consider that the tables can always turn.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/pen-world-voices-censorship
+
 **James D. Robinson III, Former Chief of American Express, Dies at 88**\
 `He led the company from 1977 to 1993 and helped transform Wall Street into a more competitive financial marketplace.`\
 https://nytimes.com/2024/03/18/business/james-d-robinson-3d-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/movies/ed-mintz-dead.html
 **Bernard Schwartz, Antiwar Executive Who Built an Arms Maker, Dies at 98**\
 `Despite his opposition to the Vietnam War, as an investor he took over an ailing defense contractor, Loral, and turned it into multibillion-dollar company.`\
 https://nytimes.com/2024/03/18/obituaries/bernard-schwartz-dead.html
-
-**Beyoncé Is Riding Into Her Country Era. Here’s What to Know.**\
-`The singer and her collaborators have been dropping hints about “Cowboy Carter,” her upcoming album and first full-length foray into country music.`\
-https://nytimes.com/2024/03/18/arts/music/beyonce-country-album-cowboy-carter.html
 
