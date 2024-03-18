@@ -1,3 +1,11 @@
+**Who Was Marwan Issa, the Hamas Commander Killed by Israel?**\
+`Mr. Issa, a presumed planner of the Oct. 7 attacks, is one of the most senior Hamas leaders killed in Gaza since the start of the war.`\
+https://nytimes.com/2024/03/18/world/middleeast/who-was-marwan-issa.html
+
+**Mayor Adams Is Accused of Sexually Assaulting a Colleague in 1993**\
+`In a lawsuit, a former police colleague of Eric Adams said that he demanded oral sex in exchange for career help in 1993 and assaulted her when she refused.`\
+https://nytimes.com/2024/03/18/nyregion/eric-adams-sexual-assault.html
+
 **Washington’s Cherry Blossoms Reach Near-Record Early Bloom**\
 `A warm winter ushered the blossoms through the bloom cycle faster than usual, a spokesman for the National Park Service said.`\
 https://nytimes.com/2024/03/18/us/washington-dc-cherry-blossoms-peak-bloom.html
