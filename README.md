@@ -1,6 +1,10 @@
+**Supreme Court Lets Public Office Ban Stand for ‘Cowboys for Trump’ Founder**\
+`After a conviction arising from the Jan. 6 riot at the Capitol, Couy Griffin was removed from his county commissioner post in New Mexico and banned from holding public office again.`\
+https://nytimes.com/2024/03/18/us/politics/cuoy-griffin-jan-6-cowboys-for-trump.html
+
 **Conservative Influencer Is Charged in Jan. 6 Attack**\
 `Isabella DeLuca, 24, helped to steal a table that rioters used to assault law enforcement, according to a criminal complaint.`\
-https://nytimes.com/2024/03/18/us/isabella-deluca-jan-6.html
+https://nytimes.com/2024/03/18/us/politics/isabella-deluca-jan-6.html
 
 **Witness Films Israeli Raid on Al-Shifa Hospital**\
 `Emmy Shaheen, a resident of Gaza City, filmed clashes around Al-Shifa Hospital, where the the Israeli military carried out an operation.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/arts/music/toby-keith-country-hall-of-fame.html
 **Chief Justice Roberts Rejects Peter Navarro’s Last-Ditch Bid to Avoid Prison**\
 `Mr. Navarro, a former adviser to President Trump, must report to a Miami prison on Tuesday for a four-month sentence after he was convicted of contempt of Congress for defying a subpoena.`\
 https://nytimes.com/2024/03/18/us/peter-navarro-supreme-court-trump.html
-
-**Justices Were Wary of Curbing Federal Input on Social Media**\
-`Also, Trump’s lawyers said he can’t secure a bond for his civil fraud judgment. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/03/18/briefing/supreme-court-social-media-shakira-album.html
 
