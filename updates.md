@@ -1,3 +1,7 @@
+**Washington’s Cherry Blossoms Reach Near-Record Early Bloom**\
+`A warm winter ushered the blossoms through the bloom cycle faster than usual, a spokesman for the National Park Service said.`\
+https://nytimes.com/2024/03/18/us/washington-dc-cherry-blossoms-peak-bloom.html
+
 **Who Was Marwan Issa, the Hamas Commander Killed by Israel?**\
 `Mr. Issa, a presumed planner of the Oct. 7 attacks, is one of the most senior Hamas leaders killed in Gaza since the start of the war.`\
 https://nytimes.com/2024/03/18/world/middleeast/who-was-marwan-issa.html

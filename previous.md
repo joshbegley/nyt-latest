@@ -1,3 +1,7 @@
+**Washington’s Cherry Blossoms Reach Near-Record Early Bloom**\
+`A warm winter ushered the blossoms through the bloom cycle faster than usual, a spokesman for the National Park Service said.`\
+https://nytimes.com/2024/03/18/us/washington-dc-cherry-blossoms-peak-bloom.html
+
 **Putin Hails Conquests in Ukraine in Red Square Spectacle**\
 `A day after a rubber-stamp presidential election, President Vladimir Putin said he would not back down in Russia’s war against Ukraine.`\
 https://nytimes.com/2024/03/18/world/europe/russia-putin-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/science/space/thomas-p-stafford-dead.html
 **Trump’s Violent Language Toward EVs**\
 `The former president has deployed increasingly aggressive talk about electric vehicles and their effect on the American economy.`\
 https://nytimes.com/2024/03/18/climate/trump-electric-vehicles-blood-bath.html
-
-**Mayor Adams Is Accused of Sexually Assaulting a Colleague in 1993**\
-`In a lawsuit, a former police colleague of Eric Adams said that he demanded oral sex in exchange for career help in 1993 and assaulted her when she refused.`\
-https://nytimes.com/2024/03/18/nyregion/eric-adams-sexual-assault.html
 
