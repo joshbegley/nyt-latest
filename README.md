@@ -1,3 +1,7 @@
+**Word of the Day: counterintuitive**\
+`This word has appeared in 114 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/18/learning/word-of-the-day-counterintuitive.html
+
 **Monday Briefing**\
 `Russia’s election results.`\
 https://nytimes.com/2024/03/18/briefing/russia-election-putin-netanyahu.html
