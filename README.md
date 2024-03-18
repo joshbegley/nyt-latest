@@ -1,3 +1,7 @@
+**Israeli Negotiators Head to Qatar for Cease-Fire Talks, Officials Say**\
+`Hamas and Israel failed to reach an agreement ahead of Ramadan. Last week, Hamas dropped one of its demands.`\
+https://nytimes.com/2024/03/18/world/middleeast/hamas-israel-cease-fire-talks.html
+
 **Pakistani Airstrikes in Afghanistan Kill at Least 8, Taliban Officials Say**\
 `The pre-dawn strikes escalated tensions between two countries that have clashed over the recent rise in militant violence on Pakistan’s soil.`\
 https://nytimes.com/2024/03/18/world/asia/pakistan-airstrikes-afghanistan-taliban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/podcasts/russia-election-march-madness.html
 **Your Car May Be Spying on You**\
 `Modern vehicles can track all kinds of data, including location and driving style, raising a host of troubling privacy issues.`\
 https://nytimes.com/2024/03/18/podcasts/the-daily/car-gm-insurance-spying.html
-
-**Behind Putin’s Potemkin Vote, Real Support. But No Other Choices.**\
-`Many Russians say they back their president, but it is far less clear what they might do if they were given alternatives.`\
-https://nytimes.com/2024/03/18/world/europe/putin-russia-election.html
 
