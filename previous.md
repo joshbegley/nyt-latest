@@ -1,3 +1,7 @@
+**Are Immigrants the Secret to America’s Economic Success?**\
+`Spoiler alert: quite possibly.`\
+https://nytimes.com/2024/03/19/opinion/immigration-us-economy.html
+
 **How Gazans have fared after Israel has asked them to flee.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/gaza-civilians-flee
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/us/politics/corey-lewandowski-republican-national
 **The High Cost of Weight-Loss Drugs**\
 `Readers discuss the costs and benefits. Also: Donald Trump’s remark about American Jews and Israel; subway shootings; abortion providers; FAFSA chaos.`\
 https://nytimes.com/2024/03/19/opinion/weight-loss-drugs.html
-
-**Ethics Panels Dismiss Complaints Against Former Lawyer for Jan. 6 Witness**\
-`The witness, Cassidy Hutchinson, declined to cooperate with inquiries into Stefan Passantino prompted by her assertions that he pressed her to protect Donald Trump.`\
-https://nytimes.com/2024/03/19/us/politics/stefan-passantino-cassidy-hutchinson-jan-6.html
 
