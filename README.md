@@ -1,3 +1,7 @@
+**Apple Keeps Losing Patent Cases. Its Solution: Rewrite the Rules.**\
+`After losing two complaints before the U.S. International Trade Commission, Apple has stepped up its lobbying to change the agency’s practices.`\
+https://nytimes.com/2024/03/19/technology/apple-patents-lobbying.html
+
 **Mayor Adams Denies Sexually Assaulting a Colleague in 1993**\
 `Mayor Eric Adams said he did not recall meeting the woman who accused him of assault: “This did not happen.”`\
 https://nytimes.com/2024/03/19/nyregion/eric-adams-lawsuit-sexual-assault.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009370220/austin-ukraine.html
 **How Teens Approach the U.S. Election**\
 `Draft preview text here`\
 https://nytimes.com/2024/03/19/headway/teens-us-election.html
-
-**Judge in Trump Documents Case Draws Attention for Slow Pace**\
-`Aileen Cannon has yet to set a trial date in the complex case accusing Donald J. Trump of mishandling classified materials, and has stirred confusion with some decisions.`\
-https://nytimes.com/2024/03/19/us/politics/aileen-cannon-trump-documents.html
 
