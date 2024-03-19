@@ -1,3 +1,11 @@
+**Mount Sinai and UnitedHealthcare Reach Insurance Deal**\
+`The end of the dispute means that Mount Sinai patients with UnitedHealthcare won’t need to find new doctors.`\
+https://nytimes.com/2024/03/19/nyregion/united-healthcare-mount-sinai-hospital-deal.html
+
+**Texas immigration law could undermine asylum rights.**\
+`The Texas law could endanger people fleeing persecution, legal experts said.`\
+https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/texas-immigration-law-could-undermine-asylum-rights
+
 **Gannett and McClatchy Cut Back Relationship With A.P.**\
 `The Associated Press said the decisions by the two major newspaper chains “would not have a material impact on our overall revenue.”`\
 https://nytimes.com/2024/03/19/business/media/gannett-mcclatchy-ap-associated-press.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/19/opinion/gaza-war-palestine-arab-mandate.html
 **David Breashears, 68, Who Braved Everest to Capture It on Film, Dies**\
 `He risked death on the slopes of the world’s highest mountain to produce the highest-grossing IMAX documentary of all time.`\
 https://nytimes.com/2024/03/19/obituaries/david-breashears-dead.html
-
-**Dan Schneider Says He Is Sorry for the Pain He Caused His TV Staff**\
-`In an online apology, the former Nickelodeon producer addressed the many accounts of inappropriate behavior related by actors and others during a recent docuseries, “Quiet on Set.”`\
-https://nytimes.com/2024/03/19/arts/dan-schneider-apology-quiet-on-set.html
-
-**An Appeals Court Often Out of Step With the Supreme Court Notches a Victory**\
-`The U.S. Court of Appeals for the Fifth Circuit has a reputation for issuing decisions too conservative even for the six-justice supermajority of Republican appointees.`\
-https://nytimes.com/2024/03/19/us/appeals-court-texas-immigration-law.html
 
