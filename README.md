@@ -1,3 +1,19 @@
+**Slices of History**\
+`Lynn Lempel stares into the space between.`\
+https://nytimes.com/2024/03/18/crosswords/daily-puzzle-2024-03-19.html
+
+**R.B.G. Award Organizer Cancels Ceremony After Fallout Over Honorees**\
+`The Opperman Foundation said it would “reconsider its mission” but did not say whether those selected, including Elon Musk and Rupert Murdoch, would still receive the award.`\
+https://nytimes.com/2024/03/18/us/politics/ruth-bader-ginsburg-award-ceremony.html
+
+**From Russia, Elaborate Tales of Fake Journalists**\
+`As the Ukraine war grinds on, the Kremlin has created increasingly complex fabrications online to discredit Ukraine’s leader and undercut aid. Some have a Hollywood-style plot twist.`\
+https://nytimes.com/2024/03/18/business/media/russia-fake-journalists.html
+
+**Review: With Jeremy Strong, ‘An Enemy of the People’ Is Still Making Trouble**\
+`The “Succession” star headlines a Broadway revival of Ibsen’s play about a lifesaving doctor and the town that hates him.`\
+https://nytimes.com/2024/03/18/theater/an-enemy-of-the-people-review-jeremy-strong.html
+
 **Oprah Takes on Weight Stigma in the Ozempic Era**\
 `In a new special, Ms. Winfrey highlighted how new drugs have changed the way we talk about weight and willpower.`\
 https://nytimes.com/2024/03/18/well/live/oprah-ozempic-weight-loss.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/03/18/us/politics/jared-kushner-serbia-president.html
 **Infamous Trump Tape May Be Discussed, Not Played, at Trial, Judge Rules**\
 `Jurors in Donald J. Trump’s hush-money case will hear testimony about the “Access Hollywood” recording in which he boasts about groping women. They will not hear his voice.`\
 https://nytimes.com/2024/03/18/nyregion/trump-hush-money-trial-access-hollywood.html
-
-**Israel blocked the chief of the U.N. agency for Palestinians from visiting Gaza.**\
-`By Anushka Patil and Adam Rasgon`\
-https://nytimes.com/live/2024/03/18/world/israel-hamas-war-gaza-news/israel-blocked-the-chief-of-the-un-agency-for-palestinians-from-visiting-gaza
-
-**Food Experts Predict ‘Imminent’ Famine in Northern Gaza**\
-`The warning came amid an Israeli raid on Al-Shifa Hospital. Prime Minister Benjamin Netanyahu also agreed to send military and humanitarian officials to Washington to hear the Biden administration’s concerns.`\
-https://nytimes.com/2024/03/18/world/middleeast/gaza-famine-israel-hamas.html
-
-**Why Are Americans Still Down on the Economy?**\
-`When asked about their own finances, most people are upbeat.`\
-https://nytimes.com/2024/03/18/opinion/biden-trump-economy-election.html
-
-**Supreme Court Lets Public Office Ban Stand for ‘Cowboys for Trump’ Founder**\
-`After a conviction arising from the Jan. 6 riot at the Capitol, Couy Griffin was removed from his county commissioner post in New Mexico and banned from holding public office again.`\
-https://nytimes.com/2024/03/18/us/politics/cuoy-griffin-jan-6-cowboys-for-trump.html
 
