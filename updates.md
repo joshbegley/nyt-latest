@@ -1,3 +1,11 @@
+**Stops in Jeddah and Cairo will be Blinken’s sixth wartime trip to the region.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/stops-in-jeddah-and-cairo-will-be-blinkens-sixth-wartime-trip-to-the-region
+
+**19mideast-crisis**\
+`Blinken Will Travel to Mideast Again as Cease-Fire Talks Restart`\
+https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news
+
 **Spring**\
 `What are your favorite sights, sounds, tastes and smells of spring?`\
 https://nytimes.com/2024/03/19/learning/spring.html
