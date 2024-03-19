@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`Vladimir Putin’s nationalistic display.`\
+https://nytimes.com/2024/03/19/briefing/putin-speech-gambia-genital-cutting.html
+
 **What Schumer and Biden Got Right About Netanyahu**\
 `America’s Mideast strategy depends on Israel partnering with non-Hamas Palestinians. Netanyahu is making that impossible.`\
 https://nytimes.com/2024/03/19/opinion/chuck-schumer-israel.html
