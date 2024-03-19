@@ -1,3 +1,7 @@
+**Overheard at the Half-Marathon: ‘Wait, Was That Lil Nas X?’**\
+`The rapper and singer, clad in bulky designer sneakers and the official race T-shirt, was a last-minute addition at the NYC Half.`\
+https://nytimes.com/2024/03/18/style/lil-nas-x-half-marathon.html
+
 **The Internet Is a Wasteland, So Give Kids Better Places to Go**\
 `Young people won’t escape social media misery without freedom in the real world.`\
 https://nytimes.com/2024/03/18/opinion/internet-kids-social-media.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/us/politics/isabella-deluca-jan-6.html
 **Witness Films Israeli Raid on Al-Shifa Hospital**\
 `Emmy Shaheen, a resident of Gaza City, filmed clashes around Al-Shifa Hospital, where the the Israeli military carried out an operation.`\
 https://nytimes.com/video/world/middleeast/100000009368929/witness-films-israeli-raid-on-al-shifa-hospital.html
-
-**David Seidler, Oscar-Winning Writer of ‘The King’s Speech,’ Dies at 86**\
-`He drew on his own painful experiences with a stutter in depicting King George VI’s struggles to overcome his impediment and rally Britain in World War II.`\
-https://nytimes.com/2024/03/18/movies/david-seidler-dead.html
 

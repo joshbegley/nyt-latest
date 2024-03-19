@@ -1,3 +1,7 @@
+**Overheard at the Half-Marathon: ‘Wait, Was That Lil Nas X?’**\
+`The rapper and singer, clad in bulky designer sneakers and the official race T-shirt, was a last-minute addition at the NYC Half.`\
+https://nytimes.com/2024/03/18/style/lil-nas-x-half-marathon.html
+
 **The Internet Is a Wasteland, So Give Kids Better Places to Go**\
 `Young people won’t escape social media misery without freedom in the real world.`\
 https://nytimes.com/2024/03/18/opinion/internet-kids-social-media.html
