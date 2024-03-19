@@ -1,3 +1,11 @@
+**Unilever to Cut 7,500 Jobs and Spin Off Ben & Jerry’s Ice Cream Unit**\
+`The consumer goods giant said the moves would make for a “simpler, more focused company” as consumers trade down to cheaper brands amid high inflation.`\
+https://nytimes.com/2024/03/19/business/unilever-ben-jerrys-job-cuts.html
+
+**As U.K. Royals Struggle to Calm Rumors, Agency Flags Older Edited Photo**\
+`Getty Images said a photo taken by Catherine, Princess of Wales, of Queen Elizabeth II had been “digitally enhanced,” adding to scrutiny over royal communications with the public.`\
+https://nytimes.com/2024/03/19/world/europe/princess-kate-middleton-photo-uk.html
+
 **Investors Shrug Off Nvidia’s ‘A.I. Woodstock’**\
 `The chipmaker unveiled a new high-speed processor at its developer conference to power an “industrial revolution,” but its sky-high valuation is coming under scrutiny.`\
 https://nytimes.com/2024/03/19/business/dealbook/nvidia-ai-woodstock-chips.html
