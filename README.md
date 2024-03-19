@@ -1,3 +1,7 @@
+**Biden to Announce Multibillion-Dollar Grant for Intel to Expand Chip Production**\
+`The decision comes as President Biden champions his economic policies during a tour of the Southwest.`\
+https://nytimes.com/2024/03/19/us/politics/intel-biden-chips.html
+
 **Trump Asks Supreme Court for Absolute Immunity on Election Charges**\
 `The court will hear arguments on April 25 over whether former presidents can be prosecuted for things they did while in office.`\
 https://nytimes.com/2024/03/19/us/trump-supreme-court-immunity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/opinion/immigration-us-economy.html
 **How Gaza Civilians Have Fared After Israel Has Asked Them to Flee**\
 `Displacement has contributed to a hunger crisis and other severe challenges for Gazans. Here is a look at what happened on a few occasions when Israel has told them to evacuate.`\
 https://nytimes.com/2024/03/19/world/middleeast/gaza-civilians-flee.html
-
-**Man Charged With Murder in Death of 3-Year-Old Boy in Brooklyn**\
-`Officers responding to a 911 call found Denim Brown face down and unconscious in a bathtub at an East Flatbush apartment, the police said.`\
-https://nytimes.com/2024/03/19/nyregion/3-year-old-murder-brooklyn-nyc.html
 
