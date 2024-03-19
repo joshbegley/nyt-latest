@@ -24,7 +24,7 @@ https://nytimes.com/2024/03/19/opinion/immigration-us-economy.html
 
 **How Gazans have fared after Israel has asked them to flee.**\
 `By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/gaza-civilians-flee
+https://nytimes.com/2024/03/19/world/middleeast/gaza-civilians-flee.html
 
 **Man Charged With Murder in Death of 3-Year-Old Boy in Brooklyn**\
 `Officers responding to a 911 call found Denim Brown face down and unconscious in a bathtub at an East Flatbush apartment, the police said.`\
