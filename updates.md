@@ -1,3 +1,7 @@
+**Investors Shrug off Nvidia’s ‘A.I. Woodstock’**\
+`The chipmaker unveiled a new high-speed processor at its developer conference to power an “industrial revolution,” but its sky-high valuation is coming under scrutiny.`\
+https://nytimes.com/2024/03/19/business/dealbook/nvidia-ai-woodstock-chips.html
+
 **Weekly Student New Quiz: TikTok, Russia, Pi Day**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/03/19/learning/19StudentNewsQuiz.html
