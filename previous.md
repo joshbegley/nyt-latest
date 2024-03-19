@@ -1,3 +1,7 @@
+**What Schumer and Biden Got Right About Netanyahu**\
+`America’s Mideast strategy depends on Israel partnering with non-Hamas Palestinians. Netanyahu is making that impossible.`\
+https://nytimes.com/2024/03/19/opinion/chuck-schumer-israel.html
+
 **Barren Fields and Empty Stomachs: Afghanistan’s Long, Punishing Drought**\
 `In a country especially vulnerable to climate change, a drought has displaced entire villages and left millions of children malnourished.`\
 https://nytimes.com/2024/03/19/world/asia/afghanistan-drought-photos-climate-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/crosswords/daily-puzzle-2024-03-19.html
 **R.B.G. Award Organizer Cancels Ceremony After Fallout Over Honorees**\
 `The Opperman Foundation said it would “reconsider its mission” but did not say whether those selected, including Elon Musk and Rupert Murdoch, would still receive the award.`\
 https://nytimes.com/2024/03/18/us/politics/ruth-bader-ginsburg-award-ceremony.html
-
-**From Russia, Elaborate Tales of Fake Journalists**\
-`As the Ukraine war grinds on, the Kremlin has created increasingly complex fabrications online to discredit Ukraine’s leader and undercut aid. Some have a Hollywood-style plot twist.`\
-https://nytimes.com/2024/03/18/business/media/russia-fake-journalists.html
 

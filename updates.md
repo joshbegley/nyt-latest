@@ -1,3 +1,7 @@
+**What Schumer and Biden Got Right About Netanyahu**\
+`America’s Mideast strategy depends on Israel partnering with non-Hamas Palestinians. Netanyahu is making that impossible.`\
+https://nytimes.com/2024/03/19/opinion/chuck-schumer-israel.html
+
 **Barren Fields and Empty Stomachs: Afghanistan’s Long, Punishing Drought**\
 `In a country especially vulnerable to climate change, a drought has displaced entire villages and left millions of children malnourished.`\
 https://nytimes.com/2024/03/19/world/asia/afghanistan-drought-photos-climate-change.html
