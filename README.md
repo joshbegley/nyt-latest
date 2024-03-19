@@ -1,3 +1,7 @@
+**Alabama Republicans Pass Expansive Legislation Targeting D.E.I.**\
+`The measure would not only cut funding to diversity programs at public colleges, but also limit the teaching of “divisive concepts” surrounding race and gender.`\
+https://nytimes.com/2024/03/19/us/politics/alabama-dei-bill.html
+
 **Justices Won’t Block Texas’s Immigration Law, for Now**\
 `Also, Hong Kong adopted sweeping laws targeting criticism. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/03/19/briefing/supreme-court-texas-immigration-hong-kong.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court
 **Birth Control to Be Sold Over the Counter in New York Pharmacies**\
 `Officials said the move was intended to remove barriers to contraceptive care, as part of the state’s mission to protect reproductive rights.`\
 https://nytimes.com/2024/03/19/nyregion/new-york-birth-control-over-the-counter.html
-
-**Wednesday Briefing: Hong Kong’s Sweeping New Security Laws**\
-`Also, Japan’s interest rate hike and M.L.B.’s season opener.`\
-https://nytimes.com/2024/03/19/world/asia/hong-kong-article-23-japan-asia.html
 
