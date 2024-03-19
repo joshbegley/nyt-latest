@@ -1,3 +1,11 @@
+**Justices Won’t Block Texas’s Immigration Law, for Now**\
+`Also, Hong Kong adopted sweeping laws targeting criticism. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/03/19/briefing/supreme-court-texas-immigration-hong-kong.html
+
+**Jean Maria Arrigo, Who Exposed Psychologists’ Ties to Torture, Dies at 79**\
+`Risking ostracism by her colleagues, she fought against the use of psychologists in coercive interrogations by the military and the C.I.A.`\
+https://nytimes.com/2024/03/19/us/jean-maria-arrigo-dead.html
+
 **No Alternative for Rafah Invasion, Netanyahu Says, as Rift With U.S. Grows**\
 `A day after agreeing to President Biden’s request to send officials to Washington to discuss Rafah, the Israeli leader said there was no other option but to send forces into the crowded city.`\
 https://nytimes.com/2024/03/19/world/middleeast/israel-gaza-rafah-offensive.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/19/nyregion/new-york-birth-control-over-the-counter.
 **Wednesday Briefing: Hong Kong’s Sweeping New Security Laws**\
 `Also, Japan’s interest rate hike and M.L.B.’s season opener.`\
 https://nytimes.com/2024/03/19/world/asia/hong-kong-article-23-japan-asia.html
-
-**Democratic Donors Warn Biden Over Israel-Gaza Policy**\
-`More than 100 donors and activists, including a handful who have given six-figure sums to President Biden, signed a letter arguing that progressive anger could help Donald Trump.`\
-https://nytimes.com/2024/03/19/us/politics/biden-donors.html
-
-**World War II Loot Found in a Massachusetts Home Is Returned to Okinawa**\
-`The cache of artifacts was discovered in the attic of a veteran’s home after he died. The items were turned over to the F.B.I., which arranged for their return eight decades after the war.`\
-https://nytimes.com/2024/03/19/world/asia/fbi-japan-looted-artifacts-boston.html
 
