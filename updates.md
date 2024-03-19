@@ -1,3 +1,7 @@
+**7 New Songs You Should Hear Now**\
+`The latest tracks from Mdou Moctar, St. Vincent, Willie Nelson and more.`\
+https://nytimes.com/2024/03/19/arts/music/amplifier-newsletter-new-songs.html
+
 **Another Ousted Trump Official, Corey Lewandowski, May Get Convention Role**\
 `Mr. Lewandowski and Paul Manafort are both being considered for involvement in the Republican National Convention in July.`\
 https://nytimes.com/2024/03/19/us/politics/corey-lewandowski-republican-national-convention.html
