@@ -1,3 +1,19 @@
+**Tiny Love Stories: ‘Finding Forgiveness in Her Smile’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/03/19/style/tiny-modern-love-stories-finding-forgiveness-in-her-smile.html
+
+**Saudi Arabia Plans $40 Billion Push Into Artificial Intelligence**\
+`The Middle Eastern country is creating a gigantic fund to invest in A.I. technology, potentially becoming the largest player in the hot market.`\
+https://nytimes.com/2024/03/19/business/saudi-arabia-investment-artificial-intelligence.html
+
+**Supreme Court Rules for Immigrant in Case on Deportation Hardship Waiver**\
+`By a 6-to-3 vote, the court said that federal appeals courts may review many rulings from immigration judges despite a law that sought to limit their jurisdiction.`\
+https://nytimes.com/2024/03/19/us/politics/supreme-court-immigrant-deportation.html
+
+**Making the Case for Capitalism**\
+`A new book argues that short-term profit incentives can deliver long-term changes to benefit the climate.`\
+https://nytimes.com/2024/03/19/climate/making-the-case-for-capitalism.html
+
 **Microsoft Hires DeepMind Co-Founder to Run Consumer A.I.**\
 `Mustafa Suleyman is leaving a start-up called Inflection to take the senior position with Microsoft.`\
 https://nytimes.com/2024/03/19/technology/mustafa-suleyman-google-gemini.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/03/19/arts/music/aribert-reimann-dead.html
 **Oil Executives, Meeting in Texas, Cast Doubts on ‘Fantasy’ Energy Transition**\
 `The comments by a Saudi executive raised questions regarding whose predictions about the future of oil and gas are more likely to be true.`\
 https://nytimes.com/2024/03/19/climate/ceraweek-saudi-fantasy-energy-transition.html
-
-**Supreme Court Won’t Block, for Now, Aggressive Texas Immigration Law**\
-`The law, which empowers local officials to arrest and deport migrants, was challenged by the Biden administration as an affront to federal power.`\
-https://nytimes.com/2024/03/19/us/supreme-court-texas-immigration.html
-
-**Jewish Film Professionals Denounce Speech by ‘Zone of Interest’ Director**\
-`An open letter condemned remarks critical of Israel that Jonathan Glazer made when he accepted an Oscar for the film, which is about the Holocaust.`\
-https://nytimes.com/2024/03/19/movies/jonathan-glazer-open-letter.html
-
-**7 New Songs You Should Hear Now**\
-`The latest tracks from Mdou Moctar, St. Vincent, Willie Nelson and more.`\
-https://nytimes.com/2024/03/19/arts/music/amplifier-newsletter-new-songs.html
-
-**Another Ousted Trump Official, Corey Lewandowski, May Get Convention Role**\
-`Mr. Lewandowski and Paul Manafort are both being considered for involvement in the Republican National Convention in July.`\
-https://nytimes.com/2024/03/19/us/politics/corey-lewandowski-republican-national-convention.html
 

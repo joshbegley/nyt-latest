@@ -1,3 +1,19 @@
+**Tiny Love Stories: ‘Finding Forgiveness in Her Smile’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/03/19/style/tiny-modern-love-stories-finding-forgiveness-in-her-smile.html
+
+**Saudi Arabia Plans $40 Billion Push Into Artificial Intelligence**\
+`The Middle Eastern country is creating a gigantic fund to invest in A.I. technology, potentially becoming the largest player in the hot market.`\
+https://nytimes.com/2024/03/19/business/saudi-arabia-investment-artificial-intelligence.html
+
+**Supreme Court Rules for Immigrant in Case on Deportation Hardship Waiver**\
+`By a 6-to-3 vote, the court said that federal appeals courts may review many rulings from immigration judges despite a law that sought to limit their jurisdiction.`\
+https://nytimes.com/2024/03/19/us/politics/supreme-court-immigrant-deportation.html
+
+**Making the Case for Capitalism**\
+`A new book argues that short-term profit incentives can deliver long-term changes to benefit the climate.`\
+https://nytimes.com/2024/03/19/climate/making-the-case-for-capitalism.html
+
 **Microsoft Hires DeepMind Co-Founder to Run Consumer A.I.**\
 `Mustafa Suleyman is leaving a start-up called Inflection to take the senior position with Microsoft.`\
 https://nytimes.com/2024/03/19/technology/mustafa-suleyman-google-gemini.html
