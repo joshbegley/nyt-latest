@@ -1,3 +1,11 @@
+**Hong Kong’s New Security Legislation Took Decades to Pass. Here’s What to Know.**\
+`The legislation marks another significant erosion of freedom in a former British colony once known for its relative autonomy from Beijing.`\
+https://nytimes.com/2024/03/19/world/asia/hong-kong-security-law-article-23-explained.html
+
+**Hong Kong Adopts Sweeping Security Laws, Bowing to Beijing**\
+`The legislation targets “external interference” and the theft of state secrets, with implications for businesses, journalists, civil servants and others.`\
+https://nytimes.com/2024/03/19/world/asia/hong-kong-security-law-article-23.html
+
 **Gambia and the Campaign Against Cutting**\
 `Female genital mutilation is still widespread despite international efforts to end it.`\
 https://nytimes.com/2024/03/19/briefing/fgm-cutting-gambia-campaign.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/19/us/goon-squad-mississippi-sentencing.html
 **Biden’s Climate Law Has Created a Growing Market for Green Tax Credits**\
 `New Treasury Department data shows companies have registered 45,500 projects for possible sale on a new tax-credit marketplace.`\
 https://nytimes.com/2024/03/19/business/bidens-climate-law-has-created-a-growing-market-for-green-tax-credits.html
-
-**Outside Groups Pledge Over $1 Billion to Aid Biden’s Re-election Effort**\
-`The League of Conservation Voters, among the biggest spenders on progressive causes, said it would put $120 million behind President Biden and Democrats as his Republican rival faces cash woes.`\
-https://nytimes.com/2024/03/19/us/politics/biden-election-donation.html
-
-**The Islamophobic Smear Campaign Dividing Democrats**\
-`Adeel Mangi was a judicial shoo-in for Biden. Will Democrats defend him?`\
-https://nytimes.com/2024/03/19/opinion/islamophobia-democrats-adeel-mangi.html
 
