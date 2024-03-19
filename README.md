@@ -1,3 +1,7 @@
+**DNA From Discarded Gum Leads to Conviction in 1980 Oregon Murder**\
+`Robert Arthur Plympton was found guilty of murdering Barbara Mae Tucker, 19, who was kidnapped, sexually assaulted and beaten to death on a community college campus near Portland.`\
+https://nytimes.com/2024/03/19/us/oregon-man-guilty-murder-dna.html
+
 **White House says Supreme Court decision will sow chaos at the border.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/white-house-says-supreme-court-decision-will-sow-chaos-at-the-border
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/world/asia/fbi-japan-looted-artifacts-boston.html
 **Biden to Announce Multibillion-Dollar Grant for Intel to Expand Chip Production**\
 `The decision comes as President Biden champions his economic policies during a tour of the Southwest.`\
 https://nytimes.com/2024/03/19/us/politics/intel-biden-chips.html
-
-**Trump Asks Supreme Court for Absolute Immunity on Election Charges**\
-`The court will hear arguments on April 25 over whether former presidents can be prosecuted for things they did while in office.`\
-https://nytimes.com/2024/03/19/us/trump-supreme-court-immunity.html
 
