@@ -1,3 +1,7 @@
+**Reimagining Real Lives in the Best New Historical Fiction**\
+`This trio of new novels shows real people in their natural habitats, drawn with writerly flair.`\
+https://nytimes.com/2024/03/19/books/review/reimagining-real-lives-in-the-best-new-historical-fiction.html
+
 **Martin Luther King Jr. Biographer Wins American History Prize**\
 `The New-York Historical Society honor goes to Jonathan Eig, whose “King: A Life” presents the civil rights leader as a brilliant, flawed 20th-century “founding father.”`\
 https://nytimes.com/2024/03/19/arts/martin-luther-king-jr-eig.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/19/us/primary-election-ohio-trump-biden/biden-c
 **Brazil Police Recommend Criminal Charges Against Bolsonaro**\
 `The federal police accused the former president of falsifying his Covid-19 vaccination records.`\
 https://nytimes.com/2024/03/19/world/americas/brazil-bolsonaro-charges-covid.html
-
-**Chicago-Area Races Test Progressive Strength**\
-`A proposed tax change to fund homelessness programs in Chicago and the Democratic primary for Cook County’s chief prosecutor pit moderates against progressives.`\
-https://nytimes.com/2024/03/19/us/chicago-primary-election-prosecutor-tax.html
 

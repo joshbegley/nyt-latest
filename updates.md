@@ -1,3 +1,7 @@
+**Reimagining Real Lives in the Best New Historical Fiction**\
+`This trio of new novels shows real people in their natural habitats, drawn with writerly flair.`\
+https://nytimes.com/2024/03/19/books/review/reimagining-real-lives-in-the-best-new-historical-fiction.html
+
 **Martin Luther King Jr. Biographer Wins American History Prize**\
 `The New-York Historical Society honor goes to Jonathan Eig, whose “King: A Life” presents the civil rights leader as a brilliant, flawed 20th-century “founding father.”`\
 https://nytimes.com/2024/03/19/arts/martin-luther-king-jr-eig.html
