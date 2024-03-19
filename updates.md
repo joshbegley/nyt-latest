@@ -1,3 +1,7 @@
+**Trump Sues ABC and Stephanopoulos, Saying They Defamed Him**\
+`The lawsuit stems from the anchor’s recent contentious interview with Representative Nancy Mace.`\
+https://nytimes.com/2024/03/18/us/politics/trump-lawsuit-abc-stephanopoulos.html
+
 **Corrections: March 19, 2024**\
 `Corrections that appeared in print on Tuesday, March 19, 2024.`\
 https://nytimes.com/2024/03/18/pageoneplus/corrections-march-19-2024.html
