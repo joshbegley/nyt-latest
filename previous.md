@@ -1,3 +1,7 @@
+**It Turns Out the ‘Deep State’ Is Actually Kind of Awesome**\
+`Meet the unsung heroes making our country great.`\
+https://nytimes.com/video/opinion/100000009356253/trump-deep-state.html
+
 **China Evergrande Founder Accused of Exaggerating Revenue by $78 Billion**\
 `China’s securities regulator fined the developer’s founder, Hui Ka Yan, and banned him from participating in the country’s financial markets for life.`\
 https://nytimes.com/2024/03/19/business/china-evergrande-fined.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/nyregion/new-yorkers-poll-survey.html
 **Walter Massey, a Physicist With a Higher Calling**\
 `He broke barriers as the first Black physicist in nearly every role. But his identity made him reach for dreams beyond his career as a scientist.`\
 https://nytimes.com/2024/03/19/science/physics-massey-black.html
-
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/19/crosswords/connections-companion.html
 

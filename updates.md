@@ -1,3 +1,7 @@
+**It Turns Out the ‘Deep State’ Is Actually Kind of Awesome**\
+`Meet the unsung heroes making our country great.`\
+https://nytimes.com/video/opinion/100000009356253/trump-deep-state.html
+
 **China Evergrande Founder Accused of Exaggerating Revenue by $78 Billion**\
 `China’s securities regulator fined the developer’s founder, Hui Ka Yan, and banned him from participating in the country’s financial markets for life.`\
 https://nytimes.com/2024/03/19/business/china-evergrande-fined.html
