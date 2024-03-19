@@ -1,3 +1,15 @@
+**Wednesday Briefing: Hong Kong’s Sweeping New Security Laws**\
+`Also, Japan’s interest rate hike and M.L.B.’s season opener.`\
+https://nytimes.com/2024/03/19/world/asia/hong-kong-article-23-japan-asia.html
+
+**Democratic Donors Warn Biden Over Israel-Gaza Policy**\
+`More than 100 donors and activists, including a handful who have given six-figure sums to President Biden, signed a letter arguing that progressive anger could help Donald Trump.`\
+https://nytimes.com/2024/03/19/us/politics/biden-donors.html
+
+**World War II Loot Found in a Massachusetts Home Is Returned to Okinawa**\
+`The cache of artifacts was discovered in the attic of a veteran’s home after he died. The items were turned over to the F.B.I., which arranged for their return eight decades after the war.`\
+https://nytimes.com/2024/03/19/world/asia/fbi-japan-looted-artifacts-boston.html
+
 **Biden to Announce Multibillion-Dollar Grant for Intel to Expand Chip Production**\
 `The decision comes as President Biden champions his economic policies during a tour of the Southwest.`\
 https://nytimes.com/2024/03/19/us/politics/intel-biden-chips.html
