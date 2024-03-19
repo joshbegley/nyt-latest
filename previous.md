@@ -1,3 +1,11 @@
+**Mayor Adams Denies Sexually Assaulting a Colleague in 1993**\
+`Mayor Eric Adams said he did not recall meeting the woman who accused him of assault: “This did not happen.”`\
+https://nytimes.com/2024/03/19/nyregion/eric-adams-lawsuit-sexual-assault.html
+
+**The White House says a meeting with an Israeli delegation on Rafah is expected early next week.**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/the-white-house-says-a-meeting-with-an-israeli-delegation-on-rafah-is-expected-early-next-week
+
 **Paulin Hountondji, Revolutionary African Philosopher, Dies at 81**\
 `He rebelled against efforts to force African ways of thinking into the European worldview. His thoughts had the effect of a bomb in African intellectual life.`\
 https://nytimes.com/2024/03/19/world/africa/paulin-hountondji-dead.html
@@ -24,17 +32,9 @@ https://nytimes.com/video/world/europe/100000009370220/austin-ukraine.html
 
 **How Teens Approach the U.S. Election**\
 `Draft preview text here`\
-https://nytimes.com/2024/03/19/headway/how-teens-approach-the-us-election.html
+https://nytimes.com/2024/03/19/headway/teens-us-election.html
 
 **Judge in Trump Documents Case Draws Attention for Slow Pace**\
 `Aileen Cannon has yet to set a trial date in the complex case accusing Donald J. Trump of mishandling classified materials, and has stirred confusion with some decisions.`\
 https://nytimes.com/2024/03/19/us/politics/aileen-cannon-trump-documents.html
-
-**Hidden Luxury Beckons at Bungalow**\
-`The chef Vikas Khanna serves a menu that covers Kashmir south to Kerala.`\
-https://nytimes.com/2024/03/19/dining/bungalow-restaurant-opening.html
-
-**Peter Navarro Begins 4-Month Jail Sentence for Contempt of Congress**\
-`The former White House trade adviser is the first senior Trump aide to serve time over efforts to overturn the 2020 election.`\
-https://nytimes.com/2024/03/19/us/politics/peter-navarro-jail-contempt-congress.html
 

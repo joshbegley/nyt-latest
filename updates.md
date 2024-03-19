@@ -1,3 +1,15 @@
+**Mayor Adams Denies Sexually Assaulting a Colleague in 1993**\
+`Mayor Eric Adams said he did not recall meeting the woman who accused him of assault: “This did not happen.”`\
+https://nytimes.com/2024/03/19/nyregion/eric-adams-lawsuit-sexual-assault.html
+
+**The White House says a meeting with an Israeli delegation on Rafah is expected early next week.**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/the-white-house-says-a-meeting-with-an-israeli-delegation-on-rafah-is-expected-early-next-week
+
+**How Teens Approach the U.S. Election**\
+`Draft preview text here`\
+https://nytimes.com/2024/03/19/headway/teens-us-election.html
+
 **Paulin Hountondji, Revolutionary African Philosopher, Dies at 81**\
 `He rebelled against efforts to force African ways of thinking into the European worldview. His thoughts had the effect of a bomb in African intellectual life.`\
 https://nytimes.com/2024/03/19/world/africa/paulin-hountondji-dead.html
