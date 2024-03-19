@@ -1,3 +1,11 @@
+**Jonathan Majors Accused of Assault and Defamation in Lawsuit by Ex-Girlfriend**\
+`Grace Jabbari alleges several instances of violence by Majors, the former Marvel movie star. Majors’s lawyer said he was preparing a countersuit.`\
+https://nytimes.com/2024/03/19/movies/jonathan-majors-lawsuit-assault-defamation.html
+
+**An Arab Mandate for Palestine**\
+`There’s only one good way the war in Gaza ends.`\
+https://nytimes.com/2024/03/19/opinion/gaza-war-palestine-arab-mandate.html
+
 **David Breashears, 68, Who Braved Everest to Capture It on Film, Dies**\
 `He risked death on the slopes of the world’s highest mountain to produce the highest-grossing IMAX documentary of all time.`\
 https://nytimes.com/2024/03/19/obituaries/david-breashears-dead.html
