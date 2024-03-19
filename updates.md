@@ -1,3 +1,7 @@
+**Israel Faces Tough Balancing Act on Russia and the West**\
+`Prime Minister Benjamin Netanyahu treads lightly with President Vladimir Putin. Russia is not responding in kind, with public criticism increasing.`\
+https://nytimes.com/2024/03/19/world/europe/israel-russia-us-ukraine.html
+
 **Israel’s spy chief returns home as cease-fire talks continue in Qatar.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/israels-spy-chief-returns-home-as-cease-fire-talks-continue-in-qatar
