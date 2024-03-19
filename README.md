@@ -1,3 +1,7 @@
+**Word of the Day: posterity**\
+`This word has appeared in 49 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/19/learning/word-of-the-day-posterity.html
+
 **Tuesday Briefing**\
 `Vladimir Putin’s nationalistic display.`\
 https://nytimes.com/2024/03/19/briefing/putin-speech-gambia-genital-cutting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/pageoneplus/corrections-march-19-2024.html
 **Quotation of the Day: Little Choice but for Putin to Win Huge**\
 `Quotation of the Day for Tuesday, March 19, 2024.`\
 https://nytimes.com/2024/03/18/pageoneplus/quotation-of-the-day-little-choice-but-for-putin-to-win-huge.html
-
-**Slices of History**\
-`Lynn Lempel stares into the space between.`\
-https://nytimes.com/2024/03/18/crosswords/daily-puzzle-2024-03-19.html
 
