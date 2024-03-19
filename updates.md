@@ -1,3 +1,11 @@
+**The High Cost of Weight-Loss Drugs**\
+`Readers discuss the costs and benefits. Also: Donald Trump’s remark about American Jews and Israel; subway shootings; abortion providers; FAFSA chaos.`\
+https://nytimes.com/2024/03/19/opinion/weight-loss-drugs.html
+
+**Ethics Panels Dismiss Complaints Against Former Lawyer for Jan. 6 Witness**\
+`The witness, Cassidy Hutchinson, declined to cooperate with inquiries into Stefan Passantino prompted by her assertions that he pressed her to protect Donald Trump.`\
+https://nytimes.com/2024/03/19/us/politics/stefan-passantino-cassidy-hutchinson-jan-6.html
+
 **Apple Keeps Losing Patent Cases. Its Solution: Rewrite the Rules.**\
 `After losing two complaints before the U.S. International Trade Commission, Apple has stepped up its lobbying to change the agency’s practices.`\
 https://nytimes.com/2024/03/19/technology/apple-patents-lobbying.html
