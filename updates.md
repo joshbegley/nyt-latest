@@ -1,3 +1,7 @@
+**Gambia and the Campaign Against Cutting**\
+`Female genital mutilation is still widespread despite international efforts to end it.`\
+https://nytimes.com/2024/03/19/briefing/fgm-cutting-gambia-campaign.html
+
 **Blinken Warns China Against Armed Attack on Philippines**\
 `The secretary of state struck a balance seemingly meant to deter China while avoiding a dangerous escalation with Beijing.`\
 https://nytimes.com/2024/03/19/us/politics/blinken-china-philippines.html
