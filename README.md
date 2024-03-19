@@ -1,3 +1,15 @@
+**Dan Schneider Says He Is Sorry for the Pain He Caused His TV Staff**\
+`In an online apology, the former Nickelodeon producer addressed the many accounts of inappropriate behavior related by actors and others during a recent docuseries, “Quiet on Set.”`\
+https://nytimes.com/2024/03/19/arts/dan-schneider-says-he-is-sorry-for-the-pain-he-caused-his-tv-staff.html
+
+**An Appeals Court Often Out of Step With the Supreme Court Notches a Victory**\
+`The U.S. Court of Appeals for the Fifth Circuit has a reputation for issuing decisions too conservative even for the six-justice supermajority of Republican appointees.`\
+https://nytimes.com/2024/03/19/us/appeals-court-texas-immigration-law.html
+
+**A Nebraska Lawmaker Incites Outrage Over the Reading of a Book’s Rape Scene**\
+`The lawmaker, State Senator Steve Halloran, was criticized by both Republicans and Democrats for referring to two Democrats as he read the passage on the floor of the Capitol.`\
+https://nytimes.com/2024/03/19/us/politics/halloran-nebraska-rape-reading.html
+
 **Alabama Republicans Pass Expansive Legislation Targeting D.E.I.**\
 `The measure would not only cut funding to diversity programs at public colleges, but also limit the teaching of “divisive concepts” surrounding race and gender.`\
 https://nytimes.com/2024/03/19/us/politics/alabama-dei-bill.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/white-hou
 **Florida closes its polls first, followed by Ohio. Here’s the latest.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/03/19/us/primary-election-updates-trump-biden/florida-closes-its-polls-first-followed-by-ohio-heres-the-latest
-
-**Here’s the latest on the fallout.**\
-`By J. David Goodman, Edgar Sandoval and Adam Liptak`\
-https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/heres-the-latest-on-the-fallout
-
-**19texas-border**\
-`Live Updates: Uncertainty on Border After Supreme Court Allows Texas to Arrest Migrants`\
-https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court
-
-**Birth Control to Be Sold Over the Counter in New York Pharmacies**\
-`Officials said the move was intended to remove barriers to contraceptive care, as part of the state’s mission to protect reproductive rights.`\
-https://nytimes.com/2024/03/19/nyregion/new-york-birth-control-over-the-counter.html
 
