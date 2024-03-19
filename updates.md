@@ -1,3 +1,11 @@
+**Lawsuit Over New York City’s Property Tax System Can Proceed, Court Says**\
+`The lawsuit seeks to overturn a system that has been under fire for years because it favors wealthier homeowners. If the plaintiffs win, they hope to distribute the tax burden more equitably.`\
+https://nytimes.com/2024/03/19/nyregion/property-tax-lawsuit-nyc.html
+
+**U.S. and Allies Pledge Additional Security Assistance for Ukraine**\
+`U.S. Defense Secretary Lloyd J. Austin III praised European allies on Tuesday for their continuing commitment to support Ukraine’s defense against Russia.`\
+https://nytimes.com/video/world/europe/100000009370220/austin-ukraine.html
+
 **How Teens Approach the U.S. Election**\
 `Draft preview text here`\
 https://nytimes.com/2024/03/19/headway/how-teens-approach-the-us-election.html
