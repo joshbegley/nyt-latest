@@ -1,3 +1,7 @@
+**Gambia and the Campaign Against Cutting**\
+`Female genital mutilation is still widespread despite international efforts to end it.`\
+https://nytimes.com/2024/03/19/briefing/fgm-cutting-gambia-campaign.html
+
 **Blinken Warns China Against Armed Attack on Philippines**\
 `The secretary of state struck a balance seemingly meant to deter China while avoiding a dangerous escalation with Beijing.`\
 https://nytimes.com/2024/03/19/us/politics/blinken-china-philippines.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/us/politics/biden-election-donation.html
 **The Islamophobic Smear Campaign Dividing Democrats**\
 `Adeel Mangi was a judicial shoo-in for Biden. Will Democrats defend him?`\
 https://nytimes.com/2024/03/19/opinion/islamophobia-democrats-adeel-mangi.html
-
-**How a $1 Billion Gift Changed Lives**\
-`Ginia Bellafante, a New York Times columnist, speaks with students at the Albert Einstein College of Medicine about the $1 billion donation from the philanthropist, Ruth Gottesman.`\
-https://nytimes.com/video/education/edlife/100000009364733/how-a-1-billion-gift-changed-lives.html
 
