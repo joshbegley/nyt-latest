@@ -1,3 +1,7 @@
+**Jonathan Majors Accused of Assault and Defamation in Lawsuit by Ex-Girlfriend**\
+`Grace Jabbari alleges several instances of violence by Majors, the former Marvel movie star. Majors’s lawyer said he was preparing a countersuit.`\
+https://nytimes.com/2024/03/19/movies/jonathan-majors-lawsuit-assault-defamation.html
+
 **An Arab Mandate for Palestine**\
 `There’s only one good way the war in Gaza ends.`\
 https://nytimes.com/2024/03/19/opinion/gaza-war-palestine-arab-mandate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/us/jean-maria-arrigo-dead.html
 **No Alternative for Rafah Invasion, Netanyahu Says, as Rift With U.S. Grows**\
 `A day after agreeing to President Biden’s request to send officials to Washington to discuss Rafah, the Israeli leader said there was no other option but to send forces into the crowded city.`\
 https://nytimes.com/2024/03/19/world/middleeast/israel-gaza-rafah-offensive.html
-
-**DNA From Discarded Gum Leads to Conviction in 1980 Oregon Murder**\
-`Robert Arthur Plympton was found guilty of murdering Barbara Mae Tucker, 19, who was kidnapped, sexually assaulted and beaten to death on a community college campus near Portland.`\
-https://nytimes.com/2024/03/19/us/oregon-man-guilty-murder-dna.html
 
