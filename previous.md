@@ -1,3 +1,35 @@
+**Why This Fashion Designer Holds On to a Gap Shirt and a Necklace With a Chipped Tooth**\
+`Glenn Martens, the creative director of Y/Project and Diesel, shares his inspirations.`\
+https://nytimes.com/2024/03/19/t-magazine/glenn-martens-y-project-diesel.html
+
+**Want to Know What Trump Will Do? Listen to What He Says.**\
+`You don’t talk about “poisoning the blood of our country” to pass the time.`\
+https://nytimes.com/2024/03/19/opinion/trump-immigration-poisoning-rhetoric.html
+
+**Your Questions About Sodium, Answered**\
+`How much salt is too much? Should I cut back? We asked experts these and other questions about sodium.`\
+https://nytimes.com/2024/03/19/well/eat/sodium-salt-diet.html
+
+**In These Graphic Novels, Something Is Horribly Amiss**\
+`Circus tigers, giant spiders, shifting borders and motherhood all threaten to end life as we know it in comics this month.`\
+https://nytimes.com/2024/03/19/books/review/new-graphic-novels-march-review.html
+
+**How Anti-Immigrant Anger Has Divided a Small Irish Town**\
+`A continuing protest in the town of Roscrea symbolizes a surge in hostility toward migrants in Ireland that is fueled by a housing crisis and far-right influencers.`\
+https://nytimes.com/2024/03/19/world/europe/ireland-anti-immigrant-protests.html
+
+**Hair That Puts Your Best Face Forward**\
+`Wet waves, curly mullets and all sorts of braids commanded attention without camouflaging other features.`\
+https://nytimes.com/2024/03/19/style/hair-fashion-week.html
+
+**OK Class, First We Shoot the Deer**\
+`A Missouri high school program teaches students to take freshly killed animals from the field to the classroom and into the kitchen.`\
+https://nytimes.com/2024/03/19/dining/missouri-high-school-hunting-farm-to-table-program.html
+
+**Why Does Cloudy Weather Make Me Feel So Sluggish?**\
+`Some people are especially sensitive to the weather, but it can be difficult to pinpoint why.`\
+https://nytimes.com/2024/03/19/well/mind/cloudy-weather-tired-mood.html
+
 **It Turns Out the ‘Deep State’ Is Actually Kind of Awesome**\
 `Meet the unsung heroes making our country great.`\
 https://nytimes.com/2024/03/19/opinion/trump-deep-state.html
@@ -5,36 +37,4 @@ https://nytimes.com/2024/03/19/opinion/trump-deep-state.html
 **It Turns Out the ‘Deep State’ Is Actually Kind of Awesome**\
 `Meet the unsung heroes making our country great.`\
 https://nytimes.com/video/opinion/100000009356253/trump-deep-state.html
-
-**China Evergrande Founder Accused of Exaggerating Revenue by $78 Billion**\
-`China’s securities regulator fined the developer’s founder, Hui Ka Yan, and banned him from participating in the country’s financial markets for life.`\
-https://nytimes.com/2024/03/19/business/china-evergrande-fined.html
-
-**‘Get Ready to Scream’: How to Be a Baseball Fan in South Korea**\
-`The country’s raucous fan culture will be on display when Major League Baseball opens its season in Seoul. Here’s how to cheer and what to eat.`\
-https://nytimes.com/2024/03/19/world/asia/mlb-baseball-south-korea-fans.html
-
-**Ohtani Makes South Korean Fans Forget Rivalry With Japan**\
-`Baseball fans in South Korea have embraced the superstar from Japan, despite the longtime rivalry and history between the two countries.`\
-https://nytimes.com/2024/03/19/world/asia/ohtani-japan-south-korea.html
-
-**Stops in Jeddah and Cairo will be Blinken’s sixth wartime trip to the region.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/stops-in-jeddah-and-cairo-will-be-blinkens-sixth-wartime-trip-to-the-region
-
-**19mideast-crisis**\
-`Blinken Will Travel to Mideast Again as Cease-Fire Talks Restart`\
-https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news
-
-**Spring**\
-`What are your favorite sights, sounds, tastes and smells of spring?`\
-https://nytimes.com/2024/03/19/learning/spring.html
-
-**What We Know About Trump’s Failure to Arrange a Half-Billion-Dollar Bond**\
-`Donald J. Trump’s lawyers told a judge that their client could not come up with collateral that would stave off efforts to collect a $454 million judgment. He has six days left.`\
-https://nytimes.com/2024/03/19/nyregion/trump-bond-ny-fraud-case.html
-
-**Is New York Better Off Than It Was 7 Years Ago? New Yorkers Say No.**\
-`From public safety to schools, New Yorkers across all five boroughs feel that their city’s quality of life has worsened in recent years, according to a survey.`\
-https://nytimes.com/2024/03/19/nyregion/new-yorkers-poll-survey.html
 
