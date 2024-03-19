@@ -1,3 +1,7 @@
+**Blinken Warns China Against Armed Attack on Philippines**\
+`The secretary of state struck a balance seemingly meant to deter China while avoiding a dangerous escalation with Beijing.`\
+https://nytimes.com/2024/03/19/us/politics/blinken-china-philippines.html
+
 **White House Says Rafah Invasion ‘Would Be a Mistake’, and Trump Can’t Make Bond**\
 `Plus, a space pioneer remembered.`\
 https://nytimes.com/2024/03/19/podcasts/biden-netanyahu-rafah-trump.html
