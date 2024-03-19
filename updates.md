@@ -1,3 +1,11 @@
+**Hong Kong’s New Security Legislation Took Decades to Pass. Here’s What to Know.**\
+`The legislation marks another significant erosion of freedom in a former British colony once known for its relative autonomy from Beijing.`\
+https://nytimes.com/2024/03/19/world/asia/hong-kong-security-law-article-23-explained.html
+
+**Hong Kong Adopts Sweeping Security Laws, Bowing to Beijing**\
+`The legislation targets “external interference” and the theft of state secrets, with implications for businesses, journalists, civil servants and others.`\
+https://nytimes.com/2024/03/19/world/asia/hong-kong-security-law-article-23.html
+
 **Gambia and the Campaign Against Cutting**\
 `Female genital mutilation is still widespread despite international efforts to end it.`\
 https://nytimes.com/2024/03/19/briefing/fgm-cutting-gambia-campaign.html
