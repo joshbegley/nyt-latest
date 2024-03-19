@@ -1,3 +1,7 @@
+**Israel’s military says its forces are still operating at Al-Shifa Hospital.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/israels-military-says-its-forces-are-still-operating-at-al-shifa-hospital
+
 **Californians Share Their Pandemic Silver Linings, Four Years Later**\
 `Readers have been writing to me about ways that, despite all the tragedy, Covid brought something unexpectedly positive into their lives.`\
 https://nytimes.com/2024/03/19/us/california-pandemic-silver-linings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/business/hong-kong-article-23-china-economy.html
 **Hong Kong’s New Security Legislation Took Decades to Pass. Here’s What to Know.**\
 `The legislation marks another significant erosion of freedom in a former British colony once known for its relative autonomy from Beijing.`\
 https://nytimes.com/2024/03/19/world/asia/hong-kong-security-law-article-23-explained.html
-
-**Hong Kong Adopts Sweeping Security Laws, Bowing to Beijing**\
-`The legislation targets “external interference” and the theft of state secrets, with implications for businesses, journalists, civil servants and others.`\
-https://nytimes.com/2024/03/19/world/asia/hong-kong-security-law-article-23.html
 
