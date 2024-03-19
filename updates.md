@@ -1,3 +1,11 @@
+**Justices Won’t Block Texas’s Immigration Law, for Now**\
+`Also, Hong Kong adopted sweeping laws targeting criticism. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/03/19/briefing/supreme-court-texas-immigration-hong-kong.html
+
+**Jean Maria Arrigo, Who Exposed Psychologists’ Ties to Torture, Dies at 79**\
+`Risking ostracism by her colleagues, she fought against the use of psychologists in coercive interrogations by the military and the C.I.A.`\
+https://nytimes.com/2024/03/19/us/jean-maria-arrigo-dead.html
+
 **No Alternative for Rafah Invasion, Netanyahu Says, as Rift With U.S. Grows**\
 `A day after agreeing to President Biden’s request to send officials to Washington to discuss Rafah, the Israeli leader said there was no other option but to send forces into the crowded city.`\
 https://nytimes.com/2024/03/19/world/middleeast/israel-gaza-rafah-offensive.html
