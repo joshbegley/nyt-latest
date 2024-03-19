@@ -1,3 +1,7 @@
+**The U.N. human rights chief says Israel may be using starvation as a war weapon.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/the-un-human-rights-chief-says-israel-may-be-using-starvation-as-a-war-weapon
+
 **Netanyahu acknowledges a dispute with the U.S., but says Israel will press on into Rafah.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/netanyahu-acknowledges-a-dispute-with-the-us-but-says-israel-will-press-on-into-rafah

@@ -1,3 +1,7 @@
+**The U.N. human rights chief says Israel may be using starvation as a war weapon.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/the-un-human-rights-chief-says-israel-may-be-using-starvation-as-a-war-weapon
+
 **Netanyahu acknowledges a dispute with the U.S., but says Israel will press on into Rafah.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/netanyahu-acknowledges-a-dispute-with-the-us-but-says-israel-will-press-on-into-rafah
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/us/politics/congress-spending-bill-shutdown.html
 **Lloyd Austin Praises NATO Allies for Commitment to Ukraine**\
 `Despite doubts about further U.S. aid, the American defense secretary told a meeting of Kyiv’s backers that the fight against Russia “remains one of the great causes of our time.”`\
 https://nytimes.com/2024/03/19/us/politics/nato-ukraine-weapons-lloyd-austin.html
-
-**‘Illinoise,’ a Sufjan Stevens Dance Musical, Is Moving to Broadway**\
-`The production will make its transfer unusually fast, with an opening set for April 24, just 29 days after it wraps up a sold-out run at the Park Avenue Armory.`\
-https://nytimes.com/2024/03/19/theater/illinoise-broadway.html
 
