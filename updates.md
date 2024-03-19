@@ -1,3 +1,7 @@
+**Israel’s military says its forces are still operating at Al-Shifa Hospital.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/israels-military-says-its-forces-are-still-operating-at-al-shifa-hospital
+
 **Californians Share Their Pandemic Silver Linings, Four Years Later**\
 `Readers have been writing to me about ways that, despite all the tragedy, Covid brought something unexpectedly positive into their lives.`\
 https://nytimes.com/2024/03/19/us/california-pandemic-silver-linings.html
