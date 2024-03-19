@@ -1,3 +1,7 @@
+**Man Charged With Murder in Death of 3-Year-Old Boy in Brooklyn**\
+`Officers responding to a 911 call found Denim Brown face down and unconscious in a bathtub at an East Flatbush apartment, the police said.`\
+https://nytimes.com/2024/03/19/nyregion/3-year-old-murder-brooklyn-nyc.html
+
 **Aribert Reimann, Masterful German Opera Composer, Is Dead at 88**\
 `His works, which were radically individual, were among the most celebrated of the late 20th and early 21st century.`\
 https://nytimes.com/2024/03/19/arts/music/aribert-reimann-dead.html
