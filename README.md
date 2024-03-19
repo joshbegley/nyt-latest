@@ -1,3 +1,7 @@
+**China Evergrande Founder Accused of Exaggerating Revenue by $78 Billion**\
+`China’s securities regulator fined the developer’s founder, Hui Ka Yan, and banned him from participating in the country’s financial markets for life.`\
+https://nytimes.com/2024/03/19/business/china-evergrande-fined.html
+
 **‘Get Ready to Scream’: How to Be a Baseball Fan in South Korea**\
 `The country’s raucous fan culture will be on display when Major League Baseball opens its season in Seoul. Here’s how to cheer and what to eat.`\
 https://nytimes.com/2024/03/19/world/asia/mlb-baseball-south-korea-fans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/science/physics-massey-black.html
 **The Connections Companion**\
 `In case you need some puzzle help.`\
 https://nytimes.com/2024/03/19/crosswords/connections-companion.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/03/19/crosswords/spelling-bee-forum.html
 
