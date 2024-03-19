@@ -1,3 +1,7 @@
+**What to Watch for in Tuesday’s Primaries in Five States**\
+`The down-ballot races are the ones to pay attention to, with the presidential nominating contests already decisively clinched.`\
+https://nytimes.com/2024/03/19/us/politics/primary-today-election-watch.html
+
 **Chicago-Area Races Test Progressive Strength**\
 `A proposed tax change to fund homelessness programs in Chicago and the Democratic primary for Cook County’s chief prosecutor pit moderates against progressives.`\
 https://nytimes.com/2024/03/19/us/chicago-primary-election-prosecutor-tax.html
