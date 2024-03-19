@@ -1,3 +1,7 @@
+**Oprah Takes on Weight Stigma in the Ozempic Era**\
+`In a new special, Ms. Winfrey highlighted how new drugs have changed the way we talk about weight and willpower.`\
+https://nytimes.com/2024/03/18/well/live/oprah-ozempic-weight-loss.html
+
 **Chinese Magnate Admits to Making Straw Donations to N.Y. Politicians**\
 `Mayor Eric Adams was among those who received illegal donations from Hui Qin, a Chinese businessman, a person familiar with the federal case said.`\
 https://nytimes.com/2024/03/18/nyregion/hui-qin-billionaire-straw-donations.html

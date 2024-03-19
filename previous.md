@@ -1,3 +1,7 @@
+**Oprah Takes on Weight Stigma in the Ozempic Era**\
+`In a new special, Ms. Winfrey highlighted how new drugs have changed the way we talk about weight and willpower.`\
+https://nytimes.com/2024/03/18/well/live/oprah-ozempic-weight-loss.html
+
 **Chinese Magnate Admits to Making Straw Donations to N.Y. Politicians**\
 `Mayor Eric Adams was among those who received illegal donations from Hui Qin, a Chinese businessman, a person familiar with the federal case said.`\
 https://nytimes.com/2024/03/18/nyregion/hui-qin-billionaire-straw-donations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/opinion/biden-trump-economy-election.html
 **Supreme Court Lets Public Office Ban Stand for ‘Cowboys for Trump’ Founder**\
 `After a conviction arising from the Jan. 6 riot at the Capitol, Couy Griffin was removed from his county commissioner post in New Mexico and banned from holding public office again.`\
 https://nytimes.com/2024/03/18/us/politics/cuoy-griffin-jan-6-cowboys-for-trump.html
-
-**Conservative Influencer Is Charged in Jan. 6 Attack**\
-`Isabella DeLuca, 24, helped to steal a table that rioters used to assault law enforcement, according to a criminal complaint.`\
-https://nytimes.com/2024/03/18/us/politics/isabella-deluca-jan-6.html
 
