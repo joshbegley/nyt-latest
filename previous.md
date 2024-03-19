@@ -1,3 +1,7 @@
+**Jimmy Kimmel Gets a Kick Out of Bothering Trump**\
+`“Donald Trump has said I’m not talented so many times, Eric is starting to get jealous,” Kimmel said after the ex-president bashed him (again) on Fox News.`\
+https://nytimes.com/2024/03/19/arts/television/jimmy-kimmel-trump.html
+
 **Word of the Day: posterity**\
 `This word has appeared in 49 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/19/learning/word-of-the-day-posterity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/us/politics/trump-lawsuit-abc-stephanopoulos.html
 **Corrections: March 19, 2024**\
 `Corrections that appeared in print on Tuesday, March 19, 2024.`\
 https://nytimes.com/2024/03/18/pageoneplus/corrections-march-19-2024.html
-
-**Quotation of the Day: Little Choice but for Putin to Win Huge**\
-`Quotation of the Day for Tuesday, March 19, 2024.`\
-https://nytimes.com/2024/03/18/pageoneplus/quotation-of-the-day-little-choice-but-for-putin-to-win-huge.html
 
