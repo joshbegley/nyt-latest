@@ -1,3 +1,11 @@
+**Mount Sinai and UnitedHealthcare Reach Insurance Deal**\
+`The end of the dispute means that Mount Sinai patients with UnitedHealthcare won’t need to find new doctors.`\
+https://nytimes.com/2024/03/19/nyregion/united-healthcare-mount-sinai-hospital-deal.html
+
+**Texas immigration law could undermine asylum rights.**\
+`The Texas law could endanger people fleeing persecution, legal experts said.`\
+https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/texas-immigration-law-could-undermine-asylum-rights
+
 **Gannett and McClatchy Cut Back Relationship With A.P.**\
 `The Associated Press said the decisions by the two major newspaper chains “would not have a material impact on our overall revenue.”`\
 https://nytimes.com/2024/03/19/business/media/gannett-mcclatchy-ap-associated-press.html
