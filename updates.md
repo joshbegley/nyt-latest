@@ -1,3 +1,15 @@
+**Dan Schneider Says He Is Sorry for the Pain He Caused His TV Staff**\
+`In an online apology, the former Nickelodeon producer addressed the many accounts of inappropriate behavior related by actors and others during a recent docuseries, “Quiet on Set.”`\
+https://nytimes.com/2024/03/19/arts/dan-schneider-says-he-is-sorry-for-the-pain-he-caused-his-tv-staff.html
+
+**An Appeals Court Often Out of Step With the Supreme Court Notches a Victory**\
+`The U.S. Court of Appeals for the Fifth Circuit has a reputation for issuing decisions too conservative even for the six-justice supermajority of Republican appointees.`\
+https://nytimes.com/2024/03/19/us/appeals-court-texas-immigration-law.html
+
+**A Nebraska Lawmaker Incites Outrage Over the Reading of a Book’s Rape Scene**\
+`The lawmaker, State Senator Steve Halloran, was criticized by both Republicans and Democrats for referring to two Democrats as he read the passage on the floor of the Capitol.`\
+https://nytimes.com/2024/03/19/us/politics/halloran-nebraska-rape-reading.html
+
 **Alabama Republicans Pass Expansive Legislation Targeting D.E.I.**\
 `The measure would not only cut funding to diversity programs at public colleges, but also limit the teaching of “divisive concepts” surrounding race and gender.`\
 https://nytimes.com/2024/03/19/us/politics/alabama-dei-bill.html
