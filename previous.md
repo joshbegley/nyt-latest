@@ -1,3 +1,7 @@
+**Hidden Luxury Beckons at Bungalow**\
+`The chef Vikas Khanna serves a menu that covers Kashmir south to Kerala.`\
+https://nytimes.com/2024/03/19/dining/bungalow-restaurant-opening.html
+
 **Peter Navarro Begins 4-Month Jail Sentence for Contempt of Congress**\
 `The former White House trade adviser is the first senior Trump aide to serve time over efforts to overturn the 2020 election.`\
 https://nytimes.com/2024/03/19/us/politics/peter-navarro-jail-contempt-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/the-un-huma
 **Netanyahu acknowledges a dispute with the U.S., but says Israel will press on into Rafah.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/netanyahu-acknowledges-a-dispute-with-the-us-but-says-israel-will-press-on-into-rafah
-
-**‘Dune: Part Two’ Is Deeply Subversive**\
-`Holy wars have consequences.`\
-https://nytimes.com/live/2024/03/12/opinion/thepoint/dune-part-two-subversive
 

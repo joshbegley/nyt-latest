@@ -1,3 +1,7 @@
+**Hidden Luxury Beckons at Bungalow**\
+`The chef Vikas Khanna serves a menu that covers Kashmir south to Kerala.`\
+https://nytimes.com/2024/03/19/dining/bungalow-restaurant-opening.html
+
 **Peter Navarro Begins 4-Month Jail Sentence for Contempt of Congress**\
 `The former White House trade adviser is the first senior Trump aide to serve time over efforts to overturn the 2020 election.`\
 https://nytimes.com/2024/03/19/us/politics/peter-navarro-jail-contempt-congress.html
