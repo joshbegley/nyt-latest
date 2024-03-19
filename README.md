@@ -1,3 +1,7 @@
+**Trump Sues ABC and Stephanopoulos, Saying They Defamed Him**\
+`The lawsuit stems from the anchor’s recent contentious interview with Representative Nancy Mace.`\
+https://nytimes.com/2024/03/18/us/politics/trump-lawsuit-abc-stephanopoulos.html
+
 **Corrections: March 19, 2024**\
 `Corrections that appeared in print on Tuesday, March 19, 2024.`\
 https://nytimes.com/2024/03/18/pageoneplus/corrections-march-19-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/nyregion/hui-qin-billionaire-straw-donations.html
 **Overheard at the Half-Marathon: ‘Wait, Was That Lil Nas X?’**\
 `The rapper and singer, clad in bulky designer sneakers and the official race T-shirt, was a last-minute addition at the NYC Half.`\
 https://nytimes.com/2024/03/18/style/lil-nas-x-half-marathon.html
-
-**The Internet Is a Wasteland, So Give Kids Better Places to Go**\
-`Young people won’t escape social media misery without freedom in the real world.`\
-https://nytimes.com/2024/03/18/opinion/internet-kids-social-media.html
 
