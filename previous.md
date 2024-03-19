@@ -1,3 +1,7 @@
+**Canada Lawmakers Back Motion Meant to Help Bring Peace to Gaza**\
+`The House of Commons vote endorsing a package of conflict-ending measures came after language calling on Canada to immediately recognize a State of Palestine was removed.`\
+https://nytimes.com/2024/03/18/world/canada/canada-parliament-gaza-vote.html
+
 **Trump Sues ABC and Stephanopoulos, Saying They Defamed Him**\
 `The lawsuit stems from the anchor’s recent contentious interview with Representative Nancy Mace.`\
 https://nytimes.com/2024/03/18/us/politics/trump-lawsuit-abc-stephanopoulos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/well/live/oprah-ozempic-weight-loss.html
 **Chinese Magnate Admits to Making Straw Donations to N.Y. Politicians**\
 `Mayor Eric Adams was among those who received illegal donations from Hui Qin, a Chinese businessman, a person familiar with the federal case said.`\
 https://nytimes.com/2024/03/18/nyregion/hui-qin-billionaire-straw-donations.html
-
-**Overheard at the Half-Marathon: ‘Wait, Was That Lil Nas X?’**\
-`The rapper and singer, clad in bulky designer sneakers and the official race T-shirt, was a last-minute addition at the NYC Half.`\
-https://nytimes.com/2024/03/18/style/lil-nas-x-half-marathon.html
 

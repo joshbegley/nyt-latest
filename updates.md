@@ -1,3 +1,7 @@
+**Canada Lawmakers Back Motion Meant to Help Bring Peace to Gaza**\
+`The House of Commons vote endorsing a package of conflict-ending measures came after language calling on Canada to immediately recognize a State of Palestine was removed.`\
+https://nytimes.com/2024/03/18/world/canada/canada-parliament-gaza-vote.html
+
 **Trump Sues ABC and Stephanopoulos, Saying They Defamed Him**\
 `The lawsuit stems from the anchor’s recent contentious interview with Representative Nancy Mace.`\
 https://nytimes.com/2024/03/18/us/politics/trump-lawsuit-abc-stephanopoulos.html
