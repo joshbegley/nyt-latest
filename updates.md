@@ -1,3 +1,11 @@
+**Here’s the latest on the fallout.**\
+`By J. David Goodman, Edgar Sandoval and Adam Liptak`\
+https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/heres-the-latest-on-the-fallout
+
+**19texas-border**\
+`Live Updates: Uncertainty on Border After Supreme Court Allows Texas to Arrest Migrants`\
+https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court
+
 **Birth Control to Be Sold Over the Counter in New York Pharmacies**\
 `Officials said the move was intended to remove barriers to contraceptive care, as part of the state’s mission to protect reproductive rights.`\
 https://nytimes.com/2024/03/19/nyregion/new-york-birth-control-over-the-counter.html
