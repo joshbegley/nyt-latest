@@ -1,3 +1,7 @@
+**How Gazans have fared after Israel has asked them to flee.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/gaza-civilians-flee
+
 **Man Charged With Murder in Death of 3-Year-Old Boy in Brooklyn**\
 `Officers responding to a 911 call found Denim Brown face down and unconscious in a bathtub at an East Flatbush apartment, the police said.`\
 https://nytimes.com/2024/03/19/nyregion/3-year-old-murder-brooklyn-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/opinion/weight-loss-drugs.html
 **Ethics Panels Dismiss Complaints Against Former Lawyer for Jan. 6 Witness**\
 `The witness, Cassidy Hutchinson, declined to cooperate with inquiries into Stefan Passantino prompted by her assertions that he pressed her to protect Donald Trump.`\
 https://nytimes.com/2024/03/19/us/politics/stefan-passantino-cassidy-hutchinson-jan-6.html
-
-**Apple Keeps Losing Patent Cases. Its Solution: Rewrite the Rules.**\
-`After losing two complaints before the U.S. International Trade Commission, Apple has stepped up its lobbying to change the agency’s practices.`\
-https://nytimes.com/2024/03/19/technology/apple-patents-lobbying.html
 
