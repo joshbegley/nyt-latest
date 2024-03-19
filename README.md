@@ -1,3 +1,7 @@
+**Man Charged With Murder in Death of 3-Year-Old Boy in Brooklyn**\
+`Officers responding to a 911 call found Denim Brown face down and unconscious in a bathtub at an East Flatbush apartment, the police said.`\
+https://nytimes.com/2024/03/19/nyregion/3-year-old-murder-brooklyn-nyc.html
+
 **Aribert Reimann, Masterful German Opera Composer, Is Dead at 88**\
 `His works, which were radically individual, were among the most celebrated of the late 20th and early 21st century.`\
 https://nytimes.com/2024/03/19/arts/music/aribert-reimann-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/us/politics/stefan-passantino-cassidy-hutchinson-
 **Apple Keeps Losing Patent Cases. Its Solution: Rewrite the Rules.**\
 `After losing two complaints before the U.S. International Trade Commission, Apple has stepped up its lobbying to change the agency’s practices.`\
 https://nytimes.com/2024/03/19/technology/apple-patents-lobbying.html
-
-**Mayor Adams Denies Sexually Assaulting a Colleague in 1993**\
-`Mayor Eric Adams said he did not recall meeting the woman who accused him of assault: “This did not happen.”`\
-https://nytimes.com/2024/03/19/nyregion/eric-adams-lawsuit-sexual-assault.html
 
