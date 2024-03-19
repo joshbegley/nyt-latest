@@ -1,3 +1,7 @@
+**Dries Van Noten Announces Retirement**\
+`The Belgian designer, known for his glorious use of color and prints, remained independent for years. Now he’s going out on his own terms.`\
+https://nytimes.com/2024/03/19/style/dries-van-noten-retirement.html
+
 **Congressional Leaders Strike Deal on Final Spending Bill Ahead of Shutdown**\
 `Lawmakers resolved disputes over Department of Homeland Security funding, paving the way for an agreement. But they may still be unable to meet a Friday deadline to avert a brief partial shutdown.`\
 https://nytimes.com/2024/03/19/us/politics/congress-spending-bill-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/us/politics/primary-today-election-watch.html
 **Israel’s military says its forces are still operating at Al-Shifa Hospital.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/israels-military-says-its-forces-are-still-operating-at-al-shifa-hospital
-
-**Californians Share Their Pandemic Silver Linings, Four Years Later**\
-`Readers have been writing to me about ways that, despite all the tragedy, Covid brought something unexpectedly positive into their lives.`\
-https://nytimes.com/2024/03/19/us/california-pandemic-silver-linings.html
 
