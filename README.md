@@ -1,3 +1,15 @@
+**A Special Election in California Will Fill the Seat Vacated by Kevin McCarthy**\
+`The front-runners are Vince Fong and Mike Boudreaux, the same Republicans who have already secured a spot on the November ballot to fill the seat permanently.`\
+https://nytimes.com/2024/03/19/us/politics/california-kevin-mccarthy-special-election.html
+
+**Supreme Court Rules for Muslim Man in Challenge to No-Fly List**\
+`The government had contended that removing Yonas Fikre from the list made moot his lawsuit asserting violations of his constitutional rights.`\
+https://nytimes.com/2024/03/19/us/supreme-court-no-fly-list.html
+
+**The Three Kinds of Biden Protest Voters**\
+`Despite cruising to the Democratic nomination, President Biden has faced a substantial protest vote in some primaries. The pattern can be broken into three categories.`\
+https://nytimes.com/interactive/2024/03/19/us/elections/biden-uncommitted-vote-democrats.html
+
 **Two Weeks Later, a Newsom Homeless Measure Still Hangs in the Balance**\
 `Gov. Gavin Newsom billed Proposition 1 as crucial to solving California’s homelessness crisis. Voters, who see the issue as a top concern, have split almost evenly on the proposal.`\
 https://nytimes.com/2024/03/19/us/politics/proposition-1-california-newsom.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/03/12/opinion/thepoint/dune-part-two-subversive
 **Japan’s Labor Market Has a Lesson for the Fed: Women Can Surprise You**\
 `Japan’s improved labor force participation for women is a reminder not to assume that job market limits are clear and finite.`\
 https://nytimes.com/2024/03/19/business/economy/japan-labor-market-women-participation.html
-
-**Reimagining Real Lives in the Best New Historical Fiction**\
-`This trio of new novels shows real people in their natural habitats, drawn with writerly flair.`\
-https://nytimes.com/2024/03/19/books/review/reimagining-real-lives-in-the-best-new-historical-fiction.html
-
-**Martin Luther King Jr. Biographer Wins American History Prize**\
-`The New-York Historical Society honor goes to Jonathan Eig, whose “King: A Life” presents the civil rights leader as a brilliant, flawed 20th-century “founding father.”`\
-https://nytimes.com/2024/03/19/arts/martin-luther-king-jr-eig.html
-
-**One-Pot Mushroom and Ginger Rice, Skillet Broccoli Spaghetti**\
-`Bright, breezy recipes to welcome spring.`\
-https://nytimes.com/2024/03/19/dining/one-pot-mushroom-and-ginger-rice-skillet-broccoli-spaghetti.html
 
