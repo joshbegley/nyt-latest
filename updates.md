@@ -1,3 +1,7 @@
+**How Gazans have fared after Israel has asked them to flee.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/gaza-civilians-flee
+
 **Man Charged With Murder in Death of 3-Year-Old Boy in Brooklyn**\
 `Officers responding to a 911 call found Denim Brown face down and unconscious in a bathtub at an East Flatbush apartment, the police said.`\
 https://nytimes.com/2024/03/19/nyregion/3-year-old-murder-brooklyn-nyc.html
