@@ -32,7 +32,7 @@ https://nytimes.com/video/world/europe/100000009370220/austin-ukraine.html
 
 **How Teens Approach the U.S. Election**\
 `Draft preview text here`\
-https://nytimes.com/2024/03/19/headway/how-teens-approach-the-us-election.html
+https://nytimes.com/2024/03/19/headway/teens-us-election.html
 
 **Judge in Trump Documents Case Draws Attention for Slow Pace**\
 `Aileen Cannon has yet to set a trial date in the complex case accusing Donald J. Trump of mishandling classified materials, and has stirred confusion with some decisions.`\
