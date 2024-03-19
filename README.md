@@ -1,3 +1,11 @@
+**Here’s the latest on the fallout.**\
+`By J. David Goodman, Edgar Sandoval and Adam Liptak`\
+https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/heres-the-latest-on-the-fallout
+
+**19texas-border**\
+`Live Updates: Uncertainty on Border After Supreme Court Allows Texas to Arrest Migrants`\
+https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court
+
 **Birth Control to Be Sold Over the Counter in New York Pharmacies**\
 `Officials said the move was intended to remove barriers to contraceptive care, as part of the state’s mission to protect reproductive rights.`\
 https://nytimes.com/2024/03/19/nyregion/new-york-birth-control-over-the-counter.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/19/opinion/thepoint/navarro-contempt-prison
 **Tiny Love Stories: ‘Finding Forgiveness in Her Smile’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/03/19/style/tiny-modern-love-stories-finding-forgiveness-in-her-smile.html
-
-**Saudi Arabia Plans $40 Billion Push Into Artificial Intelligence**\
-`The Middle Eastern country is creating a gigantic fund to invest in A.I. technology, potentially becoming the largest player in the hot market.`\
-https://nytimes.com/2024/03/19/business/saudi-arabia-investment-artificial-intelligence.html
-
-**Supreme Court Rules for Immigrant in Case on Deportation Hardship Waiver**\
-`By a 6-to-3 vote, the court said that federal appeals courts may review many rulings from immigration judges despite a law that sought to limit their jurisdiction.`\
-https://nytimes.com/2024/03/19/us/politics/supreme-court-immigrant-deportation.html
 
