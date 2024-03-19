@@ -1,3 +1,11 @@
+**Chicago-Area Races Test Progressive Strength**\
+`A proposed tax change to fund homelessness programs in Chicago and the Democratic primary for Cook County’s chief prosecutor pit moderates against progressives.`\
+https://nytimes.com/2024/03/19/us/chicago-primary-election-prosecutor-tax.html
+
+**What to Watch for in Tuesday’s Primaries in Five States**\
+`The down-ballot races are the ones to pay attention to, with the presidential nominating contests already decisively clinched.`\
+https://nytimes.com/2024/03/19/us/politics/what-to-watch-for-in-tuesdays-primaries-in-five-states.html
+
 **Israel’s military says its forces are still operating at Al-Shifa Hospital.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/israels-military-says-its-forces-are-still-operating-at-al-shifa-hospital
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/19/world/europe/israel-russia-us-ukraine.html
 **Israel’s spy chief returns home as cease-fire talks continue in Qatar.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/israels-spy-chief-returns-home-as-cease-fire-talks-continue-in-qatar
-
-**Hong Kong Security Law Could Damage City’s Standing as Financial Hub**\
-`Some firms have already moved staff out of the city since the Chinese government took a heavier hand in 2020.`\
-https://nytimes.com/2024/03/19/business/hong-kong-article-23-china-economy.html
-
-**Hong Kong’s New Security Legislation Took Decades to Pass. Here’s What to Know.**\
-`The legislation marks another significant erosion of freedom in a former British colony once known for its relative autonomy from Beijing.`\
-https://nytimes.com/2024/03/19/world/asia/hong-kong-security-law-article-23-explained.html
 
