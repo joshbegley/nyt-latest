@@ -1,3 +1,7 @@
+**Brazil Police Recommend Criminal Charges Against Bolsonaro**\
+`Brazil’s federal police accused the former president of falsifying his Covid-19 vaccination records.`\
+https://nytimes.com/2024/03/19/world/americas/brazil-bolsonaro-charges-covid.html
+
 **Chicago-Area Races Test Progressive Strength**\
 `A proposed tax change to fund homelessness programs in Chicago and the Democratic primary for Cook County’s chief prosecutor pit moderates against progressives.`\
 https://nytimes.com/2024/03/19/us/chicago-primary-election-prosecutor-tax.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/19/learning/19StudentNewsQuiz.html
 **Israel Faces Tough Balancing Act on Russia and the West**\
 `Prime Minister Benjamin Netanyahu treads lightly with President Vladimir Putin. Russia is not responding in kind, with public criticism increasing.`\
 https://nytimes.com/2024/03/19/world/europe/israel-russia-us-ukraine.html
-
-**Israel’s spy chief returns home as cease-fire talks continue in Qatar.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/israels-spy-chief-returns-home-as-cease-fire-talks-continue-in-qatar
 
