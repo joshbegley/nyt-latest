@@ -1,3 +1,7 @@
+**Microsoft Hires DeepMind Co-Founder to Run Consumer A.I.**\
+`Mustafa Suleyman is leaving a start-up called Inflection to take the senior position with Microsoft.`\
+https://nytimes.com/2024/03/19/technology/mustafa-suleyman-google-gemini.html
+
 **Are Immigrants the Secret to America’s Economic Success?**\
 `Spoiler alert: quite possibly.`\
 https://nytimes.com/2024/03/19/opinion/immigration-us-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/arts/music/amplifier-newsletter-new-songs.html
 **Another Ousted Trump Official, Corey Lewandowski, May Get Convention Role**\
 `Mr. Lewandowski and Paul Manafort are both being considered for involvement in the Republican National Convention in July.`\
 https://nytimes.com/2024/03/19/us/politics/corey-lewandowski-republican-national-convention.html
-
-**The High Cost of Weight-Loss Drugs**\
-`Readers discuss the costs and benefits. Also: Donald Trump’s remark about American Jews and Israel; subway shootings; abortion providers; FAFSA chaos.`\
-https://nytimes.com/2024/03/19/opinion/weight-loss-drugs.html
 

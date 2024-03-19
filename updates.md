@@ -1,3 +1,7 @@
+**Microsoft Hires DeepMind Co-Founder to Run Consumer A.I.**\
+`Mustafa Suleyman is leaving a start-up called Inflection to take the senior position with Microsoft.`\
+https://nytimes.com/2024/03/19/technology/mustafa-suleyman-google-gemini.html
+
 **Are Immigrants the Secret to America’s Economic Success?**\
 `Spoiler alert: quite possibly.`\
 https://nytimes.com/2024/03/19/opinion/immigration-us-economy.html
