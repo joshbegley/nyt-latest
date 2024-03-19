@@ -14,7 +14,7 @@ https://nytimes.com/2024/03/19/theater/illinoise-broadway.html
 `Gustavo Dudamel, who takes over as music and artistic director in 2026, is getting a head start with three weeks of concerts and more programs.`\
 https://nytimes.com/2024/03/19/arts/music/new-york-philharmonic-2024-25-season.html
 
-**Biden Campaign Announces Organizing Push Aimed at Latino Voters**\
+**Biden campaign announces organizing push aimed at Latino voters.**\
 `President Biden will officially kick off the program alongside Hispanic organizers during a visit to Arizona on Tuesday.`\
 https://nytimes.com/live/2024/03/19/us/primary-election-ohio-trump-biden/biden-campaign-organizing-push-latino-voters
 

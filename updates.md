@@ -1,3 +1,7 @@
+**Biden campaign announces organizing push aimed at Latino voters.**\
+`President Biden will officially kick off the program alongside Hispanic organizers during a visit to Arizona on Tuesday.`\
+https://nytimes.com/live/2024/03/19/us/primary-election-ohio-trump-biden/biden-campaign-organizing-push-latino-voters
+
 **Congressional Leaders Strike Deal on Final Spending Bill Ahead of Shutdown**\
 `Lawmakers resolved disputes over Department of Homeland Security funding, paving the way for an agreement. But they may still be unable to meet a Friday deadline to avert a brief partial shutdown.`\
 https://nytimes.com/2024/03/19/us/politics/congress-spending-bill-shutdown.html

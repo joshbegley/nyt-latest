@@ -15,7 +15,7 @@ https://nytimes.com/2024/03/19/theater/illinoise-broadway.html
 https://nytimes.com/2024/03/19/arts/music/new-york-philharmonic-2024-25-season.html
 
 **Biden campaign announces organizing push aimed at Latino voters.**\
-`President Biden will officially kick off the program alongside Hispanic organizers during a visit to Arizona on Tuesday.`\
+`President Biden will officially kick off the program alongside Hispanic organizers during a visit to Nevada on Tuesday.`\
 https://nytimes.com/live/2024/03/19/us/primary-election-ohio-trump-biden/biden-campaign-organizing-push-latino-voters
 
 **Brazil Police Recommend Criminal Charges Against Bolsonaro**\
