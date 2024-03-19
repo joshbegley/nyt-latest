@@ -1,3 +1,7 @@
+**Another Ousted Trump Official, Corey Lewandowski, May Get Convention Role**\
+`Mr. Lewandowski and Paul Manafort are both being considered for involvement in the Republican National Convention in July.`\
+https://nytimes.com/2024/03/19/us/politics/corey-lewandowski-republican-national-convention.html
+
 **The High Cost of Weight-Loss Drugs**\
 `Readers discuss the costs and benefits. Also: Donald Trump’s remark about American Jews and Israel; subway shootings; abortion providers; FAFSA chaos.`\
 https://nytimes.com/2024/03/19/opinion/weight-loss-drugs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/us/politics/schumer-israel-netanyahu-gaza.html
 **Congressional Republicans Block Aid to Haiti Amid Unrest**\
 `Republicans have refused to release $40 million in security assistance and questioned how it would be used and whether it could fall into the hands of the gangs stoking the upheaval.`\
 https://nytimes.com/2024/03/19/us/politics/haiti-aid-congress.html
-
-**Lawsuit Over New York City’s Property Tax System Can Proceed, Court Says**\
-`The lawsuit seeks to overturn a system that has been under fire for years because it favors wealthier homeowners. If the plaintiffs win, they hope to distribute the tax burden more equitably.`\
-https://nytimes.com/2024/03/19/nyregion/property-tax-lawsuit-nyc.html
 
