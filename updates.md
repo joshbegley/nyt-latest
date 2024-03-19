@@ -1,3 +1,15 @@
+**Lloyd Austin Praises NATO Allies for Commitment to Ukraine**\
+`Despite doubts about further U.S. aid, the American defense secretary told a meeting of Kyiv’s backers that the fight against Russia “remains one of the great causes of our time.”`\
+https://nytimes.com/2024/03/19/us/politics/nato-ukraine-weapons-lloyd-austin.html
+
+**‘Illinoise,’ a Sufjan Stevens Dance Musical, Is Moving to Broadway**\
+`The production will make its transfer unusually fast, with an opening set for April 24, just 29 days after it wraps up a sold-out run at the Park Avenue Armory.`\
+https://nytimes.com/2024/03/19/theater/illinoise-broadway.html
+
+**The Philharmonic’s New Season: What We Want to Hear**\
+`Gustavo Dudamel, who takes over as music and artistic director in 2026, is getting a head start with three weeks of concerts and more programs.`\
+https://nytimes.com/2024/03/19/arts/music/new-york-philharmonic-2024-25-season.html
+
 **Biden Campaign Announces Organizing Push Aimed at Latino Voters**\
 `President Biden will officially kick off the program alongside Hispanic organizers during a visit to Arizona on Tuesday.`\
 https://nytimes.com/live/2024/03/19/us/primary-election-ohio-trump-biden/biden-campaign-organizing-push-latino-voters
