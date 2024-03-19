@@ -1,3 +1,7 @@
+**Weekly Student New Quiz: TikTok, Russia, Pi Day**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/03/19/learning/19StudentNewsQuiz.html
+
 **Israel Faces Tough Balancing Act on Russia and the West**\
 `Prime Minister Benjamin Netanyahu treads lightly with President Vladimir Putin. Russia is not responding in kind, with public criticism increasing.`\
 https://nytimes.com/2024/03/19/world/europe/israel-russia-us-ukraine.html
