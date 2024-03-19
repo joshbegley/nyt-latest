@@ -1,3 +1,7 @@
+**The White House condemned the ‘harmful’ law, while Republicans celebrated the Supreme Court’s action.**\
+`By Ben Shpigel`\
+https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/the-white-house-condemned-the-harmful-law-while-republicans-celebrated-the-supreme-courts-action
+
 **Brown Cruises in Ohio Democratic Senate Primary as Republicans Await Result**\
 `Senator Sherrod Brown is the only Democrat still holding statewide elective office in Ohio, which Donald J. Trump won in both 2016 and 2020.`\
 https://nytimes.com/2024/03/19/us/politics/ohio-senate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/us/appeals-court-texas-immigration-law.html
 **A Nebraska Lawmaker Incites Outrage Over the Reading of a Book’s Rape Scene**\
 `The lawmaker, State Senator Steve Halloran, was criticized by both Republicans and Democrats for referring to two Democrats as he read the passage on the floor of the Capitol.`\
 https://nytimes.com/2024/03/19/us/politics/halloran-nebraska-rape-reading.html
-
-**Alabama Republicans Pass Expansive Legislation Targeting D.E.I.**\
-`The measure would not only cut funding to diversity programs at public colleges, but also limit the teaching of “divisive concepts” surrounding race and gender.`\
-https://nytimes.com/2024/03/19/us/politics/alabama-dei-bill.html
 

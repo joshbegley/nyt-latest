@@ -1,3 +1,7 @@
+**The White House condemned the ‘harmful’ law, while Republicans celebrated the Supreme Court’s action.**\
+`By Ben Shpigel`\
+https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/the-white-house-condemned-the-harmful-law-while-republicans-celebrated-the-supreme-courts-action
+
 **Brown Cruises in Ohio Democratic Senate Primary as Republicans Await Result**\
 `Senator Sherrod Brown is the only Democrat still holding statewide elective office in Ohio, which Donald J. Trump won in both 2016 and 2020.`\
 https://nytimes.com/2024/03/19/us/politics/ohio-senate.html
