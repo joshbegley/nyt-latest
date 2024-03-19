@@ -1,3 +1,7 @@
+**Alabama Republicans Pass Expansive Legislation Targeting D.E.I.**\
+`The measure would not only cut funding to diversity programs at public colleges, but also limit the teaching of “divisive concepts” surrounding race and gender.`\
+https://nytimes.com/2024/03/19/us/politics/alabama-dei-bill.html
+
 **Justices Won’t Block Texas’s Immigration Law, for Now**\
 `Also, Hong Kong adopted sweeping laws targeting criticism. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/03/19/briefing/supreme-court-texas-immigration-hong-kong.html
