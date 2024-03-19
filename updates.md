@@ -1,3 +1,7 @@
+**Peter Navarro Begins 4-Month Jail Sentence for Contempt of Congress**\
+`The former White House trade adviser is the first senior Trump aide to serve time over efforts to overturn the 2020 election.`\
+https://nytimes.com/2024/03/19/us/politics/peter-navarro-jail-contempt-congress.html
+
 **A Special Election in California Will Fill the Seat Vacated by Kevin McCarthy**\
 `The front-runners are Vince Fong and Mike Boudreaux, the same Republicans who have already secured a spot on the November ballot to fill the seat permanently.`\
 https://nytimes.com/2024/03/19/us/politics/california-kevin-mccarthy-special-election.html
