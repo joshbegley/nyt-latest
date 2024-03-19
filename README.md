@@ -4,7 +4,7 @@ https://nytimes.com/2024/03/19/us/chicago-primary-election-prosecutor-tax.html
 
 **What to Watch for in Tuesday’s Primaries in Five States**\
 `The down-ballot races are the ones to pay attention to, with the presidential nominating contests already decisively clinched.`\
-https://nytimes.com/2024/03/19/us/politics/what-to-watch-for-in-tuesdays-primaries-in-five-states.html
+https://nytimes.com/2024/03/19/us/politics/primary-today-election-watch.html
 
 **Israel’s military says its forces are still operating at Al-Shifa Hospital.**\
 `By Cassandra Vinograd`\
