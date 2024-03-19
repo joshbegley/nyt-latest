@@ -1,3 +1,11 @@
+**Corrections: March 19, 2024**\
+`Corrections that appeared in print on Tuesday, March 19, 2024.`\
+https://nytimes.com/2024/03/18/pageoneplus/corrections-march-19-2024.html
+
+**Quotation of the Day: Little Choice but for Putin to Win Huge**\
+`Quotation of the Day for Tuesday, March 19, 2024.`\
+https://nytimes.com/2024/03/18/pageoneplus/quotation-of-the-day-little-choice-but-for-putin-to-win-huge.html
+
 **Slices of History**\
 `Lynn Lempel stares into the space between.`\
 https://nytimes.com/2024/03/18/crosswords/daily-puzzle-2024-03-19.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/18/style/lil-nas-x-half-marathon.html
 **The Internet Is a Wasteland, So Give Kids Better Places to Go**\
 `Young people won’t escape social media misery without freedom in the real world.`\
 https://nytimes.com/2024/03/18/opinion/internet-kids-social-media.html
-
-**Serbian Leader Says Kushner Deal Is Not an Effort to Influence Trump**\
-`After news reports that Jared Kushner plans to redevelop a site in Belgrade bombed by NATO in 1999, Serbian politicians clashed over whether the deal was appropriate.`\
-https://nytimes.com/2024/03/18/us/politics/jared-kushner-serbia-president.html
-
-**Infamous Trump Tape May Be Discussed, Not Played, at Trial, Judge Rules**\
-`Jurors in Donald J. Trump’s hush-money case will hear testimony about the “Access Hollywood” recording in which he boasts about groping women. They will not hear his voice.`\
-https://nytimes.com/2024/03/18/nyregion/trump-hush-money-trial-access-hollywood.html
 
