@@ -1,3 +1,7 @@
+**DNA From Discarded Gum Leads to Conviction in 1980 Oregon Murder**\
+`Robert Arthur Plympton was found guilty of murdering Barbara Mae Tucker, 19, who was kidnapped, sexually assaulted and beaten to death on a community college campus near Portland.`\
+https://nytimes.com/2024/03/19/us/oregon-man-guilty-murder-dna.html
+
 **White House says Supreme Court decision will sow chaos at the border.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/white-house-says-supreme-court-decision-will-sow-chaos-at-the-border
