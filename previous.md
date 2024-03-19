@@ -1,3 +1,7 @@
+**Californians Share Their Pandemic Silver Linings, Four Years Later**\
+`Readers have been writing to me about ways that, despite all the tragedy, Covid brought something unexpectedly positive into their lives.`\
+https://nytimes.com/2024/03/19/us/california-pandemic-silver-linings.html
+
 **Unilever to Cut 7,500 Jobs and Spin Off Ben & Jerry’s Ice Cream Unit**\
 `The consumer goods giant said the moves would make for a “simpler, more focused company” as consumers trade down to cheaper brands amid high inflation.`\
 https://nytimes.com/2024/03/19/business/unilever-ben-jerrys-job-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/world/asia/hong-kong-security-law-article-23-expl
 **Hong Kong Adopts Sweeping Security Laws, Bowing to Beijing**\
 `The legislation targets “external interference” and the theft of state secrets, with implications for businesses, journalists, civil servants and others.`\
 https://nytimes.com/2024/03/19/world/asia/hong-kong-security-law-article-23.html
-
-**Gambia and the Campaign Against Cutting**\
-`Female genital mutilation is still widespread despite international efforts to end it.`\
-https://nytimes.com/2024/03/19/briefing/fgm-cutting-gambia-campaign.html
 

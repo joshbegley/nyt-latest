@@ -1,3 +1,7 @@
+**Californians Share Their Pandemic Silver Linings, Four Years Later**\
+`Readers have been writing to me about ways that, despite all the tragedy, Covid brought something unexpectedly positive into their lives.`\
+https://nytimes.com/2024/03/19/us/california-pandemic-silver-linings.html
+
 **Unilever to Cut 7,500 Jobs and Spin Off Ben & Jerry’s Ice Cream Unit**\
 `The consumer goods giant said the moves would make for a “simpler, more focused company” as consumers trade down to cheaper brands amid high inflation.`\
 https://nytimes.com/2024/03/19/business/unilever-ben-jerrys-job-cuts.html
