@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Jennifer Sciubba**\
+`The March 19, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/03/19/podcasts/transcript-ezra-klein-interviews-jennifer-sciubba.html
+
 **The U.N. human rights chief says Israel may be using starvation as a war weapon.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/the-un-human-rights-chief-says-israel-may-be-using-starvation-as-a-war-weapon
