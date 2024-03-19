@@ -1,3 +1,7 @@
+**Biden to Announce Multibillion-Dollar Grant for Intel to Expand Chip Production**\
+`The decision comes as President Biden champions his economic policies during a tour of the Southwest.`\
+https://nytimes.com/2024/03/19/us/politics/intel-biden-chips.html
+
 **Peter Navarro Is Paying for His Contempt for the Law**\
 `He’s the first Trump official to go to jail for the Jan. 6 insurrection, but he may not be the last.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/navarro-contempt-prison
