@@ -1,3 +1,7 @@
+**How Gazans have fared after Israel has asked them to flee.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/2024/03/19/world/middleeast/gaza-civilians-flee.html
+
 **Tiny Love Stories: ‘Finding Forgiveness in Her Smile’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/03/19/style/tiny-modern-love-stories-finding-forgiveness-in-her-smile.html
