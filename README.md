@@ -1,3 +1,7 @@
+**Netanyahu acknowledges a dispute with the U.S., but says Israel will press on into Rafah.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/netanyahu-acknowledges-a-dispute-with-the-us-but-says-israel-will-press-on-into-rafah
+
 **‘Dune: Part Two’ Is Deeply Subversive**\
 `Holy wars have consequences.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/dune-part-two-subversive
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/us/politics/nato-ukraine-weapons-lloyd-austin.htm
 **‘Illinoise,’ a Sufjan Stevens Dance Musical, Is Moving to Broadway**\
 `The production will make its transfer unusually fast, with an opening set for April 24, just 29 days after it wraps up a sold-out run at the Park Avenue Armory.`\
 https://nytimes.com/2024/03/19/theater/illinoise-broadway.html
-
-**The Philharmonic’s New Season: What We Want to Hear**\
-`Gustavo Dudamel, who takes over as music and artistic director in 2026, is getting a head start with three weeks of concerts and more programs.`\
-https://nytimes.com/2024/03/19/arts/music/new-york-philharmonic-2024-25-season.html
 
