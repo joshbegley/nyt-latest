@@ -1,3 +1,7 @@
+**Aribert Reimann, Masterful German Opera Composer, Is Dead at 88**\
+`His works, which were radically individual, were among the most celebrated of the late 20th and early 21st century.`\
+https://nytimes.com/2024/03/19/arts/music/aribert-reimann-dead.html
+
 **Oil Executives, Meeting in Texas, Cast Doubts on ‘Fantasy’ Energy Transition**\
 `The comments by a Saudi executive raised questions regarding whose predictions about the future of oil and gas are more likely to be true.`\
 https://nytimes.com/2024/03/19/climate/ceraweek-saudi-fantasy-energy-transition.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/technology/apple-patents-lobbying.html
 **Mayor Adams Denies Sexually Assaulting a Colleague in 1993**\
 `Mayor Eric Adams said he did not recall meeting the woman who accused him of assault: “This did not happen.”`\
 https://nytimes.com/2024/03/19/nyregion/eric-adams-lawsuit-sexual-assault.html
-
-**The White House says a meeting with an Israeli delegation on Rafah is expected early next week.**\
-`By Zolan Kanno-Youngs`\
-https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/the-white-house-says-a-meeting-with-an-israeli-delegation-on-rafah-is-expected-early-next-week
 
