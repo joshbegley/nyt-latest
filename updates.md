@@ -1,3 +1,7 @@
+**Chinese Magnate Admits to Making Straw Donations to N.Y. Politicians**\
+`Mayor Eric Adams was among those who received illegal donations from Hui Qin, a Chinese businessman, a person familiar with the federal case said.`\
+https://nytimes.com/2024/03/18/nyregion/hui-qin-billionaire-straw-donations.html
+
 **Overheard at the Half-Marathon: ‘Wait, Was That Lil Nas X?’**\
 `The rapper and singer, clad in bulky designer sneakers and the official race T-shirt, was a last-minute addition at the NYC Half.`\
 https://nytimes.com/2024/03/18/style/lil-nas-x-half-marathon.html

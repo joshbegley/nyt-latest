@@ -1,3 +1,7 @@
+**Chinese Magnate Admits to Making Straw Donations to N.Y. Politicians**\
+`Mayor Eric Adams was among those who received illegal donations from Hui Qin, a Chinese businessman, a person familiar with the federal case said.`\
+https://nytimes.com/2024/03/18/nyregion/hui-qin-billionaire-straw-donations.html
+
 **Overheard at the Half-Marathon: ‘Wait, Was That Lil Nas X?’**\
 `The rapper and singer, clad in bulky designer sneakers and the official race T-shirt, was a last-minute addition at the NYC Half.`\
 https://nytimes.com/2024/03/18/style/lil-nas-x-half-marathon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/us/politics/cuoy-griffin-jan-6-cowboys-for-trump.
 **Conservative Influencer Is Charged in Jan. 6 Attack**\
 `Isabella DeLuca, 24, helped to steal a table that rioters used to assault law enforcement, according to a criminal complaint.`\
 https://nytimes.com/2024/03/18/us/politics/isabella-deluca-jan-6.html
-
-**Witness Films Israeli Raid on Al-Shifa Hospital**\
-`Emmy Shaheen, a resident of Gaza City, filmed clashes around Al-Shifa Hospital, where the the Israeli military carried out an operation.`\
-https://nytimes.com/video/world/middleeast/100000009368929/witness-films-israeli-raid-on-al-shifa-hospital.html
 
