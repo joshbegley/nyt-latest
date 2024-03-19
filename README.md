@@ -1,3 +1,11 @@
+**Barren Fields and Empty Stomachs: Afghanistan’s Long, Punishing Drought**\
+`In a country especially vulnerable to climate change, a drought has displaced entire villages and left millions of children malnourished.`\
+https://nytimes.com/2024/03/19/world/asia/afghanistan-drought-photos-climate-change.html
+
+**One Thing Most Countries Have in Common: Unsafe Air**\
+`New research found that fewer than 10 percent of countries and territories met World Health Organization guidelines for particulate matter pollution last year.`\
+https://nytimes.com/2024/03/19/climate/air-pollution-pm25.html
+
 **Japan Raises Interest Rates for First Time in 17 Years**\
 `Higher inflation and rising wages suggest that the country’s economy can grow without such aggressive stimulus from the central bank.`\
 https://nytimes.com/2024/03/18/business/bank-of-japan-interest-rates.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/18/us/politics/ruth-bader-ginsburg-award-ceremony.ht
 **From Russia, Elaborate Tales of Fake Journalists**\
 `As the Ukraine war grinds on, the Kremlin has created increasingly complex fabrications online to discredit Ukraine’s leader and undercut aid. Some have a Hollywood-style plot twist.`\
 https://nytimes.com/2024/03/18/business/media/russia-fake-journalists.html
-
-**Review: With Jeremy Strong, ‘An Enemy of the People’ Is Still Making Trouble**\
-`The “Succession” star headlines a Broadway revival of Ibsen’s play about a lifesaving doctor and the town that hates him.`\
-https://nytimes.com/2024/03/18/theater/an-enemy-of-the-people-review-jeremy-strong.html
-
-**Oprah Takes on Weight Stigma in the Ozempic Era**\
-`In a new special, Ms. Winfrey highlighted how new drugs have changed the way we talk about weight and willpower.`\
-https://nytimes.com/2024/03/18/well/live/oprah-ozempic-weight-loss.html
 
