@@ -1,3 +1,11 @@
+**Barren Fields and Empty Stomachs: Afghanistan’s Long, Punishing Drought**\
+`In a country especially vulnerable to climate change, a drought has displaced entire villages and left millions of children malnourished.`\
+https://nytimes.com/2024/03/19/world/asia/afghanistan-drought-photos-climate-change.html
+
+**One Thing Most Countries Have in Common: Unsafe Air**\
+`New research found that fewer than 10 percent of countries and territories met World Health Organization guidelines for particulate matter pollution last year.`\
+https://nytimes.com/2024/03/19/climate/air-pollution-pm25.html
+
 **Japan Raises Interest Rates for First Time in 17 Years**\
 `Higher inflation and rising wages suggest that the country’s economy can grow without such aggressive stimulus from the central bank.`\
 https://nytimes.com/2024/03/18/business/bank-of-japan-interest-rates.html
