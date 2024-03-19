@@ -1,3 +1,15 @@
+**Oil Executives, Meeting in Texas, Cast Doubts on ‘Fantasy’ Energy Transition**\
+`The comments by a Saudi executive raised questions regarding whose predictions about the future of oil and gas are more likely to be true.`\
+https://nytimes.com/2024/03/19/climate/ceraweek-saudi-fantasy-energy-transition.html
+
+**Supreme Court Won’t Block, for Now, Aggressive Texas Immigration Law**\
+`The law, which empowers local officials to arrest and deport migrants, was challenged by the Biden administration as an affront to federal power.`\
+https://nytimes.com/2024/03/19/us/supreme-court-texas-immigration.html
+
+**Jewish Film Professionals Denounce Speech by ‘Zone of Interest’ Director**\
+`An open letter condemned remarks critical of Israel that Jonathan Glazer made when he accepted an Oscar for the film, which is about the Holocaust.`\
+https://nytimes.com/2024/03/19/movies/jonathan-glazer-open-letter.html
+
 **7 New Songs You Should Hear Now**\
 `The latest tracks from Mdou Moctar, St. Vincent, Willie Nelson and more.`\
 https://nytimes.com/2024/03/19/arts/music/amplifier-newsletter-new-songs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/19/nyregion/eric-adams-lawsuit-sexual-assault.html
 **The White House says a meeting with an Israeli delegation on Rafah is expected early next week.**\
 `By Zolan Kanno-Youngs`\
 https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/the-white-house-says-a-meeting-with-an-israeli-delegation-on-rafah-is-expected-early-next-week
-
-**Paulin Hountondji, Revolutionary African Philosopher, Dies at 81**\
-`He rebelled against efforts to force African ways of thinking into the European worldview. His thoughts had the effect of a bomb in African intellectual life.`\
-https://nytimes.com/2024/03/19/world/africa/paulin-hountondji-dead.html
-
-**Apple and Google Are Discussing a Deal to Bring Generative A.I. to iPhones**\
-`A partnership would extend the long relationship between the companies that has helped deliver everything from maps to search on Apple’s devices.`\
-https://nytimes.com/2024/03/19/technology/apple-google-ai-iphone.html
-
-**‘Part of My Core’: How Schumer Decided to Speak Out Against Netanyahu**\
-`In an interview in his native Brooklyn, America’s highest-ranking Jewish elected official said he felt obligated to call for new leadership in Israel.`\
-https://nytimes.com/2024/03/19/us/politics/schumer-israel-netanyahu-gaza.html
 

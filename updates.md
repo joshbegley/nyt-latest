@@ -1,3 +1,15 @@
+**Oil Executives, Meeting in Texas, Cast Doubts on ‘Fantasy’ Energy Transition**\
+`The comments by a Saudi executive raised questions regarding whose predictions about the future of oil and gas are more likely to be true.`\
+https://nytimes.com/2024/03/19/climate/ceraweek-saudi-fantasy-energy-transition.html
+
+**Supreme Court Won’t Block, for Now, Aggressive Texas Immigration Law**\
+`The law, which empowers local officials to arrest and deport migrants, was challenged by the Biden administration as an affront to federal power.`\
+https://nytimes.com/2024/03/19/us/supreme-court-texas-immigration.html
+
+**Jewish Film Professionals Denounce Speech by ‘Zone of Interest’ Director**\
+`An open letter condemned remarks critical of Israel that Jonathan Glazer made when he accepted an Oscar for the film, which is about the Holocaust.`\
+https://nytimes.com/2024/03/19/movies/jonathan-glazer-open-letter.html
+
 **7 New Songs You Should Hear Now**\
 `The latest tracks from Mdou Moctar, St. Vincent, Willie Nelson and more.`\
 https://nytimes.com/2024/03/19/arts/music/amplifier-newsletter-new-songs.html
