@@ -1,3 +1,7 @@
+**Gannett and McClatchy Cut Back Relationship With A.P.**\
+`The Associated Press said the decisions by the two major newspaper chains “would not have a material impact on our overall revenue.”`\
+https://nytimes.com/2024/03/19/business/media/gannett-mcclatchy-ap-associated-press.html
+
 **The White House condemned the ‘harmful’ law, while Republicans celebrated the Supreme Court’s action.**\
 `By Ben Shpigel`\
 https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/the-white-house-condemned-the-harmful-law-while-republicans-celebrated-the-supreme-courts-action

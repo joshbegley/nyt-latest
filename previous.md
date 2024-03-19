@@ -1,3 +1,7 @@
+**Gannett and McClatchy Cut Back Relationship With A.P.**\
+`The Associated Press said the decisions by the two major newspaper chains “would not have a material impact on our overall revenue.”`\
+https://nytimes.com/2024/03/19/business/media/gannett-mcclatchy-ap-associated-press.html
+
 **The White House condemned the ‘harmful’ law, while Republicans celebrated the Supreme Court’s action.**\
 `By Ben Shpigel`\
 https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/the-white-house-condemned-the-harmful-law-while-republicans-celebrated-the-supreme-courts-action
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/arts/dan-schneider-apology-quiet-on-set.html
 **An Appeals Court Often Out of Step With the Supreme Court Notches a Victory**\
 `The U.S. Court of Appeals for the Fifth Circuit has a reputation for issuing decisions too conservative even for the six-justice supermajority of Republican appointees.`\
 https://nytimes.com/2024/03/19/us/appeals-court-texas-immigration-law.html
-
-**A Nebraska Lawmaker Incites Outrage Over the Reading of a Book’s Rape Scene**\
-`The lawmaker, State Senator Steve Halloran, was criticized by both Republicans and Democrats for referring to two Democrats as he read the passage on the floor of the Capitol.`\
-https://nytimes.com/2024/03/19/us/politics/halloran-nebraska-rape-reading.html
 
