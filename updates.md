@@ -1,3 +1,7 @@
+**U.S. Accuses Two Men of Stealing Tesla Trade Secrets**\
+`Federal prosecutors said the pair tried to sell technology to manufacture batteries for electric cars that belonged to the company.`\
+https://nytimes.com/2024/03/19/business/tesla-trade-secrets-us-attorney.html
+
 **Delta Pilot Gets 10 Months in Jail for Coming to Work Under the Influence**\
 `Lawrence B. Russell Jr., 63, pleaded guilty to having a blood-alcohol level more than two times the aviation limit, and a half-empty bottle of Jägermeister in his luggage, the authorities said.`\
 https://nytimes.com/2024/03/19/us/delta-pilot-drunk.html
