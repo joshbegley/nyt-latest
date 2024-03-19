@@ -1,3 +1,7 @@
+**Trump’s Plan to Take Away Biden’s Biggest Advantage**\
+`Why the former president decided that the Republican National Committee needed to be systematically dismantled.`\
+https://nytimes.com/2024/03/19/podcasts/the-daily/trump-rnc-election.html
+
 **A Chance to End the Party Machine’s Undemocratic Control in New Jersey**\
 `Democrats reward favored candidates with a better ballot position, an indefensible practice.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/new-jersey-party-line
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/business/economy/federal-reserve-interest-rates-i
 **Birthrates Are Plummeting Worldwide. Why?**\
 `The demographer Jennifer D. Sciubba examines why families — even in wealthy nations — are having fewer children.`\
 https://nytimes.com/2024/03/19/opinion/ezra-klein-podcast-jennifer-sciubba.html
-
-**The Mad Perfumer of Parma**\
-`Hilde Soliani makes feral scents that evoke everything from oysters to opera houses.`\
-https://nytimes.com/2024/03/19/magazine/hilde-soliani-perfume-parma.html
 

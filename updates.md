@@ -1,3 +1,7 @@
+**Trump’s Plan to Take Away Biden’s Biggest Advantage**\
+`Why the former president decided that the Republican National Committee needed to be systematically dismantled.`\
+https://nytimes.com/2024/03/19/podcasts/the-daily/trump-rnc-election.html
+
 **A Chance to End the Party Machine’s Undemocratic Control in New Jersey**\
 `Democrats reward favored candidates with a better ballot position, an indefensible practice.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/new-jersey-party-line
