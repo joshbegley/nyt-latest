@@ -1,3 +1,7 @@
+**Israel’s spy chief returns home as cease-fire talks continue in Qatar.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/israels-spy-chief-returns-home-as-cease-fire-talks-continue-in-qatar
+
 **Hong Kong Security Law Could Damage City’s Standing as Financial Hub**\
 `Some firms have already moved staff out of the city since the Chinese government took a heavier hand in 2020.`\
 https://nytimes.com/2024/03/19/business/hong-kong-article-23-china-economy.html

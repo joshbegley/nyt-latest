@@ -1,3 +1,7 @@
+**Israel’s spy chief returns home as cease-fire talks continue in Qatar.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/israels-spy-chief-returns-home-as-cease-fire-talks-continue-in-qatar
+
 **Hong Kong Security Law Could Damage City’s Standing as Financial Hub**\
 `Some firms have already moved staff out of the city since the Chinese government took a heavier hand in 2020.`\
 https://nytimes.com/2024/03/19/business/hong-kong-article-23-china-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/12/opinion/thepoint/new-jersey-party-line
 **Biden Looks to Shore Up Latino Support in Visit to Nevada and Arizona**\
 `The president plans to go on offense during his visit to the crucial swing states, championing his economic policies and attacking Republicans on abortion and immigration.`\
 https://nytimes.com/2024/03/19/us/politics/biden-nevada-arizona.html
-
-**Goon Squad Officers Face Sentencing in Mississippi Torture Cases**\
-`Six officers pleaded guilty last year to assaulting two Black men and shooting one in the mouth during a raid on their home.`\
-https://nytimes.com/2024/03/19/us/goon-squad-mississippi-sentencing.html
 
