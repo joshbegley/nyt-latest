@@ -1,3 +1,11 @@
+**Martin Luther King Jr. Biographer Wins American History Prize**\
+`The New-York Historical Society honor goes to Jonathan Eig, whose “King: A Life” presents the civil rights leader as a brilliant, flawed 20th-century “founding father.”`\
+https://nytimes.com/2024/03/19/arts/martin-luther-king-jr-eig.html
+
+**One-Pot Mushroom and Ginger Rice, Skillet Broccoli Spaghetti**\
+`Bright, breezy recipes to welcome spring.`\
+https://nytimes.com/2024/03/19/dining/one-pot-mushroom-and-ginger-rice-skillet-broccoli-spaghetti.html
+
 **Dries Van Noten Announces Retirement**\
 `The Belgian designer, known for his glorious use of color and prints, remained independent for years. Now he’s going out on his own terms.`\
 https://nytimes.com/2024/03/19/style/dries-van-noten-retirement.html
