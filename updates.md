@@ -1,3 +1,11 @@
+**Dries Van Noten Announces Retirement**\
+`The Belgian designer, known for his glorious use of color and prints, remained independent for years. Now he’s going out on his own terms.`\
+https://nytimes.com/2024/03/19/style/dries-van-noten-retirement.html
+
+**Biden campaign announces organizing push aimed at Latino voters.**\
+`President Biden will officially kick off the program alongside Hispanic organizers during a visit to Nevada on Tuesday.`\
+https://nytimes.com/live/2024/03/19/us/primary-election-ohio-trump-biden/biden-campaign-organizing-push-latino-voters
+
 **Biden campaign announces organizing push aimed at Latino voters.**\
 `President Biden will officially kick off the program alongside Hispanic organizers during a visit to Arizona on Tuesday.`\
 https://nytimes.com/live/2024/03/19/us/primary-election-ohio-trump-biden/biden-campaign-organizing-push-latino-voters
