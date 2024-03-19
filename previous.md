@@ -1,3 +1,7 @@
+**No Alternative for Rafah Invasion, Netanyahu Says, as Rift With U.S. Grows**\
+`A day after agreeing to President Biden’s request to send officials to Washington to discuss Rafah, the Israeli leader said there was no other option but to send forces into the crowded city.`\
+https://nytimes.com/2024/03/19/world/middleeast/israel-gaza-rafah-offensive.html
+
 **DNA From Discarded Gum Leads to Conviction in 1980 Oregon Murder**\
 `Robert Arthur Plympton was found guilty of murdering Barbara Mae Tucker, 19, who was kidnapped, sexually assaulted and beaten to death on a community college campus near Portland.`\
 https://nytimes.com/2024/03/19/us/oregon-man-guilty-murder-dna.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/us/politics/biden-donors.html
 **World War II Loot Found in a Massachusetts Home Is Returned to Okinawa**\
 `The cache of artifacts was discovered in the attic of a veteran’s home after he died. The items were turned over to the F.B.I., which arranged for their return eight decades after the war.`\
 https://nytimes.com/2024/03/19/world/asia/fbi-japan-looted-artifacts-boston.html
-
-**Biden to Announce Multibillion-Dollar Grant for Intel to Expand Chip Production**\
-`The decision comes as President Biden champions his economic policies during a tour of the Southwest.`\
-https://nytimes.com/2024/03/19/us/politics/intel-biden-chips.html
 

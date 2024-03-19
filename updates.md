@@ -1,3 +1,7 @@
+**No Alternative for Rafah Invasion, Netanyahu Says, as Rift With U.S. Grows**\
+`A day after agreeing to President Biden’s request to send officials to Washington to discuss Rafah, the Israeli leader said there was no other option but to send forces into the crowded city.`\
+https://nytimes.com/2024/03/19/world/middleeast/israel-gaza-rafah-offensive.html
+
 **DNA From Discarded Gum Leads to Conviction in 1980 Oregon Murder**\
 `Robert Arthur Plympton was found guilty of murdering Barbara Mae Tucker, 19, who was kidnapped, sexually assaulted and beaten to death on a community college campus near Portland.`\
 https://nytimes.com/2024/03/19/us/oregon-man-guilty-murder-dna.html
