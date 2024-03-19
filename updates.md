@@ -1,3 +1,19 @@
+**A Special Election in California Will Fill the Seat Vacated by Kevin McCarthy**\
+`The front-runners are Vince Fong and Mike Boudreaux, the same Republicans who have already secured a spot on the November ballot to fill the seat permanently.`\
+https://nytimes.com/2024/03/19/us/politics/california-kevin-mccarthy-special-election.html
+
+**Supreme Court Rules for Muslim Man in Challenge to No-Fly List**\
+`The government had contended that removing Yonas Fikre from the list made moot his lawsuit asserting violations of his constitutional rights.`\
+https://nytimes.com/2024/03/19/us/supreme-court-no-fly-list.html
+
+**The Three Kinds of Biden Protest Voters**\
+`Despite cruising to the Democratic nomination, President Biden has faced a substantial protest vote in some primaries. The pattern can be broken into three categories.`\
+https://nytimes.com/interactive/2024/03/19/us/elections/biden-uncommitted-vote-democrats.html
+
+**Two Weeks Later, a Newsom Homeless Measure Still Hangs in the Balance**\
+`Gov. Gavin Newsom billed Proposition 1 as crucial to solving California’s homelessness crisis. Voters, who see the issue as a top concern, have split almost evenly on the proposal.`\
+https://nytimes.com/2024/03/19/us/politics/proposition-1-california-newsom.html
+
 **Hey, New Yorkers: Are You Trying to Sell Your Home Using a Real Estate Agent? We Want to Hear From You.**\
 `New changes to the way homes are bought and sold are causing confusion among buyers, sellers and real estate agents. We want to hear your experience of selling a home in New York City in 2024.`\
 https://nytimes.com/2024/03/19/realestate/nar-lawsuits-brokers-buying-selling.html
