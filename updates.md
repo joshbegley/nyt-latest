@@ -1,3 +1,11 @@
+**Biden Campaign Announces Organizing Push Aimed at Latino Voters**\
+`President Biden will officially kick off the program alongside Hispanic organizers during a visit to Arizona on Tuesday.`\
+https://nytimes.com/live/2024/03/19/us/primary-election-ohio-trump-biden/biden-campaign-organizing-push-latino-voters
+
+**Brazil Police Recommend Criminal Charges Against Bolsonaro**\
+`The federal police accused the former president of falsifying his Covid-19 vaccination records.`\
+https://nytimes.com/2024/03/19/world/americas/brazil-bolsonaro-charges-covid.html
+
 **Brazil Police Recommend Criminal Charges Against Bolsonaro**\
 `Brazil’s federal police accused the former president of falsifying his Covid-19 vaccination records.`\
 https://nytimes.com/2024/03/19/world/americas/brazil-bolsonaro-charges-covid.html

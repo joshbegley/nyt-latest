@@ -1,5 +1,9 @@
+**Biden Campaign Announces Organizing Push Aimed at Latino Voters**\
+`President Biden will officially kick off the program alongside Hispanic organizers during a visit to Arizona on Tuesday.`\
+https://nytimes.com/live/2024/03/19/us/primary-election-ohio-trump-biden/biden-campaign-organizing-push-latino-voters
+
 **Brazil Police Recommend Criminal Charges Against Bolsonaro**\
-`Brazil’s federal police accused the former president of falsifying his Covid-19 vaccination records.`\
+`The federal police accused the former president of falsifying his Covid-19 vaccination records.`\
 https://nytimes.com/2024/03/19/world/americas/brazil-bolsonaro-charges-covid.html
 
 **Chicago-Area Races Test Progressive Strength**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/business/dealbook/nvidia-ai-woodstock-chips.html
 **Weekly Student New Quiz: TikTok, Russia, Pi Day**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/03/19/learning/19StudentNewsQuiz.html
-
-**Israel Faces Tough Balancing Act on Russia and the West**\
-`Prime Minister Benjamin Netanyahu treads lightly with President Vladimir Putin. Russia is not responding in kind, with public criticism increasing.`\
-https://nytimes.com/2024/03/19/world/europe/israel-russia-us-ukraine.html
 
