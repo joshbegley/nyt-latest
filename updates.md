@@ -1,3 +1,7 @@
+**Investors Shrug Off Nvidia’s ‘A.I. Woodstock’**\
+`The chipmaker unveiled a new high-speed processor at its developer conference to power an “industrial revolution,” but its sky-high valuation is coming under scrutiny.`\
+https://nytimes.com/2024/03/19/business/dealbook/nvidia-ai-woodstock-chips.html
+
 **Investors Shrug off Nvidia’s ‘A.I. Woodstock’**\
 `The chipmaker unveiled a new high-speed processor at its developer conference to power an “industrial revolution,” but its sky-high valuation is coming under scrutiny.`\
 https://nytimes.com/2024/03/19/business/dealbook/nvidia-ai-woodstock-chips.html
