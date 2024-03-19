@@ -1,3 +1,7 @@
+**Japan Raises Interest Rates for First Time in 17 Years**\
+`Higher inflation and rising wages suggest that the country’s economy can grow without such aggressive stimulus from the central bank.`\
+https://nytimes.com/2024/03/18/business/bank-of-japan-interest-rates.html
+
 **Canada Lawmakers Back Motion Meant to Help Bring Peace to Gaza**\
 `The House of Commons vote endorsing a package of conflict-ending measures came after language calling on Canada to immediately recognize a State of Palestine was removed.`\
 https://nytimes.com/2024/03/18/world/canada/canada-parliament-gaza-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/18/theater/an-enemy-of-the-people-review-jeremy-stro
 **Oprah Takes on Weight Stigma in the Ozempic Era**\
 `In a new special, Ms. Winfrey highlighted how new drugs have changed the way we talk about weight and willpower.`\
 https://nytimes.com/2024/03/18/well/live/oprah-ozempic-weight-loss.html
-
-**Chinese Magnate Admits to Making Straw Donations to N.Y. Politicians**\
-`Mayor Eric Adams was among those who received illegal donations from Hui Qin, a Chinese businessman, a person familiar with the federal case said.`\
-https://nytimes.com/2024/03/18/nyregion/hui-qin-billionaire-straw-donations.html
 

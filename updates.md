@@ -1,3 +1,7 @@
+**Japan Raises Interest Rates for First Time in 17 Years**\
+`Higher inflation and rising wages suggest that the country’s economy can grow without such aggressive stimulus from the central bank.`\
+https://nytimes.com/2024/03/18/business/bank-of-japan-interest-rates.html
+
 **Canada Lawmakers Back Motion Meant to Help Bring Peace to Gaza**\
 `The House of Commons vote endorsing a package of conflict-ending measures came after language calling on Canada to immediately recognize a State of Palestine was removed.`\
 https://nytimes.com/2024/03/18/world/canada/canada-parliament-gaza-vote.html
