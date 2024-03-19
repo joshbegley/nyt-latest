@@ -1,3 +1,7 @@
+**White House Says Rafah Invasion ‘Would Be a Mistake’, and Trump Can’t Make Bond**\
+`Plus, a space pioneer remembered.`\
+https://nytimes.com/2024/03/19/podcasts/biden-netanyahu-rafah-trump.html
+
 **Trump’s Plan to Take Away Biden’s Biggest Advantage**\
 `Why the former president decided that the Republican National Committee needed to be systematically dismantled.`\
 https://nytimes.com/2024/03/19/podcasts/the-daily/trump-rnc-election.html
