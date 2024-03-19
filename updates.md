@@ -1,3 +1,7 @@
+**Netanyahu acknowledges a dispute with the U.S., but says Israel will press on into Rafah.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/netanyahu-acknowledges-a-dispute-with-the-us-but-says-israel-will-press-on-into-rafah
+
 **‘Dune: Part Two’ Is Deeply Subversive**\
 `Holy wars have consequences.`\
 https://nytimes.com/live/2024/03/12/opinion/thepoint/dune-part-two-subversive
