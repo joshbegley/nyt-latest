@@ -1,3 +1,7 @@
+**Congressional Leaders Strike Deal on Final Spending Bill Ahead of Shutdown**\
+`Lawmakers resolved disputes over Department of Homeland Security funding, paving the way for an agreement. But they may still be unable to meet a Friday deadline to avert a brief partial shutdown.`\
+https://nytimes.com/2024/03/19/us/politics/congress-spending-bill-shutdown.html
+
 **Lloyd Austin Praises NATO Allies for Commitment to Ukraine**\
 `Despite doubts about further U.S. aid, the American defense secretary told a meeting of Kyiv’s backers that the fight against Russia “remains one of the great causes of our time.”`\
 https://nytimes.com/2024/03/19/us/politics/nato-ukraine-weapons-lloyd-austin.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/israels-mil
 **Californians Share Their Pandemic Silver Linings, Four Years Later**\
 `Readers have been writing to me about ways that, despite all the tragedy, Covid brought something unexpectedly positive into their lives.`\
 https://nytimes.com/2024/03/19/us/california-pandemic-silver-linings.html
-
-**Unilever to Cut 7,500 Jobs and Spin Off Ben & Jerry’s Ice Cream Unit**\
-`The consumer goods giant said the moves would make for a “simpler, more focused company” as consumers trade down to cheaper brands amid high inflation.`\
-https://nytimes.com/2024/03/19/business/unilever-ben-jerrys-job-cuts.html
 
