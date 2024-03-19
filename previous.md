@@ -1,3 +1,11 @@
+**Trump Asks Supreme Court for Absolute Immunity on Election Charges**\
+`The court will hear arguments on April 25 over whether former presidents can be prosecuted for things they did while in office.`\
+https://nytimes.com/2024/03/19/us/trump-supreme-court-immunity.html
+
+**Peter Navarro Is Paying for His Contempt for the Law**\
+`He’s the first Trump official to go to jail for the Jan. 6 insurrection, but he may not be the last.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/navarro-contempt-prison
+
 **Tiny Love Stories: ‘Finding Forgiveness in Her Smile’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/03/19/style/tiny-modern-love-stories-finding-forgiveness-in-her-smile.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/19/world/middleeast/gaza-civilians-flee.html
 **Man Charged With Murder in Death of 3-Year-Old Boy in Brooklyn**\
 `Officers responding to a 911 call found Denim Brown face down and unconscious in a bathtub at an East Flatbush apartment, the police said.`\
 https://nytimes.com/2024/03/19/nyregion/3-year-old-murder-brooklyn-nyc.html
-
-**Aribert Reimann, Masterful German Opera Composer, Is Dead at 88**\
-`His works, which were radically individual, were among the most celebrated of the late 20th and early 21st century.`\
-https://nytimes.com/2024/03/19/arts/music/aribert-reimann-dead.html
-
-**Oil Executives, Meeting in Texas, Cast Doubts on ‘Fantasy’ Energy Transition**\
-`The comments by a Saudi executive raised questions regarding whose predictions about the future of oil and gas are more likely to be true.`\
-https://nytimes.com/2024/03/19/climate/ceraweek-saudi-fantasy-energy-transition.html
 

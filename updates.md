@@ -1,3 +1,11 @@
+**Trump Asks Supreme Court for Absolute Immunity on Election Charges**\
+`The court will hear arguments on April 25 over whether former presidents can be prosecuted for things they did while in office.`\
+https://nytimes.com/2024/03/19/us/trump-supreme-court-immunity.html
+
+**Peter Navarro Is Paying for His Contempt for the Law**\
+`He’s the first Trump official to go to jail for the Jan. 6 insurrection, but he may not be the last.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/navarro-contempt-prison
+
 **How Gaza Civilians Have Fared After Israel Has Asked Them to Flee**\
 `Displacement has contributed to a hunger crisis and other severe challenges for Gazans. Here is a look at what happened on a few occasions when Israel has told them to evacuate.`\
 https://nytimes.com/2024/03/19/world/middleeast/gaza-civilians-flee.html
