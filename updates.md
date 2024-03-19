@@ -1,3 +1,11 @@
+**‘Get Ready to Scream’: How to Be a Baseball Fan in South Korea**\
+`The country’s raucous fan culture will be on display when Major League Baseball opens its season in Seoul. Here’s how to cheer and what to eat.`\
+https://nytimes.com/2024/03/19/world/asia/mlb-baseball-south-korea-fans.html
+
+**Ohtani Makes South Korean Fans Forget Rivalry With Japan**\
+`Baseball fans in South Korea have embraced the superstar from Japan, despite the longtime rivalry and history between the two countries.`\
+https://nytimes.com/2024/03/19/world/asia/ohtani-japan-south-korea.html
+
 **Stops in Jeddah and Cairo will be Blinken’s sixth wartime trip to the region.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/stops-in-jeddah-and-cairo-will-be-blinkens-sixth-wartime-trip-to-the-region
