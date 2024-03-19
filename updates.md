@@ -1,3 +1,11 @@
+**White House says Supreme Court decision will sow chaos at the border.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/white-house-says-supreme-court-decision-will-sow-chaos-at-the-border
+
+**Florida closes its polls first, followed by Ohio. Here’s the latest.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/03/19/us/primary-election-updates-trump-biden/florida-closes-its-polls-first-followed-by-ohio-heres-the-latest
+
 **Here’s the latest on the fallout.**\
 `By J. David Goodman, Edgar Sandoval and Adam Liptak`\
 https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/heres-the-latest-on-the-fallout
