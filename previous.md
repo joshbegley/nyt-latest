@@ -1,3 +1,7 @@
+**Hey, New Yorkers: Are You Trying to Sell Your Home Using a Real Estate Agent? We Want to Hear From You.**\
+`New changes to the way homes are bought and sold are causing confusion among buyers, sellers and real estate agents. We want to hear your experience of selling a home in New York City in 2024.`\
+https://nytimes.com/2024/03/19/realestate/nar-lawsuits-brokers-buying-selling.html
+
 **Transcript: Ezra Klein Interviews Jennifer Sciubba**\
 `The March 19, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/03/19/podcasts/transcript-ezra-klein-interviews-jennifer-sciubba.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/dining/one-pot-mushroom-and-ginger-rice-skillet-b
 **Dries Van Noten Announces Retirement**\
 `The Belgian designer, known for his glorious use of color and prints, remained independent for years. Now he’s going out on his own terms.`\
 https://nytimes.com/2024/03/19/style/dries-van-noten-retirement.html
-
-**Congressional Leaders Strike Deal on Final Spending Bill Ahead of Shutdown**\
-`Lawmakers resolved disputes over Department of Homeland Security funding, paving the way for an agreement. But they may still be unable to meet a Friday deadline to avert a brief partial shutdown.`\
-https://nytimes.com/2024/03/19/us/politics/congress-spending-bill-shutdown.html
 

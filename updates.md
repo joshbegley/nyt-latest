@@ -1,3 +1,7 @@
+**Hey, New Yorkers: Are You Trying to Sell Your Home Using a Real Estate Agent? We Want to Hear From You.**\
+`New changes to the way homes are bought and sold are causing confusion among buyers, sellers and real estate agents. We want to hear your experience of selling a home in New York City in 2024.`\
+https://nytimes.com/2024/03/19/realestate/nar-lawsuits-brokers-buying-selling.html
+
 **Transcript: Ezra Klein Interviews Jennifer Sciubba**\
 `The March 19, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/03/19/podcasts/transcript-ezra-klein-interviews-jennifer-sciubba.html
