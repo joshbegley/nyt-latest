@@ -1,3 +1,7 @@
+**Peter Navarro Is Paying for His Contempt for the Law**\
+`He’s the first Trump official to go to jail for the Jan. 6 insurrection, but he may not be the last.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/navarro-contempt-prison
+
 **Trump Asks Supreme Court for Absolute Immunity on Election Charges**\
 `The court will hear arguments on April 25 over whether former presidents can be prosecuted for things they did while in office.`\
 https://nytimes.com/2024/03/19/us/trump-supreme-court-immunity.html
