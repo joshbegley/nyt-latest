@@ -1,3 +1,7 @@
+**David Breashears, 68, Who Braved Everest to Capture It on Film, Dies**\
+`He risked death on the slopes of the world’s highest mountain to produce the highest-grossing IMAX documentary of all time.`\
+https://nytimes.com/2024/03/19/obituaries/david-breashears-dead.html
+
 **Dan Schneider Says He Is Sorry for the Pain He Caused His TV Staff**\
 `In an online apology, the former Nickelodeon producer addressed the many accounts of inappropriate behavior related by actors and others during a recent docuseries, “Quiet on Set.”`\
 https://nytimes.com/2024/03/19/arts/dan-schneider-apology-quiet-on-set.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/us/oregon-man-guilty-murder-dna.html
 **White House says Supreme Court decision will sow chaos at the border.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/white-house-says-supreme-court-decision-will-sow-chaos-at-the-border
-
-**Florida closes its polls first, followed by Ohio. Here’s the latest.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/03/19/us/primary-election-updates-trump-biden/florida-closes-its-polls-first-followed-by-ohio-heres-the-latest
 

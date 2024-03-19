@@ -1,3 +1,7 @@
+**David Breashears, 68, Who Braved Everest to Capture It on Film, Dies**\
+`He risked death on the slopes of the world’s highest mountain to produce the highest-grossing IMAX documentary of all time.`\
+https://nytimes.com/2024/03/19/obituaries/david-breashears-dead.html
+
 **Dan Schneider Says He Is Sorry for the Pain He Caused His TV Staff**\
 `In an online apology, the former Nickelodeon producer addressed the many accounts of inappropriate behavior related by actors and others during a recent docuseries, “Quiet on Set.”`\
 https://nytimes.com/2024/03/19/arts/dan-schneider-apology-quiet-on-set.html
