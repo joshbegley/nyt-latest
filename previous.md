@@ -1,5 +1,9 @@
 **It Turns Out the ‘Deep State’ Is Actually Kind of Awesome**\
 `Meet the unsung heroes making our country great.`\
+https://nytimes.com/2024/03/19/opinion/trump-deep-state.html
+
+**It Turns Out the ‘Deep State’ Is Actually Kind of Awesome**\
+`Meet the unsung heroes making our country great.`\
 https://nytimes.com/video/opinion/100000009356253/trump-deep-state.html
 
 **China Evergrande Founder Accused of Exaggerating Revenue by $78 Billion**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/nyregion/trump-bond-ny-fraud-case.html
 **Is New York Better Off Than It Was 7 Years Ago? New Yorkers Say No.**\
 `From public safety to schools, New Yorkers across all five boroughs feel that their city’s quality of life has worsened in recent years, according to a survey.`\
 https://nytimes.com/2024/03/19/nyregion/new-yorkers-poll-survey.html
-
-**Walter Massey, a Physicist With a Higher Calling**\
-`He broke barriers as the first Black physicist in nearly every role. But his identity made him reach for dreams beyond his career as a scientist.`\
-https://nytimes.com/2024/03/19/science/physics-massey-black.html
 

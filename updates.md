@@ -1,5 +1,9 @@
 **It Turns Out the ‘Deep State’ Is Actually Kind of Awesome**\
 `Meet the unsung heroes making our country great.`\
+https://nytimes.com/2024/03/19/opinion/trump-deep-state.html
+
+**It Turns Out the ‘Deep State’ Is Actually Kind of Awesome**\
+`Meet the unsung heroes making our country great.`\
 https://nytimes.com/video/opinion/100000009356253/trump-deep-state.html
 
 **China Evergrande Founder Accused of Exaggerating Revenue by $78 Billion**\
