@@ -1,3 +1,7 @@
+**U.S. Accuses Two Men of Stealing Tesla Trade Secrets**\
+`Federal prosecutors said the pair tried to sell technology to manufacture batteries for electric cars that belonged to the company.`\
+https://nytimes.com/2024/03/19/business/tesla-trade-secrets-us-attorney.html
+
 **Delta Pilot Gets 10 Months in Jail for Coming to Work Under the Influence**\
 `Lawrence B. Russell Jr., 63, pleaded guilty to having a blood-alcohol level more than two times the aviation limit, and a half-empty bottle of Jägermeister in his luggage, the authorities said.`\
 https://nytimes.com/2024/03/19/us/delta-pilot-drunk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/us/politics/alabama-dei-bill.html
 **Justices Won’t Block Texas’s Immigration Law, for Now**\
 `Also, Hong Kong adopted sweeping laws targeting criticism. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/03/19/briefing/supreme-court-texas-immigration-hong-kong.html
-
-**Jean Maria Arrigo, Who Exposed Psychologists’ Ties to Torture, Dies at 79**\
-`Risking ostracism by her colleagues, she fought against the use of psychologists in coercive interrogations by the military and the C.I.A.`\
-https://nytimes.com/2024/03/19/us/jean-maria-arrigo-dead.html
 
