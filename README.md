@@ -1,3 +1,11 @@
+**Lawsuit on New York City’s Property Tax System Can Proceed, Court Says**\
+`The lawsuit seeks to overturn a system that has been under fire for years because it favors wealthier homeowners. If the plaintiffs win, they hope to distribute the tax burden more equitably.`\
+https://nytimes.com/2024/03/19/nyregion/property-tax-lawsuit-nyc.html
+
+**U.S. and Allies Pledge Additional Security Assistance for Ukraine**\
+`U.S. Defense Secretary Lloyd J. Austin III praised European allies on Tuesday for their continuing commitment to support Ukraine’s defense against Russia.`\
+https://nytimes.com/video/world/europe/100000009370220/austin-ukraine.html
+
 **How Teens Approach the U.S. Election**\
 `Draft preview text here`\
 https://nytimes.com/2024/03/19/headway/how-teens-approach-the-us-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/03/19/us/elections/biden-uncommitted-vote-d
 **Two Weeks Later, a Newsom Homeless Measure Still Hangs in the Balance**\
 `Gov. Gavin Newsom billed Proposition 1 as crucial to solving California’s homelessness crisis. Voters, who see the issue as a top concern, have split almost evenly on the proposal.`\
 https://nytimes.com/2024/03/19/us/politics/proposition-1-california-newsom.html
-
-**Hey, New Yorkers: Are You Trying to Sell Your Home Using a Real Estate Agent? We Want to Hear From You.**\
-`New changes to the way homes are bought and sold are causing confusion among buyers, sellers and real estate agents. We want to hear your experience of selling a home in New York City in 2024.`\
-https://nytimes.com/2024/03/19/realestate/nar-lawsuits-brokers-buying-selling.html
-
-**Transcript: Ezra Klein Interviews Jennifer Sciubba**\
-`The March 19, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/03/19/podcasts/transcript-ezra-klein-interviews-jennifer-sciubba.html
 
