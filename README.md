@@ -1,4 +1,4 @@
-**Lawsuit on New York City’s Property Tax System Can Proceed, Court Says**\
+**Lawsuit Over New York City’s Property Tax System Can Proceed, Court Says**\
 `The lawsuit seeks to overturn a system that has been under fire for years because it favors wealthier homeowners. If the plaintiffs win, they hope to distribute the tax burden more equitably.`\
 https://nytimes.com/2024/03/19/nyregion/property-tax-lawsuit-nyc.html
 
