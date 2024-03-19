@@ -1,3 +1,11 @@
+**How Teens Approach the U.S. Election**\
+`Draft preview text here`\
+https://nytimes.com/2024/03/19/headway/how-teens-approach-the-us-election.html
+
+**Judge in Trump Documents Case Draws Attention for Slow Pace**\
+`Aileen Cannon has yet to set a trial date in the complex case accusing Donald J. Trump of mishandling classified materials, and has stirred confusion with some decisions.`\
+https://nytimes.com/2024/03/19/us/politics/aileen-cannon-trump-documents.html
+
 **Hidden Luxury Beckons at Bungalow**\
 `The chef Vikas Khanna serves a menu that covers Kashmir south to Kerala.`\
 https://nytimes.com/2024/03/19/dining/bungalow-restaurant-opening.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/19/realestate/nar-lawsuits-brokers-buying-selling.ht
 **Transcript: Ezra Klein Interviews Jennifer Sciubba**\
 `The March 19, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/03/19/podcasts/transcript-ezra-klein-interviews-jennifer-sciubba.html
-
-**The U.N. human rights chief says Israel may be using starvation as a war weapon.**\
-`By Nick Cumming-Bruce`\
-https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/the-un-human-rights-chief-says-israel-may-be-using-starvation-as-a-war-weapon
-
-**Netanyahu acknowledges a dispute with the U.S., but says Israel will press on into Rafah.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/03/19/world/israel-hamas-war-gaza-news/netanyahu-acknowledges-a-dispute-with-the-us-but-says-israel-will-press-on-into-rafah
 

@@ -1,3 +1,11 @@
+**How Teens Approach the U.S. Election**\
+`Draft preview text here`\
+https://nytimes.com/2024/03/19/headway/how-teens-approach-the-us-election.html
+
+**Judge in Trump Documents Case Draws Attention for Slow Pace**\
+`Aileen Cannon has yet to set a trial date in the complex case accusing Donald J. Trump of mishandling classified materials, and has stirred confusion with some decisions.`\
+https://nytimes.com/2024/03/19/us/politics/aileen-cannon-trump-documents.html
+
 **Hidden Luxury Beckons at Bungalow**\
 `The chef Vikas Khanna serves a menu that covers Kashmir south to Kerala.`\
 https://nytimes.com/2024/03/19/dining/bungalow-restaurant-opening.html
