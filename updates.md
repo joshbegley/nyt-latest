@@ -1,3 +1,7 @@
+**Delta Pilot Gets 10 Months in Jail for Coming to Work Under the Influence**\
+`Lawrence B. Russell Jr., 63, pleaded guilty to having a blood-alcohol level more than two times the aviation limit, and a half-empty bottle of Jägermeister in his luggage, the authorities said.`\
+https://nytimes.com/2024/03/19/us/delta-pilot-drunk.html
+
 **Jonathan Majors Accused of Assault and Defamation in Lawsuit by Ex-Girlfriend**\
 `Grace Jabbari alleges several instances of violence by Majors, the former Marvel movie star. Majors’s lawyer said he was preparing a countersuit.`\
 https://nytimes.com/2024/03/19/movies/jonathan-majors-lawsuit-assault-defamation.html
