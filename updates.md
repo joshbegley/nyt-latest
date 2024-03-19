@@ -1,3 +1,7 @@
+**Birth Control to Be Sold Over the Counter in New York Pharmacies**\
+`Officials said the move was intended to remove barriers to contraceptive care, as part of the state’s mission to protect reproductive rights.`\
+https://nytimes.com/2024/03/19/nyregion/new-york-birth-control-over-the-counter.html
+
 **Wednesday Briefing: Hong Kong’s Sweeping New Security Laws**\
 `Also, Japan’s interest rate hike and M.L.B.’s season opener.`\
 https://nytimes.com/2024/03/19/world/asia/hong-kong-article-23-japan-asia.html
