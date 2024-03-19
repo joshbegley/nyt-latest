@@ -1,3 +1,7 @@
+**Hong Kong Security Law Could Damage City’s Standing as Financial Hub**\
+`Some firms have already moved staff out of the city since the Chinese government took a heavier hand in 2020.`\
+https://nytimes.com/2024/03/19/business/hong-kong-article-23-china-economy.html
+
 **Hong Kong’s New Security Legislation Took Decades to Pass. Here’s What to Know.**\
 `The legislation marks another significant erosion of freedom in a former British colony once known for its relative autonomy from Beijing.`\
 https://nytimes.com/2024/03/19/world/asia/hong-kong-security-law-article-23-explained.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/us/politics/biden-nevada-arizona.html
 **Goon Squad Officers Face Sentencing in Mississippi Torture Cases**\
 `Six officers pleaded guilty last year to assaulting two Black men and shooting one in the mouth during a raid on their home.`\
 https://nytimes.com/2024/03/19/us/goon-squad-mississippi-sentencing.html
-
-**Biden’s Climate Law Has Created a Growing Market for Green Tax Credits**\
-`New Treasury Department data shows companies have registered 45,500 projects for possible sale on a new tax-credit marketplace.`\
-https://nytimes.com/2024/03/19/business/bidens-climate-law-has-created-a-growing-market-for-green-tax-credits.html
 
