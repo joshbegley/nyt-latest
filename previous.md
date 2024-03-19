@@ -1,6 +1,6 @@
 **Dan Schneider Says He Is Sorry for the Pain He Caused His TV Staff**\
 `In an online apology, the former Nickelodeon producer addressed the many accounts of inappropriate behavior related by actors and others during a recent docuseries, “Quiet on Set.”`\
-https://nytimes.com/2024/03/19/arts/dan-schneider-says-he-is-sorry-for-the-pain-he-caused-his-tv-staff.html
+https://nytimes.com/2024/03/19/arts/dan-schneider-apology-quiet-on-set.html
 
 **An Appeals Court Often Out of Step With the Supreme Court Notches a Victory**\
 `The U.S. Court of Appeals for the Fifth Circuit has a reputation for issuing decisions too conservative even for the six-justice supermajority of Republican appointees.`\
