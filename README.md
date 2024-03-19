@@ -4,7 +4,7 @@ https://nytimes.com/2024/03/19/us/trump-supreme-court-immunity.html
 
 **Peter Navarro Is Paying for His Contempt for the Law**\
 `He’s the first Trump official to go to jail for the Jan. 6 insurrection, but he may not be the last.`\
-https://nytimes.com/live/2024/03/12/opinion/thepoint/navarro-contempt-prison
+https://nytimes.com/live/2024/03/19/opinion/thepoint/navarro-contempt-prison
 
 **Tiny Love Stories: ‘Finding Forgiveness in Her Smile’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
