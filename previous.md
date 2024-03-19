@@ -1,3 +1,11 @@
+**‘Dune: Part Two’ Is Deeply Subversive**\
+`Holy wars have consequences.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/dune-part-two-subversive
+
+**Japan’s Labor Market Has a Lesson for the Fed: Women Can Surprise You**\
+`Japan’s improved labor force participation for women is a reminder not to assume that job market limits are clear and finite.`\
+https://nytimes.com/2024/03/19/business/economy/japan-labor-market-women-participation.html
+
 **Reimagining Real Lives in the Best New Historical Fiction**\
 `This trio of new novels shows real people in their natural habitats, drawn with writerly flair.`\
 https://nytimes.com/2024/03/19/books/review/reimagining-real-lives-in-the-best-new-historical-fiction.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/19/theater/illinoise-broadway.html
 **The Philharmonic’s New Season: What We Want to Hear**\
 `Gustavo Dudamel, who takes over as music and artistic director in 2026, is getting a head start with three weeks of concerts and more programs.`\
 https://nytimes.com/2024/03/19/arts/music/new-york-philharmonic-2024-25-season.html
-
-**Biden campaign announces organizing push aimed at Latino voters.**\
-`President Biden will officially kick off the program alongside Hispanic organizers during a visit to Nevada on Tuesday.`\
-https://nytimes.com/live/2024/03/19/us/primary-election-ohio-trump-biden/biden-campaign-organizing-push-latino-voters
-
-**Brazil Police Recommend Criminal Charges Against Bolsonaro**\
-`The federal police accused the former president of falsifying his Covid-19 vaccination records.`\
-https://nytimes.com/2024/03/19/world/americas/brazil-bolsonaro-charges-covid.html
 

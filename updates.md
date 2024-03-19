@@ -1,3 +1,11 @@
+**‘Dune: Part Two’ Is Deeply Subversive**\
+`Holy wars have consequences.`\
+https://nytimes.com/live/2024/03/12/opinion/thepoint/dune-part-two-subversive
+
+**Japan’s Labor Market Has a Lesson for the Fed: Women Can Surprise You**\
+`Japan’s improved labor force participation for women is a reminder not to assume that job market limits are clear and finite.`\
+https://nytimes.com/2024/03/19/business/economy/japan-labor-market-women-participation.html
+
 **Reimagining Real Lives in the Best New Historical Fiction**\
 `This trio of new novels shows real people in their natural habitats, drawn with writerly flair.`\
 https://nytimes.com/2024/03/19/books/review/reimagining-real-lives-in-the-best-new-historical-fiction.html
