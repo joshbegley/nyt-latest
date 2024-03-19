@@ -22,8 +22,8 @@ https://nytimes.com/2024/03/19/technology/mustafa-suleyman-google-gemini.html
 `Spoiler alert: quite possibly.`\
 https://nytimes.com/2024/03/19/opinion/immigration-us-economy.html
 
-**How Gazans have fared after Israel has asked them to flee.**\
-`By Matthew Mpoke Bigg`\
+**How Gaza Civilians Have Fared After Israel Has Asked Them to Flee**\
+`Displacement has contributed to a hunger crisis and other severe challenges for Gazans. Here is a look at what happened on a few occasions when Israel has told them to evacuate.`\
 https://nytimes.com/2024/03/19/world/middleeast/gaza-civilians-flee.html
 
 **Man Charged With Murder in Death of 3-Year-Old Boy in Brooklyn**\
