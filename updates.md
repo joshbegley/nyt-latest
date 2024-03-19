@@ -1,3 +1,7 @@
+**Brown Cruises in Ohio Democratic Senate Primary as Republicans Await Result**\
+`Senator Sherrod Brown is the only Democrat still holding statewide elective office in Ohio, which Donald J. Trump won in both 2016 and 2020.`\
+https://nytimes.com/2024/03/19/us/politics/ohio-senate.html
+
 **U.S. Accuses Two Men of Stealing Tesla Trade Secrets**\
 `Federal prosecutors said the pair tried to sell technology to manufacture batteries for electric cars that belonged to the company.`\
 https://nytimes.com/2024/03/19/business/tesla-trade-secrets-us-attorney.html

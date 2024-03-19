@@ -1,3 +1,7 @@
+**Brown Cruises in Ohio Democratic Senate Primary as Republicans Await Result**\
+`Senator Sherrod Brown is the only Democrat still holding statewide elective office in Ohio, which Donald J. Trump won in both 2016 and 2020.`\
+https://nytimes.com/2024/03/19/us/politics/ohio-senate.html
+
 **U.S. Accuses Two Men of Stealing Tesla Trade Secrets**\
 `Federal prosecutors said the pair tried to sell technology to manufacture batteries for electric cars that belonged to the company.`\
 https://nytimes.com/2024/03/19/business/tesla-trade-secrets-us-attorney.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/us/politics/halloran-nebraska-rape-reading.html
 **Alabama Republicans Pass Expansive Legislation Targeting D.E.I.**\
 `The measure would not only cut funding to diversity programs at public colleges, but also limit the teaching of “divisive concepts” surrounding race and gender.`\
 https://nytimes.com/2024/03/19/us/politics/alabama-dei-bill.html
-
-**Justices Won’t Block Texas’s Immigration Law, for Now**\
-`Also, Hong Kong adopted sweeping laws targeting criticism. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/03/19/briefing/supreme-court-texas-immigration-hong-kong.html
 
