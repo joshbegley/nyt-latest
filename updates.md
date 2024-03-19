@@ -1,3 +1,7 @@
+**Word of the Day: posterity**\
+`This word has appeared in 49 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/19/learning/word-of-the-day-posterity.html
+
 **Tuesday Briefing**\
 `Vladimir Putin’s nationalistic display.`\
 https://nytimes.com/2024/03/19/briefing/putin-speech-gambia-genital-cutting.html
