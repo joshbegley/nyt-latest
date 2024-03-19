@@ -1,3 +1,7 @@
+**Two Weeks Later, a Newsom Homeless Measure Still Hangs in the Balance**\
+`Gov. Gavin Newsom billed Proposition 1 as crucial to solving California’s homelessness crisis. Voters, who see the issue as a top concern, have split almost evenly on the proposal.`\
+https://nytimes.com/2024/03/19/us/politics/proposition-1-california-newsom.html
+
 **Hey, New Yorkers: Are You Trying to Sell Your Home Using a Real Estate Agent? We Want to Hear From You.**\
 `New changes to the way homes are bought and sold are causing confusion among buyers, sellers and real estate agents. We want to hear your experience of selling a home in New York City in 2024.`\
 https://nytimes.com/2024/03/19/realestate/nar-lawsuits-brokers-buying-selling.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/arts/martin-luther-king-jr-eig.html
 **One-Pot Mushroom and Ginger Rice, Skillet Broccoli Spaghetti**\
 `Bright, breezy recipes to welcome spring.`\
 https://nytimes.com/2024/03/19/dining/one-pot-mushroom-and-ginger-rice-skillet-broccoli-spaghetti.html
-
-**Dries Van Noten Announces Retirement**\
-`The Belgian designer, known for his glorious use of color and prints, remained independent for years. Now he’s going out on his own terms.`\
-https://nytimes.com/2024/03/19/style/dries-van-noten-retirement.html
 
