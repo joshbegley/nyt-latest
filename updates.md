@@ -1,3 +1,7 @@
+**Brazil Police Recommend Criminal Charges Against Bolsonaro**\
+`Brazil’s federal police accused the former president of falsifying his Covid-19 vaccination records.`\
+https://nytimes.com/2024/03/19/world/americas/brazil-bolsonaro-charges-covid.html
+
 **What to Watch for in Tuesday’s Primaries in Five States**\
 `The down-ballot races are the ones to pay attention to, with the presidential nominating contests already decisively clinched.`\
 https://nytimes.com/2024/03/19/us/politics/primary-today-election-watch.html
