@@ -1,3 +1,7 @@
+**White House Says Rafah Invasion ‘Would Be a Mistake’, and Trump Can’t Make Bond**\
+`Plus, a space pioneer remembered.`\
+https://nytimes.com/2024/03/19/podcasts/biden-netanyahu-rafah-trump.html
+
 **Trump’s Plan to Take Away Biden’s Biggest Advantage**\
 `Why the former president decided that the Republican National Committee needed to be systematically dismantled.`\
 https://nytimes.com/2024/03/19/podcasts/the-daily/trump-rnc-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/education/edlife/100000009364733/how-a-1-billion-gift-
 **Fed Meets Amid Worries That Inflation Progress Might Stall**\
 `Inflation had been moderating steadily, but it is now hovering around 3 percent. Will lowering it fully to normal levels prove difficult?`\
 https://nytimes.com/2024/03/19/business/economy/federal-reserve-interest-rates-inflation.html
-
-**Birthrates Are Plummeting Worldwide. Why?**\
-`The demographer Jennifer D. Sciubba examines why families — even in wealthy nations — are having fewer children.`\
-https://nytimes.com/2024/03/19/opinion/ezra-klein-podcast-jennifer-sciubba.html
 
