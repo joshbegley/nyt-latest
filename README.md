@@ -1,3 +1,11 @@
+**Democrats Prepare Aggressive Counter to Third-Party Threats**\
+`An army of lawyers aims to challenge the steadily advancing ballot-access efforts of independent candidates, who Democrats fear could peel votes away in swing states.`\
+https://nytimes.com/2024/03/20/us/politics/democrats-third-party-candidates.html
+
+**Martin Greenfield, Tailor to Sinatra, Obama, Trump and Shaq, Dies at 95**\
+`He dressed six presidents, coached designers and made thousands of suits for TV shows and movies. But his beginnings were dismal: He learned to sew at Auschwitz.`\
+https://nytimes.com/2024/03/20/fashion/martin-greenfield-dead.html
+
 **Superiority Burger Parts Ways With Ashwin Deshmukh**\
 `The popular East Village restaurant delivered the news in a letter to investors after a New York Times story reported on accusations regarding Mr. Deshmukh’s business practices.`\
 https://nytimes.com/2024/03/20/style/superiority-burger-letter-ashwin-deshmukh.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/20/science/columbia-cancer-research-retractions.html
 **The Egg Dish You Need to Make Right Now**\
 `A fragrant mash-up of shakshuka, eggs in purgatory and egg curry, this easy one-pan recipe can be made with pantry ingredients you probably already have on hand.`\
 https://nytimes.com/2024/03/20/dining/egg-dish-easter.html
-
-**The Worst Part of the Fear-Mongering Around a Muslim Judicial Nominee**\
-`It is classic guilt by association, and the questioning was so reminiscent of Senator Joseph McCarthy’s anti-communist witch hunts.`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/mangi-judicial-nominee-islamaphobia
-
-**What’s in Our Queue? ‘Veep’ and More**\
-`I’m a reporter covering tech start-ups and venture capital for The Times. Here are five things I’ve been enjoying lately.`\
-https://nytimes.com/interactive/2024/03/20/arts/editors-recommendations-veep.html
 
