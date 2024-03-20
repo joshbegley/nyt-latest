@@ -1,4 +1,4 @@
-**Texas police departments express confusion over how to proceed.**\
+**Texas police departments expressed confusion over how to proceed.**\
 `By Edgar Sandoval`\
 https://nytimes.com/live/2024/03/20/us/texas-immigration-law-sb4/texas-police-sb4-immigration-law
 
