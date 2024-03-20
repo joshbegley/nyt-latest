@@ -1,3 +1,7 @@
+**A Contentious Immigration Law Is Back on Hold, and Reddit Fans Are Getting Nervous**\
+`Plus, South Korea goes big for baseball.`\
+https://nytimes.com/2024/03/20/podcasts/texas-immigration-reddit.html
+
 **The Bombshell Case That Will Transform the Housing Market**\
 `After several lawsuits brought by home sellers, the rules around buying and selling properties are about to change.`\
 https://nytimes.com/2024/03/20/podcasts/the-daily/housing-market.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/opinion/oprah-ozempic-special-obesity.html
 **Review: ‘3 Body Problem’ Is a Galaxy-Brained Spectacle**\
 `The Netflix sci-fi adaptation has done its physics homework, even if it sometimes falls short on the humanities.`\
 https://nytimes.com/2024/03/20/arts/television/3-body-problem-netflix-review.html
-
-**Symbolism or Strategy? Ukraine Battles to Retain Small Gains**\
-`Despite American doubts, Ukrainians say that defending places with little strategic value is worth the cost in casualties and weapons, because the attacking Russians pay an even higher price.`\
-https://nytimes.com/2024/03/20/world/europe/ukraine-russia-south.html
 
