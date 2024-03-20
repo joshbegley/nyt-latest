@@ -1,3 +1,7 @@
+**Here’s What to Know About Vietnam’s Communist Government**\
+`The departure of President Vo Van Thuong, who occupied a largely ceremonial role, could have implications for the country’s future.`\
+https://nytimes.com/2024/03/20/world/asia/vietnam-communist-explainer.html
+
 **Following Measles Outbreaks, Scientists Grow Wary of Renewed Threat**\
 `Cases this year have already topped the total in 2023. Unvaccinated travelers account for most infections.`\
 https://nytimes.com/2024/03/20/health/measles-children-travel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/magazine/chicken-perloo-recipe.html
 **Today is the deadline for the presidential campaigns’ February financial reports.**\
 `By Rebecca Davis O’Brien`\
 https://nytimes.com/live/2024/03/20/us/trump-biden-election/today-is-the-deadline-for-the-presidential-campaigns-february-financial-reports
-
-**20pol-swiper**\
-`Election Updates: Takeaways from Tuesday’s primaries, and a campaign finance deadline looms.`\
-https://nytimes.com/live/2024/03/20/us/trump-biden-election
 
