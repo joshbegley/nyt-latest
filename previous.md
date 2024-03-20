@@ -1,3 +1,7 @@
+**U.S. Debt Races Toward Record This Decade, C.B.O. Warns**\
+`Recently passed spending limits have slightly improved the nation’s fiscal outlook.`\
+https://nytimes.com/2024/03/20/us/politics/debt-taxes-budget.html
+
 **‘Dead Outlaw,’ a Mummy Musical, Is So Strange It Can Only Be True**\
 `The creators of “The Band’s Visit” reunited to tell the story of an outlaw whose body toured carnivals for decades.`\
 https://nytimes.com/2024/03/20/theater/dead-outlaw-audible.html
@@ -7,8 +11,8 @@ https://nytimes.com/2024/03/20/theater/dead-outlaw-audible.html
 https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/congress-seeks-to-bar-funding-for-the-un-agency-for-palestinians
 
 **Texas police departments expressed confusion over how to proceed.**\
-`By Edgar Sandoval`\
-https://nytimes.com/live/2024/03/20/us/texas-immigration-law-sb4/texas-police-sb4-immigration-law
+`The flurry of recent back-and-forth legal orders left law enforcement leaders hesitant to act until an appeals court panel issues its ruling.`\
+https://nytimes.com/2024/03/20/us/texas-police-sb4-immigration-law.html
 
 **A federal appeals court shaped by Trump is at the center of a debate over border authority.**\
 `By Mattathias Schwartz`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/dining/doubles-trinidad.html
 **Georgia Judge Allows Trump and Co-Defendants to Appeal Ruling on Prosecutor**\
 `An appeals court will now decide if it will weigh in on whether Fani T. Willis, the Fulton County district attorney, should be disqualified.`\
 https://nytimes.com/2024/03/20/us/trump-georgia-fani-willis-appeal.html
-
-**When We See the Climate More Clearly, What Will We Do?**\
-`A new satellite will show us the full extent of methane emissions. Will we act?`\
-https://nytimes.com/2024/03/20/opinion/climate-change-methane-satellite-emissions.html
 

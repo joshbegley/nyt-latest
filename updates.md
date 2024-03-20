@@ -1,3 +1,11 @@
+**U.S. Debt Races Toward Record This Decade, C.B.O. Warns**\
+`Recently passed spending limits have slightly improved the nation’s fiscal outlook.`\
+https://nytimes.com/2024/03/20/us/politics/debt-taxes-budget.html
+
+**Texas police departments expressed confusion over how to proceed.**\
+`The flurry of recent back-and-forth legal orders left law enforcement leaders hesitant to act until an appeals court panel issues its ruling.`\
+https://nytimes.com/2024/03/20/us/texas-police-sb4-immigration-law.html
+
 **‘Dead Outlaw,’ a Mummy Musical, Is So Strange It Can Only Be True**\
 `The creators of “The Band’s Visit” reunited to tell the story of an outlaw whose body toured carnivals for decades.`\
 https://nytimes.com/2024/03/20/theater/dead-outlaw-audible.html
