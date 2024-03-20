@@ -1,3 +1,19 @@
+**Eclipses Injured Their Eyes, and the World Never Looked the Same**\
+`A number of case studies published after recent total solar eclipses highlight the importance of safe viewing.`\
+https://nytimes.com/2024/03/20/health/total-solar-eclipse-eye-safety.html
+
+**A Supremely Comforting One-Pot Rice Dish**\
+`Perloo, a Lowcountry staple with roots in West Africa, is a great meal for a gathering.`\
+https://nytimes.com/2024/03/20/magazine/chicken-perloo-recipe.html
+
+**Today is the deadline for the presidential campaigns’ February financial reports.**\
+`By Rebecca Davis O’Brien`\
+https://nytimes.com/live/2024/03/20/us/trump-biden-election/today-is-the-deadline-for-the-presidential-campaigns-february-financial-reports
+
+**20pol-swiper**\
+`Election Updates: Takeaways from Tuesday’s primaries, and a campaign finance deadline looms.`\
+https://nytimes.com/live/2024/03/20/us/trump-biden-election
+
 **Here is the latest on the Texas immigration law.**\
 `By J. David Goodman`\
 https://nytimes.com/live/2024/03/20/us/texas-immigration-law-supreme-court/here-is-the-latest-on-the-texas-immigration-law
@@ -21,20 +37,4 @@ https://nytimes.com/2024/03/20/us/california-classical-music-scene.html
 **My In-Laws Gave Gifts to Two Grandchildren, but Not to a Third. Help!**\
 `Two years after one of her children received a generous birthday gift, a reader wonders whether to intervene on behalf of her overlooked child.`\
 https://nytimes.com/2024/03/20/style/in-laws-gifts-grandchildren.html
-
-**France Fines Google in A.I. Dispute With News Media**\
-`The French competition authority said the tech giant failed to negotiate fair licensing deals with media outlets and did not tell them it was using their articles to train its chatbot.`\
-https://nytimes.com/2024/03/20/business/france-google-fine.html
-
-**Ireland’s Prime Minister to Step Down**\
-`In an unexpected announcement, Leo Varadkar said he would resign from the leadership of the country and of his party, Fine Gael.`\
-https://nytimes.com/2024/03/20/world/europe/ireland-varadkar-taoiseach-resign.html
-
-**Is Microsoft Building an Unassailable Lead in A.I.?**\
-`Hiring Mustafa Suleyman, the DeepMind co-founder, is a coup for the tech giant’s ambitions. But regulators may be skeptical.`\
-https://nytimes.com/2024/03/20/business/dealbook/microsoft-suleyman-ai-inflection.html
-
-**Report of Kate Privacy Breach Is Being Assessed by U.K. Authorities**\
-`Britain’s data protection watchdog said it was investigating after claims that a hospital employee had tried to obtain the medical records of Catherine, Princess of Wales.`\
-https://nytimes.com/2024/03/20/world/europe/princess-kate-middleton-hospital-records-uk.html
 

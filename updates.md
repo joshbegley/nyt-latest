@@ -1,3 +1,19 @@
+**Eclipses Injured Their Eyes, and the World Never Looked the Same**\
+`A number of case studies published after recent total solar eclipses highlight the importance of safe viewing.`\
+https://nytimes.com/2024/03/20/health/total-solar-eclipse-eye-safety.html
+
+**A Supremely Comforting One-Pot Rice Dish**\
+`Perloo, a Lowcountry staple with roots in West Africa, is a great meal for a gathering.`\
+https://nytimes.com/2024/03/20/magazine/chicken-perloo-recipe.html
+
+**Today is the deadline for the presidential campaigns’ February financial reports.**\
+`By Rebecca Davis O’Brien`\
+https://nytimes.com/live/2024/03/20/us/trump-biden-election/today-is-the-deadline-for-the-presidential-campaigns-february-financial-reports
+
+**20pol-swiper**\
+`Election Updates: Takeaways from Tuesday’s primaries, and a campaign finance deadline looms.`\
+https://nytimes.com/live/2024/03/20/us/trump-biden-election
+
 **Here is the latest on the Texas immigration law.**\
 `By J. David Goodman`\
 https://nytimes.com/live/2024/03/20/us/texas-immigration-law-supreme-court/here-is-the-latest-on-the-texas-immigration-law
