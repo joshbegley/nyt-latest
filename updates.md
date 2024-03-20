@@ -1,3 +1,7 @@
+**Word of the Day: rigorous**\
+`This word has appeared in 445 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/20/learning/word-of-the-day-rigorous.html
+
 **A Museum’s Feminist Artwork Excluded Men. So One Man Took It to Court.**\
 `Gender-based discrimination is central to the women-only art installation, in Australia, but one visitor claims it is also illegal.`\
 https://nytimes.com/2024/03/20/world/australia/mona-ladies-lounge-tasmania.html
