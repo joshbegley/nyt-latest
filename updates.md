@@ -1,3 +1,11 @@
+**New Rules Will Still Push Carmakers to Sell More Electric Cars**\
+`New Biden administration auto rules will ease requirements compared with an earlier proposal but will still add to market pressure for cheaper electric vehicles.`\
+https://nytimes.com/2024/03/20/business/new-rules-will-still-push-carmakers-to-sell-more-electric-cars.html
+
+**What to Know About Biden’s New Clean Cars Regulation**\
+`The new rule is not a ban on gas cars. Here’s how it works.`\
+https://nytimes.com/2024/03/20/climate/biden-clean-car-rule-key-facts.html
+
 **At Carnegie Hall, the New Pianists Are Young and Younger**\
 `Jan Lisiecki, 28, is the elder statesman alongside Alexander Malofeev and Yunchan Lim in a trio of recent recital debuts at the hall.`\
 https://nytimes.com/2024/03/20/arts/music/lisiecki-malofeev-yunchan-lim-piano-carnegie.html
