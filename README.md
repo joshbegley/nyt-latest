@@ -1,3 +1,7 @@
+**Congress seeks to bar funding for the U.N. agency for Palestinians.**\
+`By Adam Rasgon and Robert Jimison`\
+https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/congress-seeks-to-bar-funding-for-the-un-agency-for-palestinians
+
 **Texas police departments expressed confusion over how to proceed.**\
 `By Edgar Sandoval`\
 https://nytimes.com/live/2024/03/20/us/texas-immigration-law-sb4/texas-police-sb4-immigration-law
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/opinion/climate-change-methane-satellite-emission
 **How to read the Fed’s projections like a pro**\
 `The Federal Reserve is expected to leave rates unchanged on Wednesday. But Wall Street is focused on what comes next.`\
 https://nytimes.com/live/2024/03/20/business/fed-meeting-interest-rates/how-to-read-the-feds-projections-like-a-pro
-
-**‘Breaking,’ ‘Thanksgiving’ and More Streaming Gems**\
-`Crime thrillers, a crackling slasher and a documentary exploration of a rare Beatles failure are among our recommendations for your streaming subscription services this month.`\
-https://nytimes.com/2024/03/20/movies/breaking-thanksgiving-streaming-movies.html
 
