@@ -1,3 +1,11 @@
+**Blinken is adding a stop in Israel to his Mideast trip.**\
+`By Michael Crowley and Cassandra Vinograd`\
+https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/blinken-israel-trip
+
+**Top U.S. Diplomat Starts Mideast Trip in Saudi Arabia**\
+`Efforts to secure a cease-fire in Gaza are the backdrop, but the Biden administration also hopes to persuade Saudi Arabia to establish normal relations with Israel.`\
+https://nytimes.com/2024/03/20/world/middleeast/blinken-trip-us-israel-hamas.html
+
 **These Mobile Games Are for the Birds**\
 `How do you design an app for a parrot? Consider games that are “made to be licked,” a new study suggests.`\
 https://nytimes.com/2024/03/20/science/parrots-pet-videogames.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/20/us/texas-immigration-law-supreme-court
 **NYCHA’s Outgoing Watchdog, Bart Schwartz, on the Difficult Work Ahead**\
 `For five years, Mr. Schwartz monitored the New York City Housing Authority and tried to root out problems and corruption. In a final report and interview, he said he was hopeful.`\
 https://nytimes.com/2024/03/20/nyregion/nycha-public-housing-new-york.html
-
-**Why Tech Companies Are Not Your Friends: Lessons From Roku**\
-`Roku recently changed its policy to make it even harder for customers to take legal action. It’s a reminder of how we need to protect ourselves.`\
-https://nytimes.com/2024/03/20/technology/personaltech/roku-data-breach-companies.html
-
-**Big Changes Are Coming to California’s Classical Music Scene**\
-`The San Francisco Symphony, Los Angeles Opera and Los Angeles Philharmonic will all be getting new musical directors in the next two years.`\
-https://nytimes.com/2024/03/20/us/california-classical-music-scene.html
 
