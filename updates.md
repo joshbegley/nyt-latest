@@ -1,3 +1,7 @@
+**Following Measles Outbreaks, Scientists Grow Wary of Renewed Threat**\
+`Cases this year have already topped the total in 2023. Unvaccinated travelers account for most infections.`\
+https://nytimes.com/2024/03/20/health/measles-children-travel.html
+
 **Blinken Adds a Stop in Israel to His Mideast Trip**\
 `Antony Blinken, the top U.S. diplomat, is making his sixth trip to the Mideast since Oct. 7. The State Department said he would discuss freeing the hostages and increasing aid to Gaza.`\
 https://nytimes.com/2024/03/20/world/middleeast/blinken-israel-visit-ceasefire.html

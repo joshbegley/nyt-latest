@@ -1,3 +1,7 @@
+**Following Measles Outbreaks, Scientists Grow Wary of Renewed Threat**\
+`Cases this year have already topped the total in 2023. Unvaccinated travelers account for most infections.`\
+https://nytimes.com/2024/03/20/health/measles-children-travel.html
+
 **Who Is Leo Varadkar?**\
 `Mr. Varadkar, who said on Wednesday that he would step down as Ireland’s prime minister, has had a career of firsts. His resignation came as a surprise.`\
 https://nytimes.com/2024/03/20/world/europe/who-is-leo-varadkar.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/20/us/trump-biden-election/today-is-the-deadlin
 **20pol-swiper**\
 `Election Updates: Takeaways from Tuesday’s primaries, and a campaign finance deadline looms.`\
 https://nytimes.com/live/2024/03/20/us/trump-biden-election
-
-**Here is the latest on the Texas immigration law.**\
-`By J. David Goodman`\
-https://nytimes.com/live/2024/03/20/us/texas-immigration-law-supreme-court/here-is-the-latest-on-the-texas-immigration-law
 
