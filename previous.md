@@ -14,8 +14,8 @@ https://nytimes.com/2024/03/20/theater/dead-outlaw-audible.html
 `By Adam Rasgon and Robert Jimison`\
 https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/congress-seeks-to-bar-funding-for-the-un-agency-for-palestinians
 
-**Texas police departments expressed confusion over how to proceed.**\
-`The flurry of recent back-and-forth legal orders left law enforcement leaders hesitant to act until an appeals court panel issues its ruling.`\
+**Texas Police Departments Express Confusion Over New Immigration Law**\
+`The flurry of recent back-and-forth legal orders left law enforcement leaders hesitant on how they plan to enforce the law, if it ever takes effect.`\
 https://nytimes.com/2024/03/20/us/texas-police-sb4-immigration-law.html
 
 **A federal appeals court shaped by Trump is at the center of a debate over border authority.**\

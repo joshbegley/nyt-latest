@@ -1,3 +1,7 @@
+**Texas Police Departments Express Confusion Over New Immigration Law**\
+`The flurry of recent back-and-forth legal orders left law enforcement leaders hesitant on how they plan to enforce the law, if it ever takes effect.`\
+https://nytimes.com/2024/03/20/us/texas-police-sb4-immigration-law.html
+
 **What’s in Our Queue? ‘Veep’ and More**\
 `I’m a reporter covering tech start-ups and venture capital for The Times. Here are five things I’ve been enjoying lately.`\
 https://nytimes.com/interactive/2024/03/20/arts/editors-recommendations-veep.html
