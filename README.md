@@ -1,3 +1,7 @@
+**Read the Federal Appeals Court Ruling**\
+`The U.S. Court of Appeals for the Fifth Circuit issued a new order effectively blocking again a Texas law that would make it a crime to cross into the state from Mexico without authorization.`\
+https://nytimes.com/interactive/2024/03/20/us/fifth-circuit-order.html
+
 **Tech Giant Linked to France’s Cybersecurity Tumbles in Value**\
 `The French government said it would seek “a national solution” to protect Atos, a debt-burdened company that serves nuclear programs and the military.`\
 https://nytimes.com/2024/03/20/business/tech-giant-linked-to-frances-cybersecurity-tumbles-in-value.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/crosswords/daily-puzzle-2024-03-20.html
 **‘It is scary’: Migrants on Texas border say they fear arrest.**\
 `By Edgar Sandoval`\
 https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/it-is-scary-migrants-on-texas-border-say-they-fear-arrest
-
-**Review: An Affair to Dismember, in the Gory Musical ‘Teeth’**\
-`A cult horror film about a teenage girl with a surprise set of chompers gets another surprise: the song-and-dance treatment.`\
-https://nytimes.com/2024/03/19/theater/teeth-review-michael-r-jackson.html
 
