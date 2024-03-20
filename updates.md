@@ -1,3 +1,11 @@
+**Superiority Burger Parts Ways With Ashwin Deshmukh**\
+`The popular East Village restaurant delivered the news in a letter to investors after a New York Times story reported on accusations regarding Mr. Deshmukh’s business practices.`\
+https://nytimes.com/2024/03/20/style/superiority-burger-letter-ashwin-deshmukh.html
+
+**Man Boarded Delta Flight Using Ticket Ruse, U.S. Says**\
+`By taking pictures of other passengers’ boarding passes on their phones, the man was able to board a Delta Air Lines flight in Salt Lake City on Sunday, according a federal complaint.`\
+https://nytimes.com/2024/03/20/business/delta-unticketed-passenger-arrested.html
+
 **Man Boarded Delta Flight With Ticket Ruse, U.S. Says**\
 `By taking pictures of other passengers’ boarding passes on their phones, the man was able to board a Delta Air Lines flight in Salt Lake City on Sunday, according a federal complaint.`\
 https://nytimes.com/2024/03/20/business/delta-unticketed-passenger-arrested.html

@@ -1,4 +1,8 @@
-**Man Boarded Delta Flight With Ticket Ruse, U.S. Says**\
+**Superiority Burger Parts Ways With Ashwin Deshmukh**\
+`The popular East Village restaurant delivered the news in a letter to investors after a New York Times story reported on accusations regarding Mr. Deshmukh’s business practices.`\
+https://nytimes.com/2024/03/20/style/superiority-burger-letter-ashwin-deshmukh.html
+
+**Man Boarded Delta Flight Using Ticket Ruse, U.S. Says**\
 `By taking pictures of other passengers’ boarding passes on their phones, the man was able to board a Delta Air Lines flight in Salt Lake City on Sunday, according a federal complaint.`\
 https://nytimes.com/2024/03/20/business/delta-unticketed-passenger-arrested.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/19/opinion/thepoint/mangi-judicial-nominee-isla
 **What’s in Our Queue? ‘Veep’ and More**\
 `I’m a reporter covering tech start-ups and venture capital for The Times. Here are five things I’ve been enjoying lately.`\
 https://nytimes.com/interactive/2024/03/20/arts/editors-recommendations-veep.html
-
-**U.S. Debt Races Toward Record This Decade, C.B.O. Warns**\
-`Recently passed spending limits have slightly improved the nation’s fiscal outlook.`\
-https://nytimes.com/2024/03/20/us/politics/debt-taxes-budget.html
 
