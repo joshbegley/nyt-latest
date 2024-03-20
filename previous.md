@@ -1,3 +1,7 @@
+**Study About Purported Ancient ‘Pyramid’ in Indonesia Is Retracted**\
+`The study, based on research featured in a Netflix documentary, fueled debate over a site that is used for Islamic and Hindu rituals.`\
+https://nytimes.com/2024/03/20/science/indonesia-oldest-pyramid-gunung-padang.html
+
 **March Madness**\
 `Will you be watching? What predictions can you make?`\
 https://nytimes.com/2024/03/20/learning/march-madness.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/nyregion/rob-alicia-menendez-msnbc.html
 **Rising Discipline Problems in Schools: Another Sign of Pandemic’s Toll**\
 `Incidents of student misconduct have risen in New York City since pandemic disruptions, though serious crimes in schools have decreased.`\
 https://nytimes.com/2024/03/20/nyregion/safety-incidents-nyc-schools-police-discipline.html
-
-**Jimmy Fallon Thinks Hiring an Ex-Con Is the Right Move for Trump**\
-`Employing Paul Manafort, a former campaign adviser who was convicted of fraud, “will make Trump seem less fraudy by comparison,” the “Tonight Show” host reasoned.`\
-https://nytimes.com/2024/03/20/arts/television/fallon-trump-manafort.html
 
