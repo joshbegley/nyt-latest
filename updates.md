@@ -1,3 +1,7 @@
+**A Contentious Immigration Law Is Back on Hold, and Reddit Fans Are Getting Nervous**\
+`Plus, South Korea goes big for baseball.`\
+https://nytimes.com/2024/03/20/podcasts/texas-immigration-reddit.html
+
 **The Bombshell Case That Will Transform the Housing Market**\
 `After several lawsuits brought by home sellers, the rules around buying and selling properties are about to change.`\
 https://nytimes.com/2024/03/20/podcasts/the-daily/housing-market.html
