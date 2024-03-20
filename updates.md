@@ -1,3 +1,7 @@
+**New Rules Will Still Push Carmakers to Sell More Electric Cars**\
+`New Biden administration auto rules are less forceful than an earlier proposal but will still add to market pressure for cheaper electric vehicles.`\
+https://nytimes.com/2024/03/20/business/new-rules-will-still-push-carmakers-to-sell-more-electric-cars.html
+
 **Appeals court panel includes a former top lawyer for Greg Abbott.**\
 `By J. David Goodman`\
 https://nytimes.com/live/2024/03/20/us/texas-immigration-law-sb4/appeals-court-panel-includes-a-former-top-lawyer-for-greg-abbott
