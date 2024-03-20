@@ -18,7 +18,7 @@ https://nytimes.com/2024/03/20/world/middleeast/unrwa-senate-gaza.html
 `Higher rates benefit those who can save, but for borrowers, falling rates would reduce bills on credit cards, student loans and other forms of debt.`\
 https://nytimes.com/2024/03/20/business/interest-rates-mortgages-credit-cards.html
 
-**Fossil Trove from 74,000 Years Ago Points to Remarkably Adaptive Humans**\
+**Fossil Trove From 74,000 Years Ago Points to Remarkably Adaptive Humans**\
 `An archaeological site in Ethiopia revealed the oldest-known arrowheads and the remnants of a major volcanic eruption.`\
 https://nytimes.com/2024/03/20/science/early-humans-arrowheads-volcano.html
 
