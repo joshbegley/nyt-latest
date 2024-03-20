@@ -1,3 +1,7 @@
+**Jimmy Fallon Thinks Hiring an Ex-Con Is the Right Move for Trump**\
+`Employing Paul Manafort, a former campaign adviser who was convicted of fraud, “will make Trump seem less fraudy by comparison,” the “Tonight Show” host reasoned.`\
+https://nytimes.com/2024/03/20/arts/television/fallon-trump-manafort.html
+
 **Word of the Day: rigorous**\
 `This word has appeared in 445 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/20/learning/word-of-the-day-rigorous.html
