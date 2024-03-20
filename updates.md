@@ -1,3 +1,11 @@
+**Here is the latest on the Texas immigration law.**\
+`By J. David Goodman`\
+https://nytimes.com/live/2024/03/20/us/texas-immigration-law-supreme-court/here-is-the-latest-on-the-texas-immigration-law
+
+**20texas-border**\
+`Live Updates: Appeals Court to Decide if Texas Can Begin Arresting Migrants`\
+https://nytimes.com/live/2024/03/20/us/texas-immigration-law-supreme-court
+
 **NYCHA’s Outgoing Watchdog, Bart Schwartz, on the Difficult Work Ahead**\
 `For five years, Mr. Schwartz monitored the New York City Housing Authority and tried to root out problems and corruption. In a final report and interview, he said he was hopeful.`\
 https://nytimes.com/2024/03/20/nyregion/nycha-public-housing-new-york.html
