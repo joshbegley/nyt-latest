@@ -1,3 +1,7 @@
+**In N.Y. Suburbs, Republicans Seek Edge by Targeting Transgender Athletes**\
+`A debate over transgender women and girls in sports in Nassau County spurred a legal fight, a visit from Caitlyn Jenner and a mixed response from residents.`\
+https://nytimes.com/2024/03/20/nyregion/nassau-trans-women-sports.html
+
 **Study About Purported Ancient ‘Pyramid’ in Indonesia Is Retracted**\
 `The study, based on research featured in a Netflix documentary, fueled debate over a site that is used for Islamic and Hindu rituals.`\
 https://nytimes.com/2024/03/20/science/indonesia-oldest-pyramid-gunung-padang.html
