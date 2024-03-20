@@ -1,3 +1,7 @@
+**Bill Jorgensen, Authoritative New York TV Newsman, Dies at 96**\
+`Getting his start in the Midwest, he was best known for leading the New York broadcast “The 10 O’Clock News.”`\
+https://nytimes.com/2024/03/20/nyregion/bill-jorgensen-dead.html
+
 **House of Lords Stalls U.K. Bill to Send Asylum Seekers to Rwanda**\
 `Parliament is all but certain to approve the government’s plan, but a rare show of defiance by the unelected upper house showed the depth of opposition.`\
 https://nytimes.com/2024/03/20/world/europe/uk-rwanda-bill-lords.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/arts/television/quiet-on-set-documentary-takeaway
 **Dissecting the ‘Cowboy Carter’ Cover: Beyoncé’s Yeehaw Agenda**\
 `On Tuesday, the pop star revealed her new album’s cover, a constellation of country signifiers reminding fans of her Texas roots.`\
 https://nytimes.com/2024/03/20/style/beyonce-cowboy-carter-album-cover.html
-
-**Supreme Court Hears Case on Arrests Motivated by Politics**\
-`A Texas city councilwoman, arrested on charges of mishandling documents after criticizing the city manager, said her First Amendment rights had been violated.`\
-https://nytimes.com/2024/03/20/us/politics/supreme-court-politically-motivated-arrests.html
 
