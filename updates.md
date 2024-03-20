@@ -1,3 +1,7 @@
+**Texas’ Immigration Crackdown Recalls Arizona’s Divisive ‘Show Me Your Papers’ Law**\
+`The Supreme Court eventually struck down portions of Arizona’s law, which had set off a torrent of fear and anger.`\
+https://nytimes.com/2024/03/19/us/texas-arizona-immigration-law.html
+
 **In Hong Kong, China’s Grip Can Feel Like ‘Death by a Thousand Cuts’**\
 `As Hong Kong’s leaders embrace China’s top-down political culture, many believe the city’s dynamism and vitality are slipping away.`\
 https://nytimes.com/2024/03/19/world/asia/hong-kong-security-law-china.html
