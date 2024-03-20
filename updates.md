@@ -1,3 +1,7 @@
+**Ramy Youssef: Mixing Vibes and Politics to Fierce Effect**\
+`In “More Feelings” on HBO, the comic takes a nuanced look at his own role as a Muslim celebrity and at the American response to conflict in the Mideast.`\
+https://nytimes.com/2024/03/20/arts/television/ramy-youssef-more-feelings-hbo.html
+
 **U.F.C. Settles Antitrust Suit With Fighters for $335 Million**\
 `The organization’s parent company admitted no wrongdoing but agreed to pay the fighters, who had accused it of suppressing their pay.`\
 https://nytimes.com/2024/03/20/business/ufc-antitrust-lawsuit-settlement.html

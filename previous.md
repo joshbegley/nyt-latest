@@ -1,3 +1,7 @@
+**Ramy Youssef: Mixing Vibes and Politics to Fierce Effect**\
+`In “More Feelings” on HBO, the comic takes a nuanced look at his own role as a Muslim celebrity and at the American response to conflict in the Mideast.`\
+https://nytimes.com/2024/03/20/arts/television/ramy-youssef-more-feelings-hbo.html
+
 **U.F.C. Settles Antitrust Suit With Fighters for $335 Million**\
 `The organization’s parent company admitted no wrongdoing but agreed to pay the fighters, who had accused it of suppressing their pay.`\
 https://nytimes.com/2024/03/20/business/ufc-antitrust-lawsuit-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/congress-se
 **Texas Police Departments Express Confusion Over New Immigration Law**\
 `The flurry of recent back-and-forth legal orders left law enforcement leaders hesitant on how they plan to enforce the law, if it ever takes effect.`\
 https://nytimes.com/2024/03/20/us/texas-police-sb4-immigration-law.html
-
-**A federal appeals court shaped by Trump is at the center of a debate over border authority.**\
-`By Mattathias Schwartz`\
-https://nytimes.com/live/2024/03/20/us/texas-immigration-law-sb4/a-federal-appeals-court-shaped-by-trump-is-at-the-center-of-a-debate-over-border-authority
 
