@@ -1,3 +1,7 @@
+**National Security Adviser Makes Covert Trip to Kyiv**\
+`Jake Sullivan met with President Volodymyr Zelensky of Ukraine and his senior officials as additional U.S. aid continued to languish in the House.`\
+https://nytimes.com/2024/03/20/us/politics/jake-sullivan-ukraine.html
+
 **Fight Over Texas Law Underscores a Battle of America vs. Its States**\
 `The partisan gridlock gumming up Washington has prompted states controlled by one party to set off on their own.`\
 https://nytimes.com/2024/03/20/us/politics/texas-law-states-immigration-migrants.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/briefing/electric-vehicle-rule-texas-federal-gove
 **See How Texas Is Testing the Limits of State-Run Border Control**\
 `In this stretch of the southern border, in Eagle Pass, Texas, Gov. Greg Abbott has deployed state troopers and added extra barriers to keep migrants out.`\
 https://nytimes.com/interactive/2024/03/20/us/abbott-immigration-texas-border.html
-
-**Netanyahu Assails Schumer, Dramatizing Partisan Split Over Israel**\
-`The prime minister addressed Senate Republicans remotely after Senator Chuck Schumer called him out in an explosive speech urging a new election in Israel.`\
-https://nytimes.com/2024/03/20/us/politics/netanyahu-schumer-israel.html
 

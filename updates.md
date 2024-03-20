@@ -1,3 +1,7 @@
+**National Security Adviser Makes Covert Trip to Kyiv**\
+`Jake Sullivan met with President Volodymyr Zelensky of Ukraine and his senior officials as additional U.S. aid continued to languish in the House.`\
+https://nytimes.com/2024/03/20/us/politics/jake-sullivan-ukraine.html
+
 **Fight Over Texas Law Underscores a Battle of America vs. Its States**\
 `The partisan gridlock gumming up Washington has prompted states controlled by one party to set off on their own.`\
 https://nytimes.com/2024/03/20/us/politics/texas-law-states-immigration-migrants.html
