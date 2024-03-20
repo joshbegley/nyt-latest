@@ -1,3 +1,7 @@
+**Biden Issued a Regulation to Expand Electric Vehicle Use**\
+`Also, Texas and the federal government faced off in court. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/03/20/briefing/electric-vehicle-rule-texas-federal-government-court.html
+
 **See How Texas is Testing the Limits of State-Run Border Control**\
 `In this stretch of the southern border, in Eagle Pass, Texas, Gov. Greg Abbott has deployed state troopers and added extra barriers to keep migrants out.`\
 https://nytimes.com/interactive/2024/03/20/us/abbott-immigration-texas-border.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/arts/downton-abbey-movie.html
 **A Big Step Toward a Fairer Housing Market**\
 `Realtors’ commission practices have long been anticompetitive. That’s changing.`\
 https://nytimes.com/2024/03/20/opinion/realtors-agents-commissions-settlement.html
-
-**How to Recognize the Most Common Form of Skin Cancer**\
-`The fitness celebrity Richard Simmons said he was treated for basal cell carcinoma. Here’s how to recognize and prevent it.`\
-https://nytimes.com/2024/03/20/well/live/basal-cell-carcinoma-skin-cancer.html
 
