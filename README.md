@@ -1,3 +1,11 @@
+**Here is the latest on the Texas immigration law.**\
+`By J. David Goodman`\
+https://nytimes.com/live/2024/03/20/us/texas-immigration-law-supreme-court/here-is-the-latest-on-the-texas-immigration-law
+
+**20texas-border**\
+`Live Updates: Appeals Court to Decide if Texas Can Begin Arresting Migrants`\
+https://nytimes.com/live/2024/03/20/us/texas-immigration-law-supreme-court
+
 **NYCHA’s Outgoing Watchdog, Bart Schwartz, on the Difficult Work Ahead**\
 `For five years, Mr. Schwartz monitored the New York City Housing Authority and tried to root out problems and corruption. In a final report and interview, he said he was hopeful.`\
 https://nytimes.com/2024/03/20/nyregion/nycha-public-housing-new-york.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/20/business/dealbook/microsoft-suleyman-ai-inflectio
 **Report of Kate Privacy Breach Is Being Assessed by U.K. Authorities**\
 `Britain’s data protection watchdog said it was investigating after claims that a hospital employee had tried to obtain the medical records of Catherine, Princess of Wales.`\
 https://nytimes.com/2024/03/20/world/europe/princess-kate-middleton-hospital-records-uk.html
-
-**Vietnam’s President Resigns Over Communist Party Breaches, State Media Says**\
-`The nature of President Vo Van Thuong’s wrongdoing was unclear, but his departure could be a sign of an internal power struggle among Vietnam’s leaders.`\
-https://nytimes.com/2024/03/20/world/asia/vietnam-president-thuong-resigns.html
-
-**Israel’s return to Al-Shifa points to a power vacuum in northern Gaza.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/israels-return-to-al-shifa-points-to-a-power-vacuum-in-northern-gaza
 
