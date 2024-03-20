@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘Veep’ and More**\
+`I’m a reporter covering tech start-ups and venture capital for The Times. Here are five things I’ve been enjoying lately.`\
+https://nytimes.com/interactive/2024/03/20/arts/editors-recommendations-veep.html
+
 **U.S. Debt Races Toward Record This Decade, C.B.O. Warns**\
 `Recently passed spending limits have slightly improved the nation’s fiscal outlook.`\
 https://nytimes.com/2024/03/20/us/politics/debt-taxes-budget.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/arts/william-burges-brooch-uk.html
 **Why Doubles Remain Trinidad’s Most Popular Food**\
 `This traditional dish, heady with spices and deeply satisfying, serves as a reminder of survival and possibility.`\
 https://nytimes.com/2024/03/20/dining/doubles-trinidad.html
-
-**Georgia Judge Allows Trump and Co-Defendants to Appeal Ruling on Prosecutor**\
-`An appeals court will now decide if it will weigh in on whether Fani T. Willis, the Fulton County district attorney, should be disqualified.`\
-https://nytimes.com/2024/03/20/us/trump-georgia-fani-willis-appeal.html
 
