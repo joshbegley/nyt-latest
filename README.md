@@ -1,3 +1,7 @@
+**Be a Sponge**\
+`E. M. Capassakis makes calculated choices in her New York Times debut.`\
+https://nytimes.com/2024/03/19/crosswords/daily-puzzle-2024-03-20.html
+
 **‘It is scary’: Migrants on Texas border say they fear arrest.**\
 `By Edgar Sandoval`\
 https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/it-is-scary-migrants-on-texas-border-say-they-fear-arrest
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/the-immig
 **Melania Trump Avoids Saying Whether She Will Hit Campaign Trail**\
 `The former first lady appeared with her husband as former President Donald J. Trump cast his ballot during Florida’s primaries. Asked if she would be a more frequent presence, she said “stay tuned.”`\
 https://nytimes.com/2024/03/19/us/politics/melania-trump-campaign.html
-
-**This Was Village Life in Britain 3,000 Years Ago**\
-`The superbly preserved remains of a Bronze Age settlement offer a glimpse of a “colorful, rich, varied” domestic life circa 850 B.C.`\
-https://nytimes.com/2024/03/19/science/archaeology-britain-must-farm.html
 
