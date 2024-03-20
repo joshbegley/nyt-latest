@@ -1,3 +1,7 @@
+**Congress seeks to bar funding for the U.N. agency for Palestinians.**\
+`By Adam Rasgon and Robert Jimison`\
+https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/congress-seeks-to-bar-funding-for-the-un-agency-for-palestinians
+
 **Texas police departments expressed confusion over how to proceed.**\
 `By Edgar Sandoval`\
 https://nytimes.com/live/2024/03/20/us/texas-immigration-law-sb4/texas-police-sb4-immigration-law
