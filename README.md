@@ -1,3 +1,11 @@
+**Texas police departments express confusion over how to proceed.**\
+`By Edgar Sandoval`\
+https://nytimes.com/live/2024/03/20/us/texas-immigration-law-sb4/texas-police-sb4-immigration-law
+
+**A federal appeals court shaped by Trump is at the center of a debate over border authority.**\
+`By Mattathias Schwartz`\
+https://nytimes.com/live/2024/03/20/us/texas-immigration-law-sb4/a-federal-appeals-court-shaped-by-trump-is-at-the-center-of-a-debate-over-border-authority
+
 **There are few easy options for Israel in northern Gaza, analysts say.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/there-are-few-easy-options-for-israel-in-northern-gaza-analysts-say
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/20/business/fed-meeting-interest-rates/how-to-r
 **‘Breaking,’ ‘Thanksgiving’ and More Streaming Gems**\
 `Crime thrillers, a crackling slasher and a documentary exploration of a rare Beatles failure are among our recommendations for your streaming subscription services this month.`\
 https://nytimes.com/2024/03/20/movies/breaking-thanksgiving-streaming-movies.html
-
-**Biden has a lot riding on what the Fed does next.**\
-`By Jim Tankersley`\
-https://nytimes.com/live/2024/03/20/business/fed-meeting-interest-rates/biden-has-a-lot-riding-on-what-the-fed-does-next
-
-**Trump Tries to Sell a Normal-ish Second Term**\
-`That’s what he seems to be telling donors, but it’s not clear whether he’s serious.`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/trump-second-term
 
