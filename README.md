@@ -1,3 +1,11 @@
+**Abel Prize Awarded for Studies of Universe’s Randomness**\
+`Michel Talagrand of France has credited a brush with blindness for leading to the work that resulted in his recognition by the math equivalent of the Nobel Prize.`\
+https://nytimes.com/2024/03/20/science/abel-prize-mathematics-randomness.html
+
+**University of California Could Bar Political Speech on Some Web Pages**\
+`With anger rising over pro-Palestinian protests, the university’s regents are set to vote on a proposal that would draw tighter boundaries around speech.`\
+https://nytimes.com/2024/03/20/us/university-of-california-israel-gaza-political-speech.html
+
 **An American Slowdown**\
 `The U.S. has always relied on population growth to keep its economy pumping. A plateau may be coming.`\
 https://nytimes.com/2024/03/20/briefing/american-population-slowdown-immigration.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/03/20/world/middleeast/gaza-aid-delivery.ht
 **The Global Effort to Make an American Microchip**\
 `The United States is investing $39 billion to help build factories. But even after U.S. facilities are built, chip manufacturing will remain decidedly global. See how.`\
 https://nytimes.com/interactive/2024/03/20/business/economy/semiconductor-chip-manufacturing-us.html
-
-**What to Watch on Wednesday as the Federal Reserve Meets**\
-`The central bank is not expected to change interest rates, but its economic projections will be in focus.`\
-https://nytimes.com/2024/03/20/business/fed-meeting-interest-rates.html
-
-**Oprah — and America — Embrace the Promise of Ozempic**\
-`Her special is a harbinger of how the weight-loss industry is rebranding: Obesity is a disease, and — for the first time — it’s not your fault.`\
-https://nytimes.com/2024/03/20/opinion/oprah-ozempic-special-obesity.html
 
