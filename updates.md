@@ -1,3 +1,7 @@
+**Thursday Briefing: Where is Gaza’s Aid?**\
+`Also, sweeping U.S. climate regulations and the “3 Body Problem” on Netflix.`\
+https://nytimes.com/2024/03/20/world/asia/gaza-aid-evs-hong-kong-asia.html
+
 **Fed Holds Rates Steady, Projects Three Cuts This Year**\
 `Federal Reserve officials kept interest rates at 5.3 percent and projected they would lower borrowing costs in 2024 as the Fed chair struck a watchful tone.`\
 https://nytimes.com/live/2024/03/20/business/fed-meeting-interest-rates/fed-holds-rates-steady-projects-three-cuts-this-year
