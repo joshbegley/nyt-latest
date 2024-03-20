@@ -14,7 +14,7 @@ https://nytimes.com/2024/03/20/opinion/kate-middleton-photoshop.html
 `A Trump-backed candidate won in the G.O.P. Senate primary in Ohio. Incumbents prevailed in Illinois. And the race to finish Kevin McCarthy’s term heads to a runoff.`\
 https://nytimes.com/2024/03/20/us/politics/takeaways-primaries-ohio-illinois-california.html
 
-**Read the Federal Appeals Court Ruling**\
+**Read the Federal Appeals Court Order**\
 `The U.S. Court of Appeals for the Fifth Circuit issued a new order effectively blocking again a Texas law that would make it a crime to cross into the state from Mexico without authorization.`\
 https://nytimes.com/interactive/2024/03/20/us/fifth-circuit-order.html
 
