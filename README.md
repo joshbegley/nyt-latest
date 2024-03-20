@@ -1,3 +1,7 @@
+**U.F.C. Settles Antitrust Suit With Fighters for $335 Million**\
+`The organization’s parent company admitted no wrongdoing but agreed to pay the fighters, who had accused it of suppressing their pay.`\
+https://nytimes.com/2024/03/20/business/ufc-antitrust-lawsuit-settlement.html
+
 **More Studies by Columbia Cancer Researchers Are Retracted**\
 `The studies, pulled because of copied data, illustrate the sluggishness of scientific publishers to address serious errors, experts said.`\
 https://nytimes.com/2024/03/20/science/columbia-cancer-research-retractions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/us/texas-police-sb4-immigration-law.html
 **A federal appeals court shaped by Trump is at the center of a debate over border authority.**\
 `By Mattathias Schwartz`\
 https://nytimes.com/live/2024/03/20/us/texas-immigration-law-sb4/a-federal-appeals-court-shaped-by-trump-is-at-the-center-of-a-debate-over-border-authority
-
-**There are few easy options for Israel in northern Gaza, analysts say.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/there-are-few-easy-options-for-israel-in-northern-gaza-analysts-say
 
