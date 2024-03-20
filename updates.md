@@ -1,3 +1,7 @@
+**House of Lords Stalls U.K. Bill to Send Asylum Seekers to Rwanda**\
+`Parliament is all but certain to approve the government’s plan, but a rare show of defiance by the unelected upper house showed the depth of opposition.`\
+https://nytimes.com/2024/03/20/world/europe/uk-rwanda-bill-lords.html
+
 **A Third ‘Downton Abbey’ Movie Is Coming, One of Its Stars Says**\
 `Imelda Staunton, who played Queen Mary’s lady-in-waiting in the first two films, told the BBC that the next movie would be the “final” installment in the long-running franchise.`\
 https://nytimes.com/2024/03/20/arts/downton-abbey-movie.html
