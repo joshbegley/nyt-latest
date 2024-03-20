@@ -1,3 +1,11 @@
+**Texas police departments express confusion over how to proceed.**\
+`By Edgar Sandoval`\
+https://nytimes.com/live/2024/03/20/us/texas-immigration-law-sb4/texas-police-sb4-immigration-law
+
+**A federal appeals court shaped by Trump is at the center of a debate over border authority.**\
+`By Mattathias Schwartz`\
+https://nytimes.com/live/2024/03/20/us/texas-immigration-law-sb4/a-federal-appeals-court-shaped-by-trump-is-at-the-center-of-a-debate-over-border-authority
+
 **There are few easy options for Israel in northern Gaza, analysts say.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/there-are-few-easy-options-for-israel-in-northern-gaza-analysts-say
