@@ -1,3 +1,7 @@
+**A Third ‘Downton Abbey’ Movie Is Coming, One of Its Stars Says**\
+`Imelda Staunton, who played Queen Mary’s lady-in-waiting in the first two films, told the BBC that the next movie would be the “final” installment in the long-running franchise.`\
+https://nytimes.com/2024/03/20/arts/downton-abbey-movie.html
+
 **A Big Step Toward a Fairer Housing Market**\
 `Realtors’ commission practices have long been anticompetitive. That’s changing.`\
 https://nytimes.com/2024/03/20/opinion/realtors-agents-commissions-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/us/politics/supreme-court-politically-motivated-a
 **Israel says it detained a Hamas leader during the Al-Shifa raid.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/israel-says-it-detained-a-hamas-leader-during-the-al-shifa-raid
-
-**Belching Volcano and Flowing Lava Dent Tourism in Icelandic Region**\
-`In a country that relies heavily on visitors, hotels faced repeated evacuations, and one resort was temporarily shut.`\
-https://nytimes.com/2024/03/20/world/europe/iceland-volcano-tourism-impact.html
 
