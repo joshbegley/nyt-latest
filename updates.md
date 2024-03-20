@@ -1,3 +1,7 @@
+**How Much Do You Know About Djibouti?**\
+`Can you find Djibouti on a map? What else do you know about this East African nation?`\
+https://nytimes.com/interactive/2024/03/20/learning/DjiboutiCountryQuiz.html
+
 **Greg Abbott Has Been Gunning for a Battle on the Border**\
 `The Texas governor has rallied Republicans by pushing the boundaries of what a governor can do when it comes to immigration. Now he’s in a head-to-head confrontation with the Biden administration.`\
 https://nytimes.com/2024/03/20/us/texas-immigration-greg-abbott.html
