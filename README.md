@@ -1,3 +1,15 @@
+**For Sale: Intimate Letters From a Rock Music Love Triangle**\
+`Eric Clapton’s handwritten messages, being auctioned this week, shed light on how he wooed Pattie Boyd away from George Harrison and on the impassioned songs the affair inspired.`\
+https://nytimes.com/2024/03/20/arts/music/pattie-boyd-george-harrison-eric-clapton-auction.html
+
+**Ex-General Accused of Rights Abuses Is Declared Winner of Indonesia Election**\
+`The official result confirmed projections made after last month’s vote, which raised concerns about the vibrancy of the country’s democracy.`\
+https://nytimes.com/2024/03/20/world/asia/prabowo-official-indonesia-election.html
+
+**Are You Talking, or Are You ‘Yapping’?**\
+`A new slang term with an old meaning emerges on TikTok.`\
+https://nytimes.com/2024/03/20/style/yapping-tiktok.html
+
 **Sarah Shook & the Disarmers Took the Hard Path. The Music Kept Coming.**\
 `After a tumultuous childhood in an ultraconservative family, River Shook finally heard country music at 23. It prompted a long journey of self-discovery.`\
 https://nytimes.com/2024/03/20/arts/music/sarah-shook-the-disarmers-river-shook-revelations.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/20/world/europe/who-is-leo-varadkar.html
 **Geologists Make It Official: We’re Not in an ‘Anthropocene’ Epoch**\
 `The field’s governing body ratified a vote by scientists on the contentious issue, ending a long effort to update the timeline of Earth’s history.`\
 https://nytimes.com/2024/03/20/climate/anthropocene-vote-upheld.html
-
-**Blinken Adds a Stop in Israel to His Mideast Trip**\
-`Antony Blinken, the top U.S. diplomat, is making his sixth trip to the Mideast since Oct. 7. The State Department said he would discuss freeing the hostages and increasing aid to Gaza.`\
-https://nytimes.com/2024/03/20/world/middleeast/blinken-israel-visit-ceasefire.html
-
-**Top U.S. Diplomat Starts Mideast Trip in Saudi Arabia**\
-`Efforts to secure a cease-fire in Gaza are the backdrop, but the Biden administration also hopes to persuade Saudi Arabia to establish normal relations with Israel.`\
-https://nytimes.com/2024/03/20/world/middleeast/blinken-trip-us-israel-hamas.html
-
-**These Mobile Games Are for the Birds**\
-`How do you design an app for a parrot? Consider games that are “made to be licked,” a new study suggests.`\
-https://nytimes.com/2024/03/20/science/parrots-pet-videogames.html
 
