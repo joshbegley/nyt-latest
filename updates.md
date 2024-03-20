@@ -1,3 +1,43 @@
+**Greg Abbott Has Been Gunning for a Battle on the Border**\
+`The Texas governor has rallied Republicans by pushing the boundaries of what a governor can do when it comes to immigration. Now he’s in a head-to-head confrontation with the Biden administration.`\
+https://nytimes.com/2024/03/20/us/texas-immigration-greg-abbott.html
+
+**Why Isn’t More Aid Getting to Gazans?**\
+`Experts say 1.1 million Gazans are at imminent risk of deadly food shortages. The process of delivering aid to them is lengthy and convoluted.`\
+https://nytimes.com/interactive/2024/03/20/world/middleeast/gaza-aid-delivery.html
+
+**The Global Effort to Make an American Microchip**\
+`The United States is investing $39 billion to help build factories. But even after U.S. facilities are built, chip manufacturing will remain decidedly global. See how.`\
+https://nytimes.com/interactive/2024/03/20/business/economy/semiconductor-chip-manufacturing-us.html
+
+**What to Watch on Wednesday as the Federal Reserve Meets**\
+`The central bank is not expected to change interest rates, but its economic projections will be in focus.`\
+https://nytimes.com/2024/03/20/business/fed-meeting-interest-rates.html
+
+**Oprah — and America — Embrace the Promise of Ozempic**\
+`Her special is a harbinger of how the weight-loss industry is rebranding: Obesity is a disease, and — for the first time — it’s not your fault.`\
+https://nytimes.com/2024/03/20/opinion/oprah-ozempic-special-obesity.html
+
+**Review: ‘3 Body Problem’ Is a Galaxy-Brained Spectacle**\
+`The Netflix sci-fi adaptation has done its physics homework, even if it sometimes falls short on the humanities.`\
+https://nytimes.com/2024/03/20/arts/television/3-body-problem-netflix-review.html
+
+**Symbolism or Strategy? Ukraine Battles to Retain Small Gains**\
+`Despite American doubts, Ukrainians say that defending places with little strategic value is worth the cost in casualties and weapons, because the attacking Russians pay an even higher price.`\
+https://nytimes.com/2024/03/20/world/europe/ukraine-russia-south.html
+
+**Zendaya Says Goodbye to Sandworms, Hello to Skorts**\
+`The actress is known for thematic dressing to promote her movies. After her “Dune” desert epic, comes a tennis love triangle, “Challengers.”`\
+https://nytimes.com/2024/03/20/style/zendaya-says-goodbye-to-sandworms-hello-to-skorts.html
+
+**Liam Cunningham Has a Few Thoughts**\
+`The loquacious Irish actor has reunited with the creators of “Game of Thrones” for “3 Body Problem,” a science fiction epic on Netflix.`\
+https://nytimes.com/2024/03/20/arts/television/liam-cunningham-3-body-problem.html
+
+**Measles Cases are Rising. Here’s What to Know About Symptoms.**\
+`Infected people can spread the virus before even realizing they have it.`\
+https://nytimes.com/2024/03/20/well/measles-outbreak-symptoms.html
+
 **When African Women Are Raped, Where Is the Outrage?**\
 `Rape should not be used as a weapon of war — in any context.`\
 https://nytimes.com/2024/03/20/opinion/ethiopia-africa-rape-assault.html
