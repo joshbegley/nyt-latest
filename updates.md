@@ -1,3 +1,11 @@
+**How to read the Fed’s projections like a pro**\
+`The Federal Reserve is expected to leave rates unchanged on Wednesday. But Wall Street is focused on what comes next.`\
+https://nytimes.com/live/2024/03/20/business/fed-meeting-interest-rates/how-to-read-the-feds-projections-like-a-pro
+
+**‘Breaking,’ ‘Thanksgiving’ and More Streaming Gems**\
+`Crime thrillers, a crackling slasher and a documentary exploration of a rare Beatles failure are among our recommendations for your streaming subscription services this month.`\
+https://nytimes.com/2024/03/20/movies/breaking-thanksgiving-streaming-movies.html
+
 **Fossil Trove From 74,000 Years Ago Points to Remarkably Adaptive Humans**\
 `An archaeological site in Ethiopia revealed the oldest-known arrowheads and the remnants of a major volcanic eruption.`\
 https://nytimes.com/2024/03/20/science/early-humans-arrowheads-volcano.html
