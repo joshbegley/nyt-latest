@@ -1,3 +1,15 @@
+**Chicago Tax Referendum and Prosecutor Primary Are Too Close to Call**\
+`A proposal to raise the transfer tax on sales of high-value properties was trailing. Two Democrats were locked in a close Cook County prosecutor primary.`\
+https://nytimes.com/2024/03/20/us/chicago-elections-prosecutor-transfer-tax.html
+
+**Trump’s Running Mate Selection Process**\
+`The former president, who knows a thing or two about televised drama, is already dropping hints.`\
+https://nytimes.com/2024/03/20/us/politics/trump-running-mate.html
+
+**Frans de Waal, Who Found the Origins of Morality in Apes, Dies at 75**\
+`An unusually popular primatologist, he drew the attention of Newt Gingrich, Isabella Rossellini, the philosopher Peter Singer and the reading public.`\
+https://nytimes.com/2024/03/20/science/frans-de-waal-died.html
+
 **Goon Squad Officer Gets 40-Year Sentence for ‘Shocking, Brutal’ Acts**\
 `A second sheriff’s deputy received a lesser sentence for his involvement in the abuse of Mississippi residents.`\
 https://nytimes.com/2024/03/20/us/dedmon-mississippi-goon-squad-sentencing.html
