@@ -12,7 +12,7 @@ https://nytimes.com/2024/03/20/theater/ibsens-ghosts-review-charles-busch.html
 
 **Appeals court panel includes a former top lawyer for Greg Abbott.**\
 `By J. David Goodman`\
-https://nytimes.com/live/2024/03/20/us/texas-immigration-law-supreme-court/appeals-court-panel-includes-a-former-top-lawyer-for-greg-abbott
+https://nytimes.com/live/2024/03/20/us/texas-immigration-law-sb4/appeals-court-panel-includes-a-former-top-lawyer-for-greg-abbott
 
 **My Mother Swears by Alternative Medicine. I’m a Scientist. What to Do?**\
 `The magazine’s Ethicist columnist on how a family might reconcile two very different belief systems.`\
