@@ -1,3 +1,7 @@
+**Mexico Condemns Texas Law, and Says It Will Not Accept Deportations From the State**\
+`Mexico’s top diplomat for North America rejected the Supreme Court’s ruling, saying that immigration policy was something to be negotiated between federal governments.`\
+https://nytimes.com/2024/03/19/us/mexico-texas-border-immigration.html
+
 **Iowa Passes Bill to Make Returning After Deportation a State Crime**\
 `Gov. Kim Reynolds, a Republican, said she would sign the measure into law.`\
 https://nytimes.com/2024/03/19/us/iowa-deportation-bill-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/texas-imm
 **Gannett and McClatchy Cut Back Relationship With A.P.**\
 `The Associated Press said the decisions by the two major newspaper chains “would not have a material impact on our overall revenue.”`\
 https://nytimes.com/2024/03/19/business/media/gannett-mcclatchy-ap-associated-press.html
-
-**The White House condemned the ‘harmful’ law, while Republicans celebrated the Supreme Court’s action.**\
-`By Ben Shpigel`\
-https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/the-white-house-condemned-the-harmful-law-while-republicans-celebrated-the-supreme-courts-action
 
