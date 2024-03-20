@@ -1,11 +1,3 @@
-**Vampire Weekend Did Not Make a ‘Doom and Gloom Record’**\
-`On its fifth album, suffused with thoughts of 20th-century New York City, indie-rock’s pop maximalists get noisier — but it’s a journey out of negativity into “something a little deeper.”`\
-https://nytimes.com/2024/03/20/arts/music/vampire-weekend-only-god-was-above-us.html
-
-**Racing to Avoid a Shutdown, Lawmakers Weigh Skirting Their Own Rules**\
-`Despite making a deal, lawmakers face several hurdles to beating a deadline to keep the government funded after Friday.`\
-https://nytimes.com/2024/03/20/us/politics/shutdown-congress-budget-rules.html
-
 **Trump Indicates He Would Back a 15-Week Federal Abortion Ban**\
 `The remarks on a radio show came after he had been privately expressing support for a similar ban, at 16 weeks.`\
 https://nytimes.com/2024/03/20/us/politics/trump-15-week-federal-abortion-ban.html
@@ -37,4 +29,12 @@ https://nytimes.com/2024/03/20/business/delta-unticketed-passenger-arrested.html
 **Details of $1.2 Trillion Spending Bill Emerge as Partial Shutdown Looms**\
 `Tucked inside a massive measure to fund the government through the fall are several initiatives sought by members of both parties. Aides are still writing the legislative language.`\
 https://nytimes.com/2024/03/20/us/politics/government-shutdown-spending-bill.html
+
+**E.U. Finds a Way to Make Russia Pay for Weapons for Ukraine**\
+`Using interest earned on frozen Russian assets held in Europe, the bloc plans to raise billions. But other ways to pay for new weapons remain elusive.`\
+https://nytimes.com/2024/03/20/world/europe/eu-russia-weapons-ukraine.html
+
+**Ramy Youssef: Mixing Vibes and Politics to Fierce Effect**\
+`In “More Feelings” on HBO, the comic takes a nuanced look at his own role as a Muslim celebrity and at the American response to conflict in the Mideast.`\
+https://nytimes.com/2024/03/20/arts/television/ramy-youssef-more-feelings-hbo.html
 

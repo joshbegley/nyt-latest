@@ -1,3 +1,11 @@
+**Vampire Weekend Did Not Make a ‘Doom and Gloom Record’**\
+`On its fifth album, suffused with thoughts of 20th-century New York City, indie-rock’s pop maximalists get noisier — but it’s a journey out of negativity into “something a little deeper.”`\
+https://nytimes.com/2024/03/20/arts/music/vampire-weekend-only-god-was-above-us.html
+
+**Racing to Avoid a Shutdown, Lawmakers Weigh Skirting Their Own Rules**\
+`Despite making a deal, lawmakers face several hurdles to beating a deadline to keep the government funded after Friday.`\
+https://nytimes.com/2024/03/20/us/politics/shutdown-congress-budget-rules.html
+
 **Trump Indicates He Would Back a 15-Week Federal Abortion Ban**\
 `The remarks on a radio show came after he had been privately expressing support for a similar ban, at 16 weeks.`\
 https://nytimes.com/2024/03/20/us/politics/trump-15-week-federal-abortion-ban.html
