@@ -1,3 +1,7 @@
+**A Sweeping New Immigration Law Takes Effect in Texas**\
+`There was no immediate response along the border after the U.S. Supreme Court cleared the way for Texas police to arrest and deport migrants. Officials have not said when enforcement would begin.`\
+https://nytimes.com/2024/03/19/us/texas-immigration-law-sb-4.html
+
 **Corrections: March 20, 2024**\
 `Corrections that appeared in print on Wednesday, March 20, 2024.`\
 https://nytimes.com/2024/03/19/pageoneplus/corrections-march-20-2024.html

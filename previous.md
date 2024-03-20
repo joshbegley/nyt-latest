@@ -1,3 +1,7 @@
+**A Sweeping New Immigration Law Takes Effect in Texas**\
+`There was no immediate response along the border after the U.S. Supreme Court cleared the way for Texas police to arrest and deport migrants. Officials have not said when enforcement would begin.`\
+https://nytimes.com/2024/03/19/us/texas-immigration-law-sb-4.html
+
 **Corrections: March 20, 2024**\
 `Corrections that appeared in print on Wednesday, March 20, 2024.`\
 https://nytimes.com/2024/03/19/pageoneplus/corrections-march-20-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/us/iowa-deportation-bill-immigration.html
 **Police in Brooklyn Fatally Shoot Man Who Chased and Shot at a Mugger**\
 `Four police officers were responding to reports of gunshots in East Flatbush when they saw the man, 20, chasing another man and a woman, the authorities said.`\
 https://nytimes.com/2024/03/19/nyregion/brooklyn-police-shooting.html
-
-**The immigration ruling carries an echo of an earlier one on a Texas abortion law.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/the-immigration-ruling-carries-an-echo-of-an-earlier-one-on-a-texas-abortion-law
 
