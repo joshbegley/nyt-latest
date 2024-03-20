@@ -1,3 +1,7 @@
+**The Bombshell Case That Will Transform the Housing Market**\
+`After several lawsuits brought by home sellers, the rules around buying and selling properties are about to change.`\
+https://nytimes.com/2024/03/20/podcasts/the-daily/housing-market.html
+
 **Can Climate Cafes Help Ease the Anxiety of Planetary Crisis?**\
 `The groups, which allow people to talk through their emotions around environmental change, have sprung up across the country, including for therapists.`\
 https://nytimes.com/2024/03/20/climate/climate-change-anxiety-fear.html
