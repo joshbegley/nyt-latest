@@ -1,3 +1,7 @@
+**‘Dead Outlaw,’ a Mummy Musical, Is So Strange It Can Only Be True**\
+`The creators of “The Band’s Visit” reunited to tell the story of an outlaw whose body toured carnivals for decades.`\
+https://nytimes.com/2024/03/20/theater/dead-outlaw-audible.html
+
 **Congress seeks to bar funding for the U.N. agency for Palestinians.**\
 `By Adam Rasgon and Robert Jimison`\
 https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/congress-seeks-to-bar-funding-for-the-un-agency-for-palestinians
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/us/trump-georgia-fani-willis-appeal.html
 **When We See the Climate More Clearly, What Will We Do?**\
 `A new satellite will show us the full extent of methane emissions. Will we act?`\
 https://nytimes.com/2024/03/20/opinion/climate-change-methane-satellite-emissions.html
-
-**How to read the Fed’s projections like a pro**\
-`The Federal Reserve is expected to leave rates unchanged on Wednesday. But Wall Street is focused on what comes next.`\
-https://nytimes.com/live/2024/03/20/business/fed-meeting-interest-rates/how-to-read-the-feds-projections-like-a-pro
 
