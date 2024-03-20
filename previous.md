@@ -1,3 +1,7 @@
+**‘It is scary’: Migrants on Texas border say they fear arrest.**\
+`By Edgar Sandoval`\
+https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/it-is-scary-migrants-on-texas-border-say-they-fear-arrest
+
 **Review: An Affair to Dismember, in the Gory Musical ‘Teeth’**\
 `A cult horror film about a teenage girl with a surprise set of chompers gets another surprise: the song-and-dance treatment.`\
 https://nytimes.com/2024/03/19/theater/teeth-review-michael-r-jackson.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/us/politics/melania-trump-campaign.html
 **This Was Village Life in Britain 3,000 Years Ago**\
 `The superbly preserved remains of a Bronze Age settlement offer a glimpse of a “colorful, rich, varied” domestic life circa 850 B.C.`\
 https://nytimes.com/2024/03/19/science/archaeology-britain-must-farm.html
-
-**In Hong Kong, China’s Grip Can Feel Like ‘Death by a Thousand Cuts’**\
-`As Hong Kong’s leaders embrace China’s top-down political culture, many believe the city’s dynamism and vitality are slipping away.`\
-https://nytimes.com/2024/03/19/world/asia/hong-kong-security-law-china.html
 

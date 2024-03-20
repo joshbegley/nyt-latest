@@ -1,3 +1,7 @@
+**‘It is scary’: Migrants on Texas border say they fear arrest.**\
+`By Edgar Sandoval`\
+https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/it-is-scary-migrants-on-texas-border-say-they-fear-arrest
+
 **Review: An Affair to Dismember, in the Gory Musical ‘Teeth’**\
 `A cult horror film about a teenage girl with a surprise set of chompers gets another surprise: the song-and-dance treatment.`\
 https://nytimes.com/2024/03/19/theater/teeth-review-michael-r-jackson.html
