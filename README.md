@@ -1,3 +1,7 @@
+**Trump Seeks to Delay Jan. 6 Civil Cases**\
+`The former president’s lawyers told the judge overseeing the proceedings it would be unfair to put on a defense now because it might reveal his strategy for the criminal case on related charges.`\
+https://nytimes.com/2024/03/19/us/politics/trump-delay-civil-cases.html
+
 **Texas’ Immigration Crackdown Recalls Arizona’s Divisive ‘Show Me Your Papers’ Law**\
 `The Supreme Court eventually struck down portions of Arizona’s law, which had set off a torrent of fear and anger.`\
 https://nytimes.com/2024/03/19/us/texas-arizona-immigration-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/world/asia/hong-kong-security-law-china.html
 **Mount Sinai and UnitedHealthcare Reach Insurance Deal**\
 `The end of the dispute means that Mount Sinai patients with UnitedHealthcare won’t need to find new doctors.`\
 https://nytimes.com/2024/03/19/nyregion/united-healthcare-mount-sinai-hospital-deal.html
-
-**Texas immigration law could undermine asylum rights.**\
-`The Texas law could endanger people fleeing persecution, legal experts said.`\
-https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/texas-immigration-law-could-undermine-asylum-rights
 
