@@ -1,3 +1,7 @@
+**Led by Its Youth, U.S. Sinks in World Happiness Report**\
+`For the first time since the first World Happiness Report was issued 2012, the United States was not ranked among the world’s Top 20 happiest countries. The drop was driven by people under 30.`\
+https://nytimes.com/2024/03/20/us/world-happiness-report-finland-us.html
+
 **Bill Jorgensen, Authoritative New York TV Newsman, Dies at 96**\
 `Getting his start in the Midwest, he was best known for leading the New York broadcast “The 10 O’Clock News.”`\
 https://nytimes.com/2024/03/20/nyregion/bill-jorgensen-dead.html

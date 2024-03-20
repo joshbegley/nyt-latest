@@ -1,3 +1,7 @@
+**Led by Its Youth, U.S. Sinks in World Happiness Report**\
+`For the first time since the first World Happiness Report was issued 2012, the United States was not ranked among the world’s Top 20 happiest countries. The drop was driven by people under 30.`\
+https://nytimes.com/2024/03/20/us/world-happiness-report-finland-us.html
+
 **Bill Jorgensen, Authoritative New York TV Newsman, Dies at 96**\
 `Getting his start in the Midwest, he was best known for leading the New York broadcast “The 10 O’Clock News.”`\
 https://nytimes.com/2024/03/20/nyregion/bill-jorgensen-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/20/us/texas-immigration-law-sb4/in-mexico-despe
 **‘Quiet on Set: The Dark Side of Kids TV’: 5 Takeaways**\
 `The Investigation Discovery documentary takes a look at accounts of a problematic working environment at Nickelodeon.`\
 https://nytimes.com/2024/03/20/arts/television/quiet-on-set-documentary-takeaways.html
-
-**Dissecting the ‘Cowboy Carter’ Cover: Beyoncé’s Yeehaw Agenda**\
-`On Tuesday, the pop star revealed her new album’s cover, a constellation of country signifiers reminding fans of her Texas roots.`\
-https://nytimes.com/2024/03/20/style/beyonce-cowboy-carter-album-cover.html
 
