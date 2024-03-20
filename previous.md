@@ -23,7 +23,7 @@ https://nytimes.com/2024/03/19/us/politics/melania-trump-campaign.html
 https://nytimes.com/2024/03/19/science/archaeology-britain-must-farm.html
 
 **In Hong Kong, China’s Grip Can Feel Like ‘Death by a Thousand Cuts’**\
-`As leaders try to curb foreign influence in Hong Kong, its status as a global city with a free flow of information is in question.`\
+`As Hong Kong’s leaders embrace China’s top-down political culture, many believe the city’s dynamism and vitality are slipping away.`\
 https://nytimes.com/2024/03/19/world/asia/hong-kong-security-law-china.html
 
 **Mount Sinai and UnitedHealthcare Reach Insurance Deal**\

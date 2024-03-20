@@ -1,3 +1,7 @@
+**In Hong Kong, China’s Grip Can Feel Like ‘Death by a Thousand Cuts’**\
+`As Hong Kong’s leaders embrace China’s top-down political culture, many believe the city’s dynamism and vitality are slipping away.`\
+https://nytimes.com/2024/03/19/world/asia/hong-kong-security-law-china.html
+
 **Mexico Condemns Texas Law, and Says It Will Not Accept Deportations From the State**\
 `Mexico’s top diplomat for North America rejected the Supreme Court’s ruling, saying that immigration policy was something to be negotiated between federal governments.`\
 https://nytimes.com/2024/03/19/us/mexico-texas-border-immigration.html
