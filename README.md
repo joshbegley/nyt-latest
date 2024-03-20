@@ -1,3 +1,7 @@
+**A Museum’s Feminist Artwork Excluded Men. So One Man Took It to Court.**\
+`Gender-based discrimination is central to the women-only art installation, in Australia, but one visitor claims it is also illegal.`\
+https://nytimes.com/2024/03/20/world/australia/mona-ladies-lounge-tasmania.html
+
 **Sherrod Brown Can Breathe a Little Easier**\
 `The most vulnerable Republican won the Ohio primary, with some Democratic help.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/ohio-primary-brown-moreno
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/business/media/kate-middleton-britney-spears-rumo
 **Cola Boyy, Indie Singer and Disability Activist, Dies at 34**\
 `Cola Boyy, whose real name was Matthew Urango, sang and produced his own brand of disco music. Born with spina bifida, he had been a vocal advocate for people with disabilities.`\
 https://nytimes.com/2024/03/20/arts/music/cola-boyy-dead.html
-
-**Why Mainland Chinese Flocked to Hong Kong’s New Global Visa**\
-`The city created a visa to lure professionals from around the world. Most of the takers were Chinese seeking better jobs, better schools and greater freedom.`\
-https://nytimes.com/2024/03/20/business/hong-kong-top-talent-visa.html
 
