@@ -1,3 +1,15 @@
+**There are few easy options for Israel in northern Gaza, analysts say.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/there-are-few-easy-options-for-israel-in-northern-gaza-analysts-say
+
+**The Fed isn’t the only central bank making interest rate decisions this week.**\
+`By Joe Rennison`\
+https://nytimes.com/live/2024/03/20/business/fed-meeting-interest-rates/the-fed-isnt-the-only-central-bank-meeting-this-week
+
+**A British Woman Bought a Brooch for 20 Pounds. It Sold for Nearly £10,000.**\
+`Flora Steel, an art historian living in Rome, bought the brooch 36 years ago at an antiques fair. She realized its value only last year while watching YouTube.`\
+https://nytimes.com/2024/03/20/arts/william-burges-brooch-uk.html
+
 **Why Doubles Remain Trinidad’s Most Popular Food**\
 `This traditional dish, heady with spices and deeply satisfying, serves as a reminder of survival and possibility.`\
 https://nytimes.com/2024/03/20/dining/doubles-trinidad.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/03/20/business/fed-meeting-interest-rates/biden-ha
 **Trump Tries to Sell a Normal-ish Second Term**\
 `That’s what he seems to be telling donors, but it’s not clear whether he’s serious.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/trump-second-term
-
-**Judge Won’t Punish Michael Cohen For Relying on Artificial Intelligence**\
-`Former President Donald J. Trump’s onetime fixer gave his lawyer fake legal citations concocted by the artificial intelligence program Google Bard for a motion the lawyer filed in federal court.`\
-https://nytimes.com/2024/03/20/nyregion/michael-cohen-artificial-intelligence.html
-
-**Congress Seeks to Bar Funding for U.N. Agency for Palestinians**\
-`A bill would bar support for the agency, UNRWA, amid accusations that some employees were Hamas fighters. Other countries are scrambling to make up the looming shortfall.`\
-https://nytimes.com/2024/03/20/world/middleeast/unrwa-senate-gaza.html
-
-**What the Fed’s Moves Mean for Mortgages, Credit Cards and More**\
-`Higher rates benefit those who can save, but for borrowers, falling rates would reduce bills on credit cards, student loans and other forms of debt.`\
-https://nytimes.com/2024/03/20/business/interest-rates-mortgages-credit-cards.html
 

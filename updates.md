@@ -1,3 +1,15 @@
+**There are few easy options for Israel in northern Gaza, analysts say.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/there-are-few-easy-options-for-israel-in-northern-gaza-analysts-say
+
+**The Fed isn’t the only central bank making interest rate decisions this week.**\
+`By Joe Rennison`\
+https://nytimes.com/live/2024/03/20/business/fed-meeting-interest-rates/the-fed-isnt-the-only-central-bank-meeting-this-week
+
+**A British Woman Bought a Brooch for 20 Pounds. It Sold for Nearly £10,000.**\
+`Flora Steel, an art historian living in Rome, bought the brooch 36 years ago at an antiques fair. She realized its value only last year while watching YouTube.`\
+https://nytimes.com/2024/03/20/arts/william-burges-brooch-uk.html
+
 **Why Doubles Remain Trinidad’s Most Popular Food**\
 `This traditional dish, heady with spices and deeply satisfying, serves as a reminder of survival and possibility.`\
 https://nytimes.com/2024/03/20/dining/doubles-trinidad.html
