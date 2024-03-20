@@ -1,3 +1,11 @@
+**Fight Over Texas Law Underscores a Battle of America vs. Its States**\
+`The partisan gridlock gumming up Washington has prompted states controlled by one party to set off on their own.`\
+https://nytimes.com/2024/03/20/us/politics/texas-law-states-immigration-migrants.html
+
+**Condé Nast’s Owners Set to Reap a $1.4 Billion Windfall From Reddit**\
+`The Newhouse family, which controls the Advance media empire, made a 2006 investment of $10 million in the social site, which plans to go public on Thursday.`\
+https://nytimes.com/2024/03/20/business/media/reddit-ipo-conde-nast.html
+
 **What $8.5 Billion Can Buy: Biden Aims to Bolster Chip Manufacturing**\
 `The president hopes the money will kick-start semiconductor production in America, but that might take a lot more investment in the future.`\
 https://nytimes.com/2024/03/20/us/politics/biden-chip-manufacturing.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/03/20/us/abbott-immigration-texas-border.ht
 **Netanyahu Assails Schumer, Dramatizing Partisan Split Over Israel**\
 `The prime minister addressed Senate Republicans remotely after Senator Chuck Schumer called him out in an explosive speech urging a new election in Israel.`\
 https://nytimes.com/2024/03/20/us/politics/netanyahu-schumer-israel.html
-
-**Reddit Prices I.P.O. at $34 a Share, in a Positive Sign for Tech**\
-`The social media company raised $748 million in the offering. Its shares begin trading on the New York Stock Exchange on Thursday.`\
-https://nytimes.com/2024/03/20/technology/reddit-ipo-stock-price.html
-
-**Angela Chao Was Intoxicated When She Died in Car Wreck, Police Report Shows**\
-`The Blanco County Sheriff’s Office in Texas called the Feb. 10 episode, in which the shipping executive drove her Tesla into a pond at a family ranch, an “unfortunate accident.”`\
-https://nytimes.com/2024/03/20/us/angela-chao-car-crash.html
 

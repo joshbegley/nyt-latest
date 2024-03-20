@@ -1,3 +1,11 @@
+**Fight Over Texas Law Underscores a Battle of America vs. Its States**\
+`The partisan gridlock gumming up Washington has prompted states controlled by one party to set off on their own.`\
+https://nytimes.com/2024/03/20/us/politics/texas-law-states-immigration-migrants.html
+
+**Condé Nast’s Owners Set to Reap a $1.4 Billion Windfall From Reddit**\
+`The Newhouse family, which controls the Advance media empire, made a 2006 investment of $10 million in the social site, which plans to go public on Thursday.`\
+https://nytimes.com/2024/03/20/business/media/reddit-ipo-conde-nast.html
+
 **See How Texas Is Testing the Limits of State-Run Border Control**\
 `In this stretch of the southern border, in Eagle Pass, Texas, Gov. Greg Abbott has deployed state troopers and added extra barriers to keep migrants out.`\
 https://nytimes.com/interactive/2024/03/20/us/abbott-immigration-texas-border.html
