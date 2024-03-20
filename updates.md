@@ -1,3 +1,7 @@
+**Ireland’s Prime Minister to Step Down**\
+`In an unexpected announcement, Leo Varadkar said he would resign from the leadership of the country and of his party, Fine Gael.`\
+https://nytimes.com/2024/03/20/world/europe/ireland-varadkar-taoiseach-resign.html
+
 **Is Microsoft Building an Unassailable Lead in A.I.?**\
 `Hiring Mustafa Suleyman, the DeepMind co-founder, is a coup for the tech giant’s ambitions. But regulators may be skeptical.`\
 https://nytimes.com/2024/03/20/business/dealbook/microsoft-suleyman-ai-inflection.html
