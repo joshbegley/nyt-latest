@@ -1,3 +1,7 @@
+**The Worst Part of the Fear-Mongering Around a Muslim Judicial Nominee**\
+`It is classic guilt by association, and the questioning was so reminiscent of Senator Joseph McCarthy’s anti-communist witch hunts.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/mangi-judicial-nominee-islamaphobia
+
 **Texas Police Departments Express Confusion Over New Immigration Law**\
 `The flurry of recent back-and-forth legal orders left law enforcement leaders hesitant on how they plan to enforce the law, if it ever takes effect.`\
 https://nytimes.com/2024/03/20/us/texas-police-sb4-immigration-law.html
