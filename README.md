@@ -1,3 +1,7 @@
+**Extreme Heat Wave Pushes South Sudan to Close Schools**\
+`Climate change already worsened floods and droughts in the young nation. Now, soaring temperatures are forecast for two weeks.`\
+https://nytimes.com/2024/03/20/world/africa/extreme-heat-south-sudan-schools-climate.html
+
 **Abel Prize Awarded for Studies of Universe’s Randomness**\
 `Michel Talagrand of France has credited a brush with blindness for leading to the work that resulted in his recognition by the math equivalent of the Nobel Prize.`\
 https://nytimes.com/2024/03/20/science/abel-prize-mathematics-randomness.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/us/texas-immigration-greg-abbott.html
 **Why Isn’t More Aid Getting to Gazans?**\
 `Experts say 1.1 million Gazans are at imminent risk of deadly food shortages. The process of delivering aid to them is lengthy and convoluted.`\
 https://nytimes.com/interactive/2024/03/20/world/middleeast/gaza-aid-delivery.html
-
-**The Global Effort to Make an American Microchip**\
-`The United States is investing $39 billion to help build factories. But even after U.S. facilities are built, chip manufacturing will remain decidedly global. See how.`\
-https://nytimes.com/interactive/2024/03/20/business/economy/semiconductor-chip-manufacturing-us.html
 
