@@ -1,3 +1,7 @@
+**Where Are Hong Kong’s Leading Pro-Democracy Figures Now?**\
+`The city enacted tough new security legislation with little public outcry, partly because those who would have opposed it were either in jail or in exile.`\
+https://nytimes.com/2024/03/20/world/asia/hong-kong-democracy-leaders.html
+
 **Extreme Heat Wave Pushes South Sudan to Close Schools**\
 `Climate change already worsened floods and droughts in the young nation. Now, soaring temperatures are forecast for two weeks.`\
 https://nytimes.com/2024/03/20/world/africa/extreme-heat-south-sudan-schools-climate.html

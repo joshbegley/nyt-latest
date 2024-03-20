@@ -1,3 +1,7 @@
+**Where Are Hong Kong’s Leading Pro-Democracy Figures Now?**\
+`The city enacted tough new security legislation with little public outcry, partly because those who would have opposed it were either in jail or in exile.`\
+https://nytimes.com/2024/03/20/world/asia/hong-kong-democracy-leaders.html
+
 **Extreme Heat Wave Pushes South Sudan to Close Schools**\
 `Climate change already worsened floods and droughts in the young nation. Now, soaring temperatures are forecast for two weeks.`\
 https://nytimes.com/2024/03/20/world/africa/extreme-heat-south-sudan-schools-climate.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/20/learning/DjiboutiCountryQuiz.html
 **Greg Abbott Has Been Gunning for a Battle on the Border**\
 `The Texas governor has rallied Republicans by pushing the boundaries of what a governor can do when it comes to immigration. Now he’s in a head-to-head confrontation with the Biden administration.`\
 https://nytimes.com/2024/03/20/us/texas-immigration-greg-abbott.html
-
-**Why Isn’t More Aid Getting to Gazans?**\
-`Experts say 1.1 million Gazans are at imminent risk of deadly food shortages. The process of delivering aid to them is lengthy and convoluted.`\
-https://nytimes.com/interactive/2024/03/20/world/middleeast/gaza-aid-delivery.html
 
