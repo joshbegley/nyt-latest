@@ -1,40 +1,40 @@
+**March Madness**\
+`Will you be watching? What predictions can you make?`\
+https://nytimes.com/2024/03/20/learning/march-madness.html
+
+**Why Everyone in New Jersey Politics Is Talking About ‘the Line’**\
+`Political leaders in New Jersey can use the state’s unique county-line ballot design to reward or to punish, encouraging fealty from candidates.`\
+https://nytimes.com/2024/03/20/nyregion/new-jersey-election-ballot-line.html
+
+**In N.Y. Suburbs, Republicans Seek Edge by Targeting Transgender Athletes**\
+`A debate over transgender women and girls in sports in Nassau County spurred a legal fight, a visit from Caitlyn Jenner and a mixed response from residents.`\
+https://nytimes.com/2024/03/20/nyregion/in-ny-suburbs-republicans-seek-edge-by-targeting-transgender-athletes.html
+
+**A Psychedelics Reporter With a Changing Perspective**\
+`Can an experimental drug cure opioid addiction? Andrew Jacobs, who writes about psychedelic medicine for The Times, explored the “promise and peril” of ibogaine.`\
+https://nytimes.com/2024/03/20/insider/psychedelic-ibogaine.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/20/crosswords/wordle-review.html
+
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/20/crosswords/connections-companion.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/03/20/crosswords/spelling-bee-forum.html
+
+**With Robert Menendez Indicted, His Children Feel Spotlight’s Glare**\
+`Alicia Menendez is a weekend anchor on MSNBC. Her brother, Rob, is a member of Congress. The bribery scandal surrounding their father and stepmother has been painful.`\
+https://nytimes.com/2024/03/20/nyregion/rob-alicia-menendez-msnbc.html
+
+**Rising Discipline Problems in Schools: Another Sign of Pandemic’s Toll**\
+`Incidents of student misconduct have risen in New York City since pandemic disruptions, though serious crimes in schools have decreased.`\
+https://nytimes.com/2024/03/20/nyregion/safety-incidents-nyc-schools-police-discipline.html
+
 **Jimmy Fallon Thinks Hiring an Ex-Con Is the Right Move for Trump**\
 `Employing Paul Manafort, a former campaign adviser who was convicted of fraud, “will make Trump seem less fraudy by comparison,” the “Tonight Show” host reasoned.`\
 https://nytimes.com/2024/03/20/arts/television/fallon-trump-manafort.html
-
-**Word of the Day: rigorous**\
-`This word has appeared in 445 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/03/20/learning/word-of-the-day-rigorous.html
-
-**A Museum’s Feminist Artwork Excluded Men. So One Man Took It to Court.**\
-`Gender-based discrimination is central to the women-only art installation, in Australia, but one visitor claims it is also illegal.`\
-https://nytimes.com/2024/03/20/world/australia/mona-ladies-lounge-tasmania.html
-
-**Sherrod Brown Can Breathe a Little Easier**\
-`The most vulnerable Republican won the Ohio primary, with some Democratic help.`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/ohio-primary-brown-moreno
-
-**Wednesday Briefing**\
-`Hong Kong’s new security laws.`\
-https://nytimes.com/2024/03/20/briefing/hong-kong-laws-japan-rates.html
-
-**How the Windsor Women Became Human Shields**\
-`Princes might occasionally be turned into frogs, but princesses always seem to end up as villains or scapegoats.`\
-https://nytimes.com/2024/03/20/opinion/kate-middleton-photoshop.html
-
-**Four Takeaways From the Biggest Primary Night Since Super Tuesday**\
-`A Trump-backed candidate won in the G.O.P. Senate primary in Ohio. Incumbents prevailed in Illinois. And the race to finish Kevin McCarthy’s term heads to a runoff.`\
-https://nytimes.com/2024/03/20/us/politics/takeaways-primaries-ohio-illinois-california.html
-
-**Read the Federal Appeals Court Order**\
-`The U.S. Court of Appeals for the Fifth Circuit issued a new order effectively again blocking a Texas law that would make it a crime to cross into the state from Mexico without authorization.`\
-https://nytimes.com/interactive/2024/03/20/us/fifth-circuit-order.html
-
-**Tech Giant Linked to France’s Cybersecurity Tumbles in Value**\
-`The French government said it would seek “a national solution” to protect Atos, a debt-burdened company that serves nuclear programs and the military.`\
-https://nytimes.com/2024/03/20/business/tech-giant-linked-to-frances-cybersecurity-tumbles-in-value.html
-
-**‘We Need to Go Hard’: Why the House of Lords Is Clashing With Sunak**\
-`The government’s contentious Rwanda policy, which has been championed by the prime minister, has prompted a rebellion in Britain’s unelected second chamber.`\
-https://nytimes.com/2024/03/20/world/europe/uk-house-of-lords-sunak-rwanda.html
 
