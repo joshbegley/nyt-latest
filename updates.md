@@ -1,3 +1,15 @@
+**Sherrod Brown Can Breathe a Little Easier**\
+`The most vulnerable Republican won the Ohio primary, with some Democratic help.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/ohio-primary-brown-moreno
+
+**Wednesday Briefing**\
+`Hong Kong’s new security laws.`\
+https://nytimes.com/2024/03/20/briefing/hong-kong-laws-japan-rates.html
+
+**How the Windsor Women Became Human Shields**\
+`Princes might occasionally be turned into frogs, but princesses always seem to end up as villains or scapegoats.`\
+https://nytimes.com/2024/03/20/opinion/kate-middleton-photoshop.html
+
 **Four Takeaways From the Biggest Primary Night Since Super Tuesday**\
 `A Trump-backed candidate won in the G.O.P. Senate primary in Ohio. Incumbents prevailed in Illinois. And the race to finish Kevin McCarthy’s term heads to a runoff.`\
 https://nytimes.com/2024/03/20/us/politics/takeaways-primaries-ohio-illinois-california.html
