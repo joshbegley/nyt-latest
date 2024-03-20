@@ -1,3 +1,7 @@
+**Review: An Affair to Dismember, in the Gory Musical ‘Teeth’**\
+`A cult horror film about a teenage girl with a surprise set of chompers gets another surprise: the song-and-dance treatment.`\
+https://nytimes.com/2024/03/19/theater/teeth-review-michael-r-jackson.html
+
 **Trump Seeks to Delay Jan. 6 Civil Cases**\
 `The former president’s lawyers told the judge overseeing the proceedings it would be unfair to put on a defense now because it might reveal his strategy for the criminal case on related charges.`\
 https://nytimes.com/2024/03/19/us/politics/trump-delay-civil-cases.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/science/archaeology-britain-must-farm.html
 **In Hong Kong, China’s Grip Can Feel Like ‘Death by a Thousand Cuts’**\
 `As Hong Kong’s leaders embrace China’s top-down political culture, many believe the city’s dynamism and vitality are slipping away.`\
 https://nytimes.com/2024/03/19/world/asia/hong-kong-security-law-china.html
-
-**Mount Sinai and UnitedHealthcare Reach Insurance Deal**\
-`The end of the dispute means that Mount Sinai patients with UnitedHealthcare won’t need to find new doctors.`\
-https://nytimes.com/2024/03/19/nyregion/united-healthcare-mount-sinai-hospital-deal.html
 

@@ -1,3 +1,7 @@
+**Review: An Affair to Dismember, in the Gory Musical ‘Teeth’**\
+`A cult horror film about a teenage girl with a surprise set of chompers gets another surprise: the song-and-dance treatment.`\
+https://nytimes.com/2024/03/19/theater/teeth-review-michael-r-jackson.html
+
 **Trump Seeks to Delay Jan. 6 Civil Cases**\
 `The former president’s lawyers told the judge overseeing the proceedings it would be unfair to put on a defense now because it might reveal his strategy for the criminal case on related charges.`\
 https://nytimes.com/2024/03/19/us/politics/trump-delay-civil-cases.html
