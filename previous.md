@@ -1,3 +1,11 @@
+**Why Doubles Remain Trinidad’s Most Popular Food**\
+`This traditional dish, heady with spices and deeply satisfying, serves as a reminder of survival and possibility.`\
+https://nytimes.com/2024/03/20/dining/doubles-trinidad.html
+
+**Georgia Judge Allows Trump and Co-Defendants to Appeal Ruling on Prosecutor**\
+`An appeals court will now decide if it will weigh in on whether Fani T. Willis, the Fulton County district attorney, should be disqualified.`\
+https://nytimes.com/2024/03/20/us/trump-georgia-fani-willis-appeal.html
+
 **When We See the Climate More Clearly, What Will We Do?**\
 `A new satellite will show us the full extent of methane emissions. Will we act?`\
 https://nytimes.com/2024/03/20/opinion/climate-change-methane-satellite-emissions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/20/world/middleeast/unrwa-senate-gaza.html
 **What the Fed’s Moves Mean for Mortgages, Credit Cards and More**\
 `Higher rates benefit those who can save, but for borrowers, falling rates would reduce bills on credit cards, student loans and other forms of debt.`\
 https://nytimes.com/2024/03/20/business/interest-rates-mortgages-credit-cards.html
-
-**Fossil Trove From 74,000 Years Ago Points to Remarkably Adaptive Humans**\
-`An archaeological site in Ethiopia revealed the oldest-known arrowheads and the remnants of a major volcanic eruption.`\
-https://nytimes.com/2024/03/20/science/early-humans-arrowheads-volcano.html
-
-**Comparing the Trump and Biden Years**\
-`Readers discuss the economy, yearn for normalcy and lament amnesia about Donald Trump’s term. Also: 5 Nobelists, about a large telescope; radiation exposure; the filibuster; classical music.`\
-https://nytimes.com/2024/03/20/opinion/trump-biden.html
 

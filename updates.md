@@ -1,3 +1,11 @@
+**Why Doubles Remain Trinidad’s Most Popular Food**\
+`This traditional dish, heady with spices and deeply satisfying, serves as a reminder of survival and possibility.`\
+https://nytimes.com/2024/03/20/dining/doubles-trinidad.html
+
+**Georgia Judge Allows Trump and Co-Defendants to Appeal Ruling on Prosecutor**\
+`An appeals court will now decide if it will weigh in on whether Fani T. Willis, the Fulton County district attorney, should be disqualified.`\
+https://nytimes.com/2024/03/20/us/trump-georgia-fani-willis-appeal.html
+
 **When We See the Climate More Clearly, What Will We Do?**\
 `A new satellite will show us the full extent of methane emissions. Will we act?`\
 https://nytimes.com/2024/03/20/opinion/climate-change-methane-satellite-emissions.html
