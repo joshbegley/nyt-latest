@@ -1,3 +1,7 @@
+**Police in Brooklyn Fatally Shoot Man Who Chased and Shot at a Mugger**\
+`Four police officers were responding to reports of gunshots in East Flatbush when they saw the man, 20, chasing another man and a woman, the authorities said.`\
+https://nytimes.com/2024/03/19/nyregion/brooklyn-police-shooting.html
+
 **The immigration ruling carries an echo of an earlier one on a Texas abortion law.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/the-immigration-ruling-carries-an-echo-of-an-earlier-one-on-a-texas-abortion-law

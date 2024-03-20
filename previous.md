@@ -1,3 +1,7 @@
+**Police in Brooklyn Fatally Shoot Man Who Chased and Shot at a Mugger**\
+`Four police officers were responding to reports of gunshots in East Flatbush when they saw the man, 20, chasing another man and a woman, the authorities said.`\
+https://nytimes.com/2024/03/19/nyregion/brooklyn-police-shooting.html
+
 **The immigration ruling carries an echo of an earlier one on a Texas abortion law.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/the-immigration-ruling-carries-an-echo-of-an-earlier-one-on-a-texas-abortion-law
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/the-white
 **Brown Cruises in Ohio Democratic Senate Primary as Republicans Await Result**\
 `Senator Sherrod Brown is the only Democrat still holding statewide elective office in Ohio, which Donald J. Trump won in both 2016 and 2020.`\
 https://nytimes.com/2024/03/19/us/politics/ohio-senate.html
-
-**U.S. Accuses Two Men of Stealing Tesla Trade Secrets**\
-`Federal prosecutors said the pair tried to sell technology to manufacture batteries for electric cars that belonged to the company.`\
-https://nytimes.com/2024/03/19/business/tesla-trade-secrets-us-attorney.html
 
