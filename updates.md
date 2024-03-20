@@ -1,3 +1,15 @@
+**What $8.5 Billion Can Buy: Biden Aims to Bolster Chip Manufacturing**\
+`The president hopes the money will kick-start semiconductor production in America, but that might take a lot more investment in the future.`\
+https://nytimes.com/2024/03/20/us/politics/biden-chip-manufacturing.html
+
+**Reddit Prices I.P.O. at $34 a Share, in a Positive Sign for Tech**\
+`The social media company raised $748 million in the offering. Its shares begin trading on the New York Stock Exchange on Thursday.`\
+https://nytimes.com/2024/03/20/technology/reddit-ipo-stock-price.html
+
+**Angela Chao Was Intoxicated When She Died in Car Wreck, Police Report Shows**\
+`The Blanco County Sheriff’s Office in Texas called the Feb. 10 episode, in which the shipping executive drove her Tesla into a pond at a family ranch, an “unfortunate accident.”`\
+https://nytimes.com/2024/03/20/us/angela-chao-car-crash.html
+
 **Chicago Tax Referendum and Prosecutor Primary Are Too Close to Call**\
 `A proposal to raise the transfer tax on sales of high-value properties was trailing. Two Democrats were locked in a close Cook County prosecutor primary.`\
 https://nytimes.com/2024/03/20/us/chicago-elections-prosecutor-transfer-tax.html
