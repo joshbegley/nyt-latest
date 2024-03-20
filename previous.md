@@ -1,3 +1,19 @@
+**Why Tech Companies Are Not Your Friends: Lessons From Roku**\
+`Roku recently changed its policy to make it even harder for customers to take legal action. It’s a reminder of how we need to protect ourselves.`\
+https://nytimes.com/2024/03/20/technology/personaltech/roku-data-breach-companies.html
+
+**Big Changes Are Coming to California’s Classical Music Scene**\
+`The San Francisco Symphony, Los Angeles Opera and Los Angeles Philharmonic will all be getting new musical directors in the next two years.`\
+https://nytimes.com/2024/03/20/us/california-classical-music-scene.html
+
+**My In-Laws Gave Gifts to Two Grandchildren, but Not to a Third. Help!**\
+`Two years after one of her children received a generous birthday gift, a reader wonders whether to intervene on behalf of her overlooked child.`\
+https://nytimes.com/2024/03/20/style/in-laws-gifts-grandchildren.html
+
+**France Fines Google in A.I. Dispute With News Media**\
+`The French competition authority said the tech giant failed to negotiate fair licensing deals with media outlets and did not tell them it was using their articles to train its chatbot.`\
+https://nytimes.com/2024/03/20/business/france-google-fine.html
+
 **Ireland’s Prime Minister to Step Down**\
 `In an unexpected announcement, Leo Varadkar said he would resign from the leadership of the country and of his party, Fine Gael.`\
 https://nytimes.com/2024/03/20/world/europe/ireland-varadkar-taoiseach-resign.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/israels-ret
 **20mideast-crisis**\
 `Battle at Hospital Points to Power Vacuum in Northern Gaza`\
 https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news
-
-**Where Are Hong Kong’s Leading Pro-Democracy Figures Now?**\
-`The city enacted tough new security legislation with little public outcry, partly because those who would have opposed it were either in jail or in exile.`\
-https://nytimes.com/2024/03/20/world/asia/hong-kong-democracy-leaders.html
-
-**Extreme Heat Wave Pushes South Sudan to Close Schools**\
-`Climate change already worsened floods and droughts in the young nation. Now, soaring temperatures are forecast for two weeks.`\
-https://nytimes.com/2024/03/20/world/africa/extreme-heat-south-sudan-schools-climate.html
-
-**Abel Prize Awarded for Studies of Universe’s Randomness**\
-`Michel Talagrand of France has credited a brush with blindness for leading to the work that resulted in his recognition by the math equivalent of the Nobel Prize.`\
-https://nytimes.com/2024/03/20/science/abel-prize-mathematics-randomness.html
-
-**University of California Could Bar Political Speech on Some Web Pages**\
-`With anger rising over pro-Palestinian protests, the university’s regents are set to vote on a proposal that would draw tighter boundaries around speech.`\
-https://nytimes.com/2024/03/20/us/university-of-california-israel-gaza-political-speech.html
 

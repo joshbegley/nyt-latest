@@ -1,3 +1,19 @@
+**Why Tech Companies Are Not Your Friends: Lessons From Roku**\
+`Roku recently changed its policy to make it even harder for customers to take legal action. It’s a reminder of how we need to protect ourselves.`\
+https://nytimes.com/2024/03/20/technology/personaltech/roku-data-breach-companies.html
+
+**Big Changes Are Coming to California’s Classical Music Scene**\
+`The San Francisco Symphony, Los Angeles Opera and Los Angeles Philharmonic will all be getting new musical directors in the next two years.`\
+https://nytimes.com/2024/03/20/us/california-classical-music-scene.html
+
+**My In-Laws Gave Gifts to Two Grandchildren, but Not to a Third. Help!**\
+`Two years after one of her children received a generous birthday gift, a reader wonders whether to intervene on behalf of her overlooked child.`\
+https://nytimes.com/2024/03/20/style/in-laws-gifts-grandchildren.html
+
+**France Fines Google in A.I. Dispute With News Media**\
+`The French competition authority said the tech giant failed to negotiate fair licensing deals with media outlets and did not tell them it was using their articles to train its chatbot.`\
+https://nytimes.com/2024/03/20/business/france-google-fine.html
+
 **Ireland’s Prime Minister to Step Down**\
 `In an unexpected announcement, Leo Varadkar said he would resign from the leadership of the country and of his party, Fine Gael.`\
 https://nytimes.com/2024/03/20/world/europe/ireland-varadkar-taoiseach-resign.html
