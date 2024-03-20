@@ -1,3 +1,11 @@
+**Who Is Leo Varadkar?**\
+`Mr. Varadkar, who said on Wednesday that he would step down as Ireland’s prime minister, has had a career of firsts. His resignation came as a surprise.`\
+https://nytimes.com/2024/03/20/world/europe/who-is-leo-varadkar.html
+
+**Geologists Make It Official: We’re Not in an ‘Anthropocene’ Epoch**\
+`The field’s governing body ratified a vote by scientists on the contentious issue, ending a long effort to update the timeline of Earth’s history.`\
+https://nytimes.com/2024/03/20/climate/anthropocene-vote-upheld.html
+
 **Blinken is adding a stop in Israel to his Mideast trip.**\
 `By Michael Crowley and Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/blinken-israel-trip
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/20/us/trump-biden-election
 **Here is the latest on the Texas immigration law.**\
 `By J. David Goodman`\
 https://nytimes.com/live/2024/03/20/us/texas-immigration-law-supreme-court/here-is-the-latest-on-the-texas-immigration-law
-
-**20texas-border**\
-`Live Updates: Appeals Court to Decide if Texas Can Begin Arresting Migrants`\
-https://nytimes.com/live/2024/03/20/us/texas-immigration-law-supreme-court
-
-**NYCHA’s Outgoing Watchdog, Bart Schwartz, on the Difficult Work Ahead**\
-`For five years, Mr. Schwartz monitored the New York City Housing Authority and tried to root out problems and corruption. In a final report and interview, he said he was hopeful.`\
-https://nytimes.com/2024/03/20/nyregion/nycha-public-housing-new-york.html
 
