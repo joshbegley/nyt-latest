@@ -1,3 +1,11 @@
+**Abel Prize Awarded for Studies of Universe’s Randomness**\
+`Michel Talagrand of France has credited a brush with blindness for leading to the work that resulted in his recognition by the math equivalent of the Nobel Prize.`\
+https://nytimes.com/2024/03/20/science/abel-prize-mathematics-randomness.html
+
+**University of California Could Bar Political Speech on Some Web Pages**\
+`With anger rising over pro-Palestinian protests, the university’s regents are set to vote on a proposal that would draw tighter boundaries around speech.`\
+https://nytimes.com/2024/03/20/us/university-of-california-israel-gaza-political-speech.html
+
 **An American Slowdown**\
 `The U.S. has always relied on population growth to keep its economy pumping. A plateau may be coming.`\
 https://nytimes.com/2024/03/20/briefing/american-population-slowdown-immigration.html
