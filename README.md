@@ -1,3 +1,7 @@
+**Supreme Court Hears Case on Arrests Motivated by Politics**\
+`A Texas city councilwoman, arrested on charges of mishandling documents after criticizing the city manager, said her First Amendment rights had been violated.`\
+https://nytimes.com/2024/03/20/us/politics/supreme-court-politically-motivated-arrests.html
+
 **Israel says it detained a Hamas leader during the Al-Shifa raid.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/israel-says-it-detained-a-hamas-leader-during-the-al-shifa-raid
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/us/politics/democrats-third-party-candidates.html
 **Martin Greenfield, Tailor to Sinatra, Obama, Trump and Shaq, Dies at 95**\
 `He dressed six presidents, coached designers and made thousands of suits for TV shows and movies. But his beginnings were dismal: He learned to sew at Auschwitz.`\
 https://nytimes.com/2024/03/20/fashion/martin-greenfield-dead.html
-
-**Superiority Burger Parts Ways With Ashwin Deshmukh**\
-`The popular East Village restaurant delivered the news in a letter to investors after a New York Times story reported on accusations regarding Mr. Deshmukh’s business practices.`\
-https://nytimes.com/2024/03/20/style/superiority-burger-letter-ashwin-deshmukh.html
 
