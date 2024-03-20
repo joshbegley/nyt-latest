@@ -1,3 +1,7 @@
+**Fossil Trove From 74,000 Years Ago Points to Remarkably Adaptive Humans**\
+`An archaeological site in Ethiopia revealed the oldest-known arrowheads and the remnants of a major volcanic eruption.`\
+https://nytimes.com/2024/03/20/science/early-humans-arrowheads-volcano.html
+
 **Biden has a lot riding on what the Fed does next.**\
 `By Jim Tankersley`\
 https://nytimes.com/live/2024/03/20/business/fed-meeting-interest-rates/biden-has-a-lot-riding-on-what-the-fed-does-next
