@@ -1,3 +1,15 @@
+**Melania Trump Avoids Saying Whether She Will Hit Campaign Trail**\
+`The former first lady appeared with her husband as former President Donald J. Trump cast his ballot during Florida’s primaries. Asked if she would be a more frequent presence, she said “stay tuned.”`\
+https://nytimes.com/2024/03/19/us/politics/melania-trump-campaign.html
+
+**This Was Village Life in Britain 3,000 Years Ago**\
+`The superbly preserved remains of a Bronze Age settlement offer a glimpse of a “colorful, rich, varied” domestic life circa 850 B.C.`\
+https://nytimes.com/2024/03/19/science/archaeology-britain-must-farm.html
+
+**In Hong Kong, China’s Grip Can Feel Like ‘Death by a Thousand Cuts’**\
+`As leaders try to curb foreign influence in Hong Kong, its status as a global city with a free flow of information is in question.`\
+https://nytimes.com/2024/03/19/world/asia/hong-kong-security-law-china.html
+
 **Mount Sinai and UnitedHealthcare Reach Insurance Deal**\
 `The end of the dispute means that Mount Sinai patients with UnitedHealthcare won’t need to find new doctors.`\
 https://nytimes.com/2024/03/19/nyregion/united-healthcare-mount-sinai-hospital-deal.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/19/business/tesla-trade-secrets-us-attorney.html
 **Delta Pilot Gets 10 Months in Jail for Coming to Work Under the Influence**\
 `Lawrence B. Russell Jr., 63, pleaded guilty to having a blood-alcohol level more than two times the aviation limit, and a half-empty bottle of Jägermeister in his luggage, the authorities said.`\
 https://nytimes.com/2024/03/19/us/delta-pilot-drunk.html
-
-**Jonathan Majors Accused of Assault and Defamation in Lawsuit by Ex-Girlfriend**\
-`Grace Jabbari alleges several instances of violence by Majors, the former Marvel movie star. Majors’s lawyer said he was preparing a countersuit.`\
-https://nytimes.com/2024/03/19/movies/jonathan-majors-lawsuit-assault-defamation.html
-
-**An Arab Mandate for Palestine**\
-`There’s only one good way the war in Gaza ends.`\
-https://nytimes.com/2024/03/19/opinion/gaza-war-palestine-arab-mandate.html
-
-**David Breashears, 68, Who Braved Everest to Capture It on Film, Dies**\
-`He risked death on the slopes of the world’s highest mountain to produce the highest-grossing IMAX documentary of all time.`\
-https://nytimes.com/2024/03/19/obituaries/david-breashears-dead.html
 

@@ -1,3 +1,15 @@
+**Melania Trump Avoids Saying Whether She Will Hit Campaign Trail**\
+`The former first lady appeared with her husband as former President Donald J. Trump cast his ballot during Florida’s primaries. Asked if she would be a more frequent presence, she said “stay tuned.”`\
+https://nytimes.com/2024/03/19/us/politics/melania-trump-campaign.html
+
+**This Was Village Life in Britain 3,000 Years Ago**\
+`The superbly preserved remains of a Bronze Age settlement offer a glimpse of a “colorful, rich, varied” domestic life circa 850 B.C.`\
+https://nytimes.com/2024/03/19/science/archaeology-britain-must-farm.html
+
+**In Hong Kong, China’s Grip Can Feel Like ‘Death by a Thousand Cuts’**\
+`As leaders try to curb foreign influence in Hong Kong, its status as a global city with a free flow of information is in question.`\
+https://nytimes.com/2024/03/19/world/asia/hong-kong-security-law-china.html
+
 **Mount Sinai and UnitedHealthcare Reach Insurance Deal**\
 `The end of the dispute means that Mount Sinai patients with UnitedHealthcare won’t need to find new doctors.`\
 https://nytimes.com/2024/03/19/nyregion/united-healthcare-mount-sinai-hospital-deal.html
