@@ -1,3 +1,15 @@
+**Family Settles in Battle for Ancestral Land in South Carolina**\
+`Josephine Wright, who died this year at 94, had been fighting to save family property. The developer, Bailey Point Investments, agreed to and end in the dispute, the family’s lawyer said.`\
+https://nytimes.com/2024/03/20/us/josephine-wright-settlement.html
+
+**The War in Gaza Has Left a Power Vacuum, and Scant Planning to Fill It**\
+`Analysts say the Israeli military’s return to the largest hospital complex in the enclave may foretell more chaos without governance.`\
+https://nytimes.com/2024/03/20/world/middleeast/israel-gaza-hamas-power-vacuum.html
+
+**The Potency of Trump’s ‘Lost Cause’ Mythmaking**\
+`Like the “Lost Cause” ideology, Donald Trump’s propagandistic mythology negates the truth.`\
+https://nytimes.com/2024/03/20/opinion/trump-lost-cause.html
+
 **National Security Adviser Makes Covert Trip to Kyiv**\
 `Jake Sullivan met with President Volodymyr Zelensky of Ukraine and his senior officials as additional U.S. aid continued to languish in the House.`\
 https://nytimes.com/2024/03/20/us/politics/jake-sullivan-ukraine.html
