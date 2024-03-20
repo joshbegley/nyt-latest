@@ -1,3 +1,15 @@
+**Chicago Tax Referendum and Prosecutor Primary Are Too Close to Call**\
+`A proposal to raise the transfer tax on sales of high-value properties was trailing. Two Democrats were locked in a close Cook County prosecutor primary.`\
+https://nytimes.com/2024/03/20/us/chicago-elections-prosecutor-transfer-tax.html
+
+**Trump’s Running Mate Selection Process**\
+`The former president, who knows a thing or two about televised drama, is already dropping hints.`\
+https://nytimes.com/2024/03/20/us/politics/trump-running-mate.html
+
+**Frans de Waal, Who Found the Origins of Morality in Apes, Dies at 75**\
+`An unusually popular primatologist, he drew the attention of Newt Gingrich, Isabella Rossellini, the philosopher Peter Singer and the reading public.`\
+https://nytimes.com/2024/03/20/science/frans-de-waal-died.html
+
 **Goon Squad Officer Gets 40-Year Sentence for ‘Shocking, Brutal’ Acts**\
 `A second sheriff’s deputy received a lesser sentence for his involvement in the abuse of Mississippi residents.`\
 https://nytimes.com/2024/03/20/us/dedmon-mississippi-goon-squad-sentencing.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/20/us/angela-chao-car-crash.html
 **Led by Its Youth, U.S. Sinks in World Happiness Report**\
 `For the first time since the first World Happiness Report was issued 2012, the United States was not ranked among the world’s Top 20 happiest countries. The drop was driven by people under 30.`\
 https://nytimes.com/2024/03/20/us/world-happiness-report-finland-us.html
-
-**Bill Jorgensen, Authoritative New York TV Newsman, Dies at 96**\
-`Getting his start in the Midwest, he was best known for leading the New York broadcast “The 10 O’Clock News.”`\
-https://nytimes.com/2024/03/20/nyregion/bill-jorgensen-dead.html
-
-**House of Lords Stalls U.K. Bill to Send Asylum Seekers to Rwanda**\
-`Parliament is all but certain to approve the government’s plan, but a rare show of defiance by the unelected upper house showed the depth of opposition.`\
-https://nytimes.com/2024/03/20/world/europe/uk-rwanda-bill-lords.html
-
-**A Third ‘Downton Abbey’ Movie Is Coming, One of Its Stars Says**\
-`Imelda Staunton, who played Queen Mary’s lady-in-waiting in the first two films, told the BBC that the next movie would be the “final” installment in the long-running franchise.`\
-https://nytimes.com/2024/03/20/arts/downton-abbey-movie.html
 
