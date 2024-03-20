@@ -1,3 +1,7 @@
+**The Worst Part of the Fear-Mongering Around a Muslim Judicial Nominee**\
+`It is classic guilt by association, and the questioning was so reminiscent of Senator Joseph McCarthy’s anti-communist witch hunts.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/mangi-judicial-nominee-islamaphobia
+
 **What’s in Our Queue? ‘Veep’ and More**\
 `I’m a reporter covering tech start-ups and venture capital for The Times. Here are five things I’ve been enjoying lately.`\
 https://nytimes.com/interactive/2024/03/20/arts/editors-recommendations-veep.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/20/business/fed-meeting-interest-rates/the-fed-
 **A British Woman Bought a Brooch for 20 Pounds. It Sold for Nearly £10,000.**\
 `Flora Steel, an art historian living in Rome, bought the brooch 36 years ago at an antiques fair. She realized its value only last year while watching YouTube.`\
 https://nytimes.com/2024/03/20/arts/william-burges-brooch-uk.html
-
-**Why Doubles Remain Trinidad’s Most Popular Food**\
-`This traditional dish, heady with spices and deeply satisfying, serves as a reminder of survival and possibility.`\
-https://nytimes.com/2024/03/20/dining/doubles-trinidad.html
 
