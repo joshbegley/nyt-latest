@@ -1,3 +1,7 @@
+**Texas’ Immigration Crackdown Recalls Arizona’s Divisive ‘Show Me Your Papers’ Law**\
+`The Supreme Court eventually struck down portions of Arizona’s law, which had set off a torrent of fear and anger.`\
+https://nytimes.com/2024/03/19/us/texas-arizona-immigration-law.html
+
 **Mexico Condemns Texas Law, and Says It Will Not Accept Deportations From the State**\
 `Mexico’s top diplomat for North America rejected the Supreme Court’s ruling, saying that immigration policy was something to be negotiated between federal governments.`\
 https://nytimes.com/2024/03/19/us/mexico-texas-border-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/nyregion/united-healthcare-mount-sinai-hospital-d
 **Texas immigration law could undermine asylum rights.**\
 `The Texas law could endanger people fleeing persecution, legal experts said.`\
 https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/texas-immigration-law-could-undermine-asylum-rights
-
-**Gannett and McClatchy Cut Back Relationship With A.P.**\
-`The Associated Press said the decisions by the two major newspaper chains “would not have a material impact on our overall revenue.”`\
-https://nytimes.com/2024/03/19/business/media/gannett-mcclatchy-ap-associated-press.html
 
