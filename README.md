@@ -1,5 +1,5 @@
 **An American Slowdown**\
-`The U.S. has always relied on population growth to keep its economy pumping — a plateau may be coming.`\
+`The U.S. has always relied on population growth to keep its economy pumping. A plateau may be coming.`\
 https://nytimes.com/2024/03/20/briefing/american-population-slowdown-immigration.html
 
 **A Contentious Immigration Law Is Back on Hold, and Reddit Fans Are Getting Nervous**\
