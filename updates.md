@@ -1,3 +1,7 @@
+**Blinken Adds a Stop in Israel to His Mideast Trip**\
+`The State Department said Antony Blinken, the top U.S. diplomat, would hold talks about efforts to release the hostages held in Gaza and increase aid deliveries.`\
+https://nytimes.com/2024/03/20/world/middleeast/blinken-israel-visit-ceasefire.html
+
 **Who Is Leo Varadkar?**\
 `Mr. Varadkar, who said on Wednesday that he would step down as Ireland’s prime minister, has had a career of firsts. His resignation came as a surprise.`\
 https://nytimes.com/2024/03/20/world/europe/who-is-leo-varadkar.html
