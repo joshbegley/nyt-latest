@@ -1,3 +1,7 @@
+**Be a Sponge**\
+`E. M. Capassakis makes calculated choices in her New York Times debut.`\
+https://nytimes.com/2024/03/19/crosswords/daily-puzzle-2024-03-20.html
+
 **‘It is scary’: Migrants on Texas border say they fear arrest.**\
 `By Edgar Sandoval`\
 https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/it-is-scary-migrants-on-texas-border-say-they-fear-arrest
