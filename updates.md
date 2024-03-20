@@ -1,3 +1,7 @@
+**Read the Federal Appeals Court Ruling**\
+`The U.S. Court of Appeals for the Fifth Circuit issued a new order effectively blocking again a Texas law that would make it a crime to cross into the state from Mexico without authorization.`\
+https://nytimes.com/interactive/2024/03/20/us/fifth-circuit-order.html
+
 **Tech Giant Linked to France’s Cybersecurity Tumbles in Value**\
 `The French government said it would seek “a national solution” to protect Atos, a debt-burdened company that serves nuclear programs and the military.`\
 https://nytimes.com/2024/03/20/business/tech-giant-linked-to-frances-cybersecurity-tumbles-in-value.html
