@@ -1,3 +1,11 @@
+**Israel’s return to Al-Shifa points to a power vacuum in northern Gaza.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/israels-return-to-al-shifa-points-to-a-power-vacuum-in-northern-gaza
+
+**20mideast-crisis**\
+`Battle at Hospital Points to Power Vacuum in Northern Gaza`\
+https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news
+
 **Where Are Hong Kong’s Leading Pro-Democracy Figures Now?**\
 `The city enacted tough new security legislation with little public outcry, partly because those who would have opposed it were either in jail or in exile.`\
 https://nytimes.com/2024/03/20/world/asia/hong-kong-democracy-leaders.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/20/podcasts/the-daily/housing-market.html
 **Can Climate Cafes Help Ease the Anxiety of Planetary Crisis?**\
 `The groups, which allow people to talk through their emotions around environmental change, have sprung up across the country, including for therapists.`\
 https://nytimes.com/2024/03/20/climate/climate-change-anxiety-fear.html
-
-**How Much Do You Know About Djibouti?**\
-`Can you find Djibouti on a map? What else do you know about this East African nation?`\
-https://nytimes.com/interactive/2024/03/20/learning/DjiboutiCountryQuiz.html
-
-**Greg Abbott Has Been Gunning for a Battle on the Border**\
-`The Texas governor has rallied Republicans by pushing the boundaries of what a governor can do when it comes to immigration. Now he’s in a head-to-head confrontation with the Biden administration.`\
-https://nytimes.com/2024/03/20/us/texas-immigration-greg-abbott.html
 

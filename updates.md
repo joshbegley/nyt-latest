@@ -1,3 +1,11 @@
+**Israel’s return to Al-Shifa points to a power vacuum in northern Gaza.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/israels-return-to-al-shifa-points-to-a-power-vacuum-in-northern-gaza
+
+**20mideast-crisis**\
+`Battle at Hospital Points to Power Vacuum in Northern Gaza`\
+https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news
+
 **Where Are Hong Kong’s Leading Pro-Democracy Figures Now?**\
 `The city enacted tough new security legislation with little public outcry, partly because those who would have opposed it were either in jail or in exile.`\
 https://nytimes.com/2024/03/20/world/asia/hong-kong-democracy-leaders.html
