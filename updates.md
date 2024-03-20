@@ -1,3 +1,11 @@
+**Report of Kate Privacy Breach Is Being Assessed by U.K. Authorities**\
+`Britain’s data protection watchdog said it was investigating after claims that a hospital employee had tried to obtain the medical records of Catherine, Princess of Wales.`\
+https://nytimes.com/2024/03/20/world/europe/princess-kate-middleton-hospital-records-uk.html
+
+**Vietnam’s President Resigns Over Communist Party Breaches, State Media Says**\
+`The nature of President Vo Van Thuong’s wrongdoing was unclear, but his departure could be a sign of an internal power struggle among Vietnam’s leaders.`\
+https://nytimes.com/2024/03/20/world/asia/vietnam-president-thuong-resigns.html
+
 **Israel’s return to Al-Shifa points to a power vacuum in northern Gaza.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/israels-return-to-al-shifa-points-to-a-power-vacuum-in-northern-gaza
