@@ -1,4 +1,8 @@
-**For Sale: Intimate Letters From a Rock Music Love Triangle**\
+**What to Know About Intermittent Fasting**\
+`A new study found that it can raise cardiovascular risk, but the research had major limitations.`\
+https://nytimes.com/2024/03/20/well/eat/intermittent-fasting-study.html
+
+**‘Dear Layla’: Letters for Sale From a Rock Music Love Triangle**\
 `Eric Clapton’s handwritten messages, being auctioned this week, shed light on how he wooed Pattie Boyd away from George Harrison and on the impassioned songs the affair inspired.`\
 https://nytimes.com/2024/03/20/arts/music/pattie-boyd-george-harrison-eric-clapton-auction.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/health/measles-children-travel.html
 **Who Is Leo Varadkar?**\
 `Mr. Varadkar, who said on Wednesday that he would step down as Ireland’s prime minister, has had a career of firsts. His resignation came as a surprise.`\
 https://nytimes.com/2024/03/20/world/europe/who-is-leo-varadkar.html
-
-**Geologists Make It Official: We’re Not in an ‘Anthropocene’ Epoch**\
-`The field’s governing body ratified a vote by scientists on the contentious issue, ending a long effort to update the timeline of Earth’s history.`\
-https://nytimes.com/2024/03/20/climate/anthropocene-vote-upheld.html
 

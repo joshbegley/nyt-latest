@@ -1,3 +1,11 @@
+**What to Know About Intermittent Fasting**\
+`A new study found that it can raise cardiovascular risk, but the research had major limitations.`\
+https://nytimes.com/2024/03/20/well/eat/intermittent-fasting-study.html
+
+**‘Dear Layla’: Letters for Sale From a Rock Music Love Triangle**\
+`Eric Clapton’s handwritten messages, being auctioned this week, shed light on how he wooed Pattie Boyd away from George Harrison and on the impassioned songs the affair inspired.`\
+https://nytimes.com/2024/03/20/arts/music/pattie-boyd-george-harrison-eric-clapton-auction.html
+
 **For Sale: Intimate Letters From a Rock Music Love Triangle**\
 `Eric Clapton’s handwritten messages, being auctioned this week, shed light on how he wooed Pattie Boyd away from George Harrison and on the impassioned songs the affair inspired.`\
 https://nytimes.com/2024/03/20/arts/music/pattie-boyd-george-harrison-eric-clapton-auction.html
