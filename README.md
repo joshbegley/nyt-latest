@@ -1,3 +1,11 @@
+**How to read the Fed’s projections like a pro**\
+`The Federal Reserve is expected to leave rates unchanged on Wednesday. But Wall Street is focused on what comes next.`\
+https://nytimes.com/live/2024/03/20/business/fed-meeting-interest-rates/how-to-read-the-feds-projections-like-a-pro
+
+**‘Breaking,’ ‘Thanksgiving’ and More Streaming Gems**\
+`Crime thrillers, a crackling slasher and a documentary exploration of a rare Beatles failure are among our recommendations for your streaming subscription services this month.`\
+https://nytimes.com/2024/03/20/movies/breaking-thanksgiving-streaming-movies.html
+
 **Biden has a lot riding on what the Fed does next.**\
 `By Jim Tankersley`\
 https://nytimes.com/live/2024/03/20/business/fed-meeting-interest-rates/biden-has-a-lot-riding-on-what-the-fed-does-next
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/20/opinion/trump-biden.html
 **At Carnegie Hall, the New Pianists Are Young and Younger**\
 `Jan Lisiecki, 28, is the elder statesman alongside Alexander Malofeev and Yunchan Lim in a trio of recent recital debuts at the hall.`\
 https://nytimes.com/2024/03/20/arts/music/lisiecki-malofeev-yunchan-lim-piano-carnegie.html
-
-**New Rules Will Still Push Carmakers to Sell More Electric Cars**\
-`New Biden administration auto rules are less forceful than an earlier proposal but will still add to market pressure for cheaper electric vehicles.`\
-https://nytimes.com/2024/03/20/business/new-rules-will-still-push-carmakers-to-sell-more-electric-cars.html
-
-**Review: A Loyal Wife’s Work Is Never Done in ‘Ibsen’s Ghost’**\
-`In Charles Busch’s satire of Henrik Ibsen’s plays, a widow faces a rather catty fight to save her husband’s legacy.`\
-https://nytimes.com/2024/03/20/theater/ibsens-ghosts-review-charles-busch.html
 
