@@ -12,7 +12,7 @@ https://nytimes.com/2024/03/20/nyregion/new-jersey-election-ballot-line.html
 
 **In N.Y. Suburbs, Republicans Seek Edge by Targeting Transgender Athletes**\
 `A debate over transgender women and girls in sports in Nassau County spurred a legal fight, a visit from Caitlyn Jenner and a mixed response from residents.`\
-https://nytimes.com/2024/03/20/nyregion/in-ny-suburbs-republicans-seek-edge-by-targeting-transgender-athletes.html
+https://nytimes.com/2024/03/20/nyregion/nassau-trans-women-sports.html
 
 **A Psychedelics Reporter With a Changing Perspective**\
 `Can an experimental drug cure opioid addiction? Andrew Jacobs, who writes about psychedelic medicine for The Times, explored the “promise and peril” of ibogaine.`\
