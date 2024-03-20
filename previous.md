@@ -1,3 +1,7 @@
+**When We See the Climate More Clearly, What Will We Do?**\
+`A new satellite will show us the full extent of methane emissions. Will we act?`\
+https://nytimes.com/2024/03/20/opinion/climate-change-methane-satellite-emissions.html
+
 **How to read the Fed’s projections like a pro**\
 `The Federal Reserve is expected to leave rates unchanged on Wednesday. But Wall Street is focused on what comes next.`\
 https://nytimes.com/live/2024/03/20/business/fed-meeting-interest-rates/how-to-read-the-feds-projections-like-a-pro
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/science/early-humans-arrowheads-volcano.html
 **Comparing the Trump and Biden Years**\
 `Readers discuss the economy, yearn for normalcy and lament amnesia about Donald Trump’s term. Also: 5 Nobelists, about a large telescope; radiation exposure; the filibuster; classical music.`\
 https://nytimes.com/2024/03/20/opinion/trump-biden.html
-
-**At Carnegie Hall, the New Pianists Are Young and Younger**\
-`Jan Lisiecki, 28, is the elder statesman alongside Alexander Malofeev and Yunchan Lim in a trio of recent recital debuts at the hall.`\
-https://nytimes.com/2024/03/20/arts/music/lisiecki-malofeev-yunchan-lim-piano-carnegie.html
 
