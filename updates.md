@@ -1,3 +1,7 @@
+**Goon Squad Officer Gets 40-Year Sentence for ‘Shocking, Brutal’ Acts**\
+`A second sheriff’s deputy received a lesser sentence for his involvement in the abuse of Mississippi residents.`\
+https://nytimes.com/2024/03/20/us/dedmon-mississippi-goon-squad-sentencing.html
+
 **Biden Issued a Regulation to Expand Electric Vehicle Use**\
 `Also, Texas and the federal government faced off in court. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/03/20/briefing/electric-vehicle-rule-texas-federal-government-court.html

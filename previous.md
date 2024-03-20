@@ -1,3 +1,7 @@
+**Goon Squad Officer Gets 40-Year Sentence for ‘Shocking, Brutal’ Acts**\
+`A second sheriff’s deputy received a lesser sentence for his involvement in the abuse of Mississippi residents.`\
+https://nytimes.com/2024/03/20/us/dedmon-mississippi-goon-squad-sentencing.html
+
 **Biden Issued a Regulation to Expand Electric Vehicle Use**\
 `Also, Texas and the federal government faced off in court. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/03/20/briefing/electric-vehicle-rule-texas-federal-government-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/world/europe/uk-rwanda-bill-lords.html
 **A Third ‘Downton Abbey’ Movie Is Coming, One of Its Stars Says**\
 `Imelda Staunton, who played Queen Mary’s lady-in-waiting in the first two films, told the BBC that the next movie would be the “final” installment in the long-running franchise.`\
 https://nytimes.com/2024/03/20/arts/downton-abbey-movie.html
-
-**A Big Step Toward a Fairer Housing Market**\
-`Realtors’ commission practices have long been anticompetitive. That’s changing.`\
-https://nytimes.com/2024/03/20/opinion/realtors-agents-commissions-settlement.html
 
