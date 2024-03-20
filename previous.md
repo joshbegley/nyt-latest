@@ -1,3 +1,7 @@
+**Man Boarded Delta Flight Without a Ticket, U.S. Says**\
+`By taking pictures of other passengers’ boarding passes on their phones, the man was able to board a Delta Air Lines flight in Salt Lake City on Sunday, according a federal complaint.`\
+https://nytimes.com/2024/03/20/business/delta-unticketed-passenger-arrested.html
+
 **Details of $1.2 Trillion Spending Bill Emerge as Partial Shutdown Looms**\
 `Tucked inside a massive measure to fund the government through the fall are several initiatives sought by members of both parties. Aides are still writing the legislative language.`\
 https://nytimes.com/2024/03/20/us/politics/spending-bill-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/20/arts/editors-recommendations-veep.htm
 **U.S. Debt Races Toward Record This Decade, C.B.O. Warns**\
 `Recently passed spending limits have slightly improved the nation’s fiscal outlook.`\
 https://nytimes.com/2024/03/20/us/politics/debt-taxes-budget.html
-
-**‘Dead Outlaw,’ a Mummy Musical, Is So Strange It Can Only Be True**\
-`The creators of “The Band’s Visit” reunited to tell the story of an outlaw whose body toured carnivals for decades.`\
-https://nytimes.com/2024/03/20/theater/dead-outlaw-audible.html
 
