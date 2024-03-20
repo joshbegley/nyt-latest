@@ -1,3 +1,7 @@
+**The Bombshell Case That Will Transform the Housing Market**\
+`After several lawsuits brought by home sellers, the rules around buying and selling properties are about to change.`\
+https://nytimes.com/2024/03/20/podcasts/the-daily/housing-market.html
+
 **Can Climate Cafes Help Ease the Anxiety of Planetary Crisis?**\
 `The groups, which allow people to talk through their emotions around environmental change, have sprung up across the country, including for therapists.`\
 https://nytimes.com/2024/03/20/climate/climate-change-anxiety-fear.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/arts/television/3-body-problem-netflix-review.htm
 **Symbolism or Strategy? Ukraine Battles to Retain Small Gains**\
 `Despite American doubts, Ukrainians say that defending places with little strategic value is worth the cost in casualties and weapons, because the attacking Russians pay an even higher price.`\
 https://nytimes.com/2024/03/20/world/europe/ukraine-russia-south.html
-
-**Zendaya Says Goodbye to Sandworms, Hello to Skorts**\
-`The actress is known for thematic dressing to promote her movies. After her “Dune” desert epic, comes a tennis love triangle, “Challengers.”`\
-https://nytimes.com/2024/03/20/style/zendaya-says-goodbye-to-sandworms-hello-to-skorts.html
 
