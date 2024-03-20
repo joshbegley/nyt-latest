@@ -1,3 +1,11 @@
+**Biden has a lot riding on what the Fed does next.**\
+`By Jim Tankersley`\
+https://nytimes.com/live/2024/03/20/business/fed-meeting-interest-rates/biden-has-a-lot-riding-on-what-the-fed-does-next
+
+**Trump Tries to Sell a Normal-ish Second Term**\
+`That’s what he seems to be telling donors, but it’s not clear whether he’s serious.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/trump-second-term
+
 **Judge Won’t Punish Michael Cohen For Relying on Artificial Intelligence**\
 `Former President Donald J. Trump’s onetime fixer gave his lawyer fake legal citations concocted by the artificial intelligence program Google Bard for a motion the lawyer filed in federal court.`\
 https://nytimes.com/2024/03/20/nyregion/michael-cohen-artificial-intelligence.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/20/business/new-rules-will-still-push-carmakers-to-s
 **Review: A Loyal Wife’s Work Is Never Done in ‘Ibsen’s Ghost’**\
 `In Charles Busch’s satire of Henrik Ibsen’s plays, a widow faces a rather catty fight to save her husband’s legacy.`\
 https://nytimes.com/2024/03/20/theater/ibsens-ghosts-review-charles-busch.html
-
-**Appeals court panel includes a former top lawyer for Greg Abbott.**\
-`By J. David Goodman`\
-https://nytimes.com/live/2024/03/20/us/texas-immigration-law-sb4/appeals-court-panel-includes-a-former-top-lawyer-for-greg-abbott
-
-**My Mother Swears by Alternative Medicine. I’m a Scientist. What to Do?**\
-`The magazine’s Ethicist columnist on how a family might reconcile two very different belief systems.`\
-https://nytimes.com/2024/03/20/magazine/mother-alternative-medicine-scientist-ethics.html
 
