@@ -1,3 +1,7 @@
+**Is Microsoft Building an Unassailable Lead in A.I.?**\
+`Hiring Mustafa Suleyman, the DeepMind co-founder, is a coup for the tech giant’s ambitions. But regulators may be skeptical.`\
+https://nytimes.com/2024/03/20/business/dealbook/microsoft-suleyman-ai-inflection.html
+
 **Report of Kate Privacy Breach Is Being Assessed by U.K. Authorities**\
 `Britain’s data protection watchdog said it was investigating after claims that a hospital employee had tried to obtain the medical records of Catherine, Princess of Wales.`\
 https://nytimes.com/2024/03/20/world/europe/princess-kate-middleton-hospital-records-uk.html
