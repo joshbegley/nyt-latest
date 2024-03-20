@@ -1,3 +1,11 @@
+**Democrats Prepare Aggressive Counter to Third-Party Threats**\
+`An army of lawyers aims to challenge the steadily advancing ballot-access efforts of independent candidates, who Democrats fear could peel votes away in swing states.`\
+https://nytimes.com/2024/03/20/us/politics/democrats-third-party-candidates.html
+
+**Martin Greenfield, Tailor to Sinatra, Obama, Trump and Shaq, Dies at 95**\
+`He dressed six presidents, coached designers and made thousands of suits for TV shows and movies. But his beginnings were dismal: He learned to sew at Auschwitz.`\
+https://nytimes.com/2024/03/20/fashion/martin-greenfield-dead.html
+
 **Superiority Burger Parts Ways With Ashwin Deshmukh**\
 `The popular East Village restaurant delivered the news in a letter to investors after a New York Times story reported on accusations regarding Mr. Deshmukh’s business practices.`\
 https://nytimes.com/2024/03/20/style/superiority-burger-letter-ashwin-deshmukh.html
