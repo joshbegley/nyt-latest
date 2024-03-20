@@ -1,3 +1,11 @@
+**A Big Step Toward a Fairer Housing Market**\
+`Realtors’ commission practices have long been anticompetitive. That’s changing.`\
+https://nytimes.com/2024/03/20/opinion/realtors-agents-commissions-settlement.html
+
+**How to Recognize the Most Common Form of Skin Cancer**\
+`The fitness celebrity Richard Simmons said he was treated for basal cell carcinoma. Here’s how to recognize and prevent it.`\
+https://nytimes.com/2024/03/20/well/live/basal-cell-carcinoma-skin-cancer.html
+
 **Thursday Briefing: Where is Gaza’s Aid?**\
 `Also, sweeping U.S. climate regulations and the “3 Body Problem” on Netflix.`\
 https://nytimes.com/2024/03/20/world/asia/gaza-aid-evs-hong-kong-asia.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/israel-says
 **Belching Volcano and Flowing Lava Dent Tourism in Icelandic Region**\
 `In a country that relies heavily on visitors, hotels faced repeated evacuations, and one resort was temporarily shut.`\
 https://nytimes.com/2024/03/20/world/europe/iceland-volcano-tourism-impact.html
-
-**Vampire Weekend Did Not Make a ‘Doom and Gloom Record’**\
-`On its fifth album, suffused with thoughts of 20th-century New York City, indie-rock’s pop maximalists get noisier — but it’s a journey out of negativity into “something a little deeper.”`\
-https://nytimes.com/2024/03/20/arts/music/vampire-weekend-only-god-was-above-us.html
-
-**Racing to Avoid a Shutdown, Lawmakers Weigh Skirting Their Own Rules**\
-`Despite making a deal, lawmakers face several hurdles to beating a deadline to keep the government funded after Friday.`\
-https://nytimes.com/2024/03/20/us/politics/shutdown-congress-budget-rules.html
 

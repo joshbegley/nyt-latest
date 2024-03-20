@@ -1,3 +1,11 @@
+**A Big Step Toward a Fairer Housing Market**\
+`Realtors’ commission practices have long been anticompetitive. That’s changing.`\
+https://nytimes.com/2024/03/20/opinion/realtors-agents-commissions-settlement.html
+
+**How to Recognize the Most Common Form of Skin Cancer**\
+`The fitness celebrity Richard Simmons said he was treated for basal cell carcinoma. Here’s how to recognize and prevent it.`\
+https://nytimes.com/2024/03/20/well/live/basal-cell-carcinoma-skin-cancer.html
+
 **Thursday Briefing: Where is Gaza’s Aid?**\
 `Also, sweeping U.S. climate regulations and the “3 Body Problem” on Netflix.`\
 https://nytimes.com/2024/03/20/world/asia/gaza-aid-evs-hong-kong-asia.html
