@@ -1,3 +1,23 @@
+**Fed Holds Rates Steady, Projects Three Cuts This Year**\
+`Federal Reserve officials kept interest rates at 5.3 percent and projected they would lower borrowing costs in 2024 as the Fed chair struck a watchful tone.`\
+https://nytimes.com/live/2024/03/20/business/fed-meeting-interest-rates/fed-holds-rates-steady-projects-three-cuts-this-year
+
+**In Mexico, desperate migrants continue to seek U.S. entry.**\
+`By Julie Turkewitz`\
+https://nytimes.com/live/2024/03/20/us/texas-immigration-law-sb4/in-mexico-desperate-migrants-continue-to-seek-us-entry
+
+**‘Quiet on Set: The Dark Side of Kids TV’: 5 Takeaways**\
+`The Investigation Discovery documentary takes a look at accounts of a problematic working environment at Nickelodeon.`\
+https://nytimes.com/2024/03/20/arts/television/quiet-on-set-documentary-takeaways.html
+
+**Dissecting the ‘Cowboy Carter’ Cover: Beyoncé’s Yeehaw Agenda**\
+`On Tuesday, the pop star revealed her new album’s cover, a constellation of country signifiers reminding fans of her Texas roots.`\
+https://nytimes.com/2024/03/20/style/beyonce-cowboy-carter-album-cover.html
+
+**Supreme Court Hears Case on Arrests Motivated by Politics**\
+`A Texas city councilwoman, arrested on charges of mishandling documents after criticizing the city manager, said her First Amendment rights had been violated.`\
+https://nytimes.com/2024/03/20/us/politics/supreme-court-politically-motivated-arrests.html
+
 **Superiority Burger Parts Ways With Ashwin Deshmukh**\
 `The popular East Village restaurant delivered the news in a letter to investors after a New York Times story reported on accusations regarding Mr. Deshmukh’s business practices.`\
 https://nytimes.com/2024/03/20/style/superiority-burger-letter-ashwin-deshmukh.html
