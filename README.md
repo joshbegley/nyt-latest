@@ -1,3 +1,15 @@
+**Sherrod Brown Can Breathe a Little Easier**\
+`The most vulnerable Republican won the Ohio primary, with some Democratic help.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/ohio-primary-brown-moreno
+
+**Wednesday Briefing**\
+`Hong Kong’s new security laws.`\
+https://nytimes.com/2024/03/20/briefing/hong-kong-laws-japan-rates.html
+
+**How the Windsor Women Became Human Shields**\
+`Princes might occasionally be turned into frogs, but princesses always seem to end up as villains or scapegoats.`\
+https://nytimes.com/2024/03/20/opinion/kate-middleton-photoshop.html
+
 **Four Takeaways From the Biggest Primary Night Since Super Tuesday**\
 `A Trump-backed candidate won in the G.O.P. Senate primary in Ohio. Incumbents prevailed in Illinois. And the race to finish Kevin McCarthy’s term heads to a runoff.`\
 https://nytimes.com/2024/03/20/us/politics/takeaways-primaries-ohio-illinois-california.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/20/arts/music/cola-boyy-dead.html
 **Why Mainland Chinese Flocked to Hong Kong’s New Global Visa**\
 `The city created a visa to lure professionals from around the world. Most of the takers were Chinese seeking better jobs, better schools and greater freedom.`\
 https://nytimes.com/2024/03/20/business/hong-kong-top-talent-visa.html
-
-**A Sweeping New Immigration Law Takes Effect in Texas**\
-`There was no immediate response along the border after the U.S. Supreme Court cleared the way for Texas police to arrest and deport migrants. Officials have not said when enforcement would begin.`\
-https://nytimes.com/2024/03/19/us/texas-immigration-law-sb-4.html
-
-**Corrections: March 20, 2024**\
-`Corrections that appeared in print on Wednesday, March 20, 2024.`\
-https://nytimes.com/2024/03/19/pageoneplus/corrections-march-20-2024.html
-
-**Be a Sponge**\
-`E. M. Capassakis makes calculated choices in her New York Times debut.`\
-https://nytimes.com/2024/03/19/crosswords/daily-puzzle-2024-03-20.html
 
