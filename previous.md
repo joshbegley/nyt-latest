@@ -1,3 +1,7 @@
+**Details of $1.2 Trillion Spending Bill Emerge as Partial Shutdown Looms**\
+`Tucked inside a massive measure to fund the government through the fall are several initiatives sought by members of both parties. Aides are still writing the legislative language.`\
+https://nytimes.com/2024/03/20/us/politics/spending-bill-shutdown.html
+
 **E.U. Finds a Way to Make Russia Pay for Weapons for Ukraine**\
 `Using interest earned on frozen Russian assets held in Europe, the bloc plans to raise billions. But other ways to pay for new weapons remain elusive.`\
 https://nytimes.com/2024/03/20/world/europe/eu-russia-weapons-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/us/politics/debt-taxes-budget.html
 **‘Dead Outlaw,’ a Mummy Musical, Is So Strange It Can Only Be True**\
 `The creators of “The Band’s Visit” reunited to tell the story of an outlaw whose body toured carnivals for decades.`\
 https://nytimes.com/2024/03/20/theater/dead-outlaw-audible.html
-
-**Congress seeks to bar funding for the U.N. agency for Palestinians.**\
-`By Adam Rasgon and Robert Jimison`\
-https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/congress-seeks-to-bar-funding-for-the-un-agency-for-palestinians
 

@@ -1,3 +1,7 @@
+**Details of $1.2 Trillion Spending Bill Emerge as Partial Shutdown Looms**\
+`Tucked inside a massive measure to fund the government through the fall are several initiatives sought by members of both parties. Aides are still writing the legislative language.`\
+https://nytimes.com/2024/03/20/us/politics/spending-bill-shutdown.html
+
 **E.U. Finds a Way to Make Russia Pay for Weapons for Ukraine**\
 `Using interest earned on frozen Russian assets held in Europe, the bloc plans to raise billions. But other ways to pay for new weapons remain elusive.`\
 https://nytimes.com/2024/03/20/world/europe/eu-russia-weapons-ukraine.html
