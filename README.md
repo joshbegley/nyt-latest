@@ -6,8 +6,8 @@ https://nytimes.com/2024/03/20/world/europe/who-is-leo-varadkar.html
 `The field’s governing body ratified a vote by scientists on the contentious issue, ending a long effort to update the timeline of Earth’s history.`\
 https://nytimes.com/2024/03/20/climate/anthropocene-vote-upheld.html
 
-**Blinken is adding a stop in Israel to his Mideast trip.**\
-`By Michael Crowley and Cassandra Vinograd`\
+**Blinken Adds a Stop in Israel to His Mideast Trip**\
+`The State Department said Antony Blinken, the top U.S. diplomat, would hold talks about efforts to release the hostages held in Gaza and increase aid deliveries.`\
 https://nytimes.com/2024/03/20/world/middleeast/blinken-israel-visit-ceasefire.html
 
 **Top U.S. Diplomat Starts Mideast Trip in Saudi Arabia**\
