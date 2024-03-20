@@ -1,3 +1,19 @@
+**When African Women Are Raped, Where Is the Outrage?**\
+`Rape should not be used as a weapon of war — in any context.`\
+https://nytimes.com/2024/03/20/opinion/ethiopia-africa-rape-assault.html
+
+**Love the Sinner. Or Maybe Just Kill Him.**\
+`Our crime columnist reviews new novels by Andrey Kurkov, Kristen Perrin and others.`\
+https://nytimes.com/2024/03/20/books/review/new-crime-and-mystery-novels.html
+
+**One Thing Keeping Democratic Strategists Up at Night**\
+`There is no question that a substantial number of minority voters are shifting to the right, but is it enough to cause party realignment?`\
+https://nytimes.com/2024/03/20/opinion/biden-trump-black-hispanic-voters.html
+
+**Why Do We Age?**\
+`Scientists are investigating how our biology changes as the years add up, and whether there are ways to stop it.`\
+https://nytimes.com/2024/03/20/well/live/aging-biology-dna.html
+
 **In N.Y. Suburbs, Republicans Seek Edge by Targeting Transgender Athletes**\
 `A debate over transgender women and girls in sports in Nassau County spurred a legal fight, a visit from Caitlyn Jenner and a mixed response from residents.`\
 https://nytimes.com/2024/03/20/nyregion/nassau-trans-women-sports.html
