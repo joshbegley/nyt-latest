@@ -1,3 +1,11 @@
+**More Studies by Columbia Cancer Researchers Are Retracted**\
+`The studies, pulled because of copied data, illustrate the sluggishness of scientific publishers to address serious errors, experts said.`\
+https://nytimes.com/2024/03/20/science/columbia-cancer-research-retractions.html
+
+**The Egg Dish You Need to Make Right Now**\
+`A fragrant mash-up of shakshuka, eggs in purgatory and egg curry, this easy one-pan recipe can be made with pantry ingredients you probably already have on hand.`\
+https://nytimes.com/2024/03/20/dining/egg-dish-easter.html
+
 **The Worst Part of the Fear-Mongering Around a Muslim Judicial Nominee**\
 `It is classic guilt by association, and the questioning was so reminiscent of Senator Joseph McCarthy’s anti-communist witch hunts.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/mangi-judicial-nominee-islamaphobia
