@@ -1,3 +1,11 @@
+**Trump Indicates He Would Back a 15-Week Federal Abortion Ban**\
+`The remarks on a radio show came after he had been privately expressing support for a similar ban, at 16 weeks.`\
+https://nytimes.com/2024/03/20/us/politics/trump-15-week-federal-abortion-ban.html
+
+**California Pastor Paid $40,000 to Have Daughter’s Boyfriend Shot, Police Say**\
+`Samuel Pasillas, the pastor, also tracked the target to say where he could be found on the night of the shooting, the police in Riverside, Calif., said.`\
+https://nytimes.com/2024/03/20/us/california-pastor-arrested.html
+
 **Republican States Eye Immigration Legislation Similar to Texas**\
 `Iowa lawmakers passed a similar bill on Tuesday, and several other states are hoping to follow suit.`\
 https://nytimes.com/2024/03/20/us/texas-immigration-republican-states.html
