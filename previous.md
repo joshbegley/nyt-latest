@@ -1,3 +1,7 @@
+**The immigration ruling carries an echo of an earlier one on a Texas abortion law.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/the-immigration-ruling-carries-an-echo-of-an-earlier-one-on-a-texas-abortion-law
+
 **Melania Trump Avoids Saying Whether She Will Hit Campaign Trail**\
 `The former first lady appeared with her husband as former President Donald J. Trump cast his ballot during Florida’s primaries. Asked if she would be a more frequent presence, she said “stay tuned.”`\
 https://nytimes.com/2024/03/19/us/politics/melania-trump-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/us/politics/ohio-senate.html
 **U.S. Accuses Two Men of Stealing Tesla Trade Secrets**\
 `Federal prosecutors said the pair tried to sell technology to manufacture batteries for electric cars that belonged to the company.`\
 https://nytimes.com/2024/03/19/business/tesla-trade-secrets-us-attorney.html
-
-**Delta Pilot Gets 10 Months in Jail for Coming to Work Under the Influence**\
-`Lawrence B. Russell Jr., 63, pleaded guilty to having a blood-alcohol level more than two times the aviation limit, and a half-empty bottle of Jägermeister in his luggage, the authorities said.`\
-https://nytimes.com/2024/03/19/us/delta-pilot-drunk.html
 
