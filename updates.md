@@ -1,3 +1,7 @@
+**Read the Federal Appeals Court Order**\
+`The U.S. Court of Appeals for the Fifth Circuit issued a new order effectively blocking again a Texas law that would make it a crime to cross into the state from Mexico without authorization.`\
+https://nytimes.com/interactive/2024/03/20/us/fifth-circuit-order.html
+
 **Sherrod Brown Can Breathe a Little Easier**\
 `The most vulnerable Republican won the Ohio primary, with some Democratic help.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/ohio-primary-brown-moreno
