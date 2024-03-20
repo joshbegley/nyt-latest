@@ -1,3 +1,15 @@
+**Sarah Shook & the Disarmers Took the Hard Path. The Music Kept Coming.**\
+`After a tumultuous childhood in an ultraconservative family, River Shook finally heard country music at 23. It prompted a long journey of self-discovery.`\
+https://nytimes.com/2024/03/20/arts/music/sarah-shook-the-disarmers-river-shook-revelations.html
+
+**Za’atar and Labneh Spaghetti, Luscious and Tangy**\
+`Ham El-Waylly’s fast, easy recipe has the creamy texture of an Alfredo and a bright, herbal tang that’s perfect for spring.`\
+https://nytimes.com/2024/03/20/dining/zaatar-and-labneh-spaghetti-luscious-and-tangy.html
+
+**Here’s what could happen at the appeals court hearing.**\
+`By J. David Goodman`\
+https://nytimes.com/live/2024/03/20/us/texas-immigration-law-supreme-court/heres-what-could-happen-at-the-appeals-court-hearing
+
 **Here’s What to Know About Vietnam’s Communist Government**\
 `The departure of President Vo Van Thuong, who occupied a largely ceremonial role, could have implications for the country’s future.`\
 https://nytimes.com/2024/03/20/world/asia/vietnam-communist-explainer.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/20/world/middleeast/blinken-trip-us-israel-hamas.htm
 **These Mobile Games Are for the Birds**\
 `How do you design an app for a parrot? Consider games that are “made to be licked,” a new study suggests.`\
 https://nytimes.com/2024/03/20/science/parrots-pet-videogames.html
-
-**Eclipses Injured Their Eyes, and the World Never Looked the Same**\
-`A number of case studies published after recent total solar eclipses highlight the importance of safe viewing.`\
-https://nytimes.com/2024/03/20/health/total-solar-eclipse-eye-safety.html
-
-**A Supremely Comforting One-Pot Rice Dish**\
-`Perloo, a Lowcountry staple with roots in West Africa, is a great meal for a gathering.`\
-https://nytimes.com/2024/03/20/magazine/chicken-perloo-recipe.html
-
-**Today is the deadline for the presidential campaigns’ February financial reports.**\
-`By Rebecca Davis O’Brien`\
-https://nytimes.com/live/2024/03/20/us/trump-biden-election/today-is-the-deadline-for-the-presidential-campaigns-february-financial-reports
 
