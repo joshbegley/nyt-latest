@@ -1,3 +1,7 @@
+**These Mobile Games Are for the Birds**\
+`How do you design an app for a parrot? Consider games that are “made to be licked,” a new study suggests.`\
+https://nytimes.com/2024/03/20/science/parrots-pet-videogames.html
+
 **Eclipses Injured Their Eyes, and the World Never Looked the Same**\
 `A number of case studies published after recent total solar eclipses highlight the importance of safe viewing.`\
 https://nytimes.com/2024/03/20/health/total-solar-eclipse-eye-safety.html
