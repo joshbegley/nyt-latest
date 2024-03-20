@@ -1,3 +1,7 @@
+**How Much Do You Know About Djibouti?**\
+`Can you find Djibouti on a map? What else do you know about this East African nation?`\
+https://nytimes.com/interactive/2024/03/20/learning/DjiboutiCountryQuiz.html
+
 **Greg Abbott Has Been Gunning for a Battle on the Border**\
 `The Texas governor has rallied Republicans by pushing the boundaries of what a governor can do when it comes to immigration. Now he’s in a head-to-head confrontation with the Biden administration.`\
 https://nytimes.com/2024/03/20/us/texas-immigration-greg-abbott.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/style/zendaya-says-goodbye-to-sandworms-hello-to-
 **Liam Cunningham Has a Few Thoughts**\
 `The loquacious Irish actor has reunited with the creators of “Game of Thrones” for “3 Body Problem,” a science fiction epic on Netflix.`\
 https://nytimes.com/2024/03/20/arts/television/liam-cunningham-3-body-problem.html
-
-**Measles Cases are Rising. Here’s What to Know About Symptoms.**\
-`Infected people can spread the virus before even realizing they have it.`\
-https://nytimes.com/2024/03/20/well/measles-outbreak-symptoms.html
 
