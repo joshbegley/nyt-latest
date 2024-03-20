@@ -1,3 +1,7 @@
+**Four Takeaways From the Biggest Primary Night Since Super Tuesday**\
+`A Trump-backed candidate won in the G.O.P. Senate primary in Ohio. Incumbents prevailed in Illinois. And the race to finish Kevin McCarthy’s term heads to a runoff.`\
+https://nytimes.com/2024/03/20/us/politics/takeaways-primaries-ohio-illinois-california.html
+
 **Read the Federal Appeals Court Ruling**\
 `The U.S. Court of Appeals for the Fifth Circuit issued a new order effectively blocking again a Texas law that would make it a crime to cross into the state from Mexico without authorization.`\
 https://nytimes.com/interactive/2024/03/20/us/fifth-circuit-order.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/pageoneplus/corrections-march-20-2024.html
 **Be a Sponge**\
 `E. M. Capassakis makes calculated choices in her New York Times debut.`\
 https://nytimes.com/2024/03/19/crosswords/daily-puzzle-2024-03-20.html
-
-**‘It is scary’: Migrants on Texas border say they fear arrest.**\
-`By Edgar Sandoval`\
-https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/it-is-scary-migrants-on-texas-border-say-they-fear-arrest
 
