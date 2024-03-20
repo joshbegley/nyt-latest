@@ -1,3 +1,11 @@
+**Trump Indicates He Would Back a 15-Week Federal Abortion Ban**\
+`The remarks on a radio show came after he had been privately expressing support for a similar ban, at 16 weeks.`\
+https://nytimes.com/2024/03/20/us/politics/trump-15-week-federal-abortion-ban.html
+
+**California Pastor Paid $40,000 to Have Daughter’s Boyfriend Shot, Police Say**\
+`Samuel Pasillas, the pastor, also tracked the target to say where he could be found on the night of the shooting, the police in Riverside, Calif., said.`\
+https://nytimes.com/2024/03/20/us/california-pastor-arrested.html
+
 **Republican States Eye Immigration Legislation Similar to Texas**\
 `Iowa lawmakers passed a similar bill on Tuesday, and several other states are hoping to follow suit.`\
 https://nytimes.com/2024/03/20/us/texas-immigration-republican-states.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/20/world/europe/eu-russia-weapons-ukraine.html
 **Ramy Youssef: Mixing Vibes and Politics to Fierce Effect**\
 `In “More Feelings” on HBO, the comic takes a nuanced look at his own role as a Muslim celebrity and at the American response to conflict in the Mideast.`\
 https://nytimes.com/2024/03/20/arts/television/ramy-youssef-more-feelings-hbo.html
-
-**U.F.C. Settles Antitrust Suit With Fighters for $335 Million**\
-`The organization’s parent company admitted no wrongdoing but agreed to pay the fighters, who had accused it of suppressing their pay.`\
-https://nytimes.com/2024/03/20/business/ufc-antitrust-lawsuit-settlement.html
-
-**More Studies by Columbia Cancer Researchers Are Retracted**\
-`The studies, pulled because of copied data, illustrate the sluggishness of scientific publishers to address serious errors, experts said.`\
-https://nytimes.com/2024/03/20/science/columbia-cancer-research-retractions.html
 
