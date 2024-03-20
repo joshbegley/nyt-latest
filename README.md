@@ -8,7 +8,7 @@ https://nytimes.com/2024/03/20/climate/anthropocene-vote-upheld.html
 
 **Blinken is adding a stop in Israel to his Mideast trip.**\
 `By Michael Crowley and Cassandra Vinograd`\
-https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/blinken-israel-trip
+https://nytimes.com/2024/03/20/world/middleeast/blinken-israel-visit-ceasefire.html
 
 **Top U.S. Diplomat Starts Mideast Trip in Saudi Arabia**\
 `Efforts to secure a cease-fire in Gaza are the backdrop, but the Biden administration also hopes to persuade Saudi Arabia to establish normal relations with Israel.`\
