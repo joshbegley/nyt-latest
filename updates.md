@@ -1,3 +1,7 @@
+**Republican States Eye Immigration Legislation Similar to Texas**\
+`Iowa lawmakers passed a similar bill on Tuesday, and several other states are hoping to follow suit.`\
+https://nytimes.com/2024/03/20/us/texas-immigration-republican-states.html
+
 **Details of $1.2 Trillion Spending Bill Emerge as Partial Shutdown Looms**\
 `Tucked inside a massive measure to fund the government through the fall are several initiatives sought by members of both parties. Aides are still writing the legislative language.`\
 https://nytimes.com/2024/03/20/us/politics/government-shutdown-spending-bill.html

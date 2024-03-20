@@ -1,3 +1,7 @@
+**Republican States Eye Immigration Legislation Similar to Texas**\
+`Iowa lawmakers passed a similar bill on Tuesday, and several other states are hoping to follow suit.`\
+https://nytimes.com/2024/03/20/us/texas-immigration-republican-states.html
+
 **Democrats Prepare Aggressive Counter to Third-Party Threats**\
 `An army of lawyers aims to challenge the steadily advancing ballot-access efforts of independent candidates, who Democrats fear could peel votes away in swing states.`\
 https://nytimes.com/2024/03/20/us/politics/democrats-third-party-candidates.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/business/ufc-antitrust-lawsuit-settlement.html
 **More Studies by Columbia Cancer Researchers Are Retracted**\
 `The studies, pulled because of copied data, illustrate the sluggishness of scientific publishers to address serious errors, experts said.`\
 https://nytimes.com/2024/03/20/science/columbia-cancer-research-retractions.html
-
-**The Egg Dish You Need to Make Right Now**\
-`A fragrant mash-up of shakshuka, eggs in purgatory and egg curry, this easy one-pan recipe can be made with pantry ingredients you probably already have on hand.`\
-https://nytimes.com/2024/03/20/dining/egg-dish-easter.html
 
