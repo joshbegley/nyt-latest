@@ -1,3 +1,7 @@
+**Superiority Burger Parts Ways With Ashwin Deshmukh**\
+`The popular East Village restaurant delivered the news in a letter to investors after a New York Times story reported on accusations regarding Mr. Deshmukh’s business practices.`\
+https://nytimes.com/2024/03/20/style/superiority-burger-letter-ashwin-deshmukh.html
+
 **Supreme Court Hears Case on Arrests Motivated by Politics**\
 `A Texas city councilwoman, arrested on charges of mishandling documents after criticizing the city manager, said her First Amendment rights had been violated.`\
 https://nytimes.com/2024/03/20/us/politics/supreme-court-politically-motivated-arrests.html
