@@ -1,3 +1,23 @@
+**Judge Won’t Punish Michael Cohen For Relying on Artificial Intelligence**\
+`Former President Donald J. Trump’s onetime fixer gave his lawyer fake legal citations concocted by the artificial intelligence program Google Bard for a motion the lawyer filed in federal court.`\
+https://nytimes.com/2024/03/20/nyregion/michael-cohen-artificial-intelligence.html
+
+**Congress Seeks to Bar Funding for U.N. Agency for Palestinians**\
+`A bill would bar support for the agency, UNRWA, amid accusations that some employees were Hamas fighters. Other countries are scrambling to make up the looming shortfall.`\
+https://nytimes.com/2024/03/20/world/middleeast/unrwa-senate-gaza.html
+
+**What the Fed’s Moves Mean for Mortgages, Credit Cards and More**\
+`Higher rates benefit those who can save, but for borrowers, falling rates would reduce bills on credit cards, student loans and other forms of debt.`\
+https://nytimes.com/2024/03/20/business/interest-rates-mortgages-credit-cards.html
+
+**Fossil Trove from 74,000 Years Ago Points to Remarkably Adaptive Humans**\
+`An archaeological site in Ethiopia revealed the oldest-known arrowheads and the remnants of a major volcanic eruption.`\
+https://nytimes.com/2024/03/20/science/early-humans-arrowheads-volcano.html
+
+**Comparing the Trump and Biden Years**\
+`Readers discuss the economy, yearn for normalcy and lament amnesia about Donald Trump’s term. Also: 5 Nobelists, about a large telescope; radiation exposure; the filibuster; classical music.`\
+https://nytimes.com/2024/03/20/opinion/trump-biden.html
+
 **New Rules Will Still Push Carmakers to Sell More Electric Cars**\
 `New Biden administration auto rules are less forceful than an earlier proposal but will still add to market pressure for cheaper electric vehicles.`\
 https://nytimes.com/2024/03/20/business/new-rules-will-still-push-carmakers-to-sell-more-electric-cars.html
