@@ -1,3 +1,7 @@
+**Iowa Passes Bill to Make Returning After Deportation a State Crime**\
+`Gov. Kim Reynolds, a Republican, said she would sign the measure into law.`\
+https://nytimes.com/2024/03/19/us/iowa-deportation-bill-immigration.html
+
 **Police in Brooklyn Fatally Shoot Man Who Chased and Shot at a Mugger**\
 `Four police officers were responding to reports of gunshots in East Flatbush when they saw the man, 20, chasing another man and a woman, the authorities said.`\
 https://nytimes.com/2024/03/19/nyregion/brooklyn-police-shooting.html

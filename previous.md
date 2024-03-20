@@ -1,3 +1,7 @@
+**Iowa Passes Bill to Make Returning After Deportation a State Crime**\
+`Gov. Kim Reynolds, a Republican, said she would sign the measure into law.`\
+https://nytimes.com/2024/03/19/us/iowa-deportation-bill-immigration.html
+
 **Police in Brooklyn Fatally Shoot Man Who Chased and Shot at a Mugger**\
 `Four police officers were responding to reports of gunshots in East Flatbush when they saw the man, 20, chasing another man and a woman, the authorities said.`\
 https://nytimes.com/2024/03/19/nyregion/brooklyn-police-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/business/media/gannett-mcclatchy-ap-associated-pr
 **The White House condemned the ‘harmful’ law, while Republicans celebrated the Supreme Court’s action.**\
 `By Ben Shpigel`\
 https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/the-white-house-condemned-the-harmful-law-while-republicans-celebrated-the-supreme-courts-action
-
-**Brown Cruises in Ohio Democratic Senate Primary as Republicans Await Result**\
-`Senator Sherrod Brown is the only Democrat still holding statewide elective office in Ohio, which Donald J. Trump won in both 2016 and 2020.`\
-https://nytimes.com/2024/03/19/us/politics/ohio-senate.html
 
