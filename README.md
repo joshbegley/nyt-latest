@@ -2,7 +2,7 @@
 `The departure of President Vo Van Thuong, who occupied a largely ceremonial role, could have implications for the country’s future.`\
 https://nytimes.com/2024/03/20/world/asia/vietnam-communist-explainer.html
 
-**Following Measles Outbreaks, Scientists Grow Wary of Renewed Threat**\
+**Following Measles Outbreaks, Officials Grow Wary of Renewed Threat**\
 `Cases this year have already topped the total in 2023. Unvaccinated travelers account for most infections.`\
 https://nytimes.com/2024/03/20/health/measles-children-travel.html
 
