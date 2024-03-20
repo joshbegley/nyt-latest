@@ -1,3 +1,7 @@
+**A Museum’s Feminist Artwork Excluded Men. So One Man Took It to Court.**\
+`Gender-based discrimination is central to the women-only art installation, in Australia, but one visitor claims it is also illegal.`\
+https://nytimes.com/2024/03/20/world/australia/mona-ladies-lounge-tasmania.html
+
 **Read the Federal Appeals Court Order**\
 `The U.S. Court of Appeals for the Fifth Circuit issued a new order effectively again blocking a Texas law that would make it a crime to cross into the state from Mexico without authorization.`\
 https://nytimes.com/interactive/2024/03/20/us/fifth-circuit-order.html
