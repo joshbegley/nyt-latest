@@ -1,3 +1,7 @@
+**Corrections: March 20, 2024**\
+`Corrections that appeared in print on Wednesday, March 20, 2024.`\
+https://nytimes.com/2024/03/19/pageoneplus/corrections-march-20-2024.html
+
 **Be a Sponge**\
 `E. M. Capassakis makes calculated choices in her New York Times debut.`\
 https://nytimes.com/2024/03/19/crosswords/daily-puzzle-2024-03-20.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/19/nyregion/brooklyn-police-shooting.html
 **The immigration ruling carries an echo of an earlier one on a Texas abortion law.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/03/19/us/texas-immigration-supreme-court/the-immigration-ruling-carries-an-echo-of-an-earlier-one-on-a-texas-abortion-law
-
-**Melania Trump Avoids Saying Whether She Will Hit Campaign Trail**\
-`The former first lady appeared with her husband as former President Donald J. Trump cast his ballot during Florida’s primaries. Asked if she would be a more frequent presence, she said “stay tuned.”`\
-https://nytimes.com/2024/03/19/us/politics/melania-trump-campaign.html
 

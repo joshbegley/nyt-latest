@@ -1,3 +1,7 @@
+**Corrections: March 20, 2024**\
+`Corrections that appeared in print on Wednesday, March 20, 2024.`\
+https://nytimes.com/2024/03/19/pageoneplus/corrections-march-20-2024.html
+
 **Be a Sponge**\
 `E. M. Capassakis makes calculated choices in her New York Times debut.`\
 https://nytimes.com/2024/03/19/crosswords/daily-puzzle-2024-03-20.html
