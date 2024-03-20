@@ -1,3 +1,15 @@
+**Who Is Leo Varadkar?**\
+`Mr. Varadkar, who said on Wednesday that he would step down as Ireland’s prime minister, has had a career of firsts. His resignation came as a surprise.`\
+https://nytimes.com/2024/03/20/world/europe/who-is-leo-varadkar.html
+
+**Geologists Make It Official: We’re Not in an ‘Anthropocene’ Epoch**\
+`The field’s governing body ratified a vote by scientists on the contentious issue, ending a long effort to update the timeline of Earth’s history.`\
+https://nytimes.com/2024/03/20/climate/anthropocene-vote-upheld.html
+
+**Blinken is adding a stop in Israel to his Mideast trip.**\
+`By Michael Crowley and Cassandra Vinograd`\
+https://nytimes.com/2024/03/20/world/middleeast/blinken-israel-visit-ceasefire.html
+
 **Blinken is adding a stop in Israel to his Mideast trip.**\
 `By Michael Crowley and Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/blinken-israel-trip
