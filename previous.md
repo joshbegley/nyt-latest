@@ -1,3 +1,7 @@
+**Can Climate Cafes Help Ease the Anxiety of Planetary Crisis?**\
+`The groups, which allow people to talk through their emotions around environmental change, have sprung up across the country, including for therapists.`\
+https://nytimes.com/2024/03/20/climate/climate-change-anxiety-fear.html
+
 **How Much Do You Know About Djibouti?**\
 `Can you find Djibouti on a map? What else do you know about this East African nation?`\
 https://nytimes.com/interactive/2024/03/20/learning/DjiboutiCountryQuiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/world/europe/ukraine-russia-south.html
 **Zendaya Says Goodbye to Sandworms, Hello to Skorts**\
 `The actress is known for thematic dressing to promote her movies. After her “Dune” desert epic, comes a tennis love triangle, “Challengers.”`\
 https://nytimes.com/2024/03/20/style/zendaya-says-goodbye-to-sandworms-hello-to-skorts.html
-
-**Liam Cunningham Has a Few Thoughts**\
-`The loquacious Irish actor has reunited with the creators of “Game of Thrones” for “3 Body Problem,” a science fiction epic on Netflix.`\
-https://nytimes.com/2024/03/20/arts/television/liam-cunningham-3-body-problem.html
 

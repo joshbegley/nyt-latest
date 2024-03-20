@@ -1,3 +1,7 @@
+**Can Climate Cafes Help Ease the Anxiety of Planetary Crisis?**\
+`The groups, which allow people to talk through their emotions around environmental change, have sprung up across the country, including for therapists.`\
+https://nytimes.com/2024/03/20/climate/climate-change-anxiety-fear.html
+
 **How Much Do You Know About Djibouti?**\
 `Can you find Djibouti on a map? What else do you know about this East African nation?`\
 https://nytimes.com/interactive/2024/03/20/learning/DjiboutiCountryQuiz.html
