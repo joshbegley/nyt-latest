@@ -1,3 +1,7 @@
+**NYCHA’s Outgoing Watchdog, Bart Schwartz, on the Difficult Work Ahead**\
+`For five years, Mr. Schwartz monitored the New York City Housing Authority and tried to root out problems and corruption. In a final report and interview, he said he was hopeful.`\
+https://nytimes.com/2024/03/20/nyregion/nycha-public-housing-new-york.html
+
 **Why Tech Companies Are Not Your Friends: Lessons From Roku**\
 `Roku recently changed its policy to make it even harder for customers to take legal action. It’s a reminder of how we need to protect ourselves.`\
 https://nytimes.com/2024/03/20/technology/personaltech/roku-data-breach-companies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/world/asia/vietnam-president-thuong-resigns.html
 **Israel’s return to Al-Shifa points to a power vacuum in northern Gaza.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news/israels-return-to-al-shifa-points-to-a-power-vacuum-in-northern-gaza
-
-**20mideast-crisis**\
-`Battle at Hospital Points to Power Vacuum in Northern Gaza`\
-https://nytimes.com/live/2024/03/20/world/israel-hamas-war-gaza-news
 
