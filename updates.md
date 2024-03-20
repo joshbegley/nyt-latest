@@ -1,3 +1,7 @@
+**E.U. Finds a Way to Make Russia Pay for Weapons for Ukraine**\
+`Using interest earned on frozen Russian assets held in Europe, the bloc plans to raise billions. But other ways to pay for new weapons remain elusive.`\
+https://nytimes.com/2024/03/20/world/europe/eu-russia-weapons-ukraine.html
+
 **Ramy Youssef: Mixing Vibes and Politics to Fierce Effect**\
 `In “More Feelings” on HBO, the comic takes a nuanced look at his own role as a Muslim celebrity and at the American response to conflict in the Mideast.`\
 https://nytimes.com/2024/03/20/arts/television/ramy-youssef-more-feelings-hbo.html
