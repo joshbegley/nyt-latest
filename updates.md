@@ -1,3 +1,7 @@
+**Details of $1.2 Trillion Spending Bill Emerge as Partial Shutdown Looms**\
+`Tucked inside a massive measure to fund the government through the fall are several initiatives sought by members of both parties. Aides are still writing the legislative language.`\
+https://nytimes.com/2024/03/20/us/politics/government-shutdown-spending-bill.html
+
 **Democrats Prepare Aggressive Counter to Third-Party Threats**\
 `An army of lawyers aims to challenge the steadily advancing ballot-access efforts of independent candidates, who Democrats fear could peel votes away in swing states.`\
 https://nytimes.com/2024/03/20/us/politics/democrats-third-party-candidates.html
