@@ -1,4 +1,8 @@
 **Family Settles in Battle for Ancestral Land in South Carolina**\
+`Josephine Wright, who died this year at 94, had been fighting to save family property. The developer, Bailey Point Investments, agreed to an end in the dispute, the family’s lawyer said.`\
+https://nytimes.com/2024/03/20/us/josephine-wright-settlement.html
+
+**Family Settles in Battle for Ancestral Land in South Carolina**\
 `Josephine Wright, who died this year at 94, had been fighting to save family property. The developer, Bailey Point Investments, agreed to and end in the dispute, the family’s lawyer said.`\
 https://nytimes.com/2024/03/20/us/josephine-wright-settlement.html
 
