@@ -1,3 +1,23 @@
+**Judge Won’t Punish Michael Cohen For Relying on Artificial Intelligence**\
+`Former President Donald J. Trump’s onetime fixer gave his lawyer fake legal citations concocted by the artificial intelligence program Google Bard for a motion the lawyer filed in federal court.`\
+https://nytimes.com/2024/03/20/nyregion/michael-cohen-artificial-intelligence.html
+
+**Congress Seeks to Bar Funding for U.N. Agency for Palestinians**\
+`A bill would bar support for the agency, UNRWA, amid accusations that some employees were Hamas fighters. Other countries are scrambling to make up the looming shortfall.`\
+https://nytimes.com/2024/03/20/world/middleeast/unrwa-senate-gaza.html
+
+**What the Fed’s Moves Mean for Mortgages, Credit Cards and More**\
+`Higher rates benefit those who can save, but for borrowers, falling rates would reduce bills on credit cards, student loans and other forms of debt.`\
+https://nytimes.com/2024/03/20/business/interest-rates-mortgages-credit-cards.html
+
+**Fossil Trove from 74,000 Years Ago Points to Remarkably Adaptive Humans**\
+`An archaeological site in Ethiopia revealed the oldest-known arrowheads and the remnants of a major volcanic eruption.`\
+https://nytimes.com/2024/03/20/science/early-humans-arrowheads-volcano.html
+
+**Comparing the Trump and Biden Years**\
+`Readers discuss the economy, yearn for normalcy and lament amnesia about Donald Trump’s term. Also: 5 Nobelists, about a large telescope; radiation exposure; the filibuster; classical music.`\
+https://nytimes.com/2024/03/20/opinion/trump-biden.html
+
 **At Carnegie Hall, the New Pianists Are Young and Younger**\
 `Jan Lisiecki, 28, is the elder statesman alongside Alexander Malofeev and Yunchan Lim in a trio of recent recital debuts at the hall.`\
 https://nytimes.com/2024/03/20/arts/music/lisiecki-malofeev-yunchan-lim-piano-carnegie.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/03/20/us/texas-immigration-law-sb4/appeals-court-p
 **My Mother Swears by Alternative Medicine. I’m a Scientist. What to Do?**\
 `The magazine’s Ethicist columnist on how a family might reconcile two very different belief systems.`\
 https://nytimes.com/2024/03/20/magazine/mother-alternative-medicine-scientist-ethics.html
-
-**Biden Administration Announces Rules Aimed at Phasing Out Gas Cars**\
-`The regulations would require automakers to produce more electric vehicles and hybrids by gradually tightening limits on tailpipe pollution.`\
-https://nytimes.com/2024/03/20/climate/biden-phase-out-gas-cars.html
-
-**What to Know About Biden’s New Clean Cars Regulation**\
-`The new rule is not a ban on gas cars. Here’s how it works.`\
-https://nytimes.com/2024/03/20/climate/biden-clean-car-rule-key-facts.html
-
-**What to Know About Intermittent Fasting**\
-`A new study found that it can raise cardiovascular risk, but the research had major limitations.`\
-https://nytimes.com/2024/03/20/well/eat/intermittent-fasting-study.html
-
-**‘Dear Layla’: Letters for Sale From a Rock Music Love Triangle**\
-`Eric Clapton’s handwritten messages, being auctioned this week, shed light on how he wooed Pattie Boyd away from George Harrison and on the impassioned songs the affair inspired.`\
-https://nytimes.com/2024/03/20/arts/music/pattie-boyd-george-harrison-eric-clapton-auction.html
-
-**Ex-General Accused of Rights Abuses Is Declared Winner of Indonesia Election**\
-`The official result confirmed projections made after last month’s vote, which raised concerns about the vibrancy of the country’s democracy.`\
-https://nytimes.com/2024/03/20/world/asia/prabowo-official-indonesia-election.html
 
