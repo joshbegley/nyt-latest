@@ -34,7 +34,7 @@ https://nytimes.com/2024/03/21/business/dealbook/fed-rate-cuts.html
 `A documentary on the “Star Trek” actor unboldly goes where other profile movies have gone before.`\
 https://nytimes.com/2024/03/21/movies/william-shatner-you-can-call-me-bill-review.html
 
-**‘Riddle of Fire’ Review: Tiny Terrors**\
-`Three children embark on a mystical journey in this charming but shapeless first feature.`\
-https://nytimes.com/2024/03/21/movies/riddle-of-fire-review-tiny-terrors.html
+**‘Limbo’ Review: Pensive in the Outback**\
+`Long on atmosphere and short on plot, this stylish Australian noir pulls through thanks to a haunted performance by Simon Baker.`\
+https://nytimes.com/2024/03/21/movies/limbo-review.html
 
