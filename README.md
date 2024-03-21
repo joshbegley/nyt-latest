@@ -1,3 +1,7 @@
+**Amnon Weinstein, Who Restored Violins From the Holocaust, Dies at 84**\
+`Many had been left behind by victims of the gas chambers. He let the instruments be heard again in melodic tributes through his organization, Violins of Hope.`\
+https://nytimes.com/2024/03/21/arts/music/amnon-weinstein-dead.html
+
 **Third Man Charged With Murder in Shooting at Super Bowl Rally**\
 `Nine people have been charged with crimes, including weapons violations, in connection to the shooting in Kansas City, Mo., last month.`\
 https://nytimes.com/2024/03/21/us/kansas-city-super-bowl-shooting-charges.html
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2024/world/international-elections-2024.html
 **Trump’s Deal With R.N.C. Prioritizes PAC Paying His Lawyers**\
 `A share of donations taken in by the Republican National Committee will go to the group footing his legal bills before any of the cash goes to the party itself.`\
 https://nytimes.com/2024/03/21/us/politics/trump-legal-bills-rnc.html
-
-**Are You an Undecided Voter? Do You Live in a Battleground State? We Want to Hear from You.**\
-`Most voters say their minds are already made up. But if yours isn’t, we want to hear your perspective.`\
-https://nytimes.com/article/undecided-voter-questions.html
 
