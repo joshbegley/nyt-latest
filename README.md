@@ -1,3 +1,7 @@
+**Civil Judgments Sting as Criminal Cases Slow**\
+`Civil cases are keeping the pressure on Donald Trump ahead of his four criminal trials.`\
+https://nytimes.com/2024/03/21/us/politics/trump-trial-civil-cases-bond.html
+
 **Three Popular Restaurants Opened Spinoffs. Are They Any Good?**\
 `Are they more “Better Call Saul” or “How I Met Your Father”?`\
 https://nytimes.com/2024/03/21/dining/three-popular-restaurants-opened-spinoffs-are-they-any-good.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/obituaries/yvonne-barr-overlooked.html
 **Why Do Autocrats Like Putin Bother to Hold Elections?**\
 `These votes can demonstrate control, serve as a warning and create the illusion of accountability.`\
 https://nytimes.com/2024/03/21/world/europe/interpreter-elections-putin.html
-
-**Ireland’s Prime Minister Stepped Down. So What Happens Now?**\
-`Leo Varadkar, the prime minister of the Republic of Ireland, resigned unexpectedly on Wednesday, prompting a political scramble in the government. Here’s what to know about what happens next.`\
-https://nytimes.com/2024/03/21/world/europe/ireland-varadkar-what-now.html
 
