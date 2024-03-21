@@ -1,3 +1,7 @@
+**The Roadblocks to Biden’s Electric Vehicles Plan**\
+`E.V.s have become part of the political culture wars`\
+https://nytimes.com/2024/03/21/climate/the-roadblocks-to-bidens-electric-vehicles-plan.html
+
 **Robert L. Barry, 89, Diplomat Who Negotiated Pact With Soviets, Dies**\
 `He was the chief negotiator on a troop-inspections accord that American officials considered important in reducing East-West tensions near the end of the Cold War.`\
 https://nytimes.com/2024/03/21/us/robert-l-barry-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/books/review/8-new-books-we-recommend-this-week.h
 **Biden’s Housing Prescription Is Far Short of a Cure**\
 `To build 4 million homes, the government will have to offer bigger ideas than just incentives.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-housing-plan
-
-**A Little-Known Way That Trump Could Raise Money to Pay His Legal Bills**\
-`The former president’s social media company is finally set to go public. He could borrow against the value of his stake in the company.`\
-https://nytimes.com/2024/03/21/business/trump-truth-social-merger.html
 
