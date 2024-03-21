@@ -1,3 +1,7 @@
+**Israel Says It Has Killed Dozens of ‘Terrorists’ in Hospital Raid**\
+`The Israeli military’s raid on Al-Shifa Hospital in northern Gaza, the largest in the territory, has stretched into a fourth day.`\
+https://nytimes.com/2024/03/21/world/middleeast/israel-al-shifa-hospital-raid-gaza.html
+
 **The Fed Stays the Course on Rates**\
 `Markets are cheering the central bank’s forecast for three interest rate cuts this year. But Fed policymakers are divided on the issue.`\
 https://nytimes.com/2024/03/21/business/dealbook/fed-rate-cuts.html

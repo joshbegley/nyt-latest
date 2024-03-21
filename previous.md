@@ -1,3 +1,7 @@
+**Israel Says It Has Killed Dozens of ‘Terrorists’ in Hospital Raid**\
+`The Israeli military’s raid on Al-Shifa Hospital in northern Gaza, the largest in the territory, has stretched into a fourth day.`\
+https://nytimes.com/2024/03/21/world/middleeast/israel-al-shifa-hospital-raid-gaza.html
+
 **The Fed Stays the Course on Rates**\
 `Markets are cheering the central bank’s forecast for three interest rate cuts this year. But Fed policymakers are divided on the issue.`\
 https://nytimes.com/2024/03/21/business/dealbook/fed-rate-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/podcasts/biden-texas-election.html
 **The Caitlin Clark Phenomenon**\
 `The Iowa basketball star is blazing a trail in women’s sports.`\
 https://nytimes.com/2024/03/21/podcasts/the-daily/caitlin-clark.html
-
-**Directing a Movie Doesn’t Make You a Mideast Authority**\
-`Jonathan Glazer’s Oscar speech comparing the Gaza war to the Holocaust was profoundly wrong.`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/oscars-glazer-holocaust-israel
 
