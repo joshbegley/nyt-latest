@@ -1,3 +1,7 @@
+**Russia Targets Kyiv With Biggest Missile Attack in Weeks**\
+`The extent of the damage to the Ukrainian capital was not yet clear, but officials said at least 10 people had been injured and buildings had been damaged.`\
+https://nytimes.com/2024/03/21/world/europe/russian-missile-attack-kyiv.html
+
 **Climate Change Made an Early Heat Wave in West Africa 10 Times as Likely**\
 `Temperatures in the region rose above 40 degrees Celsius in February, with humidity pushing the heat index even higher.`\
 https://nytimes.com/2024/03/21/climate/climate-change-heat-wave-west-africa.html
