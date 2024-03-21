@@ -15,7 +15,7 @@ https://nytimes.com/2024/03/20/crosswords/daily-puzzle-2024-03-21.html
 https://nytimes.com/2024/03/20/arts/music/met-opera-turandot-technical-problem.html
 
 **M. Emmet Walsh, Character Actor Who Always Stood Out, Dies at 88**\
-`His roles in films like “Blood Simple” and “Blade Runner” were sometimes big, sometimes small. But he invariably made a strong impression.`\
+`His roles in films like “Knives Out” and “Blade Runner” were sometimes big, sometimes small. But he invariably made a strong impression.`\
 https://nytimes.com/2024/03/20/movies/m-emmet-walsh-dead.html
 
 **Corrections: March 21, 2024**\

@@ -1,3 +1,7 @@
+**M. Emmet Walsh, Character Actor Who Always Stood Out, Dies at 88**\
+`His roles in films like “Knives Out” and “Blade Runner” were sometimes big, sometimes small. But he invariably made a strong impression.`\
+https://nytimes.com/2024/03/20/movies/m-emmet-walsh-dead.html
+
 **‘Serial’ Season 4: Guantánamo**\
 `“Serial” returns with a history of Guantánamo told by people who lived through key moments in Guantánamo’s evolution, who know things the rest of us don’t about what it’s like to be caught inside an improvised justice system.`\
 https://nytimes.com/interactive/2024/podcasts/serial-season-four-guantanamo.html
