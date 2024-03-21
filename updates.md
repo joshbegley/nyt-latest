@@ -1,5 +1,13 @@
 **His Voice Can Stop You in Your Tracks**\
 `Loren Kramar wowed the fashion set with a recent performance. Now he’s taking his act mainstream.`\
+https://nytimes.com/2024/03/21/style/loren-kramar-fashion-singer-glovemaker.html
+
+**One of Last Survivors of Pearl Harbor Attack Dies at 102**\
+`Richard C. Higgins was stationed at the Hawaiian naval base as a radioman on the day of the Japanese attack, which pulled the U.S. into World War II.`\
+https://nytimes.com/2024/03/21/us/richard-higgins-dead.html
+
+**His Voice Can Stop You in Your Tracks**\
+`Loren Kramar wowed the fashion set with a recent performance. Now he’s taking his act mainstream.`\
 https://nytimes.com/2024/03/21/style/singer-musician-fashion.html
 
 **His Voice Can Stop You in Your Tracks**\
