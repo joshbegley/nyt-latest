@@ -1,3 +1,11 @@
+**What Students Are Saying About Bullying Today**\
+`Teenagers tell us what it’s like to navigate the social world in the age of smartphones and social media.`\
+https://nytimes.com/2024/03/21/learning/what-students-are-saying-about-bullying-today.html
+
+**Overlooked No More: Yvonne Barr, Who Helped Discover a Cancer-Causing Virus**\
+`A virologist, she worked with the pathologist Anthony Epstein, who died last month, in finding for the first time that a virus that could cause cancer. It’s known as the Epstein-Barr virus.`\
+https://nytimes.com/2024/03/21/obituaries/yvonne-barr-overlooked.html
+
 **Why Do Autocrats Like Putin Bother to Hold Elections?**\
 `These votes can demonstrate control, serve as a warning and create the illusion of accountability.`\
 https://nytimes.com/2024/03/21/world/europe/interpreter-elections-putin.html
@@ -10,7 +18,7 @@ https://nytimes.com/2024/03/21/world/europe/ireland-varadkar-what-now.html
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/03/21/books/review/8-new-books-we-recommend-this-week.html
 
-**Biden’s Housing Prescription is Far Short of a Cure**\
+**Biden’s Housing Prescription Is Far Short of a Cure**\
 `To build 4 million homes, the government will have to offer bigger ideas than just incentives.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-housing-plan
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/21/us/cashless-national-parks-lawsuit.html
 **Julie Robinson Belafonte, Dancer, Actress and Activist, Dies at 95**\
 `With the singer Harry Belafonte, she was one half of a celebrated (and sometimes denounced) interracial power couple who pressed the cause of civil rights in the 1960s`\
 https://nytimes.com/2024/03/21/arts/julie-belafonte-dead.html
-
-**Trump Told Pence Certifying Election Would Be ‘Career Killer,’ Valet Testified**\
-`President Donald J. Trump warned his vice president against failing to overturn the 2020 election results, according to an account by the White House valet by his side on Jan. 6.`\
-https://nytimes.com/2024/03/21/us/trump-pence-jan-6-white-house-valet.html
-
-**Posing as a Pastor, Man Had at Least 10 Wives, Prosecutors Say**\
-`The Houston man was sentenced last week to three years in prison after he married a woman in Kentucky, violating the conditions of his probation on a bigamy charge, prosecutors said.`\
-https://nytimes.com/2024/03/21/us/pastor-bishop-houston-wives-bigamy.html
 
