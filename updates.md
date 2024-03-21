@@ -1,3 +1,7 @@
+**U.S. Sues Apple, Accusing It of Maintaining an iPhone Monopoly**\
+`The lawsuit caps years of regulatory scrutiny of Apple’s wildly popular suite of devices and services, which have fueled its growth into a nearly $3 trillion public company.`\
+https://nytimes.com/2024/03/21/technology/apple-doj-lawsuit-antitrust.html
+
 **‘3 Body Problem’ Episode 2 Recap: The Warning**\
 `Fans of spooky technology will have much to enjoy in this episode.`\
 https://nytimes.com/2024/03/21/arts/television/3-body-problem-episode-2-recap.html

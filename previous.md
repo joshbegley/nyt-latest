@@ -1,3 +1,7 @@
+**U.S. Sues Apple, Accusing It of Maintaining an iPhone Monopoly**\
+`The lawsuit caps years of regulatory scrutiny of Apple’s wildly popular suite of devices and services, which have fueled its growth into a nearly $3 trillion public company.`\
+https://nytimes.com/2024/03/21/technology/apple-doj-lawsuit-antitrust.html
+
 **‘3 Body Problem’ Episode 2 Recap: The Warning**\
 `Fans of spooky technology will have much to enjoy in this episode.`\
 https://nytimes.com/2024/03/21/arts/television/3-body-problem-episode-2-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/arts/free-blockbuster-dvd-movies-box.html
 **The Lone Volcano in California’s Central Valley**\
 `Often called “the world’s smallest mountain range,” the Sutter Buttes are an unlikely and beloved landmark in one of the flattest parts of the state.`\
 https://nytimes.com/2024/03/21/us/the-lone-volcano-in-californias-central-valley.html
-
-**Britain’s ‘Pie King’ Comes to Paris**\
-`Plus: a colorful hotel in Finland, hand-painted folding screens and more recommendations from T Magazine.`\
-https://nytimes.com/2024/03/21/t-magazine/calum-franklin-public-house-paris.html
 
