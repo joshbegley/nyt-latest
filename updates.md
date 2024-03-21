@@ -1,3 +1,11 @@
+**Tax Dispute Becomes Political as India Freezes Opposition’s Accounts**\
+`Just weeks before pivotal elections, the authorities have blocked access to several of the Indian National Congress’s main bank accounts, the party said.`\
+https://nytimes.com/2024/03/21/world/asia/india-national-congress-bank-accounts-bjp.html
+
+**A Director Brings TikTok’s Chaotic Vibe to the Big Screen**\
+`Radu Jude’s films are messy mash-ups of art, literature, advertising and social media, with some dirty jokes thrown in.`\
+https://nytimes.com/2024/03/21/movies/radu-jude-do-not-expect-too-much-from-the-end-of-the-world.html
+
 **Israel’s Raid on Al-Shifa Hospital Grows Into One of the Longest of Gaza War**\
 `The Israeli military’s attack on the Shifa complex stretched into a fourth day. The military said it had killed dozens of people it described as terrorists.`\
 https://nytimes.com/2024/03/21/world/middleeast/israel-al-shifa-hospital-raid-gaza.html
