@@ -1,40 +1,40 @@
-**A Lenten Soup So Good the Memory of It Lasts a Whole Year**\
-`For Ecuadoreans, fanesca, a labor-intensive soup served just during the lead-up to Easter, is a staple of Holy Week festivities.`\
-https://nytimes.com/2024/03/21/dining/fanesca-lenten-soup.html
+**Directing a Movie Doesn’t Make You a Mideast Authority**\
+`Jonathan Glazer’s Oscar speech comparing the Gaza war to the Holocaust was profoundly wrong.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/oscars-glazer-holocaust-israel
 
-**America First Legal, a Trump-Aligned Group, Is Spoiling for a Fight**\
-`The group, headed by the former Trump adviser Stephen Miller, has filed more than 100 legal actions against “woke” companies and others. But winning may be beside the point.`\
-https://nytimes.com/2024/03/21/us/politics/stephen-miller-america-first-legal.html
+**Biden Approves $5.8 Billion in Additional Student Debt Cancellation**\
+`The incremental relief brings the canceled total to $143.6 billion for nearly four million Americans.`\
+https://nytimes.com/2024/03/21/business/biden-student-loan-forgiveness.html
 
-**Long Before Amsterdam’s Coffee Shops, There Were Hallucinogenic Seeds**\
-`A nearly 2,000-year-old stash pouch provides the first evidence of the intentional use of a powerful psychedelic plant in Western Europe during the Roman Era.`\
-https://nytimes.com/2024/03/21/science/archaeology-hallucinogens-henbane.html
+**What Comes Next for the Housing Market?**\
+`The Federal Reserve still expects to cut rates this year, and a change in selling practices could shake up home shopping. Here’s the outlook.`\
+https://nytimes.com/2024/03/21/business/economy/housing-market-changes.html
 
-**A New Train Is Opening Up the Yucatán, for Better or Worse**\
-`When it’s a quick trip from the schlocky pleasures of Cancún to the remote cities of the Maya, is something lost along the way?`\
-https://nytimes.com/2024/03/21/magazine/tren-maya-mexico-yucatan.html
+**In Santa Barbara, Their Budget Would Buy a Mobile Home. Which One Would You Choose?**\
+`Unable to afford a single-family home near their jobs, a young family took a chance on a mobile-home park near the beach. Here’s what they found.`\
+https://nytimes.com/interactive/2024/03/21/realestate/21hunt-zero.html
 
-**Don’t Ask RFK Jr. About Being a Spoiler**\
-`An interview with the independent candidate threatening to change the election’s course.`\
-https://nytimes.com/2024/03/21/podcasts/run-up-third-party-candidate-rfk-jr.html
+**A Surreal New TV Series About Life, Love and Fruit**\
+`Our critic recommends “A Round of Applause” on Netflix.`\
+https://nytimes.com/2024/03/21/podcasts/culture-desk-watching-a-round-of-applause.html
 
-**‘Shirley’ Review: A Woman Who Contained Multitudes**\
-`This staid biopic of Shirley Chisholm, the first Black woman elected to the U.S. Congress, is less interested in what she did than what she represented.`\
-https://nytimes.com/2024/03/21/movies/shirley-review.html
+**Biden Suggests a Bigger Federal Role to Reduce Housing Costs**\
+`A new report focuses on the prolonged struggle to build affordable housing across America and suggests federal incentives to help.`\
+https://nytimes.com/2024/03/21/us/politics/biden-housing-costs.html
 
-**Who Is This Strange Woman, and What Is She Doing Here?**\
-`‘Elsbeth’ takes a boilerplate police procedural and tosses in a character from another show entirely — with delightful results.`\
-https://nytimes.com/2024/03/21/magazine/elsbeth-cbs-review-good-wife-good-fight.html
+**Republicans Are Counting on Millionaires to Flip the Senate**\
+`With Democrats at a fund-raising advantage, the G.O.P. has backed candidates who can self-fund. But their wealth is likely to factor in the fight for Senate control.`\
+https://nytimes.com/2024/03/21/us/politics/republican-gop-senate-wealth.html
 
-**36 Hours in Cape Town**\
-`The spectacular South African city is shedding its Eurocentric identity and emerging as a culturally rich African hub.`\
-https://nytimes.com/interactive/2024/03/21/travel/36-hours-cape-town.html
+**Alan Cumming’s Outsider Cabaret**\
+`The 59-year-old actor, who revels in doing “weird things all the time,” brings his cabaret show about aging to New York.`\
+https://nytimes.com/2024/03/21/style/alan-cumming-not-acting-age.html
 
-**‘Late Night With the Devil’ Review: Selling Your Soul for the Ratings**\
-`An occult-obsessed nation is nimbly captured in this found-footage horror film about a late night show gone horribly wrong.`\
-https://nytimes.com/2024/03/21/movies/late-night-with-the-devil-review.html
+**Reddit’s I.P.O. Is a Content Moderation Success Story**\
+`The site’s journey from toxic cesspool to trusted news source illustrates the business value of keeping bad actors at bay.`\
+https://nytimes.com/2024/03/21/technology/reddit-ipo-public-content-moderation.html
 
-**Do You Keep a Journal?**\
-`What does journaling do for you?`\
-https://nytimes.com/2024/03/21/learning/do-you-keep-a-journal.html
+**‘3 Body Problem’ Episode 1 Recap: The Final Countdown**\
+`Suicidal scientists and flashing stars highlight the first episode of this new series by Alexander Woo and the “Game of Thrones” creators, David Benioff and D.B. Weiss.`\
+https://nytimes.com/2024/03/21/arts/television/3-body-problem-episode-1-recap.html
 

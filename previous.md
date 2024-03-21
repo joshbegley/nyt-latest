@@ -1,40 +1,40 @@
-**The top U.S. diplomat begins talks in Cairo before another visit to Israel.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/03/21/world/israel-hamas-war-gaza-news/blinken-will-hold-high-level-meetings-in-cairo-ahead-of-another-visit-to-israel
+**A Lenten Soup So Good the Memory of It Lasts a Whole Year**\
+`For Ecuadoreans, fanesca, a labor-intensive soup served just during the lead-up to Easter, is a staple of Holy Week festivities.`\
+https://nytimes.com/2024/03/21/dining/fanesca-lenten-soup.html
 
-**Blinken Describes New U.S. Push at the U.N. for Gaza Cease-Fire**\
-`In Saudi Arabia, the secretary of state described a U.S. draft resolution at the U.N. Security Council calling for “an immediate cease-fire tied to the release of hostages” in Gaza.`\
-https://nytimes.com/2024/03/21/world/middleeast/blinken-un-cease-fire.html
+**America First Legal, a Trump-Aligned Group, Is Spoiling for a Fight**\
+`The group, headed by the former Trump adviser Stephen Miller, has filed more than 100 legal actions against “woke” companies and others. But winning may be beside the point.`\
+https://nytimes.com/2024/03/21/us/politics/stephen-miller-america-first-legal.html
 
-**As the Basketball Games Begin, the N.C.A.A.’s Model Fractures**\
-`This weekend, college basketball tournaments will unfurl before millions of viewers and against a backdrop of seismic change.`\
-https://nytimes.com/2024/03/21/insider/ncaa-student-athletes.html
+**Long Before Amsterdam’s Coffee Shops, There Were Hallucinogenic Seeds**\
+`A nearly 2,000-year-old stash pouch provides the first evidence of the intentional use of a powerful psychedelic plant in Western Europe during the Roman Era.`\
+https://nytimes.com/2024/03/21/science/archaeology-hallucinogens-henbane.html
 
-**His Voice Can Stop You in Your Tracks**\
-`Loren Kramar wowed the fashion set with a recent performance. Now he’s taking his act mainstream.`\
-https://nytimes.com/2024/03/21/style/loren-kramar-fashion-singer-glovemaker.html
+**A New Train Is Opening Up the Yucatán, for Better or Worse**\
+`When it’s a quick trip from the schlocky pleasures of Cancún to the remote cities of the Maya, is something lost along the way?`\
+https://nytimes.com/2024/03/21/magazine/tren-maya-mexico-yucatan.html
 
-**What Is Antisemitism? A Columbia Task Force Would Rather Not Say.**\
-`Definitions of the term are highly contested, so a group monitoring antisemitism on Columbia University’s campus has avoided picking sides. It is still facing criticism.`\
-https://nytimes.com/2024/03/21/nyregion/columbia-antisemitism-israel-gaza-protests.html
+**Don’t Ask RFK Jr. About Being a Spoiler**\
+`An interview with the independent candidate threatening to change the election’s course.`\
+https://nytimes.com/2024/03/21/podcasts/run-up-third-party-candidate-rfk-jr.html
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/21/crosswords/wordle-review.html
+**‘Shirley’ Review: A Woman Who Contained Multitudes**\
+`This staid biopic of Shirley Chisholm, the first Black woman elected to the U.S. Congress, is less interested in what she did than what she represented.`\
+https://nytimes.com/2024/03/21/movies/shirley-review.html
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/21/crosswords/connections-companion.html
+**Who Is This Strange Woman, and What Is She Doing Here?**\
+`‘Elsbeth’ takes a boilerplate police procedural and tosses in a character from another show entirely — with delightful results.`\
+https://nytimes.com/2024/03/21/magazine/elsbeth-cbs-review-good-wife-good-fight.html
 
-**Is He Ever Just a Personal Trainer?**\
-`Male fitness instructors have had a reputation for being flirts and girlfriend stealers. How true is it?`\
-https://nytimes.com/2024/03/21/style/personal-trainer-fitness.html
+**36 Hours in Cape Town**\
+`The spectacular South African city is shedding its Eurocentric identity and emerging as a culturally rich African hub.`\
+https://nytimes.com/interactive/2024/03/21/travel/36-hours-cape-town.html
 
-**As Congestion Pricing Nears Reality, It Faces Growing Opposition**\
-`A legal and political battle has erupted over the new $15 fee to drive into the busiest parts of Manhattan.`\
-https://nytimes.com/2024/03/21/nyregion/congestion-pricing-nyc.html
+**‘Late Night With the Devil’ Review: Selling Your Soul for the Ratings**\
+`An occult-obsessed nation is nimbly captured in this found-footage horror film about a late night show gone horribly wrong.`\
+https://nytimes.com/2024/03/21/movies/late-night-with-the-devil-review.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/03/21/crosswords/spelling-bee-forum.html
+**Do You Keep a Journal?**\
+`What does journaling do for you?`\
+https://nytimes.com/2024/03/21/learning/do-you-keep-a-journal.html
 
