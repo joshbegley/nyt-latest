@@ -1,3 +1,11 @@
+**Are You an Undecided Voter? Do You Live in a Battleground State? We Want to Hear from You.**\
+`Most voters say their minds are already made up. But if yours isn’t, we want to hear your perspective.`\
+https://nytimes.com/article/undecided-voter-questions.html
+
+**Did You Come of Age in the Trump Era of Politics? We Want to Hear From You.**\
+`As the 2024 presidential election approaches, Times political reporters want to learn more about the experiences and perspectives of young voters. Share your story.`\
+https://nytimes.com/article/young-voters-questions.html
+
 **Friday Briefing: The U.S. Sues Apple**\
 `Also, India’s opposition faces troubles and tips for a healthier relationship with your phone.`\
 https://nytimes.com/2024/03/21/world/asia/us-apple-monopoly-india-arrest-asia.html
@@ -25,12 +33,4 @@ https://nytimes.com/interactive/2024/03/21/smarter-living/wirecutter/puberty-tip
 **Civil Judgments Sting as Criminal Cases Slow**\
 `Civil cases are keeping the pressure on Donald Trump ahead of his four criminal trials.`\
 https://nytimes.com/2024/03/21/us/politics/trump-trial-civil-cases-bond.html
-
-**Three Popular Restaurants Opened Spinoffs. Are They Any Good?**\
-`Are they more “Better Call Saul” or “How I Met Your Father”?`\
-https://nytimes.com/2024/03/21/dining/three-popular-restaurants-opened-spinoffs-are-they-any-good.html
-
-**Vaughan Gething of Wales Is Europe’s First Black Head of Government**\
-`Mr. Gething, 50, was narrowly elected leader of Wales’s governing Labour Party this week, and then was elected first minister by the Senedd, or Welsh Parliament.`\
-https://nytimes.com/2024/03/21/world/europe/vaughan-gething-wales-parliament.html
 
