@@ -1,3 +1,11 @@
+**Garland Accuses Apple of Violating Federal Antitrust Law**\
+`Attorney General Merrick B. Garland said that Apple has employed a strategy that relies on exclusionary anti-competitive conduct that hurts both consumers and developers.`\
+https://nytimes.com/video/us/100000009374404/apple-doj-lawsuit-antitrust.html
+
+**The Antitrust Lawsuit Against Apple Could Change Tech in a Big Way**\
+`But should the government require iPhones to look like Androids?`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/apple-antitrust-lawsuit-iphone
+
 **New California Court for the Mentally Ill Tests a State’s Liberal Values**\
 `To confront the crises of homelessness and mental illness, California has passed new laws that critics say could violate the civil liberties of those suffering on the streets. Some families welcome the new measures.`\
 https://nytimes.com/2024/03/21/us/california-care-court-mental-illness-homeless.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/21/arts/music/beyonce-black-pop-artists-country-musi
 **‘Do Not Expect Too Much From the End of the World’ Review: A Wild Romanian Trip**\
 `In Radu Jude’s shambling, acidly funny movie set in Bucharest, a foul-mouthed gofer named Angela tours the troubled heart and soul of her country.`\
 https://nytimes.com/2024/03/21/movies/do-not-expect-too-much-from-the-end-of-the-world-review.html
-
-**Bragg Says Newly Disclosed Papers in Trump Case Contain Little of Value**\
-`A week after agreeing to a brief delay, Manhattan’s district attorney, Alvin L. Bragg, said his office’s criminal prosecution of Donald J. Trump should begin April 15 as scheduled.`\
-https://nytimes.com/2024/03/21/nyregion/trump-trial-delay-bragg.html
-
-**Popcast (Deluxe): Is Reality TV in a New Golden Age?**\
-`Catching up on recent hit shows like “Love Is Blind,” “The Traitors” and “Survivor,” including how social media has added another layer of reality.`\
-https://nytimes.com/2024/03/21/arts/music/popcast-deluxe-reality-tv-love-is-blind.html
 
