@@ -35,6 +35,6 @@ https://nytimes.com/2024/03/21/business/bank-of-england-rates-inflation.html
 https://nytimes.com/2024/03/21/us/virginia-wv-wildfires.html
 
 **Israel Says It Has Killed Dozens of ‘Terrorists’ in Hospital Raid**\
-`The Israeli military’s raid on Al-Shifa Hospital in northern Gaza, the largest in the territory, has stretched into a fourth day.`\
+`The Israeli military’s raid on Al-Shifa Hospital in northern Gaza, the largest in the territory, has grown into one of the longest of the war.`\
 https://nytimes.com/2024/03/21/world/middleeast/israel-al-shifa-hospital-raid-gaza.html
 
