@@ -1,3 +1,11 @@
+**Black Pop Artists Have Long Gone Country. Here’s a Brief History.**\
+`When Beyoncé’s “Cowboy Carter” arrives next week, it’ll join a lineage of albums by stars including Ray Charles, the Pointer Sisters, Tina Turner and more.`\
+https://nytimes.com/2024/03/21/arts/music/beyonce-black-pop-artists-country-music.html
+
+**‘Do Not Expect Too Much From the End of the World’ Review: A Wild Romanian Trip**\
+`In Radu Jude’s shambling, acidly funny movie set in Bucharest, a foul-mouthed gofer named Angela tours the troubled heart and soul of her country.`\
+https://nytimes.com/2024/03/21/movies/do-not-expect-too-much-from-the-end-of-the-world-review.html
+
 **Bragg Says Newly Disclosed Papers in Trump Case Contain Little of Value**\
 `A week after agreeing to a brief delay, Manhattan’s district attorney, Alvin L. Bragg, said his office’s criminal prosecution of Donald J. Trump should begin April 15 as scheduled.`\
 https://nytimes.com/2024/03/21/nyregion/trump-trial-delay-bragg.html
