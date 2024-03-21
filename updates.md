@@ -1,3 +1,15 @@
+**Third Man Charged With Murder in Shooting at Super Bowl Rally**\
+`Nine people have been charged with crimes, including weapons violations, in connection to the shooting in Kansas City, Mo., last month.`\
+https://nytimes.com/2024/03/21/us/kansas-city-super-bowl-shooting-charges.html
+
+**A U.S. Lawsuit Accused Apple of Creating a Monopoly**\
+`Also, a man received a pig kidney in a medical milestone. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/03/21/briefing/justice-department-apple-lawsuit-pig-kidney-transplant.html
+
+**Menendez Won’t Run as Democrat but Leaves Door Open to Independent Bid**\
+`Senator Robert Menendez of New Jersey faces federal bribery charges. His trial is scheduled to begin in May.`\
+https://nytimes.com/2024/03/21/nyregion/robert-menendez-reelection.html
+
 **2-Year-Old Separated From His Parents Flees Haiti’s Violent Capital**\
 `The boy had been dropped off with relatives nearly three weeks ago and was airlifted back to his Florida home. He is part of a growing number of Americans trying to flee Haiti.`\
 https://nytimes.com/2024/03/21/world/americas/haiti-evacuation-florida-family.html
