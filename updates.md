@@ -1,3 +1,15 @@
+**21pol-swiper**\
+`Election Updates: Biden’s campaign has a nearly $40 million advantage over the Trump campaign, filings show.`\
+https://nytimes.com/live/2024/03/21/us/trump-biden-election
+
+**In Nevada and Arizona, Biden focused on Latino voters.**\
+`By Zolan Kanno-Youngs, Meg Felling and Rebecca Suner`\
+https://nytimes.com/2024/03/21/us/politics/in-nevada-and-arizona-biden-focused-on-latino-voters.html
+
+**Surgeons Transplant Pig Kidney Into a Patient, a Medical Milestone**\
+`The man continues to improve, doctors said. Organs from genetically engineered pigs one day may make dialysis obsolete.`\
+https://nytimes.com/2024/03/21/health/pig-kidney-organ-transplant.html
+
 **‘Limbo’ Review: Pensive in the Outback**\
 `Long on atmosphere and short on plot, this stylish Australian noir pulls through thanks to a haunted performance by Simon Baker.`\
 https://nytimes.com/2024/03/21/movies/limbo-review.html

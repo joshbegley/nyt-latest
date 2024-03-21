@@ -1,3 +1,15 @@
+**21pol-swiper**\
+`Election Updates: Biden’s campaign has a nearly $40 million advantage over the Trump campaign, filings show.`\
+https://nytimes.com/live/2024/03/21/us/trump-biden-election
+
+**In Nevada and Arizona, Biden focused on Latino voters.**\
+`By Zolan Kanno-Youngs, Meg Felling and Rebecca Suner`\
+https://nytimes.com/2024/03/21/us/politics/in-nevada-and-arizona-biden-focused-on-latino-voters.html
+
+**Surgeons Transplant Pig Kidney Into a Patient, a Medical Milestone**\
+`The man continues to improve, doctors said. Organs from genetically engineered pigs one day may make dialysis obsolete.`\
+https://nytimes.com/2024/03/21/health/pig-kidney-organ-transplant.html
+
 **Biden Targets Private Jets in Hunt for Tax Revenue**\
 `The White House’s new focus on corporate aviation is drawing backlash from an industry that says it supports manufacturing.`\
 https://nytimes.com/2024/03/21/business/biden-corporate-jets-taxes.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/21/us/virginia-wv-wildfires.html
 **Israel Says It Has Killed Dozens of ‘Terrorists’ in Hospital Raid**\
 `The Israeli military’s raid on Al-Shifa Hospital in northern Gaza, the largest in the territory, has stretched into a fourth day.`\
 https://nytimes.com/2024/03/21/world/middleeast/israel-al-shifa-hospital-raid-gaza.html
-
-**The Fed Stays the Course on Rates**\
-`Markets are cheering the central bank’s forecast for three interest rate cuts this year. But Fed policymakers are divided on the issue.`\
-https://nytimes.com/2024/03/21/business/dealbook/fed-rate-cuts.html
-
-**‘William Shatner: You Can Call Me Bill’ Review: Living Long**\
-`A documentary on the “Star Trek” actor unboldly goes where other profile movies have gone before.`\
-https://nytimes.com/2024/03/21/movies/william-shatner-you-can-call-me-bill-review.html
-
-**‘Limbo’ Review: Pensive in the Outback**\
-`Long on atmosphere and short on plot, this stylish Australian noir pulls through thanks to a haunted performance by Simon Baker.`\
-https://nytimes.com/2024/03/21/movies/limbo-review.html
 
