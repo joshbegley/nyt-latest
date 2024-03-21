@@ -1,3 +1,11 @@
+**How Do You Become the U.K.’s Hottest New Band? The Old-Fashioned Way.**\
+`The Last Dinner Party has rapidly built a following by meticulously planning its theatrical live shows, and ignoring viral fame.`\
+https://nytimes.com/2024/03/21/arts/music/the-last-dinner-party-prelude-to-ecstasy.html
+
+**Vaughan Gething Elected First Black Head of Government in Europe**\
+`The Zambian-born lawyer was elected as the country’s first minister by the Welsh Parliament on Wednesday making him the first Black person to lead a nation in Europe.`\
+https://nytimes.com/video/world/europe/100000009374440/vaughan-gething-wales-first-minister.html
+
 **National Plan to Look Into Homeowners Insurers Hits a Hurdle**\
 `Roughly two weeks after state regulators said they were collecting details on insurers’ homeowners businesses, key states may opt out, undermining the effort.`\
 https://nytimes.com/2024/03/21/business/naic-homeowners-insurers-states-hurdle.html

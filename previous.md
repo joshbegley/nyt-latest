@@ -1,3 +1,11 @@
+**How Do You Become the U.K.’s Hottest New Band? The Old-Fashioned Way.**\
+`The Last Dinner Party has rapidly built a following by meticulously planning its theatrical live shows, and ignoring viral fame.`\
+https://nytimes.com/2024/03/21/arts/music/the-last-dinner-party-prelude-to-ecstasy.html
+
+**Vaughan Gething Elected First Black Head of Government in Europe**\
+`The Zambian-born lawyer was elected as the country’s first minister by the Welsh Parliament on Wednesday making him the first Black person to lead a nation in Europe.`\
+https://nytimes.com/video/world/europe/100000009374440/vaughan-gething-wales-first-minister.html
+
 **National Plan to Look Into Homeowners Insurers Hits a Hurdle**\
 `Roughly two weeks after state regulators said they were collecting details on insurers’ homeowners businesses, key states may opt out, undermining the effort.`\
 https://nytimes.com/2024/03/21/business/naic-homeowners-insurers-states-hurdle.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/21/arts/music/popcast-deluxe-reality-tv-love-is-blin
 **Large Grocers Took Advantage of Pandemic Supply Chain Disruptions, F.T.C. Finds**\
 `A report found that large firms pressured suppliers to favor them over competitors. It also concluded that some retailers “seem to have used rising costs as an opportunity to further hike prices.”`\
 https://nytimes.com/2024/03/21/us/politics/grocery-prices-pandemic-ftc.html
-
-**The Psychedelic Evangelist**\
-`A Johns Hopkins scientist was known for rigorous studies of psychedelics. Was he a true believer?`\
-https://nytimes.com/2024/03/21/health/psychedelics-roland-griffiths-johns-hopkins.html
-
-**Elegant Skillet Chicken, Effortless Eggs and ‘Crazy Water’ Fish**\
-`Recipes for when you want fancy-Friday vibes but have meh-Monday energy.`\
-https://nytimes.com/2024/03/21/dining/elegant-skillet-chicken-effortless-eggs-and-crazy-water-fish.html
 
