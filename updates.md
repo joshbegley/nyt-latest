@@ -1,3 +1,7 @@
+**High Winds Fuel Wildfires in Virginia and Other Mid-Atlantic States**\
+`Thousands of acres burned from Maryland to North Carolina, and more fire-friendly conditions were expected on Thursday ahead of soaking rains over the weekend.`\
+https://nytimes.com/2024/03/21/us/virginia-wv-wildfires.html
+
 **Israel Says It Has Killed Dozens of ‘Terrorists’ in Hospital Raid**\
 `The Israeli military’s raid on Al-Shifa Hospital in northern Gaza, the largest in the territory, has stretched into a fourth day.`\
 https://nytimes.com/2024/03/21/world/middleeast/israel-al-shifa-hospital-raid-gaza.html
