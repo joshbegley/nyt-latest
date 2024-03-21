@@ -1,3 +1,11 @@
+**A Mexican Drug Cartel’s New Target? Seniors and Their Timeshares**\
+`One of Mexico’s most powerful criminal groups, Jalisco New Generation, runs call centers that offer to buy retirees’ vacation properties. Then, they empty their victims’ bank accounts.`\
+https://nytimes.com/2024/03/21/world/americas/mexico-timeshare-fraud-cartel.html
+
+**Why the Panama Canal Didn’t Lose Money When Ship Crossings Fell**\
+`A water shortage forced officials to reduce traffic, but higher fees increased revenue.`\
+https://nytimes.com/2024/03/21/business/panama-canal-water-revenue.html
+
 **Biden Widens His Financial Lead Over Trump**\
 `New federal filings on Wednesday showed the president’s campaign with a nearly $40 million advantage over the Trump campaign at the end of last month.`\
 https://nytimes.com/2024/03/20/us/politics/trump-biden-campaign-finance.html
