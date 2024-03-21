@@ -1,3 +1,11 @@
+**National Plan to Look Into Homeowners Insurers Hits a Hurdle**\
+`Roughly two weeks after state regulators said they were collecting details on insurers’ homeowners businesses, key states may opt out, undermining the effort.`\
+https://nytimes.com/2024/03/21/business/naic-homeowners-insurers-states-hurdle.html
+
+**Review: Looking for Love With Burt Bacharach, and Finding a Prayer**\
+`Mark Morris’s “The Look of Love” at the Brooklyn Academy of Music is uneven, but you can’t fight its swing.`\
+https://nytimes.com/2024/03/21/arts/dance/review-the-look-of-love-mark-morris-burt-bacharach.html
+
 **Smells Like Teen … Sandalwood?**\
 `Two musky steroids, and higher levels of odorous acids, distinguish the body odors of teens and tots, a new study finds.`\
 https://nytimes.com/2024/03/21/science/odor-adolescents-chemistry.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/21/health/psychedelics-roland-griffiths-johns-hopkin
 **Elegant Skillet Chicken, Effortless Eggs and ‘Crazy Water’ Fish**\
 `Recipes for when you want fancy-Friday vibes but have meh-Monday energy.`\
 https://nytimes.com/2024/03/21/dining/elegant-skillet-chicken-effortless-eggs-and-crazy-water-fish.html
-
-**With an Eye on War at Home, a Ukrainian Conductor Arrives at the Met**\
-`Oksana Lyniv, who is leading “Turandot” at the Metropolitan Opera, has used her platform to criticize Russia and promote Ukrainian culture.`\
-https://nytimes.com/2024/03/21/arts/music/oksana-lyniv-metropolitan-opera-ukraine.html
-
-**Read the Lawsuit Against Apple**\
-`The suit is the federal government’s most significant challenge to the reach and influence of the company.`\
-https://nytimes.com/interactive/2024/03/21/technology/apple-lawsuit.html
 

@@ -1,3 +1,11 @@
+**National Plan to Look Into Homeowners Insurers Hits a Hurdle**\
+`Roughly two weeks after state regulators said they were collecting details on insurers’ homeowners businesses, key states may opt out, undermining the effort.`\
+https://nytimes.com/2024/03/21/business/naic-homeowners-insurers-states-hurdle.html
+
+**Review: Looking for Love With Burt Bacharach, and Finding a Prayer**\
+`Mark Morris’s “The Look of Love” at the Brooklyn Academy of Music is uneven, but you can’t fight its swing.`\
+https://nytimes.com/2024/03/21/arts/dance/review-the-look-of-love-mark-morris-burt-bacharach.html
+
 **Smells Like Teen … Sandalwood?**\
 `Two musky steroids, and higher levels of odorous acids, distinguish the body odors of teens and tots, a new study finds.`\
 https://nytimes.com/2024/03/21/science/odor-adolescents-chemistry.html
