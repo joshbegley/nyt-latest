@@ -1,3 +1,7 @@
+**Smells Like Teen … Sandalwood?**\
+`Two musky steroids, and higher levels of odorous acids, distinguish the body odors of teens and tots, a new study finds.`\
+https://nytimes.com/2024/03/21/science/odor-adolescents-chemistry.html
+
 **Black Pop Artists Have Long Gone Country. Here’s a Brief History.**\
 `When Beyoncé’s “Cowboy Carter” arrives next week, it’ll join a lineage of albums by stars including Ray Charles, the Pointer Sisters, Tina Turner and more.`\
 https://nytimes.com/2024/03/21/arts/music/beyonce-black-pop-artists-country-music.html
