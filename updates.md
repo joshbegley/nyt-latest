@@ -1,3 +1,7 @@
+**Race and Politics**\
+`We’re covering the rightward shift among voters of color.`\
+https://nytimes.com/2024/03/21/briefing/race-and-politics.html
+
 **Biden’s Cash Advantage Grows, and America Falls Behind in Happiness**\
 `Plus, cartels target seniors who own timeshares.`\
 https://nytimes.com/2024/03/21/podcasts/biden-texas-election.html
