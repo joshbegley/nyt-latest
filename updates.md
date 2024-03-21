@@ -1,4 +1,8 @@
 **Volunteer Doctor Details Dire Conditions at a Gaza Hospital**\
+`Nick Maynard, part of a delegation of doctors who volunteered in Gaza, described “appalling atrocities” and the need for an immediate cease-fire at the United Nations in New York on Tuesday.`\
+https://nytimes.com/video/world/middleeast/100000009375768/gaza-hospital-war.html
+
+**Volunteer Doctor Details Dire Conditions at a Gaza Hospital**\
 `Nick Maynard, part of a delegation of volunteer doctors who visited besieged hospitals in Gaza, conveyed the need for an immediate cease-fire in Israel’s war against Hamas.`\
 https://nytimes.com/video/world/middleeast/100000009375768/gaza-hospital-war.html
 
