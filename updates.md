@@ -1,3 +1,11 @@
+**A Racial Realignment in Politics Could Be a Good Thing**\
+`Trump distorts everything, but some intriguing patterns are falling into place.`\
+https://nytimes.com/2024/03/21/opinion/trump-politics-race-identity.html
+
+**How to Prepare Kids for Puberty**\
+`These five tips can help.`\
+https://nytimes.com/interactive/2024/03/21/smarter-living/wirecutter/puberty-tips.html
+
 **Civil Judgments Sting as Criminal Cases Slow**\
 `Civil cases are keeping the pressure on Donald Trump ahead of his four criminal trials.`\
 https://nytimes.com/2024/03/21/us/politics/trump-trial-civil-cases-bond.html
