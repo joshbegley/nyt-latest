@@ -1,3 +1,7 @@
+**Jimmy Kimmel Suggests Trump Take a Sip of His Own Medicine**\
+`“If Donald Trump wants immunity, he should drink bleach like he told us to do when we wanted immunity,” Kimmel said.`\
+https://nytimes.com/2024/03/21/arts/television/jimmy-kimmel-trump-immunity.html
+
 **Russia Targets Kyiv With Biggest Missile Attack in Weeks**\
 `The extent of the damage in the Ukrainian capital was not yet clear, but officials said at least 10 people had been injured.`\
 https://nytimes.com/2024/03/21/world/europe/russian-missile-attack-kyiv.html
