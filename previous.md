@@ -1,3 +1,7 @@
+**M. Emmet Walsh, Character Actor Who Always Stood Out, Dies at 88**\
+`His roles in films like “Blood Simple” and “Blade Runner” were sometimes big, sometimes small. But he invariably made a strong impression.`\
+https://nytimes.com/2024/03/20/movies/m-emmet-walsh-dead.html
+
 **Corrections: March 21, 2024**\
 `Corrections that appeared in print on Thursday, March 21, 2024.`\
 https://nytimes.com/2024/03/20/pageoneplus/corrections-march-21-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/us/politics/jake-sullivan-ukraine.html
 **Fight Over Texas Law Underscores a Battle of America vs. Its States**\
 `The partisan gridlock gumming up Washington has prompted states controlled by one party to set off on their own.`\
 https://nytimes.com/2024/03/20/us/politics/texas-law-states-immigration-migrants.html
-
-**Condé Nast’s Owners Set to Reap a $1.4 Billion Windfall From Reddit**\
-`The Newhouse family, which controls the Advance media empire, made a 2006 investment of $10 million in the social site, which plans to go public on Thursday.`\
-https://nytimes.com/2024/03/20/business/media/reddit-ipo-conde-nast.html
 
