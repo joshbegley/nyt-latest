@@ -1,3 +1,7 @@
+**Bragg Says Newly Disclosed Papers in Trump Case Contain Little of Value**\
+`A week after agreeing to a brief delay, Manhattan’s district attorney, Alvin L. Bragg, said his office’s criminal prosecution of Donald J. Trump should begin April 15 as scheduled.`\
+https://nytimes.com/2024/03/21/nyregion/trump-trial-delay-bragg.html
+
 **Popcast (Deluxe): Is Reality TV in a New Golden Age?**\
 `Catching up on recent hit shows like “Love Is Blind,” “The Traitors” and “Survivor,” including how social media has added another layer of reality.`\
 https://nytimes.com/2024/03/21/arts/music/popcast-deluxe-reality-tv-love-is-blind.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/technology/apple-doj-lawsuit-antitrust.html
 **‘3 Body Problem’ Episode 2 Recap: The Warning**\
 `Fans of spooky technology will have much to enjoy in this episode.`\
 https://nytimes.com/2024/03/21/arts/television/3-body-problem-episode-2-recap.html
-
-**Tax Dispute Becomes Political as India Freezes Opposition’s Accounts**\
-`Just weeks before pivotal elections, the authorities have blocked access to several of the Indian National Congress’s main bank accounts, the party said.`\
-https://nytimes.com/2024/03/21/world/asia/india-national-congress-bank-accounts-bjp.html
 
