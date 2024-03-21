@@ -1,3 +1,7 @@
+**Man Accused of Leading ‘Thieves in Law’ Pleads Guilty to Racketeering**\
+`Viktor Zelinger, a Ukrainian native, admitted to running an illegal gambling club in Brooklyn and threatening debtors.`\
+https://nytimes.com/2024/03/21/nyregion/brooklyn-thieves-in-law.html
+
 **International Elections 2024: What You Need to Know**\
 `With disinformation rampant and dissent under attack, voters in more than 80 countries will go to the polls this year. When the tallying is done, the world might look a lot different,`\
 https://nytimes.com/interactive/2024/world/international-elections-2024.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/03/19/opinion/thepoint/pepfar-aids-extended
 **U.S. resolution at the United Nations calls for a sustained cease-fire in Gaza.**\
 `By Michael Crowley and Thomas Fuller`\
 https://nytimes.com/live/2024/03/21/world/israel-hamas-war-gaza-news/us-resolution-at-the-united-nations-calls-for-a-sustained-cease-fire-in-gaza
-
-**A Racial Realignment in Politics Could Be a Good Thing**\
-`Trump distorts everything, but some intriguing patterns are falling into place.`\
-https://nytimes.com/2024/03/21/opinion/trump-politics-race-identity.html
 
