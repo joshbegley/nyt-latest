@@ -1,3 +1,7 @@
+**One of Last Survivors of Pearl Harbor Attack Dies at 102**\
+`Richard C. Higgins was stationed at the Hawaiian naval base as a radioman on the day of the Japanese attack, which pulled the U.S. into World War II.`\
+https://nytimes.com/2024/03/21/obituaries/richard-higgins-dead.html
+
 **Jimmy Kimmel Suggests Trump Take a Sip of His Own Medicine**\
 `“If Donald Trump wants immunity, he should drink bleach like he told us to do when we wanted immunity,” Kimmel said.`\
 https://nytimes.com/2024/03/21/arts/television/jimmy-kimmel-trump-immunity.html
