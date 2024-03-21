@@ -1,3 +1,11 @@
+**Three Popular Restaurants Opened Spinoffs. Are They Any Good?**\
+`Are they more “Better Call Saul” or “How I Met Your Father”?`\
+https://nytimes.com/2024/03/21/dining/three-popular-restaurants-opened-spinoffs-are-they-any-good.html
+
+**Vaughan Gething of Wales Is Europe’s First Black Head of Government**\
+`Mr. Gething, 50, was narrowly elected leader of Wales’s governing Labour Party this week, and then was elected first minister by the Senedd, or Welsh Parliament.`\
+https://nytimes.com/2024/03/21/world/europe/vaughan-gething-wales-parliament.html
+
 **The Roadblocks to Biden’s Electric Vehicles Plan**\
 `E.V.s have become part of the political culture wars`\
 https://nytimes.com/2024/03/21/climate/the-roadblocks-to-bidens-electric-vehicles-plan.html
