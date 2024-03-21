@@ -1,3 +1,7 @@
+**At Long Last, a Gold Medal for America’s World War II ‘Ghost Army’**\
+`Only seven of the original 1,100 soldiers who carried out psychological operations against the Axis powers are believed to survive.`\
+https://nytimes.com/2024/03/21/us/ghost-army-gold-medal.html
+
 **Leagues Have More Than Just Players to Watch on Gambling**\
 `The wagering situation involving Shohei Ohtani’s former interpreter shows that people adjacent to the players and coaches can also be a risk.`\
 https://nytimes.com/2024/03/21/business/ohtani-interpreter-gambling-leagues.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/21/world/australia/new-zealand-sounds-air-flying-dom
 **Man Accused of Leading ‘Thieves in Law’ Pleads Guilty to Racketeering**\
 `Viktor Zelinger, a Ukrainian native, admitted to running an illegal gambling club in Brooklyn and threatening debtors.`\
 https://nytimes.com/2024/03/21/nyregion/brooklyn-thieves-in-law.html
-
-**International Elections 2024: What You Need to Know**\
-`With disinformation rampant and dissent under attack, voters in more than 80 countries will go to the polls this year. When the tallying is done, the world might look a lot different,`\
-https://nytimes.com/interactive/2024/world/international-elections-2024.html
 
