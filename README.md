@@ -1,3 +1,7 @@
+**Read the Lawsuit Against Apple**\
+`The suit is the federal government’s most significant challenge to the reach and influence of the company.`\
+https://nytimes.com/interactive/2024/03/21/technology/apple-lawsuit.html
+
 **Leaders Release $1.2 Trillion Spending Bill as Congress Races to Avert Shutdown**\
 `The 1,012-page bipartisan bill emerged one day before the federal funding deadline, and it was not clear whether it could clear Congress in time to avoid a partial shutdown after midnight on Friday.`\
 https://nytimes.com/2024/03/21/us/politics/congress-spending-bill-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/health/pig-kidney-organ-transplant.html
 **Biden Targets Private Jets in Hunt for Tax Revenue**\
 `The White House’s new focus on corporate aviation is drawing backlash from an industry that says it supports manufacturing.`\
 https://nytimes.com/2024/03/21/business/biden-corporate-jets-taxes.html
-
-**Tired of Streaming? Free Blockbuster Libraries Offer an Alternative.**\
-`The neighborhood lending libraries have popped up around North America, offering a nostalgic return to DVDs.`\
-https://nytimes.com/2024/03/21/arts/free-blockbuster-dvd-movies-box.html
 
