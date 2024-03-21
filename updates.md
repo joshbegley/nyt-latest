@@ -1,3 +1,7 @@
+**Bragg Says Newly Disclosed Papers in Trump Case Contain Little of Value**\
+`A week after agreeing to a brief delay, Manhattan’s district attorney, Alvin L. Bragg, said his office’s criminal prosecution of Donald J. Trump should begin April 15 as scheduled.`\
+https://nytimes.com/2024/03/21/nyregion/trump-trial-delay-bragg.html
+
 **Popcast (Deluxe): Is Reality TV in a New Golden Age?**\
 `Catching up on recent hit shows like “Love Is Blind,” “The Traitors” and “Survivor,” including how social media has added another layer of reality.`\
 https://nytimes.com/2024/03/21/arts/music/popcast-deluxe-reality-tv-love-is-blind.html
