@@ -1,3 +1,7 @@
+**The Veggie Baby**\
+`Sweet potatoes with tahini butter, coconut saag and broccoli aligot are delicious at any age.`\
+https://nytimes.com/2024/03/21/dining/the-veggie-baby.html
+
 **Garland Accuses Apple of Violating Federal Antitrust Law**\
 `Attorney General Merrick B. Garland said that Apple has employed a strategy that relies on exclusionary anti-competitive conduct that hurts both consumers and developers.`\
 https://nytimes.com/video/us/100000009374404/apple-doj-lawsuit-antitrust.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/science/odor-adolescents-chemistry.html
 **Black Pop Artists Have Long Gone Country. Here’s a Brief History.**\
 `When Beyoncé’s “Cowboy Carter” arrives next week, it’ll join a lineage of albums by stars including Ray Charles, the Pointer Sisters, Tina Turner and more.`\
 https://nytimes.com/2024/03/21/arts/music/beyonce-black-pop-artists-country-music.html
-
-**‘Do Not Expect Too Much From the End of the World’ Review: A Wild Romanian Trip**\
-`In Radu Jude’s shambling, acidly funny movie set in Bucharest, a foul-mouthed gofer named Angela tours the troubled heart and soul of her country.`\
-https://nytimes.com/2024/03/21/movies/do-not-expect-too-much-from-the-end-of-the-world-review.html
 
