@@ -1,3 +1,7 @@
+**Tennessee Makes A.I. an Outlaw to Protect Its Country Music and More**\
+`Gov. Bill Lee on Thursday signed a first-in-the-nation bill to prevent the use of artificial intelligence to copy a performer’s “voice.”`\
+https://nytimes.com/2024/03/21/us/politics/tennessee-ai-music-law.html
+
 **No Charges in Death of Nex Benedict, Prosecutor Says**\
 `The Tulsa County district attorney said a fight involving the nonbinary student in an Oklahoma high school bathroom was “mutual combat.” The death has been ruled a suicide.`\
 https://nytimes.com/2024/03/21/us/nex-benedict-nonbinary-suicide-charges.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/elections/100000009375675/robert-menendez-new-jerse
 **Top Adviser to Mayor Adams Is Accused in a Lawsuit of Sexual Harassment**\
 `A New York City police sergeant said she was demoted and later quit after she rebuffed the advances by Timothy Pearson, whose conduct has already drawn scrutiny.`\
 https://nytimes.com/2024/03/21/nyregion/timothy-pearson-sexual-harassment-lawsuit.html
-
-**Inside the Republican Attacks on Electric Vehicles**\
-`President Biden’s new rule cutting emissions from vehicle tailpipes has deepened a partisan battle over automotive technology.`\
-https://nytimes.com/2024/03/21/climate/republican-attacks-electric-vehicles.html
 
