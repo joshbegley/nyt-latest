@@ -1,3 +1,11 @@
+**The Lone Volcano in California’s Central Valley**\
+`Often called “the world’s smallest mountain range,” the Sutter Buttes are an unlikely and beloved landmark in one of the flattest parts of the state.`\
+https://nytimes.com/2024/03/21/us/the-lone-volcano-in-californias-central-valley.html
+
+**Britain’s ‘Pie King’ Comes to Paris**\
+`Plus: a colorful hotel in Finland, hand-painted folding screens and more recommendations from T Magazine.`\
+https://nytimes.com/2024/03/21/t-magazine/calum-franklin-public-house-paris.html
+
 **Bank of England Holds Rates After U.K. Inflation Slows**\
 `Britain’s central bank held its key interest rate at the highest level in 16 years for the fifth straight meeting.`\
 https://nytimes.com/2024/03/21/business/bank-of-england-rates-inflation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/21/movies/limbo-review.html
 **‘Femme’ Review: Bad Lovers**\
 `In this white-knuckle thriller set in London, a drag performer seduces his attacker, an intensely closeted hustler played by George MacKay.`\
 https://nytimes.com/2024/03/21/movies/femme-review-bad-lovers.html
-
-**‘Free Time’ Review: Take This Job and Shove It. (Now What?)**\
-`Colin Burgess carries this comedy by Ryan Martin Brown about a 20-something who quits his job and finds that life without work isn’t all that thrilling.`\
-https://nytimes.com/2024/03/21/movies/free-time-review.html
-
-**Race and Politics**\
-`We’re covering the rightward shift among voters of color.`\
-https://nytimes.com/2024/03/21/briefing/race-and-politics.html
 
