@@ -1,3 +1,19 @@
+**Friday Briefing: The U.S. Sues Apple**\
+`Also, India’s opposition faces troubles and tips for a healthier relationship with your phone.`\
+https://nytimes.com/2024/03/21/world/asia/us-apple-monopoly-india-arrest-asia.html
+
+**No Labels, No Candidate: Rejections Pile Up as Time Runs Short**\
+`The group’s quest to find a candidate to take on President Biden and Donald Trump has members frustrated.`\
+https://nytimes.com/2024/03/21/us/politics/no-labels-candidate.html
+
+**The Global Campaign Against AIDS Gets Some Temporary Relief**\
+`For now, Republican disinformation about a vital public health program won’t prevail.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/pepfar-aids-extended
+
+**U.S. resolution at the United Nations calls for a sustained cease-fire in Gaza.**\
+`By Michael Crowley and Thomas Fuller`\
+https://nytimes.com/live/2024/03/21/world/israel-hamas-war-gaza-news/us-resolution-at-the-united-nations-calls-for-a-sustained-cease-fire-in-gaza
+
 **A Racial Realignment in Politics Could Be a Good Thing**\
 `Trump distorts everything, but some intriguing patterns are falling into place.`\
 https://nytimes.com/2024/03/21/opinion/trump-politics-race-identity.html
@@ -17,20 +33,4 @@ https://nytimes.com/2024/03/21/dining/three-popular-restaurants-opened-spinoffs-
 **Vaughan Gething of Wales Is Europe’s First Black Head of Government**\
 `Mr. Gething, 50, was narrowly elected leader of Wales’s governing Labour Party this week, and then was elected first minister by the Senedd, or Welsh Parliament.`\
 https://nytimes.com/2024/03/21/world/europe/vaughan-gething-wales-parliament.html
-
-**The Roadblocks to Biden’s Electric Vehicles Plan**\
-`E.V.s have become part of the political culture wars`\
-https://nytimes.com/2024/03/21/climate/the-roadblocks-to-bidens-electric-vehicles-plan.html
-
-**Robert L. Barry, 89, Diplomat Who Negotiated Pact With Soviets, Dies**\
-`He was the chief negotiator on a troop-inspections accord that American officials considered important in reducing East-West tensions near the end of the Cold War.`\
-https://nytimes.com/2024/03/21/us/robert-l-barry-dead.html
-
-**What to Watch This Weekend: A Rapid-Fire Sitcom**\
-`“Great News,” a gone-too-soon comedy on Netflix, descended from “30 Rock” and has a similar sensibility and jokes-per-minute rate.`\
-https://nytimes.com/2024/03/21/arts/television/great-news-netflix.html
-
-**Johnson Says He Will Invite Netanyahu to Address Congress**\
-`Senator Chuck Schumer, the majority leader, also said he would support having a speech delivered “to Congress in a bipartisan way.”`\
-https://nytimes.com/2024/03/21/world/middleeast/johnson-netanyahu-schumer.html
 
