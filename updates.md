@@ -1,3 +1,7 @@
+**Top Adviser to Mayor Adams Is Accused in a Lawsuit of Sexual Harassment**\
+`A New York City police sergeant said she was demoted and later quit after she rebuffed the advances by Timothy Pearson, whose conduct has already drawn scrutiny.`\
+https://nytimes.com/2024/03/21/nyregion/timothy-pearson-sexual-harassment-lawsuit.html
+
 **Inside the Republican Attacks on Electric Vehicles**\
 `President Biden’s new rule cutting emissions from vehicle tailpipes has deepened a partisan battle over automotive technology.`\
 https://nytimes.com/2024/03/21/climate/republican-attacks-electric-vehicles.html
