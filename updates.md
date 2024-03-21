@@ -1,4 +1,8 @@
 **Russia Targets Kyiv With Biggest Missile Attack in Weeks**\
+`The extent of the damage in the Ukrainian capital was not yet clear, but officials said at least 10 people had been injured.`\
+https://nytimes.com/2024/03/21/world/europe/russian-missile-attack-kyiv.html
+
+**Russia Targets Kyiv With Biggest Missile Attack in Weeks**\
 `The extent of the damage to the Ukrainian capital was not yet clear, but officials said at least 10 people had been injured and buildings had been damaged.`\
 https://nytimes.com/2024/03/21/world/europe/russian-missile-attack-kyiv.html
 
