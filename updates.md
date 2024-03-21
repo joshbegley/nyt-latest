@@ -1,3 +1,15 @@
+**No Charges in Death of Nex Benedict, Prosecutor Says**\
+`The Tulsa County district attorney said a fight involving the nonbinary student in an Oklahoma high school bathroom was “mutual combat.” The death has been ruled a suicide.`\
+https://nytimes.com/2024/03/21/us/nex-benedict-nonbinary-suicide-charges.html
+
+**U.S. Drafts U.N. Cease-Fire Demand as Blinken Tours Mideast**\
+`The Security Council resolution being circulated by American diplomats, notable for its strong language, calls for “an immediate and sustained cease-fire” in Gaza.`\
+https://nytimes.com/2024/03/21/world/middleeast/gaza-blinken-ceasefire.html
+
+**What’s the Matter With Ohio?**\
+`How a blue-collar state went MAGA.`\
+https://nytimes.com/2024/03/21/opinion/trump-biden-economy-ohio.html
+
 **Prehistoric Amphibian Ancestor Is Named for Kermit the Frog**\
 `The species seemed to have bug eyes and a smile, so a team of researchers named it Kermitops gratus in honor of the banjo-playing Muppet.`\
 https://nytimes.com/2024/03/21/science/kermitops-amphibian-kermit-frog-texas.html

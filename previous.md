@@ -1,3 +1,15 @@
+**No Charges in Death of Nex Benedict, Prosecutor Says**\
+`The Tulsa County district attorney said a fight involving the nonbinary student in an Oklahoma high school bathroom was “mutual combat.” The death has been ruled a suicide.`\
+https://nytimes.com/2024/03/21/us/nex-benedict-nonbinary-suicide-charges.html
+
+**U.S. Drafts U.N. Cease-Fire Demand as Blinken Tours Mideast**\
+`The Security Council resolution being circulated by American diplomats, notable for its strong language, calls for “an immediate and sustained cease-fire” in Gaza.`\
+https://nytimes.com/2024/03/21/world/middleeast/gaza-blinken-ceasefire.html
+
+**What’s the Matter With Ohio?**\
+`How a blue-collar state went MAGA.`\
+https://nytimes.com/2024/03/21/opinion/trump-biden-economy-ohio.html
+
 **Prehistoric Amphibian Ancestor Is Named for Kermit the Frog**\
 `The species seemed to have bug eyes and a smile, so a team of researchers named it Kermitops gratus in honor of the banjo-playing Muppet.`\
 https://nytimes.com/2024/03/21/science/kermitops-amphibian-kermit-frog-texas.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/03/21/nyregion/timothy-pearson-sexual-harassment-lawsui
 **Inside the Republican Attacks on Electric Vehicles**\
 `President Biden’s new rule cutting emissions from vehicle tailpipes has deepened a partisan battle over automotive technology.`\
 https://nytimes.com/2024/03/21/climate/republican-attacks-electric-vehicles.html
-
-**At Long Last, a Gold Medal for America’s World War II ‘Ghost Army’**\
-`Only seven of the original 1,100 soldiers who carried out psychological operations against the Axis powers are believed to survive.`\
-https://nytimes.com/2024/03/21/us/ghost-army-gold-medal.html
-
-**Leagues Have More Than Just Players to Watch on Gambling**\
-`The wagering situation involving Shohei Ohtani’s former interpreter shows that people adjacent to the players and coaches can also be a risk.`\
-https://nytimes.com/2024/03/21/business/ohtani-interpreter-gambling-leagues.html
-
-**Amnon Weinstein, Who Restored Violins From the Holocaust, Dies at 84**\
-`Many had been left behind by victims of the gas chambers. He let the instruments be heard again in melodic tributes through his organization, Violins of Hope.`\
-https://nytimes.com/2024/03/21/arts/music/amnon-weinstein-dead.html
 
