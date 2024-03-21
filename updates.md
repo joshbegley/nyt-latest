@@ -1,3 +1,7 @@
+**Ireland’s Prime Minister Stepped Down. So What Happens Now?**\
+`Leo Varadkar, the prime minister of the Republic of Ireland, resigned unexpectedly on Wednesday, prompting a political scramble in the government. Here’s what to know about what happens next.`\
+https://nytimes.com/2024/03/21/world/europe/ireland-varadkar-what-now.html
+
 **8 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/03/21/books/review/8-new-books-we-recommend-this-week.html
