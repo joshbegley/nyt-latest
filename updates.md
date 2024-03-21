@@ -1,3 +1,7 @@
+**New California Court for the Mentally Ill Tests a State’s Liberal Values**\
+`To confront the crises of homelessness and mental illness, California has passed new laws that critics say could violate the civil liberties of those suffering on the streets. Some families welcome the new measures.`\
+https://nytimes.com/2024/03/21/us/california-care-court-mental-illness-homeless.html
+
 **How Do You Become the U.K.’s Hottest New Band? The Old-Fashioned Way.**\
 `The Last Dinner Party has rapidly built a following by meticulously planning its theatrical live shows, and ignoring viral fame.`\
 https://nytimes.com/2024/03/21/arts/music/the-last-dinner-party-prelude-to-ecstasy.html
