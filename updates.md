@@ -1,3 +1,11 @@
+**Film Club: ‘The Math Behind This $10 Chicken Over Rice’**\
+`What can a food cart in New York City tell us about the national problem of inflation?`\
+https://nytimes.com/2024/03/21/learning/film-club-the-math-behind-this-10-chicken-over-rice.html
+
+**How Do You Become the U.K.’s Hottest New Band? The Old-Fashioned Way.**\
+`The Last Dinner Party has rapidly built a following by meticulously planning its theatrical live shows, and ignoring viral fame.`\
+https://nytimes.com/2024/03/21/arts/music/uk-indie-rock-.html
+
 **The Veggie Baby**\
 `Sweet potatoes with tahini butter, coconut saag and broccoli aligot are delicious at any age.`\
 https://nytimes.com/2024/03/21/dining/the-veggie-baby.html

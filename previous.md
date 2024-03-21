@@ -1,3 +1,7 @@
+**Film Club: ‘The Math Behind This $10 Chicken Over Rice’**\
+`What can a food cart in New York City tell us about the national problem of inflation?`\
+https://nytimes.com/2024/03/21/learning/film-club-the-math-behind-this-10-chicken-over-rice.html
+
 **The Veggie Baby**\
 `Sweet potatoes with tahini butter, coconut saag and broccoli aligot are delicious at any age.`\
 https://nytimes.com/2024/03/21/dining/the-veggie-baby.html
@@ -16,7 +20,7 @@ https://nytimes.com/2024/03/21/us/california-care-court-mental-illness-homeless.
 
 **How Do You Become the U.K.’s Hottest New Band? The Old-Fashioned Way.**\
 `The Last Dinner Party has rapidly built a following by meticulously planning its theatrical live shows, and ignoring viral fame.`\
-https://nytimes.com/2024/03/21/arts/music/the-last-dinner-party-prelude-to-ecstasy.html
+https://nytimes.com/2024/03/21/arts/music/uk-indie-rock-.html
 
 **Vaughan Gething Elected First Black Head of Government in Europe**\
 `The Zambian-born lawyer was elected as the country’s first minister by the Welsh Parliament on Wednesday making him the first Black person to lead a nation in Europe.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/arts/dance/review-the-look-of-love-mark-morris-bu
 **Smells Like Teen … Sandalwood?**\
 `Two musky steroids, and higher levels of odorous acids, distinguish the body odors of teens and tots, a new study finds.`\
 https://nytimes.com/2024/03/21/science/odor-adolescents-chemistry.html
-
-**Black Pop Artists Have Long Gone Country. Here’s a Brief History.**\
-`When Beyoncé’s “Cowboy Carter” arrives next week, it’ll join a lineage of albums by stars including Ray Charles, the Pointer Sisters, Tina Turner and more.`\
-https://nytimes.com/2024/03/21/arts/music/beyonce-black-pop-artists-country-music.html
 
