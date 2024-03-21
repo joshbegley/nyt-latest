@@ -1,3 +1,7 @@
+**Blinken begins high-level meetings in Cairo ahead of another visit to Israel.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/03/21/world/israel-hamas-war-gaza-news/blinken-will-hold-high-level-meetings-in-cairo-ahead-of-another-visit-to-israel
+
 **Blinken will hold high-level meetings in Cairo ahead of another visit to Israel.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/03/21/world/israel-hamas-war-gaza-news/blinken-will-hold-high-level-meetings-in-cairo-ahead-of-another-visit-to-israel
