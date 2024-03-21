@@ -1,3 +1,7 @@
+**‘Serial’ Season 4: Guantánamo**\
+`“Serial” returns with a history of Guantánamo told by people who lived through key moments in Guantánamo’s evolution, who know things the rest of us don’t about what it’s like to be caught inside an improvised justice system.`\
+https://nytimes.com/interactive/2024/podcasts/serial-season-four-guantanamo.html
+
 **Man Pleads Guilty in ‘Killing Spree’ of Bald Eagles in Montana**\
 `Travis John Branson of Washington State was indicted last year for illegally hunting and selling the birds. A co-defendant is still on the run.`\
 https://nytimes.com/2024/03/20/us/washington-eagles-black-market.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009372341/biden-latino-voters.html
 **Family Settles in Battle for Ancestral Land in South Carolina**\
 `Josephine Wright, who died this year at 94, had been fighting to save family property. The developer, Bailey Point Investments, agreed to end the dispute, the family’s lawyer said.`\
 https://nytimes.com/2024/03/20/us/josephine-wright-settlement.html
-
-**The War in Gaza Has Left a Power Vacuum, and Scant Planning to Fill It**\
-`Analysts say the Israeli military’s return to the largest hospital complex in the enclave may foretell more chaos without governance.`\
-https://nytimes.com/2024/03/20/world/middleeast/israel-gaza-hamas-power-vacuum.html
 

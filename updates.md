@@ -1,3 +1,7 @@
+**‘Serial’ Season 4: Guantánamo**\
+`“Serial” returns with a history of Guantánamo told by people who lived through key moments in Guantánamo’s evolution, who know things the rest of us don’t about what it’s like to be caught inside an improvised justice system.`\
+https://nytimes.com/interactive/2024/podcasts/serial-season-four-guantanamo.html
+
 **Man Pleads Guilty in ‘Killing Spree’ of Bald Eagles in Montana**\
 `Travis John Branson of Washington State was indicted last year for illegally hunting and selling the birds. A co-defendant is still on the run.`\
 https://nytimes.com/2024/03/20/us/washington-eagles-black-market.html
