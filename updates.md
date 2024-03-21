@@ -1,3 +1,7 @@
+**U.S. Draft Resolution Would Call for ‘Immediate and Sustained Cease-Fire’**\
+`A resolution for the U.N. that American diplomats are circulating was notable for its strong language in seeking a cease-fire in Gaza and the release of hostages.`\
+https://nytimes.com/2024/03/21/world/middleeast/gaza-blinken-ceasefire.html
+
 **Tennessee Makes A.I. an Outlaw to Protect Its Country Music and More**\
 `Gov. Bill Lee on Thursday signed a first-in-the-nation bill to prevent the use of artificial intelligence to copy a performer’s “voice.”`\
 https://nytimes.com/2024/03/21/us/politics/tennessee-ai-music-law.html
