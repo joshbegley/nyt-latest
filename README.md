@@ -6,8 +6,8 @@ https://nytimes.com/2024/03/21/us/politics/tennessee-ai-music-law.html
 `The Tulsa County district attorney said a fight involving the nonbinary student in an Oklahoma high school bathroom was “mutual combat.” The death has been ruled a suicide.`\
 https://nytimes.com/2024/03/21/us/nex-benedict-nonbinary-suicide-charges.html
 
-**U.S. Drafts U.N. Cease-Fire Demand as Blinken Tours Mideast**\
-`The Security Council resolution being circulated by American diplomats, notable for its strong language, calls for “an immediate and sustained cease-fire” in Gaza.`\
+**U.S. Resolution Would Call for ‘Immediate and Sustained Cease-Fire’**\
+`A resolution for the U.N. that American diplomats are circulating was notable for its strong language in seeking a cease-fire in Gaza and the release of hostages.`\
 https://nytimes.com/2024/03/21/world/middleeast/gaza-blinken-ceasefire.html
 
 **What’s the Matter With Ohio?**\
