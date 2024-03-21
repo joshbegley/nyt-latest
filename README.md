@@ -1,3 +1,11 @@
+**Luis Rubiales, Former Spanish Soccer Chief, Faces Arrest**\
+`Mr. Rubiales, who resigned after kissing a player at the Women’s World Cup, is a focus of Spanish investigators looking into accusations of corruption and money laundering.`\
+https://nytimes.com/2024/03/21/world/europe/rubiales-soccer-arrest-spain-super-cup.html
+
+**This Is Not Princess Catherine**\
+`A royal look-alike clears the air on a recent conspiracy theory.`\
+https://nytimes.com/2024/03/21/style/kate-middleton-lookalike-heidi-agan.html
+
 **Film Club: ‘The Math Behind This $10 Chicken Over Rice’**\
 `What can a food cart in New York City tell us about the national problem of inflation?`\
 https://nytimes.com/2024/03/21/learning/film-club-the-math-behind-this-10-chicken-over-rice.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000009374440/vaughan-gething-wales-fir
 **National Plan to Look Into Homeowners Insurers Hits a Hurdle**\
 `Roughly two weeks after state regulators said they were collecting details on insurers’ homeowners businesses, key states may opt out, undermining the effort.`\
 https://nytimes.com/2024/03/21/business/naic-homeowners-insurers-states-hurdle.html
-
-**Review: Looking for Love With Burt Bacharach, and Finding a Prayer**\
-`Mark Morris’s “The Look of Love” at the Brooklyn Academy of Music is uneven, but you can’t fight its swing.`\
-https://nytimes.com/2024/03/21/arts/dance/review-the-look-of-love-mark-morris-burt-bacharach.html
-
-**Smells Like Teen … Sandalwood?**\
-`Two musky steroids, and higher levels of odorous acids, distinguish the body odors of teens and tots, a new study finds.`\
-https://nytimes.com/2024/03/21/science/odor-adolescents-chemistry.html
 
