@@ -1,3 +1,7 @@
+**Read the Lawsuit Against Apple**\
+`The suit is the federal government’s most significant challenge to the reach and influence of the company.`\
+https://nytimes.com/interactive/2024/03/21/technology/apple-lawsuit.html
+
 **Leaders Release $1.2 Trillion Spending Bill as Congress Races to Avert Shutdown**\
 `The 1,012-page bipartisan bill emerged one day before the federal funding deadline, and it was not clear whether it could clear Congress in time to avoid a partial shutdown after midnight on Friday.`\
 https://nytimes.com/2024/03/21/us/politics/congress-spending-bill-shutdown.html
