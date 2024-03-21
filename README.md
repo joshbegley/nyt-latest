@@ -1,3 +1,11 @@
+**Black Pop Artists Have Long Gone Country. Here’s a Brief History.**\
+`When Beyoncé’s “Cowboy Carter” arrives next week, it’ll join a lineage of albums by stars including Ray Charles, the Pointer Sisters, Tina Turner and more.`\
+https://nytimes.com/2024/03/21/arts/music/beyonce-black-pop-artists-country-music.html
+
+**‘Do Not Expect Too Much From the End of the World’ Review: A Wild Romanian Trip**\
+`In Radu Jude’s shambling, acidly funny movie set in Bucharest, a foul-mouthed gofer named Angela tours the troubled heart and soul of her country.`\
+https://nytimes.com/2024/03/21/movies/do-not-expect-too-much-from-the-end-of-the-world-review.html
+
 **Bragg Says Newly Disclosed Papers in Trump Case Contain Little of Value**\
 `A week after agreeing to a brief delay, Manhattan’s district attorney, Alvin L. Bragg, said his office’s criminal prosecution of Donald J. Trump should begin April 15 as scheduled.`\
 https://nytimes.com/2024/03/21/nyregion/trump-trial-delay-bragg.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/03/21/technology/apple-lawsuit.html
 **Leaders Release $1.2 Trillion Spending Bill as Congress Races to Avert Shutdown**\
 `The bipartisan bill emerged one day before the federal funding deadline, and it was not clear whether Congress could complete it in time to avoid a partial shutdown after midnight on Friday.`\
 https://nytimes.com/2024/03/21/us/politics/congress-spending-bill-shutdown.html
-
-**U.S. Sues Apple, Accusing It of Maintaining an iPhone Monopoly**\
-`The lawsuit caps years of regulatory scrutiny of Apple’s wildly popular suite of devices and services, which have fueled its growth into a nearly $3 trillion public company.`\
-https://nytimes.com/2024/03/21/technology/apple-doj-lawsuit-antitrust.html
-
-**‘3 Body Problem’ Episode 2 Recap: The Warning**\
-`Fans of spooky technology will have much to enjoy in this episode.`\
-https://nytimes.com/2024/03/21/arts/television/3-body-problem-episode-2-recap.html
 
