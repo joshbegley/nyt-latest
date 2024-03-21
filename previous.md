@@ -1,3 +1,7 @@
+**My Country Is Witnessing a Messy, Buffoonish End of Rule**\
+`In Senegal, the worst could be still to come.`\
+https://nytimes.com/2024/03/21/opinion/senegal-sall-election.html
+
 **Thursday Briefing**\
 `The E.U.’s plan to make Russia pay to arm Ukraine.`\
 https://nytimes.com/2024/03/21/briefing/eu-russia-ukraine-gaza-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/crosswords/daily-puzzle-2024-03-21.html
 **At the Met Opera, the Show Goes On After a Technical Mishap**\
 `The company put on a semi-staged version of Puccini’s “Turandot” at the last minute, after a backstage lift got jammed.`\
 https://nytimes.com/2024/03/20/arts/music/met-opera-turandot-technical-problem.html
-
-**M. Emmet Walsh, Character Actor Who Always Stood Out, Dies at 88**\
-`His roles in films like “Knives Out” and “Blade Runner” were sometimes big, sometimes small. But he invariably made a strong impression.`\
-https://nytimes.com/2024/03/20/movies/m-emmet-walsh-dead.html
 

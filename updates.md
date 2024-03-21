@@ -1,3 +1,7 @@
+**My Country Is Witnessing a Messy, Buffoonish End of Rule**\
+`In Senegal, the worst could be still to come.`\
+https://nytimes.com/2024/03/21/opinion/senegal-sall-election.html
+
 **Thursday Briefing**\
 `The E.U.’s plan to make Russia pay to arm Ukraine.`\
 https://nytimes.com/2024/03/21/briefing/eu-russia-ukraine-gaza-aid.html
