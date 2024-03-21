@@ -1,3 +1,7 @@
+**Man Pleads Guilty in ‘Killing Spree’ of Bald Eagles in Montana**\
+`Travis John Branson of Washington State was indicted last year for illegally hunting and selling the birds. A co-defendant is still on the run.`\
+https://nytimes.com/2024/03/20/us/washington-eagles-black-market.html
+
 **Something That Can Be Spun**\
 `Joe Marquez’s theme is about my favorite type of puzzle.`\
 https://nytimes.com/2024/03/20/crosswords/daily-puzzle-2024-03-21.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/us/josephine-wright-settlement.html
 **The War in Gaza Has Left a Power Vacuum, and Scant Planning to Fill It**\
 `Analysts say the Israeli military’s return to the largest hospital complex in the enclave may foretell more chaos without governance.`\
 https://nytimes.com/2024/03/20/world/middleeast/israel-gaza-hamas-power-vacuum.html
-
-**The Potency of Trump’s ‘Lost Cause’ Mythmaking**\
-`Like the “Lost Cause” ideology, Donald Trump’s propagandistic mythology negates the truth.`\
-https://nytimes.com/2024/03/20/opinion/trump-lost-cause.html
 
