@@ -1,3 +1,7 @@
+**Russia Targets Kyiv With Missile Attack**\
+`The extent of the damage was not immediately clear, but officials said that at least eight people had been injured and that buildings had been damaged.`\
+https://nytimes.com/2024/03/21/world/europe/russian-missile-attack-kyiv.html
+
 **A Mexican Drug Cartel’s New Target? Seniors and Their Timeshares**\
 `One of Mexico’s most powerful criminal groups, Jalisco New Generation, runs call centers that offer to buy retirees’ vacation properties. Then, they empty their victims’ bank accounts.`\
 https://nytimes.com/2024/03/21/world/americas/mexico-timeshare-fraud-cartel.html
