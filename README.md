@@ -34,7 +34,7 @@ https://nytimes.com/2024/03/21/business/bank-of-england-rates-inflation.html
 `Thousands of acres burned from Maryland to North Carolina, and more fire-friendly conditions were expected on Thursday ahead of soaking rains over the weekend.`\
 https://nytimes.com/2024/03/21/us/virginia-wv-wildfires.html
 
-**Israel Says It Has Killed Dozens of ‘Terrorists’ in Hospital Raid**\
-`The Israeli military’s raid on Al-Shifa Hospital in northern Gaza, the largest in the territory, has grown into one of the longest of the war.`\
+**Israel’s Raid on Al-Shifa Hospital Grows Into One of the Longest of Gaza War**\
+`The Israeli military’s attack on the Shifa complex stretched into a fourth day. The military said it had killed dozens of people it described as terrorists.`\
 https://nytimes.com/2024/03/21/world/middleeast/israel-al-shifa-hospital-raid-gaza.html
 
