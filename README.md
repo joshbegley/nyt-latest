@@ -1,3 +1,7 @@
+**2-Year-Old Separated From His Parents Flees Haiti’s Violent Capital**\
+`The boy had been dropped off with relatives nearly three weeks ago and was airlifted back to his Florida home. He is part of a growing number of Americans trying to flee Haiti.`\
+https://nytimes.com/2024/03/21/world/americas/haiti-evacuation-florida-family.html
+
 **In New Zealand, Experiencing the Miracle of Flight Anew**\
 `The country's domestic airlines play a crucial role in connectivity. But for the casual flier, even the journey is captivating.`\
 https://nytimes.com/2024/03/21/world/australia/new-zealand-sounds-air-flying-domestic.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/21/world/asia/us-apple-monopoly-india-arrest-asia.ht
 **No Labels, No Candidate: Rejections Pile Up as Time Runs Short**\
 `The group’s quest to find a candidate to take on President Biden and Donald Trump has members frustrated.`\
 https://nytimes.com/2024/03/21/us/politics/no-labels-candidate.html
-
-**The Global Campaign Against AIDS Gets Some Temporary Relief**\
-`For now, Republican disinformation about a vital public health program won’t prevail.`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/pepfar-aids-extended
 
