@@ -1,3 +1,7 @@
+**Popcast (Deluxe): Is Reality TV in a New Golden Age?**\
+`Catching up on recent hit shows like “Love Is Blind,” “The Traitors” and “Survivor,” including how social media has added another layer of reality.`\
+https://nytimes.com/2024/03/21/arts/music/popcast-deluxe-reality-tv-love-is-blind.html
+
 **Large Grocers Took Advantage of Pandemic Supply Chain Disruptions, F.T.C. Finds**\
 `A report found that large firms pressured suppliers to favor them over competitors. It also concluded that some retailers “seem to have used rising costs as an opportunity to further hike prices.”`\
 https://nytimes.com/2024/03/21/us/politics/grocery-prices-pandemic-ftc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/arts/television/3-body-problem-episode-2-recap.ht
 **Tax Dispute Becomes Political as India Freezes Opposition’s Accounts**\
 `Just weeks before pivotal elections, the authorities have blocked access to several of the Indian National Congress’s main bank accounts, the party said.`\
 https://nytimes.com/2024/03/21/world/asia/india-national-congress-bank-accounts-bjp.html
-
-**A Director Brings TikTok’s Chaotic Vibe to the Big Screen**\
-`Radu Jude’s films are messy mash-ups of art, literature, advertising and social media, with some dirty jokes thrown in.`\
-https://nytimes.com/2024/03/21/movies/radu-jude-do-not-expect-too-much-from-the-end-of-the-world.html
 
