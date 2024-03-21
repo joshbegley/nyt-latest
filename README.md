@@ -1,3 +1,7 @@
+**Ireland’s Prime Minister Stepped Down. So What Happens Now?**\
+`Leo Varadkar, the prime minister of the Republic of Ireland, resigned unexpectedly on Wednesday, prompting a political scramble in the government. Here’s what to know about what happens next.`\
+https://nytimes.com/2024/03/21/world/europe/ireland-varadkar-what-now.html
+
 **8 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/03/21/books/review/8-new-books-we-recommend-this-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/us/pastor-bishop-houston-wives-bigamy.html
 **A White House Employee’s Testimony About Jan. 6, 2021**\
 `Read the document from the House Jan. 6 committee.`\
 https://nytimes.com/interactive/2024/03/21/us/politics/trump-white-house-employee-testimony-jan-6.html
-
-**U.S. Efforts to Force the Chinese Owner to Sell TikTok**\
-`Readers discuss a bill that has passed in the House. Also: Jewish voters; meddling in primaries; kids selling candy on the subway.`\
-https://nytimes.com/2024/03/21/opinion/tiktok-china.html
 
