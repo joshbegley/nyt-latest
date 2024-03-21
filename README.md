@@ -4,7 +4,7 @@ https://nytimes.com/2024/03/21/insider/ncaa-student-athletes.html
 
 **His Voice Can Stop You in Your Tracks**\
 `Loren Kramar wowed the fashion set with a recent performance. Now he’s taking his act mainstream.`\
-https://nytimes.com/2024/03/21/style/singer-musician-fashion.html
+https://nytimes.com/2024/03/21/style/loren-kramar-fashion-singer-glovemaker.html
 
 **What Is Antisemitism? A Columbia Task Force Would Rather Not Say.**\
 `Definitions of the term are highly contested, so a group monitoring antisemitism on Columbia University’s campus has avoided picking sides. It is still facing criticism.`\
@@ -32,7 +32,7 @@ https://nytimes.com/2024/03/21/crosswords/spelling-bee-forum.html
 
 **One of Last Survivors of Pearl Harbor Attack Dies at 102**\
 `Richard C. Higgins was stationed at the Hawaiian naval base as a radioman on the day of the Japanese attack, which pulled the U.S. into World War II.`\
-https://nytimes.com/2024/03/21/obituaries/richard-higgins-dead.html
+https://nytimes.com/2024/03/21/us/richard-higgins-dead.html
 
 **Jimmy Kimmel Suggests Trump Take a Sip of His Own Medicine**\
 `“If Donald Trump wants immunity, he should drink bleach like he told us to do when we wanted immunity,” Kimmel said.`\
