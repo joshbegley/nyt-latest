@@ -1,3 +1,11 @@
+**Volunteer Doctor Details Dire Conditions at a Gaza Hospital**\
+`Nick Maynard, part of a delegation of volunteer doctors who visited besieged hospitals in Gaza, conveyed the need for an immediate cease-fire in Israel’s war against Hamas.`\
+https://nytimes.com/video/world/middleeast/100000009375768/gaza-hospital-war.html
+
+**Alabama Woman Who Lied About Abduction Pleads Guilty to Filing a False Report**\
+`Carlee Russell, who received two suspended six-month sentences, won’t have to serve any time if she successfully completes 12 months of probation, performs 100 hours of community service and pays $17,000 in restitution.`\
+https://nytimes.com/2024/03/21/us/carlee-russell-guilty-alabama-abduction-hoax.html
+
 **Goon Squad Hearings Reveal Culture of Violence in Mississippi Sheriff’s Office**\
 `Former deputies said they saw brutality as a way to rise in the ranks of a department that celebrated violence against people suspected of crimes.`\
 https://nytimes.com/2024/03/21/us/mississippi-goon-squad-mcalpin-sentence.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/03/21/opinion/trump-biden-economy-ohio.html
 **Prehistoric Amphibian Ancestor Is Named for Kermit the Frog**\
 `The species seemed to have bug eyes and a smile, so a team of researchers named it Kermitops gratus in honor of the banjo-playing Muppet.`\
 https://nytimes.com/2024/03/21/science/kermitops-amphibian-kermit-frog-texas.html
-
-**Killing of Teen in Front of Her Twin Sister Stuns Brooklyn Neighborhood**\
-`Samyia Spain, 19, was fatally stabbed outside a Park Slope deli. She and her twin were attacked by a man who had been trying to flirt with her, the police said.`\
-https://nytimes.com/2024/03/21/nyregion/brooklyn-twin-killing.html
-
-**U.S. Searching for a Way to Keep Troops in Niger**\
-`A top Pentagon official said the United States was “seeking clarification” after the ruling junta decided to revoke a military cooperation deal.`\
-https://nytimes.com/2024/03/21/us/politics/niger-us-troops-coup.html
 
