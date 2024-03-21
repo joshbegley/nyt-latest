@@ -1,3 +1,7 @@
+**Leagues Have More Than Just Players to Watch on Gambling**\
+`The wagering situation involving Shohei Ohtani’s former interpreter shows that people adjacent to the players and coaches can also be a risk.`\
+https://nytimes.com/2024/03/21/business/ohtani-interpreter-gambling-leagues.html
+
 **Amnon Weinstein, Who Restored Violins From the Holocaust, Dies at 84**\
 `Many had been left behind by victims of the gas chambers. He let the instruments be heard again in melodic tributes through his organization, Violins of Hope.`\
 https://nytimes.com/2024/03/21/arts/music/amnon-weinstein-dead.html

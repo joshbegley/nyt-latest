@@ -1,3 +1,7 @@
+**Leagues Have More Than Just Players to Watch on Gambling**\
+`The wagering situation involving Shohei Ohtani’s former interpreter shows that people adjacent to the players and coaches can also be a risk.`\
+https://nytimes.com/2024/03/21/business/ohtani-interpreter-gambling-leagues.html
+
 **Amnon Weinstein, Who Restored Violins From the Holocaust, Dies at 84**\
 `Many had been left behind by victims of the gas chambers. He let the instruments be heard again in melodic tributes through his organization, Violins of Hope.`\
 https://nytimes.com/2024/03/21/arts/music/amnon-weinstein-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/21/nyregion/brooklyn-thieves-in-law.html
 **International Elections 2024: What You Need to Know**\
 `With disinformation rampant and dissent under attack, voters in more than 80 countries will go to the polls this year. When the tallying is done, the world might look a lot different,`\
 https://nytimes.com/interactive/2024/world/international-elections-2024.html
-
-**Trump’s Deal With R.N.C. Prioritizes PAC Paying His Lawyers**\
-`A share of donations taken in by the Republican National Committee will go to the group footing his legal bills before any of the cash goes to the party itself.`\
-https://nytimes.com/2024/03/21/us/politics/trump-legal-bills-rnc.html
 
