@@ -1,3 +1,11 @@
+**A Racial Realignment in Politics Could Be a Good Thing**\
+`Trump distorts everything, but some intriguing patterns are falling into place.`\
+https://nytimes.com/2024/03/21/opinion/trump-politics-race-identity.html
+
+**How to Prepare Kids for Puberty**\
+`These five tips can help.`\
+https://nytimes.com/interactive/2024/03/21/smarter-living/wirecutter/puberty-tips.html
+
 **Civil Judgments Sting as Criminal Cases Slow**\
 `Civil cases are keeping the pressure on Donald Trump ahead of his four criminal trials.`\
 https://nytimes.com/2024/03/21/us/politics/trump-trial-civil-cases-bond.html
@@ -25,16 +33,4 @@ https://nytimes.com/2024/03/21/arts/television/great-news-netflix.html
 **Johnson Says He Will Invite Netanyahu to Address Congress**\
 `Senator Chuck Schumer, the majority leader, also said he would support having a speech delivered “to Congress in a bipartisan way.”`\
 https://nytimes.com/2024/03/21/world/middleeast/johnson-netanyahu-schumer.html
-
-**What Students Are Saying About Bullying Today**\
-`Teenagers tell us what it’s like to navigate the social world in the age of smartphones and social media.`\
-https://nytimes.com/2024/03/21/learning/what-students-are-saying-about-bullying-today.html
-
-**Overlooked No More: Yvonne Barr, Who Helped Discover a Cancer-Causing Virus**\
-`A virologist, she worked with the pathologist Anthony Epstein, who died last month, in finding for the first time that a virus that could cause cancer. It’s known as the Epstein-Barr virus.`\
-https://nytimes.com/2024/03/21/obituaries/yvonne-barr-overlooked.html
-
-**Why Do Autocrats Like Putin Bother to Hold Elections?**\
-`These votes can demonstrate control, serve as a warning and create the illusion of accountability.`\
-https://nytimes.com/2024/03/21/world/europe/interpreter-elections-putin.html
 
