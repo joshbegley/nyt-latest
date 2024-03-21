@@ -1,3 +1,11 @@
+**International Elections 2024: What You Need to Know**\
+`With disinformation rampant and dissent under attack, voters in more than 80 countries will go to the polls this year. When the tallying is done, the world might look a lot different,`\
+https://nytimes.com/interactive/2024/world/international-elections-2024.html
+
+**Trump’s Deal With R.N.C. Prioritizes PAC Paying His Lawyers**\
+`A share of donations taken in by the Republican National Committee will go to the group footing his legal bills before any of the cash goes to the party itself.`\
+https://nytimes.com/2024/03/21/us/politics/trump-legal-bills-rnc.html
+
 **Are You an Undecided Voter? Do You Live in a Battleground State? We Want to Hear from You.**\
 `Most voters say their minds are already made up. But if yours isn’t, we want to hear your perspective.`\
 https://nytimes.com/article/undecided-voter-questions.html
