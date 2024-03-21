@@ -1,3 +1,11 @@
+**Luis Rubiales, Former Spanish Soccer Chief, Faces Arrest**\
+`Mr. Rubiales, who resigned after kissing a player at the Women’s World Cup, is a focus of Spanish investigators looking into accusations of corruption and money laundering.`\
+https://nytimes.com/2024/03/21/world/europe/rubiales-soccer-arrest-spain-super-cup.html
+
+**This Is Not Princess Catherine**\
+`A royal look-alike clears the air on a recent conspiracy theory.`\
+https://nytimes.com/2024/03/21/style/kate-middleton-lookalike-heidi-agan.html
+
 **Film Club: ‘The Math Behind This $10 Chicken Over Rice’**\
 `What can a food cart in New York City tell us about the national problem of inflation?`\
 https://nytimes.com/2024/03/21/learning/film-club-the-math-behind-this-10-chicken-over-rice.html
