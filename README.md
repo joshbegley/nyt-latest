@@ -1,3 +1,7 @@
+**Jimmy Kimmel Suggests Trump Take a Sip of His Own Medicine**\
+`“If Donald Trump wants immunity, he should drink bleach like he told us to do when we wanted immunity,” Kimmel said.`\
+https://nytimes.com/2024/03/21/arts/television/jimmy-kimmel-trump-immunity.html
+
 **Climate Change Made an Early Heat Wave in West Africa 10 Times as Likely**\
 `Temperatures in the region rose above 40 degrees Celsius in February, with humidity pushing the heat index even higher.`\
 https://nytimes.com/2024/03/21/climate/climate-change-heat-wave-west-africa.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/us/politics/trump-biden-campaign-finance.html
 **‘Serial’ Season 4: Guantánamo**\
 `“Serial” returns with a history of Guantánamo told by people who lived through key moments in Guantánamo’s evolution, who know things the rest of us don’t about what it’s like to be caught inside an improvised justice system.`\
 https://nytimes.com/interactive/2024/podcasts/serial-season-four-guantanamo.html
-
-**Man Pleads Guilty in ‘Killing Spree’ of Bald Eagles in Montana**\
-`Travis John Branson of Washington State was indicted last year for illegally hunting and selling the birds. A co-defendant is still on the run.`\
-https://nytimes.com/2024/03/20/us/washington-eagles-black-market.html
 
