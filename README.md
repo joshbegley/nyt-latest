@@ -1,3 +1,11 @@
+**Goon Squad Hearings Reveal Culture of Violence in Mississippi Sheriff’s Office**\
+`Former deputies said they saw brutality as a way to rise in the ranks of a department that celebrated violence against people suspected of crimes.`\
+https://nytimes.com/2024/03/21/us/mississippi-goon-squad-mcalpin-sentence.html
+
+**They Failed in Their Quests to Buy Birkin Bags. So They Sued.**\
+`But fans of the famed Hermès accessory say that the exclusivity is the whole point.`\
+https://nytimes.com/2024/03/21/style/birkin-bag-hermes-lawsuit.html
+
 **Tennessee Makes A.I. an Outlaw to Protect Its Country Music and More**\
 `Gov. Bill Lee on Thursday signed a first-in-the-nation bill to prevent the use of artificial intelligence to copy a performer’s “voice.”`\
 https://nytimes.com/2024/03/21/us/politics/tennessee-ai-music-law.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/03/21/nyregion/brooklyn-twin-killing.html
 **U.S. Searching for a Way to Keep Troops in Niger**\
 `A top Pentagon official said the United States was “seeking clarification” after the ruling junta decided to revoke a military cooperation deal.`\
 https://nytimes.com/2024/03/21/us/politics/niger-us-troops-coup.html
-
-**Menendez Says He Won’t Run in Democratic Primary**\
-`Senator Robert Menendez of New Jersey, who is facing federal bribery charges, announced he would not run for re-election as a Democrat.`\
-https://nytimes.com/video/us/elections/100000009375675/robert-menendez-new-jersey-reelection.html
-
-**Top Adviser to Mayor Adams Is Accused in a Lawsuit of Sexual Harassment**\
-`A New York City police sergeant said she was demoted and later quit after she rebuffed the advances by Timothy Pearson, whose conduct has already drawn scrutiny.`\
-https://nytimes.com/2024/03/21/nyregion/timothy-pearson-sexual-harassment-lawsuit.html
 
