@@ -1,3 +1,7 @@
+**Once a Sure Thing, Newsom’s Homelessness Measure Barely Passes**\
+`The measure known as Proposition 1, which includes $6.38 billion for treatment and housing, was a top priority for Gov. Gavin Newsom to reduce homelessness in the state.`\
+https://nytimes.com/2024/03/20/us/california-prop-1-homelessness.html
+
 **Biden Focuses on Latino Voters in Nevada and Arizona**\
 `Zolan Kanno-Youngs, a White House correspondent for The New York Times, traveled with President Biden to Nevada, where he tried to gain support from Hispanic voters.`\
 https://nytimes.com/video/us/politics/100000009372341/biden-latino-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/us/politics/biden-chip-manufacturing.html
 **Chicago Tax Referendum and Prosecutor Primary Are Too Close to Call**\
 `A proposal to raise the transfer tax on sales of high-value properties was trailing. Two Democrats were locked in a close Cook County prosecutor primary.`\
 https://nytimes.com/2024/03/20/us/chicago-elections-prosecutor-transfer-tax.html
-
-**Trump’s Running Mate Selection Process**\
-`The former president, who knows a thing or two about televised drama, is already dropping hints.`\
-https://nytimes.com/2024/03/20/us/politics/trump-running-mate.html
 
