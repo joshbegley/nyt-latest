@@ -1,3 +1,7 @@
+**One of Last Survivors of Pearl Harbor Attack Dies at 102**\
+`Richard C. Higgins was stationed at the Hawaiian naval base as a radioman on the day of the Japanese attack, which pulled the U.S. into World War II.`\
+https://nytimes.com/2024/03/21/obituaries/richard-higgins-dead.html
+
 **Jimmy Kimmel Suggests Trump Take a Sip of His Own Medicine**\
 `“If Donald Trump wants immunity, he should drink bleach like he told us to do when we wanted immunity,” Kimmel said.`\
 https://nytimes.com/2024/03/21/arts/television/jimmy-kimmel-trump-immunity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/business/panama-canal-water-revenue.html
 **Biden Widens His Financial Lead Over Trump**\
 `New federal filings on Wednesday showed the president’s campaign with a nearly $40 million advantage over the Trump campaign at the end of last month.`\
 https://nytimes.com/2024/03/20/us/politics/trump-biden-campaign-finance.html
-
-**‘Serial’ Season 4: Guantánamo**\
-`“Serial” returns with a history of Guantánamo told by people who lived through key moments in Guantánamo’s evolution, who know things the rest of us don’t about what it’s like to be caught inside an improvised justice system.`\
-https://nytimes.com/interactive/2024/podcasts/serial-season-four-guantanamo.html
 
