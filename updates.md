@@ -1,3 +1,7 @@
+**Israel’s Supreme Court asks authorities to hold off on the deportation of Gazan cancer patients.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/03/21/world/israel-hamas-war-gaza-news/israels-supreme-court-asks-authorities-to-hold-off-on-the-deportation-of-gazan-cancer-patients
+
 **U.S. Park Service Says to Leave Your Cash at Home, but Some Object**\
 `Complaints have been mounting on social media, and now a group has filed a lawsuit, as the service has continued rolling out policies against accepting cash to enter federal parks.`\
 https://nytimes.com/2024/03/21/us/cashless-national-parks-lawsuit.html
