@@ -1,3 +1,7 @@
+**Israel’s Raid on Al-Shifa Hospital Grows Into One of the Longest of Gaza War**\
+`The Israeli military’s attack on the Shifa complex stretched into a fourth day. The military said it had killed dozens of people it described as terrorists.`\
+https://nytimes.com/2024/03/21/world/middleeast/israel-al-shifa-hospital-raid-gaza.html
+
 **In Nevada and Arizona, Biden focused on Latino voters.**\
 `By Zolan Kanno-Youngs, Meg Felling and Rebecca Suner`\
 https://nytimes.com/live/2024/03/21/us/trump-biden-election/in-nevada-and-arizona-biden-focused-on-latino-voters
