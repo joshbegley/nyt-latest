@@ -1,3 +1,7 @@
+**In New Zealand, Experiencing the Miracle of Flight Anew**\
+`The country's domestic airlines play a crucial role in connectivity. But for the casual flier, even the journey is captivating.`\
+https://nytimes.com/2024/03/21/world/australia/new-zealand-sounds-air-flying-domestic.html
+
 **Man Accused of Leading ‘Thieves in Law’ Pleads Guilty to Racketeering**\
 `Viktor Zelinger, a Ukrainian native, admitted to running an illegal gambling club in Brooklyn and threatening debtors.`\
 https://nytimes.com/2024/03/21/nyregion/brooklyn-thieves-in-law.html
