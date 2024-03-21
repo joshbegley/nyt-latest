@@ -1,3 +1,7 @@
+**Prehistoric Amphibian Ancestor Is Named for Kermit the Frog**\
+`The species seemed to have bug eyes and a smile, so a team of researchers named it Kermitops gratus in honor of the banjo-playing Muppet.`\
+https://nytimes.com/2024/03/21/science/kermitops-amphibian-kermit-frog-texas.html
+
 **Killing of Teen in Front of Her Twin Sister Stuns Brooklyn Neighborhood**\
 `Samyia Spain, 19, was fatally stabbed outside a Park Slope deli. She and her twin were attacked by a man who had been trying to flirt with her, the police said.`\
 https://nytimes.com/2024/03/21/nyregion/brooklyn-twin-killing.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/21/business/ohtani-interpreter-gambling-leagues.html
 **Amnon Weinstein, Who Restored Violins From the Holocaust, Dies at 84**\
 `Many had been left behind by victims of the gas chambers. He let the instruments be heard again in melodic tributes through his organization, Violins of Hope.`\
 https://nytimes.com/2024/03/21/arts/music/amnon-weinstein-dead.html
-
-**Third Man Charged With Murder in Shooting at Super Bowl Rally**\
-`Nine people have been charged with crimes, including weapons violations, in connection to the shooting in Kansas City, Mo., last month.`\
-https://nytimes.com/2024/03/21/us/kansas-city-super-bowl-shooting-charges.html
 
