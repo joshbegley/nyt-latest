@@ -1,3 +1,7 @@
+**Large Grocers Took Advantage of Pandemic Supply Chain Disruptions, F.T.C. Finds**\
+`A report found that large firms pressured suppliers to favor them over competitors. It also concluded that some retailers “seem to have used rising costs as an opportunity to further hike prices.”`\
+https://nytimes.com/2024/03/21/us/politics/grocery-prices-pandemic-ftc.html
+
 **The Psychedelic Evangelist**\
 `A Johns Hopkins scientist was known for rigorous studies of psychedelics. Was he a true believer?`\
 https://nytimes.com/2024/03/21/health/psychedelics-roland-griffiths-johns-hopkins.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/world/asia/india-national-congress-bank-accounts-
 **A Director Brings TikTok’s Chaotic Vibe to the Big Screen**\
 `Radu Jude’s films are messy mash-ups of art, literature, advertising and social media, with some dirty jokes thrown in.`\
 https://nytimes.com/2024/03/21/movies/radu-jude-do-not-expect-too-much-from-the-end-of-the-world.html
-
-**21pol-swiper**\
-`Election Updates: Biden’s campaign has a nearly $40 million advantage over the Trump campaign, filings show.`\
-https://nytimes.com/live/2024/03/21/us/trump-biden-election
 
