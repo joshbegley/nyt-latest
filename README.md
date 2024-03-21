@@ -1,3 +1,7 @@
+**At the Met Opera, the Show Goes On After a Technical Mishap**\
+`The company put on a semi-staged version of Puccini’s “Turandot” at the last minute, after a backstage lift got jammed.`\
+https://nytimes.com/2024/03/20/arts/music/met-opera-turandot-technical-problem.html
+
 **M. Emmet Walsh, Character Actor Who Always Stood Out, Dies at 88**\
 `His roles in films like “Blood Simple” and “Blade Runner” were sometimes big, sometimes small. But he invariably made a strong impression.`\
 https://nytimes.com/2024/03/20/movies/m-emmet-walsh-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/opinion/trump-lost-cause.html
 **National Security Adviser Makes Covert Trip to Kyiv**\
 `Jake Sullivan met with President Volodymyr Zelensky of Ukraine and his senior officials as additional U.S. aid continued to languish in the House.`\
 https://nytimes.com/2024/03/20/us/politics/jake-sullivan-ukraine.html
-
-**Fight Over Texas Law Underscores a Battle of America vs. Its States**\
-`The partisan gridlock gumming up Washington has prompted states controlled by one party to set off on their own.`\
-https://nytimes.com/2024/03/20/us/politics/texas-law-states-immigration-migrants.html
 
