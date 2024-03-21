@@ -1,3 +1,7 @@
+**Inside the Republican Attacks on Electric Vehicles**\
+`President Biden’s new rule cutting emissions from vehicle tailpipes has deepened a partisan battle over automotive technology.`\
+https://nytimes.com/2024/03/21/climate/republican-attacks-electric-vehicles.html
+
 **At Long Last, a Gold Medal for America’s World War II ‘Ghost Army’**\
 `Only seven of the original 1,100 soldiers who carried out psychological operations against the Axis powers are believed to survive.`\
 https://nytimes.com/2024/03/21/us/ghost-army-gold-medal.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/21/world/americas/haiti-evacuation-florida-family.ht
 **In New Zealand, Experiencing the Miracle of Flight Anew**\
 `The country's domestic airlines play a crucial role in connectivity. But for the casual flier, even the journey is captivating.`\
 https://nytimes.com/2024/03/21/world/australia/new-zealand-sounds-air-flying-domestic.html
-
-**Man Accused of Leading ‘Thieves in Law’ Pleads Guilty to Racketeering**\
-`Viktor Zelinger, a Ukrainian native, admitted to running an illegal gambling club in Brooklyn and threatening debtors.`\
-https://nytimes.com/2024/03/21/nyregion/brooklyn-thieves-in-law.html
 

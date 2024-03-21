@@ -1,3 +1,7 @@
+**Inside the Republican Attacks on Electric Vehicles**\
+`President Biden’s new rule cutting emissions from vehicle tailpipes has deepened a partisan battle over automotive technology.`\
+https://nytimes.com/2024/03/21/climate/republican-attacks-electric-vehicles.html
+
 **At Long Last, a Gold Medal for America’s World War II ‘Ghost Army’**\
 `Only seven of the original 1,100 soldiers who carried out psychological operations against the Axis powers are believed to survive.`\
 https://nytimes.com/2024/03/21/us/ghost-army-gold-medal.html
