@@ -1,3 +1,11 @@
+**A White House Employee’s Testimony About Jan. 6, 2021**\
+`Read the document from the House Jan. 6 committee.`\
+https://nytimes.com/interactive/2024/03/21/us/politics/trump-white-house-employee-testimony-jan-6.html
+
+**U.S. Efforts to Force the Chinese Owner to Sell TikTok**\
+`Readers discuss a bill that has passed in the House. Also: Jewish voters; meddling in primaries; kids selling candy on the subway.`\
+https://nytimes.com/2024/03/21/opinion/tiktok-china.html
+
 **The Many Challenges Facing Apple**\
 `The Justice Department’s lawsuit against Apple is the latest in a series of regulatory actions that are hitting the tech giant at the same time.`\
 https://nytimes.com/2024/03/21/technology/apple-regulators-world.html
