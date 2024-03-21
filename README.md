@@ -1,3 +1,7 @@
+**New California Court for the Mentally Ill Tests a State’s Liberal Values**\
+`To confront the crises of homelessness and mental illness, California has passed new laws that critics say could violate the civil liberties of those suffering on the streets. Some families welcome the new measures.`\
+https://nytimes.com/2024/03/21/us/california-care-court-mental-illness-homeless.html
+
 **How Do You Become the U.K.’s Hottest New Band? The Old-Fashioned Way.**\
 `The Last Dinner Party has rapidly built a following by meticulously planning its theatrical live shows, and ignoring viral fame.`\
 https://nytimes.com/2024/03/21/arts/music/the-last-dinner-party-prelude-to-ecstasy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/nyregion/trump-trial-delay-bragg.html
 **Popcast (Deluxe): Is Reality TV in a New Golden Age?**\
 `Catching up on recent hit shows like “Love Is Blind,” “The Traitors” and “Survivor,” including how social media has added another layer of reality.`\
 https://nytimes.com/2024/03/21/arts/music/popcast-deluxe-reality-tv-love-is-blind.html
-
-**Large Grocers Took Advantage of Pandemic Supply Chain Disruptions, F.T.C. Finds**\
-`A report found that large firms pressured suppliers to favor them over competitors. It also concluded that some retailers “seem to have used rising costs as an opportunity to further hike prices.”`\
-https://nytimes.com/2024/03/21/us/politics/grocery-prices-pandemic-ftc.html
 
