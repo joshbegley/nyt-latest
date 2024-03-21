@@ -1,3 +1,7 @@
+**Once a Sure Thing, Newsom’s Homelessness Measure Barely Passes**\
+`The measure known as Proposition 1, which includes $6.38 billion for treatment and housing, was a top priority for Gov. Gavin Newsom to reduce homelessness in the state.`\
+https://nytimes.com/2024/03/20/us/california-prop-1-homelessness.html
+
 **Biden Focuses on Latino Voters in Nevada and Arizona**\
 `Zolan Kanno-Youngs, a White House correspondent for The New York Times, traveled with President Biden to Nevada, where he tried to gain support from Hispanic voters.`\
 https://nytimes.com/video/us/politics/100000009372341/biden-latino-voters.html
