@@ -1,3 +1,7 @@
+**Biden Widens His Financial Lead Over Trump**\
+`New federal filings on Wednesday showed the president’s campaign with a nearly $40 million advantage over the Trump campaign at the end of last month.`\
+https://nytimes.com/2024/03/20/us/politics/trump-biden-campaign-finance.html
+
 **‘Serial’ Season 4: Guantánamo**\
 `“Serial” returns with a history of Guantánamo told by people who lived through key moments in Guantánamo’s evolution, who know things the rest of us don’t about what it’s like to be caught inside an improvised justice system.`\
 https://nytimes.com/interactive/2024/podcasts/serial-season-four-guantanamo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/us/california-prop-1-homelessness.html
 **Biden Focuses on Latino Voters in Nevada and Arizona**\
 `Zolan Kanno-Youngs, a White House correspondent for The New York Times, traveled with President Biden to Nevada, where he tried to gain support from Hispanic voters.`\
 https://nytimes.com/video/us/politics/100000009372341/biden-latino-voters.html
-
-**Family Settles in Battle for Ancestral Land in South Carolina**\
-`Josephine Wright, who died this year at 94, had been fighting to save family property. The developer, Bailey Point Investments, agreed to end the dispute, the family’s lawyer said.`\
-https://nytimes.com/2024/03/20/us/josephine-wright-settlement.html
 
