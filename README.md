@@ -1,3 +1,7 @@
+**The Fed Stays the Course on Rates**\
+`Markets are cheering the central bank’s forecast for three interest rate cuts this year. But Fed policymakers are divided on the issue.`\
+https://nytimes.com/2024/03/21/business/dealbook/fed-rate-cuts.html
+
 **‘William Shatner: You Can Call Me Bill’ Review: Living Long**\
 `A documentary on the “Star Trek” actor unboldly goes where other profile movies have gone before.`\
 https://nytimes.com/2024/03/21/movies/william-shatner-you-can-call-me-bill-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/podcasts/the-daily/caitlin-clark.html
 **Directing a Movie Doesn’t Make You a Mideast Authority**\
 `Jonathan Glazer’s Oscar speech comparing the Gaza war to the Holocaust was profoundly wrong.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/oscars-glazer-holocaust-israel
-
-**Biden Approves $5.8 Billion in Additional Student Debt Cancellation**\
-`The incremental relief brings the canceled total to $143.6 billion for nearly four million Americans.`\
-https://nytimes.com/2024/03/21/business/biden-student-loan-forgiveness.html
 
