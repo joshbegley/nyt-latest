@@ -1,3 +1,7 @@
+**Why Do Autocrats Like Putin Bother to Hold Elections?**\
+`These votes can demonstrate control, serve as a warning and create the illusion of accountability.`\
+https://nytimes.com/2024/03/21/world/europe/interpreter-elections-putin.html
+
 **Ireland’s Prime Minister Stepped Down. So What Happens Now?**\
 `Leo Varadkar, the prime minister of the Republic of Ireland, resigned unexpectedly on Wednesday, prompting a political scramble in the government. Here’s what to know about what happens next.`\
 https://nytimes.com/2024/03/21/world/europe/ireland-varadkar-what-now.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/us/trump-pence-jan-6-white-house-valet.html
 **Posing as a Pastor, Man Had at Least 10 Wives, Prosecutors Say**\
 `The Houston man was sentenced last week to three years in prison after he married a woman in Kentucky, violating the conditions of his probation on a bigamy charge, prosecutors said.`\
 https://nytimes.com/2024/03/21/us/pastor-bishop-houston-wives-bigamy.html
-
-**A White House Employee’s Testimony About Jan. 6, 2021**\
-`Read the document from the House Jan. 6 committee.`\
-https://nytimes.com/interactive/2024/03/21/us/politics/trump-white-house-employee-testimony-jan-6.html
 
