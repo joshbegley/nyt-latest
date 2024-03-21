@@ -1,3 +1,7 @@
+**A Little-Known Way That Trump Could Raise Money to Pay His Legal Bills**\
+`The former president’s social media company is finally set to go public. He could borrow against the value of his stake in the company.`\
+https://nytimes.com/2024/03/21/business/trump-truth-social-merger.html
+
 **Johnson Says He Will Invite Netanyahu to Address Congress**\
 `Senator Chuck Schumer, the majority leader, also said he would support an address by the Israeli prime minister in front of the entire Congress.`\
 https://nytimes.com/2024/03/21/world/middleeast/johnson-netanyahu-schumer.html

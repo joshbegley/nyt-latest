@@ -27,7 +27,7 @@ https://nytimes.com/2024/03/21/books/review/8-new-books-we-recommend-this-week.h
 https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-housing-plan
 
 **A Little-Known Way That Trump Could Raise Money to Pay His Legal Bills**\
-`The former president’s social media company is finally set to go public. Mr. Trump could borrow against the value of his stake in the company.`\
+`The former president’s social media company is finally set to go public. He could borrow against the value of his stake in the company.`\
 https://nytimes.com/2024/03/21/business/trump-truth-social-merger.html
 
 **Israel’s Supreme Court asks authorities to hold off on the deportation of Gazan cancer patients.**\
