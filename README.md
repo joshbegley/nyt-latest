@@ -1,3 +1,7 @@
+**In New Zealand, Experiencing the Miracle of Flight Anew**\
+`The country's domestic airlines play a crucial role in connectivity. But for the casual flier, even the journey is captivating.`\
+https://nytimes.com/2024/03/21/world/australia/new-zealand-sounds-air-flying-domestic.html
+
 **Man Accused of Leading ‘Thieves in Law’ Pleads Guilty to Racketeering**\
 `Viktor Zelinger, a Ukrainian native, admitted to running an illegal gambling club in Brooklyn and threatening debtors.`\
 https://nytimes.com/2024/03/21/nyregion/brooklyn-thieves-in-law.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/21/us/politics/no-labels-candidate.html
 **The Global Campaign Against AIDS Gets Some Temporary Relief**\
 `For now, Republican disinformation about a vital public health program won’t prevail.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/pepfar-aids-extended
-
-**U.S. resolution at the United Nations calls for a sustained cease-fire in Gaza.**\
-`By Michael Crowley and Thomas Fuller`\
-https://nytimes.com/live/2024/03/21/world/israel-hamas-war-gaza-news/us-resolution-at-the-united-nations-calls-for-a-sustained-cease-fire-in-gaza
 
