@@ -1,5 +1,5 @@
 **Johnson Says He Will Invite Netanyahu to Address Congress**\
-`Senator Chuck Schumer, the majority leader, also said he would support an address by the Israeli prime minister in front of the entire Congress.`\
+`Senator Chuck Schumer, the majority leader, also said he would support having a speech delivered “to Congress in a bipartisan way.”`\
 https://nytimes.com/2024/03/21/world/middleeast/johnson-netanyahu-schumer.html
 
 **What Students Are Saying About Bullying Today**\
