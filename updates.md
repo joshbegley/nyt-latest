@@ -1,3 +1,11 @@
+**Corrections: March 21, 2024**\
+`Corrections that appeared in print on Thursday, March 21, 2024.`\
+https://nytimes.com/2024/03/20/pageoneplus/corrections-march-21-2024.html
+
+**Quotation of the Day: $700,000 Prize Awarded for Randomness Studies**\
+`Quotation of the Day for Thursday, March 21, 2024.`\
+https://nytimes.com/2024/03/20/pageoneplus/quotation-of-the-day-700000-prize-awarded-for-randomness-studies.html
+
 **Once a Sure Thing, Newsom’s Homelessness Measure Barely Passes**\
 `The measure known as Proposition 1, which includes $6.38 billion for treatment and housing, was a top priority for Gov. Gavin Newsom to reduce homelessness in the state.`\
 https://nytimes.com/2024/03/20/us/california-prop-1-homelessness.html
