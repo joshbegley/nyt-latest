@@ -1,3 +1,7 @@
+**Reddit Opens Up 38%, as Shares Begin Trading**\
+`The social media company’s debut on the New York Stock Exchange was one of the first major tech initial public offerings of the year.`\
+https://nytimes.com/2024/03/21/technology/reddit-stock-ipo-market.html
+
 **Luis Rubiales, Former Spanish Soccer Chief, Faces Arrest**\
 `Mr. Rubiales, who resigned after kissing a player at the Women’s World Cup, is a focus of Spanish investigators looking into accusations of corruption and money laundering.`\
 https://nytimes.com/2024/03/21/world/europe/rubiales-soccer-arrest-spain-super-cup.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/arts/music/uk-indie-rock-.html
 **Vaughan Gething Elected First Black Head of Government in Europe**\
 `The Zambian-born lawyer was elected as the country’s first minister by the Welsh Parliament on Wednesday making him the first Black person to lead a nation in Europe.`\
 https://nytimes.com/video/world/europe/100000009374440/vaughan-gething-wales-first-minister.html
-
-**National Plan to Look Into Homeowners Insurers Hits a Hurdle**\
-`Roughly two weeks after state regulators said they were collecting details on insurers’ homeowners businesses, key states may opt out, undermining the effort.`\
-https://nytimes.com/2024/03/21/business/naic-homeowners-insurers-states-hurdle.html
 
