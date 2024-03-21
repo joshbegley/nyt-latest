@@ -1,3 +1,7 @@
+**What to Watch This Weekend: A Rapid-Fire Sitcom**\
+`“Great News,” a gone-too-soon comedy on Netflix, descended from “30 Rock” and has a similar sensibility and jokes-per-minute rate.`\
+https://nytimes.com/2024/03/21/arts/television/great-news-netflix.html
+
 **Johnson Says He Will Invite Netanyahu to Address Congress**\
 `Senator Chuck Schumer, the majority leader, also said he would support having a speech delivered “to Congress in a bipartisan way.”`\
 https://nytimes.com/2024/03/21/world/middleeast/johnson-netanyahu-schumer.html
