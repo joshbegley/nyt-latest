@@ -1,3 +1,7 @@
+**Reddit Opens Up 38%, as Shares Begin Trading**\
+`The social media company’s debut on the New York Stock Exchange was one of the first major tech initial public offerings of the year.`\
+https://nytimes.com/2024/03/21/technology/reddit-stock-ipo-market.html
+
 **Luis Rubiales, Former Spanish Soccer Chief, Faces Arrest**\
 `Mr. Rubiales, who resigned after kissing a player at the Women’s World Cup, is a focus of Spanish investigators looking into accusations of corruption and money laundering.`\
 https://nytimes.com/2024/03/21/world/europe/rubiales-soccer-arrest-spain-super-cup.html
