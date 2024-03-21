@@ -1,3 +1,7 @@
+**The Roadblocks to Biden’s Electric Vehicles Plan**\
+`E.V.s have become part of the political culture wars`\
+https://nytimes.com/2024/03/21/climate/the-roadblocks-to-bidens-electric-vehicles-plan.html
+
 **Robert L. Barry, 89, Diplomat Who Negotiated Pact With Soviets, Dies**\
 `He was the chief negotiator on a troop-inspections accord that American officials considered important in reducing East-West tensions near the end of the Cold War.`\
 https://nytimes.com/2024/03/21/us/robert-l-barry-dead.html
