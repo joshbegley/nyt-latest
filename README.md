@@ -1,3 +1,11 @@
+**Corrections: March 21, 2024**\
+`Corrections that appeared in print on Thursday, March 21, 2024.`\
+https://nytimes.com/2024/03/20/pageoneplus/corrections-march-21-2024.html
+
+**Quotation of the Day: $700,000 Prize Awarded for Randomness Studies**\
+`Quotation of the Day for Thursday, March 21, 2024.`\
+https://nytimes.com/2024/03/20/pageoneplus/quotation-of-the-day-700000-prize-awarded-for-randomness-studies.html
+
 **Once a Sure Thing, Newsom’s Homelessness Measure Barely Passes**\
 `The measure known as Proposition 1, which includes $6.38 billion for treatment and housing, was a top priority for Gov. Gavin Newsom to reduce homelessness in the state.`\
 https://nytimes.com/2024/03/20/us/california-prop-1-homelessness.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/20/us/politics/texas-law-states-immigration-migrants
 **Condé Nast’s Owners Set to Reap a $1.4 Billion Windfall From Reddit**\
 `The Newhouse family, which controls the Advance media empire, made a 2006 investment of $10 million in the social site, which plans to go public on Thursday.`\
 https://nytimes.com/2024/03/20/business/media/reddit-ipo-conde-nast.html
-
-**What $8.5 Billion Can Buy: Biden Aims to Bolster Chip Manufacturing**\
-`The president hopes the money will kick-start semiconductor production in America, but that might take a lot more investment in the future.`\
-https://nytimes.com/2024/03/20/us/politics/biden-chip-manufacturing.html
-
-**Chicago Tax Referendum and Prosecutor Primary Are Too Close to Call**\
-`A proposal to raise the transfer tax on sales of high-value properties was trailing. Two Democrats were locked in a close Cook County prosecutor primary.`\
-https://nytimes.com/2024/03/20/us/chicago-elections-prosecutor-transfer-tax.html
 
