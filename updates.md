@@ -1,3 +1,7 @@
+**Civil Judgments Sting as Criminal Cases Slow**\
+`Civil cases are keeping the pressure on Donald Trump ahead of his four criminal trials.`\
+https://nytimes.com/2024/03/21/us/politics/trump-trial-civil-cases-bond.html
+
 **Three Popular Restaurants Opened Spinoffs. Are They Any Good?**\
 `Are they more “Better Call Saul” or “How I Met Your Father”?`\
 https://nytimes.com/2024/03/21/dining/three-popular-restaurants-opened-spinoffs-are-they-any-good.html
