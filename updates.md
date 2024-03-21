@@ -1,3 +1,7 @@
+**Robert L. Barry, 89, Diplomat Who Negotiated Pact With Soviets, Dies**\
+`He was the chief negotiator on a troop-inspections accord that American officials considered important in reducing East-West tensions near the end of the Cold War.`\
+https://nytimes.com/2024/03/21/us/robert-l-barry-dead.html
+
 **What to Watch This Weekend: A Rapid-Fire Sitcom**\
 `“Great News,” a gone-too-soon comedy on Netflix, descended from “30 Rock” and has a similar sensibility and jokes-per-minute rate.`\
 https://nytimes.com/2024/03/21/arts/television/great-news-netflix.html

@@ -1,3 +1,7 @@
+**Robert L. Barry, 89, Diplomat Who Negotiated Pact With Soviets, Dies**\
+`He was the chief negotiator on a troop-inspections accord that American officials considered important in reducing East-West tensions near the end of the Cold War.`\
+https://nytimes.com/2024/03/21/us/robert-l-barry-dead.html
+
 **What to Watch This Weekend: A Rapid-Fire Sitcom**\
 `“Great News,” a gone-too-soon comedy on Netflix, descended from “30 Rock” and has a similar sensibility and jokes-per-minute rate.`\
 https://nytimes.com/2024/03/21/arts/television/great-news-netflix.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-housing-plan
 **A Little-Known Way That Trump Could Raise Money to Pay His Legal Bills**\
 `The former president’s social media company is finally set to go public. He could borrow against the value of his stake in the company.`\
 https://nytimes.com/2024/03/21/business/trump-truth-social-merger.html
-
-**Israel’s Supreme Court asks authorities to hold off on the deportation of Gazan cancer patients.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/03/21/world/israel-hamas-war-gaza-news/israels-supreme-court-asks-authorities-to-hold-off-on-the-deportation-of-gazan-cancer-patients
 
