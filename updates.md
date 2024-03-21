@@ -1,3 +1,7 @@
+**Something That Can Be Spun**\
+`Joe Marquez’s theme is about my favorite type of puzzle.`\
+https://nytimes.com/2024/03/20/crosswords/daily-puzzle-2024-03-21.html
+
 **At the Met Opera, the Show Goes On After a Technical Mishap**\
 `The company put on a semi-staged version of Puccini’s “Turandot” at the last minute, after a backstage lift got jammed.`\
 https://nytimes.com/2024/03/20/arts/music/met-opera-turandot-technical-problem.html

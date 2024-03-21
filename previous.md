@@ -1,3 +1,7 @@
+**Something That Can Be Spun**\
+`Joe Marquez’s theme is about my favorite type of puzzle.`\
+https://nytimes.com/2024/03/20/crosswords/daily-puzzle-2024-03-21.html
+
 **At the Met Opera, the Show Goes On After a Technical Mishap**\
 `The company put on a semi-staged version of Puccini’s “Turandot” at the last minute, after a backstage lift got jammed.`\
 https://nytimes.com/2024/03/20/arts/music/met-opera-turandot-technical-problem.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/world/middleeast/israel-gaza-hamas-power-vacuum.h
 **The Potency of Trump’s ‘Lost Cause’ Mythmaking**\
 `Like the “Lost Cause” ideology, Donald Trump’s propagandistic mythology negates the truth.`\
 https://nytimes.com/2024/03/20/opinion/trump-lost-cause.html
-
-**National Security Adviser Makes Covert Trip to Kyiv**\
-`Jake Sullivan met with President Volodymyr Zelensky of Ukraine and his senior officials as additional U.S. aid continued to languish in the House.`\
-https://nytimes.com/2024/03/20/us/politics/jake-sullivan-ukraine.html
 
