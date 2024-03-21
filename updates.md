@@ -1,3 +1,7 @@
+**2-Year-Old Separated From His Parents Flees Haiti’s Violent Capital**\
+`The boy had been dropped off with relatives nearly three weeks ago and was airlifted back to his Florida home. He is part of a growing number of Americans trying to flee Haiti.`\
+https://nytimes.com/2024/03/21/world/americas/haiti-evacuation-florida-family.html
+
 **In New Zealand, Experiencing the Miracle of Flight Anew**\
 `The country's domestic airlines play a crucial role in connectivity. But for the casual flier, even the journey is captivating.`\
 https://nytimes.com/2024/03/21/world/australia/new-zealand-sounds-air-flying-domestic.html
