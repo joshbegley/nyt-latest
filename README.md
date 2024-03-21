@@ -14,8 +14,8 @@ https://nytimes.com/2024/03/21/opinion/senegal-sall-election.html
 `The E.U.’s plan to make Russia pay to arm Ukraine.`\
 https://nytimes.com/2024/03/21/briefing/eu-russia-ukraine-gaza-aid.html
 
-**Russia Targets Kyiv With Missile Attack**\
-`The extent of the damage was not immediately clear, but officials said that at least eight people had been injured and that buildings had been damaged.`\
+**Russia Targets Kyiv With Biggest Missile Attack in Weeks**\
+`The extent of the damage was not yet clear, but officials said at least 10 people had been injured and buildings had been damaged.`\
 https://nytimes.com/2024/03/21/world/europe/russian-missile-attack-kyiv.html
 
 **A Mexican Drug Cartel’s New Target? Seniors and Their Timeshares**\
