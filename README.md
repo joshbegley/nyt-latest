@@ -1,3 +1,7 @@
+**U.S. Park Service Says to Leave Your Cash at Home, but Some Object**\
+`Complaints have been mounting on social media, and now a group has filed a lawsuit, as the service has continued rolling out policies against accepting cash to enter federal parks.`\
+https://nytimes.com/2024/03/21/us/cashless-national-parks-lawsuit.html
+
 **Julie Robinson Belafonte, Dancer, Actress and Activist, Dies at 95**\
 `With the singer Harry Belafonte, she was one half of a celebrated (and sometimes denounced) interracial power couple who pressed the cause of civil rights in the 1960s`\
 https://nytimes.com/2024/03/21/arts/julie-belafonte-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/technology/reddit-stock-ipo-market.html
 **Luis Rubiales, Former Spanish Soccer Chief, Faces Arrest**\
 `Mr. Rubiales, who resigned after kissing a player at the Women’s World Cup, is a focus of Spanish investigators looking into accusations of corruption and money laundering.`\
 https://nytimes.com/2024/03/21/world/europe/rubiales-soccer-arrest-spain-super-cup.html
-
-**This Is Not Princess Catherine**\
-`A royal look-alike clears the air on a recent conspiracy theory.`\
-https://nytimes.com/2024/03/21/style/kate-middleton-lookalike-heidi-agan.html
 
