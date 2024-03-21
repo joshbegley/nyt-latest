@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/03/21/us/trump-biden-election
 
 **In Nevada and Arizona, Biden focused on Latino voters.**\
 `By Zolan Kanno-Youngs, Meg Felling and Rebecca Suner`\
-https://nytimes.com/2024/03/21/us/politics/in-nevada-and-arizona-biden-focused-on-latino-voters.html
+https://nytimes.com/live/2024/03/21/us/trump-biden-election/in-nevada-and-arizona-biden-focused-on-latino-voters
 
 **Surgeons Transplant Pig Kidney Into a Patient, a Medical Milestone**\
 `The man continues to improve, doctors said. Organs from genetically engineered pigs one day may make dialysis obsolete.`\
