@@ -1,3 +1,7 @@
+**‘3 Body Problem’ Episode 2 Recap: The Warning**\
+`Fans of spooky technology will have much to enjoy in this episode.`\
+https://nytimes.com/2024/03/21/arts/television/3-body-problem-episode-2-recap.html
+
 **Tax Dispute Becomes Political as India Freezes Opposition’s Accounts**\
 `Just weeks before pivotal elections, the authorities have blocked access to several of the Indian National Congress’s main bank accounts, the party said.`\
 https://nytimes.com/2024/03/21/world/asia/india-national-congress-bank-accounts-bjp.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/us/the-lone-volcano-in-californias-central-valley
 **Britain’s ‘Pie King’ Comes to Paris**\
 `Plus: a colorful hotel in Finland, hand-painted folding screens and more recommendations from T Magazine.`\
 https://nytimes.com/2024/03/21/t-magazine/calum-franklin-public-house-paris.html
-
-**Bank of England Holds Rates After U.K. Inflation Slows**\
-`Britain’s central bank held its key interest rate at the highest level in 16 years for the fifth straight meeting.`\
-https://nytimes.com/2024/03/21/business/bank-of-england-rates-inflation.html
 

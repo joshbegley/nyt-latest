@@ -1,3 +1,7 @@
+**‘3 Body Problem’ Episode 2 Recap: The Warning**\
+`Fans of spooky technology will have much to enjoy in this episode.`\
+https://nytimes.com/2024/03/21/arts/television/3-body-problem-episode-2-recap.html
+
 **Tax Dispute Becomes Political as India Freezes Opposition’s Accounts**\
 `Just weeks before pivotal elections, the authorities have blocked access to several of the Indian National Congress’s main bank accounts, the party said.`\
 https://nytimes.com/2024/03/21/world/asia/india-national-congress-bank-accounts-bjp.html
