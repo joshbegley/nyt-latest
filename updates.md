@@ -1,3 +1,11 @@
+**In Nevada and Arizona, Biden focused on Latino voters.**\
+`By Zolan Kanno-Youngs, Meg Felling and Rebecca Suner`\
+https://nytimes.com/live/2024/03/21/us/trump-biden-election/in-nevada-and-arizona-biden-focused-on-latino-voters
+
+**Israel Says It Has Killed Dozens of ‘Terrorists’ in Hospital Raid**\
+`The Israeli military’s raid on Al-Shifa Hospital in northern Gaza, the largest in the territory, has grown into one of the longest of the war.`\
+https://nytimes.com/2024/03/21/world/middleeast/israel-al-shifa-hospital-raid-gaza.html
+
 **21pol-swiper**\
 `Election Updates: Biden’s campaign has a nearly $40 million advantage over the Trump campaign, filings show.`\
 https://nytimes.com/live/2024/03/21/us/trump-biden-election

@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/03/21/us/trump-biden-election
 
 **In Nevada and Arizona, Biden focused on Latino voters.**\
 `By Zolan Kanno-Youngs, Meg Felling and Rebecca Suner`\
-https://nytimes.com/2024/03/21/us/politics/in-nevada-and-arizona-biden-focused-on-latino-voters.html
+https://nytimes.com/live/2024/03/21/us/trump-biden-election/in-nevada-and-arizona-biden-focused-on-latino-voters
 
 **Surgeons Transplant Pig Kidney Into a Patient, a Medical Milestone**\
 `The man continues to improve, doctors said. Organs from genetically engineered pigs one day may make dialysis obsolete.`\
@@ -35,6 +35,6 @@ https://nytimes.com/2024/03/21/business/bank-of-england-rates-inflation.html
 https://nytimes.com/2024/03/21/us/virginia-wv-wildfires.html
 
 **Israel Says It Has Killed Dozens of ‘Terrorists’ in Hospital Raid**\
-`The Israeli military’s raid on Al-Shifa Hospital in northern Gaza, the largest in the territory, has stretched into a fourth day.`\
+`The Israeli military’s raid on Al-Shifa Hospital in northern Gaza, the largest in the territory, has grown into one of the longest of the war.`\
 https://nytimes.com/2024/03/21/world/middleeast/israel-al-shifa-hospital-raid-gaza.html
 
