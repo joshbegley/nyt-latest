@@ -1,3 +1,11 @@
+**8 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/03/21/books/review/8-new-books-we-recommend-this-week.html
+
+**Biden’s Housing Prescription is Far Short of a Cure**\
+`To build 4 million homes, the government will have to offer bigger ideas than just incentives.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-housing-plan
+
 **A Little-Known Way That Trump Could Raise Money to Pay His Legal Bills**\
 `The former president’s social media company is finally set to go public. Mr. Trump could borrow against the value of his stake in the company.`\
 https://nytimes.com/2024/03/21/business/trump-truth-social-merger.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/03/21/us/politics/trump-white-house-employe
 **U.S. Efforts to Force the Chinese Owner to Sell TikTok**\
 `Readers discuss a bill that has passed in the House. Also: Jewish voters; meddling in primaries; kids selling candy on the subway.`\
 https://nytimes.com/2024/03/21/opinion/tiktok-china.html
-
-**The Many Challenges Facing Apple**\
-`The Justice Department’s lawsuit against Apple is the latest in a series of regulatory actions that are hitting the tech giant at the same time.`\
-https://nytimes.com/2024/03/21/technology/apple-regulators-world.html
-
-**Suicide Bombing in Afghanistan Targets Taliban Heartland**\
-`The blast targeted a bank in Kandahar, where Taliban members had gathered to collect their salaries, witnesses said.`\
-https://nytimes.com/2024/03/21/world/asia/afghanistan-suicide-bombing.html
 
