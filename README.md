@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`The E.U.’s plan to make Russia pay to arm Ukraine.`\
+https://nytimes.com/2024/03/21/briefing/eu-russia-ukraine-gaza-aid.html
+
 **Russia Targets Kyiv With Missile Attack**\
 `The extent of the damage was not immediately clear, but officials said that at least eight people had been injured and that buildings had been damaged.`\
 https://nytimes.com/2024/03/21/world/europe/russian-missile-attack-kyiv.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/20/arts/music/met-opera-turandot-technical-problem.h
 **M. Emmet Walsh, Character Actor Who Always Stood Out, Dies at 88**\
 `His roles in films like “Knives Out” and “Blade Runner” were sometimes big, sometimes small. But he invariably made a strong impression.`\
 https://nytimes.com/2024/03/20/movies/m-emmet-walsh-dead.html
-
-**Corrections: March 21, 2024**\
-`Corrections that appeared in print on Thursday, March 21, 2024.`\
-https://nytimes.com/2024/03/20/pageoneplus/corrections-march-21-2024.html
 
