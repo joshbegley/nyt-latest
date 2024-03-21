@@ -1,3 +1,11 @@
+**Tax Dispute Becomes Political as India Freezes Opposition’s Accounts**\
+`Just weeks before pivotal elections, the authorities have blocked access to several of the Indian National Congress’s main bank accounts, the party said.`\
+https://nytimes.com/2024/03/21/world/asia/india-national-congress-bank-accounts-bjp.html
+
+**A Director Brings TikTok’s Chaotic Vibe to the Big Screen**\
+`Radu Jude’s films are messy mash-ups of art, literature, advertising and social media, with some dirty jokes thrown in.`\
+https://nytimes.com/2024/03/21/movies/radu-jude-do-not-expect-too-much-from-the-end-of-the-world.html
+
 **21pol-swiper**\
 `Election Updates: Biden’s campaign has a nearly $40 million advantage over the Trump campaign, filings show.`\
 https://nytimes.com/live/2024/03/21/us/trump-biden-election
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/21/t-magazine/calum-franklin-public-house-paris.html
 **Bank of England Holds Rates After U.K. Inflation Slows**\
 `Britain’s central bank held its key interest rate at the highest level in 16 years for the fifth straight meeting.`\
 https://nytimes.com/2024/03/21/business/bank-of-england-rates-inflation.html
-
-**High Winds Fuel Wildfires in Virginia and Other Mid-Atlantic States**\
-`Thousands of acres burned from Maryland to North Carolina, and more fire-friendly conditions were expected on Thursday ahead of soaking rains over the weekend.`\
-https://nytimes.com/2024/03/21/us/virginia-wv-wildfires.html
-
-**Israel’s Raid on Al-Shifa Hospital Grows Into One of the Longest of Gaza War**\
-`The Israeli military’s attack on the Shifa complex stretched into a fourth day. The military said it had killed dozens of people it described as terrorists.`\
-https://nytimes.com/2024/03/21/world/middleeast/israel-al-shifa-hospital-raid-gaza.html
 
