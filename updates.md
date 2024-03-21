@@ -1,3 +1,7 @@
+**Man Accused of Leading ‘Thieves in Law’ Pleads Guilty to Racketeering**\
+`Viktor Zelinger, a Ukrainian native, admitted to running an illegal gambling club in Brooklyn and threatening debtors.`\
+https://nytimes.com/2024/03/21/nyregion/brooklyn-thieves-in-law.html
+
 **International Elections 2024: What You Need to Know**\
 `With disinformation rampant and dissent under attack, voters in more than 80 countries will go to the polls this year. When the tallying is done, the world might look a lot different,`\
 https://nytimes.com/interactive/2024/world/international-elections-2024.html
