@@ -1,3 +1,7 @@
+**Israel’s Supreme Court asks authorities to hold off on the deportation of Gazan cancer patients.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/03/21/world/israel-hamas-war-gaza-news/israels-supreme-court-asks-authorities-to-hold-off-on-the-deportation-of-gazan-cancer-patients
+
 **U.S. Park Service Says to Leave Your Cash at Home, but Some Object**\
 `Complaints have been mounting on social media, and now a group has filed a lawsuit, as the service has continued rolling out policies against accepting cash to enter federal parks.`\
 https://nytimes.com/2024/03/21/us/cashless-national-parks-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/world/asia/afghanistan-suicide-bombing.html
 **Reddit Opens Up 38%, as Shares Begin Trading**\
 `The social media company’s debut on the New York Stock Exchange was one of the first major tech initial public offerings of the year.`\
 https://nytimes.com/2024/03/21/technology/reddit-stock-ipo-market.html
-
-**Luis Rubiales, Former Spanish Soccer Chief, Faces Arrest**\
-`Mr. Rubiales, who resigned after kissing a player at the Women’s World Cup, is a focus of Spanish investigators looking into accusations of corruption and money laundering.`\
-https://nytimes.com/2024/03/21/world/europe/rubiales-soccer-arrest-spain-super-cup.html
 
