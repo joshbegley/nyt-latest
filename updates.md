@@ -1,3 +1,7 @@
+**Man Pleads Guilty in ‘Killing Spree’ of Bald Eagles in Montana**\
+`Travis John Branson of Washington State was indicted last year for illegally hunting and selling the birds. A co-defendant is still on the run.`\
+https://nytimes.com/2024/03/20/us/washington-eagles-black-market.html
+
 **Something That Can Be Spun**\
 `Joe Marquez’s theme is about my favorite type of puzzle.`\
 https://nytimes.com/2024/03/20/crosswords/daily-puzzle-2024-03-21.html
