@@ -1,3 +1,11 @@
+**Climate Change Made an Early Heat Wave in West Africa 10 Times as Likely**\
+`Temperatures in the region rose above 40 degrees Celsius in February, with humidity pushing the heat index even higher.`\
+https://nytimes.com/2024/03/21/climate/climate-change-heat-wave-west-africa.html
+
+**Word of the Day: amorphous**\
+`This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/21/learning/word-of-the-day-amorphous.html
+
 **My Country Is Witnessing a Messy, Buffoonish End of Rule**\
 `In Senegal, the worst could be still to come.`\
 https://nytimes.com/2024/03/21/opinion/senegal-sall-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/podcasts/serial-season-four-guantanamo.html
 **Man Pleads Guilty in ‘Killing Spree’ of Bald Eagles in Montana**\
 `Travis John Branson of Washington State was indicted last year for illegally hunting and selling the birds. A co-defendant is still on the run.`\
 https://nytimes.com/2024/03/20/us/washington-eagles-black-market.html
-
-**Something That Can Be Spun**\
-`Joe Marquez’s theme is about my favorite type of puzzle.`\
-https://nytimes.com/2024/03/20/crosswords/daily-puzzle-2024-03-21.html
-
-**At the Met Opera, the Show Goes On After a Technical Mishap**\
-`The company put on a semi-staged version of Puccini’s “Turandot” at the last minute, after a backstage lift got jammed.`\
-https://nytimes.com/2024/03/20/arts/music/met-opera-turandot-technical-problem.html
 

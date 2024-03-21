@@ -1,3 +1,11 @@
+**Climate Change Made an Early Heat Wave in West Africa 10 Times as Likely**\
+`Temperatures in the region rose above 40 degrees Celsius in February, with humidity pushing the heat index even higher.`\
+https://nytimes.com/2024/03/21/climate/climate-change-heat-wave-west-africa.html
+
+**Word of the Day: amorphous**\
+`This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/21/learning/word-of-the-day-amorphous.html
+
 **My Country Is Witnessing a Messy, Buffoonish End of Rule**\
 `In Senegal, the worst could be still to come.`\
 https://nytimes.com/2024/03/21/opinion/senegal-sall-election.html
