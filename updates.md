@@ -1,3 +1,7 @@
+**Leaders Release $1.2 Trillion Spending Bill as Congress Races to Avert Shutdown**\
+`The 1,012-page bipartisan bill emerged one day before the federal funding deadline, and it was not clear whether it could clear Congress in time to avoid a partial shutdown after midnight on Friday.`\
+https://nytimes.com/2024/03/21/us/politics/congress-spending-bill-shutdown.html
+
 **U.S. Sues Apple, Accusing It of Maintaining an iPhone Monopoly**\
 `The lawsuit caps years of regulatory scrutiny of Apple’s wildly popular suite of devices and services, which have fueled its growth into a nearly $3 trillion public company.`\
 https://nytimes.com/2024/03/21/technology/apple-doj-lawsuit-antitrust.html
