@@ -1,3 +1,7 @@
+**Biden Widens His Financial Lead Over Trump**\
+`New federal filings on Wednesday showed the president’s campaign with a nearly $40 million advantage over the Trump campaign at the end of last month.`\
+https://nytimes.com/2024/03/20/us/politics/trump-biden-campaign-finance.html
+
 **M. Emmet Walsh, Character Actor Who Always Stood Out, Dies at 88**\
 `His roles in films like “Knives Out” and “Blade Runner” were sometimes big, sometimes small. But he invariably made a strong impression.`\
 https://nytimes.com/2024/03/20/movies/m-emmet-walsh-dead.html
