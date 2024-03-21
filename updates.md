@@ -1,3 +1,23 @@
+**Large Grocers Took Advantage of Pandemic Supply Chain Disruptions, F.T.C. Finds**\
+`A report found that large firms pressured suppliers to favor them over competitors. It also concluded that some retailers “seem to have used rising costs as an opportunity to further hike prices.”`\
+https://nytimes.com/2024/03/21/us/politics/grocery-prices-pandemic-ftc.html
+
+**The Psychedelic Evangelist**\
+`A Johns Hopkins scientist was known for rigorous studies of psychedelics. Was he a true believer?`\
+https://nytimes.com/2024/03/21/health/psychedelics-roland-griffiths-johns-hopkins.html
+
+**Elegant Skillet Chicken, Effortless Eggs and ‘Crazy Water’ Fish**\
+`Recipes for when you want fancy-Friday vibes but have meh-Monday energy.`\
+https://nytimes.com/2024/03/21/dining/elegant-skillet-chicken-effortless-eggs-and-crazy-water-fish.html
+
+**With an Eye on War at Home, a Ukrainian Conductor Arrives at the Met**\
+`Oksana Lyniv, who is leading “Turandot” at the Metropolitan Opera, has used her platform to criticize Russia and promote Ukrainian culture.`\
+https://nytimes.com/2024/03/21/arts/music/oksana-lyniv-metropolitan-opera-ukraine.html
+
+**Leaders Release $1.2 Trillion Spending Bill as Congress Races to Avert Shutdown**\
+`The bipartisan bill emerged one day before the federal funding deadline, and it was not clear whether Congress could complete it in time to avoid a partial shutdown after midnight on Friday.`\
+https://nytimes.com/2024/03/21/us/politics/congress-spending-bill-shutdown.html
+
 **Read the Lawsuit Against Apple**\
 `The suit is the federal government’s most significant challenge to the reach and influence of the company.`\
 https://nytimes.com/interactive/2024/03/21/technology/apple-lawsuit.html
