@@ -1,3 +1,11 @@
+**A Mexican Drug Cartel’s New Target? Seniors and Their Timeshares**\
+`One of Mexico’s most powerful criminal groups, Jalisco New Generation, runs call centers that offer to buy retirees’ vacation properties. Then, they empty their victims’ bank accounts.`\
+https://nytimes.com/2024/03/21/world/americas/mexico-timeshare-fraud-cartel.html
+
+**Why the Panama Canal Didn’t Lose Money When Ship Crossings Fell**\
+`A water shortage forced officials to reduce traffic, but higher fees increased revenue.`\
+https://nytimes.com/2024/03/21/business/panama-canal-water-revenue.html
+
 **Biden Widens His Financial Lead Over Trump**\
 `New federal filings on Wednesday showed the president’s campaign with a nearly $40 million advantage over the Trump campaign at the end of last month.`\
 https://nytimes.com/2024/03/20/us/politics/trump-biden-campaign-finance.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/20/pageoneplus/corrections-march-21-2024.html
 **Quotation of the Day: $700,000 Prize Awarded for Randomness Studies**\
 `Quotation of the Day for Thursday, March 21, 2024.`\
 https://nytimes.com/2024/03/20/pageoneplus/quotation-of-the-day-700000-prize-awarded-for-randomness-studies.html
-
-**Once a Sure Thing, Newsom’s Homelessness Measure Barely Passes**\
-`The measure known as Proposition 1, which includes $6.38 billion for treatment and housing, was a top priority for Gov. Gavin Newsom to reduce homelessness in the state.`\
-https://nytimes.com/2024/03/20/us/california-prop-1-homelessness.html
-
-**Biden Focuses on Latino Voters in Nevada and Arizona**\
-`Zolan Kanno-Youngs, a White House correspondent for The New York Times, traveled with President Biden to Nevada, where he tried to gain support from Hispanic voters.`\
-https://nytimes.com/video/us/politics/100000009372341/biden-latino-voters.html
 
