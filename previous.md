@@ -1,3 +1,7 @@
+**Suicide Bombing in Afghanistan Targets Taliban Heartland**\
+`The blast targeted a bank in Kandahar, where Taliban members had gathered to collect their salaries, witnesses said.`\
+https://nytimes.com/2024/03/21/world/asia/afghanistan-suicide-bombing.html
+
 **Reddit Opens Up 38%, as Shares Begin Trading**\
 `The social media company’s debut on the New York Stock Exchange was one of the first major tech initial public offerings of the year.`\
 https://nytimes.com/2024/03/21/technology/reddit-stock-ipo-market.html
@@ -32,9 +36,5 @@ https://nytimes.com/2024/03/21/us/california-care-court-mental-illness-homeless.
 
 **How Do You Become the U.K.’s Hottest New Band? The Old-Fashioned Way.**\
 `The Last Dinner Party has rapidly built a following by meticulously planning its theatrical live shows, and ignoring viral fame.`\
-https://nytimes.com/2024/03/21/arts/music/uk-indie-rock-.html
-
-**Vaughan Gething Elected First Black Head of Government in Europe**\
-`The Zambian-born lawyer was elected as the country’s first minister by the Welsh Parliament on Wednesday making him the first Black person to lead a nation in Europe.`\
-https://nytimes.com/video/world/europe/100000009374440/vaughan-gething-wales-first-minister.html
+https://nytimes.com/2024/03/21/arts/music/uk-indie-rock-feminism.html
 

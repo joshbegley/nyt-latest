@@ -1,3 +1,11 @@
+**Suicide Bombing in Afghanistan Targets Taliban Heartland**\
+`The blast targeted a bank in Kandahar, where Taliban members had gathered to collect their salaries, witnesses said.`\
+https://nytimes.com/2024/03/21/world/asia/afghanistan-suicide-bombing.html
+
+**How Do You Become the U.K.’s Hottest New Band? The Old-Fashioned Way.**\
+`The Last Dinner Party has rapidly built a following by meticulously planning its theatrical live shows, and ignoring viral fame.`\
+https://nytimes.com/2024/03/21/arts/music/uk-indie-rock-feminism.html
+
 **Reddit Opens Up 38%, as Shares Begin Trading**\
 `The social media company’s debut on the New York Stock Exchange was one of the first major tech initial public offerings of the year.`\
 https://nytimes.com/2024/03/21/technology/reddit-stock-ipo-market.html
