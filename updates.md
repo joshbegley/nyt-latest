@@ -1,3 +1,7 @@
+**The Veggie Baby**\
+`Sweet potatoes with tahini butter, coconut saag and broccoli aligot are delicious at any age.`\
+https://nytimes.com/2024/03/21/dining/the-veggie-baby.html
+
 **Garland Accuses Apple of Violating Federal Antitrust Law**\
 `Attorney General Merrick B. Garland said that Apple has employed a strategy that relies on exclusionary anti-competitive conduct that hurts both consumers and developers.`\
 https://nytimes.com/video/us/100000009374404/apple-doj-lawsuit-antitrust.html
