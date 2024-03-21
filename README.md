@@ -1,3 +1,15 @@
+**Third Man Charged With Murder in Shooting at Super Bowl Rally**\
+`Nine people have been charged with crimes, including weapons violations, in connection to the shooting in Kansas City, Mo., last month.`\
+https://nytimes.com/2024/03/21/us/kansas-city-super-bowl-shooting-charges.html
+
+**A U.S. Lawsuit Accused Apple of Creating a Monopoly**\
+`Also, a man received a pig kidney in a medical milestone. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/03/21/briefing/justice-department-apple-lawsuit-pig-kidney-transplant.html
+
+**Menendez Won’t Run as Democrat but Leaves Door Open to Independent Bid**\
+`Senator Robert Menendez of New Jersey faces federal bribery charges. His trial is scheduled to begin in May.`\
+https://nytimes.com/2024/03/21/nyregion/robert-menendez-reelection.html
+
 **2-Year-Old Separated From His Parents Flees Haiti’s Violent Capital**\
 `The boy had been dropped off with relatives nearly three weeks ago and was airlifted back to his Florida home. He is part of a growing number of Americans trying to flee Haiti.`\
 https://nytimes.com/2024/03/21/world/americas/haiti-evacuation-florida-family.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/03/21/us/politics/trump-legal-bills-rnc.html
 **Are You an Undecided Voter? Do You Live in a Battleground State? We Want to Hear from You.**\
 `Most voters say their minds are already made up. But if yours isn’t, we want to hear your perspective.`\
 https://nytimes.com/article/undecided-voter-questions.html
-
-**Did You Come of Age in the Trump Era of Politics? We Want to Hear From You.**\
-`As the 2024 presidential election approaches, Times political reporters want to learn more about the experiences and perspectives of young voters. Share your story.`\
-https://nytimes.com/article/young-voters-questions.html
-
-**Friday Briefing: The U.S. Sues Apple**\
-`Also, India’s opposition faces troubles and tips for a healthier relationship with your phone.`\
-https://nytimes.com/2024/03/21/world/asia/us-apple-monopoly-india-arrest-asia.html
-
-**No Labels, No Candidate: Rejections Pile Up as Time Runs Short**\
-`The group’s quest to find a candidate to take on President Biden and Donald Trump has members frustrated.`\
-https://nytimes.com/2024/03/21/us/politics/no-labels-candidate.html
 
