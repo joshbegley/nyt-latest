@@ -32,7 +32,7 @@ https://nytimes.com/2024/03/21/us/california-care-court-mental-illness-homeless.
 
 **How Do You Become the U.K.’s Hottest New Band? The Old-Fashioned Way.**\
 `The Last Dinner Party has rapidly built a following by meticulously planning its theatrical live shows, and ignoring viral fame.`\
-https://nytimes.com/2024/03/21/arts/music/uk-indie-rock-.html
+https://nytimes.com/2024/03/21/arts/music/uk-indie-rock-feminism.html
 
 **Vaughan Gething Elected First Black Head of Government in Europe**\
 `The Zambian-born lawyer was elected as the country’s first minister by the Welsh Parliament on Wednesday making him the first Black person to lead a nation in Europe.`\
