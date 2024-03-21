@@ -1,3 +1,7 @@
+**Tired of Streaming? Free Blockbuster Libraries Offer an Alternative.**\
+`The neighborhood lending libraries have popped up around North America, offering a nostalgic return to DVDs.`\
+https://nytimes.com/2024/03/21/arts/free-blockbuster-dvd-movies-box.html
+
 **The Lone Volcano in California’s Central Valley**\
 `Often called “the world’s smallest mountain range,” the Sutter Buttes are an unlikely and beloved landmark in one of the flattest parts of the state.`\
 https://nytimes.com/2024/03/21/us/the-lone-volcano-in-californias-central-valley.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/21/movies/riddle-of-fire-review-tiny-terrors.html
 **‘Limbo’ Review: Pensive in the Outback**\
 `Long on atmosphere and short on plot, this stylish Australian noir pulls through thanks to a haunted performance by Simon Baker.`\
 https://nytimes.com/2024/03/21/movies/limbo-review.html
-
-**‘Femme’ Review: Bad Lovers**\
-`In this white-knuckle thriller set in London, a drag performer seduces his attacker, an intensely closeted hustler played by George MacKay.`\
-https://nytimes.com/2024/03/21/movies/femme-review-bad-lovers.html
 

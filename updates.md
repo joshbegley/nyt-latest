@@ -1,3 +1,7 @@
+**Tired of Streaming? Free Blockbuster Libraries Offer an Alternative.**\
+`The neighborhood lending libraries have popped up around North America, offering a nostalgic return to DVDs.`\
+https://nytimes.com/2024/03/21/arts/free-blockbuster-dvd-movies-box.html
+
 **The Lone Volcano in California’s Central Valley**\
 `Often called “the world’s smallest mountain range,” the Sutter Buttes are an unlikely and beloved landmark in one of the flattest parts of the state.`\
 https://nytimes.com/2024/03/21/us/the-lone-volcano-in-californias-central-valley.html
