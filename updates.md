@@ -1,3 +1,11 @@
+**Blinken will hold high-level meetings in Cairo ahead of another visit to Israel.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/03/21/world/israel-hamas-war-gaza-news/blinken-will-hold-high-level-meetings-in-cairo-ahead-of-another-visit-to-israel
+
+**Blinken Describes New U.S. Push at the U.N. for Gaza Cease-Fire**\
+`In Saudi Arabia, the secretary of state described a U.S. draft resolution at the U.N. Security Council calling for “an immediate cease-fire tied to the release of hostages” in Gaza.`\
+https://nytimes.com/2024/03/21/world/middleeast/blinken-un-cease-fire.html
+
 **His Voice Can Stop You in Your Tracks**\
 `Loren Kramar wowed the fashion set with a recent performance. Now he’s taking his act mainstream.`\
 https://nytimes.com/2024/03/21/style/loren-kramar-fashion-singer-glovemaker.html

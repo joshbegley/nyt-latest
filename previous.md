@@ -1,3 +1,11 @@
+**Blinken will hold high-level meetings in Cairo ahead of another visit to Israel.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/03/21/world/israel-hamas-war-gaza-news/blinken-will-hold-high-level-meetings-in-cairo-ahead-of-another-visit-to-israel
+
+**Blinken Describes New U.S. Push at the U.N. for Gaza Cease-Fire**\
+`In Saudi Arabia, the secretary of state described a U.S. draft resolution at the U.N. Security Council calling for “an immediate cease-fire tied to the release of hostages” in Gaza.`\
+https://nytimes.com/2024/03/21/world/middleeast/blinken-un-cease-fire.html
+
 **As the Basketball Games Begin, the N.C.A.A.’s Model Fractures**\
 `This weekend, college basketball tournaments will unfurl before millions of viewers and against a backdrop of seismic change.`\
 https://nytimes.com/2024/03/21/insider/ncaa-student-athletes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/21/nyregion/congestion-pricing-nyc.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/03/21/crosswords/spelling-bee-forum.html
-
-**One of Last Survivors of Pearl Harbor Attack Dies at 102**\
-`Richard C. Higgins was stationed at the Hawaiian naval base as a radioman on the day of the Japanese attack, which pulled the U.S. into World War II.`\
-https://nytimes.com/2024/03/21/us/richard-higgins-dead.html
-
-**Jimmy Kimmel Suggests Trump Take a Sip of His Own Medicine**\
-`“If Donald Trump wants immunity, he should drink bleach like he told us to do when we wanted immunity,” Kimmel said.`\
-https://nytimes.com/2024/03/21/arts/television/jimmy-kimmel-trump-immunity.html
 
