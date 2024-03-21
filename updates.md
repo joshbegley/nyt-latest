@@ -1,5 +1,9 @@
 **His Voice Can Stop You in Your Tracks**\
 `Loren Kramar wowed the fashion set with a recent performance. Now he’s taking his act mainstream.`\
+https://nytimes.com/2024/03/21/style/singer-musician-fashion.html
+
+**His Voice Can Stop You in Your Tracks**\
+`Loren Kramar wowed the fashion set with a recent performance. Now he’s taking his act mainstream.`\
 https://nytimes.com/2024/03/21/style/loren-kramar-fashion-singer-glovemaker.html
 
 **As the Basketball Games Begin, the N.C.A.A.’s Model Fractures**\
