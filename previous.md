@@ -1,3 +1,7 @@
+**Johnson Says He Will Invite Netanyahu to Address Congress**\
+`Senator Chuck Schumer, the majority leader, also said he would support an address by the Israeli prime minister in front of the entire Congress.`\
+https://nytimes.com/2024/03/21/world/middleeast/johnson-netanyahu-schumer.html
+
 **What Students Are Saying About Bullying Today**\
 `Teenagers tell us what it’s like to navigate the social world in the age of smartphones and social media.`\
 https://nytimes.com/2024/03/21/learning/what-students-are-saying-about-bullying-today.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/21/world/israel-hamas-war-gaza-news/israels-sup
 **U.S. Park Service Says to Leave Your Cash at Home, but Some Object**\
 `Complaints have been mounting on social media, and now a group has filed a lawsuit, as the service has continued rolling out policies against accepting cash to enter federal parks.`\
 https://nytimes.com/2024/03/21/us/cashless-national-parks-lawsuit.html
-
-**Julie Robinson Belafonte, Dancer, Actress and Activist, Dies at 95**\
-`With the singer Harry Belafonte, she was one half of a celebrated (and sometimes denounced) interracial power couple who pressed the cause of civil rights in the 1960s`\
-https://nytimes.com/2024/03/21/arts/julie-belafonte-dead.html
 
