@@ -1,3 +1,11 @@
+**U.S. Searching for a Way to Keep Troops in Niger**\
+`A top Pentagon official said the United States was “seeking clarification” after the ruling junta decided to revoke a military cooperation deal.`\
+https://nytimes.com/2024/03/21/us/politics/niger-us-troops-coup.html
+
+**Menendez Says He Won’t Run in Democratic Primary**\
+`Senator Robert Menendez of New Jersey, who is facing federal bribery charges, announced he would not run for re-election as a Democrat.`\
+https://nytimes.com/video/us/elections/100000009375675/robert-menendez-new-jersey-reelection.html
+
 **Top Adviser to Mayor Adams Is Accused in a Lawsuit of Sexual Harassment**\
 `A New York City police sergeant said she was demoted and later quit after she rebuffed the advances by Timothy Pearson, whose conduct has already drawn scrutiny.`\
 https://nytimes.com/2024/03/21/nyregion/timothy-pearson-sexual-harassment-lawsuit.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/03/21/us/kansas-city-super-bowl-shooting-charges.html
 **A U.S. Lawsuit Accused Apple of Creating a Monopoly**\
 `Also, a man received a pig kidney in a medical milestone. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/03/21/briefing/justice-department-apple-lawsuit-pig-kidney-transplant.html
-
-**Menendez Won’t Run as Democrat but Leaves Door Open to Independent Bid**\
-`Senator Robert Menendez of New Jersey faces federal bribery charges. His trial is scheduled to begin in May.`\
-https://nytimes.com/2024/03/21/nyregion/robert-menendez-reelection.html
-
-**2-Year-Old Separated From His Parents Flees Haiti’s Violent Capital**\
-`The boy had been dropped off with relatives nearly three weeks ago and was airlifted back to his Florida home. He is part of a growing number of Americans trying to flee Haiti.`\
-https://nytimes.com/2024/03/21/world/americas/haiti-evacuation-florida-family.html
 
