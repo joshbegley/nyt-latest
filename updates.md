@@ -1,3 +1,11 @@
+**Prehistoric Amphibian Ancestor Is Named for Kermit the Frog**\
+`The species seemed to have bug eyes and a smile, so a team of researchers named it Kermitops gratus in honor of the banjo-playing Muppet.`\
+https://nytimes.com/2024/03/21/science/kermitops-amphibian-kermit-frog-texas.html
+
+**Killing of Teen in Front of Her Twin Sister Stuns Brooklyn Neighborhood**\
+`Samyia Spain, 19, was fatally stabbed outside a Park Slope deli. She and her twin were attacked by a man who had been trying to flirt with her, the police said.`\
+https://nytimes.com/2024/03/21/nyregion/brooklyn-twin-killing.html
+
 **U.S. Searching for a Way to Keep Troops in Niger**\
 `A top Pentagon official said the United States was “seeking clarification” after the ruling junta decided to revoke a military cooperation deal.`\
 https://nytimes.com/2024/03/21/us/politics/niger-us-troops-coup.html
