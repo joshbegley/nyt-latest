@@ -1,3 +1,7 @@
+**The Many Challenges Facing Apple**\
+`The Justice Department’s lawsuit against Apple is the latest in a series of regulatory actions that are hitting the tech giant at the same time.`\
+https://nytimes.com/2024/03/21/technology/apple-regulators-world.html
+
 **Suicide Bombing in Afghanistan Targets Taliban Heartland**\
 `The blast targeted a bank in Kandahar, where Taliban members had gathered to collect their salaries, witnesses said.`\
 https://nytimes.com/2024/03/21/world/asia/afghanistan-suicide-bombing.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/19/opinion/thepoint/apple-antitrust-lawsuit-iph
 **New California Court for the Mentally Ill Tests a State’s Liberal Values**\
 `To confront the crises of homelessness and mental illness, California has passed new laws that critics say could violate the civil liberties of those suffering on the streets. Some families welcome the new measures.`\
 https://nytimes.com/2024/03/21/us/california-care-court-mental-illness-homeless.html
-
-**How Do You Become the U.K.’s Hottest New Band? The Old-Fashioned Way.**\
-`The Last Dinner Party has rapidly built a following by meticulously planning its theatrical live shows, and ignoring viral fame.`\
-https://nytimes.com/2024/03/21/arts/music/uk-indie-rock-feminism.html
 

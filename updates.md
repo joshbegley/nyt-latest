@@ -1,3 +1,7 @@
+**The Many Challenges Facing Apple**\
+`The Justice Department’s lawsuit against Apple is the latest in a series of regulatory actions that are hitting the tech giant at the same time.`\
+https://nytimes.com/2024/03/21/technology/apple-regulators-world.html
+
 **Suicide Bombing in Afghanistan Targets Taliban Heartland**\
 `The blast targeted a bank in Kandahar, where Taliban members had gathered to collect their salaries, witnesses said.`\
 https://nytimes.com/2024/03/21/world/asia/afghanistan-suicide-bombing.html
