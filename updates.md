@@ -1,3 +1,7 @@
+**Bank of England Holds Rates After U.K. Inflation Slows**\
+`Britain’s central bank held its key interest rate at the highest level in 16 years for the fifth straight meeting.`\
+https://nytimes.com/2024/03/21/business/bank-of-england-rates-inflation.html
+
 **High Winds Fuel Wildfires in Virginia and Other Mid-Atlantic States**\
 `Thousands of acres burned from Maryland to North Carolina, and more fire-friendly conditions were expected on Thursday ahead of soaking rains over the weekend.`\
 https://nytimes.com/2024/03/21/us/virginia-wv-wildfires.html
