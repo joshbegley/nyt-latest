@@ -1,3 +1,11 @@
+**Trump Told Pence Certifying Election Would Be ‘Career Killer,’ Valet Testified**\
+`Former President Donald J. Trump warned his vice president against failing to overturn the 2020 election results, according to an account by the White House valet by his side on Jan. 6.`\
+https://nytimes.com/2024/03/21/us/trump-pence-jan-6-white-house-valet.html
+
+**Posing as a Pastor, Man Had at Least 10 Wives, Prosecutors Say**\
+`The Houston man was sentenced last week to three years in prison after he married a woman in Kentucky, violating the conditions of his probation on a bigamy charge, prosecutors said.`\
+https://nytimes.com/2024/03/21/us/pastor-bishop-houston-wives-bigamy.html
+
 **A White House Employee’s Testimony About Jan. 6, 2021**\
 `Read the document from the House Jan. 6 committee.`\
 https://nytimes.com/interactive/2024/03/21/us/politics/trump-white-house-employee-testimony-jan-6.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/21/style/kate-middleton-lookalike-heidi-agan.html
 **Film Club: ‘The Math Behind This $10 Chicken Over Rice’**\
 `What can a food cart in New York City tell us about the national problem of inflation?`\
 https://nytimes.com/2024/03/21/learning/film-club-the-math-behind-this-10-chicken-over-rice.html
-
-**The Veggie Baby**\
-`Sweet potatoes with tahini butter, coconut saag and broccoli aligot are delicious at any age.`\
-https://nytimes.com/2024/03/21/dining/the-veggie-baby.html
-
-**Garland Accuses Apple of Violating Federal Antitrust Law**\
-`Attorney General Merrick B. Garland said that Apple has employed a strategy that relies on exclusionary anti-competitive conduct that hurts both consumers and developers.`\
-https://nytimes.com/video/us/100000009374404/apple-doj-lawsuit-antitrust.html
 
