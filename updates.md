@@ -1,3 +1,11 @@
+**Are You an Undecided Voter? Do You Live in a Battleground State? We Want to Hear from You.**\
+`Most voters say their minds are already made up. But if yours isn’t, we want to hear your perspective.`\
+https://nytimes.com/article/undecided-voter-questions.html
+
+**Did You Come of Age in the Trump Era of Politics? We Want to Hear From You.**\
+`As the 2024 presidential election approaches, Times political reporters want to learn more about the experiences and perspectives of young voters. Share your story.`\
+https://nytimes.com/article/young-voters-questions.html
+
 **Friday Briefing: The U.S. Sues Apple**\
 `Also, India’s opposition faces troubles and tips for a healthier relationship with your phone.`\
 https://nytimes.com/2024/03/21/world/asia/us-apple-monopoly-india-arrest-asia.html
