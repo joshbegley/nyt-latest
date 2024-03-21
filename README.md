@@ -1,3 +1,7 @@
+**Top Adviser to Mayor Adams Is Accused in a Lawsuit of Sexual Harassment**\
+`A New York City police sergeant said she was demoted and later quit after she rebuffed the advances by Timothy Pearson, whose conduct has already drawn scrutiny.`\
+https://nytimes.com/2024/03/21/nyregion/timothy-pearson-sexual-harassment-lawsuit.html
+
 **Inside the Republican Attacks on Electric Vehicles**\
 `President Biden’s new rule cutting emissions from vehicle tailpipes has deepened a partisan battle over automotive technology.`\
 https://nytimes.com/2024/03/21/climate/republican-attacks-electric-vehicles.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/21/nyregion/robert-menendez-reelection.html
 **2-Year-Old Separated From His Parents Flees Haiti’s Violent Capital**\
 `The boy had been dropped off with relatives nearly three weeks ago and was airlifted back to his Florida home. He is part of a growing number of Americans trying to flee Haiti.`\
 https://nytimes.com/2024/03/21/world/americas/haiti-evacuation-florida-family.html
-
-**In New Zealand, Experiencing the Miracle of Flight Anew**\
-`The country's domestic airlines play a crucial role in connectivity. But for the casual flier, even the journey is captivating.`\
-https://nytimes.com/2024/03/21/world/australia/new-zealand-sounds-air-flying-domestic.html
 
