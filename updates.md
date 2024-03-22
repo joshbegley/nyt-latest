@@ -1,3 +1,7 @@
+**Russian Attack Leaves Over a Million in Ukraine Without Electricity**\
+`Power plants and a major hydroelectric dam were damaged in what Ukrainian officials said was one of the war’s largest assaults on energy infrastructure.`\
+https://nytimes.com/2024/03/22/world/europe/russia-ukraine-war-attack.html
+
 **How Peer Pressure Affects Voting**\
 `Why some voters of color no longer support the Democratic Party.`\
 https://nytimes.com/2024/03/22/briefing/2024-black-voting.html
