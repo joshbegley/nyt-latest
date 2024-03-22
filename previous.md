@@ -1,3 +1,23 @@
+**Stellantis to Recall 300,000 Dodges and Chryslers for Airbag Danger**\
+`The recall could affect owners of Dodge Chargers and Chrysler 300s. The airbags have the potential to explode and hurl shrapnel.`\
+https://nytimes.com/2024/03/22/automobiles/stellantis-airbag-recall.html
+
+**Will A.I. Take All Our Jobs? This Economist Suggests Maybe Not.**\
+`Even if A.I. outcompetes humans on everything, he says, we may still have jobs to do.`\
+https://nytimes.com/2024/03/22/opinion/ai-jobs-comparative-advantage.html
+
+**Should I Confront Our Former Minister Over His Plagiarized Sermons?**\
+`The magazine’s Ethicist columnist on grace, intellectual property, and pastorly accountability.`\
+https://nytimes.com/2024/03/22/magazine/minister-plagiarism-sermons-ethics.html
+
+**Flying Remains Very Safe, but Alarm Bells Are Sounding**\
+`Boeing and United still have work to do to restore trust.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/airline-boeing-flying-safety
+
+**‘3 Body Problem’ Episode 4 Recap: The Raid**\
+`An infiltration, a detainment and a fairy tale that takes a dark turn.`\
+https://nytimes.com/2024/03/22/arts/television/3-body-problem-episode-4-recap.html
+
 **General Motors Quits Sharing Driving Behavior With Data Brokers**\
 `G.M. had provided information about braking, acceleration and speed to LexisNexis Risk Solution and Verisk, firms that generated driver risk profiles for insurers.`\
 https://nytimes.com/2024/03/22/technology/gm-onstar-driver-data.html
@@ -17,24 +37,4 @@ https://nytimes.com/video/world/europe/100000009376587/princess-kate-royal-famil
 **Rose Dugdale, Heiress Turned Irish Independence Fighter, Dies at 82**\
 `Born into English wealth and Oxford-educated, she left it all behind for a life of radical and often violent activism.`\
 https://nytimes.com/2024/03/22/world/europe/rose-dugdale-dead.html
-
-**Read Catherine’s full statement.**\
-`The princess asked for privacy as she undergoes treatment, and said that “it has been an incredibly tough couple of months for our entire family.”`\
-https://nytimes.com/2024/03/22/world/europe/kate-middleton-cancer-statement.html
-
-**A timeline of the royal family’s tumultuous year.**\
-`By Derrick Bryson Taylor`\
-https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/a-timeline-of-the-royal-familys-tumultuous-year
-
-**Gunmen Open Fire at Arena Outside Moscow, Russian News Agencies Report**\
-`There are unconfirmed reports of dead and wounded after gunfire from several attackers. Videos show people wounded on the ground.`\
-https://nytimes.com/2024/03/22/world/europe/moscow-shooting.html
-
-**Speculation had swirled since the Princess of Wales apologized for an edited image a week ago.**\
-`By Mark Landler and Lauren Leatherby`\
-https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/speculation-had-swirled-since-the-princess-of-wales-apologized-for-an-edited-image-a-week-ago
-
-**Norman Miller, German Refugee Who Helped Arrest a Top Nazi, Dies at 99**\
-`At 15, he escaped to England. At 20, he enlisted in the British Army and identified a German minister — whose roles included deporting Dutch Jews to labor camps — as he tried to flee.`\
-https://nytimes.com/2024/03/22/world/europe/norman-miller-dead.html
 

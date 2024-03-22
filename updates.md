@@ -1,3 +1,23 @@
+**Stellantis to Recall 300,000 Dodges and Chryslers for Airbag Danger**\
+`The recall could affect owners of Dodge Chargers and Chrysler 300s. The airbags have the potential to explode and hurl shrapnel.`\
+https://nytimes.com/2024/03/22/automobiles/stellantis-airbag-recall.html
+
+**Will A.I. Take All Our Jobs? This Economist Suggests Maybe Not.**\
+`Even if A.I. outcompetes humans on everything, he says, we may still have jobs to do.`\
+https://nytimes.com/2024/03/22/opinion/ai-jobs-comparative-advantage.html
+
+**Should I Confront Our Former Minister Over His Plagiarized Sermons?**\
+`The magazine’s Ethicist columnist on grace, intellectual property, and pastorly accountability.`\
+https://nytimes.com/2024/03/22/magazine/minister-plagiarism-sermons-ethics.html
+
+**Flying Remains Very Safe, but Alarm Bells Are Sounding**\
+`Boeing and United still have work to do to restore trust.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/airline-boeing-flying-safety
+
+**‘3 Body Problem’ Episode 4 Recap: The Raid**\
+`An infiltration, a detainment and a fairy tale that takes a dark turn.`\
+https://nytimes.com/2024/03/22/arts/television/3-body-problem-episode-4-recap.html
+
 **General Motors Quits Sharing Driving Behavior With Data Brokers**\
 `G.M. had provided information about braking, acceleration and speed to LexisNexis Risk Solution and Verisk, firms that generated driver risk profiles for insurers.`\
 https://nytimes.com/2024/03/22/technology/gm-onstar-driver-data.html
