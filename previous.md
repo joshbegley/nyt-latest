@@ -1,3 +1,7 @@
+**Blinken arrives in Israel fresh from meetings with Saudi and Egyptian officials.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/03/22/world/israel-hamas-war-gaza-news/blinken-goes-to-israel-fresh-from-meetings-with-saudi-and-egyptian-officials
+
 **Public Selfies**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2024/03/22/learning/public-selfies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/arts/television/jimmy-kimmel-trump-bond.html
 **Friday Briefing**\
 `The U.S. sues Apple.`\
 https://nytimes.com/2024/03/22/briefing/apple-lawsuit-antitrust-germany-strike.html
-
-**Quotation of the Day: To Freaknik Revelers’ Chagrin, New Film Digs Up Old Tapes**\
-`Quotation of the Day for Friday, March 22, 2024.`\
-https://nytimes.com/2024/03/22/pageoneplus/quotation-of-the-day-to-freaknik-revelers-chagrin-new-film-digs-up-old-tapes.html
 
