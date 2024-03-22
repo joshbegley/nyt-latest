@@ -1,3 +1,7 @@
+**How to Talk to Children About Cancer**\
+`These conversations are among the more important and delicate discussions that parents can have, experts said.`\
+https://nytimes.com/2024/03/22/well/live/cancer-children-princess-kate.html
+
 **Will the Rotters Keep Hounding Kate?**\
 `Cancer is a very personal thing, but the 42-year-old princess is a public figure saddled with an insatiable press corps.`\
 https://nytimes.com/2024/03/22/opinion/kate-middleton-princess-cancer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/well/live/measles-cases-united-states.html
 **The Royal Family Doth Explain Too Much**\
 `Let the public yammer, and let Kate give health information as she feels comfortable.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/kate-middleton-royal-family
-
-**Transcript: Ezra Klein Interviews Caitlyn Collins**\
-`The March 22, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/03/22/podcasts/transcript-ezra-klein-interviews-caitlyn-collins.html
 
