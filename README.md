@@ -1,3 +1,11 @@
+**Lorrie Moore Is Among National Book Critics Circle Award Winners**\
+`The awards included a lifetime achievement honor given to Judy Blume.`\
+https://nytimes.com/2024/03/21/books/lorrie-moore-is-among-national-book-critics-circle-award-winners.html
+
+**Sixteen States Sue Biden Administration Over Gas Permit Pause**\
+`President Biden halted approvals for new exports of liquefied natural gas to study its effect on the climate, national security and the economy. Major oil- and gas-producing states are angry.`\
+https://nytimes.com/2024/03/21/climate/states-sue-biden-lng-pause.html
+
 **Owner and Manager of Grimaldi’s Pizzeria Are Charged With Wage Theft**\
 `The men bilked seven employees of more than $20,000 in wages, the Manhattan district attorney said. Workers sent desperate text messages.`\
 https://nytimes.com/2024/03/21/nyregion/grimaldis-pizzeria-wage-theft.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/03/21/us/carlee-russell-guilty-alabama-abduction-hoax.h
 **Goon Squad Hearings Reveal Culture of Violence in Mississippi Sheriff’s Office**\
 `Former deputies said they saw brutality as a way to rise in the ranks of a department that celebrated violence against people suspected of crimes.`\
 https://nytimes.com/2024/03/21/us/mississippi-goon-squad-mcalpin-sentence.html
-
-**They Failed in Their Quests to Buy Birkin Bags. So They Sued.**\
-`But fans of the famed Hermès accessory say that the exclusivity is the whole point.`\
-https://nytimes.com/2024/03/21/style/birkin-bag-hermes-lawsuit.html
-
-**Tennessee Makes A.I. an Outlaw to Protect Its Country Music and More**\
-`Gov. Bill Lee on Thursday signed a first-in-the-nation bill to prevent the use of artificial intelligence to copy a performer’s “voice.”`\
-https://nytimes.com/2024/03/21/us/politics/tennessee-ai-music-law.html
 
