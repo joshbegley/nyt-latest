@@ -1,6 +1,6 @@
-**Catherine, Princess of Wales, Has Cancer**\
+**Here’s the latest on the Princess of Wales.**\
 `The princess described the news as a “huge shock” and asked for “time, space and privacy” in a prerecorded video broadcast on the BBC on Friday evening.`\
-https://nytimes.com/2024/03/22/world/europe/princess-kate-middleton-cancer.html
+https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/princess-kate-middleton-cancer
 
 **7 Songs From My L.A. Record Haul**\
 `Hear tracks from Cass Elliot, the Pretenders, Sam Cooke and more from the Record Parlour in Hollywood.`\
