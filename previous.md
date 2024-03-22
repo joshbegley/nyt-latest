@@ -1,3 +1,27 @@
+**Public Selfies**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/03/22/learning/public-selfies.html
+
+**New York’s Marijuana Scorecard: 85 Legal Shops, 2,000 Illegal Ones**\
+`The lack of legal dispensaries and the overwhelming proliferation of illegal ones are the biggest concerns of the rollout three years after legalization.`\
+https://nytimes.com/2024/03/22/nyregion/nyc-cannabis-dispensary-legal.html
+
+**‘Stormy’ Reveals the Flawed Feminist Icon Looming Over Trump’s Trial**\
+`A documentary about Stormy Daniels explores the life of a woman whose silence former President Donald J. Trump is charged with trying to buy.`\
+https://nytimes.com/2024/03/22/nyregion/stormy-reveals-the-flawed-feminist-icon-looming-over-trumps-trial.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/22/crosswords/wordle-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/03/22/crosswords/spelling-bee-forum.html
+
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/22/crosswords/connections-companion.html
+
 **Word of the Day: olfactory**\
 `This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/22/learning/word-of-the-day-olfactory.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/03/22/briefing/apple-lawsuit-antitrust-germany-strike.h
 **Quotation of the Day: To Freaknik Revelers’ Chagrin, New Film Digs Up Old Tapes**\
 `Quotation of the Day for Friday, March 22, 2024.`\
 https://nytimes.com/2024/03/22/pageoneplus/quotation-of-the-day-to-freaknik-revelers-chagrin-new-film-digs-up-old-tapes.html
-
-**What Happened When India Pulled the Plug on TikTok**\
-`The United States is agonizing over the possibility of a ban, but India did it at a stroke. Indians adjusted quickly, and Instagram and YouTube built big audiences.`\
-https://nytimes.com/2024/03/22/business/tiktok-india-ban.html
-
-**‘Strike Madness’ Hits Germany While Its Economy Stumbles**\
-`A wave of strikes by German workers, feeling the sting of inflation and stagnant growth, is the latest sign of the bleak outlook for Europe’s economic powerhouse.`\
-https://nytimes.com/2024/03/22/world/europe/germany-strikes-economy.html
-
-**TikTok Changed His Life. Then India Banned the App.**\
-`As Washington debates a plan that could block TikTok, a content creator, Ulhas Kamathe, explains how he lost everything when it happened in India. Here’s how he rebuilt his career.`\
-https://nytimes.com/video/world/asia/100000009371740/tiktok-india-ban.html
-
-**What to Know about Holi, India’s Most Colorful Tradition**\
-`The festival has Hindu roots, but everyone is fair game to get messy, and growing numbers worldwide are taking part in the iconic display of Indian culture.`\
-https://nytimes.com/2024/03/22/world/asia/holi-colors-spring-festival-india.html
-
-**Democracy Teetering in African Countries Once Ruled by France**\
-`A wave of military coups and presidents clinging to power are two sides of the same anti-democratic coin plaguing Francophone Africa, experts say.`\
-https://nytimes.com/2024/03/22/world/africa/democracy-senegal-africa-france.html
-
-**Once in a Blue Supermoon, a Lifelong Commitment Is Made**\
-`Just a few weeks after meeting, Tiffany Langlinais and Michael Graves evacuated New Orleans ahead of Hurricane Ida. A tumultuous two weeks on the road solidified their relationship.`\
-https://nytimes.com/2024/03/22/style/tiffany-langlinais-michael-graves-wedding.html
 
