@@ -1,3 +1,7 @@
+**‘Road House’ Review: This Remake Amps Up the Action**\
+`Jake Gyllenhaal stars a pro fighter turned bouncer at a juke joint in the Florida Keys, taking on Patrick Swayze’s role in the original.`\
+https://nytimes.com/2024/03/22/movies/road-house-review-jake-gyllenhaal.html
+
 **Princess of Wales Announces Cancer Diagnosis**\
 `In a video statement, Catherine, Princess of Wales, said that she had been diagnosed with cancer and started chemotherapy.`\
 https://nytimes.com/video/world/europe/100000009376587/princess-kate-royal-family-cancer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/us/politics/irs-employee-retention-tax-credit.htm
 **Does the Mormon Church Empower Women? A Social Media Storm Answers.**\
 `A church Instagram post tapped into a long-running seam of discontent among some women, who have chafed at restrictions.`\
 https://nytimes.com/2024/03/22/us/mormon-church-women-latter-day-saints.html
-
-**How to Host a Lunch Like a Parisian Gallerist**\
-`The artist Bianca Lee Vasquez, a co-founder of the art space Sainte Anne, regularly gathers friends for laid-back meals at her apartment, just a few blocks away.`\
-https://nytimes.com/2024/03/22/t-magazine/bianca-lee-vasquez-paris-lunch.html
 

@@ -1,3 +1,7 @@
+**‘Road House’ Review: This Remake Amps Up the Action**\
+`Jake Gyllenhaal stars a pro fighter turned bouncer at a juke joint in the Florida Keys, taking on Patrick Swayze’s role in the original.`\
+https://nytimes.com/2024/03/22/movies/road-house-review-jake-gyllenhaal.html
+
 **Princess of Wales Announces Cancer Diagnosis**\
 `In a video statement, Catherine, Princess of Wales, said that she had been diagnosed with cancer and started chemotherapy.`\
 https://nytimes.com/video/world/europe/100000009376587/princess-kate-royal-family-cancer.html
