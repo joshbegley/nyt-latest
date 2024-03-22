@@ -1,3 +1,7 @@
+**Back From Gaza Hospitals, Doctors Tell Washington of Horrors Amid Cease-Fire Push**\
+`Volunteers who treated patients in harrowing conditions lobbied American officials on the urgency of an immediate cease-fire.`\
+https://nytimes.com/2024/03/21/world/middleeast/gaza-hospitals-doctors-israel-congress.html
+
 **Lorrie Moore Is Among National Book Critics Circle Award Winners**\
 `The awards included a lifetime achievement honor given to Judy Blume.`\
 https://nytimes.com/2024/03/21/books/lorrie-moore-national-book-critics-circle-awards.html
