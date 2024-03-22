@@ -1,40 +1,40 @@
-**22mideast-crisis**\
-`Blinken in Israel as U.S. Prepares to Offer New Cease-Fire Resolution at U.N.`\
-https://nytimes.com/live/2024/03/22/world/israel-hamas-war-gaza-news
+**For One Afghan Potter, Home Is in His Work**\
+`Matin Malikzada, a seventh-generation ceramist, is making a life in Connecticut with help from new friends.`\
+https://nytimes.com/2024/03/22/arts/design/matin-malikzada-pottery-afghanistan.html
 
-**Blinken arrives in Israel after meetings with Saudi and Egyptian officials.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/03/22/world/israel-hamas-war-gaza-news/blinken-goes-to-israel-fresh-from-meetings-with-saudi-and-egyptian-officials
+**Flau’Jae Johnson Won a Basketball Title, Then Teamed Up With Lil Wayne**\
+`The sophomore guard is prepping collaborations with hip-hop heavyweights like Lil Wayne and NLE Choppa as she helps L.S.U. defend its basketball title in the N.C.A.A. tournament.`\
+https://nytimes.com/2024/03/22/arts/music/flaujae-johnson-lsu-basketball-rap.html
 
-**Public Selfies**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2024/03/22/learning/public-selfies.html
+**The Great Rupture in American Jewish Life**\
+`What happens when liberalism and Zionism can no longer be reconciled?`\
+https://nytimes.com/2024/03/22/opinion/israel-american-jews-zionism.html
 
-**New York’s Marijuana Scorecard: 85 Legal Shops, 2,000 Illegal Ones**\
-`The lack of legal dispensaries and the overwhelming proliferation of illegal ones are the biggest concerns of the rollout three years after legalization.`\
-https://nytimes.com/2024/03/22/nyregion/nyc-cannabis-dispensary-legal.html
+**A Quiet Maine County Braces for the Eclipse. ‘Where Are 20,000 People Going to Pee?’**\
+`Businesses and planning committees are eager for visitors, but some in remote Aroostook County are not sure how they feel about lying smack in the path of totality.`\
+https://nytimes.com/2024/03/22/us/maine-total-solar-eclipse.html
 
-**‘Stormy’ Reveals the Flawed Feminist Icon Looming Over Trump’s Trial**\
-`A documentary about Stormy Daniels explores the life of a woman whose silence former President Donald J. Trump is charged with trying to buy.`\
-https://nytimes.com/2024/03/22/nyregion/stormy-reveals-the-flawed-feminist-icon-looming-over-trumps-trial.html
+**Utility-Caused Wildfires Are Becoming a National Problem**\
+`Climate change is raising the risk of blazes that are started by power lines and other utility equipment in many parts of the U.S. besides California.`\
+https://nytimes.com/2024/03/22/business/energy-environment/electric-utilities-wildfires-climate-change.html
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/22/crosswords/wordle-review.html
+**Insooni Breaks Racial Barrier to Become Beloved Singer in South Korea**\
+`Born to a South Korean mother and a Black American soldier, she rose to a pioneering stardom in a country that has long discriminated against biracial children.`\
+https://nytimes.com/2024/03/22/world/asia/south-korea-insooni-singer.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/03/22/crosswords/spelling-bee-forum.html
+**What We Gained (and Lost) When Our Daughter Unplugged for a School Year**\
+`My 13-year-old has left her phone behind for hiking, chores and study in the Australian wilderness. Our pen-and-paper correspondence is opening up an unexpected world.`\
+https://nytimes.com/2024/03/22/world/australia/screen-free-school.html
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/22/crosswords/connections-companion.html
+**A Total Solar Eclipse Is Coming. Here’s What You Need to Know.**\
+`These are answers to common questions about the April 8 eclipse, and we’re offering you a place to pose more of them.`\
+https://nytimes.com/article/total-solar-eclipse.html
 
-**Word of the Day: olfactory**\
-`This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/03/22/learning/word-of-the-day-olfactory.html
+**An Easter Loaf Baked With Fruit, Spices and Caribbean Sun**\
+`This classic Jamaican treat is bold, bright and vibrant, and central to the holiday.`\
+https://nytimes.com/2024/03/22/dining/easter-jamaican-spice-bun.html
 
-**Jimmy Kimmel Calls Trump’s V.P. Selection Process ‘The MAGA-pprentice’**\
-`Kimmel’s advice to Donald Trump’s potential running mates: “If he asks you to run, run!”`\
-https://nytimes.com/2024/03/22/arts/television/jimmy-kimmel-trump-bond.html
+**Joan Jonas on Her Island of Wonder**\
+`For 50 years the artist has found inspiration for storytelling videos and installations on Cape Breton Island. Her nephew Toby Coulson set out to capture the magic.`\
+https://nytimes.com/2024/03/22/arts/design/joan-jonas-cape-breton-canada.html
 
