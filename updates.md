@@ -1,3 +1,5 @@
+**Here’s the latest on the attack in Russia.**\
+
 **‘Road House’ Review: This Remake Amps Up the Action**\
 `Jake Gyllenhaal stars as a pro fighter turned bouncer at a juke joint in the Florida Keys, taking on Patrick Swayze’s role in the original.`\
 https://nytimes.com/2024/03/22/movies/road-house-review-jake-gyllenhaal.html
