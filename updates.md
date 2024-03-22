@@ -1,3 +1,11 @@
+**General Motors Quits Sharing Driving Behavior With Data Brokers**\
+`G.M. had provided information about braking, acceleration and speed to LexisNexis Risk Solution and Verisk, firms that generated driver risk profiles for insurers.`\
+https://nytimes.com/2024/03/22/technology/gm-onstar-driver-data.html
+
+**More Teams in March Madness? Say Goodbye to the Cinderella Stories**\
+`Expanding the men’s tournament could push small schools like Oakland, which upset Kentucky this week, out of the action.`\
+https://nytimes.com/2024/03/22/sports/march-madness-ncaa-tournament-expansion.html
+
 **‘Road House’ Review: This Remake Amps Up the Action**\
 `Jake Gyllenhaal stars a pro fighter turned bouncer at a juke joint in the Florida Keys, taking on Patrick Swayze’s role in the original.`\
 https://nytimes.com/2024/03/22/movies/road-house-review-jake-gyllenhaal.html
