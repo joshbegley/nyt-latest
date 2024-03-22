@@ -1,3 +1,7 @@
+**Idaho Prison Gang Member and Accomplice Arrested After Hospital Ambush**\
+`The two men fled from a hospital in Boise, Idaho, after an ambush in which three corrections officers were shot. The authorities were investigating whether they had killed two people while at large.`\
+https://nytimes.com/2024/03/21/us/idaho-escaped-inmate-hospital-ambush.html
+
 **Doctors, Back From Gaza Hospitals, Tell Washington of Horrors Amid Cease-Fire Push**\
 `Volunteers who treated patients in harrowing conditions lobbied American officials on the urgency of an immediate cease-fire.`\
 https://nytimes.com/2024/03/21/world/middleeast/gaza-hospitals-doctors-israel-congress.html
