@@ -1,3 +1,7 @@
+**The White House Has That Sinking Feeling (Thanks to an Artist)**\
+`Kiyan Williams, for their Whitney Biennial commission, recreated the column-lined facade from soil. Viewers can watch as it crumbles, sprouts plants and births insects.`\
+https://nytimes.com/2024/03/22/arts/design/kiyan-williams-whitney-biennial-white-house.html
+
 **Uganda’s Leader Names Son to Top Post, Fueling Talk of a Succession Plan**\
 `Gen. Muhoozi Kainerugaba, who has a reputation for provocative late-night tweets, has been working to position himself as heir apparent to his father, President Yoweri Museveni.`\
 https://nytimes.com/2024/03/22/world/africa/uganda-president-son.html
