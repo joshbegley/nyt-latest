@@ -1,3 +1,7 @@
+**A Rock Fell From Space Into Sweden. Who Owns It on Earth?**\
+`Sweden’s courts have been debating claims to a meteorite that fell north of Stockholm, including whether the right to move around in nature, including on private property, extends to claiming a meteorite.`\
+https://nytimes.com/2024/03/22/world/europe/sweden-meteorite-ownership.html
+
 **U.N. Security Council Fails to Pass Gaza Cease-Fire Resolution**\
 `China and Russia blocked a U.S. resolution for a cease-fire in Gaza at the United Nations Security Council.`\
 https://nytimes.com/video/world/100000009376406/un-security-council-veto-ceasefire.html
