@@ -1,3 +1,7 @@
+**Wyoming Bans Gender Transition Care for Minors**\
+`The governor signed a bill that prohibited the practice for children, making Wyoming the 24th state to have passed such a ban.`\
+https://nytimes.com/2024/03/22/us/wyoming-transgender-ban.html
+
 **As More Members Leave, House G.O.P. Will Be Able to Spare Just 1 Vote**\
 `The unexpectedly early departure next month of Representative Mike Gallagher of Wisconsin came shortly after Speaker Mike Johnson had said he believed “that’s the end of the exits for now.”`\
 https://nytimes.com/2024/03/22/us/politics/house-republican-majority-mike-gallagher.html
