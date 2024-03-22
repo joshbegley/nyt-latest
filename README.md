@@ -1,3 +1,7 @@
+**How Biden Could Try to Coerce Israel to Change Its War Strategy**\
+`President Biden has tried persuading Prime Minister Benjamin Netanyahu behind the scenes. But critics say it is time for a different approach.`\
+https://nytimes.com/2024/03/22/us/politics/israel-biden-leverage.html
+
 **Israel designates more West Bank land for possible settlement use.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/03/22/world/israel-hamas-war-gaza-news/israel-designates-more-west-bank-land-for-possible-settlement-use
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/arts/television/andrea-riseborough-the-regime-ali
 **Five Action Movies to Stream Now**\
 `This month’s picks include brotherly revenge, ghoulish specters and more.`\
 https://nytimes.com/2024/03/22/movies/five-action-movies-to-stream-now.html
-
-**How Toyota, a Laggard on Electric Cars, Got Its Fight Back**\
-`The auto giant lobbied hard against tougher pollution rules. This week, the E.P.A.’s new rules proved favorable to hybrid technology, an area that Toyota dominates.`\
-https://nytimes.com/2024/03/22/climate/toyota-hybrid-epa-pollution.html
 
