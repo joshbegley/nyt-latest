@@ -1,4 +1,4 @@
-**Stellantis to Recall 300,000 Dodges and Chryslers for Airbag Danger**\
+**Stellantis to Recall 285,000 Dodges and Chryslers for Airbag Danger**\
 `The recall could affect owners of Dodge Chargers and Chrysler 300s. The airbags have the potential to explode and hurl shrapnel.`\
 https://nytimes.com/2024/03/22/automobiles/stellantis-airbag-recall.html
 
