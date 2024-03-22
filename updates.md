@@ -1,3 +1,11 @@
+**Transcript: Ezra Klein Interviews Caitlyn Collins**\
+`The March 22, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/03/22/podcasts/transcript-ezra-klein-interviews-caitlyn-collins.html
+
+**U.S. Embassy warned earlier in March about a possible attack.**\
+`Pro-Moscow forces had dismissed the alert as an attempt to scare Russians.`\
+https://nytimes.com/2024/03/22/world/europe/moscow-concert-attack-us-embassy.html
+
 **U.S. Embassy warned earlier in March about a possible attack.**\
 `By Constant Méheut and Anton Troianovski`\
 https://nytimes.com/2024/03/22/world/europe/moscow-concert-attack-us-embassy.html
