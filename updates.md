@@ -1,3 +1,11 @@
+**Word of the Day: olfactory**\
+`This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/22/learning/word-of-the-day-olfactory.html
+
+**Jimmy Kimmel Calls Trump’s V.P. Selection Process ‘The MAGA-pprentice’**\
+`Kimmel’s advice to Donald Trump’s potential running mates: “If he asks you to run, run!”`\
+https://nytimes.com/2024/03/22/arts/television/jimmy-kimmel-trump-bond.html
+
 **Friday Briefing**\
 `The U.S. sues Apple.`\
 https://nytimes.com/2024/03/22/briefing/apple-lawsuit-antitrust-germany-strike.html

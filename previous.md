@@ -1,3 +1,11 @@
+**Word of the Day: olfactory**\
+`This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/22/learning/word-of-the-day-olfactory.html
+
+**Jimmy Kimmel Calls Trump’s V.P. Selection Process ‘The MAGA-pprentice’**\
+`Kimmel’s advice to Donald Trump’s potential running mates: “If he asks you to run, run!”`\
+https://nytimes.com/2024/03/22/arts/television/jimmy-kimmel-trump-bond.html
+
 **Friday Briefing**\
 `The U.S. sues Apple.`\
 https://nytimes.com/2024/03/22/briefing/apple-lawsuit-antitrust-germany-strike.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/22/world/africa/democracy-senegal-africa-france.html
 **Once in a Blue Supermoon, a Lifelong Commitment Is Made**\
 `Just a few weeks after meeting, Tiffany Langlinais and Michael Graves evacuated New Orleans ahead of Hurricane Ida. A tumultuous two weeks on the road solidified their relationship.`\
 https://nytimes.com/2024/03/22/style/tiffany-langlinais-michael-graves-wedding.html
-
-**‘RuPaul’s Drag Race’ Kept Them Amused Near and Far**\
-`Maria Bun and Mench Antopina downed shots together in Singapore or via FaceTime when they were apart while watching the reality TV show.`\
-https://nytimes.com/2024/03/22/style/maria-bun-mench-antopina-wedding.html
-
-**With TikTok Under Fire, Brands That Rely on It Worry**\
-`Many companies, particularly in the beauty and fashion industries, have boosted sales through the platform. They don’t really have a backup plan.`\
-https://nytimes.com/2024/03/22/business/tiktok-beauty-fashion-companies.html
 
