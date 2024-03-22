@@ -1,3 +1,7 @@
+**How Peer Pressure Affects Voting**\
+`Why some voters of color no longer support the Democratic Party.`\
+https://nytimes.com/2024/03/22/briefing/2024-black-voting.html
+
 **U.S. to Push For Gaza Cease-Fire, Apple Gets Sued and More**\
 `Plus, don’t mess with Elvis.`\
 https://nytimes.com/2024/03/22/podcasts/us-to-push-for-gaza-cease-fire-apple-gets-sued-and-more.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/22/science/ice-skating-brain.html
 **5 Things to Do This Weekend**\
 `A selection of entertainment highlights this weekend, including the film “Ghostbusters: Frozen Empire.”`\
 https://nytimes.com/interactive/2024/03/22/arts/weekend-editors-picks-ghostbusters-frozen-empire.html
-
-**To Get Your Finances in Order, Try ‘Loud Budgeting’**\
-`The term was recently coined on TikTok by a young comedian and writer who hopes it will empower people to open up about their financial goals.`\
-https://nytimes.com/interactive/2024/03/22/business/what-is-loud-budgeting.html
 
