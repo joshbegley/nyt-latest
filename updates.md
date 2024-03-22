@@ -1,3 +1,7 @@
+**Gunmen Killed Dozens at a Moscow Concert Hall**\
+`Also, Princess Kate announced that she has cancer. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/03/22/briefing/moscow-concert-hall-attack-trump-billions.html
+
 **U.S. Measles Cases Surpass 2023 Levels, C.D.C. Says**\
 `There are several factors driving the spread of the highly infectious virus, experts said.`\
 https://nytimes.com/2024/03/22/well/live/measles-cases-united-states.html

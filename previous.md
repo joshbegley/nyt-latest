@@ -1,3 +1,7 @@
+**Gunmen Killed Dozens at a Moscow Concert Hall**\
+`Also, Princess Kate announced that she has cancer. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/03/22/briefing/moscow-concert-hall-attack-trump-billions.html
+
 **U.S. Measles Cases Surpass 2023 Levels, C.D.C. Says**\
 `There are several factors driving the spread of the highly infectious virus, experts said.`\
 https://nytimes.com/2024/03/22/well/live/measles-cases-united-states.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/us/wyoming-transgender-ban.html
 **As More Members Leave, House G.O.P. Will Be Able to Spare Just 1 Vote**\
 `The unexpectedly early departure next month of Representative Mike Gallagher of Wisconsin came shortly after Speaker Mike Johnson had said he believed “that’s the end of the exits for now.”`\
 https://nytimes.com/2024/03/22/us/politics/house-republican-majority-mike-gallagher.html
-
-**Lyn Hejinian, 82, Dies; Leading Light of the Language Poetry Movement**\
-`A poet, publisher and professor, she channeled the revolutionary spirit and deconstructionist currents of the 1960s to challenge the conventions of poetry.`\
-https://nytimes.com/2024/03/22/books/lyn-hejinian-dead.html
 
