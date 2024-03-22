@@ -1,3 +1,7 @@
+**Chicago Voters Reject Real Estate Tax Change to Fund Homeless Programs**\
+`The referendum, backed by progressives but criticized by the real estate industry, called for raising transfer taxes on properties that sell for more than $1 million.`\
+https://nytimes.com/2024/03/22/us/chicago-real-estate-tax-vote.html
+
 **U.S. Says ISIS Was Responsible for Deadly Moscow Concert Hall Attack**\
 `After a period of relative quiet, the Islamic State has been trying to increase its external attacks, according to U.S. counterterrorism officials.`\
 https://nytimes.com/2024/03/22/world/europe/isis-moscow-attack-concert-hall.html
