@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`The U.S. sues Apple.`\
+https://nytimes.com/2024/03/22/briefing/apple-lawsuit-antitrust-germany-strike.html
+
 **Quotation of the Day: To Freaknik Revelers’ Chagrin, New Film Digs Up Old Tapes**\
 `Quotation of the Day for Friday, March 22, 2024.`\
 https://nytimes.com/2024/03/22/pageoneplus/quotation-of-the-day-to-freaknik-revelers-chagrin-new-film-digs-up-old-tapes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/style/maria-bun-mench-antopina-wedding.html
 **With TikTok Under Fire, Brands That Rely on It Worry**\
 `Many companies, particularly in the beauty and fashion industries, have boosted sales through the platform. They don’t really have a backup plan.`\
 https://nytimes.com/2024/03/22/business/tiktok-beauty-fashion-companies.html
-
-**A Middle School Crush Becomes More, Thanks to Mom’s Nudge**\
-`Colton Elliott went to great lengths — including a same-day trip from Memphis to New York — to make Allie Hill his wife.`\
-https://nytimes.com/2024/03/22/style/allie-hill-colton-elliott-wedding.html
 
