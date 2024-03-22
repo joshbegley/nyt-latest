@@ -1,3 +1,7 @@
+**Owner and Manager of Grimaldi’s Pizzeria Are Charged With Wage Theft**\
+`The men bilked seven employees of more than $20,000 in wages, the Manhattan district attorney said. Workers sent desperate text messages.`\
+https://nytimes.com/2024/03/21/nyregion/grimaldis-pizzeria-wage-theft.html
+
 **Idaho Prison Gang Member and Accomplice Arrested After Hospital Ambush**\
 `The two men fled from a hospital in Boise, Idaho, after an ambush in which three corrections officers were shot. The authorities were investigating whether they had killed two people while at large.`\
 https://nytimes.com/2024/03/21/us/idaho-escaped-inmate-hospital-ambush.html
