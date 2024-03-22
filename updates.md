@@ -1,3 +1,7 @@
+**The Security Council is expected to vote on a U.S.-backed resolution calling for a sustained cease-fire.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/03/22/world/israel-hamas-war-gaza-news/the-security-council-is-expected-to-vote-on-a-us-backed-resolution-calling-for-a-sustained-cease-fire
+
 **Five U.S. Cases Targeting Big Tech **\
 `For years, Apple, Google, Meta and other tech giants operated unfettered. Now, regulators are taking steps to compel them to make major shifts to their products and businesses. `\
 https://nytimes.com/interactive/2024/03/22/business/5-us-cases-big-tech.html

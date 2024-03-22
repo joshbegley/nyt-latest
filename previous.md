@@ -1,3 +1,7 @@
+**The Security Council is expected to vote on a U.S.-backed resolution calling for a sustained cease-fire.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/03/22/world/israel-hamas-war-gaza-news/the-security-council-is-expected-to-vote-on-a-us-backed-resolution-calling-for-a-sustained-cease-fire
+
 **Five U.S. Cases Targeting Big Tech **\
 `For years, Apple, Google, Meta and other tech giants operated unfettered. Now, regulators are taking steps to compel them to make major shifts to their products and businesses. `\
 https://nytimes.com/interactive/2024/03/22/business/5-us-cases-big-tech.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/style/king-charles-iii-fashion.html
 **The New York Times News Quiz, March 22, 2024**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2024/03/22/briefing/news-quiz-trump-biden-texas.html
-
-**A Simple Trick Makes a More Flavorful Egg**\
-`For the illustrator Paul Karasik, an Italian salesman’s ingenuity led to a surprising discovery.`\
-https://nytimes.com/2024/03/22/dining/how-to-make-a-more-flavorful-egg.html
 
