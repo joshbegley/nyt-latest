@@ -1,3 +1,7 @@
+**How the Fight Against Apple Could Redefine Antitrust Law**\
+`The Justice Department’s lawsuit against the iPhone maker pushes the boundaries of competition rules. Some experts say that may make winning more difficult.`\
+https://nytimes.com/2024/03/22/business/dealbook/apple-justice-antitrust.html
+
 **Russian Attack Leaves Over a Million in Ukraine Without Electricity**\
 `Power plants and a major hydroelectric dam were damaged in what Ukrainian officials said was one of the war’s largest assaults on energy infrastructure.`\
 https://nytimes.com/2024/03/22/world/europe/russia-ukraine-war-attack.html

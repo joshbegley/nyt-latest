@@ -1,3 +1,7 @@
+**How the Fight Against Apple Could Redefine Antitrust Law**\
+`The Justice Department’s lawsuit against the iPhone maker pushes the boundaries of competition rules. Some experts say that may make winning more difficult.`\
+https://nytimes.com/2024/03/22/business/dealbook/apple-justice-antitrust.html
+
 **Russian Attack Leaves Over a Million in Ukraine Without Electricity**\
 `Power plants and a major hydroelectric dam were damaged in what Ukrainian officials said was one of the war’s largest assaults on energy infrastructure.`\
 https://nytimes.com/2024/03/22/world/europe/russia-ukraine-war-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/podcasts/hard-fork-apple-lawsuit-reddit-ipo.html
 **How to Bargain Like a Kidnap Negotiator**\
 `One tip: Keep your cool.`\
 https://nytimes.com/2024/03/22/well/live/crisis-negotiation-skills.html
-
-**Ice Skating and the Brain**\
-`How champion skaters' brains keep them from falling or feeling dizzy`\
-https://nytimes.com/interactive/2024/03/22/science/ice-skating-brain.html
 
