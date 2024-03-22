@@ -1,3 +1,11 @@
+**Arkansas Airport Executive Dies After Shootout With A.T.F.**\
+`The authorities said they were executing a search warrant at the home of the executive, whom they accused of illegally selling firearms. His family said the action was unnecessary.`\
+https://nytimes.com/2024/03/21/us/arkansas-airport-director-bryan-malinowski.html
+
+**‘Like They Do in the Movies’ Review: Laurence Fishburne Widens His Lens**\
+`In his solo show, the screen and stage star shines a light into his formative dark corners and on the people who made an impression.`\
+https://nytimes.com/2024/03/21/theater/like-they-do-in-the-movies-review-laurence-fishburne.html
+
 **Variety: Acrostic**\
 `David Balton and Jane Stewart make their pitch.`\
 https://nytimes.com/2024/03/21/crosswords/variety-acrostic.html
