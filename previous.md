@@ -1,3 +1,7 @@
+**Another heavy blow for the British royal family.**\
+`By Mark Landler`\
+https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/another-heavy-blow-for-the-british-royal-family
+
 **Buckingham Palace said only last month that King Charles has cancer.**\
 `By Mark Landler`\
 https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/buckingham-palace-said-only-last-month-that-king-charles-has-cancer
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009376983/spending-bill-house.html
 **The mood is somber at a British outpost in New York.**\
 `By Nate Schweber`\
 https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/nyc-reaction-kate-middleton
-
-**George Santos Says He Is Done With the G.O.P. (The Feeling Is Mutual.)**\
-`Mr. Santos said he would no longer seek the Republican line in a House race on Long Island, and planned to run as an independent.`\
-https://nytimes.com/2024/03/22/nyregion/santos-leaves-republicans-independent.html
 
