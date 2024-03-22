@@ -1,3 +1,11 @@
+**Julianna Margulies and Peter Gallagher to Star in Broadway Play**\
+`The duo will lead the cast of “Left on Tenth,” a stage adaptation of Delia Ephron’s best-selling memoir.`\
+https://nytimes.com/2024/03/22/theater/margulies-gallagher-ephron-broadway.html
+
+**Biden’s Big Bet on Chips Helps Jobs in the U.S. (and Costa Rica)**\
+`The United States can’t go it alone in the race for the future on semiconductors.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-intel-chips-costarica
+
 **How Biden Could Try to Coerce Israel to Change Its War Strategy**\
 `President Biden has tried persuading Prime Minister Benjamin Netanyahu behind the scenes. But critics say it is time for a different approach.`\
 https://nytimes.com/2024/03/22/us/politics/israel-biden-leverage.html

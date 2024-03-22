@@ -1,3 +1,11 @@
+**What to Do if Violence Breaks Out on Your Train or Bus**\
+`Public transportation is not necessarily more dangerous than other settings, but there are some ways that experts recommend to get out of a risky situation.`\
+https://nytimes.com/2024/03/22/us/public-transit-safety-subway-guide.html
+
+**What’s Next for the Coronavirus?**\
+`Scientists studying the virus’s continuing evolution, and the body’s immune responses, hope to head off a resurgence and to better understand long Covid.`\
+https://nytimes.com/2024/03/22/health/coronavirus-evolution-immunity.html
+
 **Julianna Margulies and Peter Gallagher to Star in Broadway Play**\
 `The duo will lead the cast of “Left on Tenth,” a stage adaptation of Delia Ephron’s best-selling memoir.`\
 https://nytimes.com/2024/03/22/theater/margulies-gallagher-ephron-broadway.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/22/world/europe/germany-euro-2024.html
 **Personalize Your Perloo, Finesse Your Fish Chowder**\
 `Satisfying dishes that invite improvisation.`\
 https://nytimes.com/2024/03/22/dining/personalize-your-perloo-finesse-your-fish-chowder.html
-
-**Transitioning to Electric Vehicles in the U.S.**\
-`Readers discuss a new Biden administration rule and Toyota’s strategy. Also: Anti-L.G.B.T.Q. oppression; church and state; death preparation; falling birthrates.`\
-https://nytimes.com/2024/03/22/opinion/electric-vehicles-cars.html
-
-**The Met Museum Hires Its First Head of Provenance Research**\
-`Lucian Simmons is leaving Sotheby’s to lead the museum’s increased efforts to review its collection, which has recently returned looted artifacts, including dozens last year.`\
-https://nytimes.com/2024/03/22/arts/met-museum-first-provenance-research-head.html
 
