@@ -1,3 +1,11 @@
+**General Motors Quits Sharing Driving Behavior With Data Brokers**\
+`G.M. had provided information about braking, acceleration and speed to LexisNexis Risk Solution and Verisk, firms that generated driver risk profiles for insurers.`\
+https://nytimes.com/2024/03/22/technology/gm-onstar-driver-data.html
+
+**More Teams in March Madness? Say Goodbye to the Cinderella Stories**\
+`Expanding the men’s tournament could push small schools like Oakland, which upset Kentucky this week, out of the action.`\
+https://nytimes.com/2024/03/22/sports/march-madness-ncaa-tournament-expansion.html
+
 **‘Road House’ Review: This Remake Amps Up the Action**\
 `Jake Gyllenhaal stars a pro fighter turned bouncer at a juke joint in the Florida Keys, taking on Patrick Swayze’s role in the original.`\
 https://nytimes.com/2024/03/22/movies/road-house-review-jake-gyllenhaal.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/specula
 **Norman Miller, German Refugee Who Helped Arrest a Top Nazi, Dies at 99**\
 `At 15, he escaped to England. At 20, he enlisted in the British Army and identified a German minister — whose roles included deporting Dutch Jews to labor camps — as he tried to flee.`\
 https://nytimes.com/2024/03/22/world/europe/norman-miller-dead.html
-
-**I.R.S. Stepping Up Efforts to Squash Fraud in Tax Credit Program**\
-`The Employee Retention Tax Credit continues to be ripe for abuse as Congress mulls shutting the program down.`\
-https://nytimes.com/2024/03/22/us/politics/irs-employee-retention-tax-credit.html
-
-**Does the Mormon Church Empower Women? A Social Media Storm Answers.**\
-`A church Instagram post tapped into a long-running seam of discontent among some women, who have chafed at restrictions.`\
-https://nytimes.com/2024/03/22/us/mormon-church-women-latter-day-saints.html
 
