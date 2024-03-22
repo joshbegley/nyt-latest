@@ -1,3 +1,11 @@
+**Variety: Acrostic**\
+`David Balton and Jane Stewart make their pitch.`\
+https://nytimes.com/2024/03/21/crosswords/variety-acrostic.html
+
+**Moved Cross-Country**\
+`Mansi Kothari makes her New York Times Crossword debut in a collaboration with Erik Agard.`\
+https://nytimes.com/2024/03/21/crosswords/daily-puzzle-2024-03-22.html
+
 **‘Water for Elephants’ Review: Beauty Under the Big Top**\
 `The circus-themed love story, already a novel and a movie, becomes a gorgeously imaginative Broadway musical.`\
 https://nytimes.com/2024/03/21/theater/water-for-elephants-review-broadway.html
