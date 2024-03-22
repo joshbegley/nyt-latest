@@ -1,3 +1,11 @@
+**Doctors Say Diagnosis of Catherine’s Cancer Is a Familiar Scenario**\
+`The Princess of Wales did not reveal the type of cancer she has, but oncologists say the disease is often identified during other procedures.`\
+https://nytimes.com/2024/03/22/health/kate-middleton-cancer-chemotherapy.html
+
+**U.S. says ISIS was responsible for the deadly attack in Moscow.**\
+`By Julian E. Barnes and Eric Schmitt`\
+https://nytimes.com/live/2024/03/22/world/moscow-shooting/isis-moscow-attack-concert-hall
+
 **How to Talk to Children About Cancer**\
 `These conversations are among the more important and delicate discussions that parents can have, experts said.`\
 https://nytimes.com/2024/03/22/well/live/cancer-children-princess-kate.html

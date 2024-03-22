@@ -1,3 +1,11 @@
+**Doctors Say Diagnosis of Catherine’s Cancer Is a Familiar Scenario**\
+`The Princess of Wales did not reveal the type of cancer she has, but oncologists say the disease is often identified during other procedures.`\
+https://nytimes.com/2024/03/22/health/kate-middleton-cancer-chemotherapy.html
+
+**U.S. says ISIS was responsible for the deadly attack in Moscow.**\
+`By Julian E. Barnes and Eric Schmitt`\
+https://nytimes.com/live/2024/03/22/world/moscow-shooting/isis-moscow-attack-concert-hall
+
 **How to Talk to Children About Cancer**\
 `These conversations are among the more important and delicate discussions that parents can have, experts said.`\
 https://nytimes.com/2024/03/22/well/live/cancer-children-princess-kate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/22/world/europe/moscow-concert-hall-attack-photos.ht
 **Gunmen Killed Dozens at a Moscow Concert Hall**\
 `Also, Princess Kate announced that she has cancer. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/03/22/briefing/moscow-concert-hall-attack-trump-billions.html
-
-**U.S. Measles Cases Surpass 2023 Levels, C.D.C. Says**\
-`There are several factors driving the spread of the highly infectious virus, experts said.`\
-https://nytimes.com/2024/03/22/well/live/measles-cases-united-states.html
-
-**The Royal Family Doth Explain Too Much**\
-`Let the public yammer, and let Kate give health information as she feels comfortable.`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/kate-middleton-royal-family
 
