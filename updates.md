@@ -1,3 +1,7 @@
+**U.S. Embassy warned earlier in March about a possible attack.**\
+`By Constant Méheut and Anton Troianovski`\
+https://nytimes.com/2024/03/22/world/europe/moscow-concert-attack-us-embassy.html
+
 **Greene Threatens to Oust Johnson Over Spending Bill**\
 `Representative Marjorie Taylor Greene of Georgia began the process of calling for a vote to oust Speaker Mike Johnson after he pushed through a $1.2 trillion bipartisan spending bill.`\
 https://nytimes.com/video/us/politics/100000009376983/spending-bill-house.html
