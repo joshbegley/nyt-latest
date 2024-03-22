@@ -1,3 +1,7 @@
+**How Biden Could Try to Coerce Israel to Change Its War Strategy**\
+`President Biden has tried persuading Prime Minister Benjamin Netanyahu behind the scenes. But critics say it is time for a different approach.`\
+https://nytimes.com/2024/03/22/us/politics/israel-biden-leverage.html
+
 **Israel designates more West Bank land for possible settlement use.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/03/22/world/israel-hamas-war-gaza-news/israel-designates-more-west-bank-land-for-possible-settlement-use
