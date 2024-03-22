@@ -1,3 +1,11 @@
+**Princess of Wales Announces Cancer Diagnosis**\
+`In a video statement, Catherine, Princess of Wales, said that she had been diagnosed with cancer and started chemotherapy.`\
+https://nytimes.com/video/world/europe/100000009376587/princess-kate-royal-family-cancer.html
+
+**Rose Dugdale, Heiress Turned Irish Independence Fighter, Dies at 82**\
+`Born into English wealth and Oxford-educated, she left it all behind for a life of radical and often violent activism.`\
+https://nytimes.com/2024/03/22/world/europe/rose-dugdale-dead.html
+
 **Read Catherine’s full statement.**\
 `The princess asked for privacy as she undergoes treatment, and said that “it has been an incredibly tough couple of months for our entire family.”`\
 https://nytimes.com/2024/03/22/world/europe/kate-middleton-cancer-statement.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/22/us/mormon-church-women-latter-day-saints.html
 **How to Host a Lunch Like a Parisian Gallerist**\
 `The artist Bianca Lee Vasquez, a co-founder of the art space Sainte Anne, regularly gathers friends for laid-back meals at her apartment, just a few blocks away.`\
 https://nytimes.com/2024/03/22/t-magazine/bianca-lee-vasquez-paris-lunch.html
-
-**22kate-cancer-live**\
-`Catherine, Princess of Wales, Has Cancer`\
-https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer
-
-**NASA Is Recruiting a New Class of Astronauts**\
-`Victor Glover, a nine-year veteran of the astronaut corps who will fly around the moon in 2025, said the search for excellence and diversity were not mutually exclusive.`\
-https://nytimes.com/2024/03/22/science/nasa-astronauts-victor-glover-elon-musk.html
 
