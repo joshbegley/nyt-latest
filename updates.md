@@ -1,3 +1,7 @@
+**‘Water for Elephants’ Review: Beauty Under the Big Top**\
+`The circus-themed love story, already a novel and a movie, becomes a gorgeously imaginative Broadway musical.`\
+https://nytimes.com/2024/03/21/theater/water-for-elephants-review-broadway.html
+
 **Back From Gaza Hospitals, Doctors Tell Washington of Horrors Amid Cease-Fire Push**\
 `Volunteers who treated patients in harrowing conditions lobbied American officials on the urgency of an immediate cease-fire.`\
 https://nytimes.com/2024/03/21/world/middleeast/gaza-hospitals-doctors-israel-congress.html
