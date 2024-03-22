@@ -1,6 +1,6 @@
 **Another heavy blow for the British royal family.**\
 `By Mark Landler`\
-https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/another-heavy-blow-for-the-british-royal-family
+https://nytimes.com/2024/03/22/world/europe/kate-cancer-royals-harry-charles.html
 
 **Buckingham Palace said only last month that King Charles has cancer.**\
 `By Mark Landler`\
