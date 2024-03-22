@@ -1,3 +1,7 @@
+**How Peer Pressure Affects Voting**\
+`Why some voters of color no longer support the Democratic Party.`\
+https://nytimes.com/2024/03/22/briefing/2024-black-voting.html
+
 **U.S. to Push For Gaza Cease-Fire, Apple Gets Sued and More**\
 `Plus, don’t mess with Elvis.`\
 https://nytimes.com/2024/03/22/podcasts/us-to-push-for-gaza-cease-fire-apple-gets-sued-and-more.html
