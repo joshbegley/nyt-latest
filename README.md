@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Caitlyn Collins**\
+`The March 22, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/03/22/podcasts/transcript-ezra-klein-interviews-caitlyn-collins.html
+
 **Greene Threatens to Oust Johnson Over Spending Bill**\
 `Representative Marjorie Taylor Greene of Georgia began the process of calling for a vote to oust Speaker Mike Johnson after he pushed through a $1.2 trillion bipartisan spending bill.`\
 https://nytimes.com/video/us/politics/100000009376983/spending-bill-house.html
@@ -11,7 +15,7 @@ https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/nyc-rea
 https://nytimes.com/2024/03/22/nyregion/santos-leaves-republicans-independent.html
 
 **U.S. Embassy warned earlier in March about a possible attack.**\
-`By Constant Méheut and Anton Troianovski`\
+`Pro-Moscow forces had dismissed the alert as an attempt to scare Russians.`\
 https://nytimes.com/2024/03/22/world/europe/moscow-concert-attack-us-embassy.html
 
 **Wyoming Bans Gender Transition Care for Minors**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/world/middleeast/israel-gaza-security-council-vet
 **Kate Middleton Is Yet Another Victim of the Royal Circus**\
 `Cancer complicates the image of perfection that was projected on her, and never for her benefit.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/kate-middleton-cancer
-
-**F.B.I. Tells Passengers on Alaska Flight They May Have Been Crime Victims**\
-`Letters sent by the bureau’s Seattle office are a sign that the Justice Department’s investigation into Boeing, the maker of the plane whose fuselage panel blew off, is ramping up.`\
-https://nytimes.com/2024/03/22/us/politics/fbi-investigation-boeing.html
 
