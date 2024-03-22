@@ -1,3 +1,7 @@
+**Uganda’s Leader Names Son to Top Post, Fueling Talk of a Succession Plan**\
+`Gen. Muhoozi Kainerugaba, who has a reputation for provocative late-night tweets, has been working to position himself as heir apparent to his father, President Yoweri Museveni.`\
+https://nytimes.com/2024/03/22/world/africa/uganda-president-son.html
+
 **How the Fight Against Apple Could Redefine Antitrust Law**\
 `The Justice Department’s lawsuit against the iPhone maker pushes the boundaries of competition rules. Some experts say that may make winning more difficult.`\
 https://nytimes.com/2024/03/22/business/dealbook/apple-justice-antitrust.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/22/business/5-us-cases-big-tech.html
 **Justice Dept. Sues Apple, Smartphones and Children with Jonathan Haidt and Reddit’s I.P.O.**\
 `“We’ll see you in court.”`\
 https://nytimes.com/2024/03/22/podcasts/hard-fork-apple-lawsuit-reddit-ipo.html
-
-**How to Bargain Like a Kidnap Negotiator**\
-`One tip: Keep your cool.`\
-https://nytimes.com/2024/03/22/well/live/crisis-negotiation-skills.html
 
