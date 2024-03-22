@@ -1,3 +1,7 @@
+**Two Republicans Advance to a Runoff to Finish Kevin McCarthy’s Term**\
+`Vince Fong and Mike Boudreaux, who advanced to a special election in May, will also face each other in November to fill the former House speaker’s seat for a full, two-year term.`\
+https://nytimes.com/2024/03/22/us/politics/california-fong-boudreaux-mccarthy.html
+
 **United Airlines Faces Closer F.A.A. Scrutiny After Safety Incidents**\
 `The carrier, which has experienced several recent mishaps, told employees to expect a review by federal regulators in coming weeks.`\
 https://nytimes.com/2024/03/22/business/united-airlines-faa-safety.html
