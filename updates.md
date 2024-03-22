@@ -1,3 +1,11 @@
+**Investors Pour Money Into Wall St. as Stocks Set New Highs**\
+`The influx of cash reflects optimism about the economy and company earnings despite high interest rates and stubborn inflation.`\
+https://nytimes.com/2024/03/22/business/stock-market-rally.html
+
+**Congress Races to Pass $1.2 Trillion Spending Bill Before Shutdown Deadline**\
+`A surge of conservative Republican anger about the bipartisan package threatened to derail the measure as lawmakers in both chambers raced against the clock to clear it by midnight and avoid a funding lapse.`\
+https://nytimes.com/2024/03/22/world/europe/congress-races-to-pass-1-2-trillion-spending-bill-before-shutdown-deadline.html
+
 **Talking to Tana French**\
 `The great Irish crime novelist talks about her newest series.`\
 https://nytimes.com/2024/03/22/books/review/talking-to-tana-french.html

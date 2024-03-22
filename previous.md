@@ -1,3 +1,11 @@
+**Investors Pour Money Into Wall St. as Stocks Set New Highs**\
+`The influx of cash reflects optimism about the economy and company earnings despite high interest rates and stubborn inflation.`\
+https://nytimes.com/2024/03/22/business/stock-market-rally.html
+
+**Congress Races to Pass $1.2 Trillion Spending Bill Before Shutdown Deadline**\
+`A surge of conservative Republican anger about the bipartisan package threatened to derail the measure as lawmakers in both chambers raced against the clock to clear it by midnight and avoid a funding lapse.`\
+https://nytimes.com/2024/03/22/world/europe/congress-races-to-pass-1-2-trillion-spending-bill-before-shutdown-deadline.html
+
 **Talking to Tana French**\
 `The great Irish crime novelist talks about her newest series.`\
 https://nytimes.com/2024/03/22/books/review/talking-to-tana-french.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/22/arts/design/kiyan-williams-whitney-biennial-white
 **Uganda’s Leader Names Son to Top Post, Fueling Talk of a Succession Plan**\
 `Gen. Muhoozi Kainerugaba, who has a reputation for provocative late-night tweets, has been working to position himself as heir apparent to his father, President Yoweri Museveni.`\
 https://nytimes.com/2024/03/22/world/africa/uganda-president-son.html
-
-**How the Fight Against Apple Could Redefine Antitrust Law**\
-`The Justice Department’s lawsuit against the iPhone maker pushes the boundaries of competition rules. Some experts say that may make winning more difficult.`\
-https://nytimes.com/2024/03/22/business/dealbook/apple-justice-antitrust.html
-
-**Russian Attack Leaves Over a Million in Ukraine Without Electricity**\
-`Power plants and a major hydroelectric dam were damaged in what Ukrainian officials said was one of the war’s largest assaults on energy infrastructure.`\
-https://nytimes.com/2024/03/22/world/europe/russia-ukraine-war-attack.html
 
