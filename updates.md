@@ -1,3 +1,7 @@
+**‘Road House’ Review: This Remake Amps Up the Action**\
+`Jake Gyllenhaal stars as a pro fighter turned bouncer at a juke joint in the Florida Keys, taking on Patrick Swayze’s role in the original.`\
+https://nytimes.com/2024/03/22/movies/road-house-review-jake-gyllenhaal.html
+
 **Stellantis to Recall 285,000 Dodges and Chryslers for Airbag Danger**\
 `The recall could affect owners of Dodge Chargers and Chrysler 300s. The airbags have the potential to explode and hurl shrapnel.`\
 https://nytimes.com/2024/03/22/automobiles/stellantis-airbag-recall.html
