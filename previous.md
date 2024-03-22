@@ -1,6 +1,6 @@
 **Lorrie Moore Is Among National Book Critics Circle Award Winners**\
 `The awards included a lifetime achievement honor given to Judy Blume.`\
-https://nytimes.com/2024/03/21/books/lorrie-moore-is-among-national-book-critics-circle-award-winners.html
+https://nytimes.com/2024/03/21/books/lorrie-moore-national-book-critics-circle-awards.html
 
 **Sixteen States Sue Biden Administration Over Gas Permit Pause**\
 `President Biden halted approvals for new exports of liquefied natural gas to study its effect on the climate, national security and the economy. Major oil- and gas-producing states are angry.`\
