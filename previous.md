@@ -1,3 +1,7 @@
+**22mideast-crisis**\
+`Blinken in Israel as U.S. Prepares to Offer New Cease-Fire Resolution at U.N.`\
+https://nytimes.com/live/2024/03/22/world/israel-hamas-war-gaza-news
+
 **Blinken arrives in Israel fresh from meetings with Saudi and Egyptian officials.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/03/22/world/israel-hamas-war-gaza-news/blinken-goes-to-israel-fresh-from-meetings-with-saudi-and-egyptian-officials
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/learning/word-of-the-day-olfactory.html
 **Jimmy Kimmel Calls Trump’s V.P. Selection Process ‘The MAGA-pprentice’**\
 `Kimmel’s advice to Donald Trump’s potential running mates: “If he asks you to run, run!”`\
 https://nytimes.com/2024/03/22/arts/television/jimmy-kimmel-trump-bond.html
-
-**Friday Briefing**\
-`The U.S. sues Apple.`\
-https://nytimes.com/2024/03/22/briefing/apple-lawsuit-antitrust-germany-strike.html
 

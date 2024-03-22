@@ -1,3 +1,7 @@
+**22mideast-crisis**\
+`Blinken in Israel as U.S. Prepares to Offer New Cease-Fire Resolution at U.N.`\
+https://nytimes.com/live/2024/03/22/world/israel-hamas-war-gaza-news
+
 **Blinken arrives in Israel fresh from meetings with Saudi and Egyptian officials.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/03/22/world/israel-hamas-war-gaza-news/blinken-goes-to-israel-fresh-from-meetings-with-saudi-and-egyptian-officials
