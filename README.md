@@ -1,3 +1,7 @@
+**Two Republicans Advance to a Runoff to Finish Kevin McCarthy’s Term**\
+`Vince Fong and Mike Boudreaux, who advanced to a special election in May, will also face each other in November to fill the former House speaker’s seat for a full, two-year term.`\
+https://nytimes.com/2024/03/22/us/politics/california-fong-boudreaux-mccarthy.html
+
 **United Airlines Faces Closer F.A.A. Scrutiny After Safety Incidents**\
 `The carrier, which has experienced several recent mishaps, told employees to expect a review by federal regulators in coming weeks.`\
 https://nytimes.com/2024/03/22/business/united-airlines-faa-safety.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/well/live/cancer-children-princess-kate.html
 **Will the Rotters Keep Hounding Kate?**\
 `Cancer is a very personal thing, but the 42-year-old princess is a public figure saddled with an insatiable press corps.`\
 https://nytimes.com/2024/03/22/opinion/kate-middleton-princess-cancer.html
-
-**The Supreme Court and Young Voter Turnout**\
-`A 2013 ruling triggered a slew of laws that attached restrictions to voting.`\
-https://nytimes.com/2024/03/22/us/politics/the-supreme-court-and-young-voter-turnout.html
 
