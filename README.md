@@ -1,3 +1,11 @@
+**Julianna Margulies and Peter Gallagher to Star in Broadway Play**\
+`The duo will lead the cast of “Left on Tenth,” a stage adaptation of Delia Ephron’s best-selling memoir.`\
+https://nytimes.com/2024/03/22/theater/margulies-gallagher-ephron-broadway.html
+
+**Biden’s Big Bet on Chips Helps Jobs in the U.S. (and Costa Rica)**\
+`The United States can’t go it alone in the race for the future on semiconductors.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-intel-chips-costarica
+
 **How Biden Could Try to Coerce Israel to Change Its War Strategy**\
 `President Biden has tried persuading Prime Minister Benjamin Netanyahu behind the scenes. But critics say it is time for a different approach.`\
 https://nytimes.com/2024/03/22/us/politics/israel-biden-leverage.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/22/opinion/electric-vehicles-cars.html
 **The Met Museum Hires Its First Head of Provenance Research**\
 `Lucian Simmons is leaving Sotheby’s to lead the museum’s increased efforts to review its collection, which has recently returned looted artifacts, including dozens last year.`\
 https://nytimes.com/2024/03/22/arts/met-museum-first-provenance-research-head.html
-
-**Andrea Riseborough Has a Hidden Agenda**\
-`Currently in two series, “The Regime” and “Alice & Jack,” this versatile actress has played dozens of characters. What connects them? Not even she knows.`\
-https://nytimes.com/2024/03/22/arts/television/andrea-riseborough-the-regime-alice-and-jack.html
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include brotherly revenge, ghoulish specters and more.`\
-https://nytimes.com/2024/03/22/movies/five-action-movies-to-stream-now.html
 
