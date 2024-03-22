@@ -1,3 +1,11 @@
+**The Big Number: $50.44**\
+`After nearly two decades in business, Reddit, the San Francisco-based social media company, began publicly trading on the New York Stock Exchange.`\
+https://nytimes.com/interactive/2024/03/22/business/reddit-stock-ipo-market.html
+
+**Homes Are Destroyed by Russian Attack in Southeastern Ukraine**\
+`A Russian missile and drone attack destroyed homes and energy infrastructure across Ukraine, knocking out electricity for more than a million people.`\
+https://nytimes.com/video/world/europe/100000009376197/ukraine-russian-strikes-zaporizhzhia.html
+
 **Is Germany Heading for Humiliation at the Euros?**\
 `A nation that was soccer’s gold standard a decade ago is now trying anything and everything to find its way. The clock is ticking.`\
 https://nytimes.com/2024/03/22/world/europe/germany-euro-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/22/climate/toyota-hybrid-epa-pollution.html
 **The Philharmonic Adds 2 Premieres to a Diet of Classics**\
 `Jaap van Zweden, the orchestra’s music director, led new works by Joel Thompson and Tan Dun amid pieces by Mozart, Beethoven and Mendelssohn.`\
 https://nytimes.com/2024/03/22/arts/music/new-york-philharmonic-jaap-van-zweden.html
-
-**Sherrod Brown Embarks on the Race of His Life**\
-`Ohio will almost certainly go for Donald Trump this November. The Democratic senator will need to defy the gravity of the presidential contest to win a fourth term.`\
-https://nytimes.com/2024/03/22/us/politics/sherrod-brown-ohio.html
-
-**A Look at the Three Previous U.N. Cease-Fire Resolutions the U.S. Vetoed**\
-`Before a U.S. resolution in the United Nations Security Council calling for a cease-fire in Gaza was vetoed on Friday, the U.S. had vetoed three previous ones demanding a halt to the fighting.`\
-https://nytimes.com/2024/03/22/world/middleeast/us-cease-fire-resolution-vetoes.html
 

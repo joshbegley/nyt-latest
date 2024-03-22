@@ -1,3 +1,11 @@
+**The Big Number: $50.44**\
+`After nearly two decades in business, Reddit, the San Francisco-based social media company, began publicly trading on the New York Stock Exchange.`\
+https://nytimes.com/interactive/2024/03/22/business/reddit-stock-ipo-market.html
+
+**Homes Are Destroyed by Russian Attack in Southeastern Ukraine**\
+`A Russian missile and drone attack destroyed homes and energy infrastructure across Ukraine, knocking out electricity for more than a million people.`\
+https://nytimes.com/video/world/europe/100000009376197/ukraine-russian-strikes-zaporizhzhia.html
+
 **Is Germany Heading for Humiliation at the Euros?**\
 `A nation that was soccer’s gold standard a decade ago is now trying anything and everything to find its way. The clock is ticking.`\
 https://nytimes.com/2024/03/22/world/europe/germany-euro-2024.html
