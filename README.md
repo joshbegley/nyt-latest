@@ -1,3 +1,7 @@
+**Tyla Avoids a Bad Romance, and 9 More New Songs**\
+`Hear tracks by Olivia Rodrigo, Gary Clark Jr. featuring Stevie Wonder, Four Tet and others.`\
+https://nytimes.com/2024/03/22/arts/music/playlist-tyla-olivia-rodrigo-alicia-keys.html
+
 **A Rock Fell From Space Into Sweden. Who Owns It on Earth?**\
 `Sweden’s courts have been debating claims to a meteorite that fell north of Stockholm, including whether the right to move around in nature, including on private property, extends to claiming a meteorite.`\
 https://nytimes.com/2024/03/22/world/europe/sweden-meteorite-ownership.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-intel-chips-costarica
 **How Biden Could Try to Coerce Israel to Change Its War Strategy**\
 `President Biden has tried persuading Prime Minister Benjamin Netanyahu behind the scenes. But critics say it is time for a different approach.`\
 https://nytimes.com/2024/03/22/us/politics/israel-biden-leverage.html
-
-**Israel designates more West Bank land for possible settlement use.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/03/22/world/israel-hamas-war-gaza-news/israel-designates-more-west-bank-land-for-possible-settlement-use
 
