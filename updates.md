@@ -1,3 +1,11 @@
+**U.S. to Push For Gaza Cease-Fire, Apple Gets Sued and More**\
+`Plus, don’t mess with Elvis.`\
+https://nytimes.com/2024/03/22/podcasts/us-to-push-for-gaza-cease-fire-apple-gets-sued-and-more.html
+
+**A Sit-Down With Schumer After His Break With Netanyahu**\
+`The Senate majority leader, Chuck Schumer, explains why he decided to speak out against Benjamin Netanyahu, the Israeli prime minister.`\
+https://nytimes.com/2024/03/22/podcasts/the-daily/chuch-schumer-israel.html
+
 **A Sit-Down With Schumer After His Break With Netanyahu**\
 `The senate majority leader, Chuck Schumer, explains why he decided to speak out against Benjamin Netanyahu, the Israeli prime minister.`\
 https://nytimes.com/2024/03/22/podcasts/the-daily/chuch-schumer-israel.html

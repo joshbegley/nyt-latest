@@ -1,5 +1,9 @@
+**U.S. to Push For Gaza Cease-Fire, Apple Gets Sued and More**\
+`Plus, don’t mess with Elvis.`\
+https://nytimes.com/2024/03/22/podcasts/us-to-push-for-gaza-cease-fire-apple-gets-sued-and-more.html
+
 **A Sit-Down With Schumer After His Break With Netanyahu**\
-`The senate majority leader, Chuck Schumer, explains why he decided to speak out against Benjamin Netanyahu, the Israeli prime minister.`\
+`The Senate majority leader, Chuck Schumer, explains why he decided to speak out against Benjamin Netanyahu, the Israeli prime minister.`\
 https://nytimes.com/2024/03/22/podcasts/the-daily/chuch-schumer-israel.html
 
 **America’s Most Overlooked Political Divide Is Also Its Most Revealing**\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/22/arts/weekend-editors-picks-ghostbuste
 **To Get Your Finances in Order, Try ‘Loud Budgeting’**\
 `The term was recently coined on TikTok by a young comedian and writer who hopes it will empower people to open up about their financial goals.`\
 https://nytimes.com/interactive/2024/03/22/business/what-is-loud-budgeting.html
-
-**6 Paperbacks to Read This Week **\
-`Selected paperbacks from the Book Review, including titles by Colin Winnette, Rachel Cohen, Ricardo Nuila and more.`\
-https://nytimes.com/interactive/2024/03/22/books/new-paperbacks-robbins.html
 
