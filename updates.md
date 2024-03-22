@@ -1,3 +1,15 @@
+**‘3 Body Problem’ Episode 5 Recap: Judgment Day**\
+`An elaborate plan is disturbingly effective and once again, an episode closes on a horrific high note.`\
+https://nytimes.com/2024/03/22/arts/television/3-body-problem-episode-5-recap-judgment-day.html
+
+**The Deadly Moscow Concert Hall Attack in Photos**\
+`Images show the scene of what could be the deadliest attack in Russia in decades. Multiple gunmen killed at least 40 people in an assault in the capital’s outskirts.`\
+https://nytimes.com/2024/03/22/world/europe/moscow-concert-hall-attack-photos.html
+
+**The mood is somber at a British outpost in New York.**\
+`By Nate Schweber`\
+https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/nyc-reaction-kate-middleton
+
 **Gunmen Killed Dozens at a Moscow Concert Hall**\
 `Also, Princess Kate announced that she has cancer. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/03/22/briefing/moscow-concert-hall-attack-trump-billions.html
