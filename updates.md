@@ -1,3 +1,11 @@
+**Lorrie Moore Is Among National Book Critics Circle Award Winners**\
+`The awards included a lifetime achievement honor given to Judy Blume.`\
+https://nytimes.com/2024/03/21/books/lorrie-moore-is-among-national-book-critics-circle-award-winners.html
+
+**Sixteen States Sue Biden Administration Over Gas Permit Pause**\
+`President Biden halted approvals for new exports of liquefied natural gas to study its effect on the climate, national security and the economy. Major oil- and gas-producing states are angry.`\
+https://nytimes.com/2024/03/21/climate/states-sue-biden-lng-pause.html
+
 **Owner and Manager of Grimaldi’s Pizzeria Are Charged With Wage Theft**\
 `The men bilked seven employees of more than $20,000 in wages, the Manhattan district attorney said. Workers sent desperate text messages.`\
 https://nytimes.com/2024/03/21/nyregion/grimaldis-pizzeria-wage-theft.html
