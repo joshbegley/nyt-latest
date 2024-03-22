@@ -1,3 +1,7 @@
+**Israel designates more West Bank land for possible settlement use.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/03/22/world/israel-hamas-war-gaza-news/israel-designates-more-west-bank-land-for-possible-settlement-use
+
 **The Big Number: $50.44**\
 `After nearly two decades in business, Reddit, the San Francisco-based social media company, began publicly trading on the New York Stock Exchange.`\
 https://nytimes.com/interactive/2024/03/22/business/reddit-stock-ipo-market.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/movies/five-action-movies-to-stream-now.html
 **How Toyota, a Laggard on Electric Cars, Got Its Fight Back**\
 `The auto giant lobbied hard against tougher pollution rules. This week, the E.P.A.’s new rules proved favorable to hybrid technology, an area that Toyota dominates.`\
 https://nytimes.com/2024/03/22/climate/toyota-hybrid-epa-pollution.html
-
-**The Philharmonic Adds 2 Premieres to a Diet of Classics**\
-`Jaap van Zweden, the orchestra’s music director, led new works by Joel Thompson and Tan Dun amid pieces by Mozart, Beethoven and Mendelssohn.`\
-https://nytimes.com/2024/03/22/arts/music/new-york-philharmonic-jaap-van-zweden.html
 
