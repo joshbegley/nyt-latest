@@ -1,3 +1,7 @@
+**The White House Has That Sinking Feeling (Thanks to an Artist)**\
+`Kiyan Williams, for their Whitney Biennial commission, recreated the column-lined facade from soil. Viewers can watch as it crumbles, sprouts plants and births insects.`\
+https://nytimes.com/2024/03/22/arts/design/kiyan-williams-whitney-biennial-white-house.html
+
 **Uganda’s Leader Names Son to Top Post, Fueling Talk of a Succession Plan**\
 `Gen. Muhoozi Kainerugaba, who has a reputation for provocative late-night tweets, has been working to position himself as heir apparent to his father, President Yoweri Museveni.`\
 https://nytimes.com/2024/03/22/world/africa/uganda-president-son.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/22/world/israel-hamas-war-gaza-news/the-securit
 **Five U.S. Cases Targeting Big Tech **\
 `For years, Apple, Google, Meta and other tech giants operated unfettered. Now, regulators are taking steps to compel them to make major shifts to their products and businesses. `\
 https://nytimes.com/interactive/2024/03/22/business/5-us-cases-big-tech.html
-
-**Justice Dept. Sues Apple, Smartphones and Children with Jonathan Haidt and Reddit’s I.P.O.**\
-`“We’ll see you in court.”`\
-https://nytimes.com/2024/03/22/podcasts/hard-fork-apple-lawsuit-reddit-ipo.html
 
