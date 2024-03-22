@@ -1,3 +1,11 @@
+**Will the Rotters Keep Hounding Kate?**\
+`Cancer is a very personal thing, but the 42-year-old princess is a public figure saddled with an insatiable press corps.`\
+https://nytimes.com/2024/03/22/opinion/kate-middleton-princess-cancer.html
+
+**The Supreme Court and Young Voter Turnout**\
+`A 2013 ruling triggered a slew of laws that attached restrictions to voting.`\
+https://nytimes.com/2024/03/22/us/politics/the-supreme-court-and-young-voter-turnout.html
+
 **Another Heavy Blow for the British Royal Family**\
 `Harry and Meghan, the Duke and Duchess of Sussex, and King Charles III offered Catherine messages of encouragement.`\
 https://nytimes.com/2024/03/22/world/europe/kate-cancer-royals-harry-charles.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/19/opinion/thepoint/kate-middleton-royal-family
 **Transcript: Ezra Klein Interviews Caitlyn Collins**\
 `The March 22, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/03/22/podcasts/transcript-ezra-klein-interviews-caitlyn-collins.html
-
-**Greene Threatens to Oust Johnson Over Spending Bill**\
-`Representative Marjorie Taylor Greene of Georgia began the process of calling for a vote to oust Speaker Mike Johnson after he pushed through a $1.2 trillion bipartisan spending bill.`\
-https://nytimes.com/video/us/politics/100000009376983/spending-bill-house.html
-
-**The mood is somber at a British outpost in New York.**\
-`By Nate Schweber`\
-https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/nyc-reaction-kate-middleton
 

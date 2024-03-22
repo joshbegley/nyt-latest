@@ -1,3 +1,11 @@
+**Will the Rotters Keep Hounding Kate?**\
+`Cancer is a very personal thing, but the 42-year-old princess is a public figure saddled with an insatiable press corps.`\
+https://nytimes.com/2024/03/22/opinion/kate-middleton-princess-cancer.html
+
+**The Supreme Court and Young Voter Turnout**\
+`A 2013 ruling triggered a slew of laws that attached restrictions to voting.`\
+https://nytimes.com/2024/03/22/us/politics/the-supreme-court-and-young-voter-turnout.html
+
 **Another Heavy Blow for the British Royal Family**\
 `Harry and Meghan, the Duke and Duchess of Sussex, and King Charles III offered Catherine messages of encouragement.`\
 https://nytimes.com/2024/03/22/world/europe/kate-cancer-royals-harry-charles.html
