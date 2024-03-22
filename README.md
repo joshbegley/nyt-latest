@@ -1,3 +1,11 @@
+**Catherine, Princess of Wales, Has Cancer**\
+`The princess described the news as a “huge shock” and asked for “time, space and privacy” in a prerecorded video broadcast on the BBC on Friday evening.`\
+https://nytimes.com/2024/03/22/world/europe/princess-kate-middleton-cancer.html
+
+**7 Songs From My L.A. Record Haul**\
+`Hear tracks from Cass Elliot, the Pretenders, Sam Cooke and more from the Record Parlour in Hollywood.`\
+https://nytimes.com/2024/03/22/arts/music/amplifier-newsletter-la-record-haul.html
+
 **Joni Mitchell, Following Neil Young, Returns to Spotify After Protest**\
 `Her music has quietly reappeared on the streaming service, two years after a departure over what she called “lies” about Covid-19 vaccines in podcasts.`\
 https://nytimes.com/2024/03/22/arts/music/joni-mitchell-spotify.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/22/us/politics/greene-oust-johnson-spending-bill.htm
 **My 60-Year-Old Brother has Never Seen ‘Star Wars.’ Help!**\
 `His excuse? He thinks “sci-fi is dumb.”`\
 https://nytimes.com/2024/03/22/magazine/my-60-year-old-brother-has-never-seen-star-wars-help.html
-
-**What to Do if Violence Breaks Out on Your Train or Bus**\
-`Public transportation is not necessarily more dangerous than other settings, but there are some ways that experts recommend to get out of a risky situation.`\
-https://nytimes.com/2024/03/22/us/public-transit-safety-subway-guide.html
-
-**What’s Next for the Coronavirus?**\
-`Scientists studying the virus’s continuing evolution, and the body’s immune responses, hope to head off a resurgence and to better understand long Covid.`\
-https://nytimes.com/2024/03/22/health/coronavirus-evolution-immunity.html
 
