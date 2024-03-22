@@ -27,7 +27,7 @@ https://nytimes.com/2024/03/22/technology/gm-onstar-driver-data.html
 https://nytimes.com/2024/03/22/sports/march-madness-ncaa-tournament-expansion.html
 
 **‘Road House’ Review: This Remake Amps Up the Action**\
-`Jake Gyllenhaal stars a pro fighter turned bouncer at a juke joint in the Florida Keys, taking on Patrick Swayze’s role in the original.`\
+`Jake Gyllenhaal stars as a pro fighter turned bouncer at a juke joint in the Florida Keys, taking on Patrick Swayze’s role in the original.`\
 https://nytimes.com/2024/03/22/movies/road-house-review-jake-gyllenhaal.html
 
 **Princess of Wales Announces Cancer Diagnosis**\
