@@ -1,3 +1,11 @@
+**Sherrod Brown Embarks on the Race of His Life**\
+`Ohio will almost certainly go for Donald Trump this November. The Democratic senator will need to defy the gravity of the presidential contest to win a fourth term.`\
+https://nytimes.com/2024/03/22/us/politics/sherrod-brown-ohio.html
+
+**A Look at the Three Previous U.N. Cease-Fire Resolutions the U.S. Vetoed**\
+`Before a U.S. resolution in the United Nations Security Council calling for a cease-fire in Gaza was vetoed on Friday, the U.S. had vetoed three previous ones demanding a halt to the fighting.`\
+https://nytimes.com/2024/03/22/world/middleeast/us-cease-fire-resolution-vetoes.html
+
 **Donald Trump Continues Violent Rhetoric**\
 `In his third presidential race, Donald J. Trump is continuing a theme from previous election cycles: using violent rhetoric on the campaign trail.`\
 https://nytimes.com/video/us/elections/100000009369976/donald-trump-continues-violent-rhetoric.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/22/books/review/talking-to-tana-french.html
 **What’s It Like to Be Cinderella in March? These Schools Know.**\
 `As administrators at universities like St. Peter’s, Fairleigh Dickinson and Florida Gulf Coast can attest, upset victories bring attention, alumni donations and a lot of work.`\
 https://nytimes.com/2024/03/22/business/ncaa-tournament-upset-victories.html
-
-**Obama Feared a ‘One-Term Presidency’ After Passing Health Care Law**\
-`A set of oral histories released on Friday documents the behind-the-scenes drama of President Barack Obama’s drive to pass the Affordable Care Act, his most important legislative achievement.`\
-https://nytimes.com/2024/03/22/us/politics/obama-obamacare-oral-history.html
-
-**Insurers Report Rising Hail Damage Claims**\
-`Inflation is driving up the cost of materials and labor to repair roofs and cars. Adding to insurers’ costs is increased development in areas affected by severe storms.`\
-https://nytimes.com/2024/03/22/your-money/insurers-report-rising-hail-damage-claims.html
 

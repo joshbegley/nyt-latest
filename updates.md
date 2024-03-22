@@ -1,3 +1,11 @@
+**Sherrod Brown Embarks on the Race of His Life**\
+`Ohio will almost certainly go for Donald Trump this November. The Democratic senator will need to defy the gravity of the presidential contest to win a fourth term.`\
+https://nytimes.com/2024/03/22/us/politics/sherrod-brown-ohio.html
+
+**A Look at the Three Previous U.N. Cease-Fire Resolutions the U.S. Vetoed**\
+`Before a U.S. resolution in the United Nations Security Council calling for a cease-fire in Gaza was vetoed on Friday, the U.S. had vetoed three previous ones demanding a halt to the fighting.`\
+https://nytimes.com/2024/03/22/world/middleeast/us-cease-fire-resolution-vetoes.html
+
 **Donald Trump Continues Violent Rhetoric**\
 `In his third presidential race, Donald J. Trump is continuing a theme from previous election cycles: using violent rhetoric on the campaign trail.`\
 https://nytimes.com/video/us/elections/100000009369976/donald-trump-continues-violent-rhetoric.html
