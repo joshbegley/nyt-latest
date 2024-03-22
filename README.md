@@ -1,3 +1,7 @@
+**U.S. Embassy warned earlier in March about a possible attack.**\
+`By Constant Méheut and Anton Troianovski`\
+https://nytimes.com/live/2024/03/22/world/moscow-shooting/us-embassy-warned-earlier-in-march-about-a-possible-attack
+
 **Wyoming Bans Gender Transition Care for Minors**\
 `The governor signed a bill that prohibited the practice for children, making Wyoming the 24th state to have passed such a ban.`\
 https://nytimes.com/2024/03/22/us/wyoming-transgender-ban.html
