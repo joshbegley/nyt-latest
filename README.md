@@ -1,3 +1,7 @@
+**Chicago Voters Reject Real Estate Tax Change to Fund Homeless Programs**\
+`The referendum, backed by progressives but criticized by the real estate industry, called for raising transfer taxes on properties that sell for more than $1 million.`\
+https://nytimes.com/2024/03/22/us/chicago-real-estate-tax-vote.html
+
 **Laurent de Brunhoff, Artist Who Made Babar Famous, Dies at 98**\
 `After his father, who created the character, died, he continued the series of books about a modest elephant and his escapades in Paris for seven decades.`\
 https://nytimes.com/2024/03/22/books/laurent-de-brunhoff-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/bucking
 **‘3 Body Problem’ Episode 5 Recap: Judgment Day**\
 `An elaborate plan is disturbingly effective and once again, an episode closes on a horrific high note.`\
 https://nytimes.com/2024/03/22/arts/television/3-body-problem-episode-5-recap-judgment-day.html
-
-**The Deadly Moscow Concert Hall Attack in Photos**\
-`Images show the scene of what could be the deadliest attack in Russia in decades. Multiple gunmen killed at least 40 people in an assault in the capital’s outskirts.`\
-https://nytimes.com/2024/03/22/world/europe/moscow-concert-hall-attack-photos.html
 
