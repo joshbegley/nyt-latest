@@ -1,3 +1,7 @@
+**Idaho Prison Gang Member and Accomplice Arrested After Hospital Ambush**\
+`The two men fled from a hospital in Boise, Idaho, after an ambush in which three corrections officers were shot. The authorities were investigating whether they had killed two people while at large.`\
+https://nytimes.com/2024/03/21/us/idaho-escaped-inmate-hospital-ambush.html
+
 **Doctors, Back From Gaza Hospitals, Tell Washington of Horrors Amid Cease-Fire Push**\
 `Volunteers who treated patients in harrowing conditions lobbied American officials on the urgency of an immediate cease-fire.`\
 https://nytimes.com/2024/03/21/world/middleeast/gaza-hospitals-doctors-israel-congress.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/21/us/politics/tennessee-ai-music-law.html
 **No Charges in Death of Nex Benedict, Prosecutor Says**\
 `The Tulsa County district attorney said a fight involving the nonbinary student in an Oklahoma high school bathroom was “mutual combat.” The death has been ruled a suicide.`\
 https://nytimes.com/2024/03/21/us/nex-benedict-nonbinary-suicide-charges.html
-
-**U.S. Draft Resolution Would Call for ‘Immediate and Sustained Cease-Fire’**\
-`A resolution for the U.N. that American diplomats are circulating was notable for its strong language in seeking a cease-fire in Gaza and the release of hostages.`\
-https://nytimes.com/2024/03/21/world/middleeast/gaza-blinken-ceasefire.html
 

@@ -1,3 +1,11 @@
+**Doctors, Back From Gaza Hospitals, Tell Washington of Horrors Amid Cease-Fire Push**\
+`Volunteers who treated patients in harrowing conditions lobbied American officials on the urgency of an immediate cease-fire.`\
+https://nytimes.com/2024/03/21/world/middleeast/gaza-hospitals-doctors-israel-congress.html
+
+**Giant Neon Eggs and Other Outdoor Art to See in Hong Kong This Spring**\
+`Eye-popping pieces are cropping up around Victoria Harbor this month, just in time for Art Basel Hong Kong.`\
+https://nytimes.com/2024/03/21/arts/design/art-basel-hong-kong-outdoor-art.html
+
 **Volunteer Doctor Details Dire Conditions at a Gaza Hospital**\
 `Nick Maynard, part of a delegation of doctors who volunteered in Gaza, described “appalling atrocities” and the need for an immediate cease-fire at a news conference at the United Nations on Tuesday.`\
 https://nytimes.com/video/world/middleeast/100000009375768/gaza-hospital-war.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/03/21/us/nex-benedict-nonbinary-suicide-charges.html
 **U.S. Draft Resolution Would Call for ‘Immediate and Sustained Cease-Fire’**\
 `A resolution for the U.N. that American diplomats are circulating was notable for its strong language in seeking a cease-fire in Gaza and the release of hostages.`\
 https://nytimes.com/2024/03/21/world/middleeast/gaza-blinken-ceasefire.html
-
-**What’s the Matter With Ohio?**\
-`How a blue-collar state went MAGA.`\
-https://nytimes.com/2024/03/21/opinion/trump-biden-economy-ohio.html
-
-**Prehistoric Amphibian Ancestor Is Named for Kermit the Frog**\
-`The species seemed to have bug eyes and a smile, so a team of researchers named it Kermitops gratus in honor of the banjo-playing Muppet.`\
-https://nytimes.com/2024/03/21/science/kermitops-amphibian-kermit-frog-texas.html
 
