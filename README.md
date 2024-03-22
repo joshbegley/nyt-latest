@@ -1,6 +1,6 @@
-**Blinken goes to Israel fresh from meetings with Saudi and Egyptian officials.**\
+**Blinken arrives in Israel fresh from meetings with Saudi and Egyptian officials.**\
 `By Michael Crowley`\
-https://nytimes.com/2024/03/22/world/middleeast/blinken-goes-to-israel-fresh-from-meetings-with-saudi-and-egyptian-officials.html
+https://nytimes.com/live/2024/03/22/world/israel-hamas-war-gaza-news/blinken-goes-to-israel-fresh-from-meetings-with-saudi-and-egyptian-officials
 
 **Public Selfies**\
 `Tell us a story, real or made up, that is inspired by this image.`\
