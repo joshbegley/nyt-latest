@@ -1,3 +1,11 @@
+**U.N. Security Council Fails to Pass Gaza Cease-Fire Resolution**\
+`China and Russia blocked a U.S. resolution for a cease-fire in Gaza at the United Nations Security Council.`\
+https://nytimes.com/video/world/100000009376406/un-security-council-veto-ceasefire.html
+
+**Greene Threatens to Oust Johnson Over Spending Bill**\
+`The hard-right Georgia Republican called the $1.2 trillion legislation an “atrocious attack on the American people” and said the speaker had betrayed his G.O.P. colleagues.`\
+https://nytimes.com/2024/03/22/us/politics/greene-oust-johnson-spending-bill.html
+
 **Greene Threatens to Oust Johnson Over Spending Bill**\
 `The hard-right Georgia Republican called the $1.2 trillion legislation an “atrocious attack on the American people” and said the speaker had betrayed his G.O.P. colleagues.`\
 https://nytimes.com/2024/03/22/us/politics/greene-threatens-to-oust-johnson-over-spending-bill.html
