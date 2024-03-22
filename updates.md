@@ -1,3 +1,15 @@
+**Greene Threatens to Oust Johnson Over Spending Bill**\
+`Representative Marjorie Taylor Greene of Georgia began the process of calling for a vote to oust Speaker Mike Johnson after he pushed through a $1.2 trillion bipartisan spending bill.`\
+https://nytimes.com/video/us/politics/100000009376983/spending-bill-house.html
+
+**The mood is somber at a British outpost in the West Village.**\
+`By Nate Schweber`\
+https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/nyc-reaction-kate-middleton
+
+**George Santos Says He Is Done With the G.O.P. (The Feeling Is Mutual.)**\
+`Mr. Santos said he would no longer seek the Republican line in a House race on Long Island, and planned to run as an independent.`\
+https://nytimes.com/2024/03/22/nyregion/santos-leaves-republicans-independent.html
+
 **U.S. Embassy warned earlier in March about a possible attack.**\
 `By Constant Méheut and Anton Troianovski`\
 https://nytimes.com/live/2024/03/22/world/moscow-shooting/us-embassy-warned-earlier-in-march-about-a-possible-attack
