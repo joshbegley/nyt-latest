@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`The U.S. sues Apple.`\
+https://nytimes.com/2024/03/22/briefing/apple-lawsuit-antitrust-germany-strike.html
+
 **Quotation of the Day: To Freaknik Revelers’ Chagrin, New Film Digs Up Old Tapes**\
 `Quotation of the Day for Friday, March 22, 2024.`\
 https://nytimes.com/2024/03/22/pageoneplus/quotation-of-the-day-to-freaknik-revelers-chagrin-new-film-digs-up-old-tapes.html
