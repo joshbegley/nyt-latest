@@ -1,3 +1,7 @@
+**Catherine’s Cancer Diagnosis Puts U.K. Royals on Even More Uncertain Terrain**\
+`First King Charles and now Catherine, Princess of Wales, are facing grave health concerns, stretching an already slimmed-down monarchy.`\
+https://nytimes.com/2024/03/22/world/europe/princess-kate-cancer-royal-family.html
+
 **At Oakland University, Students and Alumni Bask in the N.C.A.A. Spotlight**\
 `Supporters of the little-known college on Friday celebrated its moment of fame after a shocking first-round win.`\
 https://nytimes.com/2024/03/22/us/oakland-university-march-madness-ncaa.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/us/politics/the-supreme-court-and-young-voter-tur
 **Another Heavy Blow for the British Royal Family**\
 `Harry and Meghan, the Duke and Duchess of Sussex, and King Charles III offered Catherine messages of encouragement.`\
 https://nytimes.com/2024/03/22/world/europe/kate-cancer-royals-harry-charles.html
-
-**Buckingham Palace said only last month that King Charles has cancer.**\
-`By Mark Landler`\
-https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/buckingham-palace-said-only-last-month-that-king-charles-has-cancer
 
