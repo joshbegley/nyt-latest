@@ -1,5 +1,9 @@
 **Congress Races to Pass $1.2 Trillion Spending Bill Before Shutdown Deadline**\
 `A surge of conservative Republican anger about the bipartisan package threatened to derail the measure as lawmakers in both chambers worked to avoid a funding lapse.`\
+https://nytimes.com/2024/03/22/us/politics/congress-spending-bill-government-shutdown.html
+
+**Congress Races to Pass $1.2 Trillion Spending Bill Before Shutdown Deadline**\
+`A surge of conservative Republican anger about the bipartisan package threatened to derail the measure as lawmakers in both chambers worked to avoid a funding lapse.`\
 https://nytimes.com/2024/03/22/world/europe/congress-spending-bill-government-shutdown.html
 
 **Investors Pour Money Into Wall St. as Stocks Set New Highs**\
