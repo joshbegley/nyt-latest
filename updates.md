@@ -1,3 +1,7 @@
+**Kate Middleton Is Yet Another Victim of the Royal Circus**\
+`Cancer complicates the image of perfection that was projected on her, and never for her benefit.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/kate-middleton-cancer
+
 **As More Members Leave, House G.O.P. Will Be Able to Spare Just 1 Vote**\
 `The unexpectedly early departure next month of Representative Mike Gallagher of Wisconsin came shortly after Speaker Mike Johnson had said he believed “that’s the end of the exits for now.”`\
 https://nytimes.com/2024/03/22/us/politics/house-republican-majority-mike-gallagher.html

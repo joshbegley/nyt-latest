@@ -11,7 +11,7 @@ https://nytimes.com/2024/03/22/books/lyn-hejinian-dead.html
 https://nytimes.com/2024/03/22/world/middleeast/israel-gaza-security-council-veto.html
 
 **Kate Middleton Is Yet Another Victim of the Royal Circus**\
-`Cancer complicates the image of perfection that the masses cruelly tried to project on her.`\
+`Cancer complicates the image of perfection that was projected on her, and never for her benefit.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/kate-middleton-cancer
 
 **F.B.I. Tells Passengers on Alaska Flight They May Have Been Crime Victims**\
