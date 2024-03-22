@@ -1,3 +1,11 @@
+**A Sit-Down With Schumer After His Break With Netanyahu**\
+`The senate majority leader, Chuck Schumer, explains why he decided to speak out against Benjamin Netanyahu, the Israeli prime minister.`\
+https://nytimes.com/2024/03/22/podcasts/the-daily/chuch-schumer-israel.html
+
+**America’s Most Overlooked Political Divide Is Also Its Most Revealing**\
+`Polls that don’t change can be illuminating.`\
+https://nytimes.com/2024/03/22/opinion/christian-nationalists-polling-divide.html
+
 **The Security Council is expected to vote on a U.S.-backed resolution calling for a sustained cease-fire.**\
 `By Victoria Kim`\
 https://nytimes.com/live/2024/03/22/world/israel-hamas-war-gaza-news/the-security-council-is-expected-to-vote-on-a-us-backed-resolution-calling-for-a-sustained-cease-fire
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/03/22/business/what-is-loud-budgeting.html
 **6 Paperbacks to Read This Week **\
 `Selected paperbacks from the Book Review, including titles by Colin Winnette, Rachel Cohen, Ricardo Nuila and more.`\
 https://nytimes.com/interactive/2024/03/22/books/new-paperbacks-robbins.html
-
-**King Charles Hosts a Fashion Show**\
-`Clothes from a collaboration between the king and two designers are on view at a royal estate. Plus, a new line by Isaac Mizrahi (that’s not for QVC).`\
-https://nytimes.com/2024/03/22/style/king-charles-iii-fashion.html
-
-**The New York Times News Quiz, March 22, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/03/22/briefing/news-quiz-trump-biden-texas.html
 

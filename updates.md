@@ -1,3 +1,11 @@
+**A Sit-Down With Schumer After His Break With Netanyahu**\
+`The senate majority leader, Chuck Schumer, explains why he decided to speak out against Benjamin Netanyahu, the Israeli prime minister.`\
+https://nytimes.com/2024/03/22/podcasts/the-daily/chuch-schumer-israel.html
+
+**America’s Most Overlooked Political Divide Is Also Its Most Revealing**\
+`Polls that don’t change can be illuminating.`\
+https://nytimes.com/2024/03/22/opinion/christian-nationalists-polling-divide.html
+
 **The Security Council is expected to vote on a U.S.-backed resolution calling for a sustained cease-fire.**\
 `By Victoria Kim`\
 https://nytimes.com/live/2024/03/22/world/israel-hamas-war-gaza-news/the-security-council-is-expected-to-vote-on-a-us-backed-resolution-calling-for-a-sustained-cease-fire
