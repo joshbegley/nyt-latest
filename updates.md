@@ -1,3 +1,15 @@
+**U.S. Measles Cases Surpass 2023 Levels, C.D.C. Says**\
+`There are several factors driving the spread of the highly infectious virus, experts said.`\
+https://nytimes.com/2024/03/22/well/live/measles-cases-united-states.html
+
+**The Royal Family Doth Explain Too Much**\
+`Let the public yammer, and let Kate give health information as she feels comfortable.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/kate-middleton-royal-family
+
+**U.S. Warned About Possible Moscow Attack Before Concert Hall Shooting**\
+`Pro-Moscow forces had dismissed the alert as an attempt to scare Russians.`\
+https://nytimes.com/2024/03/22/world/europe/moscow-concert-attack-us-embassy.html
+
 **Transcript: Ezra Klein Interviews Caitlyn Collins**\
 `The March 22, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/03/22/podcasts/transcript-ezra-klein-interviews-caitlyn-collins.html
