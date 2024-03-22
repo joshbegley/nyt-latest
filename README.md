@@ -14,7 +14,7 @@ https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/nyc-rea
 `Mr. Santos said he would no longer seek the Republican line in a House race on Long Island, and planned to run as an independent.`\
 https://nytimes.com/2024/03/22/nyregion/santos-leaves-republicans-independent.html
 
-**U.S. Embassy warned earlier in March about a possible attack.**\
+**U.S. Embassy Warned Earlier in March About a Possible Attack**\
 `Pro-Moscow forces had dismissed the alert as an attempt to scare Russians.`\
 https://nytimes.com/2024/03/22/world/europe/moscow-concert-attack-us-embassy.html
 
