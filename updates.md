@@ -1,3 +1,7 @@
+**Tyla Avoids a Bad Romance, and 9 More New Songs**\
+`Hear tracks by Olivia Rodrigo, Gary Clark Jr. featuring Stevie Wonder, Four Tet and others.`\
+https://nytimes.com/2024/03/22/arts/music/playlist-tyla-olivia-rodrigo-alicia-keys.html
+
 **A Rock Fell From Space Into Sweden. Who Owns It on Earth?**\
 `Sweden’s courts have been debating claims to a meteorite that fell north of Stockholm, including whether the right to move around in nature, including on private property, extends to claiming a meteorite.`\
 https://nytimes.com/2024/03/22/world/europe/sweden-meteorite-ownership.html
