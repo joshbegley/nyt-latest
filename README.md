@@ -1,3 +1,7 @@
+**Greene Threatens to Oust Johnson Over Spending Bill**\
+`The hard-right Georgia Republican called the $1.2 trillion legislation an “atrocious attack on the American people” and said the speaker had betrayed his G.O.P. colleagues.`\
+https://nytimes.com/2024/03/22/us/politics/greene-threatens-to-oust-johnson-over-spending-bill.html
+
 **My 60-Year-Old Brother has Never Seen ‘Star Wars.’ Help!**\
 `His excuse? He thinks “sci-fi is dumb.”`\
 https://nytimes.com/2024/03/22/magazine/my-60-year-old-brother-has-never-seen-star-wars-help.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/22/business/reddit-stock-ipo-market.html
 **Homes Are Destroyed by Russian Attack in Southeastern Ukraine**\
 `A Russian missile and drone attack destroyed homes and energy infrastructure across Ukraine, knocking out electricity for more than a million people.`\
 https://nytimes.com/video/world/europe/100000009376197/ukraine-russian-strikes-zaporizhzhia.html
-
-**Is Germany Heading for Humiliation at the Euros?**\
-`A nation that was soccer’s gold standard a decade ago is now trying anything and everything to find its way. The clock is ticking.`\
-https://nytimes.com/2024/03/22/world/europe/germany-euro-2024.html
 

@@ -1,3 +1,7 @@
+**My 60-Year-Old Brother has Never Seen ‘Star Wars.’ Help!**\
+`His excuse? He thinks “sci-fi is dumb.”`\
+https://nytimes.com/2024/03/22/magazine/my-60-year-old-brother-has-never-seen-star-wars-help.html
+
 **What to Do if Violence Breaks Out on Your Train or Bus**\
 `Public transportation is not necessarily more dangerous than other settings, but there are some ways that experts recommend to get out of a risky situation.`\
 https://nytimes.com/2024/03/22/us/public-transit-safety-subway-guide.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009376197/ukraine-russian-strikes-z
 **Is Germany Heading for Humiliation at the Euros?**\
 `A nation that was soccer’s gold standard a decade ago is now trying anything and everything to find its way. The clock is ticking.`\
 https://nytimes.com/2024/03/22/world/europe/germany-euro-2024.html
-
-**Personalize Your Perloo, Finesse Your Fish Chowder**\
-`Satisfying dishes that invite improvisation.`\
-https://nytimes.com/2024/03/22/dining/personalize-your-perloo-finesse-your-fish-chowder.html
 

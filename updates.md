@@ -1,3 +1,7 @@
+**My 60-Year-Old Brother has Never Seen ‘Star Wars.’ Help!**\
+`His excuse? He thinks “sci-fi is dumb.”`\
+https://nytimes.com/2024/03/22/magazine/my-60-year-old-brother-has-never-seen-star-wars-help.html
+
 **What to Do if Violence Breaks Out on Your Train or Bus**\
 `Public transportation is not necessarily more dangerous than other settings, but there are some ways that experts recommend to get out of a risky situation.`\
 https://nytimes.com/2024/03/22/us/public-transit-safety-subway-guide.html
