@@ -1,3 +1,7 @@
+**Enraged Over Spending Bill, Greene Threatens to Oust Johnson**\
+`The hard-right Georgia Republican called the $1.2 trillion legislation an “atrocious attack on the American people” and said the speaker had betrayed his G.O.P. colleagues.`\
+https://nytimes.com/2024/03/22/us/politics/greene-oust-johnson-spending-bill.html
+
 **Valentino’s Creative Director Is Departing**\
 `Pierpaolo Piccioli, known for his bold use of color and studded leather shoes, had been at the fashion house for 25 years.`\
 https://nytimes.com/2024/03/22/fashion/valentino-creative-director-pierpaolo-piccioli.html
