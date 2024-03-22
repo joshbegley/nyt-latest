@@ -1,3 +1,7 @@
+**Joni Mitchell, Following Neil Young, Returns to Spotify After Protest**\
+`Her music has quietly reappeared on the streaming service, two years after a departure over what she called “lies” about Covid-19 vaccines in podcasts.`\
+https://nytimes.com/2024/03/22/arts/music/joni-mitchell-spotify.html
+
 **Valentino’s Creative Director Is Departing**\
 `Pierpaolo Piccioli, known for his bold use of color and studded leather shoes, had been at the fashion house for 25 years.`\
 https://nytimes.com/2024/03/22/fashion/valentino-creative-director-pierpaolo-piccioli.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/us/public-transit-safety-subway-guide.html
 **What’s Next for the Coronavirus?**\
 `Scientists studying the virus’s continuing evolution, and the body’s immune responses, hope to head off a resurgence and to better understand long Covid.`\
 https://nytimes.com/2024/03/22/health/coronavirus-evolution-immunity.html
-
-**Julianna Margulies and Peter Gallagher to Star in Broadway Play**\
-`The duo will lead the cast of “Left on Tenth,” a stage adaptation of Delia Ephron’s best-selling memoir.`\
-https://nytimes.com/2024/03/22/theater/margulies-gallagher-ephron-broadway.html
 

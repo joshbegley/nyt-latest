@@ -1,3 +1,7 @@
+**Joni Mitchell, Following Neil Young, Returns to Spotify After Protest**\
+`Her music has quietly reappeared on the streaming service, two years after a departure over what she called “lies” about Covid-19 vaccines in podcasts.`\
+https://nytimes.com/2024/03/22/arts/music/joni-mitchell-spotify.html
+
 **Enraged Over Spending Bill, Greene Threatens to Oust Johnson**\
 `The hard-right Georgia Republican called the $1.2 trillion legislation an “atrocious attack on the American people” and said the speaker had betrayed his G.O.P. colleagues.`\
 https://nytimes.com/2024/03/22/us/politics/greene-oust-johnson-spending-bill.html
