@@ -1,3 +1,7 @@
+**At Oakland University, Students and Alumni Bask in the N.C.A.A. Spotlight**\
+`Supporters of the little-known college on Friday celebrated its moment of fame after a shocking first-round win.`\
+https://nytimes.com/2024/03/22/us/oakland-university-march-madness-ncaa.html
+
 **Chicago Voters Reject Real Estate Tax Change to Fund Homeless Programs**\
 `The referendum, backed by progressives but criticized by the real estate industry, called for raising transfer taxes on properties that sell for more than $1 million.`\
 https://nytimes.com/2024/03/22/us/chicago-real-estate-tax-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/world/europe/kate-cancer-royals-harry-charles.htm
 **Buckingham Palace said only last month that King Charles has cancer.**\
 `By Mark Landler`\
 https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/buckingham-palace-said-only-last-month-that-king-charles-has-cancer
-
-**‘3 Body Problem’ Episode 5 Recap: Judgment Day**\
-`An elaborate plan is disturbingly effective and once again, an episode closes on a horrific high note.`\
-https://nytimes.com/2024/03/22/arts/television/3-body-problem-episode-5-recap-judgment-day.html
 

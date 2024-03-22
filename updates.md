@@ -1,3 +1,7 @@
+**At Oakland University, Students and Alumni Bask in the N.C.A.A. Spotlight**\
+`Supporters of the little-known college on Friday celebrated its moment of fame after a shocking first-round win.`\
+https://nytimes.com/2024/03/22/us/oakland-university-march-madness-ncaa.html
+
 **Chicago Voters Reject Real Estate Tax Change to Fund Homeless Programs**\
 `The referendum, backed by progressives but criticized by the real estate industry, called for raising transfer taxes on properties that sell for more than $1 million.`\
 https://nytimes.com/2024/03/22/us/chicago-real-estate-tax-vote.html
