@@ -1,3 +1,11 @@
+**Donald Trump Continues Violent Rhetoric**\
+`In his third presidential race, Donald J. Trump is continuing a theme from previous election cycles: using violent rhetoric on the campaign trail.`\
+https://nytimes.com/video/us/elections/100000009369976/donald-trump-continues-violent-rhetoric.html
+
+**Trump Media Merger Is Approved, Providing Fresh Source of Cash**\
+`The deal will pump money into Trump Media, which will allow Truth Social to keep operating. Mr. Trump’s personal stake in the company will be worth more than $3 billion on paper.`\
+https://nytimes.com/2024/03/22/business/trump-media-merger-truth-social.html
+
 **The Best of Late Night This Week**\
 `This week, the hosts riffed on politics, pop culture and sports news, including former President Donald Trump’s struggles to arrange a half-billion-dollar bond for his civil fraud case in New York, the frenzy over Kate Middleton’s whereabouts, and the start of March Madness.`\
 https://nytimes.com/interactive/2024/03/22/arts/television/best-of-late-night-kate-middleton.html
