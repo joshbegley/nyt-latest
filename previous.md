@@ -1,3 +1,11 @@
+**How Toyota, a Laggard on Electric Cars, Got Its Fight Back**\
+`The auto giant lobbied hard against tougher pollution rules. This week, the E.P.A.’s new rules proved favorable to hybrid technology, an area that Toyota dominates.`\
+https://nytimes.com/2024/03/22/climate/toyota-hybrid-epa-pollution.html
+
+**The Philharmonic Adds 2 Premieres to a Diet of Classics**\
+`Jaap van Zweden, the orchestra’s music director, led new works by Joel Thompson and Tan Dun amid pieces by Mozart, Beethoven and Mendelssohn.`\
+https://nytimes.com/2024/03/22/arts/music/new-york-philharmonic-jaap-van-zweden.html
+
 **Sherrod Brown Embarks on the Race of His Life**\
 `Ohio will almost certainly go for Donald Trump this November. The Democratic senator will need to defy the gravity of the presidential contest to win a fourth term.`\
 https://nytimes.com/2024/03/22/us/politics/sherrod-brown-ohio.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/22/business/stock-market-rally.html
 **Congress Races to Pass $1.2 Trillion Spending Bill Before Shutdown Deadline**\
 `A surge of conservative Republican anger about the bipartisan package threatened to derail the measure as lawmakers in both chambers worked to avoid a funding lapse.`\
 https://nytimes.com/2024/03/22/us/politics/congress-spending-bill-government-shutdown.html
-
-**Talking to Tana French**\
-`The great Irish crime novelist talks about her newest series.`\
-https://nytimes.com/2024/03/22/books/review/talking-to-tana-french.html
-
-**What’s It Like to Be Cinderella in March? These Schools Know.**\
-`As administrators at universities like St. Peter’s, Fairleigh Dickinson and Florida Gulf Coast can attest, upset victories bring attention, alumni donations and a lot of work.`\
-https://nytimes.com/2024/03/22/business/ncaa-tournament-upset-victories.html
 

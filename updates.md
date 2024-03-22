@@ -1,3 +1,11 @@
+**How Toyota, a Laggard on Electric Cars, Got Its Fight Back**\
+`The auto giant lobbied hard against tougher pollution rules. This week, the E.P.A.’s new rules proved favorable to hybrid technology, an area that Toyota dominates.`\
+https://nytimes.com/2024/03/22/climate/toyota-hybrid-epa-pollution.html
+
+**The Philharmonic Adds 2 Premieres to a Diet of Classics**\
+`Jaap van Zweden, the orchestra’s music director, led new works by Joel Thompson and Tan Dun amid pieces by Mozart, Beethoven and Mendelssohn.`\
+https://nytimes.com/2024/03/22/arts/music/new-york-philharmonic-jaap-van-zweden.html
+
 **Sherrod Brown Embarks on the Race of His Life**\
 `Ohio will almost certainly go for Donald Trump this November. The Democratic senator will need to defy the gravity of the presidential contest to win a fourth term.`\
 https://nytimes.com/2024/03/22/us/politics/sherrod-brown-ohio.html
