@@ -1,3 +1,11 @@
+**Laurent de Brunhoff, Artist Who Made Babar Famous, Dies at 98**\
+`After his father, who created the character, died, he continued the series of books about a modest elephant and his escapades in Paris for seven decades.`\
+https://nytimes.com/2024/03/22/books/laurent-de-brunhoff-dead.html
+
+**U.S. says ISIS was responsible for the deadly attack in Moscow.**\
+`By Julian E. Barnes and Eric Schmitt`\
+https://nytimes.com/2024/03/22/world/europe/isis-moscow-attack-concert-hall.html
+
 **Doctors Say Diagnosis of Catherine’s Cancer Is a Familiar Scenario**\
 `The Princess of Wales did not reveal the type of cancer she has, but oncologists say the disease is often identified during other procedures.`\
 https://nytimes.com/2024/03/22/health/kate-middleton-cancer-chemotherapy.html

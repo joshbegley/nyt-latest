@@ -1,10 +1,14 @@
+**Laurent de Brunhoff, Artist Who Made Babar Famous, Dies at 98**\
+`After his father, who created the character, died, he continued the series of books about a modest elephant and his escapades in Paris for seven decades.`\
+https://nytimes.com/2024/03/22/books/laurent-de-brunhoff-dead.html
+
 **Doctors Say Diagnosis of Catherine’s Cancer Is a Familiar Scenario**\
 `The Princess of Wales did not reveal the type of cancer she has, but oncologists say the disease is often identified during other procedures.`\
 https://nytimes.com/2024/03/22/health/kate-middleton-cancer-chemotherapy.html
 
 **U.S. says ISIS was responsible for the deadly attack in Moscow.**\
 `By Julian E. Barnes and Eric Schmitt`\
-https://nytimes.com/live/2024/03/22/world/moscow-shooting/isis-moscow-attack-concert-hall
+https://nytimes.com/2024/03/22/world/europe/isis-moscow-attack-concert-hall.html
 
 **How to Talk to Children About Cancer**\
 `These conversations are among the more important and delicate discussions that parents can have, experts said.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/arts/television/3-body-problem-episode-5-recap-ju
 **The Deadly Moscow Concert Hall Attack in Photos**\
 `Images show the scene of what could be the deadliest attack in Russia in decades. Multiple gunmen killed at least 40 people in an assault in the capital’s outskirts.`\
 https://nytimes.com/2024/03/22/world/europe/moscow-concert-hall-attack-photos.html
-
-**Gunmen Killed Dozens at a Moscow Concert Hall**\
-`Also, Princess Kate announced that she has cancer. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/03/22/briefing/moscow-concert-hall-attack-trump-billions.html
 
