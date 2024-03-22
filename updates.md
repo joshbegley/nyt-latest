@@ -1,3 +1,11 @@
+**What to Do if Violence Breaks Out on Your Train or Bus**\
+`Public transportation is not necessarily more dangerous than other settings, but there are some ways that experts recommend to get out of a risky situation.`\
+https://nytimes.com/2024/03/22/us/public-transit-safety-subway-guide.html
+
+**What’s Next for the Coronavirus?**\
+`Scientists studying the virus’s continuing evolution, and the body’s immune responses, hope to head off a resurgence and to better understand long Covid.`\
+https://nytimes.com/2024/03/22/health/coronavirus-evolution-immunity.html
+
 **Julianna Margulies and Peter Gallagher to Star in Broadway Play**\
 `The duo will lead the cast of “Left on Tenth,” a stage adaptation of Delia Ephron’s best-selling memoir.`\
 https://nytimes.com/2024/03/22/theater/margulies-gallagher-ephron-broadway.html
