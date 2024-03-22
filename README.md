@@ -1,3 +1,7 @@
+**United Airlines Faces Closer F.A.A. Scrutiny After Safety Incidents**\
+`The carrier, which has experienced several recent mishaps, told employees to expect a review by federal regulators in coming weeks.`\
+https://nytimes.com/2024/03/22/business/united-airlines-faa-safety.html
+
 **Catherine’s Cancer Diagnosis Puts U.K. Royals on Even More Uncertain Terrain**\
 `First King Charles and now Catherine, Princess of Wales, are facing grave health concerns, stretching an already slimmed-down monarchy.`\
 https://nytimes.com/2024/03/22/world/europe/princess-kate-cancer-royal-family.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/opinion/kate-middleton-princess-cancer.html
 **The Supreme Court and Young Voter Turnout**\
 `A 2013 ruling triggered a slew of laws that attached restrictions to voting.`\
 https://nytimes.com/2024/03/22/us/politics/the-supreme-court-and-young-voter-turnout.html
-
-**Another Heavy Blow for the British Royal Family**\
-`Harry and Meghan, the Duke and Duchess of Sussex, and King Charles III offered Catherine messages of encouragement.`\
-https://nytimes.com/2024/03/22/world/europe/kate-cancer-royals-harry-charles.html
 
