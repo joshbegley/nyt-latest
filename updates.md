@@ -1,3 +1,7 @@
+**Uganda’s Leader Names Son to Top Post, Fueling Talk of a Succession Plan**\
+`Gen. Muhoozi Kainerugaba, who has a reputation for provocative late-night tweets, has been working to position himself as heir apparent to his father, President Yoweri Museveni.`\
+https://nytimes.com/2024/03/22/world/africa/uganda-president-son.html
+
 **How the Fight Against Apple Could Redefine Antitrust Law**\
 `The Justice Department’s lawsuit against the iPhone maker pushes the boundaries of competition rules. Some experts say that may make winning more difficult.`\
 https://nytimes.com/2024/03/22/business/dealbook/apple-justice-antitrust.html
