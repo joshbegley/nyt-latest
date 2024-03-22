@@ -1,4 +1,8 @@
-**Kate Middleton is Yet Another Victim of the Royal Circus**\
+**U.S. Call for Gaza Cease-Fire Runs Into Russia-China Veto at U.N.**\
+`The American draft resolution before the Security Council did not go far enough to end the Israel-Hamas war, Russia and China said, after the United States had vetoed three earlier resolutions.`\
+https://nytimes.com/2024/03/22/world/middleeast/israel-gaza-security-council-veto.html
+
+**Kate Middleton Is Yet Another Victim of the Royal Circus**\
 `Cancer complicates the image of perfection that the masses cruelly tried to project on her.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/kate-middleton-cancer
 
