@@ -1,3 +1,11 @@
+**‘3 Body Problem’ Episode 5 Recap: Judgment Day**\
+`An elaborate plan is disturbingly effective and once again, an episode closes on a horrific high note.`\
+https://nytimes.com/2024/03/22/arts/television/3-body-problem-episode-5-recap-judgment-day.html
+
+**The Deadly Moscow Concert Hall Attack in Photos**\
+`Images show the scene of what could be the deadliest attack in Russia in decades. Multiple gunmen killed at least 40 people in an assault in the capital’s outskirts.`\
+https://nytimes.com/2024/03/22/world/europe/moscow-concert-hall-attack-photos.html
+
 **Gunmen Killed Dozens at a Moscow Concert Hall**\
 `Also, Princess Kate announced that she has cancer. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/03/22/briefing/moscow-concert-hall-attack-trump-billions.html
@@ -18,7 +26,7 @@ https://nytimes.com/2024/03/22/podcasts/transcript-ezra-klein-interviews-caitlyn
 `Representative Marjorie Taylor Greene of Georgia began the process of calling for a vote to oust Speaker Mike Johnson after he pushed through a $1.2 trillion bipartisan spending bill.`\
 https://nytimes.com/video/us/politics/100000009376983/spending-bill-house.html
 
-**The mood is somber at a British outpost in the West Village.**\
+**The mood is somber at a British outpost in New York.**\
 `By Nate Schweber`\
 https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/nyc-reaction-kate-middleton
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/22/nyregion/santos-leaves-republicans-independent.ht
 **U.S. Warned About Possible Moscow Attack Before Concert Hall Shooting**\
 `Pro-Moscow forces had dismissed the alert as an attempt to scare Russians.`\
 https://nytimes.com/2024/03/22/world/europe/moscow-concert-attack-us-embassy.html
-
-**Wyoming Bans Gender Transition Care for Minors**\
-`The governor signed a bill that prohibited the practice for children, making Wyoming the 24th state to have passed such a ban.`\
-https://nytimes.com/2024/03/22/us/wyoming-transgender-ban.html
-
-**As More Members Leave, House G.O.P. Will Be Able to Spare Just 1 Vote**\
-`The unexpectedly early departure next month of Representative Mike Gallagher of Wisconsin came shortly after Speaker Mike Johnson had said he believed “that’s the end of the exits for now.”`\
-https://nytimes.com/2024/03/22/us/politics/house-republican-majority-mike-gallagher.html
 
