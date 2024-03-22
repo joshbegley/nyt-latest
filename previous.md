@@ -1,3 +1,7 @@
+**Buckingham Palace said only last month that King Charles has cancer.**\
+`By Mark Landler`\
+https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/buckingham-palace-said-only-last-month-that-king-charles-has-cancer
+
 **‘3 Body Problem’ Episode 5 Recap: Judgment Day**\
 `An elaborate plan is disturbingly effective and once again, an episode closes on a horrific high note.`\
 https://nytimes.com/2024/03/22/arts/television/3-body-problem-episode-5-recap-judgment-day.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/nyc-rea
 **George Santos Says He Is Done With the G.O.P. (The Feeling Is Mutual.)**\
 `Mr. Santos said he would no longer seek the Republican line in a House race on Long Island, and planned to run as an independent.`\
 https://nytimes.com/2024/03/22/nyregion/santos-leaves-republicans-independent.html
-
-**U.S. Warned About Possible Moscow Attack Before Concert Hall Shooting**\
-`Pro-Moscow forces had dismissed the alert as an attempt to scare Russians.`\
-https://nytimes.com/2024/03/22/world/europe/moscow-concert-attack-us-embassy.html
 

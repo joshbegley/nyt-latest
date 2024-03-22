@@ -1,3 +1,7 @@
+**Buckingham Palace said only last month that King Charles has cancer.**\
+`By Mark Landler`\
+https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/buckingham-palace-said-only-last-month-that-king-charles-has-cancer
+
 **‘3 Body Problem’ Episode 5 Recap: Judgment Day**\
 `An elaborate plan is disturbingly effective and once again, an episode closes on a horrific high note.`\
 https://nytimes.com/2024/03/22/arts/television/3-body-problem-episode-5-recap-judgment-day.html
