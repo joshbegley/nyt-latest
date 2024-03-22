@@ -1,3 +1,11 @@
+**The Best of Late Night This Week**\
+`This week, the hosts riffed on politics, pop culture and sports news, including former President Donald Trump’s struggles to arrange a half-billion-dollar bond for his civil fraud case in New York, the frenzy over Kate Middleton’s whereabouts, and the start of March Madness.`\
+https://nytimes.com/interactive/2024/03/22/arts/television/best-of-late-night-kate-middleton.html
+
+**Ronna McDaniel, Former R.N.C. Chair, Joins NBC News**\
+`Her new role as a commentator on NBC and MSNBC programs comes shortly after she stepped down as the leader of the Republican National Committee.`\
+https://nytimes.com/2024/03/22/business/media/ronna-mcdaniel-nbc-msnbc.html
+
 **Investors Pour Money Into Wall St. as Stocks Set New Highs**\
 `The influx of cash reflects optimism about the economy and company earnings despite high interest rates and stubborn inflation.`\
 https://nytimes.com/2024/03/22/business/stock-market-rally.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/22/business/ai-federal-reserve-stock-market.html
 **Los Angeles Sports Fans Are Bewildered by Gambling Scandal**\
 `A much-anticipated start to baseball season was marred by theft allegations against the interpreter for Shohei Ohtani.`\
 https://nytimes.com/2024/03/22/us/los-angeles-sports-fans-are-bewildered-by-gambling-scandal.html
-
-**The White House Has That Sinking Feeling (Thanks to an Artist)**\
-`Kiyan Williams, for their Whitney Biennial commission, recreated the column-lined facade from soil. Viewers can watch as it crumbles, sprouts plants and births insects.`\
-https://nytimes.com/2024/03/22/arts/design/kiyan-williams-whitney-biennial-white-house.html
-
-**Uganda’s Leader Names Son to Top Post, Fueling Talk of a Succession Plan**\
-`Gen. Muhoozi Kainerugaba, who has a reputation for provocative late-night tweets, has been working to position himself as heir apparent to his father, President Yoweri Museveni.`\
-https://nytimes.com/2024/03/22/world/africa/uganda-president-son.html
 

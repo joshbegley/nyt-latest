@@ -1,3 +1,11 @@
+**The Best of Late Night This Week**\
+`This week, the hosts riffed on politics, pop culture and sports news, including former President Donald Trump’s struggles to arrange a half-billion-dollar bond for his civil fraud case in New York, the frenzy over Kate Middleton’s whereabouts, and the start of March Madness.`\
+https://nytimes.com/interactive/2024/03/22/arts/television/best-of-late-night-kate-middleton.html
+
+**Ronna McDaniel, Former R.N.C. Chair, Joins NBC News**\
+`Her new role as a commentator on NBC and MSNBC programs comes shortly after she stepped down as the leader of the Republican National Committee.`\
+https://nytimes.com/2024/03/22/business/media/ronna-mcdaniel-nbc-msnbc.html
+
 **Congress Races to Pass $1.2 Trillion Spending Bill Before Shutdown Deadline**\
 `A surge of conservative Republican anger about the bipartisan package threatened to derail the measure as lawmakers in both chambers worked to avoid a funding lapse.`\
 https://nytimes.com/2024/03/22/us/politics/congress-spending-bill-government-shutdown.html
