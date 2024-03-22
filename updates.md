@@ -1,3 +1,11 @@
+**Valentino’s Creative Director Is Departing**\
+`Pierpaolo Piccioli, known for his bold use of color and studded leather shoes, had been at the fashion house for 25 years.`\
+https://nytimes.com/2024/03/22/fashion/valentino-creative-director-pierpaolo-piccioli.html
+
+**Russian Strikes Cut Off Electricity and Disrupt Water Supply in Kharkiv**\
+`A widespread Russian attack damaged power facilities in multiple regions of Ukraine and caused outages for more than a million people.`\
+https://nytimes.com/video/world/europe/100000009376332/ukraine-russian-strikes-electricity.html
+
 **Tyla Avoids a Bad Romance, and 9 More New Songs**\
 `Hear tracks by Olivia Rodrigo, Gary Clark Jr. featuring Stevie Wonder, Four Tet and others.`\
 https://nytimes.com/2024/03/22/arts/music/playlist-tyla-olivia-rodrigo-alicia-keys.html

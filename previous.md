@@ -1,3 +1,11 @@
+**Valentino’s Creative Director Is Departing**\
+`Pierpaolo Piccioli, known for his bold use of color and studded leather shoes, had been at the fashion house for 25 years.`\
+https://nytimes.com/2024/03/22/fashion/valentino-creative-director-pierpaolo-piccioli.html
+
+**Russian Strikes Cut Off Electricity and Disrupt Water Supply in Kharkiv**\
+`A widespread Russian attack damaged power facilities in multiple regions of Ukraine and caused outages for more than a million people.`\
+https://nytimes.com/video/world/europe/100000009376332/ukraine-russian-strikes-electricity.html
+
 **Tyla Avoids a Bad Romance, and 9 More New Songs**\
 `Hear tracks by Olivia Rodrigo, Gary Clark Jr. featuring Stevie Wonder, Four Tet and others.`\
 https://nytimes.com/2024/03/22/arts/music/playlist-tyla-olivia-rodrigo-alicia-keys.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/22/health/coronavirus-evolution-immunity.html
 **Julianna Margulies and Peter Gallagher to Star in Broadway Play**\
 `The duo will lead the cast of “Left on Tenth,” a stage adaptation of Delia Ephron’s best-selling memoir.`\
 https://nytimes.com/2024/03/22/theater/margulies-gallagher-ephron-broadway.html
-
-**Biden’s Big Bet on Chips Helps Jobs in the U.S. (and Costa Rica)**\
-`The United States can’t go it alone in the race for the future on semiconductors.`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-intel-chips-costarica
-
-**How Biden Could Try to Coerce Israel to Change Its War Strategy**\
-`President Biden has tried persuading Prime Minister Benjamin Netanyahu behind the scenes. But critics say it is time for a different approach.`\
-https://nytimes.com/2024/03/22/us/politics/israel-biden-leverage.html
 
