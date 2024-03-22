@@ -1,3 +1,7 @@
+**U.S. Says ISIS Was Responsible for Deadly Moscow Concert Hall Attack**\
+`After a period of relative quiet, the Islamic State has been trying to increase its external attacks, according to U.S. counterterrorism officials.`\
+https://nytimes.com/2024/03/22/world/europe/isis-moscow-attack-concert-hall.html
+
 **Laurent de Brunhoff, Artist Who Made Babar Famous, Dies at 98**\
 `After his father, who created the character, died, he continued the series of books about a modest elephant and his escapades in Paris for seven decades.`\
 https://nytimes.com/2024/03/22/books/laurent-de-brunhoff-dead.html

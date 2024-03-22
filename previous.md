@@ -6,8 +6,8 @@ https://nytimes.com/2024/03/22/books/laurent-de-brunhoff-dead.html
 `The Princess of Wales did not reveal the type of cancer she has, but oncologists say the disease is often identified during other procedures.`\
 https://nytimes.com/2024/03/22/health/kate-middleton-cancer-chemotherapy.html
 
-**U.S. says ISIS was responsible for the deadly attack in Moscow.**\
-`By Julian E. Barnes and Eric Schmitt`\
+**U.S. Says ISIS Was Responsible for Deadly Moscow Concert Hall Attack**\
+`After a period of relative quiet, the Islamic State has been trying to increase its external attacks, according to U.S. counterterrorism officials.`\
 https://nytimes.com/2024/03/22/world/europe/isis-moscow-attack-concert-hall.html
 
 **How to Talk to Children About Cancer**\
