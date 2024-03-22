@@ -1,3 +1,7 @@
+**Read Catherine’s full statement.**\
+`The princess asked for privacy as she undergoes treatment, and said that “it has been an incredibly tough couple of months for our entire family.”`\
+https://nytimes.com/2024/03/22/world/europe/kate-middleton-cancer-statement.html
+
 **A timeline of the royal family’s tumultuous year.**\
 `By Derrick Bryson Taylor`\
 https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/a-timeline-of-the-royal-familys-tumultuous-year

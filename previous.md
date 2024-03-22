@@ -1,3 +1,7 @@
+**Read Catherine’s full statement.**\
+`The princess asked for privacy as she undergoes treatment, and said that “it has been an incredibly tough couple of months for our entire family.”`\
+https://nytimes.com/2024/03/22/world/europe/kate-middleton-cancer-statement.html
+
 **A timeline of the royal family’s tumultuous year.**\
 `By Derrick Bryson Taylor`\
 https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/a-timeline-of-the-royal-familys-tumultuous-year
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer
 **NASA Is Recruiting a New Class of Astronauts**\
 `Victor Glover, a nine-year veteran of the astronaut corps who will fly around the moon in 2025, said the search for excellence and diversity were not mutually exclusive.`\
 https://nytimes.com/2024/03/22/science/nasa-astronauts-victor-glover-elon-musk.html
-
-**Here’s the latest on the Princess of Wales.**\
-`The princess described the news as a “huge shock” and asked for “time, space and privacy” in a prerecorded video broadcast on the BBC on Friday evening.`\
-https://nytimes.com/live/2024/03/22/world/princess-kate-middleton-cancer/princess-kate-middleton-cancer
 
