@@ -1,3 +1,7 @@
+**Quotation of the Day: Barber, Please Put This on Verdugo’s Tab**\
+`Quotation of the Day for Saturday, March 23, 2024.`\
+https://nytimes.com/2024/03/22/pageoneplus/quotation-of-the-day-barber-please-put-this-on-verdugos-tab.html
+
 **Ocasio-Cortez, in House Speech, Accuses Israel of ‘Genocide’**\
 `Representative Alexandria Ocasio-Cortez had called for a permanent cease-fire in the war between Israel and Hamas, but had resisted labeling the conflict a genocide.`\
 https://nytimes.com/2024/03/22/nyregion/aoc-genocide.html

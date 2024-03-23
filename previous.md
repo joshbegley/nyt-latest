@@ -1,3 +1,7 @@
+**Quotation of the Day: Barber, Please Put This on Verdugo’s Tab**\
+`Quotation of the Day for Saturday, March 23, 2024.`\
+https://nytimes.com/2024/03/22/pageoneplus/quotation-of-the-day-barber-please-put-this-on-verdugos-tab.html
+
 **Ocasio-Cortez, in House Speech, Accuses Israel of ‘Genocide’**\
 `Representative Alexandria Ocasio-Cortez had called for a permanent cease-fire in the war between Israel and Hamas, but had resisted labeling the conflict a genocide.`\
 https://nytimes.com/2024/03/22/nyregion/aoc-genocide.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/us/chicago-real-estate-tax-vote.html
 **Laurent de Brunhoff, Artist Who Made Babar Famous, Dies at 98**\
 `After his father, who created the character, died, he continued the series of books about a modest elephant and his escapades in Paris for seven decades.`\
 https://nytimes.com/2024/03/22/books/laurent-de-brunhoff-dead.html
-
-**Doctors Say Diagnosis of Catherine’s Cancer Is a Familiar Scenario**\
-`The Princess of Wales did not reveal the type of cancer she has, but oncologists say the disease is often identified during other procedures.`\
-https://nytimes.com/2024/03/22/health/kate-middleton-cancer-chemotherapy.html
 
