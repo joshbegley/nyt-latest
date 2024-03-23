@@ -1,3 +1,7 @@
+**What We Know About Catherine, Princess of Wales’s Cancer Diagnosis**\
+`The princess said that the cancer had been discovered after abdominal surgery and that she was receiving “preventative chemotherapy.”`\
+https://nytimes.com/2024/03/23/world/europe/what-we-know-kate-catherine-princess-wales-cancer.html
+
 **The Real Royal Scandal Is on Us**\
 `What will it take for a culture sick with its own wolfish appetite for self-exposure to try to get better?`\
 https://nytimes.com/2024/03/23/opinion/kate-middleton-scandal-cancer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/world/europe/ukraine-russia-moscow-attack.html
 **‘Just a Human’: Londoners Offer Sympathy on Princess’s Cancer Diagnosis**\
 `Many expressed compassion for Catherine, Princess of Wales, a woman who has spent much of the past two decades with every aspect of her life scrutinized.`\
 https://nytimes.com/2024/03/23/world/europe/princess-kate-cancer-royal-family.html
-
-**The Music That Made Us**\
-`What happens when we re-encounter cultural artifacts that were deeply important to us and they’ve changed, or we have, or both?`\
-https://nytimes.com/2024/03/23/briefing/the-music-that-made-us.html
 
