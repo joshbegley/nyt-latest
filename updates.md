@@ -1,3 +1,11 @@
+**Venezuelan Opposition Names New Candidate in Show of Unity**\
+`The announcement that Corina Yoris would run came as a surprise to many who had feared that a fractured opposition would benefit President Nicolás Maduro.`\
+https://nytimes.com/2024/03/22/world/americas/venezuela-election-corina-yoris.html
+
+**What We Know About ISIS-K, the Group That Claimed Responsibility for the Moscow Attack**\
+`The Islamic State affiliate has been a major threat to the Taliban’s ability to govern Afghanistan.`\
+https://nytimes.com/2024/03/22/us/politics/what-we-know-about-isis-k-the-group-that-claimed-responsibility-for-the-moscow-attack.html
+
 **Two Republicans Advance to a Runoff to Finish Kevin McCarthy’s Term**\
 `Vince Fong and Mike Boudreaux, who advanced to a special election in May, will also face each other in November to fill the former House speaker’s seat for a full, two-year term.`\
 https://nytimes.com/2024/03/22/us/politics/california-fong-boudreaux-mccarthy.html
