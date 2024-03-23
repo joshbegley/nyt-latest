@@ -1,3 +1,7 @@
+**‘Just a Human’: Londoners Offer Sympathy on Princess’s Cancer Diagnosis**\
+`Many expressed compassion for Catherine, Princess of Wales, a woman who has spent much of the past two decades with every aspect of her life scrutinized.`\
+https://nytimes.com/2024/03/23/world/europe/princess-kate-cancer-royal-family.html
+
 **The Music That Made Us**\
 `What happens when we re-encounter cultural artifacts that were deeply important to us and they’ve changed, or we have, or both?`\
 https://nytimes.com/2024/03/23/briefing/the-music-that-made-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/us/texas-abbott-border.html
 **His Novel Sold a Million Copies. James McBride Isn’t Sure How He Feels About That.**\
 `“The Heaven & Earth Grocery Store” has been a runaway critical and commercial success. When you’ve been David all your life, everything changes “when you become Goliath.”`\
 https://nytimes.com/2024/03/23/books/booksupdate/james-mcbride-heaven-and-earth-grocery-store.html
-
-**Cynthia Nixon Knows What Poem She Wants Read at Her Funeral**\
-`“I love ‘I heard a Fly buzz — when I died,’” said the actress, currently performing Off Broadway in “The Seven Year Disappear.” “That one gets me every time.”`\
-https://nytimes.com/2024/03/23/theater/cynthia-nixon-seven-year-disappear.html
 
