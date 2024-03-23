@@ -1,3 +1,7 @@
+**‘3 Body Problem’ Episode 7 Recap: Brain Drain**\
+`Wanted: One intelligent human brain, body not required.`\
+https://nytimes.com/2024/03/23/arts/television/3-body-problem-episode-7-recap.html
+
 **‘3 Body Problem’ Episode 6 Recap: Man with a Plan**\
 `After five escalating episodes, the series took its foot off the gas for its sixth.`\
 https://nytimes.com/2024/03/23/arts/television/3-body-problem-episode-6-recap.html

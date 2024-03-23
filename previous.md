@@ -1,3 +1,7 @@
+**‘3 Body Problem’ Episode 7 Recap: Brain Drain**\
+`Wanted: One intelligent human brain, body not required.`\
+https://nytimes.com/2024/03/23/arts/television/3-body-problem-episode-7-recap.html
+
 **‘3 Body Problem’ Episode 6 Recap: Man with a Plan**\
 `After five escalating episodes, the series took its foot off the gas for its sixth.`\
 https://nytimes.com/2024/03/23/arts/television/3-body-problem-episode-6-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/23/world/moscow-shooting/we-were-in-such-a-good
 **Hey, Dude, What’s the History of Dude?**\
 `Over the decades, dudes have been fops, ‘dandified dilettantes,’ cool guys and surfers.`\
 https://nytimes.com/2024/03/23/insider/hey-dude-whats-the-history-of-dude.html
-
-**Soothing Meals With Assertive Flavors**\
-`Recipes for those gray, not-so-springy days: skillet eggs with garam masala and tomatoes, braised chicken with salted lemon, sweet potato shepherd’s pie.`\
-https://nytimes.com/2024/03/23/dining/soothing-meals-with-assertive-flavors.html
 
