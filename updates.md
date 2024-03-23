@@ -1,3 +1,7 @@
+**Here’s What We Know About the Moscow Concert Hall Attack**\
+`The assault on a popular concert hall was the deadliest act of terrorism in the Russian capital in more than a decade.`\
+https://nytimes.com/2024/03/23/world/europe/moscow-concert-hall-attack-what-we-know.html
+
 **All the King’s Horses**\
 `The things we break, and the ones we can’t fix.`\
 https://nytimes.com/2024/03/23/podcasts/all-the-kings-horses.html
