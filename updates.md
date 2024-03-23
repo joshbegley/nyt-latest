@@ -1,3 +1,7 @@
+**The Government’s Struggles With Outsourcing Software Development**\
+`The bloated cost of the ArriveCAN app and new investigations into possible fraud have highlighted some problems with turning to outside companies.`\
+https://nytimes.com/2024/03/23/world/canada/arrivecan-software-contracting-fraud.html
+
 **Kari Lake, a Trump Acolyte, Struggles to Find Her Path**\
 `The Republican Senate candidate in Arizona, who has been an election denier and Trump supporter, is seeking to appeal to establishment Republicans.`\
 https://nytimes.com/2024/03/23/us/politics/kari-lake-arizona-senate.html
