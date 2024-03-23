@@ -1,3 +1,7 @@
+**Piknik, a longtime Russian rock band, is now at the center of a tragedy.**\
+`The group was set to play the first of two sold-out concerts when gunmen opened fire at Crocus City Hall.`\
+https://nytimes.com/2024/03/23/world/europe/piknik-russian-rock-band.html
+
 **Kamala Harris Announces Resource Center to Help With Red-Flag Laws**\
 `Vice President Kamala Harris stood beside the parents of children killed in the 2018 shooting at Marjory Stoneman Douglas High School in Parkland, Fla., and announced a new federal resource center to help states implement their red-flag laws.`\
 https://nytimes.com/video/us/100000009377878/kamala-harris-parkland-red-flag-laws.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/us/politics/biden-signs-spending-bill.html
 **‘3 Body Problem’ Season Finale Recap: Absolute Power**\
 `The show’s first season ended with unwanted appointments, buzzing cicadas and flying brains.`\
 https://nytimes.com/2024/03/23/arts/television/3-body-problem-season-finale-recap.html
-
-**David E. Harris, Trailblazing Airline Pilot, Is Dead at 89**\
-`In 1964, at the height of the civil rights movement, he became the first Black pilot for a major commercial airline in the United States.`\
-https://nytimes.com/2024/03/23/us/david-e-harris-dead.html
 
