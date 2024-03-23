@@ -1,3 +1,7 @@
+**The Art of Babar**\
+`For more than seven decades, Laurent de Brunhoff painted the adventures of the world’s most beloved elephant.`\
+https://nytimes.com/2024/03/23/arts/the-art-of-babar.html
+
 **Maurizio Pollini, Celebrated Pianist Who Defined Modernism, Dies at 82**\
 `His recordings of Beethoven and Chopin were hailed as classics, but his technical ability sometimes invited controversy.`\
 https://nytimes.com/2024/03/23/arts/music/maurizio-pollini-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/dining/soothing-meals-with-assertive-flavors.html
 **Catherine’s Cancer Disclosure Shows Her Lessons From Previous Media Ordeals**\
 `“They know they can’t control the online world,” one expert on the royal family said about the recent spate of revelations about the health of Catherine and King Charles III.`\
 https://nytimes.com/2024/03/23/world/europe/princess-kate-middleton-cancer.html
-
-**Elon Musk Is Preoccupied With Something He Doesn’t Understand**\
-`Beyond the surface-level nonsense of the “great replacement” theory lies a more subtle issue.`\
-https://nytimes.com/2024/03/23/opinion/elon-musk-great-replacement.html
 
