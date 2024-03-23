@@ -1,3 +1,7 @@
+**Indiana Law Requires Professors to Promote ‘Intellectual Diversity’ or Face Penalties**\
+`Faculty members in public universities could be disciplined or fired, even those with tenure, if they are found to fall short of the new requirements.`\
+https://nytimes.com/2024/03/23/us/indiana-professors-tenure-diversity.html
+
 **Peter G. Angelos, Owner of the Baltimore Orioles, Dies at 94**\
 `Mr. Angelos, who built a fortune as a class-action lawyer, endeared himself to fans by investing in free agents to bolster the team.`\
 https://nytimes.com/2024/03/23/us/peter-angelos-baltimore-orioles-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/us/barkley-marathons-jasmin-paris.html
 **For Putin, Even a Terrorist Attack Is a Chance to Spread Misinformation**\
 `He has refused to acknowledge that ISIS has taken credit for the attack, instead shifting blame to Ukraine.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/putin-moscow-terrorist-attack
-
-**Maps and Diagrams of the Moscow Concert Hall Attack**\
-`The mass shooting and arson at a suburban Moscow concert venue, which killed more than 130, were attributed by U.S. officials to members of a branch of the Islamic State.`\
-https://nytimes.com/interactive/2024/03/23/world/europe/moscow-concert-hall-attack-map.html
 
