@@ -1,3 +1,7 @@
+**Deadly Moscow Attack Shatters Putin’s Security Promise to Russians**\
+`The tragedy outside Moscow is a blow to a leader riding an aura of confidence only days after a stage-managed election victory.`\
+https://nytimes.com/2024/03/23/world/europe/putin-russia-moscow-attack.html
+
 **There have been other deadly attacks at concerts and music festivals in recent years.**\
 `By Caryn Ganz`\
 https://nytimes.com/live/2024/03/23/world/moscow-shooting/concert-festival-shootings
