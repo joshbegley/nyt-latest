@@ -1,3 +1,7 @@
+**Take, as a Pointer**\
+`Need some tips and tricks for this Sam Ezersky toughie? Hand me the leash.`\
+https://nytimes.com/2024/03/22/crosswords/daily-puzzle-2024-03-23.html
+
 **Corrections: March 23, 2024**\
 `Corrections that appeared in print on Saturday, March 23, 2024.`\
 https://nytimes.com/2024/03/22/pageoneplus/corrections-march-23-2024.html
