@@ -1,3 +1,7 @@
+**ISIS Branch Blamed in Moscow Attack Has Hit at Taliban’s Russia Links**\
+`Islamic State Khorasan, or ISIS-K, previously attacked Russia’s embassy in Kabul and has produced floods of anti-Kremlin propaganda.`\
+https://nytimes.com/2024/03/23/world/asia/isis-attack-russia.html
+
 **‘We were in such a good mood.’ Then shots rang out, a survivor says.**\
 `By Nanna Heitmann and Valerie Hopkins`\
 https://nytimes.com/live/2024/03/23/world/moscow-shooting/we-were-in-such-a-good-mood-then-shots-rang-out-a-survivor-says
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/23/us/trump-biden-election/presidential-primari
 **In First Remarks on Attack, Putin Tries to Link Assailants to Ukraine**\
 `American officials, who have assessed that a branch of the Islamic State was responsible, have voiced concern that the Russian leader could seek to falsely blame Ukraine.`\
 https://nytimes.com/2024/03/23/world/europe/moscow-attack-putin.html
-
-**Russia’s allies and adversaries alike express outrage over the attack.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/03/23/world/moscow-shooting/russias-allies-and-adversaries-alike-express-outrage-over-the-attack
 

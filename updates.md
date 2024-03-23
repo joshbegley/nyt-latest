@@ -1,3 +1,7 @@
+**ISIS Branch Blamed in Moscow Attack Has Hit at Taliban’s Russia Links**\
+`Islamic State Khorasan, or ISIS-K, previously attacked Russia’s embassy in Kabul and has produced floods of anti-Kremlin propaganda.`\
+https://nytimes.com/2024/03/23/world/asia/isis-attack-russia.html
+
 **‘We were in such a good mood.’ Then shots rang out, a survivor says.**\
 `By Nanna Heitmann and Valerie Hopkins`\
 https://nytimes.com/live/2024/03/23/world/moscow-shooting/we-were-in-such-a-good-mood-then-shots-rang-out-a-survivor-says
