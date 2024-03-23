@@ -1,3 +1,7 @@
+**Russia Has Suffered Other Major Attacks in Recent Decades**\
+`The concert hall massacre near Moscow raised Russian memories of other attacks, most related to the wars against Chechen separatists in the 1990s and 2000s that helped enable the rise of Vladimir V. Putin.`\
+https://nytimes.com/2024/03/23/world/europe/moscow-attacks-shootings-bombings.html
+
 **The Government’s Struggles With Outsourcing Software Development**\
 `The bloated cost of the ArriveCAN app and new investigations into possible fraud have highlighted some problems with turning to outside companies.`\
 https://nytimes.com/2024/03/23/world/canada/arrivecan-software-contracting-fraud.html
