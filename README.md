@@ -1,3 +1,7 @@
+**‘3 Body Problem’ Episode 6 Recap: Man with a Plan**\
+`After five escalating episodes, the series took its foot off the gas for its sixth.`\
+https://nytimes.com/2024/03/23/arts/television/3-body-problem-episode-6-recap.html
+
 **The Art of Babar**\
 `For more than seven decades, Laurent de Brunhoff painted the adventures of the world’s most beloved elephant.`\
 https://nytimes.com/2024/03/23/arts/laurent-de-brunhoff-babar-books.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/insider/hey-dude-whats-the-history-of-dude.html
 **Soothing Meals With Assertive Flavors**\
 `Recipes for those gray, not-so-springy days: skillet eggs with garam masala and tomatoes, braised chicken with salted lemon, sweet potato shepherd’s pie.`\
 https://nytimes.com/2024/03/23/dining/soothing-meals-with-assertive-flavors.html
-
-**Catherine’s Cancer Disclosure Shows Her Lessons From Previous Media Ordeals**\
-`“They know they can’t control the online world,” one expert on the royal family said about the recent spate of revelations about the health of Catherine and King Charles III.`\
-https://nytimes.com/2024/03/23/world/europe/princess-kate-middleton-cancer.html
 
