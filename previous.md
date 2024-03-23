@@ -1,3 +1,7 @@
+**Ukraine says Russian accusations it was behind the attack are meant to rally war support.**\
+`By Andrew E. Kramer`\
+https://nytimes.com/2024/03/23/world/europe/ukraine-says-russian-accusations-it-was-behind-the-attack-are-meant-to-rally-war-support.html
+
 **‘Just a Human’: Londoners Offer Sympathy on Princess’s Cancer Diagnosis**\
 `Many expressed compassion for Catherine, Princess of Wales, a woman who has spent much of the past two decades with every aspect of her life scrutinized.`\
 https://nytimes.com/2024/03/23/world/europe/princess-kate-cancer-royal-family.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/your-money/unclaimed-property-missing-money.html
 **Abbott’s Army on the Border: Is it Working?**\
 `The Texas governor, Greg Abbott, has spent $10 billion building his own border security network. In Eagle Pass, where it has been concentrated, far fewer migrants have been crossing this year.`\
 https://nytimes.com/2024/03/23/us/texas-abbott-border.html
-
-**His Novel Sold a Million Copies. James McBride Isn’t Sure How He Feels About That.**\
-`“The Heaven & Earth Grocery Store” has been a runaway critical and commercial success. When you’ve been David all your life, everything changes “when you become Goliath.”`\
-https://nytimes.com/2024/03/23/books/booksupdate/james-mcbride-heaven-and-earth-grocery-store.html
 
