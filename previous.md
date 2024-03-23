@@ -1,3 +1,7 @@
+**Maps and Diagrams of the Moscow Concert Hall Attack**\
+`The mass shooting and arson at a suburban Moscow concert venue, which killed more than 130, were attributed by U.S. officials to members of a branch of the Islamic State.`\
+https://nytimes.com/interactive/2024/03/23/world/europe/moscow-concert-hall-attack-map.html
+
 **Biden Signs Final Bill to Fund the Government, Ending Shutdown Fears**\
 `The president signed a $1.2 trillion spending package that passed early on Saturday morning, narrowly avoided a shutdown.`\
 https://nytimes.com/2024/03/23/us/politics/biden-signs-spending-bill.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/arts/music/maurizio-pollini-dead.html
 **There have been other deadly attacks at concerts and music festivals in recent years.**\
 `By Caryn Ganz`\
 https://nytimes.com/live/2024/03/23/world/moscow-shooting/concerts-shootings
-
-**How Do You Solve a Problem Like ‘Bayadère’? Send In the Cowboys.**\
-`A new production of the ballet sets it in 1930s Hollywood instead of a mythic India, eliminating Orientalist clichés while embracing American ones.`\
-https://nytimes.com/2024/03/23/arts/dance/bayadere-revamped-indiana-university.html
 
