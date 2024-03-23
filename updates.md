@@ -1,3 +1,7 @@
+**Kamala Harris Announces Resource Center to Help With Red-Flag Laws**\
+`Vice President Kamala Harris stood beside the parents of children killed in the 2018 shooting at Marjory Stoneman Douglas High School in Parkland, Fla., and announced a new federal resource center to help states implement their red-flag laws.`\
+https://nytimes.com/video/us/100000009377878/kamala-harris-parkland-red-flag-laws.html
+
 **Storm Brings Heavy Snow to Northern New York and Vermont**\
 `Snow was expected in the Dakotas, Minnesota and parts of the upper Great Lakes, forecasters said. In New York City, heavy rains prompted flood watches.`\
 https://nytimes.com/2024/03/23/us/storm-rain-snow-forecast-northeast.html
