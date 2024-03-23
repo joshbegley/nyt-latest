@@ -1,3 +1,11 @@
+**U.N. Chief Calls Conditions in Gaza a ‘Moral Outrage’**\
+`In a visit to the Rafah border crossing, Secretary General António Guterres called for an immediate cease-fire and expressed solidarity with Palestinians in the territory.`\
+https://nytimes.com/2024/03/23/world/middleeast/gaza-israel-rafah-un-guterres.html
+
+**Voters head to the polls in Louisiana and Missouri.**\
+`By Nick Corasaniti`\
+https://nytimes.com/2024/03/23/us/politics/presidential-primaries-louisiana-missouri.html
+
 **In First Remarks on Attack, Putin Tries to Link Assailants to Ukraine**\
 `American officials, who have assessed that a branch of the Islamic State was responsible, have voiced concern that the Russian leader could seek to falsely blame Ukraine.`\
 https://nytimes.com/2024/03/23/world/europe/moscow-attack-putin.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/23/books/read-like-wind-recommendations.html
 **Here’s What We Know About the Moscow Concert Hall Attack**\
 `The assault on a popular concert hall was the deadliest act of terrorism in the Russian capital in more than a decade.`\
 https://nytimes.com/2024/03/23/world/europe/moscow-concert-hall-attack-what-we-know.html
-
-**All the King’s Horses**\
-`The things we break, and the ones we can’t fix.`\
-https://nytimes.com/2024/03/23/podcasts/all-the-kings-horses.html
-
-**What We Know About Catherine, Princess of Wales’s Cancer Diagnosis**\
-`The princess said that the cancer had been discovered after abdominal surgery and that she was receiving “preventative chemotherapy.”`\
-https://nytimes.com/2024/03/23/world/europe/what-we-know-kate-catherine-princess-wales-cancer.html
 

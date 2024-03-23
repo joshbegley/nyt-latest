@@ -1,3 +1,11 @@
+**U.N. Chief Calls Conditions in Gaza a ‘Moral Outrage’**\
+`In a visit to the Rafah border crossing, Secretary General António Guterres called for an immediate cease-fire and expressed solidarity with Palestinians in the territory.`\
+https://nytimes.com/2024/03/23/world/middleeast/gaza-israel-rafah-un-guterres.html
+
+**Voters head to the polls in Louisiana and Missouri.**\
+`By Nick Corasaniti`\
+https://nytimes.com/2024/03/23/us/politics/presidential-primaries-louisiana-missouri.html
+
 **In First Remarks on Attack, Putin Tries to Link Assailants to Ukraine**\
 `American officials, who have assessed that a branch of the Islamic State was responsible, have voiced concern that the Russian leader could seek to falsely blame Ukraine.`\
 https://nytimes.com/2024/03/23/world/europe/moscow-attack-putin.html
