@@ -36,5 +36,5 @@ https://nytimes.com/2024/03/23/arts/music/maurizio-pollini-dead.html
 
 **There have been other deadly attacks at concerts and music festivals in recent years.**\
 `By Caryn Ganz`\
-https://nytimes.com/live/2024/03/23/world/moscow-shooting/concerts-shootings
+https://nytimes.com/live/2024/03/23/world/moscow-shooting/concert-festival-shootings
 
