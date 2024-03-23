@@ -1,3 +1,7 @@
+**Ocasio-Cortez, in House Speech, Accuses Israel of ‘Genocide’**\
+`Representative Alexandria Ocasio-Cortez had called for a permanent cease-fire in the war between Israel and Hamas, but had resisted labeling the conflict a genocide.`\
+https://nytimes.com/2024/03/22/nyregion/aoc-genocide.html
+
 **What We Know About ISIS-K, the Group That Claimed Responsibility for the Moscow Attack**\
 `The Islamic State affiliate has been a major threat to the Taliban’s ability to govern Afghanistan.`\
 https://nytimes.com/2024/03/22/us/politics/isis-k-moscow-attack.html

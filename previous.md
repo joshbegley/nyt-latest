@@ -1,3 +1,7 @@
+**Ocasio-Cortez, in House Speech, Accuses Israel of ‘Genocide’**\
+`Representative Alexandria Ocasio-Cortez had called for a permanent cease-fire in the war between Israel and Hamas, but had resisted labeling the conflict a genocide.`\
+https://nytimes.com/2024/03/22/nyregion/aoc-genocide.html
+
 **Venezuelan Opposition Names New Candidate in Show of Unity**\
 `The announcement that Corina Yoris would run came as a surprise to many who had feared that a fractured opposition would benefit President Nicolás Maduro.`\
 https://nytimes.com/2024/03/22/world/americas/venezuela-election-corina-yoris.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/books/laurent-de-brunhoff-dead.html
 **Doctors Say Diagnosis of Catherine’s Cancer Is a Familiar Scenario**\
 `The Princess of Wales did not reveal the type of cancer she has, but oncologists say the disease is often identified during other procedures.`\
 https://nytimes.com/2024/03/22/health/kate-middleton-cancer-chemotherapy.html
-
-**U.S. Says ISIS Was Responsible for Deadly Moscow Concert Hall Attack**\
-`After a period of relative quiet, the Islamic State has been trying to increase its external attacks, according to U.S. counterterrorism officials.`\
-https://nytimes.com/2024/03/22/world/europe/isis-moscow-attack-concert-hall.html
 
