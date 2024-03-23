@@ -1,3 +1,7 @@
+**Elon Musk Is Preoccupied With Something He Doesn’t Understand**\
+`Beyond the surface-level nonsense of the “great replacement” theory lies a more subtle issue.`\
+https://nytimes.com/2024/03/23/opinion/elon-musk-great-replacement.html
+
 **Names of the victims are beginning to emerge.**\
 `By Oleg Matsnev`\
 https://nytimes.com/live/2024/03/23/world/moscow-shooting/names-of-the-victims-are-beginning-to-emerge
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/business/dealbook/the-second-coming-of-the-micros
 **‘Cherry on the Cake’: How China Views the U.S. Crackdown on TikTok**\
 `Dan Wang, an expert on China’s technology sector, says Beijing would see a forced sale or ban of the social media platform as a propaganda coup.`\
 https://nytimes.com/2024/03/23/business/dealbook/tiktok-us-china.html
-
-**2 Novels Bestowed by Fate**\
-`A Chinatown hotel; an adventuress on the make.`\
-https://nytimes.com/2024/03/23/books/read-like-wind-recommendations.html
 
