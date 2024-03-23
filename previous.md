@@ -1,3 +1,15 @@
+**It’s a Golden Age for Shipwreck Discoveries. Why?**\
+`More lost shipwrecks are being found because of new technology, climate change and more vessels scanning the ocean floor for science or commerce.`\
+https://nytimes.com/2024/03/23/science/shipwreck-sinking-sea-why.html
+
+**The Second Coming of the Microsoft Antitrust Battle?**\
+`Prosecutors compare their new fight against Apple to the seminal case against Windows in the 1990s.`\
+https://nytimes.com/2024/03/23/business/dealbook/the-second-coming-of-the-microsoft-antitrust-battle.html
+
+**‘Cherry on the Cake’: How China Views the U.S. Crackdown on TikTok**\
+`Dan Wang, an expert on China’s technology sector, says Beijing would see a forced sale or ban of the social media platform as a propaganda coup.`\
+https://nytimes.com/2024/03/23/business/dealbook/tiktok-us-china.html
+
 **2 Novels Bestowed by Fate**\
 `A Chinatown hotel; an adventuress on the make.`\
 https://nytimes.com/2024/03/23/books/read-like-wind-recommendations.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/03/19/opinion/thepoint/kate-cancer-conspiracies
 **The ‘Blood Bath’ Battle and the Electric Car War**\
 `Does President Biden expect to win on a Jan. 6 strategy alone?`\
 https://nytimes.com/2024/03/23/opinion/trump-biden-electric-cars.html
-
-**James Carville, the Cajun Who Can’t Stop Ragin’**\
-`Hard truths for Joe Biden in the Big Easy.`\
-https://nytimes.com/2024/03/23/opinion/james-carville-bill-clinton.html
-
-**We Thought We Had Spotted an Exotic Bloom. It Was the Vividly Colored Remains of a Soda Bottle.**\
-`I wish I could take a walk and not see the ugly carelessness.`\
-https://nytimes.com/2024/03/23/opinion/oil-gas-plastic-future.html
-
-**The Online Degradation of Women and Girls That We Meet With a Shrug**\
-`It astonishes me that society apparently believes that women and girls should accept becoming the subject of demeaning imagery.`\
-https://nytimes.com/2024/03/23/opinion/deepfake-sex-videos.html
 

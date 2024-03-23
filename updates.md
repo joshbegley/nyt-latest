@@ -1,3 +1,15 @@
+**It’s a Golden Age for Shipwreck Discoveries. Why?**\
+`More lost shipwrecks are being found because of new technology, climate change and more vessels scanning the ocean floor for science or commerce.`\
+https://nytimes.com/2024/03/23/science/shipwreck-sinking-sea-why.html
+
+**The Second Coming of the Microsoft Antitrust Battle?**\
+`Prosecutors compare their new fight against Apple to the seminal case against Windows in the 1990s.`\
+https://nytimes.com/2024/03/23/business/dealbook/the-second-coming-of-the-microsoft-antitrust-battle.html
+
+**‘Cherry on the Cake’: How China Views the U.S. Crackdown on TikTok**\
+`Dan Wang, an expert on China’s technology sector, says Beijing would see a forced sale or ban of the social media platform as a propaganda coup.`\
+https://nytimes.com/2024/03/23/business/dealbook/tiktok-us-china.html
+
 **2 Novels Bestowed by Fate**\
 `A Chinatown hotel; an adventuress on the make.`\
 https://nytimes.com/2024/03/23/books/read-like-wind-recommendations.html
