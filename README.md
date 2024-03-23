@@ -1,3 +1,7 @@
+**Russia Arrests 4 Suspects in Moscow Attack as Death Toll Climbs to 133**\
+`As the Islamic State claimed responsibility, President Vladimir V. Putin vowed to “identify and punish” those responsible and tried to implicate Ukraine.`\
+https://nytimes.com/2024/03/23/world/europe/russia-moscow-terror-attack-islamic-state.html
+
 **Indiana Law Requires Professors to Promote ‘Intellectual Diversity’ or Face Penalties**\
 `Faculty members in public universities could be disciplined or fired, even those with tenure, if they are found to fall short of the new requirements.`\
 https://nytimes.com/2024/03/23/us/indiana-professors-tenure-diversity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/us/politics/kamala-harris-parkland-guns.html
 **Jasmin Paris Becomes First Woman to Complete Extreme Barkley Race**\
 `The Barkley Marathons, which features cryptic rules for entry, requires runners to complete 100 miles of rugged terrain in Tennessee under 60 hours.`\
 https://nytimes.com/2024/03/23/us/barkley-marathons-jasmin-paris.html
-
-**For Putin, Even a Terrorist Attack Is a Chance to Spread Misinformation**\
-`He has refused to acknowledge that ISIS has taken credit for the attack, instead shifting blame to Ukraine.`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/putin-moscow-terrorist-attack
 
