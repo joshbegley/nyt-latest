@@ -1,3 +1,7 @@
+**Kamala Harris Visits Parkland and Urges States to Adopt Red-Flag Gun Laws**\
+`At the site of the 2018 school shooting in Florida, the vice president announced federal help for states to limit weapon access for people deemed to be threats.`\
+https://nytimes.com/2024/03/23/us/politics/kamala-harris-parkland-guns.html
+
 **Jasmin Paris Becomes First Woman to Complete Extreme Barkley Race**\
 `The Barkley Marathons, which features cryptic rules for entry, requires runners to complete 100 miles of rugged terrain in Tennessee under 60 hours.`\
 https://nytimes.com/2024/03/23/us/barkley-marathons-jasmin-paris.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/arts/television/3-body-problem-episode-7-recap.ht
 **‘3 Body Problem’ Episode 6 Recap: Man with a Plan**\
 `After five escalating episodes, the series took its foot off the gas for its sixth.`\
 https://nytimes.com/2024/03/23/arts/television/3-body-problem-episode-6-recap.html
-
-**The Art of Babar**\
-`For more than seven decades, Laurent de Brunhoff painted the adventures of the world’s most beloved elephant.`\
-https://nytimes.com/2024/03/23/arts/laurent-de-brunhoff-babar-books.html
 
