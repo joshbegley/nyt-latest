@@ -30,7 +30,7 @@ https://nytimes.com/2024/03/23/opinion/deepfake-sex-videos.html
 `Readers discuss a column by Paul Krugman about the hardships faced by white rural Americans.`\
 https://nytimes.com/2024/03/23/opinion/rural-rage.html
 
-**Ukraine Says Russian Speculation It Was Behind Attack Are Meant to Rally War Support**\
+**Ukraine Says Russian Speculation It Was Behind Attack Is Meant to Rally War Support**\
 `Kyiv has accused Russia of falsely suggesting it was to blame for the terrorist attack in Moscow and of using the assault to escalate the fighting in Ukraine.`\
 https://nytimes.com/2024/03/23/world/europe/ukraine-russia-moscow-attack.html
 

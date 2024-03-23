@@ -1,3 +1,7 @@
+**Ukraine Says Russian Speculation It Was Behind Attack Is Meant to Rally War Support**\
+`Kyiv has accused Russia of falsely suggesting it was to blame for the terrorist attack in Moscow and of using the assault to escalate the fighting in Ukraine.`\
+https://nytimes.com/2024/03/23/world/europe/ukraine-russia-moscow-attack.html
+
 **What We Know About Catherine, Princess of Wales’s Cancer Diagnosis**\
 `The princess said that the cancer had been discovered after abdominal surgery and that she was receiving “preventative chemotherapy.”`\
 https://nytimes.com/2024/03/23/world/europe/what-we-know-kate-catherine-princess-wales-cancer.html
