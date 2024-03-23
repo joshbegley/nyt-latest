@@ -1,3 +1,7 @@
+**Piknik, a longtime Russian rock band, is now at the center of a tragedy.**\
+`The group was set to play the first of two sold-out concerts when gunmen opened fire at Crocus City Hall.`\
+https://nytimes.com/2024/03/23/world/europe/piknik-russian-rock-band.html
+
 **Kamala Harris Announces Resource Center to Help With Red-Flag Laws**\
 `Vice President Kamala Harris stood beside the parents of children killed in the 2018 shooting at Marjory Stoneman Douglas High School in Parkland, Fla., and announced a new federal resource center to help states implement their red-flag laws.`\
 https://nytimes.com/video/us/100000009377878/kamala-harris-parkland-red-flag-laws.html
