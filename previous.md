@@ -1,3 +1,11 @@
+**How Do You Solve a Problem Like ‘Bayadère’? Send In the Cowboys.**\
+`A new production of the ballet sets it in 1930s Hollywood instead of a mythic India, eliminating Orientalist clichés while embracing American ones.`\
+https://nytimes.com/2024/03/23/arts/dance/bayadere-revamped-indiana-university.html
+
+**A Walk to the Center of the World**\
+`On a hot day in Ghana, a visit to the spot where 0 degrees longitude meets the Equator.`\
+https://nytimes.com/2024/03/23/style/a-walk-to-the-center-of-the-world.html
+
 **ISIS Branch Blamed in Moscow Attack Has Hit at Taliban’s Russia Links**\
 `Islamic State Khorasan, or ISIS-K, previously attacked Russia’s embassy in Kabul and has produced floods of anti-Kremlin propaganda.`\
 https://nytimes.com/2024/03/23/world/asia/isis-attack-russia.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/23/world/moscow-shooting/names-of-the-victims-a
 **U.N. Chief Calls Conditions in Gaza a ‘Moral Outrage’**\
 `In a visit to the Rafah border crossing, Secretary General António Guterres called for an immediate cease-fire and expressed solidarity with Palestinians in the territory.`\
 https://nytimes.com/2024/03/23/world/middleeast/gaza-israel-rafah-un-guterres.html
-
-**Voters head to the polls in Louisiana and Missouri.**\
-`By Nick Corasaniti`\
-https://nytimes.com/live/2024/03/23/us/trump-biden-election/presidential-primaries-louisiana-missouri
-
-**In First Remarks on Attack, Putin Tries to Link Assailants to Ukraine**\
-`American officials, who have assessed that a branch of the Islamic State was responsible, have voiced concern that the Russian leader could seek to falsely blame Ukraine.`\
-https://nytimes.com/2024/03/23/world/europe/moscow-attack-putin.html
 
