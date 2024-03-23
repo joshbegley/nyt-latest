@@ -1,3 +1,7 @@
+**Storm Brings Heavy Snow to Northern New York and Vermont**\
+`Snow was expected in the Dakotas, Minnesota and parts of the upper Great Lakes, forecasters said. In New York City, heavy rains prompted flood watches.`\
+https://nytimes.com/2024/03/23/us/storm-rain-snow-forecast-northeast.html
+
 **For Catherine, Living a Public Life in a Public Body, Privacy is Illusory**\
 `She asked for space after her cancer diagnosis, but cancer is a series of intrusions for any patient. And when Catherine agreed to marry a future king, her body ceased to be her own.`\
 https://nytimes.com/2024/03/23/well/princess-catherine-cancer-privacy.html
