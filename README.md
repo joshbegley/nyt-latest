@@ -1,3 +1,7 @@
+**Russia Has Suffered Other Major Attacks in Recent Decades**\
+`The concert hall massacre near Moscow raised Russian memories of other attacks, most related to the wars against Chechen separatists in the 1990s and 2000s that helped enable the rise of Vladimir V. Putin.`\
+https://nytimes.com/2024/03/23/world/europe/moscow-attacks-shootings-bombings.html
+
 **The Government’s Struggles With Outsourcing Software Development**\
 `The bloated cost of the ArriveCAN app and new investigations into possible fraud have highlighted some problems with turning to outside companies.`\
 https://nytimes.com/2024/03/23/world/canada/arrivecan-software-contracting-fraud.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/theater/cynthia-nixon-seven-year-disappear.html
 **Gisele Bündchen on Healthy Eating and Unhealthy Relationships**\
 `The supermodel opens up about life in Miami and her new cookbook, “Nourish.”`\
 https://nytimes.com/2024/03/23/style/gisele-bundchen-on-healthy-eating-and-unhealthy-relationships.html
-
-**Millions of Low-Income Families Set to Lose Internet Subsidies**\
-`The Affordable Connectivity Program, a $14.2 billion federal effort to make internet service more affordable, is expected to run out of funding this spring.`\
-https://nytimes.com/2024/03/23/us/politics/internet-subsidies-affordable-connecticity-program.html
 
