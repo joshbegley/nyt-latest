@@ -1,3 +1,7 @@
+**Voters head to the polls in Louisiana and Missouri.**\
+`By Nick Corasaniti`\
+https://nytimes.com/live/2024/03/23/us/trump-biden-election/presidential-primaries-louisiana-missouri
+
 **Catherine’s Cancer Disclosure Shows Her Lessons From Previous Media Ordeals**\
 `“They know they can’t control the online world,” one expert on the royal family said about the recent spate of revelations about the health of Catherine and King Charles III.`\
 https://nytimes.com/2024/03/23/world/europe/princess-kate-middleton-cancer.html

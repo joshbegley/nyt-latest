@@ -16,7 +16,7 @@ https://nytimes.com/2024/03/23/world/middleeast/gaza-israel-rafah-un-guterres.ht
 
 **Voters head to the polls in Louisiana and Missouri.**\
 `By Nick Corasaniti`\
-https://nytimes.com/live/2024/03/23/us/election-live/presidential-primaries-louisiana-missouri
+https://nytimes.com/live/2024/03/23/us/trump-biden-election/presidential-primaries-louisiana-missouri
 
 **In First Remarks on Attack, Putin Tries to Link Assailants to Ukraine**\
 `American officials, who have assessed that a branch of the Islamic State was responsible, have voiced concern that the Russian leader could seek to falsely blame Ukraine.`\
