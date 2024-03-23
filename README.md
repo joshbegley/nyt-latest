@@ -14,7 +14,7 @@ https://nytimes.com/2024/03/23/arts/television/3-body-problem-season-finale-reca
 `In 1964, at the height of the civil rights movement, he became the first Black pilot for a major commercial airline in the United States.`\
 https://nytimes.com/2024/03/23/us/david-e-harris-dead.html
 
-**Deadly Moscow Attack Shatters Putin’s Security Promise to Russian People**\
+**Deadly Moscow Attack Shatters Putin’s Security Promise to Russians**\
 `The tragedy outside Moscow is a blow to a leader riding an aura of confidence only days after a stage-managed election victory.`\
 https://nytimes.com/2024/03/23/world/europe/putin-russia-moscow-attack.html
 
