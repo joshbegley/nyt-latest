@@ -1,3 +1,7 @@
+**Here is the latest.**\
+`By Victoria Kim`\
+https://nytimes.com/2024/03/23/world/europe/here-is-the-latest.html
+
 **Modi’s Party Doesn’t Control All of India. But He’s Working on It.**\
 `As an election nears, political strife between Prime Minister Narendra Modi and opposition-held states is straining the federal formula that holds India together.`\
 https://nytimes.com/2024/03/23/world/asia/india-election-federalism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/us/politics/california-fong-boudreaux-mccarthy.ht
 **United Airlines Faces Closer F.A.A. Scrutiny After Safety Incidents**\
 `The carrier, which has experienced several recent mishaps, told employees to expect a review by federal regulators in coming weeks.`\
 https://nytimes.com/2024/03/22/business/united-airlines-faa-safety.html
-
-**Catherine’s Cancer Diagnosis Puts U.K. Royals on Even More Uncertain Terrain**\
-`First King Charles and now Catherine, Princess of Wales, are facing grave health concerns, stretching an already slimmed-down monarchy.`\
-https://nytimes.com/2024/03/22/world/europe/princess-kate-cancer-royal-family.html
 
