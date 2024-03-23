@@ -1,3 +1,7 @@
+**‘Just a Human’: Londoners Offer Sympathy on Princess’s Cancer Diagnosis**\
+`Many expressed compassion for Catherine, Princess of Wales, a woman who has spent much of the past two decades with every aspect of her life scrutinized.`\
+https://nytimes.com/2024/03/23/world/europe/princess-kate-cancer-royal-family.html
+
 **The Music That Made Us**\
 `What happens when we re-encounter cultural artifacts that were deeply important to us and they’ve changed, or we have, or both?`\
 https://nytimes.com/2024/03/23/briefing/the-music-that-made-us.html
