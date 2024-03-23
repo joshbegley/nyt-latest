@@ -1,3 +1,31 @@
+**The Real Royal Scandal Is on Us**\
+`What will it take for a culture sick with its own wolfish appetite for self-exposure to try to get better?`\
+https://nytimes.com/2024/03/23/opinion/kate-middleton-scandal-cancer.html
+
+**The Internet Should Feel Shame Over Kate Middleton**\
+`Her cancer diagnosis is an embarrassment to the global conspiracy industry.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/kate-cancer-conspiracies
+
+**The ‘Blood Bath’ Battle and the Electric Car War**\
+`Does President Biden expect to win on a Jan. 6 strategy alone?`\
+https://nytimes.com/2024/03/23/opinion/trump-biden-electric-cars.html
+
+**James Carville, the Cajun Who Can’t Stop Ragin’**\
+`Hard truths for Joe Biden in the Big Easy.`\
+https://nytimes.com/2024/03/23/opinion/james-carville-bill-clinton.html
+
+**We Thought We Had Spotted an Exotic Bloom. It Was the Vividly Colored Remains of a Soda Bottle.**\
+`I wish I could take a walk and not see the ugly carelessness.`\
+https://nytimes.com/2024/03/23/opinion/oil-gas-plastic-future.html
+
+**The Online Degradation of Women and Girls That We Meet With a Shrug**\
+`It astonishes me that society apparently believes that women and girls should accept becoming the subject of demeaning imagery.`\
+https://nytimes.com/2024/03/23/opinion/deepfake-sex-videos.html
+
+**The Roots of Rural Rage**\
+`Readers discuss a column by Paul Krugman about the hardships faced by white rural Americans.`\
+https://nytimes.com/2024/03/23/opinion/rural-rage.html
+
 **Ukraine says Russian accusations it was behind the attack are meant to rally war support.**\
 `By Andrew E. Kramer`\
 https://nytimes.com/2024/03/23/world/europe/ukraine-says-russian-accusations-it-was-behind-the-attack-are-meant-to-rally-war-support.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/03/23/world/europe/princess-kate-cancer-royal-family.ht
 **The Music That Made Us**\
 `What happens when we re-encounter cultural artifacts that were deeply important to us and they’ve changed, or we have, or both?`\
 https://nytimes.com/2024/03/23/briefing/the-music-that-made-us.html
-
-**Russia Has Suffered Other Major Attacks in Recent Decades**\
-`The concert hall massacre near Moscow raised Russian memories of other attacks, most related to the wars against Chechen separatists in the 1990s and 2000s that helped enable the rise of Vladimir V. Putin.`\
-https://nytimes.com/2024/03/23/world/europe/moscow-attacks-shootings-bombings.html
-
-**The Government’s Struggles With Outsourcing Software Development**\
-`The bloated cost of the ArriveCAN app and new investigations into possible fraud have highlighted some problems with turning to outside companies.`\
-https://nytimes.com/2024/03/23/world/canada/arrivecan-software-contracting-fraud.html
-
-**Kari Lake, a Trump Acolyte, Struggles to Find Her Path**\
-`The Republican Senate candidate in Arizona, who has been an election denier and Trump supporter, is seeking to appeal to establishment Republicans.`\
-https://nytimes.com/2024/03/23/us/politics/kari-lake-arizona-senate.html
-
-**Are We in the Midst of a Political Realignment?**\
-`Assessing the level of change in partisan allegiance in recent years, as well as the president’s numbers since the State of the Union.`\
-https://nytimes.com/2024/03/23/upshot/trump-biden-political-realignment.html
-
-**In Frigid Early Spring, Lining Up for a Rite of Summer in Western Massachusetts**\
-`Music lovers stood in the cold this week for a first crack at tickets to Tanglewood, a beloved outdoor venue where the Boston Symphony Orchestra plays all summer long.`\
-https://nytimes.com/2024/03/23/us/tanglewood-berkshires-massachusetts.html
-
-**The State Had at Least $52,000 of Her Money. Why Couldn’t She Get It Back?**\
-`A financial firm told an account owner that it had turned over her money to the state. When she filed a claim, something strange happened.`\
-https://nytimes.com/2024/03/23/your-money/unclaimed-property-missing-money.html
-
-**Abbott’s Army on the Border: Is it Working?**\
-`The Texas governor, Greg Abbott, has spent $10 billion building his own border security network. In Eagle Pass, where it has been concentrated, far fewer migrants have been crossing this year.`\
-https://nytimes.com/2024/03/23/us/texas-abbott-border.html
 
