@@ -1,3 +1,7 @@
+**Modi’s Party Doesn’t Control All of India. But He’s Working on It.**\
+`As an election nears, political strife between Prime Minister Narendra Modi and opposition-held states is straining the federal formula that holds India together.`\
+https://nytimes.com/2024/03/23/world/asia/india-election-federalism.html
+
 **Take, as a Pointer**\
 `Need some tips and tricks for this Sam Ezersky toughie? Hand me the leash.`\
 https://nytimes.com/2024/03/22/crosswords/daily-puzzle-2024-03-23.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/business/united-airlines-faa-safety.html
 **Catherine’s Cancer Diagnosis Puts U.K. Royals on Even More Uncertain Terrain**\
 `First King Charles and now Catherine, Princess of Wales, are facing grave health concerns, stretching an already slimmed-down monarchy.`\
 https://nytimes.com/2024/03/22/world/europe/princess-kate-cancer-royal-family.html
-
-**At Oakland University, Students and Alumni Bask in the N.C.A.A. Spotlight**\
-`Supporters of the little-known college on Friday celebrated its moment of fame after a shocking first-round win.`\
-https://nytimes.com/2024/03/22/us/oakland-university-march-madness-ncaa.html
 

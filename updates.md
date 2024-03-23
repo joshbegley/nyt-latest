@@ -1,3 +1,7 @@
+**Modi’s Party Doesn’t Control All of India. But He’s Working on It.**\
+`As an election nears, political strife between Prime Minister Narendra Modi and opposition-held states is straining the federal formula that holds India together.`\
+https://nytimes.com/2024/03/23/world/asia/india-election-federalism.html
+
 **Take, as a Pointer**\
 `Need some tips and tricks for this Sam Ezersky toughie? Hand me the leash.`\
 https://nytimes.com/2024/03/22/crosswords/daily-puzzle-2024-03-23.html
