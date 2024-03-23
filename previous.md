@@ -1,3 +1,7 @@
+**Corrections: March 23, 2024**\
+`Corrections that appeared in print on Saturday, March 23, 2024.`\
+https://nytimes.com/2024/03/22/pageoneplus/corrections-march-23-2024.html
+
 **Quotation of the Day: Barber, Please Put This on Verdugo’s Tab**\
 `Quotation of the Day for Saturday, March 23, 2024.`\
 https://nytimes.com/2024/03/22/pageoneplus/quotation-of-the-day-barber-please-put-this-on-verdugos-tab.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/us/oakland-university-march-madness-ncaa.html
 **Chicago Voters Reject Real Estate Tax Change to Fund Homeless Programs**\
 `The referendum, backed by progressives but criticized by the real estate industry, called for raising transfer taxes on properties that sell for more than $1 million.`\
 https://nytimes.com/2024/03/22/us/chicago-real-estate-tax-vote.html
-
-**Laurent de Brunhoff, Artist Who Made Babar Famous, Dies at 98**\
-`After his father, who created the character, died, he continued the series of books about a modest elephant and his escapades in Paris for seven decades.`\
-https://nytimes.com/2024/03/22/books/laurent-de-brunhoff-dead.html
 
