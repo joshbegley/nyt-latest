@@ -1,3 +1,7 @@
+**Indiana Law Requires Professors to Promote ‘Intellectual Diversity’ or Face Penalties**\
+`Faculty members in public universities could be disciplined or fired, even those with tenure, if they are found to fall short of the new requirements.`\
+https://nytimes.com/2024/03/23/us/indiana-professors-tenure-diversity.html
+
 **Storm Brings Heavy Snow to Northern New York and Vermont**\
 `In Central Park, 3.63 inches of rain fell on Saturday. Philadelphia had 3.06 inches, making it the wettest calendar day ever recorded in March, forecasters said.`\
 https://nytimes.com/2024/03/23/us/storm-rain-snow-forecast-northeast.html
