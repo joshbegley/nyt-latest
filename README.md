@@ -1,3 +1,7 @@
+**Storm Brings Heavy Snow to Northern New York and Vermont**\
+`Snow was expected in the Dakotas, Minnesota and parts of the upper Great Lakes, forecasters said. In New York City, heavy rains prompted flood watches.`\
+https://nytimes.com/2024/03/23/us/storm-rain-snow-forecast-northeast.html
+
 **For Catherine, Living a Public Life in a Public Body, Privacy is Illusory**\
 `She asked for space after her cancer diagnosis, but cancer is a series of intrusions for any patient. And when Catherine agreed to marry a future king, her body ceased to be her own.`\
 https://nytimes.com/2024/03/23/well/princess-catherine-cancer-privacy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/us/david-e-harris-dead.html
 **Deadly Moscow Attack Shatters Putin’s Security Promise to Russians**\
 `The tragedy outside Moscow is a blow to a leader riding an aura of confidence only days after a stage-managed election victory.`\
 https://nytimes.com/2024/03/23/world/europe/putin-russia-moscow-attack.html
-
-**‘3 Body Problem’ Episode 7 Recap: Brain Drain**\
-`Wanted: One intelligent human brain, body not required.`\
-https://nytimes.com/2024/03/23/arts/television/3-body-problem-episode-7-recap.html
 
