@@ -1,3 +1,7 @@
+**For Putin, Even a Terrorist Attack Is a Chance to Spread Misinformation**\
+`He has refused to acknowledge that ISIS has taken credit for the attack, instead shifting blame to Ukraine.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/putin-moscow-terrorist-attack
+
 **Maps and Diagrams of the Moscow Concert Hall Attack**\
 `The mass shooting and arson at a suburban Moscow concert venue, which killed more than 130, were attributed by U.S. officials to members of a branch of the Islamic State.`\
 https://nytimes.com/interactive/2024/03/23/world/europe/moscow-concert-hall-attack-map.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/arts/laurent-de-brunhoff-babar-books.html
 **Maurizio Pollini, Celebrated Pianist Who Defined Modernism, Dies at 82**\
 `His recordings of Beethoven and Chopin were hailed as classics, but his technical ability sometimes invited controversy.`\
 https://nytimes.com/2024/03/23/arts/music/maurizio-pollini-dead.html
-
-**There have been other deadly attacks at concerts and music festivals in recent years.**\
-`By Caryn Ganz`\
-https://nytimes.com/live/2024/03/23/world/moscow-shooting/concert-festival-shootings
 

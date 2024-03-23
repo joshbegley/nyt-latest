@@ -1,3 +1,7 @@
+**For Putin, Even a Terrorist Attack Is a Chance to Spread Misinformation**\
+`He has refused to acknowledge that ISIS has taken credit for the attack, instead shifting blame to Ukraine.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/putin-moscow-terrorist-attack
+
 **Deadly Moscow Attack Shatters Putin’s Security Promise to Russians**\
 `The tragedy outside Moscow is a blow to a leader riding an aura of confidence only days after a stage-managed election victory.`\
 https://nytimes.com/2024/03/23/world/europe/putin-russia-moscow-attack.html
