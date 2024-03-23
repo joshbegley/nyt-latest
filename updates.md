@@ -1,3 +1,7 @@
+**There have been other deadly attacks at concerts and music festivals in recent years.**\
+`By Caryn Ganz`\
+https://nytimes.com/live/2024/03/23/world/moscow-shooting/concert-festival-shootings
+
 **Biden Signs Final Bill to Fund the Government, Ending Shutdown Fears**\
 `The president signed a $1.2 trillion spending package that passed early on Saturday morning, narrowly avoiding a shutdown.`\
 https://nytimes.com/2024/03/23/us/politics/biden-signs-spending-bill.html
