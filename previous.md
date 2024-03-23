@@ -1,3 +1,7 @@
+**Feeling Possessive**\
+`John Kugelman’s Sunday puzzle’s out to get you.`\
+https://nytimes.com/2024/03/23/crosswords/daily-puzzle-2024-03-24.html
+
 **Piknik, a longtime Russian rock band, is now at the center of a tragedy.**\
 `The group was set to play the first of two sold-out concerts when gunmen opened fire at Crocus City Hall.`\
 https://nytimes.com/2024/03/23/world/europe/piknik-russian-rock-band.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/23/world/europe/moscow-concert-hall-atta
 **Biden Signs Final Bill to Fund the Government, Ending Shutdown Fears**\
 `The president signed a $1.2 trillion spending package that passed early on Saturday morning, narrowly avoiding a shutdown.`\
 https://nytimes.com/2024/03/23/us/politics/biden-signs-spending-bill.html
-
-**‘3 Body Problem’ Season Finale Recap: Absolute Power**\
-`The show’s first season ended with unwanted appointments, buzzing cicadas and flying brains.`\
-https://nytimes.com/2024/03/23/arts/television/3-body-problem-season-finale-recap.html
 
