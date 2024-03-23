@@ -1,3 +1,7 @@
+**‘3 Body Problem’ Episode 6 Recap: Man with a Plan**\
+`After five escalating episodes, the series took its foot off the gas for its sixth.`\
+https://nytimes.com/2024/03/23/arts/television/3-body-problem-episode-6-recap.html
+
 **The Art of Babar**\
 `For more than seven decades, Laurent de Brunhoff painted the adventures of the world’s most beloved elephant.`\
 https://nytimes.com/2024/03/23/arts/laurent-de-brunhoff-babar-books.html
