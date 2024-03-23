@@ -1,3 +1,11 @@
+**Catherine’s Cancer Disclosure Shows Her Lessons From Previous Media Ordeals**\
+`“They know they can’t control the online world,” one expert on the royal family said about the recent spate of revelations about the health of Catherine and King Charles III.`\
+https://nytimes.com/2024/03/23/world/europe/princess-kate-middleton-cancer.html
+
+**Voters head to the polls in Louisiana and Missouri.**\
+`By Nick Corasaniti`\
+https://nytimes.com/live/2024/03/23/us/election-live/presidential-primaries-louisiana-missouri
+
 **Elon Musk Is Preoccupied With Something He Doesn’t Understand**\
 `Beyond the surface-level nonsense of the “great replacement” theory lies a more subtle issue.`\
 https://nytimes.com/2024/03/23/opinion/elon-musk-great-replacement.html
