@@ -1,3 +1,7 @@
+**In First Remarks on Attack, Putin Tries to Link Assailants to Ukraine**\
+`American officials, who have assessed that a branch of the Islamic State was responsible, have voiced concern that the Russian leader could seek to falsely blame Ukraine.`\
+https://nytimes.com/2024/03/23/world/europe/moscow-attack-putin.html
+
 **Russia’s allies and adversaries alike express outrage over the attack.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/23/world/moscow-shooting/russias-allies-and-adversaries-alike-express-outrage-over-the-attack
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/podcasts/all-the-kings-horses.html
 **What We Know About Catherine, Princess of Wales’s Cancer Diagnosis**\
 `The princess said that the cancer had been discovered after abdominal surgery and that she was receiving “preventative chemotherapy.”`\
 https://nytimes.com/2024/03/23/world/europe/what-we-know-kate-catherine-princess-wales-cancer.html
-
-**The Real Royal Scandal Is on Us**\
-`What will it take for a culture sick with its own wolfish appetite for self-exposure to try to get better?`\
-https://nytimes.com/2024/03/23/opinion/kate-middleton-scandal-cancer.html
 

@@ -1,3 +1,7 @@
+**In First Remarks on Attack, Putin Tries to Link Assailants to Ukraine**\
+`American officials, who have assessed that a branch of the Islamic State was responsible, have voiced concern that the Russian leader could seek to falsely blame Ukraine.`\
+https://nytimes.com/2024/03/23/world/europe/moscow-attack-putin.html
+
 **Russia’s allies and adversaries alike express outrage over the attack.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/23/world/moscow-shooting/russias-allies-and-adversaries-alike-express-outrage-over-the-attack
