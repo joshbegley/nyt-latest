@@ -1,3 +1,7 @@
+**Biden Signs Final Bill to Fund the Government, Ending Shutdown Fears**\
+`The president signed a $1.2 trillion spending package that passed early on Saturday morning, narrowly avoided a shutdown.`\
+https://nytimes.com/2024/03/23/us/politics/biden-signs-spending-bill.html
+
 **‘3 Body Problem’ Season Finale Recap: Absolute Power**\
 `The show’s first season ended with unwanted appointments, buzzing cicadas and flying brains.`\
 https://nytimes.com/2024/03/23/arts/television/3-body-problem-season-finale-recap.html

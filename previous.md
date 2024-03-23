@@ -1,3 +1,7 @@
+**Biden Signs Final Bill to Fund the Government, Ending Shutdown Fears**\
+`The president signed a $1.2 trillion spending package that passed early on Saturday morning, narrowly avoided a shutdown.`\
+https://nytimes.com/2024/03/23/us/politics/biden-signs-spending-bill.html
+
 **‘3 Body Problem’ Season Finale Recap: Absolute Power**\
 `The show’s first season ended with unwanted appointments, buzzing cicadas and flying brains.`\
 https://nytimes.com/2024/03/23/arts/television/3-body-problem-season-finale-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/23/world/moscow-shooting/concerts-shootings
 **How Do You Solve a Problem Like ‘Bayadère’? Send In the Cowboys.**\
 `A new production of the ballet sets it in 1930s Hollywood instead of a mythic India, eliminating Orientalist clichés while embracing American ones.`\
 https://nytimes.com/2024/03/23/arts/dance/bayadere-revamped-indiana-university.html
-
-**A Walk to the Center of the World**\
-`On a hot day in Ghana, a visit to the spot where 0 degrees longitude meets the Equator.`\
-https://nytimes.com/2024/03/23/style/a-walk-to-the-center-of-the-world.html
 
