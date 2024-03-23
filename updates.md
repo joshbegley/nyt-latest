@@ -1,3 +1,15 @@
+**‘We were in such a good mood.’ Then shots rang out, a survivor says.**\
+`By Nanna Heitmann and Valerie Hopkins`\
+https://nytimes.com/live/2024/03/23/world/moscow-shooting/we-were-in-such-a-good-mood-then-shots-rang-out-a-survivor-says
+
+**Hey, Dude, What’s the History of Dude?**\
+`Over the decades, dudes have been fops, ‘dandified dilettantes,’ cool guys and surfers.`\
+https://nytimes.com/2024/03/23/insider/hey-dude-whats-the-history-of-dude.html
+
+**Soothing Meals With Assertive Flavors**\
+`Recipes for those gray, not-so-springy days: skillet eggs with garam masala and tomatoes, braised chicken with salted lemon, sweet potato shepherd’s pie.`\
+https://nytimes.com/2024/03/23/dining/soothing-meals-with-assertive-flavors.html
+
 **Voters head to the polls in Louisiana and Missouri.**\
 `By Nick Corasaniti`\
 https://nytimes.com/live/2024/03/23/us/trump-biden-election/presidential-primaries-louisiana-missouri
