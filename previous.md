@@ -1,3 +1,7 @@
+**Jasmin Paris Becomes First Woman to Complete Extreme Barkley Race**\
+`The Barkley Marathons, which features cryptic rules for entry, requires runners to complete 100 miles of rugged terrain in Tennessee under 60 hours.`\
+https://nytimes.com/2024/03/23/us/barkley-marathon-jasmin-paris.html
+
 **For Putin, Even a Terrorist Attack Is a Chance to Spread Misinformation**\
 `He has refused to acknowledge that ISIS has taken credit for the attack, instead shifting blame to Ukraine.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/putin-moscow-terrorist-attack
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/arts/television/3-body-problem-episode-6-recap.ht
 **The Art of Babar**\
 `For more than seven decades, Laurent de Brunhoff painted the adventures of the world’s most beloved elephant.`\
 https://nytimes.com/2024/03/23/arts/laurent-de-brunhoff-babar-books.html
-
-**Maurizio Pollini, Celebrated Pianist Who Defined Modernism, Dies at 82**\
-`His recordings of Beethoven and Chopin were hailed as classics, but his technical ability sometimes invited controversy.`\
-https://nytimes.com/2024/03/23/arts/music/maurizio-pollini-dead.html
 

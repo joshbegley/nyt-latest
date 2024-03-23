@@ -1,3 +1,7 @@
+**Jasmin Paris Becomes First Woman to Complete Extreme Barkley Race**\
+`The Barkley Marathons, which features cryptic rules for entry, requires runners to complete 100 miles of rugged terrain in Tennessee under 60 hours.`\
+https://nytimes.com/2024/03/23/us/barkley-marathon-jasmin-paris.html
+
 **For Putin, Even a Terrorist Attack Is a Chance to Spread Misinformation**\
 `He has refused to acknowledge that ISIS has taken credit for the attack, instead shifting blame to Ukraine.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/putin-moscow-terrorist-attack
