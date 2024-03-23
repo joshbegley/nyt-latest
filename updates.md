@@ -1,3 +1,7 @@
+**Storm Brings Heavy Snow to Northern New York and Vermont**\
+`In Central Park, 3.63 inches of rain fell on Saturday. Philadelphia had 3.06 inches, making it the wettest calendar day ever recorded in March, forecasters said.`\
+https://nytimes.com/2024/03/23/us/storm-rain-snow-forecast-northeast.html
+
 **Peter G. Angelos, Owner of the Baltimore Orioles, Dies at 94**\
 `Mr. Angelos, who built a fortune as a class-action lawyer, endeared himself to fans by investing in free agents to bolster the team.`\
 https://nytimes.com/2024/03/23/us/peter-angelos-baltimore-orioles-dead.html

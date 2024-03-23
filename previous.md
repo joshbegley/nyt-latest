@@ -15,7 +15,7 @@ https://nytimes.com/2024/03/23/world/europe/piknik-russian-rock-band.html
 https://nytimes.com/video/us/100000009377878/kamala-harris-parkland-red-flag-laws.html
 
 **Storm Brings Heavy Snow to Northern New York and Vermont**\
-`Snow was expected in the Dakotas, Minnesota and parts of the upper Great Lakes, forecasters said. In New York City, heavy rains prompted flood watches.`\
+`In Central Park, 3.63 inches of rain fell on Saturday. Philadelphia had 3.06 inches, making it the wettest calendar day ever recorded in March, forecasters said.`\
 https://nytimes.com/2024/03/23/us/storm-rain-snow-forecast-northeast.html
 
 **For Catherine, Living a Public Life in a Public Body, Privacy is Illusory**\
