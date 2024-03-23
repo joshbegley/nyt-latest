@@ -1,3 +1,7 @@
+**What We Know About ISIS-K, the Group That Claimed Responsibility for the Moscow Attack**\
+`The Islamic State affiliate has been a major threat to the Taliban’s ability to govern Afghanistan.`\
+https://nytimes.com/2024/03/22/us/politics/isis-k-moscow-attack.html
+
 **Venezuelan Opposition Names New Candidate in Show of Unity**\
 `The announcement that Corina Yoris would run came as a surprise to many who had feared that a fractured opposition would benefit President Nicolás Maduro.`\
 https://nytimes.com/2024/03/22/world/americas/venezuela-election-corina-yoris.html
