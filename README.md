@@ -1,3 +1,7 @@
+**Peter G. Angelos, Owner of the Baltimore Orioles, Dies at 94**\
+`Mr. Angelos, who built a fortune as a class-action lawyer, endeared himself to fans by investing in free agents to bolster the team.`\
+https://nytimes.com/2024/03/23/us/peter-angelos-baltimore-orioles-dead.html
+
 **Feeling Possessive**\
 `John Kugelman’s Sunday puzzle’s out to get you.`\
 https://nytimes.com/2024/03/23/crosswords/daily-puzzle-2024-03-24.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/19/opinion/thepoint/putin-moscow-terrorist-atta
 **Maps and Diagrams of the Moscow Concert Hall Attack**\
 `The mass shooting and arson at a suburban Moscow concert venue, which killed more than 130, were attributed by U.S. officials to members of a branch of the Islamic State.`\
 https://nytimes.com/interactive/2024/03/23/world/europe/moscow-concert-hall-attack-map.html
-
-**Biden Signs Final Bill to Fund the Government, Ending Shutdown Fears**\
-`The president signed a $1.2 trillion spending package that passed early on Saturday morning, narrowly avoiding a shutdown.`\
-https://nytimes.com/2024/03/23/us/politics/biden-signs-spending-bill.html
 
