@@ -1,3 +1,7 @@
+**Russia’s allies and adversaries alike express outrage over the attack.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/03/23/world/moscow-shooting/russias-allies-and-adversaries-alike-express-outrage-over-the-attack
+
 **Hey, Losers! Here’s How to Bring Baseball’s Very Boring Era to an End.**\
 `Without trash talk, baseball has lost more than the occasional dugout brawl and well-timed zinger; it’s lost some of its drama.`\
 https://nytimes.com/2024/03/23/opinion/baseball-season-mlb-trash-talk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/world/europe/what-we-know-kate-catherine-princess
 **The Real Royal Scandal Is on Us**\
 `What will it take for a culture sick with its own wolfish appetite for self-exposure to try to get better?`\
 https://nytimes.com/2024/03/23/opinion/kate-middleton-scandal-cancer.html
-
-**The Internet Should Feel Shame Over Kate Middleton**\
-`Her cancer diagnosis is an embarrassment to the global conspiracy industry.`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/kate-cancer-conspiracies
 
