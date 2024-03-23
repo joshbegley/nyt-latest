@@ -1,3 +1,7 @@
+**All the King’s Horses**\
+`The things we break, and the ones we can’t fix.`\
+https://nytimes.com/2024/03/23/podcasts/all-the-kings-horses.html
+
 **Ukraine Says Russian Speculation It Was Behind Attack Is Meant to Rally War Support**\
 `Kyiv has accused Russia of falsely suggesting it was to blame for the terrorist attack in Moscow and of using the assault to escalate the fighting in Ukraine.`\
 https://nytimes.com/2024/03/23/world/europe/ukraine-russia-moscow-attack.html
