@@ -1,3 +1,7 @@
+**For Catherine, Living a Public Life in a Public Body, Privacy is Illusory**\
+`She asked for space after her cancer diagnosis, but cancer is a series of intrusions for any patient. And when Catherine agreed to marry a future king, her body ceased to be her own.`\
+https://nytimes.com/2024/03/23/well/princess-catherine-cancer-privacy.html
+
 **Kamala Harris Visits Parkland and Urges States to Adopt Red-Flag Gun Laws**\
 `At the site of the 2018 school shooting in Florida, the vice president announced federal help for states to limit weapon access for people deemed to be threats.`\
 https://nytimes.com/2024/03/23/us/politics/kamala-harris-parkland-guns.html
