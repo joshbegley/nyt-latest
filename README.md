@@ -27,7 +27,7 @@ https://nytimes.com/2024/03/23/crosswords/spelling-bee-forum.html
 https://nytimes.com/2024/03/23/us/the-far-right-lost-badly-and-wants-its-revenge.html
 
 **23moscow-attack**\
-`Russia Searches for Assailants After Attack Kills More Than 60`\
+`Russia Searches for Assailants After Attack Kills More Than 90`\
 https://nytimes.com/live/2024/03/23/world/moscow-shooting
 
 **Here is the latest.**\
