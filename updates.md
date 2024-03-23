@@ -1,5 +1,9 @@
 **The Art of Babar**\
 `For more than seven decades, Laurent de Brunhoff painted the adventures of the world’s most beloved elephant.`\
+https://nytimes.com/2024/03/23/arts/laurent-de-brunhoff-babar-books.html
+
+**The Art of Babar**\
+`For more than seven decades, Laurent de Brunhoff painted the adventures of the world’s most beloved elephant.`\
 https://nytimes.com/2024/03/23/arts/the-art-of-babar.html
 
 **Maurizio Pollini, Celebrated Pianist Who Defined Modernism, Dies at 82**\
