@@ -1,3 +1,7 @@
+**Hey, Losers! Here’s How to Bring Baseball’s Very Boring Era to an End.**\
+`Without trash talk, baseball has lost more than the occasional dugout brawl and well-timed zinger; it’s lost some of its drama.`\
+https://nytimes.com/2024/03/23/opinion/baseball-season-mlb-trash-talk.html
+
 **It’s a Golden Age for Shipwreck Discoveries. Why?**\
 `More lost shipwrecks are being found because of new technology, climate change and more vessels scanning the ocean floor for science or commerce.`\
 https://nytimes.com/2024/03/23/science/shipwreck-sinking-sea-why.html
