@@ -1,3 +1,7 @@
+**23moscow-attack**\
+`Russia Searches for Assailants After Attack Kills More Than 60`\
+https://nytimes.com/live/2024/03/23/world/moscow-shooting
+
 **A Dark Day Is Coming for Buffalo. It Can’t Wait.**\
 `A total eclipse will pass directly over the city next month, and as many as a million visitors are expected to visit.`\
 https://nytimes.com/2024/03/23/nyregion/a-dark-day-is-coming-for-buffalo-it-cant-wait.html
