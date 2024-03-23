@@ -1,3 +1,7 @@
+**2 Novels Bestowed by Fate**\
+`A Chinatown hotel; an adventuress on the make.`\
+https://nytimes.com/2024/03/23/books/read-like-wind-recommendations.html
+
 **Here’s What We Know About the Moscow Concert Hall Attack**\
 `The assault on a popular concert hall was the deadliest act of terrorism in the Russian capital in more than a decade.`\
 https://nytimes.com/2024/03/23/world/europe/moscow-concert-hall-attack-what-we-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/opinion/oil-gas-plastic-future.html
 **The Online Degradation of Women and Girls That We Meet With a Shrug**\
 `It astonishes me that society apparently believes that women and girls should accept becoming the subject of demeaning imagery.`\
 https://nytimes.com/2024/03/23/opinion/deepfake-sex-videos.html
-
-**The Roots of Rural Rage**\
-`Readers discuss a column by Paul Krugman about the hardships faced by white rural Americans.`\
-https://nytimes.com/2024/03/23/opinion/rural-rage.html
 
