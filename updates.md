@@ -1,3 +1,7 @@
+**Ukraine Says Russian Speculation It Was Behind Attack Are Meant to Rally War Support**\
+`Kyiv has accused Russia of falsely suggesting it was to blame for the terrorist attack in Moscow and of using the assault to escalate the fighting in Ukraine.`\
+https://nytimes.com/2024/03/23/world/europe/ukraine-russia-moscow-attack.html
+
 **The Real Royal Scandal Is on Us**\
 `What will it take for a culture sick with its own wolfish appetite for self-exposure to try to get better?`\
 https://nytimes.com/2024/03/23/opinion/kate-middleton-scandal-cancer.html
