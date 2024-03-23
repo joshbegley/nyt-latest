@@ -1,3 +1,11 @@
+**Venezuelan Opposition Names New Candidate in Show of Unity**\
+`The announcement that Corina Yoris would run came as a surprise to many who had feared that a fractured opposition would benefit President Nicolás Maduro.`\
+https://nytimes.com/2024/03/22/world/americas/venezuela-election-corina-yoris.html
+
+**What We Know About ISIS-K, the Group That Claimed Responsibility for the Moscow Attack**\
+`The Islamic State affiliate has been a major threat to the Taliban’s ability to govern Afghanistan.`\
+https://nytimes.com/2024/03/22/us/politics/what-we-know-about-isis-k-the-group-that-claimed-responsibility-for-the-moscow-attack.html
+
 **Two Republicans Advance to a Runoff to Finish Kevin McCarthy’s Term**\
 `Vince Fong and Mike Boudreaux, who advanced to a special election in May, will also face each other in November to fill the former House speaker’s seat for a full, two-year term.`\
 https://nytimes.com/2024/03/22/us/politics/california-fong-boudreaux-mccarthy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/22/health/kate-middleton-cancer-chemotherapy.html
 **U.S. Says ISIS Was Responsible for Deadly Moscow Concert Hall Attack**\
 `After a period of relative quiet, the Islamic State has been trying to increase its external attacks, according to U.S. counterterrorism officials.`\
 https://nytimes.com/2024/03/22/world/europe/isis-moscow-attack-concert-hall.html
-
-**How to Talk to Children About Cancer**\
-`These conversations are among the more important and delicate discussions that parents can have, experts said.`\
-https://nytimes.com/2024/03/22/well/live/cancer-children-princess-kate.html
-
-**Will the Rotters Keep Hounding Kate?**\
-`Cancer is a very personal thing, but the 42-year-old princess is a public figure saddled with an insatiable press corps.`\
-https://nytimes.com/2024/03/22/opinion/kate-middleton-princess-cancer.html
 
