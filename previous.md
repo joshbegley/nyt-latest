@@ -1,3 +1,7 @@
+**The Music That Made Us**\
+`What happens when we re-encounter cultural artifacts that were deeply important to us and they’ve changed, or we have, or both?`\
+https://nytimes.com/2024/03/23/briefing/the-music-that-made-us.html
+
 **Russia Has Suffered Other Major Attacks in Recent Decades**\
 `The concert hall massacre near Moscow raised Russian memories of other attacks, most related to the wars against Chechen separatists in the 1990s and 2000s that helped enable the rise of Vladimir V. Putin.`\
 https://nytimes.com/2024/03/23/world/europe/moscow-attacks-shootings-bombings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/books/booksupdate/james-mcbride-heaven-and-earth-
 **Cynthia Nixon Knows What Poem She Wants Read at Her Funeral**\
 `“I love ‘I heard a Fly buzz — when I died,’” said the actress, currently performing Off Broadway in “The Seven Year Disappear.” “That one gets me every time.”`\
 https://nytimes.com/2024/03/23/theater/cynthia-nixon-seven-year-disappear.html
-
-**Gisele Bündchen on Healthy Eating and Unhealthy Relationships**\
-`The supermodel opens up about life in Miami and her new cookbook, “Nourish.”`\
-https://nytimes.com/2024/03/23/style/gisele-bundchen-on-healthy-eating-and-unhealthy-relationships.html
 
