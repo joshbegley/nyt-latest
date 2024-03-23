@@ -1,3 +1,7 @@
+**Take, as a Pointer**\
+`Need some tips and tricks for this Sam Ezersky toughie? Hand me the leash.`\
+https://nytimes.com/2024/03/22/crosswords/daily-puzzle-2024-03-23.html
+
 **Corrections: March 23, 2024**\
 `Corrections that appeared in print on Saturday, March 23, 2024.`\
 https://nytimes.com/2024/03/22/pageoneplus/corrections-march-23-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/world/europe/princess-kate-cancer-royal-family.ht
 **At Oakland University, Students and Alumni Bask in the N.C.A.A. Spotlight**\
 `Supporters of the little-known college on Friday celebrated its moment of fame after a shocking first-round win.`\
 https://nytimes.com/2024/03/22/us/oakland-university-march-madness-ncaa.html
-
-**Chicago Voters Reject Real Estate Tax Change to Fund Homeless Programs**\
-`The referendum, backed by progressives but criticized by the real estate industry, called for raising transfer taxes on properties that sell for more than $1 million.`\
-https://nytimes.com/2024/03/22/us/chicago-real-estate-tax-vote.html
 
