@@ -1,3 +1,7 @@
+**2 Novels Bestowed by Fate**\
+`A Chinatown hotel; an adventuress on the make.`\
+https://nytimes.com/2024/03/23/books/read-like-wind-recommendations.html
+
 **Here’s What We Know About the Moscow Concert Hall Attack**\
 `The assault on a popular concert hall was the deadliest act of terrorism in the Russian capital in more than a decade.`\
 https://nytimes.com/2024/03/23/world/europe/moscow-concert-hall-attack-what-we-know.html
