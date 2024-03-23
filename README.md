@@ -26,9 +26,9 @@ https://nytimes.com/2024/03/23/opinion/deepfake-sex-videos.html
 `Readers discuss a column by Paul Krugman about the hardships faced by white rural Americans.`\
 https://nytimes.com/2024/03/23/opinion/rural-rage.html
 
-**Ukraine says Russian accusations it was behind the attack are meant to rally war support.**\
-`By Andrew E. Kramer`\
-https://nytimes.com/2024/03/23/world/europe/ukraine-says-russian-accusations-it-was-behind-the-attack-are-meant-to-rally-war-support.html
+**Ukraine Says Russian Suggestions It Was Behind Attack Are Meant to Rally War Support**\
+`Kyiv has accused Russia of falsely suggesting it was to blame for the terrorist attack in Moscow and of using the assault to escalate the fighting in Ukraine.`\
+https://nytimes.com/2024/03/23/world/europe/ukraine-russia-moscow-attack.html
 
 **‘Just a Human’: Londoners Offer Sympathy on Princess’s Cancer Diagnosis**\
 `Many expressed compassion for Catherine, Princess of Wales, a woman who has spent much of the past two decades with every aspect of her life scrutinized.`\
