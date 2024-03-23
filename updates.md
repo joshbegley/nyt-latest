@@ -1,3 +1,11 @@
+**Maurizio Pollini, Celebrated Pianist Who Defined Modernism, Dies at 82**\
+`His recordings of Beethoven and Chopin were hailed as classics, but his technical ability sometimes invited controversy.`\
+https://nytimes.com/2024/03/23/arts/music/maurizio-pollini-dead.html
+
+**There have been other deadly attacks at concerts and music festivals in recent years.**\
+`By Caryn Ganz`\
+https://nytimes.com/live/2024/03/23/world/moscow-shooting/concerts-shootings
+
 **How Do You Solve a Problem Like ‘Bayadère’? Send In the Cowboys.**\
 `A new production of the ballet sets it in 1930s Hollywood instead of a mythic India, eliminating Orientalist clichés while embracing American ones.`\
 https://nytimes.com/2024/03/23/arts/dance/bayadere-revamped-indiana-university.html
