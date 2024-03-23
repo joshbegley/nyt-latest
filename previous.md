@@ -1,6 +1,10 @@
+**23moscow-attack**\
+`Russia Searches for Assailants After Deadly Attack`\
+https://nytimes.com/live/2024/03/23/world/moscow-shooting
+
 **Here is the latest.**\
 `By Victoria Kim`\
-https://nytimes.com/2024/03/23/world/europe/here-is-the-latest.html
+https://nytimes.com/live/2024/03/23/world/moscow-shooting/here-is-the-latest
 
 **Modi’s Party Doesn’t Control All of India. But He’s Working on It.**\
 `As an election nears, political strife between Prime Minister Narendra Modi and opposition-held states is straining the federal formula that holds India together.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/22/us/politics/isis-k-moscow-attack.html
 **Two Republicans Advance to a Runoff to Finish Kevin McCarthy’s Term**\
 `Vince Fong and Mike Boudreaux, who advanced to a special election in May, will also face each other in November to fill the former House speaker’s seat for a full, two-year term.`\
 https://nytimes.com/2024/03/22/us/politics/california-fong-boudreaux-mccarthy.html
-
-**United Airlines Faces Closer F.A.A. Scrutiny After Safety Incidents**\
-`The carrier, which has experienced several recent mishaps, told employees to expect a review by federal regulators in coming weeks.`\
-https://nytimes.com/2024/03/22/business/united-airlines-faa-safety.html
 

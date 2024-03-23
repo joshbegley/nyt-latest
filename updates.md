@@ -1,3 +1,11 @@
+**23moscow-attack**\
+`Russia Searches for Assailants After Deadly Attack`\
+https://nytimes.com/live/2024/03/23/world/moscow-shooting
+
+**Here is the latest.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/03/23/world/moscow-shooting/here-is-the-latest
+
 **Here is the latest.**\
 `By Victoria Kim`\
 https://nytimes.com/2024/03/23/world/europe/here-is-the-latest.html
