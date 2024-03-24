@@ -1,40 +1,40 @@
-**Trump Will Face His Greatest Fears as Two Legal Threats Coincide Monday**\
-`Donald J. Trump could receive a trial date for his criminal hush-money case on the same day that he must provide a half-billion bond for a civil fraud judgment.`\
-https://nytimes.com/2024/03/24/nyregion/trump-hush-money-trial-civil-fraud-bond.html
+**A Lunar Eclipse Warms Up the Moon for April’s Solar Eclipse**\
+`The subtle event, known as a penumbral eclipse, can be observed by everyone on Earth’s nightside.`\
+https://nytimes.com/2024/03/24/science/lunar-eclipse-moon-penumbral.html
 
-**What Would Make the Subway Feel Safer? Experts Have 5 Suggestions.**\
-`A recent shooting on a train in Brooklyn has put some New Yorkers on edge. Several measures could help ease their concerns, experts say.`\
-https://nytimes.com/2024/03/24/nyregion/subway-safety-crime-nyc.html
+**How a Pandemic Malaise Is Shaping American Politics**\
+`Four years later, the shadow of the pandemic continues to play a profound role in voters’ pessimism and distrust amid a presidential rematch.`\
+https://nytimes.com/2024/03/24/us/politics/pandemic-politics-malaise.html
 
-**‘I Got Into a Cab on a Rainy Night to Go See My Child’s Nanny in a Play’**\
-`A cabby takes the stage, gambling on a red balloon and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/03/24/nyregion/metropolitan-diary.html
+**Furry Slippers and Sweatpants: Young Chinese Embrace ‘Gross Outfits’ at Work**\
+`The social media movement is the latest sign that some of China’s young people are resisting the compulsion to strive.`\
+https://nytimes.com/2024/03/24/business/china-gross-outfits-at-work.html
 
-**An Editor Who Makes Times Visuals Accessible to All**\
-`Jaime Tanner, The New York Times’s first accessibility visuals editor, wants to remove barriers to make sure readers with disabilities can engage with Times visual journalism.`\
-https://nytimes.com/2024/03/24/insider/an-editor-who-makes-times-visuals-accessible-to-all.html
+**Judith Butler Thinks You’re Overreacting**\
+`How did gender became a scary word? The theorist who got us talking about the subject has answers.`\
+https://nytimes.com/2024/03/24/books/booksupdate/judith-butler-thinks-youre-overreacting.html
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/24/crosswords/wordle-review.html
+**Behind Our Investigation Into India’s Sugar Industry**\
+`Coca-Cola and PepsiCo have helped turn the Indian state of Maharashtra into a sugar-producing powerhouse.`\
+https://nytimes.com/video/world/asia/100000009363281/sugar-industry-exploitation-of-women.html
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/24/crosswords/connections-companion.html
+**In Hezbollah’s Sights, a Stretch of Northern Israel Becomes a No-Go Zone**\
+`For the few Israelis remaining in the evacuated zone along the northern border with Lebanon, the simmering conflict there has become intensely personal.`\
+https://nytimes.com/2024/03/24/world/middleeast/israel-hezbollah-lebanon-border.html
 
-**The Dogs Helping the Covenant Children Find Their Way Back**\
-`To heal after a mass shooting, the Covenant School families have turned to therapy, faith, one another — and a lot of dogs.`\
-https://nytimes.com/2024/03/24/us/covenant-children-dogs.html
+**Could Trump’s Properties Really Be Seized?**\
+`Real estate experts say that getting a judgment is a lot easier than foreclosing on a major piece of real estate. And pinning a value to Trump’s buildings is a guessing game.`\
+https://nytimes.com/2024/03/24/realestate/trump-properties-bond-civil-fraud.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/03/24/crosswords/spelling-bee-forum.html
+**Sparks Fly in Spicy New Romances**\
+`Our columnist reviews saucy new books by Rebecca Ross, Rebekah Weatherspoon and Felicia Grossman.`\
+https://nytimes.com/2024/03/24/books/review/new-romance-novel.html
 
-**The Hotel Guest Who Wouldn’t Leave**\
-`Mickey Barreto’s five-year stay cost him only $200.57. Now it might cost him his freedom.`\
-https://nytimes.com/2024/03/24/nyregion/mickey-barreto-housing-fraud.html
+**For Girlhood Friends, the Tech Revolution Is a Dividing Line**\
+`In Lisa Ko’s adventurous novel “Memory Piece,” youthful exploration takes a dark turn for an artist, an activist and a web developer.`\
+https://nytimes.com/2024/03/24/books/review/memory-piece-lisa-ko.html
 
-**The Man Who Helped Redefine Campus Antisemitism**\
-`In government and as an outsider, Kenneth Marcus has tried to douse what he says is rising bias against Jews. Some see a crackdown on pro-Palestinian speech.`\
-https://nytimes.com/2024/03/24/us/politics/kenneth-marcus-college-antisemitism-complaints.html
+**Choosing to Skip Sex and Go Straight to I.V.F.**\
+`Well aware of how difficult conception or carrying a baby to term can be, some couples who hope to exercise a bit of control over an unpredictable experience are opting to do in vitro fertilization first.`\
+https://nytimes.com/2024/03/24/style/ivf-process-couples.html
 
