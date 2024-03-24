@@ -1,3 +1,7 @@
+**Quotation of the Day: 41 Days in a Bunker: ‘How Much Can One Person Endure?’**\
+`Quotation of the day for Sunday, March 24, 2024.`\
+https://nytimes.com/2024/03/24/pageoneplus/quotation-of-the-day-41-days-in-a-bunker-how-much-can-one-person-endure.html
+
 **China’s Plan to Spur Growth: A New Slogan With Familiar Ideas**\
 `As China’s leaders promote their strategy, other countries worry the country is increasing factory overcapacity and plans more exports.`\
 https://nytimes.com/2024/03/24/business/china-development-forum-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/world/europe/india-sugar-sterilization-takeaways.
 **41 Days in a Bunker: How a Battle Raged on Ukraine’s Bloody Front Line**\
 `A struggle for a position held by Ukrainian forces in the eastern city of Avdiivka underlines how the conflict is increasingly being fought in close-quarter combat.`\
 https://nytimes.com/2024/03/24/world/europe/ukraine-war-avdiivka.html
-
-**Slovakia Presidential Election 2024: What You Need to Know**\
-`Ivan Korcok, a veteran diplomat hostile to the Kremlin, and Peter Pellegrini, a Russia-friendly politician allied with Slovakia’s populist prime minister, will face each other in a runoff.`\
-https://nytimes.com/2024/03/23/world/europe/slovakia-presidential-election-korcok-pellegrini.html
 
