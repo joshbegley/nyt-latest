@@ -1,3 +1,7 @@
+**China’s Plan to Spur Growth: A New Slogan With Familiar Ideas**\
+`As China’s leaders promote their strategy, other countries worry the country is increasing factory overcapacity and plans more exports.`\
+https://nytimes.com/2024/03/24/business/china-development-forum-economy.html
+
 **Corrections: March 24, 2024**\
 `Corrections that appeared in print on Sunday, March 24, 2024.`\
 https://nytimes.com/2024/03/24/pageoneplus/corrections-march-24-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/world/europe/ukraine-war-avdiivka.html
 **Slovakia Presidential Election 2024: What You Need to Know**\
 `Ivan Korcok, a veteran diplomat hostile to the Kremlin, and Peter Pellegrini, a Russia-friendly politician allied with Slovakia’s populist prime minister, will face each other in a runoff.`\
 https://nytimes.com/2024/03/23/world/europe/slovakia-presidential-election-korcok-pellegrini.html
-
-**Russia Arrests 4 Suspects in Moscow Attack as Death Toll Climbs to 133**\
-`As the Islamic State claimed responsibility, President Vladimir V. Putin vowed to “identify and punish” those responsible and tried to implicate Ukraine.`\
-https://nytimes.com/2024/03/23/world/europe/russia-moscow-terror-attack-islamic-state.html
 
