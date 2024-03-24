@@ -1,3 +1,7 @@
+**China’s Dispute With Taiwan Is Playing Out Near This Frontline Island**\
+`A fatal incident off Kinmen, a Taiwanese-controlled island, has become the latest occasion for Beijing to warn and test Taiwan’s president-elect.`\
+https://nytimes.com/2024/03/24/world/asia/china-taiwan-ships.html
+
 **The Brutality of Sugar: Debt, Child Marriage and Hysterectomies**\
 `An investigation into the sugar-cane industry in the Indian state of Maharashtra found workers ensnared by debt and pushed into child marriages and unnecessary hysterectomies.`\
 https://nytimes.com/2024/03/24/world/europe/india-sugar-cane-fields-child-labor-hysterectomies.html
