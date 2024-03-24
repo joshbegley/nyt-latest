@@ -1,3 +1,7 @@
+**Witnesses Describe Fear and Deprivation at Besieged Hospital in Gaza**\
+`More than a dozen patients have died as a result of the prolonged Israeli military assault against the Al-Shifa hospital complex, the Gazan authorities say.`\
+https://nytimes.com/2024/03/24/world/middleeast/al-shifa-hospital-gaza-israel.html
+
 **Obama and Pelosi appear in video with Biden celebrating health care law.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/03/24/us/trump-biden-election/biden-obama-pelosi-affordable-care-act

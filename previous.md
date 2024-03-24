@@ -1,3 +1,7 @@
+**Witnesses Describe Fear and Deprivation at Besieged Hospital in Gaza**\
+`More than a dozen patients have died as a result of the prolonged Israeli military assault against the Al-Shifa hospital complex, the Gazan authorities say.`\
+https://nytimes.com/2024/03/24/world/middleeast/al-shifa-hospital-gaza-israel.html
+
 **Obama and Pelosi appear in video with Biden celebrating health care law.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/03/24/us/trump-biden-election/biden-obama-pelosi-affordable-care-act
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/briefing/strands-nyt-games.html
 **Russia’s Battle With Extremists Has Simmered for Years**\
 `The Islamic State has long threatened to strike Russia for helping the Syrian president, Bashar al-Assad, stay in control.`\
 https://nytimes.com/2024/03/24/world/europe/russia-extremism-isis-syria.html
-
-**The Sunday Read: ‘My Goldendoodle Spent a Week at Some Luxury Dog ‘Hotels.’ I Tagged Along.’**\
-`How exactly did dogs take over our world? This writer journeys into the bespoke pet care industry to find out.`\
-https://nytimes.com/2024/03/24/podcasts/the-daily/the-sunday-read-my-goldendoodle-spent-a-week-at-some-luxury-dog-hotels-i-tagged-along.html
 
