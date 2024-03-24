@@ -1,3 +1,7 @@
+**Chuck Todd Assails His Network, NBC News, for Hiring Former R.N.C. Chair**\
+`The extraordinary comments on “Meet the Press” revealed tensions in NBC’s news divisions over Ronna McDaniel, who recently stepped down as head of the Republican National Committee.`\
+https://nytimes.com/2024/03/24/business/chuck-todd-ronna-mcdaniel-nbc-msnbc.html
+
 **Amid Questions About Security Failures, Russian State Media Focus on a Different Narrative**\
 `Russian state news outlets barely mentioned the claim of responsibility made by a branch of ISIS.`\
 https://nytimes.com/2024/03/24/world/europe/russia-moscow-isis.html
