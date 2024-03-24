@@ -1,3 +1,7 @@
+**Monday Briefing: Two Charged in Moscow Attack**\
+`Plus, the hotel guest who wouldn’t leave.`\
+https://nytimes.com/2024/03/24/briefing/moscow-attack-charges-trump-court-india-sugar-industry.html
+
 **Murkowski Won’t Vote for Trump and Declines Ruling Out Leaving the G.O.P.**\
 `In an interview with CNN on Sunday, the veteran Republican senator from Alaska said, “I just regret that our party is seemingly becoming a party of Donald Trump.”`\
 https://nytimes.com/2024/03/24/us/politics/lisa-murkowski-trump-gop.html
