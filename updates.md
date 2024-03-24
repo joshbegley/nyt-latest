@@ -1,3 +1,15 @@
+**Patients Hate ‘Forever’ Drugs. Is Wegovy Different?**\
+`The new obesity drugs might be an exception to a chronic, deadly problem: the failure to stick with medication.`\
+https://nytimes.com/2024/03/24/health/patients-hate-forever-drugs-is-wegovy-different.html
+
+**Here’s what to know about the attack and its aftermath.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/03/24/world/moscow-russia-attack-news/heres-what-to-know-about-the-attack-and-its-aftermath
+
+**24moscow-attack**\
+`Russia Begins Day of Mourning for Concert Hall Victims`\
+https://nytimes.com/live/2024/03/24/world/moscow-russia-attack-news
+
 **Quotation of the Day: 41 Days in a Bunker: ‘How Much Can One Person Endure?’**\
 `Quotation of the day for Sunday, March 24, 2024.`\
 https://nytimes.com/2024/03/24/pageoneplus/quotation-of-the-day-41-days-in-a-bunker-how-much-can-one-person-endure.html

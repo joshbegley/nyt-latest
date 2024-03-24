@@ -1,3 +1,15 @@
+**Patients Hate ‘Forever’ Drugs. Is Wegovy Different?**\
+`The new obesity drugs might be an exception to a chronic, deadly problem: the failure to stick with medication.`\
+https://nytimes.com/2024/03/24/health/patients-hate-forever-drugs-is-wegovy-different.html
+
+**Here’s what to know about the attack and its aftermath.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/03/24/world/moscow-russia-attack-news/heres-what-to-know-about-the-attack-and-its-aftermath
+
+**24moscow-attack**\
+`Russia Begins Day of Mourning for Concert Hall Victims`\
+https://nytimes.com/live/2024/03/24/world/moscow-russia-attack-news
+
 **Quotation of the Day: 41 Days in a Bunker: ‘How Much Can One Person Endure?’**\
 `Quotation of the day for Sunday, March 24, 2024.`\
 https://nytimes.com/2024/03/24/pageoneplus/quotation-of-the-day-41-days-in-a-bunker-how-much-can-one-person-endure.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/24/world/europe/india-sugar-cane-fields-child-labor-
 **ISIS-K, Group Tied to Moscow Attack, Has Grown Bolder and More Violent**\
 `The militant group violently opposes the Taliban leaders of Afghanistan, where it is based. It is increasingly targeting foreign foes.`\
 https://nytimes.com/2024/03/24/world/europe/isis-k-moscow-attack.html
-
-**Senegal Votes in an Election That Almost Didn’t Happen**\
-`The top opposition politician, Ousmane Sonko, is barred from running. So Sunday’s poll is widely seen as a choice between his handpicked candidate and the departing president’s designated successor.`\
-https://nytimes.com/2024/03/24/world/africa/senegal-presidential-election.html
-
-**We Spent Months With India’s Sugar Cutters. Here’s What We Found.**\
-`Indebted workers, facing brutal working conditions, are pushed to get hysterectomies as a treatment for routine ailments. Sugar mills disclaim responsibility.`\
-https://nytimes.com/2024/03/24/world/europe/india-sugar-sterilization-takeaways.html
-
-**41 Days in a Bunker: How a Battle Raged on Ukraine’s Bloody Front Line**\
-`A struggle for a position held by Ukrainian forces in the eastern city of Avdiivka underlines how the conflict is increasingly being fought in close-quarter combat.`\
-https://nytimes.com/2024/03/24/world/europe/ukraine-war-avdiivka.html
 
