@@ -1,3 +1,7 @@
+**Corrections: March 24, 2024**\
+`Corrections that appeared in print on Sunday, March 24, 2024.`\
+https://nytimes.com/2024/03/24/pageoneplus/corrections-march-24-2024.html
+
 **When It Comes to Politics, Are Any of Us Really Thinking for Ourselves?**\
 `Demography often determines what you believe.`\
 https://nytimes.com/2024/03/24/opinion/politics-intellectual-humility.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/world/europe/slovakia-presidential-election-korco
 **Russia Arrests 4 Suspects in Moscow Attack as Death Toll Climbs to 133**\
 `As the Islamic State claimed responsibility, President Vladimir V. Putin vowed to “identify and punish” those responsible and tried to implicate Ukraine.`\
 https://nytimes.com/2024/03/23/world/europe/russia-moscow-terror-attack-islamic-state.html
-
-**Indiana Law Requires Professors to Promote ‘Intellectual Diversity’ or Face Penalties**\
-`Faculty members in public universities could be disciplined or fired, even those with tenure, if they are found to fall short of the new requirements.`\
-https://nytimes.com/2024/03/23/us/indiana-professors-tenure-diversity.html
 
