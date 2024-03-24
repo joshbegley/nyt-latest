@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | March 25, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/03/24/learning/whats-going-on-in-this-picture-march-25-2024.html
+
 **A New Game from The Times**\
 `It’s a word search with a few twists.`\
 https://nytimes.com/2024/03/24/briefing/strands-nyt-games.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/business/china-gross-outfits-at-work.html
 **Judith Butler Thinks You’re Overreacting**\
 `How did gender became a scary word? The theorist who got us talking about the subject has answers.`\
 https://nytimes.com/2024/03/24/books/booksupdate/judith-butler-thinks-youre-overreacting.html
-
-**Behind Our Investigation Into India’s Sugar Industry**\
-`Coca-Cola and PepsiCo have helped turn the Indian state of Maharashtra into a sugar-producing powerhouse.`\
-https://nytimes.com/video/world/asia/100000009363281/sugar-industry-exploitation-of-women.html
 
