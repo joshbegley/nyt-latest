@@ -7,7 +7,7 @@ https://nytimes.com/2024/03/24/briefing/moscow-attack-charges-trump-court-india-
 https://nytimes.com/2024/03/24/us/politics/lisa-murkowski-trump-gop.html
 
 **Tammy Murphy Drops Out of Race for Menendez’s Senate Seat**\
-`Ms. Murphy, the first lady of New Jersey, had racked up early endorsements from Democratic Party leaders, but struggled to gain support among rank-and-file voters.`\
+`Ms. Murphy, the first lady of New Jersey, had racked up early endorsements from Democratic Party leaders in the state, but struggled to gain support among rank-and-file voters.`\
 https://nytimes.com/2024/03/24/nyregion/tammy-murphy-new-jersey-senate.html
 
 **Mountain Lion Kills Man and Injures His Brother in California**\
