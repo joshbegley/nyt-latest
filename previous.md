@@ -1,3 +1,7 @@
+**Russia’s Battle With Extremists Has Simmered for Years**\
+`The Islamic State has long threatened to strike Russia for helping the Syrian president, Bashar al-Assad, stay in control.`\
+https://nytimes.com/2024/03/24/world/europe/russia-extremism-isis-syria.html
+
 **The Sunday Read: ‘My Goldendoodle Spent a Week at Some Luxury Dog ‘Hotels.’ I Tagged Along.’**\
 `How exactly did dogs take over our world? This writer journeys into the bespoke pet care industry to find out.`\
 https://nytimes.com/2024/03/24/podcasts/the-daily/the-sunday-read-my-goldendoodle-spent-a-week-at-some-luxury-dog-hotels-i-tagged-along.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000009363281/sugar-industry-exploitation
 **In Hezbollah’s Sights, a Stretch of Northern Israel Becomes a No-Go Zone**\
 `For the few Israelis remaining in the evacuated zone along the northern border with Lebanon, the simmering conflict there has become intensely personal.`\
 https://nytimes.com/2024/03/24/world/middleeast/israel-hezbollah-lebanon-border.html
-
-**Could Trump’s Properties Really Be Seized?**\
-`Real estate experts say that getting a judgment is a lot easier than foreclosing on a major piece of real estate. And pinning a value to Trump’s buildings is a guessing game.`\
-https://nytimes.com/2024/03/24/realestate/trump-properties-bond-civil-fraud.html
 

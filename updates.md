@@ -1,3 +1,7 @@
+**Russia’s Battle With Extremists Has Simmered for Years**\
+`The Islamic State has long threatened to strike Russia for helping the Syrian president, Bashar al-Assad, stay in control.`\
+https://nytimes.com/2024/03/24/world/europe/russia-extremism-isis-syria.html
+
 **The Sunday Read: ‘My Goldendoodle Spent a Week at Some Luxury Dog ‘Hotels.’ I Tagged Along.’**\
 `How exactly did dogs take over our world? This writer journeys into the bespoke pet care industry to find out.`\
 https://nytimes.com/2024/03/24/podcasts/the-daily/the-sunday-read-my-goldendoodle-spent-a-week-at-some-luxury-dog-hotels-i-tagged-along.html
