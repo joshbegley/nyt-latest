@@ -1,3 +1,11 @@
+**Insurance Companies and the Prior Authorization Maze**\
+`Responses to an Opinion video by Alexander Stockton. Also: Elect the attorney general; friendship memories; a leadership gap.`\
+https://nytimes.com/2024/03/24/opinion/prior-authorization-medical-care.html
+
+**Practice Makes Perfect Biscuits**\
+`Make these all-purpose biscuits today and they’ll be terrific. Make them three weekends in a row and they’ll be the best biscuits ever.`\
+https://nytimes.com/2024/03/24/dining/practice-makes-perfect-biscuits.html
+
 **Witnesses Describe Fear and Deprivation at Besieged Hospital in Gaza**\
 `More than a dozen patients have died as a result of the prolonged Israeli military assault against the Al-Shifa hospital complex, the Gazan authorities say.`\
 https://nytimes.com/2024/03/24/world/middleeast/al-shifa-hospital-gaza-israel.html
