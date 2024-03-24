@@ -1,3 +1,11 @@
+**Tammy Murphy Drops Out of Race for Menendez’s Senate Seat**\
+`Ms. Murphy, the first lady of New Jersey, had racked up early endorsements from Democratic Party leaders in the state, but struggled to gain support among rank-and-file voters.`\
+https://nytimes.com/2024/03/24/nyregion/tammy-murphy-new-jersey-senate.html
+
+**‘Vigorous Storm’ to Bring Blizzard Conditions to Plains States and Midwest**\
+`A potent storm was expected to make travel “near impossible at times” starting overnight on Sunday in the Upper Midwest and Central and Northern Plains, forecasters said.`\
+https://nytimes.com/2024/03/24/us/winter-storm-snow-forecast-midwest-plains.html
+
 **Monday Briefing: Two Charged in Moscow Attack**\
 `Plus, the hotel guest who wouldn’t leave.`\
 https://nytimes.com/2024/03/24/briefing/moscow-attack-charges-trump-court-india-sugar-industry.html

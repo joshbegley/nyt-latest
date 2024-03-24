@@ -7,7 +7,7 @@ https://nytimes.com/2024/03/24/briefing/moscow-attack-charges-trump-court-india-
 https://nytimes.com/2024/03/24/us/politics/lisa-murkowski-trump-gop.html
 
 **Tammy Murphy Drops Out of Race for Menendez’s Senate Seat**\
-`Ms. Murphy, the first lady of New Jersey, had racked up early endorsements from Democratic Party leaders, but struggled to gain support among rank-and-file voters.`\
+`Ms. Murphy, the first lady of New Jersey, had racked up early endorsements from Democratic Party leaders in the state, but struggled to gain support among rank-and-file voters.`\
 https://nytimes.com/2024/03/24/nyregion/tammy-murphy-new-jersey-senate.html
 
 **Mountain Lion Kills Man and Injures His Brother in California**\
@@ -34,7 +34,7 @@ https://nytimes.com/2024/03/24/us/politics/kamala-harris-rafah-gaza-tiktok.html
 `The online frenzy over Catherine’s health escalated despite a reserved approach by Fleet Street — which promptly blamed Americans for the furor.`\
 https://nytimes.com/2024/03/24/business/media/british-media-princess-kate-royal-family.html
 
-**Blizzard Conditions Forecast for Plains States and Midwest**\
-`A potent storm was expected to make travel “near impossible at times” starting on Sunday in the Upper Midwest and Central and Northern Plains, forecasters said.`\
+**‘Vigorous Storm’ to Bring Blizzard Conditions to Plains States and Midwest**\
+`A potent storm was expected to make travel “near impossible at times” starting overnight on Sunday in the Upper Midwest and Central and Northern Plains, forecasters said.`\
 https://nytimes.com/2024/03/24/us/winter-storm-snow-forecast-midwest-plains.html
 
