@@ -1,3 +1,11 @@
+**Insurance Companies and the Prior Authorization Maze**\
+`Responses to an Opinion video by Alexander Stockton. Also: Elect the attorney general; friendship memories; a leadership gap.`\
+https://nytimes.com/2024/03/24/opinion/prior-authorization-medical-care.html
+
+**Practice Makes Perfect Biscuits**\
+`Make these all-purpose biscuits today and they’ll be terrific. Make them three weekends in a row and they’ll be the best biscuits ever.`\
+https://nytimes.com/2024/03/24/dining/practice-makes-perfect-biscuits.html
+
 **Witnesses Describe Fear and Deprivation at Besieged Hospital in Gaza**\
 `More than a dozen patients have died as a result of the prolonged Israeli military assault against the Al-Shifa hospital complex, the Gazan authorities say.`\
 https://nytimes.com/2024/03/24/world/middleeast/al-shifa-hospital-gaza-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/24/opinion/women-rock-sport-climbing-athlete.html
 **What’s Going On in This Picture? | March 25, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/03/24/learning/whats-going-on-in-this-picture-march-25-2024.html
-
-**A New Game from The Times**\
-`It’s a word search with a few twists.`\
-https://nytimes.com/2024/03/24/briefing/strands-nyt-games.html
-
-**Russia’s Battle With Extremists Has Simmered for Years**\
-`The Islamic State has long threatened to strike Russia for helping the Syrian president, Bashar al-Assad, stay in control.`\
-https://nytimes.com/2024/03/24/world/europe/russia-extremism-isis-syria.html
 
