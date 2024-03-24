@@ -1,3 +1,7 @@
+**Reef Composition**\
+`Shannon Rapp and Will Eisenberg make their New York Times collaboration debut.`\
+https://nytimes.com/2024/03/24/crosswords/daily-puzzle-2024-03-25.html
+
 **Ready, Set, Garçon! Paris Waiters Race as Storied Contest Returns**\
 `Contestants rushed through the streets with croissant-laden trays in a moment for the French capital to showcase its cafe culture ahead of the Summer Olympics.`\
 https://nytimes.com/2024/03/24/world/europe/paris-waiters-race.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/us/ben-stern-dead.html
 **Kamala Harris Is Noncommittal on Gaza, the Border and TikTok**\
 `In an interview with ABC News on Sunday, the vice president declined to offer details on several issues facing the Biden administration.`\
 https://nytimes.com/2024/03/24/us/politics/kamala-harris-rafah-gaza-tiktok.html
-
-**For Once, the British Tabloids Held Back. It Didn’t Make a Difference.**\
-`The online frenzy over Catherine’s health escalated despite a reserved approach by Fleet Street — which promptly blamed Americans for the furor.`\
-https://nytimes.com/2024/03/24/business/media/british-media-princess-kate-royal-family.html
 
