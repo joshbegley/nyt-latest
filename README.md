@@ -8,7 +8,7 @@ https://nytimes.com/2024/03/24/world/europe/moscow-shooting-scene-survivors.html
 
 **Breyer says he is open to supporting a Supreme Court age limit.**\
 `By Minho Kim`\
-https://nytimes.com/live/2024/03/24/us/trump-biden-election/breyer-says-he-is-open-to-supporting-a-supreme-court-age-limit
+https://nytimes.com/2024/03/24/us/politics/stephen-breyer-supreme-court-age-limit.html
 
 **Ben Stern, Who Opposed a Nazi Rally in Illinois, Dies at 102**\
 `He was held prisoner in nine concentration camps. Decades later, he fought a battle against American Nazis that became a major free-speech case.`\
