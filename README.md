@@ -1,3 +1,7 @@
+**Tammy Murphy Drops Out of Race for Menendez’s Senate Seat**\
+`Ms. Murphy, the first lady of New Jersey, had racked up early endorsements from Democratic Party leaders, but struggled to gain support among rank-and-file voters.`\
+https://nytimes.com/2024/03/24/nyregion/tammy-murphy-new-jersey-senate.html
+
 **Mountain Lion Kills Man and Injures His Brother in California**\
 `Since 1890, there have been fewer than 50 verified mountain lion attacks on humans in California, and of those, only six have been fatal, officials said.`\
 https://nytimes.com/2024/03/24/us/mountain-lion-attack-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/world/americas/brazil-marielle-franco-assassinati
 **Chuck Todd Questions His Network, NBC News, Over Hiring of Former R.N.C. Chair**\
 `The extraordinary comments on “Meet the Press” revealed tensions in NBC’s news divisions over Ronna McDaniel, who recently stepped down as head of the Republican National Committee.`\
 https://nytimes.com/2024/03/24/business/chuck-todd-ronna-mcdaniel-nbc-msnbc.html
-
-**Amid Questions About Security Failures, Russian State Media Focus on a Different Narrative**\
-`Russian state news outlets barely mentioned the claim of responsibility made by the Islamic State group.`\
-https://nytimes.com/2024/03/24/world/europe/russia-moscow-isis.html
 
