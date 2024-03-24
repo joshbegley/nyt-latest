@@ -1,3 +1,7 @@
+**When It Comes to Politics, Are Any of Us Really Thinking for Ourselves?**\
+`Demography often determines what you believe.`\
+https://nytimes.com/2024/03/24/opinion/politics-intellectual-humility.html
+
 **China’s Dispute With Taiwan Is Playing Out Near This Frontline Island**\
 `A fatal incident off Kinmen, a Taiwanese-controlled island, has become the latest occasion for Beijing to warn and test Taiwan’s president-elect.`\
 https://nytimes.com/2024/03/24/world/asia/china-taiwan-ships.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/world/europe/russia-moscow-terror-attack-islamic-
 **Indiana Law Requires Professors to Promote ‘Intellectual Diversity’ or Face Penalties**\
 `Faculty members in public universities could be disciplined or fired, even those with tenure, if they are found to fall short of the new requirements.`\
 https://nytimes.com/2024/03/23/us/indiana-professors-tenure-diversity.html
-
-**Peter G. Angelos, Owner of the Baltimore Orioles, Dies at 94**\
-`Mr. Angelos, who built a fortune as a class-action lawyer, endeared himself to fans by investing in free agents to bolster the team.`\
-https://nytimes.com/2024/03/23/us/peter-angelos-baltimore-orioles-dead.html
 

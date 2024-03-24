@@ -1,3 +1,7 @@
+**When It Comes to Politics, Are Any of Us Really Thinking for Ourselves?**\
+`Demography often determines what you believe.`\
+https://nytimes.com/2024/03/24/opinion/politics-intellectual-humility.html
+
 **China’s Dispute With Taiwan Is Playing Out Near This Frontline Island**\
 `A fatal incident off Kinmen, a Taiwanese-controlled island, has become the latest occasion for Beijing to warn and test Taiwan’s president-elect.`\
 https://nytimes.com/2024/03/24/world/asia/china-taiwan-ships.html
