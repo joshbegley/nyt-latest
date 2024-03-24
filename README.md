@@ -1,3 +1,7 @@
+**Former Deacon Excommunicated After His Son Is Sexually Abused by a Priest**\
+`A Louisiana priest was convicted in the sexual abuse of the ex-deacon’s son. What followed was a lawsuit and now the Catholic Church’s highest censure.`\
+https://nytimes.com/2024/03/24/us/catholic-deacon-excommunicated-louisiana.html
+
 **Dozens of Children Abducted in Nigeria Have Been Released, Officials Say**\
 `The military of the West African nation, which is plagued by kidnappings largely driven by demands for ransom payments, said 137 children had been freed in the country’s north.`\
 https://nytimes.com/2024/03/24/world/africa/nigeria-children-released.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/opinion/gaza-israel-war.html
 **100 Days of Javier Milei**\
 `It is an open question whether Mr. Milei has misread his voters on how far they are willing to go to turn Argentina’s economy around.`\
 https://nytimes.com/2024/03/24/opinion/javier-milei-argentina.html
-
-**A Lunar Eclipse Warms Up the Moon for April’s Solar Eclipse**\
-`The subtle event, known as a penumbral eclipse, can be observed by everyone on Earth’s nightside.`\
-https://nytimes.com/2024/03/24/science/lunar-eclipse-moon-penumbral.html
 
