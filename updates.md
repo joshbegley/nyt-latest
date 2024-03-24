@@ -1,3 +1,7 @@
+**Witnesses Describe Fear and Deprivation at Besieged Hospital in Gaza**\
+`More than a dozen patients have died as a result of the prolonged Israeli military assault against Al-Shifa hospital complex, the Gazan authorities say.`\
+https://nytimes.com/2024/03/24/world/middleeast/al-shifa-hospital-gaza-israel.html
+
 **Chuck Todd Questions His Network, NBC News, Over Hiring of Former R.N.C. Chair**\
 `The extraordinary comments on “Meet the Press” revealed tensions in NBC’s news divisions over Ronna McDaniel, who recently stepped down as head of the Republican National Committee.`\
 https://nytimes.com/2024/03/24/business/chuck-todd-ronna-mcdaniel-nbc-msnbc.html

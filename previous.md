@@ -23,7 +23,7 @@ https://nytimes.com/2024/03/24/opinion/prior-authorization-medical-care.html
 https://nytimes.com/2024/03/24/dining/practice-makes-perfect-biscuits.html
 
 **Witnesses Describe Fear and Deprivation at Besieged Hospital in Gaza**\
-`More than a dozen patients have died as a result of the prolonged Israeli military assault against the Al-Shifa hospital complex, the Gazan authorities say.`\
+`More than a dozen patients have died as a result of the prolonged Israeli military assault against Al-Shifa hospital complex, the Gazan authorities say.`\
 https://nytimes.com/2024/03/24/world/middleeast/al-shifa-hospital-gaza-israel.html
 
 **Obama and Pelosi appear in video with Biden celebrating health care law.**\
