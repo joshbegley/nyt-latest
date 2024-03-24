@@ -1,3 +1,23 @@
+**The Brutality of Sugar: Debt, Child Marriage and Hysterectomies**\
+`An investigation into the sugar-cane industry in the Indian state of Maharashtra found workers ensnared by debt and pushed into child marriages and unnecessary hysterectomies.`\
+https://nytimes.com/2024/03/24/world/europe/india-sugar-cane-fields-child-labor-hysterectomies.html
+
+**ISIS-K, Group Tied to Moscow Attack, Has Grown Bolder and More Violent**\
+`The militant group violently opposes the Taliban leaders of Afghanistan, where it is based. It is increasingly targeting foreign foes.`\
+https://nytimes.com/2024/03/24/world/europe/isis-k-moscow-attack.html
+
+**Senegal Votes in an Election That Almost Didn’t Happen**\
+`The top opposition politician, Ousmane Sonko, is barred from running. So Sunday’s poll is widely seen as a choice between his handpicked candidate and the departing president’s designated successor.`\
+https://nytimes.com/2024/03/24/world/africa/senegal-presidential-election.html
+
+**We Spent Months With India’s Sugar Cutters. Here’s What We Found.**\
+`Indebted workers, facing brutal working conditions, are pushed to get hysterectomies as a treatment for routine ailments. Sugar mills disclaim responsibility.`\
+https://nytimes.com/2024/03/24/world/europe/india-sugar-sterilization-takeaways.html
+
+**41 Days in a Bunker: How a Battle Raged on Ukraine’s Bloody Front Line**\
+`A struggle for a position held by Ukrainian forces in the eastern city of Avdiivka underlines how the conflict is increasingly being fought in close-quarter combat.`\
+https://nytimes.com/2024/03/24/world/europe/ukraine-war-avdiivka.html
+
 **Slovakia Presidential Election 2024: What You Need to Know**\
 `Ivan Korcok, a veteran diplomat hostile to the Kremlin, and Peter Pellegrini, a Russia-friendly politician allied with Slovakia’s populist prime minister, will face each other in a runoff.`\
 https://nytimes.com/2024/03/23/world/europe/slovakia-presidential-election-korcok-pellegrini.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/03/23/us/peter-angelos-baltimore-orioles-dead.html
 **Feeling Possessive**\
 `John Kugelman’s Sunday puzzle’s out to get you.`\
 https://nytimes.com/2024/03/23/crosswords/daily-puzzle-2024-03-24.html
-
-**Piknik, a longtime Russian rock band, is now at the center of a tragedy.**\
-`The group was set to play the first of two sold-out concerts when gunmen opened fire at Crocus City Hall.`\
-https://nytimes.com/2024/03/23/world/europe/piknik-russian-rock-band.html
-
-**Kamala Harris Announces Resource Center to Help With Red-Flag Laws**\
-`Vice President Kamala Harris stood beside the parents of children killed in the 2018 shooting at Marjory Stoneman Douglas High School in Parkland, Fla., and announced a new federal resource center to help states implement their red-flag laws.`\
-https://nytimes.com/video/us/100000009377878/kamala-harris-parkland-red-flag-laws.html
-
-**Storm Brings Heavy Snow to Northern New York and Vermont**\
-`In Central Park, 3.63 inches of rain fell on Saturday. Philadelphia had 3.06 inches, making it the wettest calendar day ever recorded in March, forecasters said.`\
-https://nytimes.com/2024/03/23/us/storm-rain-snow-forecast-northeast.html
-
-**For Catherine, Living a Public Life in a Public Body, Privacy is Illusory**\
-`She asked for space after her cancer diagnosis, but cancer is a series of intrusions for any patient. And when Catherine agreed to marry a future king, her body ceased to be her own.`\
-https://nytimes.com/2024/03/23/well/princess-catherine-cancer-privacy.html
-
-**Kamala Harris Visits Parkland and Urges States to Adopt Red-Flag Gun Laws**\
-`At the site of the 2018 school shooting in Florida, the vice president announced federal help for states to limit weapon access for people deemed to be threats.`\
-https://nytimes.com/2024/03/23/us/politics/kamala-harris-parkland-guns.html
 
