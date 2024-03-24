@@ -1,3 +1,7 @@
+**Corrections: March 24, 2024**\
+`Corrections that appeared in print on Sunday, March 24, 2024.`\
+https://nytimes.com/2024/03/24/pageoneplus/corrections-march-24-2024.html
+
 **When It Comes to Politics, Are Any of Us Really Thinking for Ourselves?**\
 `Demography often determines what you believe.`\
 https://nytimes.com/2024/03/24/opinion/politics-intellectual-humility.html
