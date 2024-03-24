@@ -1,3 +1,7 @@
+**Amid Questions About Security Failures, Russian State Media Focus on a Different Narrative**\
+`Russian state news outlets barely mentioned the claim of responsibility made by the Islamic State group.`\
+https://nytimes.com/2024/03/24/world/europe/russia-moscow-isis.html
+
 **Breyer Says He Is Open to Supporting a Supreme Court Age Limit**\
 `The retired justice suggested that an 18- or 20-year term could dissuade members of the court from “thinking about the next job” just as effectively as a lifetime appointment does now.`\
 https://nytimes.com/2024/03/24/us/politics/stephen-breyer-supreme-court-age-limit.html

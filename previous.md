@@ -35,6 +35,6 @@ https://nytimes.com/2024/03/24/world/americas/brazil-marielle-franco-assassinati
 https://nytimes.com/2024/03/24/business/chuck-todd-ronna-mcdaniel-nbc-msnbc.html
 
 **Amid Questions About Security Failures, Russian State Media Focus on a Different Narrative**\
-`Russian state news outlets barely mentioned the claim of responsibility made by a branch of ISIS.`\
+`Russian state news outlets barely mentioned the claim of responsibility made by the Islamic State group.`\
 https://nytimes.com/2024/03/24/world/europe/russia-moscow-isis.html
 
