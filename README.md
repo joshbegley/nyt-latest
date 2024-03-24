@@ -1,3 +1,7 @@
+**Chuck Todd Assails His Network, NBC News, for Hiring Former R.N.C. Chair**\
+`The extraordinary comments on “Meet the Press” revealed tensions in NBC’s news divisions over Ronna McDaniel, who recently stepped down as head of the Republican National Committee.`\
+https://nytimes.com/2024/03/24/business/chuck-todd-ronna-mcdaniel-nbc-msnbc.html
+
 **Amid Questions About Security Failures, Russian State Media Focus on a Different Narrative**\
 `Russian state news outlets barely mentioned the claim of responsibility made by a branch of ISIS.`\
 https://nytimes.com/2024/03/24/world/europe/russia-moscow-isis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/world/europe/pope-francis-palm-sunday-homily.html
 **Former Deacon Excommunicated After His Son Is Sexually Abused by a Priest**\
 `A Louisiana priest was convicted in the sexual abuse of the ex-deacon’s son. What followed was a lawsuit and now the Catholic Church’s highest censure.`\
 https://nytimes.com/2024/03/24/us/catholic-deacon-excommunicated-louisiana.html
-
-**Dozens of Children Abducted in Nigeria Have Been Released, Officials Say**\
-`The military of the West African nation, which is plagued by kidnappings largely driven by demands for ransom payments, said 137 children had been freed in the country’s north.`\
-https://nytimes.com/2024/03/24/world/africa/nigeria-children-released.html
 
