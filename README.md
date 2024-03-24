@@ -1,3 +1,7 @@
+**Patients Hate ‘Forever’ Drugs. Is Wegovy Different?**\
+`The new obesity drugs might be an exception to a chronic, deadly problem: the failure to stick with medication.`\
+https://nytimes.com/2024/03/24/health/patients-hate-forever-drugs-is-wegovy-different.html
+
 **Here’s what to know about the attack and its aftermath.**\
 `By Mike Ives`\
 https://nytimes.com/live/2024/03/24/world/moscow-russia-attack-news/heres-what-to-know-about-the-attack-and-its-aftermath
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/world/europe/india-sugar-cane-fields-child-labor-
 **ISIS-K, Group Tied to Moscow Attack, Has Grown Bolder and More Violent**\
 `The militant group violently opposes the Taliban leaders of Afghanistan, where it is based. It is increasingly targeting foreign foes.`\
 https://nytimes.com/2024/03/24/world/europe/isis-k-moscow-attack.html
-
-**Senegal Votes in an Election That Almost Didn’t Happen**\
-`The top opposition politician, Ousmane Sonko, is barred from running. So Sunday’s poll is widely seen as a choice between his handpicked candidate and the departing president’s designated successor.`\
-https://nytimes.com/2024/03/24/world/africa/senegal-presidential-election.html
 
