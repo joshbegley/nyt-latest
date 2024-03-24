@@ -1,3 +1,15 @@
+**Amid Questions About Security Failures, Russian State Media Focus on a Different Narrative**\
+`Russian state news outlets barely mentioned the claim of responsibility made by a branch of ISIS.`\
+https://nytimes.com/2024/03/24/world/europe/russia-moscow-isis.html
+
+**With Charles and Catherine Sidelined, It’s Camilla’s Time to Shine**\
+`The woman whose very existence once seemed to threaten the royal family’s stability has emerged as a stabilizing force during a major health crisis.`\
+https://nytimes.com/2024/03/24/world/europe/royals-cancer-camilla.html
+
+**In Fund-Raising Blitz, Trump Warns Democrats: Hands Off Trump Tower**\
+`With a deadline on Monday to secure a $454 million bond in his civil fraud case, Donald Trump’s campaign emails have claimed Democrats are trying to seize his marquee property.`\
+https://nytimes.com/2024/03/24/us/politics/trump-civil-fraud-james.html
+
 **Insurance Companies and the Prior Authorization Maze**\
 `Responses to an Opinion video by Alexander Stockton. Also: Elect the attorney general; friendship memories; a leadership gap.`\
 https://nytimes.com/2024/03/24/opinion/prior-authorization-medical-care.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/24/us/catholic-deacon-excommunicated-louisiana.html
 **Dozens of Children Abducted in Nigeria Have Been Released, Officials Say**\
 `The military of the West African nation, which is plagued by kidnappings largely driven by demands for ransom payments, said 137 children had been freed in the country’s north.`\
 https://nytimes.com/2024/03/24/world/africa/nigeria-children-released.html
-
-**There’s New Energy in Rome’s Esquilino Neighborhood. Here’s Where to Go.**\
-`Plus: fountain pens for special occasions, moon phase watches and more from T’s cultural compendium.`\
-https://nytimes.com/2024/03/24/t-magazine/rome-esquilino-neighborhood-guide.html
-
-**Tired of Sucking It Up as a Climber, I’ve Embraced a Softer Strength**\
-`As a professional climber, I needed to be able to suffer to stand out. Then I began to question that mentality.`\
-https://nytimes.com/2024/03/24/opinion/women-rock-sport-climbing-athlete.html
-
-**What’s Going On in This Picture? | March 25, 2024**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/03/24/learning/whats-going-on-in-this-picture-march-25-2024.html
 
