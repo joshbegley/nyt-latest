@@ -1,3 +1,15 @@
+**The Sunday Read: ‘My Goldendoodle Spent a Week at Some Luxury Dog ‘Hotels.’ I Tagged Along.’**\
+`How exactly did dogs take over our world? This writer journeys into the bespoke pet care industry to find out.`\
+https://nytimes.com/2024/03/24/podcasts/the-daily/the-sunday-read-my-goldendoodle-spent-a-week-at-some-luxury-dog-hotels-i-tagged-along.html
+
+**What Would You Have Israel Do to Defend Itself?**\
+`If the current Israeli military approach is inhumane, is there an alternative?`\
+https://nytimes.com/2024/03/24/opinion/gaza-israel-war.html
+
+**100 Days of Javier Milei**\
+`It is an open question whether Mr. Milei has misread his voters on how far they are willing to go to turn Argentina’s economy around.`\
+https://nytimes.com/2024/03/24/opinion/javier-milei-argentina.html
+
 **A Lunar Eclipse Warms Up the Moon for April’s Solar Eclipse**\
 `The subtle event, known as a penumbral eclipse, can be observed by everyone on Earth’s nightside.`\
 https://nytimes.com/2024/03/24/science/lunar-eclipse-moon-penumbral.html
