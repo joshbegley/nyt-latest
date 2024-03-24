@@ -1,3 +1,7 @@
+**Screams and Blank Stares of Shock: Horror at a Russian Concert**\
+`The violent attack on Moscow’s outskirts on Friday was a scene of chaos and terror. “You’re just running to figure out where else to run,” one attendee said.`\
+https://nytimes.com/2024/03/24/world/europe/moscow-shooting-scene-survivors.html
+
 **Breyer says he is open to supporting a Supreme Court age limit.**\
 `By Minho Kim`\
 https://nytimes.com/live/2024/03/24/us/trump-biden-election/breyer-says-he-is-open-to-supporting-a-supreme-court-age-limit

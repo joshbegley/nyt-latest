@@ -1,3 +1,7 @@
+**Screams and Blank Stares of Shock: Horror at a Russian Concert**\
+`The violent attack on Moscow’s outskirts on Friday was a scene of chaos and terror. “You’re just running to figure out where else to run,” one attendee said.`\
+https://nytimes.com/2024/03/24/world/europe/moscow-shooting-scene-survivors.html
+
 **Breyer says he is open to supporting a Supreme Court age limit.**\
 `By Minho Kim`\
 https://nytimes.com/live/2024/03/24/us/trump-biden-election/breyer-says-he-is-open-to-supporting-a-supreme-court-age-limit
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/world/europe/russia-moscow-isis.html
 **With Charles and Catherine Sidelined, It’s Camilla’s Time to Shine**\
 `The woman whose very existence once seemed to threaten the royal family’s stability has emerged as a stabilizing force during a major health crisis.`\
 https://nytimes.com/2024/03/24/world/europe/royals-cancer-camilla.html
-
-**In Fund-Raising Blitz, Trump Warns Democrats: Hands Off Trump Tower**\
-`With a deadline on Monday to secure a $454 million bond in his civil fraud case, Donald Trump’s campaign emails have claimed Democrats are trying to seize his marquee property.`\
-https://nytimes.com/2024/03/24/us/politics/trump-civil-fraud-james.html
 
