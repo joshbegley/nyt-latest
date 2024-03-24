@@ -1,3 +1,7 @@
+**Shani Mott, Black Studies Scholar Who Examined Power All Around Her, Dies at 47**\
+`Her work looked at how race and power are experienced in America. In 2022, she filed a lawsuit saying that the appraisal of her home was undervalued because of bias.`\
+https://nytimes.com/2024/03/24/us/shani-mott-dead.html
+
 **Big Republican Donor Jeff Yass Owned Shares in Trump Media Merger Partner**\
 `The billionaire Wall Street financier is also a major investor in ByteDance, the Chinese parent company of TikTok, which faces a possible ban in the United States.`\
 https://nytimes.com/2024/03/24/business/jeff-yass-shares-trump-media-merger.html
@@ -19,7 +23,7 @@ https://nytimes.com/2024/03/24/briefing/moscow-attack-charges-trump-court-india-
 https://nytimes.com/2024/03/24/us/politics/lisa-murkowski-trump-gop.html
 
 **Tammy Murphy Drops Out of Race for Menendez’s Senate Seat**\
-`Ms. Murphy, the first lady of New Jersey, had racked up early endorsements from Democratic Party leaders in the state, but struggled to gain support among rank-and-file voters.`\
+`Ms. Murphy, the first lady of New Jersey, had racked up early endorsements from Democratic Party leaders in the state, but she struggled to gain support among rank-and-file voters.`\
 https://nytimes.com/2024/03/24/nyregion/tammy-murphy-new-jersey-senate.html
 
 **Mountain Lion Kills Man and Injures His Brother in California**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/world/europe/moscow-shooting-scene-survivors.html
 **Breyer Says He Is Open to Supporting a Supreme Court Age Limit**\
 `The retired justice suggested that an 18- or 20-year term could dissuade members of the court from “thinking about the next job” just as effectively as a lifetime appointment does now.`\
 https://nytimes.com/2024/03/24/us/politics/stephen-breyer-supreme-court-age-limit.html
-
-**Ben Stern, Who Opposed a Nazi Rally in Illinois, Dies at 102**\
-`He was held prisoner in nine concentration camps. Decades later, he fought a battle against American Nazis that became a major free-speech case.`\
-https://nytimes.com/2024/03/24/us/ben-stern-dead.html
 
