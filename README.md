@@ -20,7 +20,7 @@ https://nytimes.com/2024/03/24/us/ben-stern-dead.html
 
 **Kamala Harris is noncommittal on Gaza, TikTok and the border.**\
 `By Maggie Astor`\
-https://nytimes.com/live/2024/03/24/us/trump-biden-election/kamala-harris-rafah-gaza-tiktok
+https://nytimes.com/2024/03/24/us/politics/kamala-harris-rafah-gaza-tiktok.html
 
 **For Once, the British Tabloids Held Back. It Didn’t Make a Difference.**\
 `The online frenzy over Catherine’s health escalated despite a reserved approach by Fleet Street — which promptly blamed Americans for the furor.`\
