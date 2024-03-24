@@ -1,3 +1,7 @@
+**Obama and Pelosi appear in video with Biden celebrating health care law.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/03/24/us/trump-biden-election/biden-obama-pelosi-affordable-care-act
+
 **Pope Lets Silence Speak for Him as He Skips a Palm Sunday Speech**\
 `Pope Francis’ choice to skip the strenuous speech at the outset of Easter week immediately raised concerns about his health, but he spoke in a clear voice before and after it.`\
 https://nytimes.com/2024/03/24/world/europe/pope-francis-palm-sunday-homily.html
