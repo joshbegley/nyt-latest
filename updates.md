@@ -1,3 +1,7 @@
+**Trump Will Face His Greatest Fears as Two Legal Threats Coincide Monday**\
+`Donald J. Trump could receive a trial date for his criminal hush-money case on the same day that he must provide a half-billion bond for a civil fraud judgment.`\
+https://nytimes.com/2024/03/24/nyregion/trump-hush-money-trial-civil-fraud-bond.html
+
 **What Would Make the Subway Feel Safer? Experts Have 5 Suggestions.**\
 `A recent shooting on a train in Brooklyn has put some New Yorkers on edge. Several measures could help ease their concerns, experts say.`\
 https://nytimes.com/2024/03/24/nyregion/subway-safety-crime-nyc.html

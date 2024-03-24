@@ -1,3 +1,7 @@
+**Trump Will Face His Greatest Fears as Two Legal Threats Coincide Monday**\
+`Donald J. Trump could receive a trial date for his criminal hush-money case on the same day that he must provide a half-billion bond for a civil fraud judgment.`\
+https://nytimes.com/2024/03/24/nyregion/trump-hush-money-trial-civil-fraud-bond.html
+
 **What Would Make the Subway Feel Safer? Experts Have 5 Suggestions.**\
 `A recent shooting on a train in Brooklyn has put some New Yorkers on edge. Several measures could help ease their concerns, experts say.`\
 https://nytimes.com/2024/03/24/nyregion/subway-safety-crime-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/nyregion/mickey-barreto-housing-fraud.html
 **The Man Who Helped Redefine Campus Antisemitism**\
 `In government and as an outsider, Kenneth Marcus has tried to douse what he says is rising bias against Jews. Some see a crackdown on pro-Palestinian speech.`\
 https://nytimes.com/2024/03/24/us/politics/kenneth-marcus-college-antisemitism-complaints.html
-
-**Patients Hate ‘Forever’ Drugs. Is Wegovy Different?**\
-`The new obesity drugs might be an exception to a chronic, deadly problem: the failure to stick with medication.`\
-https://nytimes.com/2024/03/24/health/patients-hate-forever-drugs-is-wegovy-different.html
 
