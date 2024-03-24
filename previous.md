@@ -1,3 +1,7 @@
+**Pope Lets Silence Speak for Him as He Skips a Palm Sunday Speech**\
+`Pope Francis’ choice to skip the strenuous speech at the outset of Easter week immediately raised concerns about his health, but he spoke in a clear voice before and after it.`\
+https://nytimes.com/2024/03/24/world/europe/pope-francis-palm-sunday-homily.html
+
 **Former Deacon Excommunicated After His Son Is Sexually Abused by a Priest**\
 `A Louisiana priest was convicted in the sexual abuse of the ex-deacon’s son. What followed was a lawsuit and now the Catholic Church’s highest censure.`\
 https://nytimes.com/2024/03/24/us/catholic-deacon-excommunicated-louisiana.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/podcasts/the-daily/the-sunday-read-my-goldendoodl
 **What Would You Have Israel Do to Defend Itself?**\
 `If the current Israeli military approach is inhumane, is there an alternative?`\
 https://nytimes.com/2024/03/24/opinion/gaza-israel-war.html
-
-**100 Days of Javier Milei**\
-`It is an open question whether Mr. Milei has misread his voters on how far they are willing to go to turn Argentina’s economy around.`\
-https://nytimes.com/2024/03/24/opinion/javier-milei-argentina.html
 
