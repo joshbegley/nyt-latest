@@ -1,3 +1,11 @@
+**Breyer says he is open to supporting a Supreme Court age limit.**\
+`By Minho Kim`\
+https://nytimes.com/live/2024/03/24/us/trump-biden-election/breyer-says-he-is-open-to-supporting-a-supreme-court-age-limit
+
+**Ben Stern, Who Opposed a Nazi Rally in Illinois, Dies at 102**\
+`He was held prisoner in nine concentration camps. Decades later, he fought a battle against American Nazis that became a major free-speech case.`\
+https://nytimes.com/2024/03/24/us/ben-stern-dead.html
+
 **Kamala Harris is noncommittal on Gaza, TikTok and the border.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/03/24/us/trump-biden-election/kamala-harris-rafah-gaza-tiktok
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/24/world/europe/royals-cancer-camilla.html
 **In Fund-Raising Blitz, Trump Warns Democrats: Hands Off Trump Tower**\
 `With a deadline on Monday to secure a $454 million bond in his civil fraud case, Donald Trump’s campaign emails have claimed Democrats are trying to seize his marquee property.`\
 https://nytimes.com/2024/03/24/us/politics/trump-civil-fraud-james.html
-
-**Insurance Companies and the Prior Authorization Maze**\
-`Responses to an Opinion video by Alexander Stockton. Also: Elect the attorney general; friendship memories; a leadership gap.`\
-https://nytimes.com/2024/03/24/opinion/prior-authorization-medical-care.html
-
-**Practice Makes Perfect Biscuits**\
-`Make these all-purpose biscuits today and they’ll be terrific. Make them three weekends in a row and they’ll be the best biscuits ever.`\
-https://nytimes.com/2024/03/24/dining/practice-makes-perfect-biscuits.html
 
