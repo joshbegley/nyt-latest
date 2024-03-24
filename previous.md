@@ -1,3 +1,7 @@
+**In Russia, Fingers Point Anywhere but at ISIS for Concert Hall Attack**\
+`Russian state media pushed the idea that Ukraine was the obvious culprit, but at least three of the four suspects charged on Sunday are from the Central Asian nation of Tajikistan.`\
+https://nytimes.com/2024/03/24/world/europe/russia-moscow-concert-hall-attack.html
+
 **Shani Mott, Black Studies Scholar Who Examined Power All Around Her, Dies at 47**\
 `Her work looked at how race and power are experienced in America. In 2022, she filed a lawsuit saying that the appraisal of her home was undervalued because of bias.`\
 https://nytimes.com/2024/03/24/us/shani-mott-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/us/mountain-lion-attack-california.html
 **Screams and Blank Stares of Shock: Horror at a Russian Concert**\
 `The violent attack on Moscow’s outskirts on Friday was a scene of chaos and terror. “You’re just running to figure out where else to run,” one attendee said.`\
 https://nytimes.com/2024/03/24/world/europe/moscow-shooting-scene-survivors.html
-
-**Breyer Says He Is Open to Supporting a Supreme Court Age Limit**\
-`The retired justice suggested that an 18- or 20-year term could dissuade members of the court from “thinking about the next job” just as effectively as a lifetime appointment does now.`\
-https://nytimes.com/2024/03/24/us/politics/stephen-breyer-supreme-court-age-limit.html
 
