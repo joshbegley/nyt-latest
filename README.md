@@ -1,3 +1,7 @@
+**Monday Briefing: Two Charged in Moscow Attack**\
+`Plus, the hotel guest who wouldn’t leave.`\
+https://nytimes.com/2024/03/24/briefing/moscow-attack-charges-trump-court-india-sugar-industry.html
+
 **Murkowski Won’t Vote for Trump and Declines Ruling Out Leaving the G.O.P.**\
 `In an interview with CNN on Sunday, the veteran Republican senator from Alaska said, “I just regret that our party is seemingly becoming a party of Donald Trump.”`\
 https://nytimes.com/2024/03/24/us/politics/lisa-murkowski-trump-gop.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/business/media/british-media-princess-kate-royal-
 **Blizzard Conditions Forecast for Plains States and Midwest**\
 `A potent storm was expected to make travel “near impossible at times” starting on Sunday in the Upper Midwest and Central and Northern Plains, forecasters said.`\
 https://nytimes.com/2024/03/24/us/winter-storm-snow-forecast-midwest-plains.html
-
-**Police Say They’ve Cracked Rio de Janeiro’s Most Notorious Murder Mystery**\
-`Two politicians were arrested in the assassination of a rival, Marielle Franco, who was known for fighting corruption and police violence.`\
-https://nytimes.com/2024/03/24/world/americas/brazil-marielle-franco-assassination-arrest.html
 
