@@ -1,5 +1,5 @@
-**Lisa Murkowski Says She Will Not Vote for Trump**\
-`The veteran Republican senator from Alaska told CNN on Sunday that she “can’t get behind Donald Trump,” and she declined to rule out leaving the G.O.P.`\
+**Murkowski Won’t Vote for Trump and Declines Ruling Out Leaving the G.O.P.**\
+`In an interview with CNN on Sunday, the veteran Republican senator from Alaska said, “I just regret that our party is seemingly becoming a party of Donald Trump.”`\
 https://nytimes.com/2024/03/24/us/politics/lisa-murkowski-trump-gop.html
 
 **Tammy Murphy Drops Out of Race for Menendez’s Senate Seat**\
