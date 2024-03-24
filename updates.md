@@ -1,3 +1,7 @@
+**China’s Plan to Spur Growth: A New Slogan With Familiar Ideas**\
+`As China’s leaders promote their strategy, other countries worry the country is increasing factory overcapacity and plans more exports.`\
+https://nytimes.com/2024/03/24/business/china-development-forum-economy.html
+
 **Corrections: March 24, 2024**\
 `Corrections that appeared in print on Sunday, March 24, 2024.`\
 https://nytimes.com/2024/03/24/pageoneplus/corrections-march-24-2024.html
