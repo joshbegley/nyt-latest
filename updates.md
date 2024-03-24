@@ -1,3 +1,11 @@
+**Lisa Murkowski Says She Will Not Vote for Trump**\
+`The veteran Republican senator from Alaska told CNN on Sunday that she “can’t get behind Donald Trump,” and she declined to rule out leaving the G.O.P.`\
+https://nytimes.com/2024/03/24/us/politics/lisa-murkowski-trump-gop.html
+
+**Kamala Harris Is Noncommittal on Gaza, the Border and TikTok**\
+`In an interview with ABC News on Sunday, the vice president declined to offer details on several issues facing the Biden administration.`\
+https://nytimes.com/2024/03/24/us/politics/kamala-harris-rafah-gaza-tiktok.html
+
 **Tammy Murphy Drops Out of Race for Menendez’s Senate Seat**\
 `Ms. Murphy, the first lady of New Jersey, had racked up early endorsements from Democratic Party leaders, but struggled to gain support among rank-and-file voters.`\
 https://nytimes.com/2024/03/24/nyregion/tammy-murphy-new-jersey-senate.html

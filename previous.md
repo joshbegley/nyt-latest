@@ -1,3 +1,7 @@
+**Lisa Murkowski Says She Will Not Vote for Trump**\
+`The veteran Republican senator from Alaska told CNN on Sunday that she “can’t get behind Donald Trump,” and she declined to rule out leaving the G.O.P.`\
+https://nytimes.com/2024/03/24/us/politics/lisa-murkowski-trump-gop.html
+
 **Tammy Murphy Drops Out of Race for Menendez’s Senate Seat**\
 `Ms. Murphy, the first lady of New Jersey, had racked up early endorsements from Democratic Party leaders, but struggled to gain support among rank-and-file voters.`\
 https://nytimes.com/2024/03/24/nyregion/tammy-murphy-new-jersey-senate.html
@@ -18,8 +22,8 @@ https://nytimes.com/2024/03/24/us/politics/stephen-breyer-supreme-court-age-limi
 `He was held prisoner in nine concentration camps. Decades later, he fought a battle against American Nazis that became a major free-speech case.`\
 https://nytimes.com/2024/03/24/us/ben-stern-dead.html
 
-**Kamala Harris is noncommittal on Gaza, TikTok and the border.**\
-`By Maggie Astor`\
+**Kamala Harris Is Noncommittal on Gaza, the Border and TikTok**\
+`In an interview with ABC News on Sunday, the vice president declined to offer details on several issues facing the Biden administration.`\
 https://nytimes.com/2024/03/24/us/politics/kamala-harris-rafah-gaza-tiktok.html
 
 **For Once, the British Tabloids Held Back. It Didn’t Make a Difference.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/us/winter-storm-snow-forecast-midwest-plains.html
 **Police Say They’ve Cracked Rio de Janeiro’s Most Notorious Murder Mystery**\
 `Two politicians were arrested in the assassination of a rival, Marielle Franco, who was known for fighting corruption and police violence.`\
 https://nytimes.com/2024/03/24/world/americas/brazil-marielle-franco-assassination-arrest.html
-
-**Chuck Todd Questions His Network, NBC News, Over Hiring of Former R.N.C. Chair**\
-`The extraordinary comments on “Meet the Press” revealed tensions in NBC’s news divisions over Ronna McDaniel, who recently stepped down as head of the Republican National Committee.`\
-https://nytimes.com/2024/03/24/business/chuck-todd-ronna-mcdaniel-nbc-msnbc.html
 
