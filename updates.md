@@ -1,3 +1,11 @@
+**There’s New Energy in Rome’s Esquilino Neighborhood. Here’s Where to Go.**\
+`Plus: fountain pens for special occasions, moon phase watches and more from T’s cultural compendium.`\
+https://nytimes.com/2024/03/24/t-magazine/rome-esquilino-neighborhood-guide.html
+
+**Tired of Sucking It Up as a Climber, I’ve Embraced a Softer Strength**\
+`As a professional climber, I needed to be able to suffer to stand out. Then I began to question that mentality.`\
+https://nytimes.com/2024/03/24/opinion/women-rock-sport-climbing-athlete.html
+
 **What’s Going On in This Picture? | March 25, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/03/24/learning/whats-going-on-in-this-picture-march-25-2024.html
