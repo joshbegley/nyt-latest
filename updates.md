@@ -1,3 +1,7 @@
+**Breyer Says He Is Open to Supporting a Supreme Court Age Limit**\
+`The retired justice suggested that an 18- or 20-year term could dissuade members of the court from “thinking about the next job” just as effectively as a lifetime appointment does now.`\
+https://nytimes.com/2024/03/24/us/politics/stephen-breyer-supreme-court-age-limit.html
+
 **Breyer says he is open to supporting a Supreme Court age limit.**\
 `By Minho Kim`\
 https://nytimes.com/2024/03/24/us/politics/stephen-breyer-supreme-court-age-limit.html
