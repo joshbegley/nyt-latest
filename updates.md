@@ -1,3 +1,11 @@
+**Shani Mott, Black Studies Scholar Who Examined Power All Around Her, Dies at 47**\
+`Her work looked at how race and power are experienced in America. In 2022, she filed a lawsuit saying that the appraisal of her home was undervalued because of bias.`\
+https://nytimes.com/2024/03/24/us/shani-mott-dead.html
+
+**Tammy Murphy Drops Out of Race for Menendez’s Senate Seat**\
+`Ms. Murphy, the first lady of New Jersey, had racked up early endorsements from Democratic Party leaders in the state, but she struggled to gain support among rank-and-file voters.`\
+https://nytimes.com/2024/03/24/nyregion/tammy-murphy-new-jersey-senate.html
+
 **Big Republican Donor Jeff Yass Owned Shares in Trump Media Merger Partner**\
 `The billionaire Wall Street financier is also a major investor in ByteDance, the Chinese parent company of TikTok, which faces a possible ban in the United States.`\
 https://nytimes.com/2024/03/24/business/jeff-yass-shares-trump-media-merger.html
