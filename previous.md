@@ -1,3 +1,7 @@
+**Ready, Set, Garçon! Paris Waiters Race as Storied Contest Returns**\
+`Contestants rushed through the streets with croissant-laden trays in a moment for the French capital to showcase its cafe culture ahead of the Summer Olympics.`\
+https://nytimes.com/2024/03/24/world/europe/paris-waiters-race.html
+
 **Monday Briefing: Two Charged in Moscow Attack**\
 `Plus, the hotel guest who wouldn’t leave.`\
 https://nytimes.com/2024/03/24/briefing/moscow-attack-charges-trump-court-india-sugar-industry.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/us/politics/kamala-harris-rafah-gaza-tiktok.html
 **For Once, the British Tabloids Held Back. It Didn’t Make a Difference.**\
 `The online frenzy over Catherine’s health escalated despite a reserved approach by Fleet Street — which promptly blamed Americans for the furor.`\
 https://nytimes.com/2024/03/24/business/media/british-media-princess-kate-royal-family.html
-
-**‘Vigorous Storm’ to Bring Blizzard Conditions to Plains States and Midwest**\
-`A potent storm was expected to make travel “near impossible at times” starting overnight on Sunday in the Upper Midwest and Central and Northern Plains, forecasters said.`\
-https://nytimes.com/2024/03/24/us/winter-storm-snow-forecast-midwest-plains.html
 

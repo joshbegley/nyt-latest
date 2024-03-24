@@ -1,3 +1,7 @@
+**Ready, Set, Garçon! Paris Waiters Race as Storied Contest Returns**\
+`Contestants rushed through the streets with croissant-laden trays in a moment for the French capital to showcase its cafe culture ahead of the Summer Olympics.`\
+https://nytimes.com/2024/03/24/world/europe/paris-waiters-race.html
+
 **Tammy Murphy Drops Out of Race for Menendez’s Senate Seat**\
 `Ms. Murphy, the first lady of New Jersey, had racked up early endorsements from Democratic Party leaders in the state, but struggled to gain support among rank-and-file voters.`\
 https://nytimes.com/2024/03/24/nyregion/tammy-murphy-new-jersey-senate.html
