@@ -1,3 +1,7 @@
+**Police Say They’ve Cracked Rio de Janeiro’s Most Notorious Murder Mystery**\
+`Two politicians were arrested in the assassination of a rival, Marielle Franco, who was known for fighting corruption and police violence.`\
+https://nytimes.com/2024/03/24/world/americas/brazil-marielle-franco-assassination-arrest.html
+
 **Witnesses Describe Fear and Deprivation at Besieged Hospital in Gaza**\
 `More than a dozen patients have died as a result of the prolonged Israeli military assault against Al-Shifa hospital complex, the Gazan authorities say.`\
 https://nytimes.com/2024/03/24/world/middleeast/al-shifa-hospital-gaza-israel.html

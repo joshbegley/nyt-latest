@@ -1,3 +1,7 @@
+**Police Say They’ve Cracked Rio de Janeiro’s Most Notorious Murder Mystery**\
+`Two politicians were arrested in the assassination of a rival, Marielle Franco, who was known for fighting corruption and police violence.`\
+https://nytimes.com/2024/03/24/world/americas/brazil-marielle-franco-assassination-arrest.html
+
 **Chuck Todd Questions His Network, NBC News, Over Hiring of Former R.N.C. Chair**\
 `The extraordinary comments on “Meet the Press” revealed tensions in NBC’s news divisions over Ronna McDaniel, who recently stepped down as head of the Republican National Committee.`\
 https://nytimes.com/2024/03/24/business/chuck-todd-ronna-mcdaniel-nbc-msnbc.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/24/us/trump-biden-election/biden-obama-pelosi-a
 **Pope Lets Silence Speak for Him as He Skips a Palm Sunday Speech**\
 `Pope Francis’ choice to skip the strenuous speech at the outset of Easter week immediately raised concerns about his health, but he spoke in a clear voice before and after it.`\
 https://nytimes.com/2024/03/24/world/europe/pope-francis-palm-sunday-homily.html
-
-**Former Deacon Excommunicated After His Son Is Sexually Abused by a Priest**\
-`A Louisiana priest was convicted in the sexual abuse of the ex-deacon’s son. What followed was a lawsuit and now the Catholic Church’s highest censure.`\
-https://nytimes.com/2024/03/24/us/catholic-deacon-excommunicated-louisiana.html
 
