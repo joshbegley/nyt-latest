@@ -1,3 +1,7 @@
+**Breyer says he is open to supporting a Supreme Court age limit.**\
+`By Minho Kim`\
+https://nytimes.com/2024/03/24/us/politics/stephen-breyer-supreme-court-age-limit.html
+
 **Mountain Lion Kills Man and Injures His Brother in California**\
 `Since 1890, there have been fewer than 50 verified mountain lion attacks on humans in California, and of those, only six have been fatal, officials said.`\
 https://nytimes.com/2024/03/24/us/mountain-lion-attack-california.html

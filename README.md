@@ -6,8 +6,8 @@ https://nytimes.com/2024/03/24/us/mountain-lion-attack-california.html
 `The violent attack on Moscow’s outskirts on Friday was a scene of chaos and terror. “You’re just running to figure out where else to run,” one attendee said.`\
 https://nytimes.com/2024/03/24/world/europe/moscow-shooting-scene-survivors.html
 
-**Breyer says he is open to supporting a Supreme Court age limit.**\
-`By Minho Kim`\
+**Breyer Says He Is Open to Supporting a Supreme Court Age Limit**\
+`The retired justice suggested that an 18- or 20-year term could dissuade members of the court from “thinking about the next job” just as effectively as a lifetime appointment does now.`\
 https://nytimes.com/2024/03/24/us/politics/stephen-breyer-supreme-court-age-limit.html
 
 **Ben Stern, Who Opposed a Nazi Rally in Illinois, Dies at 102**\
