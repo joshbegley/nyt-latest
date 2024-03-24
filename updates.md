@@ -1,3 +1,7 @@
+**A New Game from The Times**\
+`It’s a word search with a few twists.`\
+https://nytimes.com/2024/03/24/briefing/strands-nyt-games.html
+
 **Russia’s Battle With Extremists Has Simmered for Years**\
 `The Islamic State has long threatened to strike Russia for helping the Syrian president, Bashar al-Assad, stay in control.`\
 https://nytimes.com/2024/03/24/world/europe/russia-extremism-isis-syria.html
