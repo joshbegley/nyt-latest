@@ -1,6 +1,6 @@
 **In Russia, Fingers Point Anywhere but at ISIS for Concert Hall Attack**\
 `Russian state media pushed the idea that Ukraine was the obvious culprit, but at least three of the four suspects charged on Sunday are from the Central Asian nation of Tajikistan.`\
-https://nytimes.com/2024/03/24/world/europe/russia-terrrist-attack.html
+https://nytimes.com/2024/03/24/world/europe/russia-moscow-concert-hall-attack.html
 
 **Shani Mott, Black Studies Scholar Who Examined Power All Around Her, Dies at 47**\
 `Her work looked at how race and power are experienced in America. In 2022, she filed a lawsuit saying that the appraisal of her home was undervalued because of bias.`\
