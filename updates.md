@@ -1,3 +1,11 @@
+**Tammy Murphy Drops Out of Race for Menendez’s Senate Seat**\
+`Ms. Murphy, the first lady of New Jersey, had racked up early endorsements from Democratic Party leaders, but struggled to gain support among rank-and-file voters.`\
+https://nytimes.com/2024/03/24/nyregion/tammy-murphy-new-jersey-senate.html
+
+**Kamala Harris is noncommittal on Gaza, TikTok and the border.**\
+`By Maggie Astor`\
+https://nytimes.com/2024/03/24/us/politics/kamala-harris-rafah-gaza-tiktok.html
+
 **Amid Questions About Security Failures, Russian State Media Focus on a Different Narrative**\
 `Russian state news outlets barely mentioned the claim of responsibility made by the Islamic State group.`\
 https://nytimes.com/2024/03/24/world/europe/russia-moscow-isis.html
