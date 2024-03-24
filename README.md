@@ -1,3 +1,7 @@
+**A New Game from The Times**\
+`It’s a word search with a few twists.`\
+https://nytimes.com/2024/03/24/briefing/strands-nyt-games.html
+
 **Russia’s Battle With Extremists Has Simmered for Years**\
 `The Islamic State has long threatened to strike Russia for helping the Syrian president, Bashar al-Assad, stay in control.`\
 https://nytimes.com/2024/03/24/world/europe/russia-extremism-isis-syria.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/books/booksupdate/judith-butler-thinks-youre-over
 **Behind Our Investigation Into India’s Sugar Industry**\
 `Coca-Cola and PepsiCo have helped turn the Indian state of Maharashtra into a sugar-producing powerhouse.`\
 https://nytimes.com/video/world/asia/100000009363281/sugar-industry-exploitation-of-women.html
-
-**In Hezbollah’s Sights, a Stretch of Northern Israel Becomes a No-Go Zone**\
-`For the few Israelis remaining in the evacuated zone along the northern border with Lebanon, the simmering conflict there has become intensely personal.`\
-https://nytimes.com/2024/03/24/world/middleeast/israel-hezbollah-lebanon-border.html
 
