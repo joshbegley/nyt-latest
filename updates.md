@@ -1,3 +1,15 @@
+**Amid Questions About Security Failures, Russian State Media Focus on a Different Narrative**\
+`Russian state news outlets barely mentioned the claim of responsibility made by a branch of ISIS.`\
+https://nytimes.com/2024/03/24/world/europe/russia-moscow-isis.html
+
+**With Charles and Catherine Sidelined, It’s Camilla’s Time to Shine**\
+`The woman whose very existence once seemed to threaten the royal family’s stability has emerged as a stabilizing force during a major health crisis.`\
+https://nytimes.com/2024/03/24/world/europe/royals-cancer-camilla.html
+
+**In Fund-Raising Blitz, Trump Warns Democrats: Hands Off Trump Tower**\
+`With a deadline on Monday to secure a $454 million bond in his civil fraud case, Donald Trump’s campaign emails have claimed Democrats are trying to seize his marquee property.`\
+https://nytimes.com/2024/03/24/us/politics/trump-civil-fraud-james.html
+
 **Insurance Companies and the Prior Authorization Maze**\
 `Responses to an Opinion video by Alexander Stockton. Also: Elect the attorney general; friendship memories; a leadership gap.`\
 https://nytimes.com/2024/03/24/opinion/prior-authorization-medical-care.html
