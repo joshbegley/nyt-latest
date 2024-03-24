@@ -1,3 +1,11 @@
+**For Once, the British Tabloids Held Back. It Didn’t Make a Difference.**\
+`The online frenzy over Catherine’s health escalated despite a reserved approach by Fleet Street — which promptly blamed Americans for the furor.`\
+https://nytimes.com/2024/03/24/business/media/british-media-princess-kate-royal-family.html
+
+**Blizzard Conditions Forecast for Plains States and Midwest**\
+`A potent storm was expected to make travel “near impossible at times” starting on Sunday in the Upper Midwest and Central and Northern Plains, forecasters said.`\
+https://nytimes.com/2024/03/24/us/winter-storm-snow-forecast-midwest-plains.html
+
 **Police Say They’ve Cracked Rio de Janeiro’s Most Notorious Murder Mystery**\
 `Two politicians were arrested in the assassination of a rival, Marielle Franco, who was known for fighting corruption and police violence.`\
 https://nytimes.com/2024/03/24/world/americas/brazil-marielle-franco-assassination-arrest.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/24/dining/practice-makes-perfect-biscuits.html
 **Witnesses Describe Fear and Deprivation at Besieged Hospital in Gaza**\
 `More than a dozen patients have died as a result of the prolonged Israeli military assault against Al-Shifa hospital complex, the Gazan authorities say.`\
 https://nytimes.com/2024/03/24/world/middleeast/al-shifa-hospital-gaza-israel.html
-
-**Obama and Pelosi appear in video with Biden celebrating health care law.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/03/24/us/trump-biden-election/biden-obama-pelosi-affordable-care-act
-
-**Pope Lets Silence Speak for Him as He Skips a Palm Sunday Speech**\
-`Pope Francis’ choice to skip the strenuous speech at the outset of Easter week immediately raised concerns about his health, but he spoke in a clear voice before and after it.`\
-https://nytimes.com/2024/03/24/world/europe/pope-francis-palm-sunday-homily.html
 
