@@ -1,3 +1,7 @@
+**Big Republican Donor Jeff Yass Owned Shares in Trump Media Merger Partner**\
+`The billionaire Wall Street financier is also a major investor in ByteDance, the Chinese parent company of TikTok, which faces a possible ban in the United States.`\
+https://nytimes.com/2024/03/24/business/jeff-yass-shares-trump-media-merger.html
+
 **Reef Composition**\
 `Shannon Rapp and Will Eisenberg make their New York Times collaboration debut.`\
 https://nytimes.com/2024/03/24/crosswords/daily-puzzle-2024-03-25.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/us/politics/stephen-breyer-supreme-court-age-limi
 **Ben Stern, Who Opposed a Nazi Rally in Illinois, Dies at 102**\
 `He was held prisoner in nine concentration camps. Decades later, he fought a battle against American Nazis that became a major free-speech case.`\
 https://nytimes.com/2024/03/24/us/ben-stern-dead.html
-
-**Kamala Harris Is Noncommittal on Gaza, the Border and TikTok**\
-`In an interview with ABC News on Sunday, the vice president declined to offer details on several issues facing the Biden administration.`\
-https://nytimes.com/2024/03/24/us/politics/kamala-harris-rafah-gaza-tiktok.html
 

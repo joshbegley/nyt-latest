@@ -1,3 +1,7 @@
+**Big Republican Donor Jeff Yass Owned Shares in Trump Media Merger Partner**\
+`The billionaire Wall Street financier is also a major investor in ByteDance, the Chinese parent company of TikTok, which faces a possible ban in the United States.`\
+https://nytimes.com/2024/03/24/business/jeff-yass-shares-trump-media-merger.html
+
 **Reef Composition**\
 `Shannon Rapp and Will Eisenberg make their New York Times collaboration debut.`\
 https://nytimes.com/2024/03/24/crosswords/daily-puzzle-2024-03-25.html
