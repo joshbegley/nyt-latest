@@ -1,3 +1,7 @@
+**Dozens of Children Abducted in Nigeria Have Been Released, Officials Say**\
+`The military of the West African nation, which is plagued by kidnappings largely driven by demands for ransom payments, said 137 children had been freed in the country’s north.`\
+https://nytimes.com/2024/03/24/world/africa/nigeria-children-released.html
+
 **There’s New Energy in Rome’s Esquilino Neighborhood. Here’s Where to Go.**\
 `Plus: fountain pens for special occasions, moon phase watches and more from T’s cultural compendium.`\
 https://nytimes.com/2024/03/24/t-magazine/rome-esquilino-neighborhood-guide.html

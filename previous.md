@@ -1,3 +1,7 @@
+**Dozens of Children Abducted in Nigeria Have Been Released, Officials Say**\
+`The military of the West African nation, which is plagued by kidnappings largely driven by demands for ransom payments, said 137 children had been freed in the country’s north.`\
+https://nytimes.com/2024/03/24/world/africa/nigeria-children-released.html
+
 **There’s New Energy in Rome’s Esquilino Neighborhood. Here’s Where to Go.**\
 `Plus: fountain pens for special occasions, moon phase watches and more from T’s cultural compendium.`\
 https://nytimes.com/2024/03/24/t-magazine/rome-esquilino-neighborhood-guide.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/opinion/javier-milei-argentina.html
 **A Lunar Eclipse Warms Up the Moon for April’s Solar Eclipse**\
 `The subtle event, known as a penumbral eclipse, can be observed by everyone on Earth’s nightside.`\
 https://nytimes.com/2024/03/24/science/lunar-eclipse-moon-penumbral.html
-
-**How a Pandemic Malaise Is Shaping American Politics**\
-`Four years later, the shadow of the pandemic continues to play a profound role in voters’ pessimism and distrust amid a presidential rematch.`\
-https://nytimes.com/2024/03/24/us/politics/pandemic-politics-malaise.html
 
