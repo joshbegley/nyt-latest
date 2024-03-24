@@ -1,3 +1,7 @@
+**Slovakia Presidential Election 2024: What You Need to Know**\
+`Ivan Korcok, a veteran diplomat hostile to the Kremlin, and Peter Pellegrini, a Russia-friendly politician allied with Slovakia’s populist prime minister, will face each other in a runoff.`\
+https://nytimes.com/2024/03/23/world/europe/slovakia-presidential-election-korcok-pellegrini.html
+
 **Russia Arrests 4 Suspects in Moscow Attack as Death Toll Climbs to 133**\
 `As the Islamic State claimed responsibility, President Vladimir V. Putin vowed to “identify and punish” those responsible and tried to implicate Ukraine.`\
 https://nytimes.com/2024/03/23/world/europe/russia-moscow-terror-attack-islamic-state.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/23/well/princess-catherine-cancer-privacy.html
 **Kamala Harris Visits Parkland and Urges States to Adopt Red-Flag Gun Laws**\
 `At the site of the 2018 school shooting in Florida, the vice president announced federal help for states to limit weapon access for people deemed to be threats.`\
 https://nytimes.com/2024/03/23/us/politics/kamala-harris-parkland-guns.html
-
-**Jasmin Paris Becomes First Woman to Complete Extreme Barkley Race**\
-`The Barkley Marathons, which features cryptic rules for entry, requires runners to complete 100 miles of rugged terrain in Tennessee under 60 hours.`\
-https://nytimes.com/2024/03/23/us/barkley-marathons-jasmin-paris.html
 
