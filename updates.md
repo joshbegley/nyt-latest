@@ -1,3 +1,7 @@
+**Videos and Online Profiles Link Suspects to Moscow Attack**\
+`Clothing and other details appear to show a connection between four suspects detained by Russia and the men who carried out the concert hall massacre of more than 130 people.`\
+https://nytimes.com/2024/03/25/world/europe/moscow-attack-suspects-russia-evidence.html
+
 **Trump’s Multibillion-Dollar Social Media Company Will Start Trading on Tuesday**\
 `Trump Media & Technology Group completed a deal to merge with Digital World Acquisition Corp., a cash-rich shell company. The merger increases the former president’s net worth by roughly $3 billion.`\
 https://nytimes.com/2024/03/25/business/trump-media-trading-tuesday.html
