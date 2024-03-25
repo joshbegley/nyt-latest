@@ -1,4 +1,4 @@
-**Flaco,Central Park Zoo Owl, Died With High Levels of Rat Poison in System**\
+**Flaco, Central Park Zoo Owl, Died With High Levels of Rat Poison in System**\
 `A necropsy conducted by the Bronx Zoo found that Flaco also had a severe pigeon virus when he crashed into a Manhattan building.`\
 https://nytimes.com/2024/03/25/nyregion/flaco-owl-central-park-zoo-death-cause.html
 
