@@ -1,3 +1,11 @@
+**Trump Dodged Financial Ruin, but Failed to Delay His Trial**\
+`Also, the U.N. passed a resolution for an immediate cease-fire. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/03/25/briefing/trump-bond-united-nations-resolution-dude-history.html
+
+**Lisa Lane, Chess Champion Whose Reign Was Meteoric, Dies at 86**\
+`She was the first chess player to appear on the cover of Sports Illustrated. But people focused more on her looks than on her ability.`\
+https://nytimes.com/2024/03/25/us/lisa-lane-dead.html
+
 **NBC News Faces Rebellion Over Hiring of Former Republican Party Chair**\
 `In extraordinary on-air remarks, Mika Brzezinski, Joe Scarborough and Nicolle Wallace questioned their own network’s decision to hire Ronna McDaniel as a political analyst.`\
 https://nytimes.com/2024/03/25/business/media/nbc-ronna-mcdaniel-rebellion.html

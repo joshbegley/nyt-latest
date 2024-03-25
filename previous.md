@@ -1,3 +1,11 @@
+**Trump Dodged Financial Ruin, but Failed to Delay His Trial**\
+`Also, the U.N. passed a resolution for an immediate cease-fire. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/03/25/briefing/trump-bond-united-nations-resolution-dude-history.html
+
+**Lisa Lane, Chess Champion Whose Reign Was Meteoric, Dies at 86**\
+`She was the first chess player to appear on the cover of Sports Illustrated. But people focused more on her looks than on her ability.`\
+https://nytimes.com/2024/03/25/us/lisa-lane-dead.html
+
 **Boeing Needs New Leadership With the Right Kind of Experience**\
 `A new C.E.O. needs to have lived and breathed complex manufacturing.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/boeing-new-leadership
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/03/25/nyregion/trump-bond-civil-fraud-rulin
 **Why I Can’t Wait for the Sun to Go Dark**\
 `Solar eclipses reveal fascinating truths about space and our place in it.`\
 https://nytimes.com/2024/03/25/opinion/solar-eclipse-totality.html
-
-**A Trump Criminal Trial Really Could Start This Year**\
-`It’s fitting that the porn star hush-money case winds up going first.`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/trump-criminal-case-hushmoney
-
-**Tennessee Company Hired Children to Operate ‘Dangerous’ Machinery, Officials Say**\
-`Tuff Torq Corp. of Morristown, Tenn., must pay a fine of nearly $300,000 and set aside $1.5 million in profits to compensate 10 underage workers, the Labor Department said.`\
-https://nytimes.com/2024/03/25/business/tuff-torq-child-labor-fine.html
 
