@@ -1,3 +1,11 @@
+**Use of Abortion Pills Has Risen Significantly Post Roe, Research Shows**\
+`Two new studies show fast-growing use of the pills on the eve of the Supreme Court’s consideration of a case seeking to ban or restrict them. Write a summary here and then click the Summary toggle above so it only shows up in the metadata field.`\
+https://nytimes.com/2024/03/25/health/abortion-pills.html
+
+**Inside a C.E.O.’s Bold Claims About Her Hot Fintech Start-Up**\
+`Amira Yahyaoui, a human rights activist, promoted the success of her student aid start-up, Mos. Some of her statements do not add up, according to internal data and people familiar with the company.`\
+https://nytimes.com/2024/03/25/technology/inside-a-ceos-bold-claims-about-her-hot-fintech-start-up.html
+
 **6 Books for Adults Living With A.D.H.D.**\
 `Psychiatrists, counselors and researchers shared their recommendations.`\
 https://nytimes.com/2024/03/25/well/mind/adult-adhd-books.html
