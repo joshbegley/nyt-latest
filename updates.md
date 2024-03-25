@@ -1,3 +1,11 @@
+**Watch: The Solo of ‘Solitude’**\
+`Click through as Joseph Gordon performs a section from Alexei Ratmansky’s new dance for New York City Ballet, a reaction to the horrors of the war in Ukraine.`\
+https://nytimes.com/interactive/2024/03/25/arts/dance/nyc-ballet-ukraine-solo.html
+
+**U.N. Expected to Consider Another Cease-Fire Resolution**\
+`The Security Council is expected to consider a draft resolution that explicitly demands a truce during Ramadan, as well as the unconditional release of hostages held in Gaza.`\
+https://nytimes.com/2024/03/25/world/middleeast/un-cease-fire-resolution-gaza-israel.html
+
 **The U.N. Security Council is expected to consider another cease-fire resolution today.**\
 `By Aaron Boxerman`\
 https://nytimes.com/2024/03/25/world/middleeast/un-cease-fire-resolution-gaza-israel.html
