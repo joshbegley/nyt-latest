@@ -1,3 +1,7 @@
+**Trump Is Back in Court, and an ISIS Group Looks Beyond Russia Attack**\
+`Plus, a new golden age for shipwreck discoveries.`\
+https://nytimes.com/2024/03/25/podcasts/trump-sugar-russia.html
+
 **A Terrorist Attack in Russia**\
 `The tragedy in a Moscow suburb is a blow to Vladimir V. Putin, coming only days after his stage-managed election victory.`\
 https://nytimes.com/2024/03/25/podcasts/the-daily/moscow-russia-terrorist-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/style/micro-purse-handbags.html
 **83 Years After His Killing, a Black Soldier Gets an Army Funeral**\
 `Pvt. Albert King, shot dead by a white military police officer in Georgia in 1941, was blamed for his own death and buried in an unmarked grave.`\
 https://nytimes.com/2024/03/25/us/albert-king-black-soldier-memorial-georgia.html
-
-**$1.3 Million Homes in California**\
-`A two-bedroom condominium in San Francisco, a three-bedroom cottage in Los Angeles and a ranch house in San Luis Obispo.`\
-https://nytimes.com/2024/03/25/realestate/1-million-dollar-homes-california.html
 
