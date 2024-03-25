@@ -1,3 +1,7 @@
+**The hush-money trial may be the only one Trump faces before the election.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/the-hush-money-trial-may-be-the-only-one-trump-faces-before-the-election
+
 **American Jews, Liberalism and Zionism**\
 `Responses to a guest essay by Peter Beinart. Also: M.I.T. and the Gaza war; organ transplants; sexual brutality.`\
 https://nytimes.com/2024/03/25/opinion/us-jews-israel-liberalism-zionism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/business/china-hacking-us-sanctions.html
 **Judge Takes One of Trump’s Lawyers, Todd Blanche, To Task**\
 `During the first hour of a hearing on a possible delay or even a dismissal of the criminal trial facing his client, Mr. Blanche faced withering questioning from the trial’s judge, Juan M. Merchan.`\
 https://nytimes.com/2024/03/25/nyregion/todd-blanche-lawyer-trump.html
-
-**Black Couple Who Said an Appraisal of Their Home Was Biased Settle Lawsuit**\
-`Dr. Nathan Connolly and the estate of Dr. Shani Mott, who recently died, will receive a payment from their mortgage lender, which also agreed to several policy changes to discourage discrimination.`\
-https://nytimes.com/2024/03/25/realestate/racial-bias-appraisal-settlement.html
 
