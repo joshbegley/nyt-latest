@@ -1,3 +1,7 @@
+**Vowing the U.S. Will ‘Do Our Job,’ Johnson Searches for a Path on Ukraine**\
+`The Republican speaker, with his job on the line, has privately told people he will make sure the House moves to assist Ukraine, a step that many members of his party oppose.`\
+https://nytimes.com/2024/03/25/world/europe/speaker-mike-johnson-ukraine.html
+
 **Video: Bolsonaro, Facing Investigations, Hid at Hungarian Embassy**\
 `Security-camera footage obtained by The Times shows that Brazil’s former president spent two nights at the Hungarian Embassy in an apparent bid for asylum.`\
 https://nytimes.com/2024/03/25/world/americas/jair-bolsonaro-hungary-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/realestate/racial-bias-appraisal-settlement.html
 **Israeli forces surround a hospital in Gaza and continue their raid on another.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/israeli-forces-surround-a-hospital-in-gaza-and-continue-their-raid-on-another
-
-**Angela Alsobrooks Picks Up Senate Endorsements After Opponent Uses Racial Slur**\
-`Five House members backed Ms. Alsobrooks over their colleague, David Trone, who has apologized for a racial slur he said he used inadvertently during a recent hearing.`\
-https://nytimes.com/2024/03/25/us/politics/angela-alsobrooks-endorsements-david-trone.html
 
