@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`What the terrorist attack means for Russia.`\
+https://nytimes.com/2024/03/25/briefing/russia-attack-putin-india-sugar.html
+
 **Boeing C.E.O. to Step Down in Major Reshuffle at Embattled Plane Maker**\
 `The company’s chief executive, David Calhoun, said he would leave at the end of the year. Stan Deal, Boeing’s head of commercial planes, stepped down immediately.`\
 https://nytimes.com/2024/03/25/business/boeing-ceo-steps-down.html

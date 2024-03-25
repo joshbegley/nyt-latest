@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`What the terrorist attack means for Russia.`\
+https://nytimes.com/2024/03/25/briefing/russia-attack-putin-india-sugar.html
+
 **Boeing C.E.O. to Step Down in Major Reshuffle at Embattled Plane Maker**\
 `The company’s chief executive, David Calhoun, said he would leave at the end of the year. Stan Deal, Boeing’s head of commercial planes, stepped down immediately.`\
 https://nytimes.com/2024/03/25/business/boeing-ceo-steps-down.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/podcasts/trump-sugar-russia.html
 **A Terrorist Attack in Russia**\
 `The tragedy in a Moscow suburb is a blow to Vladimir V. Putin, coming only days after his stage-managed election victory.`\
 https://nytimes.com/2024/03/25/podcasts/the-daily/moscow-russia-terrorist-attack.html
-
-**Assessing Presidential Candidates by the Company They Keep**\
-`Are they surrounded by friends with an energetic vision, or by lawyers?`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-trump-kennedy-friends
 
