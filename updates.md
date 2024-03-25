@@ -1,3 +1,7 @@
+**Federal Agents Raid Sean Combs’s Residence in Los Angeles**\
+`In response to questions about Mr. Combs’s house, Homeland Security Investigations said the search was part of “an ongoing investigation.”`\
+https://nytimes.com/2024/03/25/arts/music/diddy-sean-combs-home-raided.html
+
 **Trump Dodged Financial Ruin, but Failed to Delay His Trial**\
 `Also, the U.N. passed a resolution for an immediate cease-fire. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/03/25/briefing/trump-bond-united-nations-resolution-dude-history.html
