@@ -1,3 +1,7 @@
+**Trump Can Post Smaller Bond in Civil Fraud Case, Court Rules**\
+`The former president must post a bond of $175 million within 10 days as he appeals the $454 million judgment against him.`\
+https://nytimes.com/2024/03/25/nyregion/trump-bond-reduced.html
+
 **Use of Abortion Pills Has Risen Significantly Post Roe, Research Shows**\
 `Two new studies show fast-growing use of the pills on the eve of the Supreme Court’s consideration of a case seeking to ban or restrict them. Write a summary here and then click the Summary toggle above so it only shows up in the metadata field.`\
 https://nytimes.com/2024/03/25/health/abortion-pills.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/world/africa/senegal-presidential-election-result
 **Watch: The Solo of ‘Solitude’**\
 `Click through as Joseph Gordon performs a section from Alexei Ratmansky’s new dance for New York City Ballet, a reaction to the horrors of the war in Ukraine.`\
 https://nytimes.com/interactive/2024/03/25/arts/dance/nyc-ballet-ukraine-solo.html
-
-**Stalling is a time-tested strategy that keeps working for Trump.**\
-`By Ben Protess, Alan Feuer, William K. Rashbaum and Maggie Haberman`\
-https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/stalling-is-a-time-tested-strategy-that-keeps-working-for-trump
 
