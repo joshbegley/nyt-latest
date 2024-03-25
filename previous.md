@@ -1,3 +1,7 @@
+**‘Succession’ on Ice**\
+`Ilia Malinin, an American teenager, won the men’s World Figure Skating Championships with a performance set to the theme of the HBO series.`\
+https://nytimes.com/2024/03/25/style/succession-ilia-malinin-figure-skating.html
+
 **U.N. Security Council Calls for Immediate Cease-Fire in Gaza as U.S. Abstains**\
 `The U.S. decision not to vote on the resolution drew criticism from Prime Minister Benjamin Netanyahu of Israel, who ordered a delegation to hold back from a planned trip to Washington.`\
 https://nytimes.com/2024/03/25/world/middleeast/un-security-council-gaza-ceasefire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/us/lisa-lane-dead.html
 **Boeing Needs New Leadership With the Right Kind of Experience**\
 `A new C.E.O. needs to have lived and breathed complex manufacturing.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/boeing-new-leadership
-
-**NBC News Faces Rebellion Over Hiring of Former Republican Party Chair**\
-`In extraordinary on-air remarks, Mika Brzezinski, Joe Scarborough and Nicolle Wallace questioned their own network’s decision to hire Ronna McDaniel as a political analyst.`\
-https://nytimes.com/2024/03/25/business/media/nbc-ronna-mcdaniel-rebellion.html
 
