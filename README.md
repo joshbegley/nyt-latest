@@ -1,3 +1,7 @@
+**Kevin Hart Receives the Mark Twain Prize for American Humor**\
+`The prolific comic was honored at the Kennedy Center for a 25-year career that has included movies, TV series and many live events.`\
+https://nytimes.com/2024/03/25/arts/kevin-hart-mark-twain-prize.html
+
 **ISIS Affiliate Linked to Moscow Attack Has Global Ambitions**\
 `The Islamic State in Khorasan is active in Afghanistan, Pakistan and Iran and has set its sights on Europe and beyond.`\
 https://nytimes.com/2024/03/25/us/politics/moscow-attack-isis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/business/jeff-yass-shares-trump-media-merger.html
 **Reef Composition**\
 `Shannon Rapp and Will Eisenberg make their New York Times collaboration debut.`\
 https://nytimes.com/2024/03/24/crosswords/daily-puzzle-2024-03-25.html
-
-**Ready, Set, Garçon! Paris Waiters Race as Storied Contest Returns**\
-`Contestants rushed through the streets with croissant-laden trays in a moment for the French capital to showcase its cafe culture ahead of the Summer Olympics.`\
-https://nytimes.com/2024/03/24/world/europe/paris-waiters-race.html
 
