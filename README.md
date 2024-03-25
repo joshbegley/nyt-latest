@@ -1,3 +1,7 @@
+**Chick-fil-A Modifies Its ‘No Antibiotic’ Policy**\
+`The fast food restaurant chain will continue to bar the use of antibiotics used to treat people but will permit the use of animal antibiotics.`\
+https://nytimes.com/2024/03/25/business/chick-fil-a-antibiotic-chicken.html
+
 **‘X-Men’ Is Back, but a Key Member Is Missing**\
 `The animated Disney+ revival series “X-Men ’97,” has faced questions after its showrunner was mysteriously fired just ahead of the premiere.`\
 https://nytimes.com/2024/03/25/arts/television/x-men-97-beau-demayo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/business/boeing-ceo-dave-calhoun-timeline.html
 **A Second Act for Ballet in Iran?**\
 `A new work, “The White Feather” is inspired by the history of the Iranian National Ballet, which went dark during the Islamic Revolution and was never revived.`\
 https://nytimes.com/2024/03/25/arts/dance/iran-ballet-tara-ghassemieh-white-feather.html
-
-**The hush-money trial may be the only one Trump faces before the election.**\
-`By Alan Feuer`\
-https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/the-hush-money-trial-may-be-the-only-one-trump-faces-before-the-election
 
