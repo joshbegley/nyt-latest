@@ -1,3 +1,7 @@
+**A Trump Criminal Trial Really Could Start This Year**\
+`It’s fitting that the porn star hush-money case winds up going first.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/trump-criminal-case-hushmoney
+
 **Tennessee Company Hired Children to Operate ‘Dangerous’ Machinery, Officials Say**\
 `Tuff Torq Corp. of Morristown, Tenn., must pay a fine of nearly $300,000 and set aside $1.5 million in profits to compensate 10 underage workers, the Labor Department said.`\
 https://nytimes.com/2024/03/25/business/tuff-torq-child-labor-fine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/us/politics/trump-israel-hamas-war.html
 **Videos and Online Profiles Link Suspects to Moscow Attack**\
 `Clothing and other details appear to show a connection between four suspects detained by Russia and the men who carried out the concert hall massacre of more than 130 people.`\
 https://nytimes.com/2024/03/25/world/europe/moscow-attack-suspects-russia-evidence.html
-
-**Trump’s Multibillion-Dollar Social Media Company Will Start Trading on Tuesday**\
-`Trump Media & Technology Group completed a deal to merge with Digital World Acquisition Corp., a cash-rich shell company. The merger increases the former president’s net worth by roughly $3 billion.`\
-https://nytimes.com/2024/03/25/business/trump-media-trading-tuesday.html
 

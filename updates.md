@@ -1,3 +1,7 @@
+**A Trump Criminal Trial Really Could Start This Year**\
+`It’s fitting that the porn star hush-money case winds up going first.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/trump-criminal-case-hushmoney
+
 **Tennessee Company Hired Children to Operate ‘Dangerous’ Machinery, Officials Say**\
 `Tuff Torq Corp. of Morristown, Tenn., must pay a fine of nearly $300,000 and set aside $1.5 million in profits to compensate 10 underage workers, the Labor Department said.`\
 https://nytimes.com/2024/03/25/business/tuff-torq-child-labor-fine.html
