@@ -1,3 +1,7 @@
+**E.U. Takes Aim at Alphabet, Apple and Meta in Wide-Ranging Investigations**\
+`The inquiries signal the bloc’s intention to tightly enforce sweeping new competition rules that took effect this month.`\
+https://nytimes.com/2024/03/25/business/apple-facebook-google-eu-investigation.html
+
 **Energy Dept. Awards $6 Billion for Green Steel, Cement and Even Macaroni Factories**\
 `Industries produce 25 percent of America’s planet-warming emissions but so far have proved very hard to clean up. The Biden administration is trying.`\
 https://nytimes.com/2024/03/25/climate/energy-department-grants-decarbonize-industry.html
