@@ -1,3 +1,15 @@
+**This was supposed to be the start of Trump’s trial. A sudden document dump changed that.**\
+`By Ben Protess and William K. Rashbaum`\
+https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/this-was-supposed-to-be-the-start-of-trumps-trial-a-sudden-document-dump-changed-that
+
+**25trump-trial**\
+`Live Updates: Trump Seeks Again to Delay His Criminal Hush-Money Trial`\
+https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial
+
+**Can California Legislate Its Way to Happiness?**\
+`A first-in-the-nation committee hopes to figure out how to make the Golden State a joyous place.`\
+https://nytimes.com/2024/03/25/us/california-legislature-happiness.html
+
 **Monday Briefing**\
 `What the terrorist attack means for Russia.`\
 https://nytimes.com/2024/03/25/briefing/russia-attack-putin-india-sugar.html
