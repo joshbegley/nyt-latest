@@ -1,3 +1,7 @@
+**This Easy, Make-Ahead Easter Brunch Only Feels Expensive**\
+`This spring menu — a showstopping frittata, a snappy salad and a chewy cookie from a celebrated restaurant chef — isn’t just surprising. It’s surprisingly simple.`\
+https://nytimes.com/2024/03/25/dining/easy-cheap-easter-recipes.html
+
 **Trump Can Post Smaller Bond in Civil Fraud Case, Court Rules**\
 `The former president must post a bond of $175 million within 10 days as he appeals the $454 million judgment against him.`\
 https://nytimes.com/2024/03/25/nyregion/trump-bond-reduced.html

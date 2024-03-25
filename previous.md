@@ -1,3 +1,7 @@
+**This Easy, Make-Ahead Easter Brunch Only Feels Expensive**\
+`This spring menu — a showstopping frittata, a snappy salad and a chewy cookie from a celebrated restaurant chef — isn’t just surprising. It’s surprisingly simple.`\
+https://nytimes.com/2024/03/25/dining/easy-cheap-easter-recipes.html
+
 **Trump Can Post Smaller Bond in Civil Fraud Case, Court Rules**\
 `The former president must post a bond of $175 million within 10 days as he appeals the $454 million judgment against him.`\
 https://nytimes.com/2024/03/25/nyregion/trump-bond-reduced.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/who-is-justi
 **Young Opposition Candidate Wins Senegal’s Presidential Election**\
 `Bassirou Diomaye Faye, who turned 44 on Monday, was little known until he received the backing of Ousmane Sonko, Senegal’s most formidable opposition politician. Both men were released from jail only 10 days ago.`\
 https://nytimes.com/2024/03/25/world/africa/senegal-presidential-election-results.html
-
-**Watch: The Solo of ‘Solitude’**\
-`Click through as Joseph Gordon performs a section from Alexei Ratmansky’s new dance for New York City Ballet, a reaction to the horrors of the war in Ukraine.`\
-https://nytimes.com/interactive/2024/03/25/arts/dance/nyc-ballet-ukraine-solo.html
 
