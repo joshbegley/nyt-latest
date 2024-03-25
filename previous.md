@@ -1,3 +1,7 @@
+**Trump team takes sparring with Biden into vulgar territory.**\
+`The use of an expletive from a Trump campaign social media account on Monday reflects the coarsening of political discourse in the Trump era.`\
+https://nytimes.com/2024/03/25/us/politics/trump-bond-biden-social-media.html
+
 **Who Are the RFK Jr. Voters?**\
 `“He’s outspoken. As far as I know, he’s not crooked.”`\
 https://nytimes.com/2024/03/25/us/politics/rfk-jr-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/briefing/un-gaza-cease-fire-trump-criminal-trial-
 **Flaco, Central Park Owl, Died With High Levels of Rat Poison in System**\
 `A necropsy conducted by the Bronx Zoo found that life-threatening levels of rat poison and a severe pigeon virus contributed to Flaco’s death last month.`\
 https://nytimes.com/2024/03/25/nyregion/flaco-owl-central-park-zoo-death-cause.html
-
-**New York Starts Distributing Debit Cards to Migrants, Despite Uproar**\
-`New York City officials on Monday began handing out debit cards to migrant families to pay for food and baby supplies at grocery stores.`\
-https://nytimes.com/2024/03/25/nyregion/migrants-debit-cards-nyc.html
 

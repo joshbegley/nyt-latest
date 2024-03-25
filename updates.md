@@ -1,3 +1,7 @@
+**Trump team takes sparring with Biden into vulgar territory.**\
+`The use of an expletive from a Trump campaign social media account on Monday reflects the coarsening of political discourse in the Trump era.`\
+https://nytimes.com/2024/03/25/us/politics/trump-bond-biden-social-media.html
+
 **Who Are the RFK Jr. Voters?**\
 `“He’s outspoken. As far as I know, he’s not crooked.”`\
 https://nytimes.com/2024/03/25/us/politics/rfk-jr-voters.html
