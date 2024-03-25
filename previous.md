@@ -1,3 +1,7 @@
+**A Terrorist Attack in Russia**\
+`The tragedy in a Moscow suburb is a blow to Vladimir V. Putin, coming only days after his stage-managed election victory.`\
+https://nytimes.com/2024/03/25/podcasts/the-daily/moscow-russia-terrorist-attack.html
+
 **Assessing Presidential Candidates by the Company They Keep**\
 `Are they surrounded by friends with an energetic vision, or by lawyers?`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-trump-kennedy-friends
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/us/albert-king-black-soldier-memorial-georgia.htm
 **$1.3 Million Homes in California**\
 `A two-bedroom condominium in San Francisco, a three-bedroom cottage in Los Angeles and a ranch house in San Luis Obispo.`\
 https://nytimes.com/2024/03/25/realestate/1-million-dollar-homes-california.html
-
-**The Health Moonshot Biden Can Campaign On**\
-`A second term could be the opportunity to help Americans live longer again.`\
-https://nytimes.com/2024/03/25/opinion/life-span-biden-health.html
 

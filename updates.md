@@ -1,3 +1,7 @@
+**A Terrorist Attack in Russia**\
+`The tragedy in a Moscow suburb is a blow to Vladimir V. Putin, coming only days after his stage-managed election victory.`\
+https://nytimes.com/2024/03/25/podcasts/the-daily/moscow-russia-terrorist-attack.html
+
 **Assessing Presidential Candidates by the Company They Keep**\
 `Are they surrounded by friends with an energetic vision, or by lawyers?`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-trump-kennedy-friends
