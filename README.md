@@ -1,4 +1,4 @@
-**1949: ‘Red Star’ Says Labor Increases British Taxes**\
+**1949: ‘Red Star’ Says Labour Increases British Taxes**\
 `The Soviet Army newspaper report blamed the government’s foreign policy for the higher cost of living for the working class.`\
 https://nytimes.com/2024/03/25/world/red-star-labour-britain-taxes.html
 
