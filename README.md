@@ -22,7 +22,7 @@ https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-trump-kennedy-friends
 `Nearly everything in American politics is topsy-turvy.`\
 https://nytimes.com/2024/03/25/opinion/trump-biden-abbott-border.html
 
-**Energy Dept. Awards $6 Billion For Green Steel, Cement — Even Macaroni Factories**\
+**Energy Dept. Awards $6 Billion for Green Steel, Cement and Even Macaroni Factories**\
 `Industries produce 25 percent of America’s planet-warming emissions but so far have proved very hard to clean up. The Biden administration is trying.`\
 https://nytimes.com/2024/03/25/climate/energy-department-grants-decarbonize-industry.html
 
