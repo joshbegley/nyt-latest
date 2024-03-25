@@ -1,3 +1,7 @@
+**Watch: The Solo of ‘Solitude’**\
+`Click through as Joseph Gordon performs a section from Alexei Ratmansky’s new dance for New York City Ballet, a reaction to the horrors of the war in Ukraine.`\
+https://nytimes.com/interactive/2024/03/25/arts/dance/nyc-ballet-ukraine-solo.html
+
 **Stalling is a time-tested strategy that keeps working for Trump.**\
 `By Ben Protess, Alan Feuer, William K. Rashbaum and Maggie Haberman`\
 https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/stalling-is-a-time-tested-strategy-that-keeps-working-for-trump
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/this-was-sup
 **25trump-trial**\
 `Live Updates: Trump Seeks Again to Delay His Criminal Hush-Money Trial`\
 https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial
-
-**Can California Legislate Its Way to Happiness?**\
-`A first-in-the-nation committee hopes to figure out how to make the Golden State a joyous place.`\
-https://nytimes.com/2024/03/25/us/california-legislature-happiness.html
 
