@@ -1,3 +1,11 @@
+**New York Starts Distributing Debit Cards to Migrants, Despite Uproar**\
+`New York City officials on Monday began handing out debit cards to migrant families to pay for food and baby supplies at grocery stores.`\
+https://nytimes.com/2024/03/25/nyregion/migrants-debit-cards-nyc.html
+
+**What ‘KateGate’ Says About Royalty, Celebrity and Internet Culture**\
+`Many Americans used to view the Windsors with excitement, even admiration, beyond that shown to other public figures. Are they basically Kardashians now?`\
+https://nytimes.com/2024/03/25/fashion/princess-kate-middleton-kat.html
+
 **For All His Brilliance, Pollini Could Be a Supreme Romantic**\
 `His Chopin felt truly lyrical.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/pollini-chopin-brilliance
