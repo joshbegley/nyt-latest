@@ -1,40 +1,40 @@
-**‘I Committed to Comedy’: Kevin Hart Accepts Mark Twain Prize**\
-`The Kennedy Center honored the comedian, who said he “fell in love with the idea of comedy” as something he could do for the rest of his life.`\
-https://nytimes.com/video/arts/100000009378820/kevin-hart-mark-twain-prize.html
+**Biden, Promising Corporate Tax Increases, Has Cut Taxes Overall**\
+`President Biden has called for $5 trillion in new taxes on corporations and high earners. But his record so far is as a net tax cutter.`\
+https://nytimes.com/2024/03/25/us/politics/biden-taxes-cuts.html
 
-**Waiters Compete in Paris’ Revived Cafe Race**\
-`About 200 restaurant workers participated in the revived tradition, each one speeding through the course with a tray carrying a croissant, a glass of water and a coffee cup.`\
-https://nytimes.com/video/world/europe/100000009378806/paris-waiters-race.html
+**What’s the Point of a Tiny Evening Bag?**\
+`Our fashion critic explains why some may prefer clutches and small evening purses when more practical alternatives exist.`\
+https://nytimes.com/2024/03/25/style/micro-purse-handbags.html
 
-**Trump’s Options Dwindle as $454 Million Judgment Bears Down on Him**\
-`If no one will post a bond guaranteeing Donald Trump’s financial obligation, New York’s attorney general can start trying to seize his accounts and properties.`\
-https://nytimes.com/2024/03/25/nyregion/trump-bond-deadline-assets.html
+**83 Years After His Killing, a Black Soldier Gets an Army Funeral**\
+`Pvt. Albert King, shot dead by a white military police officer in Georgia in 1941, was blamed for his own death and buried in an unmarked grave.`\
+https://nytimes.com/2024/03/25/us/albert-king-black-soldier-memorial-georgia.html
 
-**New Group to Raise Money and Back Pro-Housing Candidates in New York**\
-`The group, Abundant New York, will work to elect candidates who support building more housing. It is yet another sign that the state’s housing politics are changing.`\
-https://nytimes.com/2024/03/25/nyregion/pro-development-housing-super-pac.html
+**$1.3 Million Homes in California**\
+`A two-bedroom condominium in San Francisco, a three-bedroom cottage in Los Angeles and a ranch house in San Luis Obispo.`\
+https://nytimes.com/2024/03/25/realestate/1-million-dollar-homes-california.html
 
-**Trump Seeks Again to Delay His Criminal Hush-Money Trial in Manhattan**\
-`The prosecution of Donald J. Trump is scheduled for April 15. The former president wants to delay it further as he seeks to regain the White House.`\
-https://nytimes.com/2024/03/25/nyregion/trump-hush-money-trial-manhattan.html
+**The Health Moonshot Biden Can Campaign On**\
+`A second term could be the opportunity to help Americans live longer again.`\
+https://nytimes.com/2024/03/25/opinion/life-span-biden-health.html
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/25/crosswords/connections-companion.html
+**This Is the Best Way for Biden to Talk About the Economy**\
+`He is defying 40 years of orthodoxy on the center-left.`\
+https://nytimes.com/2024/03/25/opinion/biden-trump-economy-election.html
 
-**Is Sam a Dangerous Dog? A Lawsuit Divides a Manhattan Building.**\
-`A suit claims that an emotional support dog named Sam attacked several tenants at an Upper West Side building and that the animal’s owners failed to take preventative action.`\
-https://nytimes.com/2024/03/25/nyregion/emotional-support-dog-attack-lawsuit.html
+**Allison Holker Is Dancing Through the Ups and Downs**\
+`The performer stopped dancing after the death of her husband, Stephen Boss. Now she’s a judge on “So You Think You Can Dance,” the show where they met.`\
+https://nytimes.com/2024/03/25/arts/dance/allison-holker-twitch-so-you-think-you-can-dance.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/03/25/crosswords/spelling-bee-forum.html
+**Could First-Time Buyers Lose Out Under New Commission Rules?**\
+`Economists and real estate experts warn that changes in how agents are paid could have unintended consequences for people buying their first homes.`\
+https://nytimes.com/2024/03/25/realestate/first-time-home-buyers-nar-commission.html
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/25/crosswords/wordle-review.html
+**A Complete Guide to Allergy Treatments**\
+`You’re sniffling, sneezing and staring at the pharmacy shelf. Here’s how to choose the right option for your symptoms.`\
+https://nytimes.com/2024/03/25/well/live/allergy-treatments-drugs.html
 
-**Israel’s defense minister will meet several senior U.S. officials.**\
-`By Aaron Boxerman, Julian E. Barnes and Iyad Abuheweila`\
-https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/israels-defense-minister-will-meet-several-senior-us-officials
+**How to Solve the Housing Crisis? Multiply by Two.**\
+`A small New Jersey town allows two homes on each lot, making room for more housing and more people.`\
+https://nytimes.com/2024/03/25/opinion/new-jersey-housing-crisis.html
 
