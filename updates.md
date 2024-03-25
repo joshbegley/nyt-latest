@@ -1,3 +1,7 @@
+**Challenging Abortion, Again**\
+`A Supreme Court suit against the F.D.A. could change the national abortion landscape.`\
+https://nytimes.com/2024/03/25/briefing/fda-supreme-court-abortion-pills.html
+
 **Trump Is Back in Court, and an ISIS Group Looks Beyond Russia Attack**\
 `Plus, a new golden age for shipwreck discoveries.`\
 https://nytimes.com/2024/03/25/podcasts/trump-sugar-russia.html
