@@ -6,9 +6,9 @@ https://nytimes.com/2024/03/25/us/politics/speaker-mike-johnson-ukraine.html
 `Security-camera footage obtained by The Times shows that Brazil’s former president spent two nights at the Hungarian Embassy in an apparent bid for asylum.`\
 https://nytimes.com/2024/03/25/world/americas/jair-bolsonaro-hungary-video.html
 
-**After the U.N. vote, Israel called off meetings with the U.S. about Rafah, as relations grow more tense.**\
-`By Aaron Boxerman`\
-https://nytimes.com/2024/03/25/world/middleeast/after-the-un-vote-israel-called-off-meetings-with-the-us-about-rafah-as-relations-grow-more-tense.html
+**Netanyahu Cancels U.S.-Israel Meetings on Rafah, to Protest U.N. Resolution**\
+`President Biden had requested the high-level meetings to discuss alternatives to a planned Israel ground offensive into Rafah, which U.S. officials say would cause mass casualties.`\
+https://nytimes.com/2024/03/25/world/middleeast/israel-ceasefire-rafah-netanyahu.html
 
 **X’s Lawsuit Against Anti-Hate Research Group Is Dismissed**\
 `Elon Musk’s social media company sued a group that exposed hate speech on the site, but a judge ruled that the suit was designed to punish speech.`\
