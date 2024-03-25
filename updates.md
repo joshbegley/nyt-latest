@@ -1,3 +1,7 @@
+**Four suspects from Tajikistan appeared in court with injuries and signs of having been beaten.**\
+`By Neil MacFarquhar`\
+https://nytimes.com/live/2024/03/24/world/moscow-russia-attack-news/four-suspects-from-tajikistan-appeared-in-court-with-injuries-and-signs-of-having-been-beaten
+
 **In Russia, Fingers Point Anywhere but at ISIS for Concert Hall Attack**\
 `Russian state media pushed the idea that Ukraine was the obvious culprit, but at least three of the four suspects charged on Sunday are from the Central Asian nation of Tajikistan.`\
 https://nytimes.com/2024/03/24/world/europe/russia-moscow-concert-hall-attack.html

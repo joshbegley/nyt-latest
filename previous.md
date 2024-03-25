@@ -1,3 +1,7 @@
+**Four suspects from Tajikistan appeared in court with injuries and signs of having been beaten.**\
+`By Neil MacFarquhar`\
+https://nytimes.com/live/2024/03/24/world/moscow-russia-attack-news/four-suspects-from-tajikistan-appeared-in-court-with-injuries-and-signs-of-having-been-beaten
+
 **In Russia, Fingers Point Anywhere but at ISIS for Concert Hall Attack**\
 `Russian state media pushed the idea that Ukraine was the obvious culprit, but at least three of the four suspects charged on Sunday are from the Central Asian nation of Tajikistan.`\
 https://nytimes.com/2024/03/24/world/europe/russia-moscow-concert-hall-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/nyregion/tammy-murphy-new-jersey-senate.html
 **Mountain Lion Kills Man and Injures His Brother in California**\
 `Since 1890, there have been fewer than 50 verified mountain lion attacks on humans in California, and of those, only six have been fatal, officials said.`\
 https://nytimes.com/2024/03/24/us/mountain-lion-attack-california.html
-
-**Screams and Blank Stares of Shock: Horror at a Russian Concert**\
-`The violent attack on Moscow’s outskirts on Friday was a scene of chaos and terror. “You’re just running to figure out where else to run,” one attendee said.`\
-https://nytimes.com/2024/03/24/world/europe/moscow-shooting-scene-survivors.html
 
