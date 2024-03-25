@@ -1,3 +1,7 @@
+**As Russia Mourns Attack Victims, State Media Intensifies Blame of Ukraine**\
+`News outlets were trying to counter U.S. assessments that the deadly assault on the concert hall near Moscow was the work of an offshoot of the Islamic State.`\
+https://nytimes.com/2024/03/25/world/europe/russia-moscow-concert-attack.html
+
 **Challenging Abortion, Again**\
 `A Supreme Court suit against the F.D.A. could change the national abortion landscape.`\
 https://nytimes.com/2024/03/25/briefing/fda-supreme-court-abortion-pills.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/books/review/blake-butler-molly.html
 **Biden, Promising Corporate Tax Increases, Has Cut Taxes Overall**\
 `President Biden has called for $5 trillion in new taxes on corporations and high earners. But his record so far is as a net tax cutter.`\
 https://nytimes.com/2024/03/25/us/politics/biden-taxes-cuts.html
-
-**What’s the Point of a Tiny Evening Bag?**\
-`Our fashion critic explains why some may prefer clutches and small evening purses when more practical alternatives exist.`\
-https://nytimes.com/2024/03/25/style/micro-purse-handbags.html
 

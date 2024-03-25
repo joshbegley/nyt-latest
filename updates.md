@@ -1,3 +1,7 @@
+**As Russia Mourns Attack Victims, State Media Intensifies Blame of Ukraine**\
+`News outlets were trying to counter U.S. assessments that the deadly assault on the concert hall near Moscow was the work of an offshoot of the Islamic State.`\
+https://nytimes.com/2024/03/25/world/europe/russia-moscow-concert-attack.html
+
 **Challenging Abortion, Again**\
 `A Supreme Court suit against the F.D.A. could change the national abortion landscape.`\
 https://nytimes.com/2024/03/25/briefing/fda-supreme-court-abortion-pills.html
