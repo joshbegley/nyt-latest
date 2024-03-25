@@ -1,15 +1,3 @@
-**Nicole Scherzinger to Star in ‘Sunset Boulevard’ on Broadway in the Fall**\
-`The revival, birthed in London, is a radically reimagined version of the 1993 Andrew Lloyd Webber musical based on a 1950 Billy Wilder film.`\
-https://nytimes.com/2024/03/25/theater/scherzinger-sunset-boulevard-broadway.html
-
-**Maps of the April 2024 Total Solar Eclipse**\
-`On April 8, the moon will cast a shadow across much of North America.`\
-https://nytimes.com/interactive/2024/science/total-solar-eclipse-maps-path.html
-
-**The U.N. Security Council is expected to consider another cease-fire resolution today.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/the-un-security-council-is-expected-to-consider-another-cease-fire-resolution-today
-
 **Here’s what to expect this week on the campaign trail.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/03/25/us/trump-biden-election/trump-biden-election
@@ -37,4 +25,16 @@ https://nytimes.com/2024/03/25/briefing/russia-attack-putin-india-sugar.html
 **Boeing C.E.O. to Step Down in Major Reshuffle at Embattled Plane Maker**\
 `The company’s chief executive, David Calhoun, said he would leave at the end of the year. Stan Deal, Boeing’s head of commercial planes, departed immediately.`\
 https://nytimes.com/2024/03/25/business/boeing-ceo-steps-down.html
+
+**How an Aid Group Built a Jetty to Get Food Into Gaza**\
+`Workers with World Central Kitchen were still finishing a jetty made from the rubble of bombed buildings when a ship arrived carrying the first aid into the enclave by sea in nearly two decades.`\
+https://nytimes.com/2024/03/25/world/middleeast/gaza-aid-ship-jetty.html
+
+**A Higher Bid, and National Security Concerns, for an Ammunition Maker**\
+`MNC Capital has raised its takeover offer for Vista Outdoor, the owner of Remington ammunition — and amplified worries about a non-American rival bidder.`\
+https://nytimes.com/2024/03/25/business/dealbook/vista-outdoor-ammunition-mnc-deal.html
+
+**The Long Case for Machine Shorthand**\
+`Court reporters and online communities are keeping stenography in style.`\
+https://nytimes.com/2024/03/25/crosswords/steno-online-court-reporters.html
 
