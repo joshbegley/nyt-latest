@@ -1,3 +1,11 @@
+**On London Stages, Uplifting Tales of Black Masculinity**\
+`“For Black Boys Who Have Considered Suicide When The Hue Gets Too Heavy” and “Red Pitch” offer generous portrayals of male bonding.`\
+https://nytimes.com/2024/03/25/theater/for-black-boys-who-have-considered-suicide-when-the-hue-gets-too-heavy.html
+
+**Israeli Soldier’s Video Undercuts Medic’s Account of Sexual Assault**\
+`Kibbutz residents concluded that two sisters killed on Oct. 7 were not victims of sexual violence.`\
+https://nytimes.com/2024/03/25/world/middleeast/video-sexual-assault-israel-kibbutz-hamas.html
+
 **A Timeline of Dave Calhoun’s Rocky Tenure at Boeing**\
 `The outgoing chief executive’s four years in the top job were marked by safety scandals, grounded planes, Covid and more grounded planes.`\
 https://nytimes.com/2024/03/25/business/boeing-ceo-dave-calhoun-timeline.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/25/world/middleeast/israel-ceasefire-rafah-netanyahu
 **X’s Lawsuit Against Anti-Hate Research Group Is Dismissed**\
 `Elon Musk’s social media company sued a group that exposed hate speech on the site, but a judge ruled that the suit was designed to punish speech.`\
 https://nytimes.com/2024/03/25/technology/x-lawsuit-dismissed.html
-
-**Ukrainians Shun Kremlin Suggestions Their Country Was Behind Moscow Attack**\
-`Officials and ordinary citizens say Russia is blaming Ukraine in order to shore up support for its war in Ukraine and escalate the fighting there.`\
-https://nytimes.com/2024/03/25/world/europe/moscow-terror-attack-ukraine.html
-
-**Who’s to Blame for Those Kate Middleton Conspiracies?**\
-`Kensington Palace is just the latest institution to discover that lying to the public will make people suspicious.`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/kate-middleton-russia-interference
 

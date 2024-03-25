@@ -1,3 +1,11 @@
+**On London Stages, Uplifting Tales of Black Masculinity**\
+`“For Black Boys Who Have Considered Suicide When The Hue Gets Too Heavy” and “Red Pitch” offer generous portrayals of male bonding.`\
+https://nytimes.com/2024/03/25/theater/for-black-boys-who-have-considered-suicide-when-the-hue-gets-too-heavy.html
+
+**Israeli Soldier’s Video Undercuts Medic’s Account of Sexual Assault**\
+`Kibbutz residents concluded that two sisters killed on Oct. 7 were not victims of sexual violence.`\
+https://nytimes.com/2024/03/25/world/middleeast/video-sexual-assault-israel-kibbutz-hamas.html
+
 **A Timeline of Dave Calhoun’s Rocky Tenure at Boeing**\
 `The outgoing chief executive’s four years in the top job were marked by safety scandals, grounded planes, Covid and more grounded planes.`\
 https://nytimes.com/2024/03/25/business/boeing-ceo-dave-calhoun-timeline.html
