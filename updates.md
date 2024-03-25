@@ -1,3 +1,7 @@
+**Waiters Compete in Paris’ Revived Cafe Race**\
+`About 200 restaurant workers participated in the revived tradition, each one speeding through the course with a tray carrying a croissant, a glass of water and a coffee cup.`\
+https://nytimes.com/video/world/europe/100000009378806/paris-waiters-race.html
+
 **Trump’s Options Dwindle as $454 Million Judgment Bears Down on Him**\
 `If no one will post a bond guaranteeing Donald Trump’s financial obligation, New York’s attorney general can start trying to seize his accounts and properties.`\
 https://nytimes.com/2024/03/25/nyregion/trump-bond-deadline-assets.html
