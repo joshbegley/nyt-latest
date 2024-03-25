@@ -1,3 +1,7 @@
+**A Higher Bid, and National Security Concerns, for an Ammunition Maker**\
+`MNC Capital has raised its takeover offer for Vista Outdoor, the owner of Remington ammunition — and amplified worries about a non-American rival bidder.`\
+https://nytimes.com/2024/03/25/business/dealbook/vista-outdoor-ammunition-mnc-deal.html
+
 **The Long Case for Machine Shorthand**\
 `Court reporters and online communities are keeping stenography in style.`\
 https://nytimes.com/2024/03/25/crosswords/steno-online-court-reporters.html

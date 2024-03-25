@@ -1,3 +1,7 @@
+**A Higher Bid, and National Security Concerns, for an Ammunition Maker**\
+`MNC Capital has raised its takeover offer for Vista Outdoor, the owner of Remington ammunition — and amplified worries about a non-American rival bidder.`\
+https://nytimes.com/2024/03/25/business/dealbook/vista-outdoor-ammunition-mnc-deal.html
+
 **The Long Case for Machine Shorthand**\
 `Court reporters and online communities are keeping stenography in style.`\
 https://nytimes.com/2024/03/25/crosswords/steno-online-court-reporters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/opinion/trump-biden-abbott-border.html
 **Energy Dept. Awards $6 Billion for Green Steel, Cement and Even Macaroni Factories**\
 `Industries produce 25 percent of America’s planet-warming emissions but so far have proved very hard to clean up. The Biden administration is trying.`\
 https://nytimes.com/2024/03/25/climate/energy-department-grants-decarbonize-industry.html
-
-**A Strip Mine Threatens a Natural Treasure in Georgia**\
-`The Okefenokee National Wildlife Refuge belongs to the planet. And we can still save it.`\
-https://nytimes.com/2024/03/25/opinion/okefenokee-strip-mine-georgia.html
 
