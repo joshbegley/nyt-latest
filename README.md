@@ -1,3 +1,7 @@
+**E.U. Takes Aim at Alphabet, Apple and Meta in Wide-Ranging Investigations**\
+`The inquiries signal the bloc’s intention to tightly enforce sweeping new competition rules that took effect this month.`\
+https://nytimes.com/2024/03/25/business/apple-facebook-google-eu-investigation.html
+
 **As Russia Mourns Attack Victims, State Media Intensifies Blame of Ukraine**\
 `News outlets were trying to counter U.S. assessments that the deadly assault on the concert hall near Moscow was the work of an offshoot of the Islamic State.`\
 https://nytimes.com/2024/03/25/world/europe/russia-moscow-concert-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/opinion/okefenokee-strip-mine-georgia.html
 **A Memoir of a Marriage Cut Short and the Secrets Left Behind**\
 `After his partner, Molly Brodak, died by suicide, Blake Butler found painful truths in her journals and personal items.`\
 https://nytimes.com/2024/03/25/books/review/blake-butler-molly.html
-
-**Biden, Promising Corporate Tax Increases, Has Cut Taxes Overall**\
-`President Biden has called for $5 trillion in new taxes on corporations and high earners. But his record so far is as a net tax cutter.`\
-https://nytimes.com/2024/03/25/us/politics/biden-taxes-cuts.html
 
