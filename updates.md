@@ -1,3 +1,7 @@
+**The hush-money trial may be the only one Trump faces before the election.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/the-hush-money-trial-may-be-the-only-one-trump-faces-before-the-election
+
 **American Jews, Liberalism and Zionism**\
 `Responses to a guest essay by Peter Beinart. Also: M.I.T. and the Gaza war; organ transplants; sexual brutality.`\
 https://nytimes.com/2024/03/25/opinion/us-jews-israel-liberalism-zionism.html
