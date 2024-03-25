@@ -1,3 +1,15 @@
+**This was supposed to be the start of Trump’s trial. A sudden document dump changed that.**\
+`By Ben Protess and William K. Rashbaum`\
+https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/this-was-supposed-to-be-the-start-of-trumps-trial-a-sudden-document-dump-changed-that
+
+**25trump-trial**\
+`Live Updates: Trump Seeks Again to Delay His Criminal Hush-Money Trial`\
+https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial
+
+**Can California Legislate Its Way to Happiness?**\
+`A first-in-the-nation committee hopes to figure out how to make the Golden State a joyous place.`\
+https://nytimes.com/2024/03/25/us/california-legislature-happiness.html
+
 **Monday Briefing**\
 `What the terrorist attack means for Russia.`\
 https://nytimes.com/2024/03/25/briefing/russia-attack-putin-india-sugar.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/25/business/apple-facebook-google-eu-investigation.h
 **As Russia Mourns Attack Victims, State Media Intensifies Blame of Ukraine**\
 `News outlets were trying to counter U.S. assessments that the deadly assault on the concert hall near Moscow was the work of an offshoot of the Islamic State.`\
 https://nytimes.com/2024/03/25/world/europe/russia-moscow-concert-attack.html
-
-**Challenging Abortion, Again**\
-`A Supreme Court suit against the F.D.A. could change the national abortion landscape.`\
-https://nytimes.com/2024/03/25/briefing/fda-supreme-court-abortion-pills.html
-
-**Trump Is Back in Court, and an ISIS Group Looks Beyond Russia Attack**\
-`Plus, a new golden age for shipwreck discoveries.`\
-https://nytimes.com/2024/03/25/podcasts/trump-sugar-russia.html
-
-**A Terrorist Attack in Russia**\
-`The tragedy in a Moscow suburb is a blow to Vladimir V. Putin, coming only days after his stage-managed election victory.`\
-https://nytimes.com/2024/03/25/podcasts/the-daily/moscow-russia-terrorist-attack.html
 
