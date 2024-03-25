@@ -1,3 +1,7 @@
+**F.D.A. Authorizes New Drug to Protect High-Risk Patients From Covid**\
+`Pemgarda, available in the coming weeks, is intended for immunocompromised people who are unlikely to mount an adequate response after vaccination.`\
+https://nytimes.com/2024/03/25/well/fda-covid-medicine-immunocompromised.html
+
 **Federal Agents Raid Sean Combs’s Residence in Los Angeles**\
 `In response to questions about Mr. Combs’s house, Homeland Security Investigations said the search was part of “an ongoing investigation.”`\
 https://nytimes.com/2024/03/25/arts/music/diddy-sean-combs-home-raided.html
