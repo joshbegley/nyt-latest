@@ -1,3 +1,7 @@
+**Why I Can’t Wait for the Sun to Go Dark**\
+`Solar eclipses reveal fascinating truths about space and our place in it.`\
+https://nytimes.com/2024/03/25/opinion/solar-eclipse-totality.html
+
 **A Trump Criminal Trial Really Could Start This Year**\
 `It’s fitting that the porn star hush-money case winds up going first.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/trump-criminal-case-hushmoney

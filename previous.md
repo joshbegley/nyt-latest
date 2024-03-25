@@ -1,3 +1,7 @@
+**Why I Can’t Wait for the Sun to Go Dark**\
+`Solar eclipses reveal fascinating truths about space and our place in it.`\
+https://nytimes.com/2024/03/25/opinion/solar-eclipse-totality.html
+
 **A Trump Criminal Trial Really Could Start This Year**\
 `It’s fitting that the porn star hush-money case winds up going first.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/trump-criminal-case-hushmoney
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/arts/television/x-men-97-beau-demayo.html
 **Trump Urges Israel to ‘Finish Up Your War’**\
 `The former president told an Israeli news outlet that images of destruction in Gaza were harming the country: “You’re losing a lot of the world.”`\
 https://nytimes.com/2024/03/25/us/politics/trump-israel-hamas-war.html
-
-**Videos and Online Profiles Link Suspects to Moscow Attack**\
-`Clothing and other details appear to show a connection between four suspects detained by Russia and the men who carried out the concert hall massacre of more than 130 people.`\
-https://nytimes.com/2024/03/25/world/europe/moscow-attack-suspects-russia-evidence.html
 
