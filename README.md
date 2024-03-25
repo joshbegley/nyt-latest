@@ -1,3 +1,7 @@
+**The U.N. Security Council is expected to consider another cease-fire resolution today.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/the-un-security-council-is-expected-to-consider-another-cease-fire-resolution-today
+
 **Here’s what to expect this week on the campaign trail.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/03/25/us/trump-biden-election/trump-biden-election
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/world/middleeast/gaza-aid-ship-jetty.html
 **A Higher Bid, and National Security Concerns, for an Ammunition Maker**\
 `MNC Capital has raised its takeover offer for Vista Outdoor, the owner of Remington ammunition — and amplified worries about a non-American rival bidder.`\
 https://nytimes.com/2024/03/25/business/dealbook/vista-outdoor-ammunition-mnc-deal.html
-
-**The Long Case for Machine Shorthand**\
-`Court reporters and online communities are keeping stenography in style.`\
-https://nytimes.com/2024/03/25/crosswords/steno-online-court-reporters.html
 
