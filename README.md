@@ -1,3 +1,7 @@
+**UNRWA claims Israel has banned it from bringing aid to northern Gaza.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/unrwa-claims-israel-has-banned-it-from-bringing-aid-to-northern-gaza
+
 **CBS Signs 5-Year Deal for Golden Globes**\
 `The agreement gives a much-needed shot in the arm for a program that was on life support not long ago.`\
 https://nytimes.com/2024/03/25/business/media/cbs-5-year-deal-golden-globes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/business/trump-media-trading-tuesday.html
 **The U.S. Is Using the Security Council to Pressure Israel**\
 `By not vetoing a cease-fire resolution, Biden is making clear his displeasure with Netanyahu.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-security-council-israel
-
-**On London Stages, Uplifting Tales of Black Masculinity**\
-`“For Black Boys Who Have Considered Suicide When The Hue Gets Too Heavy” and “Red Pitch” offer generous portrayals of male bonding.`\
-https://nytimes.com/2024/03/25/theater/for-black-boys-who-have-considered-suicide-when-the-hue-gets-too-heavy.html
 
