@@ -1,3 +1,11 @@
+**Use of Abortion Pills Has Risen Significantly Post Roe, Research Shows**\
+`Two new studies show fast-growing use of the pills on the eve of the Supreme Court’s consideration of a case seeking to ban or restrict them. Write a summary here and then click the Summary toggle above so it only shows up in the metadata field.`\
+https://nytimes.com/2024/03/25/health/abortion-pills.html
+
+**Inside a C.E.O.’s Bold Claims About Her Hot Fintech Start-Up**\
+`Amira Yahyaoui, a human rights activist, promoted the success of her student aid start-up, Mos. Some of her statements do not add up, according to internal data and people familiar with the company.`\
+https://nytimes.com/2024/03/25/technology/inside-a-ceos-bold-claims-about-her-hot-fintech-start-up.html
+
 **6 Books for Adults Living With A.D.H.D.**\
 `Psychiatrists, counselors and researchers shared their recommendations.`\
 https://nytimes.com/2024/03/25/well/mind/adult-adhd-books.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/03/25/arts/dance/nyc-ballet-ukraine-solo.ht
 **Stalling is a time-tested strategy that keeps working for Trump.**\
 `By Ben Protess, Alan Feuer, William K. Rashbaum and Maggie Haberman`\
 https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/stalling-is-a-time-tested-strategy-that-keeps-working-for-trump
-
-**Ariana Grande Holds Off Kacey Musgraves for a Second Week at No. 1**\
-`“Everything I Thought It Was,” Justin Timberlake’s first new album since “Man of the Woods” six years ago, opens in fourth place.`\
-https://nytimes.com/2024/03/25/arts/music/ariana-grande-kacey-musgraves-justin-timberlake-chart.html
-
-**Nicole Scherzinger to Star in ‘Sunset Boulevard’ on Broadway in the Fall**\
-`The revival, birthed in London, is a radically reimagined version of the 1993 Andrew Lloyd Webber musical based on a 1950 Billy Wilder film.`\
-https://nytimes.com/2024/03/25/theater/scherzinger-sunset-boulevard-broadway.html
 
