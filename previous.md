@@ -1,3 +1,11 @@
+**NBC News Faces Rebellion Over Hiring of Former Republican Party Chair**\
+`In extraordinary on-air remarks, Mika Brzezinski, Joe Scarborough and Chuck Todd questioned their own network’s decision to hire Ronna McDaniel as a political analyst.`\
+https://nytimes.com/2024/03/25/business/media/nbc-ronna-mcdaniel-rebellion.html
+
+**Tuesday Briefing: U.N. Voted for a Gaza Cease-Fire**\
+`Also, searching for Iceland’s northern lights.`\
+https://nytimes.com/2024/03/25/briefing/un-gaza-cease-fire-trump-criminal-trial-china-spying.html
+
 **Flaco, Central Park Owl, Died With High Levels of Rat Poison in System**\
 `A necropsy conducted by the Bronx Zoo found that Flaco also had a severe pigeon virus when he crashed into a Manhattan building.`\
 https://nytimes.com/2024/03/25/nyregion/flaco-owl-central-park-zoo-death-cause.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/25/business/tuff-torq-child-labor-fine.html
 **UNRWA claims Israel has banned it from bringing aid to northern Gaza.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/unrwa-claims-israel-has-banned-it-from-bringing-aid-to-northern-gaza
-
-**CBS Signs 5-Year Deal for Golden Globes**\
-`The agreement gives a much-needed shot in the arm for a program that was on life support not long ago.`\
-https://nytimes.com/2024/03/25/business/media/cbs-5-year-deal-golden-globes.html
-
-**What ‘KateGate’ Says About Royalty, Celebrity and Internet Culture**\
-`Many Americans used to view the Windsors with excitement, even admiration, beyond that shown to other public figures. Are they basically Kardashians now?`\
-https://nytimes.com/2024/03/25/fashion/princess-kate-middleton-kat.html
 
