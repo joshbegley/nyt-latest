@@ -1,3 +1,7 @@
+**UNRWA claims Israel has banned it from bringing aid to northern Gaza.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/unrwa-claims-israel-has-banned-it-from-bringing-aid-to-northern-gaza
+
 **CBS Signs 5-Year Deal for Golden Globes**\
 `The agreement gives a much-needed shot in the arm for a program that was on life support not long ago.`\
 https://nytimes.com/2024/03/25/business/media/cbs-5-year-deal-golden-globes.html
