@@ -1,3 +1,15 @@
+**After the U.N. vote, Israel called off meetings with the U.S. about Rafah, as relations grow more tense.**\
+`By Aaron Boxerman`\
+https://nytimes.com/2024/03/25/world/middleeast/after-the-un-vote-israel-called-off-meetings-with-the-us-about-rafah-as-relations-grow-more-tense.html
+
+**X’s Lawsuit Against Anti-Hate Research Group Is Dismissed**\
+`Elon Musk’s social media company sued a group that exposed hate speech on the site, but a judge ruled that the suit was designed to punish speech.`\
+https://nytimes.com/2024/03/25/technology/x-lawsuit-dismissed.html
+
+**Ukrainians Shun Kremlin Suggestions Their Country Was Behind Moscow Attack**\
+`Officials and ordinary citizens say Russia is blaming Ukraine in order to shore up support for its war in Ukraine and escalate the fighting there.`\
+https://nytimes.com/2024/03/25/world/europe/moscow-terror-attack-ukraine.html
+
 **Who’s to Blame for Those Kate Middleton Conspiracies?**\
 `Kensington Palace is just the latest institution to discover that lying to the public will make people suspicious.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/kate-middleton-russia-interference
