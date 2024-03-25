@@ -1,3 +1,7 @@
+**Word of the Day: jeer**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/25/word-of-the-day-jeer.html
+
 **What’s on TV This Week: ‘The Bachelor’ and ‘The Truth vs. Alex Jones’**\
 `Joey Graziadei hands out his final rose on ABC, and HBO airs a documentary about the trial of Alex Jones.`\
 https://nytimes.com/2024/03/25/arts/television/whats-on-tv-this-week-bachelor-truth-vs-alex-jones.html
