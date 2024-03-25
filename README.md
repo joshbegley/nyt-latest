@@ -1,3 +1,11 @@
+**U.N. Security Council Calls for Immediate Cease-Fire in Gaza as U.S. Abstains**\
+`The U.S. decision not to vote on the resolution drew criticism from Prime Minister Benjamin Netanyahu of Israel, who ordered a delegation to hold back from a planned trip to Washington.`\
+https://nytimes.com/2024/03/25/world/middleeast/un-security-council-gaza-ceasefire.html
+
+**Obamacare Is in Grave Danger, Again**\
+`Republicans seem determined to destroy the Affordable Care Act.`\
+https://nytimes.com/2024/03/25/opinion/trump-obamacare.html
+
 **Trump team takes sparring with Biden into vulgar territory.**\
 `The use of an expletive from a Trump campaign social media account on Monday reflects the coarsening of political discourse in the Trump era.`\
 https://nytimes.com/2024/03/25/us/politics/trump-bond-biden-social-media.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/19/opinion/thepoint/boeing-new-leadership
 **NBC News Faces Rebellion Over Hiring of Former Republican Party Chair**\
 `In extraordinary on-air remarks, Mika Brzezinski, Joe Scarborough and Nicolle Wallace questioned their own network’s decision to hire Ronna McDaniel as a political analyst.`\
 https://nytimes.com/2024/03/25/business/media/nbc-ronna-mcdaniel-rebellion.html
-
-**Tuesday Briefing: U.N. Voted for a Gaza Cease-Fire**\
-`Also, searching for Iceland’s northern lights.`\
-https://nytimes.com/2024/03/25/briefing/un-gaza-cease-fire-trump-criminal-trial-china-spying.html
-
-**Flaco, Central Park Owl, Died With High Levels of Rat Poison in System**\
-`A necropsy conducted by the Bronx Zoo found that life-threatening levels of rat poison and a severe pigeon virus contributed to Flaco’s death last month.`\
-https://nytimes.com/2024/03/25/nyregion/flaco-owl-central-park-zoo-death-cause.html
 
