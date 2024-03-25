@@ -1,3 +1,7 @@
+**Kevin Hart Receives the Mark Twain Prize for American Humor**\
+`The prolific comic was honored at the Kennedy Center for a 25-year career that has included movies, TV series and many live events.`\
+https://nytimes.com/2024/03/25/arts/kevin-hart-mark-twain-prize.html
+
 **ISIS Affiliate Linked to Moscow Attack Has Global Ambitions**\
 `The Islamic State in Khorasan is active in Afghanistan, Pakistan and Iran and has set its sights on Europe and beyond.`\
 https://nytimes.com/2024/03/25/us/politics/moscow-attack-isis.html
