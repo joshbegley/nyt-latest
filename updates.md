@@ -1,3 +1,11 @@
+**CBS Signs 5-Year Deal for Golden Globes**\
+`The agreement gives a much-needed shot in the arm for a program that was on life support not long ago.`\
+https://nytimes.com/2024/03/25/business/media/cbs-5-year-deal-golden-globes.html
+
+**What ‘KateGate’ Says About Royalty, Celebrity and Internet Culture**\
+`Many Americans used to view the Windsors with excitement, even admiration, beyond that shown to other public figures. Are they basically Kardashians now?`\
+https://nytimes.com/2024/03/25/fashion/princess-kate-middleton-kategate-internet.html
+
 **What ‘KateGate’ Says About Royalty, Celebrity and Internet Culture**\
 `Many Americans used to view the Windsors with excitement, even admiration, beyond that shown to other public figures. Are they basically Kardashians now?`\
 https://nytimes.com/2024/03/25/fashion/kategate-princess-catherine-royalty-interen.html
