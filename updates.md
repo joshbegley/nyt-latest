@@ -1,3 +1,7 @@
+**Flaco, Central Park Owl, Died With High Levels of Rat Poison in System**\
+`A necropsy conducted by the Bronx Zoo found that Flaco also had a severe pigeon virus when he crashed into a Manhattan building.`\
+https://nytimes.com/2024/03/25/nyregion/flaco-owl-central-park-zoo-death-cause.html
+
 **New York Starts Distributing Debit Cards to Migrants, Despite Uproar**\
 `New York City officials on Monday began handing out debit cards to migrant families to pay for food and baby supplies at grocery stores.`\
 https://nytimes.com/2024/03/25/nyregion/migrants-debit-cards-nyc.html
