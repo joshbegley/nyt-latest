@@ -1,3 +1,7 @@
+**How an Aid Group Built a Jetty to Get Food Into Gaza**\
+`Workers with World Central Kitchen were still finishing a jetty made from the rubble of bombed buildings when a ship arrived carrying the first aid into the enclave by sea in nearly two decades.`\
+https://nytimes.com/2024/03/25/world/middleeast/gaza-aid-ship-jetty.html
+
 **A Higher Bid, and National Security Concerns, for an Ammunition Maker**\
 `MNC Capital has raised its takeover offer for Vista Outdoor, the owner of Remington ammunition — and amplified worries about a non-American rival bidder.`\
 https://nytimes.com/2024/03/25/business/dealbook/vista-outdoor-ammunition-mnc-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-trump-kennedy-friends
 **Honorable vs. Dishonorable Is on the Ballot**\
 `Nearly everything in American politics is topsy-turvy.`\
 https://nytimes.com/2024/03/25/opinion/trump-biden-abbott-border.html
-
-**Energy Dept. Awards $6 Billion for Green Steel, Cement and Even Macaroni Factories**\
-`Industries produce 25 percent of America’s planet-warming emissions but so far have proved very hard to clean up. The Biden administration is trying.`\
-https://nytimes.com/2024/03/25/climate/energy-department-grants-decarbonize-industry.html
 
