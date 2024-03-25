@@ -1,3 +1,11 @@
+**What’s on TV This Week: ‘The Bachelor’ and ‘The Truth vs. Alex Jones’**\
+`Joey Graziadei hands out his final rose on ABC, and HBO airs a documentary about the trial of Alex Jones.`\
+https://nytimes.com/2024/03/25/arts/television/whats-on-tv-this-week-bachelor-truth-vs-alex-jones.html
+
+**Heavy Lies the Crown**\
+`The fascination of the monarchy will always be the tension between a venerable institution and the human beings like Catherine who are trapped inside it.`\
+https://nytimes.com/2024/03/25/opinion/kate-middleton-cancer-diagnosis.html
+
 **Quotation of the Day: Covid Malaise Is Killing Trust in U.S. Politics**\
 `Quotation of the Day for Monday, March 25, 2024.`\
 https://nytimes.com/2024/03/25/pageoneplus/quotation-of-the-day-covid-malaise-is-killing-trust-in-us-politics.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/24/world/moscow-russia-attack-news/four-suspect
 **In Russia, Fingers Point Anywhere but at ISIS for Concert Hall Attack**\
 `Russian state media pushed the idea that Ukraine was the obvious culprit, but at least three of the four suspects charged on Sunday are from the Central Asian nation of Tajikistan.`\
 https://nytimes.com/2024/03/24/world/europe/russia-moscow-concert-hall-attack.html
-
-**Shani Mott, Black Studies Scholar Who Examined Power All Around Her, Dies at 47**\
-`Her work looked at how race and power are experienced in America. In 2022, she filed a lawsuit saying that the appraisal of her home was undervalued because of bias.`\
-https://nytimes.com/2024/03/24/us/shani-mott-dead.html
-
-**Big Republican Donor Jeff Yass Owned Shares in Trump Media Merger Partner**\
-`The billionaire Wall Street financier is also a major investor in ByteDance, the Chinese parent company of TikTok, which faces a possible ban in the United States.`\
-https://nytimes.com/2024/03/24/business/jeff-yass-shares-trump-media-merger.html
 
