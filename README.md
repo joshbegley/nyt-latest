@@ -1,3 +1,7 @@
+**CBS Signs 5-Year Deal for Golden Globes**\
+`The agreement gives a much-needed shot in the arm for a program that was on life support not long ago.`\
+https://nytimes.com/2024/03/25/business/media/cbs-5-year-deal-golden-globes.html
+
 **What ‘KateGate’ Says About Royalty, Celebrity and Internet Culture**\
 `Many Americans used to view the Windsors with excitement, even admiration, beyond that shown to other public figures. Are they basically Kardashians now?`\
 https://nytimes.com/2024/03/25/fashion/princess-kate-middleton-kategate-internet.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-security-council-isra
 **On London Stages, Uplifting Tales of Black Masculinity**\
 `“For Black Boys Who Have Considered Suicide When The Hue Gets Too Heavy” and “Red Pitch” offer generous portrayals of male bonding.`\
 https://nytimes.com/2024/03/25/theater/for-black-boys-who-have-considered-suicide-when-the-hue-gets-too-heavy.html
-
-**Israeli Soldier’s Video Undercuts Medic’s Account of Sexual Assault**\
-`Kibbutz residents concluded that two sisters killed on Oct. 7 were not victims of sexual violence.`\
-https://nytimes.com/2024/03/25/world/middleeast/video-sexual-assault-israel-kibbutz-hamas.html
 
