@@ -1,3 +1,15 @@
+**Israel’s defense minister will meet several senior U.S. officials.**\
+`By Aaron Boxerman, Julian E. Barnes and Iyad Abuheweila`\
+https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/israels-defense-minister-will-meet-several-senior-us-officials
+
+**Missing people under Gaza’s rubble make for a shadow death toll.**\
+`By Vivian Yee, Iyad Abuheweila, Abu Bakr Bashir and Ameera Harouda`\
+https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/missing-people-under-gazas-rubble-make-for-a-shadow-death-toll
+
+**25mideast-crisis**\
+`Top Israeli Official Heads to Washington as Ties Fray`\
+https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news
+
 **Word of the Day: jeer**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/25/word-of-the-day-jeer.html
