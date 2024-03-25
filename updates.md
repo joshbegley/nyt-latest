@@ -1,3 +1,11 @@
+**Here’s what to expect this week on the campaign trail.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/03/25/us/trump-biden-election/trump-biden-election
+
+**Boeing C.E.O. to Step Down in Major Reshuffle at Embattled Plane Maker**\
+`The company’s chief executive, David Calhoun, said he would leave at the end of the year. Stan Deal, Boeing’s head of commercial planes, departed immediately.`\
+https://nytimes.com/2024/03/25/business/boeing-ceo-steps-down.html
+
 **1949: ‘Red Star’ Says Labour Increases British Taxes**\
 `The Soviet Army newspaper report blamed the government’s foreign policy for the higher cost of living for the working class.`\
 https://nytimes.com/2024/03/25/world/red-star-labour-britain-taxes.html
