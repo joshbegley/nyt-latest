@@ -1,3 +1,7 @@
+**Boeing C.E.O. to Step Down in Major Reshuffle at Embattled Plane Maker**\
+`The company’s chief executive, David Calhoun, said he would leave at the end of the year. Stan Deal, Boeing’s head of commercial planes, stepped down immediately.`\
+https://nytimes.com/2024/03/25/business/boeing-ceo-steps-down.html
+
 **How an Aid Group Built a Jetty to Get Food Into Gaza**\
 `Workers with World Central Kitchen were still finishing a jetty made from the rubble of bombed buildings when a ship arrived carrying the first aid into the enclave by sea in nearly two decades.`\
 https://nytimes.com/2024/03/25/world/middleeast/gaza-aid-ship-jetty.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/podcasts/the-daily/moscow-russia-terrorist-attack
 **Assessing Presidential Candidates by the Company They Keep**\
 `Are they surrounded by friends with an energetic vision, or by lawyers?`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-trump-kennedy-friends
-
-**Honorable vs. Dishonorable Is on the Ballot**\
-`Nearly everything in American politics is topsy-turvy.`\
-https://nytimes.com/2024/03/25/opinion/trump-biden-abbott-border.html
 

@@ -1,3 +1,7 @@
+**Boeing C.E.O. to Step Down in Major Reshuffle at Embattled Plane Maker**\
+`The company’s chief executive, David Calhoun, said he would leave at the end of the year. Stan Deal, Boeing’s head of commercial planes, stepped down immediately.`\
+https://nytimes.com/2024/03/25/business/boeing-ceo-steps-down.html
+
 **How an Aid Group Built a Jetty to Get Food Into Gaza**\
 `Workers with World Central Kitchen were still finishing a jetty made from the rubble of bombed buildings when a ship arrived carrying the first aid into the enclave by sea in nearly two decades.`\
 https://nytimes.com/2024/03/25/world/middleeast/gaza-aid-ship-jetty.html
