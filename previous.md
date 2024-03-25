@@ -1,3 +1,7 @@
+**Quotation of the Day: Covid Malaise Is Killing Trust in U.S. Politics**\
+`Quotation of the Day for Monday, March 25, 2024.`\
+https://nytimes.com/2024/03/25/pageoneplus/quotation-of-the-day-covid-malaise-is-killing-trust-in-us-politics.html
+
 **Kevin Hart Receives the Mark Twain Prize for American Humor**\
 `The prolific comic was honored at the Kennedy Center for a 25-year career that has included movies, TV series and many live events.`\
 https://nytimes.com/2024/03/25/arts/kevin-hart-mark-twain-prize.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/24/us/shani-mott-dead.html
 **Big Republican Donor Jeff Yass Owned Shares in Trump Media Merger Partner**\
 `The billionaire Wall Street financier is also a major investor in ByteDance, the Chinese parent company of TikTok, which faces a possible ban in the United States.`\
 https://nytimes.com/2024/03/24/business/jeff-yass-shares-trump-media-merger.html
-
-**Reef Composition**\
-`Shannon Rapp and Will Eisenberg make their New York Times collaboration debut.`\
-https://nytimes.com/2024/03/24/crosswords/daily-puzzle-2024-03-25.html
 
