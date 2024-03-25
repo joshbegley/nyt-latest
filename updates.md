@@ -1,3 +1,7 @@
+**Trump Can Post Smaller Bond in Civil Fraud Case, Court Rules**\
+`The former president must post a bond of $175 million within 10 days as he appeals the $454 million judgment against him.`\
+https://nytimes.com/2024/03/25/nyregion/trump-bond-reduced.html
+
 **Use of Abortion Pills Has Risen Significantly Post Roe, Research Shows**\
 `Two new studies show fast-growing use of the pills on the eve of the Supreme Court’s consideration of a case seeking to ban or restrict them. Write a summary here and then click the Summary toggle above so it only shows up in the metadata field.`\
 https://nytimes.com/2024/03/25/health/abortion-pills.html
