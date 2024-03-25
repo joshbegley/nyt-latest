@@ -1,3 +1,7 @@
+**Flaco, Central Park Owl, Died With High Levels of Rat Poison in System**\
+`A necropsy conducted by the Bronx Zoo found that life-threatening levels of rat poison and a severe pigeon virus contributed to Flaco’s death last month.`\
+https://nytimes.com/2024/03/25/nyregion/flaco-owl-central-park-zoo-death-cause.html
+
 **Federal Agents Raid Homes Tied to Sean Combs in Los Angeles and Miami**\
 `In response to questions about Mr. Combs’s residences, Homeland Security Investigations said the searches were part of “an ongoing investigation.”`\
 https://nytimes.com/2024/03/25/arts/music/diddy-sean-combs-home-raided.html
