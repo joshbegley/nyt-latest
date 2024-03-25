@@ -1,3 +1,7 @@
+**Trump Is Back in Court, and an ISIS Group Looks Beyond Russia Attack**\
+`Plus, a new golden age for shipwreck discoveries.`\
+https://nytimes.com/2024/03/25/podcasts/trump-sugar-russia.html
+
 **A Terrorist Attack in Russia**\
 `The tragedy in a Moscow suburb is a blow to Vladimir V. Putin, coming only days after his stage-managed election victory.`\
 https://nytimes.com/2024/03/25/podcasts/the-daily/moscow-russia-terrorist-attack.html
