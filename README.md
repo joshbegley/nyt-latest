@@ -1,3 +1,7 @@
+**New York Starts Distributing Debit Cards to Migrants, Despite Uproar**\
+`New York City officials on Monday began handing out debit cards to migrant families to pay for food and baby supplies at grocery stores.`\
+https://nytimes.com/2024/03/25/nyregion/migrants-debit-cards-nyc.html
+
 **For All His Brilliance, Pollini Could Be a Supreme Romantic**\
 `His Chopin felt truly lyrical.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/pollini-chopin-brilliance
@@ -28,13 +32,9 @@ https://nytimes.com/2024/03/25/business/media/cbs-5-year-deal-golden-globes.html
 
 **What ‘KateGate’ Says About Royalty, Celebrity and Internet Culture**\
 `Many Americans used to view the Windsors with excitement, even admiration, beyond that shown to other public figures. Are they basically Kardashians now?`\
-https://nytimes.com/2024/03/25/fashion/princess-kate-middleton-kategate-internet.html
+https://nytimes.com/2024/03/25/fashion/princess-kate-middleton-kat.html
 
 **The Encounter That Put the Pianist Kelly Moran on an Unexpected Path**\
 `The 36-year-old musician helped introduce the prepared piano to fresh audiences. Amid personal upheaval, she abandoned it and found a new voice.`\
 https://nytimes.com/2024/03/25/arts/music/kelly-moran-moves-in-the-field.html
-
-**Chick-fil-A Modifies Its ‘No Antibiotic’ Chicken Policy**\
-`The fast food restaurant chain will continue to bar the use of antibiotics used to treat people but will permit the use of animal antibiotics.`\
-https://nytimes.com/2024/03/25/business/chick-fil-a-antibiotic-chicken.html
 
