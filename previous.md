@@ -16,7 +16,7 @@ https://nytimes.com/interactive/2024/science/total-solar-eclipse-maps-path.html
 
 **The U.N. Security Council is expected to consider another cease-fire resolution today.**\
 `By Aaron Boxerman`\
-https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/the-un-security-council-is-expected-to-consider-another-cease-fire-resolution-today
+https://nytimes.com/2024/03/25/world/middleeast/un-cease-fire-resolution-gaza-israel.html
 
 **Here’s what to expect this week on the campaign trail.**\
 `By Maggie Astor`\

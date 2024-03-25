@@ -1,3 +1,7 @@
+**The U.N. Security Council is expected to consider another cease-fire resolution today.**\
+`By Aaron Boxerman`\
+https://nytimes.com/2024/03/25/world/middleeast/un-cease-fire-resolution-gaza-israel.html
+
 **Stalling is a time-tested strategy that keeps working for Trump.**\
 `By Ben Protess, Alan Feuer, William K. Rashbaum and Maggie Haberman`\
 https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/stalling-is-a-time-tested-strategy-that-keeps-working-for-trump
