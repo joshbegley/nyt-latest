@@ -1,3 +1,7 @@
+**Judge Takes One of Trump’s Lawyers, Todd Blanche, To Task**\
+`During the first hour of a hearing on a possible delay or even a dismissal of the criminal trial facing his client, Mr. Blanche faced withering questioning from the trial’s judge, Juan M. Merchan.`\
+https://nytimes.com/2024/03/25/nyregion/todd-blanche-lawyer-trump.html
+
 **Black Couple Who Said an Appraisal of Their Home Was Biased Settle Lawsuit**\
 `Dr. Nathan Connolly and the estate of Dr. Shani Mott, who recently died, will receive a payment from their mortgage lender, which also agreed to several policy changes to discourage discrimination.`\
 https://nytimes.com/2024/03/25/realestate/racial-bias-appraisal-settlement.html

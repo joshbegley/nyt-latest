@@ -1,3 +1,7 @@
+**Judge Takes One of Trump’s Lawyers, Todd Blanche, To Task**\
+`During the first hour of a hearing on a possible delay or even a dismissal of the criminal trial facing his client, Mr. Blanche faced withering questioning from the trial’s judge, Juan M. Merchan.`\
+https://nytimes.com/2024/03/25/nyregion/todd-blanche-lawyer-trump.html
+
 **Black Couple Who Said an Appraisal of Their Home Was Biased Settle Lawsuit**\
 `Dr. Nathan Connolly and the estate of Dr. Shani Mott, who recently died, will receive a payment from their mortgage lender, which also agreed to several policy changes to discourage discrimination.`\
 https://nytimes.com/2024/03/25/realestate/racial-bias-appraisal-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/well/mind/adult-adhd-books.html
 **Spicy Tofu and Mushroom Mazemen; Chicken Koftas With Lime Couscous**\
 `And plenty more minimum-effort, maximum-rewards dinner ideas.`\
 https://nytimes.com/2024/03/25/dining/spicy-tofu-and-mushroom-mazemen-chicken-koftas-with-lime-couscous.html
-
-**Do You Know These Novels and Their Recent Television Adaptations?**\
-`Try this short literary quiz highlighting books written by women and adapted into streaming shows within the past few years.`\
-https://nytimes.com/interactive/2024/03/25/books/review/womens-fiction-adaptations.html
 
