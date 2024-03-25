@@ -1,3 +1,23 @@
+**Assessing Presidential Candidates by the Company They Keep**\
+`Are they surrounded by friends with an energetic vision, or by lawyers?`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-trump-kennedy-friends
+
+**Honorable vs. Dishonorable Is on the Ballot**\
+`Nearly everything in American politics is topsy-turvy.`\
+https://nytimes.com/2024/03/25/opinion/trump-biden-abbott-border.html
+
+**Energy Dept. Awards $6 Billion For Green Steel, Cement — Even Macaroni Factories**\
+`Industries produce 25 percent of America’s planet-warming emissions but so far have proved very hard to clean up. The Biden administration is trying.`\
+https://nytimes.com/2024/03/25/climate/energy-department-grants-decarbonize-industry.html
+
+**A Strip Mine Threatens a Natural Treasure in Georgia**\
+`The Okefenokee National Wildlife Refuge belongs to the planet. And we can still save it.`\
+https://nytimes.com/2024/03/25/opinion/okefenokee-strip-mine-georgia.html
+
+**A Memoir of a Marriage Cut Short and the Secrets Left Behind**\
+`After his partner, Molly Brodak, died by suicide, Blake Butler found painful truths in her journals and personal items.`\
+https://nytimes.com/2024/03/25/books/review/blake-butler-molly.html
+
 **Biden, Promising Corporate Tax Increases, Has Cut Taxes Overall**\
 `President Biden has called for $5 trillion in new taxes on corporations and high earners. But his record so far is as a net tax cutter.`\
 https://nytimes.com/2024/03/25/us/politics/biden-taxes-cuts.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/03/25/realestate/1-million-dollar-homes-california.html
 **The Health Moonshot Biden Can Campaign On**\
 `A second term could be the opportunity to help Americans live longer again.`\
 https://nytimes.com/2024/03/25/opinion/life-span-biden-health.html
-
-**This Is the Best Way for Biden to Talk About the Economy**\
-`He is defying 40 years of orthodoxy on the center-left.`\
-https://nytimes.com/2024/03/25/opinion/biden-trump-economy-election.html
-
-**Allison Holker Is Dancing Through the Ups and Downs**\
-`The performer stopped dancing after the death of her husband, Stephen Boss. Now she’s a judge on “So You Think You Can Dance,” the show where they met.`\
-https://nytimes.com/2024/03/25/arts/dance/allison-holker-twitch-so-you-think-you-can-dance.html
-
-**Could First-Time Buyers Lose Out Under New Commission Rules?**\
-`Economists and real estate experts warn that changes in how agents are paid could have unintended consequences for people buying their first homes.`\
-https://nytimes.com/2024/03/25/realestate/first-time-home-buyers-nar-commission.html
-
-**A Complete Guide to Allergy Treatments**\
-`You’re sniffling, sneezing and staring at the pharmacy shelf. Here’s how to choose the right option for your symptoms.`\
-https://nytimes.com/2024/03/25/well/live/allergy-treatments-drugs.html
-
-**How to Solve the Housing Crisis? Multiply by Two.**\
-`A small New Jersey town allows two homes on each lot, making room for more housing and more people.`\
-https://nytimes.com/2024/03/25/opinion/new-jersey-housing-crisis.html
 
