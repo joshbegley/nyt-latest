@@ -1,3 +1,11 @@
+**Vowing the U.S. Will ‘Do Our Job,’ Johnson Searches for a Path on Ukraine**\
+`The Republican speaker, with his job on the line, has privately told people he will make sure the House moves to assist Ukraine, a step that many members of his party oppose.`\
+https://nytimes.com/2024/03/25/us/politics/speaker-mike-johnson-ukraine.html
+
+**Netanyahu Cancels U.S.-Israel Meetings on Rafah, to Protest U.N. Resolution**\
+`President Biden had requested the high-level meetings to discuss alternatives to a planned Israel ground offensive into Rafah, which U.S. officials say would cause mass casualties.`\
+https://nytimes.com/2024/03/25/world/middleeast/israel-ceasefire-rafah-netanyahu.html
+
 **Video: Bolsonaro, Facing Investigations, Hid at Hungarian Embassy**\
 `Security-camera footage obtained by The Times shows that Brazil’s former president spent two nights at the Hungarian Embassy in an apparent bid for asylum.`\
 https://nytimes.com/2024/03/25/world/americas/jair-bolsonaro-hungary-video.html
