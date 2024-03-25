@@ -1,3 +1,23 @@
+**Stalling is a time-tested strategy that keeps working for Trump.**\
+`By Ben Protess, Alan Feuer, William K. Rashbaum and Maggie Haberman`\
+https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/stalling-is-a-time-tested-strategy-that-keeps-working-for-trump
+
+**Ariana Grande Holds Off Kacey Musgraves for a Second Week at No. 1**\
+`“Everything I Thought It Was,” Justin Timberlake’s first new album since “Man of the Woods” six years ago, opens in fourth place.`\
+https://nytimes.com/2024/03/25/arts/music/ariana-grande-kacey-musgraves-justin-timberlake-chart.html
+
+**Nicole Scherzinger to Star in ‘Sunset Boulevard’ on Broadway in the Fall**\
+`The revival, birthed in London, is a radically reimagined version of the 1993 Andrew Lloyd Webber musical based on a 1950 Billy Wilder film.`\
+https://nytimes.com/2024/03/25/theater/scherzinger-sunset-boulevard-broadway.html
+
+**Maps of the April 2024 Total Solar Eclipse**\
+`On April 8, the moon will cast a shadow across much of North America.`\
+https://nytimes.com/interactive/2024/science/total-solar-eclipse-maps-path.html
+
+**The U.N. Security Council is expected to consider another cease-fire resolution today.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/the-un-security-council-is-expected-to-consider-another-cease-fire-resolution-today
+
 **Here’s what to expect this week on the campaign trail.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/03/25/us/trump-biden-election/trump-biden-election
