@@ -1,3 +1,15 @@
+**6 Books for Adults Living With A.D.H.D.**\
+`Psychiatrists, counselors and researchers shared their recommendations.`\
+https://nytimes.com/2024/03/25/well/mind/adult-adhd-books.html
+
+**Spicy Tofu and Mushroom Mazemen; Chicken Koftas With Lime Couscous**\
+`And plenty more minimum-effort, maximum-rewards dinner ideas.`\
+https://nytimes.com/2024/03/25/dining/spicy-tofu-and-mushroom-mazemen-chicken-koftas-with-lime-couscous.html
+
+**Do You Know These Novels and Their Recent Television Adaptations?**\
+`Try this short literary quiz highlighting books written by women and adapted into streaming shows within the past few years.`\
+https://nytimes.com/interactive/2024/03/25/books/review/womens-fiction-adaptations.html
+
 **U.K. to Accuse China of Cyberattacks Targeting Voter Data and Lawmakers**\
 `The British government believes China has overseen two separate hacking campaigns, including one that yielded information from 40 million voters.`\
 https://nytimes.com/2024/03/25/world/europe/uk-china-cyberattack-hacking.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/25/arts/music/ariana-grande-kacey-musgraves-justin-t
 **Nicole Scherzinger to Star in ‘Sunset Boulevard’ on Broadway in the Fall**\
 `The revival, birthed in London, is a radically reimagined version of the 1993 Andrew Lloyd Webber musical based on a 1950 Billy Wilder film.`\
 https://nytimes.com/2024/03/25/theater/scherzinger-sunset-boulevard-broadway.html
-
-**Maps of the April 2024 Total Solar Eclipse**\
-`On April 8, the moon will cast a shadow across much of North America.`\
-https://nytimes.com/interactive/2024/science/total-solar-eclipse-maps-path.html
-
-**The United States, after vetoing earlier resolutions, abstained.**\
-`Security Council is expected to consider a draft resolution on Monday morning that “demands an immediate cease-fire for the month of Ramadan,” three diplomats said, as well as the unconditional release of hostages held in Gaza, just days after a resolution from the United States failed following vetoes from Russia and China.`\
-https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/un-cease-fire-resolution-gaza-israel
-
-**Here’s what to expect this week on the campaign trail.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/03/25/us/trump-biden-election/trump-biden-election
 
