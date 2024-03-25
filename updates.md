@@ -1,3 +1,11 @@
+**U.N. Security Council Calls for Immediate Cease-Fire in Gaza as U.S. Abstains**\
+`The U.S. decision not to vote on the resolution drew criticism from Prime Minister Benjamin Netanyahu of Israel, who ordered a delegation to hold back from a planned trip to Washington.`\
+https://nytimes.com/2024/03/25/world/middleeast/un-security-council-gaza-ceasefire.html
+
+**Obamacare Is in Grave Danger, Again**\
+`Republicans seem determined to destroy the Affordable Care Act.`\
+https://nytimes.com/2024/03/25/opinion/trump-obamacare.html
+
 **Trump team takes sparring with Biden into vulgar territory.**\
 `The use of an expletive from a Trump campaign social media account on Monday reflects the coarsening of political discourse in the Trump era.`\
 https://nytimes.com/2024/03/25/us/politics/trump-bond-biden-social-media.html
