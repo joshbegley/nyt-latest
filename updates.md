@@ -1,3 +1,7 @@
+**Energy Dept. Awards $6 Billion for Green Steel, Cement and Even Macaroni Factories**\
+`Industries produce 25 percent of America’s planet-warming emissions but so far have proved very hard to clean up. The Biden administration is trying.`\
+https://nytimes.com/2024/03/25/climate/energy-department-grants-decarbonize-industry.html
+
 **As Russia Mourns Attack Victims, State Media Intensifies Blame of Ukraine**\
 `News outlets were trying to counter U.S. assessments that the deadly assault on the concert hall near Moscow was the work of an offshoot of the Islamic State.`\
 https://nytimes.com/2024/03/25/world/europe/russia-moscow-concert-attack.html
