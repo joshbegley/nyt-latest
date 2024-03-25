@@ -1,3 +1,7 @@
+**Who Are the RFK Jr. Voters?**\
+`“He’s outspoken. As far as I know, he’s not crooked.”`\
+https://nytimes.com/2024/03/25/us/politics/rfk-jr-voters.html
+
 **F.D.A. Authorizes New Drug to Protect High-Risk Patients From Covid**\
 `Pemgarda, available in the coming weeks, is intended for immunocompromised people who are unlikely to mount an adequate response after vaccination.`\
 https://nytimes.com/2024/03/25/well/fda-covid-medicine-immunocompromised.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/nyregion/flaco-owl-central-park-zoo-death-cause.h
 **New York Starts Distributing Debit Cards to Migrants, Despite Uproar**\
 `New York City officials on Monday began handing out debit cards to migrant families to pay for food and baby supplies at grocery stores.`\
 https://nytimes.com/2024/03/25/nyregion/migrants-debit-cards-nyc.html
-
-**For All His Brilliance, Pollini Could Be a Supreme Romantic**\
-`His Chopin felt truly lyrical.`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/pollini-chopin-brilliance
 

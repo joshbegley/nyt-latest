@@ -1,3 +1,7 @@
+**Who Are the RFK Jr. Voters?**\
+`“He’s outspoken. As far as I know, he’s not crooked.”`\
+https://nytimes.com/2024/03/25/us/politics/rfk-jr-voters.html
+
 **Flaco, Central Park Owl, Died With High Levels of Rat Poison in System**\
 `A necropsy conducted by the Bronx Zoo found that life-threatening levels of rat poison and a severe pigeon virus contributed to Flaco’s death last month.`\
 https://nytimes.com/2024/03/25/nyregion/flaco-owl-central-park-zoo-death-cause.html
