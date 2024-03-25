@@ -1,3 +1,11 @@
+**Federal Agents Raid Homes Tied to Sean Combs in Los Angeles and Miami**\
+`In response to questions about Mr. Combs’s residences, Homeland Security Investigations said the searches were part of “an ongoing investigation.”`\
+https://nytimes.com/2024/03/25/arts/music/diddy-sean-combs-home-raided.html
+
+**Lisa Lane, Chess Champion Whose Reign Was Meteoric, Dies at 90**\
+`She was the first chess player to appear on the cover of Sports Illustrated. But people focused more on her looks than on her ability.`\
+https://nytimes.com/2024/03/25/us/lisa-lane-dead.html
+
 **F.D.A. Authorizes New Drug to Protect High-Risk Patients From Covid**\
 `Pemgarda, available in the coming weeks, is intended for immunocompromised people who are unlikely to mount an adequate response after vaccination.`\
 https://nytimes.com/2024/03/25/well/fda-covid-medicine-immunocompromised.html

@@ -2,15 +2,15 @@
 `Pemgarda, available in the coming weeks, is intended for immunocompromised people who are unlikely to mount an adequate response after vaccination.`\
 https://nytimes.com/2024/03/25/well/fda-covid-medicine-immunocompromised.html
 
-**Federal Agents Raid Sean Combs’s Residence in Los Angeles**\
-`In response to questions about Mr. Combs’s house, Homeland Security Investigations said the search was part of “an ongoing investigation.”`\
+**Federal Agents Raid Homes Tied to Sean Combs in Los Angeles and Miami**\
+`In response to questions about Mr. Combs’s residences, Homeland Security Investigations said the searches were part of “an ongoing investigation.”`\
 https://nytimes.com/2024/03/25/arts/music/diddy-sean-combs-home-raided.html
 
 **Trump Dodged Financial Ruin, but Failed to Delay His Trial**\
 `Also, the U.N. passed a resolution for an immediate cease-fire. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/03/25/briefing/trump-bond-united-nations-resolution-dude-history.html
 
-**Lisa Lane, Chess Champion Whose Reign Was Meteoric, Dies at 86**\
+**Lisa Lane, Chess Champion Whose Reign Was Meteoric, Dies at 90**\
 `She was the first chess player to appear on the cover of Sports Illustrated. But people focused more on her looks than on her ability.`\
 https://nytimes.com/2024/03/25/us/lisa-lane-dead.html
 
