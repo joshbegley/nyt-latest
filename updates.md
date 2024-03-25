@@ -1,3 +1,19 @@
+**ISIS Affiliate Linked to Moscow Attack Has Global Ambitions**\
+`The Islamic State in Khorasan is active in Afghanistan, Pakistan and Iran and has set its sights on Europe and beyond.`\
+https://nytimes.com/2024/03/25/us/politics/moscow-attack-isis.html
+
+**To Live Past 100, Mangia a Lot Less: Italian Expert’s Ideas on Aging**\
+`Valter Longo, who wants to live to a healthy 120 or 130, sees the key to longevity in diet — legumes and fish — and faux fasting.`\
+https://nytimes.com/2024/03/25/world/europe/italy-aging-valter-longo.html
+
+**Has China Lost Its Taste for the iPhone?**\
+`Apple has deep ties in the country, its second-largest market. But there are signs that Chinese consumers are becoming a harder sell.`\
+https://nytimes.com/2024/03/25/business/china-apple-iphones.html
+
+**Germany’s Solar Panel Industry, Once a Leader, Is Getting Squeezed**\
+`Domestic manufacturers are caught between China’s low prices and U.S. protectionist policies, even as demand increases.`\
+https://nytimes.com/2024/03/25/business/germany-solar-panels-china-protectionism.html
+
 **Four suspects from Tajikistan appeared in court with injuries and signs of having been beaten.**\
 `By Neil MacFarquhar`\
 https://nytimes.com/live/2024/03/24/world/moscow-russia-attack-news/four-suspects-from-tajikistan-appeared-in-court-with-injuries-and-signs-of-having-been-beaten
