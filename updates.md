@@ -1,3 +1,15 @@
+**6 Books for Adults Living With A.D.H.D.**\
+`Psychiatrists, counselors and researchers shared their recommendations.`\
+https://nytimes.com/2024/03/25/well/mind/adult-adhd-books.html
+
+**Spicy Tofu and Mushroom Mazemen; Chicken Koftas With Lime Couscous**\
+`And plenty more minimum-effort, maximum-rewards dinner ideas.`\
+https://nytimes.com/2024/03/25/dining/spicy-tofu-and-mushroom-mazemen-chicken-koftas-with-lime-couscous.html
+
+**Do You Know These Novels and Their Recent Television Adaptations?**\
+`Try this short literary quiz highlighting books written by women and adapted into streaming shows within the past few years.`\
+https://nytimes.com/interactive/2024/03/25/books/review/womens-fiction-adaptations.html
+
 **The United States, after vetoing earlier resolutions, abstained.**\
 `Security Council is expected to consider a draft resolution on Monday morning that “demands an immediate cease-fire for the month of Ramadan,” three diplomats said, as well as the unconditional release of hostages held in Gaza, just days after a resolution from the United States failed following vetoes from Russia and China.`\
 https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/un-cease-fire-resolution-gaza-israel
