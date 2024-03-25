@@ -1,3 +1,7 @@
+**The Long Case for Machine Shorthand**\
+`Court reporters and online communities are keeping stenography in style.`\
+https://nytimes.com/2024/03/25/crosswords/steno-online-court-reporters.html
+
 **E.U. Takes Aim at Alphabet, Apple and Meta in Wide-Ranging Investigations**\
 `The inquiries signal the bloc’s intention to tightly enforce sweeping new competition rules that took effect this month.`\
 https://nytimes.com/2024/03/25/business/apple-facebook-google-eu-investigation.html

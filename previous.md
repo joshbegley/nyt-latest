@@ -1,3 +1,7 @@
+**The Long Case for Machine Shorthand**\
+`Court reporters and online communities are keeping stenography in style.`\
+https://nytimes.com/2024/03/25/crosswords/steno-online-court-reporters.html
+
 **E.U. Takes Aim at Alphabet, Apple and Meta in Wide-Ranging Investigations**\
 `The inquiries signal the bloc’s intention to tightly enforce sweeping new competition rules that took effect this month.`\
 https://nytimes.com/2024/03/25/business/apple-facebook-google-eu-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/climate/energy-department-grants-decarbonize-indu
 **A Strip Mine Threatens a Natural Treasure in Georgia**\
 `The Okefenokee National Wildlife Refuge belongs to the planet. And we can still save it.`\
 https://nytimes.com/2024/03/25/opinion/okefenokee-strip-mine-georgia.html
-
-**A Memoir of a Marriage Cut Short and the Secrets Left Behind**\
-`After his partner, Molly Brodak, died by suicide, Blake Butler found painful truths in her journals and personal items.`\
-https://nytimes.com/2024/03/25/books/review/blake-butler-molly.html
 
