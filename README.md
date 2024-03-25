@@ -1,3 +1,7 @@
+**For All His Brilliance, Pollini Could Be a Supreme Romantic**\
+`His Chopin felt truly lyrical.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/pollini-chopin-brilliance
+
 **Read a Ruling Lowering Trump’s Bond in the Civil Fraud Case**\
 `A New York appeals court ruled on Monday that it would accept a much smaller bond of $175 million in the civil fraud case against former President Donald J.`\
 https://nytimes.com/interactive/2024/03/25/nyregion/trump-bond-civil-fraud-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/arts/music/kelly-moran-moves-in-the-field.html
 **Chick-fil-A Modifies Its ‘No Antibiotic’ Chicken Policy**\
 `The fast food restaurant chain will continue to bar the use of antibiotics used to treat people but will permit the use of animal antibiotics.`\
 https://nytimes.com/2024/03/25/business/chick-fil-a-antibiotic-chicken.html
-
-**‘X-Men’ Is Back, but a Key Member Is Missing**\
-`The animated Disney+ revival series “X-Men ’97,” has faced questions after its showrunner was mysteriously fired just ahead of the premiere.`\
-https://nytimes.com/2024/03/25/arts/television/x-men-97-beau-demayo.html
 
