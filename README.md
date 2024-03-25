@@ -1,3 +1,7 @@
+**Challenging Abortion, Again**\
+`A Supreme Court suit against the F.D.A. could change the national abortion landscape.`\
+https://nytimes.com/2024/03/25/briefing/fda-supreme-court-abortion-pills.html
+
 **Trump Is Back in Court, and an ISIS Group Looks Beyond Russia Attack**\
 `Plus, a new golden age for shipwreck discoveries.`\
 https://nytimes.com/2024/03/25/podcasts/trump-sugar-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/us/politics/biden-taxes-cuts.html
 **What’s the Point of a Tiny Evening Bag?**\
 `Our fashion critic explains why some may prefer clutches and small evening purses when more practical alternatives exist.`\
 https://nytimes.com/2024/03/25/style/micro-purse-handbags.html
-
-**83 Years After His Killing, a Black Soldier Gets an Army Funeral**\
-`Pvt. Albert King, shot dead by a white military police officer in Georgia in 1941, was blamed for his own death and buried in an unmarked grave.`\
-https://nytimes.com/2024/03/25/us/albert-king-black-soldier-memorial-georgia.html
 
