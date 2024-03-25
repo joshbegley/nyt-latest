@@ -1,3 +1,11 @@
+**Trump’s Multibillion-Dollar Social Media Company Will Start Trading on Tuesday**\
+`Trump Media & Technology Group completed a deal to merge with Digital World Acquisition Corp., a cash-rich shell company. The merger increases the former president’s net worth by roughly $3 billion.`\
+https://nytimes.com/2024/03/25/business/trump-media-trading-tuesday.html
+
+**The U.S. Is Using the Security Council to Pressure Israel**\
+`By not vetoing a cease-fire resolution, Biden is making clear his displeasure with Netanyahu.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-security-council-israel
+
 **On London Stages, Uplifting Tales of Black Masculinity**\
 `“For Black Boys Who Have Considered Suicide When The Hue Gets Too Heavy” and “Red Pitch” offer generous portrayals of male bonding.`\
 https://nytimes.com/2024/03/25/theater/for-black-boys-who-have-considered-suicide-when-the-hue-gets-too-heavy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/25/us/politics/speaker-mike-johnson-ukraine.html
 **Video: Bolsonaro, Facing Investigations, Hid at Hungarian Embassy**\
 `Security-camera footage obtained by The Times shows that Brazil’s former president spent two nights at the Hungarian Embassy in an apparent bid for asylum.`\
 https://nytimes.com/2024/03/25/world/americas/jair-bolsonaro-hungary-video.html
-
-**Netanyahu Cancels U.S.-Israel Meetings on Rafah, to Protest U.N. Resolution**\
-`President Biden had requested the high-level meetings to discuss alternatives to a planned Israel ground offensive into Rafah, which U.S. officials say would cause mass casualties.`\
-https://nytimes.com/2024/03/25/world/middleeast/israel-ceasefire-rafah-netanyahu.html
-
-**X’s Lawsuit Against Anti-Hate Research Group Is Dismissed**\
-`Elon Musk’s social media company sued a group that exposed hate speech on the site, but a judge ruled that the suit was designed to punish speech.`\
-https://nytimes.com/2024/03/25/technology/x-lawsuit-dismissed.html
 
