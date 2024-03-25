@@ -1,4 +1,4 @@
-**Chick-fil-A Modifies Its ‘No Antibiotic’ Policy**\
+**Chick-fil-A Modifies Its ‘No Antibiotic’ Chicken Policy**\
 `The fast food restaurant chain will continue to bar the use of antibiotics used to treat people but will permit the use of animal antibiotics.`\
 https://nytimes.com/2024/03/25/business/chick-fil-a-antibiotic-chicken.html
 
