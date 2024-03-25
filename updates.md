@@ -1,3 +1,7 @@
+**1949: ‘Red Star’ Says Labor Increases British Taxes**\
+`The Soviet Army newspaper report blamed the government’s foreign policy for the higher cost of living for the working class.`\
+https://nytimes.com/2024/03/25/world/red-star-labour-britain-taxes.html
+
 **This was supposed to be the start of Trump’s trial. A sudden document dump changed that.**\
 `By Ben Protess and William K. Rashbaum`\
 https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/this-was-supposed-to-be-the-start-of-trumps-trial-a-sudden-document-dump-changed-that
