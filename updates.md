@@ -1,3 +1,7 @@
+**Video: Bolsonaro, Facing Investigations, Hid at Hungarian Embassy**\
+`Security-camera footage obtained by The Times shows that Brazil’s former president spent two nights at the Hungarian Embassy in an apparent bid for asylum.`\
+https://nytimes.com/2024/03/25/world/americas/jair-bolsonaro-hungary-video.html
+
 **After the U.N. vote, Israel called off meetings with the U.S. about Rafah, as relations grow more tense.**\
 `By Aaron Boxerman`\
 https://nytimes.com/2024/03/25/world/middleeast/after-the-un-vote-israel-called-off-meetings-with-the-us-about-rafah-as-relations-grow-more-tense.html
