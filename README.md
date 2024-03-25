@@ -1,3 +1,7 @@
+**Here’s what to expect this week on the campaign trail.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/03/25/us/trump-biden-election/trump-biden-election
+
 **1949: ‘Red Star’ Says Labour Increases British Taxes**\
 `The Soviet Army newspaper report blamed the government’s foreign policy for the higher cost of living for the working class.`\
 https://nytimes.com/2024/03/25/world/red-star-labour-britain-taxes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/business/dealbook/vista-outdoor-ammunition-mnc-de
 **The Long Case for Machine Shorthand**\
 `Court reporters and online communities are keeping stenography in style.`\
 https://nytimes.com/2024/03/25/crosswords/steno-online-court-reporters.html
-
-**E.U. Takes Aim at Alphabet, Apple and Meta in Wide-Ranging Investigations**\
-`The inquiries signal the bloc’s intention to tightly enforce sweeping new competition rules that took effect this month.`\
-https://nytimes.com/2024/03/25/business/apple-facebook-google-eu-investigation.html
 
