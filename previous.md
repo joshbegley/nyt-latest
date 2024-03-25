@@ -1,3 +1,7 @@
+**U.K. to Accuse China of Cyberattacks Targeting Voter Data and Lawmakers**\
+`The British government believes China has overseen two separate hacking campaigns, including one that yielded information from 40 million voters.`\
+https://nytimes.com/2024/03/25/world/europe/uk-china-cyberattack-hacking.html
+
 **Who is Justice Juan M. Merchan?**\
 `By Kate Christobek`\
 https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/who-is-justice-juan-m-merchan
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/world/middleeast/un-cease-fire-resolution-gaza-is
 **Here’s what to expect this week on the campaign trail.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/03/25/us/trump-biden-election/trump-biden-election
-
-**1949: ‘Red Star’ Says Labour Increases British Taxes**\
-`The Soviet Army newspaper report blamed the government’s foreign policy for the higher cost of living for the working class.`\
-https://nytimes.com/2024/03/25/world/red-star-labour-britain-taxes.html
 

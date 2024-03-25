@@ -1,3 +1,7 @@
+**U.K. to Accuse China of Cyberattacks Targeting Voter Data and Lawmakers**\
+`The British government believes China has overseen two separate hacking campaigns, including one that yielded information from 40 million voters.`\
+https://nytimes.com/2024/03/25/world/europe/uk-china-cyberattack-hacking.html
+
 **Who is Justice Juan M. Merchan?**\
 `By Kate Christobek`\
 https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/who-is-justice-juan-m-merchan

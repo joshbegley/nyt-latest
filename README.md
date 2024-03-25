@@ -30,9 +30,9 @@ https://nytimes.com/2024/03/25/theater/scherzinger-sunset-boulevard-broadway.htm
 `On April 8, the moon will cast a shadow across much of North America.`\
 https://nytimes.com/interactive/2024/science/total-solar-eclipse-maps-path.html
 
-**U.N. Expected to Consider Another Cease-Fire Resolution**\
-`The Security Council is expected to consider a draft resolution that explicitly demands a truce during Ramadan, as well as the unconditional release of hostages held in Gaza.`\
-https://nytimes.com/2024/03/25/world/middleeast/un-cease-fire-resolution-gaza-israel.html
+**The United States, after vetoing earlier resolutions, abstained.**\
+`Security Council is expected to consider a draft resolution on Monday morning that “demands an immediate cease-fire for the month of Ramadan,” three diplomats said, as well as the unconditional release of hostages held in Gaza, just days after a resolution from the United States failed following vetoes from Russia and China.`\
+https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/un-cease-fire-resolution-gaza-israel
 
 **Here’s what to expect this week on the campaign trail.**\
 `By Maggie Astor`\
