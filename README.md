@@ -1,3 +1,15 @@
+**After the U.N. vote, Israel called off meetings with the U.S. about Rafah, as relations grow more tense.**\
+`By Aaron Boxerman`\
+https://nytimes.com/2024/03/25/world/middleeast/after-the-un-vote-israel-called-off-meetings-with-the-us-about-rafah-as-relations-grow-more-tense.html
+
+**X’s Lawsuit Against Anti-Hate Research Group Is Dismissed**\
+`Elon Musk’s social media company sued a group that exposed hate speech on the site, but a judge ruled that the suit was designed to punish speech.`\
+https://nytimes.com/2024/03/25/technology/x-lawsuit-dismissed.html
+
+**Ukrainians Shun Kremlin Suggestions Their Country Was Behind Moscow Attack**\
+`Officials and ordinary citizens say Russia is blaming Ukraine in order to shore up support for its war in Ukraine and escalate the fighting there.`\
+https://nytimes.com/2024/03/25/world/europe/moscow-terror-attack-ukraine.html
+
 **Who’s to Blame for Those Kate Middleton Conspiracies?**\
 `Kensington Palace is just the latest institution to discover that lying to the public will make people suspicious.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/kate-middleton-russia-interference
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/25/us/politics/angela-alsobrooks-endorsements-david-
 **This Easy, Make-Ahead Easter Brunch Only Feels Expensive**\
 `This spring menu — a showstopping frittata, a snappy salad and a chewy cookie from a celebrated restaurant chef — isn’t just surprising. It’s surprisingly simple.`\
 https://nytimes.com/2024/03/25/dining/easy-cheap-easter-recipes.html
-
-**Trump Can Post Smaller Bond in Civil Fraud Case, Court Rules**\
-`The former president must post a bond of $175 million within 10 days as he appeals the $454 million judgment against him.`\
-https://nytimes.com/2024/03/25/nyregion/trump-bond-reduced.html
-
-**Use of Abortion Pills Has Risen Significantly Post Roe, Research Shows**\
-`Two new studies show fast-growing use of the pills on the eve of the Supreme Court’s consideration of a case seeking to ban or restrict them. Write a summary here and then click the Summary toggle above so it only shows up in the metadata field.`\
-https://nytimes.com/2024/03/25/health/abortion-pills.html
-
-**Inside a C.E.O.’s Bold Claims About Her Hot Fintech Start-Up**\
-`Amira Yahyaoui, a human rights activist, promoted the success of her student aid start-up, Mos. Some of her statements do not add up, according to internal data and people familiar with the company.`\
-https://nytimes.com/2024/03/25/technology/inside-a-ceos-bold-claims-about-her-hot-fintech-start-up.html
 
