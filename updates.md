@@ -1,3 +1,7 @@
+**American Jews, Liberalism and Zionism**\
+`Responses to a guest essay by Peter Beinart. Also: M.I.T. and the Gaza war; organ transplants; sexual brutality.`\
+https://nytimes.com/2024/03/25/opinion/us-jews-israel-liberalism-zionism.html
+
 **Vowing the U.S. Will ‘Do Our Job,’ Johnson Searches for a Path on Ukraine**\
 `The Republican speaker, with his job on the line, has privately told people he will make sure the House moves to assist Ukraine, a step that many members of his party oppose.`\
 https://nytimes.com/2024/03/25/us/politics/speaker-mike-johnson-ukraine.html
