@@ -1,6 +1,6 @@
 **Vowing the U.S. Will ‘Do Our Job,’ Johnson Searches for a Path on Ukraine**\
 `The Republican speaker, with his job on the line, has privately told people he will make sure the House moves to assist Ukraine, a step that many members of his party oppose.`\
-https://nytimes.com/2024/03/25/world/europe/speaker-mike-johnson-ukraine.html
+https://nytimes.com/2024/03/25/us/politics/speaker-mike-johnson-ukraine.html
 
 **Video: Bolsonaro, Facing Investigations, Hid at Hungarian Embassy**\
 `Security-camera footage obtained by The Times shows that Brazil’s former president spent two nights at the Hungarian Embassy in an apparent bid for asylum.`\
