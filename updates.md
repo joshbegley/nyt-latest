@@ -1,3 +1,7 @@
+**Angela Alsobrooks Picks Up Senate Endorsements After Opponent Uses Racial Slur**\
+`Five House members backed Ms. Alsobrooks over their colleague, David Trone, who has apologized for a racial slur he said he used inadvertently during a recent hearing.`\
+https://nytimes.com/2024/03/25/us/politics/angela-alsobrooks-endorsements-david-trone.html
+
 **This Easy, Make-Ahead Easter Brunch Only Feels Expensive**\
 `This spring menu — a showstopping frittata, a snappy salad and a chewy cookie from a celebrated restaurant chef — isn’t just surprising. It’s surprisingly simple.`\
 https://nytimes.com/2024/03/25/dining/easy-cheap-easter-recipes.html
