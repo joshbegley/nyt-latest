@@ -1,3 +1,7 @@
+**‘I Committed to Comedy’: Kevin Hart Accepts Mark Twain Prize**\
+`The Kennedy Center honored the comedian, who said he “fell in love with the idea of comedy” as something he could do for the rest of his life.`\
+https://nytimes.com/video/arts/100000009378820/kevin-hart-mark-twain-prize.html
+
 **Waiters Compete in Paris’ Revived Cafe Race**\
 `About 200 restaurant workers participated in the revived tradition, each one speeding through the course with a tray carrying a croissant, a glass of water and a coffee cup.`\
 https://nytimes.com/video/world/europe/100000009378806/paris-waiters-race.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/crosswords/wordle-review.html
 **Israel’s defense minister will meet several senior U.S. officials.**\
 `By Aaron Boxerman, Julian E. Barnes and Iyad Abuheweila`\
 https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/israels-defense-minister-will-meet-several-senior-us-officials
-
-**Missing people under Gaza’s rubble make for a shadow death toll.**\
-`By Vivian Yee, Iyad Abuheweila, Abu Bakr Bashir and Ameera Harouda`\
-https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/missing-people-under-gazas-rubble-make-for-a-shadow-death-toll
 
