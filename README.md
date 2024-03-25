@@ -1,3 +1,7 @@
+**Black Couple Who Said an Appraisal of Their Home Was Biased Settle Lawsuit**\
+`Dr. Nathan Connolly and the estate of Dr. Shani Mott, who recently died, will receive a payment from their mortgage lender, which also agreed to several policy changes to discourage discrimination.`\
+https://nytimes.com/2024/03/25/realestate/racial-bias-appraisal-settlement.html
+
 **Israeli forces surround a hospital in Gaza and continue their raid on another.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/israeli-forces-surround-a-hospital-in-gaza-and-continue-their-raid-on-another
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/dining/spicy-tofu-and-mushroom-mazemen-chicken-ko
 **Do You Know These Novels and Their Recent Television Adaptations?**\
 `Try this short literary quiz highlighting books written by women and adapted into streaming shows within the past few years.`\
 https://nytimes.com/interactive/2024/03/25/books/review/womens-fiction-adaptations.html
-
-**U.K. to Accuse China of Cyberattacks Targeting Voter Data and Lawmakers**\
-`The British government believes China has overseen two separate hacking campaigns, including one that yielded information from 40 million voters.`\
-https://nytimes.com/2024/03/25/world/europe/uk-china-cyberattack-hacking.html
 
