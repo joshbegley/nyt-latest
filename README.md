@@ -1,3 +1,7 @@
+**Videos and Online Profiles Link Suspects to Moscow Attack**\
+`Clothing and other details appear to show a connection between four suspects detained by Russia and the men who carried out the concert hall massacre of more than 130 people.`\
+https://nytimes.com/2024/03/25/world/europe/moscow-attack-suspects-russia-evidence.html
+
 **Trump’s Multibillion-Dollar Social Media Company Will Start Trading on Tuesday**\
 `Trump Media & Technology Group completed a deal to merge with Digital World Acquisition Corp., a cash-rich shell company. The merger increases the former president’s net worth by roughly $3 billion.`\
 https://nytimes.com/2024/03/25/business/trump-media-trading-tuesday.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/opinion/us-jews-israel-liberalism-zionism.html
 **Vowing the U.S. Will ‘Do Our Job,’ Johnson Searches for a Path on Ukraine**\
 `The Republican speaker, with his job on the line, has privately told people he will make sure the House moves to assist Ukraine, a step that many members of his party oppose.`\
 https://nytimes.com/2024/03/25/us/politics/speaker-mike-johnson-ukraine.html
-
-**Video: Bolsonaro, Facing Investigations, Hid at Hungarian Embassy**\
-`Security-camera footage obtained by The Times shows that Brazil’s former president spent two nights at the Hungarian Embassy in an apparent bid for asylum.`\
-https://nytimes.com/2024/03/25/world/americas/jair-bolsonaro-hungary-video.html
 
