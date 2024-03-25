@@ -1,3 +1,11 @@
+**Who’s to Blame for Those Kate Middleton Conspiracies?**\
+`Kensington Palace is just the latest institution to discover that lying to the public will make people suspicious.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/kate-middleton-russia-interference
+
+**U.S. Accuses Chinese Hackers of Targeting Critical Infrastructure in America**\
+`The Treasury Department accused the hackers of working as a front for Beijing’s top spy agency.`\
+https://nytimes.com/2024/03/25/business/china-hacking-us-sanctions.html
+
 **Judge Takes One of Trump’s Lawyers, Todd Blanche, To Task**\
 `During the first hour of a hearing on a possible delay or even a dismissal of the criminal trial facing his client, Mr. Blanche faced withering questioning from the trial’s judge, Juan M. Merchan.`\
 https://nytimes.com/2024/03/25/nyregion/todd-blanche-lawyer-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/25/health/abortion-pills.html
 **Inside a C.E.O.’s Bold Claims About Her Hot Fintech Start-Up**\
 `Amira Yahyaoui, a human rights activist, promoted the success of her student aid start-up, Mos. Some of her statements do not add up, according to internal data and people familiar with the company.`\
 https://nytimes.com/2024/03/25/technology/inside-a-ceos-bold-claims-about-her-hot-fintech-start-up.html
-
-**6 Books for Adults Living With A.D.H.D.**\
-`Psychiatrists, counselors and researchers shared their recommendations.`\
-https://nytimes.com/2024/03/25/well/mind/adult-adhd-books.html
-
-**Spicy Tofu and Mushroom Mazemen; Chicken Koftas With Lime Couscous**\
-`And plenty more minimum-effort, maximum-rewards dinner ideas.`\
-https://nytimes.com/2024/03/25/dining/spicy-tofu-and-mushroom-mazemen-chicken-koftas-with-lime-couscous.html
 

@@ -1,3 +1,11 @@
+**Who’s to Blame for Those Kate Middleton Conspiracies?**\
+`Kensington Palace is just the latest institution to discover that lying to the public will make people suspicious.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/kate-middleton-russia-interference
+
+**U.S. Accuses Chinese Hackers of Targeting Critical Infrastructure in America**\
+`The Treasury Department accused the hackers of working as a front for Beijing’s top spy agency.`\
+https://nytimes.com/2024/03/25/business/china-hacking-us-sanctions.html
+
 **Judge Takes One of Trump’s Lawyers, Todd Blanche, To Task**\
 `During the first hour of a hearing on a possible delay or even a dismissal of the criminal trial facing his client, Mr. Blanche faced withering questioning from the trial’s judge, Juan M. Merchan.`\
 https://nytimes.com/2024/03/25/nyregion/todd-blanche-lawyer-trump.html
