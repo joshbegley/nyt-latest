@@ -1,3 +1,11 @@
+**What ‘KateGate’ Says About Royalty, Celebrity and Internet Culture**\
+`Many Americans used to view the Windsors with excitement, even admiration, beyond that shown to other public figures. Are they basically Kardashians now?`\
+https://nytimes.com/2024/03/25/fashion/kategate-princess-catherine-royalty-interen.html
+
+**The Encounter That Put the Pianist Kelly Moran on an Unexpected Path**\
+`The 36-year-old musician helped introduce the prepared piano to fresh audiences. Amid personal upheaval, she abandoned it and found a new voice.`\
+https://nytimes.com/2024/03/25/arts/music/kelly-moran-moves-in-the-field.html
+
 **Chick-fil-A Modifies Its ‘No Antibiotic’ Chicken Policy**\
 `The fast food restaurant chain will continue to bar the use of antibiotics used to treat people but will permit the use of animal antibiotics.`\
 https://nytimes.com/2024/03/25/business/chick-fil-a-antibiotic-chicken.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/25/theater/for-black-boys-who-have-considered-suicid
 **Israeli Soldier’s Video Undercuts Medic’s Account of Sexual Assault**\
 `Kibbutz residents concluded that two sisters killed on Oct. 7 were not victims of sexual violence.`\
 https://nytimes.com/2024/03/25/world/middleeast/video-sexual-assault-israel-kibbutz-hamas.html
-
-**A Timeline of Dave Calhoun’s Rocky Tenure at Boeing**\
-`The outgoing chief executive’s four years in the top job were marked by safety scandals, grounded planes, Covid and more grounded planes.`\
-https://nytimes.com/2024/03/25/business/boeing-ceo-dave-calhoun-timeline.html
-
-**A Second Act for Ballet in Iran?**\
-`A new work, “The White Feather” is inspired by the history of the Iranian National Ballet, which went dark during the Islamic Revolution and was never revived.`\
-https://nytimes.com/2024/03/25/arts/dance/iran-ballet-tara-ghassemieh-white-feather.html
 
