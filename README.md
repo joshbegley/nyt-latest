@@ -1,3 +1,15 @@
+**U.K. to Accuse China of Cyberattacks Targeting Voter Data and Lawmakers**\
+`The British government believes China has overseen two separate hacking campaigns, including one that yielded information from 40 million voters.`\
+https://nytimes.com/2024/03/25/world/europe/uk-china-cyberattack-hacking.html
+
+**Who is Justice Juan M. Merchan?**\
+`By Kate Christobek`\
+https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/who-is-justice-juan-m-merchan
+
+**Young Opposition Candidate Wins Senegal’s Presidential Election**\
+`Bassirou Diomaye Faye, who turned 44 on Monday, was little known until he received the backing of Ousmane Sonko, Senegal’s most formidable opposition politician. Both men were released from jail only 10 days ago.`\
+https://nytimes.com/2024/03/25/world/africa/senegal-presidential-election-results.html
+
 **Watch: The Solo of ‘Solitude’**\
 `Click through as Joseph Gordon performs a section from Alexei Ratmansky’s new dance for New York City Ballet, a reaction to the horrors of the war in Ukraine.`\
 https://nytimes.com/interactive/2024/03/25/arts/dance/nyc-ballet-ukraine-solo.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/25/world/middleeast/un-cease-fire-resolution-gaza-is
 **Here’s what to expect this week on the campaign trail.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/03/25/us/trump-biden-election/trump-biden-election
-
-**1949: ‘Red Star’ Says Labour Increases British Taxes**\
-`The Soviet Army newspaper report blamed the government’s foreign policy for the higher cost of living for the working class.`\
-https://nytimes.com/2024/03/25/world/red-star-labour-britain-taxes.html
-
-**This was supposed to be the start of Trump’s trial. A sudden document dump changed that.**\
-`By Ben Protess and William K. Rashbaum`\
-https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/this-was-supposed-to-be-the-start-of-trumps-trial-a-sudden-document-dump-changed-that
-
-**25trump-trial**\
-`Live Updates: Trump Seeks Again to Delay His Criminal Hush-Money Trial`\
-https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial
 
