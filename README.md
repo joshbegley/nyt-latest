@@ -1,3 +1,7 @@
+**Israeli forces surround a hospital in Gaza and continue their raid on another.**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/israeli-forces-surround-a-hospital-in-gaza-and-continue-their-raid-on-another
+
 **Angela Alsobrooks Picks Up Senate Endorsements After Opponent Uses Racial Slur**\
 `Five House members backed Ms. Alsobrooks over their colleague, David Trone, who has apologized for a racial slur he said he used inadvertently during a recent hearing.`\
 https://nytimes.com/2024/03/25/us/politics/angela-alsobrooks-endorsements-david-trone.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/25/books/review/womens-fiction-adaptatio
 **U.K. to Accuse China of Cyberattacks Targeting Voter Data and Lawmakers**\
 `The British government believes China has overseen two separate hacking campaigns, including one that yielded information from 40 million voters.`\
 https://nytimes.com/2024/03/25/world/europe/uk-china-cyberattack-hacking.html
-
-**Who is Justice Juan M. Merchan?**\
-`By Kate Christobek`\
-https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/who-is-justice-juan-m-merchan
 
