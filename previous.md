@@ -1,3 +1,11 @@
+**‘X-Men’ Is Back, but a Key Member Is Missing**\
+`The animated Disney+ revival series “X-Men ’97,” has faced questions after its showrunner was mysteriously fired just ahead of the premiere.`\
+https://nytimes.com/2024/03/25/arts/television/x-men-97-beau-demayo.html
+
+**Trump Urges Israel to ‘Finish Up Your War’**\
+`The former president told an Israeli news outlet that images of destruction in Gaza were harming the country: “You’re losing a lot of the world.”`\
+https://nytimes.com/2024/03/25/us/politics/trump-israel-hamas-war.html
+
 **Videos and Online Profiles Link Suspects to Moscow Attack**\
 `Clothing and other details appear to show a connection between four suspects detained by Russia and the men who carried out the concert hall massacre of more than 130 people.`\
 https://nytimes.com/2024/03/25/world/europe/moscow-attack-suspects-russia-evidence.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/25/arts/dance/iran-ballet-tara-ghassemieh-white-feat
 **The hush-money trial may be the only one Trump faces before the election.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/the-hush-money-trial-may-be-the-only-one-trump-faces-before-the-election
-
-**American Jews, Liberalism and Zionism**\
-`Responses to a guest essay by Peter Beinart. Also: M.I.T. and the Gaza war; organ transplants; sexual brutality.`\
-https://nytimes.com/2024/03/25/opinion/us-jews-israel-liberalism-zionism.html
-
-**Vowing the U.S. Will ‘Do Our Job,’ Johnson Searches for a Path on Ukraine**\
-`The Republican speaker, with his job on the line, has privately told people he will make sure the House moves to assist Ukraine, a step that many members of his party oppose.`\
-https://nytimes.com/2024/03/25/us/politics/speaker-mike-johnson-ukraine.html
 

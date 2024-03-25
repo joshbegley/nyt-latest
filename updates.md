@@ -1,3 +1,11 @@
+**‘X-Men’ Is Back, but a Key Member Is Missing**\
+`The animated Disney+ revival series “X-Men ’97,” has faced questions after its showrunner was mysteriously fired just ahead of the premiere.`\
+https://nytimes.com/2024/03/25/arts/television/x-men-97-beau-demayo.html
+
+**Trump Urges Israel to ‘Finish Up Your War’**\
+`The former president told an Israeli news outlet that images of destruction in Gaza were harming the country: “You’re losing a lot of the world.”`\
+https://nytimes.com/2024/03/25/us/politics/trump-israel-hamas-war.html
+
 **Videos and Online Profiles Link Suspects to Moscow Attack**\
 `Clothing and other details appear to show a connection between four suspects detained by Russia and the men who carried out the concert hall massacre of more than 130 people.`\
 https://nytimes.com/2024/03/25/world/europe/moscow-attack-suspects-russia-evidence.html
