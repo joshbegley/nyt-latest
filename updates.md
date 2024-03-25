@@ -1,3 +1,11 @@
+**A Timeline of Dave Calhoun’s Rocky Tenure at Boeing**\
+`The outgoing chief executive’s four years in the top job were marked by safety scandals, grounded planes, Covid and more grounded planes.`\
+https://nytimes.com/2024/03/25/business/boeing-ceo-dave-calhoun-timeline.html
+
+**A Second Act for Ballet in Iran?**\
+`A new work, “The White Feather” is inspired by the history of the Iranian National Ballet, which went dark during the Islamic Revolution and was never revived.`\
+https://nytimes.com/2024/03/25/arts/dance/iran-ballet-tara-ghassemieh-white-feather.html
+
 **The hush-money trial may be the only one Trump faces before the election.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/the-hush-money-trial-may-be-the-only-one-trump-faces-before-the-election
