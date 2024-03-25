@@ -1,3 +1,7 @@
+**Boeing Needs New Leadership With the Right Kind of Experience**\
+`A new C.E.O. needs to have lived and breathed complex manufacturing.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/boeing-new-leadership
+
 **NBC News Faces Rebellion Over Hiring of Former Republican Party Chair**\
 `In extraordinary on-air remarks, Mika Brzezinski, Joe Scarborough and Chuck Todd questioned their own network’s decision to hire Ronna McDaniel as a political analyst.`\
 https://nytimes.com/2024/03/25/business/media/nbc-ronna-mcdaniel-rebellion.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/19/opinion/thepoint/trump-criminal-case-hushmon
 **Tennessee Company Hired Children to Operate ‘Dangerous’ Machinery, Officials Say**\
 `Tuff Torq Corp. of Morristown, Tenn., must pay a fine of nearly $300,000 and set aside $1.5 million in profits to compensate 10 underage workers, the Labor Department said.`\
 https://nytimes.com/2024/03/25/business/tuff-torq-child-labor-fine.html
-
-**UNRWA claims Israel has banned it from bringing aid to northern Gaza.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/unrwa-claims-israel-has-banned-it-from-bringing-aid-to-northern-gaza
 
