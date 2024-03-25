@@ -1,3 +1,7 @@
+**The United States, after vetoing earlier resolutions, abstained.**\
+`Security Council is expected to consider a draft resolution on Monday morning that “demands an immediate cease-fire for the month of Ramadan,” three diplomats said, as well as the unconditional release of hostages held in Gaza, just days after a resolution from the United States failed following vetoes from Russia and China.`\
+https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/un-cease-fire-resolution-gaza-israel
+
 **U.K. to Accuse China of Cyberattacks Targeting Voter Data and Lawmakers**\
 `The British government believes China has overseen two separate hacking campaigns, including one that yielded information from 40 million voters.`\
 https://nytimes.com/2024/03/25/world/europe/uk-china-cyberattack-hacking.html
