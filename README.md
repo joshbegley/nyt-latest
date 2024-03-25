@@ -1,3 +1,7 @@
+**1949: ‘Red Star’ Says Labor Increases British Taxes**\
+`The Soviet Army newspaper report blamed the government’s foreign policy for the higher cost of living for the working class.`\
+https://nytimes.com/2024/03/25/world/red-star-labour-britain-taxes.html
+
 **This was supposed to be the start of Trump’s trial. A sudden document dump changed that.**\
 `By Ben Protess and William K. Rashbaum`\
 https://nytimes.com/live/2024/03/25/nyregion/trump-hush-money-trial/this-was-supposed-to-be-the-start-of-trumps-trial-a-sudden-document-dump-changed-that
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/crosswords/steno-online-court-reporters.html
 **E.U. Takes Aim at Alphabet, Apple and Meta in Wide-Ranging Investigations**\
 `The inquiries signal the bloc’s intention to tightly enforce sweeping new competition rules that took effect this month.`\
 https://nytimes.com/2024/03/25/business/apple-facebook-google-eu-investigation.html
-
-**As Russia Mourns Attack Victims, State Media Intensifies Blame of Ukraine**\
-`News outlets were trying to counter U.S. assessments that the deadly assault on the concert hall near Moscow was the work of an offshoot of the Islamic State.`\
-https://nytimes.com/2024/03/25/world/europe/russia-moscow-concert-attack.html
 
