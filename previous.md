@@ -1,3 +1,7 @@
+**Tennessee Company Hired Children to Operate ‘Dangerous’ Machinery, Officials Say**\
+`Tuff Torq Corp. of Morristown, Tenn., must pay a fine of nearly $300,000 and set aside $1.5 million in profits to compensate 10 underage workers, the Labor Department said.`\
+https://nytimes.com/2024/03/25/business/tuff-torq-child-labor-fine.html
+
 **UNRWA claims Israel has banned it from bringing aid to northern Gaza.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/unrwa-claims-israel-has-banned-it-from-bringing-aid-to-northern-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/world/europe/moscow-attack-suspects-russia-eviden
 **Trump’s Multibillion-Dollar Social Media Company Will Start Trading on Tuesday**\
 `Trump Media & Technology Group completed a deal to merge with Digital World Acquisition Corp., a cash-rich shell company. The merger increases the former president’s net worth by roughly $3 billion.`\
 https://nytimes.com/2024/03/25/business/trump-media-trading-tuesday.html
-
-**The U.S. Is Using the Security Council to Pressure Israel**\
-`By not vetoing a cease-fire resolution, Biden is making clear his displeasure with Netanyahu.`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/biden-security-council-israel
 

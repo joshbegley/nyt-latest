@@ -1,3 +1,7 @@
+**Tennessee Company Hired Children to Operate ‘Dangerous’ Machinery, Officials Say**\
+`Tuff Torq Corp. of Morristown, Tenn., must pay a fine of nearly $300,000 and set aside $1.5 million in profits to compensate 10 underage workers, the Labor Department said.`\
+https://nytimes.com/2024/03/25/business/tuff-torq-child-labor-fine.html
+
 **UNRWA claims Israel has banned it from bringing aid to northern Gaza.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/03/25/world/israel-hamas-war-gaza-news/unrwa-claims-israel-has-banned-it-from-bringing-aid-to-northern-gaza
