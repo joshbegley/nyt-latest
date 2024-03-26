@@ -1,3 +1,7 @@
+**The Key Bridge was named after the author of the national anthem.**\
+`By Jin Yu Young`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/the-key-bridge-was-named-after-the-author-of-the-national-anthem
+
 **The Dali was just starting a 27-day voyage.**\
 `The ship had spent two days in Baltimore’s port before setting off.`\
 https://nytimes.com/2024/03/26/us/dali-ship-baltimore-bridge.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/arts/television/shogun-episode-6-recap-willow-wor
 **Is Humanity Out of Fashion?**\
 `Designer change at Valentino and Dries Van Noten raises the question.`\
 https://nytimes.com/2024/03/26/style/valentino-dries-van-noten-humanity-fashion.html
-
-**Abortion Pill Dispute Centers on Central Question: Who Can Sue?**\
-`The parties in the fight over access to the abortion pill sharply disagree on whether anti-abortion doctors and groups can show they will suffer harm.`\
-https://nytimes.com/2024/03/26/us/politics/abortion-pill-lawsuits-doctors.html
 
