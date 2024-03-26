@@ -1,3 +1,7 @@
+**A Baltimore Bridge Collapses, and Abortion Is Back in Front of the Supreme Court**\
+`Plus, a revolt at NBC.`\
+https://nytimes.com/2024/03/26/podcasts/abortion-pill-bridge.html
+
 **Assange Extradition On Hold Until U.S. Gives More Assurances**\
 `The WikiLeaks founder has been in a London prison since 2019. Judges asked the U.S., which wants to try him on espionage charges, for more guarantees about his treatment.`\
 https://nytimes.com/2024/03/26/world/europe/julian-assange-uk-court-us-extradition.html
