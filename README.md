@@ -1,3 +1,15 @@
+**The case seeks to push another goal of the conservative legal movement: dismantling the administrative state.**\
+`By Adam Liptak and Abbie VanSickle`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/the-case-seeks-to-push-another-goal-of-the-conservative-legal-movement-dismantling-the-administrative-state
+
+**After the ship hit the bridge, a collapse seemed inevitable, engineers say.**\
+`By Claire Moses and Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/after-the-ship-hit-the-bridge-a-collapse-seemed-inevitable-engineers-say
+
+**Bill Seeks Reparations for Families Displaced From Site of Dodger Stadium**\
+`About 1,800 families were forced to leave the land, now known as Chavez Ravine, that eventually became Dodger Stadium. A measure in the State Assembly could provide them with compensation or land.`\
+https://nytimes.com/2024/03/26/us/chavez-ravine-reparations-dodger-stadium.html
+
 **How Common Is Medication Abortion?**\
 `It’s now the most used abortion method.`\
 https://nytimes.com/2024/03/26/upshot/medication-abortion-pill-use.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court
 **Suicide Bomber Kills 5 Chinese Workers in Pakistan**\
 `The attack comes amid a spate of terror attacks in Pakistan, as the country’s faltering ties to the Taliban affect regional security.`\
 https://nytimes.com/2024/03/26/world/asia/pakistan-suicide-bomber-chinese-workers.html
-
-**After the U.N. resolution, Israel and Hamas are still far apart on a cease-fire.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/after-the-un-resolution-israel-and-hamas-are-still-far-apart-on-a-cease-fire
-
-**Israel Presses On With Strikes in Gaza After U.N. Cease-Fire Resolution**\
-`Its military said fighter jets had struck “over 60 targets” in the previous day. There were reports of strikes on residential buildings near Al-Shifa Hospital in the north and elsewhere.`\
-https://nytimes.com/2024/03/26/world/middleeast/israel-strikes-gaza-un-cease-fire-resolution.html
-
-**Why BlackRock’s C.E.O. Wants to Rethink Retirement**\
-`Larry Fink, who leads the world’s biggest asset manager, warns in his annual investor letter that an aging population will soon pose huge economic troubles.`\
-https://nytimes.com/2024/03/26/business/dealbook/blackrock-fink-letter-retirement.html
 
