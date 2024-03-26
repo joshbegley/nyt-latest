@@ -1,3 +1,7 @@
+**Hong Kongers Are Purging the Evidence of Their Lost Freedom**\
+`As Beijing cracks down, Hong Kongers are purging evidence of their lost liberties.`\
+https://nytimes.com/2024/03/26/opinion/hong-kong-law-freedom.html
+
 **Word of the Day: inexorably**\
 `This word has appeared in 49 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/26/word-of-the-day-inexorably.html
