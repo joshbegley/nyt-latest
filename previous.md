@@ -1,3 +1,7 @@
+**Visa and Mastercard Agree to Cap Swipe Fees in Settlement**\
+`The deal could save merchants $30 billion over five years. It would also allow them to adjust prices based on the costs of accepting different credit cards.`\
+https://nytimes.com/2024/03/26/business/visa-mastercard-swipe-fees.html
+
 **Automakers say they are rerouting car shipments away from Baltimore.**\
 `By Neal E. Boudette`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/automakers-say-they-are-rerouting-car-shipments-away-from-baltimore
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/us/politics/nicole-shanahan-rfk-jr-vp.html
 **Baltimore Bridge Collapses After Ship Collision**\
 `Rescue teams are searching for six missing construction workers who were repairing potholes on the Francis Scott Key Bridge when it collapsed.`\
 https://nytimes.com/video/us/100000009381191/baltimore-bridge-collapse-cargo-ship.html
-
-**The collapse will upend commercial traffic in a busy industrial area.**\
-`By Campbell Robertson and JoAnna Daemmrich`\
-https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/the-collapse-will-upend-commercial-traffic-in-a-busy-industrial-area
 

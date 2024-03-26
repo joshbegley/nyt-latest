@@ -1,3 +1,7 @@
+**Visa and Mastercard Agree to Cap Swipe Fees in Settlement**\
+`The deal could save merchants $30 billion over five years. It would also allow them to adjust prices based on the costs of accepting different credit cards.`\
+https://nytimes.com/2024/03/26/business/visa-mastercard-swipe-fees.html
+
 **Automakers say they are rerouting car shipments away from Baltimore.**\
 `By Neal E. Boudette`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/automakers-say-they-are-rerouting-car-shipments-away-from-baltimore
