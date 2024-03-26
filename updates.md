@@ -1,3 +1,11 @@
+**Mayor Speaks After Police Officer Shot and Killed in Queens**\
+`Mayor Eric Adams of New York expressed his condolences at the loss of Jonathan Diller, who was shot during a traffic stop.`\
+https://nytimes.com/video/nyregion/newyorktoday/100000009380590/nyc-police-officer-shot-queens.html
+
+**Man Killed by No. 4 Train After Being Pushed Onto Subway Tracks**\
+`The attack at 125th Street in East Harlem was unprovoked, a police spokeswoman said, and a man is in custody.`\
+https://nytimes.com/2024/03/25/nyregion/subway-shoving-manhattan.html
+
 **Man Who Threatened to Kill Arizona Official Over Election Gets 2½ Years in Prison**\
 `Joshua Russell, 46, of Ohio, left threatening messages for Katie Hobbs in 2022, when she was Arizona’s secretary of state and successfully ran for governor.`\
 https://nytimes.com/2024/03/25/us/katie-hobbs-arizona-election-threats-sentence.html

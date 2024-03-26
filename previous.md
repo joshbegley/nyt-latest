@@ -1,3 +1,7 @@
+**Mayor Speaks After Police Officer Shot and Killed in Queens**\
+`Mayor Eric Adams of New York expressed his condolences at the loss of Jonathan Diller, who was shot during a traffic stop.`\
+https://nytimes.com/video/nyregion/newyorktoday/100000009380590/nyc-police-officer-shot-queens.html
+
 **Man Who Threatened to Kill Arizona Official Over Election Gets 2½ Years in Prison**\
 `Joshua Russell, 46, of Ohio, left threatening messages for Katie Hobbs in 2022, when she was Arizona’s secretary of state and successfully ran for governor.`\
 https://nytimes.com/2024/03/25/us/katie-hobbs-arizona-election-threats-sentence.html
@@ -18,7 +22,7 @@ https://nytimes.com/2024/03/25/us/politics/larry-householder-ohio-speaker-charge
 `One court offered Donald J. Trump a financial lifeline. Another set him on a path to prosecution. It was a taste of what America will experience until the November election.`\
 https://nytimes.com/2024/03/25/nyregion/trump-hush-money-fraud-case.html
 
-**Man Killed by No. 4 Train After He Is Pushed Onto Subway Tracks**\
+**Man Killed by No. 4 Train After Being Pushed Onto Subway Tracks**\
 `The attack at 125th Street in East Harlem was unprovoked, a police spokeswoman said, and a man is in custody.`\
 https://nytimes.com/2024/03/25/nyregion/subway-shoving-manhattan.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/science/bird-flu-cows-milk.html
 **‘Succession’ on Ice**\
 `Ilia Malinin, an American teenager, won the men’s World Figure Skating Championships with a performance set to the theme of the HBO series.`\
 https://nytimes.com/2024/03/25/style/succession-ilia-malinin-figure-skating.html
-
-**U.N. Security Council Calls for Immediate Cease-Fire in Gaza as U.S. Abstains**\
-`The U.S. decision not to vote on the resolution drew criticism from Prime Minister Benjamin Netanyahu of Israel, who ordered a delegation to hold back from a planned trip to Washington.`\
-https://nytimes.com/2024/03/25/world/middleeast/un-security-council-gaza-ceasefire.html
 
