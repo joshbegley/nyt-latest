@@ -1,3 +1,7 @@
+**The court has generally supported the F.D.A.’s authority on drug safety.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/the-court-has-generally-supported-the-fdas-authority-on-drug-safety
+
 **The Impressionists’ First Flowering Is Still Fresh After 150 Years**\
 `Their paintings emerged from a specific historical and artistic moment, yet they still resonate today, as a blockbuster Paris exhibition shows.`\
 https://nytimes.com/2024/03/26/arts/design/impressionism-exhibition-musee-d-orsay-paris.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/movies/late-night-tv-movies.html
 **Russia Digs In on Claim Ukraine and West Were Behind Terrorist Attack**\
 `The head of Russia’s top security agency said, without providing evidence, that the assault was “facilitated by Western special services.” Ukraine has denied involvement, calling the assertions “lies.”`\
 https://nytimes.com/2024/03/26/world/europe/russia-terror-attack-ukraine.html
-
-**The Rice Bowl You Need for Dinner**\
-`Eric Kim’s bacon and egg don is extremely delicious, and extremely simple.`\
-https://nytimes.com/2024/03/26/dining/the-rice-bowl-you-need-for-dinner.html
 
