@@ -1,3 +1,7 @@
+**Mayor Speaks After Police Officer Shot and Killed in Queens**\
+`Police and city officials expressed their condolences at the loss of Jonathan Diller, who was shot during a traffic stop.`\
+https://nytimes.com/video/nyregion/newyorktoday/100000009380590/nyc-police-officer-shot-queens.html
+
 **Man Is Killed by New York Subway Train After Being Pushed Onto Tracks**\
 `The attack in East Harlem was the latest in a series of violent episodes that have led officials to increase the police presence in the subway.`\
 https://nytimes.com/2024/03/25/nyregion/subway-shoving-manhattan.html
