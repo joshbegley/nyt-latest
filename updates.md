@@ -1,3 +1,7 @@
+**Review: In ‘American Rot,’ the Painful Legacy of the Dred Scott Case**\
+`Kate Taney Billingsley’s play starts with a fictional apology, but then segregated choirs and a racist waitress create tonal dissonance.`\
+https://nytimes.com/2024/03/26/theater/american-rot-review.html
+
 **What’s at stake in the abortion pill case?**\
 `By Pam Belluck and Abbie VanSickle`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/whats-at-stake-in-the-abortion-pill-case
