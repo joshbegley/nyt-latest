@@ -1,3 +1,11 @@
+**Florida Protects Children From Social Media but Not Measles**\
+`Parents are allowed to let their children infect others with a serious virus.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/florida-measles-social-media
+
+**Marjorie Perloff, Leading Scholar of Avant-Garde Poetry, Dies at 92**\
+`A forceful advocate for experimental poetry, she argued that a critic’s task was not to search for meaning, but to explicate the form and texture of a poem.`\
+https://nytimes.com/2024/03/26/books/marjorie-perloff-dead.html
+
 **Robert F. Kennedy Jr. Announces Running Mate**\
 `Mr. Kennedy named Nicole Shanahan, a Silicon Valley lawyer and investor, as his running mate in his independent presidential bid.`\
 https://nytimes.com/video/us/elections/100000009382010/kennedy-nicole-shanahan.html

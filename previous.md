@@ -1,3 +1,11 @@
+**Florida Protects Children From Social Media but Not Measles**\
+`Parents are allowed to let their children infect others with a serious virus.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/florida-measles-social-media
+
+**Marjorie Perloff, Leading Scholar of Avant-Garde Poetry, Dies at 92**\
+`A forceful advocate for experimental poetry, she argued that a critic’s task was not to search for meaning, but to explicate the form and texture of a poem.`\
+https://nytimes.com/2024/03/26/books/marjorie-perloff-dead.html
+
 **Robert F. Kennedy Jr. Announces Running Mate**\
 `Mr. Kennedy named Nicole Shanahan, a Silicon Valley lawyer and investor, as his running mate in his independent presidential bid.`\
 https://nytimes.com/video/us/elections/100000009382010/kennedy-nicole-shanahan.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/03/26/us/politics/trump-gaza.html
 **The Justin Timberlake Conundrum**\
 `His sixth solo album, “Everything I Thought It Was,” has been met with critical dismissal and weaker sales. Where can the onetime pop superstar turn next?`\
 https://nytimes.com/2024/03/26/arts/music/popcast-justin-timberlake.html
-
-**Trump’s Newest Venture? A $60 Bible.**\
-`His Bible sales pitch comes as he appears to be confronting a significant financial squeeze, with his legal fees growing while he fights a number of criminal cases and lawsuits.`\
-https://nytimes.com/2024/03/26/us/politics/trump-bible.html
-
-**First Asian American ‘Bachelorette,’ Jenn Tran, Cast by ABC**\
-`The dating franchise, which has been criticized for its handling of race, has cast its first Asian American lead after more than 20 years on air.`\
-https://nytimes.com/2024/03/26/style/bachelorette-jenn-tran-abc-asian-american.html
 
