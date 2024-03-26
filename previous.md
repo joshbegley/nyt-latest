@@ -1,3 +1,7 @@
+**Texas Attorney General Ken Paxton Reaches Deal to Avoid Criminal Trial**\
+`Nearly a decade after his indictment for securities fraud, Mr. Paxton will pay restitution, take legal ethics classes and do community service as part of an agreement with prosecutors.`\
+https://nytimes.com/2024/03/26/us/politics/texas-attorney-general-ken-paxton-texas-plea-deal-securities-fraud.html
+
 **Gazans Drown Trying to Retrieve Airdropped Aid, Authorities Say**\
 `People entered the water from a beach in northern Gaza, and around a dozen drowned, according to a local researcher who spoke to witnesses.`\
 https://nytimes.com/2024/03/26/world/middleeast/gaza-aid-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/nyregion/eric-adams-police-subway.html
 **The court has generally supported the F.D.A.’s authority on drug safety.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/the-court-has-generally-supported-the-fdas-authority-on-drug-safety
-
-**The Impressionists’ First Flowering Is Still Fresh After 150 Years**\
-`Their paintings emerged from a specific historical and artistic moment, yet they still resonate today, as a blockbuster Paris exhibition shows.`\
-https://nytimes.com/2024/03/26/arts/design/impressionism-exhibition-musee-d-orsay-paris.html
 

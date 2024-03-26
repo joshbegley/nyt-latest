@@ -1,3 +1,7 @@
+**Texas Attorney General Ken Paxton Reaches Deal to Avoid Criminal Trial**\
+`Nearly a decade after his indictment for securities fraud, Mr. Paxton will pay restitution, take legal ethics classes and do community service as part of an agreement with prosecutors.`\
+https://nytimes.com/2024/03/26/us/politics/texas-attorney-general-ken-paxton-texas-plea-deal-securities-fraud.html
+
 **Gazans Drown Trying to Retrieve Airdropped Aid, Authorities Say**\
 `People entered the water from a beach in northern Gaza, and around a dozen drowned, according to a local researcher who spoke to witnesses.`\
 https://nytimes.com/2024/03/26/world/middleeast/gaza-aid-death.html
