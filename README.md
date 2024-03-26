@@ -1,3 +1,23 @@
+**Why BlackRock’s C.E.O. Wants to Rethink Retirement**\
+`Larry Fink, who leads the world’s biggest asset manager, warns in his annual investor letter that an aging population will soon pose huge economic troubles.`\
+https://nytimes.com/2024/03/26/business/dealbook/blackrock-fink-letter-retirement.html
+
+**Maryland’s transportation secretary calls the collapse ‘catastrophic.’**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/marylands-transportation-secretary-calls-the-collapse-catastrophic
+
+**Bolsonaro Faces New Legal Jeopardy After Stay at Hungarian Embassy**\
+`The Brazilian Supreme Court and the federal police are demanding answers from former President Jair Bolsonaro after a New York Times investigation.`\
+https://nytimes.com/2024/03/26/world/americas/bolsonaro-brazil-hungary-embassy.html
+
+**Weekly Student News Quiz: Israel-Hamas War, Medical Breakthrough, Apple**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/03/26/learning/26StudentNewsQuiz.html
+
+**How the Key Bridge Collapsed in Baltimore: Maps and Photos**\
+`A major bridge in Baltimore collapsed after being struck by a cargo ship early Tuesday, sending vehicles plunging into the water and setting off an emergency response.`\
+https://nytimes.com/interactive/2024/03/26/us/baltimore-key-bridge-collapse-maps.html
+
 **Domestic politics drive the deep divisions between Biden and Netanyahu.**\
 `By Steven Erlanger`\
 https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/domestic-politics-drive-the-deep-divisions-between-biden-and-netanyahu
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/the-politic
 **Trump’s Financial Squeeze**\
 `How the former president’s legal troubles might affect his campaign.`\
 https://nytimes.com/2024/03/26/briefing/trump-legal-cases-presidential-election.html
-
-**Baltimore Bridge Collapses After Hit by Ship**\
-`A livestream showed the moment part of the Francis Scott Key Bridge fell after it was struck by a cargo ship early Tuesday.`\
-https://nytimes.com/video/us/100000009380716/baltimore-bridge-collapse.html
-
-**Abortion Is Back in Front of the Supreme Court, and a Baltimore Bridge Collapses**\
-`Plus, a revolt at NBC.`\
-https://nytimes.com/2024/03/26/podcasts/abortion-pill-bridge.html
-
-**The United States vs. the iPhone**\
-`Washington’s crackdown on Big Tech is coming for Apple.`\
-https://nytimes.com/2024/03/26/podcasts/the-daily/apple-lawsuit.html
-
-**The Key Bridge was named after the national anthem’s author.**\
-`Francis Scott Key was believed to be near the site when he observed a British bombardment during the War of 1812.`\
-https://nytimes.com/2024/03/26/us/francis-scott-key-bridge-baltimore-history.html
-
-**The Dali was just starting a 27-day voyage.**\
-`The ship had spent two days in Baltimore’s port before setting off.`\
-https://nytimes.com/2024/03/26/us/dali-ship-baltimore-bridge.html
 
