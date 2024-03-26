@@ -1,3 +1,15 @@
+**What’s Going on With Legal Marijuana in New York?**\
+`Get up to speed on the state’s nascent cannabis industry with the New York Times reporter who covers it.`\
+https://nytimes.com/2024/03/26/insider/marijuana-in-new-york.html
+
+**The Islamic State Claimed the Moscow Attack. The Kremlin Is Still Blaming Others.**\
+`Russian narratives served to deflect attention from the failure to prevent the deadly attack while rallying the country behind the war in Ukraine.`\
+https://nytimes.com/2024/03/26/business/media/moscow-attack-narratives.html
+
+**How Ronna McDaniel Backed Trump’s Early Bid to Hold Power**\
+`Since signing on with NBC, the former Republican Party leader has downplayed her role in efforts to overturn the 2020 election. A review of the record showed she was closely involved in some key episodes.`\
+https://nytimes.com/2024/03/26/us/politics/ronna-mcdaniel-trump-nbc.html
+
 **Biden, Interrupted by Gaza Protesters, Says They ‘Have a Point’**\
 `After his event in North Carolina was disrupted by demonstrators, the president said that “we need to get a lot more care into Gaza.”`\
 https://nytimes.com/2024/03/26/us/politics/biden-gaza-protesters.html

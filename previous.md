@@ -1,3 +1,15 @@
+**What’s Going on With Legal Marijuana in New York?**\
+`Get up to speed on the state’s nascent cannabis industry with the New York Times reporter who covers it.`\
+https://nytimes.com/2024/03/26/insider/marijuana-in-new-york.html
+
+**The Islamic State Claimed the Moscow Attack. The Kremlin Is Still Blaming Others.**\
+`Russian narratives served to deflect attention from the failure to prevent the deadly attack while rallying the country behind the war in Ukraine.`\
+https://nytimes.com/2024/03/26/business/media/moscow-attack-narratives.html
+
+**How Ronna McDaniel Backed Trump’s Early Bid to Hold Power**\
+`Since signing on with NBC, the former Republican Party leader has downplayed her role in efforts to overturn the 2020 election. A review of the record showed she was closely involved in some key episodes.`\
+https://nytimes.com/2024/03/26/us/politics/ronna-mcdaniel-trump-nbc.html
+
 **Biden, Interrupted by Gaza Protesters, Says They ‘Have a Point’**\
 `After his event in North Carolina was disrupted by demonstrators, the president said that “we need to get a lot more care into Gaza.”`\
 https://nytimes.com/2024/03/26/us/politics/biden-gaza-protesters.html
@@ -21,16 +33,4 @@ https://nytimes.com/live/2024/03/26/opinion/thepoint/florida-measles-social-medi
 **Marjorie Perloff, Leading Scholar of Avant-Garde Poetry, Dies at 92**\
 `A forceful advocate for experimental poetry, she argued that a critic’s task was not to search for meaning, but to explicate the form and texture of a poem.`\
 https://nytimes.com/2024/03/26/books/marjorie-perloff-dead.html
-
-**Robert F. Kennedy Jr. Announces Running Mate**\
-`Mr. Kennedy named Nicole Shanahan, a Silicon Valley lawyer and investor, as his running mate in his independent presidential bid.`\
-https://nytimes.com/video/us/elections/100000009382010/kennedy-nicole-shanahan.html
-
-**‘Titanic’ Door Prop That Saved Rose (Sorry, Jack) Sells for $718,750**\
-`It resembles a famous piece of debris salvaged from the 1912 shipwreck, according to Heritage Auctions, which offered it among a trove of memorabilia from Planet Hollywood.`\
-https://nytimes.com/2024/03/26/arts/planet-hollywood-auction-titanic.html
-
-**Wednesday Briefing: U.S.-Israel Divisions Grow**\
-`Plus, Beyoncé’s country album.`\
-https://nytimes.com/2024/03/26/briefing/us-israel-political-divide-baltimore-bridge-collapse-pakistan-suicide-bomber.html
 
