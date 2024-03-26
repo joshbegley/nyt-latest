@@ -1,3 +1,7 @@
+**Mayor Eric Adams Grapples With Two Shocking Acts of Violence**\
+`The killing of a police officer and a fatal push on the subway underscore the challenges that Mr. Adams faces as he tries to improve public safety.`\
+https://nytimes.com/2024/03/26/nyregion/eric-adams-police-subway.html
+
 **The court has generally supported the F.D.A.’s authority on drug safety.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/the-court-has-generally-supported-the-fdas-authority-on-drug-safety
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/abortion-shie
 **The Best of Late Night, at the Movies and Beyond**\
 `The new horror-thriller “Late Night With the Devil” isn’t the only time late-night hosts, shows and sets become fodder for on-screen moments in film and TV.`\
 https://nytimes.com/2024/03/26/movies/late-night-tv-movies.html
-
-**Russia Digs In on Claim Ukraine and West Were Behind Terrorist Attack**\
-`The head of Russia’s top security agency said, without providing evidence, that the assault was “facilitated by Western special services.” Ukraine has denied involvement, calling the assertions “lies.”`\
-https://nytimes.com/2024/03/26/world/europe/russia-terror-attack-ukraine.html
 
