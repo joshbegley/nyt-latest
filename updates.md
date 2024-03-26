@@ -1,3 +1,7 @@
+**Judge Imposes Gag Order on Trump in Manhattan Criminal Trial**\
+`The order limiting the former president’s speech came the day after Justice Juan M. Merchan set an April 15 trial date for the hush-money case.`\
+https://nytimes.com/2024/03/26/nyregion/trump-trial-gag-order.html
+
 **Big Ships Collide With Bridges Far Too Often**\
 `But there are better ways to protect a bridge like the one that collapsed in Baltimore.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/key-bridge-baltimore-collision

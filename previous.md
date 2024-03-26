@@ -1,3 +1,7 @@
+**Judge Imposes Gag Order on Trump in Manhattan Criminal Trial**\
+`The order limiting the former president’s speech came the day after Justice Juan M. Merchan set an April 15 trial date for the hush-money case.`\
+https://nytimes.com/2024/03/26/nyregion/trump-trial-gag-order.html
+
 **Big Ships Collide With Bridges Far Too Often**\
 `But there are better ways to protect a bridge like the one that collapsed in Baltimore.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/key-bridge-baltimore-collision
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/us/politics/texas-attorney-general-ken-paxton-tex
 **Gazans Drown Trying to Retrieve Airdropped Aid, Authorities Say**\
 `People entered the water from a beach in northern Gaza, and around a dozen drowned, according to a local researcher who spoke to witnesses.`\
 https://nytimes.com/2024/03/26/world/middleeast/gaza-aid-death.html
-
-**Slain Officer Remembered as a Friendly Neighbor With a Promising Future**\
-`Officer Jonathan Diller, who joined the Police Department in February 2021, was fatally shot on Monday after questioning two men sitting in an illegally parked car.`\
-https://nytimes.com/2024/03/26/nyregion/nypd-officer-killed-queens-far-rockaway.html
 
