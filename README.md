@@ -1,7 +1,3 @@
-**How the Key Bridge Collapsed in Baltimore: Maps and Photos**\
-`A major bridge in Baltimore collapsed after being struck by a cargo ship early Tuesday, sending vehicles plunging into the water and setting off an emergency response.`\
-https://nytimes.com/interactive/2024/03/26/us/baltimore-key-bridge-collapse-maps.html
-
 **Domestic politics drive the deep divisions between Biden and Netanyahu.**\
 `By Steven Erlanger`\
 https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/domestic-politics-drive-the-deep-divisions-between-biden-and-netanyahu
@@ -37,4 +33,8 @@ https://nytimes.com/2024/03/26/podcasts/the-daily/apple-lawsuit.html
 **The Key Bridge was named after the national anthem’s author.**\
 `Francis Scott Key was believed to be near the site when he observed a British bombardment during the War of 1812.`\
 https://nytimes.com/2024/03/26/us/francis-scott-key-bridge-baltimore-history.html
+
+**The Dali was just starting a 27-day voyage.**\
+`The ship had spent two days in Baltimore’s port before setting off.`\
+https://nytimes.com/2024/03/26/us/dali-ship-baltimore-bridge.html
 
