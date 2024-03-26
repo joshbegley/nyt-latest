@@ -1,3 +1,7 @@
+**The United States vs. the iPhone**\
+`Washington’s crackdown on Big Tech is coming for Apple.`\
+https://nytimes.com/2024/03/26/podcasts/the-daily/apple-lawsuit.html
+
 **The Key Bridge was named after the national anthem’s author.**\
 `Francis Scott Key was believed to be near the site when he observed a British bombardment during the War of 1812.`\
 https://nytimes.com/2024/03/26/us/francis-scott-key-bridge-baltimore-history.html

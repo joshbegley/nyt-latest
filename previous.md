@@ -1,3 +1,7 @@
+**The United States vs. the iPhone**\
+`Washington’s crackdown on Big Tech is coming for Apple.`\
+https://nytimes.com/2024/03/26/podcasts/the-daily/apple-lawsuit.html
+
 **The Key Bridge was named after the national anthem’s author.**\
 `Francis Scott Key was believed to be near the site when he observed a British bombardment during the War of 1812.`\
 https://nytimes.com/2024/03/26/us/francis-scott-key-bridge-baltimore-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/19/opinion/thepoint/deepfake-porn
 **‘Shogun’ Episode 6 Recap: Know Your Enemy**\
 `Lord Toranaga finally gets a worthy opponent, while Lady Mariko’s true mission is revealed.`\
 https://nytimes.com/2024/03/26/arts/television/shogun-episode-6-recap-willow-world.html
-
-**Is Humanity Out of Fashion?**\
-`Designer change at Valentino and Dries Van Noten raises the question.`\
-https://nytimes.com/2024/03/26/style/valentino-dries-van-noten-humanity-fashion.html
 
