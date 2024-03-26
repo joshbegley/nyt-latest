@@ -26,8 +26,8 @@ https://nytimes.com/2024/03/26/us/politics/trump-haley-gop-voters.html
 `What new research on the avian brain and REM sleep in birds might reveal about our own dream lives.`\
 https://nytimes.com/2024/03/26/science/birds-dreaming-rem-sleep.html
 
-**Cargo Ship Hits Major Bridge in Baltimore**\
-`The Singapore-flagged vessel struck the Francis Scott Key Bridge, the Coast Guard said. The extent of the damage to the bridge, part of Interstate 695, was not immediately clear.`\
+**Cargo Ship Hits Key Bridge in Baltimore, Triggering Partial Collapse**\
+`The Singapore-flagged vessel struck the Francis Scott Key Bridge, the Coast Guard said. Authorities said that part of the span had collapsed.`\
 https://nytimes.com/2024/03/26/us/ship-hits-baltimore-key-bridge.html
 
 **Word of the Day: inexorably**\
