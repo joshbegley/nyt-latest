@@ -1,3 +1,7 @@
+**Cargo Ship Hits Major Bridge in Baltimore**\
+`The Singapore-flagged vessel struck the Francis Scott Key Bridge, the Coast Guard said. The extent of the damage to the bridge, part of Interstate 695, was not immediately clear.`\
+https://nytimes.com/2024/03/26/us/ship-hits-baltimore-key-bridge.html
+
 **Late Night Doesn’t Think Trump’s Good News Is All That Good**\
 `“It’s the first time someone’s ever heard, ‘Good news, you only owe $175 million,’” Jimmy Fallon said after the ex-president’s bond was reduced.`\
 https://nytimes.com/2024/03/26/arts/television/late-night-donald-trumps-fraud-case.html
