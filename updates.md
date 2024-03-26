@@ -1,3 +1,7 @@
+**Ship Hits Major Bridge in Baltimore**\
+`The ship struck the Francis Scott Key Bridge, the Coast Guard said. The extent of the damage was not immediately clear.`\
+https://nytimes.com/2024/03/26/us/ship-hits-baltimore-key-bridge.html
+
 **Hong Kongers Are Purging the Evidence of Their Lost Freedom**\
 `As Beijing cracks down, Hong Kongers are purging evidence of their lost liberties.`\
 https://nytimes.com/2024/03/26/opinion/hong-kong-law-freedom.html
