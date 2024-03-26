@@ -10,7 +10,7 @@ https://nytimes.com/2024/03/25/us/politics/larry-householder-ohio-speaker-charge
 `One court offered Donald J. Trump a financial lifeline. Another set him on a path to prosecution. It was a taste of what America will experience until the November election.`\
 https://nytimes.com/2024/03/25/nyregion/trump-hush-money-fraud-case.html
 
-**Man Killed by Train After Being Pushed Onto Subway Tracks, Police Say**\
+**Man Killed by No. 4 Train After He Is Pushed Onto Subway Tracks**\
 `The attack at 125th Street in East Harlem was unprovoked, a police spokeswoman said, and a man is in custody.`\
 https://nytimes.com/2024/03/25/nyregion/subway-shoving-manhattan.html
 
