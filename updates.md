@@ -1,3 +1,7 @@
+**Israel Presses On With Strikes in Gaza After U.N. Cease-Fire Resolution**\
+`Its military said fighter jets had struck “over 60 targets” in the previous day. There were reports of strikes on residential buildings near Al-Shifa Hospital in the north and elsewhere.`\
+https://nytimes.com/2024/03/26/world/middleeast/israel-strikes-gaza-un-cease-fire-resolution.html
+
 **Why BlackRock’s C.E.O. Wants to Rethink Retirement**\
 `Larry Fink, who leads the world’s biggest asset manager, warns in his annual investor letter that an aging population will soon pose huge economic troubles.`\
 https://nytimes.com/2024/03/26/business/dealbook/blackrock-fink-letter-retirement.html
