@@ -8,7 +8,7 @@ https://nytimes.com/2024/03/26/opinion/russia-shooting-concert-terrorism.html
 
 **For many in Baltimore, the Key was the city’s ‘blue collar’ bridge.**\
 `By Campbell Robertson and JoAnna Daemmrich`\
-https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/for-many-in-baltimore-the-key-was-the-citys-blue-collar-bridge
+https://nytimes.com/2024/03/26/us/for-many-in-baltimore-the-key-was-the-citys-blue-collar-bridge.html
 
 **Missing employees were working to support their families, a co-worker says.**\
 `An executive at the construction company told The Associated Press that the six employees who went into the river were presumed dead.`\
