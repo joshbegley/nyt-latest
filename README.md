@@ -1,3 +1,11 @@
+**Hong Kongers Now Only Whisper About Freedom**\
+`As Beijing cracks down, Hong Kongers are purging evidence of their lost liberties.`\
+https://nytimes.com/2024/03/26/opinion/hong-kong-law-freedom.html
+
+**There Is No Easy Way to Go Public About Cancer**\
+`How does a newly diagnosed patient balance privacy with public honesty?`\
+https://nytimes.com/2024/03/26/opinion/cancer-kate-middleton-privacy.html
+
 **Why Are China’s Nationalists Attacking the Country’s Heroes?**\
 `Online vitriol has targeted the country’s richest man, erasing billions of dollars of his company’s market value, despite Beijing’s courtship of entrepreneurs.`\
 https://nytimes.com/2024/03/26/world/asia/china-nationalists-online-attacks.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/26/business/in-france-the-future-is-arriving-on-a-ba
 **Display of Battered Men Was Russia’s Warning to the Public, Analysts Say**\
 `Videos showing the torture of four men, accused of Russia’s deadliest terror attack in decades, have circulated widely in what analysts call a sign of the Russian state’s growing tolerance for public violence.`\
 https://nytimes.com/2024/03/26/world/europe/russia-terror-attack-torture.html
-
-**Mayor Speaks After Police Officer Shot and Killed in Queens**\
-`Police and city officials expressed their condolences at the loss of Jonathan Diller, who was shot during a traffic stop.`\
-https://nytimes.com/video/nyregion/newyorktoday/100000009380590/nyc-police-officer-shot-queens.html
-
-**Man Who Threatened to Kill Arizona Official Over Election Gets 2½ Years in Prison**\
-`Joshua Russell, 46, of Ohio, left threatening messages for Katie Hobbs in 2022, when she was Arizona’s secretary of state and successfully ran for governor.`\
-https://nytimes.com/2024/03/25/us/katie-hobbs-arizona-election-threats-sentence.html
 
