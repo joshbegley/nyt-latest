@@ -1,5 +1,9 @@
 **The Dali was just starting a 27-day voyage.**\
 `The ship had spent two days in Baltimore’s port before setting off.`\
+https://nytimes.com/2024/03/26/us/dali-ship-baltimore-bridge.html
+
+**The Dali was just starting a 27-day voyage.**\
+`The ship had spent two days in Baltimore’s port before setting off.`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/dali-ship-baltimore-bridge
 
 **The Dali was just starting a 27-day voyage.**\

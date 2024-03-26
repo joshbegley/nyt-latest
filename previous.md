@@ -1,6 +1,6 @@
 **The Dali was just starting a 27-day voyage.**\
 `The ship had spent two days in Baltimore’s port before setting off.`\
-https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/dali-ship-baltimore-bridge
+https://nytimes.com/2024/03/26/us/dali-ship-baltimore-bridge.html
 
 **No One Is Above the Law, Except, Apparently, Donald Trump**\
 `If there seems to be a different set of rules for the former president, that’s because, for all intents and purposes, there is.`\
