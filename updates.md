@@ -1,3 +1,7 @@
+**The political leader of Hamas goes to Iran for talks, state media reports.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/the-political-leader-of-hamas-goes-to-iran-for-talks-state-media-reports
+
 **Trump’s Financial Squeeze**\
 `How the former president’s legal troubles might affect his campaign.`\
 https://nytimes.com/2024/03/26/briefing/trump-legal-cases-presidential-election.html
