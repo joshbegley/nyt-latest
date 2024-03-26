@@ -1,3 +1,7 @@
+**Ship Hits Major Bridge in Baltimore**\
+`The ship struck the Francis Scott Key Bridge, the Coast Guard said. The extent of the damage was not immediately clear.`\
+https://nytimes.com/2024/03/26/us/ship-hits-baltimore-key-bridge.html
+
 **Word of the Day: inexorably**\
 `This word has appeared in 49 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/26/word-of-the-day-inexorably.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/world/europe/julian-assange-extradition-us.html
 **Who Could Sway the Outcome of the U.S. Election? Mexico’s President**\
 `Immigration is a key issue for voters in the U.S. election, giving Mexico immense power to potentially shape the vote.`\
 https://nytimes.com/2024/03/26/world/americas/mexico-biden-migration-border.html
-
-**A French-Malian Singer Is Caught in an Olympic Storm**\
-`Aya Nakamura’s music is one of France’s top cultural exports. But reports that she might perform at the Paris Games have prompted fierce debates over identity and language.`\
-https://nytimes.com/2024/03/26/world/europe/france-olympics-aya-nakamura.html
 
