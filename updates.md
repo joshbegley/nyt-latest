@@ -1,3 +1,7 @@
+**Assange Extradition On Hold Until U.S. Gives More Assurances**\
+`The WikiLeaks founder has been in a London prison since 2019. Judges asked the U.S., which wants to try him on espionage charges, for more guarantees about his treatment.`\
+https://nytimes.com/2024/03/26/world/europe/julian-assange-uk-court-us-extradition.html
+
 **The political leader of Hamas goes to Iran for talks, state media reports.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/the-political-leader-of-hamas-goes-to-iran-for-talks-state-media-reports
