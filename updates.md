@@ -1,3 +1,11 @@
+**Governors Island Taps New Head Curator**\
+`Lauren Haynes brings her curatorial expertise to the goal of growing Governors Island’s public art program.`\
+https://nytimes.com/2024/03/26/arts/design/lauren-haynes-governors-island-curator.html
+
+**Yes, abortion pills are safe. Here’s what studies have shown.**\
+`The latest research adds to an extensive scientific record showing the pills are a safe option for terminating a pregnancy.`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/yes-abortion-pills-are-safe-heres-what-studies-have-shown
+
 **The U.S. Investors Caught in the Scrum Over TikTok**\
 `Major U.S. investment firms such as General Atlantic, Susquehanna and Sequoia Capital own stakes in ByteDance, the parent of TikTok. Their investments are increasingly under fire.`\
 https://nytimes.com/2024/03/26/technology/tiktok-investors-bytedance.html
