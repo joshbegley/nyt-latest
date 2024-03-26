@@ -1,3 +1,7 @@
+**Slain Officer Remembered as a Friendly Neighbor With a Promising Future**\
+`Officer Jonathan Diller, who joined the Police Department in February 2021, was fatally shot on Monday after questioning two men sitting in an illegally parked car.`\
+https://nytimes.com/2024/03/26/nyregion/nypd-officer-killed-queens-far-rockaway.html
+
 **Lee Berry, Black Panther in a ‘Radical Chic’ Time, Dies at 78**\
 `He was one of the prosecuted Panther 21 in New York, and his account of abuse in jail was a catalyst for Leonard Bernstein’s famous Park Avenue fund-raising party.`\
 https://nytimes.com/2024/03/26/nyregion/lee-berry-dead.html
