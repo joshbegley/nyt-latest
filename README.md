@@ -1,3 +1,15 @@
+**Biden’s Challenges in Reaching Young Voters on TikTok Include Anger Over Gaza**\
+`For his campaign, navigating the platform has meant encountering over and over some of the thorniest issues plaguing Mr. Biden’s re-election bid.`\
+https://nytimes.com/2024/03/26/us/politics/biden-tiktok-voters.html
+
+**Can Weed Improve a Workout?**\
+`Some exercisers say cannabis eases their pain and anxiety — and makes fitness more fun.`\
+https://nytimes.com/2024/03/26/well/move/weed-exercise-cannabis-workout.html
+
+**Recent collapses raise questions on bridges and modern shipping.**\
+`By Keith Bradsher`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/recent-collapses-raise-questions-on-bridges-and-modern-shipping
+
 **A New Law Would Remove Many Architectural Protections in Miami Beach**\
 `Lawmakers say preservationists held too much power over decisions on whether buildings should be demolished and what should be allowed to replace them.`\
 https://nytimes.com/2024/03/26/realestate/miami-beach-building-preservation-florida.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/solicitor-gen
 **Governors Island Taps New Head Curator**\
 `Lauren Haynes brings her curatorial expertise to the goal of growing Governors Island’s public art program.`\
 https://nytimes.com/2024/03/26/arts/design/lauren-haynes-governors-island-curator.html
-
-**Yes, abortion pills are safe. Here’s what studies have shown.**\
-`The latest research adds to an extensive scientific record showing the pills are a safe option for terminating a pregnancy.`\
-https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/yes-abortion-pills-are-safe-heres-what-studies-have-shown
-
-**The U.S. Investors Caught in the Scrum Over TikTok**\
-`Major U.S. investment firms such as General Atlantic, Susquehanna and Sequoia Capital own stakes in ByteDance, the parent of TikTok. Their investments are increasingly under fire.`\
-https://nytimes.com/2024/03/26/technology/tiktok-investors-bytedance.html
-
-**2023 was a landmark year for abortion bills in states. 2024, not so much.**\
-`By David W. Chen`\
-https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/2023-was-a-landmark-year-for-abortion-bills-in-states-2024-not-so-much
 
