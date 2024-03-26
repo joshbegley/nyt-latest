@@ -1,3 +1,7 @@
+**The ship’s mayday call prompted officials to stop traffic to the bridge.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/the-ships-mayday-call-prompted-officials-to-stop-traffic-to-the-bridge
+
 **State constitutions are another battleground in the fight over abortion.**\
 `By Kate Zernike`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/state-constitutions-are-another-battleground-in-the-fight-over-abortion
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/erin-hawley-i
 **Biden’s Challenges in Reaching Young Voters on TikTok Include Anger Over Gaza**\
 `For his campaign, navigating the platform has meant encountering over and over some of the thorniest issues plaguing Mr. Biden’s re-election bid.`\
 https://nytimes.com/2024/03/26/us/politics/biden-tiktok-voters.html
-
-**Can Weed Improve a Workout?**\
-`Some exercisers say cannabis eases their pain and anxiety — and makes fitness more fun.`\
-https://nytimes.com/2024/03/26/well/move/weed-exercise-cannabis-workout.html
 
