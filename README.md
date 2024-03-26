@@ -1,3 +1,11 @@
+**An ‘Irish Heiress’ Conned Him. He Started a Podcast to Track Her Down.**\
+`Marianne Smyth was convicted of grand theft after she claimed that her family had cut her out of an inheritance. She faces extradition to Northern Ireland on separate fraud and theft charges.`\
+https://nytimes.com/2024/03/26/us/irish-heiress-marianne-smyth-con.html
+
+**Why Has Obamacare Worked?**\
+`How a much-maligned health reform defied the doomsayers.`\
+https://nytimes.com/2024/03/26/opinion/obamacare-health-care-aca.html
+
 **Activists Clash in Front of Supreme Court Over Abortion Pill Case**\
 `Thirteen abortion-rights protesters were arrested as part of a civil disobedience action. Abortion opponents were less numerous but still vocal.`\
 https://nytimes.com/2024/03/26/us/politics/supreme-court-protests-abortion-pill.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/26/arts/music/amplifier-newsletter-joni-mitchell-son
 **Why Palm Oil Is Still a Big Problem**\
 `The ubiquitous ingredient contributes to the loss of tropical forests.`\
 https://nytimes.com/2024/03/26/climate/why-palm-oil-is-still-a-big-problem.html
-
-**A British Scandal Intrigued J.T. Rogers, Then He Went Down the Rabbit Hole**\
-`The playwright thought News International’s phone-hacking scandal could make for a sweeping thriller. Twelve years later, here it is.`\
-https://nytimes.com/2024/03/26/theater/jt-rogers-corruption-phone-hacking.html
-
-**In the Former Nobu Space, Beefbar Lives Up to Its Name**\
-`A seafood bar opens above Claud, the former chef of Maharlika and Jeepney turns to Italian cuisine, and more restaurant news.`\
-https://nytimes.com/2024/03/26/dining/nyc-restaurant-news.html
 
