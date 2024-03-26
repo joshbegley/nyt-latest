@@ -1,3 +1,7 @@
+**Trump’s Financial Squeeze**\
+`How the former president’s legal troubles might affect his campaign.`\
+https://nytimes.com/2024/03/26/briefing/trump-legal-cases-presidential-election.html
+
 **Baltimore Bridge Collapses After Hit by Ship**\
 `A livestream showed the moment part of the Francis Scott Key Bridge fell after it was struck by a cargo ship early Tuesday.`\
 https://nytimes.com/video/us/100000009380716/baltimore-bridge-collapse.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/us/politics/biden-health-care-north-carolina.html
 **Lofty Valuation Carries Trump’s Social Media Company Into First Trading Day**\
 `Trump Media & Technology Group, fresh from a merger with a cash-rich shell company, is set to trade Tuesday on the Nasdaq, adding billions of dollars to the former president’s wealth.`\
 https://nytimes.com/2024/03/26/business/lofty-valuation-carries-trumps-social-media-company-into-first-trading-day.html
-
-**Supreme Court Poised to Hear Arguments About Abortion Pill Access**\
-`The justices’ decision could cut off prescriptions by telemedicine and pills sent by mail, and also have implications for the regulatory authority of the F.D.A.`\
-https://nytimes.com/2024/03/26/us/politics/supreme-court-abortion-pill-hearing.html
 
