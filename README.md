@@ -1,3 +1,7 @@
+**The political leader of Hamas goes to Iran for talks, state media reports.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/the-political-leader-of-hamas-goes-to-iran-for-talks-state-media-reports
+
 **Trump’s Financial Squeeze**\
 `How the former president’s legal troubles might affect his campaign.`\
 https://nytimes.com/2024/03/26/briefing/trump-legal-cases-presidential-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/us/politics/rfk-jr-vice-president-nicole-shanahan
 **Biden Makes Health Care a Focus With North Carolina Visit**\
 `The White House plans to use the 14th anniversary of the Affordable Care Act to draw a contrast with Republicans who have sought to do away with all or parts of the law.`\
 https://nytimes.com/2024/03/26/us/politics/biden-health-care-north-carolina.html
-
-**Lofty Valuation Carries Trump’s Social Media Company Into First Trading Day**\
-`Trump Media & Technology Group, fresh from a merger with a cash-rich shell company, is set to trade Tuesday on the Nasdaq, adding billions of dollars to the former president’s wealth.`\
-https://nytimes.com/2024/03/26/business/lofty-valuation-carries-trumps-social-media-company-into-first-trading-day.html
 
