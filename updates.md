@@ -1,3 +1,7 @@
+**What Does It Mean When a ‘State of Emergency’ Is Declared?**\
+`States of emergency are often in effect for catastrophic weather, but they are also used in many other situations.`\
+https://nytimes.com/2024/03/26/us/state-of-emergency-maryland-bridge-collapse.html
+
 **An Anti-Abortion Case Too Far-Fetched for the Supreme Court**\
 `Even conservative justices seemed skeptical that the plaintiffs suffered any real harm.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/abortion-mifepristone-supreme-court

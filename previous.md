@@ -1,3 +1,7 @@
+**What Does It Mean When a ‘State of Emergency’ Is Declared?**\
+`States of emergency are often in effect for catastrophic weather, but they are also used in many other situations.`\
+https://nytimes.com/2024/03/26/us/state-of-emergency-maryland-bridge-collapse.html
+
 **An Anti-Abortion Case Too Far-Fetched for the Supreme Court**\
 `Even conservative justices seemed skeptical that the plaintiffs suffered any real harm.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/abortion-mifepristone-supreme-court
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/arts/music/sinead-oconnor-tribute-christeene.html
 **G.O.P. Aide Drops Groping Lawsuit Against Matt Schlapp, a Powerful Conservative**\
 `The aide, Carlton Huffman, said the allegations were a misunderstanding and that he has not been paid by Mr. Schlapp or his group, the American Conservative Union.`\
 https://nytimes.com/2024/03/26/us/politics/matt-schlapp-groping-lawsuit.html
-
-**An ‘Irish Heiress’ Conned Him. He Started a Podcast to Track Her Down.**\
-`Marianne Smyth was convicted of grand theft after she claimed that her family had cut her out of an inheritance. She faces extradition to Northern Ireland on separate fraud and theft charges.`\
-https://nytimes.com/2024/03/26/us/irish-heiress-marianne-smyth-con.html
 
