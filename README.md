@@ -1,3 +1,7 @@
+**On the issue of abortion, Democrats see a political winner. Republicans see more of a puzzle.**\
+`Republican strategists and officials acknowledge that the politics have shifted rapidly against them after the Supreme Court overturned Roe v. Wade in 2022.`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/on-the-issue-of-abortion-democrats-see-a-political-winner-republicans-see-more-of-a-puzzle
+
 **The ship’s mayday call prompted officials to stop traffic to the bridge.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/the-ships-mayday-call-prompted-officials-to-stop-traffic-to-the-bridge
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/dining/the-rice-bowl-you-need-for-dinner.html
 **Erin Hawley is fighting the availability of the abortion pill.**\
 `By Elizabeth Dias and Abbie VanSickle`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/erin-hawley-is-fighting-the-availability-of-the-abortion-pill
-
-**Biden’s Challenges in Reaching Young Voters on TikTok Include Anger Over Gaza**\
-`For his campaign, navigating the platform has meant encountering over and over some of the thorniest issues plaguing Mr. Biden’s re-election bid.`\
-https://nytimes.com/2024/03/26/us/politics/biden-tiktok-voters.html
 
