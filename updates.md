@@ -1,3 +1,7 @@
+**Abortion Is Back in Front of the Supreme Court, and a Baltimore Bridge Collapses**\
+`Plus, a revolt at NBC.`\
+https://nytimes.com/2024/03/26/podcasts/abortion-pill-trump.html
+
 **The United States vs. the iPhone**\
 `Washington’s crackdown on Big Tech is coming for Apple.`\
 https://nytimes.com/2024/03/26/podcasts/the-daily/apple-lawsuit.html

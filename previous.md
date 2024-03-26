@@ -1,3 +1,7 @@
+**Abortion Is Back in Front of the Supreme Court, and a Baltimore Bridge Collapses**\
+`Plus, a revolt at NBC.`\
+https://nytimes.com/2024/03/26/podcasts/abortion-pill-trump.html
+
 **The United States vs. the iPhone**\
 `Washington’s crackdown on Big Tech is coming for Apple.`\
 https://nytimes.com/2024/03/26/podcasts/the-daily/apple-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/us/politics/supreme-court-abortion-pill-hearing.h
 **What Most Surprised Us About the Outbreak of Deepfake Porn**\
 `We’ve effectively armed predators and exploitative companies with artificial intelligence but denied victims any defense.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/deepfake-porn
-
-**‘Shogun’ Episode 6 Recap: Know Your Enemy**\
-`Lord Toranaga finally gets a worthy opponent, while Lady Mariko’s true mission is revealed.`\
-https://nytimes.com/2024/03/26/arts/television/shogun-episode-6-recap-willow-world.html
 
