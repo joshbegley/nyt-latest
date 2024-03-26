@@ -1,3 +1,7 @@
+**Abortion shield laws are creating a clash among states.**\
+`By Pam Belluck`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/abortion-shield-laws-are-creating-a-clash-among-states
+
 **The Best of Late Night, at the Movies and Beyond**\
 `The new horror-thriller “Late Night With the Devil” isn’t the only time late-night hosts, shows and sets become fodder for on-screen moments in film and TV.`\
 https://nytimes.com/2024/03/26/movies/late-night-tv-movies.html
