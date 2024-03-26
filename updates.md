@@ -1,3 +1,15 @@
+**Abortion pills were a political target before the Supreme Court overturned Roe v. Wade.**\
+`By Kate Zernike`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/abortion-pills-were-a-political-target-before-the-supreme-court-overturned-roe-v-wade
+
+**‘The Truth vs. Alex Jones’ Review: The Power of Parents**\
+`Directed by Dan Reed (“Leaving Neverland”), the documentary offers a lesson in how conspiracy theories work and shows how parents confronted Jones in court.`\
+https://nytimes.com/2024/03/26/movies/the-truth-vs-alex-jones-review.html
+
+**Bridge Collapse in Baltimore Puts an Election Year Spotlight on Infrastructure**\
+`President Biden, who has been briefed on the emergency, will have another high-profile opportunity to demonstrate how his administration responds to a major civic calamity.`\
+https://nytimes.com/2024/03/26/us/politics/biden-baltimore-bridge-collapse-infrastructure.html
+
 **Solicitor General Elizabeth Prelogar is representing the Justice Department.**\
 `By Katie Benner`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/solicitor-general-elizabeth-prelogar-is-representing-the-justice-department
