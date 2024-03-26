@@ -1,3 +1,15 @@
+**Richard Serra, Who Recast Sculpture on a Massive Scale, Dies at 85**\
+`His tilted walls of rusting steel, monumental blocks and other immense and inscrutable forms created environments that had to be walked through, or around, to be fully experienced.`\
+https://nytimes.com/2024/03/26/arts/richard-serra-dead.html
+
+**Who Is Blowing Up Russia?**\
+`There are two plausible theories for who’s behind the terrorist attack in Russia. Both are terrifying.`\
+https://nytimes.com/2024/03/26/opinion/russia-shooting-concert-terrorism.html
+
+**For many in Baltimore, the Key was the city’s ‘blue collar’ bridge.**\
+`By Campbell Robertson and JoAnna Daemmrich`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/for-many-in-baltimore-the-key-was-the-citys-blue-collar-bridge
+
 **Missing employees were working to support their families, a co-worker says.**\
 `An executive at the construction company told The Associated Press that the six employees who went into the river were presumed dead.`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/missing-workers-baltimore-bridge-collapse
@@ -21,16 +33,4 @@ https://nytimes.com/2024/03/26/business/media/moscow-attack-narratives.html
 **How Ronna McDaniel Backed Trump’s Early Bid to Hold Power**\
 `During a very brief tenure at NBC News, the former Republican Party leader downplayed her role in efforts to overturn the 2020 election. A review of the record showed she was involved in some key episodes.`\
 https://nytimes.com/2024/03/26/us/politics/ronna-mcdaniel-trump-nbc.html
-
-**Biden, Interrupted by Gaza Protesters, Says They ‘Have a Point’**\
-`After his event in North Carolina was disrupted by demonstrators, the president said that “we need to get a lot more care into Gaza.”`\
-https://nytimes.com/2024/03/26/us/politics/biden-gaza-protesters.html
-
-**Sean Combs’s Lawyer Says Rap Mogul Faced ‘Unprecedented Ambush’**\
-`A day after two of the entertainment executive’s homes were raided by federal agents from Homeland Security Investigations, his lawyer said his client is innocent.`\
-https://nytimes.com/2024/03/26/arts/music/diddy-sean-combs-raid-statement.html
-
-**Engineers Are Raising Questions About Piers Supporting Baltimore Bridge**\
-`In reviewing images of the Francis Scott Key Bridge, some structural engineers said it appeared to lack protective barriers for the piers that are essential to its structural integrity.`\
-https://nytimes.com/2024/03/26/us/baltimore-key-bridge-structure-support-pier.html
 

@@ -1,3 +1,15 @@
+**Richard Serra, Who Recast Sculpture on a Massive Scale, Dies at 85**\
+`His tilted walls of rusting steel, monumental blocks and other immense and inscrutable forms created environments that had to be walked through, or around, to be fully experienced.`\
+https://nytimes.com/2024/03/26/arts/richard-serra-dead.html
+
+**Who Is Blowing Up Russia?**\
+`There are two plausible theories for who’s behind the terrorist attack in Russia. Both are terrifying.`\
+https://nytimes.com/2024/03/26/opinion/russia-shooting-concert-terrorism.html
+
+**For many in Baltimore, the Key was the city’s ‘blue collar’ bridge.**\
+`By Campbell Robertson and JoAnna Daemmrich`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/for-many-in-baltimore-the-key-was-the-citys-blue-collar-bridge
+
 **Missing employees were working to support their families, a co-worker says.**\
 `An executive at the construction company told The Associated Press that the six employees who went into the river were presumed dead.`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/missing-workers-baltimore-bridge-collapse
