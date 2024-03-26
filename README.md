@@ -1,3 +1,11 @@
+**Domestic politics drive the deep divisions between Biden and Netanyahu.**\
+`By Steven Erlanger`\
+https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/domestic-politics-drive-the-deep-divisions-between-biden-and-netanyahu
+
+**Baltimore’s port handled a record amount of cargo last year.**\
+`The port, the 11th in the United States,`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/baltimores-port-handled-a-record-amount-of-cargo-last-year
+
 **Assange Extradition On Hold Until U.S. Gives More Assurances**\
 `The WikiLeaks founder has been in a London prison since 2019. Judges asked the U.S., which wants to try him on espionage charges, for more guarantees about his treatment.`\
 https://nytimes.com/2024/03/26/world/europe/julian-assange-uk-court-us-extradition.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/26/us/francis-scott-key-bridge-baltimore-history.htm
 **The Dali was just starting a 27-day voyage.**\
 `The ship had spent two days in Baltimore’s port before setting off.`\
 https://nytimes.com/2024/03/26/us/dali-ship-baltimore-bridge.html
-
-**No One Is Above the Law, Except, Apparently, Donald Trump**\
-`If there seems to be a different set of rules for the former president, that’s because, for all intents and purposes, there is.`\
-https://nytimes.com/2024/03/26/opinion/trump-trials-bond-invincibility.html
-
-**R.F.K. Jr. Is Expected to Name Nicole Shanahan as His Running Mate**\
-`Mr. Kennedy, the independent presidential candidate, is expected to announce Ms. Shanahan, a wealthy Silicon Valley lawyer, as his vice-presidential pick on Tuesday in Oakland, Calif.`\
-https://nytimes.com/2024/03/26/us/politics/rfk-jr-vice-president-nicole-shanahan.html
 
