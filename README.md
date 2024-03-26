@@ -1,3 +1,11 @@
+**Governors Island Taps New Head Curator**\
+`Lauren Haynes brings her curatorial expertise to the goal of growing Governors Island’s public art program.`\
+https://nytimes.com/2024/03/26/arts/design/lauren-haynes-governors-island-curator.html
+
+**Yes, abortion pills are safe. Here’s what studies have shown.**\
+`The latest research adds to an extensive scientific record showing the pills are a safe option for terminating a pregnancy.`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/yes-abortion-pills-are-safe-heres-what-studies-have-shown
+
 **The U.S. Investors Caught in the Scrum Over TikTok**\
 `Major U.S. investment firms such as General Atlantic, Susquehanna and Sequoia Capital own stakes in ByteDance, the parent of TikTok. Their investments are increasingly under fire.`\
 https://nytimes.com/2024/03/26/technology/tiktok-investors-bytedance.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/after-the-ship-
 **Bill Seeks Reparations for Families Displaced From Site of Dodger Stadium**\
 `About 1,800 families were forced to leave the land, now known as Chavez Ravine, that eventually became Dodger Stadium. A measure in the State Assembly could provide them with compensation or land.`\
 https://nytimes.com/2024/03/26/us/chavez-ravine-reparations-dodger-stadium.html
-
-**How Common Is Medication Abortion?**\
-`It’s now the most used abortion method.`\
-https://nytimes.com/2024/03/26/upshot/medication-abortion-pill-use.html
-
-**The Best Books About California**\
-`We’ve updated our ever-growing Golden State reading list.`\
-https://nytimes.com/2024/03/26/us/california-books.html
 
