@@ -1,3 +1,19 @@
+**The impact of the court’s decision could be far broader than one medication.**\
+`By Pam Belluck`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/the-impact-of-the-courts-decision-could-be-far-broader-than-one-medication
+
+**The argument will most likely focus on limiting access to the abortion pill, not invalidating it.**\
+`By Adam Liptak and Abbie VanSickle`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/the-argument-will-most-likely-focus-on-limiting-access-to-the-abortion-pill-not-invalidating-it
+
+**What Is Mifepristone and How Is It Used?**\
+`More than half of people who get legal abortions in the United States — and three-quarters in Europe — use medication abortion.`\
+https://nytimes.com/2024/03/26/us/politics/what-is-mifepristone-abortion.html
+
+**26scotus-abortion**\
+`Live Updates: Supreme Court to Hear Arguments on Abortion Pill Access`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court
+
 **Baltimore’s Port Handled a Record Amount of Cargo Last Year**\
 `A bridge collapse closed the city’s port, an important trade hub that ranks first in the nation by the volume of automobiles and light trucks it handles.`\
 https://nytimes.com/2024/03/26/us/baltimore-port-cargo-ships.html
