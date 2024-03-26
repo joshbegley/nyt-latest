@@ -1,3 +1,11 @@
+**Hong Kongers Now Only Whisper About Freedom**\
+`As Beijing cracks down, Hong Kongers are purging evidence of their lost liberties.`\
+https://nytimes.com/2024/03/26/opinion/hong-kong-law-freedom.html
+
+**There Is No Easy Way to Go Public About Cancer**\
+`How does a newly diagnosed patient balance privacy with public honesty?`\
+https://nytimes.com/2024/03/26/opinion/cancer-kate-middleton-privacy.html
+
 **Why Are China’s Nationalists Attacking the Country’s Heroes?**\
 `Online vitriol has targeted the country’s richest man, erasing billions of dollars of his company’s market value, despite Beijing’s courtship of entrepreneurs.`\
 https://nytimes.com/2024/03/26/world/asia/china-nationalists-online-attacks.html
