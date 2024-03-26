@@ -1,3 +1,7 @@
+**Richard Serra, Who Recast Sculpture on a Massive Scale, Dies at 85**\
+`His tilted walls of rusting steel, monumental blocks and other immense and inscrutable forms created environments that had to be walked through, or around, to be fully experienced.`\
+https://nytimes.com/2024/03/26/arts/richard-serra-dead.html
+
 **Who Is Blowing Up Russia?**\
 `There are two plausible theories for who’s behind the terrorist attack in Russia. Both are terrifying.`\
 https://nytimes.com/2024/03/26/opinion/russia-shooting-concert-terrorism.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/26/business/media/moscow-attack-narratives.html
 **How Ronna McDaniel Backed Trump’s Early Bid to Hold Power**\
 `During a very brief tenure at NBC News, the former Republican Party leader downplayed her role in efforts to overturn the 2020 election. A review of the record showed she was involved in some key episodes.`\
 https://nytimes.com/2024/03/26/us/politics/ronna-mcdaniel-trump-nbc.html
-
-**Biden, Interrupted by Gaza Protesters, Says They ‘Have a Point’**\
-`After his event in North Carolina was disrupted by demonstrators, the president said that “we need to get a lot more care into Gaza.”`\
-https://nytimes.com/2024/03/26/us/politics/biden-gaza-protesters.html
 
