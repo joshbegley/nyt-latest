@@ -1,3 +1,7 @@
+**What We Know About the Francis Scott Key Bridge Collapse in Baltimore**\
+`Federal investigators search for answers about how a massive cargo ship struck a major bridge minutes after leaving the Port of Baltimore early Tuesday.`\
+https://nytimes.com/2024/03/26/us/key-bridge-collapse-baltimore-what-to-know.html
+
 **Trump Advisers Talk of Palestinian Expulsions, but Activists Focus on Biden**\
 `Donald J. Trump’s son-in-law and his former ambassador to Israel have amplified policy proposals embraced by Israel’s far-right wing, but U.S. activists say their anger still rests with the current administration.`\
 https://nytimes.com/2024/03/26/us/politics/trump-gaza.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/26/us/politics/obama-biden.html
 **4 Takeaways From the Abortion Pill Arguments**\
 `Several justices questioned the remedy of applying nationwide restrictions to mifepristone because it would be the first time a court had second-guessed the F.D.A.’s regulatory authority.`\
 https://nytimes.com/2024/03/26/us/politics/abortion-pill-supreme-court-takeaways.html
-
-**Russia Extends American Journalist’s Detention for a Fifth Time**\
-`The ruling means that Evan Gershkovich, a reporter for The Wall Street Journal, will spend more than a year in custody awaiting trial on a spying charge.`\
-https://nytimes.com/2024/03/26/world/europe/evan-gershkovich-russia-prison.html
 
