@@ -3,7 +3,7 @@
 https://nytimes.com/2024/03/25/business/florida-social-media-ban-desantis.html
 
 **Bird Flu Spreads to Dairy Cows**\
-`U.S. regulators confirmed that sick cattle in Texas, Kansas and possibly in New Mexico contracted avian influenza. They stressed the nation’s milk supply is safe, saying pasteurization kills viruses.`\
+`U.S. regulators confirmed that sick cattle in Texas, Kansas and possibly in New Mexico contracted avian influenza. They stressed that the nation’s milk supply is safe, saying pasteurization kills viruses.`\
 https://nytimes.com/2024/03/25/science/bird-flu-cows-milk.html
 
 **‘Succession’ on Ice**\
