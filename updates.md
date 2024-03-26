@@ -1,3 +1,7 @@
+**Abortion Is Back in Front of the Supreme Court, and a Baltimore Bridge Collapses**\
+`Plus, a revolt at NBC.`\
+https://nytimes.com/2024/03/26/podcasts/abortion-pill-bridge.html
+
 **A Baltimore Bridge Collapses, and Abortion Is Back in Front of the Supreme Court**\
 `Plus, a revolt at NBC.`\
 https://nytimes.com/2024/03/26/podcasts/abortion-pill-bridge.html
