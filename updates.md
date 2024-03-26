@@ -1,3 +1,15 @@
+**Biden’s Challenges in Reaching Young Voters on TikTok Include Anger Over Gaza**\
+`For his campaign, navigating the platform has meant encountering over and over some of the thorniest issues plaguing Mr. Biden’s re-election bid.`\
+https://nytimes.com/2024/03/26/us/politics/biden-tiktok-voters.html
+
+**Can Weed Improve a Workout?**\
+`Some exercisers say cannabis eases their pain and anxiety — and makes fitness more fun.`\
+https://nytimes.com/2024/03/26/well/move/weed-exercise-cannabis-workout.html
+
+**Recent collapses raise questions on bridges and modern shipping.**\
+`By Keith Bradsher`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/recent-collapses-raise-questions-on-bridges-and-modern-shipping
+
 **A New Law Would Remove Many Architectural Protections in Miami Beach**\
 `Lawmakers say preservationists held too much power over decisions on whether buildings should be demolished and what should be allowed to replace them.`\
 https://nytimes.com/2024/03/26/realestate/miami-beach-building-preservation-florida.html
