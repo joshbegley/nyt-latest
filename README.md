@@ -1,3 +1,11 @@
+**Automakers say they are rerouting car shipments away from Baltimore.**\
+`By Neal E. Boudette`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/automakers-say-they-are-rerouting-car-shipments-away-from-baltimore
+
+**Obama, Fearing Biden Loss to Trump, Is on the Phone to Strategize**\
+`The former president and the current one are now on the same page about Joseph R. Biden Jr.’s political future. It was not always that way.`\
+https://nytimes.com/2024/03/26/us/politics/obama-biden.html
+
 **4 Takeaways From the Abortion Pill Arguments**\
 `Several justices questioned the remedy of applying nationwide restrictions to mifepristone because it would be the first time a court had second-guessed the F.D.A.’s regulatory authority.`\
 https://nytimes.com/2024/03/26/us/politics/abortion-pill-supreme-court-takeaways.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000009381191/baltimore-bridge-collapse-cargo-shi
 **The collapse will upend commercial traffic in a busy industrial area.**\
 `By Campbell Robertson and JoAnna Daemmrich`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/the-collapse-will-upend-commercial-traffic-in-a-busy-industrial-area
-
-**Man Charged in Subway Shoving Had History of Mental Illness, Family Says**\
-`The man appeared to have a history of arrests and had been hospitalized at least twice for mental health treatment, according to officials and family.`\
-https://nytimes.com/2024/03/26/nyregion/subway-shove-manhattan.html
-
-**Conservative Commentators Condemn Uproar at NBC**\
-`On Fox News and elsewhere, the commentators have expressed incredulity over the reaction to the hiring of Ronna McDaniel, the former chair of the Republican National Committee.`\
-https://nytimes.com/2024/03/26/business/media/conservative-commentators-condemn-uproar-nbc.html
 

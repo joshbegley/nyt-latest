@@ -1,3 +1,11 @@
+**4 Takeaways From the Abortion Pill Arguments**\
+`Several justices questioned the remedy of applying nationwide restrictions to mifepristone because it would be the first time a court had second-guessed the F.D.A.’s regulatory authority.`\
+https://nytimes.com/2024/03/26/us/politics/abortion-pill-supreme-court-takeaways.html
+
+**Russia Extends American Journalist’s Detention for a Fifth Time**\
+`The ruling means that Evan Gershkovich, a reporter for The Wall Street Journal, will spend more than a year in custody awaiting trial on a spying charge.`\
+https://nytimes.com/2024/03/26/world/europe/evan-gershkovich-russia-prison.html
+
 **What Does It Mean When a ‘State of Emergency’ Is Declared?**\
 `States of emergency are often in effect for catastrophic weather, but they are also used in many other situations.`\
 https://nytimes.com/2024/03/26/us/state-of-emergency-maryland-bridge-collapse.html

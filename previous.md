@@ -1,3 +1,11 @@
+**4 Takeaways From the Abortion Pill Arguments**\
+`Several justices questioned the remedy of applying nationwide restrictions to mifepristone because it would be the first time a court had second-guessed the F.D.A.’s regulatory authority.`\
+https://nytimes.com/2024/03/26/us/politics/abortion-pill-supreme-court-takeaways.html
+
+**Russia Extends American Journalist’s Detention for a Fifth Time**\
+`The ruling means that Evan Gershkovich, a reporter for The Wall Street Journal, will spend more than a year in custody awaiting trial on a spying charge.`\
+https://nytimes.com/2024/03/26/world/europe/evan-gershkovich-russia-prison.html
+
 **What Does It Mean When a ‘State of Emergency’ Is Declared?**\
 `States of emergency are often in effect for catastrophic weather, but they are also used in many other situations.`\
 https://nytimes.com/2024/03/26/us/state-of-emergency-maryland-bridge-collapse.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/26/nyregion/subway-shove-manhattan.html
 **Conservative Commentators Condemn Uproar at NBC**\
 `On Fox News and elsewhere, the commentators have expressed incredulity over the reaction to the hiring of Ronna McDaniel, the former chair of the Republican National Committee.`\
 https://nytimes.com/2024/03/26/business/media/conservative-commentators-condemn-uproar-nbc.html
-
-**Seance? Celebration? A Risqué Tribute to Sinead O’Connor Arrives.**\
-`The performance artist Christeene’s show honoring the Irish musician’s debut album touched down in New York with Peaches, Justin Vivian Bond and plenty of nudity and tears.`\
-https://nytimes.com/2024/03/26/arts/music/sinead-oconnor-tribute-christeene.html
-
-**G.O.P. Aide Drops Groping Lawsuit Against Matt Schlapp, a Powerful Conservative**\
-`The aide, Carlton Huffman, said the allegations were a misunderstanding and that he has not been paid by Mr. Schlapp or his group, the American Conservative Union.`\
-https://nytimes.com/2024/03/26/us/politics/matt-schlapp-groping-lawsuit.html
 
