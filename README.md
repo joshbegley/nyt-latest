@@ -1,3 +1,7 @@
+**It Can Take Years to Repair Bridges After a Collapse**\
+`The collapse of the Francis Scott Key Bridge wiped out a roadway that tens of thousands of people used to travel to and from Baltimore.`\
+https://nytimes.com/2024/03/26/us/bridge-collapse-repairs.html
+
 **10 Essential Joni Mitchell Songs**\
 `Celebrate the artist’s return to Spotify with tracks from last summer’s “Joni Jam.”`\
 https://nytimes.com/2024/03/26/arts/music/amplifier-newsletter-joni-mitchell-songs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/nyregion/nypd-officer-killed-queens-far-rockaway.
 **Lee Berry, Black Panther in a ‘Radical Chic’ Time, Dies at 78**\
 `He was one of the prosecuted Panther 21 in New York, and his account of abuse in jail was a catalyst for Leonard Bernstein’s famous Park Avenue fund-raising party.`\
 https://nytimes.com/2024/03/26/nyregion/lee-berry-dead.html
-
-**A bill to continue exempting ultra-Orthodox Jews from military service sparks protests in Israel.**\
-`By Cassandra Vinograd and Patrick Kingsley`\
-https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/a-bill-to-continue-exempting-ultra-orthodox-jews-from-military-service-sparks-protests-in-israel
 
