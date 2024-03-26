@@ -1,3 +1,7 @@
+**What is the Comstock Act?**\
+`The law prevents the mailing of drugs used for abortions.`\
+https://nytimes.com/2024/03/26/us/what-is-comstock-act.html
+
 **Abortion pills were a political target before the Supreme Court overturned Roe v. Wade.**\
 `By Kate Zernike`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/abortion-pills-were-a-political-target-before-the-supreme-court-overturned-roe-v-wade
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/2023-was-a-la
 **Review: In ‘American Rot,’ the Painful Legacy of the Dred Scott Case**\
 `Kate Taney Billingsley’s play starts with a fictional apology, but then segregated choirs and a racist waitress create tonal dissonance.`\
 https://nytimes.com/2024/03/26/theater/american-rot-review.html
-
-**What’s at stake in the abortion pill case?**\
-`By Pam Belluck and Abbie VanSickle`\
-https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/whats-at-stake-in-the-abortion-pill-case
 

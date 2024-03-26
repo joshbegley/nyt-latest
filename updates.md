@@ -1,3 +1,7 @@
+**What is the Comstock Act?**\
+`The law prevents the mailing of drugs used for abortions.`\
+https://nytimes.com/2024/03/26/us/what-is-comstock-act.html
+
 **Abortion pills were a political target before the Supreme Court overturned Roe v. Wade.**\
 `By Kate Zernike`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/abortion-pills-were-a-political-target-before-the-supreme-court-overturned-roe-v-wade
