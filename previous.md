@@ -1,3 +1,7 @@
+**Wednesday Briefing: U.S.-Israel Divisions Grow**\
+`Plus, Beyoncé’s country album.`\
+https://nytimes.com/2024/03/26/briefing/us-israel-political-divide-baltimore-bridge-collapse-pakistan-suicide-bomber.html
+
 **Turkey Details Visits by Accused Moscow Attackers to Istanbul**\
 `A Turkish official said two of the suspects had made recent trips to Turkey, but were radicalized earlier.`\
 https://nytimes.com/2024/03/26/world/europe/turkey-moscow-terror-suspects.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/26/business/visa-mastercard-swipe-fees.html
 **Automakers say they are rerouting car shipments away from Baltimore.**\
 `By Neal E. Boudette`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/automakers-say-they-are-rerouting-car-shipments-away-from-baltimore
-
-**Obama, Fearing Biden Loss to Trump, Is on the Phone to Strategize**\
-`The former president and the current one are now on the same page about Joseph R. Biden Jr.’s political future. It was not always that way.`\
-https://nytimes.com/2024/03/26/us/politics/obama-biden.html
 

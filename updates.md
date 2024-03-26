@@ -1,3 +1,7 @@
+**Wednesday Briefing: U.S.-Israel Divisions Grow**\
+`Plus, Beyoncé’s country album.`\
+https://nytimes.com/2024/03/26/briefing/us-israel-political-divide-baltimore-bridge-collapse-pakistan-suicide-bomber.html
+
 **Turkey Details Visits by Accused Moscow Attackers to Istanbul**\
 `A Turkish official said two of the suspects had made recent trips to Turkey, but were radicalized earlier.`\
 https://nytimes.com/2024/03/26/world/europe/turkey-moscow-terror-suspects.html
