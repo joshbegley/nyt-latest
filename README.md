@@ -27,7 +27,7 @@ https://nytimes.com/2024/03/26/us/politics/trump-haley-gop-voters.html
 https://nytimes.com/2024/03/26/science/birds-dreaming-rem-sleep.html
 
 **Cargo Ship Hits Major Bridge in Baltimore**\
-`The Singapore-flagged vessel struck the Francis Scott Key Bridge, the Coast Guard said. The extent of the damage, part of Interstate 695, was not immediately clear.`\
+`The Singapore-flagged vessel struck the Francis Scott Key Bridge, the Coast Guard said. The extent of the damage to the bridge, part of Interstate 695, was not immediately clear.`\
 https://nytimes.com/2024/03/26/us/ship-hits-baltimore-key-bridge.html
 
 **Word of the Day: inexorably**\
