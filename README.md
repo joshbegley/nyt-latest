@@ -30,9 +30,9 @@ https://nytimes.com/2024/03/26/arts/design/impressionism-exhibition-musee-d-orsa
 `Republican strategists and officials acknowledge that the politics have shifted rapidly against them after the Supreme Court overturned Roe v. Wade in 2022.`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/on-the-issue-of-abortion-democrats-see-a-political-winner-republicans-see-more-of-a-puzzle
 
-**The ship’s mayday call prompted officials to stop traffic to the bridge.**\
-`By Michael D. Shear`\
-https://nytimes.com/2024/03/26/us/the-ships-mayday-call-prompted-officials-to-stop-traffic-to-the-bridge.html
+**Ship’s May Day Call Prompted Closure of Key Bridge**\
+`The authorities stopped traffic at both ends and tried to evacuate people from the span before it collapsed, according to officials.`\
+https://nytimes.com/2024/03/26/us/mayday-call-key-bridge-collapse.html
 
 **State constitutions are another battleground in the fight over abortion.**\
 `By Kate Zernike`\
