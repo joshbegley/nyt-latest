@@ -1,3 +1,7 @@
+**Former Ohio House Speaker Hit With 10 Additional Felony Charges**\
+`Larry Householder, already serving a 20-year federal prison sentence, was indicted on additional state felony charges on Monday in connection with a sprawling bribery scheme.`\
+https://nytimes.com/2024/03/25/us/politics/larry-householder-ohio-speaker-charges.html
+
 **How One Hour Encapsulated the Chaos of Trump’s Coming Trial**\
 `One court offered Donald J. Trump a financial lifeline. Another set him on a path to prosecution. It was a taste of what America will experience until the November election.`\
 https://nytimes.com/2024/03/25/nyregion/trump-hush-money-fraud-case.html
