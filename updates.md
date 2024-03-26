@@ -1,3 +1,7 @@
+**Why Palm Oil Is Still a Big Problem**\
+`The ubiquitous ingredient contributes to the loss of tropical forests.`\
+https://nytimes.com/2024/03/26/climate/why-palm-oil-is-still-a-big-problem.html
+
 **10 Essential Joni Mitchell Songs**\
 `Celebrate the artist’s return to Spotify with tracks from last summer’s “Joni Jam.”`\
 https://nytimes.com/2024/03/26/arts/music/amplifier-newsletter-joni-mitchell-songs.html
