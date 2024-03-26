@@ -1,3 +1,15 @@
+**Activists Clash in Front of Supreme Court Over Abortion Pill Case**\
+`Thirteen abortion-rights protesters were arrested as part of a civil disobedience action. Abortion opponents were less numerous but still vocal.`\
+https://nytimes.com/2024/03/26/us/politics/supreme-court-protests-abortion-pill.html
+
+**Venezuela’s Democratic Hopes Dim as Opposition Is Blocked From National Vote**\
+`The government’s moves to bar an opposition coalition from fielding a presidential candidate makes it more likely that President Nicolás Maduro can retain his repressive hold on power.`\
+https://nytimes.com/2024/03/26/world/americas/venezuela-election-opposition.html
+
+**Tiny Love Stories: ‘She Was Scared He Would Forget Her’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/03/26/style/tiny-modern-love-stories-she-was-scared-he-would-forget-her.html
+
 **Judge Imposes Gag Order on Trump in Manhattan Criminal Trial**\
 `The order limiting the former president’s speech came the day after Justice Juan M. Merchan set an April 15 trial date for the hush-money case.`\
 https://nytimes.com/2024/03/26/nyregion/trump-trial-gag-order.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/26/theater/jt-rogers-corruption-phone-hacking.html
 **In the Former Nobu Space, Beefbar Lives Up to Its Name**\
 `A seafood bar opens above Claud, the former chef of Maharlika and Jeepney turns to Italian cuisine, and more restaurant news.`\
 https://nytimes.com/2024/03/26/dining/nyc-restaurant-news.html
-
-**The Debate Over Free Speech, Disinformation and Censorship**\
-`Readers discuss the First Amendment and efforts to monitor content on social media. Also: Senator Ted Cruz; talking about cancer; landlines; internet access.`\
-https://nytimes.com/2024/03/26/opinion/free-speech-disinformation-censorship.html
-
-**Texas Attorney General Ken Paxton Reaches Deal to Avoid Criminal Trial**\
-`Nearly a decade after his indictment for securities fraud, Mr. Paxton will pay restitution, take legal ethics classes and do community service as part of an agreement with prosecutors.`\
-https://nytimes.com/2024/03/26/us/politics/texas-attorney-general-ken-paxton-texas-plea-deal-securities-fraud.html
-
-**Gazans Drown Trying to Retrieve Airdropped Aid, Authorities Say**\
-`People entered the water from a beach in northern Gaza, and around a dozen drowned, according to a local researcher who spoke to witnesses.`\
-https://nytimes.com/2024/03/26/world/middleeast/gaza-aid-death.html
 
