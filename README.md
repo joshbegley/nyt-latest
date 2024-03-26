@@ -1,3 +1,7 @@
+**The Best Books About California**\
+`We’ve updated our ever-growing Golden State reading list.`\
+https://nytimes.com/2024/03/26/us/california-books.html
+
 **The impact of the court’s decision could be far broader than one medication.**\
 `By Pam Belluck`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/the-impact-of-the-courts-decision-could-be-far-broader-than-one-medication
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/business/dealbook/blackrock-fink-letter-retiremen
 **Maryland’s transportation secretary calls the collapse ‘catastrophic.’**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/marylands-transportation-secretary-calls-the-collapse-catastrophic
-
-**Bolsonaro Faces New Legal Jeopardy After Stay at Hungarian Embassy**\
-`The Brazilian Supreme Court and the federal police are demanding answers from former President Jair Bolsonaro after a New York Times investigation.`\
-https://nytimes.com/2024/03/26/world/americas/bolsonaro-brazil-hungary-embassy.html
 
