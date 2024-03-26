@@ -1,3 +1,11 @@
+**Man Charged in Subway Shoving Had History of Mental Illness, Family Says**\
+`The man appeared to have a history of arrests and had been hospitalized at least twice for mental health treatment, according to officials and family.`\
+https://nytimes.com/2024/03/26/nyregion/subway-shove-manhattan.html
+
+**Conservative Commentators Condemn Uproar at NBC**\
+`On Fox News and elsewhere, the commentators have expressed incredulity over the reaction to the hiring of Ronna McDaniel, the former chair of the Republican National Committee.`\
+https://nytimes.com/2024/03/26/business/media/conservative-commentators-condemn-uproar-nbc.html
+
 **Seance? Celebration? A Risqué Tribute to Sinead O’Connor Arrives.**\
 `The performance artist Christeene’s show honoring the Irish musician’s debut album touched down in New York with Peaches, Justin Vivian Bond and plenty of nudity and tears.`\
 https://nytimes.com/2024/03/26/arts/music/sinead-oconnor-tribute-christeene.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/26/style/tiny-modern-love-stories-she-was-scared-he-
 **Judge Imposes Gag Order on Trump in Manhattan Criminal Trial**\
 `The order limiting the former president’s speech came the day after Justice Juan M. Merchan set an April 15 trial date for the hush-money case.`\
 https://nytimes.com/2024/03/26/nyregion/trump-trial-gag-order.html
-
-**Big Ships Collide With Bridges Far Too Often**\
-`But there are better ways to protect a bridge like the one that collapsed in Baltimore.`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/key-bridge-baltimore-collision
-
-**It Can Take Years to Repair Bridges After a Collapse**\
-`The collapse of the Francis Scott Key Bridge wiped out a roadway that tens of thousands of people used to travel to and from Baltimore.`\
-https://nytimes.com/2024/03/26/us/bridge-collapse-repairs.html
 
