@@ -1,3 +1,7 @@
+**A New Law Would Remove Many Architectural Protections in Miami Beach**\
+`Lawmakers say preservationists held too much power over decisions on whether buildings should be demolished and what should be allowed to replace them.`\
+https://nytimes.com/2024/03/26/realestate/miami-beach-building-preservation-florida.html
+
 **What is the Comstock Act?**\
 `The law prevents the mailing of drugs used for abortions.`\
 https://nytimes.com/2024/03/26/us/what-is-comstock-act.html
