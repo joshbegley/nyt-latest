@@ -1,40 +1,40 @@
-**How a New Rule Could Change the Way Advisers Handle Your Retirement Money**\
-`The Labor Department’s latest push for a new fiduciary rule would protect investors’ retirement savings and require financial services providers to change.`\
-https://nytimes.com/2024/03/26/business/fiduciary-rule-retirement.html
+**No One Is Above the Law, Except, Apparently, Donald Trump**\
+`If there seems to be a different set of rules for the former president, that’s because, for all intents and purposes, there is.`\
+https://nytimes.com/2024/03/26/opinion/trump-trials-bond-invincibility.html
 
-**The Retro Music Genre That Will Change Your Life**\
-`Classic rock rules. When the right song comes on the radio, I pretty much see God.`\
-https://nytimes.com/2024/03/26/magazine/classic-rock-radio.html
+**R.F.K. Jr. Is Expected to Name Nicole Shanahan as His Running Mate**\
+`Mr. Kennedy, the independent presidential candidate, is expected to announce Ms. Shanahan, a wealthy Silicon Valley lawyer, as his vice-presidential pick on Tuesday in Oakland, Calif.`\
+https://nytimes.com/2024/03/26/us/politics/rfk-jr-vice-president-nicole-shanahan.html
 
-**Why Does Every Southern Accent in a Movie Sound So Bad?**\
-`Even good actors, from Margaret Qualley to Daniel Craig, are always talking in put-upon drawls.`\
-https://nytimes.com/2024/03/26/magazine/why-does-every-southern-accent-in-a-movie-sound-so-bad.html
+**Biden Makes Health Care a Focus With North Carolina Visit**\
+`The White House plans to use the 14th anniversary of the Affordable Care Act to draw a contrast with Republicans who have sought to do away with all or parts of the law.`\
+https://nytimes.com/2024/03/26/us/politics/biden-health-care-north-carolina.html
 
-**Cassava Is the Secret to Gluten-Free ‘Flour’ Tortillas From Coyotas**\
-`Snacking for the Masters, a benefit for a culinary careers program and a fond farewell to this column.`\
-https://nytimes.com/2024/03/26/dining/coyotas-gluten-free-flour-tortillas.html
+**Lofty Valuation Carries Trump’s Social Media Company Into First Trading Day**\
+`Trump Media & Technology Group, fresh from a merger with a cash-rich shell company, is set to trade Tuesday on the Nasdaq, adding billions of dollars to the former president’s wealth.`\
+https://nytimes.com/2024/03/26/business/lofty-valuation-carries-trumps-social-media-company-into-first-trading-day.html
 
-**Have You Ever Lost Someone as a Friend?**\
-`A Times Opinion writer laments the loss of treasured friendships from his life. Can you relate to this regret?`\
-https://nytimes.com/2024/03/26/learning/have-you-ever-lost-someone-as-a-friend.html
+**Supreme Court Poised to Hear Arguments About Abortion Pill Access**\
+`The justices’ decision could cut off prescriptions by telemedicine and pills sent by mail, and also have implications for the regulatory authority of the F.D.A.`\
+https://nytimes.com/2024/03/26/us/politics/supreme-court-abortion-pill-hearing.html
 
-**They Save Baby Seals From Fishing Line and Plastics. Millions Watch.**\
-`Ocean Conservation Namibia is disentangling a record number of seals, while broadcasting the perils of marine debris in a largely feel good way.`\
-https://nytimes.com/2024/03/26/climate/ocean-conservation-naimbia-baby-seals.html
+**What Most Surprised Us About the Outbreak of Deepfake Porn**\
+`We’ve effectively armed predators and exploitative companies with artificial intelligence but denied victims any defense.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/deepfake-porn
 
-**Toxic Gun Culture Begins at Home**\
-`The messages that kids get about firearms have changed for the worse.`\
-https://nytimes.com/2024/03/26/opinion/guns-mass-shootings.html
+**‘Shogun’ Episode 6 Recap: Know Your Enemy**\
+`Lord Toranaga finally gets a worthy opponent, while Lady Mariko’s true mission is revealed.`\
+https://nytimes.com/2024/03/26/arts/television/shogun-episode-6-recap-willow-world.html
 
-**TikTok Can’t Get Enough Boeing Jokes. Guess Who’s Not Laughing.**\
-`Social media users have managed to turn the troubled airplane manufacturer’s headlines into punchlines, though some play fast and loose with the specifics.`\
-https://nytimes.com/2024/03/26/style/boeing-737-tiktok-social-media.html
+**Is Humanity Out of Fashion?**\
+`Designer change at Valentino and Dries Van Noten raises the question.`\
+https://nytimes.com/2024/03/26/style/valentino-dries-van-noten-humanity-fashion.html
 
-**Erin Hawley: The Woman Arguing Against the Abortion Pill**\
-`Erin Hawley is best known as the wife of Senator Josh Hawley, but now the spotlight is on her in a Supreme Court case.`\
-https://nytimes.com/2024/03/26/us/erin-hawley-abortion-pill-supreme-court.html
+**Abortion Pill Dispute Centers on Central Question: Who Can Sue?**\
+`The parties in the fight over access to the abortion pill sharply disagree on whether anti-abortion doctors and groups can show they will suffer harm.`\
+https://nytimes.com/2024/03/26/us/politics/abortion-pill-lawsuits-doctors.html
 
-**Trump Has a Vision for a Second Term. Now There’s a Plan.**\
-`Trump’s allies want to harness government, not shrink it.`\
-https://nytimes.com/2024/03/26/opinion/project-2025-trump.html
+**Where Are Men Buying Suits Off the Rack?**\
+`More than 80 answers to this question offered a sense of what styles are popular these days.`\
+https://nytimes.com/2024/03/26/style/suits-mens-shopping.html
 
