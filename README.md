@@ -1,5 +1,5 @@
 **Mayor Speaks After Police Officer Shot and Killed in Queens**\
-`Mayor Eric Adams of New York expressed his condolences at the loss of Jonathan Diller, who was shot during a traffic stop.`\
+`Police and city officials expressed their condolences at the loss of Jonathan Diller, who was shot during a traffic stop.`\
 https://nytimes.com/video/nyregion/newyorktoday/100000009380590/nyc-police-officer-shot-queens.html
 
 **Man Who Threatened to Kill Arizona Official Over Election Gets 2½ Years in Prison**\
