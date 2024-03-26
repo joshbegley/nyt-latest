@@ -1,3 +1,11 @@
+**An Anti-Abortion Case Too Far-Fetched for the Supreme Court**\
+`Even conservative justices seemed skeptical that the plaintiffs suffered any real harm.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/abortion-mifepristone-supreme-court
+
+**3 Things to Know About Nicole Shanahan, R.F.K. Jr.’s Running Mate**\
+`She indicated that she supports Robert F. Kennedy Jr.’s vaccine stance, and she bankrolled his Super Bowl ad. She has never held elected office.`\
+https://nytimes.com/2024/03/26/us/politics/nicole-shanahan-rfk-jr-vp-facts.html
+
 **Nicole Shanahan, Wealthy Lawyer, Is R.F.K. Jr.’s Vice-Presidential Pick**\
 `Mr. Kennedy’s allies hope the move will inject new energy and financial support into his long-shot bid for the White House, as he fights for access to state ballots.`\
 https://nytimes.com/2024/03/26/us/politics/nicole-shanahan-rfk-jr-vp.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/26/us/politics/matt-schlapp-groping-lawsuit.html
 **An ‘Irish Heiress’ Conned Him. He Started a Podcast to Track Her Down.**\
 `Marianne Smyth was convicted of grand theft after she claimed that her family had cut her out of an inheritance. She faces extradition to Northern Ireland on separate fraud and theft charges.`\
 https://nytimes.com/2024/03/26/us/irish-heiress-marianne-smyth-con.html
-
-**Why Has Obamacare Worked?**\
-`How a much-maligned health reform defied the doomsayers.`\
-https://nytimes.com/2024/03/26/opinion/obamacare-health-care-aca.html
-
-**Demonstrators Make Themselves Heard on Abortion Pill Case**\
-`Thirteen abortion-rights protesters were arrested near the Supreme Court as part of a civil disobedience action. Abortion opponents were less numerous but still vocal.`\
-https://nytimes.com/2024/03/26/us/politics/supreme-court-protests-abortion-pill.html
 
