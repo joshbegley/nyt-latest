@@ -1,3 +1,7 @@
+**How One Hour Encapsulated the Chaos of Trump’s Coming Trial**\
+`One court offered Donald J. Trump a financial lifeline. Another set him on a path to prosecution. It was a taste of what America will experience until the November election.`\
+https://nytimes.com/2024/03/25/nyregion/trump-hush-money-fraud-case.html
+
 **Person Killed by Train After Being Pushed Onto Subway Tracks, Police Say**\
 `The attack at 125th Street in East Harlem was unprovoked, a police spokeswoman said.`\
 https://nytimes.com/2024/03/25/nyregion/subway-shoving-manhattan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/us/politics/rfk-jr-voters.html
 **F.D.A. Authorizes New Drug to Protect High-Risk Patients From Covid**\
 `Pemgarda, available in the coming weeks, is intended for immunocompromised people who are unlikely to mount an adequate response after vaccination.`\
 https://nytimes.com/2024/03/25/well/fda-covid-medicine-immunocompromised.html
-
-**Federal Agents Raid Homes Tied to Sean Combs in Los Angeles and Miami**\
-`In response to questions about Mr. Combs’s residences, Homeland Security Investigations said the searches were part of “an ongoing investigation.”`\
-https://nytimes.com/2024/03/25/arts/music/diddy-sean-combs-home-raided.html
 

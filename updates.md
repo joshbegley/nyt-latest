@@ -1,3 +1,7 @@
+**How One Hour Encapsulated the Chaos of Trump’s Coming Trial**\
+`One court offered Donald J. Trump a financial lifeline. Another set him on a path to prosecution. It was a taste of what America will experience until the November election.`\
+https://nytimes.com/2024/03/25/nyregion/trump-hush-money-fraud-case.html
+
 **Person Killed by Train After Being Pushed Onto Subway Tracks, Police Say**\
 `The attack at 125th Street in East Harlem was unprovoked, a police spokeswoman said.`\
 https://nytimes.com/2024/03/25/nyregion/subway-shoving-manhattan.html
