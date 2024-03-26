@@ -1,3 +1,27 @@
+**Baking**\
+`Do you create homemade cakes, cookies or pies? What are your favorite recipes?`\
+https://nytimes.com/2024/03/26/learning/baking.html
+
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/26/crosswords/connections-companion.html
+
+**A Legal Pot Pioneer Was Busted in Idaho With 56 Pounds. He Has a Plan.**\
+`At 77, Dana Beal is charged with trafficking marijuana. It could be the finale for a man who never stopped crusading even after the victory was won.`\
+https://nytimes.com/2024/03/26/nyregion/dana-beal-marijuana-legalization.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/26/crosswords/wordle-review.html
+
+**Trump Isn’t Reaching Out to Haley and Her Voters. Will It Matter?**\
+`Republicans are debating the wisdom of the former president’s decision to bypass any reconciliation with Nikki Haley.`\
+https://nytimes.com/2024/03/26/us/politics/trump-haley-gop-voters.html
+
+**Do Birds Dream?**\
+`What new research on the avian brain and REM sleep in birds might reveal about our own dream lives.`\
+https://nytimes.com/2024/03/26/science/birds-dreaming-rem-sleep.html
+
 **Ship Hits Major Bridge in Baltimore**\
 `The ship struck the Francis Scott Key Bridge, the Coast Guard said. The extent of the damage was not immediately clear.`\
 https://nytimes.com/2024/03/26/us/ship-hits-baltimore-key-bridge.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/03/26/briefing/putin-moscow-attack-gaza-un.html
 **Hong Kongers Are Purging the Evidence of Their Lost Freedom**\
 `As Beijing cracks down, Hong Kongers are purging evidence of their lost liberties.`\
 https://nytimes.com/2024/03/26/opinion/hong-kong-law-freedom.html
-
-**There Is No Easy Way to Go Public About Cancer**\
-`How does a newly diagnosed patient balance privacy with public honesty?`\
-https://nytimes.com/2024/03/26/opinion/cancer-kate-middleton-privacy.html
-
-**Why Are China’s Nationalists Attacking the Country’s Heroes?**\
-`Online vitriol has targeted the country’s richest man, erasing billions of dollars of his company’s market value, despite Beijing’s courtship of entrepreneurs.`\
-https://nytimes.com/2024/03/26/world/asia/china-nationalists-online-attacks.html
-
-**Corrections: March 26, 2024**\
-`Corrections that appeared in print on Tuesday, March 26, 2024.`\
-https://nytimes.com/2024/03/26/corrections/corrections-march-26-2024.html
-
-**Quotation of the Day: Delay Denied in Trump Trial in Manhattan**\
-`Quotation of the Day for Tuesday, March 26, 2024.`\
-https://nytimes.com/2024/03/26/pageoneplus/quotation-of-the-day-delay-denied-in-trump-trial-in-manhattan.html
-
-**Julian Assange Extradition Appeal Decision: What Could Happen?**\
-`On Tuesday, two British judges will decide whether the WikiLeaks founder can appeal his extradition order to the United States.`\
-https://nytimes.com/2024/03/26/world/europe/julian-assange-extradition-us.html
-
-**Who Could Sway the Outcome of the U.S. Election? Mexico’s President**\
-`Immigration is a key issue for voters in the U.S. election, giving Mexico immense power to potentially shape the vote.`\
-https://nytimes.com/2024/03/26/world/americas/mexico-biden-migration-border.html
 
