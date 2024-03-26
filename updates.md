@@ -1,3 +1,7 @@
+**26pol-swiper**\
+`Election Updates: Biden visits North Carolina, and R.F.K. Jr. picks a running mate.`\
+https://nytimes.com/live/2024/03/26/us/trump-biden-rfk-election
+
 **The case seeks to push another goal of the conservative legal movement: dismantling the administrative state.**\
 `By Adam Liptak and Abbie VanSickle`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/the-case-seeks-to-push-another-goal-of-the-conservative-legal-movement-dismantling-the-administrative-state
