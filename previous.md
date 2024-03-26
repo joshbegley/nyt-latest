@@ -6,9 +6,9 @@ https://nytimes.com/2024/03/26/arts/richard-serra-dead.html
 `There are two plausible theories for who’s behind the terrorist attack in Russia. Both are terrifying.`\
 https://nytimes.com/2024/03/26/opinion/russia-shooting-concert-terrorism.html
 
-**For many in Baltimore, the Key was the city’s ‘blue collar’ bridge.**\
-`By Campbell Robertson and JoAnna Daemmrich`\
-https://nytimes.com/2024/03/26/us/for-many-in-baltimore-the-key-was-the-citys-blue-collar-bridge.html
+**For Many in Baltimore, the Key Was the City’s ‘Blue Collar’ Bridge**\
+`The bridge, which collapsed on Tuesday, had become an emblem of Baltimore’s identity as a working port city.`\
+https://nytimes.com/2024/03/26/us/key-bridge-baltimore-identity.html
 
 **Missing employees were working to support their families, a co-worker says.**\
 `An executive at the construction company told The Associated Press that the six employees who went into the river were presumed dead.`\

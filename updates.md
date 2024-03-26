@@ -1,3 +1,7 @@
+**For Many in Baltimore, the Key Was the City’s ‘Blue Collar’ Bridge**\
+`The bridge, which collapsed on Tuesday, had become an emblem of Baltimore’s identity as a working port city.`\
+https://nytimes.com/2024/03/26/us/key-bridge-baltimore-identity.html
+
 **For many in Baltimore, the Key was the city’s ‘blue collar’ bridge.**\
 `By Campbell Robertson and JoAnna Daemmrich`\
 https://nytimes.com/2024/03/26/us/for-many-in-baltimore-the-key-was-the-citys-blue-collar-bridge.html
