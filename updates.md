@@ -1,3 +1,7 @@
+**The Best Books About California**\
+`We’ve updated our ever-growing Golden State reading list.`\
+https://nytimes.com/2024/03/26/us/california-books.html
+
 **The impact of the court’s decision could be far broader than one medication.**\
 `By Pam Belluck`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/the-impact-of-the-courts-decision-could-be-far-broader-than-one-medication
