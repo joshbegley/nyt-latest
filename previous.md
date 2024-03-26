@@ -1,6 +1,6 @@
 **Late Night Doesn’t Think Trump’s Good News Is All That Good**\
 `“It’s the first time someone’s ever heard, ‘Good news, you only owe $175 million,’” Jimmy Fallon said after the ex-president’s bond was reduced.`\
-https://nytimes.com/2024/03/26/arts/television/late-night-donald-trumps-fraud-case.html
+https://nytimes.com/2024/03/26/arts/television/late-night-donald-trump-fraud-case.html
 
 **Baking**\
 `Do you create homemade cakes, cookies or pies? What are your favorite recipes?`\
