@@ -1,3 +1,7 @@
+**Israeli Hostage Says She Was Sexually Assaulted and Tortured in Gaza**\
+`Amit Soussana is the first former hostage to publicly say she was sexually abused in captivity. A U.N. report has said it found “clear and convincing information” that some hostages suffered “conflict-related sexual violence.”`\
+https://nytimes.com/2024/03/26/world/middleeast/hamas-hostage-sexual-assault.html
+
 **Mayor Eric Adams Grapples With Two Shocking Acts of Violence**\
 `The killing of a police officer and a fatal push on the subway underscore the challenges that Mr. Adams faces as he tries to improve public safety.`\
 https://nytimes.com/2024/03/26/nyregion/eric-adams-police-subway.html
