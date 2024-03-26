@@ -6,7 +6,7 @@ https://nytimes.com/2024/03/26/us/irish-heiress-marianne-smyth-con.html
 `How a much-maligned health reform defied the doomsayers.`\
 https://nytimes.com/2024/03/26/opinion/obamacare-health-care-aca.html
 
-**Activists Clash in Front of Supreme Court Over Abortion Pill Case**\
+**Activists Converge in Front of Supreme Court Over Abortion Pill Case**\
 `Thirteen abortion-rights protesters were arrested as part of a civil disobedience action. Abortion opponents were less numerous but still vocal.`\
 https://nytimes.com/2024/03/26/us/politics/supreme-court-protests-abortion-pill.html
 
