@@ -1,3 +1,11 @@
+**Police Officer Is Killed During a Traffic Stop in Queens**\
+`The authorities arrived in the Far Rockaway neighborhood at about 6 p.m. and found the police officer and a man wounded by gunfire.`\
+https://nytimes.com/2024/03/25/nyregion/police-officer-killed-traffic-stop-queens.html
+
+**Man Killed by Train After Being Pushed Onto Subway Tracks, Police Say**\
+`The attack at 125th Street in East Harlem was unprovoked, a police spokeswoman said, and a man is in custody.`\
+https://nytimes.com/2024/03/25/nyregion/subway-shoving-manhattan.html
+
 **Former Ohio House Speaker Hit With 10 Additional Felony Charges**\
 `Larry Householder, already serving a 20-year federal prison sentence, was indicted on additional state felony charges on Monday in connection with a sprawling bribery scheme.`\
 https://nytimes.com/2024/03/25/us/politics/larry-householder-ohio-speaker-charges.html

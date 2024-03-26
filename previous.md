@@ -1,3 +1,7 @@
+**Police Officer Is Killed During a Traffic Stop in Queens**\
+`The authorities arrived in the Far Rockaway neighborhood at about 6 p.m. and found the police officer and a man wounded by gunfire.`\
+https://nytimes.com/2024/03/25/nyregion/police-officer-killed-traffic-stop-queens.html
+
 **Former Ohio House Speaker Hit With 10 Additional Felony Charges**\
 `Larry Householder, already serving a 20-year federal prison sentence, was indicted on additional state felony charges on Monday in connection with a sprawling bribery scheme.`\
 https://nytimes.com/2024/03/25/us/politics/larry-householder-ohio-speaker-charges.html
@@ -6,8 +10,8 @@ https://nytimes.com/2024/03/25/us/politics/larry-householder-ohio-speaker-charge
 `One court offered Donald J. Trump a financial lifeline. Another set him on a path to prosecution. It was a taste of what America will experience until the November election.`\
 https://nytimes.com/2024/03/25/nyregion/trump-hush-money-fraud-case.html
 
-**Person Killed by Train After Being Pushed Onto Subway Tracks, Police Say**\
-`The attack at 125th Street in East Harlem was unprovoked, a police spokeswoman said.`\
+**Man Killed by Train After Being Pushed Onto Subway Tracks, Police Say**\
+`The attack at 125th Street in East Harlem was unprovoked, a police spokeswoman said, and a man is in custody.`\
 https://nytimes.com/2024/03/25/nyregion/subway-shoving-manhattan.html
 
 **DeSantis Signs Social Media Bill Barring Accounts for Children Under 14**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/opinion/trump-obamacare.html
 **Trump team takes sparring with Biden into vulgar territory.**\
 `The use of an expletive from a Trump campaign social media account on Monday reflects the coarsening of political discourse in the Trump era.`\
 https://nytimes.com/2024/03/25/us/politics/trump-bond-biden-social-media.html
-
-**Who Are the RFK Jr. Voters?**\
-`“He’s outspoken. As far as I know, he’s not crooked.”`\
-https://nytimes.com/2024/03/25/us/politics/rfk-jr-voters.html
 
