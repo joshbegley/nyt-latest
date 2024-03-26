@@ -1,3 +1,11 @@
+**Trump Advisers Talk of Palestinian Expulsions, but Activists Focus on Biden**\
+`Donald J. Trump’s son-in-law and his former ambassador to Israel have amplified policy proposals embraced by Israel’s far-right wing, but U.S. activists say their anger still rests with the current administration.`\
+https://nytimes.com/2024/03/26/us/politics/trump-gaza.html
+
+**The Justin Timberlake Conundrum**\
+`His sixth solo album, “Everything I Thought It Was,” has been met with critical dismissal and weaker sales. Where can the onetime pop superstar turn next?`\
+https://nytimes.com/2024/03/26/arts/music/popcast-justin-timberlake.html
+
 **Trump’s Newest Venture? A $60 Bible.**\
 `His Bible sales pitch comes as he appears to be confronting a significant financial squeeze, with his legal fees growing while he fights a number of criminal cases and lawsuits.`\
 https://nytimes.com/2024/03/26/us/politics/trump-bible.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/26/world/europe/evan-gershkovich-russia-prison.html
 **What Does It Mean When a ‘State of Emergency’ Is Declared?**\
 `States of emergency are often in effect for catastrophic weather, but they are also used in many other situations.`\
 https://nytimes.com/2024/03/26/us/state-of-emergency-maryland-bridge-collapse.html
-
-**An Anti-Abortion Case Too Far-Fetched for the Supreme Court**\
-`Even conservative justices seemed skeptical that the plaintiffs suffered any real harm.`\
-https://nytimes.com/live/2024/03/26/opinion/thepoint/abortion-mifepristone-supreme-court
-
-**3 Things to Know About Nicole Shanahan, R.F.K. Jr.’s Running Mate**\
-`She indicated that she supports Robert F. Kennedy Jr.’s vaccine stance, and she bankrolled his Super Bowl ad. She has never held elected office.`\
-https://nytimes.com/2024/03/26/us/politics/nicole-shanahan-rfk-jr-vp-facts.html
 
