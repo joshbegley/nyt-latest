@@ -1,3 +1,7 @@
+**Ship’s Mayday Call Prompted Closure of Key Bridge**\
+`The authorities stopped traffic at both ends and tried to evacuate people from the span before it collapsed, according to officials.`\
+https://nytimes.com/2024/03/26/us/mayday-call-key-bridge-collapse.html
+
 **Ship’s May Day Call Prompted Closure of Key Bridge**\
 `The authorities stopped traffic at both ends and tried to evacuate people from the span before it collapsed, according to officials.`\
 https://nytimes.com/2024/03/26/us/mayday-call-key-bridge-collapse.html
