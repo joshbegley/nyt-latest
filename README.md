@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2024/03/26/us/baltimore-key-bridge-collapse-maps
 `By Steven Erlanger`\
 https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/domestic-politics-drive-the-deep-divisions-between-biden-and-netanyahu
 
-**Baltimore’s port handled a record amount of cargo last year.**\
-`The port, the 11th in the United States,`\
-https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/baltimores-port-handled-a-record-amount-of-cargo-last-year
+**Baltimore’s Port Handled a Record Amount of Cargo Last Year**\
+`A bridge collapse closed the city’s port, an important trade hub that ranks first in the nation by the volume of automobiles and light trucks it handles.`\
+https://nytimes.com/2024/03/26/us/baltimore-port-cargo-ships.html
 
