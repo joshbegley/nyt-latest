@@ -1,3 +1,11 @@
+**Seance? Celebration? A Risqué Tribute to Sinead O’Connor Arrives.**\
+`The performance artist Christeene’s show honoring the Irish musician’s debut album touched down in New York with Peaches, Justin Vivian Bond and plenty of nudity and tears.`\
+https://nytimes.com/2024/03/26/arts/music/sinead-oconnor-tribute-christeene.html
+
+**G.O.P. Aide Drops Groping Lawsuit Against Matt Schlapp, a Powerful Conservative**\
+`The aide, Carlton Huffman, said the allegations were a misunderstanding and that he has not been paid by Mr. Schlapp or his group, the American Conservative Union.`\
+https://nytimes.com/2024/03/26/us/politics/matt-schlapp-groping-lawsuit.html
+
 **An ‘Irish Heiress’ Conned Him. He Started a Podcast to Track Her Down.**\
 `Marianne Smyth was convicted of grand theft after she claimed that her family had cut her out of an inheritance. She faces extradition to Northern Ireland on separate fraud and theft charges.`\
 https://nytimes.com/2024/03/26/us/irish-heiress-marianne-smyth-con.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/19/opinion/thepoint/key-bridge-baltimore-collis
 **It Can Take Years to Repair Bridges After a Collapse**\
 `The collapse of the Francis Scott Key Bridge wiped out a roadway that tens of thousands of people used to travel to and from Baltimore.`\
 https://nytimes.com/2024/03/26/us/bridge-collapse-repairs.html
-
-**10 Essential Joni Mitchell Songs**\
-`Celebrate the artist’s return to Spotify with tracks from last summer’s “Joni Jam.”`\
-https://nytimes.com/2024/03/26/arts/music/amplifier-newsletter-joni-mitchell-songs.html
-
-**Why Palm Oil Is Still a Big Problem**\
-`The ubiquitous ingredient contributes to the loss of tropical forests.`\
-https://nytimes.com/2024/03/26/climate/why-palm-oil-is-still-a-big-problem.html
 
