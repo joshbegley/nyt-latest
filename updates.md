@@ -1,3 +1,7 @@
+**Fretting About Election-Year Deep Fakes, States Roll Out New Rules for A.I. Content**\
+`An increasing number of states have advanced A.I.-related legislation to combat attempts to mislead voters during the 2024 election, according to a new analysis by the Voting Rights Lab.`\
+https://nytimes.com/2024/03/26/us/politics/election-year-deep-fakes-ai-rules.html
+
 **For Many in Baltimore, the Key Was the City’s ‘Blue Collar’ Bridge**\
 `The bridge, which collapsed on Tuesday, had become an emblem of Baltimore’s identity as a working port city.`\
 https://nytimes.com/2024/03/26/us/key-bridge-baltimore-identity.html

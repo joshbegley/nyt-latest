@@ -1,3 +1,7 @@
+**Fretting About Election-Year Deep Fakes, States Roll Out New Rules for A.I. Content**\
+`An increasing number of states have advanced A.I.-related legislation to combat attempts to mislead voters during the 2024 election, according to a new analysis by the Voting Rights Lab.`\
+https://nytimes.com/2024/03/26/us/politics/election-year-deep-fakes-ai-rules.html
+
 **Richard Serra, Who Recast Sculpture on a Massive Scale, Dies at 85**\
 `His tilted walls of rusting steel, monumental blocks and other immense and inscrutable forms created environments that had to be walked through, or around, to be fully experienced.`\
 https://nytimes.com/2024/03/26/arts/richard-serra-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/26/insider/marijuana-in-new-york.html
 **The Islamic State Claimed the Moscow Attack. The Kremlin Is Still Blaming Others.**\
 `Russian narratives served to deflect attention from the failure to prevent the deadly attack while rallying the country behind the war in Ukraine.`\
 https://nytimes.com/2024/03/26/business/media/moscow-attack-narratives.html
-
-**How Ronna McDaniel Backed Trump’s Early Bid to Hold Power**\
-`During a very brief tenure at NBC News, the former Republican Party leader downplayed her role in efforts to overturn the 2020 election. A review of the record showed she was involved in some key episodes.`\
-https://nytimes.com/2024/03/26/us/politics/ronna-mcdaniel-trump-nbc.html
 
