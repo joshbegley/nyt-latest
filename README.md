@@ -1,3 +1,7 @@
+**Assange Extradition On Hold Until U.S. Gives More Assurances**\
+`The WikiLeaks founder has been in a London prison since 2019. Judges asked the U.S., which wants to try him on espionage charges, for more guarantees about his treatment.`\
+https://nytimes.com/2024/03/26/world/europe/julian-assange-uk-court-us-extradition.html
+
 **The political leader of Hamas goes to Iran for talks, state media reports.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/the-political-leader-of-hamas-goes-to-iran-for-talks-state-media-reports
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/opinion/trump-trials-bond-invincibility.html
 **R.F.K. Jr. Is Expected to Name Nicole Shanahan as His Running Mate**\
 `Mr. Kennedy, the independent presidential candidate, is expected to announce Ms. Shanahan, a wealthy Silicon Valley lawyer, as his vice-presidential pick on Tuesday in Oakland, Calif.`\
 https://nytimes.com/2024/03/26/us/politics/rfk-jr-vice-president-nicole-shanahan.html
-
-**Biden Makes Health Care a Focus With North Carolina Visit**\
-`The White House plans to use the 14th anniversary of the Affordable Care Act to draw a contrast with Republicans who have sought to do away with all or parts of the law.`\
-https://nytimes.com/2024/03/26/us/politics/biden-health-care-north-carolina.html
 
