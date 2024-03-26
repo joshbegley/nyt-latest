@@ -1,3 +1,7 @@
+**Man Who Threatened to Kill Arizona Official Over Election Gets 2½ Years in Prison**\
+`Joshua Russell, 46, of Ohio, left threatening messages for Katie Hobbs in 2022, when she was Arizona’s secretary of state and successfully ran for governor.`\
+https://nytimes.com/2024/03/25/us/katie-hobbs-arizona-election-threats-sentence.html
+
 **Get Moving**\
 `Laura Dershewitz and Katherine Baicker make their collaboration debut in The New York Times.`\
 https://nytimes.com/2024/03/25/crosswords/daily-puzzle-2024-03-26.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/style/succession-ilia-malinin-figure-skating.html
 **U.N. Security Council Calls for Immediate Cease-Fire in Gaza as U.S. Abstains**\
 `The U.S. decision not to vote on the resolution drew criticism from Prime Minister Benjamin Netanyahu of Israel, who ordered a delegation to hold back from a planned trip to Washington.`\
 https://nytimes.com/2024/03/25/world/middleeast/un-security-council-gaza-ceasefire.html
-
-**Obamacare Is in Grave Danger, Again**\
-`Republicans seem determined to destroy the Affordable Care Act.`\
-https://nytimes.com/2024/03/25/opinion/trump-obamacare.html
 
