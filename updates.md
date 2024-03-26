@@ -1,3 +1,11 @@
+**Domestic politics drive the deep divisions between Biden and Netanyahu.**\
+`By Steven Erlanger`\
+https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/domestic-politics-drive-the-deep-divisions-between-biden-and-netanyahu
+
+**Baltimore’s port handled a record amount of cargo last year.**\
+`The port, the 11th in the United States,`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/baltimores-port-handled-a-record-amount-of-cargo-last-year
+
 **Abortion Is Back in Front of the Supreme Court, and a Baltimore Bridge Collapses**\
 `Plus, a revolt at NBC.`\
 https://nytimes.com/2024/03/26/podcasts/abortion-pill-bridge.html
