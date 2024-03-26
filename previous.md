@@ -1,3 +1,11 @@
+**Trump’s Newest Venture? A $60 Bible.**\
+`His Bible sales pitch comes as he appears to be confronting a significant financial squeeze, with his legal fees growing while he fights a number of criminal cases and lawsuits.`\
+https://nytimes.com/2024/03/26/us/politics/trump-bible.html
+
+**First Asian American ‘Bachelorette,’ Jenn Tran, Cast by ABC**\
+`The dating franchise, which has been criticized for its handling of race, has cast its first Asian American lead after more than 20 years on air.`\
+https://nytimes.com/2024/03/26/style/first-asian-american-bachelorette-jenn-tran-cast-by-abc.html
+
 **Visa and Mastercard Agree to Cap Swipe Fees in Settlement**\
 `The deal could save merchants $30 billion over five years. It would also allow them to adjust prices based on the costs of accepting different credit cards.`\
 https://nytimes.com/2024/03/26/business/visa-mastercard-swipe-fees.html
@@ -24,17 +32,9 @@ https://nytimes.com/2024/03/26/us/state-of-emergency-maryland-bridge-collapse.ht
 
 **An Anti-Abortion Case Too Far-Fetched for the Supreme Court**\
 `Even conservative justices seemed skeptical that the plaintiffs suffered any real harm.`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/abortion-mifepristone-supreme-court
+https://nytimes.com/live/2024/03/26/opinion/thepoint/abortion-mifepristone-supreme-court
 
 **3 Things to Know About Nicole Shanahan, R.F.K. Jr.’s Running Mate**\
 `She indicated that she supports Robert F. Kennedy Jr.’s vaccine stance, and she bankrolled his Super Bowl ad. She has never held elected office.`\
 https://nytimes.com/2024/03/26/us/politics/nicole-shanahan-rfk-jr-vp-facts.html
-
-**Nicole Shanahan, Wealthy Lawyer, Is R.F.K. Jr.’s Vice-Presidential Pick**\
-`Mr. Kennedy’s allies hope the move will inject new energy and financial support into his long-shot bid for the White House, as he fights for access to state ballots.`\
-https://nytimes.com/2024/03/26/us/politics/nicole-shanahan-rfk-jr-vp.html
-
-**Baltimore Bridge Collapses After Ship Collision**\
-`Rescue teams are searching for six missing construction workers who were repairing potholes on the Francis Scott Key Bridge when it collapsed.`\
-https://nytimes.com/video/us/100000009381191/baltimore-bridge-collapse-cargo-ship.html
 

@@ -1,3 +1,15 @@
+**Trump’s Newest Venture? A $60 Bible.**\
+`His Bible sales pitch comes as he appears to be confronting a significant financial squeeze, with his legal fees growing while he fights a number of criminal cases and lawsuits.`\
+https://nytimes.com/2024/03/26/us/politics/trump-bible.html
+
+**First Asian American ‘Bachelorette,’ Jenn Tran, Cast by ABC**\
+`The dating franchise, which has been criticized for its handling of race, has cast its first Asian American lead after more than 20 years on air.`\
+https://nytimes.com/2024/03/26/style/first-asian-american-bachelorette-jenn-tran-cast-by-abc.html
+
+**An Anti-Abortion Case Too Far-Fetched for the Supreme Court**\
+`Even conservative justices seemed skeptical that the plaintiffs suffered any real harm.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/abortion-mifepristone-supreme-court
+
 **Visa and Mastercard Agree to Cap Swipe Fees in Settlement**\
 `The deal could save merchants $30 billion over five years. It would also allow them to adjust prices based on the costs of accepting different credit cards.`\
 https://nytimes.com/2024/03/26/business/visa-mastercard-swipe-fees.html
