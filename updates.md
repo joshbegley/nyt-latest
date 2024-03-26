@@ -1,3 +1,7 @@
+**The court has generally supported the F.D.A.’s authority on drug safety.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/the-court-has-generally-supported-the-fdas-authority-on-drug-safety
+
 **The Impressionists’ First Flowering Is Still Fresh After 150 Years**\
 `Their paintings emerged from a specific historical and artistic moment, yet they still resonate today, as a blockbuster Paris exhibition shows.`\
 https://nytimes.com/2024/03/26/arts/design/impressionism-exhibition-musee-d-orsay-paris.html
