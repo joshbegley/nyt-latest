@@ -1,3 +1,7 @@
+**Gazans Drown Trying to Retrieve Airdropped Aid, Authorities Say**\
+`People entered the water from a beach in northern Gaza, and around a dozen drowned, according to a local researcher who spoke to witnesses.`\
+https://nytimes.com/2024/03/26/world/middleeast/gaza-aid-death.html
+
 **Slain Officer Remembered as a Friendly Neighbor With a Promising Future**\
 `Officer Jonathan Diller, who joined the Police Department in February 2021, was fatally shot on Monday after questioning two men sitting in an illegally parked car.`\
 https://nytimes.com/2024/03/26/nyregion/nypd-officer-killed-queens-far-rockaway.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/the-court-has
 **The Impressionists’ First Flowering Is Still Fresh After 150 Years**\
 `Their paintings emerged from a specific historical and artistic moment, yet they still resonate today, as a blockbuster Paris exhibition shows.`\
 https://nytimes.com/2024/03/26/arts/design/impressionism-exhibition-musee-d-orsay-paris.html
-
-**On the issue of abortion, Democrats see a political winner. Republicans see more of a puzzle.**\
-`Republican strategists and officials acknowledge that the politics have shifted rapidly against them after the Supreme Court overturned Roe v. Wade in 2022.`\
-https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/on-the-issue-of-abortion-democrats-see-a-political-winner-republicans-see-more-of-a-puzzle
 
