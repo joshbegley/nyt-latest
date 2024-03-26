@@ -1,3 +1,7 @@
+**Why Are China’s Nationalists Attacking the Country’s Heroes?**\
+`Online vitriol has targeted the country’s richest man, erasing billions of dollars of his company’s market value, despite Beijing’s courtship of entrepreneurs.`\
+https://nytimes.com/2024/03/26/world/asia/china-nationalists-online-attacks.html
+
 **Corrections: March 26, 2024**\
 `Corrections that appeared in print on Tuesday, March 26, 2024.`\
 https://nytimes.com/2024/03/26/corrections/corrections-march-26-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/newyorktoday/100000009380590/nyc-police-offic
 **Man Who Threatened to Kill Arizona Official Over Election Gets 2½ Years in Prison**\
 `Joshua Russell, 46, of Ohio, left threatening messages for Katie Hobbs in 2022, when she was Arizona’s secretary of state and successfully ran for governor.`\
 https://nytimes.com/2024/03/25/us/katie-hobbs-arizona-election-threats-sentence.html
-
-**Get Moving**\
-`Laura Dershewitz and Katherine Baicker make their collaboration debut in The New York Times.`\
-https://nytimes.com/2024/03/25/crosswords/daily-puzzle-2024-03-26.html
 
