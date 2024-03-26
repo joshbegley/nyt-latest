@@ -1,3 +1,7 @@
+**The Dali was just starting a 27-day voyage.**\
+`The ship that had spent two days in Baltimore’s port before setting off.`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/dali-ship-baltimore-bridge
+
 **No One Is Above the Law, Except, Apparently, Donald Trump**\
 `If there seems to be a different set of rules for the former president, that’s because, for all intents and purposes, there is.`\
 https://nytimes.com/2024/03/26/opinion/trump-trials-bond-invincibility.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/style/valentino-dries-van-noten-humanity-fashion.
 **Abortion Pill Dispute Centers on Central Question: Who Can Sue?**\
 `The parties in the fight over access to the abortion pill sharply disagree on whether anti-abortion doctors and groups can show they will suffer harm.`\
 https://nytimes.com/2024/03/26/us/politics/abortion-pill-lawsuits-doctors.html
-
-**Where Are Men Buying Suits Off the Rack?**\
-`More than 80 answers to this question offered a sense of what styles are popular these days.`\
-https://nytimes.com/2024/03/26/style/suits-mens-shopping.html
 
