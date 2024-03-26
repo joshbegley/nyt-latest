@@ -1,3 +1,11 @@
+**Suicide Bomber Kills 5 Chinese Workers in Pakistan**\
+`The attack comes amid a spate of terror attacks in Pakistan, as the country’s faltering ties to the Taliban affect regional security.`\
+https://nytimes.com/2024/03/26/world/asia/pakistan-suicide-bomber-chinese-workers.html
+
+**After the U.N. resolution, Israel and Hamas are still far apart on a cease-fire.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/after-the-un-resolution-israel-and-hamas-are-still-far-apart-on-a-cease-fire
+
 **Israel Presses On With Strikes in Gaza After U.N. Cease-Fire Resolution**\
 `Its military said fighter jets had struck “over 60 targets” in the previous day. There were reports of strikes on residential buildings near Al-Shifa Hospital in the north and elsewhere.`\
 https://nytimes.com/2024/03/26/world/middleeast/israel-strikes-gaza-un-cease-fire-resolution.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/domestic-po
 **Baltimore’s port handled a record amount of cargo last year.**\
 `The port, the 11th in the United States,`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/baltimores-port-handled-a-record-amount-of-cargo-last-year
-
-**Assange Extradition On Hold Until U.S. Gives More Assurances**\
-`The WikiLeaks founder has been in a London prison since 2019. Judges asked the U.S., which wants to try him on espionage charges, for more guarantees about his treatment.`\
-https://nytimes.com/2024/03/26/world/europe/julian-assange-uk-court-us-extradition.html
-
-**The political leader of Hamas goes to Iran for talks, state media reports.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/the-political-leader-of-hamas-goes-to-iran-for-talks-state-media-reports
 
