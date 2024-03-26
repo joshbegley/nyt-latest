@@ -1,3 +1,11 @@
+**10 Essential Joni Mitchell Songs**\
+`Celebrate the artist’s return to Spotify with tracks from last summer’s “Joni Jam.”`\
+https://nytimes.com/2024/03/26/arts/music/amplifier-newsletter-joni-mitchell-songs.html
+
+**Why Palm Oil is Still a Big Problem**\
+`The ubiquitous ingredient contributes to the loss of tropical forests.`\
+https://nytimes.com/2024/03/26/climate/why-palm-oil-is-still-a-big-problem.html
+
 **A British Scandal Intrigued J.T. Rogers, Then He Went Down the Rabbit Hole**\
 `The playwright thought News International’s phone-hacking scandal could make for a sweeping thriller. Twelve years later, here it is.`\
 https://nytimes.com/2024/03/26/theater/jt-rogers-corruption-phone-hacking.html
