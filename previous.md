@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`“Radical Islamists” attacked Moscow, Vladimir Putin acknowledges.`\
+https://nytimes.com/2024/03/26/briefing/putin-moscow-attack-gaza-un.html
+
 **Hong Kongers Now Only Whisper About Freedom**\
 `As Beijing cracks down, Hong Kongers are purging evidence of their lost liberties.`\
 https://nytimes.com/2024/03/26/opinion/hong-kong-law-freedom.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/world/europe/france-olympics-aya-nakamura.html
 **In France, the Future Is Arriving on a Barge**\
 `The Seine is becoming a test case for a European plan to cut carbon emissions by turning rivers into the new highways.`\
 https://nytimes.com/2024/03/26/business/in-france-the-future-is-arriving-on-a-barge.html
-
-**Display of Battered Men Was Russia’s Warning to the Public, Analysts Say**\
-`Videos showing the torture of four men, accused of Russia’s deadliest terror attack in decades, have circulated widely in what analysts call a sign of the Russian state’s growing tolerance for public violence.`\
-https://nytimes.com/2024/03/26/world/europe/russia-terror-attack-torture.html
 

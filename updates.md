@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`“Radical Islamists” attacked Moscow, Vladimir Putin acknowledges.`\
+https://nytimes.com/2024/03/26/briefing/putin-moscow-attack-gaza-un.html
+
 **Hong Kongers Now Only Whisper About Freedom**\
 `As Beijing cracks down, Hong Kongers are purging evidence of their lost liberties.`\
 https://nytimes.com/2024/03/26/opinion/hong-kong-law-freedom.html
