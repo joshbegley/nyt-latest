@@ -1,3 +1,7 @@
+**Solicitor General Elizabeth Prelogar is representing the Justice Department.**\
+`By Katie Benner`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/solicitor-general-elizabeth-prelogar-is-representing-the-justice-department
+
 **Governors Island Taps New Head Curator**\
 `Lauren Haynes brings her curatorial expertise to the goal of growing Governors Island’s public art program.`\
 https://nytimes.com/2024/03/26/arts/design/lauren-haynes-governors-island-curator.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/the-case-seek
 **After the ship hit the bridge, a collapse seemed inevitable, engineers say.**\
 `By Claire Moses and Nicholas Bogel-Burroughs`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/after-the-ship-hit-the-bridge-a-collapse-seemed-inevitable-engineers-say
-
-**Bill Seeks Reparations for Families Displaced From Site of Dodger Stadium**\
-`About 1,800 families were forced to leave the land, now known as Chavez Ravine, that eventually became Dodger Stadium. A measure in the State Assembly could provide them with compensation or land.`\
-https://nytimes.com/2024/03/26/us/chavez-ravine-reparations-dodger-stadium.html
 

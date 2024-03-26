@@ -1,3 +1,7 @@
+**Solicitor General Elizabeth Prelogar is representing the Justice Department.**\
+`By Katie Benner`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/solicitor-general-elizabeth-prelogar-is-representing-the-justice-department
+
 **Governors Island Taps New Head Curator**\
 `Lauren Haynes brings her curatorial expertise to the goal of growing Governors Island’s public art program.`\
 https://nytimes.com/2024/03/26/arts/design/lauren-haynes-governors-island-curator.html
