@@ -1,3 +1,15 @@
+**Nicole Shanahan, Wealthy Lawyer, Is R.F.K. Jr.’s Vice-Presidential Pick**\
+`Mr. Kennedy’s allies hope the move will inject new energy and financial support into his long-shot bid for the White House, as he fights for access to state ballots.`\
+https://nytimes.com/2024/03/26/us/politics/nicole-shanahan-rfk-jr-vp.html
+
+**Baltimore Bridge Collapses After Ship Collision**\
+`Rescue teams are searching for six missing construction workers who were repairing potholes on the Francis Scott Key Bridge when it collapsed.`\
+https://nytimes.com/video/us/100000009381191/baltimore-bridge-collapse-cargo-ship.html
+
+**The collapse will upend commercial traffic in a busy industrial area.**\
+`By Campbell Robertson and JoAnna Daemmrich`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/the-collapse-will-upend-commercial-traffic-in-a-busy-industrial-area
+
 **Man Charged in Subway Shoving Had History of Mental Illness, Family Says**\
 `The man appeared to have a history of arrests and had been hospitalized at least twice for mental health treatment, according to officials and family.`\
 https://nytimes.com/2024/03/26/nyregion/subway-shove-manhattan.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/26/opinion/obamacare-health-care-aca.html
 **Demonstrators Make Themselves Heard on Abortion Pill Case**\
 `Thirteen abortion-rights protesters were arrested near the Supreme Court as part of a civil disobedience action. Abortion opponents were less numerous but still vocal.`\
 https://nytimes.com/2024/03/26/us/politics/supreme-court-protests-abortion-pill.html
-
-**Venezuela’s Democratic Hopes Dim as Opposition Is Blocked From National Vote**\
-`The government’s moves to bar an opposition coalition from fielding a presidential candidate makes it more likely that President Nicolás Maduro can retain his repressive hold on power.`\
-https://nytimes.com/2024/03/26/world/americas/venezuela-election-opposition.html
-
-**Tiny Love Stories: ‘She Was Scared He Would Forget Her’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/03/26/style/tiny-modern-love-stories-she-was-scared-he-would-forget-her.html
-
-**Judge Imposes Gag Order on Trump in Manhattan Criminal Trial**\
-`The order limiting the former president’s speech came the day after Justice Juan M. Merchan set an April 15 trial date for the hush-money case.`\
-https://nytimes.com/2024/03/26/nyregion/trump-trial-gag-order.html
 
