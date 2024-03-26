@@ -1,3 +1,7 @@
+**For many in Baltimore, the Key was the city’s ‘blue collar’ bridge.**\
+`By Campbell Robertson and JoAnna Daemmrich`\
+https://nytimes.com/2024/03/26/us/for-many-in-baltimore-the-key-was-the-citys-blue-collar-bridge.html
+
 **Richard Serra, Who Recast Sculpture on a Massive Scale, Dies at 85**\
 `His tilted walls of rusting steel, monumental blocks and other immense and inscrutable forms created environments that had to be walked through, or around, to be fully experienced.`\
 https://nytimes.com/2024/03/26/arts/richard-serra-dead.html
