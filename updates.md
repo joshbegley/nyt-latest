@@ -1,3 +1,7 @@
+**A bill to continue exempting ultra-Orthodox Jews from military service sparks protests in Israel.**\
+`By Cassandra Vinograd and Patrick Kingsley`\
+https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/a-bill-to-continue-exempting-ultra-orthodox-jews-from-military-service-sparks-protests-in-israel
+
 **What happens next? The court will probably not issue a decision until June.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/what-happens-next-the-court-will-probably-not-issue-a-decision-until-june

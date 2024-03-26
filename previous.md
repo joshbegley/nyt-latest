@@ -1,3 +1,7 @@
+**A bill to continue exempting ultra-Orthodox Jews from military service sparks protests in Israel.**\
+`By Cassandra Vinograd and Patrick Kingsley`\
+https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/a-bill-to-continue-exempting-ultra-orthodox-jews-from-military-service-sparks-protests-in-israel
+
 **What happens next? The court will probably not issue a decision until June.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/what-happens-next-the-court-will-probably-not-issue-a-decision-until-june
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/the-ships-mayda
 **State constitutions are another battleground in the fight over abortion.**\
 `By Kate Zernike`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/state-constitutions-are-another-battleground-in-the-fight-over-abortion
-
-**A Grim Tory Ad About London Crime Used New York Footage**\
-`An ad for the British Conservative mayoral candidate showed terrified commuters running. But they were not in London. They were in Penn Station, responding to false reports of gunfire in 2017.`\
-https://nytimes.com/2024/03/26/world/europe/london-crime-ad-nyc-conservatives.html
 
