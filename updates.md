@@ -1,3 +1,11 @@
+**Israel’s defense minister aims to shore up U.S. support as tension between the allies heightens.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/israels-defense-minister-aims-to-shore-up-us-support-as-tension-between-the-allies-heighten
+
+**26mideast-crisis**\
+`Israeli and U.S. Defense Ministers to Meet in Washington With Tensions High`\
+https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news
+
 **26baltimore-bridge**\
 `Live Updates: Major Bridge in Baltimore Collapses After Being Struck by Cargo Ship`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse

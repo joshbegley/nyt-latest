@@ -1,3 +1,11 @@
+**Israel’s defense minister aims to shore up U.S. support as tension between the allies heightens.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/israels-defense-minister-aims-to-shore-up-us-support-as-tension-between-the-allies-heighten
+
+**26mideast-crisis**\
+`Israeli and U.S. Defense Ministers to Meet in Washington With Tensions High`\
+https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news
+
 **26baltimore-bridge**\
 `Live Updates: Major Bridge in Baltimore Collapses After Being Struck by Cargo Ship`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/26/us/politics/trump-haley-gop-voters.html
 **Do Birds Dream?**\
 `What new research on the avian brain and REM sleep in birds might reveal about our own dream lives.`\
 https://nytimes.com/2024/03/26/science/birds-dreaming-rem-sleep.html
-
-**Here’s what we know.**\
-`The Singapore-flagged vessel struck the Francis Scott Key Bridge, the Coast Guard said. Authorities said that part of the span had collapsed.`\
-https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/ship-hits-baltimore-key-bridge
-
-**Word of the Day: inexorably**\
-`This word has appeared in 49 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/03/26/word-of-the-day-inexorably.html
 
