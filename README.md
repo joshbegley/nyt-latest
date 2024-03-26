@@ -1,3 +1,7 @@
+**Abortion shield laws are creating a clash among states.**\
+`By Pam Belluck`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/abortion-shield-laws-are-creating-a-clash-among-states
+
 **The Best of Late Night, at the Movies and Beyond**\
 `The new horror-thriller “Late Night With the Devil” isn’t the only time late-night hosts, shows and sets become fodder for on-screen moments in film and TV.`\
 https://nytimes.com/2024/03/26/movies/late-night-tv-movies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/realestate/miami-beach-building-preservation-flor
 **What is the Comstock Act?**\
 `The law prevents the mailing of drugs used for abortions.`\
 https://nytimes.com/2024/03/26/us/what-is-comstock-act.html
-
-**Abortion pills were a political target before the Supreme Court overturned Roe v. Wade.**\
-`By Kate Zernike`\
-https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/abortion-pills-were-a-political-target-before-the-supreme-court-overturned-roe-v-wade
 
