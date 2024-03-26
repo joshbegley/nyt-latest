@@ -1,3 +1,11 @@
+**The ship’s mayday call prompted officials to stop traffic to the bridge.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/the-ships-mayday-call-prompted-officials-to-stop-traffic-to-the-bridge
+
+**State constitutions are another battleground in the fight over abortion.**\
+`By Kate Zernike`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/state-constitutions-are-another-battleground-in-the-fight-over-abortion
+
 **Congestion Pricing Is a Victory for Millions of Transit Riders**\
 `Opposition from New York’s car culture remains shortsighted.`\
 https://nytimes.com/live/2024/03/19/opinion/thepoint/congestion-pricing-newyork-transit
