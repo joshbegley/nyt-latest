@@ -1,3 +1,7 @@
+**Man in Custody in Fatal Shooting of N.Y.P.D. Officer**\
+`Guy Rivera, 34, fired on Officer Jonathan Diller, 31, after being ordered out of an illegally parked car in Queens, the authorities said.`\
+https://nytimes.com/2024/03/26/nyregion/nypd-jonathan-diller-officer-shooting.html
+
 **Vessels Belonging to Owner of Baltimore Ship Had Been Cited for Labor Violations**\
 `The vessels had underpaid crews and kept workers onboard for months beyond their contracts, according to an Australian regulator.`\
 https://nytimes.com/2024/03/26/us/ship-labor-baltimore-bridge-collapse.html
