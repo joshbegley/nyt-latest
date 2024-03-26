@@ -1,3 +1,15 @@
+**The Best of Late Night, at the Movies and Beyond**\
+`The new horror-thriller “Late Night With the Devil” isn’t the only time late-night hosts, shows and sets become fodder for on-screen moments in film and TV.`\
+https://nytimes.com/2024/03/26/movies/late-night-tv-movies.html
+
+**Russia Digs In on Claim Ukraine and West Were Behind Terrorist Attack**\
+`The head of Russia’s top security agency said, without providing evidence, that the assault was “facilitated by Western special services.” Ukraine has denied involvement, calling the assertions “lies.”`\
+https://nytimes.com/2024/03/26/world/europe/russia-terror-attack-ukraine.html
+
+**The Rice Bowl You Need for Dinner**\
+`Eric Kim’s bacon and egg don is extremely delicious, and extremely simple.`\
+https://nytimes.com/2024/03/26/dining/the-rice-bowl-you-need-for-dinner.html
+
 **Erin Hawley is fighting the availability of the abortion pill.**\
 `By Elizabeth Dias and Abbie VanSickle`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/erin-hawley-is-fighting-the-availability-of-the-abortion-pill
