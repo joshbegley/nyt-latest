@@ -1,3 +1,7 @@
+**Man in Custody in Fatal Shooting of N.Y.P.D. Officer**\
+`Guy Rivera, 34, fired on Officer Jonathan Diller, 31, after being ordered out of an illegally parked car in Queens, the authorities said.`\
+https://nytimes.com/2024/03/26/nyregion/nypd-jonathan-diller-officer-shooting.html
+
 **Vessels Belonging to Owner of Baltimore Ship Had Been Cited for Labor Violations**\
 `The vessels had underpaid crews and kept workers onboard for months beyond their contracts, according to an Australian regulator.`\
 https://nytimes.com/2024/03/26/us/ship-labor-baltimore-bridge-collapse.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/26/business/media/ronna-mcdaniel-nbc-msnbc.html
 **Birmingham-Southern College to Close After Failing to Secure State Loan**\
 `After decades of financial mismanagement, the nearly 170-year-old private liberal arts school is set to close at the end of May.`\
 https://nytimes.com/2024/03/26/us/birmingham-southern-college-closing.html
-
-**What’s Going on With Legal Marijuana in New York?**\
-`Get up to speed on the state’s nascent cannabis industry with the New York Times reporter who covers it.`\
-https://nytimes.com/2024/03/26/insider/marijuana-in-new-york.html
 
