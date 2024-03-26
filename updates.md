@@ -1,3 +1,11 @@
+**NBC News Cuts Ties With Ronna McDaniel After Network Firestorm**\
+`A string of top stars denounced the hiring of Ms. McDaniel, the former chairwoman of the Republican National Committee, on their own airwaves.`\
+https://nytimes.com/2024/03/26/business/media/ronna-mcdaniel-nbc-msnbc.html
+
+**How Ronna McDaniel Backed Trump’s Early Bid to Hold Power**\
+`During a very brief tenure at NBC News, the former Republican Party leader downplayed her role in efforts to overturn the 2020 election. A review of the record showed she was involved in some key episodes.`\
+https://nytimes.com/2024/03/26/us/politics/ronna-mcdaniel-trump-nbc.html
+
 **How Ronna McDaniel Backed Trump’s Early Bid to Hold Power**\
 `After taking a job at NBC News, the former Republican Party leader downplayed her role in efforts to overturn the 2020 election. A review of the record showed she was closely involved in some key episodes.`\
 https://nytimes.com/2024/03/26/us/politics/ronna-mcdaniel-trump-nbc.html
