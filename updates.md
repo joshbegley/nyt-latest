@@ -1,3 +1,7 @@
+**NBC News Cuts Ties With Ronna McDaniel After Network Firestorm**\
+`A string of top stars denounced the hiring of Ms. McDaniel, the former chairwoman of the Republican National Committee, on their own airwaves.`\
+https://nytimes.com/2024/03/26/business/media/ronna-mcdaniel-nbc-msnbc.html
+
 **Birmingham-Southern College to Close After Failing to Secure State Loan**\
 `After decades of financial mismanagement, the nearly 170-year-old private liberal arts school is set to close at the end of May.`\
 https://nytimes.com/2024/03/26/us/birmingham-southern-college-closing.html
