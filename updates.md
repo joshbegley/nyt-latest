@@ -1,3 +1,11 @@
+**26baltimore-bridge**\
+`Live Updates: Cargo Ship Hits Major Bridge in Baltimore, Triggering Collapse`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse
+
+**Here’s what we know.**\
+`The Singapore-flagged vessel struck the Francis Scott Key Bridge, the Coast Guard said. Authorities said that part of the span had collapsed.`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/ship-hits-baltimore-key-bridge
+
 **Cargo Ship Hits Key Bridge in Baltimore, Triggering Partial Collapse**\
 `The Singapore-flagged vessel struck the Francis Scott Key Bridge, the Coast Guard said. Authorities said that part of the span had collapsed.`\
 https://nytimes.com/2024/03/26/us/ship-hits-baltimore-key-bridge.html
