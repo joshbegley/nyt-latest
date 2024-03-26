@@ -1,3 +1,11 @@
+**Corrections: March 26, 2024**\
+`Corrections that appeared in print on Tuesday, March 26, 2024.`\
+https://nytimes.com/2024/03/26/corrections/corrections-march-26-2024.html
+
+**Quotation of the Day: Delay Denied in Trump Trial in Manhattan**\
+`Quotation of the Day for Tuesday, March 26, 2024.`\
+https://nytimes.com/2024/03/26/pageoneplus/quotation-of-the-day-delay-denied-in-trump-trial-in-manhattan.html
+
 **Julian Assange Extradition Appeal Decision: What Could Happen?**\
 `On Tuesday, two British judges will decide whether the WikiLeaks founder can appeal his extradition order to the United States.`\
 https://nytimes.com/2024/03/26/world/europe/julian-assange-extradition-us.html

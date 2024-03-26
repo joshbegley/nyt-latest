@@ -1,3 +1,11 @@
+**Corrections: March 26, 2024**\
+`Corrections that appeared in print on Tuesday, March 26, 2024.`\
+https://nytimes.com/2024/03/26/corrections/corrections-march-26-2024.html
+
+**Quotation of the Day: Delay Denied in Trump Trial in Manhattan**\
+`Quotation of the Day for Tuesday, March 26, 2024.`\
+https://nytimes.com/2024/03/26/pageoneplus/quotation-of-the-day-delay-denied-in-trump-trial-in-manhattan.html
+
 **Julian Assange Extradition Appeal Decision: What Could Happen?**\
 `On Tuesday, two British judges will decide whether the WikiLeaks founder can appeal his extradition order to the United States.`\
 https://nytimes.com/2024/03/26/world/europe/julian-assange-extradition-us.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/25/us/katie-hobbs-arizona-election-threats-sentence.
 **Get Moving**\
 `Laura Dershewitz and Katherine Baicker make their collaboration debut in The New York Times.`\
 https://nytimes.com/2024/03/25/crosswords/daily-puzzle-2024-03-26.html
-
-**Police Officer Is Killed During a Traffic Stop in Queens**\
-`The authorities arrived in the Far Rockaway neighborhood at about 6 p.m. and found the police officer and a man wounded by gunfire.`\
-https://nytimes.com/2024/03/25/nyregion/police-officer-killed-traffic-stop-queens.html
-
-**Former Ohio House Speaker Hit With 10 Additional Felony Charges**\
-`Larry Householder, already serving a 20-year federal prison sentence, was indicted on additional state felony charges on Monday in connection with a sprawling bribery scheme.`\
-https://nytimes.com/2024/03/25/us/politics/larry-householder-ohio-speaker-charges.html
 
