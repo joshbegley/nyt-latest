@@ -1,3 +1,15 @@
+**The case seeks to push another goal of the conservative legal movement: dismantling the administrative state.**\
+`By Adam Liptak and Abbie VanSickle`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/the-case-seeks-to-push-another-goal-of-the-conservative-legal-movement-dismantling-the-administrative-state
+
+**After the ship hit the bridge, a collapse seemed inevitable, engineers say.**\
+`By Claire Moses and Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/after-the-ship-hit-the-bridge-a-collapse-seemed-inevitable-engineers-say
+
+**Bill Seeks Reparations for Families Displaced From Site of Dodger Stadium**\
+`About 1,800 families were forced to leave the land, now known as Chavez Ravine, that eventually became Dodger Stadium. A measure in the State Assembly could provide them with compensation or land.`\
+https://nytimes.com/2024/03/26/us/chavez-ravine-reparations-dodger-stadium.html
+
 **How Common Is Medication Abortion?**\
 `It’s now the most used abortion method.`\
 https://nytimes.com/2024/03/26/upshot/medication-abortion-pill-use.html
