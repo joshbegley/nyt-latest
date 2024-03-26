@@ -1,4 +1,8 @@
 **26baltimore-bridge**\
+`Live Updates: Major Bridge in Baltimore Collapses After Being Struck by Cargo Ship`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse
+
+**26baltimore-bridge**\
 `Live Updates: Cargo Ship Hits Major Bridge in Baltimore, Triggering Collapse`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse
 
