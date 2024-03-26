@@ -1,3 +1,7 @@
+**Big Ships Collide With Bridges Far Too Often**\
+`But there are better ways to protect a bridge like the one that collapsed in Baltimore.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/key-bridge-baltimore-collision
+
 **It Can Take Years to Repair Bridges After a Collapse**\
 `The collapse of the Francis Scott Key Bridge wiped out a roadway that tens of thousands of people used to travel to and from Baltimore.`\
 https://nytimes.com/2024/03/26/us/bridge-collapse-repairs.html
