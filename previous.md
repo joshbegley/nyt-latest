@@ -1,4 +1,4 @@
-**NBC News Cuts Ties With Ronna McDaniel After Network Firestorm**\
+**NBC News Cuts Ties with Ronna McDaniel After Network Firestorm**\
 `A string of top stars denounced the hiring of Ms. McDaniel, the former chairwoman of the Republican National Committee, on their own airwaves.`\
 https://nytimes.com/2024/03/26/business/media/ronna-mcdaniel-nbc-msnbc.html
 
