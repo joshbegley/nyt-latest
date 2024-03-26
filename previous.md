@@ -1,3 +1,7 @@
+**Baltimore Bridge Collapses After Hit by Ship**\
+`A livestream showed the moment part of the Francis Scott Key Bridge fell after it was struck by a cargo ship early Tuesday.`\
+https://nytimes.com/video/us/100000009380716/baltimore-bridge-collapse.html
+
 **Abortion Is Back in Front of the Supreme Court, and a Baltimore Bridge Collapses**\
 `Plus, a revolt at NBC.`\
 https://nytimes.com/2024/03/26/podcasts/abortion-pill-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/business/lofty-valuation-carries-trumps-social-me
 **Supreme Court Poised to Hear Arguments About Abortion Pill Access**\
 `The justices’ decision could cut off prescriptions by telemedicine and pills sent by mail, and also have implications for the regulatory authority of the F.D.A.`\
 https://nytimes.com/2024/03/26/us/politics/supreme-court-abortion-pill-hearing.html
-
-**What Most Surprised Us About the Outbreak of Deepfake Porn**\
-`We’ve effectively armed predators and exploitative companies with artificial intelligence but denied victims any defense.`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/deepfake-porn
 

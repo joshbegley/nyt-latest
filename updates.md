@@ -1,3 +1,7 @@
+**Baltimore Bridge Collapses After Hit by Ship**\
+`A livestream showed the moment part of the Francis Scott Key Bridge fell after it was struck by a cargo ship early Tuesday.`\
+https://nytimes.com/video/us/100000009380716/baltimore-bridge-collapse.html
+
 **Abortion Is Back in Front of the Supreme Court, and a Baltimore Bridge Collapses**\
 `Plus, a revolt at NBC.`\
 https://nytimes.com/2024/03/26/podcasts/abortion-pill-trump.html
