@@ -1,3 +1,7 @@
+**How Common Is Medication Abortion?**\
+`It’s now the most used abortion method.`\
+https://nytimes.com/2024/03/26/upshot/medication-abortion-pill-use.html
+
 **The Best Books About California**\
 `We’ve updated our ever-growing Golden State reading list.`\
 https://nytimes.com/2024/03/26/us/california-books.html

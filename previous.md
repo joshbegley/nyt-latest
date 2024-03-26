@@ -1,3 +1,7 @@
+**How Common Is Medication Abortion?**\
+`It’s now the most used abortion method.`\
+https://nytimes.com/2024/03/26/upshot/medication-abortion-pill-use.html
+
 **The Best Books About California**\
 `We’ve updated our ever-growing Golden State reading list.`\
 https://nytimes.com/2024/03/26/us/california-books.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/world/middleeast/israel-strikes-gaza-un-cease-fir
 **Why BlackRock’s C.E.O. Wants to Rethink Retirement**\
 `Larry Fink, who leads the world’s biggest asset manager, warns in his annual investor letter that an aging population will soon pose huge economic troubles.`\
 https://nytimes.com/2024/03/26/business/dealbook/blackrock-fink-letter-retirement.html
-
-**Maryland’s transportation secretary calls the collapse ‘catastrophic.’**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/marylands-transportation-secretary-calls-the-collapse-catastrophic
 
