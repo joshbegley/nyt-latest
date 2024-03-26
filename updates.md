@@ -1,3 +1,7 @@
+**Person Killed by Train After Being Pushed Onto Subway Tracks, Police Say**\
+`The attack at 125th Street in East Harlem was unprovoked, a police spokeswoman said.`\
+https://nytimes.com/2024/03/25/nyregion/subway-shoving-manhattan.html
+
 **DeSantis Signs Social Media Bill Barring Accounts for Children Under 14**\
 `A new Florida law also requires apps like TikTok and Snapchat to obtain a parent’s consent before giving accounts to 14- and 15-year-olds.`\
 https://nytimes.com/2024/03/25/business/florida-social-media-ban-desantis.html
