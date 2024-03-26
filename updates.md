@@ -1,3 +1,7 @@
+**Get Moving**\
+`Laura Dershewitz and Katherine Baicker make their collaboration debut in The New York Times.`\
+https://nytimes.com/2024/03/25/crosswords/daily-puzzle-2024-03-26.html
+
 **Man Killed by No. 4 Train After He Is Pushed Onto Subway Tracks**\
 `The attack at 125th Street in East Harlem was unprovoked, a police spokeswoman said, and a man is in custody.`\
 https://nytimes.com/2024/03/25/nyregion/subway-shoving-manhattan.html
