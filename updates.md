@@ -1,3 +1,7 @@
+**Baltimore’s Port Handled a Record Amount of Cargo Last Year**\
+`A bridge collapse closed the city’s port, an important trade hub that ranks first in the nation by the volume of automobiles and light trucks it handles.`\
+https://nytimes.com/2024/03/26/us/baltimore-port-cargo-ships.html
+
 **Suicide Bomber Kills 5 Chinese Workers in Pakistan**\
 `The attack comes amid a spate of terror attacks in Pakistan, as the country’s faltering ties to the Taliban affect regional security.`\
 https://nytimes.com/2024/03/26/world/asia/pakistan-suicide-bomber-chinese-workers.html
