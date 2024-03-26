@@ -1,3 +1,11 @@
+**Man Charged in Subway Shoving Had History of Mental Illness, Family Says**\
+`The man appeared to have a history of arrests and had been hospitalized at least twice for mental health treatment, according to officials and family.`\
+https://nytimes.com/2024/03/26/nyregion/subway-shove-manhattan.html
+
+**Conservative Commentators Condemn Uproar at NBC**\
+`On Fox News and elsewhere, the commentators have expressed incredulity over the reaction to the hiring of Ronna McDaniel, the former chair of the Republican National Committee.`\
+https://nytimes.com/2024/03/26/business/media/conservative-commentators-condemn-uproar-nbc.html
+
 **Demonstrators Make Themselves Heard on Abortion Pill Case**\
 `Thirteen abortion-rights protesters were arrested near the Supreme Court as part of a civil disobedience action. Abortion opponents were less numerous but still vocal.`\
 https://nytimes.com/2024/03/26/us/politics/supreme-court-protests-abortion-pill.html
