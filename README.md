@@ -32,7 +32,7 @@ https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/on-the-issue-
 
 **The ship’s mayday call prompted officials to stop traffic to the bridge.**\
 `By Michael D. Shear`\
-https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/the-ships-mayday-call-prompted-officials-to-stop-traffic-to-the-bridge
+https://nytimes.com/2024/03/26/us/the-ships-mayday-call-prompted-officials-to-stop-traffic-to-the-bridge.html
 
 **State constitutions are another battleground in the fight over abortion.**\
 `By Kate Zernike`\
