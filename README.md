@@ -1,3 +1,15 @@
+**The argument will most likely focus on limiting access to the abortion pill, not invalidating it.**\
+`By Adam Liptak and Abbie VanSickle`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/the-argument-will-most-likely-focus-on-limiting-access-to-the-abortion-pill-not-invalidating-it
+
+**What Is Mifepristone and How Is It Used?**\
+`More than half of people who get legal abortions in the United States — and three-quarters in Europe — use medication abortion.`\
+https://nytimes.com/2024/03/26/us/politics/what-is-mifepristone-abortion.html
+
+**26scotus-abortion**\
+`Live Updates: Supreme Court to Hear Arguments on Abortion Pill Access`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court
+
 **Suicide Bomber Kills 5 Chinese Workers in Pakistan**\
 `The attack comes amid a spate of terror attacks in Pakistan, as the country’s faltering ties to the Taliban affect regional security.`\
 https://nytimes.com/2024/03/26/world/asia/pakistan-suicide-bomber-chinese-workers.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/26/world/americas/bolsonaro-brazil-hungary-embassy.h
 **Weekly Student News Quiz: Israel-Hamas War, Medical Breakthrough, Apple**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/03/26/learning/26StudentNewsQuiz.html
-
-**How the Key Bridge Collapsed in Baltimore: Maps and Photos**\
-`A major bridge in Baltimore collapsed after being struck by a cargo ship early Tuesday, sending vehicles plunging into the water and setting off an emergency response.`\
-https://nytimes.com/interactive/2024/03/26/us/baltimore-key-bridge-collapse-maps.html
-
-**Domestic politics drive the deep divisions between Biden and Netanyahu.**\
-`By Steven Erlanger`\
-https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/domestic-politics-drive-the-deep-divisions-between-biden-and-netanyahu
-
-**Baltimore’s Port Handled a Record Amount of Cargo Last Year**\
-`A bridge collapse closed the city’s port, an important trade hub that ranks first in the nation by the volume of automobiles and light trucks it handles.`\
-https://nytimes.com/2024/03/26/us/baltimore-port-cargo-ships.html
 
