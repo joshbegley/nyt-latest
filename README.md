@@ -28,7 +28,7 @@ https://nytimes.com/2024/03/26/science/birds-dreaming-rem-sleep.html
 
 **Cargo Ship Hits Key Bridge in Baltimore, Triggering Partial Collapse**\
 `The Singapore-flagged vessel struck the Francis Scott Key Bridge, the Coast Guard said. Authorities said that part of the span had collapsed.`\
-https://nytimes.com/2024/03/26/us/ship-hits-baltimore-key-bridge.html
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/ship-hits-baltimore-key-bridge
 
 **Word of the Day: inexorably**\
 `This word has appeared in 49 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
