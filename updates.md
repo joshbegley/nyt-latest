@@ -1,3 +1,11 @@
+**Congestion Pricing Is a Victory for Millions of Transit Riders**\
+`Opposition from New York’s car culture remains shortsighted.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/congestion-pricing-newyork-transit
+
+**A Grim Tory Ad About London Crime Used New York Footage**\
+`An ad for the British Conservative mayoral candidate showed terrified commuters running. But they were not in London. They were in Penn Station, responding to false reports of gunfire in 2017.`\
+https://nytimes.com/2024/03/26/world/europe/london-crime-ad-nyc-conservatives.html
+
 **Abortion shield laws are creating a clash among states.**\
 `By Pam Belluck`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/abortion-shield-laws-are-creating-a-clash-among-states
