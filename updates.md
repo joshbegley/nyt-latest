@@ -1,3 +1,7 @@
+**Word of the Day: inexorably**\
+`This word has appeared in 49 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/26/word-of-the-day-inexorably.html
+
 **Tuesday Briefing**\
 `“Radical Islamists” attacked Moscow, Vladimir Putin acknowledges.`\
 https://nytimes.com/2024/03/26/briefing/putin-moscow-attack-gaza-un.html

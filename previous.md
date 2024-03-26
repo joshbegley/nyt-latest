@@ -1,3 +1,7 @@
+**Word of the Day: inexorably**\
+`This word has appeared in 49 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/26/word-of-the-day-inexorably.html
+
 **Tuesday Briefing**\
 `“Radical Islamists” attacked Moscow, Vladimir Putin acknowledges.`\
 https://nytimes.com/2024/03/26/briefing/putin-moscow-attack-gaza-un.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/world/americas/mexico-biden-migration-border.html
 **A French-Malian Singer Is Caught in an Olympic Storm**\
 `Aya Nakamura’s music is one of France’s top cultural exports. But reports that she might perform at the Paris Games have prompted fierce debates over identity and language.`\
 https://nytimes.com/2024/03/26/world/europe/france-olympics-aya-nakamura.html
-
-**In France, the Future Is Arriving on a Barge**\
-`The Seine is becoming a test case for a European plan to cut carbon emissions by turning rivers into the new highways.`\
-https://nytimes.com/2024/03/26/business/in-france-the-future-is-arriving-on-a-barge.html
 
