@@ -1,3 +1,7 @@
+**A New Law Would Remove Many Architectural Protections in Miami Beach**\
+`Lawmakers say preservationists held too much power over decisions on whether buildings should be demolished and what should be allowed to replace them.`\
+https://nytimes.com/2024/03/26/realestate/miami-beach-building-preservation-florida.html
+
 **What is the Comstock Act?**\
 `The law prevents the mailing of drugs used for abortions.`\
 https://nytimes.com/2024/03/26/us/what-is-comstock-act.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/technology/tiktok-investors-bytedance.html
 **2023 was a landmark year for abortion bills in states. 2024, not so much.**\
 `By David W. Chen`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/2023-was-a-landmark-year-for-abortion-bills-in-states-2024-not-so-much
-
-**Review: In ‘American Rot,’ the Painful Legacy of the Dred Scott Case**\
-`Kate Taney Billingsley’s play starts with a fictional apology, but then segregated choirs and a racist waitress create tonal dissonance.`\
-https://nytimes.com/2024/03/26/theater/american-rot-review.html
 
