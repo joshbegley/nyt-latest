@@ -1,3 +1,7 @@
+**Birmingham-Southern College to Close After Failing to Secure State Loan**\
+`After decades of financial mismanagement, the nearly 170-year-old private liberal arts school is set to close at the end of May.`\
+https://nytimes.com/2024/03/26/us/birmingham-southern-college-closing.html
+
 **What’s Going on With Legal Marijuana in New York?**\
 `Get up to speed on the state’s nascent cannabis industry with the New York Times reporter who covers it.`\
 https://nytimes.com/2024/03/26/insider/marijuana-in-new-york.html

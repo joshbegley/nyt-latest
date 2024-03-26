@@ -1,3 +1,7 @@
+**Birmingham-Southern College to Close After Failing to Secure State Loan**\
+`After decades of financial mismanagement, the nearly 170-year-old private liberal arts school is set to close at the end of May.`\
+https://nytimes.com/2024/03/26/us/birmingham-southern-college-closing.html
+
 **What’s Going on With Legal Marijuana in New York?**\
 `Get up to speed on the state’s nascent cannabis industry with the New York Times reporter who covers it.`\
 https://nytimes.com/2024/03/26/insider/marijuana-in-new-york.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/26/briefing/baltimore-bridge-collapse-supreme-court-
 **Florida Protects Children From Social Media but Not Measles**\
 `Parents are allowed to let their children infect others with a serious virus.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/florida-measles-social-media
-
-**Marjorie Perloff, Leading Scholar of Avant-Garde Poetry, Dies at 92**\
-`A forceful advocate for experimental poetry, she argued that a critic’s task was not to search for meaning, but to explicate the form and texture of a poem.`\
-https://nytimes.com/2024/03/26/books/marjorie-perloff-dead.html
 
