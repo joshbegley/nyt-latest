@@ -1,3 +1,7 @@
+**Demonstrators Make Themselves Heard on Abortion Pill Case**\
+`Thirteen abortion-rights protesters were arrested near the Supreme Court as part of a civil disobedience action. Abortion opponents were less numerous but still vocal.`\
+https://nytimes.com/2024/03/26/us/politics/supreme-court-protests-abortion-pill.html
+
 **Seance? Celebration? A Risqué Tribute to Sinead O’Connor Arrives.**\
 `The performance artist Christeene’s show honoring the Irish musician’s debut album touched down in New York with Peaches, Justin Vivian Bond and plenty of nudity and tears.`\
 https://nytimes.com/2024/03/26/arts/music/sinead-oconnor-tribute-christeene.html
