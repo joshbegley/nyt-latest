@@ -1,3 +1,7 @@
+**The ship’s mayday call prompted officials to stop traffic to the bridge.**\
+`By Michael D. Shear`\
+https://nytimes.com/2024/03/26/us/the-ships-mayday-call-prompted-officials-to-stop-traffic-to-the-bridge.html
+
 **A bill to continue exempting ultra-Orthodox Jews from military service sparks protests in Israel.**\
 `By Cassandra Vinograd and Patrick Kingsley`\
 https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/a-bill-to-continue-exempting-ultra-orthodox-jews-from-military-service-sparks-protests-in-israel
