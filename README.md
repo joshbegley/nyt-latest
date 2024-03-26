@@ -1,3 +1,7 @@
+**The impact of the court’s decision could be far broader than one medication.**\
+`By Pam Belluck`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/the-impact-of-the-courts-decision-could-be-far-broader-than-one-medication
+
 **The argument will most likely focus on limiting access to the abortion pill, not invalidating it.**\
 `By Adam Liptak and Abbie VanSickle`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/the-argument-will-most-likely-focus-on-limiting-access-to-the-abortion-pill-not-invalidating-it
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/marylands-trans
 **Bolsonaro Faces New Legal Jeopardy After Stay at Hungarian Embassy**\
 `The Brazilian Supreme Court and the federal police are demanding answers from former President Jair Bolsonaro after a New York Times investigation.`\
 https://nytimes.com/2024/03/26/world/americas/bolsonaro-brazil-hungary-embassy.html
-
-**Weekly Student News Quiz: Israel-Hamas War, Medical Breakthrough, Apple**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2024/03/26/learning/26StudentNewsQuiz.html
 
