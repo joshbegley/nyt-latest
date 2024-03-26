@@ -1,3 +1,11 @@
+**10 Essential Joni Mitchell Songs**\
+`Celebrate the artist’s return to Spotify with tracks from last summer’s “Joni Jam.”`\
+https://nytimes.com/2024/03/26/arts/music/amplifier-newsletter-joni-mitchell-songs.html
+
+**Why Palm Oil is Still a Big Problem**\
+`The ubiquitous ingredient contributes to the loss of tropical forests.`\
+https://nytimes.com/2024/03/26/climate/why-palm-oil-is-still-a-big-problem.html
+
 **A British Scandal Intrigued J.T. Rogers, Then He Went Down the Rabbit Hole**\
 `The playwright thought News International’s phone-hacking scandal could make for a sweeping thriller. Twelve years later, here it is.`\
 https://nytimes.com/2024/03/26/theater/jt-rogers-corruption-phone-hacking.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/26/nyregion/lee-berry-dead.html
 **A bill to continue exempting ultra-Orthodox Jews from military service sparks protests in Israel.**\
 `By Cassandra Vinograd and Patrick Kingsley`\
 https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/a-bill-to-continue-exempting-ultra-orthodox-jews-from-military-service-sparks-protests-in-israel
-
-**What happens next? The court will probably not issue a decision until June.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/what-happens-next-the-court-will-probably-not-issue-a-decision-until-june
-
-**6 Terrific Specials From 6 Very Different Comics, Streaming Now**\
-`Jenny Slate, Dan Soder, Cara Connors, Tig Notaro, David Cross and Dave Attell stamp these hours with particularly rich sensibilities.`\
-https://nytimes.com/2024/03/26/arts/television/comedy-jenny-slate-tig-notaro-streaming.html
 
