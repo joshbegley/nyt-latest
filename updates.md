@@ -1,3 +1,7 @@
+**Why Are China’s Nationalists Attacking the Country’s Heroes?**\
+`Online vitriol has targeted the country’s richest man, erasing billions of dollars of his company’s market value, despite Beijing’s courtship of entrepreneurs.`\
+https://nytimes.com/2024/03/26/world/asia/china-nationalists-online-attacks.html
+
 **Corrections: March 26, 2024**\
 `Corrections that appeared in print on Tuesday, March 26, 2024.`\
 https://nytimes.com/2024/03/26/corrections/corrections-march-26-2024.html
