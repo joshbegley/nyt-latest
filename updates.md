@@ -1,3 +1,11 @@
+**Biden, Interrupted by Gaza Protesters, Says They ‘Have a Point’**\
+`After his event in North Carolina was disrupted by demonstrators, the president said that “we need to get a lot more care into Gaza.”`\
+https://nytimes.com/2024/03/26/us/politics/biden-gaza-protesters.html
+
+**Sean Combs’s Lawyer Says Rap Mogul Faced ‘Unprecedented Ambush’**\
+`A day after two of the entertainment executive’s homes were raided by federal agents from Homeland Security Investigations, his lawyer said his client is innocent.`\
+https://nytimes.com/2024/03/26/arts/music/diddy-sean-combs-raid-statement.html
+
 **Engineers Are Raising Questions About Piers Supporting Baltimore Bridge**\
 `In reviewing images of the Francis Scott Key Bridge, some structural engineers said it appeared to lack protective barriers for the piers that are essential to its structural integrity.`\
 https://nytimes.com/2024/03/26/us/baltimore-key-bridge-structure-support-pier.html

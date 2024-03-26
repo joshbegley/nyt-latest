@@ -1,3 +1,11 @@
+**Biden, Interrupted by Gaza Protesters, Says They ‘Have a Point’**\
+`After his event in North Carolina was disrupted by demonstrators, the president said that “we need to get a lot more care into Gaza.”`\
+https://nytimes.com/2024/03/26/us/politics/biden-gaza-protesters.html
+
+**Sean Combs’s Lawyer Says Rap Mogul Faced ‘Unprecedented Ambush’**\
+`A day after two of the entertainment executive’s homes were raided by federal agents from Homeland Security Investigations, his lawyer said his client is innocent.`\
+https://nytimes.com/2024/03/26/arts/music/diddy-sean-combs-raid-statement.html
+
 **Engineers Are Raising Questions About Piers Supporting Baltimore Bridge**\
 `In reviewing images of the Francis Scott Key Bridge, some structural engineers said it appeared to lack protective barriers for the piers that are essential to its structural integrity.`\
 https://nytimes.com/2024/03/26/us/baltimore-key-bridge-structure-support-pier.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/03/26/arts/planet-hollywood-auction-titanic.html
 **Wednesday Briefing: U.S.-Israel Divisions Grow**\
 `Plus, Beyoncé’s country album.`\
 https://nytimes.com/2024/03/26/briefing/us-israel-political-divide-baltimore-bridge-collapse-pakistan-suicide-bomber.html
-
-**Turkey Details Visits by Accused Moscow Attackers to Istanbul**\
-`A Turkish official said two of the suspects had made recent trips to Turkey, but were radicalized earlier.`\
-https://nytimes.com/2024/03/26/world/europe/turkey-moscow-terror-suspects.html
-
-**What We Know About the Francis Scott Key Bridge Collapse in Baltimore**\
-`Federal investigators search for answers about how a massive cargo ship struck a major bridge minutes after leaving the Port of Baltimore early Tuesday.`\
-https://nytimes.com/2024/03/26/us/key-bridge-collapse-baltimore-what-to-know.html
 
