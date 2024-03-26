@@ -1,3 +1,7 @@
+**Gazans Drown Trying to Retrieve Airdropped Aid, Authorities Say**\
+`People entered the water from a beach in northern Gaza, and around a dozen drowned, according to a local researcher who spoke to witnesses.`\
+https://nytimes.com/2024/03/26/world/middleeast/gaza-aid-death.html
+
 **Slain Officer Remembered as a Friendly Neighbor With a Promising Future**\
 `Officer Jonathan Diller, who joined the Police Department in February 2021, was fatally shot on Monday after questioning two men sitting in an illegally parked car.`\
 https://nytimes.com/2024/03/26/nyregion/nypd-officer-killed-queens-far-rockaway.html
