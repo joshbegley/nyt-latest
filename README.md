@@ -1,3 +1,11 @@
+**Congestion Pricing Is a Victory for Millions of Transit Riders**\
+`Opposition from New York’s car culture remains shortsighted.`\
+https://nytimes.com/live/2024/03/19/opinion/thepoint/congestion-pricing-newyork-transit
+
+**A Grim Tory Ad About London Crime Used New York Footage**\
+`An ad for the British Conservative mayoral candidate showed terrified commuters running. But they were not in London. They were in Penn Station, responding to false reports of gunfire in 2017.`\
+https://nytimes.com/2024/03/26/world/europe/london-crime-ad-nyc-conservatives.html
+
 **Abortion shield laws are creating a clash among states.**\
 `By Pam Belluck`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/abortion-shield-laws-are-creating-a-clash-among-states
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/26/well/move/weed-exercise-cannabis-workout.html
 **Recent collapses raise questions on bridges and modern shipping.**\
 `By Keith Bradsher`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/recent-collapses-raise-questions-on-bridges-and-modern-shipping
-
-**A New Law Would Remove Many Architectural Protections in Miami Beach**\
-`Lawmakers say preservationists held too much power over decisions on whether buildings should be demolished and what should be allowed to replace them.`\
-https://nytimes.com/2024/03/26/realestate/miami-beach-building-preservation-florida.html
-
-**What is the Comstock Act?**\
-`The law prevents the mailing of drugs used for abortions.`\
-https://nytimes.com/2024/03/26/us/what-is-comstock-act.html
 
