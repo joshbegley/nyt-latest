@@ -1,3 +1,11 @@
+**What happens next? The court will probably not issue a decision until June.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/what-happens-next-the-court-will-probably-not-issue-a-decision-until-june
+
+**6 Terrific Specials From 6 Very Different Comics, Streaming Now**\
+`Jenny Slate, Dan Soder, Cara Connors, Tig Notaro, David Cross and Dave Attell stamp these hours with particularly rich sensibilities.`\
+https://nytimes.com/2024/03/26/arts/television/comedy-jenny-slate-tig-notaro-streaming.html
+
 **Israeli Hostage Says She Was Sexually Assaulted and Tortured in Gaza**\
 `Amit Soussana is the first former hostage to publicly say she was sexually abused in captivity. A U.N. report has said it found “clear and convincing information” that some hostages suffered “conflict-related sexual violence.”`\
 https://nytimes.com/2024/03/26/world/middleeast/hamas-hostage-sexual-assault.html
