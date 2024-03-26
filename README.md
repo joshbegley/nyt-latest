@@ -1,3 +1,11 @@
+**DeSantis Signs Social Media Bill Barring Accounts for Children Under 14**\
+`A new Florida law also requires apps like TikTok and Snapchat to obtain a parent’s consent before giving accounts to 14- and 15-year-olds.`\
+https://nytimes.com/2024/03/25/business/florida-social-media-ban-desantis.html
+
+**Bird Flu Spreads to Dairy Cows**\
+`U.S. regulators confirmed that sick cattle in Texas, Kansas and possibly in New Mexico contracted avian influenza. They stressed the nation’s milk supply is safe, saying pasteurization kills viruses.`\
+https://nytimes.com/2024/03/25/science/bird-flu-cows-milk.html
+
 **‘Succession’ on Ice**\
 `Ilia Malinin, an American teenager, won the men’s World Figure Skating Championships with a performance set to the theme of the HBO series.`\
 https://nytimes.com/2024/03/25/style/succession-ilia-malinin-figure-skating.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/25/arts/music/diddy-sean-combs-home-raided.html
 **Trump Dodged Financial Ruin, but Failed to Delay His Trial**\
 `Also, the U.N. passed a resolution for an immediate cease-fire. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/03/25/briefing/trump-bond-united-nations-resolution-dude-history.html
-
-**Lisa Lane, Chess Champion Whose Reign Was Meteoric, Dies at 90**\
-`She was the first chess player to appear on the cover of Sports Illustrated. But people focused more on her looks than on her ability.`\
-https://nytimes.com/2024/03/25/us/lisa-lane-dead.html
-
-**Boeing Needs New Leadership With the Right Kind of Experience**\
-`A new C.E.O. needs to have lived and breathed complex manufacturing.`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/boeing-new-leadership
 
