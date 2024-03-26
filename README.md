@@ -1,5 +1,5 @@
 **26baltimore-bridge**\
-`Live Updates: Cargo Ship Hits Major Bridge in Baltimore, Triggering Collapse`\
+`Live Updates: Major Bridge in Baltimore Collapses After Being Struck by Cargo Ship`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse
 
 **Late Night Doesn’t Think Trump’s Good News Is All That Good**\
