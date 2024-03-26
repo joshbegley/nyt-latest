@@ -34,7 +34,3 @@ https://nytimes.com/2024/03/26/us/politics/abortion-pill-supreme-court-takeaways
 `The ruling means that Evan Gershkovich, a reporter for The Wall Street Journal, will spend more than a year in custody awaiting trial on a spying charge.`\
 https://nytimes.com/2024/03/26/world/europe/evan-gershkovich-russia-prison.html
 
-**What Does It Mean When a ‘State of Emergency’ Is Declared?**\
-`States of emergency are often in effect for catastrophic weather, but they are also used in many other situations.`\
-https://nytimes.com/2024/03/26/us/state-of-emergency-maryland-bridge-collapse.html
-
