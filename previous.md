@@ -1,3 +1,7 @@
+**Erin Hawley is fighting the availability of the abortion pill.**\
+`By Elizabeth Dias and Abbie VanSickle`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/erin-hawley-is-fighting-the-availability-of-the-abortion-pill
+
 **Biden’s Challenges in Reaching Young Voters on TikTok Include Anger Over Gaza**\
 `For his campaign, navigating the platform has meant encountering over and over some of the thorniest issues plaguing Mr. Biden’s re-election bid.`\
 https://nytimes.com/2024/03/26/us/politics/biden-tiktok-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/us/politics/biden-baltimore-bridge-collapse-infra
 **Solicitor General Elizabeth Prelogar is representing the Justice Department.**\
 `By Katie Benner`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/solicitor-general-elizabeth-prelogar-is-representing-the-justice-department
-
-**Governors Island Taps New Head Curator**\
-`Lauren Haynes brings her curatorial expertise to the goal of growing Governors Island’s public art program.`\
-https://nytimes.com/2024/03/26/arts/design/lauren-haynes-governors-island-curator.html
 
