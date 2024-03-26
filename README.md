@@ -28,7 +28,7 @@ https://nytimes.com/2024/03/26/us/state-of-emergency-maryland-bridge-collapse.ht
 
 **An Anti-Abortion Case Too Far-Fetched for the Supreme Court**\
 `Even conservative justices seemed skeptical that the plaintiffs suffered any real harm.`\
-https://nytimes.com/live/2024/03/19/opinion/thepoint/abortion-mifepristone-supreme-court
+https://nytimes.com/live/2024/03/26/opinion/thepoint/abortion-mifepristone-supreme-court
 
 **3 Things to Know About Nicole Shanahan, R.F.K. Jr.’s Running Mate**\
 `She indicated that she supports Robert F. Kennedy Jr.’s vaccine stance, and she bankrolled his Super Bowl ad. She has never held elected office.`\
