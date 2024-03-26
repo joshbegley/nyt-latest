@@ -1,3 +1,11 @@
+**Engineers Are Raising Questions About Piers Supporting Baltimore Bridge**\
+`In reviewing images of the Francis Scott Key Bridge, some structural engineers said it appeared to lack protective barriers for the piers that are essential to its structural integrity.`\
+https://nytimes.com/2024/03/26/us/baltimore-key-bridge-structure-support-pier.html
+
+**A Baltimore Bridge Collapsed After a Ship Collision**\
+`Also, the Supreme Court seemed skeptical of an effort to curtail abortion pill access. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/03/26/briefing/baltimore-bridge-collapse-supreme-court-abortion-pill.html
+
 **Florida Protects Children From Social Media but Not Measles**\
 `Parents are allowed to let their children infect others with a serious virus.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/florida-measles-social-media
@@ -25,12 +33,4 @@ https://nytimes.com/2024/03/26/world/europe/turkey-moscow-terror-suspects.html
 **What We Know About the Francis Scott Key Bridge Collapse in Baltimore**\
 `Federal investigators search for answers about how a massive cargo ship struck a major bridge minutes after leaving the Port of Baltimore early Tuesday.`\
 https://nytimes.com/2024/03/26/us/key-bridge-collapse-baltimore-what-to-know.html
-
-**Trump Advisers Talk of Palestinian Expulsions, but Activists Focus on Biden**\
-`Donald J. Trump’s son-in-law and his former ambassador to Israel have amplified policy proposals embraced by Israel’s far-right wing, but U.S. activists say their anger still rests with the current administration.`\
-https://nytimes.com/2024/03/26/us/politics/trump-gaza.html
-
-**The Justin Timberlake Conundrum**\
-`His sixth solo album, “Everything I Thought It Was,” has been met with critical dismissal and weaker sales. Where can the onetime pop superstar turn next?`\
-https://nytimes.com/2024/03/26/arts/music/popcast-justin-timberlake.html
 

@@ -1,3 +1,11 @@
+**Engineers Are Raising Questions About Piers Supporting Baltimore Bridge**\
+`In reviewing images of the Francis Scott Key Bridge, some structural engineers said it appeared to lack protective barriers for the piers that are essential to its structural integrity.`\
+https://nytimes.com/2024/03/26/us/baltimore-key-bridge-structure-support-pier.html
+
+**A Baltimore Bridge Collapsed After a Ship Collision**\
+`Also, the Supreme Court seemed skeptical of an effort to curtail abortion pill access. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/03/26/briefing/baltimore-bridge-collapse-supreme-court-abortion-pill.html
+
 **Florida Protects Children From Social Media but Not Measles**\
 `Parents are allowed to let their children infect others with a serious virus.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/florida-measles-social-media
