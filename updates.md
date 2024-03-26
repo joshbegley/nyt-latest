@@ -1,3 +1,15 @@
+**A British Scandal Intrigued J.T. Rogers, Then He Went Down the Rabbit Hole**\
+`The playwright thought News International’s phone-hacking scandal could make for a sweeping thriller. Twelve years later, here it is.`\
+https://nytimes.com/2024/03/26/theater/jt-rogers-corruption-phone-hacking.html
+
+**In the Former Nobu Space, Beefbar Lives Up to Its Name**\
+`A seafood bar opens above Claud, the former chef of Maharlika and Jeepney turns to Italian cuisine, and more restaurant news.`\
+https://nytimes.com/2024/03/26/dining/nyc-restaurant-news.html
+
+**The Debate Over Free Speech, Disinformation and Censorship**\
+`Readers discuss the First Amendment and efforts to monitor content on social media. Also: Senator Ted Cruz; talking about cancer; landlines; internet access.`\
+https://nytimes.com/2024/03/26/opinion/free-speech-disinformation-censorship.html
+
 **Texas Attorney General Ken Paxton Reaches Deal to Avoid Criminal Trial**\
 `Nearly a decade after his indictment for securities fraud, Mr. Paxton will pay restitution, take legal ethics classes and do community service as part of an agreement with prosecutors.`\
 https://nytimes.com/2024/03/26/us/politics/texas-attorney-general-ken-paxton-texas-plea-deal-securities-fraud.html
