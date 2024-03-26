@@ -1,3 +1,11 @@
+**DeSantis Signs Social Media Bill Barring Accounts for Children Under 14**\
+`A new Florida law also requires apps like TikTok and Snapchat to obtain a parent’s consent before giving accounts to 14- and 15-year-olds.`\
+https://nytimes.com/2024/03/25/business/florida-social-media-ban-desantis.html
+
+**Bird Flu Spreads to Dairy Cows**\
+`U.S. regulators confirmed that sick cattle in Texas, Kansas and possibly in New Mexico contracted avian influenza. They stressed that the nation’s milk supply is safe, saying pasteurization kills viruses.`\
+https://nytimes.com/2024/03/25/science/bird-flu-cows-milk.html
+
 **‘Succession’ on Ice**\
 `Ilia Malinin, an American teenager, won the men’s World Figure Skating Championships with a performance set to the theme of the HBO series.`\
 https://nytimes.com/2024/03/25/style/succession-ilia-malinin-figure-skating.html
