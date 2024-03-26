@@ -1,3 +1,7 @@
+**What’s at stake in the abortion pill case?**\
+`By Pam Belluck and Abbie VanSickle`\
+https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/whats-at-stake-in-the-abortion-pill-case
+
 **26pol-swiper**\
 `Election Updates: Biden visits North Carolina, and R.F.K. Jr. picks a running mate.`\
 https://nytimes.com/live/2024/03/26/us/trump-biden-rfk-election
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/the-argument-
 **What Is Mifepristone and How Is It Used?**\
 `More than half of people who get legal abortions in the United States — and three-quarters in Europe — use medication abortion.`\
 https://nytimes.com/2024/03/26/us/politics/what-is-mifepristone-abortion.html
-
-**26scotus-abortion**\
-`Live Updates: Supreme Court to Hear Arguments on Abortion Pill Access`\
-https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court
 
