@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/03/26/crosswords/spelling-bee-forum.html
+
 **Israel’s defense minister aims to shore up U.S. support as tension between the allies heightens.**\
 `By Victoria Kim`\
 https://nytimes.com/live/2024/03/26/world/israel-hamas-war-gaza-news/israels-defense-minister-aims-to-shore-up-us-support-as-tension-between-the-allies-heighten
