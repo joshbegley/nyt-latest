@@ -1,3 +1,7 @@
+**NBC News Cuts Ties With Ronna McDaniel After Network Firestorm**\
+`A string of top stars denounced the hiring of Ms. McDaniel, the former chairwoman of the Republican National Committee, on their own airwaves.`\
+https://nytimes.com/2024/03/26/business/media/ronna-mcdaniel-nbc-msnbc.html
+
 **Birmingham-Southern College to Close After Failing to Secure State Loan**\
 `After decades of financial mismanagement, the nearly 170-year-old private liberal arts school is set to close at the end of May.`\
 https://nytimes.com/2024/03/26/us/birmingham-southern-college-closing.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/26/us/baltimore-key-bridge-structure-support-pier.ht
 **A Baltimore Bridge Collapsed After a Ship Collision**\
 `Also, the Supreme Court seemed skeptical of an effort to curtail abortion pill access. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/03/26/briefing/baltimore-bridge-collapse-supreme-court-abortion-pill.html
-
-**Florida Protects Children From Social Media but Not Measles**\
-`Parents are allowed to let their children infect others with a serious virus.`\
-https://nytimes.com/live/2024/03/26/opinion/thepoint/florida-measles-social-media
 
