@@ -1,3 +1,7 @@
+**Person Killed by Train After Being Pushed Onto Subway Tracks, Police Say**\
+`The attack at 125th Street in East Harlem was unprovoked, a police spokeswoman said.`\
+https://nytimes.com/2024/03/25/nyregion/subway-shoving-manhattan.html
+
 **DeSantis Signs Social Media Bill Barring Accounts for Children Under 14**\
 `A new Florida law also requires apps like TikTok and Snapchat to obtain a parent’s consent before giving accounts to 14- and 15-year-olds.`\
 https://nytimes.com/2024/03/25/business/florida-social-media-ban-desantis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/25/well/fda-covid-medicine-immunocompromised.html
 **Federal Agents Raid Homes Tied to Sean Combs in Los Angeles and Miami**\
 `In response to questions about Mr. Combs’s residences, Homeland Security Investigations said the searches were part of “an ongoing investigation.”`\
 https://nytimes.com/2024/03/25/arts/music/diddy-sean-combs-home-raided.html
-
-**Trump Dodged Financial Ruin, but Failed to Delay His Trial**\
-`Also, the U.N. passed a resolution for an immediate cease-fire. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/03/25/briefing/trump-bond-united-nations-resolution-dude-history.html
 
