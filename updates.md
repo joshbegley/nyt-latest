@@ -1,3 +1,7 @@
+**Vessels Belonging to Owner of Baltimore Ship Had Been Cited for Labor Violations**\
+`The vessels had underpaid crews and kept workers onboard for months beyond their contracts, according to an Australian regulator.`\
+https://nytimes.com/2024/03/26/us/ship-labor-baltimore-bridge-collapse.html
+
 **Ships Belonging to Owner of Baltimore Ship Had Been Cited for Labor Violations**\
 `The vessels had underpaid crews and kept workers onboard for months beyond their contracts, according to an Australian regulator.`\
 https://nytimes.com/2024/03/26/us/ship-labor-baltimore-bridge-collapse.html
