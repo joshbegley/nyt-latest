@@ -1,3 +1,7 @@
+**Ships Belonging to Owner of Baltimore Ship Had Been Cited for Labor Violations**\
+`The vessels had underpaid crews and kept workers onboard for months beyond their contracts, according to an Australian regulator.`\
+https://nytimes.com/2024/03/26/us/ship-labor-baltimore-bridge-collapse.html
+
 **Fretting About Election-Year Deep Fakes, States Roll Out New Rules for A.I. Content**\
 `An increasing number of states have advanced A.I.-related legislation to combat attempts to mislead voters during the 2024 election, according to a new analysis by the Voting Rights Lab.`\
 https://nytimes.com/2024/03/26/us/politics/election-year-deep-fakes-ai-rules.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/26/us/birmingham-southern-college-closing.html
 **What’s Going on With Legal Marijuana in New York?**\
 `Get up to speed on the state’s nascent cannabis industry with the New York Times reporter who covers it.`\
 https://nytimes.com/2024/03/26/insider/marijuana-in-new-york.html
-
-**The Islamic State Claimed the Moscow Attack. The Kremlin Is Still Blaming Others.**\
-`Russian narratives served to deflect attention from the failure to prevent the deadly attack while rallying the country behind the war in Ukraine.`\
-https://nytimes.com/2024/03/26/business/media/moscow-attack-narratives.html
 
