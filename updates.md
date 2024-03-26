@@ -1,3 +1,7 @@
+**The Key Bridge was named after the national anthem’s author.**\
+`Francis Scott Key was believed to be near the site when he observed a British bombardment during the War of 1812.`\
+https://nytimes.com/2024/03/26/us/francis-scott-key-bridge-baltimore-history.html
+
 **The Key Bridge was named after the author of the national anthem.**\
 `By Jin Yu Young`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/the-key-bridge-was-named-after-the-author-of-the-national-anthem
