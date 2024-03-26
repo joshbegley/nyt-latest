@@ -1,3 +1,7 @@
+**Mayor Eric Adams Grapples With Two Shocking Acts of Violence**\
+`The killing of a police officer and a fatal push on the subway underscore the challenges that Mr. Adams faces as he tries to improve public safety.`\
+https://nytimes.com/2024/03/26/nyregion/eric-adams-police-subway.html
+
 **The court has generally supported the F.D.A.’s authority on drug safety.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/03/26/us/abortion-pill-supreme-court/the-court-has-generally-supported-the-fdas-authority-on-drug-safety
