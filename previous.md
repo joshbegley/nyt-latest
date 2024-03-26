@@ -1,3 +1,7 @@
+**Missing employees were working to support their families, a co-worker says.**\
+`An executive at the construction company told The Associated Press that the six employees who went into the river were presumed dead.`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/missing-workers-baltimore-bridge-collapse
+
 **NBC News Cuts Ties With Ronna McDaniel After Network Firestorm**\
 `A string of top stars denounced the hiring of Ms. McDaniel, the former chairwoman of the Republican National Committee, on their own airwaves.`\
 https://nytimes.com/2024/03/26/business/media/ronna-mcdaniel-nbc-msnbc.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/26/arts/music/diddy-sean-combs-raid-statement.html
 **Engineers Are Raising Questions About Piers Supporting Baltimore Bridge**\
 `In reviewing images of the Francis Scott Key Bridge, some structural engineers said it appeared to lack protective barriers for the piers that are essential to its structural integrity.`\
 https://nytimes.com/2024/03/26/us/baltimore-key-bridge-structure-support-pier.html
-
-**A Baltimore Bridge Collapsed After a Ship Collision**\
-`Also, the Supreme Court seemed skeptical of an effort to curtail abortion pill access. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/03/26/briefing/baltimore-bridge-collapse-supreme-court-abortion-pill.html
 

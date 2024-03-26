@@ -1,3 +1,7 @@
+**Missing employees were working to support their families, a co-worker says.**\
+`An executive at the construction company told The Associated Press that the six employees who went into the river were presumed dead.`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/missing-workers-baltimore-bridge-collapse
+
 **NBC News Cuts Ties With Ronna McDaniel After Network Firestorm**\
 `A string of top stars denounced the hiring of Ms. McDaniel, the former chairwoman of the Republican National Committee, on their own airwaves.`\
 https://nytimes.com/2024/03/26/business/media/ronna-mcdaniel-nbc-msnbc.html
