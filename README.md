@@ -1,3 +1,7 @@
+**British Museum Sues Former Curator for Return of Stolen Items**\
+`The museum accuses Peter Higgs, a former keeper of Greek and Roman antiquities, of stealing or damaging at least 1,800 artifacts and selling many on eBay.`\
+https://nytimes.com/2024/03/27/arts/design/british-museum-thefts-peter-higgs.html
+
 **James Carville on the Reasons Hillary Clinton Lost**\
 `It wasn’t entirely sexism.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/james-carville-on-the-reasons-hillary-clinton-lost
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/business/dealbook/credit-card-swipe-fees.html
 **Yellen to Warn China Against Flood of Cheap Green Energy Exports**\
 `The Treasury secretary, who plans to make her second trip to China soon, will argue that the country’s excess industrial production warps supply chains.`\
 https://nytimes.com/2024/03/27/business/yellen-china-green-technology.html
-
-**America’s Affordable Housing Crisis**\
-`The housing crisis is likely to be solved in cities and states, not Washington.`\
-https://nytimes.com/2024/03/27/briefing/affordable-housing-crisis.html
 

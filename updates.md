@@ -1,3 +1,7 @@
+**James Carville on the Reasons Hillary Clinton Lost**\
+`It wasn’t entirely sexism.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/james-carville-on-the-reasons-hillary-clinton-lost
+
 **Has the Luxury E-Commerce Bubble Burst?**\
 `After implosions by Farfetch and MatchesFashion — and with other blowouts possible — the future for online fashion retailers looks uncertain.`\
 https://nytimes.com/2024/03/27/style/ecommerce-luxury-farfetch-matchesfashion.html
