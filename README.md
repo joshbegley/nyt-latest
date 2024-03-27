@@ -1,3 +1,11 @@
+**Why the Solar Eclipse Will Not Leave People Without Power**\
+`Grid managers say they are well prepared to handle a sharp drop in the energy produced by solar panels as the eclipse darkens the sky in North America on April 8.`\
+https://nytimes.com/2024/03/27/business/energy-environment/solar-energy-grid-eclipse.html
+
+**Daniel Kahneman, Who Plumbed the Psychology of Economics, Dies at 90**\
+`He helped pioneer a branch of the field that exposed hard-wired mental biases in people’s economic behavior. The work led to a Nobel.`\
+https://nytimes.com/2024/03/27/business/daniel-kahneman-dead.html
+
 **British Museum Sues Former Curator for Return of Stolen Items**\
 `The museum accuses Peter Higgs, a former keeper of Greek and Roman antiquities, of stealing or damaging at least 1,800 artifacts and selling many on eBay.`\
 https://nytimes.com/2024/03/27/arts/design/british-museum-thefts-peter-higgs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/27/style/family-party-exclusion.html
 **Appeals Court Keeps Block on Texas Migrant Arrest Law**\
 `The decision in favor of the federal government left in place a trial court injunction while courts determine whether the measure is legal.`\
 https://nytimes.com/2024/03/27/us/texas-migrant-law-appeals-court.html
-
-**The Fallout From a Credit Card Shake-Up**\
-`A proposed settlement between Visa and Mastercard and merchants on swipe fees promises savings, but it may also alter the economics of premium credit cards.`\
-https://nytimes.com/2024/03/27/business/dealbook/credit-card-swipe-fees.html
-
-**Yellen to Warn China Against Flood of Cheap Green Energy Exports**\
-`The Treasury secretary, who plans to make her second trip to China soon, will argue that the country’s excess industrial production warps supply chains.`\
-https://nytimes.com/2024/03/27/business/yellen-china-green-technology.html
 
