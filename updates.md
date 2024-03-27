@@ -1,3 +1,7 @@
+**Democrat Running on Abortion and I.V.F. Access Wins Special Election in Alabama**\
+`Marilyn Lands flipped a State House seat in the deep-red state by 25 percentage points, underscoring the continued political potency of reproductive rights.`\
+https://nytimes.com/2024/03/27/us/politics/democrat-running-on-abortion-and-ivf-access-wins-special-election-in-alabama.html
+
 **How Los Angeles Is Approaching Homelessness**\
 `A conversation with the Times reporter who wrote about Mayor Karen Bass’s flagship program to solve homelessness.`\
 https://nytimes.com/2024/03/27/us/los-angeles-homelessness.html
