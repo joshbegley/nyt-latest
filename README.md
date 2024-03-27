@@ -1,3 +1,11 @@
+**What Lies Beneath: London Boat Race Marred by Sewage Concerns**\
+`Rowers in the Oxford-Cambridge Boat Race this weekend have been warned of dangerously high levels of E. coli in the River Thames, the latest sign of England’s polluted waterways.`\
+https://nytimes.com/2024/03/27/world/europe/oxford-cambridge-boat-race-ecoli.html
+
+**What we know about the six men presumed dead in the bridge collapse.**\
+`By Miriam Jordan, Jacey Fortin and Eduardo Medina`\
+https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/what-we-know-about-the-six-men-presumed-dead-in-the-bridge-collapse
+
 **Defining Professionalism Among Doctors and Nurses**\
 `Responses to a Science Times article. Also: Ronna McDaniel’s exit; Senator Sherrod Brown’s view; third parties; baseball trash talk; an animals’ world.`\
 https://nytimes.com/2024/03/27/opinion/medical-professionalism-doctors-nurses.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/27/arts/design/kim-kardashian-table-donald-judds.htm
 **Two days after the U.N. call for a cease-fire, Israeli strikes on Gaza haven’t let up.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/two-days-after-the-un-call-for-a-cease-fire-israeli-strikes-on-gaza-havent-let-up
-
-**How Fenders Might Have Protected Against Bridge Collapse**\
-`The Francis Scott Key Bridge did not have an obvious fender system, or protective barriers, to redirect or prevent a ship from crashing into the bridge piers.`\
-https://nytimes.com/interactive/2024/03/27/us/key-bridge-barriers-examples.html
-
-**Death by Genitalia? How an Intimacy Director Made Those ‘Teeth’ Work.**\
-`Creating the sex scenes for the horror musical required close attention to detail, extra communication and some strategically placed silicone.`\
-https://nytimes.com/2024/03/27/theater/teeth-intimacy-director-sex-scenes.html
 
