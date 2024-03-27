@@ -1,3 +1,19 @@
+**‘Opening Night’ Review: A Stylish Movie Becomes a Sludgy Travesty**\
+`Ivo van Hove’s stage adaptation of the 1977 John Cassavetes film, with music by Rufus Wainwright, turns a taut character study into a corny melodrama.`\
+https://nytimes.com/2024/03/26/theater/opening-night-review-a-stylish-movie-becomes-a-sludgy-travesty.html
+
+**What to Know About Trump’s High-Flying Stock Debut**\
+`Trump Media attracted a frenzy of interest on its first day of trading, and is now worth nearly $8 billion. Here are the basics of what’s happening.`\
+https://nytimes.com/2024/03/26/business/trump-media-stock-debut.html
+
+**Ancient ‘Dune’-like Sandworm Existed Far Longer Than Thought**\
+`Researchers examined fossils of the predatory worm and found a new species that persisted for 25 million years after it was believed to have become extinct.`\
+https://nytimes.com/2024/03/26/science/sandworm-cambrian-dune.html
+
+**All Orcas Are Classified as a Single Species. Should They Be?**\
+`A new study suggests that two killer whale populations in the North Pacific are distinct enough to be considered separate species.`\
+https://nytimes.com/2024/03/26/science/orcas-species-killer-whales.html
+
 **Man in Custody in Fatal Shooting of N.Y.P.D. Officer**\
 `Guy Rivera, 34, fired on Officer Jonathan Diller, 31, after being ordered out of an illegally parked car in Queens, the authorities said.`\
 https://nytimes.com/2024/03/26/nyregion/nypd-jonathan-diller-officer-shooting.html
