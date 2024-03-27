@@ -1,3 +1,11 @@
+**The Homeowners Who Beat the National Association of Realtors**\
+`Six home sellers in Missouri successfully argued that the powerful real estate trade group’s rules on commissions forced them to pay inflated fees.`\
+https://nytimes.com/2024/03/27/realestate/national-association-realtors-lawsuit-homeowners.html
+
+**How a Settlement Could Change the Housing Industry**\
+`After several lawsuits brought by home sellers, the rules around buying and selling properties are about to change.`\
+https://nytimes.com/video/realestate/100000009380126/nar-settlement-housing-industry.html
+
 **Review: A New Dance at Trisha Brown Examines the Act of a Fall**\
 `The Trisha Brown Dance Company returned to the Joyce Theater with an enthralling premiere by the French choreographer Noé Soulier.`\
 https://nytimes.com/2024/03/27/arts/dance/trisha-brown-joyce-theater-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/27/climate/line-5-pipeline-michigan-wisconsin-swing-
 **Why the Solar Eclipse Will Not Leave People Without Power**\
 `Grid managers say they are well prepared to handle a sharp drop in the energy produced by solar panels as the eclipse darkens the sky in North America on April 8.`\
 https://nytimes.com/2024/03/27/business/energy-environment/solar-energy-grid-eclipse.html
-
-**Daniel Kahneman, Who Plumbed the Psychology of Economics, Dies at 90**\
-`He helped pioneer a branch of the field that exposed hard-wired mental biases in people’s economic behavior. The work led to a Nobel.`\
-https://nytimes.com/2024/03/27/business/daniel-kahneman-dead.html
-
-**British Museum Sues Former Curator for Return of Stolen Items**\
-`The museum accuses Peter Higgs, a former keeper of Greek and Roman antiquities, of stealing or damaging at least 1,800 artifacts and selling many on eBay.`\
-https://nytimes.com/2024/03/27/arts/design/british-museum-thefts-peter-higgs.html
 

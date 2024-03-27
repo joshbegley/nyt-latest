@@ -1,3 +1,11 @@
+**The Homeowners Who Beat the National Association of Realtors**\
+`Six home sellers in Missouri successfully argued that the powerful real estate trade group’s rules on commissions forced them to pay inflated fees.`\
+https://nytimes.com/2024/03/27/realestate/national-association-realtors-lawsuit-homeowners.html
+
+**How a Settlement Could Change the Housing Industry**\
+`After several lawsuits brought by home sellers, the rules around buying and selling properties are about to change.`\
+https://nytimes.com/video/realestate/100000009380126/nar-settlement-housing-industry.html
+
 **Review: A New Dance at Trisha Brown Examines the Act of a Fall**\
 `The Trisha Brown Dance Company returned to the Joyce Theater with an enthralling premiere by the French choreographer Noé Soulier.`\
 https://nytimes.com/2024/03/27/arts/dance/trisha-brown-joyce-theater-review.html
