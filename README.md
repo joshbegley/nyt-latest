@@ -1,3 +1,31 @@
+**How Fenders Might Have Protected Against Bridge Collapse**\
+`The Francis Scott Key Bridge did not have an obvious fender system, or protective barriers, to redirect or prevent a ship from crashing into the bridge piers.`\
+https://nytimes.com/interactive/2024/03/27/us/key-bridge-barriers-examples.html
+
+**Death by Genitalia? How an Intimacy Director Made Those ‘Teeth’ Work.**\
+`Creating the sex scenes for the horror musical required close attention to detail, extra communication and some strategically placed silicone.`\
+https://nytimes.com/2024/03/27/theater/teeth-intimacy-director-sex-scenes.html
+
+**Plagiarism Charges at Harvard Are Really About Rolling Back D.E.I.**\
+`Attempts to show Black inferiority amount to another form of white supremacy.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/harvard-plagiarism-dei-race
+
+**Russia Has No Formal Death Penalty. Here’s How That Might Change.**\
+`Some prominent Russians are calling for the execution of those responsible for the massacre at a concert hall near Moscow, and an end to Russia’s 28-year moratorium on capital punishment.`\
+https://nytimes.com/2024/03/27/world/europe/russia-death-penalty-moratorium.html
+
+**A.I. Leaders Press Advantage With Congress as China Tensions Rise**\
+`Silicon Valley chiefs are swarming the Capitol to try to sway lawmakers on the dangers of falling behind in the artificial intelligence race.`\
+https://nytimes.com/2024/03/27/technology/ai-lobby-china.html
+
+**Amazon Adds $2.75 Billion to Its Stake in the A.I. Start-Up Anthropic**\
+`The latest investment brings Amazon’s total stake to $4 billion in the San Francisco company.`\
+https://nytimes.com/2024/03/27/technology/amazon-anthropic-ai.html
+
+**Javier Milei Is a New Prophet of Apocalyptic Capitalism**\
+`In Argentina, the President’s new fusion of contemporary culture war with throwback libertarianism is entrancing global elites.`\
+https://nytimes.com/2024/03/27/opinion/javier-milei-argentina-capitalism.html
+
 **It’s a Statue of Prince Philip. Really. But Now It Has to Go.**\
 `A much-reviled faceless statue in Cambridge, England, commemorating Philip’s time as a chancellor of Cambridge University has been ordered to be removed.`\
 https://nytimes.com/2024/03/27/world/europe/prince-philip-statue-cambridge-uk.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/03/27/nyregion/nypd-officer-shooting-charges.html
 **This Easy, One-Skillet Dinner Tastes Like Spring**\
 `Using canned artichokes and frozen peas keeps this fresh meal simple to make all year long.`\
 https://nytimes.com/2024/03/27/dining/easy-artichokes-peas-dinner-recipe.html
-
-**M.T.A. Board Votes to Approve New $15 Toll to Drive Into Manhattan**\
-`New York City’s congestion pricing program, the first of its kind in the nation, still faces challenges from five lawsuits before it can begin in mid-June.`\
-https://nytimes.com/2024/03/27/business/nyc-congestion-pricing-tolls-mta.html
-
-**Disney and DeSantis Settle Suit Over Florida Special District**\
-`The settlement ends a two-year fight between the entertainment giant and the Florida governor over control of a state tax district near Orlando that encompasses Walt Disney World.`\
-https://nytimes.com/2024/03/27/business/disney-desantis-florida-lawsuit.html
-
-**The Homeowners Who Beat the National Association of Realtors**\
-`Six home sellers in Missouri successfully argued that the powerful real estate trade group’s rules on commissions forced them to pay inflated fees.`\
-https://nytimes.com/2024/03/27/realestate/national-association-realtors-lawsuit-homeowners.html
-
-**How a Settlement Could Change the Housing Industry**\
-`After several lawsuits brought by home sellers, the rules around buying and selling properties are about to change.`\
-https://nytimes.com/video/realestate/100000009380126/nar-settlement-housing-industry.html
-
-**Review: A New Dance at Trisha Brown Examines the Act of a Fall**\
-`The Trisha Brown Dance Company returned to the Joyce Theater with an enthralling premiere by the French choreographer Noé Soulier.`\
-https://nytimes.com/2024/03/27/arts/dance/trisha-brown-joyce-theater-review.html
-
-**You Know Him From N.B.A. Games. You Know His House From ‘Selling Sunset.’**\
-`For half a century, James Goldstein has been renovating a house by John Lautner. It’s a spectacular legacy. But like everything about Goldstein, it’s complicated.`\
-https://nytimes.com/2024/03/27/arts/james-goldstein-house.html
-
-**Security forces clash with pro-Palestinian protesters in Jordan, video shows.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/security-forces-clash-with-pro-palestinian-protesters-in-jordan-video-shows
 
