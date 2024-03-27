@@ -23,7 +23,7 @@ https://nytimes.com/2024/03/27/world/europe/russia-death-penalty-moratorium.html
 https://nytimes.com/2024/03/27/technology/ai-lobby-china.html
 
 **Amazon Adds $2.75 Billion to Its Stake in the A.I. Start-Up Anthropic**\
-`The latest investment brings Amazon’s total stake to $4 billion in the San Francisco company.`\
+`The latest investment brings Amazon’s total stake in the San Francisco company to $4 billion.`\
 https://nytimes.com/2024/03/27/technology/amazon-anthropic-ai.html
 
 **Javier Milei Is a New Prophet of Apocalyptic Capitalism**\
