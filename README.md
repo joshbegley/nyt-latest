@@ -1,3 +1,7 @@
+**Review: A New Dance at Trisha Brown Examines the Act of a Fall**\
+`The Trisha Brown Dance Company returned to the Joyce Theater with an enthralling premiere by the French choreographer Noé Soulier.`\
+https://nytimes.com/2024/03/27/arts/dance/trisha-brown-joyce-theater-review.html
+
 **You Know Him From N.B.A. Games. You Know His House From ‘Selling Sunset.’**\
 `For half a century, James Goldstein has been renovating a house by John Lautner. It’s a spectacular legacy. But like everything about Goldstein, it’s complicated.`\
 https://nytimes.com/2024/03/27/arts/james-goldstein-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/business/daniel-kahneman-dead.html
 **British Museum Sues Former Curator for Return of Stolen Items**\
 `The museum accuses Peter Higgs, a former keeper of Greek and Roman antiquities, of stealing or damaging at least 1,800 artifacts and selling many on eBay.`\
 https://nytimes.com/2024/03/27/arts/design/british-museum-thefts-peter-higgs.html
-
-**James Carville on the Reasons Hillary Clinton Lost**\
-`It wasn’t entirely sexism.`\
-https://nytimes.com/live/2024/03/26/opinion/thepoint/james-carville-on-the-reasons-hillary-clinton-lost
 
