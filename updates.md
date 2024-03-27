@@ -1,3 +1,7 @@
+**Jordan Klepper Teases Trump for Selling Bibles**\
+`“How does that thing not burst into flames immediately?” Klepper joked of Donald Trump’s “latest very classy business venture” on Tuesday’s “Daily Show.’`\
+https://nytimes.com/2024/03/27/arts/television/jordan-klepper-trump-bibles.html
+
 **Word of the Day: crucial**\
 `This word has appeared in 2,489 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/27/learning/word-of-the-day-crucial.html
