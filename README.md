@@ -1,3 +1,11 @@
+**The R.N.C. Has a New Interview Question: Was the 2020 Election Stolen?**\
+`The question during job interviews at the Republican National Committee reflects Donald J. Trump’s newly tightened grip on the party apparatus.`\
+https://nytimes.com/2024/03/27/us/politics/rnc-trump-2020-election.html
+
+**Kim Kardashian Is Sued for Saying Her Tables Are Authentic Donald Judds**\
+`In a promotional video, the reality star said her office furniture was designed by Judd, the minimalist artist. His foundation says otherwise in a new lawsuit.`\
+https://nytimes.com/2024/03/27/arts/design/table.html
+
 **Two days after the U.N. call for a cease-fire, Israeli strikes on Gaza haven’t let up.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/two-days-after-the-un-call-for-a-cease-fire-israeli-strikes-on-gaza-havent-let-up
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/27/technology/amazon-anthropic-ai.html
 **Javier Milei Is a New Prophet of Apocalyptic Capitalism**\
 `In Argentina, the President’s new fusion of contemporary culture war with throwback libertarianism is entrancing global elites.`\
 https://nytimes.com/2024/03/27/opinion/javier-milei-argentina-capitalism.html
-
-**It’s a Statue of Prince Philip. Really. But Now It Has to Go.**\
-`A much-reviled faceless statue in Cambridge, England, commemorating Philip’s time as a chancellor of Cambridge University has been ordered to be removed.`\
-https://nytimes.com/2024/03/27/world/europe/prince-philip-statue-cambridge-uk.html
-
-**Man Charged in Deadly Shooting of N.Y.P.D. Officer in Queens**\
-`Lindy Jones, who is not the man the authorities say fired the fatal shot, was charged with possessing and defacing a weapon. The other man involved in the shooting has not been charged.`\
-https://nytimes.com/2024/03/27/nyregion/nypd-officer-shooting-charges.html
 
