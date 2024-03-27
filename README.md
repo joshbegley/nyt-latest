@@ -1,3 +1,7 @@
+**A Murderer in the Family**\
+`In his unsparing novel “Wolf at the Table,” Adam Rapp observes a household in denial about the dark force growing up in its midst.`\
+https://nytimes.com/2024/03/27/books/review/wolf-at-the-table-adam-rapp.html
+
 **Another Wayward Container Ship Shows World Trade’s Fragility**\
 `The destruction of a Baltimore bridge has crippled a busy port, adding to the strains confronting the global supply chain.`\
 https://nytimes.com/2024/03/27/business/economy/container-ship-global-trade.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/science/ice-skaters-brain.html
 **Trump Plans to Attend Wake for Slain N.Y.P.D. Officer**\
 `The former president’s appearance at the services for Officer Jonathan Diller will come less than three weeks before jury selection begins in his criminal trial in Manhattan.`\
 https://nytimes.com/2024/03/27/us/politics/trump-nypd-officer-wake.html
-
-**Stephen Adams, Who Made Yale Music School Tuition-Free, Dies at 86**\
-`A billionaire businessman and a late-blooming piano aficionado, he set a record with the anonymous $100 million gift that he and his wife gave the school.`\
-https://nytimes.com/2024/03/27/business/stephen-adams-who-made-yale-music-school-tuition-free-dies-at-86.html
 
