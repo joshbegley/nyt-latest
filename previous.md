@@ -26,8 +26,8 @@ https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/the-shipown
 `Plus, Stephen King’s greatest hits.`\
 https://nytimes.com/2024/03/27/briefing/russia-ukraine-israel-lebanon-hezbollah-baltimore.html
 
-**‘Rebuilding will not be quick, or easy or cheap, but we will get it done,’ Buttigieg says.**\
-`By Zach Montague`\
+**Buttigieg Outlines Urgent Effort to Restore Access to Port of Baltimore**\
+`Emphasizing challenges in clearing out rubble from the collapsed bridge, Transportation Secretary Pete Buttigieg said, “rebuilding will not be quick, or easy or cheap, but we will get it done.”`\
 https://nytimes.com/2024/03/27/us/port-rebuild-pete-buttigieg.html
 
 **Trump’s Social Media Company Opens New Avenue for Conflicts of Interest**\
