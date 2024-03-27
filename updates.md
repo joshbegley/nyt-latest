@@ -1,3 +1,7 @@
+**Appeals Court Keeps Block on Texas Migrant Arrest Law**\
+`The decision in favor of the federal government left in place a trial court injunction while courts determine whether the measure is legal.`\
+https://nytimes.com/2024/03/27/us/texas-migrant-law-appeals-court.html
+
 **Democrat Running on Abortion and I.V.F. Access Wins Special Election in Alabama**\
 `Marilyn Lands flipped a State House seat in the deep-red state by 25 percentage points, underscoring the continued political potency of reproductive rights.`\
 https://nytimes.com/2024/03/27/us/politics/democrat-running-on-abortion-and-ivf-access-wins-special-election-in-alabama.html

@@ -10,8 +10,8 @@ https://nytimes.com/2024/03/27/us/los-angeles-homelessness.html
 `A reader’s feelings are hurt after offering to fly to celebrate her sister’s 70th birthday only to be told not to bother, as “all her family” would be there.`\
 https://nytimes.com/2024/03/27/style/family-party-exclusion.html
 
-**Appeals Court Rules Against Texas in Clash Over Migrant Arrest Law**\
-`The decision in favor of the federal government left in place a trial court injunction blocking implementation of the law.`\
+**Appeals Court Keeps Block on Texas Migrant Arrest Law**\
+`The decision in favor of the federal government left in place a trial court injunction while courts determine whether the measure is legal.`\
 https://nytimes.com/2024/03/27/us/texas-migrant-law-appeals-court.html
 
 **The Fallout From a Credit Card Shake-Up**\
