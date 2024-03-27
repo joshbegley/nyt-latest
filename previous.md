@@ -1,3 +1,7 @@
+**It’s a Statue of Prince Philip. Really. But Now It Has to Go.**\
+`A much-reviled faceless statue in Cambridge, England, commemorating Philip’s time as a chancellor of Cambridge University has been ordered to be removed.`\
+https://nytimes.com/2024/03/27/world/europe/its-a-statue-of-prince-philip-really-but-now-it-has-to-go.html
+
 **Man Charged in Deadly Shooting of N.Y.P.D. Officer in Queens**\
 `Lindy Jones, who is not the man the authorities say fired the fatal shot, was charged with possessing and defacing a weapon. The other man involved in the shooting has not been charged.`\
 https://nytimes.com/2024/03/27/nyregion/nypd-officer-shooting-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/arts/james-goldstein-house.html
 **Security forces clash with pro-Palestinian protesters in Jordan, video shows.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/security-forces-clash-with-pro-palestinian-protesters-in-jordan-video-shows
-
-**Martin Scorsese to Headline a Religious Series for Fox Nation**\
-`The Oscar-winning director is the latest Hollywood name to sign up for the Fox News streaming platform, joining Kevin Costner, Rob Lowe and Dan Aykroyd.`\
-https://nytimes.com/2024/03/27/movies/martin-scorsese-fox-nation.html
 
