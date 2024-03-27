@@ -22,8 +22,8 @@ https://nytimes.com/2024/03/27/movies/night-flight-plus-streaming-netflix-altern
 `The decision, which came after a legal challenge, throws into question the fate of dozens of similar measures across the United States.`\
 https://nytimes.com/2024/03/27/climate/berkeley-gas-ban-climate.html
 
-**A majority of Americans disapprove of Israel’s actions in Gaza, a new poll shows.**\
-`By Anushka Patil`\
+**Majority of Americans Disapprove of Israel’s Actions in Gaza, New Poll Shows**\
+`The Gallup poll conducted this month found that 55 percent of Americans disapproved of Israel’s military action, an increase of 10 percentage points from four months earlier.`\
 https://nytimes.com/2024/03/27/world/middleeast/military-action-americans-gaza.html
 
 **The R.N.C. Has a New Interview Question: Was the 2020 Election Stolen?**\
