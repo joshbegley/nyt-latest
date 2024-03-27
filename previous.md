@@ -1,3 +1,7 @@
+**Yellen to Warn China Against Flood of Cheap Green Energy Exports**\
+`The Treasury secretary, who plans to make her second trip to China soon, will argue that the country’s excess industrial production warps supply chains.`\
+https://nytimes.com/2024/03/27/business/yellen-china-green-technology.html
+
 **America’s Affordable Housing Crisis**\
 `The housing crisis is likely to be solved in cities and states, not Washington.`\
 https://nytimes.com/2024/03/27/briefing/affordable-housing-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/arts/television/nickelodeon-disney-podcasts-neds-
 **Screens Are Everywhere in Schools. Do They Actually Help Kids Learn?**\
 `We need to start asking better questions about what kinds work for teachers and students.`\
 https://nytimes.com/2024/03/27/opinion/schools-technology.html
-
-**Key Takeaways From Supreme Court Arguments on Abortion Pill Access**\
-`A majority of the Supreme Court seemed inclined on Tuesday to reject a bid to sharply limit access to abortion pills.`\
-https://nytimes.com/video/us/100000009382894/key-takeaways-from-supreme-court-arguments-on-abortion-pill-access.html
 
