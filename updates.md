@@ -1,3 +1,7 @@
+**Donald Trump plans to attend the wake for a slain N.Y.P.D. officer.**\
+`The former president’s appearance at the services for Officer Jonathan Diller will come less than three weeks before jury selection begins in his criminal trial in Manhattan.`\
+https://nytimes.com/2024/03/27/us/politics/trump-nypd-officer-wake.html
+
 **Many People and Companies Have Made Millions on Trump Media’s Stock**\
 `A surge in the social media company’s market value has generated a windfall for current and former executives, on top of the bonanza for its largest shareholder, former President Trump.`\
 https://nytimes.com/2024/03/27/business/trump-media-shareholders.html
