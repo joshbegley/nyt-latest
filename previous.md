@@ -1,3 +1,7 @@
+**Trump Attacks R.F.K. Jr., a Third-Party Wild Card**\
+`Robert F. Kennedy Jr., the independent presidential candidate, has asserted that he intends to be a “spoiler” for both Donald Trump and President Biden.`\
+https://nytimes.com/2024/03/27/us/politics/trump-attacks-rfk-jr-a-third-party-wild-card.html
+
 **Radio Chatter Reveals How Officers Quickly Closed Bridge to Traffic**\
 `Officers immediately moved to keep cars off a bridge in Baltimore after a mayday from the ship that hit it, according to audio from a Maryland Transportation Authority Police channel.`\
 https://nytimes.com/2024/03/27/us/baltimore-key-bridge-mayday-call-radio.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/the-united-
 **What’s in Our Queue? ‘The Doom Generation’ and More**\
 `I’m a New York Times visual editor. Here are five things I’ve been looking at, reading, watching and listening to.`\
 https://nytimes.com/interactive/2024/03/27/arts/editors-recommendations-doomgeneration.html
-
-**Russian Group Spread Disinformation About Princess of Wales, Experts Say**\
-`A Kremlin-linked group known for online campaigns to sow falsehoods and distrust among Russia’s foes helped fuel the frenzy of conspiracy theories about Catherine and her health.`\
-https://nytimes.com/2024/03/27/world/europe/princess-kate-middleton-russia-conspiracy.html
 
