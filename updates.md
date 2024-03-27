@@ -1,3 +1,11 @@
+**Stabbing Attack in Illinois Leaves 4 Dead and 5 Injured**\
+`The motive for the killings in a residential neighborhood in Rockford, Ill., was not immediately clear, the authorities said. A suspect is in custody.`\
+https://nytimes.com/2024/03/27/us/stabbing-attack-in-illinois-leaves-4-dead-and-5-injured.html
+
+**Netanyahu’s office hasn’t confirmed any desire to make new plans.**\
+`By Zach Montague`\
+https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/us-says-israel-has-agreed-to-try-to-reschedule-meeting-netanyahu-had-canceled
+
 **U.S. says Israel has agreed to try to reschedule meeting Netanyahu had canceled.**\
 `By Zach Montague`\
 https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/us-says-israel-has-agreed-to-try-to-reschedule-meeting-netanyahu-had-canceled
