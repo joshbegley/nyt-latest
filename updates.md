@@ -1,3 +1,11 @@
+**Biden Loves Ireland. It Doesn’t Love Him Back.**\
+`The president’s complicity with Israel’s assault on Gaza has damaged his relationship with the Irish people, perhaps irreparably.`\
+https://nytimes.com/2024/03/27/opinion/biden-ireland-gaza-varadkar.html
+
+**Inside the Garrick, the Elite Men-Only London Club Rocked by Criticism**\
+`Founded in 1831, the opulent private club has long guarded its membership list closely. A leak this month caused a scandal.`\
+https://nytimes.com/2024/03/27/world/europe/garrick-club-london.html
+
 **Corrections: March 27, 2024**\
 `Corrections that appeared in print on Wednesday, March 27, 2024.`\
 https://nytimes.com/2024/03/27/pageoneplus/corrections-march-27-2024.html
