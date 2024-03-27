@@ -1,3 +1,7 @@
+**Russia’s Online Operations Focus on Ukraine Aid and Are Harder to Detect**\
+`Moscow has found better ways to conceal influence campaigns that amplify arguments for isolationism, officials and experts say.`\
+https://nytimes.com/2024/03/27/us/politics/russian-ukraine-us-interference.html
+
 **How Has Retirement Changed Your Relationship?**\
 `We want to hear from you for a New York Times Magazine feature about how this transition can affect marriages and long-term relationships.`\
 https://nytimes.com/2024/03/27/magazine/how-has-retirement-changed-your-relationship.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/business/stephen-adams-who-made-yale-music-school
 **Trump Attacks R.F.K. Jr., a Third-Party Wild Card**\
 `Robert F. Kennedy Jr., the independent presidential candidate, has asserted that he intends to be a “spoiler” for both Donald Trump and President Biden.`\
 https://nytimes.com/2024/03/27/us/politics/trump-rfk-jr.html
-
-**Radio Chatter Reveals How Officers Quickly Closed Bridge to Traffic**\
-`Officers immediately moved to keep cars off a bridge in Baltimore after a mayday from the ship that hit it, according to audio from a Maryland Transportation Authority Police channel.`\
-https://nytimes.com/2024/03/27/us/baltimore-key-bridge-mayday-call-radio.html
 
