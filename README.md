@@ -1,3 +1,7 @@
+**Seeking Balance, Tripping Up**\
+`The question of how to cover Donald Trump is no closer to being solved.`\
+https://nytimes.com/2024/03/27/us/politics/nbc-trump-mcdaniel.html
+
 **Lil Jon: The Popcast (Deluxe) Interview**\
 `An in-depth interview with the Atlanta hip-hop and EDM legend, tracing his path through punk, skateboarding and crunk music on the way to this year’s Super Bowl.`\
 https://nytimes.com/2024/03/27/arts/music/lil-jon-popcast-deluxe-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/us/port-rebuild-pete-buttigieg.html
 **Trump’s Social Media Company Opens New Avenue for Conflicts of Interest**\
 `Ethics experts say Trump Media, now a publicly traded company, would present a new way for foreign actors or others to influence Donald J. Trump, if he is elected president.`\
 https://nytimes.com/2024/03/27/us/trump-media-truth-social-campaign.html
-
-**Overlooked No More: Henrietta Leavitt, Who Unraveled Mysteries of the Stars**\
-`The portrait that emerged from her discovery, called Leavitt’s Law, showed that the universe was hundreds of times bigger than astronomers had imagined.`\
-https://nytimes.com/2024/03/27/obituaries/henrietta-leavitt-overlooked.html
 
