@@ -1,3 +1,7 @@
+**Has the Luxury E-Commerce Bubble Burst?**\
+`After implosions by Farfetch and MatchesFashion — and with other blowouts possible — the future for online fashion retailers looks uncertain.`\
+https://nytimes.com/2024/03/27/style/has-the-luxury-e-commerce-bubble-burst.html
+
 **Appeals Court Keeps Block on Texas Migrant Arrest Law**\
 `The decision in favor of the federal government left in place a trial court injunction while courts determine whether the measure is legal.`\
 https://nytimes.com/2024/03/27/us/texas-migrant-law-appeals-court.html
