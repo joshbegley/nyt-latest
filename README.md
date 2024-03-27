@@ -1,3 +1,11 @@
+**Man Charged in Deadly Shooting of N.Y.P.D. Officer in Queens**\
+`Lindy Jones, who is not the man the authorities say fired the fatal shot, was charged with possessing and defacing a weapon. The other man involved in the shooting has not been charged.`\
+https://nytimes.com/2024/03/27/nyregion/nypd-officer-shooting-charges.html
+
+**This Easy, One-Skillet Dinner Tastes Like Spring**\
+`Using canned artichokes and frozen peas keeps this fresh meal simple to make all year long.`\
+https://nytimes.com/2024/03/27/dining/easy-artichokes-peas-dinner-recipe.html
+
 **M.T.A. Board Votes to Approve New $15 Toll to Drive Into Manhattan**\
 `New York City’s congestion pricing program, the first of its kind in the nation, still faces challenges from five lawsuits before it can begin in mid-June.`\
 https://nytimes.com/2024/03/27/business/nyc-congestion-pricing-tolls-mta.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/security-fo
 **Martin Scorsese to Headline a Religious Series for Fox Nation**\
 `The Oscar-winning director is the latest Hollywood name to sign up for the Fox News streaming platform, joining Kevin Costner, Rob Lowe and Dan Aykroyd.`\
 https://nytimes.com/2024/03/27/movies/martin-scorsese-fox-nation.html
-
-**Kitchen Magic for Big Weeknight Flavor**\
-`Irresistible honey-and-soy-glazed chicken thighs, a springy Easter menu and a one-pot dish sure to please.`\
-https://nytimes.com/2024/03/27/dining/kitchen-magic-for-big-weeknight-flavor.html
-
-**A Stranger Bought My Groceries. Should I Have Refused Her Offer?**\
-`The magazine’s Ethicist columnist on random acts of kindness.`\
-https://nytimes.com/2024/03/27/magazine/stranger-groceries-gift-ethics.html
 
