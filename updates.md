@@ -1,3 +1,7 @@
+**A Murderer in the Family**\
+`In his unsparing novel “Wolf at the Table,” Adam Rapp observes a household in denial about the dark force growing up in its midst.`\
+https://nytimes.com/2024/03/27/books/review/wolf-at-the-table-adam-rapp.html
+
 **Another Wayward Container Ship Shows World Trade’s Fragility**\
 `The destruction of a Baltimore bridge has crippled a busy port, adding to the strains confronting the global supply chain.`\
 https://nytimes.com/2024/03/27/business/economy/container-ship-global-trade.html
