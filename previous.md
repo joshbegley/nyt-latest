@@ -18,7 +18,7 @@ https://nytimes.com/2024/03/27/health/tyler-blevins-skin-cancer-melanoma.html
 `How do champion skaters accomplish their extraordinary jumps and spins? Brain science is uncovering clues.`\
 https://nytimes.com/2024/03/27/science/ice-skaters-brain.html
 
-**Donald Trump plans to attend the wake for a slain N.Y.P.D. officer.**\
+**Trump Plans to Attend Wake for Slain N.Y.P.D. Officer**\
 `The former president’s appearance at the services for Officer Jonathan Diller will come less than three weeks before jury selection begins in his criminal trial in Manhattan.`\
 https://nytimes.com/2024/03/27/us/politics/trump-nypd-officer-wake.html
 
