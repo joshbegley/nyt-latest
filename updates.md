@@ -1,3 +1,7 @@
+**M.T.A. Board Votes to Approve New $15 Toll to Drive Into Manhattan**\
+`New York City’s congestion pricing program, the first of its kind in the nation, still faces challenges from five lawsuits before it can begin in mid-June.`\
+https://nytimes.com/2024/03/27/business/nyc-congestion-pricing-tolls-mta.html
+
 **Disney and DeSantis Settle Suit Over Florida Special District**\
 `The settlement ends a two-year fight between the entertainment giant and the Florida governor over control of a state tax district near Orlando that encompasses Walt Disney World.`\
 https://nytimes.com/2024/03/27/business/disney-desantis-florida-lawsuit.html

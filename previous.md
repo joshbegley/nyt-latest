@@ -1,3 +1,7 @@
+**M.T.A. Board Votes to Approve New $15 Toll to Drive Into Manhattan**\
+`New York City’s congestion pricing program, the first of its kind in the nation, still faces challenges from five lawsuits before it can begin in mid-June.`\
+https://nytimes.com/2024/03/27/business/nyc-congestion-pricing-tolls-mta.html
+
 **Disney and DeSantis Settle Suit Over Florida Special District**\
 `The settlement ends a two-year fight between the entertainment giant and the Florida governor over control of a state tax district near Orlando that encompasses Walt Disney World.`\
 https://nytimes.com/2024/03/27/business/disney-desantis-florida-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/dining/kitchen-magic-for-big-weeknight-flavor.htm
 **A Stranger Bought My Groceries. Should I Have Refused Her Offer?**\
 `The magazine’s Ethicist columnist on random acts of kindness.`\
 https://nytimes.com/2024/03/27/magazine/stranger-groceries-gift-ethics.html
-
-**A Great Lakes Pipeline Tangles Politics in Two Battleground States**\
-`Line 5 crosses tribal lands, runs beneath the water and needs major upgrades. Opponents fear spills. Supporters envision jobs. Everyone sees a fight.`\
-https://nytimes.com/2024/03/27/climate/line-5-pipeline-michigan-wisconsin-swing-state.html
 
