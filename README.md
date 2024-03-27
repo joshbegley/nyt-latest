@@ -1,3 +1,7 @@
+**For Richard Serra, Art Was Not Something. It Was Everything.**\
+`He was known as the Man of Steel. But the sculptor was also an eternal poet, reshaping our perception of space, says our critic.`\
+https://nytimes.com/2024/03/27/arts/design/richard-serra-death-appraisal.html
+
 **What Lies Beneath: London Boat Race Marred by Sewage Concerns**\
 `Rowers in the Oxford-Cambridge Boat Race this weekend have been warned of dangerously high levels of E. coli in the River Thames, the latest sign of England’s polluted waterways.`\
 https://nytimes.com/2024/03/27/world/europe/oxford-cambridge-boat-race-ecoli.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/us/politics/rnc-trump-2020-election.html
 **Kim Kardashian Is Sued for Saying Her Tables Are Authentic Donald Judds**\
 `In a promotional video, the reality star said her office furniture was designed by Judd, the minimalist artist. His foundation says otherwise in a new lawsuit.`\
 https://nytimes.com/2024/03/27/arts/design/kim-kardashian-table-donald-judds.html
-
-**Two days after the U.N. call for a cease-fire, Israeli strikes on Gaza haven’t let up.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/two-days-after-the-un-call-for-a-cease-fire-israeli-strikes-on-gaza-havent-let-up
 
