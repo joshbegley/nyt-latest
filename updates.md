@@ -1,3 +1,7 @@
+**2 Ex-Officials at Veterans Home Where 76 Died in Covid Outbreak Avoid Jail Time**\
+`The former superintendent and medical director of the Holyoke Soldiers’ Home in Massachusetts were indicted in 2020 on charges of neglect after many residents became sick and died.`\
+https://nytimes.com/2024/03/26/us/veterans-home-holyoke-massachusetts-covid.html
+
 **A Fatal Instant on the Subway Captures New York’s Persistent Challenges**\
 `The man charged with shoving a man from a subway platform had a violent history, according to officials. The man who died was recovering from his own troubled past, his family said.`\
 https://nytimes.com/2024/03/26/nyregion/subway-killing-nyc-shoving.html

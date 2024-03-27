@@ -1,3 +1,7 @@
+**2 Ex-Officials at Veterans Home Where 76 Died in Covid Outbreak Avoid Jail Time**\
+`The former superintendent and medical director of the Holyoke Soldiers’ Home in Massachusetts were indicted in 2020 on charges of neglect after many residents became sick and died.`\
+https://nytimes.com/2024/03/26/us/veterans-home-holyoke-massachusetts-covid.html
+
 **A Fatal Instant on the Subway Captures New York’s Persistent Challenges**\
 `The man charged with shoving a man from a subway platform had a violent history, according to officials. The man who died was recovering from his own troubled past, his family said.`\
 https://nytimes.com/2024/03/26/nyregion/subway-killing-nyc-shoving.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/26/us/ship-labor-baltimore-bridge-collapse.html
 **Fretting About Election-Year Deep Fakes, States Roll Out New Rules for A.I. Content**\
 `An increasing number of states have advanced A.I.-related legislation to combat attempts to mislead voters during the 2024 election, according to a new analysis by the Voting Rights Lab.`\
 https://nytimes.com/2024/03/26/us/politics/election-year-deep-fakes-ai-rules.html
-
-**Richard Serra, Who Recast Sculpture on a Massive Scale, Dies at 85**\
-`His tilted walls of rusting steel, monumental blocks and other immense and inscrutable forms created environments that had to be walked through, or around, to be fully experienced.`\
-https://nytimes.com/2024/03/26/arts/richard-serra-dead.html
 
