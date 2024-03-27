@@ -1,3 +1,7 @@
+**Review: A New Dance at Trisha Brown Examines the Act of a Fall**\
+`The Trisha Brown Dance Company returned to the Joyce Theater with an enthralling premiere by the French choreographer Noé Soulier.`\
+https://nytimes.com/2024/03/27/arts/dance/trisha-brown-joyce-theater-review.html
+
 **You Know Him From N.B.A. Games. You Know His House From ‘Selling Sunset.’**\
 `For half a century, James Goldstein has been renovating a house by John Lautner. It’s a spectacular legacy. But like everything about Goldstein, it’s complicated.`\
 https://nytimes.com/2024/03/27/arts/james-goldstein-house.html
