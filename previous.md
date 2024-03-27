@@ -1,3 +1,11 @@
+**Defining Professionalism Among Doctors and Nurses**\
+`Responses to a Science Times article. Also: Ronna McDaniel’s exit; Senator Sherrod Brown’s view; third parties; baseball trash talk; an animals’ world.`\
+https://nytimes.com/2024/03/27/opinion/medical-professionalism-doctors-nurses.html
+
+**Jim White, Your Favorite Songwriter’s Favorite Drummer**\
+`During the last 30 years, the musician has emerged as one of indie-rock’s most distinctive drummers on other people’s records. At last, he’s made his own.`\
+https://nytimes.com/2024/03/27/arts/music/jim-white-all-hits-memories-dirty-three.html
+
 **Are You a Pop Culture-Obsessed Weirdo? Try Night Flight Plus.**\
 `If you’ve got six bucks and want to be adventurous, try this streaming service for some wild fringe programming.`\
 https://nytimes.com/2024/03/27/movies/night-flight-plus-streaming-netflix-alternative.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/03/27/us/key-bridge-barriers-examples.html
 **Death by Genitalia? How an Intimacy Director Made Those ‘Teeth’ Work.**\
 `Creating the sex scenes for the horror musical required close attention to detail, extra communication and some strategically placed silicone.`\
 https://nytimes.com/2024/03/27/theater/teeth-intimacy-director-sex-scenes.html
-
-**Plagiarism Charges at Harvard Are Really About Rolling Back D.E.I.**\
-`Attempts to show Black inferiority amount to another form of white supremacy.`\
-https://nytimes.com/live/2024/03/26/opinion/thepoint/harvard-plagiarism-dei-race
-
-**Russia Has No Formal Death Penalty. Here’s How That Might Change.**\
-`Some prominent Russians are calling for the execution of those responsible for the massacre at a concert hall near Moscow, and an end to Russia’s 28-year moratorium on capital punishment.`\
-https://nytimes.com/2024/03/27/world/europe/russia-death-penalty-moratorium.html
 

@@ -1,3 +1,11 @@
+**Defining Professionalism Among Doctors and Nurses**\
+`Responses to a Science Times article. Also: Ronna McDaniel’s exit; Senator Sherrod Brown’s view; third parties; baseball trash talk; an animals’ world.`\
+https://nytimes.com/2024/03/27/opinion/medical-professionalism-doctors-nurses.html
+
+**Jim White, Your Favorite Songwriter’s Favorite Drummer**\
+`During the last 30 years, the musician has emerged as one of indie-rock’s most distinctive drummers on other people’s records. At last, he’s made his own.`\
+https://nytimes.com/2024/03/27/arts/music/jim-white-all-hits-memories-dirty-three.html
+
 **Are You a Pop Culture-Obsessed Weirdo? Try Night Flight Plus.**\
 `If you’ve got six bucks and want to be adventurous, try this streaming service for some wild fringe programming.`\
 https://nytimes.com/2024/03/27/movies/night-flight-plus-streaming-netflix-alternative.html
