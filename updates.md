@@ -1,3 +1,7 @@
+**Word of the Day: crucial**\
+`This word has appeared in 2,489 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/27/learning/word-of-the-day-crucial.html
+
 **Biden Loves Ireland. It Doesn’t Love Him Back.**\
 `The president’s complicity with Israel’s assault on Gaza has damaged his relationship with the Irish people, perhaps irreparably.`\
 https://nytimes.com/2024/03/27/opinion/biden-ireland-gaza-varadkar.html
