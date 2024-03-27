@@ -1,3 +1,7 @@
+**How Has Retirement Changed Your Relationship?**\
+`We want to hear from you for a New York Times Magazine feature about how this transition can affect marriages and long-term relationships.`\
+https://nytimes.com/2024/03/27/magazine/how-has-retirement-changed-your-relationship.html
+
 **Many People and Companies Have Made Millions on Trump Media’s Stock**\
 `A surge in the social media company’s market value has generated a windfall for current and former executives, on top of the bonanza for its largest shareholder, former President Trump.`\
 https://nytimes.com/2024/03/27/business/trump-media-shareholders.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/us/politics/trump-rfk-jr.html
 **Radio Chatter Reveals How Officers Quickly Closed Bridge to Traffic**\
 `Officers immediately moved to keep cars off a bridge in Baltimore after a mayday from the ship that hit it, according to audio from a Maryland Transportation Authority Police channel.`\
 https://nytimes.com/2024/03/27/us/baltimore-key-bridge-mayday-call-radio.html
-
-**Jane Goodall Is More of a Dog Person, Actually**\
-`Dr. Goodall, who is best known for her work with chimpanzees, recently celebrated her forthcoming 90th birthday with as many dogs and explained why she isn’t slowing down.`\
-https://nytimes.com/2024/03/27/science/jane-goodall-90-birthday-dogs.html
 
