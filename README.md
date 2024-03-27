@@ -1,3 +1,7 @@
+**In Saga of NBC and Ronna McDaniel, Perks and Perils of Partisan Talk on TV**\
+`Why are television news networks so enamored with paid Beltway analysts?`\
+https://nytimes.com/2024/03/27/business/media/nbc-ronna-mcdaniel-msnbc.html
+
 **Maryland lawmakers hope to quickly craft a bill to support workers.**\
 `State leaders are drafting emergency legislation that would provide financial support to affected workers and assistance to small businesses.`\
 https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/maryland-lawmakers-hope-to-quickly-craft-a-bill-to-support-workers
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/arts/music/lil-jon-popcast-deluxe-interview.html
 **Sean Combs’s Legal Troubles: What We Know**\
 `Federal agents executed search warrants at his homes in Los Angeles and Miami Beach, and he faces several civil lawsuits accusing him of rape and sexual assault.`\
 https://nytimes.com/article/diddy-sean-combs-lawsuit-allegations.html
-
-**The U.S.’s First Congestion Tolls Were Approved in New York City**\
-`Also, the Biden administration promised to aid Baltimore’s recovery. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/03/27/briefing/new-york-city-congestion-pricing-baltimore-bridge-collapse.html
 
