@@ -1,3 +1,27 @@
+**‘Cowboy Carter’**\
+`Are you excited for Beyoncé’s new album? What do you think the cover is saying?`\
+https://nytimes.com/2024/03/27/learning/cowboy-carter.html
+
+**A Bustling Block, a Traffic Stop and an Officer’s Life Cut Short**\
+`A sudden eruption of gunfire shocked a crowded stretch of Mott Avenue in Queens, where some shoppers and children  saw a police officer’s last moments.`\
+https://nytimes.com/2024/03/27/nyregion/jonathan-diller-queens-shooting.html
+
+**In Senate Race Shake-Up, Frustration With Establishment Politics**\
+`Tammy Murphy, New Jersey’s first lady, ended her Senate campaign, despite an early air of inevitability to her candidacy.`\
+https://nytimes.com/2024/03/27/nyregion/tammy-murphy-new-jersey-political-machine.html
+
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/27/crosswords/connections-companion.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/03/27/crosswords/spelling-bee-forum.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/27/crosswords/wordle-review.html
+
 **How Elon Musk Became ‘Kind of Pro-China’**\
 `Mr. Musk helped create China’s electric vehicle industry. But he is now facing challenges there as well as scrutiny in the West over his reliance on the country.`\
 https://nytimes.com/2024/03/27/world/asia/musk-china-tesla-explained.html
