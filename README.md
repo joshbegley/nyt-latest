@@ -1,3 +1,7 @@
+**The shipowner could owe more than $1 billion in compensation, experts say.**\
+`Financial resolution is likely to take years, but the Singaporean company could owe hefty sums for the damage caused in the bridge collapse.`\
+https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/the-shipowner-could-owe-more-than-1-billion-in-compensation-experts-say
+
 **Thursday Briefing: Russia’s Online Attack on Ukraine Aid**\
 `Plus, Stephen King’s greatest hits.`\
 https://nytimes.com/2024/03/27/briefing/russia-ukraine-israel-lebanon-hezbollah-baltimore.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/magazine/how-has-retirement-changed-your-relation
 **Many People and Companies Have Made Millions on Trump Media’s Stock**\
 `A surge in the social media company’s market value has generated a windfall for current and former executives, on top of the bonanza for its largest shareholder, former President Trump.`\
 https://nytimes.com/2024/03/27/business/trump-media-shareholders.html
-
-**Kate Banks, Children’s Author Who Wrote About Grief, Dies at 64**\
-`She became an award-winning author of children’s books and young-adult novels despite debilitating health issues and the murder of her father.`\
-https://nytimes.com/2024/03/27/books/kate-banks-dead.html
 
