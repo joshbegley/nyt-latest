@@ -1,3 +1,7 @@
+**Corrections: March 27, 2024**\
+`Corrections that appeared in print on Wednesday, March 27, 2024.`\
+https://nytimes.com/2024/03/27/pageoneplus/corrections-march-27-2024.html
+
 **Quotation of the Day: Tallest Players Can Bewilder Defenders... And Tailors**\
 `Quotation of the Day for Wednesday, Mary 26, 2024.`\
 https://nytimes.com/2024/03/27/pageoneplus/quotation-of-the-day-tallest-players-can-bewilder-defenders-and-tailors.html
