@@ -1,3 +1,7 @@
+**27pol-swiper**\
+`Election Updates: A Democrat running on abortion and I.V.F. access won a special election in Alabama.`\
+https://nytimes.com/live/2024/03/27/us/trump-biden-election
+
 **Has the Luxury E-Commerce Bubble Burst?**\
 `After implosions by Farfetch and MatchesFashion — and with other blowouts possible — the future for online fashion retailers looks uncertain.`\
 https://nytimes.com/2024/03/27/style/has-the-luxury-e-commerce-bubble-burst.html
