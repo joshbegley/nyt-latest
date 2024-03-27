@@ -1,3 +1,15 @@
+**Why the Solar Eclipse Will Not Leave People Without Power**\
+`Grid managers say they are well prepared to handle a sharp drop in the energy produced by solar panels as the eclipse darkens the sky in North America on April 8.`\
+https://nytimes.com/2024/03/27/business/energy-environment/solar-energy-grid-eclipse.html
+
+**Daniel Kahneman, Who Plumbed the Psychology of Economics, Dies at 90**\
+`He helped pioneer a branch of the field that exposed hard-wired mental biases in people’s economic behavior. The work led to a Nobel.`\
+https://nytimes.com/2024/03/27/business/daniel-kahneman-dead.html
+
+**British Museum Sues Former Curator for Return of Stolen Items**\
+`The museum accuses Peter Higgs, a former keeper of Greek and Roman antiquities, of stealing or damaging at least 1,800 artifacts and selling many on eBay.`\
+https://nytimes.com/2024/03/27/arts/design/british-museum-thefts-peter-higgs.html
+
 **James Carville on the Reasons Hillary Clinton Lost**\
 `It wasn’t entirely sexism.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/james-carville-on-the-reasons-hillary-clinton-lost
