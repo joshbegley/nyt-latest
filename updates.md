@@ -1,3 +1,7 @@
+**Can Xerox’s PARC, a Silicon Valley Icon, Find New Life with SRI?**\
+`Two research labs known for some of the tech industry’s most important innovations have merged in hopes of recapturing their glory days.`\
+https://nytimes.com/interactive/2024/03/26/business/silicon-valley-tech-xerox-parc-sri.html
+
 **The vessel had a ‘complete blackout’ and could not restore engine power.**\
 `By Mike Baker`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/the-vessel-had-a-complete-blackout-and-could-not-restore-engine-power
