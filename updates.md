@@ -1,3 +1,7 @@
+**Joseph I. Lieberman, Senator and Vice-Presidential Nominee, Dies at 82**\
+`He served four terms in the Senate from Connecticut and was chosen by Al Gore as his running mate in the 2000 election. He was the first Jewish candidate on a major-party ticket.`\
+https://nytimes.com/2024/03/27/us/politics/joseph-i-lieberman-dead.html
+
 **Stabbing Attack in Illinois Leaves 4 Dead and 5 Injured**\
 `The motive for the killings in a residential neighborhood in Rockford, Ill., was not immediately clear, the authorities said. A suspect is in custody.`\
 https://nytimes.com/2024/03/27/us/rockford-illinois-stabbing.html
