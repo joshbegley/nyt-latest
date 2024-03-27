@@ -1,3 +1,7 @@
+**U.S. Approves $1.5 Billion Loan to Restart Michigan Nuclear Plant**\
+`The conditional loan from the Energy Department is part of a broad effort to revive the use of nuclear energy in the United States.`\
+https://nytimes.com/2024/03/27/business/energy-environment/holtec-palisades-nuclear-plant-loan.html
+
 **What Does True Consent Look Like for Consumers?**\
 `There’s a reason we can’t stop giving away our personal data.`\
 https://nytimes.com/2024/03/27/opinion/consumer-consent-data-privacy.html
