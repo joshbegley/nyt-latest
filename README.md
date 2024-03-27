@@ -1,3 +1,11 @@
+**A 25-year-old was killed in Israel, while 7 were slain overnight in Lebanon.**\
+`By Cassandra Vinograd and Hwaida Saad`\
+https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/a-25-year-old-was-killed-in-israel-while-7-were-slain-overnight-in-lebanon
+
+**27mideast-crisis**\
+`Hezbollah and Israel Trade Fire Across Lebanon Border`\
+https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news
+
 **Six Still Missing in Bridge Collapse, and R.F.K. Jr. Picks a Running Mate**\
 `Plus, you missed your chance to own Indiana Jones’ whip.`\
 https://nytimes.com/2024/03/27/podcasts/bridge-collapse-rfk.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000009382894/key-takeaways-from-supreme-court-ar
 **Has Liberalism Found a Coherent Sexual Ethics?**\
 `What three recent essays suggest about a new vision.`\
 https://nytimes.com/2024/03/27/opinion/me-too-sexual-morality.html
-
-**New Georgia Data Gives Insight on Primaries, Polls and Possibly November**\
-`The vote history records support polling showing Biden doing well among the highly engaged but lagging overall.`\
-https://nytimes.com/2024/03/27/upshot/biden-trump-primary-vote.html
-
-**After 25 Years, a Singer Is the ‘Heart and Soul’ of the Met**\
-`Patrick Carfizzi, a vibrant performer in supporting roles, has grabbed attention in a new production of Verdi’s “La Forza del Destino.”`\
-https://nytimes.com/2024/03/27/arts/music/patrick-carfizzi-forza-met-opera.html
 
