@@ -1,3 +1,7 @@
+**Kate Banks, Children’s Author Who Wrote About Grief, Dies at 64**\
+`She became an award-winning author of children’s books and young-adult novels despite debilitating health issues and the murder of her father.`\
+https://nytimes.com/2024/03/27/books/kate-banks-dead.html
+
 **Tyler Blevins, Video Gaming Star, Reveals Skin Cancer Diagnosis**\
 `Mr. Blevins, known as Ninja, said a mole removed from his foot during a recent checkup with a dermatologist was found to be a melanoma.`\
 https://nytimes.com/2024/03/27/health/tyler-blevins-skin-cancer-melanoma.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/business/energy-environment/holtec-palisades-nucl
 **What Does True Consent Look Like for Consumers?**\
 `There’s a reason we can’t stop giving away our personal data.`\
 https://nytimes.com/2024/03/27/opinion/consumer-consent-data-privacy.html
-
-**The Baltimore Bridge Collapse Will Strain America’s Ports. It’s Time to Strengthen Them.**\
-`America’s ports are vital to our country’s prosperity. We should invest in modernizing them to keep supply chains running smoothly.`\
-https://nytimes.com/2024/03/27/opinion/baltimore-bridge-collapse.html
 

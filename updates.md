@@ -1,3 +1,7 @@
+**Kate Banks, Children’s Author Who Wrote About Grief, Dies at 64**\
+`She became an award-winning author of children’s books and young-adult novels despite debilitating health issues and the murder of her father.`\
+https://nytimes.com/2024/03/27/books/kate-banks-dead.html
+
 **Tyler Blevins, Video Gaming Star, Reveals Skin Cancer Diagnosis**\
 `Mr. Blevins, known as Ninja, said a mole removed from his foot during a recent checkup with a dermatologist was found to be a melanoma.`\
 https://nytimes.com/2024/03/27/health/tyler-blevins-skin-cancer-melanoma.html
