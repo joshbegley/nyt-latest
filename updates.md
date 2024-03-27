@@ -1,3 +1,7 @@
+**Amazon Adds $2.75 Billion to Its Stake in the A.I. Start-Up Anthropic**\
+`The latest investment brings Amazon’s total stake in the San Francisco company to $4 billion.`\
+https://nytimes.com/2024/03/27/technology/amazon-anthropic-ai.html
+
 **Two days after the U.N. call for a cease-fire, Israeli strikes on Gaza haven’t let up.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/two-days-after-the-un-call-for-a-cease-fire-israeli-strikes-on-gaza-havent-let-up
