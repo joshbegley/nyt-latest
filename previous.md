@@ -26,7 +26,7 @@ https://nytimes.com/2024/03/27/briefing/israel-us-baltimore-bridge-beyonce.html
 `Founded in 1831, the opulent private club has long guarded its membership list closely. A leak this month caused a scandal.`\
 https://nytimes.com/2024/03/27/world/europe/garrick-club-london.html
 
-**Why Elon Musk Needs China**\
+**How Elon Musk Became ‘Kind of Pro-China’**\
 `Mr. Musk helped create China’s electric vehicle industry. But he is now facing challenges there as well as scrutiny in the West over his reliance on the country.`\
 https://nytimes.com/2024/03/27/world/asia/musk-china-tesla-explained.html
 

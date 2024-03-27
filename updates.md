@@ -1,3 +1,7 @@
+**How Elon Musk Became ‘Kind of Pro-China’**\
+`Mr. Musk helped create China’s electric vehicle industry. But he is now facing challenges there as well as scrutiny in the West over his reliance on the country.`\
+https://nytimes.com/2024/03/27/world/asia/musk-china-tesla-explained.html
+
 **Jordan Klepper Teases Trump for Selling Bibles**\
 `“How does that thing not burst into flames immediately?” Klepper joked of Donald Trump’s “latest very classy business venture” on Tuesday’s “Daily Show.’`\
 https://nytimes.com/2024/03/27/arts/television/jordan-klepper-trump-bibles.html
