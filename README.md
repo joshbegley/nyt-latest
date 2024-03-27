@@ -1,3 +1,7 @@
+**U.S. Approves $1.5 Billion Loan to Restart Michigan Nuclear Plant**\
+`The conditional loan from the Energy Department is part of a broad effort to revive the use of nuclear energy in the United States.`\
+https://nytimes.com/2024/03/27/business/energy-environment/holtec-palisades-nuclear-plant-loan.html
+
 **What Does True Consent Look Like for Consumers?**\
 `There’s a reason we can’t stop giving away our personal data.`\
 https://nytimes.com/2024/03/27/opinion/consumer-consent-data-privacy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/arts/design/richard-serra-death-appraisal.html
 **What Lies Beneath: London Boat Race Marred by Sewage Concerns**\
 `Rowers in the Oxford-Cambridge Boat Race this weekend have been warned of dangerously high levels of E. coli in the River Thames, the latest sign of England’s polluted waterways.`\
 https://nytimes.com/2024/03/27/world/europe/oxford-cambridge-boat-race-ecoli.html
-
-**What we know about the six men presumed dead in the bridge collapse.**\
-`By Miriam Jordan, Jacey Fortin and Eduardo Medina`\
-https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/what-we-know-about-the-six-men-presumed-dead-in-the-bridge-collapse
 
