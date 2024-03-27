@@ -1,3 +1,19 @@
+**Lil Jon: The Popcast (Deluxe) Interview**\
+`An in-depth interview with the Atlanta hip-hop and EDM legend, tracing his path through punk, skateboarding and crunk music on the way to this year’s Super Bowl.`\
+https://nytimes.com/2024/03/27/arts/music/lil-jon-popcast-deluxe-interview.html
+
+**Sean Combs’s Legal Troubles: What We Know**\
+`Federal agents executed search warrants at his homes in Los Angeles and Miami Beach, and he faces several civil lawsuits accusing him of rape and sexual assault.`\
+https://nytimes.com/article/diddy-sean-combs-lawsuit-allegations.html
+
+**The U.S.’s First Congestion Tolls Were Approved in New York City**\
+`Also, the Biden administration promised to aid Baltimore’s recovery. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/03/27/briefing/new-york-city-congestion-pricing-baltimore-bridge-collapse.html
+
+**Joseph I. Lieberman, Senator and Vice Presidential Candidate, Dies at 82**\
+`He served four terms in the Senate from Connecticut. Al Gore chose him as his running mate in the 2000 election, making him the first Jewish candidate on a major-party ticket.`\
+https://nytimes.com/2024/03/27/us/politics/joseph-i-lieberman-dead.html
+
 **‘Rebuilding will not be quick, or easy or cheap, but we will get it done,’ Buttigieg says.**\
 `By Zach Montague`\
 https://nytimes.com/2024/03/27/us/port-rebuild-pete-buttigieg.html
