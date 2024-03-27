@@ -1,3 +1,15 @@
+**Ice Skating and the Brain**\
+`How do champion skaters accomplish their extraordinary jumps and spins? Brain science is uncovering clues.`\
+https://nytimes.com/2024/03/27/science/ice-skaters-brain.html
+
+**Donald Trump plans to attend the wake for a slain N.Y.P.D. officer.**\
+`The former president’s appearance at the services for Officer Jonathan Diller will come less than three weeks before jury selection begins in his criminal trial in Manhattan.`\
+https://nytimes.com/live/2024/03/27/us/trump-biden-election/donald-trump-plans-to-attend-the-wake-for-a-slain-nypd-officer
+
+**Stephen Adams, Who Made Yale Music School Tuition-Free, Dies at 86**\
+`A billionaire businessman and a late-blooming piano aficionado, he set a record with the anonymous $100 million gift that he and his wife gave the school.`\
+https://nytimes.com/2024/03/27/business/stephen-adams-who-made-yale-music-school-tuition-free-dies-at-86.html
+
 **Trump Attacks R.F.K. Jr., a Third-Party Wild Card**\
 `Robert F. Kennedy Jr., the independent presidential candidate, has asserted that he intends to be a “spoiler” for both Donald Trump and President Biden.`\
 https://nytimes.com/2024/03/27/us/politics/trump-rfk-jr.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/27/opinion/baltimore-bridge-collapse.html
 **Five Students Wounded in Slashing at Queens High School**\
 `The students were taken into custody after a fight at the school. A security guard who tried to break up the fight was also hurt.`\
 https://nytimes.com/2024/03/27/nyregion/stabbing-queens-high-school.html
-
-**NBC’s Ronna McDaniel Hire Wasn’t Politics, or TV, as Usual**\
-`The deal with a former R.N.C. chair who enabled election deniers risked the credibility of NBC News — and ended up pleasing no one.`\
-https://nytimes.com/2024/03/27/arts/nbc-news-ronna-mcdaniel.html
-
-**The United States and Britain impose sanctions on a Gazan news outlet over ties to Hamas.**\
-`By Alan Rappeport`\
-https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/the-united-states-and-britain-impose-sanctions-on-a-gazan-news-outlet-over-ties-to-hamas
-
-**What’s in Our Queue? ‘The Doom Generation’ and More**\
-`I’m a New York Times visual editor. Here are five things I’ve been looking at, reading, watching and listening to.`\
-https://nytimes.com/interactive/2024/03/27/arts/editors-recommendations-doomgeneration.html
 
