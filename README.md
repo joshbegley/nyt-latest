@@ -1,3 +1,11 @@
+**Soft Caps**\
+`Rich Katz twists our words in the wittiest way possible.`\
+https://nytimes.com/2024/03/26/crosswords/daily-puzzle-2024-03-27.html
+
+**Questions Swirl Over Baltimore Bridge Collapse**\
+`Six construction workers are presumed dead after a massive cargo ship slammed into the Francis Scott Key Bridge moments after losing power early on Tuesday.`\
+https://nytimes.com/2024/03/26/us/baltimore-bridge-collapse.html
+
 **Can Xerox’s PARC, a Silicon Valley Icon, Find New Life with SRI?**\
 `Two research labs known for some of the tech industry’s most important innovations have merged in hopes of recapturing their glory days.`\
 https://nytimes.com/interactive/2024/03/26/business/silicon-valley-tech-xerox-parc-sri.html
@@ -29,8 +37,4 @@ https://nytimes.com/2024/03/26/science/sandworm-cambrian-dune.html
 **All Orcas Are Classified as a Single Species. Should They Be?**\
 `A new study suggests that two killer whale populations in the North Pacific are distinct enough to be considered separate species.`\
 https://nytimes.com/2024/03/26/science/orcas-species-killer-whales.html
-
-**Man in Custody in Fatal Shooting of N.Y.P.D. Officer**\
-`Guy Rivera, 34, fired on Officer Jonathan Diller, 31, after being ordered out of an illegally parked car in Queens, the authorities said.`\
-https://nytimes.com/2024/03/26/nyregion/nypd-jonathan-diller-officer-shooting.html
 
