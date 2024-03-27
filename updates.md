@@ -1,3 +1,7 @@
+**Two days after the U.N. call for a cease-fire, Israeli strikes on Gaza haven’t let up.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/two-days-after-the-un-call-for-a-cease-fire-israeli-strikes-on-gaza-havent-let-up
+
 **How Fenders Might Have Protected Against Bridge Collapse**\
 `The Francis Scott Key Bridge did not have an obvious fender system, or protective barriers, to redirect or prevent a ship from crashing into the bridge piers.`\
 https://nytimes.com/interactive/2024/03/27/us/key-bridge-barriers-examples.html

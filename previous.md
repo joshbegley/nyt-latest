@@ -1,3 +1,7 @@
+**Two days after the U.N. call for a cease-fire, Israeli strikes on Gaza haven’t let up.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/two-days-after-the-un-call-for-a-cease-fire-israeli-strikes-on-gaza-havent-let-up
+
 **How Fenders Might Have Protected Against Bridge Collapse**\
 `The Francis Scott Key Bridge did not have an obvious fender system, or protective barriers, to redirect or prevent a ship from crashing into the bridge piers.`\
 https://nytimes.com/interactive/2024/03/27/us/key-bridge-barriers-examples.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/world/europe/prince-philip-statue-cambridge-uk.ht
 **Man Charged in Deadly Shooting of N.Y.P.D. Officer in Queens**\
 `Lindy Jones, who is not the man the authorities say fired the fatal shot, was charged with possessing and defacing a weapon. The other man involved in the shooting has not been charged.`\
 https://nytimes.com/2024/03/27/nyregion/nypd-officer-shooting-charges.html
-
-**This Easy, One-Skillet Dinner Tastes Like Spring**\
-`Using canned artichokes and frozen peas keeps this fresh meal simple to make all year long.`\
-https://nytimes.com/2024/03/27/dining/easy-artichokes-peas-dinner-recipe.html
 
