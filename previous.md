@@ -22,9 +22,9 @@ https://nytimes.com/2024/03/27/world/middleeast/israel-hezbollah-gaza.html
 `The motive for the killings in a residential neighborhood in Rockford, Ill., was not immediately clear, the authorities said. A suspect is in custody.`\
 https://nytimes.com/2024/03/27/us/rockford-illinois-stabbing.html
 
-**Netanyahu’s office hasn’t confirmed any desire to make new plans.**\
+**U.S. Says Israel Has Agreed to Try to Reschedule Canceled Trip**\
 `By Zach Montague`\
-https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/us-says-israel-has-agreed-to-try-to-reschedule-meeting-netanyahu-had-canceled
+https://nytimes.com/2024/03/27/world/middleeast/netanyahu-meeting-ceasefire.html
 
 **Seeking Balance, Tripping Up**\
 `The question of how to cover Donald Trump is no closer to being solved.`\

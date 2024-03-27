@@ -1,3 +1,7 @@
+**U.S. Says Israel Has Agreed to Try to Reschedule Canceled Trip**\
+`By Zach Montague`\
+https://nytimes.com/2024/03/27/world/middleeast/netanyahu-meeting-ceasefire.html
+
 **In Saga of NBC and Ronna McDaniel, Perks and Perils of Partisan Talk on TV**\
 `Why are television news networks so enamored with paid Beltway analysts?`\
 https://nytimes.com/2024/03/27/business/media/nbc-ronna-mcdaniel-msnbc.html
