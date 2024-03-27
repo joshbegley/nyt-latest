@@ -1,3 +1,7 @@
+**Many People and Companies Have Made Millions on Trump Media’s Stock**\
+`A surge in the social media company’s market value has generated a windfall for current and former executives, on top of the bonanza for its largest shareholder, former President Trump.`\
+https://nytimes.com/2024/03/27/business/trump-media-shareholders.html
+
 **Kate Banks, Children’s Author Who Wrote About Grief, Dies at 64**\
 `She became an award-winning author of children’s books and young-adult novels despite debilitating health issues and the murder of her father.`\
 https://nytimes.com/2024/03/27/books/kate-banks-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/us/baltimore-key-bridge-mayday-call-radio.html
 **Jane Goodall Is More of a Dog Person, Actually**\
 `Dr. Goodall, who is best known for her work with chimpanzees, recently celebrated her forthcoming 90th birthday with as many dogs and explained why she isn’t slowing down.`\
 https://nytimes.com/2024/03/27/science/jane-goodall-90-birthday-dogs.html
-
-**U.S. Approves $1.5 Billion Loan to Restart Michigan Nuclear Plant**\
-`The conditional loan from the Energy Department is part of a broad effort to revive the use of nuclear energy in the United States.`\
-https://nytimes.com/2024/03/27/business/energy-environment/holtec-palisades-nuclear-plant-loan.html
 

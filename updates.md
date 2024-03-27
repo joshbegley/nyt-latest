@@ -1,3 +1,7 @@
+**Many People and Companies Have Made Millions on Trump Media’s Stock**\
+`A surge in the social media company’s market value has generated a windfall for current and former executives, on top of the bonanza for its largest shareholder, former President Trump.`\
+https://nytimes.com/2024/03/27/business/trump-media-shareholders.html
+
 **The Broad Museum, a Los Angeles Favorite, Is Expanding**\
 `An expansion designed by Diller, Scofidio + Renfro will add 55,000 square feet to an institution that has become a popular Los Angeles destination.`\
 https://nytimes.com/2024/03/27/arts/design/the-broad-museum-los-angeles-expanding.html
