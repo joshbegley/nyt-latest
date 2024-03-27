@@ -1,3 +1,7 @@
+**Thursday Briefing: Russia’s Online Attack on Ukraine Aid**\
+`Plus, Stephen King’s greatest hits.`\
+https://nytimes.com/2024/03/27/briefing/russia-ukraine-israel-lebanon-hezbollah-baltimore.html
+
 **‘Rebuilding will not be quick, or easy or cheap, but we will get it done,’ Buttigieg says.**\
 `By Zach Montague`\
 https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/rebuilding-will-not-be-quick-or-easy-or-cheap-but-we-will-get-it-done-buttigieg-says
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/business/trump-media-shareholders.html
 **Kate Banks, Children’s Author Who Wrote About Grief, Dies at 64**\
 `She became an award-winning author of children’s books and young-adult novels despite debilitating health issues and the murder of her father.`\
 https://nytimes.com/2024/03/27/books/kate-banks-dead.html
-
-**The Broad Museum, a Los Angeles Favorite, Is Expanding**\
-`An expansion designed by Diller, Scofidio + Renfro will add 55,000 square feet to an institution that has become a popular Los Angeles destination.`\
-https://nytimes.com/2024/03/27/arts/design/the-broad-museum-los-angeles-expanding.html
 
