@@ -1,6 +1,6 @@
 **Trump Attacks R.F.K. Jr., a Third-Party Wild Card**\
 `Robert F. Kennedy Jr., the independent presidential candidate, has asserted that he intends to be a “spoiler” for both Donald Trump and President Biden.`\
-https://nytimes.com/2024/03/27/us/politics/trump-attacks-rfk-jr-a-third-party-wild-card.html
+https://nytimes.com/2024/03/27/us/politics/trump-rfk-jr.html
 
 **Radio Chatter Reveals How Officers Quickly Closed Bridge to Traffic**\
 `Officers immediately moved to keep cars off a bridge in Baltimore after a mayday from the ship that hit it, according to audio from a Maryland Transportation Authority Police channel.`\
