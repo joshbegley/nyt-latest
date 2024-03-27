@@ -1,3 +1,7 @@
+**Disney and DeSantis Settle Suit Over Florida Special District**\
+`The settlement ends a two-year fight between the entertainment giant and the Florida governor over control of a state tax district near Orlando that encompasses Walt Disney World.`\
+https://nytimes.com/2024/03/27/business/disney-desantis-florida-lawsuit.html
+
 **The Homeowners Who Beat the National Association of Realtors**\
 `Six home sellers in Missouri successfully argued that the powerful real estate trade group’s rules on commissions forced them to pay inflated fees.`\
 https://nytimes.com/2024/03/27/realestate/national-association-realtors-lawsuit-homeowners.html

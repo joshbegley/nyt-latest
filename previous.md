@@ -1,3 +1,7 @@
+**Disney and DeSantis Settle Suit Over Florida Special District**\
+`The settlement ends a two-year fight between the entertainment giant and the Florida governor over control of a state tax district near Orlando that encompasses Walt Disney World.`\
+https://nytimes.com/2024/03/27/business/disney-desantis-florida-lawsuit.html
+
 **The Homeowners Who Beat the National Association of Realtors**\
 `Six home sellers in Missouri successfully argued that the powerful real estate trade group’s rules on commissions forced them to pay inflated fees.`\
 https://nytimes.com/2024/03/27/realestate/national-association-realtors-lawsuit-homeowners.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/magazine/stranger-groceries-gift-ethics.html
 **A Great Lakes Pipeline Tangles Politics in Two Battleground States**\
 `Line 5 crosses tribal lands, runs beneath the water and needs major upgrades. Opponents fear spills. Supporters envision jobs. Everyone sees a fight.`\
 https://nytimes.com/2024/03/27/climate/line-5-pipeline-michigan-wisconsin-swing-state.html
-
-**Why the Solar Eclipse Will Not Leave People Without Power**\
-`Grid managers say they are well prepared to handle a sharp drop in the energy produced by solar panels as the eclipse darkens the sky in North America on April 8.`\
-https://nytimes.com/2024/03/27/business/energy-environment/solar-energy-grid-eclipse.html
 
