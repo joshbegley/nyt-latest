@@ -16,7 +16,7 @@ https://nytimes.com/2024/03/27/briefing/israel-us-baltimore-bridge-beyonce.html
 
 **Inside the Garrick, the Elite Men-Only London Club Rocked by Criticism**\
 `Founded in 1831, the opulent private club has long guarded its membership list closely. A leak this month caused a scandal.`\
-https://nytimes.com/2024/03/27/world/europe/inside-the-garrick-the-elite-men-only-london-club-rocked-by-criticism.html
+https://nytimes.com/2024/03/27/world/europe/garrick-club-london.html
 
 **Why Elon Musk Needs China**\
 `Mr. Musk helped create China’s electric vehicle industry. But he is now facing challenges there as well as scrutiny in the West over his reliance on the country.`\
