@@ -1,3 +1,7 @@
+**Radio Chatter Reveals How Officers Quickly Closed Bridge to Traffic**\
+`Officers immediately moved to keep cars off a bridge in Baltimore after a mayday from the ship that hit it, according to audio from a Maryland Transportation Authority Police channel.`\
+https://nytimes.com/2024/03/27/us/baltimore-key-bridge-mayday-call-radio.html
+
 **Jane Goodall Is More of a Dog Person, Actually**\
 `Dr. Goodall, who is best known for her work with chimpanzees, recently celebrated her forthcoming 90th birthday with as many dogs and explained why she isn’t slowing down.`\
 https://nytimes.com/2024/03/27/science/jane-goodall-90-birthday-dogs.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/27/arts/editors-recommendations-doomgene
 **Russian Group Spread Disinformation About Princess of Wales, Experts Say**\
 `A Kremlin-linked group known for online campaigns to sow falsehoods and distrust among Russia’s foes helped fuel the frenzy of conspiracy theories about Catherine and her health.`\
 https://nytimes.com/2024/03/27/world/europe/princess-kate-middleton-russia-conspiracy.html
-
-**For Richard Serra, Art Was Not Something. It Was Everything.**\
-`He was known as the Man of Steel. But the sculptor was also an eternal poet, reshaping our perception of space, says our critic.`\
-https://nytimes.com/2024/03/27/arts/design/richard-serra-death-appraisal.html
 

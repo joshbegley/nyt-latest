@@ -1,3 +1,7 @@
+**Jane Goodall Is More of a Dog Person, Actually**\
+`Dr. Goodall, who is best known for her work with chimpanzees, recently celebrated her forthcoming 90th birthday with as many dogs and explained why she isn’t slowing down.`\
+https://nytimes.com/2024/03/27/science/jane-goodall-90-birthday-dogs.html
+
 **U.S. Approves $1.5 Billion Loan to Restart Michigan Nuclear Plant**\
 `The conditional loan from the Energy Department is part of a broad effort to revive the use of nuclear energy in the United States.`\
 https://nytimes.com/2024/03/27/business/energy-environment/holtec-palisades-nuclear-plant-loan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/world/europe/princess-kate-middleton-russia-consp
 **For Richard Serra, Art Was Not Something. It Was Everything.**\
 `He was known as the Man of Steel. But the sculptor was also an eternal poet, reshaping our perception of space, says our critic.`\
 https://nytimes.com/2024/03/27/arts/design/richard-serra-death-appraisal.html
-
-**What Lies Beneath: London Boat Race Marred by Sewage Concerns**\
-`Rowers in the Oxford-Cambridge Boat Race this weekend have been warned of dangerously high levels of E. coli in the River Thames, the latest sign of England’s polluted waterways.`\
-https://nytimes.com/2024/03/27/world/europe/oxford-cambridge-boat-race-ecoli.html
 

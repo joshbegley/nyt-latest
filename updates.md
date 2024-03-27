@@ -1,3 +1,7 @@
+**Jane Goodall Is More of a Dog Person, Actually**\
+`Dr. Goodall, who is best known for her work with chimpanzees, recently celebrated her forthcoming 90th birthday with as many dogs and explained why she isn’t slowing down.`\
+https://nytimes.com/2024/03/27/science/jane-goodall-90-birthday-dogs.html
+
 **U.S. Approves $1.5 Billion Loan to Restart Michigan Nuclear Plant**\
 `The conditional loan from the Energy Department is part of a broad effort to revive the use of nuclear energy in the United States.`\
 https://nytimes.com/2024/03/27/business/energy-environment/holtec-palisades-nuclear-plant-loan.html
