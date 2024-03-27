@@ -1,3 +1,7 @@
+**Jordan Klepper Teases Trump for Selling Bibles**\
+`“How does that thing not burst into flames immediately?” Klepper joked of Donald Trump’s “latest very classy business venture” on Tuesday’s “Daily Show.’`\
+https://nytimes.com/2024/03/27/arts/television/jordan-klepper-trump-bibles.html
+
 **Word of the Day: crucial**\
 `This word has appeared in 2,489 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/27/learning/word-of-the-day-crucial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/world/asia/elon-musk-tesla-china.html
 **Filmmaker Draws Censors’ Wrath: ‘A Price I Have to Accept’**\
 `Wang Xiaoshuai is among the few Chinese artists who refuse to bend to state limitations on the subjects they explore.`\
 https://nytimes.com/2024/03/27/business/china-film-censorship-wang-xiaoshuai.html
-
-**Happy-Go-Lucky Australia Is Feeling Neither Happy, Nor Lucky**\
-`After enjoying decades of prosperity, the country has hit stubborn economic turbulence.`\
-https://nytimes.com/2024/03/27/world/australia/economy-cost-of-living.html
 
