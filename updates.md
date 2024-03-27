@@ -1,3 +1,7 @@
+**The Broad Museum, a Los Angeles Favorite, Is Expanding**\
+`An expansion designed by Diller, Scofidio + Renfro will add 55,000 square feet to an institution that has become a popular Los Angeles destination.`\
+https://nytimes.com/2024/03/27/arts/design/the-broad-museum-los-angeles-expanding.html
+
 **Kate Banks, Children’s Author Who Wrote About Grief, Dies at 64**\
 `She became an award-winning author of children’s books and young-adult novels despite debilitating health issues and the murder of her father.`\
 https://nytimes.com/2024/03/27/books/kate-banks-dead.html
