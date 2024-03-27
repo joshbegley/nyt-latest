@@ -1,3 +1,7 @@
+**Is There a Political Divide in Your Family?**\
+`We want to hear from readers about how they approach different opinions over various social issues.`\
+https://nytimes.com/2024/03/27/us/political-divides-families.html
+
 **Harvard Removes Binding of Human Skin From Book in Its Library**\
 `The decision to find a “respectful final disposition” for human remains used for a 19th-century book comes amid growing scrutiny of their presence in museum collections.`\
 https://nytimes.com/2024/03/27/arts/harvard-human-skin-binding-book.html
