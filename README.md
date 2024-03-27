@@ -4,7 +4,7 @@ https://nytimes.com/2024/03/27/us/politics/rnc-trump-2020-election.html
 
 **Kim Kardashian Is Sued for Saying Her Tables Are Authentic Donald Judds**\
 `In a promotional video, the reality star said her office furniture was designed by Judd, the minimalist artist. His foundation says otherwise in a new lawsuit.`\
-https://nytimes.com/2024/03/27/arts/design/table.html
+https://nytimes.com/2024/03/27/arts/design/kim-kardashian-table-donald-judds.html
 
 **Two days after the U.N. call for a cease-fire, Israeli strikes on Gaza haven’t let up.**\
 `By Adam Rasgon`\
