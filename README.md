@@ -1,3 +1,7 @@
+**Joseph I. Lieberman, Senator and Vice Presidential Candidate, Dies at 82**\
+`He served four terms in the Senate from Connecticut before Al Gore chose him as his running mate in the 2000 election. He was the first Jewish candidate on a major-party ticket.`\
+https://nytimes.com/2024/03/27/us/politics/joseph-i-lieberman-dead.html
+
 **The shipowner could owe more than $1 billion in compensation, experts say.**\
 `Financial resolution is likely to take years, but the Singaporean company could owe hefty sums for the damage caused in the bridge collapse.`\
 https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/the-shipowner-could-owe-more-than-1-billion-in-compensation-experts-say
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/us/politics/russian-ukraine-us-interference.html
 **How Has Retirement Changed Your Relationship?**\
 `We want to hear from you for a New York Times Magazine feature about how this transition can affect marriages and long-term relationships.`\
 https://nytimes.com/2024/03/27/magazine/how-has-retirement-changed-your-relationship.html
-
-**Many People and Companies Have Made Millions on Trump Media’s Stock**\
-`A surge in the social media company’s market value has generated a windfall for current and former executives, on top of the bonanza for its largest shareholder, former President Trump.`\
-https://nytimes.com/2024/03/27/business/trump-media-shareholders.html
 
