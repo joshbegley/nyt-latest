@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/03/27/us/trump-biden-election
 
 **Has the Luxury E-Commerce Bubble Burst?**\
 `After implosions by Farfetch and MatchesFashion — and with other blowouts possible — the future for online fashion retailers looks uncertain.`\
-https://nytimes.com/2024/03/27/style/has-the-luxury-e-commerce-bubble-burst.html
+https://nytimes.com/2024/03/27/style/ecommerce-luxury-farfetch-matchesfashion.html
 
 **Democrat Running on Abortion and I.V.F. Access Wins Special Election in Alabama**\
 `Marilyn Lands flipped a State House seat in the deep-red state by 25 percentage points, underscoring the continued political potency of reproductive rights.`\
