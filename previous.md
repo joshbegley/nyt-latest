@@ -1,3 +1,7 @@
+**America’s Affordable Housing Crisis**\
+`The housing crisis is likely to be solved in cities and states, not Washington.`\
+https://nytimes.com/2024/03/27/briefing/affordable-housing-crisis.html
+
 **A 25-year-old was killed in Israel, while 7 medics were reported slain in Lebanon.**\
 `By Cassandra Vinograd and Hwaida Saad`\
 https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/a-25-year-old-was-killed-in-israel-while-7-were-slain-overnight-in-lebanon
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/opinion/schools-technology.html
 **Key Takeaways From Supreme Court Arguments on Abortion Pill Access**\
 `A majority of the Supreme Court seemed inclined on Tuesday to reject a bid to sharply limit access to abortion pills.`\
 https://nytimes.com/video/us/100000009382894/key-takeaways-from-supreme-court-arguments-on-abortion-pill-access.html
-
-**Has Liberalism Found a Coherent Sexual Ethics?**\
-`What three recent essays suggest about a new vision.`\
-https://nytimes.com/2024/03/27/opinion/me-too-sexual-morality.html
 
