@@ -1,3 +1,7 @@
+**Democrats’ Plan to Save the Republican House Speaker**\
+`Speaker Mike Johnson has faced fury from ultraconservatives after a bipartisan spending bill.`\
+https://nytimes.com/2024/03/27/podcasts/the-daily/speaker-johnson.html
+
 **Nickelodeon and Disney Stars Find a Second Act on Podcasts**\
 `The cast of the Nickelodeon series “Ned’s Declassified School Survival Guide” are among the stars of 2000s teen sitcoms who are using podcasts to connect with their Gen Z and millennial fan bases.`\
 https://nytimes.com/2024/03/27/arts/television/nickelodeon-disney-podcasts-neds-declassified.html
