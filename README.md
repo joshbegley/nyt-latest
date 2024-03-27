@@ -1,3 +1,7 @@
+**Can Xerox’s PARC, a Silicon Valley Icon, Find New Life with SRI?**\
+`Two research labs known for some of the tech industry’s most important innovations have merged in hopes of recapturing their glory days.`\
+https://nytimes.com/interactive/2024/03/26/business/silicon-valley-tech-xerox-parc-sri.html
+
 **The vessel had a ‘complete blackout’ and could not restore engine power.**\
 `By Mike Baker`\
 https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/the-vessel-had-a-complete-blackout-and-could-not-restore-engine-power
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/26/science/orcas-species-killer-whales.html
 **Man in Custody in Fatal Shooting of N.Y.P.D. Officer**\
 `Guy Rivera, 34, fired on Officer Jonathan Diller, 31, after being ordered out of an illegally parked car in Queens, the authorities said.`\
 https://nytimes.com/2024/03/26/nyregion/nypd-jonathan-diller-officer-shooting.html
-
-**Vessels Belonging to Owner of Baltimore Ship Had Been Cited for Labor Violations**\
-`The vessels had underpaid crews and kept workers onboard for months beyond their contracts, according to an Australian regulator.`\
-https://nytimes.com/2024/03/26/us/ship-labor-baltimore-bridge-collapse.html
 
