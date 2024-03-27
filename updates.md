@@ -1,3 +1,7 @@
+**Joseph I. Lieberman, Senator and Vice Presidential Candidate, Dies at 82**\
+`He served four terms in the Senate from Connecticut before Al Gore chose him as his running mate in the 2000 election. He was the first Jewish candidate on a major-party ticket.`\
+https://nytimes.com/2024/03/27/us/politics/joseph-i-lieberman-dead.html
+
 **The shipowner could owe more than $1 billion in compensation, experts say.**\
 `Financial resolution is likely to take years, but the Singaporean company could owe hefty sums for the damage caused in the bridge collapse.`\
 https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/the-shipowner-could-owe-more-than-1-billion-in-compensation-experts-say
