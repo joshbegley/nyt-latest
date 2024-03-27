@@ -1,3 +1,7 @@
+**Word of the Day: crucial**\
+`This word has appeared in 2,489 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/27/learning/word-of-the-day-crucial.html
+
 **Biden Loves Ireland. It Doesn’t Love Him Back.**\
 `The president’s complicity with Israel’s assault on Gaza has damaged his relationship with the Irish people, perhaps irreparably.`\
 https://nytimes.com/2024/03/27/opinion/biden-ireland-gaza-varadkar.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/business/china-film-censorship-wang-xiaoshuai.htm
 **Happy-Go-Lucky Australia Is Feeling Neither Happy, Nor Lucky**\
 `After enjoying decades of prosperity, the country has hit stubborn economic turbulence.`\
 https://nytimes.com/2024/03/27/world/australia/economy-cost-of-living.html
-
-**Soft Caps**\
-`Rich Katz twists our words in the wittiest way possible.`\
-https://nytimes.com/2024/03/26/crosswords/daily-puzzle-2024-03-27.html
 
