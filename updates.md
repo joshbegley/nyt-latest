@@ -1,3 +1,19 @@
+**Martin Scorsese to Headline a Religious Series for Fox Nation**\
+`The Oscar-winning director is the latest Hollywood name to sign up for the Fox News streaming platform, joining Kevin Costner, Rob Lowe and Dan Aykroyd.`\
+https://nytimes.com/2024/03/27/movies/martin-scorsese-fox-nation.html
+
+**Kitchen Magic for Big Weeknight Flavor**\
+`Irresistible honey-and-soy-glazed chicken thighs, a springy Easter menu and a one-pot dish sure to please.`\
+https://nytimes.com/2024/03/27/dining/kitchen-magic-for-big-weeknight-flavor.html
+
+**A Stranger Bought My Groceries. Should I Have Refused Her Offer?**\
+`The magazine’s Ethicist columnist on random acts of kindness.`\
+https://nytimes.com/2024/03/27/magazine/stranger-groceries-gift-ethics.html
+
+**A Great Lakes Pipeline Tangles Politics in Two Battleground States**\
+`Line 5 crosses tribal lands, runs beneath the water and needs major upgrades. Opponents fear spills. Supporters envision jobs. Everyone sees a fight.`\
+https://nytimes.com/2024/03/27/climate/line-5-pipeline-michigan-wisconsin-swing-state.html
+
 **Why the Solar Eclipse Will Not Leave People Without Power**\
 `Grid managers say they are well prepared to handle a sharp drop in the energy produced by solar panels as the eclipse darkens the sky in North America on April 8.`\
 https://nytimes.com/2024/03/27/business/energy-environment/solar-energy-grid-eclipse.html
