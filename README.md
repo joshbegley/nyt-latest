@@ -1,3 +1,7 @@
+**The U.S.’s First Congestion Tolls Were Approved in New York City**\
+`Also, the Biden administration promised to aid Baltimore’s recovery. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/03/27/briefing/new-york-city-congestion-pricing-baltimore-bridge-collapse.html
+
 **What New York City Did to Flaco the Owl**\
 `He was a dead bird flying.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/what-new-york-city-did-to-flaco-the-owl
@@ -16,7 +20,7 @@ https://nytimes.com/2024/03/27/briefing/russia-ukraine-israel-lebanon-hezbollah-
 
 **‘Rebuilding will not be quick, or easy or cheap, but we will get it done,’ Buttigieg says.**\
 `By Zach Montague`\
-https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/rebuilding-will-not-be-quick-or-easy-or-cheap-but-we-will-get-it-done-buttigieg-says
+https://nytimes.com/2024/03/27/us/port-rebuild-pete-buttigieg.html
 
 **Trump’s Social Media Company Opens New Avenue for Conflicts of Interest**\
 `Ethics experts say Trump Media, now a publicly traded company, would present a new way for foreign actors or others to influence Donald J. Trump, if he is elected president.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/books/review/wolf-at-the-table-adam-rapp.html
 **Another Wayward Container Ship Shows World Trade’s Fragility**\
 `The destruction of a Baltimore bridge has crippled a busy port, adding to the strains confronting the global supply chain.`\
 https://nytimes.com/2024/03/27/business/economy/container-ship-global-trade.html
-
-**Russia’s Online Operations Focus on Ukraine Aid and Are Harder to Detect**\
-`Moscow has found better ways to conceal influence campaigns that amplify arguments for isolationism, officials and experts say.`\
-https://nytimes.com/2024/03/27/us/politics/russian-ukraine-us-interference.html
 
