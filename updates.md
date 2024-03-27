@@ -1,3 +1,11 @@
+**‘Rebuilding will not be quick, or easy or cheap, but we will get it done,’ Buttigieg says.**\
+`By Zach Montague`\
+https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/rebuilding-will-not-be-quick-or-easy-or-cheap-but-we-will-get-it-done-buttigieg-says
+
+**Trump’s Social Media Company Opens New Avenue for Conflicts of Interest**\
+`Ethics experts say Trump Media, now a publicly traded company, would present a new way for foreign actors or others to influence Donald J. Trump, if he is elected president.`\
+https://nytimes.com/2024/03/27/us/trump-media-truth-social-campaign.html
+
 **Overlooked No More: Henrietta Leavitt, Who Unraveled Mysteries of the Stars**\
 `The portrait that emerged from her discovery, called Leavitt’s Law, showed that the universe was hundreds of times bigger than astronomers had imagined.`\
 https://nytimes.com/2024/03/27/obituaries/henrietta-leavitt-overlooked.html
