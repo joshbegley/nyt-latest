@@ -1,3 +1,11 @@
+**Harvard Removes Binding of Human Skin From Book in Its Library**\
+`The decision to find a “respectful final disposition” for human remains used for a 19th-century book comes amid growing scrutiny of their presence in museum collections.`\
+https://nytimes.com/2024/03/27/arts/harvard-human-skin-binding-book.html
+
+**Israel and Hezbollah Trade Fire, With Deaths Reported on Both Sides**\
+`The exchange came as a U.N. cease-fire demand appeared to be having little effect on the war in Gaza, and pressure increased on neighboring Jordan to sever ties with Israel.`\
+https://nytimes.com/2024/03/27/world/middleeast/israel-hezbollah-gaza.html
+
 **Joseph I. Lieberman, Senator and Vice-Presidential Nominee, Dies at 82**\
 `He served four terms in the Senate from Connecticut and was chosen by Al Gore as his running mate in the 2000 election. He was the first Jewish candidate on a major-party ticket.`\
 https://nytimes.com/2024/03/27/us/politics/joseph-i-lieberman-dead.html
