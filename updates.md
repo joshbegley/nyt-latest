@@ -1,3 +1,7 @@
+**You Know Him From N.B.A. Games. You Know His House From ‘Selling Sunset.’**\
+`For half a century, James Goldstein has been renovating a house by John Lautner. It’s a spectacular legacy. But like everything about Goldstein, it’s complicated.`\
+https://nytimes.com/2024/03/27/arts/james-goldstein-house.html
+
 **Security forces clash with pro-Palestinian protesters in Jordan, video shows.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/security-forces-clash-with-pro-palestinian-protesters-in-jordan-video-shows
