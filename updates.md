@@ -1,3 +1,11 @@
+**Thursday Briefing: Russia’s Online Attack on Ukraine Aid**\
+`Plus, Stephen King’s greatest hits.`\
+https://nytimes.com/2024/03/27/briefing/russia-ukraine-israel-lebanon-hezbollah-baltimore.html
+
+**Russia Amps Up Online Campaign Against Ukraine Before U.S. Elections**\
+`Moscow has found better ways to conceal influence operations that spread arguments for isolationism, officials and experts say.`\
+https://nytimes.com/2024/03/27/us/politics/russian-ukraine-us-interference.html
+
 **‘Rebuilding will not be quick, or easy or cheap, but we will get it done,’ Buttigieg says.**\
 `By Zach Montague`\
 https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/rebuilding-will-not-be-quick-or-easy-or-cheap-but-we-will-get-it-done-buttigieg-says
