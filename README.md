@@ -1,3 +1,15 @@
+**Six Still Missing in Bridge Collapse, and R.F.K. Jr. Picks a Running Mate**\
+`Plus, you missed your chance to own Indiana Jones’ whip.`\
+https://nytimes.com/2024/03/27/podcasts/bridge-collapse-rfk.html
+
+**Here is the latest on the collapse.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/here-is-the-latest-on-the-collapse
+
+**27baltimore-bridge**\
+`Live Updates: Baltimore Bridge Rescue Efforts Shift to Recovery of 6 Missing Workers`\
+https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse
+
 **Democrats’ Plan to Save the Republican House Speaker**\
 `Speaker Mike Johnson has faced fury from ultraconservatives after a bipartisan spending bill.`\
 https://nytimes.com/2024/03/27/podcasts/the-daily/speaker-johnson.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/27/upshot/biden-trump-primary-vote.html
 **After 25 Years, a Singer Is the ‘Heart and Soul’ of the Met**\
 `Patrick Carfizzi, a vibrant performer in supporting roles, has grabbed attention in a new production of Verdi’s “La Forza del Destino.”`\
 https://nytimes.com/2024/03/27/arts/music/patrick-carfizzi-forza-met-opera.html
-
-**Lizzo Embraces ‘Body Neutrality’**\
-`The singer Lizzo, who just released a new swim line, has moved on from “body positivity.”`\
-https://nytimes.com/2024/03/27/style/lizzo-yitty-swim-swimwear-line.html
-
-**Worries Over Ethnic Tensions Have Kremlin Treading Carefully on Massacre**\
-`Anti-migrant rhetoric in the aftermath of the attacks at the concert venue outside Moscow has spurred fears that the tragedy could cause ethnic strife inside Russia.`\
-https://nytimes.com/2024/03/27/world/europe/russia-moscow-attack-migrants.html
-
-**Sean Combs Settled a Lawsuit, but His Troubles Were Just Beginning**\
-`The hip-hop mogul denied sexual assault accusations in a bombshell suit in November. As more allegations piled up, his business empire, and reputation, faltered.`\
-https://nytimes.com/2024/03/27/arts/music/diddy-sean-combs-businesses-raid.html
 
