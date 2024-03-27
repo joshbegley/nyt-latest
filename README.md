@@ -1,3 +1,7 @@
+**Tyler Blevins, Video Gaming Star, Reveals Skin Cancer Diagnosis**\
+`Mr. Blevins, known as Ninja, said a mole removed from his foot during a recent checkup with a dermatologist was found to be a melanoma.`\
+https://nytimes.com/2024/03/27/health/tyler-blevins-skin-cancer-melanoma.html
+
 **Ice Skating and the Brain**\
 `How do champion skaters accomplish their extraordinary jumps and spins? Brain science is uncovering clues.`\
 https://nytimes.com/2024/03/27/science/ice-skaters-brain.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/opinion/consumer-consent-data-privacy.html
 **The Baltimore Bridge Collapse Will Strain America’s Ports. It’s Time to Strengthen Them.**\
 `America’s ports are vital to our country’s prosperity. We should invest in modernizing them to keep supply chains running smoothly.`\
 https://nytimes.com/2024/03/27/opinion/baltimore-bridge-collapse.html
-
-**Five Students Wounded in Slashing at Queens High School**\
-`The students were taken into custody after a fight at the school. A security guard who tried to break up the fight was also hurt.`\
-https://nytimes.com/2024/03/27/nyregion/stabbing-queens-high-school.html
 
