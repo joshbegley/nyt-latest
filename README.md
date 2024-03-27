@@ -1,3 +1,7 @@
+**Biden Loves Ireland. It Doesn’t Love Him Back.**\
+`The president’s complicity with Israel’s assault on Gaza has damaged his relationship with the Irish people, perhaps irreparably.`\
+https://nytimes.com/2024/03/27/opinion/biden-ireland-gaza-varadkar.html
+
 **Corrections: March 27, 2024**\
 `Corrections that appeared in print on Wednesday, March 27, 2024.`\
 https://nytimes.com/2024/03/27/pageoneplus/corrections-march-27-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/world/australia/economy-cost-of-living.html
 **Soft Caps**\
 `Rich Katz twists our words in the wittiest way possible.`\
 https://nytimes.com/2024/03/26/crosswords/daily-puzzle-2024-03-27.html
-
-**Rescue Effort Turns Into Search for Bodies of 6 Workers on the Bridge**\
-`Questions swirl over the bridge’s collapse after a massive cargo ship slammed into the Francis Scott Key Bridge moments after losing power early on Tuesday.`\
-https://nytimes.com/2024/03/26/us/baltimore-bridge-collapse.html
 
