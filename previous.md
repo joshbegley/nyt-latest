@@ -1,3 +1,7 @@
+**Thailand Lawmakers Bring Same-Sex Marriage a Crucial Step Closer**\
+`The House of Representatives voted overwhelmingly to legalize same-sex marriage. The bill now goes to Thailand’s Senate.`\
+https://nytimes.com/2024/03/27/world/asia/thailand-bill-same-sex-marriage-law.html
+
 **‘Cowboy Carter’**\
 `Are you excited for Beyoncé’s new album? What do you think the cover is saying?`\
 https://nytimes.com/2024/03/27/learning/cowboy-carter.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/learning/word-of-the-day-crucial.html
 **Biden Loves Ireland. It Doesn’t Love Him Back.**\
 `The president’s complicity with Israel’s assault on Gaza has damaged his relationship with the Irish people, perhaps irreparably.`\
 https://nytimes.com/2024/03/27/opinion/biden-ireland-gaza-varadkar.html
-
-**Corrections: March 27, 2024**\
-`Corrections that appeared in print on Wednesday, March 27, 2024.`\
-https://nytimes.com/2024/03/27/pageoneplus/corrections-march-27-2024.html
 

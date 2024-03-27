@@ -1,3 +1,7 @@
+**Thailand Lawmakers Bring Same-Sex Marriage a Crucial Step Closer**\
+`The House of Representatives voted overwhelmingly to legalize same-sex marriage. The bill now goes to Thailand’s Senate.`\
+https://nytimes.com/2024/03/27/world/asia/thailand-bill-same-sex-marriage-law.html
+
 **‘Cowboy Carter’**\
 `Are you excited for Beyoncé’s new album? What do you think the cover is saying?`\
 https://nytimes.com/2024/03/27/learning/cowboy-carter.html
