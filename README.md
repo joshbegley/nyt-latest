@@ -20,7 +20,7 @@ https://nytimes.com/2024/03/27/science/ice-skaters-brain.html
 
 **Donald Trump plans to attend the wake for a slain N.Y.P.D. officer.**\
 `The former president’s appearance at the services for Officer Jonathan Diller will come less than three weeks before jury selection begins in his criminal trial in Manhattan.`\
-https://nytimes.com/live/2024/03/27/us/trump-biden-election/donald-trump-plans-to-attend-the-wake-for-a-slain-nypd-officer
+https://nytimes.com/2024/03/27/us/politics/trump-nypd-officer-wake.html
 
 **Stephen Adams, Who Made Yale Music School Tuition-Free, Dies at 86**\
 `A billionaire businessman and a late-blooming piano aficionado, he set a record with the anonymous $100 million gift that he and his wife gave the school.`\
