@@ -1,3 +1,7 @@
+**Appeals Court Rules Against Texas in Clash Over Migrant Arrest Law**\
+`The decision in favor of the federal government left in place a trial court injunction blocking implementation of the law.`\
+https://nytimes.com/2024/03/27/us/texas-migrant-law-appeals-court.html
+
 **The Fallout From a Credit Card Shake-Up**\
 `A proposed settlement between Visa and Mastercard and merchants on swipe fees promises savings, but it may also alter the economics of premium credit cards.`\
 https://nytimes.com/2024/03/27/business/dealbook/credit-card-swipe-fees.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse
 **Democrats’ Plan to Save the Republican House Speaker**\
 `Speaker Mike Johnson has faced fury from ultraconservatives after a bipartisan spending bill.`\
 https://nytimes.com/2024/03/27/podcasts/the-daily/speaker-johnson.html
-
-**Nickelodeon and Disney Stars Find a Second Act on Podcasts**\
-`The cast of the Nickelodeon series “Ned’s Declassified School Survival Guide” are among the stars of 2000s teen sitcoms who are using podcasts to connect with their Gen Z and millennial fan bases.`\
-https://nytimes.com/2024/03/27/arts/television/nickelodeon-disney-podcasts-neds-declassified.html
 

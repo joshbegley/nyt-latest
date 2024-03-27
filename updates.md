@@ -1,3 +1,7 @@
+**Appeals Court Rules Against Texas in Clash Over Migrant Arrest Law**\
+`The decision in favor of the federal government left in place a trial court injunction blocking implementation of the law.`\
+https://nytimes.com/2024/03/27/us/texas-migrant-law-appeals-court.html
+
 **A 25-year-old was killed in Israel, while 7 were killed overnight in Lebanon.**\
 `By Cassandra Vinograd and Hwaida Saad`\
 https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/a-25-year-old-was-killed-in-israel-while-7-were-slain-overnight-in-lebanon
