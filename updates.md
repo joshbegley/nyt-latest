@@ -1,3 +1,19 @@
+**Ice Skating and the Brain**\
+`How do champion skaters accomplish their extraordinary jumps and spins? Brain science is uncovering clues.`\
+https://nytimes.com/2024/03/27/science/ice-skaters-brain.html
+
+**Donald Trump plans to attend the wake for a slain N.Y.P.D. officer.**\
+`The former president’s appearance at the services for Officer Jonathan Diller will come less than three weeks before jury selection begins in his criminal trial in Manhattan.`\
+https://nytimes.com/live/2024/03/27/us/trump-biden-election/donald-trump-plans-to-attend-the-wake-for-a-slain-nypd-officer
+
+**Stephen Adams, Who Made Yale Music School Tuition-Free, Dies at 86**\
+`A billionaire businessman and a late-blooming piano aficionado, he set a record with the anonymous $100 million gift that he and his wife gave the school.`\
+https://nytimes.com/2024/03/27/business/stephen-adams-who-made-yale-music-school-tuition-free-dies-at-86.html
+
+**Trump Attacks R.F.K. Jr., a Third-Party Wild Card**\
+`Robert F. Kennedy Jr., the independent presidential candidate, has asserted that he intends to be a “spoiler” for both Donald Trump and President Biden.`\
+https://nytimes.com/2024/03/27/us/politics/trump-rfk-jr.html
+
 **Trump Attacks R.F.K. Jr., a Third-Party Wild Card**\
 `Robert F. Kennedy Jr., the independent presidential candidate, has asserted that he intends to be a “spoiler” for both Donald Trump and President Biden.`\
 https://nytimes.com/2024/03/27/us/politics/trump-attacks-rfk-jr-a-third-party-wild-card.html
