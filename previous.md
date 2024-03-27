@@ -1,3 +1,7 @@
+**Overlooked No More: Henrietta Leavitt, Who Unraveled Mysteries of the Stars**\
+`The portrait that emerged from her discovery, called Leavitt’s Law, showed that the universe was hundreds of times bigger than astronomers had imagined.`\
+https://nytimes.com/2024/03/27/obituaries/henrietta-leavitt-overlooked.html
+
 **A Murderer in the Family**\
 `In his unsparing novel “Wolf at the Table,” Adam Rapp observes a household in denial about the dark force growing up in its midst.`\
 https://nytimes.com/2024/03/27/books/review/wolf-at-the-table-adam-rapp.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/health/tyler-blevins-skin-cancer-melanoma.html
 **Ice Skating and the Brain**\
 `How do champion skaters accomplish their extraordinary jumps and spins? Brain science is uncovering clues.`\
 https://nytimes.com/2024/03/27/science/ice-skaters-brain.html
-
-**Trump Plans to Attend Wake for Slain N.Y.P.D. Officer**\
-`The former president’s appearance at the services for Officer Jonathan Diller will come less than three weeks before jury selection begins in his criminal trial in Manhattan.`\
-https://nytimes.com/2024/03/27/us/politics/trump-nypd-officer-wake.html
 

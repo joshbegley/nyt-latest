@@ -1,3 +1,7 @@
+**Overlooked No More: Henrietta Leavitt, Who Unraveled Mysteries of the Stars**\
+`The portrait that emerged from her discovery, called Leavitt’s Law, showed that the universe was hundreds of times bigger than astronomers had imagined.`\
+https://nytimes.com/2024/03/27/obituaries/henrietta-leavitt-overlooked.html
+
 **A Murderer in the Family**\
 `In his unsparing novel “Wolf at the Table,” Adam Rapp observes a household in denial about the dark force growing up in its midst.`\
 https://nytimes.com/2024/03/27/books/review/wolf-at-the-table-adam-rapp.html
