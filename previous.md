@@ -1,3 +1,7 @@
+**A majority of Americans disapprove of Israel’s actions in Gaza, a new poll shows.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/military-action-americans-gaza
+
 **The R.N.C. Has a New Interview Question: Was the 2020 Election Stolen?**\
 `The question during job interviews at the Republican National Committee reflects Donald J. Trump’s newly tightened grip on the party apparatus.`\
 https://nytimes.com/2024/03/27/us/politics/rnc-trump-2020-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/technology/ai-lobby-china.html
 **Amazon Adds $2.75 Billion to Its Stake in the A.I. Start-Up Anthropic**\
 `The latest investment brings Amazon’s total stake in the San Francisco company to $4 billion.`\
 https://nytimes.com/2024/03/27/technology/amazon-anthropic-ai.html
-
-**Javier Milei Is a New Prophet of Apocalyptic Capitalism**\
-`In Argentina, the President’s new fusion of contemporary culture war with throwback libertarianism is entrancing global elites.`\
-https://nytimes.com/2024/03/27/opinion/javier-milei-argentina-capitalism.html
 
