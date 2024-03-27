@@ -1,3 +1,11 @@
+**How Los Angeles Is Approaching Homelessness**\
+`A conversation with the Times reporter who wrote about Mayor Karen Bass’s flagship program to solve homelessness.`\
+https://nytimes.com/2024/03/27/us/los-angeles-homelessness.html
+
+**Why Didn’t My Sister Include Me in Her ‘Family’ Birthday Party?**\
+`A reader’s feelings are hurt after offering to fly to celebrate her sister’s 70th birthday only to be told not to bother, as “all her family” would be there.`\
+https://nytimes.com/2024/03/27/style/family-party-exclusion.html
+
 **Appeals Court Rules Against Texas in Clash Over Migrant Arrest Law**\
 `The decision in favor of the federal government left in place a trial court injunction blocking implementation of the law.`\
 https://nytimes.com/2024/03/27/us/texas-migrant-law-appeals-court.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/27/podcasts/bridge-collapse-rfk.html
 **Here is the latest on the collapse.**\
 `By Victoria Kim`\
 https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/here-is-the-latest-on-the-collapse
-
-**27baltimore-bridge**\
-`Live Updates: Baltimore Bridge Rescue Efforts Shift to Recovery of 6 Missing Workers`\
-https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse
-
-**Democrats’ Plan to Save the Republican House Speaker**\
-`Speaker Mike Johnson has faced fury from ultraconservatives after a bipartisan spending bill.`\
-https://nytimes.com/2024/03/27/podcasts/the-daily/speaker-johnson.html
 
