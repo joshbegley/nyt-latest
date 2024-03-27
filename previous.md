@@ -1,3 +1,7 @@
+**Are You a Pop Culture-Obsessed Weirdo? Try Night Flight Plus.**\
+`If you’ve got six bucks and want to be adventurous, try this streaming service for some wild fringe programming.`\
+https://nytimes.com/2024/03/27/movies/night-flight-plus-streaming-netflix-alternative.html
+
 **Berkeley Will Repeal Its Landmark Ban on Natural Gas in New Homes**\
 `The decision, which came after a legal challenge, throws into question the fate of dozens of similar measures across the United States.`\
 https://nytimes.com/2024/03/27/climate/berkeley-gas-ban-climate.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/26/opinion/thepoint/harvard-plagiarism-dei-race
 **Russia Has No Formal Death Penalty. Here’s How That Might Change.**\
 `Some prominent Russians are calling for the execution of those responsible for the massacre at a concert hall near Moscow, and an end to Russia’s 28-year moratorium on capital punishment.`\
 https://nytimes.com/2024/03/27/world/europe/russia-death-penalty-moratorium.html
-
-**A.I. Leaders Press Advantage With Congress as China Tensions Rise**\
-`Silicon Valley chiefs are swarming the Capitol to try to sway lawmakers on the dangers of falling behind in the artificial intelligence race.`\
-https://nytimes.com/2024/03/27/technology/ai-lobby-china.html
 

@@ -1,3 +1,7 @@
+**Are You a Pop Culture-Obsessed Weirdo? Try Night Flight Plus.**\
+`If you’ve got six bucks and want to be adventurous, try this streaming service for some wild fringe programming.`\
+https://nytimes.com/2024/03/27/movies/night-flight-plus-streaming-netflix-alternative.html
+
 **Berkeley Will Repeal Its Landmark Ban on Natural Gas in New Homes**\
 `The decision, which came after a legal challenge, throws into question the fate of dozens of similar measures across the United States.`\
 https://nytimes.com/2024/03/27/climate/berkeley-gas-ban-climate.html
