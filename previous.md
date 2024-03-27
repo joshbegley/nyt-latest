@@ -1,3 +1,7 @@
+**Berkeley Will Repeal Its Landmark Ban on Natural Gas in New Homes**\
+`The decision, which came after a legal challenge, throws into question the fate of dozens of similar measures across the United States.`\
+https://nytimes.com/2024/03/27/climate/berkeley-gas-ban-climate.html
+
 **A majority of Americans disapprove of Israel’s actions in Gaza, a new poll shows.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/military-action-americans-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/world/europe/russia-death-penalty-moratorium.html
 **A.I. Leaders Press Advantage With Congress as China Tensions Rise**\
 `Silicon Valley chiefs are swarming the Capitol to try to sway lawmakers on the dangers of falling behind in the artificial intelligence race.`\
 https://nytimes.com/2024/03/27/technology/ai-lobby-china.html
-
-**Amazon Adds $2.75 Billion to Its Stake in the A.I. Start-Up Anthropic**\
-`The latest investment brings Amazon’s total stake in the San Francisco company to $4 billion.`\
-https://nytimes.com/2024/03/27/technology/amazon-anthropic-ai.html
 
