@@ -1,3 +1,7 @@
+**A majority of Americans disapprove of Israel’s actions in Gaza, a new poll shows.**\
+`By Anushka Patil`\
+https://nytimes.com/2024/03/27/world/middleeast/military-action-americans-gaza.html
+
 **Defining Professionalism Among Doctors and Nurses**\
 `Responses to a Science Times article. Also: Ronna McDaniel’s exit; Senator Sherrod Brown’s view; third parties; baseball trash talk; an animals’ world.`\
 https://nytimes.com/2024/03/27/opinion/medical-professionalism-doctors-nurses.html
