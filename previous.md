@@ -10,7 +10,7 @@ https://nytimes.com/2024/03/27/business/yellen-china-green-technology.html
 `The housing crisis is likely to be solved in cities and states, not Washington.`\
 https://nytimes.com/2024/03/27/briefing/affordable-housing-crisis.html
 
-**A 25-year-old was killed in Israel, while 7 were slain overnight in Lebanon.**\
+**A 25-year-old was killed in Israel, while 7 were killed overnight in Lebanon.**\
 `By Cassandra Vinograd and Hwaida Saad`\
 https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/a-25-year-old-was-killed-in-israel-while-7-were-slain-overnight-in-lebanon
 

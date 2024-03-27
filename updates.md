@@ -1,3 +1,7 @@
+**A 25-year-old was killed in Israel, while 7 were killed overnight in Lebanon.**\
+`By Cassandra Vinograd and Hwaida Saad`\
+https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/a-25-year-old-was-killed-in-israel-while-7-were-slain-overnight-in-lebanon
+
 **The Fallout From a Credit Card Shake-Up**\
 `A proposed settlement between Visa and Mastercard and merchants on swipe fees promises savings, but it may also alter the economics of premium credit cards.`\
 https://nytimes.com/2024/03/27/business/dealbook/credit-card-swipe-fees.html
