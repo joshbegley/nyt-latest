@@ -1,3 +1,7 @@
+**Nickelodeon and Disney Stars Find a Second Act on Podcasts**\
+`The cast of the Nickelodeon series “Ned’s Declassified School Survival Guide” are among the stars of 2000s teen sitcoms who are using podcasts to connect with their Gen Z and millennial fan bases.`\
+https://nytimes.com/2024/03/27/arts/television/nickelodeon-disney-podcasts-neds-declassified.html
+
 **Screens Are Everywhere in Schools. Do They Actually Help Kids Learn?**\
 `We need to start asking better questions about what kinds work for teachers and students.`\
 https://nytimes.com/2024/03/27/opinion/schools-technology.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/world/europe/russia-moscow-attack-migrants.html
 **One Purple State Is ‘Testing the Outer Limits of MAGAism’**\
 `North Carolina Republicans are “in the running for the most MAGA party in the nation.”`\
 https://nytimes.com/2024/03/27/opinion/trump-robinson-maga-north-carolina.html
-
-**One Grieving Mother Hasn’t Given Up Hope for a Gun Control Compromise**\
-`A year after losing her daughter in the Covenant School shooting, Katy Dieckhaus is speaking about Evelyn, and the changes she wants to see.`\
-https://nytimes.com/2024/03/27/us/politics/covenant-shooting-nashville.html
 
