@@ -1,3 +1,7 @@
+**You Know Him From N.B.A. Games. You Know His House From ‘Selling Sunset.’**\
+`For half a century, James Goldstein has been renovating a house by John Lautner. It’s a spectacular legacy. But like everything about Goldstein, it’s complicated.`\
+https://nytimes.com/2024/03/27/arts/james-goldstein-house.html
+
 **Security forces clash with pro-Palestinian protesters in Jordan, video shows.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/security-forces-clash-with-pro-palestinian-protesters-in-jordan-video-shows
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/arts/design/british-museum-thefts-peter-higgs.htm
 **James Carville on the Reasons Hillary Clinton Lost**\
 `It wasn’t entirely sexism.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/james-carville-on-the-reasons-hillary-clinton-lost
-
-**27pol-swiper**\
-`Election Updates: A Democrat running on abortion and I.V.F. access won a special election in Alabama.`\
-https://nytimes.com/live/2024/03/27/us/trump-biden-election
 
