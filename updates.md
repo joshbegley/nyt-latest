@@ -1,3 +1,7 @@
+**Radio Chatter Reveals How Officers Quickly Closed Bridge to Traffic**\
+`Officers immediately moved to keep cars off a bridge in Baltimore after a mayday from the ship that hit it, according to audio from a Maryland Transportation Authority Police channel.`\
+https://nytimes.com/2024/03/27/us/baltimore-key-bridge-mayday-call-radio.html
+
 **Jane Goodall Is More of a Dog Person, Actually**\
 `Dr. Goodall, who is best known for her work with chimpanzees, recently celebrated her forthcoming 90th birthday with as many dogs and explained why she isn’t slowing down.`\
 https://nytimes.com/2024/03/27/science/jane-goodall-90-birthday-dogs.html
