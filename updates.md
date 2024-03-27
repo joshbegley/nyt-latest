@@ -1,3 +1,7 @@
+**How Has Retirement Changed Your Relationship?**\
+`We want to hear from you for a New York Times Magazine feature about how this transition can affect marriages and long-term relationships.`\
+https://nytimes.com/2024/03/27/magazine/how-has-retirement-changed-your-relationship.html
+
 **Trump Plans to Attend Wake for Slain N.Y.P.D. Officer**\
 `The former president’s appearance at the services for Officer Jonathan Diller will come less than three weeks before jury selection begins in his criminal trial in Manhattan.`\
 https://nytimes.com/2024/03/27/us/politics/trump-nypd-officer-wake.html
