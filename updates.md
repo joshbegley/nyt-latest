@@ -1,3 +1,7 @@
+**U.S. says Israel has agreed to try to reschedule meeting Netanyahu had canceled.**\
+`By Zach Montague`\
+https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/us-says-israel-has-agreed-to-try-to-reschedule-meeting-netanyahu-had-canceled
+
 **Seeking Balance, Tripping Up**\
 `The question of how to cover Donald Trump is no closer to being solved.`\
 https://nytimes.com/2024/03/27/us/politics/nbc-trump-mcdaniel.html
