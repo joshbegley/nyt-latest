@@ -1,3 +1,7 @@
+**Maryland lawmakers hope to quickly craft a bill to support workers.**\
+`State leaders are drafting emergency legislation that would provide financial support to affected workers and assistance to small businesses.`\
+https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/maryland-lawmakers-hope-to-quickly-craft-a-bill-to-support-workers
+
 **Is There a Political Divide in Your Family?**\
 `We want to hear from readers about how they approach different opinions over various social issues.`\
 https://nytimes.com/2024/03/27/us/political-divides-families.html
