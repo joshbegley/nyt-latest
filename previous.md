@@ -1,3 +1,7 @@
+**What New York City Did to Flaco the Owl**\
+`He was a dead bird flying.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/what-new-york-city-did-to-flaco-the-owl
+
 **Joseph I. Lieberman, Senator and Vice Presidential Candidate, Dies at 82**\
 `He served four terms in the Senate from Connecticut before Al Gore chose him as his running mate in the 2000 election. He was the first Jewish candidate on a major-party ticket.`\
 https://nytimes.com/2024/03/27/us/politics/joseph-i-lieberman-dead.html
@@ -30,11 +34,7 @@ https://nytimes.com/2024/03/27/books/review/wolf-at-the-table-adam-rapp.html
 `The destruction of a Baltimore bridge has crippled a busy port, adding to the strains confronting the global supply chain.`\
 https://nytimes.com/2024/03/27/business/economy/container-ship-global-trade.html
 
-**Russia Amps Up Online Campaign Against Ukraine Before U.S. Elections**\
-`Moscow has found better ways to conceal influence operations that spread arguments for isolationism, officials and experts say.`\
+**Russia’s Online Operations Focus on Ukraine Aid and Are Harder to Detect**\
+`Moscow has found better ways to conceal influence campaigns that amplify arguments for isolationism, officials and experts say.`\
 https://nytimes.com/2024/03/27/us/politics/russian-ukraine-us-interference.html
-
-**How Has Retirement Changed Your Relationship?**\
-`We want to hear from you for a New York Times Magazine feature about how this transition can affect marriages and long-term relationships.`\
-https://nytimes.com/2024/03/27/magazine/how-has-retirement-changed-your-relationship.html
 
