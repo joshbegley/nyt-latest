@@ -26,8 +26,8 @@ https://nytimes.com/2024/03/27/briefing/new-york-city-congestion-pricing-baltimo
 `He was a dead bird flying.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/what-new-york-city-did-to-flaco-the-owl
 
-**Joseph I. Lieberman, Senator and Vice Presidential Candidate, Dies at 82**\
-`He served four terms in the Senate from Connecticut. Al Gore chose him as his running mate in the 2000 election, making him the first Jewish candidate on a major-party ticket.`\
+**Joseph I. Lieberman, Senator and Vice-Presidential Candidate, Dies at 82**\
+`He served four terms in the Senate from Connecticut and was chosen by Al Gore as his running mate in the 2000 election. He was the first Jewish candidate on a major-party ticket.`\
 https://nytimes.com/2024/03/27/us/politics/joseph-i-lieberman-dead.html
 
 **The shipowner could owe more than $1 billion in compensation, experts say.**\
