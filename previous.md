@@ -1,3 +1,7 @@
+**A Fatal Instant on the Subway Captures New York’s Persistent Challenges**\
+`The man charged with shoving a man from a subway platform had a violent history, according to officials. The man who died was recovering from his own troubled past, his family said.`\
+https://nytimes.com/2024/03/26/nyregion/subway-killing-nyc-shoving.html
+
 **‘Opening Night’ Review: A Stylish Movie Becomes a Sludgy Travesty**\
 `Ivo van Hove’s stage adaptation of the 1977 John Cassavetes film, with music by Rufus Wainwright, turns a taut character study into a corny melodrama.`\
 https://nytimes.com/2024/03/26/theater/opening-night-review-a-stylish-movie-becomes-a-sludgy-travesty.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/26/us/politics/election-year-deep-fakes-ai-rules.htm
 **Richard Serra, Who Recast Sculpture on a Massive Scale, Dies at 85**\
 `His tilted walls of rusting steel, monumental blocks and other immense and inscrutable forms created environments that had to be walked through, or around, to be fully experienced.`\
 https://nytimes.com/2024/03/26/arts/richard-serra-dead.html
-
-**Who Is Blowing Up Russia?**\
-`There are two plausible theories for who’s behind the terrorist attack in Russia. Both are terrifying.`\
-https://nytimes.com/2024/03/26/opinion/russia-shooting-concert-terrorism.html
 

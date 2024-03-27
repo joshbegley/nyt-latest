@@ -1,3 +1,7 @@
+**A Fatal Instant on the Subway Captures New York’s Persistent Challenges**\
+`The man charged with shoving a man from a subway platform had a violent history, according to officials. The man who died was recovering from his own troubled past, his family said.`\
+https://nytimes.com/2024/03/26/nyregion/subway-killing-nyc-shoving.html
+
 **‘Opening Night’ Review: A Stylish Movie Becomes a Sludgy Travesty**\
 `Ivo van Hove’s stage adaptation of the 1977 John Cassavetes film, with music by Rufus Wainwright, turns a taut character study into a corny melodrama.`\
 https://nytimes.com/2024/03/26/theater/opening-night-review-a-stylish-movie-becomes-a-sludgy-travesty.html
