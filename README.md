@@ -1,4 +1,8 @@
-**U.S. says Israel has agreed to try to reschedule meeting Netanyahu had canceled.**\
+**Stabbing Attack in Illinois Leaves 4 Dead and 5 Injured**\
+`The motive for the killings in a residential neighborhood in Rockford, Ill., was not immediately clear, the authorities said. A suspect is in custody.`\
+https://nytimes.com/2024/03/27/us/stabbing-attack-in-illinois-leaves-4-dead-and-5-injured.html
+
+**Netanyahu’s office hasn’t confirmed any desire to make new plans.**\
 `By Zach Montague`\
 https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/us-says-israel-has-agreed-to-try-to-reschedule-meeting-netanyahu-had-canceled
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/the-shipown
 **Thursday Briefing: Russia’s Online Attack on Ukraine Aid**\
 `Plus, Stephen King’s greatest hits.`\
 https://nytimes.com/2024/03/27/briefing/russia-ukraine-israel-lebanon-hezbollah-baltimore.html
-
-**Buttigieg Outlines Urgent Effort to Restore Access to Port of Baltimore**\
-`Emphasizing challenges in clearing out rubble from the collapsed bridge, Transportation Secretary Pete Buttigieg said, “rebuilding will not be quick, or easy or cheap, but we will get it done.”`\
-https://nytimes.com/2024/03/27/us/port-rebuild-pete-buttigieg.html
 
