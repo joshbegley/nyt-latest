@@ -1,3 +1,7 @@
+**Russia’s Online Operations Focus on Ukraine Aid and Are Harder to Detect**\
+`Moscow has found better ways to conceal influence campaigns that amplify arguments for isolationism, officials and experts say.`\
+https://nytimes.com/2024/03/27/us/politics/russian-ukraine-us-interference.html
+
 **How Has Retirement Changed Your Relationship?**\
 `We want to hear from you for a New York Times Magazine feature about how this transition can affect marriages and long-term relationships.`\
 https://nytimes.com/2024/03/27/magazine/how-has-retirement-changed-your-relationship.html
