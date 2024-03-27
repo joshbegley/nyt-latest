@@ -1,3 +1,7 @@
+**Rescue Effort Turns Into Search for Bodies of 6 Workers Left on Bridge**\
+`Questions swirl over the collapse after a massive cargo ship slammed into the Francis Scott Key Bridge moments after losing power early on Tuesday.`\
+https://nytimes.com/2024/03/26/us/baltimore-bridge-collapse.html
+
 **Soft Caps**\
 `Rich Katz twists our words in the wittiest way possible.`\
 https://nytimes.com/2024/03/26/crosswords/daily-puzzle-2024-03-27.html
