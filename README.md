@@ -1,3 +1,15 @@
+**The United States and Britain impose sanctions on a Gazan news outlet over ties to Hamas.**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/the-united-states-and-britain-impose-sanctions-on-a-gazan-news-outlet-over-ties-to-hamas
+
+**What’s in Our Queue? ‘The Doom Generation’ and More**\
+`I’m a New York Times visual editor. Here are five things I’ve been looking at, reading, watching and listening to.`\
+https://nytimes.com/interactive/2024/03/27/arts/editors-recommendations-doomgeneration.html
+
+**Russian Group Spread Disinformation About Princess of Wales, Experts Say**\
+`A Kremlin-linked group known for online campaigns to sow falsehoods and distrust among Russia’s foes helped fuel the frenzy of conspiracy theories about Catherine and her health.`\
+https://nytimes.com/2024/03/27/world/europe/princess-kate-middleton-russia-conspiracy.html
+
 **For Richard Serra, Art Was Not Something. It Was Everything.**\
 `He was known as the Man of Steel. But the sculptor was also an eternal poet, reshaping our perception of space, says our critic.`\
 https://nytimes.com/2024/03/27/arts/design/richard-serra-death-appraisal.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/27/movies/night-flight-plus-streaming-netflix-altern
 **Berkeley Will Repeal Its Landmark Ban on Natural Gas in New Homes**\
 `The decision, which came after a legal challenge, throws into question the fate of dozens of similar measures across the United States.`\
 https://nytimes.com/2024/03/27/climate/berkeley-gas-ban-climate.html
-
-**Majority of Americans Disapprove of Israel’s Actions in Gaza, New Poll Shows**\
-`The Gallup poll conducted this month found that 55 percent of Americans disapproved of Israel’s military action, an increase of 10 percentage points from four months earlier.`\
-https://nytimes.com/2024/03/27/world/middleeast/military-action-americans-gaza.html
-
-**The R.N.C. Has a New Interview Question: Was the 2020 Election Stolen?**\
-`The question during job interviews at the Republican National Committee reflects Donald J. Trump’s newly tightened grip on the party apparatus.`\
-https://nytimes.com/2024/03/27/us/politics/rnc-trump-2020-election.html
-
-**Kim Kardashian Is Sued for Saying Her Tables Are Authentic Donald Judds**\
-`In a promotional video, the reality star said her office furniture was designed by Judd, the minimalist artist. His foundation says otherwise in a new lawsuit.`\
-https://nytimes.com/2024/03/27/arts/design/kim-kardashian-table-donald-judds.html
 
