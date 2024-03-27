@@ -26,13 +26,13 @@ https://nytimes.com/2024/03/27/arts/music/patrick-carfizzi-forza-met-opera.html
 `The singer Lizzo, who just released a new swim line, has moved on from “body positivity.”`\
 https://nytimes.com/2024/03/27/style/lizzo-yitty-swim-swimwear-line.html
 
-**Sean Combs Settled a Lawsuit, but His Troubles Were Just Beginning**\
-`The hip-hop mogul denied sexual assault accusations in a bombshell suit in November. As more allegations piled up, his business empire, and reputation, faltered.`\
-https://nytimes.com/2024/03/27/arts/music/diddy-sean-combs-businesses-raid.html
-
 **Worries Over Ethnic Tensions Have Kremlin Treading Carefully on Massacre**\
 `Anti-migrant rhetoric in the aftermath of the attacks at the concert venue outside Moscow has spurred fears that the tragedy could cause ethnic strife inside Russia.`\
 https://nytimes.com/2024/03/27/world/europe/russia-moscow-attack-migrants.html
+
+**Sean Combs Settled a Lawsuit, but His Troubles Were Just Beginning**\
+`The hip-hop mogul denied sexual assault accusations in a bombshell suit in November. As more allegations piled up, his business empire, and reputation, faltered.`\
+https://nytimes.com/2024/03/27/arts/music/diddy-sean-combs-businesses-raid.html
 
 **One Purple State Is ‘Testing the Outer Limits of MAGAism’**\
 `North Carolina Republicans are “in the running for the most MAGA party in the nation.”`\
