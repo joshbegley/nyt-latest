@@ -1,3 +1,7 @@
+**Seeking Balance, Tripping Up**\
+`The question of how to cover Donald Trump is no closer to being solved.`\
+https://nytimes.com/2024/03/27/us/politics/nbc-trump-mcdaniel.html
+
 **Buttigieg Outlines Urgent Effort to Restore Access to Port of Baltimore**\
 `Emphasizing challenges in clearing out rubble from the collapsed bridge, Transportation Secretary Pete Buttigieg said, “rebuilding will not be quick, or easy or cheap, but we will get it done.”`\
 https://nytimes.com/2024/03/27/us/port-rebuild-pete-buttigieg.html
