@@ -1,3 +1,7 @@
+**The vessel had a ‘complete blackout’ and could not restore engine power.**\
+`By Mike Baker`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/the-vessel-had-a-complete-blackout-and-could-not-restore-engine-power
+
 **2 Ex-Officials at Veterans Home Where 76 Died in Covid Outbreak Avoid Jail Time**\
 `The former superintendent and medical director of the Holyoke Soldiers’ Home in Massachusetts were indicted in 2020 on charges of neglect after many residents became sick and died.`\
 https://nytimes.com/2024/03/26/us/veterans-home-holyoke-massachusetts-covid.html

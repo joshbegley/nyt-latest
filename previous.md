@@ -1,3 +1,7 @@
+**The vessel had a ‘complete blackout’ and could not restore engine power.**\
+`By Mike Baker`\
+https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/the-vessel-had-a-complete-blackout-and-could-not-restore-engine-power
+
 **2 Ex-Officials at Veterans Home Where 76 Died in Covid Outbreak Avoid Jail Time**\
 `The former superintendent and medical director of the Holyoke Soldiers’ Home in Massachusetts were indicted in 2020 on charges of neglect after many residents became sick and died.`\
 https://nytimes.com/2024/03/26/us/veterans-home-holyoke-massachusetts-covid.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/26/nyregion/nypd-jonathan-diller-officer-shooting.ht
 **Vessels Belonging to Owner of Baltimore Ship Had Been Cited for Labor Violations**\
 `The vessels had underpaid crews and kept workers onboard for months beyond their contracts, according to an Australian regulator.`\
 https://nytimes.com/2024/03/26/us/ship-labor-baltimore-bridge-collapse.html
-
-**Fretting About Election-Year Deep Fakes, States Roll Out New Rules for A.I. Content**\
-`An increasing number of states have advanced A.I.-related legislation to combat attempts to mislead voters during the 2024 election, according to a new analysis by the Voting Rights Lab.`\
-https://nytimes.com/2024/03/26/us/politics/election-year-deep-fakes-ai-rules.html
 
