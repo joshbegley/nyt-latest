@@ -1,3 +1,11 @@
+**A 25-year-old was killed in Israel, while 7 were slain overnight in Lebanon.**\
+`By Cassandra Vinograd and Hwaida Saad`\
+https://nytimes.com/live/2024/03/27/world/israel-hamas-war-gaza-news/a-25-year-old-was-killed-in-israel-while-7-were-slain-overnight-in-lebanon
+
+**Six Still Missing in Bridge Collapse, and R.F.K. Jr. Picks a Running Mate**\
+`Plus, you missed your chance to own an “Indiana Jones” whip.`\
+https://nytimes.com/2024/03/27/podcasts/bridge-collapse-rfk.html
+
 **Yellen to Warn China Against Flood of Cheap Green Energy Exports**\
 `The Treasury secretary, who plans to make her second trip to China soon, will argue that the country’s excess industrial production warps supply chains.`\
 https://nytimes.com/2024/03/27/business/yellen-china-green-technology.html
