@@ -1,3 +1,15 @@
+**What Lies Beneath: London Boat Race Marred by Sewage Concerns**\
+`Rowers in the Oxford-Cambridge Boat Race this weekend have been warned of dangerously high levels of E. coli in the River Thames, the latest sign of England’s polluted waterways.`\
+https://nytimes.com/2024/03/27/world/europe/oxford-cambridge-boat-race-ecoli.html
+
+**What we know about the six men presumed dead in the bridge collapse.**\
+`By Miriam Jordan, Jacey Fortin and Eduardo Medina`\
+https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/what-we-know-about-the-six-men-presumed-dead-in-the-bridge-collapse
+
+**Majority of Americans Disapprove of Israel’s Actions in Gaza, New Poll Shows**\
+`The Gallup poll conducted this month found that 55 percent of Americans disapproved of Israel’s military action, an increase of 10 percentage points from four months earlier.`\
+https://nytimes.com/2024/03/27/world/middleeast/military-action-americans-gaza.html
+
 **A majority of Americans disapprove of Israel’s actions in Gaza, a new poll shows.**\
 `By Anushka Patil`\
 https://nytimes.com/2024/03/27/world/middleeast/military-action-americans-gaza.html
