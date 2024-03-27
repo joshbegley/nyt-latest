@@ -1,3 +1,7 @@
+**In Saga of NBC and Ronna McDaniel, Perks and Perils of Partisan Talk on TV**\
+`Why are television news networks so enamored with paid Beltway analysts?`\
+https://nytimes.com/2024/03/27/business/media/nbc-ronna-mcdaniel-msnbc.html
+
 **Maryland lawmakers hope to quickly craft a bill to support workers.**\
 `State leaders are drafting emergency legislation that would provide financial support to affected workers and assistance to small businesses.`\
 https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/maryland-lawmakers-hope-to-quickly-craft-a-bill-to-support-workers
