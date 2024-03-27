@@ -1,3 +1,7 @@
+**Quotation of the Day: Tallest Players Can Bewilder Defenders... And Tailors**\
+`Quotation of the Day for Wednesday, Mary 26, 2024.`\
+https://nytimes.com/2024/03/27/pageoneplus/quotation-of-the-day-tallest-players-can-bewilder-defenders-and-tailors.html
+
 **Wednesday Briefing**\
 `The widening divide between the U.S. and Israel.`\
 https://nytimes.com/2024/03/27/briefing/israel-us-baltimore-bridge-beyonce.html

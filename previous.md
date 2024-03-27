@@ -1,3 +1,7 @@
+**Quotation of the Day: Tallest Players Can Bewilder Defenders... And Tailors**\
+`Quotation of the Day for Wednesday, Mary 26, 2024.`\
+https://nytimes.com/2024/03/27/pageoneplus/quotation-of-the-day-tallest-players-can-bewilder-defenders-and-tailors.html
+
 **Wednesday Briefing**\
 `The widening divide between the U.S. and Israel.`\
 https://nytimes.com/2024/03/27/briefing/israel-us-baltimore-bridge-beyonce.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/26/us/baltimore-bridge-collapse.html
 **Can Xerox’s PARC, a Silicon Valley Icon, Find New Life with SRI?**\
 `Two research labs known for some of the tech industry’s most important innovations have merged in hopes of recapturing their glory days.`\
 https://nytimes.com/interactive/2024/03/26/business/silicon-valley-tech-xerox-parc-sri.html
-
-**The vessel had a ‘complete blackout’ and could not restore engine power.**\
-`By Mike Baker`\
-https://nytimes.com/live/2024/03/26/us/baltimore-bridge-collapse/the-vessel-had-a-complete-blackout-and-could-not-restore-engine-power
 
