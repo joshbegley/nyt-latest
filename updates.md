@@ -1,3 +1,7 @@
+**Dozens Killed in South Africa Bus Crash**\
+`The bus was carrying people to an Easter church service when it fell off a bridge and plunged 165 feet into a ravine.`\
+https://nytimes.com/video/world/africa/100000009386941/bus-crash-south-africa.html
+
 **On opening day for the Orioles, the mood was both hopeful and somber.**\
 `By Billy Witz`\
 https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/on-opening-day-for-the-orioles-the-mood-was-both-hopeful-and-somber
