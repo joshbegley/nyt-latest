@@ -1,3 +1,7 @@
+**‘La Chimera’ Review: A Treasure Trove**\
+`In her latest dreamy movie, the Italian director Alice Rohrwacher follows a tomb raider, played by Josh O’Connor, who’s pining for a lost love.`\
+https://nytimes.com/2024/03/28/movies/la-chimera-review-alice-rohrwacher.html
+
 **Germany’s Beloved Dachshund Could Be Threatened Under Breeding Bill**\
 `The bill would strengthen laws around dog breeding, but Germany’s kennel club worries that the legislation could lead to bans on several breeds.`\
 https://nytimes.com/2024/03/28/world/europe/dachshund-dog-breeding-ban-germany.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/style/tiktok-women-punched-crime-nyc.html
 **Robinhood’s Credit Card Offers 3% Cash Back. Can It Last?**\
 `Charles Schwab stopped offering a 2 percent card years ago, and most banks don’t hand over more than 2 percent either.`\
 https://nytimes.com/2024/03/28/your-money/robinhood-rewards-credit-card.html
-
-**Jenna Lyons Will Return to ‘Real Housewives of New York City’**\
-`An exclusive interview with an “unlikely housewife,” the former J. Crew president turned Bravo star.`\
-https://nytimes.com/2024/03/28/style/jenna-lyons-real-housewives-of-new-york-city-second-season.html
 
