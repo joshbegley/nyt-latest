@@ -1,3 +1,11 @@
+**A Fiery Finale for a Rocket That Brings the Heat**\
+`The Delta IV, a rocket that briefly bursts into flame just before it lifts off, is set to launch for the last time on Thursday.`\
+https://nytimes.com/2024/03/28/science/delta-iv-heavy-rocket-final-launch.html
+
+**Old Newspaper Stories Offer Clues to 1868 Lake Michigan Shipwreck**\
+`It took researchers only two days to find the wreckage of the Milwaukee, a steamship that sank after colliding with another ship. They were guided by details from newspaper accounts of the accident.`\
+https://nytimes.com/2024/03/28/us/uss-milwaukee-shipwreck.html
+
 **Just How Wet Has California’s Rainy Season Been?**\
 `Before the season officially ends on Sunday, another storm is headed for the California coast.`\
 https://nytimes.com/2024/03/28/us/california-rainy-season.html
