@@ -1,3 +1,7 @@
+**Netanyahu has ‘abandoned’ Israel’s captive soldiers, their relatives say.**\
+`By Cassandra Vinograd and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news/netanyahu-has-abandoned-israels-captive-soldiers-their-relatives-say
+
 **When Richard Serra’s Steel Curves Became a Memorial**\
 `The sculptor had a breakthrough in the late 1990s with his torqued metal rings. Then the attack on the World Trade Center, which Serra witnessed, gave them a sudden new significance.`\
 https://nytimes.com/2024/03/28/arts/design/richard-serra-death-notebook.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/t-magazine/modernist-cement-zia-tile.html
 **U.C. Berkeley Parents Hired Private Security to Patrol Near Campus**\
 `The parents were worried about crime, but the university said that the move raised concerns about training and experience, and that security was better left to its own police force.`\
 https://nytimes.com/2024/03/28/us/uc-berkeley-private-security.html
-
-**Aid organizations sound the alarm for patients at embattled hospitals.**\
-`By Hiba Yazbek`\
-https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news/battles-rage-at-two-hospitals-in-gaza-as-aid-organizations-sound-the-alarm-for-patients
 
