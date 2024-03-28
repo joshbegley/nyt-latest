@@ -1,3 +1,7 @@
+**U.S. Officials Order Better Tracking of a Political Flashpoint: America’s Diversity**\
+`New survey questions in federal forms will draw a more detailed portrait of racial and ethnic origins. Officials point to the benefits, but the changes could face a conservative backlash.`\
+https://nytimes.com/2024/03/28/us/us-ethnicity-race-politics.html
+
 **Are You Getting the Most Out of Your Sheet Pan?**\
 `Sheet-pan japchae makes easy work of caramelizing a rainbow of vegetables before tossing with noodles.`\
 https://nytimes.com/2024/03/28/dining/are-you-getting-the-most-out-of-your-sheet-pan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/climate/new-england-coal-plants.html
 **Netanyahu has ‘abandoned’ Israel’s captive soldiers, their relatives say.**\
 `By Cassandra Vinograd and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news/netanyahu-has-abandoned-israels-captive-soldiers-their-relatives-say
-
-**When Richard Serra’s Steel Curves Became a Memorial**\
-`The sculptor had a breakthrough in the late 1990s with his torqued metal rings. Then the attack on the World Trade Center, which Serra witnessed, gave them a sudden new significance.`\
-https://nytimes.com/2024/03/28/arts/design/richard-serra-death-notebook.html
 
