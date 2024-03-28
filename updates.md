@@ -1,3 +1,7 @@
+**Officials Identify 2 Bridge Collapse Victims by I.D. and Fingerprint**\
+`Divers found the men, Alejandro Hernandez Fuentes, 35, and Dorlian Ronial Castillo Cabrera, 26, in a truck under the wreckage. Four workers were still missing.`\
+https://nytimes.com/2024/03/27/us/officials-identify-2-bridge-collapse-victims-by-id-and-fingerprint.html
+
 **Police Fatally Shoot Queens Man Who Brandished Scissors, Officials Say**\
 `The victim’s brother contradicted aspects of the police account of the shooting and said his mother had been restraining her son when officers fired their guns.`\
 https://nytimes.com/2024/03/27/nyregion/win-rozario-queens-nypd.html
