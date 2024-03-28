@@ -1,3 +1,7 @@
+**Force of Ship Collision Was on the Scale of a Rocket Launch**\
+`A Times analysis used preliminary data to estimate the force of the impact on the Baltimore bridge. It involved “more energy than you can really get your mind around,” an expert said.`\
+https://nytimes.com/interactive/2024/03/28/upshot/baltimore-bridge-ship-force.html
+
 **Government Clampdowns on Social Media Are Not the Answer**\
 `But there is a problem.`\
 https://nytimes.com/2024/03/28/opinion/social-media-government-jonathan-haidt.html
