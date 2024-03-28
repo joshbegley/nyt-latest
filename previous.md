@@ -1,3 +1,7 @@
+**Robinhood’s Credit Card Offers 3% Cash Back. Can It Last?**\
+`Charles Schwab stopped offering a 2 percent card years ago, and most banks don’t hand over more than 2 percent either.`\
+https://nytimes.com/2024/03/28/your-money/robinhood-rewards-credit-card.html
+
 **Jenna Lyons Will Return to ‘Real Housewives of New York City’**\
 `An exclusive interview with an “unlikely housewife,” the former J. Crew president turned Bravo star.`\
 https://nytimes.com/2024/03/28/style/jenna-lyons-real-housewives-of-new-york-city-second-season.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/arts/design/tiffany-art-basquiat.html
 **What to Watch This Weekend: A Fun Historical Crime Drama**\
 `In its best and most exciting moments, “Manhunt” is the only show brilliant enough to ask: Why can’t Abraham Lincoln be in the “The Fugitive”?`\
 https://nytimes.com/2024/03/28/arts/television/what-to-watch-this-weekend-a-fun-historical-crime-drama.html
-
-**How Sam Bankman-Fried’s Sentence Compares With Other White-Collar Cases**\
-`Here’s how the former crypto mogul’s 25-year sentence stacks up against the prosecutions of Michael Milken, Bernie Madoff and others.`\
-https://nytimes.com/2024/03/28/technology/sam-bankman-fried-white-collar-sentences.html
 

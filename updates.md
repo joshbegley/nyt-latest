@@ -1,3 +1,7 @@
+**Robinhood’s Credit Card Offers 3% Cash Back. Can It Last?**\
+`Charles Schwab stopped offering a 2 percent card years ago, and most banks don’t hand over more than 2 percent either.`\
+https://nytimes.com/2024/03/28/your-money/robinhood-rewards-credit-card.html
+
 **Jenna Lyons Will Return to ‘Real Housewives of New York City’**\
 `An exclusive interview with an “unlikely housewife,” the former J. Crew president turned Bravo star.`\
 https://nytimes.com/2024/03/28/style/jenna-lyons-real-housewives-of-new-york-city-second-season.html
