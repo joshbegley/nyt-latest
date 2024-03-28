@@ -1,3 +1,7 @@
+**On opening day for the Orioles, the mood was both hopeful and somber.**\
+`By Billy Witz`\
+https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/on-opening-day-for-the-orioles-the-mood-was-both-hopeful-and-somber
+
 **The collapse is unlikely to affect Baltimore’s vital seafood industry.**\
 `By Christina Morales`\
 https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/the-collapse-is-unlikely-to-affect-baltimores-vital-seafood-industry

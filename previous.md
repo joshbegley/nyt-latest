@@ -1,3 +1,7 @@
+**On opening day for the Orioles, the mood was both hopeful and somber.**\
+`By Billy Witz`\
+https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/on-opening-day-for-the-orioles-the-mood-was-both-hopeful-and-somber
+
 **The collapse is unlikely to affect Baltimore’s vital seafood industry.**\
 `By Christina Morales`\
 https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/the-collapse-is-unlikely-to-affect-baltimores-vital-seafood-industry
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/arts/robert-moskowitz-dead.html
 **17 New Books Coming in April**\
 `New novels from Emily Henry, Jo Piazza and Rachel Khong; a history of five ballerinas at the Dance Theater of Harlem; Salman Rushdie’s memoir and more.`\
 https://nytimes.com/2024/03/28/books/review/new-books-april.html
-
-**Having Trouble With Your Homeowners Insurance? Tell Us.**\
-`Bills are soaring. Insurance companies are struggling. We want to hear how it’s affecting you.`\
-https://nytimes.com/2024/03/28/climate/homeowners-insurance-personal-stories.html
 
