@@ -1,3 +1,11 @@
+**Linda Bean, an L.L. Bean Heir and a Conservative Donor, Dies at 82**\
+`A granddaughter of the celebrated Maine brand’s founder, she set out as an entrepreneur in her mid-60s and used her wealth to fund right-wing causes.`\
+https://nytimes.com/2024/03/28/business/linda-bean-dead.html
+
+**For John Eastman, the Sweet Smell of Accountability**\
+`Losing a law license is a fundamental penalty for trying to undermine the Constitution.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/john-eastman-disbarred
+
 **Searching for the Ideal Fish Taco**\
 `Cabbage, crema, pico de gallo and a spritz of lime, please?`\
 https://nytimes.com/2024/03/28/dining/searching-for-the-ideal-fish-taco.html

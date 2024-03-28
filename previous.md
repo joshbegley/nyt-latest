@@ -1,3 +1,11 @@
+**Linda Bean, an L.L. Bean Heir and a Conservative Donor, Dies at 82**\
+`A granddaughter of the celebrated Maine brand’s founder, she set out as an entrepreneur in her mid-60s and used her wealth to fund right-wing causes.`\
+https://nytimes.com/2024/03/28/business/linda-bean-dead.html
+
+**For John Eastman, the Sweet Smell of Accountability**\
+`Losing a law license is a fundamental penalty for trying to undermine the Constitution.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/john-eastman-disbarred
+
 **Searching for the Ideal Fish Taco**\
 `Cabbage, crema, pico de gallo and a spritz of lime, please?`\
 https://nytimes.com/2024/03/28/dining/searching-for-the-ideal-fish-taco.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/28/us/dali-ship-crew-baltimore-bridge.html
 **On Broadway, ‘Centering’ Antiracism Is Delightful**\
 `Why is it so dreary in universities?`\
 https://nytimes.com/2024/03/28/opinion/six-musical-antiracism-universities.html
-
-**The court also ordered Israel to increase the number of land crossings into Gaza.**\
-`In its strongest language yet, the International Court of Justice in The Hague ordered Israel to ensure “the unhindered provision” of humanitarian assistance.`\
-https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news/icj-israel-gaza-aid-famine
-
-**Logan Lerman Honors Two Families in ‘We Were the Lucky Ones’**\
-`In this Hulu adaptation of a Holocaust novel, Lerman plays a character inspired by two different grandfathers: the author’s and his own.`\
-https://nytimes.com/2024/03/28/arts/television/we-were-the-lucky-ones-logan-lerman.html
 
