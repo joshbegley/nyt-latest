@@ -1,3 +1,7 @@
+**Sam Bankman-Fried Was Sentenced to 25 Years in Prison**\
+`Also, Biden called on his predecessors to help him raise funds. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/03/28/briefing/sam-bankman-fried-25-years-biden-fund-raiser.html
+
 **8 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/03/28/books/review/new-books-recommendations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/books/vernor-vinge-dead.html
 **Biden fund-raiser featuring Obama and Clinton will make big money — and highlight Trump’s party problem.**\
 `By Maggie Haberman`\
 https://nytimes.com/live/2024/03/28/us/trump-biden-election/biden-obama-clinton-fund-raiser-trump
-
-**Teenagers on Saying ‘Like’**\
-`Do filler words — “like,” “um,” “you know” — improve our communication or get in the way of it? Here’s what students think.`\
-https://nytimes.com/2024/03/28/learning/teenagers-on-saying-like.html
 
