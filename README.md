@@ -1,3 +1,11 @@
+**How the Israel-Hamas War Has Roiled TikTok Internally**\
+`The video app has been criticized for how it has handled posts users see about the war. Some of the same tensions have also played out inside the company.`\
+https://nytimes.com/2024/03/28/business/tiktok-israel-hamas-war-gaza.html
+
+**Auto Industry Expects Minimal Disruption From Port Shutdown**\
+`Baltimore is a top destination for car shipments, but companies are finding ways to use other ports on the East Coast.`\
+https://nytimes.com/2024/03/28/us/auto-industry-port-baltimore-bridge.html
+
 **Officials Say Hazardous Material Aboard Crashed Ship Poses No Threat**\
 `Two containers fell into the water and were missing, but neither contained hazardous materials, the Coast Guard said.`\
 https://nytimes.com/2024/03/28/us/hazardous-material-dali-ship-baltimore.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/28/arts/television/we-were-the-lucky-ones-logan-lerm
 **Putin Offers Both Reassurance and Threat on a Wider War**\
 `President Vladimir V. Putin said that claims Russia planned to invade other countries were “nonsense,” but warned them against hosting warplanes meant for Ukraine.`\
 https://nytimes.com/2024/03/28/world/europe/russia-putin-ukraine.html
-
-**One Problem With Making Bridges Stronger? Ships Getting Bigger.**\
-`Experts have long pondered the question of improving protections, and several bridges have undergone adjustments. But the size of today’s vessels leads to immense challenges.`\
-https://nytimes.com/2024/03/28/us/baltimore-bridge-protections-ships-states.html
-
-**House Republicans Demand Full Impeachment Trial for Mayorkas**\
-`They argue that quickly dispensing with the charges, as senators in both parties are inclined to do, would be an affront to Americans.`\
-https://nytimes.com/2024/03/28/us/politics/house-republicans-impeachment-mayorkas.html
 
