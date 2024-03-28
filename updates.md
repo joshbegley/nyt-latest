@@ -1,3 +1,11 @@
+**Netanyahu has ‘abandoned’ Israel’s captive soldiers, their relatives say.**\
+`By Cassandra Vinograd and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news/netanyahu-has-abandoned-israels-captive-soldiers-their-relatives-say
+
+**When Richard Serra’s Steel Curves Became a Memorial**\
+`The sculptor had a breakthrough in the late 1990s with his torqued metal rings. Then the attack on the World Trade Center, which Serra witnessed, gave them a sudden new significance.`\
+https://nytimes.com/2024/03/28/arts/design/richard-serra-death-notebook.html
+
 **A Fiery Finale for a Rocket That Brings the Heat**\
 `The Delta IV Heavy, a rocket that briefly bursts into flame just before it lifts off, is set to launch for the last time on Thursday.`\
 https://nytimes.com/2024/03/28/science/delta-iv-heavy-rocket-final-launch.html
