@@ -1,3 +1,7 @@
+**Credit Card Swipe Fees Are Going Down. Are Points Going With Them?**\
+`A new agreement by Visa and Mastercard to reduce fees charged to merchants may drain the lucrative rewards that grant free travel to many credit card users.`\
+https://nytimes.com/2024/03/28/travel/loyalty-points-credit-card-fees.html
+
 **Biden Administration Restores Wildlife Protections Weakened Under Trump**\
 `The rules give federal officials more leeway to protect species in a changing climate. Industry groups are expected to sue.`\
 https://nytimes.com/2024/03/28/climate/endangered-species-rules-regulations.html
