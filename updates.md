@@ -1,3 +1,7 @@
+**A Painter Inspired by Islamic Art and Rural New York Life**\
+`Uman’s vibrant abstract works, currently at Hauser & Wirth in London, are shaped by her childhood memories.`\
+https://nytimes.com/interactive/2024/03/28/t-magazine/uman-hauser-wirth.html
+
 **Justice Thomas Is a Kind Man. But His New Hire Raises Disturbing Questions.**\
 `Did his law clerk say she hates Black people? She needs to answer clearly.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/clarence-thomas-law-clerk
