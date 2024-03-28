@@ -1,3 +1,11 @@
+**8 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/03/28/books/review/new-books-recommendations.html
+
+**8-Year-Old Survives Bus Crash That Kills 45 People**\
+`The bus, which was carrying people to an Easter church service, went off a bridge in South Africa and plunged 165 feet into a ravine.`\
+https://nytimes.com/2024/03/28/world/africa/south-africa-bus-crash.html
+
 **Robert Moskowitz, Abstract Painter of New York’s Skyscrapers, Dies at 88**\
 `He depicted the Empire State Building, the Flatiron Building and, most indelibly, the World Trade Center. Those paintings took on new meaning after 9/11.`\
 https://nytimes.com/2024/03/28/arts/robert-moskowitz-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/28/us/trump-biden-election/biden-obama-clinton-
 **Teenagers on Saying ‘Like’**\
 `Do filler words — “like,” “um,” “you know” — improve our communication or get in the way of it? Here’s what students think.`\
 https://nytimes.com/2024/03/28/learning/teenagers-on-saying-like.html
-
-**U.K. Backsliding on Civil and Political Protections, U.N. Rights Body Says**\
-`A human rights committee that examined a range of concerns called on Britain to abandon its controversial plan to send asylum seekers to Rwanda.`\
-https://nytimes.com/2024/03/28/world/europe/uk-civil-rights-asylum-rwanda.html
-
-**Send the Hosts of ‘Serial’ Season 4 Your Questions About the Podcast**\
-`As you listen to the new season, which features insider stories of life at Guantánamo Bay, share your questions with the hosts, Sarah Koenig and Dana Chivvis.`\
-https://nytimes.com/2024/03/28/podcasts/serial-guantanamo-submit-questions.html
 
