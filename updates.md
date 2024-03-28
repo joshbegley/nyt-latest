@@ -1,3 +1,7 @@
+**Key Bridge Was Also Hit by a Ship in 1980, With Limited Damage**\
+`That year, a cargo vessel moving at about the same speed as the Dali hit the structure after losing control. But such ships were smaller then.`\
+https://nytimes.com/2024/03/28/us/baltimore-bridge-ship-crash-1980.html
+
 **Word of the Day: baffled**\
 `This word has appeared in 154 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/28/learning/word-of-the-day-baffled.html

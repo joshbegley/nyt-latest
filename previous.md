@@ -1,3 +1,7 @@
+**Key Bridge Was Also Hit by a Ship in 1980, With Limited Damage**\
+`That year, a cargo vessel moving at about the same speed as the Dali hit the structure after losing control. But such ships were smaller then.`\
+https://nytimes.com/2024/03/28/us/baltimore-bridge-ship-crash-1980.html
+
 **Word of the Day: baffled**\
 `This word has appeared in 154 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/28/learning/word-of-the-day-baffled.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/us/politics/reactions-joe-lieberman-death.html
 **Between May and December**\
 `Dominic Grillo takes me back to my childhood.`\
 https://nytimes.com/2024/03/27/crosswords/daily-puzzle-2024-03-28.html
-
-**Trump Spreads Apparent Hoax in Attacking Judge’s Daughter**\
-`Donald Trump said a photo of him behind bars on Loren Merchan’s X account meant he could not get a fair trial, but a court official said someone had appropriated the account.`\
-https://nytimes.com/2024/03/27/nyregion/trump-social-media-attack.html
 
