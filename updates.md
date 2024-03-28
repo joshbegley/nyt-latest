@@ -1,3 +1,7 @@
+**U.C. Berkeley Parents Hired Private Security to Patrol Near Campus**\
+`The parents were worried about crime, but the university said that the move raised concerns about training and experience, and that security was better left to its own police force.`\
+https://nytimes.com/2024/03/28/us/uc-berkeley-private-security.html
+
 **Crisis-Hit British Museum Gets New Leader**\
 `Nicholas Cullinan will take over the London institution as it faces the fallout from a theft scandal and calls for the return of objects in its collection.`\
 https://nytimes.com/2024/03/28/arts/design/british-museum-nicholas-cullinan.html
