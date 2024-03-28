@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Russia’s online efforts to derail Ukraine aid.`\
+https://nytimes.com/2024/03/28/briefing/russia-ukraine-disinformation-israel-hezbollah.html
+
 **From Village to Prison to Africa’s Youngest Elected President**\
 `How did Bassirou Diomaye Faye, age 44, go from obscurity to a resounding win in Senegal’s presidential election? At the family homestead, one relative explained, “This family is not new to ruling.”`\
 https://nytimes.com/2024/03/28/world/africa/senegal-faye-president-home.html

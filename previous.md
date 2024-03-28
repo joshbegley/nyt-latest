@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Russia’s online efforts to derail Ukraine aid.`\
+https://nytimes.com/2024/03/28/briefing/russia-ukraine-disinformation-israel-hezbollah.html
+
 **From Village to Prison to Africa’s Youngest Elected President**\
 `How did Bassirou Diomaye Faye, age 44, go from obscurity to a resounding win in Senegal’s presidential election? At the family homestead, one relative explained, “This family is not new to ruling.”`\
 https://nytimes.com/2024/03/28/world/africa/senegal-faye-president-home.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/us/victims-bodies-recovered.html
 **Police Fatally Shoot Queens Man Who Brandished Scissors, Officials Say**\
 `The victim’s brother contradicted aspects of the police account of the shooting and said his mother had been restraining her son when officers fired their guns.`\
 https://nytimes.com/2024/03/27/nyregion/win-rozario-queens-nypd.html
-
-**The Five Minutes That Brought Down the Francis Scott Key Bridge**\
-`When a massive cargo ship lost power in Baltimore, crews scrambled to control the ship and to evacuate the bridge lying ahead. But it was too late.`\
-https://nytimes.com/2024/03/27/us/baltimore-bridge-collapse.html
 
