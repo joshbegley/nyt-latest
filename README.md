@@ -30,8 +30,8 @@ https://nytimes.com/2024/03/28/briefing/sam-bankman-fried-25-years-biden-fund-ra
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/03/28/books/review/new-books-recommendations.html
 
-**8-Year-Old Survives Bus Crash That Kills 45 People**\
-`The bus, which was carrying people to an Easter church service, went off a bridge in South Africa and plunged 165 feet into a ravine.`\
+**8-Year-Old Survives Bus Plunge Off Bridge That Left 45 People Dead**\
+`The bus, which was carrying people from Botswana to an Easter weekend pilgrimage in South Africa, fell 165 feet into a ravine.`\
 https://nytimes.com/2024/03/28/world/africa/south-africa-bus-crash.html
 
 **Robert Moskowitz, Abstract Painter of New York’s Skyscrapers, Dies at 88**\
