@@ -1,3 +1,11 @@
+**Germany’s Beloved Dachshund Could Be Threatened Under Breeding Bill**\
+`The bill would strengthen laws around dog breeding, but Germany’s kennel club worries that the legislation could lead to bans on several breeds.`\
+https://nytimes.com/2024/03/28/world/europe/dachshund-dog-breeding-ban-germany.html
+
+**Answers to All Your Burning Questions About Sunscreen**\
+`How much SPF is enough? Is mineral better than chemical? We’ve got you covered.`\
+https://nytimes.com/article/sunscreen-spf-safety.html
+
 **New Senate Leadership Tussle Is a Throwback to the Old Days**\
 `Current Senate leaders haven’t had to fight too hard for their jobs, but Republicans now face a real contest to replace Mitch McConnell.`\
 https://nytimes.com/2024/03/28/us/politics/senate-leadership-fight.html
