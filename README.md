@@ -35,6 +35,6 @@ https://nytimes.com/2024/03/28/world/middleeast/palestinians-detained-in-israel.
 https://nytimes.com/2024/03/28/briefing/biden-approval-ratings-world-leaders.html
 
 **Crisis-Hit British Museum Gets New Leader**\
-`Nicholas Cullinan will take over the London institution as it faces multiple challenges.`\
+`Nicholas Cullinan will take over the London institution as it faces the fallout from a theft scandal and calls for the return of objects in its collection.`\
 https://nytimes.com/2024/03/28/arts/design/british-museum-nicholas-cullinan.html
 
