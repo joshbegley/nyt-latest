@@ -1,3 +1,7 @@
+**Here is the latest.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/here-is-the-latest
+
 **The Overlooked Truths About Biden’s Age**\
 `The president is a decision maker, not an action figure.`\
 https://nytimes.com/2024/03/28/opinion/joe-biden-age-trump.html
