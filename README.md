@@ -1,3 +1,11 @@
+**Jenna Lyons Will Return to ‘Real Housewives of New York City’**\
+`An exclusive interview with an “unlikely housewife,” the former J. Crew president turned Bravo star.`\
+https://nytimes.com/2024/03/28/style/jenna-lyons-real-housewives-of-new-york-city-second-season.html
+
+**Improvise With Swiss Chard**\
+`It can star in a creamy pasta or casserole, or be the understudy to kale in a spring minestrone.`\
+https://nytimes.com/2024/03/28/dining/improvise-with-swiss-chard.html
+
 **What Happens to the Stories of Ukrainian Lives?**\
 `Every refugee has a tale to tell. But they need listeners.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/ukraine-refugees-oral-history
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/28/arts/television/what-to-watch-this-weekend-a-fun-
 **How Sam Bankman-Fried’s Sentence Compares With Other White-Collar Cases**\
 `Here’s how the former crypto mogul’s 25-year sentence stacks up against the prosecutions of Michael Milken, Bernie Madoff and others.`\
 https://nytimes.com/2024/03/28/technology/sam-bankman-fried-white-collar-sentences.html
-
-**Sam Bankman-Fried Sentenced to 25 Years in Prison**\
-`Mr. Bankman-Fried, who was convicted of stealing $8 billion from customers of his FTX cryptocurrency exchange, faced a maximum sentence of 110 years.`\
-https://nytimes.com/2024/03/28/technology/sam-bankman-fried-sentenced.html
-
-**‘On the Adamant’ Review: A Psychiatric Facility on the Seine**\
-`This documentary by Nicolas Philibert drifts along, with unnamed patients and their caretakers, on a large houseboat in Paris.`\
-https://nytimes.com/2024/03/28/movies/on-the-adamant-review.html
 
