@@ -1,4 +1,4 @@
-**Battles rage at two hospitals in Gaza, as aid organizations sound the alarm for patients.**\
+**Aid organizations sound the alarm for patients at embattled hospitals.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news/battles-rage-at-two-hospitals-in-gaza-as-aid-organizations-sound-the-alarm-for-patients
 
@@ -32,9 +32,9 @@ https://nytimes.com/2024/03/28/world/middleeast/palestinians-detained-in-israel.
 
 **The World’s Unpopular Leaders**\
 `Why Biden isn’t alone with his low approval ratings.`\
-https://nytimes.com/2024/03/28/briefing/the-worlds-unpopular-leaders.html
+https://nytimes.com/2024/03/28/briefing/biden-approval-ratings-world-leaders.html
 
-**28mideast-crisis**\
-`U.S. Says Israel Has Agreed to Reschedule Key Meeting`\
-https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news
+**Crisis-Hit British Museum Gets New Leader**\
+`Nicholas Cullinan will take over the London institution as it faces multiple challenges.`\
+https://nytimes.com/2024/03/28/arts/design/british-museum-nicholas-cullinan.html
 
