@@ -1,3 +1,7 @@
+**28mideast-crisis**\
+`U.S. Says Israel Has Agreed to Reschedule Key Meeting`\
+https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news
+
 **Crisis-Hit British Museum Gets New Leader**\
 `Nicholas Cullinan will take over the London institution as it faces multiple challenges.`\
 https://nytimes.com/2024/03/28/arts/design/british-museum-nicholas-cullinan.html
