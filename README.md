@@ -1,3 +1,11 @@
+**A Fiery Finale for a Rocket That Brings the Heat**\
+`The Delta IV, a rocket that briefly bursts into flame just before it lifts off, is set to launch for the last time on Thursday.`\
+https://nytimes.com/2024/03/28/science/delta-iv-heavy-rocket-final-launch.html
+
+**Old Newspaper Stories Offer Clues to 1868 Lake Michigan Shipwreck**\
+`It took researchers only two days to find the wreckage of the Milwaukee, a steamship that sank after colliding with another ship. They were guided by details from newspaper accounts of the accident.`\
+https://nytimes.com/2024/03/28/us/uss-milwaukee-shipwreck.html
+
 **Just How Wet Has California’s Rainy Season Been?**\
 `Before the season officially ends on Sunday, another storm is headed for the California coast.`\
 https://nytimes.com/2024/03/28/us/california-rainy-season.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/28/movies/dogman-review.html
 **‘Lousy Carter’ Review: Blackboard Bungle**\
 `A college professor gets a grim diagnosis in this comedy from Bob Byington.`\
 https://nytimes.com/2024/03/28/movies/lousy-carter-review-blackboard-bungle.html
-
-**‘The Beautiful Game’ Review: A Different Kind of World Cup**\
-`This heart-string-tugging Netflix movie about a homeless soccer team, featuring Bill Nighy and Micheal Ward, puts the emphasis on play and uplift.`\
-https://nytimes.com/2024/03/28/movies/the-beautiful-game-review.html
-
-**‘Asphalt City’ Review: Arbiters of Life and Death**\
-`Sean Penn plays a flinty paramedic showing a rookie the ropes in this maddening drama about emergency medical workers in New York.`\
-https://nytimes.com/2024/03/28/movies/asphalt-city-review.html
 
