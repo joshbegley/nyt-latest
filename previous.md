@@ -1,3 +1,7 @@
+**Review: In ‘Reality Show,’ Jerrod Carmichael Is Out and Open**\
+`Have you heard the one about the comedian who tried to live truthfully?`\
+https://nytimes.com/2024/03/28/arts/television/review-jerrod-carmichael-reality-show.html
+
 **A Painter Inspired by Islamic Art and Rural New York Life**\
 `Uman’s vibrant abstract works, currently at Hauser & Wirth in London, are shaped by her childhood memories.`\
 https://nytimes.com/interactive/2024/03/28/t-magazine/uman-hauser-wirth.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/climate/landfills-methane-emissions.html
 **Trump attends wake for slain N.Y.P.D. officer.**\
 `By Maggie Haberman, William K. Rashbaum and Michael Gold`\
 https://nytimes.com/live/2024/03/28/us/trump-biden-election/trump-attends-wake-for-slain-nypd-officer
-
-**‘La Chimera’ Review: A Treasure Trove**\
-`In her latest dreamy movie, the Italian director Alice Rohrwacher follows a tomb raider, played by Josh O’Connor, who’s pining for a lost love.`\
-https://nytimes.com/2024/03/28/movies/la-chimera-review-alice-rohrwacher.html
 

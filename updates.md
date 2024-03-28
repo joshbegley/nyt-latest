@@ -1,3 +1,7 @@
+**Review: In ‘Reality Show,’ Jerrod Carmichael Is Out and Open**\
+`Have you heard the one about the comedian who tried to live truthfully?`\
+https://nytimes.com/2024/03/28/arts/television/review-jerrod-carmichael-reality-show.html
+
 **A Painter Inspired by Islamic Art and Rural New York Life**\
 `Uman’s vibrant abstract works, currently at Hauser & Wirth in London, are shaped by her childhood memories.`\
 https://nytimes.com/interactive/2024/03/28/t-magazine/uman-hauser-wirth.html
