@@ -1,3 +1,7 @@
+**Quotation of the Day: One Grieving Mother Steps Forward to Urge A Compromise on Guns**\
+`Quotation of the Day for Thursday, March 28, 2024.`\
+https://nytimes.com/2024/03/27/pageoneplus/quotation-of-the-day-one-grieving-mother-steps-forward-to-urge-a-compromise-on-guns.html
+
 **Friends, Allies and Even Former Rivals Eulogize Joseph Lieberman**\
 `Al Gore, his running mate in the 2000 election, called him “a truly gifted leader, whose affable personality and strong will made him a force to be reckoned with.”`\
 https://nytimes.com/2024/03/27/us/politics/reactions-joe-lieberman-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/business/media/nbc-ronna-mcdaniel-msnbc.html
 **Maryland lawmakers hope to quickly craft a bill to support workers.**\
 `State leaders are drafting emergency legislation that would provide financial support to affected workers and assistance to small businesses.`\
 https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/maryland-lawmakers-hope-to-quickly-craft-a-bill-to-support-workers
-
-**Is There a Political Divide in Your Family?**\
-`We want to hear from readers about how they approach different opinions over various social issues.`\
-https://nytimes.com/2024/03/27/us/political-divides-families.html
 
