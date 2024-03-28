@@ -1,3 +1,19 @@
+**Taiwan’s Top Diplomat Says U.S. Aid to Ukraine Is Critical for Deterring China**\
+`Foreign Minister Joseph Wu said in an interview that a Russian victory could embolden China to move against Taiwan and would fuel anti-American propaganda.`\
+https://nytimes.com/2024/03/28/us/politics/taiwan-china-ukraine-aid.html
+
+**Film Club: ‘Island in Between’**\
+`What is life like for the Taiwanese people caught between two superpowers — China and the United States?`\
+https://nytimes.com/2024/03/28/learning/film-club-island-in-between.html
+
+**What We Know About the Crew on the Ship That Hit the Baltimore Bridge**\
+`One crew member of the Dali received stitches, then returned to the ship. It’s not clear how long they’ll have to remain on board.`\
+https://nytimes.com/2024/03/28/us/dali-ship-crew-baltimore-bridge.html
+
+**On Broadway, ‘Centering’ Antiracism Is Delightful**\
+`Why is it so dreary in universities?`\
+https://nytimes.com/2024/03/28/opinion/six-musical-antiracism-universities.html
+
 **The court also ordered Israel to increase the number of land crossings into Gaza.**\
 `In its strongest language yet, the International Court of Justice in The Hague ordered Israel to ensure “the unhindered provision” of humanitarian assistance.`\
 https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news/icj-israel-gaza-aid-famine
@@ -21,20 +37,4 @@ https://nytimes.com/2024/03/28/us/politics/house-republicans-impeachment-mayorka
 **Dal Is the Ultimate Comfort Food**\
 `Cheap, unfussy and adaptable, these lentils call up warming memories of home and family for many South Asians.`\
 https://nytimes.com/2024/03/28/dining/dal.html
-
-**A First Step Toward a Global Price on Carbon**\
-`A tax on ship emissions could have an impact on almost everything we buy`\
-https://nytimes.com/2024/03/28/climate/a-first-step-toward-a-global-price-on-carbon.html
-
-**Review: In ‘Reality Show,’ Jerrod Carmichael Is Out and Open**\
-`Have you heard the one about the comedian who tried to live truthfully?`\
-https://nytimes.com/2024/03/28/arts/television/review-jerrod-carmichael-reality-show.html
-
-**A Painter Inspired by Islamic Art and Rural New York Life**\
-`Uman’s vibrant abstract works, currently at Hauser & Wirth in London, are shaped by her childhood memories.`\
-https://nytimes.com/interactive/2024/03/28/t-magazine/uman-hauser-wirth.html
-
-**Justice Thomas Is a Kind Man. But His New Hire Raises Disturbing Questions.**\
-`Did his law clerk say she hates Black people? She needs to answer clearly.`\
-https://nytimes.com/live/2024/03/26/opinion/thepoint/clarence-thomas-law-clerk
 
