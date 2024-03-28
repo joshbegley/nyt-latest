@@ -30,8 +30,8 @@ https://nytimes.com/2024/03/28/movies/on-the-adamant-review.html
 `A Republican operative dropped the lawsuit against Mr. Schlapp, the head of one of the nation’s largest conservative advocacy groups, this week.`\
 https://nytimes.com/2024/03/28/us/politics/matt-schlapp-lawsuit-settlement.html
 
-**Ireland will intervene in South Africa’s genocide case against Israel at the top U.N. court.**\
-`By Megan Specia`\
+**Ireland to Intervene in South Africa’s Genocide Case Against Israel at the World Court**\
+`Ireland did not outline the argument it planned to advance at the court, but the country’s lawmakers have made repeated calls to prioritize the protection of civilians in Gaza.`\
 https://nytimes.com/2024/03/28/world/middleeast/ireland-south-africa-israel-genocide-icj.html
 
 **Valentino Enters Its Alessandro Michele Era**\
