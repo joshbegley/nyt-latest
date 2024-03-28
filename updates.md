@@ -1,3 +1,11 @@
+**Trump on Obamacare: Still Ludicrous After All These Years**\
+`In truth, he has no plan to “fix” affordable health care.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/krugman-trump-obamacare
+
+**The Last Coal-Fired Power Plants in New England Are to Close**\
+`The company that owns the Merrimack and Schiller stations in New Hampshire plans to turn them into solar farms and battery storage for offshore wind.`\
+https://nytimes.com/2024/03/28/climate/new-england-coal-plants.html
+
 **Netanyahu has ‘abandoned’ Israel’s captive soldiers, their relatives say.**\
 `By Cassandra Vinograd and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news/netanyahu-has-abandoned-israels-captive-soldiers-their-relatives-say

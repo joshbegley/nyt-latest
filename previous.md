@@ -1,3 +1,11 @@
+**Trump on Obamacare: Still Ludicrous After All These Years**\
+`In truth, he has no plan to “fix” affordable health care.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/krugman-trump-obamacare
+
+**The Last Coal-Fired Power Plants in New England Are to Close**\
+`The company that owns the Merrimack and Schiller stations in New Hampshire plans to turn them into solar farms and battery storage for offshore wind.`\
+https://nytimes.com/2024/03/28/climate/new-england-coal-plants.html
+
 **Netanyahu has ‘abandoned’ Israel’s captive soldiers, their relatives say.**\
 `By Cassandra Vinograd and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news/netanyahu-has-abandoned-israels-captive-soldiers-their-relatives-say
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/28/us/uss-milwaukee-shipwreck.html
 **Just How Wet Has California’s Rainy Season Been?**\
 `Before the season officially ends on Sunday, another storm is headed for the California coast.`\
 https://nytimes.com/2024/03/28/us/california-rainy-season.html
-
-**Artisanal Cement Tiles Inspired by Modernist Homes**\
-`Plus: a Venetian retreat, hand-knotted rugs and more recommendations from T Magazine.`\
-https://nytimes.com/2024/03/28/t-magazine/modernist-cement-zia-tile.html
-
-**U.C. Berkeley Parents Hired Private Security to Patrol Near Campus**\
-`The parents were worried about crime, but the university said that the move raised concerns about training and experience, and that security was better left to its own police force.`\
-https://nytimes.com/2024/03/28/us/uc-berkeley-private-security.html
 
