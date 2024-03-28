@@ -1,3 +1,7 @@
+**Send the Hosts of ‘Serial’ Season 4 Your Questions About the Podcast**\
+`As you listen to the new season, which features insider stories of life at Guantánamo Bay, share your questions with the hosts, Sarah Koenig and Dana Chivvis.`\
+https://nytimes.com/2024/03/28/podcasts/serial-guantanamo-submit-questions.html
+
 **Linda Bean, an L.L. Bean Heir and a Conservative Donor, Dies at 82**\
 `A granddaughter of the celebrated Maine brand’s founder, she set out as an entrepreneur in her mid-60s and used her wealth to fund right-wing causes.`\
 https://nytimes.com/2024/03/28/business/linda-bean-dead.html
@@ -8,7 +12,7 @@ https://nytimes.com/live/2024/03/26/opinion/thepoint/john-eastman-disbarred
 
 **Searching for the Ideal Fish Taco**\
 `Cabbage, crema, pico de gallo and a spritz of lime, please?`\
-https://nytimes.com/2024/03/28/dining/searching-for-the-ideal-fish-taco.html
+https://nytimes.com/2024/03/28/dining/fish-tacos-nyc.html
 
 **How the Israel-Hamas War Has Roiled TikTok Internally**\
 `The video app has been criticized for how it has handled posts users see about the war. Some of the same tensions have also played out inside the company.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/learning/film-club-island-in-between.html
 **What We Know About the Crew on the Ship That Hit the Baltimore Bridge**\
 `One crew member of the Dali received stitches, then returned to the ship. It’s not clear how long they’ll have to remain on board.`\
 https://nytimes.com/2024/03/28/us/dali-ship-crew-baltimore-bridge.html
-
-**On Broadway, ‘Centering’ Antiracism Is Delightful**\
-`Why is it so dreary in universities?`\
-https://nytimes.com/2024/03/28/opinion/six-musical-antiracism-universities.html
 
