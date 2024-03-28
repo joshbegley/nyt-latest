@@ -1,3 +1,7 @@
+**Officials Identify 2 Bridge Collapse Victims by I.D. and Fingerprint**\
+`Divers found the men, Alejandro Hernandez Fuentes, 35, and Dorlian Ronial Castillo Cabrera, 26, in a truck under the wreckage. Four workers were still missing.`\
+https://nytimes.com/2024/03/27/us/officials-identify-2-bridge-collapse-victims-by-id-and-fingerprint.html
+
 **Police Fatally Shoot Queens Man Who Brandished Scissors, Officials Say**\
 `The victim’s brother contradicted aspects of the police account of the shooting and said his mother had been restraining her son when officers fired their guns.`\
 https://nytimes.com/2024/03/27/nyregion/win-rozario-queens-nypd.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/us/rockford-illinois-stabbing.html
 **U.S. Says Israel Has Agreed to Try to Reschedule Canceled Trip**\
 `Netanyahu’s office hasn’t confirmed it has any desire to make new plans.`\
 https://nytimes.com/2024/03/27/world/middleeast/netanyahu-meeting-ceasefire.html
-
-**Seeking Balance, Tripping Up**\
-`The question of how to cover Donald Trump is no closer to being solved.`\
-https://nytimes.com/2024/03/27/us/politics/nbc-trump-mcdaniel.html
 
