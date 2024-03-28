@@ -1,3 +1,11 @@
+**Just How Wet Has California’s Rainy Season Been?**\
+`Before the season officially ends on Sunday, another storm is headed for the California coast.`\
+https://nytimes.com/2024/03/28/us/california-rainy-season.html
+
+**Artisanal Cement Tiles Inspired by Modernist Homes**\
+`Plus: a Venetian retreat, hand-knotted rugs and more recommendations from T Magazine.`\
+https://nytimes.com/2024/03/28/t-magazine/modernist-cement-zia-tile.html
+
 **U.C. Berkeley Parents Hired Private Security to Patrol Near Campus**\
 `The parents were worried about crime, but the university said that the move raised concerns about training and experience, and that security was better left to its own police force.`\
 https://nytimes.com/2024/03/28/us/uc-berkeley-private-security.html
