@@ -1,3 +1,7 @@
+**There’s Trouble Inside Pakistan’s Military**\
+`Divisions within the all-powerful military make the country’s future difficult to predict.`\
+https://nytimes.com/2024/03/28/opinion/pakistan-military-khan-munir.html
+
 **Thursday Briefing**\
 `Russia’s online efforts to derail Ukraine aid.`\
 https://nytimes.com/2024/03/28/briefing/russia-ukraine-disinformation-israel-hezbollah.html
@@ -9,6 +13,10 @@ https://nytimes.com/2024/03/28/world/africa/senegal-faye-president-home.html
 **As Threats in Space Mount, U.S. Lags in Protecting Key Services**\
 `GPS has become essential for modern life, but its satellites and signals are vulnerable to attack. China is years ahead in developing alternatives.`\
 https://nytimes.com/2024/03/28/world/asia/as-threats-in-space-mount-us-lags-in-protecting-key-services.html
+
+**Corrections: March 28, 2024**\
+`Corrections that appeared in print on Thursday, March 28, 2024.`\
+https://nytimes.com/2024/03/27/pageoneplus/corrections-march-28-2024.html
 
 **Quotation of the Day: One Grieving Mother Steps Forward to Urge A Compromise on Guns**\
 `Quotation of the Day for Thursday, March 28, 2024.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/27/nyregion/trump-social-media-attack.html
 **John Eastman Should Lose Law License, Judge Finds**\
 `The decision was only the latest effort by bar officials to seek accountability against a group of lawyers who sought to help President Donald J. Trump stay in office despite his election loss.`\
 https://nytimes.com/2024/03/27/us/politics/john-eastman-trump-lawyer.html
-
-**Officials Identify 2 Bridge Collapse Victims by ID and Fingerprint**\
-`Divers found the men, Alejandro Hernandez Fuentes, 35, and Dorlian Ronial Castillo Cabrera, 26, in a truck under the wreckage. Four workers were still missing.`\
-https://nytimes.com/2024/03/27/us/victims-bodies-recovered.html
-
-**Police Fatally Shoot Queens Man Who Brandished Scissors, Officials Say**\
-`The victim’s brother contradicted aspects of the police account of the shooting and said his mother had been restraining her son when officers fired their guns.`\
-https://nytimes.com/2024/03/27/nyregion/win-rozario-queens-nypd.html
 

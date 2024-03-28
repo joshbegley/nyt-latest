@@ -1,3 +1,11 @@
+**There’s Trouble Inside Pakistan’s Military**\
+`Divisions within the all-powerful military make the country’s future difficult to predict.`\
+https://nytimes.com/2024/03/28/opinion/pakistan-military-khan-munir.html
+
+**Corrections: March 28, 2024**\
+`Corrections that appeared in print on Thursday, March 28, 2024.`\
+https://nytimes.com/2024/03/27/pageoneplus/corrections-march-28-2024.html
+
 **Thursday Briefing**\
 `Russia’s online efforts to derail Ukraine aid.`\
 https://nytimes.com/2024/03/28/briefing/russia-ukraine-disinformation-israel-hezbollah.html
