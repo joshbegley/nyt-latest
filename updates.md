@@ -1,3 +1,11 @@
+**Our 7th Annual Student Podcast Contest**\
+`We invite students to create an original podcast of five minutes or less that informs or entertains. Contest dates: April 17 to May 15.`\
+https://nytimes.com/2024/03/28/learning/our-7th-annual-student-podcast-contest.html
+
+**The Palestinian Authority has formed a new cabinet, but doubts remain about its independence.**\
+`By Cassandra Vinograd and Adam Rasgon`\
+https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news/the-palestinian-authority-has-formed-a-new-cabinet-but-doubts-remain-about-its-independence
+
 **Answers to All Your Burning Questions About Sunscreen**\
 `How much SPF is enough? Is mineral better than chemical? We’ve got you covered.`\
 https://nytimes.com/2024/03/28/well/live/sunscreen-spf-safety-explainer.html
