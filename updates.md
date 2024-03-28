@@ -1,3 +1,7 @@
+**U.S. Officials Order Better Tracking of a Political Flashpoint: America’s Diversity**\
+`New survey questions in federal forms will draw a more detailed portrait of racial and ethnic origins. Officials point to the benefits, but the changes could face a conservative backlash.`\
+https://nytimes.com/2024/03/28/us/us-ethnicity-race-politics.html
+
 **Are You Getting the Most Out of Your Sheet Pan?**\
 `Sheet-pan japchae makes easy work of caramelizing a rainbow of vegetables before tossing with noodles.`\
 https://nytimes.com/2024/03/28/dining/are-you-getting-the-most-out-of-your-sheet-pan.html
