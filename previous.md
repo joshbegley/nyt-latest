@@ -1,3 +1,7 @@
+**Friends, Allies and Even Former Rivals Eulogize Joseph Lieberman**\
+`Al Gore, his running mate in the 2000 election, called him “a truly gifted leader, whose affable personality and strong will made him a force to be reckoned with.”`\
+https://nytimes.com/2024/03/27/us/politics/reactions-joe-lieberman-death.html
+
 **Between May and December**\
 `Dominic Grillo takes me back to my childhood.`\
 https://nytimes.com/2024/03/27/crosswords/daily-puzzle-2024-03-28.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/27/us/baltimore-key-bridge-collapse/maryland-la
 **Is There a Political Divide in Your Family?**\
 `We want to hear from readers about how they approach different opinions over various social issues.`\
 https://nytimes.com/2024/03/27/us/political-divides-families.html
-
-**Harvard Removes Binding of Human Skin From Book in Its Library**\
-`The decision to find a “respectful final disposition” for human remains used for a 19th-century book comes amid growing scrutiny of their presence in museum collections.`\
-https://nytimes.com/2024/03/27/arts/harvard-human-skin-binding-book.html
 

@@ -1,3 +1,7 @@
+**Friends, Allies and Even Former Rivals Eulogize Joseph Lieberman**\
+`Al Gore, his running mate in the 2000 election, called him “a truly gifted leader, whose affable personality and strong will made him a force to be reckoned with.”`\
+https://nytimes.com/2024/03/27/us/politics/reactions-joe-lieberman-death.html
+
 **Officials Identify 2 Bridge Collapse Victims by ID and Fingerprint**\
 `Divers found the men, Alejandro Hernandez Fuentes, 35, and Dorlian Ronial Castillo Cabrera, 26, in a truck under the wreckage. Four workers were still missing.`\
 https://nytimes.com/2024/03/27/us/victims-bodies-recovered.html
