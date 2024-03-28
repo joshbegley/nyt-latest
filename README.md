@@ -1,3 +1,11 @@
+**Crisis-Hit British Museum Gets New Leader**\
+`Nicholas Cullinan will take over the London institution as it faces multiple challenges.`\
+https://nytimes.com/2024/03/28/arts/design/british-museum-nicholas-cullinan.html
+
+**Inside the Scramble to Evacuate the Bridge, and an Investigation Into Boeing’s Safety Record**\
+`Plus, the man who was nearly vice president.`\
+https://nytimes.com/2024/03/28/podcasts/bridge-investigation-boeings.html
+
 **The Newest Tech Start-Up Billionaire? Donald Trump**\
 `Trump Media, which went public this week, attracted a frenzy of interest on its first day of trading.`\
 https://nytimes.com/2024/03/28/podcasts/the-daily/trump-tech.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/28/us/politics/biden-short-term-health-plans.html
 **On the Upper West Side, a Good Kitchen and Room to Grow: Which Home Did They Choose?**\
 `Looking to explore a new neighborhood in Manhattan and create a better work setup, a couple embarked on a search for a prewar two-bedroom.`\
 https://nytimes.com/interactive/2024/03/28/realestate/28hunt-schwartz.html
-
-**Use Your Allusion: See How Many Literary References You Recognize**\
-`Put your cultural knowledge to the test with these 12 questions.`\
-https://nytimes.com/interactive/2024/03/28/books/review/literary-allusions-quiz.html
-
-**4 Takeaways About Boeing’s Quality Problems**\
-`The company’s issues date back years, employees said, and were compounded by the pandemic, when it lost thousands of experienced workers.`\
-https://nytimes.com/2024/03/28/business/boeing-quality-takeaways.html
 
