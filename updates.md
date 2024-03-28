@@ -1,3 +1,7 @@
+**‘La Chimera’ Review: A Treasure Trove**\
+`In her latest dreamy movie, the Italian director Alice Rohrwacher follows a tomb raider, played by Josh O’Connor, who’s pining for a lost love.`\
+https://nytimes.com/2024/03/28/movies/la-chimera-review-alice-rohrwacher.html
+
 **Germany’s Beloved Dachshund Could Be Threatened Under Breeding Bill**\
 `The bill would strengthen laws around dog breeding, but Germany’s kennel club worries that the legislation could lead to bans on several breeds.`\
 https://nytimes.com/2024/03/28/world/europe/dachshund-dog-breeding-ban-germany.html
