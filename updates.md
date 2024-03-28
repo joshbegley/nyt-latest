@@ -1,4 +1,8 @@
 **As Relations Thaw, China Lifts Tariffs on Australian Wine**\
+`Despite its thirst for Australian wine, China had taxed the imports in 2020 over a dispute about Covid-19.`\
+https://nytimes.com/2024/03/28/business/china-australia-wine-tariffs.html
+
+**As Relations Thaw, China Lifts Tariffs on Australian Wine**\
 `Despite its thirst for Australian wine, China had taxed the imports in 2020 over a dispute about Covid-19. The nations came closer again last year.`\
 https://nytimes.com/2024/03/28/business/china-australia-wine-tariffs.html
 
