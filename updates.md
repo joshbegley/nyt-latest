@@ -1,3 +1,11 @@
+**Vernor Vinge, Innovative Science Fiction Novelist, Dies at 79**\
+`He conceived an early version of cyberspace and predicted the “technological singularity,” a tipping point at which machines would become smarter than humans.`\
+https://nytimes.com/2024/03/28/books/vernor-vinge-dead.html
+
+**Biden fund-raiser featuring Obama and Clinton will make big money — and highlight Trump’s party problem.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2024/03/28/us/trump-biden-election/biden-obama-clinton-fund-raiser-trump
+
 **Teenagers on Saying ‘Like’**\
 `Do filler words — “like,” “um,” “you know” — improve our communication or get in the way of it? Here’s what students think.`\
 https://nytimes.com/2024/03/28/learning/teenagers-on-saying-like.html
