@@ -1,3 +1,7 @@
+**New Senate Leadership Tussle Is a Throwback to the Old Days**\
+`Current Senate leaders haven’t had to fight too hard for their jobs, but Republicans now face a real contest to replace Mitch McConnell.`\
+https://nytimes.com/2024/03/28/us/politics/senate-leadership-fight.html
+
 **Our 7th Annual Student Podcast Contest**\
 `We invite students to create an original podcast of five minutes or less that informs or entertains. Contest dates: April 17 to May 15.`\
 https://nytimes.com/2024/03/28/learning/our-7th-annual-student-podcast-contest.html
