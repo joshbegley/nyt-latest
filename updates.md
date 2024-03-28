@@ -1,3 +1,15 @@
+**17 New Books Coming in April**\
+`New novels from Emily Henry, Jo Piazza and Rachel Khong; a history of five ballerinas at the Dance Theater of Harlem; Salman Rushdie’s memoir and more.`\
+https://nytimes.com/2024/03/28/books/review/new-books-april.html
+
+**Having Trouble With Your Homeowners Insurance? Tell Us.**\
+`Bills are soaring. Insurance companies are struggling. We want to hear how it’s affecting you.`\
+https://nytimes.com/2024/03/28/climate/homeowners-insurance-personal-stories.html
+
+**Friday Briefing: Sam Bankman-Fried Gets 25 Years**\
+`Plus, three video game adventures for the weekend.`\
+https://nytimes.com/2024/03/28/briefing/sam-bankman-fried-moscow-attack-migrant-children.html
+
 **‘He Was My Baby Brother’: Relatives Mourn a Victim of the Bridge Collapse**\
 `Jose López, a father of two, saw his purpose in life as providing for his family, his brother said.`\
 https://nytimes.com/2024/03/28/us/bridge-collapse-victim-jovani-lopez.html
