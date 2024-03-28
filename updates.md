@@ -1,3 +1,11 @@
+**‘Cataclysmic Situation’ in Haiti Leaves 1,500 Dead in Gang Violence**\
+`The United Nations on Thursday said poor governance and increasing levels of gang violence had brought state institutions “close to collapse.”`\
+https://nytimes.com/2024/03/28/world/americas/haiti-gang-violence-dead.html
+
+**Sam Bankman-Fried Was Sentenced to 25 Years in Prison**\
+`Also, Biden called on his predecessors to help him raise funds. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/03/28/briefing/sam-bankman-fried-25-years-biden-fund-raiser.html
+
 **8 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/03/28/books/review/new-books-recommendations.html
