@@ -1,3 +1,7 @@
+**New York Will Test Gun-Detecting Technology in Subway System, Mayor Says**\
+`In the wake of a deadly attack in the system earlier this week, New York officials are searching for ways to make subway riders feel safer.`\
+https://nytimes.com/2024/03/28/nyregion/nyc-subway-gun-detector.html
+
 **Credit Card Swipe Fees Are Going Down. Are Points Going With Them?**\
 `A new agreement by Visa and Mastercard to reduce fees charged to merchants may drain the lucrative rewards that grant free travel to many credit card users.`\
 https://nytimes.com/2024/03/28/travel/loyalty-points-credit-card-fees.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/movies/on-the-adamant-review.html
 **Matt Schlapp Accuser Dropped Groping Lawsuit After a $480,000 Settlement**\
 `A Republican operative dropped the lawsuit against Mr. Schlapp, the head of one of the nation’s largest conservative advocacy groups, this week.`\
 https://nytimes.com/2024/03/28/us/politics/matt-schlapp-lawsuit-settlement.html
-
-**Ireland to Intervene in South Africa’s Genocide Case Against Israel at the World Court**\
-`Ireland did not outline the argument it planned to advance at the court, but the country’s lawmakers have made repeated calls to prioritize the protection of civilians in Gaza.`\
-https://nytimes.com/2024/03/28/world/middleeast/ireland-south-africa-israel-genocide-icj.html
 
