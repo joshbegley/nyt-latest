@@ -1,3 +1,11 @@
+**The collapse is unlikely to affect Baltimore’s vital seafood industry.**\
+`By Christina Morales`\
+https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/the-collapse-is-unlikely-to-affect-baltimores-vital-seafood-industry
+
+**Trump, Attending Wake of Slain N.Y.P.D. Officer, Pushes Campaign Message on Crime**\
+`Mr. Trump called the officer’s death a horrible tragedy and, as he often does on the trail, broadly called for a crackdown on violent crime without mentioning specific policies.`\
+https://nytimes.com/2024/03/28/us/politics/trump-nypd-officer-wake.html
+
 **How do you clear a collapsed bridge? A retired Navy expert in diving and salvage explains.**\
 `Capt. Dan Shultz commanded a team of Navy deep-sea divers who recovered bodies trapped by the collapse of a bridge in Minneapolis in 2007.`\
 https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/collapsed-bridge-recovery-navy
