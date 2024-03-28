@@ -1,3 +1,19 @@
+**The court also ordered Israel to increase the number of land crossings into Gaza.**\
+`In its strongest language yet, the International Court of Justice in The Hague ordered Israel to ensure “the unhindered provision” of humanitarian assistance.`\
+https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news/icj-israel-gaza-aid-famine
+
+**Logan Lerman Honors Two Families in ‘We Were the Lucky Ones’**\
+`In this Hulu adaptation of a Holocaust novel, Lerman plays a character inspired by two different grandfathers: the author’s and his own.`\
+https://nytimes.com/2024/03/28/arts/television/we-were-the-lucky-ones-logan-lerman.html
+
+**Putin Offers Both Reassurance and Threat on a Wider War**\
+`President Vladimir V. Putin said that claims Russia planned to invade other countries were “nonsense,” but warned them against hosting warplanes meant for Ukraine.`\
+https://nytimes.com/2024/03/28/world/europe/russia-putin-ukraine.html
+
+**One Problem With Making Bridges Stronger? Ships Getting Bigger.**\
+`Experts have long pondered the question of improving protections, and several bridges have undergone adjustments. But the size of today’s vessels leads to immense challenges.`\
+https://nytimes.com/2024/03/28/us/baltimore-bridge-protections-ships-states.html
+
 **House Republicans Demand Full Impeachment Trial for Mayorkas**\
 `They argue that quickly dispensing with the charges, as senators in both parties are inclined to do, would be an affront to Americans.`\
 https://nytimes.com/2024/03/28/us/politics/house-republicans-impeachment-mayorkas.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2024/03/28/t-magazine/uman-hauser-wirth.html
 **Justice Thomas Is a Kind Man. But His New Hire Raises Disturbing Questions.**\
 `Did his law clerk say she hates Black people? She needs to answer clearly.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/clarence-thomas-law-clerk
-
-**The Judge Cracks Down**\
-`Justice Juan Merchan has warned Donald Trump and his lawyers to be on good behavior during the hush-money trial.`\
-https://nytimes.com/2024/03/28/us/politics/trump-trial-hush-money-judge-merchan.html
-
-**Peter Eotvos, Hungarian Modernist Composer and Conductor, Dies at 80**\
-`A tireless advocate of contemporary music, he adapted literary sources both modern and classic, instilling his work with “inimitable character and pathos.”`\
-https://nytimes.com/2024/03/28/arts/music/peter-eotvos-dead.html
-
-**Outcry in France as Principal Steps Down Over Head Scarf Incident**\
-`A Paris school principal received online death threats after he was involved in an “altercation” with a Muslim student over her head scarf, sparking outrage in a country still scarred by the killing of two teachers.`\
-https://nytimes.com/2024/03/28/world/europe/paris-head-scarf-school.html
-
-**Trump’s Defense Team Argues First Amendment Prohibits Georgia Charges**\
-`Fulton County prosecutors say Donald J. Trump’s comments about the 2020 election were meant to advance a broad criminal scheme to overturn the election results.`\
-https://nytimes.com/2024/03/28/us/trump-georgia-hearing.html
 
