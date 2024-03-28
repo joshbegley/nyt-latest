@@ -1,3 +1,7 @@
+**Saudi Arabia, Lagging on Women’s Rights, Is to Lead U.N. Women’s Forum**\
+`Saudi Arabia will chair a United Nations commission on women, bringing condemnation from human rights groups, which said the kingdom still has an “abysmal” record on women’s rights.`\
+https://nytimes.com/2024/03/28/world/middleeast/saudi-arabia-un-women.html
+
 **Force of Ship Collision Was on the Scale of a Rocket Launch**\
 `A Times analysis used preliminary data to estimate the force of the impact on the Baltimore bridge. It involved “more energy than you can really get your mind around,” an expert said.`\
 https://nytimes.com/interactive/2024/03/28/upshot/baltimore-bridge-ship-force.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/the-collaps
 **Trump, Attending Wake of Slain N.Y.P.D. Officer, Pushes Campaign Message on Crime**\
 `Mr. Trump called the officer’s death a horrible tragedy and, as he often does on the trail, broadly called for a crackdown on violent crime without mentioning specific policies.`\
 https://nytimes.com/2024/03/28/us/politics/trump-nypd-officer-wake.html
-
-**How do you clear a collapsed bridge? A retired Navy expert in diving and salvage explains.**\
-`Capt. Dan Shultz commanded a team of Navy deep-sea divers who recovered bodies trapped by the collapse of a bridge in Minneapolis in 2007.`\
-https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/collapsed-bridge-recovery-navy
 

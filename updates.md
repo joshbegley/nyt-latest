@@ -1,3 +1,7 @@
+**Saudi Arabia, Lagging on Women’s Rights, Is to Lead U.N. Women’s Forum**\
+`Saudi Arabia will chair a United Nations commission on women, bringing condemnation from human rights groups, which said the kingdom still has an “abysmal” record on women’s rights.`\
+https://nytimes.com/2024/03/28/world/middleeast/saudi-arabia-un-women.html
+
 **Force of Ship Collision Was on the Scale of a Rocket Launch**\
 `A Times analysis used preliminary data to estimate the force of the impact on the Baltimore bridge. It involved “more energy than you can really get your mind around,” an expert said.`\
 https://nytimes.com/interactive/2024/03/28/upshot/baltimore-bridge-ship-force.html
