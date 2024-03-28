@@ -1,3 +1,7 @@
+**Robert Moskowitz, Abstract Painter of New York’s Skyscrapers, Dies at 88**\
+`He depicted the Empire State Building, the Flatiron Building and, most indelibly, the World Trade Center. Those paintings took on new meaning after 9/11.`\
+https://nytimes.com/2024/03/28/arts/robert-moskowitz-dead.html
+
 **17 New Books Coming in April**\
 `New novels from Emily Henry, Jo Piazza and Rachel Khong; a history of five ballerinas at the Dance Theater of Harlem; Salman Rushdie’s memoir and more.`\
 https://nytimes.com/2024/03/28/books/review/new-books-april.html

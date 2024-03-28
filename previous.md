@@ -1,3 +1,7 @@
+**Robert Moskowitz, Abstract Painter of New York’s Skyscrapers, Dies at 88**\
+`He depicted the Empire State Building, the Flatiron Building and, most indelibly, the World Trade Center. Those paintings took on new meaning after 9/11.`\
+https://nytimes.com/2024/03/28/arts/robert-moskowitz-dead.html
+
 **17 New Books Coming in April**\
 `New novels from Emily Henry, Jo Piazza and Rachel Khong; a history of five ballerinas at the Dance Theater of Harlem; Salman Rushdie’s memoir and more.`\
 https://nytimes.com/2024/03/28/books/review/new-books-april.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/world/europe/uk-civil-rights-asylum-rwanda.html
 **Send the Hosts of ‘Serial’ Season 4 Your Questions About the Podcast**\
 `As you listen to the new season, which features insider stories of life at Guantánamo Bay, share your questions with the hosts, Sarah Koenig and Dana Chivvis.`\
 https://nytimes.com/2024/03/28/podcasts/serial-guantanamo-submit-questions.html
-
-**Linda Bean, an L.L. Bean Heir and a Conservative Donor, Dies at 82**\
-`A granddaughter of the celebrated Maine brand’s founder, she set out as an entrepreneur in her mid-60s and used her wealth to fund right-wing causes.`\
-https://nytimes.com/2024/03/28/business/linda-bean-dead.html
 
