@@ -1,3 +1,7 @@
+**Sam Bankman-Fried Sentenced to 25 Years in Prison**\
+`Mr. Bankman-Fried, who was convicted of stealing $8 billion from customers of his FTX cryptocurrency exchange, faced a maximum sentence of 110 years.`\
+https://nytimes.com/2024/03/28/technology/sam-bankman-fried-sentenced.html
+
 **‘On the Adamant’ Review: A Psychiatric Facility on the Seine**\
 `This documentary by Nicolas Philibert drifts along, with unnamed patients and their caretakers, on a large houseboat in Paris.`\
 https://nytimes.com/2024/03/28/movies/on-the-adamant-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/arts/music/metro-boomin-songs.html
 **Live Like Karl**\
 `What happened when Karl Lagerfeld’s last residence, where he worked and where Choupette lived, was offered at auction.`\
 https://nytimes.com/2024/03/28/style/karl-lagerfeld-apartment-auction.html
-
-**What’s Going On in This Graph? | April 10, 2024**\
-`What do you notice about how electricity generation around the world is changing? What do you wonder?`\
-https://nytimes.com/2024/03/28/learning/whats-going-on-in-this-graph-april-10-2024.html
 
