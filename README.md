@@ -1,3 +1,7 @@
+**A Painter Inspired by Islamic Art and Rural New York Life**\
+`Uman’s vibrant abstract works, currently at Hauser & Wirth in London, are shaped by her childhood memories.`\
+https://nytimes.com/interactive/2024/03/28/t-magazine/uman-hauser-wirth.html
+
 **Justice Thomas Is a Kind Man. But His New Hire Raises Disturbing Questions.**\
 `Did his law clerk say she hates Black people? She needs to answer clearly.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/clarence-thomas-law-clerk
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/28/us/trump-biden-election/trump-attends-wake-f
 **‘La Chimera’ Review: A Treasure Trove**\
 `In her latest dreamy movie, the Italian director Alice Rohrwacher follows a tomb raider, played by Josh O’Connor, who’s pining for a lost love.`\
 https://nytimes.com/2024/03/28/movies/la-chimera-review-alice-rohrwacher.html
-
-**Germany’s Beloved Dachshund Could Be Threatened Under Breeding Bill**\
-`The bill would strengthen laws around dog breeding, but Germany’s kennel club worries that the legislation could lead to bans on several breeds.`\
-https://nytimes.com/2024/03/28/world/europe/dachshund-dog-breeding-ban-germany.html
 
