@@ -1,3 +1,7 @@
+**‘He Was My Baby Brother’: Relatives Mourn a Victim of the Bridge Collapse**\
+`Jose López, a father of two, saw his purpose in life as providing for his family, his brother said.`\
+https://nytimes.com/2024/03/28/us/bridge-collapse-victim-jovani-lopez.html
+
 **Vernor Vinge, Innovative Science Fiction Novelist, Dies at 79**\
 `He conceived an early version of cyberspace and predicted the “technological singularity,” a tipping point at which machines would become smarter than humans.`\
 https://nytimes.com/2024/03/28/books/vernor-vinge-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/dining/fish-tacos-nyc.html
 **How the Israel-Hamas War Has Roiled TikTok Internally**\
 `The video app has been criticized for how it has handled posts users see about the war. Some of the same tensions have also played out inside the company.`\
 https://nytimes.com/2024/03/28/business/tiktok-israel-hamas-war-gaza.html
-
-**Auto Industry Expects Minimal Disruption From Port Shutdown**\
-`Baltimore is a top destination for car shipments, but companies are finding ways to use other ports on the East Coast.`\
-https://nytimes.com/2024/03/28/us/auto-industry-port-baltimore-bridge.html
 
