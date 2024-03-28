@@ -1,3 +1,7 @@
+**How Sam Bankman-Fried’s Sentence Compares With Other White-Collar Cases**\
+`Here’s how the former crypto mogul’s 25-year sentence stacks up against the prosecutions of Michael Milken, Bernie Madoff and others.`\
+https://nytimes.com/2024/03/28/technology/sam-bankman-fried-white-collar-sentences.html
+
 **Sam Bankman-Fried Sentenced to 25 Years in Prison**\
 `Mr. Bankman-Fried, who was convicted of stealing $8 billion from customers of his FTX cryptocurrency exchange, faced a maximum sentence of 110 years.`\
 https://nytimes.com/2024/03/28/technology/sam-bankman-fried-sentenced.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/health/trisomy-18-abortion.html
 **Metro Boomin Is Headed to No. 1 (Again). Here’s a Guide to His Music.**\
 `The producer has helped shape rap for the past decade, providing moody beats for Atlanta’s biggest stars and beyond. His latest LP, with Future, arrived last week.`\
 https://nytimes.com/2024/03/28/arts/music/metro-boomin-songs.html
-
-**Live Like Karl**\
-`What happened when Karl Lagerfeld’s last residence, where he worked and where Choupette lived, was offered at auction.`\
-https://nytimes.com/2024/03/28/style/karl-lagerfeld-apartment-auction.html
 

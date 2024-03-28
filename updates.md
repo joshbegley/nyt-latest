@@ -1,3 +1,7 @@
+**Matt Schlapp Accuser Dropped Groping Lawsuit After a $480,000 Settlement**\
+`A Republican operative dropped the lawsuit against Mr. Schlapp, the head of one of the nation’s largest conservative advocacy groups, this week.`\
+https://nytimes.com/2024/03/28/us/politics/matt-schlapp-lawsuit-settlement.html
+
 **Sam Bankman-Fried Sentenced to 25 Years in Prison**\
 `Mr. Bankman-Fried, who was convicted of stealing $8 billion from customers of his FTX cryptocurrency exchange, faced a maximum sentence of 110 years.`\
 https://nytimes.com/2024/03/28/technology/sam-bankman-fried-sentenced.html
