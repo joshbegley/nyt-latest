@@ -1,3 +1,7 @@
+**Valentino Enters Its Alessandro Michele Era**\
+`Alessandro Michele, the designer who brought profits and plenty of buzz to Gucci, was just named creative director of Valentino.`\
+https://nytimes.com/2024/03/28/style/valentino-alessandro-michele.html
+
 **U.S. Officials Order Better Tracking of a Political Flashpoint: America’s Diversity**\
 `New survey questions in federal forms will draw a more detailed portrait of racial and ethnic origins. Officials point to the benefits, but the changes could face a conservative backlash.`\
 https://nytimes.com/2024/03/28/us/us-ethnicity-race-politics.html
