@@ -1,3 +1,7 @@
+**Taiwan’s Top Diplomat Says U.S. Aid to Ukraine Is Critical for Deterring China**\
+`Foreign Minister Joseph Wu said in an interview that a Russian victory could embolden China to move against Taiwan and would fuel anti-American propaganda.`\
+https://nytimes.com/2024/03/28/us/politics/taiwan-china-ukraine-aid.html
+
 **Film Club: ‘Island in Between’**\
 `What is life like for the Taiwanese people caught between two superpowers — China and the United States?`\
 https://nytimes.com/2024/03/28/learning/film-club-island-in-between.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/us/politics/house-republicans-impeachment-mayorka
 **Dal Is the Ultimate Comfort Food**\
 `Cheap, unfussy and adaptable, these lentils call up warming memories of home and family for many South Asians.`\
 https://nytimes.com/2024/03/28/dining/dal.html
-
-**A First Step Toward a Global Price on Carbon**\
-`A tax on ship emissions could have an impact on almost everything we buy`\
-https://nytimes.com/2024/03/28/climate/a-first-step-toward-a-global-price-on-carbon.html
 
