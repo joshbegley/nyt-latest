@@ -1,3 +1,7 @@
+**New York Will Test Gun-Detecting Technology in Subway System, Mayor Says**\
+`In the wake of a deadly attack in the system earlier this week, New York officials are searching for ways to make subway riders feel safer.`\
+https://nytimes.com/2024/03/28/nyregion/nyc-subway-gun-detector.html
+
 **Credit Card Swipe Fees Are Going Down. Are Points Going With Them?**\
 `A new agreement by Visa and Mastercard to reduce fees charged to merchants may drain the lucrative rewards that grant free travel to many credit card users.`\
 https://nytimes.com/2024/03/28/travel/loyalty-points-credit-card-fees.html
