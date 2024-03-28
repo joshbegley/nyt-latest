@@ -1,3 +1,7 @@
+**Health Concerns Mount for Migrant Children at Outdoor Holding Sites**\
+`A federal judge is expected to rule soon on whether the government must provide shelter, food and medical care to minors while they await processing.`\
+https://nytimes.com/2024/03/28/health/children-migrants-border-health.html
+
 **Trump on Obamacare: Still Ludicrous After All These Years**\
 `In truth, he has no plan to “fix” affordable health care.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/krugman-trump-obamacare

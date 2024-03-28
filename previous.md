@@ -1,3 +1,7 @@
+**Health Concerns Mount for Migrant Children at Outdoor Holding Sites**\
+`A federal judge is expected to rule soon on whether the government must provide shelter, food and medical care to minors while they await processing.`\
+https://nytimes.com/2024/03/28/health/children-migrants-border-health.html
+
 **Trump on Obamacare: Still Ludicrous After All These Years**\
 `In truth, he has no plan to “fix” affordable health care.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/krugman-trump-obamacare
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/science/delta-iv-heavy-rocket-final-launch.html
 **Old Newspaper Stories Offer Clues to 1868 Lake Michigan Shipwreck**\
 `It took researchers only two days to find the wreckage of the Milwaukee, a steamship that sank after colliding with another ship. They were guided by details from newspaper accounts of the accident.`\
 https://nytimes.com/2024/03/28/us/uss-milwaukee-shipwreck.html
-
-**Just How Wet Has California’s Rainy Season Been?**\
-`Before the season officially ends on Sunday, another storm is headed for the California coast.`\
-https://nytimes.com/2024/03/28/us/california-rainy-season.html
 
