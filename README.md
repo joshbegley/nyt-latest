@@ -1,3 +1,7 @@
+**Credit Card Swipe Fees Are Going Down. Are Points Going With Them?**\
+`A new agreement by Visa and Mastercard to reduce fees charged to merchants may drain the lucrative rewards that grant free travel to many credit card users.`\
+https://nytimes.com/2024/03/28/travel/loyalty-points-credit-card-fees.html
+
 **Biden Administration Restores Wildlife Protections Weakened Under Trump**\
 `The rules give federal officials more leeway to protect species in a changing climate. Industry groups are expected to sue.`\
 https://nytimes.com/2024/03/28/climate/endangered-species-rules-regulations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/us/politics/matt-schlapp-lawsuit-settlement.html
 **Ireland to Intervene in South Africa’s Genocide Case Against Israel at the World Court**\
 `Ireland did not outline the argument it planned to advance at the court, but the country’s lawmakers have made repeated calls to prioritize the protection of civilians in Gaza.`\
 https://nytimes.com/2024/03/28/world/middleeast/ireland-south-africa-israel-genocide-icj.html
-
-**Valentino Enters Its Alessandro Michele Era**\
-`Alessandro Michele, the designer who brought profits and plenty of buzz to Gucci, was just named creative director of Valentino.`\
-https://nytimes.com/2024/03/28/style/valentino-alessandro-michele.html
 
