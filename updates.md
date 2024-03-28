@@ -1,3 +1,11 @@
+**What We Know About Palestinians Detained in Israel**\
+`Since Oct. 7, Israel has detained thousands of Palestinians suspected of militant activity. Rights groups allege that Israel has abused some detainees or held them without charges.`\
+https://nytimes.com/2024/03/28/world/middleeast/palestinians-detained-in-israel.html
+
+**The World’s Unpopular Leaders**\
+`Why Biden isn’t alone with his low approval ratings.`\
+https://nytimes.com/2024/03/28/briefing/the-worlds-unpopular-leaders.html
+
 **28mideast-crisis**\
 `U.S. Says Israel Has Agreed to Reschedule Key Meeting`\
 https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news

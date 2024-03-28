@@ -1,3 +1,11 @@
+**What We Know About Palestinians Detained in Israel**\
+`Since Oct. 7, Israel has detained thousands of Palestinians suspected of militant activity. Rights groups allege that Israel has abused some detainees or held them without charges.`\
+https://nytimes.com/2024/03/28/world/middleeast/palestinians-detained-in-israel.html
+
+**The World’s Unpopular Leaders**\
+`Why Biden isn’t alone with his low approval ratings.`\
+https://nytimes.com/2024/03/28/briefing/the-worlds-unpopular-leaders.html
+
 **28mideast-crisis**\
 `U.S. Says Israel Has Agreed to Reschedule Key Meeting`\
 https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/26/opinion/thepoint/trump-republican-party-rnc
 **The Dali Is a Big Ship. But Not the Biggest.**\
 `The ship that crashed into the bridge in Baltimore holds barely half of what some of the largest container ships these days can carry — a sign of how huge the industry has become.`\
 https://nytimes.com/interactive/2024/03/28/business/economy/big-ship-dali-baltimore.html
-
-**The Many Ways Men’s Sweet 16 Players Are Being Paid**\
-`Every team in the Sweet 16 round has been touched by “name, image and likeness” rules, which allow student athletes to be paid for endorsements, appearances and other work.`\
-https://nytimes.com/interactive/2024/03/28/sports/ncaabasketball/march-madness-nil.html
-
-**Biden Administration Finalizes Rule Curbing Use of Short-Term Health Plans**\
-`The new regulation reverses a Trump-era policy that expanded access to health plans with fewer benefits than those sold on the Affordable Care Act’s marketplaces.`\
-https://nytimes.com/2024/03/28/us/politics/biden-short-term-health-plans.html
 
