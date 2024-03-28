@@ -1,3 +1,11 @@
+**When Sean Combs Was ‘Living the American Dream’**\
+`A restless ambition took him from hip-hop to the Met Gala, a reality show, a fashion label, a fragrance line and his own cable network. Then came the accusations and federal raids.`\
+https://nytimes.com/2024/03/28/style/diddy-sean-combs-fashion-revolt-tv.html
+
+**Is Social Media Stoking Anxiety About Street Crime in New York City?**\
+`Several young women have posted video accounts of being punched in the face by a stranger, touching off apprehension and concern.`\
+https://nytimes.com/2024/03/28/style/tiktok-women-punched-crime-nyc.html
+
 **Robinhood’s Credit Card Offers 3% Cash Back. Can It Last?**\
 `Charles Schwab stopped offering a 2 percent card years ago, and most banks don’t hand over more than 2 percent either.`\
 https://nytimes.com/2024/03/28/your-money/robinhood-rewards-credit-card.html
