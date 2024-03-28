@@ -1,3 +1,7 @@
+**The Five Minutes That Brought Down the Key Bridge**\
+`When a massive cargo ship lost power in Baltimore, crews scrambled to control the ship and to evacuate the bridge lying ahead. But it was too late.`\
+https://nytimes.com/2024/03/27/us/baltimore-bridge-collapse.html
+
 **U.S. Says Israel Has Agreed to Try to Reschedule Canceled Trip**\
 `Netanyahu’s office hasn’t confirmed it has any desire to make new plans.`\
 https://nytimes.com/2024/03/27/world/middleeast/netanyahu-meeting-ceasefire.html
