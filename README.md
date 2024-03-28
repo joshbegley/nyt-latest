@@ -1,3 +1,11 @@
+**Having Trouble With Your Homeowners Insurance? Tell Us.**\
+`Bills are soaring. Insurance companies are struggling. We want to hear how it’s affecting you.`\
+https://nytimes.com/2024/03/28/climate/homeowners-insurance-personal-stories.html
+
+**Friday Briefing: Sam Bankman-Fried Gets 25 Years**\
+`Plus, three video game adventures for the weekend.`\
+https://nytimes.com/2024/03/28/briefing/sam-bankman-fried-moscow-attack-migrant-children.html
+
 **‘He Was My Baby Brother’: Relatives Mourn a Victim of the Bridge Collapse**\
 `Jose López, a father of two, saw his purpose in life as providing for his family, his brother said.`\
 https://nytimes.com/2024/03/28/us/bridge-collapse-victim-jovani-lopez.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/28/business/linda-bean-dead.html
 **For John Eastman, the Sweet Smell of Accountability**\
 `Losing a law license is a fundamental penalty for trying to undermine the Constitution.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/john-eastman-disbarred
-
-**Searching for the Ideal Fish Taco**\
-`Cabbage, crema, pico de gallo and a spritz of lime, please?`\
-https://nytimes.com/2024/03/28/dining/fish-tacos-nyc.html
-
-**How the Israel-Hamas War Has Roiled TikTok Internally**\
-`The video app has been criticized for how it has handled posts users see about the war. Some of the same tensions have also played out inside the company.`\
-https://nytimes.com/2024/03/28/business/tiktok-israel-hamas-war-gaza.html
 
