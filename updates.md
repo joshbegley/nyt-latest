@@ -1,3 +1,7 @@
+**Why Russia’s Vast Security Services Fell Short on Deadly Attack**\
+`The factors behind the failure to prevent a terrorist attack include a distrust of foreign intelligence, a focus on Ukraine and a distracting political crackdown at home.`\
+https://nytimes.com/2024/03/28/world/europe/russia-concert-attack-security-failures.html
+
 **Stephen Colbert Recaps the Ronna McDaniel Drama at NBC**\
 `“In case you’re unfamiliar with McDaniel, she is terrible,” Stephen Colbert said of the former Republican National Committee chairwoman.`\
 https://nytimes.com/2024/03/28/arts/television/late-night-trump-bible.html
