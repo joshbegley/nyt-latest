@@ -1,3 +1,7 @@
+**How do you clear a collapsed bridge? A retired Navy expert in diving and salvage explains.**\
+`Capt. Dan Shultz commanded a team of Navy deep-sea divers who recovered bodies trapped by the collapse of a bridge in Minneapolis in 2007.`\
+https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/collapsed-bridge-recovery-navy
+
 **‘Cataclysmic Situation’ in Haiti Leaves 1,500 Dead in Gang Violence**\
 `The United Nations on Thursday said poor governance and increasing levels of gang violence had brought state institutions “close to collapse.”`\
 https://nytimes.com/2024/03/28/world/americas/haiti-gang-violence-dead.html
