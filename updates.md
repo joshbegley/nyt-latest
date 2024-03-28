@@ -1,3 +1,7 @@
+**The Five Minutes That Brought Down the Francis Scott Key Bridge**\
+`When a massive cargo ship lost power in Baltimore, crews scrambled to control the ship and to evacuate the bridge lying ahead. But it was too late.`\
+https://nytimes.com/2024/03/27/us/baltimore-bridge-collapse.html
+
 **Trump Spreads Apparent Hoax in Attacking Judge’s Daughter**\
 `Donald Trump said a photo of him behind bars on Loren Merchan’s X account meant he could not get a fair trial, but a court official said someone had appropriated the account.`\
 https://nytimes.com/2024/03/27/nyregion/trump-social-media-attack.html
