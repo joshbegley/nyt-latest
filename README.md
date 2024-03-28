@@ -1,3 +1,7 @@
+**28mideast-crisis**\
+`U.S. Says Israel Has Agreed to Reschedule Key Meeting`\
+https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news
+
 **Crisis-Hit British Museum Gets New Leader**\
 `Nicholas Cullinan will take over the London institution as it faces multiple challenges.`\
 https://nytimes.com/2024/03/28/arts/design/british-museum-nicholas-cullinan.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/28/sports/ncaabasketball/march-madness-n
 **Biden Administration Finalizes Rule Curbing Use of Short-Term Health Plans**\
 `The new regulation reverses a Trump-era policy that expanded access to health plans with fewer benefits than those sold on the Affordable Care Act’s marketplaces.`\
 https://nytimes.com/2024/03/28/us/politics/biden-short-term-health-plans.html
-
-**On the Upper West Side, a Good Kitchen and Room to Grow: Which Home Did They Choose?**\
-`Looking to explore a new neighborhood in Manhattan and create a better work setup, a couple embarked on a search for a prewar two-bedroom.`\
-https://nytimes.com/interactive/2024/03/28/realestate/28hunt-schwartz.html
 
