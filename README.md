@@ -16,7 +16,7 @@ https://nytimes.com/2024/03/28/us/politics/matt-schlapp-lawsuit-settlement.html
 
 **Ireland will intervene in South Africa’s genocide case against Israel at the top U.N. court.**\
 `By Megan Specia`\
-https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news/ireland-will-intervene-in-south-africas-genocide-case-against-israel-at-the-top-un-court
+https://nytimes.com/2024/03/28/world/middleeast/ireland-south-africa-israel-genocide-icj.html
 
 **Valentino Enters Its Alessandro Michele Era**\
 `Alessandro Michele, the designer who brought profits and plenty of buzz to Gucci, was just named creative director of Valentino.`\
