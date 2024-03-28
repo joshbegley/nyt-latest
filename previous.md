@@ -1,3 +1,7 @@
+**As Relations Thaw, China Lifts Tariffs on Australian Wine**\
+`Despite its thirst for Australian wine, China had taxed the imports in 2020 over a dispute about Covid-19. The nations came closer again last year.`\
+https://nytimes.com/2024/03/28/business/china-australia-wine-tariffs.html
+
 **Walking Away**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2024/03/28/learning/walking-away.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/nyregion/albany-capitol-staircase.html
 **Today’s Wordle Review**\
 `In case you need some puzzle help.`\
 https://nytimes.com/2024/03/28/crosswords/wordle-review.html
-
-**Why Russia’s Vast Security Services Fell Short on Deadly Attack**\
-`The factors behind the failure to prevent a terrorist attack include a distrust of foreign intelligence, a focus on Ukraine and a distracting political crackdown at home.`\
-https://nytimes.com/2024/03/28/world/europe/russia-concert-attack-security-failures.html
 
