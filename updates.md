@@ -1,3 +1,11 @@
+**How Sam Bankman-Fried’s Sentence Compares With Other White-Collar Cases**\
+`Here’s how the former crypto mogul’s 25-year sentence stacks up against the prosecutions of Michael Milken, Bernie Madoff and others.`\
+https://nytimes.com/2024/03/28/technology/sam-bankman-fried-white-collar-sentences.html
+
+**Ireland will intervene in South Africa’s genocide case against Israel at the top U.N. court.**\
+`By Megan Specia`\
+https://nytimes.com/2024/03/28/world/middleeast/ireland-south-africa-israel-genocide-icj.html
+
 **Matt Schlapp Accuser Dropped Groping Lawsuit After a $480,000 Settlement**\
 `A Republican operative dropped the lawsuit against Mr. Schlapp, the head of one of the nation’s largest conservative advocacy groups, this week.`\
 https://nytimes.com/2024/03/28/us/politics/matt-schlapp-lawsuit-settlement.html
