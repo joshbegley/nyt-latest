@@ -11,7 +11,7 @@ https://nytimes.com/2024/03/28/arts/design/kathe-kollwitz-moma-prints-art.html
 https://nytimes.com/2024/03/28/us/jail-visits-ban-michigan-lawsuit.html
 
 **A Fiery Finale for a Rocket That Brings the Heat**\
-`The Delta IV, a rocket that briefly bursts into flame just before it lifts off, is set to launch for the last time on Thursday.`\
+`The Delta IV Heavy, a rocket that briefly bursts into flame just before it lifts off, is set to launch for the last time on Thursday.`\
 https://nytimes.com/2024/03/28/science/delta-iv-heavy-rocket-final-launch.html
 
 **Old Newspaper Stories Offer Clues to 1868 Lake Michigan Shipwreck**\
