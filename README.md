@@ -1,3 +1,7 @@
+**What Happens to the Stories of Ukrainian Lives?**\
+`Every refugee has a tale to tell. But they need listeners.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/ukraine-refugees-oral-history
+
 **New York Will Test Gun-Detecting Technology in Subway System, Mayor Says**\
 `In the wake of a deadly attack in the system earlier this week, New York officials are searching for ways to make subway riders feel safer.`\
 https://nytimes.com/2024/03/28/nyregion/nyc-subway-gun-detector.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/technology/sam-bankman-fried-sentenced.html
 **‘On the Adamant’ Review: A Psychiatric Facility on the Seine**\
 `This documentary by Nicolas Philibert drifts along, with unnamed patients and their caretakers, on a large houseboat in Paris.`\
 https://nytimes.com/2024/03/28/movies/on-the-adamant-review.html
-
-**Matt Schlapp Accuser Dropped Groping Lawsuit After a $480,000 Settlement**\
-`A Republican operative dropped the lawsuit against Mr. Schlapp, the head of one of the nation’s largest conservative advocacy groups, this week.`\
-https://nytimes.com/2024/03/28/us/politics/matt-schlapp-lawsuit-settlement.html
 
