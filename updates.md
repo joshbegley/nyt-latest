@@ -1,3 +1,11 @@
+**How the Israel-Hamas War Has Roiled TikTok Internally**\
+`The video app has been criticized for how it has handled posts users see about the war. Some of the same tensions have also played out inside the company.`\
+https://nytimes.com/2024/03/28/business/tiktok-israel-hamas-war-gaza.html
+
+**Auto Industry Expects Minimal Disruption From Port Shutdown**\
+`Baltimore is a top destination for car shipments, but companies are finding ways to use other ports on the East Coast.`\
+https://nytimes.com/2024/03/28/us/auto-industry-port-baltimore-bridge.html
+
 **Officials Say Hazardous Material Aboard Crashed Ship Poses No Threat**\
 `Two containers fell into the water and were missing, but neither contained hazardous materials, the Coast Guard said.`\
 https://nytimes.com/2024/03/28/us/hazardous-material-dali-ship-baltimore.html
