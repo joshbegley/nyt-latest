@@ -1,3 +1,11 @@
+**Justice Thomas is a Kind Man. But His New Hire Raises Disturbing Questions.**\
+`Did his law clerk say she hates Black people? She needs to answer clearly.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/clarence-thomas-law-clerk
+
+**The Judge Cracks Down**\
+`Justice Juan Merchan has warned Donald Trump and his lawyers to be on good behavior during the hush-money trial.`\
+https://nytimes.com/2024/03/28/us/politics/trump-trial-hush-money-judge-merchan.html
+
 **Peter Eotvos, Hungarian Modernist Composer and Conductor, Dies at 80**\
 `A tireless advocate of contemporary music, he adapted literary sources both modern and classic, instilling his work with “inimitable character and pathos.”`\
 https://nytimes.com/2024/03/28/arts/music/peter-eotvos-dead.html

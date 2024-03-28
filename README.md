@@ -1,4 +1,4 @@
-**Justice Thomas is a Kind Man. But His New Hire Raises Disturbing Questions.**\
+**Justice Thomas Is a Kind Man. But His New Hire Raises Disturbing Questions.**\
 `Did his law clerk say she hates Black people? She needs to answer clearly.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/clarence-thomas-law-clerk
 

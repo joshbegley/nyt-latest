@@ -1,3 +1,11 @@
+**Justice Thomas is a Kind Man. But His New Hire Raises Disturbing Questions.**\
+`Did his law clerk say she hates Black people? She needs to answer clearly.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/clarence-thomas-law-clerk
+
+**The Judge Cracks Down**\
+`Justice Juan Merchan has warned Donald Trump and his lawyers to be on good behavior during the hush-money trial.`\
+https://nytimes.com/2024/03/28/us/politics/trump-trial-hush-money-judge-merchan.html
+
 **Peter Eotvos, Hungarian Modernist Composer and Conductor, Dies at 80**\
 `A tireless advocate of contemporary music, he adapted literary sources both modern and classic, instilling his work with “inimitable character and pathos.”`\
 https://nytimes.com/2024/03/28/arts/music/peter-eotvos-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/28/movies/la-chimera-review-alice-rohrwacher.html
 **Germany’s Beloved Dachshund Could Be Threatened Under Breeding Bill**\
 `The bill would strengthen laws around dog breeding, but Germany’s kennel club worries that the legislation could lead to bans on several breeds.`\
 https://nytimes.com/2024/03/28/world/europe/dachshund-dog-breeding-ban-germany.html
-
-**New Senate Leadership Tussle Is a Throwback to the Old Days**\
-`Current Senate leaders haven’t had to fight too hard for their jobs, but Republicans now face a real contest to replace Mitch McConnell.`\
-https://nytimes.com/2024/03/28/us/politics/senate-leadership-fight.html
-
-**Our 7th Annual Student Podcast Contest**\
-`We invite students to create an original podcast of five minutes or less that informs or entertains. Contest dates: April 17 to May 15.`\
-https://nytimes.com/2024/03/28/learning/our-7th-annual-student-podcast-contest.html
 
