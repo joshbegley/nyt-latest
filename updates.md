@@ -1,3 +1,11 @@
+**Crisis-Hit British Museum Gets New Leader**\
+`Nicholas Cullinan will take over the London institution as it faces multiple challenges.`\
+https://nytimes.com/2024/03/28/arts/design/british-museum-nicholas-cullinan.html
+
+**Inside the Scramble to Evacuate the Bridge, and an Investigation Into Boeing’s Safety Record**\
+`Plus, the man who was nearly vice president.`\
+https://nytimes.com/2024/03/28/podcasts/bridge-investigation-boeings.html
+
 **The Newest Tech Start-Up Billionaire? Donald Trump**\
 `Trump Media, which went public this week, attracted a frenzy of interest on its first day of trading.`\
 https://nytimes.com/2024/03/28/podcasts/the-daily/trump-tech.html
