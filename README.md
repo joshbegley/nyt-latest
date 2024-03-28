@@ -1,3 +1,11 @@
+**Just How Wet Has California’s Rainy Season Been?**\
+`Before the season officially ends on Sunday, another storm is headed for the California coast.`\
+https://nytimes.com/2024/03/28/us/california-rainy-season.html
+
+**Artisanal Cement Tiles Inspired by Modernist Homes**\
+`Plus: a Venetian retreat, hand-knotted rugs and more recommendations from T Magazine.`\
+https://nytimes.com/2024/03/28/t-magazine/modernist-cement-zia-tile.html
+
 **U.C. Berkeley Parents Hired Private Security to Patrol Near Campus**\
 `The parents were worried about crime, but the university said that the move raised concerns about training and experience, and that security was better left to its own police force.`\
 https://nytimes.com/2024/03/28/us/uc-berkeley-private-security.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/28/movies/the-beautiful-game-review.html
 **‘Asphalt City’ Review: Arbiters of Life and Death**\
 `Sean Penn plays a flinty paramedic showing a rookie the ropes in this maddening drama about emergency medical workers in New York.`\
 https://nytimes.com/2024/03/28/movies/asphalt-city-review.html
-
-**What We Know About Palestinians Detained in Israel**\
-`Since Oct. 7, Israel has detained thousands of Palestinians suspected of militant activity. Rights groups allege that Israel has abused some detainees or held them without charges.`\
-https://nytimes.com/2024/03/28/world/middleeast/palestinians-detained-in-israel.html
-
-**The World’s Unpopular Leaders**\
-`Why Biden isn’t alone with his low approval ratings.`\
-https://nytimes.com/2024/03/28/briefing/biden-approval-ratings-world-leaders.html
 
