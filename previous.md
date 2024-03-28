@@ -1,4 +1,8 @@
-**The ship that crashed had been cited for faulty gauges, but those gauges were changed, an inspection official said.**\
+**The Rent Was Too High So They Threw a Party**\
+`During the Harlem Renaissance, some Black people hosted rent parties, celebrations with an undercurrent of desperation in the face of racism and discrimination.`\
+https://nytimes.com/interactive/2024/03/28/realestate/rent-party-harlem-renaissance.html
+
+**The ship had been cited for faulty gauges, but they were changed, an official said.**\
 `By Peter Eavis and John Bartlett`\
 https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/the-ship-that-crashed-had-been-cited-for-faulty-gauges-but-those-gauges-were-changed-an-inspection-official-said
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/opinion/liberalism-authoritarianism-trump.html
 **Dozens Killed in South Africa Bus Crash**\
 `The bus was carrying people to an Easter church service when it fell off a bridge and plunged 165 feet into a ravine.`\
 https://nytimes.com/video/world/africa/100000009386941/bus-crash-south-africa.html
-
-**On opening day for the Orioles, the mood was both hopeful and somber.**\
-`By Billy Witz`\
-https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/on-opening-day-for-the-orioles-the-mood-was-both-hopeful-and-somber
 
