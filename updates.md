@@ -1,3 +1,7 @@
+**Life Magazine Will Come Back to, Well, Life**\
+`The investor Josh Kushner and his wife, Karlie Kloss, have struck a deal with Barry Diller’s media company to revive it as a regular print title.`\
+https://nytimes.com/2024/03/28/business/dealbook/life-magazine-kushner-kloss-diller.html
+
 **Three Great Documentaries to Stream**\
 `Ethan Coen’s survey of a rock ’n’ roll icon, Frederick Wiseman’s take on haute cuisine and a searing portrait of PTSD are this month’s picks.`\
 https://nytimes.com/2024/03/28/movies/three-great-documentaries-to-stream.html

@@ -1,3 +1,7 @@
+**Life Magazine Will Come Back to, Well, Life**\
+`The investor Josh Kushner and his wife, Karlie Kloss, have struck a deal with Barry Diller’s media company to revive it as a regular print title.`\
+https://nytimes.com/2024/03/28/business/dealbook/life-magazine-kushner-kloss-diller.html
+
 **Three Great Documentaries to Stream**\
 `Ethan Coen’s survey of a rock ’n’ roll icon, Frederick Wiseman’s take on haute cuisine and a searing portrait of PTSD are this month’s picks.`\
 https://nytimes.com/2024/03/28/movies/three-great-documentaries-to-stream.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news
 **Crisis-Hit British Museum Gets New Leader**\
 `Nicholas Cullinan will take over the London institution as it faces multiple challenges.`\
 https://nytimes.com/2024/03/28/arts/design/british-museum-nicholas-cullinan.html
-
-**Inside the Scramble to Evacuate the Bridge, and an Investigation Into Boeing’s Safety Record**\
-`Plus, the man who was nearly vice president.`\
-https://nytimes.com/2024/03/28/podcasts/bridge-investigation-boeings.html
 
