@@ -1,3 +1,19 @@
+**Government Clampdowns on Social Media Are Not the Answer**\
+`But there is a problem.`\
+https://nytimes.com/2024/03/28/opinion/social-media-government-jonathan-haidt.html
+
+**Fighting Rages Around Two Gaza Hospitals as Pressure on Israel Rises**\
+`Israeli forces are battling to retake areas they had already seized, showing the militants’ resilience, as critics call for less destructive tactics in the war.`\
+https://nytimes.com/2024/03/28/world/middleeast/gaza-shifa-hospital-israel-hostages.html
+
+**Bidenomics Is Making China Angry. That’s OK.**\
+`Trump talked tough, but Biden is wielding a big stick.`\
+https://nytimes.com/2024/03/28/opinion/biden-trump-china.html
+
+**The Great Struggle for Liberalism**\
+`Liberal democratic capitalism isn’t some set of abstract ideas. It’s a means to a richer, fuller and more dynamic life.`\
+https://nytimes.com/2024/03/28/opinion/liberalism-authoritarianism-trump.html
+
 **Dozens Killed in South Africa Bus Crash**\
 `The bus was carrying people to an Easter church service when it fell off a bridge and plunged 165 feet into a ravine.`\
 https://nytimes.com/video/world/africa/100000009386941/bus-crash-south-africa.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/collapsed-b
 **‘Cataclysmic Situation’ in Haiti Leaves 1,500 Dead in Gang Violence**\
 `The United Nations on Thursday said poor governance and increasing levels of gang violence had brought state institutions “close to collapse.”`\
 https://nytimes.com/2024/03/28/world/americas/haiti-gang-violence-dead.html
-
-**Sam Bankman-Fried Was Sentenced to 25 Years in Prison**\
-`Also, Biden called on his predecessors to help him raise funds. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/03/28/briefing/sam-bankman-fried-25-years-biden-fund-raiser.html
-
-**8 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/03/28/books/review/new-books-recommendations.html
-
-**8-Year-Old Survives Bus Plunge Off Bridge That Left 45 People Dead**\
-`The bus, which was carrying people from Botswana to an Easter weekend pilgrimage in South Africa, fell 165 feet into a ravine.`\
-https://nytimes.com/2024/03/28/world/africa/south-africa-bus-crash.html
-
-**Robert Moskowitz, Abstract Painter of New York’s Skyscrapers, Dies at 88**\
-`He depicted the Empire State Building, the Flatiron Building and, most indelibly, the World Trade Center. Those paintings took on new meaning after 9/11.`\
-https://nytimes.com/2024/03/28/arts/robert-moskowitz-dead.html
 

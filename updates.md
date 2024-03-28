@@ -1,3 +1,19 @@
+**Government Clampdowns on Social Media Are Not the Answer**\
+`But there is a problem.`\
+https://nytimes.com/2024/03/28/opinion/social-media-government-jonathan-haidt.html
+
+**Fighting Rages Around Two Gaza Hospitals as Pressure on Israel Rises**\
+`Israeli forces are battling to retake areas they had already seized, showing the militants’ resilience, as critics call for less destructive tactics in the war.`\
+https://nytimes.com/2024/03/28/world/middleeast/gaza-shifa-hospital-israel-hostages.html
+
+**Bidenomics Is Making China Angry. That’s OK.**\
+`Trump talked tough, but Biden is wielding a big stick.`\
+https://nytimes.com/2024/03/28/opinion/biden-trump-china.html
+
+**The Great Struggle for Liberalism**\
+`Liberal democratic capitalism isn’t some set of abstract ideas. It’s a means to a richer, fuller and more dynamic life.`\
+https://nytimes.com/2024/03/28/opinion/liberalism-authoritarianism-trump.html
+
 **8-Year-Old Survives Bus Plunge Off Bridge That Left 45 People Dead**\
 `The bus, which was carrying people from Botswana to an Easter weekend pilgrimage in South Africa, fell 165 feet into a ravine.`\
 https://nytimes.com/2024/03/28/world/africa/south-africa-bus-crash.html
