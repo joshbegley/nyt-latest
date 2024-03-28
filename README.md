@@ -1,3 +1,7 @@
+**The Newest Tech Start-Up Billionaire? Donald Trump**\
+`Trump Media, which went public this week, attracted a frenzy of interest on its first day of trading.`\
+https://nytimes.com/2024/03/28/podcasts/the-daily/trump-tech.html
+
 **Here is the latest.**\
 `By Victoria Kim`\
 https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/here-is-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/28/books/review/literary-allusions-quiz.
 **4 Takeaways About Boeing’s Quality Problems**\
 `The company’s issues date back years, employees said, and were compounded by the pandemic, when it lost thousands of experienced workers.`\
 https://nytimes.com/2024/03/28/business/boeing-quality-takeaways.html
-
-**Before Beyoncé:**\
-`Black Artists Who Crossed Over to Country`\
-https://nytimes.com/2024/03/28/podcasts/culture-desk-beyonce-country-crossover.html
 
