@@ -1,3 +1,7 @@
+**Stephen Colbert Recaps the Ronna McDaniel Drama at NBC**\
+`“In case you’re unfamiliar with McDaniel, she is terrible,” Stephen Colbert said of the former Republican National Committee chairwoman.`\
+https://nytimes.com/2024/03/28/arts/television/late-night-trump-bible.html
+
 **Key Bridge Was Also Hit by a Ship in 1980, With Limited Damage**\
 `That year, a cargo vessel moving at about the same speed as the Dali hit the structure after losing control. But such ships were smaller then.`\
 https://nytimes.com/2024/03/28/us/baltimore-bridge-ship-crash-1980.html

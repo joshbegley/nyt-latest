@@ -1,3 +1,7 @@
+**Stephen Colbert Recaps the Ronna McDaniel Drama at NBC**\
+`“In case you’re unfamiliar with McDaniel, she is terrible,” Stephen Colbert said of the former Republican National Committee chairwoman.`\
+https://nytimes.com/2024/03/28/arts/television/late-night-trump-bible.html
+
 **Key Bridge Was Also Hit by a Ship in 1980, With Limited Damage**\
 `That year, a cargo vessel moving at about the same speed as the Dali hit the structure after losing control. But such ships were smaller then.`\
 https://nytimes.com/2024/03/28/us/baltimore-bridge-ship-crash-1980.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/27/pageoneplus/quotation-of-the-day-one-grieving-mot
 **Friends, Allies and Even Former Rivals Eulogize Joseph Lieberman**\
 `Al Gore, his running mate in the 2000 election, called him “a truly gifted leader, whose affable personality and strong will made him a force to be reckoned with.”`\
 https://nytimes.com/2024/03/27/us/politics/reactions-joe-lieberman-death.html
-
-**Between May and December**\
-`Dominic Grillo takes me back to my childhood.`\
-https://nytimes.com/2024/03/27/crosswords/daily-puzzle-2024-03-28.html
 
