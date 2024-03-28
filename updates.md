@@ -1,3 +1,7 @@
+**The Newest Tech Start-Up Billionaire? Donald Trump**\
+`Trump Media, which went public this week, attracted a frenzy of interest on its first day of trading.`\
+https://nytimes.com/2024/03/28/podcasts/the-daily/trump-tech.html
+
 **Here is the latest.**\
 `By Victoria Kim`\
 https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/here-is-the-latest
