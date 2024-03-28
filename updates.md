@@ -1,3 +1,7 @@
+**Battles rage at two hospitals in Gaza, as aid organizations sound the alarm for patients.**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news/battles-rage-at-two-hospitals-in-gaza-as-aid-organizations-sound-the-alarm-for-patients
+
 **Life Magazine Will Come Back to, Well, Life**\
 `The investor Josh Kushner and his wife, Karlie Kloss, have struck a deal with Barry Diller’s media company to revive it as a regular print title.`\
 https://nytimes.com/2024/03/28/business/dealbook/life-magazine-kushner-kloss-diller.html
