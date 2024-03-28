@@ -1,3 +1,7 @@
+**Trump attends wake for slain N.Y.P.D. officer.**\
+`By Maggie Haberman, William K. Rashbaum and Michael Gold`\
+https://nytimes.com/live/2024/03/28/us/trump-biden-election/trump-attends-wake-for-slain-nypd-officer
+
 **‘La Chimera’ Review: A Treasure Trove**\
 `In her latest dreamy movie, the Italian director Alice Rohrwacher follows a tomb raider, played by Josh O’Connor, who’s pining for a lost love.`\
 https://nytimes.com/2024/03/28/movies/la-chimera-review-alice-rohrwacher.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/style/diddy-sean-combs-fashion-revolt-tv.html
 **Is Social Media Stoking Anxiety About Street Crime in New York City?**\
 `Several young women have posted video accounts of being punched in the face by a stranger, touching off apprehension and concern.`\
 https://nytimes.com/2024/03/28/style/tiktok-women-punched-crime-nyc.html
-
-**Robinhood’s Credit Card Offers 3% Cash Back. Can It Last?**\
-`Charles Schwab stopped offering a 2 percent card years ago, and most banks don’t hand over more than 2 percent either.`\
-https://nytimes.com/2024/03/28/your-money/robinhood-rewards-credit-card.html
 
