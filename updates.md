@@ -1,3 +1,7 @@
+**A Fiery Finale for a Rocket That Brings the Heat**\
+`The Delta IV Heavy, a rocket that briefly bursts into flame just before it lifts off, is set to launch for the last time on Thursday.`\
+https://nytimes.com/2024/03/28/science/delta-iv-heavy-rocket-final-launch.html
+
 **Biden Will Campaign Alongside Bill Clinton and Barack Obama**\
 `The star-studded event in New York City is aimed at building on the already significant financial advantage President Biden has over former President Donald J. Trump.`\
 https://nytimes.com/2024/03/28/us/politics/obama-biden-clinton.html
