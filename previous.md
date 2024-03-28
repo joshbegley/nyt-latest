@@ -10,7 +10,7 @@ https://nytimes.com/2024/03/27/nyregion/trump-social-media-attack.html
 `The decision was only the latest effort by bar officials to seek accountability against a group of lawyers who sought to help President Donald J. Trump stay in office despite his election loss.`\
 https://nytimes.com/2024/03/27/us/politics/john-eastman-trump-lawyer.html
 
-**Officials Identify 2 Bridge Collapse Victims by I.D. and Fingerprint**\
+**Officials Identify 2 Bridge Collapse Victims by ID and Fingerprint**\
 `Divers found the men, Alejandro Hernandez Fuentes, 35, and Dorlian Ronial Castillo Cabrera, 26, in a truck under the wreckage. Four workers were still missing.`\
 https://nytimes.com/2024/03/27/us/victims-bodies-recovered.html
 

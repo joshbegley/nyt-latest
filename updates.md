@@ -1,3 +1,7 @@
+**Officials Identify 2 Bridge Collapse Victims by ID and Fingerprint**\
+`Divers found the men, Alejandro Hernandez Fuentes, 35, and Dorlian Ronial Castillo Cabrera, 26, in a truck under the wreckage. Four workers were still missing.`\
+https://nytimes.com/2024/03/27/us/victims-bodies-recovered.html
+
 **Between May and December**\
 `Dominic Grillo takes me back to my childhood.`\
 https://nytimes.com/2024/03/27/crosswords/daily-puzzle-2024-03-28.html
