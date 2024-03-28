@@ -1,3 +1,11 @@
+**Answers to All Your Burning Questions About Sunscreen**\
+`How much SPF is enough? Is mineral better than chemical? We’ve got you covered.`\
+https://nytimes.com/2024/03/28/well/live/sunscreen-spf-safety-explainer.html
+
+**Man Is Charged With Murder in Fatal Shooting of N.Y.P.D. Officer**\
+`Guy Rivera killed Officer Jonathan Diller during a traffic stop, the police said. Mr. Rivera was also charged with attempted murder for aiming his gun at a second officer, the authorities said.`\
+https://nytimes.com/2024/03/28/nyregion/nypd-officer-shooting-charges-rivera.html
+
 **When Sean Combs Was ‘Living the American Dream’**\
 `A restless ambition took him from hip-hop to the Met Gala, a reality show, a fashion label, a fragrance line and his own cable network. Then came the accusations and federal raids.`\
 https://nytimes.com/2024/03/28/style/diddy-sean-combs-fashion-revolt-tv.html
