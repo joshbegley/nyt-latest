@@ -1,3 +1,7 @@
+**Here is the latest.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/here-is-the-latest
+
 **The Overlooked Truths About Biden’s Age**\
 `The president is a decision maker, not an action figure.`\
 https://nytimes.com/2024/03/28/opinion/joe-biden-age-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/business/boeing-quality-takeaways.html
 **Before Beyoncé:**\
 `Black Artists Who Crossed Over to Country`\
 https://nytimes.com/2024/03/28/podcasts/culture-desk-beyonce-country-crossover.html
-
-**Sparing Chickens Before They Hatch**\
-`Most Americans are unaware that hundreds of millions of male chicks are killed in U.S. hatcheries each year. New technology could change that.`\
-https://nytimes.com/2024/03/28/climate/chickens-egg-industry-humane.html
 
