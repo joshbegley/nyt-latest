@@ -1,3 +1,7 @@
+**4 Presidents, 2 Events and a Preview of Campaign Clashes to Come**\
+`President Biden is raising $25 million at a Radio City Music Hall event, adding to his huge cash edge, after Donald Trump pushed his law-and-order message at a wake for a police officer killed on duty.`\
+https://nytimes.com/2024/03/28/us/politics/biden-clinton-obama-trump-nyc.html
+
 **Saudi Arabia, Lagging on Women’s Rights, Is to Lead U.N. Women’s Forum**\
 `Saudi Arabia will chair a United Nations commission on women, bringing condemnation from human rights groups, which said the kingdom still has an “abysmal” record on women’s rights.`\
 https://nytimes.com/2024/03/28/world/middleeast/saudi-arabia-un-women.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/on-opening-
 **The collapse is unlikely to affect Baltimore’s vital seafood industry.**\
 `By Christina Morales`\
 https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/the-collapse-is-unlikely-to-affect-baltimores-vital-seafood-industry
-
-**Trump, Attending Wake of Slain N.Y.P.D. Officer, Pushes Campaign Message on Crime**\
-`Mr. Trump called the officer’s death a horrible tragedy and, as he often does on the trail, broadly called for a crackdown on violent crime without mentioning specific policies.`\
-https://nytimes.com/2024/03/28/us/politics/trump-nypd-officer-wake.html
 
