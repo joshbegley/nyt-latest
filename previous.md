@@ -1,3 +1,7 @@
+**The ship that crashed had been cited for faulty gauges, but those gauges were changed, an inspection official said.**\
+`By Peter Eavis and John Bartlett`\
+https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/the-ship-that-crashed-had-been-cited-for-faulty-gauges-but-those-gauges-were-changed-an-inspection-official-said
+
 **4 Presidents, 2 Events and a Preview of Campaign Clashes to Come**\
 `President Biden is raising $25 million at a Radio City Music Hall event, adding to his huge cash edge, after Donald Trump pushed his law-and-order message at a wake for a police officer killed on duty.`\
 https://nytimes.com/2024/03/28/us/politics/biden-clinton-obama-trump-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/africa/100000009386941/bus-crash-south-africa.ht
 **On opening day for the Orioles, the mood was both hopeful and somber.**\
 `By Billy Witz`\
 https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/on-opening-day-for-the-orioles-the-mood-was-both-hopeful-and-somber
-
-**The collapse is unlikely to affect Baltimore’s vital seafood industry.**\
-`By Christina Morales`\
-https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/the-collapse-is-unlikely-to-affect-baltimores-vital-seafood-industry
 
