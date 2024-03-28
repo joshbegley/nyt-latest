@@ -1,3 +1,7 @@
+**Valentino Enters Its Alessandro Michele Era**\
+`Alessandro Michele, the designer who brought profits and plenty of buzz to Gucci, was just named creative director of Valentino.`\
+https://nytimes.com/2024/03/28/style/valentino-alessandro-michele.html
+
 **U.S. Officials Order Better Tracking of a Political Flashpoint: America’s Diversity**\
 `New survey questions in federal forms will draw a more detailed portrait of racial and ethnic origins. Officials point to the benefits, but the changes could face a conservative backlash.`\
 https://nytimes.com/2024/03/28/us/us-ethnicity-race-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/26/opinion/thepoint/krugman-trump-obamacare
 **The Last Coal-Fired Power Plants in New England Are to Close**\
 `The company that owns the Merrimack and Schiller stations in New Hampshire plans to turn them into solar farms and battery storage for offshore wind.`\
 https://nytimes.com/2024/03/28/climate/new-england-coal-plants.html
-
-**Netanyahu has ‘abandoned’ Israel’s captive soldiers, their relatives say.**\
-`By Cassandra Vinograd and Rawan Sheikh Ahmad`\
-https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news/netanyahu-has-abandoned-israels-captive-soldiers-their-relatives-say
 
