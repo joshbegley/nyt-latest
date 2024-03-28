@@ -1,3 +1,11 @@
+**Trump Spreads Apparent Hoax in Attacking Judge’s Daughter**\
+`Donald Trump said a photo of him behind bars on Loren Merchan’s X account meant he could not get a fair trial, but a court official said someone had appropriated the account.`\
+https://nytimes.com/2024/03/27/nyregion/trump-social-media-attack.html
+
+**John Eastman Should Lose Law License, Judge Finds**\
+`The decision was only the latest effort by bar officials to seek accountability against a group of lawyers who sought to help President Donald J. Trump stay in office despite his election loss.`\
+https://nytimes.com/2024/03/27/us/politics/john-eastman-trump-lawyer.html
+
 **Officials Identify 2 Bridge Collapse Victims by I.D. and Fingerprint**\
 `Divers found the men, Alejandro Hernandez Fuentes, 35, and Dorlian Ronial Castillo Cabrera, 26, in a truck under the wreckage. Four workers were still missing.`\
 https://nytimes.com/2024/03/27/us/victims-bodies-recovered.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/27/arts/harvard-human-skin-binding-book.html
 **Israel and Hezbollah Trade Fire, With Deaths Reported on Both Sides**\
 `The exchange came as a U.N. cease-fire demand appeared to be having little effect on the war in Gaza, and pressure increased on neighboring Jordan to sever ties with Israel.`\
 https://nytimes.com/2024/03/27/world/middleeast/israel-hezbollah-gaza.html
-
-**Stabbing Attack in Illinois Leaves 4 Dead and 5 Injured**\
-`The motive for the killings in a residential neighborhood in Rockford, Ill., was not immediately clear, the authorities said. A suspect is in custody.`\
-https://nytimes.com/2024/03/27/us/rockford-illinois-stabbing.html
-
-**U.S. Says Israel Has Agreed to Try to Reschedule Canceled Trip**\
-`Netanyahu’s office hasn’t confirmed it has any desire to make new plans.`\
-https://nytimes.com/2024/03/27/world/middleeast/netanyahu-meeting-ceasefire.html
 
