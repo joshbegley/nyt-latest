@@ -1,3 +1,15 @@
+**Sam Bankman-Fried Sentenced to 25 Years in Prison**\
+`Mr. Bankman-Fried, who was convicted of stealing $8 billion from customers of his FTX cryptocurrency exchange, faced a maximum sentence of 110 years.`\
+https://nytimes.com/2024/03/28/technology/sam-bankman-fried-sentenced.html
+
+**‘On the Adamant’ Review: A Psychiatric Facility on the Seine**\
+`This documentary by Nicolas Philibert drifts along, with unnamed patients and their caretakers, on a large houseboat in Paris.`\
+https://nytimes.com/2024/03/28/movies/on-the-adamant-review.html
+
+**Matt Schlapp Accuser Dropped Groping Lawsuit After a $480,000 Settlement**\
+`A Republican operative dropped the lawsuit against Mr. Schlapp, the head of one of the nation’s largest conservative advocacy groups, this week.`\
+https://nytimes.com/2024/03/28/us/politics/matt-schlapp-accuser-dropped-groping-lawsuit-after-a-480000-settlement.html
+
 **Ireland will intervene in South Africa’s genocide case against Israel at the top U.N. court.**\
 `By Megan Specia`\
 https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news/ireland-will-intervene-in-south-africas-genocide-case-against-israel-at-the-top-un-court
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/28/arts/music/metro-boomin-songs.html
 **Live Like Karl**\
 `What happened when Karl Lagerfeld’s last residence, where he worked and where Choupette lived, was offered at auction.`\
 https://nytimes.com/2024/03/28/style/karl-lagerfeld-apartment-auction.html
-
-**What’s Going On in This Graph? | April 10, 2024**\
-`What do you notice about how electricity generation around the world is changing? What do you wonder?`\
-https://nytimes.com/2024/03/28/learning/whats-going-on-in-this-graph-april-10-2024.html
-
-**Health Concerns Mount for Migrant Children at Outdoor Holding Sites**\
-`A federal judge is expected to rule soon on whether the government must provide shelter, food and medical care to minors while they await processing.`\
-https://nytimes.com/2024/03/28/health/children-migrants-border-health.html
-
-**Trump on Obamacare: Still Ludicrous After All These Years**\
-`In truth, he has no plan to “fix” affordable health care.`\
-https://nytimes.com/live/2024/03/26/opinion/thepoint/krugman-trump-obamacare
 
