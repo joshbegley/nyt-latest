@@ -1,3 +1,7 @@
+**Ireland will intervene in South Africa’s genocide case against Israel at the top U.N. court.**\
+`By Megan Specia`\
+https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news/ireland-will-intervene-in-south-africas-genocide-case-against-israel-at-the-top-un-court
+
 **Valentino Enters Its Alessandro Michele Era**\
 `Alessandro Michele, the designer who brought profits and plenty of buzz to Gucci, was just named creative director of Valentino.`\
 https://nytimes.com/2024/03/28/style/valentino-alessandro-michele.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/health/children-migrants-border-health.html
 **Trump on Obamacare: Still Ludicrous After All These Years**\
 `In truth, he has no plan to “fix” affordable health care.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/krugman-trump-obamacare
-
-**The Last Coal-Fired Power Plants in New England Are to Close**\
-`The company that owns the Merrimack and Schiller stations in New Hampshire plans to turn them into solar farms and battery storage for offshore wind.`\
-https://nytimes.com/2024/03/28/climate/new-england-coal-plants.html
 
