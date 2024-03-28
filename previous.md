@@ -1,3 +1,7 @@
+**Searching for the Ideal Fish Taco**\
+`Cabbage, crema, pico de gallo and a spritz of lime, please?`\
+https://nytimes.com/2024/03/28/dining/searching-for-the-ideal-fish-taco.html
+
 **How the Israel-Hamas War Has Roiled TikTok Internally**\
 `The video app has been criticized for how it has handled posts users see about the war. Some of the same tensions have also played out inside the company.`\
 https://nytimes.com/2024/03/28/business/tiktok-israel-hamas-war-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news/icj-israel-
 **Logan Lerman Honors Two Families in ‘We Were the Lucky Ones’**\
 `In this Hulu adaptation of a Holocaust novel, Lerman plays a character inspired by two different grandfathers: the author’s and his own.`\
 https://nytimes.com/2024/03/28/arts/television/we-were-the-lucky-ones-logan-lerman.html
-
-**Putin Offers Both Reassurance and Threat on a Wider War**\
-`President Vladimir V. Putin said that claims Russia planned to invade other countries were “nonsense,” but warned them against hosting warplanes meant for Ukraine.`\
-https://nytimes.com/2024/03/28/world/europe/russia-putin-ukraine.html
 

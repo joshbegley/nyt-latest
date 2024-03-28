@@ -1,3 +1,7 @@
+**Searching for the Ideal Fish Taco**\
+`Cabbage, crema, pico de gallo and a spritz of lime, please?`\
+https://nytimes.com/2024/03/28/dining/searching-for-the-ideal-fish-taco.html
+
 **How the Israel-Hamas War Has Roiled TikTok Internally**\
 `The video app has been criticized for how it has handled posts users see about the war. Some of the same tensions have also played out inside the company.`\
 https://nytimes.com/2024/03/28/business/tiktok-israel-hamas-war-gaza.html
