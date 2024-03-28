@@ -1,3 +1,23 @@
+**Peter Eotvos, Hungarian Modernist Composer and Conductor, Dies at 80**\
+`A tireless advocate of contemporary music, he adapted literary sources both modern and classic, instilling his work with “inimitable character and pathos.”`\
+https://nytimes.com/2024/03/28/arts/music/peter-eotvos-dead.html
+
+**Outcry in France as Principal Steps Down Over Head Scarf Incident**\
+`A Paris school principal received online death threats after he was involved in an “altercation” with a Muslim student over her head scarf, sparking outrage in a country still scarred by the killing of two teachers.`\
+https://nytimes.com/2024/03/28/world/europe/paris-head-scarf-school.html
+
+**Trump’s Defense Team Argues First Amendment Prohibits Georgia Charges**\
+`Fulton County prosecutors say Donald J. Trump’s comments about the 2020 election were meant to advance a broad criminal scheme to overturn the election results.`\
+https://nytimes.com/2024/03/28/us/trump-georgia-hearing.html
+
+**America’s Energy Needs and Climate Goals**\
+`Responses to a front-page article. Also: The bridge collapse; Donald Trump and the $60 Bible; political qualifications; Flaco the owl.`\
+https://nytimes.com/2024/03/28/opinion/energy-climate-goals.html
+
+**‘Garbage Lasagna’: Dumps Are a Big Driver of Warming, Study Says**\
+`Decades of buried trash is releasing methane, a powerful greenhouse gas, at higher rates than previously estimated, the researchers said.`\
+https://nytimes.com/2024/03/28/climate/landfills-methane-emissions.html
+
 **Trump attends wake for slain N.Y.P.D. officer.**\
 `By Maggie Haberman, William K. Rashbaum and Michael Gold`\
 https://nytimes.com/live/2024/03/28/us/trump-biden-election/trump-attends-wake-for-slain-nypd-officer
@@ -17,24 +37,4 @@ https://nytimes.com/2024/03/28/us/politics/senate-leadership-fight.html
 **Our 7th Annual Student Podcast Contest**\
 `We invite students to create an original podcast of five minutes or less that informs or entertains. Contest dates: April 17 to May 15.`\
 https://nytimes.com/2024/03/28/learning/our-7th-annual-student-podcast-contest.html
-
-**The Palestinian Authority has formed a new cabinet, but doubts remain about its independence.**\
-`By Cassandra Vinograd and Adam Rasgon`\
-https://nytimes.com/live/2024/03/28/world/israel-hamas-war-gaza-news/the-palestinian-authority-has-formed-a-new-cabinet-but-doubts-remain-about-its-independence
-
-**Answers to All Your Burning Questions About Sunscreen**\
-`How much SPF is enough? Is mineral better than chemical? We’ve got you covered.`\
-https://nytimes.com/article/sunscreen-spf-safety.html
-
-**Man Is Charged With Murder in Fatal Shooting of N.Y.P.D. Officer**\
-`Guy Rivera killed Officer Jonathan Diller during a traffic stop, the police said. Mr. Rivera was also charged with attempted murder for aiming his gun at a second officer, the authorities said.`\
-https://nytimes.com/2024/03/28/nyregion/nypd-officer-shooting-charges-rivera.html
-
-**When Sean Combs Was ‘Living the American Dream’**\
-`A restless ambition took him from hip-hop to the Met Gala, a reality show, a fashion label, a fragrance line and his own cable network. Then came the accusations and federal raids.`\
-https://nytimes.com/2024/03/28/style/diddy-sean-combs-fashion-revolt-tv.html
-
-**Is Social Media Stoking Anxiety About Street Crime in New York City?**\
-`Several young women have posted video accounts of being punched in the face by a stranger, touching off apprehension and concern.`\
-https://nytimes.com/2024/03/28/style/tiktok-women-punched-crime-nyc.html
 
