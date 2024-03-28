@@ -1,4 +1,8 @@
 **U.S. Says Israel Has Agreed to Try to Reschedule Canceled Trip**\
+`Netanyahu’s office hasn’t confirmed it has any desire to make new plans.`\
+https://nytimes.com/2024/03/27/world/middleeast/netanyahu-meeting-ceasefire.html
+
+**U.S. Says Israel Has Agreed to Try to Reschedule Canceled Trip**\
 `By Zach Montague`\
 https://nytimes.com/2024/03/27/world/middleeast/netanyahu-meeting-ceasefire.html
 

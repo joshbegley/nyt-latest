@@ -23,7 +23,7 @@ https://nytimes.com/2024/03/27/world/middleeast/israel-hezbollah-gaza.html
 https://nytimes.com/2024/03/27/us/rockford-illinois-stabbing.html
 
 **U.S. Says Israel Has Agreed to Try to Reschedule Canceled Trip**\
-`By Zach Montague`\
+`Netanyahu’s office hasn’t confirmed it has any desire to make new plans.`\
 https://nytimes.com/2024/03/27/world/middleeast/netanyahu-meeting-ceasefire.html
 
 **Seeking Balance, Tripping Up**\
