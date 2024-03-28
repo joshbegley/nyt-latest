@@ -1,3 +1,11 @@
+**Police Fatally Shoot Queens Man Who Brandished Scissors, Officials Say**\
+`The victim’s brother contradicted aspects of the police account of the shooting and said his mother had been restraining her son when officers fired their guns.`\
+https://nytimes.com/2024/03/27/nyregion/win-rozario-queens-nypd.html
+
+**The Five Minutes That Brought Down the Key Bridge**\
+`When a massive cargo ship lost power in Baltimore, crews scrambled to control the ship and to evacuate the bridge lying ahead. But it was too late.`\
+https://nytimes.com/2024/03/27/us/baltimore-bridge-collapse.html
+
 **In Saga of NBC and Ronna McDaniel, Perks and Perils of Partisan Talk on TV**\
 `Why are television news networks so enamored with paid Beltway analysts?`\
 https://nytimes.com/2024/03/27/business/media/nbc-ronna-mcdaniel-msnbc.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/27/world/middleeast/netanyahu-meeting-ceasefire.html
 **Seeking Balance, Tripping Up**\
 `The question of how to cover Donald Trump is no closer to being solved.`\
 https://nytimes.com/2024/03/27/us/politics/nbc-trump-mcdaniel.html
-
-**Lil Jon: The Popcast (Deluxe) Interview**\
-`An in-depth interview with the Atlanta hip-hop and EDM legend, tracing his path through punk, skateboarding and crunk music on the way to this year’s Super Bowl.`\
-https://nytimes.com/2024/03/27/arts/music/lil-jon-popcast-deluxe-interview.html
-
-**Sean Combs’s Legal Troubles: What We Know**\
-`Federal agents executed search warrants at his homes in Los Angeles and Miami Beach, and he faces several civil lawsuits accusing him of rape and sexual assault.`\
-https://nytimes.com/article/diddy-sean-combs-lawsuit-allegations.html
 
