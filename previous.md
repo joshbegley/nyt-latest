@@ -1,3 +1,7 @@
+**Officials Say Hazardous Material Aboard Crashed Ship Poses No Threat**\
+`Two containers fell into the water and were missing, but neither contained hazardous materials, the Coast Guard said.`\
+https://nytimes.com/2024/03/28/us/hazardous-material-dali-ship-baltimore.html
+
 **Taiwan’s Top Diplomat Says U.S. Aid to Ukraine Is Critical for Deterring China**\
 `Foreign Minister Joseph Wu said in an interview that a Russian victory could embolden China to move against Taiwan and would fuel anti-American propaganda.`\
 https://nytimes.com/2024/03/28/us/politics/taiwan-china-ukraine-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/us/baltimore-bridge-protections-ships-states.html
 **House Republicans Demand Full Impeachment Trial for Mayorkas**\
 `They argue that quickly dispensing with the charges, as senators in both parties are inclined to do, would be an affront to Americans.`\
 https://nytimes.com/2024/03/28/us/politics/house-republicans-impeachment-mayorkas.html
-
-**Dal Is the Ultimate Comfort Food**\
-`Cheap, unfussy and adaptable, these lentils call up warming memories of home and family for many South Asians.`\
-https://nytimes.com/2024/03/28/dining/dal.html
 
