@@ -1,3 +1,7 @@
+**17 New Books Coming in April**\
+`New novels from Emily Henry, Jo Piazza and Rachel Khong; a history of five ballerinas at the Dance Theater of Harlem; Salman Rushdie’s memoir and more.`\
+https://nytimes.com/2024/03/28/books/review/new-books-april.html
+
 **Having Trouble With Your Homeowners Insurance? Tell Us.**\
 `Bills are soaring. Insurance companies are struggling. We want to hear how it’s affecting you.`\
 https://nytimes.com/2024/03/28/climate/homeowners-insurance-personal-stories.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/podcasts/serial-guantanamo-submit-questions.html
 **Linda Bean, an L.L. Bean Heir and a Conservative Donor, Dies at 82**\
 `A granddaughter of the celebrated Maine brand’s founder, she set out as an entrepreneur in her mid-60s and used her wealth to fund right-wing causes.`\
 https://nytimes.com/2024/03/28/business/linda-bean-dead.html
-
-**For John Eastman, the Sweet Smell of Accountability**\
-`Losing a law license is a fundamental penalty for trying to undermine the Constitution.`\
-https://nytimes.com/live/2024/03/26/opinion/thepoint/john-eastman-disbarred
 
