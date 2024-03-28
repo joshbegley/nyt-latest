@@ -1,3 +1,7 @@
+**Word of the Day: baffled**\
+`This word has appeared in 154 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/28/learning/word-of-the-day-baffled.html
+
 **There’s Trouble Inside Pakistan’s Military**\
 `Divisions within the all-powerful military make the country’s future difficult to predict.`\
 https://nytimes.com/2024/03/28/opinion/pakistan-military-khan-munir.html
