@@ -1,9 +1,17 @@
+**Can Intel Serve Two Masters?**\
+`Biden is counting on it to be a national champion chipmaker, but it still has shareholders to please.`\
+https://nytimes.com/2024/03/29/opinion/intel-gelsinger-chips-biden.html
+
+**Should I Speak Out When I Overhear a Person Saying Something Hateful?**\
+`The magazine’s Ethicist columnist on taking a stand against homophobia and other forms of bigotry.`\
+https://nytimes.com/2024/03/29/magazine/homophobia-barbershop-speaking-out-ethics.html
+
 **Neeli Cherkovski, Poet Who Chronicled the Beat Generation, Dies at 78**\
 `His biographies of Charles Bukowski and Lawrence Ferlinghetti came to overshadow his own work. “I would love an interview,” he once said, “where Bukowski is not mentioned.”`\
 https://nytimes.com/2024/03/29/books/neeli-cherkovski-dead.html
 
 **Czechs Accuse Two Men of Running ‘Russian Influence Operation’ in Europe**\
-`Amid news reports of European politicians receiving payments to promote Russian interests, the Czech government froze the assets of the men and a website, Voice of Europe.`\
+`Amid news reports that European politicians received payments to promote Russian interests, the Czech government froze the assets of the men and a website, Voice of Europe.`\
 https://nytimes.com/2024/03/29/world/europe/czech-republic-sanctions-russian-influence-europe.html
 
 **Read Judge Quraishi’s Ruling**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/29/movies/louis-gossett-jr-streaming-guide.html
 **Alice Coltrane’s Explosive Carnegie Hall Concert, and 7 More New Songs**\
 `Hear tracks by St. Vincent, Ani DiFranco, Camila Cabello and others.`\
 https://nytimes.com/2024/03/29/arts/music/playlist-alice-coltrane-st-vincent.html
-
-**Daniel A. Moore, Founder of an African American Museum, Dies at 88**\
-`To tell the full story of the American Black experience, he created an Atlanta institution in 1978 and later moved it to a building “erected brick by brick” by Black masons.`\
-https://nytimes.com/2024/03/29/us/daniel-a-moore-dead.html
-
-**Beyond Beyoncé: Black Women of Country, Past and Present**\
-`Listen to songs from Rhiannon Giddens, Rissi Palmer, Linda Martell and more.`\
-https://nytimes.com/2024/03/29/arts/music/amplifier-newsletter-black-women-country.html
 
