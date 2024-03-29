@@ -1,3 +1,7 @@
+**Big Ticket: N.Y.’s Top Sales and Listings in March**\
+`March's top sales include the former home of George Malkemus.`\
+https://nytimes.com/interactive/2024/03/29/realestate/top-home-sales-and-listings-NYC.html
+
 **In Move to Protect Whales, Polynesian Indigenous Groups Give Them ‘Personhood’**\
 `Indigenous leaders of New Zealand, Tahiti and the Cook Islands signed a treaty that recognizes whales as legal persons. Conservationists hope it will lead to legal protections.`\
 https://nytimes.com/2024/03/29/world/australia/whale-personhood-polynesia-maori.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/movies/netflix-leaving-april.html
 **29pol-swiper**\
 `Biden and Trump appear in dueling New York events to shore up the base in a contrast election.`\
 https://nytimes.com/live/2024/03/29/us/trump-biden-election
-
-**Crews Use Crane to Start Clearing Collapsed Baltimore Bridge**\
-`Debris from the collapsed Francis Scott Key Bridge is blocking a vital shipping lane into the Port of Baltimore.`\
-https://nytimes.com/video/us/100000009387620/baltimore-key-bridge-collapse.html
 
