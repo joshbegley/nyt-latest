@@ -1,3 +1,7 @@
+**Wanted in South Korea: Imperialism-Free Cherry Blossoms**\
+`Activists want to replace a variety of cherry tree associated with the Japanese colonial era with one they say is Korean. The science is messy.`\
+https://nytimes.com/2024/03/29/world/asia/cherry-blossom-tree-japan-korea.html
+
 **The Latest on Sean Combs’s Legal Woes**\
 `Federal agents raided the hip-hop mogul’s homes this week. This is what we know.`\
 https://nytimes.com/2024/03/29/podcasts/the-latest-on-sean-combs-legal-woes.html
