@@ -1,3 +1,7 @@
+**Our Critics Talk About the Novels That Make Them Laugh**\
+`Dwight Garner, Alexandra Jacobs and Jennifer Szalai weigh in on 22 of the funniest novels since “Catch-22.”`\
+https://nytimes.com/2024/03/29/books/review/our-critics-talk-about-the-novels-that-make-them-laugh.html
+
 **Beyoncé’s ‘Cowboy Carter’ Showcases Her Greatest Instrument**\
 `It’s a delight to hear her voice unmediated and deployed in novel ways.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/beyonce-cowboy-carter
