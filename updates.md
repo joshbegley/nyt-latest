@@ -1,3 +1,7 @@
+**Biden Will Visit Baltimore Next Week After Bridge Collapse**\
+`The president’s visit comes as officials start planning for major economic disruptions after a ship struck the Francis Scott Key Bridge.`\
+https://nytimes.com/2024/03/29/us/politics/biden-baltimore-bridge-collapse.html
+
 **How Patty Murray Used Her Gavel to Win $1 Billion for Child Care**\
 `A self-described “mom in tennis shoes,” now the Senate Appropriations Committee leader, managed to win an increase in child care subsidies in a spending freeze.`\
 https://nytimes.com/2024/03/29/us/politics/patty-murray-child-care-budget-senate.html
