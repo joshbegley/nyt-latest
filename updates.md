@@ -1,3 +1,7 @@
+**3 Festive Main Dishes for Any Spring Party**\
+`Whether for a casual cookout or an elegant dinner party, these impressive recipes are easy to pull off.`\
+https://nytimes.com/2024/03/29/dining/grilled-chicken-clam-salad-recipes.html
+
 **In a tight battle for the house, the congressional map is largely settled.**\
 `By Nick Corasaniti`\
 https://nytimes.com/live/2024/03/29/us/trump-biden-election/2024-congress-maps
