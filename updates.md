@@ -1,3 +1,7 @@
+**How Female Bodybuilders Became Fashion’s Latest Muses**\
+`An industry long known for revering willowy bodies is taking a new interest in muscle.`\
+https://nytimes.com/2024/03/29/t-magazine/female-bodybuilder-fashion.html
+
 **3 Festive Main Dishes for Any Spring Party**\
 `Whether for a casual cookout or an elegant dinner party, these impressive recipes are easy to pull off.`\
 https://nytimes.com/2024/03/29/dining/grilled-chicken-clam-salad-recipes.html

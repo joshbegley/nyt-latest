@@ -1,3 +1,11 @@
+**Beyond Beyoncé: Black Women of Country, Past and Present**\
+`Listen to songs from Rhiannon Giddens, Rissi Palmer, Linda Martell and more.`\
+https://nytimes.com/2024/03/29/arts/music/amplifier-newsletter-black-women-country.html
+
+**Heat Waves Are Moving Slower and Staying Longer, Study Finds**\
+`Climate change is making heat waves linger for longer stretches of time, exacerbating the effects of extreme temperatures.`\
+https://nytimes.com/2024/03/29/climate/heat-waves-longer-slower.html
+
 **How Female Bodybuilders Became Fashion’s Latest Muses**\
 `An industry long known for revering willowy bodies is taking a new interest in muscle.`\
 https://nytimes.com/2024/03/29/t-magazine/female-bodybuilder-fashion.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/26/opinion/thepoint/beyonce-cowboy-carter
 **How ‘3 Body Problem’ Created a Spectacular Disaster, With Strings Attached**\
 `Technical artists used a combination of digital and practical effects to slice an oil tanker into pieces in the fifth episode. Here’s how they did it.`\
 https://nytimes.com/2024/03/29/arts/television/3-body-problem.html
-
-**OpenAI Unveils A.I. Technology That Recreates Human Voices**\
-`The start-up is sharing the technology, Voice Engine, with a small group of early testers as it tries to understand the potential dangers.`\
-https://nytimes.com/2024/03/29/technology/openai-voice-engine.html
-
-**The Great Tension Inside the Trump G.O.P.**\
-`How long can a populist party support a libertarian Congress?`\
-https://nytimes.com/2024/03/29/opinion/trump-republicans.html
 

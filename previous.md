@@ -1,3 +1,7 @@
+**How Female Bodybuilders Became Fashion’s Latest Muses**\
+`An industry long known for revering willowy bodies is taking a new interest in muscle.`\
+https://nytimes.com/2024/03/29/t-magazine/female-bodybuilder-fashion.html
+
 **3 Festive Main Dishes for Any Spring Party**\
 `Whether for a casual cookout or an elegant dinner party, these impressive recipes are easy to pull off.`\
 https://nytimes.com/2024/03/29/dining/grilled-chicken-clam-salad-recipes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/technology/openai-voice-engine.html
 **The Great Tension Inside the Trump G.O.P.**\
 `How long can a populist party support a libertarian Congress?`\
 https://nytimes.com/2024/03/29/opinion/trump-republicans.html
-
-**Fed Chair Says Central Bank Need Not ‘Hurry’ to Cut Rates**\
-`Jerome Powell said that strong economic growth gives Federal Reserve officials room to be patient, and he emphasized the institution’s political independence.`\
-https://nytimes.com/2024/03/29/business/economy/federal-reserve-jerome-powell-interest-rates.html
 
