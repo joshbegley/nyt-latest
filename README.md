@@ -1,3 +1,11 @@
+**Why Russia Is Protecting North Korea From Nuclear Monitors**\
+`The monitors have provided vivid evidence of how Russia is keeping Pyongyang brimming with fuel and other goods, presumably in return for weapons that Russia can use in Ukraine.`\
+https://nytimes.com/2024/03/29/us/politics/russia-north-korea-nuclear-weapons.html
+
+**‘Renegade Nell’ Review: When the Highwayman Is a Superwoman**\
+`In a new series for Disney+, the creator of “Happy Valley” and “Last Tango in Halifax” imagines a sometimes-superpowered 18th-century justice warrior.`\
+https://nytimes.com/2024/03/29/arts/television/renegade-nell-review.html
+
 **Review: ‘A Pledge, a Plea and a Love Letter’ to Africa**\
 `In “Until the Lion Tells the Story…,” Lacina Coulibaly walks in his ancestors’ footsteps.`\
 https://nytimes.com/2024/03/29/arts/dance/lacina-coulibaly.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/29/us/politics/biden-baltimore-bridge-collapse.html
 **How Patty Murray Used Her Gavel to Win $1 Billion for Child Care**\
 `A self-described “mom in tennis shoes,” now the Senate Appropriations Committee leader, managed to win an increase in child care subsidies in a spending freeze.`\
 https://nytimes.com/2024/03/29/us/politics/patty-murray-child-care-budget-senate.html
-
-**Israel must work with the U.N. and open more border crossings to prevent famine, an aid official says.**\
-`By Gaya Gupta`\
-https://nytimes.com/live/2024/03/29/world/israel-hamas-war-gaza-news/israel-must-work-with-the-un-and-open-more-border-crossings-to-prevent-famine-an-aid-official-says
-
-**Trump and Allies Appeal Ruling That Allowed Georgia Prosecutor to Keep Case**\
-`The defendants in the election interference case are once again pressing their argument that Fani T. Willis should be removed from the prosecution.`\
-https://nytimes.com/2024/03/29/us/trump-appeal-georgia-fani-willis.html
 
