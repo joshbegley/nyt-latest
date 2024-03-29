@@ -1,3 +1,7 @@
+**5 Recipes for Your ‘Cowboy Carter’ Listening Party**\
+`Because you'll definitely need fuel for the dance floor.`\
+https://nytimes.com/interactive/2024/03/29/dining/cowboy-carter-recipes.html
+
 **Biden Will Visit Baltimore Next Week After Bridge Collapse**\
 `The president’s visit comes as officials start planning for major economic disruptions after a ship struck the Francis Scott Key Bridge.`\
 https://nytimes.com/2024/03/29/us/politics/biden-baltimore-bridge-collapse.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/world/europe/czech-republic-sanctions-russian-inf
 **Read Judge Quraishi’s Ruling**\
 `The decision is expected to fundamentally reshape New Jersey politics.`\
 https://nytimes.com/interactive/2024/03/29/us/judge-quraishi-nj-ballot-line.html
-
-**Dating on Apps, and the Old-Fashioned Way**\
-`Different ways of dating. Also: Donald Trump and Louis XIV; the stakes in the election; the music business; killing animals; memo to liberals.`\
-https://nytimes.com/2024/03/29/opinion/dating-apps.html
 

@@ -1,3 +1,7 @@
+**5 Recipes for Your ‘Cowboy Carter’ Listening Party**\
+`Because you'll definitely need fuel for the dance floor.`\
+https://nytimes.com/interactive/2024/03/29/dining/cowboy-carter-recipes.html
+
 **Biden Will Visit Baltimore Next Week After Bridge Collapse**\
 `The president’s visit comes as officials start planning for major economic disruptions after a ship struck the Francis Scott Key Bridge.`\
 https://nytimes.com/2024/03/29/us/politics/biden-baltimore-bridge-collapse.html
