@@ -1,3 +1,11 @@
+**Peter Shapiro, Political Groundbreaker in New Jersey, Dies at 71**\
+`He bucked the Democratic machine to become the youngest member of the state’s General Assembly and reformed government as the first Essex County executive.`\
+https://nytimes.com/2024/03/29/nyregion/peter-shapiro-dead.html
+
+**Three Presidents, No Neckties**\
+`Did Presidents Biden, Obama and Clinton, appearing together at a fund-raiser in open-neck shirts, look casual or ‘a little disheveled’?`\
+https://nytimes.com/2024/03/29/style/biden-obama-clinton-ties.html
+
 **What to Know About Jeffrey Donaldson, the Former D.U.P. Leader**\
 `Mr. Donaldson resigned as party leader on Friday, after being charged with non-recent sexual offenses.`\
 https://nytimes.com/2024/03/29/world/europe/who-is-jeffrey-donaldson-dup.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/29/world/middleeast/israel-syria-airstrikes.html
 **How a Third-Party Candidate Could Affect the 2024 Vote**\
 `Rebecca Davis O’Brien, a politics reporter for The New York Times, explains how third-party candidates could alter the outcome of the election.`\
 https://nytimes.com/video/us/politics/100000009385520/democrats-counter-third-party-candidates.html
-
-**Read the Defense’s Application to Appeal**\
-`Lawyers for former President Donald J. Trump and eight of his co-defendants in the Georgia election interference case asked an appeals court to take up their challenge of a judge’s ruling that allowed the prosecutor Fani T. Willis to stay on the case.`\
-https://nytimes.com/interactive/2024/03/29/us/trump-georgia-ruling-appeal.html
-
-**The Government’s Weakest Antitrust Case Is Against Amazon**\
-`Google, on the other hand, acts more like a monopolist.`\
-https://nytimes.com/live/2024/03/26/opinion/thepoint/amazon-google-antitrust
 
