@@ -1,3 +1,11 @@
+**Germany, a Loyal Israel Ally, Begins to Shift Tone as Gaza Toll Mounts**\
+`Supporting Israel is seen as a historic duty in Germany, but the worsening crisis has pushed German officials to ask whether that backing has gone too far.`\
+https://nytimes.com/2024/03/29/world/europe/germany-israel-gaza.html
+
+**Stream These 12 Movies Before They Leave Netflix in April**\
+`A Ryan Gosling detective comedy, a Formula One racing drama and the romantic musical “Mamma Mia!” are among the movies exiting the streaming service.`\
+https://nytimes.com/2024/03/29/movies/netflix-leaving-april.html
+
 **29pol-swiper**\
 `Biden and Trump appear in dueling New York events to shore up the base in a contrast election.`\
 https://nytimes.com/live/2024/03/29/us/trump-biden-election
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/29/us/california-love-letters.html
 **A common link in Mideast conflicts: Iran and its proxies.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/29/world/israel-hamas-war-gaza-news/a-common-link-in-mideast-conflicts-iran-and-its-proxies
-
-**U.S.-Funded Broadcaster Leaves Hong Kong, Citing Security Law**\
-`Radio Free Asia, which ran a small operation in Hong Kong, said its staff was at risk because of the law’s sweeping definition of “external interference.”`\
-https://nytimes.com/2024/03/29/world/asia/hong-kong-security-media.html
-
-**A Key Inflation Gauge Hovers Above Fed’s Target**\
-`The Fed’s preferred inflation gauge climbed 2.5 percent in the year through February, in line with economists’ expectations.`\
-https://nytimes.com/2024/03/29/business/economy/pce-inflation-spending-fed.html
 
