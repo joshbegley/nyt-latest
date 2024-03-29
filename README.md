@@ -1,3 +1,7 @@
+**A Crisis of School Absences**\
+`Fewer children are attending school, across rich and poor districts.`\
+https://nytimes.com/2024/03/29/briefing/a-crisis-of-school-absences.html
+
 **A ‘Cataclysmic Situation’ in Haiti, and the Downfall of Sam Bankman-Fried**\
 `Plus, Beyoncé’s album has arrived, riding a horse.`\
 https://nytimes.com/2024/03/29/podcasts/haiti-sam-bankman-fried.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/well/live/overwhelmed-small-wins.html
 **6 New Paperbacks to Read This Week **\
 `This week's selection includes titles by Harlan Ellison, Idra Novey, Leila Aboulela and more. `\
 https://nytimes.com/interactive/2024/03/29/books/new-paperbacks-ellison.html
-
-**The New York Times News Quiz, March 29, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/03/29/briefing/baltimore-bridge-ohtani-nbc-news-quiz.html
 
