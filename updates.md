@@ -1,3 +1,15 @@
+**Dating on Apps, and the Old-Fashioned Way**\
+`Different ways of dating. Also: Donald Trump and Louis XIV; the stakes in the election; the music business; killing animals; memo to liberals.`\
+https://nytimes.com/2024/03/29/opinion/dating-apps.html
+
+**Serra’s ‘Splash’: A Public Artist’s Private Breakthough**\
+`Serra spattered a pot of molten lead against the base of a wall in Jasper Johns’s home. Then he let it harden. The result looked nothing like a traditional sculpture.`\
+https://nytimes.com/2024/03/29/arts/design/serras-splash-a-public-artists-private-breakthough.html
+
+**‘Bless These Books’: How Karen Kingsbury Is Extending the Reach of Christian Fiction**\
+`She’s sold more than 25 million copies, but isn’t slowing down. An Amazon series and a film getting wide distribution mark a new phase.`\
+https://nytimes.com/2024/03/29/books/karen-kingsbury-the-baxters.html
+
 **Alice Coltrane’s Explosive Carnegie Hall Concert, and 7 More New Songs**\
 `Hear tracks by St. Vincent, Ani DiFranco, Camila Cabello and others.`\
 https://nytimes.com/2024/03/29/arts/music/playlist-alice-coltrane-st-vincent.html
