@@ -1,3 +1,7 @@
+**Hamas Took Her, and Still Has Her Husband**\
+`The story of one family at the center of the war in Gaza.`\
+https://nytimes.com/2024/03/29/podcasts/the-daily/hamas-took-her-and-still-has-her-husband.html
+
 **Wanted in South Korea: Imperialism-Free Cherry Blossoms**\
 `Activists want to replace a variety of cherry tree associated with the Japanese colonial era with one they say is Korean. The science is messy.`\
 https://nytimes.com/2024/03/29/world/asia/cherry-blossom-tree-japan-korea.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/29/briefing/baltimore-bridge-ohtani-nbc-
 **If Opening Day Can’t Be a National Holiday, Here’s a Better Idea**\
 `On April 15, all Americans should wear the number 42.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/if-opening-day-cant-be-a-national-holiday-heres-a-better-idea
-
-**TV’s Saviors Are Here, and They’re Wearing Spandex**\
-`A reboot of “Gladiators,” the musclebound 1990s staple, has attracted millions of viewers in Britain. Is appointment television back?`\
-https://nytimes.com/2024/03/29/arts/television/gladiators-bbc.html
 
