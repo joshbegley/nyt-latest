@@ -1,3 +1,15 @@
+**Biden Administration Announces Rules to Turbocharge All-Electric Trucks**\
+`The latest in a string of ambitious climate regulations aims to clean up the heaviest polluters on the road. But truckers are worried.`\
+https://nytimes.com/2024/03/29/climate/epa-trucks-emissions-regulation.html
+
+**How Many Easters Remain for This Century-Old Boys’ Choir School?**\
+`St. Thomas Church in New York is considering closing its renowned boarding school for choristers, one of only a few in the world, because of financial woes.`\
+https://nytimes.com/2024/03/29/arts/music/st-thomas-choir-school.html
+
+**Readers Share Why They Love the Golden State**\
+`Readers have been writing in about some of their favorite things about California, including the biodiversity and the sense of community.`\
+https://nytimes.com/2024/03/29/us/california-love-letters.html
+
 **A common link in Mideast conflicts: Iran and its proxies.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/29/world/israel-hamas-war-gaza-news/a-common-link-in-mideast-conflicts-iran-and-its-proxies
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/29/us/memoirs-hmong-americans.html
 **8-Year-Old Girl, Sole Survivor of South Africa Bus Crash, Is in Stable Condition**\
 `Forty-four worshipers from Botswana, along with the driver, were killed when the bus plunged off an overpass into a rocky ravine.`\
 https://nytimes.com/2024/03/29/world/africa/south-africa-botswana-bus-crash.html
-
-**Does Trash Talk Have a Place in Sports?**\
-`A guest essayist wants to bring taunting back to baseball. What do you think? Is trash talk harmless fun or bad sportsmanship?`\
-https://nytimes.com/2024/03/29/learning/does-trash-talk-have-a-place-in-sports.html
-
-**Days After U.N. Cease-Fire Resolution, Has Anything Changed in Gaza?**\
-`The United Nations Security Council passed a resolution on Monday that demands an immediate cease-fire in the Gaza Strip. Here’s a closer look at where the situation stands.`\
-https://nytimes.com/2024/03/29/world/middleeast/un-ceasefire-resolution-israel-gaza.html
-
-**A Crisis of School Absences**\
-`Fewer children are attending school, across rich and poor districts.`\
-https://nytimes.com/2024/03/29/briefing/school-absences.html
 

@@ -1,3 +1,15 @@
+**Biden Administration Announces Rules to Turbocharge All-Electric Trucks**\
+`The latest in a string of ambitious climate regulations aims to clean up the heaviest polluters on the road. But truckers are worried.`\
+https://nytimes.com/2024/03/29/climate/epa-trucks-emissions-regulation.html
+
+**How Many Easters Remain for This Century-Old Boys’ Choir School?**\
+`St. Thomas Church in New York is considering closing its renowned boarding school for choristers, one of only a few in the world, because of financial woes.`\
+https://nytimes.com/2024/03/29/arts/music/st-thomas-choir-school.html
+
+**Readers Share Why They Love the Golden State**\
+`Readers have been writing in about some of their favorite things about California, including the biodiversity and the sense of community.`\
+https://nytimes.com/2024/03/29/us/california-love-letters.html
+
 **A common link in Mideast conflicts: Iran and its proxies.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/03/29/world/israel-hamas-war-gaza-news/a-common-link-in-mideast-conflicts-iran-and-its-proxies
