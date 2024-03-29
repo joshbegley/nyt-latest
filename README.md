@@ -1,3 +1,11 @@
+**A Vibrant Art Scene Beyond the Basics**\
+`The museum curator Maleke Lee speaks to a thriving art scene beyond the standard tourist draws.`\
+https://nytimes.com/paidpost/destination-dc/a-vibrant-art-scene-beyond-the-basics.html
+
+**In a Culinary Class of Its Own**\
+`The restaurateur and chef Erik Bruner-Yang takes viewers on a culinary tour of Washington, D.C.`\
+https://nytimes.com/paidpost/destination-dc/in-a-culinary-class-of-its-own.html
+
 **Welcome to the Jess Bidgood Era**\
 `After a long and exhaustive search, we have found our next newsletter writer.`\
 https://nytimes.com/2024/03/29/us/politics/bidgood-biden-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/29/nyregion/peter-shapiro-dead.html
 **Three Presidents, No Neckties**\
 `Did Presidents Biden, Obama and Clinton, appearing together at a fund-raiser in open-neck shirts, look casual or ‘a little disheveled’?`\
 https://nytimes.com/2024/03/29/style/biden-obama-clinton-ties.html
-
-**What to Know About Jeffrey Donaldson, the Former D.U.P. Leader in Northern Ireland**\
-`Mr. Donaldson resigned as party leader on Friday after being charged with non-recent sexual offenses.`\
-https://nytimes.com/2024/03/29/world/europe/who-is-jeffrey-donaldson-dup.html
-
-**Sailor’s Remains Identified 82 Years After Pearl Harbor**\
-`David Walker, 19, of Norfolk, Va., was a mess attendant aboard the U.S.S. California. Officials used advanced forensic technology to identify his remains.`\
-https://nytimes.com/2024/03/29/us/virginia-sailor-pearl-harbor.html
 
