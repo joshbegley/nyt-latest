@@ -1,3 +1,7 @@
+**Why Are More Private Clubs Popping Up in New York?**\
+`Private clubs have long shaped the fabric of New York social life.`\
+https://nytimes.com/video/realestate/100000009380127/29social-clubs-vid.html
+
 **New Jersey’s Ballot Must Be Immediately Redesigned, Federal Judge Rules**\
 `The ruling is expected to abolish a practice that has allowed the state’s Democratic and Republican political machines to flourish.`\
 https://nytimes.com/2024/03/29/nyregion/new-jersey-election-ballot-challenge.html

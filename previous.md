@@ -18,6 +18,10 @@ https://nytimes.com/2024/03/29/theater/bathhousepptx-review.html
 `Some people belong to multiple private clubs that have emerged to fill physical and emotional voids. Others belong only to Sam’s Club.`\
 https://nytimes.com/2024/03/29/realestate/nyc-private-clubs.html
 
+**Why Are More Private Clubs Popping Up in New York?**\
+`Private clubs have long shaped the fabric of New York social life.`\
+https://nytimes.com/video/realestate/100000009380127/29social-clubs-vid.html
+
 **Beyoncé’s ‘Cowboy Carter’ Adopts the Music of Opera Singers, Too**\
 `On the star’s new album, the track “Daughter” includes her take on an 18th-century Italian song most often heard in classical music recitals.`\
 https://nytimes.com/2024/03/29/arts/music/beyonce-cowboy-carter-daughter-opera.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/arts/music/diddy-sean-combs-podcasts.html
 **Who’s Who on Beyoncé’s ‘Cowboy Carter’**\
 `A guide to key guests and behind-the-scenes figures on the star’s eighth studio album.`\
 https://nytimes.com/2024/03/29/arts/music/beyonce-cowboy-carter-credits.html
-
-**May Joe Lieberman’s Memory Be for a Blessing**\
-`He was a model of how politics was once done differently.`\
-https://nytimes.com/live/2024/03/26/opinion/thepoint/may-joe-liebermans-memory-be-for-a-blessing
 
