@@ -1,3 +1,15 @@
+**OpenAI Unveils A.I. Technology That Recreates Human Voices**\
+`The start-up is sharing the technology, Voice Engine, with a small group of early testers as it tries to understand the potential dangers.`\
+https://nytimes.com/2024/03/29/technology/openai-voice-engine.html
+
+**The Great Tension Inside the Trump G.O.P.**\
+`How long can a populist party support a libertarian Congress?`\
+https://nytimes.com/2024/03/29/opinion/trump-republicans.html
+
+**Fed Chair Says Central Bank Need Not ‘Hurry’ to Cut Rates**\
+`Jerome Powell said that strong economic growth gives Federal Reserve officials room to be patient, and he emphasized the institution’s political independence.`\
+https://nytimes.com/2024/03/29/business/economy/federal-reserve-jerome-powell-interest-rates.html
+
 **New Jersey’s Ballot Must Be Immediately Redesigned, Federal Judge Rules**\
 `The ruling is expected to abolish a practice that has allowed the state’s Democratic and Republican political machines to flourish.`\
 https://nytimes.com/2024/03/29/nyregion/new-jersey-election-ballot-challenge.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/realestate/100000009380127/29social-clubs-vid.html
 **Beyoncé’s ‘Cowboy Carter’ Adopts the Music of Opera Singers, Too**\
 `On the star’s new album, the track “Daughter” includes her take on an 18th-century Italian song most often heard in classical music recitals.`\
 https://nytimes.com/2024/03/29/arts/music/beyonce-cowboy-carter-daughter-opera.html
-
-**The Best of Late Night This Week**\
-`News surrounding former President Donald Trump dominated late night this week, including a New York appeals court reducing the bond in his civil fraud case, and his newest venture: a $60 Bible. Here’s what the hosts had to say.`\
-https://nytimes.com/interactive/2024/03/29/arts/television/best-of-late-night-this-week.html
-
-**The Sean Combs Saga Is Catnip for Pop Culture Podcasts**\
-`The raids of Combs’s homes have been a primary topic on podcasts and radio shows that cover the Black entertainment world.`\
-https://nytimes.com/2024/03/29/arts/music/diddy-sean-combs-podcasts.html
-
-**Who’s Who on Beyoncé’s ‘Cowboy Carter’**\
-`A guide to key guests and behind-the-scenes figures on the star’s eighth studio album.`\
-https://nytimes.com/2024/03/29/arts/music/beyonce-cowboy-carter-credits.html
 

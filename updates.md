@@ -1,3 +1,15 @@
+**OpenAI Unveils A.I. Technology That Recreates Human Voices**\
+`The start-up is sharing the technology, Voice Engine, with a small group of early testers as it tries to understand the potential dangers.`\
+https://nytimes.com/2024/03/29/technology/openai-voice-engine.html
+
+**The Great Tension Inside the Trump G.O.P.**\
+`How long can a populist party support a libertarian Congress?`\
+https://nytimes.com/2024/03/29/opinion/trump-republicans.html
+
+**Fed Chair Says Central Bank Need Not ‘Hurry’ to Cut Rates**\
+`Jerome Powell said that strong economic growth gives Federal Reserve officials room to be patient, and he emphasized the institution’s political independence.`\
+https://nytimes.com/2024/03/29/business/economy/federal-reserve-jerome-powell-interest-rates.html
+
 **Shakira’s Pop-Up Show: Not Something She Dreamed Up at Breakfast**\
 `Months of preparation precede what can appear to be a sudden decision to entertain fans at a busy time in the heart of Times Square.`\
 https://nytimes.com/2024/03/29/arts/music/shakira-pop-up-times-square-concert.html
