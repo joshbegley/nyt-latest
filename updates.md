@@ -1,3 +1,11 @@
+**Corporate Polish Meets Partisan Reality for NBC’s News Chief**\
+`Cesar Conde, a leader with an M.B.A. but limited journalism background, is facing the toughest scrutiny of his career.`\
+https://nytimes.com/2024/03/29/business/media/nbc-news-cesar-conde.html
+
+**Bacteria That Cause Meningitis Are Spreading Again, C.D.C. Warns**\
+`More than 140 cases have been reported so far this year, far exceeding last year’s pace, federal health officials said.`\
+https://nytimes.com/2024/03/29/health/meningitis-infections.html
+
 **A Vibrant Art Scene Beyond the Basics**\
 `The museum curator Maleke Lee speaks to a thriving art scene beyond the standard tourist draws.`\
 https://nytimes.com/paidpost/destination-dc/a-vibrant-art-scene-beyond-the-basics.html
