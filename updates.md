@@ -1,3 +1,7 @@
+**4 Presidents, 2 Events and a Preview of Campaign Clashes to Come**\
+`President Biden raised $25 million at a Radio City Music Hall event, adding to his huge cash edge, after Donald Trump pushed his law-and-order message at a wake for a police officer killed on duty.`\
+https://nytimes.com/2024/03/28/us/politics/biden-clinton-obama-trump-nyc.html
+
 **A River Awakens, Bringing Green Magic to a Desert Town**\
 `After a stunning week of rain, the Todd River in Alice Springs flows once again, bringing a beleaguered community together`\
 https://nytimes.com/2024/03/28/world/australia/todd-river-alice-springs.html
