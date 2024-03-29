@@ -1,3 +1,7 @@
+**Shakira’s Pop-Up Show: Not Something She Dreamed Up at Breakfast**\
+`Months of preparation precede what can appear to be a sudden decision to entertain fans at a busy time in the heart of Times Square.`\
+https://nytimes.com/2024/03/29/arts/music/shakira-pop-up-times-square-concert.html
+
 **Why Are More Private Clubs Popping Up in New York?**\
 `Private clubs have long shaped the fabric of New York social life.`\
 https://nytimes.com/video/realestate/100000009380127/29social-clubs-vid.html
