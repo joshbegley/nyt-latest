@@ -1,3 +1,11 @@
+**How Patty Murray Used Her Gavel to Win $1 Billion for Child Care**\
+`A self-described “mom in tennis shoes,” now the Senate Appropriations Committee leader, managed to win an increase in child care subsidies in a spending freeze.`\
+https://nytimes.com/2024/03/29/us/politics/patty-murray-child-care-budget-senate.html
+
+**Israel must work with the U.N. and open more border crossings to prevent famine, an aid official says.**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/03/29/world/israel-hamas-war-gaza-news/israel-must-work-with-the-un-and-open-more-border-crossings-to-prevent-famine-an-aid-official-says
+
 **Trump and Allies Appeal Ruling That Allowed Georgia Prosecutor to Keep Case**\
 `The defendants in the election interference case are once again pressing their argument that Fani T. Willis should be removed from the prosecution.`\
 https://nytimes.com/2024/03/29/us/trump-appeal-georgia-fani-willis.html
