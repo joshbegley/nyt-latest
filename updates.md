@@ -1,3 +1,7 @@
+**Serra’s ‘Splash’: A Public Artist’s Private Breakthrough**\
+`Serra spattered a pot of molten lead against the base of a wall in Jasper Johns’s home. Then he let it harden. The result looked nothing like a traditional sculpture.`\
+https://nytimes.com/2024/03/29/arts/design/richard-serra-splash-piece-casting.html
+
 **Can Intel Serve Two Masters?**\
 `Biden is counting on it to be a national champion chipmaker, but it still has shareholders to please.`\
 https://nytimes.com/2024/03/29/opinion/intel-gelsinger-chips-biden.html

@@ -22,9 +22,9 @@ https://nytimes.com/interactive/2024/03/29/us/judge-quraishi-nj-ballot-line.html
 `Different ways of dating. Also: Donald Trump and Louis XIV; the stakes in the election; the music business; killing animals; memo to liberals.`\
 https://nytimes.com/2024/03/29/opinion/dating-apps.html
 
-**Serra’s ‘Splash’: A Public Artist’s Private Breakthough**\
+**Serra’s ‘Splash’: A Public Artist’s Private Breakthrough**\
 `Serra spattered a pot of molten lead against the base of a wall in Jasper Johns’s home. Then he let it harden. The result looked nothing like a traditional sculpture.`\
-https://nytimes.com/2024/03/29/arts/design/serras-splash-a-public-artists-private-breakthough.html
+https://nytimes.com/2024/03/29/arts/design/richard-serra-splash-piece-casting.html
 
 **‘Bless These Books’: How Karen Kingsbury Is Extending the Reach of Christian Fiction**\
 `She’s sold more than 25 million copies, but isn’t slowing down. An Amazon series and a film getting wide distribution mark a new phase.`\
