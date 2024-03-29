@@ -1,40 +1,40 @@
-**29mideast-crisis**\
-`Top U.N. Court Orders Israel to Allow ‘Unhindered’ Aid Into Gaza`\
-https://nytimes.com/live/2024/03/29/world/israel-hamas-war-gaza-news
+**A.I.’s Messy Moment + Listeners Respond to Jonathan Haidt + Shrimp Jesus**\
+`“Being a C.E.O. sucks. Elon was right. It is like looking into the abyss and chewing glass.”`\
+https://nytimes.com/2024/03/29/podcasts/ais-messy-moment-listeners-respond-to-jonathan-haidt-shrimp-jesus.html
 
-**An Israeli strike near Aleppo killed Syrian soldiers, according to state media.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2024/03/29/world/israel-hamas-war-gaza-news/an-israeli-strike-near-aleppo-killed-syrian-soldiers-according-to-state-media
+**Behind Closed Doors, Biden Campaign Gathers Major Donors in New York**\
+`At a daylong retreat, 175 of the president’s biggest financiers and fund-raisers will hear from top campaign officials.`\
+https://nytimes.com/2024/03/29/us/politics/biden-donors-new-york.html
 
-**Breaking the Ramadan Fast With Some of Brooklyn’s Newest Arrivals**\
-`New migrants from Africa have joined a changing community in Bedford-Stuyvesant, where they have injected more youthful energy but also brought challenges.`\
-https://nytimes.com/2024/03/29/nyregion/ramadan-bed-stuy-african-migrants-brooklyn.html
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including Beyoncé's new album, “Cowboy Carter.”`\
+https://nytimes.com/interactive/2024/03/29/arts/weekend-editors-picks-beyonce.html
 
-**A Reporter Appraises the State of Real Estate**\
-`Change is coming for many American home buyers and sellers, as well as the agents representing them. Debra Kamin, who covers real estate, explains the shift.`\
-https://nytimes.com/2024/03/29/insider/real-estate-commissions.html
+**Feeling Overwhelmed? Try Tallying Your Tiny Wins.**\
+`Taking stock of small achievements can keep you motivated when times are tough, experts say.`\
+https://nytimes.com/2024/03/29/well/live/overwhelmed-small-wins.html
 
-**Inside a High-Stakes Fight to Limit Social Media’s Hold on Children**\
-`A push by leading Democrats to restrict how social media companies use algorithms to serve content to children has been met by a high-stakes lobbying effort.`\
-https://nytimes.com/2024/03/29/nyregion/social-media-algorithms-children.html
+**6 New Paperbacks to Read This Week **\
+`This week's selection includes titles by Harlan Ellison, Idra Novey, Leila Aboulela and more. `\
+https://nytimes.com/interactive/2024/03/29/books/new-paperbacks-ellison.html
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/29/crosswords/connections-companion.html
+**The New York Times News Quiz, March 29, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/03/29/briefing/baltimore-bridge-ohtani-nbc-news-quiz.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/03/29/crosswords/spelling-bee-forum.html
+**If Opening Day Can’t Be a National Holiday, Here’s a Better Idea**\
+`On April 15, all Americans should wear the number 42.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/if-opening-day-cant-be-a-national-holiday-heres-a-better-idea
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/03/29/crosswords/wordle-review.html
+**Stock Market Surges to Start the Year: 22 Record Highs in 3 Months**\
+`The S&P 500, rising 10 percent, set the pace as investors looked forward to interest rate cuts.`\
+https://nytimes.com/2024/03/29/business/stocks-first-quarter-sp-500.html
 
-**Trump’s Stock Is Rising, and Seth Meyers Is Skeptical**\
-`“I’m willing to bet most of the people investing in this company have never even used Truth Social,” Meyers said of Trump’s social media outlet on Thursday.`\
-https://nytimes.com/2024/03/29/arts/television/seth-meyers-trump-truth-social.html
+**TV’s Saviors Are Here, and They’re Wearing Spandex**\
+`A reboot of “Gladiators,” the musclebound 1990s staple, has attracted millions of viewers in Britain. Is appointment television back?`\
+https://nytimes.com/2024/03/29/arts/television/gladiators-bbc.html
 
-**Word of the Day: extravaganza**\
-`This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/03/29/learning/word-of-the-day-extravaganza.html
+**As Bridge Cleanup Gets Underway, Officials Warn of ‘Daunting’ Process**\
+`Clearing the debris from the collapsed Francis Scott Key Bridge will be a complex but urgent task, officials said. And rebuilding it may take several years, they cautioned.`\
+https://nytimes.com/2024/03/29/us/baltimore-francis-scott-key-bridge.html
 
