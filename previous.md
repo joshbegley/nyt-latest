@@ -1,3 +1,7 @@
+**A River Awakens, Bringing Green Magic to a Desert Town**\
+`After a stunning week of rain, the Todd River in Alice Springs flows once again, bringing a beleaguered community together`\
+https://nytimes.com/2024/03/28/world/australia/todd-river-alice-springs.html
+
 **Shohei Ohtani Is Home and Focused on Baseball. Dodgers Fans Are Relieved.**\
 `Los Angeles finally got a close look at baseball’s megastar on Thursday as a gambling situation involving his former interpreter took a back seat to opening day.`\
 https://nytimes.com/2024/03/28/us/dodgers-ohtani-mlb-opening-day.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/world/middleeast/saudi-arabia-un-women.html
 **Force of Ship Collision Was on the Scale of a Rocket Launch**\
 `A Times analysis used preliminary data to estimate the force of the impact on the Baltimore bridge. It involved “more energy than you can really get your mind around,” an expert said.`\
 https://nytimes.com/interactive/2024/03/28/upshot/baltimore-bridge-ship-force.html
-
-**Government Clampdowns on Social Media Are Not the Answer**\
-`But there is a problem.`\
-https://nytimes.com/2024/03/28/opinion/social-media-government-jonathan-haidt.html
 
