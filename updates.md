@@ -1,3 +1,7 @@
+**Hamas Took Her, and Still Has Her Husband**\
+`The story of one family at the center of the war in Gaza.`\
+https://nytimes.com/2024/03/29/podcasts/the-daily/hamas-took-her-and-still-has-her-husband.html
+
 **Wanted in South Korea: Imperialism-Free Cherry Blossoms**\
 `Activists want to replace a variety of cherry tree associated with the Japanese colonial era with one they say is Korean. The science is messy.`\
 https://nytimes.com/2024/03/29/world/asia/cherry-blossom-tree-japan-korea.html
