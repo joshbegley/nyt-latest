@@ -1,3 +1,7 @@
+**Memoirs Are Powerful Currency for This Hmong American Writer**\
+`Kao Kalia Yang talks about her recently published memoir, “Where Rivers Part,” which is about her mother’s life.`\
+https://nytimes.com/2024/03/29/us/memoirs-hmong-americans.html
+
 **8-Year-Old Girl, Sole Survivor of South Africa Bus Crash, Is in Stable Condition**\
 `Forty-four worshipers from Botswana, along with the driver, were killed when the bus plunged off an overpass into a rocky ravine.`\
 https://nytimes.com/2024/03/29/world/africa/south-africa-botswana-bus-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/podcasts/the-latest-on-sean-combs-legal-woes.html
 **A.I.’s Messy Moment + Listeners Respond to Jonathan Haidt + Shrimp Jesus**\
 `“Being a C.E.O. sucks. Elon was right. It is like looking into the abyss and chewing glass.”`\
 https://nytimes.com/2024/03/29/podcasts/ais-messy-moment-listeners-respond-to-jonathan-haidt-shrimp-jesus.html
-
-**Behind Closed Doors, Biden Campaign Gathers Major Donors in New York**\
-`At a daylong retreat, 175 of the president’s biggest financiers and fund-raisers will hear from top campaign officials.`\
-https://nytimes.com/2024/03/29/us/politics/biden-donors-new-york.html
 

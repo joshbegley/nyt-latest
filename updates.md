@@ -1,3 +1,11 @@
+**8-Year-Old Girl, Sole Survivor of South Africa Bus Crash, Is in Stable Condition**\
+`Forty-four worshipers from Botswana, along with the driver, were killed when the bus plunged off an overpass into a rocky ravine.`\
+https://nytimes.com/2024/03/29/world/africa/south-africa-botswana-bus-crash.html
+
+**Does Trash Talk Have a Place in Sports?**\
+`A guest essayist wants to bring taunting back to baseball. What do you think? Is trash talk harmless fun or bad sportsmanship?`\
+https://nytimes.com/2024/03/29/learning/does-trash-talk-have-a-place-in-sports.html
+
 **Days After U.N. Cease-Fire Resolution, Has Anything Changed in Gaza?**\
 `The United Nations Security Council passed a resolution on Monday that demands an immediate cease-fire in the Gaza Strip. Here’s a closer look at where the situation stands.`\
 https://nytimes.com/2024/03/29/world/middleeast/un-ceasefire-resolution-israel-gaza.html
