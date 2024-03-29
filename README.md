@@ -1,3 +1,7 @@
+**Wanted in South Korea: Imperialism-Free Cherry Blossoms**\
+`Activists want to replace a variety of cherry tree associated with the Japanese colonial era with one they say is Korean. The science is messy.`\
+https://nytimes.com/2024/03/29/world/asia/cherry-blossom-tree-japan-korea.html
+
 **The Latest on Sean Combs’s Legal Woes**\
 `Federal agents raided the hip-hop mogul’s homes this week. This is what we know.`\
 https://nytimes.com/2024/03/29/podcasts/the-latest-on-sean-combs-legal-woes.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/26/opinion/thepoint/if-opening-day-cant-be-a-na
 **TV’s Saviors Are Here, and They’re Wearing Spandex**\
 `A reboot of “Gladiators,” the musclebound 1990s staple, has attracted millions of viewers in Britain. Is appointment television back?`\
 https://nytimes.com/2024/03/29/arts/television/gladiators-bbc.html
-
-**Stock Market Surges to Start the Year: 22 Record Highs in 3 Months**\
-`The S&P 500, rising 10 percent, set the pace as investors looked forward to interest rate cuts.`\
-https://nytimes.com/2024/03/29/business/stocks-first-quarter-sp-500.html
 
