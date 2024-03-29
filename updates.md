@@ -1,3 +1,11 @@
+**Transcript: Ezra Klein Interviews John Ganz**\
+`The March 29, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/03/29/podcasts/transcript-ezra-klein-interviews-john-ganz.html
+
+**An Insider’s History of Guantánamo Prison Camp**\
+`“Serial” is back with Season 4. A history of Guantánamo told by people who lived through key moments in its evolution, who know things the rest of us don’t about being caught inside an improvised justice system.`\
+https://nytimes.com/video/podcasts/100000009384618/an-insiders-history-of-guantanamo-prison-camp.html
+
 **The U.S. Aims to Boost Electric Truck Sales**\
 `Also, a U.S. reporter has spent a year in a Russian prison. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/03/29/briefing/us-truck-rules-reporter-russian-prison-bunnies.html

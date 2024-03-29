@@ -1,3 +1,7 @@
+**Paula Weinstein, Hollywood Veteran and Political Activist, Dies at 78**\
+`Raised by a McCarthy-era rebel, the producer and journalist Hannah Weinstein, she followed her mother’s path into movies and television, advocacy and action.`\
+https://nytimes.com/2024/03/29/movies/paula-weinstein-dead.html
+
 **Transcript: Ezra Klein Interviews John Ganz**\
 `The March 29, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/03/29/podcasts/transcript-ezra-klein-interviews-john-ganz.html
@@ -18,8 +22,8 @@ https://nytimes.com/2024/03/29/nyregion/peter-shapiro-dead.html
 `Did Presidents Biden, Obama and Clinton, appearing together at a fund-raiser in open-neck shirts, look casual or ‘a little disheveled’?`\
 https://nytimes.com/2024/03/29/style/biden-obama-clinton-ties.html
 
-**What to Know About Jeffrey Donaldson, the Former D.U.P. Leader**\
-`Mr. Donaldson resigned as party leader on Friday, after being charged with non-recent sexual offenses.`\
+**What to Know About Jeffrey Donaldson, the Former D.U.P. Leader in Northern Ireland**\
+`Mr. Donaldson resigned as party leader on Friday after being charged with non-recent sexual offenses.`\
 https://nytimes.com/2024/03/29/world/europe/who-is-jeffrey-donaldson-dup.html
 
 **Sailor’s Remains Identified 82 Years After Pearl Harbor**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/us/iowa-spill-fish-kill.html
 **Why Russia Is Protecting North Korea From Nuclear Monitors**\
 `The monitors have provided vivid evidence of how Russia is keeping Pyongyang brimming with fuel and other goods, presumably in return for weapons that Russia can use in Ukraine.`\
 https://nytimes.com/2024/03/29/us/politics/russia-north-korea-nuclear-weapons.html
-
-**‘Renegade Nell’ Review: When the Highwayman Is a Superwoman**\
-`In a new series for Disney+, the creator of “Happy Valley” and “Last Tango in Halifax” imagines a sometimes-superpowered 18th-century justice warrior.`\
-https://nytimes.com/2024/03/29/arts/television/renegade-nell-review.html
 

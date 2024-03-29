@@ -1,3 +1,11 @@
+**Transcript: Ezra Klein Interviews John Ganz**\
+`The March 29, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/03/29/podcasts/transcript-ezra-klein-interviews-john-ganz.html
+
+**An Insider’s History of Guantánamo Prison Camp**\
+`“Serial” is back with Season 4. A history of Guantánamo told by people who lived through key moments in its evolution, who know things the rest of us don’t about being caught inside an improvised justice system.`\
+https://nytimes.com/video/podcasts/100000009384618/an-insiders-history-of-guantanamo-prison-camp.html
+
 **The U.S. Aims to Boost Electric Truck Sales**\
 `Also, a U.S. reporter has spent a year in a Russian prison. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/03/29/briefing/us-truck-rules-reporter-russian-prison-bunnies.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/29/us/politics/russia-north-korea-nuclear-weapons.ht
 **‘Renegade Nell’ Review: When the Highwayman Is a Superwoman**\
 `In a new series for Disney+, the creator of “Happy Valley” and “Last Tango in Halifax” imagines a sometimes-superpowered 18th-century justice warrior.`\
 https://nytimes.com/2024/03/29/arts/television/renegade-nell-review.html
-
-**Review: ‘A Pledge, a Plea and a Love Letter’ to Africa**\
-`In “Until the Lion Tells the Story…,” Lacina Coulibaly walks in his ancestors’ footsteps.`\
-https://nytimes.com/2024/03/29/arts/dance/lacina-coulibaly.html
-
-**Airstrikes Kill Soldiers in Syria in Apparent Israeli Attack**\
-`Israel’s military did not immediately comment on the Syria strikes, but its defense minister said Israel would pursue Hezbollah, an Iran-backed militia, “every place it operates.”`\
-https://nytimes.com/2024/03/29/world/middleeast/israel-syria-airstrikes.html
 
