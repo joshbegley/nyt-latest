@@ -1,3 +1,7 @@
+**Czechs Accuse Men of ‘Russian Influence Operation’ in Europe**\
+`Amid news reports that European politicians received payments to promote Russian interests, the Czech government froze the assets of the men and a website, Voice of Europe.`\
+https://nytimes.com/2024/03/29/world/europe/czech-republic-sanctions-russian-influence-europe.html
+
 **The Government’s Weakest Antitrust Case Is Against Amazon**\
 `Google, on the other hand, acts more like a monopolist.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/amazon-google-antitrust
