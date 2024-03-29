@@ -1,3 +1,7 @@
+**Iowa Fertilizer Spill Kills Nearly All Fish Across 60-Mile Stretch of Rivers**\
+`Officials in Iowa and Missouri estimated that nearly 800,000 fish had died in waters that flow into the Missouri River.`\
+https://nytimes.com/2024/03/29/us/iowa-spill-fish-kill.html
+
 **Why Russia Is Protecting North Korea From Nuclear Monitors**\
 `The monitors have provided vivid evidence of how Russia is keeping Pyongyang brimming with fuel and other goods, presumably in return for weapons that Russia can use in Ukraine.`\
 https://nytimes.com/2024/03/29/us/politics/russia-north-korea-nuclear-weapons.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/29/dining/cowboy-carter-recipes.html
 **Biden Will Visit Baltimore Next Week After Bridge Collapse**\
 `The president’s visit comes as officials start planning for major economic disruptions after a ship struck the Francis Scott Key Bridge.`\
 https://nytimes.com/2024/03/29/us/politics/biden-baltimore-bridge-collapse.html
-
-**How Patty Murray Used Her Gavel to Win $1 Billion for Child Care**\
-`A self-described “mom in tennis shoes,” now the Senate Appropriations Committee leader, managed to win an increase in child care subsidies in a spending freeze.`\
-https://nytimes.com/2024/03/29/us/politics/patty-murray-child-care-budget-senate.html
 

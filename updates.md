@@ -1,3 +1,7 @@
+**Iowa Fertilizer Spill Kills Nearly All Fish Across 60-Mile Stretch of Rivers**\
+`Officials in Iowa and Missouri estimated that nearly 800,000 fish had died in waters that flow into the Missouri River.`\
+https://nytimes.com/2024/03/29/us/iowa-spill-fish-kill.html
+
 **Why Russia Is Protecting North Korea From Nuclear Monitors**\
 `The monitors have provided vivid evidence of how Russia is keeping Pyongyang brimming with fuel and other goods, presumably in return for weapons that Russia can use in Ukraine.`\
 https://nytimes.com/2024/03/29/us/politics/russia-north-korea-nuclear-weapons.html
