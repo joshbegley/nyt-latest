@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`One year since Russia jailed a U.S. reporter.`\
+https://nytimes.com/2024/03/29/briefing/sam-bankman-fried-evan-gershkovich.html
+
 **Beyoncé’s ‘Cowboy Carter’ Is Here, and It’s Much More Than Country**\
 `The superstar’s new LP is a 27-track tour of popular music with a Beatles cover, cameos by Willie Nelson and Dolly Parton, and features from Miley Cyrus and Post Malone.`\
 https://nytimes.com/2024/03/29/arts/music/beyonce-cowboy-carter-released.html
