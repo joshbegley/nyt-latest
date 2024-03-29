@@ -1,3 +1,11 @@
+**Peter Shapiro, Political Groundbreaker in New Jersey, Dies at 71**\
+`He bucked the Democratic machine to become the youngest member of the state’s General Assembly and reformed government as the first Essex County executive.`\
+https://nytimes.com/2024/03/29/nyregion/peter-shapiro-dead.html
+
+**Three Presidents, No Neckties**\
+`Did Presidents Biden, Obama and Clinton, appearing together at a fund-raiser in open-neck shirts, look casual or ‘a little disheveled’?`\
+https://nytimes.com/2024/03/29/style/biden-obama-clinton-ties.html
+
 **What to Know About Jeffrey Donaldson, the Former D.U.P. Leader**\
 `Mr. Donaldson resigned as party leader on Friday, after being charged with non-recent sexual offenses.`\
 https://nytimes.com/2024/03/29/world/europe/who-is-jeffrey-donaldson-dup.html
