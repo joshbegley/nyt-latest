@@ -1,3 +1,7 @@
+**Heart Pump Is Linked to 49 Deaths, the F.D.A. Warns**\
+`The agency faulted the device maker for delayed notice of mounting complications, citing increasing reports of how use of the device perforated the walls of the heart.`\
+https://nytimes.com/2024/03/29/health/fda-heart-pump-fatalities.html
+
 **The Big Number: $30 Billion**\
 `An agreement by Visa and Mastercard to cap swipe fees could save merchants billions. The question is how much it will help consumers.`\
 https://nytimes.com/interactive/2024/03/29/business/visa-mastercard-swipe-fees.html

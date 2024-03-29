@@ -1,3 +1,7 @@
+**Heart Pump Is Linked to 49 Deaths, the F.D.A. Warns**\
+`The agency faulted the device maker for delayed notice of mounting complications, citing increasing reports of how use of the device perforated the walls of the heart.`\
+https://nytimes.com/2024/03/29/health/fda-heart-pump-fatalities.html
+
 **The Big Number: $30 Billion**\
 `An agreement by Visa and Mastercard to cap swipe fees could save merchants billions. The question is how much it will help consumers.`\
 https://nytimes.com/interactive/2024/03/29/business/visa-mastercard-swipe-fees.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/29/realestate/top-home-sales-and-listing
 **In Move to Protect Whales, Polynesian Indigenous Groups Give Them ‘Personhood’**\
 `Indigenous leaders of New Zealand, Tahiti and the Cook Islands signed a treaty that recognizes whales as legal persons. Conservationists hope it will lead to legal protections.`\
 https://nytimes.com/2024/03/29/world/australia/whale-personhood-polynesia-maori.html
-
-**Our Favorite Watering Cans**\
-`Any vessel will work, but these are the ones we'd pick.`\
-https://nytimes.com/interactive/2024/03/29/smarter-living/wirecutter/watering-cans.html
 
