@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | April 8, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/03/29/learning/whats-going-on-in-this-picture-april-8-2024.html
+
 **It’s Time for Honey Baked Ham**\
 `Not for you? There’s always carrot maqluba, or a no-recipe recipe for kielbasa with pierogies.`\
 https://nytimes.com/2024/03/29/dining/honey-baked-ham-easter.html
