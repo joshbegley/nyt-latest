@@ -1,3 +1,7 @@
+**Behind the Ray-Bans, Two Presidents Send a Message About Biden**\
+`The show of unity from Clinton and Obama was a deliberate contrast to Trump’s isolation.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/biden-clinton-obama-manhattan
+
 **Empty Roads and Spewing Lava: 4 Months Into Iceland’s Eruptions**\
 `Volcanic eruptions are continuing in the Reykjanes Peninsula in Iceland. Streets are empty and the Blue Lagoon resort remains closed.`\
 https://nytimes.com/2024/03/29/world/europe/iceland-volcano-eruption-photos.html
@@ -20,7 +24,7 @@ https://nytimes.com/2024/03/29/world/middleeast/un-ceasefire-resolution-israel-g
 
 **A Crisis of School Absences**\
 `Fewer children are attending school, across rich and poor districts.`\
-https://nytimes.com/2024/03/29/briefing/a-crisis-of-school-absences.html
+https://nytimes.com/2024/03/29/briefing/school-absences.html
 
 **A ‘Cataclysmic Situation’ in Haiti, and the Downfall of Sam Bankman-Fried**\
 `Plus, Beyoncé’s album has arrived, riding a horse.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/podcasts/the-daily/hamas-took-her-and-still-has-h
 **Wanted in South Korea: Imperialism-Free Cherry Blossoms**\
 `Activists want to replace a variety of cherry tree associated with the Japanese colonial era with one they say is Korean. The science is messy.`\
 https://nytimes.com/2024/03/29/world/asia/cherry-blossom-tree-japan-korea.html
-
-**The Latest on Sean Combs’s Legal Woes**\
-`Federal agents raided the hip-hop mogul’s homes this week. This is what we know.`\
-https://nytimes.com/2024/03/29/podcasts/the-latest-on-sean-combs-legal-woes.html
 

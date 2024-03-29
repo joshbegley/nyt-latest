@@ -1,3 +1,11 @@
+**Behind the Ray-Bans, Two Presidents Send a Message About Biden**\
+`The show of unity from Clinton and Obama was a deliberate contrast to Trump’s isolation.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/biden-clinton-obama-manhattan
+
+**A Crisis of School Absences**\
+`Fewer children are attending school, across rich and poor districts.`\
+https://nytimes.com/2024/03/29/briefing/school-absences.html
+
 **Empty Roads and Spewing Lava: 4 Months Into Iceland’s Eruptions**\
 `Volcanic eruptions are continuing in the Reykjanes Peninsula in Iceland. Streets are empty and the Blue Lagoon resort remains closed.`\
 https://nytimes.com/2024/03/29/world/europe/iceland-volcano-eruption-photos.html
