@@ -1,3 +1,7 @@
+**The U.S. Aims to Boost Electric Truck Sales**\
+`Also, a U.S. reporter has spent a year in a Russian prison. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/03/29/briefing/us-truck-rules-reporter-russian-prison-bunnies.html
+
 **Peter Shapiro, Political Groundbreaker in New Jersey, Dies at 71**\
 `He bucked the Democratic machine to become the youngest member of the state’s General Assembly and reformed government as the first Essex County executive.`\
 https://nytimes.com/2024/03/29/nyregion/peter-shapiro-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/arts/dance/lacina-coulibaly.html
 **Airstrikes Kill Soldiers in Syria in Apparent Israeli Attack**\
 `Israel’s military did not immediately comment on the Syria strikes, but its defense minister said Israel would pursue Hezbollah, an Iran-backed militia, “every place it operates.”`\
 https://nytimes.com/2024/03/29/world/middleeast/israel-syria-airstrikes.html
-
-**How a Third-Party Candidate Could Affect the 2024 Vote**\
-`Rebecca Davis O’Brien, a politics reporter for The New York Times, explains how third-party candidates could alter the outcome of the election.`\
-https://nytimes.com/video/us/politics/100000009385520/democrats-counter-third-party-candidates.html
 
