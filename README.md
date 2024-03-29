@@ -2,7 +2,7 @@
 `Jeffrey Donaldson, the leader of the Democratic Unionist Party and a backer of strong ties with the U.K., said he had been charged with “allegations of an historical nature,” the party said.`\
 https://nytimes.com/2024/03/29/world/europe/jeffrey-donaldson-resigns-dup-northern-ireland.html
 
-**Biden and Trump sought to shore up their bases and address their weaknesses.**\
+**Biden and Trump appeal to their voters and address their weaknesses.**\
 `By Lisa Lerer`\
 https://nytimes.com/2024/03/29/us/politics/biden-and-trump-sought-to-shore-up-their-bases-and-address-their-weaknesses.html
 
