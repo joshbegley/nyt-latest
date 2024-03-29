@@ -1,3 +1,7 @@
+**Louis Gossett Jr.’s Greatest Roles: A Streaming Guide**\
+`His range was wide, as evidenced by performances in projects as different as “Roots,” “An Officer and a Gentleman” and “Diggstown.”`\
+https://nytimes.com/2024/03/29/movies/louis-gossett-jr-streaming-guide.html
+
 **Daniel A. Moore, Founder of an African American Museum, Dies at 88**\
 `To tell the full story of the American Black experience, he created an Atlanta institution in 1978 and later moved it to a building “erected brick by brick” by Black masons.`\
 https://nytimes.com/2024/03/29/us/daniel-a-moore-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/arts/music/eleanor-collins-dead.html
 **Our Critics Talk About the Novels That Make Them Laugh**\
 `Dwight Garner, Alexandra Jacobs and Jennifer Szalai weigh in on 22 of the funniest novels since “Catch-22.”`\
 https://nytimes.com/2024/03/29/books/review/our-critics-talk-about-the-novels-that-make-them-laugh.html
-
-**Beyoncé’s ‘Cowboy Carter’ Showcases Her Greatest Instrument**\
-`It’s a delight to hear her voice unmediated and deployed in novel ways.`\
-https://nytimes.com/live/2024/03/26/opinion/thepoint/beyonce-cowboy-carter
 

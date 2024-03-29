@@ -1,3 +1,7 @@
+**Daniel A. Moore, Founder of an African American Museum, Dies at 88**\
+`To tell the full story of the American Black experience, he created an Atlanta institution in 1978 and later moved it to a building “erected brick by brick” by Black masons.`\
+https://nytimes.com/2024/03/29/us/daniel-a-moore-dead.html
+
 **Beyond Beyoncé: Black Women of Country, Past and Present**\
 `Listen to songs from Rhiannon Giddens, Rissi Palmer, Linda Martell and more.`\
 https://nytimes.com/2024/03/29/arts/music/amplifier-newsletter-black-women-country.html
