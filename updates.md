@@ -1,3 +1,7 @@
+**Charged with Sexual Offenses, Influential Politician in Northern Ireland Steps Down**\
+`Jeffrey Donaldson, the leader of the Democratic Unionist Party and a backer of strong ties with the U.K., has resigned after being arrested on Thursday.`\
+https://nytimes.com/2024/03/29/world/europe/jeffrey-donaldson-resigns-dup-northern-ireland.html
+
 **29pol-swiper**\
 `Biden and Trump appear in dueling New York events to shore up the base in a contrast election.`\
 https://nytimes.com/live/2024/03/29/us/trump-biden-election

@@ -6,8 +6,8 @@ https://nytimes.com/live/2024/03/29/us/trump-biden-election
 `Debris from the collapsed Francis Scott Key Bridge is blocking a vital shipping lane into the Port of Baltimore.`\
 https://nytimes.com/video/us/100000009387620/baltimore-key-bridge-collapse.html
 
-**Influential Politician in Northern Ireland Steps Down**\
-`Jeffrey Donaldson, the leader of the Democratic Unionist Party and a backer of strong ties with the U.K., said he had been charged with “allegations of an historical nature,” the party said.`\
+**Charged with Sexual Offenses, Influential Politician in Northern Ireland Steps Down**\
+`Jeffrey Donaldson, the leader of the Democratic Unionist Party and a backer of strong ties with the U.K., has resigned after being arrested on Thursday.`\
 https://nytimes.com/2024/03/29/world/europe/jeffrey-donaldson-resigns-dup-northern-ireland.html
 
 **Biden and Trump appeal to their voters and address their weaknesses.**\
