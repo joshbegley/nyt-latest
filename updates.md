@@ -1,3 +1,7 @@
+**4 Things You Need to Know About Health Care Cyberattacks**\
+`Despite the explosion in ransomware hacks like the one against Change Healthcare, regulation is spotty and few new safeguards have been proposed to protect patient data, vulnerable hospitals and medical groups.`\
+https://nytimes.com/2024/03/29/health/cyber-attack-unitedhealth-hospital-patients.html
+
 **‘Bathhouse.pptx’ Review: A Fever Dream, Both Poetic and Mystifying**\
 `Jesús I. Valles’s prizewinning play gets a stage at the Flea, but the ambitious work about queer history proves too difficult to wrangle.`\
 https://nytimes.com/2024/03/29/theater/bathhousepptx-review.html

@@ -1,3 +1,7 @@
+**4 Things You Need to Know About Health Care Cyberattacks**\
+`Despite the explosion in ransomware hacks like the one against Change Healthcare, regulation is spotty and few new safeguards have been proposed to protect patient data, vulnerable hospitals and medical groups.`\
+https://nytimes.com/2024/03/29/health/cyber-attack-unitedhealth-hospital-patients.html
+
 **‘Bathhouse.pptx’ Review: A Fever Dream, Both Poetic and Mystifying**\
 `Jesús I. Valles’s prizewinning play gets a stage at the Flea, but the ambitious work about queer history proves too difficult to wrangle.`\
 https://nytimes.com/2024/03/29/theater/bathhousepptx-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/health/fda-heart-pump-fatalities.html
 **The Big Number: $30 Billion**\
 `An agreement by Visa and Mastercard to cap swipe fees could save merchants billions. The question is how much it will help consumers.`\
 https://nytimes.com/interactive/2024/03/29/business/visa-mastercard-swipe-fees.html
-
-**Israel Cites ‘New Initiatives’ for Gaza Aid, but Progress Has Been Slow**\
-`The country pointed to measures to deliver necessities by land, air and sea that aid groups say are not nearly sufficient to meet the need.`\
-https://nytimes.com/2024/03/29/world/middleeast/israel-gaza-aid-famine.html
 
