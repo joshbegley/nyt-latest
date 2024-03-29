@@ -1,3 +1,7 @@
+**Memoirs Are Powerful Currency for This Hmong American Writer**\
+`Kao Kalia Yang talks about her recently published memoir, “Where Rivers Part,” which is about her mother’s life.`\
+https://nytimes.com/2024/03/29/us/memoirs-hmong-americans.html
+
 **8-Year-Old Girl, Sole Survivor of South Africa Bus Crash, Is in Stable Condition**\
 `Forty-four worshipers from Botswana, along with the driver, were killed when the bus plunged off an overpass into a rocky ravine.`\
 https://nytimes.com/2024/03/29/world/africa/south-africa-botswana-bus-crash.html
