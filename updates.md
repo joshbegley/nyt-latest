@@ -1,3 +1,15 @@
+**Chicago Democrats Pick Former Judge to Replace Kim Foxx as Top Prosecutor**\
+`The contest was close, and workers counted ballots for days after the April 19 election before the result of the race for the Democratic nomination was announced.`\
+https://nytimes.com/2024/03/29/us/cook-county-states-attorney-election.html
+
+**Paula Weinstein, Hollywood Veteran and Political Activist, Dies at 78**\
+`Raised by a McCarthy-era rebel, the producer and journalist Hannah Weinstein, she followed her mother’s path into movies and television, advocacy and action.`\
+https://nytimes.com/2024/03/29/movies/paula-weinstein-dead.html
+
+**What to Know About Jeffrey Donaldson, the Former D.U.P. Leader in Northern Ireland**\
+`Mr. Donaldson resigned as party leader on Friday after being charged with non-recent sexual offenses.`\
+https://nytimes.com/2024/03/29/world/europe/who-is-jeffrey-donaldson-dup.html
+
 **Transcript: Ezra Klein Interviews John Ganz**\
 `The March 29, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/03/29/podcasts/transcript-ezra-klein-interviews-john-ganz.html
