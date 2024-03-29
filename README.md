@@ -1,3 +1,7 @@
+**Daniel A. Moore, Founder of an African American Museum, Dies at 88**\
+`To tell the full story of the American Black experience, he created an Atlanta institution in 1978 and later moved it to a building “erected brick by brick” by Black masons.`\
+https://nytimes.com/2024/03/29/us/daniel-a-moore-dead.html
+
 **Beyond Beyoncé: Black Women of Country, Past and Present**\
 `Listen to songs from Rhiannon Giddens, Rissi Palmer, Linda Martell and more.`\
 https://nytimes.com/2024/03/29/arts/music/amplifier-newsletter-black-women-country.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/books/review/our-critics-talk-about-the-novels-th
 **Beyoncé’s ‘Cowboy Carter’ Showcases Her Greatest Instrument**\
 `It’s a delight to hear her voice unmediated and deployed in novel ways.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/beyonce-cowboy-carter
-
-**How ‘3 Body Problem’ Created a Spectacular Disaster, With Strings Attached**\
-`Technical artists used a combination of digital and practical effects to slice an oil tanker into pieces in the fifth episode. Here’s how they did it.`\
-https://nytimes.com/2024/03/29/arts/television/3-body-problem.html
 

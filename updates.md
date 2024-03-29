@@ -1,3 +1,11 @@
+**Beyond Beyoncé: Black Women of Country, Past and Present**\
+`Listen to songs from Rhiannon Giddens, Rissi Palmer, Linda Martell and more.`\
+https://nytimes.com/2024/03/29/arts/music/amplifier-newsletter-black-women-country.html
+
+**Heat Waves Are Moving Slower and Staying Longer, Study Finds**\
+`Climate change is making heat waves linger for longer stretches of time, exacerbating the effects of extreme temperatures.`\
+https://nytimes.com/2024/03/29/climate/heat-waves-longer-slower.html
+
 **How Female Bodybuilders Became Fashion’s Latest Muses**\
 `An industry long known for revering willowy bodies is taking a new interest in muscle.`\
 https://nytimes.com/2024/03/29/t-magazine/female-bodybuilder-fashion.html
