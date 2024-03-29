@@ -1,3 +1,7 @@
+**The Government’s Weakest Antitrust Case Is Against Amazon**\
+`Google, on the other hand, acts more like a monopolist.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/amazon-google-antitrust
+
 **5 Recipes for Your ‘Cowboy Carter’ Listening Party**\
 `Because you'll definitely need fuel for the dance floor.`\
 https://nytimes.com/interactive/2024/03/29/dining/cowboy-carter-recipes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/books/neeli-cherkovski-dead.html
 **Czechs Accuse Two Men of Running ‘Russian Influence Operation’ in Europe**\
 `Amid news reports that European politicians received payments to promote Russian interests, the Czech government froze the assets of the men and a website, Voice of Europe.`\
 https://nytimes.com/2024/03/29/world/europe/czech-republic-sanctions-russian-influence-europe.html
-
-**Read Judge Quraishi’s Ruling**\
-`The decision is expected to fundamentally reshape New Jersey politics.`\
-https://nytimes.com/interactive/2024/03/29/us/judge-quraishi-nj-ballot-line.html
 
