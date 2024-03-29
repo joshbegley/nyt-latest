@@ -11,7 +11,7 @@ https://nytimes.com/2024/03/29/magazine/homophobia-barbershop-speaking-out-ethic
 https://nytimes.com/2024/03/29/books/neeli-cherkovski-dead.html
 
 **Czechs Accuse Two Men of Running ‘Russian Influence Operation’ in Europe**\
-`Amid news reports of European politicians receiving payments to promote Russian interests, the Czech government froze the assets of the men and a website, Voice of Europe.`\
+`Amid news reports that European politicians received payments to promote Russian interests, the Czech government froze the assets of the men and a website, Voice of Europe.`\
 https://nytimes.com/2024/03/29/world/europe/czech-republic-sanctions-russian-influence-europe.html
 
 **Read Judge Quraishi’s Ruling**\
