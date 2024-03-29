@@ -1,3 +1,7 @@
+**Alice Coltrane’s Explosive Carnegie Hall Concert, and 7 More New Songs**\
+`Hear tracks by St. Vincent, Ani DiFranco, Camila Cabello and others.`\
+https://nytimes.com/2024/03/29/arts/music/playlist-alice-coltrane-st-vincent.html
+
 **Louis Gossett Jr.’s Greatest Roles: A Streaming Guide**\
 `His range was wide, as evidenced by performances in projects as different as “Roots,” “An Officer and a Gentleman” and “Diggstown.”`\
 https://nytimes.com/2024/03/29/movies/louis-gossett-jr-streaming-guide.html
