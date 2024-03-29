@@ -1,3 +1,11 @@
+**How Patty Murray Used Her Gavel to Win $1 Billion for Child Care**\
+`A self-described “mom in tennis shoes,” now the Senate Appropriations Committee leader, managed to win an increase in child care subsidies in a spending freeze.`\
+https://nytimes.com/2024/03/29/us/politics/patty-murray-child-care-budget-senate.html
+
+**Israel must work with the U.N. and open more border crossings to prevent famine, an aid official says.**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/03/29/world/israel-hamas-war-gaza-news/israel-must-work-with-the-un-and-open-more-border-crossings-to-prevent-famine-an-aid-official-says
+
 **Trump and Allies Appeal Ruling That Allowed Georgia Prosecutor to Keep Case**\
 `The defendants in the election interference case are once again pressing their argument that Fani T. Willis should be removed from the prosecution.`\
 https://nytimes.com/2024/03/29/us/trump-appeal-georgia-fani-willis.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/29/opinion/dating-apps.html
 **Serra’s ‘Splash’: A Public Artist’s Private Breakthrough**\
 `Serra spattered a pot of molten lead against the base of a wall in Jasper Johns’s home. Then he let it harden. The result looked nothing like a traditional sculpture.`\
 https://nytimes.com/2024/03/29/arts/design/richard-serra-splash-piece-casting.html
-
-**‘Bless These Books’: How Karen Kingsbury Is Extending the Reach of Christian Fiction**\
-`She’s sold more than 25 million copies, but isn’t slowing down. An Amazon series and a film getting wide distribution mark a new phase.`\
-https://nytimes.com/2024/03/29/books/karen-kingsbury-the-baxters.html
-
-**Louis Gossett Jr.’s Greatest Roles: A Streaming Guide**\
-`His range was wide, as evidenced by performances in projects as different as “Roots,” “An Officer and a Gentleman” and “Diggstown.”`\
-https://nytimes.com/2024/03/29/movies/louis-gossett-jr-streaming-guide.html
 
