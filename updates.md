@@ -1,3 +1,11 @@
+**Germany, a Loyal Israel Ally, Begins to Shift Tone as Gaza Toll Mounts**\
+`Supporting Israel is seen as a historic duty in Germany, but the worsening crisis has pushed German officials to ask whether that backing has gone too far.`\
+https://nytimes.com/2024/03/29/world/europe/germany-israel-gaza.html
+
+**Stream These 12 Movies Before They Leave Netflix in April**\
+`A Ryan Gosling detective comedy, a Formula One racing drama and the romantic musical “Mamma Mia!” are among the movies exiting the streaming service.`\
+https://nytimes.com/2024/03/29/movies/netflix-leaving-april.html
+
 **Charged with Sexual Offenses, Influential Politician in Northern Ireland Steps Down**\
 `Jeffrey Donaldson, the leader of the Democratic Unionist Party and a backer of strong ties with the U.K., has resigned after being arrested on Thursday.`\
 https://nytimes.com/2024/03/29/world/europe/jeffrey-donaldson-resigns-dup-northern-ireland.html
