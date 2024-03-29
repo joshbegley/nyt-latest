@@ -1,3 +1,7 @@
+**Why It’s So Expensive to Live in Phoenix**\
+`Arizona is a presidential election battleground state, and a dire shortage of affordable housing there is sowing economic anxiety among voters.`\
+https://nytimes.com/2024/03/29/business/arizona-housing-economy.html
+
 **They Can’t See the Eclipse, but This Device Will Help Them Hear It**\
 `A device called LightSound is being distributed to help the blind and visually impaired experience this year’s event.`\
 https://nytimes.com/2024/03/29/science/total-eclipse-blind-lightsound.html
