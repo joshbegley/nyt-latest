@@ -1,3 +1,7 @@
+**3 Festive Main Dishes for Any Spring Party**\
+`Whether for a casual cookout or an elegant dinner party, these impressive recipes are easy to pull off.`\
+https://nytimes.com/2024/03/29/dining/grilled-chicken-clam-salad-recipes.html
+
 **In a tight battle for the house, the congressional map is largely settled.**\
 `By Nick Corasaniti`\
 https://nytimes.com/live/2024/03/29/us/trump-biden-election/2024-congress-maps
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/opinion/trump-republicans.html
 **Fed Chair Says Central Bank Need Not ‘Hurry’ to Cut Rates**\
 `Jerome Powell said that strong economic growth gives Federal Reserve officials room to be patient, and he emphasized the institution’s political independence.`\
 https://nytimes.com/2024/03/29/business/economy/federal-reserve-jerome-powell-interest-rates.html
-
-**New Jersey’s Ballot Must Be Immediately Redesigned, Federal Judge Rules**\
-`The ruling is expected to abolish a practice that has allowed the state’s Democratic and Republican political machines to flourish.`\
-https://nytimes.com/2024/03/29/nyregion/new-jersey-election-ballot-challenge.html
 
