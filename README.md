@@ -1,3 +1,7 @@
+**Why It’s So Expensive to Live in Phoenix**\
+`Arizona is a presidential election battleground state, and a dire shortage of affordable housing there is sowing economic anxiety among voters.`\
+https://nytimes.com/2024/03/29/business/arizona-housing-economy.html
+
 **They Can’t See the Eclipse, but This Device Will Help Them Hear It**\
 `A device called LightSound is being distributed to help the blind and visually impaired experience this year’s event.`\
 https://nytimes.com/2024/03/29/science/total-eclipse-blind-lightsound.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/world/europe/jeffrey-donaldson-resigns-dup-northe
 **Biden and Trump appeal to their voters and address their weaknesses.**\
 `By Lisa Lerer`\
 https://nytimes.com/live/2024/03/29/us/trump-biden-election/biden-and-trump-sought-to-shore-up-their-bases-and-address-their-weaknesses
-
-**New Pollution Rules Aim to Lift Sales of Electric Trucks**\
-`The latest in a string of ambitious climate regulations aims to clean up the heaviest polluters on the road. But truckers are worried.`\
-https://nytimes.com/2024/03/29/climate/epa-trucks-emissions-regulation.html
 
