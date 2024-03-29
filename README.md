@@ -1,3 +1,7 @@
+**Chicago Democrats Pick Former Judge to Replace Kim Foxx as Top Prosecutor**\
+`The contest was close, and workers counted ballots for days after the April 19 election before the result of the race for the Democratic nomination was announced.`\
+https://nytimes.com/2024/03/29/us/cook-county-states-attorney-election.html
+
 **Paula Weinstein, Hollywood Veteran and Political Activist, Dies at 78**\
 `Raised by a McCarthy-era rebel, the producer and journalist Hannah Weinstein, she followed her mother’s path into movies and television, advocacy and action.`\
 https://nytimes.com/2024/03/29/movies/paula-weinstein-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/us/virginia-sailor-pearl-harbor.html
 **Iowa Fertilizer Spill Kills Nearly All Fish Across 60-Mile Stretch of Rivers**\
 `Officials in Iowa and Missouri estimated that nearly 800,000 fish had died in waters that flow into the Missouri River.`\
 https://nytimes.com/2024/03/29/us/iowa-spill-fish-kill.html
-
-**Why Russia Is Protecting North Korea From Nuclear Monitors**\
-`The monitors have provided vivid evidence of how Russia is keeping Pyongyang brimming with fuel and other goods, presumably in return for weapons that Russia can use in Ukraine.`\
-https://nytimes.com/2024/03/29/us/politics/russia-north-korea-nuclear-weapons.html
 
