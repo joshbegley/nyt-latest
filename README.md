@@ -30,11 +30,11 @@ https://nytimes.com/interactive/2024/03/29/briefing/baltimore-bridge-ohtani-nbc-
 `On April 15, all Americans should wear the number 42.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/if-opening-day-cant-be-a-national-holiday-heres-a-better-idea
 
-**Stock Market Surges to Start the Year: 22 Record Highs in 3 Months**\
-`The S&P 500, rising 10 percent, set the pace as investors looked forward to interest rate cuts.`\
-https://nytimes.com/2024/03/29/business/stocks-first-quarter-sp-500.html
-
 **TV’s Saviors Are Here, and They’re Wearing Spandex**\
 `A reboot of “Gladiators,” the musclebound 1990s staple, has attracted millions of viewers in Britain. Is appointment television back?`\
 https://nytimes.com/2024/03/29/arts/television/gladiators-bbc.html
+
+**Stock Market Surges to Start the Year: 22 Record Highs in 3 Months**\
+`The S&P 500, rising 10 percent, set the pace as investors looked forward to interest rate cuts.`\
+https://nytimes.com/2024/03/29/business/stocks-first-quarter-sp-500.html
 
