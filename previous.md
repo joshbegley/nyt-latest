@@ -1,3 +1,7 @@
+**They Can’t See the Eclipse, but This Device Will Help Them Hear It**\
+`A device called LightSound is being distributed to help the blind and visually impaired experience this year’s event.`\
+https://nytimes.com/2024/03/29/science/total-eclipse-blind-lightsound.html
+
 **Teacher Secretly Sold His Students’ Art on Mugs and Shirts, Lawsuit Says**\
 `Parents of a dozen students at a school near Montreal accused an art teacher in a lawsuit of reproducing portraits from a class assignment and putting them on items that he offered for sale online.`\
 https://nytimes.com/2024/03/29/world/canada/mario-perron-canada-art-teacher.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/29/us/trump-biden-election/biden-and-trump-soug
 **New Pollution Rules Aim to Lift Sales of Electric Trucks**\
 `The latest in a string of ambitious climate regulations aims to clean up the heaviest polluters on the road. But truckers are worried.`\
 https://nytimes.com/2024/03/29/climate/epa-trucks-emissions-regulation.html
-
-**How Many Easters Remain for This Century-Old Boys’ Choir School?**\
-`St. Thomas Church in New York is considering closing its renowned boarding school for choristers, one of only a few in the world, because of financial woes.`\
-https://nytimes.com/2024/03/29/arts/music/st-thomas-choir-school.html
 

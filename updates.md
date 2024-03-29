@@ -1,3 +1,7 @@
+**They Can’t See the Eclipse, but This Device Will Help Them Hear It**\
+`A device called LightSound is being distributed to help the blind and visually impaired experience this year’s event.`\
+https://nytimes.com/2024/03/29/science/total-eclipse-blind-lightsound.html
+
 **Teacher Secretly Sold His Students’ Art on Mugs and Shirts, Lawsuit Says**\
 `Parents of a dozen students at a school near Montreal accused an art teacher in a lawsuit of reproducing portraits from a class assignment and putting them on items that he offered for sale online.`\
 https://nytimes.com/2024/03/29/world/canada/mario-perron-canada-art-teacher.html
