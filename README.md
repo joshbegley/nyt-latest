@@ -4,7 +4,7 @@ https://nytimes.com/2024/03/29/world/europe/jeffrey-donaldson-resigns-dup-northe
 
 **Biden and Trump appeal to their voters and address their weaknesses.**\
 `By Lisa Lerer`\
-https://nytimes.com/2024/03/29/us/politics/biden-and-trump-sought-to-shore-up-their-bases-and-address-their-weaknesses.html
+https://nytimes.com/live/2024/03/29/us/trump-biden-election/biden-and-trump-sought-to-shore-up-their-bases-and-address-their-weaknesses
 
 **New Pollution Rules Aim to Lift Sales of Electric Trucks**\
 `The latest in a string of ambitious climate regulations aims to clean up the heaviest polluters on the road. But truckers are worried.`\
