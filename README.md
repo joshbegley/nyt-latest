@@ -1,3 +1,7 @@
+**A ‘Cataclysmic Situation’ in Haiti, and the Downfall of Sam Bankman-Fried**\
+`Plus, Beyoncé’s album has arrived, riding a horse.`\
+https://nytimes.com/2024/03/29/podcasts/haiti-sam-bankman-fried.html
+
 **Hamas Took Her, and Still Has Her Husband**\
 `The story of one family at the center of the war in Gaza.`\
 https://nytimes.com/2024/03/29/podcasts/the-daily/hamas-took-her-and-still-has-her-husband.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/29/books/new-paperbacks-ellison.html
 **The New York Times News Quiz, March 29, 2024**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2024/03/29/briefing/baltimore-bridge-ohtani-nbc-news-quiz.html
-
-**If Opening Day Can’t Be a National Holiday, Here’s a Better Idea**\
-`On April 15, all Americans should wear the number 42.`\
-https://nytimes.com/live/2024/03/26/opinion/thepoint/if-opening-day-cant-be-a-national-holiday-heres-a-better-idea
 
