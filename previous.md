@@ -1,3 +1,7 @@
+**Days After U.N. Cease-Fire Resolution, Has Anything Changed in Gaza?**\
+`The United Nations Security Council passed a resolution on Monday that demands an immediate cease-fire in the Gaza Strip. Here’s a closer look at where the situation stands.`\
+https://nytimes.com/2024/03/29/world/middleeast/un-ceasefire-resolution-israel-gaza.html
+
 **A Crisis of School Absences**\
 `Fewer children are attending school, across rich and poor districts.`\
 https://nytimes.com/2024/03/29/briefing/a-crisis-of-school-absences.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/29/arts/weekend-editors-picks-beyonce.ht
 **Feeling Overwhelmed? Try Tallying Your Tiny Wins.**\
 `Taking stock of small achievements can keep you motivated when times are tough, experts say.`\
 https://nytimes.com/2024/03/29/well/live/overwhelmed-small-wins.html
-
-**6 New Paperbacks to Read This Week **\
-`This week's selection includes titles by Harlan Ellison, Idra Novey, Leila Aboulela and more. `\
-https://nytimes.com/interactive/2024/03/29/books/new-paperbacks-ellison.html
 
