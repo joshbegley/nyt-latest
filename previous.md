@@ -1,3 +1,7 @@
+**Word of the Day: extravaganza**\
+`This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/29/learning/word-of-the-day-extravaganza.html
+
 **Putin’s Next Escalation Is Coming**\
 `Even without the terror attack in Moscow last week, the Russian president was primed to step up his assault on Ukraine.`\
 https://nytimes.com/2024/03/29/opinion/moscow-attack-putin-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/style/modern-love-how-i-learned-to-trust-men.html
 **After a Missed Connection, a Union of Mythic Proportions**\
 `After seeing Joelle Gamble’s “Lord of the Rings” tattoo on her dating profile, Zachary Copeland believed he had found his soul mate. But he would have to wait more than a year to find out.`\
 https://nytimes.com/2024/03/29/style/joelle-gamble-zachary-copeland-wedding.html
-
-**He Offered Her a Seat at His Table, and Later, a Place in His Heart**\
-`Arnim Kaiser and Pamela Grace were both out-of-towners dining alone in Arles, France. Their waitress was watching in the wings.`\
-https://nytimes.com/2024/03/29/style/arnim-kaiser-pamela-grace-wedding.html
 

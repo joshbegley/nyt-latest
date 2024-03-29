@@ -1,3 +1,7 @@
+**Word of the Day: extravaganza**\
+`This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/03/29/learning/word-of-the-day-extravaganza.html
+
 **Putin’s Next Escalation Is Coming**\
 `Even without the terror attack in Moscow last week, the Russian president was primed to step up his assault on Ukraine.`\
 https://nytimes.com/2024/03/29/opinion/moscow-attack-putin-ukraine.html
