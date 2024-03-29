@@ -1,3 +1,7 @@
+**Review: ‘Tommy’ Goes Full Tilt in a Relentless Broadway Revival**\
+`Will the Who’s rock opera about a traumatized boy hit the jackpot again?`\
+https://nytimes.com/2024/03/28/theater/the-whos-tommy-review-broadway.html
+
 **The Rent Was Too High So They Threw a Party**\
 `During the Harlem Renaissance, some Black people hosted rent parties, celebrations with an undercurrent of desperation in the face of racism and discrimination.`\
 https://nytimes.com/interactive/2024/03/28/realestate/rent-party-harlem-renaissance.html

@@ -1,3 +1,7 @@
+**Review: ‘Tommy’ Goes Full Tilt in a Relentless Broadway Revival**\
+`Will the Who’s rock opera about a traumatized boy hit the jackpot again?`\
+https://nytimes.com/2024/03/28/theater/the-whos-tommy-review-broadway.html
+
 **The Rent Was Too High So They Threw a Party**\
 `During the Harlem Renaissance, some Black people hosted rent parties, celebrations with an undercurrent of desperation in the face of racism and discrimination.`\
 https://nytimes.com/interactive/2024/03/28/realestate/rent-party-harlem-renaissance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/opinion/biden-trump-china.html
 **The Great Struggle for Liberalism**\
 `Liberal democratic capitalism isn’t some set of abstract ideas. It’s a means to a richer, fuller and more dynamic life.`\
 https://nytimes.com/2024/03/28/opinion/liberalism-authoritarianism-trump.html
-
-**Dozens Killed in South Africa Bus Crash**\
-`The bus was carrying people to an Easter church service when it fell off a bridge and plunged 165 feet into a ravine.`\
-https://nytimes.com/video/world/africa/100000009386941/bus-crash-south-africa.html
 
