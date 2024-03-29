@@ -1,3 +1,7 @@
+**Variety: Marching Bands**\
+`To solve Sam Ezersky’s puzzle, go forward (and sideways, and backward).`\
+https://nytimes.com/2024/03/28/crosswords/variety-marching-bands.html
+
 **Sweet Message Bearer**\
 `Jake Bunch makes his New York Times Crossword debut.`\
 https://nytimes.com/2024/03/28/crosswords/daily-puzzle-2024-03-29.html
