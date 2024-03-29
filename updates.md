@@ -1,3 +1,7 @@
+**A Crisis of School Absences**\
+`Fewer children are attending school, across rich and poor districts.`\
+https://nytimes.com/2024/03/29/briefing/a-crisis-of-school-absences.html
+
 **A ‘Cataclysmic Situation’ in Haiti, and the Downfall of Sam Bankman-Fried**\
 `Plus, Beyoncé’s album has arrived, riding a horse.`\
 https://nytimes.com/2024/03/29/podcasts/haiti-sam-bankman-fried.html
