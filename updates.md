@@ -1,3 +1,11 @@
+**29mideast-crisis**\
+`Top U.N. Court Orders Israel to Allow ‘Unhindered’ Aid Into Gaza`\
+https://nytimes.com/live/2024/03/29/world/israel-hamas-war-gaza-news
+
+**An Israeli strike near Aleppo killed Syrian soldiers, according to state media.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/03/29/world/israel-hamas-war-gaza-news/an-israeli-strike-near-aleppo-killed-syrian-soldiers-according-to-state-media
+
 **Breaking the Ramadan Fast With Some of Brooklyn’s Newest Arrivals**\
 `New migrants from Africa have joined a changing community in Bedford-Stuyvesant, where they have injected more youthful energy but also brought challenges.`\
 https://nytimes.com/2024/03/29/nyregion/ramadan-bed-stuy-african-migrants-brooklyn.html
