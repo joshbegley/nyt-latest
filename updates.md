@@ -1,3 +1,7 @@
+**Review: An Age-Old Riddle Ginned Up for Postapocalyptic Times**\
+`The choreographers Baye & Asa usher the Sphinx puzzler into a vaguely menacing landscape.`\
+https://nytimes.com/2024/03/29/arts/dance/baye-asa-review.html
+
 **Eleanor Collins, Canada’s ‘First Lady of Jazz,’ Dies at 104**\
 `A singer known for her mastery of standards, she found stardom in Canada on TV and in nightclubs. But she was virtually unknown in the United States.`\
 https://nytimes.com/2024/03/29/arts/music/eleanor-collins-dead.html

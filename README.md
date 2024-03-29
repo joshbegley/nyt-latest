@@ -1,3 +1,7 @@
+**In a tight battle for the house, the congressional map is largely settled.**\
+`By Nick Corasaniti`\
+https://nytimes.com/live/2024/03/29/us/trump-biden-election/2024-congress-maps
+
 **Review: An Age-Old Riddle Ginned Up for Postapocalyptic Times**\
 `The choreographers Baye & Asa usher the Sphinx puzzler into a vaguely menacing landscape.`\
 https://nytimes.com/2024/03/29/arts/dance/baye-asa-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/business/economy/federal-reserve-jerome-powell-in
 **New Jersey’s Ballot Must Be Immediately Redesigned, Federal Judge Rules**\
 `The ruling is expected to abolish a practice that has allowed the state’s Democratic and Republican political machines to flourish.`\
 https://nytimes.com/2024/03/29/nyregion/new-jersey-election-ballot-challenge.html
-
-**Shakira’s Pop-Up Show: Not Something She Dreamed Up at Breakfast**\
-`Months of preparation precede what can appear to be a sudden decision to entertain fans at a busy time in the heart of Times Square.`\
-https://nytimes.com/2024/03/29/arts/music/shakira-pop-up-times-square-concert.html
 
