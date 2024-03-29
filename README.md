@@ -1,3 +1,7 @@
+**A Key Inflation Gauge Hovers Above Fed’s Target**\
+`The Fed’s preferred inflation gauge was relatively stable on an annual basis, the latest reminder that bringing inflation down is a bumpy process.`\
+https://nytimes.com/2024/03/29/business/economy/pce-inflation-spending-fed.html
+
 **Behind the Ray-Bans, Two Presidents Send a Message About Biden**\
 `The show of unity from Clinton and Obama was a deliberate contrast to Trump’s isolation.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/biden-clinton-obama-manhattan
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/podcasts/haiti-sam-bankman-fried.html
 **Hamas Took Her, and Still Has Her Husband**\
 `The story of one family at the center of the war in Gaza.`\
 https://nytimes.com/2024/03/29/podcasts/the-daily/hamas-took-her-and-still-has-her-husband.html
-
-**Wanted in South Korea: Imperialism-Free Cherry Blossoms**\
-`Activists want to replace a variety of cherry tree associated with the Japanese colonial era with one they say is Korean. The science is messy.`\
-https://nytimes.com/2024/03/29/world/asia/cherry-blossom-tree-japan-korea.html
 
