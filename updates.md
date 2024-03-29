@@ -1,3 +1,11 @@
+**Beyoncé’s ‘Cowboy Carter’ Showcases Her Greatest Instrument**\
+`It’s a delight to hear her voice unmediated and deployed in novel ways.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/beyonce-cowboy-carter
+
+**How ‘3 Body Problem’ Created a Spectacular Disaster, With Strings Attached**\
+`Technical artists used a combination of digital and practical effects to slice an oil tanker into pieces in the fifth episode. Here’s how they did it.`\
+https://nytimes.com/2024/03/29/arts/television/3-body-problem.html
+
 **OpenAI Unveils A.I. Technology That Recreates Human Voices**\
 `The start-up is sharing the technology, Voice Engine, with a small group of early testers as it tries to understand the potential dangers.`\
 https://nytimes.com/2024/03/29/technology/openai-voice-engine.html
