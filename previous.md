@@ -1,3 +1,7 @@
+**Welcome to the Jess Bidgood Era**\
+`After a long and exhaustive search, we have found our next newsletter writer.`\
+https://nytimes.com/2024/03/29/us/politics/bidgood-biden-trump.html
+
 **Chicago Democrats Pick Former Judge to Replace Kim Foxx as Top Prosecutor**\
 `The contest was close, and workers counted ballots for days after the April 19 election before the result of the race for the Democratic nomination was announced.`\
 https://nytimes.com/2024/03/29/us/cook-county-states-attorney-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/world/europe/who-is-jeffrey-donaldson-dup.html
 **Sailor’s Remains Identified 82 Years After Pearl Harbor**\
 `David Walker, 19, of Norfolk, Va., was a mess attendant aboard the U.S.S. California. Officials used advanced forensic technology to identify his remains.`\
 https://nytimes.com/2024/03/29/us/virginia-sailor-pearl-harbor.html
-
-**Iowa Fertilizer Spill Kills Nearly All Fish Across 60-Mile Stretch of Rivers**\
-`Officials in Iowa and Missouri estimated that nearly 800,000 fish had died in waters that flow into the Missouri River.`\
-https://nytimes.com/2024/03/29/us/iowa-spill-fish-kill.html
 
