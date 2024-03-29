@@ -1,3 +1,7 @@
+**Trump and Allies Appeal Ruling That Allowed Georgia Prosecutor to Keep Case**\
+`The defendants in the election interference case are once again pressing their argument that Fani T. Willis should be removed from the prosecution.`\
+https://nytimes.com/2024/03/29/us/trump-appeal-georgia-fani-willis.html
+
 **Can Intel Serve Two Masters?**\
 `Biden is counting on it to be a national champion chipmaker, but it still has shareholders to please.`\
 https://nytimes.com/2024/03/29/opinion/intel-gelsinger-chips-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/books/karen-kingsbury-the-baxters.html
 **Louis Gossett Jr.’s Greatest Roles: A Streaming Guide**\
 `His range was wide, as evidenced by performances in projects as different as “Roots,” “An Officer and a Gentleman” and “Diggstown.”`\
 https://nytimes.com/2024/03/29/movies/louis-gossett-jr-streaming-guide.html
-
-**Alice Coltrane’s Explosive Carnegie Hall Concert, and 7 More New Songs**\
-`Hear tracks by St. Vincent, Ani DiFranco, Camila Cabello and others.`\
-https://nytimes.com/2024/03/29/arts/music/playlist-alice-coltrane-st-vincent.html
 

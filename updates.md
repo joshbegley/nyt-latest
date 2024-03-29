@@ -1,3 +1,7 @@
+**Trump and Allies Appeal Ruling That Allowed Georgia Prosecutor to Keep Case**\
+`The defendants in the election interference case are once again pressing their argument that Fani T. Willis should be removed from the prosecution.`\
+https://nytimes.com/2024/03/29/us/trump-appeal-georgia-fani-willis.html
+
 **Serra’s ‘Splash’: A Public Artist’s Private Breakthrough**\
 `Serra spattered a pot of molten lead against the base of a wall in Jasper Johns’s home. Then he let it harden. The result looked nothing like a traditional sculpture.`\
 https://nytimes.com/2024/03/29/arts/design/richard-serra-splash-piece-casting.html
