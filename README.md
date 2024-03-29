@@ -1,3 +1,7 @@
+**Review: ‘A Pledge, a Plea and a Love Letter’ to Africa**\
+`In “Until the Lion Tells the Story…,” Lacina Coulibaly walks in his ancestors’ footsteps.`\
+https://nytimes.com/2024/03/29/arts/dance/lacina-coulibaly.html
+
 **Airstrikes Kill Soldiers in Syria in Apparent Israeli Attack**\
 `Israel’s military did not immediately comment on the Syria strikes, but its defense minister said Israel would pursue Hezbollah, an Iran-backed militia, “every place it operates.”`\
 https://nytimes.com/2024/03/29/world/middleeast/israel-syria-airstrikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/29/world/israel-hamas-war-gaza-news/israel-must
 **Trump and Allies Appeal Ruling That Allowed Georgia Prosecutor to Keep Case**\
 `The defendants in the election interference case are once again pressing their argument that Fani T. Willis should be removed from the prosecution.`\
 https://nytimes.com/2024/03/29/us/trump-appeal-georgia-fani-willis.html
-
-**Can Intel Serve Two Masters?**\
-`Biden is counting on it to be a national champion chipmaker, but it still has shareholders to please.`\
-https://nytimes.com/2024/03/29/opinion/intel-gelsinger-chips-biden.html
 
