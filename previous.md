@@ -1,4 +1,4 @@
-**Biden Administration Announces Rules to Turbocharge All-Electric Trucks**\
+**New Pollution Rules Aim to Lift Sales of Electric Trucks**\
 `The latest in a string of ambitious climate regulations aims to clean up the heaviest polluters on the road. But truckers are worried.`\
 https://nytimes.com/2024/03/29/climate/epa-trucks-emissions-regulation.html
 
