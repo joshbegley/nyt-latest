@@ -1,3 +1,7 @@
+**Variety: Marching Bands**\
+`To solve Sam Ezersky’s puzzle, go forward (and sideways, and backward).`\
+https://nytimes.com/2024/03/28/crosswords/variety-marching-bands.html
+
 **Sweet Message Bearer**\
 `Jake Bunch makes his New York Times Crossword debut.`\
 https://nytimes.com/2024/03/28/crosswords/daily-puzzle-2024-03-29.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/opinion/social-media-government-jonathan-haidt.ht
 **Fighting Rages Around Two Gaza Hospitals as Pressure on Israel Rises**\
 `Israeli forces are battling to retake areas they had already seized, showing the militants’ resilience, as critics call for less destructive tactics in the war.`\
 https://nytimes.com/2024/03/28/world/middleeast/gaza-shifa-hospital-israel-hostages.html
-
-**Bidenomics Is Making China Angry. That’s OK.**\
-`Trump talked tough, but Biden is wielding a big stick.`\
-https://nytimes.com/2024/03/28/opinion/biden-trump-china.html
 
