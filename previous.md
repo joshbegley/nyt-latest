@@ -1,3 +1,7 @@
+**Sweet Message Bearer**\
+`Jake Bunch makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/03/28/crosswords/daily-puzzle-2024-03-29.html
+
 **Review: ‘Tommy’ Goes Full Tilt in a Relentless Broadway Revival**\
 `Will the Who’s rock opera about a traumatized boy hit the jackpot again?`\
 https://nytimes.com/2024/03/28/theater/the-whos-tommy-review-broadway.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/28/world/middleeast/gaza-shifa-hospital-israel-hosta
 **Bidenomics Is Making China Angry. That’s OK.**\
 `Trump talked tough, but Biden is wielding a big stick.`\
 https://nytimes.com/2024/03/28/opinion/biden-trump-china.html
-
-**The Great Struggle for Liberalism**\
-`Liberal democratic capitalism isn’t some set of abstract ideas. It’s a means to a richer, fuller and more dynamic life.`\
-https://nytimes.com/2024/03/28/opinion/liberalism-authoritarianism-trump.html
 
