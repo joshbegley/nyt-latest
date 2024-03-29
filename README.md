@@ -1,3 +1,7 @@
+**Biden Will Visit Baltimore Next Week After Bridge Collapse**\
+`The president’s visit comes as officials start planning for major economic disruptions after a ship struck the Francis Scott Key Bridge.`\
+https://nytimes.com/2024/03/29/us/politics/biden-baltimore-bridge-collapse.html
+
 **How Patty Murray Used Her Gavel to Win $1 Billion for Child Care**\
 `A self-described “mom in tennis shoes,” now the Senate Appropriations Committee leader, managed to win an increase in child care subsidies in a spending freeze.`\
 https://nytimes.com/2024/03/29/us/politics/patty-murray-child-care-budget-senate.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/29/us/judge-quraishi-nj-ballot-line.html
 **Dating on Apps, and the Old-Fashioned Way**\
 `Different ways of dating. Also: Donald Trump and Louis XIV; the stakes in the election; the music business; killing animals; memo to liberals.`\
 https://nytimes.com/2024/03/29/opinion/dating-apps.html
-
-**Serra’s ‘Splash’: A Public Artist’s Private Breakthrough**\
-`Serra spattered a pot of molten lead against the base of a wall in Jasper Johns’s home. Then he let it harden. The result looked nothing like a traditional sculpture.`\
-https://nytimes.com/2024/03/29/arts/design/richard-serra-splash-piece-casting.html
 
