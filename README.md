@@ -1,3 +1,7 @@
+**Fed Chair Says Central Bank Need Not ‘Hurry’ to Cut Rates**\
+`Jerome Powell said that strong economic growth gives Federal Reserve officials room to be patient, and he emphasized the institution’s political independence.`\
+https://nytimes.com/2024/03/29/business/economy/federal-reserve-jerome-powell-interest-rates.html
+
 **New Jersey’s Ballot Must Be Immediately Redesigned, Federal Judge Rules**\
 `The ruling is expected to abolish a practice that has allowed the state’s Democratic and Republican political machines to flourish.`\
 https://nytimes.com/2024/03/29/nyregion/new-jersey-election-ballot-challenge.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/29/arts/television/best-of-late-night-th
 **The Sean Combs Saga Is Catnip for Pop Culture Podcasts**\
 `The raids of Combs’s homes have been a primary topic on podcasts and radio shows that cover the Black entertainment world.`\
 https://nytimes.com/2024/03/29/arts/music/diddy-sean-combs-podcasts.html
-
-**Who’s Who on Beyoncé’s ‘Cowboy Carter’**\
-`A guide to key guests and behind-the-scenes figures on the star’s eighth studio album.`\
-https://nytimes.com/2024/03/29/arts/music/beyonce-cowboy-carter-credits.html
 
