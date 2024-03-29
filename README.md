@@ -1,3 +1,7 @@
+**The Best of Late Night This Week**\
+`News surrounding former President Donald Trump dominated late night this week, including a New York appeals court reducing the bond in his civil fraud case, and his newest venture: a $60 Bible. Here’s what the hosts had to say.`\
+https://nytimes.com/interactive/2024/03/29/arts/television/best-of-late-night-this-week.html
+
 **The Sean Combs Saga Is Catnip for Pop Culture Podcasts**\
 `The raids of Combs’s homes have been a primary topic on podcasts and radio shows that cover the Black entertainment world.`\
 https://nytimes.com/2024/03/29/arts/music/diddy-sean-combs-podcasts.html
@@ -20,7 +24,7 @@ https://nytimes.com/interactive/2024/03/29/business/visa-mastercard-swipe-fees.h
 
 **Israel touts its ‘new initiatives’ on getting aid into Gaza, but progress has been slow.**\
 `By Adam Rasgon`\
-https://nytimes.com/live/2024/03/29/world/israel-hamas-war-gaza-news/israel-gaza-aid-famine
+https://nytimes.com/2024/03/29/world/middleeast/israel-gaza-aid-famine.html
 
 **What’s Going On in This Picture? | April 8, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/dining/honey-baked-ham-easter.html
 **A Georgia Town Basks in Bountiful Filming. The State Pays.**\
 `When movies are made in Thomasville, Ga., it welcomes celebrities and an infusion of cash. But the financial incentives that attract studios have cost the state billions.`\
 https://nytimes.com/2024/03/29/arts/georgia-film-tax-incentives.html
-
-**Five Horror Movies to Stream Now**\
-`A fanatical faith leader, aggressive home invaders and disfigured attention hogs are among the subjects of this month’s horror picks.`\
-https://nytimes.com/2024/03/29/movies/horror-movies-streaming.html
 
