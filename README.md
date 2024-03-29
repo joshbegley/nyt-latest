@@ -1,3 +1,7 @@
+**Review: An Age-Old Riddle Ginned Up for Postapocalyptic Times**\
+`The choreographers Baye & Asa usher the Sphinx puzzler into a vaguely menacing landscape.`\
+https://nytimes.com/2024/03/29/arts/dance/baye-asa-review.html
+
 **Eleanor Collins, Canada’s ‘First Lady of Jazz,’ Dies at 104**\
 `A singer known for her mastery of standards, she found stardom in Canada on TV and in nightclubs. But she was virtually unknown in the United States.`\
 https://nytimes.com/2024/03/29/arts/music/eleanor-collins-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/nyregion/new-jersey-election-ballot-challenge.htm
 **Shakira’s Pop-Up Show: Not Something She Dreamed Up at Breakfast**\
 `Months of preparation precede what can appear to be a sudden decision to entertain fans at a busy time in the heart of Times Square.`\
 https://nytimes.com/2024/03/29/arts/music/shakira-pop-up-times-square-concert.html
-
-**4 Things You Need to Know About Health Care Cyberattacks**\
-`Despite the explosion in ransomware hacks like the one against Change Healthcare, regulation is spotty and few new safeguards have been proposed to protect patient data, vulnerable hospitals and medical groups.`\
-https://nytimes.com/2024/03/29/health/cyber-attack-unitedhealth-hospital-patients.html
 
