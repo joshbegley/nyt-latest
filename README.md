@@ -4,7 +4,7 @@ https://nytimes.com/2024/03/29/nyregion/new-jersey-election-ballot-challenge.htm
 
 **Shakira’s Pop-Up Show: Not Something She Dreamed Up at Breakfast**\
 `Months of preparation precede what can appear to be a sudden decision to entertain fans at a busy time in the heart of Times Square.`\
-https://nytimes.com/2024/03/29/arts/shakira-pop-up-times-square-concert.html
+https://nytimes.com/2024/03/29/arts/music/shakira-pop-up-times-square-concert.html
 
 **4 Things You Need to Know About Health Care Cyberattacks**\
 `Despite the explosion in ransomware hacks like the one against Change Healthcare, regulation is spotty and few new safeguards have been proposed to protect patient data, vulnerable hospitals and medical groups.`\
