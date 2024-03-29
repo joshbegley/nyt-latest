@@ -1,3 +1,11 @@
+**A Vibrant Art Scene Beyond the Basics**\
+`The museum curator Maleke Lee speaks to a thriving art scene beyond the standard tourist draws.`\
+https://nytimes.com/paidpost/destination-dc/a-vibrant-art-scene-beyond-the-basics.html
+
+**In a Culinary Class of Its Own**\
+`The restaurateur and chef Erik Bruner-Yang takes viewers on a culinary tour of Washington, D.C.`\
+https://nytimes.com/paidpost/destination-dc/in-a-culinary-class-of-its-own.html
+
 **Chicago Democrats Pick Former Judge to Replace Kim Foxx as Top Prosecutor**\
 `The contest was close, and workers counted ballots for days after the March 19 election before the result of the race for the Democratic nomination was announced.`\
 https://nytimes.com/2024/03/29/us/cook-county-states-attorney-election.html
