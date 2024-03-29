@@ -1,3 +1,11 @@
+**8-Year-Old Girl, Sole Survivor of South Africa Bus Crash, Is in Stable Condition**\
+`Forty-four worshipers from Botswana, along with the driver, were killed when the bus plunged off an overpass into a rocky ravine.`\
+https://nytimes.com/2024/03/29/world/africa/south-africa-botswana-bus-crash.html
+
+**Does Trash Talk Have a Place in Sports?**\
+`A guest essayist wants to bring taunting back to baseball. What do you think? Is trash talk harmless fun or bad sportsmanship?`\
+https://nytimes.com/2024/03/29/learning/does-trash-talk-have-a-place-in-sports.html
+
 **Days After U.N. Cease-Fire Resolution, Has Anything Changed in Gaza?**\
 `The United Nations Security Council passed a resolution on Monday that demands an immediate cease-fire in the Gaza Strip. Here’s a closer look at where the situation stands.`\
 https://nytimes.com/2024/03/29/world/middleeast/un-ceasefire-resolution-israel-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/29/podcasts/ais-messy-moment-listeners-respond-to-jo
 **Behind Closed Doors, Biden Campaign Gathers Major Donors in New York**\
 `At a daylong retreat, 175 of the president’s biggest financiers and fund-raisers will hear from top campaign officials.`\
 https://nytimes.com/2024/03/29/us/politics/biden-donors-new-york.html
-
-**5 Things to Do This Weekend**\
-`A selection of entertainment highlights this weekend, including Beyoncé's new album, “Cowboy Carter.”`\
-https://nytimes.com/interactive/2024/03/29/arts/weekend-editors-picks-beyonce.html
-
-**Feeling Overwhelmed? Try Tallying Your Tiny Wins.**\
-`Taking stock of small achievements can keep you motivated when times are tough, experts say.`\
-https://nytimes.com/2024/03/29/well/live/overwhelmed-small-wins.html
 
