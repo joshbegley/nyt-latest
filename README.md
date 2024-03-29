@@ -34,7 +34,7 @@ https://nytimes.com/2024/03/29/magazine/homophobia-barbershop-speaking-out-ethic
 `His biographies of Charles Bukowski and Lawrence Ferlinghetti came to overshadow his own work. “I would love an interview,” he once said, “where Bukowski is not mentioned.”`\
 https://nytimes.com/2024/03/29/books/neeli-cherkovski-dead.html
 
-**Czechs Accuse Two Men of Running ‘Russian Influence Operation’ in Europe**\
+**Czechs Accuse Men of ‘Russian Influence Operation’ in Europe**\
 `Amid news reports that European politicians received payments to promote Russian interests, the Czech government froze the assets of the men and a website, Voice of Europe.`\
 https://nytimes.com/2024/03/29/world/europe/czech-republic-sanctions-russian-influence-europe.html
 
