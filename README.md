@@ -1,3 +1,15 @@
+**Dating on Apps, and the Old-Fashioned Way**\
+`Different ways of dating. Also: Donald Trump and Louis XIV; the stakes in the election; the music business; killing animals; memo to liberals.`\
+https://nytimes.com/2024/03/29/opinion/dating-apps.html
+
+**Serra’s ‘Splash’: A Public Artist’s Private Breakthough**\
+`Serra spattered a pot of molten lead against the base of a wall in Jasper Johns’s home. Then he let it harden. The result looked nothing like a traditional sculpture.`\
+https://nytimes.com/2024/03/29/arts/design/serras-splash-a-public-artists-private-breakthough.html
+
+**‘Bless These Books’: How Karen Kingsbury Is Extending the Reach of Christian Fiction**\
+`She’s sold more than 25 million copies, but isn’t slowing down. An Amazon series and a film getting wide distribution mark a new phase.`\
+https://nytimes.com/2024/03/29/books/karen-kingsbury-the-baxters.html
+
 **Louis Gossett Jr.’s Greatest Roles: A Streaming Guide**\
 `His range was wide, as evidenced by performances in projects as different as “Roots,” “An Officer and a Gentleman” and “Diggstown.”`\
 https://nytimes.com/2024/03/29/movies/louis-gossett-jr-streaming-guide.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/29/t-magazine/female-bodybuilder-fashion.html
 **3 Festive Main Dishes for Any Spring Party**\
 `Whether for a casual cookout or an elegant dinner party, these impressive recipes are easy to pull off.`\
 https://nytimes.com/2024/03/29/dining/grilled-chicken-clam-salad-recipes.html
-
-**In a tight battle for the house, the congressional map is largely settled.**\
-`By Nick Corasaniti`\
-https://nytimes.com/live/2024/03/29/us/trump-biden-election/2024-congress-maps
-
-**Review: An Age-Old Riddle Ginned Up for Postapocalyptic Times**\
-`The choreographers Baye & Asa usher the Sphinx puzzler into a vaguely menacing landscape.`\
-https://nytimes.com/2024/03/29/arts/dance/baye-asa-review.html
-
-**Eleanor Collins, Canada’s ‘First Lady of Jazz,’ Dies at 104**\
-`A singer known for her mastery of standards, she found stardom in Canada on TV and in nightclubs. But she was virtually unknown in the United States.`\
-https://nytimes.com/2024/03/29/arts/music/eleanor-collins-dead.html
 
