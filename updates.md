@@ -1,3 +1,7 @@
+**Trump’s Stock Is Rising, and Seth Meyers Is Skeptical**\
+`“I’m willing to bet most of the people investing in this company have never even used Truth Social,” Meyers said of Trump’s social media outlet on Thursday.`\
+https://nytimes.com/2024/03/29/arts/television/seth-meyers-trump-truth-social.html
+
 **Word of the Day: extravaganza**\
 `This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/29/learning/word-of-the-day-extravaganza.html

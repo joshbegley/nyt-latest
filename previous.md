@@ -1,3 +1,7 @@
+**Trump’s Stock Is Rising, and Seth Meyers Is Skeptical**\
+`“I’m willing to bet most of the people investing in this company have never even used Truth Social,” Meyers said of Trump’s social media outlet on Thursday.`\
+https://nytimes.com/2024/03/29/arts/television/seth-meyers-trump-truth-social.html
+
 **Word of the Day: extravaganza**\
 `This word has appeared in 90 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/03/29/learning/word-of-the-day-extravaganza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/pageoneplus/quotation-of-the-day-one-architects-a
 **How I Learned to Trust (Some) Men**\
 `When an Italian stranger approached me, I listened to my intuition, and it changed my life forever.`\
 https://nytimes.com/2024/03/29/style/modern-love-how-i-learned-to-trust-men.html
-
-**After a Missed Connection, a Union of Mythic Proportions**\
-`After seeing Joelle Gamble’s “Lord of the Rings” tattoo on her dating profile, Zachary Copeland believed he had found his soul mate. But he would have to wait more than a year to find out.`\
-https://nytimes.com/2024/03/29/style/joelle-gamble-zachary-copeland-wedding.html
 
