@@ -1,3 +1,7 @@
+**Shohei Ohtani Is Home and Focused on Baseball. Dodgers Fans Are Relieved.**\
+`Los Angeles finally got a close look at baseball’s megastar on Thursday as a gambling situation involving his former interpreter took a back seat to opening day.`\
+https://nytimes.com/2024/03/28/us/dodgers-ohtani-mlb-opening-day.html
+
 **Variety: Marching Bands**\
 `To solve Sam Ezersky’s puzzle, go forward (and sideways, and backward).`\
 https://nytimes.com/2024/03/28/crosswords/variety-marching-bands.html

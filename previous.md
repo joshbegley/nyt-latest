@@ -1,3 +1,7 @@
+**Shohei Ohtani Is Home and Focused on Baseball. Dodgers Fans Are Relieved.**\
+`Los Angeles finally got a close look at baseball’s megastar on Thursday as a gambling situation involving his former interpreter took a back seat to opening day.`\
+https://nytimes.com/2024/03/28/us/dodgers-ohtani-mlb-opening-day.html
+
 **Variety: Marching Bands**\
 `To solve Sam Ezersky’s puzzle, go forward (and sideways, and backward).`\
 https://nytimes.com/2024/03/28/crosswords/variety-marching-bands.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/03/28/upshot/baltimore-bridge-ship-force.ht
 **Government Clampdowns on Social Media Are Not the Answer**\
 `But there is a problem.`\
 https://nytimes.com/2024/03/28/opinion/social-media-government-jonathan-haidt.html
-
-**Fighting Rages Around Two Gaza Hospitals as Pressure on Israel Rises**\
-`Israeli forces are battling to retake areas they had already seized, showing the militants’ resilience, as critics call for less destructive tactics in the war.`\
-https://nytimes.com/2024/03/28/world/middleeast/gaza-shifa-hospital-israel-hostages.html
 
