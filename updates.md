@@ -1,3 +1,7 @@
+**Empty Roads and Spewing Lava: 4 Months Into Iceland’s Eruptions**\
+`Volcanic eruptions are continuing in the Reykjanes Peninsula in Iceland. Streets are empty and the Blue Lagoon resort remains closed.`\
+https://nytimes.com/2024/03/29/world/europe/iceland-volcano-eruption-photos.html
+
 **Memoirs Are Powerful Currency for This Hmong American Writer**\
 `Kao Kalia Yang talks about her recently published memoir, “Where Rivers Part,” which is about her mother’s life.`\
 https://nytimes.com/2024/03/29/us/memoirs-hmong-americans.html
