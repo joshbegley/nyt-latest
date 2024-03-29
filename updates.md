@@ -1,3 +1,11 @@
+**‘Bathhouse.pptx’ Review: A Fever Dream, Both Poetic and Mystifying**\
+`Jesús I. Valles’s prizewinning play gets a stage at the Flea, but the ambitious work about queer history proves too difficult to wrangle.`\
+https://nytimes.com/2024/03/29/theater/bathhousepptx-review.html
+
+**Members-Only Mania: Why Are More Private Clubs Popping Up in New York?**\
+`Some people belong to multiple private clubs that have emerged to fill physical and emotional voids. Others belong only to Sam’s Club.`\
+https://nytimes.com/2024/03/29/realestate/nyc-private-clubs.html
+
 **Beyoncé’s ‘Cowboy Carter’ Adopts the Music of Opera Singers, Too**\
 `On the star’s new album, the track “Daughter” includes her take on an 18th-century Italian song most often heard in classical music recitals.`\
 https://nytimes.com/2024/03/29/arts/music/beyonce-cowboy-carter-daughter-opera.html
