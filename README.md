@@ -1,3 +1,7 @@
+**Eleanor Collins, Canada’s ‘First Lady of Jazz,’ Dies at 104**\
+`A singer known for her mastery of standards, she found stardom in Canada on TV and in nightclubs. But she was virtually unknown in the United States.`\
+https://nytimes.com/2024/03/29/arts/music/eleanor-collins-dead.html
+
 **Our Critics Talk About the Novels That Make Them Laugh**\
 `Dwight Garner, Alexandra Jacobs and Jennifer Szalai weigh in on 22 of the funniest novels since “Catch-22.”`\
 https://nytimes.com/2024/03/29/books/review/our-critics-talk-about-the-novels-that-make-them-laugh.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/arts/music/shakira-pop-up-times-square-concert.ht
 **4 Things You Need to Know About Health Care Cyberattacks**\
 `Despite the explosion in ransomware hacks like the one against Change Healthcare, regulation is spotty and few new safeguards have been proposed to protect patient data, vulnerable hospitals and medical groups.`\
 https://nytimes.com/2024/03/29/health/cyber-attack-unitedhealth-hospital-patients.html
-
-**‘Bathhouse.pptx’ Review: A Fever Dream, Both Poetic and Mystifying**\
-`Jesús I. Valles’s prizewinning play gets a stage at the Flea, but the ambitious work about queer history proves too difficult to wrangle.`\
-https://nytimes.com/2024/03/29/theater/bathhousepptx-review.html
 
