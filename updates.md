@@ -1,3 +1,7 @@
+**In a tight battle for the house, the congressional map is largely settled.**\
+`By Nick Corasaniti`\
+https://nytimes.com/live/2024/03/29/us/trump-biden-election/2024-congress-maps
+
 **Review: An Age-Old Riddle Ginned Up for Postapocalyptic Times**\
 `The choreographers Baye & Asa usher the Sphinx puzzler into a vaguely menacing landscape.`\
 https://nytimes.com/2024/03/29/arts/dance/baye-asa-review.html
