@@ -1,3 +1,7 @@
+**The Government’s Weakest Antitrust Case Is Against Amazon**\
+`Google, on the other hand, acts more like a monopolist.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/amazon-google-antitrust
+
 **5 Recipes for Your ‘Cowboy Carter’ Listening Party**\
 `Because you'll definitely need fuel for the dance floor.`\
 https://nytimes.com/interactive/2024/03/29/dining/cowboy-carter-recipes.html
