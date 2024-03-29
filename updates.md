@@ -1,3 +1,11 @@
+**Neeli Cherkovski, Poet Who Chronicled the Beat Generation, Dies at 78**\
+`His biographies of Charles Bukowski and Lawrence Ferlinghetti came to overshadow his own work. “I would love an interview,” he once said, “where Bukowski is not mentioned.”`\
+https://nytimes.com/2024/03/29/books/neeli-cherkovski-dead.html
+
+**Czechs Accuse Two Men of Running ‘Russian Influence Operation’ in Europe**\
+`Amid news reports of European politicians receiving payments to promote Russian interests, the Czech government froze the assets of the men and a website, Voice of Europe.`\
+https://nytimes.com/2024/03/29/world/europe/czech-republic-sanctions-russian-influence-europe.html
+
 **Read Judge Quraishi’s Ruling**\
 `The decision is expected to fundamentally reshape New Jersey politics.`\
 https://nytimes.com/interactive/2024/03/29/us/judge-quraishi-nj-ballot-line.html
