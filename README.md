@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`One year since Russia jailed a U.S. reporter.`\
+https://nytimes.com/2024/03/29/briefing/sam-bankman-fried-evan-gershkovich.html
+
 **Beyoncé’s ‘Cowboy Carter’ Is Here, and It’s Much More Than Country**\
 `The superstar’s new LP is a 27-track tour of popular music with a Beatles cover, cameos by Willie Nelson and Dolly Parton, and features from Miley Cyrus and Post Malone.`\
 https://nytimes.com/2024/03/29/arts/music/beyonce-cowboy-carter-released.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/style/arnim-kaiser-pamela-grace-wedding.html
 **He Expresses Himself Through Art. She Through Math.**\
 `Alexandra Plzak and Sharif Farrag met in college and had very little in common on paper. But you know what they say about opposites.`\
 https://nytimes.com/2024/03/29/style/alexandra-plzak-sharif-farrag-wedding.html
-
-**Fish Stew and Black Fettuccine, an Unexpected Recipe for Love**\
-`Maxwell Da Silva, who is from Brazil, and Jane Satsuk, who is from Russia, immediately connected over their “very humble beginnings.” But it was Mr. Da Silva’s cooking that won her heart.`\
-https://nytimes.com/2024/03/29/style/maxwell-da-silva-jane-satsuk-wedding.html
 
