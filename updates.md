@@ -1,3 +1,7 @@
+**Israel Cites ‘New Initiatives’ for Gaza Aid, but Progress Has Been Slow**\
+`The country pointed to measures to deliver necessities by land, air and sea that aid groups say are not nearly sufficient to meet the need.`\
+https://nytimes.com/2024/03/29/world/middleeast/israel-gaza-aid-famine.html
+
 **The Best of Late Night This Week**\
 `News surrounding former President Donald Trump dominated late night this week, including a New York appeals court reducing the bond in his civil fraud case, and his newest venture: a $60 Bible. Here’s what the hosts had to say.`\
 https://nytimes.com/interactive/2024/03/29/arts/television/best-of-late-night-this-week.html
