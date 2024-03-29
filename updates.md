@@ -1,3 +1,7 @@
+**Beyoncé’s ‘Cowboy Carter’ Is Here, and It’s Much More Than Country**\
+`The superstar’s new LP is a 27-track tour of popular music with a Beatles cover, cameos by Willie Nelson and Dolly Parton, and features from Miley Cyrus and Post Malone.`\
+https://nytimes.com/2024/03/29/arts/music/beyonce-cowboy-carter-released.html
+
 **A Very Royal Scavenger Hunt**\
 `In a time when global 24-hour news coverage can engender feelings of powerlessness, the sense of control that online sleuthing generates is potent. But those same impulses can take a dark turn.`\
 https://nytimes.com/2024/03/29/world/europe/interpreter-conspiracy-royals.html
