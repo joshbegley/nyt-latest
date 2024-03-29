@@ -1,3 +1,7 @@
+**Eleanor Collins, Canada’s ‘First Lady of Jazz,’ Dies at 104**\
+`A singer known for her mastery of standards, she found stardom in Canada on TV and in nightclubs. But she was virtually unknown in the United States.`\
+https://nytimes.com/2024/03/29/arts/music/eleanor-collins-dead.html
+
 **Our Critics Talk About the Novels That Make Them Laugh**\
 `Dwight Garner, Alexandra Jacobs and Jennifer Szalai weigh in on 22 of the funniest novels since “Catch-22.”`\
 https://nytimes.com/2024/03/29/books/review/our-critics-talk-about-the-novels-that-make-them-laugh.html
