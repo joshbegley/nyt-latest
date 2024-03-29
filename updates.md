@@ -1,3 +1,7 @@
+**A ‘Cataclysmic Situation’ in Haiti, and the Downfall of Sam Bankman-Fried**\
+`Plus, Beyoncé’s album has arrived, riding a horse.`\
+https://nytimes.com/2024/03/29/podcasts/haiti-sam-bankman-fried.html
+
 **Hamas Took Her, and Still Has Her Husband**\
 `The story of one family at the center of the war in Gaza.`\
 https://nytimes.com/2024/03/29/podcasts/the-daily/hamas-took-her-and-still-has-her-husband.html
