@@ -1,3 +1,7 @@
+**Read Judge Quraishi’s Ruling**\
+`The decision is expected to fundamentally reshape New Jersey politics.`\
+https://nytimes.com/interactive/2024/03/29/us/judge-quraishi-nj-ballot-line.html
+
 **Dating on Apps, and the Old-Fashioned Way**\
 `Different ways of dating. Also: Donald Trump and Louis XIV; the stakes in the election; the music business; killing animals; memo to liberals.`\
 https://nytimes.com/2024/03/29/opinion/dating-apps.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/climate/heat-waves-longer-slower.html
 **How Female Bodybuilders Became Fashion’s Latest Muses**\
 `An industry long known for revering willowy bodies is taking a new interest in muscle.`\
 https://nytimes.com/2024/03/29/t-magazine/female-bodybuilder-fashion.html
-
-**3 Festive Main Dishes for Any Spring Party**\
-`Whether for a casual cookout or an elegant dinner party, these impressive recipes are easy to pull off.`\
-https://nytimes.com/2024/03/29/dining/grilled-chicken-clam-salad-recipes.html
 

@@ -1,3 +1,7 @@
+**Read Judge Quraishi’s Ruling**\
+`The decision is expected to fundamentally reshape New Jersey politics.`\
+https://nytimes.com/interactive/2024/03/29/us/judge-quraishi-nj-ballot-line.html
+
 **Dating on Apps, and the Old-Fashioned Way**\
 `Different ways of dating. Also: Donald Trump and Louis XIV; the stakes in the election; the music business; killing animals; memo to liberals.`\
 https://nytimes.com/2024/03/29/opinion/dating-apps.html
