@@ -1,3 +1,7 @@
+**The Latest on Sean Combs’s Legal Woes**\
+`Federal agents raided the hip-hop mogul’s homes this week. This is what we know.`\
+https://nytimes.com/2024/03/29/podcasts/the-latest-on-sean-combs-legal-woes.html
+
 **A.I.’s Messy Moment + Listeners Respond to Jonathan Haidt + Shrimp Jesus**\
 `“Being a C.E.O. sucks. Elon was right. It is like looking into the abyss and chewing glass.”`\
 https://nytimes.com/2024/03/29/podcasts/ais-messy-moment-listeners-respond-to-jonathan-haidt-shrimp-jesus.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/business/stocks-first-quarter-sp-500.html
 **TV’s Saviors Are Here, and They’re Wearing Spandex**\
 `A reboot of “Gladiators,” the musclebound 1990s staple, has attracted millions of viewers in Britain. Is appointment television back?`\
 https://nytimes.com/2024/03/29/arts/television/gladiators-bbc.html
-
-**As Bridge Cleanup Gets Underway, Officials Warn of ‘Daunting’ Process**\
-`Clearing the debris from the collapsed Francis Scott Key Bridge will be a complex but urgent task, officials said. And rebuilding it may take several years, they cautioned.`\
-https://nytimes.com/2024/03/29/us/baltimore-francis-scott-key-bridge.html
 

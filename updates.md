@@ -1,3 +1,7 @@
+**The Latest on Sean Combs’s Legal Woes**\
+`Federal agents raided the hip-hop mogul’s homes this week. This is what we know.`\
+https://nytimes.com/2024/03/29/podcasts/the-latest-on-sean-combs-legal-woes.html
+
 **A.I.’s Messy Moment + Listeners Respond to Jonathan Haidt + Shrimp Jesus**\
 `“Being a C.E.O. sucks. Elon was right. It is like looking into the abyss and chewing glass.”`\
 https://nytimes.com/2024/03/29/podcasts/ais-messy-moment-listeners-respond-to-jonathan-haidt-shrimp-jesus.html
