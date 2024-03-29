@@ -1,3 +1,11 @@
+**Influential Politician in Northern Ireland Steps Down**\
+`Jeffrey Donaldson, the leader of the Democratic Unionist Party and a backer of strong ties with the U.K., said he had been charged with “allegations of an historical nature,” the party said.`\
+https://nytimes.com/2024/03/29/world/europe/jeffrey-donaldson-resigns-dup-northern-ireland.html
+
+**Biden and Trump appeal to their voters and address their weaknesses.**\
+`By Lisa Lerer`\
+https://nytimes.com/2024/03/29/us/politics/biden-and-trump-sought-to-shore-up-their-bases-and-address-their-weaknesses.html
+
 **New Pollution Rules Aim to Lift Sales of Electric Trucks**\
 `The latest in a string of ambitious climate regulations aims to clean up the heaviest polluters on the road. But truckers are worried.`\
 https://nytimes.com/2024/03/29/climate/epa-trucks-emissions-regulation.html
@@ -19,7 +27,7 @@ https://nytimes.com/live/2024/03/29/world/israel-hamas-war-gaza-news/a-common-li
 https://nytimes.com/2024/03/29/world/asia/hong-kong-security-media.html
 
 **A Key Inflation Gauge Hovers Above Fed’s Target**\
-`The Fed’s preferred inflation gauge was relatively stable on an annual basis, the latest reminder that bringing inflation down is a bumpy process.`\
+`The Fed’s preferred inflation gauge climbed 2.5 percent in the year through February, in line with economists’ expectations.`\
 https://nytimes.com/2024/03/29/business/economy/pce-inflation-spending-fed.html
 
 **Behind the Ray-Bans, Two Presidents Send a Message About Biden**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/26/opinion/thepoint/biden-clinton-obama-manhatt
 **Empty Roads and Spewing Lava: 4 Months Into Iceland’s Eruptions**\
 `Volcanic eruptions are continuing in the Reykjanes Peninsula in Iceland. Streets are empty and the Blue Lagoon resort remains closed.`\
 https://nytimes.com/2024/03/29/world/europe/iceland-volcano-eruption-photos.html
-
-**Memoirs Are Powerful Currency for This Hmong American Writer**\
-`Kao Kalia Yang talks about her recently published memoir, “Where Rivers Part,” which is about her mother’s life.`\
-https://nytimes.com/2024/03/29/us/memoirs-hmong-americans.html
-
-**8-Year-Old Girl, Sole Survivor of South Africa Bus Crash, Is in Stable Condition**\
-`Forty-four worshipers from Botswana, along with the driver, were killed when the bus plunged off an overpass into a rocky ravine.`\
-https://nytimes.com/2024/03/29/world/africa/south-africa-botswana-bus-crash.html
 

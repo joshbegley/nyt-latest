@@ -1,3 +1,15 @@
+**Influential Politician in Northern Ireland Steps Down**\
+`Jeffrey Donaldson, the leader of the Democratic Unionist Party and a backer of strong ties with the U.K., said he had been charged with “allegations of an historical nature,” the party said.`\
+https://nytimes.com/2024/03/29/world/europe/jeffrey-donaldson-resigns-dup-northern-ireland.html
+
+**Biden and Trump appeal to their voters and address their weaknesses.**\
+`By Lisa Lerer`\
+https://nytimes.com/2024/03/29/us/politics/biden-and-trump-sought-to-shore-up-their-bases-and-address-their-weaknesses.html
+
+**A Key Inflation Gauge Hovers Above Fed’s Target**\
+`The Fed’s preferred inflation gauge climbed 2.5 percent in the year through February, in line with economists’ expectations.`\
+https://nytimes.com/2024/03/29/business/economy/pce-inflation-spending-fed.html
+
 **New Pollution Rules Aim to Lift Sales of Electric Trucks**\
 `The latest in a string of ambitious climate regulations aims to clean up the heaviest polluters on the road. But truckers are worried.`\
 https://nytimes.com/2024/03/29/climate/epa-trucks-emissions-regulation.html
