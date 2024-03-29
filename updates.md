@@ -1,3 +1,7 @@
+**Georgia Lawmakers Approve Tougher Rules on Immigration After Student’s Killing**\
+`A bill prompted by the death of Laken Riley, a 22-year-old nursing student, would force law enforcement agencies to report undocumented immigrants to federal officials.`\
+https://nytimes.com/2024/03/28/us/georgia-immigration-law-laken-riley.html
+
 **Woman Who Received 5-Year Sentence in Voter Fraud Case Is Acquitted**\
 `A Texas appeals court reversed its earlier opinion that had upheld the conviction of Crystal Mason, who was found guilty of illegally casting a provisional ballot in 2016, even though she claimed she hadn’t known she was ineligible to vote.`\
 https://nytimes.com/2024/03/28/us/politics/crystal-mason-texas-voting-acquitted.html

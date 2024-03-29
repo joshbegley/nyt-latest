@@ -1,3 +1,7 @@
+**Georgia Lawmakers Approve Tougher Rules on Immigration After Student’s Killing**\
+`A bill prompted by the death of Laken Riley, a 22-year-old nursing student, would force law enforcement agencies to report undocumented immigrants to federal officials.`\
+https://nytimes.com/2024/03/28/us/georgia-immigration-law-laken-riley.html
+
 **Woman Who Received 5-Year Sentence in Voter Fraud Case Is Acquitted**\
 `A Texas appeals court reversed its earlier opinion that had upheld the conviction of Crystal Mason, who was found guilty of illegally casting a provisional ballot in 2016, even though she claimed she hadn’t known she was ineligible to vote.`\
 https://nytimes.com/2024/03/28/us/politics/crystal-mason-texas-voting-acquitted.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/28/us/baltimore-key-bridge-collapse/the-ship-th
 **4 Presidents, 2 Events and a Preview of Campaign Clashes to Come**\
 `President Biden raised $25 million at a Radio City Music Hall event, adding to his huge cash edge, after Donald Trump pushed his law-and-order message at a wake for a police officer killed on duty.`\
 https://nytimes.com/2024/03/28/us/politics/biden-clinton-obama-trump-nyc.html
-
-**Saudi Arabia, Lagging on Women’s Rights, Is to Lead U.N. Women’s Forum**\
-`Saudi Arabia will chair a United Nations commission on women, bringing condemnation from human rights groups, which said the kingdom still has an “abysmal” record on women’s rights.`\
-https://nytimes.com/2024/03/28/world/middleeast/saudi-arabia-un-women.html
 
