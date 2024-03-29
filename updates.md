@@ -1,3 +1,7 @@
+**Beyoncé’s ‘Cowboy Carter’ Adopts the Music of Opera Singers, Too**\
+`On the star’s new album, the track “Daughter” includes her take on an 18th-century Italian song most often heard in classical music recitals.`\
+https://nytimes.com/2024/03/29/arts/music/beyonce-cowboy-carter-daughter-opera.html
+
 **Israel Cites ‘New Initiatives’ for Gaza Aid, but Progress Has Been Slow**\
 `The country pointed to measures to deliver necessities by land, air and sea that aid groups say are not nearly sufficient to meet the need.`\
 https://nytimes.com/2024/03/29/world/middleeast/israel-gaza-aid-famine.html
