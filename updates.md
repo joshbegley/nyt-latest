@@ -1,3 +1,11 @@
+**29pol-swiper**\
+`Biden and Trump appear in dueling New York events to shore up the base in a contrast election.`\
+https://nytimes.com/live/2024/03/29/us/trump-biden-election
+
+**Crews Use Crane to Start Clearing Collapsed Baltimore Bridge**\
+`Debris from the collapsed Francis Scott Key Bridge is blocking a vital shipping lane into the Port of Baltimore.`\
+https://nytimes.com/video/us/100000009387620/baltimore-key-bridge-collapse.html
+
 **Biden and Trump appeal to their voters and address their weaknesses.**\
 `By Lisa Lerer`\
 https://nytimes.com/live/2024/03/29/us/trump-biden-election/biden-and-trump-sought-to-shore-up-their-bases-and-address-their-weaknesses

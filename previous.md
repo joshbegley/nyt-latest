@@ -1,3 +1,11 @@
+**29pol-swiper**\
+`Biden and Trump appear in dueling New York events to shore up the base in a contrast election.`\
+https://nytimes.com/live/2024/03/29/us/trump-biden-election
+
+**Crews Use Crane to Start Clearing Collapsed Baltimore Bridge**\
+`Debris from the collapsed Francis Scott Key Bridge is blocking a vital shipping lane into the Port of Baltimore.`\
+https://nytimes.com/video/us/100000009387620/baltimore-key-bridge-collapse.html
+
 **Influential Politician in Northern Ireland Steps Down**\
 `Jeffrey Donaldson, the leader of the Democratic Unionist Party and a backer of strong ties with the U.K., said he had been charged with “allegations of an historical nature,” the party said.`\
 https://nytimes.com/2024/03/29/world/europe/jeffrey-donaldson-resigns-dup-northern-ireland.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/29/world/asia/hong-kong-security-media.html
 **A Key Inflation Gauge Hovers Above Fed’s Target**\
 `The Fed’s preferred inflation gauge climbed 2.5 percent in the year through February, in line with economists’ expectations.`\
 https://nytimes.com/2024/03/29/business/economy/pce-inflation-spending-fed.html
-
-**Behind the Ray-Bans, Two Presidents Send a Message About Biden**\
-`The show of unity from Clinton and Obama was a deliberate contrast to Trump’s isolation.`\
-https://nytimes.com/live/2024/03/26/opinion/thepoint/biden-clinton-obama-manhattan
-
-**Empty Roads and Spewing Lava: 4 Months Into Iceland’s Eruptions**\
-`Volcanic eruptions are continuing in the Reykjanes Peninsula in Iceland. Streets are empty and the Blue Lagoon resort remains closed.`\
-https://nytimes.com/2024/03/29/world/europe/iceland-volcano-eruption-photos.html
 
