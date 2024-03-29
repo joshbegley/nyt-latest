@@ -1,3 +1,11 @@
+**New Jersey’s Ballot Must Be Immediately Redesigned, Federal Judge Rules**\
+`The ruling is expected to abolish a practice that has allowed the state’s Democratic and Republican political machines to flourish.`\
+https://nytimes.com/2024/03/29/nyregion/new-jersey-election-ballot-challenge.html
+
+**Shakira’s Pop-Up Show: Not Something She Dreamed Up at Breakfast**\
+`Months of preparation precede what can appear to be a sudden decision to entertain fans at a busy time in the heart of Times Square.`\
+https://nytimes.com/2024/03/29/arts/shakira-pop-up-times-square-concert.html
+
 **4 Things You Need to Know About Health Care Cyberattacks**\
 `Despite the explosion in ransomware hacks like the one against Change Healthcare, regulation is spotty and few new safeguards have been proposed to protect patient data, vulnerable hospitals and medical groups.`\
 https://nytimes.com/2024/03/29/health/cyber-attack-unitedhealth-hospital-patients.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/29/arts/music/beyonce-cowboy-carter-credits.html
 **May Joe Lieberman’s Memory Be for a Blessing**\
 `He was a model of how politics was once done differently.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/may-joe-liebermans-memory-be-for-a-blessing
-
-**Heart Pump Is Linked to 49 Deaths, the F.D.A. Warns**\
-`The agency faulted the device maker for delayed notice of mounting complications, citing increasing reports of how use of the device perforated the walls of the heart.`\
-https://nytimes.com/2024/03/29/health/fda-heart-pump-fatalities.html
-
-**The Big Number: $30 Billion**\
-`An agreement by Visa and Mastercard to cap swipe fees could save merchants billions. The question is how much it will help consumers.`\
-https://nytimes.com/interactive/2024/03/29/business/visa-mastercard-swipe-fees.html
 
