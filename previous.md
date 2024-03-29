@@ -3,7 +3,7 @@
 https://nytimes.com/2024/03/29/us/politics/bidgood-biden-trump.html
 
 **Chicago Democrats Pick Former Judge to Replace Kim Foxx as Top Prosecutor**\
-`The contest was close, and workers counted ballots for days after the April 19 election before the result of the race for the Democratic nomination was announced.`\
+`The contest was close, and workers counted ballots for days after the March 19 election before the result of the race for the Democratic nomination was announced.`\
 https://nytimes.com/2024/03/29/us/cook-county-states-attorney-election.html
 
 **Paula Weinstein, Hollywood Veteran and Political Activist, Dies at 78**\
