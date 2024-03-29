@@ -1,3 +1,11 @@
+**Corporate Polish Meets Partisan Reality for NBC’s News Chief**\
+`Cesar Conde, a leader with an M.B.A. but limited journalism background, is facing the toughest scrutiny of his career.`\
+https://nytimes.com/2024/03/29/business/media/nbc-news-cesar-conde.html
+
+**Bacteria That Cause Meningitis Are Spreading Again, C.D.C. Warns**\
+`More than 140 cases have been reported so far this year, far exceeding last year’s pace, federal health officials said.`\
+https://nytimes.com/2024/03/29/health/meningitis-infections.html
+
 **A Vibrant Art Scene Beyond the Basics**\
 `The museum curator Maleke Lee speaks to a thriving art scene beyond the standard tourist draws.`\
 https://nytimes.com/paidpost/destination-dc/a-vibrant-art-scene-beyond-the-basics.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/03/29/podcasts/transcript-ezra-klein-interviews-john-ga
 **An Insider’s History of Guantánamo Prison Camp**\
 `“Serial” is back with Season 4. A history of Guantánamo told by people who lived through key moments in its evolution, who know things the rest of us don’t about being caught inside an improvised justice system.`\
 https://nytimes.com/video/podcasts/100000009384618/an-insiders-history-of-guantanamo-prison-camp.html
-
-**The U.S. Aims to Boost Electric Truck Sales**\
-`Also, a U.S. reporter has spent a year in a Russian prison. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/03/29/briefing/us-truck-rules-reporter-russian-prison-bunnies.html
-
-**Peter Shapiro, Political Groundbreaker in New Jersey, Dies at 71**\
-`He bucked the Democratic machine to become the youngest member of the state’s General Assembly and reformed government as the first Essex County executive.`\
-https://nytimes.com/2024/03/29/nyregion/peter-shapiro-dead.html
 
