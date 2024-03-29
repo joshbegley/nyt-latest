@@ -1,3 +1,11 @@
+**What to Know About Jeffrey Donaldson, the Former D.U.P. Leader**\
+`Mr. Donaldson resigned as party leader on Friday, after being charged with non-recent sexual offenses.`\
+https://nytimes.com/2024/03/29/world/europe/who-is-jeffrey-donaldson-dup.html
+
+**Sailor’s Remains Identified 82 Years After Pearl Harbor**\
+`David Walker, 19, of Norfolk, Va., was a mess attendant aboard the U.S.S. California. Officials used advanced forensic technology to identify his remains.`\
+https://nytimes.com/2024/03/29/us/virginia-sailor-pearl-harbor.html
+
 **Iowa Fertilizer Spill Kills Nearly All Fish Across 60-Mile Stretch of Rivers**\
 `Officials in Iowa and Missouri estimated that nearly 800,000 fish had died in waters that flow into the Missouri River.`\
 https://nytimes.com/2024/03/29/us/iowa-spill-fish-kill.html

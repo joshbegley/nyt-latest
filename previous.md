@@ -1,3 +1,11 @@
+**What to Know About Jeffrey Donaldson, the Former D.U.P. Leader**\
+`Mr. Donaldson resigned as party leader on Friday, after being charged with non-recent sexual offenses.`\
+https://nytimes.com/2024/03/29/world/europe/who-is-jeffrey-donaldson-dup.html
+
+**Sailor’s Remains Identified 82 Years After Pearl Harbor**\
+`David Walker, 19, of Norfolk, Va., was a mess attendant aboard the U.S.S. California. Officials used advanced forensic technology to identify his remains.`\
+https://nytimes.com/2024/03/29/us/virginia-sailor-pearl-harbor.html
+
 **Iowa Fertilizer Spill Kills Nearly All Fish Across 60-Mile Stretch of Rivers**\
 `Officials in Iowa and Missouri estimated that nearly 800,000 fish had died in waters that flow into the Missouri River.`\
 https://nytimes.com/2024/03/29/us/iowa-spill-fish-kill.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/03/29/us/trump-georgia-ruling-appeal.html
 **The Government’s Weakest Antitrust Case Is Against Amazon**\
 `Google, on the other hand, acts more like a monopolist.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/amazon-google-antitrust
-
-**5 Recipes for Your ‘Cowboy Carter’ Listening Party**\
-`Because you'll definitely need fuel for the dance floor.`\
-https://nytimes.com/interactive/2024/03/29/dining/cowboy-carter-recipes.html
-
-**Biden Will Visit Baltimore Next Week After Bridge Collapse**\
-`The president’s visit comes as officials start planning for major economic disruptions after a ship struck the Francis Scott Key Bridge.`\
-https://nytimes.com/2024/03/29/us/politics/biden-baltimore-bridge-collapse.html
 
