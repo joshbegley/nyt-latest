@@ -1,3 +1,7 @@
+**Our Critics Talk About the Novels That Make Them Laugh**\
+`Dwight Garner, Alexandra Jacobs and Jennifer Szalai weigh in on 22 of the funniest novels since “Catch-22.”`\
+https://nytimes.com/2024/03/29/books/review/our-critics-talk-about-the-novels-that-make-them-laugh.html
+
 **Beyoncé’s ‘Cowboy Carter’ Showcases Her Greatest Instrument**\
 `It’s a delight to hear her voice unmediated and deployed in novel ways.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/beyonce-cowboy-carter
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/health/cyber-attack-unitedhealth-hospital-patient
 **‘Bathhouse.pptx’ Review: A Fever Dream, Both Poetic and Mystifying**\
 `Jesús I. Valles’s prizewinning play gets a stage at the Flea, but the ambitious work about queer history proves too difficult to wrangle.`\
 https://nytimes.com/2024/03/29/theater/bathhousepptx-review.html
-
-**Members-Only Mania: Why Are More Private Clubs Popping Up in New York?**\
-`Some people belong to multiple private clubs that have emerged to fill physical and emotional voids. Others belong only to Sam’s Club.`\
-https://nytimes.com/2024/03/29/realestate/nyc-private-clubs.html
 
