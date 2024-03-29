@@ -1,3 +1,11 @@
+**Teacher Secretly Sold His Students’ Art on Mugs and Shirts, Lawsuit Says**\
+`Parents of a dozen students at a school near Montreal accused an art teacher in a lawsuit of reproducing portraits from a class assignment and putting them on items that he offered for sale online.`\
+https://nytimes.com/2024/03/29/world/canada/mario-perron-canada-art-teacher.html
+
+**Louis Gossett Jr., 87, Dies; ‘An Officer and a Gentleman’ and ‘Roots’ Actor**\
+`His portrayal of a drill instructor earned him the Oscar for best supporting actor. He was the first Black performer to win in that category.`\
+https://nytimes.com/2024/03/29/movies/louis-gossett-jr-dead.html
+
 **Germany, a Loyal Israel Ally, Begins to Shift Tone as Gaza Toll Mounts**\
 `Supporting Israel is seen as a historic duty in Germany, but the worsening crisis has pushed German officials to ask whether that backing has gone too far.`\
 https://nytimes.com/2024/03/29/world/europe/germany-israel-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/29/climate/epa-trucks-emissions-regulation.html
 **How Many Easters Remain for This Century-Old Boys’ Choir School?**\
 `St. Thomas Church in New York is considering closing its renowned boarding school for choristers, one of only a few in the world, because of financial woes.`\
 https://nytimes.com/2024/03/29/arts/music/st-thomas-choir-school.html
-
-**Readers Share Why They Love the Golden State**\
-`Readers have been writing in about some of their favorite things about California, including the biodiversity and the sense of community.`\
-https://nytimes.com/2024/03/29/us/california-love-letters.html
-
-**A common link in Mideast conflicts: Iran and its proxies.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/03/29/world/israel-hamas-war-gaza-news/a-common-link-in-mideast-conflicts-iran-and-its-proxies
 

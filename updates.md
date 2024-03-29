@@ -1,3 +1,11 @@
+**Teacher Secretly Sold His Students’ Art on Mugs and Shirts, Lawsuit Says**\
+`Parents of a dozen students at a school near Montreal accused an art teacher in a lawsuit of reproducing portraits from a class assignment and putting them on items that he offered for sale online.`\
+https://nytimes.com/2024/03/29/world/canada/mario-perron-canada-art-teacher.html
+
+**Louis Gossett Jr., 87, Dies; ‘An Officer and a Gentleman’ and ‘Roots’ Actor**\
+`His portrayal of a drill instructor earned him the Oscar for best supporting actor. He was the first Black performer to win in that category.`\
+https://nytimes.com/2024/03/29/movies/louis-gossett-jr-dead.html
+
 **Germany, a Loyal Israel Ally, Begins to Shift Tone as Gaza Toll Mounts**\
 `Supporting Israel is seen as a historic duty in Germany, but the worsening crisis has pushed German officials to ask whether that backing has gone too far.`\
 https://nytimes.com/2024/03/29/world/europe/germany-israel-gaza.html
