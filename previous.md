@@ -1,3 +1,11 @@
+**In Move to Protect Whales, Polynesian Indigenous Groups Give Them ‘Personhood’**\
+`Indigenous leaders of New Zealand, Tahiti and the Cook Islands signed a treaty that recognizes whales as legal persons. Conservationists hope it will lead to legal protections.`\
+https://nytimes.com/2024/03/29/world/australia/whale-personhood-polynesia-maori.html
+
+**Our Favorite Watering Cans**\
+`Any vessel will work, but these are the ones we'd pick.`\
+https://nytimes.com/interactive/2024/03/29/smarter-living/wirecutter/watering-cans.html
+
 **Why It’s So Expensive to Live in Phoenix**\
 `Arizona is a presidential election battleground state, and a dire shortage of affordable housing there is sowing economic anxiety among voters.`\
 https://nytimes.com/2024/03/29/business/arizona-housing-economy.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/29/us/trump-biden-election
 **Crews Use Crane to Start Clearing Collapsed Baltimore Bridge**\
 `Debris from the collapsed Francis Scott Key Bridge is blocking a vital shipping lane into the Port of Baltimore.`\
 https://nytimes.com/video/us/100000009387620/baltimore-key-bridge-collapse.html
-
-**Charged with Sexual Offenses, Influential Politician in Northern Ireland Steps Down**\
-`Jeffrey Donaldson, the leader of the Democratic Unionist Party and a backer of strong ties with the U.K., has resigned after being arrested on Thursday.`\
-https://nytimes.com/2024/03/29/world/europe/jeffrey-donaldson-resigns-dup-northern-ireland.html
-
-**Biden and Trump appeal to their voters and address their weaknesses.**\
-`By Lisa Lerer`\
-https://nytimes.com/live/2024/03/29/us/trump-biden-election/biden-and-trump-sought-to-shore-up-their-bases-and-address-their-weaknesses
 

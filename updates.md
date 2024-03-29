@@ -1,3 +1,11 @@
+**In Move to Protect Whales, Polynesian Indigenous Groups Give Them ‘Personhood’**\
+`Indigenous leaders of New Zealand, Tahiti and the Cook Islands signed a treaty that recognizes whales as legal persons. Conservationists hope it will lead to legal protections.`\
+https://nytimes.com/2024/03/29/world/australia/whale-personhood-polynesia-maori.html
+
+**Our Favorite Watering Cans**\
+`Any vessel will work, but these are the ones we'd pick.`\
+https://nytimes.com/interactive/2024/03/29/smarter-living/wirecutter/watering-cans.html
+
 **Why It’s So Expensive to Live in Phoenix**\
 `Arizona is a presidential election battleground state, and a dire shortage of affordable housing there is sowing economic anxiety among voters.`\
 https://nytimes.com/2024/03/29/business/arizona-housing-economy.html
