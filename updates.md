@@ -1,3 +1,11 @@
+**A common link in Mideast conflicts: Iran and its proxies.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/03/29/world/israel-hamas-war-gaza-news/a-common-link-in-mideast-conflicts-iran-and-its-proxies
+
+**U.S.-Funded Broadcaster Leaves Hong Kong, Citing Security Law**\
+`Radio Free Asia, which ran a small operation in Hong Kong, said its staff was at risk because of the law’s sweeping definition of “external interference.”`\
+https://nytimes.com/2024/03/29/world/asia/hong-kong-security-media.html
+
 **A Key Inflation Gauge Hovers Above Fed’s Target**\
 `The Fed’s preferred inflation gauge was relatively stable on an annual basis, the latest reminder that bringing inflation down is a bumpy process.`\
 https://nytimes.com/2024/03/29/business/economy/pce-inflation-spending-fed.html

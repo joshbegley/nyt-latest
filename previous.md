@@ -1,3 +1,11 @@
+**A common link in Mideast conflicts: Iran and its proxies.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/03/29/world/israel-hamas-war-gaza-news/a-common-link-in-mideast-conflicts-iran-and-its-proxies
+
+**U.S.-Funded Broadcaster Leaves Hong Kong, Citing Security Law**\
+`Radio Free Asia, which ran a small operation in Hong Kong, said its staff was at risk because of the law’s sweeping definition of “external interference.”`\
+https://nytimes.com/2024/03/29/world/asia/hong-kong-security-media.html
+
 **A Key Inflation Gauge Hovers Above Fed’s Target**\
 `The Fed’s preferred inflation gauge was relatively stable on an annual basis, the latest reminder that bringing inflation down is a bumpy process.`\
 https://nytimes.com/2024/03/29/business/economy/pce-inflation-spending-fed.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/29/world/middleeast/un-ceasefire-resolution-israel-g
 **A Crisis of School Absences**\
 `Fewer children are attending school, across rich and poor districts.`\
 https://nytimes.com/2024/03/29/briefing/school-absences.html
-
-**A ‘Cataclysmic Situation’ in Haiti, and the Downfall of Sam Bankman-Fried**\
-`Plus, Beyoncé’s album has arrived, riding a horse.`\
-https://nytimes.com/2024/03/29/podcasts/haiti-sam-bankman-fried.html
-
-**Hamas Took Her, and Still Has Her Husband**\
-`The story of one family at the center of the war in Gaza.`\
-https://nytimes.com/2024/03/29/podcasts/the-daily/hamas-took-her-and-still-has-her-husband.html
 
