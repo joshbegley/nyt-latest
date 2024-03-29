@@ -1,3 +1,11 @@
+**The Best of Late Night This Week**\
+`News surrounding former President Donald Trump dominated late night this week, including a New York appeals court reducing the bond in his civil fraud case, and his newest venture: a $60 Bible. Here’s what the hosts had to say.`\
+https://nytimes.com/interactive/2024/03/29/arts/television/best-of-late-night-this-week.html
+
+**Israel touts its ‘new initiatives’ on getting aid into Gaza, but progress has been slow.**\
+`By Adam Rasgon`\
+https://nytimes.com/2024/03/29/world/middleeast/israel-gaza-aid-famine.html
+
 **The Sean Combs Saga Is Catnip for Pop Culture Podcasts**\
 `The raids of Combs’s homes have been a primary topic on podcasts and radio shows that cover the Black entertainment world.`\
 https://nytimes.com/2024/03/29/arts/music/diddy-sean-combs-podcasts.html

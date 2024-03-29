@@ -22,8 +22,8 @@ https://nytimes.com/2024/03/29/health/fda-heart-pump-fatalities.html
 `An agreement by Visa and Mastercard to cap swipe fees could save merchants billions. The question is how much it will help consumers.`\
 https://nytimes.com/interactive/2024/03/29/business/visa-mastercard-swipe-fees.html
 
-**Israel touts its ‘new initiatives’ on getting aid into Gaza, but progress has been slow.**\
-`By Adam Rasgon`\
+**Israel Cites ‘New Initiatives’ for Gaza Aid, but Progress Has Been Slow**\
+`The country pointed to measures to deliver necessities by land, air and sea that aid groups say are not nearly sufficient to meet the need.`\
 https://nytimes.com/2024/03/29/world/middleeast/israel-gaza-aid-famine.html
 
 **What’s Going On in This Picture? | April 8, 2024**\
