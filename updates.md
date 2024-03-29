@@ -1,3 +1,19 @@
+**It’s Time for Honey Baked Ham**\
+`Not for you? There’s always carrot maqluba, or a no-recipe recipe for kielbasa with pierogies.`\
+https://nytimes.com/2024/03/29/dining/its-time-for-honey-baked-ham.html
+
+**A Georgia Town Basks in Bountiful Filming. The State Pays.**\
+`When movies are made in Thomasville, Ga., it welcomes celebrities and an infusion of cash. But the financial incentives that attract studios have cost the state billions.`\
+https://nytimes.com/2024/03/29/arts/georgia-film-tax-incentives.html
+
+**Five Horror Movies to Stream Now**\
+`A fanatical faith leader, aggressive home invaders and disfigured attention hogs are among the subjects of this month’s horror picks.`\
+https://nytimes.com/2024/03/29/movies/horror-movies-streaming.html
+
+**Stop Looking for Flaws in the Premier League Contenders**\
+`As Arsenal and Manchester City meet, remember that titles are not always won head-to-head, and that being the second-best team in the world’s best league does not constitute failure.`\
+https://nytimes.com/2024/03/29/world/europe/manchester-city-arsenal-premier-league.html
+
 **Big Ticket: N.Y.’s Top Sales and Listings in March**\
 `March's top sales include the former home of George Malkemus.`\
 https://nytimes.com/interactive/2024/03/29/realestate/top-home-sales-and-listings-NYC.html

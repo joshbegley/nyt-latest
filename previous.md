@@ -1,3 +1,19 @@
+**It’s Time for Honey Baked Ham**\
+`Not for you? There’s always carrot maqluba, or a no-recipe recipe for kielbasa with pierogies.`\
+https://nytimes.com/2024/03/29/dining/its-time-for-honey-baked-ham.html
+
+**A Georgia Town Basks in Bountiful Filming. The State Pays.**\
+`When movies are made in Thomasville, Ga., it welcomes celebrities and an infusion of cash. But the financial incentives that attract studios have cost the state billions.`\
+https://nytimes.com/2024/03/29/arts/georgia-film-tax-incentives.html
+
+**Five Horror Movies to Stream Now**\
+`A fanatical faith leader, aggressive home invaders and disfigured attention hogs are among the subjects of this month’s horror picks.`\
+https://nytimes.com/2024/03/29/movies/horror-movies-streaming.html
+
+**Stop Looking for Flaws in the Premier League Contenders**\
+`As Arsenal and Manchester City meet, remember that titles are not always won head-to-head, and that being the second-best team in the world’s best league does not constitute failure.`\
+https://nytimes.com/2024/03/29/world/europe/manchester-city-arsenal-premier-league.html
+
 **Big Ticket: N.Y.’s Top Sales and Listings in March**\
 `March's top sales include the former home of George Malkemus.`\
 https://nytimes.com/interactive/2024/03/29/realestate/top-home-sales-and-listings-NYC.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/03/29/science/total-eclipse-blind-lightsound.html
 **Teacher Secretly Sold His Students’ Art on Mugs and Shirts, Lawsuit Says**\
 `Parents of a dozen students at a school near Montreal accused an art teacher in a lawsuit of reproducing portraits from a class assignment and putting them on items that he offered for sale online.`\
 https://nytimes.com/2024/03/29/world/canada/mario-perron-canada-art-teacher.html
-
-**Louis Gossett Jr., 87, Dies; ‘An Officer and a Gentleman’ and ‘Roots’ Actor**\
-`His portrayal of a drill instructor earned him the Oscar for best supporting actor. He was the first Black performer to win in that category.`\
-https://nytimes.com/2024/03/29/movies/louis-gossett-jr-dead.html
-
-**Germany, a Loyal Israel Ally, Begins to Shift Tone as Gaza Toll Mounts**\
-`Supporting Israel is seen as a historic duty in Germany, but the worsening crisis has pushed German officials to ask whether that backing has gone too far.`\
-https://nytimes.com/2024/03/29/world/europe/germany-israel-gaza.html
-
-**Stream These 12 Movies Before They Leave Netflix in April**\
-`A Ryan Gosling detective comedy, a Formula One racing drama and the romantic musical “Mamma Mia!” are among the movies exiting the streaming service.`\
-https://nytimes.com/2024/03/29/movies/netflix-leaving-april.html
-
-**29pol-swiper**\
-`Biden and Trump appear in dueling New York events to shore up the base in a contrast election.`\
-https://nytimes.com/live/2024/03/29/us/trump-biden-election
 
