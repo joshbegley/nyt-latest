@@ -1,3 +1,7 @@
+**A Key Inflation Gauge Hovers Above Fed’s Target**\
+`The Fed’s preferred inflation gauge was relatively stable on an annual basis, the latest reminder that bringing inflation down is a bumpy process.`\
+https://nytimes.com/2024/03/29/business/economy/pce-inflation-spending-fed.html
+
 **Behind the Ray-Bans, Two Presidents Send a Message About Biden**\
 `The show of unity from Clinton and Obama was a deliberate contrast to Trump’s isolation.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/biden-clinton-obama-manhattan
