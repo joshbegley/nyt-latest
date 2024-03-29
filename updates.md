@@ -1,3 +1,7 @@
+**Force of Ship Impact Was on the Scale of a Rocket Launch**\
+`A Times analysis used preliminary data to estimate the force of the impact on the Baltimore bridge. It involved “more energy than you can really get your mind around,” an expert said.`\
+https://nytimes.com/interactive/2024/03/28/upshot/baltimore-bridge-ship-force.html
+
 **4 Presidents, 2 Events and a Preview of Campaign Clashes to Come**\
 `President Biden raised $25 million at a Radio City Music Hall event, adding to his huge cash edge, after Donald Trump pushed his law-and-order message at a wake for a police officer killed on duty.`\
 https://nytimes.com/2024/03/28/us/politics/biden-clinton-obama-trump-nyc.html
