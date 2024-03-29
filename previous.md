@@ -1,3 +1,15 @@
+**The Sean Combs Saga Is Catnip for Pop Culture Podcasts**\
+`The raids of Combs’s homes have been a primary topic on podcasts and radio shows that cover the Black entertainment world.`\
+https://nytimes.com/2024/03/29/arts/music/diddy-sean-combs-podcasts.html
+
+**Who’s Who on Beyoncé’s ‘Cowboy Carter’**\
+`A guide to key guests and behind-the-scenes figures on the star’s eighth studio album.`\
+https://nytimes.com/2024/03/29/arts/music/beyonce-cowboy-carter-credits.html
+
+**May Joe Lieberman’s Memory Be for a Blessing**\
+`He was a model of how politics was once done differently.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/may-joe-liebermans-memory-be-for-a-blessing
+
 **Heart Pump Is Linked to 49 Deaths, the F.D.A. Warns**\
 `The agency faulted the device maker for delayed notice of mounting complications, citing increasing reports of how use of the device perforated the walls of the heart.`\
 https://nytimes.com/2024/03/29/health/fda-heart-pump-fatalities.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/29/arts/georgia-film-tax-incentives.html
 **Five Horror Movies to Stream Now**\
 `A fanatical faith leader, aggressive home invaders and disfigured attention hogs are among the subjects of this month’s horror picks.`\
 https://nytimes.com/2024/03/29/movies/horror-movies-streaming.html
-
-**Stop Looking for Flaws in the Premier League Contenders**\
-`As Arsenal and Manchester City meet, remember that titles are not always won head-to-head, and that being the second-best team in the world’s best league does not constitute failure.`\
-https://nytimes.com/2024/03/29/world/europe/manchester-city-arsenal-premier-league.html
-
-**Big Ticket: N.Y.’s Top Sales and Listings in March**\
-`March's top sales include the former home of George Malkemus.`\
-https://nytimes.com/interactive/2024/03/29/realestate/top-home-sales-and-listings-NYC.html
-
-**In Move to Protect Whales, Polynesian Indigenous Groups Give Them ‘Personhood’**\
-`Indigenous leaders of New Zealand, Tahiti and the Cook Islands signed a treaty that recognizes whales as legal persons. Conservationists hope it will lead to legal protections.`\
-https://nytimes.com/2024/03/29/world/australia/whale-personhood-polynesia-maori.html
 
