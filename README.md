@@ -1,3 +1,11 @@
+**The Big Number: $30 Billion**\
+`An agreement by Visa and Mastercard to cap swipe fees could save merchants billions. The question is how much it will help consumers.`\
+https://nytimes.com/interactive/2024/03/29/business/visa-mastercard-swipe-fees.html
+
+**Israel touts its ‘new initiatives’ on getting aid into Gaza, but progress has been slow.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/03/29/world/israel-hamas-war-gaza-news/israel-gaza-aid-famine
+
 **What’s Going On in This Picture? | April 8, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/03/29/learning/whats-going-on-in-this-picture-april-8-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/29/world/australia/whale-personhood-polynesia-maori.
 **Our Favorite Watering Cans**\
 `Any vessel will work, but these are the ones we'd pick.`\
 https://nytimes.com/interactive/2024/03/29/smarter-living/wirecutter/watering-cans.html
-
-**Why It’s So Expensive to Live in Phoenix**\
-`Arizona is a presidential election battleground state, and a dire shortage of affordable housing there is sowing economic anxiety among voters.`\
-https://nytimes.com/2024/03/29/business/arizona-housing-economy.html
-
-**They Can’t See the Eclipse, but This Device Will Help Them Hear It**\
-`A device called LightSound is being distributed to help the blind and visually impaired experience this year’s event.`\
-https://nytimes.com/2024/03/29/science/total-eclipse-blind-lightsound.html
 
