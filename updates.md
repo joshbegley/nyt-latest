@@ -1,3 +1,7 @@
+**Woman Who Received 5-Year Sentence in Voter Fraud Case Is Acquitted**\
+`A Texas appeals court reversed its earlier opinion that had upheld the conviction of Crystal Mason, who was found guilty of illegally casting a provisional ballot in 2016, even though she claimed she hadn’t known she was ineligible to vote.`\
+https://nytimes.com/2024/03/28/us/politics/crystal-mason-texas-voting-acquitted.html
+
 **Force of Ship Impact Was on the Scale of a Rocket Launch**\
 `A Times analysis used preliminary data to estimate the force of the impact on the Baltimore bridge. It involved “more energy than you can really get your mind around,” an expert said.`\
 https://nytimes.com/interactive/2024/03/28/upshot/baltimore-bridge-ship-force.html
