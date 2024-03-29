@@ -1,3 +1,7 @@
+**Putin’s Next Escalation Is Coming**\
+`Even without the terror attack in Moscow last week, the Russian president was primed to step up his assault on Ukraine.`\
+https://nytimes.com/2024/03/29/opinion/moscow-attack-putin-ukraine.html
+
 **Friday Briefing**\
 `One year since Russia jailed a U.S. reporter.`\
 https://nytimes.com/2024/03/29/briefing/sam-bankman-fried-evan-gershkovich.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/29/style/joelle-gamble-zachary-copeland-wedding.html
 **He Offered Her a Seat at His Table, and Later, a Place in His Heart**\
 `Arnim Kaiser and Pamela Grace were both out-of-towners dining alone in Arles, France. Their waitress was watching in the wings.`\
 https://nytimes.com/2024/03/29/style/arnim-kaiser-pamela-grace-wedding.html
-
-**He Expresses Himself Through Art. She Through Math.**\
-`Alexandra Plzak and Sharif Farrag met in college and had very little in common on paper. But you know what they say about opposites.`\
-https://nytimes.com/2024/03/29/style/alexandra-plzak-sharif-farrag-wedding.html
 

@@ -1,3 +1,7 @@
+**Putin’s Next Escalation Is Coming**\
+`Even without the terror attack in Moscow last week, the Russian president was primed to step up his assault on Ukraine.`\
+https://nytimes.com/2024/03/29/opinion/moscow-attack-putin-ukraine.html
+
 **Friday Briefing**\
 `One year since Russia jailed a U.S. reporter.`\
 https://nytimes.com/2024/03/29/briefing/sam-bankman-fried-evan-gershkovich.html
