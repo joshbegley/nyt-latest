@@ -1,3 +1,7 @@
+**Read the Defense’s Application to Appeal**\
+`Lawyers for former President Donald J. Trump and eight of his co-defendants in the Georgia election interference case asked an appeals court to take up their challenge of a judge’s ruling that allowed the prosecutor Fani T. Willis to stay on the case.`\
+https://nytimes.com/interactive/2024/03/29/us/trump-georgia-ruling-appeal.html
+
 **Czechs Accuse Men of ‘Russian Influence Operation’ in Europe**\
 `Amid news reports that European politicians received payments to promote Russian interests, the Czech government froze the assets of the men and a website, Voice of Europe.`\
 https://nytimes.com/2024/03/29/world/europe/czech-republic-sanctions-russian-influence-europe.html
