@@ -1,3 +1,7 @@
+**Molly on Philosophy for Kids and British Suspense for Adults**\
+`Jean-Luc Nancy’s “God, Justice, Love, Beauty”; Barbara Vine’s “A Dark-Adapted Eye”`\
+https://nytimes.com/2024/03/30/books/review/read-like-wind-recommendations.html
+
 **Donald Trump, Blasphemous Bible Thumper**\
 `Trump is, as the nuns who taught me used to say, “a bold, brazen piece.”`\
 https://nytimes.com/2024/03/30/opinion/trump-god-religion-easter.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/podcasts/perils-of-intimacy-this-american-life-ny
 **In Praise of Tiny Triumphs**\
 `If full-on spring cleaning feels intimidating, why not focus instead on tasks that are far less ambitious but no less satisfying?`\
 https://nytimes.com/2024/03/30/briefing/in-praise-of-tiny-triumphs.html
-
-**‘Punjabi Wave’ Music Hits the Juno Awards Stage**\
-`Karan Aujla, 27, became the first Punjabi artist to win an award at the Junos as the genre expands its fan base in Canada.`\
-https://nytimes.com/2024/03/30/world/canada/juno-awards-karan-aujla.html
 
