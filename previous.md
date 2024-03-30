@@ -1,4 +1,4 @@
-**Watch Turkey’s Fabled Stork on Live Webcam**\
+**Watch Turkey’s Famous Stork on Live Webcam**\
 `A 24-hour webcam allows stork lovers worldwide to watch Yaren, who returns to visit his human friend every year.`\
 https://nytimes.com/2024/03/30/world/europe/turkey-storks-webcam.html
 
