@@ -1,3 +1,11 @@
+**How S.M.U., Once the Rogue of College Sports, Got Back to the Big Time**\
+`For those wanting to trace the evolution of money and college sports over the past half-century, Southern Methodist offers a perfect example.`\
+https://nytimes.com/2024/03/30/business/southern-methodist-university-college-sports.html
+
+**Is Guyana’s Oil a Blessing or a Curse?**\
+`More than any single country, Guyana demonstrates the struggle between the consequences of climate change and the lure of the oil economy.`\
+https://nytimes.com/2024/03/30/headway/is-guyanas-oil-a-blessing-or-a-curse.html
+
 **Watch Turkey’s Famous Stork on Live Webcam**\
 `A 24-hour webcam allows stork lovers worldwide to watch Yaren, who returns to visit his human friend every year.`\
 https://nytimes.com/2024/03/30/world/europe/turkey-storks-webcam.html
