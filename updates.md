@@ -1,3 +1,7 @@
+**AT&T Resets Millions of Passcodes After Customer Records Are Leaked**\
+`Nearly eight million customers and 65.4 million former account holders were affected by the data breach, the company said.`\
+https://nytimes.com/2024/03/30/business/att-passcodes-reset-data-breach.html
+
 **Second Boat Carrying Aid to Gaza Departs Cyprus**\
 `Delivering aid by sea is one of the latest international efforts to stave off starvation in Gaza, where aid has been limited by tightly controlled border crossings.`\
 https://nytimes.com/2024/03/30/world/middleeast/gaza-aid-ship-famine.html
