@@ -1,3 +1,7 @@
+**Police Raid Peruvian President’s Home, Looking for Rolex Watches**\
+`Dina Boluarte, who has been seen wearing luxury watches and a $50,000 bracelet, is under investigation for breaking the country’s unlawful enrichment and asset disclosure laws.`\
+https://nytimes.com/2024/03/30/world/americas/boluarte-peru-police-raid-rolex.html
+
 **AT&T Resets Millions of Passcodes After Customer Records Are Leaked**\
 `Nearly eight million customers and 65.4 million former account holders were affected by the data breach, the company said.`\
 https://nytimes.com/2024/03/30/business/att-passcodes-reset-data-breach.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/insider/new-yorks-trash-is-two-journalists-treasu
 **An Altered Masterpiece**\
 `In 1914, an Easter section in The Times that showed paintings from the Metropolitan Museum was a sensation. But there was something off about Fra Angelico’s ‘The Crucifixion.’`\
 https://nytimes.com/2024/03/30/insider/an-altered-masterpiece.html
-
-**We’re Going Full Carrot Cake Mode**\
-`Are you team raisins or no raisins?`\
-https://nytimes.com/2024/03/30/dining/were-going-full-carrot-cake-mode.html
 
