@@ -1,3 +1,7 @@
+**Second Boat Carrying Aid to Gaza Departs Cyprus**\
+`Delivering aid by sea is one of the latest international efforts to stave off starvation in Gaza, where aid has been limited by tightly controlled border crossings.`\
+https://nytimes.com/2024/03/30/world/middleeast/gaza-aid-ship-famine.html
+
 **Crews at Site of Bridge Collapse Work on Removing First Piece of Debris**\
 `The governor of Maryland said that the search for missing victims would resume when the conditions for divers improve.`\
 https://nytimes.com/2024/03/30/us/bridge-collapse-crew-debris.html

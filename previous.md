@@ -18,9 +18,9 @@ https://nytimes.com/2024/03/30/us/politics/trumper-mercer-dinner.html
 `The Grammy Award-winning singer said on Instagram that she was “starting to feel like the world doesn’t want me in it.”`\
 https://nytimes.com/2024/03/30/arts/lizzo-instagram-quit-music.html
 
-**Charity that made first delivery of food to Gaza by sea sends a second boat with aid.**\
-`By Gaya Gupta`\
-https://nytimes.com/2024/03/30/world/gaza-aid-ship-famine.html
+**Second Boat Carrying Aid to Gaza Departs Cyprus**\
+`Delivering aid by sea is one of the latest international efforts to stave off starvation in Gaza, where aid has been limited by tightly controlled border crossings.`\
+https://nytimes.com/2024/03/30/world/middleeast/gaza-aid-ship-famine.html
 
 **New York’s Trash Is Two Journalists’ Treasure**\
 `To understand a messy problem, The Times needed to look at the city from a different perspective, one where garbage sits at the foreground.`\
