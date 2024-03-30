@@ -1,3 +1,7 @@
+**Paradoxical Line of Amazement**\
+`Blake Slonecker presents an erudite themeless grid.`\
+https://nytimes.com/2024/03/29/crosswords/daily-puzzle-2024-03-30.html
+
 **Corporate Polish Meets Partisan Reality for NBC’s News Chief**\
 `Cesar Conde, a leader with an M.B.A. but a limited journalism background, is facing the toughest scrutiny of his career.`\
 https://nytimes.com/2024/03/29/business/media/nbc-news-cesar-conde.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/03/29/movies/paula-weinstein-dead.html
 **Transcript: Ezra Klein Interviews John Ganz**\
 `The March 29, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/03/29/podcasts/transcript-ezra-klein-interviews-john-ganz.html
-
-**An Insider’s History of Guantánamo Prison Camp**\
-`“Serial” is back with Season 4. A history of Guantánamo told by people who lived through key moments in its evolution, who know things the rest of us don’t about being caught inside an improvised justice system.`\
-https://nytimes.com/video/podcasts/100000009384618/an-insiders-history-of-guantanamo-prison-camp.html
 
