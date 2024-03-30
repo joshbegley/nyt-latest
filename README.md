@@ -31,7 +31,7 @@ https://nytimes.com/2024/03/30/dining/were-going-full-carrot-cake-mode.html
 https://nytimes.com/2024/03/30/us/strippers-bill-rights-washington.html
 
 **A Times Photographer Went on a Gaza Airdrop. Here’s What He Saw.**\
-`As humanitarian groups warn of a looming famine in northern Gaza, airdrops, are playing a prominent role in efforts to deliver food and supplies, even if they are less efficient than delivery by truck.`\
+`As humanitarian groups warn of a looming famine in northern Gaza, airdrops are playing a prominent role in efforts to deliver food and supplies, even if they are less efficient than delivery by truck.`\
 https://nytimes.com/2024/03/30/world/middleeast/gaza-aid-airdrop.html
 
 **Members of a U.N. peacekeeping team are wounded in an explosion in Lebanon.**\
