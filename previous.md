@@ -1,3 +1,7 @@
+**A Look at Washington State’s ‘Strippers’ Bill of Rights’**\
+`Signed into law by Gov. Jay Inslee, the legislation provides wide-ranging protections for adult dancers.`\
+https://nytimes.com/2024/03/30/us/strippers-bill-rights-washington.html
+
 **A Times Photographer Went on a Gaza Airdrop. Here’s What He Saw.**\
 `As humanitarian groups warn of a looming famine in northern Gaza, airdrops, are playing a prominent role in efforts to deliver food and supplies, even if they are less efficient than delivery by truck.`\
 https://nytimes.com/2024/03/30/world/middleeast/gaza-aid-airdrop.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/opinion/marriage-wealth-happiness.html
 **The Persistent Threat to Abortion Rights**\
 `A lawsuit that restricts a widely used abortion drug is unlikely to be the last challenge to Americans’ reproductive freedom.`\
 https://nytimes.com/2024/03/30/opinion/abortion-drug-supreme-court.html
-
-**Do Not Empower the Criminals in Haiti**\
-`Involving criminal leaders in Haiti’s next government is a dangerous and ludicrous idea.`\
-https://nytimes.com/2024/03/30/opinion/haiti-government-criminal.html
 
