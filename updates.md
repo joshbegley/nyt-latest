@@ -1,3 +1,7 @@
+**Why Are Older Americans Drinking So Much?**\
+`The pandemic played a role in increased consumption, but alcohol use among people 65 and older was climbing even before 2020.`\
+https://nytimes.com/2024/03/30/health/seniors-alcohol-consumption.html
+
 **Sports Leagues Bet on Gambling. Now They’re Facing Its Risks.**\
 `A string of gambling situations involving athletes leaves leagues in a tough spot.`\
 https://nytimes.com/2024/03/30/business/dealbook/sports-leagues-bet-on-gambling-now-theyre-facing-its-risks.html
