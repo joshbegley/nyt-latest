@@ -1,3 +1,7 @@
+**The ‘Night Government’ Expands Its Violent Reach in Rohingya Camps**\
+`Gunfights, kidnappings and homicides have become widespread in the refugee settlements in Bangladesh, as armed groups and criminal gangs have become more brazen.`\
+https://nytimes.com/2024/03/30/world/asia/bangladesh-rohingya-refugee-camp.html
+
 **Trump Shares Video Featuring Image of a Hog-Tied Biden**\
 `The social media post reflects the increasingly violent and personal attacks that Donald J. Trump has employed during the presidential campaign.`\
 https://nytimes.com/2024/03/30/us/politics/trump-biden-image.html
