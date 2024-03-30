@@ -1,3 +1,7 @@
+**In Cowboy Hats and Fringe, BeyHive Turns Out in Nashville for Beyoncé**\
+`On Friday night, in the capital of country music, the artist’s fans showed up in force to celebrate “Cowboy Carter.”`\
+https://nytimes.com/2024/03/30/style/beyonce-cowboy-carter-nashville.html
+
 **A Times Photographer Went on a Gaza Airdrop. Here’s What He Saw.**\
 `As humanitarian groups warn of a looming famine in northern Gaza, airdrops are playing a prominent role in efforts to deliver food and supplies, even if they are less efficient than delivery by truck.`\
 https://nytimes.com/2024/03/30/world/middleeast/gaza-aid-airdrop.html
