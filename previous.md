@@ -1,3 +1,11 @@
+**Storm Brings Heavy Rain and Potential Flooding to California**\
+`Los Angeles had received one to two inches of rain as of Saturday morning. Colorado, Nevada, Utah and Wyoming were also expected to get significant precipitation this weekend.`\
+https://nytimes.com/2024/03/30/us/california-storm-flooding-snow-forecast.html
+
+**Trump Rekindles Relationships With Key 2016 Donors**\
+`The former president met with the Mercers and others as he sought to keep pace financially with President Biden.`\
+https://nytimes.com/2024/03/30/us/politics/trumper-mercer-dinner.html
+
 **‘I Quit,’ Says Lizzo, Citing Online Criticism and Ridicule**\
 `The Grammy Award-winning singer said on Instagram that she was “starting to feel like the world doesn’t want me in it.”`\
 https://nytimes.com/2024/03/30/arts/lizzo-instagram-quit-music.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/30/world/middleeast/gaza-aid-airdrop.html
 **Members of a U.N. peacekeeping team are wounded in an explosion in Lebanon.**\
 `By Aaron Boxerman and Euan Ward`\
 https://nytimes.com/live/2024/03/30/world/israel-hamas-war-gaza-news/members-of-a-un-peacekeeping-team-are-wounded-in-an-explosion-in-lebanon
-
-**Why Are Older Americans Drinking So Much?**\
-`The pandemic played a role in increased consumption, but alcohol use among people 65 and older was climbing even before 2020.`\
-https://nytimes.com/2024/03/30/health/seniors-alcohol-consumption.html
-
-**Sports Leagues Bet on Gambling. Now They’re Facing Its Risks.**\
-`A string of gambling situations involving athletes leaves leagues in a tough spot.`\
-https://nytimes.com/2024/03/30/business/dealbook/sports-leagues-bet-on-gambling-now-theyre-facing-its-risks.html
 

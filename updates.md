@@ -1,3 +1,11 @@
+**Storm Brings Heavy Rain and Potential Flooding to California**\
+`Los Angeles had received one to two inches of rain as of Saturday morning. Colorado, Nevada, Utah and Wyoming were also expected to get significant precipitation this weekend.`\
+https://nytimes.com/2024/03/30/us/california-storm-flooding-snow-forecast.html
+
+**Trump Rekindles Relationships With Key 2016 Donors**\
+`The former president met with the Mercers and others as he sought to keep pace financially with President Biden.`\
+https://nytimes.com/2024/03/30/us/politics/trumper-mercer-dinner.html
+
 **‘I Quit,’ Says Lizzo, Citing Online Criticism and Ridicule**\
 `The Grammy Award-winning singer said on Instagram that she was “starting to feel like the world doesn’t want me in it.”`\
 https://nytimes.com/2024/03/30/arts/lizzo-instagram-quit-music.html
