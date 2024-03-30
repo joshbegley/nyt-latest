@@ -1,3 +1,7 @@
+**Charity that made first delivery of food to Gaza by sea sends a second boat with aid.**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/03/30/world/israel-hamas-war-gaza-news/charity-that-made-first-delivery-of-food-to-gaza-by-sea-sends-a-second-boat-with-aid
+
 **New York’s Trash Is Two Journalists’ Treasure**\
 `To understand a messy problem, The Times needed to look at the city from a different perspective, one where garbage sits at the foreground.`\
 https://nytimes.com/2024/03/30/insider/new-yorks-trash-is-two-journalists-treasure.html

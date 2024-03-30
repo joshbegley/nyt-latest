@@ -1,3 +1,7 @@
+**Charity that made first delivery of food to Gaza by sea sends a second boat with aid.**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/03/30/world/israel-hamas-war-gaza-news/charity-that-made-first-delivery-of-food-to-gaza-by-sea-sends-a-second-boat-with-aid
+
 **New York’s Trash Is Two Journalists’ Treasure**\
 `To understand a messy problem, The Times needed to look at the city from a different perspective, one where garbage sits at the foreground.`\
 https://nytimes.com/2024/03/30/insider/new-yorks-trash-is-two-journalists-treasure.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/business/dealbook/sports-leagues-bet-on-gambling-
 **Molly on Philosophy for Kids and British Suspense for Adults**\
 `Jean-Luc Nancy’s “God, Justice, Love, Beauty”; Barbara Vine’s “A Dark-Adapted Eye”`\
 https://nytimes.com/2024/03/30/books/review/read-like-wind-recommendations.html
-
-**Donald Trump, Blasphemous Bible Thumper**\
-`Trump is, as the nuns who taught me used to say, “a bold, brazen piece.”`\
-https://nytimes.com/2024/03/30/opinion/trump-god-religion-easter.html
 
