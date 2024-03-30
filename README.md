@@ -1,3 +1,7 @@
+**Woman Who Was Charged With Murder After Abortion Sues Texas Prosecutor**\
+`Lizelle Gonzalez was arrested after using an abortion pill in 2022, and her charge was since dropped. Now she is seeking $1 million in damages.`\
+https://nytimes.com/2024/03/30/us/texas-abortion-murder-charge-lawsuit.html
+
 **Turns of Phrase**\
 `Spencer Leach makes a lulu of a Sunday debut.`\
 https://nytimes.com/2024/03/30/crosswords/daily-puzzle-2024-03-31.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/arts/lizzo-instagram-quit-music.html
 **Second Load of Aid by Sea Bound for Gaza Departs Cyprus**\
 `World Central Kitchen, the charity founded by the chef José Andrés, said barges were carrying almost 400 tons of rice, pasta, flour, canned vegetables and proteins.`\
 https://nytimes.com/2024/03/30/world/middleeast/gaza-aid-ship-famine.html
-
-**New York’s Trash Is Two Journalists’ Treasure**\
-`To understand a messy problem, The Times needed to look at the city from a different perspective, one where garbage sits at the foreground.`\
-https://nytimes.com/2024/03/30/insider/new-yorks-trash-is-two-journalists-treasure.html
 
