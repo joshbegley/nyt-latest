@@ -1,3 +1,7 @@
+**‘Punjabi Wave’ Music Hits the Juno Awards Stage**\
+`Karan Aujla, 27, became the first Punjabi artist to win an award at the Junos as the genre expands its fan base in Canada.`\
+https://nytimes.com/2024/03/30/world/canada/juno-awards-karan-aujla.html
+
 **How Worlds Collided for Swifties Who Were Already Football Fans**\
 `The Taylor Swift-Travis Kelce romance has brought together two of the internet’s most engaged fan bases. What happens when you’re already in both?`\
 https://nytimes.com/2024/03/30/arts/music/swift-kelce-football-fans.html

@@ -1,3 +1,7 @@
+**‘Punjabi Wave’ Music Hits the Juno Awards Stage**\
+`Karan Aujla, 27, became the first Punjabi artist to win an award at the Junos as the genre expands its fan base in Canada.`\
+https://nytimes.com/2024/03/30/world/canada/juno-awards-karan-aujla.html
+
 **How Worlds Collided for Swifties Who Were Already Football Fans**\
 `The Taylor Swift-Travis Kelce romance has brought together two of the internet’s most engaged fan bases. What happens when you’re already in both?`\
 https://nytimes.com/2024/03/30/arts/music/swift-kelce-football-fans.html
@@ -33,8 +37,4 @@ https://nytimes.com/article/senate-races-2024-election.html
 **For Disney, Small Shareholders Loom Large in Boardroom Fight**\
 `Individuals hold as much as 40 percent of the company’s shares, and they may decide a proxy battle that is one of the most expensive in history.`\
 https://nytimes.com/2024/03/30/business/media/disney-shareholders-proxy-battle.html
-
-**Julia Louis-Dreyfus Thinks Youth Is Overrated**\
-`The actor wants you to start listening to older women — and not just because they’re guests on her podcast.`\
-https://nytimes.com/2024/03/30/well/wiser-than-me-podcast.html
 
