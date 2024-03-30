@@ -1,3 +1,11 @@
+**New York’s Trash Is Two Journalists’ Treasure**\
+`To understand a messy problem, The Times needed to look at the city from a different perspective, one where garbage sits at the foreground.`\
+https://nytimes.com/2024/03/30/insider/new-yorks-trash-is-two-journalists-treasure.html
+
+**An Altered Masterpiece**\
+`In 1914, an Easter section in The Times that showed paintings from the Metropolitan Museum was a sensation. But there was something off about Fra Angelico’s ‘The Crucifixion.’`\
+https://nytimes.com/2024/03/30/insider/an-altered-masterpiece.html
+
 **We’re Going Full Carrot Cake Mode**\
 `Are you team raisins or no raisins?`\
 https://nytimes.com/2024/03/30/dining/were-going-full-carrot-cake-mode.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/30/books/review/read-like-wind-recommendations.html
 **Donald Trump, Blasphemous Bible Thumper**\
 `Trump is, as the nuns who taught me used to say, “a bold, brazen piece.”`\
 https://nytimes.com/2024/03/30/opinion/trump-god-religion-easter.html
-
-**It’s Easter 2050. Here’s What American Religion Looks Like.**\
-`Alignments are shifting and will continue to do so.`\
-https://nytimes.com/2024/03/30/opinion/easter-religion-america.html
-
-**The Case for Saying ‘I Do’**\
-`As evidence grows about the benefits of tying the knot, married people are poised to become a minority.`\
-https://nytimes.com/2024/03/30/opinion/marriage-wealth-happiness.html
 
