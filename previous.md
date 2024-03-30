@@ -1,3 +1,7 @@
+**Watch Turkey’s Fabled Stork on Live Webcam**\
+`A 24-hour webcam allows stork lovers worldwide to watch Yaren, who returns to visit his human friend every year.`\
+https://nytimes.com/2024/03/30/world/europe/turkey-storks-webcam.html
+
 **Mourners to Gather at Funeral for N.Y.P.D Officer Killed in Line of Duty**\
 `The service for Officer Jonathan Diller is likely to draw large crowds of law enforcement officers mourning a colleague slain in a killing that has become a political flashpoint.`\
 https://nytimes.com/2024/03/30/nyregion/jonathan-diller-funeral-nypd.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/us/politics/trump-biden-image.html
 **A Stork, a Fisherman and Their Unlikely Bond Enchant Turkey**\
 `Thirteen years ago, a stork landed on a fisherman’s boat looking for food. He has come back every year since, drawing national attention.`\
 https://nytimes.com/2024/03/30/world/europe/turkey-stork-yilmaz-yaren.html
-
-**Dispute Over Conscription for Ultra-Orthodox Jews Presents New Threat to Netanyahu**\
-`Prime Minister Benjamin Netanyahu’s cabinet is divided about whether ultra-Orthodox Jews should be required to join the Israeli army.`\
-https://nytimes.com/2024/03/30/world/middleeast/israel-gaza-haredi-military-conscription.html
 

@@ -1,3 +1,7 @@
+**Watch Turkey’s Fabled Stork on Live Webcam**\
+`A 24-hour webcam allows stork lovers worldwide to watch Yaren, who returns to visit his human friend every year.`\
+https://nytimes.com/2024/03/30/world/europe/turkey-storks-webcam.html
+
 **Mourners to Gather at Funeral for N.Y.P.D Officer Killed in Line of Duty**\
 `The service for Officer Jonathan Diller is likely to draw large crowds of law enforcement officers mourning a colleague slain in a killing that has become a political flashpoint.`\
 https://nytimes.com/2024/03/30/nyregion/jonathan-diller-funeral-nypd.html
