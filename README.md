@@ -1,3 +1,7 @@
+**We’re Going Full Carrot Cake Mode**\
+`Are you team raisins or no raisins?`\
+https://nytimes.com/2024/03/30/dining/were-going-full-carrot-cake-mode.html
+
 **A Look at Washington State’s ‘Strippers’ Bill of Rights’**\
 `Signed into law by Gov. Jay Inslee, the legislation provides wide-ranging protections for adult dancers.`\
 https://nytimes.com/2024/03/30/us/strippers-bill-rights-washington.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/opinion/easter-religion-america.html
 **The Case for Saying ‘I Do’**\
 `As evidence grows about the benefits of tying the knot, married people are poised to become a minority.`\
 https://nytimes.com/2024/03/30/opinion/marriage-wealth-happiness.html
-
-**The Persistent Threat to Abortion Rights**\
-`A lawsuit that restricts a widely used abortion drug is unlikely to be the last challenge to Americans’ reproductive freedom.`\
-https://nytimes.com/2024/03/30/opinion/abortion-drug-supreme-court.html
 
