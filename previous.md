@@ -1,3 +1,7 @@
+**Crews at Site of Bridge Collapse Work on Removing First Piece of Debris**\
+`The governor of Maryland said that the search for missing victims would resume when the conditions for divers improve.`\
+https://nytimes.com/2024/03/30/us/bridge-collapse-crew-debris.html
+
 **In Cowboy Hats and Fringe, BeyHive Turns Out in Nashville for Beyoncé**\
 `On Friday night, in the capital of country music, the artist’s fans showed up in force to celebrate “Cowboy Carter.”`\
 https://nytimes.com/2024/03/30/style/beyonce-cowboy-carter-nashville.html
@@ -16,7 +20,7 @@ https://nytimes.com/2024/03/30/arts/lizzo-instagram-quit-music.html
 
 **Charity that made first delivery of food to Gaza by sea sends a second boat with aid.**\
 `By Gaya Gupta`\
-https://nytimes.com/live/2024/03/30/world/israel-hamas-war-gaza-news/charity-that-made-first-delivery-of-food-to-gaza-by-sea-sends-a-second-boat-with-aid
+https://nytimes.com/2024/03/30/world/gaza-aid-ship-famine.html
 
 **New York’s Trash Is Two Journalists’ Treasure**\
 `To understand a messy problem, The Times needed to look at the city from a different perspective, one where garbage sits at the foreground.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/dining/were-going-full-carrot-cake-mode.html
 **A Look at Washington State’s ‘Strippers’ Bill of Rights’**\
 `Signed into law by Gov. Jay Inslee, the legislation provides wide-ranging protections for adult dancers.`\
 https://nytimes.com/2024/03/30/us/strippers-bill-rights-washington.html
-
-**A Times Photographer Went on a Gaza Airdrop. Here’s What He Saw.**\
-`As humanitarian groups warn of a looming famine in northern Gaza, airdrops are playing a prominent role in efforts to deliver food and supplies, even if they are less efficient than delivery by truck.`\
-https://nytimes.com/2024/03/30/world/middleeast/gaza-aid-airdrop.html
 

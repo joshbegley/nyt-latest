@@ -1,3 +1,11 @@
+**Crews at Site of Bridge Collapse Work on Removing First Piece of Debris**\
+`The governor of Maryland said that the search for missing victims would resume when the conditions for divers improve.`\
+https://nytimes.com/2024/03/30/us/bridge-collapse-crew-debris.html
+
+**Charity that made first delivery of food to Gaza by sea sends a second boat with aid.**\
+`By Gaya Gupta`\
+https://nytimes.com/2024/03/30/world/gaza-aid-ship-famine.html
+
 **In Cowboy Hats and Fringe, BeyHive Turns Out in Nashville for Beyoncé**\
 `On Friday night, in the capital of country music, the artist’s fans showed up in force to celebrate “Cowboy Carter.”`\
 https://nytimes.com/2024/03/30/style/beyonce-cowboy-carter-nashville.html
