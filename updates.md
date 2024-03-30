@@ -1,3 +1,7 @@
+**Sports Leagues Bet on Gambling. Now They’re Facing Its Risks.**\
+`A string of gambling situations involving athletes leaves leagues in a tough spot.`\
+https://nytimes.com/2024/03/30/business/dealbook/sports-leagues-bet-on-gambling-now-theyre-facing-its-risks.html
+
 **Molly on Philosophy for Kids and British Suspense for Adults**\
 `Jean-Luc Nancy’s “God, Justice, Love, Beauty”; Barbara Vine’s “A Dark-Adapted Eye”`\
 https://nytimes.com/2024/03/30/books/review/read-like-wind-recommendations.html
