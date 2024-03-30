@@ -6,13 +6,13 @@ https://nytimes.com/2024/03/30/world/asia/bangladesh-rohingya-refugee-camp.html
 `The social media post reflects the increasingly violent and personal attacks that Donald J. Trump has employed during the presidential campaign.`\
 https://nytimes.com/2024/03/30/us/politics/trump-biden-image.html
 
-**Dispute Over Conscription for Ultra-Orthodox Jews Presents New Threat to Netanyahu**\
-`Prime Minister Benjamin Netanyahu’s cabinet is divided about whether ultra-Orthodox Jews should be required to join the Israeli army.`\
-https://nytimes.com/2024/03/30/world/middleeast/israel-gaza-haredi-military-conscription.html
-
 **A Stork, a Fisherman and Their Unlikely Bond Enchant Turkey**\
 `Thirteen years ago, a stork landed on a fisherman’s boat looking for food. He has come back every year since, drawing national attention.`\
 https://nytimes.com/2024/03/30/world/europe/turkey-stork-yilmaz-yaren.html
+
+**Dispute Over Conscription for Ultra-Orthodox Jews Presents New Threat to Netanyahu**\
+`Prime Minister Benjamin Netanyahu’s cabinet is divided about whether ultra-Orthodox Jews should be required to join the Israeli army.`\
+https://nytimes.com/2024/03/30/world/middleeast/israel-gaza-haredi-military-conscription.html
 
 **A 500-Year Old Chapel, 438 Solar Panels and an Architectural Squabble**\
 `King’s College Chapel in Cambridge is one of several British landmarks that have installed solar panels, gratifying climate campaigners and ruffling feathers among some traditionalists.`\
