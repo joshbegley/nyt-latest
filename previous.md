@@ -1,3 +1,7 @@
+**Turns of Phrase**\
+`Spencer Leach makes a lulu of a Sunday debut.`\
+https://nytimes.com/2024/03/30/crosswords/daily-puzzle-2024-03-31.html
+
 **Police Raid Peruvian President’s Home, Looking for Rolex Watches**\
 `Dina Boluarte, who has been seen wearing luxury watches and a $50,000 bracelet, is under investigation for breaking the country’s unlawful enrichment and asset disclosure laws.`\
 https://nytimes.com/2024/03/30/world/americas/boluarte-peru-police-raid-rolex.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/world/middleeast/gaza-aid-ship-famine.html
 **New York’s Trash Is Two Journalists’ Treasure**\
 `To understand a messy problem, The Times needed to look at the city from a different perspective, one where garbage sits at the foreground.`\
 https://nytimes.com/2024/03/30/insider/new-yorks-trash-is-two-journalists-treasure.html
-
-**An Altered Masterpiece**\
-`In 1914, an Easter section in The Times that showed paintings from the Metropolitan Museum was a sensation. But there was something off about Fra Angelico’s ‘The Crucifixion.’`\
-https://nytimes.com/2024/03/30/insider/an-altered-masterpiece.html
 
