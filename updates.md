@@ -1,3 +1,7 @@
+**A Times Photographer Went on a Gaza Airdrop. Here’s What He Saw.**\
+`As humanitarian groups warn of a looming famine in northern Gaza, airdrops are playing a prominent role in efforts to deliver food and supplies, even if they are less efficient than delivery by truck.`\
+https://nytimes.com/2024/03/30/world/middleeast/gaza-aid-airdrop.html
+
 **Storm Brings Heavy Rain and Potential Flooding to California**\
 `Los Angeles had received one to two inches of rain as of Saturday morning. Colorado, Nevada, Utah and Wyoming were also expected to get significant precipitation this weekend.`\
 https://nytimes.com/2024/03/30/us/california-storm-flooding-snow-forecast.html
