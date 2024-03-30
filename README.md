@@ -30,7 +30,7 @@ https://nytimes.com/2024/03/30/us/politics/trumper-mercer-dinner.html
 `The Grammy Award-winning singer said on Instagram that she was “starting to feel like the world doesn’t want me in it.”`\
 https://nytimes.com/2024/03/30/arts/lizzo-instagram-quit-music.html
 
-**Second Load of Aid by Sea for Gaza Departs Cyprus**\
+**Second Load of Aid by Sea Bound for Gaza Departs Cyprus**\
 `World Central Kitchen, the charity founded by the chef José Andrés, said barges were carrying almost 400 tons of rice, pasta, flour, canned vegetables and proteins.`\
 https://nytimes.com/2024/03/30/world/middleeast/gaza-aid-ship-famine.html
 
