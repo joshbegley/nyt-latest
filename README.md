@@ -1,3 +1,7 @@
+**AT&T Resets Millions of Passcodes After Customer Records Are Leaked**\
+`Nearly eight million customers and 65.4 million former account holders were affected by the data breach, the company said.`\
+https://nytimes.com/2024/03/30/business/att-passcodes-reset-data-breach.html
+
 **Crews at Site of Bridge Collapse Work on Removing First Piece of Debris**\
 `The governor of Maryland said that the search for missing victims would resume when the conditions for divers improve.`\
 https://nytimes.com/2024/03/30/us/bridge-collapse-crew-debris.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/insider/an-altered-masterpiece.html
 **We’re Going Full Carrot Cake Mode**\
 `Are you team raisins or no raisins?`\
 https://nytimes.com/2024/03/30/dining/were-going-full-carrot-cake-mode.html
-
-**A Look at Washington State’s ‘Strippers’ Bill of Rights’**\
-`Signed into law by Gov. Jay Inslee, the legislation provides wide-ranging protections for adult dancers.`\
-https://nytimes.com/2024/03/30/us/strippers-bill-rights-washington.html
 
