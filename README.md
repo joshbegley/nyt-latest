@@ -1,3 +1,7 @@
+**A Times Photographer Went on a Gaza Airdrop. Here’s What He Saw.**\
+`As humanitarian groups warn of a looming famine in northern Gaza, airdrops are playing a prominent role in efforts to deliver food and supplies.`\
+https://nytimes.com/2024/03/30/world/middleeast/gaza-aid-airdrop.html
+
 **Members of a U.N. peacekeeping team are wounded in an explosion in Lebanon.**\
 `By Aaron Boxerman and Euan Ward`\
 https://nytimes.com/live/2024/03/30/world/israel-hamas-war-gaza-news/members-of-a-un-peacekeeping-team-are-wounded-in-an-explosion-in-lebanon
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/opinion/abortion-drug-supreme-court.html
 **Do Not Empower the Criminals in Haiti**\
 `Involving criminal leaders in Haiti’s next government is a dangerous and ludicrous idea.`\
 https://nytimes.com/2024/03/30/opinion/haiti-government-criminal.html
-
-**When I Became a Birder, Almost Everything Else Fell Into Place**\
-`To find the birds, you have to know them.`\
-https://nytimes.com/2024/03/30/opinion/birding-spring-merlin-ebird.html
 
