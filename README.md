@@ -1,3 +1,7 @@
+**Members of a U.N. peacekeeping team are wounded in an explosion in Lebanon.**\
+`By Aaron Boxerman and Euan Ward`\
+https://nytimes.com/live/2024/03/30/world/israel-hamas-war-gaza-news/members-of-a-un-peacekeeping-team-are-wounded-in-an-explosion-in-lebanon
+
 **Why Are Older Americans Drinking So Much?**\
 `The pandemic played a role in increased consumption, but alcohol use among people 65 and older was climbing even before 2020.`\
 https://nytimes.com/2024/03/30/health/seniors-alcohol-consumption.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/opinion/haiti-government-criminal.html
 **When I Became a Birder, Almost Everything Else Fell Into Place**\
 `To find the birds, you have to know them.`\
 https://nytimes.com/2024/03/30/opinion/birding-spring-merlin-ebird.html
-
-**The Rising Nuclear Threat**\
-`Readers respond to the “At the Brink” series of Opinion articles.`\
-https://nytimes.com/2024/03/30/opinion/nuclear-threat.html
 
