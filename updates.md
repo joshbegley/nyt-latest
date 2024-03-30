@@ -1,4 +1,8 @@
 **Corporate Polish Meets Partisan Reality for NBC’s News Chief**\
+`Cesar Conde, a leader with an M.B.A. but a limited journalism background, is facing the toughest scrutiny of his career.`\
+https://nytimes.com/2024/03/29/business/media/nbc-news-cesar-conde.html
+
+**Corporate Polish Meets Partisan Reality for NBC’s News Chief**\
 `Cesar Conde, a leader with an M.B.A. but limited journalism background, is facing the toughest scrutiny of his career.`\
 https://nytimes.com/2024/03/29/business/media/nbc-news-cesar-conde.html
 
