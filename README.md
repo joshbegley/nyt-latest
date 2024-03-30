@@ -1,3 +1,7 @@
+**How Worlds Collided for Swifties Who Were Already Football Fans**\
+`The Taylor Swift-Travis Kelce romance has brought together two of the internet’s most engaged fan bases. What happens when you’re already in both?`\
+https://nytimes.com/2024/03/30/arts/music/swift-kelce-football-fans.html
+
 **Revisiting Florida 2000 and the Butterfly Effect**\
 `The evidence is strong that Al Gore would have won had it not been for an infamous ballot design in Palm Beach County.`\
 https://nytimes.com/2024/03/30/upshot/florida-2000-gore-ballot.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/business/media/disney-shareholders-proxy-battle.h
 **Julia Louis-Dreyfus Thinks Youth Is Overrated**\
 `The actor wants you to start listening to older women — and not just because they’re guests on her podcast.`\
 https://nytimes.com/2024/03/30/well/wiser-than-me-podcast.html
-
-**This Southern Delicacy Leaves Much to Chew On**\
-`In the South, many Black families have made and eaten chew bread — a dessert similar to a blondie — for generations.`\
-https://nytimes.com/2024/03/30/dining/chew-bread-southern-delicacy.html
 
