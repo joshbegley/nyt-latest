@@ -1,3 +1,7 @@
+**Second Load of Aid by Sea Bound for Gaza Departs Cyprus**\
+`World Central Kitchen, the charity founded by the chef José Andrés, said barges were carrying almost 400 tons of rice, pasta, flour, canned vegetables and proteins.`\
+https://nytimes.com/2024/03/30/world/middleeast/gaza-aid-ship-famine.html
+
 **Turns of Phrase**\
 `Spencer Leach makes a lulu of a Sunday debut.`\
 https://nytimes.com/2024/03/30/crosswords/daily-puzzle-2024-03-31.html
