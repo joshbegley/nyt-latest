@@ -1,3 +1,7 @@
+**Molly on Philosophy for Kids and British Suspense for Adults**\
+`Jean-Luc Nancy’s “God, Justice, Love, Beauty”; Barbara Vine’s “A Dark-Adapted Eye”`\
+https://nytimes.com/2024/03/30/books/review/read-like-wind-recommendations.html
+
 **Donald Trump, Blasphemous Bible Thumper**\
 `Trump is, as the nuns who taught me used to say, “a bold, brazen piece.”`\
 https://nytimes.com/2024/03/30/opinion/trump-god-religion-easter.html
