@@ -1,3 +1,7 @@
+**In Praise of Tiny Triumphs**\
+`If full-on spring cleaning feels intimidating, why not focus instead on tasks that are far less ambitious but no less satisfying?`\
+https://nytimes.com/2024/03/30/briefing/in-praise-of-tiny-triumphs.html
+
 **‘Punjabi Wave’ Music Hits the Juno Awards Stage**\
 `Karan Aujla, 27, became the first Punjabi artist to win an award at the Junos as the genre expands its fan base in Canada.`\
 https://nytimes.com/2024/03/30/world/canada/juno-awards-karan-aujla.html
