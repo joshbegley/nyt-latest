@@ -1,3 +1,7 @@
+**How Worlds Collided for Swifties Who Were Already Football Fans**\
+`The Taylor Swift-Travis Kelce romance has brought together two of the internet’s most engaged fan bases. What happens when you’re already in both?`\
+https://nytimes.com/2024/03/30/arts/music/swift-kelce-football-fans.html
+
 **Revisiting Florida 2000 and the Butterfly Effect**\
 `The evidence is strong that Al Gore would have won had it not been for an infamous ballot design in Palm Beach County.`\
 https://nytimes.com/2024/03/30/upshot/florida-2000-gore-ballot.html
