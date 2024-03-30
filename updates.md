@@ -1,3 +1,7 @@
+**We’re Going Full Carrot Cake Mode**\
+`Are you team raisins or no raisins?`\
+https://nytimes.com/2024/03/30/dining/were-going-full-carrot-cake-mode.html
+
 **A Look at Washington State’s ‘Strippers’ Bill of Rights’**\
 `Signed into law by Gov. Jay Inslee, the legislation provides wide-ranging protections for adult dancers.`\
 https://nytimes.com/2024/03/30/us/strippers-bill-rights-washington.html
