@@ -1,3 +1,7 @@
+**In Praise of Tiny Triumphs**\
+`If full-on spring cleaning feels intimidating, why not focus instead on tasks that are far less ambitious but no less satisfying?`\
+https://nytimes.com/2024/03/30/briefing/in-praise-of-tiny-triumphs.html
+
 **‘Punjabi Wave’ Music Hits the Juno Awards Stage**\
 `Karan Aujla, 27, became the first Punjabi artist to win an award at the Junos as the genre expands its fan base in Canada.`\
 https://nytimes.com/2024/03/30/world/canada/juno-awards-karan-aujla.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/business/work-is-mostly-work-not-your-soapbox.htm
 **10 Senate Races to Watch in 2024**\
 `With Democrats holding a one-seat majority and defending seats from Maryland to Arizona, control of the Senate could easily flip to the G.O.P.`\
 https://nytimes.com/article/senate-races-2024-election.html
-
-**For Disney, Small Shareholders Loom Large in Boardroom Fight**\
-`Individuals hold as much as 40 percent of the company’s shares, and they may decide a proxy battle that is one of the most expensive in history.`\
-https://nytimes.com/2024/03/30/business/media/disney-shareholders-proxy-battle.html
 
