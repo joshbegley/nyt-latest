@@ -1,3 +1,7 @@
+**Trump Shares Video Featuring Image of a Hog-Tied Biden**\
+`The social media post reflects the increasingly violent and personal attacks that Donald J. Trump has employed during the presidential campaign.`\
+https://nytimes.com/2024/03/30/us/politics/trump-biden-image.html
+
 **A Stork, a Fisherman and Their Unlikely Bond Enchant Turkey**\
 `Thirteen years ago, a stork landed on a fisherman’s boat looking for food. He has come back every year since, drawing national attention.`\
 https://nytimes.com/2024/03/30/world/europe/turkey-stork-yilmaz-yaren.html
