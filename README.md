@@ -1,3 +1,7 @@
+**A Close-Up View of the Baltimore Bridge Collapse**\
+`From roughly 100 yards away, the site of one of the worst bridge collapses in the country’s history is haunting.`\
+https://nytimes.com/2024/03/30/us/view-ship-key-bridge-baltimore.html
+
 **Chance Perdomo, Star of ‘Chilling Adventures of Sabrina,’ Dies at 27**\
 `Mr. Perdomo, who died in a motorcycle accident on Friday, played the pansexual warlock Ambrose Spellman in the Netflix series.`\
 https://nytimes.com/2024/03/30/arts/television/chance-perdomo-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/us/california-storm-flooding-snow-forecast.html
 **Trump Rekindles Relationships With Key 2016 Donors**\
 `The former president met with the Mercers and others as he sought to keep pace financially with President Biden.`\
 https://nytimes.com/2024/03/30/us/politics/trumper-mercer-dinner.html
-
-**‘I Quit,’ Says Lizzo, Citing Online Criticism and Ridicule**\
-`The Grammy Award-winning singer said on Instagram that she was “starting to feel like the world doesn’t want me in it.”`\
-https://nytimes.com/2024/03/30/arts/lizzo-instagram-quit-music.html
 
