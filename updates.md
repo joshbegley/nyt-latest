@@ -1,3 +1,7 @@
+**Life at Guantánamo Bay**\
+`Inside a new season of “Serial.”`\
+https://nytimes.com/2024/03/31/briefing/serial-podcast-guantanamo-bay.html
+
 **Aid is slow to enter Gaza, despite top U.N. court ruling demanding ‘unhindered’ access.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/aid-is-slow-to-enter-gaza-despite-top-un-court-ruling-demanding-unhindered-access
