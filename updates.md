@@ -1,3 +1,7 @@
+**‘Saturday Night Live’ Presents Trump Bibles**\
+`Ramy Youssef hosted this weekend’s episode, which also spoofed immigrant fathers and Flaco the owl.`\
+https://nytimes.com/2024/03/31/arts/television/saturday-night-live-ramy-youssef.html
+
 **Elite College Admissions Have Turned Students Into Brands**\
 `Teenagers should not have to commoditize themselves for the sake of getting into an elite school.`\
 https://nytimes.com/2024/03/31/opinion/college-admissions-consultant-branding.html
