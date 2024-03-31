@@ -1,3 +1,7 @@
+**‘Saturday Night Live’ Presents Trump Bibles**\
+`Ramy Youssef hosted this weekend’s episode, which also spoofed immigrant fathers and Flaco the owl.`\
+https://nytimes.com/2024/03/31/arts/television/saturday-night-live-ramy-youssef.html
+
 **Elite College Admissions Have Turned Students Into Brands**\
 `Teenagers should not have to commoditize themselves for the sake of getting into an elite school.`\
 https://nytimes.com/2024/03/31/opinion/college-admissions-consultant-branding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/us/baltimore-ship-crew-key-bridge.html
 **A Close-Up View of the Baltimore Bridge Collapse**\
 `From roughly 100 yards away, the site of one of the worst bridge collapses in the country’s history is haunting.`\
 https://nytimes.com/2024/03/30/us/view-ship-key-bridge-baltimore.html
-
-**Chance Perdomo, Star of ‘Chilling Adventures of Sabrina,’ Dies at 27**\
-`Mr. Perdomo, who died in a motorcycle accident on Friday, played the pansexual warlock Ambrose Spellman in the Netflix series.`\
-https://nytimes.com/2024/03/30/arts/television/chance-perdomo-dead.html
 
