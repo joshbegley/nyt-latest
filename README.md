@@ -1,3 +1,7 @@
+**Displaced Palestinian Christians marked Easter in Gaza’s only Catholic church.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/displaced-palestinian-christians-marked-easter-in-gazas-only-catholic-church
+
 **Cesar Chavez’s Family Criticizes R.F.K. Jr. for His Chavez Day Event**\
 `The Kennedy family has a long history of friendship and political partnership with the Chavez family.`\
 https://nytimes.com/2024/03/31/us/politics/rfk-chavez.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/31/us/politics/defamation-lawsuits-michael-gottlieb.
 **Lorraine Graves, Pioneering Harlem Ballerina, Dies at 66**\
 `Tall and commanding, she dazzled audiences as a principal dancer for the groundbreaking Dance Theater of Harlem for nearly two decades.`\
 https://nytimes.com/2024/03/31/arts/music/lorraine-graves-pioneering-harlem-ballerina-dies-at-66.html
-
-**Esther Coopersmith, Washington Hostess and Diplomat, Dies at 94**\
-`A place at her dinner tables, which sat 75, provided access to networks of money, influence and power across cultural and political divides.`\
-https://nytimes.com/2024/03/31/us/esther-coopersmith-dead.html
 
