@@ -1,3 +1,11 @@
+**Corrections: March 31, 2024**\
+`Corrections that appeared in print on Sunday, March 31, 2024.`\
+https://nytimes.com/2024/03/30/corrections/corrections-march-31-2024.html
+
+**Quotation of the Day: Gylan Kain, 81, Founder Of the Last Poets Group and a Progenitor of Rap**\
+`Quotation of the Day for Sunday, March 31, 2024.`\
+https://nytimes.com/2024/03/30/pageoneplus/quotation-of-the-day-gylan-kain-81-founder-of-the-last-poets-group-and-a-progenitor-of-rap.html
+
 **Tangled in Steel With No Way Out: How the Crew Stuck in Baltimore Is Faring**\
 `Twenty-two seafarers from India find themselves not only trapped in the ship that struck the Francis Scott Key Bridge, but also in an unexpected spotlight.`\
 https://nytimes.com/2024/03/30/us/baltimore-ship-crew-key-bridge.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/30/business/att-passcodes-reset-data-breach.html
 **Crews at Site of Bridge Collapse Work on Removing First Piece of Debris**\
 `The governor of Maryland said that the search for missing victims would resume when the conditions for divers improve.`\
 https://nytimes.com/2024/03/30/us/bridge-collapse-crew-debris.html
-
-**In Cowboy Hats and Fringe, BeyHive Turns Out in Nashville for Beyoncé**\
-`On Friday night, in the capital of country music, the artist’s fans showed up in force to celebrate “Cowboy Carter.”`\
-https://nytimes.com/2024/03/30/style/beyonce-cowboy-carter-nashville.html
-
-**Storm Brings Heavy Rain and Potential Flooding to California**\
-`Los Angeles had received one to two inches of rain as of Saturday morning. Colorado, Nevada, Utah and Wyoming were also expected to get significant precipitation this weekend.`\
-https://nytimes.com/2024/03/30/us/california-storm-flooding-snow-forecast.html
 
