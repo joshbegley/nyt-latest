@@ -1,3 +1,7 @@
+**At the Easter Parade, a Symphony of Flowers, Eggs and Decked-Out Dogs**\
+`Fifth Avenue in Manhattan was awash in color during the annual Easter Parade and Bonnet Festival.`\
+https://nytimes.com/2024/03/31/nyregion/new-york-easter-parade.html
+
 **Many protesters were saying it was time for Netanyahu to step down.**\
 `By Adam Rasgon and Aaron Boxerman`\
 https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/many-protesters-were-saying-it-was-time-for-netanyahu-to-step-down
