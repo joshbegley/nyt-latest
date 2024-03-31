@@ -23,7 +23,7 @@ https://nytimes.com/2024/03/31/opinion/donald-trump-dune-savior.html
 https://nytimes.com/2024/03/31/opinion/trump-fundraising.html
 
 **Cease-fire negotiations are set to resume in Cairo.**\
-`By Vivian Yee, Adam Rasgon and Aaron Boxerman`\
+`By Adam Rasgon, Aaron Boxerman and Vivian Yee`\
 https://nytimes.com/live/2024/03/30/world/israel-hamas-war-gaza-news/cease-fire-negotiations-are-expected-to-resume-in-cairo
 
 **Aid is slow to enter Gaza, despite top U.N. court ruling demanding ‘unhindered’ access.**\
