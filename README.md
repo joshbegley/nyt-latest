@@ -34,7 +34,7 @@ https://nytimes.com/2024/03/31/arts/music/beyonce-cowboy-carter-review.html
 `A New Jersey ballot protest mirrors those in several other states.`\
 https://nytimes.com/live/2024/03/31/us/trump-biden-election/uncommitted-biden-gaza
 
-**Netanyahu will undergo hernia surgery amid mounting pressure on his government.**\
-`The`\
+**Netanyahu Will Undergo Hernia Surgery Amid Mounting Pressure on His Government**\
+`Hours before his scheduled procedure, Mr. Netanyahu met in Jerusalem with families of soldiers held captive in Gaza.`\
 https://nytimes.com/2024/03/31/world/middleeast/netanyahu-hernia-surgery.html
 
