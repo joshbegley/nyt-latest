@@ -1,3 +1,7 @@
+**Protesters Call for Netanyahu to Leave Office**\
+`The demonstrators filled the streets outside of the Knesset, Israel’s parliament, amid growing calls for early elections.`\
+https://nytimes.com/2024/03/31/world/middleeast/many-protesters-were-saying-it-was-time-for-netanyahu-to-step-down.html
+
 **Cesar Chavez’s Family Criticizes R.F.K. Jr. for His Chavez Day Event**\
 `The Kennedy family has a long history of friendship and political partnership with the Chavez family.`\
 https://nytimes.com/2024/03/31/us/politics/rfk-chavez.html
