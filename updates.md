@@ -1,3 +1,7 @@
+**Obsessive to a Fault**\
+`Alan Arbesfeld gives his assent.`\
+https://nytimes.com/2024/03/31/crosswords/daily-puzzle-2024-04-01.html
+
 **Protesters Call for Netanyahu to Leave Office**\
 `The demonstrators filled the streets outside of the Knesset, Israel’s parliament, amid growing calls for early elections.`\
 https://nytimes.com/2024/03/31/world/middleeast/netanyahu-protests-israel.html
