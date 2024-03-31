@@ -1,3 +1,7 @@
+**Aid is slow to enter Gaza, despite top U.N. court ruling demanding ‘unhindered’ access.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/aid-is-slow-to-enter-gaza-despite-top-un-court-ruling-demanding-unhindered-access
+
 **‘Replace him’: Thousands rally against Netanyahu’s government in Tel Aviv.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/replace-him-thousands-rally-against-netanyahus-government-in-tel-aviv
