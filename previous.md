@@ -6,9 +6,9 @@ https://nytimes.com/2024/03/31/crosswords/daily-puzzle-2024-04-01.html
 `Representative Tim Walberg denied that he was advocating the use of nuclear weapons and said that his town hall remarks were taken out of context.`\
 https://nytimes.com/2024/03/31/us/politics/tim-walberg-gaza-nagasaki-hiroshima.html
 
-**Displaced Palestinian Christians marked Easter in Gaza’s only Catholic church.**\
+**Displaced Palestinian Christians Mark Easter in Gaza’s Only Catholic Church**\
 `By Anushka Patil`\
-https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/displaced-palestinian-christians-marked-easter-in-gazas-only-catholic-church
+https://nytimes.com/2024/03/31/world/middleeast/palestinians-easter-catholic-church.html
 
 **Cesar Chavez’s Family Criticizes R.F.K. Jr. for His Chavez Day Event**\
 `The Kennedy family has a long history of friendship and political partnership with the Chavez family.`\

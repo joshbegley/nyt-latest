@@ -1,3 +1,7 @@
+**Displaced Palestinian Christians Mark Easter in Gaza’s Only Catholic Church**\
+`By Anushka Patil`\
+https://nytimes.com/2024/03/31/world/middleeast/palestinians-easter-catholic-church.html
+
 **Obsessive to a Fault**\
 `Alan Arbesfeld gives his assent.`\
 https://nytimes.com/2024/03/31/crosswords/daily-puzzle-2024-04-01.html
