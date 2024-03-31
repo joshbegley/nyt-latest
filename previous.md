@@ -2,7 +2,7 @@
 `A New Jersey ballot protest mirrors those in several other states.`\
 https://nytimes.com/live/2024/03/31/us/trump-biden-election/uncommitted-biden-gaza
 
-**Netanyahu will undergo hernia surgery at a critical moment.**\
+**Netanyahu will undergo hernia surgery at an important moment.**\
 `The`\
 https://nytimes.com/2024/03/31/world/middleeast/netanyahu-hernia-surgery.html
 
