@@ -1,4 +1,4 @@
-**Cease-fire negotiations are expected to resume in Cairo.**\
+**Cease-fire negotiations are set to resume in Cairo.**\
 `By Vivian Yee and Adam Rasgon`\
 https://nytimes.com/live/2024/03/30/world/israel-hamas-war-gaza-news/cease-fire-negotiations-are-expected-to-resume-in-cairo
 
