@@ -1,3 +1,19 @@
+**You Don’t Need to Freak Out About Boeing Planes (but Boeing Sure Does)**\
+`Commercial aviation remains miraculously safe, far more so than all the alternative ways of traveling.`\
+https://nytimes.com/2024/03/31/opinion/boeing-plane-safety.html
+
+**King Charles, Hoping to Reassure Public, Attends Easter Service**\
+`The family has been thrown off balance by multiple health crises, including cancer diagnoses for the king and Catherine, Princess of Wales. She and her husband, Prince William, did not appear.`\
+https://nytimes.com/2024/03/31/world/europe/king-charles-easter.html
+
+**Trump Is No Savior**\
+`It is fitting that the biggest movie in the world this year is the story of a messiah gone wrong.`\
+https://nytimes.com/2024/03/31/opinion/donald-trump-dune-savior.html
+
+**Trump Is Financially Ruining the Republican Party**\
+`How do you build a strong party when your money is also going to a candidate’s legal bills?`\
+https://nytimes.com/2024/03/31/opinion/trump-fundraising.html
+
 **Cease-fire negotiations are set to resume in Cairo.**\
 `By Vivian Yee and Adam Rasgon`\
 https://nytimes.com/live/2024/03/30/world/israel-hamas-war-gaza-news/cease-fire-negotiations-are-expected-to-resume-in-cairo

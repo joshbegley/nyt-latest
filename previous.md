@@ -1,3 +1,19 @@
+**You Don’t Need to Freak Out About Boeing Planes (but Boeing Sure Does)**\
+`Commercial aviation remains miraculously safe, far more so than all the alternative ways of traveling.`\
+https://nytimes.com/2024/03/31/opinion/boeing-plane-safety.html
+
+**King Charles, Hoping to Reassure Public, Attends Easter Service**\
+`The family has been thrown off balance by multiple health crises, including cancer diagnoses for the king and Catherine, Princess of Wales. She and her husband, Prince William, did not appear.`\
+https://nytimes.com/2024/03/31/world/europe/king-charles-easter.html
+
+**Trump Is No Savior**\
+`It is fitting that the biggest movie in the world this year is the story of a messiah gone wrong.`\
+https://nytimes.com/2024/03/31/opinion/donald-trump-dune-savior.html
+
+**Trump Is Financially Ruining the Republican Party**\
+`How do you build a strong party when your money is also going to a candidate’s legal bills?`\
+https://nytimes.com/2024/03/31/opinion/trump-fundraising.html
+
 **Cease-fire negotiations are set to resume in Cairo.**\
 `By Vivian Yee and Adam Rasgon`\
 https://nytimes.com/live/2024/03/30/world/israel-hamas-war-gaza-news/cease-fire-negotiations-are-expected-to-resume-in-cairo
@@ -21,20 +37,4 @@ https://nytimes.com/2024/03/31/magazine/hollywood-movies-race-diversity.html
 **How Street Art Is Gentrifying Neighborhoods**\
 `Brands, developers and even city officials are embracing the global appeal of street art, but the boom comes with questions about preserving a neighborhood’s cultural cachet.`\
 https://nytimes.com/video/business/economy/100000009381926/graffiti-gentrification-london-berlin.html
-
-**Why Did This Guy Put a Song About Me on Spotify?**\
-`The answer involves a remarkable — and lucrative, and ridiculous — scheme to game the way we find music today.`\
-https://nytimes.com/2024/03/31/magazine/spotify-matt-farley.html
-
-**Ewan McGregor and Mary Elizabeth Winstead Go From ‘Fargo’ to ‘Moscow’**\
-`The actors, who met while filming “Fargo” in 2017, are now married and have reunited onscreen in “A Gentleman in Moscow.”`\
-https://nytimes.com/2024/03/31/arts/television/a-gentleman-in-moscow-ewan-mcgregor-mary-elizabeth-winstead.html
-
-**Watch These Cute Videos of Babies (and Learn Something, Too)**\
-`A social media account features smiley toddlers, while also offering positive lessons about child development.`\
-https://nytimes.com/2024/03/31/us/dan-wuori-child-development-videos.html
-
-**Boots, Backpack and a Ubiquitous App**\
-`Fourteen years and one Apple App of the Year award in, AllTrails has become something rare: a tool that works for both experts and newbies.`\
-https://nytimes.com/2024/03/31/style/alltrails.html
 
