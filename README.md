@@ -2,8 +2,8 @@
 `A New Jersey ballot protest mirrors those in several other states.`\
 https://nytimes.com/2024/03/31/us/politics/uncommitted-biden-gaza.html
 
-**Netanyahu to Undergo Hernia Surgery at Critical Moment**\
-`The Israeli prime minister will be under full anesthesia, and the justice minister will temporarily take over his duties, his office said.`\
+**Netanyahu will undergo hernia surgery at a critical moment.**\
+`The`\
 https://nytimes.com/2024/03/31/world/middleeast/netanyahu-hernia-surgery.html
 
 **In a strong Easter message, the pope calls for a cease-fire in Gaza.**\
