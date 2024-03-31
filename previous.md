@@ -1,3 +1,7 @@
+**Chance Perdomo, Star of ‘Chilling Adventures of Sabrina,’ Dies at 27**\
+`Mr. Perdomo, who died in a motorcycle accident on Friday, played the pansexual warlock Ambrose Spellman in the Netflix series.`\
+https://nytimes.com/2024/03/30/arts/television/chance-perdomo-dead.html
+
 **Woman Who Was Charged With Murder After Abortion Sues Texas Prosecutor**\
 `Lizelle Gonzalez was arrested after using an abortion pill in 2022, and her charge was since dropped. Now she is seeking $1 million in damages.`\
 https://nytimes.com/2024/03/30/us/texas-abortion-murder-charge-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/us/politics/trumper-mercer-dinner.html
 **‘I Quit,’ Says Lizzo, Citing Online Criticism and Ridicule**\
 `The Grammy Award-winning singer said on Instagram that she was “starting to feel like the world doesn’t want me in it.”`\
 https://nytimes.com/2024/03/30/arts/lizzo-instagram-quit-music.html
-
-**Second Load of Aid by Sea Bound for Gaza Departs Cyprus**\
-`World Central Kitchen, the charity founded by the chef José Andrés, said barges were carrying almost 400 tons of rice, pasta, flour, canned vegetables and proteins.`\
-https://nytimes.com/2024/03/30/world/middleeast/gaza-aid-ship-famine.html
 
