@@ -1,3 +1,7 @@
+**At the Easter Parade, a Symphony of Flowers, Eggs and Decked-Out Dogs**\
+`Fifth Avenue in Manhattan was awash in color during the annual Easter Parade and Bonnet Festival.`\
+https://nytimes.com/2024/03/31/nyregion/new-york-easter-parade.html
+
 **Many protesters were saying it was time for Netanyahu to step down.**\
 `By Adam Rasgon and Aaron Boxerman`\
 https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/many-protesters-were-saying-it-was-time-for-netanyahu-to-step-down
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/31/us/trump-biden-election/uncommitted-biden-ga
 **Netanyahu will undergo hernia surgery at an important moment.**\
 `The`\
 https://nytimes.com/2024/03/31/world/middleeast/netanyahu-hernia-surgery.html
-
-**In a strong Easter message, the pope calls for a cease-fire in Gaza.**\
-`By Jason Horowitz`\
-https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/in-a-strong-easter-message-the-pope-calls-for-a-cease-fire-in-gaza
 
