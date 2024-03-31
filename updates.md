@@ -1,3 +1,7 @@
+**Cease-fire negotiations are set to resume in Cairo.**\
+`By Vivian Yee, Adam Rasgon and Aaron Boxerman`\
+https://nytimes.com/live/2024/03/30/world/israel-hamas-war-gaza-news/cease-fire-negotiations-are-expected-to-resume-in-cairo
+
 **Life at Guantánamo Bay**\
 `Inside a new season of “Serial.”`\
 https://nytimes.com/2024/03/31/briefing/serial-podcast-guantanamo-bay.html
