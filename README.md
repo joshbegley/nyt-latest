@@ -1,3 +1,7 @@
+**Daniel C. Lynch, Founder of Major Computer Exhibition, Dies at 82**\
+`After working on the earliest version of the internet, he saw its potential and founded a conference on computer networking equipment.`\
+https://nytimes.com/2024/03/31/technology/daniel-c-lynch-dead.html
+
 **At the Easter Parade, a Symphony of Flowers, Eggs and Decked-Out Dogs**\
 `Fifth Avenue in Manhattan was awash in color during the annual Easter Parade and Bonnet Festival.`\
 https://nytimes.com/2024/03/31/nyregion/new-york-easter-parade.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/31/arts/music/beyonce-cowboy-carter-review.html
 **Angry over Gaza, Democratic activists in New Jersey encourage ‘uncommitted’ vote.**\
 `A New Jersey ballot protest mirrors those in several other states.`\
 https://nytimes.com/live/2024/03/31/us/trump-biden-election/uncommitted-biden-gaza
-
-**Netanyahu Will Undergo Hernia Surgery Amid Mounting Pressure on His Government**\
-`Hours before his scheduled procedure, Mr. Netanyahu met in Jerusalem with families of soldiers held captive in Gaza.`\
-https://nytimes.com/2024/03/31/world/middleeast/netanyahu-hernia-surgery.html
 
