@@ -1,3 +1,7 @@
+**Protests Against Netanyahu Intensify as Cease-Fire Talks Resume**\
+`Thousands have taken to the streets of Israel to demand that Prime Minister Benjamin Netanyahu be replaced.`\
+https://nytimes.com/2024/03/31/world/middleeast/netanyahu-israel-protests-cease-fire.html
+
 **New York City’s Easter Parade, Where Spring’s in Full Bloom**\
 `Spectators showed up to celebrate the season.`\
 https://nytimes.com/2024/03/31/style/new-york-citys-easter-parade-where-springs-in-full-bloom.html
