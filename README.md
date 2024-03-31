@@ -1,3 +1,7 @@
+**Protests Against Netanyahu Intensify as Cease-Fire Talks Resume**\
+`Thousands have taken to the streets of Israel to demand that Prime Minister Benjamin Netanyahu be replaced.`\
+https://nytimes.com/2024/03/31/world/middleeast/netanyahu-israel-protests-cease-fire.html
+
 **New York City’s Easter Parade, Where Spring’s in Full Bloom**\
 `Spectators showed up to celebrate the season.`\
 https://nytimes.com/2024/03/31/style/new-york-citys-easter-parade-where-springs-in-full-bloom.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/31/nyregion/new-jersey-ballot-ruling-democrats.html
 **Buttigieg Calls on Congress for More Money to Collapsed Baltimore Bridge**\
 `Mr. Buttigieg, the transportation secretary, was joined by the Baltimore mayor and Maryland governor in describing the collapse as a matter of national importance.`\
 https://nytimes.com/2024/03/31/us/politics/buttigieg-congress-baltimore-bridge.html
-
-**Daniel C. Lynch, Founder of Major Computer Exhibition, Dies at 82**\
-`After working on the earliest version of the internet, he saw its potential and founded a conference on computer networking equipment.`\
-https://nytimes.com/2024/03/31/technology/daniel-c-lynch-dead.html
 
