@@ -1,3 +1,7 @@
+**‘Replace him’: Thousands rally against Netanyahu’s government in Tel Aviv.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/replace-him-thousands-rally-against-netanyahus-government-in-tel-aviv
+
 **You Don’t Need to Freak Out About Boeing Planes (but Boeing Sure Does)**\
 `Commercial aviation remains miraculously safe, far more so than all the alternative ways of traveling.`\
 https://nytimes.com/2024/03/31/opinion/boeing-plane-safety.html
