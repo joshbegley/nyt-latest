@@ -1,3 +1,15 @@
+**As Graffiti Moves From Eyesore to Amenity, Landlords Try to Cash In**\
+`Brands, developers and even city officials are embracing the global appeal of street art, but the boom comes with questions about preserving a neighborhood’s cultural cachet.`\
+https://nytimes.com/2024/03/31/business/graffiti-real-estate-gentrification.html
+
+**6 Y.A. Novels That Open Conversations About Teen Chronic Illness**\
+`Maya Van Wagenen, the author of “Chronically Dolores,” shares her favorite young adult books that authentically represent being a teenager living with illness.`\
+https://nytimes.com/2024/03/31/books/review/ya-books-chronic-illness-novel.html
+
+**A Warhol Superstar, but Never a Star**\
+`Cynthia Carr’s compassionate biography chronicles the brief, poignant life of the transgender actress Candy Darling, whose “very existence was radical.”`\
+https://nytimes.com/2024/03/31/books/review/candy-darling-cynthia-carr.html
+
 **Accused Subway Shover Found Little Help in New York’s Chaotic Shelters**\
 `Carlton McPherson had been placed by New York City in a specialized homeless shelter for people with serious mental illness. It was not enough.`\
 https://nytimes.com/2024/03/31/nyregion/nyc-subway-shoving-mental-illness.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/31/crosswords/wordle-review.html
 **‘I Discovered That I Had Left My Tuxedo Shirt at Home’**\
 `A desperate measure at a desperate moment, a rainy day interview and more reader tales from New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2024/03/31/nyregion/metropolitan-diary.html
-
-**‘Saturday Night Live’ Presents Trump Bibles**\
-`Ramy Youssef hosted this weekend’s episode, which also spoofed immigrant fathers and Flaco the owl.`\
-https://nytimes.com/2024/03/31/arts/television/saturday-night-live-ramy-youssef.html
-
-**Elite College Admissions Have Turned Students Into Brands**\
-`Teenagers should not have to commoditize themselves for the sake of getting into an elite school.`\
-https://nytimes.com/2024/03/31/opinion/college-admissions-consultant-branding.html
-
-**A Russian Defector’s Killing Raises Specter of Hit Squads**\
-`The death in Spain of Maksim Kuzminov, a pilot who delivered a helicopter and secret documents to Ukraine, has raised fears that the Kremlin is again targeting its enemies.`\
-https://nytimes.com/2024/03/31/world/europe/russian-defector-murder-spain.html
 
