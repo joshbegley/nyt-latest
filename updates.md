@@ -1,3 +1,7 @@
+**Netanyahu Will Undergo Hernia Surgery Amid Mounting Pressure on His Government**\
+`Hours before his scheduled procedure, Mr. Netanyahu met in Jerusalem with families of soldiers held captive in Gaza.`\
+https://nytimes.com/2024/03/31/world/middleeast/netanyahu-hernia-surgery.html
+
 **Netanyahu will undergo hernia surgery amid mounting pressure on his government.**\
 `The`\
 https://nytimes.com/2024/03/31/world/middleeast/netanyahu-hernia-surgery.html
