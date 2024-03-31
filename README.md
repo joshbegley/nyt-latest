@@ -1,3 +1,7 @@
+**Many protesters were saying it was time for Netanyahu to step down.**\
+`By Adam Rasgon and Aaron Boxerman`\
+https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/many-protesters-were-saying-it-was-time-for-netanyahu-to-step-down
+
 **From Pizzagate to the 2020 Election: Forcing Liars to Pay or Apologize**\
 `Michael J. Gottlieb is part of a cadre of lawyers deploying defamation, one of the oldest areas of the law, against a tide of political disinformation.`\
 https://nytimes.com/2024/03/31/us/politics/defamation-lawsuits-michael-gottlieb.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/31/world/middleeast/netanyahu-hernia-surgery.html
 **In a strong Easter message, the pope calls for a cease-fire in Gaza.**\
 `By Jason Horowitz`\
 https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/in-a-strong-easter-message-the-pope-calls-for-a-cease-fire-in-gaza
-
-**Thousands Protest in Tel Aviv Against Netanyahu’s Government**\
-`Some scuffles broke out between police officers and demonstrators calling for the government to strike a cease-fire deal to free the hostages held in Gaza.`\
-https://nytimes.com/video/world/middleeast/100000009389791/tel-aviv-anti-government-rally.html
 
