@@ -1,4 +1,4 @@
-**California Highway 1 Collapse Leaves 2,000 Motorists Stranded**\
+**2,000 Motorists Stranded After Part of Highway 1 in California Collapses**\
 `Many stayed in temporary shelters, hotels and campgrounds overnight, while some slept in their cars.`\
 https://nytimes.com/2024/03/31/us/california-highway-1-collapse-stranded.html
 
