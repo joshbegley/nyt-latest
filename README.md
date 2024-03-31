@@ -1,3 +1,7 @@
+**From Pizzagate to the 2020 Election: Forcing Liars to Pay or Apologize**\
+`Michael J. Gottlieb is part of a cadre of lawyers deploying defamation, one of the oldest areas of the law, against a tide of political disinformation.`\
+https://nytimes.com/2024/03/31/us/politics/defamation-lawsuits-michael-gottlieb.html
+
 **Lorraine Graves, Pioneering Harlem Ballerina, Dies at 66**\
 `Tall and commanding, she dazzled audiences as a principal dancer for the groundbreaking Dance Theater of Harlem for nearly two decades.`\
 https://nytimes.com/2024/03/31/arts/music/lorraine-graves-pioneering-harlem-ballerina-dies-at-66.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/in-a-strong
 **Thousands Protest in Tel Aviv Against Netanyahu’s Government**\
 `Some scuffles broke out between police officers and demonstrators calling for the government to strike a cease-fire deal to free the hostages held in Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009389791/tel-aviv-anti-government-rally.html
-
-**There’s No Such Thing as an American Bible**\
-`Trump’s God Bless the USA Bible focuses on God’s blessing of one particular people. That is both its danger and, no doubt for some, its appeal.`\
-https://nytimes.com/2024/03/31/opinion/trump-bible-america.html
 
