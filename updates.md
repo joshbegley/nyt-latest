@@ -1,3 +1,7 @@
+**Esther Coopersmith, Washington Hostess and Diplomat, Dies at 94**\
+`A place at her dinner tables, which sat 75, provided access to networks of money, influence and power across cultural and political divides.`\
+https://nytimes.com/2024/03/31/us/esther-coopersmith-dead.html
+
 **Deep-Sixing Pornographic Deepfakes for Good**\
 `Responses to a column by Nicholas Kristof. Also: Analyzing Donald Trump’s base; a “deep state” makeover.`\
 https://nytimes.com/2024/03/31/opinion/pornography-deepfakes.html
