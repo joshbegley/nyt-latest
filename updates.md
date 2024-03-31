@@ -1,3 +1,7 @@
+**Lorraine Graves, Pioneering Harlem Ballerina, Dies at 66**\
+`Tall and commanding, she dazzled audiences as a principal dancer for the groundbreaking Dance Theater of Harlem for nearly two decades.`\
+https://nytimes.com/2024/03/31/arts/music/lorraine-graves-pioneering-harlem-ballerina-dies-at-66.html
+
 **Esther Coopersmith, Washington Hostess and Diplomat, Dies at 94**\
 `A place at her dinner tables, which sat 75, provided access to networks of money, influence and power across cultural and political divides.`\
 https://nytimes.com/2024/03/31/us/esther-coopersmith-dead.html
