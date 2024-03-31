@@ -1,3 +1,11 @@
+**Republican Congressman Says of Gaza: ‘It Should Be Like Nagasaki and Hiroshima’**\
+`Representative Tim Walberg denied that he was advocating the use of nuclear weapons and said that his town hall remarks were taken out of context.`\
+https://nytimes.com/2024/03/31/us/politics/tim-walberg-gaza-nagasaki-hiroshima.html
+
+**Displaced Palestinian Christians marked Easter in Gaza’s only Catholic church.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/displaced-palestinian-christians-marked-easter-in-gazas-only-catholic-church
+
 **Protesters Call for Netanyahu to Leave Office**\
 `The demonstrators filled the streets outside of the Knesset, Israel’s parliament, amid growing calls for early elections.`\
 https://nytimes.com/2024/03/31/world/middleeast/many-protesters-were-saying-it-was-time-for-netanyahu-to-step-down.html
