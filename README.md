@@ -24,7 +24,7 @@ https://nytimes.com/live/2024/03/30/world/israel-hamas-war-gaza-news/cease-fire-
 
 **Aid is slow to enter Gaza, despite top U.N. court ruling demanding ‘unhindered’ access.**\
 `By Raja Abdulrahim`\
-https://nytimes.com/live/2024/03/30/world/israel-hamas-war-gaza-news/aid-is-slow-to-enter-gaza-despite-top-un-court-ruling-demanding-unhindered-access
+https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/aid-is-slow-to-enter-gaza-despite-top-un-court-ruling-demanding-unhindered-access
 
 **31mideast-crisis**\
 `Truce Talks Expected to Resume in Egypt`\
