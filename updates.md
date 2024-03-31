@@ -1,3 +1,15 @@
+**Deep-Sixing Pornographic Deepfakes for Good**\
+`Responses to a column by Nicholas Kristof. Also: Analyzing Donald Trump’s base; a “deep state” makeover.`\
+https://nytimes.com/2024/03/31/opinion/pornography-deepfakes.html
+
+**How to Use Up Those Easter Eggs**\
+`Deviled eggs, for sure. Maybe pickled eggs, cured with beets, vinegar and sugar, too?`\
+https://nytimes.com/2024/03/31/dining/how-to-use-up-those-easter-eggs.html
+
+**Beyoncé’s Country Is America: Every Bit of It**\
+`On the bold, sprawling “Cowboy Carter,” the superstar plays fast and loose — and twangy — with genre.`\
+https://nytimes.com/2024/03/31/arts/music/beyonce-cowboy-carter-review.html
+
 **Netanyahu will undergo hernia surgery at an important moment.**\
 `The`\
 https://nytimes.com/2024/03/31/world/middleeast/netanyahu-hernia-surgery.html

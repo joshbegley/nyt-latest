@@ -1,3 +1,15 @@
+**Deep-Sixing Pornographic Deepfakes for Good**\
+`Responses to a column by Nicholas Kristof. Also: Analyzing Donald Trump’s base; a “deep state” makeover.`\
+https://nytimes.com/2024/03/31/opinion/pornography-deepfakes.html
+
+**How to Use Up Those Easter Eggs**\
+`Deviled eggs, for sure. Maybe pickled eggs, cured with beets, vinegar and sugar, too?`\
+https://nytimes.com/2024/03/31/dining/how-to-use-up-those-easter-eggs.html
+
+**Beyoncé’s Country Is America: Every Bit of It**\
+`On the bold, sprawling “Cowboy Carter,” the superstar plays fast and loose — and twangy — with genre.`\
+https://nytimes.com/2024/03/31/arts/music/beyonce-cowboy-carter-review.html
+
 **Angry over Gaza, Democratic activists in New Jersey encourage ‘uncommitted’ vote.**\
 `A New Jersey ballot protest mirrors those in several other states.`\
 https://nytimes.com/live/2024/03/31/us/trump-biden-election/uncommitted-biden-gaza
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/31/opinion/isis-russia-terrorism-attack.html
 **Amid Health Concerns, Pope Delivers Strong Easter Message Calling for Gaza Cease-Fire**\
 `Pope Francis’ decisions to reduce his participation in two major Holy Week events had raised fears about his health.`\
 https://nytimes.com/2024/03/31/world/europe/pope-francis-easter-speech.html
-
-**Life at Guantánamo Bay**\
-`Inside a new season of “Serial.”`\
-https://nytimes.com/2024/03/31/briefing/serial-podcast-guantanamo-bay.html
-
-**‘Replace him’: Thousands rally against Netanyahu’s government in Tel Aviv.**\
-`By The New York Times`\
-https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/replace-him-thousands-rally-against-netanyahus-government-in-tel-aviv
-
-**You Don’t Need to Freak Out About Boeing Planes (but Boeing Sure Does)**\
-`Commercial aviation remains miraculously safe, far more so than all the alternative ways of traveling.`\
-https://nytimes.com/2024/03/31/opinion/boeing-plane-safety.html
 
