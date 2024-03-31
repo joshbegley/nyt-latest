@@ -1,3 +1,23 @@
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/31/crosswords/connections-companion.html
+
+**Can We Engineer Our Way Out of the Climate Crisis?**\
+`Blocking solar rays. Sucking carbon dioxide from the atmosphere. Ideas that sound like science fiction are now starting to become reality, raising concerns about safety.`\
+https://nytimes.com/2024/03/31/climate/climate-change-carbon-capture-ccs.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/03/31/crosswords/spelling-bee-forum.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/31/crosswords/wordle-review.html
+
+**‘I Discovered That I Had Left My Tuxedo Shirt at Home’**\
+`A desperate measure at a desperate moment, a rainy day interview and more reader tales from New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/03/31/nyregion/metropolitan-diary.html
+
 **‘Saturday Night Live’ Presents Trump Bibles**\
 `Ramy Youssef hosted this weekend’s episode, which also spoofed immigrant fathers and Flaco the owl.`\
 https://nytimes.com/2024/03/31/arts/television/saturday-night-live-ramy-youssef.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/03/31/world/middleeast/istanbul-mayor-race-turkey.html
 **Angry Farmers Are Reshaping Europe**\
 `Farm protests are changing not only Europe’s food system but also its politics, as the far right senses an opportunity.`\
 https://nytimes.com/2024/03/31/world/europe/angry-farmers-are-reshaping-europe.html
-
-**India’s Silicon Valley Faces a Water Crisis That Software Cannot Solve**\
-`Bengaluru gets plenty of rain. But the city did not properly adapt as its soaring population strained traditional water sources.`\
-https://nytimes.com/2024/03/31/world/asia/india-bangalore-water.html
-
-**Corrections: March 31, 2024**\
-`Corrections that appeared in print on Sunday, March 31, 2024.`\
-https://nytimes.com/2024/03/30/corrections/corrections-march-31-2024.html
-
-**Quotation of the Day: Gylan Kain, 81, Founder Of the Last Poets Group and a Progenitor of Rap**\
-`Quotation of the Day for Sunday, March 31, 2024.`\
-https://nytimes.com/2024/03/30/pageoneplus/quotation-of-the-day-gylan-kain-81-founder-of-the-last-poets-group-and-a-progenitor-of-rap.html
-
-**Tangled in Steel With No Way Out: How the Crew Stuck in Baltimore Is Faring**\
-`Twenty-two seafarers from India find themselves not only trapped in the ship that struck the Francis Scott Key Bridge, but also in an unexpected spotlight.`\
-https://nytimes.com/2024/03/30/us/baltimore-ship-crew-key-bridge.html
-
-**A Close-Up View of the Baltimore Bridge Collapse**\
-`From roughly 100 yards away, the site of one of the worst bridge collapses in the country’s history is haunting.`\
-https://nytimes.com/2024/03/30/us/view-ship-key-bridge-baltimore.html
 

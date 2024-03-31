@@ -1,3 +1,23 @@
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/31/crosswords/connections-companion.html
+
+**Can We Engineer Our Way Out of the Climate Crisis?**\
+`Blocking solar rays. Sucking carbon dioxide from the atmosphere. Ideas that sound like science fiction are now starting to become reality, raising concerns about safety.`\
+https://nytimes.com/2024/03/31/climate/climate-change-carbon-capture-ccs.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/03/31/crosswords/spelling-bee-forum.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/03/31/crosswords/wordle-review.html
+
+**‘I Discovered That I Had Left My Tuxedo Shirt at Home’**\
+`A desperate measure at a desperate moment, a rainy day interview and more reader tales from New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/03/31/nyregion/metropolitan-diary.html
+
 **‘Saturday Night Live’ Presents Trump Bibles**\
 `Ramy Youssef hosted this weekend’s episode, which also spoofed immigrant fathers and Flaco the owl.`\
 https://nytimes.com/2024/03/31/arts/television/saturday-night-live-ramy-youssef.html
