@@ -1,3 +1,7 @@
+**Despite Health Concerns, Pope Delivers Strong Easter Message Calling for Gaza Cease-Fire**\
+`Pope Francis’ decisions to reduce his participation in two major Holy Week events had raised fears about his health.`\
+https://nytimes.com/2024/03/31/world/europe/pope-francis-easter-speech.html
+
 **Aid is slow to enter Gaza, despite a top U.N. court ruling demanding ‘unhindered’ access.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/aid-is-slow-to-enter-gaza-despite-top-un-court-ruling-demanding-unhindered-access

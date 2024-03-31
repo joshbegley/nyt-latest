@@ -1,3 +1,7 @@
+**Despite Health Concerns, Pope Delivers Strong Easter Message Calling for Gaza Cease-Fire**\
+`Pope Francis’ decisions to reduce his participation in two major Holy Week events had raised fears about his health.`\
+https://nytimes.com/2024/03/31/world/europe/pope-francis-easter-speech.html
+
 **Life at Guantánamo Bay**\
 `Inside a new season of “Serial.”`\
 https://nytimes.com/2024/03/31/briefing/serial-podcast-guantanamo-bay.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/aid-is-slow
 **31mideast-crisis**\
 `Truce Talks Expected to Resume in Egypt`\
 https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news
-
-**In Yemen, Renewed Conflict and Rising Hunger Stalk a Lean Ramadan**\
-`Airstrikes, crippling inflation and a drop in foreign aid are raising alarms about a new humanitarian crisis in the world’s poorest Arab country.`\
-https://nytimes.com/2024/03/31/world/middleeast/yemen-hunger-houthis.html
 
