@@ -1,3 +1,11 @@
+**There’s No Such Thing as an American Bible**\
+`Trump’s God Bless the USA Bible focuses on God’s blessing of one particular people. That is both its danger and, no doubt for some, its appeal.`\
+https://nytimes.com/2024/03/31/opinion/trump-bible-america.html
+
+**We Still Haven’t Figured Out How to Beat ISIS**\
+`Stripping the Islamic State of its self-proclaimed caliphate is not the same as beating it.`\
+https://nytimes.com/2024/03/31/opinion/isis-russia-terrorism-attack.html
+
 **Amid Health Concerns, Pope Delivers Strong Easter Message Calling for Gaza Cease-Fire**\
 `Pope Francis’ decisions to reduce his participation in two major Holy Week events had raised fears about his health.`\
 https://nytimes.com/2024/03/31/world/europe/pope-francis-easter-speech.html
