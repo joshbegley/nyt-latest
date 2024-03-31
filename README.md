@@ -1,3 +1,7 @@
+**New York City’s Easter Parade, Where Spring’s in Full Bloom**\
+`Spectators showed up to celebrate the season.`\
+https://nytimes.com/2024/03/31/style/new-york-citys-easter-parade-where-springs-in-full-bloom.html
+
 **2,000 Motorists Stranded After Part of Highway 1 in California Collapses**\
 `Many stayed in temporary shelters, hotels and campgrounds overnight, while some slept in their cars.`\
 https://nytimes.com/2024/03/31/us/california-highway-1-collapse-stranded.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/31/us/politics/buttigieg-congress-baltimore-bridge.h
 **Daniel C. Lynch, Founder of Major Computer Exhibition, Dies at 82**\
 `After working on the earliest version of the internet, he saw its potential and founded a conference on computer networking equipment.`\
 https://nytimes.com/2024/03/31/technology/daniel-c-lynch-dead.html
-
-**At the Easter Parade, a Symphony of Flowers, Eggs and Decked-Out Dogs**\
-`Fifth Avenue in Manhattan was awash in color during the annual Easter Parade and Bonnet Festival.`\
-https://nytimes.com/2024/03/31/nyregion/new-york-easter-parade.html
 
