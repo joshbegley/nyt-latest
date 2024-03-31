@@ -1,10 +1,10 @@
-**Hollywood’s New Fantasy: A Magical, Colorblind Past**\
-`Films and TV shows keep reimagining history as a multiracial dream world. Is that really a step forward?`\
-https://nytimes.com/2024/03/31/magazine/hollywood-movies-race-diversity.html
-
 **In Yemen, Renewed Conflict and Rising Hunger Stalk a Lean Ramadan**\
 `Airstrikes, crippling inflation and a drop in foreign aid are raising alarms about a new humanitarian crisis in the world’s poorest Arab country.`\
 https://nytimes.com/2024/03/31/world/middleeast/yemen-hunger-houthis.html
+
+**Hollywood’s New Fantasy: A Magical, Colorblind Past**\
+`Films and TV shows keep reimagining history as a multiracial dream world. Is that really a step forward?`\
+https://nytimes.com/2024/03/31/magazine/hollywood-movies-race-diversity.html
 
 **How Street Art Is Gentrifying Neighborhoods**\
 `Brands, developers and even city officials are embracing the global appeal of street art, but the boom comes with questions about preserving a neighborhood’s cultural cachet.`\
