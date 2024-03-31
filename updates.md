@@ -1,3 +1,7 @@
+**From Pizzagate to the 2020 Election: Forcing Liars to Pay or Apologize**\
+`Michael J. Gottlieb is part of a cadre of lawyers deploying defamation, one of the oldest areas of the law, against a tide of political disinformation.`\
+https://nytimes.com/2024/03/31/us/politics/defamation-lawsuits-michael-gottlieb.html
+
 **Lorraine Graves, Pioneering Harlem Ballerina, Dies at 66**\
 `Tall and commanding, she dazzled audiences as a principal dancer for the groundbreaking Dance Theater of Harlem for nearly two decades.`\
 https://nytimes.com/2024/03/31/arts/music/lorraine-graves-pioneering-harlem-ballerina-dies-at-66.html
