@@ -1,3 +1,11 @@
+**Angry over Gaza, Democratic activists in New Jersey encourage ‘uncommitted’ vote.**\
+`A New Jersey ballot protest mirrors those in several other states.`\
+https://nytimes.com/2024/03/31/us/politics/uncommitted-biden-gaza.html
+
+**Netanyahu to Undergo Hernia Surgery at Critical Moment**\
+`The Israeli prime minister will be under full anesthesia, and the justice minister will temporarily take over his duties, his office said.`\
+https://nytimes.com/2024/03/31/world/middleeast/netanyahu-hernia-surgery.html
+
 **Netanyahu will undergo hernia surgery at a critical moment.**\
 `By Cassandra Vinograd and Johnatan Reiss`\
 https://nytimes.com/2024/03/31/world/middleeast/netanyahu-will-undergo-surgery-at-a-critical-moment.html
