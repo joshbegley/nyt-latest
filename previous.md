@@ -1,3 +1,7 @@
+**Elite College Admissions Have Turned Students Into Brands**\
+`Teenagers should not have to commoditize themselves for the sake of getting into an elite school.`\
+https://nytimes.com/2024/03/31/opinion/college-admissions-consultant-branding.html
+
 **A Russian Defector’s Killing Raises Spectre of Hit Squads**\
 `The death in Spain of Maksim Kuzminov, a pilot who delivered a helicopter and secret documents to Ukraine, has raised fears that the Kremlin is again targeting its enemies.`\
 https://nytimes.com/2024/03/31/world/europe/russian-defector-murder-spain.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/us/view-ship-key-bridge-baltimore.html
 **Chance Perdomo, Star of ‘Chilling Adventures of Sabrina,’ Dies at 27**\
 `Mr. Perdomo, who died in a motorcycle accident on Friday, played the pansexual warlock Ambrose Spellman in the Netflix series.`\
 https://nytimes.com/2024/03/30/arts/television/chance-perdomo-dead.html
-
-**Woman Who Was Charged With Murder After Abortion Sues Texas Prosecutor**\
-`Lizelle Gonzalez was arrested after using an abortion pill in 2022, and her charge was since dropped. Now she is seeking $1 million in damages.`\
-https://nytimes.com/2024/03/30/us/texas-abortion-murder-charge-lawsuit.html
 
