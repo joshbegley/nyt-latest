@@ -1,3 +1,7 @@
+**Daniel C. Lynch, Founder of Major Computer Exhibition, Dies at 82**\
+`After working on the earliest version of the internet, he saw its potential and founded a conference on computer networking equipment.`\
+https://nytimes.com/2024/03/31/technology/daniel-c-lynch-dead.html
+
 **Netanyahu Will Undergo Hernia Surgery Amid Mounting Pressure on His Government**\
 `Hours before his scheduled procedure, Mr. Netanyahu met in Jerusalem with families of soldiers held captive in Gaza.`\
 https://nytimes.com/2024/03/31/world/middleeast/netanyahu-hernia-surgery.html
