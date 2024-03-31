@@ -1,3 +1,7 @@
+**A Russian Defector’s Killing Raises Specter of Hit Squads**\
+`The death in Spain of Maksim Kuzminov, a pilot who delivered a helicopter and secret documents to Ukraine, has raised fears that the Kremlin is again targeting its enemies.`\
+https://nytimes.com/2024/03/31/world/europe/russian-defector-murder-spain.html
+
 **Accused Subway Shover Found Little Help in New York’s Chaotic Shelters**\
 `Carlton McPherson had been placed by New York City in a specialized homeless shelter for people with serious mental illness. It was not enough.`\
 https://nytimes.com/2024/03/31/nyregion/nyc-subway-shoving-mental-illness.html
