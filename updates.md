@@ -1,3 +1,15 @@
+**Cease-fire negotiations are set to resume in Cairo.**\
+`By Vivian Yee and Adam Rasgon`\
+https://nytimes.com/live/2024/03/30/world/israel-hamas-war-gaza-news/cease-fire-negotiations-are-expected-to-resume-in-cairo
+
+**Aid is slow to enter Gaza, despite top U.N. court ruling demanding ‘unhindered’ access.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/03/30/world/israel-hamas-war-gaza-news/aid-is-slow-to-enter-gaza-despite-top-un-court-ruling-demanding-unhindered-access
+
+**31mideast-crisis**\
+`Truce Talks Expected to Resume in Egypt`\
+https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news
+
 **Hollywood’s New Fantasy: A Magical, Colorblind Past**\
 `Films and TV shows keep reimagining history as a multiracial dream world. Is that really a step forward?`\
 https://nytimes.com/2024/03/31/magazine/hollywood-movies-race-diversity.html

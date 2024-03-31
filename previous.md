@@ -1,3 +1,15 @@
+**Cease-fire negotiations are set to resume in Cairo.**\
+`By Vivian Yee and Adam Rasgon`\
+https://nytimes.com/live/2024/03/30/world/israel-hamas-war-gaza-news/cease-fire-negotiations-are-expected-to-resume-in-cairo
+
+**Aid is slow to enter Gaza, despite top U.N. court ruling demanding ‘unhindered’ access.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/03/30/world/israel-hamas-war-gaza-news/aid-is-slow-to-enter-gaza-despite-top-un-court-ruling-demanding-unhindered-access
+
+**31mideast-crisis**\
+`Truce Talks Expected to Resume in Egypt`\
+https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news
+
 **In Yemen, Renewed Conflict and Rising Hunger Stalk a Lean Ramadan**\
 `Airstrikes, crippling inflation and a drop in foreign aid are raising alarms about a new humanitarian crisis in the world’s poorest Arab country.`\
 https://nytimes.com/2024/03/31/world/middleeast/yemen-hunger-houthis.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/03/31/us/dan-wuori-child-development-videos.html
 **Boots, Backpack and a Ubiquitous App**\
 `Fourteen years and one Apple App of the Year award in, AllTrails has become something rare: a tool that works for both experts and newbies.`\
 https://nytimes.com/2024/03/31/style/alltrails.html
-
-**A Book Found in a Cairo Market Launched a 30-Year Quest: Who Was the Writer?**\
-`For Iman Mersal, the slim novel was “life altering.” She narrates her journey in the footsteps of its largely forgotten author in “Traces of Enayat.”`\
-https://nytimes.com/2024/03/31/books/booksupdate/iman-mersal-traces-enayat.html
-
-**As Graffiti Moves From Eyesore to Amenity, Landlords Try to Cash In**\
-`Brands, developers and even city officials are embracing the global appeal of street art, but the boom comes with questions about preserving a neighborhood’s cultural cachet.`\
-https://nytimes.com/2024/03/31/business/graffiti-real-estate-gentrification.html
-
-**6 Y.A. Novels That Open Conversations About Teen Chronic Illness**\
-`Maya Van Wagenen, the author of “Chronically Dolores,” shares her favorite young adult books that authentically represent being a teenager living with illness.`\
-https://nytimes.com/2024/03/31/books/review/ya-books-chronic-illness-novel.html
 
