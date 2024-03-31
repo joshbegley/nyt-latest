@@ -23,7 +23,7 @@ https://nytimes.com/2024/03/31/technology/daniel-c-lynch-dead.html
 https://nytimes.com/2024/03/31/nyregion/new-york-easter-parade.html
 
 **Protesters Call for Netanyahu to Leave Office**\
-`Thousands filled the streets outside of the Knesset, Israel’s parliament, amid growing calls for early elections.`\
+`The demonstrators filled the streets outside of the Knesset, Israel’s parliament, amid growing calls for early elections.`\
 https://nytimes.com/2024/03/31/world/middleeast/many-protesters-were-saying-it-was-time-for-netanyahu-to-step-down.html
 
 **From Pizzagate to the 2020 Election: Forcing Liars to Pay or Apologize**\
