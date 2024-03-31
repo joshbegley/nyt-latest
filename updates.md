@@ -1,3 +1,15 @@
+**Cesar Chavez’s Family Criticizes R.F.K. Jr. for His Chavez Day Event**\
+`The Kennedy family has a long history of friendship and political partnership with the Chavez family.`\
+https://nytimes.com/2024/03/31/us/politics/rfk-chavez.html
+
+**Monday Briefing: Israeli Anger at Netanyahu Grows**\
+`Plus, the new end-of-the-world fiction.`\
+https://nytimes.com/2024/03/31/briefing/monday-briefing-israeli-anger-at-netanyahu-grows.html
+
+**Protesters Call for Netanyahu to Leave Office**\
+`Thousands filled the streets outside of the Knesset, Israel’s parliament, amid growing calls for early elections.`\
+https://nytimes.com/2024/03/31/world/middleeast/many-protesters-were-saying-it-was-time-for-netanyahu-to-step-down.html
+
 **New Jersey Ballot Ruling Applies Only to Democratic Race, Judge Says**\
 `A federal judge who tossed out the state’s unique ballot design said his ruling would affect only the Democratic primary.`\
 https://nytimes.com/2024/03/31/nyregion/new-jersey-ballot-ruling-democrats.html
