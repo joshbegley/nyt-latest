@@ -1,3 +1,7 @@
+**California Highway 1 Collapse Leaves 2,000 Motorists Stranded**\
+`Many stayed in temporary shelters, hotels and campgrounds overnight, while some slept in their cars.`\
+https://nytimes.com/2024/03/31/us/california-highway-1-collapse-stranded.html
+
 **Obsessive to a Fault**\
 `Alan Arbesfeld gives his assent.`\
 https://nytimes.com/2024/03/31/crosswords/daily-puzzle-2024-04-01.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/31/technology/daniel-c-lynch-dead.html
 **At the Easter Parade, a Symphony of Flowers, Eggs and Decked-Out Dogs**\
 `Fifth Avenue in Manhattan was awash in color during the annual Easter Parade and Bonnet Festival.`\
 https://nytimes.com/2024/03/31/nyregion/new-york-easter-parade.html
-
-**Protesters Call for Netanyahu to Leave Office**\
-`The demonstrators filled the streets outside of the Knesset, Israel’s parliament, amid growing calls for early elections.`\
-https://nytimes.com/2024/03/31/world/middleeast/netanyahu-protests-israel.html
 

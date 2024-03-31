@@ -1,3 +1,7 @@
+**California Highway 1 Collapse Leaves 2,000 Motorists Stranded**\
+`Many stayed in temporary shelters, hotels and campgrounds overnight, while some slept in their cars.`\
+https://nytimes.com/2024/03/31/us/california-highway-1-collapse-stranded.html
+
 **Displaced Palestinian Christians Mark Easter in Gaza’s Only Catholic Church**\
 `Somber Easter celebrations were held on Sunday for hundreds of displaced Palestinians at the Holy Family Church in Gaza City.`\
 https://nytimes.com/2024/03/31/world/middleeast/palestinians-easter-catholic-church.html
