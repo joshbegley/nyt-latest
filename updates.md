@@ -1,3 +1,7 @@
+**Amid Health Concerns, Pope Delivers Strong Easter Message Calling for Gaza Cease-Fire**\
+`Pope Francis’ decisions to reduce his participation in two major Holy Week events had raised fears about his health.`\
+https://nytimes.com/2024/03/31/world/europe/pope-francis-easter-speech.html
+
 **Despite Health Concerns, Pope Delivers Strong Easter Message Calling for Gaza Cease-Fire**\
 `Pope Francis’ decisions to reduce his participation in two major Holy Week events had raised fears about his health.`\
 https://nytimes.com/2024/03/31/world/europe/pope-francis-easter-speech.html
