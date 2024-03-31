@@ -1,3 +1,7 @@
+**In a strong Easter message, the Pope calls for a cease-fire in Gaza.**\
+`By Jason Horowitz`\
+https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/in-a-strong-easter-message-the-pope-calls-for-a-cease-fire-in-gaza
+
 **Thousands Protest in Tel Aviv Against Netanyahu’s Government**\
 `Some scuffles broke out between police officers and demonstrators calling for the government to strike a cease-fire deal to free the hostages held in Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009389791/tel-aviv-anti-government-rally.html
