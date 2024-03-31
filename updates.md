@@ -1,3 +1,15 @@
+**As Graffiti Moves From Eyesore to Amenity, Landlords Try to Cash In**\
+`Brands, developers and even city officials are embracing the global appeal of street art, but the boom comes with questions about preserving a neighborhood’s cultural cachet.`\
+https://nytimes.com/2024/03/31/business/graffiti-real-estate-gentrification.html
+
+**6 Y.A. Novels That Open Conversations About Teen Chronic Illness**\
+`Maya Van Wagenen, the author of “Chronically Dolores,” shares her favorite young adult books that authentically represent being a teenager living with illness.`\
+https://nytimes.com/2024/03/31/books/review/ya-books-chronic-illness-novel.html
+
+**A Warhol Superstar, but Never a Star**\
+`Cynthia Carr’s compassionate biography chronicles the brief, poignant life of the transgender actress Candy Darling, whose “very existence was radical.”`\
+https://nytimes.com/2024/03/31/books/review/candy-darling-cynthia-carr.html
+
 **A Russian Defector’s Killing Raises Specter of Hit Squads**\
 `The death in Spain of Maksim Kuzminov, a pilot who delivered a helicopter and secret documents to Ukraine, has raised fears that the Kremlin is again targeting its enemies.`\
 https://nytimes.com/2024/03/31/world/europe/russian-defector-murder-spain.html
