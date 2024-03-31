@@ -1,3 +1,7 @@
+**Lorraine Graves, Pioneering Harlem Ballerina, Dies at 66**\
+`Tall and commanding, she dazzled audiences as a principal dancer for the groundbreaking Dance Theater of Harlem for nearly two decades.`\
+https://nytimes.com/2024/03/31/arts/music/lorraine-graves-pioneering-harlem-ballerina-dies-at-66.html
+
 **Esther Coopersmith, Washington Hostess and Diplomat, Dies at 94**\
 `A place at her dinner tables, which sat 75, provided access to networks of money, influence and power across cultural and political divides.`\
 https://nytimes.com/2024/03/31/us/esther-coopersmith-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009389791/tel-aviv-anti-governm
 **There’s No Such Thing as an American Bible**\
 `Trump’s God Bless the USA Bible focuses on God’s blessing of one particular people. That is both its danger and, no doubt for some, its appeal.`\
 https://nytimes.com/2024/03/31/opinion/trump-bible-america.html
-
-**We Still Haven’t Figured Out How to Beat ISIS**\
-`Stripping the Islamic State of its self-proclaimed caliphate is not the same as beating it.`\
-https://nytimes.com/2024/03/31/opinion/isis-russia-terrorism-attack.html
 
