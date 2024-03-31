@@ -1,6 +1,6 @@
 **Angry over Gaza, Democratic activists in New Jersey encourage ‘uncommitted’ vote.**\
 `A New Jersey ballot protest mirrors those in several other states.`\
-https://nytimes.com/2024/03/31/us/politics/uncommitted-biden-gaza.html
+https://nytimes.com/live/2024/03/31/us/trump-biden-election/uncommitted-biden-gaza
 
 **Netanyahu will undergo hernia surgery at a critical moment.**\
 `The`\
