@@ -1,4 +1,8 @@
 **Displaced Palestinian Christians Mark Easter in Gaza’s Only Catholic Church**\
+`Somber Easter celebrations were held on Sunday for hundreds of displaced Palestinians at the Holy Family Church in Gaza City.`\
+https://nytimes.com/2024/03/31/world/middleeast/palestinians-easter-catholic-church.html
+
+**Displaced Palestinian Christians Mark Easter in Gaza’s Only Catholic Church**\
 `By Anushka Patil`\
 https://nytimes.com/2024/03/31/world/middleeast/palestinians-easter-catholic-church.html
 

@@ -7,7 +7,7 @@ https://nytimes.com/2024/03/31/crosswords/daily-puzzle-2024-04-01.html
 https://nytimes.com/2024/03/31/us/politics/tim-walberg-gaza-nagasaki-hiroshima.html
 
 **Displaced Palestinian Christians Mark Easter in Gaza’s Only Catholic Church**\
-`By Anushka Patil`\
+`Somber Easter celebrations were held on Sunday for hundreds of displaced Palestinians at the Holy Family Church in Gaza City.`\
 https://nytimes.com/2024/03/31/world/middleeast/palestinians-easter-catholic-church.html
 
 **Cesar Chavez’s Family Criticizes R.F.K. Jr. for His Chavez Day Event**\
