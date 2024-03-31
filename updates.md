@@ -1,3 +1,7 @@
+**Buttigieg Calls on Congress for More Money to Collapsed Baltimore Bridge**\
+`Mr. Buttigieg, the transportation secretary, was joined by the Baltimore mayor and Maryland governor in describing the collapse as a matter of national importance.`\
+https://nytimes.com/2024/03/31/us/politics/buttigieg-congress-baltimore-bridge.html
+
 **Daniel C. Lynch, Founder of Major Computer Exhibition, Dies at 82**\
 `After working on the earliest version of the internet, he saw its potential and founded a conference on computer networking equipment.`\
 https://nytimes.com/2024/03/31/technology/daniel-c-lynch-dead.html
