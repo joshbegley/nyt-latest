@@ -1,3 +1,7 @@
+**Many protesters were saying it was time for Netanyahu to step down.**\
+`By Adam Rasgon and Aaron Boxerman`\
+https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/many-protesters-were-saying-it-was-time-for-netanyahu-to-step-down
+
 **From Pizzagate to the 2020 Election: Forcing Liars to Pay or Apologize**\
 `Michael J. Gottlieb is part of a cadre of lawyers deploying defamation, one of the oldest areas of the law, against a tide of political disinformation.`\
 https://nytimes.com/2024/03/31/us/politics/defamation-lawsuits-michael-gottlieb.html
