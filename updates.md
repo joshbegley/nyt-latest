@@ -1,3 +1,7 @@
+**Netanyahu will undergo hernia surgery amid mounting pressure on his government.**\
+`The`\
+https://nytimes.com/2024/03/31/world/middleeast/netanyahu-hernia-surgery.html
+
 **At the Easter Parade, a Symphony of Flowers, Eggs and Decked-Out Dogs**\
 `Fifth Avenue in Manhattan was awash in color during the annual Easter Parade and Bonnet Festival.`\
 https://nytimes.com/2024/03/31/nyregion/new-york-easter-parade.html
