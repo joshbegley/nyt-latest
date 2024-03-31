@@ -1,3 +1,7 @@
+**Tangled in Steel With No Way Out: How the Crew Stuck in Baltimore Is Faring**\
+`Twenty-two seafarers from India find themselves not only trapped in the ship that struck the Francis Scott Key Bridge, but also in an unexpected spotlight.`\
+https://nytimes.com/2024/03/30/us/baltimore-ship-crew-key-bridge.html
+
 **A Close-Up View of the Baltimore Bridge Collapse**\
 `From roughly 100 yards away, the site of one of the worst bridge collapses in the country’s history is haunting.`\
 https://nytimes.com/2024/03/30/us/view-ship-key-bridge-baltimore.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/30/style/beyonce-cowboy-carter-nashville.html
 **Storm Brings Heavy Rain and Potential Flooding to California**\
 `Los Angeles had received one to two inches of rain as of Saturday morning. Colorado, Nevada, Utah and Wyoming were also expected to get significant precipitation this weekend.`\
 https://nytimes.com/2024/03/30/us/california-storm-flooding-snow-forecast.html
-
-**Trump Rekindles Relationships With Key 2016 Donors**\
-`The former president met with the Mercers and others as he sought to keep pace financially with President Biden.`\
-https://nytimes.com/2024/03/30/us/politics/trumper-mercer-dinner.html
 
