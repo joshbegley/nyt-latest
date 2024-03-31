@@ -1,4 +1,4 @@
-**In a strong Easter message, the Pope calls for a cease-fire in Gaza.**\
+**In a strong Easter message, the pope calls for a cease-fire in Gaza.**\
 `By Jason Horowitz`\
 https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/in-a-strong-easter-message-the-pope-calls-for-a-cease-fire-in-gaza
 
