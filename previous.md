@@ -1,3 +1,7 @@
+**Thousands Protest in Tel Aviv Against Netanyahu’s Government**\
+`Some scuffles broke out between police officers and demonstrators calling for the government to strike a cease-fire deal to free the hostages held in Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009389791/tel-aviv-anti-government-rally.html
+
 **There’s No Such Thing as an American Bible**\
 `Trump’s God Bless the USA Bible focuses on God’s blessing of one particular people. That is both its danger and, no doubt for some, its appeal.`\
 https://nytimes.com/2024/03/31/opinion/trump-bible-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/31/opinion/donald-trump-dune-savior.html
 **Trump Is Financially Ruining the Republican Party**\
 `How do you build a strong party when your money is also going to a candidate’s legal bills?`\
 https://nytimes.com/2024/03/31/opinion/trump-fundraising.html
-
-**Cease-fire negotiations are set to resume in Cairo.**\
-`By Adam Rasgon, Aaron Boxerman and Vivian Yee`\
-https://nytimes.com/live/2024/03/30/world/israel-hamas-war-gaza-news/cease-fire-negotiations-are-expected-to-resume-in-cairo
 
