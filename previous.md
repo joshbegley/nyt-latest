@@ -1,3 +1,11 @@
+**Accused Subway Shover Found Little Help in New York’s Chaotic Shelters**\
+`Carlton McPherson had been placed by New York City in a specialized homeless shelter for people with serious mental illness. It was not enough.`\
+https://nytimes.com/2024/03/31/nyregion/nyc-subway-shoving-mental-illness.html
+
+**Shohei Ohtani’s Arrival Brings Hope and Nostalgia Home to Little Tokyo**\
+`For a Los Angeles community contending with gentrification in its historic center and an aging population of cultural standard-bearers, Ohtani’s accession with the Dodgers has been galvanizing.`\
+https://nytimes.com/2024/03/31/us/ohtani-los-angeles-japan-baseball.html
+
 **The Connections Companion**\
 `In case you need some puzzle help.`\
 https://nytimes.com/2024/03/31/crosswords/connections-companion.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/03/31/opinion/college-admissions-consultant-branding.ht
 **A Russian Defector’s Killing Raises Spectre of Hit Squads**\
 `The death in Spain of Maksim Kuzminov, a pilot who delivered a helicopter and secret documents to Ukraine, has raised fears that the Kremlin is again targeting its enemies.`\
 https://nytimes.com/2024/03/31/world/europe/russian-defector-murder-spain.html
-
-**At Stake in the Istanbul Mayoral Race: Turkey’s Political Future**\
-`President Recep Tayyip Erdogan has campaigned for his party to retake Istanbul from the incumbent mayor, whom many see as a potential future president.`\
-https://nytimes.com/2024/03/31/world/middleeast/istanbul-mayor-race-turkey.html
-
-**Angry Farmers Are Reshaping Europe**\
-`Farm protests are changing not only Europe’s food system but also its politics, as the far right senses an opportunity.`\
-https://nytimes.com/2024/03/31/world/europe/angry-farmers-are-reshaping-europe.html
 

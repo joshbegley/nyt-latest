@@ -1,3 +1,11 @@
+**Accused Subway Shover Found Little Help in New York’s Chaotic Shelters**\
+`Carlton McPherson had been placed by New York City in a specialized homeless shelter for people with serious mental illness. It was not enough.`\
+https://nytimes.com/2024/03/31/nyregion/nyc-subway-shoving-mental-illness.html
+
+**Shohei Ohtani’s Arrival Brings Hope and Nostalgia Home to Little Tokyo**\
+`For a Los Angeles community contending with gentrification in its historic center and an aging population of cultural standard-bearers, Ohtani’s accession with the Dodgers has been galvanizing.`\
+https://nytimes.com/2024/03/31/us/ohtani-los-angeles-japan-baseball.html
+
 **The Connections Companion**\
 `In case you need some puzzle help.`\
 https://nytimes.com/2024/03/31/crosswords/connections-companion.html
