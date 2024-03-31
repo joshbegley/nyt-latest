@@ -1,3 +1,7 @@
+**Obsessive to a Fault**\
+`Alan Arbesfeld gives his assent.`\
+https://nytimes.com/2024/03/31/crosswords/daily-puzzle-2024-04-01.html
+
 **Republican Congressman Says of Gaza: ‘It Should Be Like Nagasaki and Hiroshima’**\
 `Representative Tim Walberg denied that he was advocating the use of nuclear weapons and said that his town hall remarks were taken out of context.`\
 https://nytimes.com/2024/03/31/us/politics/tim-walberg-gaza-nagasaki-hiroshima.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/31/nyregion/new-york-easter-parade.html
 **Protesters Call for Netanyahu to Leave Office**\
 `The demonstrators filled the streets outside of the Knesset, Israel’s parliament, amid growing calls for early elections.`\
 https://nytimes.com/2024/03/31/world/middleeast/netanyahu-protests-israel.html
-
-**From Pizzagate to the 2020 Election: Forcing Liars to Pay or Apologize**\
-`Michael J. Gottlieb is part of a cadre of lawyers deploying defamation, one of the oldest areas of the law, against a tide of political disinformation.`\
-https://nytimes.com/2024/03/31/us/politics/defamation-lawsuits-michael-gottlieb.html
 
