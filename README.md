@@ -1,3 +1,7 @@
+**Esther Coopersmith, Washington Hostess and Diplomat, Dies at 94**\
+`A place at her dinner tables, which sat 75, provided access to networks of money, influence and power across cultural and political divides.`\
+https://nytimes.com/2024/03/31/us/esther-coopersmith-dead.html
+
 **Deep-Sixing Pornographic Deepfakes for Good**\
 `Responses to a column by Nicholas Kristof. Also: Analyzing Donald Trump’s base; a “deep state” makeover.`\
 https://nytimes.com/2024/03/31/opinion/pornography-deepfakes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/31/opinion/trump-bible-america.html
 **We Still Haven’t Figured Out How to Beat ISIS**\
 `Stripping the Islamic State of its self-proclaimed caliphate is not the same as beating it.`\
 https://nytimes.com/2024/03/31/opinion/isis-russia-terrorism-attack.html
-
-**Amid Health Concerns, Pope Delivers Strong Easter Message Calling for Gaza Cease-Fire**\
-`Pope Francis’ decisions to reduce his participation in two major Holy Week events had raised fears about his health.`\
-https://nytimes.com/2024/03/31/world/europe/pope-francis-easter-speech.html
 
