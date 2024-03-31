@@ -1,3 +1,7 @@
+**New Jersey Ballot Ruling Applies Only to Democratic Race, Judge Says**\
+`A federal judge who tossed out the state’s unique ballot design said his ruling would affect only the Democratic primary.`\
+https://nytimes.com/2024/03/31/nyregion/new-jersey-ballot-ruling-democrats.html
+
 **Buttigieg Calls on Congress for More Money to Collapsed Baltimore Bridge**\
 `Mr. Buttigieg, the transportation secretary, was joined by the Baltimore mayor and Maryland governor in describing the collapse as a matter of national importance.`\
 https://nytimes.com/2024/03/31/us/politics/buttigieg-congress-baltimore-bridge.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/31/opinion/pornography-deepfakes.html
 **How to Use Up Those Easter Eggs**\
 `Deviled eggs, for sure. Maybe pickled eggs, cured with beets, vinegar and sugar, too?`\
 https://nytimes.com/2024/03/31/dining/how-to-use-up-those-easter-eggs.html
-
-**Beyoncé’s Country Is America: Every Bit of It**\
-`On the bold, sprawling “Cowboy Carter,” the superstar plays fast and loose — and twangy — with genre.`\
-https://nytimes.com/2024/03/31/arts/music/beyonce-cowboy-carter-review.html
 
