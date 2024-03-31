@@ -32,7 +32,7 @@ https://nytimes.com/2024/03/31/nyregion/new-york-easter-parade.html
 
 **Protesters Call for Netanyahu to Leave Office**\
 `The demonstrators filled the streets outside of the Knesset, Israel’s parliament, amid growing calls for early elections.`\
-https://nytimes.com/2024/03/31/world/middleeast/many-protesters-were-saying-it-was-time-for-netanyahu-to-step-down.html
+https://nytimes.com/2024/03/31/world/middleeast/netanyahu-protests-israel.html
 
 **From Pizzagate to the 2020 Election: Forcing Liars to Pay or Apologize**\
 `Michael J. Gottlieb is part of a cadre of lawyers deploying defamation, one of the oldest areas of the law, against a tide of political disinformation.`\

@@ -1,3 +1,7 @@
+**Protesters Call for Netanyahu to Leave Office**\
+`The demonstrators filled the streets outside of the Knesset, Israel’s parliament, amid growing calls for early elections.`\
+https://nytimes.com/2024/03/31/world/middleeast/netanyahu-protests-israel.html
+
 **Republican Congressman Says of Gaza: ‘It Should Be Like Nagasaki and Hiroshima’**\
 `Representative Tim Walberg denied that he was advocating the use of nuclear weapons and said that his town hall remarks were taken out of context.`\
 https://nytimes.com/2024/03/31/us/politics/tim-walberg-gaza-nagasaki-hiroshima.html
