@@ -1,3 +1,7 @@
+**‘Replace him’: Thousands rally against Netanyahu’s government in Tel Aviv.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/03/31/world/israel-hamas-war-gaza-news/replace-him-thousands-rally-against-netanyahus-government-in-tel-aviv
+
 **You Don’t Need to Freak Out About Boeing Planes (but Boeing Sure Does)**\
 `Commercial aviation remains miraculously safe, far more so than all the alternative ways of traveling.`\
 https://nytimes.com/2024/03/31/opinion/boeing-plane-safety.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/31/world/middleeast/yemen-hunger-houthis.html
 **Hollywood’s New Fantasy: A Magical, Colorblind Past**\
 `Films and TV shows keep reimagining history as a multiracial dream world. Is that really a step forward?`\
 https://nytimes.com/2024/03/31/magazine/hollywood-movies-race-diversity.html
-
-**How Street Art Is Gentrifying Neighborhoods**\
-`Brands, developers and even city officials are embracing the global appeal of street art, but the boom comes with questions about preserving a neighborhood’s cultural cachet.`\
-https://nytimes.com/video/business/economy/100000009381926/graffiti-gentrification-london-berlin.html
 
