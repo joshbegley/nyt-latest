@@ -1,3 +1,43 @@
+**How to Breathe With the Trees**\
+`Our poet laureate Ada Limón is on a mission to reconnect us to nature.`\
+https://nytimes.com/2024/04/01/opinion/ada-limon-poet-nature.html
+
+**In ‘Godzilla x Kong,’ They Came. They Pounced. Who Suffers?**\
+`The latest sequel in the Monsterverse has plenty of destruction, but little concern about the death toll.`\
+https://nytimes.com/2024/04/01/movies/godzilla-kong-destruction.html
+
+**The War in Gaza and the Emerging Rift in American Jewish Life**\
+`A conversation on whether liberalism and Zionism can continue to coexist for American Jews.`\
+https://nytimes.com/2024/04/01/opinion/jewish-liberalism.html
+
+**$2.4 Million Homes in California**\
+`A 1911 bungalow with a guesthouse in Los Angeles, a French Normandy-style home in Alameda and a four-bedroom retreat in Ukiah.`\
+https://nytimes.com/2024/04/01/realestate/2-million-dollar-homes-california.html
+
+**April Fools’ Day Is Coming to a Political System Near You**\
+`There are many politicians who answer to the name.`\
+https://nytimes.com/2024/04/01/opinion/lake-lieberman-kennedy-trump-biden.html
+
+**Have Swing Voters Stopped Listening to Joe Biden?**\
+`His narrative has to get stronger.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/biden-reelection-swing-voters
+
+**What the Bridge Meant to Baltimore**\
+`The victims, the history, the void. Residents reflect on their collective pain, and the city’s strength.`\
+https://nytimes.com/2024/04/01/us/francis-scott-key-bridge-baltimore.html
+
+**‘Plan Ahead’: Baltimore Traffic Reporter on Congestion After Bridge Collapse**\
+`Tony Thornton looks ahead to years of crowded tunnels and highways with the loss of the Francis Scott Key Bridge.`\
+https://nytimes.com/2024/04/01/us/baltimore-bridge-traffic-congestion.html
+
+**Did Prosecutors’ Sex Shaming Help Send Brenda Andrew to Death Row?**\
+`The Supreme Court will soon decide whether to hear an appeal in her case, which, as one judge put it, “focused from start to finish on Ms. Andrew’s sex life.”`\
+https://nytimes.com/2024/04/01/us/supreme-court-death-penalty-sex-shaming.html
+
+**Toes Out in the Workplace? You Might Want to Tread Carefully.**\
+`A sandal enthusiast wonders how much “toe cleavage” is too much for a business-casual office.`\
+https://nytimes.com/2024/04/01/style/toes-out-in-the-workplace-you-might-want-to-tread-carefully.html
+
 **Baltimore to Open Temporary Shipping Route Around Key Bridge Wreckage**\
 `The authorities were preparing early Monday to open a “temporary alternate channel” around the collapsed structure. The exact timing was unclear.`\
 https://nytimes.com/2024/04/01/us/key-bridge-baltimore-alternate-channel.html
