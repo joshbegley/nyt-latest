@@ -1,3 +1,7 @@
+**Airstrike in Damascus kills top Iranian commander, Iranian media say.**\
+`By Farnaz Fassihi and Ronen Bergman`\
+https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/airstrike-in-damascus-kills-top-iranian-commander-iranian-media-say
+
 **Once Upon a Time, the World of Picture Books Came to Life**\
 `The tale behind a new museum of children’s literature is equal parts imagination, chutzpah and “The Little Engine That Could.”`\
 https://nytimes.com/2024/04/01/books/rabbit-hole-kansas-city.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/arts/television/star-trek-troy-nelson.html
 **L.S.U.’s Kim Mulkey Courts Controversy With Style**\
 `Inside the coach’s winning fashion playbook.`\
 https://nytimes.com/2024/04/01/style/kim-mulkey-fashion-lsu-basketball.html
-
-**Do You Know the Places Mentioned in These Poems?**\
-`April is National Poetry Month! Test your knowledge on a variety of verse with this short quiz.`\
-https://nytimes.com/interactive/2024/04/01/books/review/poems-places-quiz.html
 
