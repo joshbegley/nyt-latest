@@ -1,3 +1,7 @@
+**Future and Metro Boomin’s First Joint Album Opens Big at No. 1**\
+`The Atlanta rapper and star producer topped Ariana Grande’s first-week total for “Eternal Sunshine,” but Beyoncé’s “Cowboy Carter” may beat them all next week.`\
+https://nytimes.com/2024/04/01/arts/music/future-metro-boomin-billboard-chart.html
+
 **‘Star Trek’ Fan Leaves Behind a Collection Like No One Has Done Before**\
 `When Troy Nelson died, his shelves were filled to the rafters with memorabilia from the popular franchise. Soon, the massive collection will be boldly going, going, gone.`\
 https://nytimes.com/2024/04/01/arts/television/star-trek-troy-nelson.html
