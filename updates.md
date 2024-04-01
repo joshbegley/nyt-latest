@@ -1,3 +1,7 @@
+**Mike Johnson Is Trying to Explain Simple Math to the Far Right**\
+`It doesn’t want to hear it, but the Republican majority is too small for any significant wins.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/mike-johnson-is-trying-to-explain-simple-math-to-the-far-right
+
 **In Kyoto, Five Hotels to Add to Your Travel Wish List**\
 `The city’s newest crop of hotels — from a luxury retreat on a historic estate to a 10-room inn surrounded by forested mountains — were worth the wait.`\
 https://nytimes.com/2024/04/01/t-magazine/kyoto-hotel-guide.html

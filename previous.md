@@ -1,3 +1,7 @@
+**Mike Johnson Is Trying to Explain Simple Math to the Far Right**\
+`It doesn’t want to hear it, but the Republican majority is too small for any significant wins.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/mike-johnson-is-trying-to-explain-simple-math-to-the-far-right
+
 **In Kyoto, Five Hotels to Add to Your Travel Wish List**\
 `The city’s newest crop of hotels — from a luxury retreat on a historic estate to a 10-room inn surrounded by forested mountains — were worth the wait.`\
 https://nytimes.com/2024/04/01/t-magazine/kyoto-hotel-guide.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/us/politics/white-house-easter-egg-roll.html
 **Florida Court Allows 6-Week Abortion Ban, but Voters Will Get to Weigh In**\
 `The Florida Supreme Court found that the State Constitution’s privacy protections do not extend to abortion. But it also allowed a ballot question on whether to expand abortion access.`\
 https://nytimes.com/2024/04/01/us/florida-abortion-law-supreme-court.html
-
-**Read the Florida Supreme Court’s Ruling on the Constitutional Amendment**\
-`The Florida Supreme Court allowed voters to decide this fall whether to expand abortion access, ruling unanimously that a proposed constitutional amendment that would guarantee the right to abortion “before viability,” usually around 24 weeks, could go on the November ballot.`\
-https://nytimes.com/interactive/2024/04/01/us/florida-abortion-constitutional-amendment.html
 
