@@ -1,3 +1,7 @@
+**10 Years of ‘Aladdin’ on Broadway**\
+`The musical “Aladdin” has been running on Broadway for 10 years, a bright spot in an industry that hasn’t fully recovered from the pandemic. Michael Paulson, a theater reporter for The New York Times, attended the March 28 anniversary performance.`\
+https://nytimes.com/video/theater/100000009391090/10-years-of-aladdin-on-broadway.html
+
 **The Christians Who Aren’t Buying Donald Trump’s Sales Pitch**\
 `Whether it’s a political or religious institution, the outcome always appears to be the same.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/the-christians-who-arent-buying-donald-trumps-sales-pitch
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/business/economy/artificial-intelligence-producti
 **How One Tech Skeptic Decided A.I. Might Benefit the Middle Class**\
 `David Autor, an M.I.T. economist and tech contrarian, argues that A.I. is fundamentally different from past waves of computerization.`\
 https://nytimes.com/2024/04/01/business/ai-tech-economy.html
-
-**Future and Metro Boomin’s First Joint Album Opens Big at No. 1**\
-`The Atlanta rapper and star producer topped Ariana Grande’s first-week total for “Eternal Sunshine,” but Beyoncé’s “Cowboy Carter” may beat them all next week.`\
-https://nytimes.com/2024/04/01/arts/music/future-metro-boomin-billboard-chart.html
 
