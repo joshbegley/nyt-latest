@@ -4,7 +4,7 @@ https://nytimes.com/2024/04/01/world/europe/scotland-hate-crime-law.html
 
 **Google to Delete Billions of Chrome Browser Records in Latest Settlement**\
 `The internet giant resolved a lawsuit that claimed it had deceived users by tracking their web activity in the Chrome browser’s private setting.`\
-https://nytimes.com/2024/04/01/technology/google-to-delete-billions-of-chrome-browser-records-in-latest-settlement.html
+https://nytimes.com/2024/04/01/technology/google-chrome-browser-data.html
 
 **Florida’s Top Court Allowed a Six-Week Abortion Ban**\
 `Also, an Israeli strike killed top Iranian commanders, Iran said. Here’s the latest at the end of Monday.`\
