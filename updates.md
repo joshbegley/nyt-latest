@@ -1,3 +1,7 @@
+**Beijing Deplores Taiwan’s Next President, but Welcomes an Old One**\
+`A rare visit to mainland China by Ma Ying-jeou, who’s now in the opposition, is a chance for political messaging on both sides of the Taiwan Strait.`\
+https://nytimes.com/2024/03/31/world/asia/taiwan-china-ma-ying-jeou.html
+
 **New York City’s Easter Parade, Where Spring’s in Full Bloom**\
 `Spectators showed up to celebrate the season.`\
 https://nytimes.com/2024/03/31/style/easter-parade-nyc.html

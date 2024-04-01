@@ -1,3 +1,7 @@
+**Beijing Deplores Taiwan’s Next President, but Welcomes an Old One**\
+`A rare visit to mainland China by Ma Ying-jeou, who’s now in the opposition, is a chance for political messaging on both sides of the Taiwan Strait.`\
+https://nytimes.com/2024/03/31/world/asia/taiwan-china-ma-ying-jeou.html
+
 **Protests Against Netanyahu Intensify as Cease-Fire Talks Resume**\
 `Thousands have taken to the streets of Israel to demand that Prime Minister Benjamin Netanyahu be replaced.`\
 https://nytimes.com/2024/03/31/world/middleeast/netanyahu-israel-protests-cease-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/31/briefing/monday-briefing-israeli-anger-at-netanya
 **New Jersey Ballot Ruling Applies Only to Democratic Race, Judge Says**\
 `A federal judge who tossed out the state’s unique ballot design said his ruling would affect only the Democratic primary.`\
 https://nytimes.com/2024/03/31/nyregion/new-jersey-ballot-ruling-democrats.html
-
-**Buttigieg Calls on Congress for More Money to Collapsed Baltimore Bridge**\
-`Mr. Buttigieg, the transportation secretary, was joined by the Baltimore mayor and Maryland governor in describing the collapse as a matter of national importance.`\
-https://nytimes.com/2024/03/31/us/politics/buttigieg-congress-baltimore-bridge.html
 
