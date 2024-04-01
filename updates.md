@@ -1,3 +1,7 @@
+**‘A horror movie’: One man describes the aftermath of Israel’s raid on Al-Shifa.**\
+`By Hiba Yazbek and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/a-horror-movie-one-man-describes-the-aftermath-of-israels-raid-on-al-shifa
+
 **You Can Bet on Caitlin Clark Making Threes. The N.C.A.A. Isn’t Happy.**\
 `Americans will wager $2.7 billion on the N.C.A.A. basketball tournaments this year, raising concerns about what happens to sports when people bet on the performances of student athletes.`\
 https://nytimes.com/2024/04/01/business/ncaa-womens-basketball-march-madness.html
