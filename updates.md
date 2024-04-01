@@ -1,3 +1,7 @@
+**Airstrike in Damascus kills top Iranian commander, Iranian media say.**\
+`By Farnaz Fassihi and Ronen Bergman`\
+https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/airstrike-in-damascus-kills-top-iranian-commander-iranian-media-say
+
 **Trump’s Call for Israel to ‘Finish Up’ War Alarms Some on the Right**\
 `Recent remarks he made urging an end to the Gaza conflict, with no insistence on freeing Israeli hostages first, were another departure from conservatives’ support for Benjamin Netanyahu.`\
 https://nytimes.com/2024/04/01/us/politics/trump-israel-conservative.html
