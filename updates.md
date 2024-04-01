@@ -1,3 +1,11 @@
+**Pressure is building on Netanyahu from all sides.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/netanyahu-protest-pressure
+
+**Barbara Rush, Award-Winning TV and Film Actress, Dies at 97**\
+`She received a Golden Globe in 1954 as that year’s rising star and appeared in movies alongside Dean Martin, Frank Sinatra and Paul Newman.`\
+https://nytimes.com/2024/04/01/movies/barbara-rush-dead.html
+
 **Johnson Outlines Plan for Ukraine Aid; House Could Act Within Weeks**\
 `The G.O.P. speaker’s proposed conditions for sending a fresh infusion of military assistance to Kyiv are the strongest sign to date that he plans to defy critics in his own party and push through the aid package.`\
 https://nytimes.com/2024/04/01/us/politics/mike-johnson-ukraine-aid.html
