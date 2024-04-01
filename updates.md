@@ -1,3 +1,7 @@
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/01/crosswords/connections-companion.html
+
 **American YouTube Personality Is Released After Being Kidnapped in Haiti**\
 `Adisson Pierre Maalouf, who is from Georgia, was kidnapped two weeks ago by a gang leader after traveling to Haiti.`\
 https://nytimes.com/2024/04/01/world/americas/haiti-kidnapping-youtuber-released.html
