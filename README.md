@@ -1,3 +1,7 @@
+**‘Star Trek’ Fan Leaves Behind a Collection Like No One Has Done Before**\
+`When Troy Nelson died, his shelves were filled to the rafters with memorabilia from the popular franchise. Soon, the massive collection will be boldly going, going, gone.`\
+https://nytimes.com/2024/04/01/arts/television/star-trek-troy-nelson.html
+
 **L.S.U.’s Kim Mulkey Courts Controversy With Style**\
 `Inside the coach’s winning fashion playbook.`\
 https://nytimes.com/2024/04/01/style/kim-mulkey-fashion-lsu-basketball.html
@@ -6,8 +10,8 @@ https://nytimes.com/2024/04/01/style/kim-mulkey-fashion-lsu-basketball.html
 `April is National Poetry Month! Test your knowledge on a variety of verse with this short quiz.`\
 https://nytimes.com/interactive/2024/04/01/books/review/poems-places-quiz.html
 
-**At a tent camp outside Israel’s Parliament, protesters explain why Netanyahu must go.**\
-`By Cassandra Vinograd`\
+**Outside Israel’s Parliament, Protesters Explain Why Netanyahu Must Go**\
+`A tent camp is a temporary home for some of the thousands of Israelis who are mounting a four-day protest calling for early elections to oust the Israeli prime minister.`\
 https://nytimes.com/2024/04/01/world/middleeast/protests-benjamin-netanyahu.html
 
 **Biden hosts White House Easter egg roll; Trump heads to battleground states.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/business/media/sports-illustrated-manoj-bhargava-
 **Severe Weather, Including Tornadoes and Large Hail, Threatens Parts of U.S.**\
 `A powerful storm system was expected to lash sections of Indiana, Illinois, Missouri, Oklahoma and Texas on Monday before moving east, forecasters said.`\
 https://nytimes.com/2024/04/01/us/tornado-severe-weather-forecast.html
-
-**Winning City Halls, Turkish Opposition Strikes Blow to Erdogan**\
-`A raft of local election victories by rivals of President Recep Tayyip Erdogan’s governing party could serve as a check on his power.`\
-https://nytimes.com/2024/04/01/world/middleeast/turkey-election-results.html
 
