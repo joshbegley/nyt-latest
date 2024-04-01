@@ -1,3 +1,11 @@
+**Florida Court Allows 6-Week Abortion Ban, but Voters Will Get to Weigh In**\
+`The Florida Supreme Court found that the State Constitution’s privacy protections do not extend to abortion. But it also allowed a ballot question on whether to expand abortion access.`\
+https://nytimes.com/2024/04/01/us/florida-abortion-law-supreme-court.html
+
+**Read the Florida Supreme Court’s Ruling on the Constitutional Amendment**\
+`The Florida Supreme Court allowed voters to decide this fall whether to expand abortion access, ruling unanimously that a proposed constitutional amendment that would guarantee the right to abortion “before viability,” usually around 24 weeks, could go on the November ballot.`\
+https://nytimes.com/interactive/2024/04/01/us/florida-abortion-constitutional-amendment.html
+
 **Oregon Is Recriminalizing Drugs. Here’s What Portland Learned.**\
 `Oregon’s governor has signed a measure to reimpose criminal penalties for hard drugs. Mayor Ted Wheeler of Portland talks about why the experiment “failed.”`\
 https://nytimes.com/2024/04/01/us/oregon-drug-law-portland-mayor.html
