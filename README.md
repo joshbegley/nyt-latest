@@ -1,3 +1,11 @@
+**Oregon Is Recriminalizing Drugs. Here’s What Portland Learned.**\
+`Oregon’s governor has signed a measure to reimpose criminal penalties for hard drugs. Mayor Ted Wheeler of Portland talks about why the experiment “failed.”`\
+https://nytimes.com/2024/04/01/us/oregon-drug-law-portland-mayor.html
+
+**Unproductive Agriculture Is Holding Africa Back**\
+`Farm output has grown, but at a high cost — and that’s a problem for the region.`\
+https://nytimes.com/2024/04/01/opinion/subsaharan-africa-agriculture-farming.html
+
 **Review: Millepied and Muhly, Partners in Space and Sound**\
 `Benjamin Millepied and Nico Muhly’s evening of minimally accessorized dance and contemporary music feels right at home at the Philharmonie in Paris.`\
 https://nytimes.com/2024/04/01/arts/dance/review-benjamin-millepied-nico-muhly-philharmonie.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/01/nyregion/cecilia-gentili-fentanyl-death.html
 **A Top Iranian Commander Killed in Airstrike in Syria, State Media Says**\
 `The site of a strike close to the Iranian consulate in Damascus, Syria.`\
 https://nytimes.com/video/world/middleeast/100000009391230/damascus-strike-iran-syria.html
-
-**Pressure Is Building on Netanyahu From All Sides**\
-`The prime minister is being pulled in opposing directions by his coalition partners, Israeli public opinion and allies abroad, with the war in Gaza and his political future in the balance.`\
-https://nytimes.com/2024/04/01/world/middleeast/netanyahu-protest-pressure.html
-
-**Barbara Rush, Award-Winning TV and Film Actress, Dies at 97**\
-`She received a Golden Globe in 1954 as that year’s rising star and appeared in movies alongside Dean Martin, Frank Sinatra and Paul Newman.`\
-https://nytimes.com/2024/04/01/movies/barbara-rush-dead.html
 
