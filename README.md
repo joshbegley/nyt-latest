@@ -1,3 +1,7 @@
+**In First Court Appearance, U.S.S. Cole Case Judge Sets Goal of 2025 Trial**\
+`If Col. Matthew S. Fitzgerald meets his goal, the trial would start a quarter century after the terrorist attack that killed 17 U.S. sailors off Yemen.`\
+https://nytimes.com/2024/04/01/us/politics/uss-cole-judge-gitmo.html
+
 **Will MAGA Republicans Block Baltimore’s Rebuilding?**\
 `In Congress, rebuilding the Key Bridge could be the next Ukraine funding debate.`\
 https://nytimes.com/2024/04/01/opinion/baltimore-bridge-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/26/opinion/thepoint/mike-johnson-is-trying-to-e
 **In Kyoto, Five Hotels to Add to Your Travel Wish List**\
 `The city’s newest crop of hotels — from a luxury retreat on a historic estate to a 10-room inn surrounded by forested mountains — were worth the wait.`\
 https://nytimes.com/2024/04/01/t-magazine/kyoto-hotel-guide.html
-
-**Tuesday Briefing: Iran Said Israel Killed Top Generals**\
-`Also, the U.S. could vote on aid to Ukraine in the coming weeks.`\
-https://nytimes.com/2024/04/01/world/asia/iran-israel-strike-ukraine-asia.html
 
