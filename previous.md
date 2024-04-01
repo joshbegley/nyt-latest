@@ -1,3 +1,11 @@
+**Severe Weather, Including Tornadoes and Large Hail, Threatens Parts of U.S.**\
+`A powerful storm system was expected to lash sections of Indiana, Illinois, Missouri, Oklahoma and Texas on Monday before moving east, forecasters said.`\
+https://nytimes.com/2024/04/01/us/tornado-severe-weather-forecast.html
+
+**Winning City Halls, Turkish Opposition Strikes Blow to Erdogan**\
+`A raft of local election victories by rivals of President Recep Tayyip Erdogan’s governing party could serve as a check on his power.`\
+https://nytimes.com/2024/04/01/world/middleeast/turkey-election-results.html
+
 **Hospitals Must Get Written Patient Consent for Pelvic Exams, H.H.S. Says**\
 `In a letter to teaching hospitals, the federal health agency said that institutions could lose Medicare funding if they didn’t comply.`\
 https://nytimes.com/2024/04/01/health/pelvic-exam-consent-unconcious.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/01/podcasts/the-daily/nbc-ronna-mcdaniel.html
 **The Bizarre Chinese Murder Plot Behind Netflix’s ‘3 Body Problem’**\
 `Lin Qi, a billionaire who helped produce the science-fiction hit, was poisoned to death by a disgruntled executive. His attacker now faces the death penalty.`\
 https://nytimes.com/2024/04/01/world/asia/china-three-body-problem-murder.html
-
-**Israeli troops pull out of a major Gaza hospital after a two-week battle.**\
-`By Aaron Boxerman and Iyad Abuheweila`\
-https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/israeli-troops-pull-out-of-a-major-gaza-hospital-after-a-two-week-battle
-
-**01mideast-crisis**\
-`Israeli Military Withdraws From Al-Shifa Hospital After Raid`\
-https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news
 
