@@ -1,3 +1,7 @@
+**How I Learned to Love the Rerun Election**\
+`Have you got the Biden-Trump blues?`\
+https://nytimes.com/2024/04/01/us/politics/trump-biden-election-rerun.html
+
 **Scottish Hate Crime Law Takes Effect as Critics Warn It Will Stifle Speech**\
 `The legislation expands protections and creates a new charge of “stirring up hatred.” The “Harry Potter” author J.K. Rowling criticized the law for omitting women and said it was “wide open to abuse.”`\
 https://nytimes.com/2024/04/01/world/europe/scotland-hate-crime-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/world/asia/iran-israel-strike-ukraine-asia.html
 **Lou Conter, Last Survivor of the Battleship Arizona, Dies at 102**\
 `Escaping injury in the Japanese attack on the ship in Pearl Harbor on Dec. 7, 1941, he went on to help in recovering bodies and putting out fires.`\
 https://nytimes.com/2024/04/01/us/lou-conter-dead.html
-
-**3 Top Iranian Commanders Are Reported Killed in Israeli Strike in Syria**\
-`The airstrike on an Iranian Embassy building was one of the biggest attacks yet in a shadow war that has increasingly been moving into the open.`\
-https://nytimes.com/2024/04/01/world/middleeast/iran-commanders-killed-syria-israel.html
 

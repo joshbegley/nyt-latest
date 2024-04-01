@@ -1,3 +1,7 @@
+**How I Learned to Love the Rerun Election**\
+`Have you got the Biden-Trump blues?`\
+https://nytimes.com/2024/04/01/us/politics/trump-biden-election-rerun.html
+
 **Google to Delete Billions of Chrome Browser Records in Latest Settlement**\
 `The internet giant resolved a lawsuit that claimed it had deceived users by tracking their web activity in the Chrome browser’s private setting.`\
 https://nytimes.com/2024/04/01/technology/google-chrome-browser-data.html
