@@ -1,3 +1,7 @@
+**A Solar Eclipse Means Big Science**\
+`To study a eclipse you need cameras, rockets, giant balloons and beehives.`\
+https://nytimes.com/interactive/2024/04/01/science/total-solar-eclipse-science-research.html
+
 **Read the Florida Supreme Court’s Ruling on the Abortion Ban**\
 `The Florida Supreme Court overturned decades of legal precedent in ruling that the State Constitution’s privacy protections do not extend to abortion, effectively allowing Florida to ban the procedure after six weeks of pregnancy.`\
 https://nytimes.com/interactive/2024/04/01/us/florida-abortion-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/business/trump-media-stock.html
 **There’s Valuable Speech on Social Media, Even for Kids**\
 `There are ways to limit their social media exposure without damaging constitutional rights.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/social-media-children
-
-**Michael Stuhlbarg Is Attacked in Central Park Before ‘Patriots’ Debut**\
-`The actor was walking on the Upper East Side on Sunday when a man threw a rock at him, striking the back of his neck, the police said. He is set to appear on Broadway on Monday evening.`\
-https://nytimes.com/2024/04/01/theater/michael-stuhlbarg-attack-patriots.html
 
