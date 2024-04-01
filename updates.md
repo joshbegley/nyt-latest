@@ -1,3 +1,11 @@
+**‘Oppenheimer’ Hits Nuclear-Scarred Japan, 8 Months After U.S. Premiere**\
+`While some viewers lamented the movie’s exclusion of scenes from Hiroshima or Nagasaki, others said they recognized that it had another story to tell.`\
+https://nytimes.com/2024/04/01/world/asia/oppenheimer-opens-japan.html
+
+**Word of the Day: tenuous**\
+`This word has appeared in 175 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/01/learning/word-of-the-day-tenuous.html
+
 **What’s on TV This Week: ‘Blade’ and the CMT Music Awards**\
 `Syfy airs the 1998 vampire movie. The CMT Music Awards are live in Austin, Texas.`\
 https://nytimes.com/2024/04/01/arts/television/whats-on-tv-this-week-blade-and-the-cmt-music-awards.html
