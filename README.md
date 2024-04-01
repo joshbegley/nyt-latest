@@ -1,3 +1,11 @@
+**Google to Delete Billions of Chrome Browser Records in Latest Settlement**\
+`The internet giant resolved a lawsuit that claimed it had deceived users by tracking their web activity in the Chrome browser’s private setting.`\
+https://nytimes.com/2024/04/01/technology/google-to-delete-billions-of-chrome-browser-records-in-latest-settlement.html
+
+**Florida’s Top Court Allowed a Six-Week Abortion Ban**\
+`Also, an Israeli strike killed top Iranian commanders, Iran said. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/04/01/briefing/florida-court-abortion-israel-strike-iran-commanders.html
+
 **Warner Bros. Discovery Directors Step Down Amid Antitrust Inquiry**\
 `The Justice Department was investigating whether the two violated a law forbidding simultaneous service on the boards of competitors.`\
 https://nytimes.com/2024/04/01/business/media/warner-bros-discovery-directors-antitrust.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/01/world/middleeast/iran-commanders-killed-syria-isr
 **Netanyahu Says Israel Will Shut Down Al Jazeera in Israel**\
 `The move came after Israeli lawmakers passed a new law that allows the government to temporarily shutter foreign media outlets deemed to be a risk to national security.`\
 https://nytimes.com/2024/04/01/world/middleeast/al-jazeera-israel-netanyahu.html
-
-**A Solar Eclipse Means Big Science**\
-`To study a eclipse you need cameras, rockets, giant balloons and beehives.`\
-https://nytimes.com/interactive/2024/04/01/science/total-solar-eclipse-science-research.html
-
-**Read the Florida Supreme Court’s Ruling on the Abortion Ban**\
-`The Florida Supreme Court overturned decades of legal precedent in ruling that the State Constitution’s privacy protections do not extend to abortion, effectively allowing Florida to ban the procedure after six weeks of pregnancy.`\
-https://nytimes.com/interactive/2024/04/01/us/florida-abortion-ban.html
 
