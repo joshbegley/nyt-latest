@@ -1,3 +1,7 @@
+**In First Court Appearance, U.S.S. Cole Case Judge Sets Goal of 2025 Trial**\
+`If Col. Matthew S. Fitzgerald meets his goal, the trial would start a quarter century after the terrorist attack that killed 17 U.S. sailors off Yemen.`\
+https://nytimes.com/2024/04/01/us/politics/uss-cole-judge-gitmo.html
+
 **Will MAGA Republicans Block Baltimore’s Rebuilding?**\
 `In Congress, rebuilding the Key Bridge could be the next Ukraine funding debate.`\
 https://nytimes.com/2024/04/01/opinion/baltimore-bridge-republicans.html
