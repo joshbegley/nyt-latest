@@ -1,3 +1,7 @@
+**At a tent camp outside Israel’s Parliament, protesters explain why Netanyahu must go.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/2024/04/01/world/middleeast/protests-benjamin-netanyahu.html
+
 **L.S.U.’s Kim Mulkey Courts Controversy With Style**\
 `Inside the coach’s winning fashion playbook.`\
 https://nytimes.com/2024/04/01/style/kim-mulkey-fashion-lsu-basketball.html
