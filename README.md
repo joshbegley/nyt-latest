@@ -26,9 +26,9 @@ https://nytimes.com/2024/04/01/nyregion/cecilia-gentili-fentanyl-death.html
 `The site of a strike close to the Iranian consulate in Damascus, Syria.`\
 https://nytimes.com/video/world/middleeast/100000009391230/damascus-strike-iran-syria.html
 
-**Pressure is building on Netanyahu from all sides.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/netanyahu-protest-pressure
+**Pressure Is Building on Netanyahu From All sides.**\
+`The prime minister is being pulled in opposing directions by his coalition partners, Israeli public opinion and allies abroad, with the war in Gaza and his political future in the balance.`\
+https://nytimes.com/2024/04/01/world/middleeast/netanyahu-protest-pressure.html
 
 **Barbara Rush, Award-Winning TV and Film Actress, Dies at 97**\
 `She received a Golden Globe in 1954 as that year’s rising star and appeared in movies alongside Dean Martin, Frank Sinatra and Paul Newman.`\
