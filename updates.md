@@ -1,3 +1,11 @@
+**Oregon Is Recriminalizing Drugs. Here’s What Portland Learned.**\
+`Oregon’s governor has signed a measure to reimpose criminal penalties for hard drugs. Mayor Ted Wheeler of Portland talks about why the experiment “failed.”`\
+https://nytimes.com/2024/04/01/us/oregon-drug-law-portland-mayor.html
+
+**Unproductive Agriculture Is Holding Africa Back**\
+`Farm output has grown, but at a high cost — and that’s a problem for the region.`\
+https://nytimes.com/2024/04/01/opinion/subsaharan-africa-agriculture-farming.html
+
 **Review: Millepied and Muhly, Partners in Space and Sound**\
 `Benjamin Millepied and Nico Muhly’s evening of minimally accessorized dance and contemporary music feels right at home at the Philharmonie in Paris.`\
 https://nytimes.com/2024/04/01/arts/dance/review-benjamin-millepied-nico-muhly-philharmonie.html
