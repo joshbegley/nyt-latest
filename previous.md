@@ -1,3 +1,7 @@
+**American YouTube Personality Is Released After Being Kidnapped in Haiti**\
+`Adisson Pierre Maalouf, who is from Georgia, was kidnapped two weeks ago by a gang leader after traveling to Haiti.`\
+https://nytimes.com/2024/04/01/world/americas/haiti-kidnapping-youtuber-released.html
+
 **California’s Fast-Food Workers Just Got a Pay Bump**\
 `They now must be paid at least $20 an hour, near the top of what minimum-wage earners make anywhere in the country.`\
 https://nytimes.com/2024/04/01/us/california-fast-food-minimum-wage.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/business/dealbook/auto-execs-call-for-new-measure
 **The New Climate Tech**\
 `Ambitious projects are trying to engineer the atmosphere.`\
 https://nytimes.com/2024/04/01/briefing/climate-technology-carbon-capture.html
-
-**Protests Intensify Against Netanyahu, and China Tries to Sway U.S. Politics**\
-`Plus, fast food workers get a raise.`\
-https://nytimes.com/2024/04/01/podcasts/israel-protests-china-politics.html
 
