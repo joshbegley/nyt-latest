@@ -1,3 +1,11 @@
+**2 Men Charged With Supplying Drugs That Killed Cecilia Gentili**\
+`Ms. Gentili, a transgender activist and actress, died in February after buying fentanyl-laced heroin, prosecutors said.`\
+https://nytimes.com/2024/04/01/nyregion/cecilia-gentili-fentanyl-death.html
+
+**A Top Iranian Commander Killed in Airstrike in Syria, State Media Says**\
+`The site of a strike close to the Iranian consulate in Damascus, Syria.`\
+https://nytimes.com/video/world/middleeast/100000009391230/damascus-strike-iran-syria.html
+
 **Pressure is building on Netanyahu from all sides.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/netanyahu-protest-pressure
