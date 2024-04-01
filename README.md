@@ -1,3 +1,7 @@
+**Trump Media Shares Slump as Early Fervor Fades**\
+`A rapid fall in price erased billions of dollars in the market value of the parent company of Truth Social, eating into some of the gains made in the volatile stock’s public debut.`\
+https://nytimes.com/2024/04/01/business/trump-media-stock.html
+
 **There’s Valuable Speech on Social Media, Even for Kids**\
 `There are ways to limit their social media exposure without damaging constitutional rights.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/social-media-children
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/movies/barbara-rush-dead.html
 **Johnson Outlines Plan for Ukraine Aid; House Could Act Within Weeks**\
 `The G.O.P. speaker’s proposed conditions for sending a fresh infusion of military assistance to Kyiv are the strongest sign to date that he plans to defy critics in his own party and push through the aid package.`\
 https://nytimes.com/2024/04/01/us/politics/mike-johnson-ukraine-aid.html
-
-**Person Infected With Bird Flu in Texas After Contact With Cattle**\
-`The case adds another worrying wrinkle to a global outbreak that has devastated bird and marine mammal populations, and recently appeared in cattle herds.`\
-https://nytimes.com/2024/04/01/health/bird-flu-cattle-human.html
 
