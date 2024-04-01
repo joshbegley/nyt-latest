@@ -1,3 +1,7 @@
+**Talking (or Not) About Your Cancer**\
+`Responses to an Opinion essay by Dr. Daniela J. Lamas. Also: “political anxieties”; a mystery from England’s Bronze Age.`\
+https://nytimes.com/2024/04/01/opinion/cancer-diagnosis.html
+
 **The target of the Damascus strike is among the most senior Iranian commanders believed to have been killed.**\
 `By Farnaz Fassihi and Ronen Bergman`\
 https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/airstrike-in-damascus-kills-top-iranian-commander-iranian-media-say

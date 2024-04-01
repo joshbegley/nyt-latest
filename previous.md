@@ -1,3 +1,7 @@
+**Talking (or Not) About Your Cancer**\
+`Responses to an Opinion essay by Dr. Daniela J. Lamas. Also: “political anxieties”; a mystery from England’s Bronze Age.`\
+https://nytimes.com/2024/04/01/opinion/cancer-diagnosis.html
+
 **The target of the Damascus strike is among the most senior Iranian commanders believed to have been killed.**\
 `By Farnaz Fassihi and Ronen Bergman`\
 https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/airstrike-in-damascus-kills-top-iranian-commander-iranian-media-say
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/arts/music/future-metro-boomin-billboard-chart.ht
 **‘Star Trek’ Fan Leaves Behind a Collection Like No One Has Done Before**\
 `When Troy Nelson died, his shelves were filled to the rafters with memorabilia from the popular franchise. Soon, the massive collection will be boldly going, going, gone.`\
 https://nytimes.com/2024/04/01/arts/television/star-trek-troy-nelson.html
-
-**L.S.U.’s Kim Mulkey Courts Controversy With Style**\
-`Inside the coach’s winning fashion playbook.`\
-https://nytimes.com/2024/04/01/style/kim-mulkey-fashion-lsu-basketball.html
 
