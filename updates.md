@@ -1,3 +1,15 @@
+**Scottish Hate Crime Law Takes Effect as Critics Warn It Will Stifle Speech**\
+`The legislation expands protections and creates a new charge of “stirring up hatred.” The “Harry Potter” author J.K. Rowling criticized the law for omitting women and said it was “wide open to abuse.”`\
+https://nytimes.com/2024/04/01/world/europe/scotland-hate-crime-law.html
+
+**Google to Delete Billions of Chrome Browser Records in Latest Settlement**\
+`The internet giant resolved a lawsuit that claimed it had deceived users by tracking their web activity in the Chrome browser’s private setting.`\
+https://nytimes.com/2024/04/01/technology/google-to-delete-billions-of-chrome-browser-records-in-latest-settlement.html
+
+**Florida’s Top Court Allowed a Six-Week Abortion Ban**\
+`Also, an Israeli strike killed top Iranian commanders, Iran said. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/04/01/briefing/florida-court-abortion-israel-strike-iran-commanders.html
+
 **Warner Bros. Discovery Directors Step Down Amid Antitrust Inquiry**\
 `The Justice Department was investigating whether the two violated a law forbidding simultaneous service on the boards of competitors.`\
 https://nytimes.com/2024/04/01/business/media/warner-bros-discovery-directors-antitrust.html
