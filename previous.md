@@ -1,3 +1,7 @@
+**These Spelling Bee Hint Writers Want to Help You Get to Genius**\
+`Four enthusiasts talk about why they wake up in the middle of the night to write hints for other Spelling Bee solvers.`\
+https://nytimes.com/2024/04/01/crosswords/spelling-bee-hints.html
+
 **A major issue in cease-fire talks: How can people displaced from northern Gaza go back?**\
 `By Adam Rasgon and Edward Wong`\
 https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/a-major-issue-in-cease-fire-talks-how-can-people-displaced-from-northern-gaza-go-back
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news
 **How to Breathe With the Trees**\
 `Our poet laureate Ada Limón is on a mission to reconnect us to nature.`\
 https://nytimes.com/2024/04/01/opinion/ada-limon-poet-nature.html
-
-**In ‘Godzilla x Kong,’ They Came. They Pounced. Who Suffers?**\
-`The latest sequel in the Monsterverse has plenty of destruction, but little concern about the death toll.`\
-https://nytimes.com/2024/04/01/movies/godzilla-kong-destruction.html
 

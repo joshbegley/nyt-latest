@@ -1,3 +1,7 @@
+**These Spelling Bee Hint Writers Want to Help You Get to Genius**\
+`Four enthusiasts talk about why they wake up in the middle of the night to write hints for other Spelling Bee solvers.`\
+https://nytimes.com/2024/04/01/crosswords/spelling-bee-hints.html
+
 **A major issue in cease-fire talks: How can people displaced from northern Gaza go back?**\
 `By Adam Rasgon and Edward Wong`\
 https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/a-major-issue-in-cease-fire-talks-how-can-people-displaced-from-northern-gaza-go-back
