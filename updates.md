@@ -1,3 +1,11 @@
+**‘Star Trek’ Fan Leaves Behind a Collection Like No One Has Done Before**\
+`When Troy Nelson died, his shelves were filled to the rafters with memorabilia from the popular franchise. Soon, the massive collection will be boldly going, going, gone.`\
+https://nytimes.com/2024/04/01/arts/television/star-trek-troy-nelson.html
+
+**Outside Israel’s Parliament, Protesters Explain Why Netanyahu Must Go**\
+`A tent camp is a temporary home for some of the thousands of Israelis who are mounting a four-day protest calling for early elections to oust the Israeli prime minister.`\
+https://nytimes.com/2024/04/01/world/middleeast/protests-benjamin-netanyahu.html
+
 **At a tent camp outside Israel’s Parliament, protesters explain why Netanyahu must go.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/2024/04/01/world/middleeast/protests-benjamin-netanyahu.html
