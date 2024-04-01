@@ -1,3 +1,7 @@
+**Warner Bros. Discovery Directors Step Down Amid Antitrust Inquiry**\
+`The Justice Department was investigating whether the two violated a law forbidding simultaneous service on the boards of competitors.`\
+https://nytimes.com/2024/04/01/business/media/warner-bros-discovery-directors-antitrust.html
+
 **What Excites You About This Election Year?**\
 `Not everyone feels like tuning out.`\
 https://nytimes.com/2024/04/01/briefing/what-excites-you-about-this-election-year.html
