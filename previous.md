@@ -1,3 +1,7 @@
+**Johnson Outlines Plan for Ukraine Aid; House Could Act Within Weeks**\
+`The G.O.P. speaker’s proposed conditions for sending a fresh infusion of military assistance to Kyiv are the strongest sign to date that he plans to defy critics in his own party and push through the aid package.`\
+https://nytimes.com/2024/04/01/us/politics/mike-johnson-ukraine-aid.html
+
 **Person Infected With Bird Flu in Texas After Contact With Cattle**\
 `The case adds another worrying wrinkle to a global outbreak that has devastated bird and marine mammal populations, and recently appeared in cattle herds.`\
 https://nytimes.com/2024/04/01/health/bird-flu-cattle-human.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/opinion/cancer-diagnosis.html
 **The target of the Damascus strike is among the most senior Iranian commanders believed to have been killed.**\
 `By Farnaz Fassihi and Ronen Bergman`\
 https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/airstrike-in-damascus-kills-top-iranian-commander-iranian-media-say
-
-**Once Upon a Time, the World of Picture Books Came to Life**\
-`The tale behind a new museum of children’s literature is equal parts imagination, chutzpah and “The Little Engine That Could.”`\
-https://nytimes.com/2024/04/01/books/rabbit-hole-kansas-city.html
 

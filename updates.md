@@ -1,3 +1,7 @@
+**Johnson Outlines Plan for Ukraine Aid; House Could Act Within Weeks**\
+`The G.O.P. speaker’s proposed conditions for sending a fresh infusion of military assistance to Kyiv are the strongest sign to date that he plans to defy critics in his own party and push through the aid package.`\
+https://nytimes.com/2024/04/01/us/politics/mike-johnson-ukraine-aid.html
+
 **Person Infected With Bird Flu in Texas After Contact With Cattle**\
 `The case adds another worrying wrinkle to a global outbreak that has devastated bird and marine mammal populations, and recently appeared in cattle herds.`\
 https://nytimes.com/2024/04/01/health/bird-flu-cattle-human.html
