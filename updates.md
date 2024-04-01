@@ -1,3 +1,7 @@
+**Man Charged With Killing Officer Was Seen With Gun Beforehand, D.A. Says**\
+`Another officer patrolling Far Rockaway said he noticed Guy Rivera carrying a gun before he fatally shot Detective Jonathan Diller, according to the authorities.`\
+https://nytimes.com/2024/04/01/nyregion/jonathan-diller-nypd-shooting.html
+
 **We Want to Know: What’s Your No. 1 New York City Restaurant?**\
 `The Times’s critic, Pete Wells, has shared his second-annual list of the city’s best, but tell us what tops yours.`\
 https://nytimes.com/2024/04/01/dining/whats-your-favorite-restaurant.html
