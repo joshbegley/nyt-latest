@@ -1,3 +1,7 @@
+**Man Charged With Killing Officer Was Seen With Gun Beforehand, D.A. Says**\
+`Another officer patrolling Far Rockaway said he noticed Guy Rivera carrying a gun before he fatally shot Detective Jonathan Diller, according to the authorities.`\
+https://nytimes.com/2024/04/01/nyregion/jonathan-diller-nypd-shooting.html
+
 **We Want to Know: What’s Your No. 1 New York City Restaurant?**\
 `The Times’s critic, Pete Wells, has shared his second-annual list of the city’s best, but tell us what tops yours.`\
 https://nytimes.com/2024/04/01/dining/whats-your-favorite-restaurant.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/briefing/florida-court-abortion-israel-strike-ira
 **Warner Bros. Discovery Directors Step Down Amid Antitrust Inquiry**\
 `The Justice Department was investigating whether the two violated a law forbidding simultaneous service on the boards of competitors.`\
 https://nytimes.com/2024/04/01/business/media/warner-bros-discovery-directors-antitrust.html
-
-**What Excites You About This Election Year?**\
-`Not everyone feels like tuning out.`\
-https://nytimes.com/2024/04/01/briefing/what-excites-you-about-this-election-year.html
 
