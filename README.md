@@ -1,3 +1,7 @@
+**Person Infected With Bird Flu in Texas After Contact With Cattle**\
+`The case adds another worrying wrinkle to a global outbreak that has devastated bird and marine mammal populations, and recently appeared in cattle herds.`\
+https://nytimes.com/2024/04/01/health/bird-flu-cattle-human.html
+
 **‘A horror movie’: One man describes the aftermath of Israel’s raid on Al-Shifa.**\
 `By Hiba Yazbek and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/a-horror-movie-one-man-describes-the-aftermath-of-israels-raid-on-al-shifa
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/airstrike-i
 **Once Upon a Time, the World of Picture Books Came to Life**\
 `The tale behind a new museum of children’s literature is equal parts imagination, chutzpah and “The Little Engine That Could.”`\
 https://nytimes.com/2024/04/01/books/rabbit-hole-kansas-city.html
-
-**Trump’s Call for Israel to ‘Finish Up’ War Alarms Some on the Right**\
-`Recent remarks he made urging an end to the Gaza conflict, with no insistence on freeing Israeli hostages first, were another departure from conservatives’ support for Benjamin Netanyahu.`\
-https://nytimes.com/2024/04/01/us/politics/trump-israel-conservative.html
 
