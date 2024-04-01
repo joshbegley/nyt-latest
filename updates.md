@@ -1,3 +1,11 @@
+**Will A.I. Boost Productivity? Companies Sure Hope So.**\
+`Economists doubt that artificial intelligence is already visible in productivity data. Big companies, however, talk often about adopting it to improve efficiency.`\
+https://nytimes.com/2024/04/01/business/economy/artificial-intelligence-productivity.html
+
+**How One Tech Skeptic Decided A.I. Might Benefit the Middle Class**\
+`David Autor, an M.I.T. economist and tech contrarian, argues that A.I. is fundamentally different from past waves of computerization.`\
+https://nytimes.com/2024/04/01/business/ai-tech-economy.html
+
 **Future and Metro Boomin’s First Joint Album Opens Big at No. 1**\
 `The Atlanta rapper and star producer topped Ariana Grande’s first-week total for “Eternal Sunshine,” but Beyoncé’s “Cowboy Carter” may beat them all next week.`\
 https://nytimes.com/2024/04/01/arts/music/future-metro-boomin-billboard-chart.html
