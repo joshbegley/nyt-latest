@@ -1,3 +1,7 @@
+**Don Winslow Is Ready to Trade His Pen for a Protest Sign**\
+`“City in Ruins” is the third novel in Winslow’s Danny Ryan trilogy and, he says, his last book. He’s retiring in part to invest more time into political activism.`\
+https://nytimes.com/2024/04/01/books/booksupdate/don-winslow-city-in-ruins.html
+
 **Gloriously Crispy Chicken for Tonight**\
 `Put Christian Reynoso’s schnitzel-like chile crisp chicken cutlets on your cooking bucket list immediately.`\
 https://nytimes.com/2024/04/01/dining/gloriously-crispy-chicken-for-tonight.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/world/middleeast/protests-benjamin-netanyahu.html
 **Biden hosts White House Easter egg roll; Trump heads to battleground states.**\
 `By E. Justin Swanson`\
 https://nytimes.com/live/2024/04/01/us/biden-trump-election/biden-hosts-white-house-easter-egg-roll-trump-heads-to-battleground-states
-
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/01/crosswords/connections-companion.html
 
