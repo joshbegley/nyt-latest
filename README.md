@@ -6,8 +6,8 @@ https://nytimes.com/2024/03/31/world/middleeast/netanyahu-israel-protests-cease-
 `Spectators showed up to celebrate the season.`\
 https://nytimes.com/2024/03/31/style/new-york-citys-easter-parade-where-springs-in-full-bloom.html
 
-**2,000 Motorists Stranded After Part of Highway 1 in California Collapses**\
-`Many stayed in temporary shelters, hotels and campgrounds overnight, while some slept in their cars.`\
+**2,000 Motorists Stranded After Part of California’s Highway 1 Collapses**\
+`Many stayed in temporary shelters, hotels and campgrounds overnight on Saturday, while some slept in their cars.`\
 https://nytimes.com/2024/03/31/us/california-highway-1-collapse-stranded.html
 
 **Obsessive to a Fault**\
