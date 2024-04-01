@@ -1,3 +1,11 @@
+**‘Oppenheimer’ Hits Nuclear-Scarred Japan, 8 Months After U.S. Premiere**\
+`While some viewers lamented the movie’s exclusion of scenes from Hiroshima or Nagasaki, others said they recognized that it had another story to tell.`\
+https://nytimes.com/2024/04/01/world/asia/oppenheimer-opens-japan.html
+
+**Word of the Day: tenuous**\
+`This word has appeared in 175 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/01/learning/word-of-the-day-tenuous.html
+
 **What’s on TV This Week: ‘Blade’ and the CMT Music Awards**\
 `Syfy airs the 1998 vampire movie. The CMT Music Awards are live in Austin, Texas.`\
 https://nytimes.com/2024/04/01/arts/television/whats-on-tv-this-week-blade-and-the-cmt-music-awards.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/01/business/india-economy-election.html
 **Quotation of the Day: For Farmers in France, a Fierce Fight to Survive**\
 `Quotation of the Day for Monday, April 1, 2024.`\
 https://nytimes.com/2024/03/31/pageoneplus/quotation-of-the-day-for-farmers-in-france-a-fierce-fight-to-survive.html
-
-**Beijing Deplores Taiwan’s Next President, but Welcomes an Old One**\
-`A rare visit to mainland China by Ma Ying-jeou, who’s now in the opposition, is a chance for political messaging on both sides of the Taiwan Strait.`\
-https://nytimes.com/2024/03/31/world/asia/taiwan-china-ma-ying-jeou.html
-
-**Protests Against Netanyahu Intensify as Cease-Fire Talks Resume**\
-`Thousands have taken to the streets of Israel to demand that Prime Minister Benjamin Netanyahu be replaced.`\
-https://nytimes.com/2024/03/31/world/middleeast/netanyahu-israel-protests-cease-fire.html
 
