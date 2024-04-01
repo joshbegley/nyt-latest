@@ -1,3 +1,11 @@
+**Review: Millepied and Muhly, Partners in Space and Sound**\
+`Benjamin Millepied and Nico Muhly’s evening of minimally accessorized dance and contemporary music feels right at home at the Philharmonie in Paris.`\
+https://nytimes.com/2024/04/01/arts/dance/review-benjamin-millepied-nico-muhly-philharmonie.html
+
+**Pressure Is Building on Netanyahu From All Sides**\
+`The prime minister is being pulled in opposing directions by his coalition partners, Israeli public opinion and allies abroad, with the war in Gaza and his political future in the balance.`\
+https://nytimes.com/2024/04/01/world/middleeast/netanyahu-protest-pressure.html
+
 **Pressure Is Building on Netanyahu From All sides.**\
 `The prime minister is being pulled in opposing directions by his coalition partners, Israeli public opinion and allies abroad, with the war in Gaza and his political future in the balance.`\
 https://nytimes.com/2024/04/01/world/middleeast/netanyahu-protest-pressure.html

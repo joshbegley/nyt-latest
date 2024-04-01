@@ -1,3 +1,7 @@
+**Review: Millepied and Muhly, Partners in Space and Sound**\
+`Benjamin Millepied and Nico Muhly’s evening of minimally accessorized dance and contemporary music feels right at home at the Philharmonie in Paris.`\
+https://nytimes.com/2024/04/01/arts/dance/review-benjamin-millepied-nico-muhly-philharmonie.html
+
 **Trump Media Shares Slump as Early Fervor Fades**\
 `A rapid fall in price erased billions of dollars in the market value of the parent company of Truth Social, eating into some of the gains made in the volatile stock’s public debut.`\
 https://nytimes.com/2024/04/01/business/trump-media-stock.html
@@ -26,15 +30,11 @@ https://nytimes.com/2024/04/01/nyregion/cecilia-gentili-fentanyl-death.html
 `The site of a strike close to the Iranian consulate in Damascus, Syria.`\
 https://nytimes.com/video/world/middleeast/100000009391230/damascus-strike-iran-syria.html
 
-**Pressure Is Building on Netanyahu From All sides.**\
+**Pressure Is Building on Netanyahu From All Sides**\
 `The prime minister is being pulled in opposing directions by his coalition partners, Israeli public opinion and allies abroad, with the war in Gaza and his political future in the balance.`\
 https://nytimes.com/2024/04/01/world/middleeast/netanyahu-protest-pressure.html
 
 **Barbara Rush, Award-Winning TV and Film Actress, Dies at 97**\
 `She received a Golden Globe in 1954 as that year’s rising star and appeared in movies alongside Dean Martin, Frank Sinatra and Paul Newman.`\
 https://nytimes.com/2024/04/01/movies/barbara-rush-dead.html
-
-**Johnson Outlines Plan for Ukraine Aid; House Could Act Within Weeks**\
-`The G.O.P. speaker’s proposed conditions for sending a fresh infusion of military assistance to Kyiv are the strongest sign to date that he plans to defy critics in his own party and push through the aid package.`\
-https://nytimes.com/2024/04/01/us/politics/mike-johnson-ukraine-aid.html
 
