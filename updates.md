@@ -1,3 +1,7 @@
+**Netanyahu Says Israel Will Shut Down Al Jazeera in Israel**\
+`The move came after Israeli lawmakers passed a new law that allows the government to temporarily shutter foreign media outlets deemed to be a risk to national security.`\
+https://nytimes.com/2024/04/01/world/middleeast/al-jazeera-israel-netanyahu.html
+
 **Netanyahu Says Israel Will Shut Down Al-Jazeera in Israel**\
 `The move came after Israeli lawmakers passed a new law that allows the government to temporarily shutter foreign media outlets deemed to be a risk to national security.`\
 https://nytimes.com/2024/04/01/world/middleeast/al-jazeera-israel-netanyahu.html
