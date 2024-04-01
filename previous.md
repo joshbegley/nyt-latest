@@ -1,3 +1,7 @@
+**Gloriously Crispy Chicken for Tonight**\
+`Put Christian Reynoso’s schnitzel-like chile crisp chicken cutlets on your cooking bucket list immediately.`\
+https://nytimes.com/2024/04/01/dining/gloriously-crispy-chicken-for-tonight.html
+
 **Will A.I. Boost Productivity? Companies Sure Hope So.**\
 `Economists doubt that artificial intelligence is already visible in productivity data. Big companies, however, talk often about adopting it to improve efficiency.`\
 https://nytimes.com/2024/04/01/business/economy/artificial-intelligence-productivity.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/01/us/biden-trump-election/biden-hosts-white-ho
 **The Connections Companion**\
 `In case you need some puzzle help.`\
 https://nytimes.com/2024/04/01/crosswords/connections-companion.html
-
-**American YouTube Personality Is Released After Being Kidnapped in Haiti**\
-`Adisson Pierre Maalouf, who is from Georgia, was kidnapped two weeks ago by a gang leader after traveling to Haiti.`\
-https://nytimes.com/2024/04/01/world/americas/haiti-kidnapping-youtuber-released.html
 
