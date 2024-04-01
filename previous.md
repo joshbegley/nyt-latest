@@ -1,3 +1,7 @@
+**What’s on TV This Week: ‘Blade’ and the CMT Music Awards**\
+`Syfy airs the 1998 vampire movie. The CMT Music Awards are live in Austin, Texas.`\
+https://nytimes.com/2024/04/01/arts/television/whats-on-tv-this-week-blade-and-the-cmt-music-awards.html
+
 **Monday Briefing**\
 `Protests against Israel’s prime minister.`\
 https://nytimes.com/2024/04/01/briefing/israel-protest-russia-defector-killing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/31/world/asia/taiwan-china-ma-ying-jeou.html
 **Protests Against Netanyahu Intensify as Cease-Fire Talks Resume**\
 `Thousands have taken to the streets of Israel to demand that Prime Minister Benjamin Netanyahu be replaced.`\
 https://nytimes.com/2024/03/31/world/middleeast/netanyahu-israel-protests-cease-fire.html
-
-**New York City’s Easter Parade, Where Spring’s in Full Bloom**\
-`Spectators showed up to celebrate the season.`\
-https://nytimes.com/2024/03/31/style/easter-parade-nyc.html
 

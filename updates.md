@@ -1,3 +1,7 @@
+**What’s on TV This Week: ‘Blade’ and the CMT Music Awards**\
+`Syfy airs the 1998 vampire movie. The CMT Music Awards are live in Austin, Texas.`\
+https://nytimes.com/2024/04/01/arts/television/whats-on-tv-this-week-blade-and-the-cmt-music-awards.html
+
 **5 Things to Know to Understand India’s Economy Under Modi**\
 `As Prime Minister Narendra Modi seeks a third term, India’s growth has received the attention of the world’s investors but inequality has deepened.`\
 https://nytimes.com/2024/04/01/business/india-economy-election-takeaways.html
