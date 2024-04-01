@@ -1,3 +1,7 @@
+**New York City’s Easter Parade, Where Spring’s in Full Bloom**\
+`Spectators showed up to celebrate the season.`\
+https://nytimes.com/2024/03/31/style/easter-parade-nyc.html
+
 **2,000 Motorists Stranded After Part of California’s Highway 1 Collapses**\
 `Many stayed in temporary shelters, hotels and campgrounds overnight on Saturday, while some slept in their cars.`\
 https://nytimes.com/2024/03/31/us/california-highway-1-collapse-stranded.html
