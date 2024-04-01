@@ -1,3 +1,7 @@
+**2,000 Motorists Stranded After Part of California’s Highway 1 Collapses**\
+`Many stayed in temporary shelters, hotels and campgrounds overnight on Saturday, while some slept in their cars.`\
+https://nytimes.com/2024/03/31/us/california-highway-1-collapse-stranded.html
+
 **Protests Against Netanyahu Intensify as Cease-Fire Talks Resume**\
 `Thousands have taken to the streets of Israel to demand that Prime Minister Benjamin Netanyahu be replaced.`\
 https://nytimes.com/2024/03/31/world/middleeast/netanyahu-israel-protests-cease-fire.html
