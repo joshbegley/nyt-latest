@@ -1,3 +1,11 @@
+**In Kyoto, Five Hotels to Add to Your Travel Wish List**\
+`The city’s newest crop of hotels — from a luxury retreat on a historic estate to a 10-room inn surrounded by forested mountains — were worth the wait.`\
+https://nytimes.com/2024/04/01/t-magazine/kyoto-hotel-guide.html
+
+**Tuesday Briefing: Iran Said Israel Killed Top Generals**\
+`Also, the U.S. could vote on aid to Ukraine in the coming weeks.`\
+https://nytimes.com/2024/04/01/world/asia/iran-israel-strike-ukraine-asia.html
+
 **Lou Conter, Last Survivor of the Battleship Arizona, Dies at 102**\
 `Escaping injury in the Japanese attack on the ship in Pearl Harbor on Dec. 7, 1941, he went on to help in recovering bodies and putting out fires.`\
 https://nytimes.com/2024/04/01/us/lou-conter-dead.html

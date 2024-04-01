@@ -1,3 +1,11 @@
+**In Kyoto, Five Hotels to Add to Your Travel Wish List**\
+`The city’s newest crop of hotels — from a luxury retreat on a historic estate to a 10-room inn surrounded by forested mountains — were worth the wait.`\
+https://nytimes.com/2024/04/01/t-magazine/kyoto-hotel-guide.html
+
+**Tuesday Briefing: Iran Said Israel Killed Top Generals**\
+`Also, the U.S. could vote on aid to Ukraine in the coming weeks.`\
+https://nytimes.com/2024/04/01/world/asia/iran-israel-strike-ukraine-asia.html
+
 **Lou Conter, Last Survivor of the Battleship Arizona, Dies at 102**\
 `Escaping injury in the Japanese attack on the ship in Pearl Harbor on Dec. 7, 1941, he went on to help in recovering bodies and putting out fires.`\
 https://nytimes.com/2024/04/01/us/lou-conter-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/01/us/florida-abortion-law-supreme-court.html
 **Read the Florida Supreme Court’s Ruling on the Constitutional Amendment**\
 `The Florida Supreme Court allowed voters to decide this fall whether to expand abortion access, ruling unanimously that a proposed constitutional amendment that would guarantee the right to abortion “before viability,” usually around 24 weeks, could go on the November ballot.`\
 https://nytimes.com/interactive/2024/04/01/us/florida-abortion-constitutional-amendment.html
-
-**Oregon Is Recriminalizing Drugs. Here’s What Portland Learned.**\
-`Oregon’s governor has signed a measure to reimpose criminal penalties for hard drugs. Mayor Ted Wheeler of Portland talks about why the experiment “failed.”`\
-https://nytimes.com/2024/04/01/us/oregon-drug-law-portland-mayor.html
-
-**Unproductive Agriculture Is Holding Africa Back**\
-`Farm output has grown, but at a high cost — and that’s a problem for the region.`\
-https://nytimes.com/2024/04/01/opinion/subsaharan-africa-agriculture-farming.html
 
