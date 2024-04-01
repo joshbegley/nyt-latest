@@ -1,3 +1,7 @@
+**A Transgender Holiday Fell on Easter. Republicans Lashed Out at Biden.**\
+`President Biden, in acknowledging both days, drew the ire of many on the right, who attacked him as besmirching Christianity.`\
+https://nytimes.com/2024/04/01/us/politics/transgender-easter-biden-trump.html
+
 **2 Men Charged With Supplying Drugs That Killed Cecilia Gentili**\
 `Ms. Gentili, a transgender activist and actress, died in February after buying fentanyl-laced heroin, prosecutors said.`\
 https://nytimes.com/2024/04/01/nyregion/cecilia-gentili-fentanyl-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/business/ncaa-womens-basketball-march-madness.htm
 **Betty Cole Dukert, Top ‘Meet the Press’ Producer, Dies at 96**\
 `She worked as a secretary before being hired as an associate producer at the NBC News public affairs show in 1956. She went on to spend 41 years there.`\
 https://nytimes.com/2024/04/01/business/media/betty-cole-dukert-dead.html
-
-**Nor’easter to Bring Springtime Snow to New England This Week**\
-`Sleet and rain will lash coastal areas, while heavy, wet snow is expected farther inland, particularly in areas of higher elevation, forecasters said.`\
-https://nytimes.com/2024/04/01/us/noreaster-forecast-weather.html
 

@@ -1,3 +1,7 @@
+**A Transgender Holiday Fell on Easter. Republicans Lashed Out at Biden.**\
+`President Biden, in acknowledging both days, drew the ire of many on the right, who attacked him as besmirching Christianity.`\
+https://nytimes.com/2024/04/01/us/politics/transgender-easter-biden-trump.html
+
 **2 Men Charged With Supplying Drugs That Killed Cecilia Gentili**\
 `Ms. Gentili, a transgender activist and actress, died in February after buying fentanyl-laced heroin, prosecutors said.`\
 https://nytimes.com/2024/04/01/nyregion/cecilia-gentili-fentanyl-death.html
