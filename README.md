@@ -1,3 +1,7 @@
+**Once Upon a Time, the World of Picture Books Came to Life**\
+`The tale behind a new museum of children’s literature is equal parts imagination, chutzpah and “The Little Engine That Could.”`\
+https://nytimes.com/2024/04/01/books/rabbit-hole-kansas-city.html
+
 **Trump’s Call for Israel to ‘Finish Up’ War Alarms Some on the Right**\
 `Recent private remarks he made urging an end to the Gaza conflict, with no insistence on freeing Israeli hostages first, were another departure from conservatives’ support for Benjamin Netanyahu.`\
 https://nytimes.com/2024/04/01/us/politics/trump-israel-conservative.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/style/kim-mulkey-fashion-lsu-basketball.html
 **Do You Know the Places Mentioned in These Poems?**\
 `April is National Poetry Month! Test your knowledge on a variety of verse with this short quiz.`\
 https://nytimes.com/interactive/2024/04/01/books/review/poems-places-quiz.html
-
-**Outside Israel’s Parliament, Protesters Explain Why Netanyahu Must Go**\
-`A tent camp is a temporary home for some of the thousands of Israelis who are mounting a four-day protest calling for early elections to oust the Israeli prime minister.`\
-https://nytimes.com/2024/04/01/world/middleeast/protests-benjamin-netanyahu.html
 
