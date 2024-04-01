@@ -1,3 +1,11 @@
+**There’s Valuable Speech on Social Media, Even for Kids**\
+`There are ways to limit their social media exposure without damaging constitutional rights.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/social-media-children
+
+**Michael Stuhlbarg Is Attacked in Central Park Before ‘Patriots’ Debut**\
+`The actor was walking on the Upper East Side on Sunday when a man threw a rock at him, striking the back of his neck, the police said. He is set to appear on Broadway on Monday evening.`\
+https://nytimes.com/2024/04/01/theater/michael-stuhlbarg-attack-patriots.html
+
 **Tropicana Las Vegas Closing Tuesday to Make Way for a Baseball Stadium**\
 `The hotel and casino, which opened in 1957, will end its storied run when it closes on Tuesday. A Major League Baseball stadium will rise in its place.`\
 https://nytimes.com/2024/04/01/us/tropicana-las-vegas-closes.html
