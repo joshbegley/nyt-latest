@@ -1,3 +1,7 @@
+**Google to Delete Billions of Chrome Browser Records in Latest Settlement**\
+`The internet giant resolved a lawsuit that claimed it had deceived users by tracking their web activity in the Chrome browser’s private setting.`\
+https://nytimes.com/2024/04/01/technology/google-chrome-browser-data.html
+
 **Scottish Hate Crime Law Takes Effect as Critics Warn It Will Stifle Speech**\
 `The legislation expands protections and creates a new charge of “stirring up hatred.” The “Harry Potter” author J.K. Rowling criticized the law for omitting women and said it was “wide open to abuse.”`\
 https://nytimes.com/2024/04/01/world/europe/scotland-hate-crime-law.html
