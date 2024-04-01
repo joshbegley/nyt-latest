@@ -1,3 +1,7 @@
+**Pressure Is Building on Netanyahu From All sides.**\
+`The prime minister is being pulled in opposing directions by his coalition partners, Israeli public opinion and allies abroad, with the war in Gaza and his political future in the balance.`\
+https://nytimes.com/2024/04/01/world/middleeast/netanyahu-protest-pressure.html
+
 **Trump Media Shares Slump as Early Fervor Fades**\
 `A rapid fall in price erased billions of dollars in the market value of the parent company of Truth Social, eating into some of the gains made in the volatile stock’s public debut.`\
 https://nytimes.com/2024/04/01/business/trump-media-stock.html
