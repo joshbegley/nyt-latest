@@ -1,3 +1,7 @@
+**Quotation of the Day: For Farmers in France, a Fierce Fight to Survive**\
+`Quotation of the Day for Monday, April 1, 2024.`\
+https://nytimes.com/2024/03/31/pageoneplus/quotation-of-the-day-for-farmers-in-france-a-fierce-fight-to-survive.html
+
 **Beijing Deplores Taiwan’s Next President, but Welcomes an Old One**\
 `A rare visit to mainland China by Ma Ying-jeou, who’s now in the opposition, is a chance for political messaging on both sides of the Taiwan Strait.`\
 https://nytimes.com/2024/03/31/world/asia/taiwan-china-ma-ying-jeou.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/03/31/us/politics/rfk-chavez.html
 **Monday Briefing: Israeli Anger at Netanyahu Grows**\
 `Plus, the new end-of-the-world fiction.`\
 https://nytimes.com/2024/03/31/briefing/monday-briefing-israeli-anger-at-netanyahu-grows.html
-
-**New Jersey Ballot Ruling Applies Only to Democratic Race, Judge Says**\
-`A federal judge who tossed out the state’s unique ballot design said his ruling would affect only the Democratic primary.`\
-https://nytimes.com/2024/03/31/nyregion/new-jersey-ballot-ruling-democrats.html
 

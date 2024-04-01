@@ -1,3 +1,7 @@
+**Quotation of the Day: For Farmers in France, a Fierce Fight to Survive**\
+`Quotation of the Day for Monday, April 1, 2024.`\
+https://nytimes.com/2024/03/31/pageoneplus/quotation-of-the-day-for-farmers-in-france-a-fierce-fight-to-survive.html
+
 **Beijing Deplores Taiwan’s Next President, but Welcomes an Old One**\
 `A rare visit to mainland China by Ma Ying-jeou, who’s now in the opposition, is a chance for political messaging on both sides of the Taiwan Strait.`\
 https://nytimes.com/2024/03/31/world/asia/taiwan-china-ma-ying-jeou.html
