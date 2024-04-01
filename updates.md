@@ -1,3 +1,11 @@
+**We Want to Know: What’s Your No. 1 New York City Restaurant?**\
+`The Times’s critic, Pete Wells, has shared his second-annual list of the city’s best, but tell us what tops yours.`\
+https://nytimes.com/2024/04/01/dining/whats-your-favorite-restaurant.html
+
+**The 100 Best Restaurants in New York City in 2024**\
+`Our critic, Pete Wells, drops his annual ranking. See what’s new, what moved and what left the list.`\
+https://nytimes.com/interactive/2024/dining/best-nyc-restaurants.html
+
 **In First Court Appearance, U.S.S. Cole Case Judge Sets Goal of 2025 Trial**\
 `If Col. Matthew S. Fitzgerald meets his goal, the trial would start a quarter century after the terrorist attack that killed 17 U.S. sailors off Yemen.`\
 https://nytimes.com/2024/04/01/us/politics/uss-cole-judge-gitmo.html
