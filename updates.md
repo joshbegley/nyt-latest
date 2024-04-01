@@ -1,3 +1,7 @@
+**Trump Media Shares Slump as Early Fervor Fades**\
+`A rapid fall in price erased billions of dollars in the market value of the parent company of Truth Social, eating into some of the gains made in the volatile stock’s public debut.`\
+https://nytimes.com/2024/04/01/business/trump-media-stock.html
+
 **There’s Valuable Speech on Social Media, Even for Kids**\
 `There are ways to limit their social media exposure without damaging constitutional rights.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/social-media-children
