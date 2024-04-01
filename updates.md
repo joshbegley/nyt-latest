@@ -1,3 +1,11 @@
+**Betty Cole Dukert, Top ‘Meet the Press’ Producer, Dies at 96**\
+`She worked as a secretary before being hired as an associate producer at the NBC News public affairs show in 1956. She went on to spend 41 years there.`\
+https://nytimes.com/2024/04/01/business/media/betty-cole-dukert-dead.html
+
+**Nor’easter to Bring Springtime Snow to New England This Week**\
+`Sleet and rain will lash coastal areas, while heavy, wet snow is expected farther inland, particularly in areas of higher elevation, forecasters said.`\
+https://nytimes.com/2024/04/01/us/noreaster-forecast-weather.html
+
 **10 Years of ‘Aladdin’ on Broadway**\
 `The musical “Aladdin” has been running on Broadway for 10 years, a bright spot in an industry that hasn’t fully recovered from the pandemic. Michael Paulson, a theater reporter for The New York Times, attended the March 28 anniversary performance.`\
 https://nytimes.com/video/theater/100000009391090/10-years-of-aladdin-on-broadway.html
