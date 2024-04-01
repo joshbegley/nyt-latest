@@ -1,3 +1,7 @@
+**The New Climate Tech**\
+`Ambitious projects are trying to engineer the atmosphere.`\
+https://nytimes.com/2024/04/01/briefing/climate-technology-carbon-capture.html
+
 **Protests Intensify Against Netanyahu, and China Tries to Sway U.S. Politics**\
 `Plus, fast food workers get a raise.`\
 https://nytimes.com/2024/04/01/podcasts/israel-protests-china-politics.html

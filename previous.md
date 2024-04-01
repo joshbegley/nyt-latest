@@ -1,3 +1,7 @@
+**The New Climate Tech**\
+`Ambitious projects are trying to engineer the atmosphere.`\
+https://nytimes.com/2024/04/01/briefing/climate-technology-carbon-capture.html
+
 **Protests Intensify Against Netanyahu, and China Tries to Sway U.S. Politics**\
 `Plus, fast food workers get a raise.`\
 https://nytimes.com/2024/04/01/podcasts/israel-protests-china-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/opinion/jewish-liberalism.html
 **$2.4 Million Homes in California**\
 `A 1911 bungalow with a guesthouse in Los Angeles, a French Normandy-style home in Alameda and a four-bedroom retreat in Ukiah.`\
 https://nytimes.com/2024/04/01/realestate/2-million-dollar-homes-california.html
-
-**April Fools’ Day Is Coming to a Political System Near You**\
-`There are many politicians who answer to the name.`\
-https://nytimes.com/2024/04/01/opinion/lake-lieberman-kennedy-trump-biden.html
 
