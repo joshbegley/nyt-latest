@@ -1,3 +1,11 @@
+**Pressure is building on Netanyahu from all sides.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/netanyahu-protest-pressure
+
+**Barbara Rush, Award-Winning TV and Film Actress, Dies at 97**\
+`She received a Golden Globe in 1954 as that year’s rising star and appeared in movies alongside Dean Martin, Frank Sinatra and Paul Newman.`\
+https://nytimes.com/2024/04/01/movies/barbara-rush-dead.html
+
 **Johnson Outlines Plan for Ukraine Aid; House Could Act Within Weeks**\
 `The G.O.P. speaker’s proposed conditions for sending a fresh infusion of military assistance to Kyiv are the strongest sign to date that he plans to defy critics in his own party and push through the aid package.`\
 https://nytimes.com/2024/04/01/us/politics/mike-johnson-ukraine-aid.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/theater/100000009391090/10-years-of-aladdin-on-broadwa
 **The Christians Who Aren’t Buying Donald Trump’s Sales Pitch**\
 `Whether it’s a political or religious institution, the outcome always appears to be the same.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/the-christians-who-arent-buying-donald-trumps-sales-pitch
-
-**Talking (or Not) About Your Cancer**\
-`Responses to an Opinion essay by Dr. Daniela J. Lamas. Also: “political anxieties”; a mystery from England’s Bronze Age.`\
-https://nytimes.com/2024/04/01/opinion/cancer-diagnosis.html
-
-**The target of the Damascus strike is among the most senior Iranian commanders believed to have been killed.**\
-`By Farnaz Fassihi and Ronen Bergman`\
-https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/airstrike-in-damascus-kills-top-iranian-commander-iranian-media-say
 
