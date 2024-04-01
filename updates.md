@@ -1,3 +1,7 @@
+**A major issue in cease-fire talks: How can people displaced from northern Gaza go back?**\
+`By Adam Rasgon and Edward Wong`\
+https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/a-major-issue-in-cease-fire-talks-how-can-people-displaced-from-northern-gaza-go-back
+
 **Auto Execs Call for New Measures as E.V. Wars Heat Up**\
 `The latest proposal comes from Luca de Meo, the C.E.O. of Renault Group, who is pushing for an Airbus-inspired alliance that would help European automakers fend off competition from cheaper Chinese-made electric vehicles.`\
 https://nytimes.com/2024/04/01/business/dealbook/auto-execs-call-for-new-measures-as-ev-wars-heat-up.html
