@@ -1,3 +1,11 @@
+**Read the Florida Supreme Court’s Ruling on the Abortion Ban**\
+`The Florida Supreme Court overturned decades of legal precedent in ruling that the State Constitution’s privacy protections do not extend to abortion, effectively allowing Florida to ban the procedure after six weeks of pregnancy.`\
+https://nytimes.com/interactive/2024/04/01/us/florida-abortion-ban.html
+
+**‘Pretty Big Bunny, Huh?’: Biden Hosts White House Easter Egg Roll**\
+`Even before the skies opened up on children rolling eggs down a soggy South Lawn, the 146-year-old tradition was caught up in the latest partisan storm.`\
+https://nytimes.com/2024/04/01/us/politics/white-house-easter-egg-roll.html
+
 **Florida Court Allows 6-Week Abortion Ban, but Voters Will Get to Weigh In**\
 `The Florida Supreme Court found that the State Constitution’s privacy protections do not extend to abortion. But it also allowed a ballot question on whether to expand abortion access.`\
 https://nytimes.com/2024/04/01/us/florida-abortion-law-supreme-court.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/03/26/opinion/thepoint/social-media-children
 **Michael Stuhlbarg Is Attacked in Central Park Before ‘Patriots’ Debut**\
 `The actor was walking on the Upper East Side on Sunday when a man threw a rock at him, striking the back of his neck, the police said. He is set to appear on Broadway on Monday evening.`\
 https://nytimes.com/2024/04/01/theater/michael-stuhlbarg-attack-patriots.html
-
-**Tropicana Las Vegas Closing Tuesday to Make Way for a Baseball Stadium**\
-`The hotel and casino, which opened in 1957, will end its storied run when it closes on Tuesday. A Major League Baseball stadium will rise in its place.`\
-https://nytimes.com/2024/04/01/us/tropicana-las-vegas-closes.html
-
-**A Transgender Holiday Fell on Easter. Republicans Lashed Out at Biden.**\
-`President Biden, in acknowledging both days, drew the ire of many on the right, who attacked him as besmirching Christianity.`\
-https://nytimes.com/2024/04/01/us/politics/transgender-easter-biden-trump.html
 

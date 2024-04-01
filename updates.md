@@ -1,3 +1,11 @@
+**Read the Florida Supreme Court’s Ruling on the Abortion Ban**\
+`The Florida Supreme Court overturned decades of legal precedent in ruling that the State Constitution’s privacy protections do not extend to abortion, effectively allowing Florida to ban the procedure after six weeks of pregnancy.`\
+https://nytimes.com/interactive/2024/04/01/us/florida-abortion-ban.html
+
+**‘Pretty Big Bunny, Huh?’: Biden Hosts White House Easter Egg Roll**\
+`Even before the skies opened up on children rolling eggs down a soggy South Lawn, the 146-year-old tradition was caught up in the latest partisan storm.`\
+https://nytimes.com/2024/04/01/us/politics/white-house-easter-egg-roll.html
+
 **Florida Court Allows 6-Week Abortion Ban, but Voters Will Get to Weigh In**\
 `The Florida Supreme Court found that the State Constitution’s privacy protections do not extend to abortion. But it also allowed a ballot question on whether to expand abortion access.`\
 https://nytimes.com/2024/04/01/us/florida-abortion-law-supreme-court.html
