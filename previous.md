@@ -1,3 +1,7 @@
+**Baltimore to Open Temporary Shipping Route Around Key Bridge Wreckage**\
+`The authorities were preparing early Monday to open a “temporary alternate channel” around the collapsed structure. The exact timing was unclear.`\
+https://nytimes.com/2024/04/01/us/key-bridge-baltimore-alternate-channel.html
+
 **Today’s Wordle Review**\
 `In case you need some puzzle help.`\
 https://nytimes.com/2024/04/01/crosswords/wordle-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/briefing/israel-protest-russia-defector-killing.h
 **China’s Advancing Efforts to Influence the U.S. Election Raise Alarms**\
 `China has adopted some of the same misinformation tactics that Russia used ahead of the 2016 election, researchers and government officials say.`\
 https://nytimes.com/2024/04/01/business/media/china-online-disinformation-us-election.html
-
-**5 Things to Know to Understand India’s Economy Under Modi**\
-`As Prime Minister Narendra Modi seeks a third term, India’s growth has received the attention of the world’s investors but inequality has deepened.`\
-https://nytimes.com/2024/04/01/business/india-economy-election-takeaways.html
 

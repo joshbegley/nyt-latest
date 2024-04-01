@@ -1,3 +1,7 @@
+**Baltimore to Open Temporary Shipping Route Around Key Bridge Wreckage**\
+`The authorities were preparing early Monday to open a “temporary alternate channel” around the collapsed structure. The exact timing was unclear.`\
+https://nytimes.com/2024/04/01/us/key-bridge-baltimore-alternate-channel.html
+
 **Today’s Wordle Review**\
 `In case you need some puzzle help.`\
 https://nytimes.com/2024/04/01/crosswords/wordle-review.html
