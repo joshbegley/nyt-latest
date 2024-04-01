@@ -1,3 +1,7 @@
+**The Bizarre Chinese Murder Plot Behind Netflix’s ‘3 Body Problem’**\
+`Lin Qi, a billionaire who helped produce the science-fiction hit, was poisoned to death by a disgruntled executive. His attacker now faces the death penalty.`\
+https://nytimes.com/2024/04/01/world/asia/china-three-body-problem-murder.html
+
 **Israeli troops pull out of a major Gaza hospital after a two-week battle.**\
 `By Aaron Boxerman and Iyad Abuheweila`\
 https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/israeli-troops-pull-out-of-a-major-gaza-hospital-after-a-two-week-battle
