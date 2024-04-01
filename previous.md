@@ -8,7 +8,7 @@ https://nytimes.com/2024/04/01/business/media/china-online-disinformation-us-ele
 
 **5 Things to Know to Understand India’s Economy Under Modi**\
 `As Prime Minister Narendra Modi seeks a third term, India’s growth has received the attention of the world’s investors but inequality has deepened.`\
-https://nytimes.com/2024/04/01/business/india-economy.html
+https://nytimes.com/2024/04/01/business/india-economy-election-takeaways.html
 
 **What Happened When This Italian Province Invested in Babies**\
 `The area around Bolzano has a thick network of family support provided by the government. That means a steady birthrate in a country facing a demographic plunge.`\
@@ -20,7 +20,7 @@ https://nytimes.com/2024/04/01/world/europe/ireland-history-virtual-records.html
 
 **What 10 Years of Modi Rule Has Meant for India’s Economy**\
 `Narendra Modi has kept India on its swift upward path among the world’s largest economies. Many Indians are better off, though wealth gaps have widened.`\
-https://nytimes.com/2024/04/01/business/india-election-modi-economy.html
+https://nytimes.com/2024/04/01/business/india-economy-election.html
 
 **Quotation of the Day: For Farmers in France, a Fierce Fight to Survive**\
 `Quotation of the Day for Monday, April 1, 2024.`\
