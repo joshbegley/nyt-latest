@@ -1,3 +1,19 @@
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/01/crosswords/wordle-review.html
+
+**Anger in Chinatown Over a Huge Jail Project: ‘We Are the Dumping Ground’**\
+`The demolition of a Manhattan jail complex to make way for a bigger one has damaged a neighboring building and raised concerns about years of dust and disruption.`\
+https://nytimes.com/2024/04/01/nyregion/jail-construction-chinatown-manhattan.html
+
+**Attention, New York Adulterers: Your Sin May Soon No Longer Be a Crime**\
+`Adultery has been illegal in New York since 1907, but state lawmakers seem poised to repeal the antiquated law.`\
+https://nytimes.com/2024/04/01/nyregion/adultery-law-crime.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/01/crosswords/spelling-bee-forum.html
+
 **‘Oppenheimer’ Hits Nuclear-Scarred Japan, 8 Months After U.S. Premiere**\
 `While some viewers lamented the movie’s exclusion of scenes from Hiroshima or Nagasaki, others said they recognized that it had another story to tell.`\
 https://nytimes.com/2024/04/01/world/asia/oppenheimer-opens-japan.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/01/business/media/china-online-disinformation-us-ele
 **5 Things to Know to Understand India’s Economy Under Modi**\
 `As Prime Minister Narendra Modi seeks a third term, India’s growth has received the attention of the world’s investors but inequality has deepened.`\
 https://nytimes.com/2024/04/01/business/india-economy-election-takeaways.html
-
-**What Happened When This Italian Province Invested in Babies**\
-`The area around Bolzano has a thick network of family support provided by the government. That means a steady birthrate in a country facing a demographic plunge.`\
-https://nytimes.com/2024/04/01/world/europe/italy-babies-family-benefits.html
-
-**A New Chapter for Irish Historians’ ‘Saddest Book’**\
-`A globe-spanning research project has turned the catalog of a public archive destroyed in Ireland’s civil war into a model for reconstruction.`\
-https://nytimes.com/2024/04/01/world/europe/ireland-history-virtual-records.html
-
-**What 10 Years of Modi Rule Has Meant for India’s Economy**\
-`Narendra Modi has kept India on its swift upward path among the world’s largest economies. Many Indians are better off, though wealth gaps have widened.`\
-https://nytimes.com/2024/04/01/business/india-economy-election.html
-
-**Quotation of the Day: For Farmers in France, a Fierce Fight to Survive**\
-`Quotation of the Day for Monday, April 1, 2024.`\
-https://nytimes.com/2024/03/31/pageoneplus/quotation-of-the-day-for-farmers-in-france-a-fierce-fight-to-survive.html
 
