@@ -1,3 +1,7 @@
+**Person Infected With Bird Flu in Texas After Contact With Cattle**\
+`The case adds another worrying wrinkle to a global outbreak that has devastated bird and marine mammal populations, and recently appeared in cattle herds.`\
+https://nytimes.com/2024/04/01/health/bird-flu-cattle-human.html
+
 **‘A horror movie’: One man describes the aftermath of Israel’s raid on Al-Shifa.**\
 `By Hiba Yazbek and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/a-horror-movie-one-man-describes-the-aftermath-of-israels-raid-on-al-shifa
