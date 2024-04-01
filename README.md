@@ -1,3 +1,7 @@
+**What Excites You About This Election Year?**\
+`Not everyone feels like tuning out.`\
+https://nytimes.com/2024/04/01/briefing/what-excites-you-about-this-election-year.html
+
 **Mike Johnson Is Trying to Explain Simple Math to the Far Right**\
 `It doesn’t want to hear it, but the Republican majority is too small for any significant wins.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/mike-johnson-is-trying-to-explain-simple-math-to-the-far-right
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/01/us/florida-abortion-ban.html
 **‘Pretty Big Bunny, Huh?’: Biden Hosts White House Easter Egg Roll**\
 `Even before the skies opened up on children rolling eggs down a soggy South Lawn, the 146-year-old tradition was caught up in the latest partisan storm.`\
 https://nytimes.com/2024/04/01/us/politics/white-house-easter-egg-roll.html
-
-**Florida Court Allows 6-Week Abortion Ban, but Voters Will Get to Weigh In**\
-`The Florida Supreme Court found that the State Constitution’s privacy protections do not extend to abortion. But it also allowed a ballot question on whether to expand abortion access.`\
-https://nytimes.com/2024/04/01/us/florida-abortion-law-supreme-court.html
 
