@@ -8,7 +8,7 @@ https://nytimes.com/interactive/2024/04/01/books/review/poems-places-quiz.html
 
 **At a tent camp outside Israel’s Parliament, protesters explain why Netanyahu must go.**\
 `By Cassandra Vinograd`\
-https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/at-a-tent-camp-outside-israels-parliament-protesters-explain-why-netanyahu-must-go
+https://nytimes.com/2024/04/01/world/middleeast/protests-benjamin-netanyahu.html
 
 **Biden hosts White House Easter egg roll; Trump heads to battleground states.**\
 `By E. Justin Swanson`\
