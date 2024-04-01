@@ -1,3 +1,11 @@
+**2 Men Charged With Supplying Drugs That Killed Cecilia Gentili**\
+`Ms. Gentili, a transgender activist and actress, died in February after buying fentanyl-laced heroin, prosecutors said.`\
+https://nytimes.com/2024/04/01/nyregion/cecilia-gentili-fentanyl-death.html
+
+**A Top Iranian Commander Killed in Airstrike in Syria, State Media Says**\
+`The site of a strike close to the Iranian consulate in Damascus, Syria.`\
+https://nytimes.com/video/world/middleeast/100000009391230/damascus-strike-iran-syria.html
+
 **Pressure is building on Netanyahu from all sides.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/netanyahu-protest-pressure
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/01/business/media/betty-cole-dukert-dead.html
 **Nor’easter to Bring Springtime Snow to New England This Week**\
 `Sleet and rain will lash coastal areas, while heavy, wet snow is expected farther inland, particularly in areas of higher elevation, forecasters said.`\
 https://nytimes.com/2024/04/01/us/noreaster-forecast-weather.html
-
-**10 Years of ‘Aladdin’ on Broadway**\
-`The musical “Aladdin” has been running on Broadway for 10 years, a bright spot in an industry that hasn’t fully recovered from the pandemic. Michael Paulson, a theater reporter for The New York Times, attended the March 28 anniversary performance.`\
-https://nytimes.com/video/theater/100000009391090/10-years-of-aladdin-on-broadway.html
-
-**The Christians Who Aren’t Buying Donald Trump’s Sales Pitch**\
-`Whether it’s a political or religious institution, the outcome always appears to be the same.`\
-https://nytimes.com/live/2024/03/26/opinion/thepoint/the-christians-who-arent-buying-donald-trumps-sales-pitch
 
