@@ -1,3 +1,7 @@
+**Warner Bros. Discovery Directors Step Down Amid Antitrust Inquiry**\
+`The Justice Department was investigating whether the two violated a law forbidding simultaneous service on the boards of competitors.`\
+https://nytimes.com/2024/04/01/business/media/warner-bros-discovery-directors-antitrust.html
+
 **What Excites You About This Election Year?**\
 `Not everyone feels like tuning out.`\
 https://nytimes.com/2024/04/01/briefing/what-excites-you-about-this-election-year.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/01/science/total-solar-eclipse-science-r
 **Read the Florida Supreme Court’s Ruling on the Abortion Ban**\
 `The Florida Supreme Court overturned decades of legal precedent in ruling that the State Constitution’s privacy protections do not extend to abortion, effectively allowing Florida to ban the procedure after six weeks of pregnancy.`\
 https://nytimes.com/interactive/2024/04/01/us/florida-abortion-ban.html
-
-**‘Pretty Big Bunny, Huh?’: Biden Hosts White House Easter Egg Roll**\
-`Even before the skies opened up on children rolling eggs down a soggy South Lawn, the 146-year-old tradition was caught up in the latest partisan storm.`\
-https://nytimes.com/2024/04/01/us/politics/white-house-easter-egg-roll.html
 
