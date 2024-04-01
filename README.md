@@ -1,3 +1,7 @@
+**Scottish Hate Crime Law Takes Effect as Critics Warn It Will Stifle Speech**\
+`The legislation expands protections and creates a new charge of “stirring up hatred.” The “Harry Potter” author J.K. Rowling criticized the law for omitting women and said it was “wide open to abuse.”`\
+https://nytimes.com/2024/04/01/world/europe/scotland-hate-crime-law.html
+
 **Google to Delete Billions of Chrome Browser Records in Latest Settlement**\
 `The internet giant resolved a lawsuit that claimed it had deceived users by tracking their web activity in the Chrome browser’s private setting.`\
 https://nytimes.com/2024/04/01/technology/google-to-delete-billions-of-chrome-browser-records-in-latest-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/us/lou-conter-dead.html
 **3 Top Iranian Commanders Are Reported Killed in Israeli Strike in Syria**\
 `The airstrike on an Iranian Embassy building was one of the biggest attacks yet in a shadow war that has increasingly been moving into the open.`\
 https://nytimes.com/2024/04/01/world/middleeast/iran-commanders-killed-syria-israel.html
-
-**Netanyahu Says Israel Will Shut Down Al Jazeera in Israel**\
-`The move came after Israeli lawmakers passed a new law that allows the government to temporarily shutter foreign media outlets deemed to be a risk to national security.`\
-https://nytimes.com/2024/04/01/world/middleeast/al-jazeera-israel-netanyahu.html
 
