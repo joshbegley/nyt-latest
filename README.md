@@ -1,3 +1,7 @@
+**Trump’s Call for Israel to ‘Finish Up’ War Alarms Some on the Right**\
+`Recent private remarks he made urging an end to the Gaza conflict, with no insistence on freeing Israeli hostages first, were another departure from conservatives’ support for Benjamin Netanyahu.`\
+https://nytimes.com/2024/04/01/us/politics/trump-israel-conservative.html
+
 **Don Winslow Is Ready to Trade His Pen for a Protest Sign**\
 `“City in Ruins” is the third novel in Winslow’s Danny Ryan trilogy and, he says, his last book. He’s retiring in part to invest more time into political activism.`\
 https://nytimes.com/2024/04/01/books/booksupdate/don-winslow-city-in-ruins.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/01/books/review/poems-places-quiz.html
 **Outside Israel’s Parliament, Protesters Explain Why Netanyahu Must Go**\
 `A tent camp is a temporary home for some of the thousands of Israelis who are mounting a four-day protest calling for early elections to oust the Israeli prime minister.`\
 https://nytimes.com/2024/04/01/world/middleeast/protests-benjamin-netanyahu.html
-
-**Biden hosts White House Easter egg roll; Trump heads to battleground states.**\
-`By E. Justin Swanson`\
-https://nytimes.com/live/2024/04/01/us/biden-trump-election/biden-hosts-white-house-easter-egg-roll-trump-heads-to-battleground-states
 
