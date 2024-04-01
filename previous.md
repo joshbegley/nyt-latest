@@ -1,3 +1,7 @@
+**You Can Bet on Caitlin Clark Making Threes. The N.C.A.A. Isn’t Happy.**\
+`Americans will wager $2.7 billion on the N.C.A.A. basketball tournaments this year, raising concerns about what happens to sports when people bet on the performances of student athletes.`\
+https://nytimes.com/2024/04/01/business/ncaa-womens-basketball-march-madness.html
+
 **Betty Cole Dukert, Top ‘Meet the Press’ Producer, Dies at 96**\
 `She worked as a secretary before being hired as an associate producer at the NBC News public affairs show in 1956. She went on to spend 41 years there.`\
 https://nytimes.com/2024/04/01/business/media/betty-cole-dukert-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/us/politics/trump-israel-conservative.html
 **Don Winslow Is Ready to Trade His Pen for a Protest Sign**\
 `“City in Ruins” is the third novel in Winslow’s Danny Ryan trilogy and, he says, his last book. He’s retiring in part to invest more time into political activism.`\
 https://nytimes.com/2024/04/01/books/booksupdate/don-winslow-city-in-ruins.html
-
-**Gloriously Crispy Chicken for Tonight**\
-`Put Christian Reynoso’s schnitzel-like chile crisp chicken cutlets on your cooking bucket list immediately.`\
-https://nytimes.com/2024/04/01/dining/gloriously-crispy-chicken-for-tonight.html
 
