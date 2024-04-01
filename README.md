@@ -1,3 +1,11 @@
+**L.S.U.’s Kim Mulkey Courts Controversy With Style**\
+`Inside the coach’s winning fashion playbook.`\
+https://nytimes.com/2024/04/01/style/kim-mulkey-fashion-lsu-basketball.html
+
+**Do You Know the Places Mentioned in These Poems?**\
+`April is National Poetry Month! Test your knowledge on a variety of verse with this short quiz.`\
+https://nytimes.com/interactive/2024/04/01/books/review/poems-places-quiz.html
+
 **At a tent camp outside Israel’s Parliament, protesters explain why Netanyahu must go.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/at-a-tent-camp-outside-israels-parliament-protesters-explain-why-netanyahu-must-go
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/01/us/tornado-severe-weather-forecast.html
 **Winning City Halls, Turkish Opposition Strikes Blow to Erdogan**\
 `A raft of local election victories by rivals of President Recep Tayyip Erdogan’s governing party could serve as a check on his power.`\
 https://nytimes.com/2024/04/01/world/middleeast/turkey-election-results.html
-
-**Hospitals Must Get Written Patient Consent for Pelvic Exams, H.H.S. Says**\
-`In a letter to teaching hospitals, the federal health agency said that institutions could lose Medicare funding if they didn’t comply.`\
-https://nytimes.com/2024/04/01/health/pelvic-exam-consent-unconcious.html
-
-**These Spelling Bee Hint Writers Want to Help You Get to Genius**\
-`Four enthusiasts talk about why they wake up in the middle of the night to write hints for other Spelling Bee solvers.`\
-https://nytimes.com/2024/04/01/crosswords/spelling-bee-hints.html
 
