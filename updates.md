@@ -1,3 +1,11 @@
+**Tropicana Las Vegas Closing Tuesday to Make Way for a Baseball Stadium**\
+`The hotel and casino, which opened in 1957, will end its storied run when it closes on Tuesday. A Major League Baseball stadium will rise in its place.`\
+https://nytimes.com/2024/04/01/us/tropicana-las-vegas-closes.html
+
+**A Transgender Holiday Fell on Easter. Republicans Lashed Out at Biden.**\
+`President Biden, in acknowledging both days, drew the ire of many on the right, who attacked him as besmirching Christianity.`\
+https://nytimes.com/2024/04/01/us/politics/transgender-easter-biden-trump.html
+
 **Nor’easter to Bring Springtime Snow to New England This Week**\
 `Sleet and rain will lash coastal areas, while heavy, wet snow is expected farther inland, particularly in areas of higher elevation, forecasters said.`\
 https://nytimes.com/2024/04/01/us/noreaster-forecast-weather.html

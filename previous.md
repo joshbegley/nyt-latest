@@ -1,3 +1,11 @@
+**Tropicana Las Vegas Closing Tuesday to Make Way for a Baseball Stadium**\
+`The hotel and casino, which opened in 1957, will end its storied run when it closes on Tuesday. A Major League Baseball stadium will rise in its place.`\
+https://nytimes.com/2024/04/01/us/tropicana-las-vegas-closes.html
+
+**A Transgender Holiday Fell on Easter. Republicans Lashed Out at Biden.**\
+`President Biden, in acknowledging both days, drew the ire of many on the right, who attacked him as besmirching Christianity.`\
+https://nytimes.com/2024/04/01/us/politics/transgender-easter-biden-trump.html
+
 **2 Men Charged With Supplying Drugs That Killed Cecilia Gentili**\
 `Ms. Gentili, a transgender activist and actress, died in February after buying fentanyl-laced heroin, prosecutors said.`\
 https://nytimes.com/2024/04/01/nyregion/cecilia-gentili-fentanyl-death.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/a-horror-mo
 **You Can Bet on Caitlin Clark Making Threes. The N.C.A.A. Isn’t Happy.**\
 `Americans will wager $2.7 billion on the N.C.A.A. basketball tournaments this year, raising concerns about what happens to sports when people bet on the performances of student athletes.`\
 https://nytimes.com/2024/04/01/business/ncaa-womens-basketball-march-madness.html
-
-**Betty Cole Dukert, Top ‘Meet the Press’ Producer, Dies at 96**\
-`She worked as a secretary before being hired as an associate producer at the NBC News public affairs show in 1956. She went on to spend 41 years there.`\
-https://nytimes.com/2024/04/01/business/media/betty-cole-dukert-dead.html
-
-**Nor’easter to Bring Springtime Snow to New England This Week**\
-`Sleet and rain will lash coastal areas, while heavy, wet snow is expected farther inland, particularly in areas of higher elevation, forecasters said.`\
-https://nytimes.com/2024/04/01/us/noreaster-forecast-weather.html
 
