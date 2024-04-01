@@ -1,3 +1,7 @@
+**Trump’s Call for Israel to ‘Finish Up’ War Alarms Some on the Right**\
+`Recent remarks he made urging an end to the Gaza conflict, with no insistence on freeing Israeli hostages first, were another departure from conservatives’ support for Benjamin Netanyahu.`\
+https://nytimes.com/2024/04/01/us/politics/trump-israel-conservative.html
+
 **Once Upon a Time, the World of Picture Books Came to Life**\
 `The tale behind a new museum of children’s literature is equal parts imagination, chutzpah and “The Little Engine That Could.”`\
 https://nytimes.com/2024/04/01/books/rabbit-hole-kansas-city.html

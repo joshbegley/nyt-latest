@@ -3,7 +3,7 @@
 https://nytimes.com/2024/04/01/books/rabbit-hole-kansas-city.html
 
 **Trump’s Call for Israel to ‘Finish Up’ War Alarms Some on the Right**\
-`Recent private remarks he made urging an end to the Gaza conflict, with no insistence on freeing Israeli hostages first, were another departure from conservatives’ support for Benjamin Netanyahu.`\
+`Recent remarks he made urging an end to the Gaza conflict, with no insistence on freeing Israeli hostages first, were another departure from conservatives’ support for Benjamin Netanyahu.`\
 https://nytimes.com/2024/04/01/us/politics/trump-israel-conservative.html
 
 **Don Winslow Is Ready to Trade His Pen for a Protest Sign**\
