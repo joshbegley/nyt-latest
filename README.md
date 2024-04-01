@@ -1,3 +1,7 @@
+**‘A horror movie’: One man describes the aftermath of Israel’s raid on Al-Shifa.**\
+`By Hiba Yazbek and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/a-horror-movie-one-man-describes-the-aftermath-of-israels-raid-on-al-shifa
+
 **You Can Bet on Caitlin Clark Making Threes. The N.C.A.A. Isn’t Happy.**\
 `Americans will wager $2.7 billion on the N.C.A.A. basketball tournaments this year, raising concerns about what happens to sports when people bet on the performances of student athletes.`\
 https://nytimes.com/2024/04/01/business/ncaa-womens-basketball-march-madness.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/books/rabbit-hole-kansas-city.html
 **Trump’s Call for Israel to ‘Finish Up’ War Alarms Some on the Right**\
 `Recent remarks he made urging an end to the Gaza conflict, with no insistence on freeing Israeli hostages first, were another departure from conservatives’ support for Benjamin Netanyahu.`\
 https://nytimes.com/2024/04/01/us/politics/trump-israel-conservative.html
-
-**Don Winslow Is Ready to Trade His Pen for a Protest Sign**\
-`“City in Ruins” is the third novel in Winslow’s Danny Ryan trilogy and, he says, his last book. He’s retiring in part to invest more time into political activism.`\
-https://nytimes.com/2024/04/01/books/booksupdate/don-winslow-city-in-ruins.html
 
