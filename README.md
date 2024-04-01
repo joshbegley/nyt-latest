@@ -1,3 +1,11 @@
+**Florida Court Allows 6-Week Abortion Ban, but Voters Will Get to Weigh In**\
+`The Florida Supreme Court found that the State Constitution’s privacy protections do not extend to abortion. But it also allowed a ballot question on whether to expand abortion access.`\
+https://nytimes.com/2024/04/01/us/florida-abortion-law-supreme-court.html
+
+**Read the Florida Supreme Court’s Ruling on the Constitutional Amendment**\
+`The Florida Supreme Court allowed voters to decide this fall whether to expand abortion access, ruling unanimously that a proposed constitutional amendment that would guarantee the right to abortion “before viability,” usually around 24 weeks, could go on the November ballot.`\
+https://nytimes.com/interactive/2024/04/01/us/florida-abortion-constitutional-amendment.html
+
 **Oregon Is Recriminalizing Drugs. Here’s What Portland Learned.**\
 `Oregon’s governor has signed a measure to reimpose criminal penalties for hard drugs. Mayor Ted Wheeler of Portland talks about why the experiment “failed.”`\
 https://nytimes.com/2024/04/01/us/oregon-drug-law-portland-mayor.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/01/us/tropicana-las-vegas-closes.html
 **A Transgender Holiday Fell on Easter. Republicans Lashed Out at Biden.**\
 `President Biden, in acknowledging both days, drew the ire of many on the right, who attacked him as besmirching Christianity.`\
 https://nytimes.com/2024/04/01/us/politics/transgender-easter-biden-trump.html
-
-**2 Men Charged With Supplying Drugs That Killed Cecilia Gentili**\
-`Ms. Gentili, a transgender activist and actress, died in February after buying fentanyl-laced heroin, prosecutors said.`\
-https://nytimes.com/2024/04/01/nyregion/cecilia-gentili-fentanyl-death.html
-
-**A Top Iranian Commander Killed in Airstrike in Syria, State Media Says**\
-`The site of a strike close to the Iranian consulate in Damascus, Syria.`\
-https://nytimes.com/video/world/middleeast/100000009391230/damascus-strike-iran-syria.html
 
