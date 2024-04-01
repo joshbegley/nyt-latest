@@ -1,3 +1,7 @@
+**Sports Illustrated’s Owner Sues Energy Drink Mogul After Chaos at Magazine**\
+`Authentic Brands Group, which owns Sports Illustrated, is accusing Manoj Bhargava of failing to pay millions of dollars for the rights to publish the magazine.`\
+https://nytimes.com/2024/04/01/business/media/sports-illustrated-manoj-bhargava-lawsuit.html
+
 **Severe Weather, Including Tornadoes and Large Hail, Threatens Parts of U.S.**\
 `A powerful storm system was expected to lash sections of Indiana, Illinois, Missouri, Oklahoma and Texas on Monday before moving east, forecasters said.`\
 https://nytimes.com/2024/04/01/us/tornado-severe-weather-forecast.html

@@ -1,3 +1,7 @@
+**Sports Illustrated’s Owner Sues Energy Drink Mogul After Chaos at Magazine**\
+`Authentic Brands Group, which owns Sports Illustrated, is accusing Manoj Bhargava of failing to pay millions of dollars for the rights to publish the magazine.`\
+https://nytimes.com/2024/04/01/business/media/sports-illustrated-manoj-bhargava-lawsuit.html
+
 **Severe Weather, Including Tornadoes and Large Hail, Threatens Parts of U.S.**\
 `A powerful storm system was expected to lash sections of Indiana, Illinois, Missouri, Oklahoma and Texas on Monday before moving east, forecasters said.`\
 https://nytimes.com/2024/04/01/us/tornado-severe-weather-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/podcasts/israel-protests-china-politics.html
 **Ronna McDaniel, TV News and the Trump Problem**\
 `The former Republican National Committee chairwoman was hired by NBC and then let go after an outcry.`\
 https://nytimes.com/2024/04/01/podcasts/the-daily/nbc-ronna-mcdaniel.html
-
-**The Bizarre Chinese Murder Plot Behind Netflix’s ‘3 Body Problem’**\
-`Lin Qi, a billionaire who helped produce the science-fiction hit, was poisoned to death by a disgruntled executive. His attacker now faces the death penalty.`\
-https://nytimes.com/2024/04/01/world/asia/china-three-body-problem-murder.html
 
