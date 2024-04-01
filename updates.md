@@ -1,3 +1,7 @@
+**What Excites You About This Election Year?**\
+`Not everyone feels like tuning out.`\
+https://nytimes.com/2024/04/01/briefing/what-excites-you-about-this-election-year.html
+
 **Mike Johnson Is Trying to Explain Simple Math to the Far Right**\
 `It doesn’t want to hear it, but the Republican majority is too small for any significant wins.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/mike-johnson-is-trying-to-explain-simple-math-to-the-far-right
