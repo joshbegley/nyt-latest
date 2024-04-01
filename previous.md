@@ -1,3 +1,11 @@
+**Israeli troops pull out of a major Gaza hospital after a two-week battle.**\
+`By Aaron Boxerman and Iyad Abuheweila`\
+https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/israeli-troops-pull-out-of-a-major-gaza-hospital-after-a-two-week-battle
+
+**01mideast-crisis**\
+`Israeli Military Withdraws From Al-Shifa Hospital After Raid`\
+https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news
+
 **How to Breathe With the Trees**\
 `Our poet laureate Ada Limón is on a mission to reconnect us to nature.`\
 https://nytimes.com/2024/04/01/opinion/ada-limon-poet-nature.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/01/us/francis-scott-key-bridge-baltimore.html
 **‘Plan Ahead’: Baltimore Traffic Reporter on Congestion After Bridge Collapse**\
 `Tony Thornton looks ahead to years of crowded tunnels and highways with the loss of the Francis Scott Key Bridge.`\
 https://nytimes.com/2024/04/01/us/baltimore-bridge-traffic-congestion.html
-
-**Did Prosecutors’ Sex Shaming Help Send Brenda Andrew to Death Row?**\
-`The Supreme Court will soon decide whether to hear an appeal in her case, which, as one judge put it, “focused from start to finish on Ms. Andrew’s sex life.”`\
-https://nytimes.com/2024/04/01/us/supreme-court-death-penalty-sex-shaming.html
-
-**Toes Out in the Workplace? You Might Want to Tread Carefully.**\
-`A sandal enthusiast wonders how much “toe cleavage” is too much for a business-casual office.`\
-https://nytimes.com/2024/04/01/style/toes-out-in-the-workplace-you-might-want-to-tread-carefully.html
 

@@ -1,3 +1,11 @@
+**Israeli troops pull out of a major Gaza hospital after a two-week battle.**\
+`By Aaron Boxerman and Iyad Abuheweila`\
+https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/israeli-troops-pull-out-of-a-major-gaza-hospital-after-a-two-week-battle
+
+**01mideast-crisis**\
+`Israeli Military Withdraws From Al-Shifa Hospital After Raid`\
+https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news
+
 **How to Breathe With the Trees**\
 `Our poet laureate Ada Limón is on a mission to reconnect us to nature.`\
 https://nytimes.com/2024/04/01/opinion/ada-limon-poet-nature.html
