@@ -1,3 +1,7 @@
+**Auto Execs Call for New Measures as E.V. Wars Heat Up**\
+`The latest proposal comes from Luca de Meo, the C.E.O. of Renault Group, who is pushing for an Airbus-inspired alliance that would help European automakers fend off competition from cheaper Chinese-made electric vehicles.`\
+https://nytimes.com/2024/04/01/business/dealbook/auto-execs-call-for-new-measures-as-ev-wars-heat-up.html
+
 **The New Climate Tech**\
 `Ambitious projects are trying to engineer the atmosphere.`\
 https://nytimes.com/2024/04/01/briefing/climate-technology-carbon-capture.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/movies/godzilla-kong-destruction.html
 **The War in Gaza and the Emerging Rift in American Jewish Life**\
 `A conversation on whether liberalism and Zionism can continue to coexist for American Jews.`\
 https://nytimes.com/2024/04/01/opinion/jewish-liberalism.html
-
-**$2.4 Million Homes in California**\
-`A 1911 bungalow with a guesthouse in Los Angeles, a French Normandy-style home in Alameda and a four-bedroom retreat in Ukiah.`\
-https://nytimes.com/2024/04/01/realestate/2-million-dollar-homes-california.html
 

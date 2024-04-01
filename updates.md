@@ -1,3 +1,7 @@
+**Auto Execs Call for New Measures as E.V. Wars Heat Up**\
+`The latest proposal comes from Luca de Meo, the C.E.O. of Renault Group, who is pushing for an Airbus-inspired alliance that would help European automakers fend off competition from cheaper Chinese-made electric vehicles.`\
+https://nytimes.com/2024/04/01/business/dealbook/auto-execs-call-for-new-measures-as-ev-wars-heat-up.html
+
 **The New Climate Tech**\
 `Ambitious projects are trying to engineer the atmosphere.`\
 https://nytimes.com/2024/04/01/briefing/climate-technology-carbon-capture.html
