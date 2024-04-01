@@ -1,3 +1,7 @@
+**The Christians Who Aren’t Buying Donald Trump’s Sales Pitch**\
+`Whether it’s a political or religious institution, the outcome always appears to be the same.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/the-christians-who-arent-buying-donald-trumps-sales-pitch
+
 **Talking (or Not) About Your Cancer**\
 `Responses to an Opinion essay by Dr. Daniela J. Lamas. Also: “political anxieties”; a mystery from England’s Bronze Age.`\
 https://nytimes.com/2024/04/01/opinion/cancer-diagnosis.html

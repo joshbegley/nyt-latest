@@ -1,3 +1,7 @@
+**The Christians Who Aren’t Buying Donald Trump’s Sales Pitch**\
+`Whether it’s a political or religious institution, the outcome always appears to be the same.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/the-christians-who-arent-buying-donald-trumps-sales-pitch
+
 **Talking (or Not) About Your Cancer**\
 `Responses to an Opinion essay by Dr. Daniela J. Lamas. Also: “political anxieties”; a mystery from England’s Bronze Age.`\
 https://nytimes.com/2024/04/01/opinion/cancer-diagnosis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/business/ai-tech-economy.html
 **Future and Metro Boomin’s First Joint Album Opens Big at No. 1**\
 `The Atlanta rapper and star producer topped Ariana Grande’s first-week total for “Eternal Sunshine,” but Beyoncé’s “Cowboy Carter” may beat them all next week.`\
 https://nytimes.com/2024/04/01/arts/music/future-metro-boomin-billboard-chart.html
-
-**‘Star Trek’ Fan Leaves Behind a Collection Like No One Has Done Before**\
-`When Troy Nelson died, his shelves were filled to the rafters with memorabilia from the popular franchise. Soon, the massive collection will be boldly going, going, gone.`\
-https://nytimes.com/2024/04/01/arts/television/star-trek-troy-nelson.html
 
