@@ -1,3 +1,7 @@
+**Nor’easter to Bring Springtime Snow to New England This Week**\
+`Sleet and rain will lash coastal areas, while heavy, wet snow is expected farther inland, particularly in areas of higher elevation, forecasters said.`\
+https://nytimes.com/2024/04/01/us/noreaster-forecast-weather.html
+
 **A Transgender Holiday Fell on Easter. Republicans Lashed Out at Biden.**\
 `President Biden, in acknowledging both days, drew the ire of many on the right, who attacked him as besmirching Christianity.`\
 https://nytimes.com/2024/04/01/us/politics/transgender-easter-biden-trump.html
