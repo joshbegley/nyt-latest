@@ -1,3 +1,11 @@
+**Lou Conter, Last Survivor of the Battleship Arizona, Dies at 102**\
+`Escaping injury in the Japanese attack on the ship in Pearl Harbor on Dec. 7, 1941, he went on to help in recovering bodies and putting out fires.`\
+https://nytimes.com/2024/04/01/us/lou-conter-dead.html
+
+**3 Top Iranian Commanders Are Reported Killed in Israeli Strike in Syria**\
+`The airstrike on an Iranian Embassy building was one of the biggest attacks yet in a shadow war that has increasingly been moving into the open.`\
+https://nytimes.com/2024/04/01/world/middleeast/iran-commanders-killed-syria-israel.html
+
 **Netanyahu Says Israel Will Shut Down Al Jazeera in Israel**\
 `The move came after Israeli lawmakers passed a new law that allows the government to temporarily shutter foreign media outlets deemed to be a risk to national security.`\
 https://nytimes.com/2024/04/01/world/middleeast/al-jazeera-israel-netanyahu.html
