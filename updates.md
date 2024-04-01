@@ -1,3 +1,11 @@
+**Protests Intensify Against Netanyahu, and China Tries to Sway U.S. Politics**\
+`Plus, fast food workers get a raise.`\
+https://nytimes.com/2024/04/01/podcasts/israel-protests-china-politics.html
+
+**Ronna McDaniel, TV News and the Trump Problem**\
+`The former Republican National Committee chairwoman was hired by NBC and then let go after an outcry.`\
+https://nytimes.com/2024/04/01/podcasts/the-daily/nbc-ronna-mcdaniel.html
+
 **The Bizarre Chinese Murder Plot Behind Netflix’s ‘3 Body Problem’**\
 `Lin Qi, a billionaire who helped produce the science-fiction hit, was poisoned to death by a disgruntled executive. His attacker now faces the death penalty.`\
 https://nytimes.com/2024/04/01/world/asia/china-three-body-problem-murder.html

@@ -1,3 +1,11 @@
+**Protests Intensify Against Netanyahu, and China Tries to Sway U.S. Politics**\
+`Plus, fast food workers get a raise.`\
+https://nytimes.com/2024/04/01/podcasts/israel-protests-china-politics.html
+
+**Ronna McDaniel, TV News and the Trump Problem**\
+`The former Republican National Committee chairwoman was hired by NBC and then let go after an outcry.`\
+https://nytimes.com/2024/04/01/podcasts/the-daily/nbc-ronna-mcdaniel.html
+
 **The Bizarre Chinese Murder Plot Behind Netflix’s ‘3 Body Problem’**\
 `Lin Qi, a billionaire who helped produce the science-fiction hit, was poisoned to death by a disgruntled executive. His attacker now faces the death penalty.`\
 https://nytimes.com/2024/04/01/world/asia/china-three-body-problem-murder.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/01/realestate/2-million-dollar-homes-california.html
 **April Fools’ Day Is Coming to a Political System Near You**\
 `There are many politicians who answer to the name.`\
 https://nytimes.com/2024/04/01/opinion/lake-lieberman-kennedy-trump-biden.html
-
-**Have Swing Voters Stopped Listening to Joe Biden?**\
-`His narrative has to get stronger.`\
-https://nytimes.com/live/2024/03/26/opinion/thepoint/biden-reelection-swing-voters
-
-**What the Bridge Meant to Baltimore**\
-`The victims, the history, the void. Residents reflect on their collective pain, and the city’s strength.`\
-https://nytimes.com/2024/04/01/us/francis-scott-key-bridge-baltimore.html
 
