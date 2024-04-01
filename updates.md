@@ -1,3 +1,7 @@
+**Hospitals Must Get Written Patient Consent for Pelvic Exams, H.H.S. Says**\
+`In a letter to teaching hospitals, the federal health agency said that institutions could lose Medicare funding if they didn’t comply.`\
+https://nytimes.com/2024/04/01/health/pelvic-exam-consent-unconcious.html
+
 **These Spelling Bee Hint Writers Want to Help You Get to Genius**\
 `Four enthusiasts talk about why they wake up in the middle of the night to write hints for other Spelling Bee solvers.`\
 https://nytimes.com/2024/04/01/crosswords/spelling-bee-hints.html
