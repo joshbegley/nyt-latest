@@ -1,3 +1,11 @@
+**There’s Valuable Speech on Social Media, Even for Kids**\
+`There are ways to limit their social media exposure without damaging constitutional rights.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/social-media-children
+
+**Michael Stuhlbarg Is Attacked in Central Park Before ‘Patriots’ Debut**\
+`The actor was walking on the Upper East Side on Sunday when a man threw a rock at him, striking the back of his neck, the police said. He is set to appear on Broadway on Monday evening.`\
+https://nytimes.com/2024/04/01/theater/michael-stuhlbarg-attack-patriots.html
+
 **Tropicana Las Vegas Closing Tuesday to Make Way for a Baseball Stadium**\
 `The hotel and casino, which opened in 1957, will end its storied run when it closes on Tuesday. A Major League Baseball stadium will rise in its place.`\
 https://nytimes.com/2024/04/01/us/tropicana-las-vegas-closes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/01/us/politics/mike-johnson-ukraine-aid.html
 **Person Infected With Bird Flu in Texas After Contact With Cattle**\
 `The case adds another worrying wrinkle to a global outbreak that has devastated bird and marine mammal populations, and recently appeared in cattle herds.`\
 https://nytimes.com/2024/04/01/health/bird-flu-cattle-human.html
-
-**‘A horror movie’: One man describes the aftermath of Israel’s raid on Al-Shifa.**\
-`By Hiba Yazbek and Abu Bakr Bashir`\
-https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/a-horror-movie-one-man-describes-the-aftermath-of-israels-raid-on-al-shifa
-
-**You Can Bet on Caitlin Clark Making Threes. The N.C.A.A. Isn’t Happy.**\
-`Americans will wager $2.7 billion on the N.C.A.A. basketball tournaments this year, raising concerns about what happens to sports when people bet on the performances of student athletes.`\
-https://nytimes.com/2024/04/01/business/ncaa-womens-basketball-march-madness.html
 
