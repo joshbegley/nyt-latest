@@ -1,3 +1,19 @@
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/01/crosswords/wordle-review.html
+
+**Anger in Chinatown Over a Huge Jail Project: ‘We Are the Dumping Ground’**\
+`The demolition of a Manhattan jail complex to make way for a bigger one has damaged a neighboring building and raised concerns about years of dust and disruption.`\
+https://nytimes.com/2024/04/01/nyregion/jail-construction-chinatown-manhattan.html
+
+**Attention, New York Adulterers: Your Sin May Soon No Longer Be a Crime**\
+`Adultery has been illegal in New York since 1907, but state lawmakers seem poised to repeal the antiquated law.`\
+https://nytimes.com/2024/04/01/nyregion/adultery-law-crime.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/01/crosswords/spelling-bee-forum.html
+
 **‘Oppenheimer’ Hits Nuclear-Scarred Japan, 8 Months After U.S. Premiere**\
 `While some viewers lamented the movie’s exclusion of scenes from Hiroshima or Nagasaki, others said they recognized that it had another story to tell.`\
 https://nytimes.com/2024/04/01/world/asia/oppenheimer-opens-japan.html
