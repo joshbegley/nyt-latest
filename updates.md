@@ -1,3 +1,7 @@
+**California’s Fast-Food Workers Just Got a Pay Bump**\
+`They now must be paid at least $20 an hour, near the top of what minimum-wage earners make anywhere in the country.`\
+https://nytimes.com/2024/04/01/us/california-fast-food-minimum-wage.html
+
 **Sports Illustrated’s Owner Sues Energy Drink Mogul After Chaos at Magazine**\
 `Authentic Brands Group, which owns Sports Illustrated, is accusing Manoj Bhargava of failing to pay millions of dollars for the rights to publish the magazine.`\
 https://nytimes.com/2024/04/01/business/media/sports-illustrated-manoj-bhargava-lawsuit.html
