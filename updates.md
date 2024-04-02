@@ -1,3 +1,7 @@
+**Iran says the ‘U.S. must answer’ for the Israeli strike in Damascus.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/iran-says-us-must-answer-for-deadly-israeli-strike-in-damascus
+
 **Tuesday Briefing**\
 `Iran says Israel struck its generals in Syria.`\
 https://nytimes.com/2024/04/02/briefing/iran-israel-general-ukraine-aid.html

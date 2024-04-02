@@ -30,7 +30,7 @@ https://nytimes.com/2024/04/01/pageoneplus/quotation-of-the-day-ireland-is-recov
 `Corrections that appeared in print on Tuesday, April 2, 2024.`\
 https://nytimes.com/2024/04/01/pageoneplus/corrections-april-2-2024.html
 
-**Iran says ‘U.S. must answer’ for deadly Israeli strike in Damascus**\
+**Iran says the ‘U.S. must answer’ for the Israeli strike in Damascus.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/iran-says-us-must-answer-for-deadly-israeli-strike-in-damascus
 
