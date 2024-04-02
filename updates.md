@@ -1,3 +1,7 @@
+**What We Know About the Strike That Killed 7 World Central Kitchen Workers**\
+`Prime Minister Benjamin Netanyahu of Israel acknowledged on Tuesday a “tragic case of our forces unintentionally hitting innocent people”`\
+https://nytimes.com/2024/04/02/world/middleeast/world-central-kitchen-workers-strike-gaza.html
+
 **Strike in Damascus Is an Escalation in Israel’s Undeclared War With Iran**\
 `Iran promises major retaliation, but neither Israel nor Iran wants a major shooting war, given the stakes for both countries. Even so, the danger of a miscalculation is ever-present.`\
 https://nytimes.com/2024/04/02/world/middleeast/iran-israel-damascus-strike.html
