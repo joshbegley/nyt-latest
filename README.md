@@ -1,3 +1,7 @@
+**Before and After Images Show What Remains of Al-Shifa Hospital**\
+`The hospital, which was the largest in Gaza, stood in ruins after a two-week raid by the Israeli military.`\
+https://nytimes.com/video/world/middleeast/100000009392733/al-shifa-hospital-raid-before-after.html
+
 **U.S. Finalizes Rule Requiring Two-Person Crews on Freight Trains**\
 `The regulation ensures that the nation’s largest freight railroads will not be able to reduce the number of workers aboard their trains from today’s status quo.`\
 https://nytimes.com/2024/04/02/us/politics/freight-train-crew-rule.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/world/africa/senegal-president-inauguration.html
 **How to make polluters pay**\
 `A new Vermont bill would create a “climate superfund.”`\
 https://nytimes.com/2024/04/02/climate/how-to-make-polluters-pay.html
-
-**Tiny Love Stories: ‘My Family Owned Your House’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/04/02/style/tiny-modern-love-stories-my-family-owned-your-house.html
 
