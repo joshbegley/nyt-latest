@@ -1,3 +1,7 @@
+**Nightclub Fire in Istanbul Kills 29 People**\
+`Firefighters assessed the damage caused by a fire at a popular nightclub.`\
+https://nytimes.com/video/world/europe/100000009393345/istanbul-fire-nightclub.html
+
 **Africa’s Youngest President Takes Office, Promising ‘Systemic Change’**\
 `Senegal’s new president, Bassirou Diomaye Faye, took the oath of office in Tuesday’s ceremony. Close behind him sat the popular opposition leader who had clinched the win.`\
 https://nytimes.com/2024/04/02/world/africa/senegal-president-inauguration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/t-magazine/oyster-roast-seafood-the-perfect.html
 **Israel’s Attack on Aid Workers Can Only Make Hunger in Gaza Worse**\
 `The strikes on World Central Kitchen damaged Israel’s credibility, and are an embarrassment to the U.S.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/gaza-aid-deaths
-
-**Endeavor, the Entertainment Company Led by Ari Emanuel, to Go Private**\
-`Silver Lake, the investment company, will buy shares in the Hollywood and sports firm that it doesn’t already own, valuing Endeavor at $13 billion.`\
-https://nytimes.com/2024/04/02/business/dealbook/endeavor-private-silver-lake.html
 
