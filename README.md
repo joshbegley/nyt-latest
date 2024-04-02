@@ -1,3 +1,7 @@
+**Protests Over Gaza Intensify at American Art Museums**\
+`A protest at the Yerba Buena Center for the Arts in San Francisco led to the resignation of its leader and to a monthlong closure of its galleries.`\
+https://nytimes.com/2024/04/02/arts/design/israel-gaza-protests-museums.html
+
 **Stuck Ships and Supply-Chain Inflation**\
 `Baltimore alone isn’t that big a deal, but is it an omen?`\
 https://nytimes.com/2024/04/02/opinion/baltimore-bridge-inflation-supply-chain.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/us/kidnapped-teen-shot-california-police.html
 **Rome’s Future Is a Walk Through Its Past**\
 `City officials kicked off a new project to create a monumental, pedestrian-friendly, archaeological area downtown, but some critics worry the plans puts tourists before residents.`\
 https://nytimes.com/2024/04/02/world/europe/rome-future-past-downtown.html
-
-**It’s Always a Good Time for an Oyster Roast**\
-`How to host an outdoor seafood celebration during a Northeastern winter, according to the founders of the newsletter The Perfect.`\
-https://nytimes.com/2024/04/02/t-magazine/oyster-roast-seafood-the-perfect.html
 
