@@ -1,3 +1,23 @@
+**His Brownstone Is Worth $5.4 Million. Why Is His Tax Bill So Low?**\
+`Housing advocates and even some homeowners in wealthier neighborhoods say New York’s property tax system is unfair. A court case could force the city to make changes.`\
+https://nytimes.com/2024/04/02/nyregion/his-brownstone-is-worth-5-4-million-why-is-his-tax-bill-so-low.html
+
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/02/crosswords/connections-companion.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/02/crosswords/wordle-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/02/crosswords/spelling-bee-forum.html
+
+**A Lifetime Under the Moon’s Shadow**\
+`The late Jay Pasachoff inspired generations of students to become astronomers by dragging them to the ends of the Earth for a few precarious moments of ecstasy.`\
+https://nytimes.com/2024/04/02/science/eclipse-chasers-jay-pasachoff.html
+
 **Late Night Assesses Donald Trump’s Slumping Media Company**\
 `Jimmy Fallon joked that “Truth Social stock tanked so fast, they’re changing the name to Twitter.”`\
 https://nytimes.com/2024/04/02/arts/television/late-night-donald-trump-stock.html
@@ -17,24 +37,4 @@ https://nytimes.com/card/2024/04/02/nyregion/steam-funnels-con-edison-nyc
 **Israeli Army Withdraws From Major Gaza Hospital, Leaving Behind a Wasteland**\
 `Al-Shifa Hospital lies in ruins after a battle there between Israeli soldiers and Gazan gunmen. Shortly before withdrawing, the Israeli military brought journalists from The Times to witness the damage.`\
 https://nytimes.com/2024/04/02/world/middleeast/gaza-al-shifa-hospital.html
-
-**Ukraine’s Arms Industry Is Growing, but Is It Growing Fast Enough?**\
-`Kyiv is aiming to build its own weapons to bring the fight to Russia. But it will take time Ukraine might not have.`\
-https://nytimes.com/2024/04/02/us/politics/ukraines-war-weapons-industry-russia.html
-
-**Poor Nations Are Writing a New Handbook for Getting Rich**\
-`Economies focused on exports have lifted millions out of poverty, but epochal changes in trade, supply chains and technology are making it a lot harder.`\
-https://nytimes.com/2024/04/02/business/economy/global-economic-growth.html
-
-**North Korea Missile Test Hints at Greater Menace to U.S. Bases**\
-`The test, analysts said, may have involved a new intermediate-range hypersonic missile that is faster to launch and more difficult to intercept.`\
-https://nytimes.com/2024/04/01/world/asia/north-korea-irbm-missile-guam.html
-
-**Quotation of the Day: Ireland Is Recovering Historical Documents Lost to the Flames of War**\
-`Quotation of the Day for Tuesday, April 2, 2024.`\
-https://nytimes.com/2024/04/01/pageoneplus/quotation-of-the-day-ireland-is-recovering-historical-documents-lost-to-the-flames-of-war.html
-
-**Corrections: April 2, 2024**\
-`Corrections that appeared in print on Tuesday, April 2, 2024.`\
-https://nytimes.com/2024/04/01/pageoneplus/corrections-april-2-2024.html
 
