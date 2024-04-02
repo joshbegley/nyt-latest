@@ -1,3 +1,7 @@
+**World Central Kitchen says several of its workers were killed in a Gaza airstrike.**\
+`By Daniel Victor`\
+https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/world-central-kitchen-says-several-of-its-workers-were-killed-in-a-gaza-airstrike
+
 **Trump Gets Bond Deal to Ward Off $454 Million Judgment, for Now**\
 `The guarantee means that New York’s attorney general will not be able to pursue Donald Trump’s assets and bank accounts until Mr. Trump’s appeals are settled.`\
 https://nytimes.com/2024/04/01/nyregion/trump-bond-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/us/politics/trump-biden-election-rerun.html
 **Scottish Hate Crime Law Takes Effect as Critics Warn It Will Stifle Speech**\
 `The legislation expands protections and creates a new charge of “stirring up hatred.” The “Harry Potter” author J.K. Rowling criticized the law for omitting women and said it was “wide open to abuse.”`\
 https://nytimes.com/2024/04/01/world/europe/scotland-hate-crime-law.html
-
-**Google to Delete Billions of Chrome Browser Records in Latest Settlement**\
-`The internet giant resolved a lawsuit that claimed it had deceived users by tracking their web activity in the Chrome browser’s private Incognito setting.`\
-https://nytimes.com/2024/04/01/technology/google-chrome-browser-data.html
 
