@@ -1,3 +1,7 @@
+**Restaurant Review: A New Voice in Soul Food Rises on Staten Island**\
+`At Shaw-naé’s House, Shaw-naé herself serves up Southern classics and a warm welcome to her “living room.”`\
+https://nytimes.com/2024/04/02/dining/restaurant-review-shaw-naes-house-staten-island.html
+
 **Before and After Images Show What Remains of Al-Shifa Hospital**\
 `The hospital, which was the largest in Gaza, stood in ruins after a two-week raid by the Israeli military.`\
 https://nytimes.com/video/world/middleeast/100000009392733/al-shifa-hospital-raid-before-after.html
