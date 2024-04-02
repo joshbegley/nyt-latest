@@ -1,3 +1,11 @@
+**Wednesday Briefing: Aid Workers Killed in Gaza**\
+`Plus, President Biden talked to Xi Jinping.`\
+https://nytimes.com/2024/04/02/world/asia/strike-aid-netanyahu-biden-asia.html
+
+**Israeli Strikes Kill 7 Aid Workers in Gaza**\
+`The attack on clearly marked vehicles run by the World Central Kitchen shows how dangerous relief work has been during the war, and adds fuel to accusations that Israel has bombed indiscriminately.`\
+https://nytimes.com/2024/04/02/world/middleeast/israel-gaza-aid-workers-killed.html
+
 **Israel bombed an Iranian Embassy complex. Is that allowed?**\
 `Israel can likely argue that its actions did not violate international law’s protections for diplomatic missions, experts say.`\
 https://nytimes.com/2024/04/02/world/europe/interpreter-israel-syria-embassy.html
