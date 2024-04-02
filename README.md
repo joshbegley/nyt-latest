@@ -1,3 +1,7 @@
+**Jazz at Lincoln Center’s New Season Includes Tribute to Bayard Rustin**\
+`The civil rights activist’s life and legacy will be honored in a 2024-25 lineup that will also include spotlights on jazz history, and a rising star to warm up November.`\
+https://nytimes.com/2024/04/02/arts/music/lincoln-center-jazz-lineup.html
+
 **Iran and Israel Have a Long History of Clandestine Attacks**\
 `The regional rivals have for decades targeted each other’s interests, including with a recent strike in Syria that killed three Iranian commanders. Here are some other notable flash points.`\
 https://nytimes.com/2024/04/02/world/middleeast/iran-israel-attacks-shadow-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/us/march-madness-women-iowa-lsu.html
 **Readers Share Their Favorite Places to See Art in California**\
 `Contemporary art with a hillside winery in Napa, a Roman villa-inspired museum in Pacific Palisades and more.`\
 https://nytimes.com/2024/04/02/us/california-places-to-see-art.html
-
-**Strike in Damascus Is an Escalation in Israel’s Undeclared War With Iran**\
-`Tehran promises major retaliation, but neither Israel nor Iran wants a major shooting war, given the stakes for both countries. Even so, the danger of a miscalculation is ever-present.`\
-https://nytimes.com/2024/04/02/world/middleeast/iran-israel-damascus-strike.html
 
