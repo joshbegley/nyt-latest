@@ -1,3 +1,15 @@
+**Ye Praised Hitler and Spoke of ‘Going for the Gays,’ Lawsuit Claims**\
+`A former employee sued the rapper formerly known as Kanye West, claiming a hostile work environment at Yeezy, his fashion brand, and Donda Academy, his private school.`\
+https://nytimes.com/2024/04/02/arts/music/kanye-west-lawsuit-donda.html
+
+**Ramy Youssef’s ‘S.N.L.’ Monologue Was a Love Letter to Muslim America**\
+`Muslims, he seemed to say, are just like everyone else.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/ramy-youssef-snl-monologue
+
+**Warming Is Getting Worse. So They Just Tested a Way to Deflect the Sun.**\
+`A trial in California is testing a machine designed to reflect sunlight back into space. “All my colleagues hope that we never use these things,” one researcher said.`\
+https://nytimes.com/2024/04/02/climate/global-warming-clouds-solar-geoengineering.html
+
 **Wednesday Briefing: Aid Workers Killed in Gaza**\
 `Plus, President Biden talked to Xi Jinping.`\
 https://nytimes.com/2024/04/02/world/asia/strike-aid-netanyahu-biden-asia.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/02/us/politics/supreme-court-washington-state-voting
 **Before and After Images Show What Remains of Al-Shifa Hospital**\
 `The hospital, which was the largest in Gaza, stood in ruins after a two-week raid by the Israeli military.`\
 https://nytimes.com/video/world/middleeast/100000009392733/al-shifa-hospital-raid-before-after.html
-
-**U.S. Finalizes Rule Requiring Two-Person Crews on Freight Trains**\
-`The regulation ensures that the nation’s largest freight railroads will not be able to reduce the number of workers aboard their trains from today’s status quo.`\
-https://nytimes.com/2024/04/02/us/politics/freight-train-crew-rule.html
-
-**Transcript: Ezra Klein Interviews Ethan Mollick**\
-`The April 2, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/04/02/podcasts/transcript-ezra-klein-interviews-ethan-mollick.html
-
-**Biden Assails ‘Outrageous’ Florida Abortion Ruling as His Campaign Blames Trump**\
-`The president’s campaign moved to pin responsibility squarely on Donald Trump after the Florida Supreme Court cleared the way for a six-week ban.`\
-https://nytimes.com/2024/04/02/us/politics/biden-florida-abortion-ruling.html
 
