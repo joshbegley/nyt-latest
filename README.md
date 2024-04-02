@@ -1,3 +1,15 @@
+**Israeli Army Withdraws From Major Gaza Hospital, Leaving Behind a Wasteland**\
+`Al-Shifa Hospital lies in ruins after a battle there between Israeli soldiers and Gazan gunmen. Shortly before withdrawing, the Israeli military brought journalists from The Times to witness the damage.`\
+https://nytimes.com/2024/04/02/world/middleeast/gaza-al-shifa-hospital.html
+
+**Ukraine’s Arms Industry Is Growing, but Is It Growing Fast Enough?**\
+`Kyiv is aiming to build its own weapons to bring the fight to Russia. But it will take time Ukraine might not have.`\
+https://nytimes.com/2024/04/02/us/politics/ukraines-war-weapons-industry-russia.html
+
+**Poor Nations Are Writing a New Handbook for Getting Rich**\
+`Economies focused on exports have lifted millions out of poverty, but epochal changes in trade, supply chains and technology are making it a lot harder.`\
+https://nytimes.com/2024/04/02/business/economy/global-economic-growth.html
+
 **North Korea Missile Test Hints at Greater Menace to U.S. Bases**\
 `The test, analysts said, may have involved a new intermediate-range hypersonic missile that is faster to launch and more difficult to intercept.`\
 https://nytimes.com/2024/04/01/world/asia/north-korea-irbm-missile-guam.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/01/world/middleeast/world-central-kitchen-strike-gaz
 **Trump Gets Bond Deal to Ward Off $454 Million Judgment, for Now**\
 `The guarantee means that New York’s attorney general will not be able to pursue Donald Trump’s assets and bank accounts until Mr. Trump’s appeals are settled.`\
 https://nytimes.com/2024/04/01/nyregion/trump-bond-deal.html
-
-**Gag Order Against Trump Is Expanded to Bar Attacks on Judge’s Family**\
-`Donald Trump had in recent days targeted the daughter of Juan Merchan, the judge overseeing his criminal trial in Manhattan, in blistering social media posts.`\
-https://nytimes.com/2024/04/01/nyregion/trump-gag-order-juan-merchan.html
-
-**Man Charged With Killing Officer Was Seen With Gun Beforehand, D.A. Says**\
-`Another officer patrolling Far Rockaway said he noticed Guy Rivera carrying a gun before he fatally shot Detective Jonathan Diller, according to the authorities.`\
-https://nytimes.com/2024/04/01/nyregion/jonathan-diller-nypd-shooting.html
-
-**We Want to Know: What’s Your No. 1 New York City Restaurant?**\
-`The Times’s critic, Pete Wells, has shared his second-annual list of the city’s best, but tell us what tops yours.`\
-https://nytimes.com/2024/04/01/dining/whats-your-favorite-restaurant.html
 
