@@ -15,7 +15,7 @@ https://nytimes.com/2024/04/02/us/california-places-to-see-art.html
 https://nytimes.com/2024/04/02/world/middleeast/iran-israel-damascus-strike.html
 
 **What We Know About the Strike That Killed 7 World Central Kitchen Workers**\
-`Prime Minister Benjamin Netanyahu of Israel acknowledged on Tuesday a “tragic case of our forces unintentionally hitting innocent people”`\
+`Prime Minister Benjamin Netanyahu of Israel acknowledged on Tuesday a “tragic case of our forces unintentionally harming innocent people”`\
 https://nytimes.com/2024/04/02/world/middleeast/world-central-kitchen-workers-strike-gaza.html
 
 **How to Befriend an Introvert**\
