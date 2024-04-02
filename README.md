@@ -1,3 +1,7 @@
+**What We Know About the Strike That Killed 7 Aid Workers**\
+`Aid workers with World Central Kitchen were killed when their convoy came under fire overnight, according to the aid organization and Palestinian health officials in Gaza.`\
+https://nytimes.com/2024/04/02/world/middleeast/world-central-kitchen-workers-strike-gaza.html
+
 **How to Befriend an Introvert**\
 `A winning essay by Ashley Zhang, age 14.`\
 https://nytimes.com/2024/04/02/learning/how-to-befriend-an-introvert.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/briefing/china-russia-trump-campaign.html
 **Kids Are Missing School at an Alarming Rate**\
 `How the pandemic changed families’ lives and the culture of education.`\
 https://nytimes.com/2024/04/02/podcasts/the-daily/kids-are-missing-school-at-an-alarming-rate.html
-
-**Israel Escalates Shadow War With Iran, and Trump Makes Bond**\
-`Plus, it’s the end of an era in Las Vegas.`\
-https://nytimes.com/2024/04/02/podcasts/israel-escalates-shadow-war-with-iran-and-trump-makes-bond.html
 
