@@ -1,3 +1,7 @@
+**Tesla’s Sales Drop, a Sign That Its Grip on the E.V. Market Is Slipping**\
+`Sales of the company’s electric cars dropped in the first three months of the year, even as other automakers sold more battery-powered vehicles.`\
+https://nytimes.com/2024/04/02/business/tesla-auto-sales-first-quarter.html
+
 **Jazz at Lincoln Center’s New Season Includes Tribute to Bayard Rustin**\
 `The civil rights activist’s life and legacy will be honored in a 2024-25 lineup that will also include spotlights on jazz history, and a rising star to warm up November.`\
 https://nytimes.com/2024/04/02/arts/music/lincoln-center-jazz-lineup.html

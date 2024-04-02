@@ -1,3 +1,7 @@
+**Did We Get the Joke? Thousands of You Had Some Thoughts.**\
+`Responding to our list of the funniest books since “Catch-22,” readers offer their own choices.`\
+https://nytimes.com/2024/04/02/books/review/funniest-novels-responses.html
+
 **Jazz at Lincoln Center’s New Season Includes Tribute to Bayard Rustin**\
 `The civil rights activist’s life and legacy will be honored in a 2024-25 lineup that will also include spotlights on jazz history, and a rising star to warm up November.`\
 https://nytimes.com/2024/04/02/arts/music/lincoln-center-jazz-lineup.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/business/tesla-auto-sales-first-quarter.html
 **The Caitlin Clark Show Rolls On**\
 `While off-the-court drama has raged in the women’s tournament, Clark and Iowa dispatched with their foils from last season en route to the Final Four.`\
 https://nytimes.com/2024/04/02/us/march-madness-women-iowa-lsu.html
-
-**Readers Share Their Favorite Places to See Art in California**\
-`Contemporary art with a hillside winery in Napa, a Roman villa-inspired museum in Pacific Palisades and more.`\
-https://nytimes.com/2024/04/02/us/california-places-to-see-art.html
 
