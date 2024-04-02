@@ -1,3 +1,7 @@
+**Can’t Make It to the Eclipse? Come With Us.**\
+`Like the moon over the sun, we have it covered. Here’s what we are doing.`\
+https://nytimes.com/2024/04/02/insider/solar-eclipse-april-8.html
+
 **7 Rainy Songs for April Showers**\
 `Hear tracks by Neil Young, FKA twigs, Love Unlimited and more.`\
 https://nytimes.com/2024/04/02/arts/music/amplifier-newsletter-rainy-april-songs.html
