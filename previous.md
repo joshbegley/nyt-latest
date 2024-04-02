@@ -1,3 +1,7 @@
+**Biden Assails ‘Outrageous’ Florida Abortion Ruling as His Campaign Blames Trump**\
+`The president’s campaign moved to pin responsibility squarely on Donald Trump after the Florida Supreme Court cleared the way for a six-week ban.`\
+https://nytimes.com/2024/04/02/us/politics/biden-florida-abortion-ruling.html
+
 **Restaurant Review: A New Voice in Soul Food Rises on Staten Island**\
 `At Shaw-naé’s House, Shaw-naé herself serves up Southern classics and a warm welcome to her “living room.”`\
 https://nytimes.com/2024/04/02/dining/restaurant-review-a-new-voice-in-soul-food-rises-on-staten-island.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/science/bird-flu-aid-animal-welfare.html
 **7 Rainy Songs for April Showers**\
 `Hear tracks by Neil Young, FKA twigs, Love Unlimited and more.`\
 https://nytimes.com/2024/04/02/arts/music/amplifier-newsletter-rainy-april-songs.html
-
-**Gunfire From Deputies Killed Teen Who Had Been Reported Kidnapped, Video Shows**\
-`Savannah Graziano, 15, was fatally shot a day after an Amber Alert was issued for her in September 2022. Newly released video and recordings show that she was killed by deputies.`\
-https://nytimes.com/2024/04/02/us/kidnapped-teen-shot-california-police.html
 
