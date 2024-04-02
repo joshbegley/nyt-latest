@@ -1,3 +1,7 @@
+**It’s Always a Good Time for an Oyster Roast**\
+`How to host an outdoor seafood celebration during a Northeastern winter, according to the founders of the newsletter The Perfect.`\
+https://nytimes.com/2024/04/02/t-magazine/oyster-roast-seafood-the-perfect.html
+
 **Israel’s Attack on Aid Workers Can Only Make Hunger in Gaza Worse**\
 `The strikes on World Central Kitchen damaged Israel’s credibility, and are an embarrassment to the U.S.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/gaza-aid-deaths
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/style/sticks-and-the-people-who-love-them.html
 **29 Killed in Fire at Istanbul Nightclub**\
 `The fire took place at Masquerade, a popular club that was closed to the public and undergoing renovations. Six people were arrested.`\
 https://nytimes.com/2024/04/02/world/europe/istanbul-nightclub-fire.html
-
-**The strike hit in Deir al Balah, a city in central Gaza that has been bombarded before.**\
-`By Adam Rasgon, Vivian Yee and Aaron Boxerman`\
-https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/the-strike-hit-in-deir-al-balah-a-city-in-central-gaza-that-has-been-bombarded-before
 

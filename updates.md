@@ -1,3 +1,7 @@
+**It’s Always a Good Time for an Oyster Roast**\
+`How to host an outdoor seafood celebration during a Northeastern winter, according to the founders of the newsletter The Perfect.`\
+https://nytimes.com/2024/04/02/t-magazine/oyster-roast-seafood-the-perfect.html
+
 **Israel’s Attack on Aid Workers Can Only Make Hunger in Gaza Worse**\
 `The strikes on World Central Kitchen damaged Israel’s credibility, and are an embarrassment to the U.S.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/gaza-aid-deaths
