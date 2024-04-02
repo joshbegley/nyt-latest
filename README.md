@@ -35,6 +35,6 @@ https://nytimes.com/2024/04/02/world/canada/canada-election-china-han-dong.html
 https://nytimes.com/2024/04/02/dining/jose-andres-central-kitchen-disaster-aid.html
 
 **Protest Outside Netanyahu’s Jerusalem Home Turns Into ‘Riot,’ Police Say**\
-`Anti-government demonstrators took to the streets for the third night in a row to call for early elections.`\
+`Antigovernment demonstrators took to the streets for the third night in a row to call for early elections.`\
 https://nytimes.com/2024/04/02/world/middleeast/israel-netanyahu-protest.html
 
