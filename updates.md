@@ -1,3 +1,7 @@
+**Is Giving Farmers Millions to Kill Millions of Chickens the Way to Curb Bird Flu?**\
+`Big poultry farms have received millions of dollars for their losses. Animal welfare groups contend that aid reinforces inhumane cullings of sick birds.`\
+https://nytimes.com/2024/04/02/science/bird-flu-aid-animal-welfare.html
+
 **Can’t Make It to the Eclipse? Come With Us.**\
 `Like the moon over the sun, we have it covered. Here’s what we are doing.`\
 https://nytimes.com/2024/04/02/insider/solar-eclipse-april-8.html
