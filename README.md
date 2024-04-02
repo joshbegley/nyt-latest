@@ -1,3 +1,7 @@
+**Netanyahu Called Aid Worker Deaths Tragic and Unintentional**\
+`Also, Biden had a rare call with Xi. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/04/02/briefing/israel-gaza-aid-workers-biden-xi-phone-call.html
+
 **Trump Again Invokes ‘Blood Bath’ and Dehumanizes Migrants in Border Remarks**\
 `The former president has tried to stoke fear around immigration and border security throughout his 2024 campaign, as he has done in the past.`\
 https://nytimes.com/2024/04/02/us/politics/trump-border-blood-bath.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/us/politics/rfk-biden-trump.html
 **Who Should Be the New James Bond?**\
 `As speculation heats up around the casting of a seventh cinematic 007, Styles reporters consider possible candidates for a new Bond era.`\
 https://nytimes.com/2024/04/02/fashion/bond-movies-007-actor.html
-
-**Supreme Court Rejects Bid to Revive Washington State Voting Map Said to Hurt Hispanics**\
-`A federal judge ruled that a state voting district diluted the ability of Latino voters to elect their preferred candidates.`\
-https://nytimes.com/2024/04/02/us/politics/supreme-court-washington-state-voting-map.html
 
