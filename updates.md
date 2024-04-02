@@ -1,3 +1,7 @@
+**The Best Movies and TV Shows Coming to Amazon, Disney+, Apple TV+ and More in April**\
+`“Fallout,” “Girls State” and a “Bluey” special are streaming.`\
+https://nytimes.com/2024/04/02/arts/television/april-streaming-movies-tv-shows.html
+
 **Biden Critics Push Democrats to Submit Blank Ballots in New York**\
 `Activists pressuring the president over Gaza urge voters to leave ballots unmarked, since New York does not allow “uncommitted” votes in primaries.`\
 https://nytimes.com/2024/04/02/us/politics/biden-gaza-blank-ballots-new-york-primary.html
