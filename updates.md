@@ -1,3 +1,7 @@
+**Iran and Israel Have a Long History of Clandestine Attacks**\
+`The regional rivals have for decades targeted each other’s interests, including with a recent strike in Syria that killed three Iranian commanders. Here are some other notable flash points.`\
+https://nytimes.com/2024/04/02/world/middleeast/iran-israel-attacks-shadow-war.html
+
 **What We Know About the Victims of the World Central Kitchen Strike**\
 `The group said one of the seven workers who was killed was a dual citizen of the U.S. and Canada, while the others were from Australia, Britain, Gaza and Poland.`\
 https://nytimes.com/2024/04/02/world/middleeast/world-central-kitchen-victims.html
