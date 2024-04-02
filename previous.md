@@ -1,3 +1,7 @@
+**In U.N. meeting, U.S., Britain and France do not join condemnation of Israeli strike on diplomatic compound.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/in-un-meeting-us-britain-and-france-do-not-join-condemnation-of-israeli-strike-on-diplomatic-compound
+
 **John Barth, a Novelist Who Found Possibility in a ‘Used-Up’ Form**\
 `By merrily using fiction to dissect itself, he was at the vanguard of a movement that defined a postwar American style.`\
 https://nytimes.com/2024/04/02/books/review/john-barth-appreciation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/us/politics/guantanamo-security-prisoners.html
 **George Carlin’s Estate Reaches Settlement After A.I. Podcast**\
 `The estate had accused two podcast hosts of infringing on its copyrights by training an A.I. algorithm on five decades of Mr. Carlin’s work.`\
 https://nytimes.com/2024/04/02/arts/george-carlins-settlement-ai-podcast.html
-
-**Canadian Lawmaker Testifies Chinese Students Were Bused In to Elect Him**\
-`Han Dong, a member of Parliament who is accused of benefiting from the Chinese government’s help, testified at a public hearing on foreign interference.`\
-https://nytimes.com/2024/04/02/world/canada/canada-election-china-han-dong.html
 

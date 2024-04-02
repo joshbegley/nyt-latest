@@ -1,3 +1,7 @@
+**In U.N. meeting, U.S., Britain and France do not join condemnation of Israeli strike on diplomatic compound.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/in-un-meeting-us-britain-and-france-do-not-join-condemnation-of-israeli-strike-on-diplomatic-compound
+
 **John Barth, a Novelist Who Found Possibility in a ‘Used-Up’ Form**\
 `By merrily using fiction to dissect itself, he was at the vanguard of a movement that defined a postwar American style.`\
 https://nytimes.com/2024/04/02/books/review/john-barth-appreciation.html
