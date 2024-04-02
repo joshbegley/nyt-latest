@@ -1,3 +1,15 @@
+**The Technique Reshaping Organ Transplantation**\
+`Perfusion keeps a donated organ alive outside the body, long enough to assess its viability and to give surgeons breathing room.`\
+https://nytimes.com/2024/04/02/health/organ-transplants-perfusion.html
+
+**Joe Biden Is More Than His Age**\
+`Responses to an Opinion article by Frank Bruni. Also: Investing in Ukraine; Gabriel García Márquez’s last novel; America’s gun culture.`\
+https://nytimes.com/2024/04/02/opinion/joe-biden-age.html
+
+**Adidas Stops Customization of Germany Jersey for Fear of Nazi Symbolism**\
+`The apparel giant moved quickly to block the sale of shirts bearing the No. 44, which resembled a banned Nazi logo in the uniform’s new lettering.`\
+https://nytimes.com/2024/04/02/world/europe/germany-jersey-customize-nazi-symbol.html
+
 **Is It a Blizzard? A Nor’easter? And What’s the Difference?**\
 `How to stay safe when the snow is coming down.`\
 https://nytimes.com/article/blizzard-noreaster-explained.html
