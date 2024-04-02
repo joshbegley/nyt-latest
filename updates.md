@@ -1,3 +1,7 @@
+**Drones Strike Deep in Russia, as Ukraine Extends Its Weapons Range**\
+`Ukrainian media and analysts, and Russian officials, said Ukraine had carried out the attack some 700 miles from the land it controls. Ukraine’s military and intelligence forces declined to comment.`\
+https://nytimes.com/2024/04/02/world/europe/russia-ukraine-drone-strike.html
+
 **Joe Flaherty, ‘SCTV’ and ‘Freaks and Geeks’ Actor, Dies at 82**\
 `Mr. Flaherty was known for playing a series of oddball characters on the sketch series “SCTV” and, more recently, for his role as the father of two teenagers on “Freaks and Geeks.”`\
 https://nytimes.com/2024/04/02/arts/joe-flaherty-dead.html
