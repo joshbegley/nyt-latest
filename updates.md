@@ -1,3 +1,7 @@
+**North Korea Missile Test Hints at Greater Menace to U.S. Bases**\
+`The test, analysts said, may have involved a new intermediate-range hypersonic missile that is faster to launch and more difficult to intercept.`\
+https://nytimes.com/2024/04/01/world/asia/north-korea-irbm-missile-guam.html
+
 **Quotation of the Day: Ireland Is Recovering Historical Documents Lost to the Flames of War**\
 `Quotation of the Day for Tuesday, April 2, 2024.`\
 https://nytimes.com/2024/04/01/pageoneplus/quotation-of-the-day-ireland-is-recovering-historical-documents-lost-to-the-flames-of-war.html
