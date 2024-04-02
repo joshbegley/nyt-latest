@@ -1,3 +1,11 @@
+**Lola’s Offers a Southern Spin on Filipino Cooking**\
+`Alaluna offers dry-aged fish with an Italian approach, Bon Bon serves up Swedish hot dogs and more restaurant news.`\
+https://nytimes.com/2024/04/02/dining/nyc-restaurant-news.html
+
+**Klaus Mäkelä, 28-Year-Old Finnish Conductor, to Lead Chicago Symphony**\
+`He will be the youngest music director in the orchestra’s 133-year history, and one of the youngest ever to lead a top American ensemble.`\
+https://nytimes.com/2024/04/02/arts/music/klaus-makela-28-to-lead-chicago-symphony-orchestra.html
+
 **Beyoncé’s ‘Cowboy Carter’ Is a Vivid Mission Statement. Let’s Discuss.**\
 `The pop superstar teased a move to country, then tackled so much more. Three critics and a reporter explore her new album’s inspirations, sounds and stakes.`\
 https://nytimes.com/2024/04/02/arts/music/beyonce-cowboy-carter.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/02/arts/television/april-streaming-movies-tv-shows.h
 **Biden Critics Push Democrats to Submit Blank Ballots in New York**\
 `Activists pressuring the president over Gaza urge voters to leave ballots unmarked, since New York does not allow “uncommitted” votes in primaries.`\
 https://nytimes.com/2024/04/02/us/politics/biden-gaza-blank-ballots-new-york-primary.html
-
-**Trump to Focus on Border as Democrats Eye Boost From Florida Abortion Ruling**\
-`Democrats, bolstered by a pair of court rulings out of Florida on Monday, have fresh optimism about their ability to center the campaign on abortion.`\
-https://nytimes.com/2024/04/02/us/politics/trump-biden-abortion-border.html
-
-**02pol-swiper**\
-`Election Updates: Trump tries to keep focus on the border as Democrats hope for a boost from Florida’s abortion ruling.`\
-https://nytimes.com/live/2024/04/02/us/biden-trump-election-primary
 

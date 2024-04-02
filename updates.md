@@ -1,3 +1,11 @@
+**Lola’s Offers a Southern Spin on Filipino Cooking**\
+`Alaluna offers dry-aged fish with an Italian approach, Bon Bon serves up Swedish hot dogs and more restaurant news.`\
+https://nytimes.com/2024/04/02/dining/nyc-restaurant-news.html
+
+**Klaus Mäkelä, 28-Year-Old Finnish Conductor, to Lead Chicago Symphony**\
+`He will be the youngest music director in the orchestra’s 133-year history, and one of the youngest ever to lead a top American ensemble.`\
+https://nytimes.com/2024/04/02/arts/music/klaus-makela-28-to-lead-chicago-symphony-orchestra.html
+
 **Beyoncé’s ‘Cowboy Carter’ Is a Vivid Mission Statement. Let’s Discuss.**\
 `The pop superstar teased a move to country, then tackled so much more. Three critics and a reporter explore her new album’s inspirations, sounds and stakes.`\
 https://nytimes.com/2024/04/02/arts/music/beyonce-cowboy-carter.html
