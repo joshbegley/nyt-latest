@@ -1,3 +1,11 @@
+**Maryse Condé, ‘Grande Dame’ of Francophone Literature, Dies at 90**\
+`She explored the history and culture of Africa, the West Indies and Europe in work that made her a perennial favorite for the Nobel Prize.`\
+https://nytimes.com/2024/04/02/books/maryse-conde-dead.html
+
+**John Barth, Writer Who Pushed Storytelling’s Limits, Dies at 93**\
+`His sprawling and boisterous novel “The Sot-Weed Factor,” published in 1960, projected him into the ranks of the country’s most innovative writers.`\
+https://nytimes.com/2024/04/02/books/john-barth-dead.html
+
 **The Appalling Tactics of the ‘Free Palestine’ Movement**\
 `What does it say about a cause that won’t weed out its worst members or stamp out its worst ideas?`\
 https://nytimes.com/2024/04/02/opinion/the-appalling-tactics-of-the-free-palestine-movement.html
