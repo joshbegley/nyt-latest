@@ -1,3 +1,7 @@
+**Israel’s Attack on Aid Workers Can Only Make Hunger in Gaza Worse**\
+`The strikes on World Central Kitchen damaged Israel’s credibility, and are an embarrassment to the U.S.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/gaza-aid-deaths
+
 **Endeavor, the Entertainment Company Led by Ari Emanuel, to Go Private**\
 `Silver Lake, the investment company, will buy shares in the Hollywood and sports firm that it doesn’t already own, valuing Endeavor at $13 billion.`\
 https://nytimes.com/2024/04/02/business/dealbook/endeavor-private-silver-lake.html
@@ -14,13 +18,13 @@ https://nytimes.com/2024/04/02/us/politics/larry-david-trump-georgia.html
 `More than three million people were under a tornado watch early Tuesday afternoon.`\
 https://nytimes.com/2024/04/02/us/tornado-warnings-weather-forecast.html
 
-**Can’t Make It to the Eclipse? Come With Us.**\
-`Like the moon over the sun, we have it covered. Here’s what we are doing.`\
-https://nytimes.com/2024/04/02/insider/solar-eclipse-april-8.html
-
 **In the Magnificence of Iowa’s Glow, Albany Catches Some Shade**\
 `During the waning moments of Iowa’s victory over L.S.U. on Monday, a stray comment on the televised broadcast cast the New York capital in an unflattering light.`\
 https://nytimes.com/2024/04/02/nyregion/albany-rebecca-lobo.html
+
+**Can’t Make It to the Eclipse? Come With Us.**\
+`Like the moon over the sun, we have it covered. Here’s what we are doing.`\
+https://nytimes.com/2024/04/02/insider/solar-eclipse-april-8.html
 
 **Sticks. And the People Who Love Them.**\
 `Those who appreciate “something as basic as a stick” are sharing their enthusiasm through a newly popular Instagram account.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/world/europe/istanbul-nightclub-fire.html
 **The strike hit in Deir al Balah, a city in central Gaza that has been bombarded before.**\
 `By Adam Rasgon, Vivian Yee and Aaron Boxerman`\
 https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/the-strike-hit-in-deir-al-balah-a-city-in-central-gaza-that-has-been-bombarded-before
-
-**Larry Lucchino, Top Executive at Three M.L.B. Teams, Dies at 78**\
-`He oversaw construction of new ballparks for the Baltimore Orioles and San Diego Padres and, with the Red Sox, the renovations at Fenway Park.`\
-https://nytimes.com/2024/04/02/sports/baseball/larry-lucchino-dead.html
 
