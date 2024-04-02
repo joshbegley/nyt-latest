@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Ethan Mollick**\
+`The April 2, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/04/02/podcasts/transcript-ezra-klein-interviews-ethan-mollick.html
+
 **Biden Assails ‘Outrageous’ Florida Abortion Ruling as His Campaign Blames Trump**\
 `The president’s campaign moved to pin responsibility squarely on Donald Trump after the Florida Supreme Court cleared the way for a six-week ban.`\
 https://nytimes.com/2024/04/02/us/politics/biden-florida-abortion-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/style/tiny-modern-love-stories-my-family-owned-yo
 **Is Giving Farmers Millions to Kill Millions of Chickens the Way to Curb Bird Flu?**\
 `Big poultry farms have received millions of dollars for their losses. Animal welfare groups contend that aid reinforces inhumane cullings of birds exposed to the virus.`\
 https://nytimes.com/2024/04/02/science/bird-flu-aid-animal-welfare.html
-
-**7 Rainy Songs for April Showers**\
-`Hear tracks by Neil Young, FKA twigs, Love Unlimited and more.`\
-https://nytimes.com/2024/04/02/arts/music/amplifier-newsletter-rainy-april-songs.html
 

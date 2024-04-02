@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Ethan Mollick**\
+`The April 2, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/04/02/podcasts/transcript-ezra-klein-interviews-ethan-mollick.html
+
 **Biden Assails ‘Outrageous’ Florida Abortion Ruling as His Campaign Blames Trump**\
 `The president’s campaign moved to pin responsibility squarely on Donald Trump after the Florida Supreme Court cleared the way for a six-week ban.`\
 https://nytimes.com/2024/04/02/us/politics/biden-florida-abortion-ruling.html
