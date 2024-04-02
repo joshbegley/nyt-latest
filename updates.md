@@ -1,3 +1,7 @@
+**Strike in Damascus Is an Escalation in Israel’s Undeclared War With Iran**\
+`Tehran promises major retaliation, but neither Israel nor Iran wants a major shooting war, given the stakes for both countries. Even so, the danger of a miscalculation is ever-present.`\
+https://nytimes.com/2024/04/02/world/middleeast/iran-israel-damascus-strike.html
+
 **The Caitlin Clark Show Rolls On**\
 `While off-the-court drama has raged in the women’s tournament, Clark and Iowa dispatched with their foils from last season en route to the Final Four.`\
 https://nytimes.com/2024/04/02/us/march-madness-women-iowa-lsu.html
