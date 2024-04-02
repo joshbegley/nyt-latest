@@ -1,3 +1,7 @@
+**Late Winter Storms Spare California From Drought Pain, for Now**\
+`A rush of precipitation lifted the state to its second straight year with above-average snowfall, though Gov. Gavin Newsom warned residents not to grow used to it.`\
+https://nytimes.com/2024/04/02/us/california-snow-water-level.html
+
 **Netanyahu Called Aid Worker Deaths Tragic and Unintentional**\
 `Also, Biden had a rare call with Xi. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/04/02/briefing/israel-gaza-aid-workers-biden-xi-phone-call.html
