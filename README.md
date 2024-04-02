@@ -1,3 +1,11 @@
+**7 Aid Workers Killed in Gaza Were Known for a Passion for Helping Others**\
+`Gaza has been the deadliest place for aid workers since the Oct. 7 attacks.`\
+https://nytimes.com/2024/04/02/world/middleeast/gaza-aid-world-central-kitchen-workers-killed.html
+
+**Trump Asks Trial Judge to Step Aside, Aiming Again at His Daughter**\
+`Donald Trump’s lawyers argued that Juan Merchan should step aside because his daughter consults for Democratic candidates. The former president had furiously criticized her before a gag order.`\
+https://nytimes.com/2024/04/02/nyregion/trump-trial-judge-daughter.html
+
 **Late Winter Storms Spare California From Drought Pain, for Now**\
 `A rush of precipitation lifted the state to its second straight year with above-average snowfall, though Gov. Gavin Newsom warned residents not to grow used to it.`\
 https://nytimes.com/2024/04/02/us/california-snow-water-level.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/02/world/asia/strike-aid-netanyahu-biden-asia.html
 **Israel bombed an Iranian Embassy complex. Is that allowed?**\
 `Israel can likely argue that its actions did not violate international law’s protections for diplomatic missions, experts say.`\
 https://nytimes.com/2024/04/02/world/europe/interpreter-israel-syria-embassy.html
-
-**Israeli Strikes Kill 7 Aid Workers in Gaza**\
-`The attack on clearly marked vehicles run by the World Central Kitchen shows how dangerous relief work has been during the war, and adds fuel to accusations that Israel has bombed indiscriminately.`\
-https://nytimes.com/2024/04/02/world/middleeast/israel-gaza-aid-workers-killed.html
-
-**To R.F.K. Jr., It’s Biden, Not Trump, Who’s the Bigger Threat to Democracy**\
-`The independent presidential candidate stepped up his attacks on President Biden over perceived social media “censorship,” echoing Donald Trump’s wild claim that Mr. Biden is the true threat.`\
-https://nytimes.com/2024/04/02/us/politics/rfk-biden-trump.html
 
