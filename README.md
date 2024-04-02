@@ -4,7 +4,7 @@ https://nytimes.com/2024/04/02/us/tornado-warnings-weather-forecast.html
 
 **Can’t Make It to the Eclipse? Come With Us.**\
 `Like the moon over the sun, we have it covered. Here’s what we are doing.`\
-https://nytimes.com/2024/04/02/insider/new-york-times-eclipse-april-8.html
+https://nytimes.com/2024/04/02/insider/solar-eclipse-april-8.html
 
 **In the Magnificence of Iowa’s Glow, Albany Catches Some Shade**\
 `During the waning moments of Iowa’s victory over L.S.U. on Monday, a stray comment on the televised broadcast cast the New York capital in an unflattering light.`\
