@@ -1,3 +1,7 @@
+**The Winners of Our ‘How To’ Contest**\
+`Over 2,200 teenagers submitted essays on how to do everything from fix a toilet to fight a kangaroo. We’ll be publishing the work of the winners all week.`\
+https://nytimes.com/2024/04/02/learning/the-winners-of-our-how-to-contest.html
+
 **Regulators Force Another Microsoft Split**\
 `The tech giant is unbundling Teams from its Office software suite, as it faces mounting scrutiny on both sides of the Atlantic.`\
 https://nytimes.com/2024/04/02/business/dealbook/microsoft-teams-office-unbundle.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/world/asia/japan-royal-family-instagram.html
 **Ruben Gallego, Democratic Senate Candidate in Arizona, Raises $7.5 Million**\
 `The congressman’s campaign said it had more than $9.6 million cash on hand as it looks toward a fall race against Kari Lake, a Trump ally, who has yet to announce first-quarter fund-raising figures.`\
 https://nytimes.com/2024/04/02/us/politics/ruben-gallego-arizona-kari-lake.html
-
-**With Abortion Ballot Question, a ‘Path to Relevance’ for Democrats in Florida?**\
-`Rulings allowing a strict abortion ban, along with a ballot question on expanding abortion access, may inject new life into Democratic campaigns in the state.`\
-https://nytimes.com/2024/04/02/us/abortion-democrats-florida.html
 
