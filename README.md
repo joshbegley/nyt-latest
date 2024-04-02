@@ -1,3 +1,7 @@
+**Is Giving Farmers Millions to Kill Millions of Chickens the Way to Curb Bird Flu?**\
+`Big poultry farms have received millions of dollars for their losses. Animal welfare groups contend that aid reinforces inhumane cullings of sick birds.`\
+https://nytimes.com/2024/04/02/science/bird-flu-aid-animal-welfare.html
+
 **7 Rainy Songs for April Showers**\
 `Hear tracks by Neil Young, FKA twigs, Love Unlimited and more.`\
 https://nytimes.com/2024/04/02/arts/music/amplifier-newsletter-rainy-april-songs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/us/politics/larry-david-trump-georgia.html
 **Severe Weather, Including Tornadoes, Expected in Midwest and South**\
 `More than three million people were under a tornado watch early Tuesday afternoon.`\
 https://nytimes.com/2024/04/02/us/tornado-warnings-weather-forecast.html
-
-**Can’t Make It to the Eclipse? Come With Us.**\
-`Like the moon over the sun, we have it covered. Here’s what we are doing.`\
-https://nytimes.com/2024/04/02/insider/solar-eclipse-april-8.html
 
