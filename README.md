@@ -1,3 +1,15 @@
+**Joe Flaherty, ‘SCTV’ and ‘Freaks and Geeks’ Actor, Dies at 82**\
+`Mr. Flaherty was known for playing a series of oddball characters on the sketch series “SCTV” and, more recently, for his role as the father of two teenagers on “Freaks and Geeks.”`\
+https://nytimes.com/2024/04/02/arts/joe-flaherty-dead.html
+
+**An A.I. Researcher Takes On Election Deepfakes**\
+`Oren Etzioni was once an optimist about artificial intelligence. Now, his nonprofit, TrueMedia.org, is offering tools for fighting A.I.-manipulated content.`\
+https://nytimes.com/2024/04/02/technology/an-ai-researcher-takes-on-election-deepfakes.html
+
+**As Severe Storms Moved Through, U.S. Weather Warning System Faced an ‘Outage’**\
+`“Some warning services were impacted,” a National Weather Service spokesman said. By early Tuesday, things were back online.`\
+https://nytimes.com/2024/04/02/us/weather-radar-down.html
+
 **The Technique Reshaping Organ Transplantation**\
 `Perfusion keeps a donated organ alive outside the body, giving surgeons extra time and increasing the number of transplants possible.`\
 https://nytimes.com/2024/04/02/health/organ-transplants-perfusion.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/02/us/politics/biden-xi-call.html
 **An Abortion Rights Vote May Not Be Enough for Biden in Florida**\
 `But reproductive-rights supporters have a real chance at reversing the state’s six-week abortion ban.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/florida-abortion-biden
-
-**Lola’s Offers a Southern Spin on Filipino Cooking**\
-`Alaluna offers dry-aged fish with an Italian approach, Bon Bon serves up Swedish hot dogs and more restaurant news.`\
-https://nytimes.com/2024/04/02/dining/nyc-restaurant-news.html
-
-**Klaus Mäkelä, 28-Year-Old Finnish Conductor, to Lead Chicago Symphony**\
-`He will be the youngest music director in the orchestra’s 133-year history, and one of the youngest ever to lead a top American ensemble.`\
-https://nytimes.com/2024/04/02/arts/music/klaus-makela-28-to-lead-chicago-symphony-orchestra.html
-
-**Beyoncé’s ‘Cowboy Carter’ Is a Vivid Mission Statement. Let’s Discuss.**\
-`The pop superstar teased a move to country, then tackled so much more. Three critics and a reporter explore her new album’s inspirations, sounds and stakes.`\
-https://nytimes.com/2024/04/02/arts/music/beyonce-cowboy-carter.html
 
