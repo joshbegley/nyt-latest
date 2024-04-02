@@ -1,3 +1,7 @@
+**Late Night Assesses Donald Trump’s Slumping Media Company**\
+`Jimmy Fallon joked that “Truth Social stock tanked so fast, they’re changing the name to Twitter.”`\
+https://nytimes.com/2024/04/02/arts/television/late-night-donald-trump-stock.html
+
 **Word of the Day: inexplicable**\
 `This word has appeared in 107 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/02/learning/word-of-the-day-inexplicable.html
