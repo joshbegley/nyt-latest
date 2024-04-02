@@ -1,3 +1,11 @@
+**Beyoncé’s ‘Cowboy Carter’ Is a Vivid Mission Statement. Let’s Discuss.**\
+`The pop superstar teased a move to country, then tackled so much more. Three critics and a reporter explore her new album’s inspirations, sounds and stakes.`\
+https://nytimes.com/2024/04/02/arts/music/beyonce-cowboy-carter.html
+
+**Easy Dinners to Clear Out the Condiments in Your Fridge**\
+`Skip a trip to the store and clean out your shelves at the same time with these simple dishes.`\
+https://nytimes.com/2024/04/02/dining/easy-dinners-to-clear-out-the-condiments-in-your-fridge.html
+
 **Did We Get the Joke? Thousands of You Had Some Thoughts.**\
 `Responding to our list of the funniest books since “Catch-22,” readers offer their own choices.`\
 https://nytimes.com/2024/04/02/books/review/funniest-novels-responses.html
