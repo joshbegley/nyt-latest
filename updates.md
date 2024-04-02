@@ -1,3 +1,7 @@
+**Severe Weather, Including Tornadoes, Expected in Midwest and South**\
+`More than three million people were under a tornado watch early Tuesday afternoon.`\
+https://nytimes.com/2024/04/02/us/tornado-warnings-weather-forecast.html
+
 **Can’t Make It to the Eclipse? Come With Us.**\
 `Like the moon over the sun, we have it covered. Here’s what we are doing.`\
 https://nytimes.com/2024/04/02/insider/new-york-times-eclipse-april-8.html
