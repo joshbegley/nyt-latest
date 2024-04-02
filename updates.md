@@ -1,3 +1,11 @@
+**7 Aid Workers Killed in Gaza Were Known for a Passion for Helping Others**\
+`Gaza has been the deadliest place for aid workers since the Oct. 7 attacks.`\
+https://nytimes.com/2024/04/02/world/middleeast/gaza-aid-world-central-kitchen-workers-killed.html
+
+**Trump Asks Trial Judge to Step Aside, Aiming Again at His Daughter**\
+`Donald Trump’s lawyers argued that Juan Merchan should step aside because his daughter consults for Democratic candidates. The former president had furiously criticized her before a gag order.`\
+https://nytimes.com/2024/04/02/nyregion/trump-trial-judge-daughter.html
+
 **Late Winter Storms Spare California From Drought Pain, for Now**\
 `A rush of precipitation lifted the state to its second straight year with above-average snowfall, though Gov. Gavin Newsom warned residents not to grow used to it.`\
 https://nytimes.com/2024/04/02/us/california-snow-water-level.html
