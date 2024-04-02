@@ -1,3 +1,7 @@
+**Stuck Ships and Supply-Chain Inflation**\
+`Baltimore alone isn’t that big a deal, but is it an omen?`\
+https://nytimes.com/2024/04/02/opinion/baltimore-bridge-inflation-supply-chain.html
+
 **Nightclub Fire in Istanbul Kills 29 People**\
 `Firefighters assessed the damage caused by a fire at a popular nightclub.`\
 https://nytimes.com/video/world/europe/100000009393345/istanbul-fire-nightclub.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/world/europe/rome-future-past-downtown.html
 **It’s Always a Good Time for an Oyster Roast**\
 `How to host an outdoor seafood celebration during a Northeastern winter, according to the founders of the newsletter The Perfect.`\
 https://nytimes.com/2024/04/02/t-magazine/oyster-roast-seafood-the-perfect.html
-
-**Israel’s Attack on Aid Workers Can Only Make Hunger in Gaza Worse**\
-`The strikes on World Central Kitchen damaged Israel’s credibility, and are an embarrassment to the U.S.`\
-https://nytimes.com/live/2024/03/26/opinion/thepoint/gaza-aid-deaths
 
