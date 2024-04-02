@@ -1,3 +1,7 @@
+**Georgia Election Official Responds to Critical ‘Curb Your Enthusiasm’ Plotline**\
+`Georgia Secretary of State Brad Raffensperger sent a tongue-in-cheek letter to Larry David, the show’s creator and star.`\
+https://nytimes.com/2024/04/02/us/politics/larry-david-trump-georgia.html
+
 **Can’t Make It to the Eclipse? Come With Us.**\
 `Like the moon over the sun, we have it covered. Here’s what we are doing.`\
 https://nytimes.com/2024/04/02/insider/solar-eclipse-april-8.html
