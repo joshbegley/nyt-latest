@@ -1,3 +1,7 @@
+**7 Rainy Songs for April Showers**\
+`Hear tracks by Neil Young, FKA twigs, Love Unlimited and more.`\
+https://nytimes.com/2024/04/02/arts/music/amplifier-newsletter-rainy-april-songs.html
+
 **Gunfire From Deputies Killed Teen Who Had Been Reported Kidnapped, Video Shows**\
 `Savannah Graziano, 15, was fatally shot a day after an Amber Alert was issued for her in September 2022. Newly released video and recordings show that she was killed by deputies.`\
 https://nytimes.com/2024/04/02/us/kidnapped-teen-shot-california-police.html

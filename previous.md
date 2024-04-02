@@ -1,3 +1,7 @@
+**7 Rainy Songs for April Showers**\
+`Hear tracks by Neil Young, FKA twigs, Love Unlimited and more.`\
+https://nytimes.com/2024/04/02/arts/music/amplifier-newsletter-rainy-april-songs.html
+
 **Gunfire From Deputies Killed Teen Who Had Been Reported Kidnapped, Video Shows**\
 `Savannah Graziano, 15, was fatally shot a day after an Amber Alert was issued for her in September 2022. Newly released video and recordings show that she was killed by deputies.`\
 https://nytimes.com/2024/04/02/us/kidnapped-teen-shot-california-police.html
@@ -29,10 +33,6 @@ https://nytimes.com/2024/04/02/us/politics/larry-david-trump-georgia.html
 **Severe Weather, Including Tornadoes, Expected in Midwest and South**\
 `More than three million people were under a tornado watch early Tuesday afternoon.`\
 https://nytimes.com/2024/04/02/us/tornado-warnings-weather-forecast.html
-
-**Can’t Make It to the Eclipse? Come With Us.**\
-`Like the moon over the sun, we have it covered. Here’s what we are doing.`\
-https://nytimes.com/2024/04/02/insider/solar-eclipse-april-8.html
 
 **In the Magnificence of Iowa’s Glow, Albany Catches Some Shade**\
 `During the waning moments of Iowa’s victory over L.S.U. on Monday, a stray comment on the televised broadcast cast the New York capital in an unflattering light.`\
