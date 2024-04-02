@@ -1,3 +1,7 @@
+**Fears Grow That Syria Strikes Could Spur Retaliatory Attacks on Israel and U.S.**\
+`Current and former American officials say the airstrikes on an Iranian embassy compound in Damascus were a serious blow to Tehran.`\
+https://nytimes.com/2024/04/02/world/middleeast/syria-strikes-iran-israel-us.html
+
 **Georgia Election Official Responds to Critical ‘Curb Your Enthusiasm’ Plotline**\
 `Georgia Secretary of State Brad Raffensperger sent a tongue-in-cheek letter to Larry David, the show’s creator and star.`\
 https://nytimes.com/2024/04/02/us/politics/larry-david-trump-georgia.html
