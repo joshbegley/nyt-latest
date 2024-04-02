@@ -1,3 +1,15 @@
+**How to Befriend an Introvert**\
+`A winning essay by Ashley Zhang, age 14.`\
+https://nytimes.com/2024/04/02/learning/how-to-befriend-an-introvert.html
+
+**How to Find Your Balance**\
+`A winning essay by Chelsea Hu, age 18.`\
+https://nytimes.com/2024/04/02/learning/how-to-find-your-balance.html
+
+**How to Do the Worm**\
+`A winning essay by Camille Gonzales, age 18.`\
+https://nytimes.com/2024/04/02/learning/how-to-do-the-worm.html
+
 **The Winners of Our ‘How To’ Contest**\
 `Over 2,200 teenagers submitted essays on how to do everything from fix a toilet to fight a kangaroo. We’ll be publishing the work of the winners all week.`\
 https://nytimes.com/2024/04/02/learning/the-winners-of-our-how-to-contest.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/02/podcasts/the-daily/kids-are-missing-school-at-an-
 **Israel Escalates Shadow War With Iran, and Trump Makes Bond**\
 `Plus, it’s the end of an era in Las Vegas.`\
 https://nytimes.com/2024/04/02/podcasts/israel-escalates-shadow-war-with-iran-and-trump-makes-bond.html
-
-**Beyoncé’s New Album Reviewed**\
-`“Cowboy Carter” is more than country.`\
-https://nytimes.com/2024/04/02/podcasts/beyonces-new-album-reviewed.html
-
-**Japan’s New Royal Instagram Page Forgoes Flash for Formality**\
-`No memes or spontaneity to see here, people. Just the usual official pictures of Emperor Naruhito and his family.`\
-https://nytimes.com/2024/04/02/world/asia/japan-royal-family-instagram.html
-
-**Ruben Gallego, Democratic Senate Candidate in Arizona, Raises $7.5 Million**\
-`The congressman’s campaign said it had more than $9.6 million cash on hand as it looks toward a fall race against Kari Lake, a Trump ally, who has yet to announce first-quarter fund-raising figures.`\
-https://nytimes.com/2024/04/02/us/politics/ruben-gallego-arizona-kari-lake.html
 
