@@ -1,3 +1,15 @@
+**Africa’s Youngest President Takes Office, Promising ‘Systemic Change’**\
+`Senegal’s new president, Bassirou Diomaye Faye, took the oath of office in Tuesday’s ceremony. Close behind him sat the popular opposition leader who had clinched the win.`\
+https://nytimes.com/2024/04/02/world/africa/senegal-president-inauguration.html
+
+**How to make polluters pay**\
+`A new Vermont bill would create a “climate superfund.”`\
+https://nytimes.com/2024/04/02/climate/how-to-make-polluters-pay.html
+
+**Tiny Love Stories: ‘My Family Owned Your House’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/04/02/style/tiny-modern-love-stories-my-family-owned-your-house.html
+
 **Is Giving Farmers Millions to Kill Millions of Chickens the Way to Curb Bird Flu?**\
 `Big poultry farms have received millions of dollars for their losses. Animal welfare groups contend that aid reinforces inhumane cullings of sick birds.`\
 https://nytimes.com/2024/04/02/science/bird-flu-aid-animal-welfare.html

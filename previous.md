@@ -1,3 +1,15 @@
+**Africa’s Youngest President Takes Office, Promising ‘Systemic Change’**\
+`Senegal’s new president, Bassirou Diomaye Faye, took the oath of office in Tuesday’s ceremony. Close behind him sat the popular opposition leader who had clinched the win.`\
+https://nytimes.com/2024/04/02/world/africa/senegal-president-inauguration.html
+
+**How to make polluters pay**\
+`A new Vermont bill would create a “climate superfund.”`\
+https://nytimes.com/2024/04/02/climate/how-to-make-polluters-pay.html
+
+**Tiny Love Stories: ‘My Family Owned Your House’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/04/02/style/tiny-modern-love-stories-my-family-owned-your-house.html
+
 **Is Giving Farmers Millions to Kill Millions of Chickens the Way to Curb Bird Flu?**\
 `Big poultry farms have received millions of dollars for their losses. Animal welfare groups contend that aid reinforces inhumane cullings of sick birds.`\
 https://nytimes.com/2024/04/02/science/bird-flu-aid-animal-welfare.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/03/26/opinion/thepoint/gaza-aid-deaths
 **Endeavor, the Entertainment Company Led by Ari Emanuel, to Go Private**\
 `Silver Lake, the investment company, will buy shares in the Hollywood and sports firm that it doesn’t already own, valuing Endeavor at $13 billion.`\
 https://nytimes.com/2024/04/02/business/dealbook/endeavor-private-silver-lake.html
-
-**Fears Grow That Syria Strikes Could Spur Retaliatory Attacks on Israel and U.S.**\
-`Current and former American officials say the airstrikes on an Iranian embassy compound in Damascus were a serious blow to Tehran.`\
-https://nytimes.com/2024/04/02/world/middleeast/syria-strikes-iran-israel-us.html
-
-**Georgia Election Official Responds to Critical ‘Curb Your Enthusiasm’ Plotline**\
-`Georgia Secretary of State Brad Raffensperger sent a tongue-in-cheek letter to Larry David, the show’s creator and star.`\
-https://nytimes.com/2024/04/02/us/politics/larry-david-trump-georgia.html
-
-**Severe Weather, Including Tornadoes, Expected in Midwest and South**\
-`More than three million people were under a tornado watch early Tuesday afternoon.`\
-https://nytimes.com/2024/04/02/us/tornado-warnings-weather-forecast.html
 
