@@ -1,3 +1,15 @@
+**Kids Are Missing School at an Alarming Rate**\
+`How the pandemic changed families’ lives and the culture of education.`\
+https://nytimes.com/2024/04/02/podcasts/the-daily/kids-are-missing-school-at-an-alarming-rate.html
+
+**Israel Escalates Shadow War With Iran, and Trump Makes Bond**\
+`Plus, it’s the end of an era in Las Vegas.`\
+https://nytimes.com/2024/04/02/podcasts/israel-escalates-shadow-war-with-iran-and-trump-makes-bond.html
+
+**Beyoncé’s New Album Reviewed**\
+`“Cowboy Carter” is more than country.`\
+https://nytimes.com/2024/04/02/podcasts/beyonces-new-album-reviewed.html
+
 **Japan’s New Royal Instagram Page Forgoes Flash for Formality**\
 `No memes or spontaneity to see here, people. Just the usual official pictures of Emperor Naruhito and his family.`\
 https://nytimes.com/2024/04/02/world/asia/japan-royal-family-instagram.html
