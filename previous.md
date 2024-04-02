@@ -1,40 +1,40 @@
-**What’s the Quickest Path to World War III?**\
-`In “The Return of Great Powers” and “Up in Arms,” Jim Sciutto and Adam E. Casey consider modern-day superpower conflict through the lens of the past.`\
-https://nytimes.com/2024/04/02/books/review/the-return-of-great-powers-jim-sciutto-up-in-arms-adam-e-casey.html
+**Ruben Gallego, Democratic Senate Candidate in Arizona, Raises $7.5 Million**\
+`The congressman’s campaign said it had more than $9.6 million cash on hand as it looks toward a fall race against Kari Lake, a Trump ally, who has yet to announce first-quarter fund-raising figures.`\
+https://nytimes.com/2024/04/02/us/politics/ruben-gallego-arizona-kari-lake.html
 
-**How Exercise Strengthens Your Brain**\
-`Physical activity improves cognitive and mental health in all sorts of ways. Here’s why, and how to reap the benefits.`\
-https://nytimes.com/2024/04/02/well/mind/exercise-mental-health-cognition.html
+**With Abortion Ballot Question, a ‘Path to Relevance’ for Democrats in Florida?**\
+`Rulings allowing a strict abortion ban, along with a ballot question on expanding abortion access, may inject new life into Democratic campaigns in the state.`\
+https://nytimes.com/2024/04/02/us/abortion-democrats-florida.html
 
-**A Journey to the Boot of Italy, With Murder, Romance and Ricotta**\
-`A Philadelphia chef goes searching for her family history in Jo Piazza’s sun-baked multigenerational tale “The Sicilian Inheritance.”`\
-https://nytimes.com/2024/04/02/books/review/sicilian-inheritance-jo-piazza.html
+**A Farm Worker With Avian Flu Means a Rapid Response Is Urgent**\
+`Cows and dairy workers should be tested now, and vaccine production needs to gear up quickly.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/avian-flu-cows-outbreak
 
-**Like Jewels, Will Travel**\
-`Gem- and jewelry-themed tours and excursions mix treasure hunting with adventure and cultural experiences.`\
-https://nytimes.com/2024/04/02/fashion/jewelry-travel-tours.html
+**Nicholas Galitzine Wants to Prove He’s More Than Just a Pretty Face**\
+`Known for playing princes and their modern equivalents, this British actor hopes his steamy new drama, “Mary & George,” will change how Hollywood sees him.`\
+https://nytimes.com/2024/04/02/arts/television/nicholas-galitzine-mary-and-george.html
 
-**5 Hotel Pools Perfect for Swimmers**\
-`Many hotel pools are built with children and sun-seekers in mind: too short, too warm and too crowded. These, in cities across the U.S., let you get your laps in, in style.`\
-https://nytimes.com/2024/04/02/travel/hotel-pools-swimming.html
+**How Should I Be Using A.I. Right Now?**\
+`Give your A.I. a personality, spend 10 hours experimenting, and other practical tips from Ethan Mollick.`\
+https://nytimes.com/2024/04/02/opinion/ezra-klein-podcast-ethan-mollick.html
 
-**In This Heartbreaker, Hard Choices Come With Hidden Costs**\
-`An editor’s ambition. A coveted manuscript. The gift of a cow. Lives and lies graze one another in Neel Mukherjee’s tragicomic novel.`\
-https://nytimes.com/2024/04/02/books/review/choice-neel-mukherjee.html
+**What Happened to the Wrap Dress?**\
+`A pandemic, the demise of “girlboss” culture and new values around what’s “flattering” have made the classic design seem outdated to some.`\
+https://nytimes.com/2024/04/02/style/diane-von-furstenberg-wrap-dress.html
 
-**‘The Plane Is Fine’: An Airline Course Looks to Overcome Fear in the Skies**\
-`Anxiety when flying might not seem so unreasonable these days, but a British Airways program seeks to reassure the lightly nervous and the abjectly terrified alike.`\
-https://nytimes.com/2024/04/02/travel/fear-of-flying-course-british-airways.html
+**I Hope to Repeal an Arcane Law That Could Be Misused to Ban Abortion Nationwide**\
+`The Comstock Act is a major concern if Donald Trump is re-elected.`\
+https://nytimes.com/2024/04/02/opinion/comstock-act-abortion-repeal.html
 
-**World Central Kitchen Has Fed People in Disaster and War Zones Around the Globe**\
-`The group is a relatively new aid provider in Gaza, but it has garnered notice by making bold moves, like building a jetty out of rubble to bring aid in by sea.`\
-https://nytimes.com/2024/04/02/world/middleeast/what-is-world-central-kitchen.html
+**‘Shogun’ Episode 7 Recap: Death Wish**\
+`As the walls close in around Lord Toranaga, his vassals and family look for ways out.`\
+https://nytimes.com/2024/04/02/arts/television/shogun-episode-7-recap-stick-of-time.html
 
-**100 Years of Furniture**\
-`What’s your favorite furnishing?`\
-https://nytimes.com/2024/04/02/learning/100-years-of-furniture.html
+**A Second Home That’s Far Away From It All**\
+`Two saltbox houses on the island of Newfoundland, in Canada, were hard to resist. What would be harder still: Renovating them without road access.`\
+https://nytimes.com/2024/04/02/realestate/newfoundland-canada-saltbox-house-renovation.html
 
-**His Brownstone Is Worth $5.4 Million. Why Is His Tax Bill So Low?**\
-`Housing advocates and even some homeowners in wealthier neighborhoods say New York’s property tax system is unfair. A court case could force the city to make changes.`\
-https://nytimes.com/2024/04/02/nyregion/his-brownstone-is-worth-5-4-million-why-is-his-tax-bill-so-low.html
+**A Remote Escape in Newfoundland**\
+`The craggy island had long held special appeal for one Canadian, who bought a pair of historic houses that had been on the market for years.`\
+https://nytimes.com/slideshow/2024/04/02/realestate/a-remote-escape-in-newfoundland.html
 
