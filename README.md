@@ -1,3 +1,15 @@
+**Kids Are Missing School at an Alarming Rate**\
+`How the pandemic changed families’ lives and the culture of education.`\
+https://nytimes.com/2024/04/02/podcasts/the-daily/kids-are-missing-school-at-an-alarming-rate.html
+
+**Israel Escalates Shadow War With Iran, and Trump Makes Bond**\
+`Plus, it’s the end of an era in Las Vegas.`\
+https://nytimes.com/2024/04/02/podcasts/israel-escalates-shadow-war-with-iran-and-trump-makes-bond.html
+
+**Beyoncé’s New Album Reviewed**\
+`“Cowboy Carter” is more than country.`\
+https://nytimes.com/2024/04/02/podcasts/beyonces-new-album-reviewed.html
+
 **Japan’s New Royal Instagram Page Forgoes Flash for Formality**\
 `No memes or spontaneity to see here, people. Just the usual official pictures of Emperor Naruhito and his family.`\
 https://nytimes.com/2024/04/02/world/asia/japan-royal-family-instagram.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/02/opinion/ezra-klein-podcast-ethan-mollick.html
 **What Happened to the Wrap Dress?**\
 `A pandemic, the demise of “girlboss” culture and new values around what’s “flattering” have made the classic design seem outdated to some.`\
 https://nytimes.com/2024/04/02/style/diane-von-furstenberg-wrap-dress.html
-
-**I Hope to Repeal an Arcane Law That Could Be Misused to Ban Abortion Nationwide**\
-`The Comstock Act is a major concern if Donald Trump is re-elected.`\
-https://nytimes.com/2024/04/02/opinion/comstock-act-abortion-repeal.html
-
-**‘Shogun’ Episode 7 Recap: Death Wish**\
-`As the walls close in around Lord Toranaga, his vassals and family look for ways out.`\
-https://nytimes.com/2024/04/02/arts/television/shogun-episode-7-recap-stick-of-time.html
-
-**A Second Home That’s Far Away From It All**\
-`Two saltbox houses on the island of Newfoundland, in Canada, were hard to resist. What would be harder still: Renovating them without road access.`\
-https://nytimes.com/2024/04/02/realestate/newfoundland-canada-saltbox-house-renovation.html
 
