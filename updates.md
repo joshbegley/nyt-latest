@@ -1,3 +1,7 @@
+**The Winners of Our ‘How To’ Contest**\
+`Over 2,200 teenagers submitted essays on how to do everything from fix a toilet to fight a kangaroo. We’ll be publishing the work of the winners all week.`\
+https://nytimes.com/2024/04/02/learning/the-winners-of-our-how-to-contest.html
+
 **Regulators Force Another Microsoft Split**\
 `The tech giant is unbundling Teams from its Office software suite, as it faces mounting scrutiny on both sides of the Atlantic.`\
 https://nytimes.com/2024/04/02/business/dealbook/microsoft-teams-office-unbundle.html
