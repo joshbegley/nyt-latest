@@ -1,3 +1,7 @@
+**Regulators Force Another Microsoft Split**\
+`The tech giant is unbundling Teams from its Office software suite, as it faces mounting scrutiny on both sides of the Atlantic.`\
+https://nytimes.com/2024/04/02/business/dealbook/microsoft-teams-office-unbundle.html
+
 **12-Year-Old Arrested After Fatal School Shooting in Finland**\
 `Another 12-year-old was killed and two other students were wounded in a country with one of the highest rates of gun ownership in Europe.`\
 https://nytimes.com/2024/04/02/world/europe/finland-school-shooting.html

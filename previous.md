@@ -1,3 +1,7 @@
+**Regulators Force Another Microsoft Split**\
+`The tech giant is unbundling Teams from its Office software suite, as it faces mounting scrutiny on both sides of the Atlantic.`\
+https://nytimes.com/2024/04/02/business/dealbook/microsoft-teams-office-unbundle.html
+
 **12-Year-Old Arrested After Fatal School Shooting in Finland**\
 `Another 12-year-old was killed and two other students were wounded in a country with one of the highest rates of gun ownership in Europe.`\
 https://nytimes.com/2024/04/02/world/europe/finland-school-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/us/politics/ruben-gallego-arizona-kari-lake.html
 **With Abortion Ballot Question, a ‘Path to Relevance’ for Democrats in Florida?**\
 `Rulings allowing a strict abortion ban, along with a ballot question on expanding abortion access, may inject new life into Democratic campaigns in the state.`\
 https://nytimes.com/2024/04/02/us/abortion-democrats-florida.html
-
-**A Farm Worker With Avian Flu Means a Rapid Response Is Urgent**\
-`Cows and dairy workers should be tested now, and vaccine production needs to gear up quickly.`\
-https://nytimes.com/live/2024/03/26/opinion/thepoint/avian-flu-cows-outbreak
 
