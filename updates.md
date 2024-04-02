@@ -1,3 +1,7 @@
+**Restaurant Review: A New Voice in Soul Food Rises on Staten Island**\
+`At Shaw-naé’s House, Shaw-naé herself serves up Southern classics and a warm welcome to her “living room.”`\
+https://nytimes.com/2024/04/02/dining/restaurant-review-a-new-voice-in-soul-food-rises-on-staten-island.html
+
 **Protests Over Gaza Intensify at American Art Museums**\
 `A protest at the Yerba Buena Center for the Arts in San Francisco led to the resignation of its leader and to a monthlong closure of its galleries.`\
 https://nytimes.com/2024/04/02/arts/design/israel-gaza-protests-museums.html
