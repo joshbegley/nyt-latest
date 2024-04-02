@@ -1,3 +1,7 @@
+**Japan’s New Royal Instagram Page Forgoes Flash for Formality**\
+`No memes or spontaneity to see here, people. Just the usual official pictures of Emperor Naruhito and his family.`\
+https://nytimes.com/2024/04/02/world/asia/japan-royal-family-instagram.html
+
 **Ruben Gallego, Democratic Senate Candidate in Arizona, Raises $7.5 Million**\
 `The congressman’s campaign said it had more than $9.6 million cash on hand as it looks toward a fall race against Kari Lake, a Trump ally, who has yet to announce first-quarter fund-raising figures.`\
 https://nytimes.com/2024/04/02/us/politics/ruben-gallego-arizona-kari-lake.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/arts/television/shogun-episode-7-recap-stick-of-t
 **A Second Home That’s Far Away From It All**\
 `Two saltbox houses on the island of Newfoundland, in Canada, were hard to resist. What would be harder still: Renovating them without road access.`\
 https://nytimes.com/2024/04/02/realestate/newfoundland-canada-saltbox-house-renovation.html
-
-**A Remote Escape in Newfoundland**\
-`The craggy island had long held special appeal for one Canadian, who bought a pair of historic houses that had been on the market for years.`\
-https://nytimes.com/slideshow/2024/04/02/realestate/a-remote-escape-in-newfoundland.html
 
