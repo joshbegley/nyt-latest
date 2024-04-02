@@ -1,3 +1,7 @@
+**China, Russia and Trump**\
+`What Beijing and Moscow hope to gain from a second Trump term.`\
+https://nytimes.com/2024/04/02/briefing/china-russia-trump-campaign.html
+
 **Kids Are Missing School at an Alarming Rate**\
 `How the pandemic changed families’ lives and the culture of education.`\
 https://nytimes.com/2024/04/02/podcasts/the-daily/kids-are-missing-school-at-an-alarming-rate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/arts/television/nicholas-galitzine-mary-and-georg
 **How Should I Be Using A.I. Right Now?**\
 `Give your A.I. a personality, spend 10 hours experimenting, and other practical tips from Ethan Mollick.`\
 https://nytimes.com/2024/04/02/opinion/ezra-klein-podcast-ethan-mollick.html
-
-**What Happened to the Wrap Dress?**\
-`A pandemic, the demise of “girlboss” culture and new values around what’s “flattering” have made the classic design seem outdated to some.`\
-https://nytimes.com/2024/04/02/style/diane-von-furstenberg-wrap-dress.html
 

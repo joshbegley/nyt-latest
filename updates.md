@@ -1,3 +1,7 @@
+**China, Russia and Trump**\
+`What Beijing and Moscow hope to gain from a second Trump term.`\
+https://nytimes.com/2024/04/02/briefing/china-russia-trump-campaign.html
+
 **Kids Are Missing School at an Alarming Rate**\
 `How the pandemic changed families’ lives and the culture of education.`\
 https://nytimes.com/2024/04/02/podcasts/the-daily/kids-are-missing-school-at-an-alarming-rate.html
