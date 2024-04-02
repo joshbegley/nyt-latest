@@ -1,3 +1,7 @@
+**Trump Gets Bond Deal to Ward Off $454 Million Judgment, for Now**\
+`The guarantee means that New York’s attorney general will not be able to pursue Donald Trump’s assets and bank accounts until Mr. Trump’s appeals are settled.`\
+https://nytimes.com/2024/04/01/nyregion/trump-bond-deal.html
+
 **Gag Order Against Trump Is Expanded to Bar Attacks on Judge’s Family**\
 `Donald Trump had in recent days targeted the daughter of Juan Merchan, the judge overseeing his criminal trial in Manhattan, in blistering social media posts.`\
 https://nytimes.com/2024/04/01/nyregion/trump-gag-order-juan-merchan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/world/europe/scotland-hate-crime-law.html
 **Google to Delete Billions of Chrome Browser Records in Latest Settlement**\
 `The internet giant resolved a lawsuit that claimed it had deceived users by tracking their web activity in the Chrome browser’s private Incognito setting.`\
 https://nytimes.com/2024/04/01/technology/google-chrome-browser-data.html
-
-**Florida’s Top Court Allowed a Six-Week Abortion Ban**\
-`Also, an Israeli strike killed top Iranian commanders, Iran said. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/04/01/briefing/florida-court-abortion-israel-strike-iran-commanders.html
 
