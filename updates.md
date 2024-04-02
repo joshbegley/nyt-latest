@@ -1,3 +1,7 @@
+**What We Know About the Strike That Killed 7 World Central Kitchen Workers**\
+`Prime Minister Benjamin Netanyahu of Israel acknowledged on Tuesday a “tragic case of our forces unintentionally harming innocent people”`\
+https://nytimes.com/2024/04/02/world/middleeast/world-central-kitchen-workers-strike-gaza.html
+
 **Tesla’s Sales Fell in First Quarter as Competition Intensified**\
 `Sales of the company’s electric cars dropped in the first three months of the year.`\
 https://nytimes.com/2024/04/02/business/tesla-auto-sales-first-quarter.html
