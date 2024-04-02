@@ -1,3 +1,7 @@
+**Wednesday Briefing: Aid Workers Killed in Gaza**\
+`Plus, President Biden talked to Xi Jinping.`\
+https://nytimes.com/2024/04/02/world/asia/strike-aid-netanyahu-biden-asia.html
+
 **Israel bombed an Iranian Embassy complex. Is that allowed?**\
 `Israel can likely argue that its actions did not violate international law’s protections for diplomatic missions, experts say.`\
 https://nytimes.com/2024/04/02/world/europe/interpreter-israel-syria-embassy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/podcasts/transcript-ezra-klein-interviews-ethan-m
 **Biden Assails ‘Outrageous’ Florida Abortion Ruling as His Campaign Blames Trump**\
 `The president’s campaign moved to pin responsibility squarely on Donald Trump after the Florida Supreme Court cleared the way for a six-week ban.`\
 https://nytimes.com/2024/04/02/us/politics/biden-florida-abortion-ruling.html
-
-**Restaurant Review: A New Voice in Soul Food Rises on Staten Island**\
-`At Shaw-naé’s House, Shaw-naé herself serves up Southern classics and a warm welcome to her “living room.”`\
-https://nytimes.com/2024/04/02/dining/restaurant-review-shaw-naes-house-staten-island.html
 
