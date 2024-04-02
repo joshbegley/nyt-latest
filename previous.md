@@ -1,3 +1,7 @@
+**Checks Out**\
+`Billy Bratton has decided to extend his stay.`\
+https://nytimes.com/2024/04/01/crosswords/daily-puzzle-2024-04-02.html
+
 **Founder of World Central Kitchen Says Several Workers Killed in Gaza Airstrike**\
 `The disaster relief nonprofit has become a crucial source of food for desperate Gazans. The Israeli military said it was investigating.`\
 https://nytimes.com/2024/04/01/world/middleeast/world-central-kitchen-strike-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/opinion/baltimore-bridge-republicans.html
 **How I Learned to Love the Rerun Election**\
 `Have you got the Biden-Trump blues?`\
 https://nytimes.com/2024/04/01/us/politics/trump-biden-election-rerun.html
-
-**Scottish Hate Crime Law Takes Effect as Critics Warn It Will Stifle Speech**\
-`The legislation expands protections and creates a new charge of “stirring up hatred.” The “Harry Potter” author J.K. Rowling criticized the law for omitting women and said it was “wide open to abuse.”`\
-https://nytimes.com/2024/04/01/world/europe/scotland-hate-crime-law.html
 

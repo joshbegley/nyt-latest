@@ -1,3 +1,7 @@
+**Checks Out**\
+`Billy Bratton has decided to extend his stay.`\
+https://nytimes.com/2024/04/01/crosswords/daily-puzzle-2024-04-02.html
+
 **Founder of World Central Kitchen Says Several Workers Killed in Gaza Airstrike**\
 `The disaster relief nonprofit has become a crucial source of food for desperate Gazans. The Israeli military said it was investigating.`\
 https://nytimes.com/2024/04/01/world/middleeast/world-central-kitchen-strike-gaza.html
