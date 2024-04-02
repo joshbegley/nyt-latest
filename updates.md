@@ -1,3 +1,7 @@
+**Did We Get the Joke? Thousands of You Had Some Thoughts.**\
+`Responding to our list of the funniest books since “Catch-22,” readers offer their own choices.`\
+https://nytimes.com/2024/04/02/books/review/funniest-novels-responses.html
+
 **Tesla’s Sales Drop, a Sign That Its Grip on the E.V. Market Is Slipping**\
 `Sales of the company’s electric cars dropped in the first three months of the year, even as other automakers sold more battery-powered vehicles.`\
 https://nytimes.com/2024/04/02/business/tesla-auto-sales-first-quarter.html
