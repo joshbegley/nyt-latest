@@ -1,3 +1,7 @@
+**Iran says ‘U.S. must answer’ for deadly Israeli strike in Damascus**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/iran-says-us-must-answer-for-deadly-israeli-strike-in-damascus
+
 **Checks Out**\
 `Billy Bratton has decided to extend his stay.`\
 https://nytimes.com/2024/04/01/crosswords/daily-puzzle-2024-04-02.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/us/politics/uss-cole-judge-gitmo.html
 **Will MAGA Republicans Block Baltimore’s Rebuilding?**\
 `In Congress, rebuilding the Key Bridge could be the next Ukraine funding debate.`\
 https://nytimes.com/2024/04/01/opinion/baltimore-bridge-republicans.html
-
-**How I Learned to Love the Rerun Election**\
-`Have you got the Biden-Trump blues?`\
-https://nytimes.com/2024/04/01/us/politics/trump-biden-election-rerun.html
 

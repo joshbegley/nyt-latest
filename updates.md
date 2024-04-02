@@ -1,3 +1,7 @@
+**Iran says ‘U.S. must answer’ for deadly Israeli strike in Damascus**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/iran-says-us-must-answer-for-deadly-israeli-strike-in-damascus
+
 **Checks Out**\
 `Billy Bratton has decided to extend his stay.`\
 https://nytimes.com/2024/04/01/crosswords/daily-puzzle-2024-04-02.html
