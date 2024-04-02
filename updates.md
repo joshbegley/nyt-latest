@@ -1,3 +1,7 @@
+**What We Know About the Victims of the World Central Kitchen Strike**\
+`The group said one of the seven workers who was killed was a dual citizen of the U.S. and Canada, while the others were from Australia, Britain, Gaza and Poland.`\
+https://nytimes.com/2024/04/02/world/middleeast/world-central-kitchen-victims.html
+
 **The Best Movies and TV Shows Coming to Amazon, Disney+, Apple TV+ and More in April**\
 `“Fallout,” “Girls State” and a “Bluey” special are streaming.`\
 https://nytimes.com/2024/04/02/arts/television/april-streaming-movies-tv-shows.html
