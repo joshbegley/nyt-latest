@@ -1,3 +1,7 @@
+**Protests Over Gaza Intensify at American Art Museums**\
+`A protest at the Yerba Buena Center for the Arts in San Francisco led to the resignation of its leader and to a monthlong closure of its galleries.`\
+https://nytimes.com/2024/04/02/arts/design/israel-gaza-protests-museums.html
+
 **Is Giving Farmers Millions to Kill Millions of Chickens the Way to Curb Bird Flu?**\
 `Big poultry farms have received millions of dollars for their losses. Animal welfare groups contend that aid reinforces inhumane cullings of birds exposed to the virus.`\
 https://nytimes.com/2024/04/02/science/bird-flu-aid-animal-welfare.html
