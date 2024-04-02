@@ -1,3 +1,7 @@
+**An Abortion Rights Vote May Not Be Enough for Biden in Florida**\
+`But reproductive-rights supporters have a real chance at reversing the state’s six-week abortion ban.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/florida-abortion-biden
+
 **Lola’s Offers a Southern Spin on Filipino Cooking**\
 `Alaluna offers dry-aged fish with an Italian approach, Bon Bon serves up Swedish hot dogs and more restaurant news.`\
 https://nytimes.com/2024/04/02/dining/nyc-restaurant-news.html

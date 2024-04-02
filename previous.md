@@ -1,3 +1,7 @@
+**An Abortion Rights Vote May Not Be Enough for Biden in Florida**\
+`But reproductive-rights supporters have a real chance at reversing the state’s six-week abortion ban.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/florida-abortion-biden
+
 **Lola’s Offers a Southern Spin on Filipino Cooking**\
 `Alaluna offers dry-aged fish with an Italian approach, Bon Bon serves up Swedish hot dogs and more restaurant news.`\
 https://nytimes.com/2024/04/02/dining/nyc-restaurant-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/world/middleeast/world-central-kitchen-victims.ht
 **The Best Movies and TV Shows Coming to Amazon, Disney+, Apple TV+ and More in April**\
 `“Fallout,” “Girls State” and a “Bluey” special are streaming.`\
 https://nytimes.com/2024/04/02/arts/television/april-streaming-movies-tv-shows.html
-
-**Biden Critics Push Democrats to Submit Blank Ballots in New York**\
-`Activists pressuring the president over Gaza urge voters to leave ballots unmarked, since New York does not allow “uncommitted” votes in primaries.`\
-https://nytimes.com/2024/04/02/us/politics/biden-gaza-blank-ballots-new-york-primary.html
 
