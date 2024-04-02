@@ -1,3 +1,11 @@
+**Is It a Blizzard? A Nor’easter? And What’s the Difference?**\
+`How to stay safe when the snow is coming down.`\
+https://nytimes.com/article/blizzard-noreaster-explained.html
+
+**Yellen to Visit China for Top-Level Economic Talks**\
+`The Treasury secretary plans to address a surge of Chinese green technology exports during meetings in Beijing and Guangzhou.`\
+https://nytimes.com/2024/04/02/business/janet-yellen-china-treasury.html
+
 **Biden Talks to Xi About Conflicts, From Ukraine to the Pacific**\
 `President Biden aimed to keep relations stable in a call with Xi Jinping of China, but also planned to deliver warnings over Beijing’s activities around Taiwan, the South China Sea and Russia.`\
 https://nytimes.com/2024/04/02/us/politics/biden-xi-call.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/02/books/review/funniest-novels-responses.html
 **Jazz at Lincoln Center’s New Season Includes Tribute to Bayard Rustin**\
 `The civil rights activist’s life and legacy will be honored in a 2024-25 lineup that will also include spotlights on jazz history, and a rising star to warm up November.`\
 https://nytimes.com/2024/04/02/arts/music/lincoln-center-jazz-lineup.html
-
-**Iran and Israel Have a Long History of Clandestine Attacks**\
-`The regional rivals have for decades targeted each other’s interests, including with a recent strike in Syria that killed three Iranian commanders. Here are some other notable flash points.`\
-https://nytimes.com/2024/04/02/world/middleeast/iran-israel-attacks-shadow-war.html
-
-**What We Know About the Victims of the World Central Kitchen Strike**\
-`The group said one of the seven workers who was killed was a dual citizen of the U.S. and Canada, while the others were from Australia, Britain, Gaza and Poland.`\
-https://nytimes.com/2024/04/02/world/middleeast/world-central-kitchen-victims.html
 
