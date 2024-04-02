@@ -1,3 +1,7 @@
+**Endeavor, the Entertainment Company Led by Ari Emanuel, to Go Private**\
+`Silver Lake, the investment company, will buy shares in the Hollywood and sports firm that it doesn’t already own, valuing Endeavor at $13 billion.`\
+https://nytimes.com/2024/04/02/business/dealbook/endeavor-private-silver-lake.html
+
 **Fears Grow That Syria Strikes Could Spur Retaliatory Attacks on Israel and U.S.**\
 `Current and former American officials say the airstrikes on an Iranian embassy compound in Damascus were a serious blow to Tehran.`\
 https://nytimes.com/2024/04/02/world/middleeast/syria-strikes-iran-israel-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/the-strike-
 **Larry Lucchino, Top Executive at Three M.L.B. Teams, Dies at 78**\
 `He oversaw construction of new ballparks for the Baltimore Orioles and San Diego Padres and, with the Red Sox, the renovations at Fenway Park.`\
 https://nytimes.com/2024/04/02/sports/baseball/larry-lucchino-dead.html
-
-**Drones Strike Deep in Russia, as Ukraine Extends Its Weapons Range**\
-`Ukrainian media and analysts, and Russian officials, said Ukraine had carried out the attack some 700 miles from the land it controls. Ukraine’s military and intelligence forces declined to comment.`\
-https://nytimes.com/2024/04/02/world/europe/russia-ukraine-drone-strike.html
 
