@@ -1,3 +1,7 @@
+**Late Winter Storms Spare California From Drought Pain, for Now**\
+`A rush of precipitation lifted the state to its second straight year with above-average snowfall, though Gov. Gavin Newsom warned residents not to grow used to it.`\
+https://nytimes.com/2024/04/02/us/california-snow-water-level.html
+
 **Netanyahu Called Aid Worker Deaths Tragic and Unintentional**\
 `Also, Biden had a rare call with Xi. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/04/02/briefing/israel-gaza-aid-workers-biden-xi-phone-call.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/world/middleeast/israel-gaza-aid-workers-killed.h
 **To R.F.K. Jr., It’s Biden, Not Trump, Who’s the Bigger Threat to Democracy**\
 `The independent presidential candidate stepped up his attacks on President Biden over perceived social media “censorship,” echoing Donald Trump’s wild claim that Mr. Biden is the true threat.`\
 https://nytimes.com/2024/04/02/us/politics/rfk-biden-trump.html
-
-**Who Should Be the New James Bond?**\
-`As speculation heats up around the casting of a seventh cinematic 007, Styles reporters consider possible candidates for a new Bond era.`\
-https://nytimes.com/2024/04/02/fashion/bond-movies-007-actor.html
 
