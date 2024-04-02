@@ -1,3 +1,7 @@
+**The Caitlin Clark Show Rolls On**\
+`While off-the-court drama has raged in the women’s tournament, Clark and Iowa dispatched with their foils from last season en route to the Final Four.`\
+https://nytimes.com/2024/04/02/us/march-madness-women-iowa-lsu.html
+
 **Readers Share Their Favorite Places to See Art in California**\
 `Contemporary art with a hillside winery in Napa, a Roman villa-inspired museum in Pacific Palisades and more.`\
 https://nytimes.com/2024/04/02/us/california-places-to-see-art.html
