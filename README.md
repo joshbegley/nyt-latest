@@ -1,3 +1,7 @@
+**What We Know About the Victims of the World Central Kitchen Strike**\
+`The group said one of the seven workers who was killed was a dual citizen of the U.S. and Canada, while the others were from Australia, Britain, Gaza and Poland.`\
+https://nytimes.com/2024/04/02/world/middleeast/world-central-kitchen-victims.html
+
 **The Best Movies and TV Shows Coming to Amazon, Disney+, Apple TV+ and More in April**\
 `“Fallout,” “Girls State” and a “Bluey” special are streaming.`\
 https://nytimes.com/2024/04/02/arts/television/april-streaming-movies-tv-shows.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/world/middleeast/iran-israel-damascus-strike.html
 **What We Know About the Strike That Killed 7 World Central Kitchen Workers**\
 `Prime Minister Benjamin Netanyahu of Israel acknowledged on Tuesday a “tragic case of our forces unintentionally harming innocent people”`\
 https://nytimes.com/2024/04/02/world/middleeast/world-central-kitchen-workers-strike-gaza.html
-
-**How to Befriend an Introvert**\
-`A winning essay by Ashley Zhang, age 14.`\
-https://nytimes.com/2024/04/02/learning/how-to-befriend-an-introvert.html
 
