@@ -1,3 +1,7 @@
+**Israel bombed an Iranian Embassy complex. Is that allowed?**\
+`Israel can likely argue that its actions did not violate international law’s protections for diplomatic missions, experts say.`\
+https://nytimes.com/2024/04/02/world/europe/interpreter-israel-syria-embassy.html
+
 **Israeli Strikes Kill 7 Aid Workers in Gaza**\
 `The attack on clearly marked vehicles run by the World Central Kitchen shows how dangerous relief work has been during the war, and adds fuel to accusations that Israel has bombed indiscriminately.`\
 https://nytimes.com/2024/04/02/world/middleeast/aid-workers-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/us/politics/biden-florida-abortion-ruling.html
 **Restaurant Review: A New Voice in Soul Food Rises on Staten Island**\
 `At Shaw-naé’s House, Shaw-naé herself serves up Southern classics and a warm welcome to her “living room.”`\
 https://nytimes.com/2024/04/02/dining/restaurant-review-shaw-naes-house-staten-island.html
-
-**Protests Over Gaza Intensify at American Art Museums**\
-`A protest at the Yerba Buena Center for the Arts in San Francisco led to the resignation of its leader and to a monthlong closure of its galleries.`\
-https://nytimes.com/2024/04/02/arts/design/israel-gaza-protests-museums.html
 
