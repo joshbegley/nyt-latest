@@ -1,3 +1,7 @@
+**Drones Strike Deep in Russia, as Ukraine Extends Its Weapons Range**\
+`Ukrainian media and analysts, and Russian officials, said Ukraine had carried out the attack some 700 miles from the land it controls. Ukraine’s military and intelligence forces declined to comment.`\
+https://nytimes.com/2024/04/02/world/europe/russia-ukraine-drone-strike.html
+
 **Joe Flaherty, ‘SCTV’ and ‘Freaks and Geeks’ Actor, Dies at 82**\
 `Mr. Flaherty was known for playing a series of oddball characters on the sketch series “SCTV” and, more recently, for his role as the father of two teenagers on “Freaks and Geeks.”`\
 https://nytimes.com/2024/04/02/arts/joe-flaherty-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/business/janet-yellen-china-treasury.html
 **Biden Talks to Xi About Conflicts, From Ukraine to the Pacific**\
 `President Biden aimed to keep relations stable in a call with Xi Jinping of China, but also planned to deliver warnings over Beijing’s activities around Taiwan, the South China Sea and Russia.`\
 https://nytimes.com/2024/04/02/us/politics/biden-xi-call.html
-
-**An Abortion Rights Vote May Not Be Enough for Biden in Florida**\
-`But reproductive-rights supporters have a real chance at reversing the state’s six-week abortion ban.`\
-https://nytimes.com/live/2024/03/26/opinion/thepoint/florida-abortion-biden
 
