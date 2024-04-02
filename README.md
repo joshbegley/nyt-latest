@@ -1,3 +1,7 @@
+**After Strike, Aid Groups in Gaza Are More Fearful Than Ever**\
+`“Gaza right now is one of the most dangerous places in the world to be a humanitarian worker,” a spokeswoman for Save the Children said after a strike killed World Central Kitchen workers.`\
+https://nytimes.com/2024/04/02/world/middleeast/gaza-aid-groups-strikes.html
+
 **China, Russia and Trump**\
 `What Beijing and Moscow hope to gain from a second Trump term.`\
 https://nytimes.com/2024/04/02/briefing/china-russia-trump-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/03/26/opinion/thepoint/avian-flu-cows-outbreak
 **Nicholas Galitzine Wants to Prove He’s More Than Just a Pretty Face**\
 `Known for playing princes and their modern equivalents, this British actor hopes his steamy new drama, “Mary & George,” will change how Hollywood sees him.`\
 https://nytimes.com/2024/04/02/arts/television/nicholas-galitzine-mary-and-george.html
-
-**How Should I Be Using A.I. Right Now?**\
-`Give your A.I. a personality, spend 10 hours experimenting, and other practical tips from Ethan Mollick.`\
-https://nytimes.com/2024/04/02/opinion/ezra-klein-podcast-ethan-mollick.html
 
