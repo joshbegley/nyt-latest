@@ -1,3 +1,7 @@
+**Trump Again Invokes ‘Blood Bath’ and Dehumanizes Migrants in Border Remarks**\
+`The former president has tried to stoke fear around immigration and border security throughout his 2024 campaign, as he has done in the past.`\
+https://nytimes.com/2024/04/02/us/politics/trump-border-blood-bath.html
+
 **Ye Praised Hitler and Spoke of ‘Going for the Gays,’ Lawsuit Claims**\
 `A former employee sued the rapper formerly known as Kanye West, claiming a hostile work environment at Yeezy, his fashion brand, and Donda Academy, his private school.`\
 https://nytimes.com/2024/04/02/arts/music/kanye-west-lawsuit-donda.html
