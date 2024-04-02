@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`Iran says Israel struck its generals in Syria.`\
+https://nytimes.com/2024/04/02/briefing/iran-israel-general-ukraine-aid.html
+
 **Orange Steam Funnels Are a New York Symbol. What Are They For?**\
 `The instantly recognizable orange cylinders are an outgrowth of New York City’s 142-year-old steam system.`\
 https://nytimes.com/card/2024/04/02/nyregion/steam-funnels-con-edison-nyc

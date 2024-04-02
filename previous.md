@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`Iran says Israel struck its generals in Syria.`\
+https://nytimes.com/2024/04/02/briefing/iran-israel-general-ukraine-aid.html
+
 **Orange Steam Funnels Are a New York Symbol. What Are They For?**\
 `The instantly recognizable orange cylinders are an outgrowth of New York City’s 142-year-old steam system.`\
 https://nytimes.com/card/2024/04/02/nyregion/steam-funnels-con-edison-nyc
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/iran-says-u
 **Checks Out**\
 `Billy Bratton has decided to extend his stay.`\
 https://nytimes.com/2024/04/01/crosswords/daily-puzzle-2024-04-02.html
-
-**Founder of World Central Kitchen Says Several Workers Killed in Gaza Airstrike**\
-`The nonprofit has become a crucial source of food for desperate Gazans. The Israeli military said it was investigating.`\
-https://nytimes.com/2024/04/01/world/middleeast/world-central-kitchen-strike-gaza.html
 
