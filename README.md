@@ -1,3 +1,11 @@
+**To R.F.K. Jr., It’s Biden, Not Trump, Who’s the Bigger Threat to Democracy**\
+`The independent presidential candidate stepped up his attacks on President Biden over perceived social media “censorship,” echoing Donald Trump’s wild claim that Mr. Biden is the true threat.`\
+https://nytimes.com/2024/04/02/us/politics/rfk-biden-trump.html
+
+**Who Should Be the New James Bond?**\
+`As speculation heats up around the casting of a seventh cinematic 007, Styles reporters consider possible candidates for a new Bond era.`\
+https://nytimes.com/2024/04/02/fashion/bond-movies-007-actor.html
+
 **Supreme Court Rejects Bid to Revive Washington State Voting Map Said to Hurt Hispanics**\
 `A federal judge ruled that a state voting district diluted the ability of Latino voters to elect their preferred candidates.`\
 https://nytimes.com/2024/04/02/us/politics/supreme-court-washington-state-voting-map.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/02/arts/design/israel-gaza-protests-museums.html
 **Stuck Ships and Supply-Chain Inflation**\
 `Baltimore alone isn’t that big a deal, but is it an omen?`\
 https://nytimes.com/2024/04/02/opinion/baltimore-bridge-inflation-supply-chain.html
-
-**Nightclub Fire in Istanbul Kills 29 People**\
-`Firefighters assessed the damage caused by a fire at a popular nightclub.`\
-https://nytimes.com/video/world/europe/100000009393345/istanbul-fire-nightclub.html
-
-**Africa’s Youngest President Takes Office, Promising ‘Systemic Change’**\
-`Senegal’s new president, Bassirou Diomaye Faye, took the oath of office in Tuesday’s ceremony. Close behind him sat the popular opposition leader who had clinched the win.`\
-https://nytimes.com/2024/04/02/world/africa/senegal-president-inauguration.html
 
