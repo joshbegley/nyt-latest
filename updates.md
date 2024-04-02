@@ -1,3 +1,7 @@
+**100 Years of Furniture**\
+`What’s your favorite furnishing?`\
+https://nytimes.com/2024/04/02/learning/100-years-of-furniture.html
+
 **His Brownstone Is Worth $5.4 Million. Why Is His Tax Bill So Low?**\
 `Housing advocates and even some homeowners in wealthier neighborhoods say New York’s property tax system is unfair. A court case could force the city to make changes.`\
 https://nytimes.com/2024/04/02/nyregion/his-brownstone-is-worth-5-4-million-why-is-his-tax-bill-so-low.html
