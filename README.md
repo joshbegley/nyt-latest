@@ -1,3 +1,7 @@
+**Georgia Election Official Responds to Critical ‘Curb Your Enthusiasm’ Plotline**\
+`Georgia Secretary of State Brad Raffensperger sent a tongue-in-cheek letter to Larry David, the show’s creator and star.`\
+https://nytimes.com/2024/04/02/us/politics/larry-david-trump-georgia.html
+
 **Severe Weather, Including Tornadoes, Expected in Midwest and South**\
 `More than three million people were under a tornado watch early Tuesday afternoon.`\
 https://nytimes.com/2024/04/02/us/tornado-warnings-weather-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/world/europe/russia-ukraine-drone-strike.html
 **Joe Flaherty, ‘SCTV’ and ‘Freaks and Geeks’ Actor, Dies at 82**\
 `Mr. Flaherty was known for playing a series of oddball characters on the sketch series “SCTV” and, more recently, for his role as the father of two teenagers on “Freaks and Geeks.”`\
 https://nytimes.com/2024/04/02/arts/joe-flaherty-dead.html
-
-**An A.I. Researcher Takes On Election Deepfakes**\
-`Oren Etzioni was once an optimist about artificial intelligence. Now, his nonprofit, TrueMedia.org, is offering tools for fighting A.I.-manipulated content.`\
-https://nytimes.com/2024/04/02/technology/an-ai-researcher-takes-on-election-deepfakes.html
 
