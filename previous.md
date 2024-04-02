@@ -1,3 +1,7 @@
+**How José Andrés and His Corps of Cooks Became Leaders in Disaster Aid**\
+`Long before the killings of seven workers in Gaza, World Central Kitchen pioneered a new way to deliver emergency relief, using local labor and recipes.`\
+https://nytimes.com/2024/04/02/dining/jose-andres-central-kitchen-disaster-aid.html
+
 **Protest Outside Netanyahu’s Jerusalem Home Turns Into ‘Riot,’ Police Say**\
 `Anti-government demonstrators took to the streets for the third night in a row to call for early elections.`\
 https://nytimes.com/2024/04/02/world/middleeast/israel-netanyahu-protest.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/02/opinion/thepoint/ramy-youssef-snl-monologue
 **Warming Is Getting Worse. So They Just Tested a Way to Deflect the Sun.**\
 `A trial in California is testing a machine designed to reflect sunlight back into space. “All my colleagues hope that we never use these things,” one researcher said.`\
 https://nytimes.com/2024/04/02/climate/global-warming-clouds-solar-geoengineering.html
-
-**Wednesday Briefing: Aid Workers Killed in Gaza**\
-`Plus, President Biden talked to Xi Jinping.`\
-https://nytimes.com/2024/04/02/world/asia/strike-aid-netanyahu-biden-asia.html
 
