@@ -1,3 +1,11 @@
+**Can’t Make It to the Eclipse? Come With Us.**\
+`Like the moon over the sun, we have it covered. Here’s what we are doing.`\
+https://nytimes.com/2024/04/02/insider/new-york-times-eclipse-april-8.html
+
+**In the Magnificence of Iowa’s Glow, Albany Catches Some Shade**\
+`During the waning moments of Iowa’s victory over L.S.U. on Monday, a stray comment on the televised broadcast cast the New York capital in an unflattering light.`\
+https://nytimes.com/2024/04/02/nyregion/albany-rebecca-lobo.html
+
 **Sticks. And the People Who Love Them.**\
 `Those who appreciate “something as basic as a stick” are sharing their enthusiasm through a newly popular Instagram account.`\
 https://nytimes.com/2024/04/02/style/sticks-and-the-people-who-love-them.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/02/technology/an-ai-researcher-takes-on-election-dee
 **As Severe Storms Moved Through, U.S. Weather Warning System Faced an ‘Outage’**\
 `“Some warning services were impacted,” a National Weather Service spokesman said. By early Tuesday, things were back online.`\
 https://nytimes.com/2024/04/02/us/weather-radar-down.html
-
-**The Technique Reshaping Organ Transplantation**\
-`Perfusion keeps a donated organ alive outside the body, giving surgeons extra time and increasing the number of transplants possible.`\
-https://nytimes.com/2024/04/02/health/organ-transplants-perfusion.html
-
-**Joe Biden Is More Than His Age**\
-`Responses to an Opinion article by Frank Bruni. Also: Investing in Ukraine; Gabriel García Márquez’s last novel; America’s gun culture.`\
-https://nytimes.com/2024/04/02/opinion/joe-biden-age.html
 
