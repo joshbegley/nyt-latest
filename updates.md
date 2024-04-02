@@ -1,3 +1,7 @@
+**Biden Talks to Xi About Conflicts, From Ukraine to the Pacific**\
+`President Biden aimed to keep relations stable in a call with Xi Jinping of China, but also planned to deliver warnings over Beijing’s activities around Taiwan, the South China Sea and Russia.`\
+https://nytimes.com/2024/04/02/us/politics/biden-xi-call.html
+
 **An Abortion Rights Vote May Not Be Enough for Biden in Florida**\
 `But reproductive-rights supporters have a real chance at reversing the state’s six-week abortion ban.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/florida-abortion-biden
