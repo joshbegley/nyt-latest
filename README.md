@@ -1,3 +1,7 @@
+**U.S. Finalizes Rule Requiring Two-Person Crews on Freight Trains**\
+`The regulation ensures that the nation’s largest freight railroads will not be able to reduce the number of workers aboard their trains from today’s status quo.`\
+https://nytimes.com/2024/04/02/us/politics/freight-train-crew-rule.html
+
 **Transcript: Ezra Klein Interviews Ethan Mollick**\
 `The April 2, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/04/02/podcasts/transcript-ezra-klein-interviews-ethan-mollick.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/climate/how-to-make-polluters-pay.html
 **Tiny Love Stories: ‘My Family Owned Your House’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/04/02/style/tiny-modern-love-stories-my-family-owned-your-house.html
-
-**Is Giving Farmers Millions to Kill Millions of Chickens the Way to Curb Bird Flu?**\
-`Big poultry farms have received millions of dollars for their losses. Animal welfare groups contend that aid reinforces inhumane cullings of birds exposed to the virus.`\
-https://nytimes.com/2024/04/02/science/bird-flu-aid-animal-welfare.html
 
