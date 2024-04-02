@@ -1,3 +1,7 @@
+**Trump Gets Bond Deal to Ward Off $454 Million Judgment, for Now**\
+`The guarantee means that New York’s attorney general will not be able to pursue Donald Trump’s assets and bank accounts until Mr. Trump’s appeals are settled.`\
+https://nytimes.com/2024/04/01/nyregion/trump-bond-deal.html
+
 **Gag Order Against Trump Is Expanded to Bar Attacks on Judge’s Family**\
 `Donald Trump had in recent days targeted the daughter of Juan Merchan, the judge overseeing his criminal trial in Manhattan, in blistering social media posts.`\
 https://nytimes.com/2024/04/01/nyregion/trump-gag-order-juan-merchan.html
