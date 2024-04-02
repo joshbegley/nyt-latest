@@ -1,3 +1,7 @@
+**Readers Share Their Favorite Places to See Art in California**\
+`Contemporary art with a hillside winery in Napa, a Roman villa-inspired museum in Pacific Palisades and more.`\
+https://nytimes.com/2024/04/02/us/california-places-to-see-art.html
+
 **What We Know About the Strike That Killed 7 World Central Kitchen Workers**\
 `Prime Minister Benjamin Netanyahu of Israel acknowledged on Tuesday a “tragic case of our forces unintentionally hitting innocent people”`\
 https://nytimes.com/2024/04/02/world/middleeast/world-central-kitchen-workers-strike-gaza.html
