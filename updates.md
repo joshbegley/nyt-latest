@@ -1,3 +1,7 @@
+**Stuck Ships and Supply-Chain Inflation**\
+`Baltimore alone isn’t that big a deal, but is it an omen?`\
+https://nytimes.com/2024/04/02/opinion/baltimore-bridge-inflation-supply-chain.html
+
 **Nightclub Fire in Istanbul Kills 29 People**\
 `Firefighters assessed the damage caused by a fire at a popular nightclub.`\
 https://nytimes.com/video/world/europe/100000009393345/istanbul-fire-nightclub.html
