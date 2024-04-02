@@ -1,3 +1,7 @@
+**After Strike, Aid Groups in Gaza Are More Fearful Than Ever**\
+`“Gaza right now is one of the most dangerous places in the world to be a humanitarian worker,” a spokeswoman for Save the Children said after a strike killed World Central Kitchen workers.`\
+https://nytimes.com/2024/04/02/world/middleeast/gaza-aid-groups-strikes.html
+
 **China, Russia and Trump**\
 `What Beijing and Moscow hope to gain from a second Trump term.`\
 https://nytimes.com/2024/04/02/briefing/china-russia-trump-campaign.html
