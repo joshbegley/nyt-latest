@@ -1,3 +1,7 @@
+**Gag Order Against Trump Is Expanded to Stop Attacks on Judge’s Family**\
+`Donald Trump had in recent days targeted the daughter of Juan Merchan, the judge overseeing his criminal trial in Manhattan, in blistering social media posts.`\
+https://nytimes.com/2024/04/01/nyregion/trump-gag-order-juan-merchan.html
+
 **Man Charged With Killing Officer Was Seen With Gun Beforehand, D.A. Says**\
 `Another officer patrolling Far Rockaway said he noticed Guy Rivera carrying a gun before he fatally shot Detective Jonathan Diller, according to the authorities.`\
 https://nytimes.com/2024/04/01/nyregion/jonathan-diller-nypd-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/technology/google-chrome-browser-data.html
 **Florida’s Top Court Allowed a Six-Week Abortion Ban**\
 `Also, an Israeli strike killed top Iranian commanders, Iran said. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/04/01/briefing/florida-court-abortion-israel-strike-iran-commanders.html
-
-**Warner Bros. Discovery Directors Step Down Amid Antitrust Inquiry**\
-`The Justice Department was investigating whether the two violated a law forbidding simultaneous service on the boards of competitors.`\
-https://nytimes.com/2024/04/01/business/media/warner-bros-discovery-directors-antitrust.html
 
