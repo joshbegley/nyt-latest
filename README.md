@@ -1,5 +1,5 @@
-**World Central Kitchen says several of its workers were killed in a Gaza airstrike.**\
-`By Daniel Victor`\
+**World Central Kitchen Says Several Workers Killed in Gaza Airstrike**\
+`The disaster relief nonprofit has become a crucial source of food for desperate Gazans. The Israeli military said it was investigating.`\
 https://nytimes.com/2024/04/01/world/middleeast/world-central-kitchen-strike-gaza.html
 
 **Trump Gets Bond Deal to Ward Off $454 Million Judgment, for Now**\
