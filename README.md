@@ -1,3 +1,7 @@
+**North Korea Missile Test Hints at Greater Menace to U.S. Bases**\
+`The test, analysts said, may have involved a new intermediate-range hypersonic missile that is faster to launch and more difficult to intercept.`\
+https://nytimes.com/2024/04/01/world/asia/north-korea-irbm-missile-guam.html
+
 **Quotation of the Day: Ireland Is Recovering Historical Documents Lost to the Flames of War**\
 `Quotation of the Day for Tuesday, April 2, 2024.`\
 https://nytimes.com/2024/04/01/pageoneplus/quotation-of-the-day-ireland-is-recovering-historical-documents-lost-to-the-flames-of-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/nyregion/jonathan-diller-nypd-shooting.html
 **We Want to Know: What’s Your No. 1 New York City Restaurant?**\
 `The Times’s critic, Pete Wells, has shared his second-annual list of the city’s best, but tell us what tops yours.`\
 https://nytimes.com/2024/04/01/dining/whats-your-favorite-restaurant.html
-
-**The 100 Best Restaurants in New York City in 2024**\
-`Our critic, Pete Wells, drops his annual ranking. See what’s new, what moved and what left the list.`\
-https://nytimes.com/interactive/2024/dining/best-nyc-restaurants.html
 
