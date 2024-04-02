@@ -1,3 +1,7 @@
+**Beyoncé’s ‘Cowboy Carter’ Is a Vivid Mission Statement. Let’s Discuss.**\
+`The pop superstar teased a move to country, then tackled so much more. Three critics and a reporter explore her new album’s inspirations, sounds and stakes.`\
+https://nytimes.com/2024/04/02/arts/music/beyonce-cowboy-carter.html
+
 **Easy Dinners to Clear Out the Condiments in Your Fridge**\
 `Skip a trip to the store and clean out your shelves at the same time with these simple dishes.`\
 https://nytimes.com/2024/04/02/dining/easy-dinners-to-clear-out-the-condiments-in-your-fridge.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/us/politics/trump-biden-abortion-border.html
 **02pol-swiper**\
 `Election Updates: Trump tries to keep focus on the border as Democrats hope for a boost from Florida’s abortion ruling.`\
 https://nytimes.com/live/2024/04/02/us/biden-trump-election-primary
-
-**Tesla’s Sales Drop, a Sign That Its Grip on the E.V. Market Is Slipping**\
-`Sales of the company’s electric cars dropped in the first three months of the year, even as other automakers sold more battery-powered vehicles.`\
-https://nytimes.com/2024/04/02/business/tesla-auto-sales-first-quarter.html
 
