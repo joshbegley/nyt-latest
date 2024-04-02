@@ -1,3 +1,11 @@
+**Israel’s Attack on Aid Workers Can Only Make Hunger in Gaza Worse**\
+`The strikes on World Central Kitchen damaged Israel’s credibility, and are an embarrassment to the U.S.`\
+https://nytimes.com/live/2024/03/26/opinion/thepoint/gaza-aid-deaths
+
+**Endeavor, the Entertainment Company Led by Ari Emanuel, to Go Private**\
+`Silver Lake, the investment company, will buy shares in the Hollywood and sports firm that it doesn’t already own, valuing Endeavor at $13 billion.`\
+https://nytimes.com/2024/04/02/business/dealbook/endeavor-private-silver-lake.html
+
 **Fears Grow That Syria Strikes Could Spur Retaliatory Attacks on Israel and U.S.**\
 `Current and former American officials say the airstrikes on an Iranian embassy compound in Damascus were a serious blow to Tehran.`\
 https://nytimes.com/2024/04/02/world/middleeast/syria-strikes-iran-israel-us.html
