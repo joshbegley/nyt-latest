@@ -1,3 +1,7 @@
+**What We Know About the Strike That Killed 7 Aid Workers**\
+`Aid workers with World Central Kitchen were killed when their convoy came under fire overnight, according to the aid organization and Palestinian health officials in Gaza.`\
+https://nytimes.com/2024/04/02/world/middleeast/world-central-kitchen-workers-strike-gaza.html
+
 **How to Befriend an Introvert**\
 `A winning essay by Ashley Zhang, age 14.`\
 https://nytimes.com/2024/04/02/learning/how-to-befriend-an-introvert.html
