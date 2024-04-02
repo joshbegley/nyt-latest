@@ -1,3 +1,7 @@
+**Nightclub Fire in Istanbul Kills 29 People**\
+`Firefighters assessed the damage caused by a fire at a popular nightclub.`\
+https://nytimes.com/video/world/europe/100000009393345/istanbul-fire-nightclub.html
+
 **Africa’s Youngest President Takes Office, Promising ‘Systemic Change’**\
 `Senegal’s new president, Bassirou Diomaye Faye, took the oath of office in Tuesday’s ceremony. Close behind him sat the popular opposition leader who had clinched the win.`\
 https://nytimes.com/2024/04/02/world/africa/senegal-president-inauguration.html
