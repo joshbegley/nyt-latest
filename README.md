@@ -1,3 +1,7 @@
+**Biden Talks to Xi About Conflicts, From Ukraine to the Pacific**\
+`President Biden aimed to keep relations stable in a call with Xi Jinping of China, but also planned to deliver warnings over Beijing’s activities around Taiwan, the South China Sea and Russia.`\
+https://nytimes.com/2024/04/02/us/politics/biden-xi-call.html
+
 **An Abortion Rights Vote May Not Be Enough for Biden in Florida**\
 `But reproductive-rights supporters have a real chance at reversing the state’s six-week abortion ban.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/florida-abortion-biden
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/world/middleeast/iran-israel-attacks-shadow-war.h
 **What We Know About the Victims of the World Central Kitchen Strike**\
 `The group said one of the seven workers who was killed was a dual citizen of the U.S. and Canada, while the others were from Australia, Britain, Gaza and Poland.`\
 https://nytimes.com/2024/04/02/world/middleeast/world-central-kitchen-victims.html
-
-**The Best Movies and TV Shows Coming to Amazon, Disney+, Apple TV+ and More in April**\
-`“Fallout,” “Girls State” and a “Bluey” special are streaming.`\
-https://nytimes.com/2024/04/02/arts/television/april-streaming-movies-tv-shows.html
 
