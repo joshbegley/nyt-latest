@@ -1,3 +1,11 @@
+**Is It a Blizzard? A Nor’easter? And What’s the Difference?**\
+`How to stay safe when the snow is coming down.`\
+https://nytimes.com/article/blizzard-noreaster-explained.html
+
+**Yellen to Visit China for Top-Level Economic Talks**\
+`The Treasury secretary plans to address a surge of Chinese green technology exports during meetings in Beijing and Guangzhou.`\
+https://nytimes.com/2024/04/02/business/janet-yellen-china-treasury.html
+
 **Biden Talks to Xi About Conflicts, From Ukraine to the Pacific**\
 `President Biden aimed to keep relations stable in a call with Xi Jinping of China, but also planned to deliver warnings over Beijing’s activities around Taiwan, the South China Sea and Russia.`\
 https://nytimes.com/2024/04/02/us/politics/biden-xi-call.html
