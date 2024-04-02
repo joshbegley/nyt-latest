@@ -19,7 +19,7 @@ https://nytimes.com/2024/04/02/climate/how-to-make-polluters-pay.html
 https://nytimes.com/2024/04/02/style/tiny-modern-love-stories-my-family-owned-your-house.html
 
 **Is Giving Farmers Millions to Kill Millions of Chickens the Way to Curb Bird Flu?**\
-`Big poultry farms have received millions of dollars for their losses. Animal welfare groups contend that aid reinforces inhumane cullings of sick birds.`\
+`Big poultry farms have received millions of dollars for their losses. Animal welfare groups contend that aid reinforces inhumane cullings of birds exposed to the virus.`\
 https://nytimes.com/2024/04/02/science/bird-flu-aid-animal-welfare.html
 
 **7 Rainy Songs for April Showers**\
