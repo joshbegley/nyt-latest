@@ -1,3 +1,15 @@
+**Biden Critics Push Democrats to Submit Blank Ballots in New York**\
+`Activists pressuring the president over Gaza urge voters to leave ballots unmarked, since New York does not allow “uncommitted” votes in primaries.`\
+https://nytimes.com/2024/04/02/us/politics/biden-gaza-blank-ballots-new-york-primary.html
+
+**Trump to Focus on Border as Democrats Eye Boost From Florida Abortion Ruling**\
+`Democrats, bolstered by a pair of court rulings out of Florida on Monday, have fresh optimism about their ability to center the campaign on abortion.`\
+https://nytimes.com/2024/04/02/us/politics/trump-biden-abortion-border.html
+
+**02pol-swiper**\
+`Election Updates: Trump tries to keep focus on the border as Democrats hope for a boost from Florida’s abortion ruling.`\
+https://nytimes.com/live/2024/04/02/us/biden-trump-election-primary
+
 **Tesla’s Sales Fell in First Quarter as Competition Intensified**\
 `Sales of the company’s electric cars dropped in the first three months of the year.`\
 https://nytimes.com/2024/04/02/business/tesla-auto-sales-first-quarter.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/02/learning/how-to-befriend-an-introvert.html
 **How to Find Your Balance**\
 `A winning essay by Chelsea Hu, age 18.`\
 https://nytimes.com/2024/04/02/learning/how-to-find-your-balance.html
-
-**How to Do the Worm**\
-`A winning essay by Camille Gonzales, age 18.`\
-https://nytimes.com/2024/04/02/learning/how-to-do-the-worm.html
-
-**The Winners of Our ‘How To’ Contest**\
-`Over 2,200 teenagers submitted essays on how to do everything from fix a toilet to fight a kangaroo. We’ll be publishing the work of the winners all week.`\
-https://nytimes.com/2024/04/02/learning/the-winners-of-our-how-to-contest.html
-
-**Regulators Force Another Microsoft Split**\
-`The tech giant is unbundling Teams from its Office software suite, as it faces mounting scrutiny on both sides of the Atlantic.`\
-https://nytimes.com/2024/04/02/business/dealbook/microsoft-teams-office-unbundle.html
 
