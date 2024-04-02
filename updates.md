@@ -1,3 +1,15 @@
+**Joe Flaherty, ‘SCTV’ and ‘Freaks and Geeks’ Actor, Dies at 82**\
+`Mr. Flaherty was known for playing a series of oddball characters on the sketch series “SCTV” and, more recently, for his role as the father of two teenagers on “Freaks and Geeks.”`\
+https://nytimes.com/2024/04/02/arts/joe-flaherty-dead.html
+
+**An A.I. Researcher Takes On Election Deepfakes**\
+`Oren Etzioni was once an optimist about artificial intelligence. Now, his nonprofit, TrueMedia.org, is offering tools for fighting A.I.-manipulated content.`\
+https://nytimes.com/2024/04/02/technology/an-ai-researcher-takes-on-election-deepfakes.html
+
+**As Severe Storms Moved Through, U.S. Weather Warning System Faced an ‘Outage’**\
+`“Some warning services were impacted,” a National Weather Service spokesman said. By early Tuesday, things were back online.`\
+https://nytimes.com/2024/04/02/us/weather-radar-down.html
+
 **The Technique Reshaping Organ Transplantation**\
 `Perfusion keeps a donated organ alive outside the body, giving surgeons extra time and increasing the number of transplants possible.`\
 https://nytimes.com/2024/04/02/health/organ-transplants-perfusion.html
