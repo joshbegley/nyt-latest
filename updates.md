@@ -1,3 +1,11 @@
+**To R.F.K. Jr., It’s Biden, Not Trump, Who’s the Bigger Threat to Democracy**\
+`The independent presidential candidate stepped up his attacks on President Biden over perceived social media “censorship,” echoing Donald Trump’s wild claim that Mr. Biden is the true threat.`\
+https://nytimes.com/2024/04/02/us/politics/rfk-biden-trump.html
+
+**Who Should Be the New James Bond?**\
+`As speculation heats up around the casting of a seventh cinematic 007, Styles reporters consider possible candidates for a new Bond era.`\
+https://nytimes.com/2024/04/02/fashion/bond-movies-007-actor.html
+
 **Supreme Court Rejects Bid to Revive Washington State Voting Map Said to Hurt Hispanics**\
 `A federal judge ruled that a state voting district diluted the ability of Latino voters to elect their preferred candidates.`\
 https://nytimes.com/2024/04/02/us/politics/supreme-court-washington-state-voting-map.html
