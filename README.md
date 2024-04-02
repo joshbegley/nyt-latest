@@ -1,3 +1,7 @@
+**Severe Weather, Including Tornadoes, Expected in Midwest and South**\
+`More than three million people were under a tornado watch early Tuesday afternoon.`\
+https://nytimes.com/2024/04/02/us/tornado-warnings-weather-forecast.html
+
 **Can’t Make It to the Eclipse? Come With Us.**\
 `Like the moon over the sun, we have it covered. Here’s what we are doing.`\
 https://nytimes.com/2024/04/02/insider/new-york-times-eclipse-april-8.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/arts/joe-flaherty-dead.html
 **An A.I. Researcher Takes On Election Deepfakes**\
 `Oren Etzioni was once an optimist about artificial intelligence. Now, his nonprofit, TrueMedia.org, is offering tools for fighting A.I.-manipulated content.`\
 https://nytimes.com/2024/04/02/technology/an-ai-researcher-takes-on-election-deepfakes.html
-
-**As Severe Storms Moved Through, U.S. Weather Warning System Faced an ‘Outage’**\
-`“Some warning services were impacted,” a National Weather Service spokesman said. By early Tuesday, things were back online.`\
-https://nytimes.com/2024/04/02/us/weather-radar-down.html
 
