@@ -1,3 +1,7 @@
+**The strike hit in Deir al Balah, a city in central Gaza that has been bombarded before.**\
+`By Adam Rasgon, Vivian Yee and Aaron Boxerman`\
+https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/the-strike-hit-in-deir-al-balah-a-city-in-central-gaza-that-has-been-bombarded-before
+
 **Larry Lucchino, Top Executive at Three M.L.B. Teams, Dies at 78**\
 `He oversaw construction of new ballparks for the Baltimore Orioles and San Diego Padres and, with the Red Sox, the renovations at Fenway Park.`\
 https://nytimes.com/2024/04/02/sports/baseball/larry-lucchino-dead.html

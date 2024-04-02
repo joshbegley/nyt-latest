@@ -1,3 +1,7 @@
+**The strike hit in Deir al Balah, a city in central Gaza that has been bombarded before.**\
+`By Adam Rasgon, Vivian Yee and Aaron Boxerman`\
+https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/the-strike-hit-in-deir-al-balah-a-city-in-central-gaza-that-has-been-bombarded-before
+
 **Larry Lucchino, Top Executive at Three M.L.B. Teams, Dies at 78**\
 `He oversaw construction of new ballparks for the Baltimore Orioles and San Diego Padres and, with the Red Sox, the renovations at Fenway Park.`\
 https://nytimes.com/2024/04/02/sports/baseball/larry-lucchino-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/world/europe/germany-jersey-customize-nazi-symbol
 **Is It a Blizzard? A Nor’easter? And What’s the Difference?**\
 `How to stay safe when the snow is coming down.`\
 https://nytimes.com/article/blizzard-noreaster-explained.html
-
-**Yellen to Visit China for Top-Level Economic Talks**\
-`The Treasury secretary plans to address a surge of Chinese green technology exports during meetings in Beijing and Guangzhou.`\
-https://nytimes.com/2024/04/02/business/janet-yellen-china-treasury.html
 
