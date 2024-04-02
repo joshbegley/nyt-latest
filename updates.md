@@ -1,3 +1,7 @@
+**Orange Steam Funnels Are a New York Symbol. What Are They For?**\
+`The instantly recognizable orange cylinders are an outgrowth of New York City’s 142-year-old steam system.`\
+https://nytimes.com/card/2024/04/02/nyregion/steam-funnels-con-edison-nyc
+
 **Israeli Army Withdraws From Major Gaza Hospital, Leaving Behind a Wasteland**\
 `Al-Shifa Hospital lies in ruins after a battle there between Israeli soldiers and Gazan gunmen. Shortly before withdrawing, the Israeli military brought journalists from The Times to witness the damage.`\
 https://nytimes.com/2024/04/02/world/middleeast/gaza-al-shifa-hospital.html

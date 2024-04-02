@@ -1,3 +1,7 @@
+**Orange Steam Funnels Are a New York Symbol. What Are They For?**\
+`The instantly recognizable orange cylinders are an outgrowth of New York City’s 142-year-old steam system.`\
+https://nytimes.com/card/2024/04/02/nyregion/steam-funnels-con-edison-nyc
+
 **Israeli Army Withdraws From Major Gaza Hospital, Leaving Behind a Wasteland**\
 `Al-Shifa Hospital lies in ruins after a battle there between Israeli soldiers and Gazan gunmen. Shortly before withdrawing, the Israeli military brought journalists from The Times to witness the damage.`\
 https://nytimes.com/2024/04/02/world/middleeast/gaza-al-shifa-hospital.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/crosswords/daily-puzzle-2024-04-02.html
 **Founder of World Central Kitchen Says Several Workers Killed in Gaza Airstrike**\
 `The nonprofit has become a crucial source of food for desperate Gazans. The Israeli military said it was investigating.`\
 https://nytimes.com/2024/04/01/world/middleeast/world-central-kitchen-strike-gaza.html
-
-**Trump Gets Bond Deal to Ward Off $454 Million Judgment, for Now**\
-`The guarantee means that New York’s attorney general will not be able to pursue Donald Trump’s assets and bank accounts until Mr. Trump’s appeals are settled.`\
-https://nytimes.com/2024/04/01/nyregion/trump-bond-deal.html
 
