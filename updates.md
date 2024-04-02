@@ -1,3 +1,7 @@
+**World Central Kitchen says several of its workers were killed in a Gaza airstrike.**\
+`By Daniel Victor`\
+https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/world-central-kitchen-says-several-of-its-workers-were-killed-in-a-gaza-airstrike
+
 **Trump Gets Bond Deal to Ward Off $454 Million Judgment, for Now**\
 `The guarantee means that New York’s attorney general will not be able to pursue Donald Trump’s assets and bank accounts until Mr. Trump’s appeals are settled.`\
 https://nytimes.com/2024/04/01/nyregion/trump-bond-deal.html
