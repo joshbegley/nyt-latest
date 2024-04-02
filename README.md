@@ -1,3 +1,7 @@
+**29 Killed in Fire at Istanbul Nightclub**\
+`The fire took place at Masquerade, a popular club that was closed to the public and undergoing renovations. Six people were arrested.`\
+https://nytimes.com/2024/04/02/world/europe/istanbul-nightclub-fire.html
+
 **The strike hit in Deir al Balah, a city in central Gaza that has been bombarded before.**\
 `By Adam Rasgon, Vivian Yee and Aaron Boxerman`\
 https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/the-strike-hit-in-deir-al-balah-a-city-in-central-gaza-that-has-been-bombarded-before
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/opinion/joe-biden-age.html
 **Adidas Stops Customization of Germany Jersey for Fear of Nazi Symbolism**\
 `The apparel giant moved quickly to block the sale of shirts bearing the No. 44, which resembled a banned Nazi logo in the uniform’s new lettering.`\
 https://nytimes.com/2024/04/02/world/europe/germany-jersey-customize-nazi-symbol.html
-
-**Is It a Blizzard? A Nor’easter? And What’s the Difference?**\
-`How to stay safe when the snow is coming down.`\
-https://nytimes.com/article/blizzard-noreaster-explained.html
 
