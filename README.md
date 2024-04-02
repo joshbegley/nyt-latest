@@ -1,3 +1,7 @@
+**Fears Grow That Syria Strikes Could Spur Retaliatory Attacks on Israel and U.S.**\
+`Current and former American officials say the airstrikes on an Iranian embassy compound in Damascus were a serious blow to Tehran.`\
+https://nytimes.com/2024/04/02/world/middleeast/syria-strikes-iran-israel-us.html
+
 **Georgia Election Official Responds to Critical ‘Curb Your Enthusiasm’ Plotline**\
 `Georgia Secretary of State Brad Raffensperger sent a tongue-in-cheek letter to Larry David, the show’s creator and star.`\
 https://nytimes.com/2024/04/02/us/politics/larry-david-trump-georgia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/sports/baseball/larry-lucchino-dead.html
 **Drones Strike Deep in Russia, as Ukraine Extends Its Weapons Range**\
 `Ukrainian media and analysts, and Russian officials, said Ukraine had carried out the attack some 700 miles from the land it controls. Ukraine’s military and intelligence forces declined to comment.`\
 https://nytimes.com/2024/04/02/world/europe/russia-ukraine-drone-strike.html
-
-**Joe Flaherty, ‘SCTV’ and ‘Freaks and Geeks’ Actor, Dies at 82**\
-`Mr. Flaherty was known for playing a series of oddball characters on the sketch series “SCTV” and, more recently, for his role as the father of two teenagers on “Freaks and Geeks.”`\
-https://nytimes.com/2024/04/02/arts/joe-flaherty-dead.html
 
