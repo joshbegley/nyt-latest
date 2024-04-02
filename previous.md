@@ -1,3 +1,7 @@
+**Strike in Damascus Is an Escalation in Israel’s Undeclared War With Iran**\
+`Iran promises major retaliation, but neither Israel nor Iran wants a major shooting war, given the stakes for both countries. Even so, the danger of a miscalculation is ever-present.`\
+https://nytimes.com/2024/04/02/world/middleeast/iran-israel-damascus-strike.html
+
 **What We Know About the Strike That Killed 7 Aid Workers**\
 `Aid workers with World Central Kitchen were killed when their convoy came under fire overnight, according to the aid organization and Palestinian health officials in Gaza.`\
 https://nytimes.com/2024/04/02/world/middleeast/world-central-kitchen-workers-strike-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/world/middleeast/gaza-aid-groups-strikes.html
 **China, Russia and Trump**\
 `What Beijing and Moscow hope to gain from a second Trump term.`\
 https://nytimes.com/2024/04/02/briefing/china-russia-trump-campaign.html
-
-**Kids Are Missing School at an Alarming Rate**\
-`How the pandemic changed families’ lives and the culture of education.`\
-https://nytimes.com/2024/04/02/podcasts/the-daily/kids-are-missing-school-at-an-alarming-rate.html
 
