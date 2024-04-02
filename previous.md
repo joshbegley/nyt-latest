@@ -1,3 +1,7 @@
+**12-Year-Old Arrested After Fatal School Shooting in Finland**\
+`Another 12-year-old was killed and two other students were wounded in a country with one of the highest rates of gun ownership in Europe.`\
+https://nytimes.com/2024/04/02/world/europe/finland-school-shooting.html
+
 **After Strike, Aid Groups in Gaza Are More Fearful Than Ever**\
 `“Gaza right now is one of the most dangerous places in the world to be a humanitarian worker,” a spokeswoman for Save the Children said after a strike killed World Central Kitchen workers.`\
 https://nytimes.com/2024/04/02/world/middleeast/gaza-aid-groups-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/us/abortion-democrats-florida.html
 **A Farm Worker With Avian Flu Means a Rapid Response Is Urgent**\
 `Cows and dairy workers should be tested now, and vaccine production needs to gear up quickly.`\
 https://nytimes.com/live/2024/03/26/opinion/thepoint/avian-flu-cows-outbreak
-
-**Nicholas Galitzine Wants to Prove He’s More Than Just a Pretty Face**\
-`Known for playing princes and their modern equivalents, this British actor hopes his steamy new drama, “Mary & George,” will change how Hollywood sees him.`\
-https://nytimes.com/2024/04/02/arts/television/nicholas-galitzine-mary-and-george.html
 

@@ -1,3 +1,7 @@
+**12-Year-Old Arrested After Fatal School Shooting in Finland**\
+`Another 12-year-old was killed and two other students were wounded in a country with one of the highest rates of gun ownership in Europe.`\
+https://nytimes.com/2024/04/02/world/europe/finland-school-shooting.html
+
 **After Strike, Aid Groups in Gaza Are More Fearful Than Ever**\
 `“Gaza right now is one of the most dangerous places in the world to be a humanitarian worker,” a spokeswoman for Save the Children said after a strike killed World Central Kitchen workers.`\
 https://nytimes.com/2024/04/02/world/middleeast/gaza-aid-groups-strikes.html
