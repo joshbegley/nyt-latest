@@ -1,3 +1,7 @@
+**Deal Talks Between Paramount and Skydance Heat Up**\
+`David Ellison, the founder of the Skydance media company, met with Paramount’s board of directors late last month to discuss the deal.`\
+https://nytimes.com/2024/04/02/business/media/paramount-skydance-exclusive-talks.html
+
 **Maryse Condé, ‘Grande Dame’ of Francophone Literature, Dies at 90**\
 `She explored the history and culture of Africa, the West Indies and Europe in work that made her a perennial favorite for the Nobel Prize.`\
 https://nytimes.com/2024/04/02/books/maryse-conde-dead.html
@@ -31,10 +35,6 @@ https://nytimes.com/2024/04/02/world/canada/canada-election-china-han-dong.html
 https://nytimes.com/2024/04/02/dining/jose-andres-central-kitchen-disaster-aid.html
 
 **Protest Outside Netanyahu’s Jerusalem Home Turns Into ‘Riot,’ Police Say**\
-`Anti-government demonstrators took to the streets for the third night in a row to call for early elections.`\
+`Antigovernment demonstrators took to the streets for the third night in a row to call for early elections.`\
 https://nytimes.com/2024/04/02/world/middleeast/israel-netanyahu-protest.html
-
-**7 Aid Workers Killed in Gaza Were Known for a Passion for Helping Others**\
-`Gaza has been the deadliest place for aid workers since the Oct. 7 attacks.`\
-https://nytimes.com/2024/04/02/world/middleeast/gaza-aid-world-central-kitchen-workers-killed.html
 

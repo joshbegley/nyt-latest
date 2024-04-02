@@ -1,3 +1,11 @@
+**Deal Talks Between Paramount and Skydance Heat Up**\
+`David Ellison, the founder of the Skydance media company, met with Paramount’s board of directors late last month to discuss the deal.`\
+https://nytimes.com/2024/04/02/business/media/paramount-skydance-exclusive-talks.html
+
+**Protest Outside Netanyahu’s Jerusalem Home Turns Into ‘Riot,’ Police Say**\
+`Antigovernment demonstrators took to the streets for the third night in a row to call for early elections.`\
+https://nytimes.com/2024/04/02/world/middleeast/israel-netanyahu-protest.html
+
 **Maryse Condé, ‘Grande Dame’ of Francophone Literature, Dies at 90**\
 `She explored the history and culture of Africa, the West Indies and Europe in work that made her a perennial favorite for the Nobel Prize.`\
 https://nytimes.com/2024/04/02/books/maryse-conde-dead.html
