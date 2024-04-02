@@ -1,3 +1,7 @@
+**Larry Lucchino, Top Executive at Three M.L.B. Teams, Dies at 78**\
+`He oversaw construction of new ballparks for the Baltimore Orioles and San Diego Padres and, with the Red Sox, the renovations at Fenway Park.`\
+https://nytimes.com/2024/04/02/sports/baseball/larry-lucchino-dead.html
+
 **Drones Strike Deep in Russia, as Ukraine Extends Its Weapons Range**\
 `Ukrainian media and analysts, and Russian officials, said Ukraine had carried out the attack some 700 miles from the land it controls. Ukraine’s military and intelligence forces declined to comment.`\
 https://nytimes.com/2024/04/02/world/europe/russia-ukraine-drone-strike.html

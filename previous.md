@@ -1,3 +1,7 @@
+**Larry Lucchino, Top Executive at Three M.L.B. Teams, Dies at 78**\
+`He oversaw construction of new ballparks for the Baltimore Orioles and San Diego Padres and, with the Red Sox, the renovations at Fenway Park.`\
+https://nytimes.com/2024/04/02/sports/baseball/larry-lucchino-dead.html
+
 **Drones Strike Deep in Russia, as Ukraine Extends Its Weapons Range**\
 `Ukrainian media and analysts, and Russian officials, said Ukraine had carried out the attack some 700 miles from the land it controls. Ukraine’s military and intelligence forces declined to comment.`\
 https://nytimes.com/2024/04/02/world/europe/russia-ukraine-drone-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/article/blizzard-noreaster-explained.html
 **Yellen to Visit China for Top-Level Economic Talks**\
 `The Treasury secretary plans to address a surge of Chinese green technology exports during meetings in Beijing and Guangzhou.`\
 https://nytimes.com/2024/04/02/business/janet-yellen-china-treasury.html
-
-**Biden Talks to Xi About Conflicts, From Ukraine to the Pacific**\
-`President Biden aimed to keep relations stable in a call with Xi Jinping of China, but also planned to deliver warnings over Beijing’s activities around Taiwan, the South China Sea and Russia.`\
-https://nytimes.com/2024/04/02/us/politics/biden-xi-call.html
 
