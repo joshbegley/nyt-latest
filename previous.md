@@ -1,3 +1,15 @@
+**The Appalling Tactics of the ‘Free Palestine’ Movement**\
+`What does it say about a cause that won’t weed out its worst members or stamp out its worst ideas?`\
+https://nytimes.com/2024/04/02/opinion/the-appalling-tactics-of-the-free-palestine-movement.html
+
+**What We Know About the Iranian Commanders Killed by Israel in Syria**\
+`The leaders included Gen. Mohammad Reza Zahedi, the senior most leader in Iran’s armed forces assassinated since Qassim Suleimani was killed in 2020.`\
+https://nytimes.com/2024/04/02/world/middleeast/iran-commanders-syria-strike-israel.html
+
+**Tougher Security Measures Are Causing Upset at Guantánamo Prison**\
+`An effort to unshackle a detainee during legal meetings has put a spotlight on simmering tensions in the Pentagon’s secretive prison.`\
+https://nytimes.com/2024/04/02/us/politics/guantanamo-security-prisoners.html
+
 **George Carlin’s Estate Reaches Settlement After A.I. Podcast**\
 `The estate had accused two podcast hosts of infringing on its copyrights by training an A.I. algorithm on five decades of Mr. Carlin’s work.`\
 https://nytimes.com/2024/04/02/arts/george-carlins-settlement-ai-podcast.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/02/nyregion/trump-trial-judge-daughter.html
 **Late Winter Storms Spare California From Drought Pain, for Now**\
 `A rush of precipitation lifted the state to its second straight year with above-average snowfall, though Gov. Gavin Newsom warned residents not to grow used to it.`\
 https://nytimes.com/2024/04/02/us/california-snow-water-level.html
-
-**Netanyahu Called Aid Worker Deaths Tragic and Unintentional**\
-`Also, Biden had a rare call with Xi. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/04/02/briefing/israel-gaza-aid-workers-biden-xi-phone-call.html
-
-**Trump Again Invokes ‘Blood Bath’ and Dehumanizes Migrants in Border Remarks**\
-`The former president has tried to stoke fear around immigration and border security throughout his 2024 campaign, as he has done in the past.`\
-https://nytimes.com/2024/04/02/us/politics/trump-border-blood-bath.html
-
-**Ye Praised Hitler and Spoke of ‘Going for the Gays,’ Lawsuit Claims**\
-`A former employee sued the rapper formerly known as Kanye West, claiming a hostile work environment at Yeezy, his fashion brand, and Donda Academy, his private school.`\
-https://nytimes.com/2024/04/02/arts/music/kanye-west-lawsuit-donda.html
 
