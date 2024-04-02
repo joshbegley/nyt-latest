@@ -1,3 +1,7 @@
+**Restaurant Review: A New Voice in Soul Food Rises on Staten Island**\
+`At Shaw-naé’s House, Shaw-naé herself serves up Southern classics and a warm welcome to her “living room.”`\
+https://nytimes.com/2024/04/02/dining/restaurant-review-a-new-voice-in-soul-food-rises-on-staten-island.html
+
 **Protests Over Gaza Intensify at American Art Museums**\
 `A protest at the Yerba Buena Center for the Arts in San Francisco led to the resignation of its leader and to a monthlong closure of its galleries.`\
 https://nytimes.com/2024/04/02/arts/design/israel-gaza-protests-museums.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/arts/music/amplifier-newsletter-rainy-april-songs
 **Gunfire From Deputies Killed Teen Who Had Been Reported Kidnapped, Video Shows**\
 `Savannah Graziano, 15, was fatally shot a day after an Amber Alert was issued for her in September 2022. Newly released video and recordings show that she was killed by deputies.`\
 https://nytimes.com/2024/04/02/us/kidnapped-teen-shot-california-police.html
-
-**Rome’s Future Is a Walk Through Its Past**\
-`City officials kicked off a new project to create a monumental, pedestrian-friendly, archaeological area downtown, but some critics worry the plans puts tourists before residents.`\
-https://nytimes.com/2024/04/02/world/europe/rome-future-past-downtown.html
 
