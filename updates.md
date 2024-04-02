@@ -1,3 +1,11 @@
+**George Carlin’s Estate Reaches Settlement After A.I. Podcast**\
+`The estate had accused two podcast hosts of infringing on its copyrights by training an A.I. algorithm on five decades of Mr. Carlin’s work.`\
+https://nytimes.com/2024/04/02/arts/george-carlins-settlement-ai-podcast.html
+
+**Canadian Lawmaker Testifies Chinese Students Were Bused In to Elect Him**\
+`Han Dong, a member of Parliament who is accused of benefiting from the Chinese government’s help, testified at a public hearing on foreign interference.`\
+https://nytimes.com/2024/04/02/world/canada/canada-election-china-han-dong.html
+
 **How José Andrés and His Corps of Cooks Became Leaders in Disaster Aid**\
 `Long before the killings of seven workers in Gaza, World Central Kitchen pioneered a new way to deliver emergency relief, using local labor and recipes.`\
 https://nytimes.com/2024/04/02/dining/jose-andres-central-kitchen-disaster-aid.html
