@@ -1,3 +1,7 @@
+**Readers Share Their Favorite Places to See Art in California**\
+`Contemporary art with a hillside winery in Napa, a Roman villa-inspired museum in Pacific Palisades and more.`\
+https://nytimes.com/2024/04/02/us/california-places-to-see-art.html
+
 **Strike in Damascus Is an Escalation in Israel’s Undeclared War With Iran**\
 `Iran promises major retaliation, but neither Israel nor Iran wants a major shooting war, given the stakes for both countries. Even so, the danger of a miscalculation is ever-present.`\
 https://nytimes.com/2024/04/02/world/middleeast/iran-israel-damascus-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/world/europe/finland-school-shooting.html
 **After Strike, Aid Groups in Gaza Are More Fearful Than Ever**\
 `“Gaza right now is one of the most dangerous places in the world to be a humanitarian worker,” a spokeswoman for Save the Children said after a strike killed World Central Kitchen workers.`\
 https://nytimes.com/2024/04/02/world/middleeast/gaza-aid-groups-strikes.html
-
-**China, Russia and Trump**\
-`What Beijing and Moscow hope to gain from a second Trump term.`\
-https://nytimes.com/2024/04/02/briefing/china-russia-trump-campaign.html
 
