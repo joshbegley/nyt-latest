@@ -1,4 +1,4 @@
-**Gag Order Against Trump Is Expanded to Stop Attacks on Judge’s Family**\
+**Gag Order Against Trump Is Expanded to Bar Attacks on Judge’s Family**\
 `Donald Trump had in recent days targeted the daughter of Juan Merchan, the judge overseeing his criminal trial in Manhattan, in blistering social media posts.`\
 https://nytimes.com/2024/04/01/nyregion/trump-gag-order-juan-merchan.html
 
