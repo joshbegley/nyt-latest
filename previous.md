@@ -1,3 +1,11 @@
+**John Barth, a Novelist Who Found Possibility in a ‘Used-Up’ Form**\
+`By merrily using fiction to dissect itself, he was at the vanguard of a movement that defined a postwar American style.`\
+https://nytimes.com/2024/04/02/books/review/john-barth-appreciation.html
+
+**Biden Administration Presses Congress on $18 Billion Sale of F-15 Jets to Israel**\
+`The deal, which would be one of the largest U.S. arms sales to Israel in years, awaits congressional approval as criticism of the war in Gaza rises.`\
+https://nytimes.com/2024/04/02/us/politics/biden-israel-weapons-deal.html
+
 **Deal Talks Between Paramount and Skydance Heat Up**\
 `David Ellison, the founder of the Skydance media company, met with Paramount’s board of directors late last month to discuss the deal.`\
 https://nytimes.com/2024/04/02/business/media/paramount-skydance-exclusive-talks.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/02/arts/george-carlins-settlement-ai-podcast.html
 **Canadian Lawmaker Testifies Chinese Students Were Bused In to Elect Him**\
 `Han Dong, a member of Parliament who is accused of benefiting from the Chinese government’s help, testified at a public hearing on foreign interference.`\
 https://nytimes.com/2024/04/02/world/canada/canada-election-china-han-dong.html
-
-**How José Andrés and His Corps of Cooks Became Leaders in Disaster Aid**\
-`Long before the killings of seven workers in Gaza, World Central Kitchen pioneered a new way to deliver emergency relief, using local labor and recipes.`\
-https://nytimes.com/2024/04/02/dining/jose-andres-central-kitchen-disaster-aid.html
-
-**Protest Outside Netanyahu’s Jerusalem Home Turns Into ‘Riot,’ Police Say**\
-`Antigovernment demonstrators took to the streets for the third night in a row to call for early elections.`\
-https://nytimes.com/2024/04/02/world/middleeast/israel-netanyahu-protest.html
 
