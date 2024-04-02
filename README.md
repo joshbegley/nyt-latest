@@ -1,3 +1,7 @@
+**Rome’s Future Is a Walk Through Its Past**\
+`City officials kicked off a new project to create a monumental, pedestrian-friendly, archaeological area downtown, but some critics worry the plans puts tourists before residents.`\
+https://nytimes.com/2024/04/02/world/europe/rome-future-past-downtown.html
+
 **It’s Always a Good Time for an Oyster Roast**\
 `How to host an outdoor seafood celebration during a Northeastern winter, according to the founders of the newsletter The Perfect.`\
 https://nytimes.com/2024/04/02/t-magazine/oyster-roast-seafood-the-perfect.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/insider/solar-eclipse-april-8.html
 **Sticks. And the People Who Love Them.**\
 `Those who appreciate “something as basic as a stick” are sharing their enthusiasm through a newly popular Instagram account.`\
 https://nytimes.com/2024/04/02/style/sticks-and-the-people-who-love-them.html
-
-**29 Killed in Fire at Istanbul Nightclub**\
-`The fire took place at Masquerade, a popular club that was closed to the public and undergoing renovations. Six people were arrested.`\
-https://nytimes.com/2024/04/02/world/europe/istanbul-nightclub-fire.html
 
