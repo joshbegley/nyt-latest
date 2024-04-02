@@ -1,3 +1,11 @@
+**Quotation of the Day: Ireland Is Recovering Historical Documents Lost to the Flames of War**\
+`Quotation of the Day for Tuesday, April 2, 2024.`\
+https://nytimes.com/2024/04/01/pageoneplus/quotation-of-the-day-ireland-is-recovering-historical-documents-lost-to-the-flames-of-war.html
+
+**Corrections: April 2, 2024**\
+`Corrections that appeared in print on Tuesday, April 2, 2024.`\
+https://nytimes.com/2024/04/01/pageoneplus/corrections-april-2-2024.html
+
 **Iran says ‘U.S. must answer’ for deadly Israeli strike in Damascus**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/iran-says-us-must-answer-for-deadly-israeli-strike-in-damascus

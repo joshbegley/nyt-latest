@@ -1,3 +1,11 @@
+**Quotation of the Day: Ireland Is Recovering Historical Documents Lost to the Flames of War**\
+`Quotation of the Day for Tuesday, April 2, 2024.`\
+https://nytimes.com/2024/04/01/pageoneplus/quotation-of-the-day-ireland-is-recovering-historical-documents-lost-to-the-flames-of-war.html
+
+**Corrections: April 2, 2024**\
+`Corrections that appeared in print on Tuesday, April 2, 2024.`\
+https://nytimes.com/2024/04/01/pageoneplus/corrections-april-2-2024.html
+
 **Iran says ‘U.S. must answer’ for deadly Israeli strike in Damascus**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/iran-says-us-must-answer-for-deadly-israeli-strike-in-damascus
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/01/dining/whats-your-favorite-restaurant.html
 **The 100 Best Restaurants in New York City in 2024**\
 `Our critic, Pete Wells, drops his annual ranking. See what’s new, what moved and what left the list.`\
 https://nytimes.com/interactive/2024/dining/best-nyc-restaurants.html
-
-**In First Court Appearance, U.S.S. Cole Case Judge Sets Goal of 2025 Trial**\
-`If Col. Matthew S. Fitzgerald meets his goal, the trial would start a quarter century after the terrorist attack that killed 17 U.S. sailors off Yemen.`\
-https://nytimes.com/2024/04/01/us/politics/uss-cole-judge-gitmo.html
-
-**Will MAGA Republicans Block Baltimore’s Rebuilding?**\
-`In Congress, rebuilding the Key Bridge could be the next Ukraine funding debate.`\
-https://nytimes.com/2024/04/01/opinion/baltimore-bridge-republicans.html
 
