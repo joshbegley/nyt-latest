@@ -1,3 +1,7 @@
+**Iran and Israel Have a Long History of Clandestine Attacks**\
+`The regional rivals have for decades targeted each other’s interests, including with a recent strike in Syria that killed three Iranian commanders. Here are some other notable flash points.`\
+https://nytimes.com/2024/04/02/world/middleeast/iran-israel-attacks-shadow-war.html
+
 **What We Know About the Victims of the World Central Kitchen Strike**\
 `The group said one of the seven workers who was killed was a dual citizen of the U.S. and Canada, while the others were from Australia, Britain, Gaza and Poland.`\
 https://nytimes.com/2024/04/02/world/middleeast/world-central-kitchen-victims.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/us/california-places-to-see-art.html
 **Strike in Damascus Is an Escalation in Israel’s Undeclared War With Iran**\
 `Tehran promises major retaliation, but neither Israel nor Iran wants a major shooting war, given the stakes for both countries. Even so, the danger of a miscalculation is ever-present.`\
 https://nytimes.com/2024/04/02/world/middleeast/iran-israel-damascus-strike.html
-
-**What We Know About the Strike That Killed 7 World Central Kitchen Workers**\
-`Prime Minister Benjamin Netanyahu of Israel acknowledged on Tuesday a “tragic case of our forces unintentionally harming innocent people”`\
-https://nytimes.com/2024/04/02/world/middleeast/world-central-kitchen-workers-strike-gaza.html
 
