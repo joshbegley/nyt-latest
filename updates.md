@@ -1,3 +1,7 @@
+**Is Giving Farmers Millions to Kill Millions of Chickens the Way to Curb Bird Flu?**\
+`Big poultry farms have received millions of dollars for their losses. Animal welfare groups contend that aid reinforces inhumane cullings of birds exposed to the virus.`\
+https://nytimes.com/2024/04/02/science/bird-flu-aid-animal-welfare.html
+
 **Stuck Ships and Supply-Chain Inflation**\
 `Baltimore alone isn’t that big a deal, but is it an omen?`\
 https://nytimes.com/2024/04/02/opinion/baltimore-bridge-inflation-supply-chain.html
