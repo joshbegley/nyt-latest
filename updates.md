@@ -1,3 +1,15 @@
+**Ye Praised Hitler and Spoke of ‘Going for the Gays,’ Lawsuit Claims**\
+`A former employee sued the rapper formerly known as Kanye West, claiming a hostile work environment at Yeezy, his fashion brand, and Donda Academy, his private school.`\
+https://nytimes.com/2024/04/02/arts/music/kanye-west-lawsuit-donda.html
+
+**Ramy Youssef’s ‘S.N.L.’ Monologue Was a Love Letter to Muslim America**\
+`Muslims, he seemed to say, are just like everyone else.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/ramy-youssef-snl-monologue
+
+**Warming Is Getting Worse. So They Just Tested a Way to Deflect the Sun.**\
+`A trial in California is testing a machine designed to reflect sunlight back into space. “All my colleagues hope that we never use these things,” one researcher said.`\
+https://nytimes.com/2024/04/02/climate/global-warming-clouds-solar-geoengineering.html
+
 **Wednesday Briefing: Aid Workers Killed in Gaza**\
 `Plus, President Biden talked to Xi Jinping.`\
 https://nytimes.com/2024/04/02/world/asia/strike-aid-netanyahu-biden-asia.html
