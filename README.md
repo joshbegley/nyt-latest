@@ -34,7 +34,7 @@ https://nytimes.com/2024/04/02/us/politics/larry-david-trump-georgia.html
 `More than three million people were under a tornado watch early Tuesday afternoon.`\
 https://nytimes.com/2024/04/02/us/tornado-warnings-weather-forecast.html
 
-**In the Magnificence of Iowa’s Glow, Albany Catches Some Shade**\
-`During the waning moments of Iowa’s victory over L.S.U. on Monday, a stray comment on the televised broadcast cast the New York capital in an unflattering light.`\
-https://nytimes.com/2024/04/02/nyregion/albany-rebecca-lobo.html
+**Can’t Make It to the Eclipse? Come With Us.**\
+`Like the moon over the sun, we have it covered. Here’s what we are doing.`\
+https://nytimes.com/2024/04/02/insider/solar-eclipse-april-8.html
 
