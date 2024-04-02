@@ -1,3 +1,11 @@
+**George Carlin’s Estate Reaches Settlement After A.I. Podcast**\
+`The estate had accused two podcast hosts of infringing on its copyrights by training an A.I. algorithm on five decades of Mr. Carlin’s work.`\
+https://nytimes.com/2024/04/02/arts/george-carlins-settlement-ai-podcast.html
+
+**Canadian Lawmaker Testifies Chinese Students Were Bused In to Elect Him**\
+`Han Dong, a member of Parliament who is accused of benefiting from the Chinese government’s help, testified at a public hearing on foreign interference.`\
+https://nytimes.com/2024/04/02/world/canada/canada-election-china-han-dong.html
+
 **How José Andrés and His Corps of Cooks Became Leaders in Disaster Aid**\
 `Long before the killings of seven workers in Gaza, World Central Kitchen pioneered a new way to deliver emergency relief, using local labor and recipes.`\
 https://nytimes.com/2024/04/02/dining/jose-andres-central-kitchen-disaster-aid.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/02/us/politics/trump-border-blood-bath.html
 **Ye Praised Hitler and Spoke of ‘Going for the Gays,’ Lawsuit Claims**\
 `A former employee sued the rapper formerly known as Kanye West, claiming a hostile work environment at Yeezy, his fashion brand, and Donda Academy, his private school.`\
 https://nytimes.com/2024/04/02/arts/music/kanye-west-lawsuit-donda.html
-
-**Ramy Youssef’s ‘S.N.L.’ Monologue Was a Love Letter to Muslim America**\
-`Muslims, he seemed to say, are just like everyone else.`\
-https://nytimes.com/live/2024/04/02/opinion/thepoint/ramy-youssef-snl-monologue
-
-**Warming Is Getting Worse. So They Just Tested a Way to Deflect the Sun.**\
-`A trial in California is testing a machine designed to reflect sunlight back into space. “All my colleagues hope that we never use these things,” one researcher said.`\
-https://nytimes.com/2024/04/02/climate/global-warming-clouds-solar-geoengineering.html
 
