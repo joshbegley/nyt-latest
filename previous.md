@@ -1,3 +1,7 @@
+**Tesla’s Sales Fell in First Quarter as Competition Intensified**\
+`Sales of the company’s electric cars dropped in the first three months of the year.`\
+https://nytimes.com/2024/04/02/business/tesla-auto-sales-first-quarter.html
+
 **The Caitlin Clark Show Rolls On**\
 `While off-the-court drama has raged in the women’s tournament, Clark and Iowa dispatched with their foils from last season en route to the Final Four.`\
 https://nytimes.com/2024/04/02/us/march-madness-women-iowa-lsu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/learning/the-winners-of-our-how-to-contest.html
 **Regulators Force Another Microsoft Split**\
 `The tech giant is unbundling Teams from its Office software suite, as it faces mounting scrutiny on both sides of the Atlantic.`\
 https://nytimes.com/2024/04/02/business/dealbook/microsoft-teams-office-unbundle.html
-
-**12-Year-Old Arrested After Fatal School Shooting in Finland**\
-`Another 12-year-old was killed and two other students were wounded in a country with one of the highest rates of gun ownership in Europe.`\
-https://nytimes.com/2024/04/02/world/europe/finland-school-shooting.html
 

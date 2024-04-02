@@ -1,3 +1,7 @@
+**Tesla’s Sales Fell in First Quarter as Competition Intensified**\
+`Sales of the company’s electric cars dropped in the first three months of the year.`\
+https://nytimes.com/2024/04/02/business/tesla-auto-sales-first-quarter.html
+
 **Strike in Damascus Is an Escalation in Israel’s Undeclared War With Iran**\
 `Tehran promises major retaliation, but neither Israel nor Iran wants a major shooting war, given the stakes for both countries. Even so, the danger of a miscalculation is ever-present.`\
 https://nytimes.com/2024/04/02/world/middleeast/iran-israel-damascus-strike.html
