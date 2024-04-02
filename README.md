@@ -1,3 +1,15 @@
+**The Technique Reshaping Organ Transplantation**\
+`Perfusion keeps a donated organ alive outside the body, long enough to assess its viability and to give surgeons breathing room.`\
+https://nytimes.com/2024/04/02/health/organ-transplants-perfusion.html
+
+**Joe Biden Is More Than His Age**\
+`Responses to an Opinion article by Frank Bruni. Also: Investing in Ukraine; Gabriel García Márquez’s last novel; America’s gun culture.`\
+https://nytimes.com/2024/04/02/opinion/joe-biden-age.html
+
+**Adidas Stops Customization of Germany Jersey for Fear of Nazi Symbolism**\
+`The apparel giant moved quickly to block the sale of shirts bearing the No. 44, which resembled a banned Nazi logo in the uniform’s new lettering.`\
+https://nytimes.com/2024/04/02/world/europe/germany-jersey-customize-nazi-symbol.html
+
 **Is It a Blizzard? A Nor’easter? And What’s the Difference?**\
 `How to stay safe when the snow is coming down.`\
 https://nytimes.com/article/blizzard-noreaster-explained.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/02/arts/music/klaus-makela-28-to-lead-chicago-sympho
 **Beyoncé’s ‘Cowboy Carter’ Is a Vivid Mission Statement. Let’s Discuss.**\
 `The pop superstar teased a move to country, then tackled so much more. Three critics and a reporter explore her new album’s inspirations, sounds and stakes.`\
 https://nytimes.com/2024/04/02/arts/music/beyonce-cowboy-carter.html
-
-**Easy Dinners to Clear Out the Condiments in Your Fridge**\
-`Skip a trip to the store and clean out your shelves at the same time with these simple dishes.`\
-https://nytimes.com/2024/04/02/dining/easy-dinners-to-clear-out-the-condiments-in-your-fridge.html
-
-**Did We Get the Joke? Thousands of You Had Some Thoughts.**\
-`Responding to our list of the funniest books since “Catch-22,” readers offer their own choices.`\
-https://nytimes.com/2024/04/02/books/review/funniest-novels-responses.html
-
-**Jazz at Lincoln Center’s New Season Includes Tribute to Bayard Rustin**\
-`The civil rights activist’s life and legacy will be honored in a 2024-25 lineup that will also include spotlights on jazz history, and a rising star to warm up November.`\
-https://nytimes.com/2024/04/02/arts/music/lincoln-center-jazz-lineup.html
 
