@@ -1,3 +1,15 @@
+**Biden Critics Push Democrats to Submit Blank Ballots in New York**\
+`Activists pressuring the president over Gaza urge voters to leave ballots unmarked, since New York does not allow “uncommitted” votes in primaries.`\
+https://nytimes.com/2024/04/02/us/politics/biden-gaza-blank-ballots-new-york-primary.html
+
+**Trump to Focus on Border as Democrats Eye Boost From Florida Abortion Ruling**\
+`Democrats, bolstered by a pair of court rulings out of Florida on Monday, have fresh optimism about their ability to center the campaign on abortion.`\
+https://nytimes.com/2024/04/02/us/politics/trump-biden-abortion-border.html
+
+**02pol-swiper**\
+`Election Updates: Trump tries to keep focus on the border as Democrats hope for a boost from Florida’s abortion ruling.`\
+https://nytimes.com/live/2024/04/02/us/biden-trump-election-primary
+
 **What We Know About the Strike That Killed 7 World Central Kitchen Workers**\
 `Prime Minister Benjamin Netanyahu of Israel acknowledged on Tuesday a “tragic case of our forces unintentionally harming innocent people”`\
 https://nytimes.com/2024/04/02/world/middleeast/world-central-kitchen-workers-strike-gaza.html
