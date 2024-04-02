@@ -1,3 +1,7 @@
+**Supreme Court Rejects Bid to Revive Washington State Voting Map Said to Hurt Hispanics**\
+`A federal judge ruled that a state voting district diluted the ability of Latino voters to elect their preferred candidates.`\
+https://nytimes.com/2024/04/02/us/politics/supreme-court-washington-state-voting-map.html
+
 **Before and After Images Show What Remains of Al-Shifa Hospital**\
 `The hospital, which was the largest in Gaza, stood in ruins after a two-week raid by the Israeli military.`\
 https://nytimes.com/video/world/middleeast/100000009392733/al-shifa-hospital-raid-before-after.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009393345/istanbul-fire-nightclub.h
 **Africa’s Youngest President Takes Office, Promising ‘Systemic Change’**\
 `Senegal’s new president, Bassirou Diomaye Faye, took the oath of office in Tuesday’s ceremony. Close behind him sat the popular opposition leader who had clinched the win.`\
 https://nytimes.com/2024/04/02/world/africa/senegal-president-inauguration.html
-
-**How to make polluters pay**\
-`A new Vermont bill would create a “climate superfund.”`\
-https://nytimes.com/2024/04/02/climate/how-to-make-polluters-pay.html
 

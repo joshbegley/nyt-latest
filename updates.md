@@ -1,3 +1,7 @@
+**Supreme Court Rejects Bid to Revive Washington State Voting Map Said to Hurt Hispanics**\
+`A federal judge ruled that a state voting district diluted the ability of Latino voters to elect their preferred candidates.`\
+https://nytimes.com/2024/04/02/us/politics/supreme-court-washington-state-voting-map.html
+
 **Restaurant Review: A New Voice in Soul Food Rises on Staten Island**\
 `At Shaw-naé’s House, Shaw-naé herself serves up Southern classics and a warm welcome to her “living room.”`\
 https://nytimes.com/2024/04/02/dining/restaurant-review-shaw-naes-house-staten-island.html
