@@ -26,8 +26,8 @@ https://nytimes.com/2024/04/02/us/politics/trump-biden-abortion-border.html
 `Election Updates: Trump tries to keep focus on the border as Democrats hope for a boost from Florida’s abortion ruling.`\
 https://nytimes.com/live/2024/04/02/us/biden-trump-election-primary
 
-**Tesla’s Sales Fell in First Quarter as Competition Intensified**\
-`Sales of the company’s electric cars dropped in the first three months of the year.`\
+**Tesla’s Sales Drop, a Sign That Its Grip on the E.V. Market Is Slipping**\
+`Sales of the company’s electric cars dropped in the first three months of the year, even as other automakers sold more battery-powered vehicles.`\
 https://nytimes.com/2024/04/02/business/tesla-auto-sales-first-quarter.html
 
 **The Caitlin Clark Show Rolls On**\
