@@ -1,3 +1,7 @@
+**Word of the Day: inexplicable**\
+`This word has appeared in 107 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/02/learning/word-of-the-day-inexplicable.html
+
 **Tuesday Briefing**\
 `Iran says Israel struck its generals in Syria.`\
 https://nytimes.com/2024/04/02/briefing/iran-israel-general-ukraine-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/01/pageoneplus/corrections-april-2-2024.html
 **Iran says the ‘U.S. must answer’ for the Israeli strike in Damascus.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/iran-says-us-must-answer-for-deadly-israeli-strike-in-damascus
-
-**Checks Out**\
-`Billy Bratton has decided to extend his stay.`\
-https://nytimes.com/2024/04/01/crosswords/daily-puzzle-2024-04-02.html
 

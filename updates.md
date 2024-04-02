@@ -1,3 +1,7 @@
+**Word of the Day: inexplicable**\
+`This word has appeared in 107 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/02/learning/word-of-the-day-inexplicable.html
+
 **Iran says the ‘U.S. must answer’ for the Israeli strike in Damascus.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/04/01/world/israel-hamas-war-gaza-news/iran-says-us-must-answer-for-deadly-israeli-strike-in-damascus
