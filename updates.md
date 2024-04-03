@@ -1,3 +1,11 @@
+**Abortion and the Florida Fakeout**\
+`Will the state sit the presidential election out, like a retiree watching pickleball?`\
+https://nytimes.com/2024/04/03/us/politics/abortion-florida-election.html
+
+**Biden Is ‘Outraged.’ But Is He Willing to Use America’s Leverage With Israel?**\
+`President Biden, at least in public, has limited his responses to Israel’s war in Gaza to ever more indignant declarations.`\
+https://nytimes.com/2024/04/03/us/politics/biden-israel-gaza.html
+
 **Food Aid for Gazans Was Sent Back to Cyprus**\
 `Also, Ukraine lowered its draft age. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/04/03/briefing/food-aid-gaza-ukraine-draft-age.html
