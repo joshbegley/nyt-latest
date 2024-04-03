@@ -1,3 +1,7 @@
+**Inflation Cools in Eurozone, Nearing Central Bank’s Target**\
+`Prices in the countries that use the euro rose 2.4 percent in the year through March, coming closer to the European Central Bank’s 2 percent inflation target.`\
+https://nytimes.com/2024/04/03/business/eurozone-inflation-germany.html
+
 **What We Know About the Earthquake in Taiwan**\
 `The quake set off aftershocks and damaged dozens of buildings, killing nine people and leaving many injured or trapped.`\
 https://nytimes.com/2024/04/03/world/asia/taiwan-earthquake-aftermath.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/books/rebel-wilson-memoir.html
 **Scotland’s Censorship Experiment Threatens Free Expression**\
 `A new Scottish law criminalizes public speech deemed “insulting” to a protected group.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/scotlands-censorship-experiment-threatens-free-expression
-
-**Dengue Fever Is Surging and We’re Looking the Other Way**\
-`Without urgent reforms to how we educate travelers, doctors, nurses and others, we are doomed to miss textbook dengue cases.`\
-https://nytimes.com/2024/04/03/opinion/dengue-fever-latin-america-travel.html
 
