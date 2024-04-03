@@ -1,3 +1,23 @@
+**Donald Trump and the Justice System**\
+`Readers discuss how the former president is or is not getting special treatment. Also: The killing of aid workers in Gaza; screens in the classroom.`\
+https://nytimes.com/2024/04/03/opinion/donald-trump-justice-system.html
+
+**This Basketball Season, Root for the Women**\
+`Professional women’s basketball is ripe for the groundswell that has come for the college teams.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/caitlin-clark-womens-basketball
+
+**2 Brothers in Trump Media Insider-Trading Scheme Plead Guilty**\
+`Michael and Gerald Shvartsman, who had originally pleaded not guilty to securities fraud charges, each pleaded guilty to one count of securities fraud.`\
+https://nytimes.com/2024/04/03/business/trump-media-insider-trading-guilty.html
+
+**At New Directors/New Films, the Kids Are Not All Right (Nobody Really Is)**\
+`This year’s edition of the festival tends toward familiar art-house fare, but there are standouts in which characters young and old grapple with childhood.`\
+https://nytimes.com/2024/04/03/movies/new-directors-new-films.html
+
+**Trump and R.N.C. Announce a $65.6 Million Haul in March**\
+`The new numbers help the former president narrow the financial gap with President Biden, who had amassed $155 million with the Democratic Party at the end of February.`\
+https://nytimes.com/2024/04/03/us/politics/trump-rnc-campaign-finance-fundraising-march.html
+
 **Who ‘Won’ Covid? It Depends How You Measure.**\
 `Four years after the pandemic began, we’re still learning basic facts about what happened.`\
 https://nytimes.com/2024/04/03/opinion/politics/covid-measurement-memory.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/04/03/business/economy/fed-chair-awaits-more-inflation-
 **Review: Jonathan Tetelman Arrives at the Met in ‘La Rondine’**\
 `The tenor sang the role of Ruggero in a revival of Puccini’s opera that was performed with such restraint, it verged on overly careful.`\
 https://nytimes.com/2024/04/03/arts/music/la-rondine-met-opera-review.html
-
-**For Len Cariou, Dying Onstage Each Night Has Been ‘Invigorating’**\
-`In “Tuesdays With Morrie,” the 84-year-old actor was eager to tackle “a rich role in a show that asks, ‘What if despair and death are not the end?’”`\
-https://nytimes.com/2024/04/03/theater/len-cariou-tuesdays-with-morrie.html
-
-**Julia Stiles Wanted to Be Just Like Kat Stratford, Too**\
-`Twenty-five years after “10 Things I Hate About You” made her stand out among a generation of young stars, she’s stayed true to the ideals of her most famous character.`\
-https://nytimes.com/2024/04/03/movies/julia-stiles-10-things-interview.html
-
-**Leader of South Africa’s Assembly Resigns Amid Corruption Allegations**\
-`The legal problems of Nosiviwe Mapisa-Nqakula expose the governing African National Congress to one of its biggest weaknesses — corruption allegations — ahead of a crucial national election.`\
-https://nytimes.com/2024/04/03/world/africa/south-africa-speaker-resigns.html
-
-**I Inherited a Nazi Helmet From My Husband. What Should I Do With It?**\
-`The magazine’s Ethicist columnist on what to do with a politically charged heirloom.`\
-https://nytimes.com/2024/04/03/magazine/nazi-helmet-inheritance-ethics.html
-
-**The national security adviser postpones a trip to Saudi Arabia after cracking his rib.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/the-national-security-adviser-postpones-a-trip-to-saudi-arabia-after-cracking-his-rib
 
