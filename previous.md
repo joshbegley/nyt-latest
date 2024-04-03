@@ -1,3 +1,7 @@
+**Earthquake Damages Buildings and a Highway in Hualien**\
+`Rescue efforts were centered on two buildings in Hualien, one of which appeared near collapse. Some roads to the region were cut off.`\
+https://nytimes.com/2024/04/03/world/asia/hualien-earthquake-damage-taiwan.html
+
 **Wednesday Briefing**\
 `Seven aid workers killed in Gaza.`\
 https://nytimes.com/2024/04/03/briefing/gaza-aid-workers-biden-xi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/crosswords/daily-puzzle-2024-04-03.html
 **Wisconsin Voters Approve Bans on Private Aid for Election Offices**\
 `Wisconsin’s Republican-led Legislature proposed changing the State Constitution to restrict private funding and staffing of election offices.`\
 https://nytimes.com/2024/04/02/us/wisconsin-election-ballot-measures.html
-
-**U.S. Intelligence Warning to Moscow Named Specific Target of Attack**\
-`The C.I.A. told Russia that Islamic State terrorists were plotting an attack on Crocus City Hall, a concert venue.`\
-https://nytimes.com/2024/04/02/us/politics/moscow-attack-us-warning.html
 
