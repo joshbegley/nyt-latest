@@ -1,3 +1,7 @@
+**Who ‘Won’ Covid? It Depends How You Measure.**\
+`Four years after the pandemic began, we’re still learning basic facts about what happened.`\
+https://nytimes.com/2024/04/03/opinion/politics/covid-measurement-memory.html
+
 **A New Way of Looking at the Nude**\
 `The artists redefining portraits of the human body for a more inclusive age.`\
 https://nytimes.com/2024/04/03/t-magazine/contemporary-nude-art.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/magazine/nazi-helmet-inheritance-ethics.html
 **The national security adviser postpones a trip to Saudi Arabia after cracking his rib.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/the-national-security-adviser-postpones-a-trip-to-saudi-arabia-after-cracking-his-rib
-
-**She’s Shaking Up Classical Music While Confronting Illness**\
-`The pianist Alice Sara Ott, who makes her New York Philharmonic debut this week, is upending concert culture — and defying stereotypes about multiple sclerosis.`\
-https://nytimes.com/2024/04/03/arts/music/alice-sara-ott-multiple-sclerosis-new-york-philharmonic.html
 
