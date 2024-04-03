@@ -1,3 +1,7 @@
+**Many Democrats Are Worried Trump Will Beat Biden. This One Isn’t.**\
+`Simon Rosenberg has spent the past two years telling Democrats they need to calm down. His Biden-will-win prediction is his next big test.`\
+https://nytimes.com/2024/04/03/us/politics/simon-rosenberg-trump-biden.html
+
 **What’s in Our Queue? ‘The Iron Giant’ and More**\
 `I cover the Supreme Court for The New York Times. Here are five things I’ve been enjoying recently. `\
 https://nytimes.com/interactive/2024/04/03/arts/editors-recommendations-irongiant.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/style/pbs-brief-history-of-future-elon-musk-moma.
 **He’s on Death Row for Murders. Prison Workers Say He Should Be Spared.**\
 `Brian Dorsey, who pleaded guilty to murder in the 2006 killings of Sarah and Ben Bonnie, is scheduled to be executed on Tuesday unless Missouri’s governor or the courts step in.`\
 https://nytimes.com/2024/04/03/us/missouri-death-penalty-brian-dorsey.html
-
-**For Red State Holdouts Like Kansas, Is Expanding Medicaid Within Reach?**\
-`As Southern states reconsider Medicaid expansion, Gov. Laura Kelly of Kansas is pushing her own plan meant to appeal to conservatives. So far, success has been elusive.`\
-https://nytimes.com/2024/04/03/us/politics/kansas-medicaid-expansion.html
 
