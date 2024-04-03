@@ -1,3 +1,11 @@
+**George Santos May Not Be in the House, but He’s in Your Springtime Quiz**\
+`Pep up your entry into April with a politics quiz.`\
+https://nytimes.com/interactive/2024/04/03/opinion/columnists/spring-politics-quiz.html
+
+**Traders Scramble to Bet Against Trump Media**\
+`The parent company of Truth Social is a popular target for short sellers, even after they lost $100 million last month betting on a decline in the stock that didn’t come.`\
+https://nytimes.com/2024/04/03/business/trump-media-short-selling.html
+
 **What Janet Yellen Needs to Tell China’s Leaders**\
 `The economic course correction that the United States wants would also help average Chinese people.`\
 https://nytimes.com/2024/04/03/opinion/yellen-china-xi-trade.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009392655/world-central-kitchen
 **A Quick Skillet Turkey Dinner You’ll Make Over and Over**\
 `This easy Melissa Clark recipe, inspired by the zesty, pungent flavors of larb, turns unassuming ground turkey into a star.`\
 https://nytimes.com/2024/04/03/dining/ground-turkey-dinner-recipe.html
-
-**Everybody Wants a Piece of South Carolina’s $1.8 Billion Surplus. Is It Real?**\
-`Whom does it belongs to? How did it get there? Why? The more legislators dig, the murkier things seem to get.`\
-https://nytimes.com/2024/04/03/us/south-carolina-bank-account.html
-
-**Partying on a Tuesday With Elon Musk and His 3-Year-Old**\
-`Futurists and the future-curious, including Seth Meyers and Darren Aronofsky, attended a screening in New York City for a new PBS documentary.`\
-https://nytimes.com/2024/04/03/style/pbs-brief-history-of-future-elon-musk-moma.html
 
