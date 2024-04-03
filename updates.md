@@ -1,3 +1,15 @@
+**The national security adviser postpones a trip to Saudi Arabia after cracking his rib.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/the-national-security-adviser-postpones-a-trip-to-saudi-arabia-after-cracking-his-rib
+
+**She’s Shaking Up Classical Music While Confronting Illness**\
+`The pianist Alice Sara Ott, who makes her New York Philharmonic debut this week, is upending concert culture — and defying stereotypes about multiple sclerosis.`\
+https://nytimes.com/2024/04/03/arts/music/alice-sara-ott-multiple-sclerosis-new-york-philharmonic.html
+
+**Nebraska Republicans Renew Push for ‘Winner Take All’ Electoral System**\
+`In 2020, Joseph R. Biden Jr. won one electoral vote in a state that divides its votes by congressional district. Donald J. Trump has supported the stalled effort to change the system.`\
+https://nytimes.com/2024/04/03/us/politics/nebraska-republicans-winner-take-all.html
+
 **Nebraska Republicans Renew Push for ‘Winner Take All’ Electoral System**\
 `In 2020, Joseph R. Biden Jr. won one electoral vote in a state that divides its votes by congressional district. Donald J. Trump has supported the stalled effort to change the system.`\
 https://nytimes.com/2024/04/03/us/politics/nebraska-republicans-push-to-change-winner-take-all-electoral-votes.html
