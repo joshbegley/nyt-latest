@@ -1,3 +1,7 @@
+**Spring Holidays**\
+`Do you observe any religious holidays during the season?`\
+https://nytimes.com/2024/04/03/learning/spring-holidays.html
+
 **Frustrated Prosecutors Ask Trump Documents Judge to Act on Key Claim**\
 `The push for a quick decision on one of the former president’s most far-fetched claims is an unusual and risky move in a case Judge Aileen Cannon has allowed to become bogged down.`\
 https://nytimes.com/2024/04/03/us/politics/trump-documents-case-judge-cannon.html
