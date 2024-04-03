@@ -1,3 +1,7 @@
+**Israeli military takes responsibility for the strike that killed 7 aid workers.**\
+`By Ben Shpigel`\
+https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/israeli-military-takes-responsibility-for-the-strike-that-killed-7-aid-workers
+
 **In U.N. meeting, U.S., Britain and France do not join condemnation of Israeli strike on diplomatic compound.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/in-un-meeting-us-britain-and-france-do-not-join-condemnation-of-israeli-strike-on-diplomatic-compound
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/world/middleeast/iran-commanders-syria-strike-isr
 **Tougher Security Measures Are Causing Upset at Guantánamo Prison**\
 `An effort to unshackle a detainee during legal meetings has put a spotlight on simmering tensions in the Pentagon’s secretive prison.`\
 https://nytimes.com/2024/04/02/us/politics/guantanamo-security-prisoners.html
-
-**George Carlin’s Estate Reaches Settlement After A.I. Podcast**\
-`The estate had accused two podcast hosts of infringing on its copyrights by training an A.I. algorithm on five decades of Mr. Carlin’s work.`\
-https://nytimes.com/2024/04/02/arts/george-carlins-settlement-ai-podcast.html
 
