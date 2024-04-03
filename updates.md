@@ -1,3 +1,7 @@
+**Word of the Day: virtuoso**\
+`This word has appeared in 100 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/03/learning/word-of-the-day-virtuoso.html
+
 **Hualien County Is a Quiet, Scenic Tourist Destination**\
 `The area, known for a famous gorge and aquamarine waters, sits on several active faults.`\
 https://nytimes.com/2024/04/03/world/asia/hualien-taiwan-earthquake.html
