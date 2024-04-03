@@ -1,3 +1,7 @@
+**Word of the Day: virtuoso**\
+`This word has appeared in 100 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/03/learning/word-of-the-day-virtuoso.html
+
 **Hualien County Is a Quiet, Scenic Tourist Destination**\
 `The area, known for a famous gorge and aquamarine waters, sits on several active faults.`\
 https://nytimes.com/2024/04/03/world/asia/hualien-taiwan-earthquake.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/world/europe/hs2-uk-village.html
 **Trump and Biden Win Primaries, but Voters Express Their Discontent**\
 `Nikki Haley drew a notable slice of Republican voters in four states, while protest votes against the president over his support for Israel continued.`\
 https://nytimes.com/2024/04/02/us/politics/primary-elections-trump-biden.html
-
-**Biden denounces killing of aid workers, saying Israel has ‘not done enough to protect civilians.’**\
-`By Erica L. Green`\
-https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/biden-denounces-killing-of-aid-workers-saying-israel-has-not-done-enough-to-protect-civilians
 
