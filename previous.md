@@ -1,40 +1,9 @@
-**Another Poll Shows Biden Trailing in Key States**\
-`The findings from the Wall Street Journal’s poll of seven battleground states echo other recent surveys.`\
-https://nytimes.com/2024/04/03/us/politics/trump-biden-wsj-poll.html
+**Did One Guy Just Stop a Huge Cyberattack?**\
+`A Microsoft engineer noticed something was off on a piece of software he worked on. He soon discovered someone was probably trying to gain access to computers all over the world.`\
+https://nytimes.com/2024/04/03/technology/prevent-cyberattack-linux.html
 
-**Popcast (Deluxe): Listening to Beyoncé & Future (and the Discourse)**\
-`How conversation about very specific aspects of the new albums “Cowboy Carter” and “We Don’t Trust You” can obscure talk of their musical quality.`\
-https://nytimes.com/2024/04/03/arts/music/beyonce-future-drake-discourse-popcast-deluxe.html
+**100,000 Live Salmon Spilled Off a Truck. Most Landed in a Creek and Lived.**\
+`A tanker carrying young salmon crashed. But most of the fish flopped into a creek and “hit the water running,” a wildlife official said.`\
+https://nytimes.com/2024/04/03/us/salmon-truck-creek-oregon.html
 
-**Son of Dominican Republic Politician Is Fatally Shot in Houston, Police Say**\
-`Luis Alfredo Pacheco Rojas, 34, son of Alfredo Pacheco, the president of the Chamber of Deputies of the Dominican Republic, was killed on Monday in a drive-by shooting, the authorities said.`\
-https://nytimes.com/2024/04/03/us/luis-alfredo-pacheco-dominican-republic.html
-
-**Demetri Martin Confronts the Paradoxes of a Veteran Standup Career**\
-`In his new Netflix special, “Demetri Deconstructed,” he tries a more conceptual approach than the simplicity he was known for.`\
-https://nytimes.com/2024/04/03/arts/television/demetri-martin-netflix-demetri-deconstructed.html
-
-**George Santos May Not Be in the House, but He’s in Your Springtime Quiz**\
-`Pep up your entry into April with a politics quiz.`\
-https://nytimes.com/interactive/2024/04/03/opinion/columnists/spring-politics-quiz.html
-
-**Traders Are Betting Millions That Trump Media Will Tumble**\
-`The parent company of Truth Social is a popular target for short-sellers, even after they lost $100 million last month betting on a decline in the stock that didn’t come.`\
-https://nytimes.com/2024/04/03/business/trump-media-short-selling.html
-
-**What Janet Yellen Needs to Tell China’s Leaders**\
-`The economic course correction that the United States wants would also help average Chinese people.`\
-https://nytimes.com/2024/04/03/opinion/yellen-china-xi-trade.html
-
-**Many Democrats Are Worried Trump Will Beat Biden. This One Isn’t.**\
-`Simon Rosenberg has spent the past two years telling Democrats they need to calm down. His Biden-will-win prediction is his next big test.`\
-https://nytimes.com/2024/04/03/us/politics/simon-rosenberg-trump-biden.html
-
-**What’s in Our Queue? ‘The Iron Giant’ and More**\
-`I cover the Supreme Court for The New York Times. Here are five things I’ve been enjoying recently. `\
-https://nytimes.com/interactive/2024/04/03/arts/editors-recommendations-irongiant.html
-
-**Contradicting Trump, Ruby Garcia’s Sister Says He Never Contacted Family**\
-`The former president held up the death of a young Michigan woman at a campaign rally as an example of what he calls “migrant crime,” and claimed to have spoken to her family.`\
-https://nytimes.com/2024/04/03/us/politics/trump-ruby-garcia-migrant-crime.html
-
+**The killing of aid workers will not affect U.S. plans to build a pier in Gaza, the State Department said.**\
