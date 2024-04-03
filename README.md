@@ -1,3 +1,7 @@
+**A 15-Minute, Five-Ingredient Childhood Favorite**\
+`Priya Krishna’s headily spiced everyday dal is essential comfort food.`\
+https://nytimes.com/2024/04/03/dining/a-15-minute-five-ingredient-childhood-favorite.html
+
 **Israel’s military says U.N. observers in Lebanon were wounded by a buried explosive device.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/israels-military-says-un-observers-in-lebanon-were-wounded-by-a-buried-explosive-device
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/world/europe/nato-ukraine-funding.html
 **Christopher Durang, Playwright Who Mixed High Art and Low Humor, Dies at 75**\
 `In a career spanning more than 40 years, he established himself as a hyperliterate jester and an anarchic clown.`\
 https://nytimes.com/2024/04/03/theater/christopher-durang-dead.html
-
-**How a Snake Uses Its Sense of Smell**\
-`These reptiles and their social networks are understudied, according to researchers applying scents to different snakes to assess their behavior.`\
-https://nytimes.com/2024/04/03/science/how-a-snake-uses-its-sense-of-smell.html
 
