@@ -1,3 +1,7 @@
+**A New Way of Looking at the Nude**\
+`The artists redefining portraits of the human body for a more inclusive age.`\
+https://nytimes.com/2024/04/03/t-magazine/contemporary-nude-art.html
+
 **The Various Mr. Ripleys**\
 `“Ripley” on Netflix is the latest riff on the con-artist character the author Patricia Highsmith invented in the 1950s. Here’s a look at the earlier versions.`\
 https://nytimes.com/2024/04/03/arts/television/ripley-netflix-andrew-scott.html
