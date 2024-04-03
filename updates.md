@@ -1,3 +1,7 @@
+**Taiwan Quake Damages Buildings and a Highway in Hualien**\
+`Rescue efforts were centered on two buildings in the city, one of which appeared near collapse. Some roads to the region were cut off.`\
+https://nytimes.com/2024/04/03/world/asia/hualien-earthquake-damage-taiwan.html
+
 **Earthquake Damages Buildings and a Highway in Hualien**\
 `Rescue efforts were centered on two buildings in Hualien, one of which appeared near collapse. Some roads to the region were cut off.`\
 https://nytimes.com/2024/04/03/world/asia/hualien-earthquake-damage-taiwan.html
