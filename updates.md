@@ -1,3 +1,7 @@
+**Biden denounces killing of aid workers, saying Israel has ‘not done enough to protect civilians.’**\
+`By Erica L. Green`\
+https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/biden-denounces-killing-of-aid-workers-saying-israel-has-not-done-enough-to-protect-civilians
+
 **A Look at Taiwan’s Strongest Earthquakes**\
 `Earthquakes of similar intensity to the one that hit the island on Wednesday have caused large-scale death and destruction. Here’s a look back.`\
 https://nytimes.com/2024/04/02/world/asia/taiwan-earthquakes-history.html

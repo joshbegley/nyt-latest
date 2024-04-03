@@ -1,3 +1,7 @@
+**Biden denounces killing of aid workers, saying Israel has ‘not done enough to protect civilians.’**\
+`By Erica L. Green`\
+https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/biden-denounces-killing-of-aid-workers-saying-israel-has-not-done-enough-to-protect-civilians
+
 **A Look at Taiwan’s Strongest Earthquakes**\
 `Earthquakes of similar intensity to the one that hit the island on Wednesday have caused large-scale death and destruction. Here’s a look back.`\
 https://nytimes.com/2024/04/02/world/asia/taiwan-earthquakes-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/02/world/taiwan-earthquake-japan-tsunami/taiwan
 **Israeli military takes responsibility for the strike that killed 7 aid workers.**\
 `By Ben Shpigel`\
 https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/israeli-military-takes-responsibility-for-the-strike-that-killed-7-aid-workers
-
-**In U.N. meeting, U.S., Britain and France do not join condemnation of Israeli strike on diplomatic compound.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/in-un-meeting-us-britain-and-france-do-not-join-condemnation-of-israeli-strike-on-diplomatic-compound
 
