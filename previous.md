@@ -1,3 +1,7 @@
+**Judge Won’t Delay Trump’s Criminal Trial to Wait for Immunity Ruling**\
+`The former president had asked the judge to push back his Manhattan criminal trial, slated to begin April 15, until after the Supreme Court decides whether he is immune from prosecution.`\
+https://nytimes.com/2024/04/03/nyregion/trump-merchan-immunity-ruling.html
+
 **Thursday Briefing: Ukraine Lowers the Draft Age**\
 `Also, dozens remain trapped after the earthquake in Taiwan.`\
 https://nytimes.com/2024/04/03/world/asia/ukraine-draft-taiwan-quake-asia.html
@@ -9,10 +13,6 @@ https://nytimes.com/2024/04/03/business/dealbook/apollo-global-management-paramo
 **Patient With Transplanted Pig Kidney Leaves Hospital for Home**\
 `Richard Slayman, 62, is the first patient to receive a kidney from a genetically modified pig. Two weeks after the procedure, he was well enough to be discharged, doctors said.`\
 https://nytimes.com/2024/04/03/health/pig-kidney-transplant-slayman.html
-
-**Judge Won’t Delay Trump’s Criminal Trial to Wait for Immunity Ruling**\
-`The former president had asked the judge to push back his Manhattan criminal trial, slated to begin April 15, until after the Supreme Court decides whether he is immune from prosecution.`\
-https://nytimes.com/2024/04/03/nyregion/trump-merchan-immunity-ruling.html
 
 **They Had Just Delivered Tons of Food. Then Their Convoy Was Hit.**\
 `The deaths of World Central Kitchen workers pushed the number of aid employees killed during the war in Gaza to at least 196, according to the U.N. secretary general, António Guterres.`\
