@@ -1,3 +1,7 @@
+**Many Democrats Are Worried Trump Will Beat Biden. This One Isn’t.**\
+`Simon Rosenberg has spent the past two years telling Democrats they need to calm down. His Biden-will-win prediction is his next big test.`\
+https://nytimes.com/2024/04/03/us/politics/simon-rosenberg-trump-biden.html
+
 **What’s in Our Queue? ‘The Iron Giant’ and More**\
 `I cover the Supreme Court for The New York Times. Here are five things I’ve been enjoying recently. `\
 https://nytimes.com/interactive/2024/04/03/arts/editors-recommendations-irongiant.html
