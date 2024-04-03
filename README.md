@@ -1,3 +1,11 @@
+**Thursday Briefing: Ukraine Lowers the Draft Age**\
+`Also, dozens remain trapped after the earthquake in Taiwan.`\
+https://nytimes.com/2024/04/03/world/asia/ukraine-draft-taiwan-quake-asia.html
+
+**Apollo Valued Paramount at $26 Billion in Overture That Was Ignored**\
+`Paramount’s board of directors, which was already deep into talks with the media company Skydance, didn’t engage with the offer.`\
+https://nytimes.com/2024/04/03/business/dealbook/apollo-global-management-paramount.html
+
 **Patient With Transplanted Pig Kidney Leaves Hospital for Home**\
 `Richard Slayman, 62, is the first patient to receive a kidney from a genetically modified pig. Two weeks after the procedure, he was well enough to be discharged, doctors said.`\
 https://nytimes.com/2024/04/03/health/pig-kidney-transplant-slayman.html
