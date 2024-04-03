@@ -1,3 +1,7 @@
+**Interest Rates and the Election**\
+`The Fed is expected to cut rates soon. Doing so could pull it into a partisan fight.`\
+https://nytimes.com/2024/04/03/briefing/federal-reserve-election.html
+
 **Israel Takes Responsibility for Strike That Killed Aid Workers, and Tesla’s Sales Drop**\
 `Plus, the fight to see the eclipse.`\
 https://nytimes.com/2024/04/03/podcasts/israel-aid-strike-tesla.html
