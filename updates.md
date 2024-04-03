@@ -1,3 +1,11 @@
+**Review: Jonathan Tetelman Arrives at the Met in ‘La Rondine’**\
+`The tenor sang the role of Ruggero in a revival of Puccini’s opera that was performed with such restraint, it verged on overly careful.`\
+https://nytimes.com/2024/04/03/arts/music/la-rondine-met-opera-review.html
+
+**For Len Cariou, Dying Onstage Each Night Has Been ‘Invigorating’**\
+`In “Tuesdays With Morrie,” the 84-year-old actor was eager to tackle “a rich role in a show that asks, ‘What if despair and death are not the end?’”`\
+https://nytimes.com/2024/04/03/theater/len-cariou-tuesdays-with-morrie.html
+
 **Julia Stiles Wanted to Be Just Like Kat Stratford, Too**\
 `Twenty-five years after “10 Things I Hate About You” made her stand out among a generation of young stars, she’s stayed true to the ideals of her most famous character.`\
 https://nytimes.com/2024/04/03/movies/julia-stiles-10-things-interview.html
