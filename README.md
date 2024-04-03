@@ -1,3 +1,11 @@
+**Son of Dominican Republic Politician is Fatally Shot in Houston, Police Say**\
+`Luis Alfredo Pacheco Rojas, 34, son of Alfredo Pacheco, the president of the Chamber of Deputies of the Dominican Republic, was killed on Monday in a drive-by shooting, the authorities said.`\
+https://nytimes.com/2024/04/03/us/luis-alfredo-pacheco-dominican-republic.html
+
+**Demetri Martin Confronts the Paradoxes of a Veteran Standup Career**\
+`In his new Netflix special, “Demetri Deconstructed,” he tries a more conceptual approach than the simplicity he was known for.`\
+https://nytimes.com/2024/04/03/arts/television/demetri-martin-netflix-demetri-deconstructed.html
+
 **George Santos May Not Be in the House, but He’s in Your Springtime Quiz**\
 `Pep up your entry into April with a politics quiz.`\
 https://nytimes.com/interactive/2024/04/03/opinion/columnists/spring-politics-quiz.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/03/arts/music/lizzo-quit-music-instagram-video.html
 **Beyoncé Doesn’t Skimp on Flowers**\
 `In recent weeks, Beyoncé has sent elaborate all-white arrangements to musicians including Jack White, K. Michelle and Nicki Minaj.`\
 https://nytimes.com/2024/04/03/style/beyonce-cowboy-carter-flowers.html
-
-**Inside World Central Kitchen’s Work in Gaza**\
-`World Central Kitchen has suspended its relief efforts in Gaza after seven aid workers were killed in Israeli airstrikes on Monday. Videos reveal the challenges of food distribution in a territory under siege.`\
-https://nytimes.com/video/world/middleeast/100000009392655/world-central-kitchen-gaza-aid.html
-
-**A Quick Skillet Turkey Dinner You’ll Make Over and Over**\
-`This easy Melissa Clark recipe, inspired by the zesty, pungent flavors of larb, turns unassuming ground turkey into a star.`\
-https://nytimes.com/2024/04/03/dining/ground-turkey-dinner-recipe.html
 
