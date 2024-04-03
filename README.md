@@ -1,3 +1,7 @@
+**Frustrated Prosecutors Ask Trump Documents Judge to Act on Key Claim**\
+`The push for a quick decision on one of the former president’s most far-fetched claims is an unusual and risky move in a case Judge Aileen Cannon has allowed to become bogged down.`\
+https://nytimes.com/2024/04/03/us/politics/trump-documents-case-judge-cannon.html
+
 **Word of the Day: virtuoso**\
 `This word has appeared in 100 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/03/learning/word-of-the-day-virtuoso.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/world/europe/lithuania-russian-diaspora.html
 **An English Village Hollowed Out for a Train That May Never Come**\
 `When Britain cut back a planned high-speed rail line, some residents on the route were pleased. They’re less delighted with what happened next.`\
 https://nytimes.com/2024/04/03/world/europe/hs2-uk-village.html
-
-**Trump and Biden Win Primaries, but Voters Express Their Discontent**\
-`Nikki Haley drew a notable slice of Republican voters in four states, while protest votes against the president over his support for Israel continued.`\
-https://nytimes.com/2024/04/02/us/politics/primary-elections-trump-biden.html
 
