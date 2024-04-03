@@ -1,3 +1,7 @@
+**Dynamic Storm to Bring Heavy, Wet Snow and Strong Winds to New England**\
+`Snow in April is not uncommon, a meteorologist said, but this storm comes after a recent stretch of warmer spring weather across the Northeast.`\
+https://nytimes.com/2024/04/03/us/noreaster-storm-forecast-weather-vermont-nh.html
+
 **What Tesla’s Troubles Signal for the E.V. Revolution**\
 `The carmaker’s disappointing results point to slowing demand and a “sharp deterioration in growth” that extends beyond Elon Musk’s company.`\
 https://nytimes.com/2024/04/03/business/dealbook/tesla-musk-electric-vehicles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/world/europe/zelensky-ukraine-military-draft-age.
 **Two Shakespearean Triumphs in Paris, or a Plague on Both Their Houses?**\
 `New productions of “Macbeth” and “Hamlet” follow a French tradition of adapting familiar works. The results are innovative, and sometimes cryptic.`\
 https://nytimes.com/2024/04/03/theater/paris-macbeth-hamlet-shakespeare.html
-
-**Stephen Breyer: The Supreme Court I Served On Was Made Up of Friends**\
-`If justices who disagree so profoundly can do so respectfully, perhaps it is possible for our politically divided country to do the same.`\
-https://nytimes.com/2024/04/03/opinion/stephen-breyer-friendship-court.html
 
