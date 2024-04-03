@@ -1,3 +1,11 @@
+**#MeToo Stalled in France. This Actress Might Be Changing Things.**\
+`Judith Godrèche says the abuse of children and women is stitched into the fabric of the French movie industry. This time, the country seems to be listening more closely.`\
+https://nytimes.com/2024/04/03/movies/judith-godreche-metoo-abuse-france.html
+
+**Lauren Boebert Has Blood Clot Removed After Hospitalization for Leg Swelling**\
+`The far-right firebrand from Colorado, who is part of a slim Republican majority in the House, is expected to make a full recovery, her campaign said.`\
+https://nytimes.com/2024/04/03/us/politics/lauren-boebert-hospitalized-blood-clot.html
+
 **A 15-Minute, Five-Ingredient Childhood Favorite**\
 `Priya Krishna’s headily spiced everyday dal is essential comfort food.`\
 https://nytimes.com/2024/04/03/dining/a-15-minute-five-ingredient-childhood-favorite.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/03/us/california-fire-season.html
 **How Can Our Friends Choose a Realtor Other Than My Husband?**\
 `A reader is angered by friends who list their homes with other real estate brokers — sometimes without giving his husband a chance to make his case.`\
 https://nytimes.com/2024/04/03/style/mixing-business-and-friendship.html
-
-**NATO Weighs Taking Over U.S.-Led Group Directing Ukraine Military Aid**\
-`The proposal faces several obstacles, including whether all members would agree to the changes. But the alliance is worried about wavering American support for Kyiv.`\
-https://nytimes.com/2024/04/03/world/europe/nato-ukraine-funding.html
-
-**Christopher Durang, Playwright Who Mixed High Art and Low Humor, Dies at 75**\
-`In a career spanning more than 40 years, he established himself as a hyperliterate jester and an anarchic clown.`\
-https://nytimes.com/2024/04/03/theater/christopher-durang-dead.html
 
