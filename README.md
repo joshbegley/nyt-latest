@@ -1,3 +1,11 @@
+**He’s on Death Row for Murders. Prison Workers Say He Should Be Spared.**\
+`Brian Dorsey, who pleaded guilty to murder in the 2006 killings of Sarah and Ben Bonnie, is scheduled to be executed on Tuesday unless Missouri’s governor or the courts step in.`\
+https://nytimes.com/2024/04/03/us/missouri-death-penalty-brian-dorsey.html
+
+**For Red State Holdouts Like Kansas, Is Expanding Medicaid Within Reach?**\
+`As Southern states reconsider Medicaid expansion, Gov. Laura Kelly of Kansas is pushing her own plan meant to appeal to conservatives. So far, success has been elusive.`\
+https://nytimes.com/2024/04/03/us/politics/kansas-medicaid-expansion.html
+
 **Met Opera Taps German Conductor as Next Chorus Master**\
 `Tilman Michael, who leads the Frankfurt Opera’s chorus, will succeed the veteran conductor Donald Palumbo, who steps down this season after 17 years.`\
 https://nytimes.com/2024/04/03/arts/music/tilman-michael-chorus-master-metropolitan-opera.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/03/business/trump-media-insider-trading-guilty.html
 **At New Directors/New Films, the Kids Are Not All Right (Nobody Really Is)**\
 `This year’s edition of the festival tends toward familiar art-house fare, but there are standouts in which characters young and old grapple with childhood.`\
 https://nytimes.com/2024/04/03/movies/new-directors-new-films.html
-
-**Trump and R.N.C. Announce a $65.6 Million Haul in March**\
-`The new numbers help the former president narrow the financial gap with President Biden, who had amassed $155 million with the Democratic Party at the end of February.`\
-https://nytimes.com/2024/04/03/us/politics/trump-rnc-fundraising-march.html
-
-**Who ‘Won’ Covid? It Depends How You Measure.**\
-`Four years after the pandemic began, we’re still learning basic facts about what happened.`\
-https://nytimes.com/2024/04/03/opinion/politics/covid-measurement-memory.html
 
