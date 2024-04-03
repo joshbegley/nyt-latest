@@ -12,7 +12,7 @@ https://nytimes.com/2024/04/02/us/politics/trump-abortion-florida.html
 
 **Map: 7.4-Magnitude Earthquake Strikes Taiwan**\
 `View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2024/04/02/world/asia/02wea-quake-tracker-taiwan.html
+https://nytimes.com/interactive/2024/04/02/world/asia/map-taiwan-earthquake-hualien.html
 
 **Here’s what you need to know about the earthquake.**\
 `The magnitude 7.4 quake was centered off the coast of Hualien on the island’s east coast.`\
