@@ -1,3 +1,7 @@
+**Inflation Cools in Eurozone, Nearing Central Bank’s Target**\
+`Prices in the countries that use the euro rose 2.4 percent in the year through March, coming closer to the European Central Bank’s 2 percent inflation target.`\
+https://nytimes.com/2024/04/03/business/eurozone-inflation-germany.html
+
 **What We Know About the Earthquake in Taiwan**\
 `The quake set off aftershocks and damaged dozens of buildings, killing nine people and leaving many injured or trapped.`\
 https://nytimes.com/2024/04/03/world/asia/taiwan-earthquake-aftermath.html
