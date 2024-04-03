@@ -1,3 +1,7 @@
+**NASA Picks 3 Companies to Help Astronauts Drive Around the Moon**\
+`The agency’s future moon buggies will reach speeds of 9.3 miles per hour and will be capable of self-driving.`\
+https://nytimes.com/2024/04/03/science/moon-nasa-lunar-terrain-vehicle.html
+
 **Canadian Politicians Were Targeted by China in 2021, Report Says**\
 `Lawmakers testified at a public hearing on foreign interference that they had been caught in China’s cross hairs after criticizing it over human rights.`\
 https://nytimes.com/2024/04/03/world/americas/canada-china-2021-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/us/politics/biden-israel-gaza.html
 **Food Aid for Gazans Was Sent Back to Cyprus**\
 `Also, Ukraine lowered its draft age. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/04/03/briefing/food-aid-gaza-ukraine-draft-age.html
-
-**The Coming Anarchy in Gaza**\
-`Aid workers have been among the last people holding the place together.`\
-https://nytimes.com/live/2024/04/02/opinion/thepoint/gaza-aid-israel-anarchy
 
