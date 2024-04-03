@@ -3,7 +3,7 @@
 https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/biden-denounces-killing-of-aid-workers-saying-israel-has-not-done-enough-to-protect-civilians
 
 **A Look at Taiwan’s Strongest Earthquakes**\
-`Earthquakes of similar intensity to the one that hit the island on Wednesday have caused large-scale death and destruction. Here’s a look back.`\
+`Earthquakes of similar intensity to the one that hit the island on Wednesday have caused large-scale death and destruction.`\
 https://nytimes.com/2024/04/02/world/asia/taiwan-earthquakes-history.html
 
 **The U.S. Is Rebuilding a Legal Pathway for Refugees. The Election Could Change That.**\
