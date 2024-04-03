@@ -1,3 +1,11 @@
+**The Various Mr. Ripleys**\
+`“Ripley” on Netflix is the latest riff on the con-artist character the author Patricia Highsmith invented in the 1950s. Here’s a look at the earlier versions.`\
+https://nytimes.com/2024/04/03/arts/television/ripley-netflix-andrew-scott.html
+
+**Fed Chair Awaits More Inflation Cooling as Path Proves ‘Bumpy’**\
+`Jerome H. Powell, the Federal Reserve chair, said officials can take their time cutting rates. He also underscored the Fed’s independence as election season heats up.`\
+https://nytimes.com/2024/04/03/business/economy/fed-chair-awaits-more-inflation-cooling-as-path-proves-bumpy.html
+
 **Review: Jonathan Tetelman Arrives at the Met in ‘La Rondine’**\
 `The tenor sang the role of Ruggero in a revival of Puccini’s opera that was performed with such restraint, it verged on overly careful.`\
 https://nytimes.com/2024/04/03/arts/music/la-rondine-met-opera-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/03/arts/music/alice-sara-ott-multiple-sclerosis-new-
 **Nebraska Republicans Renew Push for ‘Winner Take All’ Electoral System**\
 `In 2020, Joseph R. Biden Jr. won one electoral vote in a state that divides its votes by congressional district. Donald J. Trump has supported the stalled effort to change the system.`\
 https://nytimes.com/2024/04/03/us/politics/nebraska-republicans-winner-take-all.html
-
-**#MeToo Stalled in France. This Actress Might Be Changing Things.**\
-`Judith Godrèche says the abuse of children and women is stitched into the fabric of the French movie industry. This time, the country seems to be listening more closely.`\
-https://nytimes.com/2024/04/03/movies/judith-godreche-metoo-abuse-france.html
-
-**Lauren Boebert Has Blood Clot Removed After Hospitalization for Leg Swelling**\
-`The far-right firebrand from Colorado, who is part of a slim Republican majority in the House, is expected to make a full recovery, her campaign said.`\
-https://nytimes.com/2024/04/03/us/politics/lauren-boebert-hospitalized-blood-clot.html
 
