@@ -1,3 +1,7 @@
+**Canadian Politicians Were Targeted by China in 2021, Report Says**\
+`Lawmakers testified at a public hearing on foreign interference that they had been caught in China’s cross hairs after criticizing it over human rights.`\
+https://nytimes.com/2024/04/03/world/americas/canada-china-2021-election.html
+
 **The Necessary Discomfort of Jerrod Carmichael’s ‘Reality’**\
 `Jerrod Carmichael’s stock in trade is the exploitation of the awkward.`\
 https://nytimes.com/2024/04/03/opinion/jerrod-carmichael-reality-show.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/briefing/food-aid-gaza-ukraine-draft-age.html
 **The Coming Anarchy in Gaza**\
 `Aid workers have been among the last people holding the place together.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/gaza-aid-israel-anarchy
-
-**How Biden’s White House Gathering for Ramadan Unraveled Over Gaza**\
-`Some Muslim community leaders said it would be wrong to attend an iftar meal with President Biden while Gaza is under siege.`\
-https://nytimes.com/2024/04/03/us/politics/biden-white-house-ramadan-israel-gaza.html
 
