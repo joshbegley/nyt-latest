@@ -1,3 +1,11 @@
+**The Coming Anarchy in Gaza**\
+`Aid workers have been among the last people holding the place together.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/gaza-aid-israel-anarchy
+
+**How Biden’s White House Gathering for Ramadan Unraveled Over Gaza**\
+`Some Muslim community leaders said it would be wrong to attend an iftar meal with President Biden while Gaza is under siege.`\
+https://nytimes.com/2024/04/03/us/politics/biden-white-house-ramadan-israel-gaza.html
+
 **Can Oats Really Help You Lose Weight?**\
 `A viral TikTok trend touts “Oatzempic” as a weight-loss hack. We asked the experts if there’s anything to it.`\
 https://nytimes.com/2024/04/03/well/eat/oats-ozempic-tiktok.html

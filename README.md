@@ -1,3 +1,7 @@
+**Food Aid for Gazans Was Sent Back to Cyprus**\
+`Also, Ukraine lowered its draft age. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/04/03/briefing/food-aid-gaza-ukraine-draft-age.html
+
 **The Coming Anarchy in Gaza**\
 `Aid workers have been among the last people holding the place together.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/gaza-aid-israel-anarchy
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/business/dealbook/apollo-global-management-paramo
 **Patient With Transplanted Pig Kidney Leaves Hospital for Home**\
 `Richard Slayman, 62, is the first patient to receive a kidney from a genetically modified pig. Two weeks after the procedure, he was well enough to be discharged, doctors said.`\
 https://nytimes.com/2024/04/03/health/pig-kidney-transplant-slayman.html
-
-**They Had Just Delivered Tons of Food. Then Their Convoy Was Hit.**\
-`The deaths of World Central Kitchen workers pushed the number of aid employees killed during the war in Gaza to at least 196, according to the U.N. secretary general, António Guterres.`\
-https://nytimes.com/2024/04/03/world/middleeast/israel-world-central-kitchen-gaza.html
 
