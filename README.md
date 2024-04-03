@@ -1,4 +1,4 @@
-**Aftermath of the Earthquake in Taiwan in Photos**\
+**The Taiwan Earthquake’s Aftermath in Photos**\
 `TK summary`\
 https://nytimes.com/2024/04/03/world/asia/aftermath-of-the-earthquake-in-taiwan-in-photos.html
 
