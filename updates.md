@@ -1,3 +1,11 @@
+**The Various Mr. Ripleys**\
+`“Ripley” on Netflix is the latest riff on the con-artist character the author Patricia Highsmith invented in the 1950s. Here’s a look at the earlier versions.`\
+https://nytimes.com/2024/04/03/arts/television/ripley-netflix-andrew-scott.html
+
+**Fed Chair Awaits More Inflation Cooling as Path Proves ‘Bumpy’**\
+`Jerome H. Powell, the Federal Reserve chair, said officials can take their time cutting rates. He also underscored the Fed’s independence as election season heats up.`\
+https://nytimes.com/2024/04/03/business/economy/fed-chair-awaits-more-inflation-cooling-as-path-proves-bumpy.html
+
 **Review: Jonathan Tetelman Arrives at the Met in ‘La Rondine’**\
 `The tenor sang the role of Ruggero in a revival of Puccini’s opera that was performed with such restraint, it verged on overly careful.`\
 https://nytimes.com/2024/04/03/arts/music/la-rondine-met-opera-review.html
