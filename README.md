@@ -4,7 +4,7 @@ https://nytimes.com/interactive/2024/04/02/world/02wea-quake-tracker-philippine-
 
 **Strong Quake Strikes Taiwan, Setting Off Tsunami Warning in Japan**\
 `The magnitude 7.4 quake was centered off the coast of Hualien on the island’s east coast.`\
-https://nytimes.com/2024/04/02/world/asia/taiwan-earthquake.html
+https://nytimes.com/live/2024/04/02/world/taiwan-earthquake-japan-tsunami/taiwan-earthquake
 
 **Israeli military takes responsibility for the strike that killed 7 aid workers.**\
 `By Ben Shpigel`\
