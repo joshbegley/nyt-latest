@@ -1,3 +1,35 @@
+**New York Prisoners, Denied a Solar Eclipse Viewing, Sue the State**\
+`Six men at an upstate New York prison said that the eclipse has religious significance and that a statewide lockdown order preventing them from watching it violated their rights.`\
+https://nytimes.com/2024/04/03/nyregion/ny-prisons-solar-eclipse-lawsuit.html
+
+**The M.T.A. Wants Marathon Runners to Pay Bridge Tolls, Too**\
+`The New York City Marathon is being asked to pay roughly $750,000 a year to make up for toll revenue lost while the Verrazzano-Narrows Bridge is closed.`\
+https://nytimes.com/2024/04/03/nyregion/marathon-tolls-mta.html
+
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/03/crosswords/connections-companion.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/03/crosswords/wordle-review.html
+
+**The ‘Awkwardness and Uncertainty’ of Unregulated Sperm Donation**\
+`A New York Times documentary follows sperm donors and recipients who operate outside of the fertility industry.`\
+https://nytimes.com/2024/04/03/insider/spermworld-documentary.html
+
+**Psychedelic Rock and Tammy’s Lunch Box: A Small City’s Big Eclipse Plans**\
+`Let the big cities have their eclipse mega-events. In Plattsburgh, N.Y., success looks different for everyone stopping to look up.`\
+https://nytimes.com/2024/04/03/nyregion/solar-eclipse-plattsburgh-ny.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/03/crosswords/spelling-bee-forum.html
+
+**Taiwan’s preparedness has evolved in response to past quakes.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/04/02/world/taiwan-earthquake-japan-tsunami/taiwans-preparedness-has-evolved-in-response-to-past-quakes
+
 **Storm Leaves Trail of Destruction in the Midwest**\
 `Severe weather toppled camper and trees in Ohio and Kentucky as parts of West Virginia were placed under tornado watch.`\
 https://nytimes.com/video/us/100000009394319/tornado-warning-weather-forecast.html
