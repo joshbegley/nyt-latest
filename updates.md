@@ -1,3 +1,7 @@
+**A Look at Taiwan’s Strongest Earthquakes**\
+`Earthquakes of similar intensity to the one that hit the island on Wednesday have caused large-scale death and destruction. Here’s a look back.`\
+https://nytimes.com/2024/04/02/world/asia/taiwan-earthquakes-history.html
+
 **The U.S. Is Rebuilding a Legal Pathway for Refugees. The Election Could Change That.**\
 `President Biden is restoring resources and staffing for the refugee program, which was gutted during the Trump administration.`\
 https://nytimes.com/2024/04/02/us/politics/legal-pathway-refugees-election.html
