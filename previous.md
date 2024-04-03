@@ -1,9 +1,13 @@
+**Trump and Biden Win Primaries, but Voters Express Their Discontent**\
+`Nikki Haley drew a notable slice of Republican voters in four states, while protest votes against the president over his support for Israel continued.`\
+https://nytimes.com/2024/04/02/us/politics/primary-elections-trump-biden.html
+
 **Biden denounces killing of aid workers, saying Israel has ‘not done enough to protect civilians.’**\
 `By Erica L. Green`\
 https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/biden-denounces-killing-of-aid-workers-saying-israel-has-not-done-enough-to-protect-civilians
 
 **A Look at Taiwan’s Strongest Earthquakes**\
-`Earthquakes of similar intensity to the one that hit the island on Wednesday have caused large-scale death and destruction. Here’s a look back.`\
+`Earthquakes of similar intensity to the one that hit the island on Wednesday have caused large-scale death and destruction.`\
 https://nytimes.com/2024/04/02/world/asia/taiwan-earthquakes-history.html
 
 **The U.S. Is Rebuilding a Legal Pathway for Refugees. The Election Could Change That.**\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/02/world/asia/map-taiwan-earthquake-hual
 **Here’s what you need to know about the earthquake.**\
 `The magnitude 7.4 quake was centered off the coast of Hualien on the island’s east coast.`\
 https://nytimes.com/live/2024/04/02/world/taiwan-earthquake-japan-tsunami/taiwan-earthquake
-
-**Israeli military takes responsibility for the strike that killed 7 aid workers.**\
-`By Ben Shpigel`\
-https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/israeli-military-takes-responsibility-for-the-strike-that-killed-7-aid-workers
 

@@ -1,3 +1,11 @@
+**Trump and Biden Win Primaries, but Voters Express Their Discontent**\
+`Nikki Haley drew a notable slice of Republican voters in four states, while protest votes against the president over his support for Israel continued.`\
+https://nytimes.com/2024/04/02/us/politics/primary-elections-trump-biden.html
+
+**A Look at Taiwan’s Strongest Earthquakes**\
+`Earthquakes of similar intensity to the one that hit the island on Wednesday have caused large-scale death and destruction.`\
+https://nytimes.com/2024/04/02/world/asia/taiwan-earthquakes-history.html
+
 **Biden denounces killing of aid workers, saying Israel has ‘not done enough to protect civilians.’**\
 `By Erica L. Green`\
 https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/biden-denounces-killing-of-aid-workers-saying-israel-has-not-done-enough-to-protect-civilians
