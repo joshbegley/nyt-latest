@@ -1,40 +1,40 @@
-**03mideast-crisis**\
-`Israeli Military Takes Responsibility for Strike That Killed 7 Aid Workers`\
-https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news
+**Stephen Breyer: The Supreme Court I Served On Was Made Up of Friends**\
+`If justices who disagree so profoundly can do so respectfully, perhaps it is possible for our politically divided country to do the same.`\
+https://nytimes.com/2024/04/03/opinion/stephen-breyer-friendship-court.html
 
-**Ugandan Court Upholds Draconian Anti-Gay Law**\
-`The law, which includes the death penalty as a punishment in some cases, has been strongly condemned, including by the United States.`\
-https://nytimes.com/2024/04/03/world/africa/uganda-anti-gay-law.html
+**Trump’s Backers Are Determined Not to Blow It This Time Around**\
+`The right-wing networks Trump can count on are ready for action.`\
+https://nytimes.com/2024/04/03/opinion/leonard-leo-heritage-trump-2025.html
 
-**Powerful Earthquake Shakes Taiwan**\
-`The quake, with a magnitude of at least 7.4, caused landslides and severe damage to some buildings.`\
-https://nytimes.com/video/world/asia/100000009394335/taiwan-earthquake-hualien-landslide.html
+**Disney’s Annual Meeting Will Include a Thrill Ride**\
+`A nasty and expensive fight over board seats will come to a climax Wednesday when shareholders vote on Nelson Peltz’s bid for influence.`\
+https://nytimes.com/2024/04/03/business/disney-peltz-trian-proxy-vote.html
 
-**How to Make Bubble Tea**\
-`A winning essay by Hanyi Zhou, age 14.`\
-https://nytimes.com/2024/04/03/learning/how-to-make-bubble-tea.html
+**Switching From iPhone to Android Is Easy. It’s the Aftermath That Stings.**\
+`Even if you manage to ditch your iPhone, Apple’s hooks are still there.`\
+https://nytimes.com/2024/04/03/technology/personaltech/iphone-android-ios-apple.html
 
-**How to Make the Perfect Sandwich**\
-`A winning essay by Jackson DeNichilo, age 15.`\
-https://nytimes.com/2024/04/03/learning/how-to-make-the-perfect-sandwich.html
+**How Beagles and a Fever Dream Made Rebel Wilson a Star**\
+`The actress, known for roles in the “Pitch Perfect” movies, gets vulnerable about her weight loss, sexuality and money in her new memoir, “Rebel Rising.”`\
+https://nytimes.com/2024/04/03/books/rebel-wilson-memoir.html
 
-**How to Wrap a Dumpling**\
-`A winning essay by Jacob Wang, age 16.`\
-https://nytimes.com/2024/04/03/learning/how-to-wrap-a-dumpling.html
+**Scotland’s Censorship Experiment Threatens Free Expression**\
+`A new Scottish law criminalizes public speech deemed “insulting” to a protected group.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/scotlands-censorship-experiment-threatens-free-expression
 
-**How to Conduct a Podcast Interview**\
-`A winning essay by Matthew Jeong, age 17.`\
-https://nytimes.com/2024/04/03/learning/how-to-conduct-a-podcast-interview.html
+**Dengue Fever Is Surging and We’re Looking the Other Way**\
+`Without urgent reforms to how we educate travelers, doctors, nurses and others, we are doomed to miss textbook dengue cases.`\
+https://nytimes.com/2024/04/03/opinion/dengue-fever-latin-america-travel.html
 
-**What Can You Make or Fix With Your Hands?**\
-`Did you know that manual activities like cooking, making art, playing a musical instrument and building things can be good for your brain?`\
-https://nytimes.com/2024/04/03/learning/what-can-you-make-or-fix-with-your-hands.html
+**Is Your Garden Missing Something? You May Need a Large Pot (or Several).**\
+`An imposing work of pottery can be as important to the design of a landscape as any well-placed plant. And no, we’re not talking about flower pots.`\
+https://nytimes.com/2024/04/03/realestate/garden-pottery-ceramics.html
 
-**Spring Holidays**\
-`Do you observe any religious holidays during the season?`\
-https://nytimes.com/2024/04/03/learning/spring-holidays.html
+**Why Does Steam Float Over the Streets of Manhattan?**\
+`The orange cylinders that funnel hot vapor up and away serve an important purpose in New York City’s steam system.`\
+https://nytimes.com/2024/04/03/nyregion/steam-funnels-con-edison-nyc.html
 
-**New York Prisoners, Denied a Solar Eclipse Viewing, Sue the State**\
-`Six men at an upstate New York prison said that the eclipse has religious significance and that a statewide lockdown order preventing them from watching it violated their rights.`\
-https://nytimes.com/2024/04/03/nyregion/ny-prisons-solar-eclipse-lawsuit.html
+**What I Saw Working at The National Enquirer During Donald Trump’s Rise**\
+`Inside the notorious “catch and kill” campaign that now stands at the heart of the former president’s legal trial.`\
+https://nytimes.com/2024/04/03/magazine/national-enquirer-trump-lachlan-cartwright.html
 
