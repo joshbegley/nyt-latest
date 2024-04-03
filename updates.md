@@ -1,3 +1,7 @@
+**I Inherited a Nazi Helmet From My Husband. What Should I Do With It?**\
+`The magazine’s Ethicist columnist on what to do with a politically charged heirloom.`\
+https://nytimes.com/2024/04/03/magazine/nazi-helmet-inheritance-ethics.html
+
 **The national security adviser postpones a trip to Saudi Arabia after cracking his rib.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/the-national-security-adviser-postpones-a-trip-to-saudi-arabia-after-cracking-his-rib

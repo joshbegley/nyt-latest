@@ -1,3 +1,7 @@
+**I Inherited a Nazi Helmet From My Husband. What Should I Do With It?**\
+`The magazine’s Ethicist columnist on what to do with a politically charged heirloom.`\
+https://nytimes.com/2024/04/03/magazine/nazi-helmet-inheritance-ethics.html
+
 **The national security adviser postpones a trip to Saudi Arabia after cracking his rib.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/the-national-security-adviser-postpones-a-trip-to-saudi-arabia-after-cracking-his-rib
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/arts/design/whitney-museum-curator-conaty.html
 **World Central Kitchen sent ships with hundreds of tons of food back to Cyprus.**\
 `Humanitarian agencies say they are being more cautious about delivering aid, and at least two have suspended operations.`\
 https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/aid-convoy-israel-world-central-kitchen
-
-**Christopher Durang, the Surrealist of Snark**\
-`In works like “Vanya and Sonia and Masha and Spike,” the playwright would force you to laugh, not to dull the pain but to hone it.`\
-https://nytimes.com/2024/04/03/theater/christopher-durang-playwright-appraisal.html
 
