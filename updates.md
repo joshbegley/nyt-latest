@@ -1,3 +1,7 @@
+**An Ozempic Relative Slowed Parkinson’s Disease in a Small Study**\
+`The trial lasted only one year but offered embers of hope to some experts.`\
+https://nytimes.com/2024/04/03/health/parkinsons-ozempic-glp-1.html
+
 **Thursday Briefing: Ukraine Lowers the Draft Age**\
 `Also, dozens remain trapped after the earthquake in Taiwan.`\
 https://nytimes.com/2024/04/03/world/asia/ukraine-draft-taiwan-quake-asia.html

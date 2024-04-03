@@ -1,3 +1,7 @@
+**An Ozempic Relative Slowed Parkinson’s Disease in a Small Study**\
+`The trial lasted only one year but offered embers of hope to some experts.`\
+https://nytimes.com/2024/04/03/health/parkinsons-ozempic-glp-1.html
+
 **Judge Won’t Delay Trump’s Criminal Trial to Wait for Immunity Ruling**\
 `The former president had asked the judge to push back his Manhattan criminal trial, slated to begin April 15, until after the Supreme Court decides whether he is immune from prosecution.`\
 https://nytimes.com/2024/04/03/nyregion/trump-merchan-immunity-ruling.html
