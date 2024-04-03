@@ -1,3 +1,11 @@
+**#MeToo Stalled in France. This Actress Might Be Changing Things.**\
+`Judith Godrèche says the abuse of children and women is stitched into the fabric of the French movie industry. This time, the country seems to be listening more closely.`\
+https://nytimes.com/2024/04/03/movies/judith-godreche-metoo-abuse-france.html
+
+**Lauren Boebert Has Blood Clot Removed After Hospitalization for Leg Swelling**\
+`The far-right firebrand from Colorado, who is part of a slim Republican majority in the House, is expected to make a full recovery, her campaign said.`\
+https://nytimes.com/2024/04/03/us/politics/lauren-boebert-hospitalized-blood-clot.html
+
 **A 15-Minute, Five-Ingredient Childhood Favorite**\
 `Priya Krishna’s headily spiced everyday dal is essential comfort food.`\
 https://nytimes.com/2024/04/03/dining/a-15-minute-five-ingredient-childhood-favorite.html
