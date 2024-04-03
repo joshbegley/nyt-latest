@@ -1,3 +1,7 @@
+**Israeli military takes responsibility for the strike that killed 7 aid workers.**\
+`By Ben Shpigel`\
+https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/israeli-military-takes-responsibility-for-the-strike-that-killed-7-aid-workers
+
 **In U.N. meeting, U.S., Britain and France do not join condemnation of Israeli strike on diplomatic compound.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/in-un-meeting-us-britain-and-france-do-not-join-condemnation-of-israeli-strike-on-diplomatic-compound
