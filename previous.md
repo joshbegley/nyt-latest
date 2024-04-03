@@ -1,3 +1,7 @@
+**Israel Takes Responsibility for Strike That Killed Aid Workers, and Tesla’s Sales Drop**\
+`Plus, the fight to see the eclipse.`\
+https://nytimes.com/2024/04/03/podcasts/israel-aid-strike-tesla.html
+
 **The Accidental Tax Cutter in Chief**\
 `President Biden says he wants to rake in more money from corporations and high earners. But so far, he has cut more taxes than he’s raised.`\
 https://nytimes.com/2024/04/03/podcasts/the-daily/biden-tax-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/business/disney-peltz-trian-proxy-vote.html
 **Switching From iPhone to Android Is Easy. It’s the Aftermath That Stings.**\
 `Even if you manage to ditch your iPhone, Apple’s hooks are still there.`\
 https://nytimes.com/2024/04/03/technology/personaltech/iphone-android-ios-apple.html
-
-**How Beagles and a Fever Dream Made Rebel Wilson a Star**\
-`The actress, known for roles in the “Pitch Perfect” movies, gets vulnerable about her weight loss, sexuality and money in her new memoir, “Rebel Rising.”`\
-https://nytimes.com/2024/04/03/books/rebel-wilson-memoir.html
 
