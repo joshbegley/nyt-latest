@@ -1,3 +1,7 @@
+**A Look at Taiwan’s Strongest Earthquakes**\
+`Earthquakes of similar intensity to the one that hit the island on Wednesday have caused large-scale death and destruction. Here’s a look back.`\
+https://nytimes.com/2024/04/02/world/asia/taiwan-earthquakes-history.html
+
 **The U.S. Is Rebuilding a Legal Pathway for Refugees. The Election Could Change That.**\
 `President Biden is restoring resources and staffing for the refugee program, which was gutted during the Trump administration.`\
 https://nytimes.com/2024/04/02/us/politics/legal-pathway-refugees-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/israeli-mil
 **In U.N. meeting, U.S., Britain and France do not join condemnation of Israeli strike on diplomatic compound.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/in-un-meeting-us-britain-and-france-do-not-join-condemnation-of-israeli-strike-on-diplomatic-compound
-
-**John Barth, a Novelist Who Found Possibility in a ‘Used-Up’ Form**\
-`By merrily using fiction to dissect itself, he was at the vanguard of a movement that defined a postwar American style.`\
-https://nytimes.com/2024/04/02/books/review/john-barth-appreciation.html
 
