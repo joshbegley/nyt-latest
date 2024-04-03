@@ -1,3 +1,7 @@
+**Patient With Transplanted Pig Kidney Leaves Hospital for Home**\
+`Richard Slayman, 62, is the first patient to receive a kidney from a genetically modified pig. Two weeks after the procedure, he was well enough to be discharged, doctors said.`\
+https://nytimes.com/2024/04/03/health/pig-kidney-transplant-slayman.html
+
 **Judge Won’t Delay Trump’s Criminal Trial to Wait for Immunity Ruling**\
 `The former president had asked the judge to push back his Manhattan criminal trial, slated to begin April 15, until after the Supreme Court decides whether he is immune from prosecution.`\
 https://nytimes.com/2024/04/03/nyregion/trump-merchan-immunity-ruling.html
