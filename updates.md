@@ -1,3 +1,7 @@
+**Who ‘Won’ Covid? It Depends How You Measure.**\
+`Four years after the pandemic began, we’re still learning basic facts about what happened.`\
+https://nytimes.com/2024/04/03/opinion/politics/covid-measurement-memory.html
+
 **A New Way of Looking at the Nude**\
 `The artists redefining portraits of the human body for a more inclusive age.`\
 https://nytimes.com/2024/04/03/t-magazine/contemporary-nude-art.html
