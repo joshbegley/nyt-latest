@@ -1,3 +1,7 @@
+**Two Shakespearean Triumphs in Paris, or a Plague on Both Their Houses?**\
+`New productions of “Macbeth” and “Hamlet” follow a French tradition of adapting familiar works. The results are innovative, and sometimes cryptic.`\
+https://nytimes.com/2024/04/03/theater/paris-macbeth-hamlet-shakespeare.html
+
 **Stephen Breyer: The Supreme Court I Served On Was Made Up of Friends**\
 `If justices who disagree so profoundly can do so respectfully, perhaps it is possible for our politically divided country to do the same.`\
 https://nytimes.com/2024/04/03/opinion/stephen-breyer-friendship-court.html
