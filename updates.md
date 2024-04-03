@@ -1,3 +1,7 @@
+**What Janet Yellen Needs to Tell China’s Leaders**\
+`The economic course correction that the United States wants would also help average Chinese people.`\
+https://nytimes.com/2024/04/03/opinion/yellen-china-xi-trade.html
+
 **Many Democrats Are Worried Trump Will Beat Biden. This One Isn’t.**\
 `Simon Rosenberg has spent the past two years telling Democrats they need to calm down. His Biden-will-win prediction is his next big test.`\
 https://nytimes.com/2024/04/03/us/politics/simon-rosenberg-trump-biden.html

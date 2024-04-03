@@ -1,3 +1,7 @@
+**What Janet Yellen Needs to Tell China’s Leaders**\
+`The economic course correction that the United States wants would also help average Chinese people.`\
+https://nytimes.com/2024/04/03/opinion/yellen-china-xi-trade.html
+
 **Many Democrats Are Worried Trump Will Beat Biden. This One Isn’t.**\
 `Simon Rosenberg has spent the past two years telling Democrats they need to calm down. His Biden-will-win prediction is his next big test.`\
 https://nytimes.com/2024/04/03/us/politics/simon-rosenberg-trump-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/us/south-carolina-bank-account.html
 **Partying on a Tuesday With Elon Musk and His 3-Year-Old**\
 `Futurists and the future-curious, including Seth Meyers and Darren Aronofsky, attended a screening in New York City for a new PBS documentary.`\
 https://nytimes.com/2024/04/03/style/pbs-brief-history-of-future-elon-musk-moma.html
-
-**He’s on Death Row for Murders. Prison Workers Say He Should Be Spared.**\
-`Brian Dorsey, who pleaded guilty to murder in the 2006 killings of Sarah and Ben Bonnie, is scheduled to be executed on Tuesday unless Missouri’s governor or the courts step in.`\
-https://nytimes.com/2024/04/03/us/missouri-death-penalty-brian-dorsey.html
 
