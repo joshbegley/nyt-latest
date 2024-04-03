@@ -1,3 +1,15 @@
+**Have the Brands Gone Too Far? Boston Marathoners Think So.**\
+`Runners are disappointed that the new finisher medals feature a large bank logo across the bottom. “This isn’t a turkey trot.”`\
+https://nytimes.com/2024/04/03/style/boston-marathon-medals.html
+
+**How California’s Fire Season Might Shape Up This Year**\
+`It’s been a rainy winter, but that won’t necessarily mean fewer wildfires.`\
+https://nytimes.com/2024/04/03/us/california-fire-season.html
+
+**How Can Our Friends Choose a Realtor Other Than My Husband?**\
+`A reader is angered by friends who list their homes with other real estate brokers — sometimes without giving his husband a chance to make his case.`\
+https://nytimes.com/2024/04/03/style/mixing-business-and-friendship.html
+
 **NATO Weighs Taking Over U.S.-Led Group Directing Ukraine Military Aid**\
 `The proposal faces several obstacles, including whether all members would agree to the changes. But the alliance is worried about wavering American support for Kyiv.`\
 https://nytimes.com/2024/04/03/world/europe/nato-ukraine-funding.html
