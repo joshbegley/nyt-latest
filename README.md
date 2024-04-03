@@ -1,3 +1,7 @@
+**Wisconsin Voters Approve Bans on Private Aid for Election Offices**\
+`Wisconsin’s Republican-led Legislature proposed changing the State Constitution to restrict private funding and staffing of election offices.`\
+https://nytimes.com/2024/04/02/us/wisconsin-election-ballot-measures.html
+
 **U.S. Intelligence Warning to Moscow Named Specific Target of Attack**\
 `The C.I.A. told Russia that Islamic State terrorists were plotting an attack on Crocus City Hall, a concert venue.`\
 https://nytimes.com/2024/04/02/us/politics/moscow-attack-us-warning.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/us/politics/biden-israel-weapons-deal.html
 **Deal Talks Between Paramount and Skydance Heat Up**\
 `David Ellison, the founder of the Skydance media company, met with Paramount’s board of directors late last month to discuss the deal.`\
 https://nytimes.com/2024/04/02/business/media/paramount-skydance-exclusive-talks.html
-
-**Maryse Condé, ‘Grande Dame’ of Francophone Literature, Dies at 90**\
-`She explored the history and culture of Africa, the West Indies and Europe in work that made her a perennial favorite for the Nobel Prize.`\
-https://nytimes.com/2024/04/02/books/maryse-conde-dead.html
 
