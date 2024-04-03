@@ -1,3 +1,7 @@
+**Can Oats Really Help You Lose Weight?**\
+`A viral TikTok trend touts “Oatzempic” as a weight-loss hack. We asked the experts if there’s anything to it.`\
+https://nytimes.com/2024/04/03/well/eat/oats-ozempic-tiktok.html
+
 **‘Stop It Now’: Jill Biden Privately Urges an End to Conflict in Gaza**\
 `The president recounted the first lady’s concerns as he was pressed about the war at a meeting with Muslim community members.`\
 https://nytimes.com/2024/04/03/us/politics/jill-biden-israel-hamas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/style/angel-reese-lsu-wnba-draft-vogue.html
 **Did One Guy Just Stop a Huge Cyberattack?**\
 `A Microsoft engineer noticed something was off on a piece of software he worked on. He soon discovered someone was probably trying to gain access to computers all over the world.`\
 https://nytimes.com/2024/04/03/technology/prevent-cyberattack-linux.html
-
-**100,000 Live Salmon Spilled Off a Truck. Most Landed in a Creek and Lived.**\
-`A tanker carrying young salmon crashed. But most of the fish flopped into a creek and “hit the water running,” a wildlife official said.`\
-https://nytimes.com/2024/04/03/us/salmon-truck-creek-oregon.html
 

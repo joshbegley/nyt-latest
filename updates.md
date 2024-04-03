@@ -1,3 +1,7 @@
+**Can Oats Really Help You Lose Weight?**\
+`A viral TikTok trend touts “Oatzempic” as a weight-loss hack. We asked the experts if there’s anything to it.`\
+https://nytimes.com/2024/04/03/well/eat/oats-ozempic-tiktok.html
+
 **‘Stop It Now’: Jill Biden Privately Urges an End to Conflict in Gaza**\
 `The president recounted the first lady’s concerns as he was pressed about the war at a meeting with Muslim community members.`\
 https://nytimes.com/2024/04/03/us/politics/jill-biden-israel-hamas.html
