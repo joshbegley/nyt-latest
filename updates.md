@@ -1,3 +1,15 @@
+**How to Make Bubble Tea**\
+`A winning essay by Hanyi Zhou, age 14.`\
+https://nytimes.com/2024/04/03/learning/how-to-make-bubble-tea.html
+
+**How to Make the Perfect Sandwich**\
+`A winning essay by Jackson DeNichilo, age 15.`\
+https://nytimes.com/2024/04/03/learning/how-to-make-the-perfect-sandwich.html
+
+**How to Wrap a Dumpling**\
+`A winning essay by Jacob Wang, age 16.`\
+https://nytimes.com/2024/04/03/learning/how-to-wrap-a-dumpling.html
+
 **How to Conduct a Podcast Interview**\
 `A winning essay by Matthew Jeong, age 17.`\
 https://nytimes.com/2024/04/03/learning/how-to-conduct-a-podcast-interview.html
