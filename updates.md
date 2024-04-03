@@ -1,3 +1,11 @@
+**NATO Weighs Taking Over U.S.-Led Group Directing Ukraine Military Aid**\
+`The proposal faces several obstacles, including whether all members would agree to the changes. But the alliance is worried about wavering American support for Kyiv.`\
+https://nytimes.com/2024/04/03/world/europe/nato-ukraine-funding.html
+
+**Christopher Durang, Playwright Who Mixed High Art and Low Humor, Dies at 75**\
+`In a career spanning more than 40 years, he established himself as a hyperliterate jester and an anarchic clown.`\
+https://nytimes.com/2024/04/03/theater/christopher-durang-dead.html
+
 **How a Snake Uses Its Sense of Smell**\
 `These reptiles and their social networks are understudied, according to researchers applying scents to different snakes to assess their behavior.`\
 https://nytimes.com/2024/04/03/science/how-a-snake-uses-its-sense-of-smell.html
