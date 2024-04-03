@@ -1,3 +1,15 @@
+**How to Make Bubble Tea**\
+`A winning essay by Hanyi Zhou, age 14.`\
+https://nytimes.com/2024/04/03/learning/how-to-make-bubble-tea.html
+
+**How to Make the Perfect Sandwich**\
+`A winning essay by Jackson DeNichilo, age 15.`\
+https://nytimes.com/2024/04/03/learning/how-to-make-the-perfect-sandwich.html
+
+**How to Wrap a Dumpling**\
+`A winning essay by Jacob Wang, age 16.`\
+https://nytimes.com/2024/04/03/learning/how-to-wrap-a-dumpling.html
+
 **How to Conduct a Podcast Interview**\
 `A winning essay by Matthew Jeong, age 17.`\
 https://nytimes.com/2024/04/03/learning/how-to-conduct-a-podcast-interview.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/03/crosswords/connections-companion.html
 **Today’s Wordle Review**\
 `In case you need some puzzle help.`\
 https://nytimes.com/2024/04/03/crosswords/wordle-review.html
-
-**The ‘Awkwardness and Uncertainty’ of Unregulated Sperm Donation**\
-`A New York Times documentary follows sperm donors and recipients who operate outside of the fertility industry.`\
-https://nytimes.com/2024/04/03/insider/spermworld-documentary.html
-
-**Psychedelic Rock and Tammy’s Lunch Box: A Small City’s Big Eclipse Plans**\
-`Let the big cities have their eclipse mega-events. In Plattsburgh, N.Y., success looks different for everyone stopping to look up.`\
-https://nytimes.com/2024/04/03/nyregion/solar-eclipse-plattsburgh-ny.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/03/crosswords/spelling-bee-forum.html
 
