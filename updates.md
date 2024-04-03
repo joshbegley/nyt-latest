@@ -1,3 +1,7 @@
+**Hualien County Is a Quiet, Scenic Tourist Destination**\
+`The area, known for a famous gorge and aquamarine waters, sits on several active faults.`\
+https://nytimes.com/2024/04/03/world/asia/hualien-taiwan-earthquake.html
+
 **The Taiwan Earthquake’s Aftermath in Photos**\
 `See scenes from around the island.`\
 https://nytimes.com/2024/04/03/world/asia/the-taiwan-earthquakes-aftermath-in-photos.html

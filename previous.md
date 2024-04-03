@@ -1,3 +1,7 @@
+**Hualien County Is a Quiet, Scenic Tourist Destination**\
+`The area, known for a famous gorge and aquamarine waters, sits on several active faults.`\
+https://nytimes.com/2024/04/03/world/asia/hualien-taiwan-earthquake.html
+
 **Quotation of the Day: More Than Many Realized, the Bridge Connected All of Baltimore**\
 `Quotation of the Day for Wednesday, April 3, 2024.`\
 https://nytimes.com/2024/04/03/pageoneplus/quotation-of-the-day-more-than-many-realized-the-bridge-connected-all-of-baltimore.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/us/politics/primary-elections-trump-biden.html
 **Biden denounces killing of aid workers, saying Israel has ‘not done enough to protect civilians.’**\
 `By Erica L. Green`\
 https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/biden-denounces-killing-of-aid-workers-saying-israel-has-not-done-enough-to-protect-civilians
-
-**A Look at Taiwan’s Strongest Earthquakes**\
-`Earthquakes of similar intensity to the one that hit the island on Wednesday have caused large-scale death and destruction.`\
-https://nytimes.com/2024/04/02/world/asia/taiwan-earthquakes-history.html
 
