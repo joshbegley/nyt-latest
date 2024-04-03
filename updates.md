@@ -1,3 +1,11 @@
+**Son of Dominican Republic Politician is Fatally Shot in Houston, Police Say**\
+`Luis Alfredo Pacheco Rojas, 34, son of Alfredo Pacheco, the president of the Chamber of Deputies of the Dominican Republic, was killed on Monday in a drive-by shooting, the authorities said.`\
+https://nytimes.com/2024/04/03/us/luis-alfredo-pacheco-dominican-republic.html
+
+**Demetri Martin Confronts the Paradoxes of a Veteran Standup Career**\
+`In his new Netflix special, “Demetri Deconstructed,” he tries a more conceptual approach than the simplicity he was known for.`\
+https://nytimes.com/2024/04/03/arts/television/demetri-martin-netflix-demetri-deconstructed.html
+
 **Traders Are Betting Millions That Trump Media Will Tumble**\
 `The parent company of Truth Social is a popular target for short-sellers, even after they lost $100 million last month betting on a decline in the stock that didn’t come.`\
 https://nytimes.com/2024/04/03/business/trump-media-short-selling.html
