@@ -6,7 +6,7 @@ https://nytimes.com/2024/04/03/us/missouri-death-penalty-brian-dorsey.html
 `As Southern states reconsider Medicaid expansion, Gov. Laura Kelly of Kansas is pushing her own plan meant to appeal to conservatives. So far, success has been elusive.`\
 https://nytimes.com/2024/04/03/us/politics/kansas-medicaid-expansion.html
 
-**Met Opera Taps German Conductor as Next Chorus Master**\
+**Met Opera Taps German Conductor as Next Chorus Director**\
 `Tilman Michael, who leads the Frankfurt Opera’s chorus, will succeed the veteran conductor Donald Palumbo, who steps down this season after 17 years.`\
 https://nytimes.com/2024/04/03/arts/music/tilman-michael-chorus-master-metropolitan-opera.html
 
