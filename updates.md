@@ -1,3 +1,7 @@
+**What Tesla’s Troubles Signal for the E.V. Revolution**\
+`The carmaker’s disappointing results point to slowing demand and a “sharp deterioration in growth” that extends beyond Elon Musk’s company.`\
+https://nytimes.com/2024/04/03/business/dealbook/tesla-musk-electric-vehicles.html
+
 **Taiwan’s Strongest Earthquake in 25 Years Injures Hundreds**\
 `The magnitude-7.4 quake was followed by over 100 aftershocks. Dozens of people were trapped. Two buildings in the city of Hualien teetered perilously.`\
 https://nytimes.com/2024/04/03/world/asia/taiwan-earthquake.html
