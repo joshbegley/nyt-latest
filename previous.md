@@ -23,7 +23,7 @@ https://nytimes.com/2024/04/03/arts/music/lizzo-quit-music-instagram-video.html
 https://nytimes.com/2024/04/03/style/beyonce-cowboy-carter-flowers.html
 
 **Inside World Central Kitchen’s Work in Gaza**\
-`The World Central Kitchen has suspended its relief efforts in Gaza after seven aid workers were killed in Israeli airstrikes on Monday. Videos reveal the challenges of food distribution in a territory under siege.`\
+`World Central Kitchen has suspended its relief efforts in Gaza after seven aid workers were killed in Israeli airstrikes on Monday. Videos reveal the challenges of food distribution in a territory under siege.`\
 https://nytimes.com/video/world/middleeast/100000009392655/world-central-kitchen-gaza-aid.html
 
 **A Quick Skillet Turkey Dinner You’ll Make Over and Over**\

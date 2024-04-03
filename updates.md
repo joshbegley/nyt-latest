@@ -1,3 +1,7 @@
+**Inside World Central Kitchen’s Work in Gaza**\
+`World Central Kitchen has suspended its relief efforts in Gaza after seven aid workers were killed in Israeli airstrikes on Monday. Videos reveal the challenges of food distribution in a territory under siege.`\
+https://nytimes.com/video/world/middleeast/100000009392655/world-central-kitchen-gaza-aid.html
+
 **What Janet Yellen Needs to Tell China’s Leaders**\
 `The economic course correction that the United States wants would also help average Chinese people.`\
 https://nytimes.com/2024/04/03/opinion/yellen-china-xi-trade.html
