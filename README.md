@@ -1,3 +1,7 @@
+**03mideast-crisis**\
+`Israeli Military Takes Responsibility for Strike That Killed 7 Aid Workers`\
+https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news
+
 **Ugandan Court Upholds Draconian Anti-Gay Law**\
 `The law, which includes the death penalty as a punishment in some cases, has been strongly condemned, including by the United States.`\
 https://nytimes.com/2024/04/03/world/africa/uganda-anti-gay-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/learning/spring-holidays.html
 **New York Prisoners, Denied a Solar Eclipse Viewing, Sue the State**\
 `Six men at an upstate New York prison said that the eclipse has religious significance and that a statewide lockdown order preventing them from watching it violated their rights.`\
 https://nytimes.com/2024/04/03/nyregion/ny-prisons-solar-eclipse-lawsuit.html
-
-**The M.T.A. Wants Marathon Runners to Pay Bridge Tolls, Too**\
-`The New York City Marathon is being asked to pay roughly $750,000 a year to make up for toll revenue lost while the Verrazzano-Narrows Bridge is closed.`\
-https://nytimes.com/2024/04/03/nyregion/marathon-tolls-mta.html
 
