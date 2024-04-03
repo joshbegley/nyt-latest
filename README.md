@@ -1,3 +1,15 @@
+**Met Opera Taps German Conductor as Next Chorus Master**\
+`Tilman Michael, who leads the Frankfurt Opera’s chorus, will succeed the veteran conductor Donald Palumbo, who steps down this season after 17 years.`\
+https://nytimes.com/2024/04/03/arts/music/tilman-michael-chorus-master-metropolitan-opera.html
+
+**The Best Way to Ring In Spring? Herby Chicken and Noodles**\
+`Balanced with an asparagus-beet salad and a simple citrusy dessert, this dinner from David Tanis has all the best of early spring.`\
+https://nytimes.com/2024/04/03/dining/chicken-noodles-asparagus-recipes.html
+
+**New Jersey Challenges N.Y.C. Congestion Pricing in Federal Court**\
+`A closely watched lawsuit could block or upend the city’s new tolling program, which will charge most vehicles for entering the busiest parts of Manhattan.`\
+https://nytimes.com/2024/04/03/nyregion/nj-congestion-pricing-federal-court.html
+
 **Eli Noyes, Animator Who Turned Clay and Sand Into Art, Dies at 81**\
 `His innovative stop-motion animation influenced a generation of filmmakers, including the creators of Wallace and Gromit.`\
 https://nytimes.com/2024/04/03/arts/television/eli-noyes-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/03/us/politics/trump-rnc-fundraising-march.html
 **Who ‘Won’ Covid? It Depends How You Measure.**\
 `Four years after the pandemic began, we’re still learning basic facts about what happened.`\
 https://nytimes.com/2024/04/03/opinion/politics/covid-measurement-memory.html
-
-**A New Way of Looking at the Nude**\
-`The artists redefining portraits of the human body for a more inclusive age.`\
-https://nytimes.com/2024/04/03/t-magazine/contemporary-nude-art.html
-
-**The Various Mr. Ripleys**\
-`“Ripley” on Netflix is the latest riff on the con-artist character the author Patricia Highsmith invented in the 1950s. Here’s a look at the earlier versions.`\
-https://nytimes.com/2024/04/03/arts/television/ripley-netflix-andrew-scott.html
-
-**Fed Chair Awaits More Inflation Cooling as Path Proves ‘Bumpy’**\
-`Jerome H. Powell, the Federal Reserve chair, said officials can take their time cutting rates. He also underscored the Fed’s independence as election season heats up.`\
-https://nytimes.com/2024/04/03/business/economy/fed-chair-awaits-more-inflation-cooling-as-path-proves-bumpy.html
 

@@ -1,3 +1,11 @@
+**Eli Noyes, Animator Who Turned Clay and Sand Into Art, Dies at 81**\
+`His innovative stop-motion animation influenced a generation of filmmakers, including the creators of Wallace and Gromit.`\
+https://nytimes.com/2024/04/03/arts/television/eli-noyes-dead.html
+
+**Trump and R.N.C. Announce a $65.6 Million Haul in March**\
+`The new numbers help the former president narrow the financial gap with President Biden, who had amassed $155 million with the Democratic Party at the end of February.`\
+https://nytimes.com/2024/04/03/us/politics/trump-rnc-fundraising-march.html
+
 **Donald Trump and the Justice System**\
 `Readers discuss how the former president is or is not getting special treatment. Also: The killing of aid workers in Gaza; screens in the classroom.`\
 https://nytimes.com/2024/04/03/opinion/donald-trump-justice-system.html
