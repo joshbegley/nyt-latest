@@ -1,3 +1,7 @@
+**An English Village Hollowed Out for a Train That May Never Come**\
+`When Britain cut back a planned high-speed rail line, some residents on the route were pleased. They’re less delighted with what happened next.`\
+https://nytimes.com/2024/04/03/world/europe/hs2-uk-village.html
+
 **Stephen Colbert Chides Trump for Ignoring Expanded Gag Order**\
 `Colbert said that after the order was amended, the former president “paused, listened to his critics and launched another attack on the judge’s daughter, this time with photos.”`\
 https://nytimes.com/2024/04/03/arts/television/late-night-trump-gag-order.html

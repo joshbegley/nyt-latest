@@ -34,7 +34,7 @@ https://nytimes.com/2024/04/03/world/asia/hualien-earthquake-damage-taiwan.html
 `Seven aid workers killed in Gaza.`\
 https://nytimes.com/2024/04/03/briefing/gaza-aid-workers-biden-xi.html
 
-**For Lithuania, Unease Over a Growing Russian-Speaking Diaspora**\
-`An influx of exiled Russian activists and refugees from Ukraine and Belarus is stirring fears in a country that fought to preserve its language and culture under Soviet occupation.`\
-https://nytimes.com/2024/04/03/world/europe/lithuania-russian-diaspora.html
+**An English Village Hollowed Out for a Train That May Never Come**\
+`When Britain cut back a planned high-speed rail line, some residents on the route were pleased. They’re less delighted with what happened next.`\
+https://nytimes.com/2024/04/03/world/europe/hs2-uk-village.html
 
