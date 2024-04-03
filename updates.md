@@ -1,3 +1,11 @@
+**Quotation of the Day: More Than Many Realized, the Bridge Connected All of Baltimore**\
+`Quotation of the Day for Wednesday, April 3, 2024.`\
+https://nytimes.com/2024/04/03/pageoneplus/quotation-of-the-day-more-than-many-realized-the-bridge-connected-all-of-baltimore.html
+
+**José Andrés: Let People Eat**\
+`You cannot win this war by starving an entire population.`\
+https://nytimes.com/2024/04/03/opinion/jose-andres-let-people-eat.html
+
 **The Taiwan Earthquake’s Aftermath in Photos**\
 `TK summary`\
 https://nytimes.com/2024/04/03/world/asia/aftermath-of-the-earthquake-in-taiwan-in-photos.html
