@@ -1,3 +1,7 @@
+**Texas National Guard Member Charged With Migrant Smuggling**\
+`The arrest marked at least the second time in the last year that National Guard members in Texas had been caught trying to transport migrants from the border.`\
+https://nytimes.com/2024/04/03/us/texas-national-guard-migrant-smuggling.html
+
 **Has the FAFSA Delay Changed Your Decisions Around College?**\
 `We want to hear from readers about how they’re choosing their schools while waiting for financial aid packages.`\
 https://nytimes.com/2024/04/03/us/fafsa-callout.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/well/eat/oats-ozempic-tiktok.html
 **‘Stop It Now’: Jill Biden Privately Urges an End to Conflict in Gaza**\
 `The president recounted the first lady’s concerns as he was pressed about the war at a meeting with Muslim community members.`\
 https://nytimes.com/2024/04/03/us/politics/jill-biden-israel-hamas.html
-
-**An Ozempic Relative Slowed Parkinson’s Disease in a Small Study**\
-`The trial lasted only one year but offered embers of hope to some experts.`\
-https://nytimes.com/2024/04/03/health/parkinsons-ozempic-glp-1.html
 
