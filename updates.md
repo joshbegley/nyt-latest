@@ -1,3 +1,7 @@
+**‘Stop It Now’: Jill Biden Privately Urges an End to Conflict in Gaza**\
+`The president recounted the first lady’s concerns as he was pressed about the war at a meeting with Muslim community members.`\
+https://nytimes.com/2024/04/03/us/politics/jill-biden-israel-hamas.html
+
 **An Ozempic Relative Slowed Parkinson’s Disease in a Small Study**\
 `The trial lasted only one year but offered embers of hope to some experts.`\
 https://nytimes.com/2024/04/03/health/parkinsons-ozempic-glp-1.html
