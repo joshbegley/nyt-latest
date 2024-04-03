@@ -1,6 +1,14 @@
+**The national security adviser postpones a trip to Saudi Arabia after cracking his rib.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/the-national-security-adviser-postpones-a-trip-to-saudi-arabia-after-cracking-his-rib
+
+**She’s Shaking Up Classical Music While Confronting Illness**\
+`The pianist Alice Sara Ott, who makes her New York Philharmonic debut this week, is upending concert culture — and defying stereotypes about multiple sclerosis.`\
+https://nytimes.com/2024/04/03/arts/music/alice-sara-ott-multiple-sclerosis-new-york-philharmonic.html
+
 **Nebraska Republicans Renew Push for ‘Winner Take All’ Electoral System**\
 `In 2020, Joseph R. Biden Jr. won one electoral vote in a state that divides its votes by congressional district. Donald J. Trump has supported the stalled effort to change the system.`\
-https://nytimes.com/2024/04/03/us/politics/nebraska-republicans-push-to-change-winner-take-all-electoral-votes.html
+https://nytimes.com/2024/04/03/us/politics/nebraska-republicans-winner-take-all.html
 
 **#MeToo Stalled in France. This Actress Might Be Changing Things.**\
 `Judith Godrèche says the abuse of children and women is stitched into the fabric of the French movie industry. This time, the country seems to be listening more closely.`\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/aid-convoy-
 **Christopher Durang, the Surrealist of Snark**\
 `In works like “Vanya and Sonia and Masha and Spike,” the playwright would force you to laugh, not to dull the pain but to hone it.`\
 https://nytimes.com/2024/04/03/theater/christopher-durang-playwright-appraisal.html
-
-**Have the Brands Gone Too Far? Boston Marathoners Think So.**\
-`Runners are disappointed that the new finisher medals feature a large bank logo across the bottom. “This isn’t a turkey trot.”`\
-https://nytimes.com/2024/04/03/style/boston-marathon-medals.html
-
-**How California’s Fire Season Might Shape Up This Year**\
-`It’s been a rainy winter, but that won’t necessarily mean fewer wildfires.`\
-https://nytimes.com/2024/04/03/us/california-fire-season.html
 
