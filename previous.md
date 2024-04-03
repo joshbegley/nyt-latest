@@ -7,7 +7,7 @@ https://nytimes.com/2024/04/03/pageoneplus/quotation-of-the-day-more-than-many-r
 https://nytimes.com/2024/04/03/opinion/jose-andres-let-people-eat.html
 
 **The Taiwan Earthquake’s Aftermath in Photos**\
-`TK summary`\
+`See scenes from around the island.`\
 https://nytimes.com/2024/04/03/world/asia/the-taiwan-earthquakes-aftermath-in-photos.html
 
 **Taiwan Quake Damages Buildings and a Highway in Hualien**\
