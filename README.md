@@ -1,3 +1,7 @@
+**Has the FAFSA Delay Changed Your Decisions Around College?**\
+`We want to hear from readers about how they’re choosing their schools while waiting for financial aid packages.`\
+https://nytimes.com/2024/04/03/us/fafsa-callout.html
+
 **U.S. and China Continue to Talk, but Economic Divide Remains Wide**\
 `Election-year rancor will make it difficult for Washington and Beijing to find areas of cooperation on trade and investment.`\
 https://nytimes.com/2024/04/03/us/politics/us-china-economic-divide.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/us/politics/jill-biden-israel-hamas.html
 **An Ozempic Relative Slowed Parkinson’s Disease in a Small Study**\
 `The trial lasted only one year but offered embers of hope to some experts.`\
 https://nytimes.com/2024/04/03/health/parkinsons-ozempic-glp-1.html
-
-**Judge Won’t Delay Trump’s Criminal Trial to Wait for Immunity Ruling**\
-`The former president had asked the judge to push back his Manhattan criminal trial, slated to begin April 15, until after the Supreme Court decides whether he is immune from prosecution.`\
-https://nytimes.com/2024/04/03/nyregion/trump-merchan-immunity-ruling.html
 
