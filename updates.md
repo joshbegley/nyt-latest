@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘The Iron Giant’ and More**\
+`I cover the Supreme Court for The New York Times. Here are five things I’ve been enjoying recently. `\
+https://nytimes.com/interactive/2024/04/03/arts/editors-recommendations-irongiant.html
+
 **Lizzo Says She Is Not Leaving Music Industry After ‘I Quit’ Post**\
 `Lizzo clarified that she was not quitting music after writing on Instagram last week that she was “starting to feel like the world doesn’t want me in it.”`\
 https://nytimes.com/2024/04/03/arts/music/lizzo-quit-music-instagram-video.html

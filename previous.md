@@ -1,10 +1,14 @@
-**Lizzo Says She Is Not Leaving Music Industry After ‘I Quit’ Post**\
-`Lizzo clarified that she was not quitting music after writing on Instagram last week that she was “starting to feel like the world doesn’t want me in it.”`\
-https://nytimes.com/2024/04/03/arts/music/lizzo-quit-music-instagram-video.html
+**What’s in Our Queue? ‘The Iron Giant’ and More**\
+`I cover the Supreme Court for The New York Times. Here are five things I’ve been enjoying recently. `\
+https://nytimes.com/interactive/2024/04/03/arts/editors-recommendations-irongiant.html
 
 **Contradicting Trump, Ruby Garcia’s Sister Says He Never Contacted Family**\
 `The former president held up the death of a young Michigan woman at a campaign rally as an example of what he calls “migrant crime,” and claimed to have spoken to her family.`\
 https://nytimes.com/2024/04/03/us/politics/trump-ruby-garcia-migrant-crime.html
+
+**Lizzo Says She Is Not Leaving Music Industry After ‘I Quit’ Post**\
+`Lizzo clarified that she was not quitting music after writing on Instagram last week that she was “starting to feel like the world doesn’t want me in it.”`\
+https://nytimes.com/2024/04/03/arts/music/lizzo-quit-music-instagram-video.html
 
 **Beyoncé Doesn’t Skimp on Flowers**\
 `In recent weeks, Beyoncé has sent elaborate all-white arrangements to musicians including Jack White, K. Michelle and Nicki Minaj.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/us/missouri-death-penalty-brian-dorsey.html
 **For Red State Holdouts Like Kansas, Is Expanding Medicaid Within Reach?**\
 `As Southern states reconsider Medicaid expansion, Gov. Laura Kelly of Kansas is pushing her own plan meant to appeal to conservatives. So far, success has been elusive.`\
 https://nytimes.com/2024/04/03/us/politics/kansas-medicaid-expansion.html
-
-**Met Opera Taps German Conductor as Next Chorus Director**\
-`Tilman Michael, who leads the Frankfurt Opera’s chorus, will succeed the veteran conductor Donald Palumbo, who steps down this season after 17 years.`\
-https://nytimes.com/2024/04/03/arts/music/tilman-michael-chorus-master-metropolitan-opera.html
 
