@@ -1,3 +1,7 @@
+**Inside the World Central Kitchen’s Work in Gaza**\
+`The World Central Kitchen has suspended its relief efforts in Gaza after seven aid workers were killed in Israeli airstrikes on Monday. Videos reveal the challenges of food distribution in a territory under siege.`\
+https://nytimes.com/video/world/middleeast/100000009392655/world-central-kitchen-gaza-aid.html
+
 **A Quick Skillet Turkey Dinner You’ll Make Over and Over**\
 `This easy Melissa Clark recipe, inspired by the zesty, pungent flavors of larb, turns unassuming ground turkey into a star.`\
 https://nytimes.com/2024/04/03/dining/ground-turkey-dinner-recipe.html
