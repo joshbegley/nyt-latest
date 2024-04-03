@@ -1,3 +1,7 @@
+**Two Shakespearean Triumphs in Paris, or a Plague on Both Their Houses?**\
+`New productions of “Macbeth” and “Hamlet” follow a French tradition of adapting familiar works. The results are innovative, and sometimes cryptic.`\
+https://nytimes.com/2024/04/03/theater/paris-macbeth-hamlet-shakespeare.html
+
 **Stephen Breyer: The Supreme Court I Served On Was Made Up of Friends**\
 `If justices who disagree so profoundly can do so respectfully, perhaps it is possible for our politically divided country to do the same.`\
 https://nytimes.com/2024/04/03/opinion/stephen-breyer-friendship-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/realestate/garden-pottery-ceramics.html
 **Why Does Steam Float Over the Streets of Manhattan?**\
 `The orange cylinders that funnel hot vapor up and away serve an important purpose in New York City’s steam system.`\
 https://nytimes.com/2024/04/03/nyregion/steam-funnels-con-edison-nyc.html
-
-**What I Saw Working at The National Enquirer During Donald Trump’s Rise**\
-`Inside the notorious “catch and kill” campaign that now stands at the heart of the former president’s legal trial.`\
-https://nytimes.com/2024/04/03/magazine/national-enquirer-trump-lachlan-cartwright.html
 
