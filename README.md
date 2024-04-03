@@ -1,3 +1,7 @@
+**Ugandan Court Upholds Draconian Anti-Gay Law**\
+`The law, which includes the death penalty as a punishment in some cases, has been strongly condemned, including by the United States.`\
+https://nytimes.com/2024/04/03/world/africa/uganda-anti-gay-law.html
+
 **Powerful Earthquake Shakes Taiwan**\
 `The quake, with a magnitude of at least 7.4, caused landslides and severe damage to some buildings.`\
 https://nytimes.com/video/world/asia/100000009394335/taiwan-earthquake-hualien-landslide.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/nyregion/ny-prisons-solar-eclipse-lawsuit.html
 **The M.T.A. Wants Marathon Runners to Pay Bridge Tolls, Too**\
 `The New York City Marathon is being asked to pay roughly $750,000 a year to make up for toll revenue lost while the Verrazzano-Narrows Bridge is closed.`\
 https://nytimes.com/2024/04/03/nyregion/marathon-tolls-mta.html
-
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/03/crosswords/connections-companion.html
 
