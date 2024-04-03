@@ -1,3 +1,7 @@
+**Storm Leaves Trail of Destruction in the Midwest**\
+`Severe weather toppled camper and trees in Ohio and Kentucky as parts of West Virginia were placed under tornado watch.`\
+https://nytimes.com/video/us/100000009394319/tornado-warning-weather-forecast.html
+
 **Stephen Colbert Chides Trump for Ignoring Expanded Gag Order**\
 `Colbert said that after the order was amended, the former president “paused, listened to his critics and launched another attack on the judge’s daughter, this time with photos.”`\
 https://nytimes.com/2024/04/03/arts/television/late-night-trump-gag-order.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/world/asia/hualien-earthquake-damage-taiwan.html
 **Wednesday Briefing**\
 `Seven aid workers killed in Gaza.`\
 https://nytimes.com/2024/04/03/briefing/gaza-aid-workers-biden-xi.html
-
-**An English Village Hollowed Out for a Train That May Never Come**\
-`When Britain cut back a planned high-speed rail line, some residents on the route were pleased. They’re less delighted with what happened next.`\
-https://nytimes.com/2024/04/03/world/europe/hs2-uk-village.html
 
