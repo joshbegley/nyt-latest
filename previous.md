@@ -1,3 +1,11 @@
+**Everybody Wants a Piece of South Carolina’s $1.8 Billion Surplus. Is It Real?**\
+`Whom does it belongs to? How did it get there? Why? The more legislators dig, the murkier things seem to get.`\
+https://nytimes.com/2024/04/03/us/south-carolina-bank-account.html
+
+**Partying on a Tuesday With Elon Musk and His 3-Year-Old**\
+`Futurists and the future-curious, including Seth Meyers and Darren Aronofsky, attended a screening in New York City for a new PBS documentary.`\
+https://nytimes.com/2024/04/03/style/pbs-brief-history-of-future-elon-musk-moma.html
+
 **He’s on Death Row for Murders. Prison Workers Say He Should Be Spared.**\
 `Brian Dorsey, who pleaded guilty to murder in the 2006 killings of Sarah and Ben Bonnie, is scheduled to be executed on Tuesday unless Missouri’s governor or the courts step in.`\
 https://nytimes.com/2024/04/03/us/missouri-death-penalty-brian-dorsey.html
@@ -6,7 +14,7 @@ https://nytimes.com/2024/04/03/us/missouri-death-penalty-brian-dorsey.html
 `As Southern states reconsider Medicaid expansion, Gov. Laura Kelly of Kansas is pushing her own plan meant to appeal to conservatives. So far, success has been elusive.`\
 https://nytimes.com/2024/04/03/us/politics/kansas-medicaid-expansion.html
 
-**Met Opera Taps German Conductor as Next Chorus Master**\
+**Met Opera Taps German Conductor as Next Chorus Director**\
 `Tilman Michael, who leads the Frankfurt Opera’s chorus, will succeed the veteran conductor Donald Palumbo, who steps down this season after 17 years.`\
 https://nytimes.com/2024/04/03/arts/music/tilman-michael-chorus-master-metropolitan-opera.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/03/opinion/donald-trump-justice-system.html
 **This Basketball Season, Root for the Women**\
 `Professional women’s basketball is ripe for the groundswell that has come for the college teams.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/caitlin-clark-womens-basketball
-
-**2 Brothers in Trump Media Insider-Trading Scheme Plead Guilty**\
-`Michael and Gerald Shvartsman, who had originally pleaded not guilty to securities fraud charges, each pleaded guilty to one count of securities fraud.`\
-https://nytimes.com/2024/04/03/business/trump-media-insider-trading-guilty.html
-
-**At New Directors/New Films, the Kids Are Not All Right (Nobody Really Is)**\
-`This year’s edition of the festival tends toward familiar art-house fare, but there are standouts in which characters young and old grapple with childhood.`\
-https://nytimes.com/2024/04/03/movies/new-directors-new-films.html
 

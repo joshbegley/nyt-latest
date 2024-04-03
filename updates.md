@@ -1,3 +1,15 @@
+**Everybody Wants a Piece of South Carolina’s $1.8 Billion Surplus. Is It Real?**\
+`Whom does it belongs to? How did it get there? Why? The more legislators dig, the murkier things seem to get.`\
+https://nytimes.com/2024/04/03/us/south-carolina-bank-account.html
+
+**Partying on a Tuesday With Elon Musk and His 3-Year-Old**\
+`Futurists and the future-curious, including Seth Meyers and Darren Aronofsky, attended a screening in New York City for a new PBS documentary.`\
+https://nytimes.com/2024/04/03/style/pbs-brief-history-of-future-elon-musk-moma.html
+
+**Met Opera Taps German Conductor as Next Chorus Director**\
+`Tilman Michael, who leads the Frankfurt Opera’s chorus, will succeed the veteran conductor Donald Palumbo, who steps down this season after 17 years.`\
+https://nytimes.com/2024/04/03/arts/music/tilman-michael-chorus-master-metropolitan-opera.html
+
 **He’s on Death Row for Murders. Prison Workers Say He Should Be Spared.**\
 `Brian Dorsey, who pleaded guilty to murder in the 2006 killings of Sarah and Ben Bonnie, is scheduled to be executed on Tuesday unless Missouri’s governor or the courts step in.`\
 https://nytimes.com/2024/04/03/us/missouri-death-penalty-brian-dorsey.html
