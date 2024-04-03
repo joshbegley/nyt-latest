@@ -1,3 +1,7 @@
+**Wisconsin Voters Approve Bans on Private Aid for Election Offices**\
+`Wisconsin’s Republican-led Legislature proposed changing the State Constitution to restrict private funding and staffing of election offices.`\
+https://nytimes.com/2024/04/02/us/wisconsin-election-ballot-measures.html
+
 **U.S. Intelligence Warning to Moscow Named Specific Target of Attack**\
 `The C.I.A. told Russia that Islamic State terrorists were plotting an attack on Crocus City Hall, a concert venue.`\
 https://nytimes.com/2024/04/02/us/politics/moscow-attack-us-warning.html
