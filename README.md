@@ -1,3 +1,7 @@
+**Powerful Earthquake Shakes Taiwan**\
+`The quake, with a magnitude of at least 7.4, caused landslides and severe damage to some buildings.`\
+https://nytimes.com/video/world/asia/100000009394335/taiwan-earthquake-hualien-landslide.html
+
 **How to Make Bubble Tea**\
 `A winning essay by Hanyi Zhou, age 14.`\
 https://nytimes.com/2024/04/03/learning/how-to-make-bubble-tea.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/nyregion/marathon-tolls-mta.html
 **The Connections Companion**\
 `In case you need some puzzle help.`\
 https://nytimes.com/2024/04/03/crosswords/connections-companion.html
-
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/03/crosswords/wordle-review.html
 
