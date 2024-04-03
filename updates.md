@@ -1,3 +1,7 @@
+**A 15-Minute, Five-Ingredient Childhood Favorite**\
+`Priya Krishna’s headily spiced everyday dal is essential comfort food.`\
+https://nytimes.com/2024/04/03/dining/a-15-minute-five-ingredient-childhood-favorite.html
+
 **Israel’s military says U.N. observers in Lebanon were wounded by a buried explosive device.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/israels-military-says-un-observers-in-lebanon-were-wounded-by-a-buried-explosive-device
