@@ -1,3 +1,7 @@
+**Strong Earthquake Strikes Taiwan**\
+`The magnitude 7.4 quake was centered off the coast of Hualien on the island’s east coast.`\
+https://nytimes.com/2024/04/02/world/asia/taiwan-earthquake.html
+
 **Israeli military takes responsibility for the strike that killed 7 aid workers.**\
 `By Ben Shpigel`\
 https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/israeli-military-takes-responsibility-for-the-strike-that-killed-7-aid-workers

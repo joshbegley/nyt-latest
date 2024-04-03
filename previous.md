@@ -1,3 +1,7 @@
+**Strong Earthquake Strikes Taiwan**\
+`The magnitude 7.4 quake was centered off the coast of Hualien on the island’s east coast.`\
+https://nytimes.com/2024/04/02/world/asia/taiwan-earthquake.html
+
 **Israeli military takes responsibility for the strike that killed 7 aid workers.**\
 `By Ben Shpigel`\
 https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/israeli-military-takes-responsibility-for-the-strike-that-killed-7-aid-workers
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/opinion/the-appalling-tactics-of-the-free-palesti
 **What We Know About the Iranian Commanders Killed by Israel in Syria**\
 `The leaders included Gen. Mohammad Reza Zahedi, the senior most leader in Iran’s armed forces assassinated since Qassim Suleimani was killed in 2020.`\
 https://nytimes.com/2024/04/02/world/middleeast/iran-commanders-syria-strike-israel.html
-
-**Tougher Security Measures Are Causing Upset at Guantánamo Prison**\
-`An effort to unshackle a detainee during legal meetings has put a spotlight on simmering tensions in the Pentagon’s secretive prison.`\
-https://nytimes.com/2024/04/02/us/politics/guantanamo-security-prisoners.html
 
