@@ -1,3 +1,7 @@
+**U.S. and China Continue to Talk, but Economic Divide Remains Wide**\
+`Election-year rancor will make it difficult for Washington and Beijing to find areas of cooperation on trade and investment.`\
+https://nytimes.com/2024/04/03/us/politics/us-china-economic-divide.html
+
 **Abortion and the Florida Fakeout**\
 `Will the state sit the presidential election out, like a retiree watching pickleball?`\
 https://nytimes.com/2024/04/03/us/politics/abortion-florida-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/health/parkinsons-ozempic-glp-1.html
 **Judge Won’t Delay Trump’s Criminal Trial to Wait for Immunity Ruling**\
 `The former president had asked the judge to push back his Manhattan criminal trial, slated to begin April 15, until after the Supreme Court decides whether he is immune from prosecution.`\
 https://nytimes.com/2024/04/03/nyregion/trump-merchan-immunity-ruling.html
-
-**Thursday Briefing: Ukraine Lowers the Draft Age**\
-`Also, dozens remain trapped after the earthquake in Taiwan.`\
-https://nytimes.com/2024/04/03/world/asia/ukraine-draft-taiwan-quake-asia.html
 

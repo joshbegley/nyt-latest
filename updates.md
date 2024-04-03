@@ -1,3 +1,7 @@
+**U.S. and China Continue to Talk, but Economic Divide Remains Wide**\
+`Election-year rancor will make it difficult for Washington and Beijing to find areas of cooperation on trade and investment.`\
+https://nytimes.com/2024/04/03/us/politics/us-china-economic-divide.html
+
 **Abortion and the Florida Fakeout**\
 `Will the state sit the presidential election out, like a retiree watching pickleball?`\
 https://nytimes.com/2024/04/03/us/politics/abortion-florida-election.html
