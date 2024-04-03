@@ -1,3 +1,7 @@
+**Whitney Museum Names Chief Curator**\
+`Kim Conaty will steer exhibitions and the permanent collection, saying she will pay close attention to work by Latino and Indigenous artists.`\
+https://nytimes.com/2024/04/03/arts/design/whitney-museum-curator-conaty.html
+
 **World Central Kitchen sent ships with hundreds of tons of food back to Cyprus.**\
 `Humanitarian agencies say they are being more cautious about delivering aid, and at least two have suspended operations.`\
 https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/aid-convoy-israel-world-central-kitchen
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/science/how-a-snake-uses-its-sense-of-smell.html
 **Dynamic Storm to Bring Heavy, Wet Snow and Strong Winds to New England**\
 `Snow in April is not uncommon, a meteorologist said, but this storm comes after a recent stretch of warmer spring weather across the Northeast.`\
 https://nytimes.com/2024/04/03/us/noreaster-storm-forecast-weather-vermont-nh.html
-
-**What Tesla’s Troubles Signal for the E.V. Revolution**\
-`The carmaker’s disappointing results point to slowing demand and a “sharp deterioration in growth” that extends beyond Elon Musk’s company.`\
-https://nytimes.com/2024/04/03/business/dealbook/tesla-musk-electric-vehicles.html
 

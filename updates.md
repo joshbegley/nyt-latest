@@ -1,3 +1,7 @@
+**Whitney Museum Names Chief Curator**\
+`Kim Conaty will steer exhibitions and the permanent collection, saying she will pay close attention to work by Latino and Indigenous artists.`\
+https://nytimes.com/2024/04/03/arts/design/whitney-museum-curator-conaty.html
+
 **World Central Kitchen sent ships with hundreds of tons of food back to Cyprus.**\
 `Humanitarian agencies say they are being more cautious about delivering aid, and at least two have suspended operations.`\
 https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/aid-convoy-israel-world-central-kitchen
