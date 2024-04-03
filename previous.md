@@ -1,3 +1,7 @@
+**The Necessary Discomfort of Jerrod Carmichael’s ‘Reality’**\
+`Jerrod Carmichael’s stock in trade is the exploitation of the awkward.`\
+https://nytimes.com/2024/04/03/opinion/jerrod-carmichael-reality-show.html
+
 **In a televised show of unity and defiance, Iran and its proxy militias denounce Israel and the U.S.**\
 `By Farnaz Fassihi and Hwaida Saad`\
 https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/in-a-televised-show-of-unity-and-defiance-iran-and-its-proxy-militias-denounce-israel-and-the-us
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/02/opinion/thepoint/gaza-aid-israel-anarchy
 **How Biden’s White House Gathering for Ramadan Unraveled Over Gaza**\
 `Some Muslim community leaders said it would be wrong to attend an iftar meal with President Biden while Gaza is under siege.`\
 https://nytimes.com/2024/04/03/us/politics/biden-white-house-ramadan-israel-gaza.html
-
-**Can Oats Really Help You Lose Weight?**\
-`A viral TikTok trend touts “Oatzempic” as a weight-loss hack. We asked the experts if there’s anything to it.`\
-https://nytimes.com/2024/04/03/well/eat/oats-ozempic-tiktok.html
 
