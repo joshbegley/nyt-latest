@@ -1,3 +1,11 @@
+**What We Know About the Earthquake in Taiwan**\
+`The quake set off aftershocks and damaged dozens of buildings, killing nine people and leaving many injured or trapped.`\
+https://nytimes.com/2024/04/03/world/asia/taiwan-earthquake-aftermath.html
+
+**Zelensky Lowers Draft Age to Shore Up Ukraine’s Depleted Army**\
+`The idea of requiring more men to join the fight against Russia’s invasion has become toxic politically, but Russia is not relenting in its assault.`\
+https://nytimes.com/2024/04/03/world/europe/zelensky-ukraine-military-draft-age.html
+
 **Two Shakespearean Triumphs in Paris, or a Plague on Both Their Houses?**\
 `New productions of “Macbeth” and “Hamlet” follow a French tradition of adapting familiar works. The results are innovative, and sometimes cryptic.`\
 https://nytimes.com/2024/04/03/theater/paris-macbeth-hamlet-shakespeare.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/02/opinion/thepoint/scotlands-censorship-experi
 **Dengue Fever Is Surging and We’re Looking the Other Way**\
 `Without urgent reforms to how we educate travelers, doctors, nurses and others, we are doomed to miss textbook dengue cases.`\
 https://nytimes.com/2024/04/03/opinion/dengue-fever-latin-america-travel.html
-
-**Is Your Garden Missing Something? You May Need a Large Pot (or Several).**\
-`An imposing work of pottery can be as important to the design of a landscape as any well-placed plant. And no, we’re not talking about flower pots.`\
-https://nytimes.com/2024/04/03/realestate/garden-pottery-ceramics.html
-
-**Why Does Steam Float Over the Streets of Manhattan?**\
-`The orange cylinders that funnel hot vapor up and away serve an important purpose in New York City’s steam system.`\
-https://nytimes.com/2024/04/03/nyregion/steam-funnels-con-edison-nyc.html
 

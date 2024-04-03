@@ -1,3 +1,11 @@
+**What We Know About the Earthquake in Taiwan**\
+`The quake set off aftershocks and damaged dozens of buildings, killing nine people and leaving many injured or trapped.`\
+https://nytimes.com/2024/04/03/world/asia/taiwan-earthquake-aftermath.html
+
+**Zelensky Lowers Draft Age to Shore Up Ukraine’s Depleted Army**\
+`The idea of requiring more men to join the fight against Russia’s invasion has become toxic politically, but Russia is not relenting in its assault.`\
+https://nytimes.com/2024/04/03/world/europe/zelensky-ukraine-military-draft-age.html
+
 **Two Shakespearean Triumphs in Paris, or a Plague on Both Their Houses?**\
 `New productions of “Macbeth” and “Hamlet” follow a French tradition of adapting familiar works. The results are innovative, and sometimes cryptic.`\
 https://nytimes.com/2024/04/03/theater/paris-macbeth-hamlet-shakespeare.html
