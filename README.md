@@ -1,3 +1,7 @@
+**Israel’s military says U.N. observers in Lebanon were wounded by a buried explosive device.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/israels-military-says-un-observers-in-lebanon-were-wounded-by-a-buried-explosive-device
+
 **Whitney Museum Names Chief Curator**\
 `Kim Conaty will steer exhibitions and the permanent collection, saying she will pay close attention to work by Latino and Indigenous artists.`\
 https://nytimes.com/2024/04/03/arts/design/whitney-museum-curator-conaty.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/theater/christopher-durang-dead.html
 **How a Snake Uses Its Sense of Smell**\
 `These reptiles and their social networks are understudied, according to researchers applying scents to different snakes to assess their behavior.`\
 https://nytimes.com/2024/04/03/science/how-a-snake-uses-its-sense-of-smell.html
-
-**Dynamic Storm to Bring Heavy, Wet Snow and Strong Winds to New England**\
-`Snow in April is not uncommon, a meteorologist said, but this storm comes after a recent stretch of warmer spring weather across the Northeast.`\
-https://nytimes.com/2024/04/03/us/noreaster-storm-forecast-weather-vermont-nh.html
 
