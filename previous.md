@@ -1,3 +1,11 @@
+**How to Conduct a Podcast Interview**\
+`A winning essay by Matthew Jeong, age 17.`\
+https://nytimes.com/2024/04/03/learning/how-to-conduct-a-podcast-interview.html
+
+**What Can You Make or Fix With Your Hands?**\
+`Did you know that manual activities like cooking, making art, playing a musical instrument and building things can be good for your brain?`\
+https://nytimes.com/2024/04/03/learning/what-can-you-make-or-fix-with-your-hands.html
+
 **Spring Holidays**\
 `Do you observe any religious holidays during the season?`\
 https://nytimes.com/2024/04/03/learning/spring-holidays.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/03/nyregion/solar-eclipse-plattsburgh-ny.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/04/03/crosswords/spelling-bee-forum.html
-
-**Taiwan’s preparedness has evolved in response to past quakes.**\
-`By Mike Ives`\
-https://nytimes.com/live/2024/04/02/world/taiwan-earthquake-japan-tsunami/taiwans-preparedness-has-evolved-in-response-to-past-quakes
-
-**Stephen Colbert Chides Trump for Ignoring Expanded Gag Order**\
-`Colbert said that after the order was amended, the former president “paused, listened to his critics and launched another attack on the judge’s daughter, this time with photos.”`\
-https://nytimes.com/2024/04/03/arts/television/late-night-trump-gag-order.html
 

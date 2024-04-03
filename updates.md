@@ -1,3 +1,11 @@
+**How to Conduct a Podcast Interview**\
+`A winning essay by Matthew Jeong, age 17.`\
+https://nytimes.com/2024/04/03/learning/how-to-conduct-a-podcast-interview.html
+
+**What Can You Make or Fix With Your Hands?**\
+`Did you know that manual activities like cooking, making art, playing a musical instrument and building things can be good for your brain?`\
+https://nytimes.com/2024/04/03/learning/what-can-you-make-or-fix-with-your-hands.html
+
 **Spring Holidays**\
 `Do you observe any religious holidays during the season?`\
 https://nytimes.com/2024/04/03/learning/spring-holidays.html
