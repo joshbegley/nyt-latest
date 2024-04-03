@@ -1,3 +1,7 @@
+**How a Snake Uses Its Sense of Smell**\
+`These reptiles and their social networks are understudied, according to researchers applying scents to different snakes to assess their behavior.`\
+https://nytimes.com/2024/04/03/science/how-a-snake-uses-its-sense-of-smell.html
+
 **Dynamic Storm to Bring Heavy, Wet Snow and Strong Winds to New England**\
 `Snow in April is not uncommon, a meteorologist said, but this storm comes after a recent stretch of warmer spring weather across the Northeast.`\
 https://nytimes.com/2024/04/03/us/noreaster-storm-forecast-weather-vermont-nh.html

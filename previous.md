@@ -1,3 +1,7 @@
+**How a Snake Uses Its Sense of Smell**\
+`These reptiles and their social networks are understudied, according to researchers applying scents to different snakes to assess their behavior.`\
+https://nytimes.com/2024/04/03/science/how-a-snake-uses-its-sense-of-smell.html
+
 **Dynamic Storm to Bring Heavy, Wet Snow and Strong Winds to New England**\
 `Snow in April is not uncommon, a meteorologist said, but this storm comes after a recent stretch of warmer spring weather across the Northeast.`\
 https://nytimes.com/2024/04/03/us/noreaster-storm-forecast-weather-vermont-nh.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/world/asia/taiwan-earthquake-aftermath.html
 **Zelensky Lowers Draft Age to Shore Up Ukraine’s Depleted Army**\
 `The idea of requiring more men to join the fight against Russia’s invasion has become toxic politically, but Russia is not relenting in its assault.`\
 https://nytimes.com/2024/04/03/world/europe/zelensky-ukraine-military-draft-age.html
-
-**Two Shakespearean Triumphs in Paris, or a Plague on Both Their Houses?**\
-`New productions of “Macbeth” and “Hamlet” follow a French tradition of adapting familiar works. The results are innovative, and sometimes cryptic.`\
-https://nytimes.com/2024/04/03/theater/paris-macbeth-hamlet-shakespeare.html
 
