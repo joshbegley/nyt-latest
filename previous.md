@@ -1,4 +1,8 @@
-**Strong Quake Strikes Taiwan, Setting off Tsunami Warning in Japan**\
+**Map: 7.4-Magnitude Earthquake Strikes Taiwan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/04/02/world/02wea-quake-tracker-philippine-sea.html
+
+**Strong Quake Strikes Taiwan, Setting Off Tsunami Warning in Japan**\
 `The magnitude 7.4 quake was centered off the coast of Hualien on the island’s east coast.`\
 https://nytimes.com/2024/04/02/world/asia/taiwan-earthquake.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/books/john-barth-dead.html
 **The Appalling Tactics of the ‘Free Palestine’ Movement**\
 `What does it say about a cause that won’t weed out its worst members or stamp out its worst ideas?`\
 https://nytimes.com/2024/04/02/opinion/the-appalling-tactics-of-the-free-palestine-movement.html
-
-**What We Know About the Iranian Commanders Killed by Israel in Syria**\
-`The leaders included Gen. Mohammad Reza Zahedi, the senior most leader in Iran’s armed forces assassinated since Qassim Suleimani was killed in 2020.`\
-https://nytimes.com/2024/04/02/world/middleeast/iran-commanders-syria-strike-israel.html
 
