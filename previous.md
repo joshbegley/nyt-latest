@@ -1,3 +1,7 @@
+**Nebraska Republicans Renew Push for ‘Winner Take All’ Electoral System**\
+`In 2020, Joseph R. Biden Jr. won one electoral vote in a state that divides its votes by congressional district. Donald J. Trump has supported the stalled effort to change the system.`\
+https://nytimes.com/2024/04/03/us/politics/nebraska-republicans-push-to-change-winner-take-all-electoral-votes.html
+
 **#MeToo Stalled in France. This Actress Might Be Changing Things.**\
 `Judith Godrèche says the abuse of children and women is stitched into the fabric of the French movie industry. This time, the country seems to be listening more closely.`\
 https://nytimes.com/2024/04/03/movies/judith-godreche-metoo-abuse-france.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/style/boston-marathon-medals.html
 **How California’s Fire Season Might Shape Up This Year**\
 `It’s been a rainy winter, but that won’t necessarily mean fewer wildfires.`\
 https://nytimes.com/2024/04/03/us/california-fire-season.html
-
-**How Can Our Friends Choose a Realtor Other Than My Husband?**\
-`A reader is angered by friends who list their homes with other real estate brokers — sometimes without giving his husband a chance to make his case.`\
-https://nytimes.com/2024/04/03/style/mixing-business-and-friendship.html
 

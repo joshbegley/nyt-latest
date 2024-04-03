@@ -1,3 +1,7 @@
+**Nebraska Republicans Renew Push for ‘Winner Take All’ Electoral System**\
+`In 2020, Joseph R. Biden Jr. won one electoral vote in a state that divides its votes by congressional district. Donald J. Trump has supported the stalled effort to change the system.`\
+https://nytimes.com/2024/04/03/us/politics/nebraska-republicans-push-to-change-winner-take-all-electoral-votes.html
+
 **#MeToo Stalled in France. This Actress Might Be Changing Things.**\
 `Judith Godrèche says the abuse of children and women is stitched into the fabric of the French movie industry. This time, the country seems to be listening more closely.`\
 https://nytimes.com/2024/04/03/movies/judith-godreche-metoo-abuse-france.html
