@@ -1,3 +1,7 @@
+**World Central Kitchen sent ships with hundreds of tons of food back to Cyprus.**\
+`Humanitarian agencies say they are being more cautious about delivering aid, and at least two have suspended operations.`\
+https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/aid-convoy-israel-world-central-kitchen
+
 **Attack on Workers Immediately Worsened the Aid Situation in Gaza**\
 `Humanitarian agencies say they are being more cautious about delivering aid, and at least two have suspended operations.`\
 https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/aid-convoy-israel-world-central-kitchen
