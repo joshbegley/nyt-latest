@@ -1,3 +1,7 @@
+**Another Poll Shows Biden Trailing in Key States**\
+`The findings from the Wall Street Journal’s poll of seven battleground states echo other recent surveys.`\
+https://nytimes.com/2024/04/03/us/politics/trump-biden-wsj-poll.html
+
 **Popcast (Deluxe): Listening to Beyoncé & Future (and the Discourse)**\
 `How conversation about very specific aspects of the new albums “Cowboy Carter” and “We Don’t Trust You” can obscure talk of their musical quality.`\
 https://nytimes.com/2024/04/03/arts/music/beyonce-future-drake-discourse-popcast-deluxe.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/03/arts/editors-recommendations-irongian
 **Contradicting Trump, Ruby Garcia’s Sister Says He Never Contacted Family**\
 `The former president held up the death of a young Michigan woman at a campaign rally as an example of what he calls “migrant crime,” and claimed to have spoken to her family.`\
 https://nytimes.com/2024/04/03/us/politics/trump-ruby-garcia-migrant-crime.html
-
-**Lizzo Says She Is Not Leaving Music Industry After ‘I Quit’ Post**\
-`Lizzo clarified that she was not quitting music after writing on Instagram last week that she was “starting to feel like the world doesn’t want me in it.”`\
-https://nytimes.com/2024/04/03/arts/music/lizzo-quit-music-instagram-video.html
 
