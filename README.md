@@ -1,4 +1,8 @@
-**Son of Dominican Republic Politician is Fatally Shot in Houston, Police Say**\
+**Popcast (Deluxe): Listening to Beyoncé & Future (and the Discourse)**\
+`How conversation about very specific aspects of the new albums “Cowboy Carter” and “We Don’t Trust You” can obscure talk of their musical quality.`\
+https://nytimes.com/2024/04/03/arts/music/beyonce-future-drake-discourse-popcast-deluxe.html
+
+**Son of Dominican Republic Politician Is Fatally Shot in Houston, Police Say**\
 `Luis Alfredo Pacheco Rojas, 34, son of Alfredo Pacheco, the president of the Chamber of Deputies of the Dominican Republic, was killed on Monday in a drive-by shooting, the authorities said.`\
 https://nytimes.com/2024/04/03/us/luis-alfredo-pacheco-dominican-republic.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/us/politics/trump-ruby-garcia-migrant-crime.html
 **Lizzo Says She Is Not Leaving Music Industry After ‘I Quit’ Post**\
 `Lizzo clarified that she was not quitting music after writing on Instagram last week that she was “starting to feel like the world doesn’t want me in it.”`\
 https://nytimes.com/2024/04/03/arts/music/lizzo-quit-music-instagram-video.html
-
-**Beyoncé Doesn’t Skimp on Flowers**\
-`In recent weeks, Beyoncé has sent elaborate all-white arrangements to musicians including Jack White, K. Michelle and Nicki Minaj.`\
-https://nytimes.com/2024/04/03/style/beyonce-cowboy-carter-flowers.html
 
