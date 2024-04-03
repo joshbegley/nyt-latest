@@ -1,3 +1,7 @@
+**U.S. Intelligence Warning to Moscow Named Specific Target of Attack**\
+`The C.I.A. told Russia that Islamic State terrorists were plotting an attack on Crocus City Hall, a concert venue.`\
+https://nytimes.com/2024/04/02/us/politics/moscow-attack-us-warning.html
+
 **Map: 7.4-Magnitude Earthquake Strikes Taiwan**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/04/02/world/asia/02wea-quake-tracker-taiwan.html

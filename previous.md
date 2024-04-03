@@ -1,3 +1,7 @@
+**U.S. Intelligence Warning to Moscow Named Specific Target of Attack**\
+`The C.I.A. told Russia that Islamic State terrorists were plotting an attack on Crocus City Hall, a concert venue.`\
+https://nytimes.com/2024/04/02/us/politics/moscow-attack-us-warning.html
+
 **With Abortion on the Ballot, Trump Says He’ll Address the Issue ‘Next Week’**\
 `Two rulings on abortion by the Florida Supreme Court shook up the race in Donald Trump’s home state and present a potential new vulnerability for his campaign.`\
 https://nytimes.com/2024/04/02/us/politics/trump-abortion-florida.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/02/business/media/paramount-skydance-exclusive-talks
 **Maryse Condé, ‘Grande Dame’ of Francophone Literature, Dies at 90**\
 `She explored the history and culture of Africa, the West Indies and Europe in work that made her a perennial favorite for the Nobel Prize.`\
 https://nytimes.com/2024/04/02/books/maryse-conde-dead.html
-
-**John Barth, Writer Who Pushed Storytelling’s Limits, Dies at 93**\
-`His sprawling and boisterous novel “The Sot-Weed Factor,” published in 1960, projected him into the ranks of the country’s most innovative writers.`\
-https://nytimes.com/2024/04/02/books/john-barth-dead.html
 
