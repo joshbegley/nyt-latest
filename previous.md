@@ -2,8 +2,8 @@
 `Pep up your entry into April with a politics quiz.`\
 https://nytimes.com/interactive/2024/04/03/opinion/columnists/spring-politics-quiz.html
 
-**Traders Scramble to Bet Against Trump Media**\
-`The parent company of Truth Social is a popular target for short sellers, even after they lost $100 million last month betting on a decline in the stock that didn’t come.`\
+**Traders Are Betting Millions That Trump Media Will Tumble**\
+`The parent company of Truth Social is a popular target for short-sellers, even after they lost $100 million last month betting on a decline in the stock that didn’t come.`\
 https://nytimes.com/2024/04/03/business/trump-media-short-selling.html
 
 **What Janet Yellen Needs to Tell China’s Leaders**\
