@@ -1,3 +1,7 @@
+**Has the FAFSA Delay Changed Your Decisions Around College?**\
+`We want to hear from readers about how they’re choosing their schools while waiting for financial aid packages.`\
+https://nytimes.com/2024/04/03/us/fafsa-callout.html
+
 **U.S. and China Continue to Talk, but Economic Divide Remains Wide**\
 `Election-year rancor will make it difficult for Washington and Beijing to find areas of cooperation on trade and investment.`\
 https://nytimes.com/2024/04/03/us/politics/us-china-economic-divide.html
