@@ -1,3 +1,7 @@
+**Interest Rates and the Election**\
+`The Fed is expected to cut rates soon. Doing so could pull it into a partisan fight.`\
+https://nytimes.com/2024/04/03/briefing/federal-reserve-election.html
+
 **Israel Takes Responsibility for Strike That Killed Aid Workers, and Tesla’s Sales Drop**\
 `Plus, the fight to see the eclipse.`\
 https://nytimes.com/2024/04/03/podcasts/israel-aid-strike-tesla.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/opinion/leonard-leo-heritage-trump-2025.html
 **Disney’s Annual Meeting Will Include a Thrill Ride**\
 `A nasty and expensive fight over board seats will come to a climax Wednesday when shareholders vote on Nelson Peltz’s bid for influence.`\
 https://nytimes.com/2024/04/03/business/disney-peltz-trian-proxy-vote.html
-
-**Switching From iPhone to Android Is Easy. It’s the Aftermath That Stings.**\
-`Even if you manage to ditch your iPhone, Apple’s hooks are still there.`\
-https://nytimes.com/2024/04/03/technology/personaltech/iphone-android-ios-apple.html
 
