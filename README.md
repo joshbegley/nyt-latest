@@ -1,3 +1,7 @@
+**Attack on Workers Immediately Worsened the Aid Situation in Gaza**\
+`Humanitarian agencies say they are being more cautious about delivering aid, and at least two have suspended operations.`\
+https://nytimes.com/2024/04/03/world/middleeast/aid-convoy-israel-world-central-kitchen.html
+
 **Christopher Durang, the Surrealist of Snark**\
 `In works like “Vanya and Sonia and Masha and Spike,” the playwright would force you to laugh, not to dull the pain but to hone it.`\
 https://nytimes.com/2024/04/03/theater/christopher-durang-playwright-appraisal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/us/noreaster-storm-forecast-weather-vermont-nh.ht
 **What Tesla’s Troubles Signal for the E.V. Revolution**\
 `The carmaker’s disappointing results point to slowing demand and a “sharp deterioration in growth” that extends beyond Elon Musk’s company.`\
 https://nytimes.com/2024/04/03/business/dealbook/tesla-musk-electric-vehicles.html
-
-**Taiwan’s Strongest Earthquake in 25 Years Injures Hundreds**\
-`The magnitude-7.4 quake was followed by over 100 aftershocks. Dozens of people were trapped. Two buildings in the city of Hualien teetered perilously.`\
-https://nytimes.com/2024/04/03/world/asia/taiwan-earthquake.html
 
