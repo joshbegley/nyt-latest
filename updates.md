@@ -1,3 +1,7 @@
+**Strong Quake Strikes Taiwan, Setting Off Tsunami Warning in Japan**\
+`The magnitude 7.4 quake was centered off the coast of Hualien on the island’s east coast.`\
+https://nytimes.com/live/2024/04/02/world/taiwan-earthquake-japan-tsunami/taiwan-earthquake
+
 **Map: 7.4-Magnitude Earthquake Strikes Taiwan**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/04/02/world/02wea-quake-tracker-philippine-sea.html
