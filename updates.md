@@ -1,3 +1,7 @@
+**Son of Dominican Republic Politician Is Fatally Shot in Houston, Police Say**\
+`Luis Alfredo Pacheco Rojas, 34, son of Alfredo Pacheco, the president of the Chamber of Deputies of the Dominican Republic, was killed on Monday in a drive-by shooting, the authorities said.`\
+https://nytimes.com/2024/04/03/us/luis-alfredo-pacheco-dominican-republic.html
+
 **Another Poll Shows Biden Trailing in Key States**\
 `The findings from the Wall Street Journal’s poll of seven battleground states echo other recent surveys.`\
 https://nytimes.com/2024/04/03/us/politics/trump-biden-wsj-poll.html
