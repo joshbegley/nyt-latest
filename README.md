@@ -1,3 +1,7 @@
+**NATO Weighs Taking Over U.S.-Led Group Directing Ukraine Military Aid**\
+`The proposal faces several obstacles, including whether all members would agree to the changes. But the alliance is worried about wavering American support for Kyiv.`\
+https://nytimes.com/2024/04/03/world/europe/nato-ukraine-funding.html
+
 **Christopher Durang, Playwright Who Mixed High Art and Low Humor, Dies at 75**\
 `In a career spanning more than 40 years, he established himself as a hyperliterate jester and an anarchic clown.`\
 https://nytimes.com/2024/04/03/theater/christopher-durang-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/podcasts/the-daily/biden-tax-cuts.html
 **Inflation Cools in Eurozone, Nearing Central Bank’s Target**\
 `Prices in the countries that use the euro rose 2.4 percent in the year through March, coming closer to the European Central Bank’s 2 percent inflation target.`\
 https://nytimes.com/2024/04/03/business/eurozone-inflation-germany.html
-
-**What We Know About the Earthquake in Taiwan**\
-`The quake set off aftershocks and damaged dozens of buildings, killing nine people and leaving many injured or trapped.`\
-https://nytimes.com/2024/04/03/world/asia/taiwan-earthquake-aftermath.html
 
