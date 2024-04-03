@@ -1,3 +1,7 @@
+**03mideast-crisis**\
+`Israeli Military Takes Responsibility for Strike That Killed 7 Aid Workers`\
+https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news
+
 **Ugandan Court Upholds Draconian Anti-Gay Law**\
 `The law, which includes the death penalty as a punishment in some cases, has been strongly condemned, including by the United States.`\
 https://nytimes.com/2024/04/03/world/africa/uganda-anti-gay-law.html
