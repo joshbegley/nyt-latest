@@ -1,3 +1,11 @@
+**Review: Jonathan Tetelman Arrives at the Met in ‘La Rondine’**\
+`The tenor sang the role of Ruggero in a revival of Puccini’s opera that was performed with such restraint, it verged on overly careful.`\
+https://nytimes.com/2024/04/03/arts/music/la-rondine-met-opera-review.html
+
+**For Len Cariou, Dying Onstage Each Night Has Been ‘Invigorating’**\
+`In “Tuesdays With Morrie,” the 84-year-old actor was eager to tackle “a rich role in a show that asks, ‘What if despair and death are not the end?’”`\
+https://nytimes.com/2024/04/03/theater/len-cariou-tuesdays-with-morrie.html
+
 **Julia Stiles Wanted to Be Just Like Kat Stratford, Too**\
 `Twenty-five years after “10 Things I Hate About You” made her stand out among a generation of young stars, she’s stayed true to the ideals of her most famous character.`\
 https://nytimes.com/2024/04/03/movies/julia-stiles-10-things-interview.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/03/movies/judith-godreche-metoo-abuse-france.html
 **Lauren Boebert Has Blood Clot Removed After Hospitalization for Leg Swelling**\
 `The far-right firebrand from Colorado, who is part of a slim Republican majority in the House, is expected to make a full recovery, her campaign said.`\
 https://nytimes.com/2024/04/03/us/politics/lauren-boebert-hospitalized-blood-clot.html
-
-**A 15-Minute, Five-Ingredient Childhood Favorite**\
-`Priya Krishna’s headily spiced everyday dal is essential comfort food.`\
-https://nytimes.com/2024/04/03/dining/a-15-minute-five-ingredient-childhood-favorite.html
-
-**Israel’s military says U.N. observers in Lebanon were wounded by a buried explosive device.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/israels-military-says-un-observers-in-lebanon-were-wounded-by-a-buried-explosive-device
 
