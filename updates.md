@@ -1,3 +1,7 @@
+**Frustrated Prosecutors Ask Trump Documents Judge to Act on Key Claim**\
+`The push for a quick decision on one of the former president’s most far-fetched claims is an unusual and risky move in a case Judge Aileen Cannon has allowed to become bogged down.`\
+https://nytimes.com/2024/04/03/us/politics/trump-documents-case-judge-cannon.html
+
 **Word of the Day: virtuoso**\
 `This word has appeared in 100 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/03/learning/word-of-the-day-virtuoso.html
