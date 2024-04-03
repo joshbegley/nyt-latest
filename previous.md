@@ -1,3 +1,7 @@
+**A Quick Skillet Turkey Dinner You’ll Make Over and Over**\
+`This easy Melissa Clark recipe, inspired by the zesty, pungent flavors of larb, turns unassuming ground turkey into a star.`\
+https://nytimes.com/2024/04/03/dining/ground-turkey-dinner-recipe.html
+
 **Everybody Wants a Piece of South Carolina’s $1.8 Billion Surplus. Is It Real?**\
 `Whom does it belongs to? How did it get there? Why? The more legislators dig, the murkier things seem to get.`\
 https://nytimes.com/2024/04/03/us/south-carolina-bank-account.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/arts/television/eli-noyes-dead.html
 **Donald Trump and the Justice System**\
 `Readers discuss how the former president is or is not getting special treatment. Also: The killing of aid workers in Gaza; screens in the classroom.`\
 https://nytimes.com/2024/04/03/opinion/donald-trump-justice-system.html
-
-**This Basketball Season, Root for the Women**\
-`Professional women’s basketball is ripe for the groundswell that has come for the college teams.`\
-https://nytimes.com/live/2024/04/02/opinion/thepoint/caitlin-clark-womens-basketball
 
