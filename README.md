@@ -1,3 +1,11 @@
+**Lizzo Says She Is Not Leaving Music Industry After ‘I Quit’ Post**\
+`Lizzo clarified that she was not quitting music after writing on Instagram last week that she was “starting to feel like the world doesn’t want me in it.”`\
+https://nytimes.com/2024/04/03/arts/music/lizzo-quit-music-instagram-video.html
+
+**Contradicting Trump, Ruby Garcia’s Sister Says He Never Contacted Family**\
+`The former president held up the death of a young Michigan woman at a campaign rally as an example of what he calls “migrant crime,” and claimed to have spoken to her family.`\
+https://nytimes.com/live/2024/04/03/us/biden-trump-election/trump-ruby-garcia-migrant-crime
+
 **Beyoncé Doesn’t Skimp on Flowers**\
 `In recent weeks, Beyoncé has sent elaborate all-white arrangements to musicians including Jack White, K. Michelle and Nicki Minaj.`\
 https://nytimes.com/2024/04/03/style/beyonce-cowboy-carter-flowers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/03/us/politics/kansas-medicaid-expansion.html
 **Met Opera Taps German Conductor as Next Chorus Director**\
 `Tilman Michael, who leads the Frankfurt Opera’s chorus, will succeed the veteran conductor Donald Palumbo, who steps down this season after 17 years.`\
 https://nytimes.com/2024/04/03/arts/music/tilman-michael-chorus-master-metropolitan-opera.html
-
-**The Best Way to Ring In Spring? Herby Chicken and Noodles**\
-`Balanced with an asparagus-beet salad and a simple citrusy dessert, this dinner from David Tanis has all the best of early spring.`\
-https://nytimes.com/2024/04/03/dining/chicken-noodles-asparagus-recipes.html
-
-**New Jersey Challenges N.Y.C. Congestion Pricing in Federal Court**\
-`A closely watched lawsuit could block or upend the city’s new tolling program, which will charge most vehicles for entering the busiest parts of Manhattan.`\
-https://nytimes.com/2024/04/03/nyregion/nj-congestion-pricing-federal-court.html
 
