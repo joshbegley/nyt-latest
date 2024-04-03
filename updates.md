@@ -1,3 +1,7 @@
+**Food Aid for Gazans Was Sent Back to Cyprus**\
+`Also, Ukraine lowered its draft age. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/04/03/briefing/food-aid-gaza-ukraine-draft-age.html
+
 **The Coming Anarchy in Gaza**\
 `Aid workers have been among the last people holding the place together.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/gaza-aid-israel-anarchy
