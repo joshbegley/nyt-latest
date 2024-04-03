@@ -1,3 +1,7 @@
+**Inside the World Central Kitchen’s Work in Gaza**\
+`The World Central Kitchen has suspended its relief efforts in Gaza after seven aid workers were killed in Israeli airstrikes on Monday. Videos reveal the challenges of food distribution in a territory under siege.`\
+https://nytimes.com/video/world/middleeast/100000009392655/world-central-kitchen-gaza-aid.html
+
 **A Quick Skillet Turkey Dinner You’ll Make Over and Over**\
 `This easy Melissa Clark recipe, inspired by the zesty, pungent flavors of larb, turns unassuming ground turkey into a star.`\
 https://nytimes.com/2024/04/03/dining/ground-turkey-dinner-recipe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/nyregion/nj-congestion-pricing-federal-court.html
 **Eli Noyes, Animator Who Turned Clay and Sand Into Art, Dies at 81**\
 `His innovative stop-motion animation influenced a generation of filmmakers, including the creators of Wallace and Gromit.`\
 https://nytimes.com/2024/04/03/arts/television/eli-noyes-dead.html
-
-**Donald Trump and the Justice System**\
-`Readers discuss how the former president is or is not getting special treatment. Also: The killing of aid workers in Gaza; screens in the classroom.`\
-https://nytimes.com/2024/04/03/opinion/donald-trump-justice-system.html
 
