@@ -1,3 +1,15 @@
+**Met Opera Taps German Conductor as Next Chorus Master**\
+`Tilman Michael, who leads the Frankfurt Opera’s chorus, will succeed the veteran conductor Donald Palumbo, who steps down this season after 17 years.`\
+https://nytimes.com/2024/04/03/arts/music/tilman-michael-chorus-master-metropolitan-opera.html
+
+**The Best Way to Ring In Spring? Herby Chicken and Noodles**\
+`Balanced with an asparagus-beet salad and a simple citrusy dessert, this dinner from David Tanis has all the best of early spring.`\
+https://nytimes.com/2024/04/03/dining/chicken-noodles-asparagus-recipes.html
+
+**New Jersey Challenges N.Y.C. Congestion Pricing in Federal Court**\
+`A closely watched lawsuit could block or upend the city’s new tolling program, which will charge most vehicles for entering the busiest parts of Manhattan.`\
+https://nytimes.com/2024/04/03/nyregion/nj-congestion-pricing-federal-court.html
+
 **Eli Noyes, Animator Who Turned Clay and Sand Into Art, Dies at 81**\
 `His innovative stop-motion animation influenced a generation of filmmakers, including the creators of Wallace and Gromit.`\
 https://nytimes.com/2024/04/03/arts/television/eli-noyes-dead.html
