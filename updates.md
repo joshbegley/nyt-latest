@@ -1,3 +1,7 @@
+**Storm Leaves Trail of Destruction in the Midwest**\
+`Severe weather toppled camper and trees in Ohio and Kentucky as parts of West Virginia were placed under tornado watch.`\
+https://nytimes.com/video/us/100000009394319/tornado-warning-weather-forecast.html
+
 **An English Village Hollowed Out for a Train That May Never Come**\
 `When Britain cut back a planned high-speed rail line, some residents on the route were pleased. They’re less delighted with what happened next.`\
 https://nytimes.com/2024/04/03/world/europe/hs2-uk-village.html
