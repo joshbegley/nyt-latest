@@ -1,3 +1,11 @@
+**Julia Stiles Wanted to Be Just Like Kat Stratford, Too**\
+`Twenty-five years after “10 Things I Hate About You” made her stand out among a generation of young stars, she’s stayed true to the ideals of her most famous character.`\
+https://nytimes.com/2024/04/03/movies/julia-stiles-10-things-interview.html
+
+**Leader of South Africa’s Assembly Resigns Amid Corruption Allegations**\
+`The legal problems of Nosiviwe Mapisa-Nqakula expose the governing African National Congress to one of its biggest weaknesses — corruption allegations — ahead of a crucial national election.`\
+https://nytimes.com/2024/04/03/world/africa/south-africa-speaker-resigns.html
+
 **I Inherited a Nazi Helmet From My Husband. What Should I Do With It?**\
 `The magazine’s Ethicist columnist on what to do with a politically charged heirloom.`\
 https://nytimes.com/2024/04/03/magazine/nazi-helmet-inheritance-ethics.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/03/dining/a-15-minute-five-ingredient-childhood-favo
 **Israel’s military says U.N. observers in Lebanon were wounded by a buried explosive device.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/israels-military-says-un-observers-in-lebanon-were-wounded-by-a-buried-explosive-device
-
-**Whitney Museum Names Chief Curator**\
-`Kim Conaty will steer exhibitions and the permanent collection, saying she will pay close attention to work by Latino and Indigenous artists.`\
-https://nytimes.com/2024/04/03/arts/design/whitney-museum-curator-conaty.html
-
-**World Central Kitchen sent ships with hundreds of tons of food back to Cyprus.**\
-`Humanitarian agencies say they are being more cautious about delivering aid, and at least two have suspended operations.`\
-https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/aid-convoy-israel-world-central-kitchen
 
