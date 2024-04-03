@@ -1,3 +1,11 @@
+**He’s on Death Row for Murders. Prison Workers Say He Should Be Spared.**\
+`Brian Dorsey, who pleaded guilty to murder in the 2006 killings of Sarah and Ben Bonnie, is scheduled to be executed on Tuesday unless Missouri’s governor or the courts step in.`\
+https://nytimes.com/2024/04/03/us/missouri-death-penalty-brian-dorsey.html
+
+**For Red State Holdouts Like Kansas, Is Expanding Medicaid Within Reach?**\
+`As Southern states reconsider Medicaid expansion, Gov. Laura Kelly of Kansas is pushing her own plan meant to appeal to conservatives. So far, success has been elusive.`\
+https://nytimes.com/2024/04/03/us/politics/kansas-medicaid-expansion.html
+
 **Met Opera Taps German Conductor as Next Chorus Master**\
 `Tilman Michael, who leads the Frankfurt Opera’s chorus, will succeed the veteran conductor Donald Palumbo, who steps down this season after 17 years.`\
 https://nytimes.com/2024/04/03/arts/music/tilman-michael-chorus-master-metropolitan-opera.html
