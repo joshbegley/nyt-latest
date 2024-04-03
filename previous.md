@@ -1,3 +1,7 @@
+**The Accidental Tax Cutter in Chief**\
+`President Biden says he wants to rake in more money from corporations and high earners. But so far, he has cut more taxes than he’s raised.`\
+https://nytimes.com/2024/04/03/podcasts/the-daily/biden-tax-cuts.html
+
 **Inflation Cools in Eurozone, Nearing Central Bank’s Target**\
 `Prices in the countries that use the euro rose 2.4 percent in the year through March, coming closer to the European Central Bank’s 2 percent inflation target.`\
 https://nytimes.com/2024/04/03/business/eurozone-inflation-germany.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/technology/personaltech/iphone-android-ios-apple.
 **How Beagles and a Fever Dream Made Rebel Wilson a Star**\
 `The actress, known for roles in the “Pitch Perfect” movies, gets vulnerable about her weight loss, sexuality and money in her new memoir, “Rebel Rising.”`\
 https://nytimes.com/2024/04/03/books/rebel-wilson-memoir.html
-
-**Scotland’s Censorship Experiment Threatens Free Expression**\
-`A new Scottish law criminalizes public speech deemed “insulting” to a protected group.`\
-https://nytimes.com/live/2024/04/02/opinion/thepoint/scotlands-censorship-experiment-threatens-free-expression
 

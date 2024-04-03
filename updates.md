@@ -1,3 +1,7 @@
+**The Accidental Tax Cutter in Chief**\
+`President Biden says he wants to rake in more money from corporations and high earners. But so far, he has cut more taxes than he’s raised.`\
+https://nytimes.com/2024/04/03/podcasts/the-daily/biden-tax-cuts.html
+
 **Inflation Cools in Eurozone, Nearing Central Bank’s Target**\
 `Prices in the countries that use the euro rose 2.4 percent in the year through March, coming closer to the European Central Bank’s 2 percent inflation target.`\
 https://nytimes.com/2024/04/03/business/eurozone-inflation-germany.html
