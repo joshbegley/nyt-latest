@@ -4,7 +4,7 @@ https://nytimes.com/2024/04/03/arts/music/lizzo-quit-music-instagram-video.html
 
 **Contradicting Trump, Ruby Garcia’s Sister Says He Never Contacted Family**\
 `The former president held up the death of a young Michigan woman at a campaign rally as an example of what he calls “migrant crime,” and claimed to have spoken to her family.`\
-https://nytimes.com/live/2024/04/03/us/biden-trump-election/trump-ruby-garcia-migrant-crime
+https://nytimes.com/2024/04/03/us/politics/trump-ruby-garcia-migrant-crime.html
 
 **Beyoncé Doesn’t Skimp on Flowers**\
 `In recent weeks, Beyoncé has sent elaborate all-white arrangements to musicians including Jack White, K. Michelle and Nicki Minaj.`\
