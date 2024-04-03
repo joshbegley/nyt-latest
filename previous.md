@@ -1,4 +1,4 @@
-**Inside the World Central Kitchen’s Work in Gaza**\
+**Inside World Central Kitchen’s Work in Gaza**\
 `The World Central Kitchen has suspended its relief efforts in Gaza after seven aid workers were killed in Israeli airstrikes on Monday. Videos reveal the challenges of food distribution in a territory under siege.`\
 https://nytimes.com/video/world/middleeast/100000009392655/world-central-kitchen-gaza-aid.html
 
