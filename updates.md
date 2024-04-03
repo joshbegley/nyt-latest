@@ -1,3 +1,11 @@
+**Julia Stiles Wanted to Be Just Like Kat Stratford, Too**\
+`Twenty-five years after “10 Things I Hate About You” made her stand out among a generation of young stars, she’s stayed true to the ideals of her most famous character.`\
+https://nytimes.com/2024/04/03/movies/julia-stiles-10-things-interview.html
+
+**Leader of South Africa’s Assembly Resigns Amid Corruption Allegations**\
+`The legal problems of Nosiviwe Mapisa-Nqakula expose the governing African National Congress to one of its biggest weaknesses — corruption allegations — ahead of a crucial national election.`\
+https://nytimes.com/2024/04/03/world/africa/south-africa-speaker-resigns.html
+
 **I Inherited a Nazi Helmet From My Husband. What Should I Do With It?**\
 `The magazine’s Ethicist columnist on what to do with a politically charged heirloom.`\
 https://nytimes.com/2024/04/03/magazine/nazi-helmet-inheritance-ethics.html
