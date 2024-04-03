@@ -1,3 +1,7 @@
+**In a televised show of unity and defiance, Iran and its proxy militias denounce Israel and the U.S.**\
+`By Farnaz Fassihi and Hwaida Saad`\
+https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/in-a-televised-show-of-unity-and-defiance-iran-and-its-proxy-militias-denounce-israel-and-the-us
+
 **Texas National Guard Member Charged With Migrant Smuggling**\
 `The arrest marked at least the second time in the last year that National Guard members in Texas had been caught trying to transport migrants from the border.`\
 https://nytimes.com/2024/04/03/us/texas-national-guard-migrant-smuggling.html
