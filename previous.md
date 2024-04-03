@@ -1,3 +1,11 @@
+**The U.S. Is Rebuilding a Legal Pathway for Refugees. The Election Could Change That.**\
+`President Biden is restoring resources and staffing for the refugee program, which was gutted during the Trump administration.`\
+https://nytimes.com/2024/04/02/us/politics/legal-pathway-refugees-election.html
+
+**Choice Cuts**\
+`Alex Eaton-Salners leaves space for the unknown.`\
+https://nytimes.com/2024/04/02/crosswords/daily-puzzle-2024-04-03.html
+
 **Wisconsin Voters Approve Bans on Private Aid for Election Offices**\
 `Wisconsin’s Republican-led Legislature proposed changing the State Constitution to restrict private funding and staffing of election offices.`\
 https://nytimes.com/2024/04/02/us/wisconsin-election-ballot-measures.html
@@ -12,7 +20,7 @@ https://nytimes.com/2024/04/02/us/politics/trump-abortion-florida.html
 
 **Map: 7.4-Magnitude Earthquake Strikes Taiwan**\
 `View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2024/04/02/world/asia/02wea-quake-tracker-taiwan.html
+https://nytimes.com/interactive/2024/04/02/world/asia/map-taiwan-earthquake-hualien.html
 
 **Here’s what you need to know about the earthquake.**\
 `The magnitude 7.4 quake was centered off the coast of Hualien on the island’s east coast.`\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/02/world/israel-hamas-war-gaza-news/in-un-meeti
 **John Barth, a Novelist Who Found Possibility in a ‘Used-Up’ Form**\
 `By merrily using fiction to dissect itself, he was at the vanguard of a movement that defined a postwar American style.`\
 https://nytimes.com/2024/04/02/books/review/john-barth-appreciation.html
-
-**Biden Administration Presses Congress on $18 Billion Sale of F-15 Jets to Israel**\
-`The deal, which would be one of the largest U.S. arms sales to Israel in years, awaits congressional approval as criticism of the war in Gaza rises.`\
-https://nytimes.com/2024/04/02/us/politics/biden-israel-weapons-deal.html
-
-**Deal Talks Between Paramount and Skydance Heat Up**\
-`David Ellison, the founder of the Skydance media company, met with Paramount’s board of directors late last month to discuss the deal.`\
-https://nytimes.com/2024/04/02/business/media/paramount-skydance-exclusive-talks.html
 

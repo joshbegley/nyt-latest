@@ -1,3 +1,15 @@
+**The U.S. Is Rebuilding a Legal Pathway for Refugees. The Election Could Change That.**\
+`President Biden is restoring resources and staffing for the refugee program, which was gutted during the Trump administration.`\
+https://nytimes.com/2024/04/02/us/politics/legal-pathway-refugees-election.html
+
+**Choice Cuts**\
+`Alex Eaton-Salners leaves space for the unknown.`\
+https://nytimes.com/2024/04/02/crosswords/daily-puzzle-2024-04-03.html
+
+**Map: 7.4-Magnitude Earthquake Strikes Taiwan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/04/02/world/asia/map-taiwan-earthquake-hualien.html
+
 **Wisconsin Voters Approve Bans on Private Aid for Election Offices**\
 `Wisconsin’s Republican-led Legislature proposed changing the State Constitution to restrict private funding and staffing of election offices.`\
 https://nytimes.com/2024/04/02/us/wisconsin-election-ballot-measures.html
