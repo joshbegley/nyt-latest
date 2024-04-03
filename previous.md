@@ -1,3 +1,7 @@
+**Judge Won’t Delay Trump’s Criminal Trial to Wait for Immunity Ruling**\
+`The former president had asked the judge to push back his Manhattan criminal trial, slated to begin April 15, until after the Supreme Court decides whether he is immune from prosecution.`\
+https://nytimes.com/2024/04/03/nyregion/trump-merchan-immunity-ruling.html
+
 **They Had Just Delivered Tons of Food. Then Their Convoy Was Hit.**\
 `The deaths of World Central Kitchen workers pushed the number of aid employees killed during the war in Gaza to at least 196, according to the U.N. secretary general, António Guterres.`\
 https://nytimes.com/2024/04/03/world/middleeast/israel-world-central-kitchen-gaza.html
