@@ -1,3 +1,7 @@
+**The Taiwan Earthquake’s Aftermath in Photos**\
+`TK summary`\
+https://nytimes.com/2024/04/03/world/asia/the-taiwan-earthquakes-aftermath-in-photos.html
+
 **Quotation of the Day: More Than Many Realized, the Bridge Connected All of Baltimore**\
 `Quotation of the Day for Wednesday, April 3, 2024.`\
 https://nytimes.com/2024/04/03/pageoneplus/quotation-of-the-day-more-than-many-realized-the-bridge-connected-all-of-baltimore.html
