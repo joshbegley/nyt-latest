@@ -1,3 +1,7 @@
+**Stephen Colbert Chides Trump for Ignoring Expanded Gag Order**\
+`Colbert said that after the order was amended, the former president “paused, listened to his critics and launched another attack on the judge’s daughter, this time with photos.”`\
+https://nytimes.com/2024/04/03/arts/television/late-night-trump-gag-order.html
+
 **Frustrated Prosecutors Ask Trump Documents Judge to Act on Key Claim**\
 `The push for a quick decision on one of the former president’s most far-fetched claims is an unusual and risky move in a case Judge Aileen Cannon has allowed to become bogged down.`\
 https://nytimes.com/2024/04/03/us/politics/trump-documents-case-judge-cannon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/briefing/gaza-aid-workers-biden-xi.html
 **For Lithuania, Unease Over a Growing Russian-Speaking Diaspora**\
 `An influx of exiled Russian activists and refugees from Ukraine and Belarus is stirring fears in a country that fought to preserve its language and culture under Soviet occupation.`\
 https://nytimes.com/2024/04/03/world/europe/lithuania-russian-diaspora.html
-
-**An English Village Hollowed Out for a Train That May Never Come**\
-`When Britain cut back a planned high-speed rail line, some residents on the route were pleased. They’re less delighted with what happened next.`\
-https://nytimes.com/2024/04/03/world/europe/hs2-uk-village.html
 
