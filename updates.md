@@ -1,3 +1,7 @@
+**What to Watch This Weekend: A Riveting True-Crime Drama**\
+`“Mr. Bates vs. the Post Office,” premiering Sunday on PBS, is a shattering mini-series about a real-life injustice.`\
+https://nytimes.com/2024/04/04/arts/television/mr-bates-vs-the-post-office.html
+
 **California Congressional Primary Has a Rare Tie for a Runoff Spot**\
 `Never before has California’s primary system resulted in a three-way runoff for a congressional seat.`\
 https://nytimes.com/2024/04/04/us/politics/california-three-way-runoff-silicon-valley.html
