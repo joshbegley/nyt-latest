@@ -1,3 +1,7 @@
+**U.S. Charges 8 in Beer Heists That Targeted Trains and Warehouses**\
+`The men stole hundreds of thousands of dollars’ worth of beer, mostly Modelo and Corona, by robbing rail yards and warehouses across the Northeast, federal prosecutors said.`\
+https://nytimes.com/2024/04/03/nyregion/jose-cesari-beer-scheme.html
+
 **Trump Spoke Recently With Saudi Leader**\
 `It is not clear what the former president discussed with Prince Mohammed bin Salman, but news of their call came amid Biden administration negotiations with the Saudis over a Middle East peace plan.`\
 https://nytimes.com/2024/04/03/us/politics/trump-spoke-recently-with-saudi-leader.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/in-a-televi
 **Texas National Guard Member Charged With Migrant Smuggling**\
 `The arrest marked at least the second time in the last year that National Guard members in Texas had been caught trying to transport migrants from the border.`\
 https://nytimes.com/2024/04/03/us/texas-national-guard-migrant-smuggling.html
-
-**Has the FAFSA Delay Changed Your Decisions Around College?**\
-`We want to hear from readers about how they’re choosing their schools while waiting for financial aid packages.`\
-https://nytimes.com/2024/04/03/us/fafsa-callout.html
 
