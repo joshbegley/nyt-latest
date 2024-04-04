@@ -1,3 +1,7 @@
+**Gaetano Pesce, Designer Who Broke the Rules, Is Dead at 84**\
+`He brought surrealism, and politics, into the design world, disdaining conformity and right angles. “He was an enemy of the grid.”`\
+https://nytimes.com/2024/04/04/arts/design/gaetano-pesce-dead.html
+
 **Venice to Charge Day Trippers an Entry Fee to Discourage Overcrowding**\
 `Starting this month, tourists intending to visit the city on busy dates will be required to register on a website, and those coming for a single day will have to pay a little over $5.`\
 https://nytimes.com/2024/04/04/world/europe/venice-entry-fee.html

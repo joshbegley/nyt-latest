@@ -1,3 +1,7 @@
+**Gaetano Pesce, Designer Who Broke the Rules, Is Dead at 84**\
+`He brought surrealism, and politics, into the design world, disdaining conformity and right angles. “He was an enemy of the grid.”`\
+https://nytimes.com/2024/04/04/arts/design/gaetano-pesce-dead.html
+
 **Venice to Charge Day Trippers an Entry Fee to Discourage Overcrowding**\
 `Starting this month, tourists intending to visit the city on busy dates will be required to register on a website, and those coming for a single day will have to pay a little over $5.`\
 https://nytimes.com/2024/04/04/world/europe/venice-entry-fee.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/business/retirement/people-retirement-stories.htm
 **Al Franken’s Memories of Christopher Durang**\
 `The comedian and former senator writes about the late playwright.`\
 https://nytimes.com/2024/04/04/opinion/letters/al-frankens-memories-of-christopher-durang.html
-
-**Plan to Stash Pollution Beneath the Sea Could Save Money and Jobs**\
-`The Italian energy giant Eni sees future profits from collecting carbon dioxide and pumping it into natural gas fields that have been exhausted.`\
-https://nytimes.com/2024/04/04/business/carbon-capture-europe-eni.html
 
