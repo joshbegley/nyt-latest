@@ -1,3 +1,15 @@
+**More than 600 lawyers and retired judges call on the U.K. government to end arms sales to Israel.**\
+`By Mark Landler`\
+https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/more-than-600-lawyers-and-retired-judges-call-on-the-uk-government-to-end-arms-sales-to-israel
+
+**What Biden’s ‘Outrage’ Could Mean For Israel, and a Look at the Drama at Disney**\
+`Plus, aftershocks rattle Taiwan.`\
+https://nytimes.com/2024/04/04/podcasts/biden-israel-taiwan-disney.html
+
+**Israel’s Deadly Airstrike on the World Central Kitchen**\
+`The story behind the pioneering aid group and how it mistakenly came under attack.`\
+https://nytimes.com/2024/04/04/podcasts/the-daily/israels-deadly-airstrike-on-the-world-central-kitchen.html
+
 **After Terrorist Attack in Russia, Tajik Migrants Endure a Crackdown**\
 `The main suspects in a deadly assault near Moscow were from Tajikistan. Now many other Tajiks, who fill jobs in Russia’s wartime economy, are being deported and harassed.`\
 https://nytimes.com/2024/04/04/world/europe/russia-tajiks-terrorist-attack.html

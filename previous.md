@@ -1,3 +1,15 @@
+**More than 600 lawyers and retired judges call on the U.K. government to end arms sales to Israel.**\
+`By Mark Landler`\
+https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/more-than-600-lawyers-and-retired-judges-call-on-the-uk-government-to-end-arms-sales-to-israel
+
+**What Biden’s ‘Outrage’ Could Mean For Israel, and a Look at the Drama at Disney**\
+`Plus, aftershocks rattle Taiwan.`\
+https://nytimes.com/2024/04/04/podcasts/biden-israel-taiwan-disney.html
+
+**Israel’s Deadly Airstrike on the World Central Kitchen**\
+`The story behind the pioneering aid group and how it mistakenly came under attack.`\
+https://nytimes.com/2024/04/04/podcasts/the-daily/israels-deadly-airstrike-on-the-world-central-kitchen.html
+
 **After Terrorist Attack in Russia, Tajik Migrants Endure a Crackdown**\
 `The main suspects in a deadly assault near Moscow were from Tajikistan. Now many other Tajiks, who fill jobs in Russia’s wartime economy, are being deported and harassed.`\
 https://nytimes.com/2024/04/04/world/europe/russia-tajiks-terrorist-attack.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/04/us/raleigh-north-carolina-state-final-four.html
 **A Manhattan Pied-à-Terre for Less Than $800,000? Two Virginia Farmers Gave It a Shot.**\
 `With life on the farm losing its appeal, a couple sought a small second home in the heart of New York’s cultural scene.`\
 https://nytimes.com/interactive/2024/04/04/realestate/manhattan-one-bedroom-sales.html
-
-**Beyoncé’s ‘Cowboy Carter’ Settles the Score With Haters — and With History**\
-`Beyoncé singing country music in this political climate was always going to cause a stir.`\
-https://nytimes.com/2024/04/04/opinion/beyonce-cowboy-carter-country.html
-
-**Building Bridges of Another Kind in Maryland**\
-`Gov. Wes Moore’s public service jobs programs are lifelines to the future.`\
-https://nytimes.com/2024/04/04/opinion/wes-moore-maryland-jobs.html
-
-**Panama’s 2024 Election: What to Know**\
-`Political crisis has embroiled Panama’s May 5 presidential election, exacerbating uncertainty in a country dealing with drought and fallout from widespread protests.`\
-https://nytimes.com/2024/04/04/world/americas/panama-election-2024.html
 
