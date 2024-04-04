@@ -1,3 +1,11 @@
+**Jack Smith Gets a Bit of What He Wanted**\
+`The judge in the documents case rejected for now Donald Trump’s central argument to escape prosecution.`\
+https://nytimes.com/2024/04/04/us/politics/trump-trial-documents-case-cannon-smith.html
+
+**Hochul Orders M.T.A. to Stop Pressuring Marathon to Pay for Lost Tolls**\
+`The Metropolitan Transportation Authority wanted the New York City Marathon to pay $750,000 to make up for toll revenue lost when the Verrazzano-Narrows Bridge was closed.`\
+https://nytimes.com/2024/04/04/nyregion/mta-toll-marathon-hochul.html
+
 **‘Little Women’ and the Art of Breaking Grammatical Rules**\
 `In an evolving language, it ain’t always clear — or important — what’s correct.`\
 https://nytimes.com/2024/04/04/opinion/little-women-grammar-rules.html
