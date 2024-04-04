@@ -3,8 +3,8 @@
 https://nytimes.com/2024/04/04/us/taylor-johnatakis-capitol-riot-sentencing.html
 
 **Proof that every vote matters: California Congressional primary has a rare tie for a runoff spot.**\
-`By Jill Cowan`\
-https://nytimes.com/live/2024/04/04/us/biden-trump-election/proof-that-every-vote-matters-california-congressional-primary-has-a-three-way-tie
+`Never before has California’s primary system resulted in a three-way runoff for a congressional seat.`\
+https://nytimes.com/2024/04/04/us/politics/california-three-way-runoff-silicon-valley.html
 
 **Do You Know How Flavor Works?**\
 `In her new book, “Flavorama,” the flavor scientist Arielle Johnson demystifies the sense of taste. Take this quiz and see how much you know about how taste is perceived.`\
