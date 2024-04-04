@@ -1,3 +1,11 @@
+**How to Become Friends With a Wild Bird**\
+`A winning essay by Shannon Hong, age 16.`\
+https://nytimes.com/2024/04/04/learning/how-to-become-friends-with-a-wild-bird.html
+
+**How to Be a Kid Forever**\
+`A winning essay by Raniya Chowdhury, age 17.`\
+https://nytimes.com/2024/04/04/learning/how-to-be-a-kid-forever.html
+
 **How to Host Unexpected Guests**\
 `A winning essay by Sofia Fontenot, age 18.`\
 https://nytimes.com/2024/04/04/learning/how-to-host-unexpected-guests.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/04/nyregion/adams-olayemi-olurin-baptism.html
 **On the Hunt, a Real Estate Reporter Strikes Gold**\
 `A man’s bizarre scheme to take over a hotel had the makings of an only-in-New-York story.`\
 https://nytimes.com/2024/04/04/insider/on-the-hunt-a-real-estate-reporter-strikes-gold.html
-
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/04/crosswords/connections-companion.html
-
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/04/crosswords/wordle-review.html
 
