@@ -1,3 +1,7 @@
+**Late Night Rebuts Trump’s Call for ‘Christian Visibility Day’**\
+`“This is America, buddy. Every day is ‘Christian Visibility Day,’” Desi Lydic said on Wednesday’s “Daily Show.”`\
+https://nytimes.com/2024/04/04/arts/television/late-night-trump-christian-visibility-day.html
+
 **What to See in N.Y.C. Galleries in April**\
 `Travis Diehl covers Marian Zazeela’s abstract calligraphy, Christopher Baliwas’s “Skin 2 Skin” show and Luigi Zuccheri’s surreal pastoral scenes.`\
 https://nytimes.com/2024/04/04/arts/design/what-to-see-nyc-galleries-april.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/pageoneplus/corrections-april-4-2024.html
 **Coastal Retreat**\
 `Kevin Curry makes a delicious solo crossword debut in The New York Times.`\
 https://nytimes.com/2024/04/03/crosswords/daily-puzzle-2024-04-04.html
-
-**Big Sur Urged to Evacuate as Another Storm Approaches**\
-`Officials are advising people to leave one of the nation’s most scenic coastal stretches before rain washes away more of Highway 1.`\
-https://nytimes.com/2024/04/03/us/big-sur-evacuation-storm.html
 

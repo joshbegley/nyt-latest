@@ -1,3 +1,7 @@
+**Late Night Rebuts Trump’s Call for ‘Christian Visibility Day’**\
+`“This is America, buddy. Every day is ‘Christian Visibility Day,’” Desi Lydic said on Wednesday’s “Daily Show.”`\
+https://nytimes.com/2024/04/04/arts/television/late-night-trump-christian-visibility-day.html
+
 **What to See in N.Y.C. Galleries in April**\
 `Travis Diehl covers Marian Zazeela’s abstract calligraphy, Christopher Baliwas’s “Skin 2 Skin” show and Luigi Zuccheri’s surreal pastoral scenes.`\
 https://nytimes.com/2024/04/04/arts/design/what-to-see-nyc-galleries-april.html
