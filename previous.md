@@ -1,3 +1,15 @@
+**TikTok Turns to Nuns, Veterans and Ranchers in Marketing Blitz**\
+`The video app is spending millions on ads as Congress considers a bill that could lead to a U.S. ban.`\
+https://nytimes.com/2024/04/04/business/media/tiktok-marketing-blitz-ban.html
+
+**A Tantalizing ‘Hint’ That Astronomers Got Dark Energy All Wrong**\
+`Scientists may have discovered a major flaw in their understanding of that mysterious cosmic. That could be good news for the fate of the universe.`\
+https://nytimes.com/2024/04/04/science/space/astronomy-universe-dark-energy.html
+
+**Approaching Weeknight Burnout? The Solution Is Pasta.**\
+`Specifically, midnight pasta with garlic, anchovy, capers and red pepper from David Tanis.`\
+https://nytimes.com/2024/04/04/dining/approaching-weeknight-burnout-the-solution-is-pasta.html
+
 **Tell Us Your Stories About Retirement**\
 `If you’ve reinvented your life after retiring from a career, we want to hear how it’s going and any advice you have for others.`\
 https://nytimes.com/2024/04/04/business/retirement/people-retirement-stories.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/04/04/us/biden-trump-election/election-focus-clima
 **‘Alarming’ Ocean Temperatures Suggest This Hurricane Season Will Be a Daunting One**\
 `An early forecast from one set of experts sees an above-average hurricane season that may rival the busiest years on record.`\
 https://nytimes.com/2024/04/04/climate/ocean-temperature-hurricane-forecast.html
-
-**For Sale: One Huge Drawing, Maybe by Michelangelo**\
-`Former owners of the Renaissance artist’s villa want to sell a sketch once on a kitchen wall. But scholars are divided over whether Michelangelo actually drew it.`\
-https://nytimes.com/2024/04/04/arts/design/michelangelo-villa-drawing-for-sale.html
-
-**Trump Venues Bank on Golf, With Help From Saudi Arabia**\
-`The focus of the former president’s hotel business is shifting from big cities to his golf resorts, which are benefiting from a relationship with the Saudi-funded LIV Golf tournaments.`\
-https://nytimes.com/2024/04/04/us/politics/trump-golf-saudi-arabia.html
-
-**Reworked Italian Jerseys That Celebrate Soccer Style**\
-`Plus: a Nancy Brooks Brody exhibition, a Nile sailboat charter and more recommendations from T Magazine.`\
-https://nytimes.com/2024/04/04/t-magazine/systemarosa-soccer-style.html
 

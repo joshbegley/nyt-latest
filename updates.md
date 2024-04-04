@@ -1,3 +1,15 @@
+**TikTok Turns to Nuns, Veterans and Ranchers in Marketing Blitz**\
+`The video app is spending millions on ads as Congress considers a bill that could lead to a U.S. ban.`\
+https://nytimes.com/2024/04/04/business/media/tiktok-marketing-blitz-ban.html
+
+**A Tantalizing ‘Hint’ That Astronomers Got Dark Energy All Wrong**\
+`Scientists may have discovered a major flaw in their understanding of that mysterious cosmic. That could be good news for the fate of the universe.`\
+https://nytimes.com/2024/04/04/science/space/astronomy-universe-dark-energy.html
+
+**Approaching Weeknight Burnout? The Solution Is Pasta.**\
+`Specifically, midnight pasta with garlic, anchovy, capers and red pepper from David Tanis.`\
+https://nytimes.com/2024/04/04/dining/approaching-weeknight-burnout-the-solution-is-pasta.html
+
 **Tell Us Your Stories About Retirement**\
 `If you’ve reinvented your life after retiring from a career, we want to hear how it’s going and any advice you have for others.`\
 https://nytimes.com/2024/04/04/business/retirement/people-retirement-stories.html
