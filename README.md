@@ -1,3 +1,15 @@
+**Inside a G.O.P. Plan to Encourage Early Voting Despite Trump’s Attacks**\
+`Donald Trump’s falsehoods about mail voting have created a strategic disadvantage for Republicans, who must rely on Election Day turnout. The group Turning Point Action has a $100 million plan to change voters’ habits.`\
+https://nytimes.com/2024/04/04/us/politics/trump-turning-point-action-chase-vote.html
+
+**‘Monkey Man’ Review: Vengeance Is His**\
+`Dev Patel stars as Kid, a human punching bag who comes up with a plan to avenge a past wrong. The hits keep coming and the hero keeps taking them in this rapid-fire film.`\
+https://nytimes.com/2024/04/04/movies/monkey-man-review-dev-patel.html
+
+**John Sinclair, 82, Dies; Counterculture Activist Who Led a ‘Guitar Army’**\
+`His imprisonment for a minor marijuana offense became a cause célèbre. He was released after John Lennon and Yoko Ono sang about him at a protest rally.`\
+https://nytimes.com/2024/04/04/us/john-sinclair-deadd.html
+
 **Do You Have Experience With Gun Violence? Tell Us About It.**\
 `Headway wants to hear from people affected by gun violence and those working to end it.`\
 https://nytimes.com/2024/04/04/headway/gun-violence-community-experience.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/04/movies/musica-clip.html
 **‘Música’ | Anatomy of a Scene**\
 `The director and composer Rudy Mancuso narrates a one-shot sequence from his film, in which he also stars.`\
 https://nytimes.com/video/movies/100000009395965/musica-scene.html
-
-**TikTok Turns to Nuns, Veterans and Ranchers in Marketing Blitz**\
-`The video app is spending millions on ads as Congress considers a bill that could lead to a U.S. ban.`\
-https://nytimes.com/2024/04/04/business/media/tiktok-marketing-blitz-ban.html
-
-**Judge Orders Timely Housing for Migrant Children Waiting at Border**\
-`The decision established that minors at open-air sites were in legal custody of the Department of Homeland Security and thus must receive safe shelter, even if they had not yet been formally processed.`\
-https://nytimes.com/2024/04/04/health/migrant-children-border-housing.html
-
-**A Tantalizing ‘Hint’ That Astronomers Got Dark Energy All Wrong**\
-`Scientists may have discovered a major flaw in their understanding of that mysterious cosmic force. That could be good news for the fate of the universe.`\
-https://nytimes.com/2024/04/04/science/space/astronomy-universe-dark-energy.html
 
