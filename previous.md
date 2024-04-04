@@ -1,3 +1,7 @@
+**These Brooklyn Restaurateurs Are Crossing the East River**\
+`Big names in Brooklyn are heading to Manhattan.`\
+https://nytimes.com/2024/04/04/dining/these-brooklyn-restaurateurs-are-crossing-the-east-river.html
+
 **Septic Installer Is Sentenced to 7 Years for Urging Jan. 6 Mob With Megaphone**\
 `Taylor James Johnatakis, 40, coordinated rioters to rush a police barricade at the Southwest stairs to the U.S. Capitol on Jan. 6.`\
 https://nytimes.com/2024/04/04/us/taylor-johnatakis-capitol-riot-sentencing.html
