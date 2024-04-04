@@ -1,3 +1,19 @@
+**How to Host Unexpected Guests**\
+`A winning essay by Sofia Fontenot, age 18.`\
+https://nytimes.com/2024/04/04/learning/how-to-host-unexpected-guests.html
+
+**How to Make Fear Your Friend**\
+`A winning essay by Zoe Brown, age 14.`\
+https://nytimes.com/2024/04/04/learning/how-to-make-fear-your-friend.html
+
+**Has Your Relationship to School Attendance Changed Since the Pandemic?**\
+`School absences have exploded across the United States. What do you make of this trend?`\
+https://nytimes.com/2024/04/04/learning/has-your-relationship-to-school-attendance-changed-since-the-pandemic.html
+
+**In a Box**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2024/04/04/learning/in-a-box.html
+
 **Trump’s Bond Benefactor Earned Billions From Subprime Car Loans**\
 `Don Hankey said his decision to help Mr. Trump post a $175 million bond was a business decision, though he voted for him in 2016.`\
 https://nytimes.com/2024/04/04/nyregion/don-hankey-car-loan-billionaire.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/04/crosswords/connections-companion.html
 **Today’s Wordle Review**\
 `In case you need some puzzle help.`\
 https://nytimes.com/2024/04/04/crosswords/wordle-review.html
-
-**Name-Calling and Calling the Police: How N.Y.C. Parent Meetings Got Mean**\
-`In school districts across the city, families are fighting over transgender athletes and how race and discrimination are taught in the classroom.`\
-https://nytimes.com/2024/04/04/nyregion/nyc-schools-israel-lgbtq-black-history.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/04/crosswords/spelling-bee-forum.html
-
-**Word of the Day: galore**\
-`This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/04/04/learning/word-of-the-day-galore.html
-
-**Late Night Rebuts Trump’s Call for ‘Christian Visibility Day’**\
-`“This is America, buddy. Every day is ‘Christian Visibility Day,’” Desi Lydic said on Wednesday’s “Daily Show.”`\
-https://nytimes.com/2024/04/04/arts/television/late-night-trump-christian-visibility-day.html
 
