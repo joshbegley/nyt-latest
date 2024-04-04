@@ -1,3 +1,7 @@
+**‘Travels’ Review: A Sonic Flight From Heartbreak**\
+`In his new show, James Harrison Monaco blends storytelling and electronic beats in service of curiosity and escape.`\
+https://nytimes.com/2024/04/04/theater/travels-review-james-harrison-monaco.html
+
 **Biden expressed his frustration with the broader disregard for the suffering of innocents in Gaza.**\
 `In a call with Prime Minister Benjamin Netanyahu of Israel, the president denounced the killing of seven aid workers in Gaza by Israeli military forces as “unacceptable” and said U.S. policy “will be determined” by how Israel changes its approach to the war.`\
 https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/biden-expressed-his-frustration-with-the-broader-disregard-for-the-suffering-of-innocents-in-gaza
