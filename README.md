@@ -1,8 +1,12 @@
+**World Central Kitchen demands an independent investigation into Israel’s deadly strike.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/world-central-kitchen-demands-an-independent-investigation-into-israels-deadly-strike
+
 **More than 600 lawyers and retired judges call on the U.K. government to end arms sales to Israel.**\
 `By Mark Landler`\
 https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/more-than-600-lawyers-and-retired-judges-call-on-the-uk-government-to-end-arms-sales-to-israel
 
-**What Biden’s ‘Outrage’ Could Mean For Israel, and a Look at the Drama at Disney**\
+**What Biden’s Anger Could Mean For Israel, and a Look at the Drama at Disney**\
 `Plus, aftershocks rattle Taiwan.`\
 https://nytimes.com/2024/04/04/podcasts/biden-israel-taiwan-disney.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009395617/biden-trump-age-health-ele
 **Welcome to Raleigh, the New Epicenter of College Basketball**\
 `Students at Duke and U.N.C., both basketball powerhouses, have long labeled North Carolina State their “little brother.” But little brother — and sister — are off to the Final Four.`\
 https://nytimes.com/2024/04/04/us/raleigh-north-carolina-state-final-four.html
-
-**A Manhattan Pied-à-Terre for Less Than $800,000? Two Virginia Farmers Gave It a Shot.**\
-`With life on the farm losing its appeal, a couple sought a small second home in the heart of New York’s cultural scene.`\
-https://nytimes.com/interactive/2024/04/04/realestate/manhattan-one-bedroom-sales.html
 
