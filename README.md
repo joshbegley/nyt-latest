@@ -6,7 +6,7 @@ https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/world-centr
 `By Mark Landler`\
 https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/more-than-600-lawyers-and-retired-judges-call-on-the-uk-government-to-end-arms-sales-to-israel
 
-**What Biden’s Anger Could Mean For Israel, and a Look at the Drama at Disney**\
+**What Biden’s Anger Could Mean for Israel, and a Look at the Drama at Disney**\
 `Plus, aftershocks rattle Taiwan.`\
 https://nytimes.com/2024/04/04/podcasts/biden-israel-taiwan-disney.html
 
