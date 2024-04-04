@@ -1,3 +1,7 @@
+**G.O.P. Congressman’s Wild Claim: F.B.I. Entrapped Jan. 6 Rioters**\
+`More than three years after the attack on Congress, a Republican subcommittee chairman offered a series of baseless and disproved claims about it, reflecting an effort on the right to falsify what occurred.`\
+https://nytimes.com/2024/04/04/us/politics/clay-higgins-jan-6.html
+
 **Review: Turning Dancers Into Aliens One Step at a Time**\
 `Under the artistic leadership of Emily Molnar, Nederlands Dans Theater returned to New York City Center with a less than stellar triple bill.`\
 https://nytimes.com/2024/04/04/arts/dance/review-nederlands-dans-theater.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/headway/gun-violence-community-experience.html
 **When the Rubin Museum Was Divine**\
 `The Rubin will be “reimagined” as a global museum, but our critic says its charismatic presence will be only a troubling memory.`\
 https://nytimes.com/2024/04/04/arts/design/rubin-museum-closing-art-asia-buddhism.html
-
-**Ford Slows Its Push Into Electric Vehicles**\
-`The automaker said it would delay new battery-powered models and shift its focus to hybrid cars, sales of which are rising fast.`\
-https://nytimes.com/2024/04/04/business/ford-delays-electric-vehicles.html
 
