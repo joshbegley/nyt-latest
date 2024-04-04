@@ -1,3 +1,15 @@
+**Biden expressed his frustration with the broader disregard for the suffering of innocents in Gaza.**\
+`In a call with Prime Minister Benjamin Netanyahu of Israel, the president denounced the killing of seven aid workers in Gaza by Israeli military forces as “unacceptable” and said U.S. policy “will be determined” by how Israel changes its approach to the war.`\
+https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/biden-expressed-his-frustration-with-the-broader-disregard-for-the-suffering-of-innocents-in-gaza
+
+**Michael Singer, Sculptor Who Used Nature as His Medium, Dies at 78**\
+`His work, on an increasingly large scale, attempted to highlight, and repair, the impact of human intervention on the landscape.`\
+https://nytimes.com/2024/04/04/arts/design/michael-singer-dead.html
+
+**Finland School Shooting’s Motive Was Bullying, Police Say**\
+`The police said the motive emerged during interviews with the student, who after the shooting also threatened students heading to another school.`\
+https://nytimes.com/2024/04/04/world/europe/finland-school-shootings-motive-bullying.html
+
 **Amid Tragedy, Anguished Pleas for Gaza**\
 `Responses to an Opinion essay by José Andrés and news articles. Also: New York City’s mental health shelters; the eclipse; Donald Trump and the Bible.`\
 https://nytimes.com/2024/04/04/opinion/gaza-food-convoy.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/americas/100000009395584/behind-our-reporting-on
 **‘Coup de Chance’ Review: Woody Allen’s Usual With a French Twist**\
 `Despite its Parisian setting, the setup is familiar from any of Allen’s New York movies: An act of infidelity presents a dilemma. Some of the jokes are funny.`\
 https://nytimes.com/2024/04/04/movies/coup-de-chance-review-woody-allen.html
-
-**Sexual Assault of Migrants in Panama Rises to Level Rarely Seen Outside War**\
-`The New York Times interviewed more than 70 people who said they had been victims of armed robbery. Fourteen were women who said they had suffered sexual violence.`\
-https://nytimes.com/2024/04/04/world/americas/migrants-sexual-assault-darien-gap.html
-
-**7 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/04/04/books/review/new-books-recommendations.html
-
-**As Heartbeat Opera Reaches a Milestone, So Does Its Musical Leader**\
-`Dan Schlosberg, who for 10 years has adapted opera classics for the company, has written its first world premiere.`\
-https://nytimes.com/2024/04/04/arts/music/heartbeat-opera-onegin-extinctionist.html
 
