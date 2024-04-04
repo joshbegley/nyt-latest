@@ -1,3 +1,19 @@
+**What Are We Told About the Health of Biden and Trump? They Decide.**\
+`President Biden and former President Donald J. Trump are the oldest people ever to seek the presidency, challenging norms about what the public should know about candidates’ health.`\
+https://nytimes.com/2024/04/04/us/politics/what-are-we-told-about-the-health-of-biden-and-trump-they-decide.html
+
+**Video Game Reviews of 2024**\
+`New York Times critics are examining new horror games and point-and-click adventures, along with remakes of classic titles.`\
+https://nytimes.com/article/video-game-reviews-2024.html
+
+**How to Revive a Burned Forest? Rebuild the Tree Supply Chain**\
+`As forests succumb to ever-fiercer wildfires, the federal government and some adventurous private companies are trying to resuscitate an industry.`\
+https://nytimes.com/2024/04/04/headway/wildfire-forestry-supply-chain.html
+
+**From One Leaning Tower to Another, Tips to Stop the Tilt**\
+`Bologna is looking to Pisa, home of the most famous leaning tower, for help keeping its own tipping tower upright.`\
+https://nytimes.com/2024/04/04/world/europe/bologna-pisa-leaning-tower-italy.html
+
 **Read the document**\
 `A letter sent to the White House`\
 https://nytimes.com/interactive/2024/04/04/us/health-biden-letter.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/senior-offi
 **04mideast-crisis**\
 `Biden Is Set to Speak With Netanyahu Amid Rising Frustration With Israel`\
 https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news
-
-**How to Become Friends With a Wild Bird**\
-`A winning essay by Shannon Hong, age 16.`\
-https://nytimes.com/2024/04/04/learning/how-to-become-friends-with-a-wild-bird.html
-
-**How to Be a Kid Forever**\
-`A winning essay by Raniya Chowdhury, age 17.`\
-https://nytimes.com/2024/04/04/learning/how-to-be-a-kid-forever.html
-
-**How to Host Unexpected Guests**\
-`A winning essay by Sofia Fontenot, age 18.`\
-https://nytimes.com/2024/04/04/learning/how-to-host-unexpected-guests.html
-
-**How to Make Fear Your Friend**\
-`A winning essay by Zoe Brown, age 14.`\
-https://nytimes.com/2024/04/04/learning/how-to-make-fear-your-friend.html
 
