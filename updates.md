@@ -1,3 +1,7 @@
+**G.O.P. Congressman’s Wild Claim: F.B.I. Entrapped Jan. 6 Rioters**\
+`More than three years after the attack on Congress, a Republican subcommittee chairman offered a series of baseless and disproved claims about it, reflecting an effort on the right to falsify what occurred.`\
+https://nytimes.com/2024/04/04/us/politics/clay-higgins-jan-6.html
+
 **Review: Turning Dancers Into Aliens One Step at a Time**\
 `Under the artistic leadership of Emily Molnar, Nederlands Dans Theater returned to New York City Center with a less than stellar triple bill.`\
 https://nytimes.com/2024/04/04/arts/dance/review-nederlands-dans-theater.html
