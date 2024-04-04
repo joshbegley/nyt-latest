@@ -1,3 +1,15 @@
+**U.S. Defense Secretary Denounces Israel’s Strike on Aid Workers in Gaza**\
+`A bristling phone call reflected a shift in Lloyd J. Austin III’s tone toward his Israeli counterpart as he stressed the need for better protection of aid workers.`\
+https://nytimes.com/2024/04/04/world/middleeast/lloyd-austin-aid-workers-gaza.html
+
+**A senior official says Biden’s anger with Israel has hit a peak.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/senior-officials-say-bidens-anger-with-israel-has-hit-a-peak
+
+**04mideast-crisis**\
+`Biden Is Set to Speak With Netanyahu Amid Rising Frustration With Israel`\
+https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news
+
 **How to Become Friends With a Wild Bird**\
 `A winning essay by Shannon Hong, age 16.`\
 https://nytimes.com/2024/04/04/learning/how-to-become-friends-with-a-wild-bird.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/04/learning/in-a-box.html
 **Trump’s Bond Benefactor Earned Billions From Subprime Car Loans**\
 `Don Hankey said his decision to help Mr. Trump post a $175 million bond was a business decision, though he voted for him in 2016.`\
 https://nytimes.com/2024/04/04/nyregion/don-hankey-car-loan-billionaire.html
-
-**Trump’s Trial Lawyer Gambled a Gilded Manhattan Career to Represent Him**\
-`Todd Blanche was a prosecutor and worked for a prestigious firm. Now, he is the principal lawyer for Donald Trump as he becomes the first former president to face prosecution.`\
-https://nytimes.com/2024/04/04/nyregion/todd-blanche-hush-money-case.html
-
-**How Adams Went From Burger King to Rikers and Got Baptized Along the Way**\
-`Mayor Eric Adams keeps finding eye-catching ways to seize the spotlight on the issue of public safety, even when the narrative turns against him.`\
-https://nytimes.com/2024/04/04/nyregion/adams-olayemi-olurin-baptism.html
-
-**On the Hunt, a Real Estate Reporter Strikes Gold**\
-`A man’s bizarre scheme to take over a hotel had the makings of an only-in-New-York story.`\
-https://nytimes.com/2024/04/04/insider/on-the-hunt-a-real-estate-reporter-strikes-gold.html
 
