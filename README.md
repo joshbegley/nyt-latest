@@ -20,7 +20,7 @@ https://nytimes.com/2024/04/04/movies/yannick-review.html
 
 **‘Scoop’ Review: The Story Behind That Prince Andrew Interview**\
 `In 2019, the prince went on air to respond to accusations involving Jeffery Epstein. The drama here is in how the BBC convinced him to do it.`\
-https://nytimes.com/2024/04/04/movies/scoop-review.html
+https://nytimes.com/2024/04/04/movies/scoop-review-prince-andrew-bbc.html
 
 **‘The People’s Joker’ Review: A Wild Card**\
 `Pure chaos is at play in a scrappy and unauthorized new parody about a character who looks a lot like the Joker. It’s a daring slice of queer cinema.`\
