@@ -1,3 +1,11 @@
+**New York Attorney General Questions Trump’s $175 Million Bond Deal**\
+`Letitia James, the attorney general, said in court papers that the California company providing the guarantee was not qualified to do such deals in New York.`\
+https://nytimes.com/2024/04/04/nyregion/letitia-james-trump-bond-deal.html
+
+**Florida Court Rulings Pose Risks for House Republicans on Abortion**\
+`The twin decisions have all but guaranteed that voters will have the issue on their minds in November, bringing potential risks for two anti-abortion Republicans in the state whose districts aren’t solidly red.`\
+https://nytimes.com/2024/04/04/us/politics/florida-abortion-rulings-house-republicans.html
+
 **Florida Court Rulings Pose Risks for House Republicans on Abortion**\
 `The twin decisions have all but guaranteed that voters will have abortion on their minds in November, posing potential risks for two anti-abortion Republicans in the state whose districts aren’t solidly red.`\
 https://nytimes.com/2024/04/04/us/politics/florida-abortion-rulings-house-republicans.html
