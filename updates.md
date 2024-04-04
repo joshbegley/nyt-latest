@@ -1,3 +1,11 @@
+**Biden Threatens to Condition Israel Aid**\
+`Also, ocean temperatures signal a daunting hurricane season. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/04/04/briefing/biden-israel-call-darien-gap-violence.html
+
+**Music Teacher Is Charged With Taking Teenagers on Trips to Abuse Them**\
+`Paul Geer taught for decades at the Family Foundation School, a rural reform academy where he abused students, an indictment states.`\
+https://nytimes.com/2024/04/04/nyregion/family-school-paul-geer-rape.html
+
 **Jack Smith Gets a Bit of What He Wanted**\
 `The judge in the documents case rejected for now Donald Trump’s central argument to escape prosecution.`\
 https://nytimes.com/2024/04/04/us/politics/trump-trial-documents-case-cannon-smith.html
