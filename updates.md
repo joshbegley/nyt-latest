@@ -1,3 +1,7 @@
+**After Terrorist Attack in Russia, Tajik Migrants Endure a Crackdown**\
+`The main suspects in a deadly assault near Moscow were from Tajikistan. Now many other Tajiks, who fill jobs in Russia’s wartime economy, are being deported and harassed.`\
+https://nytimes.com/2024/04/04/world/europe/russia-tajiks-terrorist-attack.html
+
 **Here’s How Congress Can Use Leverage on Weapons Sales to Prod Biden on Israel**\
 `Congress has oversight over American weapons sales to allies. Some Democrats say lawmakers should try to delay or even block them until Israel agrees to conditions on its offensive in Gaza.`\
 https://nytimes.com/2024/04/04/us/politics/congress-leverage-weapons-sales-israel.html

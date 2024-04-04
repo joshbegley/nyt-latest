@@ -1,3 +1,7 @@
+**After Terrorist Attack in Russia, Tajik Migrants Endure a Crackdown**\
+`The main suspects in a deadly assault near Moscow were from Tajikistan. Now many other Tajiks, who fill jobs in Russia’s wartime economy, are being deported and harassed.`\
+https://nytimes.com/2024/04/04/world/europe/russia-tajiks-terrorist-attack.html
+
 **Here’s How Congress Can Use Leverage on Weapons Sales to Prod Biden on Israel**\
 `Congress has oversight over American weapons sales to allies. Some Democrats say lawmakers should try to delay or even block them until Israel agrees to conditions on its offensive in Gaza.`\
 https://nytimes.com/2024/04/04/us/politics/congress-leverage-weapons-sales-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/opinion/wes-moore-maryland-jobs.html
 **Panama’s 2024 Election: What to Know**\
 `Political crisis has embroiled Panama’s May 5 presidential election, exacerbating uncertainty in a country dealing with drought and fallout from widespread protests.`\
 https://nytimes.com/2024/04/04/world/americas/panama-election-2024.html
-
-**The Buzz on Boat Shoes**\
-`The category of footwear created when Franklin D. Roosevelt was president is being reinterpreted and rediscovered.`\
-https://nytimes.com/2024/04/04/style/boat-shoes-miu-miu-sperry.html
 
