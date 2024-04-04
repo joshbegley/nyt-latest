@@ -1,3 +1,7 @@
+**Do You Have Experience With Gun Violence? Tell Us About It.**\
+`Headway wants to hear from people affected by gun violence and those working to end it.`\
+https://nytimes.com/2024/04/04/headway/gun-violence-community-experience.html
+
 **When the Rubin Museum Was Divine**\
 `The Rubin will be “reimagined” as a global museum, but our critic says its charismatic presence will be only a troubling memory.`\
 https://nytimes.com/2024/04/04/arts/design/rubin-museum-closing-art-asia-buddhism.html
@@ -31,10 +35,6 @@ https://nytimes.com/2024/04/04/business/media/tiktok-marketing-blitz-ban.html
 https://nytimes.com/2024/04/04/health/migrant-children-border-housing.html
 
 **A Tantalizing ‘Hint’ That Astronomers Got Dark Energy All Wrong**\
-`Scientists may have discovered a major flaw in their understanding of that mysterious cosmic. That could be good news for the fate of the universe.`\
+`Scientists may have discovered a major flaw in their understanding of that mysterious cosmic force. That could be good news for the fate of the universe.`\
 https://nytimes.com/2024/04/04/science/space/astronomy-universe-dark-energy.html
-
-**Approaching Weeknight Burnout? The Solution Is Pasta.**\
-`Specifically, midnight pasta with garlic, anchovy, capers and red pepper from David Tanis.`\
-https://nytimes.com/2024/04/04/dining/approaching-weeknight-burnout-the-solution-is-pasta.html
 
