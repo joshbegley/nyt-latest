@@ -1,3 +1,11 @@
+**A Rising Star of Italian Violin Making Is a 32-Year-Old From South Korea**\
+`As a teenager, Ayoung An decided to become a violin maker. Her journey eventually took her to Cremona, Italy, a famed hub for masters like Antonio Stradivari.`\
+https://nytimes.com/2024/04/04/arts/violin-italy-antonio-stradivari-ayoung-an.html
+
+**Back-to-Back Strikes by Israel Show Strengths and Limits of Accuracy**\
+`In an airstrike on Monday in Damascus, Israel’s military displayed pinpoint precision. Hours later in Gaza, that same military killed seven aid workers.`\
+https://nytimes.com/2024/04/04/world/middleeast/israel-wck-gaza-iran-embassy.html
+
 **Quotation of the Day: Spotting a Bug That May Have Been Meant to Cripple the Internet**\
 `Quotation of the Day for Thursday, April 4, 2024.`\
 https://nytimes.com/2024/04/03/pageoneplus/quotation-of-the-day-spotting-a-bug-that-may-have-been-meant-to-cripple-the-internet.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/03/nyregion/nypd-parking-permit-abuse.html
 **Hospital at Center of Alabama Embryo Ruling Is Ending I.V.F. Services**\
 `The hospital cited a “lack of clarity” in recent state legislation meant to shield I.V.F. providers as a factor in its decision. A separate fertility clinic at the site said it would relocate.`\
 https://nytimes.com/2024/04/03/us/politics/mobile-alabama-ivf-hospital.html
-
-**Lawmaker Is Left With ‘Lifetime Trauma’ as Attacker Pleads Guilty**\
-`Andrey Desmond pleaded guilty to three felony charges in the attack on Maryam Khan, a member of the Connecticut House of Representatives, last June.`\
-https://nytimes.com/2024/04/03/nyregion/connecticut-muslim-lawmaker-attack.html
-
-**NASA Picks 3 Companies to Help Astronauts Drive Around the Moon**\
-`The agency’s future moon buggies will reach speeds of 9.3 miles per hour and will be capable of self-driving.`\
-https://nytimes.com/2024/04/03/science/moon-nasa-lunar-terrain-vehicle.html
 
