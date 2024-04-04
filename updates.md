@@ -1,3 +1,11 @@
+**Why Is Technology Mean to Me?**\
+`I want my technology to have many capacities, but free will is not among them.`\
+https://nytimes.com/2024/04/04/opinion/technology-devices-phones.html
+
+**Why Some Billionaires Will Back Trump**\
+`It’s about taxes — and a false belief in their own impunity.`\
+https://nytimes.com/2024/04/04/opinion/trump-billionaires.html
+
 **It’s Not Surprising That No Labels Could Never Find a Candidate**\
 `Some politicians may have believed the group could do too well at the polls at a chaotic time.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/nolabels-candidate
