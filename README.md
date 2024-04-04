@@ -1,5 +1,5 @@
-**Why a Trillion Cicadas May Emerge in the U.S. This Spring**\
-`A roughly 16-state area spanning the Midwest and Southeast will be center stage for these insects as the two broods appear together for the first time in more than two centuries.`\
+**Up to a Trillion Cicadas Are Emerging in the U.S. Here’s What to Know.**\
+`Two periodical cicada broods are appearing in a 16-state area in the Midwest and Southeast for the first time in centuries. Can you get rid of them? Do they bite you? We answer your questions.`\
 https://nytimes.com/2024/04/04/science/cicada-emergence-invasion.html
 
 **Glasses Improve Income, Not Just Eyesight**\
