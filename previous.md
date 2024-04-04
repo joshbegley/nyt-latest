@@ -1,3 +1,7 @@
+**Florida Court Rulings Pose Risks for House Republicans on Abortion**\
+`The twin decisions have all but guaranteed that voters will have abortion on their minds in November, posing potential risks for two anti-abortion Republicans in the state whose districts aren’t solidly red.`\
+https://nytimes.com/2024/04/04/us/politics/florida-abortion-rulings-house-republicans.html
+
 **‘Travels’ Review: A Sonic Flight From Heartbreak**\
 `In his new show, James Harrison Monaco blends storytelling and electronic beats in service of curiosity and escape.`\
 https://nytimes.com/2024/04/04/theater/travels-review-james-harrison-monaco.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/books/new-york-antiquarian-book-fair.html
 **Have a Wine Bar Night at Home With These Recipes**\
 `Vegetables with cashew romesco, saucy roasted cauliflower, whipped ricotta and more dishes that will transport you to your favorite small-plates spot.`\
 https://nytimes.com/2024/04/04/dining/have-a-wine-bar-night-at-home-with-these-recipes.html
-
-**Behind Our Reporting on Sexual Assaults in the Darién Gap**\
-`Robbery and rape have long been a risk for migrants crossing the Darién Gap, but recently, there has been a sharp rise in sexual violence directed at women and girls.`\
-https://nytimes.com/video/world/americas/100000009395584/behind-our-reporting-on-sexual-assaults-in-the-darien-gap.html
 
