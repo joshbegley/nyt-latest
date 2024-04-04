@@ -1,3 +1,7 @@
+**NATO Wants to Show Support for Ukraine, but Only So Much**\
+`Admitting Kyiv is a nonstarter as long as the war with Russia is raging. But the member nations want to show they are supporting Ukraine “for the long haul.”`\
+https://nytimes.com/2024/04/04/world/europe/ukraine-nato-stoltenberg-russia.html
+
 **Iran Says 17-Hour Battle With Separatists Leaves 28 Dead in 2 Cities**\
 `Jaish al-Adl, an ethnic Baluch group designated by the United States as a terrorist organization, claimed responsibility for the attacks.`\
 https://nytimes.com/2024/04/04/world/middleeast/iran-terrorist-attacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/us/politics/judge-trump-dismissal-classified-docu
 **What to Watch This Weekend: A Riveting True-Crime Drama**\
 `“Mr. Bates vs. the Post Office,” premiering Sunday on PBS, is a shattering mini-series about a real-life injustice.`\
 https://nytimes.com/2024/04/04/arts/television/mr-bates-vs-the-post-office.html
-
-**These Brooklyn Restaurateurs Are Crossing the East River**\
-`Big names in Brooklyn are heading to Manhattan.`\
-https://nytimes.com/2024/04/04/dining/these-brooklyn-restaurateurs-are-crossing-the-east-river.html
 
