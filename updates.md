@@ -1,3 +1,15 @@
+**How an Editors’ Note Fueled Another Kate Conspiracy Theory**\
+`A routine Getty Images caption beside the Princess of Wales’s cancer announcement has fanned disinformation about her. Researchers say there is no evidence that the video is fake.`\
+https://nytimes.com/2024/04/04/world/europe/kate-middleton-video-getty-conspiracy.html
+
+**Denmark Closes Shipping Lane Over Risk of Accidental Missile Launch**\
+`The military said the missile malfunctioned during a test aboard a warship, and there was a possibility it could fly a short distance, but no risk of the warhead exploding.`\
+https://nytimes.com/2024/04/04/world/europe/denmark-shipping-lane-missile-malfunction.html
+
+**Review: A Tribute to the Jazz Great Max Roach Meets His Standards**\
+`Ayodele Casel leads a program celebrating Roach’s centenary that also includes works by Rennie Harris as well as by Ronald K. Brown and Arcell Cabuag.`\
+https://nytimes.com/2024/04/04/arts/dance/review-max-roach-ayodele-casel-joyce-theater.html
+
 **Inside a G.O.P. Plan to Encourage Early Voting Despite Trump’s Attacks**\
 `Donald Trump’s falsehoods about mail voting have created a strategic disadvantage for Republicans, who must rely on Election Day turnout. The group Turning Point Action has a $100 million plan to change voters’ habits.`\
 https://nytimes.com/2024/04/04/us/politics/trump-turning-point-action-chase-vote.html

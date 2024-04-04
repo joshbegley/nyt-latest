@@ -1,3 +1,15 @@
+**How an Editors’ Note Fueled Another Kate Conspiracy Theory**\
+`A routine Getty Images caption beside the Princess of Wales’s cancer announcement has fanned disinformation about her. Researchers say there is no evidence that the video is fake.`\
+https://nytimes.com/2024/04/04/world/europe/kate-middleton-video-getty-conspiracy.html
+
+**Denmark Closes Shipping Lane Over Risk of Accidental Missile Launch**\
+`The military said the missile malfunctioned during a test aboard a warship, and there was a possibility it could fly a short distance, but no risk of the warhead exploding.`\
+https://nytimes.com/2024/04/04/world/europe/denmark-shipping-lane-missile-malfunction.html
+
+**Review: A Tribute to the Jazz Great Max Roach Meets His Standards**\
+`Ayodele Casel leads a program celebrating Roach’s centenary that also includes works by Rennie Harris as well as by Ronald K. Brown and Arcell Cabuag.`\
+https://nytimes.com/2024/04/04/arts/dance/review-max-roach-ayodele-casel-joyce-theater.html
+
 **Inside a G.O.P. Plan to Encourage Early Voting Despite Trump’s Attacks**\
 `Donald Trump’s falsehoods about mail voting have created a strategic disadvantage for Republicans, who must rely on Election Day turnout. The group Turning Point Action has a $100 million plan to change voters’ habits.`\
 https://nytimes.com/2024/04/04/us/politics/trump-turning-point-action-chase-vote.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/04/business/ford-delays-electric-vehicles.html
 **Gaetano Pesce, Designer Who Broke the Rules, Is Dead at 84**\
 `He brought surrealism, and politics, into the design world, disdaining conformity and right angles. “He was an enemy of the grid.”`\
 https://nytimes.com/2024/04/04/arts/design/gaetano-pesce-dead.html
-
-**Venice to Charge Day Trippers an Entry Fee to Discourage Overcrowding**\
-`Starting this month, tourists intending to visit the city on busy dates will be required to register on a website, and those coming for a single day will have to pay a little over $5.`\
-https://nytimes.com/2024/04/04/world/europe/venice-entry-fee.html
-
-**Watch an Elaborate One-Shot Montage in ‘Música’**\
-`Rudy Mancuso, the film’s director, composer, co-writer and star, narrates this sequence, which plays out in real time with movable sets.`\
-https://nytimes.com/2024/04/04/movies/musica-clip.html
-
-**‘Música’ | Anatomy of a Scene**\
-`The director and composer Rudy Mancuso narrates a one-shot sequence from his film, in which he also stars.`\
-https://nytimes.com/video/movies/100000009395965/musica-scene.html
 
