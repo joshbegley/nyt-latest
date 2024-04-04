@@ -1,3 +1,7 @@
+**What to Watch This Weekend: A Riveting True-Crime Drama**\
+`“Mr. Bates vs. the Post Office,” premiering Sunday on PBS, is a shattering mini-series about a real-life injustice.`\
+https://nytimes.com/2024/04/04/arts/television/mr-bates-vs-the-post-office.html
+
 **These Brooklyn Restaurateurs Are Crossing the East River**\
 `Big names in Brooklyn are heading to Manhattan.`\
 https://nytimes.com/2024/04/04/dining/these-brooklyn-restaurateurs-are-crossing-the-east-river.html
