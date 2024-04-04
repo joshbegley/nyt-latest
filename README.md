@@ -1,3 +1,7 @@
+**Georgia Judge Rejects Effort to Dismiss Trump Case on Free Speech Grounds**\
+`The defense had argued that some of the charges were based on statements Donald Trump and his co-defendants made in 2020 that were constitutionally protected.`\
+https://nytimes.com/2024/04/04/us/georgia-judge-trump-free-speech.html
+
 **Antiquarian Book Fair: From Sylvia Plath’s Papers to Vintage Matchbooks**\
 `This year’s New York International Antiquarian Book Fair features plenty of quirky items amid the high-ticket treasures. (Poison books, anyone?)`\
 https://nytimes.com/2024/04/04/books/new-york-antiquarian-book-fair.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/nyregion/housing-deal-new-york.html
 **G.O.P. Congressman’s Wild Claim: F.B.I. Entrapped Jan. 6 Rioters**\
 `More than three years after the attack on Congress, a Republican subcommittee chairman offered a series of baseless and disproved claims about it, reflecting an effort on the right to falsify what occurred.`\
 https://nytimes.com/2024/04/04/us/politics/clay-higgins-jan-6.html
-
-**Review: Turning Dancers Into Aliens One Step at a Time**\
-`Under the artistic leadership of Emily Molnar, Nederlands Dans Theater returned to New York City Center with a less than stellar triple bill.`\
-https://nytimes.com/2024/04/04/arts/dance/review-nederlands-dans-theater.html
 
