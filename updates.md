@@ -1,3 +1,11 @@
+**A call for early elections by a member of Netanyahu’s war cabinet highlights the domestic pressure he is under.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/a-call-for-early-elections-by-a-member-of-netanyahus-war-cabinet-highlights-the-domestic-pressure-he-is-under
+
+**What to Know About ‘Scoop’ and Prince Andrew’s Explosive TV Interview**\
+`A new Netflix film dramatizes the 2019 BBC conversation that led to the royal stepping back from public life.`\
+https://nytimes.com/2024/04/04/movies/prince-andrew-netflix-scoop.html
+
 **A.L.S. Drug Relyvrio Will Be Taken Off the Market, Its Maker Says**\
 `Results of a large clinical trial found the treatment did not work any better than a placebo.`\
 https://nytimes.com/2024/04/04/health/relyvrio-als-drug.html
