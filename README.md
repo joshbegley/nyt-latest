@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Ukraine expands its draft.`\
+https://nytimes.com/2024/04/04/briefing/ukraine-draft-taiwan-earthquake-gaza.html
+
 **As Doctors’ Walkout Drags On, Some South Koreans Are Losing Patience**\
 `Thousands of interns and residents who stopped working in February are testing the public’s high regard for physicians. But there is also anger at the government.`\
 https://nytimes.com/2024/04/04/world/asia/south-korea-doctors-complaints.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/us/big-sur-evacuation-storm.html
 **U.S. Charges 8 in Beer Heists That Targeted Trains and Warehouses**\
 `The men stole hundreds of thousands of dollars’ worth of beer, mostly Modelo and Corona, by robbing rail yards and warehouses across the Northeast, federal prosecutors said.`\
 https://nytimes.com/2024/04/03/nyregion/jose-cesari-beer-scheme.html
-
-**Trump Spoke Recently With Saudi Leader**\
-`It is not clear what the former president discussed with Prince Mohammed bin Salman, but news of their call came amid Biden administration negotiations with the Saudis over a Middle East peace plan.`\
-https://nytimes.com/2024/04/03/us/politics/trump-spoke-recently-with-saudi-leader.html
 
