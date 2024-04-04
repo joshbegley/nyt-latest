@@ -1,3 +1,11 @@
+**Reworked Italian Jerseys That Celebrate Soccer Style**\
+`Plus: a Nancy Brooks Brody exhibition, a Nile sailboat charter and more recommendations from T Magazine.`\
+https://nytimes.com/2024/04/04/t-magazine/systemarosa-soccer-style.html
+
+**Shohei Ohtani’s Arrival Reflects Diversity of Dodgers Fans, and Los Angeles**\
+`Around Camelback Ranch, the Dodgers’ spring training home in Phoenix, fans of all backgrounds were wearing Ohtani jerseys and many spoke Japanese and Spanish.`\
+https://nytimes.com/2024/04/04/us/shohei-ohtani-dodgers-los-angeles.html
+
 **Nebraska Lawmakers Block Trump- Backed Changes to Electoral System**\
 `The state awards an electoral vote to the winner of each congressional district. Former President Donald J. Trump and allies want a “winner take all” system, which may have another chance to pass.`\
 https://nytimes.com/2024/04/04/us/politics/nebraska-legislature-electoral-college-change-trump-proposal-fail.html
