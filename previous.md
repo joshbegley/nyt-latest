@@ -1,3 +1,11 @@
+**Plan to Stash Pollution Beneath the Sea Could Save Money and Jobs**\
+`The Italian energy giant Eni sees future profits from collecting carbon dioxide and pumping it into natural gas fields that have been exhausted.`\
+https://nytimes.com/2024/04/04/business/carbon-capture-europe-eni.html
+
+**Biden Takes Aim at SpaceX’s Tax-Free Ride in American Airspace**\
+`President Biden wants companies that use American airspace for rocket launches to start paying taxes into a federal fund that finances the work of air traffic controllers.`\
+https://nytimes.com/2024/04/04/us/politics/spacex-biden-musk-taxes.html
+
 **What Teachers Have to Say About the Great American Teacher Crisis**\
 `They are deeply unhappy with nearly every aspect of their jobs.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/teacher-crisis
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/04/us/shohei-ohtani-dodgers-los-angeles.html
 **Nebraska Lawmakers Block Trump-Backed Changes to Electoral System**\
 `The state awards an electoral vote to the winner of each congressional district. Former President Donald J. Trump and allies want a “winner take all” system, which may have another chance to pass.`\
 https://nytimes.com/2024/04/04/us/politics/nebraska-winner-take-all-trump.html
-
-**Why Taiwan Was So Prepared for a Powerful Earthquake**\
-`Decades of learning from disasters, tightening building codes and increasing public awareness may have helped its people better weather strong quakes.`\
-https://nytimes.com/2024/04/04/world/asia/taiwan-hualien-earthquake-prepared.html
-
-**A call for early elections by a member of Netanyahu’s war cabinet highlights the domestic pressure he is under.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/a-call-for-early-elections-by-a-member-of-netanyahus-war-cabinet-highlights-the-domestic-pressure-he-is-under
 
