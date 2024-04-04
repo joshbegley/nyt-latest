@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Ukraine expands its draft.`\
+https://nytimes.com/2024/04/04/briefing/ukraine-draft-taiwan-earthquake-gaza.html
+
 **As Doctors’ Walkout Drags On, Some South Koreans Are Losing Patience**\
 `Thousands of interns and residents who stopped working in February are testing the public’s high regard for physicians. But there is also anger at the government.`\
 https://nytimes.com/2024/04/04/world/asia/south-korea-doctors-complaints.html
