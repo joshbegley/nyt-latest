@@ -1,3 +1,7 @@
+**Proof that every vote matters: California Congressional primary has a rare tie for a runoff spot.**\
+`By Jill Cowan`\
+https://nytimes.com/live/2024/04/04/us/biden-trump-election/proof-that-every-vote-matters-california-congressional-primary-has-a-three-way-tie
+
 **Septic Installer Is Sentenced to 7 Years for Urging Jan. 6 Mob With Megaphone**\
 `Taylor James Johnatakis, 40, coordinated rioters to rush a police barricade at the Southwest stairs to the U.S. Capitol on Jan. 6.`\
 https://nytimes.com/2024/04/04/us/taylor-johnatakis-capitol-riot-sentencing.html
