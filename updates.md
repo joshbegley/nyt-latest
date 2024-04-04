@@ -1,3 +1,7 @@
+**Iran Says 17-Hour Battle With Separatists Leaves 28 Dead in 2 Cities**\
+`Jaish al-Adl, an ethnic Baluch group designated by the United States as a terrorist organization, claimed responsibility for the attacks.`\
+https://nytimes.com/2024/04/04/world/middleeast/iran-terrorist-attacks.html
+
 **Under Half of Illegal Gun Cases Tracked by A.T.F. Were Involved in Black Market Sales**\
 `The report, part of an effort by the Biden administration to make public previously undisclosed data, offered a portrait of the country’s growing illegal firearms market.`\
 https://nytimes.com/2024/04/04/us/politics/illegal-guns-atf.html
