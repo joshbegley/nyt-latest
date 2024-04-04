@@ -1,3 +1,7 @@
+**Word of the Day: galore**\
+`This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/04/learning/word-of-the-day-galore.html
+
 **Late Night Rebuts Trump’s Call for ‘Christian Visibility Day’**\
 `“This is America, buddy. Every day is ‘Christian Visibility Day,’” Desi Lydic said on Wednesday’s “Daily Show.”`\
 https://nytimes.com/2024/04/04/arts/television/late-night-trump-christian-visibility-day.html
