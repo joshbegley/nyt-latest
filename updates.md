@@ -1,3 +1,7 @@
+**Workers Stuck on Mountain After Taiwan Earthquake**\
+`Footage shows people trapped in a mountainous area after a 7.4-magnitude earthquake triggered a landslide.`\
+https://nytimes.com/video/world/asia/100000009396344/taiwan-earthquake-rescue.html
+
 **U.S. Defense Secretary Denounces Israel’s Strike on Aid Workers in Gaza**\
 `A bristling phone call reflected a shift in Lloyd J. Austin III’s tone toward his Israeli counterpart as he stressed the need for better protection of aid workers.`\
 https://nytimes.com/2024/04/04/world/middleeast/lloyd-austin-aid-workers-gaza.html
