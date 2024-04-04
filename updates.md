@@ -1,3 +1,11 @@
+**Hospital at Center of Alabama Embryo Ruling Is Ending I.V.F. Services**\
+`The hospital cited a “lack of clarity” in recent state legislation meant to shield I.V.F. providers as a factor in its decision. A separate fertility clinic at the site said it would relocate.`\
+https://nytimes.com/2024/04/03/us/politics/mobile-alabama-ivf-hospital.html
+
+**Lawmaker Is Left With ‘Lifetime Trauma’ as Attacker Pleads Guilty**\
+`Andrey Desmond pleaded guilty to three felony charges in the attack on Maryam Khan, a member of the Connecticut House of Representatives, last June.`\
+https://nytimes.com/2024/04/03/nyregion/connecticut-muslim-lawmaker-attack.html
+
 **NASA Picks 3 Companies to Help Astronauts Drive Around the Moon**\
 `The agency’s future moon buggies will reach speeds of 9.3 miles per hour and will be capable of self-driving.`\
 https://nytimes.com/2024/04/03/science/moon-nasa-lunar-terrain-vehicle.html
