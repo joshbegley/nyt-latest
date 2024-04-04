@@ -1,3 +1,7 @@
+**Back-to-Back Israeli Strikes Show Tragic Gaps in Choosing Targets**\
+`In an airstrike on Monday in Damascus, Israel’s military displayed pinpoint precision. Hours later in Gaza, that same military killed seven aid workers.`\
+https://nytimes.com/2024/04/04/world/middleeast/israel-wck-gaza-iran-embassy.html
+
 **Word of the Day: galore**\
 `This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/04/learning/word-of-the-day-galore.html

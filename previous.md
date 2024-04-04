@@ -26,7 +26,7 @@ https://nytimes.com/2024/04/04/climate/global-forest-tree-loss-wri.html
 `As a teenager, Ayoung An decided to become a violin maker. Her journey eventually took her to Cremona, Italy, a famed hub for masters like Antonio Stradivari.`\
 https://nytimes.com/2024/04/04/arts/violin-italy-antonio-stradivari-ayoung-an.html
 
-**Back-to-Back Strikes by Israel Show Strengths and Limits of Accuracy**\
+**Back-to-Back Israeli Strikes Show Tragic Gaps in Choosing Targets**\
 `In an airstrike on Monday in Damascus, Israel’s military displayed pinpoint precision. Hours later in Gaza, that same military killed seven aid workers.`\
 https://nytimes.com/2024/04/04/world/middleeast/israel-wck-gaza-iran-embassy.html
 
