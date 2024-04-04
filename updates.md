@@ -1,3 +1,7 @@
+**The Hottest Luxury Second-Home Markets**\
+`Sales of luxury second homes increased in many U.S. markets last year. If you want see some of the priciest, head to Rhode Island.`\
+https://nytimes.com/2024/04/04/realestate/the-hottest-luxury-second-home-markets.html
+
 **Iran’s Axis of Resistance**\
 `We examine what could push Iran and Israel toward confrontation.`\
 https://nytimes.com/2024/04/04/briefing/irans-axis-of-resistance.html
