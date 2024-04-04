@@ -1,3 +1,7 @@
+**Iran’s Axis of Resistance**\
+`We examine what could push Iran and Israel toward confrontation.`\
+https://nytimes.com/2024/04/04/briefing/irans-axis-of-resistance.html
+
 **World Central Kitchen demands an independent investigation into Israel’s deadly strike.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/world-central-kitchen-demands-an-independent-investigation-into-israels-deadly-strike
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/02/opinion/thepoint/trump-nebraska-electoral-ru
 **Our Reporter on Voters’ Age Concerns**\
 `President Biden and his predecessor, Donald Trump, are the oldest people ever to run for president, and many voters believe that both men are too old to serve.`\
 https://nytimes.com/video/us/politics/100000009395617/biden-trump-age-health-election.html
-
-**Welcome to Raleigh, the New Epicenter of College Basketball**\
-`Students at Duke and U.N.C., both basketball powerhouses, have long labeled North Carolina State their “little brother.” But little brother — and sister — are off to the Final Four.`\
-https://nytimes.com/2024/04/04/us/raleigh-north-carolina-state-final-four.html
 
