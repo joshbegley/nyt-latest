@@ -1,3 +1,7 @@
+**What to Know About ‘Scoop’ and Prince Andrew’s Explosive TV Interview**\
+`A new Netflix film dramatizes the 2019 BBC conversation that led to the royal stepping back from public life.`\
+https://nytimes.com/2024/04/04/movies/scoop-guide-prince-andrew.html
+
 **‘Yannick’ Review: First Act Problems**\
 `Audience members revolting against bad art isn’t a new thing, but Quentin Dupieux puts a fresh twist on that theme in his surreal new comedy.`\
 https://nytimes.com/2024/04/04/movies/yannick-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/movies/chicken-for-linda-review-a-comedy-that-coo
 **‘The Beast’ Review: Master of Puppets**\
 `Bertrand Bonello’s latest film, starring Léa Seydoux and George MacKay as lovers in three different eras, is an audacious sci-fi romance.`\
 https://nytimes.com/2024/04/04/movies/the-beast-review.html
-
-**The Hottest Luxury Second-Home Markets**\
-`Sales of luxury second homes increased in many U.S. markets last year. If you want see some of the priciest, head to Rhode Island.`\
-https://nytimes.com/2024/04/04/realestate/the-hottest-luxury-second-home-markets.html
 
