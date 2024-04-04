@@ -1,3 +1,11 @@
+**Why Is Technology Mean to Me?**\
+`I want my technology to have many capacities, but free will is not among them.`\
+https://nytimes.com/2024/04/04/opinion/technology-devices-phones.html
+
+**Why Some Billionaires Will Back Trump**\
+`It’s about taxes — and a false belief in their own impunity.`\
+https://nytimes.com/2024/04/04/opinion/trump-billionaires.html
+
 **It’s Not Surprising That No Labels Could Never Find a Candidate**\
 `Some politicians may have believed the group could do too well at the polls at a chaotic time.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/nolabels-candidate
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/04/nyregion/family-school-paul-geer-rape.html
 **Jack Smith Gets a Bit of What He Wanted**\
 `The judge in the documents case rejected for now Donald Trump’s central argument to escape prosecution.`\
 https://nytimes.com/2024/04/04/us/politics/trump-trial-documents-case-cannon-smith.html
-
-**Hochul Orders M.T.A. to Stop Pressuring Marathon to Pay for Lost Tolls**\
-`The Metropolitan Transportation Authority wanted the New York City Marathon to pay $750,000 to make up for toll revenue lost when the Verrazzano-Narrows Bridge was closed.`\
-https://nytimes.com/2024/04/04/nyregion/mta-toll-marathon-hochul.html
-
-**‘Little Women’ and the Art of Breaking Grammatical Rules**\
-`In an evolving language, it ain’t always clear — or important — what’s correct.`\
-https://nytimes.com/2024/04/04/opinion/little-women-grammar-rules.html
 
