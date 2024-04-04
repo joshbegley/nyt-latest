@@ -1,3 +1,7 @@
+**For Sale: One Huge Drawing, Maybe by Michelangelo**\
+`Former owners of the Renaissance artist’s villa want to sell a sketch once on a kitchen wall. But scholars are divided over whether Michelangelo actually drew it.`\
+https://nytimes.com/2024/04/04/arts/design/michelangelo-villa-drawing-for-sale.html
+
 **Trump Venues Bank on Golf, With Help From Saudi Arabia**\
 `The focus of the former president’s hotel business is shifting from big cities to his golf resorts, which are benefiting from a relationship with the Saudi-funded LIV Golf tournaments.`\
 https://nytimes.com/2024/04/04/us/politics/trump-golf-saudi-arabia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/business/disney-iger-peltz-proxy-battle.html
 **What to Know About ‘Scoop’ and Prince Andrew’s Explosive TV Interview**\
 `A new Netflix film dramatizes the 2019 BBC conversation that led to the royal stepping back from public life.`\
 https://nytimes.com/2024/04/04/movies/prince-andrew-netflix-scoop.html
-
-**‘Yannick’ Review: First Act Problems**\
-`Audience members revolting against bad art isn’t a new thing, but Quentin Dupieux puts a fresh twist on that theme in his surreal new comedy.`\
-https://nytimes.com/2024/04/04/movies/yannick-review.html
 
