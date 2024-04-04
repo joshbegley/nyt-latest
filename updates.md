@@ -1,3 +1,11 @@
+**What Teachers Have to Say About the Great American Teacher Crisis**\
+`They are deeply unhappy with nearly every aspect of their jobs.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/teacher-crisis
+
+**Campaign trail shifts gears to focus on climate, as Harris heads to North Carolina.**\
+`The vice president aims to counter criticism from some Democrats over President Biden’s environmental policy.`\
+https://nytimes.com/live/2024/04/04/us/biden-trump-election/election-focus-climate-kamala-harris-north-carolina
+
 **‘Alarming’ Ocean Temperatures Suggest This Hurricane Season Will Be a Daunting One**\
 `An early forecast from one set of experts sees an above-average hurricane season that may rival the busiest years on record.`\
 https://nytimes.com/2024/04/04/climate/ocean-temperature-hurricane-forecast.html
