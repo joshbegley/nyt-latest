@@ -1,3 +1,11 @@
+**What Teachers Have to Say About the Great American Teacher Crisis**\
+`They are deeply unhappy with nearly every aspect of their jobs.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/teacher-crisis
+
+**Campaign trail shifts gears to focus on climate, as Harris heads to North Carolina.**\
+`The vice president aims to counter criticism from some Democrats over President Biden’s environmental policy.`\
+https://nytimes.com/live/2024/04/04/us/biden-trump-election/election-focus-climate-kamala-harris-north-carolina
+
 **‘Alarming’ Ocean Temperatures Suggest This Hurricane Season Will Be a Daunting One**\
 `An early forecast from one set of experts sees an above-average hurricane season that may rival the busiest years on record.`\
 https://nytimes.com/2024/04/04/climate/ocean-temperature-hurricane-forecast.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/04/world/asia/taiwan-hualien-earthquake-prepared.htm
 **A call for early elections by a member of Netanyahu’s war cabinet highlights the domestic pressure he is under.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/a-call-for-early-elections-by-a-member-of-netanyahus-war-cabinet-highlights-the-domestic-pressure-he-is-under
-
-**A.L.S. Drug Relyvrio Will Be Taken Off the Market, Its Maker Says**\
-`Results of a large clinical trial found the treatment did not work any better than a placebo.`\
-https://nytimes.com/2024/04/04/health/relyvrio-als-drug.html
-
-**The Takeaways From Disney’s Board Fight with Nelson Peltz**\
-`New voting rules made for sharper attacks, while a bold defense kept the activist investor at bay. But pressure remains on the company’s chief, Bob Iger.`\
-https://nytimes.com/2024/04/04/business/disney-iger-peltz-proxy-battle.html
 
