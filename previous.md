@@ -1,3 +1,11 @@
+**A.L.S. Drug Relyvrio Will Be Taken Off the Market, Its Maker Says**\
+`Results of a large clinical trial found the treatment did not work any better than a placebo.`\
+https://nytimes.com/2024/04/04/health/relyvrio-als-drug.html
+
+**The Takeaways From Disney’s Board Fight with Nelson Peltz**\
+`New voting rules made for sharper attacks, while a bold defense kept the activist investor at bay. But pressure remains on the company’s chief, Bob Iger.`\
+https://nytimes.com/2024/04/04/business/disney-iger-peltz-proxy-battle.html
+
 **What to Know About ‘Scoop’ and Prince Andrew’s Explosive TV Interview**\
 `A new Netflix film dramatizes the 2019 BBC conversation that led to the royal stepping back from public life.`\
 https://nytimes.com/2024/04/04/movies/scoop-guide-prince-andrew.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/04/movies/girls-state-review.html
 **‘The First Omen’ Review: The Days Before Damien**\
 `A prequel to the original franchise, this debut feature from Arkasha Stevenson is a thrilling mash-up of horror tropes that gives the story new life.`\
 https://nytimes.com/2024/04/04/movies/the-first-omen-review.html
-
-**‘Chicken for Linda!’ Review: A Comedy That Cooks**\
-`In this madcap film, a mother’s apology leads to a delightful misadventure that begins with mourning and ends with a father’s favorite recipe.`\
-https://nytimes.com/2024/04/04/movies/chicken-for-linda-review-a-comedy-that-cooks.html
-
-**‘The Beast’ Review: Master of Puppets**\
-`Bertrand Bonello’s latest film, starring Léa Seydoux and George MacKay as lovers in three different eras, is an audacious sci-fi romance.`\
-https://nytimes.com/2024/04/04/movies/the-beast-review.html
 

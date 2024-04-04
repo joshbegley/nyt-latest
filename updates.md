@@ -1,3 +1,11 @@
+**A.L.S. Drug Relyvrio Will Be Taken Off the Market, Its Maker Says**\
+`Results of a large clinical trial found the treatment did not work any better than a placebo.`\
+https://nytimes.com/2024/04/04/health/relyvrio-als-drug.html
+
+**The Takeaways From Disney’s Board Fight with Nelson Peltz**\
+`New voting rules made for sharper attacks, while a bold defense kept the activist investor at bay. But pressure remains on the company’s chief, Bob Iger.`\
+https://nytimes.com/2024/04/04/business/disney-iger-peltz-proxy-battle.html
+
 **What to Know About ‘Scoop’ and Prince Andrew’s Explosive TV Interview**\
 `A new Netflix film dramatizes the 2019 BBC conversation that led to the royal stepping back from public life.`\
 https://nytimes.com/2024/04/04/movies/scoop-guide-prince-andrew.html
