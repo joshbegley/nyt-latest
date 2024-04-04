@@ -1,3 +1,11 @@
+**Biden Threatens to Condition Israel Aid**\
+`Also, ocean temperatures signal a daunting hurricane season. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/04/04/briefing/biden-israel-call-darien-gap-violence.html
+
+**Music Teacher Is Charged With Taking Teenagers on Trips to Abuse Them**\
+`Paul Geer taught for decades at the Family Foundation School, a rural reform academy where he abused students, an indictment states.`\
+https://nytimes.com/2024/04/04/nyregion/family-school-paul-geer-rape.html
+
 **Jack Smith Gets a Bit of What He Wanted**\
 `The judge in the documents case rejected for now Donald Trump’s central argument to escape prosecution.`\
 https://nytimes.com/2024/04/04/us/politics/trump-trial-documents-case-cannon-smith.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/04/opinion/christian-visibility-day-tolerance.html
 **Richard Benedick, Negotiator of Landmark Ozone Treaty, Dies at 88**\
 `He played a key role in securing the Montreal Protocol, an international environmental pact to protect the ozone layer by reducing the use of certain chemicals.`\
 https://nytimes.com/2024/04/04/us/politics/richard-benedick-dead.html
-
-**Will Israel Finally Listen to Biden?**\
-`It’s not clear that Netanyahu will take Biden’s threats seriously.`\
-https://nytimes.com/live/2024/04/02/opinion/thepoint/biden-israel-gaza-aid-conditional
-
-**When an Editor’s Job Is to Follow the Moon**\
-`As North America prepares for the total solar eclipse on April 8, Michael Roston, an editor on the Health and Science desk, prepares The Times.`\
-https://nytimes.com/2024/04/04/insider/how-the-times-reports-on-total-solar-ec.html
 
