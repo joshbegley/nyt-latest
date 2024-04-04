@@ -1,3 +1,7 @@
+**Trump Spoke Recently With Saudi Leader**\
+`It is not clear what the former president discussed with Prince Mohammed bin Salman, but news of their call came amid Biden administration negotiations with the Saudis over a Middle East peace plan.`\
+https://nytimes.com/2024/04/03/us/politics/trump-spoke-recently-with-saudi-leader.html
+
 **N.Y.P.D. Often Ignores Parking-Permit Abuse, Report Says**\
 `Failing to ticket illegally parked cars with officially issued permits is “a form of corruption that erodes the public trust,” the Department of Investigation said.`\
 https://nytimes.com/2024/04/03/nyregion/nypd-parking-permit-abuse.html
