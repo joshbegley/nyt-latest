@@ -1,3 +1,7 @@
+**Word of the Day: galore**\
+`This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/04/learning/word-of-the-day-galore.html
+
 **Late Night Rebuts Trump’s Call for ‘Christian Visibility Day’**\
 `“This is America, buddy. Every day is ‘Christian Visibility Day,’” Desi Lydic said on Wednesday’s “Daily Show.”`\
 https://nytimes.com/2024/04/04/arts/television/late-night-trump-christian-visibility-day.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/pageoneplus/quotation-of-the-day-spotting-a-bug-t
 **Corrections: April 4, 2024**\
 `Corrections that appeared in print on Thursday, April 4, 2024.`\
 https://nytimes.com/2024/04/03/pageoneplus/corrections-april-4-2024.html
-
-**Coastal Retreat**\
-`Kevin Curry makes a delicious solo crossword debut in The New York Times.`\
-https://nytimes.com/2024/04/03/crosswords/daily-puzzle-2024-04-04.html
 
