@@ -1,5 +1,9 @@
 **Why Taiwan Was So Prepared for a Powerful Earthquake**\
 `Decades of learning from disasters, tightening building codes and increasing public awareness may have helped its people better weather strong quakes.`\
+https://nytimes.com/2024/04/04/world/asia/taiwan-hualien-earthquake-prepared.html
+
+**Why Taiwan Was So Prepared for a Powerful Earthquake**\
+`Decades of learning from disasters, tightening building codes and increasing public awareness may have helped its people better weather strong quakes.`\
 https://nytimes.com/2024/04/04/world/asia/how-taiwan-prepared-earthquake.html
 
 **‘Scoop’ Review: The Story Behind That Prince Andrew Interview**\

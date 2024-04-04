@@ -1,6 +1,6 @@
 **Why Taiwan Was So Prepared for a Powerful Earthquake**\
 `Decades of learning from disasters, tightening building codes and increasing public awareness may have helped its people better weather strong quakes.`\
-https://nytimes.com/2024/04/04/world/asia/how-taiwan-prepared-earthquake.html
+https://nytimes.com/2024/04/04/world/asia/taiwan-hualien-earthquake-prepared.html
 
 **A call for early elections by a member of Netanyahu’s war cabinet highlights the domestic pressure he is under.**\
 `By Cassandra Vinograd`\
