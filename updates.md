@@ -1,3 +1,7 @@
+**Why Taiwan Was So Prepared for a Powerful Earthquake**\
+`Decades of learning from disasters, tightening building codes and increasing public awareness may have helped its people better weather strong quakes.`\
+https://nytimes.com/2024/04/04/world/asia/how-taiwan-prepared-earthquake.html
+
 **‘Scoop’ Review: The Story Behind That Prince Andrew Interview**\
 `In 2019, the prince went on air to respond to accusations involving Jeffery Epstein. The drama here is in how the BBC convinced him to do it.`\
 https://nytimes.com/2024/04/04/movies/scoop-review-prince-andrew-bbc.html

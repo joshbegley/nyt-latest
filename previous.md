@@ -1,3 +1,7 @@
+**Why Taiwan Was So Prepared for a Powerful Earthquake**\
+`Decades of learning from disasters, tightening building codes and increasing public awareness may have helped its people better weather strong quakes.`\
+https://nytimes.com/2024/04/04/world/asia/how-taiwan-prepared-earthquake.html
+
 **A call for early elections by a member of Netanyahu’s war cabinet highlights the domestic pressure he is under.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/a-call-for-early-elections-by-a-member-of-netanyahus-war-cabinet-highlights-the-domestic-pressure-he-is-under
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/movies/kims-video-review.html
 **‘Housekeeping for Beginners’ Review: Daddy Nearest**\
 `Sad news forces a diverse group of friends to take unorthodox action in this volatile, affecting drama.`\
 https://nytimes.com/2024/04/04/movies/housekeeping-for-beginners-review.html
-
-**‘Girls State’ Review: One Nation, Under Girls**\
-`Balancing confidence with broad smiles, the high school students in this documentary understand that camaraderie goes hand in hand with political ambition.`\
-https://nytimes.com/2024/04/04/movies/girls-state-review.html
 
