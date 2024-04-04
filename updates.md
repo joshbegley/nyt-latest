@@ -1,3 +1,11 @@
+**How to Become Friends With a Wild Bird**\
+`A winning essay by Shannon Hong, age 16.`\
+https://nytimes.com/2024/04/04/learning/how-to-become-friends-with-a-wild-bird.html
+
+**How to Be a Kid Forever**\
+`A winning essay by Raniya Chowdhury, age 17.`\
+https://nytimes.com/2024/04/04/learning/how-to-be-a-kid-forever.html
+
 **How to Host Unexpected Guests**\
 `A winning essay by Sofia Fontenot, age 18.`\
 https://nytimes.com/2024/04/04/learning/how-to-host-unexpected-guests.html
