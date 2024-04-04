@@ -1,3 +1,7 @@
+**‘Alarming’ Ocean Temperatures Suggest This Hurricane Season Will Be a Daunting One**\
+`An early forecast from one set of experts sees an above-average hurricane season that may rival the busiest years on record.`\
+https://nytimes.com/2024/04/04/climate/ocean-temperature-hurricane-forecast.html
+
 **For Sale: One Huge Drawing, Maybe by Michelangelo**\
 `Former owners of the Renaissance artist’s villa want to sell a sketch once on a kitchen wall. But scholars are divided over whether Michelangelo actually drew it.`\
 https://nytimes.com/2024/04/04/arts/design/michelangelo-villa-drawing-for-sale.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/health/relyvrio-als-drug.html
 **The Takeaways From Disney’s Board Fight with Nelson Peltz**\
 `New voting rules made for sharper attacks, while a bold defense kept the activist investor at bay. But pressure remains on the company’s chief, Bob Iger.`\
 https://nytimes.com/2024/04/04/business/disney-iger-peltz-proxy-battle.html
-
-**What to Know About ‘Scoop’ and Prince Andrew’s Explosive TV Interview**\
-`A new Netflix film dramatizes the 2019 BBC conversation that led to the royal stepping back from public life.`\
-https://nytimes.com/2024/04/04/movies/prince-andrew-netflix-scoop.html
 
