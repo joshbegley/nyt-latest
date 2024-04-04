@@ -6,7 +6,7 @@ https://nytimes.com/2024/04/04/dining/these-brooklyn-restaurateurs-are-crossing-
 `Taylor James Johnatakis, 40, coordinated rioters to rush a police barricade at the Southwest stairs to the U.S. Capitol on Jan. 6.`\
 https://nytimes.com/2024/04/04/us/taylor-johnatakis-capitol-riot-sentencing.html
 
-**Proof that every vote matters: California Congressional primary has a rare tie for a runoff spot.**\
+**California Congressional Primary Has a Rare Tie for a Runoff Spot**\
 `Never before has California’s primary system resulted in a three-way runoff for a congressional seat.`\
 https://nytimes.com/2024/04/04/us/politics/california-three-way-runoff-silicon-valley.html
 
