@@ -18,9 +18,9 @@ https://nytimes.com/2024/04/04/us/politics/florida-abortion-rulings-house-republ
 `In his new show, James Harrison Monaco blends storytelling and electronic beats in service of curiosity and escape.`\
 https://nytimes.com/2024/04/04/theater/travels-review-james-harrison-monaco.html
 
-**Biden expressed his frustration with the broader disregard for the suffering of innocents in Gaza.**\
+**Biden tells Netanyahu that U.S. support hinges on treatment of Gaza civilians.**\
 `In a call with Prime Minister Benjamin Netanyahu of Israel, the president denounced the killing of seven aid workers in Gaza by Israeli military forces as “unacceptable” and said U.S. policy “will be determined” by how Israel changes its approach to the war.`\
-https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/biden-expressed-his-frustration-with-the-broader-disregard-for-the-suffering-of-innocents-in-gaza
+https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/biden-netanyahu-call-israel
 
 **Michael Singer, Sculptor Who Used Nature as His Medium, Dies at 78**\
 `His work, on an increasingly large scale, attempted to highlight, and repair, the impact of human intervention on the landscape.`\
