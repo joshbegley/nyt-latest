@@ -1,3 +1,11 @@
+**As Doctors’ Walkout Drags On, Some South Koreans Are Losing Patience**\
+`Thousands of interns and residents who stopped working in February are testing the public’s high regard for physicians. But there is also anger at the government.`\
+https://nytimes.com/2024/04/04/world/asia/south-korea-doctors-complaints.html
+
+**Global Forest Loss Remains High, Despite Recent Progress**\
+`Wildfires and agricultural expansion offset big gains in protecting tropical forests last year.`\
+https://nytimes.com/2024/04/04/climate/global-forest-tree-loss-wri.html
+
 **A Rising Star of Italian Violin Making Is a 32-Year-Old From South Korea**\
 `As a teenager, Ayoung An decided to become a violin maker. Her journey eventually took her to Cremona, Italy, a famed hub for masters like Antonio Stradivari.`\
 https://nytimes.com/2024/04/04/arts/violin-italy-antonio-stradivari-ayoung-an.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/03/nyregion/jose-cesari-beer-scheme.html
 **Trump Spoke Recently With Saudi Leader**\
 `It is not clear what the former president discussed with Prince Mohammed bin Salman, but news of their call came amid Biden administration negotiations with the Saudis over a Middle East peace plan.`\
 https://nytimes.com/2024/04/03/us/politics/trump-spoke-recently-with-saudi-leader.html
-
-**N.Y.P.D. Often Ignores Parking-Permit Abuse, Report Says**\
-`Failing to ticket illegally parked cars with officially issued permits is “a form of corruption that erodes the public trust,” the Department of Investigation said.`\
-https://nytimes.com/2024/04/03/nyregion/nypd-parking-permit-abuse.html
-
-**Hospital at Center of Alabama Embryo Ruling Is Ending I.V.F. Services**\
-`The hospital cited a “lack of clarity” in recent state legislation meant to shield I.V.F. providers as a factor in its decision. A separate fertility clinic at the site said it would relocate.`\
-https://nytimes.com/2024/04/03/us/politics/mobile-alabama-ivf-hospital.html
 

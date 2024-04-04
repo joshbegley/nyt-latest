@@ -1,3 +1,11 @@
+**As Doctors’ Walkout Drags On, Some South Koreans Are Losing Patience**\
+`Thousands of interns and residents who stopped working in February are testing the public’s high regard for physicians. But there is also anger at the government.`\
+https://nytimes.com/2024/04/04/world/asia/south-korea-doctors-complaints.html
+
+**Global Forest Loss Remains High, Despite Recent Progress**\
+`Wildfires and agricultural expansion offset big gains in protecting tropical forests last year.`\
+https://nytimes.com/2024/04/04/climate/global-forest-tree-loss-wri.html
+
 **A Rising Star of Italian Violin Making Is a 32-Year-Old From South Korea**\
 `As a teenager, Ayoung An decided to become a violin maker. Her journey eventually took her to Cremona, Italy, a famed hub for masters like Antonio Stradivari.`\
 https://nytimes.com/2024/04/04/arts/violin-italy-antonio-stradivari-ayoung-an.html
