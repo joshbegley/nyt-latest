@@ -1,3 +1,15 @@
+**Venice to Charge Day Trippers an Entry Fee to Discourage Overcrowding**\
+`Starting this month, tourists intending to visit the city on busy dates will be required to register on a website, and those coming for a single day will have to pay a little over $5.`\
+https://nytimes.com/2024/04/04/world/europe/venice-entry-fee.html
+
+**Watch an Elaborate One-Shot Montage in ‘Música’**\
+`Rudy Mancuso, the film’s director, composer, co-writer and star, narrates this sequence, which plays out in real time with movable sets.`\
+https://nytimes.com/2024/04/04/movies/musica-clip.html
+
+**‘Música’ | Anatomy of a Scene**\
+`The director and composer Rudy Mancuso narrates a one-shot sequence from his film, in which he also stars.`\
+https://nytimes.com/video/movies/100000009395965/musica-scene.html
+
 **TikTok Turns to Nuns, Veterans and Ranchers in Marketing Blitz**\
 `The video app is spending millions on ads as Congress considers a bill that could lead to a U.S. ban.`\
 https://nytimes.com/2024/04/04/business/media/tiktok-marketing-blitz-ban.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/04/opinion/letters/al-frankens-memories-of-christoph
 **Plan to Stash Pollution Beneath the Sea Could Save Money and Jobs**\
 `The Italian energy giant Eni sees future profits from collecting carbon dioxide and pumping it into natural gas fields that have been exhausted.`\
 https://nytimes.com/2024/04/04/business/carbon-capture-europe-eni.html
-
-**Biden Takes Aim at SpaceX’s Tax-Free Ride in American Airspace**\
-`President Biden wants companies that use American airspace for rocket launches to start paying taxes into a federal fund that finances the work of air traffic controllers.`\
-https://nytimes.com/2024/04/04/us/politics/spacex-biden-musk-taxes.html
-
-**What Teachers Have to Say About the Great American Teacher Crisis**\
-`They are deeply unhappy with nearly every aspect of their jobs.`\
-https://nytimes.com/live/2024/04/02/opinion/thepoint/teacher-crisis
-
-**Campaign trail shifts gears to focus on climate, as Harris heads to North Carolina.**\
-`The vice president aims to counter criticism from some Democrats over President Biden’s environmental policy.`\
-https://nytimes.com/live/2024/04/04/us/biden-trump-election/election-focus-climate-kamala-harris-north-carolina
 
