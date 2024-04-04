@@ -1,3 +1,7 @@
+**‘Little Women’ and the Art of Breaking Grammatical Rules**\
+`In an evolving language, it ain’t always clear — or important — what’s correct.`\
+https://nytimes.com/2024/04/04/opinion/little-women-grammar-rules.html
+
 **NATO Wants to Show Support for Ukraine, but Only So Much**\
 `Admitting Kyiv is a nonstarter as long as the war with Russia is raging. But the member nations want to show they are supporting Ukraine “for the long haul.”`\
 https://nytimes.com/2024/04/04/world/europe/ukraine-nato-stoltenberg-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/world/asia/israel-hamas-anniversary-korea-asia.ht
 **Judge Rejects Trump Dismissal Effort in Classified Documents Case**\
 `Judge Aileen Cannon ruled that the former president cannot escape prosecution by arguing that the Presidential Records Act allowed him to claim secret government material as his own property.`\
 https://nytimes.com/2024/04/04/us/politics/judge-trump-dismissal-classified-documents.html
-
-**What to Watch This Weekend: A Riveting True-Crime Drama**\
-`“Mr. Bates vs. the Post Office,” premiering Sunday on PBS, is a shattering mini-series about a real-life injustice.`\
-https://nytimes.com/2024/04/04/arts/television/mr-bates-vs-the-post-office.html
 
