@@ -1,3 +1,7 @@
+**Coastal Retreat**\
+`Kevin Curry makes a delicious solo crossword debut in The New York Times.`\
+https://nytimes.com/2024/04/03/crosswords/daily-puzzle-2024-04-04.html
+
 **Big Sur Urged to Evacuate as Another Storm Approaches**\
 `Officials are advising people to leave one of the nation’s most scenic coastal stretches before rain washes away more of Highway 1.`\
 https://nytimes.com/2024/04/03/us/big-sur-evacuation-storm.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/03/world/americas/canada-china-2021-election.html
 **The Necessary Discomfort of Jerrod Carmichael’s ‘Reality’**\
 `Jerrod Carmichael’s stock in trade is the exploitation of the awkward.`\
 https://nytimes.com/2024/04/03/opinion/jerrod-carmichael-reality-show.html
-
-**In a televised show of unity and defiance, Iran and its proxy militias denounce Israel and the U.S.**\
-`By Farnaz Fassihi and Hwaida Saad`\
-https://nytimes.com/live/2024/04/03/world/israel-hamas-war-gaza-news/in-a-televised-show-of-unity-and-defiance-iran-and-its-proxy-militias-denounce-israel-and-the-us
 
