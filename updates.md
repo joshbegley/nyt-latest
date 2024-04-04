@@ -1,3 +1,7 @@
+**Al Franken’s Memories of Christopher Durang**\
+`The comedian and former senator writes about the late playwright.`\
+https://nytimes.com/2024/04/04/opinion/letters/al-frankens-memories-of-christopher-durang.html
+
 **Plan to Stash Pollution Beneath the Sea Could Save Money and Jobs**\
 `The Italian energy giant Eni sees future profits from collecting carbon dioxide and pumping it into natural gas fields that have been exhausted.`\
 https://nytimes.com/2024/04/04/business/carbon-capture-europe-eni.html
