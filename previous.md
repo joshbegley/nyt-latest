@@ -1,3 +1,11 @@
+**Antiquarian Book Fair: From Sylvia Plath’s Papers to Vintage Matchbooks**\
+`This year’s New York International Antiquarian Book Fair features plenty of quirky items amid the high-ticket treasures. (Poison books, anyone?)`\
+https://nytimes.com/2024/04/04/books/new-york-antiquarian-book-fair.html
+
+**Have a Wine Bar Night at Home With These Recipes**\
+`Vegetables with cashew romesco, saucy roasted cauliflower, whipped ricotta and more dishes that will transport you to your favorite small-plates spot.`\
+https://nytimes.com/2024/04/04/dining/have-a-wine-bar-night-at-home-with-these-recipes.html
+
 **Behind Our Reporting on Sexual Assaults in the Darién Gap**\
 `Robbery and rape have long been a risk for migrants crossing the Darién Gap, but recently, there has been a sharp rise in sexual violence directed at women and girls.`\
 https://nytimes.com/video/world/americas/100000009395584/behind-our-reporting-on-sexual-assaults-in-the-darien-gap.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/04/us/politics/clay-higgins-jan-6.html
 **Review: Turning Dancers Into Aliens One Step at a Time**\
 `Under the artistic leadership of Emily Molnar, Nederlands Dans Theater returned to New York City Center with a less than stellar triple bill.`\
 https://nytimes.com/2024/04/04/arts/dance/review-nederlands-dans-theater.html
-
-**How an Editors’ Note Fueled Another Kate Conspiracy Theory**\
-`A routine Getty Images caption beside the Princess of Wales’s cancer announcement has fanned disinformation about her. Researchers say there is no evidence that the video is fake.`\
-https://nytimes.com/2024/04/04/world/europe/kate-middleton-video-getty-conspiracy.html
-
-**Denmark Closes Shipping Lane Over Risk of Accidental Missile Launch**\
-`The military said the missile malfunctioned during a test aboard a warship, and there was a possibility it could fly a short distance, but no risk of the warhead exploding.`\
-https://nytimes.com/2024/04/04/world/europe/denmark-shipping-lane-missile-malfunction.html
 
