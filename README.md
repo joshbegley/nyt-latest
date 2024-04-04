@@ -1,3 +1,15 @@
+**A Looming Question for Paramount’s Board: How to Navigate Shari Redstone**\
+`The board of directors has to walk a fine line, looking out for investors without running afoul of Ms. Redstone, the company’s most influential shareholder.`\
+https://nytimes.com/2024/04/04/business/media/paramount-board-shari-redstone.html
+
+**Progressive Candidate Could Upend the San Francisco Mayor’s Race**\
+`The contest has been dominated by Mayor London Breed and her moderate challengers. Supervisor Aaron Peskin seeks to change that.`\
+https://nytimes.com/2024/04/04/us/san-francisco-mayor-peskin.html
+
+**R.F.K. Jr.’s Campaign Expressed Sympathy for Jan. 6 Rioters, Then Retracted It**\
+`In an email urging the United States to drop espionage charges against Julian Assange, the Kennedy campaign grouped the WikiLeaks founder with Edward Snowden and “J6 activists” in a D.C. jail.`\
+https://nytimes.com/2024/04/04/us/politics/rfk-jr-january-6-rioters-trump.html
+
 **Biden Threatens to Condition Israel Aid**\
 `Also, ocean temperatures signal a daunting hurricane season. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/04/04/briefing/biden-israel-call-darien-gap-violence.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/04/world/europe/ukraine-nato-stoltenberg-russia.html
 **Iran Says 17-Hour Battle With Separatists Leaves 28 Dead in 2 Cities**\
 `Jaish al-Adl, an ethnic Baluch group designated by the United States as a terrorist organization, claimed responsibility for the attacks.`\
 https://nytimes.com/2024/04/04/world/middleeast/iran-terrorist-attacks.html
-
-**Under Half of Illegal Gun Cases Tracked by A.T.F. Were Involved in Black Market Sales**\
-`The report, part of an effort by the Biden administration to make public previously undisclosed data, offered a portrait of the country’s growing illegal firearms market.`\
-https://nytimes.com/2024/04/04/us/politics/illegal-guns-atf.html
-
-**Don’t Let Our Broken Politics Mangle Our Faith**\
-`When I think of “Christian Visibility Day,” I have very different images in mind.`\
-https://nytimes.com/2024/04/04/opinion/christian-visibility-day-tolerance.html
-
-**Richard Benedick, Negotiator of Landmark Ozone Treaty, Dies at 88**\
-`He played a key role in securing the Montreal Protocol, an international environmental pact to protect the ozone layer by reducing the use of certain chemicals.`\
-https://nytimes.com/2024/04/04/us/politics/richard-benedick-dead.html
 
