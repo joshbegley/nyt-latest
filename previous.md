@@ -1,3 +1,11 @@
+**Don’t Let Our Broken Politics Mangle Our Faith**\
+`When I think of “Christian Visibility Day,” I have very different images in mind.`\
+https://nytimes.com/2024/04/04/opinion/christian-visibility-day-tolerance.html
+
+**Richard Benedick, Negotiator of Landmark Ozone Treaty, Dies at 88**\
+`He played a key role in securing the Montreal Protocol, an international environmental pact to protect the ozone layer by reducing the use of certain chemicals.`\
+https://nytimes.com/2024/04/04/us/politics/richard-benedick-dead.html
+
 **Will Israel Finally Listen to Biden?**\
 `It’s not clear that Netanyahu will take Biden’s threats seriously.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/biden-israel-gaza-aid-conditional
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/04/us/taylor-johnatakis-capitol-riot-sentencing.html
 **California Congressional Primary Has a Rare Tie for a Runoff Spot**\
 `Never before has California’s primary system resulted in a three-way runoff for a congressional seat.`\
 https://nytimes.com/2024/04/04/us/politics/california-three-way-runoff-silicon-valley.html
-
-**Do You Know How Flavor Works?**\
-`In her new book, “Flavorama,” the flavor scientist Arielle Johnson demystifies the sense of taste. Take this quiz and see how much you know about how taste is perceived.`\
-https://nytimes.com/interactive/2024/04/04/dining/flavor-quiz.html
-
-**Up to a Trillion Cicadas Are About to Emerge in the U.S.**\
-`Two periodical cicada broods are appearing in a 16-state area in the Midwest and Southeast for the first time in centuries. Can you get rid of them? Do they bite you? We answer your questions.`\
-https://nytimes.com/2024/04/04/science/cicada-emergence-invasion.html
 

@@ -1,3 +1,11 @@
+**Don’t Let Our Broken Politics Mangle Our Faith**\
+`When I think of “Christian Visibility Day,” I have very different images in mind.`\
+https://nytimes.com/2024/04/04/opinion/christian-visibility-day-tolerance.html
+
+**Richard Benedick, Negotiator of Landmark Ozone Treaty, Dies at 88**\
+`He played a key role in securing the Montreal Protocol, an international environmental pact to protect the ozone layer by reducing the use of certain chemicals.`\
+https://nytimes.com/2024/04/04/us/politics/richard-benedick-dead.html
+
 **Will Israel Finally Listen to Biden?**\
 `It’s not clear that Netanyahu will take Biden’s threats seriously.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/biden-israel-gaza-aid-conditional
