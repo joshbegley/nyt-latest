@@ -1,3 +1,11 @@
+**Read the document**\
+`A letter sent to the White House`\
+https://nytimes.com/interactive/2024/04/04/us/health-biden-letter.html
+
+**Read the document**\
+`A letter sent to the Trump campaign`\
+https://nytimes.com/interactive/2024/04/04/us/health-trump-letter.html
+
 **Workers Stuck on Mountain After Taiwan Earthquake**\
 `Footage shows people trapped in a mountainous area after a 7.4-magnitude earthquake triggered a landslide.`\
 https://nytimes.com/video/world/asia/100000009396344/taiwan-earthquake-rescue.html

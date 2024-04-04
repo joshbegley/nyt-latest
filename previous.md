@@ -1,3 +1,11 @@
+**Read the document**\
+`A letter sent to the White House`\
+https://nytimes.com/interactive/2024/04/04/us/health-biden-letter.html
+
+**Read the document**\
+`A letter sent to the Trump campaign`\
+https://nytimes.com/interactive/2024/04/04/us/health-trump-letter.html
+
 **Workers Stuck on Mountain After Taiwan Earthquake**\
 `Footage shows people trapped in a mountainous area after a 7.4-magnitude earthquake triggered a landslide.`\
 https://nytimes.com/video/world/asia/100000009396344/taiwan-earthquake-rescue.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/04/learning/how-to-host-unexpected-guests.html
 **How to Make Fear Your Friend**\
 `A winning essay by Zoe Brown, age 14.`\
 https://nytimes.com/2024/04/04/learning/how-to-make-fear-your-friend.html
-
-**Has Your Relationship to School Attendance Changed Since the Pandemic?**\
-`School absences have exploded across the United States. What do you make of this trend?`\
-https://nytimes.com/2024/04/04/learning/has-your-relationship-to-school-attendance-changed-since-the-pandemic.html
-
-**In a Box**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2024/04/04/learning/in-a-box.html
 
