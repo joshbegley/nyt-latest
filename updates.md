@@ -1,3 +1,11 @@
+**Quotation of the Day: Spotting a Bug That May Have Been Meant to Cripple the Internet**\
+`Quotation of the Day for Thursday, April 4, 2024.`\
+https://nytimes.com/2024/04/03/pageoneplus/quotation-of-the-day-spotting-a-bug-that-may-have-been-meant-to-cripple-the-internet.html
+
+**Corrections: April 4, 2024**\
+`Corrections that appeared in print on Thursday, April 4, 2024.`\
+https://nytimes.com/2024/04/03/pageoneplus/corrections-april-4-2024.html
+
 **Coastal Retreat**\
 `Kevin Curry makes a delicious solo crossword debut in The New York Times.`\
 https://nytimes.com/2024/04/03/crosswords/daily-puzzle-2024-04-04.html
