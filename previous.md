@@ -1,3 +1,7 @@
+**Tell Us Your Stories About Retirement**\
+`If you’ve reinvented your life after retiring from a career, we want to hear how it’s going and any advice you have for others.`\
+https://nytimes.com/2024/04/04/business/retirement/people-retirement-stories.html
+
 **Al Franken’s Memories of Christopher Durang**\
 `The comedian and former senator writes about the late playwright.`\
 https://nytimes.com/2024/04/04/opinion/letters/al-frankens-memories-of-christopher-durang.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/us/politics/trump-golf-saudi-arabia.html
 **Reworked Italian Jerseys That Celebrate Soccer Style**\
 `Plus: a Nancy Brooks Brody exhibition, a Nile sailboat charter and more recommendations from T Magazine.`\
 https://nytimes.com/2024/04/04/t-magazine/systemarosa-soccer-style.html
-
-**Shohei Ohtani’s Arrival Reflects Diversity of Dodgers Fans, and Los Angeles**\
-`Around Camelback Ranch, the Dodgers’ spring training home in Phoenix, fans of all backgrounds were wearing Ohtani jerseys and many spoke Japanese and Spanish.`\
-https://nytimes.com/2024/04/04/us/shohei-ohtani-dodgers-los-angeles.html
 
