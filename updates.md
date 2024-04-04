@@ -1,3 +1,7 @@
+**What Biden’s Anger Could Mean for Israel, and a Look at the Drama at Disney**\
+`Plus, aftershocks rattle Taiwan.`\
+https://nytimes.com/2024/04/04/podcasts/biden-israel-taiwan-disney.html
+
 **World Central Kitchen demands an independent investigation into Israel’s deadly strike.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/world-central-kitchen-demands-an-independent-investigation-into-israels-deadly-strike
