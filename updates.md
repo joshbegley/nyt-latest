@@ -1,3 +1,7 @@
+**What to See in N.Y.C. Galleries in April**\
+`Travis Diehl covers Marian Zazeela’s abstract calligraphy, Christopher Baliwas’s “Skin 2 Skin” show and Luigi Zuccheri’s surreal pastoral scenes.`\
+https://nytimes.com/2024/04/04/arts/design/what-to-see-nyc-galleries-april.html
+
 **Thursday Briefing**\
 `Ukraine expands its draft.`\
 https://nytimes.com/2024/04/04/briefing/ukraine-draft-taiwan-earthquake-gaza.html
