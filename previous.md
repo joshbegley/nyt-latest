@@ -1,3 +1,11 @@
+**When the Rubin Museum Was Divine**\
+`The Rubin will be “reimagined” as a global museum, but our critic says its charismatic presence will be only a troubling memory.`\
+https://nytimes.com/2024/04/04/arts/design/rubin-museum-closing-art-asia-buddhism.html
+
+**Ford Slows Its Push Into Electric Vehicles**\
+`The automaker said it would delay new battery-powered models and shift its focus to hybrid cars, sales of which are rising fast.`\
+https://nytimes.com/2024/04/04/business/ford-delays-electric-vehicles.html
+
 **Gaetano Pesce, Designer Who Broke the Rules, Is Dead at 84**\
 `He brought surrealism, and politics, into the design world, disdaining conformity and right angles. “He was an enemy of the grid.”`\
 https://nytimes.com/2024/04/04/arts/design/gaetano-pesce-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/04/science/space/astronomy-universe-dark-energy.html
 **Approaching Weeknight Burnout? The Solution Is Pasta.**\
 `Specifically, midnight pasta with garlic, anchovy, capers and red pepper from David Tanis.`\
 https://nytimes.com/2024/04/04/dining/approaching-weeknight-burnout-the-solution-is-pasta.html
-
-**Tell Us Your Stories About Retirement**\
-`If you’ve reinvented your life after retiring from a career, we want to hear how it’s going and any advice you have for others.`\
-https://nytimes.com/2024/04/04/business/retirement/people-retirement-stories.html
-
-**Al Franken’s Memories of Christopher Durang**\
-`The comedian and former senator writes about the late playwright.`\
-https://nytimes.com/2024/04/04/opinion/letters/al-frankens-memories-of-christopher-durang.html
 
