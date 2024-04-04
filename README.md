@@ -1,3 +1,7 @@
+**Iran Says 17-Hour Battle With Separatists Leaves 28 Dead in 2 Cities**\
+`Jaish al-Adl, an ethnic Baluch group designated by the United States as a terrorist organization, claimed responsibility for the attacks.`\
+https://nytimes.com/2024/04/04/world/middleeast/iran-terrorist-attacks.html
+
 **Under Half of Illegal Gun Cases Tracked by A.T.F. Were Involved in Black Market Sales**\
 `The report, part of an effort by the Biden administration to make public previously undisclosed data, offered a portrait of the country’s growing illegal firearms market.`\
 https://nytimes.com/2024/04/04/us/politics/illegal-guns-atf.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/arts/television/mr-bates-vs-the-post-office.html
 **These Brooklyn Restaurateurs Are Crossing the East River**\
 `Big names in Brooklyn are heading to Manhattan.`\
 https://nytimes.com/2024/04/04/dining/these-brooklyn-restaurateurs-are-crossing-the-east-river.html
-
-**Septic Installer Is Sentenced to 7 Years for Urging Jan. 6 Mob With Megaphone**\
-`Taylor James Johnatakis, 40, coordinated rioters to rush a police barricade at the Southwest stairs to the U.S. Capitol on Jan. 6.`\
-https://nytimes.com/2024/04/04/us/taylor-johnatakis-capitol-riot-sentencing.html
 
