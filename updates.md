@@ -1,3 +1,7 @@
+**Jonathan Levin, Dean of Business School, Is Stanford’s New President**\
+`Dr. Levin faces the challenge of guiding the university through politically fraught times.`\
+https://nytimes.com/2024/04/04/us/stanford-president-jonathan-levin.html
+
 **A Looming Question for Paramount’s Board: How to Navigate Shari Redstone**\
 `The board of directors has to walk a fine line, looking out for investors without running afoul of Ms. Redstone, the company’s most influential shareholder.`\
 https://nytimes.com/2024/04/04/business/media/paramount-board-shari-redstone.html
