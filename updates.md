@@ -1,3 +1,7 @@
+**Will Israel Finally Listen to Biden?**\
+`It’s not clear that Netanyahu will take Biden’s threats seriously.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/biden-israel-gaza-aid-conditional
+
 **When an Editor’s Job Is to Follow the Moon**\
 `As North America prepares for the total solar eclipse on April 8, Michael Roston, an editor on the Health and Science desk, prepares The Times.`\
 https://nytimes.com/2024/04/04/insider/how-the-times-reports-on-total-solar-ec.html
