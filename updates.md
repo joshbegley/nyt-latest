@@ -1,3 +1,7 @@
+**Big Sur Urged to Evacuate as Another Storm Approaches**\
+`Officials are advising people to leave one of the nation’s most scenic coastal stretches before rain washes away more of Highway 1.`\
+https://nytimes.com/2024/04/03/us/big-sur-evacuation-storm.html
+
 **U.S. Charges 8 in Beer Heists That Targeted Trains and Warehouses**\
 `The men stole hundreds of thousands of dollars’ worth of beer, mostly Modelo and Corona, by robbing rail yards and warehouses across the Northeast, federal prosecutors said.`\
 https://nytimes.com/2024/04/03/nyregion/jose-cesari-beer-scheme.html
