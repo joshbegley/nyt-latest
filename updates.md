@@ -1,3 +1,15 @@
+**Amid Tragedy, Anguished Pleas for Gaza**\
+`Responses to an Opinion essay by José Andrés and news articles. Also: New York City’s mental health shelters; the eclipse; Donald Trump and the Bible.`\
+https://nytimes.com/2024/04/04/opinion/gaza-food-convoy.html
+
+**Republican Jewish Coalition Takes on Indiana Republican**\
+`Most of the battles over Israel play out in Democratic primaries. But a G.O.P. group is putting up $1 million for ads against John N. Hostettler, who is running for Congress.`\
+https://nytimes.com/2024/04/04/us/politics/john-hostettler-republican-jewish-coalition-indiana.html
+
+**Georgia Judge Rejects Effort to Dismiss Trump Case on Free Speech Grounds**\
+`The defense had argued that some of the charges were based on statements Donald Trump and his co-defendants made in 2020 that were constitutionally protected.`\
+https://nytimes.com/2024/04/04/us/georgia-judge-trump-free-speech.html
+
 **Antiquarian Book Fair: From Sylvia Plath’s Papers to Vintage Matchbooks**\
 `This year’s New York International Antiquarian Book Fair features plenty of quirky items amid the high-ticket treasures. (Poison books, anyone?)`\
 https://nytimes.com/2024/04/04/books/new-york-antiquarian-book-fair.html

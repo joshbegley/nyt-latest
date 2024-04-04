@@ -1,3 +1,15 @@
+**Amid Tragedy, Anguished Pleas for Gaza**\
+`Responses to an Opinion essay by José Andrés and news articles. Also: New York City’s mental health shelters; the eclipse; Donald Trump and the Bible.`\
+https://nytimes.com/2024/04/04/opinion/gaza-food-convoy.html
+
+**Republican Jewish Coalition Takes on Indiana Republican**\
+`Most of the battles over Israel play out in Democratic primaries. But a G.O.P. group is putting up $1 million for ads against John N. Hostettler, who is running for Congress.`\
+https://nytimes.com/2024/04/04/us/politics/john-hostettler-republican-jewish-coalition-indiana.html
+
+**Georgia Judge Rejects Effort to Dismiss Trump Case on Free Speech Grounds**\
+`The defense had argued that some of the charges were based on statements Donald Trump and his co-defendants made in 2020 that were constitutionally protected.`\
+https://nytimes.com/2024/04/04/us/georgia-judge-trump-free-speech.html
+
 **Antiquarian Book Fair: From Sylvia Plath’s Papers to Vintage Matchbooks**\
 `This year’s New York International Antiquarian Book Fair features plenty of quirky items amid the high-ticket treasures. (Poison books, anyone?)`\
 https://nytimes.com/2024/04/04/books/new-york-antiquarian-book-fair.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/04/books/review/new-books-recommendations.html
 **As Heartbeat Opera Reaches a Milestone, So Does Its Musical Leader**\
 `Dan Schlosberg, who for 10 years has adapted opera classics for the company, has written its first world premiere.`\
 https://nytimes.com/2024/04/04/arts/music/heartbeat-opera-onegin-extinctionist.html
-
-**A New York Housing Deal Could Be Close. What’s Holding It Up?**\
-`The deal could clear the way for the construction of new homes and make it more difficult for landlords to evict renters, if lawmakers in Albany can find a compromise.`\
-https://nytimes.com/2024/04/04/nyregion/housing-deal-new-york.html
-
-**G.O.P. Congressman’s Wild Claim: F.B.I. Entrapped Jan. 6 Rioters**\
-`More than three years after the attack on Congress, a Republican subcommittee chairman offered a series of baseless and disproved claims about it, reflecting an effort on the right to falsify what occurred.`\
-https://nytimes.com/2024/04/04/us/politics/clay-higgins-jan-6.html
-
-**Review: Turning Dancers Into Aliens One Step at a Time**\
-`Under the artistic leadership of Emily Molnar, Nederlands Dans Theater returned to New York City Center with a less than stellar triple bill.`\
-https://nytimes.com/2024/04/04/arts/dance/review-nederlands-dans-theater.html
 
