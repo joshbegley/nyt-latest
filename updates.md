@@ -1,3 +1,15 @@
+**Venice to Charge Day Trippers an Entry Fee to Discourage Overcrowding**\
+`Starting this month, tourists intending to visit the city on busy dates will be required to register on a website, and those coming for a single day will have to pay a little over $5.`\
+https://nytimes.com/2024/04/04/world/europe/venice-entry-fee.html
+
+**Watch an Elaborate One-Shot Montage in ‘Música’**\
+`Rudy Mancuso, the film’s director, composer, co-writer and star, narrates this sequence, which plays out in real time with movable sets.`\
+https://nytimes.com/2024/04/04/movies/musica-clip.html
+
+**‘Música’ | Anatomy of a Scene**\
+`The director and composer Rudy Mancuso narrates a one-shot sequence from his film, in which he also stars.`\
+https://nytimes.com/video/movies/100000009395965/musica-scene.html
+
 **Judge Orders Timely Housing for Migrant Children Waiting at Border**\
 `The decision established that minors at open-air sites were in legal custody of the Department of Homeland Security and thus must receive safe shelter, even if they had not yet been formally processed.`\
 https://nytimes.com/2024/04/04/health/migrant-children-border-housing.html
