@@ -1,3 +1,7 @@
+**‘Little Women’ and the Art of Breaking Grammatical Rules**\
+`In an evolving language, it ain’t always clear — or important — what’s correct.`\
+https://nytimes.com/2024/04/04/opinion/little-women-grammar-rules.html
+
 **NATO Wants to Show Support for Ukraine, but Only So Much**\
 `Admitting Kyiv is a nonstarter as long as the war with Russia is raging. But the member nations want to show they are supporting Ukraine “for the long haul.”`\
 https://nytimes.com/2024/04/04/world/europe/ukraine-nato-stoltenberg-russia.html
