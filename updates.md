@@ -1,3 +1,7 @@
+**Trump Venues Bank on Golf, With Help From Saudi Arabia**\
+`The focus of the former president’s hotel business is shifting from big cities to his golf resorts, which are benefiting from a relationship with the Saudi-funded LIV Golf tournaments.`\
+https://nytimes.com/2024/04/04/us/politics/trump-golf-saudi-arabia.html
+
 **Nebraska Lawmakers Block Trump-Backed Changes to Electoral System**\
 `The state awards an electoral vote to the winner of each congressional district. Former President Donald J. Trump and allies want a “winner take all” system, which may have another chance to pass.`\
 https://nytimes.com/2024/04/04/us/politics/nebraska-winner-take-all-trump.html

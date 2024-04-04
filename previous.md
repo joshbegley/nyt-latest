@@ -1,3 +1,7 @@
+**Trump Venues Bank on Golf, With Help From Saudi Arabia**\
+`The focus of the former president’s hotel business is shifting from big cities to his golf resorts, which are benefiting from a relationship with the Saudi-funded LIV Golf tournaments.`\
+https://nytimes.com/2024/04/04/us/politics/trump-golf-saudi-arabia.html
+
 **Reworked Italian Jerseys That Celebrate Soccer Style**\
 `Plus: a Nancy Brooks Brody exhibition, a Nile sailboat charter and more recommendations from T Magazine.`\
 https://nytimes.com/2024/04/04/t-magazine/systemarosa-soccer-style.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/movies/prince-andrew-netflix-scoop.html
 **‘Yannick’ Review: First Act Problems**\
 `Audience members revolting against bad art isn’t a new thing, but Quentin Dupieux puts a fresh twist on that theme in his surreal new comedy.`\
 https://nytimes.com/2024/04/04/movies/yannick-review.html
-
-**‘Scoop’ Review: The Story Behind That Prince Andrew Interview**\
-`In 2019, the prince went on air to respond to accusations involving Jeffery Epstein. The drama here is in how the BBC convinced him to do it.`\
-https://nytimes.com/2024/04/04/movies/scoop-review-prince-andrew-bbc.html
 
