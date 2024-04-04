@@ -1,3 +1,11 @@
+**As Heartbeat Opera Reaches a Milestone, So Does Its Musical Leader**\
+`Dan Schlosberg, who for 10 years has adapted opera classics for the company, has written its first world premiere.`\
+https://nytimes.com/2024/04/04/arts/music/heartbeat-opera-onegin-extinctionist.html
+
+**A New York Housing Deal Could Be Close. What’s Holding It Up?**\
+`The deal could clear the way for the construction of new homes and make it more difficult for landlords to evict renters, if lawmakers in Albany can find a compromise.`\
+https://nytimes.com/2024/04/04/nyregion/housing-deal-new-york.html
+
 **G.O.P. Congressman’s Wild Claim: F.B.I. Entrapped Jan. 6 Rioters**\
 `More than three years after the attack on Congress, a Republican subcommittee chairman offered a series of baseless and disproved claims about it, reflecting an effort on the right to falsify what occurred.`\
 https://nytimes.com/2024/04/04/us/politics/clay-higgins-jan-6.html
