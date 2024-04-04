@@ -1,3 +1,7 @@
+**Review: Turning Dancers Into Aliens One Step at a Time**\
+`Under the artistic leadership of Emily Molnar, Nederlands Dans Theater returned to New York City Center with a less than stellar triple bill.`\
+https://nytimes.com/2024/04/04/arts/dance/review-nederlands-dans-theater.html
+
 **How an Editors’ Note Fueled Another Kate Conspiracy Theory**\
 `A routine Getty Images caption beside the Princess of Wales’s cancer announcement has fanned disinformation about her. Researchers say there is no evidence that the video is fake.`\
 https://nytimes.com/2024/04/04/world/europe/kate-middleton-video-getty-conspiracy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/arts/design/rubin-museum-closing-art-asia-buddhis
 **Ford Slows Its Push Into Electric Vehicles**\
 `The automaker said it would delay new battery-powered models and shift its focus to hybrid cars, sales of which are rising fast.`\
 https://nytimes.com/2024/04/04/business/ford-delays-electric-vehicles.html
-
-**Gaetano Pesce, Designer Who Broke the Rules, Is Dead at 84**\
-`He brought surrealism, and politics, into the design world, disdaining conformity and right angles. “He was an enemy of the grid.”`\
-https://nytimes.com/2024/04/04/arts/design/gaetano-pesce-dead.html
 
