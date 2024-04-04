@@ -1,3 +1,7 @@
+**Iran’s Axis of Resistance**\
+`We examine what could push Iran and Israel toward confrontation.`\
+https://nytimes.com/2024/04/04/briefing/irans-axis-of-resistance.html
+
 **What Biden’s Anger Could Mean for Israel, and a Look at the Drama at Disney**\
 `Plus, aftershocks rattle Taiwan.`\
 https://nytimes.com/2024/04/04/podcasts/biden-israel-taiwan-disney.html
