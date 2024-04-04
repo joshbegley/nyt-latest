@@ -1,3 +1,11 @@
+**Hospital at Center of Alabama Embryo Ruling Is Ending I.V.F. Services**\
+`The hospital cited a “lack of clarity” in recent state legislation meant to shield I.V.F. providers as a factor in its decision. A separate fertility clinic at the site said it would relocate.`\
+https://nytimes.com/2024/04/03/us/politics/mobile-alabama-ivf-hospital.html
+
+**Lawmaker Is Left With ‘Lifetime Trauma’ as Attacker Pleads Guilty**\
+`Andrey Desmond pleaded guilty to three felony charges in the attack on Maryam Khan, a member of the Connecticut House of Representatives, last June.`\
+https://nytimes.com/2024/04/03/nyregion/connecticut-muslim-lawmaker-attack.html
+
 **NASA Picks 3 Companies to Help Astronauts Drive Around the Moon**\
 `The agency’s future moon buggies will reach speeds of 9.3 miles per hour and will be capable of self-driving.`\
 https://nytimes.com/2024/04/03/science/moon-nasa-lunar-terrain-vehicle.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/03/us/politics/us-china-economic-divide.html
 **Abortion and the Florida Fakeout**\
 `Will the state sit the presidential election out, like a retiree watching pickleball?`\
 https://nytimes.com/2024/04/03/us/politics/abortion-florida-election.html
-
-**Biden Is ‘Outraged.’ But Is He Willing to Use America’s Leverage With Israel?**\
-`President Biden, at least in public, has limited his responses to Israel’s war in Gaza to ever more indignant declarations.`\
-https://nytimes.com/2024/04/03/us/politics/biden-israel-gaza.html
-
-**Food Aid for Gazans Was Sent Back to Cyprus**\
-`Also, Ukraine lowered its draft age. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/04/03/briefing/food-aid-gaza-ukraine-draft-age.html
 
