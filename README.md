@@ -20,7 +20,7 @@ https://nytimes.com/2024/04/04/theater/travels-review-james-harrison-monaco.html
 
 **Biden tells Netanyahu that U.S. support hinges on treatment of Gaza civilians.**\
 `In a call with Prime Minister Benjamin Netanyahu of Israel, the president denounced the killing of seven aid workers in Gaza by Israeli military forces as “unacceptable” and said U.S. policy “will be determined” by how Israel changes its approach to the war.`\
-https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/biden-netanyahu-call-israel
+https://nytimes.com/2024/04/04/world/middleeast/biden-netanyahu-call-israel.html
 
 **Michael Singer, Sculptor Who Used Nature as His Medium, Dies at 78**\
 `His work, on an increasingly large scale, attempted to highlight, and repair, the impact of human intervention on the landscape.`\
