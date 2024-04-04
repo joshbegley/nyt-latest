@@ -1,3 +1,11 @@
+**Sexual Assault of Migrants in Panama Rises to Level Rarely Seen Outside War**\
+`The New York Times interviewed more than 70 people who said they had been victims of armed robbery. Fourteen were women who said they had suffered sexual violence.`\
+https://nytimes.com/2024/04/04/world/americas/migrants-sexual-assault-darien-gap.html
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/04/04/books/review/new-books-recommendations.html
+
 **As Heartbeat Opera Reaches a Milestone, So Does Its Musical Leader**\
 `Dan Schlosberg, who for 10 years has adapted opera classics for the company, has written its first world premiere.`\
 https://nytimes.com/2024/04/04/arts/music/heartbeat-opera-onegin-extinctionist.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/04/arts/dance/review-max-roach-ayodele-casel-joyce-t
 **Inside a G.O.P. Plan to Encourage Early Voting Despite Trump’s Attacks**\
 `Donald Trump’s falsehoods about mail voting have created a strategic disadvantage for Republicans, who must rely on Election Day turnout. The group Turning Point Action has a $100 million plan to change voters’ habits.`\
 https://nytimes.com/2024/04/04/us/politics/trump-turning-point-action-chase-vote.html
-
-**‘Monkey Man’ Review: Vengeance Is His**\
-`Dev Patel stars as Kid, a human punching bag who comes up with a plan to avenge a past wrong. The hits keep coming and the hero keeps taking them in this rapid-fire film.`\
-https://nytimes.com/2024/04/04/movies/monkey-man-review-dev-patel.html
-
-**John Sinclair, 82, Dies; Counterculture Activist Who Led a ‘Guitar Army’**\
-`His imprisonment for a minor marijuana offense became a cause célèbre. He was released after John Lennon and Yoko Ono sang about him at a protest rally.`\
-https://nytimes.com/2024/04/04/us/john-sinclair-deadd.html
 

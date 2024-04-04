@@ -1,3 +1,11 @@
+**Sexual Assault of Migrants in Panama Rises to Level Rarely Seen Outside War**\
+`The New York Times interviewed more than 70 people who said they had been victims of armed robbery. Fourteen were women who said they had suffered sexual violence.`\
+https://nytimes.com/2024/04/04/world/americas/migrants-sexual-assault-darien-gap.html
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/04/04/books/review/new-books-recommendations.html
+
 **As Heartbeat Opera Reaches a Milestone, So Does Its Musical Leader**\
 `Dan Schlosberg, who for 10 years has adapted opera classics for the company, has written its first world premiere.`\
 https://nytimes.com/2024/04/04/arts/music/heartbeat-opera-onegin-extinctionist.html
