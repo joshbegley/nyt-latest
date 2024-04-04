@@ -1,3 +1,7 @@
+**N.Y.P.D. Often Ignores Parking-Permit Abuse, Report Says**\
+`Failing to ticket illegally parked cars with officially issued permits is “a form of corruption that erodes the public trust,” the Department of Investigation said.`\
+https://nytimes.com/2024/04/03/nyregion/nypd-parking-permit-abuse.html
+
 **Hospital at Center of Alabama Embryo Ruling Is Ending I.V.F. Services**\
 `The hospital cited a “lack of clarity” in recent state legislation meant to shield I.V.F. providers as a factor in its decision. A separate fertility clinic at the site said it would relocate.`\
 https://nytimes.com/2024/04/03/us/politics/mobile-alabama-ivf-hospital.html
