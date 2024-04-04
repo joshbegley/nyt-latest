@@ -1,5 +1,17 @@
-**Why a Trillion Cicadas May Emerge in the U.S. This Spring**\
-`A roughly 16-state area spanning the Midwest and Southeast will be center stage for these insects as the two broods appear together for the first time in more than two centuries.`\
+**Septic Installer Is Sentenced to 7 Years for Urging Jan. 6 Mob With Megaphone**\
+`Taylor James Johnatakis, 40, coordinated rioters to rush a police barricade at the Southwest stairs to the U.S. Capitol on Jan. 6.`\
+https://nytimes.com/2024/04/04/us/taylor-johnatakis-capitol-riot-sentencing.html
+
+**Proof that every vote matters: California Congressional primary has a three-way tie.**\
+`By Jill Cowan`\
+https://nytimes.com/live/2024/04/04/us/biden-trump-election/proof-that-every-vote-matters-california-congressional-primary-has-a-three-way-tie
+
+**Do You Know How Flavor Works?**\
+`In her new book, “Flavorama,” the flavor scientist Arielle Johnson demystifies the sense of taste. Take this quiz and see how much you know about how taste is perceived.`\
+https://nytimes.com/interactive/2024/04/04/dining/flavor-quiz.html
+
+**Up to a Trillion Cicadas Are About to Emerge in the U.S.**\
+`Two periodical cicada broods are appearing in a 16-state area in the Midwest and Southeast for the first time in centuries. Can you get rid of them? Do they bite you? We answer your questions.`\
 https://nytimes.com/2024/04/04/science/cicada-emergence-invasion.html
 
 **Glasses Improve Income, Not Just Eyesight**\
