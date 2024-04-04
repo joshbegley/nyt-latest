@@ -1,3 +1,7 @@
+**California Congressional Primary Has a Rare Tie for a Runoff Spot**\
+`Never before has California’s primary system resulted in a three-way runoff for a congressional seat.`\
+https://nytimes.com/2024/04/04/us/politics/california-three-way-runoff-silicon-valley.html
+
 **These Brooklyn Restaurateurs Are Crossing the East River**\
 `Big names in Brooklyn are heading to Manhattan.`\
 https://nytimes.com/2024/04/04/dining/these-brooklyn-restaurateurs-are-crossing-the-east-river.html
