@@ -1,3 +1,11 @@
+**Quotation of the Day: Spotting a Bug That May Have Been Meant to Cripple the Internet**\
+`Quotation of the Day for Thursday, April 4, 2024.`\
+https://nytimes.com/2024/04/03/pageoneplus/quotation-of-the-day-spotting-a-bug-that-may-have-been-meant-to-cripple-the-internet.html
+
+**Corrections: April 4, 2024**\
+`Corrections that appeared in print on Thursday, April 4, 2024.`\
+https://nytimes.com/2024/04/03/pageoneplus/corrections-april-4-2024.html
+
 **Coastal Retreat**\
 `Kevin Curry makes a delicious solo crossword debut in The New York Times.`\
 https://nytimes.com/2024/04/03/crosswords/daily-puzzle-2024-04-04.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/03/nyregion/connecticut-muslim-lawmaker-attack.html
 **NASA Picks 3 Companies to Help Astronauts Drive Around the Moon**\
 `The agency’s future moon buggies will reach speeds of 9.3 miles per hour and will be capable of self-driving.`\
 https://nytimes.com/2024/04/03/science/moon-nasa-lunar-terrain-vehicle.html
-
-**Canadian Politicians Were Targeted by China in 2021, Report Says**\
-`Lawmakers testified at a public hearing on foreign interference that they had been caught in China’s cross hairs after criticizing it over human rights.`\
-https://nytimes.com/2024/04/03/world/americas/canada-china-2021-election.html
-
-**The Necessary Discomfort of Jerrod Carmichael’s ‘Reality’**\
-`Jerrod Carmichael’s stock in trade is the exploitation of the awkward.`\
-https://nytimes.com/2024/04/03/opinion/jerrod-carmichael-reality-show.html
 
