@@ -1,3 +1,9 @@
+**In an Autocratic Region, a Glimmer of Democracy as Kuwaitis Cast Votes**\
+`With a new ruler in charge, the oil-rich emirate is electing a new Parliament for the fourth time in four years while grappling with political turmoil.`\
+https://nytimes.com/2024/04/04/world/middleeast/kuwait-elections-parliament.html
+
+**A Beginner’s Guide to Dungeons & Dragons**\
+
 **Biden tells Netanyahu that U.S. support hinges on treatment of Gaza civilians.**\
 `In a call with Prime Minister Benjamin Netanyahu of Israel, the president denounced the killing of seven aid workers in Gaza by Israeli military forces as “unacceptable” and said U.S. policy “will be determined” by how Israel changes its approach to the war.`\
 https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/biden-netanyahu-call-israel
