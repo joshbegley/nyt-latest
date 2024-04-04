@@ -1,3 +1,15 @@
+**A Looming Question for Paramount’s Board: How to Navigate Shari Redstone**\
+`The board of directors has to walk a fine line, looking out for investors without running afoul of Ms. Redstone, the company’s most influential shareholder.`\
+https://nytimes.com/2024/04/04/business/media/paramount-board-shari-redstone.html
+
+**Progressive Candidate Could Upend the San Francisco Mayor’s Race**\
+`The contest has been dominated by Mayor London Breed and her moderate challengers. Supervisor Aaron Peskin seeks to change that.`\
+https://nytimes.com/2024/04/04/us/san-francisco-mayor-peskin.html
+
+**R.F.K. Jr.’s Campaign Expressed Sympathy for Jan. 6 Rioters, Then Retracted It**\
+`In an email urging the United States to drop espionage charges against Julian Assange, the Kennedy campaign grouped the WikiLeaks founder with Edward Snowden and “J6 activists” in a D.C. jail.`\
+https://nytimes.com/2024/04/04/us/politics/rfk-jr-january-6-rioters-trump.html
+
 **Biden Threatens to Condition Israel Aid**\
 `Also, ocean temperatures signal a daunting hurricane season. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/04/04/briefing/biden-israel-call-darien-gap-violence.html
