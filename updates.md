@@ -1,3 +1,15 @@
+**Inside a G.O.P. Plan to Encourage Early Voting Despite Trump’s Attacks**\
+`Donald Trump’s falsehoods about mail voting have created a strategic disadvantage for Republicans, who must rely on Election Day turnout. The group Turning Point Action has a $100 million plan to change voters’ habits.`\
+https://nytimes.com/2024/04/04/us/politics/trump-turning-point-action-chase-vote.html
+
+**‘Monkey Man’ Review: Vengeance Is His**\
+`Dev Patel stars as Kid, a human punching bag who comes up with a plan to avenge a past wrong. The hits keep coming and the hero keeps taking them in this rapid-fire film.`\
+https://nytimes.com/2024/04/04/movies/monkey-man-review-dev-patel.html
+
+**John Sinclair, 82, Dies; Counterculture Activist Who Led a ‘Guitar Army’**\
+`His imprisonment for a minor marijuana offense became a cause célèbre. He was released after John Lennon and Yoko Ono sang about him at a protest rally.`\
+https://nytimes.com/2024/04/04/us/john-sinclair-deadd.html
+
 **Do You Have Experience With Gun Violence? Tell Us About It.**\
 `Headway wants to hear from people affected by gun violence and those working to end it.`\
 https://nytimes.com/2024/04/04/headway/gun-violence-community-experience.html
