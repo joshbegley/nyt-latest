@@ -1,3 +1,11 @@
+**Do You Have Experience With Gun Violence? Tell Us About It.**\
+`Headway wants to hear from people affected by gun violence and those working to end it.`\
+https://nytimes.com/2024/04/04/headway/gun-violence-community-experience.html
+
+**A Tantalizing ‘Hint’ That Astronomers Got Dark Energy All Wrong**\
+`Scientists may have discovered a major flaw in their understanding of that mysterious cosmic force. That could be good news for the fate of the universe.`\
+https://nytimes.com/2024/04/04/science/space/astronomy-universe-dark-energy.html
+
 **When the Rubin Museum Was Divine**\
 `The Rubin will be “reimagined” as a global museum, but our critic says its charismatic presence will be only a troubling memory.`\
 https://nytimes.com/2024/04/04/arts/design/rubin-museum-closing-art-asia-buddhism.html
