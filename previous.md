@@ -2,6 +2,10 @@
 `The video app is spending millions on ads as Congress considers a bill that could lead to a U.S. ban.`\
 https://nytimes.com/2024/04/04/business/media/tiktok-marketing-blitz-ban.html
 
+**Judge Orders Timely Housing for Migrant Children Waiting at Border**\
+`The decision established that minors at open-air sites were in legal custody of the Department of Homeland Security and thus must receive safe shelter, even if they had not yet been formally processed.`\
+https://nytimes.com/2024/04/04/health/migrant-children-border-housing.html
+
 **A Tantalizing ‘Hint’ That Astronomers Got Dark Energy All Wrong**\
 `Scientists may have discovered a major flaw in their understanding of that mysterious cosmic. That could be good news for the fate of the universe.`\
 https://nytimes.com/2024/04/04/science/space/astronomy-universe-dark-energy.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/02/opinion/thepoint/teacher-crisis
 **Campaign trail shifts gears to focus on climate, as Harris heads to North Carolina.**\
 `The vice president aims to counter criticism from some Democrats over President Biden’s environmental policy.`\
 https://nytimes.com/live/2024/04/04/us/biden-trump-election/election-focus-climate-kamala-harris-north-carolina
-
-**‘Alarming’ Ocean Temperatures Suggest This Hurricane Season Will Be a Daunting One**\
-`An early forecast from one set of experts sees an above-average hurricane season that may rival the busiest years on record.`\
-https://nytimes.com/2024/04/04/climate/ocean-temperature-hurricane-forecast.html
 

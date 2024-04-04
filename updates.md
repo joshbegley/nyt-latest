@@ -1,3 +1,7 @@
+**Judge Orders Timely Housing for Migrant Children Waiting at Border**\
+`The decision established that minors at open-air sites were in legal custody of the Department of Homeland Security and thus must receive safe shelter, even if they had not yet been formally processed.`\
+https://nytimes.com/2024/04/04/health/migrant-children-border-housing.html
+
 **TikTok Turns to Nuns, Veterans and Ranchers in Marketing Blitz**\
 `The video app is spending millions on ads as Congress considers a bill that could lead to a U.S. ban.`\
 https://nytimes.com/2024/04/04/business/media/tiktok-marketing-blitz-ban.html
