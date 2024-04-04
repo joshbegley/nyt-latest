@@ -1,3 +1,7 @@
+**It’s Not Surprising That No Labels Could Never Find a Candidate**\
+`Some politicians may have believed the group could do too well at the polls at a chaotic time.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/nolabels-candidate
+
 **Jonathan Levin, Dean of Business School, Is Stanford’s New President**\
 `Dr. Levin faces the challenge of guiding the university through politically fraught times.`\
 https://nytimes.com/2024/04/04/us/stanford-president-jonathan-levin.html
