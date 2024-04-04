@@ -1,3 +1,11 @@
+**Behind Our Reporting on Sexual Assaults in the Darién Gap**\
+`Robbery and rape have long been a risk for migrants crossing the Darién Gap, but recently, there has been a sharp rise in sexual violence directed at women and girls.`\
+https://nytimes.com/video/world/americas/100000009395584/behind-our-reporting-on-sexual-assaults-in-the-darien-gap.html
+
+**‘Coup de Chance’ Review: Woody Allen’s Usual With a French Twist**\
+`Despite its Parisian setting, the setup is familiar from any of Allen’s New York movies: An act of infidelity presents a dilemma. Some of the jokes are funny.`\
+https://nytimes.com/2024/04/04/movies/coup-de-chance-review-woody-allen.html
+
 **Sexual Assault of Migrants in Panama Rises to Level Rarely Seen Outside War**\
 `The New York Times interviewed more than 70 people who said they had been victims of armed robbery. Fourteen were women who said they had suffered sexual violence.`\
 https://nytimes.com/2024/04/04/world/americas/migrants-sexual-assault-darien-gap.html
