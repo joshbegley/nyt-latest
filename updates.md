@@ -1,3 +1,15 @@
+**U.S. Defense Secretary Denounces Israel’s Strike on Aid Workers in Gaza**\
+`A bristling phone call reflected a shift in Lloyd J. Austin III’s tone toward his Israeli counterpart as he stressed the need for better protection of aid workers.`\
+https://nytimes.com/2024/04/04/world/middleeast/lloyd-austin-aid-workers-gaza.html
+
+**A senior official says Biden’s anger with Israel has hit a peak.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/senior-officials-say-bidens-anger-with-israel-has-hit-a-peak
+
+**04mideast-crisis**\
+`Biden Is Set to Speak With Netanyahu Amid Rising Frustration With Israel`\
+https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news
+
 **How to Become Friends With a Wild Bird**\
 `A winning essay by Shannon Hong, age 16.`\
 https://nytimes.com/2024/04/04/learning/how-to-become-friends-with-a-wild-bird.html
