@@ -1,3 +1,11 @@
+**No Labels Abandons Effort to Field a Presidential Candidate**\
+`The centrist group laid out grand ambitions of running a third-party candidate in a Biden-Trump contest, but the most prominent figures it courted all said no.`\
+https://nytimes.com/2024/04/04/us/politics/no-labels-election-presidential-candidate.html
+
+**Eclipse’s Path Is Also Leaving a Trail of High Hotel Prices**\
+`One Super 8 in Illinois advertised $949 a night. Its normal rate is $95.`\
+https://nytimes.com/2024/04/04/upshot/eclipse-hotel-prices.html
+
 **New York Attorney General Questions Trump’s $175 Million Bond Deal**\
 `Letitia James, the attorney general, said in court papers that the California company providing the guarantee was not qualified to do such deals in New York.`\
 https://nytimes.com/2024/04/04/nyregion/letitia-james-trump-bond-deal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/04/opinion/gaza-food-convoy.html
 **Republican Jewish Coalition Takes on Indiana Republican**\
 `Most of the battles over Israel play out in Democratic primaries. But a G.O.P. group is putting up $1 million for ads against John N. Hostettler, who is running for Congress.`\
 https://nytimes.com/2024/04/04/us/politics/john-hostettler-republican-jewish-coalition-indiana.html
-
-**Georgia Judge Rejects Effort to Dismiss Trump Case on Free Speech Grounds**\
-`The defense had argued that some of the charges were based on statements Donald Trump and his co-defendants made in 2020 that were constitutionally protected.`\
-https://nytimes.com/2024/04/04/us/georgia-judge-trump-free-speech.html
-
-**Antiquarian Book Fair: From Sylvia Plath’s Papers to Vintage Matchbooks**\
-`This year’s New York International Antiquarian Book Fair features plenty of quirky items amid the high-ticket treasures. (Poison books, anyone?)`\
-https://nytimes.com/2024/04/04/books/new-york-antiquarian-book-fair.html
 
