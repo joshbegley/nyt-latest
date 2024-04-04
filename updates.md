@@ -1,3 +1,7 @@
+**Biden tells Netanyahu that U.S. support hinges on treatment of Gaza civilians.**\
+`In a call with Prime Minister Benjamin Netanyahu of Israel, the president denounced the killing of seven aid workers in Gaza by Israeli military forces as “unacceptable” and said U.S. policy “will be determined” by how Israel changes its approach to the war.`\
+https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/biden-netanyahu-call-israel
+
 **No Labels Abandons Effort to Field a Presidential Candidate**\
 `The centrist group laid out grand ambitions of running a third-party candidate in a Biden-Trump contest, but the most prominent figures it courted all said no.`\
 https://nytimes.com/2024/04/04/us/politics/no-labels-election-presidential-candidate.html
