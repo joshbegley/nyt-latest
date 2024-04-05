@@ -1,3 +1,11 @@
+**What Children’s Book Worlds Do You Wish You Could Visit in Real Life?**\
+`A new museum of children’s literature brings “Caps for Sale,” “Blueberries for Sal,” “Goodnight Moon” and many more tales to life. What book worlds have most captivated you?`\
+https://nytimes.com/2024/04/05/learning/what-childrens-book-worlds-do-you-wish-you-could-visit-in-real-life.html
+
+**Rats on a Dog**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/04/05/learning/rats-on-a-dog.html
+
 **Word of the Day: archipelago**\
 `This word has appeared in 123 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/05/learning/word-of-the-day-archipelago.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/05/style/alexandra-dale-patrick-kohout-wedding.html
 **Quotation of the Day: One Leaning Tower in Italy Looks to Another for Advice**\
 `Quotation of the Day for Friday, April 5, 2024.`\
 https://nytimes.com/2024/04/05/pageoneplus/quotation-of-the-day-one-leaning-tower-in-italy-looks-to-another-for-advice.html
-
-**Corrections: April 5, 2024**\
-`Corrections that appeared in print on Friday, April 5, 2024.`\
-https://nytimes.com/2024/04/05/pageoneplus/corrections-april-5-2024.html
-
-**A Fate Potentially Guided by a Late Brother’s Hand**\
-`Tanya Sareen met Joel Adolphson, a former squadron mate of her brother Taj, who had been killed while serving six years earlier.`\
-https://nytimes.com/2024/04/05/style/tanya-sareen-joel-adolphson-wedding.html
 

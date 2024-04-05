@@ -1,3 +1,11 @@
+**What Children’s Book Worlds Do You Wish You Could Visit in Real Life?**\
+`A new museum of children’s literature brings “Caps for Sale,” “Blueberries for Sal,” “Goodnight Moon” and many more tales to life. What book worlds have most captivated you?`\
+https://nytimes.com/2024/04/05/learning/what-childrens-book-worlds-do-you-wish-you-could-visit-in-real-life.html
+
+**Rats on a Dog**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/04/05/learning/rats-on-a-dog.html
+
 **Word of the Day: archipelago**\
 `This word has appeared in 123 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/05/learning/word-of-the-day-archipelago.html
