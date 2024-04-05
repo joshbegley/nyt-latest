@@ -1,3 +1,19 @@
+**Review: A Conductor’s Philharmonic Debut Is a Homecoming**\
+`Karina Canellakis, a born-and-raised New Yorker, led her hometown orchestra alongside another debut, of the pianist Alice Sara Ott.`\
+https://nytimes.com/2024/04/05/arts/music/karina-canellakis-new-york-philharmonic-review.html
+
+**Larry David’s Rule Book for How (Not) to Live in Society**\
+`He’s a wild, monomaniacal jerk. He’s also our greatest interpreter of American manners since Emily Post.`\
+https://nytimes.com/2024/04/05/magazine/larry-david-curb-your-enthusiasm.html
+
+**How to Photograph a Solar Eclipse**\
+`There's a right way to do it.`\
+https://nytimes.com/interactive/2024/04/05/smarter-living/wirecutter/photograph-solar-eclipse.html
+
+**Go All-In on Detroit-Style Pizza**\
+`It’s hard to resist the charred and cheesy edges, a thick and chewy crust and a reverse order of toppings.`\
+https://nytimes.com/2024/04/05/dining/go-all-in-on-detroit-style-pizza.html
+
 **McDonald’s to Buy Back 225 Franchised Outlets in Israel After Boycotts**\
 `The move highlighted deepening political rifts facing multinationals in the region and follows boycotts after the fast-food chain’s Israeli franchise owner donated thousands of meals to soldiers.`\
 https://nytimes.com/2024/04/05/world/middleeast/mcdonalds-israel.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/05/us/politics/melania-trump-log-cabin-republicans-f
 **You Can Still Smoke in Atlantic City Casinos. Workers Want to Ban It.**\
 `The New Jersey casinos are the last large refuge for smokers in the Northeast, but some employees say their health is at risk.`\
 https://nytimes.com/2024/04/05/nyregion/casinos-smoking-new-jersey.html
-
-**What to Know About R.F.K. Jr. and His Threat to Biden and Trump**\
-`Mr. Kennedy has become the most prominent independent or third-party presence in the 2024 race.`\
-https://nytimes.com/article/rfk-jr-explainer.html
-
-**Opposition to Muslim Judicial Nominee Leaves Biden With a Tough Choice**\
-`Adeel Mangi would be the first Muslim American to be a federal appeals court judge, but has faced vitriolic attacks from the G.O.P. The president could run out of time to fill the seat.`\
-https://nytimes.com/2024/04/05/us/adeel-mangi-judge-biden.html
-
-**With No Labels out of the ’24 race, the third-party picture comes into focus.**\
-`By Reid J. Epstein`\
-https://nytimes.com/live/2024/04/05/us/election-trump-biden/no-labels-third-party-candidates
-
-**Yellen Faces Diplomatic Test in Urging China to Curb Green Energy Exports**\
-`The United States wants to persuade China to dial back its green energy industrial strategy as the Biden administration subsidizes its own supply chain.`\
-https://nytimes.com/2024/04/05/business/yellen-china-green-energy-exports.html
 

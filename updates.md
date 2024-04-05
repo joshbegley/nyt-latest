@@ -1,3 +1,7 @@
+**Here’s the latest on the earthquake.**\
+`The United States Geological Survey reported the quake around 10:23 a.m. There were no immediate reports of damage.`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/earthquake-new-york-boston-philadelphia
+
 **What to Do When You’ve Felt an Earthquake**\
 `And what else to know when the Earth moves.`\
 https://nytimes.com/article/what-to-know-about-earthquakes.html
