@@ -1,3 +1,7 @@
+**Earthquake Rattles New York and New Jersey, but Does Little Damage**\
+`A magnitude-4.8 earthquake struck the Northeast on Friday, rippling from Philadelphia to Boston.`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/earthquake-nyc-nj-northeast
+
 **Trump-Kennedy 2024? Trump, at Least, Is Intrigued by the Idea.**\
 `The former president has privately floated the idea of Robert F. Kennedy Jr. as a running mate. Those close to him do not see it as a serious possibility, however, and Mr. Kennedy said he would not consider it.`\
 https://nytimes.com/2024/04/05/us/politics/trump-rfk-running-mate.html

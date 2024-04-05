@@ -1,3 +1,7 @@
+**Earthquake Rattles New York and New Jersey, but Does Little Damage**\
+`A magnitude-4.8 earthquake struck the Northeast on Friday, rippling from Philadelphia to Boston.`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/earthquake-nyc-nj-northeast
+
 **Trump-Kennedy 2024? Trump, at Least, Is Intrigued by the Idea.**\
 `The former president has privately floated the idea of Robert F. Kennedy Jr. as a running mate. Those close to him do not see it as a serious possibility, however, and Mr. Kennedy said he would not consider it.`\
 https://nytimes.com/2024/04/05/us/politics/trump-rfk-running-mate.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/02/opinion/thepoint/rwanda-genocide-anniversary
 **Three Questions for the Queen of Quizzes**\
 `Donald Trump may be a terrible presidential candidate but he’s God’s gift to quiz writing.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/politics-quiz-gail-collins
-
-**Was Today’s Earthquake Connected to the Solar Eclipse?**\
-`The tidal forces on Earth grow as the sun, moon and Earth begin to align, a configuration that can lead to a solar eclipse. But the results of several studies of the relationship between earthquakes and tides are inconclusive, a geophysicist said.`\
-https://nytimes.com/2024/04/05/science/total-solar-eclipse-earthquake.html
 
