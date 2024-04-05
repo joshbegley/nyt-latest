@@ -1,3 +1,11 @@
+**Biden urges Egypt and Qatar to turn up the pressure on Hamas to make a deal on hostages and a cease-fire.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/biden-urges-egypt-and-qatar-to-turn-up-the-pressure-on-hamas-to-make-a-deal-on-hostages-and-a-cease-fire
+
+**An earthquake rattles New York and New Jersey, but does little damage.**\
+`A magnitude-4.8 earthquake struck the Northeast on Friday, rippling from Philadelphia to Boston.`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/earthquake-nyc-nj-northeast
+
 **Earthquake Rattles New York and New Jersey, but Does Little Damage**\
 `A magnitude-4.8 earthquake struck the Northeast on Friday, rippling from Philadelphia to Boston.`\
 https://nytimes.com/live/2024/04/05/us/earthquake-new-york/earthquake-nyc-nj-northeast
