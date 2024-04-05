@@ -1,3 +1,11 @@
+**An Engineering Experiment to Cool the Earth**\
+`A new technology is attempting to brighten clouds and bounce some of the sun’s rays back into space.`\
+https://nytimes.com/2024/04/05/podcasts/the-daily/engineering-climate-change.html
+
+**Inside the Biden-Netanyahu Phone Call, and a Narrowly Averted Cyberattack**\
+`Plus, the dangers of the Darién Gap.`\
+https://nytimes.com/2024/04/05/podcasts/biden-phone-call-eclipse.html
+
 **U.S. and aid officials say they will wait and see if Israel’s promise to open new crossings increases flow of aid.**\
 `By Cassandra Vinograd and Gaya Gupta`\
 https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/us-and-aid-officials-say-they-will-wait-and-see-if-israels-promise-to-open-new-crossings-increases-flow-of-aid
