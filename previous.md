@@ -1,4 +1,4 @@
-**Report Pinpoints N.Y.C. Communities Most Hurt by Environmental Factors**\
+**New Report Reveals N.Y.C. Areas Most Hurt by Environmental Inequities**\
 `The project uses census data and an interactive map to identify areas with high levels of pollution and other socioeconomic risks.`\
 https://nytimes.com/2024/04/05/nyregion/climate-change-pollution-nyc-report.html
 
