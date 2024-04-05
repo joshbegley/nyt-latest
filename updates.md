@@ -1,3 +1,11 @@
+**Rwanda Is a Reminder that We Need International Justice More Than Ever**\
+`States are blatantly disregarding international law, but the world still demands justice.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/rwanda-genocide-anniversary
+
+**Was Today’s Earthquake Connected to the Solar Eclipse?**\
+`The tidal forces on Earth grow as the sun, moon and Earth begin to align, a configuration that can lead to a solar eclipse. But the results of several studies of the relationship between earthquakes and tides are inconclusive, a geophysicist said.`\
+https://nytimes.com/2024/04/05/science/total-solar-eclipse-earthquake.html
+
 **Three Questions for the Queen of Quizzes**\
 `Donald Trump may be a terrible presidential candidate but he’s God’s gift to quiz writing.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/politics-quiz-gail-collins
