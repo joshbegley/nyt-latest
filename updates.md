@@ -1,3 +1,11 @@
+**Here’s how earthquakes are measured.**\
+`The moment`\
+https://nytimes.com/2024/04/05/us/earthquake-magnitude-seismometer.html
+
+**Making Films About Outsiders, Increasingly in the Mainstream**\
+`Goran Stolevski, who is from North Macedonia and grew up partly in Australia, has made three features in three years, all teeming with unruly emotion.`\
+https://nytimes.com/2024/04/05/movies/goran-stolevski-filmmaker.html
+
 **Gazans describe a near-constant search for food and wonder if it will get worse.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/gazans-describe-a-near-constant-search-for-food-and-wonder-if-it-will-get-worse
