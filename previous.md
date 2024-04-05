@@ -1,3 +1,7 @@
+**New Questions on How a Key Agency Shared Inflation Data**\
+`A government economist had regular contact with “super users” in finance, records show, at a time when such information keenly interests investors.`\
+https://nytimes.com/2024/04/05/business/economy/labor-statistics-super-users.html
+
 **Margaret Tynes, Soprano Who Soared in Verdi and Strauss, Dies at 104**\
 `Because there were few opportunities for Black singers in the U.S., she became a powerhouse in Europe, performing in operas like “Tosca” and “Carmen.”`\
 https://nytimes.com/2024/04/05/arts/music/margaret-tynes-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/us/politics/biden-netanyahu-israel-gaza.html
 **How an Earthquake Can Throw the Body and Brain Off-Balance**\
 `People can experience dizziness, anxiety and even “phantom” aftershocks following a quake.`\
 https://nytimes.com/article/earthquake-aftershocks-effect.html
-
-**Talking 50 Years of Stephen King**\
-`On this week’s podcast, we talk to the novelist Grady Hendrix and TV showrunner Damon Lindelof about the work and influence of Stephen King.`\
-https://nytimes.com/2024/04/05/books/review/podcast-stephen-king-50-years.html
 
