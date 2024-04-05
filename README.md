@@ -1,3 +1,11 @@
+**New York to Pay $17.5 Million for Forcing Removal of Hijabs in Mug Shots**\
+`New York City reached a settlement in a lawsuit brought by two women who were arrested and made to remove their head coverings by the police before being photographed.`\
+https://nytimes.com/2024/04/05/nyregion/hijab-muslim-nypd-mugshot-settlement.html
+
+**The Fed has recently welcomed strong jobs gains as labor supply picks up.**\
+`Immigration and increased labor force participation have helped employers to add workers even as wage growth moderates.`\
+https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/the-fed-has-recently-welcomed-strong-jobs-gains-as-labor-supply-picks-up
+
 **Author Who Defected From North Korea Wins Defamation Lawsuit**\
 `Jang Jin-sung​, known for his memoir “Dear Leader,” was accused of rape by a fellow North Korean defector. He sued her and a South Korean broadcaster and won.`\
 https://nytimes.com/2024/04/05/world/asia/north-korea-jang-jin-sung-defamation.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009398623/al-aqsa-mosque-tensio
 **5 Children’s Movies to Stream Now**\
 `This month’s picks include a true story of hope and persistence, and Timothée Chalamet’s recent turn as Willy Wonka.`\
 https://nytimes.com/2024/04/05/movies/kids-movies-streaming.html
-
-**Tensions run high on the last Friday of Ramadan at Al Aqsa Mosque.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/tensions-run-high-on-the-last-friday-of-ramadan-at-al-aqsa-mosque
-
-**400,000 in New England Still Without Power After Spring Snowstorm**\
-`A nor’easter that dumped more than a foot of snow across the region, causing blackouts and flight cancellations, is expected to weaken on Friday, the National Weather Service said.`\
-https://nytimes.com/2024/04/05/us/power-outages-snow-maine-new-hampshire.html
 
