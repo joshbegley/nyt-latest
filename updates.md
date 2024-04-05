@@ -1,3 +1,7 @@
+**Baltimore Shipping Channel Will Partially Reopen by End of April, Officials Say**\
+`The Army Corps of Engineers plans to reopen the channel at full capacity by late May, as officials scramble to resume operations at one of the nation’s busiest ports.`\
+https://nytimes.com/2024/04/05/us/baltimore-shipping-channel-reopen.html
+
 **In Australia, a Nation’s Banh Mi Love Affair**\
 `“We’ll make the best of it here. And they can call it a pork roll.”`\
 https://nytimes.com/2024/04/05/world/australia/australia-banh-mi-pork-roll.html
