@@ -1,3 +1,7 @@
+**Melania Trump Plans to Appear at a Mar-a-Lago Fund-Raiser This Month**\
+`The former first lady is set to attend an event for the Log Cabin Republicans, marking a return of sorts to the political arena.`\
+https://nytimes.com/2024/04/05/us/politics/melania-trump-log-cabin-republicans-fundraiser.html
+
 **Workers Sue Over Law Allowing Smoking in Atlantic City Casinos**\
 `The New Jersey casinos are the last large refuge for smokers in the Northeast, but some employees say their health is at risk.`\
 https://nytimes.com/2024/04/05/nyregion/casinos-smoking-new-jersey.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/nyregion/hijab-muslim-nypd-mugshot-settlement.htm
 **The Fed has recently welcomed strong jobs gains as labor supply picks up.**\
 `Immigration and increased labor force participation have helped employers to add workers even as wage growth moderates.`\
 https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/the-fed-has-recently-welcomed-strong-jobs-gains-as-labor-supply-picks-up
-
-**Author Who Defected From North Korea Wins Defamation Lawsuit**\
-`Jang Jin-sung​, known for his memoir “Dear Leader,” was accused of rape by a fellow North Korean defector. He sued her and a South Korean broadcaster and won.`\
-https://nytimes.com/2024/04/05/world/asia/north-korea-jang-jin-sung-defamation.html
 
