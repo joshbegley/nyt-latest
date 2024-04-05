@@ -1,3 +1,7 @@
+**Harlem Was No Longer the Same After This Dinner Party**\
+`Harlem was synonymous with the arts. But what I didn’t know was how that had come to be.`\
+https://nytimes.com/2024/04/05/us/harlem-renaissance-anniversary.html
+
 **Beyond jobs, economic data continues to look rosy.**\
 `By Ben Casselman`\
 https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/beyond-jobs-economic-data-continues-to-look-rosy
