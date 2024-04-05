@@ -26,7 +26,7 @@ https://nytimes.com/live/2024/04/02/opinion/thepoint/senate-filibuster-majority-
 `Here’s what we know — and don’t know — about the risk the virus poses in food.`\
 https://nytimes.com/2024/04/05/well/eat/bird-flu-dairy-milk-eggs.html
 
-**Israel’s Military Says Friendly Fire Probably Killed a Hostage Grandmother on Oct. 7**\
+**Israel Says Military Fire Probably Killed a Hostage Grandmother on Oct. 7**\
 `An inquiry found that a combat helicopter had “fired at a vehicle that had terrorists in it” but also, “in retrospect,” hostages.`\
 https://nytimes.com/2024/04/05/world/middleeast/israel-oct-7-hostage-killed.html
 

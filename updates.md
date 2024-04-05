@@ -1,3 +1,7 @@
+**Israel Says Military Fire Probably Killed a Hostage Grandmother on Oct. 7**\
+`An inquiry found that a combat helicopter had “fired at a vehicle that had terrorists in it” but also, “in retrospect,” hostages.`\
+https://nytimes.com/2024/04/05/world/middleeast/israel-oct-7-hostage-killed.html
+
 **Thursday in the Park With Bigfoot**\
 `A publicity effort for the movie “Sasquatch Sunset” had one of the film’s cast members in full sasquatch costume, wandering through Central Park.`\
 https://nytimes.com/2024/04/05/movies/sasquatch-central-park.html
