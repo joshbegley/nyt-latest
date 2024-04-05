@@ -1,3 +1,7 @@
+**Baltimore Shipping Channel Will Partially Reopen by End of April, Officials Say**\
+`The Army Corps of Engineers plans to reopen the channel at full capacity by late May, as officials scramble to resume operations at one of the nation’s busiest ports.`\
+https://nytimes.com/2024/04/05/us/baltimore-shipping-channel-reopen.html
+
 **In Australia, a Nation’s Banh Mi Love Affair**\
 `“We’ll make the best of it here. And they can call it a pork roll.”`\
 https://nytimes.com/2024/04/05/world/australia/australia-banh-mi-pork-roll.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/style/krystle-jayne-ng-hanna-rinderknecht-mahaffy
 **Knowing She was the One, with Surgical Precision**\
 `Anika Bieg was ready to swear off dating. Then she met Dr. Olivia Sacks — and after 10 minutes, kissed her.`\
 https://nytimes.com/2024/04/05/style/anika-bieg-olivia-sacks-wedding.html
-
-**Putting the Real Me in My Dating Profile**\
-`Among the staged photos and silly prompts of online dating, I get one sentence where I get to be my true self.`\
-https://nytimes.com/2024/04/05/style/modern-love-putting-the-real-me-in-my-dating-profile.html
 
