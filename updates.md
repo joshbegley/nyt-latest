@@ -1,3 +1,7 @@
+**In a working-class area near the bridge, some residents were skeptical of the president’s visit.**\
+`By Campbell Robertson`\
+https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/in-a-working-class-area-near-the-bridge-some-residents-were-skeptical-of-the-presidents-visit
+
 **Rwanda Is a Reminder that We Need International Justice More Than Ever**\
 `States are blatantly disregarding international law, but the world still demands justice.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/rwanda-genocide-anniversary

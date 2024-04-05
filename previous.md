@@ -1,3 +1,7 @@
+**In a working-class area near the bridge, some residents were skeptical of the president’s visit.**\
+`By Campbell Robertson`\
+https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/in-a-working-class-area-near-the-bridge-some-residents-were-skeptical-of-the-presidents-visit
+
 **Rwanda Is a Reminder that We Need International Justice More Than Ever**\
 `States are blatantly disregarding international law, but the world still demands justice.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/rwanda-genocide-anniversary
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/style/the-new-look-dior-chanel.html
 **If A.I. Takes All Our Jobs, Will It Also Take Our Purpose?**\
 `Life without problems to solve sounds great until it starts sounding awful.`\
 https://nytimes.com/2024/04/05/opinion/ai-jobs-nick-bostrom.html
-
-**Does My Cousin Get a Say in Whether I Have a DNA Test?**\
-`The magazine’s Ethicist columnist on familial duty, genetic ancestry testing and privacy.`\
-https://nytimes.com/2024/04/05/magazine/cousin-dna-test-ethics.html
 
