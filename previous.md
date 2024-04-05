@@ -1,3 +1,7 @@
+**The Rise of Sports Betting**\
+`Six years ago, sports betting was illegal under federal law. Today, it is everywhere.`\
+https://nytimes.com/2024/04/05/briefing/the-rise-of-sports-betting.html
+
 **String of Errors Led to Fatal Attack on Aid Convoy, Israeli Military Says**\
 `“It’s a serious event that we’re responsible for, and it shouldn’t have happened,” Rear Adm. Daniel Hagari said of the strike that killed seven World Central Kitchen workers.`\
 https://nytimes.com/2024/04/05/world/middleeast/israel-military-world-central-kitchen-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/jobs-repo
 **How the Fed learned to stop worrying and love strong job gains.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/jobs-report-federal-reserve
-
-**05jobs-report**\
-`Live Updates: U.S. Job Growth Expected to Remain Robust`\
-https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy
 
