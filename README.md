@@ -1,3 +1,15 @@
+**The ship struck the Baltimore bridge with a force on the scale of a rocket launch.**\
+`By Aatish Bhatia and Francesca Paris`\
+https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/the-ship-struck-the-baltimore-bridge-with-a-force-on-the-scale-of-a-rocket-launch
+
+**Why did New York City’s earthquake alert take so long?**\
+`The administration of Mayor Eric Adams received criticism for taking nearly thirty minutes to send its first alert.`\
+https://nytimes.com/2024/04/05/us/new-york-city-alert-earthquake.html
+
+**With ‘Succession’ Complete, the Roys’ Next Takeover Is the Stage**\
+`Audiences are flocking to shows with Jeremy Strong, Sarah Snook and other alums of the acclaimed HBO series.`\
+https://nytimes.com/2024/04/05/theater/succession-broadway-jeremy-strong.html
+
 **The Big Number: $2.5 Billion**\
 `When Trump Media began public trading in late March, its stock surged. But this past week, its fortunes turned and the stock slumped.`\
 https://nytimes.com/interactive/2024/04/05/business/trump-media-stock.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/05/opinion/fighting-terrorism.html
 **Outrage Over Slain Aid Workers Deepens Democratic Resistance to Arming Israel**\
 `There is strong bipartisan support for aiding Israel in Congress, but the concerns among Democrats could further bog down an already stalled security aid package for Ukraine and Israel.`\
 https://nytimes.com/2024/04/05/us/politics/democrats-israel-aid.html
-
-**When a Restless Planet Quakes, the Global Economy Shivers**\
-`Taiwan’s earthquake was much more serious than Friday’s shake in the Eastern U.S., and a threat to big tech.`\
-https://nytimes.com/live/2024/04/02/opinion/thepoint/earthquake-taiwan-tsmc-chips
-
-**Six men died in the collapse. Four have not been found.**\
-`By Jacey Fortin and Eduardo Medina`\
-https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/six-men-died-in-the-collapse-four-have-not-been-found
-
-**A quake that rattled nerves in New York would be a minor tremor in California.**\
-`By Thomas Fuller`\
-https://nytimes.com/live/2024/04/05/us/earthquake-new-york/a-quake-that-rattled-nerves-in-new-york-would-be-a-minor-tremor-in-california
 
