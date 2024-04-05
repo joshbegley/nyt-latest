@@ -1,5 +1,5 @@
-**Artist Files Lawsuit Against Des Moines Museum to Save Her Work**\
-`Mary Miss’s lawsuit claims that the planned demolition of her work violates the Visual Artists Rights Act, which empowers artists to protect their work from destruction.`\
+**Artist Files Lawsuit Against Des Moines Museum to Protect Her Work**\
+`Mary Miss’s lawsuit claims that the planned demolition of her work violates the Visual Artists Rights Act, which empowers artists to save their work from destruction.`\
 https://nytimes.com/2024/04/04/arts/design/mary-miss-lawsuit-des-moines-art-center.html
 
 **Prisoners Who Sued Over Lockdown Will Be Allowed to View Solar Eclipse**\
