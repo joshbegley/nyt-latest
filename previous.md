@@ -1,3 +1,11 @@
+**In New York City, earthquakes are generally tiny, and unnoticed.**\
+`By Maria Cramer`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/in-new-york-city-earthquakes-are-generally-tiny-and-unnoticed
+
+**Making Films About Outsiders, Increasingly in the Mainstream**\
+`Goran Stolevski, who is from North Macedonia and grew up partly in Australia, has made three features in three years, all teeming with unruly emotion.`\
+https://nytimes.com/2024/04/05/movies/goran-stolevski-filmmaker.html
+
 **Earthquake Shakes X Awake**\
 `For a brief, quaky moment, the social media platform was atwitter.`\
 https://nytimes.com/2024/04/05/style/northeast-earthquake-x-twitter.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/05/us/earthquake-new-york/a-seismograph-near-ne
 **Here’s what to know about the jobs report.**\
 `By Talmon Joseph Smith`\
 https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/heres-what-to-know-about-the-jobs-report
-
-**A Smart Idea to Return Majority Rule to the Senate**\
-`The filibuster is not what the architects of the Constitution had in mind.`\
-https://nytimes.com/live/2024/04/02/opinion/thepoint/senate-filibuster-majority-rule
-
-**Are Milk and Eggs Safe as Bird Flu Spreads?**\
-`Here’s what we know — and don’t know — about the risk the virus poses in food.`\
-https://nytimes.com/2024/04/05/well/eat/bird-flu-dairy-milk-eggs.html
 

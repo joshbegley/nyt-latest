@@ -1,3 +1,11 @@
+**In New York City, earthquakes are generally tiny, and unnoticed.**\
+`By Maria Cramer`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/in-new-york-city-earthquakes-are-generally-tiny-and-unnoticed
+
+**Making Films About Outsiders, Increasingly in the Mainstream**\
+`Goran Stolevski, who is from North Macedonia and grew up partly in Australia, has made three features in three years, all teeming with unruly emotion.`\
+https://nytimes.com/2024/04/05/movies/goran-stolevski-filmmaker.html
+
 **Earthquake Shakes X Awake**\
 `For a brief, quaky moment, the social media platform was atwitter.`\
 https://nytimes.com/2024/04/05/style/northeast-earthquake-x-twitter.html
