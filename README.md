@@ -1,3 +1,7 @@
+**Word of the Day: archipelago**\
+`This word has appeared in 123 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/05/learning/word-of-the-day-archipelago.html
+
 **Stephen Colbert Says Trump’s ‘April Trials Bring Me Smiles’**\
 `“The Late Show” host changed up the adage about spring after Donald Trump had a bad day in court.`\
 https://nytimes.com/2024/04/05/arts/television/late-night-trump-trials.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/pageoneplus/corrections-april-5-2024.html
 **A Fate Potentially Guided by a Late Brother’s Hand**\
 `Tanya Sareen met Joel Adolphson, a former squadron mate of her brother Taj, who had been killed while serving six years earlier.`\
 https://nytimes.com/2024/04/05/style/tanya-sareen-joel-adolphson-wedding.html
-
-**Her First and Last Dating App Date**\
-`Krystle-Jayne Ng said she was a “serial dater.” Hanna Rinderknecht-Mahaffy was new to online dating. They hit it off instantly.`\
-https://nytimes.com/2024/04/05/style/krystle-jayne-ng-hanna-rinderknecht-mahaffy-wedding.html
 
