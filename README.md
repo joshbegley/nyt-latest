@@ -1,3 +1,11 @@
+**How an Earthquake Can Throw the Body and Brain Off-Balance**\
+`People can experience dizziness, anxiety and even “phantom” aftershocks following a quake.`\
+https://nytimes.com/article/earthquake-aftershocks-effect.html
+
+**Talking 50 Years of Stephen King**\
+`On this week’s podcast, we talk to the novelist Grady Hendrix and TV showrunner Damon Lindelof about the work and influence of Stephen King.`\
+https://nytimes.com/2024/04/05/books/review/podcast-stephen-king-50-years.html
+
 **What Should I Wear for the Eclipse?**\
 `Silver sneakers? A spacesuit? Our fashion critic advises a reader on how to dress in theme for a coming eclipse party.`\
 https://nytimes.com/2024/04/05/style/eclipse-fashion-theme.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/05/us/politics/trump-rfk-running-mate.html
 **Across the Northeast, startled residents wondered what the shaking was.**\
 `By Stephanie Saul`\
 https://nytimes.com/live/2024/04/05/us/earthquake-new-york/across-the-northeast-startled-residents-wondered-what-the-shaking-was
-
-**Lynne Reid Banks, Author of ‘The Indian in the Cupboard,’ Dies at 94**\
-`She explored the struggles of young women in the novel “The L-Shaped Room” but found her biggest success with a children’s book about a magical cupboard.`\
-https://nytimes.com/2024/04/05/books/lynne-reid-banks-dead.html
-
-**Will There Be Another Earthquake? Here’s the Forecast for Aftershocks.**\
-`So far, seismologists have not identified any distinguishing characteristics of a given quake that would warn of an impending larger one.`\
-https://nytimes.com/2024/04/05/science/aftershocks-forecast.html
 
