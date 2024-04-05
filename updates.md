@@ -1,3 +1,7 @@
+**Thursday in the Park With Bigfoot**\
+`A publicity effort for the movie “Sasquatch Sunset” had one of the film’s cast members in full sasquatch costume, wandering through Central Park.`\
+https://nytimes.com/2024/04/05/movies/sasquatch-central-park.html
+
 **The Era of Klaus Mäkelä, Conducting Phenom, Begins in Chicago**\
 `On Thursday, the richly talented 28-year-old maestro led the Chicago Symphony Orchestra for the first time since being named its next music director.`\
 https://nytimes.com/2024/04/05/arts/music/klaus-makela-chicago-symphony-orchestra.html
