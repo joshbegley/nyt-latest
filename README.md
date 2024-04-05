@@ -1,3 +1,11 @@
+**A Smart Idea to Return Majority Rule to the Senate**\
+`The filibuster is not what the architects of the Constitution had in mind.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/senate-filibuster-majority-rule
+
+**Are Milk and Eggs Safe as Bird Flu Spreads?**\
+`Here’s what we know — and don’t know — about the risk the virus poses in food.`\
+https://nytimes.com/2024/04/05/well/eat/bird-flu-dairy-milk-eggs.html
+
 **Israel’s Military Says Friendly Fire Probably Killed a Hostage Grandmother on Oct. 7**\
 `An inquiry found that a combat helicopter had “fired at a vehicle that had terrorists in it” but also, “in retrospect,” hostages.`\
 https://nytimes.com/2024/04/05/world/middleeast/israel-oct-7-hostage-killed.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/05/magazine/larry-david-curb-your-enthusiasm.html
 **How to Photograph a Solar Eclipse**\
 `There's a right way to do it.`\
 https://nytimes.com/interactive/2024/04/05/smarter-living/wirecutter/photograph-solar-eclipse.html
-
-**Go All-In on Detroit-Style Pizza**\
-`It’s hard to resist the charred and cheesy edges, a thick and chewy crust and a reverse order of toppings.`\
-https://nytimes.com/2024/04/05/dining/go-all-in-on-detroit-style-pizza.html
-
-**McDonald’s to Buy Back 225 Franchised Outlets in Israel After Boycotts**\
-`The move highlighted deepening political rifts facing multinationals in the region and follows boycotts after the fast-food chain’s Israeli franchise owner donated thousands of meals to soldiers.`\
-https://nytimes.com/2024/04/05/world/middleeast/mcdonalds-israel.html
 
