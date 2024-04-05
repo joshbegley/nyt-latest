@@ -1,3 +1,11 @@
+**Israel’s Military Says Friendly Fire Probably Killed a Hostage Grandmother on Oct. 7**\
+`An inquiry found that a combat helicopter had “fired at a vehicle that had terrorists in it” but also, “in retrospect,” hostages.`\
+https://nytimes.com/2024/04/05/world/middleeast/israel-oct-7-hostage-killed.html
+
+**Tell Us What Your Man Cave Means to You**\
+`NYT Opinion asks readers to share what makes their man cave retreats special to them.`\
+https://nytimes.com/2024/04/05/opinion/man-cave-benefits-purpose.html
+
 **Map: 4.8-Magnitude Earthquake Strikes New Jersey**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/04/05/nyregion/earthquake-new-york-new-jersey.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/05/dining/go-all-in-on-detroit-style-pizza.html
 **McDonald’s to Buy Back 225 Franchised Outlets in Israel After Boycotts**\
 `The move highlighted deepening political rifts facing multinationals in the region and follows boycotts after the fast-food chain’s Israeli franchise owner donated thousands of meals to soldiers.`\
 https://nytimes.com/2024/04/05/world/middleeast/mcdonalds-israel.html
-
-**What to Do When You’ve Felt an Earthquake**\
-`And what else to know when the Earth moves.`\
-https://nytimes.com/article/what-to-know-about-earthquakes.html
-
-**Here’s the latest on the earthquake.**\
-`The United States Geological Survey reported the quake around 10:23 a.m. There were no immediate reports of damage.`\
-https://nytimes.com/live/2024/04/05/us/earthquake-new-york/earthquake-new-york-boston-philadelphia
 
