@@ -1,3 +1,7 @@
+**A Willy Wonka Event Ended in Disaster. From Its Ashes Rose a Budding Star.**\
+`The internet latched on to 16-year-old Felicia Dawkins’ performance as the The Unknown at a shambolic Willy Wonka-inspired event. This weekend, she’s heading to a bigger and scarier stage in London.`\
+https://nytimes.com/2024/04/05/theater/glasgow-willy-wonka-experience-unknown-felicia.html
+
 **U.N. rights body weighs call to halt arms flows to Israel.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/un-rights-body-weighs-call-to-halt-arms-flows-to-israel
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/learning/what-childrens-book-worlds-do-you-wish-y
 **Rats on a Dog**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2024/04/05/learning/rats-on-a-dog.html
-
-**Word of the Day: archipelago**\
-`This word has appeared in 123 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/04/05/learning/word-of-the-day-archipelago.html
 
