@@ -1,3 +1,7 @@
+**An Earthquake Startled the Northeast**\
+`Also, Israel disciplined officers for aid worker killings. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/04/05/briefing/earthquake-northeast-biden-bridge-baltimore.html
+
 **R.F.K. Jr. Calls to Investigate Potential Wrongdoing Against Jan. 6 Rioters**\
 `Mr. Kennedy’s campaign again expressed sympathy for the “harsh treatment” of those who rioted at the Capitol on Jan. 6, 2021, after retracting a similar statement a day earlier.`\
 https://nytimes.com/2024/04/05/us/politics/rfk-jr-jan-6.html

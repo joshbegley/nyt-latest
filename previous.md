@@ -1,3 +1,7 @@
+**An Earthquake Startled the Northeast**\
+`Also, Israel disciplined officers for aid worker killings. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/04/05/briefing/earthquake-northeast-biden-bridge-baltimore.html
+
 **R.F.K. Jr. Calls to Investigate Potential Wrongdoing Against Jan. 6 Rioters**\
 `Mr. Kennedy’s campaign again expressed sympathy for the “harsh treatment” of those who rioted at the Capitol on Jan. 6, 2021, after retracting a similar statement a day earlier.`\
 https://nytimes.com/2024/04/05/us/politics/rfk-jr-jan-6.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/books/review/podcast-stephen-king-50-years.html
 **What Should I Wear for the Eclipse?**\
 `Silver sneakers? A spacesuit? Our fashion critic advises a reader on how to dress in theme for a coming eclipse party.`\
 https://nytimes.com/2024/04/05/style/eclipse-fashion-theme.html
-
-**Should You Stand in a Doorway During an Earthquake? (Probably Not.)**\
-`Mayor Eric Adams urged New Yorkers to take cover under a piece of furniture or in a doorway during an earthquake. But experts say doorways are not the best option.`\
-https://nytimes.com/2024/04/05/us/eric-adams-doorway-earthquake-safety.html
 
