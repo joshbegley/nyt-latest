@@ -1,3 +1,19 @@
+**Friday Briefing**\
+`The Times’s Jerusalem bureau chief on six months of war between Israel and Hamas.`\
+https://nytimes.com/2024/04/05/briefing/israel-hamas-war-iran-attack.html
+
+**China’s Young People Are Giving Up on Saving for Retirement**\
+`Citing a rapidly aging society, difficult job market and uncertainty about the future, some young people are rejecting the idea of saving for old age.`\
+https://nytimes.com/2024/04/05/business/china-pensions-youth-retirement.html
+
+**At the Singles Table, Sparks Flew**\
+`When they met at the wedding of two good friends, Alexandra Dale and Patrick Kohout discovered they had been born at the same hospital.`\
+https://nytimes.com/2024/04/05/style/alexandra-dale-patrick-kohout-wedding.html
+
+**The Israeli spy chief and Egyptian and Qatari officials are joining the C.I.A. director in the talks.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/the-israeli-spy-chief-and-egyptian-and-qatari-officials-will-participate-in-the-talks-too
+
 **Quotation of the Day: One Leaning Tower in Italy Looks to Another for Advice**\
 `Quotation of the Day for Friday, April 5, 2024.`\
 https://nytimes.com/2024/04/05/pageoneplus/quotation-of-the-day-one-leaning-tower-in-italy-looks-to-another-for-advice.html

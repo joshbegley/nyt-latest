@@ -1,3 +1,15 @@
+**Friday Briefing**\
+`The Times’s Jerusalem bureau chief on six months of war between Israel and Hamas.`\
+https://nytimes.com/2024/04/05/briefing/israel-hamas-war-iran-attack.html
+
+**China’s Young People Are Giving Up on Saving for Retirement**\
+`Citing a rapidly aging society, difficult job market and uncertainty about the future, some young people are rejecting the idea of saving for old age.`\
+https://nytimes.com/2024/04/05/business/china-pensions-youth-retirement.html
+
+**At the Singles Table, Sparks Flew**\
+`When they met at the wedding of two good friends, Alexandra Dale and Patrick Kohout discovered they had been born at the same hospital.`\
+https://nytimes.com/2024/04/05/style/alexandra-dale-patrick-kohout-wedding.html
+
 **Quotation of the Day: One Leaning Tower in Italy Looks to Another for Advice**\
 `Quotation of the Day for Friday, April 5, 2024.`\
 https://nytimes.com/2024/04/05/pageoneplus/quotation-of-the-day-one-leaning-tower-in-italy-looks-to-another-for-advice.html
@@ -22,19 +34,7 @@ https://nytimes.com/2024/04/05/style/anika-bieg-olivia-sacks-wedding.html
 `Among the staged photos and silly prompts of online dating, I get one sentence where I get to be my true self.`\
 https://nytimes.com/2024/04/05/style/modern-love-putting-the-real-me-in-my-dating-profile.html
 
-**The Israeli spy chief and Egyptian and Qatari officials is joining the C.I.A. director in the talks.**\
+**The Israeli spy chief and Egyptian and Qatari officials are joining the C.I.A. director in the talks.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/the-israeli-spy-chief-and-egyptian-and-qatari-officials-will-participate-in-the-talks-too
-
-**Netanyahu Faces Pressure at Home and Abroad, From Foes and Friends**\
-`Prime Minister Benjamin Netanyahu has the challenge of trying to defeat Hamas while preserving both his government and Israel’s international alliances.`\
-https://nytimes.com/2024/04/04/world/middleeast/netanyahu-israel-gaza.html
-
-**Variety: Acrostic**\
-`David Balton and Jane Stewart’s puzzle nods to a major upcoming event.`\
-https://nytimes.com/2024/04/04/crosswords/variety-acrostic.html
-
-**High Point**\
-`Rebecca Goldstein says hello from the American Crossword Puzzle Tournament.`\
-https://nytimes.com/2024/04/04/crosswords/daily-puzzle-2024-04-05.html
 
