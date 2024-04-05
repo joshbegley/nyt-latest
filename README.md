@@ -1,5 +1,5 @@
-**The White House says Netanyahu agreed to open another border crossing for aid after pressure from Biden.**\
-`Israel has come under rising pressure from U.S. officials and humanitarian agencies to allow more aid into Gaza, where conditions are especially dire.`\
+**The White House says Netanyahu agreed to open another crossing for aid after pressure from Biden.**\
+`Israel has come under rising pressure from U.S. officials and humanitarian agencies to allow more aid into Gaza, amid warnings that famine is looming.`\
 https://nytimes.com/2024/04/04/world/middleeast/gaza-aid-erez-crossing.html
 
 **Inside a Father’s Struggle to Feed His Family in Gaza**\
