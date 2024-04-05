@@ -1,3 +1,7 @@
+**After 6 months of war, some Israelis wonder if Netanyahu is dragging it out.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/after-6-months-of-war-some-israelis-wonder-if-netanyahu-is-dragging-it-out
+
 **Is Larry David the Most Unsung Fashion Critic of Our Time?**\
 `The “Curb Your Enthusiasm” creator and star has been commenting on the human condition through people’s sartorial choices for decades.`\
 https://nytimes.com/2024/04/05/style/larry-david-fashion-curb-your-enthusiasm.html
