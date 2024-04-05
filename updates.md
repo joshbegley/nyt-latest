@@ -1,3 +1,7 @@
+**Mercedes-Benz Workers in Alabama Ask for Unionization Vote**\
+`The United Automobile Workers union is mounting its most ambitious effort to gain an industry foothold beyond Detroit’s Big Three.`\
+https://nytimes.com/2024/04/05/business/economy/uaw-mercedes-alabama-union.html
+
 **New Questions on How a Key Agency Shared Inflation Data**\
 `A government economist had regular contact with “super users” in finance, records show, at a time when such information keenly interests investors.`\
 https://nytimes.com/2024/04/05/business/economy/labor-statistics-super-users.html
