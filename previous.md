@@ -1,3 +1,11 @@
+**Cardi B Spars With an Influencer Over Colorism and Brand Deals**\
+`The rapper exchanged heated remarks with the social media personality Raymonte Cole after he suggested that her skin color was the reason brands consider her “marketable.”`\
+https://nytimes.com/2024/04/05/style/cardi-b-raymonte-tiktok-ghetto.html
+
+**05STYLES-UNSTOPPABLES**\
+`The Unstoppables: Sharing the Secrets of a Lifelong Career`\
+https://nytimes.com/explain/2024/aging-career-ambition
+
 **Biden urges Egypt and Qatar to turn up the pressure on Hamas to make a deal on hostages and a cease-fire.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/biden-urges-egypt-and-qatar-to-turn-up-the-pressure-on-hamas-to-make-a-deal-on-hostages-and-a-cease-fire
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/the-economic-impac
 **Barbie, the Book**\
 `A bookstore event for the newly published “Barbie: The World Tour” brought out the die-hards.`\
 https://nytimes.com/2024/04/05/style/barbie-book-rizzoli.html
-
-**In a working-class area near the bridge, some residents were skeptical of the president’s visit.**\
-`By Campbell Robertson`\
-https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/in-a-working-class-area-near-the-bridge-some-residents-were-skeptical-of-the-presidents-visit
-
-**Rwanda Is a Reminder That We Need International Justice More Than Ever**\
-`States are blatantly disregarding international law, but the world still demands justice.`\
-https://nytimes.com/live/2024/04/02/opinion/thepoint/rwanda-genocide-anniversary
 
