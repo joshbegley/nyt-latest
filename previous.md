@@ -1,6 +1,14 @@
+**McDonald’s to Buy Back 225 Franchised Outlets in Israel After Boycotts**\
+`The move highlighted deepening political rifts facing multinationals in the region and follows boycotts after the fast-food chain’s Israeli franchise owner donated thousands of meals to soldiers.`\
+https://nytimes.com/2024/04/05/world/middleeast/mcdonalds-israel.html
+
+**What to Know About Earthquakes**\
+`And what to do when you’ve felt one.`\
+https://nytimes.com/article/what-to-know-about-earthquakes.html
+
 **4.8 Magnitude Earthquake Rattles New York City and Beyond**\
 `The United States Geological Survey reported the quake around 10:23 a.m.`\
-https://nytimes.com/2024/04/05/nyregion/earthquake-new-york-boston-philadelphia.html
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/earthquake-new-york-boston-philadelphia
 
 **The Bumpy Gourd That’s Winning Over Bartenders**\
 `In bars from Hong Kong to Vancouver, the medicinal tang of bitter melon is making its way onto drinks menus.`\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/05/us/election-trump-biden/no-labels-third-part
 **Yellen Faces Diplomatic Test in Urging China to Curb Green Energy Exports**\
 `The United States wants to persuade China to dial back its green energy industrial strategy as the Biden administration subsidizes its own supply chain.`\
 https://nytimes.com/2024/04/05/business/yellen-china-green-energy-exports.html
-
-**Lou Whittaker, Mountain Adventurer and Entrepreneur, Dies at 95**\
-`While his identical twin was the first American to summit Everest, he was best known  for his devotion to Mount Rainier, the peak of their youth.`\
-https://nytimes.com/2024/04/05/us/lou-whittaker-dead.html
-
-**A’s Move to Sacramento Puts the City in an Unfamiliar Sports Role**\
-`The Major League Baseball team says it will move to the capital region from Oakland for at least three years.`\
-https://nytimes.com/2024/04/05/us/sacramento-oakland-athletics-baseball.html
 
