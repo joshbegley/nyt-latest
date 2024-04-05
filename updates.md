@@ -1,3 +1,19 @@
+**New Yorkers are used to all kinds of rumblings, but not earthquakes.**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/new-yorkers-are-used-to-all-kinds-of-rumblings-but-not-earthquakes
+
+**A Solar Eclipse Soundtrack**\
+`Songs from TV on the Radio, Brian Eno, Julianna Barwick and others than could well accompany the celestial event on Monday.`\
+https://nytimes.com/2024/04/05/arts/music/amplifier-playlist-solar-eclipse-soundtrack.html
+
+**Why did New York City’s earthquake alert take 26 minutes?**\
+`The administration of Mayor Eric Adams received criticism for taking nearly thirty minutes to send its first alert.`\
+https://nytimes.com/2024/04/05/us/new-york-city-alert-earthquake.html
+
+**Near the epicenter, the earthquake rattled plates and nerves.**\
+`Some drivers said they were on the road and initially thought they were having car trouble; others said it felt like a bomb.`\
+https://nytimes.com/2024/04/05/us/lebanon-nj-earthquake-epicenter.html
+
 **Near the epicenter, the earthquake rattled plates and nerves.**\
 `By Sarah Maslin Nir`\
 https://nytimes.com/live/2024/04/05/us/earthquake-new-york/lebanon-nj-earthquake-epicenter
