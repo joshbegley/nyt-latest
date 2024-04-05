@@ -1,3 +1,15 @@
+**Lynne Reid Banks, Author of ‘The Indian in the Cupboard,’ Dies at 94**\
+`She explored the struggles of young women in the novel “The L-Shaped Room” but found her biggest success with a children’s book about a magical cupboard.`\
+https://nytimes.com/2024/04/05/books/lynne-reid-banks-dead.html
+
+**Will There Be Another Earthquake? Here’s the Forecast for Aftershocks.**\
+`So far, seismologists have not identified any distinguishing characteristics of a given quake that would warn of an impending larger one.`\
+https://nytimes.com/2024/04/05/science/aftershocks-forecast.html
+
+**The economic impact of the bridge collapse stretches far beyond Baltimore.**\
+`By Campbell Robertson`\
+https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/the-economic-impact-of-the-bridge-collapse-stretches-far-beyond-baltimore
+
 **Barbie, the Book**\
 `A bookstore event for the newly published “Barbie: The World Tour” brought out the die-hards.`\
 https://nytimes.com/2024/04/05/style/barbie-book-rizzoli.html
