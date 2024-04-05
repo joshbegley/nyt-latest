@@ -1,3 +1,7 @@
+**String of Errors Led to Fatal Attack on Aid Convoy, Israeli Military Says**\
+`“It’s a serious event that we’re responsible for, and it shouldn’t have happened,” Rear Adm. Daniel Hagari said of the strike that killed seven World Central Kitchen workers.`\
+https://nytimes.com/2024/04/05/world/middleeast/israel-military-world-central-kitchen-strike.html
+
 **Immigration is helping to meet hiring demand, and may explain data mysteries.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/immigration-is-helping-to-meet-hiring-demand-and-may-explain-data-mysteries
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/jobs-repo
 **05jobs-report**\
 `Live Updates: U.S. Job Growth Expected to Remain Robust`\
 https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy
-
-**Is A.I. Already Taking Jobs? +A Filmmaker Tries Sora + The XZ Backdoor Caper**\
-`“I’ve always said if you have a ChatGPT subscription and a hose, you can get very far in this life.”`\
-https://nytimes.com/2024/04/05/podcasts/hardfork-ai-jobs-sora-xz.html
 
