@@ -1,3 +1,7 @@
+**Biden Will Try Again to Wipe Out Student Loan Debt for Millions of Borrowers**\
+`The Supreme Court blocked President Biden’s first attempt at large-scale student debt relief last summer.`\
+https://nytimes.com/2024/04/05/us/politics/biden-student-loan-debt.html
+
 **Howard Atlee, Showman Who Promoted Dramas and Dogs, Dies at 97**\
 `As a press agent, he had his first big hit with “Who’s Afraid of Virginia Woolf?” In dog competitions, his first big hit was a dachshund named Virginia.`\
 https://nytimes.com/2024/04/05/theater/howard-atlee-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/the-ship-struck-th
 **Why did New York City’s earthquake alert take 26 minutes?**\
 `The administration of Mayor Eric Adams received criticism for taking nearly thirty minutes to send its first alert.`\
 https://nytimes.com/2024/04/05/us/new-york-city-alert-earthquake.html
-
-**With ‘Succession’ Complete, the Roys’ Next Takeover Is the Stage**\
-`Audiences are flocking to shows with Jeremy Strong, Sarah Snook and other alums of the acclaimed HBO series.`\
-https://nytimes.com/2024/04/05/theater/succession-broadway-jeremy-strong.html
 
