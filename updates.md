@@ -1,3 +1,11 @@
+**Lou Whittaker, Mountain Adventurer and Entrepreneur, Dies at 95**\
+`While his identical twin was the first American to summit Everest, he was best known  for his devotion to Mount Rainier, the peak of their youth.`\
+https://nytimes.com/2024/04/05/us/lou-whittaker-dead.html
+
+**A’s Move to Sacramento Puts the City in an Unfamiliar Sports Role**\
+`The Major League Baseball team says it will move to the capital region from Oakland for at least three years.`\
+https://nytimes.com/2024/04/05/us/sacramento-oakland-athletics-baseball.html
+
 **New York to Pay $17.5 Million for Forcing Removal of Hijabs in Mug Shots**\
 `New York City reached a settlement in a lawsuit brought by two women who were arrested and made to remove their head coverings by the police before being photographed.`\
 https://nytimes.com/2024/04/05/nyregion/hijab-muslim-nypd-mugshot-settlement.html
