@@ -1,3 +1,11 @@
+**Israel’s Military Says Friendly Fire Probably Killed a Hostage Grandmother on Oct. 7**\
+`An inquiry found that a combat helicopter had “fired at a vehicle that had terrorists in it” but also, “in retrospect,” hostages.`\
+https://nytimes.com/2024/04/05/world/middleeast/israel-oct-7-hostage-killed.html
+
+**Tell Us What Your Man Cave Means to You**\
+`NYT Opinion asks readers to share what makes their man cave retreats special to them.`\
+https://nytimes.com/2024/04/05/opinion/man-cave-benefits-purpose.html
+
 **Map: 4.8-Magnitude Earthquake Strikes New Jersey**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/04/05/nyregion/earthquake-new-york-new-jersey.html
