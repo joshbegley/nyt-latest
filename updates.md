@@ -1,3 +1,7 @@
+**In Australia, a Nation’s Banh Mi Love Affair**\
+`“We’ll make the best of it here. And they can call it a pork roll.”`\
+https://nytimes.com/2024/04/05/world/australia/australia-banh-mi-pork-roll.html
+
 **Friday Briefing**\
 `The Times’s Jerusalem bureau chief on six months of war between Israel and Hamas.`\
 https://nytimes.com/2024/04/05/briefing/israel-hamas-war-iran-attack.html

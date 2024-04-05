@@ -1,3 +1,7 @@
+**In Australia, a Nation’s Banh Mi Love Affair**\
+`“We’ll make the best of it here. And they can call it a pork roll.”`\
+https://nytimes.com/2024/04/05/world/australia/australia-banh-mi-pork-roll.html
+
 **Friday Briefing**\
 `The Times’s Jerusalem bureau chief on six months of war between Israel and Hamas.`\
 https://nytimes.com/2024/04/05/briefing/israel-hamas-war-iran-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/style/anika-bieg-olivia-sacks-wedding.html
 **Putting the Real Me in My Dating Profile**\
 `Among the staged photos and silly prompts of online dating, I get one sentence where I get to be my true self.`\
 https://nytimes.com/2024/04/05/style/modern-love-putting-the-real-me-in-my-dating-profile.html
-
-**The Israeli spy chief and Egyptian and Qatari officials are joining the C.I.A. director in the talks.**\
-`By Julian E. Barnes`\
-https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/the-israeli-spy-chief-and-egyptian-and-qatari-officials-will-participate-in-the-talks-too
 
