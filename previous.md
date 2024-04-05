@@ -1,3 +1,19 @@
+**Joan Collins Refuses to Be Defined by Age**\
+`At 90, the actress and writer has published a memoir and is preparing for a theatrical tour.`\
+https://nytimes.com/2024/04/05/style/joan-collins-age.html
+
+**Giorgio Armani Doesn’t Think Much About Age**\
+`At 89, the fashion designer and chief executive of Armani Group is having a renaissance.`\
+https://nytimes.com/2024/04/05/style/giorgio-armani-aging-fashion.html
+
+**Betye Saar Is Making Some of the Best Work of Her Life.**\
+`At 97, the artist still greets every day eager to create.`\
+https://nytimes.com/2024/04/05/style/betye-saar-art-aging.html
+
+**Martha Stewart Has ‘Never-Ending Curiosity’ (And a Few Regrets.)**\
+`At 82, the entrepreneur and media mogul isn’t slowing down.`\
+https://nytimes.com/2024/04/05/style/martha-stewart-has-never-ending-curiosity-and-a-few-regrets.html
+
 **Mercedes-Benz Workers in Alabama Ask for Unionization Vote**\
 `The United Automobile Workers union is mounting its most ambitious effort to gain an industry foothold beyond Detroit’s Big Three.`\
 https://nytimes.com/2024/04/05/business/economy/uaw-mercedes-alabama-union.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/05/us/politics/rfk-jr-jan-6.html
 **An Overlooked Championship Team’s Final Stop: The White House**\
 `The all-Black Tennessee A&I basketball team won three back-to-back national championships at the height of the Jim Crow era, but were never invited to the White House. That changed on Friday.`\
 https://nytimes.com/2024/04/05/us/dick-barnett-tennessee-state-basketball-white-house.html
-
-**U.S. Seeks ‘Results’ After Israel Promises More Gaza Aid Routes**\
-`World leaders welcomed the shift by an Israel facing increasing pressure, but they stressed that the measure of success would be whether enough trucks get in to ease the humanitarian crisis.`\
-https://nytimes.com/2024/04/05/world/middleeast/israel-aid-gaza-biden.html
-
-**We Need a New Way of Measuring Earthquakes**\
-`By David Wallace-Wells`\
-https://nytimes.com/live/2024/04/02/opinion/thepoint/earthquake-measurement-scale
-
-**Justice Department Says It Will Reopen Inquiry Into Realtor Trade Group**\
-`On Friday, the U.S. Court of Appeals for the District of Columbia made a ruling that opens the door for a renewed investigation into the National Association of Realtors.`\
-https://nytimes.com/2024/04/05/realestate/doj-realtors-nar-inquiry.html
-
-**In Threatening Israel, Biden Hopes to Avoid a Rupture**\
-`The president has put Israel’s leader “on probation,” as a veteran diplomat put it. The threat is not idle, aides said, but he wants to force a course correction rather than follow through.`\
-https://nytimes.com/2024/04/05/us/politics/biden-netanyahu-israel-gaza.html
 
