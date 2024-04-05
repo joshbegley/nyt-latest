@@ -1,3 +1,11 @@
+**Tensions run high on the last Friday of Ramadan at Al Aqsa Mosque.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/tensions-run-high-on-the-last-friday-of-ramadan-at-al-aqsa-mosque
+
+**400,000 in New England Still Without Power After Spring Snowstorm**\
+`A nor’easter that dumped more than a foot of snow across the region, causing blackouts and flight cancellations, is expected to weaken on Friday, the National Weather Service said.`\
+https://nytimes.com/2024/04/05/us/power-outages-snow-maine-new-hampshire.html
+
 **The Rise of Sports Betting**\
 `Six years ago, sports betting was illegal under federal law. Today, it is everywhere.`\
 https://nytimes.com/2024/04/05/briefing/the-rise-of-sports-betting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/05/world/middleeast/netanyahu-israel-war-gaza.html
 **Women Who Made Art in Japanese Internment Camps Are Getting Their Due**\
 `A traveling exhibit will focus on the work of three Japanese American women artists, Hisako Hibi, Miki Hayakawa and Miné Okubo.`\
 https://nytimes.com/2024/04/05/arts/hayakawa-hibi-okubo-japanese-art-exhibit.html
-
-**Economists expect the jobs report to show a healthy labor market chugging along.**\
-`By Talmon Joseph Smith`\
-https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/jobs-report-march-2024
-
-**How the Fed learned to stop worrying and love strong job gains.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/jobs-report-federal-reserve
 
