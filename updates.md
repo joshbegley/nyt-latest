@@ -1,5 +1,9 @@
 **Map: 4.8-Magnitude Earthquake Strikes New Jersey**\
 `View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/04/05/nyregion/earthquake-new-york-new-jersey.html
+
+**Map: 4.8-Magnitude Earthquake Strikes New Jersey**\
+`View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/04/05/world/05wea-quake-tracker-new-jersey.html
 
 **Is Soccer’s Model Club Actually … Real Madrid?**\
