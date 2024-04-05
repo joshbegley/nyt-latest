@@ -4,7 +4,7 @@ https://nytimes.com/2024/04/05/us/politics/israel-hamas-world-central-kitchen.ht
 
 **‘Zone of Interest’ Oscars Speech Is Defended by Jewish Film Artists**\
 `Remarks about Israel that the director Jonathan Glazer made as he accepted an Oscar for “The Zone of Interest” drew a letter of support after facing criticism last month.`\
-https://nytimes.com/2024/04/05/movies/zone-of-interest-jonathan-glazer-israel.html
+https://nytimes.com/2024/04/05/movies/jonathan-glazer-speech-letter.html
 
 **Joan Collins Refuses to Be Defined by Age**\
 `At 90, the actress and writer has published a memoir and is preparing for a theatrical tour.`\
