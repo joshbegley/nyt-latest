@@ -1,3 +1,19 @@
+**Six men died in the collapse. Four have not been found.**\
+`By Jacey Fortin and Eduardo Medina`\
+https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/six-men-died-in-the-collapse-four-have-not-been-found
+
+**A quake that rattled nerves in New York would be a minor tremor in California.**\
+`By Thomas Fuller`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/a-quake-that-rattled-nerves-in-new-york-would-be-a-minor-tremor-in-california
+
+**The Birth Dearth and the Smartphone Age**\
+`Can we make our phones serve a family-friendly society rather than undermine childhood?`\
+https://nytimes.com/2024/04/05/opinion/smartphones-parenting-birthrate.html
+
+**Gazans describe a near-constant search for food and wonder if it will get worse.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/gazans-describe-a-near-constant-search-for-food-and-wonder-if-it-will-get-worse
+
 **Some Colleges Will Soon Charge $100,000 a Year. How Did This Happen?**\
 `Some Vanderbilt students will have $100,000 in total expenses for the 2024-25 school year. The school doesn’t really want to talk about it.`\
 https://nytimes.com/2024/04/05/your-money/paying-for-college/100k-college-cost-vanderbilt.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/04/05/us/earthquake-new-york/in-2008-researchers-h
 **Five International Movies to Stream Now**\
 `This month’s picks include a twisty Argentine thriller, a gutting Syrian documentary, a movie about a queer club in China and more.`\
 https://nytimes.com/2024/04/05/movies/international-movies-streaming.html
-
-**F.B.I. Examining Free Airfare Upgrades Received by Adams**\
-`Federal prosecutors and F.B.I. agents are scrutinizing international flights taken by Mayor Eric Adams of New York aboard Turkey’s national air carrier, Turkish Airlines.`\
-https://nytimes.com/2024/04/05/nyregion/eric-adams-turkish-airlines-upgrades.html
-
-**Here’s how earthquakes are measured.**\
-`The moment`\
-https://nytimes.com/2024/04/05/us/earthquake-magnitude-seismometer.html
-
-**In New York City, earthquakes are generally tiny, and unnoticed.**\
-`The magnitude-4.8 earthquake recorded in Lebanon, N.J., that shook buildings across the New York City region on Friday morning, though, was an unsettling reminder of the fault lines that run through the area.`\
-https://nytimes.com/2024/04/05/us/nyc-earthquake-history.html
-
-**Making Films About Outsiders, Increasingly in the Mainstream**\
-`Goran Stolevski, who is from North Macedonia and grew up partly in Australia, has made three features in three years, all teeming with unruly emotion.`\
-https://nytimes.com/2024/04/05/movies/goran-stolevski-filmmaker.html
 
