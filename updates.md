@@ -1,3 +1,7 @@
+**Near the epicenter, the earthquake rattled plates and nerves.**\
+`By Sarah Maslin Nir`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/lebanon-nj-earthquake-epicenter
+
 **The ship struck the Baltimore bridge with a force on the scale of a rocket launch.**\
 `By Aatish Bhatia and Francesca Paris`\
 https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/the-ship-struck-the-baltimore-bridge-with-a-force-on-the-scale-of-a-rocket-launch

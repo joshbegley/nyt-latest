@@ -24,7 +24,7 @@ https://nytimes.com/interactive/2024/04/05/arts/television/best-of-late-night-tr
 
 **Near the epicenter, the earthquake rattled plates and nerves.**\
 `By Sarah Maslin Nir`\
-https://nytimes.com/live/2024/04/05/us/earthquake-new-york/near-the-epicenter-the-earthquake-rattled-plates-and-nerves
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/lebanon-nj-earthquake-epicenter
 
 **Is Bird Flu Coming to People Next? Are We Ready?**\
 `Unlike the coronavirus, the H5N1 virus has been studied for years. Vaccines and treatments are available should they ever become necessary.`\
