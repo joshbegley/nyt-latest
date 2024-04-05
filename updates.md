@@ -1,3 +1,7 @@
+**Barbie, the Book**\
+`A bookstore event for the newly published “Barbie: The World Tour” brought out the die-hards.`\
+https://nytimes.com/2024/04/05/style/barbie-book-rizzoli.html
+
 **Rwanda Is a Reminder That We Need International Justice More Than Ever**\
 `States are blatantly disregarding international law, but the world still demands justice.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/rwanda-genocide-anniversary

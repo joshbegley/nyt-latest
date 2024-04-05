@@ -1,3 +1,7 @@
+**Barbie, the Book**\
+`A bookstore event for the newly published “Barbie: The World Tour” brought out the die-hards.`\
+https://nytimes.com/2024/04/05/style/barbie-book-rizzoli.html
+
 **In a working-class area near the bridge, some residents were skeptical of the president’s visit.**\
 `By Campbell Robertson`\
 https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/in-a-working-class-area-near-the-bridge-some-residents-were-skeptical-of-the-presidents-visit
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/world/europe/uk-parliament-sexting-honeytrap-will
 **In the End, ‘The New Look’ Left Us Wanting More**\
 `More Dior. More Chanel. More fashion!`\
 https://nytimes.com/2024/04/05/style/the-new-look-dior-chanel.html
-
-**If A.I. Takes All Our Jobs, Will It Also Take Our Purpose?**\
-`Life without problems to solve sounds great until it starts sounding awful.`\
-https://nytimes.com/2024/04/05/opinion/ai-jobs-nick-bostrom.html
 
