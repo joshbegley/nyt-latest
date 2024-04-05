@@ -1,3 +1,7 @@
+**Opposition to Muslim Judicial Nominee Leaves Biden With a Tough Choice**\
+`Adeel Mangi would be the first Muslim American to be a federal appeals court judge, but has faced vitriolic attacks from the G.O.P. The president could run out of time to fill the seat.`\
+https://nytimes.com/2024/04/05/us/adeel-mangi-judge-biden.html
+
 **With No Labels out of the ’24 race, the third-party picture comes into focus.**\
 `By Reid J. Epstein`\
 https://nytimes.com/live/2024/04/05/us/election-trump-biden/no-labels-third-party-candidates
