@@ -1,3 +1,7 @@
+**Here’s how earthquakes are measured.**\
+`By Henry Fountain`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/heres-how-earthquakes-are-measured
+
 **In New York City, earthquakes are generally tiny, and unnoticed.**\
 `By Maria Cramer`\
 https://nytimes.com/live/2024/04/05/us/earthquake-new-york/in-new-york-city-earthquakes-are-generally-tiny-and-unnoticed
