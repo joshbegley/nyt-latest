@@ -1,3 +1,7 @@
+**Israel disciplines officers for their roles in the drone attack that killed seven aid workers.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/idf-soldiers-dismissed-israel
+
 **Review: A Conductor’s Philharmonic Debut Is a Homecoming**\
 `Karina Canellakis, a born-and-raised New Yorker, led her hometown orchestra alongside another debut, of the pianist Alice Sara Ott.`\
 https://nytimes.com/2024/04/05/arts/music/karina-canellakis-new-york-philharmonic-review.html

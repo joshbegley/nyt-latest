@@ -1,3 +1,7 @@
+**Israel disciplines officers for their roles in the drone attack that killed seven aid workers.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/idf-soldiers-dismissed-israel
+
 **Review: A Conductor’s Philharmonic Debut Is a Homecoming**\
 `Karina Canellakis, a born-and-raised New Yorker, led her hometown orchestra alongside another debut, of the pianist Alice Sara Ott.`\
 https://nytimes.com/2024/04/05/arts/music/karina-canellakis-new-york-philharmonic-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/t-magazine/bitter-melon-cocktails.html
 **Melania Trump Plans to Appear at a Mar-a-Lago Fund-Raiser This Month**\
 `The former first lady is set to attend an event for the Log Cabin Republicans, marking a return of sorts to the political arena.`\
 https://nytimes.com/2024/04/05/us/politics/melania-trump-log-cabin-republicans-fundraiser.html
-
-**You Can Still Smoke in Atlantic City Casinos. Workers Want to Ban It.**\
-`The New Jersey casinos are the last large refuge for smokers in the Northeast, but some employees say their health is at risk.`\
-https://nytimes.com/2024/04/05/nyregion/casinos-smoking-new-jersey.html
 
