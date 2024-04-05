@@ -1,3 +1,27 @@
+**In the End, ‘The New Look’ Left Us Wanting More**\
+`More Dior. More Chanel. More fashion!`\
+https://nytimes.com/2024/04/05/style/the-new-look-dior-chanel.html
+
+**If A.I. Takes All Our Jobs, Will It Also Take Our Purpose?**\
+`Life without problems to solve sounds great until it starts sounding awful.`\
+https://nytimes.com/2024/04/05/opinion/ai-jobs-nick-bostrom.html
+
+**Does My Cousin Get a Say in Whether I Have a DNA Test?**\
+`The magazine’s Ethicist columnist on familial duty, genetic ancestry testing and privacy.`\
+https://nytimes.com/2024/04/05/magazine/cousin-dna-test-ethics.html
+
+**Longtime Journalist Bob Schieffer Bares His Soul in a New Art Exhibition**\
+`Mr. Schieffer, the former CBS newsman, has taken up painting in his retirement. His work will be seen at the American University Museum in Washington.`\
+https://nytimes.com/2024/04/05/us/politics/bob-schieffer-art-exhibit.html
+
+**How to Claim Your Part of a $45 Million Walmart Settlement**\
+`A class-action lawsuit accusing the retail giant of inflating prices of certain weighed foods and produce resulted in a settlement. Customers may be eligible for a payment of up to $500.`\
+https://nytimes.com/2024/04/05/business/walmart-settlement-overcharge-refund.html
+
+**The leader of a port workers union seeks more help for his members.**\
+`By Campbell Robertson`\
+https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/the-leader-of-a-port-workers-union-seeks-more-help-for-his-members
+
 **Here is what we know about the new aid routes into Gaza.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/here-is-what-we-know-about-the-new-aid-routes-into-gaza
@@ -13,28 +37,4 @@ https://nytimes.com/2024/04/05/theater/howard-atlee-dead.html
 **Here’s what the bridge meant to Baltimore.**\
 `By Anna Betts and JoAnna Daemmrich`\
 https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/heres-what-the-bridge-meant-to-baltimore
-
-**Iran Vows Revenge at Funeral for Commanders Killed in Israeli Airstrike**\
-`On Monday, Israel conducted an airstrike on a building that is part of the Iranian embassy complex in Damascus, Syria, killing three generals and four other officers.`\
-https://nytimes.com/2024/04/05/world/middleeast/iran-airstrike-syria-funeral.html
-
-**How Much Damage Might a Big Earthquake Do to N.Y.C. Buildings?**\
-`The earthquake on Friday may have felt like a few light shakes to city residents. It most likely would have been much different if the epicenter was closer.`\
-https://nytimes.com/2024/04/05/us/nyc-buildings-earthquake.html
-
-**Sami Michael, Israeli Novelist With Arabic Roots, Dies at 97**\
-`A refugee from Iraq, he explored in popular books the worlds of Jews living in Arabic countries or who fled persecution, and of Arabs living in Israel.`\
-https://nytimes.com/2024/04/05/books/sami-michael-idead.html
-
-**New Yorkers are used to all kinds of rumblings, but not earthquakes.**\
-`By Gaya Gupta`\
-https://nytimes.com/live/2024/04/05/us/earthquake-new-york/new-yorkers-are-used-to-all-kinds-of-rumblings-but-not-earthquakes
-
-**A Solar Eclipse Soundtrack**\
-`Songs from TV on the Radio, Brian Eno, Julianna Barwick and others than could well accompany the celestial event on Monday.`\
-https://nytimes.com/2024/04/05/arts/music/amplifier-playlist-solar-eclipse-soundtrack.html
-
-**The ship struck the Baltimore bridge with a force on the scale of a rocket launch.**\
-`By Aatish Bhatia and Francesca Paris`\
-https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/the-ship-struck-the-baltimore-bridge-with-a-force-on-the-scale-of-a-rocket-launch
 
