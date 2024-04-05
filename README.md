@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/heres-what-the-bri
 
 **Vows of revenge mark a funeral for Iranian commanders killed in an Israeli airstrike in Damascus.**\
 `By Farnaz Fassihi`\
-https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/vows-of-revenge-mark-a-funeral-for-iranian-commanders-killed-in-an-israeli-airstrike-in-damascus
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/funeral-iran-commanders-israeli-airstrike-damascus
 
 **How Much Damage Might a Big Earthquake Do to N.Y.C. Buildings?**\
 `The earthquake on Friday may have felt like a few light shakes to city residents. It most likely would have been much different if the epicenter was closer.`\
