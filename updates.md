@@ -1,3 +1,11 @@
+**5 Children’s Movies to Stream Now**\
+`This month’s picks include a true story of hope and persistence, and Timothée Chalamet’s recent turn as Willy Wonka.`\
+https://nytimes.com/2024/04/05/movies/kids-movies-streaming.html
+
+**It was not clear when new routes into Gaza would open or how much aid could pass through them.**\
+`By Cassandra Vinograd and Gaya Gupta`\
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/us-and-aid-officials-say-they-will-wait-and-see-if-israels-promise-to-open-new-crossings-increases-flow-of-aid
+
 **Tensions run high on the last Friday of Ramadan at Al Aqsa Mosque.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/tensions-run-high-on-the-last-friday-of-ramadan-at-al-aqsa-mosque

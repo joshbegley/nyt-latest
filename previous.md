@@ -1,3 +1,7 @@
+**5 Children’s Movies to Stream Now**\
+`This month’s picks include a true story of hope and persistence, and Timothée Chalamet’s recent turn as Willy Wonka.`\
+https://nytimes.com/2024/04/05/movies/kids-movies-streaming.html
+
 **Tensions run high on the last Friday of Ramadan at Al Aqsa Mosque.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/tensions-run-high-on-the-last-friday-of-ramadan-at-al-aqsa-mosque
@@ -26,15 +30,11 @@ https://nytimes.com/2024/04/05/podcasts/the-daily/engineering-climate-change.htm
 `Plus, the dangers of the Darién Gap.`\
 https://nytimes.com/2024/04/05/podcasts/biden-phone-call-eclipse.html
 
-**U.S. and aid officials say they will wait and see if Israel’s promise to open new crossings increases flow of aid.**\
+**It was not clear when new routes into Gaza would open or how much aid could pass through them.**\
 `By Cassandra Vinograd and Gaya Gupta`\
 https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/us-and-aid-officials-say-they-will-wait-and-see-if-israels-promise-to-open-new-crossings-increases-flow-of-aid
 
 **After 6 Months of War, Some Israelis Ask: Is Netanyahu Dragging It Out?**\
 `Despite growing pressure from President Biden, the Israeli prime minister appears in no rush to end the war in Gaza. Some think he has political reasons for extending the stasis.`\
 https://nytimes.com/2024/04/05/world/middleeast/netanyahu-israel-war-gaza.html
-
-**Women Who Made Art in Japanese Internment Camps Are Getting Their Due**\
-`A traveling exhibit will focus on the work of three Japanese American women artists, Hisako Hibi, Miki Hayakawa and Miné Okubo.`\
-https://nytimes.com/2024/04/05/arts/hayakawa-hibi-okubo-japanese-art-exhibit.html
 
