@@ -1,3 +1,7 @@
+**4.8 Magnitude Earthquake Rattles New York City and Beyond**\
+`The United States Geological Survey reported the quake around 10:23 a.m.`\
+https://nytimes.com/2024/04/05/nyregion/earthquake-new-york-boston-philadelphia.html
+
 **You Can Still Smoke in Atlantic City Casinos. Workers Want to Ban It.**\
 `The New Jersey casinos are the last large refuge for smokers in the Northeast, but some employees say their health is at risk.`\
 https://nytimes.com/2024/04/05/nyregion/casinos-smoking-new-jersey.html
