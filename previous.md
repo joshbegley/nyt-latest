@@ -1,3 +1,7 @@
+**U.S. and aid officials say they will wait and see if Israel’s promise to open new crossings increases flow of aid.**\
+`By Cassandra Vinograd and Gaya Gupta`\
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/us-and-aid-officials-say-they-will-wait-and-see-if-israels-promise-to-open-new-crossings-increases-flow-of-aid
+
 **After 6 Months of War, Some Israelis Ask: Is Netanyahu Dragging It Out?**\
 `Despite growing pressure from President Biden, the Israeli prime minister appears in no rush to end the war in Gaza. Some think he has political reasons for extending the stasis.`\
 https://nytimes.com/2024/04/05/world/middleeast/netanyahu-israel-war-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/well/family/money-relationships.html
 **5 Things to Do This Weekend**\
 `Selections from the Weekend section, including a review of the sci-fi romance “The Beast.”`\
 https://nytimes.com/interactive/2024/04/05/arts/weekend-editors-picks-the-beast.html
-
-**6 New Paperbacks to Read This Week**\
-`Recommended reading from the Book Review, including titles by Isabella Hammad, Charles Frazier, Emily Flitter and more.`\
-https://nytimes.com/interactive/2024/04/05/books/review/new-paperbacks-flitter.html
 
