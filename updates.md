@@ -1,3 +1,7 @@
+**After 6 Months of War, Some Israelis Ask: Is Netanyahu Dragging It Out?**\
+`Despite growing pressure from President Biden, the Israeli prime minister appears in no rush to end the war in Gaza. Some think he has political reasons for extending the stasis.`\
+https://nytimes.com/2024/04/05/world/middleeast/netanyahu-israel-war-gaza.html
+
 **Women Who Made Art in Japanese Internment Camps Are Getting Their Due**\
 `A traveling exhibit will focus on the work of three Japanese American women artists, Hisako Hibi, Miki Hayakawa and Miné Okubo.`\
 https://nytimes.com/2024/04/05/arts/hayakawa-hibi-okubo-japanese-art-exhibit.html
