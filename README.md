@@ -1,5 +1,5 @@
 **A Willy Wonka Event Ended in Disaster. From Its Ashes Rose a Budding Star.**\
-`The internet latched on to 16-year-old Felicia Dawkins’ performance as the The Unknown at a shambolic Willy Wonka-inspired event. This weekend, she’s heading to a bigger and scarier stage in London.`\
+`The internet latched on to 16-year-old Felicia Dawkins’ performance as  The Unknown at a shambolic Willy Wonka-inspired event. This weekend, she’s heading to a bigger and scarier stage in London.`\
 https://nytimes.com/2024/04/05/theater/glasgow-willy-wonka-experience-unknown-felicia.html
 
 **U.N. rights body weighs call to halt arms flows to Israel.**\
