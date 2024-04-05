@@ -1,3 +1,23 @@
+**She Finally Reunited With Her Father. Then He Was Killed in the Subway.**\
+`Janna Volz’s father, Jason Volz, was largely absent from her life as he fought addiction. They were rebuilding their relationship when he was pushed to his death on the subway tracks.`\
+https://nytimes.com/2024/04/05/nyregion/subway-shoving-jason-volz.html
+
+**The Connections Companion**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/05/crosswords/connections-companion.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/05/crosswords/wordle-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/05/crosswords/spelling-bee-forum.html
+
+**New York Has a Budget Trick to Try on the Federal Government**\
+`The state hopes to take advantage of Medicaid reimbursement rules to divert federal funds into state coffers.`\
+https://nytimes.com/2024/04/05/nyregion/medicaid-budget-taxes.html
+
 **05mideast-crisis**\
 `C.I.A. Director Is Heading to Cease-Fire Talks as Pressure Grows on Israel`\
 https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news
@@ -17,24 +37,4 @@ https://nytimes.com/2024/04/05/learning/word-of-the-day-archipelago.html
 **Stephen Colbert Says Trump’s ‘April Trials Bring Me Smiles’**\
 `“The Late Show” host changed up the adage about spring after Donald Trump had a bad day in court.`\
 https://nytimes.com/2024/04/05/arts/television/late-night-trump-trials.html
-
-**Baltimore Shipping Channel Will Partially Reopen by End of April, Officials Say**\
-`The Army Corps of Engineers plans to reopen the channel at full capacity by late May, as officials scramble to resume operations at one of the nation’s busiest ports.`\
-https://nytimes.com/2024/04/05/us/baltimore-shipping-channel-reopen.html
-
-**In Australia, a Nation’s Banh Mi Love Affair**\
-`“We’ll make the best of it here. And they can call it a pork roll.”`\
-https://nytimes.com/2024/04/05/world/australia/australia-banh-mi-pork-roll.html
-
-**Friday Briefing**\
-`The Times’s Jerusalem bureau chief on six months of war between Israel and Hamas.`\
-https://nytimes.com/2024/04/05/briefing/israel-hamas-war-iran-attack.html
-
-**China’s Young People Are Giving Up on Saving for Retirement**\
-`Citing a rapidly aging society, difficult job market and uncertainty about the future, some young people are rejecting the idea of saving for old age.`\
-https://nytimes.com/2024/04/05/business/china-pensions-youth-retirement.html
-
-**At the Singles Table, Sparks Flew**\
-`When they met at the wedding of two good friends, Alexandra Dale and Patrick Kohout discovered they had been born at the same hospital.`\
-https://nytimes.com/2024/04/05/style/alexandra-dale-patrick-kohout-wedding.html
 
