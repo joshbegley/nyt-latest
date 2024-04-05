@@ -1,3 +1,7 @@
+**Earthquake Rattles New York and New Jersey, but Does Little Damage**\
+`A magnitude-4.8 earthquake struck the Northeast on Friday, rippling from Philadelphia to Boston.`\
+https://nytimes.com/2024/04/05/us/earthquake-nyc-nj-northeast.html
+
 **An earthquake rattles New York and New Jersey, but does little damage.**\
 `A magnitude-4.8 earthquake struck the Northeast on Friday, rippling from Philadelphia to Boston.`\
 https://nytimes.com/2024/04/05/us/earthquake-nyc-nj-northeast.html
