@@ -1,3 +1,15 @@
+**Chappell Roan’s Eye-Roll Kiss-Off, and 11 More New Songs**\
+`Hear tracks by Prince, Young Miko, the Black Keys and others.`\
+https://nytimes.com/2024/04/05/arts/music/playlist-young-miko-prince-chappell-roan.html
+
+**A seismograph near New York City captured the moment of the earthquake.**\
+`By William J. Broad`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/a-seismograph-near-new-york-city-captured-the-moment-of-the-earthquake
+
+**Here’s what to know about the jobs report.**\
+`By Talmon Joseph Smith`\
+https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/heres-what-to-know-about-the-jobs-report
+
 **A Smart Idea to Return Majority Rule to the Senate**\
 `The filibuster is not what the architects of the Constitution had in mind.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/senate-filibuster-majority-rule
