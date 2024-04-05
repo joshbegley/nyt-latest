@@ -27,8 +27,8 @@ https://nytimes.com/2024/04/05/movies/international-movies-streaming.html
 https://nytimes.com/2024/04/05/nyregion/eric-adams-turkish-airlines-upgrades.html
 
 **Here’s how earthquakes are measured.**\
-`By Henry Fountain`\
-https://nytimes.com/live/2024/04/05/us/earthquake-new-york/heres-how-earthquakes-are-measured
+`The moment`\
+https://nytimes.com/2024/04/05/us/earthquake-magnitude-seismometer.html
 
 **In New York City, earthquakes are generally tiny, and unnoticed.**\
 `The magnitude-4.8 earthquake recorded in Lebanon, N.J., that shook buildings across the New York City region on Friday morning, though, was an unsettling reminder of the fault lines that run through the area.`\
