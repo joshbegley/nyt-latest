@@ -1,3 +1,7 @@
+**Beyond jobs, economic data continues to look rosy.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/beyond-jobs-economic-data-continues-to-look-rosy
+
 **After 6 months of war, some Israelis wonder if Netanyahu is dragging it out.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/after-6-months-of-war-some-israelis-wonder-if-netanyahu-is-dragging-it-out
