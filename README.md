@@ -1,3 +1,11 @@
+**What Should I Wear for the Eclipse?**\
+`Silver sneakers? A spacesuit? Our fashion critic advises a reader on how to dress in theme for a coming eclipse party.`\
+https://nytimes.com/2024/04/05/style/eclipse-fashion-theme.html
+
+**Should You Stand in a Doorway During an Earthquake? (Probably Not.)**\
+`Mayor Eric Adams urged New Yorkers to take cover under a piece of furniture or in a doorway during an earthquake. But experts say doorways are not the best option.`\
+https://nytimes.com/2024/04/05/us/eric-adams-doorway-earthquake-safety.html
+
 **Cardi B Spars With an Influencer Over Colorism and Brand Deals**\
 `The rapper exchanged heated remarks with the social media personality Raymonte Cole after he suggested that her skin color was the reason brands consider her “marketable.”`\
 https://nytimes.com/2024/04/05/style/cardi-b-raymonte-tiktok-ghetto.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/05/books/lynne-reid-banks-dead.html
 **Will There Be Another Earthquake? Here’s the Forecast for Aftershocks.**\
 `So far, seismologists have not identified any distinguishing characteristics of a given quake that would warn of an impending larger one.`\
 https://nytimes.com/2024/04/05/science/aftershocks-forecast.html
-
-**The economic impact of the bridge collapse stretches far beyond Baltimore.**\
-`By Campbell Robertson`\
-https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/the-economic-impact-of-the-bridge-collapse-stretches-far-beyond-baltimore
-
-**Barbie, the Book**\
-`A bookstore event for the newly published “Barbie: The World Tour” brought out the die-hards.`\
-https://nytimes.com/2024/04/05/style/barbie-book-rizzoli.html
 
