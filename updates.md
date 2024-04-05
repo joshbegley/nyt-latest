@@ -1,3 +1,7 @@
+**05mideast-crisis**\
+`C.I.A. Director Is Heading to Cease-Fire Talks as Pressure Grows on Israel`\
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news
+
 **What Children’s Book Worlds Do You Wish You Could Visit in Real Life?**\
 `A new museum of children’s literature brings “Caps for Sale,” “Blueberries for Sal,” “Goodnight Moon” and many more tales to life. What book worlds have most captivated you?`\
 https://nytimes.com/2024/04/05/learning/what-childrens-book-worlds-do-you-wish-you-could-visit-in-real-life.html

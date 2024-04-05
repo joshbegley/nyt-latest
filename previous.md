@@ -1,3 +1,7 @@
+**05mideast-crisis**\
+`C.I.A. Director Is Heading to Cease-Fire Talks as Pressure Grows on Israel`\
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news
+
 **What Children’s Book Worlds Do You Wish You Could Visit in Real Life?**\
 `A new museum of children’s literature brings “Caps for Sale,” “Blueberries for Sal,” “Goodnight Moon” and many more tales to life. What book worlds have most captivated you?`\
 https://nytimes.com/2024/04/05/learning/what-childrens-book-worlds-do-you-wish-you-could-visit-in-real-life.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/business/china-pensions-youth-retirement.html
 **At the Singles Table, Sparks Flew**\
 `When they met at the wedding of two good friends, Alexandra Dale and Patrick Kohout discovered they had been born at the same hospital.`\
 https://nytimes.com/2024/04/05/style/alexandra-dale-patrick-kohout-wedding.html
-
-**Quotation of the Day: One Leaning Tower in Italy Looks to Another for Advice**\
-`Quotation of the Day for Friday, April 5, 2024.`\
-https://nytimes.com/2024/04/05/pageoneplus/quotation-of-the-day-one-leaning-tower-in-italy-looks-to-another-for-advice.html
 
