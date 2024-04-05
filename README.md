@@ -1,3 +1,15 @@
+**Is Larry David the Most Unsung Fashion Critic of Our Time?**\
+`The “Curb Your Enthusiasm” creator and star has been commenting on the human condition through people’s sartorial choices for decades.`\
+https://nytimes.com/2024/04/05/style/larry-david-fashion-curb-your-enthusiasm.html
+
+**Rising Oil Prices Reignite Inflation Fears**\
+`The price of Brent crude rose to a six-month high on Friday, a potential dose of bad news for central bankers and for the White House.`\
+https://nytimes.com/2024/04/05/business/dealbook/oil-prices-inflation.html
+
+**Large Crowds Gather in a Tense Atmosphere at Al Aqsa Mosque**\
+`A large number of worshippers performed dawn prayers Friday at Al Aqsa mosque in Jerusalem, and tear gas was fired.`\
+https://nytimes.com/video/world/middleeast/100000009398623/al-aqsa-mosque-tensions-jerusalem.html
+
 **5 Children’s Movies to Stream Now**\
 `This month’s picks include a true story of hope and persistence, and Timothée Chalamet’s recent turn as Willy Wonka.`\
 https://nytimes.com/2024/04/05/movies/kids-movies-streaming.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/immigrati
 **An Engineering Experiment to Cool the Earth**\
 `A new technology is attempting to brighten clouds and bounce some of the sun’s rays back into space.`\
 https://nytimes.com/2024/04/05/podcasts/the-daily/engineering-climate-change.html
-
-**Inside the Biden-Netanyahu Phone Call, and a Narrowly Averted Cyberattack**\
-`Plus, the dangers of the Darién Gap.`\
-https://nytimes.com/2024/04/05/podcasts/biden-phone-call-eclipse.html
-
-**It was not clear when new routes into Gaza would open or how much aid could pass through them.**\
-`By Cassandra Vinograd and Gaya Gupta`\
-https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/us-and-aid-officials-say-they-will-wait-and-see-if-israels-promise-to-open-new-crossings-increases-flow-of-aid
-
-**After 6 Months of War, Some Israelis Ask: Is Netanyahu Dragging It Out?**\
-`Despite growing pressure from President Biden, the Israeli prime minister appears in no rush to end the war in Gaza. Some think he has political reasons for extending the stasis.`\
-https://nytimes.com/2024/04/05/world/middleeast/netanyahu-israel-war-gaza.html
 
