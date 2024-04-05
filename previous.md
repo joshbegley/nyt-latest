@@ -1,3 +1,7 @@
+**Workers Sue Over Law Allowing Smoking in Atlantic City Casinos**\
+`The New Jersey casinos are the last large refuge for smokers in the Northeast, but some employees say their health is at risk.`\
+https://nytimes.com/2024/04/05/nyregion/casinos-smoking-new-jersey.html
+
 **What to Know About R.F.K. Jr. and His Threat to Biden and Trump**\
 `Mr. Kennedy has become the most prominent independent or third-party presence in the 2024 race.`\
 https://nytimes.com/article/rfk-jr-explainer.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/the-fed-h
 **Author Who Defected From North Korea Wins Defamation Lawsuit**\
 `Jang Jin-sung​, known for his memoir “Dear Leader,” was accused of rape by a fellow North Korean defector. He sued her and a South Korean broadcaster and won.`\
 https://nytimes.com/2024/04/05/world/asia/north-korea-jang-jin-sung-defamation.html
-
-**Harlem Was No Longer the Same After This Dinner Party**\
-`Harlem was synonymous with the arts. But what I didn’t know was how that had come to be.`\
-https://nytimes.com/2024/04/05/us/harlem-renaissance-anniversary.html
 

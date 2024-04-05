@@ -1,3 +1,7 @@
+**Workers Sue Over Law Allowing Smoking in Atlantic City Casinos**\
+`The New Jersey casinos are the last large refuge for smokers in the Northeast, but some employees say their health is at risk.`\
+https://nytimes.com/2024/04/05/nyregion/casinos-smoking-new-jersey.html
+
 **What to Know About R.F.K. Jr. and His Threat to Biden and Trump**\
 `Mr. Kennedy has become the most prominent independent or third-party presence in the 2024 race.`\
 https://nytimes.com/article/rfk-jr-explainer.html
