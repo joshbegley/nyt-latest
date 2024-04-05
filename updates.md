@@ -1,3 +1,19 @@
+**Women Who Made Art in Japanese Internment Camps Are Getting Their Due**\
+`A traveling exhibit will focus on the work of three Japanese American women artists, Hisako Hibi, Miki Hayakawa and Miné Okubo.`\
+https://nytimes.com/2024/04/05/arts/hayakawa-hibi-okubo-japanese-art-exhibit.html
+
+**Economists expect the jobs report to show a healthy labor market chugging along.**\
+`By Talmon Joseph Smith`\
+https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/jobs-report-march-2024
+
+**How the Fed learned to stop worrying and love strong job gains.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/jobs-report-federal-reserve
+
+**05jobs-report**\
+`Live Updates: U.S. Job Growth Expected to Remain Robust`\
+https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy
+
 **Is A.I. Already Taking Jobs? +A Filmmaker Tries Sora + The XZ Backdoor Caper**\
 `“I’ve always said if you have a ChatGPT subscription and a hose, you can get very far in this life.”`\
 https://nytimes.com/2024/04/05/podcasts/hardfork-ai-jobs-sora-xz.html
