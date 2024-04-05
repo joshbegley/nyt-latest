@@ -1,3 +1,7 @@
+**Here is what we know about the new aid routes into Gaza.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/here-is-what-we-know-about-the-new-aid-routes-into-gaza
+
 **Biden Will Try Again to Wipe Out Student Loan Debt for Millions of Borrowers**\
 `The Supreme Court blocked President Biden’s first attempt at large-scale student debt relief last summer.`\
 https://nytimes.com/2024/04/05/us/politics/biden-student-loan-debt.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/arts/music/amplifier-playlist-solar-eclipse-sound
 **The ship struck the Baltimore bridge with a force on the scale of a rocket launch.**\
 `By Aatish Bhatia and Francesca Paris`\
 https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/the-ship-struck-the-baltimore-bridge-with-a-force-on-the-scale-of-a-rocket-launch
-
-**Why did New York City’s earthquake alert take 26 minutes?**\
-`The administration of Mayor Eric Adams received criticism for taking nearly thirty minutes to send its first alert.`\
-https://nytimes.com/2024/04/05/us/new-york-city-alert-earthquake.html
 
