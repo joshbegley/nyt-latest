@@ -1,3 +1,7 @@
+**Is Bird Flu Coming to People Next? Are We Ready?**\
+`Unlike the coronavirus, the H5N1 virus has been studied for years. Vaccines and treatments are available should they ever become necessary.`\
+https://nytimes.com/2024/04/05/health/bird-flu-vaccines-treatments.html
+
 **Sensible Ways to Fight Terrorism**\
 `Responses to a guest essay about ISIS and the West. Also: The Northeast quake; R.F.K. Jr.’s claim of “censorship”; obstacles to liberalism; valuing care jobs.`\
 https://nytimes.com/2024/04/05/opinion/fighting-terrorism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/your-money/paying-for-college/100k-college-cost-v
 **Friday’s earthquake brings attention to the region’s fault lines.**\
 `By William J. Broad`\
 https://nytimes.com/live/2024/04/05/us/earthquake-new-york/fridays-earthquake-brings-attention-to-the-regions-fault-lines
-
-**N.Y.P.D. Officials Deploy Aggressive Use of Force (on Social Media)**\
-`The department’s leaders frequently go on X to upbraid police critics, from media columnists to elected officials, in a departure from protocol.`\
-https://nytimes.com/2024/04/05/nyregion/nypd-social-media-x-twitter.html
 
