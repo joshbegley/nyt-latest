@@ -1,3 +1,11 @@
+**Some Colleges Will Soon Charge $100,000 a Year. How Did This Happen?**\
+`Some Vanderbilt students will have $100,000 in total expenses for the 2024-25 school year. The school doesn’t really want to talk about it.`\
+https://nytimes.com/2024/04/05/your-money/paying-for-college/100k-college-cost-vanderbilt.html
+
+**Friday’s earthquake brings attention to the region’s fault lines.**\
+`By William J. Broad`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/fridays-earthquake-brings-attention-to-the-regions-fault-lines
+
 **N.Y.P.D. Officials Deploy Aggressive Use of Force (on Social Media)**\
 `The department’s leaders frequently go on X to upbraid police critics, from media columnists to elected officials, in a departure from protocol.`\
 https://nytimes.com/2024/04/05/nyregion/nypd-social-media-x-twitter.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/05/us/nyc-earthquake-history.html
 **Making Films About Outsiders, Increasingly in the Mainstream**\
 `Goran Stolevski, who is from North Macedonia and grew up partly in Australia, has made three features in three years, all teeming with unruly emotion.`\
 https://nytimes.com/2024/04/05/movies/goran-stolevski-filmmaker.html
-
-**Earthquake Shakes X Awake**\
-`For a brief, quaky moment, the social media platform was atwitter.`\
-https://nytimes.com/2024/04/05/style/northeast-earthquake-x-twitter.html
-
-**Israeli military says a series of errors led to the fatal attack on an aid convoy.**\
-`By Aaron Boxerman and Adam Rasgon`\
-https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/israeli-military-says-a-series-of-errors-led-to-the-fatal-attack-on-an-aid-convoy
 
