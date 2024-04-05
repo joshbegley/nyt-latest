@@ -1,4 +1,4 @@
-**4.8 Magnitude Earthquake Rattles New York City and Beyond**\
+**4.7 Magnitude Earthquake Rattles New York City and Beyond**\
 `The United States Geological Survey reported the quake around 10:23 a.m.`\
 https://nytimes.com/2024/04/05/nyregion/earthquake-new-york-boston-philadelphia.html
 
