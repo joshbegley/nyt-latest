@@ -1,3 +1,7 @@
+**When a Restless Planet Quakes, the Global Economy Shivers**\
+`Taiwan’s earthquake was much more serious than Friday’s shake in the Eastern U.S., and a threat to big tech.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/earthquake-taiwan-tsmc-chips
+
 **Six men died in the collapse. Four have not been found.**\
 `By Jacey Fortin and Eduardo Medina`\
 https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/six-men-died-in-the-collapse-four-have-not-been-found

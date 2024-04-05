@@ -1,3 +1,7 @@
+**When a Restless Planet Quakes, the Global Economy Shivers**\
+`Taiwan’s earthquake was much more serious than Friday’s shake in the Eastern U.S., and a threat to big tech.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/earthquake-taiwan-tsmc-chips
+
 **Six men died in the collapse. Four have not been found.**\
 `By Jacey Fortin and Eduardo Medina`\
 https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/six-men-died-in-the-collapse-four-have-not-been-found
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/05/us/earthquake-new-york/in-schools-desks-ratt
 **In 2008, researchers highlighted the seismic hazards faced by New York.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/04/05/us/earthquake-new-york/in-2008-researchers-highlighted-the-seismic-hazards-faced-by-new-york
-
-**Five International Movies to Stream Now**\
-`This month’s picks include a twisty Argentine thriller, a gutting Syrian documentary, a movie about a queer club in China and more.`\
-https://nytimes.com/2024/04/05/movies/international-movies-streaming.html
 
