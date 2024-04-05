@@ -1,3 +1,7 @@
+**Iran Vows Revenge at Funeral for Commanders Killed in Israeli Airstrike**\
+`On Monday, Israel conducted an airstrike on a building that is part of the Iranian embassy complex in Damascus, Syria, killing three generals and four other officers.`\
+https://nytimes.com/2024/04/05/world/middleeast/iran-airstrike-syria-funeral.html
+
 **Biden Will Try Again to Wipe Out Student Loan Debt for Millions of Borrowers**\
 `The Supreme Court blocked President Biden’s first attempt at large-scale student debt relief last summer.`\
 https://nytimes.com/2024/04/05/us/politics/biden-student-loan-debt.html

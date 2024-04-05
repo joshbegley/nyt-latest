@@ -10,8 +10,8 @@ https://nytimes.com/2024/04/05/theater/howard-atlee-dead.html
 `By Anna Betts and JoAnna Daemmrich`\
 https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/heres-what-the-bridge-meant-to-baltimore
 
-**Vows of revenge mark a funeral for Iranian commanders killed in an Israeli airstrike in Damascus.**\
-`On Monday, Israel conducted an airstrike on a building that is part of the Iranian embassy complex in Damascus, Syria, killing three generals and four other officers of the Quds Force.`\
+**Iran Vows Revenge at Funeral for Commanders Killed in Israeli Airstrike**\
+`On Monday, Israel conducted an airstrike on a building that is part of the Iranian embassy complex in Damascus, Syria, killing three generals and four other officers.`\
 https://nytimes.com/2024/04/05/world/middleeast/iran-airstrike-syria-funeral.html
 
 **How Much Damage Might a Big Earthquake Do to N.Y.C. Buildings?**\
