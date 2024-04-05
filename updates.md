@@ -1,3 +1,7 @@
+**Stephen Colbert Says Trump’s ‘April Trials Bring Me Smiles’**\
+`“The Late Show” host changed up the adage about spring after Donald Trump had a bad day in court.`\
+https://nytimes.com/2024/04/05/arts/television/late-night-trump-trials.html
+
 **Baltimore Shipping Channel Will Partially Reopen by End of April, Officials Say**\
 `The Army Corps of Engineers plans to reopen the channel at full capacity by late May, as officials scramble to resume operations at one of the nation’s busiest ports.`\
 https://nytimes.com/2024/04/05/us/baltimore-shipping-channel-reopen.html
