@@ -1,3 +1,7 @@
+**Margaret Tynes, Soprano Who Soared in Verdi and Strauss, Dies at 104**\
+`Because there were few opportunities for Black singers in the U.S., she became a powerhouse in Europe, performing in operas like “Tosca” and “Carmen.”`\
+https://nytimes.com/2024/04/05/arts/music/margaret-tynes-dead.html
+
 **An Earthquake Startled the Northeast**\
 `Also, Israel disciplined officers for aid worker killings. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/04/05/briefing/earthquake-northeast-biden-bridge-baltimore.html
