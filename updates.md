@@ -1,3 +1,15 @@
+**N.Y.P.D. Officials Deploy Aggressive Use of Force (on Social Media)**\
+`The department’s leaders frequently go on X to upbraid police critics, from media columnists to elected officials, in a departure from protocol.`\
+https://nytimes.com/2024/04/05/nyregion/nypd-social-media-x-twitter.html
+
+**In schools, desks rattled a bit, and then class went on as normal.**\
+`By Troy Closson`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/in-schools-desks-rattled-a-bit-and-then-class-went-on-as-normal
+
+**In New York City, earthquakes are generally tiny, and unnoticed.**\
+`By Maria Cramer`\
+https://nytimes.com/2024/04/05/us/nyc-earthquake-history.html
+
 **In 2008, researchers highlighted the seismic hazards faced by New York.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/04/05/us/earthquake-new-york/in-2008-researchers-highlighted-the-seismic-hazards-faced-by-new-york
