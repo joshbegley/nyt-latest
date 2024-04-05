@@ -1,3 +1,19 @@
+**Here’s what the bridge meant to Baltimore.**\
+`By Anna Betts and JoAnna Daemmrich`\
+https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/heres-what-the-bridge-meant-to-baltimore
+
+**Vows of revenge mark a funeral for Iranian commanders killed in an Israeli airstrike in Damascus.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/funeral-iran-commanders-israeli-airstrike-damascus
+
+**How Much Damage Might a Big Earthquake Do to N.Y.C. Buildings?**\
+`The earthquake on Friday may have felt like a few light shakes to city residents. It most likely would have been much different if the epicenter was closer.`\
+https://nytimes.com/2024/04/05/us/nyc-buildings-earthquake.html
+
+**Sami Michael, Israeli Novelist With Arabic Roots, Dies at 97**\
+`A refugee from Iraq, he explored in popular books the worlds of Jews living in Arabic countries or who fled persecution, and of Arabs living in Israel.`\
+https://nytimes.com/2024/04/05/books/sami-michael-idead.html
+
 **New Yorkers are used to all kinds of rumblings, but not earthquakes.**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/04/05/us/earthquake-new-york/new-yorkers-are-used-to-all-kinds-of-rumblings-but-not-earthquakes
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/05/theater/succession-broadway-jeremy-strong.html
 **The Big Number: $2.5 Billion**\
 `When Trump Media began public trading in late March, its stock surged. But this past week, its fortunes turned and the stock slumped.`\
 https://nytimes.com/interactive/2024/04/05/business/trump-media-stock.html
-
-**An Effort to End ‘Judge-Shopping’ Turns Into a ‘Political Firestorm’**\
-`A policy meant to prevent plaintiffs from steering their cases to sympathetic judges has drawn widespread attention, with both Republicans and Democrats accusing each other of politicizing the judiciary.`\
-https://nytimes.com/2024/04/05/us/judge-shopping-federal-courts-politics.html
-
-**The Best of Late Night This Week**\
-`The hosts briefly discussed the upcoming solar eclipse but spent most of the week on news related to former President Trump, including his media company’s stock tanking after an early surge.`\
-https://nytimes.com/interactive/2024/04/05/arts/television/best-of-late-night-truth-social.html
-
-**Near the epicenter, the earthquake rattled plates and nerves.**\
-`Some drivers said they were on the road and initially thought they were having car trouble; others said it felt like a bomb.`\
-https://nytimes.com/2024/04/05/us/lebanon-nj-earthquake-epicenter.html
-
-**Is Bird Flu Coming to People Next? Are We Ready?**\
-`Unlike the coronavirus, the H5N1 virus has been studied for years. Vaccines and treatments are available should they ever become necessary.`\
-https://nytimes.com/2024/04/05/health/bird-flu-vaccines-treatments.html
 

@@ -1,3 +1,19 @@
+**Here’s what the bridge meant to Baltimore.**\
+`By Anna Betts and JoAnna Daemmrich`\
+https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/heres-what-the-bridge-meant-to-baltimore
+
+**Vows of revenge mark a funeral for Iranian commanders killed in an Israeli airstrike in Damascus.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/funeral-iran-commanders-israeli-airstrike-damascus
+
+**How Much Damage Might a Big Earthquake Do to N.Y.C. Buildings?**\
+`The earthquake on Friday may have felt like a few light shakes to city residents. It most likely would have been much different if the epicenter was closer.`\
+https://nytimes.com/2024/04/05/us/nyc-buildings-earthquake.html
+
+**Sami Michael, Israeli Novelist With Arabic Roots, Dies at 97**\
+`A refugee from Iraq, he explored in popular books the worlds of Jews living in Arabic countries or who fled persecution, and of Arabs living in Israel.`\
+https://nytimes.com/2024/04/05/books/sami-michael-idead.html
+
 **New Yorkers are used to all kinds of rumblings, but not earthquakes.**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/04/05/us/earthquake-new-york/new-yorkers-are-used-to-all-kinds-of-rumblings-but-not-earthquakes
