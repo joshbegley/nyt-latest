@@ -1,3 +1,19 @@
+**Six men died in the collapse. Four have not been found.**\
+`By Jacey Fortin and Eduardo Medina`\
+https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/six-men-died-in-the-collapse-four-have-not-been-found
+
+**A quake that rattled nerves in New York would be a minor tremor in California.**\
+`By Thomas Fuller`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/a-quake-that-rattled-nerves-in-new-york-would-be-a-minor-tremor-in-california
+
+**The Birth Dearth and the Smartphone Age**\
+`Can we make our phones serve a family-friendly society rather than undermine childhood?`\
+https://nytimes.com/2024/04/05/opinion/smartphones-parenting-birthrate.html
+
+**Gazans describe a near-constant search for food and wonder if it will get worse.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/gazans-describe-a-near-constant-search-for-food-and-wonder-if-it-will-get-worse
+
 **Here’s how earthquakes are measured.**\
 `The moment`\
 https://nytimes.com/2024/04/05/us/earthquake-magnitude-seismometer.html
