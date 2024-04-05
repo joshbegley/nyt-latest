@@ -1,3 +1,11 @@
+**Three Questions for the Queen of Quizzes**\
+`Donald Trump may be a terrible presidential candidate but he’s God’s gift to quiz writing.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/politics-quiz-gail-collins
+
+**Scientists expressed doubts about linking Friday’s earthquake to the coming solar eclipse.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/total-solar-eclipse-earthquake
+
 **Transcript: Ezra Klein Interviews Nilay Patel**\
 `The April 5, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/04/05/podcasts/transcript-ezra-klein-interviews-nilay-patel.html

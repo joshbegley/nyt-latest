@@ -1,3 +1,11 @@
+**Three Questions for the Queen of Quizzes**\
+`Donald Trump may be a terrible presidential candidate but he’s God’s gift to quiz writing.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/politics-quiz-gail-collins
+
+**Scientists expressed doubts about linking Friday’s earthquake to the coming solar eclipse.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/total-solar-eclipse-earthquake
+
 **Transcript: Ezra Klein Interviews Nilay Patel**\
 `The April 5, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/04/05/podcasts/transcript-ezra-klein-interviews-nilay-patel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/05/magazine/cousin-dna-test-ethics.html
 **Longtime Journalist Bob Schieffer Bares His Soul in a New Art Exhibition**\
 `Mr. Schieffer, the former CBS newsman, has taken up painting in his retirement. His work will be seen at the American University Museum in Washington.`\
 https://nytimes.com/2024/04/05/us/politics/bob-schieffer-art-exhibit.html
-
-**How to Claim Your Part of a $45 Million Walmart Settlement**\
-`A class-action lawsuit accusing the retail giant of inflating prices of certain weighed foods and produce resulted in a settlement. Customers may be eligible for a payment of up to $500.`\
-https://nytimes.com/2024/04/05/business/walmart-settlement-overcharge-refund.html
-
-**The leader of a port workers union seeks more help for his members.**\
-`By Campbell Robertson`\
-https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/the-leader-of-a-port-workers-union-seeks-more-help-for-his-members
 
