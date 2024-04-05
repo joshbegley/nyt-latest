@@ -1,3 +1,15 @@
+**We Need a New Way of Measuring Earthquakes**\
+`By David Wallace-Wells`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/earthquake-measurement-scale
+
+**Justice Department Says It Will Reopen Inquiry Into Realtor Trade Group**\
+`On Friday, the U.S. Court of Appeals for the District of Columbia made a ruling that opens the door for a renewed investigation into the National Association of Realtors.`\
+https://nytimes.com/2024/04/05/realestate/doj-realtors-nar-inquiry.html
+
+**In Threatening Israel, Biden Hopes to Avoid a Rupture**\
+`The president has put Israel’s leader “on probation,” as a veteran diplomat put it. The threat is not idle, aides said, but he wants to force a course correction rather than follow through.`\
+https://nytimes.com/2024/04/05/us/politics/biden-netanyahu-israel-gaza.html
+
 **Earthquake Rattles New York and New Jersey, but Does Little Damage**\
 `A magnitude-4.8 earthquake struck the Northeast on Friday, rippling from Philadelphia to Boston.`\
 https://nytimes.com/2024/04/05/us/earthquake-nyc-nj-northeast.html

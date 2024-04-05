@@ -1,3 +1,15 @@
+**We Need a New Way of Measuring Earthquakes**\
+`By David Wallace-Wells`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/earthquake-measurement-scale
+
+**Justice Department Says It Will Reopen Inquiry Into Realtor Trade Group**\
+`On Friday, the U.S. Court of Appeals for the District of Columbia made a ruling that opens the door for a renewed investigation into the National Association of Realtors.`\
+https://nytimes.com/2024/04/05/realestate/doj-realtors-nar-inquiry.html
+
+**In Threatening Israel, Biden Hopes to Avoid a Rupture**\
+`The president has put Israel’s leader “on probation,” as a veteran diplomat put it. The threat is not idle, aides said, but he wants to force a course correction rather than follow through.`\
+https://nytimes.com/2024/04/05/us/politics/biden-netanyahu-israel-gaza.html
+
 **How an Earthquake Can Throw the Body and Brain Off-Balance**\
 `People can experience dizziness, anxiety and even “phantom” aftershocks following a quake.`\
 https://nytimes.com/article/earthquake-aftershocks-effect.html
@@ -25,16 +37,4 @@ https://nytimes.com/explain/2024/aging-career-ambition
 **Biden urges Egypt and Qatar to turn up the pressure on Hamas to make a deal on hostages and a cease-fire.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/biden-urges-egypt-and-qatar-to-turn-up-the-pressure-on-hamas-to-make-a-deal-on-hostages-and-a-cease-fire
-
-**Earthquake Rattles New York and New Jersey, but Does Little Damage**\
-`A magnitude-4.8 earthquake struck the Northeast on Friday, rippling from Philadelphia to Boston.`\
-https://nytimes.com/2024/04/05/us/earthquake-nyc-nj-northeast.html
-
-**Trump-Kennedy 2024? Trump, at Least, Is Intrigued by the Idea.**\
-`The former president has privately floated the idea of Robert F. Kennedy Jr. as a running mate. Those close to him do not see it as a serious possibility, however, and Mr. Kennedy said he would not consider it.`\
-https://nytimes.com/2024/04/05/us/politics/trump-rfk-running-mate.html
-
-**Across the Northeast, startled residents wondered what the shaking was.**\
-`By Stephanie Saul`\
-https://nytimes.com/live/2024/04/05/us/earthquake-new-york/across-the-northeast-startled-residents-wondered-what-the-shaking-was
 
