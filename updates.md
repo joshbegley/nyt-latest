@@ -1,3 +1,7 @@
+**Earthquake Shakes X Awake**\
+`For a brief, quaky moment, the social media platform was atwitter.`\
+https://nytimes.com/2024/04/05/style/northeast-earthquake-x-twitter.html
+
 **Israeli military says a series of errors led to the fatal attack on an aid convoy.**\
 `By Aaron Boxerman and Adam Rasgon`\
 https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/israeli-military-says-a-series-of-errors-led-to-the-fatal-attack-on-an-aid-convoy
