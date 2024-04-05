@@ -1,3 +1,11 @@
+**Variety: Acrostic**\
+`David Balton and Jane Stewart’s puzzle nods to a major upcoming event.`\
+https://nytimes.com/2024/04/04/crosswords/variety-acrostic.html
+
+**High Point**\
+`Rebecca Goldstein says hello from the American Crossword Puzzle Tournament.`\
+https://nytimes.com/2024/04/04/crosswords/daily-puzzle-2024-04-05.html
+
 **Chief Justice Extols Legacy of Sandra Day O’Connor**\
 `In remarks at an award ceremony, Chief Justice John G. Roberts Jr. described his colleague as a trailblazing and civic-minded presence on the Supreme Court.`\
 https://nytimes.com/2024/04/04/us/politics/chief-justice-roberts-sandra-day-oconnor.html
