@@ -1,3 +1,7 @@
+**The Israeli spy chief and Egyptian and Qatari officials will participate in the talks, too.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/the-israeli-spy-chief-and-egyptian-and-qatari-officials-will-participate-in-the-talks-too
+
 **Netanyahu Faces Pressure at Home and Abroad, From Foes and Friends**\
 `Prime Minister Benjamin Netanyahu has the challenge of trying to defeat Hamas while preserving both his government and Israel’s international alliances.`\
 https://nytimes.com/2024/04/04/world/middleeast/netanyahu-israel-gaza.html

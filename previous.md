@@ -1,3 +1,7 @@
+**The Israeli spy chief and Egyptian and Qatari officials will participate in the talks, too.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/the-israeli-spy-chief-and-egyptian-and-qatari-officials-will-participate-in-the-talks-too
+
 **Netanyahu Faces Pressure at Home and Abroad, From Foes and Friends**\
 `Prime Minister Benjamin Netanyahu has the challenge of trying to defeat Hamas while preserving both his government and Israel’s international alliances.`\
 https://nytimes.com/2024/04/04/world/middleeast/netanyahu-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009389675/gaza-food-shortage-ra
 **Why Is Technology Mean to Me?**\
 `I want my technology to have many capacities, but free will is not among them.`\
 https://nytimes.com/2024/04/04/opinion/technology-devices-phones.html
-
-**Why Some Billionaires Will Back Trump**\
-`It’s about taxes — and a false belief in their own impunity.`\
-https://nytimes.com/2024/04/04/opinion/trump-billionaires.html
 
