@@ -1,3 +1,7 @@
+**Here is what we know about the new aid routes into Gaza.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/here-is-what-we-know-about-the-new-aid-routes-into-gaza
+
 **Iran Vows Revenge at Funeral for Commanders Killed in Israeli Airstrike**\
 `On Monday, Israel conducted an airstrike on a building that is part of the Iranian embassy complex in Damascus, Syria, killing three generals and four other officers.`\
 https://nytimes.com/2024/04/05/world/middleeast/iran-airstrike-syria-funeral.html
