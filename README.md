@@ -1,10 +1,14 @@
+**Rwanda Is a Reminder that We Need International Justice More Than Ever**\
+`States are blatantly disregarding international law, but the world still demands justice.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/rwanda-genocide-anniversary
+
 **Three Questions for the Queen of Quizzes**\
 `Donald Trump may be a terrible presidential candidate but he’s God’s gift to quiz writing.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/politics-quiz-gail-collins
 
-**Scientists expressed doubts about linking Friday’s earthquake to the coming solar eclipse.**\
-`By Katrina Miller`\
-https://nytimes.com/live/2024/04/05/us/earthquake-new-york/total-solar-eclipse-earthquake
+**Was Today’s Earthquake Connected to the Solar Eclipse?**\
+`The tidal forces on Earth grow as the sun, moon and Earth begin to align, a configuration that can lead to a solar eclipse. But the results of several studies of the relationship between earthquakes and tides are inconclusive, a geophysicist said.`\
+https://nytimes.com/2024/04/05/science/total-solar-eclipse-earthquake.html
 
 **Transcript: Ezra Klein Interviews Nilay Patel**\
 `The April 5, 2024, episode of “The Ezra Klein Show.”`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/opinion/ai-jobs-nick-bostrom.html
 **Does My Cousin Get a Say in Whether I Have a DNA Test?**\
 `The magazine’s Ethicist columnist on familial duty, genetic ancestry testing and privacy.`\
 https://nytimes.com/2024/04/05/magazine/cousin-dna-test-ethics.html
-
-**Longtime Journalist Bob Schieffer Bares His Soul in a New Art Exhibition**\
-`Mr. Schieffer, the former CBS newsman, has taken up painting in his retirement. His work will be seen at the American University Museum in Washington.`\
-https://nytimes.com/2024/04/05/us/politics/bob-schieffer-art-exhibit.html
 
