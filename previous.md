@@ -1,3 +1,11 @@
+**An Overlooked Championship H.B.C.U.’s Final Stop: The White House**\
+`The Tennessee A&I basketball team won three back-to-back national championships at the height of the Jim Crow era, but were never invited to the White House. That changed on Friday.`\
+https://nytimes.com/2024/04/05/us/dick-barnett-tennessee-state-basketball-white-house.html
+
+**U.S. Seeks ‘Results’ After Israel Promises More Gaza Aid Routes**\
+`World leaders welcomed the shift by an Israel facing increasing pressure, but they stressed that the measure of success would be whether enough trucks get in to ease the humanitarian crisis.`\
+https://nytimes.com/2024/04/05/world/middleeast/israel-aid-gaza-biden.html
+
 **We Need a New Way of Measuring Earthquakes**\
 `By David Wallace-Wells`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/earthquake-measurement-scale
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/05/us/eric-adams-doorway-earthquake-safety.html
 **Cardi B Spars With an Influencer Over Colorism and Brand Deals**\
 `The rapper exchanged heated remarks with the social media personality Raymonte Cole after he suggested that her skin color was the reason brands consider her “marketable.”`\
 https://nytimes.com/2024/04/05/style/cardi-b-raymonte-tiktok-ghetto.html
-
-**05STYLES-UNSTOPPABLES**\
-`The Unstoppables: Sharing the Secrets of a Lifelong Career`\
-https://nytimes.com/explain/2024/aging-career-ambition
-
-**Biden urges Egypt and Qatar to turn up the pressure on Hamas to make a deal on hostages and a cease-fire.**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/biden-urges-egypt-and-qatar-to-turn-up-the-pressure-on-hamas-to-make-a-deal-on-hostages-and-a-cease-fire
 
