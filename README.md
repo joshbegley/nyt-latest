@@ -1,3 +1,15 @@
+**Chappell Roan’s Eye-Roll Kiss-Off, and 11 More New Songs**\
+`Hear tracks by Prince, Young Miko, the Black Keys and others.`\
+https://nytimes.com/2024/04/05/arts/music/playlist-young-miko-prince-chappell-roan.html
+
+**A seismograph near New York City captured the moment of the earthquake.**\
+`By William J. Broad`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/a-seismograph-near-new-york-city-captured-the-moment-of-the-earthquake
+
+**Here’s what to know about the jobs report.**\
+`By Talmon Joseph Smith`\
+https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/heres-what-to-know-about-the-jobs-report
+
 **A Smart Idea to Return Majority Rule to the Senate**\
 `The filibuster is not what the architects of the Constitution had in mind.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/senate-filibuster-majority-rule
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/05/world/europe/real-madrid-endrick-mbappe.html
 **Israel disciplines officers for their roles in the drone attack that killed seven aid workers.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/idf-soldiers-dismissed-israel
-
-**Review: A Conductor’s Philharmonic Debut Is a Homecoming**\
-`Karina Canellakis, a born-and-raised New Yorker, led her hometown orchestra alongside another debut, of the pianist Alice Sara Ott.`\
-https://nytimes.com/2024/04/05/arts/music/karina-canellakis-new-york-philharmonic-review.html
-
-**Larry David’s Rule Book for How (Not) to Live in Society**\
-`He’s a wild, monomaniacal jerk. He’s also our greatest interpreter of American manners since Emily Post.`\
-https://nytimes.com/2024/04/05/magazine/larry-david-curb-your-enthusiasm.html
-
-**How to Photograph a Solar Eclipse**\
-`There's a right way to do it.`\
-https://nytimes.com/interactive/2024/04/05/smarter-living/wirecutter/photograph-solar-eclipse.html
 
