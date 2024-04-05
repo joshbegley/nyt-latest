@@ -1,3 +1,7 @@
+**You Can Still Smoke in Atlantic City Casinos. Workers Want to Ban It.**\
+`The New Jersey casinos are the last large refuge for smokers in the Northeast, but some employees say their health is at risk.`\
+https://nytimes.com/2024/04/05/nyregion/casinos-smoking-new-jersey.html
+
 **The Bumpy Gourd That’s Winning Over Bartenders**\
 `In bars from Hong Kong to Vancouver, the medicinal tang of bitter melon is making its way onto drinks menus.`\
 https://nytimes.com/2024/04/05/t-magazine/bitter-melon-cocktails.html
