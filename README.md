@@ -30,7 +30,7 @@ https://nytimes.com/2024/04/05/podcasts/the-daily/engineering-climate-change.htm
 `Plus, the dangers of the Darién Gap.`\
 https://nytimes.com/2024/04/05/podcasts/biden-phone-call-eclipse.html
 
-**U.S. and aid officials say they will wait and see if Israel’s promise to open new crossings increases flow of aid.**\
+**It was not clear when new routes into Gaza would open or how much aid could pass through them.**\
 `By Cassandra Vinograd and Gaya Gupta`\
 https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/us-and-aid-officials-say-they-will-wait-and-see-if-israels-promise-to-open-new-crossings-increases-flow-of-aid
 
