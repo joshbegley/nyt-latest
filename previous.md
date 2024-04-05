@@ -1,3 +1,7 @@
+**Chief Justice Extols Legacy of Sandra Day O’Connor**\
+`In remarks at an award ceremony, Chief Justice John G. Roberts Jr. described his colleague as a trailblazing and civic-minded presence on the Supreme Court.`\
+https://nytimes.com/2024/04/04/us/politics/chief-justice-roberts-sandra-day-oconnor.html
+
 **Artist Files Lawsuit Against Des Moines Museum to Protect Her Work**\
 `Mary Miss’s lawsuit claims that the planned demolition of her work violates the Visual Artists Rights Act, which empowers artists to save their work from destruction.`\
 https://nytimes.com/2024/04/04/arts/design/mary-miss-lawsuit-des-moines-art-center.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/us/stanford-president-jonathan-levin.html
 **A Looming Question for Paramount’s Board: How to Navigate Shari Redstone**\
 `The board of directors has to walk a fine line, looking out for investors without running afoul of Ms. Redstone, the company’s most influential shareholder.`\
 https://nytimes.com/2024/04/04/business/media/paramount-board-shari-redstone.html
-
-**Progressive Candidate Could Upend the San Francisco Mayor’s Race**\
-`The contest has been dominated by Mayor London Breed and her moderate challengers. Supervisor Aaron Peskin seeks to change that.`\
-https://nytimes.com/2024/04/04/us/san-francisco-mayor-peskin.html
 

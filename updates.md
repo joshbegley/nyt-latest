@@ -1,3 +1,7 @@
+**Chief Justice Extols Legacy of Sandra Day O’Connor**\
+`In remarks at an award ceremony, Chief Justice John G. Roberts Jr. described his colleague as a trailblazing and civic-minded presence on the Supreme Court.`\
+https://nytimes.com/2024/04/04/us/politics/chief-justice-roberts-sandra-day-oconnor.html
+
 **Artist Files Lawsuit Against Des Moines Museum to Protect Her Work**\
 `Mary Miss’s lawsuit claims that the planned demolition of her work violates the Visual Artists Rights Act, which empowers artists to save their work from destruction.`\
 https://nytimes.com/2024/04/04/arts/design/mary-miss-lawsuit-des-moines-art-center.html
