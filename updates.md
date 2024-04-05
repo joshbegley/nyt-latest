@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Nilay Patel**\
+`The April 5, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/04/05/podcasts/transcript-ezra-klein-interviews-nilay-patel.html
+
 **New Report Reveals N.Y.C. Areas Most Hurt by Environmental Inequities**\
 `The project uses census data and an interactive map to identify areas with high levels of pollution and other socioeconomic risks.`\
 https://nytimes.com/2024/04/05/nyregion/climate-change-pollution-nyc-report.html
