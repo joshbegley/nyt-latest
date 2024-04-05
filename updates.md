@@ -1,3 +1,15 @@
+**In 2008, researchers highlighted the seismic hazards faced by New York.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/in-2008-researchers-highlighted-the-seismic-hazards-faced-by-new-york
+
+**Five International Movies to Stream Now**\
+`This month’s picks include a twisty Argentine thriller, a gutting Syrian documentary, a movie about a queer club in China and more.`\
+https://nytimes.com/2024/04/05/movies/international-movies-streaming.html
+
+**F.B.I. Examining Free Airfare Upgrades Received by Adams**\
+`Federal prosecutors and F.B.I. agents are scrutinizing international flights taken by Mayor Eric Adams of New York aboard Turkey’s national air carrier, Turkish Airlines.`\
+https://nytimes.com/2024/04/05/nyregion/eric-adams-turkish-airlines-upgrades.html
+
 **Here’s how earthquakes are measured.**\
 `By Henry Fountain`\
 https://nytimes.com/live/2024/04/05/us/earthquake-new-york/heres-how-earthquakes-are-measured

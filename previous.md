@@ -1,3 +1,15 @@
+**In 2008, researchers highlighted the seismic hazards faced by New York.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/in-2008-researchers-highlighted-the-seismic-hazards-faced-by-new-york
+
+**Five International Movies to Stream Now**\
+`This month’s picks include a twisty Argentine thriller, a gutting Syrian documentary, a movie about a queer club in China and more.`\
+https://nytimes.com/2024/04/05/movies/international-movies-streaming.html
+
+**F.B.I. Examining Free Airfare Upgrades Received by Adams**\
+`Federal prosecutors and F.B.I. agents are scrutinizing international flights taken by Mayor Eric Adams of New York aboard Turkey’s national air carrier, Turkish Airlines.`\
+https://nytimes.com/2024/04/05/nyregion/eric-adams-turkish-airlines-upgrades.html
+
 **Here’s how earthquakes are measured.**\
 `By Henry Fountain`\
 https://nytimes.com/live/2024/04/05/us/earthquake-new-york/heres-how-earthquakes-are-measured
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/investigators-expe
 **Thursday in the Park With Bigfoot**\
 `A publicity effort for the movie “Sasquatch Sunset” had one of the film’s cast members in full sasquatch costume, wandering through Central Park.`\
 https://nytimes.com/2024/04/05/movies/sasquatch-central-park.html
-
-**The Era of Klaus Mäkelä, Conducting Phenom, Begins in Chicago**\
-`On Thursday, the richly talented 28-year-old maestro led the Chicago Symphony Orchestra for the first time since being named its next music director.`\
-https://nytimes.com/2024/04/05/arts/music/klaus-makela-chicago-symphony-orchestra.html
-
-**Chappell Roan’s Eye-Roll Kiss-Off, and 11 More New Songs**\
-`Hear tracks by Prince, Young Miko, the Black Keys and others.`\
-https://nytimes.com/2024/04/05/arts/music/playlist-young-miko-prince-chappell-roan.html
-
-**A seismograph near New York City captured the moment of the earthquake.**\
-`By William J. Broad`\
-https://nytimes.com/live/2024/04/05/us/earthquake-new-york/a-seismograph-near-new-york-city-captured-the-moment-of-the-earthquake
 
