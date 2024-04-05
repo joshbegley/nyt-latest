@@ -1,3 +1,7 @@
+**Man Set Fire Outside Bernie Sanders’s Vermont Office, Police Say**\
+`The authorities are trying to identify an arsonist who struck outside the U.S. senator’s office in Burlington, Vt. No one was injured, and the senator was not there.`\
+https://nytimes.com/2024/04/05/us/fire-bernie-sanders-office.html
+
 **‘Zone of Interest’ Oscars Speech Is Defended by Jewish Film Artists**\
 `Remarks about Israel that the director Jonathan Glazer made as he accepted an Oscar for “The Zone of Interest” drew a letter of support after facing criticism last month.`\
 https://nytimes.com/2024/04/05/movies/jonathan-glazer-speech-letter.html

@@ -1,3 +1,7 @@
+**Man Set Fire Outside Bernie Sanders’s Vermont Office, Police Say**\
+`The authorities are trying to identify an arsonist who struck outside the U.S. senator’s office in Burlington, Vt. No one was injured, and the senator was not there.`\
+https://nytimes.com/2024/04/05/us/fire-bernie-sanders-office.html
+
 **When Food, War and Politics Collide**\
 `It is usually an afterthought in politics, but the power of food was made clear this week.`\
 https://nytimes.com/2024/04/05/us/politics/israel-hamas-world-central-kitchen.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/business/economy/labor-statistics-super-users.htm
 **Margaret Tynes, Soprano Who Soared in Verdi and Strauss, Dies at 104**\
 `Because there were few opportunities for Black singers in the U.S., she became a powerhouse in Europe, performing in operas like “Tosca” and “Carmen.”`\
 https://nytimes.com/2024/04/05/arts/music/margaret-tynes-dead.html
-
-**An Earthquake Startled the Northeast**\
-`Also, Israel disciplined officers for aid worker killings. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/04/05/briefing/earthquake-northeast-biden-bridge-baltimore.html
 
