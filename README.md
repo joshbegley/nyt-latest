@@ -1,3 +1,11 @@
+**New Yorkers are used to all kinds of rumblings, but not earthquakes.**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/new-yorkers-are-used-to-all-kinds-of-rumblings-but-not-earthquakes
+
+**A Solar Eclipse Soundtrack**\
+`Songs from TV on the Radio, Brian Eno, Julianna Barwick and others than could well accompany the celestial event on Monday.`\
+https://nytimes.com/2024/04/05/arts/music/amplifier-playlist-solar-eclipse-soundtrack.html
+
 **The ship struck the Baltimore bridge with a force on the scale of a rocket launch.**\
 `By Aatish Bhatia and Francesca Paris`\
 https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/the-ship-struck-the-baltimore-bridge-with-a-force-on-the-scale-of-a-rocket-launch
@@ -23,18 +31,10 @@ https://nytimes.com/2024/04/05/us/judge-shopping-federal-courts-politics.html
 https://nytimes.com/interactive/2024/04/05/arts/television/best-of-late-night-truth-social.html
 
 **Near the epicenter, the earthquake rattled plates and nerves.**\
-`By Sarah Maslin Nir`\
-https://nytimes.com/live/2024/04/05/us/earthquake-new-york/lebanon-nj-earthquake-epicenter
+`Some drivers said they were on the road and initially thought they were having car trouble; others said it felt like a bomb.`\
+https://nytimes.com/2024/04/05/us/lebanon-nj-earthquake-epicenter.html
 
 **Is Bird Flu Coming to People Next? Are We Ready?**\
 `Unlike the coronavirus, the H5N1 virus has been studied for years. Vaccines and treatments are available should they ever become necessary.`\
 https://nytimes.com/2024/04/05/health/bird-flu-vaccines-treatments.html
-
-**Sensible Ways to Fight Terrorism**\
-`Responses to a guest essay about ISIS and the West. Also: The Northeast quake; R.F.K. Jr.’s claim of “censorship”; obstacles to liberalism; valuing care jobs.`\
-https://nytimes.com/2024/04/05/opinion/fighting-terrorism.html
-
-**Outrage Over Slain Aid Workers Deepens Democratic Resistance to Arming Israel**\
-`There is strong bipartisan support for aiding Israel in Congress, but the concerns among Democrats could further bog down an already stalled security aid package for Ukraine and Israel.`\
-https://nytimes.com/2024/04/05/us/politics/democrats-israel-aid.html
 
