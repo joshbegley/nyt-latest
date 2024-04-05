@@ -1,3 +1,7 @@
+**Yellen Faces Diplomatic Test in Urging China to Curb Green Energy Exports**\
+`The United States wants to persuade China to dial back its green energy industrial strategy as the Biden administration subsidizes its own supply chain.`\
+https://nytimes.com/2024/04/05/business/yellen-china-green-energy-exports.html
+
 **Lou Whittaker, Mountain Adventurer and Entrepreneur, Dies at 95**\
 `While his identical twin was the first American to summit Everest, he was best known  for his devotion to Mount Rainier, the peak of their youth.`\
 https://nytimes.com/2024/04/05/us/lou-whittaker-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/after-6-mon
 **Is Larry David the Most Unsung Fashion Critic of Our Time?**\
 `The “Curb Your Enthusiasm” creator and star has been commenting on the human condition through people’s sartorial choices for decades.`\
 https://nytimes.com/2024/04/05/style/larry-david-fashion-curb-your-enthusiasm.html
-
-**Rising Oil Prices Reignite Inflation Fears**\
-`The price of Brent crude rose to a six-month high on Friday, a potential dose of bad news for central bankers and for the White House.`\
-https://nytimes.com/2024/04/05/business/dealbook/oil-prices-inflation.html
 
