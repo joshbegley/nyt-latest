@@ -1,3 +1,7 @@
+**Artist Files Lawsuit Against Des Moines Museum to Protect Her Work**\
+`Mary Miss’s lawsuit claims that the planned demolition of her work violates the Visual Artists Rights Act, which empowers artists to save their work from destruction.`\
+https://nytimes.com/2024/04/04/arts/design/mary-miss-lawsuit-des-moines-art-center.html
+
 **Prisoners Who Sued Over Lockdown Will Be Allowed to View Solar Eclipse**\
 `The six inmates at an upstate New York prison had said the eclipse was “a religious event that they must witness.” A statewide prison lockdown will remain in place.`\
 https://nytimes.com/2024/04/04/nyregion/ny-prisons-solar-eclipse-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/business/media/paramount-board-shari-redstone.htm
 **Progressive Candidate Could Upend the San Francisco Mayor’s Race**\
 `The contest has been dominated by Mayor London Breed and her moderate challengers. Supervisor Aaron Peskin seeks to change that.`\
 https://nytimes.com/2024/04/04/us/san-francisco-mayor-peskin.html
-
-**R.F.K. Jr.’s Campaign Expressed Sympathy for Jan. 6 Rioters, Then Retracted It**\
-`In an email urging the United States to drop espionage charges against Julian Assange, the Kennedy campaign grouped the WikiLeaks founder with Edward Snowden and “J6 activists” in a D.C. jail.`\
-https://nytimes.com/2024/04/04/us/politics/rfk-jr-january-6-rioters-trump.html
 

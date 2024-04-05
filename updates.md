@@ -1,3 +1,7 @@
+**Artist Files Lawsuit Against Des Moines Museum to Protect Her Work**\
+`Mary Miss’s lawsuit claims that the planned demolition of her work violates the Visual Artists Rights Act, which empowers artists to save their work from destruction.`\
+https://nytimes.com/2024/04/04/arts/design/mary-miss-lawsuit-des-moines-art-center.html
+
 **Prisoners Who Sued Over Lockdown Will Be Allowed to View Solar Eclipse**\
 `The six inmates at an upstate New York prison had said the eclipse was “a religious event that they must witness.” A statewide prison lockdown will remain in place.`\
 https://nytimes.com/2024/04/04/nyregion/ny-prisons-solar-eclipse-lawsuit.html
