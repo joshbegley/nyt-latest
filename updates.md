@@ -1,3 +1,7 @@
+**Yellen Faces Diplomatic Test in Urging China to Curb Green Energy Exports**\
+`The United States wants to persuade China to dial back its green energy industrial strategy as the Biden administration subsidizes its own supply chain.`\
+https://nytimes.com/2024/04/05/business/yellen-china-green-energy-exports.html
+
 **Lou Whittaker, Mountain Adventurer and Entrepreneur, Dies at 95**\
 `While his identical twin was the first American to summit Everest, he was best known  for his devotion to Mount Rainier, the peak of their youth.`\
 https://nytimes.com/2024/04/05/us/lou-whittaker-dead.html
