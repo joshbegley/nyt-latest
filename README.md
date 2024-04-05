@@ -2,8 +2,8 @@
 `The move highlighted deepening political rifts facing multinationals in the region and follows boycotts after the fast-food chain’s Israeli franchise owner donated thousands of meals to soldiers.`\
 https://nytimes.com/2024/04/05/world/middleeast/mcdonalds-israel.html
 
-**What to Know About Earthquakes**\
-`And what to do when you’ve felt one.`\
+**What to Do When You’ve Felt an Earthquake**\
+`And what else to know when the Earth moves.`\
 https://nytimes.com/article/what-to-know-about-earthquakes.html
 
 **4.8 Magnitude Earthquake Rattles New York City and Beyond**\
