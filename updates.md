@@ -1,3 +1,15 @@
+**Biden Will Try Again to Wipe Out Student Loan Debt for Millions of Borrowers**\
+`The Supreme Court blocked President Biden’s first attempt at large-scale student debt relief last summer.`\
+https://nytimes.com/2024/04/05/us/politics/biden-student-loan-debt.html
+
+**Howard Atlee, Showman Who Promoted Dramas and Dogs, Dies at 97**\
+`As a press agent, he had his first big hit with “Who’s Afraid of Virginia Woolf?” In dog competitions, his first big hit was a dachshund named Virginia.`\
+https://nytimes.com/2024/04/05/theater/howard-atlee-dead.html
+
+**Vows of revenge mark a funeral for Iranian commanders killed in an Israeli airstrike in Damascus.**\
+`On Monday, Israel conducted an airstrike on a building that is part of the Iranian embassy complex in Damascus, Syria, killing three generals and four other officers of the Quds Force.`\
+https://nytimes.com/2024/04/05/world/middleeast/iran-airstrike-syria-funeral.html
+
 **Here’s what the bridge meant to Baltimore.**\
 `By Anna Betts and JoAnna Daemmrich`\
 https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/heres-what-the-bridge-meant-to-baltimore

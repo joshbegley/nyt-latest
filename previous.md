@@ -1,10 +1,18 @@
+**Biden Will Try Again to Wipe Out Student Loan Debt for Millions of Borrowers**\
+`The Supreme Court blocked President Biden’s first attempt at large-scale student debt relief last summer.`\
+https://nytimes.com/2024/04/05/us/politics/biden-student-loan-debt.html
+
+**Howard Atlee, Showman Who Promoted Dramas and Dogs, Dies at 97**\
+`As a press agent, he had his first big hit with “Who’s Afraid of Virginia Woolf?” In dog competitions, his first big hit was a dachshund named Virginia.`\
+https://nytimes.com/2024/04/05/theater/howard-atlee-dead.html
+
 **Here’s what the bridge meant to Baltimore.**\
 `By Anna Betts and JoAnna Daemmrich`\
 https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/heres-what-the-bridge-meant-to-baltimore
 
 **Vows of revenge mark a funeral for Iranian commanders killed in an Israeli airstrike in Damascus.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/funeral-iran-commanders-israeli-airstrike-damascus
+`On Monday, Israel conducted an airstrike on a building that is part of the Iranian embassy complex in Damascus, Syria, killing three generals and four other officers of the Quds Force.`\
+https://nytimes.com/2024/04/05/world/middleeast/iran-airstrike-syria-funeral.html
 
 **How Much Damage Might a Big Earthquake Do to N.Y.C. Buildings?**\
 `The earthquake on Friday may have felt like a few light shakes to city residents. It most likely would have been much different if the epicenter was closer.`\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/the-ship-struck-th
 **Why did New York City’s earthquake alert take 26 minutes?**\
 `The administration of Mayor Eric Adams received criticism for taking nearly thirty minutes to send its first alert.`\
 https://nytimes.com/2024/04/05/us/new-york-city-alert-earthquake.html
-
-**With ‘Succession’ Complete, the Roys’ Next Takeover Is the Stage**\
-`Audiences are flocking to shows with Jeremy Strong, Sarah Snook and other alums of the acclaimed HBO series.`\
-https://nytimes.com/2024/04/05/theater/succession-broadway-jeremy-strong.html
-
-**The Big Number: $2.5 Billion**\
-`When Trump Media began public trading in late March, its stock surged. But this past week, its fortunes turned and the stock slumped.`\
-https://nytimes.com/interactive/2024/04/05/business/trump-media-stock.html
 
