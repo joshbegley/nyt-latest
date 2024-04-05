@@ -1,3 +1,15 @@
+**Report Pinpoints N.Y.C. Communities Most Hurt by Environmental Factors**\
+`The project uses census data and an interactive map to identify areas with high levels of pollution and other socioeconomic risks.`\
+https://nytimes.com/2024/04/05/nyregion/climate-change-pollution-nyc-report.html
+
+**Some of Trump’s Biggest Political Backers Also Threw Trump Media a Lifeline**\
+`Two billionaires, a wealthy election denier and a mysterious Russia-linked trust invested in the Trump company long before it went public.`\
+https://nytimes.com/2024/04/05/business/trump-media-backers-investors.html
+
+**U.K. Lawmaker Admits Giving Out Colleagues’ Numbers in ‘Honey Trap’ Scandal**\
+`William Wragg said he had been scared that a man he met on the Grindr dating app had “compromising things” on him, and apologized for causing “hurt.”`\
+https://nytimes.com/2024/04/05/world/europe/uk-parliament-sexting-honeytrap-william-wragg.html
+
 **In the End, ‘The New Look’ Left Us Wanting More**\
 `More Dior. More Chanel. More fashion!`\
 https://nytimes.com/2024/04/05/style/the-new-look-dior-chanel.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/the-leader-of-a-po
 **Here is what we know about the new aid routes into Gaza.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/here-is-what-we-know-about-the-new-aid-routes-into-gaza
-
-**Biden Will Try Again to Wipe Out Student Loan Debt for Millions of Borrowers**\
-`The Supreme Court blocked President Biden’s first attempt at large-scale student debt relief last summer.`\
-https://nytimes.com/2024/04/05/us/politics/biden-student-loan-debt.html
-
-**Howard Atlee, Showman Who Promoted Dramas and Dogs, Dies at 97**\
-`As a press agent, he had his first big hit with “Who’s Afraid of Virginia Woolf?” In dog competitions, his first big hit was a dachshund named Virginia.`\
-https://nytimes.com/2024/04/05/theater/howard-atlee-dead.html
-
-**Here’s what the bridge meant to Baltimore.**\
-`By Anna Betts and JoAnna Daemmrich`\
-https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/heres-what-the-bridge-meant-to-baltimore
 
