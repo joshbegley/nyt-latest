@@ -1,3 +1,15 @@
+**The ship struck the Baltimore bridge with a force on the scale of a rocket launch.**\
+`By Aatish Bhatia and Francesca Paris`\
+https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/the-ship-struck-the-baltimore-bridge-with-a-force-on-the-scale-of-a-rocket-launch
+
+**Why did New York City’s earthquake alert take so long?**\
+`The administration of Mayor Eric Adams received criticism for taking nearly thirty minutes to send its first alert.`\
+https://nytimes.com/2024/04/05/us/new-york-city-alert-earthquake.html
+
+**With ‘Succession’ Complete, the Roys’ Next Takeover Is the Stage**\
+`Audiences are flocking to shows with Jeremy Strong, Sarah Snook and other alums of the acclaimed HBO series.`\
+https://nytimes.com/2024/04/05/theater/succession-broadway-jeremy-strong.html
+
 **The Big Number: $2.5 Billion**\
 `When Trump Media began public trading in late March, its stock surged. But this past week, its fortunes turned and the stock slumped.`\
 https://nytimes.com/interactive/2024/04/05/business/trump-media-stock.html
