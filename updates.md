@@ -1,3 +1,11 @@
+**Prisoners Who Sued Over Lockdown Will Be Allowed to View Solar Eclipse**\
+`The six inmates at an upstate New York prison had said the eclipse was “a religious event that they must witness.” A statewide prison lockdown will remain in place.`\
+https://nytimes.com/2024/04/04/nyregion/ny-prisons-solar-eclipse-lawsuit.html
+
+**Israel Agrees to Open Erez Crossing for Gaza Aid After Biden Pressure, U.S. Says**\
+`Israel has come under rising pressure from U.S. officials and humanitarian agencies to allow more aid into Gaza, amid warnings that famine is looming.`\
+https://nytimes.com/2024/04/04/world/middleeast/gaza-aid-erez-crossing.html
+
 **The White House says Netanyahu agreed to open another crossing for aid after pressure from Biden.**\
 `Israel has come under rising pressure from U.S. officials and humanitarian agencies to allow more aid into Gaza, amid warnings that famine is looming.`\
 https://nytimes.com/2024/04/04/world/middleeast/gaza-aid-erez-crossing.html

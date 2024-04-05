@@ -1,4 +1,8 @@
-**The White House says Netanyahu agreed to open another crossing for aid after pressure from Biden.**\
+**Prisoners Who Sued Over Lockdown Will Be Allowed to View Solar Eclipse**\
+`The six inmates at an upstate New York prison had said the eclipse was “a religious event that they must witness.” A statewide prison lockdown will remain in place.`\
+https://nytimes.com/2024/04/04/nyregion/ny-prisons-solar-eclipse-lawsuit.html
+
+**Israel Agrees to Open Erez Crossing for Gaza Aid After Biden Pressure, U.S. Says**\
 `Israel has come under rising pressure from U.S. officials and humanitarian agencies to allow more aid into Gaza, amid warnings that famine is looming.`\
 https://nytimes.com/2024/04/04/world/middleeast/gaza-aid-erez-crossing.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/us/san-francisco-mayor-peskin.html
 **R.F.K. Jr.’s Campaign Expressed Sympathy for Jan. 6 Rioters, Then Retracted It**\
 `In an email urging the United States to drop espionage charges against Julian Assange, the Kennedy campaign grouped the WikiLeaks founder with Edward Snowden and “J6 activists” in a D.C. jail.`\
 https://nytimes.com/2024/04/04/us/politics/rfk-jr-january-6-rioters-trump.html
-
-**Biden Threatens to Condition Israel Aid**\
-`Also, ocean temperatures signal a daunting hurricane season. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/04/04/briefing/biden-israel-call-darien-gap-violence.html
 
