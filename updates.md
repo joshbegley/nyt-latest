@@ -1,3 +1,11 @@
+**R.F.K. Jr. Calls to Investigate Potential Wrongdoing Against Jan. 6 Rioters**\
+`Mr. Kennedy’s campaign again expressed sympathy for the “harsh treatment” of those who rioted at the Capitol on Jan. 6, 2021, after retracting a similar statement a day earlier.`\
+https://nytimes.com/2024/04/05/us/politics/rfk-jr-jan-6.html
+
+**An Overlooked Championship Team’s Final Stop: The White House**\
+`The all-Black Tennessee A&I basketball team won three back-to-back national championships at the height of the Jim Crow era, but were never invited to the White House. That changed on Friday.`\
+https://nytimes.com/2024/04/05/us/dick-barnett-tennessee-state-basketball-white-house.html
+
 **An Overlooked Championship H.B.C.U.’s Final Stop: The White House**\
 `The Tennessee A&I basketball team won three back-to-back national championships at the height of the Jim Crow era, but were never invited to the White House. That changed on Friday.`\
 https://nytimes.com/2024/04/05/us/dick-barnett-tennessee-state-basketball-white-house.html
