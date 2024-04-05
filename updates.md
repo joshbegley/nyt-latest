@@ -1,3 +1,11 @@
+**New York to Pay $17.5 Million for Forcing Removal of Hijabs in Mug Shots**\
+`New York City reached a settlement in a lawsuit brought by two women who were arrested and made to remove their head coverings by the police before being photographed.`\
+https://nytimes.com/2024/04/05/nyregion/hijab-muslim-nypd-mugshot-settlement.html
+
+**The Fed has recently welcomed strong jobs gains as labor supply picks up.**\
+`Immigration and increased labor force participation have helped employers to add workers even as wage growth moderates.`\
+https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/the-fed-has-recently-welcomed-strong-jobs-gains-as-labor-supply-picks-up
+
 **Author Who Defected From North Korea Wins Defamation Lawsuit**\
 `Jang Jin-sung​, known for his memoir “Dear Leader,” was accused of rape by a fellow North Korean defector. He sued her and a South Korean broadcaster and won.`\
 https://nytimes.com/2024/04/05/world/asia/north-korea-jang-jin-sung-defamation.html
