@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Nilay Patel**\
+`The April 5, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/04/05/podcasts/transcript-ezra-klein-interviews-nilay-patel.html
+
 **New Report Reveals N.Y.C. Areas Most Hurt by Environmental Inequities**\
 `The project uses census data and an interactive map to identify areas with high levels of pollution and other socioeconomic risks.`\
 https://nytimes.com/2024/04/05/nyregion/climate-change-pollution-nyc-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/business/walmart-settlement-overcharge-refund.htm
 **The leader of a port workers union seeks more help for his members.**\
 `By Campbell Robertson`\
 https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/the-leader-of-a-port-workers-union-seeks-more-help-for-his-members
-
-**Here is what we know about the new aid routes into Gaza.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/here-is-what-we-know-about-the-new-aid-routes-into-gaza
 
