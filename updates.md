@@ -1,3 +1,7 @@
+**What to Know About R.F.K. Jr. and His Threat to Biden and Trump**\
+`Mr. Kennedy has become the most prominent independent or third-party presence in the 2024 race.`\
+https://nytimes.com/article/rfk-jr-explainer.html
+
 **Opposition to Muslim Judicial Nominee Leaves Biden With a Tough Choice**\
 `Adeel Mangi would be the first Muslim American to be a federal appeals court judge, but has faced vitriolic attacks from the G.O.P. The president could run out of time to fill the seat.`\
 https://nytimes.com/2024/04/05/us/adeel-mangi-judge-biden.html

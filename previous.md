@@ -1,3 +1,7 @@
+**What to Know About R.F.K. Jr. and His Threat to Biden and Trump**\
+`Mr. Kennedy has become the most prominent independent or third-party presence in the 2024 race.`\
+https://nytimes.com/article/rfk-jr-explainer.html
+
 **Opposition to Muslim Judicial Nominee Leaves Biden With a Tough Choice**\
 `Adeel Mangi would be the first Muslim American to be a federal appeals court judge, but has faced vitriolic attacks from the G.O.P. The president could run out of time to fill the seat.`\
 https://nytimes.com/2024/04/05/us/adeel-mangi-judge-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/world/asia/north-korea-jang-jin-sung-defamation.h
 **Harlem Was No Longer the Same After This Dinner Party**\
 `Harlem was synonymous with the arts. But what I didn’t know was how that had come to be.`\
 https://nytimes.com/2024/04/05/us/harlem-renaissance-anniversary.html
-
-**Beyond jobs, economic data continues to look rosy.**\
-`By Ben Casselman`\
-https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/beyond-jobs-economic-data-continues-to-look-rosy
 
