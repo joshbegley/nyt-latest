@@ -1,3 +1,7 @@
+**Immigration is helping to meet hiring demand, and may explain data mysteries.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/immigration-is-helping-to-meet-hiring-demand-and-may-explain-data-mysteries
+
 **An Engineering Experiment to Cool the Earth**\
 `A new technology is attempting to brighten clouds and bounce some of the sun’s rays back into space.`\
 https://nytimes.com/2024/04/05/podcasts/the-daily/engineering-climate-change.html

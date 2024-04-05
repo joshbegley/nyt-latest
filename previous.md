@@ -1,3 +1,7 @@
+**Immigration is helping to meet hiring demand, and may explain data mysteries.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/immigration-is-helping-to-meet-hiring-demand-and-may-explain-data-mysteries
+
 **An Engineering Experiment to Cool the Earth**\
 `A new technology is attempting to brighten clouds and bounce some of the sun’s rays back into space.`\
 https://nytimes.com/2024/04/05/podcasts/the-daily/engineering-climate-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy
 **Is A.I. Already Taking Jobs? +A Filmmaker Tries Sora + The XZ Backdoor Caper**\
 `“I’ve always said if you have a ChatGPT subscription and a hose, you can get very far in this life.”`\
 https://nytimes.com/2024/04/05/podcasts/hardfork-ai-jobs-sora-xz.html
-
-**Biden to Visit Site of Baltimore Bridge Collapse on Friday**\
-`The president plans to take an aerial tour, receive briefings on the response and meet with the families of victims. It is unclear if he will announce additional aid.`\
-https://nytimes.com/2024/04/05/us/politics/biden-baltimore-bridge-collapse.html
 
