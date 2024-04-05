@@ -1,3 +1,11 @@
+**Trump-Kennedy 2024? Trump, at Least, Is Intrigued by the Idea.**\
+`The former president has privately floated the idea of Robert F. Kennedy Jr. as a running mate. Those close to him do not see it as a serious possibility, however, and Mr. Kennedy said he would not consider it.`\
+https://nytimes.com/2024/04/05/us/politics/trump-rfk-running-mate.html
+
+**Across the Northeast, startled residents wondered what the shaking was.**\
+`By Stephanie Saul`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/across-the-northeast-startled-residents-wondered-what-the-shaking-was
+
 **Lynne Reid Banks, Author of ‘The Indian in the Cupboard,’ Dies at 94**\
 `She explored the struggles of young women in the novel “The L-Shaped Room” but found her biggest success with a children’s book about a magical cupboard.`\
 https://nytimes.com/2024/04/05/books/lynne-reid-banks-dead.html

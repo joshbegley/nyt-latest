@@ -1,3 +1,11 @@
+**Trump-Kennedy 2024? Trump, at Least, Is Intrigued by the Idea.**\
+`The former president has privately floated the idea of Robert F. Kennedy Jr. as a running mate. Those close to him do not see it as a serious possibility, however, and Mr. Kennedy said he would not consider it.`\
+https://nytimes.com/2024/04/05/us/politics/trump-rfk-running-mate.html
+
+**Across the Northeast, startled residents wondered what the shaking was.**\
+`By Stephanie Saul`\
+https://nytimes.com/live/2024/04/05/us/earthquake-new-york/across-the-northeast-startled-residents-wondered-what-the-shaking-was
+
 **Lynne Reid Banks, Author of ‘The Indian in the Cupboard,’ Dies at 94**\
 `She explored the struggles of young women in the novel “The L-Shaped Room” but found her biggest success with a children’s book about a magical cupboard.`\
 https://nytimes.com/2024/04/05/books/lynne-reid-banks-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/02/opinion/thepoint/politics-quiz-gail-collins
 **Was Today’s Earthquake Connected to the Solar Eclipse?**\
 `The tidal forces on Earth grow as the sun, moon and Earth begin to align, a configuration that can lead to a solar eclipse. But the results of several studies of the relationship between earthquakes and tides are inconclusive, a geophysicist said.`\
 https://nytimes.com/2024/04/05/science/total-solar-eclipse-earthquake.html
-
-**Transcript: Ezra Klein Interviews Nilay Patel**\
-`The April 5, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/04/05/podcasts/transcript-ezra-klein-interviews-nilay-patel.html
-
-**New Report Reveals N.Y.C. Areas Most Hurt by Environmental Inequities**\
-`The project uses census data and an interactive map to identify areas with high levels of pollution and other socioeconomic risks.`\
-https://nytimes.com/2024/04/05/nyregion/climate-change-pollution-nyc-report.html
 
