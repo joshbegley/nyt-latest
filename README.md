@@ -1,4 +1,4 @@
-**The Israeli spy chief and Egyptian and Qatari officials will participate in the talks, too.**\
+**The Israeli spy chief and Egyptian and Qatari officials is joining the C.I.A. director in the talks.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2024/04/04/world/israel-hamas-war-gaza-news/the-israeli-spy-chief-and-egyptian-and-qatari-officials-will-participate-in-the-talks-too
 
