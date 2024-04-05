@@ -1,3 +1,7 @@
+**Israeli military says a series of errors led to the fatal attack on an aid convoy.**\
+`By Aaron Boxerman and Adam Rasgon`\
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/israeli-military-says-a-series-of-errors-led-to-the-fatal-attack-on-an-aid-convoy
+
 **Investigators expect to issue a preliminary report on the bridge collapse this month.**\
 `By Michael Corkery`\
 https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/investigators-expect-to-issue-a-preliminary-report-on-the-bridge-collapse-this-month
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/well/eat/bird-flu-dairy-milk-eggs.html
 **Israel Says Military Fire Probably Killed a Hostage Grandmother on Oct. 7**\
 `An inquiry found that a combat helicopter had “fired at a vehicle that had terrorists in it” but also, “in retrospect,” hostages.`\
 https://nytimes.com/2024/04/05/world/middleeast/israel-oct-7-hostage-killed.html
-
-**Tell Us What Your Man Cave Means to You**\
-`NYT Opinion asks readers to share what makes their man cave retreats special to them.`\
-https://nytimes.com/2024/04/05/opinion/man-cave-benefits-purpose.html
 
