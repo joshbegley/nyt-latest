@@ -1,3 +1,7 @@
+**The Era of Klaus Mäkelä, Conducting Phenom, Begins in Chicago**\
+`On Thursday, the richly talented 28-year-old maestro led the Chicago Symphony Orchestra for the first time since being named its next music director.`\
+https://nytimes.com/2024/04/05/arts/music/klaus-makela-chicago-symphony-orchestra.html
+
 **Chappell Roan’s Eye-Roll Kiss-Off, and 11 More New Songs**\
 `Hear tracks by Prince, Young Miko, the Black Keys and others.`\
 https://nytimes.com/2024/04/05/arts/music/playlist-young-miko-prince-chappell-roan.html
