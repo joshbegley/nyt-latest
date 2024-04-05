@@ -1,3 +1,15 @@
+**Lynne Reid Banks, Author of ‘The Indian in the Cupboard,’ Dies at 94**\
+`She explored the struggles of young women in the novel “The L-Shaped Room” but found her biggest success with a children’s book about a magical cupboard.`\
+https://nytimes.com/2024/04/05/books/lynne-reid-banks-dead.html
+
+**Will There Be Another Earthquake? Here’s the Forecast for Aftershocks.**\
+`So far, seismologists have not identified any distinguishing characteristics of a given quake that would warn of an impending larger one.`\
+https://nytimes.com/2024/04/05/science/aftershocks-forecast.html
+
+**The economic impact of the bridge collapse stretches far beyond Baltimore.**\
+`By Campbell Robertson`\
+https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/the-economic-impact-of-the-bridge-collapse-stretches-far-beyond-baltimore
+
 **Barbie, the Book**\
 `A bookstore event for the newly published “Barbie: The World Tour” brought out the die-hards.`\
 https://nytimes.com/2024/04/05/style/barbie-book-rizzoli.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/05/podcasts/transcript-ezra-klein-interviews-nilay-p
 **New Report Reveals N.Y.C. Areas Most Hurt by Environmental Inequities**\
 `The project uses census data and an interactive map to identify areas with high levels of pollution and other socioeconomic risks.`\
 https://nytimes.com/2024/04/05/nyregion/climate-change-pollution-nyc-report.html
-
-**Some of Trump’s Biggest Political Backers Also Threw Trump Media a Lifeline**\
-`Two billionaires, a wealthy election denier and a mysterious Russia-linked trust invested in the Trump company long before it went public.`\
-https://nytimes.com/2024/04/05/business/trump-media-backers-investors.html
-
-**U.K. Lawmaker Admits Giving Out Colleagues’ Numbers in ‘Honey Trap’ Scandal**\
-`William Wragg said he had been scared that a man he met on the Grindr dating app had “compromising things” on him, and apologized for causing “hurt.”`\
-https://nytimes.com/2024/04/05/world/europe/uk-parliament-sexting-honeytrap-william-wragg.html
-
-**In the End, ‘The New Look’ Left Us Wanting More**\
-`More Dior. More Chanel. More fashion!`\
-https://nytimes.com/2024/04/05/style/the-new-look-dior-chanel.html
 
