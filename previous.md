@@ -2,12 +2,12 @@
 `The move highlighted deepening political rifts facing multinationals in the region and follows boycotts after the fast-food chain’s Israeli franchise owner donated thousands of meals to soldiers.`\
 https://nytimes.com/2024/04/05/world/middleeast/mcdonalds-israel.html
 
-**What to Know About Earthquakes**\
-`And what to do when you’ve felt one.`\
+**What to Do When You’ve Felt an Earthquake**\
+`And what else to know when the Earth moves.`\
 https://nytimes.com/article/what-to-know-about-earthquakes.html
 
 **4.8 Magnitude Earthquake Rattles New York City and Beyond**\
-`The United States Geological Survey reported the quake around 10:23 a.m.`\
+`The United States Geological Survey reported the quake around 10:23 a.m. There were no immediate reports of damage.`\
 https://nytimes.com/live/2024/04/05/us/earthquake-new-york/earthquake-new-york-boston-philadelphia
 
 **The Bumpy Gourd That’s Winning Over Bartenders**\
