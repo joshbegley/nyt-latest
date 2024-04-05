@@ -1,3 +1,7 @@
+**U.N. rights body weighs call to halt arms flows to Israel.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/un-rights-body-weighs-call-to-halt-arms-flows-to-israel
+
 **She Finally Reunited With Her Father. Then He Was Killed in the Subway.**\
 `Janna Volz’s father, Jason Volz, was largely absent from her life as he fought addiction. They were rebuilding their relationship when he was pushed to his death on the subway tracks.`\
 https://nytimes.com/2024/04/05/nyregion/subway-shoving-jason-volz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/learning/rats-on-a-dog.html
 **Word of the Day: archipelago**\
 `This word has appeared in 123 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/05/learning/word-of-the-day-archipelago.html
-
-**Stephen Colbert Says Trump’s ‘April Trials Bring Me Smiles’**\
-`“The Late Show” host changed up the adage about spring after Donald Trump had a bad day in court.`\
-https://nytimes.com/2024/04/05/arts/television/late-night-trump-trials.html
 
