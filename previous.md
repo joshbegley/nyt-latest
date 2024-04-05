@@ -1,40 +1,40 @@
-**A Willy Wonka Event Ended in Disaster. From Its Ashes Rose a Budding Star.**\
-`The internet latched on to 16-year-old Felicia Dawkins’ performance as  The Unknown at a shambolic Willy Wonka-inspired event. This weekend, she’s heading to a bigger and scarier stage in London.`\
-https://nytimes.com/2024/04/05/theater/glasgow-willy-wonka-experience-unknown-felicia.html
+**Is A.I. Already Taking Jobs? +A Filmmaker Tries Sora + The XZ Backdoor Caper**\
+`“I’ve always said if you have a ChatGPT subscription and a hose, you can get very far in this life.”`\
+https://nytimes.com/2024/04/05/podcasts/hardfork-ai-jobs-sora-xz.html
 
-**U.N. rights body weighs call to halt arms flows to Israel.**\
-`By Nick Cumming-Bruce`\
-https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/un-rights-body-weighs-call-to-halt-arms-flows-to-israel
+**Biden to Visit Site of Baltimore Bridge Collapse on Friday**\
+`The president plans to take an aerial tour, receive briefings on the response and meet with the families of victims. It is unclear if he will announce additional aid.`\
+https://nytimes.com/2024/04/05/us/politics/biden-baltimore-bridge-collapse.html
 
-**She Finally Reunited With Her Father. Then He Was Killed in the Subway.**\
-`Janna Volz’s father, Jason Volz, was largely absent from her life as he fought addiction. They were rebuilding their relationship when he was pushed to his death on the subway tracks.`\
-https://nytimes.com/2024/04/05/nyregion/subway-shoving-jason-volz.html
+**4 Mistakes Couples Make When Discussing Money**\
+`Therapists share the secrets to a drama-free money chat.`\
+https://nytimes.com/2024/04/05/well/family/money-relationships.html
 
-**The Connections Companion**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/05/crosswords/connections-companion.html
+**5 Things to Do This Weekend**\
+`Selections from the Weekend section, including a review of the sci-fi romance “The Beast.”`\
+https://nytimes.com/interactive/2024/04/05/arts/weekend-editors-picks-the-beast.html
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/05/crosswords/wordle-review.html
+**6 New Paperbacks to Read This Week**\
+`Recommended reading from the Book Review, including titles by Isabella Hammad, Charles Frazier, Emily Flitter and more.`\
+https://nytimes.com/interactive/2024/04/05/books/review/new-paperbacks-flitter.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/05/crosswords/spelling-bee-forum.html
+**‘Reglobalization’ to the Rescue?**\
+`The term, which emerged in response to calls for "deglobalization," has been popping up more in trade and policy circles.`\
+https://nytimes.com/interactive/2024/04/05/business/shoptalk-reglobalization.html
 
-**New York Has a Budget Trick to Try on the Federal Government**\
-`The state hopes to take advantage of Medicaid reimbursement rules to divert federal funds into state coffers.`\
-https://nytimes.com/2024/04/05/nyregion/medicaid-budget-taxes.html
+**Democrats Don’t Need to Calm Down**\
+`Panic is inevitable — and wholly warranted — when the stakes are this huge.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/democrat-president-biden-2024
 
-**05mideast-crisis**\
-`C.I.A. Director Is Heading to Cease-Fire Talks as Pressure Grows on Israel`\
-https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news
+**Three Democratic Senators Are Stuck Indulging an Outdated Fantasy**\
+`Why Is Adeel Mangi’s Confirmation Still in Jeopardy?`\
+https://nytimes.com/2024/04/05/opinion/adeel-mangi-confirmation-muslim-judge.html
 
-**What Children’s Book Worlds Do You Wish You Could Visit in Real Life?**\
-`A new museum of children’s literature brings “Caps for Sale,” “Blueberries for Sal,” “Goodnight Moon” and many more tales to life. What book worlds have most captivated you?`\
-https://nytimes.com/2024/04/05/learning/what-childrens-book-worlds-do-you-wish-you-could-visit-in-real-life.html
+**What Does Larry David Know About Manners?**\
+`Our critic on what ‘Curb Your Enthusiasm’ can teach us about etiquette.`\
+https://nytimes.com/2024/04/05/podcasts/culture-desk-curb-your-enthusiasm-etiquette.html
 
-**Rats on a Dog**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2024/04/05/learning/rats-on-a-dog.html
+**Woody Allen, Reputation Bruised, Finds Muted Reception to 50th Film**\
+`“Coup de Chance,” a milestone, is being released in the United States after opening in Europe months ago.`\
+https://nytimes.com/2024/04/05/movies/woody-allen-reputation-coup-de-chance.html
 
