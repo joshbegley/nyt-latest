@@ -34,7 +34,7 @@ https://nytimes.com/2024/04/04/world/middleeast/gaza-aid-erez-crossing.html
 `Anwar Ghilan worked as an English teacher before the Israeli siege on Gaza. After the war broke out, he lost his source of income and turned to selling clothes to keep his family fed amid high food prices.`\
 https://nytimes.com/video/world/middleeast/100000009389675/gaza-food-shortage-rafah.html
 
-**Why Is Technology Mean to Me?**\
-`I want my technology to have many capacities, but free will is not among them.`\
-https://nytimes.com/2024/04/04/opinion/technology-devices-phones.html
+**Why Some Billionaires Will Back Trump**\
+`It’s about taxes — and a false belief in their own impunity.`\
+https://nytimes.com/2024/04/04/opinion/trump-billionaires.html
 
