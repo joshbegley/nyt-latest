@@ -1,3 +1,7 @@
+**When Food, War and Politics Collide**\
+`It is usually an afterthought in politics, but the power of food was made clear this week.`\
+https://nytimes.com/2024/04/05/us/politics/israel-hamas-world-central-kitchen.html
+
 **‘Zone of Interest’ Oscars Speech Is Defended by Jewish Film Artists**\
 `Remarks about Israel that the director Jonathan Glazer made as he accepted an Oscar for “The Zone of Interest” drew a letter of support after facing criticism last month.`\
 https://nytimes.com/2024/04/05/movies/zone-of-interest-jonathan-glazer-israel.html

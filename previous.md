@@ -1,3 +1,7 @@
+**When Food, War and Politics Collide**\
+`It is usually an afterthought in politics, but the power of food was made clear this week.`\
+https://nytimes.com/2024/04/05/us/politics/israel-hamas-world-central-kitchen.html
+
 **‘Zone of Interest’ Oscars Speech Is Defended by Jewish Film Artists**\
 `Remarks about Israel that the director Jonathan Glazer made as he accepted an Oscar for “The Zone of Interest” drew a letter of support after facing criticism last month.`\
 https://nytimes.com/2024/04/05/movies/zone-of-interest-jonathan-glazer-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/arts/music/margaret-tynes-dead.html
 **An Earthquake Startled the Northeast**\
 `Also, Israel disciplined officers for aid worker killings. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/04/05/briefing/earthquake-northeast-biden-bridge-baltimore.html
-
-**R.F.K. Jr. Calls to Investigate Potential Wrongdoing Against Jan. 6 Rioters**\
-`Mr. Kennedy’s campaign again expressed sympathy for the “harsh treatment” of those who rioted at the Capitol on Jan. 6, 2021, after retracting a similar statement a day earlier.`\
-https://nytimes.com/2024/04/05/us/politics/rfk-jr-jan-6.html
 
