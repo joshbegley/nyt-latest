@@ -1,3 +1,7 @@
+**Stephen Colbert Says Trump’s ‘April Trials Bring Me Smiles’**\
+`“The Late Show” host changed up the adage about spring after Donald Trump had a bad day in court.`\
+https://nytimes.com/2024/04/05/arts/television/late-night-trump-trials.html
+
 **Baltimore Shipping Channel Will Partially Reopen by End of April, Officials Say**\
 `The Army Corps of Engineers plans to reopen the channel at full capacity by late May, as officials scramble to resume operations at one of the nation’s busiest ports.`\
 https://nytimes.com/2024/04/05/us/baltimore-shipping-channel-reopen.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/style/tanya-sareen-joel-adolphson-wedding.html
 **Her First and Last Dating App Date**\
 `Krystle-Jayne Ng said she was a “serial dater.” Hanna Rinderknecht-Mahaffy was new to online dating. They hit it off instantly.`\
 https://nytimes.com/2024/04/05/style/krystle-jayne-ng-hanna-rinderknecht-mahaffy-wedding.html
-
-**Knowing She was the One, with Surgical Precision**\
-`Anika Bieg was ready to swear off dating. Then she met Dr. Olivia Sacks — and after 10 minutes, kissed her.`\
-https://nytimes.com/2024/04/05/style/anika-bieg-olivia-sacks-wedding.html
 
