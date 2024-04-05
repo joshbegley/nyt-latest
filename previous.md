@@ -1,6 +1,6 @@
 **The White House says Netanyahu agreed to open another border crossing for aid after pressure from Biden.**\
-`By Cassandra Vinograd and Erica L. Green`\
-https://nytimes.com/2024/04/04/world/middleeast/gaza-aid-.html
+`Israel has come under rising pressure from U.S. officials and humanitarian agencies to allow more aid into Gaza, where conditions are especially dire.`\
+https://nytimes.com/2024/04/04/world/middleeast/gaza-aid-erez-crossing.html
 
 **Inside a Father’s Struggle to Feed His Family in Gaza**\
 `Anwar Ghilan worked as an English teacher before the Israeli siege on Gaza. After the war broke out, he lost his source of income and turned to selling clothes to keep his family fed amid high food prices.`\
