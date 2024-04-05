@@ -1,3 +1,7 @@
+**The Bumpy Gourd That’s Winning Over Bartenders**\
+`In bars from Hong Kong to Vancouver, the medicinal tang of bitter melon is making its way onto drinks menus.`\
+https://nytimes.com/2024/04/05/t-magazine/bitter-melon-cocktails.html
+
 **Melania Trump Plans to Appear at a Mar-a-Lago Fund-Raiser This Month**\
 `The former first lady is set to attend an event for the Log Cabin Republicans, marking a return of sorts to the political arena.`\
 https://nytimes.com/2024/04/05/us/politics/melania-trump-log-cabin-republicans-fundraiser.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/us/sacramento-oakland-athletics-baseball.html
 **New York to Pay $17.5 Million for Forcing Removal of Hijabs in Mug Shots**\
 `New York City reached a settlement in a lawsuit brought by two women who were arrested and made to remove their head coverings by the police before being photographed.`\
 https://nytimes.com/2024/04/05/nyregion/hijab-muslim-nypd-mugshot-settlement.html
-
-**The Fed has recently welcomed strong jobs gains as labor supply picks up.**\
-`Immigration and increased labor force participation have helped employers to add workers even as wage growth moderates.`\
-https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/the-fed-has-recently-welcomed-strong-jobs-gains-as-labor-supply-picks-up
 
