@@ -1,4 +1,8 @@
-**Earthquake Rattles New York and New Jersey, but Does Little Damage**\
+**Biden urges Egypt and Qatar to turn up the pressure on Hamas to make a deal on hostages and a cease-fire.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/biden-urges-egypt-and-qatar-to-turn-up-the-pressure-on-hamas-to-make-a-deal-on-hostages-and-a-cease-fire
+
+**An earthquake rattles New York and New Jersey, but does little damage.**\
 `A magnitude-4.8 earthquake struck the Northeast on Friday, rippling from Philadelphia to Boston.`\
 https://nytimes.com/live/2024/04/05/us/earthquake-new-york/earthquake-nyc-nj-northeast
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/05/us/biden-baltimore-bridge/in-a-working-class
 **Rwanda Is a Reminder That We Need International Justice More Than Ever**\
 `States are blatantly disregarding international law, but the world still demands justice.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/rwanda-genocide-anniversary
-
-**Three Questions for the Queen of Quizzes**\
-`Donald Trump may be a terrible presidential candidate but he’s God’s gift to quiz writing.`\
-https://nytimes.com/live/2024/04/02/opinion/thepoint/politics-quiz-gail-collins
 
