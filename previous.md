@@ -1,3 +1,7 @@
+**The White House says Netanyahu agreed to open another border crossing for aid after pressure from Biden.**\
+`By Cassandra Vinograd and Erica L. Green`\
+https://nytimes.com/2024/04/04/world/middleeast/gaza-aid-.html
+
 **Inside a Father’s Struggle to Feed His Family in Gaza**\
 `Anwar Ghilan worked as an English teacher before the Israeli siege on Gaza. After the war broke out, he lost his source of income and turned to selling clothes to keep his family fed amid high food prices.`\
 https://nytimes.com/video/world/middleeast/100000009389675/gaza-food-shortage-rafah.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/us/politics/rfk-jr-january-6-rioters-trump.html
 **Biden Threatens to Condition Israel Aid**\
 `Also, ocean temperatures signal a daunting hurricane season. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/04/04/briefing/biden-israel-call-darien-gap-violence.html
-
-**Music Teacher Is Charged With Taking Teenagers on Trips to Abuse Them**\
-`Paul Geer taught for decades at the Family Foundation School, a rural reform academy where he abused students, an indictment states.`\
-https://nytimes.com/2024/04/04/nyregion/family-school-paul-geer-rape.html
 

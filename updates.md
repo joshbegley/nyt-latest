@@ -1,3 +1,7 @@
+**The White House says Netanyahu agreed to open another border crossing for aid after pressure from Biden.**\
+`By Cassandra Vinograd and Erica L. Green`\
+https://nytimes.com/2024/04/04/world/middleeast/gaza-aid-.html
+
 **Inside a Father’s Struggle to Feed His Family in Gaza**\
 `Anwar Ghilan worked as an English teacher before the Israeli siege on Gaza. After the war broke out, he lost his source of income and turned to selling clothes to keep his family fed amid high food prices.`\
 https://nytimes.com/video/world/middleeast/100000009389675/gaza-food-shortage-rafah.html
