@@ -1,3 +1,7 @@
+**Beyond jobs, economic data continues to look rosy.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/beyond-jobs-economic-data-continues-to-look-rosy
+
 **After 6 months of war, some Israelis wonder if Netanyahu is dragging it out.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/after-6-months-of-war-some-israelis-wonder-if-netanyahu-is-dragging-it-out
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/briefing/the-rise-of-sports-betting.html
 **String of Errors Led to Fatal Attack on Aid Convoy, Israeli Military Says**\
 `“It’s a serious event that we’re responsible for, and it shouldn’t have happened,” Rear Adm. Daniel Hagari said of the strike that killed seven World Central Kitchen workers.`\
 https://nytimes.com/2024/04/05/world/middleeast/israel-military-world-central-kitchen-strike.html
-
-**Immigration is helping to meet hiring demand, and may explain data mysteries.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/04/05/business/jobs-report-march-economy/immigration-is-helping-to-meet-hiring-demand-and-may-explain-data-mysteries
 
