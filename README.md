@@ -1,3 +1,7 @@
+**Author Who Defected From North Korea Wins Defamation Lawsuit**\
+`Jang Jin-sung​, known for his memoir “Dear Leader,” was accused of rape by a fellow North Korean defector. He sued her and a South Korean broadcaster and won.`\
+https://nytimes.com/2024/04/05/world/asia/north-korea-jang-jin-sung-defamation.html
+
 **Harlem Was No Longer the Same After This Dinner Party**\
 `Harlem was synonymous with the arts. But what I didn’t know was how that had come to be.`\
 https://nytimes.com/2024/04/05/us/harlem-renaissance-anniversary.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/05/world/israel-hamas-war-gaza-news/tensions-ru
 **400,000 in New England Still Without Power After Spring Snowstorm**\
 `A nor’easter that dumped more than a foot of snow across the region, causing blackouts and flight cancellations, is expected to weaken on Friday, the National Weather Service said.`\
 https://nytimes.com/2024/04/05/us/power-outages-snow-maine-new-hampshire.html
-
-**The Rise of Sports Betting**\
-`Six years ago, sports betting was illegal under federal law. Today, it is everywhere.`\
-https://nytimes.com/2024/04/05/briefing/the-rise-of-sports-betting.html
 
