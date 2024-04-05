@@ -2,7 +2,7 @@
 `By David Wallace-Wells`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/earthquake-measurement-scale
 
-**Justice Department Says It Will Reopen Inquiry into Realtor Trade Group**\
+**Justice Department Says It Will Reopen Inquiry Into Realtor Trade Group**\
 `On Friday, the U.S. Court of Appeals for the District of Columbia made a ruling that opens the door for a renewed investigation into the National Association of Realtors.`\
 https://nytimes.com/2024/04/05/realestate/doj-realtors-nar-inquiry.html
 
