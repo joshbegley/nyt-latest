@@ -1,3 +1,7 @@
+**Netanyahu Faces Pressure at Home and Abroad, From Foes and Friends**\
+`Prime Minister Benjamin Netanyahu has the challenge of trying to defeat Hamas while preserving both his government and Israel’s international alliances.`\
+https://nytimes.com/2024/04/04/world/middleeast/netanyahu-israel-gaza.html
+
 **Variety: Acrostic**\
 `David Balton and Jane Stewart’s puzzle nods to a major upcoming event.`\
 https://nytimes.com/2024/04/04/crosswords/variety-acrostic.html

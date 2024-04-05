@@ -1,3 +1,7 @@
+**Netanyahu Faces Pressure at Home and Abroad, From Foes and Friends**\
+`Prime Minister Benjamin Netanyahu has the challenge of trying to defeat Hamas while preserving both his government and Israel’s international alliances.`\
+https://nytimes.com/2024/04/04/world/middleeast/netanyahu-israel-gaza.html
+
 **Variety: Acrostic**\
 `David Balton and Jane Stewart’s puzzle nods to a major upcoming event.`\
 https://nytimes.com/2024/04/04/crosswords/variety-acrostic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/04/opinion/technology-devices-phones.html
 **Why Some Billionaires Will Back Trump**\
 `It’s about taxes — and a false belief in their own impunity.`\
 https://nytimes.com/2024/04/04/opinion/trump-billionaires.html
-
-**It’s Not Surprising That No Labels Could Never Find a Candidate**\
-`Some politicians may have believed the group could do too well at the polls at a chaotic time.`\
-https://nytimes.com/live/2024/04/02/opinion/thepoint/nolabels-candidate
 
