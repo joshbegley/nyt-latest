@@ -1,3 +1,7 @@
+**The Economic Paradox of the Biden Presidency**\
+`Employers have been adding jobs since Joe Biden took office, but will the good news translate into votes?`\
+https://nytimes.com/2024/04/06/business/dealbook/-jobs-report-biden-economy.html
+
 **Biden Reports Major Cash Haul in March as Trump Looks to Catch Up**\
 `The president and Democrats brought in more than $90 million in March and have more than double what Donald J. Trump and Republicans have on hand.`\
 https://nytimes.com/2024/04/06/us/politics/biden-march-fund-raising.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/06/opinion/rfk-jr-trump-biden.html
 **How a Vacant Lot Became Our Own Dirtbag Narnia**\
 `In the Kensington neighborhood of Philadelphia, a group of neighbors made a makeshift community oasis.`\
 https://nytimes.com/2024/04/06/opinion/kensington-philadelphia-neighborhood-community.html
-
-**Joe Lieberman and David Mixner, Exemplary Outsiders**\
-`Their experience of being outsiders deeply affected their political worldviews and caused them to embrace the struggles of other excluded Americans as their own.`\
-https://nytimes.com/2024/04/06/opinion/joe-lieberman-david-mixner.html
 
