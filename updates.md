@@ -1,3 +1,7 @@
+**Robert F. Kennedy Jr. backtracks again on Jan. 6 claims.**\
+`On Friday, the independent presidential candidate retracted his statement that “the protesters had no weapons” when they stormed the Capitol.`\
+https://nytimes.com/live/2024/04/06/us/biden-trump-election/robert-f-kennedy-jr-backtracks-again-on-jan-6-claims
+
 **Kate Coleman, Who Documented the Bay Area Counterculture, Dies at 81**\
 `She wrote about politics and the patriarchy as a left-wing writer, then alienated her compatriots with exposés critical of the Black Panthers and the environmental movement.`\
 https://nytimes.com/2024/04/06/business/media/kate-coleman-dead.html
