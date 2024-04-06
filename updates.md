@@ -1,3 +1,43 @@
+**Gaza War Turns Spotlight on Long Pipeline of U.S. Weapons to Israel**\
+`President Biden sends arms to Israel under an Obama-era $38 billion aid agreement that runs until 2026. Israel’s purchases include the types of bombs dropped in Gaza.`\
+https://nytimes.com/2024/04/06/us/politics/israel-us-weapons.html
+
+**Biden Waves His First-Term Résumé at a Skeptical America**\
+`With increasing urgency, the president is trying to impress upon voters that he has accomplished quite a bit — even if they don’t see it in their lives yet.`\
+https://nytimes.com/2024/04/06/us/politics/biden-2024-campaign.html
+
+**Your Solar Eclipse Soundtrack**\
+`Songs to put you in the mood.`\
+https://nytimes.com/2024/04/06/podcasts/your-solar-eclipse-soundtrack.html
+
+**4 Expert Tips for Flaky Fish Every Time**\
+`In the fourth installment of her YouTube series, the cookbook author and chef Sohla El-Waylly will help you make the most flawless fish.`\
+https://nytimes.com/2024/04/06/dining/how-to-cook-fish.html
+
+**How ‘All in the Family’ Explains Biden’s Strength Among Seniors**\
+`Yesterday’s hippies have become today’s seniors — and they’re still voting Democratic.`\
+https://nytimes.com/interactive/2024/04/06/upshot/older-voters.html
+
+**Leonardo DiCaprio, Tracee Ellis Ross and Gayle King Hit New York Art Parties**\
+`This week, the New Museum gala drew a crowd to Lower Manhattan and the MoMA Black Arts Council mingled in Midtown, as the Spring benefit season kicked into gear.`\
+https://nytimes.com/2024/04/06/style/nyc-new-museum-art-gala.html
+
+**Larry David Has Always Been the ‘Seinfeld’ Finale’s Biggest Defender**\
+`As “Curb Your Enthusiasm” draws to a close, the “Seinfeld” co-creator gets another shot at ending a TV show.`\
+https://nytimes.com/2024/04/06/arts/television/curb-your-enthusiasm-seinfeld-finale.html
+
+**Why Are People Obsessed With TV Finales ‘Sticking the Landing’?**\
+`As “Curb Your Enthusiasm” gets ready to exit, it’s time to let go of the idea that a story’s ending determines its final score.`\
+https://nytimes.com/2024/04/06/arts/television/curb-your-enthusiasm-finale.html
+
+**Power by Proxy: How Iran Shapes the Mideast**\
+`A guide to the armed groups that let Iran extend its influence throughout the region.`\
+https://nytimes.com/interactive/2024/04/06/world/middleeast/iran-hamas-hezbollah-houthis-iraq.html
+
+**I Hired an Agent to Sell My Home. Do I Have to Pay the Buyer’s Broker Now?**\
+`The legal settlements roiling the real estate industry are changing the way commissions get paid. But the change could come slowly.`\
+https://nytimes.com/2024/04/06/realestate/i-hired-an-agent-to-sell-my-home-do-i-have-to-pay-the-buyers-broker-now.html
+
 **A Fictional Haven So Idyllic You Don’t Even Need Money. What Could Go Wrong?**\
 `In “A Better World,” a family hoping to escape their dangerous reality gets invited to an exclusive town only to discover that it’s not as peaceful as it seems.`\
 https://nytimes.com/2024/04/06/books/review/a-better-world-sarah-langan.html

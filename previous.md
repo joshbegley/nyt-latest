@@ -1,40 +1,40 @@
-**A Fictional Haven So Idyllic You Don’t Even Need Money. What Could Go Wrong?**\
-`In “A Better World,” a family hoping to escape their dangerous reality gets invited to an exclusive town only to discover that it’s not as peaceful as it seems.`\
-https://nytimes.com/2024/04/06/books/review/a-better-world-sarah-langan.html
+**Gaza War Turns Spotlight on Long Pipeline of U.S. Weapons to Israel**\
+`President Biden sends arms to Israel under an Obama-era $38 billion aid agreement that runs until 2026. Israel’s purchases include the types of bombs dropped in Gaza.`\
+https://nytimes.com/2024/04/06/us/politics/israel-us-weapons.html
 
-**Sickened by U.S. Nuclear Program, Communities Turn to Congress for Aid**\
-`In St. Louis and around the country, people harmed by the drive for an atomic bomb have been shut out of a federal law enacted to help such victims.`\
-https://nytimes.com/2024/04/06/us/politics/nuclear-waste-cancer-st-louis-congress.html
+**Biden Waves His First-Term Résumé at a Skeptical America**\
+`With increasing urgency, the president is trying to impress upon voters that he has accomplished quite a bit — even if they don’t see it in their lives yet.`\
+https://nytimes.com/2024/04/06/us/politics/biden-2024-campaign.html
 
-**The Eclipse That Ended a War and Shook the Gods Forever**\
-`Thales, a Greek philosopher 2,600 years ago, is celebrated for predicting a famous solar eclipse and founding what came to be known as science.`\
-https://nytimes.com/2024/04/06/science/eclipse-prediction-ancient-greece-thales.html
+**Your Solar Eclipse Soundtrack**\
+`Songs to put you in the mood.`\
+https://nytimes.com/2024/04/06/podcasts/your-solar-eclipse-soundtrack.html
 
-**Teen Drug Use Habits Are Changing, For The Good. With Caveats.**\
-`Dr. Nora Volkow, who leads the National Institutes of Drug Abuse, would like the public to know things are getting better. Mostly.`\
-https://nytimes.com/2024/04/06/health/teens-drugs-alcohol-nicotine.html
+**4 Expert Tips for Flaky Fish Every Time**\
+`In the fourth installment of her YouTube series, the cookbook author and chef Sohla El-Waylly will help you make the most flawless fish.`\
+https://nytimes.com/2024/04/06/dining/how-to-cook-fish.html
 
-**My Grandfather-in-Law, My Roommate**\
-`Life lessons from a 97-year-old lawyer of the old school.`\
-https://nytimes.com/2024/04/06/style/my-grandfather-my-roommate.html
+**How ‘All in the Family’ Explains Biden’s Strength Among Seniors**\
+`Yesterday’s hippies have become today’s seniors — and they’re still voting Democratic.`\
+https://nytimes.com/interactive/2024/04/06/upshot/older-voters.html
 
-**They Built Three Homes Together. Now She Must Do It Alone.**\
-`A husband’s sudden death gave a widow time to reflect on the designs of their second homes and how to make one on her own.`\
-https://nytimes.com/2024/04/06/realestate/sarah-mai-miller-widow-chalk-242.html
+**Leonardo DiCaprio, Tracee Ellis Ross and Gayle King Hit New York Art Parties**\
+`This week, the New Museum gala drew a crowd to Lower Manhattan and the MoMA Black Arts Council mingled in Midtown, as the Spring benefit season kicked into gear.`\
+https://nytimes.com/2024/04/06/style/nyc-new-museum-art-gala.html
 
-**A Mother’s Devastating Memoir of Losing Her Adult Son**\
-`In “Fi,” Alexandra Fuller describes the sudden death of her 21-year-old.`\
-https://nytimes.com/2024/04/06/books/review/fi-alexandra-fuller.html
+**Larry David Has Always Been the ‘Seinfeld’ Finale’s Biggest Defender**\
+`As “Curb Your Enthusiasm” draws to a close, the “Seinfeld” co-creator gets another shot at ending a TV show.`\
+https://nytimes.com/2024/04/06/arts/television/curb-your-enthusiasm-seinfeld-finale.html
 
-**How Tech Giants Cut Corners to Harvest Data for A.I.**\
-`OpenAI, Google and Meta ignored corporate policies, altered their own rules and discussed skirting copyright law as they sought online information to train their newest artificial intelligence systems.`\
-https://nytimes.com/2024/04/06/technology/tech-giants-harvest-data-artificial-intelligence.html
+**Why Are People Obsessed With TV Finales ‘Sticking the Landing’?**\
+`As “Curb Your Enthusiasm” gets ready to exit, it’s time to let go of the idea that a story’s ending determines its final score.`\
+https://nytimes.com/2024/04/06/arts/television/curb-your-enthusiasm-finale.html
 
-**U.S. Warns China About Its Exports and Support for Russia**\
-`Beijing’s economic policies threaten American workers, Treasury Secretary Janet L. Yellen told Vice Premier He Lifeng in the southern city of Guangzhou.`\
-https://nytimes.com/2024/04/06/business/economy/us-china-yellen.html
+**Power by Proxy: How Iran Shapes the Mideast**\
+`A guide to the armed groups that let Iran extend its influence throughout the region.`\
+https://nytimes.com/interactive/2024/04/06/world/middleeast/iran-hamas-hezbollah-houthis-iraq.html
 
-**06mideast-crisis**\
-`Amid Fears of Expanded War, U.S. Renews Push for Hostage and Cease-Fire Deal`\
-https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news
+**I Hired an Agent to Sell My Home. Do I Have to Pay the Buyer’s Broker Now?**\
+`The legal settlements roiling the real estate industry are changing the way commissions get paid. But the change could come slowly.`\
+https://nytimes.com/2024/04/06/realestate/i-hired-an-agent-to-sell-my-home-do-i-have-to-pay-the-buyers-broker-now.html
 
