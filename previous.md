@@ -1,3 +1,7 @@
+**Power Shut Off to 55,000 in Colorado to Prevent Wind-Fueled Wildfires**\
+`Xcel Energy said the outage would affect parts of six counties and last until at least noon on Sunday. Winds could reach 100 miles per hour.`\
+https://nytimes.com/2024/04/06/us/colorado-power-shutoffs-xcel-wind.html
+
 **Republican in charge of Ohio elections warns Biden could miss ballot deadline.**\
 `The secretary of state’s office, led by Frank LaRose, a Republican, said Democrats must nominate President Biden by Aug. 7. The party’s convention does not start until Aug. 19.`\
 https://nytimes.com/live/2024/04/06/us/biden-trump-election/biden-ohio-ballot-dnc
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/06/business/media/kate-coleman-dead.html
 **Daniel P. Jordan, Monticello Leader in Changing Times, Dies at 85**\
 `He expanded the educational mission of Thomas Jefferson’s plantation. He also embraced research that showed Jefferson had fathered the children of one of his slaves.`\
 https://nytimes.com/2024/04/06/us/daniel-p-jordan-dead.html
-
-**Battle for the House: These Are the Races to Watch**\
-`Democrats are targeting incumbent Republicans in a number of districts President Biden won in 2020 — but the general rule is, as goes the presidential race, so go House races.`\
-https://nytimes.com/article/house-races-congress-control.html
 
