@@ -1,3 +1,15 @@
+**From the Horror to the Envy of Africa: Rwanda’s Ruler Holds Tight Grip**\
+`Thirty years after a devastating genocide, Rwanda has made impressive gains. But ethnic divisions persist under an iron-fisted president who has ruled for just as long.`\
+https://nytimes.com/2024/04/06/world/africa/rwanda-genocide-anniversary.html
+
+**Why Time Is Running Out Across the Maldives’ Lovely Little Islands**\
+`Global tourism brought a modern economy to the country’s thousand islands. For many Maldivians, the teeming capital beckons.`\
+https://nytimes.com/2024/04/06/world/asia/maldives-urbanization-male.html
+
+**Challenged by Uprising, Myanmar Junta Cracks Down Harder**\
+`The country’s military rulers have signaled a new wave of detentions and, rights groups say, conditions for existing prisoners have deteriorated.`\
+https://nytimes.com/2024/04/06/world/asia/myanmar-junta-prisoners-death.html
+
 **Corrections: April 6, 2024**\
 `Corrections that appeared in print on Saturday, April 6, 2024.`\
 https://nytimes.com/2024/04/06/pageoneplus/corrections-april-6-2024.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/05/us/politics/israel-hamas-world-central-kitchen.ht
 **‘Zone of Interest’ Oscars Speech Is Defended by Jewish Film Artists**\
 `Remarks about Israel that the director Jonathan Glazer made as he accepted an Oscar for “The Zone of Interest” drew a letter of support after facing criticism last month.`\
 https://nytimes.com/2024/04/05/movies/jonathan-glazer-speech-letter.html
-
-**Joan Collins Refuses to Be Defined by Age**\
-`At 90, the actress and writer has published a memoir and is preparing for a theatrical tour.`\
-https://nytimes.com/2024/04/05/style/joan-collins-age.html
-
-**Giorgio Armani Doesn’t Think Much About Age**\
-`At 89, the fashion designer and chief executive of Armani Group is having a renaissance.`\
-https://nytimes.com/2024/04/05/style/giorgio-armani-aging-fashion.html
-
-**Betye Saar Is Making Some of the Best Work of Her Life.**\
-`At 97, the artist still greets every day eager to create.`\
-https://nytimes.com/2024/04/05/style/betye-saar-art-aging.html
 

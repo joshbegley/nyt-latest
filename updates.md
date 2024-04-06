@@ -1,3 +1,11 @@
+**Corrections: April 6, 2024**\
+`Corrections that appeared in print on Saturday, April 6, 2024.`\
+https://nytimes.com/2024/04/06/pageoneplus/corrections-april-6-2024.html
+
+**Quotation of the Day: Graffiti Goes From Eyesore to Asset**\
+`Quotation of the Day for Saturday, April 6, 2024.`\
+https://nytimes.com/2024/04/06/pageoneplus/quotation-of-the-day-graffiti-goes-from-eyesore-to-asset.html
+
 **Book It!**\
 `Find a comfortable spot to hunker down while we wrangle with Byron Walden’s tough themeless puzzle.`\
 https://nytimes.com/2024/04/05/crosswords/daily-puzzle-2024-04-06.html
