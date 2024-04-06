@@ -1,3 +1,7 @@
+**Prestigious Medical Journal Ignored Nazi Atrocities, Historians Find**\
+`The New England Journal of Medicine published an article condemning its own record during World War II.`\
+https://nytimes.com/2024/04/06/science/nazi-science-new-england-journal-medicine.html
+
 **Israel says it recovered the body of a hostage who was taken from a kibbutz on Oct. 7.**\
 `Elad Katzir lived in a kibbutz near the border with the Gaza Strip. His sister said Israel’s government should have done more to get him back alive.`\
 https://nytimes.com/2024/04/06/world/middleeast/israel-hostage-elad-katzir.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/06/opinion/leftists-happy-coates-haidt.html
 **Help Ukraine Hold the Line**\
 `House Speaker Mike Johnson should allow an aid package for Ukraine to come to a vote.`\
 https://nytimes.com/2024/04/06/opinion/ukraine-aid-congress.html
-
-**The High-I.Q. Nonsense of Robert F. Kennedy Jr.**\
-`His inflated sense of his fitness to lead isn’t just delusional. It’s dangerous.`\
-https://nytimes.com/2024/04/06/opinion/rfk-jr-trump-biden.html
 

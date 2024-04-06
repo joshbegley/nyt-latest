@@ -1,3 +1,7 @@
+**Prestigious Medical Journal Ignored Nazi Atrocities, Historians Find**\
+`The New England Journal of Medicine published an article condemning its own record during World War II.`\
+https://nytimes.com/2024/04/06/science/nazi-science-new-england-journal-medicine.html
+
 **Israel says it recovered the body of a hostage who was taken from a kibbutz on Oct. 7.**\
 `Elad Katzir lived in a kibbutz near the border with the Gaza Strip. His sister said Israel’s government should have done more to get him back alive.`\
 https://nytimes.com/2024/04/06/world/middleeast/israel-hostage-elad-katzir.html
