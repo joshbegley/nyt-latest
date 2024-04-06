@@ -1,3 +1,7 @@
+**Double Duty**\
+`Does Tracy Gray have to repeat herself? Yes, yes she does, in this puzzle.`\
+https://nytimes.com/2024/04/06/crosswords/daily-puzzle-2024-04-07.html
+
 **Power Shut Off to 55,000 in Colorado to Prevent Wind-Fueled Wildfires**\
 `Xcel Energy said the outage would affect parts of six counties and last until at least noon on Sunday. Winds could reach 100 miles per hour.`\
 https://nytimes.com/2024/04/06/us/colorado-power-shutoffs-xcel-wind.html
