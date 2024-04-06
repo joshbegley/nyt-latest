@@ -1,3 +1,11 @@
+**Night deliveries of aid in Gaza pose unusual challenges.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/night-deliveries-of-aid-in-gaza-pose-unusual-challenges
+
+**Mary Ann Zielonko, Partner of Kitty Genovese, Dies at 85**\
+`The murder of Ms. Genovese, and her neighbors’ reaction to it, generated headlines. The nature of her relationship with Ms. Zielonko was a different story.`\
+https://nytimes.com/2024/04/06/nyregion/mary-ann-zielonko-dead.html
+
 **Is New York City Overdue for a Major Earthquake?**\
 `Seismologists said that severe earthquakes are relatively rare around the city and cannot be predicted. But if one were to hit, it could inflict serious damage.`\
 https://nytimes.com/2024/04/06/nyregion/earthquake-nyc-overdue.html
