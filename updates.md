@@ -1,3 +1,7 @@
+**Pro-Russia Candidate Wins Slovakia’s Presidential Election**\
+`The victory for Peter Pellegrini, an ally of Slovakia’s populist prime minister, strengthens Central Europe’s ties to Moscow.`\
+https://nytimes.com/2024/04/06/world/europe/slovakia-election-president.html
+
 **Another Israeli Hostage’s Body Recovered, the Death Angering His Family**\
 `Like the families of other hostages, they are outraged that the Israeli government has yet to reach a deal to halt the fighting and bring home loved ones held in Gaza.`\
 https://nytimes.com/2024/04/06/world/europe/hostages-israel-gaza-protests.html

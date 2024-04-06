@@ -1,3 +1,7 @@
+**Pro-Russia Candidate Wins Slovakia’s Presidential Election**\
+`The victory for Peter Pellegrini, an ally of Slovakia’s populist prime minister, strengthens Central Europe’s ties to Moscow.`\
+https://nytimes.com/2024/04/06/world/europe/slovakia-election-president.html
+
 **Another Israeli Hostage’s Body Recovered, the Death Angering His Family**\
 `Like the families of other hostages, they are outraged that the Israeli government has yet to reach a deal to halt the fighting and bring home loved ones held in Gaza.`\
 https://nytimes.com/2024/04/06/world/europe/hostages-israel-gaza-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/06/nyregion/mary-ann-zielonko-dead.html
 **Is New York City Overdue for a Major Earthquake?**\
 `Seismologists said that severe earthquakes are relatively rare around the city and cannot be predicted. But if one were to hit, it could inflict serious damage.`\
 https://nytimes.com/2024/04/06/nyregion/earthquake-nyc-overdue.html
-
-**Who Is Jorge Glas, an Ecuadorean Politician Arrested at Mexico’s Embassy?**\
-`A former vice president of Ecuador, Jorge Glas had been convicted of bribery in two separate cases. He had fled to the Mexican Embassy in Quito after facing more embezzlement charges.`\
-https://nytimes.com/2024/04/06/world/americas/jorge-glas-ecuador-mexico.html
 
