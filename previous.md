@@ -1,3 +1,7 @@
+**06mideast-crisis**\
+`Amid Fears of Expanded War, U.S. Renews Push for Hostage and Cease-Fire Deal`\
+https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news
+
 **New York City Set to Pay a Record $28 Million to Settle Rikers Island Suit**\
 `Eight correction officers and a captain stood by for seven minutes and 51 seconds as Nicholas Feliciano tried to hang himself in a jail cell in 2019.`\
 https://nytimes.com/2024/04/06/nyregion/nyc-rikers-negligence-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009369547/nicholas-feliciano-rikers-island-in
 **Mexico Breaks Diplomatic Ties With Ecuador After Arrest at Embassy**\
 `Jorge Glas, the former vice president, had taken refuge at the Mexican Embassy in Ecuador’s capital. Mexico’s president called his arrest a violation of international law.`\
 https://nytimes.com/2024/04/06/world/americas/ecuador-mexico-arrest-embassy.html
-
-**Why Time Is Running Out Across the Maldives’ Lovely Little Islands**\
-`Global tourism brought a modern economy to the country’s thousand islands. For many Maldivians, the teeming capital beckons.`\
-https://nytimes.com/2024/04/06/world/asia/maldives-urbanization-male.html
 
