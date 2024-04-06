@@ -1,3 +1,7 @@
+**Trump will hold court at a high-dollar fund-raiser tonight.**\
+`By Chris Cameron`\
+https://nytimes.com/2024/04/06/us/politics/trump-biden-fundraising.html
+
 **Prestigious Medical Journal Ignored Nazi Atrocities, Historians Find**\
 `The New England Journal of Medicine published an article condemning its own record during World War II.`\
 https://nytimes.com/2024/04/06/science/nazi-science-new-england-journal-medicine.html
