@@ -1,3 +1,7 @@
+**2 Novels About Uncomfortably Close Families**\
+`People cross boundaries in Alan Hollinghurst’s “The Spell” and Penelope Lively’s “The Photograph.”`\
+https://nytimes.com/2024/04/06/books/review/read-like-wind-recommendations.html
+
 **Russia Pounds Kharkiv in Deadly Barrage, Straining Ukraine’s Defenses**\
 `The latest assault on the eastern city killed at least six people, local authorities said. As Kyiv waits on American aid, Moscow has stepped up bombardments, including using modified “glide bombs.”`\
 https://nytimes.com/2024/04/06/world/europe/russia-ukraine-kharkiv-glide-bombs.html
