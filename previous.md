@@ -1,3 +1,7 @@
+**Biden Reports Major Cash Haul in March as Trump Looks to Catch Up**\
+`The president and Democrats brought in more than $90 million in March and have more than double what Donald J. Trump and Republicans have on hand.`\
+https://nytimes.com/2024/04/06/us/politics/biden-march-fund-raising.html
+
 **2 Novels About Uncomfortably Close Families**\
 `People cross boundaries in Alan Hollinghurst’s “The Spell” and Penelope Lively’s “The Photograph.”`\
 https://nytimes.com/2024/04/06/books/review/read-like-wind-recommendations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/06/opinion/kensington-philadelphia-neighborhood-comm
 **Joe Lieberman and David Mixner, Exemplary Outsiders**\
 `Their experience of being outsiders deeply affected their political worldviews and caused them to embrace the struggles of other excluded Americans as their own.`\
 https://nytimes.com/2024/04/06/opinion/joe-lieberman-david-mixner.html
-
-**You Don’t Just See a Total Solar Eclipse. You Feel It Completely.**\
-`An eclipse chaser makes the case for seeing the event in its totality.`\
-https://nytimes.com/2024/04/06/opinion/total-solar-eclipse-chaser.html
 
