@@ -1,3 +1,7 @@
+**Make Room Tennis, Pickleball and Squash. Here Comes Padel.**\
+`The sport is played with a racket on a court with a net, but watch out for those bouncing shots from the back wall. Reporters take a look at the padel scene in New York City.`\
+https://nytimes.com/2024/04/06/sports/padel-tennis-nyc.html
+
 **Gaza War Turns Spotlight on Long Pipeline of U.S. Weapons to Israel**\
 `President Biden sends arms to Israel under an Obama-era $38 billion aid agreement that runs until 2026. Israel’s purchases include the types of bombs dropped in Gaza.`\
 https://nytimes.com/2024/04/06/us/politics/israel-us-weapons.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/06/arts/television/curb-your-enthusiasm-finale.html
 **Power by Proxy: How Iran Shapes the Mideast**\
 `A guide to the armed groups that let Iran extend its influence throughout the region.`\
 https://nytimes.com/interactive/2024/04/06/world/middleeast/iran-hamas-hezbollah-houthis-iraq.html
-
-**I Hired an Agent to Sell My Home. Do I Have to Pay the Buyer’s Broker Now?**\
-`The legal settlements roiling the real estate industry are changing the way commissions get paid. But the change could come slowly.`\
-https://nytimes.com/2024/04/06/realestate/i-hired-an-agent-to-sell-my-home-do-i-have-to-pay-the-buyers-broker-now.html
 
