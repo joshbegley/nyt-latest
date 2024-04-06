@@ -1,3 +1,7 @@
+**Republican in charge of Ohio elections warns Biden could miss ballot deadline.**\
+`The secretary of state’s office, led by Frank LaRose, a Republican, said Democrats must nominate President Biden by Aug. 7. The party’s convention does not start until Aug. 19.`\
+https://nytimes.com/live/2024/04/06/us/biden-trump-election/biden-ohio-ballot-dnc
+
 **The recovery of a hostage’s body in Gaza fuels anger at weekly protests in Tel Aviv.**\
 `By Gabby Sobelman and Ephrat Livni`\
 https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/the-recovery-of-a-hostages-body-in-gaza-fuels-anger-at-weekly-protests-in-tel-aviv
