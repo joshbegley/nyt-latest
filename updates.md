@@ -1,3 +1,7 @@
+**Kate Coleman, Who Documented the Bay Area Counterculture, Dies at 81**\
+`She wrote about politics and the patriarchy as a left-wing writer, then alienated her compatriots with exposés critical of the Black Panthers and the environmental movement.`\
+https://nytimes.com/2024/04/06/business/media/kate-coleman-dead.html
+
 **Daniel P. Jordan, Monticello Leader in Changing Times, Dies at 85**\
 `He expanded the educational mission of Thomas Jefferson’s plantation. He also embraced research that showed Jefferson had fathered the children of one of his slaves.`\
 https://nytimes.com/2024/04/06/us/daniel-p-jordan-dead.html
