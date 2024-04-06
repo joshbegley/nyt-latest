@@ -1,3 +1,7 @@
+**2 Novels About Uncomfortably Close Families**\
+`People cross boundaries in Alan Hollinghurst’s “The Spell” and Penelope Lively’s “The Photograph.”`\
+https://nytimes.com/2024/04/06/books/review/read-like-wind-recommendations.html
+
 **Russia Pounds Kharkiv in Deadly Barrage, Straining Ukraine’s Defenses**\
 `The latest assault on the eastern city killed at least six people, local authorities said. As Kyiv waits on American aid, Moscow has stepped up bombardments, including using modified “glide bombs.”`\
 https://nytimes.com/2024/04/06/world/europe/russia-ukraine-kharkiv-glide-bombs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/06/opinion/joe-lieberman-david-mixner.html
 **You Don’t Just See a Total Solar Eclipse. You Feel It Completely.**\
 `An eclipse chaser makes the case for seeing the event in its totality.`\
 https://nytimes.com/2024/04/06/opinion/total-solar-eclipse-chaser.html
-
-**Regulating Opioid Prescriptions**\
-`Pain management is an inexact science; there is plenty of blame to go around for the abuse of such drugs.`\
-https://nytimes.com/2024/04/06/opinion/opioid-prescriptions.html
 
