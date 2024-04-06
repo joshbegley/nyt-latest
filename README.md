@@ -1,3 +1,11 @@
+**Is New York City Overdue for a Major Earthquake?**\
+`Seismologists said that severe earthquakes are relatively rare around the city and cannot be predicted. But if one were to hit, it could inflict serious damage.`\
+https://nytimes.com/2024/04/06/nyregion/earthquake-nyc-overdue.html
+
+**Who Is Jorge Glas, an Ecuadorean Politician Arrested at Mexico’s Embassy?**\
+`A former vice president of Ecuador, Jorge Glas had been convicted of bribery in two separate cases. He had fled to the Mexican Embassy in Quito after facing more embezzlement charges.`\
+https://nytimes.com/2024/04/06/world/americas/jorge-glas-ecuador-mexico.html
+
 **Robert F. Kennedy Jr. backtracks again on Jan. 6 claims.**\
 `On Friday, the independent presidential candidate retracted his statement that “the protesters had no weapons” when they stormed the Capitol.`\
 https://nytimes.com/live/2024/04/06/us/biden-trump-election/robert-f-kennedy-jr-backtracks-again-on-jan-6-claims
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/the-israeli
 **Trump will hold court at a high-dollar fund-raiser tonight.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/06/us/biden-trump-election/trump-biden-fundraising
-
-**Prestigious Medical Journal Ignored Nazi Atrocities, Historians Find**\
-`The New England Journal of Medicine published an article condemning its own record during World War II.`\
-https://nytimes.com/2024/04/06/science/nazi-science-new-england-journal-medicine.html
-
-**Israel says it recovered the body of a hostage who was taken from a kibbutz on Oct. 7.**\
-`Elad Katzir lived in a kibbutz near the border with the Gaza Strip. His sister said Israel’s government should have done more to get him back alive.`\
-https://nytimes.com/2024/04/06/world/middleeast/israel-hostage-elad-katzir.html
 
