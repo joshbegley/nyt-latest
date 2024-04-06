@@ -1,3 +1,11 @@
+**Iran vows revenge at a funeral for commanders killed in an Israeli airstrike.**\
+`By Farnaz Fassihi, Eric Schmitt and Ronen Bergman`\
+https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/iran-vows-revenge-at-a-funeral-for-commanders-killed-in-an-israeli-airstrike
+
+**Israel and its military are on alert, awaiting a promised strike by Iran.**\
+`Iran’s leaders have vowed retribution for a strike that killed several top commanders in Syria. Analysts fear a reprisal could ignite a broader Mideast war.`\
+https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/israel-and-its-military-are-on-alert-awaiting-a-promised-strike-by-iran
+
 **Canada’s Federal Budget Goes From Big Secret to ‘Roadshow’**\
 `Breaking with Canadian tradition, Prime Minister Justin Trudeau has been crisscrossing the country announcing measures from the April 16 budget in advance.`\
 https://nytimes.com/2024/04/06/world/americas/canadas-federal-budget.html

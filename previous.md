@@ -1,3 +1,11 @@
+**Iran vows revenge at a funeral for commanders killed in an Israeli airstrike.**\
+`By Farnaz Fassihi, Eric Schmitt and Ronen Bergman`\
+https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/iran-vows-revenge-at-a-funeral-for-commanders-killed-in-an-israeli-airstrike
+
+**Israel and its military are on alert, awaiting a promised strike by Iran.**\
+`Iran’s leaders have vowed retribution for a strike that killed several top commanders in Syria. Analysts fear a reprisal could ignite a broader Mideast war.`\
+https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/israel-and-its-military-are-on-alert-awaiting-a-promised-strike-by-iran
+
 **Canada’s Federal Budget Goes From Big Secret to ‘Roadshow’**\
 `Breaking with Canadian tradition, Prime Minister Justin Trudeau has been crisscrossing the country announcing measures from the April 16 budget in advance.`\
 https://nytimes.com/2024/04/06/world/americas/canadas-federal-budget.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/04/06/upshot/older-voters.html
 **Leonardo DiCaprio, Tracee Ellis Ross and Gayle King Hit New York Art Parties**\
 `This week, the New Museum gala drew a crowd to Lower Manhattan and the MoMA Black Arts Council mingled in Midtown, as the Spring benefit season kicked into gear.`\
 https://nytimes.com/2024/04/06/style/nyc-new-museum-art-gala.html
-
-**Larry David Has Always Been the ‘Seinfeld’ Finale’s Biggest Defender**\
-`As “Curb Your Enthusiasm” draws to a close, the “Seinfeld” co-creator gets another shot at ending a TV show.`\
-https://nytimes.com/2024/04/06/arts/television/curb-your-enthusiasm-seinfeld-finale.html
-
-**Why Are People Obsessed With TV Finales ‘Sticking the Landing’?**\
-`As “Curb Your Enthusiasm” gets ready to exit, it’s time to let go of the idea that a story’s ending determines its final score.`\
-https://nytimes.com/2024/04/06/arts/television/curb-your-enthusiasm-finale.html
 
