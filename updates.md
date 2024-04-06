@@ -1,3 +1,7 @@
+**Daniel P. Jordan, Monticello Leader in Changing Times, Dies at 85**\
+`He expanded the educational mission of Thomas Jefferson’s plantation. He also embraced research that showed Jefferson had fathered the children of one of his slaves.`\
+https://nytimes.com/2024/04/06/us/daniel-p-jordan-dead.html
+
 **Battle for the House: These Are the Races to Watch**\
 `Democrats are targeting incumbent Republicans in a number of districts President Biden won in 2020 — but the general rule is, as goes the presidential race, so go House races.`\
 https://nytimes.com/article/house-races-congress-control.html
