@@ -1,3 +1,11 @@
+**A Niche Indian Actress Is Thrust Into Hollywood’s Spotlight**\
+`Sobhita Dhulipala has taken on risky roles in her acting career, outside of India’s blockbuster hits. Now, she’s starring in Dev Patel’s “Monkey Man.”`\
+https://nytimes.com/2024/04/06/style/sobhita-dhulipala-monkey-man.html
+
+**Put Miso Butter on Everything**\
+`Add it to chicken thighs, crispy tofu, roasted broccoli, pan-fried mushrooms and pasta. You won’t be able to stop.`\
+https://nytimes.com/2024/04/06/dining/put-miso-butter-on-everything.html
+
 **The Israeli hostage whose body was returned Saturday had spoken of feeling unsafe.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/the-israeli-hostage-whose-body-was-returned-saturday-had-spoken-of-feeling-unsafe
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/06/books/review/read-like-wind-recommendations.html
 **Russia Pounds Kharkiv in Deadly Barrage, Straining Ukraine’s Defenses**\
 `The latest assault on the eastern city killed at least six people, local authorities said. As Kyiv waits on American aid, Moscow has stepped up bombardments, including using modified “glide bombs.”`\
 https://nytimes.com/2024/04/06/world/europe/russia-ukraine-kharkiv-glide-bombs.html
-
-**Why Richard Serra’s Art Will Outlive Us All**\
-`The great American artist was born in 1938 and died last week, but his work transcends time.`\
-https://nytimes.com/interactive/2024/04/06/opinion/richard-serra-art.html
-
-**Donald Trump’s Insatiable Bloodlust**\
-`Marjorie and Donald, trumpeting the end times.`\
-https://nytimes.com/2024/04/06/opinion/trump-election-blood-bath.html
 
