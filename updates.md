@@ -1,3 +1,7 @@
+**Hillary Clinton Returns to Wellesley, but the Homecoming Is More Complicated**\
+`Pro-Palestinian demonstrations surrounded an appearance at a new research center named after the former secretary of state and presidential nominee at her alma mater.`\
+https://nytimes.com/2024/04/06/us/hillary-clinton-wellesley-protests.html
+
 **Double Duty**\
 `Does Tracy Gray have to repeat herself? Yes, yes she does, in this puzzle.`\
 https://nytimes.com/2024/04/06/crosswords/daily-puzzle-2024-04-07.html
