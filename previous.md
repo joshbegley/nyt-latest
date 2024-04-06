@@ -1,3 +1,7 @@
+**The recovery of a hostage’s body in Gaza fuels anger at weekly protests in Tel Aviv.**\
+`By Gabby Sobelman and Ephrat Livni`\
+https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/the-recovery-of-a-hostages-body-in-gaza-fuels-anger-at-weekly-protests-in-tel-aviv
+
 **Night deliveries of aid in Gaza pose unusual challenges.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/night-deliveries-of-aid-in-gaza-pose-unusual-challenges
@@ -33,8 +37,4 @@ https://nytimes.com/article/house-races-congress-control.html
 **A Niche Indian Actress Is Thrust Into Hollywood’s Spotlight**\
 `Sobhita Dhulipala has taken on risky roles in her acting career, outside of India’s blockbuster hits. Now, she’s starring in Dev Patel’s “Monkey Man.”`\
 https://nytimes.com/2024/04/06/style/sobhita-dhulipala-monkey-man.html
-
-**Put Miso Butter on Everything**\
-`Add it to chicken thighs, crispy tofu, roasted broccoli, pan-fried mushrooms and pasta. You won’t be able to stop.`\
-https://nytimes.com/2024/04/06/dining/put-miso-butter-on-everything.html
 

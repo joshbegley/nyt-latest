@@ -1,3 +1,7 @@
+**The recovery of a hostage’s body in Gaza fuels anger at weekly protests in Tel Aviv.**\
+`By Gabby Sobelman and Ephrat Livni`\
+https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/the-recovery-of-a-hostages-body-in-gaza-fuels-anger-at-weekly-protests-in-tel-aviv
+
 **Night deliveries of aid in Gaza pose unusual challenges.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/night-deliveries-of-aid-in-gaza-pose-unusual-challenges
