@@ -1,3 +1,7 @@
+**Russia Pounds Kharkiv in Deadly Barrage, Straining Ukraine’s Defenses**\
+`The latest assault on the eastern city killed at least six people, local authorities said. As Kyiv waits on American aid, Moscow has stepped up bombardments, including using modified “glide bombs.”`\
+https://nytimes.com/2024/04/06/world/europe/russia-ukraine-kharkiv-glide-bombs.html
+
 **Why Richard Serra’s Art Will Outlive Us All**\
 `The great American artist was born in 1938 and died last week, but his work transcends time.`\
 https://nytimes.com/interactive/2024/04/06/opinion/richard-serra-art.html
