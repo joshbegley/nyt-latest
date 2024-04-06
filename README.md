@@ -1,3 +1,7 @@
+**The Condiment Wars Come for Chile Crisp (or Crunch)**\
+`David Chang’s Momofuku company is waging a trademark battle for the term “chile crunch.” But what does ownership mean for such an everyday pleasure?`\
+https://nytimes.com/2024/04/05/dining/momofuku-david-chang-chile-crunch.html
+
 **Man Set Fire Outside Bernie Sanders’s Vermont Office, Police Say**\
 `The authorities are trying to identify an arsonist who struck outside the U.S. senator’s office in Burlington, Vt. No one was injured, and the senator was not there.`\
 https://nytimes.com/2024/04/05/us/fire-bernie-sanders-office.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/business/economy/uaw-mercedes-alabama-union.html
 **New Questions on How a Key Agency Shared Inflation Data**\
 `A government economist had regular contact with “super users” in finance, records show, at a time when such information keenly interests investors.`\
 https://nytimes.com/2024/04/05/business/economy/labor-statistics-super-users.html
-
-**Margaret Tynes, Soprano Who Soared in Verdi and Strauss, Dies at 104**\
-`Because there were few opportunities for Black singers in the U.S., she became a powerhouse in Europe, performing in operas like “Tosca” and “Carmen.”`\
-https://nytimes.com/2024/04/05/arts/music/margaret-tynes-dead.html
 
