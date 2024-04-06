@@ -1,3 +1,7 @@
+**Hillary Clinton Returns to Wellesley, but the Homecoming Is More Complicated**\
+`Pro-Palestinian demonstrations surrounded an appearance at a new research center named after the former secretary of state and presidential nominee at her alma mater.`\
+https://nytimes.com/2024/04/06/us/hillary-clinton-wellesley-protests.html
+
 **Double Duty**\
 `Does Tracy Gray have to repeat herself? Yes, yes she does, in this puzzle.`\
 https://nytimes.com/2024/04/06/crosswords/daily-puzzle-2024-04-07.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/06/world/americas/jorge-glas-ecuador-mexico.html
 **Robert F. Kennedy Jr. backtracks again on Jan. 6 claims.**\
 `On Friday, the independent presidential candidate retracted his statement that “the protesters had no weapons” when they stormed the Capitol.`\
 https://nytimes.com/live/2024/04/06/us/biden-trump-election/robert-f-kennedy-jr-backtracks-again-on-jan-6-claims
-
-**Kate Coleman, Who Documented the Bay Area Counterculture, Dies at 81**\
-`She wrote about politics and the patriarchy as a left-wing writer, then alienated her compatriots with exposés critical of the Black Panthers and the environmental movement.`\
-https://nytimes.com/2024/04/06/business/media/kate-coleman-dead.html
 
