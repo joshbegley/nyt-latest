@@ -1,3 +1,7 @@
+**Republican in charge of Ohio elections warns Biden could miss ballot deadline.**\
+`The secretary of state’s office, led by Frank LaRose, a Republican, said Democrats must nominate President Biden by Aug. 7. The party’s convention does not start until Aug. 19.`\
+https://nytimes.com/live/2024/04/06/us/biden-trump-election/biden-ohio-ballot-dnc
+
 **The recovery of a hostage’s body in Gaza fuels anger at weekly protests in Tel Aviv.**\
 `By Gabby Sobelman and Ephrat Livni`\
 https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/the-recovery-of-a-hostages-body-in-gaza-fuels-anger-at-weekly-protests-in-tel-aviv
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/06/us/daniel-p-jordan-dead.html
 **Battle for the House: These Are the Races to Watch**\
 `Democrats are targeting incumbent Republicans in a number of districts President Biden won in 2020 — but the general rule is, as goes the presidential race, so go House races.`\
 https://nytimes.com/article/house-races-congress-control.html
-
-**A Niche Indian Actress Is Thrust Into Hollywood’s Spotlight**\
-`Sobhita Dhulipala has taken on risky roles in her acting career, outside of India’s blockbuster hits. Now, she’s starring in Dev Patel’s “Monkey Man.”`\
-https://nytimes.com/2024/04/06/style/sobhita-dhulipala-monkey-man.html
 
