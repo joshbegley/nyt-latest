@@ -1,3 +1,7 @@
+**Minor Crimes Division**\
+`Lessons learned, and not, from breaking the rules.`\
+https://nytimes.com/2024/04/06/podcasts/this-american-life-minor-crimes-division-nyt-audio.html
+
 **Eclipse Mania**\
 `There’s still reason to get excited, even if you’re not convinced by the hype.`\
 https://nytimes.com/2024/04/06/briefing/eclipse-mania.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/06/podcasts/your-solar-eclipse-soundtrack.html
 **4 Expert Tips for Flaky Fish Every Time**\
 `In the fourth installment of her YouTube series, the cookbook author and chef Sohla El-Waylly will help you make the most flawless fish.`\
 https://nytimes.com/2024/04/06/dining/how-to-cook-fish.html
-
-**How ‘All in the Family’ Explains Biden’s Strength Among Seniors**\
-`Yesterday’s hippies have become today’s seniors — and they’re still voting Democratic.`\
-https://nytimes.com/interactive/2024/04/06/upshot/older-voters.html
 

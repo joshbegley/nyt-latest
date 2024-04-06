@@ -1,3 +1,7 @@
+**Minor Crimes Division**\
+`Lessons learned, and not, from breaking the rules.`\
+https://nytimes.com/2024/04/06/podcasts/this-american-life-minor-crimes-division-nyt-audio.html
+
 **Eclipse Mania**\
 `There’s still reason to get excited, even if you’re not convinced by the hype.`\
 https://nytimes.com/2024/04/06/briefing/eclipse-mania.html
