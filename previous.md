@@ -1,40 +1,40 @@
-**Minor Crimes Division**\
-`Lessons learned, and not, from breaking the rules.`\
-https://nytimes.com/2024/04/06/podcasts/this-american-life-minor-crimes-division-nyt-audio.html
+**Why Richard Serra’s Art Will Outlive Us All**\
+`The great American artist was born in 1938 and died last week, but his work transcends time.`\
+https://nytimes.com/interactive/2024/04/06/opinion/richard-serra-art.html
 
-**Eclipse Mania**\
-`There’s still reason to get excited, even if you’re not convinced by the hype.`\
-https://nytimes.com/2024/04/06/briefing/eclipse-mania.html
+**Donald Trump’s Insatiable Bloodlust**\
+`Marjorie and Donald, trumpeting the end times.`\
+https://nytimes.com/2024/04/06/opinion/trump-election-blood-bath.html
 
-**Iran vows revenge at a funeral for commanders killed in an Israeli airstrike.**\
-`By Farnaz Fassihi, Eric Schmitt and Ronen Bergman`\
-https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/iran-vows-revenge-at-a-funeral-for-commanders-killed-in-an-israeli-airstrike
+**Can the Left Be Happy?**\
+`Comforted by neither God nor history, and hoping vaguely that therapy can take their place.`\
+https://nytimes.com/2024/04/06/opinion/leftists-happy-coates-haidt.html
 
-**Israel and its military are on alert, awaiting a promised strike by Iran.**\
-`Iran’s leaders have vowed retribution for a strike that killed several top commanders in Syria. Analysts fear a reprisal could ignite a broader Mideast war.`\
-https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/israel-and-its-military-are-on-alert-awaiting-a-promised-strike-by-iran
+**Help Ukraine Hold the Line**\
+`House Speaker Mike Johnson should allow an aid package for Ukraine to come to a vote.`\
+https://nytimes.com/2024/04/06/opinion/ukraine-aid-congress.html
 
-**Canada’s Federal Budget Goes From Big Secret to ‘Roadshow’**\
-`Breaking with Canadian tradition, Prime Minister Justin Trudeau has been crisscrossing the country announcing measures from the April 16 budget in advance.`\
-https://nytimes.com/2024/04/06/world/americas/canadas-federal-budget.html
+**The High-I.Q. Nonsense of Robert F. Kennedy Jr.**\
+`His inflated sense of his fitness to lead isn’t just delusional. It’s dangerous.`\
+https://nytimes.com/2024/04/06/opinion/rfk-jr-trump-biden.html
 
-**Make Room Tennis, Pickleball and Squash. Here Comes Padel.**\
-`The sport is played with a racket on a court with a net, but watch out for those bouncing shots from the back wall. Reporters take a look at the padel scene in New York City.`\
-https://nytimes.com/2024/04/06/sports/padel-tennis-nyc.html
+**How a Vacant Lot Became Our Own Dirtbag Narnia**\
+`In the Kensington neighborhood of Philadelphia, a group of neighbors made a makeshift community oasis.`\
+https://nytimes.com/2024/04/06/opinion/kensington-philadelphia-neighborhood-community.html
 
-**Gaza War Turns Spotlight on Long Pipeline of U.S. Weapons to Israel**\
-`President Biden sends arms to Israel under an Obama-era $38 billion aid agreement that runs until 2026. Israel’s purchases include the types of bombs dropped in Gaza.`\
-https://nytimes.com/2024/04/06/us/politics/israel-us-weapons.html
+**Joe Lieberman and David Mixner, Exemplary Outsiders**\
+`Their experience of being outsiders deeply affected their political worldviews and caused them to embrace the struggles of other excluded Americans as their own.`\
+https://nytimes.com/2024/04/06/opinion/joe-lieberman-david-mixner.html
 
-**Biden Waves His First-Term Résumé at a Skeptical America**\
-`With increasing urgency, the president is trying to impress upon voters that he has accomplished quite a bit — even if they don’t see it in their lives yet.`\
-https://nytimes.com/2024/04/06/us/politics/biden-2024-campaign.html
+**You Don’t Just See a Total Solar Eclipse. You Feel It Completely.**\
+`An eclipse chaser makes the case for seeing the event in its totality.`\
+https://nytimes.com/2024/04/06/opinion/total-solar-eclipse-chaser.html
 
-**Your Solar Eclipse Soundtrack**\
-`Songs to put you in the mood.`\
-https://nytimes.com/2024/04/06/podcasts/your-solar-eclipse-soundtrack.html
+**Regulating Opioid Prescriptions**\
+`Pain management is an inexact science; there is plenty of blame to go around for the abuse of such drugs.`\
+https://nytimes.com/2024/04/06/opinion/opioid-prescriptions.html
 
-**4 Expert Tips for Flaky Fish Every Time**\
-`In the fourth installment of her YouTube series, the cookbook author and chef Sohla El-Waylly will help you make the most flawless fish.`\
-https://nytimes.com/2024/04/06/dining/how-to-cook-fish.html
+**My Story Was Told in ‘Hotel Rwanda.’ Here’s What I Want the World to Know Now.**\
+`For me and for so many Rwandans, the 1994 genocide remains the focal point of my life.`\
+https://nytimes.com/2024/04/06/opinion/hotel-rwanda-genocide-anniversary.html
 
