@@ -1,3 +1,7 @@
+**Eclipse Mania**\
+`There’s still reason to get excited, even if you’re not convinced by the hype.`\
+https://nytimes.com/2024/04/06/briefing/eclipse-mania.html
+
 **Iran vows revenge at a funeral for commanders killed in an Israeli airstrike.**\
 `By Farnaz Fassihi, Eric Schmitt and Ronen Bergman`\
 https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/iran-vows-revenge-at-a-funeral-for-commanders-killed-in-an-israeli-airstrike
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/06/dining/how-to-cook-fish.html
 **How ‘All in the Family’ Explains Biden’s Strength Among Seniors**\
 `Yesterday’s hippies have become today’s seniors — and they’re still voting Democratic.`\
 https://nytimes.com/interactive/2024/04/06/upshot/older-voters.html
-
-**Leonardo DiCaprio, Tracee Ellis Ross and Gayle King Hit New York Art Parties**\
-`This week, the New Museum gala drew a crowd to Lower Manhattan and the MoMA Black Arts Council mingled in Midtown, as the Spring benefit season kicked into gear.`\
-https://nytimes.com/2024/04/06/style/nyc-new-museum-art-gala.html
 

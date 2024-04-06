@@ -1,3 +1,7 @@
+**Eclipse Mania**\
+`There’s still reason to get excited, even if you’re not convinced by the hype.`\
+https://nytimes.com/2024/04/06/briefing/eclipse-mania.html
+
 **Iran vows revenge at a funeral for commanders killed in an Israeli airstrike.**\
 `By Farnaz Fassihi, Eric Schmitt and Ronen Bergman`\
 https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/iran-vows-revenge-at-a-funeral-for-commanders-killed-in-an-israeli-airstrike
