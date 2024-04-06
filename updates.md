@@ -1,3 +1,7 @@
+**Canada’s Federal Budget Goes From Big Secret to ‘Roadshow’**\
+`Breaking with Canadian tradition, Prime Minister Justin Trudeau has been crisscrossing the country announcing measures from the April 16 budget in advance.`\
+https://nytimes.com/2024/04/06/world/americas/canadas-federal-budget.html
+
 **Make Room Tennis, Pickleball and Squash. Here Comes Padel.**\
 `The sport is played with a racket on a court with a net, but watch out for those bouncing shots from the back wall. Reporters take a look at the padel scene in New York City.`\
 https://nytimes.com/2024/04/06/sports/padel-tennis-nyc.html
