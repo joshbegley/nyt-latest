@@ -1,3 +1,7 @@
+**Battle for the House: These Are the Races to Watch**\
+`Democrats are targeting incumbent Republicans in a number of districts President Biden won in 2020 — but the general rule is, as goes the presidential race, so go House races.`\
+https://nytimes.com/article/house-races-congress-control.html
+
 **A Niche Indian Actress Is Thrust Into Hollywood’s Spotlight**\
 `Sobhita Dhulipala has taken on risky roles in her acting career, outside of India’s blockbuster hits. Now, she’s starring in Dev Patel’s “Monkey Man.”`\
 https://nytimes.com/2024/04/06/style/sobhita-dhulipala-monkey-man.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/06/us/politics/biden-march-fund-raising.html
 **2 Novels About Uncomfortably Close Families**\
 `People cross boundaries in Alan Hollinghurst’s “The Spell” and Penelope Lively’s “The Photograph.”`\
 https://nytimes.com/2024/04/06/books/review/read-like-wind-recommendations.html
-
-**Russia Pounds Kharkiv in Deadly Barrage, Straining Ukraine’s Defenses**\
-`The latest assault on the eastern city killed at least six people, local authorities said. As Kyiv waits on American aid, Moscow has stepped up bombardments, including using modified “glide bombs.”`\
-https://nytimes.com/2024/04/06/world/europe/russia-ukraine-kharkiv-glide-bombs.html
 
