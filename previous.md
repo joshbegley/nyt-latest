@@ -1,3 +1,7 @@
+**Mexico Breaks Diplomatic Ties With Ecuador After Arrest at Embassy**\
+`Jorge Glas, the former vice president, had taken refuge at the Mexican Embassy in Ecuador’s capital. Mexico’s president called his arrest a violation of international law.`\
+https://nytimes.com/2024/04/06/world/americas/ecuador-mexico-arrest-embassy.html
+
 **From the Horror to the Envy of Africa: Rwanda’s Ruler Holds Tight Grip**\
 `Thirty years after a devastating genocide, Rwanda has made impressive gains. But ethnic divisions persist under an iron-fisted president who has ruled for just as long.`\
 https://nytimes.com/2024/04/06/world/africa/rwanda-genocide-anniversary.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/us/fire-bernie-sanders-office.html
 **When Food, War and Politics Collide**\
 `It is usually an afterthought in politics, but the power of food was made clear this week.`\
 https://nytimes.com/2024/04/05/us/politics/israel-hamas-world-central-kitchen.html
-
-**‘Zone of Interest’ Oscars Speech Is Defended by Jewish Film Artists**\
-`Remarks about Israel that the director Jonathan Glazer made as he accepted an Oscar for “The Zone of Interest” drew a letter of support after facing criticism last month.`\
-https://nytimes.com/2024/04/05/movies/jonathan-glazer-speech-letter.html
 
