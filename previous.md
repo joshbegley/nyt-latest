@@ -1,3 +1,7 @@
+**Dozens of Major Bridges Lack Shields to Block Wayward Ships**\
+`The collapse of the Key Bridge in Baltimore has prompted a reassessment of critical bridges around the country that may be similarly vulnerable to a ship strike.`\
+https://nytimes.com/interactive/2024/04/06/us/bridge-collapse-protections-baltimore.html
+
 **Pro-Russia Candidate Wins Slovakia’s Presidential Election**\
 `The victory for Peter Pellegrini, an ally of Slovakia’s populist prime minister, strengthens Central Europe’s ties to Moscow.`\
 https://nytimes.com/2024/04/06/world/europe/slovakia-election-president.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/night-deliv
 **Mary Ann Zielonko, Partner of Kitty Genovese, Dies at 85**\
 `The murder of Ms. Genovese, and her neighbors’ reaction to it, generated headlines. The nature of her relationship with Ms. Zielonko was a different story.`\
 https://nytimes.com/2024/04/06/nyregion/mary-ann-zielonko-dead.html
-
-**Is New York City Overdue for a Major Earthquake?**\
-`Seismologists said that severe earthquakes are relatively rare around the city and cannot be predicted. But if one were to hit, it could inflict serious damage.`\
-https://nytimes.com/2024/04/06/nyregion/earthquake-nyc-overdue.html
 

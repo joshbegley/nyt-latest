@@ -1,3 +1,7 @@
+**Dozens of Major Bridges Lack Shields to Block Wayward Ships**\
+`The collapse of the Key Bridge in Baltimore has prompted a reassessment of critical bridges around the country that may be similarly vulnerable to a ship strike.`\
+https://nytimes.com/interactive/2024/04/06/us/bridge-collapse-protections-baltimore.html
+
 **Pro-Russia Candidate Wins Slovakia’s Presidential Election**\
 `The victory for Peter Pellegrini, an ally of Slovakia’s populist prime minister, strengthens Central Europe’s ties to Moscow.`\
 https://nytimes.com/2024/04/06/world/europe/slovakia-election-president.html
