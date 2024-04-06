@@ -1,3 +1,7 @@
+**Israel says it recovered the body of a hostage who was taken from a kibbutz on Oct. 7.**\
+`Elad Katzir lived in a kibbutz near the border with the Gaza Strip. His sister said Israel’s government should have done more to get him back alive.`\
+https://nytimes.com/2024/04/06/world/middleeast/israel-hostage-elad-katzir.html
+
 **The Economic Paradox of the Biden Presidency**\
 `Employers have been adding jobs since Joe Biden took office, but will the good news translate into votes?`\
 https://nytimes.com/2024/04/06/business/dealbook/-jobs-report-biden-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/06/opinion/ukraine-aid-congress.html
 **The High-I.Q. Nonsense of Robert F. Kennedy Jr.**\
 `His inflated sense of his fitness to lead isn’t just delusional. It’s dangerous.`\
 https://nytimes.com/2024/04/06/opinion/rfk-jr-trump-biden.html
-
-**How a Vacant Lot Became Our Own Dirtbag Narnia**\
-`In the Kensington neighborhood of Philadelphia, a group of neighbors made a makeshift community oasis.`\
-https://nytimes.com/2024/04/06/opinion/kensington-philadelphia-neighborhood-community.html
 
