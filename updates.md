@@ -1,3 +1,7 @@
+**Book It!**\
+`Find a comfortable spot to hunker down while we wrangle with Byron Walden’s tough themeless puzzle.`\
+https://nytimes.com/2024/04/05/crosswords/daily-puzzle-2024-04-06.html
+
 **The Condiment Wars Come for Chile Crisp (or Crunch)**\
 `David Chang’s Momofuku company is waging a trademark battle for the term “chile crunch.” But what does ownership mean for such an everyday pleasure?`\
 https://nytimes.com/2024/04/05/dining/momofuku-david-chang-chile-crunch.html

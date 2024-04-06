@@ -1,3 +1,7 @@
+**Book It!**\
+`Find a comfortable spot to hunker down while we wrangle with Byron Walden’s tough themeless puzzle.`\
+https://nytimes.com/2024/04/05/crosswords/daily-puzzle-2024-04-06.html
+
 **The Condiment Wars Come for Chile Crisp (or Crunch)**\
 `David Chang’s Momofuku company is waging a trademark battle for the term “chile crunch.” But what does ownership mean for such an everyday pleasure?`\
 https://nytimes.com/2024/04/05/dining/momofuku-david-chang-chile-crunch.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/05/style/martha-stewart-has-never-ending-curiosity-a
 **Mercedes-Benz Workers in Alabama Ask for Unionization Vote**\
 `The United Automobile Workers union is mounting its most ambitious effort to gain an industry foothold beyond Detroit’s Big Three.`\
 https://nytimes.com/2024/04/05/business/economy/uaw-mercedes-alabama-union.html
-
-**New Questions on How a Key Agency Shared Inflation Data**\
-`A government economist had regular contact with “super users” in finance, records show, at a time when such information keenly interests investors.`\
-https://nytimes.com/2024/04/05/business/economy/labor-statistics-super-users.html
 
