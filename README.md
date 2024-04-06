@@ -1,5 +1,5 @@
 **06mideast-crisis**\
-`Amid Fear of Expanded War, U.S. Renews Push for Hostage and Cease-Fire Deal`\
+`Amid Fears of Expanded War, U.S. Renews Push for Hostage and Cease-Fire Deal`\
 https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news
 
 **New York City Set to Pay a Record $28 Million to Settle Rikers Island Suit**\
