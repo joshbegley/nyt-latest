@@ -1,3 +1,7 @@
+**Another Israeli Hostage’s Body Recovered, the Death Angering His Family**\
+`Like the families of other hostages, they are outraged that the Israeli government has yet to reach a deal to halt the fighting and bring home loved ones held in Gaza.`\
+https://nytimes.com/2024/04/06/world/europe/hostages-israel-gaza-protests.html
+
 **Hillary Clinton Returns to Wellesley, but the Homecoming Is More Complicated**\
 `Pro-Palestinian demonstrations surrounded an appearance at a new research center named after the former secretary of state and presidential nominee at her alma mater.`\
 https://nytimes.com/2024/04/06/us/hillary-clinton-wellesley-protests.html
