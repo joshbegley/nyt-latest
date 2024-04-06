@@ -1,3 +1,7 @@
+**The Israeli hostage whose body was returned Saturday had spoken of feeling unsafe.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/the-israeli-hostage-whose-body-was-returned-saturday-had-spoken-of-feeling-unsafe
+
 **Trump will hold court at a high-dollar fund-raiser tonight.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/06/us/biden-trump-election/trump-biden-fundraising

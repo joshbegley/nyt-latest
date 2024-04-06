@@ -1,3 +1,7 @@
+**The Israeli hostage whose body was returned Saturday had spoken of feeling unsafe.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/the-israeli-hostage-whose-body-was-returned-saturday-had-spoken-of-feeling-unsafe
+
 **Trump will hold court at a high-dollar fund-raiser tonight.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/06/us/biden-trump-election/trump-biden-fundraising
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/06/opinion/richard-serra-art.html
 **Donald Trump’s Insatiable Bloodlust**\
 `Marjorie and Donald, trumpeting the end times.`\
 https://nytimes.com/2024/04/06/opinion/trump-election-blood-bath.html
-
-**Can the Left Be Happy?**\
-`Comforted by neither God nor history, and hoping vaguely that therapy can take their place.`\
-https://nytimes.com/2024/04/06/opinion/leftists-happy-coates-haidt.html
 
