@@ -1,3 +1,7 @@
+**Trump will hold court at a high-dollar fund-raiser tonight.**\
+`By Chris Cameron`\
+https://nytimes.com/2024/04/06/us/politics/trump-biden-fundraising.html
+
 **Prestigious Medical Journal Ignored Nazi Atrocities, Historians Find**\
 `The New England Journal of Medicine published an article condemning its own record during World War II.`\
 https://nytimes.com/2024/04/06/science/nazi-science-new-england-journal-medicine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/06/opinion/trump-election-blood-bath.html
 **Can the Left Be Happy?**\
 `Comforted by neither God nor history, and hoping vaguely that therapy can take their place.`\
 https://nytimes.com/2024/04/06/opinion/leftists-happy-coates-haidt.html
-
-**Help Ukraine Hold the Line**\
-`House Speaker Mike Johnson should allow an aid package for Ukraine to come to a vote.`\
-https://nytimes.com/2024/04/06/opinion/ukraine-aid-congress.html
 
