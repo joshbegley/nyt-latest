@@ -1,5 +1,9 @@
 **Trump will hold court at a high-dollar fund-raiser tonight.**\
 `By Chris Cameron`\
+https://nytimes.com/live/2024/04/06/us/biden-trump-election/trump-biden-fundraising
+
+**Trump will hold court at a high-dollar fund-raiser tonight.**\
+`By Chris Cameron`\
 https://nytimes.com/2024/04/06/us/politics/trump-biden-fundraising.html
 
 **Prestigious Medical Journal Ignored Nazi Atrocities, Historians Find**\
