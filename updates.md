@@ -1,3 +1,7 @@
+**The Condiment Wars Come for Chile Crisp (or Crunch)**\
+`David Chang’s Momofuku company is waging a trademark battle for the term “chile crunch.” But what does ownership mean for such an everyday pleasure?`\
+https://nytimes.com/2024/04/05/dining/momofuku-david-chang-chile-crunch.html
+
 **Man Set Fire Outside Bernie Sanders’s Vermont Office, Police Say**\
 `The authorities are trying to identify an arsonist who struck outside the U.S. senator’s office in Burlington, Vt. No one was injured, and the senator was not there.`\
 https://nytimes.com/2024/04/05/us/fire-bernie-sanders-office.html
