@@ -1,3 +1,7 @@
+**New York City Set to Pay a Record $28 Million to Settle Rikers Island Suit**\
+`Eight correction officers and a captain stood by for seven minutes and 51 seconds as Nicholas Feliciano tried to hang himself in a jail cell in 2019.`\
+https://nytimes.com/2024/04/06/nyregion/nyc-rikers-negligence-lawsuit.html
+
 **The Orchid Show After Dark, Where Green Thumbs and Plant Killers Mingle**\
 `After hours, the New York Botanical Garden becomes the lushest bar in town.`\
 https://nytimes.com/2024/04/06/nyregion/orchid-show-ny-botanical-garden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/06/world/americas/ecuador-mexico-arrest-embassy.html
 **Why Time Is Running Out Across the Maldives’ Lovely Little Islands**\
 `Global tourism brought a modern economy to the country’s thousand islands. For many Maldivians, the teeming capital beckons.`\
 https://nytimes.com/2024/04/06/world/asia/maldives-urbanization-male.html
-
-**From the Horror to the Envy of Africa: Rwanda’s Ruler Holds Tight Grip**\
-`Thirty years after a devastating genocide, Rwanda has made impressive gains. But ethnic divisions persist under an iron-fisted president who has ruled for just as long.`\
-https://nytimes.com/2024/04/06/world/africa/rwanda-genocide-anniversary.html
 
