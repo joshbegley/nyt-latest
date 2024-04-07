@@ -1,3 +1,7 @@
+**Trump, at Fund-Raiser, Says He Wants Immigrants From ‘Nice’ Countries**\
+`At rallies, Donald Trump frequently laments migrants from a list of countries from Africa, Asia and the Middle East as he stokes fears around the surge at the border.`\
+https://nytimes.com/2024/04/07/us/politics/trump-immigrants-nice-countries.html
+
 **Southwest Plane Makes Emergency Landing After Boeing Engine Cover Falls Off**\
 `The plane returned safely to Denver on Sunday after the crew reported that the cover came apart during takeoff and struck a wing flap. No injuries were reported.`\
 https://nytimes.com/2024/04/07/business/southwest-boeing-engine-takeoff.html

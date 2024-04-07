@@ -1,3 +1,7 @@
+**Trump, at Fund-Raiser, Says He Wants Immigrants From ‘Nice’ Countries**\
+`At rallies, Donald Trump frequently laments migrants from a list of countries from Africa, Asia and the Middle East as he stokes fears around the surge at the border.`\
+https://nytimes.com/2024/04/07/us/politics/trump-immigrants-nice-countries.html
+
 **Southwest Plane Makes Emergency Landing After Boeing Engine Cover Falls Off**\
 `The plane returned safely to Denver on Sunday after the crew reported that the cover came apart during takeoff and struck a wing flap. No injuries were reported.`\
 https://nytimes.com/2024/04/07/business/southwest-boeing-engine-takeoff.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/07/us/biden-trump-election/rnc-whatley-2020-ele
 **World Central Kitchen’s founder says Israel seems to be waging a war on ‘humanity itself.’**\
 `By Erica L. Green`\
 https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/world-central-kitchens-founder-says-israel-seems-to-be-waging-a-war-on-humanity-itself
-
-**Missing ‘1923’ Actor, Cole Brings Plenty, Is Found Dead**\
-`Mr. Brings Plenty, 27, was found dead in Kansas days after his family reported him missing. Officials did not provide a cause of death.`\
-https://nytimes.com/2024/04/07/arts/television/cole-brings-plenty-dead.html
 
