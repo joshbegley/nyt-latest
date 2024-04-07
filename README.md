@@ -1,3 +1,7 @@
+**Corrections: April 7, 2024**\
+`Corrections that appeared in print on Sunday, April 7, 2024.`\
+https://nytimes.com/2024/04/07/pageoneplus/corrections-april-7-2024.html
+
 **Biden and Japan’s Leader Look to Bind Ties to Outlast Them Both**\
 `Hovering over a state visit to Washington is the possibility of a swing in American foreign policy if Donald Trump returns to the White House.`\
 https://nytimes.com/2024/04/07/world/asia/biden-kishida-state-visit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/06/us/hillary-clinton-wellesley-protests.html
 **Double Duty**\
 `Does Tracy Gray have to repeat herself? Yes, yes she does, in this puzzle.`\
 https://nytimes.com/2024/04/06/crosswords/daily-puzzle-2024-04-07.html
-
-**Power Shut Off to 55,000 in Colorado to Prevent Wind-Fueled Wildfires**\
-`Xcel Energy said the outage would affect parts of six counties and last until at least noon on Sunday. Winds could reach 100 miles per hour.`\
-https://nytimes.com/2024/04/06/us/colorado-power-shutoffs-xcel-wind.html
 
