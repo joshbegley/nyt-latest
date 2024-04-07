@@ -1,3 +1,7 @@
+**The war is now the longest involving Israel since the 1980s.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/the-war-is-now-the-longest-involving-israel-since-the-1980s
+
 **Why States Have Spent Billions Subsidizing Hollywood**\
 `Inside the costly competition to attract TV and film shoots.`\
 https://nytimes.com/2024/04/07/briefing/hollywood-tax-breaks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/07/podcasts/the-daily/deathbed-visions.html
 **Anticipation and Anxiety Build Ahead of the Total Solar Eclipse**\
 `Across parts of the United States, Mexico and Canada, would-be eclipse-gazers are on the move for what could be a once-in-a-lifetime event.`\
 https://nytimes.com/2024/04/07/science/total-solar-eclipse-weather-traffic-new-york-texas-mexico.html
-
-**Is Corporate America in Denial About Trump?**\
-`Despite his populist promises, many bigwigs are keeping the faith that it couldn’t really happen here.`\
-https://nytimes.com/2024/04/07/magazine/trump-corporate-business.html
 
