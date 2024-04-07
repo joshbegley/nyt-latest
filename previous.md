@@ -1,3 +1,7 @@
+**World Central Kitchen’s founder says Israel seems to be waging a war on ‘humanity itself.’**\
+`By Erica L. Green`\
+https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/world-central-kitchens-founder-says-israel-seems-to-be-waging-a-war-on-humanity-itself
+
 **Missing ‘1923’ Actor, Cole Brings Plenty, Is Found Dead**\
 `Mr. Brings Plenty, 27, was found dead in Kansas days after his family reported him missing. Officials did not provide a cause of death.`\
 https://nytimes.com/2024/04/07/arts/television/cole-brings-plenty-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/07/briefing/hollywood-tax-breaks.html
 **My Faith Forbade Eclipse Gazing. Now It Inspires My Art.**\
 `An artist ponders how his religious childhood affects the art he now creates around eclipse imagery.`\
 https://nytimes.com/2024/04/07/opinion/solar-eclipse-hare-krishna.html
-
-**Larry David, Philosopher King**\
-`Larry David’s long-running show was hilarious, but it also revolved around a complex view of modern philosophy.`\
-https://nytimes.com/2024/04/07/opinion/larry-david-curb-philosophy.html
 
