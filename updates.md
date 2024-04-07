@@ -1,3 +1,7 @@
+**The war is now the longest involving Israel since the 1980s.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/the-war-is-now-the-longest-involving-israel-since-the-1980s
+
 **Why States Have Spent Billions Subsidizing Hollywood**\
 `Inside the costly competition to attract TV and film shoots.`\
 https://nytimes.com/2024/04/07/briefing/hollywood-tax-breaks.html
