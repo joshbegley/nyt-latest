@@ -1,3 +1,7 @@
+**Israel withdraws a division of troops from southern Gaza.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/israel-withdraws-a-division-of-troops-from-southern-gaza
+
 **Amid fears of an Iranian strike, Israel says it’s prepared for ‘any scenario.’**\
 `By Cassandra Vinograd and Aaron Boxerman`\
 https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/amid-fears-of-an-iranian-strike-israel-says-its-prepared-for-any-scenario
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/07/opinion/america-foreign-aid-power-congress.html
 **Thirty Years After a Genocide in Rwanda, Painful Memories Run Deep**\
 `The Central African country is marking the anniversary of a monthslong rampage by militiamen that killed some 800,000 people.`\
 https://nytimes.com/2024/04/07/world/africa/rwanda-genocide-thirty-years.html
-
-**The Sunday Read: ‘What Deathbed Visions Teach Us About Living’**\
-`Researchers are documenting a phenomenon that seems to help the dying, as well as those they leave behind.`\
-https://nytimes.com/2024/04/07/podcasts/the-daily/deathbed-visions.html
 
