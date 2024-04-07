@@ -1,3 +1,7 @@
+**Missing ‘1923’ Actor, Cole Brings Plenty, Is Found Dead**\
+`Mr. Brings Plenty, 27, was found dead in Kansas days after his family reported him missing. Officials did not provide a cause of death.`\
+https://nytimes.com/2024/04/07/arts/television/cole-brings-plenty-dead.html
+
 **Albert Heath, Jazz Drum Virtuoso, Is Dead at 88**\
 `He accompanied stars like John Coltrane and worked frequently with his brothers. “I’ve always thought I was a master,” he once said. Few disagreed.`\
 https://nytimes.com/2024/04/07/arts/music/albert-heath-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/07/opinion/solar-eclipse-hare-krishna.html
 **Larry David, Philosopher King**\
 `Larry David’s long-running show was hilarious, but it also revolved around a complex view of modern philosophy.`\
 https://nytimes.com/2024/04/07/opinion/larry-david-curb-philosophy.html
-
-**Israel Is Making the Same Mistake America Made in Iraq**\
-`The I.D.F.’s military challenge is inseparable from its humanitarian obligations.`\
-https://nytimes.com/2024/04/07/opinion/israel-iraq-gaza-civilians.html
 
