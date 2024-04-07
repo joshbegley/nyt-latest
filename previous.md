@@ -1,40 +1,40 @@
-**To Battle Wartime Hunger, Gazans Turn to a Humble Leafy Green**\
-`Palestinians have long gathered and cooked khobeza, a spinach-like wild plant that sprouts after rains. Now, it has become a lifeline.`\
-https://nytimes.com/2024/04/07/world/middleeast/gaza-hunger-food-khobeza.html
+**In Milwaukee, Restaurants and Venues Worry of Seeing Limited R.N.C. Boost**\
+`In Chicago, venues are booking fast for the Democratic convention in August. But Milwaukee, host of the Republican convention, is wondering if customers will come.`\
+https://nytimes.com/2024/04/07/us/politics/republican-convention.html
 
-**Netanyahu is under pressure at home to strike a deal to free the hostages.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/netanyahu-is-under-pressure-at-home-to-strike-a-deal-to-free-the-hostages
+**Before ‘S-Town’ Made Him Famous, Clock Lovers Knew Him Well**\
+`John B. McLemore, the brilliant and quirky star of the hit podcast “S-Town,” is the center of a show highlighting his work in the art of clock restoration.`\
+https://nytimes.com/2024/04/07/arts/s-town-john-mclemore-clocks-exhibition.html
 
-**07mideast-crisis**\
-`Gaza Cease-Fire Talks to Resume in Cairo`\
-https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news
+**Can Minor League Baseball Survive Its Real Estate Problems?**\
+`The fight over a new stadium for the Eugene Emeralds highlights a wider challenge for cheaper alternatives to big-league live sports.`\
+https://nytimes.com/2024/04/07/business/minor-league-baseball-real-estate.html
 
-**“University Challenge” Questions: How Do You Stack Up?**\
-`Our adaptation of a few of the questions that Imperial College got right in the semi-final game.`\
-https://nytimes.com/2024/04/07/business/university-challenge-questions-quiz.html
+**Rachel McAdams Is Not Afraid of the Dark**\
+`The actress makes her Broadway debut in “Mary Jane” as the single mother of a seriously ill child. She views her acting choices as expanding her orbit.`\
+https://nytimes.com/2024/04/07/theater/rachel-mcadams-broadway.html
 
-**Our Reporter on a Hidden Health Insurance Alliance**\
-`A little-known data firm helps health insurers earn more when less of an out-of-network claim gets paid. Patients can be on the hook for the difference.`\
-https://nytimes.com/video/us/100000009396768/our-reporter-on-a-hidden-health-insurance-alliance.html
+**Getting Ready for Watches and Wonders Geneva**\
+`What do you pack? How many watches do you bring? Everyone from first-time invitees to veterans agree that this trade show requires planning.`\
+https://nytimes.com/2024/04/07/fashion/watches-and-wonders-geneva.html
 
-**How Gaza Protesters Are Making Life Difficult for Democratic Leaders**\
-`From President Biden to the mayors of small cities, Democrats have been trailed by demonstrators who are complicating the party’s ability to campaign in an election year.`\
-https://nytimes.com/2024/04/07/us/politics/democrats-israel-gaza-protesters.html
+**Only Watch, a Charity Auction, Is Rescheduled for May**\
+`A social media controversy over the financial transparency of the Monaco association that organizes the event had prompted its cancellation last fall.`\
+https://nytimes.com/2024/04/07/fashion/only-watch-charity-auction-monaco.html
 
-**Grunge: A Dull Date, the Sound of Seattle, a ‘Time Capsule’**\
-`The New York Times has a long and complicated history with the word grunge. Let’s get down and dingy in it.`\
-https://nytimes.com/2024/04/07/insider/grunge-a-dull-date-the-sound-of-seattle-a-time-capsule.html
+**Where to Hang Out in the Swiss Watch World**\
+`After hours, employees of some of the best-known brands in the Vallée de Joux gather at local bars and restaurants, where everyone feels like family.`\
+https://nytimes.com/2024/04/07/fashion/watches-restaurants-vallee-de-joux-switzerland.html
 
-**Gazing Skyward, and Awaiting a Moment of Awe**\
-`Millions of people making plans to be in the path of the solar eclipse on Monday know it will be awe-inspiring. What is that feeling?`\
-https://nytimes.com/2024/04/07/us/solar-eclipse-awe.html
+**Her Husband Signed Up for the Military. She Didn’t.**\
+`In “The Wives,” Simone Gorrindo tells the story of joining a behind-the-scenes sorority — and how it changed her.`\
+https://nytimes.com/2024/04/07/books/review/simone-gorrindo-the-wives.html
 
-**The Connections Companion No. 301**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/07/crosswords/connections-companion.html
+**The Gang That Preyed on America’s Small Museums**\
+`No one mistook them for cat burglars, but authorities say the crew spent two decades pilfering, and in some cases destroying, art and sports treasures, including Yogi Berra’s championship rings.`\
+https://nytimes.com/2024/04/07/arts/design/the-gang-that-preyed-on-americas-small-museums.html
 
-**Q: Who Found a Way to Crack the U.K.’s Premier Quiz Show?**\
-`Brandon Blackwell, a 30-year-old from Queens, helped turn London’s Imperial College into a “University Challenge” powerhouse.`\
-https://nytimes.com/2024/04/07/business/uk-university-challenge-brandon-blackwell.html
+**A Frenchwoman’s Midlife Sexual Awakening**\
+`“Playboy,” an autobiographical novel by the writer Constance Debré, follows a woman who left her husband and job in search of pleasure.`\
+https://nytimes.com/2024/04/07/books/review/constance-debre-playboy.html
 
