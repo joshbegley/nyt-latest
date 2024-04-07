@@ -1,3 +1,7 @@
+**Southwest Plane Makes Emergency Landing After Boeing Engine Cover Falls Off**\
+`The plane returned safely to Denver on Sunday after the crew reported that the cover came apart during takeoff and struck a wing flap. No injuries were reported.`\
+https://nytimes.com/2024/04/07/business/southwest-boeing-engine-takeoff.html
+
 **Carding at a Bar**\
 `Peter Gordon rises to the occasion.`\
 https://nytimes.com/2024/04/07/crosswords/daily-puzzle-2024-04-08.html
