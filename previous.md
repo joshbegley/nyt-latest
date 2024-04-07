@@ -1,3 +1,7 @@
+**Carding at a Bar**\
+`Peter Gordon rises to the occasion.`\
+https://nytimes.com/2024/04/07/crosswords/daily-puzzle-2024-04-08.html
+
 **Can’t Find Eclipse Glasses? Here’s What to Do.**\
 `You can watch a projection of the eclipse using some common household items.`\
 https://nytimes.com/2024/04/07/science/eclipse-glasses-alternatives-watch.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/07/arts/television/cole-brings-plenty-dead.html
 **Albert Heath, Jazz Drum Virtuoso, Is Dead at 88**\
 `He accompanied stars like John Coltrane and worked frequently with his brothers. “I’ve always thought I was a master,” he once said. Few disagreed.`\
 https://nytimes.com/2024/04/07/arts/music/albert-heath-dead.html
-
-**The Thinning of Oprah Winfrey**\
-`Her influence about weight and dieting and its objectives runs deep. Also: Unplugged from social media; keeping rodents away; ushering in spring.`\
-https://nytimes.com/2024/04/07/opinion/oprah-winfrey-diet.html
 

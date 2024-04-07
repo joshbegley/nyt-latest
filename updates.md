@@ -1,3 +1,7 @@
+**Carding at a Bar**\
+`Peter Gordon rises to the occasion.`\
+https://nytimes.com/2024/04/07/crosswords/daily-puzzle-2024-04-08.html
+
 **Can’t Find Eclipse Glasses? Here’s What to Do.**\
 `You can watch a projection of the eclipse using some common household items.`\
 https://nytimes.com/2024/04/07/science/eclipse-glasses-alternatives-watch.html
