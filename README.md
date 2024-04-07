@@ -1,3 +1,7 @@
+**Kristen Wiig Hosts ‘SNL’ With Help From a Few Famous Friends**\
+`Matt Damon, Ryan Gosling, Paul Rudd, Jon Hamm, Martin Short, Paula Pell, Fred Armisen and Will Forte all turned out to help induct Wiig into the show’s Five-Timers Club.`\
+https://nytimes.com/2024/04/07/arts/television/saturday-night-live-kristen-wiig-five-timers-club.html
+
 **Fact Check: An Explanation of Benefits**\
 `Insurers sometimes suggest that a medical provider agreed to a lower payment, even when it’s not so. This patient was billed the amount that Cigna identified as savings.`\
 https://nytimes.com/interactive/2024/04/07/us/insurer-hidden-fees-cigna-example.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/07/world/asia/south-korea-election-yoon.html
 **Trump Fund-Raiser Rakes In More Than $50.5 Million, Campaign Says**\
 `The event, hosted at the Palm Beach home of the hedge-fund billionaire John Paulson, follows a concerted effort by the Trump campaign to close the money gap with Democrats.`\
 https://nytimes.com/2024/04/06/us/politics/trump-fund-raiser-palm-beach.html
-
-**Dozens of Major Bridges Lack Shields to Block Wayward Ships**\
-`The collapse of the Key Bridge in Baltimore has prompted a reassessment of critical bridges around the country that may be similarly vulnerable to a ship strike.`\
-https://nytimes.com/interactive/2024/04/06/us/bridge-collapse-protections-baltimore.html
 
