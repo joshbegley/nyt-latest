@@ -1,3 +1,7 @@
+**Democratic Group to Spend $186 Million Aiming to Win Back House Majority**\
+`In an interview on Sunday, the House Majority PAC president described the group’s investment as part of “an offensive strategy” for this election year.`\
+https://nytimes.com/2024/04/07/us/politics/democrats-house-campaign-ad-spending.html
+
 **Man Arrested After Fire Set Outside Bernie Sanders’s Vermont Office**\
 `Prosecutors and the police did not identify a possible motive for the fire, which was started on Friday. No one was injured.`\
 https://nytimes.com/2024/04/07/us/bernie-sanders-fire-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/07/dining/the-secret-to-these-shrimp-tacos-is-worces
 **Israel Withdraws a Division of Troops From Southern Gaza**\
 `Israeli news media reported that the departure of the 98th Division meant there were no Israeli troops actively maneuvering in the southern Strip.`\
 https://nytimes.com/2024/04/07/world/middleeast/israel-troops-southern-gaza.html
-
-**Amid fears of an Iranian strike, Israel says it’s prepared for ‘any scenario.’**\
-`By Cassandra Vinograd and Aaron Boxerman`\
-https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/amid-fears-of-an-iranian-strike-israel-says-its-prepared-for-any-scenario
 

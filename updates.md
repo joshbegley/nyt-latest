@@ -1,3 +1,7 @@
+**Democratic Group to Spend $186 Million Aiming to Win Back House Majority**\
+`In an interview on Sunday, the House Majority PAC president described the group’s investment as part of “an offensive strategy” for this election year.`\
+https://nytimes.com/2024/04/07/us/politics/democrats-house-campaign-ad-spending.html
+
 **Man Arrested After Fire Set Outside Bernie Sanders’s Vermont Office**\
 `Prosecutors and the police did not identify a possible motive for the fire, which was started on Friday. No one was injured.`\
 https://nytimes.com/2024/04/07/us/bernie-sanders-fire-arrest.html
