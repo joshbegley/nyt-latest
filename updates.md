@@ -1,3 +1,11 @@
+**Can’t Find Eclipse Glasses? Here’s What to Do.**\
+`You can watch a projection of the eclipse using some common household items.`\
+https://nytimes.com/2024/04/07/science/eclipse-glasses-alternatives-watch.html
+
+**Monday Briefing: Israel Pulls Some Troops from Southern Gaza**\
+`Also, Mexico and Nicaragua severed diplomatic relations with Ecuador.`\
+https://nytimes.com/2024/04/07/world/asia/israel-gaza-mexico-ecuador-asia.html
+
 **Democratic Group to Spend $186 Million Aiming to Win Back House Majority**\
 `In an interview on Sunday, the House Majority PAC president described the group’s investment as part of “an offensive strategy” for this election year.`\
 https://nytimes.com/2024/04/07/us/politics/democrats-house-campaign-ad-spending.html

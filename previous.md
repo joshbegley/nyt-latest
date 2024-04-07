@@ -1,3 +1,11 @@
+**Can’t Find Eclipse Glasses? Here’s What to Do.**\
+`You can watch a projection of the eclipse using some common household items.`\
+https://nytimes.com/2024/04/07/science/eclipse-glasses-alternatives-watch.html
+
+**Monday Briefing: Israel Pulls Some Troops from Southern Gaza**\
+`Also, Mexico and Nicaragua severed diplomatic relations with Ecuador.`\
+https://nytimes.com/2024/04/07/world/asia/israel-gaza-mexico-ecuador-asia.html
+
 **Democratic Group to Spend $186 Million Aiming to Win Back House Majority**\
 `In an interview on Sunday, the House Majority PAC president described the group’s investment as part of “an offensive strategy” for this election year.`\
 https://nytimes.com/2024/04/07/us/politics/democrats-house-campaign-ad-spending.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/07/arts/music/albert-heath-dead.html
 **The Thinning of Oprah Winfrey**\
 `Her influence about weight and dieting and its objectives runs deep. Also: Unplugged from social media; keeping rodents away; ushering in spring.`\
 https://nytimes.com/2024/04/07/opinion/oprah-winfrey-diet.html
-
-**The Secret to These Shrimp Tacos Is Worcestershire**\
-`These tacos marry seafood with poblano chiles, diced onions and melted cheese on flour tortillas`\
-https://nytimes.com/2024/04/07/dining/the-secret-to-these-shrimp-tacos-is-worcestershire.html
-
-**Israel Withdraws a Division of Troops From Southern Gaza**\
-`Israeli news media reported that the departure of the 98th Division meant there were no Israeli troops actively maneuvering in the southern Strip.`\
-https://nytimes.com/2024/04/07/world/middleeast/israel-troops-southern-gaza.html
 
