@@ -1,3 +1,23 @@
+**My Faith Forbade Eclipse Gazing. Now It Inspires My Art.**\
+`An artist ponders how his religious childhood affects the art he now creates around eclipse imagery.`\
+https://nytimes.com/2024/04/07/opinion/solar-eclipse-hare-krishna.html
+
+**Larry David, Philosopher King**\
+`Larry David’s long-running show was hilarious, but it also revolved around a complex view of modern philosophy.`\
+https://nytimes.com/2024/04/07/opinion/larry-david-curb-philosophy.html
+
+**Israel Is Making the Same Mistake America Made in Iraq**\
+`The I.D.F.’s military challenge is inseparable from its humanitarian obligations.`\
+https://nytimes.com/2024/04/07/opinion/israel-iraq-gaza-civilians.html
+
+**What Netanyahu Must Do to Bring Home the Hostages**\
+`It is evident in everything he has done that their safety is not his top priority.`\
+https://nytimes.com/2024/04/07/opinion/netanyahu-hostages-hamas-israel.html
+
+**America Was Once the Country Begging Richer Allies for Help**\
+`The logic of foreign entanglement was the same then as now.`\
+https://nytimes.com/2024/04/07/opinion/america-foreign-aid-power-congress.html
+
 **Thirty Years After a Genocide in Rwanda, Painful Memories Run Deep**\
 `The Central African country is marking the anniversary of a monthslong rampage by militiamen that killed some 800,000 people.`\
 https://nytimes.com/2024/04/07/world/africa/rwanda-genocide-thirty-years.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/04/07/magazine/trump-corporate-business.html
 **In Milwaukee, Restaurants and Venues Worry of Seeing Limited R.N.C. Boost**\
 `In Chicago, venues are booking fast for the Democratic convention in August. But Milwaukee, host of the Republican convention, is wondering if customers will come.`\
 https://nytimes.com/2024/04/07/us/politics/republican-convention.html
-
-**Before ‘S-Town’ Made Him Famous, Clock Lovers Knew Him Well**\
-`John B. McLemore, the brilliant and quirky star of the hit podcast “S-Town,” is the center of a show highlighting his work in the art of clock restoration.`\
-https://nytimes.com/2024/04/07/arts/s-town-john-mclemore-clocks-exhibition.html
-
-**Can Minor League Baseball Survive Its Real Estate Problems?**\
-`The fight over a new stadium for the Eugene Emeralds highlights a wider challenge for cheaper alternatives to big-league live sports.`\
-https://nytimes.com/2024/04/07/business/minor-league-baseball-real-estate.html
-
-**Rachel McAdams Is Not Afraid of the Dark**\
-`The actress makes her Broadway debut in “Mary Jane” as the single mother of a seriously ill child. She views her acting choices as expanding her orbit.`\
-https://nytimes.com/2024/04/07/theater/rachel-mcadams-broadway.html
-
-**Getting Ready for Watches and Wonders Geneva**\
-`What do you pack? How many watches do you bring? Everyone from first-time invitees to veterans agree that this trade show requires planning.`\
-https://nytimes.com/2024/04/07/fashion/watches-and-wonders-geneva.html
-
-**Only Watch, a Charity Auction, Is Rescheduled for May**\
-`A social media controversy over the financial transparency of the Monaco association that organizes the event had prompted its cancellation last fall.`\
-https://nytimes.com/2024/04/07/fashion/only-watch-charity-auction-monaco.html
 
