@@ -1,3 +1,7 @@
+**To Battle Wartime Hunger, Gazans Turn to a Humble Leafy Green**\
+`Palestinians have long gathered and cooked khobeza, a spinach-like wild plant that sprouts after rains. Now, it has become a lifeline.`\
+https://nytimes.com/2024/04/07/world/middleeast/gaza-hunger-food-khobeza.html
+
 **Netanyahu is under pressure at home to strike a deal to free the hostages.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/netanyahu-is-under-pressure-at-home-to-strike-a-deal-to-free-the-hostages

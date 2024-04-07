@@ -1,3 +1,7 @@
+**To Battle Wartime Hunger, Gazans Turn to a Humble Leafy Green**\
+`Palestinians have long gathered and cooked khobeza, a spinach-like wild plant that sprouts after rains. Now, it has become a lifeline.`\
+https://nytimes.com/2024/04/07/world/middleeast/gaza-hunger-food-khobeza.html
+
 **Netanyahu is under pressure at home to strike a deal to free the hostages.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/netanyahu-is-under-pressure-at-home-to-strike-a-deal-to-free-the-hostages
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/07/crosswords/connections-companion.html
 **Q: Who Found a Way to Crack the U.K.’s Premier Quiz Show?**\
 `Brandon Blackwell, a 30-year-old from Queens, helped turn London’s Imperial College into a “University Challenge” powerhouse.`\
 https://nytimes.com/2024/04/07/business/uk-university-challenge-brandon-blackwell.html
-
-**Health Insurers’ Lucrative, Little-Known Alliance: 5 Takeaways**\
-`A private-equity-backed firm has helped drive down payments to medical providers, drive up patients’ bills and earn billions for insurers.`\
-https://nytimes.com/2024/04/07/us/health-insurance-medical-bills-takeaways.html
 
