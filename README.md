@@ -1,3 +1,15 @@
+**Biden and Japan’s Leader Look to Bind Ties to Outlast Them Both**\
+`Hovering over a state visit to Washington is the possibility of a swing in American foreign policy if Donald Trump returns to the White House.`\
+https://nytimes.com/2024/04/07/world/asia/biden-kishida-state-visit.html
+
+**Homecoming**\
+`A single photo captures a moment of setback for families who had tried for a better life.`\
+https://nytimes.com/2024/04/07/world/asia/homecoming.html
+
+**‘Gladiator Politics’ Dominate Election Season in Polarized South Korea**\
+`This week’s parliamentary elections are widely seen as a referendum on both President Yoon Suk Yeol and his archrival, Lee Jae-myung, the opposition leader.`\
+https://nytimes.com/2024/04/07/world/asia/south-korea-election-yoon.html
+
 **Trump Fund-Raiser Rakes In More Than $50.5 Million, Campaign Says**\
 `The event, hosted at the Palm Beach home of the hedge-fund billionaire John Paulson, follows a concerted effort by the Trump campaign to close the money gap with Democrats.`\
 https://nytimes.com/2024/04/06/us/politics/trump-fund-raiser-palm-beach.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/06/crosswords/daily-puzzle-2024-04-07.html
 **Power Shut Off to 55,000 in Colorado to Prevent Wind-Fueled Wildfires**\
 `Xcel Energy said the outage would affect parts of six counties and last until at least noon on Sunday. Winds could reach 100 miles per hour.`\
 https://nytimes.com/2024/04/06/us/colorado-power-shutoffs-xcel-wind.html
-
-**Republican in charge of Ohio elections warns Biden could miss ballot deadline.**\
-`The secretary of state’s office, led by Frank LaRose, a Republican, said Democrats must nominate President Biden by Aug. 7. The party’s convention does not start until Aug. 19.`\
-https://nytimes.com/live/2024/04/06/us/biden-trump-election/biden-ohio-ballot-dnc
-
-**The recovery of a hostage’s body in Gaza fuels anger at weekly protests in Tel Aviv.**\
-`By Gabby Sobelman and Ephrat Livni`\
-https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/the-recovery-of-a-hostages-body-in-gaza-fuels-anger-at-weekly-protests-in-tel-aviv
-
-**Night deliveries of aid in Gaza pose unusual challenges.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/04/06/world/israel-hamas-war-gaza-news/night-deliveries-of-aid-in-gaza-pose-unusual-challenges
 
