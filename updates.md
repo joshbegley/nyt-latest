@@ -1,3 +1,7 @@
+**Amid fears of an Iranian strike, Israel says it’s prepared for ‘any scenario.’**\
+`By Cassandra Vinograd and Aaron Boxerman`\
+https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/amid-fears-of-an-iranian-strike-israel-says-its-prepared-for-any-scenario
+
 **The war is now the longest involving Israel since the 1980s.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/the-war-is-now-the-longest-involving-israel-since-the-1980s
