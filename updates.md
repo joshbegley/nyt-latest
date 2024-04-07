@@ -1,3 +1,7 @@
+**Trump Fund-Raiser Rakes In More Than $50.5 Million, Campaign Says**\
+`The event, hosted at the Palm Beach home of the hedge-fund billionaire John Paulson, follows a concerted effort by the Trump campaign to close the money gap with Democrats.`\
+https://nytimes.com/2024/04/06/us/politics/trump-fund-raiser-palm-beach.html
+
 **Dozens of Major Bridges Lack Shields to Block Wayward Ships**\
 `The collapse of the Key Bridge in Baltimore has prompted a reassessment of critical bridges around the country that may be similarly vulnerable to a ship strike.`\
 https://nytimes.com/interactive/2024/04/06/us/bridge-collapse-protections-baltimore.html
