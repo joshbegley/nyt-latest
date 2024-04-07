@@ -1,3 +1,7 @@
+**Casey Benjamin, Free-Spirited Saxophonist, Dies at 45**\
+`A musical voyager who wouldn’t be limited by genre, style or even instrument, he brought exuberance to the Robert Glasper Experiment and other groups.`\
+https://nytimes.com/2024/04/07/arts/music/casey-benjamin-dead.html
+
 **R.N.C. chairman evades questions on 2020 election outcome.**\
 `Michael Whatley, the newly installed party leader, said he believed there were “irregularities” in the presidential election.`\
 https://nytimes.com/live/2024/04/07/us/biden-trump-election/rnc-whatley-2020-election
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/amid-fears-
 **The war is now the longest involving Israel since the 1980s.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/the-war-is-now-the-longest-involving-israel-since-the-1980s
-
-**Why States Have Spent Billions Subsidizing Hollywood**\
-`Inside the costly competition to attract TV and film shoots.`\
-https://nytimes.com/2024/04/07/briefing/hollywood-tax-breaks.html
 
