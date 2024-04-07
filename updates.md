@@ -1,3 +1,7 @@
+**At rally for hostages, some boo when congressman calls for Gaza aid.**\
+`A speech by Jerrold Nadler, a long-serving Jewish Democrat and supporter of Israel, was met with a mixed response at a New York rally calling for the release of hostages in Gaza.`\
+https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/hostages-rally-nyc-nadler
+
 **Trump, at Fund-Raiser, Says He Wants Immigrants From ‘Nice’ Countries**\
 `At rallies, Donald Trump frequently laments migrants from a list of countries from Africa, Asia and the Middle East as he stokes fears around the surge at the border.`\
 https://nytimes.com/2024/04/07/us/politics/trump-immigrants-nice-countries.html
