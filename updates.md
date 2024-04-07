@@ -1,3 +1,7 @@
+**Corrections: April 7, 2024**\
+`Corrections that appeared in print on Sunday, April 7, 2024.`\
+https://nytimes.com/2024/04/07/pageoneplus/corrections-april-7-2024.html
+
 **Biden and Japan’s Leader Look to Bind Ties to Outlast Them Both**\
 `Hovering over a state visit to Washington is the possibility of a swing in American foreign policy if Donald Trump returns to the White House.`\
 https://nytimes.com/2024/04/07/world/asia/biden-kishida-state-visit.html
