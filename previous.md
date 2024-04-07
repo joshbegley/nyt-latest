@@ -1,3 +1,7 @@
+**Israel Withdraws Troops From Southern Gaza as War Hits 6-Month Mark**\
+`With the conflict at an apparent impasse, international mediators were gathering in Cairo with hopes of brokering a temporary cease-fire.`\
+https://nytimes.com/2024/04/07/world/middleeast/israel-troops-gaza.html
+
 **At Rally for Hostages, Some Boo When Congressman Calls for Gaza Aid**\
 `A speech by Jerrold Nadler, a long-serving Jewish Democrat and supporter of Israel, was met with a mixed response at a New York rally calling for the release of hostages in Gaza.`\
 https://nytimes.com/2024/04/07/world/middleeast/hostages-rally-nyc-nadler.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/07/us/bernie-sanders-fire-arrest.html
 **Casey Benjamin, Free-Spirited Saxophonist, Dies at 45**\
 `A musical voyager who wouldn’t be limited by genre, style or even instrument, he brought exuberance to the Robert Glasper Experiment and other groups.`\
 https://nytimes.com/2024/04/07/arts/music/casey-benjamin-dead.html
-
-**R.N.C. chairman evades questions on 2020 election outcome.**\
-`Michael Whatley, the newly installed party leader, said he believed there were “irregularities” in the presidential election.`\
-https://nytimes.com/live/2024/04/07/us/biden-trump-election/rnc-whatley-2020-election
 

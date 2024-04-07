@@ -1,3 +1,7 @@
+**Israel Withdraws Troops From Southern Gaza as War Hits 6-Month Mark**\
+`With the conflict at an apparent impasse, international mediators were gathering in Cairo with hopes of brokering a temporary cease-fire.`\
+https://nytimes.com/2024/04/07/world/middleeast/israel-troops-gaza.html
+
 **At Rally for Hostages, Some Boo When Congressman Calls for Gaza Aid**\
 `A speech by Jerrold Nadler, a long-serving Jewish Democrat and supporter of Israel, was met with a mixed response at a New York rally calling for the release of hostages in Gaza.`\
 https://nytimes.com/2024/04/07/world/middleeast/hostages-rally-nyc-nadler.html
