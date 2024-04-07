@@ -1,3 +1,11 @@
+**Thirty Years After a Genocide in Rwanda, Painful Memories Run Deep**\
+`The Central African country is marking the anniversary of a monthslong rampage by militiamen that killed some 800,000 people.`\
+https://nytimes.com/2024/04/07/world/africa/rwanda-genocide-thirty-years.html
+
+**The Sunday Read: ‘What Deathbed Visions Teach Us About Living’**\
+`Researchers are documenting a phenomenon that seems to help the dying, as well as those they leave behind.`\
+https://nytimes.com/2024/04/07/podcasts/the-daily/deathbed-visions.html
+
 **Anticipation and Anxiety Build Ahead of the Total Solar Eclipse**\
 `Across parts of the United States, Mexico and Canada, would-be eclipse-gazers are on the move for what could be a once-in-a-lifetime event.`\
 https://nytimes.com/2024/04/07/science/total-solar-eclipse-weather-traffic-new-york-texas-mexico.html
