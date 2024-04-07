@@ -1,3 +1,7 @@
+**Why States Have Spent Billions Subsidizing Hollywood**\
+`Inside the costly competition to attract TV and film shoots.`\
+https://nytimes.com/2024/04/07/briefing/hollywood-tax-breaks.html
+
 **My Faith Forbade Eclipse Gazing. Now It Inspires My Art.**\
 `An artist ponders how his religious childhood affects the art he now creates around eclipse imagery.`\
 https://nytimes.com/2024/04/07/opinion/solar-eclipse-hare-krishna.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/07/science/total-solar-eclipse-weather-traffic-new-y
 **Is Corporate America in Denial About Trump?**\
 `Despite his populist promises, many bigwigs are keeping the faith that it couldn’t really happen here.`\
 https://nytimes.com/2024/04/07/magazine/trump-corporate-business.html
-
-**In Milwaukee, Restaurants and Venues Worry of Seeing Limited R.N.C. Boost**\
-`In Chicago, venues are booking fast for the Democratic convention in August. But Milwaukee, host of the Republican convention, is wondering if customers will come.`\
-https://nytimes.com/2024/04/07/us/politics/republican-convention.html
 
