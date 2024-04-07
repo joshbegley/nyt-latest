@@ -1,3 +1,7 @@
+**Southwest Plane Makes Emergency Landing After Boeing Engine Cover Falls Off**\
+`The plane returned safely to Denver on Sunday after the crew reported that the cover came apart during takeoff and struck a wing flap. No injuries were reported.`\
+https://nytimes.com/2024/04/07/business/southwest-boeing-engine-takeoff.html
+
 **Carding at a Bar**\
 `Peter Gordon rises to the occasion.`\
 https://nytimes.com/2024/04/07/crosswords/daily-puzzle-2024-04-08.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/world-centr
 **Missing ‘1923’ Actor, Cole Brings Plenty, Is Found Dead**\
 `Mr. Brings Plenty, 27, was found dead in Kansas days after his family reported him missing. Officials did not provide a cause of death.`\
 https://nytimes.com/2024/04/07/arts/television/cole-brings-plenty-dead.html
-
-**Albert Heath, Jazz Drum Virtuoso, Is Dead at 88**\
-`He accompanied stars like John Coltrane and worked frequently with his brothers. “I’ve always thought I was a master,” he once said. Few disagreed.`\
-https://nytimes.com/2024/04/07/arts/music/albert-heath-dead.html
 
