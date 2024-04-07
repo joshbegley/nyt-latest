@@ -1,3 +1,11 @@
+**Netanyahu is under pressure at home to strike a deal to free the hostages.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/netanyahu-is-under-pressure-at-home-to-strike-a-deal-to-free-the-hostages
+
+**07mideast-crisis**\
+`Gaza Cease-Fire Talks to Resume in Cairo`\
+https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news
+
 **“University Challenge” Questions: How Do You Stack Up?**\
 `Our adaptation of a few of the questions that Imperial College got right in the semi-final game.`\
 https://nytimes.com/2024/04/07/business/university-challenge-questions-quiz.html

@@ -1,3 +1,11 @@
+**Netanyahu is under pressure at home to strike a deal to free the hostages.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/netanyahu-is-under-pressure-at-home-to-strike-a-deal-to-free-the-hostages
+
+**07mideast-crisis**\
+`Gaza Cease-Fire Talks to Resume in Cairo`\
+https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news
+
 **“University Challenge” Questions: How Do You Stack Up?**\
 `Our adaptation of a few of the questions that Imperial College got right in the semi-final game.`\
 https://nytimes.com/2024/04/07/business/university-challenge-questions-quiz.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/07/business/uk-university-challenge-brandon-blackwel
 **Health Insurers’ Lucrative, Little-Known Alliance: 5 Takeaways**\
 `A private-equity-backed firm has helped drive down payments to medical providers, drive up patients’ bills and earn billions for insurers.`\
 https://nytimes.com/2024/04/07/us/health-insurance-medical-bills-takeaways.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/07/crosswords/spelling-bee-forum.html
-
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/07/crosswords/wordle-review.html
 
