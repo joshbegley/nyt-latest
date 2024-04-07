@@ -1,3 +1,7 @@
+**“University Challenge” Questions: How Do You Stack Up?**\
+`Our adaptation of a few of the questions that Imperial College got right in the semi-final game.`\
+https://nytimes.com/2024/04/07/business/university-challenge-questions-quiz.html
+
 **Our Reporter on a Hidden Health Insurance Alliance**\
 `A little-known data firm helps health insurers earn more when less of an out-of-network claim gets paid. Patients can be on the hook for the difference.`\
 https://nytimes.com/video/us/100000009396768/our-reporter-on-a-hidden-health-insurance-alliance.html

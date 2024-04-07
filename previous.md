@@ -1,3 +1,7 @@
+**“University Challenge” Questions: How Do You Stack Up?**\
+`Our adaptation of a few of the questions that Imperial College got right in the semi-final game.`\
+https://nytimes.com/2024/04/07/business/university-challenge-questions-quiz.html
+
 **Our Reporter on a Hidden Health Insurance Alliance**\
 `A little-known data firm helps health insurers earn more when less of an out-of-network claim gets paid. Patients can be on the hook for the difference.`\
 https://nytimes.com/video/us/100000009396768/our-reporter-on-a-hidden-health-insurance-alliance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/07/crosswords/spelling-bee-forum.html
 **Today’s Wordle Review**\
 `In case you need some puzzle help.`\
 https://nytimes.com/2024/04/07/crosswords/wordle-review.html
-
-**‘The Late Hour Meant Taking a Cab Home, Something I Mostly Avoid’**\
-`A scruffy driver’s musical surprise, an unexpected lift and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/04/07/nyregion/metropolitan-diary.html
 
