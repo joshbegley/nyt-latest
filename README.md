@@ -1,3 +1,11 @@
+**Anticipation and Anxiety Build Ahead of the Total Solar Eclipse**\
+`Across parts of the United States, Mexico and Canada, would-be eclipse-gazers are on the move for what could be a once-in-a-lifetime event.`\
+https://nytimes.com/2024/04/07/science/total-solar-eclipse-weather-traffic-new-york-texas-mexico.html
+
+**Is Corporate America in Denial About Trump?**\
+`Despite his populist promises, many bigwigs are keeping the faith that it couldn’t really happen here.`\
+https://nytimes.com/2024/04/07/magazine/trump-corporate-business.html
+
 **In Milwaukee, Restaurants and Venues Worry of Seeing Limited R.N.C. Boost**\
 `In Chicago, venues are booking fast for the Democratic convention in August. But Milwaukee, host of the Republican convention, is wondering if customers will come.`\
 https://nytimes.com/2024/04/07/us/politics/republican-convention.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/07/fashion/watches-restaurants-vallee-de-joux-switze
 **Her Husband Signed Up for the Military. She Didn’t.**\
 `In “The Wives,” Simone Gorrindo tells the story of joining a behind-the-scenes sorority — and how it changed her.`\
 https://nytimes.com/2024/04/07/books/review/simone-gorrindo-the-wives.html
-
-**The Gang That Preyed on America’s Small Museums**\
-`No one mistook them for cat burglars, but authorities say the crew spent two decades pilfering, and in some cases destroying, art and sports treasures, including Yogi Berra’s championship rings.`\
-https://nytimes.com/2024/04/07/arts/design/the-gang-that-preyed-on-americas-small-museums.html
-
-**A Frenchwoman’s Midlife Sexual Awakening**\
-`“Playboy,” an autobiographical novel by the writer Constance Debré, follows a woman who left her husband and job in search of pleasure.`\
-https://nytimes.com/2024/04/07/books/review/constance-debre-playboy.html
 
