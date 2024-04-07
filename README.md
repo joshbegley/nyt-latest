@@ -1,3 +1,7 @@
+**R.N.C. chairman evades questions on 2020 election outcome.**\
+`Michael Whatley, the newly installed party leader, said he believed there were “irregularities” in the presidential election.`\
+https://nytimes.com/live/2024/04/07/us/biden-trump-election/rnc-whatley-2020-election
+
 **World Central Kitchen’s founder says Israel seems to be waging a war on ‘humanity itself.’**\
 `By Erica L. Green`\
 https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/world-central-kitchens-founder-says-israel-seems-to-be-waging-a-war-on-humanity-itself
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/the-war-is-
 **Why States Have Spent Billions Subsidizing Hollywood**\
 `Inside the costly competition to attract TV and film shoots.`\
 https://nytimes.com/2024/04/07/briefing/hollywood-tax-breaks.html
-
-**My Faith Forbade Eclipse Gazing. Now It Inspires My Art.**\
-`An artist ponders how his religious childhood affects the art he now creates around eclipse imagery.`\
-https://nytimes.com/2024/04/07/opinion/solar-eclipse-hare-krishna.html
 
