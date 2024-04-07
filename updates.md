@@ -1,3 +1,7 @@
+**R.N.C. chairman evades questions on 2020 election outcome.**\
+`Michael Whatley, the newly installed party leader, said he believed there were “irregularities” in the presidential election.`\
+https://nytimes.com/live/2024/04/07/us/biden-trump-election/rnc-whatley-2020-election
+
 **World Central Kitchen’s founder says Israel seems to be waging a war on ‘humanity itself.’**\
 `By Erica L. Green`\
 https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/world-central-kitchens-founder-says-israel-seems-to-be-waging-a-war-on-humanity-itself
