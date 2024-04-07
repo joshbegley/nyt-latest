@@ -1,3 +1,7 @@
+**Albert Heath, Jazz Drum Virtuoso, Is Dead at 88**\
+`He accompanied stars like John Coltrane and worked frequently with his brothers. “I’ve always thought I was a master,” he once said. Few disagreed.`\
+https://nytimes.com/2024/04/07/arts/music/albert-heath-dead.html
+
 **The Thinning of Oprah Winfrey**\
 `Her influence about weight and dieting and its objectives runs deep. Also: Unplugged from social media; keeping rodents away; ushering in spring.`\
 https://nytimes.com/2024/04/07/opinion/oprah-winfrey-diet.html
