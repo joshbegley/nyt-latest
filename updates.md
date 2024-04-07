@@ -1,3 +1,11 @@
+**Anticipation and Anxiety Build Ahead of the Total Solar Eclipse**\
+`Across parts of the United States, Mexico and Canada, would-be eclipse-gazers are on the move for what could be a once-in-a-lifetime event.`\
+https://nytimes.com/2024/04/07/science/total-solar-eclipse-weather-traffic-new-york-texas-mexico.html
+
+**Is Corporate America in Denial About Trump?**\
+`Despite his populist promises, many bigwigs are keeping the faith that it couldn’t really happen here.`\
+https://nytimes.com/2024/04/07/magazine/trump-corporate-business.html
+
 **In Milwaukee, Restaurants and Venues Worry of Seeing Limited R.N.C. Boost**\
 `In Chicago, venues are booking fast for the Democratic convention in August. But Milwaukee, host of the Republican convention, is wondering if customers will come.`\
 https://nytimes.com/2024/04/07/us/politics/republican-convention.html
