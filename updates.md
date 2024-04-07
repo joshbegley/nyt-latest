@@ -1,3 +1,7 @@
+**Happy 20th Anniversary, Gmail. I’m Sorry I’m Leaving You.**\
+`Hey, there’s a better way to do email.`\
+https://nytimes.com/2024/04/07/opinion/gmail-email-digital-shame.html
+
 **A C.I.A. Black Site Remains a Touchy Subject for Lithuania**\
 `Despite rulings in European courts saying the Baltic country was home to a secret prison, the issue has been shrouded in official secrecy in a nation closely allied with the United States.`\
 https://nytimes.com/2024/04/07/world/europe/cia-black-site-lithuania.html

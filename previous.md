@@ -1,3 +1,7 @@
+**Happy 20th Anniversary, Gmail. I’m Sorry I’m Leaving You.**\
+`Hey, there’s a better way to do email.`\
+https://nytimes.com/2024/04/07/opinion/gmail-email-digital-shame.html
+
 **A C.I.A. Black Site Remains a Touchy Subject for Lithuania**\
 `Despite rulings in European courts saying the Baltic country was home to a secret prison, the issue has been shrouded in official secrecy in a nation closely allied with the United States.`\
 https://nytimes.com/2024/04/07/world/europe/cia-black-site-lithuania.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/06/world/europe/slovakia-election-president.html
 **Another Israeli Hostage’s Body Recovered, the Death Angering His Family**\
 `Like the families of other hostages, they are outraged that the Israeli government has yet to reach a deal to halt the fighting and bring home loved ones held in Gaza.`\
 https://nytimes.com/2024/04/06/world/europe/hostages-israel-gaza-protests.html
-
-**Hillary Clinton Returns to Wellesley, but the Homecoming Is More Complicated**\
-`Pro-Palestinian demonstrations surrounded an appearance at a new research center named after the former secretary of state and presidential nominee at her alma mater.`\
-https://nytimes.com/2024/04/06/us/hillary-clinton-wellesley-protests.html
 
