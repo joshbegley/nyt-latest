@@ -1,3 +1,11 @@
+**Fact Check: An Explanation of Benefits**\
+`Insurers sometimes suggest that a medical provider agreed to a lower payment, even when it’s not so. This patient was billed the amount that Cigna identified as savings.`\
+https://nytimes.com/interactive/2024/04/07/us/insurer-hidden-fees-cigna-example.html
+
+**Inside an Insurer’s Debate About Fees**\
+`Internal emails show UnitedHealthcare employees grappling with complaints about high fees. When one executive suggested limiting the amount charged New England Motor Freight, a colleague resisted.`\
+https://nytimes.com/interactive/2024/04/07/us/insurer-hidden-fees-united-healthcare-emails.html
+
 **Happy 20th Anniversary, Gmail. I’m Sorry I’m Leaving You.**\
 `Hey, there’s a better way to do email.`\
 https://nytimes.com/2024/04/07/opinion/gmail-email-digital-shame.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/06/us/politics/trump-fund-raiser-palm-beach.html
 **Dozens of Major Bridges Lack Shields to Block Wayward Ships**\
 `The collapse of the Key Bridge in Baltimore has prompted a reassessment of critical bridges around the country that may be similarly vulnerable to a ship strike.`\
 https://nytimes.com/interactive/2024/04/06/us/bridge-collapse-protections-baltimore.html
-
-**Pro-Russia Candidate Wins Slovakia’s Presidential Election**\
-`The victory for Peter Pellegrini, an ally of Slovakia’s populist prime minister, strengthens Central Europe’s ties to Moscow.`\
-https://nytimes.com/2024/04/06/world/europe/slovakia-election-president.html
-
-**Another Israeli Hostage’s Body Recovered, the Death Angering His Family**\
-`Like the families of other hostages, they are outraged that the Israeli government has yet to reach a deal to halt the fighting and bring home loved ones held in Gaza.`\
-https://nytimes.com/2024/04/06/world/europe/hostages-israel-gaza-protests.html
 
