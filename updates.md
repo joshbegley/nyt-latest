@@ -1,5 +1,9 @@
 **Israel withdraws a division of troops from southern Gaza.**\
 `By Adam Rasgon`\
+https://nytimes.com/2024/04/07/world/middleeast/israel-withdraws-a-division-of-troops-from-southern-gaza.html
+
+**Israel withdraws a division of troops from southern Gaza.**\
+`By Adam Rasgon`\
 https://nytimes.com/live/2024/04/07/world/israel-hamas-war-gaza-news/israel-withdraws-a-division-of-troops-from-southern-gaza
 
 **Amid fears of an Iranian strike, Israel says it’s prepared for ‘any scenario.’**\
