@@ -1,3 +1,7 @@
+**Why States Have Spent Billions Subsidizing Hollywood**\
+`Inside the costly competition to attract TV and film shoots.`\
+https://nytimes.com/2024/04/07/briefing/hollywood-tax-breaks.html
+
 **My Faith Forbade Eclipse Gazing. Now It Inspires My Art.**\
 `An artist ponders how his religious childhood affects the art he now creates around eclipse imagery.`\
 https://nytimes.com/2024/04/07/opinion/solar-eclipse-hare-krishna.html
