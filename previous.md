@@ -1,6 +1,6 @@
-**Israel withdraws a division of troops from southern Gaza.**\
-`By Adam Rasgon`\
-https://nytimes.com/2024/04/07/world/middleeast/israel-withdraws-a-division-of-troops-from-southern-gaza.html
+**Israel Withdraws a Division of Troops From Southern Gaza**\
+`Israeli news media reported that the departure of the 98th Division meant there were no Israeli troops actively maneuvering in the southern Strip.`\
+https://nytimes.com/2024/04/07/world/middleeast/israel-troops-southern-gaza.html
 
 **Amid fears of an Iranian strike, Israel says it’s prepared for ‘any scenario.’**\
 `By Cassandra Vinograd and Aaron Boxerman`\
