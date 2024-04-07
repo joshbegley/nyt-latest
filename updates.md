@@ -1,3 +1,7 @@
+**Man Arrested After Fire Set Outside Bernie Sanders’s Vermont Office**\
+`Prosecutors and the police did not identify a possible motive for the fire, which was started on Friday. No one was injured.`\
+https://nytimes.com/2024/04/07/us/bernie-sanders-fire-arrest.html
+
 **Casey Benjamin, Free-Spirited Saxophonist, Dies at 45**\
 `A musical voyager who wouldn’t be limited by genre, style or even instrument, he brought exuberance to the Robert Glasper Experiment and other groups.`\
 https://nytimes.com/2024/04/07/arts/music/casey-benjamin-dead.html
