@@ -1,3 +1,11 @@
+**Fact Check: An Explanation of Benefits**\
+`Insurers sometimes suggest that a medical provider agreed to a lower payment, even when it’s not so. This patient was billed the amount that Cigna identified as savings.`\
+https://nytimes.com/interactive/2024/04/07/us/insurer-hidden-fees-cigna-example.html
+
+**Inside an Insurer’s Debate About Fees**\
+`Internal emails show UnitedHealthcare employees grappling with complaints about high fees. When one executive suggested limiting the amount charged New England Motor Freight, a colleague resisted.`\
+https://nytimes.com/interactive/2024/04/07/us/insurer-hidden-fees-united-healthcare-emails.html
+
 **Happy 20th Anniversary, Gmail. I’m Sorry I’m Leaving You.**\
 `Hey, there’s a better way to do email.`\
 https://nytimes.com/2024/04/07/opinion/gmail-email-digital-shame.html
