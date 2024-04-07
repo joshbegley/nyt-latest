@@ -1,3 +1,7 @@
+**A C.I.A. Black Site Remains a Touchy Subject for Lithuania**\
+`Despite rulings in European courts saying the Baltic country was home to a secret prison, the issue has been shrouded in official secrecy in a nation closely allied with the United States.`\
+https://nytimes.com/2024/04/07/world/europe/cia-black-site-lithuania.html
+
 **Corrections: April 7, 2024**\
 `Corrections that appeared in print on Sunday, April 7, 2024.`\
 https://nytimes.com/2024/04/07/pageoneplus/corrections-april-7-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/06/world/europe/hostages-israel-gaza-protests.html
 **Hillary Clinton Returns to Wellesley, but the Homecoming Is More Complicated**\
 `Pro-Palestinian demonstrations surrounded an appearance at a new research center named after the former secretary of state and presidential nominee at her alma mater.`\
 https://nytimes.com/2024/04/06/us/hillary-clinton-wellesley-protests.html
-
-**Double Duty**\
-`Does Tracy Gray have to repeat herself? Yes, yes she does, in this puzzle.`\
-https://nytimes.com/2024/04/06/crosswords/daily-puzzle-2024-04-07.html
 
