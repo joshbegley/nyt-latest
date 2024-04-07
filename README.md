@@ -1,3 +1,11 @@
+**Thirty Years After a Genocide in Rwanda, Painful Memories Run Deep**\
+`The Central African country is marking the anniversary of a monthslong rampage by militiamen that killed some 800,000 people.`\
+https://nytimes.com/2024/04/07/world/africa/rwanda-genocide-thirty-years.html
+
+**The Sunday Read: ‘What Deathbed Visions Teach Us About Living’**\
+`Researchers are documenting a phenomenon that seems to help the dying, as well as those they leave behind.`\
+https://nytimes.com/2024/04/07/podcasts/the-daily/deathbed-visions.html
+
 **Anticipation and Anxiety Build Ahead of the Total Solar Eclipse**\
 `Across parts of the United States, Mexico and Canada, would-be eclipse-gazers are on the move for what could be a once-in-a-lifetime event.`\
 https://nytimes.com/2024/04/07/science/total-solar-eclipse-weather-traffic-new-york-texas-mexico.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/07/fashion/watches-and-wonders-geneva.html
 **Only Watch, a Charity Auction, Is Rescheduled for May**\
 `A social media controversy over the financial transparency of the Monaco association that organizes the event had prompted its cancellation last fall.`\
 https://nytimes.com/2024/04/07/fashion/only-watch-charity-auction-monaco.html
-
-**Where to Hang Out in the Swiss Watch World**\
-`After hours, employees of some of the best-known brands in the Vallée de Joux gather at local bars and restaurants, where everyone feels like family.`\
-https://nytimes.com/2024/04/07/fashion/watches-restaurants-vallee-de-joux-switzerland.html
-
-**Her Husband Signed Up for the Military. She Didn’t.**\
-`In “The Wives,” Simone Gorrindo tells the story of joining a behind-the-scenes sorority — and how it changed her.`\
-https://nytimes.com/2024/04/07/books/review/simone-gorrindo-the-wives.html
 
