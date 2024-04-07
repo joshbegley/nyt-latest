@@ -1,3 +1,15 @@
+**Biden and Japan’s Leader Look to Bind Ties to Outlast Them Both**\
+`Hovering over a state visit to Washington is the possibility of a swing in American foreign policy if Donald Trump returns to the White House.`\
+https://nytimes.com/2024/04/07/world/asia/biden-kishida-state-visit.html
+
+**Homecoming**\
+`A single photo captures a moment of setback for families who had tried for a better life.`\
+https://nytimes.com/2024/04/07/world/asia/homecoming.html
+
+**‘Gladiator Politics’ Dominate Election Season in Polarized South Korea**\
+`This week’s parliamentary elections are widely seen as a referendum on both President Yoon Suk Yeol and his archrival, Lee Jae-myung, the opposition leader.`\
+https://nytimes.com/2024/04/07/world/asia/south-korea-election-yoon.html
+
 **Trump Fund-Raiser Rakes In More Than $50.5 Million, Campaign Says**\
 `The event, hosted at the Palm Beach home of the hedge-fund billionaire John Paulson, follows a concerted effort by the Trump campaign to close the money gap with Democrats.`\
 https://nytimes.com/2024/04/06/us/politics/trump-fund-raiser-palm-beach.html
