@@ -1,3 +1,7 @@
+**Word of the Day: cachet**\
+`This word has appeared in 88 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/08/learning/word-of-the-day-cachet.html
+
 **What’s on TV This Week: ‘Grey Gardens’ and Billy Joel in Concert**\
 `TCM airs the cult classic 1975 documentary, and Joel airs his first broadcast concert at Madison Square Garden.`\
 https://nytimes.com/2024/04/08/arts/television/whats-on-tv-this-week-grey-gardens-and-billy-joel-in-concert.html
@@ -7,7 +11,7 @@ https://nytimes.com/2024/04/08/arts/television/whats-on-tv-this-week-grey-garden
 https://nytimes.com/2024/04/08/briefing/israel-troop-withdrawal-ecuador-mexico.html
 
 **Jerry Grote, Star Mets Catcher on 1969 Championship Team, Dies at 81**\
-`A Met for more than a decade, he was known for his powerful arm and his savvy in calling pitches.`\
+`Known for his field savvy and his powerful arm, he helped to propel the New York Mets through their storied 1969 World Series run.`\
 https://nytimes.com/2024/04/08/sports/baseball/jerry-grote-dead.html
 
 **What Chinese Outrage Over ‘3 Body Problem’ Says About China**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/07/world/middleeast/hostages-rally-nyc-nadler.html
 **Trump, at Fund-Raiser, Says He Wants Immigrants From ‘Nice’ Countries**\
 `At rallies, Donald Trump frequently laments migrants from a list of countries from Africa, Asia and the Middle East as he stokes fears around the surge at the border.`\
 https://nytimes.com/2024/04/07/us/politics/trump-immigrants-nice-countries.html
-
-**Southwest Plane Makes Emergency Landing After Boeing Engine Cover Falls Off**\
-`The plane returned safely to Denver on Sunday after the crew reported that the cover came apart during takeoff and struck a wing flap. No injuries were reported.`\
-https://nytimes.com/2024/04/07/business/southwest-boeing-engine-takeoff.html
 

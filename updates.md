@@ -1,3 +1,11 @@
+**Word of the Day: cachet**\
+`This word has appeared in 88 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/08/learning/word-of-the-day-cachet.html
+
+**Jerry Grote, Star Mets Catcher on 1969 Championship Team, Dies at 81**\
+`Known for his field savvy and his powerful arm, he helped to propel the New York Mets through their storied 1969 World Series run.`\
+https://nytimes.com/2024/04/08/sports/baseball/jerry-grote-dead.html
+
 **What’s on TV This Week: ‘Grey Gardens’ and Billy Joel in Concert**\
 `TCM airs the cult classic 1975 documentary, and Joel airs his first broadcast concert at Madison Square Garden.`\
 https://nytimes.com/2024/04/08/arts/television/whats-on-tv-this-week-grey-gardens-and-billy-joel-in-concert.html
