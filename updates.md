@@ -1,3 +1,7 @@
+**Couples exchange wedding rings, and then don eclipse glasses.**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-weddings
+
 **The second time was the charm for a college town at the eclipse crossroads.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/the-second-time-was-the-charm-for-a-college-town-at-the-eclipse-crossroads

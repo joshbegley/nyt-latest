@@ -1,3 +1,7 @@
+**Couples exchange wedding rings, and then don eclipse glasses.**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-weddings
+
 **The second time was the charm for a college town at the eclipse crossroads.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/the-second-time-was-the-charm-for-a-college-town-at-the-eclipse-crossroads
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/canadians-and-vi
 **Unseasonable warmth arrives just in time in New England.**\
 `By Jenna Russell and Habib Sabet`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/unseasonable-warmth-arrives-just-in-time-in-new-england
-
-**Disappointment on the eclipse train in western New York.**\
-`By Christopher Maag`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/disappointment-on-the-eclipse-train-in-western-new-york
 
