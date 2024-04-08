@@ -1,4 +1,8 @@
-**Jeff Schaffer and Susie Essman on the ‘Curb Your Enthusiasm’ Finale**\
+**In Austin, thousands watched the eclipse during a Vampire Weekend concert.**\
+`By Colbi Edmonds`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/in-austin-thousands-watched-the-eclipse-during-a-vampire-weekend-concert
+
+**‘Curb’ Finale’s ‘Seinfeld’ Tribute Was ‘About Larry’s Contrary DNA’**\
 `In an interview, Jeff Schaffer and Susie Essman discuss the final episode and why Larry David decided to revive the polarizing “Seinfeld” finale.`\
 https://nytimes.com/2024/04/08/arts/television/curb-your-enthusiasm-finale-susie-essman-jeff-schaffer.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/us/missouri-death-penalty-brian-dorsey.html
 **When Tom Ripley Stares Into the Mirror, He Sees Us**\
 `In the new series and in five previous movies, the character serves as a blank slate to examine the mores and concerns of the time.`\
 https://nytimes.com/2024/04/08/movies/tom-ripley-netflix.html
-
-**Putting Abortion Question to Florida Voters is Unlikely to End Court Fights**\
-`Though the Florida Supreme Court allowed a ballot question on expanding abortion rights, it also laid out a way for anti-abortion groups to challenge such an expansion.`\
-https://nytimes.com/2024/04/08/us/florida-abortion-amendment-fetal-personhood.html
 

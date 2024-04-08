@@ -1,3 +1,11 @@
+**In Austin, thousands watched the eclipse during a Vampire Weekend concert.**\
+`By Colbi Edmonds`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/in-austin-thousands-watched-the-eclipse-during-a-vampire-weekend-concert
+
+**‘Curb’ Finale’s ‘Seinfeld’ Tribute Was ‘About Larry’s Contrary DNA’**\
+`In an interview, Jeff Schaffer and Susie Essman discuss the final episode and why Larry David decided to revive the polarizing “Seinfeld” finale.`\
+https://nytimes.com/2024/04/08/arts/television/curb-your-enthusiasm-finale-susie-essman-jeff-schaffer.html
+
 **Jeff Schaffer and Susie Essman on the ‘Curb Your Enthusiasm’ Finale**\
 `In an interview, Jeff Schaffer and Susie Essman discuss the final episode and why Larry David decided to revive the polarizing “Seinfeld” finale.`\
 https://nytimes.com/2024/04/08/arts/television/curb-your-enthusiasm-finale-susie-essman-jeff-schaffer.html
