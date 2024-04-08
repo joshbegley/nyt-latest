@@ -1,3 +1,7 @@
+**Even a quick glance at the sun can cause lasting damage to your eyes.**\
+`By Gina Kolata`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/even-a-quick-glance-at-the-sun-can-cause-lasting-damage-to-your-eyes
+
 **Nicaragua Is Taking Germany to Court Over Supplying Arms to Israel**\
 `A new case before the International Court of Justice argues that the German government is furthering genocide in the Gaza war.`\
 https://nytimes.com/2024/04/08/world/middleeast/nicaragua-germany-world-court-israel-arms.html
