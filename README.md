@@ -1,3 +1,7 @@
+**This is a prediction of what the sun’s corona will look like during the eclipse.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/this-is-a-prediction-of-what-the-suns-corona-will-look-like-during-the-eclipse
+
 **Seeking Answers on Israel and Palestine**\
 `Responses to an essay that rejected a two-state solution. Also: The U.S. and Israel; the eclipse; end-of-life planning; the church of Trump; the peace sign.`\
 https://nytimes.com/2024/04/08/opinion/israel-palestine-two-state-solution.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/nyregion/trump-hush-money-trial-delay.html
 **Spirit Airlines Will Delay Plane Purchases and Furlough Pilots**\
 `The low-cost airline, which has been unprofitable for four years, is trying to reduce costs after a federal judge blocked a proposed deal for JetBlue to acquire Spirit.`\
 https://nytimes.com/2024/04/08/business/spirit-airlines-airbus-pilots.html
-
-**Teen Girls Confront an Epidemic of Deepfake Nudes in Schools**\
-`Using artificial intelligence, middle and high school students have fabricated explicit images of female classmates and shared the doctored pictures.`\
-https://nytimes.com/2024/04/08/technology/deepfake-ai-nudes-westfield-high-school.html
 
