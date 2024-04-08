@@ -1,3 +1,11 @@
+**Trump Says Abortion Law Should Be Left to the States**\
+`After months of mixed signals, the former president said that whatever states decide “must be the law of the land,” adding that he was “strongly in favor of exceptions for rape, incest and life of the mother.”`\
+https://nytimes.com/2024/04/08/us/politics/trump-abortion-states.html
+
+**Eagle Pass, Texas, trades one influx for another.**\
+`Once the epicenter of a migrant crisis, the border region is expected to draw about 100,000 people for April 8’s total eclipse.`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eagle-pass-texas-trades-one-influx-for-another
+
 **Here Are the Most Targeted Books of 2023**\
 `Amid a nationwide surge in book bans, memoirs and novels that deal with the experiences of L.G.B.T.Q. people or explore race received the most challenges.`\
 https://nytimes.com/2024/04/08/books/banned-books-2023.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/08/movies/scoop-prince-andrew-rufus-sewell.html
 **Across the country, viewing the eclipse becomes part of some school days.**\
 `By Mary Beth Gahan and Troy Closson`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/across-the-country-viewing-the-eclipse-becomes-part-of-some-school-days
-
-**U.N. Inspectors Say Nuclear Plant in Ukraine Was Struck by Drones**\
-`The watchdog agency did not attribute blame, but its head said the strikes at the Zaporizhzhia Nuclear Power Plant “significantly increase the risk of a major nuclear accident.”`\
-https://nytimes.com/2024/04/08/world/europe/ukraine-nuclear-power-plant-russia.html
-
-**Listen to the story of ‘Mr. Eclipse.’**\
-`By The Daily Team`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/listen-to-the-story-of-mr-eclipse
 
