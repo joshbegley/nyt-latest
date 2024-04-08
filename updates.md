@@ -1,3 +1,7 @@
+**Unseasonable warmth arrives just in time in New England.**\
+`By Jenna Russell and Habib Sabet`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/unseasonable-warmth-arrives-just-in-time-in-new-england
+
 **Disappointment on the eclipse train in western New York.**\
 `By Christopher Maag`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/disappointment-on-the-eclipse-train-in-western-new-york

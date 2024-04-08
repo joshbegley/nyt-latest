@@ -1,3 +1,7 @@
+**Unseasonable warmth arrives just in time in New England.**\
+`By Jenna Russell and Habib Sabet`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/unseasonable-warmth-arrives-just-in-time-in-new-england
+
 **Disappointment on the eclipse train in western New York.**\
 `By Christopher Maag`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/disappointment-on-the-eclipse-train-in-western-new-york
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/02/opinion/thepoint/solar-eclipse-totality
 **A Moment of Unity, on Earth as in Space**\
 `As totality approached, it felt, for a change, like we were all rooting for the same team.`\
 https://nytimes.com/2024/04/08/opinion/eclipse-totality-unity.html
-
-**Cash-for-Clients Scheme Lands Ex-Court Clerk and Lawyer in Prison**\
-`Dionisio Figueroa used his position in Manhattan federal court to steer defendants to Telesforo Del Valle Jr. in a long-running conspiracy, prosecutors said.`\
-https://nytimes.com/2024/04/08/nyregion/bribery-lawyer-clerk-sentencing.html
 
