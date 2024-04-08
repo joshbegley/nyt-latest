@@ -1,3 +1,11 @@
+**The Eclipse Across North America**\
+`What people in the line of totality were seeing and saying as the eclipse unfolded across the continent.`\
+https://nytimes.com/interactive/2024/04/08/us/total-solar-eclipse-photos.html
+
+**Pence Attacks Trump’s Abortion Statement as a ‘Slap in the Face’**\
+`Mike Pence, an evangelical Christian who embraced abortion restrictions at the federal level shortly after Roe was overturned, called Mr. Trump’s statement a “retreat” on the matter.`\
+https://nytimes.com/2024/04/08/us/politics/pence-attacks-trump-abortion.html
+
 **The Economic Luminary Who Loved Solar Eclipses**\
 `Inspired by science, William Stanley Jevons strove to make economics a more rigorous field.`\
 https://nytimes.com/2024/04/08/opinion/william-stanley-jevons-eclipse.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/08/arts/music/jcole-kendrick-lamar-diss-apology.html
 **When Your Boss Is Your Landlord**\
 `A Brooklyn hospital is trying to evict employees and retirees from staff housing, as it struggles financially, but tenants fear they will now be homeless in an unaffordable city.`\
 https://nytimes.com/2024/04/08/realestate/maimonides-medical-housing-evictions-brooklyn.html
-
-**Biden and Other Democrats Tie Trump to Limits on Abortion Rights**\
-`The former president said he supported leaving abortion decisions to states, but political opponents say he bears responsibility for any curbs enacted.`\
-https://nytimes.com/2024/04/08/us/politics/democrats-abortion-rights-trump.html
-
-**Israeli Opposition Leader Calls for Close Ties With U.S. in Visit**\
-`In the wake of President Biden’s recent warning to Israel to stop the killing of civilians in Gaza, Yair Lapid said the two countries “need to maintain this friendship.”`\
-https://nytimes.com/2024/04/08/world/middleeast/yair-lapid-blinken-washington.html
 
