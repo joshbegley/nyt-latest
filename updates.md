@@ -1,3 +1,7 @@
+**‘It’s our Super Bowl’: This science teacher is going all out for the eclipse.**\
+`Rick Crosslin, a science teacher in Indianapolis, paired up with school maintenance employees to build a giant model of the eclipse.`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/solar-eclipse-science-teachers
+
 **The forecast is cloudy and may veil the eclipse.**\
 `By Judson Jones`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/the-forecast-is-cloudy-and-may-veil-the-eclipse
