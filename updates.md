@@ -1,3 +1,11 @@
+**France Bracing for Cyberattacks During Summer Olympics**\
+`French officials are visiting Washington for cybersecurity consultations as President Emmanuel Macron predicts Moscow will try to target the Games.`\
+https://nytimes.com/2024/04/08/us/politics/france-cyberattacks-summer-olympics.html
+
+**Man Kills 2, Then Himself, at Las Vegas Law Office, Police Say**\
+`The police were still investigating the motive for the morning attack.`\
+https://nytimes.com/2024/04/08/us/shooting-las-vegas-business.html
+
 **3 People Killed in Las Vegas Law Office Shooting**\
 `A  gunman killed two people around 10 a.m., then fatally shot himself, the police said.`\
 https://nytimes.com/2024/04/08/us/shooting-las-vegas-business.html
