@@ -1,3 +1,11 @@
+**Local journalists in upstate New York are on strike as eclipse day arrives.**\
+`By Christopher Maag`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/local-journalists-in-upstate-new-york-are-on-strike-as-eclipse-day-arrives
+
+**J. Cole Apologizes for Kendrick Lamar Diss Track**\
+`J. Cole also vowed to update the track, “7 Minute Drill,” or remove it from streaming services after it was featured on his new album, “Might Delete Later.”`\
+https://nytimes.com/2024/04/08/arts/music/jcole-kendrick-lamar-diss-apology.html
+
 **When Your Boss Is Your Landlord**\
 `A Brooklyn hospital is trying to evict employees and retirees from staff housing, as it struggles financially, but tenants fear they will now be homeless in an unaffordable city.`\
 https://nytimes.com/2024/04/08/realestate/maimonides-medical-housing-evictions-brooklyn.html
