@@ -1,3 +1,7 @@
+**Vatican Document Casts Gender Change and Fluidity as Threat to Human Dignity**\
+`The statement is likely to be embraced by conservatives and stir consternation among L.G.B.T.Q. advocates who fear it will be used as a cudgel against transgender people.`\
+https://nytimes.com/2024/04/08/world/europe/vatican-sex-change-surrogacy-dignity.html
+
 **To Become Prince Andrew, He Needed More Than False Teeth**\
 `In the feature “Scoop,” streaming on Netflix, Rufus Sewell plays the disgraced royal blundering through a 2019 BBC interview.`\
 https://nytimes.com/2024/04/08/movies/scoop-prince-andrew-rufus-sewell.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/podcasts/israels-troops-eclipse.html
 **The Eclipse Chaser**\
 `As millions of Americans prepare to see a total solar eclipse, a retired astrophysicist known as “Mr. Eclipse,” discusses the celestial phenomenon.`\
 https://nytimes.com/2024/04/08/podcasts/the-daily/mr-eclipse.html
-
-**At Least 96 Die After Overloaded Boat Sinks Off Coast of Mozambique**\
-`Some of the victims were en route to a fair and others were fleeing for fear of being affected by a cholera outbreak, a local official said.`\
-https://nytimes.com/2024/04/08/world/africa/mozambique-boat-sinking.html
 
