@@ -1,5 +1,5 @@
 **The Eclipse Across North America**\
-`What people in the line of totality were seeing and saying as the eclipse unfolded across the continent.`\
+`What people in the path of totality were seeing and saying as the eclipse unfolded across the continent.`\
 https://nytimes.com/interactive/2024/04/08/us/total-solar-eclipse-photos.html
 
 **Pence Attacks Trump’s Abortion Statement as a ‘Slap in the Face’**\
