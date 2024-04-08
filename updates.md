@@ -1,3 +1,7 @@
+**What Solar Eclipse-Gazing Has Looked Like for the Past 2 Centuries**\
+`Millions of people on Monday will continue the tradition of experiencing and capturing solar eclipses, a pursuit that has spawned a lot of unusual gear.`\
+https://nytimes.com/2024/04/08/science/solar-eclipse-historic-photos.html
+
 **Catch up on what you should understand about total solar eclipses.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/catch-up-on-what-you-should-understand-about-total-solar-eclipses
