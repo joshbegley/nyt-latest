@@ -1,3 +1,7 @@
+**How Abortion, and I.V.F., Flipped an Alabama State House Seat**\
+`Marilyn Lands’s victory in a special election provided an early blueprint for Democrats who are eager to make reproductive rights central to their campaigns.`\
+https://nytimes.com/2024/04/08/us/politics/alabama-abortion-ivf-house-seat.html
+
 **Eclipse, the Musical, stages its final performance.**\
 `By Christopher Maag`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-the-musical-stages-its-final-performance
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/theater/manhattan-theater-club-sondheim-old-frien
 **Tayi Tibble, Maori Poet and ‘It Girl’, Trusts the Wisdom of Her Ancestors**\
 `Tibble, 28, has been hailed as the fresh, funny and immensely skilled voice of a generation.`\
 https://nytimes.com/2024/04/08/books/booksupdate/tayi-tibble-maori-poet.html
-
-**Arkansas has never seen anything like the tourist flood it’s expecting for the eclipse.**\
-`By Emily Cochrane`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/arkansas-has-never-seen-anything-like-the-tourist-flood-its-expecting-for-the-eclipse
 
