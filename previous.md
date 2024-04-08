@@ -1,3 +1,7 @@
+**The Economic Luminary Who Loved Solar Eclipses**\
+`Inspired by science, William Stanley Jevons strove to make economics a more rigorous field.`\
+https://nytimes.com/2024/04/08/opinion/william-stanley-jevons-eclipse.html
+
 **Scientists on a boat in the Pacific Ocean got an early view of the total solar eclipse.**\
 `Scientists studying underwater volcanoes aboard a research vessel were caught in the path of totality and experienced the event before it reached land in Mexico.`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/scientists-on-a-boat-in-the-pacific-ocean-got-an-early-view-of-the-total-solar-eclipse
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/us/politics/democrats-abortion-rights-trump.html
 **Israeli Opposition Leader Calls for Close Ties With U.S. in Visit**\
 `In the wake of President Biden’s recent warning to Israel to stop the killing of civilians in Gaza, Yair Lapid said the two countries “need to maintain this friendship.”`\
 https://nytimes.com/2024/04/08/world/middleeast/yair-lapid-blinken-washington.html
-
-**In California, Half an Eclipse Is Better Than None**\
-`Californians in the Bay Area and in Southern California braced for a favorable view of the partial eclipse as clouds dissipated on Monday morning.`\
-https://nytimes.com/2024/04/08/us/solar-eclipse-california.html
 

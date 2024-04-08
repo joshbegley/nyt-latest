@@ -1,3 +1,7 @@
+**The Economic Luminary Who Loved Solar Eclipses**\
+`Inspired by science, William Stanley Jevons strove to make economics a more rigorous field.`\
+https://nytimes.com/2024/04/08/opinion/william-stanley-jevons-eclipse.html
+
 **Scientists on a boat in the Pacific Ocean got an early view of the total solar eclipse.**\
 `Scientists studying underwater volcanoes aboard a research vessel were caught in the path of totality and experienced the event before it reached land in Mexico.`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/scientists-on-a-boat-in-the-pacific-ocean-got-an-early-view-of-the-total-solar-eclipse
