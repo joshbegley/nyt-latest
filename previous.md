@@ -1,3 +1,7 @@
+**7 years ago, Americans looked up in unison.**\
+`By Orlando Mayorquín`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/7-years-ago-americans-looked-up-in-unison
+
 **Even a quick glance at the sun can cause lasting damage to your eyes.**\
 `By Gina Kolata`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/even-a-quick-glance-at-the-sun-can-cause-lasting-damage-to-your-eyes
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/nyregion/donald-trump-trial-what-to-know.html
 **The Connections Companion No. 302**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/04/08/crosswords/connections-companion.html
-
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/08/crosswords/wordle-review.html
 
