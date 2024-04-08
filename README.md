@@ -1,4 +1,4 @@
-**Why the ‘Curb’ Finale Steered ‘the Titanic Right Back at the Iceberg’**\
+**Jeff Schaffer and Susie Essman on the ‘Curb Your Enthusiasm’ Finale**\
 `In an interview, Jeff Schaffer and Susie Essman discuss the final episode and why Larry David decided to revive the polarizing “Seinfeld” finale.`\
 https://nytimes.com/2024/04/08/arts/television/curb-your-enthusiasm-finale-susie-essman-jeff-schaffer.html
 
