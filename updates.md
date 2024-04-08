@@ -1,3 +1,7 @@
+**‘A day I will never forget.’ More than 100,000 visitors witness the eclipse on Mexico’s coast.**\
+`By Simon Romero`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/a-day-i-will-never-forget-more-than-100000-visitors-witness-the-eclipse-on-mexicos-coast
+
 **As crowds gathered around New York City, there was a quiet spot.**\
 `By Michael Wilson`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/as-crowds-gathered-around-new-york-city-there-was-a-quiet-spot

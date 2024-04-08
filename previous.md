@@ -1,3 +1,7 @@
+**‘A day I will never forget.’ More than 100,000 visitors witness the eclipse on Mexico’s coast.**\
+`By Simon Romero`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/a-day-i-will-never-forget-more-than-100000-visitors-witness-the-eclipse-on-mexicos-coast
+
 **As crowds gathered around New York City, there was a quiet spot.**\
 `By Michael Wilson`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/as-crowds-gathered-around-new-york-city-there-was-a-quiet-spot
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/us/col-ralph-puckett-jr-dead.html
 **In Austin, thousands watched the eclipse during a Vampire Weekend concert.**\
 `By Colbi Edmonds`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/in-austin-thousands-watched-the-eclipse-during-a-vampire-weekend-concert
-
-**‘Curb’ Finale Shows ‘Larry’s Never Learned His Lesson’**\
-`In an interview, Jeff Schaffer and Susie Essman discuss why Larry David revived the polarizing “Seinfeld” finale. “We know what you thought of that, and we don’t care,” Schaffer said.`\
-https://nytimes.com/2024/04/08/arts/television/curb-your-enthusiasm-finale-susie-essman-jeff-schaffer.html
 
