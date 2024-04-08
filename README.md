@@ -1,3 +1,7 @@
+**Disappointment on the eclipse train in western New York.**\
+`By Christopher Maag`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/disappointment-on-the-eclipse-train-in-western-new-york
+
 **After nearly a century of life, my father saw his first eclipse.**\
 `By Alan Burdick`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/after-nearly-a-century-of-life-my-father-saw-his-first-eclipse
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/opinion/eclipse-totality-unity.html
 **Cash-for-Clients Scheme Lands Ex-Court Clerk and Lawyer in Prison**\
 `Dionisio Figueroa used his position in Manhattan federal court to steer defendants to Telesforo Del Valle Jr. in a long-running conspiracy, prosecutors said.`\
 https://nytimes.com/2024/04/08/nyregion/bribery-lawyer-clerk-sentencing.html
-
-**Cease-fire negotiations continued to sputter on Monday.**\
-`By Patrick Kingsley and Abu Bakr Bashir`\
-https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news/cease-fire-negotiations-continued-to-sputter-on-monday
 
