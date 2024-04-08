@@ -1,3 +1,7 @@
+**The eclipse will shine light on Harriet Tubman’s connection to astronomy.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-harriet-tubman-auburn-ny
+
 **Palestinians Return to an Unrecognizable City After Israelis Withdraw**\
 `“You build a home corner by corner, stone by stone,” said one man who came back to Khan Younis. “And in the end, with a press of a button, it is reduced to rubble.”`\
 https://nytimes.com/2024/04/08/world/middleeast/gaza-khan-younis-return.html

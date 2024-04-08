@@ -1,3 +1,7 @@
+**The eclipse will shine light on Harriet Tubman’s connection to astronomy.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-harriet-tubman-auburn-ny
+
 **Palestinians Return to an Unrecognizable City After Israelis Withdraw**\
 `“You build a home corner by corner, stone by stone,” said one man who came back to Khan Younis. “And in the end, with a press of a button, it is reduced to rubble.”`\
 https://nytimes.com/2024/04/08/world/middleeast/gaza-khan-younis-return.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/style/virgil-abloh-scholarship-college.html
 **Follow the Total Solar Eclipse’s Shadow From Space**\
 `An American weather satellite is capturing the movement of the moon’s shadow across North America during the total eclipse of the sun on Monday.`\
 https://nytimes.com/interactive/2024/04/08/science/eclipse-satellite.html
-
-**Leigh Bardugo’s Latest Travels to Renaissance Spain**\
-`In “The Familiar,” the blockbuster fantasist conjures a world of mystical intrigue and romance.`\
-https://nytimes.com/2024/04/08/books/review/familiar-leigh-bardugo.html
 
