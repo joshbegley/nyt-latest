@@ -1,3 +1,7 @@
+**Morgan Wallen Arrested, Accused of Throwing a Chair From a Bar Roof**\
+`The country superstar faces charges of reckless endangerment and disorderly conduct after the incident in Nashville on Sunday night.`\
+https://nytimes.com/2024/04/08/arts/music/morgan-wallen-arrested-chair-throwing.html
+
 **‘Eureka Day’ and Sondheim Revue Join Broadway’s Next Season**\
 `Bernadette Peters and Lea Salonga will star in Sondheim’s “Old Friends” in Manhattan Theater Club’s Broadway season, which also includes “Eureka Day.”`\
 https://nytimes.com/2024/04/08/theater/manhattan-theater-club-sondheim-old-friends.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eagle-pass-texas
 **Here Are the Most Targeted Books of 2023**\
 `Amid a nationwide surge in book bans, memoirs and novels that deal with the experiences of L.G.B.T.Q. people or explore race received the most challenges.`\
 https://nytimes.com/2024/04/08/books/banned-books-2023.html
-
-**Paying Off People’s Medical Debt Has Little Impact on Their Lives, Study Finds**\
-`A nonprofit group called R.I.P. Medical Debt has relieved Americans of $11 billion in hospital bills. But that did not improve their mental health or their credit scores, a study found.`\
-https://nytimes.com/2024/04/08/science/rip-medical-debt.html
 
