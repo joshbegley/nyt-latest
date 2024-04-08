@@ -1,3 +1,11 @@
+**The Eclipse Across North America**\
+`What people in the path of totality were seeing and saying as the eclipse unfolded across the continent.`\
+https://nytimes.com/interactive/2024/04/08/us/total-solar-eclipse-photos.html
+
+**Pence Attacks Trump’s Abortion Statement as a ‘Slap in the Face’**\
+`Mike Pence, an evangelical Christian who embraced abortion restrictions at the federal level shortly after Roe was overturned, called Mr. Trump’s statement a “retreat” on the matter.`\
+https://nytimes.com/2024/04/08/us/politics/pence-attacks-trump-abortion.html
+
 **The Economic Luminary Who Loved Solar Eclipses**\
 `Inspired by science, William Stanley Jevons strove to make economics a more rigorous field.`\
 https://nytimes.com/2024/04/08/opinion/william-stanley-jevons-eclipse.html
