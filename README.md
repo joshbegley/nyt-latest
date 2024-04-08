@@ -1,3 +1,7 @@
+**Arkansas has never seen anything like the tourist flood it’s expecting for the eclipse.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/arkansas-has-never-seen-anything-like-the-tourist-flood-its-expecting-for-the-eclipse
+
 **Israel’s withdrawal leaves a power vacuum in Gaza that could be filled by Hamas.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news/israels-withdrawal-leaves-a-power-vacuum-in-gaza-that-could-be-filled-by-hamas
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/arts/television/curb-your-enthusiasm-finale-seinf
 **Jamie Dimon Issues an Economic Warning**\
 `The JPMorgan Chase chief executive used his annual letter to shareholders to flag that higher-for-longer inflation, uncertain growth prospects and widening political divisions.`\
 https://nytimes.com/2024/04/08/business/dealbook/jamie-dimon-economy-inflation-letter.html
-
-**‘It’s our Super Bowl’: This science teacher is going all out for the eclipse.**\
-`Rick Crosslin, a science teacher in Indianapolis, paired up with school maintenance employees to build a giant model of the eclipse.`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/solar-eclipse-science-teachers
 
