@@ -1,3 +1,7 @@
+**Staring down bad eclipse weather on a lawn in Dallas.**\
+`By Dennis Overbye`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/staring-down-bad-eclipse-weather-on-a-lawn-in-dallas
+
 **In Indiana, the sun and moon may not be the biggest stars as Purdue eyes a national championship.**\
 `By Mitch Smith`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/in-indiana-the-sun-and-moon-may-not-be-the-biggest-stars-as-purdue-eyes-a-national-championship
