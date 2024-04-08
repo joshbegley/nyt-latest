@@ -1,3 +1,7 @@
+**Baruch College, an Upward-Mobility Machine**\
+`The New York school is praised as a model college in a new report on diversity in higher education.`\
+https://nytimes.com/2024/04/08/briefing/baruch-college-higher-education-diversity.html
+
 **Cities in the eclipse’s path are getting an economic ‘shot in the arm.’**\
 `Millions of tourists trying to experience the totality could bolster smaller economies across North America.`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-economy
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/02/opinion/thepoint/biden-trump-congress
 **Biden to Announce Student Debt Relief for Millions in Swing-State Pitch**\
 `Officials said that 10 million borrowers could see debt relief of at least $5,000. The plan, set to be announced in Wisconsin, could help rally support among young voters.`\
 https://nytimes.com/2024/04/08/us/politics/biden-student-loans-debt-relief.html
-
-**TSMC Will Receive $6.6 Billion to Bolster U.S. Chip Manufacturing**\
-`Taiwan Semiconductor Manufacturing Company plans to build an additional factory and upgrade another planned facility in Phoenix with the federal grants.`\
-https://nytimes.com/2024/04/08/us/politics/tsmc-taiwan-chips-grants.html
 
