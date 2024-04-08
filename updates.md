@@ -1,3 +1,7 @@
+**Container Removal Begins on Ship That Hit Baltimore Bridge**\
+`Using a crane, workers lifted one of the many containers stacked on the deck of the Dali and lowered it onto a barge.`\
+https://nytimes.com/video/us/100000009402171/Baltimore-key-bridge-ship-containers.html
+
 **Even a quick glance at the sun can cause lasting damage to your eyes.**\
 `By Gina Kolata`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/even-a-quick-glance-at-the-sun-can-cause-lasting-damage-to-your-eyes
