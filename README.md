@@ -34,7 +34,7 @@ https://nytimes.com/2024/04/08/arts/alec-baldwin-rust-shooting-prosecutors.html
 `The ’90s alt-rock icons hit the Madison Square Garden stage for the first time Friday night, after the 21-year-old pop star invited them to join her on the road.`\
 https://nytimes.com/2024/04/08/arts/music/the-breeders-olivia-rodrigo.html
 
-**Some clouds may perform a disappearing act.**\
-`White, puffy clouds can fade away during the eclipse. (Overcast skies, not so much.)`\
+**Solar Eclipse Could Make Some Clouds Perform a Disappearing Act**\
+`A recent study found that cumulus clouds, the small cotton ball-like ones typical for a sunny day, can dissipate once an eclipse begins. But if the skies are overcast, your view could still be obstructed.`\
 https://nytimes.com/2024/04/08/science/solar-eclipse-clouds-totality.html
 
