@@ -1,3 +1,7 @@
+**Biden Announces New Plan for Student Debt Relief**\
+`President Biden announced a large-scale effort to help pay off federal student loans for more than 20 million borrowers.`\
+https://nytimes.com/video/us/politics/100000009403496/biden-student-loan-relief.html
+
 **The Eclipse Across North America**\
 `What people in the path of totality were seeing and saying as the eclipse unfolded across the continent.`\
 https://nytimes.com/interactive/2024/04/08/us/total-solar-eclipse-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/local-journalist
 **J. Cole Apologizes for Kendrick Lamar Diss Track**\
 `J. Cole also vowed to update the track, “7 Minute Drill,” or remove it from streaming services after it was featured on his new album, “Might Delete Later.”`\
 https://nytimes.com/2024/04/08/arts/music/jcole-kendrick-lamar-diss-apology.html
-
-**When Your Boss Is Your Landlord**\
-`A Brooklyn hospital is trying to evict employees and retirees from staff housing, as it struggles financially, but tenants fear they will now be homeless in an unaffordable city.`\
-https://nytimes.com/2024/04/08/realestate/maimonides-medical-housing-evictions-brooklyn.html
 
