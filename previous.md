@@ -1,3 +1,11 @@
+**Beyoncé’s ‘Cowboy Carter’ Opens at No. 1 With the Year’s Biggest Sales**\
+`The pop superstar’s new album also reigns on Billboard’s Top Country Albums chart, the first time a Black woman has led that tally in its 60-year history.`\
+https://nytimes.com/2024/04/08/arts/music/beyonce-cowboy-carter-billboard-chart.html
+
+**Israel’s Account of Attack on Aid Convoy Raises Wider Legal Questions, Experts Say**\
+`The events that led to the deaths of seven World Central Kitchen workers suggest that there could be problems with the protocols used by the Israeli military, according to legal experts and aid organizations.`\
+https://nytimes.com/2024/04/08/world/europe/world-central-kitchen-strike-israel-law.html
+
 **Jonathan Majors Avoids Jail Time for Assault Conviction**\
 `Mr. Majors, a rising movie star before his conviction in December, was sentenced to a domestic violence program for assaulting an ex-girlfriend last year.`\
 https://nytimes.com/2024/04/08/nyregion/jonathan-majors-sentencing.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/04/08/books/review/climate-novels-quiz.html
 **Democrats in Pennsylvania Urge Biden to Branch Out Beyond Philadelphia**\
 `Vice President Kamala Harris will stop in the city on Monday to promote efforts to forgive student debt. Some local officials are calling for greater outreach in more rural areas.`\
 https://nytimes.com/2024/04/08/us/politics/democrats-pennsylvania-biden.html
-
-**Morgan Wallen Arrested, Accused of Throwing a Chair From a Bar Roof**\
-`The country superstar faces charges of reckless endangerment and disorderly conduct after the incident in Nashville on Sunday night.`\
-https://nytimes.com/2024/04/08/arts/music/morgan-wallen-arrested-chair-throwing.html
-
-**‘Eureka Day’ and Sondheim Revue Join Broadway’s Next Season**\
-`Bernadette Peters and Lea Salonga will star in Sondheim’s “Old Friends” in Manhattan Theater Club’s Broadway season, which also includes “Eureka Day.”`\
-https://nytimes.com/2024/04/08/theater/manhattan-theater-club-sondheim-old-friends.html
 
