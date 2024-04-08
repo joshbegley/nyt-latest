@@ -1,3 +1,7 @@
+**Missouri Governor Denies Clemency for Death Row Inmate Who Got Support From Guards**\
+`Dozens of correctional workers urged Gov. Mike Parson to commute the death sentence of Brian Dorsey, who pleaded guilty in the murders of Ben and Sarah Bonnie.`\
+https://nytimes.com/2024/04/08/us/missouri-death-penalty-brian-dorsey.html
+
 **When Tom Ripley Stares Into the Mirror, He Sees Us**\
 `In the new series and in five previous movies, the character serves as a blank slate to examine the mores and concerns of the time.`\
 https://nytimes.com/2024/04/08/movies/tom-ripley-netflix.html
