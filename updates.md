@@ -1,3 +1,11 @@
+**As crowds gathered around New York City, there was a quiet spot.**\
+`By Michael Wilson`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/as-crowds-gathered-around-new-york-city-there-was-a-quiet-spot
+
+**Col. Ralph Puckett Jr., Belated Medal of Honor Winner, Dies at 97**\
+`One of the Army’s most highly decorated servicemen, he received the military’s supreme tribute for valor, for his actions in the Korean War — 71 years after the fact.`\
+https://nytimes.com/2024/04/08/us/col-ralph-puckett-jr-dead.html
+
 **Anthony Insolia, Who Led the Expansion of Newsday, Dies at 98**\
 `The Long Island paper won seven Pulitzer Prizes during his tenure, and he was a top editor for the Arizona Project, which investigated a reporter’s murder.`\
 https://nytimes.com/2024/04/08/business/media/anthony-insolia-dead.html
