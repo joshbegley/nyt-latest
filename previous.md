@@ -1,3 +1,19 @@
+**The Greatest Lesson of the Solar Eclipse**\
+`Always listen to your mother.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/solar-eclipse-totality
+
+**A Moment of Unity, on Earth as in Space**\
+`As totality approached, it felt, for a change, like we were all rooting for the same team.`\
+https://nytimes.com/2024/04/08/opinion/eclipse-totality-unity.html
+
+**Cash-for-Clients Scheme Lands Ex-Court Clerk and Lawyer in Prison**\
+`Dionisio Figueroa used his position in Manhattan federal court to steer defendants to Telesforo Del Valle Jr. in a long-running conspiracy, prosecutors said.`\
+https://nytimes.com/2024/04/08/nyregion/bribery-lawyer-clerk-sentencing.html
+
+**Cease-fire negotiations continued to sputter on Monday.**\
+`By Patrick Kingsley and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news/cease-fire-negotiations-continued-to-sputter-on-monday
+
 **There was cloud cover in Buffalo, but still exaltation.**\
 `By Sarah Maslin Nir`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/there-was-cloud-cover-in-buffalo-but-still-exaltation
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/08/world/asia/eclipse-vatican-transgender-gaza-asia.
 **Biden Campaign Ad Blames Trump for Near-Death of Woman Who Was Denied Abortion**\
 `The ad encapsulates the strategy by the president’s campaign to seize on anger about the Supreme Court’s 2022 decision to overturn Roe v. Wade.`\
 https://nytimes.com/2024/04/08/us/politics/biden-ad-trump-abortion.html
-
-**‘A day I will never forget.’ More than 100,000 visitors witness the eclipse on Mexico’s coast.**\
-`By Simon Romero`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/a-day-i-will-never-forget-more-than-100000-visitors-witness-the-eclipse-on-mexicos-coast
-
-**As crowds gathered around New York City, there was a quiet spot.**\
-`By Michael Wilson`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/as-crowds-gathered-around-new-york-city-there-was-a-quiet-spot
-
-**Anthony Insolia, Who Led the Expansion of Newsday, Dies at 98**\
-`The Long Island paper won seven Pulitzer Prizes during his tenure, and he was a top editor for the Arizona Project, which investigated a reporter’s murder.`\
-https://nytimes.com/2024/04/08/business/media/anthony-insolia-dead.html
-
-**On a special eclipse flight, ‘goose bumps’ and a wedding engagement.**\
-`By Christine Chung`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/delta-eclipse-flight
 
