@@ -1,3 +1,15 @@
+**Israeli Opposition Leader Calls for Close Ties With U.S. in Visit**\
+`In the wake of President Biden’s recent warning to Israel to stop the killing of civilians in Gaza, Yair Lapid said the two countries “need to maintain this friendship.”`\
+https://nytimes.com/2024/04/08/world/middleeast/yair-lapid-blinken-washington.html
+
+**In California, Half an Eclipse Is Better Than None**\
+`Californians in the Bay Area and in Southern California braced for a favorable view of the partial eclipse as clouds dissipated on Monday morning.`\
+https://nytimes.com/2024/04/08/us/solar-eclipse-california.html
+
+**Four Takeaways From the Vatican’s Document on Human Dignity**\
+`The document restated the Roman Catholic Church’s rejection of abortion, gender fluidity and transition surgery.`\
+https://nytimes.com/2024/04/08/world/europe/vatican-gender-theory-document-takeaways.html
+
 **This is a prediction of what the sun’s corona will look like during the eclipse.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/this-is-a-prediction-of-what-the-suns-corona-will-look-like-during-the-eclipse
