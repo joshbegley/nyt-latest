@@ -1,3 +1,11 @@
+**Teen Girls Confront an Epidemic of Deepfake Nudes in Schools**\
+`Using artificial intelligence, middle and high school students have fabricated explicit images of female classmates and shared the doctored pictures.`\
+https://nytimes.com/2024/04/08/technology/deepfake-ai-nudes-westfield-high-school.html
+
+**Google to Tone Down Message Board After Employees Feud Over War in Gaza**\
+`The company is making changes to a popular message board called Memegen that some employees say sounds a lot like censorship.`\
+https://nytimes.com/2024/04/08/technology/google-memegen-gaza-war.html
+
 **The eclipse will shine light on Harriet Tubman’s connection to astronomy.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-harriet-tubman-auburn-ny
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/08/health/physical-touch-benefits-premature-babies.h
 **Gridlock eclipse traffic has yet to emerge.**\
 `By Jay Root`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/gridlock-eclipse-traffic-has-yet-to-emerge
-
-**Virgil Abloh’s Legacy Is About to Get Louder**\
-`Shannon Abloh and the Fashion Scholarship Fund unveil a new plan.`\
-https://nytimes.com/2024/04/08/style/virgil-abloh-scholarship-college.html
-
-**Follow the Total Solar Eclipse’s Shadow From Space**\
-`An American weather satellite is capturing the movement of the moon’s shadow across North America during the total eclipse of the sun on Monday.`\
-https://nytimes.com/interactive/2024/04/08/science/eclipse-satellite.html
 
