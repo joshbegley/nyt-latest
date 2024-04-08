@@ -1,3 +1,7 @@
+**There was cloud cover in Buffalo, but still exaltation.**\
+`By Sarah Maslin Nir`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/there-was-cloud-cover-in-buffalo-but-still-exaltation
+
 **In a migrant shelter in Piedras Negras, children find the magic of the eclipse.**\
 `By Chantal Flores`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/in-a-migrant-shelter-in-piedras-negras-children-find-the-magic-of-the-eclipse
