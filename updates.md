@@ -1,3 +1,7 @@
+**This is a prediction of what the sun’s corona will look like during the eclipse.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/this-is-a-prediction-of-what-the-suns-corona-will-look-like-during-the-eclipse
+
 **Seeking Answers on Israel and Palestine**\
 `Responses to an essay that rejected a two-state solution. Also: The U.S. and Israel; the eclipse; end-of-life planning; the church of Trump; the peace sign.`\
 https://nytimes.com/2024/04/08/opinion/israel-palestine-two-state-solution.html
