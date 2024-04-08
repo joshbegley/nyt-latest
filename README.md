@@ -1,3 +1,11 @@
+**Pope Francis Finds a Limit to His Liberalism**\
+`His new statement criticizing gender change is a clear appeal to the conservative wings of his church.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/vatican-pope-francis-gender
+
+**Trump attacks his conservative critics while defending his new stance on abortion.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/04/08/us/trump-abortion-election-biden/trump-abortion-critics
+
 **Couples exchange wedding rings, and then don eclipse glasses.**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-weddings
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/08/world/middleeast/iran-pardons-environmentalists.h
 **College Towns Usually Lift Democrats. Is the Picture More Complicated in 2024?**\
 `An enthusiasm gap among young voters and anger on campuses over Gaza has some Democrats wary.`\
 https://nytimes.com/2024/04/08/us/politics/young-voters-gaza.html
-
-**Canadians and visitors alike share in the experience in Newfoundland and Montreal.**\
-`By Ian Austen and Chloe Rose Stuart-Ulin`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/canadians-and-visitors-alike-share-in-the-experience-in-newfoundland-and-montreal
-
-**Unseasonable warmth arrives just in time in New England.**\
-`By Jenna Russell and Habib Sabet`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/unseasonable-warmth-arrives-just-in-time-in-new-england
 
