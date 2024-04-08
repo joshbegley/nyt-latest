@@ -1,3 +1,15 @@
+**What to know about the ‘Great North American Eclipse.’**\
+`By Michael Roston and Ben Shpigel`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/what-to-know-about-the-great-north-american-eclipse
+
+**08eclipse-live**\
+`Live Updates: Millions Await the Eclipse’s Dark Path Across a Continent`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse
+
+**Container Removal Begins on Ship That Hit Baltimore Bridge**\
+`Using a crane, workers lifted one of the many containers stacked on the deck of the Dali and lowered it onto a barge.`\
+https://nytimes.com/video/us/100000009402171/key-bridge-dali-containers-removal.html
+
 **08mideast-crisis**\
 `As Israel Scales Back Troop Presence in Gaza, Questions Linger About Rafah`\
 https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news

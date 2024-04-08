@@ -1,3 +1,15 @@
+**What to know about the ‘Great North American Eclipse.’**\
+`By Michael Roston and Ben Shpigel`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/what-to-know-about-the-great-north-american-eclipse
+
+**08eclipse-live**\
+`Live Updates: Millions Await the Eclipse’s Dark Path Across a Continent`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse
+
+**Container Removal Begins on Ship That Hit Baltimore Bridge**\
+`Using a crane, workers lifted one of the many containers stacked on the deck of the Dali and lowered it onto a barge.`\
+https://nytimes.com/video/us/100000009402171/key-bridge-dali-containers-removal.html
+
 **08mideast-crisis**\
 `As Israel Scales Back Troop Presence in Gaza, Questions Linger About Rafah`\
 https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/08/nyregion/late-budget-state-eclipse.html
 **Judge in Trump Criminal Case Braces for Glare of Unprecedented Trial**\
 `Juan Merchan, a target of Donald J. Trump’s wrath, has years of experience on the Manhattan bench but will face a uniquely challenging defendant next week.`\
 https://nytimes.com/2024/04/08/nyregion/trump-criminal-hush-money-trial-merchan.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/08/crosswords/spelling-bee-forum.html
-
-**The North American Total Solar Eclipse Is Here. Are You Watching?**\
-`A place for students to share their thoughts on this cosmic event, whether they are observing in person or watching from afar.`\
-https://nytimes.com/2024/04/08/learning/the-north-american-total-solar-eclipse-is-here-are-you-watching.html
-
-**Quotation of the Day: Gazans Turn to a Wild Plant to Combat Wartime Hunger**\
-`Quotation of the Day for Monday, April 8, 2024.`\
-https://nytimes.com/2024/04/08/pageoneplus/quotation-of-the-day-gazans-turn-to-a-wild-plant-to-combat-wartime-hunger.html
 
