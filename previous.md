@@ -1,3 +1,7 @@
+**Canadians and visitors alike share in the experience in Newfoundland and Montreal.**\
+`By Ian Austen and Chloe Rose Stuart-Ulin`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/canadians-and-visitors-alike-share-in-the-experience-in-newfoundland-and-montreal
+
 **Unseasonable warmth arrives just in time in New England.**\
 `By Jenna Russell and Habib Sabet`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/unseasonable-warmth-arrives-just-in-time-in-new-england
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/the-animals-defi
 **The Greatest Lesson of the Solar Eclipse**\
 `Always listen to your mother.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/solar-eclipse-totality
-
-**A Moment of Unity, on Earth as in Space**\
-`As totality approached, it felt, for a change, like we were all rooting for the same team.`\
-https://nytimes.com/2024/04/08/opinion/eclipse-totality-unity.html
 

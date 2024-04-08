@@ -1,3 +1,7 @@
+**Canadians and visitors alike share in the experience in Newfoundland and Montreal.**\
+`By Ian Austen and Chloe Rose Stuart-Ulin`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/canadians-and-visitors-alike-share-in-the-experience-in-newfoundland-and-montreal
+
 **Unseasonable warmth arrives just in time in New England.**\
 `By Jenna Russell and Habib Sabet`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/unseasonable-warmth-arrives-just-in-time-in-new-england
