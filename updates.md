@@ -1,3 +1,11 @@
+**Pope Francis Finds a Limit to His Liberalism**\
+`His new statement criticizing gender change is a clear appeal to the conservative wings of his church.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/vatican-pope-francis-gender
+
+**Trump attacks his conservative critics while defending his new stance on abortion.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/04/08/us/trump-abortion-election-biden/trump-abortion-critics
+
 **Couples exchange wedding rings, and then don eclipse glasses.**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-weddings
