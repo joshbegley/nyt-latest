@@ -1,3 +1,7 @@
+**At Least 96 Die After Overloaded Boat Sinks Off Coast of Mozambique**\
+`Some of the victims were en route to a fair and others were fleeing for fear of being affected by a cholera outbreak, a local official said.`\
+https://nytimes.com/2024/04/08/world/africa/mozambique-boat-sinking.html
+
 **Containers Are Being Removed From Ship That Hit Key Bridge**\
 `Workers are unloading the 4,700 containers on the ship, a crucial step in moving the vessel and reopening the channel in the Port of Baltimore.`\
 https://nytimes.com/2024/04/08/us/baltimore-key-bridge-ship-containers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/us/trump-president-troops-riots-protests.html
 **Delmore Schwartz’s Poems Are Like Salt Flicked on the World**\
 `A new omnibus compiles the poet’s books and unpublished work, including his two-part autobiographical masterpiece, “Genesis.”`\
 https://nytimes.com/2024/04/08/books/review/collected-poems-delmore-schwartz.html
-
-**Deepfake Porn Sites Used Her Image. She’s Fighting Back.**\
-`Nicholas Kristof on why tech companies aren’t powerless over the spread of deepfake porn.`\
-https://nytimes.com/2024/04/08/opinion/deepfake-porn-tech.html
 
