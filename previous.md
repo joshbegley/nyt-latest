@@ -1,40 +1,40 @@
-**7 years ago, Americans looked up in unison.**\
-`By Orlando Mayorquín`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/7-years-ago-americans-looked-up-in-unison
+**Are There Eclipse Glasses for the Election?**\
+`Avert your eyes.`\
+https://nytimes.com/2024/04/08/opinion/biden-trump-immigration-economy-eclipse.html
 
-**Even a quick glance at the sun can cause lasting damage to your eyes.**\
-`By Gina Kolata`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/even-a-quick-glance-at-the-sun-can-cause-lasting-damage-to-your-eyes
+**$900,000 Homes in California**\
+`A 1929 Spanish-style house in Riverside, a two-bedroom condominium in Pasadena and a midcentury ranch house in Long Beach.`\
+https://nytimes.com/2024/04/08/realestate/900000-dollar-homes-california.html
 
-**Nicaragua Is Taking Germany to Court Over Supplying Arms to Israel**\
-`A new case before the International Court of Justice argues that the German government is furthering genocide in the Gaza war.`\
-https://nytimes.com/2024/04/08/world/middleeast/nicaragua-germany-world-court-israel-arms.html
+**The Method Behind Trump’s Mistruths**\
+`A close examination of every public word from the former president during a crucial week of his campaign.`\
+https://nytimes.com/interactive/2024/04/08/us/politics/trump-speech-mistruths.html
 
-**What to know about the ‘Great North American Eclipse.’**\
-`By Michael Roston and Ben Shpigel`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/what-to-know-about-the-great-north-american-eclipse
+**A Party in Exile Is the Best Hope for Anti-Trump Republicans**\
+`What America needs is a counterestablishment dedicated to recapturing the G.O.P. from the outside.`\
+https://nytimes.com/2024/04/08/opinion/maga-republican-party-exile.html
 
-**08eclipse-live**\
-`Live Updates: Millions Await the Eclipse’s Dark Path Across a Continent`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse
+**The Watch Brand SpaceOne Debuts Its Second Timepiece**\
+`The Tellurium includes the sun, earth and moon as three-dimensional orbs floating across the watch’s face.`\
+https://nytimes.com/2024/04/08/fashion/watches-spaceone-switzerland.html
 
-**Container Removal Begins on Ship That Hit Baltimore Bridge**\
-`Using a crane, workers lifted one of the many containers stacked on the deck of the Dali and lowered it onto a barge.`\
-https://nytimes.com/video/us/100000009402171/Baltimore-key-bridge-ship-containers.html
+**Voters Think America Is Broken. Biden Needs to Meet Them Where They Are.**\
+`A majority of Americans express, and have done for years, dissatisfaction with the direction of the country.`\
+https://nytimes.com/2024/04/08/opinion/biden-broken-america-trump.html
 
-**08mideast-crisis**\
-`As Israel Scales Back Troop Presence in Gaza, Questions Linger About Rafah`\
-https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news
+**A Protest Set to Banjo: Jamar Roberts’s Dance for Hard Times**\
+`“We the People,” Roberts’s first dance for the Martha Graham Dance Company, finds the rage and resistance hidden in an upbeat score by Rhiannon Giddens.`\
+https://nytimes.com/2024/04/08/arts/dance/jamar-roberts-rhiannon-giddens-martha-graham-company.html
 
-**Yellen Sees ‘More Work to Do’ as China Talks End With No Breakthrough**\
-`Treasury Secretary Janet L. Yellen was warmly received in China, but it was evident that the level of trust between the two sides does not run deep.`\
-https://nytimes.com/2024/04/08/business/economy/yellen-china-us-exports.html
+**In an Election Year, ‘Suffs’ Takes a Political Battle to Broadway**\
+`As Shaina Taub’s musical opens, the show’s team members, including Hillary Clinton, say they’re ready to give the women’s suffrage movement a bigger platform.`\
+https://nytimes.com/2024/04/08/theater/suffs-broadway-hillary-clinton.html
 
-**What to Know About the Trial Donald Trump Faces in Manhattan**\
-`Prosecutors accused Donald Trump of falsifying business records to cover up a sex scandal. It will be the first criminal trial of a former president.`\
-https://nytimes.com/2024/04/08/nyregion/donald-trump-trial-what-to-know.html
+**I Never Found Closure After My Son’s Death. I Found Something Else.**\
+`Must grief for the climate diminish you, or can it do the opposite?`\
+https://nytimes.com/2024/04/08/opinion/grief-five-stages-climate.html
 
-**The Connections Companion No. 302**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/08/crosswords/connections-companion.html
+**The Cars of the Future Are Boring**\
+`Sales of electric vehicles are sagging in part because they’re so boring to drive compared with their gas counterparts.`\
+https://nytimes.com/2024/04/08/opinion/electric-car-ev-tesla.html
 
