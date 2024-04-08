@@ -1,3 +1,7 @@
+**Bulgari Recaptures the Crown for the World’s Thinnest Watch**\
+`The Octo Finissimo Ultra Mark II is 1.7 millimeters thick, half a tenth of a millimeter less than the previous record-holder.`\
+https://nytimes.com/2024/04/08/fashion/bulgari-thinnest-watch.html
+
 **Campaign money machine spins into high gear; Biden visits Wisconsin to talk student debt.**\
 `Democrats and Republicans are building their coffers ahead of a contest headlined by two unpopular candidates.`\
 https://nytimes.com/live/2024/04/08/us/trump-abortion-election-biden/election-campaign-finance-record-spending-fundraising
