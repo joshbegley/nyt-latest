@@ -1,3 +1,7 @@
+**Tayi Tibble, Maori Poet and ‘It Girl’, Trusts the Wisdom of Her Ancestors**\
+`Tibble, 28, has been hailed as the fresh, funny and immensely skilled voice of a generation.`\
+https://nytimes.com/2024/04/08/books/booksupdate/tayi-tibble-maori-poet.html
+
 **Why a Savory English Pastry Is Beloved in a California Town**\
 `The popularity of the Cornish pasty, a meat pie eaten by hand like a sandwich, is a legacy of the gold rush.`\
 https://nytimes.com/2024/04/08/us/cornish-pasty-california-grass-valley.html
