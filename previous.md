@@ -1,3 +1,19 @@
+**Biden, Trump and Dr. Bob: the Human Realities of Aging on the Job**\
+`At 75, Dr. Bob Ross cares for the aging residents of Ortonville, Minn, even as he wonders whether he, and the presidential candidates, are up to all their tasks.`\
+https://nytimes.com/2024/04/08/us/biden-trump-age-health.html
+
+**An Easy Mac and Cheese Worth Cheering**\
+`Genevieve Ko’s simple stovetop version comes together with just five ingredients.`\
+https://nytimes.com/2024/04/08/dining/an-easy-mac-and-cheese-worth-cheering.html
+
+**They Came From Outer Space. Now, They’re Going Into Hiding.**\
+`Rising temperatures in Antarctica are making meteorites sink out of view before researchers can collect them.`\
+https://nytimes.com/2024/04/08/climate/meteorites-antarctica.html
+
+**Large Scientific Review Confirms the Benefits of Physical Touch**\
+`Premature babies especially benefited from skin-to-skin contact, and women tended to respond more strongly than men did.`\
+https://nytimes.com/2024/04/08/health/physical-touch-benefits-premature-babies.html
+
 **Gridlock eclipse traffic has yet to emerge.**\
 `By Jay Root`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/gridlock-eclipse-traffic-has-yet-to-emerge
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/mexicans-are-bal
 **Beyoncé’s ‘Cowboy Carter’ Opens at No. 1 With the Year’s Biggest Sales**\
 `The pop superstar’s new album also reigns on Billboard’s Top Country Albums chart, the first time a Black woman has led that tally in its 60-year history.`\
 https://nytimes.com/2024/04/08/arts/music/beyonce-cowboy-carter-billboard-chart.html
-
-**Israel’s Account of Attack on Aid Convoy Raises Wider Legal Questions, Experts Say**\
-`The events that led to the deaths of seven World Central Kitchen workers suggest that there could be problems with the protocols used by the Israeli military, according to legal experts and aid organizations.`\
-https://nytimes.com/2024/04/08/world/europe/world-central-kitchen-strike-israel-law.html
-
-**Jonathan Majors Avoids Jail Time for Assault Conviction**\
-`Mr. Majors, a rising movie star before his conviction in December, was sentenced to a domestic violence program for assaulting an ex-girlfriend last year.`\
-https://nytimes.com/2024/04/08/nyregion/jonathan-majors-sentencing.html
-
-**How Abortion, and I.V.F., Flipped an Alabama State House Seat**\
-`Marilyn Lands’s victory in a special election provided an early blueprint for Democrats who are eager to make reproductive rights central to their campaigns.`\
-https://nytimes.com/2024/04/08/us/politics/alabama-abortion-ivf-house-seat.html
-
-**Eclipse, the Musical, stages its final performance.**\
-`By Christopher Maag`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-the-musical-stages-its-final-performance
 
