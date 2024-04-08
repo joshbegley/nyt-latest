@@ -1,3 +1,7 @@
+**As crowds gathered around New York City, there was a quiet spot.**\
+`By Michael Wilson`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/as-crowds-gathered-around-new-york-city-there-was-a-quiet-spot
+
 **Anthony Insolia, Who Led the Expansion of Newsday, Dies at 98**\
 `The Long Island paper won seven Pulitzer Prizes during his tenure, and he was a top editor for the Arizona Project, which investigated a reporter’s murder.`\
 https://nytimes.com/2024/04/08/business/media/anthony-insolia-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/in-austin-thousa
 **‘Curb’ Finale Shows ‘Larry’s Never Learned His Lesson’**\
 `In an interview, Jeff Schaffer and Susie Essman discuss why Larry David revived the polarizing “Seinfeld” finale. “We know what you thought of that, and we don’t care,” Schaffer said.`\
 https://nytimes.com/2024/04/08/arts/television/curb-your-enthusiasm-finale-susie-essman-jeff-schaffer.html
-
-**The U.N. Security Council agrees to take up a Palestinian bid for full membership.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news/the-un-security-council-agrees-to-take-up-a-palestinian-bid-for-full-membership
 
