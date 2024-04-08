@@ -1,3 +1,15 @@
+**3 People Killed in Las Vegas Law Office Shooting**\
+`A  gunman killed two people around 10 a.m., then fatally shot himself, the police said.`\
+https://nytimes.com/2024/04/08/us/shooting-las-vegas-business.html
+
+**To Remember the Eclipse, Share It With Someone Close**\
+`What else is life, but building good associations to chase away the bad?`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/eclipse-memory-family
+
+**Missouri Governor Denies Clemency for Death Row Inmate Who Got Support From Guards**\
+`Dozens of correctional workers urged Gov. Mike Parson to commute the death sentence of Brian Dorsey, who pleaded guilty in the murders of Ben and Sarah Bonnie.`\
+https://nytimes.com/2024/04/08/us/missouri-death-penalty-brian-dorsey.html
+
 **When Tom Ripley Stares Into the Mirror, He Sees Us**\
 `In the new series and in five previous movies, the character serves as a blank slate to examine the mores and concerns of the time.`\
 https://nytimes.com/2024/04/08/movies/tom-ripley-netflix.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/08/opinion/william-stanley-jevons-eclipse.html
 **Scientists on a boat in the Pacific Ocean got an early view of the total solar eclipse.**\
 `Scientists studying underwater volcanoes aboard a research vessel were caught in the path of totality and experienced the event before it reached land in Mexico.`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/scientists-on-a-boat-in-the-pacific-ocean-got-an-early-view-of-the-total-solar-eclipse
-
-**Under U.S. pressure, Israel said more aid would go to Gaza. Is that happening?**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news/under-us-pressure-israel-said-more-aid-would-go-to-gaza-is-that-happening
-
-**Trump Takes Another Position on Abortion … but It’s Only Monday**\
-`I’m sure he’s open to changing his mind.`\
-https://nytimes.com/live/2024/04/02/opinion/thepoint/trump-abortion-states
-
-**Guns, Machetes and Illness: The Perils of Running the Length of Africa**\
-`Russ Cook of Britain overcame danger in a year of running from South Africa to Tunisia.`\
-https://nytimes.com/2024/04/08/sports/russ-cook-africa.html
 

@@ -1,3 +1,15 @@
+**3 People Killed in Las Vegas Law Office Shooting**\
+`A  gunman killed two people around 10 a.m., then fatally shot himself, the police said.`\
+https://nytimes.com/2024/04/08/us/shooting-las-vegas-business.html
+
+**To Remember the Eclipse, Share It With Someone Close**\
+`What else is life, but building good associations to chase away the bad?`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/eclipse-memory-family
+
+**Missouri Governor Denies Clemency for Death Row Inmate Who Got Support From Guards**\
+`Dozens of correctional workers urged Gov. Mike Parson to commute the death sentence of Brian Dorsey, who pleaded guilty in the murders of Ben and Sarah Bonnie.`\
+https://nytimes.com/2024/04/08/us/missouri-death-penalty-brian-dorsey.html
+
 **Guns, Machetes and Illness: The Perils of Running the Length of Africa**\
 `Russ Cook of Britain overcame danger in a year of running from South Africa to Tunisia.`\
 https://nytimes.com/2024/04/08/sports/russ-cook-africa.html
