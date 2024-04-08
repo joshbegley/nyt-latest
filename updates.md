@@ -1,3 +1,7 @@
+**After nearly a century of life, my father saw his first eclipse.**\
+`By Alan Burdick`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/after-nearly-a-century-of-life-my-father-saw-his-first-eclipse
+
 **Staring down bad eclipse weather on a lawn in Dallas.**\
 `By Dennis Overbye`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/staring-down-bad-eclipse-weather-on-a-lawn-in-dallas

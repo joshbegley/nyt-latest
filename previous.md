@@ -1,3 +1,7 @@
+**After nearly a century of life, my father saw his first eclipse.**\
+`By Alan Burdick`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/after-nearly-a-century-of-life-my-father-saw-his-first-eclipse
+
 **Staring down bad eclipse weather on a lawn in Dallas.**\
 `By Dennis Overbye`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/staring-down-bad-eclipse-weather-on-a-lawn-in-dallas
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/nyregion/bribery-lawyer-clerk-sentencing.html
 **Cease-fire negotiations continued to sputter on Monday.**\
 `By Patrick Kingsley and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news/cease-fire-negotiations-continued-to-sputter-on-monday
-
-**There was cloud cover in Buffalo, but still exaltation.**\
-`By Sarah Maslin Nir`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/there-was-cloud-cover-in-buffalo-but-still-exaltation
 
