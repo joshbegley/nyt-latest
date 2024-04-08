@@ -1,3 +1,7 @@
+**Campaign money machine spins into high gear; Biden visits Wisconsin to talk student debt.**\
+`Democrats and Republicans are building their coffers ahead of a contest headlined by two unpopular candidates.`\
+https://nytimes.com/live/2024/04/08/us/trump-abortion-election-biden/election-campaign-finance-record-spending-fundraising
+
 **Leading Anti-Abortion Group Says It Is ‘Deeply Disappointed’ in Trump’s Comments**\
 `The president of Susan B. Anthony Pro-Life America said she was “deeply disappointed” in Donald Trump’s position that states should decide abortion rights.`\
 https://nytimes.com/2024/04/08/us/politics/trump-abortion-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news/israels-wit
 **Why a Savory English Pastry Is Beloved in a California Town**\
 `The popularity of the Cornish pasty, a meat pie eaten by hand like a sandwich, is a legacy of the gold rush.`\
 https://nytimes.com/2024/04/08/us/cornish-pasty-california-grass-valley.html
-
-**The forecast is cloudy and may veil the eclipse.**\
-`By Judson Jones`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/the-forecast-is-cloudy-and-may-veil-the-eclipse
 
