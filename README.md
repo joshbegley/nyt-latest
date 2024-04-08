@@ -1,3 +1,7 @@
+**What solar eclipse-gazing has looked like for the past two centuries.**\
+`By Sarah Eckinger`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/what-solar-eclipse-gazing-has-looked-like-for-the-past-two-centuries
+
 **Congress Is Back. Three Reasons That’s Good for Biden.**\
 `Democrats are the adults in Washington; the question is whether voters will notice.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/biden-trump-congress
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/opinion/deepfake-porn-tech.html
 **Anxious Parents Are the Ones Who Need Help**\
 `Today’s parents are suffering from anxiety about their children’s anxiety, and it’s not easy to persuade them that all is OK.`\
 https://nytimes.com/2024/04/08/opinion/teen-mental-health-college.html
-
-**Is the Era of ‘Brozempic’ Upon Us?**\
-`Some telehealth start-ups are playing up masculine stereotypes to market medications that have been more widely associated with women.`\
-https://nytimes.com/2024/04/08/style/fella-health-semaglutide-ozempic-men.html
 
