@@ -1,3 +1,15 @@
+**Yes, You Can Wash Cast Iron. 5 Big Kitchen Myths, Debunked.**\
+`A veteran food journalist digs into some common misconceptions about salting pasta water, browning meat and more.`\
+https://nytimes.com/2024/04/08/dining/kitchen-myths.html
+
+**Trump to Sue Judge in Last-Ditch Attempt to Avert Manhattan Trial**\
+`Donald J. Trump’s lawyers indicated they would file an action asking an appeals court to delay the first prosecution of a former president. The move is unlikely to succeed.`\
+https://nytimes.com/2024/04/08/nyregion/trump-hush-money-trial-delay.html
+
+**Spirit Airlines Will Delay Plane Purchases and Furlough Pilots**\
+`The low-cost airline, which has been unprofitable for four years, is trying to reduce costs after a federal judge blocked a proposed deal for JetBlue to acquire Spirit.`\
+https://nytimes.com/2024/04/08/business/spirit-airlines-airbus-pilots.html
+
 **Teen Girls Confront an Epidemic of Deepfake Nudes in Schools**\
 `Using artificial intelligence, middle and high school students have fabricated explicit images of female classmates and shared the doctored pictures.`\
 https://nytimes.com/2024/04/08/technology/deepfake-ai-nudes-westfield-high-school.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/08/us/biden-trump-age-health.html
 **An Easy Mac and Cheese Worth Cheering**\
 `Genevieve Ko’s simple stovetop version comes together with just five ingredients.`\
 https://nytimes.com/2024/04/08/dining/an-easy-mac-and-cheese-worth-cheering.html
-
-**They Came From Outer Space. Now, They’re Going Into Hiding.**\
-`Rising temperatures in Antarctica are making meteorites sink out of view before researchers can collect them.`\
-https://nytimes.com/2024/04/08/climate/meteorites-antarctica.html
-
-**Large Scientific Review Confirms the Benefits of Physical Touch**\
-`Premature babies especially benefited from skin-to-skin contact, and women tended to respond more strongly than men did.`\
-https://nytimes.com/2024/04/08/health/physical-touch-benefits-premature-babies.html
-
-**Gridlock eclipse traffic has yet to emerge.**\
-`By Jay Root`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/gridlock-eclipse-traffic-has-yet-to-emerge
 
