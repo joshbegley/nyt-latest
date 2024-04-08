@@ -1,7 +1,3 @@
-**Clouds parted just in time in a small Texas town.**\
-`By Ruth Graham`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/clouds-parted-just-in-time-in-a-small-texas-town
-
 **‘The animals definitely could feel that something was different,’ a zookeeper says.**\
 `By Juliet Macur`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/the-animals-definitely-could-feel-that-something-was-different-a-zookeeper-says
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/a-small-town-in-
 **Georgia Trump Prosecutor Urges Appeals Court to Decline Disqualification Case**\
 `The prosecutor, Fani Willis, defended a judge’s recent ruling that she could continue leading the election interference case against Donald J. Trump.`\
 https://nytimes.com/2024/04/08/us/fani-willis-georgia-trump-disqualification-appeal.html
+
+**Tuesday Briefing: A Total Solar Eclipse**\
+`Also, the Vatican said gender changes amount to an affront.`\
+https://nytimes.com/2024/04/08/world/asia/eclipse-vatican-transgender-gaza-asia.html
 
