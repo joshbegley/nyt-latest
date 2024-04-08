@@ -1,3 +1,7 @@
+**Vatican Document Casts Gender Change and Fluidity as Threat to Human Dignity**\
+`The statement is likely to be embraced by conservatives and stir consternation among L.G.B.T.Q. advocates who fear it will be used as a cudgel against transgender people.`\
+https://nytimes.com/2024/04/08/world/europe/vatican-sex-change-surrogacy-dignity.html
+
 **To Become Prince Andrew, He Needed More Than False Teeth**\
 `In the feature “Scoop,” streaming on Netflix, Rufus Sewell plays the disgraced royal blundering through a 2019 BBC interview.`\
 https://nytimes.com/2024/04/08/movies/scoop-prince-andrew-rufus-sewell.html
