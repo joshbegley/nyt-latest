@@ -1,3 +1,15 @@
+**Gridlock eclipse traffic has yet to emerge.**\
+`By Jay Root`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/gridlock-eclipse-traffic-has-yet-to-emerge
+
+**Virgil Abloh’s Legacy Is About to Get Louder**\
+`Shannon Abloh and the Fashion Scholarship Fund unveil a new plan.`\
+https://nytimes.com/2024/04/08/style/virgil-abloh-scholarship-college.html
+
+**Follow the Total Solar Eclipse’s Shadow From Space**\
+`An American weather satellite is capturing the movement of the moon’s shadow across North America during the total eclipse of the sun on Monday.`\
+https://nytimes.com/interactive/2024/04/08/science/eclipse-satellite.html
+
 **Leigh Bardugo’s Latest Travels to Renaissance Spain**\
 `In “The Familiar,” the blockbuster fantasist conjures a world of mystical intrigue and romance.`\
 https://nytimes.com/2024/04/08/books/review/familiar-leigh-bardugo.html

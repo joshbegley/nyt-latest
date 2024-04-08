@@ -1,3 +1,15 @@
+**Gridlock eclipse traffic has yet to emerge.**\
+`By Jay Root`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/gridlock-eclipse-traffic-has-yet-to-emerge
+
+**Virgil Abloh’s Legacy Is About to Get Louder**\
+`Shannon Abloh and the Fashion Scholarship Fund unveil a new plan.`\
+https://nytimes.com/2024/04/08/style/virgil-abloh-scholarship-college.html
+
+**Follow the Total Solar Eclipse’s Shadow From Space**\
+`An American weather satellite is capturing the movement of the moon’s shadow across North America during the total eclipse of the sun on Monday.`\
+https://nytimes.com/interactive/2024/04/08/science/eclipse-satellite.html
+
 **Leigh Bardugo’s Latest Travels to Renaissance Spain**\
 `In “The Familiar,” the blockbuster fantasist conjures a world of mystical intrigue and romance.`\
 https://nytimes.com/2024/04/08/books/review/familiar-leigh-bardugo.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/08/us/politics/alabama-abortion-ivf-house-seat.html
 **Eclipse, the Musical, stages its final performance.**\
 `By Christopher Maag`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-the-musical-stages-its-final-performance
-
-**Bulgari Recaptures the Crown for the World’s Thinnest Watch**\
-`The Octo Finissimo Ultra Mark II is 1.7 millimeters thick, half a tenth of a millimeter less than the previous record-holder.`\
-https://nytimes.com/2024/04/08/fashion/bulgari-thinnest-watch.html
-
-**Campaign money machine spins into high gear; Biden visits Wisconsin to talk student debt.**\
-`Democrats and Republicans are building their coffers ahead of a contest headlined by two unpopular candidates.`\
-https://nytimes.com/live/2024/04/08/us/trump-abortion-election-biden/election-campaign-finance-record-spending-fundraising
-
-**Leading Anti-Abortion Group Says It Is ‘Deeply Disappointed’ in Trump’s Comments**\
-`The president of Susan B. Anthony Pro-Life America said she was “deeply disappointed” in Donald Trump’s position that states should decide abortion rights.`\
-https://nytimes.com/2024/04/08/us/politics/trump-abortion-reaction.html
 
