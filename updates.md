@@ -1,3 +1,11 @@
+**The North American Total Solar Eclipse Is Here. Are You Watching?**\
+`A place for students to share their thoughts on this cosmic event, whether they are observing in person or watching from afar.`\
+https://nytimes.com/2024/04/08/learning/the-north-american-total-solar-eclipse-is-here-are-you-watching.html
+
+**Quotation of the Day: Gazans Turn to a Wild Plant to Combat Wartime Hunger**\
+`Quotation of the Day for Monday, April 8, 2024.`\
+https://nytimes.com/2024/04/08/pageoneplus/quotation-of-the-day-gazans-turn-to-a-wild-plant-to-combat-wartime-hunger.html
+
 **Quotation of the Day: Gazing at the Sky, Awaiting a Moment of Awe**\
 `Quotation of the Day for Sunday, April 7, 2024.`\
 https://nytimes.com/2024/04/08/pageoneplus/quotation-of-the-day-gazing-at-the-sky-awaiting-a-moment-of-awe.html

@@ -1,3 +1,11 @@
+**The North American Total Solar Eclipse Is Here. Are You Watching?**\
+`A place for students to share their thoughts on this cosmic event, whether they are observing in person or watching from afar.`\
+https://nytimes.com/2024/04/08/learning/the-north-american-total-solar-eclipse-is-here-are-you-watching.html
+
+**Quotation of the Day: Gazans Turn to a Wild Plant to Combat Wartime Hunger**\
+`Quotation of the Day for Monday, April 8, 2024.`\
+https://nytimes.com/2024/04/08/pageoneplus/quotation-of-the-day-gazans-turn-to-a-wild-plant-to-combat-wartime-hunger.html
+
 **Quotation of the Day: Gazing at the Sky, Awaiting a Moment of Awe**\
 `Quotation of the Day for Sunday, April 7, 2024.`\
 https://nytimes.com/2024/04/08/pageoneplus/quotation-of-the-day-gazing-at-the-sky-awaiting-a-moment-of-awe.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/07/world/americas/ecuador-mexico-embassy-noboa.html
 **Maryland Passes 2 Major Privacy Bills, Despite Tech Industry Pushback**\
 `One bill would require apps like Instagram and TikTok to prioritize young people’s safety and the other would restrict the collection of consumer data.`\
 https://nytimes.com/2024/04/07/technology/maryland-children-privacy-laws-technology.html
-
-**Israel Withdraws Troops From Southern Gaza as War Hits 6-Month Mark**\
-`With the conflict at an apparent impasse, international mediators were gathering in Cairo with hopes of brokering a temporary cease-fire.`\
-https://nytimes.com/2024/04/07/world/middleeast/israel-troops-gaza.html
-
-**At Rally for Hostages, Some Boo When Congressman Calls for Gaza Aid**\
-`A speech by Jerrold Nadler, a long-serving Jewish Democrat and supporter of Israel, was met with a mixed response at a New York rally calling for the release of hostages in Gaza.`\
-https://nytimes.com/2024/04/07/world/middleeast/hostages-rally-nyc-nadler.html
 
