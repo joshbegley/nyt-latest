@@ -1,3 +1,7 @@
+**Jamie Dimon Issues an Economic Warning**\
+`The JPMorgan Chase chief executive used his annual letter to shareholders to flag that higher-for-longer inflation, uncertain growth prospects and widening political divisions.`\
+https://nytimes.com/2024/04/08/business/dealbook/jamie-dimon-economy-inflation-letter.html
+
 **‘It’s our Super Bowl’: This science teacher is going all out for the eclipse**\
 `Rick Crosslin, a science teacher in Indianapolis, paired up with school maintenance employees to build a giant model of the eclipse.`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/solar-eclipse-science-teachers
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-economy
 **Catch up on what you should understand about total solar eclipses.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/catch-up-on-what-you-should-understand-about-total-solar-eclipses
-
-**Israel’s Latest Troop Withdrawal, and the Problem With American Bridges**\
-`Plus, is it eclipse weather?`\
-https://nytimes.com/2024/04/08/podcasts/israels-troops-eclipse.html
 
