@@ -1,3 +1,11 @@
+**Palestinians Return to an Unrecognizable City After Israelis Withdraw**\
+`“You build a home corner by corner, stone by stone,” said one man who came back to Khan Younis. “And in the end, with a press of a button, it is reduced to rubble.”`\
+https://nytimes.com/2024/04/08/world/middleeast/gaza-khan-younis-return.html
+
+**PFAS ‘Forever Chemicals’ Are Pervasive in Water Worldwide, Study Finds**\
+`A global survey found harmful levels even in water samples taken far any obvious source of contamination.`\
+https://nytimes.com/2024/04/08/climate/pfas-forever-chemicals-water.html
+
 **Biden, Trump and Dr. Bob: the Human Realities of Aging on the Job**\
 `At 75, Dr. Bob Ross cares for the aging residents of Ortonville, Minn, even as he wonders whether he, and the presidential candidates, are up to all their tasks.`\
 https://nytimes.com/2024/04/08/us/biden-trump-age-health.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/04/08/science/eclipse-satellite.html
 **Leigh Bardugo’s Latest Travels to Renaissance Spain**\
 `In “The Familiar,” the blockbuster fantasist conjures a world of mystical intrigue and romance.`\
 https://nytimes.com/2024/04/08/books/review/familiar-leigh-bardugo.html
-
-**Some Mexicans are balancing a super astronomical event with superstitions.**\
-`By Leila Miller`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/mexicans-are-balancing-a-super-astronomical-event-with-superstitions
-
-**Beyoncé’s ‘Cowboy Carter’ Opens at No. 1 With the Year’s Biggest Sales**\
-`The pop superstar’s new album also reigns on Billboard’s Top Country Albums chart, the first time a Black woman has led that tally in its 60-year history.`\
-https://nytimes.com/2024/04/08/arts/music/beyonce-cowboy-carter-billboard-chart.html
 

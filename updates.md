@@ -1,3 +1,11 @@
+**Palestinians Return to an Unrecognizable City After Israelis Withdraw**\
+`“You build a home corner by corner, stone by stone,” said one man who came back to Khan Younis. “And in the end, with a press of a button, it is reduced to rubble.”`\
+https://nytimes.com/2024/04/08/world/middleeast/gaza-khan-younis-return.html
+
+**PFAS ‘Forever Chemicals’ Are Pervasive in Water Worldwide, Study Finds**\
+`A global survey found harmful levels even in water samples taken far any obvious source of contamination.`\
+https://nytimes.com/2024/04/08/climate/pfas-forever-chemicals-water.html
+
 **Some Mexicans are balancing a super astronomical event with superstitions.**\
 `By Leila Miller`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/mexicans-are-balancing-a-super-astronomical-event-with-superstitions
