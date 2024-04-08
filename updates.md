@@ -1,3 +1,15 @@
+**Under U.S. pressure, Israel said more aid would go to Gaza. Is that happening?**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news/under-us-pressure-israel-said-more-aid-would-go-to-gaza-is-that-happening
+
+**Trump Takes Another Position on Abortion … but It’s Only Monday**\
+`I’m sure he’s open to changing his mind.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/trump-abortion-states
+
+**Guns, Machetes and Illness: The Perils of Running the Length of Africa**\
+`Russ Cook of Britain overcame danger in a year of running from South Africa to Tunisia.`\
+https://nytimes.com/2024/04/08/sports/russ-cook-africa.html
+
 **Local journalists in upstate New York are on strike as eclipse day arrives.**\
 `By Christopher Maag`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/local-journalists-in-upstate-new-york-are-on-strike-as-eclipse-day-arrives
