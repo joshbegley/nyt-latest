@@ -1,3 +1,7 @@
+**Morgan Wallen Arrested, Accused of Throwing a Chair From a Bar Roof**\
+`The country superstar faces charges of reckless endangerment and disorderly conduct after the incident in Nashville on Sunday night.`\
+https://nytimes.com/2024/04/08/arts/music/morgan-wallen-arrested-chair-throwing.html
+
 **‘Eureka Day’ and Sondheim Revue Join Broadway’s Next Season**\
 `Bernadette Peters and Lea Salonga will star in Sondheim’s “Old Friends” in Manhattan Theater Club’s Broadway season, which also includes “Eureka Day.”`\
 https://nytimes.com/2024/04/08/theater/manhattan-theater-club-sondheim-old-friends.html
