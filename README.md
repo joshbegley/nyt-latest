@@ -1,7 +1,3 @@
-**Missouri Governor Denies Clemency for Death Row Inmate Who Got Support From Guards**\
-`Dozens of correctional workers urged Gov. Mike Parson to commute the death sentence of Brian Dorsey, who pleaded guilty in the murders of Ben and Sarah Bonnie.`\
-https://nytimes.com/2024/04/08/us/missouri-death-penalty-brian-dorsey.html
-
 **When Tom Ripley Stares Into the Mirror, He Sees Us**\
 `In the new series and in five previous movies, the character serves as a blank slate to examine the mores and concerns of the time.`\
 https://nytimes.com/2024/04/08/movies/tom-ripley-netflix.html
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news/under-us-pr
 **Trump Takes Another Position on Abortion … but It’s Only Monday**\
 `I’m sure he’s open to changing his mind.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/trump-abortion-states
+
+**Guns, Machetes and Illness: The Perils of Running the Length of Africa**\
+`Russ Cook of Britain overcame danger in a year of running from South Africa to Tunisia.`\
+https://nytimes.com/2024/04/08/sports/russ-cook-africa.html
 
