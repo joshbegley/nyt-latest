@@ -1,3 +1,7 @@
+**How Abortion, and I.V.F., Flipped an Alabama State House Seat**\
+`Marilyn Lands’s victory in a special election provided an early blueprint for Democrats who are eager to make reproductive rights central to their campaigns.`\
+https://nytimes.com/2024/04/08/us/politics/alabama-abortion-ivf-house-seat.html
+
 **Eclipse, the Musical, stages its final performance.**\
 `By Christopher Maag`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-the-musical-stages-its-final-performance
