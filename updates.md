@@ -1,3 +1,7 @@
+**Dianne Brill, a 1980s ‘It Girl,’ Makes a Splashy Return**\
+`“I’m back,” she says at her 66th birthday party. “Maybe not everyone knows it yet, but I am.”`\
+https://nytimes.com/2024/04/08/style/1980s-it-girl-dianne-brill-makes-splashy-return.html
+
 **Pope Francis Finds a Limit to His Liberalism**\
 `His new statement criticizing gender change is a clear appeal to the conservative wings of his church.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/vatican-pope-francis-gender
