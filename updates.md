@@ -1,3 +1,7 @@
+**Guns, Machetes and Illness: The Perils of Running the Length of Africa**\
+`Russ Cook of Britain overcame danger in a year of running from South Africa to Tunisia.`\
+https://nytimes.com/2024/04/08/sports/russ-cook-africa.html
+
 **Missouri Governor Denies Clemency for Death Row Inmate Who Got Support From Guards**\
 `Dozens of correctional workers urged Gov. Mike Parson to commute the death sentence of Brian Dorsey, who pleaded guilty in the murders of Ben and Sarah Bonnie.`\
 https://nytimes.com/2024/04/08/us/missouri-death-penalty-brian-dorsey.html
