@@ -1,3 +1,11 @@
+**When Your Boss Is Your Landlord**\
+`A Brooklyn hospital is trying to evict employees and retirees from staff housing, as it struggles financially, but tenants fear they will now be homeless in an unaffordable city.`\
+https://nytimes.com/2024/04/08/realestate/maimonides-medical-housing-evictions-brooklyn.html
+
+**Biden and Other Democrats Tie Trump to Limits on Abortion Rights**\
+`The former president said he supported leaving abortion decisions to states, but political opponents say he bears responsibility for any curbs enacted.`\
+https://nytimes.com/2024/04/08/us/politics/democrats-abortion-rights-trump.html
+
 **Israeli Opposition Leader Calls for Close Ties With U.S. in Visit**\
 `In the wake of President Biden’s recent warning to Israel to stop the killing of civilians in Gaza, Yair Lapid said the two countries “need to maintain this friendship.”`\
 https://nytimes.com/2024/04/08/world/middleeast/yair-lapid-blinken-washington.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/02/opinion/thepoint/eclipse-hotel-prices
 **Prosecutors Defend Case Against Alec Baldwin in ‘Rust’ Shooting**\
 `As the actor’s defense team seeks the dismissal of the involuntary manslaughter indictment, the prosecution detailed some of the factors that led it to seek charges.`\
 https://nytimes.com/2024/04/08/arts/alec-baldwin-rust-shooting-prosecutors.html
-
-**‘Is She Sure?’ How the Breeders Joined Olivia Rodrigo’s Guts Tour.**\
-`The ’90s alt-rock icons hit the Madison Square Garden stage for the first time Friday night, after the 21-year-old pop star invited them to join her on the road.`\
-https://nytimes.com/2024/04/08/arts/music/the-breeders-olivia-rodrigo.html
-
-**Solar Eclipse Could Make Some Clouds Perform a Disappearing Act**\
-`A recent study found that cumulus clouds, the small cotton ball-like ones typical for a sunny day, can dissipate once an eclipse begins. But if the skies are overcast, your view could still be obstructed.`\
-https://nytimes.com/2024/04/08/science/solar-eclipse-clouds-totality.html
 
