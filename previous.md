@@ -1,3 +1,11 @@
+**Anthony Insolia, Who Led the Expansion of Newsday, Dies at 98**\
+`The Long Island paper won seven Pulitzer Prizes during his tenure, and he was a top editor for the Arizona Project, which investigated a reporter’s murder.`\
+https://nytimes.com/2024/04/08/business/media/anthony-insolia-dead.html
+
+**On a special eclipse flight, ‘goose bumps’ and a wedding engagement.**\
+`By Christine Chung`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/delta-eclipse-flight
+
 **A border city recently overwhelmed by the migrant crisis gets a boost from eclipse visitors.**\
 `By Edgar Sandoval`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/a-border-city-recently-overwhelmed-by-the-migrant-crisis-gets-a-boost-from-eclipse-visitors
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/08/arts/television/curb-your-enthusiasm-finale-susie
 **The U.N. Security Council agrees to take up a Palestinian bid for full membership.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news/the-un-security-council-agrees-to-take-up-a-palestinian-bid-for-full-membership
-
-**NASA’s watching the eclipse from Cleveland.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/nasas-watching-the-eclipse-from-cleveland
-
-**L.A. Times Names Terry Tang as Executive Editor**\
-`Ms. Tang, who had been running the news organization on an interim basis since January, takes charge at a turbulent time for the publication.`\
-https://nytimes.com/2024/04/08/business/media/la-times-terry-tang-executive-editor.html
 

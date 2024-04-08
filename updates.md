@@ -1,3 +1,11 @@
+**Anthony Insolia, Who Led the Expansion of Newsday, Dies at 98**\
+`The Long Island paper won seven Pulitzer Prizes during his tenure, and he was a top editor for the Arizona Project, which investigated a reporter’s murder.`\
+https://nytimes.com/2024/04/08/business/media/anthony-insolia-dead.html
+
+**On a special eclipse flight, ‘goose bumps’ and a wedding engagement.**\
+`By Christine Chung`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/delta-eclipse-flight
+
 **A border city recently overwhelmed by the migrant crisis gets a boost from eclipse visitors.**\
 `By Edgar Sandoval`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/a-border-city-recently-overwhelmed-by-the-migrant-crisis-gets-a-boost-from-eclipse-visitors
