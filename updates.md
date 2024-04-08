@@ -1,3 +1,7 @@
+**Baruch College, an Upward-Mobility Machine**\
+`The New York school is praised as a model college in a new report on diversity in higher education.`\
+https://nytimes.com/2024/04/08/briefing/baruch-college-higher-education-diversity.html
+
 **Cities in the eclipse’s path are getting an economic ‘shot in the arm.’**\
 `Millions of tourists trying to experience the totality could bolster smaller economies across North America.`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-economy
