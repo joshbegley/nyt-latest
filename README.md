@@ -1,6 +1,10 @@
+**Containers Are Being Removed From Ship That Hit Key Bridge**\
+`Workers are unloading the 4,700 containers on the ship, a crucial step in moving the vessel and reopening the channel in the Port of Baltimore.`\
+https://nytimes.com/2024/04/08/us/baltimore-key-bridge-ship-containers.html
+
 **What solar eclipse-gazing has looked like for the past two centuries.**\
 `By Sarah Eckinger`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/what-solar-eclipse-gazing-has-looked-like-for-the-past-two-centuries
+https://nytimes.com/2024/04/08/science/what-solar-eclipse-gazing-has-looked-like-for-the-past-two-centuries.html
 
 **Congress Is Back. Three Reasons That’s Good for Biden.**\
 `Democrats are the adults in Washington; the question is whether voters will notice.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/books/review/collected-poems-delmore-schwartz.htm
 **Deepfake Porn Sites Used Her Image. She’s Fighting Back.**\
 `Nicholas Kristof on why tech companies aren’t powerless over the spread of deepfake porn.`\
 https://nytimes.com/2024/04/08/opinion/deepfake-porn-tech.html
-
-**Anxious Parents Are the Ones Who Need Help**\
-`Today’s parents are suffering from anxiety about their children’s anxiety, and it’s not easy to persuade them that all is OK.`\
-https://nytimes.com/2024/04/08/opinion/teen-mental-health-college.html
 
