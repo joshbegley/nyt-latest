@@ -1,3 +1,15 @@
+**Here Are the Most Targeted Books of 2023**\
+`Amid a nationwide surge in book bans, memoirs and novels that deal with the experiences of L.G.B.T.Q. people or explore race received the most challenges.`\
+https://nytimes.com/2024/04/08/books/banned-books-2023.html
+
+**Paying Off People’s Medical Debt Has Little Impact on Their Lives, Study Finds**\
+`A nonprofit group called R.I.P. Medical Debt has relieved Americans of $11 billion in hospital bills. But that did not improve their mental health or their credit scores, a study found.`\
+https://nytimes.com/2024/04/08/science/rip-medical-debt.html
+
+**Review: ‘Curb Your Enthusiasm’ Wraps Up in Familiar Fashion**\
+`Larry David’s HBO comedy ended on Sunday after 12 seasons. Longtime fans might have noticed similarities with a certain earlier sitcom.`\
+https://nytimes.com/2024/04/08/arts/television/review-curb-your-enthusiasm-finale-seinfeld.html
+
 **Jamie Dimon Issues an Economic Warning**\
 `The JPMorgan Chase chief executive used his annual letter to shareholders to flag that higher-for-longer inflation, uncertain growth prospects and widening political divisions.`\
 https://nytimes.com/2024/04/08/business/dealbook/jamie-dimon-economy-inflation-letter.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/08/world/europe/ukraine-nuclear-power-plant-russia.h
 **Listen to the story of ‘Mr. Eclipse.’**\
 `By The Daily Team`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/listen-to-the-story-of-mr-eclipse
-
-**Baruch College, an Upward-Mobility Machine**\
-`The New York school is praised as a model college in a new report on diversity in higher education.`\
-https://nytimes.com/2024/04/08/briefing/baruch-college-higher-education-diversity.html
-
-**Cities in the eclipse’s path are getting an economic ‘shot in the arm.’**\
-`Millions of tourists trying to experience the totality could bolster smaller economies across North America.`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-economy
-
-**Catch up on what you should understand about total solar eclipses.**\
-`By Katrina Miller`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/catch-up-on-what-you-should-understand-about-total-solar-eclipses
 
