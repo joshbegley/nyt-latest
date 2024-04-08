@@ -1,3 +1,11 @@
+**When Your Boss Is Your Landlord**\
+`A Brooklyn hospital is trying to evict employees and retirees from staff housing, as it struggles financially, but tenants fear they will now be homeless in an unaffordable city.`\
+https://nytimes.com/2024/04/08/realestate/maimonides-medical-housing-evictions-brooklyn.html
+
+**Biden and Other Democrats Tie Trump to Limits on Abortion Rights**\
+`The former president said he supported leaving abortion decisions to states, but political opponents say he bears responsibility for any curbs enacted.`\
+https://nytimes.com/2024/04/08/us/politics/democrats-abortion-rights-trump.html
+
 **Solar Eclipse Could Make Some Clouds Perform a Disappearing Act**\
 `A recent study found that cumulus clouds, the small cotton ball-like ones typical for a sunny day, can dissipate once an eclipse begins. But if the skies are overcast, your view could still be obstructed.`\
 https://nytimes.com/2024/04/08/science/solar-eclipse-clouds-totality.html
