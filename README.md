@@ -1,3 +1,15 @@
+**Under U.S. pressure, Israel said more aid would go to Gaza. Is that happening?**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news/under-us-pressure-israel-said-more-aid-would-go-to-gaza-is-that-happening
+
+**Trump Takes Another Position on Abortion … but It’s Only Monday**\
+`I’m sure he’s open to changing his mind.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/trump-abortion-states
+
+**Guns, Machetes and Illness: The Perils of Running the Length of Africa**\
+`Russ Cook of Britain overcame danger in a year of running from South Africa to Tunisia.`\
+https://nytimes.com/2024/04/08/sports/russ-cook-africa.html
+
 **Local journalists in upstate New York are on strike as eclipse day arrives.**\
 `By Christopher Maag`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/local-journalists-in-upstate-new-york-are-on-strike-as-eclipse-day-arrives
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/08/us/solar-eclipse-california.html
 **Four Takeaways From the Vatican’s Document on Human Dignity**\
 `The document restated the Roman Catholic Church’s rejection of abortion, gender fluidity and transition surgery.`\
 https://nytimes.com/2024/04/08/world/europe/vatican-gender-theory-document-takeaways.html
-
-**This is a prediction of what the sun’s corona will look like during the eclipse.**\
-`By Katrina Miller`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/this-is-a-prediction-of-what-the-suns-corona-will-look-like-during-the-eclipse
-
-**Seeking Answers on Israel and Palestine**\
-`Responses to an essay that rejected a two-state solution. Also: The U.S. and Israel; the eclipse; end-of-life planning; the church of Trump; the peace sign.`\
-https://nytimes.com/2024/04/08/opinion/israel-palestine-two-state-solution.html
-
-**What you can see during totality.**\
-`By Katrina Miller`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/what-you-can-see-during-totality
 
