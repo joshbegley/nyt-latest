@@ -30,7 +30,7 @@ https://nytimes.com/interactive/2024/04/08/science/eclipse-satellite.html
 `In “The Familiar,” the blockbuster fantasist conjures a world of mystical intrigue and romance.`\
 https://nytimes.com/2024/04/08/books/review/familiar-leigh-bardugo.html
 
-**Mexicans are balancing a super astronomical event with superstitions.**\
+**Some Mexicans are balancing a super astronomical event with superstitions.**\
 `By Leila Miller`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/mexicans-are-balancing-a-super-astronomical-event-with-superstitions
 
