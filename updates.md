@@ -1,3 +1,15 @@
+**Prosecutors Defend Case Against Alec Baldwin in ‘Rust’ Shooting**\
+`As the actor’s defense team seeks the dismissal of the involuntary manslaughter indictment, the prosecution detailed some of the factors that led it to seek charges.`\
+https://nytimes.com/2024/04/08/arts/alec-baldwin-rust-shooting-prosecutors.html
+
+**‘Is She Sure?’ How the Breeders Joined Olivia Rodrigo’s Guts Tour.**\
+`The ’90s alt-rock icons hit the Madison Square Garden stage for the first time Friday night, after the 21-year-old pop star invited them to join her on the road.`\
+https://nytimes.com/2024/04/08/arts/music/the-breeders-olivia-rodrigo.html
+
+**Some clouds may perform a disappearing act.**\
+`White, puffy clouds can fade away during the eclipse. (Overcast skies, not so much.)`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/some-clouds-may-perform-a-disappearing-act
+
 **Yes, You Can Wash Cast Iron. 5 Big Kitchen Myths, Debunked.**\
 `A veteran food journalist digs into some common misconceptions about salting pasta water, browning meat and more.`\
 https://nytimes.com/2024/04/08/dining/kitchen-myths.html
