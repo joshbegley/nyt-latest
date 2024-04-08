@@ -1,3 +1,7 @@
+**What solar eclipse-gazing has looked like for the past two centuries.**\
+`By Sarah Eckinger`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/what-solar-eclipse-gazing-has-looked-like-for-the-past-two-centuries
+
 **Congress Is Back. Three Reasons That’s Good for Biden.**\
 `Democrats are the adults in Washington; the question is whether voters will notice.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/biden-trump-congress
