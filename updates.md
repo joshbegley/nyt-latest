@@ -1,3 +1,7 @@
+**Solar Eclipse Could Make Some Clouds Perform a Disappearing Act**\
+`A recent study found that cumulus clouds, the small cotton ball-like ones typical for a sunny day, can dissipate once an eclipse begins. But if the skies are overcast, your view could still be obstructed.`\
+https://nytimes.com/2024/04/08/science/solar-eclipse-clouds-totality.html
+
 **Israeli Opposition Leader Calls for Close Ties With U.S. in Visit**\
 `In the wake of President Biden’s recent warning to Israel to stop the killing of civilians in Gaza, Yair Lapid said the two countries “need to maintain this friendship.”`\
 https://nytimes.com/2024/04/08/world/middleeast/yair-lapid-blinken-washington.html
