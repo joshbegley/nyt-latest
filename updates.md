@@ -1,3 +1,11 @@
+**Seeking Answers on Israel and Palestine**\
+`Responses to an essay that rejected a two-state solution. Also: The U.S. and Israel; the eclipse; end-of-life planning; the church of Trump; the peace sign.`\
+https://nytimes.com/2024/04/08/opinion/israel-palestine-two-state-solution.html
+
+**What you can see during totality.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/what-you-can-see-during-totality
+
 **Some clouds may perform a disappearing act.**\
 `White, puffy clouds can fade away during the eclipse. (Overcast skies, not so much.)`\
 https://nytimes.com/2024/04/08/science/solar-eclipse-clouds-totality.html
