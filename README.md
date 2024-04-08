@@ -1,3 +1,7 @@
+**Tayi Tibble, Maori Poet and ‘It Girl’, Trusts the Wisdom of Her Ancestors**\
+`Tibble, 28, has been hailed as the fresh, funny and immensely skilled voice of a generation.`\
+https://nytimes.com/2024/04/08/books/booksupdate/tayi-tibble-maori-poet.html
+
 **Arkansas has never seen anything like the tourist flood it’s expecting for the eclipse.**\
 `By Emily Cochrane`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/arkansas-has-never-seen-anything-like-the-tourist-flood-its-expecting-for-the-eclipse
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/science/rip-medical-debt.html
 **Review: ‘Curb Your Enthusiasm’ Wraps Up in Familiar Fashion**\
 `Larry David’s HBO comedy ended on Sunday after 12 seasons. Longtime fans might have noticed similarities with a certain earlier sitcom.`\
 https://nytimes.com/2024/04/08/arts/television/curb-your-enthusiasm-finale-seinfeld.html
-
-**Jamie Dimon Issues an Economic Warning**\
-`The JPMorgan Chase chief executive used his annual letter to shareholders to flag that higher-for-longer inflation, uncertain growth prospects and widening political divisions.`\
-https://nytimes.com/2024/04/08/business/dealbook/jamie-dimon-economy-inflation-letter.html
 
