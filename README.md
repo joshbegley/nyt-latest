@@ -1,3 +1,11 @@
+**A small town in Mexico enjoys a long stretch in the eclipse’s darkness.**\
+`By Leila Miller`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/a-small-town-in-mexico-enjoys-a-long-stretch-in-the-eclipses-darkness
+
+**Georgia Trump Prosecutor Urges Appeals Court to Decline Disqualification Case**\
+`The prosecutor, Fani Willis, defended a judge’s recent ruling that she could continue leading the election interference case against Donald J. Trump.`\
+https://nytimes.com/2024/04/08/us/fani-willis-georgia-trump-disqualification-appeal.html
+
 **Tuesday Briefing: A Total Solar Eclipse**\
 `Also, the Vatican said gender changes amount to an affront.`\
 https://nytimes.com/2024/04/08/world/asia/eclipse-vatican-transgender-gaza-asia.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/a-border-city-re
 **Once a prison, an island becomes a haven under the eclipse’s darkness.**\
 `By Emiliano Rodríguez Mega`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/once-a-prison-an-island-becomes-a-haven-under-the-eclipses-darkness
-
-**Ex-Ecuadorean Vice President, Arrested at Mexican Embassy, Is in Coma**\
-`The former vice president, Jorge Glas, had taken pills, the police said, and was taken to a hospital. He had taken refuge at the embassy after being accused of corruption.`\
-https://nytimes.com/2024/04/08/world/americas/ex-ecuadorean-vice-president-coma-jorge-glas.html
-
-**For Nicaragua, International Case Against Germany Is Déjà Vu**\
-`Nicaragua’s accusation against Germany in the International Court of Justice comes 40 years after the country filed a claim against the United States in the same court.`\
-https://nytimes.com/2024/04/08/world/middleeast/for-nicaragua-international-case-against-germany-is-deja-vu.html
 
