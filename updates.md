@@ -1,3 +1,7 @@
+**In a migrant shelter in Piedras Negras, children find the magic of the eclipse.**\
+`By Chantal Flores`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/in-a-migrant-shelter-in-piedras-negras-children-find-the-magic-of-the-eclipse
+
 **A small town in Mexico enjoys a long stretch in the eclipse’s darkness.**\
 `By Leila Miller`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/a-small-town-in-mexico-enjoys-a-long-stretch-in-the-eclipses-darkness
