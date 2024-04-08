@@ -1,3 +1,11 @@
+**Jeff Schaffer and Susie Essman on the ‘Curb Your Enthusiasm’ Finale**\
+`In an interview, Jeff Schaffer and Susie Essman discuss the final episode and why Larry David decided to revive the polarizing “Seinfeld” finale.`\
+https://nytimes.com/2024/04/08/arts/television/curb-your-enthusiasm-finale-susie-essman-jeff-schaffer.html
+
+**The U.N. Security Council agrees to take up a Palestinian bid for full membership.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news/the-un-security-council-agrees-to-take-up-a-palestinian-bid-for-full-membership
+
 **NASA’s watching the eclipse from Cleveland.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/nasas-watching-the-eclipse-from-cleveland
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/08/movies/tom-ripley-netflix.html
 **Putting Abortion Question to Florida Voters is Unlikely to End Court Fights**\
 `Though the Florida Supreme Court allowed a ballot question on expanding abortion rights, it also laid out a way for anti-abortion groups to challenge such an expansion.`\
 https://nytimes.com/2024/04/08/us/florida-abortion-amendment-fetal-personhood.html
-
-**Biden Announces New Plan for Student Debt Relief**\
-`President Biden announced a large-scale effort to help pay off federal student loans for more than 20 million borrowers.`\
-https://nytimes.com/video/us/politics/100000009403496/biden-student-loan-relief.html
-
-**The Eclipse Across North America**\
-`What people in the path of totality were seeing and saying as the eclipse unfolded across the continent.`\
-https://nytimes.com/interactive/2024/04/08/us/total-solar-eclipse-photos.html
 

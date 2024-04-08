@@ -1,3 +1,11 @@
+**Jeff Schaffer and Susie Essman on the ‘Curb Your Enthusiasm’ Finale**\
+`In an interview, Jeff Schaffer and Susie Essman discuss the final episode and why Larry David decided to revive the polarizing “Seinfeld” finale.`\
+https://nytimes.com/2024/04/08/arts/television/curb-your-enthusiasm-finale-susie-essman-jeff-schaffer.html
+
+**The U.N. Security Council agrees to take up a Palestinian bid for full membership.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news/the-un-security-council-agrees-to-take-up-a-palestinian-bid-for-full-membership
+
 **NASA’s watching the eclipse from Cleveland.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/nasas-watching-the-eclipse-from-cleveland
