@@ -1,3 +1,7 @@
+**Spirit Airlines Will Delay Plane Purchases and Furlough Pilots**\
+`The low-cost airline, which has been unprofitable for four years, is trying to reduce costs after a federal judge blocked a proposed deal for JetBlue to acquire Spirit.`\
+https://nytimes.com/2024/04/08/business/spirit-airlines-airbus-pilots.html
+
 **Teen Girls Confront an Epidemic of Deepfake Nudes in Schools**\
 `Using artificial intelligence, middle and high school students have fabricated explicit images of female classmates and shared the doctored pictures.`\
 https://nytimes.com/2024/04/08/technology/deepfake-ai-nudes-westfield-high-school.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/climate/meteorites-antarctica.html
 **Large Scientific Review Confirms the Benefits of Physical Touch**\
 `Premature babies especially benefited from skin-to-skin contact, and women tended to respond more strongly than men did.`\
 https://nytimes.com/2024/04/08/health/physical-touch-benefits-premature-babies.html
-
-**Gridlock eclipse traffic has yet to emerge.**\
-`By Jay Root`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/gridlock-eclipse-traffic-has-yet-to-emerge
 
