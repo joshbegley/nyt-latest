@@ -1,3 +1,11 @@
+**Containers Are Being Removed From Ship That Hit Key Bridge**\
+`Workers are unloading the 4,700 containers on the ship, a crucial step in moving the vessel and reopening the channel in the Port of Baltimore.`\
+https://nytimes.com/2024/04/08/us/baltimore-key-bridge-ship-containers.html
+
+**What solar eclipse-gazing has looked like for the past two centuries.**\
+`By Sarah Eckinger`\
+https://nytimes.com/2024/04/08/science/what-solar-eclipse-gazing-has-looked-like-for-the-past-two-centuries.html
+
 **What solar eclipse-gazing has looked like for the past two centuries.**\
 `By Sarah Eckinger`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/what-solar-eclipse-gazing-has-looked-like-for-the-past-two-centuries
