@@ -1,3 +1,7 @@
+**Disappointment on the eclipse train in western New York.**\
+`By Christopher Maag`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/disappointment-on-the-eclipse-train-in-western-new-york
+
 **After nearly a century of life, my father saw his first eclipse.**\
 `By Alan Burdick`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/after-nearly-a-century-of-life-my-father-saw-his-first-eclipse
