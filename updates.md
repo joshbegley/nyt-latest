@@ -1,3 +1,11 @@
+**The second time was the charm for a college town at the eclipse crossroads.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/the-second-time-was-the-charm-for-a-college-town-at-the-eclipse-crossroads
+
+**College Towns Usually Lift Democrats. Is the Picture More Complicated in 2024?**\
+`An enthusiasm gap among young voters and anger on campuses over Gaza has some Democrats wary.`\
+https://nytimes.com/2024/04/08/us/politics/young-voters-gaza.html
+
 **What to Know About Biden’s New Student Debt Relief Plan**\
 `The proposal would affect nearly 30 million people and would target groups that have had hardships in repaying their loans.`\
 https://nytimes.com/2024/04/08/us/politics/biden-student-debt-plan-explained.html

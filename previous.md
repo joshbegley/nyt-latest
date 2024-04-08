@@ -1,3 +1,7 @@
+**The second time was the charm for a college town at the eclipse crossroads.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/the-second-time-was-the-charm-for-a-college-town-at-the-eclipse-crossroads
+
 **What to Know About Biden’s New Student Debt Relief Plan**\
 `The proposal would affect nearly 30 million people and would target groups that have had hardships in repaying their loans.`\
 https://nytimes.com/2024/04/08/us/politics/biden-student-debt-plan-explained.html
@@ -20,7 +24,7 @@ https://nytimes.com/2024/04/08/world/middleeast/iran-pardons-environmentalists.h
 
 **College Towns Usually Lift Democrats. Is the Picture More Complicated in 2024?**\
 `An enthusiasm gap among young voters and anger on campuses over Gaza has some Democrats wary.`\
-https://nytimes.com/2024/04/08/us/politics/college-towns-usually-lift-democrats-is-the-picture-more-complicated-in-2024.html
+https://nytimes.com/2024/04/08/us/politics/young-voters-gaza.html
 
 **Canadians and visitors alike share in the experience in Newfoundland and Montreal.**\
 `By Ian Austen and Chloe Rose Stuart-Ulin`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/unseasonable-war
 **Disappointment on the eclipse train in western New York.**\
 `By Christopher Maag`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/disappointment-on-the-eclipse-train-in-western-new-york
-
-**After nearly a century of life, my father saw his first eclipse.**\
-`By Alan Burdick`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/after-nearly-a-century-of-life-my-father-saw-his-first-eclipse
 
