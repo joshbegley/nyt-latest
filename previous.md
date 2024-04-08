@@ -1,3 +1,11 @@
+**Tuesday Briefing: A Total Solar Eclipse**\
+`Also, the Vatican said gender changes amount to an affront.`\
+https://nytimes.com/2024/04/08/world/asia/eclipse-vatican-transgender-gaza-asia.html
+
+**Biden Campaign Ad Blames Trump for Near-Death of Woman Who Was Denied Abortion**\
+`The ad encapsulates the strategy by the president’s campaign to seize on anger about the Supreme Court’s 2022 decision to overturn Roe v. Wade.`\
+https://nytimes.com/2024/04/08/us/politics/biden-ad-trump-abortion.html
+
 **‘A day I will never forget.’ More than 100,000 visitors witness the eclipse on Mexico’s coast.**\
 `By Simon Romero`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/a-day-i-will-never-forget-more-than-100000-visitors-witness-the-eclipse-on-mexicos-coast
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/08/world/americas/ex-ecuadorean-vice-president-coma-
 **For Nicaragua, International Case Against Germany Is Déjà Vu**\
 `Nicaragua’s accusation against Germany in the International Court of Justice comes 40 years after the country filed a claim against the United States in the same court.`\
 https://nytimes.com/2024/04/08/world/middleeast/for-nicaragua-international-case-against-germany-is-deja-vu.html
-
-**Col. Ralph Puckett Jr., Belated Medal of Honor Winner, Dies at 97**\
-`One of the Army’s most highly decorated servicemen, he received the military’s supreme tribute for valor, for his actions in the Korean War — 71 years after the fact.`\
-https://nytimes.com/2024/04/08/us/col-ralph-puckett-jr-dead.html
-
-**In Austin, thousands watched the eclipse during a Vampire Weekend concert.**\
-`By Colbi Edmonds`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/in-austin-thousands-watched-the-eclipse-during-a-vampire-weekend-concert
 

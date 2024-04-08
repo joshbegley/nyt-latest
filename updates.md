@@ -1,3 +1,11 @@
+**Tuesday Briefing: A Total Solar Eclipse**\
+`Also, the Vatican said gender changes amount to an affront.`\
+https://nytimes.com/2024/04/08/world/asia/eclipse-vatican-transgender-gaza-asia.html
+
+**Biden Campaign Ad Blames Trump for Near-Death of Woman Who Was Denied Abortion**\
+`The ad encapsulates the strategy by the president’s campaign to seize on anger about the Supreme Court’s 2022 decision to overturn Roe v. Wade.`\
+https://nytimes.com/2024/04/08/us/politics/biden-ad-trump-abortion.html
+
 **‘A day I will never forget.’ More than 100,000 visitors witness the eclipse on Mexico’s coast.**\
 `By Simon Romero`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/a-day-i-will-never-forget-more-than-100000-visitors-witness-the-eclipse-on-mexicos-coast
