@@ -1,3 +1,7 @@
+**Cities in the eclipse’s path are getting an economic ‘shot in the arm.’**\
+`Millions of tourists trying to experience the totality could bolster smaller economies across North America.`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-economy
+
 **What Solar Eclipse-Gazing Has Looked Like for the Past 2 Centuries**\
 `Millions of people on Monday will continue the tradition of experiencing and capturing solar eclipses, a pursuit that has spawned a lot of unusual gear.`\
 https://nytimes.com/2024/04/08/science/solar-eclipse-historic-photos.html
