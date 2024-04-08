@@ -1,3 +1,7 @@
+**The forecast is cloudy and may veil the eclipse.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/the-forecast-is-cloudy-and-may-veil-the-eclipse
+
 **Review: ‘Curb Your Enthusiasm’ Wraps Up in Familiar Fashion**\
 `Larry David’s HBO comedy ended on Sunday after 12 seasons. Longtime fans might have noticed similarities with a certain earlier sitcom.`\
 https://nytimes.com/2024/04/08/arts/television/curb-your-enthusiasm-finale-seinfeld.html
