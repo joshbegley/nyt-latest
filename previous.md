@@ -6,8 +6,8 @@ https://nytimes.com/2024/04/08/us/col-ralph-puckett-jr-dead.html
 `By Colbi Edmonds`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/in-austin-thousands-watched-the-eclipse-during-a-vampire-weekend-concert
 
-**‘Curb’ Finale’s ‘Seinfeld’ Tribute Was ‘About Larry’s Contrary DNA’**\
-`In an interview, Jeff Schaffer and Susie Essman discuss the final episode and why Larry David decided to revive the polarizing “Seinfeld” finale.`\
+**‘Curb’ Finale Shows ‘Larry’s Never Learned His Lesson’**\
+`In an interview, Jeff Schaffer and Susie Essman discuss why Larry David revived the polarizing “Seinfeld” finale. “We know what you thought of that, and we don’t care,” Schaffer said.`\
 https://nytimes.com/2024/04/08/arts/television/curb-your-enthusiasm-finale-susie-essman-jeff-schaffer.html
 
 **The U.N. Security Council agrees to take up a Palestinian bid for full membership.**\

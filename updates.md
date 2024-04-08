@@ -1,3 +1,7 @@
+**‘Curb’ Finale Shows ‘Larry’s Never Learned His Lesson’**\
+`In an interview, Jeff Schaffer and Susie Essman discuss why Larry David revived the polarizing “Seinfeld” finale. “We know what you thought of that, and we don’t care,” Schaffer said.`\
+https://nytimes.com/2024/04/08/arts/television/curb-your-enthusiasm-finale-susie-essman-jeff-schaffer.html
+
 **Col. Ralph Puckett Jr., Belated Medal of Honor Winner, Dies at 97**\
 `One of the Army’s most highly decorated servicemen, he received the military’s supreme tribute for valor in the Korean War — 71 years after the fact.`\
 https://nytimes.com/2024/04/08/us/col-ralph-puckett-jr-dead.html
