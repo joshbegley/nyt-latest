@@ -1,5 +1,9 @@
 **To Become Prince Andrew, He Needed More Than False Teeth**\
 `In the feature “Scoop,” streaming on Netflix, Rufus Sewell plays the disgraced royal blundering through a 2019 BBC interview.`\
+https://nytimes.com/2024/04/08/movies/scoop-prince-andrew-rufus-sewell.html
+
+**To Become Prince Andrew, He Needed More Than False Teeth**\
+`In the feature “Scoop,” streaming on Netflix, Rufus Sewell plays the disgraced royal blundering through a 2019 BBC interview.`\
 https://nytimes.com/2024/04/08/movies/to-become-prince-andrew-he-needed-more-than-false-teeth.html
 
 **Across the country, viewing the eclipse becomes part of some school days.**\
