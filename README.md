@@ -12,7 +12,7 @@ https://nytimes.com/2024/04/08/arts/music/the-breeders-olivia-rodrigo.html
 
 **Some clouds may perform a disappearing act.**\
 `White, puffy clouds can fade away during the eclipse. (Overcast skies, not so much.)`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/some-clouds-may-perform-a-disappearing-act
+https://nytimes.com/2024/04/08/science/solar-eclipse-clouds-totality.html
 
 **Yes, You Can Wash Cast Iron: 5 Big Kitchen Myths, Debunked**\
 `A veteran food journalist digs into some common misconceptions about salting pasta water, browning meat and more.`\
