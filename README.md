@@ -24,7 +24,7 @@ https://nytimes.com/2024/04/08/world/middleeast/iran-pardons-environmentalists.h
 
 **College Towns Usually Lift Democrats. Is the Picture More Complicated in 2024?**\
 `An enthusiasm gap among young voters and anger on campuses over Gaza has some Democrats wary.`\
-https://nytimes.com/2024/04/08/us/politics/college-towns-usually-lift-democrats-is-the-picture-more-complicated-in-2024.html
+https://nytimes.com/2024/04/08/us/politics/young-voters-gaza.html
 
 **Canadians and visitors alike share in the experience in Newfoundland and Montreal.**\
 `By Ian Austen and Chloe Rose Stuart-Ulin`\
