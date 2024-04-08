@@ -1,3 +1,15 @@
+**Israeli Opposition Leader Calls for Close Ties With U.S. in Visit**\
+`In the wake of President Biden’s recent warning to Israel to stop the killing of civilians in Gaza, Yair Lapid said the two countries “need to maintain this friendship.”`\
+https://nytimes.com/2024/04/08/world/middleeast/yair-lapid-blinken-washington.html
+
+**In California, Half an Eclipse Is Better Than None**\
+`Californians in the Bay Area and in Southern California braced for a favorable view of the partial eclipse as clouds dissipated on Monday morning.`\
+https://nytimes.com/2024/04/08/us/solar-eclipse-california.html
+
+**Four Takeaways From the Vatican’s Document on Human Dignity**\
+`The document restated the Roman Catholic Church’s rejection of abortion, gender fluidity and transition surgery.`\
+https://nytimes.com/2024/04/08/world/europe/vatican-gender-theory-document-takeaways.html
+
 **This is a prediction of what the sun’s corona will look like during the eclipse.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/this-is-a-prediction-of-what-the-suns-corona-will-look-like-during-the-eclipse
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/08/arts/music/the-breeders-olivia-rodrigo.html
 **Some clouds may perform a disappearing act.**\
 `White, puffy clouds can fade away during the eclipse. (Overcast skies, not so much.)`\
 https://nytimes.com/2024/04/08/science/solar-eclipse-clouds-totality.html
-
-**Yes, You Can Wash Cast Iron: 5 Big Kitchen Myths, Debunked**\
-`A veteran food journalist digs into some common misconceptions about salting pasta water, browning meat and more.`\
-https://nytimes.com/2024/04/08/dining/kitchen-myths.html
-
-**Trump to Sue Judge in Last-Ditch Attempt to Avert Manhattan Trial**\
-`Donald J. Trump’s lawyers indicated they would file an action asking an appeals court to delay the first prosecution of a former president. The move is unlikely to succeed.`\
-https://nytimes.com/2024/04/08/nyregion/trump-hush-money-trial-delay.html
-
-**Spirit Airlines Will Delay Plane Purchases and Furlough Pilots**\
-`The low-cost airline, which has been unprofitable for four years, is trying to reduce costs after a federal judge blocked a proposed deal for JetBlue to acquire Spirit.`\
-https://nytimes.com/2024/04/08/business/spirit-airlines-airbus-pilots.html
 
