@@ -1,3 +1,7 @@
+**Scientists on a boat in the Pacific Ocean got an early view of the total solar eclipse.**\
+`Scientists studying underwater volcanoes aboard a research vessel were caught in the path of totality and experienced the event before it reached land in Mexico.`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/scientists-on-a-boat-in-the-pacific-ocean-got-an-early-view-of-the-total-solar-eclipse
+
 **Under U.S. pressure, Israel said more aid would go to Gaza. Is that happening?**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news/under-us-pressure-israel-said-more-aid-would-go-to-gaza-is-that-happening
