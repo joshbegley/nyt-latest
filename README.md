@@ -1,3 +1,7 @@
+**Democrats in Pennsylvania Urge Biden to Branch Out Beyond Philadelphia**\
+`Vice President Kamala Harris will stop in the city on Monday to promote efforts to forgive student debt. Some local officials are calling for greater outreach in more rural areas.`\
+https://nytimes.com/2024/04/08/us/politics/democrats-pennsylvania-biden.html
+
 **Morgan Wallen Arrested, Accused of Throwing a Chair From a Bar Roof**\
 `The country superstar faces charges of reckless endangerment and disorderly conduct after the incident in Nashville on Sunday night.`\
 https://nytimes.com/2024/04/08/arts/music/morgan-wallen-arrested-chair-throwing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/us/politics/trump-abortion-states.html
 **Eagle Pass, Texas, trades one influx for another.**\
 `Once the epicenter of a migrant crisis, the border region is expected to draw about 100,000 people for April 8’s total eclipse.`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eagle-pass-texas-trades-one-influx-for-another
-
-**Here Are the Most Targeted Books of 2023**\
-`Amid a nationwide surge in book bans, memoirs and novels that deal with the experiences of L.G.B.T.Q. people or explore race received the most challenges.`\
-https://nytimes.com/2024/04/08/books/banned-books-2023.html
 
