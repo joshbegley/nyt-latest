@@ -1,3 +1,7 @@
+**‘Eureka Day’ and Sondheim Revue Join Broadway’s Next Season**\
+`Bernadette Peters and Lea Salonga will star in Sondheim’s “Old Friends” in Manhattan Theater Club’s Broadway season, which also includes “Eureka Day.”`\
+https://nytimes.com/2024/04/08/theater/manhattan-theater-club-sondheim-old-friends.html
+
 **Tayi Tibble, Maori Poet and ‘It Girl’, Trusts the Wisdom of Her Ancestors**\
 `Tibble, 28, has been hailed as the fresh, funny and immensely skilled voice of a generation.`\
 https://nytimes.com/2024/04/08/books/booksupdate/tayi-tibble-maori-poet.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/books/banned-books-2023.html
 **Paying Off People’s Medical Debt Has Little Impact on Their Lives, Study Finds**\
 `A nonprofit group called R.I.P. Medical Debt has relieved Americans of $11 billion in hospital bills. But that did not improve their mental health or their credit scores, a study found.`\
 https://nytimes.com/2024/04/08/science/rip-medical-debt.html
-
-**Review: ‘Curb Your Enthusiasm’ Wraps Up in Familiar Fashion**\
-`Larry David’s HBO comedy ended on Sunday after 12 seasons. Longtime fans might have noticed similarities with a certain earlier sitcom.`\
-https://nytimes.com/2024/04/08/arts/television/curb-your-enthusiasm-finale-seinfeld.html
 

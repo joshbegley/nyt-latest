@@ -1,3 +1,7 @@
+**‘Eureka Day’ and Sondheim Revue Join Broadway’s Next Season**\
+`Bernadette Peters and Lea Salonga will star in Sondheim’s “Old Friends” in Manhattan Theater Club’s Broadway season, which also includes “Eureka Day.”`\
+https://nytimes.com/2024/04/08/theater/manhattan-theater-club-sondheim-old-friends.html
+
 **Tayi Tibble, Maori Poet and ‘It Girl’, Trusts the Wisdom of Her Ancestors**\
 `Tibble, 28, has been hailed as the fresh, funny and immensely skilled voice of a generation.`\
 https://nytimes.com/2024/04/08/books/booksupdate/tayi-tibble-maori-poet.html
