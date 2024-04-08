@@ -1,3 +1,7 @@
+**Jerry Grote, Star Mets Catcher on 1969 Championship Team, Dies at 81**\
+`A Met for more than a decade, he was known for his powerful arm and his savvy in calling pitches.`\
+https://nytimes.com/2024/04/08/sports/baseball/jerry-grote-dead.html
+
 **What Chinese Outrage Over ‘3 Body Problem’ Says About China**\
 `The Netflix series showcases one of the country’s most successful works of culture, a rare cultural export. Instead, social media is condemning it.`\
 https://nytimes.com/2024/04/08/business/3-body-problem-china-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/07/crosswords/daily-puzzle-2024-04-08.html
 **Can’t Find Eclipse Glasses? Here’s What to Do.**\
 `You can watch a projection of the eclipse using some common household items.`\
 https://nytimes.com/2024/04/07/science/eclipse-glasses-alternatives-watch.html
-
-**Monday Briefing: Israel Pulls Some Troops from Southern Gaza**\
-`Also, Mexico and Nicaragua severed diplomatic relations with Ecuador.`\
-https://nytimes.com/2024/04/07/world/asia/israel-gaza-mexico-ecuador-asia.html
 

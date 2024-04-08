@@ -1,3 +1,7 @@
+**Jerry Grote, Star Mets Catcher on 1969 Championship Team, Dies at 81**\
+`A Met for more than a decade, he was known for his powerful arm and his savvy in calling pitches.`\
+https://nytimes.com/2024/04/08/sports/baseball/jerry-grote-dead.html
+
 **What Chinese Outrage Over ‘3 Body Problem’ Says About China**\
 `The Netflix series showcases one of the country’s most successful works of culture, a rare cultural export. Instead, social media is condemning it.`\
 https://nytimes.com/2024/04/08/business/3-body-problem-china-reaction.html
