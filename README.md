@@ -1,3 +1,7 @@
+**U.N. Inspectors Say Nuclear Plant in Ukraine Was Struck by Drones**\
+`The watchdog agency did not attribute blame, but its head said the strikes at the Zaporizhzhia Nuclear Power Plant “significantly increase the risk of a major nuclear accident.”`\
+https://nytimes.com/2024/04/08/world/europe/ukraine-nuclear-power-plant-russia.html
+
 **Listen to the story of ‘Mr. Eclipse.’**\
 `By The Daily Team`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/listen-to-the-story-of-mr-eclipse
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/us/baltimore-key-bridge-ship-containers.html
 **What Solar Eclipse-Gazing Has Looked Like for the Past 2 Centuries**\
 `Millions of people on Monday will continue the tradition of experiencing and capturing solar eclipses, a pursuit that has spawned a lot of unusual gear.`\
 https://nytimes.com/2024/04/08/science/solar-eclipse-historic-photos.html
-
-**Congress Is Back. Three Reasons That’s Good for Biden.**\
-`Democrats are the adults in Washington; the question is whether voters will notice.`\
-https://nytimes.com/live/2024/04/02/opinion/thepoint/biden-trump-congress
 

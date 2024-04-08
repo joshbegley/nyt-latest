@@ -1,3 +1,7 @@
+**Listen to the story of ‘Mr. Eclipse.’**\
+`By The Daily Team`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/listen-to-the-story-of-mr-eclipse
+
 **Baruch College, an Upward-Mobility Machine**\
 `The New York school is praised as a model college in a new report on diversity in higher education.`\
 https://nytimes.com/2024/04/08/briefing/baruch-college-higher-education-diversity.html
