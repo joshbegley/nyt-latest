@@ -1,3 +1,7 @@
+**The forecast is cloudy and may veil the eclipse.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/the-forecast-is-cloudy-and-may-veil-the-eclipse
+
 **Trump Says Abortion Law Should Be Left to the States**\
 `After months of mixed signals, the former president said that whatever states decide “must be the law of the land,” adding that he was “strongly in favor of exceptions for rape, incest and life of the mother.”`\
 https://nytimes.com/2024/04/08/us/politics/trump-abortion-states.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/world/europe/vatican-sex-change-surrogacy-dignity
 **To Become Prince Andrew, He Needed More Than False Teeth**\
 `In the feature “Scoop,” streaming on Netflix, Rufus Sewell plays the disgraced royal blundering through a 2019 BBC interview.`\
 https://nytimes.com/2024/04/08/movies/scoop-prince-andrew-rufus-sewell.html
-
-**Across the country, viewing the eclipse becomes part of some school days.**\
-`By Mary Beth Gahan and Troy Closson`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/across-the-country-viewing-the-eclipse-becomes-part-of-some-school-days
 
