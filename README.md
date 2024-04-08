@@ -1,3 +1,7 @@
+**‘It’s our Super Bowl’: This science teacher is going all out for the eclipse**\
+`Rick Crosslin, a science teacher in Indianapolis, paired up with school maintenance employees to build a giant model of the eclipse.`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/solar-eclipse-science-teachers
+
 **Vatican Document Casts Gender Change and Fluidity as Threat to Human Dignity**\
 `The statement is likely to be embraced by conservatives and stir consternation among L.G.B.T.Q. advocates who fear it will be used as a cudgel against transgender people.`\
 https://nytimes.com/2024/04/08/world/europe/vatican-sex-change-surrogacy-dignity.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/catch-up-on-what
 **Israel’s Latest Troop Withdrawal, and the Problem With American Bridges**\
 `Plus, is it eclipse weather?`\
 https://nytimes.com/2024/04/08/podcasts/israels-troops-eclipse.html
-
-**The Eclipse Chaser**\
-`As millions of Americans prepare to see a total solar eclipse, a retired astrophysicist known as “Mr. Eclipse,” discusses the celestial phenomenon.`\
-https://nytimes.com/2024/04/08/podcasts/the-daily/mr-eclipse.html
 
