@@ -1,3 +1,7 @@
+**Some clouds may perform a disappearing act.**\
+`White, puffy clouds can fade away during the eclipse. (Overcast skies, not so much.)`\
+https://nytimes.com/2024/04/08/science/solar-eclipse-clouds-totality.html
+
 **Not Everybody in the Zone of Totality Wants to Rip You Off**\
 `Journalists have collected lots of stories about high rates for lodging in the zone of totality, but some hoteliers resisted the craze.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/eclipse-hotel-prices
