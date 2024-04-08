@@ -16,7 +16,7 @@ https://nytimes.com/2024/04/08/science/rip-medical-debt.html
 
 **Review: ‘Curb Your Enthusiasm’ Wraps Up in Familiar Fashion**\
 `Larry David’s HBO comedy ended on Sunday after 12 seasons. Longtime fans might have noticed similarities with a certain earlier sitcom.`\
-https://nytimes.com/2024/04/08/arts/television/review-curb-your-enthusiasm-finale-seinfeld.html
+https://nytimes.com/2024/04/08/arts/television/curb-your-enthusiasm-finale-seinfeld.html
 
 **Jamie Dimon Issues an Economic Warning**\
 `The JPMorgan Chase chief executive used his annual letter to shareholders to flag that higher-for-longer inflation, uncertain growth prospects and widening political divisions.`\
