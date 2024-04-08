@@ -1,3 +1,7 @@
+**What’s on TV This Week: ‘Grey Gardens’ and Billy Joel in Concert**\
+`TCM airs the cult classic 1975 documentary, and Joel airs his first broadcast concert at Madison Square Garden.`\
+https://nytimes.com/2024/04/08/arts/television/whats-on-tv-this-week-grey-gardens-and-billy-joel-in-concert.html
+
 **Monday Briefing**\
 `Israel says it withdrew troops from southern Gaza.`\
 https://nytimes.com/2024/04/08/briefing/israel-troop-withdrawal-ecuador-mexico.html
