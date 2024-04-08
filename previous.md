@@ -1,3 +1,7 @@
+**Yellen Sees ‘More Work to Do’ as China Talks End With No Breakthrough**\
+`Treasury Secretary Janet L. Yellen was warmly received in China, but it was evident that the level of trust between the two sides does not run deep.`\
+https://nytimes.com/2024/04/08/business/economy/yellen-china-us-exports.html
+
 **What to Know About the Trial Donald Trump Faces in Manhattan**\
 `Prosecutors accused Donald Trump of falsifying business records to cover up a sex scandal. It will be the first criminal trial of a former president.`\
 https://nytimes.com/2024/04/08/nyregion/donald-trump-trial-what-to-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/pageoneplus/quotation-of-the-day-gazans-turn-to-a
 **Quotation of the Day: Gazing at the Sky, Awaiting a Moment of Awe**\
 `Quotation of the Day for Sunday, April 7, 2024.`\
 https://nytimes.com/2024/04/08/pageoneplus/quotation-of-the-day-gazing-at-the-sky-awaiting-a-moment-of-awe.html
-
-**Word of the Day: cachet**\
-`This word has appeared in 88 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/04/08/learning/word-of-the-day-cachet.html
 
