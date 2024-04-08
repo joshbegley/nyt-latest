@@ -1,3 +1,7 @@
+**Quotation of the Day: Gazing at the Sky, Awaiting a Moment of Awe**\
+`Quotation of the Day for Sunday, April 7, 2024.`\
+https://nytimes.com/2024/04/08/pageoneplus/quotation-of-the-day-gazing-at-the-sky-awaiting-a-moment-of-awe.html
+
 **Word of the Day: cachet**\
 `This word has appeared in 88 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/08/learning/word-of-the-day-cachet.html
