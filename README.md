@@ -1,3 +1,7 @@
+**Col. Ralph Puckett Jr., Belated Medal of Honor Winner, Dies at 97**\
+`One of the Army’s most highly decorated servicemen, he received the military’s supreme tribute for valor in the Korean War — 71 years after the fact.`\
+https://nytimes.com/2024/04/08/us/col-ralph-puckett-jr-dead.html
+
 **In Austin, thousands watched the eclipse during a Vampire Weekend concert.**\
 `By Colbi Edmonds`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/in-austin-thousands-watched-the-eclipse-during-a-vampire-weekend-concert
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/02/opinion/thepoint/eclipse-memory-family
 **Missouri Governor Denies Clemency for Death Row Inmate Who Got Support From Guards**\
 `Dozens of correctional workers urged Gov. Mike Parson to commute the death sentence of Brian Dorsey, who pleaded guilty in the murders of Ben and Sarah Bonnie.`\
 https://nytimes.com/2024/04/08/us/missouri-death-penalty-brian-dorsey.html
-
-**When Tom Ripley Stares Into the Mirror, He Sees Us**\
-`In the new series and in five previous movies, the character serves as a blank slate to examine the mores and concerns of the time.`\
-https://nytimes.com/2024/04/08/movies/tom-ripley-netflix.html
 
