@@ -1,3 +1,7 @@
+**Across the country, viewing the eclipse becomes part of some school days.**\
+`By Mary Beth Gahan and Troy Closson`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/across-the-country-viewing-the-eclipse-becomes-part-of-some-school-days
+
 **U.N. Inspectors Say Nuclear Plant in Ukraine Was Struck by Drones**\
 `The watchdog agency did not attribute blame, but its head said the strikes at the Zaporizhzhia Nuclear Power Plant “significantly increase the risk of a major nuclear accident.”`\
 https://nytimes.com/2024/04/08/world/europe/ukraine-nuclear-power-plant-russia.html

@@ -1,3 +1,7 @@
+**Across the country, viewing the eclipse becomes part of some school days.**\
+`By Mary Beth Gahan and Troy Closson`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/across-the-country-viewing-the-eclipse-becomes-part-of-some-school-days
+
 **U.N. Inspectors Say Nuclear Plant in Ukraine Was Struck by Drones**\
 `The watchdog agency did not attribute blame, but its head said the strikes at the Zaporizhzhia Nuclear Power Plant “significantly increase the risk of a major nuclear accident.”`\
 https://nytimes.com/2024/04/08/world/europe/ukraine-nuclear-power-plant-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/world/africa/mozambique-boat-sinking.html
 **Containers Are Being Removed From Ship That Hit Key Bridge**\
 `Workers are unloading the 4,700 containers on the ship, a crucial step in moving the vessel and reopening the channel in the Port of Baltimore.`\
 https://nytimes.com/2024/04/08/us/baltimore-key-bridge-ship-containers.html
-
-**What Solar Eclipse-Gazing Has Looked Like for the Past 2 Centuries**\
-`Millions of people on Monday will continue the tradition of experiencing and capturing solar eclipses, a pursuit that has spawned a lot of unusual gear.`\
-https://nytimes.com/2024/04/08/science/solar-eclipse-historic-photos.html
 
