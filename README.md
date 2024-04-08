@@ -1,3 +1,7 @@
+**Trump Says Abortion Will Be Left to the States. Don’t Believe Him.**\
+`His allies are planning to resurrect and enforce the 19th-century Comstock Act.`\
+https://nytimes.com/2024/04/08/opinion/trump-abortion-states.html
+
 **Dianne Brill, a 1980s ‘It Girl,’ Makes a Splashy Return**\
 `“I’m back,” she says at her 66th birthday party. “Maybe not everyone knows it yet, but I am.”`\
 https://nytimes.com/2024/04/08/style/1980s-it-girl-dianne-brill-makes-splashy-return.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/world/middleeast/israel-gaza-war.html
 **Good Economy, Negative Vibes: The Story Continues**\
 `The economy is in good shape. Why are so many Americans still saying it’s bad?`\
 https://nytimes.com/2024/04/08/opinion/economy-vibes.html
-
-**Iran Pardons 4 Environmental Activists to Commemorate Eid al-Fitr, Lawyer Says**\
-`Two have been freed so far, state media said. They were among eight arrested in 2018 on charges of spying, which they have denied.`\
-https://nytimes.com/2024/04/08/world/middleeast/iran-pardons-environmentalists.html
 
