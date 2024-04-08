@@ -1,40 +1,40 @@
-**Are There Eclipse Glasses for the Election?**\
-`Avert your eyes.`\
-https://nytimes.com/2024/04/08/opinion/biden-trump-immigration-economy-eclipse.html
+**Congress Is Back. Three Reasons That’s Good for Biden.**\
+`Democrats are the adults in Washington; the question is whether voters will notice.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/biden-trump-congress
 
-**$900,000 Homes in California**\
-`A 1929 Spanish-style house in Riverside, a two-bedroom condominium in Pasadena and a midcentury ranch house in Long Beach.`\
-https://nytimes.com/2024/04/08/realestate/900000-dollar-homes-california.html
+**Biden to Announce Student Debt Relief for Millions in Swing-State Pitch**\
+`Officials said that 10 million borrowers could see debt relief of at least $5,000. The plan, set to be announced in Wisconsin, could help rally support among young voters.`\
+https://nytimes.com/2024/04/08/us/politics/biden-student-loans-debt-relief.html
 
-**The Method Behind Trump’s Mistruths**\
-`A close examination of every public word from the former president during a crucial week of his campaign.`\
-https://nytimes.com/interactive/2024/04/08/us/politics/trump-speech-mistruths.html
+**TSMC Will Receive $6.6 Billion to Bolster U.S. Chip Manufacturing**\
+`Taiwan Semiconductor Manufacturing Company plans to build an additional factory and upgrade another planned facility in Phoenix with the federal grants.`\
+https://nytimes.com/2024/04/08/us/politics/tsmc-taiwan-chips-grants.html
 
-**A Party in Exile Is the Best Hope for Anti-Trump Republicans**\
-`What America needs is a counterestablishment dedicated to recapturing the G.O.P. from the outside.`\
-https://nytimes.com/2024/04/08/opinion/maga-republican-party-exile.html
+**Democratic Group Aims to Spend Heavily in Wisconsin Legislative Races**\
+`After Wisconsin’s Supreme Court ordered new legislative maps, Democrats are gearing up to try to flip the State Assembly — and give President Biden a boost.`\
+https://nytimes.com/2024/04/08/us/politics/wisconsin-legislature-democrats-spending.html
 
-**The Watch Brand SpaceOne Debuts Its Second Timepiece**\
-`The Tellurium includes the sun, earth and moon as three-dimensional orbs floating across the watch’s face.`\
-https://nytimes.com/2024/04/08/fashion/watches-spaceone-switzerland.html
+**The Invasive Species Debate Is Not Always Simple**\
+`Where they are welcomed, wild creatures can find a way to make use of nearly everything.`\
+https://nytimes.com/2024/04/08/opinion/invasive-species-debate.html
 
-**Voters Think America Is Broken. Biden Needs to Meet Them Where They Are.**\
-`A majority of Americans express, and have done for years, dissatisfaction with the direction of the country.`\
-https://nytimes.com/2024/04/08/opinion/biden-broken-america-trump.html
+**Ex-Officials Urge Curbing Presidential Power to Deploy Troops on U.S. Soil**\
+`The bipartisan group says the point is not about Donald J. Trump’s desire to invoke the Insurrection Act, but rather that current law gives all presidents too much unfettered power.`\
+https://nytimes.com/2024/04/08/us/trump-president-troops-riots-protests.html
 
-**A Protest Set to Banjo: Jamar Roberts’s Dance for Hard Times**\
-`“We the People,” Roberts’s first dance for the Martha Graham Dance Company, finds the rage and resistance hidden in an upbeat score by Rhiannon Giddens.`\
-https://nytimes.com/2024/04/08/arts/dance/jamar-roberts-rhiannon-giddens-martha-graham-company.html
+**Delmore Schwartz’s Poems Are Like Salt Flicked on the World**\
+`A new omnibus compiles the poet’s books and unpublished work, including his two-part autobiographical masterpiece, “Genesis.”`\
+https://nytimes.com/2024/04/08/books/review/collected-poems-delmore-schwartz.html
 
-**In an Election Year, ‘Suffs’ Takes a Political Battle to Broadway**\
-`As Shaina Taub’s musical opens, the show’s team members, including Hillary Clinton, say they’re ready to give the women’s suffrage movement a bigger platform.`\
-https://nytimes.com/2024/04/08/theater/suffs-broadway-hillary-clinton.html
+**Deepfake Porn Sites Used Her Image. She’s Fighting Back.**\
+`Nicholas Kristof on why tech companies aren’t powerless over the spread of deepfake porn.`\
+https://nytimes.com/2024/04/08/opinion/deepfake-porn-tech.html
 
-**I Never Found Closure After My Son’s Death. I Found Something Else.**\
-`Must grief for the climate diminish you, or can it do the opposite?`\
-https://nytimes.com/2024/04/08/opinion/grief-five-stages-climate.html
+**Anxious Parents Are the Ones Who Need Help**\
+`Today’s parents are suffering from anxiety about their children’s anxiety, and it’s not easy to persuade them that all is OK.`\
+https://nytimes.com/2024/04/08/opinion/teen-mental-health-college.html
 
-**The Cars of the Future Are Boring**\
-`Sales of electric vehicles are sagging in part because they’re so boring to drive compared with their gas counterparts.`\
-https://nytimes.com/2024/04/08/opinion/electric-car-ev-tesla.html
+**Is the Era of ‘Brozempic’ Upon Us?**\
+`Some telehealth start-ups are playing up masculine stereotypes to market medications that have been more widely associated with women.`\
+https://nytimes.com/2024/04/08/style/fella-health-semaglutide-ozempic-men.html
 
