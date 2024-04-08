@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`Israel says it withdrew troops from southern Gaza.`\
+https://nytimes.com/2024/04/08/briefing/israel-troop-withdrawal-ecuador-mexico.html
+
 **Jerry Grote, Star Mets Catcher on 1969 Championship Team, Dies at 81**\
 `A Met for more than a decade, he was known for his powerful arm and his savvy in calling pitches.`\
 https://nytimes.com/2024/04/08/sports/baseball/jerry-grote-dead.html
