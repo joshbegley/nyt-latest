@@ -1,3 +1,7 @@
+**Listen to the story of ‘Mr. Eclipse.’**\
+`By The Daily Team`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/listen-to-the-story-of-mr-eclipse
+
 **Baruch College, an Upward-Mobility Machine**\
 `The New York school is praised as a model college in a new report on diversity in higher education.`\
 https://nytimes.com/2024/04/08/briefing/baruch-college-higher-education-diversity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/science/solar-eclipse-historic-photos.html
 **Congress Is Back. Three Reasons That’s Good for Biden.**\
 `Democrats are the adults in Washington; the question is whether voters will notice.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/biden-trump-congress
-
-**Biden to Announce Student Debt Relief for Millions in Swing-State Pitch**\
-`Officials said that 10 million borrowers could see debt relief of at least $5,000. The plan, set to be announced in Wisconsin, could help rally support among young voters.`\
-https://nytimes.com/2024/04/08/us/politics/biden-student-loans-debt-relief.html
 
