@@ -1,3 +1,7 @@
+**Nicaragua Is Taking Germany to Court Over Supplying Arms to Israel**\
+`A new case before the International Court of Justice argues that the German government is furthering genocide in the Gaza war.`\
+https://nytimes.com/2024/04/08/world/middleeast/nicaragua-germany-world-court-israel-arms.html
+
 **What to know about the ‘Great North American Eclipse.’**\
 `By Michael Roston and Ben Shpigel`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/what-to-know-about-the-great-north-american-eclipse
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/crosswords/wordle-review.html
 **Eclipse Day Will Make New York State’s Budget Even Later**\
 `New York lawmakers are moving closer to a deal on a state budget, but a slew of obstacles remain, including the timing of Monday’s total eclipse.`\
 https://nytimes.com/2024/04/08/nyregion/late-budget-state-eclipse.html
-
-**Judge in Trump Criminal Case Braces for Glare of Unprecedented Trial**\
-`Juan Merchan, a target of Donald J. Trump’s wrath, has years of experience on the Manhattan bench but will face a uniquely challenging defendant next week.`\
-https://nytimes.com/2024/04/08/nyregion/trump-criminal-hush-money-trial-merchan.html
 

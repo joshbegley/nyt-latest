@@ -1,3 +1,7 @@
+**Nicaragua Is Taking Germany to Court Over Supplying Arms to Israel**\
+`A new case before the International Court of Justice argues that the German government is furthering genocide in the Gaza war.`\
+https://nytimes.com/2024/04/08/world/middleeast/nicaragua-germany-world-court-israel-arms.html
+
 **What to know about the ‘Great North American Eclipse.’**\
 `By Michael Roston and Ben Shpigel`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/what-to-know-about-the-great-north-american-eclipse
