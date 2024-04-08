@@ -1,3 +1,7 @@
+**NASA’s watching the eclipse from Cleveland.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/nasas-watching-the-eclipse-from-cleveland
+
 **L.A. Times Names Terry Tang as Executive Editor**\
 `Ms. Tang, who had been running the news organization on an interim basis since January, takes charge at a turbulent time for the publication.`\
 https://nytimes.com/2024/04/08/business/media/la-times-terry-tang-executive-editor.html

@@ -1,3 +1,7 @@
+**NASA’s watching the eclipse from Cleveland.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/nasas-watching-the-eclipse-from-cleveland
+
 **L.A. Times Names Terry Tang as Executive Editor**\
 `Ms. Tang, who had been running the news organization on an interim basis since January, takes charge at a turbulent time for the publication.`\
 https://nytimes.com/2024/04/08/business/media/la-times-terry-tang-executive-editor.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009403496/biden-student-loan-relief.
 **The Eclipse Across North America**\
 `What people in the path of totality were seeing and saying as the eclipse unfolded across the continent.`\
 https://nytimes.com/interactive/2024/04/08/us/total-solar-eclipse-photos.html
-
-**Pence Attacks Trump’s Abortion Statement as a ‘Slap in the Face’**\
-`Mike Pence, an evangelical Christian who embraced abortion restrictions at the federal level shortly after Roe was overturned, called Mr. Trump’s statement a “retreat” on the matter.`\
-https://nytimes.com/2024/04/08/us/politics/pence-attacks-trump-abortion.html
 
