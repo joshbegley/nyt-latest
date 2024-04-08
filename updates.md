@@ -1,3 +1,15 @@
+**Catch up on what you should understand about total solar eclipses.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/catch-up-on-what-you-should-understand-about-total-solar-eclipses
+
+**Israel’s Latest Troop Withdrawal, and the Problem With American Bridges**\
+`Plus, is it eclipse weather?`\
+https://nytimes.com/2024/04/08/podcasts/israels-troops-eclipse.html
+
+**The Eclipse Chaser**\
+`As millions of Americans prepare to see a total solar eclipse, a retired astrophysicist known as “Mr. Eclipse,” discusses the celestial phenomenon.`\
+https://nytimes.com/2024/04/08/podcasts/the-daily/mr-eclipse.html
+
 **At Least 96 Die After Overloaded Boat Sinks Off Coast of Mozambique**\
 `Some of the victims were en route to a fair and others were fleeing for fear of being affected by a cholera outbreak, a local official said.`\
 https://nytimes.com/2024/04/08/world/africa/mozambique-boat-sinking.html
