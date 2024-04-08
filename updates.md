@@ -1,3 +1,7 @@
+**08mideast-crisis**\
+`As Israel Scales Back Troop Presence in Gaza, Questions Linger About Rafah`\
+https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news
+
 **Yellen Sees ‘More Work to Do’ as China Talks End With No Breakthrough**\
 `Treasury Secretary Janet L. Yellen was warmly received in China, but it was evident that the level of trust between the two sides does not run deep.`\
 https://nytimes.com/2024/04/08/business/economy/yellen-china-us-exports.html
