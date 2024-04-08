@@ -27,7 +27,7 @@ https://nytimes.com/2024/04/08/world/americas/ex-ecuadorean-vice-president-coma-
 https://nytimes.com/2024/04/08/world/middleeast/for-nicaragua-international-case-against-germany-is-deja-vu.html
 
 **Col. Ralph Puckett Jr., Belated Medal of Honor Winner, Dies at 97**\
-`One of the Army’s most highly decorated servicemen, he received the military’s supreme tribute for valor in the Korean War — 71 years after the fact.`\
+`One of the Army’s most highly decorated servicemen, he received the military’s supreme tribute for valor, for his actions in the Korean War — 71 years after the fact.`\
 https://nytimes.com/2024/04/08/us/col-ralph-puckett-jr-dead.html
 
 **In Austin, thousands watched the eclipse during a Vampire Weekend concert.**\
