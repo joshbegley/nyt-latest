@@ -1,3 +1,7 @@
+**Review: ‘Curb Your Enthusiasm’ Wraps Up in Familiar Fashion**\
+`Larry David’s HBO comedy ended on Sunday after 12 seasons. Longtime fans might have noticed similarities with a certain earlier sitcom.`\
+https://nytimes.com/2024/04/08/arts/television/curb-your-enthusiasm-finale-seinfeld.html
+
 **Trump Says Abortion Law Should Be Left to the States**\
 `After months of mixed signals, the former president said that whatever states decide “must be the law of the land,” adding that he was “strongly in favor of exceptions for rape, incest and life of the mother.”`\
 https://nytimes.com/2024/04/08/us/politics/trump-abortion-states.html
