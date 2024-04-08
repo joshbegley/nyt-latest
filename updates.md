@@ -1,3 +1,15 @@
+**In Indiana, the sun and moon may not be the biggest stars as Purdue eyes a national championship.**\
+`By Mitch Smith`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/in-indiana-the-sun-and-moon-may-not-be-the-biggest-stars-as-purdue-eyes-a-national-championship
+
+**The Eclipse Brought Darkness and Fascination**\
+`Also, Donald Trump said abortion limits should be decided by states. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/04/08/briefing/total-solar-eclipse-biden-student-debt.html
+
+**Clouds parted just in time in a small Texas town.**\
+`By Ruth Graham`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/clouds-parted-just-in-time-in-a-small-texas-town
+
 **Tuesday Briefing: A Total Solar Eclipse**\
 `Also, the Vatican said gender changes amount to an affront.`\
 https://nytimes.com/2024/04/08/world/asia/eclipse-vatican-transgender-gaza-asia.html
