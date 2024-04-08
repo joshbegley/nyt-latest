@@ -1,3 +1,11 @@
+**Seeking Answers on Israel and Palestine**\
+`Responses to an essay that rejected a two-state solution. Also: The U.S. and Israel; the eclipse; end-of-life planning; the church of Trump; the peace sign.`\
+https://nytimes.com/2024/04/08/opinion/israel-palestine-two-state-solution.html
+
+**What you can see during totality.**\
+`By Katrina Miller`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/what-you-can-see-during-totality
+
 **Not Everybody in the Zone of Totality Wants to Rip You Off**\
 `Journalists have collected lots of stories about high rates for lodging in the zone of totality, but some hoteliers resisted the craze.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/eclipse-hotel-prices
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/08/business/spirit-airlines-airbus-pilots.html
 **Teen Girls Confront an Epidemic of Deepfake Nudes in Schools**\
 `Using artificial intelligence, middle and high school students have fabricated explicit images of female classmates and shared the doctored pictures.`\
 https://nytimes.com/2024/04/08/technology/deepfake-ai-nudes-westfield-high-school.html
-
-**Google to Tone Down Message Board After Employees Feud Over War in Gaza**\
-`The company is making changes to a popular message board called Memegen that some employees say sounds a lot like censorship.`\
-https://nytimes.com/2024/04/08/technology/google-memegen-gaza-war.html
-
-**The eclipse will shine light on Harriet Tubman’s connection to astronomy.**\
-`By Katrina Miller`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-harriet-tubman-auburn-ny
 
