@@ -1,3 +1,7 @@
+**L.A. Times Names Terry Tang as Executive Editor**\
+`Ms. Tang, who had been running the news organization on an interim basis since January, takes charge at a turbulent time for the publication.`\
+https://nytimes.com/2024/04/08/business/media/la-times-terry-tang-executive-editor.html
+
 **France Bracing for Cyberattacks During Summer Olympics**\
 `French officials are visiting Washington for cybersecurity consultations as President Emmanuel Macron predicts Moscow will try to target the Games.`\
 https://nytimes.com/2024/04/08/us/politics/france-cyberattacks-summer-olympics.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/08/us/total-solar-eclipse-photos.html
 **Pence Attacks Trump’s Abortion Statement as a ‘Slap in the Face’**\
 `Mike Pence, an evangelical Christian who embraced abortion restrictions at the federal level shortly after Roe was overturned, called Mr. Trump’s statement a “retreat” on the matter.`\
 https://nytimes.com/2024/04/08/us/politics/pence-attacks-trump-abortion.html
-
-**The Economic Luminary Who Loved Solar Eclipses**\
-`Inspired by science, William Stanley Jevons strove to make economics a more rigorous field.`\
-https://nytimes.com/2024/04/08/opinion/william-stanley-jevons-eclipse.html
 

@@ -1,3 +1,7 @@
+**L.A. Times Names Terry Tang as Executive Editor**\
+`Ms. Tang, who had been running the news organization on an interim basis since January, takes charge at a turbulent time for the publication.`\
+https://nytimes.com/2024/04/08/business/media/la-times-terry-tang-executive-editor.html
+
 **France Bracing for Cyberattacks During Summer Olympics**\
 `French officials are visiting Washington for cybersecurity consultations as President Emmanuel Macron predicts Moscow will try to target the Games.`\
 https://nytimes.com/2024/04/08/us/politics/france-cyberattacks-summer-olympics.html
