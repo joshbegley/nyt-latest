@@ -1,3 +1,7 @@
+**Eclipse, the Musical, stages its final performance.**\
+`By Christopher Maag`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-the-musical-stages-its-final-performance
+
 **Bulgari Recaptures the Crown for the World’s Thinnest Watch**\
 `The Octo Finissimo Ultra Mark II is 1.7 millimeters thick, half a tenth of a millimeter less than the previous record-holder.`\
 https://nytimes.com/2024/04/08/fashion/bulgari-thinnest-watch.html
