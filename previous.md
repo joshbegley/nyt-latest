@@ -1,3 +1,7 @@
+**Mexicans are balancing a super astronomical event with superstitions.**\
+`By Leila Miller`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/mexicans-are-balancing-a-super-astronomical-event-with-superstitions
+
 **Beyoncé’s ‘Cowboy Carter’ Opens at No. 1 With the Year’s Biggest Sales**\
 `The pop superstar’s new album also reigns on Billboard’s Top Country Albums chart, the first time a Black woman has led that tally in its 60-year history.`\
 https://nytimes.com/2024/04/08/arts/music/beyonce-cowboy-carter-billboard-chart.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/us/politics/trump-abortion-reaction.html
 **Do You Know These Novels Driven by Climate Change?**\
 `Try this short quiz on recent fiction that follows characters dealing with a turbulent world.`\
 https://nytimes.com/interactive/2024/04/08/books/review/climate-novels-quiz.html
-
-**Democrats in Pennsylvania Urge Biden to Branch Out Beyond Philadelphia**\
-`Vice President Kamala Harris will stop in the city on Monday to promote efforts to forgive student debt. Some local officials are calling for greater outreach in more rural areas.`\
-https://nytimes.com/2024/04/08/us/politics/democrats-pennsylvania-biden.html
 

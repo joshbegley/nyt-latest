@@ -1,3 +1,7 @@
+**Mexicans are balancing a super astronomical event with superstitions.**\
+`By Leila Miller`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/mexicans-are-balancing-a-super-astronomical-event-with-superstitions
+
 **Beyoncé’s ‘Cowboy Carter’ Opens at No. 1 With the Year’s Biggest Sales**\
 `The pop superstar’s new album also reigns on Billboard’s Top Country Albums chart, the first time a Black woman has led that tally in its 60-year history.`\
 https://nytimes.com/2024/04/08/arts/music/beyonce-cowboy-carter-billboard-chart.html
