@@ -18,9 +18,9 @@ https://nytimes.com/2024/04/08/world/africa/mozambique-boat-sinking.html
 `Workers are unloading the 4,700 containers on the ship, a crucial step in moving the vessel and reopening the channel in the Port of Baltimore.`\
 https://nytimes.com/2024/04/08/us/baltimore-key-bridge-ship-containers.html
 
-**What solar eclipse-gazing has looked like for the past two centuries.**\
-`By Sarah Eckinger`\
-https://nytimes.com/2024/04/08/science/what-solar-eclipse-gazing-has-looked-like-for-the-past-two-centuries.html
+**What Solar Eclipse-Gazing Has Looked Like for the Past 2 Centuries**\
+`Millions of people on Monday will continue the tradition of experiencing and capturing solar eclipses, a pursuit that has spawned a lot of unusual gear.`\
+https://nytimes.com/2024/04/08/science/solar-eclipse-historic-photos.html
 
 **Congress Is Back. Three Reasons That’s Good for Biden.**\
 `Democrats are the adults in Washington; the question is whether voters will notice.`\
