@@ -1,3 +1,7 @@
+**Quotation of the Day: Gazing at the Sky, Awaiting a Moment of Awe**\
+`Quotation of the Day for Sunday, April 7, 2024.`\
+https://nytimes.com/2024/04/08/pageoneplus/quotation-of-the-day-gazing-at-the-sky-awaiting-a-moment-of-awe.html
+
 **Word of the Day: cachet**\
 `This word has appeared in 88 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/08/learning/word-of-the-day-cachet.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/07/world/middleeast/israel-troops-gaza.html
 **At Rally for Hostages, Some Boo When Congressman Calls for Gaza Aid**\
 `A speech by Jerrold Nadler, a long-serving Jewish Democrat and supporter of Israel, was met with a mixed response at a New York rally calling for the release of hostages in Gaza.`\
 https://nytimes.com/2024/04/07/world/middleeast/hostages-rally-nyc-nadler.html
-
-**Trump, at Fund-Raiser, Says He Wants Immigrants From ‘Nice’ Countries**\
-`At rallies, Donald Trump frequently laments migrants from a list of countries from Africa, Asia and the Middle East as he stokes fears around the surge at the border.`\
-https://nytimes.com/2024/04/07/us/politics/trump-immigrants-nice-countries.html
 
