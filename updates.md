@@ -1,3 +1,7 @@
+**Some Mexicans are balancing a super astronomical event with superstitions.**\
+`By Leila Miller`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/mexicans-are-balancing-a-super-astronomical-event-with-superstitions
+
 **Biden, Trump and Dr. Bob: the Human Realities of Aging on the Job**\
 `At 75, Dr. Bob Ross cares for the aging residents of Ortonville, Minn, even as he wonders whether he, and the presidential candidates, are up to all their tasks.`\
 https://nytimes.com/2024/04/08/us/biden-trump-age-health.html
