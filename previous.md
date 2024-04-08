@@ -1,3 +1,7 @@
+**Leigh Bardugo’s Latest Travels to Renaissance Spain**\
+`In “The Familiar,” the blockbuster fantasist conjures a world of mystical intrigue and romance.`\
+https://nytimes.com/2024/04/08/books/review/familiar-leigh-bardugo.html
+
 **Mexicans are balancing a super astronomical event with superstitions.**\
 `By Leila Miller`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/mexicans-are-balancing-a-super-astronomical-event-with-superstitions
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/08/us/trump-abortion-election-biden/election-ca
 **Leading Anti-Abortion Group Says It Is ‘Deeply Disappointed’ in Trump’s Comments**\
 `The president of Susan B. Anthony Pro-Life America said she was “deeply disappointed” in Donald Trump’s position that states should decide abortion rights.`\
 https://nytimes.com/2024/04/08/us/politics/trump-abortion-reaction.html
-
-**Do You Know These Novels Driven by Climate Change?**\
-`Try this short quiz on recent fiction that follows characters dealing with a turbulent world.`\
-https://nytimes.com/interactive/2024/04/08/books/review/climate-novels-quiz.html
 
