@@ -1,3 +1,7 @@
+**Jonathan Majors Avoids Jail Time for Assault Conviction**\
+`Mr. Majors, a rising movie star before his conviction in December, was sentenced to a domestic violence program for assaulting an ex-girlfriend last year.`\
+https://nytimes.com/2024/04/08/nyregion/jonathan-majors-sentencing.html
+
 **How Abortion, and I.V.F., Flipped an Alabama State House Seat**\
 `Marilyn Lands’s victory in a special election provided an early blueprint for Democrats who are eager to make reproductive rights central to their campaigns.`\
 https://nytimes.com/2024/04/08/us/politics/alabama-abortion-ivf-house-seat.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/arts/music/morgan-wallen-arrested-chair-throwing.
 **‘Eureka Day’ and Sondheim Revue Join Broadway’s Next Season**\
 `Bernadette Peters and Lea Salonga will star in Sondheim’s “Old Friends” in Manhattan Theater Club’s Broadway season, which also includes “Eureka Day.”`\
 https://nytimes.com/2024/04/08/theater/manhattan-theater-club-sondheim-old-friends.html
-
-**Tayi Tibble, Maori Poet and ‘It Girl’, Trusts the Wisdom of Her Ancestors**\
-`Tibble, 28, has been hailed as the fresh, funny and immensely skilled voice of a generation.`\
-https://nytimes.com/2024/04/08/books/booksupdate/tayi-tibble-maori-poet.html
 

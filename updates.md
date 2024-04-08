@@ -1,3 +1,7 @@
+**Jonathan Majors Avoids Jail Time for Assault Conviction**\
+`Mr. Majors, a rising movie star before his conviction in December, was sentenced to a domestic violence program for assaulting an ex-girlfriend last year.`\
+https://nytimes.com/2024/04/08/nyregion/jonathan-majors-sentencing.html
+
 **How Abortion, and I.V.F., Flipped an Alabama State House Seat**\
 `Marilyn Lands’s victory in a special election provided an early blueprint for Democrats who are eager to make reproductive rights central to their campaigns.`\
 https://nytimes.com/2024/04/08/us/politics/alabama-abortion-ivf-house-seat.html
