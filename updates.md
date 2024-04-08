@@ -1,3 +1,7 @@
+**Col. Ralph Puckett Jr., Belated Medal of Honor Winner, Dies at 97**\
+`One of the Army’s most highly decorated servicemen, he received the military’s supreme tribute for valor in the Korean War — 71 years after the fact.`\
+https://nytimes.com/2024/04/08/us/col-ralph-puckett-jr-dead.html
+
 **In Austin, thousands watched the eclipse during a Vampire Weekend concert.**\
 `By Colbi Edmonds`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/in-austin-thousands-watched-the-eclipse-during-a-vampire-weekend-concert
