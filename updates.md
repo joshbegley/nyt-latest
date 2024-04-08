@@ -1,3 +1,7 @@
+**A Diplomatic Spat in Ecuador May Lift Its President’s Political Fortunes**\
+`Analysts believe that President Daniel Noboa’s re-election hopes are what motivated the arrest of an Ecuadorean politician taking refuge at the Mexican Embassy.`\
+https://nytimes.com/2024/04/07/world/americas/ecuador-mexico-embassy-noboa.html
+
 **Maryland Passes 2 Major Privacy Bills, Despite Tech Industry Pushback**\
 `One bill would require apps like Instagram and TikTok to prioritize young people’s safety and the other would restrict the collection of consumer data.`\
 https://nytimes.com/2024/04/07/technology/maryland-children-privacy-laws-technology.html

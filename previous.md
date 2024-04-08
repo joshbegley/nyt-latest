@@ -1,3 +1,7 @@
+**A Diplomatic Spat in Ecuador May Lift Its President’s Political Fortunes**\
+`Analysts believe that President Daniel Noboa’s re-election hopes are what motivated the arrest of an Ecuadorean politician taking refuge at the Mexican Embassy.`\
+https://nytimes.com/2024/04/07/world/americas/ecuador-mexico-embassy-noboa.html
+
 **Maryland Passes 2 Major Privacy Bills, Despite Tech Industry Pushback**\
 `One bill would require apps like Instagram and TikTok to prioritize young people’s safety and the other would restrict the collection of consumer data.`\
 https://nytimes.com/2024/04/07/technology/maryland-children-privacy-laws-technology.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/07/world/asia/israel-gaza-mexico-ecuador-asia.html
 **Democratic Group to Spend $186 Million Aiming to Win Back House Majority**\
 `In an interview on Sunday, the House Majority PAC president described the group’s investment as part of “an offensive strategy” for this election year.`\
 https://nytimes.com/2024/04/07/us/politics/democrats-house-campaign-ad-spending.html
-
-**Man Arrested After Fire Set Outside Bernie Sanders’s Vermont Office**\
-`Prosecutors and the police did not identify a possible motive for the fire, which was started on Friday. No one was injured.`\
-https://nytimes.com/2024/04/07/us/bernie-sanders-fire-arrest.html
 
