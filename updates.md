@@ -1,3 +1,11 @@
+**When Tom Ripley Stares Into the Mirror, He Sees Us**\
+`In the new series and in five previous movies, the character serves as a blank slate to examine the mores and concerns of the time.`\
+https://nytimes.com/2024/04/08/movies/tom-ripley-netflix.html
+
+**Putting Abortion Question to Florida Voters is Unlikely to End Court Fights**\
+`Though the Florida Supreme Court allowed a ballot question on expanding abortion rights, it also laid out a way for anti-abortion groups to challenge such an expansion.`\
+https://nytimes.com/2024/04/08/us/florida-abortion-amendment-fetal-personhood.html
+
 **Biden Announces New Plan for Student Debt Relief**\
 `President Biden announced a large-scale effort to help pay off federal student loans for more than 20 million borrowers.`\
 https://nytimes.com/video/us/politics/100000009403496/biden-student-loan-relief.html
