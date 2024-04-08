@@ -1,5 +1,9 @@
+**Local journalists in upstate New York are on strike as eclipse day arrives.**\
+`By Christopher Maag`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/local-journalists-in-upstate-new-york-are-on-strike-as-eclipse-day-arrives
+
 **J. Cole Apologizes for Kendrick Lamar Diss Track**\
-`J. Cole also vowed to update the track, “7 Minute Drill, or remove it from streaming services after it was featured on his new album, “Might Delete Later.”`\
+`J. Cole also vowed to update the track, “7 Minute Drill,” or remove it from streaming services after it was featured on his new album, “Might Delete Later.”`\
 https://nytimes.com/2024/04/08/arts/music/jcole-kendrick-lamar-diss-apology.html
 
 **When Your Boss Is Your Landlord**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/opinion/israel-palestine-two-state-solution.html
 **What you can see during totality.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/what-you-can-see-during-totality
-
-**Not Everybody in the Zone of Totality Wants to Rip You Off**\
-`Journalists have collected lots of stories about high rates for lodging in the zone of totality, but some hoteliers resisted the craze.`\
-https://nytimes.com/live/2024/04/02/opinion/thepoint/eclipse-hotel-prices
 
