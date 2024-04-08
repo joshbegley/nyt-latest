@@ -1,3 +1,7 @@
+**Biden Announces New Plan for Student Debt Relief**\
+`President Biden announced a large-scale effort to help pay off federal student loans for more than 20 million borrowers.`\
+https://nytimes.com/video/us/politics/100000009403496/biden-student-loan-relief.html
+
 **The Eclipse Across North America**\
 `What people in the path of totality were seeing and saying as the eclipse unfolded across the continent.`\
 https://nytimes.com/interactive/2024/04/08/us/total-solar-eclipse-photos.html
