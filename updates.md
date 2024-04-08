@@ -1,3 +1,11 @@
+**Israel’s withdrawal leaves a power vacuum in Gaza that could be filled by Hamas.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news/israels-withdrawal-leaves-a-power-vacuum-in-gaza-that-could-be-filled-by-hamas
+
+**Why a Savory English Pastry Is Beloved in a California Town**\
+`The popularity of the Cornish pasty, a meat pie eaten by hand like a sandwich, is a legacy of the gold rush.`\
+https://nytimes.com/2024/04/08/us/why-a-savory-english-pastry-is-beloved-in-a-california-town.html
+
 **‘It’s our Super Bowl’: This science teacher is going all out for the eclipse.**\
 `Rick Crosslin, a science teacher in Indianapolis, paired up with school maintenance employees to build a giant model of the eclipse.`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/solar-eclipse-science-teachers
