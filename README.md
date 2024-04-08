@@ -8,14 +8,14 @@ https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news/israels-wit
 
 **Why a Savory English Pastry Is Beloved in a California Town**\
 `The popularity of the Cornish pasty, a meat pie eaten by hand like a sandwich, is a legacy of the gold rush.`\
-https://nytimes.com/2024/04/08/us/why-a-savory-english-pastry-is-beloved-in-a-california-town.html
+https://nytimes.com/2024/04/08/us/cornish-pasty-california-grass-valley.html
 
 **The forecast is cloudy and may veil the eclipse.**\
 `By Judson Jones`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/the-forecast-is-cloudy-and-may-veil-the-eclipse
 
 **Trump Says Abortion Law Should Be Left to the States**\
-`After months of mixed signals, the former president said that whatever states decide “must be the law of the land,” adding that he was “strongly in favor of exceptions for rape, incest and life of the mother.”`\
+`After months of mixed signals, Donald Trump said that whatever states decide “must be the law of the land,” adding that he was “strongly in favor of exceptions for rape, incest and life of the mother.”`\
 https://nytimes.com/2024/04/08/us/politics/trump-abortion-states.html
 
 **Eagle Pass, Texas, trades one influx for another.**\
