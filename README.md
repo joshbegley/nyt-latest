@@ -1,3 +1,7 @@
+**What Chinese Outrage Over ‘3 Body Problem’ Says About China**\
+`The Netflix series showcases one of the country’s most successful works of culture, a rare cultural export. Instead, social media is condemning it.`\
+https://nytimes.com/2024/04/08/business/3-body-problem-china-reaction.html
+
 **A Diplomatic Spat in Ecuador May Lift Its President’s Political Fortunes**\
 `Analysts believe that President Daniel Noboa’s re-election hopes are what motivated the arrest of an Ecuadorean politician taking refuge at the Mexican Embassy.`\
 https://nytimes.com/2024/04/07/world/americas/ecuador-mexico-embassy-noboa.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/07/science/eclipse-glasses-alternatives-watch.html
 **Monday Briefing: Israel Pulls Some Troops from Southern Gaza**\
 `Also, Mexico and Nicaragua severed diplomatic relations with Ecuador.`\
 https://nytimes.com/2024/04/07/world/asia/israel-gaza-mexico-ecuador-asia.html
-
-**Democratic Group to Spend $186 Million Aiming to Win Back House Majority**\
-`In an interview on Sunday, the House Majority PAC president described the group’s investment as part of “an offensive strategy” for this election year.`\
-https://nytimes.com/2024/04/07/us/politics/democrats-house-campaign-ad-spending.html
 
