@@ -1,3 +1,11 @@
+**Clouds parted just in time in a small Texas town.**\
+`By Ruth Graham`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/clouds-parted-just-in-time-in-a-small-texas-town
+
+**‘The animals definitely could feel that something was different,’ a zookeeper says.**\
+`By Juliet Macur`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/the-animals-definitely-could-feel-that-something-was-different-a-zookeeper-says
+
 **The Greatest Lesson of the Solar Eclipse**\
 `Always listen to your mother.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/solar-eclipse-totality
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/a-small-town-in-
 **Georgia Trump Prosecutor Urges Appeals Court to Decline Disqualification Case**\
 `The prosecutor, Fani Willis, defended a judge’s recent ruling that she could continue leading the election interference case against Donald J. Trump.`\
 https://nytimes.com/2024/04/08/us/fani-willis-georgia-trump-disqualification-appeal.html
-
-**Tuesday Briefing: A Total Solar Eclipse**\
-`Also, the Vatican said gender changes amount to an affront.`\
-https://nytimes.com/2024/04/08/world/asia/eclipse-vatican-transgender-gaza-asia.html
-
-**Biden Campaign Ad Blames Trump for Near-Death of Woman Who Was Denied Abortion**\
-`The ad encapsulates the strategy by the president’s campaign to seize on anger about the Supreme Court’s 2022 decision to overturn Roe v. Wade.`\
-https://nytimes.com/2024/04/08/us/politics/biden-ad-trump-abortion.html
 

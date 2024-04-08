@@ -1,3 +1,11 @@
+**Clouds parted just in time in a small Texas town.**\
+`By Ruth Graham`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/clouds-parted-just-in-time-in-a-small-texas-town
+
+**‘The animals definitely could feel that something was different,’ a zookeeper says.**\
+`By Juliet Macur`\
+https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/the-animals-definitely-could-feel-that-something-was-different-a-zookeeper-says
+
 **The Greatest Lesson of the Solar Eclipse**\
 `Always listen to your mother.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/solar-eclipse-totality
