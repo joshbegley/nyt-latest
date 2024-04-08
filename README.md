@@ -1,3 +1,11 @@
+**Israel’s withdrawal leaves a power vacuum in Gaza that could be filled by Hamas.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/04/08/world/israel-hamas-war-gaza-news/israels-withdrawal-leaves-a-power-vacuum-in-gaza-that-could-be-filled-by-hamas
+
+**Why a Savory English Pastry Is Beloved in a California Town**\
+`The popularity of the Cornish pasty, a meat pie eaten by hand like a sandwich, is a legacy of the gold rush.`\
+https://nytimes.com/2024/04/08/us/why-a-savory-english-pastry-is-beloved-in-a-california-town.html
+
 **The forecast is cloudy and may veil the eclipse.**\
 `By Judson Jones`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/the-forecast-is-cloudy-and-may-veil-the-eclipse
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/08/business/dealbook/jamie-dimon-economy-inflation-l
 **‘It’s our Super Bowl’: This science teacher is going all out for the eclipse.**\
 `Rick Crosslin, a science teacher in Indianapolis, paired up with school maintenance employees to build a giant model of the eclipse.`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/solar-eclipse-science-teachers
-
-**Vatican Document Casts Gender Change and Fluidity as Threat to Human Dignity**\
-`The statement is likely to be embraced by conservatives and stir consternation among L.G.B.T.Q. advocates who fear it will be used as a cudgel against transgender people.`\
-https://nytimes.com/2024/04/08/world/europe/vatican-sex-change-surrogacy-dignity.html
-
-**To Become Prince Andrew, He Needed More Than False Teeth**\
-`In the feature “Scoop,” streaming on Netflix, Rufus Sewell plays the disgraced royal blundering through a 2019 BBC interview.`\
-https://nytimes.com/2024/04/08/movies/scoop-prince-andrew-rufus-sewell.html
 
