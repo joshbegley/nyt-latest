@@ -1,3 +1,11 @@
+**Why a Savory English Pastry Is Beloved in a California Town**\
+`The popularity of the Cornish pasty, a meat pie eaten by hand like a sandwich, is a legacy of the gold rush.`\
+https://nytimes.com/2024/04/08/us/cornish-pasty-california-grass-valley.html
+
+**Trump Says Abortion Law Should Be Left to the States**\
+`After months of mixed signals, Donald Trump said that whatever states decide “must be the law of the land,” adding that he was “strongly in favor of exceptions for rape, incest and life of the mother.”`\
+https://nytimes.com/2024/04/08/us/politics/trump-abortion-states.html
+
 **Arkansas has never seen anything like the tourist flood it’s expecting for the eclipse.**\
 `By Emily Cochrane`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/arkansas-has-never-seen-anything-like-the-tourist-flood-its-expecting-for-the-eclipse
