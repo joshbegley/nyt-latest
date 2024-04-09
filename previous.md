@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: School Attendance, Bridge Collapse, NCAA Final**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/04/09/learning/09StudentNewsQuiz.html
+
 **How Often Do You Take Breaks From Your Phone?**\
 `What strategies do you use to have a healthier relationship with your devices?`\
 https://nytimes.com/2024/04/09/learning/how-often-do-you-take-breaks-from-your-phone.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/crosswords/spelling-bee-forum.html
 **HYT Aims to Bounce Back — Again**\
 `After the brand’s roller-coaster decade, Vincent Perriard is now running the show — and trying to calm the waters.`\
 https://nytimes.com/2024/04/09/fashion/hyt-watches-wonders-comeback.html
-
-**To Choose the Menu, Just Win the Masters**\
-`The winner of the most hallowed event in professional golf gets to design the menu (and pay) for the next year’s champions dinner. Jon Rahm, the 2023 winner, supplied a recipe from his grandmother.`\
-https://nytimes.com/2024/04/09/us/masters-tournament-champions-dinner.html
 

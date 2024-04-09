@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: School Attendance, Bridge Collapse, NCAA Final**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/04/09/learning/09StudentNewsQuiz.html
+
 **How Often Do You Take Breaks From Your Phone?**\
 `What strategies do you use to have a healthier relationship with your devices?`\
 https://nytimes.com/2024/04/09/learning/how-often-do-you-take-breaks-from-your-phone.html
