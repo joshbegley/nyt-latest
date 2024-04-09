@@ -1,3 +1,7 @@
+**Wednesday Briefing: A Divided South Korea Votes**\
+`Also, a landmark climate ruling in Europe.`\
+https://nytimes.com/2024/04/09/world/asia/south-korea-elections-climate-asia.html
+
 **Clarence Henry, New Orleans R&B Star Known as the Frogman, Dies at 87**\
 `A local hero in his hometown, he was best known for his hit “Ain’t Got No Home,” which showcased the vocal versatility that earned him his nickname.`\
 https://nytimes.com/2024/04/09/arts/music/clarence-henry-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/blinken-say
 **A U.S. congressman says he’s ready to hold up an F-15 jet sale to Israel.**\
 `By Edward Wong`\
 https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/a-us-congressman-says-hes-ready-to-hold-up-an-f-15-jet-sale-to-israel
-
-**Biden Condemns Arizona’s Abortion Ban as ‘Cruel’ and ‘Extreme’**\
-`President Biden, who promised to continue to fight for the restoration of Roe v. Wade, said the ban was first enacted “well before women had secured the right to vote.”`\
-https://nytimes.com/2024/04/09/us/politics/biden-arizona-abortion-ban.html
 
