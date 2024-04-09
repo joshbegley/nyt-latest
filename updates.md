@@ -1,3 +1,7 @@
+**Arizona Reinstates 160-Year-Old Abortion Ban**\
+`The state’s highest court said the law, moribund for decades under Roe v. Wade, was now enforceable, but put the decision on hold for a lower court to hear other challenges to the law.`\
+https://nytimes.com/2024/04/09/us/arizona-abortion-ban.html
+
 **TV Networks to Urge Biden and Trump to Debate, Wading Into a Fraught Topic**\
 `Speculation has swirled in the political world about whether the presumptive candidates will agree to the traditional face-to-face events, a campaign staple since 1976.`\
 https://nytimes.com/2024/04/09/business/media/networks-biden-trump-debate-letter.html
