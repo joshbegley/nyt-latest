@@ -1,3 +1,7 @@
+**2 Men Fined $1.25 Million for Robocall Scheme to Suppress Black Vote**\
+`Right-wing operatives were behind the calls, which falsely claimed that people who voted by mail would have their information sent to law enforcement agencies.`\
+https://nytimes.com/2024/04/09/nyregion/robocalls-black-voters-wohl-burkman.html
+
 **More Funding Needed to Prosecute Pandemic Fraud, Justice Dept. Says**\
 `The Justice Department said more than $1.4 billion in stolen relief funds have been seized or forfeited. But estimates of the total stolen run into the tens of billions.`\
 https://nytimes.com/2024/04/09/us/politics/pandemic-fraud-justice.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/us/politics/biden-arizona-abortion-ban.html
 **Austin Pushes Back on Claims of Israel Carrying Out Genocide in Gaza**\
 `Defense Secretary Lloyd J. Austin III made the comments during a hearing that was disrupted several times by protests of U.S. support for Israel’s assault on Hamas.`\
 https://nytimes.com/2024/04/09/world/middleeast/austin-genocide-gaza-israel.html
-
-**Read the Arizona Supreme Court’s Abortion Ruling**\
-`The state’s highest court on Tuesday upheld an 1864 law that bans nearly all abortions.`\
-https://nytimes.com/interactive/2024/04/09/us/arizona-abortion-ruling.html
 
