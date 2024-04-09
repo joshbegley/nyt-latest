@@ -1,4 +1,4 @@
-**Biden courts care givers, pledging to expand support if he is re-elected.**\
+**Biden courts caregivers, pledging to expand support if he is re-elected.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/04/09/us/biden-trump-election/biden-care-economy
 
