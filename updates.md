@@ -1,3 +1,7 @@
+**Prosecutors Ask Supreme Court to Reject Trump’s Immunity Claim in Election Case**\
+`The filing was the main submission from Jack Smith, the special counsel prosecuting the former president. The case will be argued on April 25.`\
+https://nytimes.com/2024/04/08/us/supreme-court-trump-immunity-jan-6.html
+
 **Dianne Brill, a 1980s ‘It Girl,’ Makes a Splashy Return**\
 `“I’m back,” she says at her 66th birthday party. “Maybe not everyone knows it yet, but I am.”`\
 https://nytimes.com/2024/04/08/style/dianne-brill.html
