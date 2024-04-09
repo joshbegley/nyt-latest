@@ -1,3 +1,7 @@
+**‘Fire Shut Up in My Bones’ Review: A Met Milestone Returns**\
+`After making history as the Metropolitan Opera’s first work by a Black composer, Terence Blanchard’s “Fire” is back — with its showstopping step dance.`\
+https://nytimes.com/2024/04/09/arts/music/met-opera-fire-shut-up-in-my-bones.html
+
 **Internet Traffic Dipped as Viewers Took in the Eclipse**\
 `Internet traffic dropped by 40 percent or more during the eclipse in states in the path of totality, including Maine, New Hampshire and Ohio, Cloudflare found.`\
 https://nytimes.com/2024/04/09/business/internet-traffic-eclipse-cloudflare.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/arts/design/donna-dennis-architecture-sculpture.h
 **Norfolk Southern Settles Derailment Suit for $600 Million**\
 `The railroad company will pay residents and businesses in East Palestine, Ohio, and the surrounding area after a derailment last year.`\
 https://nytimes.com/2024/04/09/business/norfolk-southern-east-palestine-settlement.html
-
-**Downtown Los Angeles Places Another Big Bet on the Arts**\
-`The pandemic was tough on city centers and cultural institutions. What does that mean for Los Angeles, whose downtown depends on the arts?`\
-https://nytimes.com/2024/04/09/arts/downtown-los-angeles-culture.html
 
