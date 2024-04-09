@@ -1,3 +1,7 @@
+**Seth Meyers Slams Trump’s $50 Million Fund-Raiser**\
+`Meyers said the dinner menu at a Palm Beach campaign event for Donald Trump “had so many foreign words, I’m surprised he didn’t have it deported.”`\
+https://nytimes.com/2024/04/09/arts/television/seth-meyers-trump-fund-raiser.html
+
 **Word of the Day: sophomoric**\
 `This word has appeared in 18 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/09/learning/word-of-the-day-sophomoric.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/world/europe/ukraine-russia-odesa-strike.html
 **Simon Harris Is About to Become Ireland’s Youngest Leader. Who Is He?**\
 `After a swift political rise, the 37-year-old is set to become Ireland’s premier on Tuesday. But his time as head of the government could be short.`\
 https://nytimes.com/2024/04/09/world/europe/simon-harris-ireland-taoiseach.html
-
-**How Japan Is Trying to Rebuild Its Chip Industry**\
-`Taiwan’s semiconductor giant, TSMC, is quickly remaking a farm town in Japan into Asia’s next hub of chip manufacturing with enormous government support.`\
-https://nytimes.com/2024/04/09/business/tsmc-kikuyo-japan.html
 
