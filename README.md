@@ -1,5 +1,5 @@
 **A Useful Guide to the History of U.S.-China Relations**\
-`A new podcast helps explain the current moment.`\
+`A new podcast helps explain the current situation.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/china-history-podcast
 
 **Bill in Congress Would Force Action on U.S. Troops’ Blast Exposure**\
