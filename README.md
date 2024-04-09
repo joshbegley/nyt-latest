@@ -1,3 +1,11 @@
+**Capitol Police Hire Special Prosecutors to Handle Rise in Threats Against Congress**\
+`The police department charged with protecting lawmakers has brought in new attorneys specially responsible for prosecuting people who make violent threats against members of Congress.`\
+https://nytimes.com/2024/04/09/us/capitol-police-special-prosecutors-threats-against-congress.html
+
+**Woman Sentenced to Month in Prison Over Theft of Ashley Biden’s Diary**\
+`Aimee Harris sold the diary to Project Veritas, a right-wing group, in what prosecutors said was a brazen plot to damage Joseph R. Biden Jr. in the 2020 election.`\
+https://nytimes.com/2024/04/09/us/politics/project-veritas-ashley-biden-diary.html
+
 **Michigan Vascular Clinics Shutting Down After Scrutiny**\
 `The clinics’ owner, Dr. Jihad Mustapha, who called himself the “leg saver” but whose procedures sometimes preceded amputations, was a focus of a Times investigation last year.`\
 https://nytimes.com/2024/04/09/business/jihad-mustapha-atherectomy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/09/arts/music/amplifier-newsletter-magnetic-fields-6
 **TV Networks to Urge Biden and Trump to Debate, Wading Into a Fraught Topic**\
 `Speculation has swirled in the political world about whether the presumptive candidates will agree to the traditional face-to-face events, a campaign staple since 1976.`\
 https://nytimes.com/2024/04/09/business/media/networks-biden-trump-debate-letter.html
-
-**Trump’s New Stance on Abortion**\
-`Readers discuss his statement that abortion policy should be left to the states. Also: J Street; student “brands”; GPS satellites; alternatives to social media.`\
-https://nytimes.com/2024/04/09/opinion/trump-abortion.html
-
-**Arizona Upholds 160-Year-Old Abortion Ban**\
-`The state’s highest court said the law, moribund for decades under Roe v. Wade, was now enforceable, but put the decision on hold for a lower court to hear other challenges to the law.`\
-https://nytimes.com/2024/04/09/us/arizona-abortion-ban.html
 
