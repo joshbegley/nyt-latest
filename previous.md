@@ -8,7 +8,7 @@ https://nytimes.com/live/2024/04/09/us/biden-trump-election/biden-care-economy
 
 **The Global Competition at the Heart of ‘3 Body Problem’**\
 `As many book readers and series viewers have pointed out, an impending alien invasion is a fitting allegory for U.S.-China competition.`\
-https://nytimes.com/live/2024/04/02/opinion/thepoint/three-body-problem-china
+https://nytimes.com/live/2024/04/09/opinion/thepoint/three-body-problem-china
 
 **Cameron, on U.S. Trip, Takes a Risk and Meets With Trump**\
 `David Cameron, the British foreign secretary, said he spoke with Donald Trump, the former, and possibly future, president, about Ukraine and the Israel-Gaza conflict.`\
@@ -30,8 +30,8 @@ https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/a-us-congre
 `President Biden, who promised to continue to fight for the restoration of Roe v. Wade, said the ban was first enacted “well before women had secured the right to vote.”`\
 https://nytimes.com/2024/04/09/us/politics/biden-arizona-abortion-ban.html
 
-**Defense secretary pushes back on protesters’ claims of genocide in Gaza.**\
-`By John Ismay`\
+**Austin Pushes Back on Claims of Israel Carrying Out Genocide in Gaza**\
+`Defense Secretary Lloyd J. Austin III made the comments during a hearing that was disrupted several times by protests of U.S. support for Israel’s assault on Hamas.`\
 https://nytimes.com/2024/04/09/world/middleeast/austin-genocide-gaza-israel.html
 
 **Read the Arizona Supreme Court’s Abortion Ruling**\

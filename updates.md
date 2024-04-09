@@ -1,3 +1,11 @@
+**The Global Competition at the Heart of ‘3 Body Problem’**\
+`As many book readers and series viewers have pointed out, an impending alien invasion is a fitting allegory for U.S.-China competition.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/three-body-problem-china
+
+**Austin Pushes Back on Claims of Israel Carrying Out Genocide in Gaza**\
+`Defense Secretary Lloyd J. Austin III made the comments during a hearing that was disrupted several times by protests of U.S. support for Israel’s assault on Hamas.`\
+https://nytimes.com/2024/04/09/world/middleeast/austin-genocide-gaza-israel.html
+
 **Defense secretary pushes back on protesters’ claims of genocide in Gaza.**\
 `By John Ismay`\
 https://nytimes.com/2024/04/09/world/middleeast/austin-genocide-gaza-israel.html
