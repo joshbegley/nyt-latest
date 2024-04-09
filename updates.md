@@ -1,3 +1,11 @@
+**TV Networks to Urge Biden and Trump to Debate, Wading Into a Fraught Topic**\
+`Speculation has swirled in the political world about whether the presumptive candidates will agree to the traditional face-to-face events, a campaign staple since 1976.`\
+https://nytimes.com/2024/04/09/business/media/networks-biden-trump-debate-letter.html
+
+**Trump’s New Stance on Abortion**\
+`Readers discuss his statement that abortion policy should be left to the states. Also: J Street; student “brands”; GPS satellites; alternatives to social media.`\
+https://nytimes.com/2024/04/09/opinion/trump-abortion.html
+
 **Arizona Reinstates 160-Year-Old Abortion Ban**\
 `The state’s highest court said the law, passed in 1864 when Arizona was a territory and moribund for decades under Roe v. Wade, was now enforceable.`\
 https://nytimes.com/2024/04/09/us/arizona-abortion-ban.html
