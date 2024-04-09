@@ -1,3 +1,7 @@
+**Trevor Griffiths, Marxist Writer for Stage and Screen, Dies at 88**\
+`For him, “art played a particular role in social change,” the director Mehmet Ergen said. “Everything was political.”`\
+https://nytimes.com/2024/04/09/theater/trevor-griffiths-dead.html
+
 **Netanyahu Must Go**\
 `Being pro-Israel doesn’t entail slavish support for any leader of the country, particularly its most failed one.`\
 https://nytimes.com/2024/04/09/opinion/netanyahu-israel.html
