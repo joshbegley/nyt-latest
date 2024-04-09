@@ -1,3 +1,7 @@
+**Dianne Brill, a 1980s ‘It Girl,’ Makes a Splashy Return**\
+`“I’m back,” she says at her 66th birthday party. “Maybe not everyone knows it yet, but I am.”`\
+https://nytimes.com/2024/04/08/style/dianne-brill.html
+
 **Trump Says Abortion Will Be Left to the States. Don’t Believe Him.**\
 `His allies are planning to resurrect and enforce the 19th-century Comstock Act.`\
 https://nytimes.com/2024/04/08/opinion/trump-abortion-states.html

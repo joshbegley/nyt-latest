@@ -4,7 +4,7 @@ https://nytimes.com/2024/04/08/opinion/trump-abortion-states.html
 
 **Dianne Brill, a 1980s ‘It Girl,’ Makes a Splashy Return**\
 `“I’m back,” she says at her 66th birthday party. “Maybe not everyone knows it yet, but I am.”`\
-https://nytimes.com/2024/04/08/style/1980s-it-girl-dianne-brill-makes-splashy-return.html
+https://nytimes.com/2024/04/08/style/dianne-brill.html
 
 **Pope Francis Finds a Limit to His Liberalism**\
 `His new statement criticizing gender change is a clear appeal to the conservative wings of his church.`\
