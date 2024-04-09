@@ -1,3 +1,7 @@
+**Switzerland’s Climate Shortfalls Violate Rights, European Court Rules**\
+`But the court ruled as inadmissible two other climate-related attempts to hold governments accountable.`\
+https://nytimes.com/2024/04/09/world/europe/climate-human-rights.html
+
 **50 Years After Historic Home Run, Hank Aaron Gets a Stamp and a Statue**\
 `The baseball legend hit his record-breaking home run on April 8, 1974. His statue will be unveiled at the Baseball Hall of Fame in May.`\
 https://nytimes.com/2024/04/09/sports/hank-aaron-baseball-hall-fame-statue-stamp.html
@@ -33,8 +37,4 @@ https://nytimes.com/article/best-restaurants-chicago.html
 **These Scientists Rock. Literally.**\
 `The Pasteur Institute in Paris, known for its world-altering scientific research, has been making advancements in another field: the musical arts.`\
 https://nytimes.com/2024/04/09/style/pasteur-institute-music-bands.html
-
-**Everyone Wants to Seize Russia’s Money. It’s a Terrible Idea.**\
-`The dollar is probably the most valuable strategic asset the United States has.`\
-https://nytimes.com/2024/04/09/opinion/us-aid-ukraine-war.html
 
