@@ -1,3 +1,7 @@
+**Havana Syndrome and Russia’s Unit 29155**\
+`There is increasing evidence that American officers and diplomats were attacked with a Russian energy weapon.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/havana-syndrome-russia
+
 **Beut Takes a Modern Approach to Korean Royal Court Cuisine**\
 `Sawa brings Lebanese dishes to Park Slope, Brooklyn; Zaab Burger combines smash burgers and Thai flavors at Essex Market and more restaurant news.`\
 https://nytimes.com/2024/04/09/dining/nyc-restaurant-news.html
