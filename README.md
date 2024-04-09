@@ -1,3 +1,7 @@
+**Beyoncé, ‘Cowboy Carter’ and Filling in History’s Gaps**\
+`A conversation about how the pop superstar’s genre experiments explore race and power, and the implicit politics that come with them.`\
+https://nytimes.com/2024/04/08/arts/music/popcast-beyonce-cowboy-carter.html
+
 **Office Subs**\
 `Caroline Sommers and Freddie Cheng place a few orders.`\
 https://nytimes.com/2024/04/08/crosswords/daily-puzzle-2024-04-09.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/02/opinion/thepoint/vatican-pope-francis-gender
 **Trump attacks his conservative critics while defending his new stance on abortion.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/08/us/trump-abortion-election-biden/trump-abortion-critics
-
-**Couples exchange wedding rings, and then don eclipse glasses.**\
-`By Gaya Gupta`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-weddings
 
