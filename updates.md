@@ -1,3 +1,7 @@
+**Someday, Earth Will Have a Final Total Solar Eclipse**\
+`The moon will drift far enough from Earth that it no longer fully obstructs the sun. But predicting when this will happen poses numerous challenges.`\
+https://nytimes.com/2024/04/09/science/final-total-solar-eclipse.html
+
 **Seth Meyers Slams Trump’s $50 Million Fund-Raiser**\
 `Meyers said the dinner menu at a Palm Beach campaign event for Donald Trump “had so many foreign words, I’m surprised he didn’t have it deported.”`\
 https://nytimes.com/2024/04/09/arts/television/seth-meyers-trump-fund-raiser.html

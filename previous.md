@@ -1,3 +1,7 @@
+**Someday, Earth Will Have a Final Total Solar Eclipse**\
+`The moon will drift far enough from Earth that it no longer fully obstructs the sun. But predicting when this will happen poses numerous challenges.`\
+https://nytimes.com/2024/04/09/science/final-total-solar-eclipse.html
+
 **Seth Meyers Slams Trump’s $50 Million Fund-Raiser**\
 `Meyers said the dinner menu at a Palm Beach campaign event for Donald Trump “had so many foreign words, I’m surprised he didn’t have it deported.”`\
 https://nytimes.com/2024/04/09/arts/television/seth-meyers-trump-fund-raiser.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/science/conflict-timber-russia-europe.html
 **A Drone Strike in Odesa Shatters a Family’s Life**\
 `Serhii Haidarzhy’s wife and son were killed when their apartment block was hit. He and their daughter survived. The tragedy has become a symbol in Ukraine of the war’s terrible toll on civilians.`\
 https://nytimes.com/2024/04/09/world/europe/ukraine-russia-odesa-strike.html
-
-**Simon Harris Is About to Become Ireland’s Youngest Leader. Who Is He?**\
-`After a swift political rise, the 37-year-old is set to become Ireland’s premier on Tuesday. But his time as head of the government could be short.`\
-https://nytimes.com/2024/04/09/world/europe/simon-harris-ireland-taoiseach.html
 
