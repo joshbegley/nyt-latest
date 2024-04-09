@@ -1,3 +1,7 @@
+**Trevor Griffiths, Marxist Writer for Stage and Screen, Dies at 88**\
+`For him, “art played a particular role in social change,” the director Mehmet Ergen said. “Everything was political.”`\
+https://nytimes.com/2024/04/09/theater/trevor-griffiths-dead.html
+
 **Netanyahu Must Go**\
 `Being pro-Israel doesn’t entail slavish support for any leader of the country, particularly its most failed one.`\
 https://nytimes.com/2024/04/09/opinion/netanyahu-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/world/europe/david-cameron-trump-ukraine-israel.h
 **Three Greenhouse Gases, Three All-Time Highs**\
 `Why emissions hit record levels last year.`\
 https://nytimes.com/2024/04/09/climate/greenhouse-gas-carbon-emissions.html
-
-**Blinken says Israel must keep aid flowing at higher rate.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/blinken-says-israel-must-keep-aid-flowing-at-higher-rate
 
