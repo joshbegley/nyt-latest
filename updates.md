@@ -1,3 +1,7 @@
+**Gypsy Rose Blanchard Files for Divorce From Ryan Anderson**\
+`The couple married while Ms. Blanchard, who was found guilty of helping to kill her mother, was still in prison.`\
+https://nytimes.com/2024/04/08/style/gypsy-rose-blanchard-divorce-ryan-anderson.html
+
 **On Abortion, Trump Chose Politics Over Principles. Will It Matter?**\
 `With his video statement on Monday, Donald Trump laid bare how faulty a messenger he had always been for the anti-abortion cause.`\
 https://nytimes.com/2024/04/08/us/politics/trump-abortion-stance.html
