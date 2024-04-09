@@ -1,3 +1,11 @@
+**Food Aid Program for Mothers and Children Will Provide More Fruits and Vegetables**\
+`The Agriculture Department updated the WIC program to more closely align with nutrition guidelines. The changes also reduce assistance for milk and juice.`\
+https://nytimes.com/2024/04/09/us/politics/wic-food-aid-fruits-vegetables.html
+
+**Comics Artist Dies After Sexual Misconduct Accusations**\
+`Ed Piskor, 41, was known for his detailed “Hip Hop Family Tree” and “X-Men: Grand Design.” A Pittsburgh gallery canceled an exhibition of his work after the initial allegation.`\
+https://nytimes.com/2024/04/09/arts/ed-piskor-dies-comics-hip-hop-family-tree.html
+
 **Stumbling Into Goldilocks**\
 `How America avoided recession (so far).`\
 https://nytimes.com/2024/04/09/opinion/us-economy-inflation-recession.html

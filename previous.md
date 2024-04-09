@@ -1,3 +1,11 @@
+**Food Aid Program for Mothers and Children Will Provide More Fruits and Vegetables**\
+`The Agriculture Department updated the WIC program to more closely align with nutrition guidelines. The changes also reduce assistance for milk and juice.`\
+https://nytimes.com/2024/04/09/us/politics/wic-food-aid-fruits-vegetables.html
+
+**Comics Artist Dies After Sexual Misconduct Accusations**\
+`Ed Piskor, 41, was known for his detailed “Hip Hop Family Tree” and “X-Men: Grand Design.” A Pittsburgh gallery canceled an exhibition of his work after the initial allegation.`\
+https://nytimes.com/2024/04/09/arts/ed-piskor-dies-comics-hip-hop-family-tree.html
+
 **Stumbling Into Goldilocks**\
 `How America avoided recession (so far).`\
 https://nytimes.com/2024/04/09/opinion/us-economy-inflation-recession.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/09/us/arizona-abortion-ban.html
 **A New Film Examines the Godfather of Modern Conservatism**\
 `The PBS documentary “The Incomparable Mr. Buckley” implicitly and explicitly asks: What would William F. Buckley think of today’s Republican Party?`\
 https://nytimes.com/2024/04/09/arts/television/william-f-buckley-pbs.html
-
-**Israel and the U.N. can’t agree on how much aid reached Gaza this week.**\
-`By Matthew Mpoke Bigg and Adam Sella`\
-https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/israel-and-the-un-cant-agree-on-how-much-aid-reached-gaza-this-week
-
-**Peter Higgs, Nobelist Who Discovered the ‘God Particle,’ Dies at 94**\
-`The Higgs boson was named for him. It was a key element of the Standard Model, which encapsulated all human knowledge so far about elementary particles.`\
-https://nytimes.com/2024/04/09/science/peter-higgs-dead.html
 
