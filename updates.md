@@ -1,3 +1,7 @@
+**Germany fights accusations of aiding genocide, at the top U.N. court in The Hague.**\
+`By Marlise Simons and Erika Solomon`\
+https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/germany-will-fight-allegations-of-aiding-genocide-at-the-top-un-court-in-the-hague
+
 **Germany will fight allegations of aiding genocide, at the top U.N. court in The Hague.**\
 `By Marlise Simons and Erika Solomon`\
 https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/germany-will-fight-allegations-of-aiding-genocide-at-the-top-un-court-in-the-hague
