@@ -1,3 +1,7 @@
+**Bill in Congress Would Force Action on U.S. Troops’ Blast Exposure**\
+`The Pentagon would be required to modify weapons, update safety guidelines, train medical staff and track individual troops’ exposure to repeated blasts that can injure their brains.`\
+https://nytimes.com/2024/04/09/us/pentagon-blast-exposure-brain-elizabeth-warren-joni-ernst.html
+
 **Arizona Reinstated a 160-Year-Old Abortion Ban**\
 `Also, Iran is smuggling weapons into the West Bank. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/04/09/briefing/abortion-ban-arizona-epa-pollution-rule.html
