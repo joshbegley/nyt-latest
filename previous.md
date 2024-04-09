@@ -1,3 +1,11 @@
+**Tuesday Briefing**\
+`Eclipse day in North America.`\
+https://nytimes.com/2024/04/09/briefing/solar-eclipse-vatican-transgender-surrogacy.html
+
+**These Nine Men Voted for Biden in 2020. How Do They See Him Now?**\
+`The participants discuss their views on Biden and the 2024 election.`\
+https://nytimes.com/interactive/2024/04/09/opinion/biden-2020-voters-focus-group.html
+
 **Corrections: April 9, 2024**\
 `Corrections that appeared in print on Tuesday, April 9, 2024.`\
 https://nytimes.com/2024/04/09/pageoneplus/corrections-april-9-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/09/business/tsmc-kikuyo-japan.html
 **German Business Is Tangled in Red Tape**\
 `Companies in Germany complain that the demands of bureaucracy are costing them time and money that would be better spent building their businesses.`\
 https://nytimes.com/2024/04/09/world/europe/german-business-is-tangled-in-red-tape.html
-
-**Beyoncé, ‘Cowboy Carter’ and Filling in History’s Gaps**\
-`A conversation about how the pop superstar’s genre experiments explore race and power, and the implicit politics that come with them.`\
-https://nytimes.com/2024/04/08/arts/music/popcast-beyonce-cowboy-carter.html
-
-**Office Subs**\
-`Caroline Sommers and Freddie Cheng place a few orders.`\
-https://nytimes.com/2024/04/08/crosswords/daily-puzzle-2024-04-09.html
 
