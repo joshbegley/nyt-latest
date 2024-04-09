@@ -1,3 +1,7 @@
+**Rev. Cecil Murray, Leader Amid Los Angeles Riots, Dies at 94**\
+`He used his church, First African Methodist Episcopal, as a base to address the social ills that confronted the city’s Black population.`\
+https://nytimes.com/2024/04/09/us/rev-cecil-murray-dead.html
+
 **These Perfumes Come With Notes of Blood, Latex and Floorboards**\
 `For a growing number of fragrance fans, smelling singular is more important than smelling good.`\
 https://nytimes.com/2024/04/09/t-magazine/strange-perfume-fragrance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/arts/music/clarence-henry-dead.html
 **2 Men Fined $1.25 Million for Robocall Scheme to Suppress Black Vote**\
 `Right-wing operatives were behind the calls, which falsely claimed that people who voted by mail would have their information sent to law enforcement agencies.`\
 https://nytimes.com/2024/04/09/nyregion/robocalls-black-voters-wohl-burkman.html
-
-**More Funding Needed to Prosecute Pandemic Fraud, Justice Dept. Says**\
-`The Justice Department said more than $1.4 billion in stolen relief funds have been seized or forfeited. But estimates of the total stolen run into the tens of billions.`\
-https://nytimes.com/2024/04/09/us/politics/pandemic-fraud-justice.html
 
