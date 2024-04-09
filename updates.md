@@ -1,3 +1,15 @@
+**How Low Will They Go? Wall Street’s Big Rethink on Interest Rate Cuts**\
+`Investors see Wednesday’s Consumer Price Index report as a pivotal report card on inflation and the Federal Reserve’s next move.`\
+https://nytimes.com/2024/04/09/business/dealbook/wall-street-interest-rates-inflation.html
+
+**Fortune Magazine Names a New C.E.O.**\
+`Anastasia Nyrkovskaya, who was the chief financial officer and chief strategy officer, is the first woman to run the company.`\
+https://nytimes.com/2024/04/09/business/media/fortune-ceo-anastasia-nyrkovskaya.html
+
+**Xi Meets With Russia’s Foreign Minister, Reaffirming Ties**\
+`The visit came days after the U.S. threatened new sanctions against Chinese companies if they aided Russia’s war in Ukraine.`\
+https://nytimes.com/2024/04/09/world/asia/xi-lavrov-russia-china.html
+
 **Should Alcoholic Beverages Have Cancer Warning Labels?**\
 `Ireland will require them starting in 2026, and there are nascent efforts elsewhere to add more explicit labeling about the health risks of drinking.`\
 https://nytimes.com/2024/04/09/health/alcohol-cancer-warning.html
