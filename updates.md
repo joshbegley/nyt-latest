@@ -1,3 +1,7 @@
+**Office Subs**\
+`Caroline Sommers and Freddie Cheng place a few orders.`\
+https://nytimes.com/2024/04/08/crosswords/daily-puzzle-2024-04-09.html
+
 **Gypsy Rose Blanchard Files for Divorce From Ryan Anderson**\
 `The couple married while Ms. Blanchard, who was found guilty of helping to kill her mother, was still in prison.`\
 https://nytimes.com/2024/04/08/style/gypsy-rose-blanchard-divorce-ryan-anderson.html
