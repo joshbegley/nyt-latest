@@ -1,3 +1,11 @@
+**Internet Traffic Dipped as Viewers Took in the Eclipse**\
+`Internet traffic dropped by 40 percent or more during the eclipse in states in the path of totality, including Maine, New Hampshire and Ohio, Cloudflare found.`\
+https://nytimes.com/2024/04/09/business/internet-traffic-eclipse-cloudflare.html
+
+**Is This Maternity Hospital Haunted, or Is It All a Pregnant Metaphor?**\
+`In Clare Beams’s eerie new novel, “The Garden,” nefarious things are afoot.`\
+https://nytimes.com/2024/04/09/books/review/garden-clare-beams.html
+
 **Another Red-Blue Divide: Money to Feed Kids in the Summer**\
 `Congress passed bipartisan legislation to provide families that rely on subsidized school meals with help buying food over the summer. Nearly half of Republican-led states have yet to sign on.`\
 https://nytimes.com/2024/04/09/us/politics/school-meals-summer-ebt.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/09/business/norfolk-southern-east-palestine-settleme
 **Downtown Los Angeles Places Another Big Bet on the Arts**\
 `The pandemic was tough on city centers and cultural institutions. What does that mean for Los Angeles, whose downtown depends on the arts?`\
 https://nytimes.com/2024/04/09/arts/downtown-los-angeles-culture.html
-
-**Heartbreak and Family Love on the International Booker Prize Shortlist**\
-`Books by Jenny Erpenbeck and Hwang Sok-yong are among six nominees for the prestigious award for translated fiction.`\
-https://nytimes.com/2024/04/09/arts/international-booker-prize-nominees.html
-
-**California Is in Bloom Again**\
-`Wildflowers are beginning to spring to life across the state after another wet winter.`\
-https://nytimes.com/2024/04/09/us/california-wildflowers.html
 
