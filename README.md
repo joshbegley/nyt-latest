@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘That Was a Fake Question’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/04/09/style/tiny-modern-love-stories-that-was-a-fake-question.html
+
 **Capitol Police Hire Special Prosecutors to Handle Rise in Threats Against Congress**\
 `The police department charged with protecting lawmakers has brought in new attorneys specially responsible for prosecuting people who make violent threats against members of Congress.`\
 https://nytimes.com/2024/04/09/us/capitol-police-special-prosecutors-threats-against-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/business/oil-price-rise.html
 **The Magnetic Fields Wrote ‘69 Love Songs.’ Here’s 11 of the Best.**\
 `A primer on the indie-rock band’s triple album, now celebrating its 25th anniversary.`\
 https://nytimes.com/2024/04/09/arts/music/amplifier-newsletter-magnetic-fields-69-love-songs.html
-
-**TV Networks to Urge Biden and Trump to Debate, Wading Into a Fraught Topic**\
-`Speculation has swirled in the political world about whether the presumptive candidates will agree to the traditional face-to-face events, a campaign staple since 1976.`\
-https://nytimes.com/2024/04/09/business/media/networks-biden-trump-debate-letter.html
 
