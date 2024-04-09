@@ -1,3 +1,7 @@
+**Greene Escalates Threat Against Johnson, Making the Case for His Ouster**\
+`In a letter to Republicans, the far-right lawmaker from Georgia said the speaker had presided over a “complete and total surrender” to Democrats and President Biden, and must change course or be unseated.`\
+https://nytimes.com/2024/04/09/us/politics/marjorie-taylor-greene-mike-johnson.html
+
 **Trump’s Calculus on Abortion, and Iran’s Secret Smuggling Network**\
 `Plus, the fight against “deepnudes.”`\
 https://nytimes.com/2024/04/09/podcasts/trump-abortion-deepnudes-schools.html
