@@ -1,4 +1,4 @@
-**Cameron, on U.S. Trip, Takes a Risk and Meets with Trump**\
+**Cameron, on U.S. Trip, Takes a Risk and Meets With Trump**\
 `David Cameron, the British foreign secretary, said he spoke with Donald Trump, the former, and possibly future, president, about Ukraine and the Israel-Gaza conflict.`\
 https://nytimes.com/2024/04/09/world/europe/david-cameron-trump-ukraine-israel.html
 
