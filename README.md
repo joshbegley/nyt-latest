@@ -1,3 +1,7 @@
+**The Global Competition at the Heart of ‘3 Body Problem’**\
+`As many book readers and series viewers have pointed out, an impending alien invasion is a fitting allegory for U.S.-China competition.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/three-body-problem-china
+
 **Cameron, on U.S. Trip, Takes a Risk and Meets With Trump**\
 `David Cameron, the British foreign secretary, said he spoke with Donald Trump, the former, and possibly future, president, about Ukraine and the Israel-Gaza conflict.`\
 https://nytimes.com/2024/04/09/world/europe/david-cameron-trump-ukraine-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/world/asia/ramadan-eid-moon-eclipse.html
 **Biden Promises to Make Caregiving More Affordable if Re-elected**\
 `The president pledged to make adjustments to child care and elderly care support as he laid out proposals for his budget during a speech to caregivers at Union Station in Washington.`\
 https://nytimes.com/video/us/politics/100000009405609/biden-economy-caregivers.html
-
-**Abortion Jumps to the Center of Arizona’s Key 2024 Races**\
-`A ruling by the state’s highest court upholding an 1864 law that bans nearly all abortions set up a fierce political fight over the issue.`\
-https://nytimes.com/2024/04/09/us/politics/arizona-abortion-politics.html
 
