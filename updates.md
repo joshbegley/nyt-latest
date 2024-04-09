@@ -1,3 +1,7 @@
+**Iran Smuggles Arms to West Bank, Officials Say, to Foment Unrest With Israel**\
+`The covert operation, described by U.S., Iranian and Israeli officials, is heightening concerns that Iran is seeking to turn the West Bank into a flashpoint in its shadow war with Israel.`\
+https://nytimes.com/2024/04/09/world/middleeast/iran-west-bank-weapons-smuggling.html
+
 **Trump’s Abortion Calculus, and ‘Deepnudes’ in Schools**\
 `Plus, on death row in Missouri.`\
 https://nytimes.com/2024/04/09/podcasts/trump-abortion-deepnudes-schools.html
