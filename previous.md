@@ -1,3 +1,11 @@
+**A U.S. congressman says he’s ready to hold up an F-15 jet sale to Israel.**\
+`By Edward Wong`\
+https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/a-us-congressman-says-hes-ready-to-hold-up-an-f-15-jet-sale-to-israel
+
+**Biden Condemns Arizona’s Abortion Ban as ‘Cruel’ and ‘Extreme’**\
+`President Biden, who promised to continue to fight for the restoration of Roe v. Wade, said the ban was first enacted “well before women had secured the right to vote.”`\
+https://nytimes.com/2024/04/09/us/politics/biden-arizona-abortion-ban.html
+
 **Defense secretary pushes back on protesters’ claims of genocide in Gaza.**\
 `By John Ismay`\
 https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/defense-secretary-pushes-back-on-protesters-claims-of-genocide-in-gaza
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/09/us/capitol-police-special-prosecutors-threats-aga
 **Woman Sentenced to Month in Prison Over Theft of Ashley Biden’s Diary**\
 `Aimee Harris sold the diary to Project Veritas, a right-wing group, in what prosecutors said was a brazen plot to damage Joseph R. Biden Jr. in the 2020 election.`\
 https://nytimes.com/2024/04/09/us/politics/project-veritas-ashley-biden-diary.html
-
-**Michigan Vascular Clinics Shutting Down After Scrutiny**\
-`The clinics’ owner, Dr. Jihad Mustapha, who called himself the “leg saver” but whose procedures sometimes preceded amputations, was a focus of a Times investigation last year.`\
-https://nytimes.com/2024/04/09/business/jihad-mustapha-atherectomy.html
-
-**Food Aid Program for Mothers and Children Will Provide More Fruits and Vegetables**\
-`The Agriculture Department updated the WIC program to more closely align with nutrition guidelines. The changes also reduce assistance for milk and juice.`\
-https://nytimes.com/2024/04/09/us/politics/wic-food-aid-fruits-vegetables.html
 
