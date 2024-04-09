@@ -1,3 +1,7 @@
+**Germany Rebuffs Claim Its Arms Sales to Israel Abet Genocide in Gaza**\
+`Germany argued against the accusation brought by Nicaragua at the International Court of Justice, but Germans are questioning their country’s unwavering support for Israel.`\
+https://nytimes.com/2024/04/09/world/europe/germany-israel-genocide-icj.html
+
 **Alabama is the second state to warn Democrats it could take Biden off the November ballot.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/09/us/biden-trump-election/alabama-is-the-second-state-to-warn-democrats-it-could-take-biden-off-the-november-ballot
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/us/pentagon-blast-exposure-brain-elizabeth-warren
 **Arizona Reinstated a 160-Year-Old Abortion Ban**\
 `Also, Iran is smuggling weapons into the West Bank. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/04/09/briefing/abortion-ban-arizona-epa-pollution-rule.html
-
-**Trevor Griffiths, Marxist Writer for Stage and Screen, Dies at 88**\
-`For him, “art played a particular role in social change,” the director Mehmet Ergen said. “Everything was political.”`\
-https://nytimes.com/2024/04/09/theater/trevor-griffiths-dead.html
 
