@@ -1,3 +1,7 @@
+**Biden Courts Caregivers, Pledging to Expand Support if He Is Re-elected**\
+`The president called for 12 weeks of paid family or medical leave, large investments in preschool for 4-year-olds and the extension of a child tax credit.`\
+https://nytimes.com/2024/04/09/us/politics/biden-care-economy.html
+
 **2 Men Fined $1.25 Million for Robocall Scheme to Suppress Black Vote**\
 `Right-wing operatives were behind the calls, which falsely claimed that people who voted by mail would have their information sent to law enforcement agencies.`\
 https://nytimes.com/2024/04/09/nyregion/robocalls-black-voters-wohl-burkman.html

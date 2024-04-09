@@ -6,9 +6,9 @@ https://nytimes.com/2024/04/09/nyregion/robocalls-black-voters-wohl-burkman.html
 `The Justice Department said more than $1.4 billion in stolen relief funds have been seized or forfeited. But estimates of the total stolen run into the tens of billions.`\
 https://nytimes.com/2024/04/09/us/politics/pandemic-fraud-justice.html
 
-**Biden courts caregivers, pledging to expand support if he is re-elected.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/04/09/us/biden-trump-election/biden-care-economy
+**Biden Courts Caregivers, Pledging to Expand Support if He Is Re-elected**\
+`The president called for 12 weeks of paid family or medical leave, large investments in preschool for 4-year-olds and the extension of a child tax credit.`\
+https://nytimes.com/2024/04/09/us/politics/biden-care-economy.html
 
 **The Global Competition at the Heart of ‘3 Body Problem’**\
 `As many book readers and series viewers have pointed out, an impending alien invasion is a fitting allegory for U.S.-China competition.`\
