@@ -1,3 +1,7 @@
+**Netanyahu Must Go**\
+`Being pro-Israel doesn’t entail slavish support for any leader of the country, particularly its most failed one.`\
+https://nytimes.com/2024/04/09/opinion/netanyahu-israel.html
+
 **Wednesday Briefing: A Divided South Korea Votes**\
 `Also, a landmark climate ruling in Europe.`\
 https://nytimes.com/2024/04/09/world/asia/south-korea-elections-climate-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/climate/greenhouse-gas-carbon-emissions.html
 **Blinken says Israel must keep aid flowing at higher rate.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/blinken-says-israel-must-keep-aid-flowing-at-higher-rate
-
-**A U.S. congressman says he’s ready to hold up an F-15 jet sale to Israel.**\
-`By Edward Wong`\
-https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/a-us-congressman-says-hes-ready-to-hold-up-an-f-15-jet-sale-to-israel
 
