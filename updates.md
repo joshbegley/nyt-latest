@@ -1,3 +1,7 @@
+**Security Increased for Champions League Games After ISIS Threats**\
+`Online messages urged violent attacks on four matches, prompting the police in England, France and Spain to step up precautions.`\
+https://nytimes.com/2024/04/09/world/europe/champions-league-soccer-security-threats.html
+
 **Turkey Restricts Exports to Israel in Protest of War in Gaza**\
 `Turkey announced limits on dozens of products, including cement and jet fuel, prompting Israel to threaten retaliatory trade measures.`\
 https://nytimes.com/2024/04/09/world/middleeast/turkey-israel-war-trade-restrictions.html
