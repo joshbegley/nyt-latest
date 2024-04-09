@@ -1,3 +1,7 @@
+**Mt. Etna Puffs Perfect Smoke Rings Into Sicilian Sky**\
+`The volcano, one of Europe’s most active, has been spewing volcanic vortex rings at a rapid pace. But that doesn’t mean a big explosion is on the way, one expert says.`\
+https://nytimes.com/2024/04/09/world/europe/smoke-rings-italy-volcano.html
+
 **Trump’s Attempt to Delay Trial Is Denied by Appeals Court Judge**\
 `Donald Trump could try to have his request reviewed by a full judicial panel, but the opening of his case remains scheduled for Monday.`\
 https://nytimes.com/2024/04/09/nyregion/trump-hush-money-trial-judge.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/business/volkswagen-electric-vehicle-factory.html
 **How abortion, and I.V.F., flipped an Alabama Statehouse seat.**\
 `By Maya King`\
 https://nytimes.com/live/2024/04/09/us/biden-trump-election/how-abortion-and-ivf-flipped-an-alabama-statehouse-seat
-
-**Havana Syndrome and Russia’s Unit 29155**\
-`There is increasing evidence that American officers and diplomats were attacked with a Russian energy weapon.`\
-https://nytimes.com/live/2024/04/02/opinion/thepoint/havana-syndrome-russia
 
