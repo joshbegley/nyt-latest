@@ -1,3 +1,7 @@
+**Blinken says Israel must keep aid flowing at higher rate.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/blinken-says-israel-must-keep-aid-flowing-at-higher-rate
+
 **A U.S. congressman says he’s ready to hold up an F-15 jet sale to Israel.**\
 `By Edward Wong`\
 https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/a-us-congressman-says-hes-ready-to-hold-up-an-f-15-jet-sale-to-israel
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/style/tiny-modern-love-stories-that-was-a-fake-qu
 **Capitol Police Hire Special Prosecutors to Handle Rise in Threats Against Congress**\
 `The police department charged with protecting lawmakers has brought in new attorneys specially responsible for prosecuting people who make violent threats against members of Congress.`\
 https://nytimes.com/2024/04/09/us/capitol-police-special-prosecutors-threats-against-congress.html
-
-**Woman Sentenced to Month in Prison Over Theft of Ashley Biden’s Diary**\
-`Aimee Harris sold the diary to Project Veritas, a right-wing group, in what prosecutors said was a brazen plot to damage Joseph R. Biden Jr. in the 2020 election.`\
-https://nytimes.com/2024/04/09/us/politics/project-veritas-ashley-biden-diary.html
 

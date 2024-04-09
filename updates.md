@@ -1,3 +1,7 @@
+**Blinken says Israel must keep aid flowing at higher rate.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/blinken-says-israel-must-keep-aid-flowing-at-higher-rate
+
 **A U.S. congressman says he’s ready to hold up an F-15 jet sale to Israel.**\
 `By Edward Wong`\
 https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/a-us-congressman-says-hes-ready-to-hold-up-an-f-15-jet-sale-to-israel
