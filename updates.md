@@ -1,3 +1,7 @@
+**A Heartland Godmother of Installation Art, No Longer in the Shadows**\
+`She is a trailblazer of the architectural sculpture movement, and her diaries rival Frida Kahlo’s. Are we ready for the unsettling clarity of Donna Dennis?`\
+https://nytimes.com/2024/04/09/arts/design/donna-dennis-architecture-sculpture.html
+
 **Norfolk Southern Settles Derailment Suit for $600 Million**\
 `The railroad company will pay residents and businesses in East Palestine, Ohio, and the surrounding area after a derailment last year.`\
 https://nytimes.com/2024/04/09/business/norfolk-southern-east-palestine-settlement.html
