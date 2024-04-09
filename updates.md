@@ -1,3 +1,7 @@
+**In Landmark Climate Ruling, European Court Faults Switzerland**\
+`But the European Court of Human Rights ruled as inadmissible two other climate-related attempts to hold governments accountable.`\
+https://nytimes.com/2024/04/09/world/europe/climate-human-rights.html
+
 **Greene Escalates Threat Against Johnson, Making the Case for His Ouster**\
 `In a letter to Republicans, the far-right lawmaker from Georgia said the speaker had presided over a “complete and total surrender” to Democrats and President Biden, and must change course or be unseated.`\
 https://nytimes.com/2024/04/09/us/politics/marjorie-taylor-greene-mike-johnson.html
