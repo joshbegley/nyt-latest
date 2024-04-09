@@ -1,3 +1,7 @@
+**Seth Meyers Slams Trump’s $50 Million Fund-Raiser**\
+`Meyers said the dinner menu at a Palm Beach campaign event for Donald Trump “had so many foreign words, I’m surprised he didn’t have it deported.”`\
+https://nytimes.com/2024/04/09/arts/television/seth-meyers-trump-fund-raiser.html
+
 **Word of the Day: sophomoric**\
 `This word has appeared in 18 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/09/learning/word-of-the-day-sophomoric.html
