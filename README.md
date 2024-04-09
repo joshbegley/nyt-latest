@@ -1,3 +1,7 @@
+**Gypsy Rose Blanchard Files for Divorce From Ryan Anderson**\
+`The couple married while Ms. Blanchard, who was found guilty of helping to kill her mother, was still in prison.`\
+https://nytimes.com/2024/04/08/style/gypsy-rose-blanchard-divorce-ryan-anderson.html
+
 **On Abortion, Trump Chose Politics Over Principles. Will It Matter?**\
 `With his video statement on Monday, Donald Trump laid bare how faulty a messenger he had always been for the anti-abortion cause.`\
 https://nytimes.com/2024/04/08/us/politics/trump-abortion-stance.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/eclipse-weddings
 **The second time was the charm for a college town at the eclipse crossroads.**\
 `By Katrina Miller`\
 https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/the-second-time-was-the-charm-for-a-college-town-at-the-eclipse-crossroads
-
-**What to Know About Biden’s New Student Debt Relief Plan**\
-`The proposal would affect nearly 30 million people and would target groups that have had hardships in repaying their loans.`\
-https://nytimes.com/2024/04/08/us/politics/biden-student-debt-plan-explained.html
 
