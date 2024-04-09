@@ -1,3 +1,11 @@
+**Read the Arizona Supreme Court’s Abortion Ruling**\
+`The state’s highest court on Tuesday upheld an 1864 law that bans nearly all abortions.`\
+https://nytimes.com/interactive/2024/04/09/us/arizona-abortion-ruling.html
+
+**How the Solar Eclipse Affected Eid Timing**\
+`Some Muslim communities rely on a centuries-old method to determine when Ramadan ends: a crescent moon. That method was harder to follow this year.`\
+https://nytimes.com/2024/04/09/world/asia/ramadan-eid-moon-eclipse.html
+
 **Biden Promises to Make Caregiving More Affordable if Re-elected**\
 `The president pledged to make adjustments to child care and elderly care support as he laid out proposals for his budget during a speech to caregivers at Union Station in Washington.`\
 https://nytimes.com/video/us/politics/100000009405609/biden-economy-caregivers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/09/us/politics/wic-food-aid-fruits-vegetables.html
 **Comics Artist Dies After Sexual Misconduct Accusations**\
 `Ed Piskor, 41, was known for his detailed “Hip Hop Family Tree” and “X-Men: Grand Design.” A Pittsburgh gallery canceled an exhibition of his work after the initial allegation.`\
 https://nytimes.com/2024/04/09/arts/ed-piskor-dies-comics-hip-hop-family-tree.html
-
-**Stumbling Into Goldilocks**\
-`How America avoided recession (so far).`\
-https://nytimes.com/2024/04/09/opinion/us-economy-inflation-recession.html
-
-**More Voters Shift to Republican Party, Closing Gap With Democrats**\
-`The trend toward the Republican Party among white voters without a college degree has continued, and Democrats have lost ground among Hispanic voters, too.`\
-https://nytimes.com/2024/04/09/us/elections/party-identification-democrats-republicans.html
 
