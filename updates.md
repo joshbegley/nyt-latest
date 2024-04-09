@@ -1,3 +1,11 @@
+**Nonprofit Theaters Are in Trouble. Lawmakers Are Proposing Help.**\
+`Proposed legislation would allocate $1 billion annually for an industry coping with rising expenses and smaller audiences.`\
+https://nytimes.com/2024/04/09/theater/nonprofit-theaters-congress-legislation.html
+
+**A day after Trump’s abortion statement, Arizona awaits a key ruling.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/04/09/us/biden-trump-election/trump-arizona-abortion-ruling
+
 **A Heartland Godmother of Installation Art, No Longer in the Shadows**\
 `She is a trailblazer of the architectural sculpture movement, and her diaries rival Frida Kahlo’s. Are we ready for the unsettling clarity of Donna Dennis?`\
 https://nytimes.com/2024/04/09/arts/design/donna-dennis-architecture-sculpture.html
