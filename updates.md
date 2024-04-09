@@ -1,3 +1,7 @@
+**Another Red-Blue Divide: Money to Feed Kids in the Summer**\
+`Congress passed bipartisan legislation to provide families that rely on subsidized school meals with help buying food over the summer. Nearly half of Republican-led states have yet to sign on.`\
+https://nytimes.com/2024/04/09/us/politics/school-meals-summer-ebt.html
+
 **Security Increased for Champions League Games After ISIS Threats**\
 `Online messages urged violent attacks on four matches, prompting the police in England, France and Spain to step up precautions.`\
 https://nytimes.com/2024/04/09/world/europe/champions-league-soccer-security-threats.html
