@@ -1,3 +1,7 @@
+**Looking Up, Together**\
+`We cover the solar eclipse that captivated the U.S.`\
+https://nytimes.com/2024/04/09/briefing/solar-eclipse-photos-us.html
+
 **Iran Smuggles Arms to West Bank, Officials Say, to Foment Unrest With Israel**\
 `The covert operation, described by U.S., Iranian and Israeli officials, is heightening concerns that Iran is seeking to turn the West Bank into a flashpoint in its shadow war with Israel.`\
 https://nytimes.com/2024/04/09/world/middleeast/iran-west-bank-weapons-smuggling.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/opinion/trump-abortion-dobbs-election.html
 **Parents of Michigan School Shooter to Be Sentenced for Manslaughter**\
 `Jennifer and James Crumbley, whose son killed four people, each face up to 15 years in prison. In memos last week, prosecutors revealed that they had asked for leniency.`\
 https://nytimes.com/2024/04/09/us/crumbley-sentencing-oxford-high-shooting.html
-
-**What’s Next for Jane Goodall? An Immersive Spectacle in Tanzania.**\
-`“Dr. Jane’s Dream” is going up in East Africa, where visitors can experience the primatologist’s scientific breakthroughs (complete with termite mound).`\
-https://nytimes.com/2024/04/09/arts/design/jane-goodall-immersive-tanzania-art.html
 

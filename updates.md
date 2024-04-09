@@ -1,3 +1,7 @@
+**Looking Up, Together**\
+`We cover the solar eclipse that captivated the U.S.`\
+https://nytimes.com/2024/04/09/briefing/solar-eclipse-photos-us.html
+
 **Iran Smuggles Arms to West Bank, Officials Say, to Foment Unrest With Israel**\
 `The covert operation, described by U.S., Iranian and Israeli officials, is heightening concerns that Iran is seeking to turn the West Bank into a flashpoint in its shadow war with Israel.`\
 https://nytimes.com/2024/04/09/world/middleeast/iran-west-bank-weapons-smuggling.html
