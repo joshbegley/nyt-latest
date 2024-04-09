@@ -1,3 +1,11 @@
+**TV Networks to Urge Biden and Trump to Debate, Wading Into a Fraught Topic**\
+`Speculation has swirled in the political world about whether the presumptive candidates will agree to the traditional face-to-face events, a campaign staple since 1976.`\
+https://nytimes.com/2024/04/09/business/media/networks-biden-trump-debate-letter.html
+
+**Trump’s New Stance on Abortion**\
+`Readers discuss his statement that abortion policy should be left to the states. Also: J Street; student “brands”; GPS satellites; alternatives to social media.`\
+https://nytimes.com/2024/04/09/opinion/trump-abortion.html
+
 **Arizona Reinstates 160-Year-Old Abortion Ban**\
 `The state’s highest court said the law, passed in 1864 when Arizona was a territory and moribund for decades under Roe v. Wade, was now enforceable.`\
 https://nytimes.com/2024/04/09/us/arizona-abortion-ban.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/09/science/herbert-kroemer-dead.html
 **Swing-State Republicans Embrace Trump’s New Abortion Stance**\
 `Several of the party’s candidates, particularly those in battleground states, said they favor letting states regulate the procedure instead of having a national ban.`\
 https://nytimes.com/2024/04/09/us/politics/trump-abortion-swing-state-republicans.html
-
-**Biden’s Trade Moves Raise Tensions Abroad but Draw Cheers in Swing States**\
-`The president’s efforts to restrict Chinese imports and block a Japanese steel merger have pleased labor unions and sent a message to rival Donald J. Trump.`\
-https://nytimes.com/2024/04/09/us/politics/biden-trade-steel-china-japan.html
-
-**Workers Comb Devastated Al-Shifa Hospital for Bodies**\
-`With the fighting around the Gaza City medical center at a lull, the goal is now to provide proper burials for the dead.`\
-https://nytimes.com/2024/04/09/world/middleeast/al-shifa-gaza-bodies.html
 
