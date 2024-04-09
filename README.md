@@ -1,3 +1,7 @@
+**Prosecutors Ask Supreme Court to Reject Trump’s Immunity Claim in Election Case**\
+`The filing was the main submission from Jack Smith, the special counsel prosecuting the former president. The case will be argued on April 25.`\
+https://nytimes.com/2024/04/08/us/supreme-court-trump-immunity-jan-6.html
+
 **Trump Says Abortion Will Be Left to the States. Don’t Believe Him.**\
 `His allies are planning to resurrect and enforce the 19th-century Comstock Act.`\
 https://nytimes.com/2024/04/08/opinion/trump-abortion-states.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/this-retiree-wan
 **Active Fighting Subsides in Gaza, but the War Is Not Over, Officials Say**\
 `Israeli troops have left southern Gaza, and some Palestinians returned to the area, where there was a sense of horror at the scope of destruction.`\
 https://nytimes.com/2024/04/08/world/middleeast/israel-gaza-war.html
-
-**Good Economy, Negative Vibes: The Story Continues**\
-`The economy is in good shape. Why are so many Americans still saying it’s bad?`\
-https://nytimes.com/2024/04/08/opinion/economy-vibes.html
 
