@@ -1,3 +1,7 @@
+**Word of the Day: sophomoric**\
+`This word has appeared in 18 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/09/learning/word-of-the-day-sophomoric.html
+
 **Tuesday Briefing**\
 `Eclipse day in North America.`\
 https://nytimes.com/2024/04/09/briefing/solar-eclipse-vatican-transgender-surrogacy.html
