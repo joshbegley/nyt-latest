@@ -1,3 +1,7 @@
+**Arizona Reinstates 160-Year-Old Abortion Ban**\
+`The state’s highest court said the law, passed in 1864 when Arizona was a territory and moribund for decades under Roe v. Wade, was now enforceable.`\
+https://nytimes.com/2024/04/09/us/arizona-abortion-ban.html
+
 **A New Film Examines the Godfather of Modern Conservatism**\
 `The PBS documentary “The Incomparable Mr. Buckley” implicitly and explicitly asks: What would William F. Buckley think of today’s Republican Party?`\
 https://nytimes.com/2024/04/09/arts/television/william-f-buckley-pbs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/us/politics/biden-trade-steel-china-japan.html
 **Workers Comb Devastated Al-Shifa Hospital for Bodies**\
 `With the fighting around the Gaza City medical center at a lull, the goal is now to provide proper burials for the dead.`\
 https://nytimes.com/2024/04/09/world/middleeast/al-shifa-gaza-bodies.html
-
-**In Germany, discomfort with Israel’s conduct of the war in Gaza is growing.**\
-`By Erika Solomon`\
-https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/in-germany-discomfort-with-israels-conduct-of-the-war-in-gaza-is-growing
 
