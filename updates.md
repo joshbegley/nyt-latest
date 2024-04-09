@@ -1,3 +1,7 @@
+**Trump’s Attempt to Delay Trial Is Denied by Appeals Court Judge**\
+`Donald Trump could try to have his request reviewed by a full judicial panel, but the opening of his case remains scheduled for Monday.`\
+https://nytimes.com/2024/04/09/nyregion/trump-hush-money-trial-judge.html
+
 **Herbert Kroemer, 95, Dies; Laid Groundwork for Modern Technologies**\
 `He shared a Nobel Prize in Physics for discoveries that paved the way for high-speed internet communication, mobile phones and bar-code readers.`\
 https://nytimes.com/2024/04/09/science/herbert-kroemer-dead.html

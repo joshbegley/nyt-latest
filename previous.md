@@ -1,3 +1,7 @@
+**Trump’s Attempt to Delay Trial Is Denied by Appeals Court Judge**\
+`Donald Trump could try to have his request reviewed by a full judicial panel, but the opening of his case remains scheduled for Monday.`\
+https://nytimes.com/2024/04/09/nyregion/trump-hush-money-trial-judge.html
+
 **Herbert Kroemer, 95, Dies; Laid Groundwork for Modern Technologies**\
 `He shared a Nobel Prize in Physics for discoveries that paved the way for high-speed internet communication, mobile phones and bar-code readers.`\
 https://nytimes.com/2024/04/09/science/herbert-kroemer-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/09/us/biden-trump-election/how-abortion-and-ivf
 **Havana Syndrome and Russia’s Unit 29155**\
 `There is increasing evidence that American officers and diplomats were attacked with a Russian energy weapon.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/havana-syndrome-russia
-
-**Beut Takes a Modern Approach to Korean Royal Court Cuisine**\
-`Sawa brings Lebanese dishes to Park Slope, Brooklyn; Zaab Burger combines smash burgers and Thai flavors at Essex Market and more restaurant news.`\
-https://nytimes.com/2024/04/09/dining/nyc-restaurant-news.html
 
