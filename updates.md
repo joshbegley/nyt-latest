@@ -1,3 +1,11 @@
+**Capitol Police Hire Special Prosecutors to Handle Rise in Threats Against Congress**\
+`The police department charged with protecting lawmakers has brought in new attorneys specially responsible for prosecuting people who make violent threats against members of Congress.`\
+https://nytimes.com/2024/04/09/us/capitol-police-special-prosecutors-threats-against-congress.html
+
+**Woman Sentenced to Month in Prison Over Theft of Ashley Biden’s Diary**\
+`Aimee Harris sold the diary to Project Veritas, a right-wing group, in what prosecutors said was a brazen plot to damage Joseph R. Biden Jr. in the 2020 election.`\
+https://nytimes.com/2024/04/09/us/politics/project-veritas-ashley-biden-diary.html
+
 **Michigan Vascular Clinics Shutting Down After Scrutiny**\
 `The clinics’ owner, Dr. Jihad Mustapha, who called himself the “leg saver” but whose procedures sometimes preceded amputations, was a focus of a Times investigation last year.`\
 https://nytimes.com/2024/04/09/business/jihad-mustapha-atherectomy.html
