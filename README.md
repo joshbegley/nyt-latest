@@ -1,3 +1,11 @@
+**Beeper Messaging App Is Acquired as a Bet on a Regulatory Shift**\
+`Automattic, the company behind WordPress.com, bought Beeper in an effort to build a system that works across Android and Apple devices.`\
+https://nytimes.com/2024/04/09/technology/beeper-messaging-app-automattic.html
+
+**Rut-Busting Recipes for Freezer Staples**\
+`Spicy ground turkey with snap peas, broccoli-walnut pesto pasta and sazón chicken breasts make frozen standbys sing.`\
+https://nytimes.com/2024/04/09/dining/rut-busting-recipes-for-freezer-staples.html
+
 **‘Fire Shut Up in My Bones’ Review: A Met Milestone Returns**\
 `After making history as the Metropolitan Opera’s first work by a Black composer, Terence Blanchard’s “Fire” is back — with its showstopping step dance.`\
 https://nytimes.com/2024/04/09/arts/music/met-opera-fire-shut-up-in-my-bones.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/09/theater/nonprofit-theaters-congress-legislation.h
 **A day after Trump’s abortion statement, Arizona awaits a key ruling.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/09/us/biden-trump-election/trump-arizona-abortion-ruling
-
-**A Heartland Godmother of Installation Art, No Longer in the Shadows**\
-`She is a trailblazer of the architectural sculpture movement, and her diaries rival Frida Kahlo’s. Are we ready for the unsettling clarity of Donna Dennis?`\
-https://nytimes.com/2024/04/09/arts/design/donna-dennis-architecture-sculpture.html
-
-**Norfolk Southern Settles Derailment Suit for $600 Million**\
-`The railroad company will pay residents and businesses in East Palestine, Ohio, and the surrounding area after a derailment last year.`\
-https://nytimes.com/2024/04/09/business/norfolk-southern-east-palestine-settlement.html
 
