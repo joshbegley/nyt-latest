@@ -1,3 +1,7 @@
+**Corrections: April 9, 2024**\
+`Corrections that appeared in print on Tuesday, April 9, 2024.`\
+https://nytimes.com/2024/04/09/pageoneplus/corrections-april-9-2024.html
+
 **Quotation of the Day: Here Comes the Sun. And There It Goes.**\
 `Quotation of the Day for Tuesday, April 9, 2024.`\
 https://nytimes.com/2024/04/09/pageoneplus/quotation-of-the-day-here-comes-the-sun-and-there-it-goes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/arts/music/popcast-beyonce-cowboy-carter.html
 **Office Subs**\
 `Caroline Sommers and Freddie Cheng place a few orders.`\
 https://nytimes.com/2024/04/08/crosswords/daily-puzzle-2024-04-09.html
-
-**Gypsy Rose Blanchard Files for Divorce From Ryan Anderson**\
-`The couple married while Ms. Blanchard, who was found guilty of helping to kill her mother, was still in prison.`\
-https://nytimes.com/2024/04/08/style/gypsy-rose-blanchard-divorce-ryan-anderson.html
 
