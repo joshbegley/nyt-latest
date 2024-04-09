@@ -1,3 +1,7 @@
+**Clarence Henry, New Orleans R&B Star Known as the Frogman, Dies at 87**\
+`A local hero in his hometown, he was best known for his hit “Ain’t Got No Home,” which showcased the vocal versatility that earned him his nickname.`\
+https://nytimes.com/2024/04/09/arts/music/clarence-henry-dead.html
+
 **2 Men Fined $1.25 Million for Robocall Scheme to Suppress Black Vote**\
 `Right-wing operatives were behind the calls, which falsely claimed that people who voted by mail would have their information sent to law enforcement agencies.`\
 https://nytimes.com/2024/04/09/nyregion/robocalls-black-voters-wohl-burkman.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/a-us-congre
 **Biden Condemns Arizona’s Abortion Ban as ‘Cruel’ and ‘Extreme’**\
 `President Biden, who promised to continue to fight for the restoration of Roe v. Wade, said the ban was first enacted “well before women had secured the right to vote.”`\
 https://nytimes.com/2024/04/09/us/politics/biden-arizona-abortion-ban.html
-
-**Austin Pushes Back on Claims of Israel Carrying Out Genocide in Gaza**\
-`Defense Secretary Lloyd J. Austin III made the comments during a hearing that was disrupted several times by protests of U.S. support for Israel’s assault on Hamas.`\
-https://nytimes.com/2024/04/09/world/middleeast/austin-genocide-gaza-israel.html
 

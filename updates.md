@@ -1,3 +1,7 @@
+**Clarence Henry, New Orleans R&B Star Known as the Frogman, Dies at 87**\
+`A local hero in his hometown, he was best known for his hit “Ain’t Got No Home,” which showcased the vocal versatility that earned him his nickname.`\
+https://nytimes.com/2024/04/09/arts/music/clarence-henry-dead.html
+
 **Biden Courts Caregivers, Pledging to Expand Support if He Is Re-elected**\
 `The president called for 12 weeks of paid family or medical leave, large investments in preschool for 4-year-olds and the extension of a child tax credit.`\
 https://nytimes.com/2024/04/09/us/politics/biden-care-economy.html
