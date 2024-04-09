@@ -1,3 +1,11 @@
+**A New Film Examines the Godfather of Modern Conservatism**\
+`The PBS documentary “The Incomparable Mr. Buckley” implicitly and explicitly asks: What would William F. Buckley think of today’s Republican Party?`\
+https://nytimes.com/2024/04/09/arts/television/william-f-buckley-pbs.html
+
+**Swing-State Republicans Embrace Trump’s New Abortion Stance**\
+`Several of the party’s candidates, particularly those in battleground states, said they favor letting states regulate the procedure instead of having a national ban.`\
+https://nytimes.com/2024/04/09/us/politics/trump-abortion-swing-state-republicans.html
+
 **Israel and the U.N. can’t agree on how much aid reached Gaza this week.**\
 `By Matthew Mpoke Bigg and Adam Sella`\
 https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/israel-and-the-un-cant-agree-on-how-much-aid-reached-gaza-this-week
