@@ -1,3 +1,11 @@
+**Cameron, on U.S. Trip, Takes a Risk and Meets With Trump**\
+`David Cameron, the British foreign secretary, said he spoke with Donald Trump, the former, and possibly future, president, about Ukraine and the Israel-Gaza conflict.`\
+https://nytimes.com/2024/04/09/world/europe/david-cameron-trump-ukraine-israel.html
+
+**Three Greenhouse Gases, Three All-Time Highs**\
+`Why emissions hit record levels last year.`\
+https://nytimes.com/2024/04/09/climate/greenhouse-gas-carbon-emissions.html
+
 **Blinken says Israel must keep aid flowing at higher rate.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/blinken-says-israel-must-keep-aid-flowing-at-higher-rate

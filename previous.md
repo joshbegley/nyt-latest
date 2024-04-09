@@ -1,3 +1,11 @@
+**Cameron, on U.S. Trip, Takes a Risk and Meets With Trump**\
+`David Cameron, the British foreign secretary, said he spoke with Donald Trump, the former, and possibly future, president, about Ukraine and the Israel-Gaza conflict.`\
+https://nytimes.com/2024/04/09/world/europe/david-cameron-trump-ukraine-israel.html
+
+**Three Greenhouse Gases, Three All-Time Highs**\
+`Why emissions hit record levels last year.`\
+https://nytimes.com/2024/04/09/climate/greenhouse-gas-carbon-emissions.html
+
 **Blinken says Israel must keep aid flowing at higher rate.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/blinken-says-israel-must-keep-aid-flowing-at-higher-rate
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009405609/biden-economy-caregivers.h
 **Abortion Jumps to the Center of Arizona’s Key 2024 Races**\
 `A ruling by the state’s highest court upholding an 1864 law that bans nearly all abortions set up a fierce political fight over the issue.`\
 https://nytimes.com/2024/04/09/us/politics/arizona-abortion-politics.html
-
-**Tiny Love Stories: ‘That Was a Fake Question’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/04/09/style/tiny-modern-love-stories-that-was-a-fake-question.html
-
-**Capitol Police Hire Special Prosecutors to Handle Rise in Threats Against Congress**\
-`The police department charged with protecting lawmakers has brought in new attorneys specially responsible for prosecuting people who make violent threats against members of Congress.`\
-https://nytimes.com/2024/04/09/us/capitol-police-special-prosecutors-threats-against-congress.html
 
