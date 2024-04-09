@@ -1,3 +1,7 @@
+**Turkey Restricts Exports to Israel in Protest of War in Gaza**\
+`Turkey announced limits on dozens of products, including cement and jet fuel, prompting Israel to threaten retaliatory trade measures.`\
+https://nytimes.com/2024/04/09/world/middleeast/turkey-israel-war-trade-restrictions.html
+
 **Nonprofit Theaters Are in Trouble. Lawmakers Are Proposing Help.**\
 `Proposed legislation would allocate $1 billion annually for an industry coping with rising expenses and smaller audiences.`\
 https://nytimes.com/2024/04/09/theater/nonprofit-theaters-congress-legislation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/arts/music/ozempic-jingle-oh-oh-oh-its-magic-pilo
 **Environmental Protection Agency Limits Pollution From Chemical Plants**\
 `The new regulation is aimed at reducing the risk of cancer for people who live close to plants emitting toxic chemicals.`\
 https://nytimes.com/2024/04/09/climate/epa-pollution-chemical-plants.html
-
-**Want to See This Film? Movie Studios Won’t Let You.**\
-`As in the case of ‘Coyote vs. Acme,’ sometimes an entertainment company sees more value in not selling you its products.`\
-https://nytimes.com/2024/04/09/magazine/why-coyote-vs-acme-was-not-released.html
 

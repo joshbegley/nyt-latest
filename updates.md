@@ -1,3 +1,7 @@
+**Turkey Restricts Exports to Israel in Protest of War in Gaza**\
+`Turkey announced limits on dozens of products, including cement and jet fuel, prompting Israel to threaten retaliatory trade measures.`\
+https://nytimes.com/2024/04/09/world/middleeast/turkey-israel-war-trade-restrictions.html
+
 **Nonprofit Theaters Are in Trouble. Lawmakers Are Proposing Help.**\
 `Proposed legislation would allocate $1 billion annually for an industry coping with rising expenses and smaller audiences.`\
 https://nytimes.com/2024/04/09/theater/nonprofit-theaters-congress-legislation.html
