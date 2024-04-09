@@ -1,3 +1,11 @@
+**Alabama is the second state to warn Democrats it could take Biden off the November ballot.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/04/09/us/biden-trump-election/alabama-is-the-second-state-to-warn-democrats-it-could-take-biden-off-the-november-ballot
+
+**Nadine Menendez Reveals ‘Serious Medical’ Issue and Asks for Trial Delay**\
+`Ms. Menendez, the wife of Senator Robert Menendez, needs surgery, leaving her unable to prepare for a May 6 trial on bribery charges, her lawyers said.`\
+https://nytimes.com/2024/04/09/nyregion/nadine-menendez-trial-delay.html
+
 **England Limits Youth Gender Medications, Part of Big Shift in Europe**\
 `Five European countries have recently restricted hormone treatments for adolescents with gender distress. They have not banned the care, unlike many U.S. states.`\
 https://nytimes.com/2024/04/09/health/europe-transgender-youth-hormone-treatments.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/09/briefing/abortion-ban-arizona-epa-pollution-rule.
 **Trevor Griffiths, Marxist Writer for Stage and Screen, Dies at 88**\
 `For him, “art played a particular role in social change,” the director Mehmet Ergen said. “Everything was political.”`\
 https://nytimes.com/2024/04/09/theater/trevor-griffiths-dead.html
-
-**Netanyahu Must Go**\
-`Being pro-Israel doesn’t entail slavish support for any leader of the country, particularly its most failed one.`\
-https://nytimes.com/2024/04/09/opinion/netanyahu-israel.html
-
-**Wednesday Briefing: A Divided South Korea Votes**\
-`Also, a landmark climate ruling in Europe.`\
-https://nytimes.com/2024/04/09/world/asia/south-korea-elections-climate-asia.html
 

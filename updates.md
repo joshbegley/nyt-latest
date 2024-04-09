@@ -1,3 +1,11 @@
+**Alabama is the second state to warn Democrats it could take Biden off the November ballot.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/04/09/us/biden-trump-election/alabama-is-the-second-state-to-warn-democrats-it-could-take-biden-off-the-november-ballot
+
+**Nadine Menendez Reveals ‘Serious Medical’ Issue and Asks for Trial Delay**\
+`Ms. Menendez, the wife of Senator Robert Menendez, needs surgery, leaving her unable to prepare for a May 6 trial on bribery charges, her lawyers said.`\
+https://nytimes.com/2024/04/09/nyregion/nadine-menendez-trial-delay.html
+
 **England Limits Youth Gender Medications, Part of Big Shift in Europe**\
 `Five European countries have recently restricted hormone treatments for adolescents with gender distress. They have not banned the care, unlike many U.S. states.`\
 https://nytimes.com/2024/04/09/health/europe-transgender-youth-hormone-treatments.html
