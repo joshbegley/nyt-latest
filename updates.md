@@ -1,3 +1,11 @@
+**Israel and the U.N. can’t agree on how much aid reached Gaza this week.**\
+`By Matthew Mpoke Bigg and Adam Sella`\
+https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/israel-and-the-un-cant-agree-on-how-much-aid-reached-gaza-this-week
+
+**Peter Higgs, Nobelist Who Discovered the ‘God Particle,’ Dies at 94**\
+`The Higgs boson was named for him. It was a key element of the Standard Model, which encapsulated all human knowledge so far about elementary particles.`\
+https://nytimes.com/2024/04/09/science/peter-higgs-dead.html
+
 **Mt. Etna Puffs Perfect Smoke Rings Into Sicilian Sky**\
 `The volcano, one of Europe’s most active, has been spewing volcanic vortex rings at a rapid pace. But that doesn’t mean a big explosion is on the way, one expert says.`\
 https://nytimes.com/2024/04/09/world/europe/smoke-rings-italy-volcano.html
