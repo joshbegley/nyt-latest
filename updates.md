@@ -1,3 +1,7 @@
+**Netanyahu Must Go**\
+`Being pro-Israel doesn’t entail slavish support for any leader of the country, particularly its most failed one.`\
+https://nytimes.com/2024/04/09/opinion/netanyahu-israel.html
+
 **Wednesday Briefing: A Divided South Korea Votes**\
 `Also, a landmark climate ruling in Europe.`\
 https://nytimes.com/2024/04/09/world/asia/south-korea-elections-climate-asia.html
