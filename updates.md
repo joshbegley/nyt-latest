@@ -1,3 +1,23 @@
+**Downtown Los Angeles Places Another Big Bet on the Arts**\
+`The pandemic was tough on city centers and cultural institutions. What does that mean for Los Angeles, whose downtown depends on the arts?`\
+https://nytimes.com/2024/04/09/arts/downtown-los-angeles-culture.html
+
+**Heartbreak and Family Love on the International Booker Prize Shortlist**\
+`Books by Jenny Erpenbeck and Hwang Sok-yong are among six nominees for the prestigious award for translated fiction.`\
+https://nytimes.com/2024/04/09/arts/international-booker-prize-nominees.html
+
+**California Is in Bloom Again**\
+`Wildflowers are beginning to spring to life across the state after another wet winter.`\
+https://nytimes.com/2024/04/09/us/california-wildflowers.html
+
+**How Ozempic Turned a 1974 Hit Into an Inescapable Jingle**\
+`The diabetes drug has become a phenomenon, and “Oh, oh, oh, Ozempic!” — a takeoff of the Pilot song “Magic” — has played a big part in its story.`\
+https://nytimes.com/2024/04/09/arts/music/ozempic-jingle-oh-oh-oh-its-magic-pilot.html
+
+**Environmental Protection Agency Limits Pollution From Chemical Plants**\
+`The new regulation is aimed at reducing the risk of cancer for people who live close to plants emitting toxic chemicals.`\
+https://nytimes.com/2024/04/09/climate/epa-pollution-chemical-plants.html
+
 **Want to See This Film? Movie Studios Won’t Let You.**\
 `As in the case of ‘Coyote vs. Acme,’ sometimes an entertainment company sees more value in not selling you its products.`\
 https://nytimes.com/2024/04/09/magazine/why-coyote-vs-acme-was-not-released.html
