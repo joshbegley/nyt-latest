@@ -1,3 +1,11 @@
+**Why Oil Prices Have Been Rising Recently**\
+`The increase this year, prompted by geopolitical worries and supply constraints, has sent gasoline prices higher and could hamper efforts to tame inflation.`\
+https://nytimes.com/2024/04/09/business/oil-price-rise.html
+
+**The Magnetic Fields Wrote ‘69 Love Songs.’ Here’s 11 of the Best.**\
+`A primer on the indie-rock band’s triple album, now celebrating its 25th anniversary.`\
+https://nytimes.com/2024/04/09/arts/music/amplifier-newsletter-magnetic-fields-69-love-songs.html
+
 **TV Networks to Urge Biden and Trump to Debate, Wading Into a Fraught Topic**\
 `Speculation has swirled in the political world about whether the presumptive candidates will agree to the traditional face-to-face events, a campaign staple since 1976.`\
 https://nytimes.com/2024/04/09/business/media/networks-biden-trump-debate-letter.html
@@ -6,7 +14,7 @@ https://nytimes.com/2024/04/09/business/media/networks-biden-trump-debate-letter
 `Readers discuss his statement that abortion policy should be left to the states. Also: J Street; student “brands”; GPS satellites; alternatives to social media.`\
 https://nytimes.com/2024/04/09/opinion/trump-abortion.html
 
-**Arizona Reinstates 160-Year-Old Abortion Ban**\
+**Arizona Upholds 160-Year-Old Abortion Ban**\
 `The state’s highest court said the law, moribund for decades under Roe v. Wade, was now enforceable, but put the decision on hold for a lower court to hear other challenges to the law.`\
 https://nytimes.com/2024/04/09/us/arizona-abortion-ban.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/09/world/europe/smoke-rings-italy-volcano.html
 **Trump’s Attempt to Delay Trial Is Denied by Appeals Court Judge**\
 `Donald Trump could try to have his request reviewed by a full judicial panel, but the opening of his case remains scheduled for Monday.`\
 https://nytimes.com/2024/04/09/nyregion/trump-hush-money-trial-judge.html
-
-**Herbert Kroemer, 95, Dies; Laid Groundwork for Modern Technologies**\
-`He shared a Nobel Prize in Physics for discoveries that paved the way for high-speed internet communication, mobile phones and bar-code readers.`\
-https://nytimes.com/2024/04/09/science/herbert-kroemer-dead.html
-
-**Swing-State Republicans Embrace Trump’s New Abortion Stance**\
-`Several of the party’s candidates, particularly those in battleground states, said they favor letting states regulate the procedure instead of having a national ban.`\
-https://nytimes.com/2024/04/09/us/politics/trump-abortion-swing-state-republicans.html
 

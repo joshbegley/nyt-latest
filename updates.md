@@ -1,3 +1,15 @@
+**Why Oil Prices Have Been Rising Recently**\
+`The increase this year, prompted by geopolitical worries and supply constraints, has sent gasoline prices higher and could hamper efforts to tame inflation.`\
+https://nytimes.com/2024/04/09/business/oil-price-rise.html
+
+**The Magnetic Fields Wrote ‘69 Love Songs.’ Here’s 11 of the Best.**\
+`A primer on the indie-rock band’s triple album, now celebrating its 25th anniversary.`\
+https://nytimes.com/2024/04/09/arts/music/amplifier-newsletter-magnetic-fields-69-love-songs.html
+
+**Arizona Upholds 160-Year-Old Abortion Ban**\
+`The state’s highest court said the law, moribund for decades under Roe v. Wade, was now enforceable, but put the decision on hold for a lower court to hear other challenges to the law.`\
+https://nytimes.com/2024/04/09/us/arizona-abortion-ban.html
+
 **Arizona Reinstates 160-Year-Old Abortion Ban**\
 `The state’s highest court said the law, moribund for decades under Roe v. Wade, was now enforceable, but put the decision on hold for a lower court to hear other challenges to the law.`\
 https://nytimes.com/2024/04/09/us/arizona-abortion-ban.html
