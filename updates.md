@@ -1,3 +1,11 @@
+**Biden Promises to Make Caregiving More Affordable if Re-elected**\
+`The president pledged to make adjustments to child care and elderly care support as he laid out proposals for his budget during a speech to caregivers at Union Station in Washington.`\
+https://nytimes.com/video/us/politics/100000009405609/biden-economy-caregivers.html
+
+**Abortion Jumps to the Center of Arizona’s Key 2024 Races**\
+`A ruling by the state’s highest court upholding an 1864 law that bans nearly all abortions set up a fierce political fight over the issue.`\
+https://nytimes.com/2024/04/09/us/politics/arizona-abortion-politics.html
+
 **Tiny Love Stories: ‘That Was a Fake Question’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/04/09/style/tiny-modern-love-stories-that-was-a-fake-question.html
