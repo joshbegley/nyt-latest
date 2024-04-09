@@ -1,3 +1,11 @@
+**Workers Comb Devastated Al-Shifa Hospital for Bodies**\
+`With the fighting around the Gaza City medical center at a lull, the goal is now to provide proper burials for the dead.`\
+https://nytimes.com/2024/04/09/world/middleeast/al-shifa-gaza-bodies.html
+
+**In Germany, discomfort with Israel’s conduct of the war in Gaza is growing.**\
+`By Erika Solomon`\
+https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/in-germany-discomfort-with-israels-conduct-of-the-war-in-gaza-is-growing
+
 **F.A.A. Investigates Claims by Boeing Whistle-Blower About Flaws in 787 Dreamliner**\
 `The whistle-blower, an engineer, says that sections of the plane’s body are being assembled in a way that could weaken the aircraft over time. Boeing says there is no safety issue.`\
 https://nytimes.com/2024/04/09/us/politics/boeing-787-dreamliner-whistle-blower.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/09/technology/beeper-messaging-app-automattic.html
 **Rut-Busting Recipes for Freezer Staples**\
 `Spicy ground turkey with snap peas, broccoli-walnut pesto pasta and sazón chicken breasts make frozen standbys sing.`\
 https://nytimes.com/2024/04/09/dining/rut-busting-recipes-for-freezer-staples.html
-
-**‘Fire Shut Up in My Bones’ Review: A Met Milestone Returns**\
-`After making history as the Metropolitan Opera’s first work by a Black composer, Terence Blanchard’s “Fire” is back — with its showstopping step dance.`\
-https://nytimes.com/2024/04/09/arts/music/met-opera-fire-shut-up-in-my-bones.html
-
-**Internet Traffic Dipped as Viewers Took in the Eclipse**\
-`Internet traffic dropped by 40 percent or more during the eclipse in states in the path of totality, including Maine, New Hampshire and Ohio, Cloudflare found.`\
-https://nytimes.com/2024/04/09/business/internet-traffic-eclipse-cloudflare.html
 

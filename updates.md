@@ -1,3 +1,11 @@
+**Workers Comb Devastated Al-Shifa Hospital for Bodies**\
+`With the fighting around the Gaza City medical center at a lull, the goal is now to provide proper burials for the dead.`\
+https://nytimes.com/2024/04/09/world/middleeast/al-shifa-gaza-bodies.html
+
+**In Germany, discomfort with Israel’s conduct of the war in Gaza is growing.**\
+`By Erika Solomon`\
+https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/in-germany-discomfort-with-israels-conduct-of-the-war-in-gaza-is-growing
+
 **F.A.A. Investigates Claims by Boeing Whistle-Blower About Flaws in 787 Dreamliner**\
 `The whistle-blower, an engineer, says that sections of the plane’s body are being assembled in a way that could weaken the aircraft over time. Boeing says there is no safety issue.`\
 https://nytimes.com/2024/04/09/us/politics/boeing-787-dreamliner-whistle-blower.html
