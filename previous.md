@@ -1,3 +1,7 @@
+**On Abortion, Trump Chose Politics Over Principles. Will It Matter?**\
+`With his video statement on Monday, Donald Trump laid bare how faulty a messenger he had always been for the anti-abortion cause.`\
+https://nytimes.com/2024/04/08/us/politics/trump-abortion-stance.html
+
 **Tesla Settles Lawsuit Over a Fatal Crash Involving Autopilot**\
 `A Tesla driver’s family had sought damages for the 2018 crash, which happened while the carmaker’s driver-assistance software was in use.`\
 https://nytimes.com/2024/04/08/business/tesla-autopilot-walter-huang-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/the-second-time-
 **What to Know About Biden’s New Student Debt Relief Plan**\
 `The proposal would affect nearly 30 million people and would target groups that have had hardships in repaying their loans.`\
 https://nytimes.com/2024/04/08/us/politics/biden-student-debt-plan-explained.html
-
-**This retiree wanted to be first in line in Canada.**\
-`By Mathew Silver`\
-https://nytimes.com/live/2024/04/08/science/total-solar-eclipse/this-retiree-wanted-to-be-first-in-line-in-canada
 

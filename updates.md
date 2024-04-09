@@ -1,3 +1,7 @@
+**On Abortion, Trump Chose Politics Over Principles. Will It Matter?**\
+`With his video statement on Monday, Donald Trump laid bare how faulty a messenger he had always been for the anti-abortion cause.`\
+https://nytimes.com/2024/04/08/us/politics/trump-abortion-stance.html
+
 **Tesla Settles Lawsuit Over a Fatal Crash Involving Autopilot**\
 `A Tesla driver’s family had sought damages for the 2018 crash, which happened while the carmaker’s driver-assistance software was in use.`\
 https://nytimes.com/2024/04/08/business/tesla-autopilot-walter-huang-settlement.html
