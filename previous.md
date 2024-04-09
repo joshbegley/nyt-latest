@@ -6,8 +6,8 @@ https://nytimes.com/2024/04/09/briefing/solar-eclipse-photos-us.html
 `The covert operation, described by U.S., Iranian and Israeli officials, is heightening concerns that Iran is seeking to turn the West Bank into a flashpoint in its shadow war with Israel.`\
 https://nytimes.com/2024/04/09/world/middleeast/iran-west-bank-weapons-smuggling.html
 
-**Trump’s Abortion Calculus, and ‘Deepnudes’ in Schools**\
-`Plus, on death row in Missouri.`\
+**Trump’s Calculus on Abortion, and Iran’s Secret Smuggling Network**\
+`Plus, the fight against “deepnudes.”`\
 https://nytimes.com/2024/04/09/podcasts/trump-abortion-deepnudes-schools.html
 
 **How Tesla Planted the Seeds for Its Own Potential Downfall**\

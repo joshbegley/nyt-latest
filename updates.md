@@ -1,3 +1,7 @@
+**Trump’s Calculus on Abortion, and Iran’s Secret Smuggling Network**\
+`Plus, the fight against “deepnudes.”`\
+https://nytimes.com/2024/04/09/podcasts/trump-abortion-deepnudes-schools.html
+
 **Looking Up, Together**\
 `We cover the solar eclipse that captivated the U.S.`\
 https://nytimes.com/2024/04/09/briefing/solar-eclipse-photos-us.html
