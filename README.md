@@ -1,3 +1,7 @@
+**A Heartland Godmother of Installation Art, No Longer in the Shadows**\
+`She is a trailblazer of the architectural sculpture movement, and her diaries rival Frida Kahlo’s. Are we ready for the unsettling clarity of Donna Dennis?`\
+https://nytimes.com/2024/04/09/arts/design/donna-dennis-architecture-sculpture.html
+
 **Norfolk Southern Settles Derailment Suit for $600 Million**\
 `The railroad company will pay residents and businesses in East Palestine, Ohio, and the surrounding area after a derailment last year.`\
 https://nytimes.com/2024/04/09/business/norfolk-southern-east-palestine-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/business/dealbook/wall-street-interest-rates-infl
 **Fortune Magazine Names a New C.E.O.**\
 `Anastasia Nyrkovskaya, who was the chief financial officer and chief strategy officer, is the first woman to run the company.`\
 https://nytimes.com/2024/04/09/business/media/fortune-ceo-anastasia-nyrkovskaya.html
-
-**Xi Meets With Russia’s Foreign Minister, Reaffirming Ties**\
-`The visit came days after the U.S. threatened new sanctions against Chinese companies if they aided Russia’s war in Ukraine.`\
-https://nytimes.com/2024/04/09/world/asia/xi-lavrov-russia-china.html
 
