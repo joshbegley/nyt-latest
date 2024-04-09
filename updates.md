@@ -1,3 +1,7 @@
+**Stumbling Into Goldilocks**\
+`How America avoided recession (so far).`\
+https://nytimes.com/2024/04/09/opinion/us-economy-inflation-recession.html
+
 **More Voters Shift to Republican Party, Closing Gap With Democrats**\
 `The trend toward the Republican Party among white voters without a college degree has continued, and Democrats have lost ground among Hispanic voters, too.`\
 https://nytimes.com/2024/04/09/us/elections/party-identification-democrats-republicans.html
