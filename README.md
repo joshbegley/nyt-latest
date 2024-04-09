@@ -1,3 +1,7 @@
+**More Voters Shift to Republican Party, Closing Gap With Democrats**\
+`The trend toward the Republican Party among white voters without a college degree has continued, and Democrats have lost ground among Hispanic voters, too.`\
+https://nytimes.com/2024/04/09/us/elections/party-identification-democrats-republicans.html
+
 **Why Oil Prices Have Been Rising Recently**\
 `The increase this year, prompted by geopolitical worries and supply constraints, has sent gasoline prices higher and could hamper efforts to tame inflation.`\
 https://nytimes.com/2024/04/09/business/oil-price-rise.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/science/peter-higgs-dead.html
 **Mt. Etna Puffs Perfect Smoke Rings Into Sicilian Sky**\
 `The volcano, one of Europe’s most active, has been spewing volcanic vortex rings at a rapid pace. But that doesn’t mean a big explosion is on the way, one expert says.`\
 https://nytimes.com/2024/04/09/world/europe/smoke-rings-italy-volcano.html
-
-**Trump’s Attempt to Delay Trial Is Denied by Appeals Court Judge**\
-`Donald Trump could try to have his request reviewed by a full judicial panel, but the opening of his case remains scheduled for Monday.`\
-https://nytimes.com/2024/04/09/nyregion/trump-hush-money-trial-judge.html
 
