@@ -1,3 +1,7 @@
+**Corrections: April 9, 2024**\
+`Corrections that appeared in print on Tuesday, April 9, 2024.`\
+https://nytimes.com/2024/04/09/pageoneplus/corrections-april-9-2024.html
+
 **Quotation of the Day: Here Comes the Sun. And There It Goes.**\
 `Quotation of the Day for Tuesday, April 9, 2024.`\
 https://nytimes.com/2024/04/09/pageoneplus/quotation-of-the-day-here-comes-the-sun-and-there-it-goes.html
