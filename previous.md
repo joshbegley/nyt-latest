@@ -32,7 +32,7 @@ https://nytimes.com/2024/04/09/us/politics/biden-arizona-abortion-ban.html
 
 **Defense secretary pushes back on protesters’ claims of genocide in Gaza.**\
 `By John Ismay`\
-https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/defense-secretary-pushes-back-on-protesters-claims-of-genocide-in-gaza
+https://nytimes.com/2024/04/09/world/middleeast/austin-genocide-gaza-israel.html
 
 **Read the Arizona Supreme Court’s Abortion Ruling**\
 `The state’s highest court on Tuesday upheld an 1864 law that bans nearly all abortions.`\
