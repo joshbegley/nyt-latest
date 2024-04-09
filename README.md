@@ -1,3 +1,7 @@
+**Security Increased for Champions League Games After ISIS Threats**\
+`Online messages urged violent attacks on four matches, prompting the police in England, France and Spain to step up precautions.`\
+https://nytimes.com/2024/04/09/world/europe/champions-league-soccer-security-threats.html
+
 **Turkey Restricts Exports to Israel in Protest of War in Gaza**\
 `Turkey announced limits on dozens of products, including cement and jet fuel, prompting Israel to threaten retaliatory trade measures.`\
 https://nytimes.com/2024/04/09/world/middleeast/turkey-israel-war-trade-restrictions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/us/california-wildflowers.html
 **How Ozempic Turned a 1974 Hit Into an Inescapable Jingle**\
 `The diabetes drug has become a phenomenon, and “Oh, oh, oh, Ozempic!” — a takeoff of the Pilot song “Magic” — has played a big part in its story.`\
 https://nytimes.com/2024/04/09/arts/music/ozempic-jingle-oh-oh-oh-its-magic-pilot.html
-
-**Environmental Protection Agency Limits Pollution From Chemical Plants**\
-`The new regulation is aimed at reducing the risk of cancer for people who live close to plants emitting toxic chemicals.`\
-https://nytimes.com/2024/04/09/climate/epa-pollution-chemical-plants.html
 
