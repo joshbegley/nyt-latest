@@ -1,3 +1,7 @@
+**Arizona Reinstates 160-Year-Old Abortion Ban**\
+`The state’s highest court said the law, passed in 1864 when Arizona was a territory and moribund for decades under Roe v. Wade, was now enforceable.`\
+https://nytimes.com/2024/04/09/us/arizona-abortion-ban.html
+
 **A New Film Examines the Godfather of Modern Conservatism**\
 `The PBS documentary “The Incomparable Mr. Buckley” implicitly and explicitly asks: What would William F. Buckley think of today’s Republican Party?`\
 https://nytimes.com/2024/04/09/arts/television/william-f-buckley-pbs.html
