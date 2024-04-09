@@ -1,3 +1,11 @@
+**Trump’s Abortion Calculus, and ‘Deepnudes’ in Schools**\
+`Plus, on death row in Missouri.`\
+https://nytimes.com/2024/04/09/podcasts/trump-abortion-deepnudes-schools.html
+
+**How Tesla Planted the Seeds for Its Own Potential Downfall**\
+`Elon Musk’s factory in China saved his company and made him ultrarich. Now, it may backfire.`\
+https://nytimes.com/2024/04/09/podcasts/the-daily/tesla-china-ev.html
+
 **Switzerland’s Climate Shortfalls Violate Rights, European Court Rules**\
 `But the court ruled as inadmissible two other climate-related attempts to hold governments accountable.`\
 https://nytimes.com/2024/04/09/world/europe/climate-human-rights.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/09/arts/design/jane-goodall-immersive-tanzania-art.h
 **The Fidelity of ‘Originalist’ Justices Is About to Be Tested**\
 `Will the court’s conservatives flinch in the face of two polarizing gun cases?`\
 https://nytimes.com/2024/04/09/opinion/guns-supreme-court.html
-
-**The 25 Best Restaurants in Chicago Right Now**\
-`We scouted the city’s vast food scene, from stellar hot dogs and renowned Italian beefs to refined tasting menus. (And we’re here for your comments.).`\
-https://nytimes.com/article/best-restaurants-chicago.html
-
-**These Scientists Rock. Literally.**\
-`The Pasteur Institute in Paris, known for its world-altering scientific research, has been making advancements in another field: the musical arts.`\
-https://nytimes.com/2024/04/09/style/pasteur-institute-music-bands.html
 

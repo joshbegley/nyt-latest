@@ -1,3 +1,11 @@
+**Trump’s Abortion Calculus, and ‘Deepnudes’ in Schools**\
+`Plus, on death row in Missouri.`\
+https://nytimes.com/2024/04/09/podcasts/trump-abortion-deepnudes-schools.html
+
+**How Tesla Planted the Seeds for Its Own Potential Downfall**\
+`Elon Musk’s factory in China saved his company and made him ultrarich. Now, it may backfire.`\
+https://nytimes.com/2024/04/09/podcasts/the-daily/tesla-china-ev.html
+
 **Switzerland’s Climate Shortfalls Violate Rights, European Court Rules**\
 `But the court ruled as inadmissible two other climate-related attempts to hold governments accountable.`\
 https://nytimes.com/2024/04/09/world/europe/climate-human-rights.html
