@@ -1,3 +1,7 @@
+**Beut Takes a Modern Approach to Korean Royal Court Cuisine**\
+`Sawa brings Lebanese dishes to Park Slope, Brooklyn; Zaab Burger combines smash burgers and Thai flavors at Essex Market and more restaurant news.`\
+https://nytimes.com/2024/04/09/dining/nyc-restaurant-news.html
+
 **Seriously, Now Is the Time to Stop Kissing Sick Birds**\
 `A citizen-science collaboration in New York has turned up a half-dozen birds infected with the avian flu virus.`\
 https://nytimes.com/2024/04/09/health/bird-flu-nyc-sick.html
