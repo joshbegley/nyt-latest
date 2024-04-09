@@ -1,4 +1,8 @@
 **Want to See This Film? Movie Studios Won’t Let You.**\
+`As in the case of ‘Coyote vs. Acme,’ sometimes an entertainment company sees more value in not selling you its products.`\
+https://nytimes.com/2024/04/09/magazine/why-coyote-vs-acme-was-not-released.html
+
+**Want to See This Film? Movie Studios Won’t Let You.**\
 `Sometimes an entertainment company sees more value in not selling you its products.`\
 https://nytimes.com/2024/04/09/magazine/why-coyote-vs-acme-was-not-released.html
 
