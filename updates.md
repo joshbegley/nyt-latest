@@ -1,3 +1,7 @@
+**How Often Do You Take Breaks From Your Phone?**\
+`What strategies do you use to have a healthier relationship with your devices?`\
+https://nytimes.com/2024/04/09/learning/how-often-do-you-take-breaks-from-your-phone.html
+
 **A Divided America Agrees on One Thing: The Eclipse Was Awesome**\
 `The solar eclipse helped unite America — or at least a very narrow band of it.`\
 https://nytimes.com/2024/04/09/nyregion/total-solar-eclipse.html

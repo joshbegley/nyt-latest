@@ -1,3 +1,7 @@
+**How Often Do You Take Breaks From Your Phone?**\
+`What strategies do you use to have a healthier relationship with your devices?`\
+https://nytimes.com/2024/04/09/learning/how-often-do-you-take-breaks-from-your-phone.html
+
 **A Divided America Agrees on One Thing: The Eclipse Was Awesome**\
 `The solar eclipse helped unite America — or at least a very narrow band of it.`\
 https://nytimes.com/2024/04/09/nyregion/total-solar-eclipse.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/fashion/hyt-watches-wonders-comeback.html
 **To Choose the Menu, Just Win the Masters**\
 `The winner of the most hallowed event in professional golf gets to design the menu (and pay) for the next year’s champions dinner. Jon Rahm, the 2023 winner, supplied a recipe from his grandmother.`\
 https://nytimes.com/2024/04/09/us/masters-tournament-champions-dinner.html
-
-**Brand Beats Its Own Record for Most Complicated Watch**\
-`A Vacheron Constantin pocket watch has 63 complications, including what the brand said is another world first: a Chinese perpetual calendar.`\
-https://nytimes.com/2024/04/09/fashion/vacheron-constantin-most-complicated-watch.html
 
