@@ -1,3 +1,7 @@
+**A Divided America Agrees on One Thing: The Eclipse Was Awesome**\
+`The solar eclipse helped unite America — or at least a very narrow band of it.`\
+https://nytimes.com/2024/04/09/nyregion/total-solar-eclipse.html
+
 **Spring Cleaning**\
 `What are your favorite and least favorite household chores?`\
 https://nytimes.com/2024/04/09/learning/spring-cleaning.html
