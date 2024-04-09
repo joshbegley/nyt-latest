@@ -1,3 +1,7 @@
+**Arizona Reinstated a 160-Year-Old Abortion Ban**\
+`Also, Iran is smuggling weapons into the West Bank. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/04/09/briefing/abortion-ban-arizona-epa-pollution-rule.html
+
 **Trevor Griffiths, Marxist Writer for Stage and Screen, Dies at 88**\
 `For him, “art played a particular role in social change,” the director Mehmet Ergen said. “Everything was political.”`\
 https://nytimes.com/2024/04/09/theater/trevor-griffiths-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/09/opinion/thepoint/three-body-problem-china
 **Cameron, on U.S. Trip, Takes a Risk and Meets With Trump**\
 `David Cameron, the British foreign secretary, said he spoke with Donald Trump, the former, and possibly future, president, about Ukraine and the Israel-Gaza conflict.`\
 https://nytimes.com/2024/04/09/world/europe/david-cameron-trump-ukraine-israel.html
-
-**Three Greenhouse Gases, Three All-Time Highs**\
-`Why emissions hit record levels last year.`\
-https://nytimes.com/2024/04/09/climate/greenhouse-gas-carbon-emissions.html
 

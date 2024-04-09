@@ -1,3 +1,7 @@
+**Arizona Reinstated a 160-Year-Old Abortion Ban**\
+`Also, Iran is smuggling weapons into the West Bank. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/04/09/briefing/abortion-ban-arizona-epa-pollution-rule.html
+
 **Trevor Griffiths, Marxist Writer for Stage and Screen, Dies at 88**\
 `For him, “art played a particular role in social change,” the director Mehmet Ergen said. “Everything was political.”`\
 https://nytimes.com/2024/04/09/theater/trevor-griffiths-dead.html
