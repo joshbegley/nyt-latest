@@ -1,3 +1,7 @@
+**Greene Escalates Threat Against Johnson, Making the Case for His Ouster**\
+`In a letter to Republicans, the far-right lawmaker from Georgia said the speaker had presided over a “complete and total surrender” to Democrats and President Biden, and must change course or be unseated.`\
+https://nytimes.com/2024/04/09/us/politics/marjorie-taylor-greene-mike-johnson.html
+
 **Looking Up, Together**\
 `We cover the solar eclipse that captivated the U.S.`\
 https://nytimes.com/2024/04/09/briefing/solar-eclipse-photos-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/magazine/alvin-bragg-donald-trump-trial.html
 **Anyone Who Thinks Trump Is Done With Abortion Is a Fool**\
 `He landed a major blow against legal abortion during his first term. If given a second, he will land another.`\
 https://nytimes.com/2024/04/09/opinion/trump-abortion-dobbs-election.html
-
-**Parents of Michigan School Shooter to Be Sentenced for Manslaughter**\
-`Jennifer and James Crumbley, whose son killed four people, each face up to 15 years in prison. In memos last week, prosecutors revealed that they had asked for leniency.`\
-https://nytimes.com/2024/04/09/us/crumbley-sentencing-oxford-high-shooting.html
 
