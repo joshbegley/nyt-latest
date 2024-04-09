@@ -1,3 +1,15 @@
+**Herbert Kroemer, 95, Dies; Laid Groundwork for Modern Technologies**\
+`He shared a Nobel Prize in Physics for discoveries that paved the way for high-speed internet communication, mobile phones and bar-code readers.`\
+https://nytimes.com/2024/04/09/science/herbert-kroemer-dead.html
+
+**Swing-State Republicans Embrace Trump’s New Abortion Stance**\
+`Several of the party’s candidates, particularly those in battleground states, said they favor letting states regulate the procedure instead of having a national ban.`\
+https://nytimes.com/2024/04/09/us/politics/swing-state-republicans-abortion-senate.html
+
+**Biden’s Trade Moves Raise Tensions Abroad but Draw Cheers in Swing States**\
+`The president’s efforts to restrict Chinese imports and block a Japanese steel merger have pleased labor unions and sent a message to rival Donald J. Trump.`\
+https://nytimes.com/2024/04/09/us/politics/biden-trade-steel-china-japan.html
+
 **Workers Comb Devastated Al-Shifa Hospital for Bodies**\
 `With the fighting around the Gaza City medical center at a lull, the goal is now to provide proper burials for the dead.`\
 https://nytimes.com/2024/04/09/world/middleeast/al-shifa-gaza-bodies.html
