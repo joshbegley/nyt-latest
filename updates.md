@@ -1,3 +1,7 @@
+**Seriously, Now Is the Time to Stop Kissing Sick Birds**\
+`A citizen-science collaboration in New York has turned up a half-dozen birds infected with the avian flu virus.`\
+https://nytimes.com/2024/04/09/health/bird-flu-nyc-sick.html
+
 **Beeper Messaging App Is Acquired as a Bet on a Regulatory Shift**\
 `Automattic, the company behind WordPress.com, bought Beeper in an effort to build a system that works across Android and Apple devices.`\
 https://nytimes.com/2024/04/09/technology/beeper-messaging-app-automattic.html
