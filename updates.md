@@ -1,3 +1,7 @@
+**F.A.A. Investigates Claims by Boeing Whistle-Blower About Flaws in 787 Dreamliner**\
+`The whistle-blower, an engineer, says that sections of the plane’s body are being assembled in a way that could weaken the aircraft over time. Boeing says there is no safety issue.`\
+https://nytimes.com/2024/04/09/us/politics/boeing-787-dreamliner-whistle-blower.html
+
 **What Happened When a German Car Factory Went All Electric**\
 `Volkswagen’s plant in Zwickau stopped producing Golfs and switched to electric vehicles, illuminating the risks and opportunities for factory towns and cities.`\
 https://nytimes.com/2024/04/09/business/volkswagen-electric-vehicle-factory.html
