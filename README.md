@@ -6,9 +6,9 @@ https://nytimes.com/2024/04/09/opinion/czech-republic-poland-coal-mine.html
 `In the midst of a political and environmental dispute between the Czech Republic and Poland over a coal mine, a potato salad contest is held in a small border town.`\
 https://nytimes.com/video/opinion/100000009295691/everythings-fine-potatoes-in-line.html
 
-**Germany fights accusations of aiding genocide, at the top U.N. court in The Hague.**\
-`By Marlise Simons and Erika Solomon`\
-https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/germany-will-fight-allegations-of-aiding-genocide-at-the-top-un-court-in-the-hague
+**At U.N. Court, Germany Fights Allegations of Aiding Genocide**\
+`Nicaragua has accused Germany over its provision of military and financial aid to Israel. Germany has sent a team of international lawyers to defend itself.`\
+https://nytimes.com/2024/04/09/world/middleeast/germany-nicaragua-israel-gaza-icj-genocide.html
 
 **Active fighting has ebbed, but Gazans still face extreme hardship.**\
 `By Victoria Kim`\
