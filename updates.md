@@ -1,3 +1,7 @@
+**50 Years After Historic Home Run, Hank Aaron Gets a Stamp and a Statue**\
+`The baseball legend hit his record-breaking home run on April 8, 1974. His statue will be unveiled at the Baseball Hall of Fame in May.`\
+https://nytimes.com/2024/04/09/sports/hank-aaron-baseball-hall-fame-statue-stamp.html
+
 **More College Men Should Do What Caitlin Clark Did**\
 `Longer college careers would benefit both the N.C.A.A. and the N.B.A.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/women-basketball-caitlin-clark
