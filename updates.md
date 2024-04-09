@@ -1,3 +1,7 @@
+**A Useful Guide to the History of U.S.-China Relations**\
+`A new podcast helps explain the current moment.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/china-history-podcast
+
 **Bill in Congress Would Force Action on U.S. Troops’ Blast Exposure**\
 `The Pentagon would be required to modify weapons, update safety guidelines, train medical staff and track individual troops’ exposure to repeated blasts that can injure their brains.`\
 https://nytimes.com/2024/04/09/us/pentagon-blast-exposure-brain-elizabeth-warren-joni-ernst.html

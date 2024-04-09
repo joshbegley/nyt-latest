@@ -1,3 +1,7 @@
+**A Useful Guide to the History of U.S.-China Relations**\
+`A new podcast helps explain the current moment.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/china-history-podcast
+
 **Bill in Congress Would Force Action on U.S. Troops’ Blast Exposure**\
 `The Pentagon would be required to modify weapons, update safety guidelines, train medical staff and track individual troops’ exposure to repeated blasts that can injure their brains.`\
 https://nytimes.com/2024/04/09/us/pentagon-blast-exposure-brain-elizabeth-warren-joni-ernst.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/us/politics/pandemic-fraud-justice.html
 **Biden Courts Caregivers, Pledging to Expand Support if He Is Re-elected**\
 `The president called for 12 weeks of paid family or medical leave, large investments in preschool for 4-year-olds and the extension of a child tax credit.`\
 https://nytimes.com/2024/04/09/us/politics/biden-care-economy.html
-
-**The Global Competition at the Heart of ‘3 Body Problem’**\
-`As many book readers and series viewers have pointed out, an impending alien invasion is a fitting allegory for U.S.-China competition.`\
-https://nytimes.com/live/2024/04/09/opinion/thepoint/three-body-problem-china
 
