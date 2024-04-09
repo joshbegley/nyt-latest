@@ -1,3 +1,7 @@
+**These Perfumes Come With Notes of Blood, Latex and Floorboards**\
+`For a growing number of fragrance fans, smelling singular is more important than smelling good.`\
+https://nytimes.com/2024/04/09/t-magazine/strange-perfume-fragrance.html
+
 **A Useful Guide to the History of U.S.-China Relations**\
 `A new podcast helps explain the current situation.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/china-history-podcast
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/nyregion/robocalls-black-voters-wohl-burkman.html
 **More Funding Needed to Prosecute Pandemic Fraud, Justice Dept. Says**\
 `The Justice Department said more than $1.4 billion in stolen relief funds have been seized or forfeited. But estimates of the total stolen run into the tens of billions.`\
 https://nytimes.com/2024/04/09/us/politics/pandemic-fraud-justice.html
-
-**Biden Courts Caregivers, Pledging to Expand Support if He Is Re-elected**\
-`The president called for 12 weeks of paid family or medical leave, large investments in preschool for 4-year-olds and the extension of a child tax credit.`\
-https://nytimes.com/2024/04/09/us/politics/biden-care-economy.html
 
