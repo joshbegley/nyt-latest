@@ -1,3 +1,11 @@
+**Nonprofit Theaters Are in Trouble. Lawmakers Are Proposing Help.**\
+`Proposed legislation would allocate $1 billion annually for an industry coping with rising expenses and smaller audiences.`\
+https://nytimes.com/2024/04/09/theater/nonprofit-theaters-congress-legislation.html
+
+**A day after Trump’s abortion statement, Arizona awaits a key ruling.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/04/09/us/biden-trump-election/trump-arizona-abortion-ruling
+
 **A Heartland Godmother of Installation Art, No Longer in the Shadows**\
 `She is a trailblazer of the architectural sculpture movement, and her diaries rival Frida Kahlo’s. Are we ready for the unsettling clarity of Donna Dennis?`\
 https://nytimes.com/2024/04/09/arts/design/donna-dennis-architecture-sculpture.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/09/climate/epa-pollution-chemical-plants.html
 **Want to See This Film? Movie Studios Won’t Let You.**\
 `As in the case of ‘Coyote vs. Acme,’ sometimes an entertainment company sees more value in not selling you its products.`\
 https://nytimes.com/2024/04/09/magazine/why-coyote-vs-acme-was-not-released.html
-
-**How Low Will They Go? Wall Street’s Big Rethink on Interest Rate Cuts**\
-`Investors see Wednesday’s Consumer Price Index report as a pivotal report card on inflation and the Federal Reserve’s next move.`\
-https://nytimes.com/2024/04/09/business/dealbook/wall-street-interest-rates-inflation.html
-
-**Fortune Magazine Names a New C.E.O.**\
-`Anastasia Nyrkovskaya, who was the chief financial officer and chief strategy officer, is the first woman to run the company.`\
-https://nytimes.com/2024/04/09/business/media/fortune-ceo-anastasia-nyrkovskaya.html
 
