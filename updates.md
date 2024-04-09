@@ -1,3 +1,7 @@
+**These Perfumes Come With Notes of Blood, Latex and Floorboards**\
+`For a growing number of fragrance fans, smelling singular is more important than smelling good.`\
+https://nytimes.com/2024/04/09/t-magazine/strange-perfume-fragrance.html
+
 **A Useful Guide to the History of U.S.-China Relations**\
 `A new podcast helps explain the current situation.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/china-history-podcast
