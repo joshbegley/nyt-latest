@@ -1,3 +1,7 @@
+**Havana Syndrome and Russia’s Unit 29155**\
+`There is increasing evidence that American officers and diplomats were attacked with a Russian energy weapon.`\
+https://nytimes.com/live/2024/04/02/opinion/thepoint/havana-syndrome-russia
+
 **Beut Takes a Modern Approach to Korean Royal Court Cuisine**\
 `Sawa brings Lebanese dishes to Park Slope, Brooklyn; Zaab Burger combines smash burgers and Thai flavors at Essex Market and more restaurant news.`\
 https://nytimes.com/2024/04/09/dining/nyc-restaurant-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/us/politics/school-meals-summer-ebt.html
 **Security Increased for Champions League Games After ISIS Threats**\
 `Online messages urged violent attacks on four matches, prompting the police in England, France and Spain to step up precautions.`\
 https://nytimes.com/2024/04/09/world/europe/champions-league-soccer-security-threats.html
-
-**Turkey Restricts Exports to Israel in Protest of War in Gaza**\
-`Turkey announced limits on dozens of products, including cement and jet fuel, prompting Israel to threaten retaliatory trade measures.`\
-https://nytimes.com/2024/04/09/world/middleeast/turkey-israel-war-trade-restrictions.html
 
