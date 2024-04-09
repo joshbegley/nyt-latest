@@ -7,7 +7,7 @@ https://nytimes.com/2024/04/09/business/media/networks-biden-trump-debate-letter
 https://nytimes.com/2024/04/09/opinion/trump-abortion.html
 
 **Arizona Reinstates 160-Year-Old Abortion Ban**\
-`The state’s highest court said the law,  moribund for decades under Roe v. Wade, was now enforceable, but put the decision on hold for a lower court to hear other challenges to the law.`\
+`The state’s highest court said the law, moribund for decades under Roe v. Wade, was now enforceable, but put the decision on hold for a lower court to hear other challenges to the law.`\
 https://nytimes.com/2024/04/09/us/arizona-abortion-ban.html
 
 **A New Film Examines the Godfather of Modern Conservatism**\
