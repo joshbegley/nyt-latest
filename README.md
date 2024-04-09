@@ -1,3 +1,7 @@
+**Stumbling Into Goldilocks**\
+`How America avoided recession (so far).`\
+https://nytimes.com/2024/04/09/opinion/us-economy-inflation-recession.html
+
 **More Voters Shift to Republican Party, Closing Gap With Democrats**\
 `The trend toward the Republican Party among white voters without a college degree has continued, and Democrats have lost ground among Hispanic voters, too.`\
 https://nytimes.com/2024/04/09/us/elections/party-identification-democrats-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/israel-and-
 **Peter Higgs, Nobelist Who Discovered the ‘God Particle,’ Dies at 94**\
 `The Higgs boson was named for him. It was a key element of the Standard Model, which encapsulated all human knowledge so far about elementary particles.`\
 https://nytimes.com/2024/04/09/science/peter-higgs-dead.html
-
-**Mt. Etna Puffs Perfect Smoke Rings Into Sicilian Sky**\
-`The volcano, one of Europe’s most active, has been spewing volcanic vortex rings at a rapid pace. But that doesn’t mean a big explosion is on the way, one expert says.`\
-https://nytimes.com/2024/04/09/world/europe/smoke-rings-italy-volcano.html
 
