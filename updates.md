@@ -1,3 +1,11 @@
+**Internet Traffic Dipped as Viewers Took in the Eclipse**\
+`Internet traffic dropped by 40 percent or more during the eclipse in states in the path of totality, including Maine, New Hampshire and Ohio, Cloudflare found.`\
+https://nytimes.com/2024/04/09/business/internet-traffic-eclipse-cloudflare.html
+
+**Is This Maternity Hospital Haunted, or Is It All a Pregnant Metaphor?**\
+`In Clare Beams’s eerie new novel, “The Garden,” nefarious things are afoot.`\
+https://nytimes.com/2024/04/09/books/review/garden-clare-beams.html
+
 **Another Red-Blue Divide: Money to Feed Kids in the Summer**\
 `Congress passed bipartisan legislation to provide families that rely on subsidized school meals with help buying food over the summer. Nearly half of Republican-led states have yet to sign on.`\
 https://nytimes.com/2024/04/09/us/politics/school-meals-summer-ebt.html
