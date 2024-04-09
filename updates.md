@@ -1,4 +1,8 @@
 **More Funding Needed to Prosecute Pandemic Fraud, Justice Dept. Says**\
+`The Justice Department said more than $1.4 billion in stolen relief funds have been seized or forfeited. But estimates of the total stolen run into the tens of billions.`\
+https://nytimes.com/2024/04/09/us/politics/pandemic-fraud-justice.html
+
+**More Funding Needed to Prosecute Pandemic Fraud, Justice Dept. Says**\
 `The Justice Department said more than $1.4 billion in stolen relief funds have been seized or forfeited. But estimates of the total stolen run into the billions.`\
 https://nytimes.com/2024/04/09/us/politics/pandemic-fraud-justice.html
 
