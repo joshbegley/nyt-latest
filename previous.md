@@ -1,3 +1,7 @@
+**More Funding Needed to Prosecute Pandemic Fraud, Justice Dept. Says**\
+`The Justice Department said more than $1.4 billion in stolen relief funds have been seized or forfeited. But estimates of the total stolen run into the billions.`\
+https://nytimes.com/2024/04/09/us/politics/pandemic-fraud-justice.html
+
 **Biden courts caregivers, pledging to expand support if he is re-elected.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/04/09/us/biden-trump-election/biden-care-economy
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/defense-sec
 **Read the Arizona Supreme Court’s Abortion Ruling**\
 `The state’s highest court on Tuesday upheld an 1864 law that bans nearly all abortions.`\
 https://nytimes.com/interactive/2024/04/09/us/arizona-abortion-ruling.html
-
-**How the Solar Eclipse Affected Eid Timing**\
-`Some Muslim communities rely on a centuries-old method to determine when Ramadan ends: a crescent moon. That method was harder to follow this year.`\
-https://nytimes.com/2024/04/09/world/asia/ramadan-eid-moon-eclipse.html
 
