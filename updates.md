@@ -1,3 +1,7 @@
+**Quotation of the Day: Here Comes the Sun. And There It Goes.**\
+`Quotation of the Day for Tuesday, April 9, 2024.`\
+https://nytimes.com/2024/04/09/pageoneplus/quotation-of-the-day-here-comes-the-sun-and-there-it-goes.html
+
 **Banks Made Big Climate Promises. A New Study Doubts They Work.**\
 `Using European Central Bank lending data, researchers said there was not evidence that voluntary commitments were effective in reducing emissions.`\
 https://nytimes.com/2024/04/09/business/banks-finance-climate-change.html

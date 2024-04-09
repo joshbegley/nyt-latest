@@ -1,3 +1,7 @@
+**Quotation of the Day: Here Comes the Sun. And There It Goes.**\
+`Quotation of the Day for Tuesday, April 9, 2024.`\
+https://nytimes.com/2024/04/09/pageoneplus/quotation-of-the-day-here-comes-the-sun-and-there-it-goes.html
+
 **Banks Made Big Climate Promises. A New Study Doubts They Work.**\
 `Using European Central Bank lending data, researchers said there was not evidence that voluntary commitments were effective in reducing emissions.`\
 https://nytimes.com/2024/04/09/business/banks-finance-climate-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/08/crosswords/daily-puzzle-2024-04-09.html
 **Gypsy Rose Blanchard Files for Divorce From Ryan Anderson**\
 `The couple married while Ms. Blanchard, who was found guilty of helping to kill her mother, was still in prison.`\
 https://nytimes.com/2024/04/08/style/gypsy-rose-blanchard-divorce-ryan-anderson.html
-
-**On Abortion, Trump Chose Politics Over Principles. Will It Matter?**\
-`With his video statement on Monday, Donald Trump laid bare how faulty a messenger he had always been for the anti-abortion cause.`\
-https://nytimes.com/2024/04/08/us/politics/trump-abortion-stance.html
 
