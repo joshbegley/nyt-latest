@@ -1,3 +1,7 @@
+**2 Men Fined $1.25 Million for Robocall Scheme to Suppress Black Vote**\
+`Right-wing operatives were behind the calls, which falsely claimed that people who voted by mail would have their information sent to law enforcement agencies.`\
+https://nytimes.com/2024/04/09/nyregion/robocalls-black-voters-wohl-burkman.html
+
 **The Global Competition at the Heart of ‘3 Body Problem’**\
 `As many book readers and series viewers have pointed out, an impending alien invasion is a fitting allegory for U.S.-China competition.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/three-body-problem-china
