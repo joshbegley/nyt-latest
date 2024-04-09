@@ -1,3 +1,7 @@
+**Should Alcoholic Beverages Have Cancer Warning Labels?**\
+`Ireland will require them starting in 2026, and there are nascent efforts elsewhere to add more explicit labeling about the health risks of drinking.`\
+https://nytimes.com/2024/04/09/health/alcohol-cancer-warning.html
+
 **In Landmark Climate Ruling, European Court Faults Switzerland**\
 `But the European Court of Human Rights ruled as inadmissible two other climate-related attempts to hold governments accountable.`\
 https://nytimes.com/2024/04/09/world/europe/climate-human-rights.html
