@@ -1,3 +1,11 @@
+**Germany will fight allegations of aiding genocide, at the top U.N. court in The Hague.**\
+`By Marlise Simons and Erika Solomon`\
+https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/germany-will-fight-allegations-of-aiding-genocide-at-the-top-un-court-in-the-hague
+
+**Active fighting has ebbed, but Gazans still face extreme hardship.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/active-fighting-has-ebbed-but-gazans-still-face-extreme-hardship
+
 **Weekly Student News Quiz: School Attendance, Bridge Collapse, NCAA Final**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/04/09/learning/09StudentNewsQuiz.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/09/crosswords/todays-wordle-review.html
 **Watch Fair Opens in a Time of Uncertainty**\
 `Brands hope the new models unveiled at Watches and Wonders Geneva will attract buyers despite the tough retail climate.`\
 https://nytimes.com/2024/04/09/fashion/watches-and-wonders-geneva.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/09/crosswords/spelling-bee-forum.html
-
-**HYT Aims to Bounce Back — Again**\
-`After the brand’s roller-coaster decade, Vincent Perriard is now running the show — and trying to calm the waters.`\
-https://nytimes.com/2024/04/09/fashion/hyt-watches-wonders-comeback.html
 
