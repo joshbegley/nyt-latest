@@ -1,3 +1,11 @@
+**Beeper Messaging App Is Acquired as a Bet on a Regulatory Shift**\
+`Automattic, the company behind WordPress.com, bought Beeper in an effort to build a system that works across Android and Apple devices.`\
+https://nytimes.com/2024/04/09/technology/beeper-messaging-app-automattic.html
+
+**Rut-Busting Recipes for Freezer Staples**\
+`Spicy ground turkey with snap peas, broccoli-walnut pesto pasta and sazón chicken breasts make frozen standbys sing.`\
+https://nytimes.com/2024/04/09/dining/rut-busting-recipes-for-freezer-staples.html
+
 **‘Fire Shut Up in My Bones’ Review: A Met Milestone Returns**\
 `After making history as the Metropolitan Opera’s first work by a Black composer, Terence Blanchard’s “Fire” is back — with its showstopping step dance.`\
 https://nytimes.com/2024/04/09/arts/music/met-opera-fire-shut-up-in-my-bones.html
