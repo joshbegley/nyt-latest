@@ -1,3 +1,7 @@
+**Want to See This Film? Movie Studios Won’t Let You.**\
+`Sometimes an entertainment company sees more value in not selling you its products.`\
+https://nytimes.com/2024/04/09/magazine/why-coyote-vs-acme-was-not-released.html
+
 **How Low Will They Go? Wall Street’s Big Rethink on Interest Rate Cuts**\
 `Investors see Wednesday’s Consumer Price Index report as a pivotal report card on inflation and the Federal Reserve’s next move.`\
 https://nytimes.com/2024/04/09/business/dealbook/wall-street-interest-rates-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/podcasts/trump-abortion-deepnudes-schools.html
 **How Tesla Planted the Seeds for Its Own Potential Downfall**\
 `Elon Musk’s factory in China saved his company and made him ultrarich. Now, it may backfire.`\
 https://nytimes.com/2024/04/09/podcasts/the-daily/tesla-china-ev.html
-
-**In Landmark Climate Ruling, European Court Faults Switzerland**\
-`But the European Court of Human Rights ruled as inadmissible two other climate-related attempts to hold governments accountable.`\
-https://nytimes.com/2024/04/09/world/europe/climate-human-rights.html
 

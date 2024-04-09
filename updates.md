@@ -1,3 +1,7 @@
+**Want to See This Film? Movie Studios Won’t Let You.**\
+`Sometimes an entertainment company sees more value in not selling you its products.`\
+https://nytimes.com/2024/04/09/magazine/why-coyote-vs-acme-was-not-released.html
+
 **How Low Will They Go? Wall Street’s Big Rethink on Interest Rate Cuts**\
 `Investors see Wednesday’s Consumer Price Index report as a pivotal report card on inflation and the Federal Reserve’s next move.`\
 https://nytimes.com/2024/04/09/business/dealbook/wall-street-interest-rates-inflation.html
