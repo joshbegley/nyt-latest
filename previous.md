@@ -1,3 +1,7 @@
+**Biden courts caregivers, pledging to expand support if he is re-elected.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/04/09/us/biden-trump-election/biden-care-economy
+
 **The Global Competition at the Heart of ‘3 Body Problem’**\
 `As many book readers and series viewers have pointed out, an impending alien invasion is a fitting allegory for U.S.-China competition.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/three-body-problem-china
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/09/us/arizona-abortion-ruling.html
 **How the Solar Eclipse Affected Eid Timing**\
 `Some Muslim communities rely on a centuries-old method to determine when Ramadan ends: a crescent moon. That method was harder to follow this year.`\
 https://nytimes.com/2024/04/09/world/asia/ramadan-eid-moon-eclipse.html
-
-**Biden Promises to Make Caregiving More Affordable if Re-elected**\
-`The president pledged to make adjustments to child care and elderly care support as he laid out proposals for his budget during a speech to caregivers at Union Station in Washington.`\
-https://nytimes.com/video/us/politics/100000009405609/biden-economy-caregivers.html
 

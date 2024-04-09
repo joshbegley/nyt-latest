@@ -1,3 +1,7 @@
+**Biden courts caregivers, pledging to expand support if he is re-elected.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/04/09/us/biden-trump-election/biden-care-economy
+
 **The Global Competition at the Heart of ‘3 Body Problem’**\
 `As many book readers and series viewers have pointed out, an impending alien invasion is a fitting allegory for U.S.-China competition.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/three-body-problem-china
