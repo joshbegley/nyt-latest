@@ -1,3 +1,11 @@
+**Read the Arizona Supreme Court’s Abortion Ruling**\
+`The state’s highest court on Tuesday upheld an 1864 law that bans nearly all abortions.`\
+https://nytimes.com/interactive/2024/04/09/us/arizona-abortion-ruling.html
+
+**How the Solar Eclipse Affected Eid Timing**\
+`Some Muslim communities rely on a centuries-old method to determine when Ramadan ends: a crescent moon. That method was harder to follow this year.`\
+https://nytimes.com/2024/04/09/world/asia/ramadan-eid-moon-eclipse.html
+
 **Biden Promises to Make Caregiving More Affordable if Re-elected**\
 `The president pledged to make adjustments to child care and elderly care support as he laid out proposals for his budget during a speech to caregivers at Union Station in Washington.`\
 https://nytimes.com/video/us/politics/100000009405609/biden-economy-caregivers.html
