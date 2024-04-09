@@ -1,3 +1,7 @@
+**Tesla Settles Lawsuit Over a Fatal Crash Involving Autopilot**\
+`A Tesla driver’s family had sought damages for the 2018 crash, which happened while the carmaker’s driver-assistance software was in use.`\
+https://nytimes.com/2024/04/08/business/tesla-autopilot-walter-huang-settlement.html
+
 **Prosecutors Ask Supreme Court to Reject Trump’s Immunity Claim in Election Case**\
 `The filing was the main submission from Jack Smith, the special counsel prosecuting the former president. The case will be argued on April 25.`\
 https://nytimes.com/2024/04/08/us/supreme-court-trump-immunity-jan-6.html
