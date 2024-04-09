@@ -1,3 +1,7 @@
+**Norfolk Southern Settles Derailment Suit for $600 Million**\
+`The railroad company will pay residents and businesses in East Palestine, Ohio, and the surrounding area after a derailment last year.`\
+https://nytimes.com/2024/04/09/business/norfolk-southern-east-palestine-settlement.html
+
 **Downtown Los Angeles Places Another Big Bet on the Arts**\
 `The pandemic was tough on city centers and cultural institutions. What does that mean for Los Angeles, whose downtown depends on the arts?`\
 https://nytimes.com/2024/04/09/arts/downtown-los-angeles-culture.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/business/media/fortune-ceo-anastasia-nyrkovskaya.
 **Xi Meets With Russia’s Foreign Minister, Reaffirming Ties**\
 `The visit came days after the U.S. threatened new sanctions against Chinese companies if they aided Russia’s war in Ukraine.`\
 https://nytimes.com/2024/04/09/world/asia/xi-lavrov-russia-china.html
-
-**Should Alcoholic Beverages Have Cancer Warning Labels?**\
-`Ireland will require them starting in 2026, and there are nascent efforts elsewhere to add more explicit labeling about the health risks of drinking.`\
-https://nytimes.com/2024/04/09/health/alcohol-cancer-warning.html
 
