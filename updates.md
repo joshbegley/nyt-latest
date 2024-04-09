@@ -1,3 +1,7 @@
+**Rev. Cecil Murray, Leader Amid Los Angeles Riots, Dies at 94**\
+`He used his church, First African Methodist Episcopal, as a base to address the social ills that confronted the city’s Black population.`\
+https://nytimes.com/2024/04/09/us/rev-cecil-murray-dead.html
+
 **These Perfumes Come With Notes of Blood, Latex and Floorboards**\
 `For a growing number of fragrance fans, smelling singular is more important than smelling good.`\
 https://nytimes.com/2024/04/09/t-magazine/strange-perfume-fragrance.html

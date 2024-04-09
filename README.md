@@ -1,3 +1,7 @@
+**Former Trump Fund-Raiser Drops Suits Over Hack of Emails**\
+`Elliott Broidy had filed lawsuits against a former C.I.A. officer and three lobbyists accusing them of helping Qatar engineer the theft and distribution of his communications to discredit him.`\
+https://nytimes.com/2024/04/09/us/politics/elliott-broidy-email-hack-lawsuit.html
+
 **Rev. Cecil Murray, Leader Amid Los Angeles Riots, Dies at 94**\
 `He used his church, First African Methodist Episcopal, as a base to address the social ills that confronted the city’s Black population.`\
 https://nytimes.com/2024/04/09/us/rev-cecil-murray-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/world/asia/south-korea-elections-climate-asia.htm
 **Clarence Henry, New Orleans R&B Star Known as the Frogman, Dies at 87**\
 `A local hero in his hometown, he was best known for his hit “Ain’t Got No Home,” which showcased the vocal versatility that earned him his nickname.`\
 https://nytimes.com/2024/04/09/arts/music/clarence-henry-dead.html
-
-**2 Men Fined $1.25 Million for Robocall Scheme to Suppress Black Vote**\
-`Right-wing operatives were behind the calls, which falsely claimed that people who voted by mail would have their information sent to law enforcement agencies.`\
-https://nytimes.com/2024/04/09/nyregion/robocalls-black-voters-wohl-burkman.html
 
