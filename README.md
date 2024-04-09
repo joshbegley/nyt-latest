@@ -1,3 +1,7 @@
+**Bill in Congress Would Force Action on U.S. Troops’ Blast Exposure**\
+`The Pentagon would be required to modify weapons, update safety guidelines, train medical staff and track individual troops’ exposure to repeated blasts that can injure their brains.`\
+https://nytimes.com/2024/04/09/us/pentagon-blast-exposure-brain-elizabeth-warren-joni-ernst.html
+
 **Arizona Reinstated a 160-Year-Old Abortion Ban**\
 `Also, Iran is smuggling weapons into the West Bank. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/04/09/briefing/abortion-ban-arizona-epa-pollution-rule.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/us/politics/biden-care-economy.html
 **The Global Competition at the Heart of ‘3 Body Problem’**\
 `As many book readers and series viewers have pointed out, an impending alien invasion is a fitting allegory for U.S.-China competition.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/three-body-problem-china
-
-**Cameron, on U.S. Trip, Takes a Risk and Meets With Trump**\
-`David Cameron, the British foreign secretary, said he spoke with Donald Trump, the former, and possibly future, president, about Ukraine and the Israel-Gaza conflict.`\
-https://nytimes.com/2024/04/09/world/europe/david-cameron-trump-ukraine-israel.html
 
