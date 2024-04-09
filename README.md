@@ -1,3 +1,11 @@
+**The Geopolitics of a Czech-Polish Potato Salad Competition**\
+`In the midst of a political and environmental dispute between the Czech Republic and Poland over a coal mine, a potato salad contest is held in a small border town.`\
+https://nytimes.com/2024/04/09/opinion/czech-republic-poland-coal-mine.html
+
+**Everything’s Fine, Potatoes in Line**\
+`In the midst of a political and environmental dispute between the Czech Republic and Poland over a coal mine, a potato salad contest is held in a small border town.`\
+https://nytimes.com/video/opinion/100000009295691/everythings-fine-potatoes-in-line.html
+
 **Germany fights accusations of aiding genocide, at the top U.N. court in The Hague.**\
 `By Marlise Simons and Erika Solomon`\
 https://nytimes.com/live/2024/04/09/world/israel-gaza-war-news-hamas/germany-will-fight-allegations-of-aiding-genocide-at-the-top-un-court-in-the-hague
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/09/crosswords/connections-companion.html
 **An Elementary School Tries a ‘Radical’ Idea: Staying Open 12 Hours a Day**\
 `A Brooklyn charter school is experimenting with a new way to help families by expanding the school day. Students can arrive at 7 a.m. and leave any time before 7 p.m. For free.`\
 https://nytimes.com/2024/04/09/nyregion/extended-hours-school-brooklyn.html
-
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/09/crosswords/todays-wordle-review.html
-
-**Watch Fair Opens in a Time of Uncertainty**\
-`Brands hope the new models unveiled at Watches and Wonders Geneva will attract buyers despite the tough retail climate.`\
-https://nytimes.com/2024/04/09/fashion/watches-and-wonders-geneva.html
 
