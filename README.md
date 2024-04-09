@@ -1,6 +1,6 @@
 **Trump’s Abortion Calculus, and ‘Deepnudes’ in Schools**\
 `Plus, on death row in Missouri.`\
-https://nytimes.com/2024/04/09/podcasts/trumps-abortion-calculus-and-deepnudes-in-schools.html
+https://nytimes.com/2024/04/09/podcasts/trump-abortion-deepnudes-schools.html
 
 **How Tesla Planted the Seeds for Its Own Potential Downfall**\
 `Elon Musk’s factory in China saved his company and made him ultrarich. Now, it may backfire.`\
