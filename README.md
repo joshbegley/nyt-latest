@@ -1,3 +1,23 @@
+**Downtown Los Angeles Places Another Big Bet on the Arts**\
+`The pandemic was tough on city centers and cultural institutions. What does that mean for Los Angeles, whose downtown depends on the arts?`\
+https://nytimes.com/2024/04/09/arts/downtown-los-angeles-culture.html
+
+**Heartbreak and Family Love on the International Booker Prize Shortlist**\
+`Books by Jenny Erpenbeck and Hwang Sok-yong are among six nominees for the prestigious award for translated fiction.`\
+https://nytimes.com/2024/04/09/arts/international-booker-prize-nominees.html
+
+**California Is in Bloom Again**\
+`Wildflowers are beginning to spring to life across the state after another wet winter.`\
+https://nytimes.com/2024/04/09/us/california-wildflowers.html
+
+**How Ozempic Turned a 1974 Hit Into an Inescapable Jingle**\
+`The diabetes drug has become a phenomenon, and “Oh, oh, oh, Ozempic!” — a takeoff of the Pilot song “Magic” — has played a big part in its story.`\
+https://nytimes.com/2024/04/09/arts/music/ozempic-jingle-oh-oh-oh-its-magic-pilot.html
+
+**Environmental Protection Agency Limits Pollution From Chemical Plants**\
+`The new regulation is aimed at reducing the risk of cancer for people who live close to plants emitting toxic chemicals.`\
+https://nytimes.com/2024/04/09/climate/epa-pollution-chemical-plants.html
+
 **Want to See This Film? Movie Studios Won’t Let You.**\
 `As in the case of ‘Coyote vs. Acme,’ sometimes an entertainment company sees more value in not selling you its products.`\
 https://nytimes.com/2024/04/09/magazine/why-coyote-vs-acme-was-not-released.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/04/09/world/asia/xi-lavrov-russia-china.html
 **Should Alcoholic Beverages Have Cancer Warning Labels?**\
 `Ireland will require them starting in 2026, and there are nascent efforts elsewhere to add more explicit labeling about the health risks of drinking.`\
 https://nytimes.com/2024/04/09/health/alcohol-cancer-warning.html
-
-**Greene Escalates Threat Against Johnson, Making the Case for His Ouster**\
-`In a letter to Republicans, the far-right lawmaker from Georgia said the speaker had presided over a “complete and total surrender” to Democrats and President Biden, and must change course or be unseated.`\
-https://nytimes.com/2024/04/09/us/politics/marjorie-taylor-greene-mike-johnson.html
-
-**Looking Up, Together**\
-`We cover the solar eclipse that captivated the U.S.`\
-https://nytimes.com/2024/04/09/briefing/solar-eclipse-photos-us.html
-
-**Iran Smuggles Arms to West Bank, Officials Say, to Foment Unrest With Israel**\
-`The covert operation, described by U.S., Iranian and Israeli officials, is heightening concerns that Iran is seeking to turn the West Bank into a flashpoint in its shadow war with Israel.`\
-https://nytimes.com/2024/04/09/world/middleeast/iran-west-bank-weapons-smuggling.html
-
-**Trump’s Calculus on Abortion, and Iran’s Secret Smuggling Network**\
-`Plus, the fight against “deepnudes.”`\
-https://nytimes.com/2024/04/09/podcasts/trump-abortion-deepnudes-schools.html
-
-**How Tesla Planted the Seeds for Its Own Potential Downfall**\
-`Elon Musk’s factory in China saved his company and made him ultrarich. Now, it may backfire.`\
-https://nytimes.com/2024/04/09/podcasts/the-daily/tesla-china-ev.html
 
