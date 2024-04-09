@@ -1,3 +1,7 @@
+**Michigan Vascular Clinics Shutting Down After Scrutiny**\
+`The clinics’ owner, Dr. Jihad Mustapha, who called himself the “leg saver” but whose procedures sometimes preceded amputations, was a focus of a Times investigation last year.`\
+https://nytimes.com/2024/04/09/business/jihad-mustapha-atherectomy.html
+
 **Food Aid Program for Mothers and Children Will Provide More Fruits and Vegetables**\
 `The Agriculture Department updated the WIC program to more closely align with nutrition guidelines. The changes also reduce assistance for milk and juice.`\
 https://nytimes.com/2024/04/09/us/politics/wic-food-aid-fruits-vegetables.html

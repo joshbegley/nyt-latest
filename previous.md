@@ -1,3 +1,7 @@
+**Michigan Vascular Clinics Shutting Down After Scrutiny**\
+`The clinics’ owner, Dr. Jihad Mustapha, who called himself the “leg saver” but whose procedures sometimes preceded amputations, was a focus of a Times investigation last year.`\
+https://nytimes.com/2024/04/09/business/jihad-mustapha-atherectomy.html
+
 **Food Aid Program for Mothers and Children Will Provide More Fruits and Vegetables**\
 `The Agriculture Department updated the WIC program to more closely align with nutrition guidelines. The changes also reduce assistance for milk and juice.`\
 https://nytimes.com/2024/04/09/us/politics/wic-food-aid-fruits-vegetables.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/opinion/trump-abortion.html
 **Arizona Upholds 160-Year-Old Abortion Ban**\
 `The state’s highest court said the law, moribund for decades under Roe v. Wade, was now enforceable, but put the decision on hold for a lower court to hear other challenges to the law.`\
 https://nytimes.com/2024/04/09/us/arizona-abortion-ban.html
-
-**A New Film Examines the Godfather of Modern Conservatism**\
-`The PBS documentary “The Incomparable Mr. Buckley” implicitly and explicitly asks: What would William F. Buckley think of today’s Republican Party?`\
-https://nytimes.com/2024/04/09/arts/television/william-f-buckley-pbs.html
 
