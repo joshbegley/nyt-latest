@@ -1,3 +1,11 @@
+**What Happened When a German Car Factory Went All Electric**\
+`Volkswagen’s plant in Zwickau stopped producing Golfs and switched to electric vehicles, illuminating the risks and opportunities for factory towns and cities.`\
+https://nytimes.com/2024/04/09/business/volkswagen-electric-vehicle-factory.html
+
+**How abortion, and I.V.F., flipped an Alabama Statehouse seat.**\
+`By Maya King`\
+https://nytimes.com/live/2024/04/09/us/biden-trump-election/how-abortion-and-ivf-flipped-an-alabama-statehouse-seat
+
 **Havana Syndrome and Russia’s Unit 29155**\
 `There is increasing evidence that American officers and diplomats were attacked with a Russian energy weapon.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/havana-syndrome-russia
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/09/business/internet-traffic-eclipse-cloudflare.html
 **Is This Maternity Hospital Haunted, or Is It All a Pregnant Metaphor?**\
 `In Clare Beams’s eerie new novel, “The Garden,” nefarious things are afoot.`\
 https://nytimes.com/2024/04/09/books/review/garden-clare-beams.html
-
-**Another Red-Blue Divide: Money to Feed Kids in the Summer**\
-`Congress passed bipartisan legislation to provide families that rely on subsidized school meals with help buying food over the summer. Nearly half of Republican-led states have yet to sign on.`\
-https://nytimes.com/2024/04/09/us/politics/school-meals-summer-ebt.html
-
-**Security Increased for Champions League Games After ISIS Threats**\
-`Online messages urged violent attacks on four matches, prompting the police in England, France and Spain to step up precautions.`\
-https://nytimes.com/2024/04/09/world/europe/champions-league-soccer-security-threats.html
 

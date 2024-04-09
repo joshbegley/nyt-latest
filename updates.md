@@ -1,3 +1,11 @@
+**What Happened When a German Car Factory Went All Electric**\
+`Volkswagen’s plant in Zwickau stopped producing Golfs and switched to electric vehicles, illuminating the risks and opportunities for factory towns and cities.`\
+https://nytimes.com/2024/04/09/business/volkswagen-electric-vehicle-factory.html
+
+**How abortion, and I.V.F., flipped an Alabama Statehouse seat.**\
+`By Maya King`\
+https://nytimes.com/live/2024/04/09/us/biden-trump-election/how-abortion-and-ivf-flipped-an-alabama-statehouse-seat
+
 **Havana Syndrome and Russia’s Unit 29155**\
 `There is increasing evidence that American officers and diplomats were attacked with a Russian energy weapon.`\
 https://nytimes.com/live/2024/04/02/opinion/thepoint/havana-syndrome-russia
