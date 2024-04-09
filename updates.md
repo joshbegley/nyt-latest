@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘That Was a Fake Question’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/04/09/style/tiny-modern-love-stories-that-was-a-fake-question.html
+
 **Capitol Police Hire Special Prosecutors to Handle Rise in Threats Against Congress**\
 `The police department charged with protecting lawmakers has brought in new attorneys specially responsible for prosecuting people who make violent threats against members of Congress.`\
 https://nytimes.com/2024/04/09/us/capitol-police-special-prosecutors-threats-against-congress.html
