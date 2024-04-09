@@ -1,3 +1,7 @@
+**England Limits Youth Gender Medications, Part of Big Shift in Europe**\
+`Five European countries have recently restricted hormone treatments for adolescents with gender distress. They have not banned the care, unlike many U.S. states.`\
+https://nytimes.com/2024/04/09/health/europe-transgender-youth-hormone-treatments.html
+
 **Former Trump Fund-Raiser Drops Suits Over Hack of Emails**\
 `Elliott Broidy had filed lawsuits against a former C.I.A. officer and three lobbyists accusing them of helping Qatar engineer the theft and distribution of his communications to discredit him.`\
 https://nytimes.com/2024/04/09/us/politics/elliott-broidy-email-hack-lawsuit.html

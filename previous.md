@@ -1,3 +1,7 @@
+**England Limits Youth Gender Medications, Part of Big Shift in Europe**\
+`Five European countries have recently restricted hormone treatments for adolescents with gender distress. They have not banned the care, unlike many U.S. states.`\
+https://nytimes.com/2024/04/09/health/europe-transgender-youth-hormone-treatments.html
+
 **Former Trump Fund-Raiser Drops Suits Over Hack of Emails**\
 `Elliott Broidy had filed lawsuits against a former C.I.A. officer and three lobbyists accusing them of helping Qatar engineer the theft and distribution of his communications to discredit him.`\
 https://nytimes.com/2024/04/09/us/politics/elliott-broidy-email-hack-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/opinion/netanyahu-israel.html
 **Wednesday Briefing: A Divided South Korea Votes**\
 `Also, a landmark climate ruling in Europe.`\
 https://nytimes.com/2024/04/09/world/asia/south-korea-elections-climate-asia.html
-
-**Clarence Henry, New Orleans R&B Star Known as the Frogman, Dies at 87**\
-`A local hero in his hometown, he was best known for his hit “Ain’t Got No Home,” which showcased the vocal versatility that earned him his nickname.`\
-https://nytimes.com/2024/04/09/arts/music/clarence-henry-dead.html
 
