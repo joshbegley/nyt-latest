@@ -1,3 +1,7 @@
+**Should Alcoholic Beverages Have Cancer Warning Labels?**\
+`Ireland will require them starting in 2026, and there are nascent efforts elsewhere to add more explicit labeling about the health risks of drinking.`\
+https://nytimes.com/2024/04/09/health/alcohol-cancer-warning.html
+
 **Greene Escalates Threat Against Johnson, Making the Case for His Ouster**\
 `In a letter to Republicans, the far-right lawmaker from Georgia said the speaker had presided over a “complete and total surrender” to Democrats and President Biden, and must change course or be unseated.`\
 https://nytimes.com/2024/04/09/us/politics/marjorie-taylor-greene-mike-johnson.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/02/opinion/thepoint/women-basketball-caitlin-cl
 **How Alvin Bragg Hitched His Fate to Trump’s**\
 `The Manhattan D.A. campaigned as the best candidate to go after the former president. Now he finds himself leading Trump’s first prosecution — and perhaps the only one before the November election.`\
 https://nytimes.com/2024/04/09/magazine/alvin-bragg-donald-trump-trial.html
-
-**Anyone Who Thinks Trump Is Done With Abortion Is a Fool**\
-`He landed a major blow against legal abortion during his first term. If given a second, he will land another.`\
-https://nytimes.com/2024/04/09/opinion/trump-abortion-dobbs-election.html
 
