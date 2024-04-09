@@ -1,3 +1,11 @@
+**Biden Promises to Make Caregiving More Affordable if Re-elected**\
+`The president pledged to make adjustments to child care and elderly care support as he laid out proposals for his budget during a speech to caregivers at Union Station in Washington.`\
+https://nytimes.com/video/us/politics/100000009405609/biden-economy-caregivers.html
+
+**Abortion Jumps to the Center of Arizona’s Key 2024 Races**\
+`A ruling by the state’s highest court upholding an 1864 law that bans nearly all abortions set up a fierce political fight over the issue.`\
+https://nytimes.com/2024/04/09/us/politics/arizona-abortion-politics.html
+
 **Tiny Love Stories: ‘That Was a Fake Question’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/04/09/style/tiny-modern-love-stories-that-was-a-fake-question.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/09/opinion/us-economy-inflation-recession.html
 **More Voters Shift to Republican Party, Closing Gap With Democrats**\
 `The trend toward the Republican Party among white voters without a college degree has continued, and Democrats have lost ground among Hispanic voters, too.`\
 https://nytimes.com/2024/04/09/us/elections/party-identification-democrats-republicans.html
-
-**Why Oil Prices Have Been Rising Recently**\
-`The increase this year, prompted by geopolitical worries and supply constraints, has sent gasoline prices higher and could hamper efforts to tame inflation.`\
-https://nytimes.com/2024/04/09/business/oil-price-rise.html
-
-**The Magnetic Fields Wrote ‘69 Love Songs.’ Here’s 11 of the Best.**\
-`A primer on the indie-rock band’s triple album, now celebrating its 25th anniversary.`\
-https://nytimes.com/2024/04/09/arts/music/amplifier-newsletter-magnetic-fields-69-love-songs.html
 
