@@ -1,3 +1,7 @@
+**Why Is Ocean Heat Smashing Records? It’s More Than Just Climate Change.**\
+`With record temperatures every day for more than a year, scientists are investigating what’s behind the extraordinary measurements.`\
+https://nytimes.com/2024/04/10/climate/ocean-heat-records.html
+
 **Now Hiring: Sophisticated (but Part-Time) Chatbot Tutors**\
 `The human work of teaching A.I. is getting a lot more complex as the technology improves.`\
 https://nytimes.com/2024/04/10/technology/ai-chatbot-training-chatgpt.html
