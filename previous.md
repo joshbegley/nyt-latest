@@ -26,8 +26,8 @@ https://nytimes.com/2024/04/10/us/iowa-immigration-law.html
 `The president said he was “blunt and straightforward” with Prime Minister Benjamin Netanyahu of Israel but declined to say explicitly whether he would condition future U.S. arms shipments on the response.`\
 https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/biden-welcomes-more-gaza-aid-but-says-israel-has-to-do-more-to-relieve-suffering
 
-**Trump, criticizing Arizona abortion ruling, says he wouldn’t sign a federal ban if elected.**\
-`By Michael Gold`\
+**Trump, Criticizing Arizona Abortion Ruling, Says He Wouldn’t Sign a Federal Ban if Elected**\
+`Days after he said that abortion policies should be left to the states, former President Donald J. Trump criticized an Arizona court ruling that upheld an 1864 law.`\
 https://nytimes.com/2024/04/10/us/politics/trump-arizona-abortion.html
 
 **Ellen Gallagher’s Futuristic Archives**\

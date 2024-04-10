@@ -1,3 +1,7 @@
+**Trump, Criticizing Arizona Abortion Ruling, Says He Wouldn’t Sign a Federal Ban if Elected**\
+`Days after he said that abortion policies should be left to the states, former President Donald J. Trump criticized an Arizona court ruling that upheld an 1864 law.`\
+https://nytimes.com/2024/04/10/us/politics/trump-arizona-abortion.html
+
 **Man Sentenced to 30 Years in Fatal Shooting of 14-Year-Old**\
 `Aamir Griffin was killed on a Queens basketball court in 2019 when Sean Brown, then 16, mistook him for a rival gang member.`\
 https://nytimes.com/2024/04/10/nyregion/queens-shooting-teen-basketball-court.html
