@@ -1,3 +1,7 @@
+**Arizona’s 1864 Abortion Law, and New Boeing Allegations**\
+`Plus, the fight against “forever chemicals.”`\
+https://nytimes.com/2024/04/10/podcasts/biden-japan-trump.html
+
 **He Wanted to Serve His Community in Gaza. He Paid With His Life.**\
 `The killing of foreign aid workers from World Central Kitchen brought international outrage. The death of their Palestinian driver drew less attention.`\
 https://nytimes.com/2024/04/10/world/middleeast/world-central-kitchen-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/us/politics/biden-kishida-japan-visit.html
 **Trudeau to Testify After Opposing Election Interference Inquiry**\
 `Intelligence reports released during hearings on Canada’s elections in 2019 and 2021 describe China’s meddling as “sophisticated, pervasive, persistent.’’`\
 https://nytimes.com/2024/04/10/world/canada/trudeau-election-interference-inquiry.html
-
-**For Muslims, It’s Hard to Celebrate This Eid**\
-`The war in Gaza looms.`\
-https://nytimes.com/live/2024/04/09/opinion/thepoint/eid-gaza-ramadan
 

@@ -1,3 +1,7 @@
+**Arizona’s 1864 Abortion Law, and New Boeing Allegations**\
+`Plus, the fight against “forever chemicals.”`\
+https://nytimes.com/2024/04/10/podcasts/biden-japan-trump.html
+
 **He Wanted to Serve His Community in Gaza. He Paid With His Life.**\
 `The killing of foreign aid workers from World Central Kitchen brought international outrage. The death of their Palestinian driver drew less attention.`\
 https://nytimes.com/2024/04/10/world/middleeast/world-central-kitchen-gaza.html

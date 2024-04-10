@@ -1,3 +1,7 @@
+**Trump’s About-Face on Abortion**\
+`After months of mixed signals, the former president said abortion rights should be left to the states.`\
+https://nytimes.com/2024/04/10/podcasts/the-daily/trump-abortion.html
+
 **Arizona’s 1864 Abortion Law, and New Boeing Allegations**\
 `Plus, the fight against “forever chemicals.”`\
 https://nytimes.com/2024/04/10/podcasts/biden-japan-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/climate/six-things-to-know-about-forever-chemical
 **To Counter China’s Rising Power, Biden Looks to Strengthen Ties With Japan**\
 `President Biden is hosting Japan’s prime minister, Fumio Kishida, for a state visit as part of a broad diplomatic outreach.`\
 https://nytimes.com/2024/04/10/us/politics/biden-kishida-japan-visit.html
-
-**Trudeau to Testify After Opposing Election Interference Inquiry**\
-`Intelligence reports released during hearings on Canada’s elections in 2019 and 2021 describe China’s meddling as “sophisticated, pervasive, persistent.’’`\
-https://nytimes.com/2024/04/10/world/canada/trudeau-election-interference-inquiry.html
 
