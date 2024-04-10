@@ -1,3 +1,11 @@
+**At Least 3 Injured in Shooting at Philadelphia Eid Celebration**\
+`The shooting took place on Wednesday afternoon in West Philadelphia, where 1,000 people were gathered to mark the end of Ramadan.`\
+https://nytimes.com/2024/04/10/us/shooting-eid-philadelphia.html
+
+**Johnson to Join Trump at Mar-a-Lago for ‘Election Integrity’ Announcement**\
+`The meeting comes at an awkward moment in the relationship between the speaker and the former president, who are at cross purposes on an intelligence bill and Ukraine.`\
+https://nytimes.com/2024/04/10/us/politics/mike-johnson-trump.html
+
 **Thursday Briefing: Japan’s Leader Visits Washington**\
 `Also, South Korean exit polls suggest a defeat for the president’s party.`\
 https://nytimes.com/2024/04/10/world/asia/japan-biden-visit-korea-polls-asia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/10/us/politics/julian-assange-prosecution.html
 **Arizona Republicans Thwart Attempts to Repeal 1864 Abortion Ban**\
 `Democrats in both houses of the Legislature were blocked from advancing bills to roll back a reinstated 160-year-old ban on nearly all abortions in the state.`\
 https://nytimes.com/2024/04/10/us/abortion-ban-arizona-democrats-repeal.html
-
-**Joining Texas, Iowa Enacts Law for State Immigration Enforcement**\
-`Gov. Kim Reynolds, a Republican, signed the bill on Wednesday and accused the Biden administration of failing to secure the border.`\
-https://nytimes.com/2024/04/10/us/iowa-immigration-law.html
-
-**Biden welcomes more Gaza aid but says Israel has to do more to relieve suffering.**\
-`The president said he was “blunt and straightforward” with Prime Minister Benjamin Netanyahu of Israel but declined to say explicitly whether he would condition future U.S. arms shipments on the response.`\
-https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/biden-welcomes-more-gaza-aid-but-says-israel-has-to-do-more-to-relieve-suffering
 
