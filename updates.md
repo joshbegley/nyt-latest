@@ -1,3 +1,7 @@
+**Did a Politician Ruin a Trendy Shoe?**\
+`Photos of Britain’s prime minister wearing Adidas Sambas briefly united a nation.`\
+https://nytimes.com/2024/04/10/style/rishi-sunak-adidas-sambas.html
+
 **Floods Batter Russia and Kazakhstan, Forcing Tens of Thousands to Evacuate**\
 `More than 100,000 people had to leave their homes after spring floods engulfed cities and villages in vast sections of neighboring countries.`\
 https://nytimes.com/2024/04/10/world/europe/floods-russia-kazakhstan-evacuations.html

@@ -27,7 +27,7 @@ https://nytimes.com/2024/04/10/world/middleeast/aid-pledges-gaza-israel.html
 https://nytimes.com/2024/04/10/sports/golf/masters-tournament-invitation-augusta.html
 
 **Did a Politician Ruin a Trendy Shoe?**\
-`Photos of Britain’s prime minister wearing Adidas Sambas briefly unites a nation.`\
+`Photos of Britain’s prime minister wearing Adidas Sambas briefly united a nation.`\
 https://nytimes.com/2024/04/10/style/rishi-sunak-adidas-sambas.html
 
 **Why Does Inflation Persist? Nobody Knows for Sure.**\
