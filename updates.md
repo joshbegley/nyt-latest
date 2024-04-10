@@ -1,3 +1,7 @@
+**Europe Is Making Progress on Gender Medicine. The U.S. Should Catch Up.**\
+`A new report in England finds “shaky” evidence that medical treatments for children’s gender dysphoria are effective.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/gender-medicine-england
+
 **Readers Share Stories of Their Loved Ones’ Deathbed Visions**\
 `Rich, deeply personal stories of visions and the peace they have brought to people’s lives`\
 https://nytimes.com/2024/04/10/magazine/readers-share-stories-of-their-loved-ones-deathbed-visions.html
