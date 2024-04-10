@@ -1,3 +1,7 @@
+**Thursday Briefing: Japan’s Leader Visits Washington**\
+`Also, South Korean exit polls suggest a defeat for the president’s party.`\
+https://nytimes.com/2024/04/10/world/asia/japan-biden-visit-korea-polls-asia.html
+
 **Japan Gives Washington 250 Cherry Trees as Replacements**\
 `The trees will replace 140 that will be torn up as part of a restoration project. The capital’s first Japanese cherry trees were a gift from the mayor of Tokyo in 1912.`\
 https://nytimes.com/2024/04/10/us/politics/japan-us-cherry-trees.html
