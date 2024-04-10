@@ -1,3 +1,7 @@
+**Roger, a Failed Drug Dog, Becomes a Hero of Taiwan’s Quake Response**\
+`The 8-year-old rescue dog, who was once deemed too friendly to sniff out drugs, found the body of the earthquake’s 13th victim.`\
+https://nytimes.com/2024/04/10/world/asia/taiwan-earthquake-rescue-dog-roger.html
+
 **Abortion Politics in 2024**\
 `Four key points to help you make sense of the current debate.`\
 https://nytimes.com/2024/04/10/briefing/abortion-democrats-republicans-arizona.html
