@@ -1,3 +1,11 @@
+**Rescue Dog Finds Body After Taiwan Quake**\
+`Roger, a Labrador retriever with the Kaohsiung Fire Department, helped rescuers search an area near a popular hiking trail in Hualien County.`\
+https://nytimes.com/video/world/asia/100000009406418/taiwan-quake-rescue-dog-roger.html
+
+**War and hunger mar Eid in Gaza.**\
+`By Raja Abdulrahim and Ameera Harouda`\
+https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/war-and-hunger-mar-eid-in-gaza
+
 **As Speaker, Johnson Advances What He Once Opposed, Enraging the Right**\
 `Now that he is the leader, the Louisiana Republican has found himself bowing to governing realities that are now his problem.`\
 https://nytimes.com/2024/04/10/world/europe/as-speaker-johnson-advances-what-he-once-opposed-enraging-the-right.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/10/learning/movie-memorabilia.html
 **A Soccer Team Stopped Charging for Tickets. Should Others Do the Same?**\
 `When Paris F.C. made its tickets free, it began an experiment into the connection between fans and teams, and posed a question about the value of big crowds to televised sports.`\
 https://nytimes.com/2024/04/10/world/europe/paris-fc-free-tickets-soccer.html
-
-**Blizzard and NetEase Settle Their Beef, Returning Warcraft to China**\
-`The deal between the gaming company Blizzard, now owned by Microsoft, and the Chinese giant NetEase renews a partnership that lapsed more than a year ago.`\
-https://nytimes.com/2024/04/10/business/warcraft-returns-china-blizzard-netease.html
-
-**Word of the Day: prowess**\
-`This word has appeared in 222 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/04/10/learning/word-of-the-day-prowess.html
 
