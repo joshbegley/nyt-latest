@@ -1,3 +1,11 @@
+**Did You Really Need to Be There to See It?**\
+`Trying to capture the eclipse on a cloudy day in Image City.`\
+https://nytimes.com/2024/04/10/arts/eclipse-rochester-new-york.html
+
+**What War by A.I. Actually Looks Like**\
+`The Israel Defense Forces’ offensive in Gaza is an ominous hint of the military future`\
+https://nytimes.com/2024/04/10/opinion/war-ai-israel-gaza-ukraine.html
+
 **Nijole Sadunaite, Lithuanian Nun Who Opposed Soviet Rule, Dies at 85**\
 `A dissident who promoted democracy and religious freedom, she was arrested by the K.G.B. After independence from Moscow, she was honored by Lithuania’s Parliament.`\
 https://nytimes.com/2024/04/10/world/europe/nijole-sadunaite-dead.html
