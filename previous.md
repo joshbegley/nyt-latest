@@ -1,3 +1,7 @@
+**A Reverse Art Heist? Museum Finds Employee’s Painting on Its Wall**\
+`The Pinakothek der Moderne in Munich said it had fired a worker for hanging one of his own pieces in its modern art collection.`\
+https://nytimes.com/2024/04/10/world/europe/germany-painting-museum.html
+
 **Which Countries Are the Biggest Suppliers to Israel’s Military?**\
 `Some governments that sell weapons to Israel — a list that is topped by the United States and Germany — are facing legal challenges and protests over those exports.`\
 https://nytimes.com/2024/04/10/world/middleeast/israel-weapons-suppliers-us-germany-italy.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/whats-behind-the-
 **Trump’s About-Face on Abortion**\
 `After months of mixed signals, the former president said abortion rights should be left to the states.`\
 https://nytimes.com/2024/04/10/podcasts/the-daily/trump-abortion.html
-
-**Arizona’s 1864 Abortion Law, and New Boeing Allegations**\
-`Plus, the fight against “forever chemicals.”`\
-https://nytimes.com/2024/04/10/podcasts/biden-japan-trump.html
 
