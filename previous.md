@@ -1,3 +1,7 @@
+**The Politics of a Steel Deal Hangs Over Biden’s Japan Summit**\
+`The president’s effort to court voters in crucial swing states is influencing economic and trade policy, and worrying longstanding allies.`\
+https://nytimes.com/2024/04/10/business/dealbook/biden-japan-summit-nippon-steel.html
+
 **K-Pop Group Asks U.S. Court for Help Finding YouTube User in Defamation Case**\
 `The request by NewJeans is the latest effort by the K-pop industry in its struggle to stem rumors on platforms based outside South Korea.`\
 https://nytimes.com/2024/04/10/arts/music/newjeans-kpop-youtube-defamation-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/world/middleeast/world-central-kitchen-gaza.html
 **Price of Gold, Seen as Hedge Against Inflation, Soars to New Heights**\
 `The move has puzzled Wall Street, as it comes as the outlook for the economy has improved and inflation has generally cooled.`\
 https://nytimes.com/2024/04/10/business/gold-price-inflation.html
-
-**Inflation takes center stage as economists look for signs of continued slowing.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/inflation-takes-center-stage-as-economists-look-for-signs-of-continued-slowing
 
