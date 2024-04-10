@@ -1,3 +1,7 @@
+**What We Know About the Arizona Abortion Ban**\
+`The state’s highest court reinstated an 1864 law that bans nearly all abortions. Here’s what to know about the ruling.`\
+https://nytimes.com/article/arizona-abortion-ban.html
+
 **Judge Blocks Trump’s Lawyers From Naming Witnesses in Documents Case**\
 `The special counsel had asked that the names of about two dozen government witnesses be redacted from a public version of a court filing to protect against potential threats or harassment.`\
 https://nytimes.com/2024/04/09/us/politics/trump-documents-witnesses.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/nyregion/nadine-menendez-trial-delay.html
 **England Limits Youth Gender Medications, Part of Big Shift in Europe**\
 `Five European countries have recently restricted hormone treatments for adolescents with gender distress. They have not banned the care, unlike many U.S. states.`\
 https://nytimes.com/2024/04/09/health/europe-transgender-youth-hormone-treatments.html
-
-**Former Trump Fund-Raiser Drops Suits Over Hack of Emails**\
-`Elliott Broidy had filed lawsuits against a former C.I.A. officer and three lobbyists accusing them of helping Qatar engineer the theft and distribution of his communications to discredit him.`\
-https://nytimes.com/2024/04/09/us/politics/elliott-broidy-email-hack-lawsuit.html
 
