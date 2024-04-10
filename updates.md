@@ -1,3 +1,7 @@
+**Trump’s About-Face on Abortion**\
+`After months of mixed signals, the former president said abortion rights should be left to the states.`\
+https://nytimes.com/2024/04/10/podcasts/the-daily/trump-abortion.html
+
 **Arizona’s 1864 Abortion Law, and New Boeing Allegations**\
 `Plus, the fight against “forever chemicals.”`\
 https://nytimes.com/2024/04/10/podcasts/biden-japan-trump.html
