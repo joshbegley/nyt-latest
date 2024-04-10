@@ -1,3 +1,23 @@
+**After Trump Broadside, Surveillance Bill Teeters in the House**\
+`The extension of a key foreign intelligence surveillance tool is at risk as right-wing lawmakers insist on bigger changes and former President Donald J. Trump urges lawmakers to “kill” the law underlying it`\
+https://nytimes.com/2024/04/10/us/politics/fisa-trump-johnson-house.html
+
+**Senate Leaders Look to Curb ‘Judge Shopping’ But In Different Ways**\
+`Senators Chuck Schumer and Mitch McConnell don’t think the federal judiciary is doing enough, and each is introducing a bill to address the issue.`\
+https://nytimes.com/2024/04/10/us/judge-shopping-senate-schumer-mcconnell.html
+
+**My Friend Is a Spendthrift With a Sick Dog. Should I Give to Her GoFundMe?**\
+`The magazine’s Ethicist columnist on the value of donating to a fund-raiser for a pet in need — despite its owner’s bad habits.`\
+https://nytimes.com/2024/04/10/magazine/spendthrift-friend-dog-fundraiser-ethics.html
+
+**Hamas’s political leader says an Israeli strike killed three of his sons.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/hamas-haniyeh-israel-strike
+
+**Simon & Schuster Turns 100 With a New Owner and a Sense of Optimism**\
+`The milestone comes after a particularly turbulent period, when the publisher was put up for sale and bought by a private equity firm. Since then, investments have boosted morale and helped it grow.`\
+https://nytimes.com/2024/04/10/books/booksupdate/simon-schuster-turns-100-with-a-new-owner-and-a-sense-of-optimism.html
+
 **Why Is Ocean Heat Smashing Records? It’s More Than Just Climate Change.**\
 `With record temperatures every day for more than a year, scientists are investigating what’s behind the extraordinary measurements.`\
 https://nytimes.com/2024/04/10/climate/ocean-heat-records.html

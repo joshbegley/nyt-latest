@@ -1,3 +1,23 @@
+**After Trump Broadside, Surveillance Bill Teeters in the House**\
+`The extension of a key foreign intelligence surveillance tool is at risk as right-wing lawmakers insist on bigger changes and former President Donald J. Trump urges lawmakers to “kill” the law underlying it`\
+https://nytimes.com/2024/04/10/us/politics/fisa-trump-johnson-house.html
+
+**Senate Leaders Look to Curb ‘Judge Shopping’ But In Different Ways**\
+`Senators Chuck Schumer and Mitch McConnell don’t think the federal judiciary is doing enough, and each is introducing a bill to address the issue.`\
+https://nytimes.com/2024/04/10/us/judge-shopping-senate-schumer-mcconnell.html
+
+**My Friend Is a Spendthrift With a Sick Dog. Should I Give to Her GoFundMe?**\
+`The magazine’s Ethicist columnist on the value of donating to a fund-raiser for a pet in need — despite its owner’s bad habits.`\
+https://nytimes.com/2024/04/10/magazine/spendthrift-friend-dog-fundraiser-ethics.html
+
+**Hamas’s political leader says an Israeli strike killed three of his sons.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/hamas-haniyeh-israel-strike
+
+**Simon & Schuster Turns 100 With a New Owner and a Sense of Optimism**\
+`The milestone comes after a particularly turbulent period, when the publisher was put up for sale and bought by a private equity firm. Since then, investments have boosted morale and helped it grow.`\
+https://nytimes.com/2024/04/10/books/booksupdate/simon-schuster-turns-100-with-a-new-owner-and-a-sense-of-optimism.html
+
 **Why Is Ocean Heat Smashing Records? It’s More Than Just Climate Change.**\
 `With record temperatures every day for more than a year, scientists are investigating what’s behind the extraordinary measurements.`\
 https://nytimes.com/2024/04/10/climate/ocean-heat-records.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/04/10/technology/ai-chatbot-training-chatgpt.html
 **Can Adriano Pedrosa Save the Venice Biennale? No Pressure.**\
 `Balancing diplomacy and geopolitics is hardly new for the first Biennale curator from Latin America. He isn’t scared to make a strong statement on contemporary art.`\
 https://nytimes.com/2024/04/10/arts/design/adriano-pedrosa-venice-biennale.html
-
-**Five-Star Indian Butter Chickpeas for No-Energy Nights**\
-`“Only change I’d make is to double it for more delicious leftovers,” writes one of many rave reviews.`\
-https://nytimes.com/2024/04/10/dining/five-star-indian-butter-chickpeas-for-no-energy-nights.html
-
-**Wyatt Flores, a Rising Country Artist, Has a Superpower: Tapping Emotions**\
-`The 22-year-old singer and songwriter makes music that touches listeners deeply. But his own trauma — coupled with his rapid rise — has thrown some bumps in the road.`\
-https://nytimes.com/2024/04/10/arts/music/wyatt-flores-half-life.html
-
-**What’s Going On in This Graph? | April 17, 2024**\
-`How are the prices and sizes of some consumer items changing?`\
-https://nytimes.com/2024/04/10/learning/whats-going-on-in-this-graph-april-17-2024.html
-
-**The History Behind Arizona’s 160-Year-Old Abortion Ban**\
-`The state’s Supreme Court ruled that the 1864 law is enforceable today. Here is what led to its enactment.`\
-https://nytimes.com/2024/04/10/health/arizona-abortion-ban-history.html
-
-**Bernhard Langer, a Masters Stalwart for 40 Years, Sits This One Out**\
-`He first played in the tournament in 1982 and has won it twice, but a pickleball injury, of all things, has him sidelined.`\
-https://nytimes.com/2024/04/10/sports/golf/masters-bernhard-langer.html
 
