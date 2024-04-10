@@ -1,3 +1,7 @@
+**Jacob Zuma, South Africa’s Scandal-Ridden Ex-President, Is Running Again**\
+`The 81-year-old former leader has been cleared to appear on the ballot as an opposition candidate in May’s parliamentary election. Unless the decision is reversed, he could become a kingmaker — or even president once again.`\
+https://nytimes.com/2024/04/10/world/africa/south-africa-jacob-zuma-election.html
+
 **Trump Criticizes Arizona Abortion Ban**\
 `During a campaign stop in Atlanta, former President Donald J. Trump said that the Arizona abortion ruling went too far, adding that it will be “straightened out.”`\
 https://nytimes.com/video/us/elections/100000009407394/trump-abortion-arizona.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/world/middleeast/aid-pledges-gaza-israel.html
 **Playing the Masters Is by Invitation Only. Here’s How Golfers Get One.**\
 `There’s a long list of possible ways, like being a past winner, but the creation of LIV Golf has complicated the process.`\
 https://nytimes.com/2024/04/10/sports/golf/masters-tournament-invitation-augusta.html
-
-**Did a Politician Ruin a Trendy Shoe?**\
-`Photos of Britain’s prime minister wearing Adidas Sambas briefly united a nation.`\
-https://nytimes.com/2024/04/10/style/rishi-sunak-adidas-sambas.html
 
