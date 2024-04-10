@@ -1,3 +1,7 @@
+**U.S. Postal Service Proposes Raising Stamp Prices Again**\
+`If a regulatory body approves, a nearly 8 percent rise in postage will take effect in July. It would be the latest of several price hikes since 2021.`\
+https://nytimes.com/2024/04/10/us/postal-service-stamp-price-increase.html
+
 **Wednesday Briefing**\
 `A landmark climate ruling in Europe.`\
 https://nytimes.com/2024/04/10/briefing/climate-europe-iran-west-bank.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/world/asia/south-korea-election-yoon.html
 **New York Is Winding Down Contract With Migrant Services Operator**\
 `DocGo, which has a $432 million contract with the city, faced allegations of providing migrants with false papers, wasting food and hiring unlicensed security guards.`\
 https://nytimes.com/2024/04/09/nyregion/docgo-migrants-services-nyc.html
-
-**What We Know About the Arizona Abortion Ban**\
-`The state’s highest court reinstated an 1864 law that bans nearly all abortions. Here’s what to know about the ruling.`\
-https://nytimes.com/article/arizona-abortion-ban.html
 
