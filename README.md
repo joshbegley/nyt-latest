@@ -1,3 +1,11 @@
+**Biden Says U.S. Is Considering Dropping Its Case Against Assange**\
+`The WikiLeaks founder has been held in London as he has battled extradition to the United States on charges related to his publication of classified documents.`\
+https://nytimes.com/2024/04/10/us/politics/julian-assange-prosecution.html
+
+**Arizona Republicans Thwart Attempts to Repeal 1864 Abortion Ban**\
+`Democrats in both houses of the Legislature were blocked from advancing bills to roll back a reinstated 160-year-old ban on nearly all abortions in the state.`\
+https://nytimes.com/2024/04/10/us/abortion-ban-arizona-democrats-repeal.html
+
 **Joining Texas, Iowa Enacts Law for State Immigration Enforcement**\
 `Gov. Kim Reynolds, a Republican, signed the bill on Wednesday and accused the Biden administration of failing to secure the border.`\
 https://nytimes.com/2024/04/10/us/iowa-immigration-law.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/10/world/europe/nijole-sadunaite-dead.html
 **Explosion at Hydroelectric Plant in Italy Kills at Least 3**\
 `Emergency workers were searching for four other workers who were missing after the blast in northern Italy, which has galvanized unions in the region.`\
 https://nytimes.com/2024/04/10/world/europe/italy-explosion-hydroelectric-plant.html
-
-**Europe Is Making Progress on Gender Medicine. The U.S. Should Catch Up.**\
-`A new report in England finds “shaky” evidence that medical treatments for children’s gender dysphoria are effective.`\
-https://nytimes.com/live/2024/04/09/opinion/thepoint/gender-medicine-england
-
-**Readers Share Stories of Their Loved Ones’ Deathbed Visions**\
-`Rich, deeply personal stories of visions and the peace they have brought to people’s lives`\
-https://nytimes.com/2024/04/10/magazine/readers-share-stories-of-their-loved-ones-deathbed-visions.html
 
