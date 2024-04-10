@@ -1,3 +1,7 @@
+**Biden’s State Dinner for Japan to Feature Paul Simon and Celebrate Spring**\
+`An elevated California roll and steak with sesame sabayon will be among the dishes presented to Prime Minister Fumio Kishida of Japan at the state dinner on Wednesday.`\
+https://nytimes.com/2024/04/09/us/politics/biden-state-dinner-japan.html
+
 **Give a Boost**\
 `Bill Thompson makes magic.`\
 https://nytimes.com/2024/04/09/crosswords/daily-puzzle-2024-04-10.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/science/fox-remains-south-america-patagonia.html
 **‘Brandy Hellville & the Cult of Fast Fashion’: 5 Takeaways**\
 `Former employees of the brand, a Gen Z fashion favorite, recount race and size discrimination in a new documentary on HBO.`\
 https://nytimes.com/2024/04/09/style/brandy-melville-hbo-documentary.html
-
-**Germany Rebuffs Claim Its Arms Sales to Israel Abet Genocide in Gaza**\
-`Germany argued against the accusation brought by Nicaragua at the International Court of Justice, but Germans are questioning their country’s unwavering support for Israel.`\
-https://nytimes.com/2024/04/09/world/europe/germany-israel-genocide-icj.html
 

@@ -1,3 +1,7 @@
+**Biden’s State Dinner for Japan to Feature Paul Simon and Celebrate Spring**\
+`An elevated California roll and steak with sesame sabayon will be among the dishes presented to Prime Minister Fumio Kishida of Japan at the state dinner on Wednesday.`\
+https://nytimes.com/2024/04/09/us/politics/biden-state-dinner-japan.html
+
 **Give a Boost**\
 `Bill Thompson makes magic.`\
 https://nytimes.com/2024/04/09/crosswords/daily-puzzle-2024-04-10.html
