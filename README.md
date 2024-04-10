@@ -1,3 +1,7 @@
+**Readers Share Stories of Their Loved Ones’ Deathbed Visions**\
+`Rich, deeply personal stories of visions and the peace they have brought to people’s lives`\
+https://nytimes.com/2024/04/10/magazine/readers-share-stories-of-their-loved-ones-deathbed-visions.html
+
 **Gazans observe an austere Eid at-Fitr in the shadow of war.**\
 `By Remy Tumin`\
 https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/gazans-observe-an-austere-eid-at-fitr-under-the-shadow-of-war
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009407179/biden-kishida-us-japan.htm
 **Fixing the Quality Problems at Boeing**\
 `Readers discuss Boeing’s woes. Also: Arizona’s abortion ban; student loans; “nice” countries; “pro-humanity” protesters; caring about fish.`\
 https://nytimes.com/2024/04/10/opinion/boeing-airliner-safety.html
-
-**Liz Cheney was passed over for a medal. A board member quit, arguing the group bowed to Trump.**\
-`David Hume Kennerly, a Pulitzer Prize-winning photographer, resigned from the board of the Gerald R. Ford Presidential Foundation over what he said was a snub.`\
-https://nytimes.com/live/2024/04/10/us/biden-trump-election/liz-cheney-trump-medal-gerald-ford-foundation
 
