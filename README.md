@@ -1,3 +1,7 @@
+**What’s behind the recent rise in oil prices.**\
+`By Stanley Reed`\
+https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/whats-behind-the-recent-rise-in-oil-prices
+
 **Trump’s About-Face on Abortion**\
 `After months of mixed signals, the former president said abortion rights should be left to the states.`\
 https://nytimes.com/2024/04/10/podcasts/the-daily/trump-abortion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/opinion/trump-donors-project-2025.html
 **Six Things to Know About ‘Forever Chemicals’**\
 `The federal government is ordering the removal of PFAS, a class of chemicals that poses serious health risks, from drinking water systems across the country.`\
 https://nytimes.com/2024/04/10/climate/six-things-to-know-about-forever-chemicals.html
-
-**To Counter China’s Rising Power, Biden Looks to Strengthen Ties With Japan**\
-`President Biden is hosting Japan’s prime minister, Fumio Kishida, for a state visit as part of a broad diplomatic outreach.`\
-https://nytimes.com/2024/04/10/us/politics/biden-kishida-japan-visit.html
 
