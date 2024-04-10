@@ -1,3 +1,7 @@
+**Biden Hosts Japan’s Prime Minister at the White House**\
+`President Biden called the United States and Japan “the closest of friends” during a welcoming ceremony for Prime Minister Fumio Kishida.`\
+https://nytimes.com/video/us/politics/100000009407179/biden-kishida-us-japan.html
+
 **Fixing the Quality Problems at Boeing**\
 `Readers discuss Boeing’s woes. Also: Arizona’s abortion ban; student loans; “nice” countries; “pro-humanity” protesters; caring about fish.`\
 https://nytimes.com/2024/04/10/opinion/boeing-airliner-safety.html
