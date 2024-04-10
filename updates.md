@@ -1,3 +1,15 @@
+**Wall Street Shudders on Signs of Unexpectedly Strong Inflation**\
+`Stocks fell and bond yields jumped as investors reassessed when the Federal Reserve may begin cutting interest rates.`\
+https://nytimes.com/2024/04/10/business/stock-markets-inflation-cpi-report.html
+
+**The Worst Part of a Wall Street Career May Be Coming to an End**\
+`Artificial intelligence tools can replace much of Wall Street’s entry-level white-collar work, raising tough questions about the future of finance.`\
+https://nytimes.com/2024/04/10/business/investment-banking-jobs-artificial-intelligence.html
+
+**Now Hiring: Sophisticated (but Part-Time) Chatbot Tutors**\
+`The human work of teaching A.I. is getting a lot more complex as the technology improves.`\
+https://nytimes.com/2024/04/10/technology/now-hiring-sophisticated-but-part-time-chatbot-tutors.html
+
 **Can Adriano Pedrosa Save the Venice Biennale? No Pressure.**\
 `Balancing diplomacy and geopolitics is hardly new for the first Biennale curator from Latin America. He isn’t scared to make a strong statement on contemporary art.`\
 https://nytimes.com/2024/04/10/arts/design/adriano-pedrosa-venice-biennale.html

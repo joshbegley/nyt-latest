@@ -1,3 +1,15 @@
+**Wall Street Shudders on Signs of Unexpectedly Strong Inflation**\
+`Stocks fell and bond yields jumped as investors reassessed when the Federal Reserve may begin cutting interest rates.`\
+https://nytimes.com/2024/04/10/business/stock-markets-inflation-cpi-report.html
+
+**The Worst Part of a Wall Street Career May Be Coming to an End**\
+`Artificial intelligence tools can replace much of Wall Street’s entry-level white-collar work, raising tough questions about the future of finance.`\
+https://nytimes.com/2024/04/10/business/investment-banking-jobs-artificial-intelligence.html
+
+**Now Hiring: Sophisticated (but Part-Time) Chatbot Tutors**\
+`The human work of teaching A.I. is getting a lot more complex as the technology improves.`\
+https://nytimes.com/2024/04/10/technology/now-hiring-sophisticated-but-part-time-chatbot-tutors.html
+
 **Can Adriano Pedrosa Save the Venice Biennale? No Pressure.**\
 `Balancing diplomacy and geopolitics is hardly new for the first Biennale curator from Latin America. He isn’t scared to make a strong statement on contemporary art.`\
 https://nytimes.com/2024/04/10/arts/design/adriano-pedrosa-venice-biennale.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/10/sports/golf/masters-bernhard-langer.html
 **The Five Players to Watch at the Masters**\
 `Among them are golfers who have won the event before and have a good chance to do it again.`\
 https://nytimes.com/2024/04/10/sports/golf/masters-players-scheffler-koepka.html
-
-**Track Will Be First Sport to Pay Olympic Gold Medalists**\
-`Winners in Paris will get $50,000 each from track and field’s governing body, as Olympic amateurism continues to fade away.`\
-https://nytimes.com/2024/04/10/sports/olympics/paris-olympics-track-field-prize-money.html
-
-**Energy prices rose in March.**\
-`By J. Edward Moreno`\
-https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/energy-prices-rose-in-march
-
-**A Hot Inflation Report Is a Blow to President Biden**\
-`The president’s approval ratings have been hurt by rapid inflation and rising interest rates.`\
-https://nytimes.com/2024/04/10/business/biden-inflation-cpi.html
 
