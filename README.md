@@ -1,3 +1,7 @@
+**Thursday Briefing: Japan’s Leader Visits Washington**\
+`Also, South Korean exit polls suggest a defeat for the president’s party.`\
+https://nytimes.com/2024/04/10/world/asia/japan-biden-visit-korea-polls-asia.html
+
 **Japan Gives Washington 250 Cherry Trees as Replacements**\
 `The trees will replace 140 that will be torn up as part of a restoration project. The capital’s first Japanese cherry trees were a gift from the mayor of Tokyo in 1912.`\
 https://nytimes.com/2024/04/10/us/politics/japan-us-cherry-trees.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/us/iowa-immigration-law.html
 **Biden welcomes more Gaza aid but says Israel has to do more to relieve suffering.**\
 `The president said he was “blunt and straightforward” with Prime Minister Benjamin Netanyahu of Israel but declined to say explicitly whether he would condition future U.S. arms shipments on the response.`\
 https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/biden-welcomes-more-gaza-aid-but-says-israel-has-to-do-more-to-relieve-suffering
-
-**Trump, Criticizing Arizona Abortion Ruling, Says He Wouldn’t Sign a Federal Ban if Elected**\
-`Days after he said that abortion policies should be left to the states, former President Donald J. Trump criticized an Arizona court ruling that upheld an 1864 law.`\
-https://nytimes.com/2024/04/10/us/politics/trump-arizona-abortion.html
 
