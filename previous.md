@@ -1,3 +1,7 @@
+**Police in Philadelphia Investigate Shooting at Eid Celebration**\
+`At least three people were shot and wounded at an outdoor event, where about 1,000 people were celebrating Eid al-Fitr in West Philadelphia, the police said.`\
+https://nytimes.com/video/us/100000009408187/philadelphia-shooting-eid.html
+
 **What Biden and Kishida Agreed To in Their Effort to Bolster Ties**\
 `As they look to contain an increasingly aggressive China, the United States and Japan announced dozens of new agreements, including on military, economic, climate and space matters.`\
 https://nytimes.com/2024/04/10/us/politics/biden-japan-agreements.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/us/politics/trump-jews-biden.html
 **Arizona Republicans Are in an Absolute Panic on Abortion**\
 `But they can’t run away from their records.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/arizona-republicans-abortion
-
-**Getting Dressed for the ‘Muslim Met Gala’**\
-`Hasan Minhaj and Ramy Youssef joined hundreds of Muslims dressed to the nines at a morning prayer gathering for the Eid al-Fitr holiday.`\
-https://nytimes.com/2024/04/10/style/eid-ramadan-fashion-washington-square-park.html
 
