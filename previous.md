@@ -1,3 +1,11 @@
+**Driven by China, Coal Plants Made a Comeback in 2023**\
+`The country, along with India, is still building power stations that run on coal. Elsewhere, retirements of older plants have slowed.`\
+https://nytimes.com/2024/04/10/climate/driven-by-china-coal-plants-made-a-comeback-in-2023.html
+
+**In Arizona, a Conservative Court Molded by a Republican Governor**\
+`Arizona’s former governor, Doug Ducey, expanded the court to seven justices. All solid conservatives, they upheld a 160-year-old abortion ban that presents a political risk to Republicans.`\
+https://nytimes.com/2024/04/10/us/arizona-abortion-supreme-court-judges.html
+
 **Police in Philadelphia Investigate Shooting at Eid Celebration**\
 `At least three people were shot and wounded at an outdoor event, where about 1,000 people were celebrating Eid al-Fitr in West Philadelphia, the police said.`\
 https://nytimes.com/video/us/100000009408187/philadelphia-shooting-eid.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/10/world/middleeast/ismail-haniyeh-hamas-israel-airs
 **13 Young Men Charged in Brooklyn Synagogue ‘Tunnel’ Melee**\
 `Some of the defendants are accused of breaking through a wall between an excavated space and the sanctuary, part of the headquarters of the Chabad-Lubavitch movement.`\
 https://nytimes.com/2024/04/10/nyregion/new-york-synagogue-tunnels.html
-
-**Trump Again Insults Jews Who Support Biden**\
-`Speaking to reporters in Atlanta on Wednesday, former President Donald J. Trump said that any Jew who “votes for Biden should have their head examined.”`\
-https://nytimes.com/2024/04/10/us/politics/trump-jews-biden.html
-
-**Arizona Republicans Are in an Absolute Panic on Abortion**\
-`But they can’t run away from their records.`\
-https://nytimes.com/live/2024/04/09/opinion/thepoint/arizona-republicans-abortion
 
