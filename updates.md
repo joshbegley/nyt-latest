@@ -1,3 +1,11 @@
+**Biden Says U.S. Is Considering Dropping Its Case Against Assange**\
+`The WikiLeaks founder has been held in London as he has battled extradition to the United States on charges related to his publication of classified documents.`\
+https://nytimes.com/2024/04/10/us/politics/julian-assange-prosecution.html
+
+**Arizona Republicans Thwart Attempts to Repeal 1864 Abortion Ban**\
+`Democrats in both houses of the Legislature were blocked from advancing bills to roll back a reinstated 160-year-old ban on nearly all abortions in the state.`\
+https://nytimes.com/2024/04/10/us/abortion-ban-arizona-democrats-repeal.html
+
 **Joining Texas, Iowa Enacts Law for State Immigration Enforcement**\
 `Gov. Kim Reynolds, a Republican, signed the bill on Wednesday and accused the Biden administration of failing to secure the border.`\
 https://nytimes.com/2024/04/10/us/iowa-immigration-law.html
