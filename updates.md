@@ -1,3 +1,11 @@
+**Gazans observe an austere Eid at-Fitr under the shadow of war.**\
+`By Remy Tumin`\
+https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/gazans-observe-an-austere-eid-at-fitr-under-the-shadow-of-war
+
+**Trump Makes His Third Try This Week to Delay Manhattan Trial**\
+`Donald J. Trump asked an appeals court — again — to stave off his prosecution on charges that he faked business records to cover up a sex scandal.`\
+https://nytimes.com/2024/04/10/nyregion/trump-trial-appeal-judge-merchan.html
+
 **Pat Zachry, Pitcher Known for a Lopsided Trade, Dies at 71**\
 `In 1977, the Mets dealt Tom Seaver, a future Hall of Fame pitcher, for what The Times called “four players of far less magnitude.” Zachry was one of them.`\
 https://nytimes.com/2024/04/10/sports/baseball/pat-zachry-pitcher-known-for-a-lopsided-trade-dies-at-71.html

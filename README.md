@@ -1,4 +1,4 @@
-**Gazans observe an austere Eid at-Fitr under the shadow of war.**\
+**Gazans observe an austere Eid at-Fitr in the shadow of war.**\
 `By Remy Tumin`\
 https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/gazans-observe-an-austere-eid-at-fitr-under-the-shadow-of-war
 
