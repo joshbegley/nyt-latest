@@ -1,3 +1,5 @@
+**Este pájaro es mitad macho, mitad hembra, y espectacular**\
+
 **Man Charged With Detonating Explosive Outside Alabama Attorney General’s Office**\
 `Kyle B. D. Calvert, 26, was indicted on charges of malicious use of an explosive and possession of an unregistered destructive device in connection with the detonation in February.`\
 https://nytimes.com/2024/04/10/us/explosive-alabama-attorney-general-office.html
