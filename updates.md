@@ -1,3 +1,11 @@
+**Wednesday Briefing**\
+`A landmark climate ruling in Europe.`\
+https://nytimes.com/2024/04/10/briefing/climate-europe-iran-west-bank.html
+
+**Israel: Cease-Fire, Get Hostages, Leave Gaza, Rethink Everything**\
+`Israel is at a strategic point in its war in Gaza and there is every indication that Benjamin Netanyahu is going to choose the wrong path.`\
+https://nytimes.com/2024/04/10/opinion/israel-hamas-gaza.html
+
 **Arizona Ruling Spurs Strong Reactions, but Election Impact Is Unclear**\
 `Some in the battleground state said they would still vote for former President Donald J. Trump even if they were frustrated by the reversal of abortion rights.`\
 https://nytimes.com/2024/04/10/us/arizona-voters-abortion-ruling.html
