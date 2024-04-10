@@ -6,7 +6,7 @@ https://nytimes.com/video/us/politics/100000009407179/biden-kishida-us-japan.htm
 `Readers discuss Boeing’s woes. Also: Arizona’s abortion ban; student loans; “nice” countries; “pro-humanity” protesters; caring about fish.`\
 https://nytimes.com/2024/04/10/opinion/boeing-airliner-safety.html
 
-**Liz Cheney was passed over for a medal. A board member quit, arguing they bowed to Trump.**\
+**Liz Cheney was passed over for a medal. A board member quit, arguing the group bowed to Trump.**\
 `David Hume Kennerly, a Pulitzer Prize-winning photographer, resigned from the board of the Gerald R. Ford Presidential Foundation over what he said was a snub.`\
 https://nytimes.com/live/2024/04/10/us/biden-trump-election/liz-cheney-trump-medal-gerald-ford-foundation
 
