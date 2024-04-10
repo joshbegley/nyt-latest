@@ -1,3 +1,7 @@
+**Track Will Be First Sport to Pay Olympic Gold Medalists**\
+`Winners in Paris will get $50,000 each from track and field’s governing body, as Olympic amateurism continues to fade away.`\
+https://nytimes.com/2024/04/10/sports/olympics/paris-olympics-track-field-prize-money.html
+
 **Energy prices rose in March.**\
 `By J. Edward Moreno`\
 https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/energy-prices-rose-in-march

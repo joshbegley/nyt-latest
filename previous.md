@@ -1,3 +1,7 @@
+**Track Will Be First Sport to Pay Olympic Gold Medalists**\
+`Winners in Paris will get $50,000 each from track and field’s governing body, as Olympic amateurism continues to fade away.`\
+https://nytimes.com/2024/04/10/sports/olympics/paris-olympics-track-field-prize-money.html
+
 **Energy prices rose in March.**\
 `By J. Edward Moreno`\
 https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/energy-prices-rose-in-march
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/opinion/schools-technology.html
 **Welcome, Vault Dwellers: A Guide to the Fallout Universe**\
 `The war-scarred ghouls and bulky power armor seen in three decades of video games arrive in the new TV show “Fallout.”`\
 https://nytimes.com/2024/04/10/arts/fallout-game-show.html
-
-**Was It Racist to Take Family Photos at a Wedding Without Me and My Wife?**\
-`A reader’s wife sees bigotry in their exclusion from group photos at a nephew’s wedding, but her husband is reluctant to write off his relatives for good.`\
-https://nytimes.com/2024/04/10/style/wedding-family-photo-exclusion.html
 
