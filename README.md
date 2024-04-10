@@ -1,3 +1,7 @@
+**Hawaii Locals Recommend Their Favorite Shave Ice Shops**\
+`Cups of flaky ice topped with flavored syrups are easy to find in the state. But the best shops set themselves apart with fresh ingredients and old-school charm.`\
+https://nytimes.com/2024/04/10/t-magazine/hawaii-shave-ice.html
+
 **Hong Kong Detains and Expels Journalism Advocate, Group Says**\
 `A representative of Reporters Without Borders was attempting to monitor the national security trial of a media tycoon, Jimmy Lai.`\
 https://nytimes.com/2024/04/10/world/asia/hong-kong-rsf-detain-expel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/business/stock-markets-inflation-cpi-report.html
 **The Worst Part of a Wall Street Career May Be Coming to an End**\
 `Artificial intelligence tools can replace much of Wall Street’s entry-level white-collar work, raising tough questions about the future of finance.`\
 https://nytimes.com/2024/04/10/business/investment-banking-jobs-artificial-intelligence.html
-
-**Now Hiring: Sophisticated (but Part-Time) Chatbot Tutors**\
-`The human work of teaching A.I. is getting a lot more complex as the technology improves.`\
-https://nytimes.com/2024/04/10/technology/ai-chatbot-training-chatgpt.html
 
