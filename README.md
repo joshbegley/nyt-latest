@@ -1,3 +1,7 @@
+**Croatia 2024 General Election: What to Know**\
+`A snap general election has left the country’s governing party exposed to an unexpectedly strong challenge from populist forces.`\
+https://nytimes.com/2024/04/10/world/europe/croatia-2024-general-election.html
+
 **The Politics of a Steel Deal Hangs Over Biden’s Japan Summit**\
 `The president’s effort to court voters in crucial swing states is influencing economic and trade policy, and worrying longstanding allies.`\
 https://nytimes.com/2024/04/10/business/dealbook/biden-japan-summit-nippon-steel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/podcasts/biden-japan-trump.html
 **He Wanted to Serve His Community in Gaza. He Paid With His Life.**\
 `The killing of foreign aid workers from World Central Kitchen brought international outrage. The death of their Palestinian driver drew less attention.`\
 https://nytimes.com/2024/04/10/world/middleeast/world-central-kitchen-gaza.html
-
-**Price of Gold, Seen as Hedge Against Inflation, Soars to New Heights**\
-`The move has puzzled Wall Street, as it comes as the outlook for the economy has improved and inflation has generally cooled.`\
-https://nytimes.com/2024/04/10/business/gold-price-inflation.html
 
