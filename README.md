@@ -1,3 +1,7 @@
+**Biden Hosts Japan’s Prime Minister at the White House**\
+`President Biden called the United States and Japan “the closest of friends” during a welcoming ceremony for Prime Minister Fumio Kishida.`\
+https://nytimes.com/video/us/politics/100000009407179/biden-kishida-us-japan.html
+
 **Fixing the Quality Problems at Boeing**\
 `Readers discuss Boeing’s woes. Also: Arizona’s abortion ban; student loans; “nice” countries; “pro-humanity” protesters; caring about fish.`\
 https://nytimes.com/2024/04/10/opinion/boeing-airliner-safety.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/world/americas/daniel-noboa-ecuador-mexico-foreig
 **Migration Overhaul in E.U. Clears Final Hurdle**\
 `Years in the making, the legislation is intended to update migration policy and cool anti-migrant sentiments ahead of E.U. elections in June.`\
 https://nytimes.com/2024/04/10/world/europe/european-union-migration-bill.html
-
-**The Next Frontier in New York’s War on Rats: Birth Control**\
-`A new City Council bill would deploy contraceptives in hopes of reducing the rat population and protecting wildlife, like Flaco the owl, from being poisoned.`\
-https://nytimes.com/2024/04/10/nyregion/nyc-rat-contraception-birth-control.html
 
