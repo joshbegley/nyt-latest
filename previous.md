@@ -1,3 +1,11 @@
+**Fixing the Quality Problems at Boeing**\
+`Readers discuss Boeing’s woes. Also: Arizona’s abortion ban; student loans; “nice” countries; “pro-humanity” protesters; caring about fish.`\
+https://nytimes.com/2024/04/10/opinion/boeing-airliner-safety.html
+
+**Liz Cheney was passed over for a medal. A board member quit, arguing they bowed to Trump.**\
+`David Hume Kennerly, a Pulitzer Prize-winning photographer, resigned from the board of the Gerald R. Ford Presidential Foundation over what he said was a snub.`\
+https://nytimes.com/live/2024/04/10/us/biden-trump-election/liz-cheney-trump-medal-gerald-ford-foundation
+
 **What’s in Our Queue? ‘Kleo’ and More**\
 `I’m a correspondent covering Germany, Austria and Switzerland. Here are five things I’ve been looking at, reading, watching and listening to.`\
 https://nytimes.com/interactive/2024/04/10/arts/editors-recommendations-kleo.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/10/world/europe/european-union-migration-bill.html
 **The Next Frontier in New York’s War on Rats: Birth Control**\
 `A new City Council bill would deploy contraceptives in hopes of reducing the rat population and protecting wildlife, like Flaco the owl, from being poisoned.`\
 https://nytimes.com/2024/04/10/nyregion/nyc-rat-contraception-birth-control.html
-
-**‘It’s Only Life After All’ Review: Indigo Girls Laugh Last**\
-`The director Alexandria Bombach benefited from the musician Amy Ray’s archivist instincts in this warm, compelling new documentary.`\
-https://nytimes.com/2024/04/10/movies/its-only-life-after-all-review.html
-
-**What to know about the surprisingly strong inflation report.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/what-to-know-about-the-unexpectedly-strong-inflation-report
 

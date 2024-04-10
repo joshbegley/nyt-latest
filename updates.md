@@ -1,3 +1,11 @@
+**Fixing the Quality Problems at Boeing**\
+`Readers discuss Boeing’s woes. Also: Arizona’s abortion ban; student loans; “nice” countries; “pro-humanity” protesters; caring about fish.`\
+https://nytimes.com/2024/04/10/opinion/boeing-airliner-safety.html
+
+**Liz Cheney was passed over for a medal. A board member quit, arguing they bowed to Trump.**\
+`David Hume Kennerly, a Pulitzer Prize-winning photographer, resigned from the board of the Gerald R. Ford Presidential Foundation over what he said was a snub.`\
+https://nytimes.com/live/2024/04/10/us/biden-trump-election/liz-cheney-trump-medal-gerald-ford-foundation
+
 **What’s in Our Queue? ‘Kleo’ and More**\
 `I’m a correspondent covering Germany, Austria and Switzerland. Here are five things I’ve been looking at, reading, watching and listening to.`\
 https://nytimes.com/interactive/2024/04/10/arts/editors-recommendations-kleo.html
