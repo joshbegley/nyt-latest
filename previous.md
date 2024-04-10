@@ -1,3 +1,7 @@
+**Man Sentenced to 30 Years in Fatal Shooting of 14-Year-Old**\
+`Aamir Griffin was killed on a Queens basketball court in 2019 when Sean Brown, then 16, mistook him for a rival gang member.`\
+https://nytimes.com/2024/04/10/nyregion/queens-shooting-teen-basketball-court.html
+
 **Severe Weather Slams Gulf Coast States**\
 `Several cities faced torrential rain and tornado threats as a powerful storm system moved across the South.`\
 https://nytimes.com/video/us/100000009407050/south-storm-floods-tornado.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/t-magazine/ellen-gallagher-stedelijk-museum.html
 **Did You Really Need to Be There to See It?**\
 `Trying to capture the eclipse on a cloudy day in Image City.`\
 https://nytimes.com/2024/04/10/arts/eclipse-rochester-new-york.html
-
-**What War by A.I. Actually Looks Like**\
-`The Israel Defense Forces’ offensive in Gaza is an ominous hint of the military future`\
-https://nytimes.com/2024/04/10/opinion/war-ai-israel-gaza-ukraine.html
 

@@ -1,3 +1,7 @@
+**Man Sentenced to 30 Years in Fatal Shooting of 14-Year-Old**\
+`Aamir Griffin was killed on a Queens basketball court in 2019 when Sean Brown, then 16, mistook him for a rival gang member.`\
+https://nytimes.com/2024/04/10/nyregion/queens-shooting-teen-basketball-court.html
+
 **Severe Weather Slams Gulf Coast States**\
 `Several cities faced torrential rain and tornado threats as a powerful storm system moved across the South.`\
 https://nytimes.com/video/us/100000009407050/south-storm-floods-tornado.html
