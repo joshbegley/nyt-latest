@@ -1,3 +1,7 @@
+**U.S. Postal Service Proposes Raising Stamp Prices Again**\
+`If a regulatory body approves, a nearly 8 percent rise in postage will take effect in July. It would be the latest of several price hikes since 2021.`\
+https://nytimes.com/2024/04/10/us/postal-service-stamp-price-increase.html
+
 **Wednesday Briefing**\
 `A landmark climate ruling in Europe.`\
 https://nytimes.com/2024/04/10/briefing/climate-europe-iran-west-bank.html
