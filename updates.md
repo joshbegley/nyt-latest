@@ -1,3 +1,11 @@
+**What Biden and Kishida Agreed To in Their Effort to Bolster Ties**\
+`As they look to contain an increasingly aggressive China, the United States and Japan announced dozens of new agreements, including on military, economic, climate and space matters.`\
+https://nytimes.com/2024/04/10/us/politics/biden-japan-agreements.html
+
+**Two Imperfect Messengers Take On Abortion**\
+`Neither side of the abortion divide would probably design the exact candidate they have in 2024.`\
+https://nytimes.com/2024/04/10/us/politics/two-imperfect-messengers-take-on-abortion.html
+
 **Mister Cee, Pioneering Brooklyn D.J., Dies at 57**\
 `Born Calvin Lebrun, Mister Cee was a pioneer in New York City’s hip-hop scene and helped boost the career of the Notorious B.I.G.`\
 https://nytimes.com/2024/04/10/arts/music/mister-cee-dj-dead.html
