@@ -1,3 +1,7 @@
+**Trump’s Ex-Finance Chief Is Sentenced to 5 Months in Rikers for Perjury**\
+`Allen H. Weisselberg admitted that he had lied about helping Donald J. Trump inflate his net worth to win favorable loan terms.`\
+https://nytimes.com/2024/04/10/nyregion/allen-weisselberg-sentenced-trump.html
+
 **Kari Lake Called Arizona’s Abortion Ban a ‘Great Law,’ but Now She Denounces It**\
 `In her 2022 race for governor, Ms. Lake delivered a strict anti-abortion message. Now running for Senate, she is retreating from that position.`\
 https://nytimes.com/2024/04/10/us/politics/kari-lake-abortion-arizona.html
