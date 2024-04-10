@@ -1,3 +1,5 @@
+**Son símbolos nacionales, pero cada vez hay menos en sus países**\
+
 **Biden Pulls Closer to Japan to Counter China**\
 `Also, inflation remained higher than expected. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/04/10/briefing/biden-japan-state-visit-inflation-report.html
