@@ -1,3 +1,7 @@
+**Hawaii Locals Recommend Their Favorite Shave Ice Shops**\
+`Cups of flaky ice topped with flavored syrups are easy to find in the state. But the best shops set themselves apart with fresh ingredients and old-school charm.`\
+https://nytimes.com/2024/04/10/t-magazine/hawaii-shave-ice.html
+
 **Hong Kong Detains and Expels Journalism Advocate, Group Says**\
 `A representative of Reporters Without Borders was attempting to monitor the national security trial of a media tycoon, Jimmy Lai.`\
 https://nytimes.com/2024/04/10/world/asia/hong-kong-rsf-detain-expel.html
