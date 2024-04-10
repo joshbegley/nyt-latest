@@ -1,3 +1,11 @@
+**At Least 3 Injured in Shooting at Philadelphia Eid Celebration**\
+`The shooting took place on Wednesday afternoon in West Philadelphia, where 1,000 people were gathered to mark the end of Ramadan.`\
+https://nytimes.com/2024/04/10/us/shooting-eid-philadelphia.html
+
+**Johnson to Join Trump at Mar-a-Lago for ‘Election Integrity’ Announcement**\
+`The meeting comes at an awkward moment in the relationship between the speaker and the former president, who are at cross purposes on an intelligence bill and Ukraine.`\
+https://nytimes.com/2024/04/10/us/politics/mike-johnson-trump.html
+
 **Student Aid Woes Stalk Education Secretary in Appearance on Capitol Hill**\
 `In two hearings, House lawmakers scrutinized Miguel Cardona’s record over persistent problems with the new FAFSA form.`\
 https://nytimes.com/2024/04/10/us/politics/miguel-cardona-fafsa-form.html
