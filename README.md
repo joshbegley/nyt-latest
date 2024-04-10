@@ -1,3 +1,19 @@
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/10/crosswords/wordle-review.html
+
+**In Trump’s Criminal Trial, These Are the Jurors Each Side Wants**\
+`Prosecutors in Donald Trump’s Manhattan trial may prefer jurors who watch MSNBC and are highly educated. Defense lawyers may favor police officers and sanitation workers.`\
+https://nytimes.com/2024/04/10/nyregion/trump-jury-hush-money-trial.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/10/crosswords/spelling-bee-forum.html
+
+**Movie Memorabilia**\
+`What prop from a movie would you most like to own?`\
+https://nytimes.com/2024/04/10/learning/movie-memorabilia.html
+
 **A Soccer Team Stopped Charging for Tickets. Should Others Do the Same?**\
 `When Paris F.C. made its tickets free, it began an experiment into the connection between fans and teams, and posed a question about the value of big crowds to televised sports.`\
 https://nytimes.com/2024/04/10/world/europe/paris-fc-free-tickets-soccer.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/10/briefing/climate-europe-iran-west-bank.html
 **Israel: Cease-Fire, Get Hostages, Leave Gaza, Rethink Everything**\
 `Israel is at a strategic point in its war in Gaza and there is every indication that Benjamin Netanyahu is going to choose the wrong path.`\
 https://nytimes.com/2024/04/10/opinion/israel-hamas-gaza.html
-
-**Arizona Ruling Spurs Strong Reactions, but Election Impact Is Unclear**\
-`Some in the battleground state said they would still vote for former President Donald J. Trump even if they were frustrated by the reversal of abortion rights.`\
-https://nytimes.com/2024/04/10/us/arizona-voters-abortion-ruling.html
-
-**Corrections: April 10, 2024**\
-`Corrections that appeared in print on Wednesday, April 10, 2024.`\
-https://nytimes.com/2024/04/09/corrections/corrections-april-10-2024.html
-
-**Quotation of the Day: Wonder at the Eclipse, and a Moment of Unity**\
-`Quotation of the Day for Wednesday, April 10, 2024.`\
-https://nytimes.com/2024/04/09/pageoneplus/quotation-of-the-day-wonder-at-the-eclipse-and-a-moment-of-unity.html
-
-**Biden’s State Dinner for Japan to Feature Paul Simon and Celebrate Spring**\
-`An elevated California roll and steak with sesame sabayon will be among the dishes presented to Prime Minister Fumio Kishida of Japan at the state dinner on Wednesday.`\
-https://nytimes.com/2024/04/09/us/politics/biden-state-dinner-japan.html
 
