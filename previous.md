@@ -1,3 +1,7 @@
+**The History Behind Arizona’s 160-Year-Old Abortion Ban**\
+`The state’s Supreme Court ruled that the 1864 law is enforceable today. Here is what led to its enactment.`\
+https://nytimes.com/2024/04/10/health/arizona-abortion-ban-history.html
+
 **Bernhard Langer, a Masters Stalwart for 40 Years, Sits This One Out**\
 `He first played in the tournament in 1982 and has won it twice, but a pickleball injury, of all things, has him sidelined.`\
 https://nytimes.com/2024/04/10/sports/golf/masters-bernhard-langer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/nyregion/allen-weisselberg-sentenced-trump.html
 **Kari Lake Called Arizona’s Abortion Ban a ‘Great Law,’ but Now She Denounces It**\
 `In her 2022 race for governor, Ms. Lake delivered a strict anti-abortion message. Now running for Senate, she is retreating from that position.`\
 https://nytimes.com/2024/04/10/us/politics/kari-lake-abortion-arizona.html
-
-**Housing costs continued to rise faster than before the pandemic.**\
-`By Ben Casselman`\
-https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/housing-costs-continued-to-rise-faster-than-before-the-pandemic
 

@@ -1,3 +1,7 @@
+**The History Behind Arizona’s 160-Year-Old Abortion Ban**\
+`The state’s Supreme Court ruled that the 1864 law is enforceable today. Here is what led to its enactment.`\
+https://nytimes.com/2024/04/10/health/arizona-abortion-ban-history.html
+
 **Bernhard Langer, a Masters Stalwart for 40 Years, Sits This One Out**\
 `He first played in the tournament in 1982 and has won it twice, but a pickleball injury, of all things, has him sidelined.`\
 https://nytimes.com/2024/04/10/sports/golf/masters-bernhard-langer.html
