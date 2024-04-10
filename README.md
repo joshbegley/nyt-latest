@@ -1,3 +1,7 @@
+**Which Countries Are the Biggest Suppliers to Israel’s Military?**\
+`Some governments that sell weapons to Israel — a list that is topped by the United States and Germany — are facing legal challenges and protests over those exports.`\
+https://nytimes.com/2024/04/10/world/middleeast/israel-weapons-suppliers-us-germany-italy.html
+
 **Croatia 2024 General Election: What to Know**\
 `A snap general election has left the country’s governing party exposed to an unexpectedly strong challenge from populist forces.`\
 https://nytimes.com/2024/04/10/world/europe/croatia-2024-general-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/podcasts/the-daily/trump-abortion.html
 **Arizona’s 1864 Abortion Law, and New Boeing Allegations**\
 `Plus, the fight against “forever chemicals.”`\
 https://nytimes.com/2024/04/10/podcasts/biden-japan-trump.html
-
-**He Wanted to Serve His Community in Gaza. He Paid With His Life.**\
-`The killing of foreign aid workers from World Central Kitchen brought international outrage. The death of their Palestinian driver drew less attention.`\
-https://nytimes.com/2024/04/10/world/middleeast/world-central-kitchen-gaza.html
 
