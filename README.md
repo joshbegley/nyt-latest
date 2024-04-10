@@ -24,7 +24,7 @@ https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/biden-welco
 
 **Trump, criticizing Arizona abortion ruling, says he wouldn’t sign a federal ban if elected.**\
 `By Michael Gold`\
-https://nytimes.com/live/2024/04/10/us/biden-trump-election/trump-criticizing-arizona-abortion-ruling-says-he-wouldnt-sign-a-federal-ban-if-elected
+https://nytimes.com/2024/04/10/us/politics/trump-arizona-abortion.html
 
 **Ellen Gallagher’s Futuristic Archives**\
 `The artist discusses marine life and African American myth from her studio in the Netherlands.`\
