@@ -1,3 +1,7 @@
+**Trump Again Insults Jews Who Support Biden**\
+`Speaking to reporters in Atlanta on Wednesday, former President Donald J. Trump said that any Jew who “votes for Biden should have their head examined.”`\
+https://nytimes.com/2024/04/10/us/politics/trump-jews-biden.html
+
 **Arizona Republicans Are in an Absolute Panic on Abortion**\
 `But they can’t run away from their records.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/arizona-republicans-abortion
