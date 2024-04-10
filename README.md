@@ -6,8 +6,8 @@ https://nytimes.com/2024/04/10/world/asia/japan-biden-visit-korea-polls-asia.htm
 `The trees will replace 140 that will be torn up as part of a restoration project. The capital’s first Japanese cherry trees were a gift from the mayor of Tokyo in 1912.`\
 https://nytimes.com/2024/04/10/us/politics/japan-us-cherry-trees.html
 
-**Student Aid Woes Stalk Cardona During Appearance on Capitol Hill**\
-`In two hearings, House lawmakers scrutinized Education Secretary Miguel Cardona’s record over persistent problems with the new FAFSA form.`\
+**Student Aid Woes Stalk Education Secretary in Appearance on Capitol Hill**\
+`In two hearings, House lawmakers scrutinized Miguel Cardona’s record over persistent problems with the new FAFSA form.`\
 https://nytimes.com/2024/04/10/us/politics/miguel-cardona-fafsa-form.html
 
 **Man Sentenced to 30 Years in Fatal Shooting of 14-Year-Old**\
