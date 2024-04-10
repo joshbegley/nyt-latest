@@ -1,3 +1,7 @@
+**New York Is Winding Down Contract With Migrant Services Operator**\
+`DocGo, which has a $432 million contract with the city, faced allegations of providing migrants with false papers, wasting food and hiring unlicensed security guards.`\
+https://nytimes.com/2024/04/09/nyregion/docgo-migrants-services-nyc.html
+
 **What We Know About the Arizona Abortion Ban**\
 `The state’s highest court reinstated an 1864 law that bans nearly all abortions. Here’s what to know about the ruling.`\
 https://nytimes.com/article/arizona-abortion-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/09/us/biden-trump-election/alabama-is-the-secon
 **Nadine Menendez Reveals ‘Serious Medical’ Issue and Asks for Trial Delay**\
 `Ms. Menendez, the wife of Senator Robert Menendez, needs surgery, leaving her unable to prepare for a May 6 trial on bribery charges, her lawyers said.`\
 https://nytimes.com/2024/04/09/nyregion/nadine-menendez-trial-delay.html
-
-**England Limits Youth Gender Medications, Part of Big Shift in Europe**\
-`Five European countries have recently restricted hormone treatments for adolescents with gender distress. They have not banned the care, unlike many U.S. states.`\
-https://nytimes.com/2024/04/09/health/europe-transgender-youth-hormone-treatments.html
 
