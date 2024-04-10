@@ -1,3 +1,7 @@
+**Stephen Colbert Mocks Trump’s Failed Bid to Delay Hush-Money Trial**\
+`Colbert said Donald Trump’s lawyers wanted “an impartial jury who knew nothing about the events in America over the last nine years.”`\
+https://nytimes.com/2024/04/10/arts/television/colbert-trump-criminal-trial.html
+
 **Rescue Dog Finds Body After Taiwan Quake**\
 `Roger, a Labrador retriever with the Kaohsiung Fire Department, helped rescuers search an area near a popular hiking trail in Hualien County.`\
 https://nytimes.com/video/world/asia/100000009406418/taiwan-quake-rescue-dog-roger.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/crosswords/spelling-bee-forum.html
 **Movie Memorabilia**\
 `What prop from a movie would you most like to own?`\
 https://nytimes.com/2024/04/10/learning/movie-memorabilia.html
-
-**A Soccer Team Stopped Charging for Tickets. Should Others Do the Same?**\
-`When Paris F.C. made its tickets free, it began an experiment into the connection between fans and teams, and posed a question about the value of big crowds to televised sports.`\
-https://nytimes.com/2024/04/10/world/europe/paris-fc-free-tickets-soccer.html
 
