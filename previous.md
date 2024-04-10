@@ -1,3 +1,7 @@
+**Trump Criticizes Arizona Abortion Ban**\
+`During a campaign stop in Atlanta, former President Donald J. Trump said that the Arizona abortion ruling went too far, adding that it will be “straightened out.”`\
+https://nytimes.com/video/us/elections/100000009407394/trump-abortion-arizona.html
+
 **An Oil Company Is Trespassing on Tribal Land in Wisconsin, Justice Dept. Says**\
 `Department lawyers said in a brief that Enbridge, a Canadian company, “lacks any legal right” to operate its Line 5 pipeline on reservation territory.`\
 https://nytimes.com/2024/04/10/climate/line-five-pipeline-amicus-brief.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/sports/golf/masters-tournament-invitation-augusta
 **Did a Politician Ruin a Trendy Shoe?**\
 `Photos of Britain’s prime minister wearing Adidas Sambas briefly united a nation.`\
 https://nytimes.com/2024/04/10/style/rishi-sunak-adidas-sambas.html
-
-**Why Does Inflation Persist? Nobody Knows for Sure.**\
-`The usual economic theories have trouble explaining price changes.`\
-https://nytimes.com/live/2024/04/09/opinion/thepoint/inflation-report-mystery
 

@@ -1,3 +1,7 @@
+**Trump Criticizes Arizona Abortion Ban**\
+`During a campaign stop in Atlanta, former President Donald J. Trump said that the Arizona abortion ruling went too far, adding that it will be “straightened out.”`\
+https://nytimes.com/video/us/elections/100000009407394/trump-abortion-arizona.html
+
 **An Oil Company Is Trespassing on Tribal Land in Wisconsin, Justice Dept. Says**\
 `Department lawyers said in a brief that Enbridge, a Canadian company, “lacks any legal right” to operate its Line 5 pipeline on reservation territory.`\
 https://nytimes.com/2024/04/10/climate/line-five-pipeline-amicus-brief.html
