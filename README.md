@@ -1,3 +1,7 @@
+**Nijole Sadunaite, Lithuanian Nun Who Opposed Soviet Rule, Dies at 85**\
+`A dissident who promoted democracy and religious freedom, she was arrested by the K.G.B. After independence from Moscow, she was honored by Lithuania’s Parliament.`\
+https://nytimes.com/2024/04/10/world/europe/nijole-sadunaite-dead.html
+
 **Explosion at Hydroelectric Plant in Italy Kills at Least 3**\
 `Emergency workers were searching for four other workers who were missing after the blast in northern Italy, which has galvanized unions in the region.`\
 https://nytimes.com/2024/04/10/world/europe/italy-explosion-hydroelectric-plant.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009407394/trump-abortion-arizona.ht
 **An Oil Company Is Trespassing on Tribal Land in Wisconsin, Justice Dept. Says**\
 `Department lawyers said in a brief that Enbridge, a Canadian company, “lacks any legal right” to operate its Line 5 pipeline on reservation territory.`\
 https://nytimes.com/2024/04/10/climate/line-five-pipeline-amicus-brief.html
-
-**Floods Batter Russia and Kazakhstan, Forcing Tens of Thousands to Evacuate**\
-`More than 100,000 people had to leave their homes after spring floods engulfed cities and villages in vast sections of neighboring countries.`\
-https://nytimes.com/2024/04/10/world/europe/floods-russia-kazakhstan-evacuations.html
 
