@@ -1,3 +1,15 @@
+**As Speaker, Johnson Advances What He Once Opposed, Enraging the Right**\
+`Now that he is the leader, the Louisiana Republican has found himself bowing to governing realities that are now his problem.`\
+https://nytimes.com/2024/04/10/world/europe/as-speaker-johnson-advances-what-he-once-opposed-enraging-the-right.html
+
+**How Far Would You Push Yourself Physically to Meet a Goal?**\
+`What is the most ambitious thing you have ever done athletically? Was it worth it?`\
+https://nytimes.com/2024/04/10/learning/how-far-would-you-push-yourself-physically-to-meet-a-goal.html
+
+**The Connections Companion No. 304**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/10/crosswords/connections-companion.html
+
 **Today’s Wordle Review**\
 `In case you need some puzzle help.`\
 https://nytimes.com/2024/04/10/crosswords/wordle-review.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/10/business/warcraft-returns-china-blizzard-netease.
 **Word of the Day: prowess**\
 `This word has appeared in 222 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/10/learning/word-of-the-day-prowess.html
-
-**U.S. Postal Service Proposes Raising Stamp Prices Again**\
-`If a regulatory body approves, a nearly 8 percent rise in postage will take effect in July. It would be the latest of several price hikes since 2021.`\
-https://nytimes.com/2024/04/10/us/postal-service-stamp-price-increase.html
-
-**Wednesday Briefing**\
-`A landmark climate ruling in Europe.`\
-https://nytimes.com/2024/04/10/briefing/climate-europe-iran-west-bank.html
-
-**Israel: Cease-Fire, Get Hostages, Leave Gaza, Rethink Everything**\
-`Israel is at a strategic point in its war in Gaza and there is every indication that Benjamin Netanyahu is going to choose the wrong path.`\
-https://nytimes.com/2024/04/10/opinion/israel-hamas-gaza.html
 
