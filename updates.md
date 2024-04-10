@@ -1,3 +1,7 @@
+**Arizona Ruling Spurs Strong Reactions, but Election Impact Is Unclear**\
+`Some in the battleground state said they would still vote for former President Donald J. Trump even if they were frustrated by the reversal of abortion rights.`\
+https://nytimes.com/2024/04/10/us/arizona-voters-abortion-ruling.html
+
 **Corrections: April 10, 2024**\
 `Corrections that appeared in print on Wednesday, April 10, 2024.`\
 https://nytimes.com/2024/04/09/corrections/corrections-april-10-2024.html
