@@ -1,6 +1,6 @@
-**The hot inflation report is a blow to President Biden.**\
-`By Jim Tankersley`\
-https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/the-hot-inflation-report-is-a-blow-to-president-biden
+**A Hot Inflation Report Is a Blow to President Biden**\
+`The president’s approval ratings have been hurt by rapid inflation and rising interest rates.`\
+https://nytimes.com/2024/04/10/business/biden-inflation-cpi.html
 
 **Navigating a Virtual Australia in Postapocalyptic Ruins**\
 `The role-playing game Broken Roads takes its environment seriously. The Aussie slang, the reddish outback soil, even the ruffling of emu feathers provide authenticity.`\
