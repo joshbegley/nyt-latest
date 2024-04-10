@@ -1,3 +1,11 @@
+**What We Know About the Arizona Abortion Ban**\
+`The state’s highest court reinstated an 1864 law that bans nearly all abortions. Here’s what to know about the ruling.`\
+https://nytimes.com/article/arizona-abortion-ban.html
+
+**Judge Blocks Trump’s Lawyers From Naming Witnesses in Documents Case**\
+`The special counsel had asked that the names of about two dozen government witnesses be redacted from a public version of a court filing to protect against potential threats or harassment.`\
+https://nytimes.com/2024/04/09/us/politics/trump-documents-witnesses.html
+
 **Former Correction Officers and Rikers Employees Charged With Corruption**\
 `Federal prosecutors said the defendants accepted bribes and smuggled in contraband, including drugs, for detainees at the troubled New York City jail.`\
 https://nytimes.com/2024/04/09/nyregion/rikers-corruption-charges-contraband.html
