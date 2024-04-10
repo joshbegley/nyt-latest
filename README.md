@@ -1,3 +1,7 @@
+**Housing costs continued to rise faster than before the pandemic.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/housing-costs-continued-to-rise-faster-than-before-the-pandemic
+
 **Welcome, Vault Dwellers: A Guide to the Fallout Universe**\
 `The war-scarred ghouls and bulky power armor seen in three decades of video games arrive in the new TV show “Fallout.”`\
 https://nytimes.com/2024/04/10/arts/welcome-vault-dwellers-a-guide-to-the-fallout-universe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/world/europe/croatia-2024-general-election.html
 **The Politics of a Steel Deal Hangs Over Biden’s Japan Summit**\
 `The president’s effort to court voters in crucial swing states is influencing economic and trade policy, and worrying longstanding allies.`\
 https://nytimes.com/2024/04/10/business/dealbook/biden-japan-summit-nippon-steel.html
-
-**K-Pop Group Asks U.S. Court for Help Finding YouTube User in Defamation Case**\
-`The request by NewJeans is the latest effort by the K-pop industry in its struggle to stem rumors on platforms based outside South Korea.`\
-https://nytimes.com/2024/04/10/arts/music/newjeans-kpop-youtube-defamation-lawsuit.html
 

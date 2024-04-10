@@ -1,3 +1,23 @@
+**Welcome, Vault Dwellers: A Guide to the Fallout Universe**\
+`The war-scarred ghouls and bulky power armor seen in three decades of video games arrive in the new TV show “Fallout.”`\
+https://nytimes.com/2024/04/10/arts/welcome-vault-dwellers-a-guide-to-the-fallout-universe.html
+
+**Get Tech Out of the Classroom Before It’s Too Late**\
+`The ubiquity of screens is bad for teachers, students and society.`\
+https://nytimes.com/2024/04/10/opinion/schools-technology.html
+
+**Was It Racist to Take Family Photos at a Wedding Without Me and My Wife?**\
+`A reader’s wife sees bigotry in their exclusion from group photos at a nephew’s wedding, but her husband is reluctant to write off his relatives for good.`\
+https://nytimes.com/2024/04/10/style/wedding-family-photo-exclusion.html
+
+**A Makeover for a Beloved Tourist Destination**\
+`Visitors make Hollywood Boulevard one of their first stops in Los Angeles. But when they arrive, the reality may not match the fantasy.`\
+https://nytimes.com/2024/04/10/us/hollywood-boulevard-makeover.html
+
+**Food inflation remained relatively unchanged in March.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/food-inflation-remained-relatively-unchanged-in-march
+
 **A Reverse Art Heist? Museum Finds Employee’s Painting on Its Wall**\
 `The Pinakothek der Moderne in Munich said it had fired a worker for hanging one of his own pieces in its modern art collection.`\
 https://nytimes.com/2024/04/10/world/europe/germany-painting-museum.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/04/10/business/dealbook/biden-japan-summit-nippon-steel
 **K-Pop Group Asks U.S. Court for Help Finding YouTube User in Defamation Case**\
 `The request by NewJeans is the latest effort by the K-pop industry in its struggle to stem rumors on platforms based outside South Korea.`\
 https://nytimes.com/2024/04/10/arts/music/newjeans-kpop-youtube-defamation-lawsuit.html
-
-**Biden Says Netanyahu Is Making ‘a Mistake’ in Gaza**\
-`In an interview recorded last week, the president said again that an Israeli strike on aid workers in Gaza was an outrage.`\
-https://nytimes.com/2024/04/10/world/middleeast/biden-netanyahu-gaza-mistake-univision.html
-
-**Roger, a Failed Drug Dog, Becomes a Hero of Taiwan’s Quake Response**\
-`The 8-year-old rescue dog, who was once deemed too friendly to sniff out drugs, found the body of the earthquake’s 13th victim.`\
-https://nytimes.com/2024/04/10/world/asia/taiwan-earthquake-rescue-dog-roger.html
-
-**Abortion Politics in 2024**\
-`Four key points to help you make sense of the current debate.`\
-https://nytimes.com/2024/04/10/briefing/abortion-democrats-republicans-arizona.html
-
-**What’s behind the recent rise in oil prices.**\
-`By Stanley Reed`\
-https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/whats-behind-the-recent-rise-in-oil-prices
-
-**Trump’s About-Face on Abortion**\
-`After months of mixed signals, the former president said abortion rights should be left to the states.`\
-https://nytimes.com/2024/04/10/podcasts/the-daily/trump-abortion.html
 

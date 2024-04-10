@@ -1,3 +1,23 @@
+**Welcome, Vault Dwellers: A Guide to the Fallout Universe**\
+`The war-scarred ghouls and bulky power armor seen in three decades of video games arrive in the new TV show “Fallout.”`\
+https://nytimes.com/2024/04/10/arts/welcome-vault-dwellers-a-guide-to-the-fallout-universe.html
+
+**Get Tech Out of the Classroom Before It’s Too Late**\
+`The ubiquity of screens is bad for teachers, students and society.`\
+https://nytimes.com/2024/04/10/opinion/schools-technology.html
+
+**Was It Racist to Take Family Photos at a Wedding Without Me and My Wife?**\
+`A reader’s wife sees bigotry in their exclusion from group photos at a nephew’s wedding, but her husband is reluctant to write off his relatives for good.`\
+https://nytimes.com/2024/04/10/style/wedding-family-photo-exclusion.html
+
+**A Makeover for a Beloved Tourist Destination**\
+`Visitors make Hollywood Boulevard one of their first stops in Los Angeles. But when they arrive, the reality may not match the fantasy.`\
+https://nytimes.com/2024/04/10/us/hollywood-boulevard-makeover.html
+
+**Food inflation remained relatively unchanged in March.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/food-inflation-remained-relatively-unchanged-in-march
+
 **A Reverse Art Heist? Museum Finds Employee’s Painting on Its Wall**\
 `The Pinakothek der Moderne in Munich said it had fired a worker for hanging one of his own pieces in its modern art collection.`\
 https://nytimes.com/2024/04/10/world/europe/germany-painting-museum.html
