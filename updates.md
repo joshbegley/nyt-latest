@@ -1,3 +1,11 @@
+**Corrections: April 10, 2024**\
+`Corrections that appeared in print on Wednesday, April 10, 2024.`\
+https://nytimes.com/2024/04/09/corrections/corrections-april-10-2024.html
+
+**Quotation of the Day: Wonder at the Eclipse, and a Moment of Unity**\
+`Quotation of the Day for Wednesday, April 10, 2024.`\
+https://nytimes.com/2024/04/09/pageoneplus/quotation-of-the-day-wonder-at-the-eclipse-and-a-moment-of-unity.html
+
 **Biden’s State Dinner for Japan to Feature Paul Simon and Celebrate Spring**\
 `An elevated California roll and steak with sesame sabayon will be among the dishes presented to Prime Minister Fumio Kishida of Japan at the state dinner on Wednesday.`\
 https://nytimes.com/2024/04/09/us/politics/biden-state-dinner-japan.html

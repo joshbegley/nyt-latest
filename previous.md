@@ -1,3 +1,11 @@
+**Corrections: April 10, 2024**\
+`Corrections that appeared in print on Wednesday, April 10, 2024.`\
+https://nytimes.com/2024/04/09/corrections/corrections-april-10-2024.html
+
+**Quotation of the Day: Wonder at the Eclipse, and a Moment of Unity**\
+`Quotation of the Day for Wednesday, April 10, 2024.`\
+https://nytimes.com/2024/04/09/pageoneplus/quotation-of-the-day-wonder-at-the-eclipse-and-a-moment-of-unity.html
+
 **Biden’s State Dinner for Japan to Feature Paul Simon and Celebrate Spring**\
 `An elevated California roll and steak with sesame sabayon will be among the dishes presented to Prime Minister Fumio Kishida of Japan at the state dinner on Wednesday.`\
 https://nytimes.com/2024/04/09/us/politics/biden-state-dinner-japan.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/09/nyregion/rikers-corruption-charges-contraband.htm
 **Ex-Assistant Principal at School Where 6-Year-Old Shot Teacher Is Indicted**\
 `A former administrator at Richneck Elementary School in Newport News, Va., where a first-grade teacher was shot last year, has been charged with eight counts of child abuse and neglect.`\
 https://nytimes.com/2024/04/09/us/richneck-elementary-assistant-principal-indicted-shooting.html
-
-**Ancient Foxes Lived and Died Alongside Humans**\
-`Extinct foxes and other animals were an important part of early South American communities, a new study has found.`\
-https://nytimes.com/2024/04/09/science/fox-remains-south-america-patagonia.html
-
-**‘Brandy Hellville & the Cult of Fast Fashion’: 5 Takeaways**\
-`Former employees of the brand, a Gen Z fashion favorite, recount race and size discrimination in a new documentary on HBO.`\
-https://nytimes.com/2024/04/09/style/brandy-melville-hbo-documentary.html
 
