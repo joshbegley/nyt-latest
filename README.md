@@ -1,3 +1,11 @@
+**Did You Really Need to Be There to See It?**\
+`Trying to capture the eclipse on a cloudy day in Image City.`\
+https://nytimes.com/2024/04/10/arts/eclipse-rochester-new-york.html
+
+**What War by A.I. Actually Looks Like**\
+`The Israel Defense Forces’ offensive in Gaza is an ominous hint of the military future`\
+https://nytimes.com/2024/04/10/opinion/war-ai-israel-gaza-ukraine.html
+
 **Nijole Sadunaite, Lithuanian Nun Who Opposed Soviet Rule, Dies at 85**\
 `A dissident who promoted democracy and religious freedom, she was arrested by the K.G.B. After independence from Moscow, she was honored by Lithuania’s Parliament.`\
 https://nytimes.com/2024/04/10/world/europe/nijole-sadunaite-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/10/sports/baseball/pat-zachry-pitcher-known-for-a-lo
 **Jacob Zuma, South Africa’s Scandal-Ridden Ex-President, Is Running Again**\
 `The 81-year-old former leader has been cleared to appear on the ballot as an opposition candidate in May’s parliamentary election. Unless the decision is reversed, he could become a kingmaker — or even president once again.`\
 https://nytimes.com/2024/04/10/world/africa/south-africa-jacob-zuma-election.html
-
-**Trump Criticizes Arizona Abortion Ban**\
-`During a campaign stop in Atlanta, former President Donald J. Trump said that the Arizona abortion ruling went too far, adding that it will be “straightened out.”`\
-https://nytimes.com/video/us/elections/100000009407394/trump-abortion-arizona.html
-
-**An Oil Company Is Trespassing on Tribal Land in Wisconsin, Justice Dept. Says**\
-`Department lawyers said in a brief that Enbridge, a Canadian company, “lacks any legal right” to operate its Line 5 pipeline on reservation territory.`\
-https://nytimes.com/2024/04/10/climate/line-five-pipeline-amicus-brief.html
 
