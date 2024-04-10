@@ -1,3 +1,7 @@
+**Energy prices rose in March.**\
+`By J. Edward Moreno`\
+https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/energy-prices-rose-in-march
+
 **A Hot Inflation Report Is a Blow to President Biden**\
 `The president’s approval ratings have been hurt by rapid inflation and rising interest rates.`\
 https://nytimes.com/2024/04/10/business/biden-inflation-cpi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/arts/fallout-game-show.html
 **Was It Racist to Take Family Photos at a Wedding Without Me and My Wife?**\
 `A reader’s wife sees bigotry in their exclusion from group photos at a nephew’s wedding, but her husband is reluctant to write off his relatives for good.`\
 https://nytimes.com/2024/04/10/style/wedding-family-photo-exclusion.html
-
-**A Makeover for a Beloved Tourist Destination**\
-`Visitors make Hollywood Boulevard one of their first stops in Los Angeles. But when they arrive, the reality may not match the fantasy.`\
-https://nytimes.com/2024/04/10/us/hollywood-boulevard-makeover.html
 
