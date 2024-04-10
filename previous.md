@@ -1,3 +1,7 @@
+**An Oil Company Is Trespassing on Tribal Land in Wisconsin, Justice Dept. Says**\
+`Department lawyers said in a brief that Enbridge, a Canadian company, “lacks any legal right” to operate its Line 5 pipeline on reservation territory.`\
+https://nytimes.com/2024/04/10/climate/line-five-pipeline-amicus-brief.html
+
 **Floods Batter Russia and Kazakhstan, Forcing Tens of Thousands to Evacuate**\
 `More than 100,000 people had to leave their homes after spring floods engulfed cities and villages in vast sections of neighboring countries.`\
 https://nytimes.com/2024/04/10/world/europe/floods-russia-kazakhstan-evacuations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/style/rishi-sunak-adidas-sambas.html
 **Why Does Inflation Persist? Nobody Knows for Sure.**\
 `The usual economic theories have trouble explaining price changes.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/inflation-report-mystery
-
-**From Nasty Insults to an Embassy Raid: Latin American Relations Get Personal**\
-`Ecuador’s raid of Mexico’s embassy shows how foreign policy is often driven by personal politics, not national interest.`\
-https://nytimes.com/2024/04/10/world/americas/daniel-noboa-ecuador-mexico-foreign-policy.html
 

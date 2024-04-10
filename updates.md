@@ -1,3 +1,7 @@
+**An Oil Company Is Trespassing on Tribal Land in Wisconsin, Justice Dept. Says**\
+`Department lawyers said in a brief that Enbridge, a Canadian company, “lacks any legal right” to operate its Line 5 pipeline on reservation territory.`\
+https://nytimes.com/2024/04/10/climate/line-five-pipeline-amicus-brief.html
+
 **Did a Politician Ruin a Trendy Shoe?**\
 `Photos of Britain’s prime minister wearing Adidas Sambas briefly united a nation.`\
 https://nytimes.com/2024/04/10/style/rishi-sunak-adidas-sambas.html
