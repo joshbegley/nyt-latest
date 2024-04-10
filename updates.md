@@ -1,3 +1,15 @@
+**Did a Politician Ruin a Trendy Shoe?**\
+`Photos of Britain’s prime minister wearing Adidas Sambas briefly unites a nation.`\
+https://nytimes.com/2024/04/10/style/rishi-sunak-adidas-sambas.html
+
+**Why Does Inflation Persist? Nobody Knows for Sure.**\
+`The usual economic theories have trouble explaining price changes.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/inflation-report-mystery
+
+**From Nasty Insults to an Embassy Raid: Latin American Relations Get Personal**\
+`Ecuador’s raid of Mexico’s embassy shows how foreign policy is often driven by personal politics, not national interest.`\
+https://nytimes.com/2024/04/10/world/americas/daniel-noboa-ecuador-mexico-foreign-policy.html
+
 **Migration Overhaul in E.U. Clears Final Hurdle**\
 `Years in the making, the legislation is intended to update migration policy and cool anti-migrant sentiments ahead of E.U. elections in June.`\
 https://nytimes.com/2024/04/10/world/europe/european-union-migration-bill.html
