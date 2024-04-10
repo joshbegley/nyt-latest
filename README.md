@@ -1,3 +1,11 @@
+**Japan Gives Washington 250 Cherry Trees as Replacements**\
+`The trees will replace 140 that will be torn up as part of a restoration project. The capital’s first Japanese cherry trees were a gift from the mayor of Tokyo in 1912.`\
+https://nytimes.com/2024/04/10/us/politics/japan-us-cherry-trees.html
+
+**Student Aid Woes Stalk Cardona During Appearance on Capitol Hill**\
+`In two hearings, House lawmakers scrutinized Education Secretary Miguel Cardona’s record over persistent problems with the new FAFSA form.`\
+https://nytimes.com/2024/04/10/us/politics/miguel-cardona-fafsa-form.html
+
 **Man Sentenced to 30 Years in Fatal Shooting of 14-Year-Old**\
 `Aamir Griffin was killed on a Queens basketball court in 2019 when Sean Brown, then 16, mistook him for a rival gang member.`\
 https://nytimes.com/2024/04/10/nyregion/queens-shooting-teen-basketball-court.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/biden-welco
 **Trump, Criticizing Arizona Abortion Ruling, Says He Wouldn’t Sign a Federal Ban if Elected**\
 `Days after he said that abortion policies should be left to the states, former President Donald J. Trump criticized an Arizona court ruling that upheld an 1864 law.`\
 https://nytimes.com/2024/04/10/us/politics/trump-arizona-abortion.html
-
-**Ellen Gallagher’s Futuristic Archives**\
-`The artist discusses marine life and African American myth from her studio in the Netherlands.`\
-https://nytimes.com/2024/04/10/t-magazine/ellen-gallagher-stedelijk-museum.html
-
-**Did You Really Need to Be There to See the Eclipse?**\
-`For much of the 20th century, Rochester, N.Y., was the “imaging capital of the world.” For three and a half minutes on Monday, it was living up to its old nickname.`\
-https://nytimes.com/2024/04/10/arts/eclipse-rochester-new-york.html
 
