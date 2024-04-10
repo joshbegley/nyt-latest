@@ -1,3 +1,15 @@
+**Ex-Assistant Principal at School Where 6-Year-Old Shot Teacher Is Indicted**\
+`A former administrator at Richneck Elementary School in Newport News, Va., where a first-grade teacher was shot last year, has been charged with eight counts of child abuse and neglect.`\
+https://nytimes.com/2024/04/09/us/richneck-elementary-assistant-principal-indicted-shooting.html
+
+**Ancient Foxes Lived and Died Alongside Humans**\
+`Extinct foxes and other animals were an important part of early South American communities, a new study has found.`\
+https://nytimes.com/2024/04/09/science/fox-remains-south-america-patagonia.html
+
+**‘Brandy Hellville & the Cult of Fast Fashion’: 5 Takeaways**\
+`Former employees of the brand, a Gen Z fashion favorite, recount race and size discrimination in a new documentary on HBO.`\
+https://nytimes.com/2024/04/09/style/brandy-melville-hbo-documentary.html
+
 **Germany Rebuffs Claim Its Arms Sales to Israel Abet Genocide in Gaza**\
 `Germany argued against the accusation brought by Nicaragua at the International Court of Justice, but Germans are questioning their country’s unwavering support for Israel.`\
 https://nytimes.com/2024/04/09/world/europe/germany-israel-genocide-icj.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/09/us/rev-cecil-murray-dead.html
 **These Perfumes Come With Notes of Blood, Latex and Floorboards**\
 `For a growing number of fragrance fans, smelling singular is more important than smelling good.`\
 https://nytimes.com/2024/04/09/t-magazine/strange-perfume-fragrance.html
-
-**A Useful Guide to the History of U.S.-China Relations**\
-`A new podcast helps explain the current situation.`\
-https://nytimes.com/live/2024/04/09/opinion/thepoint/china-history-podcast
-
-**Bill in Congress Would Force Action on U.S. Troops’ Blast Exposure**\
-`The Pentagon would be required to modify weapons, update safety guidelines, train medical staff and track individual troops’ exposure to repeated blasts that can injure their brains.`\
-https://nytimes.com/2024/04/09/us/pentagon-blast-exposure-brain-elizabeth-warren-joni-ernst.html
-
-**Arizona Reinstated a 160-Year-Old Abortion Ban**\
-`Also, Iran is smuggling weapons into the West Bank. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/04/09/briefing/abortion-ban-arizona-epa-pollution-rule.html
 
