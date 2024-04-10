@@ -1,3 +1,7 @@
+**Why Xi Jinping is Meeting With Taiwan’s Ex-President**\
+`China is using talks between its top leader and Ma Ying-jeou to signal a willingness to engage with Taiwan — but only on its terms.`\
+https://nytimes.com/2024/04/10/world/asia/china-taiwan-ma-ying-jeou.html
+
 **Iran and Israel Exchange New Threats After Strike on Iranian Commanders**\
 `The leadership of Iran has repeatedly vowed to avenge the deadly April 1 strike on an Iranian Embassy building in Damascus.`\
 https://nytimes.com/2024/04/10/world/middleeast/iran-israel-khamenei-threat-strike.html
