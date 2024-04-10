@@ -1,3 +1,11 @@
+**Bernhard Langer, a Masters Stalwart for 40 Years, Sits This One Out**\
+`He first played in the tournament in 1982 and has won it twice, but a pickleball injury, of all things, has him sidelined.`\
+https://nytimes.com/2024/04/10/sports/golf/masters-bernhard-langer.html
+
+**The Five Players to Watch at the Masters**\
+`Among them are golfers who have won the event before and have a good chance to do it again.`\
+https://nytimes.com/2024/04/10/sports/golf/masters-players-scheffler-koepka.html
+
 **Track Will Be First Sport to Pay Olympic Gold Medalists**\
 `Winners in Paris will get $50,000 each from track and field’s governing body, as Olympic amateurism continues to fade away.`\
 https://nytimes.com/2024/04/10/sports/olympics/paris-olympics-track-field-prize-money.html
