@@ -1,3 +1,7 @@
+**Biden Says Netanyahu Is Making ‘a Mistake’ in Gaza**\
+`In an interview recorded last week, the president said again that an Israeli strike on aid workers in Gaza was an outrage.`\
+https://nytimes.com/2024/04/10/world/middleeast/biden-netanyahu-gaza-mistake-univision.html
+
 **Roger, a Failed Drug Dog, Becomes a Hero of Taiwan’s Quake Response**\
 `The 8-year-old rescue dog, who was once deemed too friendly to sniff out drugs, found the body of the earthquake’s 13th victim.`\
 https://nytimes.com/2024/04/10/world/asia/taiwan-earthquake-rescue-dog-roger.html

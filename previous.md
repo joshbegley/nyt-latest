@@ -1,3 +1,7 @@
+**Biden Says Netanyahu Is Making ‘a Mistake’ in Gaza**\
+`In an interview recorded last week, the president said again that an Israeli strike on aid workers in Gaza was an outrage.`\
+https://nytimes.com/2024/04/10/world/middleeast/biden-netanyahu-gaza-mistake-univision.html
+
 **Roger, a Failed Drug Dog, Becomes a Hero of Taiwan’s Quake Response**\
 `The 8-year-old rescue dog, who was once deemed too friendly to sniff out drugs, found the body of the earthquake’s 13th victim.`\
 https://nytimes.com/2024/04/10/world/asia/taiwan-earthquake-rescue-dog-roger.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/inflation-takes-c
 **10inflation-blog**\
 `Live Updates: Inflation Expected to Remain Stubborn`\
 https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed
-
-**Da Vinci’s Been Dead for 500 Years. Who Gets to Profit from His Work?**\
-`Italian officials and a German puzzle maker are battling over a 1,000-piece puzzle bearing the image of the artist’s “Vitruvian Man.”`\
-https://nytimes.com/2024/04/10/world/europe/vitruvian-man-puzzle-leonardo-da-vinci-ravensburger.html
 
