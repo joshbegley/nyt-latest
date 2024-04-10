@@ -1,3 +1,11 @@
+**‘It’s Only Life After All’ Review: Indigo Girls Laugh Last**\
+`The director Alexandria Bombach benefited from the musician Amy Ray’s archivist instincts in this warm, compelling new documentary.`\
+https://nytimes.com/2024/04/10/movies/its-only-life-after-all-review.html
+
+**What to know about the unexpectedly strong inflation report.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/what-to-know-about-the-unexpectedly-strong-inflation-report
+
 **Hawaii Locals Recommend Their Favorite Shave Ice Shops**\
 `Cups of flaky ice topped with flavored syrups are easy to find in the state. But the best shops set themselves apart with fresh ingredients and old-school charm.`\
 https://nytimes.com/2024/04/10/t-magazine/hawaii-shave-ice.html

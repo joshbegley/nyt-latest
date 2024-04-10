@@ -1,3 +1,11 @@
+**‘It’s Only Life After All’ Review: Indigo Girls Laugh Last**\
+`The director Alexandria Bombach benefited from the musician Amy Ray’s archivist instincts in this warm, compelling new documentary.`\
+https://nytimes.com/2024/04/10/movies/its-only-life-after-all-review.html
+
+**What to know about the unexpectedly strong inflation report.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/what-to-know-about-the-unexpectedly-strong-inflation-report
+
 **Hawaii Locals Recommend Their Favorite Shave Ice Shops**\
 `Cups of flaky ice topped with flavored syrups are easy to find in the state. But the best shops set themselves apart with fresh ingredients and old-school charm.`\
 https://nytimes.com/2024/04/10/t-magazine/hawaii-shave-ice.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/10/books/booksupdate/simon-schuster-100-anniversary.
 **Ocean Heat Has Shattered Records for More Than a Year. What’s Happening?**\
 `There have been record temperatures every day for more than a year.  Scientists are investigating what’s behind the extraordinary measurements.`\
 https://nytimes.com/2024/04/10/climate/ocean-heat-records.html
-
-**Wall Street Shudders on Signs of Unexpectedly Strong Inflation**\
-`Stocks fell and bond yields jumped as investors reassessed when the Federal Reserve may begin cutting interest rates.`\
-https://nytimes.com/2024/04/10/business/stock-markets-inflation-cpi-report.html
-
-**The Worst Part of a Wall Street Career May Be Coming to an End**\
-`Artificial intelligence tools can replace much of Wall Street’s entry-level white-collar work, raising tough questions about the future of finance.`\
-https://nytimes.com/2024/04/10/business/investment-banking-jobs-artificial-intelligence.html
 

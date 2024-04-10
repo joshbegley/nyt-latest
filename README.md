@@ -1,8 +1,12 @@
+**The Next Frontier in New York’s War on Rats: Birth Control**\
+`A new City Council bill would deploy contraceptives in hopes of reducing the rat population and protecting wildlife, like Flaco the owl, from being poisoned.`\
+https://nytimes.com/2024/04/10/nyregion/nyc-rat-contraception-birth-control.html
+
 **‘It’s Only Life After All’ Review: Indigo Girls Laugh Last**\
 `The director Alexandria Bombach benefited from the musician Amy Ray’s archivist instincts in this warm, compelling new documentary.`\
 https://nytimes.com/2024/04/10/movies/its-only-life-after-all-review.html
 
-**What to know about the unexpectedly strong inflation report.**\
+**What to know about the surprisingly strong inflation report.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/what-to-know-about-the-unexpectedly-strong-inflation-report
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/hamas-haniy
 **Simon & Schuster Turns 100 With a New Owner and a Sense of Optimism**\
 `The milestone comes after a particularly turbulent period, when the publisher was put up for sale and bought by a private equity firm. Since then, investments have boosted morale and helped it grow.`\
 https://nytimes.com/2024/04/10/books/booksupdate/simon-schuster-100-anniversary.html
-
-**Ocean Heat Has Shattered Records for More Than a Year. What’s Happening?**\
-`There have been record temperatures every day for more than a year.  Scientists are investigating what’s behind the extraordinary measurements.`\
-https://nytimes.com/2024/04/10/climate/ocean-heat-records.html
 
