@@ -1,3 +1,7 @@
+**Why Is Ocean Heat Smashing Records? It’s More Than Just Climate Change.**\
+`With record temperatures every day for more than a year, scientists are investigating what’s behind the extraordinary measurements.`\
+https://nytimes.com/2024/04/10/climate/ocean-heat-records.html
+
 **Wall Street Shudders on Signs of Unexpectedly Strong Inflation**\
 `Stocks fell and bond yields jumped as investors reassessed when the Federal Reserve may begin cutting interest rates.`\
 https://nytimes.com/2024/04/10/business/stock-markets-inflation-cpi-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/health/arizona-abortion-ban-history.html
 **Bernhard Langer, a Masters Stalwart for 40 Years, Sits This One Out**\
 `He first played in the tournament in 1982 and has won it twice, but a pickleball injury, of all things, has him sidelined.`\
 https://nytimes.com/2024/04/10/sports/golf/masters-bernhard-langer.html
-
-**The Five Players to Watch at the Masters**\
-`Among them are golfers who have won the event before and have a good chance to do it again.`\
-https://nytimes.com/2024/04/10/sports/golf/masters-players-scheffler-koepka.html
 
