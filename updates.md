@@ -1,3 +1,7 @@
+**What’s behind the recent rise in oil prices.**\
+`By Stanley Reed`\
+https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/whats-behind-the-recent-rise-in-oil-prices
+
 **Trump’s About-Face on Abortion**\
 `After months of mixed signals, the former president said abortion rights should be left to the states.`\
 https://nytimes.com/2024/04/10/podcasts/the-daily/trump-abortion.html
