@@ -1,3 +1,7 @@
+**Trump’s Ex-Finance Chief Is Sentenced to 5 Months in Rikers for Perjury**\
+`Allen H. Weisselberg admitted that he had lied about helping Donald J. Trump inflate his net worth to win favorable loan terms.`\
+https://nytimes.com/2024/04/10/nyregion/allen-weisselberg-sentenced-trump.html
+
 **Kari Lake Called Arizona’s Abortion Ban a ‘Great Law,’ but Now She Denounces It**\
 `In her 2022 race for governor, Ms. Lake delivered a strict anti-abortion message. Now running for Senate, she is retreating from that position.`\
 https://nytimes.com/2024/04/10/us/politics/kari-lake-abortion-arizona.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/world/europe/germany-painting-museum.html
 **Which Countries Are the Biggest Suppliers to Israel’s Military?**\
 `Some governments that sell weapons to Israel — a list that is topped by the United States and Germany — are facing legal challenges and protests over those exports.`\
 https://nytimes.com/2024/04/10/world/middleeast/israel-weapons-suppliers-us-germany-italy.html
-
-**Croatia 2024 General Election: What to Know**\
-`A snap general election has left the country’s governing party exposed to an unexpectedly strong challenge from populist forces.`\
-https://nytimes.com/2024/04/10/world/europe/croatia-2024-general-election.html
 
