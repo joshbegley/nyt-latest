@@ -1,3 +1,15 @@
+**Price of Gold, Seen as Hedge Against Inflation, Soars to New Heights**\
+`The move has puzzled Wall Street, as it comes as the outlook for the economy has improved and inflation has generally cooled.`\
+https://nytimes.com/2024/04/10/business/gold-price-inflation.html
+
+**Inflation takes center stage as economists look for signs of continued slowing.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/inflation-takes-center-stage-as-economists-look-for-signs-of-continued-slowing
+
+**10inflation-blog**\
+`Live Updates: Inflation Expected to Remain Stubborn`\
+https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed
+
 **Da Vinci’s Been Dead for 500 Years. Who Gets to Profit from His Work?**\
 `Italian officials and a German puzzle maker are battling over a 1,000-piece puzzle bearing the image of the artist’s “Vitruvian Man.”`\
 https://nytimes.com/2024/04/10/world/europe/vitruvian-man-puzzle-leonardo-da-vinci-ravensburger.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/04/09/opinion/thepoint/eid-gaza-ramadan
 **Two Art Deco Icons Poised for a Renaissance**\
 `Tamara de Lempicka, a painter favored by celebrities and designers, is being revisited. Plus, a historical Miami building reopens as a hotel and private club.`\
 https://nytimes.com/2024/04/10/style/tamara-de-lempicka-art-deco-miami.html
-
-**See Maps of Where Eclipse Seekers Flocked and the Traffic That Followed**\
-`Movement data shows which towns were destinations for the eclipse and how travelers caused hourslong delays on roads near the path of totality.`\
-https://nytimes.com/interactive/2024/04/10/us/eclipse-population-traffic.html
-
-**How the Pro-Life Movement’s Deal With Trump Made America More Pro-Choice**\
-`Abortion opponents are entirely misaligned with the Trumpist form of conservatism.`\
-https://nytimes.com/2024/04/10/opinion/trump-abortion-pro-life.html
-
-**Trump Allies Have a Plan to Hurt Biden’s Chances: Elevate Outsider Candidates**\
-`The more candidates in the race, the better for Donald J. Trump, supporters say. And in a tight presidential contest, a small share of voters could change the result.`\
-https://nytimes.com/2024/04/10/us/politics/trump-rfk-jr-biden.html
 
