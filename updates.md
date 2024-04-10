@@ -1,3 +1,11 @@
+**Rescue Dog Finds Body After Taiwan Quake**\
+`Roger, a Labrador retriever with the Kaohsiung Fire Department, helped rescuers search an area near a popular hiking trail in Hualien County.`\
+https://nytimes.com/video/world/asia/100000009406418/taiwan-quake-rescue-dog-roger.html
+
+**War and hunger mar Eid in Gaza.**\
+`By Raja Abdulrahim and Ameera Harouda`\
+https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/war-and-hunger-mar-eid-in-gaza
+
 **As Speaker, Johnson Advances What He Once Opposed, Enraging the Right**\
 `Now that he is the leader, the Louisiana Republican has found himself bowing to governing realities that are now his problem.`\
 https://nytimes.com/2024/04/10/world/europe/as-speaker-johnson-advances-what-he-once-opposed-enraging-the-right.html
