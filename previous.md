@@ -30,7 +30,7 @@ https://nytimes.com/live/2024/04/09/opinion/thepoint/gender-medicine-england
 `Rich, deeply personal stories of visions and the peace they have brought to people’s lives`\
 https://nytimes.com/2024/04/10/magazine/readers-share-stories-of-their-loved-ones-deathbed-visions.html
 
-**Gazans observe an austere Eid at-Fitr in the shadow of war.**\
+**Gazans observe an austere Eid al-Fitr in the shadow of war.**\
 `By Remy Tumin`\
 https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/gazans-observe-an-austere-eid-at-fitr-under-the-shadow-of-war
 

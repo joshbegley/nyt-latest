@@ -1,3 +1,7 @@
+**Gazans observe an austere Eid al-Fitr in the shadow of war.**\
+`By Remy Tumin`\
+https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/gazans-observe-an-austere-eid-at-fitr-under-the-shadow-of-war
+
 **Trump, criticizing Arizona abortion ruling, says he wouldn’t sign a federal ban if elected.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/04/10/us/biden-trump-election/trump-criticizing-arizona-abortion-ruling-says-he-wouldnt-sign-a-federal-ban-if-elected
