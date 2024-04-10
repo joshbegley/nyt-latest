@@ -1,3 +1,11 @@
+**Gazans observe an austere Eid at-Fitr under the shadow of war.**\
+`By Remy Tumin`\
+https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/gazans-observe-an-austere-eid-at-fitr-under-the-shadow-of-war
+
+**Trump Makes His Third Try This Week to Delay Manhattan Trial**\
+`Donald J. Trump asked an appeals court — again — to stave off his prosecution on charges that he faked business records to cover up a sex scandal.`\
+https://nytimes.com/2024/04/10/nyregion/trump-trial-appeal-judge-merchan.html
+
 **Pat Zachry, Pitcher Known for a Lopsided Trade, Dies at 71**\
 `In 1977, the Mets dealt Tom Seaver, a future Hall of Fame pitcher, for what The Times called “four players of far less magnitude.” Zachry was one of them.`\
 https://nytimes.com/2024/04/10/sports/baseball/pat-zachry-pitcher-known-for-a-lopsided-trade-dies-at-71.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/10/opinion/boeing-airliner-safety.html
 **Liz Cheney was passed over for a medal. A board member quit, arguing the group bowed to Trump.**\
 `David Hume Kennerly, a Pulitzer Prize-winning photographer, resigned from the board of the Gerald R. Ford Presidential Foundation over what he said was a snub.`\
 https://nytimes.com/live/2024/04/10/us/biden-trump-election/liz-cheney-trump-medal-gerald-ford-foundation
-
-**What’s in Our Queue? ‘Kleo’ and More**\
-`I’m a correspondent covering Germany, Austria and Switzerland. Here are five things I’ve been looking at, reading, watching and listening to.`\
-https://nytimes.com/interactive/2024/04/10/arts/editors-recommendations-kleo.html
-
-**Few Signs of Progress on Aid to Gaza, Despite Israeli Pledges**\
-`Israel promised last week to open a border crossing and a port to aid shipments, but neither change has occurred. Israeli and U.N. officials also disagree on how many aid trucks are reaching Gaza.`\
-https://nytimes.com/2024/04/10/world/middleeast/aid-pledges-gaza-israel.html
 
