@@ -1,3 +1,7 @@
+**Roger, a Failed Drug Dog, Becomes a Hero of Taiwan’s Quake Response**\
+`The 8-year-old rescue dog, who was once deemed too friendly to sniff out drugs, found the body of the earthquake’s 13th victim.`\
+https://nytimes.com/2024/04/10/world/asia/taiwan-earthquake-rescue-dog-roger.html
+
 **Abortion Politics in 2024**\
 `Four key points to help you make sense of the current debate.`\
 https://nytimes.com/2024/04/10/briefing/abortion-democrats-republicans-arizona.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed
 **Da Vinci’s Been Dead for 500 Years. Who Gets to Profit from His Work?**\
 `Italian officials and a German puzzle maker are battling over a 1,000-piece puzzle bearing the image of the artist’s “Vitruvian Man.”`\
 https://nytimes.com/2024/04/10/world/europe/vitruvian-man-puzzle-leonardo-da-vinci-ravensburger.html
-
-**Trump Is the Embodiment of the Politics of Intimidation**\
-`This is what you get when fear mixes with money.`\
-https://nytimes.com/2024/04/10/opinion/trump-donors-project-2025.html
 
