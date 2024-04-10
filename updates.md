@@ -1,3 +1,7 @@
+**He Wanted to Serve His Community in Gaza. He Paid With His Life.**\
+`The killing of foreign aid workers from World Central Kitchen brought international outrage. The death of their Palestinian driver drew less attention.`\
+https://nytimes.com/2024/04/10/world/middleeast/world-central-kitchen-gaza.html
+
 **Price of Gold, Seen as Hedge Against Inflation, Soars to New Heights**\
 `The move has puzzled Wall Street, as it comes as the outlook for the economy has improved and inflation has generally cooled.`\
 https://nytimes.com/2024/04/10/business/gold-price-inflation.html
