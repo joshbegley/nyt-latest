@@ -1,3 +1,7 @@
+**13 Young Men Charged in Brooklyn Synagogue ‘Tunnel’ Melee**\
+`Some of the defendants are accused of breaking through a wall between an excavated space and the sanctuary, part of the headquarters of the Chabad-Lubavitch movement.`\
+https://nytimes.com/2024/04/10/nyregion/new-york-synagogue-tunnels.html
+
 **Trump Again Insults Jews Who Support Biden**\
 `Speaking to reporters in Atlanta on Wednesday, former President Donald J. Trump said that any Jew who “votes for Biden should have their head examined.”`\
 https://nytimes.com/2024/04/10/us/politics/trump-jews-biden.html
