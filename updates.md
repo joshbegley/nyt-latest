@@ -1,3 +1,7 @@
+**Ellen Gallagher’s Futuristic Archives**\
+`The artist discusses marine life and African American myth from her studio in the Netherlands.`\
+https://nytimes.com/2024/04/10/t-magazine/ellen-gallagher-stedelijk-museum.html
+
 **Did You Really Need to Be There to See It?**\
 `Trying to capture the eclipse on a cloudy day in Image City.`\
 https://nytimes.com/2024/04/10/arts/eclipse-rochester-new-york.html
