@@ -1,40 +1,40 @@
-**Why Xi Jinping Is Meeting With Taiwan’s Ex-President**\
-`China is using talks between its top leader and Ma Ying-jeou to signal a willingness to engage with Taiwan — but only on its terms.`\
-https://nytimes.com/2024/04/10/world/asia/china-taiwan-ma-ying-jeou.html
+**See Maps of Where Eclipse Seekers Flocked and the Traffic That Followed**\
+`Movement data shows which towns were destinations for the eclipse and how travelers caused hourslong delays on roads near the path of totality.`\
+https://nytimes.com/interactive/2024/04/10/us/eclipse-population-traffic.html
 
-**Iran and Israel Exchange New Threats After Strike on Iranian Commanders**\
-`The leadership of Iran has repeatedly vowed to avenge the deadly April 1 strike on an Iranian Embassy building in Damascus.`\
-https://nytimes.com/2024/04/10/world/middleeast/iran-israel-khamenei-threat-strike.html
+**How the Pro-Life Movement’s Deal With Trump Made America More Pro-Choice**\
+`Abortion opponents are entirely misaligned with the Trumpist form of conservatism.`\
+https://nytimes.com/2024/04/10/opinion/trump-abortion-pro-life.html
 
-**Stephen Colbert Mocks Trump’s Failed Bid to Delay Hush-Money Trial**\
-`Colbert said Donald Trump’s lawyers wanted “an impartial jury who knew nothing about the events in America over the last nine years.”`\
-https://nytimes.com/2024/04/10/arts/television/colbert-trump-criminal-trial.html
+**Trump Allies Have a Plan to Hurt Biden’s Chances: Elevate Outsider Candidates**\
+`The more candidates in the race, the better for Donald J. Trump, supporters say. And in a tight presidential contest, a small share of voters could change the result.`\
+https://nytimes.com/2024/04/10/us/politics/trump-rfk-jr-biden.html
 
-**Rescue Dog Finds Body After Taiwan Quake**\
-`Roger, a Labrador retriever with the Kaohsiung Fire Department, helped rescuers search an area near a popular hiking trail in Hualien County.`\
-https://nytimes.com/video/world/asia/100000009406418/taiwan-quake-rescue-dog-roger.html
+**$420,000 Homes in West Virginia, Mississippi and the District of Columbia**\
+`A 1940 Colonial Revival home in Charles Town, an 1858 Greek Revival house in Holly Springs and a one-bedroom condominium in Washington.`\
+https://nytimes.com/2024/04/10/realestate/420000-dollar-homes-west-virginia-mississippi-district-of-columbia.html
 
-**War and hunger mar Eid in Gaza.**\
-`By Raja Abdulrahim and Ameera Harouda`\
-https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/war-and-hunger-mar-eid-in-gaza
+**They Made a Movie About a Pack of Sasquatches. Why?**\
+`“Sasquatch Sunset” follows the creatures as they go about their lives. We had so many questions. The film’s cast and crew had answers.`\
+https://nytimes.com/2024/04/10/movies/sasquatch-sunset-behind-the-scenes.html
 
-**As Speaker, Johnson Advances What He Once Opposed, Enraging the Right**\
-`Now that he is the leader, the Louisiana Republican has found himself bowing to governing realities that are now his problem.`\
-https://nytimes.com/2024/04/10/world/europe/as-speaker-johnson-advances-what-he-once-opposed-enraging-the-right.html
+**It’s April on Broadway. This Man Wants to Sell You on a Show.**\
+`Rick Miramontez, a veteran theater press agent, is gearing up for the craziest stretch of the Broadway season.`\
+https://nytimes.com/2024/04/10/nyregion/broadway-rick-miramontez.html
 
-**How Far Would You Push Yourself Physically to Meet a Goal?**\
-`What is the most ambitious thing you have ever done athletically? Was it worth it?`\
-https://nytimes.com/2024/04/10/learning/how-far-would-you-push-yourself-physically-to-meet-a-goal.html
+**How Khruangbin’s Sound Became the New Mood Music**\
+`The Texan trio’s vibes have spawned countless imitators, but their magic isn’t so easy to replicate.`\
+https://nytimes.com/2024/04/10/magazine/khruangbin-mood-music.html
 
-**The Connections Companion No. 304**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/10/crosswords/connections-companion.html
+**Where Is America’s ‘Rules-Based Order’ Now?**\
+`The United States’ failure to ensure enforcement of the U.N. cease-fire resolution regarding Israel undermines the international rules-based order.`\
+https://nytimes.com/2024/04/10/opinion/us-un-ceasefire-gaza.html
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/10/crosswords/wordle-review.html
+**¡Vámonos! Dora Is Back for a New Round of Exploring**\
+`Boots, Map, Swiper and Backpack all return too, in a new “Dora” that includes a lot more Latin music and Spanish language.`\
+https://nytimes.com/2024/04/10/arts/television/dora-is-back-nickelodeon.html
 
-**In Trump’s Criminal Trial, These Are the Jurors Each Side Wants**\
-`Prosecutors in Donald Trump’s Manhattan trial may prefer jurors who watch MSNBC and are highly educated. Defense lawyers may favor police officers and sanitation workers.`\
-https://nytimes.com/2024/04/10/nyregion/trump-jury-hush-money-trial.html
+**How Much of a Threat Is Kennedy to Biden?**\
+`The columnist Michelle Goldberg reports on Robert F. Kennedy Jr.’s coalition of the alienated.`\
+https://nytimes.com/2024/04/10/opinion/rfk-jr-trump.html
 
