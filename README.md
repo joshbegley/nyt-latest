@@ -1,5 +1,5 @@
-**A Soccer Team Set Ticket Prices at $0. Should Others Do the Same?**\
-`When Paris F.C. stopped charging an entry fee, it began an experiment into the connection between fans and teams, and posed a question about the value of big crowds to televised sports.`\
+**A Soccer Team Stopped Charging for Tickets. Should Others Do the Same?**\
+`When Paris F.C. made its tickets free, it began an experiment into the connection between fans and teams, and posed a question about the value of big crowds to televised sports.`\
 https://nytimes.com/2024/04/10/world/europe/paris-fc-free-tickets-soccer.html
 
 **Blizzard and NetEase Settle Their Beef, Returning Warcraft to China**\
