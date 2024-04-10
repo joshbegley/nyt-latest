@@ -1,3 +1,11 @@
+**Mister Cee, Pioneering Brooklyn D.J., Dies at 57**\
+`Born Calvin Lebrun, Mister Cee was a pioneer in New York City’s hip-hop scene and helped boost the career of the Notorious B.I.G.`\
+https://nytimes.com/2024/04/10/arts/music/mister-cee-dj-dead.html
+
+**Hamas Does Not Have 40 Hostages Who Meet Terms of Potential Swap With Israel, Officials Said**\
+`The claim raised fears that more hostages may be dead than previously believed.`\
+https://nytimes.com/2024/04/10/world/middleeast/israel-hostages-hamas-ceasefire.html
+
 **The Full Guest List for Biden’s State Dinner With Japan**\
 `The Bidens invited more than 200 guests, including Bill and Hillary Clinton, Robert De Niro, Jeff Bezos, Masayoshi Son, Tim Cook and Kristi Yamaguchi.`\
 https://nytimes.com/2024/04/10/us/politics/guest-list-biden-state-dinner-japan.html
