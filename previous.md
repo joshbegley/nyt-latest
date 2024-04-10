@@ -1,8 +1,16 @@
+**Migration Overhaul in E.U. Clears Final Hurdle**\
+`Years in the making, the legislation is intended to update migration policy and cool anti-migrant sentiments ahead of E.U. elections in June.`\
+https://nytimes.com/2024/04/10/world/europe/european-union-migration-bill.html
+
+**The Next Frontier in New York’s War on Rats: Birth Control**\
+`A new City Council bill would deploy contraceptives in hopes of reducing the rat population and protecting wildlife, like Flaco the owl, from being poisoned.`\
+https://nytimes.com/2024/04/10/nyregion/nyc-rat-contraception-birth-control.html
+
 **‘It’s Only Life After All’ Review: Indigo Girls Laugh Last**\
 `The director Alexandria Bombach benefited from the musician Amy Ray’s archivist instincts in this warm, compelling new documentary.`\
 https://nytimes.com/2024/04/10/movies/its-only-life-after-all-review.html
 
-**What to know about the unexpectedly strong inflation report.**\
+**What to know about the surprisingly strong inflation report.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/what-to-know-about-the-unexpectedly-strong-inflation-report
 
@@ -15,7 +23,7 @@ https://nytimes.com/2024/04/10/t-magazine/hawaii-shave-ice.html
 https://nytimes.com/2024/04/10/world/asia/hong-kong-rsf-detain-expel.html
 
 **After Trump Broadside, Surveillance Bill Teeters in the House**\
-`The extension of a key foreign intelligence surveillance tool is at risk as right-wing lawmakers insist on bigger changes and former President Donald J. Trump urges lawmakers to “kill” the law underlying it`\
+`The extension of a key foreign intelligence surveillance tool is at risk as right-wing lawmakers insist on bigger changes and former President Donald J. Trump urges lawmakers to “kill” the law underlying it.`\
 https://nytimes.com/2024/04/10/us/politics/fisa-trump-johnson-house.html
 
 **Senate Leaders Look to Curb ‘Judge Shopping’ But In Different Ways**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/10/magazine/spendthrift-friend-dog-fundraiser-ethics
 **Hamas’s political leader says an Israeli strike killed three of his sons.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/hamas-haniyeh-israel-strike
-
-**Simon & Schuster Turns 100 With a New Owner and a Sense of Optimism**\
-`The milestone comes after a particularly turbulent period, when the publisher was put up for sale and bought by a private equity firm. Since then, investments have boosted morale and helped it grow.`\
-https://nytimes.com/2024/04/10/books/booksupdate/simon-schuster-100-anniversary.html
-
-**Ocean Heat Has Shattered Records for More Than a Year. What’s Happening?**\
-`There have been record temperatures every day for more than a year.  Scientists are investigating what’s behind the extraordinary measurements.`\
-https://nytimes.com/2024/04/10/climate/ocean-heat-records.html
 

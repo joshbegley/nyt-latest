@@ -1,3 +1,19 @@
+**Migration Overhaul in E.U. Clears Final Hurdle**\
+`Years in the making, the legislation is intended to update migration policy and cool anti-migrant sentiments ahead of E.U. elections in June.`\
+https://nytimes.com/2024/04/10/world/europe/european-union-migration-bill.html
+
+**The Next Frontier in New York’s War on Rats: Birth Control**\
+`A new City Council bill would deploy contraceptives in hopes of reducing the rat population and protecting wildlife, like Flaco the owl, from being poisoned.`\
+https://nytimes.com/2024/04/10/nyregion/nyc-rat-contraception-birth-control.html
+
+**What to know about the surprisingly strong inflation report.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/what-to-know-about-the-unexpectedly-strong-inflation-report
+
+**After Trump Broadside, Surveillance Bill Teeters in the House**\
+`The extension of a key foreign intelligence surveillance tool is at risk as right-wing lawmakers insist on bigger changes and former President Donald J. Trump urges lawmakers to “kill” the law underlying it.`\
+https://nytimes.com/2024/04/10/us/politics/fisa-trump-johnson-house.html
+
 **‘It’s Only Life After All’ Review: Indigo Girls Laugh Last**\
 `The director Alexandria Bombach benefited from the musician Amy Ray’s archivist instincts in this warm, compelling new documentary.`\
 https://nytimes.com/2024/04/10/movies/its-only-life-after-all-review.html
