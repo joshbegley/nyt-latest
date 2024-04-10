@@ -1,3 +1,7 @@
+**Trump, criticizing Arizona abortion ruling, says he wouldn’t sign a federal ban if elected.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/04/10/us/biden-trump-election/trump-criticizing-arizona-abortion-ruling-says-he-wouldnt-sign-a-federal-ban-if-elected
+
 **Ellen Gallagher’s Futuristic Archives**\
 `The artist discusses marine life and African American myth from her studio in the Netherlands.`\
 https://nytimes.com/2024/04/10/t-magazine/ellen-gallagher-stedelijk-museum.html
