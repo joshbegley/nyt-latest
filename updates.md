@@ -1,3 +1,7 @@
+**K-Pop Group Asks U.S. Court for Help Finding YouTube User in Defamation Case**\
+`The request by NewJeans is the latest effort by the K-pop industry in its struggle to stem rumors on platforms based outside South Korea.`\
+https://nytimes.com/2024/04/10/arts/music/newjeans-kpop-youtube-defamation-lawsuit.html
+
 **Biden Says Netanyahu Is Making ‘a Mistake’ in Gaza**\
 `In an interview recorded last week, the president said again that an Israeli strike on aid workers in Gaza was an outrage.`\
 https://nytimes.com/2024/04/10/world/middleeast/biden-netanyahu-gaza-mistake-univision.html
