@@ -1,3 +1,7 @@
+**Nijole Sadunaite, Lithuanian Nun Who Opposed Soviet Rule, Dies at 85**\
+`A dissident who promoted democracy and religious freedom, she was arrested by the K.G.B. After independence from Moscow, she was honored by Lithuania’s Parliament.`\
+https://nytimes.com/2024/04/10/world/europe/nijole-sadunaite-dead.html
+
 **Explosion at Hydroelectric Plant in Italy Kills at Least 3**\
 `Emergency workers were searching for four other workers who were missing after the blast in northern Italy, which has galvanized unions in the region.`\
 https://nytimes.com/2024/04/10/world/europe/italy-explosion-hydroelectric-plant.html
