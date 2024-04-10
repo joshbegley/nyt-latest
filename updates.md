@@ -1,3 +1,7 @@
+**Energy prices rose in March.**\
+`By J. Edward Moreno`\
+https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/energy-prices-rose-in-march
+
 **A Hot Inflation Report Is a Blow to President Biden**\
 `The president’s approval ratings have been hurt by rapid inflation and rising interest rates.`\
 https://nytimes.com/2024/04/10/business/biden-inflation-cpi.html
