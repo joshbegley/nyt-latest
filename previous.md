@@ -1,3 +1,7 @@
+**Give a Boost**\
+`Bill Thompson makes magic.`\
+https://nytimes.com/2024/04/09/crosswords/daily-puzzle-2024-04-10.html
+
 **South Korean Parliamentary Election to Set Tone for Rest of Leader’s Term**\
 `The vote Wednesday is a big test for President Yoon Suk Yeol, who has forged closer ties with the United States and Japan but whose domestic agenda has stalled.`\
 https://nytimes.com/2024/04/09/world/asia/south-korea-election-yoon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/style/brandy-melville-hbo-documentary.html
 **Germany Rebuffs Claim Its Arms Sales to Israel Abet Genocide in Gaza**\
 `Germany argued against the accusation brought by Nicaragua at the International Court of Justice, but Germans are questioning their country’s unwavering support for Israel.`\
 https://nytimes.com/2024/04/09/world/europe/germany-israel-genocide-icj.html
-
-**Alabama is the second state to warn Democrats it could take Biden off the November ballot.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/04/09/us/biden-trump-election/alabama-is-the-second-state-to-warn-democrats-it-could-take-biden-off-the-november-ballot
 

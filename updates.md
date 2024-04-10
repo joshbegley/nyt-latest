@@ -1,3 +1,7 @@
+**Give a Boost**\
+`Bill Thompson makes magic.`\
+https://nytimes.com/2024/04/09/crosswords/daily-puzzle-2024-04-10.html
+
 **South Korean Parliamentary Election to Set Tone for Rest of Leader’s Term**\
 `The vote Wednesday is a big test for President Yoon Suk Yeol, who has forged closer ties with the United States and Japan but whose domestic agenda has stalled.`\
 https://nytimes.com/2024/04/09/world/asia/south-korea-election-yoon.html
