@@ -34,7 +34,7 @@ https://nytimes.com/2024/04/10/us/politics/trump-arizona-abortion.html
 `The artist discusses marine life and African American myth from her studio in the Netherlands.`\
 https://nytimes.com/2024/04/10/t-magazine/ellen-gallagher-stedelijk-museum.html
 
-**Did You Really Need to Be There to See It?**\
-`Trying to capture the eclipse on a cloudy day in Image City.`\
+**Trying to Catch the Eclipse on a Cloudy Day**\
+`For much of the 20th century, Rochester, N.Y., was the “imaging capital of the world.” For three and a half minutes on Monday, it was living up to its old nickname.`\
 https://nytimes.com/2024/04/10/arts/eclipse-rochester-new-york.html
 
