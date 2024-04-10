@@ -1,3 +1,7 @@
+**Floods Batter Russia and Kazakhstan, Forcing Tens of Thousands to Evacuate**\
+`More than 100,000 people had to leave their homes after spring floods engulfed cities and villages in vast sections of neighboring countries.`\
+https://nytimes.com/2024/04/10/world/europe/floods-russia-kazakhstan-evacuations.html
+
 **Liz Cheney was passed over for a medal. A board member quit, arguing the group bowed to Trump.**\
 `David Hume Kennerly, a Pulitzer Prize-winning photographer, resigned from the board of the Gerald R. Ford Presidential Foundation over what he said was a snub.`\
 https://nytimes.com/live/2024/04/10/us/biden-trump-election/liz-cheney-trump-medal-gerald-ford-foundation
