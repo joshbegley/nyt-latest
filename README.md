@@ -1,3 +1,7 @@
+**After Trump Broadside, Surveillance Bill Teeters in the House**\
+`The extension of a key foreign intelligence surveillance tool is at risk as right-wing lawmakers insist on bigger changes and former President Donald J. Trump urges lawmakers to “kill” the law underlying it`\
+https://nytimes.com/2024/04/10/us/politics/fisa-trump-johnson-house.html
+
 **Senate Leaders Look to Curb ‘Judge Shopping’ But In Different Ways**\
 `Senators Chuck Schumer and Mitch McConnell don’t think the federal judiciary is doing enough, and each is introducing a bill to address the issue.`\
 https://nytimes.com/2024/04/10/us/judge-shopping-senate-schumer-mcconnell.html
@@ -8,7 +12,7 @@ https://nytimes.com/2024/04/10/magazine/spendthrift-friend-dog-fundraiser-ethics
 
 **Hamas’s political leader says an Israeli strike killed three of his sons.**\
 `By Cassandra Vinograd`\
-https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/hamass-political-leader-says-an-israeli-strike-killed-three-of-his-sons
+https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/hamas-haniyeh-israel-strike
 
 **Simon & Schuster Turns 100 With a New Owner and a Sense of Optimism**\
 `The milestone comes after a particularly turbulent period, when the publisher was put up for sale and bought by a private equity firm. Since then, investments have boosted morale and helped it grow.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/technology/ai-chatbot-training-chatgpt.html
 **Can Adriano Pedrosa Save the Venice Biennale? No Pressure.**\
 `Balancing diplomacy and geopolitics is hardly new for the first Biennale curator from Latin America. He isn’t scared to make a strong statement on contemporary art.`\
 https://nytimes.com/2024/04/10/arts/design/adriano-pedrosa-venice-biennale.html
-
-**Five-Star Indian Butter Chickpeas for No-Energy Nights**\
-`“Only change I’d make is to double it for more delicious leftovers,” writes one of many rave reviews.`\
-https://nytimes.com/2024/04/10/dining/five-star-indian-butter-chickpeas-for-no-energy-nights.html
 
