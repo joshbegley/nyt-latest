@@ -2,13 +2,13 @@
 `By Ben Casselman`\
 https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/housing-costs-continued-to-rise-faster-than-before-the-pandemic
 
-**Welcome, Vault Dwellers: A Guide to the Fallout Universe**\
-`The war-scarred ghouls and bulky power armor seen in three decades of video games arrive in the new TV show “Fallout.”`\
-https://nytimes.com/2024/04/10/arts/welcome-vault-dwellers-a-guide-to-the-fallout-universe.html
-
 **Get Tech Out of the Classroom Before It’s Too Late**\
 `The ubiquity of screens is bad for teachers, students and society.`\
 https://nytimes.com/2024/04/10/opinion/schools-technology.html
+
+**Welcome, Vault Dwellers: A Guide to the Fallout Universe**\
+`The war-scarred ghouls and bulky power armor seen in three decades of video games arrive in the new TV show “Fallout.”`\
+https://nytimes.com/2024/04/10/arts/fallout-game-show.html
 
 **Was It Racist to Take Family Photos at a Wedding Without Me and My Wife?**\
 `A reader’s wife sees bigotry in their exclusion from group photos at a nephew’s wedding, but her husband is reluctant to write off his relatives for good.`\
