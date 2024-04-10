@@ -1,3 +1,7 @@
+**Trump, criticizing Arizona abortion ruling, says he wouldn’t sign a federal ban if elected.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/04/10/us/biden-trump-election/trump-criticizing-arizona-abortion-ruling-says-he-wouldnt-sign-a-federal-ban-if-elected
+
 **Ellen Gallagher’s Futuristic Archives**\
 `The artist discusses marine life and African American myth from her studio in the Netherlands.`\
 https://nytimes.com/2024/04/10/t-magazine/ellen-gallagher-stedelijk-museum.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/gazans-obse
 **Trump Makes His Third Try This Week to Delay Manhattan Trial**\
 `Donald J. Trump asked an appeals court — again — to stave off his prosecution on charges that he faked business records to cover up a sex scandal.`\
 https://nytimes.com/2024/04/10/nyregion/trump-trial-appeal-judge-merchan.html
-
-**Pat Zachry, Pitcher Known for a Lopsided Trade, Dies at 71**\
-`In 1977, the Mets dealt Tom Seaver, a future Hall of Fame pitcher, for what The Times called “four players of far less magnitude.” Zachry was one of them.`\
-https://nytimes.com/2024/04/10/sports/baseball/pat-zachry-pitcher-known-for-a-lopsided-trade-dies-at-71.html
 
