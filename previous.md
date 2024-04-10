@@ -1,3 +1,19 @@
+**Can Adriano Pedrosa Save the Venice Biennale? No Pressure.**\
+`Balancing diplomacy and geopolitics is hardly new for the first Biennale curator from Latin America. He isn’t scared to make a strong statement on contemporary art.`\
+https://nytimes.com/2024/04/10/arts/design/adriano-pedrosa-venice-biennale.html
+
+**Five-Star Indian Butter Chickpeas for No-Energy Nights**\
+`“Only change I’d make is to double it for more delicious leftovers,” writes one of many rave reviews.`\
+https://nytimes.com/2024/04/10/dining/five-star-indian-butter-chickpeas-for-no-energy-nights.html
+
+**Wyatt Flores, a Rising Country Artist, Has a Superpower: Tapping Emotions**\
+`The 22-year-old singer and songwriter makes music that touches listeners deeply. But his own trauma — coupled with his rapid rise — has thrown some bumps in the road.`\
+https://nytimes.com/2024/04/10/arts/music/wyatt-flores-half-life.html
+
+**What’s Going On in This Graph? | April 17, 2024**\
+`How are the prices and sizes of some consumer items changing?`\
+https://nytimes.com/2024/04/10/learning/whats-going-on-in-this-graph-april-17-2024.html
+
 **The History Behind Arizona’s 160-Year-Old Abortion Ban**\
 `The state’s Supreme Court ruled that the 1864 law is enforceable today. Here is what led to its enactment.`\
 https://nytimes.com/2024/04/10/health/arizona-abortion-ban-history.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/energy-prices-ros
 **A Hot Inflation Report Is a Blow to President Biden**\
 `The president’s approval ratings have been hurt by rapid inflation and rising interest rates.`\
 https://nytimes.com/2024/04/10/business/biden-inflation-cpi.html
-
-**Navigating a Virtual Australia in Postapocalyptic Ruins**\
-`The role-playing game Broken Roads takes its environment seriously. The Aussie slang, the reddish outback soil, even the ruffling of emu feathers provide authenticity.`\
-https://nytimes.com/2024/04/10/arts/broken-roads-australia.html
-
-**How a Case Against Fox News Tore Apart a Media-Fighting Law Firm**\
-`Tensions had been brewing for years inside Clare Locke, a top defamation law firm. Then came the biggest defamation case of them all.`\
-https://nytimes.com/2024/04/10/business/media/clare-locke-dominion-voting-fox-defamation.html
-
-**Trump’s Ex-Finance Chief Is Sentenced to 5 Months in Rikers for Perjury**\
-`Allen H. Weisselberg admitted that he had lied about helping Donald J. Trump inflate his net worth to win favorable loan terms.`\
-https://nytimes.com/2024/04/10/nyregion/allen-weisselberg-sentenced-trump.html
-
-**Kari Lake Called Arizona’s Abortion Ban a ‘Great Law,’ but Now She Denounces It**\
-`In her 2022 race for governor, Ms. Lake delivered a strict anti-abortion message. Now running for Senate, she is retreating from that position.`\
-https://nytimes.com/2024/04/10/us/politics/kari-lake-abortion-arizona.html
 

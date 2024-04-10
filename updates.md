@@ -1,3 +1,19 @@
+**Can Adriano Pedrosa Save the Venice Biennale? No Pressure.**\
+`Balancing diplomacy and geopolitics is hardly new for the first Biennale curator from Latin America. He isn’t scared to make a strong statement on contemporary art.`\
+https://nytimes.com/2024/04/10/arts/design/adriano-pedrosa-venice-biennale.html
+
+**Five-Star Indian Butter Chickpeas for No-Energy Nights**\
+`“Only change I’d make is to double it for more delicious leftovers,” writes one of many rave reviews.`\
+https://nytimes.com/2024/04/10/dining/five-star-indian-butter-chickpeas-for-no-energy-nights.html
+
+**Wyatt Flores, a Rising Country Artist, Has a Superpower: Tapping Emotions**\
+`The 22-year-old singer and songwriter makes music that touches listeners deeply. But his own trauma — coupled with his rapid rise — has thrown some bumps in the road.`\
+https://nytimes.com/2024/04/10/arts/music/wyatt-flores-half-life.html
+
+**What’s Going On in This Graph? | April 17, 2024**\
+`How are the prices and sizes of some consumer items changing?`\
+https://nytimes.com/2024/04/10/learning/whats-going-on-in-this-graph-april-17-2024.html
+
 **The History Behind Arizona’s 160-Year-Old Abortion Ban**\
 `The state’s Supreme Court ruled that the 1864 law is enforceable today. Here is what led to its enactment.`\
 https://nytimes.com/2024/04/10/health/arizona-abortion-ban-history.html
