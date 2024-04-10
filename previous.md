@@ -8,7 +8,7 @@ https://nytimes.com/2024/04/10/business/investment-banking-jobs-artificial-intel
 
 **Now Hiring: Sophisticated (but Part-Time) Chatbot Tutors**\
 `The human work of teaching A.I. is getting a lot more complex as the technology improves.`\
-https://nytimes.com/2024/04/10/technology/now-hiring-sophisticated-but-part-time-chatbot-tutors.html
+https://nytimes.com/2024/04/10/technology/ai-chatbot-training-chatgpt.html
 
 **Can Adriano Pedrosa Save the Venice Biennale? No Pressure.**\
 `Balancing diplomacy and geopolitics is hardly new for the first Biennale curator from Latin America. He isn’t scared to make a strong statement on contemporary art.`\

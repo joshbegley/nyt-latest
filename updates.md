@@ -1,3 +1,7 @@
+**Now Hiring: Sophisticated (but Part-Time) Chatbot Tutors**\
+`The human work of teaching A.I. is getting a lot more complex as the technology improves.`\
+https://nytimes.com/2024/04/10/technology/ai-chatbot-training-chatgpt.html
+
 **Wall Street Shudders on Signs of Unexpectedly Strong Inflation**\
 `Stocks fell and bond yields jumped as investors reassessed when the Federal Reserve may begin cutting interest rates.`\
 https://nytimes.com/2024/04/10/business/stock-markets-inflation-cpi-report.html
