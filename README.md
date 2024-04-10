@@ -1,3 +1,7 @@
+**Playing the Masters Is by Invitation Only. Here’s How Golfers Get One.**\
+`There’s a long list of possible ways, like being a past winner, but the creation of LIV Golf has complicated the process.`\
+https://nytimes.com/2024/04/10/sports/golf/masters-tournament-invitation-augusta.html
+
 **Did a Politician Ruin a Trendy Shoe?**\
 `Photos of Britain’s prime minister wearing Adidas Sambas briefly unites a nation.`\
 https://nytimes.com/2024/04/10/style/rishi-sunak-adidas-sambas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/t-magazine/hawaii-shave-ice.html
 **Hong Kong Detains and Expels Journalism Advocate, Group Says**\
 `A representative of Reporters Without Borders was attempting to monitor the national security trial of a media tycoon, Jimmy Lai.`\
 https://nytimes.com/2024/04/10/world/asia/hong-kong-rsf-detain-expel.html
-
-**After Trump Broadside, Surveillance Bill Teeters in the House**\
-`The extension of a key foreign intelligence surveillance tool is at risk as right-wing lawmakers insist on bigger changes and former President Donald J. Trump urges lawmakers to “kill” the law underlying it.`\
-https://nytimes.com/2024/04/10/us/politics/fisa-trump-johnson-house.html
 
