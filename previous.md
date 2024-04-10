@@ -1,3 +1,7 @@
+**Few Signs of Progress on Aid to Gaza, Despite Israeli Pledges**\
+`Israel promised last week to open a border crossing and a port to aid shipments, but neither change has occurred. Israeli and U.N. officials also disagree on how many aid trucks are reaching Gaza.`\
+https://nytimes.com/2024/04/10/world/middleeast/aid-pledges-gaza-israel.html
+
 **Playing the Masters Is by Invitation Only. Here’s How Golfers Get One.**\
 `There’s a long list of possible ways, like being a past winner, but the creation of LIV Golf has complicated the process.`\
 https://nytimes.com/2024/04/10/sports/golf/masters-tournament-invitation-augusta.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/what-to-know-abou
 **Hawaii Locals Recommend Their Favorite Shave Ice Shops**\
 `Cups of flaky ice topped with flavored syrups are easy to find in the state. But the best shops set themselves apart with fresh ingredients and old-school charm.`\
 https://nytimes.com/2024/04/10/t-magazine/hawaii-shave-ice.html
-
-**Hong Kong Detains and Expels Journalism Advocate, Group Says**\
-`A representative of Reporters Without Borders was attempting to monitor the national security trial of a media tycoon, Jimmy Lai.`\
-https://nytimes.com/2024/04/10/world/asia/hong-kong-rsf-detain-expel.html
 
