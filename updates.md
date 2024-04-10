@@ -1,3 +1,11 @@
+**Joining Texas, Iowa Enacts Law for State Immigration Enforcement**\
+`Gov. Kim Reynolds, a Republican, signed the bill on Wednesday and accused the Biden administration of failing to secure the border.`\
+https://nytimes.com/2024/04/10/us/iowa-immigration-law.html
+
+**Biden welcomes more Gaza aid but says Israel has to do more to relieve suffering.**\
+`The president said he was “blunt and straightforward” with Prime Minister Benjamin Netanyahu of Israel but declined to say explicitly whether he would condition future U.S. arms shipments on the response.`\
+https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/biden-welcomes-more-gaza-aid-but-says-israel-has-to-do-more-to-relieve-suffering
+
 **Gazans observe an austere Eid al-Fitr in the shadow of war.**\
 `By Remy Tumin`\
 https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/gazans-observe-an-austere-eid-at-fitr-under-the-shadow-of-war
