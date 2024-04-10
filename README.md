@@ -1,3 +1,11 @@
+**Migration Overhaul in E.U. Clears Final Hurdle**\
+`Years in the making, the legislation is intended to update migration policy and cool anti-migrant sentiments ahead of E.U. elections in June.`\
+https://nytimes.com/2024/04/10/world/europe/european-union-migration-bill.html
+
+**The Next Frontier in New York’s War on Rats: Birth Control**\
+`A new City Council bill would deploy contraceptives in hopes of reducing the rat population and protecting wildlife, like Flaco the owl, from being poisoned.`\
+https://nytimes.com/2024/04/10/nyregion/nyc-rat-contraception-birth-control.html
+
 **‘It’s Only Life After All’ Review: Indigo Girls Laugh Last**\
 `The director Alexandria Bombach benefited from the musician Amy Ray’s archivist instincts in this warm, compelling new documentary.`\
 https://nytimes.com/2024/04/10/movies/its-only-life-after-all-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/10/magazine/spendthrift-friend-dog-fundraiser-ethics
 **Hamas’s political leader says an Israeli strike killed three of his sons.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/hamas-haniyeh-israel-strike
-
-**Simon & Schuster Turns 100 With a New Owner and a Sense of Optimism**\
-`The milestone comes after a particularly turbulent period, when the publisher was put up for sale and bought by a private equity firm. Since then, investments have boosted morale and helped it grow.`\
-https://nytimes.com/2024/04/10/books/booksupdate/simon-schuster-100-anniversary.html
-
-**Ocean Heat Has Shattered Records for More Than a Year. What’s Happening?**\
-`There have been record temperatures every day for more than a year.  Scientists are investigating what’s behind the extraordinary measurements.`\
-https://nytimes.com/2024/04/10/climate/ocean-heat-records.html
 
