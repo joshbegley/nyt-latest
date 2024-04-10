@@ -1,3 +1,7 @@
+**Hamas Leader Defiant After Israeli Strike Kills 3 of His Sons**\
+`Israel confirmed the killing of the sons of the Hamas political leader, Ismail Haniyeh, and said all three were Hamas military operatives.`\
+https://nytimes.com/2024/04/10/world/middleeast/ismail-haniyeh-hamas-israel-airstrike.html
+
 **Police in Philadelphia Investigate Shooting at Eid Celebration**\
 `At least three people were shot and wounded at an outdoor event, where about 1,000 people were celebrating Eid al-Fitr in West Philadelphia, the police said.`\
 https://nytimes.com/video/us/100000009408187/philadelphia-shooting-eid.html
