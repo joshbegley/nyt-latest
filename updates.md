@@ -1,3 +1,7 @@
+**Student Aid Woes Stalk Education Secretary in Appearance on Capitol Hill**\
+`In two hearings, House lawmakers scrutinized Miguel Cardona’s record over persistent problems with the new FAFSA form.`\
+https://nytimes.com/2024/04/10/us/politics/miguel-cardona-fafsa-form.html
+
 **Thursday Briefing: Japan’s Leader Visits Washington**\
 `Also, South Korean exit polls suggest a defeat for the president’s party.`\
 https://nytimes.com/2024/04/10/world/asia/japan-biden-visit-korea-polls-asia.html
