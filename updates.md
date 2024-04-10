@@ -1,3 +1,7 @@
+**Playing the Masters Is by Invitation Only. Here’s How Golfers Get One.**\
+`There’s a long list of possible ways, like being a past winner, but the creation of LIV Golf has complicated the process.`\
+https://nytimes.com/2024/04/10/sports/golf/masters-tournament-invitation-augusta.html
+
 **Did a Politician Ruin a Trendy Shoe?**\
 `Photos of Britain’s prime minister wearing Adidas Sambas briefly unites a nation.`\
 https://nytimes.com/2024/04/10/style/rishi-sunak-adidas-sambas.html
