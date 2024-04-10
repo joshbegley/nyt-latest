@@ -1,3 +1,15 @@
+**As Speaker, Johnson Advances What He Once Opposed, Enraging the Right**\
+`Now that he is the leader, the Louisiana Republican has found himself bowing to governing realities that are now his problem.`\
+https://nytimes.com/2024/04/10/world/europe/as-speaker-johnson-advances-what-he-once-opposed-enraging-the-right.html
+
+**How Far Would You Push Yourself Physically to Meet a Goal?**\
+`What is the most ambitious thing you have ever done athletically? Was it worth it?`\
+https://nytimes.com/2024/04/10/learning/how-far-would-you-push-yourself-physically-to-meet-a-goal.html
+
+**The Connections Companion No. 304**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/10/crosswords/connections-companion.html
+
 **Today’s Wordle Review**\
 `In case you need some puzzle help.`\
 https://nytimes.com/2024/04/10/crosswords/wordle-review.html
