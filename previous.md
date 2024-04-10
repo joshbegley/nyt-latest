@@ -1,3 +1,31 @@
+**Da Vinci’s Been Dead for 500 Years. Who Gets to Profit from His Work?**\
+`Italian officials and a German puzzle maker are battling over a 1,000-piece puzzle bearing the image of the artist’s “Vitruvian Man.”`\
+https://nytimes.com/2024/04/10/world/europe/vitruvian-man-puzzle-leonardo-da-vinci-ravensburger.html
+
+**Trump Is the Embodiment of the Politics of Intimidation**\
+`This is what you get when fear mixes with money.`\
+https://nytimes.com/2024/04/10/opinion/trump-donors-project-2025.html
+
+**Six Things to Know About ‘Forever Chemicals’**\
+`The federal government is ordering the removal of PFAS, a class of chemicals that poses serious health risks, from drinking water systems across the country.`\
+https://nytimes.com/2024/04/10/climate/six-things-to-know-about-forever-chemicals.html
+
+**To Counter China’s Rising Power, Biden Looks to Strengthen Ties With Japan**\
+`President Biden is hosting Japan’s prime minister, Fumio Kishida, for a state visit as part of a broad diplomatic outreach.`\
+https://nytimes.com/2024/04/10/us/politics/biden-kishida-japan-visit.html
+
+**Trudeau to Testify After Opposing Election Interference Inquiry**\
+`Intelligence reports released during hearings on Canada’s elections in 2019 and 2021 describe China’s meddling as “sophisticated, pervasive, persistent.’’`\
+https://nytimes.com/2024/04/10/world/canada/trudeau-election-interference-inquiry.html
+
+**For Muslims, It’s Hard to Celebrate This Eid**\
+`The war in Gaza looms.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/eid-gaza-ramadan
+
+**Two Art Deco Icons Poised for a Renaissance**\
+`Tamara de Lempicka, a painter favored by celebrities and designers, is being revisited. Plus, a historical Miami building reopens as a hotel and private club.`\
+https://nytimes.com/2024/04/10/style/tamara-de-lempicka-art-deco-miami.html
+
 **See Maps of Where Eclipse Seekers Flocked and the Traffic That Followed**\
 `Movement data shows which towns were destinations for the eclipse and how travelers caused hourslong delays on roads near the path of totality.`\
 https://nytimes.com/interactive/2024/04/10/us/eclipse-population-traffic.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/04/10/opinion/trump-abortion-pro-life.html
 **Trump Allies Have a Plan to Hurt Biden’s Chances: Elevate Outsider Candidates**\
 `The more candidates in the race, the better for Donald J. Trump, supporters say. And in a tight presidential contest, a small share of voters could change the result.`\
 https://nytimes.com/2024/04/10/us/politics/trump-rfk-jr-biden.html
-
-**$420,000 Homes in West Virginia, Mississippi and the District of Columbia**\
-`A 1940 Colonial Revival home in Charles Town, an 1858 Greek Revival house in Holly Springs and a one-bedroom condominium in Washington.`\
-https://nytimes.com/2024/04/10/realestate/420000-dollar-homes-west-virginia-mississippi-district-of-columbia.html
-
-**They Made a Movie About a Pack of Sasquatches. Why?**\
-`“Sasquatch Sunset” follows the creatures as they go about their lives. We had so many questions. The film’s cast and crew had answers.`\
-https://nytimes.com/2024/04/10/movies/sasquatch-sunset-behind-the-scenes.html
-
-**It’s April on Broadway. This Man Wants to Sell You on a Show.**\
-`Rick Miramontez, a veteran theater press agent, is gearing up for the craziest stretch of the Broadway season.`\
-https://nytimes.com/2024/04/10/nyregion/broadway-rick-miramontez.html
-
-**How Khruangbin’s Sound Became the New Mood Music**\
-`The Texan trio’s vibes have spawned countless imitators, but their magic isn’t so easy to replicate.`\
-https://nytimes.com/2024/04/10/magazine/khruangbin-mood-music.html
-
-**Where Is America’s ‘Rules-Based Order’ Now?**\
-`The United States’ failure to ensure enforcement of the U.N. cease-fire resolution regarding Israel undermines the international rules-based order.`\
-https://nytimes.com/2024/04/10/opinion/us-un-ceasefire-gaza.html
-
-**¡Vámonos! Dora Is Back for a New Round of Exploring**\
-`Boots, Map, Swiper and Backpack all return too, in a new “Dora” that includes a lot more Latin music and Spanish language.`\
-https://nytimes.com/2024/04/10/arts/television/dora-is-back-nickelodeon.html
-
-**How Much of a Threat Is Kennedy to Biden?**\
-`The columnist Michelle Goldberg reports on Robert F. Kennedy Jr.’s coalition of the alienated.`\
-https://nytimes.com/2024/04/10/opinion/rfk-jr-trump.html
 
