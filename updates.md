@@ -1,3 +1,15 @@
+**Price of Gold, Seen as Hedge Against Inflation, Soars to New Heights**\
+`The move has puzzled Wall Street, as it comes as the outlook for the economy has improved and inflation has generally cooled.`\
+https://nytimes.com/2024/04/10/business/gold-price-inflation.html
+
+**Inflation takes center stage as economists look for signs of continued slowing.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/inflation-takes-center-stage-as-economists-look-for-signs-of-continued-slowing
+
+**10inflation-blog**\
+`Live Updates: Inflation Expected to Remain Stubborn`\
+https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed
+
 **Da Vinci’s Been Dead for 500 Years. Who Gets to Profit from His Work?**\
 `Italian officials and a German puzzle maker are battling over a 1,000-piece puzzle bearing the image of the artist’s “Vitruvian Man.”`\
 https://nytimes.com/2024/04/10/world/europe/vitruvian-man-puzzle-leonardo-da-vinci-ravensburger.html
