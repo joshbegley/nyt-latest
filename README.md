@@ -1,3 +1,11 @@
+**Bernhard Langer, a Masters Stalwart for 40 Years, Sits This One Out**\
+`He first played in the tournament in 1982 and has won it twice, but a pickleball injury, of all things, has him sidelined.`\
+https://nytimes.com/2024/04/10/sports/golf/masters-bernhard-langer.html
+
+**The Five Players to Watch at the Masters**\
+`Among them are golfers who have won the event before and have a good chance to do it again.`\
+https://nytimes.com/2024/04/10/sports/golf/masters-players-scheffler-koepka.html
+
 **Track Will Be First Sport to Pay Olympic Gold Medalists**\
 `Winners in Paris will get $50,000 each from track and field’s governing body, as Olympic amateurism continues to fade away.`\
 https://nytimes.com/2024/04/10/sports/olympics/paris-olympics-track-field-prize-money.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/10/us/politics/kari-lake-abortion-arizona.html
 **Housing costs continued to rise faster than before the pandemic.**\
 `By Ben Casselman`\
 https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/housing-costs-continued-to-rise-faster-than-before-the-pandemic
-
-**Get Tech Out of the Classroom Before It’s Too Late**\
-`The ubiquity of screens is bad for teachers, students and society.`\
-https://nytimes.com/2024/04/10/opinion/schools-technology.html
-
-**Welcome, Vault Dwellers: A Guide to the Fallout Universe**\
-`The war-scarred ghouls and bulky power armor seen in three decades of video games arrive in the new TV show “Fallout.”`\
-https://nytimes.com/2024/04/10/arts/fallout-game-show.html
 
