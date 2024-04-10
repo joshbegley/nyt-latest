@@ -1,3 +1,7 @@
+**Stephen Colbert Mocks Trump’s Failed Bid to Delay Hush-Money Trial**\
+`Colbert said Donald Trump’s lawyers wanted “an impartial jury who knew nothing about the events in America over the last nine years.”`\
+https://nytimes.com/2024/04/10/arts/television/colbert-trump-criminal-trial.html
+
 **Rescue Dog Finds Body After Taiwan Quake**\
 `Roger, a Labrador retriever with the Kaohsiung Fire Department, helped rescuers search an area near a popular hiking trail in Hualien County.`\
 https://nytimes.com/video/world/asia/100000009406418/taiwan-quake-rescue-dog-roger.html
