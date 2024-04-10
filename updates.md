@@ -1,3 +1,7 @@
+**Man Charged With Detonating Explosive Outside Alabama Attorney General’s Office**\
+`Kyle B. D. Calvert, 26, was indicted on charges of malicious use of an explosive and possession of an unregistered destructive device in connection with the detonation in February.`\
+https://nytimes.com/2024/04/10/us/explosive-alabama-attorney-general-office.html
+
 **At Least 3 Injured in Shooting at Philadelphia Eid Celebration**\
 `The shooting took place on Wednesday afternoon in West Philadelphia, where 1,000 people were gathered to mark the end of Ramadan.`\
 https://nytimes.com/2024/04/10/us/shooting-eid-philadelphia.html

@@ -1,3 +1,7 @@
+**Man Charged With Detonating Explosive Outside Alabama Attorney General’s Office**\
+`Kyle B. D. Calvert, 26, was indicted on charges of malicious use of an explosive and possession of an unregistered destructive device in connection with the detonation in February.`\
+https://nytimes.com/2024/04/10/us/explosive-alabama-attorney-general-office.html
+
 **At Least 3 Injured in Shooting at Philadelphia Eid Celebration**\
 `The shooting took place on Wednesday afternoon in West Philadelphia, where 1,000 people were gathered to mark the end of Ramadan.`\
 https://nytimes.com/2024/04/10/us/shooting-eid-philadelphia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/us/politics/ruben-gallego-arizona-senate.html
 **Biden Says U.S. Is Considering Dropping Its Case Against Assange**\
 `The WikiLeaks founder has been held in London as he has battled extradition to the United States on charges related to his publication of classified documents.`\
 https://nytimes.com/2024/04/10/us/politics/julian-assange-prosecution.html
-
-**Arizona Republicans Thwart Attempts to Repeal 1864 Abortion Ban**\
-`Democrats in both houses of the Legislature were blocked from advancing bills to roll back a reinstated 160-year-old ban on nearly all abortions in the state.`\
-https://nytimes.com/2024/04/10/us/abortion-ban-arizona-democrats-repeal.html
 
