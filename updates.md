@@ -1,3 +1,15 @@
+**Hong Kong Detains and Expels Journalism Advocate, Group Says**\
+`A representative of Reporters Without Borders was attempting to monitor the national security trial of a media tycoon, Jimmy Lai.`\
+https://nytimes.com/2024/04/10/world/asia/hong-kong-rsf-detain-expel.html
+
+**After Trump Broadside, Surveillance Bill Teeters in the House**\
+`The extension of a key foreign intelligence surveillance tool is at risk as right-wing lawmakers insist on bigger changes and former President Donald J. Trump urges lawmakers to “kill” the law underlying it`\
+https://nytimes.com/2024/04/10/us/politics/fisa-trump-johnson-house.html
+
+**Ocean Heat Has Shattered Records for More Than a Year. What’s Happening?**\
+`There have been record temperatures every day for more than a year.  Scientists are investigating what’s behind the extraordinary measurements.`\
+https://nytimes.com/2024/04/10/climate/ocean-heat-records.html
+
 **Simon & Schuster Turns 100 With a New Owner and a Sense of Optimism**\
 `The milestone comes after a particularly turbulent period, when the publisher was put up for sale and bought by a private equity firm. Since then, investments have boosted morale and helped it grow.`\
 https://nytimes.com/2024/04/10/books/booksupdate/simon-schuster-100-anniversary.html
