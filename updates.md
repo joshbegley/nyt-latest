@@ -1,3 +1,7 @@
+**Kari Lake Called Arizona’s Abortion Ban a ‘Great Law,’ but Now She Denounces It**\
+`In her 2022 race for governor, Ms. Lake delivered a strict anti-abortion message. Now running for Senate, she is retreating from that position.`\
+https://nytimes.com/2024/04/10/us/politics/kari-lake-abortion-arizona.html
+
 **Welcome, Vault Dwellers: A Guide to the Fallout Universe**\
 `The war-scarred ghouls and bulky power armor seen in three decades of video games arrive in the new TV show “Fallout.”`\
 https://nytimes.com/2024/04/10/arts/fallout-game-show.html

@@ -1,3 +1,7 @@
+**Kari Lake Called Arizona’s Abortion Ban a ‘Great Law,’ but Now She Denounces It**\
+`In her 2022 race for governor, Ms. Lake delivered a strict anti-abortion message. Now running for Senate, she is retreating from that position.`\
+https://nytimes.com/2024/04/10/us/politics/kari-lake-abortion-arizona.html
+
 **Housing costs continued to rise faster than before the pandemic.**\
 `By Ben Casselman`\
 https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/housing-costs-continued-to-rise-faster-than-before-the-pandemic
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/world/middleeast/israel-weapons-suppliers-us-germ
 **Croatia 2024 General Election: What to Know**\
 `A snap general election has left the country’s governing party exposed to an unexpectedly strong challenge from populist forces.`\
 https://nytimes.com/2024/04/10/world/europe/croatia-2024-general-election.html
-
-**The Politics of a Steel Deal Hangs Over Biden’s Japan Summit**\
-`The president’s effort to court voters in crucial swing states is influencing economic and trade policy, and worrying longstanding allies.`\
-https://nytimes.com/2024/04/10/business/dealbook/biden-japan-summit-nippon-steel.html
 
