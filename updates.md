@@ -1,3 +1,7 @@
+**Housing costs continued to rise faster than before the pandemic.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/housing-costs-continued-to-rise-faster-than-before-the-pandemic
+
 **Welcome, Vault Dwellers: A Guide to the Fallout Universe**\
 `The war-scarred ghouls and bulky power armor seen in three decades of video games arrive in the new TV show “Fallout.”`\
 https://nytimes.com/2024/04/10/arts/welcome-vault-dwellers-a-guide-to-the-fallout-universe.html
