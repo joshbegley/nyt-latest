@@ -1,3 +1,11 @@
+**Navigating a Virtual Australia in Postapocalyptic Ruins**\
+`The role-playing game Broken Roads takes its environment seriously. The Aussie slang, the reddish outback soil, even the ruffling of emu feathers provide authenticity.`\
+https://nytimes.com/2024/04/10/arts/broken-roads-australia.html
+
+**How a Case Against Fox News Tore Apart a Media-Fighting Law Firm**\
+`Tensions had been brewing for years inside Clare Locke, a top defamation law firm. Then came the biggest defamation case of them all.`\
+https://nytimes.com/2024/04/10/business/media/clare-locke-dominion-voting-fox-defamation.html
+
 **Trump’s Ex-Finance Chief Is Sentenced to 5 Months in Rikers for Perjury**\
 `Allen H. Weisselberg admitted that he had lied about helping Donald J. Trump inflate his net worth to win favorable loan terms.`\
 https://nytimes.com/2024/04/10/nyregion/allen-weisselberg-sentenced-trump.html
