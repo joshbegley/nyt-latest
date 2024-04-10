@@ -1,3 +1,7 @@
+**Abortion Politics in 2024**\
+`Four key points to help you make sense of the current debate.`\
+https://nytimes.com/2024/04/10/briefing/abortion-democrats-republicans-arizona.html
+
 **What’s behind the recent rise in oil prices.**\
 `By Stanley Reed`\
 https://nytimes.com/live/2024/04/10/business/cpi-inflation-fed/whats-behind-the-recent-rise-in-oil-prices
