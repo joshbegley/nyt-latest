@@ -1,3 +1,15 @@
+**Severe Weather Slams Gulf Coast States**\
+`Several cities faced torrential rain and tornado threats as a powerful storm system moved across the South.`\
+https://nytimes.com/video/us/100000009407050/south-storm-floods-tornado.html
+
+**In Arizona’s Crucial Senate Race, a Liberal Fighter Courts the Center**\
+`Ruben Gallego has long embraced his progressive background. Now, with his state newly in the spotlight over abortion politics, he’s getting tough on the border and targeting swing voters.`\
+https://nytimes.com/2024/04/10/us/politics/ruben-gallego-arizona-senate.html
+
+**Trump, criticizing Arizona abortion ruling, says he wouldn’t sign a federal ban if elected.**\
+`By Michael Gold`\
+https://nytimes.com/2024/04/10/us/politics/trump-arizona-abortion.html
+
 **Biden Says U.S. Is Considering Dropping Its Case Against Assange**\
 `The WikiLeaks founder has been held in London as he has battled extradition to the United States on charges related to his publication of classified documents.`\
 https://nytimes.com/2024/04/10/us/politics/julian-assange-prosecution.html

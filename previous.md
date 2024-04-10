@@ -1,3 +1,11 @@
+**Severe Weather Slams Gulf Coast States**\
+`Several cities faced torrential rain and tornado threats as a powerful storm system moved across the South.`\
+https://nytimes.com/video/us/100000009407050/south-storm-floods-tornado.html
+
+**In Arizona’s Crucial Senate Race, a Liberal Fighter Courts the Center**\
+`Ruben Gallego has long embraced his progressive background. Now, with his state newly in the spotlight over abortion politics, he’s getting tough on the border and targeting swing voters.`\
+https://nytimes.com/2024/04/10/us/politics/ruben-gallego-arizona-senate.html
+
 **Biden Says U.S. Is Considering Dropping Its Case Against Assange**\
 `The WikiLeaks founder has been held in London as he has battled extradition to the United States on charges related to his publication of classified documents.`\
 https://nytimes.com/2024/04/10/us/politics/julian-assange-prosecution.html
@@ -16,7 +24,7 @@ https://nytimes.com/live/2024/04/10/world/israel-gaza-war-news-hamas/biden-welco
 
 **Trump, criticizing Arizona abortion ruling, says he wouldn’t sign a federal ban if elected.**\
 `By Michael Gold`\
-https://nytimes.com/live/2024/04/10/us/biden-trump-election/trump-criticizing-arizona-abortion-ruling-says-he-wouldnt-sign-a-federal-ban-if-elected
+https://nytimes.com/2024/04/10/us/politics/trump-arizona-abortion.html
 
 **Ellen Gallagher’s Futuristic Archives**\
 `The artist discusses marine life and African American myth from her studio in the Netherlands.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/10/arts/eclipse-rochester-new-york.html
 **What War by A.I. Actually Looks Like**\
 `The Israel Defense Forces’ offensive in Gaza is an ominous hint of the military future`\
 https://nytimes.com/2024/04/10/opinion/war-ai-israel-gaza-ukraine.html
-
-**Nijole Sadunaite, Lithuanian Nun Who Opposed Soviet Rule, Dies at 85**\
-`A dissident who promoted democracy and religious freedom, she was arrested by the K.G.B. After independence from Moscow, she was honored by Lithuania’s Parliament.`\
-https://nytimes.com/2024/04/10/world/europe/nijole-sadunaite-dead.html
-
-**Explosion at Hydroelectric Plant in Italy Kills at Least 3**\
-`Emergency workers were searching for four other workers who were missing after the blast in northern Italy, which has galvanized unions in the region.`\
-https://nytimes.com/2024/04/10/world/europe/italy-explosion-hydroelectric-plant.html
 
