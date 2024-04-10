@@ -1,3 +1,7 @@
+**Word of the Day: prowess**\
+`This word has appeared in 222 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/10/learning/word-of-the-day-prowess.html
+
 **U.S. Postal Service Proposes Raising Stamp Prices Again**\
 `If a regulatory body approves, a nearly 8 percent rise in postage will take effect in July. It would be the latest of several price hikes since 2021.`\
 https://nytimes.com/2024/04/10/us/postal-service-stamp-price-increase.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/crosswords/daily-puzzle-2024-04-10.html
 **South Korean Parliamentary Election to Set Tone for Rest of Leader’s Term**\
 `The vote Wednesday is a big test for President Yoon Suk Yeol, who has forged closer ties with the United States and Japan but whose domestic agenda has stalled.`\
 https://nytimes.com/2024/04/09/world/asia/south-korea-election-yoon.html
-
-**New York Is Winding Down Contract With Migrant Services Operator**\
-`DocGo, which has a $432 million contract with the city, faced allegations of providing migrants with false papers, wasting food and hiring unlicensed security guards.`\
-https://nytimes.com/2024/04/09/nyregion/docgo-migrants-services-nyc.html
 
