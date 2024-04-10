@@ -1,3 +1,7 @@
+**Explosion at Hydroelectric Plant in Italy Kills at Least 3**\
+`Emergency workers were searching for four other workers who were missing after the blast in northern Italy, which has galvanized unions in the region.`\
+https://nytimes.com/2024/04/10/world/europe/italy-explosion-hydroelectric-plant.html
+
 **Europe Is Making Progress on Gender Medicine. The U.S. Should Catch Up.**\
 `A new report in England finds “shaky” evidence that medical treatments for children’s gender dysphoria are effective.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/gender-medicine-england

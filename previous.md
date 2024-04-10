@@ -1,3 +1,7 @@
+**Explosion at Hydroelectric Plant in Italy Kills at Least 3**\
+`Emergency workers were searching for four other workers who were missing after the blast in northern Italy, which has galvanized unions in the region.`\
+https://nytimes.com/2024/04/10/world/europe/italy-explosion-hydroelectric-plant.html
+
 **Europe Is Making Progress on Gender Medicine. The U.S. Should Catch Up.**\
 `A new report in England finds “shaky” evidence that medical treatments for children’s gender dysphoria are effective.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/gender-medicine-england
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/climate/line-five-pipeline-amicus-brief.html
 **Floods Batter Russia and Kazakhstan, Forcing Tens of Thousands to Evacuate**\
 `More than 100,000 people had to leave their homes after spring floods engulfed cities and villages in vast sections of neighboring countries.`\
 https://nytimes.com/2024/04/10/world/europe/floods-russia-kazakhstan-evacuations.html
-
-**Biden Hosts Japan’s Prime Minister at the White House**\
-`President Biden called the United States and Japan “the closest of friends” during a welcoming ceremony for Prime Minister Fumio Kishida.`\
-https://nytimes.com/video/us/politics/100000009407179/biden-kishida-us-japan.html
 
