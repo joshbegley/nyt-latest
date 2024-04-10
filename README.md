@@ -1,3 +1,7 @@
+**Arizona Ruling Spurs Strong Reactions, but Election Impact Is Unclear**\
+`Some in the battleground state said they would still vote for former President Donald J. Trump even if they were frustrated by the reversal of abortion rights.`\
+https://nytimes.com/2024/04/10/us/arizona-voters-abortion-ruling.html
+
 **Corrections: April 10, 2024**\
 `Corrections that appeared in print on Wednesday, April 10, 2024.`\
 https://nytimes.com/2024/04/09/corrections/corrections-april-10-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/us/politics/trump-documents-witnesses.html
 **Former Correction Officers and Rikers Employees Charged With Corruption**\
 `Federal prosecutors said the defendants accepted bribes and smuggled in contraband, including drugs, for detainees at the troubled New York City jail.`\
 https://nytimes.com/2024/04/09/nyregion/rikers-corruption-charges-contraband.html
-
-**Ex-Assistant Principal at School Where 6-Year-Old Shot Teacher Is Indicted**\
-`A former administrator at Richneck Elementary School in Newport News, Va., where a first-grade teacher was shot last year, has been charged with eight counts of child abuse and neglect.`\
-https://nytimes.com/2024/04/09/us/richneck-elementary-assistant-principal-indicted-shooting.html
 
