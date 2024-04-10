@@ -1,3 +1,7 @@
+**A Soccer Team Stopped Charging for Tickets. Should Others Do the Same?**\
+`When Paris F.C. made its tickets free, it began an experiment into the connection between fans and teams, and posed a question about the value of big crowds to televised sports.`\
+https://nytimes.com/2024/04/10/world/europe/paris-fc-free-tickets-soccer.html
+
 **Blizzard and NetEase Settle Their Beef, Returning Warcraft to China**\
 `The deal between the gaming company Blizzard, now owned by Microsoft, and the Chinese giant NetEase renews a partnership that lapsed more than a year ago.`\
 https://nytimes.com/2024/04/10/business/warcraft-returns-china-blizzard-netease.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/pageoneplus/quotation-of-the-day-wonder-at-the-ec
 **Biden’s State Dinner for Japan to Feature Paul Simon and Celebrate Spring**\
 `An elevated California roll and steak with sesame sabayon will be among the dishes presented to Prime Minister Fumio Kishida of Japan at the state dinner on Wednesday.`\
 https://nytimes.com/2024/04/09/us/politics/biden-state-dinner-japan.html
-
-**Give a Boost**\
-`Bill Thompson makes magic.`\
-https://nytimes.com/2024/04/09/crosswords/daily-puzzle-2024-04-10.html
 
