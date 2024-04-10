@@ -1,3 +1,7 @@
+**Pat Zachry, Pitcher Known for a Lopsided Trade, Dies at 71**\
+`In 1977, the Mets dealt Tom Seaver, a future Hall of Fame pitcher, for what The Times called “four players of far less magnitude.” Zachry was one of them.`\
+https://nytimes.com/2024/04/10/sports/baseball/pat-zachry-pitcher-known-for-a-lopsided-trade-dies-at-71.html
+
 **Jacob Zuma, South Africa’s Scandal-Ridden Ex-President, Is Running Again**\
 `The 81-year-old former leader has been cleared to appear on the ballot as an opposition candidate in May’s parliamentary election. Unless the decision is reversed, he could become a kingmaker — or even president once again.`\
 https://nytimes.com/2024/04/10/world/africa/south-africa-jacob-zuma-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/10/arts/editors-recommendations-kleo.htm
 **Few Signs of Progress on Aid to Gaza, Despite Israeli Pledges**\
 `Israel promised last week to open a border crossing and a port to aid shipments, but neither change has occurred. Israeli and U.N. officials also disagree on how many aid trucks are reaching Gaza.`\
 https://nytimes.com/2024/04/10/world/middleeast/aid-pledges-gaza-israel.html
-
-**Playing the Masters Is by Invitation Only. Here’s How Golfers Get One.**\
-`There’s a long list of possible ways, like being a past winner, but the creation of LIV Golf has complicated the process.`\
-https://nytimes.com/2024/04/10/sports/golf/masters-tournament-invitation-augusta.html
 
