@@ -1,3 +1,7 @@
+**Iran and Israel Exchange New Threats After Strike on Iranian Commanders**\
+`The leadership of Iran has repeatedly vowed to avenge the deadly April 1 strike on an Iranian Embassy building in Damascus.`\
+https://nytimes.com/2024/04/10/world/middleeast/iran-israel-khamenei-threat-strike.html
+
 **Stephen Colbert Mocks Trump’s Failed Bid to Delay Hush-Money Trial**\
 `Colbert said Donald Trump’s lawyers wanted “an impartial jury who knew nothing about the events in America over the last nine years.”`\
 https://nytimes.com/2024/04/10/arts/television/colbert-trump-criminal-trial.html
