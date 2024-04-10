@@ -1,3 +1,7 @@
+**Blizzard and NetEase Settle Their Beef, Returning Warcraft to China**\
+`The deal between the gaming company Blizzard, now owned by Microsoft, and the Chinese giant NetEase renews a partnership that lapsed more than a year ago.`\
+https://nytimes.com/2024/04/10/business/warcraft-returns-china-blizzard-netease.html
+
 **Word of the Day: prowess**\
 `This word has appeared in 222 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/10/learning/word-of-the-day-prowess.html

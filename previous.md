@@ -1,3 +1,7 @@
+**Blizzard and NetEase Settle Their Beef, Returning Warcraft to China**\
+`The deal between the gaming company Blizzard, now owned by Microsoft, and the Chinese giant NetEase renews a partnership that lapsed more than a year ago.`\
+https://nytimes.com/2024/04/10/business/warcraft-returns-china-blizzard-netease.html
+
 **Word of the Day: prowess**\
 `This word has appeared in 222 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/10/learning/word-of-the-day-prowess.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/09/us/politics/biden-state-dinner-japan.html
 **Give a Boost**\
 `Bill Thompson makes magic.`\
 https://nytimes.com/2024/04/09/crosswords/daily-puzzle-2024-04-10.html
-
-**South Korean Parliamentary Election to Set Tone for Rest of Leader’s Term**\
-`The vote Wednesday is a big test for President Yoon Suk Yeol, who has forged closer ties with the United States and Japan but whose domestic agenda has stalled.`\
-https://nytimes.com/2024/04/09/world/asia/south-korea-election-yoon.html
 
