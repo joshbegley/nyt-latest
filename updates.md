@@ -1,3 +1,7 @@
+**Apple Lifts Some Restrictions on iPhone Repairs**\
+`This fall, the company will begin allowing customers to replace broken parts with used iPhone components without its previous software limits.`\
+https://nytimes.com/2024/04/11/technology/apple-iphone-repairs-parts.html
+
 **Where to Eat and Drink in Milan Right Now**\
 `A new generation of bars, restaurants and bakeries are reinvigorating the Italian city’s food scene.`\
 https://nytimes.com/2024/04/11/t-magazine/milan-bar-restaurant-bakery-guide.html
