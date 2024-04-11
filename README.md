@@ -1,3 +1,11 @@
+**‘Dawn of the Dead’ at 45: A Zombie Love Affair That Never Died**\
+`A look back at George A. Romero’s film, one of the most influential horror movies of all time, as it gets a theatrical revival.`\
+https://nytimes.com/2024/04/11/movies/dawn-of-the-dead-anniversary.html
+
+**Riding Rage Over Israel to Online Prominence**\
+`Jackson Hinkle’s incendiary commentary has generated over two million new followers on X since October — a surge that some researchers say is aided by inauthentic accounts.`\
+https://nytimes.com/2024/04/11/business/media/jackson-hinkle-israel-gaza-misinformation.html
+
 **This Test Might Be the Best Way to Track Fitness and Longevity**\
 `VO2 max has become ubiquitous in fitness circles. But what does it measure and how important is it to know yours?`\
 https://nytimes.com/2024/04/11/well/move/what-is-vo2-max-fitness.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/11/us/harvard-test-scores-admissions.html
 **Pentagon Official Heads to Israel Amid Fears of Iranian Attack**\
 `U.S. officials have said they are bracing for a response to a strike in Syria this month that killed several senior Iranian commanders.`\
 https://nytimes.com/2024/04/11/world/middleeast/israel-iran-attack-us-military.html
-
-**Mexico’s 2024 General Election: What to Know**\
-`Mexico’s election will make history. It will be the largest in terms of voters and seats, and the country will elect a female president for the first time.`\
-https://nytimes.com/2024/04/11/world/americas/mexico-2024-general-election.html
-
-**The Joys and Challenges of Caring for Terrance the Octopus**\
-`The Clifford family of Edmond, Okla., tracked down an octopus for their son Cal, 9, who has been infatuated with the sea animals for years. What they didn’t expect were the 50 hatchlings.`\
-https://nytimes.com/2024/04/11/us/tiktok-octopus-pet-oklahoma.html
 
