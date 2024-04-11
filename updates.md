@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Japan’s prime minister visits the White House.`\
+https://nytimes.com/2024/04/11/briefing/biden-japan-visit-korea-election.html
+
 **Corrections: April 11, 2024**\
 `Corrections that appeared in print on Thursday, April 11, 2024.`\
 https://nytimes.com/2024/04/11/pageoneplus/corrections-april-11-2024.html
