@@ -1,3 +1,7 @@
+**This Test Might Be the Best Way to Track Fitness and Longevity**\
+`VO2 max has become ubiquitous in fitness circles. But what does it measure and how important is it to know yours?`\
+https://nytimes.com/2024/04/11/well/move/what-is-vo2-max-fitness.html
+
 **Renaissance Portraits That Played Hide and Seek**\
 `Portraits go undercover in the new Metropolitan Museum show “Hidden Faces,” about the practice of concealing artworks behind sliding panels and reverse-side paintings.`\
 https://nytimes.com/2024/04/11/arts/design/hidden-renaissance-met.html
@@ -11,7 +15,7 @@ https://nytimes.com/2024/04/11/dining/a-no-chop-no-fuss-weeknight-lasagna.html
 https://nytimes.com/2024/04/11/us/elections/poll-voters-election-biden-trump.html
 
 **O.J. Simpson, Athlete Whose Trial Riveted the Nation, Dies at 76**\
-`He ran to football fame on the field and made fortunes in movies. But his world was ruined after he was charged with killing his former wife and her friend.`\
+`He ran to football fame on the field and made fortunes in movies. Then a trial in which he was charged with killing his former wife and her friend changed everything.`\
 https://nytimes.com/2024/04/11/sports/oj-simpson-dead.html
 
 **A Steadying Force for the Africa Center Is Stepping Down**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/world/americas/mexico-2024-general-election.html
 **The Joys and Challenges of Caring for Terrance the Octopus**\
 `The Clifford family of Edmond, Okla., tracked down an octopus for their son Cal, 9, who has been infatuated with the sea animals for years. What they didn’t expect were the 50 hatchlings.`\
 https://nytimes.com/2024/04/11/us/tiktok-octopus-pet-oklahoma.html
-
-**Assange’s Wife Expresses Cautious Hope as Biden Suggests U.S. Might Drop Case**\
-`The WikiLeaks founder has spent five years in a high-security London prison while contesting extradition efforts. Before that, he holed up for seven years in the Ecuadorean Embassy.`\
-https://nytimes.com/2024/04/11/world/europe/assange-extradition-us-biden.html
 
