@@ -1,3 +1,7 @@
+**Texas Surgeon Is Accused of Secretly Denying Liver Transplants**\
+`A Houston hospital is investigating whether a doctor altered a transplant list to make his patients ineligible for care. A disproportionate number of them have died while waiting for new organs.`\
+https://nytimes.com/2024/04/11/us/organ-transplants-houston.html
+
 **New York City Is Closer to Getting Its First Soccer Stadium**\
 `The City Council voted to allow the New York City Football Club to build a facility for its team in Willets Point, Queens, across the street from Citi Field.`\
 https://nytimes.com/2024/04/11/nyregion/nyc-football-club-soccer-stadium.html
