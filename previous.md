@@ -1,3 +1,7 @@
+**Israel announces a new operation against Hamas, a day after killing a top leader’s sons.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/2024/04/11/world/middleeast/israel-announces-a-new-operation-against-hamas-a-day-after-killing-a-top-leaders-sons.html
+
 **This Artificially Intelligent Pin Wants to Free You From Your Phone**\
 `The $700 Ai Pin, funded by OpenAI and Microsoft, can be helpful — until it struggles with tasks like doing math and crafting sandwich recipes.`\
 https://nytimes.com/2024/04/11/technology/personaltech/ai-pin-humane-openai-microsoft.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/briefing/bidens-cash-advantage.html
 **Stinging Election Loss Leaves South Korean Leader at a Crossroads**\
 `President Yoon Suk Yeol, a key U.S. ally, faces the prospect of becoming a lame duck unless he starts negotiating with the opposition.`\
 https://nytimes.com/2024/04/11/world/asia/south-korea-yoon-election.html
-
-**The Staggering Success of Trump’s Trial Delay Tactics**\
-`With criminal cases mounting for the former president, he is using a familiar strategy: stalling.`\
-https://nytimes.com/2024/04/11/podcasts/the-daily/trump-trial-delays.html
 
