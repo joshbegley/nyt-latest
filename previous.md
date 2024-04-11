@@ -1,3 +1,11 @@
+**Vietnamese Real Estate Tycoon Sentenced to Death in $12 Billion Fraud Case**\
+`Truong My Lan received the death penalty as Vietnam’s Communist Party cracks down on corruption in the fast-growing Southeast Asian economic hub.`\
+https://nytimes.com/2024/04/11/world/asia/vietnam-lan-fraud-death-sentence.html
+
+**Cannes Festival Unveils 2024 Lineup, Including a Francis Ford Coppola Film**\
+`Organizers on Thursday announced a lineup that also features new films from Yorgos Lanthimos, David Cronenberg and Paul Schrader.`\
+https://nytimes.com/2024/04/11/movies/cannes-film-festival-lineup.html
+
 **‘Food, Inc. 2’ Review: A Second Course**\
 `Directed by Robert Kenner and Melissa Robledo, the sequel about food production in the U.S. is, in some ways, a more hopeful film.`\
 https://nytimes.com/2024/04/11/movies/food-inc-2-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/11/podcasts/the-daily/trump-trial-delays.html
 **An Inflation Surprise, and New Rules on Gun Sales**\
 `Plus, state dinner pomp and diplomacy.`\
 https://nytimes.com/2024/04/11/podcasts/an-inflation-surprise-and-new-rules-on-gun-sales.html
-
-**Ukraine’s Parliament Passes a Politically Fraught Mobilization Bill**\
-`The legislature approved a law aimed at replenishing depleted Ukrainian forces, which are under unrelenting pressure from Russian assaults.`\
-https://nytimes.com/2024/04/11/world/europe/ukraine-war-mobilization-bill.html
-
-**Power cites ‘credible’ assessments that famine has begun in northern Gaza.**\
-`Samantha Power, the head of the U.S. Agency for International Development, is the first U.S. official to classify the extreme hunger in parts of Gaza as a famine.`\
-https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas/power-cites-credible-assessments-that-famine-has-begun-in-northern-gaza
 

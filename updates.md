@@ -1,3 +1,11 @@
+**Vietnamese Real Estate Tycoon Sentenced to Death in $12 Billion Fraud Case**\
+`Truong My Lan received the death penalty as Vietnam’s Communist Party cracks down on corruption in the fast-growing Southeast Asian economic hub.`\
+https://nytimes.com/2024/04/11/world/asia/vietnam-lan-fraud-death-sentence.html
+
+**Cannes Festival Unveils 2024 Lineup, Including a Francis Ford Coppola Film**\
+`Organizers on Thursday announced a lineup that also features new films from Yorgos Lanthimos, David Cronenberg and Paul Schrader.`\
+https://nytimes.com/2024/04/11/movies/cannes-film-festival-lineup.html
+
 **‘Food, Inc. 2’ Review: A Second Course**\
 `Directed by Robert Kenner and Melissa Robledo, the sequel about food production in the U.S. is, in some ways, a more hopeful film.`\
 https://nytimes.com/2024/04/11/movies/food-inc-2-review.html
