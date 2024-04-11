@@ -1,3 +1,7 @@
+**The Joys and Challenges of Caring for Terrance the Octopus**\
+`The Clifford family of Edmond, Okla., tracked down an octopus for their son Cal, 9, who has been infatuated with the sea animals for years. What they didn’t expect were the 50 hatchlings.`\
+https://nytimes.com/2024/04/11/us/tiktok-octopus-pet-oklahoma.html
+
 **Assange’s Wife Expresses Cautious Hope as Biden Suggests U.S. Might Drop Case**\
 `The WikiLeaks founder has spent five years in a high-security London prison while contesting extradition efforts. Before that, he holed up for seven years in the Ecuadorean Embassy.`\
 https://nytimes.com/2024/04/11/world/europe/assange-extradition-us-biden.html
