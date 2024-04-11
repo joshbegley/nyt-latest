@@ -1,3 +1,11 @@
+**The Staggering Success of Trump’s Trial Delay Tactics**\
+`With criminal cases mounting for the former president, he is using a familiar strategy: stalling.`\
+https://nytimes.com/2024/04/11/podcasts/the-daily/the-staggering-success-of-trumps-trial-delay-tactics.html
+
+**An Inflation Surprise, and New Rules on Gun Sales**\
+`Plus, state dinner pomp and diplomacy.`\
+https://nytimes.com/2024/04/11/podcasts/an-inflation-surprise-and-new-rules-on-gun-sales.html
+
 **Ukraine’s Parliament Passes a Politically Fraught Mobilization Bill**\
 `The legislature approved a law aimed at replenishing depleted Ukrainian forces, which are under unrelenting pressure from Russian assaults.`\
 https://nytimes.com/2024/04/11/world/europe/ukraine-war-mobilization-bill.html

@@ -1,3 +1,11 @@
+**The Staggering Success of Trump’s Trial Delay Tactics**\
+`With criminal cases mounting for the former president, he is using a familiar strategy: stalling.`\
+https://nytimes.com/2024/04/11/podcasts/the-daily/the-staggering-success-of-trumps-trial-delay-tactics.html
+
+**An Inflation Surprise, and New Rules on Gun Sales**\
+`Plus, state dinner pomp and diplomacy.`\
+https://nytimes.com/2024/04/11/podcasts/an-inflation-surprise-and-new-rules-on-gun-sales.html
+
 **Ukraine’s Parliament Passes a Politically Fraught Mobilization Bill**\
 `The legislature approved a law aimed at replenishing depleted Ukrainian forces, which are under unrelenting pressure from Russian assaults.`\
 https://nytimes.com/2024/04/11/world/europe/ukraine-war-mobilization-bill.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/11/nyregion/cat-cafe-meow-parlour.html
 **What to Know Before You Watch ‘Fallout’**\
 `A long-running video game franchise makes the jump to prestige TV.`\
 https://nytimes.com/2024/04/11/podcasts/what-to-know-before-you-watch-fallout.html
-
-**The Playwright Who Fearlessly Reimagines America**\
-`In her new play, ‘Sally & Tom,’ Suzan-Lori Parks brings exuberant provocation to the gravest historical questions.`\
-https://nytimes.com/2024/04/11/magazine/suzan-lori-parks-plays-history-america.html
-
-**Homes for Sale in Manhattan and the Bronx**\
-`This week’s properties on Central Park South, in West Chelsea and Riverdale.`\
-https://nytimes.com/2024/04/11/realestate/homes-for-sale-in-manhattan-and-the-bronx.html
 
