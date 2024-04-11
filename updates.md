@@ -1,3 +1,7 @@
+**Health Officials Investigating Illnesses From Possible Counterfeit Botox**\
+`People in several states have fallen ill after receiving injections outside of doctors’ offices.`\
+https://nytimes.com/2024/04/11/well/live/fake-botox-illness-cdc.html
+
 **Seeking Technological Solutions to the Climate Crisis**\
 `Readers critique and suggest ways to capture, store and recycle carbon. Also: Donald Trump’s jury; food aid; cruelty to chickens; creative disagreement.`\
 https://nytimes.com/2024/04/11/opinion/climate-carbon-capture.html
