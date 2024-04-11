@@ -1,3 +1,7 @@
+**How The Times Is Covering the Trump Hush-Money Trial**\
+`Our reporting team will be live at the courthouse in Manhattan every day.`\
+https://nytimes.com/2024/04/11/insider/how-the-new-york-times-is-covering-the-trump-hush-money-trial.html
+
 **Academy Museum to Highlight Hollywood’s Jewish History After All**\
 `The museum was criticized earlier for failing to acknowledge the contributions of the Jewish pioneers who helped establish the American film studio system.`\
 https://nytimes.com/2024/04/11/movies/academy-museum-jews-hollywood.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/business/media/jackson-hinkle-israel-gaza-misinfo
 **This Test Might Be the Best Way to Track Fitness and Longevity**\
 `VO2 max has become ubiquitous in fitness circles. But what does it measure and how important is it to know yours?`\
 https://nytimes.com/2024/04/11/well/move/what-is-vo2-max-fitness.html
-
-**Renaissance Portraits That Played Hide and Seek**\
-`Portraits go undercover in the new Metropolitan Museum show “Hidden Faces,” about the practice of concealing artworks behind sliding panels and reverse-side paintings.`\
-https://nytimes.com/2024/04/11/arts/design/hidden-renaissance-met.html
 
