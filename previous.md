@@ -1,3 +1,7 @@
+**There Is No Longer a Truly Pro-Life Party in the United States**\
+`To understand why, look to the Alabama Supreme Court, not just Donald Trump.`\
+https://nytimes.com/2024/04/11/opinion/pro-life-alabama-trump.html
+
 **Were You Stuck With a Big Vet Bill? Tell Us About It.**\
 `We want to hear from pet owners about their experiences taking their animals to the vet, and how they paid for their animals’ care.`\
 https://nytimes.com/2024/04/11/health/vet-bills-pet-insurance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/arts/television/oj-simpson-tv-football-trial.html
 **What to Watch This Weekend: A Food-Fantasy Anime**\
 `“Delicious in Dungeon” on Netflix combines the aesthetic pleasures of anime with the food-nerd pleasures of Serious Eats.`\
 https://nytimes.com/2024/04/11/arts/television/delicious-in-dungeon.html
-
-**Woman Who Stabbed Childhood Friend to Impress ‘Slender Man’ Won’t Be Released**\
-`A judge denied Morgan Geyser’s request for release on Thursday, nearly a decade after the attack by a pair of 12-year-olds against their friend stunned residents of Waukesha, Wis.`\
-https://nytimes.com/2024/04/11/us/slender-man-stabbing-wisconsin.html
 
