@@ -1,3 +1,15 @@
+**The Best Cheap Sunglasses**\
+`You won't be heartbroken if they get lost.`\
+https://nytimes.com/interactive/2024/04/11/smarter-living/wirecutter/best-cheap-sunglasses.html
+
+**Liberal Justice to Retire From Wisconsin Supreme Court, Leaving Control Uncertain**\
+`Justice Ann Walsh Bradley, whose term ends in July 2025, said she will not seek re-election. The race to replace her will decide whether the court has a liberal or conservative majority.`\
+https://nytimes.com/2024/04/11/us/wisconsin-supreme-court.html
+
+**What Students Are Saying About Why School Absences Have ‘Exploded’**\
+`Chronic absenteeism has increased in American schools since the Covid-19 pandemic. We asked teenagers what they make of the trend.`\
+https://nytimes.com/2024/04/11/learning/what-students-are-saying-about-why-school-absences-have-exploded.html
+
 **Film Club: ‘There’s a Tax Season Villain, and It’s Not the I.R.S.’**\
 `Why is it so difficult and expensive for Americans to pay taxes every year? Should it be easier?`\
 https://nytimes.com/2024/04/11/learning/film-club-theres-a-tax-season-villain-and-its-not-the-irs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/11/us/oj-simpson-timeline.html
 **UNICEF says one of its vehicles was hit by fire.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas/unicef-says-one-of-vehicles-was-hit-by-fire
-
-**The Push for a Better Dengue Vaccine Grows More Urgent**\
-`A public research institute in Brazil has proved a new shot protects against the disease, but can’t make it fast enough to stop the huge outbreak sweeping Latin America.`\
-https://nytimes.com/2024/04/11/health/dengue-vaccine-brazil.html
-
-**Global Stockpile of Cholera Vaccine Is Gone as Outbreaks Spread**\
-`One company is going to great lengths to build it up, but it will be years before it returns to the minimum level.`\
-https://nytimes.com/2024/04/11/health/cholera-vaccine-shortage.html
-
-**Understanding the Racial Divide Over O.J. Simpson’s Acquittal**\
-`For many Black Americans, the verdict was proof that injustice could be applied equally.`\
-https://nytimes.com/live/2024/04/09/opinion/thepoint/oj-simpson-death-racial-divide
 
