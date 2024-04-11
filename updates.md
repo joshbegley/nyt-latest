@@ -1,3 +1,11 @@
+**City of Miami Racially Gerrymandered Voting Districts, Judge Finds**\
+`The federal judge threw out the city’s voting map, rejecting the rationale that city commissioners have used for more than 20 years.`\
+https://nytimes.com/2024/04/10/us/miami-racial-gerrymandering.html
+
+**Ohtani’s Former Interpreter Is Said to Be Negotiating a Guilty Plea**\
+`Ippei Mizuhara stands accused of covering his gambling debts by stealing millions of dollars from Shohei Ohtani’s bank account.`\
+https://nytimes.com/2024/04/10/business/shohei-ohtani-ippei-mizuhara-plea.html
+
 **A Gold Medal for America’s Rosies, the Women on the Home Front**\
 `Rosie the Riveters, American women who filled a crucial labor shortage during World War II and reshaped the work force, were honored at the Capitol.`\
 https://nytimes.com/2024/04/10/us/politics/rosie-riveter-congressional-medal.html

@@ -1,3 +1,11 @@
+**City of Miami Racially Gerrymandered Voting Districts, Judge Finds**\
+`The federal judge threw out the city’s voting map, rejecting the rationale that city commissioners have used for more than 20 years.`\
+https://nytimes.com/2024/04/10/us/miami-racial-gerrymandering.html
+
+**Ohtani’s Former Interpreter Is Said to Be Negotiating a Guilty Plea**\
+`Ippei Mizuhara stands accused of covering his gambling debts by stealing millions of dollars from Shohei Ohtani’s bank account.`\
+https://nytimes.com/2024/04/10/business/shohei-ohtani-ippei-mizuhara-plea.html
+
 **A Gold Medal for America’s Rosies, the Women on the Home Front**\
 `Rosie the Riveters, American women who filled a crucial labor shortage during World War II and reshaped the work force, were honored at the Capitol.`\
 https://nytimes.com/2024/04/10/us/politics/rosie-riveter-congressional-medal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/10/us/politics/two-imperfect-messengers-take-on-abor
 **Mister Cee, Pioneering Brooklyn D.J., Dies at 57**\
 `Born Calvin Lebrun, Mister Cee was a pioneer in New York City’s hip-hop scene and helped boost the career of the Notorious B.I.G.`\
 https://nytimes.com/2024/04/10/arts/music/mister-cee-dj-dead.html
-
-**Hamas Does Not Have 40 Hostages Who Meet Terms of Potential Swap With Israel, Officials Said**\
-`The claim raised fears that more hostages may be dead than previously believed.`\
-https://nytimes.com/2024/04/10/world/middleeast/israel-hostages-hamas-ceasefire.html
-
-**The Full Guest List for Biden’s State Dinner With Japan**\
-`The Bidens invited more than 200 guests, including Bill and Hillary Clinton, Robert De Niro, Jeff Bezos, Masayoshi Son, Tim Cook and Kristi Yamaguchi.`\
-https://nytimes.com/2024/04/10/us/politics/guest-list-biden-state-dinner-japan.html
 
