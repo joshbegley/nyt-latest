@@ -1,3 +1,11 @@
+**Were You Stuck With a Big Vet Bill? Tell Us About It.**\
+`We want to hear from pet owners about their experiences taking their animals to the vet, and how they paid for their animals’ care.`\
+https://nytimes.com/2024/04/11/health/vet-bills-pet-insurance.html
+
+**Here’s What to Know About the Hunger Crisis in Gaza**\
+`“The food production system has been completely obliterated, and the lack of entry of emergency aid within a short time has created a free fall,” a United Nations official said.`\
+https://nytimes.com/2024/04/11/world/middleeast/gaza-famine-hunger-crisis.html
+
 **Friday Briefing: U.S. General Visits Israel Amid Fears of Iranian Attack**\
 `Also, O.J. Simpson died at 76.`\
 https://nytimes.com/2024/04/11/world/asia/us-israel-iran-oj-asia.html
