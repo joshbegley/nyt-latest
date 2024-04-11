@@ -6,9 +6,9 @@ https://nytimes.com/2024/04/11/business/dealbook/the-odds-for-a-summertime-rate-
 `It was the fifth consecutive decision by the eurozone’s central bank to leave rates untouched, as inflation closes in on the bank’s 2 percent target.`\
 https://nytimes.com/2024/04/11/business/european-central-bank-rates.html
 
-**Israel announces a new operation against Hamas, a day after killing a top leader’s sons.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/2024/04/11/world/middleeast/israel-announces-a-new-operation-against-hamas-a-day-after-killing-a-top-leaders-sons.html
+**Israel Announces New Operation Against Hamas, After Killing Top Leader’s Sons**\
+`The military carried out what it called a precise operation in Gaza to kill members of the group, after attacking a car carrying three sons of Ismail Haniyeh, its political leader.`\
+https://nytimes.com/2024/04/11/world/middleeast/israel-hamas-attack-haniyeh.html
 
 **This Artificially Intelligent Pin Wants to Free You From Your Phone**\
 `The $700 Ai Pin, funded by OpenAI and Microsoft, can be helpful — until it struggles with tasks like doing math and crafting sandwich recipes.`\
