@@ -1,3 +1,7 @@
+**‘Narco-deforestation’ and the future of the Amazon**\
+`The fate of Colombia’s rainforest may lay in the hands of a rebel group linked to drugs and illegal mining.`\
+https://nytimes.com/2024/04/11/climate/amazon-deforestation-drugs-crime.html
+
 **Finally, a Case Goes to Trial**\
 `Jury selection begins Monday in Donald Trump’s hush-money trial.`\
 https://nytimes.com/2024/04/11/us/politics/trump-trial-hush-money-newyork.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/nyregion/nyc-restaurants-virtual-remote.html
 **Taylor Swift’s Music Returns to TikTok Ahead of New Album**\
 `Songs by the pop singer reappeared on TikTok despite the platform’s ongoing licensing dispute with Universal Music Group, which releases Swift’s music.`\
 https://nytimes.com/2024/04/11/arts/music/taylor-swift-tiktok-umg-music.html
-
-**The Best Cheap Sunglasses**\
-`You won't be heartbroken if they get lost.`\
-https://nytimes.com/interactive/2024/04/11/smarter-living/wirecutter/best-cheap-sunglasses.html
 
