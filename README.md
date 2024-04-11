@@ -1,3 +1,7 @@
+**Health Officials Investigating Illnesses From Possible Counterfeit Botox**\
+`People in several states have fallen ill after receiving injections outside of doctors’ offices.`\
+https://nytimes.com/2024/04/11/well/live/fake-botox-illness-cdc.html
+
 **Seeking Technological Solutions to the Climate Crisis**\
 `Readers critique and suggest ways to capture, store and recycle carbon. Also: Donald Trump’s jury; food aid; cruelty to chickens; creative disagreement.`\
 https://nytimes.com/2024/04/11/opinion/climate-carbon-capture.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/us/elections/poll-voters-election-biden-trump.htm
 **O.J. Simpson, Athlete Whose Trial Riveted the Nation, Dies at 76**\
 `He ran to football fame on the field and made fortunes in movies. Then a trial in which he was charged with killing his former wife and her friend changed everything.`\
 https://nytimes.com/2024/04/11/sports/oj-simpson-dead.html
-
-**A Steadying Force for the Africa Center Is Stepping Down**\
-`Uzodinma Iweala, chief executive of the Harlem institution, will leave at the end of 2024 after guiding it through pandemic years and securing funds.`\
-https://nytimes.com/2024/04/11/arts/design/africa-center-uzodinma-iweala-harlem.html
 
