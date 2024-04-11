@@ -1,3 +1,7 @@
+**The Man Who Kept The Times’s Lights On**\
+`Donald Dimmock, who died in March at 79, ran the electric department at The New York Times, where he worked for more than three decades.`\
+https://nytimes.com/2024/04/11/insider/donald-dimmock-nyt-electric.html
+
 **Mother Is Charged With Murder of Twins Found Dead in the Bronx**\
 `The mother, Gloria Asamoah, had been recently hospitalized, the police said, and was discharged from a psychiatric ward before her arrest.`\
 https://nytimes.com/2024/04/11/nyregion/bronx-twins-mother-murder.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/climate/biden-expand-two-california-national-monu
 **Democrats Hammer a Simple Attack on Abortion: Donald Trump Did This**\
 `The party is unifying around a blunt message that Vice President Kamala Harris pushed for privately ahead of her Friday trip to Arizona, where Democrats hope to keep Republicans reeling.`\
 https://nytimes.com/2024/04/11/us/politics/kamala-harris-abortion-biden-democrats.html
-
-**Three Japanese Sandos With the Fluffiest Milk Bread**\
-`Egg salad, pork katsu and Spam grilled cheese. Hungry yet?`\
-https://nytimes.com/2024/04/11/dining/three-japanese-sandos-with-the-fluffiest-milk-bread.html
 

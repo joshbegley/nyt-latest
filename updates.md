@@ -1,3 +1,7 @@
+**Here’s what to know about the hunger crisis in Gaza.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/2024/04/11/world/middleeast/gaza-famine-hunger-crisis.html
+
 **Mother Is Charged With Murder of Twins Found Dead in the Bronx**\
 `The mother, Gloria Asamoah, had been recently hospitalized, the police said, and was discharged from a psychiatric ward before her arrest.`\
 https://nytimes.com/2024/04/11/nyregion/bronx-twins-mother-murder.html
