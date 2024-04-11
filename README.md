@@ -1,3 +1,7 @@
+**What a Terror Attack in Israel Might Reveal About Psychedelics and Trauma**\
+`Thousands of Israelis were using mind-altering substances when Hamas-led fighters attacked a desert festival on Oct. 7. Now, scientists are studying the ravers to determine the effects of such drugs at a moment of extreme trauma.`\
+https://nytimes.com/2024/04/11/world/middleeast/israel-nova-festival-psychedelics.html
+
 **‘Save Democracy’ Democrats Look to Win Primaries on Anti-Trump Sentiment**\
 `In two races in Maryland and Virginia, candidates are turning political fame into campaigns, and a Pennsylvania race is focused on a congressman’s role in Trump’s efforts to overturn his 2020 loss.`\
 https://nytimes.com/2024/04/11/us/politics/democrats-trump-save-democracy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/us/politics/biden-japan-philippines-summit.html
 **Biden Administration Approves Expansion of Background Checks on Gun Sales**\
 `The new rule, which is likely to face legal challenges, is an attempt to regulate a fast-growing shadow market of weapons that has fueled gun violence.`\
 https://nytimes.com/2024/04/11/us/politics/biden-guns-background-checks.html
-
-**Soft Landing or No Landing? Fed’s Economic Picture Gets Complicated.**\
-`Stubborn inflation and strong growth could keep the Federal Reserve wary about interest rate cuts, eager to avoid adding vim to the economy.`\
-https://nytimes.com/2024/04/11/business/economy/federal-reserve-soft-no-landing.html
 
