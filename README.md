@@ -6,7 +6,7 @@ https://nytimes.com/2024/04/10/nyregion/cornell-jewish-students-threats.html
 `The country, along with India, is still building power stations that run on coal. Elsewhere, retirements of older plants have slowed.`\
 https://nytimes.com/2024/04/10/climate/coal-plants-china.html
 
-**In Arizona, a Conservative Court Molded by a Republican Governor**\
+**How the G.O.P. Molded the Arizona Court That Upheld the Abortion Ban**\
 `Arizona’s former governor, Doug Ducey, expanded the court to seven justices. All solid conservatives, they upheld a 160-year-old abortion ban that presents a political risk to Republicans.`\
 https://nytimes.com/2024/04/10/us/arizona-abortion-supreme-court-judges.html
 
