@@ -1,40 +1,40 @@
-**Should Colleges and Universities Get Rid of Legacy Admissions?**\
-`Is the practice of giving preferential treatment to applicants with family ties to alumni unfair?`\
-https://nytimes.com/2024/04/11/learning/should-colleges-and-universities-get-rid-of-legacy-admissions.html
+**2024, I’d Like You to Meet 1892**\
+`Great political change can unfold when the political system seems woefully stalled.`\
+https://nytimes.com/2024/04/11/opinion/2024-1892-cleveland-harrison.html
 
-**The Connections Companion No. 305**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/11/crosswords/connections-companion.html
+**‘Sasquatch Sunset’ Review: Big Feet and Small Brains**\
+`Four unrecognizably hairy actors, including Jesse Eisenberg and Riley Keough, play mythical creatures in this endearingly bonkers movie.`\
+https://nytimes.com/2024/04/11/movies/sasquatch-sunset-review.html
 
-**Nigerian Fashion Moves Beyond the Catwalk**\
-`Known for its annual fashion week, the region’s influence on style has been expanding, with the help of these designers.`\
-https://nytimes.com/2024/04/11/style/nigerian-fashion-moves-beyond-the-catwalk.html
+**‘The Greatest Hits’ Review: Yes, She Could Turn Back Time.**\
+`A high-concept movie about music and grief lacks follow through.`\
+https://nytimes.com/2024/04/11/movies/the-greatest-hits-review.html
 
-**A Hiker Was Lost in the Woods. Snow Was Falling. Time Was Running Out.**\
-`A backcountry search in the Adirondacks is a reminder that even experienced hikers should prepare for the worst.`\
-https://nytimes.com/2024/04/11/nyregion/adirondacks-hiker-lost.html
+**In Martha Diamond’s Art, She Took Manhattan**\
+`What Frank Auerbach did for Camden Town, Monet did for Paris and De Chirico did for piazzas all over Italy, Diamond did for New York’s masonry.`\
+https://nytimes.com/2024/04/11/arts/design/martha-diamond-paintings-kordansky.html
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/11/crosswords/wordle-review.html
+**‘In Flames’ Review: A Patriarchy Horror Story**\
+`Set in Pakistan, the story of a young woman and her family, hemmed in by men, shifts from realism to genre, with heart-pumping consequences.`\
+https://nytimes.com/2024/04/11/movies/in-flames-review.html
 
-**A Principal Confronted a Teenage Girl. He Could Face 10 Years in Prison.**\
-`Behind the “maelstrom” at a high-achieving, racially diverse school in a liberal New Jersey suburb.`\
-https://nytimes.com/2024/04/11/nyregion/a-principal-confronted-a-teenage-girl-he-could-face-10-years-in-prison.html
+**Hanif Abdurraqib Just Misses His Dog**\
+`His new book, “There’s Always This Year,” is a meditation on beauty, grief and mortality through the lens of basketball and Columbus, Ohio.`\
+https://nytimes.com/2024/04/11/books/review/hanif-abdurraqib-theres-always-this-year.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/11/crosswords/spelling-bee-forum.html
+**‘Civil War’ Review: We Have Met the Enemy and It Is Us. Again.**\
+`In Alex Garland’s tough new movie, a group of journalists led by Kirsten Dunst, as a photographer, travels a United States at war with itself.`\
+https://nytimes.com/2024/04/11/movies/civil-war-review-we-have-met-the-enemy-and-it-is-us-again.html
 
-**Doctor Is Fired After Maternal and Infant Deaths at a Brooklyn Hospital**\
-`A doctor involved in an infant death at Woodhull Medical Center was later involved in a C-section that led to a mother’s death, according to state investigators and hospital staff.`\
-https://nytimes.com/2024/04/11/nyregion/woodhull-brooklyn-infant-maternal-deaths.html
+**Where Are New York’s Best Acoustics? We Took a Listening Tour.**\
+`The composer Michael Gordon and members of Mantra Percussion tested the piece “Timber” in resonant spaces around the city. Here is what they learned.`\
+https://nytimes.com/2024/04/11/arts/music/michael-gordon-timber-resonant-spaces.html
 
-**A Wild Ride From ‘Dilettante’ to Director**\
-`Theda Hammel wasn’t always sure her varied résumé would include “Stress Positions,” her directorial debut.`\
-https://nytimes.com/2024/04/11/style/theda-hammel-stress-positions-john-early.html
+**Is the Boom-and-Bust Business Cycle Dead?**\
+`There is a growing view that the U.S. business cycle has changed (for better) in a more diversified economy. To some, that sounds like tempting fate.`\
+https://nytimes.com/2024/04/11/business/economy/business-cycle.html
 
-**Roberta Smith Looks Back on Three Decades of Art Criticism**\
-`Ms. Smith, a pioneering co-chief art critic for The New York Times, retired last month after more than 4,500 reviews and essays.`\
-https://nytimes.com/2024/04/11/insider/roberta-smith.html
+**Many Patients Don’t Survive End-Stage Poverty**\
+`If health care is interpreted in the truest sense of caring for people’s health, it must extend well beyond the boundaries of hospitals and clinics.`\
+https://nytimes.com/2024/04/11/opinion/doctor-safety-net-hospital.html
 
