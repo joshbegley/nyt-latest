@@ -1,3 +1,15 @@
+**Academy Museum to Highlight Hollywood’s Jewish History After All**\
+`The museum was criticized earlier for failing to acknowledge the contributions of the Jewish pioneers who helped establish the American film studio system.`\
+https://nytimes.com/2024/04/11/movies/academy-museum-jews-hollywood.html
+
+**Republicans Are Fleeing the Stench of a Rotten Congress**\
+`The great 2024 exodus is all about Trump-era discord and dysfunction.`\
+https://nytimes.com/2024/04/11/opinion/republicans-congress-trump.html
+
+**Senator Menendez and His Wife Will Be Tried Separately in Bribery Case**\
+`Nadine Menendez had alerted the court to a health issue and requested a postponement. On Thursday, a judge said Robert Menendez’s case would proceed as scheduled. His wife’s trial will be delayed.`\
+https://nytimes.com/2024/04/11/nyregion/robert-menendez-bribery-case.html
+
 **Health Officials Investigating Illnesses From Possible Counterfeit Botox**\
 `People in several states have fallen ill after receiving injections outside of doctors’ offices.`\
 https://nytimes.com/2024/04/11/well/live/fake-botox-illness-cdc.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/11/well/move/what-is-vo2-max-fitness.html
 **Renaissance Portraits That Played Hide and Seek**\
 `Portraits go undercover in the new Metropolitan Museum show “Hidden Faces,” about the practice of concealing artworks behind sliding panels and reverse-side paintings.`\
 https://nytimes.com/2024/04/11/arts/design/hidden-renaissance-met.html
-
-**A No-Chop, No-Fuss Weeknight Lasagna**\
-`Pair it with the world’s best chocolate cake (actual recipe title) for a crowd-pleasing dinner that’s less work than you’d think.`\
-https://nytimes.com/2024/04/11/dining/a-no-chop-no-fuss-weeknight-lasagna.html
-
-**How Voters Describe the 2024 Election in One Word**\
-`To dig into the complex views voters have about the upcoming rematch, we asked poll respondents to describe their feelings in their own words.`\
-https://nytimes.com/2024/04/11/us/elections/poll-voters-election-biden-trump.html
-
-**O.J. Simpson, Athlete Whose Trial Riveted the Nation, Dies at 76**\
-`He ran to football fame on the field and made fortunes in movies. Then a trial in which he was charged with killing his former wife and her friend changed everything.`\
-https://nytimes.com/2024/04/11/sports/oj-simpson-dead.html
 
