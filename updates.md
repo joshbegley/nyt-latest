@@ -1,3 +1,11 @@
+**3 Men Rescued from Pacific Island After Writing ‘Help’ With Palm Leaves**\
+`American rescuers found the lost sailors on a tiny uninhabited island in Micronesia with a damaged boat and the word spelled out on the beach.`\
+https://nytimes.com/2024/04/11/world/asia/pacific-island-rescue-us-coast-guard.html
+
+**Before He Died in Prison, Aleksei Navalny Wrote a Memoir. It’s Coming This Fall.**\
+`In the book, Navalny tells his story in his own words, chronicling his life, his rise as an opposition leader, and the attempts on his life.`\
+https://nytimes.com/2024/04/11/books/booksupdate/aleksei-navalny-memoir.html
+
 **Axios Sees A.I. Coming, and Shifts Its Strategy**\
 `“The premium for people who can tell you things you do not know will only grow in importance, and no machine will do that,” says Jim VandeHei, C.E.O. of Axios.`\
 https://nytimes.com/2024/04/11/business/media/axios-ai-strategy.html
