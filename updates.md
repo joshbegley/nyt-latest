@@ -1,5 +1,9 @@
 **Abortion, inflation, Gaza — 2024’s biggest issues are flaring this week for Trump and Biden.**\
 `Many of the key issues driving the campaign — each posing clear vulnerabilities to the two major candidates — have collided.`\
+https://nytimes.com/live/2024/04/11/us/biden-trump-election/abortion-inflation-gaza-trial-2024-trump-biden
+
+**Abortion, inflation, Gaza — 2024’s biggest issues are flaring this week for Trump and Biden.**\
+`Many of the key issues driving the campaign — each posing clear vulnerabilities to the two major candidates — have collided.`\
 https://nytimes.com/2024/04/11/us/politics/abortion-inflation-gaza-trial-2024-trump-biden.html
 
 **What’s Driving Surging Gold Bar Sales at Costco?**\
