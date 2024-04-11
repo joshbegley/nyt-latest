@@ -1,3 +1,15 @@
+**Global Stockpile of Cholera Vaccine Is Gone as Outbreaks Spread**\
+`One company is going to great lengths to build it up, but it will be years before it returns to the minimum level.`\
+https://nytimes.com/2024/04/11/health/cholera-vaccine-shortage.html
+
+**Understanding the Racial Divide Over O.J. Simpson’s Acquittal**\
+`For many Black Americans, the verdict was proof that injustice could be applied equally.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/oj-simpson-death-racial-divide
+
+**2 Simple Cocktails for Lemon Lovers**\
+`Get ready for summer with homemade hard lemonade, and the Sgroppino, an icy Italian favorite.`\
+https://nytimes.com/2024/04/11/dining/drinks/homemade-hard-lemonade-summer.html
+
 **Your (Vegetarian) Spring Cooking Checklist**\
 `Pea and ricotta frittata, sugar snap peas with radishes and mint, and rhubarb crumble make the most of the fleeting season.`\
 https://nytimes.com/2024/04/11/dining/your-vegetarian-spring-cooking-checklist.html

@@ -1,3 +1,15 @@
+**Global Stockpile of Cholera Vaccine Is Gone as Outbreaks Spread**\
+`One company is going to great lengths to build it up, but it will be years before it returns to the minimum level.`\
+https://nytimes.com/2024/04/11/health/cholera-vaccine-shortage.html
+
+**Understanding the Racial Divide Over O.J. Simpson’s Acquittal**\
+`For many Black Americans, the verdict was proof that injustice could be applied equally.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/oj-simpson-death-racial-divide
+
+**2 Simple Cocktails for Lemon Lovers**\
+`Get ready for summer with homemade hard lemonade, and the Sgroppino, an icy Italian favorite.`\
+https://nytimes.com/2024/04/11/dining/drinks/homemade-hard-lemonade-summer.html
+
 **Your (Vegetarian) Spring Cooking Checklist**\
 `Pea and ricotta frittata, sugar snap peas with radishes and mint, and rhubarb crumble make the most of the fleeting season.`\
 https://nytimes.com/2024/04/11/dining/your-vegetarian-spring-cooking-checklist.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/11/well/live/fake-botox-illness-cdc.html
 **Seeking Technological Solutions to the Climate Crisis**\
 `Readers critique and suggest ways to capture, store and recycle carbon. Also: Donald Trump’s jury; food aid; cruelty to chickens; creative disagreement.`\
 https://nytimes.com/2024/04/11/opinion/climate-carbon-capture.html
-
-**Georgia’s Lieutenant Governor to Face Inquiry for Role as Fake Trump Elector**\
-`Fani T. Willis, the district attorney of Fulton County, Ga., had been disqualified from pursuing the case against Lt. Gov. Burt Jones, but another prosecutor said he would now take it over.`\
-https://nytimes.com/2024/04/11/us/burt-jones-trump-georgia.html
-
-**‘Dawn of the Dead’ at 45: A Zombie Love Affair That Never Died**\
-`A look back at George A. Romero’s film, one of the most influential horror movies of all time, as it gets a theatrical revival.`\
-https://nytimes.com/2024/04/11/movies/dawn-of-the-dead-anniversary.html
-
-**Riding Rage Over Israel to Online Prominence**\
-`Jackson Hinkle’s incendiary commentary has generated over two million new followers on X since October — a surge that some researchers say is aided by inauthentic accounts.`\
-https://nytimes.com/2024/04/11/business/media/jackson-hinkle-israel-gaza-misinformation.html
 
