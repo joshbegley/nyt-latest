@@ -1,3 +1,7 @@
+**Ukraine’s Parliament Passes a Politically Fraught Mobilization Bill**\
+`The legislature approved a law aimed at replenishing depleted Ukrainian forces, which are under unrelenting pressure from Russian assaults.`\
+https://nytimes.com/2024/04/11/world/europe/ukraine-war-mobilization-bill.html
+
 **Power cites ‘credible’ assessments that famine has begun in northern Gaza.**\
 `Samantha Power, the head of the U.S. Agency for International Development, is the first U.S. official to classify the extreme hunger in parts of Gaza as a famine.`\
 https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas/power-cites-credible-assessments-that-famine-has-begun-in-northern-gaza
