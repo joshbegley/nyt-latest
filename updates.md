@@ -1,3 +1,15 @@
+**Corrections: April 11, 2024**\
+`Corrections that appeared in print on Thursday, April 11, 2024.`\
+https://nytimes.com/2024/04/11/pageoneplus/corrections-april-11-2024.html
+
+**Quotation of the Day: They’re Regrowing Forests, but Not for Lumber**\
+`Quotation of the Day for Thursday, April 11, 2024.`\
+https://nytimes.com/2024/04/11/pageoneplus/quotation-of-the-day-theyre-regrowing-forests-but-not-for-lumber.html
+
+**Israel’s Security Depends on Rafah**\
+`The potential gains in future security for Israelis and in regional peace make the risk of attacking the city worth it.`\
+https://nytimes.com/2024/04/11/opinion/israel-hamas-rafah-gaza.html
+
 **‘Waiting for My Time to Come’: Ukraine’s New Draft Law Unsettles the Young**\
 `Reporters from The New York Times spoke to men who could be affected by the change.`\
 https://nytimes.com/2024/04/11/world/europe/waiting-for-my-time-to-come-ukraines-new-draft-law-unsettles-the-young.html
