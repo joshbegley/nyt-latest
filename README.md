@@ -1,8 +1,12 @@
+**Assange’s Wife Expresses Cautious Hope as Biden Suggests U.S. Might Drop Case**\
+`The WikiLeaks founder has spent five years in a high-security London prison while contesting extradition efforts. Before that, he holed up for seven years in the Ecuadorean Embassy.`\
+https://nytimes.com/2024/04/11/world/europe/assange-extradition-us-biden.html
+
 **Abortion, inflation, Gaza — 2024’s biggest issues are flaring this week for Trump and Biden.**\
 `Many of the key issues driving the campaign — each posing clear vulnerabilities to the two major candidates — have collided.`\
 https://nytimes.com/live/2024/04/11/us/biden-trump-election/abortion-inflation-gaza-trial-2024-trump-biden
 
-**What’s Driving Surging Gold Bar Sales at Costco?**\
+**Why Are Gold Bar Sales Surging at Costco?**\
 `Costco may be selling up to $200 million worth of the bars each month, according to a Wells Fargo analysis. The bars sell out quickly, and customers are trading advice online about how to get them.`\
 https://nytimes.com/2024/04/11/business/costco-gold-bars.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/business/media/axios-ai-strategy.html
 **The Odds for a Summertime Rate Cut Are Dwindling**\
 `Hotter-than-expected inflation has upended bets on when the Fed will start lowering interest rates, and could complicate President Biden’s re-election bid.`\
 https://nytimes.com/2024/04/11/business/dealbook/the-odds-for-a-summertime-rate-cut-are-dwindling.html
-
-**E.C.B. Holds Rates Steady as Markets Look for Hints on First Cut**\
-`It was the fifth consecutive decision by the eurozone’s central bank to leave rates untouched, as inflation closes in on the bank’s 2 percent target.`\
-https://nytimes.com/2024/04/11/business/european-central-bank-rates.html
 
