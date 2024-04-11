@@ -1,3 +1,7 @@
+**Mother Is Charged With Murder of Twins Found Dead in the Bronx**\
+`The mother, Gloria Asamoah, had been recently hospitalized, the police said, and was discharged from a psychiatric ward before her arrest.`\
+https://nytimes.com/2024/04/11/nyregion/bronx-twins-mother-murder.html
+
 **Here’s what to know about the hunger crisis in Gaza.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas/heres-what-to-know-about-the-hunger-crisis-in-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/us/politics/kamala-harris-abortion-biden-democrat
 **Three Japanese Sandos With the Fluffiest Milk Bread**\
 `Egg salad, pork katsu and Spam grilled cheese. Hungry yet?`\
 https://nytimes.com/2024/04/11/dining/three-japanese-sandos-with-the-fluffiest-milk-bread.html
-
-**Evan Stark, 82, Dies; Broadened Understanding of Domestic Violence**\
-`He and his wife wrote pioneering studies; he used the term “coercion control” to describe psychological and physical dominance by abusers.`\
-https://nytimes.com/2024/04/11/us/evan-stark-dead.html
 
