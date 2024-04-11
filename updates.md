@@ -1,3 +1,7 @@
+**Finally, a Case Goes to Trial**\
+`Jury selection begins Monday in Donald Trump’s hush-money trial.`\
+https://nytimes.com/2024/04/11/us/politics/trump-trial-hush-money-newyork.html
+
 **NPR in Turmoil After It Is Accused of Liberal Bias**\
 `An essay from an editor at the broadcaster has generated a firestorm of criticism about the network on social media, especially among conservatives.`\
 https://nytimes.com/2024/04/11/business/media/npr-criticism-liberal-bias.html

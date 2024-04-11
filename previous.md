@@ -1,3 +1,7 @@
+**Finally, a Case Goes to Trial**\
+`Jury selection begins Monday in Donald Trump’s hush-money trial.`\
+https://nytimes.com/2024/04/11/us/politics/trump-trial-hush-money-newyork.html
+
 **NPR in Turmoil After It Is Accused of Liberal Bias**\
 `An essay from an editor at the broadcaster has generated a firestorm of criticism about the network on social media, especially among conservatives.`\
 https://nytimes.com/2024/04/11/business/media/npr-criticism-liberal-bias.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/arts/music/taylor-swift-tiktok-umg-music.html
 **The Best Cheap Sunglasses**\
 `You won't be heartbroken if they get lost.`\
 https://nytimes.com/interactive/2024/04/11/smarter-living/wirecutter/best-cheap-sunglasses.html
-
-**Liberal Justice to Retire From Wisconsin Supreme Court, Leaving Control Uncertain**\
-`Justice Ann Walsh Bradley, whose term ends in July 2025, said she will not seek re-election. The race to replace her will decide whether the court has a liberal or conservative majority.`\
-https://nytimes.com/2024/04/11/us/wisconsin-supreme-court.html
 
