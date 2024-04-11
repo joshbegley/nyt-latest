@@ -1,3 +1,7 @@
+**How the G.O.P. Molded the Arizona Court That Upheld the Abortion Ban**\
+`Arizona’s former governor, Doug Ducey, expanded the court to seven justices. All solid conservatives, they upheld a 160-year-old abortion ban that presents a political risk to Republicans.`\
+https://nytimes.com/2024/04/10/us/arizona-abortion-supreme-court-judges.html
+
 **Ex-Cornell Student Admits Targeting Jewish Students With Online Threats**\
 `Patrick Dai pleaded guilty to posting a series of messages in which he threatened to stab, rape and behead Jewish people.`\
 https://nytimes.com/2024/04/10/nyregion/cornell-jewish-students-threats.html
