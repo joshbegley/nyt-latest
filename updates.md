@@ -1,3 +1,7 @@
+**Be Awesome**\
+`Dan Caprera’s puzzle contains more than you think.`\
+https://nytimes.com/2024/04/10/crosswords/daily-puzzle-2024-04-11.html
+
 **Read the Special Grand Jury Report**\
 `A special grand jury found that the shooting of an elementary teacher by a 6-year-old student in Newport News, Va., last year was preceded by a “shocking” series of lapses by the school’s assistant principal at the time.`\
 https://nytimes.com/interactive/2024/04/10/us/virginia-shooting-special-grand-jury-report.html
