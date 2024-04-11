@@ -1,3 +1,7 @@
+**Trina Robbins, Creator and Historian of Comic Books, Dies at 84**\
+`Obsessed with comics from a young age, she was a pioneer in a male-dominated field and later documented the contributions of other women.`\
+https://nytimes.com/2024/04/10/arts/trina-robbins-dead.html
+
 **At the Japan State Dinner, Jill Biden Makes an Entrance**\
 `The first lady was glittering in crystals — four days after Melania Trump stepped out in pink at a Palm Beach fund-raiser. Together, the pictures offer a harbinger of what is to come.`\
 https://nytimes.com/2024/04/10/style/melania-trump-jill-biden-dress.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/business/shohei-ohtani-ippei-mizuhara-plea.html
 **A Gold Medal for America’s Rosies, the Women on the Home Front**\
 `Rosie the Riveters, American women who filled a crucial labor shortage during World War II and reshaped the work force, were honored at the Capitol.`\
 https://nytimes.com/2024/04/10/us/politics/rosie-riveter-congressional-medal.html
-
-**Ex-Cornell Student Admits Targeting Jewish Students With Online Threats**\
-`Patrick Dai pleaded guilty to posting a series of messages in which he threatened to stab, rape and behead Jewish people.`\
-https://nytimes.com/2024/04/10/nyregion/cornell-jewish-students-threats.html
 
