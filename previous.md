@@ -1,3 +1,7 @@
+**Read the Special Grand Jury Report**\
+`A special grand jury found that the shooting of an elementary teacher by a 6-year-old student in Newport News, Va., last year was preceded by a “shocking” series of lapses by the school’s assistant principal at the time.`\
+https://nytimes.com/interactive/2024/04/10/us/virginia-shooting-special-grand-jury-report.html
+
 **Biden’s State Dinner for Japan Was Heavy on Symbolism (and Yes, Cherry Blossoms)**\
 `The event’s musical guest, Paul Simon, even learned a little Japanese for the occasion.`\
 https://nytimes.com/2024/04/10/us/politics/biden-state-dinner-japan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/us/arizona-abortion-supreme-court-judges.html
 **Police in Philadelphia Investigate Shooting at Eid Celebration**\
 `At least three people were shot and wounded at an outdoor event, where about 1,000 people were celebrating Eid al-Fitr in West Philadelphia, the police said.`\
 https://nytimes.com/video/us/100000009408187/philadelphia-shooting-eid.html
-
-**What Biden and Kishida Agreed To in Their Effort to Bolster Ties**\
-`As they look to contain an increasingly aggressive China, the United States and Japan announced dozens of new agreements, including on military, economic, climate and space matters.`\
-https://nytimes.com/2024/04/10/us/politics/biden-japan-agreements.html
 

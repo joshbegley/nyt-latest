@@ -1,3 +1,7 @@
+**Read the Special Grand Jury Report**\
+`A special grand jury found that the shooting of an elementary teacher by a 6-year-old student in Newport News, Va., last year was preceded by a “shocking” series of lapses by the school’s assistant principal at the time.`\
+https://nytimes.com/interactive/2024/04/10/us/virginia-shooting-special-grand-jury-report.html
+
 **Biden’s State Dinner for Japan Was Heavy on Symbolism (and Yes, Cherry Blossoms)**\
 `The event’s musical guest, Paul Simon, even learned a little Japanese for the occasion.`\
 https://nytimes.com/2024/04/10/us/politics/biden-state-dinner-japan.html
