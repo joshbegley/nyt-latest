@@ -1,3 +1,7 @@
+**How The Times Is Covering the Trump Hush-Money Trial**\
+`Our reporting team will be live at the courthouse in Manhattan every day.`\
+https://nytimes.com/2024/04/11/insider/how-the-new-york-times-is-covering-the-trump-hush-money-trial.html
+
 **Academy Museum to Highlight Hollywood’s Jewish History After All**\
 `The museum was criticized earlier for failing to acknowledge the contributions of the Jewish pioneers who helped establish the American film studio system.`\
 https://nytimes.com/2024/04/11/movies/academy-museum-jews-hollywood.html
