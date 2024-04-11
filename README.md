@@ -1,3 +1,7 @@
+**Can Ukraine Find New Soldiers Without Decimating a Whole Generation?**\
+`After two years of war, Ukraine’s exhausted forces desperately need new recruits, but fighting-age men are in historically short supply.`\
+https://nytimes.com/interactive/2024/04/11/world/europe/ukraine-demographics.html
+
 **Akebono, Foreign-Born Sumo Wrestling Champion in Japan, Dies at 54**\
 `Born Chad George Ha’aheo Rowan in Hawaii, he won 11 grand championships and paved the way for other foreign wrestlers in the sport.`\
 https://nytimes.com/2024/04/10/world/akebono-taro-sumo-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/style/lenny-kravitz-workout-video-trainers.html
 **City of Miami Racially Gerrymandered Voting Districts, Judge Finds**\
 `The federal judge threw out the city’s voting map, rejecting the rationale that city commissioners have used for more than 20 years.`\
 https://nytimes.com/2024/04/10/us/miami-racial-gerrymandering.html
-
-**Ohtani’s Former Interpreter Is Said to Be Negotiating a Guilty Plea**\
-`Ippei Mizuhara stands accused of covering his gambling debts by stealing millions of dollars from Shohei Ohtani’s bank account.`\
-https://nytimes.com/2024/04/10/business/shohei-ohtani-ippei-mizuhara-plea.html
 
