@@ -1,3 +1,7 @@
+**Ukraine’s Parliament Passes a Politically Fraught Mobilization Bill**\
+`The legislature approved a law aimed at replenishing depleted Ukrainian forces, which are under unrelenting pressure from Russian assaults.`\
+https://nytimes.com/2024/04/11/world/europe/ukraine-war-mobilization-bill.html
+
 **Power cites ‘credible’ assessments that famine has begun in northern Gaza.**\
 `Samantha Power, the head of the U.S. Agency for International Development, is the first U.S. official to classify the extreme hunger in parts of Gaza as a famine.`\
 https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas/power-cites-credible-assessments-that-famine-has-begun-in-northern-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/magazine/suzan-lori-parks-plays-history-america.h
 **Homes for Sale in Manhattan and the Bronx**\
 `This week’s properties on Central Park South, in West Chelsea and Riverdale.`\
 https://nytimes.com/2024/04/11/realestate/homes-for-sale-in-manhattan-and-the-bronx.html
-
-**Homes for Sale in Connecticut and New York**\
-`This week’s properties are four-bedroom homes in Greenwich, Conn., and Port Washington, N.Y.`\
-https://nytimes.com/2024/04/11/realestate/housing-market-near-nyc.html
 
