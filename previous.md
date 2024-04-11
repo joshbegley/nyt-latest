@@ -1,3 +1,7 @@
+**O.J., Made in America, Made by TV**\
+`In O.J. Simpson’s life and trials, television was a spotlight, a microscope and a mirror.`\
+https://nytimes.com/2024/04/11/arts/television/oj-simpson-tv-football-trial.html
+
 **What to Watch This Weekend: A Food-Fantasy Anime**\
 `“Delicious in Dungeon” on Netflix combines the aesthetic pleasures of anime with the food-nerd pleasures of Serious Eats.`\
 https://nytimes.com/2024/04/11/arts/television/delicious-in-dungeon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/us/politics/trump-nauta-oliveira-dismiss-charges.
 **‘Narco-deforestation’ and the future of the Amazon**\
 `The fate of Colombia’s rainforest may lay in the hands of a rebel group linked to drugs and illegal mining.`\
 https://nytimes.com/2024/04/11/climate/amazon-deforestation-drugs-crime.html
-
-**Finally, a Case Goes to Trial**\
-`Jury selection begins Monday in Donald Trump’s hush-money trial.`\
-https://nytimes.com/2024/04/11/us/politics/trump-trial-hush-money-newyork.html
 

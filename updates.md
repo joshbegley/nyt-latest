@@ -1,3 +1,7 @@
+**O.J., Made in America, Made by TV**\
+`In O.J. Simpson’s life and trials, television was a spotlight, a microscope and a mirror.`\
+https://nytimes.com/2024/04/11/arts/television/oj-simpson-tv-football-trial.html
+
 **What to Watch This Weekend: A Food-Fantasy Anime**\
 `“Delicious in Dungeon” on Netflix combines the aesthetic pleasures of anime with the food-nerd pleasures of Serious Eats.`\
 https://nytimes.com/2024/04/11/arts/television/delicious-in-dungeon.html
