@@ -1,3 +1,15 @@
+**The Best Cheap Sunglasses**\
+`You won't be heartbroken if they get lost.`\
+https://nytimes.com/interactive/2024/04/11/smarter-living/wirecutter/best-cheap-sunglasses.html
+
+**Liberal Justice to Retire From Wisconsin Supreme Court, Leaving Control Uncertain**\
+`Justice Ann Walsh Bradley, whose term ends in July 2025, said she will not seek re-election. The race to replace her will decide whether the court has a liberal or conservative majority.`\
+https://nytimes.com/2024/04/11/us/wisconsin-supreme-court.html
+
+**What Students Are Saying About Why School Absences Have ‘Exploded’**\
+`Chronic absenteeism has increased in American schools since the Covid-19 pandemic. We asked teenagers what they make of the trend.`\
+https://nytimes.com/2024/04/11/learning/what-students-are-saying-about-why-school-absences-have-exploded.html
+
 **Film Club: ‘There’s a Tax Season Villain, and It’s Not the I.R.S.’**\
 `Why is it so difficult and expensive for Americans to pay taxes every year? Should it be easier?`\
 https://nytimes.com/2024/04/11/learning/film-club-theres-a-tax-season-villain-and-its-not-the-irs.html
