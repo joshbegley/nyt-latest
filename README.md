@@ -1,3 +1,15 @@
+**Corrections: April 11, 2024**\
+`Corrections that appeared in print on Thursday, April 11, 2024.`\
+https://nytimes.com/2024/04/11/pageoneplus/corrections-april-11-2024.html
+
+**Quotation of the Day: They’re Regrowing Forests, but Not for Lumber**\
+`Quotation of the Day for Thursday, April 11, 2024.`\
+https://nytimes.com/2024/04/11/pageoneplus/quotation-of-the-day-theyre-regrowing-forests-but-not-for-lumber.html
+
+**Israel’s Security Depends on Rafah**\
+`The potential gains in future security for Israelis and in regional peace make the risk of attacking the city worth it.`\
+https://nytimes.com/2024/04/11/opinion/israel-hamas-rafah-gaza.html
+
 **‘Waiting for My Time to Come’: Ukraine’s New Draft Law Unsettles the Young**\
 `Reporters from The New York Times spoke to men who could be affected by the change.`\
 https://nytimes.com/2024/04/11/world/europe/waiting-for-my-time-to-come-ukraines-new-draft-law-unsettles-the-young.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/10/us/virginia-school-shooting-grand-jury-report.htm
 **Be Awesome**\
 `Dan Caprera’s puzzle contains more than you think.`\
 https://nytimes.com/2024/04/10/crosswords/daily-puzzle-2024-04-11.html
-
-**Read the Special Grand Jury Report**\
-`A special grand jury found that the shooting of an elementary teacher by a 6-year-old student in Newport News, Va., last year was preceded by a “shocking” series of lapses by the school’s assistant principal at the time.`\
-https://nytimes.com/interactive/2024/04/10/us/virginia-shooting-special-grand-jury-report.html
-
-**Biden’s State Dinner for Japan Was Heavy on Symbolism (and Yes, Cherry Blossoms)**\
-`The event’s musical guest, Paul Simon, even learned a little Japanese for the occasion.`\
-https://nytimes.com/2024/04/10/us/politics/biden-state-dinner-japan.html
-
-**Trainers Give a Thumbs Down to Lenny Kravitz’s Workout Video**\
-`The rock star’s viral social media post showed him doing a furious three-in-one routine, with weights. Gym professionals had thoughts.`\
-https://nytimes.com/2024/04/10/style/lenny-kravitz-workout-video-trainers.html
 
