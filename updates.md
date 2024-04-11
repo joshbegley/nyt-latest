@@ -1,3 +1,7 @@
+**2 Simple Cocktails for Lemon Lovers**\
+`Get ready for summer with homemade hard lemonade and the Sgroppino, an icy Italian favorite.`\
+https://nytimes.com/2024/04/11/dining/drinks/homemade-hard-lemonade-summer.html
+
 **UNICEF says one of vehicles was hit by fire.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas/unicef-says-one-of-vehicles-was-hit-by-fire

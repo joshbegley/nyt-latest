@@ -15,7 +15,7 @@ https://nytimes.com/2024/04/11/health/cholera-vaccine-shortage.html
 https://nytimes.com/live/2024/04/09/opinion/thepoint/oj-simpson-death-racial-divide
 
 **2 Simple Cocktails for Lemon Lovers**\
-`Get ready for summer with homemade hard lemonade, and the Sgroppino, an icy Italian favorite.`\
+`Get ready for summer with homemade hard lemonade and the Sgroppino, an icy Italian favorite.`\
 https://nytimes.com/2024/04/11/dining/drinks/homemade-hard-lemonade-summer.html
 
 **Your (Vegetarian) Spring Cooking Checklist**\
