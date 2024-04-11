@@ -1,3 +1,7 @@
+**‘Narco-deforestation’ and the future of the Amazon**\
+`The fate of Colombia’s rainforest may lay in the hands of a rebel group linked to drugs and illegal mining.`\
+https://nytimes.com/2024/04/11/climate/amazon-deforestation-drugs-crime.html
+
 **Finally, a Case Goes to Trial**\
 `Jury selection begins Monday in Donald Trump’s hush-money trial.`\
 https://nytimes.com/2024/04/11/us/politics/trump-trial-hush-money-newyork.html
