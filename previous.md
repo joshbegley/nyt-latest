@@ -1,3 +1,11 @@
+**Power cites ‘credible’ assessments that famine has begun in northern Gaza.**\
+`Samantha Power, the head of the U.S. Agency for International Development, is the first U.S. official to classify the extreme hunger in parts of Gaza as a famine.`\
+https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas/power-cites-credible-assessments-that-famine-has-begun-in-northern-gaza
+
+**11mideast-crisis**\
+`Famine Has Begun in Northern Gaza, U.S. Official Says`\
+https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas
+
 **What a Terror Attack in Israel Might Reveal About Psychedelics and Trauma**\
 `Thousands of Israelis were using mind-altering substances when Hamas-led fighters attacked a desert festival on Oct. 7. Now, scientists are studying the ravers to determine the effects of such drugs at a moment of extreme trauma.`\
 https://nytimes.com/2024/04/11/world/middleeast/israel-nova-festival-psychedelics.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/11/realestate/homes-for-sale-in-manhattan-and-the-br
 **Homes for Sale in Connecticut and New York**\
 `This week’s properties are four-bedroom homes in Greenwich, Conn., and Port Washington, N.Y.`\
 https://nytimes.com/2024/04/11/realestate/housing-market-near-nyc.html
-
-**Biden Aims to Project United Front Against China at White House Summit**\
-`President Biden has invited the leaders of Japan and the Philippines to the White House, where they will discuss security in the South China Sea.`\
-https://nytimes.com/2024/04/11/us/politics/biden-japan-philippines-summit.html
-
-**Biden Administration Approves Expansion of Background Checks on Gun Sales**\
-`The new rule, which is likely to face legal challenges, is an attempt to regulate a fast-growing shadow market of weapons that has fueled gun violence.`\
-https://nytimes.com/2024/04/11/us/politics/biden-guns-background-checks.html
 

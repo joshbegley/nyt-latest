@@ -1,3 +1,11 @@
+**Power cites ‘credible’ assessments that famine has begun in northern Gaza.**\
+`Samantha Power, the head of the U.S. Agency for International Development, is the first U.S. official to classify the extreme hunger in parts of Gaza as a famine.`\
+https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas/power-cites-credible-assessments-that-famine-has-begun-in-northern-gaza
+
+**11mideast-crisis**\
+`Famine Has Begun in Northern Gaza, U.S. Official Says`\
+https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas
+
 **What a Terror Attack in Israel Might Reveal About Psychedelics and Trauma**\
 `Thousands of Israelis were using mind-altering substances when Hamas-led fighters attacked a desert festival on Oct. 7. Now, scientists are studying the ravers to determine the effects of such drugs at a moment of extreme trauma.`\
 https://nytimes.com/2024/04/11/world/middleeast/israel-nova-festival-psychedelics.html
