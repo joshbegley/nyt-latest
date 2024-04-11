@@ -1,3 +1,7 @@
+**Your (Vegetarian) Spring Cooking Checklist**\
+`Pea and ricotta frittata, sugar snap peas with radishes and mint, and rhubarb crumble make the most of the fleeting season.`\
+https://nytimes.com/2024/04/11/dining/your-vegetarian-spring-cooking-checklist.html
+
 **How The Times Is Covering the Trump Hush-Money Trial**\
 `Our reporting team will be live at the courthouse in Manhattan every day.`\
 https://nytimes.com/2024/04/11/insider/how-the-new-york-times-is-covering-the-trump-hush-money-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/movies/dawn-of-the-dead-anniversary.html
 **Riding Rage Over Israel to Online Prominence**\
 `Jackson Hinkle’s incendiary commentary has generated over two million new followers on X since October — a surge that some researchers say is aided by inauthentic accounts.`\
 https://nytimes.com/2024/04/11/business/media/jackson-hinkle-israel-gaza-misinformation.html
-
-**This Test Might Be the Best Way to Track Fitness and Longevity**\
-`VO2 max has become ubiquitous in fitness circles. But what does it measure and how important is it to know yours?`\
-https://nytimes.com/2024/04/11/well/move/what-is-vo2-max-fitness.html
 
