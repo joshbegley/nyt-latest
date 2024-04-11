@@ -1,3 +1,15 @@
+**Three Japanese Sandos With the Fluffiest Milk Bread**\
+`Egg salad, pork katsu and Spam grilled cheese. Hungry yet?`\
+https://nytimes.com/2024/04/11/dining/three-japanese-sandos-with-the-fluffiest-milk-bread.html
+
+**Evan Stark, 82, Dies; Broadened Understanding of Domestic Violence**\
+`He and his wife wrote pioneering studies; he used the term “coercion control” to describe psychological and physical dominance by abusers.`\
+https://nytimes.com/2024/04/11/us/evan-stark-dead.html
+
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/04/11/books/review/new-books-recommendations.html
+
 **Trump’s Co-Defendants in Documents Case Seek to Dismiss Charges**\
 `Walt Nauta and Carlos De Oliveira, who still work for the former president, will be in federal court in Florida on Friday asking a judge to throw out charges that they helped obstruct the investigation.`\
 https://nytimes.com/2024/04/11/us/politics/trump-nauta-oliveira-dismiss-charges.html

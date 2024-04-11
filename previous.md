@@ -1,3 +1,15 @@
+**Three Japanese Sandos With the Fluffiest Milk Bread**\
+`Egg salad, pork katsu and Spam grilled cheese. Hungry yet?`\
+https://nytimes.com/2024/04/11/dining/three-japanese-sandos-with-the-fluffiest-milk-bread.html
+
+**Evan Stark, 82, Dies; Broadened Understanding of Domestic Violence**\
+`He and his wife wrote pioneering studies; he used the term “coercion control” to describe psychological and physical dominance by abusers.`\
+https://nytimes.com/2024/04/11/us/evan-stark-dead.html
+
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/04/11/books/review/new-books-recommendations.html
+
 **Trump’s Co-Defendants in Documents Case Seek to Dismiss Charges**\
 `Walt Nauta and Carlos De Oliveira, who still work for the former president, will be in federal court in Florida on Friday asking a judge to throw out charges that they helped obstruct the investigation.`\
 https://nytimes.com/2024/04/11/us/politics/trump-nauta-oliveira-dismiss-charges.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/11/opinion/broadway-standing-ovations.html
 **Apple Lifts Some Restrictions on iPhone Repairs**\
 `This fall, the company will begin allowing customers to replace broken parts with used iPhone components without its previous software limits.`\
 https://nytimes.com/2024/04/11/technology/apple-iphone-repairs-parts.html
-
-**Where to Eat and Drink in Milan Right Now**\
-`A new generation of bars, restaurants and bakeries are reinvigorating the Italian city’s food scene.`\
-https://nytimes.com/2024/04/11/t-magazine/milan-bar-restaurant-bakery-guide.html
-
-**Want to Speak to an Adams Staff Member? Fill Out a 7-Page Form First.**\
-`Mayor Eric Adams is now requiring any elected official, including members of Congress, to submit an online request to speak to an administration official.`\
-https://nytimes.com/2024/04/11/nyregion/adams-city-council-permission.html
-
-**The Fried Chicken Is in New York. The Cashier Is in the Philippines.**\
-`A few New York City restaurants are experimenting with virtual staff members, who greet customers onscreen via Zoom from the Philippines.`\
-https://nytimes.com/2024/04/11/nyregion/nyc-restaurants-virtual-remote.html
 
