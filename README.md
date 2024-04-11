@@ -1,3 +1,7 @@
+**A Conversation With Deborah Feldman, an Unorthodox Voice in Germany**\
+`Feldman, who wrote in “Unorthodox” about leaving her Hasidic community in New York, has been touching a nerve in Germany, where she is now a citizen.`\
+https://nytimes.com/2024/04/11/arts/deborah-feldman-unorthodox-germany.html
+
 **Richard Lyons, Former Business School Dean, Will Be U.C. Berkeley’s New Chancellor**\
 `The appointment comes as Berkeley and college campuses across the country are facing turmoil over free speech, racial and political diversity, and affordability.`\
 https://nytimes.com/2024/04/11/us/richard-lyons-uc-berkeley-chancellor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/world/middleeast/israel-hamas-attack-haniyeh.html
 **This Artificially Intelligent Pin Wants to Free You From Your Phone**\
 `The $700 Ai Pin, funded by OpenAI and Microsoft, can be helpful — until it struggles with tasks like doing math and crafting sandwich recipes.`\
 https://nytimes.com/2024/04/11/technology/personaltech/ai-pin-humane-openai-microsoft.html
-
-**Vietnamese Real Estate Tycoon Sentenced to Death in $12 Billion Fraud Case**\
-`Truong My Lan received the death penalty as Vietnam’s Communist Party cracks down on corruption in the fast-growing Southeast Asian economic hub.`\
-https://nytimes.com/2024/04/11/world/asia/vietnam-lan-fraud-death-sentence.html
 
