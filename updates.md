@@ -1,3 +1,7 @@
+**Trina Robbins, Creator and Historian of Comic Books, Dies at 84**\
+`Obsessed with comics from a young age, she was a pioneer in a male-dominated field and later documented the contributions of other women.`\
+https://nytimes.com/2024/04/10/arts/trina-robbins-dead.html
+
 **At the Japan State Dinner, Jill Biden Makes an Entrance**\
 `The first lady was glittering in crystals — four days after Melania Trump stepped out in pink at a Palm Beach fund-raiser. Together, the pictures offer a harbinger of what is to come.`\
 https://nytimes.com/2024/04/10/style/melania-trump-jill-biden-dress.html
