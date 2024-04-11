@@ -1,3 +1,7 @@
+**A Gold Medal for America’s Rosies, the Women on the Home Front**\
+`Rosie the Riveters, American women who filled a crucial labor shortage during World War II and reshaped the work force, were honored at the Capitol.`\
+https://nytimes.com/2024/04/10/us/politics/rosie-riveter-congressional-medal.html
+
 **Ex-Cornell Student Admits Targeting Jewish Students With Online Threats**\
 `Patrick Dai pleaded guilty to posting a series of messages in which he threatened to stab, rape and behead Jewish people.`\
 https://nytimes.com/2024/04/10/nyregion/cornell-jewish-students-threats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/world/middleeast/israel-hostages-hamas-ceasefire.
 **The Full Guest List for Biden’s State Dinner With Japan**\
 `The Bidens invited more than 200 guests, including Bill and Hillary Clinton, Robert De Niro, Jeff Bezos, Masayoshi Son, Tim Cook and Kristi Yamaguchi.`\
 https://nytimes.com/2024/04/10/us/politics/guest-list-biden-state-dinner-japan.html
-
-**Hamas Leader Defiant After Israeli Strike Kills 3 of His Sons**\
-`Israel confirmed the killing of the sons of the Hamas political leader, Ismail Haniyeh, and said all three were Hamas military operatives.`\
-https://nytimes.com/2024/04/10/world/middleeast/ismail-haniyeh-hamas-israel-airstrike.html
 

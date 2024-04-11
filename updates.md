@@ -1,3 +1,7 @@
+**A Gold Medal for America’s Rosies, the Women on the Home Front**\
+`Rosie the Riveters, American women who filled a crucial labor shortage during World War II and reshaped the work force, were honored at the Capitol.`\
+https://nytimes.com/2024/04/10/us/politics/rosie-riveter-congressional-medal.html
+
 **How the G.O.P. Molded the Arizona Court That Upheld the Abortion Ban**\
 `Arizona’s former governor, Doug Ducey, expanded the court to seven justices. All solid conservatives, they upheld a 160-year-old abortion ban that presents a political risk to Republicans.`\
 https://nytimes.com/2024/04/10/us/arizona-abortion-supreme-court-judges.html
