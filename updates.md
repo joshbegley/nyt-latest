@@ -1,3 +1,7 @@
+**Friday Briefing: U.S. General Visits Israel Amid Fears of Iranian Attack**\
+`Also, O.J. Simpson died at 76.`\
+https://nytimes.com/2024/04/11/world/asia/us-israel-iran-oj-asia.html
+
 **The Man Who Kept The Times’s Lights On**\
 `Donald Dimmock, who died in March at 79, ran the electric department at The New York Times, where he worked for more than three decades.`\
 https://nytimes.com/2024/04/11/insider/donald-dimmock-nyt-electric.html
