@@ -1,3 +1,11 @@
+**In Ancient Pompeii, Dinner Surrounded by Myth**\
+`A frescoed dining room is the latest find in an excavation campaign to shore up an area of the site, which was destroyed by a powerful volcanic eruption, and better preserve it.`\
+https://nytimes.com/2024/04/11/world/europe/pompeii-dining-room-trojan-war.html
+
+**Prosecutors Say Ohtani’s Interpreter Stole $16 Million From Star**\
+`The interpreter, Ippei Mizuhara, was charged with bank fraud, after prosecutors said he stole money to pay his gambling debts.`\
+https://nytimes.com/2024/04/11/business/shohei-ohtani-ippei-mizuhara-federal-charges.html
+
 **Dish Soap to Help Build Planes? Boeing Signs Off on Supplier’s Method.**\
 `An F.A.A. audit found Spirit AeroSystems using Dawn soap and a hotel key card in the manufacturing process. The company says its techniques were inventive, not careless.`\
 https://nytimes.com/2024/04/11/us/politics/spirit-aerosystems-boeing-737-max.html
