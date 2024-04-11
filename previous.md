@@ -1,3 +1,7 @@
+**Comedians Rage Against Arizona’s Abortion Ruling**\
+`“That is crazy — but remember it’s Arizona, so it’s a dry crazy,” Stephen Colbert said of the state’s 160-year-old ban on abortion, newly reinstated.`\
+https://nytimes.com/2024/04/11/arts/television/stephen-colbert-arizona-abortion.html
+
 **Word of the Day: fabricate**\
 `This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/11/learning/word-of-the-day-fabricate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/world/akebono-taro-sumo-dead.html
 **Trina Robbins, Creator and Historian of Comic Books, Dies at 84**\
 `Obsessed with comics from a young age, she was a pioneer in a male-dominated field and later documented the contributions of other women.`\
 https://nytimes.com/2024/04/10/arts/trina-robbins-dead.html
-
-**At the Japan State Dinner, Jill Biden Makes an Entrance**\
-`The first lady was glittering in crystals — four days after Melania Trump stepped out in pink at a Palm Beach fund-raiser. Together, the pictures offer a harbinger of what is to come.`\
-https://nytimes.com/2024/04/10/style/melania-trump-jill-biden-dress.html
 

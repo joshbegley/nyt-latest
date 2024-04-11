@@ -1,3 +1,7 @@
+**Comedians Rage Against Arizona’s Abortion Ruling**\
+`“That is crazy — but remember it’s Arizona, so it’s a dry crazy,” Stephen Colbert said of the state’s 160-year-old ban on abortion, newly reinstated.`\
+https://nytimes.com/2024/04/11/arts/television/stephen-colbert-arizona-abortion.html
+
 **Akebono, First Foreign-Born Sumo Grand Champion, Dies at 54**\
 `Born in Hawaii, he moved to Japan in 1988 and won 11 grand championships. His success drove a resurgence in the sport’s popularity.`\
 https://nytimes.com/2024/04/10/world/akebono-taro-sumo-dead.html
