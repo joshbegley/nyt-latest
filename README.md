@@ -1,3 +1,7 @@
+**Bravo! Hurray! Wahoo! (Meh.)**\
+`What standing ovations, exclamation points and “irregardless” have in common.`\
+https://nytimes.com/2024/04/11/opinion/broadway-standing-ovations.html
+
 **Apple Lifts Some Restrictions on iPhone Repairs**\
 `This fall, the company will begin allowing customers to replace broken parts with used iPhone components without its previous software limits.`\
 https://nytimes.com/2024/04/11/technology/apple-iphone-repairs-parts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/learning/what-students-are-saying-about-why-schoo
 **Film Club: ‘There’s a Tax Season Villain, and It’s Not the I.R.S.’**\
 `Why is it so difficult and expensive for Americans to pay taxes every year? Should it be easier?`\
 https://nytimes.com/2024/04/11/learning/film-club-theres-a-tax-season-villain-and-its-not-the-irs.html
-
-**In Ancient Pompeii, Dinner Surrounded by Myth**\
-`A frescoed dining room is the latest find in an excavation campaign to shore up an area of the site, which was destroyed by a powerful volcanic eruption, and better preserve it.`\
-https://nytimes.com/2024/04/11/world/europe/pompeii-dining-room-trojan-war.html
 
