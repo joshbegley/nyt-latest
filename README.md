@@ -1,3 +1,7 @@
+**The Joys and Challenges of Caring for Terrance the Octopus**\
+`The Clifford family of Edmond, Okla., tracked down an octopus for their son Cal, 9, who has been infatuated with the sea animals for years. What they didn’t expect were the 50 hatchlings.`\
+https://nytimes.com/2024/04/11/us/tiktok-octopus-pet-oklahoma.html
+
 **Assange’s Wife Expresses Cautious Hope as Biden Suggests U.S. Might Drop Case**\
 `The WikiLeaks founder has spent five years in a high-security London prison while contesting extradition efforts. Before that, he holed up for seven years in the Ecuadorean Embassy.`\
 https://nytimes.com/2024/04/11/world/europe/assange-extradition-us-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/books/booksupdate/aleksei-navalny-memoir.html
 **Axios Sees A.I. Coming, and Shifts Its Strategy**\
 `“The premium for people who can tell you things you do not know will only grow in importance, and no machine will do that,” says Jim VandeHei, C.E.O. of Axios.`\
 https://nytimes.com/2024/04/11/business/media/axios-ai-strategy.html
-
-**The Odds for a Summertime Rate Cut Are Dwindling**\
-`Hotter-than-expected inflation has upended bets on when the Fed will start lowering interest rates, and could complicate President Biden’s re-election bid.`\
-https://nytimes.com/2024/04/11/business/dealbook/the-odds-for-a-summertime-rate-cut-are-dwindling.html
 
