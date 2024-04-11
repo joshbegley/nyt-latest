@@ -1,3 +1,7 @@
+**Should Colleges and Universities Get Rid of Legacy Admissions?**\
+`Is the practice of giving preferential treatment to applicants with family ties to alumni unfair?`\
+https://nytimes.com/2024/04/11/learning/should-colleges-and-universities-get-rid-of-legacy-admissions.html
+
 **The Connections Companion No. 305**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/04/11/crosswords/connections-companion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/style/theda-hammel-stress-positions-john-early.ht
 **Roberta Smith Looks Back on Three Decades of Art Criticism**\
 `Ms. Smith, a pioneering co-chief art critic for The New York Times, retired last month after more than 4,500 reviews and essays.`\
 https://nytimes.com/2024/04/11/insider/roberta-smith.html
-
-**Comedians Rage Against Arizona’s Abortion Ruling**\
-`“That is crazy — but remember it’s Arizona, so it’s a dry crazy,” Stephen Colbert said of the state’s 160-year-old ban on abortion, newly reinstated.`\
-https://nytimes.com/2024/04/11/arts/television/stephen-colbert-arizona-abortion.html
 
