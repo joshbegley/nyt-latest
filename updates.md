@@ -1,3 +1,7 @@
+**Biden’s State Dinner for Japan Was Heavy on Symbolism (and Yes, Cherry Blossoms)**\
+`The event’s musical guest, Paul Simon, even learned a little Japanese for the occasion.`\
+https://nytimes.com/2024/04/10/us/politics/biden-state-dinner-japan.html
+
 **Trainers Give a Thumbs Down to Lenny Kravitz’s Workout Video**\
 `The rock star’s viral social media post showed him doing a furious three-in-one routine, with weights. Gym professionals had thoughts.`\
 https://nytimes.com/2024/04/10/style/lenny-kravitz-workout-video-trainers.html
