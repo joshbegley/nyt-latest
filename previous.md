@@ -1,3 +1,7 @@
+**Trump Says He Is ‘Not Running to Terminate’ the Affordable Care Act**\
+`After repeated attacks from Democrats, Donald Trump, who has often vowed to repeal Obamacare, said that if elected he would only improve it, without offering specifics.`\
+https://nytimes.com/2024/04/11/us/politics/trump-biden-affordable-care-act.html
+
 **Share Your Story About the Organ Transplant System**\
 `We want to hear from doctors, nurses, technicians, patients and others with experience in the system. Tell us your experiences below.`\
 https://nytimes.com/2024/04/11/us/news-tips-organ-transplant-system.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/arts/television/oj-simpson-acting-roles.html
 **O.J. Simpson’s Legacy Won’t Be the One He May Have Imagined**\
 `He will be remembered, first and foremost, as a spectacle.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/oj-simpson-legacy-race
-
-**O.J. Simpson Died at 76**\
-`Also, the U.S. is preparing for Iran to retaliate soon. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/04/11/briefing/oj-simpson-died-cholera-vaccine-stockpile.html
 
