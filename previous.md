@@ -1,3 +1,19 @@
+**‘Food, Inc. 2’ Review: A Second Course**\
+`Directed by Robert Kenner and Melissa Robledo, the sequel about food production in the U.S. is, in some ways, a more hopeful film.`\
+https://nytimes.com/2024/04/11/movies/food-inc-2-review.html
+
+**‘Omen’ Review: Life in a Different Space-Time Continuum**\
+`This trippy ensemble drama set in Kinshasa explores Congolese society through magical realism.`\
+https://nytimes.com/2024/04/11/movies/omen-review.html
+
+**‘Don’t Tell Mom the Babysitter’s Dead’ Review: The Laughs Are Alive**\
+`Wade Allain-Marcus has directed a rollicking update of the 1991 cult favorite.`\
+https://nytimes.com/2024/04/11/movies/dont-tell-mom-the-babysitters-dead-review.html
+
+**‘Arcadian’ Review: Take Two as Needed for Postapocalyptic Pain**\
+`Nicolas Cage defends his family against a paranormal siege in this derivative, low-budget creature feature.`\
+https://nytimes.com/2024/04/11/movies/arcadian-review.html
+
 **Biden’s Cash Advantage**\
 `We explain the benefits — and the limits — of Biden’s fund-raising.`\
 https://nytimes.com/2024/04/11/briefing/bidens-cash-advantage.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/11/world/europe/ukraine-war-mobilization-bill.html
 **Power cites ‘credible’ assessments that famine has begun in northern Gaza.**\
 `Samantha Power, the head of the U.S. Agency for International Development, is the first U.S. official to classify the extreme hunger in parts of Gaza as a famine.`\
 https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas/power-cites-credible-assessments-that-famine-has-begun-in-northern-gaza
-
-**11mideast-crisis**\
-`Famine Has Begun in Northern Gaza, U.S. Official Says`\
-https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas
-
-**What a Terror Attack in Israel Might Reveal About Psychedelics and Trauma**\
-`Thousands of Israelis were using mind-altering substances when Hamas-led fighters attacked a desert festival on Oct. 7. Now, scientists are studying the ravers to determine the effects of such drugs at a moment of extreme trauma.`\
-https://nytimes.com/2024/04/11/world/middleeast/israel-nova-festival-psychedelics.html
-
-**‘Save Democracy’ Democrats Look to Win Primaries on Anti-Trump Sentiment**\
-`In two races in Maryland and Virginia, candidates are turning political fame into campaigns, and a Pennsylvania race is focused on a congressman’s role in Trump’s efforts to overturn his 2020 loss.`\
-https://nytimes.com/2024/04/11/us/politics/democrats-trump-save-democracy.html
-
-**36 Hours in Toronto**\
-`Savor the diversity of this lakefront city though its hidden bars, small-but-fascinating museums and restaurants with dishes like jerk chicken chow mein and Hong Kong-style French toast.`\
-https://nytimes.com/interactive/2024/04/11/travel/things-to-do-toronto.html
 
