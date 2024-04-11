@@ -1,3 +1,11 @@
+**The Odds for a Summertime Rate Cut Are Dwindling**\
+`Hotter-than-expected inflation has upended bets on when the Fed will start lowering interest rates, and could complicate President Biden’s re-election bid.`\
+https://nytimes.com/2024/04/11/business/dealbook/the-odds-for-a-summertime-rate-cut-are-dwindling.html
+
+**E.C.B. Holds Rates Steady as Markets Look for Hints on First Cut**\
+`It was the fifth consecutive decision by the eurozone’s central bank to leave rates untouched, as inflation closes in on the bank’s 2 percent target.`\
+https://nytimes.com/2024/04/11/business/european-central-bank-rates.html
+
 **Israel announces a new operation against Hamas, a day after killing a top leader’s sons.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/2024/04/11/world/middleeast/israel-announces-a-new-operation-against-hamas-a-day-after-killing-a-top-leaders-sons.html
