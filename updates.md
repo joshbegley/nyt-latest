@@ -1,3 +1,7 @@
+**New York City Is Closer to Getting Its First Soccer Stadium**\
+`The City Council voted to allow the New York City Football Club to build a facility for its team in Willets Point, Queens, across the street from Citi Field.`\
+https://nytimes.com/2024/04/11/nyregion/nyc-football-club-soccer-stadium.html
+
 **Before He Was Infamous, O.J. Simpson’s Acting Helped Make Him Famous**\
 `Simpson began acting while still a football star, appearing in titles as varied as “Roots,” “The Towering Inferno” and the “Naked Gun” films.`\
 https://nytimes.com/2024/04/11/arts/television/oj-simpson-acting-roles.html

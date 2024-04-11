@@ -1,10 +1,14 @@
-**Before He Was Infamous, O.J. Simpson’s Acting Helped Make Him Famous**\
-`Simpson began acting while still a football star, appearing in titles as varied as “Roots,” “The Towering Inferno” and the “Naked Gun” films.`\
-https://nytimes.com/2024/04/11/arts/television/oj-simpson-acting-roles.html
+**New York City Is Closer to Getting Its First Soccer Stadium**\
+`The City Council voted to allow the New York City Football Club to build a facility for its team in Willets Point, Queens, across the street from Citi Field.`\
+https://nytimes.com/2024/04/11/nyregion/nyc-football-club-soccer-stadium.html
 
 **Arizona May Be Just Purple Enough for Abortion to Matter**\
 `Assuming voters think it’s more important than the border.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/arizona-abortion-voters-republicans
+
+**Before He Was Infamous, O.J. Simpson’s Acting Helped Make Him Famous**\
+`Simpson began acting while still a football star, appearing in titles as varied as “Roots,” “The Towering Inferno” and the “Naked Gun” films.`\
+https://nytimes.com/2024/04/11/arts/television/oj-simpson-acting-roles.html
 
 **O.J. Simpson’s Legacy Won’t Be the One He May Have Imagined**\
 `He will be remembered, first and foremost, as a spectacle.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/world/asia/us-israel-iran-oj-asia.html
 **The Man Who Kept The Times’s Lights On**\
 `Donald Dimmock, who died in March at 79, ran the electric department at The New York Times, where he worked for more than three decades.`\
 https://nytimes.com/2024/04/11/insider/donald-dimmock-nyt-electric.html
-
-**Mother Is Charged With Murder of Twins Found Dead in the Bronx**\
-`The mother, Gloria Asamoah, had been recently hospitalized, the police said, and was discharged from a psychiatric ward before her arrest.`\
-https://nytimes.com/2024/04/11/nyregion/bronx-twins-mother-murder.html
 
