@@ -1,3 +1,11 @@
+**Seeking Technological Solutions to the Climate Crisis**\
+`Readers critique and suggest ways to capture, store and recycle carbon. Also: Donald Trump’s jury; food aid; cruelty to chickens; creative disagreement.`\
+https://nytimes.com/2024/04/11/opinion/climate-carbon-capture.html
+
+**Georgia’s Lieutenant Governor to Face Inquiry for Role as Fake Trump Elector**\
+`Fani T. Willis, the district attorney of Fulton County, Ga., had been disqualified from pursuing the case against Lt. Gov. Burt Jones, but another prosecutor said he would now take it over.`\
+https://nytimes.com/2024/04/11/us/burt-jones-trump-georgia.html
+
 **‘Dawn of the Dead’ at 45: A Zombie Love Affair That Never Died**\
 `A look back at George A. Romero’s film, one of the most influential horror movies of all time, as it gets a theatrical revival.`\
 https://nytimes.com/2024/04/11/movies/dawn-of-the-dead-anniversary.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/11/sports/oj-simpson-dead.html
 **A Steadying Force for the Africa Center Is Stepping Down**\
 `Uzodinma Iweala, chief executive of the Harlem institution, will leave at the end of 2024 after guiding it through pandemic years and securing funds.`\
 https://nytimes.com/2024/04/11/arts/design/africa-center-uzodinma-iweala-harlem.html
-
-**Harvard Will Require Test Scores for Admissions**\
-`The university is the latest in a series of highly selective schools to end its test-optional policy.`\
-https://nytimes.com/2024/04/11/us/harvard-test-scores-admissions.html
-
-**Pentagon Official Heads to Israel Amid Fears of Iranian Attack**\
-`U.S. officials have said they are bracing for a response to a strike in Syria this month that killed several senior Iranian commanders.`\
-https://nytimes.com/2024/04/11/world/middleeast/israel-iran-attack-us-military.html
 
