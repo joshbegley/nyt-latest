@@ -1,3 +1,7 @@
+**Friday Briefing: U.S. General Visits Israel Amid Fears of Iranian Attack**\
+`Also, O.J. Simpson died at 76.`\
+https://nytimes.com/2024/04/11/world/asia/us-israel-iran-oj-asia.html
+
 **The Man Who Kept The Times’s Lights On**\
 `Donald Dimmock, who died in March at 79, ran the electric department at The New York Times, where he worked for more than three decades.`\
 https://nytimes.com/2024/04/11/insider/donald-dimmock-nyt-electric.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/us/slender-man-stabbing-wisconsin.html
 **Biden Administration Said to Expand Two California National Monuments**\
 `The San Gabriel Mountains National Monument and the Berryessa Snow Mountain National Monument are expected to grow by a combined total of about 130,000 acres.`\
 https://nytimes.com/2024/04/11/climate/biden-expand-two-california-national-monuments.html
-
-**Democrats Hammer a Simple Attack on Abortion: Donald Trump Did This**\
-`The party is unifying around a blunt message that Vice President Kamala Harris pushed for privately ahead of her Friday trip to Arizona, where Democrats hope to keep Republicans reeling.`\
-https://nytimes.com/2024/04/11/us/politics/kamala-harris-abortion-biden-democrats.html
 
