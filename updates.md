@@ -1,3 +1,7 @@
+**Bravo! Hurray! Wahoo! (Meh.)**\
+`What standing ovations, exclamation points and “irregardless” have in common.`\
+https://nytimes.com/2024/04/11/opinion/broadway-standing-ovations.html
+
 **Apple Lifts Some Restrictions on iPhone Repairs**\
 `This fall, the company will begin allowing customers to replace broken parts with used iPhone components without its previous software limits.`\
 https://nytimes.com/2024/04/11/technology/apple-iphone-repairs-parts.html
