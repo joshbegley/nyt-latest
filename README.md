@@ -1,3 +1,7 @@
+**Texas Surgeon Is Accused of Secretly Denying Liver Transplants**\
+`A Houston hospital is investigating whether a doctor altered a transplant list to make his patients ineligible for care. A disproportionate number of them have died while waiting for new organs.`\
+https://nytimes.com/2024/04/11/us/organ-transplants-houston.html
+
 **New York City Is Closer to Getting Its First Soccer Stadium**\
 `The City Council voted to allow the New York City Football Club to build a facility for its team in Willets Point, Queens, across the street from Citi Field.`\
 https://nytimes.com/2024/04/11/nyregion/nyc-football-club-soccer-stadium.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/health/vet-bills-pet-insurance.html
 **Friday Briefing: U.S. General Visits Israel Amid Fears of Iranian Attack**\
 `Also, O.J. Simpson died at 76.`\
 https://nytimes.com/2024/04/11/world/asia/us-israel-iran-oj-asia.html
-
-**The Man Who Kept The Times’s Lights On**\
-`Donald Dimmock, who died in March at 79, ran the electric department at The New York Times, where he worked for more than three decades.`\
-https://nytimes.com/2024/04/11/insider/donald-dimmock-nyt-electric.html
 
