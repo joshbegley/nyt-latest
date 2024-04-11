@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Japan’s prime minister visits the White House.`\
+https://nytimes.com/2024/04/11/briefing/biden-japan-visit-korea-election.html
+
 **Corrections: April 11, 2024**\
 `Corrections that appeared in print on Thursday, April 11, 2024.`\
 https://nytimes.com/2024/04/11/pageoneplus/corrections-april-11-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/style/melania-trump-jill-biden-dress.html
 **Before Teacher Was Shot, Assistant Principal Was Warned First Grader Had a Gun**\
 `A Virginia grand jury found that the administrator had not acted on reports from staff members that the 6-year-old had brought a firearm to Richneck Elementary.`\
 https://nytimes.com/2024/04/10/us/virginia-school-shooting-grand-jury-report.html
-
-**Be Awesome**\
-`Dan Caprera’s puzzle contains more than you think.`\
-https://nytimes.com/2024/04/10/crosswords/daily-puzzle-2024-04-11.html
 
