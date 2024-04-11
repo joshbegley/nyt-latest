@@ -1,40 +1,40 @@
-**2024, I’d Like You to Meet 1892**\
-`Great political change can unfold when the political system seems woefully stalled.`\
-https://nytimes.com/2024/04/11/opinion/2024-1892-cleveland-harrison.html
+**‘Save Democracy’ Democrats Look to Win Primaries on Anti-Trump Sentiment**\
+`In two races in Maryland and Virginia, candidates are turning political fame into campaigns, and a Pennsylvania race is focused on a congressman’s role in Trump’s efforts to overturn his 2020 loss.`\
+https://nytimes.com/2024/04/11/us/politics/democrats-trump-save-democracy.html
 
-**‘Sasquatch Sunset’ Review: Big Feet and Small Brains**\
-`Four unrecognizably hairy actors, including Jesse Eisenberg and Riley Keough, play mythical creatures in this endearingly bonkers movie.`\
-https://nytimes.com/2024/04/11/movies/sasquatch-sunset-review.html
+**36 Hours in Toronto**\
+`Savor the diversity of this lakefront city though its hidden bars, small-but-fascinating museums and restaurants with dishes like jerk chicken chow mein and Hong Kong-style French toast.`\
+https://nytimes.com/interactive/2024/04/11/travel/things-to-do-toronto.html
 
-**‘The Greatest Hits’ Review: Yes, She Could Turn Back Time.**\
-`A high-concept movie about music and grief lacks follow through.`\
-https://nytimes.com/2024/04/11/movies/the-greatest-hits-review.html
+**A Cafe for Cat People Opens Downtown**\
+`At Meow Parlour, people will be able to drink coffee and play with cats, and in some cases adopt them.`\
+https://nytimes.com/2024/04/11/nyregion/cat-cafe-meow-parlour.html
 
-**In Martha Diamond’s Art, She Took Manhattan**\
-`What Frank Auerbach did for Camden Town, Monet did for Paris and De Chirico did for piazzas all over Italy, Diamond did for New York’s masonry.`\
-https://nytimes.com/2024/04/11/arts/design/martha-diamond-paintings-kordansky.html
+**What to Know Before You Watch ‘Fallout’**\
+`A long-running video game franchise makes the jump to prestige TV.`\
+https://nytimes.com/2024/04/11/podcasts/what-to-know-before-you-watch-fallout.html
 
-**‘In Flames’ Review: A Patriarchy Horror Story**\
-`Set in Pakistan, the story of a young woman and her family, hemmed in by men, shifts from realism to genre, with heart-pumping consequences.`\
-https://nytimes.com/2024/04/11/movies/in-flames-review.html
+**The Playwright Who Fearlessly Reimagines America**\
+`In her new play, ‘Sally & Tom,’ Suzan-Lori Parks brings exuberant provocation to the gravest historical questions.`\
+https://nytimes.com/2024/04/11/magazine/suzan-lori-parks-plays-history-america.html
 
-**Hanif Abdurraqib Just Misses His Dog**\
-`His new book, “There’s Always This Year,” is a meditation on beauty, grief and mortality through the lens of basketball and Columbus, Ohio.`\
-https://nytimes.com/2024/04/11/books/review/hanif-abdurraqib-theres-always-this-year.html
+**Homes for Sale in Manhattan and the Bronx**\
+`This week’s properties on Central Park South, in West Chelsea and Riverdale.`\
+https://nytimes.com/2024/04/11/realestate/homes-for-sale-in-manhattan-and-the-bronx.html
 
-**‘Civil War’ Review: We Have Met the Enemy and It Is Us. Again.**\
-`In Alex Garland’s tough new movie, a group of journalists led by Kirsten Dunst, as a photographer, travels a United States at war with itself.`\
-https://nytimes.com/2024/04/11/movies/civil-war-review-we-have-met-the-enemy-and-it-is-us-again.html
+**Homes for Sale in Connecticut and New York**\
+`This week’s properties are four-bedroom homes in Greenwich, Conn., and Port Washington, N.Y.`\
+https://nytimes.com/2024/04/11/realestate/housing-market-near-nyc.html
 
-**Where Are New York’s Best Acoustics? We Took a Listening Tour.**\
-`The composer Michael Gordon and members of Mantra Percussion tested the piece “Timber” in resonant spaces around the city. Here is what they learned.`\
-https://nytimes.com/2024/04/11/arts/music/michael-gordon-timber-resonant-spaces.html
+**Biden Aims to Project United Front Against China at White House Summit**\
+`President Biden has invited the leaders of Japan and the Philippines to the White House, where they will discuss security in the South China Sea.`\
+https://nytimes.com/2024/04/11/us/politics/biden-japan-philippines-summit.html
 
-**Is the Boom-and-Bust Business Cycle Dead?**\
-`There is a growing view that the U.S. business cycle has changed (for better) in a more diversified economy. To some, that sounds like tempting fate.`\
-https://nytimes.com/2024/04/11/business/economy/business-cycle.html
+**Biden Administration Approves Expansion of Background Checks on Gun Sales**\
+`The new rule, which is likely to face legal challenges, is an attempt to regulate a fast-growing shadow market of weapons that has fueled gun violence.`\
+https://nytimes.com/2024/04/11/us/politics/biden-guns-background-checks.html
 
-**Many Patients Don’t Survive End-Stage Poverty**\
-`If health care is interpreted in the truest sense of caring for people’s health, it must extend well beyond the boundaries of hospitals and clinics.`\
-https://nytimes.com/2024/04/11/opinion/doctor-safety-net-hospital.html
+**Soft Landing or No Landing? Fed’s Economic Picture Gets Complicated.**\
+`Stubborn inflation and strong growth could keep the Federal Reserve wary about interest rate cuts, eager to avoid adding vim to the economy.`\
+https://nytimes.com/2024/04/11/business/economy/federal-reserve-soft-no-landing.html
 
