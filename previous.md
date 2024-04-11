@@ -1,3 +1,7 @@
+**Mexico’s 2024 General Election: What to Know**\
+`Mexico’s election will make history. It will be the largest in terms of voters and seats, and the country will elect a female president for the first time.`\
+https://nytimes.com/2024/04/11/world/americas/mexico-2024-general-election.html
+
 **The Joys and Challenges of Caring for Terrance the Octopus**\
 `The Clifford family of Edmond, Okla., tracked down an octopus for their son Cal, 9, who has been infatuated with the sea animals for years. What they didn’t expect were the 50 hatchlings.`\
 https://nytimes.com/2024/04/11/us/tiktok-octopus-pet-oklahoma.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/world/asia/pacific-island-rescue-us-coast-guard.h
 **Before He Died in Prison, Aleksei Navalny Wrote a Memoir. It’s Coming This Fall.**\
 `In the book, Navalny tells his story in his own words, chronicling his life, his rise as an opposition leader, and the attempts on his life.`\
 https://nytimes.com/2024/04/11/books/booksupdate/aleksei-navalny-memoir.html
-
-**Axios Sees A.I. Coming, and Shifts Its Strategy**\
-`“The premium for people who can tell you things you do not know will only grow in importance, and no machine will do that,” says Jim VandeHei, C.E.O. of Axios.`\
-https://nytimes.com/2024/04/11/business/media/axios-ai-strategy.html
 

@@ -1,3 +1,7 @@
+**Mexico’s 2024 General Election: What to Know**\
+`Mexico’s election will make history. It will be the largest in terms of voters and seats, and the country will elect a female president for the first time.`\
+https://nytimes.com/2024/04/11/world/americas/mexico-2024-general-election.html
+
 **The Joys and Challenges of Caring for Terrance the Octopus**\
 `The Clifford family of Edmond, Okla., tracked down an octopus for their son Cal, 9, who has been infatuated with the sea animals for years. What they didn’t expect were the 50 hatchlings.`\
 https://nytimes.com/2024/04/11/us/tiktok-octopus-pet-oklahoma.html
