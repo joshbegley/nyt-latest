@@ -1,3 +1,11 @@
+**Before He Was Infamous, O.J. Simpson’s Acting Helped Make Him Famous**\
+`Simpson began acting while still a football star, appearing in titles as varied as “Roots,” “The Towering Inferno” and the “Naked Gun” films.`\
+https://nytimes.com/2024/04/11/arts/television/oj-simpson-acting-roles.html
+
+**Arizona May Be Just Purple Enough for Abortion to Matter**\
+`Assuming voters think it’s more important than the border.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/arizona-abortion-voters-republicans
+
 **O.J. Simpson’s Legacy Won’t Be the One He May Have Imagined**\
 `He will be remembered, first and foremost, as a spectacle.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/oj-simpson-legacy-race

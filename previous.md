@@ -1,3 +1,11 @@
+**Before He Was Infamous, O.J. Simpson’s Acting Helped Make Him Famous**\
+`Simpson began acting while still a football star, appearing in titles as varied as “Roots,” “The Towering Inferno” and the “Naked Gun” films.`\
+https://nytimes.com/2024/04/11/arts/television/oj-simpson-acting-roles.html
+
+**Arizona May Be Just Purple Enough for Abortion to Matter**\
+`Assuming voters think it’s more important than the border.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/arizona-abortion-voters-republicans
+
 **O.J. Simpson’s Legacy Won’t Be the One He May Have Imagined**\
 `He will be remembered, first and foremost, as a spectacle.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/oj-simpson-legacy-race
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/11/insider/donald-dimmock-nyt-electric.html
 **Mother Is Charged With Murder of Twins Found Dead in the Bronx**\
 `The mother, Gloria Asamoah, had been recently hospitalized, the police said, and was discharged from a psychiatric ward before her arrest.`\
 https://nytimes.com/2024/04/11/nyregion/bronx-twins-mother-murder.html
-
-**Here’s What to Know About the Hunger Crisis in Gaza**\
-`“The food production system has been completely obliterated, and the lack of entry of emergency aid within a short time has created a free fall,” a United Nations official said.`\
-https://nytimes.com/2024/04/11/world/middleeast/gaza-famine-hunger-crisis.html
-
-**U.S. Sends a Top General to Israel Amid Fears of Iranian Strikes**\
-`The visit of Gen. Michael E. Kurilla, the U.S. military commander in the Middle East, came as diplomats sought to avert a wider war.`\
-https://nytimes.com/2024/04/11/world/middleeast/israel-iran-hamas-strikes.html
 
