@@ -1,3 +1,11 @@
+**The Fried Chicken Is in New York. The Cashier Is in the Philippines.**\
+`A few New York City restaurants are experimenting with virtual staff members, who greet customers onscreen via Zoom from the Philippines.`\
+https://nytimes.com/2024/04/11/nyregion/nyc-restaurants-virtual-remote.html
+
+**Taylor Swift’s Music Returns to TikTok Ahead of New Album**\
+`Songs by the pop singer reappeared on TikTok despite the platform’s ongoing licensing dispute with Universal Music Group, which releases Swift’s music.`\
+https://nytimes.com/2024/04/11/arts/music/taylor-swift-tiktok-umg-music.html
+
 **The Best Cheap Sunglasses**\
 `You won't be heartbroken if they get lost.`\
 https://nytimes.com/interactive/2024/04/11/smarter-living/wirecutter/best-cheap-sunglasses.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/11/us/politics/spirit-aerosystems-boeing-737-max.htm
 **John Bolton, Former Trump Adviser, Says He Will Vote for Dick Cheney**\
 `The diplomat, a fixture in multiple Republican administrations who now opposes Mr. Trump, said he also voted for the former vice president in 2020.`\
 https://nytimes.com/2024/04/11/us/politics/john-bolton-trump-cheney.html
-
-**The Life of O.J. Simpson: A Timeline**\
-`He was a football star, actor, commercial pitchman, and a defendant in a gruesome double murder whose trial gripped the nation.`\
-https://nytimes.com/2024/04/11/us/oj-simpson-timeline.html
-
-**UNICEF says one of its vehicles was hit by fire.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas/unicef-says-one-of-vehicles-was-hit-by-fire
 
