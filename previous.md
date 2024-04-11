@@ -1,3 +1,7 @@
+**Will an Acknowledgment of Famine in Gaza Save Children’s Lives?**\
+`The word “famine” can light a fire under international players to act urgently.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/gaza-famine-usaid
+
 **Bravo! Hurray! Wahoo! (Meh.)**\
 `What standing ovations, exclamation points and “irregardless” have in common.`\
 https://nytimes.com/2024/04/11/opinion/broadway-standing-ovations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/us/wisconsin-supreme-court.html
 **What Students Are Saying About Why School Absences Have ‘Exploded’**\
 `Chronic absenteeism has increased in American schools since the Covid-19 pandemic. We asked teenagers what they make of the trend.`\
 https://nytimes.com/2024/04/11/learning/what-students-are-saying-about-why-school-absences-have-exploded.html
-
-**Film Club: ‘There’s a Tax Season Villain, and It’s Not the I.R.S.’**\
-`Why is it so difficult and expensive for Americans to pay taxes every year? Should it be easier?`\
-https://nytimes.com/2024/04/11/learning/film-club-theres-a-tax-season-villain-and-its-not-the-irs.html
 

@@ -1,3 +1,7 @@
+**Will an Acknowledgment of Famine in Gaza Save Children’s Lives?**\
+`The word “famine” can light a fire under international players to act urgently.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/gaza-famine-usaid
+
 **Bravo! Hurray! Wahoo! (Meh.)**\
 `What standing ovations, exclamation points and “irregardless” have in common.`\
 https://nytimes.com/2024/04/11/opinion/broadway-standing-ovations.html
