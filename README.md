@@ -1,3 +1,7 @@
+**Senator Menendez and His Wife Will Be Tried Separately in Bribery Case**\
+`Nadine Menendez had alerted the court to a health issue and requested a postponement. On Thursday, a judge said Robert Menendez’s case would proceed as scheduled. His wife’s trial will be delayed.`\
+https://nytimes.com/2024/04/11/nyregion/robert-menendez-bribery-case.html
+
 **Health Officials Investigating Illnesses From Possible Counterfeit Botox**\
 `People in several states have fallen ill after receiving injections outside of doctors’ offices.`\
 https://nytimes.com/2024/04/11/well/live/fake-botox-illness-cdc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/dining/a-no-chop-no-fuss-weeknight-lasagna.html
 **How Voters Describe the 2024 Election in One Word**\
 `To dig into the complex views voters have about the upcoming rematch, we asked poll respondents to describe their feelings in their own words.`\
 https://nytimes.com/2024/04/11/us/elections/poll-voters-election-biden-trump.html
-
-**O.J. Simpson, Athlete Whose Trial Riveted the Nation, Dies at 76**\
-`He ran to football fame on the field and made fortunes in movies. Then a trial in which he was charged with killing his former wife and her friend changed everything.`\
-https://nytimes.com/2024/04/11/sports/oj-simpson-dead.html
 
