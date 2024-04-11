@@ -1,3 +1,11 @@
+**Renaissance Portraits That Played Hide and Seek**\
+`Portraits go undercover in the new Metropolitan Museum show “Hidden Faces,” about the practice of concealing artworks behind sliding panels and reverse-side paintings.`\
+https://nytimes.com/2024/04/11/arts/design/hidden-renaissance-met.html
+
+**A No-Chop, No-Fuss Weeknight Lasagna**\
+`Pair it with the world’s best chocolate cake (actual recipe title) for a crowd-pleasing dinner that’s less work than you’d think.`\
+https://nytimes.com/2024/04/11/dining/a-no-chop-no-fuss-weeknight-lasagna.html
+
 **How Voters Describe the 2024 Election in One Word**\
 `To dig into the complex views voters have about the upcoming rematch, we asked poll respondents to describe their feelings in their own words.`\
 https://nytimes.com/2024/04/11/us/elections/poll-voters-election-biden-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/11/us/tiktok-octopus-pet-oklahoma.html
 **Assange’s Wife Expresses Cautious Hope as Biden Suggests U.S. Might Drop Case**\
 `The WikiLeaks founder has spent five years in a high-security London prison while contesting extradition efforts. Before that, he holed up for seven years in the Ecuadorean Embassy.`\
 https://nytimes.com/2024/04/11/world/europe/assange-extradition-us-biden.html
-
-**Abortion, inflation, Gaza — 2024’s biggest issues are flaring this week for Trump and Biden.**\
-`Many of the key issues driving the campaign — each posing clear vulnerabilities to the two major candidates — have collided.`\
-https://nytimes.com/live/2024/04/11/us/biden-trump-election/abortion-inflation-gaza-trial-2024-trump-biden
-
-**Why Are Gold Bar Sales Surging at Costco?**\
-`Costco may be selling up to $200 million worth of the bars each month, according to a Wells Fargo analysis. The bars sell out quickly, and customers are trading advice online about how to get them.`\
-https://nytimes.com/2024/04/11/business/costco-gold-bars.html
 
