@@ -6,7 +6,7 @@ https://nytimes.com/2024/04/11/us/politics/john-bolton-trump-cheney.html
 `He was a football star, actor, commercial pitchman, and a defendant in a gruesome double murder whose trial gripped the nation.`\
 https://nytimes.com/2024/04/11/us/oj-simpson-timeline.html
 
-**UNICEF says one of vehicles was hit by fire.**\
+**UNICEF says one of its vehicles was hit by fire.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas/unicef-says-one-of-vehicles-was-hit-by-fire
 
