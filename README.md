@@ -1,3 +1,7 @@
+**Trainers Give a Thumbs Down to Lenny Kravitz’s Workout Video**\
+`The rock star’s viral social media post showed him doing a furious three-in-one routine, with weights. Gym professionals had thoughts.`\
+https://nytimes.com/2024/04/10/style/lenny-kravitz-workout-video-trainers.html
+
 **City of Miami Racially Gerrymandered Voting Districts, Judge Finds**\
 `The federal judge threw out the city’s voting map, rejecting the rationale that city commissioners have used for more than 20 years.`\
 https://nytimes.com/2024/04/10/us/miami-racial-gerrymandering.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/us/politics/biden-japan-agreements.html
 **Two Imperfect Messengers Take On Abortion**\
 `Neither side of the abortion divide would probably design the exact candidate they have in 2024.`\
 https://nytimes.com/2024/04/10/us/politics/two-imperfect-messengers-take-on-abortion.html
-
-**Mister Cee, Pioneering Brooklyn D.J., Dies at 57**\
-`Born Calvin Lebrun, Mister Cee was a pioneer in New York City’s hip-hop scene and helped boost the career of the Notorious B.I.G.`\
-https://nytimes.com/2024/04/10/arts/music/mister-cee-dj-dead.html
 
