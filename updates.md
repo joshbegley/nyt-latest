@@ -1,3 +1,7 @@
+**Trump’s Co-Defendants in Documents Case Seek to Dismiss Charges**\
+`Walt Nauta and Carlos De Oliveira, who still work for the former president, will be in federal court in Florida on Friday asking a judge to throw out charges that they helped obstruct the investigation.`\
+https://nytimes.com/2024/04/11/us/politics/trump-nauta-oliveira-dismiss-charges.html
+
 **‘Narco-deforestation’ and the future of the Amazon**\
 `The fate of Colombia’s rainforest may lay in the hands of a rebel group linked to drugs and illegal mining.`\
 https://nytimes.com/2024/04/11/climate/amazon-deforestation-drugs-crime.html
