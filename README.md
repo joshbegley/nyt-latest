@@ -7,7 +7,7 @@ https://nytimes.com/2024/04/11/business/dealbook/the-odds-for-a-summertime-rate-
 https://nytimes.com/2024/04/11/business/european-central-bank-rates.html
 
 **Israel Announces New Operation Against Hamas, After Killing Top Leader’s Sons**\
-`The military carried out what it called a precise operation in Gaza to kill members of the group, after attacking a car carrying three sons of Ismail Haniyeh, its political leader.`\
+`The military said it had carried out an operation in Gaza to kill members of the group, a day after attacking a car carrying three sons of Ismail Haniyeh, its political leader.`\
 https://nytimes.com/2024/04/11/world/middleeast/israel-hamas-attack-haniyeh.html
 
 **This Artificially Intelligent Pin Wants to Free You From Your Phone**\

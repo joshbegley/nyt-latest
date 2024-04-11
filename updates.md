@@ -1,3 +1,7 @@
+**Israel Announces New Operation Against Hamas, After Killing Top Leader’s Sons**\
+`The military carried out what it called a precise operation in Gaza to kill members of the group, after attacking a car carrying three sons of Ismail Haniyeh, its political leader.`\
+https://nytimes.com/2024/04/11/world/middleeast/israel-hamas-attack-haniyeh.html
+
 **The Odds for a Summertime Rate Cut Are Dwindling**\
 `Hotter-than-expected inflation has upended bets on when the Fed will start lowering interest rates, and could complicate President Biden’s re-election bid.`\
 https://nytimes.com/2024/04/11/business/dealbook/the-odds-for-a-summertime-rate-cut-are-dwindling.html
