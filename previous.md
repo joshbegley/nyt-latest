@@ -1,3 +1,7 @@
+**Kennedy Campaign Fires Consultant Who Sought to Help Trump Win**\
+`The Kennedy campaign said the consultant, Rita Palma, had falsely identified herself as its New York state director.`\
+https://nytimes.com/2024/04/11/us/politics/rfk-jr-rita-palma-trump.html
+
 **Texas Surgeon Is Accused of Secretly Denying Liver Transplants**\
 `A Houston hospital is investigating whether a doctor altered a transplant list to make his patients ineligible for care. A disproportionate number of them have died while waiting for new organs.`\
 https://nytimes.com/2024/04/11/us/organ-transplants-houston.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/opinion/pro-life-alabama-trump.html
 **Were You Stuck With a Big Vet Bill? Tell Us About It.**\
 `We want to hear from pet owners about their experiences taking their animals to the vet, and how they paid for their animals’ care.`\
 https://nytimes.com/2024/04/11/health/vet-bills-pet-insurance.html
-
-**Friday Briefing: U.S. General Visits Israel Amid Fears of Iranian Attack**\
-`Also, O.J. Simpson died at 76.`\
-https://nytimes.com/2024/04/11/world/asia/us-israel-iran-oj-asia.html
 
