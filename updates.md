@@ -1,3 +1,7 @@
+**Trump to Meet an Embattled Johnson, Putting Their Tortured Ties on Display**\
+`The presumptive Republican presidential nominee and the G.O.P. speaker, at odds over many issues, are making common cause on “election integrity.”`\
+https://nytimes.com/2024/04/11/us/politics/trump-johnson-elections-congress.html
+
 **There Is No Longer a Truly Pro-Life Party in the United States**\
 `To understand why, look to the Alabama Supreme Court, not just Donald Trump.`\
 https://nytimes.com/2024/04/11/opinion/pro-life-alabama-trump.html
