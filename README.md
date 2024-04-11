@@ -1,3 +1,7 @@
+**Dish Soap to Help Build Planes? Boeing Signs Off on Supplier’s Method.**\
+`An F.A.A. audit found Spirit AeroSystems using Dawn soap and a hotel key card in the manufacturing process. The company says its techniques were inventive, not careless.`\
+https://nytimes.com/2024/04/11/us/politics/spirit-aerosystems-boeing-737-max.html
+
 **John Bolton, Former Trump Adviser, Says He Will Vote for Dick Cheney**\
 `The diplomat, a fixture in multiple Republican administrations who now opposes Mr. Trump, said he also voted for the former vice president in 2020.`\
 https://nytimes.com/2024/04/11/us/politics/john-bolton-trump-cheney.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/dining/your-vegetarian-spring-cooking-checklist.h
 **How The Times Is Covering the Trump Hush-Money Trial**\
 `Our reporting team will be live at the courthouse in Manhattan every day.`\
 https://nytimes.com/2024/04/11/insider/how-the-new-york-times-is-covering-the-trump-hush-money-trial.html
-
-**Academy Museum to Highlight Hollywood’s Jewish History After All**\
-`The museum was criticized earlier for failing to acknowledge the contributions of the Jewish pioneers who helped establish the American film studio system.`\
-https://nytimes.com/2024/04/11/movies/academy-museum-jews-hollywood.html
 
