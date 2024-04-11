@@ -1,3 +1,7 @@
+**Trainers Give a Thumbs Down to Lenny Kravitz’s Workout Video**\
+`The rock star’s viral social media post showed him doing a furious three-in-one routine, with weights. Gym professionals had thoughts.`\
+https://nytimes.com/2024/04/10/style/lenny-kravitz-workout-video-trainers.html
+
 **City of Miami Racially Gerrymandered Voting Districts, Judge Finds**\
 `The federal judge threw out the city’s voting map, rejecting the rationale that city commissioners have used for more than 20 years.`\
 https://nytimes.com/2024/04/10/us/miami-racial-gerrymandering.html
