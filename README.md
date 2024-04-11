@@ -1,3 +1,7 @@
+**Be Awesome**\
+`Dan Caprera’s puzzle contains more than you think.`\
+https://nytimes.com/2024/04/10/crosswords/daily-puzzle-2024-04-11.html
+
 **Read the Special Grand Jury Report**\
 `A special grand jury found that the shooting of an elementary teacher by a 6-year-old student in Newport News, Va., last year was preceded by a “shocking” series of lapses by the school’s assistant principal at the time.`\
 https://nytimes.com/interactive/2024/04/10/us/virginia-shooting-special-grand-jury-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/climate/coal-plants-china.html
 **How the G.O.P. Molded the Arizona Court That Upheld the Abortion Ban**\
 `Arizona’s former governor, Doug Ducey, expanded the court to seven justices. All solid conservatives, they upheld a 160-year-old abortion ban that presents a political risk to Republicans.`\
 https://nytimes.com/2024/04/10/us/arizona-abortion-supreme-court-judges.html
-
-**Police in Philadelphia Investigate Shooting at Eid Celebration**\
-`At least three people were shot and wounded at an outdoor event, where about 1,000 people were celebrating Eid al-Fitr in West Philadelphia, the police said.`\
-https://nytimes.com/video/us/100000009408187/philadelphia-shooting-eid.html
 
