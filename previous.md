@@ -1,3 +1,11 @@
+**Biden Administration Said to Expand Two California National Monuments**\
+`The San Gabriel Mountains National Monument and the Berryessa Snow Mountain National Monument are expected to grow by a combined total of about 130,000 acres.`\
+https://nytimes.com/2024/04/11/climate/biden-expand-two-california-national-monuments.html
+
+**Democrats Hammer a Simple Attack on Abortion: Donald Trump Did This**\
+`The party is unifying around a blunt message that Vice President Kamala Harris pushed for privately ahead of her Friday trip to Arizona, where Democrats hope to keep Republicans reeling.`\
+https://nytimes.com/2024/04/11/us/politics/kamala-harris-abortion-biden-democrats.html
+
 **Three Japanese Sandos With the Fluffiest Milk Bread**\
 `Egg salad, pork katsu and Spam grilled cheese. Hungry yet?`\
 https://nytimes.com/2024/04/11/dining/three-japanese-sandos-with-the-fluffiest-milk-bread.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/11/business/media/npr-criticism-liberal-bias.html
 **Will an Acknowledgment of Famine in Gaza Save Children’s Lives?**\
 `The word “famine” can light a fire under international players to act urgently.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/gaza-famine-usaid
-
-**Bravo! Hurray! Wahoo! (Meh.)**\
-`What standing ovations, exclamation points and “irregardless” have in common.`\
-https://nytimes.com/2024/04/11/opinion/broadway-standing-ovations.html
-
-**Apple Lifts Some Restrictions on iPhone Repairs**\
-`This fall, the company will begin allowing customers to replace broken parts with used iPhone components without its previous software limits.`\
-https://nytimes.com/2024/04/11/technology/apple-iphone-repairs-parts.html
 
