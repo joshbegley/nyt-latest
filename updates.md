@@ -1,3 +1,11 @@
+**O.J. Simpson’s Legacy Won’t Be the One He May Have Imagined**\
+`He will be remembered, first and foremost, as a spectacle.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/oj-simpson-legacy-race
+
+**O.J. Simpson Died at 76**\
+`Also, the U.S. is preparing for Iran to retaliate soon. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/04/11/briefing/oj-simpson-died-cholera-vaccine-stockpile.html
+
 **Trump to Meet an Embattled Johnson, Putting Their Tortured Ties on Display**\
 `The presumptive Republican presidential nominee and the G.O.P. speaker, at odds over many issues, are making common cause on “election integrity.”`\
 https://nytimes.com/2024/04/11/us/politics/trump-johnson-elections-congress.html

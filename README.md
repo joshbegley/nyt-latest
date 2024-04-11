@@ -1,3 +1,7 @@
+**Arizona May Be Just Purple Enough for Abortion to Matter**\
+`Assuming voters think it’s more important than the border.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/arizona-abortion-voters-republicans
+
 **O.J. Simpson’s Legacy Won’t Be the One He May Have Imagined**\
 `He will be remembered, first and foremost, as a spectacle.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/oj-simpson-legacy-race
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/nyregion/bronx-twins-mother-murder.html
 **Here’s What to Know About the Hunger Crisis in Gaza**\
 `“The food production system has been completely obliterated, and the lack of entry of emergency aid within a short time has created a free fall,” a United Nations official said.`\
 https://nytimes.com/2024/04/11/world/middleeast/gaza-famine-hunger-crisis.html
-
-**U.S. Sends a Top General to Israel Amid Fears of Iranian Strikes**\
-`The visit of Gen. Michael E. Kurilla, the U.S. military commander in the Middle East, came as diplomats sought to avert a wider war.`\
-https://nytimes.com/2024/04/11/world/middleeast/israel-iran-hamas-strikes.html
 
