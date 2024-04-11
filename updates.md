@@ -1,3 +1,11 @@
+**At the Japan State Dinner, Jill Biden Makes an Entrance**\
+`The first lady was glittering in crystals — four days after Melania Trump stepped out in pink at a Palm Beach fund-raiser. Together, the pictures offer a harbinger of what is to come.`\
+https://nytimes.com/2024/04/10/style/melania-trump-jill-biden-dress.html
+
+**Before Teacher Was Shot, Assistant Principal Was Warned First Grader Had a Gun**\
+`A Virginia grand jury found that the administrator had not acted on reports from staff members that the 6-year-old had brought a firearm to Richneck Elementary.`\
+https://nytimes.com/2024/04/10/us/virginia-school-shooting-grand-jury-report.html
+
 **Be Awesome**\
 `Dan Caprera’s puzzle contains more than you think.`\
 https://nytimes.com/2024/04/10/crosswords/daily-puzzle-2024-04-11.html

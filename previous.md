@@ -1,3 +1,11 @@
+**At the Japan State Dinner, Jill Biden Makes an Entrance**\
+`The first lady was glittering in crystals — four days after Melania Trump stepped out in pink at a Palm Beach fund-raiser. Together, the pictures offer a harbinger of what is to come.`\
+https://nytimes.com/2024/04/10/style/melania-trump-jill-biden-dress.html
+
+**Before Teacher Was Shot, Assistant Principal Was Warned First Grader Had a Gun**\
+`A Virginia grand jury found that the administrator had not acted on reports from staff members that the 6-year-old had brought a firearm to Richneck Elementary.`\
+https://nytimes.com/2024/04/10/us/virginia-school-shooting-grand-jury-report.html
+
 **Be Awesome**\
 `Dan Caprera’s puzzle contains more than you think.`\
 https://nytimes.com/2024/04/10/crosswords/daily-puzzle-2024-04-11.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/10/us/politics/rosie-riveter-congressional-medal.htm
 **Ex-Cornell Student Admits Targeting Jewish Students With Online Threats**\
 `Patrick Dai pleaded guilty to posting a series of messages in which he threatened to stab, rape and behead Jewish people.`\
 https://nytimes.com/2024/04/10/nyregion/cornell-jewish-students-threats.html
-
-**Driven by China, Coal Plants Made a Comeback in 2023**\
-`The country, along with India, is still building power stations that run on coal. Elsewhere, retirements of older plants have slowed.`\
-https://nytimes.com/2024/04/10/climate/coal-plants-china.html
-
-**How the G.O.P. Molded the Arizona Court That Upheld the Abortion Ban**\
-`Arizona’s former governor, Doug Ducey, expanded the court to seven justices. All solid conservatives, they upheld a 160-year-old abortion ban that presents a political risk to Republicans.`\
-https://nytimes.com/2024/04/10/us/arizona-abortion-supreme-court-judges.html
 
