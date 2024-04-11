@@ -1,3 +1,7 @@
+**Your (Vegetarian) Spring Cooking Checklist**\
+`Pea and ricotta frittata, sugar snap peas with radishes and mint, and rhubarb crumble make the most of the fleeting season.`\
+https://nytimes.com/2024/04/11/dining/your-vegetarian-spring-cooking-checklist.html
+
 **How The Times Is Covering the Trump Hush-Money Trial**\
 `Our reporting team will be live at the courthouse in Manhattan every day.`\
 https://nytimes.com/2024/04/11/insider/how-the-new-york-times-is-covering-the-trump-hush-money-trial.html
