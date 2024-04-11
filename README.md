@@ -1,3 +1,7 @@
+**Were You Stuck With a Big Vet Bill? Tell Us About It.**\
+`We want to hear from pet owners about their experiences taking their animals to the vet, and how they paid for their animals’ care.`\
+https://nytimes.com/2024/04/11/health/vet-bills-pet-insurance.html
+
 **Friday Briefing: U.S. General Visits Israel Amid Fears of Iranian Attack**\
 `Also, O.J. Simpson died at 76.`\
 https://nytimes.com/2024/04/11/world/asia/us-israel-iran-oj-asia.html
@@ -10,8 +14,8 @@ https://nytimes.com/2024/04/11/insider/donald-dimmock-nyt-electric.html
 `The mother, Gloria Asamoah, had been recently hospitalized, the police said, and was discharged from a psychiatric ward before her arrest.`\
 https://nytimes.com/2024/04/11/nyregion/bronx-twins-mother-murder.html
 
-**Here’s what to know about the hunger crisis in Gaza.**\
-`By Matthew Mpoke Bigg`\
+**Here’s What to Know About the Hunger Crisis in Gaza**\
+`“The food production system has been completely obliterated, and the lack of entry of emergency aid within a short time has created a free fall,” a United Nations official said.`\
 https://nytimes.com/2024/04/11/world/middleeast/gaza-famine-hunger-crisis.html
 
 **U.S. Sends a Top General to Israel Amid Fears of Iranian Strikes**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/arts/television/delicious-in-dungeon.html
 **Woman Who Stabbed Childhood Friend to Impress ‘Slender Man’ Won’t Be Released**\
 `A judge denied Morgan Geyser’s request for release on Thursday, nearly a decade after the attack by a pair of 12-year-olds against their friend stunned residents of Waukesha, Wis.`\
 https://nytimes.com/2024/04/11/us/slender-man-stabbing-wisconsin.html
-
-**Biden Administration Said to Expand Two California National Monuments**\
-`The San Gabriel Mountains National Monument and the Berryessa Snow Mountain National Monument are expected to grow by a combined total of about 130,000 acres.`\
-https://nytimes.com/2024/04/11/climate/biden-expand-two-california-national-monuments.html
 
