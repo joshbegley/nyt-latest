@@ -1,3 +1,23 @@
+**How Voters Describe the 2024 Election in One Word**\
+`To dig into the complex views voters have about the upcoming rematch, we asked poll respondents to describe their feelings in their own words.`\
+https://nytimes.com/2024/04/11/us/elections/poll-voters-election-biden-trump.html
+
+**O.J. Simpson, Athlete Whose Trial Riveted the Nation, Dies at 76**\
+`He ran to football fame on the field and made fortunes in movies. But his world was ruined after he was charged with killing his former wife and her friend.`\
+https://nytimes.com/2024/04/11/sports/oj-simpson-dead.html
+
+**A Steadying Force for the Africa Center Is Stepping Down**\
+`Uzodinma Iweala, chief executive of the Harlem institution, will leave at the end of 2024 after guiding it through pandemic years and securing funds.`\
+https://nytimes.com/2024/04/11/arts/design/africa-center-uzodinma-iweala-harlem.html
+
+**Harvard Will Require Test Scores for Admissions**\
+`The university is the latest in a series of highly selective schools to end its test-optional policy.`\
+https://nytimes.com/2024/04/11/us/harvard-test-scores-admissions.html
+
+**Pentagon Official Heads to Israel Amid Fears of Iranian Attack**\
+`U.S. officials have said they are bracing for a response to a strike in Syria this month that killed several senior Iranian commanders.`\
+https://nytimes.com/2024/04/11/world/middleeast/israel-iran-attack-us-military.html
+
 **Mexico’s 2024 General Election: What to Know**\
 `Mexico’s election will make history. It will be the largest in terms of voters and seats, and the country will elect a female president for the first time.`\
 https://nytimes.com/2024/04/11/world/americas/mexico-2024-general-election.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/04/11/us/biden-trump-election/abortion-inflation-g
 **Why Are Gold Bar Sales Surging at Costco?**\
 `Costco may be selling up to $200 million worth of the bars each month, according to a Wells Fargo analysis. The bars sell out quickly, and customers are trading advice online about how to get them.`\
 https://nytimes.com/2024/04/11/business/costco-gold-bars.html
-
-**A Conversation With Deborah Feldman, an Unorthodox Voice in Germany**\
-`Feldman, who wrote in “Unorthodox” about leaving her Hasidic community in New York, has been touching a nerve in Germany, where she is now a citizen.`\
-https://nytimes.com/2024/04/11/arts/deborah-feldman-unorthodox-germany.html
-
-**A Jazz Lounge That’s More Than Kind of Blue**\
-`Plus: Thom Browne bedding, a new Brooklyn bakery and more recommendations from T Magazine.`\
-https://nytimes.com/2024/04/11/t-magazine/only-love-strangers-east-village-jazz.html
-
-**Richard Lyons, Former Business School Dean, Will Be U.C. Berkeley’s New Chancellor**\
-`The appointment comes as Berkeley and college campuses across the country are facing turmoil over free speech, racial and political diversity, and affordability.`\
-https://nytimes.com/2024/04/11/us/richard-lyons-uc-berkeley-chancellor.html
-
-**3 Men Rescued from Pacific Island After Writing ‘Help’ With Palm Leaves**\
-`American rescuers found the lost sailors on a tiny uninhabited island in Micronesia with a damaged boat and the word spelled out on the beach.`\
-https://nytimes.com/2024/04/11/world/asia/pacific-island-rescue-us-coast-guard.html
-
-**Before He Died in Prison, Aleksei Navalny Wrote a Memoir. It’s Coming This Fall.**\
-`In the book, Navalny tells his story in his own words, chronicling his life, his rise as an opposition leader, and the attempts on his life.`\
-https://nytimes.com/2024/04/11/books/booksupdate/aleksei-navalny-memoir.html
 
