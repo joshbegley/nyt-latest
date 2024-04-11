@@ -1,3 +1,11 @@
+**Where to Eat and Drink in Milan Right Now**\
+`A new generation of bars, restaurants and bakeries are reinvigorating the Italian city’s food scene.`\
+https://nytimes.com/2024/04/11/t-magazine/milan-bar-restaurant-bakery-guide.html
+
+**Want to Speak to an Adams Staff Member? Fill Out a 7-Page Form First.**\
+`Mayor Eric Adams is now requiring any elected official, including members of Congress, to submit an online request to speak to an administration official.`\
+https://nytimes.com/2024/04/11/nyregion/adams-city-council-permission.html
+
 **The Fried Chicken Is in New York. The Cashier Is in the Philippines.**\
 `A few New York City restaurants are experimenting with virtual staff members, who greet customers onscreen via Zoom from the Philippines.`\
 https://nytimes.com/2024/04/11/nyregion/nyc-restaurants-virtual-remote.html

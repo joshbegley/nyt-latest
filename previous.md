@@ -1,3 +1,11 @@
+**Where to Eat and Drink in Milan Right Now**\
+`A new generation of bars, restaurants and bakeries are reinvigorating the Italian city’s food scene.`\
+https://nytimes.com/2024/04/11/t-magazine/milan-bar-restaurant-bakery-guide.html
+
+**Want to Speak to an Adams Staff Member? Fill Out a 7-Page Form First.**\
+`Mayor Eric Adams is now requiring any elected official, including members of Congress, to submit an online request to speak to an administration official.`\
+https://nytimes.com/2024/04/11/nyregion/adams-city-council-permission.html
+
 **The Fried Chicken Is in New York. The Cashier Is in the Philippines.**\
 `A few New York City restaurants are experimenting with virtual staff members, who greet customers onscreen via Zoom from the Philippines.`\
 https://nytimes.com/2024/04/11/nyregion/nyc-restaurants-virtual-remote.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/11/world/europe/pompeii-dining-room-trojan-war.html
 **Prosecutors Say Ohtani’s Interpreter Stole $16 Million From Star**\
 `The interpreter, Ippei Mizuhara, was charged with bank fraud, after prosecutors said he stole money to pay his gambling debts.`\
 https://nytimes.com/2024/04/11/business/shohei-ohtani-ippei-mizuhara-federal-charges.html
-
-**Dish Soap to Help Build Planes? Boeing Signs Off on Supplier’s Method.**\
-`An F.A.A. audit found Spirit AeroSystems using Dawn soap and a hotel key card in the manufacturing process. The company says its techniques were inventive, not careless.`\
-https://nytimes.com/2024/04/11/us/politics/spirit-aerosystems-boeing-737-max.html
-
-**John Bolton, Former Trump Adviser, Says He Will Vote for Dick Cheney**\
-`The diplomat, a fixture in multiple Republican administrations who now opposes Mr. Trump, said he also voted for the former vice president in 2020.`\
-https://nytimes.com/2024/04/11/us/politics/john-bolton-trump-cheney.html
 
