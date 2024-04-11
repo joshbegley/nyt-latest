@@ -1,3 +1,7 @@
+**Film Club: ‘There’s a Tax Season Villain, and It’s Not the I.R.S.’**\
+`Why is it so difficult and expensive for Americans to pay taxes every year? Should it be easier?`\
+https://nytimes.com/2024/04/11/learning/film-club-theres-a-tax-season-villain-and-its-not-the-irs.html
+
 **In Ancient Pompeii, Dinner Surrounded by Myth**\
 `A frescoed dining room is the latest find in an excavation campaign to shore up an area of the site, which was destroyed by a powerful volcanic eruption, and better preserve it.`\
 https://nytimes.com/2024/04/11/world/europe/pompeii-dining-room-trojan-war.html

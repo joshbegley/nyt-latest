@@ -1,3 +1,7 @@
+**Film Club: ‘There’s a Tax Season Villain, and It’s Not the I.R.S.’**\
+`Why is it so difficult and expensive for Americans to pay taxes every year? Should it be easier?`\
+https://nytimes.com/2024/04/11/learning/film-club-theres-a-tax-season-villain-and-its-not-the-irs.html
+
 **In Ancient Pompeii, Dinner Surrounded by Myth**\
 `A frescoed dining room is the latest find in an excavation campaign to shore up an area of the site, which was destroyed by a powerful volcanic eruption, and better preserve it.`\
 https://nytimes.com/2024/04/11/world/europe/pompeii-dining-room-trojan-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/health/cholera-vaccine-shortage.html
 **Understanding the Racial Divide Over O.J. Simpson’s Acquittal**\
 `For many Black Americans, the verdict was proof that injustice could be applied equally.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/oj-simpson-death-racial-divide
-
-**2 Simple Cocktails for Lemon Lovers**\
-`Get ready for summer with homemade hard lemonade and the Sgroppino, an icy Italian favorite.`\
-https://nytimes.com/2024/04/11/dining/drinks/homemade-hard-lemonade-summer.html
 
