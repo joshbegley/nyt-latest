@@ -26,8 +26,8 @@ https://nytimes.com/2024/04/11/world/europe/waiting-for-my-time-to-come-ukraines
 `After two years of war, Ukraine’s exhausted forces desperately need new recruits, but fighting-age men are in historically short supply.`\
 https://nytimes.com/interactive/2024/04/11/world/europe/ukraine-demographics.html
 
-**Akebono, First Foreign-Born Sumo Grand Champion in Japan, Dies at 54**\
-`Born Chad George Ha’aheo Rowan in Hawaii, he won 11 grand championships and paved the way for other foreign wrestlers in the sport.`\
+**Akebono, First Foreign-Born Sumo Grand Champion, Dies at 54**\
+`Born in Hawaii, he moved to Japan in 1988 and won 11 grand championships. His success drove a resurgence in the sport’s popularity.`\
 https://nytimes.com/2024/04/10/world/akebono-taro-sumo-dead.html
 
 **Trina Robbins, Creator and Historian of Comic Books, Dies at 84**\
