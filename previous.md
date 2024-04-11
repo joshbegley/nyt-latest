@@ -1,3 +1,7 @@
+**Word of the Day: fabricate**\
+`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/11/learning/word-of-the-day-fabricate.html
+
 **Thursday Briefing**\
 `Japan’s prime minister visits the White House.`\
 https://nytimes.com/2024/04/11/briefing/biden-japan-visit-korea-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/arts/trina-robbins-dead.html
 **At the Japan State Dinner, Jill Biden Makes an Entrance**\
 `The first lady was glittering in crystals — four days after Melania Trump stepped out in pink at a Palm Beach fund-raiser. Together, the pictures offer a harbinger of what is to come.`\
 https://nytimes.com/2024/04/10/style/melania-trump-jill-biden-dress.html
-
-**Before Teacher Was Shot, Assistant Principal Was Warned First Grader Had a Gun**\
-`A Virginia grand jury found that the administrator had not acted on reports from staff members that the 6-year-old had brought a firearm to Richneck Elementary.`\
-https://nytimes.com/2024/04/10/us/virginia-school-shooting-grand-jury-report.html
 

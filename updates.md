@@ -1,3 +1,7 @@
+**Word of the Day: fabricate**\
+`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/11/learning/word-of-the-day-fabricate.html
+
 **Thursday Briefing**\
 `Japan’s prime minister visits the White House.`\
 https://nytimes.com/2024/04/11/briefing/biden-japan-visit-korea-election.html
