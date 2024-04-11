@@ -1,3 +1,11 @@
+**Axios Sees A.I. Coming, and Shifts Its Strategy**\
+`“The premium for people who can tell you things you do not know will only grow in importance, and no machine will do that,” says Jim VandeHei, C.E.O. of Axios.`\
+https://nytimes.com/2024/04/11/business/media/axios-ai-strategy.html
+
+**Israel Announces New Operation Against Hamas, After Killing Top Leader’s Sons**\
+`The military said it had carried out an operation in Gaza to kill members of Hamas, a day after attacking a car carrying three sons of Ismail Haniyeh, the group’s political leader.`\
+https://nytimes.com/2024/04/11/world/middleeast/israel-hamas-attack-haniyeh.html
+
 **Israel Announces New Operation Against Hamas, After Killing Top Leader’s Sons**\
 `The military carried out what it called a precise operation in Gaza to kill members of the group, after attacking a car carrying three sons of Ismail Haniyeh, its political leader.`\
 https://nytimes.com/2024/04/11/world/middleeast/israel-hamas-attack-haniyeh.html

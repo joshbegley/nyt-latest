@@ -1,3 +1,7 @@
+**Axios Sees A.I. Coming, and Shifts Its Strategy**\
+`“The premium for people who can tell you things you do not know will only grow in importance, and no machine will do that,” says Jim VandeHei, C.E.O. of Axios.`\
+https://nytimes.com/2024/04/11/business/media/axios-ai-strategy.html
+
 **The Odds for a Summertime Rate Cut Are Dwindling**\
 `Hotter-than-expected inflation has upended bets on when the Fed will start lowering interest rates, and could complicate President Biden’s re-election bid.`\
 https://nytimes.com/2024/04/11/business/dealbook/the-odds-for-a-summertime-rate-cut-are-dwindling.html
@@ -7,7 +11,7 @@ https://nytimes.com/2024/04/11/business/dealbook/the-odds-for-a-summertime-rate-
 https://nytimes.com/2024/04/11/business/european-central-bank-rates.html
 
 **Israel Announces New Operation Against Hamas, After Killing Top Leader’s Sons**\
-`The military carried out what it called a precise operation in Gaza to kill members of the group, after attacking a car carrying three sons of Ismail Haniyeh, its political leader.`\
+`The military said it had carried out an operation in Gaza to kill members of Hamas, a day after attacking a car carrying three sons of Ismail Haniyeh, the group’s political leader.`\
 https://nytimes.com/2024/04/11/world/middleeast/israel-hamas-attack-haniyeh.html
 
 **This Artificially Intelligent Pin Wants to Free You From Your Phone**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/movies/omen-review.html
 **‘Don’t Tell Mom the Babysitter’s Dead’ Review: The Laughs Are Alive**\
 `Wade Allain-Marcus has directed a rollicking update of the 1991 cult favorite.`\
 https://nytimes.com/2024/04/11/movies/dont-tell-mom-the-babysitters-dead-review.html
-
-**‘Arcadian’ Review: Take Two as Needed for Postapocalyptic Pain**\
-`Nicolas Cage defends his family against a paranormal siege in this derivative, low-budget creature feature.`\
-https://nytimes.com/2024/04/11/movies/arcadian-review.html
 
