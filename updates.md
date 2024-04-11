@@ -1,3 +1,7 @@
+**NPR in Turmoil After It Is Accused of Liberal Bias**\
+`An essay from an editor at the broadcaster has generated a firestorm of criticism about the network on social media, especially among conservatives.`\
+https://nytimes.com/2024/04/11/business/media/npr-criticism-liberal-bias.html
+
 **Will an Acknowledgment of Famine in Gaza Save Children’s Lives?**\
 `The word “famine” can light a fire under international players to act urgently.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/gaza-famine-usaid

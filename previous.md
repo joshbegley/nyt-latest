@@ -1,3 +1,7 @@
+**NPR in Turmoil After It Is Accused of Liberal Bias**\
+`An essay from an editor at the broadcaster has generated a firestorm of criticism about the network on social media, especially among conservatives.`\
+https://nytimes.com/2024/04/11/business/media/npr-criticism-liberal-bias.html
+
 **Will an Acknowledgment of Famine in Gaza Save Children’s Lives?**\
 `The word “famine” can light a fire under international players to act urgently.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/gaza-famine-usaid
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/11/smarter-living/wirecutter/best-cheap-
 **Liberal Justice to Retire From Wisconsin Supreme Court, Leaving Control Uncertain**\
 `Justice Ann Walsh Bradley, whose term ends in July 2025, said she will not seek re-election. The race to replace her will decide whether the court has a liberal or conservative majority.`\
 https://nytimes.com/2024/04/11/us/wisconsin-supreme-court.html
-
-**What Students Are Saying About Why School Absences Have ‘Exploded’**\
-`Chronic absenteeism has increased in American schools since the Covid-19 pandemic. We asked teenagers what they make of the trend.`\
-https://nytimes.com/2024/04/11/learning/what-students-are-saying-about-why-school-absences-have-exploded.html
 
