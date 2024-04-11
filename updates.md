@@ -1,3 +1,7 @@
+**Should Colleges and Universities Get Rid of Legacy Admissions?**\
+`Is the practice of giving preferential treatment to applicants with family ties to alumni unfair?`\
+https://nytimes.com/2024/04/11/learning/should-colleges-and-universities-get-rid-of-legacy-admissions.html
+
 **The Connections Companion No. 305**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/04/11/crosswords/connections-companion.html
