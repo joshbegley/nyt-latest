@@ -1,3 +1,11 @@
+**The Odds for a Summertime Rate Cut Are Dwindling**\
+`Hotter-than-expected inflation has upended bets on when the Fed will start lowering interest rates, and could complicate President Biden’s re-election bid.`\
+https://nytimes.com/2024/04/11/business/dealbook/the-odds-for-a-summertime-rate-cut-are-dwindling.html
+
+**E.C.B. Holds Rates Steady as Markets Look for Hints on First Cut**\
+`It was the fifth consecutive decision by the eurozone’s central bank to leave rates untouched, as inflation closes in on the bank’s 2 percent target.`\
+https://nytimes.com/2024/04/11/business/european-central-bank-rates.html
+
 **Israel announces a new operation against Hamas, a day after killing a top leader’s sons.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/2024/04/11/world/middleeast/israel-announces-a-new-operation-against-hamas-a-day-after-killing-a-top-leaders-sons.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/11/movies/dont-tell-mom-the-babysitters-dead-review.
 **‘Arcadian’ Review: Take Two as Needed for Postapocalyptic Pain**\
 `Nicolas Cage defends his family against a paranormal siege in this derivative, low-budget creature feature.`\
 https://nytimes.com/2024/04/11/movies/arcadian-review.html
-
-**Biden’s Cash Advantage**\
-`We explain the benefits — and the limits — of Biden’s fund-raising.`\
-https://nytimes.com/2024/04/11/briefing/bidens-cash-advantage.html
-
-**Stinging Election Loss Leaves South Korean Leader at a Crossroads**\
-`President Yoon Suk Yeol, a key U.S. ally, faces the prospect of becoming a lame duck unless he starts negotiating with the opposition.`\
-https://nytimes.com/2024/04/11/world/asia/south-korea-yoon-election.html
 
