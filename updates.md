@@ -1,3 +1,7 @@
+**The Man Who Kept The Times’s Lights On**\
+`Donald Dimmock, who died in March at 79, ran the electric department at The New York Times, where he worked for more than three decades.`\
+https://nytimes.com/2024/04/11/insider/donald-dimmock-nyt-electric.html
+
 **Here’s what to know about the hunger crisis in Gaza.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/2024/04/11/world/middleeast/gaza-famine-hunger-crisis.html
