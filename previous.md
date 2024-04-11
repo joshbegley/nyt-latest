@@ -1,3 +1,7 @@
+**The Quiet Magic of Middle Managers**\
+`Amid a wider national atmosphere of division, distrust, bitterness and exhaustion, middle managers are the frontline workers trying to resolve tensions and keep communities working.`\
+https://nytimes.com/2024/04/11/opinion/middle-managers-business-society.html
+
 **Kennedy Campaign Fires Consultant Who Sought to Help Trump Win**\
 `The Kennedy campaign said the consultant, Rita Palma, had falsely identified herself as its New York state director.`\
 https://nytimes.com/2024/04/11/us/politics/rfk-jr-rita-palma-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/us/politics/trump-johnson-elections-congress.html
 **There Is No Longer a Truly Pro-Life Party in the United States**\
 `To understand why, look to the Alabama Supreme Court, not just Donald Trump.`\
 https://nytimes.com/2024/04/11/opinion/pro-life-alabama-trump.html
-
-**Were You Stuck With a Big Vet Bill? Tell Us About It.**\
-`We want to hear from pet owners about their experiences taking their animals to the vet, and how they paid for their animals’ care.`\
-https://nytimes.com/2024/04/11/health/vet-bills-pet-insurance.html
 
