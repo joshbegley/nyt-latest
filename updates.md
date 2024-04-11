@@ -1,3 +1,15 @@
+**Academy Museum to Highlight Hollywood’s Jewish History After All**\
+`The museum was criticized earlier for failing to acknowledge the contributions of the Jewish pioneers who helped establish the American film studio system.`\
+https://nytimes.com/2024/04/11/movies/academy-museum-jews-hollywood.html
+
+**Republicans Are Fleeing the Stench of a Rotten Congress**\
+`The great 2024 exodus is all about Trump-era discord and dysfunction.`\
+https://nytimes.com/2024/04/11/opinion/republicans-congress-trump.html
+
+**Senator Menendez and His Wife Will Be Tried Separately in Bribery Case**\
+`Nadine Menendez had alerted the court to a health issue and requested a postponement. On Thursday, a judge said Robert Menendez’s case would proceed as scheduled. His wife’s trial will be delayed.`\
+https://nytimes.com/2024/04/11/nyregion/robert-menendez-bribery-case.html
+
 **Health Officials Investigating Illnesses From Possible Counterfeit Botox**\
 `People in several states have fallen ill after receiving injections outside of doctors’ offices.`\
 https://nytimes.com/2024/04/11/well/live/fake-botox-illness-cdc.html
