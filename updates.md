@@ -1,3 +1,15 @@
+**John Bolton, Former Trump Adviser, Says He Will Vote for Dick Cheney**\
+`The diplomat, a fixture in multiple Republican administrations who now opposes Mr. Trump, said he also voted for the former vice president in 2020.`\
+https://nytimes.com/2024/04/11/us/politics/john-bolton-trump-cheney.html
+
+**The Life of O.J. Simpson: A Timeline**\
+`He was a football star, actor, commercial pitchman, and a defendant in a gruesome double murder whose trial gripped the nation.`\
+https://nytimes.com/2024/04/11/us/oj-simpson-timeline.html
+
+**UNICEF says one of its vehicles was hit by fire.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas/unicef-says-one-of-vehicles-was-hit-by-fire
+
 **2 Simple Cocktails for Lemon Lovers**\
 `Get ready for summer with homemade hard lemonade and the Sgroppino, an icy Italian favorite.`\
 https://nytimes.com/2024/04/11/dining/drinks/homemade-hard-lemonade-summer.html

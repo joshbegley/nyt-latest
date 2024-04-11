@@ -1,4 +1,12 @@
-**UNICEF says one of vehicles was hit by fire.**\
+**John Bolton, Former Trump Adviser, Says He Will Vote for Dick Cheney**\
+`The diplomat, a fixture in multiple Republican administrations who now opposes Mr. Trump, said he also voted for the former vice president in 2020.`\
+https://nytimes.com/2024/04/11/us/politics/john-bolton-trump-cheney.html
+
+**The Life of O.J. Simpson: A Timeline**\
+`He was a football star, actor, commercial pitchman, and a defendant in a gruesome double murder whose trial gripped the nation.`\
+https://nytimes.com/2024/04/11/us/oj-simpson-timeline.html
+
+**UNICEF says one of its vehicles was hit by fire.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas/unicef-says-one-of-vehicles-was-hit-by-fire
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/11/insider/how-the-new-york-times-is-covering-the-tr
 **Academy Museum to Highlight Hollywood’s Jewish History After All**\
 `The museum was criticized earlier for failing to acknowledge the contributions of the Jewish pioneers who helped establish the American film studio system.`\
 https://nytimes.com/2024/04/11/movies/academy-museum-jews-hollywood.html
-
-**Republicans Are Fleeing the Stench of a Rotten Congress**\
-`The great 2024 exodus is all about Trump-era discord and dysfunction.`\
-https://nytimes.com/2024/04/11/opinion/republicans-congress-trump.html
-
-**Senator Menendez and His Wife Will Be Tried Separately in Bribery Case**\
-`Nadine Menendez had alerted the court to a health issue and requested a postponement. On Thursday, a judge said Robert Menendez’s case would proceed as scheduled. His wife’s trial will be delayed.`\
-https://nytimes.com/2024/04/11/nyregion/robert-menendez-bribery-case.html
 
