@@ -1,3 +1,7 @@
+**Akebono, First Foreign-Born Sumo Grand Champion, Dies at 54**\
+`Born in Hawaii, he moved to Japan in 1988 and won 11 grand championships. His success drove a resurgence in the sport’s popularity.`\
+https://nytimes.com/2024/04/10/world/akebono-taro-sumo-dead.html
+
 **Word of the Day: fabricate**\
 `This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/11/learning/word-of-the-day-fabricate.html
