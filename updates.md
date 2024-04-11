@@ -1,3 +1,7 @@
+**How Hertz Turned O.J. Simpson Into the ‘Superstar in Rent‐a‐Car’**\
+`The famous ad campaign paid dividends for both the company and its pitchman, who died on Wednesday.`\
+https://nytimes.com/2024/04/11/arts/television/oj-simpson-hertz-ads-commercials.html
+
 **The Quiet Magic of Middle Managers**\
 `Amid a wider national atmosphere of division, distrust, bitterness and exhaustion, middle managers are the frontline workers trying to resolve tensions and keep communities working.`\
 https://nytimes.com/2024/04/11/opinion/middle-managers-business-society.html

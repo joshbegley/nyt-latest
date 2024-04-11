@@ -1,3 +1,7 @@
+**How Hertz Turned O.J. Simpson Into the ‘Superstar in Rent‐a‐Car’**\
+`The famous ad campaign paid dividends for both the company and its pitchman, who died on Wednesday.`\
+https://nytimes.com/2024/04/11/arts/television/oj-simpson-hertz-ads-commercials.html
+
 **The Quiet Magic of Middle Managers**\
 `Amid a wider national atmosphere of division, distrust, bitterness and exhaustion, middle managers are the frontline workers trying to resolve tensions and keep communities working.`\
 https://nytimes.com/2024/04/11/opinion/middle-managers-business-society.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/briefing/oj-simpson-died-cholera-vaccine-stockpil
 **Trump to Meet an Embattled Johnson, Putting Their Tortured Ties on Display**\
 `The presumptive Republican presidential nominee and the G.O.P. speaker, at odds over many issues, are making common cause on “election integrity.”`\
 https://nytimes.com/2024/04/11/us/politics/trump-johnson-elections-congress.html
-
-**There Is No Longer a Truly Pro-Life Party in the United States**\
-`To understand why, look to the Alabama Supreme Court, not just Donald Trump.`\
-https://nytimes.com/2024/04/11/opinion/pro-life-alabama-trump.html
 
