@@ -1,3 +1,7 @@
+**This Artificially Intelligent Pin Wants to Free You From Your Phone**\
+`The $700 Ai Pin, funded by OpenAI and Microsoft, can be helpful — until it struggles with tasks like doing math and crafting sandwich recipes.`\
+https://nytimes.com/2024/04/11/technology/personaltech/ai-pin-humane-openai-microsoft.html
+
 **Vietnamese Real Estate Tycoon Sentenced to Death in $12 Billion Fraud Case**\
 `Truong My Lan received the death penalty as Vietnam’s Communist Party cracks down on corruption in the fast-growing Southeast Asian economic hub.`\
 https://nytimes.com/2024/04/11/world/asia/vietnam-lan-fraud-death-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/world/asia/south-korea-yoon-election.html
 **The Staggering Success of Trump’s Trial Delay Tactics**\
 `With criminal cases mounting for the former president, he is using a familiar strategy: stalling.`\
 https://nytimes.com/2024/04/11/podcasts/the-daily/trump-trial-delays.html
-
-**An Inflation Surprise, and New Rules on Gun Sales**\
-`Plus, state dinner pomp and diplomacy.`\
-https://nytimes.com/2024/04/11/podcasts/an-inflation-surprise-and-new-rules-on-gun-sales.html
 
