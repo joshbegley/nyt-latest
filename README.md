@@ -1,3 +1,7 @@
+**Stinging Election Loss Leaves South Korean Leader at a Crossroads**\
+`President Yoon Suk Yeol, a key U.S. ally, faces the prospect of becoming a lame duck unless he starts negotiating with the opposition.`\
+https://nytimes.com/2024/04/11/world/asia/south-korea-yoon-election.html
+
 **The Staggering Success of Trump’s Trial Delay Tactics**\
 `With criminal cases mounting for the former president, he is using a familiar strategy: stalling.`\
 https://nytimes.com/2024/04/11/podcasts/the-daily/trump-trial-delays.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/11/travel/things-to-do-toronto.html
 **A Cafe for Cat People Opens Downtown**\
 `At Meow Parlour, people will be able to drink coffee and play with cats, and in some cases adopt them.`\
 https://nytimes.com/2024/04/11/nyregion/cat-cafe-meow-parlour.html
-
-**What to Know Before You Watch ‘Fallout’**\
-`A long-running video game franchise makes the jump to prestige TV.`\
-https://nytimes.com/2024/04/11/podcasts/what-to-know-before-you-watch-fallout.html
 
