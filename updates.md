@@ -1,3 +1,11 @@
+**Mother Is Charged With Murder of Twins Found Dead in the Bronx**\
+`The mother, Gloria Asamoah, had been recently hospitalized, the police said, and was discharged from a psychiatric ward before her arrest.`\
+https://nytimes.com/2024/04/11/nyregion/bronx-twins-mother-murder.html
+
+**U.S. Sends a Top General to Israel Amid Fears of Iranian Strikes**\
+`The visit of Gen. Michael E. Kurilla, the U.S. military commander in the Middle East, came as diplomats sought to avert a wider war.`\
+https://nytimes.com/2024/04/11/world/middleeast/israel-iran-hamas-strikes.html
+
 **Here’s what to know about the hunger crisis in Gaza.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas/heres-what-to-know-about-the-hunger-crisis-in-gaza
