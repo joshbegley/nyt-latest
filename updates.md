@@ -1,3 +1,7 @@
+**A Conversation With Deborah Feldman, an Unorthodox Voice in Germany**\
+`Feldman, who wrote in “Unorthodox” about leaving her Hasidic community in New York, has been touching a nerve in Germany, where she is now a citizen.`\
+https://nytimes.com/2024/04/11/arts/deborah-feldman-unorthodox-germany.html
+
 **Richard Lyons, Former Business School Dean, Will Be U.C. Berkeley’s New Chancellor**\
 `The appointment comes as Berkeley and college campuses across the country are facing turmoil over free speech, racial and political diversity, and affordability.`\
 https://nytimes.com/2024/04/11/us/richard-lyons-uc-berkeley-chancellor.html
