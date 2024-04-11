@@ -1,3 +1,7 @@
+**Akebono, Foreign-Born Sumo Wrestling Champion in Japan, Dies at 54**\
+`Born Chad George Ha’aheo Rowan in Hawaii, he won 11 grand championships and paved the way for other foreign wrestlers in the sport.`\
+https://nytimes.com/2024/04/10/world/akebono-taro-sumo-dead.html
+
 **Trina Robbins, Creator and Historian of Comic Books, Dies at 84**\
 `Obsessed with comics from a young age, she was a pioneer in a male-dominated field and later documented the contributions of other women.`\
 https://nytimes.com/2024/04/10/arts/trina-robbins-dead.html
