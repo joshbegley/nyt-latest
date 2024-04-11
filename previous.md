@@ -1,3 +1,7 @@
+**Biden’s Cash Advantage**\
+`We explain the benefits — and the limits — of Biden’s fund-raising.`\
+https://nytimes.com/2024/04/11/briefing/bidens-cash-advantage.html
+
 **Stinging Election Loss Leaves South Korean Leader at a Crossroads**\
 `President Yoon Suk Yeol, a key U.S. ally, faces the prospect of becoming a lame duck unless he starts negotiating with the opposition.`\
 https://nytimes.com/2024/04/11/world/asia/south-korea-yoon-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/us/politics/democrats-trump-save-democracy.html
 **36 Hours in Toronto**\
 `Savor the diversity of this lakefront city though its hidden bars, small-but-fascinating museums and restaurants with dishes like jerk chicken chow mein and Hong Kong-style French toast.`\
 https://nytimes.com/interactive/2024/04/11/travel/things-to-do-toronto.html
-
-**A Cafe for Cat People Opens Downtown**\
-`At Meow Parlour, people will be able to drink coffee and play with cats, and in some cases adopt them.`\
-https://nytimes.com/2024/04/11/nyregion/cat-cafe-meow-parlour.html
 

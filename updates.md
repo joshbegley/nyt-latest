@@ -1,3 +1,7 @@
+**Biden’s Cash Advantage**\
+`We explain the benefits — and the limits — of Biden’s fund-raising.`\
+https://nytimes.com/2024/04/11/briefing/bidens-cash-advantage.html
+
 **Stinging Election Loss Leaves South Korean Leader at a Crossroads**\
 `President Yoon Suk Yeol, a key U.S. ally, faces the prospect of becoming a lame duck unless he starts negotiating with the opposition.`\
 https://nytimes.com/2024/04/11/world/asia/south-korea-yoon-election.html
