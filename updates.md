@@ -1,3 +1,11 @@
+**UNICEF says one of vehicles was hit by fire.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas/unicef-says-one-of-vehicles-was-hit-by-fire
+
+**The Push for a Better Dengue Vaccine Grows More Urgent**\
+`A public research institute in Brazil has proved a new shot protects against the disease, but can’t make it fast enough to stop the huge outbreak sweeping Latin America.`\
+https://nytimes.com/2024/04/11/health/dengue-vaccine-brazil.html
+
 **Global Stockpile of Cholera Vaccine Is Gone as Outbreaks Spread**\
 `One company is going to great lengths to build it up, but it will be years before it returns to the minimum level.`\
 https://nytimes.com/2024/04/11/health/cholera-vaccine-shortage.html

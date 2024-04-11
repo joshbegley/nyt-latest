@@ -1,3 +1,11 @@
+**UNICEF says one of vehicles was hit by fire.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas/unicef-says-one-of-vehicles-was-hit-by-fire
+
+**The Push for a Better Dengue Vaccine Grows More Urgent**\
+`A public research institute in Brazil has proved a new shot protects against the disease, but can’t make it fast enough to stop the huge outbreak sweeping Latin America.`\
+https://nytimes.com/2024/04/11/health/dengue-vaccine-brazil.html
+
 **Global Stockpile of Cholera Vaccine Is Gone as Outbreaks Spread**\
 `One company is going to great lengths to build it up, but it will be years before it returns to the minimum level.`\
 https://nytimes.com/2024/04/11/health/cholera-vaccine-shortage.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/11/opinion/republicans-congress-trump.html
 **Senator Menendez and His Wife Will Be Tried Separately in Bribery Case**\
 `Nadine Menendez had alerted the court to a health issue and requested a postponement. On Thursday, a judge said Robert Menendez’s case would proceed as scheduled. His wife’s trial will be delayed.`\
 https://nytimes.com/2024/04/11/nyregion/robert-menendez-bribery-case.html
-
-**Health Officials Investigating Illnesses From Possible Counterfeit Botox**\
-`People in several states have fallen ill after receiving injections outside of doctors’ offices.`\
-https://nytimes.com/2024/04/11/well/live/fake-botox-illness-cdc.html
-
-**Seeking Technological Solutions to the Climate Crisis**\
-`Readers critique and suggest ways to capture, store and recycle carbon. Also: Donald Trump’s jury; food aid; cruelty to chickens; creative disagreement.`\
-https://nytimes.com/2024/04/11/opinion/climate-carbon-capture.html
 
