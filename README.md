@@ -1,3 +1,7 @@
+**Akebono, Foreign-Born Sumo Wrestling Champion in Japan, Dies at 54**\
+`Born Chad George Ha’aheo Rowan in Hawaii, he won 11 grand championships and paved the way for other foreign wrestlers in the sport.`\
+https://nytimes.com/2024/04/10/world/akebono-taro-sumo-dead.html
+
 **Trina Robbins, Creator and Historian of Comic Books, Dies at 84**\
 `Obsessed with comics from a young age, she was a pioneer in a male-dominated field and later documented the contributions of other women.`\
 https://nytimes.com/2024/04/10/arts/trina-robbins-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/10/us/miami-racial-gerrymandering.html
 **Ohtani’s Former Interpreter Is Said to Be Negotiating a Guilty Plea**\
 `Ippei Mizuhara stands accused of covering his gambling debts by stealing millions of dollars from Shohei Ohtani’s bank account.`\
 https://nytimes.com/2024/04/10/business/shohei-ohtani-ippei-mizuhara-plea.html
-
-**A Gold Medal for America’s Rosies, the Women on the Home Front**\
-`Rosie the Riveters, American women who filled a crucial labor shortage during World War II and reshaped the work force, were honored at the Capitol.`\
-https://nytimes.com/2024/04/10/us/politics/rosie-riveter-congressional-medal.html
 
