@@ -1,3 +1,7 @@
+**Apple Lifts Some Restrictions on iPhone Repairs**\
+`This fall, the company will begin allowing customers to replace broken parts with used iPhone components without its previous software limits.`\
+https://nytimes.com/2024/04/11/technology/apple-iphone-repairs-parts.html
+
 **Where to Eat and Drink in Milan Right Now**\
 `A new generation of bars, restaurants and bakeries are reinvigorating the Italian city’s food scene.`\
 https://nytimes.com/2024/04/11/t-magazine/milan-bar-restaurant-bakery-guide.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/learning/film-club-theres-a-tax-season-villain-an
 **In Ancient Pompeii, Dinner Surrounded by Myth**\
 `A frescoed dining room is the latest find in an excavation campaign to shore up an area of the site, which was destroyed by a powerful volcanic eruption, and better preserve it.`\
 https://nytimes.com/2024/04/11/world/europe/pompeii-dining-room-trojan-war.html
-
-**Prosecutors Say Ohtani’s Interpreter Stole $16 Million From Star**\
-`The interpreter, Ippei Mizuhara, was charged with bank fraud, after prosecutors said he stole money to pay his gambling debts.`\
-https://nytimes.com/2024/04/11/business/shohei-ohtani-ippei-mizuhara-federal-charges.html
 
