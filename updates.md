@@ -1,3 +1,7 @@
+**Kari Lake Backs G.O.P. Effort to Drop 1864 Abortion Law in Favor of 15-Week Ban**\
+`The Senate candidate and Donald Trump ally is supporting a handful of state Republicans who have backed away from a near-total ban that was upheld by the State Supreme Court this week.`\
+https://nytimes.com/2024/04/11/us/politics/kari-lake-abortion-arizona.html
+
 **Trump Says He Is ‘Not Running to Terminate’ the Affordable Care Act**\
 `After repeated attacks from Democrats, Donald Trump, who has often vowed to repeal Obamacare, said that if elected he would only improve it, without offering specifics.`\
 https://nytimes.com/2024/04/11/us/politics/trump-biden-affordable-care-act.html
