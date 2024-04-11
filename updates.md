@@ -1,3 +1,11 @@
+**The Fried Chicken Is in New York. The Cashier Is in the Philippines.**\
+`A few New York City restaurants are experimenting with virtual staff members, who greet customers onscreen via Zoom from the Philippines.`\
+https://nytimes.com/2024/04/11/nyregion/nyc-restaurants-virtual-remote.html
+
+**Taylor Swift’s Music Returns to TikTok Ahead of New Album**\
+`Songs by the pop singer reappeared on TikTok despite the platform’s ongoing licensing dispute with Universal Music Group, which releases Swift’s music.`\
+https://nytimes.com/2024/04/11/arts/music/taylor-swift-tiktok-umg-music.html
+
 **The Best Cheap Sunglasses**\
 `You won't be heartbroken if they get lost.`\
 https://nytimes.com/interactive/2024/04/11/smarter-living/wirecutter/best-cheap-sunglasses.html
