@@ -1,3 +1,7 @@
+**Dish Soap to Help Build Planes? Boeing Signs Off on Supplier’s Method.**\
+`An F.A.A. audit found Spirit AeroSystems using Dawn soap and a hotel key card in the manufacturing process. The company says its techniques were inventive, not careless.`\
+https://nytimes.com/2024/04/11/us/politics/spirit-aerosystems-boeing-737-max.html
+
 **John Bolton, Former Trump Adviser, Says He Will Vote for Dick Cheney**\
 `The diplomat, a fixture in multiple Republican administrations who now opposes Mr. Trump, said he also voted for the former vice president in 2020.`\
 https://nytimes.com/2024/04/11/us/politics/john-bolton-trump-cheney.html
