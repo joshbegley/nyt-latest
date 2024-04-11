@@ -1,3 +1,7 @@
+**Woman Who Stabbed Childhood Friend to Impress ‘Slender Man’ Won’t Be Released**\
+`A judge denied Morgan Geyser’s request for release on Thursday, nearly a decade after the attack by a pair of 12-year-olds against their friend stunned residents of Waukesha, Wis.`\
+https://nytimes.com/2024/04/11/us/slender-man-stabbing-wisconsin.html
+
 **Biden Administration Said to Expand Two California National Monuments**\
 `The San Gabriel Mountains National Monument and the Berryessa Snow Mountain National Monument are expected to grow by a combined total of about 130,000 acres.`\
 https://nytimes.com/2024/04/11/climate/biden-expand-two-california-national-monuments.html

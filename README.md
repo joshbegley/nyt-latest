@@ -1,3 +1,7 @@
+**What to Watch This Weekend: A Food-Fantasy Anime**\
+`“Delicious in Dungeon” on Netflix combines the aesthetic pleasures of anime with the food-nerd pleasures of Serious Eats.`\
+https://nytimes.com/2024/04/11/arts/television/delicious-in-dungeon.html
+
 **Woman Who Stabbed Childhood Friend to Impress ‘Slender Man’ Won’t Be Released**\
 `A judge denied Morgan Geyser’s request for release on Thursday, nearly a decade after the attack by a pair of 12-year-olds against their friend stunned residents of Waukesha, Wis.`\
 https://nytimes.com/2024/04/11/us/slender-man-stabbing-wisconsin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/climate/amazon-deforestation-drugs-crime.html
 **Finally, a Case Goes to Trial**\
 `Jury selection begins Monday in Donald Trump’s hush-money trial.`\
 https://nytimes.com/2024/04/11/us/politics/trump-trial-hush-money-newyork.html
-
-**NPR in Turmoil After It Is Accused of Liberal Bias**\
-`An essay from an editor at the broadcaster has generated a firestorm of criticism about the network on social media, especially among conservatives.`\
-https://nytimes.com/2024/04/11/business/media/npr-criticism-liberal-bias.html
 
