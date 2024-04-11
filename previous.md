@@ -1,3 +1,11 @@
+**Richard Lyons, Former Business School Dean, Will Be U.C. Berkeley’s New Chancellor**\
+`The appointment comes as Berkeley and college campuses across the country are facing turmoil over free speech, racial and political diversity, and affordability.`\
+https://nytimes.com/2024/04/11/us/richard-lyons-uc-berkeley-chancellor.html
+
+**A Jazz Lounge That’s More Than Kind of Blue**\
+`Plus: Thom Browne bedding, a new Brooklyn bakery and more recommendations from T Magazine.`\
+https://nytimes.com/2024/04/11/t-magazine/only-love-strangers-east-village-jazz.html
+
 **3 Men Rescued from Pacific Island After Writing ‘Help’ With Palm Leaves**\
 `American rescuers found the lost sailors on a tiny uninhabited island in Micronesia with a damaged boat and the word spelled out on the beach.`\
 https://nytimes.com/2024/04/11/world/asia/pacific-island-rescue-us-coast-guard.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/11/technology/personaltech/ai-pin-humane-openai-micr
 **Vietnamese Real Estate Tycoon Sentenced to Death in $12 Billion Fraud Case**\
 `Truong My Lan received the death penalty as Vietnam’s Communist Party cracks down on corruption in the fast-growing Southeast Asian economic hub.`\
 https://nytimes.com/2024/04/11/world/asia/vietnam-lan-fraud-death-sentence.html
-
-**Cannes Festival Unveils 2024 Lineup, Including a Francis Ford Coppola Film**\
-`Organizers on Thursday announced a lineup that also features new films from Yorgos Lanthimos, David Cronenberg and Paul Schrader.`\
-https://nytimes.com/2024/04/11/movies/cannes-film-festival-lineup.html
-
-**‘Food, Inc. 2’ Review: A Second Course**\
-`Directed by Robert Kenner and Melissa Robledo, the sequel about food production in the U.S. is, in some ways, a more hopeful film.`\
-https://nytimes.com/2024/04/11/movies/food-inc-2-review.html
 

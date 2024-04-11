@@ -1,3 +1,11 @@
+**Richard Lyons, Former Business School Dean, Will Be U.C. Berkeley’s New Chancellor**\
+`The appointment comes as Berkeley and college campuses across the country are facing turmoil over free speech, racial and political diversity, and affordability.`\
+https://nytimes.com/2024/04/11/us/richard-lyons-uc-berkeley-chancellor.html
+
+**A Jazz Lounge That’s More Than Kind of Blue**\
+`Plus: Thom Browne bedding, a new Brooklyn bakery and more recommendations from T Magazine.`\
+https://nytimes.com/2024/04/11/t-magazine/only-love-strangers-east-village-jazz.html
+
 **3 Men Rescued from Pacific Island After Writing ‘Help’ With Palm Leaves**\
 `American rescuers found the lost sailors on a tiny uninhabited island in Micronesia with a damaged boat and the word spelled out on the beach.`\
 https://nytimes.com/2024/04/11/world/asia/pacific-island-rescue-us-coast-guard.html
