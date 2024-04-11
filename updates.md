@@ -1,3 +1,11 @@
+**Ex-Cornell Student Admits Targeting Jewish Students With Online Threats**\
+`Patrick Dai pleaded guilty to posting a series of messages in which he threatened to stab, rape and behead Jewish people.`\
+https://nytimes.com/2024/04/10/nyregion/cornell-jewish-students-threats.html
+
+**Driven by China, Coal Plants Made a Comeback in 2023**\
+`The country, along with India, is still building power stations that run on coal. Elsewhere, retirements of older plants have slowed.`\
+https://nytimes.com/2024/04/10/climate/coal-plants-china.html
+
 **Driven by China, Coal Plants Made a Comeback in 2023**\
 `The country, along with India, is still building power stations that run on coal. Elsewhere, retirements of older plants have slowed.`\
 https://nytimes.com/2024/04/10/climate/driven-by-china-coal-plants-made-a-comeback-in-2023.html
