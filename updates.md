@@ -1,3 +1,15 @@
+**Here’s what to know about the hunger crisis in Gaza.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas/heres-what-to-know-about-the-hunger-crisis-in-gaza
+
+**U.S. Sends a Top General to Israel Amid Fears of Iranian Strikes**\
+`The visit of Gen. Michael E. Kurilla, the U.S. military commander in the Middle East, comes as diplomats seek to avert a wider war.`\
+https://nytimes.com/2024/04/11/world/middleeast/israel-iran-hamas-strikes.html
+
+**New Trump Super PAC Says It Has $27 Million After Its First Major Event**\
+`The group’s biggest donor is Isaac Perlmutter, the former Marvel Entertainment chief executive who supported the organization when it formed weeks ago.`\
+https://nytimes.com/2024/04/11/us/politics/trump-super-pac.html
+
 **O.J., Made in America, Made by TV**\
 `In O.J. Simpson’s life and trials, television was a spotlight, a microscope and a mirror.`\
 https://nytimes.com/2024/04/11/arts/television/oj-simpson-tv-football-trial.html
