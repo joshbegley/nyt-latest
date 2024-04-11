@@ -7,7 +7,7 @@ https://nytimes.com/2024/04/11/nyregion/bronx-twins-mother-murder.html
 https://nytimes.com/live/2024/04/11/world/israel-gaza-war-news-hamas/heres-what-to-know-about-the-hunger-crisis-in-gaza
 
 **U.S. Sends a Top General to Israel Amid Fears of Iranian Strikes**\
-`The visit of Gen. Michael E. Kurilla, the U.S. military commander in the Middle East, comes as diplomats seek to avert a wider war.`\
+`The visit of Gen. Michael E. Kurilla, the U.S. military commander in the Middle East, came as diplomats sought to avert a wider war.`\
 https://nytimes.com/2024/04/11/world/middleeast/israel-iran-hamas-strikes.html
 
 **New Trump Super PAC Says It Has $27 Million After Its First Major Event**\
