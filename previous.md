@@ -1,14 +1,22 @@
+**Abortion, inflation, Gaza — 2024’s biggest issues are flaring this week for Trump and Biden.**\
+`Many of the key issues driving the campaign — each posing clear vulnerabilities to the two major candidates — have collided.`\
+https://nytimes.com/2024/04/11/us/politics/abortion-inflation-gaza-trial-2024-trump-biden.html
+
+**What’s Driving Surging Gold Bar Sales at Costco?**\
+`Costco may be selling up to $200 million worth of the bars each month, according to a Wells Fargo analysis. The bars sell out quickly, and customers are trading advice online about how to get them.`\
+https://nytimes.com/2024/04/11/business/costco-gold-bars.html
+
 **A Conversation With Deborah Feldman, an Unorthodox Voice in Germany**\
 `Feldman, who wrote in “Unorthodox” about leaving her Hasidic community in New York, has been touching a nerve in Germany, where she is now a citizen.`\
 https://nytimes.com/2024/04/11/arts/deborah-feldman-unorthodox-germany.html
 
-**Richard Lyons, Former Business School Dean, Will Be U.C. Berkeley’s New Chancellor**\
-`The appointment comes as Berkeley and college campuses across the country are facing turmoil over free speech, racial and political diversity, and affordability.`\
-https://nytimes.com/2024/04/11/us/richard-lyons-uc-berkeley-chancellor.html
-
 **A Jazz Lounge That’s More Than Kind of Blue**\
 `Plus: Thom Browne bedding, a new Brooklyn bakery and more recommendations from T Magazine.`\
 https://nytimes.com/2024/04/11/t-magazine/only-love-strangers-east-village-jazz.html
+
+**Richard Lyons, Former Business School Dean, Will Be U.C. Berkeley’s New Chancellor**\
+`The appointment comes as Berkeley and college campuses across the country are facing turmoil over free speech, racial and political diversity, and affordability.`\
+https://nytimes.com/2024/04/11/us/richard-lyons-uc-berkeley-chancellor.html
 
 **3 Men Rescued from Pacific Island After Writing ‘Help’ With Palm Leaves**\
 `American rescuers found the lost sailors on a tiny uninhabited island in Micronesia with a damaged boat and the word spelled out on the beach.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/11/business/dealbook/the-odds-for-a-summertime-rate-
 **E.C.B. Holds Rates Steady as Markets Look for Hints on First Cut**\
 `It was the fifth consecutive decision by the eurozone’s central bank to leave rates untouched, as inflation closes in on the bank’s 2 percent target.`\
 https://nytimes.com/2024/04/11/business/european-central-bank-rates.html
-
-**Israel Announces New Operation Against Hamas, After Killing Top Leader’s Sons**\
-`The military said it had carried out an operation in Gaza to kill members of Hamas, a day after attacking a car carrying three sons of Ismail Haniyeh, the group’s political leader.`\
-https://nytimes.com/2024/04/11/world/middleeast/israel-hamas-attack-haniyeh.html
-
-**This Artificially Intelligent Pin Wants to Free You From Your Phone**\
-`The $700 Ai Pin, funded by OpenAI and Microsoft, can be helpful — until it struggles with tasks like doing math and crafting sandwich recipes.`\
-https://nytimes.com/2024/04/11/technology/personaltech/ai-pin-humane-openai-microsoft.html
 

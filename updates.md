@@ -1,3 +1,11 @@
+**Abortion, inflation, Gaza — 2024’s biggest issues are flaring this week for Trump and Biden.**\
+`Many of the key issues driving the campaign — each posing clear vulnerabilities to the two major candidates — have collided.`\
+https://nytimes.com/2024/04/11/us/politics/abortion-inflation-gaza-trial-2024-trump-biden.html
+
+**What’s Driving Surging Gold Bar Sales at Costco?**\
+`Costco may be selling up to $200 million worth of the bars each month, according to a Wells Fargo analysis. The bars sell out quickly, and customers are trading advice online about how to get them.`\
+https://nytimes.com/2024/04/11/business/costco-gold-bars.html
+
 **A Conversation With Deborah Feldman, an Unorthodox Voice in Germany**\
 `Feldman, who wrote in “Unorthodox” about leaving her Hasidic community in New York, has been touching a nerve in Germany, where she is now a citizen.`\
 https://nytimes.com/2024/04/11/arts/deborah-feldman-unorthodox-germany.html
