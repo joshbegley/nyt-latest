@@ -1,3 +1,11 @@
+**Campaign Puts Trump and the Spy Agencies on Collision Course**\
+`As president, Donald Trump never trusted the intelligence community. His antipathy has only grown since he left office, with potentially serious implications should he return to power.`\
+https://nytimes.com/2024/04/12/us/politics/trump-intelligence-agencies.html
+
+**Biden Administration Raises Costs to Drill and Mine on Public Lands**\
+`For the first time since 1920, the government has raised the rates that companies pay. The fossil fuel industry says it will hurt the economy.`\
+https://nytimes.com/2024/04/12/climate/biden-administration-raises-costs-to-drill-and-mine-on-public-lands.html
+
 **Review: Dance Theater of Harlem Is in New (and Capable) Hands**\
 `The company performed its first New York City Center season under the direction of Robert Garland in a program including George Balanchine’s “Pas de Dix.”`\
 https://nytimes.com/2024/04/12/arts/dance/review-dance-theater-of-harlem-robert-garland-pas-de-dix.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/12/arts/music/thursday-new-song-application-for-rele
 **Alain Delon at His Very Best: Ravishing, Yes, but Also Destabilizing**\
 `The French star is the subject of a series at Film Forum focusing on movies from the ’60s and ’70s, when he became an international sensation.`\
 https://nytimes.com/2024/04/12/movies/alain-delon-retrospective.html
-
-**Academic Freedom and the Israel-Gaza War**\
-`Responses to an Opinion guest essay by two N.Y.U. professors. Also: Biden-Trump debates; Rosie the Riveter; never enough money.`\
-https://nytimes.com/2024/04/12/opinion/academic-freedom-israel-gaza-nyu.html
-
-**Cries of Sexism Greet a Nike Olympic Reveal**\
-`The sporting giant offered a sneak peek at its track and field outfits for Team U.S.A., and an unexpected backlash ensued.`\
-https://nytimes.com/2024/04/12/style/sexism-nike-olympic-track-and-field-uniforms.html
 
