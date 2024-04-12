@@ -1,3 +1,7 @@
+**Three Interpretations of ‘The Three-Body Problem’**\
+`A geopolitical allegory whose meaning shifts from version to version.`\
+https://nytimes.com/2024/04/12/opinion/three-body-problem.html
+
 **Campaign Puts Trump and the Spy Agencies on a Collision Course**\
 `As president, Donald Trump never trusted the intelligence community. His antipathy has only grown since he left office, with potentially serious implications should he return to power.`\
 https://nytimes.com/2024/04/12/us/politics/trump-intelligence-agencies.html
