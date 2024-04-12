@@ -1,3 +1,7 @@
+**‘Taxi Driver’ and a Year of Radical Revision**\
+`Remakes and remixes are not mere protest.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/taxi-driver-jafa
+
 **President vows to stand by Israel despite recent disagreements.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/president-vows-to-stand-by-israel-despite-recent-disagreements
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/world/middleeast/iran-israel-military-weapons.htm
 **Gen Z Wanted a Scrabble More Conducive to Hanging Out. Mattel Was Happy to Oblige.**\
 `Will Classic Scrabble devotees object? You bet.`\
 https://nytimes.com/2024/04/12/crosswords/mattel-scrabble-together.html
-
-**Roberto Cavalli, Designer Who Celebrated Excess, Dies at 83**\
-`From the mid-1990s onward he was one of the biggest names in fashion, with stores around the world and celebrity admirers like Lenny Kravitz and Cindy Crawford.`\
-https://nytimes.com/2024/04/12/fashion/roberto-cavalli-dead.html
 
