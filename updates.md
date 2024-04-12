@@ -1,3 +1,15 @@
+**Haiti in Crisis Sets Up Ruling Council, Clearing Way for an Acting Leader**\
+`A governing council was finalized after a month of negotiations. It is tasked with restoring law and order by appointing an acting prime minister.`\
+https://nytimes.com/2024/04/12/world/americas/haiti-transitional-council.html
+
+**Roberto Cavalli, a Life Out Loud**\
+`The fashion designer who made maximalism cool.`\
+https://nytimes.com/2024/04/12/style/roberto-cavalli-a-life-out-loud.html
+
+**Anti-Violence Activist Says N.Y.P.D. Leaders Defamed Her Over Criticism**\
+`Dana Rachlin, who filed a federal defamation lawsuit against the Police Department, said the string of recent attacks by high-level officials against critics was not surprising.`\
+https://nytimes.com/2024/04/12/nyregion/nypd-lawsuit.html
+
 **President Biden vows to stand by Israel despite recent disagreements.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/president-vows-to-stand-by-israel-despite-recent-disagreements

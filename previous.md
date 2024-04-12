@@ -1,3 +1,15 @@
+**Haiti in Crisis Sets Up Ruling Council, Clearing Way for an Acting Leader**\
+`A governing council was finalized after a month of negotiations. It is tasked with restoring law and order by appointing an acting prime minister.`\
+https://nytimes.com/2024/04/12/world/americas/haiti-transitional-council.html
+
+**Roberto Cavalli, a Life Out Loud**\
+`The fashion designer who made maximalism cool.`\
+https://nytimes.com/2024/04/12/style/roberto-cavalli-a-life-out-loud.html
+
+**Anti-Violence Activist Says N.Y.P.D. Leaders Defamed Her Over Criticism**\
+`Dana Rachlin, who filed a federal defamation lawsuit against the Police Department, said the string of recent attacks by high-level officials against critics was not surprising.`\
+https://nytimes.com/2024/04/12/nyregion/nypd-lawsuit.html
+
 **Transcript: Ezra Klein Interviews Dario Amodei**\
 `The April 12, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/04/12/podcasts/transcript-ezra-klein-interviews-dario-amodei.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/12/magazine/girlfriend-love-reciprocate-ethics.html
 **Rumi Missabu, Avant-Garde Drag Performer Who Glittered, Dies at 76**\
 `He was one of the stars of the Cockettes, a psychedelic collective formed at the turn of the 1970s in San Francisco, that was short-lived but inspired generations.`\
 https://nytimes.com/2024/04/12/style/rumi-missabu-dead.html
-
-**Richard Leibner, Agent for Top Broadcast Journalists, Dies at 85**\
-`His negotiations led to Dan Rather’s elevation from “60 Minutes” to anchor of the “CBS Evening News” and sent Diane Sawyer from “60 Minutes” to ABC.`\
-https://nytimes.com/2024/04/12/business/media/richard-leibner-dead.html
-
-**Argentine Court Says Iran Was Behind Israeli Embassy and Jewish Center Attacks**\
-`The ruling opens the possibility for relatives of victims of the 1992 and 1994 attacks to make claims against Iran in international tribunals.`\
-https://nytimes.com/2024/04/12/world/middleeast/argentina-iran-1992-1994-attack.html
-
-**U.S. Targets Unlikely to Be on List in Possible Iranian Attack, Officials Say**\
-`In anticipation of the Iranian strikes, several countries, including the United States, issued new guidelines to their citizens about travel in Israel and the surrounding region.`\
-https://nytimes.com/2024/04/12/world/middleeast/iran-attack-american-targets-israel.html
 
