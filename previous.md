@@ -1,3 +1,7 @@
+**A Poem That’s Like a Perfect First Date**\
+`Frank O’Hara’s “Having a Coke With You” makes a charming first impression, and right away you want to get to know it better.`\
+https://nytimes.com/interactive/2024/04/11/books/frank-ohara-having-a-coke-poem.html
+
 **Variety: Puns and Anagrams**\
 `Michael Lieberman’s groovy puzzle makes us use our noodles.`\
 https://nytimes.com/2024/04/11/crosswords/variety-puns-and-anagrams.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/arts/television/oj-simpson-hertz-ads-commercials.
 **The Quiet Magic of Middle Managers**\
 `Amid a wider national atmosphere of division, distrust, bitterness and exhaustion, middle managers are the frontline workers trying to resolve tensions and keep communities working.`\
 https://nytimes.com/2024/04/11/opinion/middle-managers-business-society.html
-
-**Kennedy Campaign Fires Consultant Who Sought to Help Trump Win**\
-`The Kennedy campaign said the consultant, Rita Palma, had falsely identified herself as its New York state director.`\
-https://nytimes.com/2024/04/11/us/politics/rfk-jr-rita-palma-trump.html
 
