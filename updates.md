@@ -1,3 +1,7 @@
+**Salman Rushdie Is Again the Toast of Literary Manhattan**\
+`Nearly two years after he was stabbed, he was in fine form as he greeted his fellow writers at a party celebrating his candid memoir, “Knife.”`\
+https://nytimes.com/2024/04/12/style/salman-rushdie-literary-party.html
+
 **Republican Women Are Divided on Abortion as Bans Spread**\
 `Across the country, fractures are emerging among conservative and centrist women, as they confront a steady drumbeat of new abortion restrictions and court rulings.`\
 https://nytimes.com/2024/04/12/us/abortion-ivf-republican-women.html
