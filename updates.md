@@ -1,3 +1,7 @@
+**Trump Says He Intends to Testify in His Manhattan Criminal Case**\
+`Jury selection begins Monday in the prosecution of Donald J. Trump on charges of covering up a sex scandal. He said he would try to sway jurors personally, though he has backed away in the past.`\
+https://nytimes.com/2024/04/12/nyregion/trump-trial-testify-hush-money-case.html
+
 **Salman Rushdie Is Again the Toast of Literary Manhattan**\
 `Nearly two years after he was stabbed, he was in fine form as he greeted his fellow writers at a party celebrating his candid memoir, “Knife.”`\
 https://nytimes.com/2024/04/12/style/salman-rushdie-literary-party.html
