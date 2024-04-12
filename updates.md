@@ -1,3 +1,7 @@
+**Indigenous Authors and the Challenge of Telling Their Own Story**\
+`A university program seeks to improve cross-cultural understanding in Australia’s publishing industry.`\
+https://nytimes.com/2024/04/12/world/australia/indigenous-publishing-australia-aboriginal.html
+
 **Europe’s A.I. ‘Champion’ Sets Sights on Tech Giants in U.S.**\
 `Mistral, a French start-up considered a promising challenger to OpenAI and Google, is getting support from European leaders who want to protect the region’s culture and politics.`\
 https://nytimes.com/2024/04/12/business/artificial-intelligence-mistral-france-europe.html
