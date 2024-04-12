@@ -1,3 +1,7 @@
+**In Los Angeles, the O.J. Simpson Case Defined a Turbulent Era**\
+`From the car chase to the verdict, the murder case became an inextricable part of Los Angeles history in the 1990s, and Angelenos to this day still ponder what happened.`\
+https://nytimes.com/2024/04/11/us/oj-simpson-los-angeles.html
+
 **Review: In ‘The Outsiders,’ a New Song for the Young Misfits**\
 `The classic coming-of-age novel has become a compelling, if imperfect, musical about have-not teenagers in a have-it-all world.`\
 https://nytimes.com/2024/04/11/theater/review-outsiders-musical.html
