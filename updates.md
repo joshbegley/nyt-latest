@@ -1,3 +1,7 @@
+**A Rollicking Requiem for a Pirate**\
+`At Jimmy Buffett’s memorial, Hawaiian shirts, grass skirts and celebrity weed jokes.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/jimmy-buffett-memorial
+
 **Former U.S. Ambassador Is Sentenced to 15 Years for Acting as Cuban Agent**\
 `Manuel Rocha pleaded guilty to two charges, including conspiring to defraud the United States as a foreign agent, under an agreement with the U.S. government.`\
 https://nytimes.com/2024/04/12/us/manuel-rocha-cuba-foreign-agent.html
