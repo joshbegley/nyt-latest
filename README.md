@@ -1,3 +1,7 @@
+**A Look at Iran’s Military Capabilities as It Threatens Israel**\
+`The possibility of a direct military confrontation between Iran and Israel has brought renewed attention to Iran’s armed forces. What are they capable of?`\
+https://nytimes.com/2024/04/12/world/middleeast/iran-israel-military-weapons.html
+
 **Gen Z Wanted a Scrabble More Conducive to Hanging Out. Mattel Was Happy to Oblige.**\
 `Will Classic Scrabble devotees object? You bet.`\
 https://nytimes.com/2024/04/12/crosswords/scrabble-new-version.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/world/middleeast/iran-israel-miscalculation-retal
 **Driver Crashes Truck Into Texas Public Safety Dept., Causing Injuries, Officials Say**\
 `The authorities said that a person driving a semi truck crashed into a Department of Public Safety office in Brenham, Texas, in what may have been an intentional act.`\
 https://nytimes.com/2024/04/12/us/texas-truck-crash.html
-
-**At Berkeley, a Protest at a Dean’s Home Tests the Limits of Free Speech**\
-`Pro-Palestinian supporters disrupted a dinner for law students. There was a tussle over the microphone and conflicting claims of harm.`\
-https://nytimes.com/2024/04/12/us/uc-berkeley-palestinian-protest-free-speech.html
 
