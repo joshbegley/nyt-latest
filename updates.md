@@ -1,3 +1,7 @@
+**Republican Women Are Divided on Abortion as Bans Spread**\
+`Across the country, fractures are emerging among conservative and centrist women, as they confront a steady drumbeat of new abortion restrictions and court rulings.`\
+https://nytimes.com/2024/04/12/us/abortion-ivf-republican-women.html
+
 **A Rollicking Requiem for a Pirate**\
 `At Jimmy Buffett’s memorial, Hawaiian shirts, grass skirts and celebrity weed jokes.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/jimmy-buffett-memorial
