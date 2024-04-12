@@ -1,3 +1,7 @@
+**Piercing Site**\
+`Evan Kalish opens our solving weekend.`\
+https://nytimes.com/2024/04/11/crosswords/daily-puzzle-2024-04-12.html
+
 **In Los Angeles, the O.J. Simpson Case Defined a Turbulent Era**\
 `From the car chase to the verdict, the murder case became an inextricable part of Los Angeles history in the 1990s, and Angelenos to this day still ponder what happened.`\
 https://nytimes.com/2024/04/11/us/oj-simpson-los-angeles.html
