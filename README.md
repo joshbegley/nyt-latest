@@ -1,3 +1,7 @@
+**Bank of England to Overhaul Its Forecasting After Inflation Surprises**\
+`The review, which was led by Ben S. Bernanke, a former Federal Reserve chair, came after the central bank had been criticized for underestimating inflation.`\
+https://nytimes.com/2024/04/12/business/bank-of-england-interest-rates-inflation.html
+
 **Surveillance Bill Clears Key Hurdle in House, Putting It Back on Track**\
 `Speaker Mike Johnson scaled back the measure to two years from five, winning over hard-right Republicans who believe Donald J. Trump will be president by the time it would expire.`\
 https://nytimes.com/2024/04/12/us/politics/surveillance-bill-fisa.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/business/dealbook/inflation-housing-market-mortga
 **Dimon Warns of ‘Unsettling’ Pressures as JPMorgan Reports Earnings**\
 `Warnings from the chief executive of the nation’s largest bank have been consistently at odds with heady financial markets.`\
 https://nytimes.com/2024/04/12/business/jpmorgan-earnings-dimon-warning.html
-
-**Watch a Sniper Scene From ‘Civil War’**\
-`Alex Garland, the film’s writer and director, narrates a sequence from his movie.`\
-https://nytimes.com/2024/04/12/movies/civil-war-scene.html
 
