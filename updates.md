@@ -1,3 +1,15 @@
+**Bennett Braun, Psychiatrist Who Fueled ‘Satanic Panic,’ Dies at 83**\
+`He diagnosed dozens of patients with what he said were suppressed memories of being tortured by cults. He later lost his license.`\
+https://nytimes.com/2024/04/12/us/bennett-braun-dead.html
+
+**German Police Stop Pro-Palestinian Conference**\
+`The German police shut down a pro-Palestinian conference in Berlin, citing the risk that one of the speakers invited might make antisemitic comments or incite violence.`\
+https://nytimes.com/video/world/europe/100000009412212/palestine-conference-berlin.html
+
+**The Mechanics of Covering Trump’s Manhattan Criminal Trial**\
+`Beginning on April 15, Times reporters will provide up-to-the-minute updates on the trial.`\
+https://nytimes.com/2024/04/12/insider/trump-trial-reporters.html
+
 **Sean Combs Sold Share of Tequila Brand for $200 Million**\
 `Mr. Combs, who was accused of sexual assault in several lawsuits, made the sale as he ended his long-term partnership with the liquor giant Diageo. He has denied wrongdoing.`\
 https://nytimes.com/2024/04/12/arts/sean-combs-deleon-sale.html
