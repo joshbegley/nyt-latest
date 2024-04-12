@@ -1,3 +1,7 @@
+**Gen Z Wanted a Scrabble More Conducive to Hanging Out. Mattel Was Happy to Oblige.**\
+`Will Classic Scrabble devotees object? You bet.`\
+https://nytimes.com/2024/04/12/crosswords/scrabble-new-version.html
+
 **Roberto Cavalli, Designer Who Celebrated Excess, Dies at 83**\
 `From the mid-1990s onward he was one of the biggest names in fashion, with stores around the world and celebrity admirers like Lenny Kravitz and Cindy Crawford.`\
 https://nytimes.com/2024/04/12/fashion/roberto-cavalli-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/us/texas-truck-crash.html
 **At Berkeley, a Protest at a Dean’s Home Tests the Limits of Free Speech**\
 `Pro-Palestinian supporters disrupted a dinner for law students. There was a tussle over the microphone and conflicting claims of harm.`\
 https://nytimes.com/2024/04/12/us/uc-berkeley-palestinian-protest-free-speech.html
-
-**The Ultimate Judee Sill Primer**\
-`A new documentary puts a spotlight on the ’70s musician. Listen to 10 of her essential songs.`\
-https://nytimes.com/2024/04/12/arts/music/amplifier-newsletter-judee-sill.html
 
