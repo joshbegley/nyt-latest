@@ -1,3 +1,7 @@
+**‘Civil War’ | Anatomy of a Scene**\
+`The writer and director Alex Garland narrates a sequence from his film.`\
+https://nytimes.com/video/movies/100000009409492/civil-war-scene.html
+
 **The New Great-Power Politics**\
 `How an emerging alliance is shaping the world.`\
 https://nytimes.com/2024/04/12/briefing/the-new-great-power-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas
 **Fatal Shooting of Driver by Chicago Police Is Under Investigation**\
 `Chicago police officers stopped Dexter Reed, Jr., last month and fired 96 shots after he fired first and wounded an officer, investigators said.`\
 https://nytimes.com/2024/04/12/us/dexter-reed-chicago-police-shooting.html
-
-**War or No War, Ukrainians Aren’t Giving Up Their Coffee**\
-`Coffee shops and kiosks are everywhere in Ukraine’s capital, their popularity both an act of wartime defiance and a symbol of closer ties to the rest of Europe.`\
-https://nytimes.com/2024/04/12/world/europe/kyiv-ukraine-coffee-culture.html
 
