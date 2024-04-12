@@ -1,3 +1,7 @@
+**Variety: Puns and Anagrams**\
+`Michael Lieberman’s groovy puzzle makes us use our noodles.`\
+https://nytimes.com/2024/04/11/crosswords/variety-puns-and-anagrams.html
+
 **Piercing Site**\
 `Evan Kalish opens our solving weekend.`\
 https://nytimes.com/2024/04/11/crosswords/daily-puzzle-2024-04-12.html

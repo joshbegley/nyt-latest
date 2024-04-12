@@ -1,3 +1,7 @@
+**Variety: Puns and Anagrams**\
+`Michael Lieberman’s groovy puzzle makes us use our noodles.`\
+https://nytimes.com/2024/04/11/crosswords/variety-puns-and-anagrams.html
+
 **Piercing Site**\
 `Evan Kalish opens our solving weekend.`\
 https://nytimes.com/2024/04/11/crosswords/daily-puzzle-2024-04-12.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/opinion/middle-managers-business-society.html
 **Kennedy Campaign Fires Consultant Who Sought to Help Trump Win**\
 `The Kennedy campaign said the consultant, Rita Palma, had falsely identified herself as its New York state director.`\
 https://nytimes.com/2024/04/11/us/politics/rfk-jr-rita-palma-trump.html
-
-**Texas Surgeon Is Accused of Secretly Denying Liver Transplants**\
-`A Houston hospital is investigating whether a doctor altered a transplant list to make his patients ineligible for care. A disproportionate number of them have died while waiting for new organs.`\
-https://nytimes.com/2024/04/11/us/organ-transplants-houston.html
 
