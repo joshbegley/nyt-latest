@@ -1,40 +1,40 @@
-**A Hollywood Remake of Your Childhood Fast Food Memories**\
-`In Los Angeles, the restaurant Chain taps into a feverish nostalgia for burgers and pizza from the 20th century.`\
-https://nytimes.com/2024/04/12/dining/hollywood-fast-food.html
+**The Founding Fathers Don’t Have the Answer to Every Question**\
+`The Electoral College as we know it is less a product of the insight or design of the framers and more a contingent adaptation to the political world.`\
+https://nytimes.com/2024/04/12/opinion/nebraska-electoral-college-myths.html
 
-**Abortion, Trump and Religion in Politics**\
-`Does God have to be Republican?`\
-https://nytimes.com/2024/04/12/opinion/abortion-trump-religion.html
+**Get Organized Quickly With These Decluttering ‘Sprints’**\
+`You can finish them in 30 minutes or less.`\
+https://nytimes.com/2024/04/12/well/live/organize-your-home-declutter.html
 
-**The Troubling Trend in Teenage Sex**\
-`“Choking” has moved from porn to pop culture to the dorm room. And the consequences for young women could be very serious.`\
-https://nytimes.com/2024/04/12/opinion/choking-teen-sex-brain-damage.html
+**The New York Times News Quiz, April 12, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/04/12/briefing/news-quiz-oj-eclipse-abortion.html
 
-**Flaco Is Gone. For Some Fans, His Legacy Lives On in Ink.**\
-`A tattoo shop in Brooklyn offered original designs of the owl. Flaco admirers who got them said the bird was a symbol of freedom.`\
-https://nytimes.com/2024/04/12/nyregion/flaco-tattoos-brooklyn.html
+**‘Brandy Hellville’: A New Twist for Cult Documentaries**\
+`The film examines the retailer’s tactics and is surprisingly similar to exposés about cults.`\
+https://nytimes.com/2024/04/12/movies/brandy-hellville-cult-documentaries.html
 
-**Where Kamala Harris Lives, a Little Known History of Enslavement**\
-`The vice president’s official residence is in a quiet Washington enclave once home to 34 enslaved people. Ms. Harris has not spoken of the matter publicly.`\
-https://nytimes.com/2024/04/12/us/politics/kamala-harris-slavery.html
+**How to Create a Home Bar: Jessica Schuster’s Dos and Don’ts**\
+`Interior designer Jessica Schuster offers advice on how to set up a home bar.`\
+https://nytimes.com/interactive/2024/04/12/realestate/home-bar-how-to-set-up.html
 
-**V.A. Loans Don’t Cover Commissions. How Will Veterans Afford New Fees?**\
-`The V.A. loan prohibits borrowers from paying commissions to real estate agents — a rule that could put veterans at a great disadvantage when buying a house.`\
-https://nytimes.com/2024/04/12/realestate/veterans-va-loan-commissions.html
+**The O.J. Simpson Trial: What Happened to the Main Figures**\
+`Some, like Marcia Clark and Mark Fuhrman, gained fame in other arenas. Others lived quieter lives.`\
+https://nytimes.com/2024/04/12/us/oj-simpson-trial-where-are-they-now.html
 
-**Her Arm Was Unbearably Swollen and Painful. What Was Causing It?**\
-`A persistent ache had spread throughout her shoulder, down to her elbow. Was her tennis-playing responsible?`\
-https://nytimes.com/2024/04/12/magazine/her-arm-was-unbearably-swollen-and-painful-what-was-causing-it.html
+**J.D. Vance: The Math on Ukraine Doesn’t Add Up**\
+`Ukraine needs more men than it can field, even with draconian conscription policies. And it needs more material than the United States can provide.`\
+https://nytimes.com/2024/04/12/opinion/jd-vance-ukraine.html
 
-**With State Bans on D.E.I., Some Universities Find a Workaround: Rebranding**\
-`Welcome to the new “Office of Access and Engagement.” Schools are renaming departments and job titles to try to preserve diversity programs.`\
-https://nytimes.com/2024/04/12/us/diversity-ban-dei-college.html
+**Democratic Coalition Sends Biden a Demand on Military Aid to Israel**\
+`In a letter, a dozen groups and labor unions called on the president to enforce a law that bars military support from going to any nation that restricts the delivery of humanitarian aid.`\
+https://nytimes.com/2024/04/12/us/politics/letter-biden-israel-gaza.html
 
-**$1.3 Million Homes in Athens**\
-`A two-level penthouse on the Athens Riviera, an industrial-flavored loft with Acropolis views, and a custom-built villa just south of central Athens.`\
-https://nytimes.com/2024/04/12/realestate/1-3-million-homes-in-athens.html
+**There’s More to a Home Bar Than Liquor. Here’s What Else You Need.**\
+`An artful display tells your guests you care about them — and it’s easier to create than you may think.`\
+https://nytimes.com/2024/04/12/realestate/bar-cart-home.html
 
-**Audiobooks to Lull You to Sleep**\
-`No, they’re not boring. But the charm and magic of these audiobooks make them the ideal bedtime stories for adults.`\
-https://nytimes.com/2024/04/12/books/review/novels-to-fall-asleep-to.html
+**O.J. Was an Earthquake. We’re Still Living With His Aftershocks.**\
+`He tried to shed his Blackness, but his all-consuming murder trial put the historically lurid American psyche on full display.`\
+https://nytimes.com/2024/04/12/arts/oj-simpson-black-america.html
 
