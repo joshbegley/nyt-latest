@@ -1,3 +1,7 @@
+**Rumi Missabu, Avant-Garde Drag Performer Who Glittered, Dies at 76**\
+`He was one of the stars of the Cockettes, a ]psychedelic collective formed at the turn of the 1970s in San Francisco, that was short-lived but inspired generations.`\
+https://nytimes.com/2024/04/12/style/rumi-missabu-dead.html
+
 **Richard Leibner, Agent for Top Broadcast Journalists, Dies at 85**\
 `His negotiations led to Dan Rather’s elevation from “60 Minutes” to anchor of the “CBS Evening News” and sent Diane Sawyer from “60 Minutes” to ABC.`\
 https://nytimes.com/2024/04/12/business/media/richard-leibner-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/opinion/inflation-economics-economists.html
 **Trump and O.J.: Antiheroes in a Cracked Mirror**\
 `Both are American stories. Are they truly aberrations?`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/simpson-trump-trials
-
-**What the O.J. Trial Taught America About Domestic Violence**\
-`Nicole Brown Simpson’s death shook an entire nation into recognition that domestic abuse crosses all bounds of race and class.`\
-https://nytimes.com/2024/04/12/opinion/oj-simpson-domestic-violence.html
 
