@@ -1,3 +1,7 @@
+**The New Great-Power Politics**\
+`How an emerging alliance is shaping the world.`\
+https://nytimes.com/2024/04/12/briefing/the-new-great-power-politics.html
+
 **Myanmar Rebels Take Key Trading Town, but Counteroffensive Looms**\
 `The fall of Myawaddy, on the Thai border, was one of the most significant gains by resistance forces since a 2021 military coup.`\
 https://nytimes.com/2024/04/12/world/asia/myanmar-rebels-myawaddy.html

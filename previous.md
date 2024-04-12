@@ -1,3 +1,7 @@
+**The New Great-Power Politics**\
+`How an emerging alliance is shaping the world.`\
+https://nytimes.com/2024/04/12/briefing/the-new-great-power-politics.html
+
 **Myanmar Rebels Take Key Trading Town, but Counteroffensive Looms**\
 `The fall of Myawaddy, on the Thai border, was one of the most significant gains by resistance forces since a 2021 military coup.`\
 https://nytimes.com/2024/04/12/world/asia/myanmar-rebels-myawaddy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/us/dexter-reed-chicago-police-shooting.html
 **War or No War, Ukrainians Aren’t Giving Up Their Coffee**\
 `Coffee shops and kiosks are everywhere in Ukraine’s capital, their popularity both an act of wartime defiance and a symbol of closer ties to the rest of Europe.`\
 https://nytimes.com/2024/04/12/world/europe/kyiv-ukraine-coffee-culture.html
-
-**A.I.’s Data Wall, a Surprise Privacy Bill, and What Happened to the TikTok Ban?**\
-`I’d rather not tell you what’s in this episode. It’s private.`\
-https://nytimes.com/2024/04/12/podcasts/ai-training-data-privacy-tiktok.html
 
