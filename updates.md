@@ -1,3 +1,7 @@
+**O.J. Simpson and the Kardashians**\
+`Long before the Kardashians became a star attraction on reality television, the family name first came to prominence when Simpson, the former N.F.L. star, was on trial.`\
+https://nytimes.com/2024/04/11/style/oj-simpson-kardashians.html
+
 **A Poem That’s Like a Perfect First Date**\
 `Frank O’Hara’s “Having a Coke With You” makes a charming first impression, and right away you want to get to know it better.`\
 https://nytimes.com/interactive/2024/04/11/books/frank-ohara-having-a-coke-poem.html
