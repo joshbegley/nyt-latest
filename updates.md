@@ -1,3 +1,11 @@
+**Campaign Puts Trump and the Spy Agencies on Collision Course**\
+`As president, Donald Trump never trusted the intelligence community. His antipathy has only grown since he left office, with potentially serious implications should he return to power.`\
+https://nytimes.com/2024/04/12/us/politics/trump-intelligence-agencies.html
+
+**Biden Administration Raises Costs to Drill and Mine on Public Lands**\
+`For the first time since 1920, the government has raised the rates that companies pay. The fossil fuel industry says it will hurt the economy.`\
+https://nytimes.com/2024/04/12/climate/biden-administration-raises-costs-to-drill-and-mine-on-public-lands.html
+
 **Review: Dance Theater of Harlem Is in New (and Capable) Hands**\
 `The company performed its first New York City Center season under the direction of Robert Garland in a program including George Balanchine’s “Pas de Dix.”`\
 https://nytimes.com/2024/04/12/arts/dance/review-dance-theater-of-harlem-robert-garland-pas-de-dix.html
