@@ -1,3 +1,11 @@
+**The ‘Golden Bachelor’ Divorce Everyone Knew Was Coming**\
+`But at least they got a glam (and gross) televised wedding out of it.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/golden-bachelor-divorce
+
+**D.N.C. Helped Pay Biden’s Legal Bills in Special Counsel Investigation**\
+`The money spent paled in comparison to the amount Donald J. Trump has used in supporters’ donations to pay his own legal bills, but it was laid out even as aides for Mr. Biden attacked Mr. Trump for the practice.`\
+https://nytimes.com/2024/04/12/us/politics/biden-legal-bills-dnc.html
+
 **‘Player Kings’ Review: Ian McKellen’s Juicy Assignment as Falstaff**\
 `In Robert Icke’s adaptation of Parts 1 and 2 of “Henry IV,” the veteran stage actor’s performance belies his age.`\
 https://nytimes.com/2024/04/12/theater/ian-mckellen-players-king.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/12/style/sarah-wood-gustavo-gonzalez-wedding.html
 **Angelenos Reflect on a ‘Big Moment in American History’**\
 `The murder trial of O.J. Simpson was a defining part of a turbulent era in Los Angeles.`\
 https://nytimes.com/2024/04/12/us/angelenos-reflect-on-a-big-moment-in-american-history.html
-
-**Mistaken Autopsy Report Compounds Grief after a Balloon Pilot’s Death**\
-`The pilot, Cornelius van der Walt, died in a crash in Arizona that also killed three others. While the autopsy found he had ketamine in his system, it had been administered by medics after the crash.`\
-https://nytimes.com/2024/04/12/us/hot-air-balloon-crash-ketamine.html
-
-**That Giant College ‘Sticker’ Price Isn’t What Most Students Pay**\
-`The share of those paying the full advertised cost has declined over the last couple of decades, a new report found. Yet many don’t understand how much they’ll really pay.`\
-https://nytimes.com/2024/04/12/your-money/college-tuition-cost-.html
 
