@@ -1,3 +1,7 @@
+**The Best of Late Night This Week**\
+`The late-night hosts started the week by talking about the total solar eclipse before moving on to political news — including former President Trump’s failed bids to delay his criminal hush-money trial and Arizona reinstating a 160-year-old abortion ban.`\
+https://nytimes.com/interactive/2024/04/12/arts/television/best-of-late-night-eclipse.html
+
 **Sabrina Carpenter Drops a Perky Bop, and 10 More New Songs**\
 `Hear tracks by girl in red, Margo Guryan, Phish and others.`\
 https://nytimes.com/2024/04/12/arts/music/playlist-sabrina-carpenter-girl-in-red.html

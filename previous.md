@@ -1,3 +1,7 @@
+**The Best of Late Night This Week**\
+`The late-night hosts started the week by talking about the total solar eclipse before moving on to political news — including former President Trump’s failed bids to delay his criminal hush-money trial and Arizona reinstating a 160-year-old abortion ban.`\
+https://nytimes.com/interactive/2024/04/12/arts/television/best-of-late-night-eclipse.html
+
 **Sabrina Carpenter Drops a Perky Bop, and 10 More New Songs**\
 `Hear tracks by girl in red, Margo Guryan, Phish and others.`\
 https://nytimes.com/2024/04/12/arts/music/playlist-sabrina-carpenter-girl-in-red.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/climate/biden-administration-raises-costs-to-dril
 **Review: Dance Theater of Harlem Is in New (and Capable) Hands**\
 `The company performed its first New York City Center season under the direction of Robert Garland in a program including George Balanchine’s “Pas de Dix.”`\
 https://nytimes.com/2024/04/12/arts/dance/review-dance-theater-of-harlem-robert-garland-pas-de-dix.html
-
-**For Filmmakers, O.J. Simpson’s Trial Was a Powerful Case Study**\
-`In 2016, both an FX mini-series and an ESPN documentary re-examined the polarizing criminal accusations against Simpson and the nation’s divided conversation about race.`\
-https://nytimes.com/2024/04/12/arts/people-v-oj-simpson-made-in-america.html
 
