@@ -1,3 +1,7 @@
+**Argentine Court Says Iran Was Behind Israeli Embassy and Jewish Center Attacks**\
+`The ruling opens the possibility for relatives of victims of the 1992 and 1994 attacks to make claims against Iran in international tribunals.`\
+https://nytimes.com/2024/04/12/world/middleeast/argentina-iran-1992-1994-attack.html
+
 **U.S. Targets Unlikely to Be on List in Possible Iranian Attack, Officials Say**\
 `In anticipation of the Iranian strikes, several countries, including the United States, issued new guidelines to their citizens about travel in Israel and the surrounding region.`\
 https://nytimes.com/2024/04/12/world/middleeast/iran-attack-american-targets-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/opinion/oj-simpson-domestic-violence.html
 **100 Years of Simon & Schuster**\
 `The publisher has gone through a lot of changes since its founding in 1924. Its current chief executive, Jonathan Karp, talks about the company’s history and its hopes for the future.`\
 https://nytimes.com/2024/04/12/books/review/podcast-simon-schuster-turns-100.html
-
-**Pro-Palestinian Protesters Complicate Democrats’ Ability to Campaign**\
-`Lisa Lerer, a political correspondent for The New York Times, explains how protests over the Biden administration’s handling of the Israel-Hamas war are disrupting the activities of Democratic officials from city halls to Congress to the White House.`\
-https://nytimes.com/video/us/politics/100000009396743/palestinian-protesters-democrats-campaign-election.html
 
