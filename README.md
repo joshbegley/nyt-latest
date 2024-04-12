@@ -1,11 +1,3 @@
-**Robert MacNeil, Earnest News Anchor for PBS, Dies at 93**\
-`With his longtime co-host Jim Lehrer, he delivered thoughtful reports that stood in stark contrast to the commercial networks’ ever more sensational newscasts.`\
-https://nytimes.com/2024/04/12/business/media/robert-macneil-dead.html
-
-**Judge John Hodgman on Ending Text Messages With Periods**\
-`A father and daughter disagree about how punctuation should be used on phones.`\
-https://nytimes.com/2024/04/12/magazine/judge-john-hodgman-on-ending-text-messages-with-periods.html
-
 **Campaign Puts Trump and the Spy Agencies on Collision Course**\
 `As president, Donald Trump never trusted the intelligence community. His antipathy has only grown since he left office, with potentially serious implications should he return to power.`\
 https://nytimes.com/2024/04/12/us/politics/trump-intelligence-agencies.html
@@ -37,4 +29,12 @@ https://nytimes.com/interactive/2024/04/12/books/review/new-paperbacks-pin.html
 **Back From Ukraine, a House Republican Makes the Case for More Aid**\
 `Representative Chuck Edwards, a first-term North Carolinian, has emerged as a vocal proponent for U.S. aid to Ukraine in a party that has grown hostile to it. He recently saw the war up close.`\
 https://nytimes.com/2024/04/12/world/europe/ukraine-aid-house.html
+
+**Thursday Ends a 13-Year Break From New Music With a Pointed Song**\
+`“Application for Release From the Dream,” which the band released Friday, marks the beginning of a fresh era for a group that helped bring emo to the mainstream.`\
+https://nytimes.com/2024/04/12/arts/music/thursday-new-song-application-for-release-from-the-dream.html
+
+**Alain Delon at His Very Best: Ravishing, Yes, but Also Destabilizing**\
+`The French star is the subject of a series at Film Forum focusing on movies from the ’60s and ’70s, when he became an international sensation.`\
+https://nytimes.com/2024/04/12/movies/alain-delon-retrospective.html
 
