@@ -1,3 +1,7 @@
+**Inflation Comes for the Housing Market**\
+`Prices and mortgage rates are climbing as Wall Street bets that interest rates will remain higher for longer.`\
+https://nytimes.com/2024/04/12/business/dealbook/inflation-housing-market-mortgages.html
+
 **JPMorgan’s Dimon Warns of ‘Unsettling’ Pressures as Bank’s Earnings Wobble**\
 `Warnings from the chief executive of the nation’s largest bank have been consistently at odds with heady financial markets.`\
 https://nytimes.com/2024/04/12/business/jpmorgan-earnings-dimon-warning.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/business/economy/immigrants-maine-lobster-aging-w
 **The U.S. imposes new travel rules in Israel ‘out of an abundance of caution.’**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/the-us-imposes-new-travel-rules-in-israel-out-of-an-abundance-of-caution
-
-**The relief organization Anera says it is resuming operations in Gaza.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/the-relief-organization-anera-says-it-is-resuming-operations-in-gaza
 
