@@ -1,3 +1,11 @@
+**Harris Blasts Trump on Abortion at Arizona Campaign Stop**\
+`At a rally in Tucson, Ariz., days after the state’s top court upheld a near-total ban on abortion, Vice President Kamala Harris placed the blame directly on former President Donald J. Trump.`\
+https://nytimes.com/2024/04/12/us/politics/abortion-harris-trump-arizona.html
+
+**Harris Blasts Trump on Abortion in Arizona**\
+`During a campaign rally, Vice President Kamala Harris blamed former President Donald J. Trump for the Arizona Supreme Court’s ruling to uphold a near-total ban on abortion.`\
+https://nytimes.com/video/us/politics/100000009412412/harris-arizona-abortion.html
+
 **Governing the ungovernable**\
 `House Speaker Mike Johnson has problems in Washington. Trump can help, and hurt.`\
 https://nytimes.com/2024/04/12/us/politics/governing-the-ungovernable.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/12/briefing/house-surveillance-law-student-debt-bide
 **Former U.S. Ambassador Is Sentenced to 15 Years for Acting as Cuban Agent**\
 `Manuel Rocha pleaded guilty to two charges, including conspiring to defraud the United States as a foreign agent, under an agreement with the U.S. government.`\
 https://nytimes.com/2024/04/12/us/manuel-rocha-cuba-foreign-agent.html
-
-**Police shut down a Pro-Palestinian conference in Berlin, citing a risk of antisemitic statements.**\
-`Authorities blocked the three-day event over what they said was a risk of anti-Semitic statements. They also blocked a prominent British-Palestinian doctor from entering the country to attend it.`\
-https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/police-shut-down-a-pro-palestinian-conference-in-berlin-citing-a-risk-of-antisemitic-statements
-
-**Bennett Braun, Psychiatrist Who Fueled ‘Satanic Panic,’ Dies at 83**\
-`He diagnosed dozens of patients with what he said were suppressed memories of being tortured by cults. He later lost his license.`\
-https://nytimes.com/2024/04/12/us/bennett-braun-dead.html
 
