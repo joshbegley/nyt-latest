@@ -1,3 +1,7 @@
+**‘Civil War’ | Anatomy of a Scene**\
+`The writer and director Alex Garland narrates a sequence from his film.`\
+https://nytimes.com/video/movies/100000009409492/civil-war-scene.html
+
 **The New Great-Power Politics**\
 `How an emerging alliance is shaping the world.`\
 https://nytimes.com/2024/04/12/briefing/the-new-great-power-politics.html
