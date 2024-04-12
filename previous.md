@@ -1,3 +1,7 @@
+**Police shut down a Pro-Palestinian conference in Berlin, citing a risk of antisemitic statements.**\
+`Authorities blocked the three-day event over what they said was a risk of anti-Semitic statements. They also blocked a prominent British-Palestinian doctor from entering the country to attend it.`\
+https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/police-shut-down-a-pro-palestinian-conference-in-berlin-citing-a-risk-of-antisemitic-statements
+
 **Bennett Braun, Psychiatrist Who Fueled ‘Satanic Panic,’ Dies at 83**\
 `He diagnosed dozens of patients with what he said were suppressed memories of being tortured by cults. He later lost his license.`\
 https://nytimes.com/2024/04/12/us/bennett-braun-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/podcasts/transcript-ezra-klein-interviews-dario-a
 **The E.U. imposes sanctions on Hamas and Palestinian Islamic Jihad for sexual violence on Oct. 7.**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/the-eu-imposes-sanctions-on-hamas-and-palestinian-islamic-jihad-for-sexual-violence-on-oct-7
-
-**Stocks Suffer Sharpest Weekly Decline of 2024**\
-`Investors had been put on edge by a stronger-than-expected inflation report earlier in the week. Rising tension in the Middle East heading into the weekend gave them another reason to retreat.`\
-https://nytimes.com/2024/04/12/business/stock-market-today.html
 

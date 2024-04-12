@@ -1,3 +1,7 @@
+**Police shut down a Pro-Palestinian conference in Berlin, citing a risk of antisemitic statements.**\
+`Authorities blocked the three-day event over what they said was a risk of anti-Semitic statements. They also blocked a prominent British-Palestinian doctor from entering the country to attend it.`\
+https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/police-shut-down-a-pro-palestinian-conference-in-berlin-citing-a-risk-of-antisemitic-statements
+
 **Bennett Braun, Psychiatrist Who Fueled ‘Satanic Panic,’ Dies at 83**\
 `He diagnosed dozens of patients with what he said were suppressed memories of being tortured by cults. He later lost his license.`\
 https://nytimes.com/2024/04/12/us/bennett-braun-dead.html
