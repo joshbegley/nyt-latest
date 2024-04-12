@@ -1,3 +1,7 @@
+**China Feels Boxed In by the U.S. but Has Few Ways to Push Back**\
+`China seeks to project military power in the seas around its coastline, yet also faces pressure to mend relations with neighbors for the good of its economy.`\
+https://nytimes.com/2024/04/12/world/asia/china-us-biden-japan.html
+
 **The Founding Fathers Don’t Have the Answer to Every Question**\
 `The Electoral College as we know it is less a product of the insight or design of the framers and more a contingent adaptation to the political world.`\
 https://nytimes.com/2024/04/12/opinion/nebraska-electoral-college-myths.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/us/politics/letter-biden-israel-gaza.html
 **There’s More to a Home Bar Than Liquor. Here’s What Else You Need.**\
 `An artful display tells your guests you care about them — and it’s easier to create than you may think.`\
 https://nytimes.com/2024/04/12/realestate/bar-cart-home.html
-
-**O.J. Was an Earthquake. We’re Still Living With His Aftershocks.**\
-`He tried to shed his Blackness, but his all-consuming murder trial put the historically lurid American psyche on full display.`\
-https://nytimes.com/2024/04/12/arts/oj-simpson-black-america.html
 
