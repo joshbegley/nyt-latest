@@ -1,3 +1,7 @@
+**Israel Braces for Iranian Retaliation, and O.J. Simpson Dies**\
+`Plus, A.I. lands on Wall Street.`\
+https://nytimes.com/2024/04/12/podcasts/israel-iran-oj-simpson.html
+
 **How One Family Lost $900,000 in a Timeshare Scam**\
 `A Mexican drug cartel is targeting seniors and their timeshares.`\
 https://nytimes.com/2024/04/12/podcasts/the-daily/scam-cartel-timeshare.html
