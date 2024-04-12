@@ -1,3 +1,7 @@
+**Myanmar Rebels Take Key Trading Town, but Counteroffensive Looms**\
+`The fall of Myawaddy, on the Thai border, was one of the most significant gains by resistance forces since a 2021 military coup.`\
+https://nytimes.com/2024/04/12/world/asia/myanmar-rebels-myawaddy.html
+
 **Israel Braces for Iranian Retaliation, and O.J. Simpson Dies**\
 `Plus, A.I. lands on Wall Street.`\
 https://nytimes.com/2024/04/12/podcasts/israel-iran-oj-simpson.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/world/europe/kyiv-ukraine-coffee-culture.html
 **A.I.’s Data Wall, a Surprise Privacy Bill, and What Happened to the TikTok Ban?**\
 `I’d rather not tell you what’s in this episode. It’s private.`\
 https://nytimes.com/2024/04/12/podcasts/ai-training-data-privacy-tiktok.html
-
-**China Feels Boxed In by the U.S. but Has Few Ways to Push Back**\
-`China seeks to project military power in the seas around its coastline, yet also faces pressure to mend relations with neighbors for the good of its economy.`\
-https://nytimes.com/2024/04/12/world/asia/china-us-biden-japan.html
 
