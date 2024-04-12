@@ -1,3 +1,7 @@
+**100 Years of Simon & Schuster**\
+`The publisher has gone through a lot of changes since its founding in 1924. Its current chief executive, Jonathan Karp, talks about the company’s history and its hopes for the future.`\
+https://nytimes.com/2024/04/12/books/review/podcast-simon-schuster-turns-100.html
+
 **Pro-Palestinian Protesters Complicate Democrats’ Ability to Campaign**\
 `Lisa Lerer, a political correspondent for The New York Times, explains how protests over the Biden administration’s handling of the Israel-Hamas war are disrupting the activities of Democratic officials from city halls to Congress to the White House.`\
 https://nytimes.com/video/us/politics/100000009396743/palestinian-protesters-democrats-campaign-election.html
