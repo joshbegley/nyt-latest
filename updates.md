@@ -1,3 +1,7 @@
+**Trump Co-Defendants Argue for Dismissal of Charges in Documents Case**\
+`The judge did not rule on motions by lawyers for Walt Nauta and Carlos De Oliveira, who are accused of helping the former president obstruct government efforts to recover classified material.`\
+https://nytimes.com/2024/04/12/us/politics/trump-nauta-oliveira-documents-case.html
+
 **Harris Blasts Trump on Abortion at Arizona Campaign Stop**\
 `At a rally in Tucson, Ariz., days after the state’s top court upheld a near-total ban on abortion, Vice President Kamala Harris placed the blame directly on former President Donald J. Trump.`\
 https://nytimes.com/2024/04/12/us/politics/abortion-harris-trump-arizona.html
