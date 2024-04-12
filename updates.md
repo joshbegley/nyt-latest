@@ -1,3 +1,11 @@
+**U.S. Targets Unlikely to Be on List in Possible Iranian Attack, Officials Say**\
+`In anticipation of the Iranian strikes, several countries, including the United States, issued new guidelines to their citizens about travel in Israel and the surrounding region.`\
+https://nytimes.com/2024/04/12/world/middleeast/iran-attack-american-targets-israel.html
+
+**Parts of Pennsylvania and West Virginia Brace for Flooding After Heavy Rains**\
+`Up to four inches fell in less than 24 hours across broad sections of both states, and officials were watching rising waterways warily.`\
+https://nytimes.com/2024/04/12/us/flooding-pennsylvania-west-virginia.html
+
 **A Look at Iran’s Military Capabilities as It Threatens Israel**\
 `The possibility of a direct military confrontation between Iran and Israel has brought renewed attention to Iran’s armed forces. What are they capable of?`\
 https://nytimes.com/2024/04/12/world/middleeast/iran-israel-military-weapons.html
