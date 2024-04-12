@@ -1,3 +1,11 @@
+**Driver Crashes Truck Into Texas Government Office, Causing Injuries, Officials Say**\
+`The authorities said that a person driving a semi truck crashed into a Department of Public Safety office in Brenham, Texas, in what may have been an intentional act.`\
+https://nytimes.com/2024/04/12/us/texas-truck-crash.html
+
+**At Berkeley, a Protest at a Dean’s Home Tests the Limits of Free Speech**\
+`Pro-Palestinian supporters disrupted a dinner for law students. There was a tussle over the microphone and conflicting claims of harm.`\
+https://nytimes.com/2024/04/12/us/uc-berkeley-palestinian-protest-free-speech.html
+
 **The Ultimate Judee Sill Primer**\
 `A new documentary puts a spotlight on the ’70s musician. Listen to 10 of her essential songs.`\
 https://nytimes.com/2024/04/12/arts/music/amplifier-newsletter-judee-sill.html
