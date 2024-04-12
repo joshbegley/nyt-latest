@@ -1,3 +1,7 @@
+**President Biden vows to stand by Israel despite recent disagreements.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/president-vows-to-stand-by-israel-despite-recent-disagreements
+
 **Transcript: Ezra Klein Interviews Dario Amodei**\
 `The April 12, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/04/12/podcasts/transcript-ezra-klein-interviews-dario-amodei.html
