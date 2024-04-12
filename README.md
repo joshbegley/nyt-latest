@@ -1,3 +1,11 @@
+**Pro-Palestinian Protesters Complicate Democrats’ Ability to Campaign**\
+`Lisa Lerer, a political correspondent for The New York Times, explains how protests over the Biden administration’s handling of the Israel-Hamas war are disrupting the activities of Democratic officials from city halls to Congress to the White House.`\
+https://nytimes.com/video/us/politics/100000009396743/palestinian-protesters-democrats-campaign-election.html
+
+**Iran’s Retaliation Likely to Be Limited, but Errors Could Lead to War, Experts Say**\
+`After Israel killed several top Iranian commanders, Iran wants to respond without provoking further escalation, military analysts say, but there is a dangerous risk of miscalculation.`\
+https://nytimes.com/2024/04/12/world/middleeast/iran-israel-miscalculation-retaliation.html
+
 **Driver Crashes Truck Into Texas Public Safety Dept., Causing Injuries, Officials Say**\
 `The authorities said that a person driving a semi truck crashed into a Department of Public Safety office in Brenham, Texas, in what may have been an intentional act.`\
 https://nytimes.com/2024/04/12/us/texas-truck-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/04/12/arts/television/best-of-late-night-ec
 **Sabrina Carpenter Drops a Perky Bop, and 10 More New Songs**\
 `Hear tracks by girl in red, Margo Guryan, Phish and others.`\
 https://nytimes.com/2024/04/12/arts/music/playlist-sabrina-carpenter-girl-in-red.html
-
-**The O.J. Joke: How the Simpson Case Changed Comedy’s Boundaries**\
-`Norm Macdonald and Jay Leno made the double homicides such a constant topic that refraining from jokes the way David Letterman did was noticeable.`\
-https://nytimes.com/2024/04/12/arts/television/comedy-oj-simpson-jay-leno-chris-rock.html
-
-**The Big Number: 5.3%**\
-`Economists had been expecting the Federal Reserve to cut rates sharply this year. But stubborn inflation and strong growth may change the narrative.`\
-https://nytimes.com/interactive/2024/04/12/business/economy/interest-rates-inflation-federal-reserve.html
 
