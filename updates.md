@@ -1,3 +1,7 @@
+**Former U.S. Ambassador Is Sentenced to 15 Years for Acting as Cuban Agent**\
+`Manuel Rocha pleaded guilty to two charges, including conspiring to defraud the United States as a foreign agent, under an agreement with the U.S. government.`\
+https://nytimes.com/2024/04/12/us/manuel-rocha-cuba-foreign-agent.html
+
 **The House Passed an Extension of a Surveillance Law**\
 `Also, the U.S. made it more expensive to drill on public land. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/04/12/briefing/house-surveillance-law-student-debt-biden.html
