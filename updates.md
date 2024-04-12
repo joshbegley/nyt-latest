@@ -1,3 +1,7 @@
+**In Barcelona, Her Dream of a Spanish Husband Came True**\
+`Sarah Wood was not interested in a long-distance relationship with Gustavo González. That changed after they met at a cafe in Spain.`\
+https://nytimes.com/2024/04/12/style/sarah-wood-gustavo-gonzalez-wedding.html
+
 **Angelenos Reflect on a ‘Big Moment in American History’**\
 `The murder trial of O.J. Simpson was a defining part of a turbulent era in Los Angeles.`\
 https://nytimes.com/2024/04/12/us/angelenos-reflect-on-a-big-moment-in-american-history.html
