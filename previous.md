@@ -1,3 +1,15 @@
+**Mistaken Autopsy Report Compounds Grief after a Balloon Pilot’s Death**\
+`The pilot, Cornelius van der Walt, died in a crash in Arizona that also killed three others. While the autopsy found he had ketamine in his system, it had been administered by medics after the crash.`\
+https://nytimes.com/2024/04/12/us/hot-air-balloon-crash-ketamine.html
+
+**That Giant College ‘Sticker’ Price Isn’t What Most Students Pay**\
+`The share of those paying the full advertised cost has declined over the last couple of decades, a new report found. Yet many don’t understand how much they’ll really pay.`\
+https://nytimes.com/2024/04/12/your-money/college-tuition-cost-.html
+
+**Trump or Biden? The Stock Market Doesn’t Care.**\
+`Prediction markets say former President Donald J. Trump has a good chance of winning. So far, the stock market is fine with that.`\
+https://nytimes.com/2024/04/12/business/trump-biden-stock-market.html
+
 **Inflation Comes for the Housing Market**\
 `Prices and mortgage rates are climbing as Wall Street bets that interest rates will remain higher for longer.`\
 https://nytimes.com/2024/04/12/business/dealbook/inflation-housing-market-mortgages.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/12/world/asia/myanmar-rebels-myawaddy.html
 **Israel Braces for Iranian Retaliation, and O.J. Simpson Dies**\
 `Plus, A.I. lands on Wall Street.`\
 https://nytimes.com/2024/04/12/podcasts/israel-iran-oj-simpson.html
-
-**How One Family Lost $900,000 in a Timeshare Scam**\
-`A Mexican drug cartel is targeting seniors and their timeshares.`\
-https://nytimes.com/2024/04/12/podcasts/the-daily/scam-cartel-timeshare.html
-
-**Immigrants in Maine Are Filling a Labor Gap. It May Be a Prelude for the U.S.**\
-`A wave of rapid immigration is taxing local resources around the country and drawing political ire. But it might leave America’s economy better off.`\
-https://nytimes.com/2024/04/12/business/economy/immigrants-maine-lobster-aging-workforce.html
-
-**The U.S. issues new travel rules in Israel ‘out of an abundance of caution.’**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/the-us-imposes-new-travel-rules-in-israel-out-of-an-abundance-of-caution
 

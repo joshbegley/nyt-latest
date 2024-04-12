@@ -1,3 +1,15 @@
+**Mistaken Autopsy Report Compounds Grief after a Balloon Pilot’s Death**\
+`The pilot, Cornelius van der Walt, died in a crash in Arizona that also killed three others. While the autopsy found he had ketamine in his system, it had been administered by medics after the crash.`\
+https://nytimes.com/2024/04/12/us/hot-air-balloon-crash-ketamine.html
+
+**That Giant College ‘Sticker’ Price Isn’t What Most Students Pay**\
+`The share of those paying the full advertised cost has declined over the last couple of decades, a new report found. Yet many don’t understand how much they’ll really pay.`\
+https://nytimes.com/2024/04/12/your-money/college-tuition-cost-.html
+
+**Trump or Biden? The Stock Market Doesn’t Care.**\
+`Prediction markets say former President Donald J. Trump has a good chance of winning. So far, the stock market is fine with that.`\
+https://nytimes.com/2024/04/12/business/trump-biden-stock-market.html
+
 **Dimon Warns of ‘Unsettling’ Pressures as JPMorgan Reports Earnings**\
 `Warnings from the chief executive of the nation’s largest bank have been consistently at odds with heady financial markets.`\
 https://nytimes.com/2024/04/12/business/jpmorgan-earnings-dimon-warning.html
