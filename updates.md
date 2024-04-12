@@ -1,3 +1,11 @@
+**Review: In ‘The Outsiders,’ a New Song for the Young Misfits**\
+`The classic coming-of-age novel has become a compelling, if imperfect, musical about have-not teenagers in a have-it-all world.`\
+https://nytimes.com/2024/04/11/theater/review-outsiders-musical.html
+
+**Trump, Who Tried to Repeal Obamacare, Says He Is ‘Not Running to Terminate’ It**\
+`After repeated attacks from Democrats, Donald Trump, who has often vowed to repeal the Affordable Care Act, said that if elected he would only improve it, without offering specifics.`\
+https://nytimes.com/2024/04/11/us/politics/trump-biden-affordable-care-act.html
+
 **Kari Lake Backs G.O.P. Effort to Drop 1864 Abortion Law in Favor of 15-Week Ban**\
 `The Senate candidate and Donald Trump ally is supporting a handful of state Republicans who have backed away from a near-total ban that was upheld by the State Supreme Court this week.`\
 https://nytimes.com/2024/04/11/us/politics/kari-lake-abortion-arizona.html
