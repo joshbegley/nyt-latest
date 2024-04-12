@@ -1,3 +1,7 @@
+**A Rollicking Requiem for a Pirate**\
+`At Jimmy Buffett’s memorial, Hawaiian shirts, grass skirts and celebrity weed jokes.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/jimmy-buffett-memorial
+
 **The House Passed an Extension of a Surveillance Law**\
 `Also, the U.S. made it more expensive to drill on public land. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/04/12/briefing/house-surveillance-law-student-debt-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/world/americas/haiti-transitional-council.html
 **Roberto Cavalli, a Life Out Loud**\
 `The fashion designer who made maximalism cool.`\
 https://nytimes.com/2024/04/12/style/roberto-cavalli-a-life-out-loud.html
-
-**Anti-Violence Activist Says N.Y.P.D. Leaders Defamed Her Over Criticism**\
-`Dana Rachlin, who filed a federal defamation lawsuit against the Police Department, said the string of recent attacks by high-level officials against critics was not surprising.`\
-https://nytimes.com/2024/04/12/nyregion/nypd-lawsuit.html
 
