@@ -1,3 +1,11 @@
+**Governing the ungovernable**\
+`House Speaker Mike Johnson has problems in Washington. Trump can help, and hurt.`\
+https://nytimes.com/2024/04/12/us/politics/governing-the-ungovernable.html
+
+**‘Climate-Controlled’ Sausage? Courts Crack Down on ‘Greenwashing’**\
+`From airlines to pork sellers, corporate brands face legal and regulatory challenges for misleading the public with lofty climate claims.`\
+https://nytimes.com/2024/04/12/climate/climate-greenwashing-denmark-pork.html
+
 **Trump Says He Intends to Testify in His Manhattan Criminal Case**\
 `Jury selection begins Monday in the prosecution of Donald J. Trump on charges of covering up a sex scandal. He said he would try to sway jurors personally, though he has backed away in the past.`\
 https://nytimes.com/2024/04/12/nyregion/trump-trial-testify-hush-money-case.html

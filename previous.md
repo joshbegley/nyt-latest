@@ -1,3 +1,11 @@
+**Governing the ungovernable**\
+`House Speaker Mike Johnson has problems in Washington. Trump can help, and hurt.`\
+https://nytimes.com/2024/04/12/us/politics/governing-the-ungovernable.html
+
+**‘Climate-Controlled’ Sausage? Courts Crack Down on ‘Greenwashing’**\
+`From airlines to pork sellers, corporate brands face legal and regulatory challenges for misleading the public with lofty climate claims.`\
+https://nytimes.com/2024/04/12/climate/climate-greenwashing-denmark-pork.html
+
 **Trump Says He Intends to Testify in His Manhattan Criminal Case**\
 `Jury selection begins Monday in the prosecution of Donald J. Trump on charges of covering up a sex scandal. He said he would try to sway jurors personally, though he has backed away in the past.`\
 https://nytimes.com/2024/04/12/nyregion/trump-trial-testify-hush-money-case.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/police-shut
 **Bennett Braun, Psychiatrist Who Fueled ‘Satanic Panic,’ Dies at 83**\
 `He diagnosed dozens of patients with what he said were suppressed memories of being tortured by cults. He later lost his license.`\
 https://nytimes.com/2024/04/12/us/bennett-braun-dead.html
-
-**German Police Stop Pro-Palestinian Conference**\
-`The German police shut down a pro-Palestinian conference in Berlin, citing the risk that one of the speakers invited might make antisemitic comments or incite violence.`\
-https://nytimes.com/video/world/europe/100000009412212/palestine-conference-berlin.html
-
-**The Mechanics of Covering Trump’s Manhattan Criminal Trial**\
-`Beginning on April 15, Times reporters will provide up-to-the-minute updates on the trial.`\
-https://nytimes.com/2024/04/12/insider/trump-trial-reporters.html
 
