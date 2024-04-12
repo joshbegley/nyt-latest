@@ -1,3 +1,7 @@
+**O.J. and the Monster Jealousy**\
+`I always thought of the Simpson case as a great American tragedy, with its echoes of “Othello.”`\
+https://nytimes.com/2024/04/12/opinion/oj-simpson-death.html
+
 **Friday Briefing**\
 `A U.S. general goes to Israel.`\
 https://nytimes.com/2024/04/12/briefing/israel-iran-oj-simpson.html
