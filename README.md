@@ -1,3 +1,11 @@
+**Roberto Cavalli, Designer Who Celebrated Excess, Dies at 83**\
+`From the mid-1990s onward he was one of the biggest names in fashion, with stores around the world and celebrity admirers like Lenny Kravitz and Cindy Crawford.`\
+https://nytimes.com/2024/04/12/fashion/roberto-cavalli-dead.html
+
+**Our Inability to Predict Inflation Is an Embarrassment to Economics**\
+`Academic theories of inflation have proved of little use to policymakers.`\
+https://nytimes.com/2024/04/12/opinion/inflation-economics-economists.html
+
 **Trump and O.J.: Antiheroes in a Cracked Mirror**\
 `Both are American stories. Are they truly aberrations?`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/simpson-trump-trials
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/12/us/uc-berkeley-palestinian-protest-free-speech.ht
 **The Ultimate Judee Sill Primer**\
 `A new documentary puts a spotlight on the ’70s musician. Listen to 10 of her essential songs.`\
 https://nytimes.com/2024/04/12/arts/music/amplifier-newsletter-judee-sill.html
-
-**The Biden Administration Raised the Rent to Drill on Public Lands. Here’s What to Know.**\
-`The fossil fuel industry says higher rates will harm the economy. The administration says they will pay for the environmental costs of drilling and mining.`\
-https://nytimes.com/2024/04/12/climate/biden-drilling-public-land.html
-
-**Three Interpretations of ‘The Three-Body Problem’**\
-`A geopolitical allegory whose meaning shifts from version to version.`\
-https://nytimes.com/2024/04/12/opinion/three-body-problem.html
 
