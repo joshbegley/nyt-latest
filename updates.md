@@ -1,3 +1,15 @@
+**Richard Leibner, Agent for Top Broadcast Journalists, Dies at 85**\
+`His negotiations led to Dan Rather’s elevation from “60 Minutes” to anchor of the “CBS Evening News” and sent Diane Sawyer from “60 Minutes” to ABC.`\
+https://nytimes.com/2024/04/12/business/media/richard-leibner-dead.html
+
+**Argentine Court Says Iran Was Behind Israeli Embassy and Jewish Center Attacks**\
+`The ruling opens the possibility for relatives of victims of the 1992 and 1994 attacks to make claims against Iran in international tribunals.`\
+https://nytimes.com/2024/04/12/world/middleeast/argentina-iran-1992-1994-attack.html
+
+**Parts of Pennsylvania and West Virginia Brace for More Flooding After Heavy Rains**\
+`Up to four inches fell in less than 24 hours across broad sections of both states, and officials were watching rising waterways warily.`\
+https://nytimes.com/2024/04/12/us/flooding-pennsylvania-west-virginia.html
+
 **U.S. Targets Unlikely to Be on List in Possible Iranian Attack, Officials Say**\
 `In anticipation of the Iranian strikes, several countries, including the United States, issued new guidelines to their citizens about travel in Israel and the surrounding region.`\
 https://nytimes.com/2024/04/12/world/middleeast/iran-attack-american-targets-israel.html
