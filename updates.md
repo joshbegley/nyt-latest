@@ -1,3 +1,11 @@
+**Word of the Day: succinctly**\
+`This word has appeared in 54 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/12/learning/word-of-the-day-succinctly.html
+
+**Late Night Mocks Trump for Failed Efforts to Delay Trial**\
+`“You know what they say: If at first, second, third, fourth, fifth, sixth, seventh, eighth, ninth or tenth you don’t succeed, cry, cry again,” Jimmy Kimmel said.`\
+https://nytimes.com/2024/04/12/arts/television/late-night-trump-trial.html
+
 **O.J. and the Monster Jealousy**\
 `I always thought of the Simpson case as a great American tragedy, with its echoes of “Othello.”`\
 https://nytimes.com/2024/04/12/opinion/oj-simpson-death.html

@@ -1,3 +1,11 @@
+**Word of the Day: succinctly**\
+`This word has appeared in 54 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/12/learning/word-of-the-day-succinctly.html
+
+**Late Night Mocks Trump for Failed Efforts to Delay Trial**\
+`“You know what they say: If at first, second, third, fourth, fifth, sixth, seventh, eighth, ninth or tenth you don’t succeed, cry, cry again,” Jimmy Kimmel said.`\
+https://nytimes.com/2024/04/12/arts/television/late-night-trump-trial.html
+
 **Friday Briefing**\
 `A U.S. general goes to Israel.`\
 https://nytimes.com/2024/04/12/briefing/israel-iran-oj-simpson.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/12/pageoneplus/quotation-of-the-day-a-battle-for-the
 **Corrections: April 12, 2024**\
 `Corrections that appeared in print on Friday, April 12, 2024.`\
 https://nytimes.com/2024/04/12/pageoneplus/corrections-april-12-2024.html
-
-**At a Russian Palace, a Storybook Beginning**\
-`Ten years after meeting at a party at Harvard, Svetlana Dotsenko and Fabián Poliak reconnected while both were traveling in Europe.`\
-https://nytimes.com/2024/04/12/style/svetlana-dotsenko-fabian-poliak-wedding.html
-
-**A High School Reunion Reignites a 50-Year Crush**\
-`Elaine Hall and Roland Passaro, both 88, met in junior high school in 1950 but lost touch before acting on their connection. They finally did, five decades later.`\
-https://nytimes.com/2024/04/12/style/elaine-hall-roland-passaro-wedding.html
 
