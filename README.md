@@ -1,3 +1,15 @@
+**Thursday Ends a 13-Year Break From New Music With a Pointed Song**\
+`“Application for Release From the Dream,” which the band released Friday, marks the beginning of a fresh era for a group that helped bring emo to the mainstream.`\
+https://nytimes.com/2024/04/12/arts/music/thursday-new-song-application-for-release-from-the-dream.html
+
+**Alain Delon at His Very Best: Ravishing, Yes, but Also Destabilizing**\
+`The French star is the subject of a series at Film Forum focusing on movies from the ’60s and ’70s, when he became an international sensation.`\
+https://nytimes.com/2024/04/12/movies/alain-delon-retrospective.html
+
+**Academic Freedom and the Israel-Gaza War**\
+`Responses to an Opinion guest essay by two N.Y.U. professors. Also: Biden-Trump debates; Rosie the Riveter; never enough money.`\
+https://nytimes.com/2024/04/12/opinion/academic-freedom-israel-gaza-nyu.html
+
 **Cries of Sexism Greet a Nike Olympic Reveal**\
 `The sporting giant offered a sneak peek at its track and field outfits for Team U.S.A., and an unexpected backlash ensued.`\
 https://nytimes.com/2024/04/12/style/sexism-nike-olympic-track-and-field-uniforms.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/12/movies/science-fiction-movies-streaming.html
 **No ‘Hippie Ape’: Bonobos Are Often Aggressive, Study Finds**\
 `Despite their peaceful reputation, bonobos act aggressively more often than their chimpanzee cousins, a new study found.`\
 https://nytimes.com/2024/04/12/science/bonobo-chimpanzee-aggression.html
-
-**Complications from Alcohol Use Are Rising Among Women**\
-`New research shows that alcohol-related liver disease and other health problems increased even more than expected among women ages 40 to 64 during the pandemic.`\
-https://nytimes.com/2024/04/12/well/alcohol-drinking-women-health.html
-
-**$7.4 Billion More in Student Loans Are Canceled, Biden Administration Says**\
-`The announcement is the latest in a piecemeal approach the White House is using to target more specific subsets of borrowers.`\
-https://nytimes.com/2024/04/12/us/politics/student-loan-forgiveness-biden.html
-
-**Coaches Have to Be Salesmen, Too**\
-`David Moyes has established West Ham as a fixture in the top half of the Premier League and a regular presence in Europe. So why do so many fans want him out?`\
-https://nytimes.com/2024/04/12/world/europe/west-ham-david-moyes.html
 
