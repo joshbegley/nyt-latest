@@ -1,3 +1,11 @@
+**Review: Dance Theater of Harlem Is in New (and Capable) Hands**\
+`The company performed its first New York City Center season under the direction of Robert Garland in a program including George Balanchine’s “Pas de Dix.”`\
+https://nytimes.com/2024/04/12/arts/dance/review-dance-theater-of-harlem-robert-garland-pas-de-dix.html
+
+**For Filmmakers, O.J. Simpson’s Trial Was a Powerful Case Study**\
+`In 2016, both an FX mini-series and an ESPN documentary re-examined the polarizing criminal accusations against Simpson and the nation’s divided conversation about race.`\
+https://nytimes.com/2024/04/12/arts/people-v-oj-simpson-made-in-america.html
+
 **Tell Us: Has Elon Musk’s Behavior Affected How You View Tesla?**\
 `Mr. Musk, the chief executive of Tesla, has turned off many people with polarizing remarks on social media, and it may be affecting the automaker’s sales.`\
 https://nytimes.com/2024/04/12/business/elon-musk-tesla-electric-vehicles.html
