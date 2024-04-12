@@ -1,3 +1,15 @@
+**The O.J. Joke: How the Simpson Case Changed Comedy’s Boundaries**\
+`Norm Macdonald and Jay Leno made the double homicides such a constant topic that refraining from jokes the way David Letterman did was noticeable.`\
+https://nytimes.com/2024/04/12/arts/television/comedy-oj-simpson-jay-leno-chris-rock.html
+
+**The Big Number: 5.3%**\
+`Economists had been expecting the Federal Reserve to cut rates sharply this year. But stubborn inflation and strong growth may change the narrative.`\
+https://nytimes.com/interactive/2024/04/12/business/economy/interest-rates-inflation-federal-reserve.html
+
+**N.Y.C. Schools Chief to Testify as Congress Expands Antisemitism Inquiry**\
+`A congressional committee that questioned college presidents about how they have handled protests over the Israel-Hamas war is now focusing on K-12 school districts.`\
+https://nytimes.com/2024/04/12/nyregion/nyc-schools-chancellor-antisemitism-congress-hearing.html
+
 **Robert MacNeil, Earnest News Anchor for PBS, Dies at 93**\
 `With his longtime co-host Jim Lehrer, he delivered thoughtful reports that stood in stark contrast to the commercial networks’ ever more sensational newscasts.`\
 https://nytimes.com/2024/04/12/business/media/robert-macneil-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/12/arts/people-v-oj-simpson-made-in-america.html
 **Tell Us: Has Elon Musk’s Behavior Affected How You View Tesla?**\
 `Mr. Musk, the chief executive of Tesla, has turned off many people with polarizing remarks on social media, and it may be affecting the automaker’s sales.`\
 https://nytimes.com/2024/04/12/business/elon-musk-tesla-electric-vehicles.html
-
-**Overlooked No More: Lizzie Magie, the Unknown Inventor Behind Monopoly**\
-`Magie’s creation, The Landlord’s Game, inspired the spinoff we know today. But credit for the idea long went to someone else.`\
-https://nytimes.com/2024/04/12/obituaries/lizzie-magie-overlooked.html
-
-**6 New Paperbacks to Read This Week**\
-`Including titles by Cecile Pin, Elizabeth Graver, Aimee Nezhukumatathil and more. `\
-https://nytimes.com/interactive/2024/04/12/books/review/new-paperbacks-pin.html
-
-**Back From Ukraine, a House Republican Makes the Case for More Aid**\
-`Representative Chuck Edwards, a first-term North Carolinian, has emerged as a vocal proponent for U.S. aid to Ukraine in a party that has grown hostile to it. He recently saw the war up close.`\
-https://nytimes.com/2024/04/12/world/europe/ukraine-aid-house.html
 
