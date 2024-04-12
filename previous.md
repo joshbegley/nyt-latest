@@ -1,3 +1,7 @@
+**Sean Combs Sold Share of Tequila Brand for $200 Million**\
+`Mr. Combs, who was accused of sexual assault in several lawsuits, made the sale as he ended his long-term partnership with the liquor giant Diageo. He has denied wrongdoing.`\
+https://nytimes.com/2024/04/12/arts/sean-combs-deleon-sale.html
+
 **Haiti in Crisis Sets Up Ruling Council, Clearing Way for an Acting Leader**\
 `A governing council was finalized after a month of negotiations. It is tasked with restoring law and order by appointing an acting prime minister.`\
 https://nytimes.com/2024/04/12/world/americas/haiti-transitional-council.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/president-v
 **My Girlfriend Said She Loved Me. Should I Say It Back Even if I’m Not Sure?**\
 `The magazine’s Ethicist columnist on whether it’s OK to profess love if you’re uncertain you feel it.`\
 https://nytimes.com/2024/04/12/magazine/girlfriend-love-reciprocate-ethics.html
-
-**Rumi Missabu, Avant-Garde Drag Performer Who Glittered, Dies at 76**\
-`He was one of the stars of the Cockettes, a psychedelic collective formed at the turn of the 1970s in San Francisco, that was short-lived but inspired generations.`\
-https://nytimes.com/2024/04/12/style/rumi-missabu-dead.html
 

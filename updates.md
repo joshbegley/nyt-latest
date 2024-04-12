@@ -1,3 +1,7 @@
+**Sean Combs Sold Share of Tequila Brand for $200 Million**\
+`Mr. Combs, who was accused of sexual assault in several lawsuits, made the sale as he ended his long-term partnership with the liquor giant Diageo. He has denied wrongdoing.`\
+https://nytimes.com/2024/04/12/arts/sean-combs-deleon-sale.html
+
 **Haiti in Crisis Sets Up Ruling Council, Clearing Way for an Acting Leader**\
 `A governing council was finalized after a month of negotiations. It is tasked with restoring law and order by appointing an acting prime minister.`\
 https://nytimes.com/2024/04/12/world/americas/haiti-transitional-council.html
