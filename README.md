@@ -1,3 +1,15 @@
+**Transcript: Ezra Klein Interviews Dario Amodei**\
+`The April 12, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/04/12/podcasts/transcript-ezra-klein-interviews-dario-amodei.html
+
+**The E.U. imposes sanctions on Hamas and Palestinian Islamic Jihad for sexual violence on Oct. 7.**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/the-eu-imposes-sanctions-on-hamas-and-palestinian-islamic-jihad-for-sexual-violence-on-oct-7
+
+**Stocks Suffer Sharpest Weekly Decline of 2024**\
+`Investors had been put on edge by a stronger-than-expected inflation report earlier in the week. Rising tension in the Middle East heading into the weekend gave them another reason to retreat.`\
+https://nytimes.com/2024/04/12/business/stock-market-today.html
+
 **‘Taxi Driver’ and a Year of Radical Revision**\
 `Remakes and remixes are not mere protest.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/taxi-driver-jafa
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/12/world/middleeast/argentina-iran-1992-1994-attack.
 **U.S. Targets Unlikely to Be on List in Possible Iranian Attack, Officials Say**\
 `In anticipation of the Iranian strikes, several countries, including the United States, issued new guidelines to their citizens about travel in Israel and the surrounding region.`\
 https://nytimes.com/2024/04/12/world/middleeast/iran-attack-american-targets-israel.html
-
-**Pennsylvania and West Virginia Brace for More Flooding After Heavy Rains**\
-`Up to four inches fell in less than 24 hours across broad sections of both states, and officials were watching rising waterways warily.`\
-https://nytimes.com/2024/04/12/us/flooding-pennsylvania-west-virginia.html
-
-**A Look at Iran’s Military Capabilities as It Threatens Israel**\
-`The possibility of a direct military confrontation between Iran and Israel has brought renewed attention to Iran’s armed forces. What are they capable of?`\
-https://nytimes.com/2024/04/12/world/middleeast/iran-israel-military-weapons.html
-
-**Gen Z Wanted a Scrabble More Conducive to Hanging Out. Mattel Was Happy to Oblige.**\
-`Will Classic Scrabble devotees object? You bet.`\
-https://nytimes.com/2024/04/12/crosswords/mattel-scrabble-together.html
 
