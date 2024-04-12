@@ -1,3 +1,11 @@
+**Harris Blasts Trump on Abortion at Arizona Campaign Stop**\
+`At a rally in Tucson, Ariz., days after the state’s top court upheld a near-total ban on abortion, Vice President Kamala Harris placed the blame directly on former President Donald J. Trump.`\
+https://nytimes.com/2024/04/12/us/politics/abortion-harris-trump-arizona.html
+
+**Harris Blasts Trump on Abortion in Arizona**\
+`During a campaign rally, Vice President Kamala Harris blamed former President Donald J. Trump for the Arizona Supreme Court’s ruling to uphold a near-total ban on abortion.`\
+https://nytimes.com/video/us/politics/100000009412412/harris-arizona-abortion.html
+
 **Governing the ungovernable**\
 `House Speaker Mike Johnson has problems in Washington. Trump can help, and hurt.`\
 https://nytimes.com/2024/04/12/us/politics/governing-the-ungovernable.html
