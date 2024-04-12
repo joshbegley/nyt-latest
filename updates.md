@@ -1,3 +1,7 @@
+**Driver Crashes Truck Into Texas Public Safety Dept., Causing Injuries, Officials Say**\
+`The authorities said that a person driving a semi truck crashed into a Department of Public Safety office in Brenham, Texas, in what may have been an intentional act.`\
+https://nytimes.com/2024/04/12/us/texas-truck-crash.html
+
 **Driver Crashes Truck Into Texas Government Office, Causing Injuries, Officials Say**\
 `The authorities said that a person driving a semi truck crashed into a Department of Public Safety office in Brenham, Texas, in what may have been an intentional act.`\
 https://nytimes.com/2024/04/12/us/texas-truck-crash.html
