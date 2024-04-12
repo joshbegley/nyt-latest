@@ -1,3 +1,7 @@
+**The Biden Administration Raised the Rent to Drill on Public Lands. Here’s What to Know.**\
+`The fossil fuel industry says higher rates will harm the economy. The administration says they will pay for the environmental costs of drilling and mining.`\
+https://nytimes.com/2024/04/12/climate/biden-drilling-public-land.html
+
 **Three Interpretations of ‘The Three-Body Problem’**\
 `A geopolitical allegory whose meaning shifts from version to version.`\
 https://nytimes.com/2024/04/12/opinion/three-body-problem.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/business/media/robert-macneil-dead.html
 **Judge John Hodgman on Ending Text Messages With Periods**\
 `A father and daughter disagree about how punctuation should be used on phones.`\
 https://nytimes.com/2024/04/12/magazine/judge-john-hodgman-on-ending-text-messages-with-periods.html
-
-**Campaign Puts Trump and the Spy Agencies on a Collision Course**\
-`As president, Donald Trump never trusted the intelligence community. His antipathy has only grown since he left office, with potentially serious implications should he return to power.`\
-https://nytimes.com/2024/04/12/us/politics/trump-intelligence-agencies.html
 
