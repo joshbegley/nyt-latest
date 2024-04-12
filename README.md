@@ -1,3 +1,7 @@
+**‘Player Kings’ Review: Ian McKellen’s Juicy Assignment as Falstaff**\
+`In Robert Icke’s adaptation of Parts 1 and 2 of “Henry IV,” the veteran stage actor’s performance belies his age.`\
+https://nytimes.com/2024/04/12/theater/ian-mckellen-players-king.html
+
 **Israel says it opened a new aid corridor to northern Gaza.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/israel-says-it-opened-a-new-aid-corridor-to-northern-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/us/hot-air-balloon-crash-ketamine.html
 **That Giant College ‘Sticker’ Price Isn’t What Most Students Pay**\
 `The share of those paying the full advertised cost has declined over the last couple of decades, a new report found. Yet many don’t understand how much they’ll really pay.`\
 https://nytimes.com/2024/04/12/your-money/college-tuition-cost-.html
-
-**Trump or Biden? The Stock Market Doesn’t Care.**\
-`Prediction markets say former President Donald J. Trump has a good chance of winning. So far, the stock market is fine with that.`\
-https://nytimes.com/2024/04/12/business/trump-biden-stock-market.html
 
