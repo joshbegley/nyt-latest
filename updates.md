@@ -1,3 +1,11 @@
+**Former U.S. Ambassador Pleads Guilty to Acting as Cuban Agent**\
+`Manuel Rocha, a career diplomat, was sentenced to 15 years in prison. “Today, I no longer see the world through the radical eyes of my youth,” he said at his sentencing.`\
+https://nytimes.com/2024/04/12/us/manuel-rocha-cuba-foreign-agent.html
+
+**Sean Combs Sold Share of Tequila Brand for $200 Million**\
+`Mr. Combs, who was accused of sexual assault in several lawsuits, made the sale as he ended his long-term partnership with the liquor giant Diageo. He has denied wrongdoing.`\
+https://nytimes.com/2024/04/12/arts/music/diddy-sean-combs-deleon-sale.html
+
 **Police shut down a Pro-Palestinian conference in Berlin, citing a risk of antisemitic statements.**\
 `Authorities blocked the three-day event over what they said was a risk of anti-Semitic statements. They also blocked a prominent British-Palestinian doctor from entering the country to attend it.`\
 https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/police-shut-down-a-pro-palestinian-conference-in-berlin-citing-a-risk-of-antisemitic-statements
