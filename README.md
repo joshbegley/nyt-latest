@@ -1,3 +1,7 @@
+**The Ultimate Judee Sill Primer**\
+`A new documentary puts a spotlight on the ’70s musician. Listen to 10 of her essential songs.`\
+https://nytimes.com/2024/04/12/arts/music/amplifier-newsletter-judee-sill.html
+
 **The Biden Administration Raised the Rent to Drill on Public Lands. Here’s What to Know.**\
 `The fossil fuel industry says higher rates will harm the economy. The administration says they will pay for the environmental costs of drilling and mining.`\
 https://nytimes.com/2024/04/12/climate/biden-drilling-public-land.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/nyregion/nyc-schools-chancellor-antisemitism-cong
 **Robert MacNeil, Earnest News Anchor for PBS, Dies at 93**\
 `With his longtime co-host Jim Lehrer, he delivered thoughtful reports that stood in stark contrast to the commercial networks’ ever more sensational newscasts.`\
 https://nytimes.com/2024/04/12/business/media/robert-macneil-dead.html
-
-**Judge John Hodgman on Ending Text Messages With Periods**\
-`A father and daughter disagree about how punctuation should be used on phones.`\
-https://nytimes.com/2024/04/12/magazine/judge-john-hodgman-on-ending-text-messages-with-periods.html
 
