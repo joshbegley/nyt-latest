@@ -1,3 +1,11 @@
+**Pro-Palestinian Protesters Complicate Democrats’ Ability to Campaign**\
+`Lisa Lerer, a political correspondent for The New York Times, explains how protests over the Biden administration’s handling of the Israel-Hamas war are disrupting the activities of Democratic officials from city halls to Congress to the White House.`\
+https://nytimes.com/video/us/politics/100000009396743/palestinian-protesters-democrats-campaign-election.html
+
+**Iran’s Retaliation Likely to Be Limited, but Errors Could Lead to War, Experts Say**\
+`After Israel killed several top Iranian commanders, Iran wants to respond without provoking further escalation, military analysts say, but there is a dangerous risk of miscalculation.`\
+https://nytimes.com/2024/04/12/world/middleeast/iran-israel-miscalculation-retaliation.html
+
 **Driver Crashes Truck Into Texas Public Safety Dept., Causing Injuries, Officials Say**\
 `The authorities said that a person driving a semi truck crashed into a Department of Public Safety office in Brenham, Texas, in what may have been an intentional act.`\
 https://nytimes.com/2024/04/12/us/texas-truck-crash.html
