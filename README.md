@@ -1,3 +1,11 @@
+**Tell Us: Has Elon Musk’s Behavior Affected How You View Tesla?**\
+`Mr. Musk, the chief executive of Tesla, has turned off many people with polarizing remarks on social media, and it may be affecting the automaker’s sales.`\
+https://nytimes.com/2024/04/12/business/elon-musk-tesla-electric-vehicles.html
+
+**Overlooked No More: Lizzie Magie, the Unknown Inventor Behind Monopoly**\
+`Magie’s creation, The Landlord’s Game, inspired the spinoff we know today. But credit for the idea long went to someone else.`\
+https://nytimes.com/2024/04/12/obituaries/lizzie-magie-overlooked.html
+
 **6 New Paperbacks to Read This Week**\
 `Including titles by Cecile Pin, Elizabeth Graver, Aimee Nezhukumatathil and more. `\
 https://nytimes.com/interactive/2024/04/12/books/review/new-paperbacks-pin.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/12/style/golden-bachelor-divorce-gerry-turner-theres
 **National Sciences Academy Asks Court to Strip Sackler Name From Endowment**\
 `Millions in Sackler donations sat dormant, rising in value as the opioid epidemic raged and as other institutions distanced themselves from the makers of a notorious painkiller.`\
 https://nytimes.com/2024/04/12/health/sacklers-opioids-national-academies.html
-
-**What Makes Tiny ‘Water Bears’ So Tough? They Quickly Fix Broken DNA.**\
-`New research finds that microscopic tardigrades are remarkably good at repairing their DNA after a huge blast of radiation.`\
-https://nytimes.com/2024/04/12/science/tardigrades-moss-piglets.html
-
-**Primavera Deserves Fresh Pasta**\
-`The first vegetables of the season — asparagus, peas and spring onions — shine atop Melissa Clark’s easy egg pasta dough.`\
-https://nytimes.com/2024/04/12/dining/primavera-deserves-fresh-pasta.html
 
