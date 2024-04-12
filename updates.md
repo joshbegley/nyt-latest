@@ -1,3 +1,7 @@
+**‘Taxi Driver’ and a Year of Radical Revision**\
+`Remakes and remixes are not mere protest.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/taxi-driver-jafa
+
 **President vows to stand by Israel despite recent disagreements.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/president-vows-to-stand-by-israel-despite-recent-disagreements
