@@ -1,3 +1,7 @@
+**Republican Women Are Divided on Abortion as Bans Spread**\
+`Across the country, fractures are emerging among conservative and centrist women, as they confront a steady drumbeat of new abortion restrictions and court rulings.`\
+https://nytimes.com/2024/04/12/us/abortion-ivf-republican-women.html
+
 **A Rollicking Requiem for a Pirate**\
 `At Jimmy Buffett’s memorial, Hawaiian shirts, grass skirts and celebrity weed jokes.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/jimmy-buffett-memorial
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/arts/music/diddy-sean-combs-deleon-sale.html
 **Haiti in Crisis Sets Up Ruling Council, Clearing Way for an Acting Leader**\
 `A governing council was finalized after a month of negotiations. It is tasked with restoring law and order by appointing an acting prime minister.`\
 https://nytimes.com/2024/04/12/world/americas/haiti-transitional-council.html
-
-**Roberto Cavalli, a Life Out Loud**\
-`The fashion designer who made maximalism cool.`\
-https://nytimes.com/2024/04/12/style/roberto-cavalli-a-life-out-loud.html
 
