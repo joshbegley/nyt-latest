@@ -1,3 +1,7 @@
+**Even Before the Olympics, a Victory Lap for a Fast-Moving French Mayor**\
+`Karim Bouamrane, the Socialist mayor of St.-Ouen, a Paris suburb that will host the athletes’ village for the 2024 Games, is leading a rapid transformation of the long-struggling city.`\
+https://nytimes.com/2024/04/12/world/europe/france-mayor-karim-bouamrane-olympic-village.html
+
 **Word of the Day: succinctly**\
 `This word has appeared in 54 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/12/learning/word-of-the-day-succinctly.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/fashion/weddings/elena-bauer-joshua-fagel-wedding
 **Quotation of the Day: A Battle for the White House, Fought With Beading and Silk**\
 `Quotation of the Day for Friday, April 12, 2024.`\
 https://nytimes.com/2024/04/12/pageoneplus/quotation-of-the-day-a-battle-for-the-white-house-fought-with-beading-and-silk.html
-
-**Corrections: April 12, 2024**\
-`Corrections that appeared in print on Friday, April 12, 2024.`\
-https://nytimes.com/2024/04/12/pageoneplus/corrections-april-12-2024.html
 
