@@ -1,3 +1,7 @@
+**Watch a Sniper Scene From ‘Civil War’**\
+`Alex Garland, the film’s writer and director, narrates a sequence from his movie.`\
+https://nytimes.com/2024/04/12/movies/civil-war-scene.html
+
 **‘Civil War’ | Anatomy of a Scene**\
 `The writer and director Alex Garland narrates a sequence from his film.`\
 https://nytimes.com/video/movies/100000009409492/civil-war-scene.html
