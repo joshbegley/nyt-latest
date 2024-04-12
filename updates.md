@@ -1,3 +1,7 @@
+**Sabrina Carpenter Drops a Perky Bop, and 10 More New Songs**\
+`Hear tracks by girl in red, Margo Guryan, Phish and others.`\
+https://nytimes.com/2024/04/12/arts/music/playlist-sabrina-carpenter-girl-in-red.html
+
 **The O.J. Joke: How the Simpson Case Changed Comedy’s Boundaries**\
 `Norm Macdonald and Jay Leno made the double homicides such a constant topic that refraining from jokes the way David Letterman did was noticeable.`\
 https://nytimes.com/2024/04/12/arts/television/comedy-oj-simpson-jay-leno-chris-rock.html

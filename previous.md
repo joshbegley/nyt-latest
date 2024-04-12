@@ -1,3 +1,7 @@
+**Sabrina Carpenter Drops a Perky Bop, and 10 More New Songs**\
+`Hear tracks by girl in red, Margo Guryan, Phish and others.`\
+https://nytimes.com/2024/04/12/arts/music/playlist-sabrina-carpenter-girl-in-red.html
+
 **The O.J. Joke: How the Simpson Case Changed Comedy’s Boundaries**\
 `Norm Macdonald and Jay Leno made the double homicides such a constant topic that refraining from jokes the way David Letterman did was noticeable.`\
 https://nytimes.com/2024/04/12/arts/television/comedy-oj-simpson-jay-leno-chris-rock.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/arts/dance/review-dance-theater-of-harlem-robert-
 **For Filmmakers, O.J. Simpson’s Trial Was a Powerful Case Study**\
 `In 2016, both an FX mini-series and an ESPN documentary re-examined the polarizing criminal accusations against Simpson and the nation’s divided conversation about race.`\
 https://nytimes.com/2024/04/12/arts/people-v-oj-simpson-made-in-america.html
-
-**Tell Us: Has Elon Musk’s Behavior Affected How You View Tesla?**\
-`Mr. Musk, the chief executive of Tesla, has turned off many people with polarizing remarks on social media, and it may be affecting the automaker’s sales.`\
-https://nytimes.com/2024/04/12/business/elon-musk-tesla-electric-vehicles.html
 
