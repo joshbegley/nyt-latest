@@ -1,3 +1,7 @@
+**President vows to stand by Israel despite recent disagreements.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/president-vows-to-stand-by-israel-despite-recent-disagreements
+
 **My Girlfriend Said She Loved Me. Should I Say It Back Even if I’m Not Sure?**\
 `The magazine’s Ethicist columnist on whether it’s OK to profess love if you’re uncertain you feel it.`\
 https://nytimes.com/2024/04/12/magazine/girlfriend-love-reciprocate-ethics.html

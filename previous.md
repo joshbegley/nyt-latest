@@ -1,3 +1,7 @@
+**President vows to stand by Israel despite recent disagreements.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/president-vows-to-stand-by-israel-despite-recent-disagreements
+
 **My Girlfriend Said She Loved Me. Should I Say It Back Even if I’m Not Sure?**\
 `The magazine’s Ethicist columnist on whether it’s OK to profess love if you’re uncertain you feel it.`\
 https://nytimes.com/2024/04/12/magazine/girlfriend-love-reciprocate-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/crosswords/mattel-scrabble-together.html
 **Roberto Cavalli, Designer Who Celebrated Excess, Dies at 83**\
 `From the mid-1990s onward he was one of the biggest names in fashion, with stores around the world and celebrity admirers like Lenny Kravitz and Cindy Crawford.`\
 https://nytimes.com/2024/04/12/fashion/roberto-cavalli-dead.html
-
-**Our Inability to Predict Inflation Is an Embarrassment to Economics**\
-`Academic theories of inflation have proved of little use to policymakers.`\
-https://nytimes.com/2024/04/12/opinion/inflation-economics-economists.html
 
