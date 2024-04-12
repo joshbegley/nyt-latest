@@ -1,3 +1,7 @@
+**The Ultimate Judee Sill Primer**\
+`A new documentary puts a spotlight on the ’70s musician. Listen to 10 of her essential songs.`\
+https://nytimes.com/2024/04/12/arts/music/amplifier-newsletter-judee-sill.html
+
 **The Biden Administration Raised the Rent to Drill on Public Lands. Here’s What to Know.**\
 `The fossil fuel industry says higher rates will harm the economy. The administration says they will pay for the environmental costs of drilling and mining.`\
 https://nytimes.com/2024/04/12/climate/biden-drilling-public-land.html
