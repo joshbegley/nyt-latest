@@ -2,8 +2,8 @@
 `Also, the U.S. made it more expensive to drill on public land. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/04/12/briefing/house-surveillance-law-student-debt-biden.html
 
-**Former U.S. Ambassador Pleads Guilty to Acting as Cuban Agent**\
-`Manuel Rocha, a career diplomat, was sentenced to 15 years in prison. “Today, I no longer see the world through the radical eyes of my youth,” he said at his sentencing.`\
+**Former U.S. Ambassador Is Sentenced to 15 Years for Acting as Cuban Agent**\
+`Manuel Rocha pleaded guilty to two charges, including conspiring to defraud the United States as a foreign agent, under an agreement with the U.S. government.`\
 https://nytimes.com/2024/04/12/us/manuel-rocha-cuba-foreign-agent.html
 
 **Police shut down a Pro-Palestinian conference in Berlin, citing a risk of antisemitic statements.**\
