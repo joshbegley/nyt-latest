@@ -1,3 +1,7 @@
+**Angelenos Reflect on a ‘Big Moment in American History’**\
+`The murder trial of O.J. Simpson was a defining part of a turbulent era in Los Angeles.`\
+https://nytimes.com/2024/04/12/us/angelenos-reflect-on-a-big-moment-in-american-history.html
+
 **Mistaken Autopsy Report Compounds Grief after a Balloon Pilot’s Death**\
 `The pilot, Cornelius van der Walt, died in a crash in Arizona that also killed three others. While the autopsy found he had ketamine in his system, it had been administered by medics after the crash.`\
 https://nytimes.com/2024/04/12/us/hot-air-balloon-crash-ketamine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/briefing/the-new-great-power-politics.html
 **Myanmar Rebels Take Key Trading Town, but Counteroffensive Looms**\
 `The fall of Myawaddy, on the Thai border, was one of the most significant gains by resistance forces since a 2021 military coup.`\
 https://nytimes.com/2024/04/12/world/asia/myanmar-rebels-myawaddy.html
-
-**Israel Braces for Iranian Retaliation, and O.J. Simpson Dies**\
-`Plus, A.I. lands on Wall Street.`\
-https://nytimes.com/2024/04/12/podcasts/israel-iran-oj-simpson.html
 

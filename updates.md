@@ -1,3 +1,7 @@
+**Angelenos Reflect on a ‘Big Moment in American History’**\
+`The murder trial of O.J. Simpson was a defining part of a turbulent era in Los Angeles.`\
+https://nytimes.com/2024/04/12/us/angelenos-reflect-on-a-big-moment-in-american-history.html
+
 **Mistaken Autopsy Report Compounds Grief after a Balloon Pilot’s Death**\
 `The pilot, Cornelius van der Walt, died in a crash in Arizona that also killed three others. While the autopsy found he had ketamine in his system, it had been administered by medics after the crash.`\
 https://nytimes.com/2024/04/12/us/hot-air-balloon-crash-ketamine.html
