@@ -1,3 +1,15 @@
+**Bennett Braun, Psychiatrist Who Fueled ‘Satanic Panic,’ Dies at 83**\
+`He diagnosed dozens of patients with what he said were suppressed memories of being tortured by cults. He later lost his license.`\
+https://nytimes.com/2024/04/12/us/bennett-braun-dead.html
+
+**German Police Stop Pro-Palestinian Conference**\
+`The German police shut down a pro-Palestinian conference in Berlin, citing the risk that one of the speakers invited might make antisemitic comments or incite violence.`\
+https://nytimes.com/video/world/europe/100000009412212/palestine-conference-berlin.html
+
+**The Mechanics of Covering Trump’s Manhattan Criminal Trial**\
+`Beginning on April 15, Times reporters will provide up-to-the-minute updates on the trial.`\
+https://nytimes.com/2024/04/12/insider/trump-trial-reporters.html
+
 **Sean Combs Sold Share of Tequila Brand for $200 Million**\
 `Mr. Combs, who was accused of sexual assault in several lawsuits, made the sale as he ended his long-term partnership with the liquor giant Diageo. He has denied wrongdoing.`\
 https://nytimes.com/2024/04/12/arts/sean-combs-deleon-sale.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/the-eu-impo
 **Stocks Suffer Sharpest Weekly Decline of 2024**\
 `Investors had been put on edge by a stronger-than-expected inflation report earlier in the week. Rising tension in the Middle East heading into the weekend gave them another reason to retreat.`\
 https://nytimes.com/2024/04/12/business/stock-market-today.html
-
-**‘Taxi Driver’ and a Year of Radical Revision**\
-`Remakes and remixes are not mere protest.`\
-https://nytimes.com/live/2024/04/09/opinion/thepoint/taxi-driver-jafa
-
-**President Biden vows to stand by Israel despite recent disagreements.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/president-vows-to-stand-by-israel-despite-recent-disagreements
-
-**My Girlfriend Said She Loved Me. Should I Say It Back Even if I’m Not Sure?**\
-`The magazine’s Ethicist columnist on whether it’s OK to profess love if you’re uncertain you feel it.`\
-https://nytimes.com/2024/04/12/magazine/girlfriend-love-reciprocate-ethics.html
 
