@@ -1,3 +1,11 @@
+**What Is the Powerful Surveillance Law That Divided Lawmakers?**\
+`Under Section 702, the government is empowered to collect, without a warrant, the messages of Americans communicating with targeted foreigners abroad.`\
+https://nytimes.com/2024/04/12/us/politics/surveillance-law-section-702-fisa.html
+
+**Eleanor Coppola, Who Chronicled Her Family’s Filmmaking, Dies at 87**\
+`She made documentaries of her husband Francis Ford Coppola’s “Apocalypse Now” and her daughter Sofia Coppola’s “The Virgin Suicides” and recalled their lives in books.`\
+https://nytimes.com/2024/04/12/movies/eleanor-coppola-dead.html
+
 **Trump Co-Defendants Argue for Dismissal of Charges in Documents Case**\
 `The judge did not rule on motions by lawyers for Walt Nauta and Carlos De Oliveira, who are accused of helping the former president obstruct government efforts to recover classified material.`\
 https://nytimes.com/2024/04/12/us/politics/trump-nauta-oliveira-documents-case.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/12/style/salman-rushdie-literary-party.html
 **Republican Women Are Divided on Abortion as Bans Spread**\
 `Across the country, fractures are emerging among conservative and centrist women, as they confront a steady drumbeat of new abortion restrictions and court rulings.`\
 https://nytimes.com/2024/04/12/us/abortion-ivf-republican-women.html
-
-**A Rollicking Requiem for a Pirate**\
-`At Jimmy Buffett’s memorial, Hawaiian shirts, grass skirts and celebrity weed jokes.`\
-https://nytimes.com/live/2024/04/09/opinion/thepoint/jimmy-buffett-memorial
-
-**The House Passed an Extension of a Surveillance Law**\
-`Also, the U.S. made it more expensive to drill on public land. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/04/12/briefing/house-surveillance-law-student-debt-biden.html
 
