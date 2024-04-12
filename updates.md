@@ -1,3 +1,7 @@
+**Myanmar Rebels Take Key Trading Town, but Counteroffensive Looms**\
+`The fall of Myawaddy, on the Thai border, was one of the most significant gains by resistance forces since a 2021 military coup.`\
+https://nytimes.com/2024/04/12/world/asia/myanmar-rebels-myawaddy.html
+
 **Israel Braces for Iranian Retaliation, and O.J. Simpson Dies**\
 `Plus, A.I. lands on Wall Street.`\
 https://nytimes.com/2024/04/12/podcasts/israel-iran-oj-simpson.html
