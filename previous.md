@@ -2,7 +2,7 @@
 `Prices and mortgage rates are climbing as Wall Street bets that interest rates will remain higher for longer.`\
 https://nytimes.com/2024/04/12/business/dealbook/inflation-housing-market-mortgages.html
 
-**JPMorgan’s Dimon Warns of ‘Unsettling’ Pressures as Bank Reports Earnings**\
+**Dimon Warns of ‘Unsettling’ Pressures as JPMorgan Reports Earnings**\
 `Warnings from the chief executive of the nation’s largest bank have been consistently at odds with heady financial markets.`\
 https://nytimes.com/2024/04/12/business/jpmorgan-earnings-dimon-warning.html
 
@@ -34,7 +34,7 @@ https://nytimes.com/2024/04/12/podcasts/the-daily/scam-cartel-timeshare.html
 `A wave of rapid immigration is taxing local resources around the country and drawing political ire. But it might leave America’s economy better off.`\
 https://nytimes.com/2024/04/12/business/economy/immigrants-maine-lobster-aging-workforce.html
 
-**The U.S. imposes new travel rules in Israel ‘out of an abundance of caution.’**\
+**The U.S. issues new travel rules in Israel ‘out of an abundance of caution.’**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/the-us-imposes-new-travel-rules-in-israel-out-of-an-abundance-of-caution
 
