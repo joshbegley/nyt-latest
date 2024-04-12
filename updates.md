@@ -1,3 +1,7 @@
+**Gen Z Wanted a Scrabble More Conducive to Hanging Out. Mattel Was Happy to Oblige.**\
+`Will Classic Scrabble devotees object? You bet.`\
+https://nytimes.com/2024/04/12/crosswords/mattel-scrabble-together.html
+
 **Rumi Missabu, Avant-Garde Drag Performer Who Glittered, Dies at 76**\
 `He was one of the stars of the Cockettes, a ]psychedelic collective formed at the turn of the 1970s in San Francisco, that was short-lived but inspired generations.`\
 https://nytimes.com/2024/04/12/style/rumi-missabu-dead.html

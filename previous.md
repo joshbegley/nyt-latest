@@ -24,7 +24,7 @@ https://nytimes.com/2024/04/12/world/middleeast/iran-israel-military-weapons.htm
 
 **Gen Z Wanted a Scrabble More Conducive to Hanging Out. Mattel Was Happy to Oblige.**\
 `Will Classic Scrabble devotees object? You bet.`\
-https://nytimes.com/2024/04/12/crosswords/scrabble-new-version.html
+https://nytimes.com/2024/04/12/crosswords/mattel-scrabble-together.html
 
 **Roberto Cavalli, Designer Who Celebrated Excess, Dies at 83**\
 `From the mid-1990s onward he was one of the biggest names in fashion, with stores around the world and celebrity admirers like Lenny Kravitz and Cindy Crawford.`\
