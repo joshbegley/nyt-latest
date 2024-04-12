@@ -1,3 +1,7 @@
+**$7.4 Billion More in Student Loans Are Canceled, Biden Administration Says**\
+`The announcement is the latest in a piecemeal approach the White House is using to target more specific subsets of borrowers.`\
+https://nytimes.com/2024/04/12/us/politics/student-loan-forgiveness-biden.html
+
 **Coaches Have to Be Salesmen, Too**\
 `David Moyes has established West Ham as a fixture in the top half of the Premier League and a regular presence in Europe. So why do so many fans want him out?`\
 https://nytimes.com/2024/04/12/world/europe/west-ham-david-moyes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/us/politics/surveillance-bill-fisa.html
 **Trump and Speaker Johnson to make joint announcement on ‘election integrity.’**\
 `Neither man has elaborated publicly on the subject of Friday’s announcement, but the former president has made false claims of a stolen 2020 election central to his current campaign.`\
 https://nytimes.com/live/2024/04/12/us/election-trump-biden-news/trump-speaker-mike-johnson-announcement-election-integrity
-
-**In Barcelona, Her Dream of a Spanish Husband Came True**\
-`Sarah Wood was not interested in a long-distance relationship with Gustavo González. That changed after they met at a cafe in Spain.`\
-https://nytimes.com/2024/04/12/style/sarah-wood-gustavo-gonzalez-wedding.html
 

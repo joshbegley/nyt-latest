@@ -1,3 +1,7 @@
+**$7.4 Billion More in Student Loans Are Canceled, Biden Administration Says**\
+`The announcement is the latest in a piecemeal approach the White House is using to target more specific subsets of borrowers.`\
+https://nytimes.com/2024/04/12/us/politics/student-loan-forgiveness-biden.html
+
 **Coaches Have to Be Salesmen, Too**\
 `David Moyes has established West Ham as a fixture in the top half of the Premier League and a regular presence in Europe. So why do so many fans want him out?`\
 https://nytimes.com/2024/04/12/world/europe/west-ham-david-moyes.html
