@@ -1,3 +1,7 @@
+**Bank of England to Overhaul Its Forecasting After Inflation Surprises**\
+`The review, which was led by Ben S. Bernanke, a former Federal Reserve chair, came after the central bank had been criticized for underestimating inflation.`\
+https://nytimes.com/2024/04/12/business/bank-of-england-interest-rates-inflation.html
+
 **Surveillance Bill Clears Key Hurdle in House, Putting It Back on Track**\
 `Speaker Mike Johnson scaled back the measure to two years from five, winning over hard-right Republicans who believe Donald J. Trump will be president by the time it would expire.`\
 https://nytimes.com/2024/04/12/us/politics/surveillance-bill-fisa.html
