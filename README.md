@@ -1,3 +1,23 @@
+**How One Family Lost $900,000 in a Timeshare Scam**\
+`A Mexican drug cartel is targeting seniors and their timeshares.`\
+https://nytimes.com/2024/04/12/podcasts/the-daily/scam-cartel-timeshare.html
+
+**Immigrants in Maine Are Filling a Labor Gap. It May Be a Prelude for the U.S.**\
+`A wave of rapid immigration is taxing local resources around the country and drawing political ire. But it might leave America’s economy better off.`\
+https://nytimes.com/2024/04/12/business/economy/immigrants-maine-lobster-aging-workforce.html
+
+**The relief organization Anera says it is resuming operations in Gaza.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/the-relief-organization-anera-says-it-is-resuming-operations-in-gaza
+
+**The U.S. imposes new travel rules in Israel ‘out of an abundance of caution.’**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/the-us-imposes-new-travel-rules-in-israel-out-of-an-abundance-of-caution
+
+**12mideast-crisis**\
+`U.S. Personnel in Israel Face New Travel Restrictions`\
+https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas
+
 **Fatal Shooting of Driver by Chicago Police Is Under Investigation**\
 `Chicago police officers stopped Dexter Reed, Jr., last month and fired 96 shots after he fired first and wounded an officer, investigators said.`\
 https://nytimes.com/2024/04/12/us/dexter-reed-chicago-police-shooting.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/04/12/world/asia/china-us-biden-japan.html
 **The Founding Fathers Don’t Have the Answer to Every Question**\
 `The Electoral College as we know it is less a product of the insight or design of the framers and more a contingent adaptation to the political world.`\
 https://nytimes.com/2024/04/12/opinion/nebraska-electoral-college-myths.html
-
-**Get Organized Quickly With These Decluttering ‘Sprints’**\
-`You can finish them in 30 minutes or less.`\
-https://nytimes.com/2024/04/12/well/live/organize-your-home-declutter.html
-
-**The New York Times News Quiz, April 12, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/04/12/briefing/news-quiz-oj-eclipse-abortion.html
-
-**‘Brandy Hellville’: A New Twist for Cult Documentaries**\
-`The film examines the retailer’s tactics and is surprisingly similar to exposés about cults.`\
-https://nytimes.com/2024/04/12/movies/brandy-hellville-cult-documentaries.html
-
-**How to Create a Home Bar: Jessica Schuster’s Dos and Don’ts**\
-`Interior designer Jessica Schuster offers advice on how to set up a home bar.`\
-https://nytimes.com/interactive/2024/04/12/realestate/home-bar-how-to-set-up.html
-
-**The O.J. Simpson Trial: What Happened to the Main Figures**\
-`Some, like Marcia Clark and Mark Fuhrman, gained fame in other arenas. Others lived quieter lives.`\
-https://nytimes.com/2024/04/12/us/oj-simpson-trial-where-are-they-now.html
 
