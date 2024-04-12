@@ -1,3 +1,27 @@
+**Sexism, Hate, Mental Illness: Why Are Men Randomly Punching Women?**\
+`Conversation about the attacks on the streets of New York have centered on mental illness, but the offenses seem to have their roots in hatred of women.`\
+https://nytimes.com/2024/04/12/nyregion/new-york-city-random-attacks-women.html
+
+**The Connections Companion No. 306**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/12/crosswords/connections-companion.html
+
+**The Battle Over Zaza Waza: A Lifelong Liberal Joins New York’s Weed War**\
+`When an illegal smoke shop opened across the street, Gale Brewer, a local councilwoman, vowed to close it. What happened next was “like a Fellini movie.”`\
+https://nytimes.com/2024/04/12/nyregion/illegal-weed-gale-brewer.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/12/crosswords/wordle-review.html
+
+**Can a Christian Community Close the Beach on Sunday Mornings?**\
+`In Ocean Grove, N.J., a conservative religious organization sets the rules. The state has challenged its right to keep sunbathers off the sand.`\
+https://nytimes.com/2024/04/12/nyregion/ocean-grove-new-jersey-beach.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/12/crosswords/spelling-bee-forum.html
+
 **Even Before the Olympics, a Victory Lap for a Fast-Moving French Mayor**\
 `Karim Bouamrane, the Socialist mayor of St.-Ouen, a Paris suburb that will host the athletes’ village for the 2024 Games, is leading a rapid transformation of the long-struggling city.`\
 https://nytimes.com/2024/04/12/world/europe/france-mayor-karim-bouamrane-olympic-village.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/04/12/arts/television/late-night-trump-trial.html
 **Friday Briefing**\
 `A U.S. general goes to Israel.`\
 https://nytimes.com/2024/04/12/briefing/israel-iran-oj-simpson.html
-
-**O.J. and the Monster Jealousy**\
-`I always thought of the Simpson case as a great American tragedy, with its echoes of “Othello.”`\
-https://nytimes.com/2024/04/12/opinion/oj-simpson-death.html
-
-**A Companion on the Road to Recovery**\
-`A simple yet radical approach in Asia is equipping medical patients and their loved ones with the knowledge they need to heal themselves.`\
-https://nytimes.com/2024/04/12/opinion/india-health-care-recovery.html
-
-**Indigenous Authors and the Challenge of Telling Their Own Story**\
-`A university program seeks to improve cross-cultural understanding in Australia’s publishing industry.`\
-https://nytimes.com/2024/04/12/world/australia/indigenous-publishing-australia-aboriginal.html
-
-**Europe’s A.I. ‘Champion’ Sets Sights on Tech Giants in U.S.**\
-`Mistral, a French start-up considered a promising challenger to OpenAI and Google, is getting support from European leaders who want to protect the region’s culture and politics.`\
-https://nytimes.com/2024/04/12/business/artificial-intelligence-mistral-france-europe.html
-
-**‘Catching Feelings’ After a Steamy Connection on the Dance Floor**\
-`Elena Bauer and Joshua Fagel weren’t looking for anything serious when they first met at a fraternity party at Stanford. A month after meeting, they had a change of heart.`\
-https://nytimes.com/2024/04/12/fashion/weddings/elena-bauer-joshua-fagel-wedding.html
-
-**Quotation of the Day: A Battle for the White House, Fought With Beading and Silk**\
-`Quotation of the Day for Friday, April 12, 2024.`\
-https://nytimes.com/2024/04/12/pageoneplus/quotation-of-the-day-a-battle-for-the-white-house-fought-with-beading-and-silk.html
 
