@@ -1,3 +1,7 @@
+**JPMorgan’s Dimon Warns of ‘Unsettling’ Pressures as Bank’s Earnings Wobble**\
+`Warnings from the chief executive of the nation’s largest bank have been consistently at odds with heady financial markets.`\
+https://nytimes.com/2024/04/12/business/jpmorgan-earnings-dimon-warning.html
+
 **Watch a Sniper Scene From ‘Civil War’**\
 `Alex Garland, the film’s writer and director, narrates a sequence from his movie.`\
 https://nytimes.com/2024/04/12/movies/civil-war-scene.html

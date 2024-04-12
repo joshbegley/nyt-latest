@@ -1,3 +1,7 @@
+**JPMorgan’s Dimon Warns of ‘Unsettling’ Pressures as Bank’s Earnings Wobble**\
+`Warnings from the chief executive of the nation’s largest bank have been consistently at odds with heady financial markets.`\
+https://nytimes.com/2024/04/12/business/jpmorgan-earnings-dimon-warning.html
+
 **Watch a Sniper Scene From ‘Civil War’**\
 `Alex Garland, the film’s writer and director, narrates a sequence from his movie.`\
 https://nytimes.com/2024/04/12/movies/civil-war-scene.html
@@ -26,15 +30,11 @@ https://nytimes.com/2024/04/12/podcasts/the-daily/scam-cartel-timeshare.html
 `A wave of rapid immigration is taxing local resources around the country and drawing political ire. But it might leave America’s economy better off.`\
 https://nytimes.com/2024/04/12/business/economy/immigrants-maine-lobster-aging-workforce.html
 
-**The relief organization Anera says it is resuming operations in Gaza.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/the-relief-organization-anera-says-it-is-resuming-operations-in-gaza
-
 **The U.S. imposes new travel rules in Israel ‘out of an abundance of caution.’**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/the-us-imposes-new-travel-rules-in-israel-out-of-an-abundance-of-caution
 
-**12mideast-crisis**\
-`U.S. Personnel in Israel Face New Travel Restrictions`\
-https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas
+**The relief organization Anera says it is resuming operations in Gaza.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/the-relief-organization-anera-says-it-is-resuming-operations-in-gaza
 
