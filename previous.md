@@ -1,3 +1,7 @@
+**Fatal Shooting of Driver by Chicago Police Is Under Investigation**\
+`Chicago police officers stopped Dexter Reed, Jr., last month and fired 96 shots after he fired first and wounded an officer, investigators said.`\
+https://nytimes.com/2024/04/12/us/dexter-reed-chicago-police-shooting.html
+
 **War or No War, Ukrainians Aren’t Giving Up Their Coffee**\
 `Coffee shops and kiosks are everywhere in Ukraine’s capital, their popularity both an act of wartime defiance and a symbol of closer ties to the rest of Europe.`\
 https://nytimes.com/2024/04/12/world/europe/kyiv-ukraine-coffee-culture.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/12/realestate/home-bar-how-to-set-up.htm
 **The O.J. Simpson Trial: What Happened to the Main Figures**\
 `Some, like Marcia Clark and Mark Fuhrman, gained fame in other arenas. Others lived quieter lives.`\
 https://nytimes.com/2024/04/12/us/oj-simpson-trial-where-are-they-now.html
-
-**J.D. Vance: The Math on Ukraine Doesn’t Add Up**\
-`Ukraine needs more men than it can field, even with draconian conscription policies. And it needs more material than the United States can provide.`\
-https://nytimes.com/2024/04/12/opinion/jd-vance-ukraine.html
 
