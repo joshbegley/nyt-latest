@@ -1,3 +1,11 @@
+**War or No War, Ukrainians Aren’t Giving Up Their Coffee**\
+`Coffee shops and kiosks are everywhere in Ukraine’s capital, their popularity both an act of wartime defiance and a symbol of closer ties to the rest of Europe.`\
+https://nytimes.com/2024/04/12/world/europe/kyiv-ukraine-coffee-culture.html
+
+**A.I.’s Data Wall, a Surprise Privacy Bill, and What Happened to the TikTok Ban?**\
+`I’d rather not tell you what’s in this episode. It’s private.`\
+https://nytimes.com/2024/04/12/podcasts/ai-training-data-privacy-tiktok.html
+
 **China Feels Boxed In by the U.S. but Has Few Ways to Push Back**\
 `China seeks to project military power in the seas around its coastline, yet also faces pressure to mend relations with neighbors for the good of its economy.`\
 https://nytimes.com/2024/04/12/world/asia/china-us-biden-japan.html
