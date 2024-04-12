@@ -1,3 +1,7 @@
+**Campaign Puts Trump and the Spy Agencies on a Collision Course**\
+`As president, Donald Trump never trusted the intelligence community. His antipathy has only grown since he left office, with potentially serious implications should he return to power.`\
+https://nytimes.com/2024/04/12/us/politics/trump-intelligence-agencies.html
+
 **American intelligence officials predict Iran will strike Israel within the next few days.**\
 `By Eric Schmitt and Farnaz Fassihi`\
 https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/american-intelligence-officials-predict-iran-will-strike-israel-within-the-next-few-days
