@@ -1,3 +1,7 @@
+**Former U.S. Ambassador Pleads Guilty to Acting as Cuban Agent**\
+`Manuel Rocha, a career diplomat, was sentenced to 15 years in prison. “Today, I no longer see the world through the radical eyes of my youth,” he said at his sentencing.`\
+https://nytimes.com/2024/04/12/us/manuel-rocha-cuba-foreign-agent.html
+
 **Police shut down a Pro-Palestinian conference in Berlin, citing a risk of antisemitic statements.**\
 `Authorities blocked the three-day event over what they said was a risk of anti-Semitic statements. They also blocked a prominent British-Palestinian doctor from entering the country to attend it.`\
 https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/police-shut-down-a-pro-palestinian-conference-in-berlin-citing-a-risk-of-antisemitic-statements
@@ -16,7 +20,7 @@ https://nytimes.com/2024/04/12/insider/trump-trial-reporters.html
 
 **Sean Combs Sold Share of Tequila Brand for $200 Million**\
 `Mr. Combs, who was accused of sexual assault in several lawsuits, made the sale as he ended his long-term partnership with the liquor giant Diageo. He has denied wrongdoing.`\
-https://nytimes.com/2024/04/12/arts/sean-combs-deleon-sale.html
+https://nytimes.com/2024/04/12/arts/music/diddy-sean-combs-deleon-sale.html
 
 **Haiti in Crisis Sets Up Ruling Council, Clearing Way for an Acting Leader**\
 `A governing council was finalized after a month of negotiations. It is tasked with restoring law and order by appointing an acting prime minister.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/nyregion/nypd-lawsuit.html
 **Transcript: Ezra Klein Interviews Dario Amodei**\
 `The April 12, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/04/12/podcasts/transcript-ezra-klein-interviews-dario-amodei.html
-
-**The E.U. imposes sanctions on Hamas and Palestinian Islamic Jihad for sexual violence on Oct. 7.**\
-`By Gaya Gupta`\
-https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/the-eu-imposes-sanctions-on-hamas-and-palestinian-islamic-jihad-for-sexual-violence-on-oct-7
 
