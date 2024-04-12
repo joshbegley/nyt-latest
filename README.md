@@ -1,3 +1,7 @@
+**Salman Rushdie Is Again the Toast of Literary Manhattan**\
+`Nearly two years after he was stabbed, he was in fine form as he greeted his fellow writers at a party celebrating his candid memoir, “Knife.”`\
+https://nytimes.com/2024/04/12/style/salman-rushdie-literary-party.html
+
 **Republican Women Are Divided on Abortion as Bans Spread**\
 `Across the country, fractures are emerging among conservative and centrist women, as they confront a steady drumbeat of new abortion restrictions and court rulings.`\
 https://nytimes.com/2024/04/12/us/abortion-ivf-republican-women.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/insider/trump-trial-reporters.html
 **Sean Combs Sold Share of Tequila Brand for $200 Million**\
 `Mr. Combs, who was accused of sexual assault in several lawsuits, made the sale as he ended his long-term partnership with the liquor giant Diageo. He has denied wrongdoing.`\
 https://nytimes.com/2024/04/12/arts/music/diddy-sean-combs-deleon-sale.html
-
-**Haiti in Crisis Sets Up Ruling Council, Clearing Way for an Acting Leader**\
-`A governing council was finalized after a month of negotiations. It is tasked with restoring law and order by appointing an acting prime minister.`\
-https://nytimes.com/2024/04/12/world/americas/haiti-transitional-council.html
 
