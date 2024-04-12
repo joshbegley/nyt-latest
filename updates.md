@@ -1,3 +1,7 @@
+**Trump and Speaker Johnson to make joint announcement on ‘election integrity.’**\
+`Neither man has elaborated publicly on the subject of Friday’s announcement, but the former president has made false claims of a stolen 2020 election central to his current campaign.`\
+https://nytimes.com/live/2024/04/12/us/election-trump-biden-news/trump-speaker-mike-johnson-announcement-election-integrity
+
 **In Barcelona, Her Dream of a Spanish Husband Came True**\
 `Sarah Wood was not interested in a long-distance relationship with Gustavo González. That changed after they met at a cafe in Spain.`\
 https://nytimes.com/2024/04/12/style/sarah-wood-gustavo-gonzalez-wedding.html
