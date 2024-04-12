@@ -1,3 +1,7 @@
+**100 Years of Simon & Schuster**\
+`The publisher has gone through a lot of changes since its founding in 1924. Its current chief executive, Jonathan Karp, talks about the company’s history and its hopes for the future.`\
+https://nytimes.com/2024/04/12/books/review/podcast-simon-schuster-turns-100.html
+
 **Pro-Palestinian Protesters Complicate Democrats’ Ability to Campaign**\
 `Lisa Lerer, a political correspondent for The New York Times, explains how protests over the Biden administration’s handling of the Israel-Hamas war are disrupting the activities of Democratic officials from city halls to Congress to the White House.`\
 https://nytimes.com/video/us/politics/100000009396743/palestinian-protesters-democrats-campaign-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/american-in
 **The Best of Late Night This Week**\
 `The late-night hosts started the week by talking about the total solar eclipse before moving on to political news — including former President Trump’s failed bids to delay his criminal hush-money trial and Arizona reinstating a 160-year-old abortion ban.`\
 https://nytimes.com/interactive/2024/04/12/arts/television/best-of-late-night-eclipse.html
-
-**Sabrina Carpenter Drops a Perky Bop, and 10 More New Songs**\
-`Hear tracks by girl in red, Margo Guryan, Phish and others.`\
-https://nytimes.com/2024/04/12/arts/music/playlist-sabrina-carpenter-girl-in-red.html
 
