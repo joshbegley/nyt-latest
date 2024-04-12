@@ -1,3 +1,15 @@
+**Thursday Ends a 13-Year Break From New Music With a Pointed Song**\
+`“Application for Release From the Dream,” which the band released Friday, marks the beginning of a fresh era for a group that helped bring emo to the mainstream.`\
+https://nytimes.com/2024/04/12/arts/music/thursday-new-song-application-for-release-from-the-dream.html
+
+**Alain Delon at His Very Best: Ravishing, Yes, but Also Destabilizing**\
+`The French star is the subject of a series at Film Forum focusing on movies from the ’60s and ’70s, when he became an international sensation.`\
+https://nytimes.com/2024/04/12/movies/alain-delon-retrospective.html
+
+**Academic Freedom and the Israel-Gaza War**\
+`Responses to an Opinion guest essay by two N.Y.U. professors. Also: Biden-Trump debates; Rosie the Riveter; never enough money.`\
+https://nytimes.com/2024/04/12/opinion/academic-freedom-israel-gaza-nyu.html
+
 **Cries of Sexism Greet a Nike Olympic Reveal**\
 `The sporting giant offered a sneak peek at its track and field outfits for Team U.S.A., and an unexpected backlash ensued.`\
 https://nytimes.com/2024/04/12/style/sexism-nike-olympic-track-and-field-uniforms.html
