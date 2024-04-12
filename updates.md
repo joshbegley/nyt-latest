@@ -1,3 +1,11 @@
+**Rumi Missabu, Avant-Garde Drag Performer Who Glittered, Dies at 76**\
+`He was one of the stars of the Cockettes, a ]psychedelic collective formed at the turn of the 1970s in San Francisco, that was short-lived but inspired generations.`\
+https://nytimes.com/2024/04/12/style/rumi-missabu-dead.html
+
+**Pennsylvania and West Virginia Brace for More Flooding After Heavy Rains**\
+`Up to four inches fell in less than 24 hours across broad sections of both states, and officials were watching rising waterways warily.`\
+https://nytimes.com/2024/04/12/us/flooding-pennsylvania-west-virginia.html
+
 **Richard Leibner, Agent for Top Broadcast Journalists, Dies at 85**\
 `His negotiations led to Dan Rather’s elevation from “60 Minutes” to anchor of the “CBS Evening News” and sent Diane Sawyer from “60 Minutes” to ABC.`\
 https://nytimes.com/2024/04/12/business/media/richard-leibner-dead.html
