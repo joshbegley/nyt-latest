@@ -1,3 +1,11 @@
+**6 New Paperbacks to Read This Week**\
+`Including titles by Cecile Pin, Elizabeth Graver, Aimee Nezhukumatathil and more. `\
+https://nytimes.com/interactive/2024/04/12/books/review/new-paperbacks-pin.html
+
+**Back From Ukraine, a House Republican Makes the Case for More Aid**\
+`Representative Chuck Edwards, a first-term North Carolinian, has emerged as a vocal proponent for U.S. aid to Ukraine in a party that has grown hostile to it. He recently saw the war up close.`\
+https://nytimes.com/2024/04/12/world/europe/ukraine-aid-house.html
+
 **Thursday Ends a 13-Year Break From New Music With a Pointed Song**\
 `“Application for Release From the Dream,” which the band released Friday, marks the beginning of a fresh era for a group that helped bring emo to the mainstream.`\
 https://nytimes.com/2024/04/12/arts/music/thursday-new-song-application-for-release-from-the-dream.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/12/science/tardigrades-moss-piglets.html
 **Primavera Deserves Fresh Pasta**\
 `The first vegetables of the season — asparagus, peas and spring onions — shine atop Melissa Clark’s easy egg pasta dough.`\
 https://nytimes.com/2024/04/12/dining/primavera-deserves-fresh-pasta.html
-
-**Five Science Fiction Movies to Stream Now**\
-`In this month’s sci-fi picks, cruise through dreams, hook a right at multiverses, turn left at portals, then put it in reverse for some time travel.`\
-https://nytimes.com/2024/04/12/movies/science-fiction-movies-streaming.html
-
-**No ‘Hippie Ape’: Bonobos Are Often Aggressive, Study Finds**\
-`Despite their peaceful reputation, bonobos act aggressively more often than their chimpanzee cousins, a new study found.`\
-https://nytimes.com/2024/04/12/science/bonobo-chimpanzee-aggression.html
 
