@@ -1,3 +1,7 @@
+**Coaches Have to Be Salesmen, Too**\
+`David Moyes has established West Ham as a fixture in the top half of the Premier League and a regular presence in Europe. So why do so many fans want him out?`\
+https://nytimes.com/2024/04/12/world/europe/west-ham-david-moyes.html
+
 **The ‘Golden Bachelor’ Divorce Everyone Knew Was Coming**\
 `But at least they got a glam (and gross) televised wedding out of it.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/golden-bachelor-divorce
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/12/us/election-trump-biden-news/trump-speaker-m
 **In Barcelona, Her Dream of a Spanish Husband Came True**\
 `Sarah Wood was not interested in a long-distance relationship with Gustavo González. That changed after they met at a cafe in Spain.`\
 https://nytimes.com/2024/04/12/style/sarah-wood-gustavo-gonzalez-wedding.html
-
-**Angelenos Reflect on a ‘Big Moment in American History’**\
-`The murder trial of O.J. Simpson was a defining part of a turbulent era in Los Angeles.`\
-https://nytimes.com/2024/04/12/us/angelenos-reflect-on-a-big-moment-in-american-history.html
 

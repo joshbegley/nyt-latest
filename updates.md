@@ -1,3 +1,7 @@
+**Coaches Have to Be Salesmen, Too**\
+`David Moyes has established West Ham as a fixture in the top half of the Premier League and a regular presence in Europe. So why do so many fans want him out?`\
+https://nytimes.com/2024/04/12/world/europe/west-ham-david-moyes.html
+
 **The ‘Golden Bachelor’ Divorce Everyone Knew Was Coming**\
 `But at least they got a glam (and gross) televised wedding out of it.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/golden-bachelor-divorce
