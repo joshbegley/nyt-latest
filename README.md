@@ -1,3 +1,7 @@
+**Ocasio-Cortez Never Steered Money to a Key Arm of Her Party. Until Now.**\
+`Her contribution to the campaign arm of House Democrats is a symbolic moment in the New York lawmaker’s own evolution inside the Democratic Party.`\
+https://nytimes.com/2024/04/12/us/politics/aoc-campaign-contribution.html
+
 **Bank of England to Overhaul Its Forecasting After Inflation Surprises**\
 `The review, which was led by Ben S. Bernanke, a former Federal Reserve chair, came after the central bank had been criticized for underestimating inflation.`\
 https://nytimes.com/2024/04/12/business/bank-of-england-interest-rates-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/business/trump-biden-stock-market.html
 **Inflation Comes for the Housing Market**\
 `Prices and mortgage rates are climbing as Wall Street bets that interest rates will remain higher for longer.`\
 https://nytimes.com/2024/04/12/business/dealbook/inflation-housing-market-mortgages.html
-
-**Dimon Warns of ‘Unsettling’ Pressures as JPMorgan Reports Earnings**\
-`Warnings from the chief executive of the nation’s largest bank have been consistently at odds with heady financial markets.`\
-https://nytimes.com/2024/04/12/business/jpmorgan-earnings-dimon-warning.html
 
