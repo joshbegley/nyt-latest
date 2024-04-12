@@ -10,7 +10,7 @@ https://nytimes.com/2024/04/12/world/middleeast/argentina-iran-1992-1994-attack.
 `In anticipation of the Iranian strikes, several countries, including the United States, issued new guidelines to their citizens about travel in Israel and the surrounding region.`\
 https://nytimes.com/2024/04/12/world/middleeast/iran-attack-american-targets-israel.html
 
-**Parts of Pennsylvania and West Virginia Brace for More Flooding After Heavy Rains**\
+**Pennsylvania and West Virginia Brace for More Flooding After Heavy Rains**\
 `Up to four inches fell in less than 24 hours across broad sections of both states, and officials were watching rising waterways warily.`\
 https://nytimes.com/2024/04/12/us/flooding-pennsylvania-west-virginia.html
 
