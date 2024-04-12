@@ -1,3 +1,7 @@
+**O.J. Simpson and the Kardashians**\
+`Long before the Kardashians became a star attraction on reality television, the family name first came to prominence when Simpson, the former N.F.L. star, was on trial.`\
+https://nytimes.com/2024/04/11/style/oj-simpson-kardashians.html
+
 **A Poem That’s Like a Perfect First Date**\
 `Frank O’Hara’s “Having a Coke With You” makes a charming first impression, and right away you want to get to know it better.`\
 https://nytimes.com/interactive/2024/04/11/books/frank-ohara-having-a-coke-poem.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/us/news-tips-organ-transplant-system.html
 **How Hertz Turned O.J. Simpson Into the ‘Superstar in Rent‐a‐Car’**\
 `The famous ad campaign paid dividends for both the company and its pitchman, who died on Wednesday.`\
 https://nytimes.com/2024/04/11/arts/television/oj-simpson-hertz-ads-commercials.html
-
-**The Quiet Magic of Middle Managers**\
-`Amid a wider national atmosphere of division, distrust, bitterness and exhaustion, middle managers are the frontline workers trying to resolve tensions and keep communities working.`\
-https://nytimes.com/2024/04/11/opinion/middle-managers-business-society.html
 
