@@ -1,3 +1,7 @@
+**Indigenous Authors and the Challenge of Telling Their Own Story**\
+`A university program seeks to improve cross-cultural understanding in Australia’s publishing industry.`\
+https://nytimes.com/2024/04/12/world/australia/indigenous-publishing-australia-aboriginal.html
+
 **Europe’s A.I. ‘Champion’ Sets Sights on Tech Giants in U.S.**\
 `Mistral, a French start-up considered a promising challenger to OpenAI and Google, is getting support from European leaders who want to protect the region’s culture and politics.`\
 https://nytimes.com/2024/04/12/business/artificial-intelligence-mistral-france-europe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/style/oj-simpson-kardashians.html
 **A Poem That’s Like a Perfect First Date**\
 `Frank O’Hara’s “Having a Coke With You” makes a charming first impression, and right away you want to get to know it better.`\
 https://nytimes.com/interactive/2024/04/11/books/frank-ohara-having-a-coke-poem.html
-
-**Variety: Puns and Anagrams**\
-`Michael Lieberman’s groovy puzzle makes us use our noodles.`\
-https://nytimes.com/2024/04/11/crosswords/variety-puns-and-anagrams.html
 
