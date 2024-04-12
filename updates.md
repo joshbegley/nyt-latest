@@ -1,3 +1,11 @@
+**The ‘Golden Bachelor’ Divorce Everyone Knew Was Coming**\
+`But at least they got a glam (and gross) televised wedding out of it.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/golden-bachelor-divorce
+
+**D.N.C. Helped Pay Biden’s Legal Bills in Special Counsel Investigation**\
+`The money spent paled in comparison to the amount Donald J. Trump has used in supporters’ donations to pay his own legal bills, but it was laid out even as aides for Mr. Biden attacked Mr. Trump for the practice.`\
+https://nytimes.com/2024/04/12/us/politics/biden-legal-bills-dnc.html
+
 **‘Player Kings’ Review: Ian McKellen’s Juicy Assignment as Falstaff**\
 `In Robert Icke’s adaptation of Parts 1 and 2 of “Henry IV,” the veteran stage actor’s performance belies his age.`\
 https://nytimes.com/2024/04/12/theater/ian-mckellen-players-king.html
