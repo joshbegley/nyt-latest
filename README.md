@@ -1,3 +1,11 @@
+**Trump and O.J.: Antiheroes in a Cracked Mirror**\
+`Both are American stories. Are they truly aberrations?`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/simpson-trump-trials
+
+**What the O.J. Trial Taught America About Domestic Violence**\
+`Nicole Brown Simpson’s death shook an entire nation into recognition that domestic abuse crosses all bounds of race and class.`\
+https://nytimes.com/2024/04/12/opinion/oj-simpson-domestic-violence.html
+
 **100 Years of Simon & Schuster**\
 `The publisher has gone through a lot of changes since its founding in 1924. Its current chief executive, Jonathan Karp, talks about the company’s history and its hopes for the future.`\
 https://nytimes.com/2024/04/12/books/review/podcast-simon-schuster-turns-100.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/12/climate/biden-drilling-public-land.html
 **Three Interpretations of ‘The Three-Body Problem’**\
 `A geopolitical allegory whose meaning shifts from version to version.`\
 https://nytimes.com/2024/04/12/opinion/three-body-problem.html
-
-**American intelligence officials predict Iran will strike Israel within the next few days.**\
-`By Eric Schmitt and Farnaz Fassihi`\
-https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/american-intelligence-officials-predict-iran-will-strike-israel-within-the-next-few-days
-
-**The Best of Late Night This Week**\
-`The late-night hosts started the week by talking about the total solar eclipse before moving on to political news — including former President Trump’s failed bids to delay his criminal hush-money trial and Arizona reinstating a 160-year-old abortion ban.`\
-https://nytimes.com/interactive/2024/04/12/arts/television/best-of-late-night-eclipse.html
 
