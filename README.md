@@ -1,9 +1,13 @@
+**Review: In ‘The Outsiders,’ a New Song for the Young Misfits**\
+`The classic coming-of-age novel has become a compelling, if imperfect, musical about have-not teenagers in a have-it-all world.`\
+https://nytimes.com/2024/04/11/theater/review-outsiders-musical.html
+
 **Kari Lake Backs G.O.P. Effort to Drop 1864 Abortion Law in Favor of 15-Week Ban**\
 `The Senate candidate and Donald Trump ally is supporting a handful of state Republicans who have backed away from a near-total ban that was upheld by the State Supreme Court this week.`\
 https://nytimes.com/2024/04/11/us/politics/kari-lake-abortion-arizona.html
 
-**Trump Says He Is ‘Not Running to Terminate’ the Affordable Care Act**\
-`After repeated attacks from Democrats, Donald Trump, who has often vowed to repeal Obamacare, said that if elected he would only improve it, without offering specifics.`\
+**Trump, Who Tried to Repeal Obamacare, Says He Is ‘Not Running to Terminate’ It**\
+`After repeated attacks from Democrats, Donald Trump, who has often vowed to repeal the Affordable Care Act, said that if elected he would only improve it, without offering specifics.`\
 https://nytimes.com/2024/04/11/us/politics/trump-biden-affordable-care-act.html
 
 **Share Your Story About the Organ Transplant System**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/nyregion/nyc-football-club-soccer-stadium.html
 **Arizona May Be Just Purple Enough for Abortion to Matter**\
 `Assuming voters think it’s more important than the border.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/arizona-abortion-voters-republicans
-
-**Before He Was Infamous, O.J. Simpson’s Acting Helped Make Him Famous**\
-`Simpson began acting while still a football star, appearing in titles as varied as “Roots,” “The Towering Inferno” and the “Naked Gun” films.`\
-https://nytimes.com/2024/04/11/arts/television/oj-simpson-acting-roles.html
 
