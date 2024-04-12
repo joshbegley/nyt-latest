@@ -2,13 +2,13 @@
 `A U.S. general goes to Israel.`\
 https://nytimes.com/2024/04/12/briefing/israel-iran-oj-simpson.html
 
-**O.J. and the Monster Jealousy**\
-`I always thought of the Simpson case as a great American tragedy, with its echoes of “Othello.”`\
-https://nytimes.com/2024/04/12/opinion/oj-simpson-death.html
-
 **A Companion on the Road to Recovery**\
 `A simple yet radical approach in Asia is equipping medical patients and their loved ones with the knowledge they need to heal themselves.`\
 https://nytimes.com/2024/04/12/opinion/india-health-care-recovery.html
+
+**O.J. and the Monster Jealousy**\
+`I always thought of the Simpson case as a great American tragedy, with its echoes of “Othello.”`\
+https://nytimes.com/2024/04/12/opinion/oj-simpson-death.html
 
 **Indigenous Authors and the Challenge of Telling Their Own Story**\
 `A university program seeks to improve cross-cultural understanding in Australia’s publishing industry.`\
