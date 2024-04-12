@@ -1,3 +1,11 @@
+**Can Poetry Make a Difference in Our Lives and in the World?**\
+`April is National Poetry Month. What role does poetry play in your life?`\
+https://nytimes.com/2024/04/12/learning/can-poetry-make-a-difference-in-our-lives-and-in-the-world.html
+
+**Tiny House**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/04/12/learning/tiny-house.html
+
 **Sexism, Hate, Mental Illness: Why Are Men Randomly Punching Women?**\
 `Conversation about the attacks on the streets of New York have centered on mental illness, but the offenses seem to have their roots in hatred of women.`\
 https://nytimes.com/2024/04/12/nyregion/new-york-city-random-attacks-women.html
