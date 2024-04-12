@@ -1,3 +1,7 @@
+**Surveillance Bill Clears Key Hurdle in House, Putting It Back on Track**\
+`Speaker Mike Johnson scaled back the measure to two years from five, winning over hard-right Republicans who believe Donald J. Trump will be president by the time it would expire.`\
+https://nytimes.com/2024/04/12/us/politics/surveillance-bill-fisa.html
+
 **Trump and Speaker Johnson to make joint announcement on ‘election integrity.’**\
 `Neither man has elaborated publicly on the subject of Friday’s announcement, but the former president has made false claims of a stolen 2020 election central to his current campaign.`\
 https://nytimes.com/live/2024/04/12/us/election-trump-biden-news/trump-speaker-mike-johnson-announcement-election-integrity
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/business/jpmorgan-earnings-dimon-warning.html
 **Watch a Sniper Scene From ‘Civil War’**\
 `Alex Garland, the film’s writer and director, narrates a sequence from his movie.`\
 https://nytimes.com/2024/04/12/movies/civil-war-scene.html
-
-**‘Civil War’ | Anatomy of a Scene**\
-`The writer and director Alex Garland narrates a sequence from his film.`\
-https://nytimes.com/video/movies/100000009409492/civil-war-scene.html
 
