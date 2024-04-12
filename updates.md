@@ -1,3 +1,7 @@
+**A Look at Iran’s Military Capabilities as It Threatens Israel**\
+`The possibility of a direct military confrontation between Iran and Israel has brought renewed attention to Iran’s armed forces. What are they capable of?`\
+https://nytimes.com/2024/04/12/world/middleeast/iran-israel-military-weapons.html
+
 **Gen Z Wanted a Scrabble More Conducive to Hanging Out. Mattel Was Happy to Oblige.**\
 `Will Classic Scrabble devotees object? You bet.`\
 https://nytimes.com/2024/04/12/crosswords/scrabble-new-version.html
