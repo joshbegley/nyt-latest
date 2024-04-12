@@ -2,7 +2,7 @@
 `Prices and mortgage rates are climbing as Wall Street bets that interest rates will remain higher for longer.`\
 https://nytimes.com/2024/04/12/business/dealbook/inflation-housing-market-mortgages.html
 
-**JPMorgan’s Dimon Warns of ‘Unsettling’ Pressures as Bank Reports Earnings**\
+**Dimon Warns of ‘Unsettling’ Pressures as JPMorgan Reports Earnings**\
 `Warnings from the chief executive of the nation’s largest bank have been consistently at odds with heady financial markets.`\
 https://nytimes.com/2024/04/12/business/jpmorgan-earnings-dimon-warning.html
 
