@@ -1,3 +1,7 @@
+**Piercing Site**\
+`Evan Kalish opens our solving weekend.`\
+https://nytimes.com/2024/04/11/crosswords/daily-puzzle-2024-04-12.html
+
 **In Los Angeles, the O.J. Simpson Case Defined a Turbulent Era**\
 `From the car chase to the verdict, the murder case became an inextricable part of Los Angeles history in the 1990s, and Angelenos to this day still ponder what happened.`\
 https://nytimes.com/2024/04/11/us/oj-simpson-los-angeles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/11/us/politics/rfk-jr-rita-palma-trump.html
 **Texas Surgeon Is Accused of Secretly Denying Liver Transplants**\
 `A Houston hospital is investigating whether a doctor altered a transplant list to make his patients ineligible for care. A disproportionate number of them have died while waiting for new organs.`\
 https://nytimes.com/2024/04/11/us/organ-transplants-houston.html
-
-**New York City Is Closer to Getting Its First Soccer Stadium**\
-`The City Council voted to allow the New York City Football Club to build a facility for its team in Willets Point, Queens, across the street from Citi Field.`\
-https://nytimes.com/2024/04/11/nyregion/nyc-football-club-soccer-stadium.html
 
