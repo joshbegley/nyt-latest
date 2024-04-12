@@ -1,3 +1,11 @@
+**Driver Crashes Truck Into Texas Government Office, Causing Injuries, Officials Say**\
+`The authorities said that a person driving a semi truck crashed into a Department of Public Safety office in Brenham, Texas, in what may have been an intentional act.`\
+https://nytimes.com/2024/04/12/us/texas-truck-crash.html
+
+**At Berkeley, a Protest at a Dean’s Home Tests the Limits of Free Speech**\
+`Pro-Palestinian supporters disrupted a dinner for law students. There was a tussle over the microphone and conflicting claims of harm.`\
+https://nytimes.com/2024/04/12/us/uc-berkeley-palestinian-protest-free-speech.html
+
 **The Ultimate Judee Sill Primer**\
 `A new documentary puts a spotlight on the ’70s musician. Listen to 10 of her essential songs.`\
 https://nytimes.com/2024/04/12/arts/music/amplifier-newsletter-judee-sill.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/12/arts/television/comedy-oj-simpson-jay-leno-chris-
 **The Big Number: 5.3%**\
 `Economists had been expecting the Federal Reserve to cut rates sharply this year. But stubborn inflation and strong growth may change the narrative.`\
 https://nytimes.com/interactive/2024/04/12/business/economy/interest-rates-inflation-federal-reserve.html
-
-**N.Y.C. Schools Chief to Testify as Congress Expands Antisemitism Inquiry**\
-`A congressional committee that questioned college presidents about how they have handled protests over the Israel-Hamas war is now focusing on K-12 school districts.`\
-https://nytimes.com/2024/04/12/nyregion/nyc-schools-chancellor-antisemitism-congress-hearing.html
-
-**Robert MacNeil, Earnest News Anchor for PBS, Dies at 93**\
-`With his longtime co-host Jim Lehrer, he delivered thoughtful reports that stood in stark contrast to the commercial networks’ ever more sensational newscasts.`\
-https://nytimes.com/2024/04/12/business/media/robert-macneil-dead.html
 
