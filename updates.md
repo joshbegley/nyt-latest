@@ -1,3 +1,7 @@
+**American intelligence officials predict Iran will strike Israel within the next few days.**\
+`By Eric Schmitt and Farnaz Fassihi`\
+https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/american-intelligence-officials-predict-iran-will-strike-israel-within-the-next-few-days
+
 **The Best of Late Night This Week**\
 `The late-night hosts started the week by talking about the total solar eclipse before moving on to political news — including former President Trump’s failed bids to delay his criminal hush-money trial and Arizona reinstating a 160-year-old abortion ban.`\
 https://nytimes.com/interactive/2024/04/12/arts/television/best-of-late-night-eclipse.html

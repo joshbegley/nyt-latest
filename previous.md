@@ -1,3 +1,7 @@
+**American intelligence officials predict Iran will strike Israel within the next few days.**\
+`By Eric Schmitt and Farnaz Fassihi`\
+https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/american-intelligence-officials-predict-iran-will-strike-israel-within-the-next-few-days
+
 **The Best of Late Night This Week**\
 `The late-night hosts started the week by talking about the total solar eclipse before moving on to political news — including former President Trump’s failed bids to delay his criminal hush-money trial and Arizona reinstating a 160-year-old abortion ban.`\
 https://nytimes.com/interactive/2024/04/12/arts/television/best-of-late-night-eclipse.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/us/politics/trump-intelligence-agencies.html
 **Biden Administration Raises Costs to Drill and Mine on Public Lands**\
 `For the first time since 1920, the government has raised the rates that companies pay. The fossil fuel industry says it will hurt the economy.`\
 https://nytimes.com/2024/04/12/climate/biden-administration-raises-costs-to-drill-and-mine-on-public-lands.html
-
-**Review: Dance Theater of Harlem Is in New (and Capable) Hands**\
-`The company performed its first New York City Center season under the direction of Robert Garland in a program including George Balanchine’s “Pas de Dix.”`\
-https://nytimes.com/2024/04/12/arts/dance/review-dance-theater-of-harlem-robert-garland-pas-de-dix.html
 
