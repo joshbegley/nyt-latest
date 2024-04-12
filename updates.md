@@ -1,3 +1,7 @@
+**China Feels Boxed In by the U.S. but Has Few Ways to Push Back**\
+`China seeks to project military power in the seas around its coastline, yet also faces pressure to mend relations with neighbors for the good of its economy.`\
+https://nytimes.com/2024/04/12/world/asia/china-us-biden-japan.html
+
 **The Founding Fathers Don’t Have the Answer to Every Question**\
 `The Electoral College as we know it is less a product of the insight or design of the framers and more a contingent adaptation to the political world.`\
 https://nytimes.com/2024/04/12/opinion/nebraska-electoral-college-myths.html
