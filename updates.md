@@ -1,3 +1,15 @@
+**Cries of Sexism Greet a Nike Olympic Reveal**\
+`The sporting giant offered a sneak peek at its track and field outfits for Team U.S.A., and an unexpected backlash ensued.`\
+https://nytimes.com/2024/04/12/style/sexism-nike-olympic-track-and-field-uniforms.html
+
+**The ‘Golden Bachelor’ Is Getting a Divorce**\
+`Gerry Turner and Theresa Nist, the “Golden Bachelor” couple who married in January, announced they will be divorcing three months after their wedding.`\
+https://nytimes.com/2024/04/12/style/golden-bachelor-divorce-gerry-turner-theresa-nist.html
+
+**National Sciences Academy Asks Court to Strip Sackler Name From Endowment**\
+`Millions in Sackler donations sat dormant, rising in value as the opioid epidemic raged and as other institutions distanced themselves from the makers of a notorious painkiller.`\
+https://nytimes.com/2024/04/12/health/sacklers-opioids-national-academies.html
+
 **What Makes Tiny ‘Water Bears’ So Tough? They Quickly Fix Broken DNA.**\
 `New research finds that microscopic tardigrades are remarkably good at repairing their DNA after a huge blast of radiation.`\
 https://nytimes.com/2024/04/12/science/tardigrades-moss-piglets.html
