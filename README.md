@@ -1,3 +1,11 @@
+**War or No War, Ukrainians Aren’t Giving Up Their Coffee**\
+`Coffee shops and kiosks are everywhere in Ukraine’s capital, their popularity both an act of wartime defiance and a symbol of closer ties to the rest of Europe.`\
+https://nytimes.com/2024/04/12/world/europe/kyiv-ukraine-coffee-culture.html
+
+**A.I.’s Data Wall, a Surprise Privacy Bill, and What Happened to the TikTok Ban?**\
+`I’d rather not tell you what’s in this episode. It’s private.`\
+https://nytimes.com/2024/04/12/podcasts/ai-training-data-privacy-tiktok.html
+
 **China Feels Boxed In by the U.S. but Has Few Ways to Push Back**\
 `China seeks to project military power in the seas around its coastline, yet also faces pressure to mend relations with neighbors for the good of its economy.`\
 https://nytimes.com/2024/04/12/world/asia/china-us-biden-japan.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/12/us/oj-simpson-trial-where-are-they-now.html
 **J.D. Vance: The Math on Ukraine Doesn’t Add Up**\
 `Ukraine needs more men than it can field, even with draconian conscription policies. And it needs more material than the United States can provide.`\
 https://nytimes.com/2024/04/12/opinion/jd-vance-ukraine.html
-
-**Democratic Coalition Sends Biden a Demand on Military Aid to Israel**\
-`In a letter, a dozen groups and labor unions called on the president to enforce a law that bars military support from going to any nation that restricts the delivery of humanitarian aid.`\
-https://nytimes.com/2024/04/12/us/politics/letter-biden-israel-gaza.html
-
-**There’s More to a Home Bar Than Liquor. Here’s What Else You Need.**\
-`An artful display tells your guests you care about them — and it’s easier to create than you may think.`\
-https://nytimes.com/2024/04/12/realestate/bar-cart-home.html
 
