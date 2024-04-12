@@ -1,3 +1,7 @@
+**Israel says it opened a new aid corridor to northern Gaza.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/israel-says-it-opened-a-new-aid-corridor-to-northern-gaza
+
 **Ocasio-Cortez Never Steered Money to a Key Arm of Her Party. Until Now.**\
 `Her contribution to the campaign arm of House Democrats is a symbolic moment in the New York lawmaker’s own evolution inside the Democratic Party.`\
 https://nytimes.com/2024/04/12/us/politics/aoc-campaign-contribution.html

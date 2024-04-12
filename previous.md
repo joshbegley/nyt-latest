@@ -1,3 +1,7 @@
+**Israel says it opened a new aid corridor to northern Gaza.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/04/12/world/israel-gaza-war-news-hamas/israel-says-it-opened-a-new-aid-corridor-to-northern-gaza
+
 **Ocasio-Cortez Never Steered Money to a Key Arm of Her Party. Until Now.**\
 `Her contribution to the campaign arm of House Democrats is a symbolic moment in the New York lawmaker’s own evolution inside the Democratic Party.`\
 https://nytimes.com/2024/04/12/us/politics/aoc-campaign-contribution.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/your-money/college-tuition-cost-.html
 **Trump or Biden? The Stock Market Doesn’t Care.**\
 `Prediction markets say former President Donald J. Trump has a good chance of winning. So far, the stock market is fine with that.`\
 https://nytimes.com/2024/04/12/business/trump-biden-stock-market.html
-
-**Inflation Comes for the Housing Market**\
-`Prices and mortgage rates are climbing as Wall Street bets that interest rates will remain higher for longer.`\
-https://nytimes.com/2024/04/12/business/dealbook/inflation-housing-market-mortgages.html
 
