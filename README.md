@@ -1,3 +1,7 @@
+**New Zealanders Are Crazy for This Fruit. It’s Not the Kiwi.**\
+`Like the kiwi fruit, the feijoa, or pineapple guava, is not native to the island nation, but it has become something of a national obsession.`\
+https://nytimes.com/2024/04/12/world/australia/new-zealand-feioja-kiwis.html
+
 **Like Some Smiles and Winks**\
 `Even in her first Times puzzle, Jess Rucks knows what everyone needs on a Saturday: a ray of sunshine.`\
 https://nytimes.com/2024/04/12/crosswords/daily-puzzle-2024-04-13.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/business/frank-olson-dead.html
 **What Is the Powerful Surveillance Law That Divided Lawmakers?**\
 `Under Section 702, the government is empowered to collect, without a warrant, the messages of Americans communicating with targeted foreigners abroad.`\
 https://nytimes.com/2024/04/12/us/politics/surveillance-law-section-702-fisa.html
-
-**Eleanor Coppola, Who Chronicled Her Family’s Filmmaking, Dies at 87**\
-`She made documentaries of her husband Francis Ford Coppola’s “Apocalypse Now” and her daughter Sofia Coppola’s “The Virgin Suicides” and recalled their lives in books.`\
-https://nytimes.com/2024/04/12/movies/eleanor-coppola-dead.html
 
