@@ -1,3 +1,7 @@
+**Johnson Floats Voting on Senate Ukraine Bill, With Conservative Policies as Sweeteners**\
+`The Republican speaker has weighed bringing up a $95 billion Senate-passed bill to aid Ukraine and Israel in tandem with a separate package geared toward mollifying G.O.P. critics.`\
+https://nytimes.com/2024/04/12/us/politics/johnson-senate-ukraine-aid.html
+
 **N.Y.P.D. Defends Contentious Arrests of ‘Violence Interrupters’**\
 `The arrests, which led one of the men to be hospitalized, heightened tensions between officers and outreach workers trained to intervene in street conflicts.`\
 https://nytimes.com/2024/04/12/nyregion/nypd-violence-interrupters-sos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/us/politics/governing-the-ungovernable.html
 **‘Climate-Controlled’ Sausage? Courts Crack Down on ‘Greenwashing’**\
 `From airlines to pork sellers, corporate brands face legal and regulatory challenges for misleading the public with lofty climate claims.`\
 https://nytimes.com/2024/04/12/climate/climate-greenwashing-denmark-pork.html
-
-**Trump Says He Intends to Testify in His Manhattan Criminal Case**\
-`Jury selection begins Monday in the prosecution of Donald J. Trump on charges of covering up a sex scandal. He said he would try to sway jurors personally, though he has backed away in the past.`\
-https://nytimes.com/2024/04/12/nyregion/trump-trial-testify-hush-money-case.html
 
