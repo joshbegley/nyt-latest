@@ -1,3 +1,19 @@
+**Finding Comfort in a Haircut**\
+`A good cut is hard to find no matter where you live. But some hairstylists know it holds more weight for their transgender clients.`\
+https://nytimes.com/2024/04/13/style/transgender-hair-care.html
+
+**A Modern California Dream, Still Haunted by Hippie Darkness**\
+`Cult leaders, curdled 1960s idealism and outsider art collide in Max Ludington’s prismatic novel, “Thorn Tree.”`\
+https://nytimes.com/2024/04/13/books/review/thorn-tree-max-ludington.html
+
+**You Ask, We Answer: How The Times/Siena Poll Is Conducted**\
+`The New York Times/Siena College Poll has earned a reputation for accuracy and transparency. But as with any poll, there are limits to just how much you can derive.`\
+https://nytimes.com/article/times-siena-poll-methodology.html
+
+**Here’s what you need to know.**\
+`The attacker was shot and killed by a lone police officer who was directed into the mall by people fleeing the scene at Bondi Junction, a major commercial area in eastern Sydney.`\
+https://nytimes.com/live/2024/04/13/world/sydney-attack-mall-westfield/sydney-shooting-stabbing-westfield-mall
+
 **13sydney-shooting**\
 `At Least 5 Killed in Stabbing at Mall in Australia`\
 https://nytimes.com/live/2024/04/13/world/sydney-attack-mall-westfield
