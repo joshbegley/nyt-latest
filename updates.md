@@ -1,3 +1,7 @@
+**Bondi Junction, Site of Stabbing Attack, Is a Popular and Busy Hub**\
+`As well as a major mall, the area contains cafes and yoga studios. It’s a gateway from central Sydney, Australia, to eastern suburbs and several popular beaches.`\
+https://nytimes.com/2024/04/13/world/australia/bondi-junction-stabbing-sydney.html
+
 **Why a Liberal Premier Wants to Pause a Carbon Tax Increase**\
 `Andrew Furey, Canada’s only Liberal premier, recently asked the Liberal federal government to suspend the scheduled increases.`\
 https://nytimes.com/2024/04/13/world/canada/newfoundland-premier-andrew-furey.html

@@ -1,3 +1,7 @@
+**Bondi Junction, Site of Stabbing Attack, Is a Popular and Busy Hub**\
+`As well as a major mall, the area contains cafes and yoga studios. It’s a gateway from central Sydney, Australia, to eastern suburbs and several popular beaches.`\
+https://nytimes.com/2024/04/13/world/australia/bondi-junction-stabbing-sydney.html
+
 **Why a Liberal Premier Wants to Pause a Carbon Tax Increase**\
 `Andrew Furey, Canada’s only Liberal premier, recently asked the Liberal federal government to suspend the scheduled increases.`\
 https://nytimes.com/2024/04/13/world/canada/newfoundland-premier-andrew-furey.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/13/us/politics/trump-biden-times-siena-poll.html
 **In Ukraine’s West, Draft Dodgers Run, and Swim, to Avoid the War**\
 `With Russia seizing the initiative on the battlefield in recent months, Ukraine’s ability to defend itself hinges on replenishing its arsenal of weaponry and mobilizing troops.`\
 https://nytimes.com/2024/04/13/world/europe/ukraine-draft-dodgers.html
-
-**O.J. Simpson Trial Served as a Landmark Moment for Domestic Violence Awareness**\
-`His acquittal in the infamous trial involving Nicole Brown Simpson’s death prompted powerful backlash that helped change the perception around domestic violence.`\
-https://nytimes.com/2024/04/13/us/oj-simpson-domestic-violence.html
 
