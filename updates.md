@@ -1,3 +1,7 @@
+**Biden returns to White House as Israel braces for Iranian retaliation.**\
+`By Michael D. Shear, Aaron Boxerman and Eric Schmitt`\
+https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/biden-returns-to-white-house-as-israel-braces-for-iranian-retaliation
+
 **Towering ‘Vessel’ Sculpture at Hudson Yards Will Reopen After Suicides**\
 `The 150-foot-high tourist attraction, which closed in 2021, will be fitted with mesh to reduce the risk of suicides.`\
 https://nytimes.com/2024/04/13/nyregion/towering-vessel-sculpture-at-hudson-yards-will-reopen-after-suicides.html
