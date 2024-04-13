@@ -1,3 +1,7 @@
+**Mall Attack Was Australia’s Worst Mass Violence in Years**\
+`Saturday’s stabbing attack in Sydney horrified a country not used to such acts.`\
+https://nytimes.com/2024/04/13/world/australia/mall-stabbings-mass-violence.html
+
 **As ‘Sex and the City’ Ages, Some Find the Cosmo Glass Half-Empty**\
 `As the show became more widely available on Netflix, younger viewers have watched it with a critical eye. But its longtime millennial and Gen X fans can’t quit.`\
 https://nytimes.com/2024/04/13/arts/television/sex-and-the-city-netflix.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/13/podcasts/this-american-life-too-soon.html
 **Why Can’t Biden Triangulate Like Trump?**\
 `There’s a difference between being aware of your base and being its prisoner.`\
 https://nytimes.com/2024/04/13/opinion/biden-trump-voter-base.html
-
-**Military Aid to Israel Cannot Be Unconditional**\
-`Israel’s leader has turned his back on America’s entreaties.`\
-https://nytimes.com/2024/04/13/opinion/israel-military-aid.html
 
