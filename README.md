@@ -1,3 +1,11 @@
+**When O.J. Simpson ‘Confessed’ to Murder**\
+`Years after Mr. Simpson was acquitted, he wrote a book and gave a shocking interview. The whole endeavor cost the publisher, Judith Regan, her job.`\
+https://nytimes.com/2024/04/13/style/oj-simpson-murder-book-interview-if-i-did-it.html
+
+**Fritz Peterson, Yankee Pitcher in an Unusual ‘Trade,’ Dies at 82**\
+`He was a leading light on an undistinguished team. But he became known less for his achievement on the field than for exchanging wives with a teammate.`\
+https://nytimes.com/2024/04/13/sports/baseball/fritz-peterson-dead.html
+
 **The Israeli military shifts its focus to the central Gaza Strip.**\
 `By Hiba Yazbek and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/04/13/world/israel-gaza-war-news-hamas/the-israeli-military-shifts-its-focus-to-the-central-gaza-strip
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/13/world/europe/israel-weapons-sales-genocide.html
 **Trump will hold a rally in Pennsylvania, his last before his New York criminal trial begins.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/13/us/biden-trump-election/trump-will-hold-a-rally-in-pennsylvania-his-last-before-his-new-york-criminal-trial-begins
-
-**Mall Attack Was Australia’s Worst Mass Violence in Years**\
-`Saturday’s stabbing attack in Sydney horrified a country not used to such acts.`\
-https://nytimes.com/2024/04/13/world/australia/mall-stabbings-mass-violence.html
-
-**As ‘Sex and the City’ Ages, Some Find the Cosmo Glass Half-Empty**\
-`As the show became more widely available on Netflix, younger viewers have watched it with a critical eye. But its longtime millennial and Gen X fans can’t quit.`\
-https://nytimes.com/2024/04/13/arts/television/sex-and-the-city-netflix.html
 
