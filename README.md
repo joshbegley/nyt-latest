@@ -1,3 +1,15 @@
+**What Are the Stakes of ‘Civil War,’ Really?**\
+`Alex Garland’s new film is most interested in the experience of living through an armed conflict.`\
+https://nytimes.com/2024/04/13/opinion/civil-war-alex-garland.html
+
+**Banana Bread, Always and Forever**\
+`As long as we have bananas that go brown, we will have Julia Moskin’s perfect banana bread.`\
+https://nytimes.com/2024/04/13/dining/banana-bread-always-and-forever.html
+
+**Lawmaker Presses Luxury Designer After Reports of Exploiting Indigenous Workers**\
+`A freshman congressman is demanding answers from the fashion house Loro Piana, which sources wool from his native Peru and faces accusations of exploiting workers there.`\
+https://nytimes.com/2024/04/13/us/politics/garcia-loro-piana-vuitton-indigenous-peru.html
+
 **Iran Seizes Commercial Ship Linked to Israel**\
 `Directly and through proxy groups like the Houthis in Yemen, Iran has been disrupting commercial shipping in the Persian Gulf for years.`\
 https://nytimes.com/2024/04/13/world/middleeast/iran-seizes-ship-israel-hormuz.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/04/13/world/israel-gaza-war-news-hamas/there-have-
 **13mideast-crisis**\
 `Israeli Teen Whose Disappearance Led to Riot Is Found Dead in West Bank`\
 https://nytimes.com/live/2024/04/13/world/israel-gaza-war-news-hamas
-
-**Golf’s Big Deal Veers Off Course**\
-`The Masters tournament should be all about sport, but the unresolved fight between the PGA Tour and LIV Golf looms over the competition.`\
-https://nytimes.com/2024/04/13/business/dealbook/pga-liv-golf-masters.html
-
-**2 Books About Other People’s Money**\
-`A tax manifesto by Edmund Wilson and a money-themed story collection.`\
-https://nytimes.com/2024/04/13/books/read-like-wind-recommendations.html
-
-**Witnesses to Sydney Mall Stabbing Describe Harrowing Scenes**\
-`People who were at the scene told of chaos, screaming, wounded victims and a resolute attacker. Many struggled to process the shock hours afterward.`\
-https://nytimes.com/2024/04/13/world/australia/witness-sydney-mall-attack.html
 
