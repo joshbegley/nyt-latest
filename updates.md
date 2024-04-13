@@ -1,3 +1,7 @@
+**Why a Liberal Premier Wants to Pause a Carbon Tax Increase**\
+`Andrew Furey, Canada’s only Liberal premier, recently asked the Liberal federal government to suspend the scheduled increases.`\
+https://nytimes.com/2024/04/13/world/canada/newfoundland-premier-andrew-furey.html
+
 **3 Facts That Help Explain a Confusing Economic Moment**\
 `The path to a “soft landing” doesn’t seem as smooth as it did four months ago. But the expectations of a year ago have been surpassed.`\
 https://nytimes.com/2024/04/13/business/economy/economy-inflation-interest-rates.html
