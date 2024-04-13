@@ -1,4 +1,8 @@
 **Stacks of Cash at Menendez Home Were Not From His Bank, Prosecutors Say**\
+`The senator has said that money found in his house was from his own savings account. But prosecutors said that at least some of it came from “another person.”`\
+https://nytimes.com/2024/04/13/nyregion/menendez-cash-bank.html
+
+**Stacks of Cash at Menendez Home Were Not From His Bank, Prosecutors Say**\
 `The senator has said that money found in his house was from his own savings account. But prosecutors said that at least $80,000 came from “another person.”`\
 https://nytimes.com/2024/04/13/nyregion/menendez-cash-bank.html
 
