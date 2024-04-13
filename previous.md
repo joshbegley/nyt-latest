@@ -1,40 +1,40 @@
+**Why Can’t Biden Triangulate Like Trump?**\
+`There’s a difference between being aware of your base and being its prisoner.`\
+https://nytimes.com/2024/04/13/opinion/biden-trump-voter-base.html
+
+**Military Aid Cannot Be Unconditional**\
+`Israel’s leader has turned his back on America’s entreaties.`\
+https://nytimes.com/2024/04/13/opinion/israel-military-aid.html
+
+**We Must Address New York City’s Mental Health Crisis**\
+`Mental illness isn’t a crime, and jail isn’t the answer for those experiencing it.`\
+https://nytimes.com/2024/04/13/opinion/bragg-mental-health-new-york.html
+
+**You Don’t Have to Take Every Tax Deduction, and You Shouldn’t**\
+`Many exemptions are very hard, perhaps impossibly hard, to defend on either practical or moral grounds.`\
+https://nytimes.com/2024/04/13/opinion/taxes-deductions-rich-inequality.html
+
+**Who Cares if Supreme Court Justices Get Along?**\
+`What really matters is what the court does or doesn’t do.`\
+https://nytimes.com/2024/04/13/opinion/supreme-court-friends.html
+
+**Harvard Is Bringing Back Standardized Tests. Other Schools Should, Too.**\
+`Emi Nietfeld didn’t have access to lacrosse or advanced placement classes, but she did have standardized tests.`\
+https://nytimes.com/2024/04/13/opinion/harvard-sat-college-admissions.html
+
+**How to Reduce Student Absenteeism**\
+`Readers discuss the reasons for the spike since the pandemic and how to lure students back.`\
+https://nytimes.com/2024/04/13/opinion/student-absenteeism.html
+
+**Some Words Feel Truer in Spanish**\
+`To me, a maleta meant family had arrived from Peru, carrying flavors, textures and memories of my birthplace.`\
+https://nytimes.com/2024/04/13/opinion/first-generation-bilingual-language.html
+
+**Open Letters Are Cries in the Dark**\
+`The open letter, as a genre, is far too limited. We speak with conviction, and then what?`\
+https://nytimes.com/2024/04/13/opinion/open-letters.html
+
 **The Gen Z Crossword Era**\
 `Solving a crossword puzzle today feels more like a spirited conversation with modern culture.`\
 https://nytimes.com/2024/04/13/briefing/the-gen-z-crossword-era.html
-
-**Bondi Junction, Site of Stabbing Attack, Is a Popular and Busy Hub**\
-`As well as a major mall, the area contains cafes and yoga studios. It’s a gateway from central Sydney, Australia, to eastern suburbs and several popular beaches.`\
-https://nytimes.com/2024/04/13/world/australia/bondi-junction-stabbing-sydney.html
-
-**Why a Liberal Premier Wants to Pause a Carbon Tax Increase**\
-`Andrew Furey, Canada’s only Liberal premier, recently asked the Liberal federal government to suspend the scheduled increases.`\
-https://nytimes.com/2024/04/13/world/canada/newfoundland-premier-andrew-furey.html
-
-**3 Facts That Help Explain a Confusing Economic Moment**\
-`The path to a “soft landing” doesn’t seem as smooth as it did four months ago. But the expectations of a year ago have been surpassed.`\
-https://nytimes.com/2024/04/13/business/economy/economy-inflation-interest-rates.html
-
-**Cross-Tabs: April 2024 Times/Siena Poll of Registered Voters Nationwide**\
-`Donald Trump leads Joe Biden, 46 percent to 45 percent, among registered voters.`\
-https://nytimes.com/interactive/2024/04/13/us/elections/times-siena-poll-registered-voter-crosstabs.html
-
-**Toplines: April 2024 Times/Siena Poll of Registered Voters Nationwide**\
-`Results of a nationwide New York Times/Siena College poll conducted among 1,059 registered voters from April 7 to 11, 2024.`\
-https://nytimes.com/interactive/2024/04/13/us/elections/times-siena-national-poll-toplines.html
-
-**A Closer Look at a Slight Shift in the Polls**\
-`An average of recent surveys, including the Times/Siena poll, finds President Biden inching closer to Donald Trump.`\
-https://nytimes.com/2024/04/13/upshot/biden-trump-polls.html
-
-**Cross-Tabs: April 2024 Times/Siena Poll of the Likely Electorate**\
-`Donald Trump leads Joe Biden, 47 percent to 46 percent, among the likely electorate.`\
-https://nytimes.com/interactive/2024/04/13/us/elections/times-siena-poll-likely-electorate-crosstabs.html
-
-**Ohtani’s Dizzying 3 Weeks End in Exoneration by Authorities**\
-`At times, baseball’s biggest star seemed in danger of being tainted by a gambling scandal, before his longtime interpreter was charged with fraud.`\
-https://nytimes.com/2024/04/13/business/shohei-ohtani-interpreter-details.html
-
-**Biden Shrinks Trump’s Edge in Latest Times/Siena Poll**\
-`The president’s popularity has ticked up slightly, though voters still view Donald J. Trump more favorably and have dour views of the economy.`\
-https://nytimes.com/2024/04/13/us/politics/trump-biden-times-siena-poll.html
 
