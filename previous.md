@@ -10,7 +10,7 @@ https://nytimes.com/2024/04/13/arts/design/jeffrey-gibson-venice-biennale.html
 `Here are highlights of the range of work produced by Native artists in the pavilions and a central exhibition that proudly calls itself “Foreigners Everywhere.”`\
 https://nytimes.com/2024/04/13/arts/design/indigenous-venice-biennale.html
 
-**Faith Ringgold, Who Wove Black Life Into Quilts and Children’s Books, Dies at 93**\
+**Faith Ringgold Dies at 93; Wove Black Life Into Quilts and Children’s Books**\
 `A champion of Black artists, she explored themes of race, gender, class, family and community through a vast array of media and later the written word.`\
 https://nytimes.com/2024/04/13/arts/faith-ringgold-dead.html
 
