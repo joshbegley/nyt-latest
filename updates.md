@@ -1,3 +1,7 @@
+**Tensions Flare in West Bank After Israeli Teenager Is Found Dead**\
+`The killing, which Israel called a “terrorist attack,” prompted rioting by Israeli settlers that killed one Palestinian and raised fears of a broader escalation.`\
+https://nytimes.com/2024/04/13/world/middleeast/israel-palestine-teenager-west-bank.html
+
 **Hudson Yards ‘Vessel’ Sculpture Will Reopen With Netting After Suicides**\
 `The 150-foot-high tourist attraction, which closed in 2021, will be fitted with stop people from jumping.`\
 https://nytimes.com/2024/04/13/nyregion/towering-vessel-sculpture-at-hudson-yards-will-reopen-after-suicides.html

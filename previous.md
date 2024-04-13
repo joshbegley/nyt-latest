@@ -1,3 +1,7 @@
+**Tensions Flare in West Bank After Israeli Teenager Is Found Dead**\
+`The killing, which Israel called a “terrorist attack,” prompted rioting by Israeli settlers that killed one Palestinian and raised fears of a broader escalation.`\
+https://nytimes.com/2024/04/13/world/middleeast/israel-palestine-teenager-west-bank.html
+
 **Savings Plan**\
 `John Rippe and Jeff Chen collaborate on a puzzle with a big heart.`\
 https://nytimes.com/2024/04/13/crosswords/daily-puzzle-2024-04-14.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/13/us/politics/trump-jan-6.html
 **Four South Dakota Tribes Bar Gov. Kristi Noem, Trump V.P. Contender, From Lands**\
 `The tribes barred the Republican governor from their reservations after she told lawmakers that Mexican drug cartels had a foothold there and were committing murders.`\
 https://nytimes.com/2024/04/13/us/politics/kristi-noem-south-dakota-tribes.html
-
-**State Dept. Is Sending Its Top Diplomat for East Asia to China**\
-`The announcement comes days after President Biden met jointly with the leaders of Japan and the Philippines to discuss Chinese aggression in the Indo-Pacific region.`\
-https://nytimes.com/2024/04/13/us/politics/kritenbrink-china.html
 
