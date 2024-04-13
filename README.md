@@ -1,9 +1,9 @@
-**There have been several ‘violent riots’ in the area, the Israeli military said.**\
+**The death of a 14-year-old could further inflame tensions in the West Bank.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/04/13/world/israel-gaza-war-news-hamas/there-have-been-several-violent-riots-in-the-area-the-israeli-military-said
 
 **13mideast-crisis**\
-`Israeli Settlers Riot in West Bank, and a Palestinian Man Is Killed`\
+`Israeli Teen Whose Disappearance Led to Riot Is Found Dead in West Bank`\
 https://nytimes.com/live/2024/04/13/world/israel-gaza-war-news-hamas
 
 **Golf’s Big Deal Veers Off Course**\
