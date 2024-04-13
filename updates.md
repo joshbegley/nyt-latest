@@ -1,3 +1,7 @@
+**New Zealanders Are Crazy for This Fruit. It’s Not the Kiwi.**\
+`Like the kiwi fruit, the feijoa, or pineapple guava, is not native to the island nation, but it has become something of a national obsession.`\
+https://nytimes.com/2024/04/12/world/australia/new-zealand-feioja-kiwis.html
+
 **Like Some Smiles and Winks**\
 `Even in her first Times puzzle, Jess Rucks knows what everyone needs on a Saturday: a ray of sunshine.`\
 https://nytimes.com/2024/04/12/crosswords/daily-puzzle-2024-04-13.html
