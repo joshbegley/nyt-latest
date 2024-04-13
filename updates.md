@@ -1,3 +1,11 @@
+**When O.J. Simpson ‘Confessed’ to Murder**\
+`Years after Mr. Simpson was acquitted, he wrote a book and gave a shocking interview. The whole endeavor cost the publisher, Judith Regan, her job.`\
+https://nytimes.com/2024/04/13/style/oj-simpson-murder-book-interview-if-i-did-it.html
+
+**Fritz Peterson, Yankee Pitcher in an Unusual ‘Trade,’ Dies at 82**\
+`He was a leading light on an undistinguished team. But he became known less for his achievement on the field than for exchanging wives with a teammate.`\
+https://nytimes.com/2024/04/13/sports/baseball/fritz-peterson-dead.html
+
 **The Israeli military shifts its focus to the central Gaza Strip.**\
 `By Hiba Yazbek and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/04/13/world/israel-gaza-war-news-hamas/the-israeli-military-shifts-its-focus-to-the-central-gaza-strip
