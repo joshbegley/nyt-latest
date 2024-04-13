@@ -1,3 +1,15 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/13/crosswords/spelling-bee-forum.html
+
+**How a Raunchy Lounge Singer Spends His Sundays**\
+`Dani Lubnitzki, who is better known as Dani Luv, puts his own spin on Sinatra during the week, but on Sundays he shops for his grandchildren and has a jam session with friends.`\
+https://nytimes.com/2024/04/13/nyregion/how-a-raunchy-lounge-singer-spends-his-sundays.html
+
+**Most N.Y.C. Drivers Who Honk Are Breaking the Law. Can They Be Stopped?**\
+`The city’s noise code has limited the use of vehicle horns for almost a century. Enforcing the law is another matter.`\
+https://nytimes.com/2024/04/13/nyregion/honking-horn-illegal-nyc.html
+
 **Pittsburgh Bridge Shut as Barges Break Loose on Ohio River**\
 `The authorities were searching for the barges near the McKees Rocks Bridge as a flood warning was active in Allegheny County.`\
 https://nytimes.com/2024/04/13/us/mckees-rocks-bridge-pittsburgh-barge.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/13/pageoneplus/quotation-of-the-day-coffee-means-con
 **New Zealanders Are Crazy for This Fruit. It’s Not the Kiwi.**\
 `Like the kiwi fruit, the feijoa, or pineapple guava, is not native to the island nation, but it has become something of a national obsession.`\
 https://nytimes.com/2024/04/12/world/australia/new-zealand-feioja-kiwis.html
-
-**Like Some Smiles and Winks**\
-`Even in her first Times puzzle, Jess Rucks knows what everyone needs on a Saturday: a ray of sunshine.`\
-https://nytimes.com/2024/04/12/crosswords/daily-puzzle-2024-04-13.html
-
-**Biotech Exec Gets 7 Years in Prison for False Claims About Rapid Covid-19 Test**\
-`Prosecutors said Keith Berman falsely claimed he had invented a blood test that could detect Covid-19 in 15 seconds. His lawyer said he had put “genuine effort” into developing such a test.`\
-https://nytimes.com/2024/04/12/us/biotech-covid-fraud-sentence.html
-
-**Judge Rejects Hunter Biden Claim of Selective Prosecution in Gun Case**\
-`Judge Maryellen Noreika declined to dismiss the charges against the president’s son, saying Mr. Biden’s lawyer failed to show prosecutors had been motivated by animus.`\
-https://nytimes.com/2024/04/12/us/politics/hunter-biden-gun-case.html
 
