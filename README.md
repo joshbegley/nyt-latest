@@ -3,7 +3,7 @@
 https://nytimes.com/2024/04/13/crosswords/daily-puzzle-2024-04-14.html
 
 **Stacks of Cash at Menendez Home Were Not From His Bank, Prosecutors Say**\
-`The senator has said that money found in his house was from his own savings account. But prosecutors said that at least $80,000 came “from another person.”`\
+`The senator has said that money found in his house was from his own savings account. But prosecutors said that at least $80,000 was provided “by another person.”`\
 https://nytimes.com/2024/04/13/nyregion/menendez-cash-bank.html
 
 **Representing the U.S. and Critiquing It in a Psychedelic Rainbow**\
