@@ -34,7 +34,7 @@ https://nytimes.com/2024/04/13/podcasts/this-american-life-too-soon.html
 `There’s a difference between being aware of your base and being its prisoner.`\
 https://nytimes.com/2024/04/13/opinion/biden-trump-voter-base.html
 
-**Military Aid Cannot Be Unconditional**\
+**Military Aid to Israel Cannot Be Unconditional**\
 `Israel’s leader has turned his back on America’s entreaties.`\
 https://nytimes.com/2024/04/13/opinion/israel-military-aid.html
 
