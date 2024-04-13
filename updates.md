@@ -1,3 +1,7 @@
+**Biden returns to White House as Israel braces for Iranian aerial strikes.**\
+`By Michael D. Shear, Aaron Boxerman and Eric Schmitt`\
+https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/biden-returns-to-white-house-as-israel-braces-for-iranian-retaliation
+
 **Representing the U.S. and Critiquing It in a Psychedelic Rainbow**\
 `Jeffrey Gibson’s history-making turn at the Venice Biennale brings the gay and Native American artist center stage with works of struggle and freedom.`\
 https://nytimes.com/2024/04/13/arts/design/jeffrey-gibson-venice-biennale.html
