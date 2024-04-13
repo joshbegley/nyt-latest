@@ -1,3 +1,11 @@
+**2 Books About Other People’s Money**\
+`A tax manifesto by Edmund Wilson and a money-themed story collection.`\
+https://nytimes.com/2024/04/13/books/read-like-wind-recommendations.html
+
+**Witnesses to Sydney Mall Stabbing Describe Harrowing Scenes**\
+`People who were present at the scene told of sheltering in place or giving first aid to victims of a man who ran at people with a knife.`\
+https://nytimes.com/2024/04/13/world/australia/witness-sydney-mall-attack.html
+
 **Cable Car Drops Passengers Onto Mountain in Turkey, Killing One**\
 `Scores of people were stranded, some for as long as 19 hours, after an accident on a rocky hillside above the city of Antalya.`\
 https://nytimes.com/2024/04/13/world/europe/cable-car-accident-turkey.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/13/opinion/supreme-court-friends.html
 **Harvard Is Bringing Back Standardized Tests. Other Schools Should, Too.**\
 `Emi Nietfeld didn’t have access to lacrosse or advanced placement classes, but she did have standardized tests.`\
 https://nytimes.com/2024/04/13/opinion/harvard-sat-college-admissions.html
-
-**How to Reduce Student Absenteeism**\
-`Readers discuss the reasons for the spike since the pandemic and how to lure students back.`\
-https://nytimes.com/2024/04/13/opinion/student-absenteeism.html
-
-**Some Words Feel Truer in Spanish**\
-`To me, a maleta meant family had arrived from Peru, carrying flavors, textures and memories of my birthplace.`\
-https://nytimes.com/2024/04/13/opinion/first-generation-bilingual-language.html
 
