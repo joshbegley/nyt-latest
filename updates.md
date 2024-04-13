@@ -1,3 +1,7 @@
+**Cable Car Drops Passengers Onto Mountain in Turkey, Killing One**\
+`Scores of people were stranded, some for as long as 19 hours, after an accident on a rocky hillside above the city of Antalya.`\
+https://nytimes.com/2024/04/13/world/europe/cable-car-accident-turkey.html
+
 **Too Soon?**\
 `A look back at O.J. Simpson’s attempt to reboot his media career, and more stories.`\
 https://nytimes.com/2024/04/13/podcasts/this-american-life-too-soon.html
