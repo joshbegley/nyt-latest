@@ -1,3 +1,7 @@
+**Inside Donald Trump’s Embrace of the Jan. 6 Rioters**\
+`The former president initially disavowed the attack on the Capitol, but he is now making it a centerpiece of his general election campaign.`\
+https://nytimes.com/2024/04/13/us/politics/trump-jan-6.html
+
 **Four South Dakota Tribes Bar Gov. Kristi Noem, Trump V.P. Contender, From Lands**\
 `The tribes barred the Republican governor from their reservations after she told lawmakers that Mexican drug cartels had a foothold there and were committing murders.`\
 https://nytimes.com/2024/04/13/us/politics/kristi-noem-south-dakota-tribes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/13/us/politics/election-workers-threats.html
 **When O.J. Simpson ‘Confessed’ to Murder**\
 `Years after Mr. Simpson was acquitted, he wrote a book and gave a shocking interview. The whole endeavor cost the publisher, Judith Regan, her job.`\
 https://nytimes.com/2024/04/13/style/oj-simpson-murder-book-interview-if-i-did-it.html
-
-**Fritz Peterson, Yankee Pitcher in an Unusual ‘Trade,’ Dies at 82**\
-`He was a leading light on an undistinguished team. But he became known less for his achievement on the field than for exchanging wives with a teammate.`\
-https://nytimes.com/2024/04/13/sports/baseball/fritz-peterson-dead.html
 
