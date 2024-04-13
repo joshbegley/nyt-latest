@@ -1,5 +1,9 @@
-**Towering ‘Vessel’ Sculpture at Hudson Yards Will Reopen After Suicides**\
-`The 150-foot-high tourist attraction, which closed in 2021, will be fitted with mesh to reduce the risk of suicides.`\
+**Here are the latest developments.**\
+`By Aaron Boxerman, Ronen Bergman, Farnaz Fassihi and Eric Nagourney`\
+https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/iran-israel-attack
+
+**Hudson Yards ‘Vessel’ Sculpture Will Reopen With Netting After Suicides**\
+`The 150-foot-high tourist attraction, which closed in 2021, will be fitted with steel mesh to prevent deaths.`\
 https://nytimes.com/2024/04/13/nyregion/towering-vessel-sculpture-at-hudson-yards-will-reopen-after-suicides.html
 
 **Inside Donald Trump’s Embrace of the Jan. 6 Rioters**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009412850/turkey-cable-car-accident
 **Stabbing Attack in Sydney Kills at Least Six People**\
 `Shoppers hid in backrooms or ran screaming from the scene, while others stayed with injured victims. Police said they believed the attack was not a ‘terrorism incident.’`\
 https://nytimes.com/2024/04/13/world/australia/stabbing-attack-sydney.html
-
-**Election Workers Face Flood of Threats, but Charges Are Few**\
-`The Justice Department has a task force focused on the thousands of threats against state and local officials who oversee voting, but most are protected by the First Amendment.`\
-https://nytimes.com/2024/04/13/us/politics/election-workers-threats.html
 
