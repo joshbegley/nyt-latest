@@ -1,3 +1,7 @@
+**The Sydney Mall Stabbing Rampage: What We Know**\
+`The attack happened in a busy center for tourists and beachgoers in the Eastern Suburbs, an affluent area of Sydney.`\
+https://nytimes.com/2024/04/13/world/australia/sydney-mall-stabbing-what-happened.html
+
 **Don Wright, Editorial Cartoonist With a Skewer for a Pen, Dies at 90**\
 `He won two Pulitzers for Florida newspapers, commenting wryly on war, segregation, church scandals and more while reaching readers nationwide through syndication.`\
 https://nytimes.com/2024/04/13/business/media/don-wright-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/13/world/africa/niger-us-military-russia.html
 **What Are the Stakes of ‘Civil War,’ Really?**\
 `Alex Garland’s new film is most interested in the experience of living through an armed conflict.`\
 https://nytimes.com/2024/04/13/opinion/civil-war-alex-garland.html
-
-**Banana Bread, Always and Forever**\
-`As long as we have bananas that go brown, we will have Julia Moskin’s perfect banana bread.`\
-https://nytimes.com/2024/04/13/dining/banana-bread-always-and-forever.html
 

@@ -1,3 +1,7 @@
+**The Sydney Mall Stabbing Rampage: What We Know**\
+`The attack happened in a busy center for tourists and beachgoers in the Eastern Suburbs, an affluent area of Sydney.`\
+https://nytimes.com/2024/04/13/world/australia/sydney-mall-stabbing-what-happened.html
+
 **Don Wright, Editorial Cartoonist With a Skewer for a Pen, Dies at 90**\
 `He won two Pulitzers for Florida newspapers, commenting wryly on war, segregation, church scandals and more while reaching readers nationwide through syndication.`\
 https://nytimes.com/2024/04/13/business/media/don-wright-dead.html
