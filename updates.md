@@ -1,3 +1,7 @@
+**Stacks of Cash at Menendez Home Were Not From His Bank, Prosecutors Say**\
+`The senator has said that money found in his house was from his own savings account. But prosecutors submitted evidence that at least $80,000 came “from another person.”`\
+https://nytimes.com/2024/04/13/nyregion/menendez-cash-bank.html
+
 **Faith Ringgold, Who Wove Black Life Into Quilts and Children’s Books, Dies at 93**\
 `A champion of Black artists, she explored themes of race, gender, class, family and community through a vast array of media and later the written word.`\
 https://nytimes.com/2024/04/13/arts/faith-ringgold-dead.html
