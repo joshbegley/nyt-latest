@@ -1,3 +1,7 @@
+**Pittsburgh Bridge Shut as Barges Break Loose on Ohio River**\
+`The authorities were searching for the barges near the McKees Rocks Bridge as a flood warning was active in Allegheny County.`\
+https://nytimes.com/2024/04/13/us/mckees-rocks-bridge-pittsburgh-barge.html
+
 **China Had a ‘Special Place’ in Modi’s Heart. Now It’s a Thorn in His Side.**\
 `As Narendra Modi seeks a third term as prime minister, India’s rupture with China looms over a pillar of his campaign: making his country a major power.`\
 https://nytimes.com/2024/04/13/world/asia/india-china-modi.html
