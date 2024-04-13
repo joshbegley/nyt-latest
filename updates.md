@@ -1,3 +1,7 @@
+**Trump will hold a rally in Pennsylvania, his last before his New York criminal trial begins.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/04/13/us/biden-trump-election/trump-will-hold-a-rally-in-pennsylvania-his-last-before-his-new-york-criminal-trial-begins
+
 **Witnesses to Sydney Mall Stabbing Describe Harrowing Scenes**\
 `People who were at the scene told of chaos, screaming, wounded victims and a resolute attacker. Many struggled to process the shock hours afterward.`\
 https://nytimes.com/2024/04/13/world/australia/witness-sydney-mall-attack.html
