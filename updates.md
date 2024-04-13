@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Aaron Boxerman, Ronen Bergman, Farnaz Fassihi and Eric Schmitt`\
+https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/iran-israel-attack
+
 **Tensions Flare in West Bank After Israeli Teenager Is Found Dead**\
 `The killing, which Israel called a “terrorist attack,” prompted rioting by Israeli settlers that killed one Palestinian and raised fears of a broader escalation.`\
 https://nytimes.com/2024/04/13/world/middleeast/israel-palestine-teenager-west-bank.html

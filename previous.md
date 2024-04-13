@@ -23,7 +23,7 @@ https://nytimes.com/2024/04/13/arts/design/indigenous-venice-biennale.html
 https://nytimes.com/2024/04/13/arts/faith-ringgold-dead.html
 
 **Here are the latest developments.**\
-`By Aaron Boxerman, Ronen Bergman, Farnaz Fassihi and Eric Nagourney`\
+`By Aaron Boxerman, Ronen Bergman, Farnaz Fassihi and Eric Schmitt`\
 https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/iran-israel-attack
 
 **Hudson Yards ‘Vessel’ Sculpture Will Reopen With Netting After Suicides**\
