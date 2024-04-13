@@ -1,3 +1,7 @@
+**China Had a ‘Special Place’ in Modi’s Heart. Now It’s a Thorn in His Side.**\
+`As Narendra Modi seeks a third term as prime minister, India’s rupture with China looms over a pillar of his campaign: making his country a major power.`\
+https://nytimes.com/2024/04/13/world/asia/india-china-modi.html
+
 **In the Nigeria Pavilion, Criticism Meets Optimism**\
 `The group show “Nigeria Imaginary” will be one of the most ambitious African presentations ever at the Venice Biennale.`\
 https://nytimes.com/2024/04/13/arts/design/venice-bienniale-nigeria-pavilion.html
