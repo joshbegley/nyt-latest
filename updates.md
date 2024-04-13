@@ -1,3 +1,7 @@
+**Like Some Smiles and Winks**\
+`Even in her first Times puzzle, Jess Rucks knows what everyone needs on a Saturday: a ray of sunshine.`\
+https://nytimes.com/2024/04/12/crosswords/daily-puzzle-2024-04-13.html
+
 **Biotech Exec Gets 7 Years in Prison for False Claims About Rapid Covid-19 Test**\
 `Prosecutors said Keith Berman falsely claimed he had invented a blood test that could detect Covid-19 in 15 seconds. His lawyer said he had put “genuine effort” into developing such a test.`\
 https://nytimes.com/2024/04/12/us/biotech-covid-fraud-sentence.html

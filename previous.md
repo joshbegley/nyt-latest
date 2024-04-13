@@ -1,3 +1,7 @@
+**Like Some Smiles and Winks**\
+`Even in her first Times puzzle, Jess Rucks knows what everyone needs on a Saturday: a ray of sunshine.`\
+https://nytimes.com/2024/04/12/crosswords/daily-puzzle-2024-04-13.html
+
 **Biotech Exec Gets 7 Years in Prison for False Claims About Rapid Covid-19 Test**\
 `Prosecutors said Keith Berman falsely claimed he had invented a blood test that could detect Covid-19 in 15 seconds. His lawyer said he had put “genuine effort” into developing such a test.`\
 https://nytimes.com/2024/04/12/us/biotech-covid-fraud-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/us/politics/surveillance-law-section-702-fisa.htm
 **Eleanor Coppola, Who Chronicled Her Family’s Filmmaking, Dies at 87**\
 `She made documentaries of her husband Francis Ford Coppola’s “Apocalypse Now” and her daughter Sofia Coppola’s “The Virgin Suicides” and recalled their lives in books.`\
 https://nytimes.com/2024/04/12/movies/eleanor-coppola-dead.html
-
-**Trump Co-Defendants Argue for Dismissal of Charges in Documents Case**\
-`The judge did not rule on motions by lawyers for Walt Nauta and Carlos De Oliveira, who are accused of helping the former president obstruct government efforts to recover classified material.`\
-https://nytimes.com/2024/04/12/us/politics/trump-nauta-oliveira-documents-case.html
 
