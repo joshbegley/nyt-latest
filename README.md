@@ -1,3 +1,7 @@
+**Frank Olson, Executive Who Linked O.J. Simpson With Hertz, Dies at 91**\
+`He negotiated Mr. Simpson’s star turn in commercials, tapping into his football fame, and formed a social bond with him — until there were murder charges. They died on the same day.`\
+https://nytimes.com/2024/04/12/business/frank-olson-dead.html
+
 **What Is the Powerful Surveillance Law That Divided Lawmakers?**\
 `Under Section 702, the government is empowered to collect, without a warrant, the messages of Americans communicating with targeted foreigners abroad.`\
 https://nytimes.com/2024/04/12/us/politics/surveillance-law-section-702-fisa.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/nyregion/trump-trial-testify-hush-money-case.html
 **Salman Rushdie Is Again the Toast of Literary Manhattan**\
 `Nearly two years after he was stabbed, he was in fine form as he greeted his fellow writers at a party celebrating his candid memoir, “Knife.”`\
 https://nytimes.com/2024/04/12/style/salman-rushdie-literary-party.html
-
-**Republican Women Are Divided on Abortion as Bans Spread**\
-`Across the country, fractures are emerging among conservative and centrist women, as they confront a steady drumbeat of new abortion restrictions and court rulings.`\
-https://nytimes.com/2024/04/12/us/abortion-ivf-republican-women.html
 
