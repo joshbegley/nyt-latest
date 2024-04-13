@@ -1,3 +1,15 @@
+**Finding Comfort in a Haircut**\
+`A good cut is hard to find no matter where you live. But some hairstylists know it holds more weight for their transgender clients.`\
+https://nytimes.com/2024/04/13/style/transgender-hair-care.html
+
+**A Modern California Dream, Still Haunted by Hippie Darkness**\
+`Cult leaders, curdled 1960s idealism and outsider art collide in Max Ludington’s prismatic novel, “Thorn Tree.”`\
+https://nytimes.com/2024/04/13/books/review/thorn-tree-max-ludington.html
+
+**You Ask, We Answer: How The Times/Siena Poll Is Conducted**\
+`The New York Times/Siena College Poll has earned a reputation for accuracy and transparency. But as with any poll, there are limits to just how much you can derive.`\
+https://nytimes.com/article/times-siena-poll-methodology.html
+
 **13sydney-shooting**\
 `At Least 5 Killed in Stabbing at Mall in Australia`\
 https://nytimes.com/live/2024/04/13/world/sydney-attack-mall-westfield
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/13/crosswords/wordle-review.html
 **How a Reality TV Show Turned the U.F.C. From Pariah to Juggernaut**\
 `The Ultimate Fighting Championship, whose 300th numbered pay-per-view fight card is this weekend, was once effectively banned on television because of its violence.`\
 https://nytimes.com/2024/04/13/arts/television/ufc-300-ultimate-fighter.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/13/crosswords/spelling-bee-forum.html
-
-**How a Raunchy Lounge Singer Spends His Sundays**\
-`Dani Lubnitzki, who is better known as Dani Luv, puts his own spin on Sinatra during the week, but on Sundays he shops for his grandchildren and has a jam session with friends.`\
-https://nytimes.com/2024/04/13/nyregion/how-a-raunchy-lounge-singer-spends-his-sundays.html
-
-**Most N.Y.C. Drivers Who Honk Are Breaking the Law. Can They Be Stopped?**\
-`The city’s noise code has limited the use of vehicle horns for almost a century. Enforcing the law is another matter.`\
-https://nytimes.com/2024/04/13/nyregion/honking-horn-illegal-nyc.html
 
