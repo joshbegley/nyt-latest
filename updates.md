@@ -1,3 +1,19 @@
+**In the Nigeria Pavilion, Criticism Meets Optimism**\
+`The group show “Nigeria Imaginary” will be one of the most ambitious African presentations ever at the Venice Biennale.`\
+https://nytimes.com/2024/04/13/arts/design/venice-bienniale-nigeria-pavilion.html
+
+**A Perpetual Bridesmaid Gets the Crown, and Germany (Mostly) Likes the Look**\
+`Bayer Leverkusen can win its first Bundesliga title this weekend. For its rivals, the real joy comes in seeing Bayern Munich lose it.`\
+https://nytimes.com/2024/04/13/world/europe/bayer-leverkuson-bayern-munich-bundesliga.html
+
+**Corrections: April 13, 2024**\
+`Corrections that appeared in print on Saturday, April 13, 2024.`\
+https://nytimes.com/2024/04/13/pageoneplus/corrections-april-13-2024.html
+
+**Quotation of the Day: Coffee Means Connection, Even in War**\
+`Quotation of the Day for Saturday, April 13, 2024.`\
+https://nytimes.com/2024/04/13/pageoneplus/quotation-of-the-day-coffee-means-connection-even-in-war.html
+
 **New Zealanders Are Crazy for This Fruit. It’s Not the Kiwi.**\
 `Like the kiwi fruit, the feijoa, or pineapple guava, is not native to the island nation, but it has become something of a national obsession.`\
 https://nytimes.com/2024/04/12/world/australia/new-zealand-feioja-kiwis.html
