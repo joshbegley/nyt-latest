@@ -1,3 +1,7 @@
+**The Israeli military shifts its focus to the central Gaza Strip.**\
+`By Hiba Yazbek and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/04/13/world/israel-gaza-war-news-hamas/the-israeli-military-shifts-its-focus-to-the-central-gaza-strip
+
 **Protesters in Niger Call for U.S. Military Exit as Russian Force Arrives**\
 `Trainers and equipment from Russia landed in the West African nation this week, putting the continued presence of 1,000 U.S. military personnel there in doubt.`\
 https://nytimes.com/2024/04/13/world/africa/niger-us-military-russia.html
