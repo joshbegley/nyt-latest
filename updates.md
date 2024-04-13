@@ -1,3 +1,7 @@
+**Too Soon?**\
+`A look back at O.J. Simpson’s attempt to reboot his media career, and more stories.`\
+https://nytimes.com/2024/04/13/podcasts/this-american-life-too-soon.html
+
 **Why Can’t Biden Triangulate Like Trump?**\
 `There’s a difference between being aware of your base and being its prisoner.`\
 https://nytimes.com/2024/04/13/opinion/biden-trump-voter-base.html
