@@ -1,3 +1,11 @@
+**Representing the U.S. and Critiquing It in a Psychedelic Rainbow**\
+`Jeffrey Gibson’s history-making turn at the Venice Biennale brings the gay and Native American artist center stage with works of struggle and freedom.`\
+https://nytimes.com/2024/04/13/arts/design/jeffrey-gibson-venice-biennale.html
+
+**Indigenous Artists Are the Heart of the Venice Biennale**\
+`Here are highlights of the range of work produced by Native artists in the pavilions and a central exhibition that proudly calls itself “Foreigners Everywhere.”`\
+https://nytimes.com/2024/04/13/arts/design/indigenous-venice-biennale.html
+
 **Faith Ringgold Dies at 93; Wove Black Life Into Quilts and Children’s Books**\
 `A champion of Black artists, she explored themes of race, gender, class, family and community through a vast array of media and later the written word.`\
 https://nytimes.com/2024/04/13/arts/faith-ringgold-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/biden-return
 **The Sydney Mall Stabbing Rampage: What We Know**\
 `The attack happened in a busy center for tourists and beachgoers in the Eastern Suburbs, an affluent area of Sydney.`\
 https://nytimes.com/2024/04/13/world/australia/sydney-mall-stabbing-what-happened.html
-
-**Don Wright, Editorial Cartoonist With a Skewer for a Pen, Dies at 90**\
-`He won two Pulitzers for Florida newspapers, commenting wryly on war, segregation, church scandals and more while reaching readers nationwide through syndication.`\
-https://nytimes.com/2024/04/13/business/media/don-wright-dead.html
-
-**One Person Is Killed in a Cable Car Accident in Turkey**\
-`Rescuers used cranes, helicopters and ropes to evacuate nearly 200 passengers from a crippled cable car line after one pod struck a pole and dropped its eight passengers to the rocky ground.`\
-https://nytimes.com/video/world/europe/100000009412850/turkey-cable-car-accident.html
 

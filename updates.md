@@ -1,3 +1,11 @@
+**Representing the U.S. and Critiquing It in a Psychedelic Rainbow**\
+`Jeffrey Gibson’s history-making turn at the Venice Biennale brings the gay and Native American artist center stage with works of struggle and freedom.`\
+https://nytimes.com/2024/04/13/arts/design/jeffrey-gibson-venice-biennale.html
+
+**Indigenous Artists Are the Heart of the Venice Biennale**\
+`Here are highlights of the range of work produced by Native artists in the pavilions and a central exhibition that proudly calls itself “Foreigners Everywhere.”`\
+https://nytimes.com/2024/04/13/arts/design/indigenous-venice-biennale.html
+
 **Faith Ringgold Dies at 93; Wove Black Life Into Quilts and Children’s Books**\
 `A champion of Black artists, she explored themes of race, gender, class, family and community through a vast array of media and later the written word.`\
 https://nytimes.com/2024/04/13/arts/faith-ringgold-dead.html
