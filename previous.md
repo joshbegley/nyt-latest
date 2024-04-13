@@ -1,3 +1,11 @@
+**Iran Seizes Commercial Ship Linked to Israel**\
+`Directly and through proxy groups like the Houthis in Yemen, Iran has been disrupting commercial shipping in the Persian Gulf for years.`\
+https://nytimes.com/2024/04/13/world/middleeast/iran-seizes-ship-israel-hormuz.html
+
+**For Many Western Allies, Sending Weapons to Israel Gets Dicey**\
+`As civilian casualties in Gaza spiral, some nations are suspending sales amid accusations of abetting genocide and war crimes.`\
+https://nytimes.com/2024/04/13/world/europe/israel-weapons-sales-genocide.html
+
 **Trump will hold a rally in Pennsylvania, his last before his New York criminal trial begins.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/13/us/biden-trump-election/trump-will-hold-a-rally-in-pennsylvania-his-last-before-his-new-york-criminal-trial-begins
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/13/books/read-like-wind-recommendations.html
 **Witnesses to Sydney Mall Stabbing Describe Harrowing Scenes**\
 `People who were at the scene told of chaos, screaming, wounded victims and a resolute attacker. Many struggled to process the shock hours afterward.`\
 https://nytimes.com/2024/04/13/world/australia/witness-sydney-mall-attack.html
-
-**Cable Car Drops Passengers Onto Mountain in Turkey, Killing One**\
-`Scores of people were stranded, some overnight, after an accident on a rocky hillside above the city of Antalya.`\
-https://nytimes.com/2024/04/13/world/europe/cable-car-accident-turkey.html
-
-**Too Soon?**\
-`A look back at O.J. Simpson’s attempt to reboot his media career, and more stories.`\
-https://nytimes.com/2024/04/13/podcasts/this-american-life-too-soon.html
 

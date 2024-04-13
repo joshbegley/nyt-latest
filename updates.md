@@ -1,3 +1,11 @@
+**Iran Seizes Commercial Ship Linked to Israel**\
+`Directly and through proxy groups like the Houthis in Yemen, Iran has been disrupting commercial shipping in the Persian Gulf for years.`\
+https://nytimes.com/2024/04/13/world/middleeast/iran-seizes-ship-israel-hormuz.html
+
+**For Many Western Allies, Sending Weapons to Israel Gets Dicey**\
+`As civilian casualties in Gaza spiral, some nations are suspending sales amid accusations of abetting genocide and war crimes.`\
+https://nytimes.com/2024/04/13/world/europe/israel-weapons-sales-genocide.html
+
 **Trump will hold a rally in Pennsylvania, his last before his New York criminal trial begins.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/13/us/biden-trump-election/trump-will-hold-a-rally-in-pennsylvania-his-last-before-his-new-york-criminal-trial-begins
