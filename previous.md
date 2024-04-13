@@ -1,3 +1,11 @@
+**Biotech Exec Gets 7 Years in Prison for False Claims About Rapid Covid-19 Test**\
+`Prosecutors said Keith Berman falsely claimed he had invented a blood test that could detect Covid-19 in 15 seconds. His lawyer said he had put “genuine effort” into developing such a test.`\
+https://nytimes.com/2024/04/12/us/biotech-covid-fraud-sentence.html
+
+**Judge Rejects Hunter Biden Claim of Selective Prosecution in Gun Case**\
+`Judge Maryellen Noreika declined to dismiss the charges against the president’s son, saying Mr. Biden’s lawyer failed to show prosecutors had been motivated by animus.`\
+https://nytimes.com/2024/04/12/us/politics/hunter-biden-gun-case.html
+
 **On this, Trump and Biden agree: Trump killed Roe v. Wade.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/12/us/election-trump-biden-news/trump-biden-abortion
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/12/movies/eleanor-coppola-dead.html
 **Trump Co-Defendants Argue for Dismissal of Charges in Documents Case**\
 `The judge did not rule on motions by lawyers for Walt Nauta and Carlos De Oliveira, who are accused of helping the former president obstruct government efforts to recover classified material.`\
 https://nytimes.com/2024/04/12/us/politics/trump-nauta-oliveira-documents-case.html
-
-**Harris Blasts Trump on Abortion at Arizona Campaign Stop**\
-`At a rally in Tucson, Ariz., days after the state’s top court upheld a near-total ban on abortion, Vice President Kamala Harris placed the blame directly on former President Donald J. Trump.`\
-https://nytimes.com/2024/04/12/us/politics/abortion-harris-trump-arizona.html
-
-**Harris Blasts Trump on Abortion in Arizona**\
-`During a campaign rally, Vice President Kamala Harris blamed former President Donald J. Trump for the Arizona Supreme Court’s ruling to uphold a near-total ban on abortion.`\
-https://nytimes.com/video/us/politics/100000009412412/harris-arizona-abortion.html
 

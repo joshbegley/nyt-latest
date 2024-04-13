@@ -1,3 +1,11 @@
+**Biotech Exec Gets 7 Years in Prison for False Claims About Rapid Covid-19 Test**\
+`Prosecutors said Keith Berman falsely claimed he had invented a blood test that could detect Covid-19 in 15 seconds. His lawyer said he had put “genuine effort” into developing such a test.`\
+https://nytimes.com/2024/04/12/us/biotech-covid-fraud-sentence.html
+
+**Judge Rejects Hunter Biden Claim of Selective Prosecution in Gun Case**\
+`Judge Maryellen Noreika declined to dismiss the charges against the president’s son, saying Mr. Biden’s lawyer failed to show prosecutors had been motivated by animus.`\
+https://nytimes.com/2024/04/12/us/politics/hunter-biden-gun-case.html
+
 **On this, Trump and Biden agree: Trump killed Roe v. Wade.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/12/us/election-trump-biden-news/trump-biden-abortion
