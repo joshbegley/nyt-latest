@@ -1,3 +1,11 @@
+**Stabbing Attack in Sydney Kills at Least Six People**\
+`Shoppers hid in backrooms or ran screaming from the scene, while others stayed with injured victims. Police said they believed the attack was not a ‘terrorism incident.’`\
+https://nytimes.com/2024/04/13/world/australia/stabbing-attack-sydney.html
+
+**Election Workers Face Flood of Threats, but Charges Are Few**\
+`The Justice Department has a task force focused on the thousands of threats against state and local officials who oversee voting, but most are protected by the First Amendment.`\
+https://nytimes.com/2024/04/13/us/politics/election-workers-threats.html
+
 **When O.J. Simpson ‘Confessed’ to Murder**\
 `Years after Mr. Simpson was acquitted, he wrote a book and gave a shocking interview. The whole endeavor cost the publisher, Judith Regan, her job.`\
 https://nytimes.com/2024/04/13/style/oj-simpson-murder-book-interview-if-i-did-it.html

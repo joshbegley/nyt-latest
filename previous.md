@@ -1,3 +1,11 @@
+**Stabbing Attack in Sydney Kills at Least Six People**\
+`Shoppers hid in backrooms or ran screaming from the scene, while others stayed with injured victims. Police said they believed the attack was not a ‘terrorism incident.’`\
+https://nytimes.com/2024/04/13/world/australia/stabbing-attack-sydney.html
+
+**Election Workers Face Flood of Threats, but Charges Are Few**\
+`The Justice Department has a task force focused on the thousands of threats against state and local officials who oversee voting, but most are protected by the First Amendment.`\
+https://nytimes.com/2024/04/13/us/politics/election-workers-threats.html
+
 **When O.J. Simpson ‘Confessed’ to Murder**\
 `Years after Mr. Simpson was acquitted, he wrote a book and gave a shocking interview. The whole endeavor cost the publisher, Judith Regan, her job.`\
 https://nytimes.com/2024/04/13/style/oj-simpson-murder-book-interview-if-i-did-it.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/13/us/politics/garcia-loro-piana-vuitton-indigenous-
 **Iran Seizes Commercial Ship Linked to Israel**\
 `Directly and through proxy groups like the Houthis in Yemen, Iran has been disrupting commercial shipping in the Persian Gulf for years.`\
 https://nytimes.com/2024/04/13/world/middleeast/iran-seizes-ship-israel-hormuz.html
-
-**For Many Western Allies, Sending Weapons to Israel Gets Dicey**\
-`As civilian casualties in Gaza spiral, some nations are suspending sales amid accusations of abetting genocide and war crimes.`\
-https://nytimes.com/2024/04/13/world/europe/israel-weapons-sales-genocide.html
-
-**Trump will hold a rally in Pennsylvania, his last before his New York criminal trial begins.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/04/13/us/biden-trump-election/trump-will-hold-a-rally-in-pennsylvania-his-last-before-his-new-york-criminal-trial-begins
 
