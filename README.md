@@ -16,7 +16,7 @@ https://nytimes.com/2024/04/13/us/politics/kritenbrink-china.html
 
 **Biden returns to White House as Israel braces for Iranian retaliation.**\
 `By Michael D. Shear, Aaron Boxerman and Eric Schmitt`\
-https://nytimes.com/live/2024/04/13/world/israel-gaza-war-news-hamas/biden-returns-to-white-house-as-israel-braces-for-iranian-retaliation
+https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/biden-returns-to-white-house-as-israel-braces-for-iranian-retaliation
 
 **The Sydney Mall Stabbing Rampage: What We Know**\
 `The attack happened in a busy center for tourists and beachgoers in the Eastern Suburbs, an affluent area of Sydney.`\
