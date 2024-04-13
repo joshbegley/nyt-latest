@@ -1,3 +1,15 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/13/crosswords/spelling-bee-forum.html
+
+**How a Raunchy Lounge Singer Spends His Sundays**\
+`Dani Lubnitzki, who is better known as Dani Luv, puts his own spin on Sinatra during the week, but on Sundays he shops for his grandchildren and has a jam session with friends.`\
+https://nytimes.com/2024/04/13/nyregion/how-a-raunchy-lounge-singer-spends-his-sundays.html
+
+**Most N.Y.C. Drivers Who Honk Are Breaking the Law. Can They Be Stopped?**\
+`The city’s noise code has limited the use of vehicle horns for almost a century. Enforcing the law is another matter.`\
+https://nytimes.com/2024/04/13/nyregion/honking-horn-illegal-nyc.html
+
 **Pittsburgh Bridge Shut as Barges Break Loose on Ohio River**\
 `The authorities were searching for the barges near the McKees Rocks Bridge as a flood warning was active in Allegheny County.`\
 https://nytimes.com/2024/04/13/us/mckees-rocks-bridge-pittsburgh-barge.html
