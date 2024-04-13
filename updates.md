@@ -1,3 +1,7 @@
+**Protesters in Niger Call for U.S. Military Exit as Russian Force Arrives**\
+`Trainers and equipment from Russia landed in the West African nation this week, putting the continued presence of 1,000 U.S. military personnel there in doubt.`\
+https://nytimes.com/2024/04/13/world/africa/niger-us-military-russia.html
+
 **What Are the Stakes of ‘Civil War,’ Really?**\
 `Alex Garland’s new film is most interested in the experience of living through an armed conflict.`\
 https://nytimes.com/2024/04/13/opinion/civil-war-alex-garland.html

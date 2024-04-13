@@ -1,3 +1,7 @@
+**Protesters in Niger Call for U.S. Military Exit as Russian Force Arrives**\
+`Trainers and equipment from Russia landed in the West African nation this week, putting the continued presence of 1,000 U.S. military personnel there in doubt.`\
+https://nytimes.com/2024/04/13/world/africa/niger-us-military-russia.html
+
 **What Are the Stakes of ‘Civil War,’ Really?**\
 `Alex Garland’s new film is most interested in the experience of living through an armed conflict.`\
 https://nytimes.com/2024/04/13/opinion/civil-war-alex-garland.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/13/arts/television/sex-and-the-city-netflix.html
 **The death of a 14-year-old could further inflame tensions in the West Bank.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/04/13/world/israel-gaza-war-news-hamas/there-have-been-several-violent-riots-in-the-area-the-israeli-military-said
-
-**13mideast-crisis**\
-`Israeli Teen Whose Disappearance Led to Riot Is Found Dead in West Bank`\
-https://nytimes.com/live/2024/04/13/world/israel-gaza-war-news-hamas
 
