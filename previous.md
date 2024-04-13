@@ -1,3 +1,7 @@
+**N.Y.P.D. Defends Contentious Arrests of ‘Violence Interrupters’**\
+`The arrests, which led one of the men to be hospitalized, heightened tensions between officers and outreach workers trained to intervene in street conflicts.`\
+https://nytimes.com/2024/04/12/nyregion/nypd-violence-interrupters-sos.html
+
 **Frank Olson, Executive Who Linked O.J. Simpson With Hertz, Dies at 91**\
 `He negotiated Mr. Simpson’s star turn in commercials, tapping into his football fame, and formed a social bond with him — until there were murder charges. They died on the same day.`\
 https://nytimes.com/2024/04/12/business/frank-olson-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/climate/climate-greenwashing-denmark-pork.html
 **Trump Says He Intends to Testify in His Manhattan Criminal Case**\
 `Jury selection begins Monday in the prosecution of Donald J. Trump on charges of covering up a sex scandal. He said he would try to sway jurors personally, though he has backed away in the past.`\
 https://nytimes.com/2024/04/12/nyregion/trump-trial-testify-hush-money-case.html
-
-**Salman Rushdie Is Again the Toast of Literary Manhattan**\
-`Nearly two years after he was stabbed, he was in fine form as he greeted his fellow writers at a party celebrating his candid memoir, “Knife.”`\
-https://nytimes.com/2024/04/12/style/salman-rushdie-literary-party.html
 

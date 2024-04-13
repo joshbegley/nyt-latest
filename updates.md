@@ -1,3 +1,7 @@
+**N.Y.P.D. Defends Contentious Arrests of ‘Violence Interrupters’**\
+`The arrests, which led one of the men to be hospitalized, heightened tensions between officers and outreach workers trained to intervene in street conflicts.`\
+https://nytimes.com/2024/04/12/nyregion/nypd-violence-interrupters-sos.html
+
 **Frank Olson, Executive Who Linked O.J. Simpson With Hertz, Dies at 91**\
 `He negotiated Mr. Simpson’s star turn in commercials, tapping into his football fame, and formed a social bond with him — until there were murder charges. They died on the same day.`\
 https://nytimes.com/2024/04/12/business/frank-olson-dead.html
