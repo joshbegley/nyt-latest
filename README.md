@@ -1,5 +1,5 @@
-**At Least 1 Person Shot and Several Stabbed at Mall in Sydney**\
-`Police evacuated the mall at a busy Bondi Junction, a major commercial area in eastern Sydney, on Saturday afternoon.`\
+**5 People Killed in Stabbing at Packed Australia Mall**\
+`The attacker was shot and killed by a lone police officer who was directed into the mall by people fleeing the scene at Bondi Junction, a major commercial area in eastern Sydney.`\
 https://nytimes.com/2024/04/13/world/australia/sydney-shooting-stabbing-westfield-mall.html
 
 **Protests, Traffic, Crowds: Court Braces for a Trump Trial Like No Other**\
