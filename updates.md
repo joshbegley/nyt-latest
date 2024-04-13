@@ -1,3 +1,7 @@
+**Faith Ringgold Dies at 93; Wove Black Life Into Quilts and Children’s Books**\
+`A champion of Black artists, she explored themes of race, gender, class, family and community through a vast array of media and later the written word.`\
+https://nytimes.com/2024/04/13/arts/faith-ringgold-dead.html
+
 **Hudson Yards ‘Vessel’ Sculpture Will Reopen With Netting After Suicides**\
 `The 150-foot-high tourist attraction, which closed in 2021, will be fitted with steel mesh to stop people from jumping.`\
 https://nytimes.com/2024/04/13/nyregion/towering-vessel-sculpture-at-hudson-yards-will-reopen-after-suicides.html

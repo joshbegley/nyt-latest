@@ -1,3 +1,7 @@
+**Faith Ringgold Dies at 93; Wove Black Life Into Quilts and Children’s Books**\
+`A champion of Black artists, she explored themes of race, gender, class, family and community through a vast array of media and later the written word.`\
+https://nytimes.com/2024/04/13/arts/faith-ringgold-dead.html
+
 **Here are the latest developments.**\
 `By Aaron Boxerman, Ronen Bergman, Farnaz Fassihi and Eric Nagourney`\
 https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/iran-israel-attack
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/13/business/media/don-wright-dead.html
 **One Person Is Killed in a Cable Car Accident in Turkey**\
 `Rescuers used cranes, helicopters and ropes to evacuate nearly 200 passengers from a crippled cable car line after one pod struck a pole and dropped its eight passengers to the rocky ground.`\
 https://nytimes.com/video/world/europe/100000009412850/turkey-cable-car-accident.html
-
-**Stabbing Attack in Sydney Kills at Least Six People**\
-`Shoppers hid in backrooms or ran screaming from the scene, while others stayed with injured victims. Police said they believed the attack was not a ‘terrorism incident.’`\
-https://nytimes.com/2024/04/13/world/australia/stabbing-attack-sydney.html
 
