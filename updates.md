@@ -1,3 +1,7 @@
+**Johnson Floats Voting on Senate Ukraine Bill, With Conservative Policies as Sweeteners**\
+`The Republican speaker has weighed bringing up a $95 billion Senate-passed bill to aid Ukraine and Israel in tandem with a separate package geared toward mollifying G.O.P. critics.`\
+https://nytimes.com/2024/04/12/us/politics/johnson-senate-ukraine-aid.html
+
 **N.Y.P.D. Defends Contentious Arrests of ‘Violence Interrupters’**\
 `The arrests, which led one of the men to be hospitalized, heightened tensions between officers and outreach workers trained to intervene in street conflicts.`\
 https://nytimes.com/2024/04/12/nyregion/nypd-violence-interrupters-sos.html
