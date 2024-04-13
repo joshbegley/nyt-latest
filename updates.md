@@ -1,3 +1,7 @@
+**One Person Is Killed in a Cable Car Accident in Turkey**\
+`Rescuers used cranes, helicopters and ropes to evacuate nearly 200 passengers from a crippled cable car line after one pod struck a pole and dropped its eight passengers to the rocky ground.`\
+https://nytimes.com/video/world/europe/100000009412850/turkey-cable-car-accident.html
+
 **Stabbing Attack in Sydney Kills at Least Six People**\
 `Shoppers hid in backrooms or ran screaming from the scene, while others stayed with injured victims. Police said they believed the attack was not a ‘terrorism incident.’`\
 https://nytimes.com/2024/04/13/world/australia/stabbing-attack-sydney.html
