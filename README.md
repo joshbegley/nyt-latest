@@ -1,3 +1,7 @@
+**China Had a ‘Special Place’ in Modi’s Heart. Now It’s a Thorn in His Side.**\
+`As Narendra Modi seeks a third term as prime minister, India’s rupture with China looms over a pillar of his campaign: making his country a major power.`\
+https://nytimes.com/2024/04/13/world/asia/india-china-modi.html
+
 **In the Nigeria Pavilion, Criticism Meets Optimism**\
 `The group show “Nigeria Imaginary” will be one of the most ambitious African presentations ever at the Venice Biennale.`\
 https://nytimes.com/2024/04/13/arts/design/venice-bienniale-nigeria-pavilion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/12/us/politics/hunter-biden-gun-case.html
 **On this, Trump and Biden agree: Trump killed Roe v. Wade.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/12/us/election-trump-biden-news/trump-biden-abortion
-
-**N.Y.P.D. Commissioner Won’t Punish Officers in Bronx Man’s Killing**\
-`The officers, Brendan Thompson and Herbert Davis, were previously cleared of criminal wrongdoing in the fatal 2019 shooting of Kawaski Trawick.`\
-https://nytimes.com/2024/04/12/nyregion/kawaski-trawick-nypd-bronx.html
 
