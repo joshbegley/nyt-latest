@@ -30,7 +30,7 @@ https://nytimes.com/2024/04/13/us/politics/kristi-noem-south-dakota-tribes.html
 `The announcement comes days after President Biden met jointly with the leaders of Japan and the Philippines to discuss Chinese aggression in the Indo-Pacific region.`\
 https://nytimes.com/2024/04/13/us/politics/kritenbrink-china.html
 
-**Biden returns to White House as Israel braces for Iranian retaliation.**\
+**Biden returns to White House as Israel braces for Iranian aerial strikes.**\
 `By Michael D. Shear, Aaron Boxerman and Eric Schmitt`\
 https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/biden-returns-to-white-house-as-israel-braces-for-iranian-retaliation
 
