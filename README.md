@@ -2,8 +2,8 @@
 `By Aaron Boxerman, Ronen Bergman, Farnaz Fassihi and Eric Nagourney`\
 https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/iran-israel-attack
 
-**Towering ‘Vessel’ Sculpture at Hudson Yards Will Reopen After Suicides**\
-`The 150-foot-high tourist attraction, which closed in 2021, will be fitted with mesh to reduce the risk of suicides.`\
+**Hudson Yards ‘Vessel’ Sculpture Will Reopen With Netting After Suicides**\
+`The 150-foot-high tourist attraction, which closed in 2021, will be fitted with steel mesh to prevent deaths.`\
 https://nytimes.com/2024/04/13/nyregion/towering-vessel-sculpture-at-hudson-yards-will-reopen-after-suicides.html
 
 **Inside Donald Trump’s Embrace of the Jan. 6 Rioters**\
