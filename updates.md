@@ -1,3 +1,11 @@
+**13sydney-shooting**\
+`At Least 5 Killed in Stabbing at Mall in Australia`\
+https://nytimes.com/live/2024/04/13/world/sydney-attack-mall-westfield
+
+**5 People Killed in Stabbing at Packed Australia Mall**\
+`The attacker was shot and killed by a lone police officer who was directed into the mall by people fleeing the scene at Bondi Junction, a major commercial area in eastern Sydney.`\
+https://nytimes.com/live/2024/04/13/world/sydney-attack-mall-westfield/sydney-shooting-stabbing-westfield-mall
+
 **5 People Killed in Stabbing at Packed Australia Mall**\
 `The attacker was shot and killed by a lone police officer who was directed into the mall by people fleeing the scene at Bondi Junction, a major commercial area in eastern Sydney.`\
 https://nytimes.com/2024/04/13/world/australia/sydney-shooting-stabbing-westfield-mall.html

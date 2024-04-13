@@ -1,6 +1,10 @@
+**13sydney-shooting**\
+`At Least 5 Killed in Stabbing at Mall in Australia`\
+https://nytimes.com/live/2024/04/13/world/sydney-attack-mall-westfield
+
 **5 People Killed in Stabbing at Packed Australia Mall**\
 `The attacker was shot and killed by a lone police officer who was directed into the mall by people fleeing the scene at Bondi Junction, a major commercial area in eastern Sydney.`\
-https://nytimes.com/2024/04/13/world/australia/sydney-shooting-stabbing-westfield-mall.html
+https://nytimes.com/live/2024/04/13/world/sydney-attack-mall-westfield/sydney-shooting-stabbing-westfield-mall
 
 **Protests, Traffic, Crowds: Court Braces for a Trump Trial Like No Other**\
 `Strict security measures — and plenty of headaches — are expected as the first criminal trial of a former U.S. president gets underway in Manhattan.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/13/nyregion/how-a-raunchy-lounge-singer-spends-his-s
 **Most N.Y.C. Drivers Who Honk Are Breaking the Law. Can They Be Stopped?**\
 `The city’s noise code has limited the use of vehicle horns for almost a century. Enforcing the law is another matter.`\
 https://nytimes.com/2024/04/13/nyregion/honking-horn-illegal-nyc.html
-
-**Pittsburgh Shuts Bridge as Barges Break Loose on Ohio River**\
-`The authorities were searching for the barges near the McKees Rocks Bridge as a flood warning was active in Allegheny County.`\
-https://nytimes.com/2024/04/13/us/mckees-rocks-bridge-pittsburgh-barge.html
 
