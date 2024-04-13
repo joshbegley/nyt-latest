@@ -1,3 +1,7 @@
+**Savings Plan**\
+`John Rippe and Jeff Chen collaborate on a puzzle with a big heart.`\
+https://nytimes.com/2024/04/13/crosswords/daily-puzzle-2024-04-14.html
+
 **Faith Ringgold Dies at 93; Wove Black Life Into Quilts and Children’s Books**\
 `A champion of Black artists, she explored themes of race, gender, class, family and community through a vast array of media and later the written word.`\
 https://nytimes.com/2024/04/13/arts/faith-ringgold-dead.html
