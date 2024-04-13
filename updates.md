@@ -1,3 +1,7 @@
+**Frank Olson, Executive Who Linked O.J. Simpson With Hertz, Dies at 91**\
+`He negotiated Mr. Simpson’s star turn in commercials, tapping into his football fame, and formed a social bond with him — until there were murder charges. They died on the same day.`\
+https://nytimes.com/2024/04/12/business/frank-olson-dead.html
+
 **What Is the Powerful Surveillance Law That Divided Lawmakers?**\
 `Under Section 702, the government is empowered to collect, without a warrant, the messages of Americans communicating with targeted foreigners abroad.`\
 https://nytimes.com/2024/04/12/us/politics/surveillance-law-section-702-fisa.html
