@@ -1,3 +1,7 @@
+**As ‘Sex and the City’ Ages, Some Find the Cosmo Glass Half-Empty**\
+`As the show became more widely available on Netflix, younger viewers have watched it with a critical eye. But its longtime millennial and Gen X fans can’t quit.`\
+https://nytimes.com/2024/04/13/arts/television/sex-and-the-city-netflix.html
+
 **The death of a 14-year-old could further inflame tensions in the West Bank.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/04/13/world/israel-gaza-war-news-hamas/there-have-been-several-violent-riots-in-the-area-the-israeli-military-said
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/13/opinion/biden-trump-voter-base.html
 **Military Aid Cannot Be Unconditional**\
 `Israel’s leader has turned his back on America’s entreaties.`\
 https://nytimes.com/2024/04/13/opinion/israel-military-aid.html
-
-**We Must Address New York City’s Mental Health Crisis**\
-`Mental illness isn’t a crime, and jail isn’t the answer for those experiencing it.`\
-https://nytimes.com/2024/04/13/opinion/bragg-mental-health-new-york.html
 
