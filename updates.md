@@ -1,3 +1,7 @@
+**Hudson Yards ‘Vessel’ Sculpture Will Reopen With Netting After Suicides**\
+`The 150-foot-high tourist attraction, which closed in 2021, will be fitted with stop people from jumping.`\
+https://nytimes.com/2024/04/13/nyregion/towering-vessel-sculpture-at-hudson-yards-will-reopen-after-suicides.html
+
 **Stacks of Cash at Menendez Home Were Not From His Bank, Prosecutors Say**\
 `The senator has said that money found in his house was from his own savings account. But prosecutors said that at least some of it came from “another person.”`\
 https://nytimes.com/2024/04/13/nyregion/menendez-cash-bank.html
