@@ -1,3 +1,7 @@
+**The Gen Z Crossword Era**\
+`Solving a crossword puzzle today feels more like a spirited conversation with modern culture.`\
+https://nytimes.com/2024/04/13/briefing/the-gen-z-crossword-era.html
+
 **Bondi Junction, Site of Stabbing Attack, Is a Popular and Busy Hub**\
 `As well as a major mall, the area contains cafes and yoga studios. It’s a gateway from central Sydney, Australia, to eastern suburbs and several popular beaches.`\
 https://nytimes.com/2024/04/13/world/australia/bondi-junction-stabbing-sydney.html

@@ -1,3 +1,7 @@
+**The Gen Z Crossword Era**\
+`Solving a crossword puzzle today feels more like a spirited conversation with modern culture.`\
+https://nytimes.com/2024/04/13/briefing/the-gen-z-crossword-era.html
+
 **Bondi Junction, Site of Stabbing Attack, Is a Popular and Busy Hub**\
 `As well as a major mall, the area contains cafes and yoga studios. It’s a gateway from central Sydney, Australia, to eastern suburbs and several popular beaches.`\
 https://nytimes.com/2024/04/13/world/australia/bondi-junction-stabbing-sydney.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/13/business/shohei-ohtani-interpreter-details.html
 **Biden Shrinks Trump’s Edge in Latest Times/Siena Poll**\
 `The president’s popularity has ticked up slightly, though voters still view Donald J. Trump more favorably and have dour views of the economy.`\
 https://nytimes.com/2024/04/13/us/politics/trump-biden-times-siena-poll.html
-
-**In Ukraine’s West, Draft Dodgers Run, and Swim, to Avoid the War**\
-`With Russia seizing the initiative on the battlefield in recent months, Ukraine’s ability to defend itself hinges on replenishing its arsenal of weaponry and mobilizing troops.`\
-https://nytimes.com/2024/04/13/world/europe/ukraine-draft-dodgers.html
 
