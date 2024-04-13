@@ -1,3 +1,7 @@
+**State Dept. Is Sending Its Top Diplomat for East Asia to China**\
+`The announcement comes days after President Biden met jointly with the leaders of Japan and the Philippines to discuss Chinese aggression in the Indo-Pacific region.`\
+https://nytimes.com/2024/04/13/us/politics/kritenbrink-china.html
+
 **Biden returns to White House as Israel braces for Iranian retaliation.**\
 `By Michael D. Shear, Aaron Boxerman and Eric Schmitt`\
 https://nytimes.com/live/2024/04/13/world/israel-gaza-war-news-hamas/biden-returns-to-white-house-as-israel-braces-for-iranian-retaliation

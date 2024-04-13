@@ -1,3 +1,7 @@
+**State Dept. Is Sending Its Top Diplomat for East Asia to China**\
+`The announcement comes days after President Biden met jointly with the leaders of Japan and the Philippines to discuss Chinese aggression in the Indo-Pacific region.`\
+https://nytimes.com/2024/04/13/us/politics/kritenbrink-china.html
+
 **Biden returns to White House as Israel braces for Iranian retaliation.**\
 `By Michael D. Shear, Aaron Boxerman and Eric Schmitt`\
 https://nytimes.com/live/2024/04/13/world/israel-gaza-war-news-hamas/biden-returns-to-white-house-as-israel-braces-for-iranian-retaliation
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/13/sports/baseball/fritz-peterson-dead.html
 **The Israeli military shifts its focus to the central Gaza Strip.**\
 `By Hiba Yazbek and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/04/13/world/israel-gaza-war-news-hamas/the-israeli-military-shifts-its-focus-to-the-central-gaza-strip
-
-**Protesters in Niger Call for U.S. Military Exit as Russian Force Arrives**\
-`Trainers and equipment from Russia landed in the West African nation this week, putting the continued presence of 1,000 U.S. military personnel there in doubt.`\
-https://nytimes.com/2024/04/13/world/africa/niger-us-military-russia.html
 
