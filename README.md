@@ -1,3 +1,7 @@
+**One Person Is Killed in a Cable Car Accident in Turkey**\
+`Rescuers used cranes, helicopters and ropes to evacuate nearly 200 passengers from a crippled cable car line after one pod struck a pole and dropped its eight passengers to the rocky ground.`\
+https://nytimes.com/video/world/europe/100000009412850/turkey-cable-car-accident.html
+
 **Stabbing Attack in Sydney Kills at Least Six People**\
 `Shoppers hid in backrooms or ran screaming from the scene, while others stayed with injured victims. Police said they believed the attack was not a ‘terrorism incident.’`\
 https://nytimes.com/2024/04/13/world/australia/stabbing-attack-sydney.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/13/dining/banana-bread-always-and-forever.html
 **Lawmaker Presses Luxury Designer After Reports of Exploiting Indigenous Workers**\
 `A freshman congressman is demanding answers from the fashion house Loro Piana, which sources wool from his native Peru and faces accusations of exploiting workers there.`\
 https://nytimes.com/2024/04/13/us/politics/garcia-loro-piana-vuitton-indigenous-peru.html
-
-**Iran Seizes Commercial Ship Linked to Israel**\
-`Directly and through proxy groups like the Houthis in Yemen, Iran has been disrupting commercial shipping in the Persian Gulf for years.`\
-https://nytimes.com/2024/04/13/world/middleeast/iran-seizes-ship-israel-hormuz.html
 
