@@ -1,3 +1,23 @@
+**Protests, Traffic, Crowds: Court Braces for a Trump Trial Like No Other**\
+`Strict security measures — and plenty of headaches — are expected as the first criminal trial of a former U.S. president gets underway in Manhattan.`\
+https://nytimes.com/2024/04/13/nyregion/trump-criminal-trial-protests.html
+
+**The Connections Companion No. 307**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/13/crosswords/connections-companion.html
+
+**$17,000 to Watch the Masters? How Sports Entice Deep-Pocketed Fans.**\
+`Teams, leagues and event organizers are pursuing enthusiasts with the promise of luxury and exclusivity, in hopes of bigger profits and lasting loyalty.`\
+https://nytimes.com/2024/04/13/business/masters-map-and-flag-luxury-fans.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/13/crosswords/wordle-review.html
+
+**How a Reality TV Show Turned the U.F.C. From Pariah to Juggernaut**\
+`The Ultimate Fighting Championship, whose 300th numbered pay-per-view fight card is this weekend, was once effectively banned on television because of its violence.`\
+https://nytimes.com/2024/04/13/arts/television/ufc-300-ultimate-fighter.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/04/13/crosswords/spelling-bee-forum.html
