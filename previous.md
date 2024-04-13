@@ -23,11 +23,11 @@ https://nytimes.com/2024/04/13/business/dealbook/pga-liv-golf-masters.html
 https://nytimes.com/2024/04/13/books/read-like-wind-recommendations.html
 
 **Witnesses to Sydney Mall Stabbing Describe Harrowing Scenes**\
-`People who were present at the scene told of sheltering in place or giving first aid to victims of a man who ran at people with a knife.`\
+`People who were at the scene told of chaos, screaming, wounded victims and a resolute attacker. Many struggled to process the shock hours afterward.`\
 https://nytimes.com/2024/04/13/world/australia/witness-sydney-mall-attack.html
 
 **Cable Car Drops Passengers Onto Mountain in Turkey, Killing One**\
-`Scores of people were stranded, some for as long as 19 hours, after an accident on a rocky hillside above the city of Antalya.`\
+`Scores of people were stranded, some overnight, after an accident on a rocky hillside above the city of Antalya.`\
 https://nytimes.com/2024/04/13/world/europe/cable-car-accident-turkey.html
 
 **Too Soon?**\

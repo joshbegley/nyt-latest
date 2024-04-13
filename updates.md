@@ -1,3 +1,11 @@
+**Witnesses to Sydney Mall Stabbing Describe Harrowing Scenes**\
+`People who were at the scene told of chaos, screaming, wounded victims and a resolute attacker. Many struggled to process the shock hours afterward.`\
+https://nytimes.com/2024/04/13/world/australia/witness-sydney-mall-attack.html
+
+**Cable Car Drops Passengers Onto Mountain in Turkey, Killing One**\
+`Scores of people were stranded, some overnight, after an accident on a rocky hillside above the city of Antalya.`\
+https://nytimes.com/2024/04/13/world/europe/cable-car-accident-turkey.html
+
 **Mall Attack Was Australia’s Worst Mass Violence in Years**\
 `Saturday’s stabbing attack in Sydney horrified a country not used to such acts.`\
 https://nytimes.com/2024/04/13/world/australia/mall-stabbings-mass-violence.html
