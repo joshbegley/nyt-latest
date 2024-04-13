@@ -1,3 +1,7 @@
+**At Least 1 Person Shot and Several Stabbed at Mall in Sydney**\
+`Police evacuated the mall at a busy Bondi Junction, a major commercial area in eastern Sydney, on Saturday afternoon.`\
+https://nytimes.com/2024/04/13/world/australia/sydney-shooting-stabbing-westfield-mall.html
+
 **Protests, Traffic, Crowds: Court Braces for a Trump Trial Like No Other**\
 `Strict security measures — and plenty of headaches — are expected as the first criminal trial of a former U.S. president gets underway in Manhattan.`\
 https://nytimes.com/2024/04/13/nyregion/trump-criminal-trial-protests.html
@@ -30,11 +34,7 @@ https://nytimes.com/2024/04/13/nyregion/how-a-raunchy-lounge-singer-spends-his-s
 `The city’s noise code has limited the use of vehicle horns for almost a century. Enforcing the law is another matter.`\
 https://nytimes.com/2024/04/13/nyregion/honking-horn-illegal-nyc.html
 
-**Pittsburgh Bridge Shut as Barges Break Loose on Ohio River**\
+**Pittsburgh Shuts Bridge as Barges Break Loose on Ohio River**\
 `The authorities were searching for the barges near the McKees Rocks Bridge as a flood warning was active in Allegheny County.`\
 https://nytimes.com/2024/04/13/us/mckees-rocks-bridge-pittsburgh-barge.html
-
-**China Had a ‘Special Place’ in Modi’s Heart. Now It’s a Thorn in His Side.**\
-`As Narendra Modi seeks a third term as prime minister, India’s rupture with China looms over a pillar of his campaign: making his country a major power.`\
-https://nytimes.com/2024/04/13/world/asia/india-china-modi.html
 

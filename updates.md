@@ -1,3 +1,11 @@
+**At Least 1 Person Shot and Several Stabbed at Mall in Sydney**\
+`Police evacuated the mall at a busy Bondi Junction, a major commercial area in eastern Sydney, on Saturday afternoon.`\
+https://nytimes.com/2024/04/13/world/australia/sydney-shooting-stabbing-westfield-mall.html
+
+**Pittsburgh Shuts Bridge as Barges Break Loose on Ohio River**\
+`The authorities were searching for the barges near the McKees Rocks Bridge as a flood warning was active in Allegheny County.`\
+https://nytimes.com/2024/04/13/us/mckees-rocks-bridge-pittsburgh-barge.html
+
 **Protests, Traffic, Crowds: Court Braces for a Trump Trial Like No Other**\
 `Strict security measures — and plenty of headaches — are expected as the first criminal trial of a former U.S. president gets underway in Manhattan.`\
 https://nytimes.com/2024/04/13/nyregion/trump-criminal-trial-protests.html
