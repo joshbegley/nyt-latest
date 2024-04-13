@@ -1,3 +1,7 @@
+**Stacks of Cash at Menendez Home Were Not From His Bank, Prosecutors Say**\
+`The senator has said that money found in his house was from his own savings account. But prosecutors submitted evidence that at least $80,000 came “from another person.”`\
+https://nytimes.com/2024/04/13/nyregion/menendez-cash-bank.html
+
 **Representing the U.S. and Critiquing It in a Psychedelic Rainbow**\
 `Jeffrey Gibson’s history-making turn at the Venice Biennale brings the gay and Native American artist center stage with works of struggle and freedom.`\
 https://nytimes.com/2024/04/13/arts/design/jeffrey-gibson-venice-biennale.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/13/us/politics/kritenbrink-china.html
 **Biden returns to White House as Israel braces for Iranian aerial strikes.**\
 `By Michael D. Shear, Aaron Boxerman and Eric Schmitt`\
 https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/biden-returns-to-white-house-as-israel-braces-for-iranian-retaliation
-
-**The Sydney Mall Stabbing Rampage: What We Know**\
-`The attack happened in a busy center for tourists and beachgoers in the Eastern Suburbs, an affluent area of Sydney.`\
-https://nytimes.com/2024/04/13/world/australia/sydney-mall-stabbing-what-happened.html
 
