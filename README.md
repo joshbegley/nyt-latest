@@ -1,3 +1,15 @@
+**There have been several ‘violent riots’ in the area, the Israeli military said.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/04/13/world/israel-gaza-war-news-hamas/there-have-been-several-violent-riots-in-the-area-the-israeli-military-said
+
+**13mideast-crisis**\
+`Israeli Settlers Riot in West Bank, and a Palestinian Man Is Killed`\
+https://nytimes.com/live/2024/04/13/world/israel-gaza-war-news-hamas
+
+**Golf’s Big Deal Veers Off Course**\
+`The Masters tournament should be all about sport, but the unresolved fight between the PGA Tour and LIV Golf looms over the competition.`\
+https://nytimes.com/2024/04/13/business/dealbook/pga-liv-golf-masters.html
+
 **2 Books About Other People’s Money**\
 `A tax manifesto by Edmund Wilson and a money-themed story collection.`\
 https://nytimes.com/2024/04/13/books/read-like-wind-recommendations.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/13/opinion/israel-military-aid.html
 **We Must Address New York City’s Mental Health Crisis**\
 `Mental illness isn’t a crime, and jail isn’t the answer for those experiencing it.`\
 https://nytimes.com/2024/04/13/opinion/bragg-mental-health-new-york.html
-
-**You Don’t Have to Take Every Tax Deduction, and You Shouldn’t**\
-`Many exemptions are very hard, perhaps impossibly hard, to defend on either practical or moral grounds.`\
-https://nytimes.com/2024/04/13/opinion/taxes-deductions-rich-inequality.html
-
-**Who Cares if Supreme Court Justices Get Along?**\
-`What really matters is what the court does or doesn’t do.`\
-https://nytimes.com/2024/04/13/opinion/supreme-court-friends.html
-
-**Harvard Is Bringing Back Standardized Tests. Other Schools Should, Too.**\
-`Emi Nietfeld didn’t have access to lacrosse or advanced placement classes, but she did have standardized tests.`\
-https://nytimes.com/2024/04/13/opinion/harvard-sat-college-admissions.html
 
