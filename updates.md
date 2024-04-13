@@ -1,3 +1,7 @@
+**Faith Ringgold, Who Wove Black Life Into Quilts and Children’s Books, Dies at 93**\
+`A champion of Black artists, she explored themes of race, gender, class, family and community through a vast array of media and later the written word.`\
+https://nytimes.com/2024/04/13/arts/faith-ringgold-dead.html
+
 **Biden returns to White House as Israel braces for Iranian aerial strikes.**\
 `By Michael D. Shear, Aaron Boxerman and Eric Schmitt`\
 https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/biden-returns-to-white-house-as-israel-braces-for-iranian-retaliation
