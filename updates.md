@@ -1,3 +1,7 @@
+**Mall Attack Was Australia’s Worst Mass Violence in Years**\
+`Saturday’s stabbing attack in Sydney horrified a country not used to such acts.`\
+https://nytimes.com/2024/04/13/world/australia/mall-stabbings-mass-violence.html
+
 **As ‘Sex and the City’ Ages, Some Find the Cosmo Glass Half-Empty**\
 `As the show became more widely available on Netflix, younger viewers have watched it with a critical eye. But its longtime millennial and Gen X fans can’t quit.`\
 https://nytimes.com/2024/04/13/arts/television/sex-and-the-city-netflix.html
