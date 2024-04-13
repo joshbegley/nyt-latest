@@ -1,3 +1,7 @@
+**Inside Donald Trump’s Embrace of the Jan. 6 Rioters**\
+`The former president initially disavowed the attack on the Capitol, but he is now making it a centerpiece of his general election campaign.`\
+https://nytimes.com/2024/04/13/us/politics/trump-jan-6.html
+
 **Four South Dakota Tribes Bar Gov. Kristi Noem, Trump V.P. Contender, From Lands**\
 `The tribes barred the Republican governor from their reservations after she told lawmakers that Mexican drug cartels had a foothold there and were committing murders.`\
 https://nytimes.com/2024/04/13/us/politics/kristi-noem-south-dakota-tribes.html
