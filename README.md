@@ -1,7 +1,3 @@
-**Trump will hold a rally in Pennsylvania, his last before his New York criminal trial begins.**\
-`By Chris Cameron`\
-https://nytimes.com/2024/04/13/us/politics/trump-will-hold-a-rally-in-pennsylvania-his-last-before-his-new-york-criminal-trial-begins.html
-
 **Mall Attack Was Australia’s Worst Mass Violence in Years**\
 `Saturday’s stabbing attack in Sydney horrified a country not used to such acts.`\
 https://nytimes.com/2024/04/13/world/australia/mall-stabbings-mass-violence.html
@@ -31,10 +27,14 @@ https://nytimes.com/2024/04/13/books/read-like-wind-recommendations.html
 https://nytimes.com/2024/04/13/world/australia/witness-sydney-mall-attack.html
 
 **Cable Car Drops Passengers Onto Mountain in Turkey, Killing One**\
-`Scores of people were stranded, some for as long as 19 hours, after an accident on a rocky hillside above the city of Antalya.`\
+`Scores of people were stranded, some overnight, after an accident on a rocky hillside above the city of Antalya.`\
 https://nytimes.com/2024/04/13/world/europe/cable-car-accident-turkey.html
 
 **Too Soon?**\
 `A look back at O.J. Simpson’s attempt to reboot his media career, and more stories.`\
 https://nytimes.com/2024/04/13/podcasts/this-american-life-too-soon.html
+
+**Why Can’t Biden Triangulate Like Trump?**\
+`There’s a difference between being aware of your base and being its prisoner.`\
+https://nytimes.com/2024/04/13/opinion/biden-trump-voter-base.html
 
