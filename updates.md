@@ -1,3 +1,7 @@
+**Hudson Yards ‘Vessel’ Sculpture Will Reopen With Netting After Suicides**\
+`The 150-foot-high tourist attraction, which closed in 2021, will be fitted with steel mesh to stop people from jumping.`\
+https://nytimes.com/2024/04/13/nyregion/towering-vessel-sculpture-at-hudson-yards-will-reopen-after-suicides.html
+
 **Here are the latest developments.**\
 `By Aaron Boxerman, Ronen Bergman, Farnaz Fassihi and Eric Nagourney`\
 https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/iran-israel-attack
