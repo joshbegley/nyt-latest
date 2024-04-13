@@ -1,3 +1,23 @@
+**Protests, Traffic, Crowds: Court Braces for a Trump Trial Like No Other**\
+`Strict security measures — and plenty of headaches — are expected as the first criminal trial of a former U.S. president gets underway in Manhattan.`\
+https://nytimes.com/2024/04/13/nyregion/trump-criminal-trial-protests.html
+
+**The Connections Companion No. 307**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/13/crosswords/connections-companion.html
+
+**$17,000 to Watch the Masters? How Sports Entice Deep-Pocketed Fans.**\
+`Teams, leagues and event organizers are pursuing enthusiasts with the promise of luxury and exclusivity, in hopes of bigger profits and lasting loyalty.`\
+https://nytimes.com/2024/04/13/business/masters-map-and-flag-luxury-fans.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/13/crosswords/wordle-review.html
+
+**How a Reality TV Show Turned the U.F.C. From Pariah to Juggernaut**\
+`The Ultimate Fighting Championship, whose 300th numbered pay-per-view fight card is this weekend, was once effectively banned on television because of its violence.`\
+https://nytimes.com/2024/04/13/arts/television/ufc-300-ultimate-fighter.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/04/13/crosswords/spelling-bee-forum.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/04/13/us/mckees-rocks-bridge-pittsburgh-barge.html
 **China Had a ‘Special Place’ in Modi’s Heart. Now It’s a Thorn in His Side.**\
 `As Narendra Modi seeks a third term as prime minister, India’s rupture with China looms over a pillar of his campaign: making his country a major power.`\
 https://nytimes.com/2024/04/13/world/asia/india-china-modi.html
-
-**In the Nigeria Pavilion, Criticism Meets Optimism**\
-`The group show “Nigeria Imaginary” will be one of the most ambitious African presentations ever at the Venice Biennale.`\
-https://nytimes.com/2024/04/13/arts/design/venice-bienniale-nigeria-pavilion.html
-
-**A Perpetual Bridesmaid Gets the Crown, and Germany (Mostly) Likes the Look**\
-`Bayer Leverkusen can win its first Bundesliga title this weekend. For its rivals, the real joy comes in seeing Bayern Munich lose it.`\
-https://nytimes.com/2024/04/13/world/europe/bayer-leverkuson-bayern-munich-bundesliga.html
-
-**Corrections: April 13, 2024**\
-`Corrections that appeared in print on Saturday, April 13, 2024.`\
-https://nytimes.com/2024/04/13/pageoneplus/corrections-april-13-2024.html
-
-**Quotation of the Day: Coffee Means Connection, Even in War**\
-`Quotation of the Day for Saturday, April 13, 2024.`\
-https://nytimes.com/2024/04/13/pageoneplus/quotation-of-the-day-coffee-means-connection-even-in-war.html
-
-**New Zealanders Are Crazy for This Fruit. It’s Not the Kiwi.**\
-`Like the kiwi fruit, the feijoa, or pineapple guava, is not native to the island nation, but it has become something of a national obsession.`\
-https://nytimes.com/2024/04/12/world/australia/new-zealand-feioja-kiwis.html
 
