@@ -1,3 +1,7 @@
+**Four South Dakota Tribes Bar Gov. Kristi Noem, Trump V.P. Contender, From Lands**\
+`The tribes barred the Republican governor from their reservations after she told lawmakers that Mexican drug cartels had a foothold there and were committing murders.`\
+https://nytimes.com/2024/04/13/us/politics/kristi-noem-south-dakota-tribes.html
+
 **State Dept. Is Sending Its Top Diplomat for East Asia to China**\
 `The announcement comes days after President Biden met jointly with the leaders of Japan and the Philippines to discuss Chinese aggression in the Indo-Pacific region.`\
 https://nytimes.com/2024/04/13/us/politics/kritenbrink-china.html

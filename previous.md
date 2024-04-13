@@ -1,3 +1,7 @@
+**Four South Dakota Tribes Bar Gov. Kristi Noem, Trump V.P. Contender, From Lands**\
+`The tribes barred the Republican governor from their reservations after she told lawmakers that Mexican drug cartels had a foothold there and were committing murders.`\
+https://nytimes.com/2024/04/13/us/politics/kristi-noem-south-dakota-tribes.html
+
 **State Dept. Is Sending Its Top Diplomat for East Asia to China**\
 `The announcement comes days after President Biden met jointly with the leaders of Japan and the Philippines to discuss Chinese aggression in the Indo-Pacific region.`\
 https://nytimes.com/2024/04/13/us/politics/kritenbrink-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/13/style/oj-simpson-murder-book-interview-if-i-did-i
 **Fritz Peterson, Yankee Pitcher in an Unusual ‘Trade,’ Dies at 82**\
 `He was a leading light on an undistinguished team. But he became known less for his achievement on the field than for exchanging wives with a teammate.`\
 https://nytimes.com/2024/04/13/sports/baseball/fritz-peterson-dead.html
-
-**The Israeli military shifts its focus to the central Gaza Strip.**\
-`By Hiba Yazbek and Abu Bakr Bashir`\
-https://nytimes.com/live/2024/04/13/world/israel-gaza-war-news-hamas/the-israeli-military-shifts-its-focus-to-the-central-gaza-strip
 
