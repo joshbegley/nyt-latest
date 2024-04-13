@@ -1,40 +1,40 @@
-**Finding Comfort in a Haircut**\
-`A good cut is hard to find no matter where you live. But some hairstylists know it holds more weight for their transgender clients.`\
-https://nytimes.com/2024/04/13/style/transgender-hair-care.html
+**Bowen Yang Thinks This Artist Nails What It’s Like Living in New York**\
+`The “S.N.L.” comedian talked about his Audible series “Hot White Heist” and solitude — a state of being he senses in Edward Hopper’s paintings.`\
+https://nytimes.com/2024/04/13/arts/television/bowen-yang-snl-hot-white-heist.html
 
-**A Modern California Dream, Still Haunted by Hippie Darkness**\
-`Cult leaders, curdled 1960s idealism and outsider art collide in Max Ludington’s prismatic novel, “Thorn Tree.”`\
-https://nytimes.com/2024/04/13/books/review/thorn-tree-max-ludington.html
+**What if K-Pop Stars Are Actually Just Like Us?**\
+`In the debut novel “The Band,” a burned-out pop idol meets a disillusioned professor, raising the question: What if the dangers of fame resemble white-collar ennui?`\
+https://nytimes.com/2024/04/13/books/review/the-band-christine-ma-kellams.html
 
-**You Ask, We Answer: How The Times/Siena Poll Is Conducted**\
-`The New York Times/Siena College Poll has earned a reputation for accuracy and transparency. But as with any poll, there are limits to just how much you can derive.`\
-https://nytimes.com/article/times-siena-poll-methodology.html
+**British Watch Brands Have Their Day**\
+`The Alliance of British Watch and Clock Makers, which organized the fair, said it was the first of its kind in the country.`\
+https://nytimes.com/2024/04/13/fashion/british-watch-fair-london.html
 
-**13sydney-shooting**\
-`At Least 5 Killed in Stabbing at Mall in Australia`\
-https://nytimes.com/live/2024/04/13/world/sydney-attack-mall-westfield
+**‘Civil War’ Is Designed to Disturb You**\
+`Here’s why you should watch it anyway.`\
+https://nytimes.com/2024/04/13/podcasts/civil-war-is-designed-to-disturb-you.html
 
-**Here’s what you need to know.**\
-`The attacker was shot and killed by a lone police officer who was directed into the mall by people fleeing the scene at Bondi Junction, a major commercial area in eastern Sydney.`\
-https://nytimes.com/live/2024/04/13/world/sydney-attack-mall-westfield/sydney-shooting-stabbing-westfield-mall
+**A.I. Made These Movies Sharper. Critics Say It Ruined Them.**\
+`Machine-learning technologies are being used in film restoration for new home video releases. But some viewers strongly dislike the results.`\
+https://nytimes.com/2024/04/13/movies/ai-blu-ray-true-lies.html
 
-**Protests, Traffic, Crowds: Court Braces for a Trump Trial Like No Other**\
-`Strict security measures — and plenty of headaches — are expected as the first criminal trial of a former U.S. president gets underway in Manhattan.`\
-https://nytimes.com/2024/04/13/nyregion/trump-criminal-trial-protests.html
+**An Industry Veteran Drew on Family History to Create a Brand**\
+`Neil Duckworth designs watches that have a distinctly vintage feel at a price “I would spend myself.”`\
+https://nytimes.com/2024/04/13/fashion/watches-duckworth-prestex.html
 
-**The Connections Companion No. 307**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/13/crosswords/connections-companion.html
+**D-Day’s 80th Anniversary Inspires Watches**\
+`Commemorative pieces include a steel model similar to a British wartime watch and one with Normandy beach sand in its crown.`\
+https://nytimes.com/2024/04/13/fashion/watches-d-day-80th-anniversary.html
 
-**$17,000 to Watch the Masters? How Sports Entice Deep-Pocketed Fans.**\
-`Teams, leagues and event organizers are pursuing enthusiasts with the promise of luxury and exclusivity, in hopes of bigger profits and lasting loyalty.`\
-https://nytimes.com/2024/04/13/business/masters-map-and-flag-luxury-fans.html
+**Fragrance and a Watch Strap**\
+`Move your wrist, and scent suddenly surrounds you. Vacheron Constantin and a Paris couturier have created a strap embedded with microcapsules of perfume.`\
+https://nytimes.com/2024/04/13/fashion/watch-strap-perfume-vacheron-constantin.html
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/13/crosswords/wordle-review.html
+**It’s Not Just a Wedding Cake, It’s ‘Edible Haute Couture’**\
+`Bastien Tailleur-Blanc, a luxury cake designer based in Paris, creates opulent confections for high-profile clients, including European royalty and American socialites.`\
+https://nytimes.com/2024/04/13/style/wedding-cake-art-bastien-blanc-tailleur.html
 
-**How a Reality TV Show Turned the U.F.C. From Pariah to Juggernaut**\
-`The Ultimate Fighting Championship, whose 300th numbered pay-per-view fight card is this weekend, was once effectively banned on television because of its violence.`\
-https://nytimes.com/2024/04/13/arts/television/ufc-300-ultimate-fighter.html
+**In a Global Cycling Capital, Riders Fear Becoming Crime Victims**\
+`In Bogotá, a city with more than 1.1 million bicycles and a strong riding culture, a number of high-profile crimes have rattled cyclists.`\
+https://nytimes.com/2024/04/13/world/americas/colombia-bogota-cycling-crime.html
 
