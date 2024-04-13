@@ -34,7 +34,7 @@ https://nytimes.com/2024/04/13/nyregion/how-a-raunchy-lounge-singer-spends-his-s
 `The city’s noise code has limited the use of vehicle horns for almost a century. Enforcing the law is another matter.`\
 https://nytimes.com/2024/04/13/nyregion/honking-horn-illegal-nyc.html
 
-**Pittsburgh Bridge Shut as Barges Break Loose on Ohio River**\
+**Pittsburgh Shuts Bridge as Barges Break Loose on Ohio River**\
 `The authorities were searching for the barges near the McKees Rocks Bridge as a flood warning was active in Allegheny County.`\
 https://nytimes.com/2024/04/13/us/mckees-rocks-bridge-pittsburgh-barge.html
 
