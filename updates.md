@@ -1,3 +1,15 @@
+**What Are the Stakes of ‘Civil War,’ Really?**\
+`Alex Garland’s new film is most interested in the experience of living through an armed conflict.`\
+https://nytimes.com/2024/04/13/opinion/civil-war-alex-garland.html
+
+**Banana Bread, Always and Forever**\
+`As long as we have bananas that go brown, we will have Julia Moskin’s perfect banana bread.`\
+https://nytimes.com/2024/04/13/dining/banana-bread-always-and-forever.html
+
+**Lawmaker Presses Luxury Designer After Reports of Exploiting Indigenous Workers**\
+`A freshman congressman is demanding answers from the fashion house Loro Piana, which sources wool from his native Peru and faces accusations of exploiting workers there.`\
+https://nytimes.com/2024/04/13/us/politics/garcia-loro-piana-vuitton-indigenous-peru.html
+
 **Iran Seizes Commercial Ship Linked to Israel**\
 `Directly and through proxy groups like the Houthis in Yemen, Iran has been disrupting commercial shipping in the Persian Gulf for years.`\
 https://nytimes.com/2024/04/13/world/middleeast/iran-seizes-ship-israel-hormuz.html
