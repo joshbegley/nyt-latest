@@ -1,3 +1,7 @@
+**Towering ‘Vessel’ Sculpture at Hudson Yards Will Reopen After Suicides**\
+`The 150-foot-high tourist attraction, which closed in 2021, will be fitted with mesh to reduce the risk of suicides.`\
+https://nytimes.com/2024/04/13/nyregion/towering-vessel-sculpture-at-hudson-yards-will-reopen-after-suicides.html
+
 **Inside Donald Trump’s Embrace of the Jan. 6 Rioters**\
 `The former president initially disavowed the attack on the Capitol, but he is now making it a centerpiece of his general election campaign.`\
 https://nytimes.com/2024/04/13/us/politics/trump-jan-6.html
