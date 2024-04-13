@@ -1,3 +1,7 @@
+**N.Y.P.D. Commissioner Won’t Punish Officers in Bronx Man’s Killing**\
+`The officers, Brendan Thompson and Herbert Davis, were previously cleared of criminal wrongdoing in the fatal 2019 shooting of Kawaski Trawick.`\
+https://nytimes.com/2024/04/12/nyregion/kawaski-trawick-nypd-bronx.html
+
 **Johnson Floats Voting on Senate Ukraine Bill, With Conservative Policies as Sweeteners**\
 `The Republican speaker has weighed bringing up a $95 billion Senate-passed bill to aid Ukraine and Israel in tandem with a separate package geared toward mollifying G.O.P. critics.`\
 https://nytimes.com/2024/04/12/us/politics/johnson-senate-ukraine-aid.html
