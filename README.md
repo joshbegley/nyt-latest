@@ -1,3 +1,7 @@
+**Too Soon?**\
+`A look back at O.J. Simpson’s attempt to reboot his media career, and more stories.`\
+https://nytimes.com/2024/04/13/podcasts/this-american-life-too-soon.html
+
 **Why Can’t Biden Triangulate Like Trump?**\
 `There’s a difference between being aware of your base and being its prisoner.`\
 https://nytimes.com/2024/04/13/opinion/biden-trump-voter-base.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/13/opinion/first-generation-bilingual-language.html
 **Open Letters Are Cries in the Dark**\
 `The open letter, as a genre, is far too limited. We speak with conviction, and then what?`\
 https://nytimes.com/2024/04/13/opinion/open-letters.html
-
-**The Gen Z Crossword Era**\
-`Solving a crossword puzzle today feels more like a spirited conversation with modern culture.`\
-https://nytimes.com/2024/04/13/briefing/the-gen-z-crossword-era.html
 
