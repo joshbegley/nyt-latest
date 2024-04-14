@@ -1,3 +1,7 @@
+**Leaders in Europe and the Middle East call for restraint after the attack.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/leaders-in-europe-and-the-middle-east-call-for-restraint-after-the-attack
+
 **What We Know About Iran’s Attack on Israel**\
 `Tehran fired hundreds of drones and missiles in what was believed to be its first direct assault on Israel after years of a shadow war.`\
 https://nytimes.com/2024/04/14/world/middleeast/iran-israel-drones-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/podcasts/the-daily/national-enquirer-donald-trump
 **Immigrant Detention Should Have No Place in Our Society**\
 `The nation’s detention and prison systems have grown side by side, buttressed by the same logic and practice.`\
 https://nytimes.com/2024/04/14/opinion/immigration-detention-prison.html
-
-**Stormy Daniels and the Comeuppance of Donald Trump**\
-`Trump has long treated women as objects, targets, supplicants. I suspect he never thought they would be the ones to hold him accountable.`\
-https://nytimes.com/2024/04/14/opinion/trump-trial-stormy-daniels.html
 
