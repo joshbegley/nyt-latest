@@ -1,3 +1,7 @@
+**Biden Seeks to Head Off Escalation After Israel’s Successful Defense**\
+`The president told Israel that the interception of nearly all of the Iranian drones and missiles used to attack it constituted a major victory, and so further retaliation may not be necessary, U.S. officials said.`\
+https://nytimes.com/2024/04/14/world/middleeast/biden-netanyahu-israel-iran-strikes.html
+
 **What Weapons Did Israel Use to Block Iran’s Attack?**\
 `Israel’s Iron Dome defense system intercepts rockets that fly in high arcs, while its Arrow 3 system can stop ballistic missiles outside the atmosphere.`\
 https://nytimes.com/2024/04/14/world/europe/israel-iron-dome-defense.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/us/arizona-abortion-women.html
 **As Trump Ponders V.P. Contenders, He Asks: Can They Help Me Raise Cash?**\
 `Donald Trump’s concerns about money may have entered his vice-presidential calculations, along with political considerations and which contenders he likes the look of.`\
 https://nytimes.com/2024/04/14/us/politics/trump-vice-president-pick.html
-
-**Lincoln’s Murder Is Often Re-enacted, but Not at Ford’s Theater**\
-`The theater says that allowing the assassination to be recreated there would undermine the gravity and significance of Abraham Lincoln’s death.`\
-https://nytimes.com/2024/04/14/theater/fords-theater-lincoln-murder-re-enactment.html
 
