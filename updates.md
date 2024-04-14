@@ -1,3 +1,7 @@
+**Israelis begin a return to calm, anxious about how their government will respond.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/israelis-begin-a-return-to-calm-anxious-about-how-its-government-will-respond
+
 **A consultant for R.F.K. Jr. attacked a Black ally of Trump in a homophobic post.**\
 `The post by Angela Stanton-King targeting Diante Johnson, founder of the Black Conservative Federation, was removed from social media.`\
 https://nytimes.com/live/2024/04/14/us/biden-trump-election/a-consultant-for-rfk-jr-attacked-a-black-ally-of-trump-in-a-homophobic-post
