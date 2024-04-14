@@ -1,3 +1,7 @@
+**At Carnegie Hall, Weimar Is Irresistible but Vaguely Defined**\
+`Carnegie’s intermittently illuminating festival “Fall of the Weimar Republic” has suffered from interjections of too much standard repertory.`\
+https://nytimes.com/2024/04/14/arts/music/weimar-festival-carnegie-hall.html
+
 **American Pizazz Meets the Staid Traditions of Sumo**\
 `At Madison Square Garden, New Yorkers got a rare look at an ancient Japanese sport, cheering and booing as though they were watching a Yankees game.`\
 https://nytimes.com/2024/04/14/sports/sumo-wrestling-madison-square-garden-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/arts/music/rico-wade-dead.html
 **Some Israeli officials call for a tough response, while others urge restraint.**\
 `By Adam Sella`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/some-israeli-officials-call-for-a-tough-response-while-others-urge-restraint
-
-**Do You Have a Family Story That Defines Who You Are?**\
-`History isn’t just learned through textbooks; everybody has a story, big or small, that tells us about America.`\
-https://nytimes.com/2024/04/14/opinion/family-stories-history-generations.html
 

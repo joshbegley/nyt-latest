@@ -1,3 +1,7 @@
+**At Carnegie Hall, Weimar Is Irresistible but Vaguely Defined**\
+`Carnegie’s intermittently illuminating festival “Fall of the Weimar Republic” has suffered from interjections of too much standard repertory.`\
+https://nytimes.com/2024/04/14/arts/music/weimar-festival-carnegie-hall.html
+
 **American Pizazz Meets the Staid Traditions of Sumo**\
 `At Madison Square Garden, New Yorkers got a rare look at an ancient Japanese sport, cheering and booing as though they were watching a Yankees game.`\
 https://nytimes.com/2024/04/14/sports/sumo-wrestling-madison-square-garden-nyc.html
