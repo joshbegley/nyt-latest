@@ -1,3 +1,7 @@
+**Iran Attack Tests Netanyahu’s Political Staying Power**\
+`In a deeply polarized country that has again come under attack, Prime Minister Benjamin Netanyahu’s fate may depend on what happens next.`\
+https://nytimes.com/2024/04/14/world/middleeast/israel-netanyahu-iran-attack.html
+
 **At Carnegie Hall, Weimar Is Irresistible but Vaguely Defined**\
 `Carnegie’s intermittently illuminating festival “Fall of the Weimar Republic” has suffered from interjections of too much standard repertory.`\
 https://nytimes.com/2024/04/14/arts/music/weimar-festival-carnegie-hall.html
