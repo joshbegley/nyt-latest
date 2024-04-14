@@ -1,3 +1,7 @@
+**Strikes Upend Israel’s Belief About Iran’s Willingness to Fight It Directly**\
+`Israel had grown used to targeting Iranian officials without head-on retaliation from Iran, an assumption overturned by Iran’s attacks on Saturday.`\
+https://nytimes.com/2024/04/14/world/middleeast/iran-strikes-israel-directly-upending-expectations.html
+
 **The Beautiful World of Birding**\
 `Readers discuss the hobby’s many benefits. Also: Friends in the court; politicians’ health; testing the candidates; banning plastic foam.`\
 https://nytimes.com/2024/04/14/opinion/birding.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/irans-leader
 **The Atmosphere of the ‘Manosphere’ Is Toxic**\
 `Struggling men need to leave the gurus behind.`\
 https://nytimes.com/2024/04/14/opinion/men-virtue-tate-peterson-rogan.html
-
-**Leaders in Europe and the Middle East call for restraint after the attack.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/leaders-in-europe-and-the-middle-east-call-for-restraint-after-the-attack
 
