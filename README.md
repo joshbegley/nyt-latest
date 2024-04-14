@@ -1,3 +1,7 @@
+**Rico Wade, an Architect of Atlanta Hip-Hop, Dies at 52**\
+`As one-third of the production team Organized Noize, Wade nurtured the careers of Outkast, Goodie Mob and Future from the confines of his mother’s basement, known as the Dungeon.`\
+https://nytimes.com/2024/04/14/arts/music/rico-wade-dead.html
+
 **Some Israeli officials call for a tough response, while others urge restraint.**\
 `By Adam Sella`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/some-israeli-officials-call-for-a-tough-response-while-others-urge-restraint
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/learning/whats-going-on-in-this-picture-april-15-
 **Iran Attacks Israel**\
 `What we know about the assault — and what it means.`\
 https://nytimes.com/2024/04/14/briefing/iran-israel-attack.html
-
-**Biden Seeks to Head Off Escalation After Israel’s Successful Defense**\
-`The president told Israel that the interception of nearly all of the Iranian drones and missiles used to attack it constituted a major victory, and so further retaliation may not be necessary, U.S. officials said.`\
-https://nytimes.com/2024/04/14/world/middleeast/biden-netanyahu-israel-iran-strikes.html
 
