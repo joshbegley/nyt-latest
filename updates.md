@@ -1,3 +1,7 @@
+**An Unexpected Player in Israel’s Defense: Jordan, Home to Many Palestinians**\
+`The Arab kingdom said it took military action to defend its territory against Iranian drone and missile strikes. Critics assailed the country as having helped defend Israel.`\
+https://nytimes.com/2024/04/14/world/middleeast/jordan-israel-iran-drones.html
+
 **Rico Wade, an Architect of Atlanta Hip-Hop, Dies at 52**\
 `As one-third of the production team Organized Noize, Wade nurtured the careers of Outkast, Goodie Mob and Future from the confines of his mother’s basement, known as the Dungeon.`\
 https://nytimes.com/2024/04/14/arts/music/rico-wade-dead.html
