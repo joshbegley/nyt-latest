@@ -1,3 +1,7 @@
+**The G7 condemns Iran’s attack on Israel, as E.U. leaders urge restraint from all parties.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/the-g7-condemns-irans-attack-on-israel-as-eu-leaders-urge-restraint-from-all-parties
+
 **Monday Briefing: Israel Weighs a Response to Iran**\
 `Also, the Australian authorities are searching for a motive in the deadly stabbing attack.`\
 https://nytimes.com/2024/04/14/world/asia/israel-iran-attack-australia-asia.html
