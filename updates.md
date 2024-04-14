@@ -1,3 +1,7 @@
+**The Beautiful World of Birding**\
+`Readers discuss the hobby’s many benefits. Also: Friends in the court; politicians’ health; testing the candidates; banning plastic foam.`\
+https://nytimes.com/2024/04/14/opinion/birding.html
+
 **Spring Cleaning to Refresh; Bacon and Egg Don to Comfort**\
 `Eric Kim’s recipe combines soft scrambled eggs, crisped bacon and furikake-flecked rice for a fantastic breakfast-for-dinner dish.`\
 https://nytimes.com/2024/04/14/dining/spring-cleaning-to-refresh-bacon-and-egg-don-to-comfort.html
