@@ -1,3 +1,7 @@
+**News Outlets Urge Trump and Biden to Commit to Presidential Debates**\
+`In an unusual statement, the news organizations said “there is simply no substitute” for a face-to-face debate, a campaign staple since 1976.`\
+https://nytimes.com/2024/04/14/business/media/networks-presidential-debates.html
+
 **An Unexpected Player in Israel’s Defense: Jordan, Home to Many Palestinians**\
 `The Arab kingdom said it took military action to defend its territory against Iranian drone and missile strikes. Critics assailed the country as having helped defend Israel.`\
 https://nytimes.com/2024/04/14/world/middleeast/jordan-israel-iran-drones.html
