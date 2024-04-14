@@ -1,40 +1,40 @@
-**After Stabbing Rampage, Australia Struggles With Questions of How and Why**\
-`The police have yet to determine a motive for Saturday’s attack, which left six people dead, but said the assailant suffered from mental health problems.`\
-https://nytimes.com/2024/04/14/world/australia/bondi-stabbing-why-how.html
+**How Women at One Arizona Clinic Are Grappling With the Abortion Ruling**\
+`Inside Acacia Women’s Center, patients described a mix of fear, anger and anxiety after the State Supreme Court’s decision to reinstate a law that bans nearly all abortions.`\
+https://nytimes.com/2024/04/14/us/arizona-abortion-women.html
 
-**As Trial Looms, Trump Plays to a Jury of Millions**\
-`Donald J. Trump and his lawyers realize his chances in the courtroom are dicey. He intends to make whatever transpires a political triumph.`\
-https://nytimes.com/2024/04/14/nyregion/as-trial-looms-trump-plays-to-a-jury-of-millions.html
+**As Trump Ponders V.P. Contenders, He Asks: Can They Help Me Raise Cash?**\
+`Donald Trump’s concerns about money may have entered his vice-presidential calculations, along with political considerations and which contenders he likes the look of.`\
+https://nytimes.com/2024/04/14/us/politics/trump-vice-president-pick.html
 
-**At the Masters, Champions Past, Present and Future**\
-`Golf enthusiasts regard a trip to the Masters Tournament as the stuff of dreams. Here are photos from this year’s tournament.`\
-https://nytimes.com/2024/04/14/sports/golf/masters-sunday-golf.html
+**Lincoln’s Murder Is Often Re-enacted, but Not at Ford’s Theater**\
+`The theater says that allowing the assassination to be recreated there would undermine the gravity and significance of Abraham Lincoln’s death.`\
+https://nytimes.com/2024/04/14/theater/fords-theater-lincoln-murder-re-enactment.html
 
-**A Portrait Fit for a Publisher**\
-`Arthur Ochs Sulzberger Jr. steered The Times during an era of great change. His likeness now hangs at the organization’s headquarters.`\
-https://nytimes.com/2024/04/14/insider/a-portrait-fit-for-a-publisher.html
+**Undergarments for the Ultrawealthy**\
+`Cadolle, a maker of corsets favored by designers like John Galliano and labels like Dior, is known for custom underpinnings that can cost thousands of dollars.`\
+https://nytimes.com/2024/04/14/style/corsets-cadolle-designer.html
 
-**The Connections Companion No. 308**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/14/crosswords/connections-companion.html
+**Queer Women Behaving Badly: These Movies Scrap the Coming-Out Story**\
+`“Love Lies Bleeding,” “Bottoms” and “Drive-Away Dolls” are leading a wave of stories about lesbians living their lives, committing crimes along the way.`\
+https://nytimes.com/2024/04/14/movies/lesbian-films-bottoms-love-lies-bleeding-drive-away-dolls.html
 
-**Why Heat Pumps Are the Future, and How Your Home Could Use One**\
-`The highly efficient devices are the darlings of the environmental movement. Here’s why.`\
-https://nytimes.com/2024/04/14/nyregion/heat-pumps-climate-change.html
+**Jan. 6 Obstruction Case at Supreme Court Could Help Trump and Many Others**\
+`The justices will hear arguments on Tuesday in a case that could alter hundreds of prosecutions for the assault on the Capitol and help define its meaning.`\
+https://nytimes.com/2024/04/14/us/politics/trump-supreme-court-jan-6.html
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/14/crosswords/wordle-review.html
+**At Milan Design Week, a Smorgasbord of Tables and Table Toppers**\
+`The annual festival of furnishings and household objects features a variety of items that can be turned into tables.`\
+https://nytimes.com/2024/04/14/arts/design/milan-design-week-tables.html
 
-**‘I Opened the Book App on My Tablet and Began Reading’**\
-`Bonding over Homer on the 1 train, giving a dashboard gift and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/04/14/nyregion/metropolitan-diary.html
+**This Prosecutor Pledged to Change George Floyd’s City. Her Critics Are Circling.**\
+`Mary Moriarty, a former chief public defender, became the top prosecutor in Minneapolis, promising an overhaul. Now she faces criticism, including from fellow Democrats.`\
+https://nytimes.com/2024/04/14/us/minneapolis-prosecutor-george-floyd-moriarty.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/14/crosswords/spelling-bee-forum.html
+**Netflix’s New Film Strategy: More About the Audience, Less About Auteurs**\
+`Dan Lin, the streaming service’s new film chief, wants to produce a more varied slate of movies to better appeal to the array of interests among subscribers.`\
+https://nytimes.com/2024/04/14/business/media/netflix-movies-dan-lin.html
 
-**Israel Faced a Sophisticated Attack From Iran**\
-`The weapons Iran used on Saturday travel farther and are more precise than those Hamas and other allies have used against Israel in the past six months.`\
-https://nytimes.com/2024/04/14/world/middleeast/iran-israel-weapons.html
+**Dana White, Donald Trump and the Rise of Cage-Match Politics**\
+`White, chief executive of the bloody and beloved Ultimate Fighting Championship, has shot to the peak of Trump-era culture and political influence. What does he want?`\
+https://nytimes.com/2024/04/14/business/dana-white-ufc-trump.html
 
