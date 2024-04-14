@@ -1,5 +1,9 @@
+**For Israel, Revenge Should Be a Dish Served Cold**\
+`Israel has the right to retaliate against Iran’s missile barrage. It should bide its time.`\
+https://nytimes.com/2024/04/14/opinion/israel-iran-netanyahu-biden.html
+
 **Iran Just Made a Big Mistake. Israel Shouldn’t Follow.**\
-`There now needs to be a massive, sustained, global initiative to isolate Iran.`\
+`There now needs to be a large, sustained, global initiative to isolate Iran.`\
 https://nytimes.com/2024/04/14/opinion/israel-iran-attack.html
 
 **Sununu Says Trump ‘Contributed’ to Insurrection, but Still Has His Support**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/arts/music/weimar-festival-carnegie-hall.html
 **American Pizazz Meets the Staid Traditions of Sumo**\
 `At Madison Square Garden, New Yorkers got a rare look at an ancient Japanese sport, cheering and booing as though they were watching a Yankees game.`\
 https://nytimes.com/2024/04/14/sports/sumo-wrestling-madison-square-garden-nyc.html
-
-**Israeli airstrikes continue in Gaza after the calmest night there since the war started.**\
-`By Hiba Yazbek and Bilal Shbair`\
-https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/israeli-airstrikes-continue-in-gaza-after-the-calmest-night-there-since-the-war-started
 

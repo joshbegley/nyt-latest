@@ -1,3 +1,11 @@
+**For Israel, Revenge Should Be a Dish Served Cold**\
+`Israel has the right to retaliate against Iran’s missile barrage. It should bide its time.`\
+https://nytimes.com/2024/04/14/opinion/israel-iran-netanyahu-biden.html
+
+**Iran Just Made a Big Mistake. Israel Shouldn’t Follow.**\
+`There now needs to be a large, sustained, global initiative to isolate Iran.`\
+https://nytimes.com/2024/04/14/opinion/israel-iran-attack.html
+
 **Iran Just Made a Big Mistake. Israel Shouldn’t Follow.**\
 `There now needs to be a massive, sustained, global initiative to isolate Iran.`\
 https://nytimes.com/2024/04/14/opinion/israel-iran-attack.html
