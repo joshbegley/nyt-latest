@@ -1,3 +1,7 @@
+**Israeli airstrikes continue in Gaza after the calmest night there since the war started.**\
+`By Hiba Yazbek and Bilal Shbair`\
+https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/israeli-airstrikes-continue-in-gaza-after-the-calmest-night-there-since-the-war-started
+
 **Strikes Upend Israel’s Belief About Iran’s Willingness to Fight It Directly**\
 `Israel had grown used to targeting Iranian officials without head-on retaliation from Iran, an assumption overturned by Iran’s attacks on Saturday.`\
 https://nytimes.com/2024/04/14/world/middleeast/iran-strikes-israel-analysis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/opinion/family-stories-history-generations.html
 **Iran’s leaders say their retaliation is over, unless Israel strikes back.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/irans-leaders-say-their-retaliation-is-over-unless-israel-strikes-back
-
-**The Atmosphere of the ‘Manosphere’ Is Toxic**\
-`Struggling men need to leave the gurus behind.`\
-https://nytimes.com/2024/04/14/opinion/men-virtue-tate-peterson-rogan.html
 

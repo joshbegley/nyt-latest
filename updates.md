@@ -1,3 +1,7 @@
+**Israeli airstrikes continue in Gaza after the calmest night there since the war started.**\
+`By Hiba Yazbek and Bilal Shbair`\
+https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/israeli-airstrikes-continue-in-gaza-after-the-calmest-night-there-since-the-war-started
+
 **Strikes Upend Israel’s Belief About Iran’s Willingness to Fight It Directly**\
 `Israel had grown used to targeting Iranian officials without head-on retaliation from Iran, an assumption overturned by Iran’s attacks on Saturday.`\
 https://nytimes.com/2024/04/14/world/middleeast/iran-strikes-israel-analysis.html
