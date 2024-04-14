@@ -1,3 +1,7 @@
+**Quotation of the Day: Thousands Try to Run, or Swim Across ‘Death River,’ to Dodge the Draft**\
+`Quotation of the Day for Sunday, April 14, 2024.`\
+https://nytimes.com/2024/04/14/pageoneplus/quotation-of-the-day-thousands-try-to-run-or-swim-across-death-river-to-dodge-the-draft.html
+
 **U.S. Intercepts Dozens of Iranian Drones and Missiles Aimed at Israel**\
 `Britain’s defense secretary said British jets were prepared to intercept Iranian attacks. France and Germany expressed support.`\
 https://nytimes.com/2024/04/13/world/middleeast/united-states-iran-missiles.html
