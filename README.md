@@ -1,3 +1,7 @@
+**Here’s the latest on Iran’s attack and Israel’s response.**\
+`By Mike Ives and Isabel Kershner`\
+https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/heres-the-latest-on-irans-attack-and-israels-response
+
 **‘Saturday Night Live’ Can’t Keep it Together**\
 `Ryan Gosling hosted an episode that included appearances by Caitlin Clark, Emily Blunt and Kate McKinnon, another Ken song and multiple sketches full of people laughing at their own jokes.`\
 https://nytimes.com/2024/04/14/arts/television/saturday-night-live-ryan-gosling-kate-mckinnon.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/what-are-the
 **Tensions Flare in West Bank After Israeli Teenager Is Found Dead**\
 `The killing, which Israel called a “terrorist attack,” prompted rioting by Israeli settlers that killed one Palestinian and raised fears of a broader escalation.`\
 https://nytimes.com/2024/04/13/world/middleeast/israel-palestine-teenager-west-bank.html
-
-**Savings Plan**\
-`John Rippe and Jeff Chen collaborate on a puzzle with a big heart.`\
-https://nytimes.com/2024/04/13/crosswords/daily-puzzle-2024-04-14.html
 
