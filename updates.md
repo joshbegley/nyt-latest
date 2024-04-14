@@ -1,3 +1,19 @@
+**In Final Rally Before New York Trial, Trump Again Casts Himself as Political Victim**\
+`Campaigning in Pennsylvania on Saturday, Donald J. Trump once more falsely asserted that his criminal charges were an attempt by Democrats to keep him from the White House.`\
+https://nytimes.com/2024/04/13/us/politics/trump-rally-pennsylvania.html
+
+**Should We Change Species to Save Them?**\
+`When traditional conservation fails, science is using “assisted evolution” to give vulnerable wildlife a chance.`\
+https://nytimes.com/2024/04/14/science/australia-wildlife-assisted-evolution.html
+
+**She Was Kidnapped a Decade Ago With 275 Girls. Finally, She Escaped.**\
+`Their capture set off a global campaign to “Bring Back Our Girls.” But many are still missing, and kidnappings in Nigeria have proliferated.`\
+https://nytimes.com/2024/04/14/world/africa/nigeria-chibok-girls-kidnapping-boko-haram.html
+
+**U.S. Intercepts Dozens of Iranian Drones and Missiles Aimed at Israel**\
+`Britain’s defense secretary said British jets were prepared to intercept Iranian attacks. France and Germany expressed support.`\
+https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/us-intercepts-drones-and-missiles-aimed-at-israel-as-allies-pledge-support
+
 **U.S. Intercepts Drones and Missiles Aimed at Israel, as Allies Pledge Support**\
 `Britain’s defense secretary said British jets were prepared to intercept Iranian attacks. France and Germany expressed support.`\
 https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/us-intercepts-drones-and-missiles-aimed-at-israel-as-allies-pledge-support

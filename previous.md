@@ -1,4 +1,16 @@
-**U.S. Intercepts Drones and Missiles Aimed at Israel, as Allies Pledge Support**\
+**In Final Rally Before New York Trial, Trump Again Casts Himself as Political Victim**\
+`Campaigning in Pennsylvania on Saturday, Donald J. Trump once more falsely asserted that his criminal charges were an attempt by Democrats to keep him from the White House.`\
+https://nytimes.com/2024/04/13/us/politics/trump-rally-pennsylvania.html
+
+**Should We Change Species to Save Them?**\
+`When traditional conservation fails, science is using “assisted evolution” to give vulnerable wildlife a chance.`\
+https://nytimes.com/2024/04/14/science/australia-wildlife-assisted-evolution.html
+
+**She Was Kidnapped a Decade Ago With 275 Girls. Finally, She Escaped.**\
+`Their capture set off a global campaign to “Bring Back Our Girls.” But many are still missing, and kidnappings in Nigeria have proliferated.`\
+https://nytimes.com/2024/04/14/world/africa/nigeria-chibok-girls-kidnapping-boko-haram.html
+
+**U.S. Intercepts Dozens of Iranian Drones and Missiles Aimed at Israel**\
 `Britain’s defense secretary said British jets were prepared to intercept Iranian attacks. France and Germany expressed support.`\
 https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/us-intercepts-drones-and-missiles-aimed-at-israel-as-allies-pledge-support
 
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/13/nyregion/menendez-cash-bank.html
 **Representing the U.S. and Critiquing It in a Psychedelic Rainbow**\
 `Jeffrey Gibson’s history-making turn at the Venice Biennale brings the gay and Native American artist center stage with works of struggle and freedom.`\
 https://nytimes.com/2024/04/13/arts/design/jeffrey-gibson-venice-biennale.html
-
-**Indigenous Artists Are the Heart of the Venice Biennale**\
-`Here are highlights of the range of work produced by Native artists in the pavilions and a central exhibition that proudly calls itself “Foreigners Everywhere.”`\
-https://nytimes.com/2024/04/13/arts/design/indigenous-venice-biennale.html
-
-**Faith Ringgold Dies at 93; Wove Black Life Into Quilts and Children’s Books**\
-`A champion of Black artists, she explored themes of race, gender, class, family and community through a vast array of media and later the written word.`\
-https://nytimes.com/2024/04/13/arts/faith-ringgold-dead.html
-
-**Here are the latest developments.**\
-`By Aaron Boxerman, Ronen Bergman, Farnaz Fassihi and Eric Schmitt`\
-https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/iran-israel-attack
 
