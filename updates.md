@@ -1,3 +1,7 @@
+**Sununu Says Trump ‘Contributed’ to Insurrection, but Still Has His Support**\
+`The New Hampshire governor, who has been critical of the former president and supported Nikki Haley in the primary, said he wanted a Republican in the White House.`\
+https://nytimes.com/2024/04/14/us/politics/sununu-trump-insurrection-2024.html
+
 **Johnson Says the House Will Vote on an Israel Bill in the Coming Days**\
 `Speaker Mike Johnson left unclear whether the vote on the security package, coming after Iranian attacks on Israel, would also include aid for Ukraine.`\
 https://nytimes.com/2024/04/14/us/politics/johnson-israel-ukraine-house.html
