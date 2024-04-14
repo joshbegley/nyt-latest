@@ -1,3 +1,19 @@
+**The Most Famous Golfer at the Masters Is Black. Why Aren’t There More Players Like Him?**\
+`Tiger Woods said he owes his career to Charlie Sifford, the first Black member of the P.G.A. But the golf world has done far too little to promote Black players.`\
+https://nytimes.com/2024/04/14/opinion/masters-tiger-woods-black-golfers.html
+
+**The Sunday Read: ‘What I Saw Working at The National Enquirer During Donald Trump’s Rise’**\
+`Inside the notorious “catch and kill” campaign that now stands at the heart of the former president’s legal trial.`\
+https://nytimes.com/2024/04/14/podcasts/the-daily/national-enquirer-donald-trump.html
+
+**Stormy Daniels and the Comeuppance of Donald Trump**\
+`Trump has long treated women as objects, targets, supplicants. I suspect he never thought they would be the ones to hold him accountable.`\
+https://nytimes.com/2024/04/14/opinion/trump-trial-stormy-daniels.html
+
+**Immigrant Detention Should Have No Place in Our Society**\
+`The nation’s detention and prison systems have grown side by side, buttressed by the same logic and practice.`\
+https://nytimes.com/2024/04/14/opinion/immigration-detention-prison.html
+
 **Four Years Out, Some Voters Look Back at Trump’s Presidency More Positively**\
 `A new poll by The New York Times and Siena College finds that voters think highly of the former president’s record on the economy, but memories of his divisiveness largely remain intact.`\
 https://nytimes.com/2024/04/14/us/politics/poll-trump-views.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/14/theater/fords-theater-lincoln-murder-re-enactment
 **Undergarments for the Ultrawealthy**\
 `Cadolle, a maker of corsets favored by designers like John Galliano and labels like Dior, is known for custom underpinnings that can cost thousands of dollars.`\
 https://nytimes.com/2024/04/14/style/corsets-cadolle-designer.html
-
-**Queer Women Behaving Badly: These Movies Scrap the Coming-Out Story**\
-`“Love Lies Bleeding,” “Bottoms” and “Drive-Away Dolls” are leading a wave of stories about lesbians living their lives, committing crimes along the way.`\
-https://nytimes.com/2024/04/14/movies/lesbian-films-bottoms-love-lies-bleeding-drive-away-dolls.html
-
-**Jan. 6 Obstruction Case at Supreme Court Could Help Trump and Many Others**\
-`The justices will hear arguments on Tuesday in a case that could alter hundreds of prosecutions for the assault on the Capitol and help define its meaning.`\
-https://nytimes.com/2024/04/14/us/politics/trump-supreme-court-jan-6.html
-
-**At Milan Design Week, a Smorgasbord of Tables and Table Toppers**\
-`The annual festival of furnishings and household objects features a variety of items that can be turned into tables.`\
-https://nytimes.com/2024/04/14/arts/design/milan-design-week-tables.html
-
-**This Prosecutor Pledged to Change George Floyd’s City. Her Critics Are Circling.**\
-`Mary Moriarty, a former chief public defender, became the top prosecutor in Minneapolis, promising an overhaul. Now she faces criticism, including from fellow Democrats.`\
-https://nytimes.com/2024/04/14/us/minneapolis-prosecutor-george-floyd-moriarty.html
 
