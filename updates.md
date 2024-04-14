@@ -1,3 +1,7 @@
+**A 7-Year-Old Girl Is the Lone Serious Casualty of Iran’s Barrage**\
+`The girl, who lives in a Negev desert community that is home to Arab Bedouins, was clinging to life in a hospital after the attack.`\
+https://nytimes.com/2024/04/14/world/middleeast/7-year-old-girl-israel-iran-attack.html
+
 **The G7 condemns Iran’s attack on Israel, as E.U. leaders urge restraint from all parties.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/the-g7-condemns-irans-attack-on-israel-as-eu-leaders-urge-restraint-from-all-parties
