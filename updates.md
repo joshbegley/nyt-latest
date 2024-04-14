@@ -1,3 +1,7 @@
+**Spring Cleaning to Refresh; Bacon and Egg Don to Comfort**\
+`Eric Kim’s recipe combines soft scrambled eggs, crisped bacon and furikake-flecked rice for a fantastic breakfast-for-dinner dish.`\
+https://nytimes.com/2024/04/14/dining/spring-cleaning-to-refresh-bacon-and-egg-don-to-comfort.html
+
 **News Outlets Urge Trump and Biden to Commit to Presidential Debates**\
 `In an unusual statement, the news organizations said “there is simply no substitute” for a face-to-face debate, a campaign staple since 1976.`\
 https://nytimes.com/2024/04/14/business/media/networks-presidential-debates.html

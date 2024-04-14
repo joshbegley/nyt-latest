@@ -1,3 +1,7 @@
+**Spring Cleaning to Refresh; Bacon and Egg Don to Comfort**\
+`Eric Kim’s recipe combines soft scrambled eggs, crisped bacon and furikake-flecked rice for a fantastic breakfast-for-dinner dish.`\
+https://nytimes.com/2024/04/14/dining/spring-cleaning-to-refresh-bacon-and-egg-don-to-comfort.html
+
 **News Outlets Urge Trump and Biden to Commit to Presidential Debates**\
 `In an unusual statement, the news organizations said “there is simply no substitute” for a face-to-face debate, a campaign staple since 1976.`\
 https://nytimes.com/2024/04/14/business/media/networks-presidential-debates.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/leaders-in-e
 **What We Know About Iran’s Attack on Israel**\
 `Tehran fired hundreds of drones and missiles in what was believed to be its first direct assault on Israel after years of a shadow war.`\
 https://nytimes.com/2024/04/14/world/middleeast/iran-israel-drones-attack.html
-
-**Iran’s Strikes on Israel Open a Dangerous New Chapter for Old Rivals**\
-`Experts say Tehran does not want a broader war. But it is far from clear whether Iran or Israel will choose to escalate a conflict that has become more direct and out of the shadows.`\
-https://nytimes.com/2024/04/14/world/middleeast/israel-response-iran-attack.html
 
