@@ -1,3 +1,7 @@
+**A 7-Year-Old Girl Is the Lone Serious Casualty of Iran’s Barrage**\
+`The girl, who lives in a Negev desert community that is home to Arab Bedouins, was clinging to life in a hospital after the attack.`\
+https://nytimes.com/2024/04/14/world/middleeast/israel-iran-negev-bedouin.html
+
 **Gazans attempting to return to homes in north say Israeli troops fired on them.**\
 `By Raja Abdulrahim and Ameera Harouda`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/gazans-attempting-to-return-to-homes-in-north-say-israeli-troops-fired-on-them
