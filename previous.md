@@ -1,3 +1,7 @@
+**He Was Blinded in One Eye, but Salman Rushdie’s Vision Is Undiminished**\
+`The author’s new memoir, “Knife,” addresses the attack that maimed him in 2022, and pays tribute to the wife who saw him through. “I wanted to write a book which was about both love and hatred — one overcoming the other,” he says.`\
+https://nytimes.com/2024/04/14/books/salman-rushdie-knife-interview.html
+
 **Gazans attempting to return to homes in north say Israeli troops fired on them.**\
 `By Raja Abdulrahim and Ameera Harouda`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/gazans-attempting-to-return-to-homes-in-north-say-israeli-troops-fired-on-them
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/israelis-beg
 **A consultant for R.F.K. Jr. attacked a Black ally of Trump in a homophobic post.**\
 `The post by Angela Stanton-King targeting Diante Johnson, founder of the Black Conservative Federation, was removed from social media.`\
 https://nytimes.com/live/2024/04/14/us/biden-trump-election/a-consultant-for-rfk-jr-attacked-a-black-ally-of-trump-in-a-homophobic-post
-
-**Robert F. Kennedy Jr. Says He Won’t Seek the Libertarian Nomination for President**\
-`Despite flirting with the idea, including by meeting with the party’s chair, Mr. Kennedy will continue to run as an independent against President Biden and former President Donald J. Trump.`\
-https://nytimes.com/live/2024/04/14/us/biden-trump-election/robert-f-kennedy-jr-libertarian-independent
 
