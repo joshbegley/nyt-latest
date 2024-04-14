@@ -1,3 +1,7 @@
+**‘Saturday Night Live’ Can’t Keep it Together**\
+`Ryan Gosling hosted an episode that included appearances by Caitlin Clark, Emily Blunt and Kate McKinnon, another Ken song and multiple sketches full of people laughing at their own jokes.`\
+https://nytimes.com/2024/04/14/arts/television/saturday-night-live-ryan-gosling-kate-mckinnon.html
+
 **Quotation of the Day: Thousands Try to Run, or Swim Across ‘Death River,’ to Dodge the Draft**\
 `Quotation of the Day for Sunday, April 14, 2024.`\
 https://nytimes.com/2024/04/14/pageoneplus/quotation-of-the-day-thousands-try-to-run-or-swim-across-death-river-to-dodge-the-draft.html
