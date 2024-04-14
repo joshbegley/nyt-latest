@@ -1,3 +1,7 @@
+**Prince Harry Hits the Polo Field in Front of Netflix Cameras**\
+`The Duke of Sussex competed in a match in South Florida on Friday, a day after the announcement that he will be working on a new polo-related Netflix project.`\
+https://nytimes.com/2024/04/14/style/prince-harry-polo-netflix-meghan-markle.html
+
 **Review: Under Manfred Honeck, the Philharmonic Becomes One**\
 `In a program of Tchaikovsky and Rachmaninoff, a guest conductor coaxes a sumptuous sincerity from the orchestra’s musicians.`\
 https://nytimes.com/2024/04/14/arts/music/review-nyphil-manfred-honeck.html

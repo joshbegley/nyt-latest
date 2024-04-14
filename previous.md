@@ -1,3 +1,7 @@
+**Prince Harry Hits the Polo Field in Front of Netflix Cameras**\
+`The Duke of Sussex competed in a match in South Florida on Friday, a day after the announcement that he will be working on a new polo-related Netflix project.`\
+https://nytimes.com/2024/04/14/style/prince-harry-polo-netflix-meghan-markle.html
+
 **Review: Under Manfred Honeck, the Philharmonic Becomes One**\
 `In a program of Tchaikovsky and Rachmaninoff, a guest conductor coaxes a sumptuous sincerity from the orchestra’s musicians.`\
 https://nytimes.com/2024/04/14/arts/music/review-nyphil-manfred-honeck.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/dining/spring-cleaning-to-refresh-bacon-and-egg-d
 **News Outlets Urge Trump and Biden to Commit to Presidential Debates**\
 `In an unusual statement, the news organizations said “there is simply no substitute” for a face-to-face debate, a campaign staple since 1976.`\
 https://nytimes.com/2024/04/14/business/media/networks-presidential-debates.html
-
-**An Unexpected Player in Israel’s Defense: Jordan, Home to Many Palestinians**\
-`The Arab kingdom said it took military action to defend its territory against Iranian drone and missile strikes. Critics assailed the country as having helped defend Israel.`\
-https://nytimes.com/2024/04/14/world/middleeast/jordan-israel-iran-drones.html
 
