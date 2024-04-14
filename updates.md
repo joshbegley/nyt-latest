@@ -1,3 +1,7 @@
+**American Pizazz Meets the Staid Traditions of Sumo**\
+`At Madison Square Garden, New Yorkers got a rare look at an ancient Japanese sport, cheering and booing as though they were watching a Yankees game.`\
+https://nytimes.com/2024/04/14/sports/sumo-wrestling-madison-square-garden-nyc.html
+
 **Israeli airstrikes continue in Gaza after the calmest night there since the war started.**\
 `By Hiba Yazbek and Bilal Shbair`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/israeli-airstrikes-continue-in-gaza-after-the-calmest-night-there-since-the-war-started
