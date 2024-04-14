@@ -1,3 +1,7 @@
+**After Stabbing Rampage, Australia Struggles With Questions of How and Why**\
+`The police have yet to determine a motive for Saturday’s attack, which left six people dead, but said the assailant suffered from mental health problems.`\
+https://nytimes.com/2024/04/14/world/australia/bondi-stabbing-why-how.html
+
 **As Trial Looms, Trump Plays to a Jury of Millions**\
 `Donald J. Trump and his lawyers realize his chances in the courtroom are dicey. He intends to make whatever transpires a political triumph.`\
 https://nytimes.com/2024/04/14/nyregion/as-trial-looms-trump-plays-to-a-jury-of-millions.html

@@ -1,3 +1,7 @@
+**After Stabbing Rampage, Australia Struggles With Questions of How and Why**\
+`The police have yet to determine a motive for Saturday’s attack, which left six people dead, but said the assailant suffered from mental health problems.`\
+https://nytimes.com/2024/04/14/world/australia/bondi-stabbing-why-how.html
+
 **As Trial Looms, Trump Plays to a Jury of Millions**\
 `Donald J. Trump and his lawyers realize his chances in the courtroom are dicey. He intends to make whatever transpires a political triumph.`\
 https://nytimes.com/2024/04/14/nyregion/as-trial-looms-trump-plays-to-a-jury-of-millions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/crosswords/spelling-bee-forum.html
 **Israel Faced a Sophisticated Attack From Iran**\
 `The weapons Iran used on Saturday travel farther and are more precise than those Hamas and other allies have used against Israel in the past six months.`\
 https://nytimes.com/2024/04/14/world/middleeast/iran-israel-weapons.html
-
-**Corrections: April 14, 2024**\
-`Corrections that appeared in print on Sunday, April 14, 2024.`\
-https://nytimes.com/2024/04/14/pageoneplus/corrections-april-14-2024.html
 
