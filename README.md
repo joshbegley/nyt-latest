@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | April 15, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/04/14/learning/whats-going-on-in-this-picture-april-15-2024.html
+
 **Iran Attacks Israel**\
 `What we know about the assault — and what it means.`\
 https://nytimes.com/2024/04/14/briefing/iran-israel-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/us/politics/poll-trump-views.html
 **Iran’s Attacks Bring Long Shadow War With Israel Into the Open**\
 `The volley of drones and missiles was the first time that Tehran directly attacked Israel from its own territory, one expert said.`\
 https://nytimes.com/2024/04/14/world/middleeast/iran-attacks-israel-history.html
-
-**How Women at One Arizona Clinic Are Grappling With the Abortion Ruling**\
-`Inside Acacia Women’s Center, patients described a mix of fear, anger and anxiety after the State Supreme Court’s decision to reinstate a law that bans nearly all abortions.`\
-https://nytimes.com/2024/04/14/us/arizona-abortion-women.html
 
