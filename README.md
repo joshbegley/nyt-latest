@@ -1,3 +1,7 @@
+**Iran Just Made a Big Mistake. Israel Shouldn’t Follow.**\
+`There now needs to be a massive, sustained, global initiative to isolate Iran.`\
+https://nytimes.com/2024/04/14/opinion/israel-iran-attack.html
+
 **Sununu Says Trump ‘Contributed’ to Insurrection, but Still Has His Support**\
 `The New Hampshire governor, who has been critical of the former president and supported Nikki Haley in the primary, said he wanted a Republican in the White House.`\
 https://nytimes.com/2024/04/14/us/politics/sununu-trump-insurrection-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/sports/sumo-wrestling-madison-square-garden-nyc.h
 **Israeli airstrikes continue in Gaza after the calmest night there since the war started.**\
 `By Hiba Yazbek and Bilal Shbair`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/israeli-airstrikes-continue-in-gaza-after-the-calmest-night-there-since-the-war-started
-
-**Strikes Upend Israel’s Belief About Iran’s Willingness to Fight It Directly**\
-`Israel had grown used to targeting Iranian officials without head-on retaliation from Iran, an assumption overturned by Iran’s attacks on Saturday.`\
-https://nytimes.com/2024/04/14/world/middleeast/iran-strikes-israel-analysis.html
 
