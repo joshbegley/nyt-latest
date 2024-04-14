@@ -1,3 +1,7 @@
+**Iran Attacks Israel**\
+`What we know about the assault — and what it means.`\
+https://nytimes.com/2024/04/14/briefing/iran-israel-attack.html
+
 **Biden Seeks to Head Off Escalation After Israel’s Successful Defense**\
 `The president told Israel that the interception of nearly all of the Iranian drones and missiles used to attack it constituted a major victory, and so further retaliation may not be necessary, U.S. officials said.`\
 https://nytimes.com/2024/04/14/world/middleeast/biden-netanyahu-israel-iran-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/world/middleeast/iran-attacks-israel-history.html
 **How Women at One Arizona Clinic Are Grappling With the Abortion Ruling**\
 `Inside Acacia Women’s Center, patients described a mix of fear, anger and anxiety after the State Supreme Court’s decision to reinstate a law that bans nearly all abortions.`\
 https://nytimes.com/2024/04/14/us/arizona-abortion-women.html
-
-**As Trump Ponders V.P. Contenders, He Asks: Can They Help Me Raise Cash?**\
-`Donald Trump’s concerns about money may have entered his vice-presidential calculations, along with political considerations and which contenders he likes the look of.`\
-https://nytimes.com/2024/04/14/us/politics/trump-vice-president-pick.html
 
