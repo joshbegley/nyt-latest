@@ -1,3 +1,11 @@
+**Israel Faced a Sophisticated Attack From Iran**\
+`The weapons Iran used on Saturday travel farther and are more precise than those Hamas and other allies have used against Israel in the past six months.`\
+https://nytimes.com/2024/04/14/world/middleeast/iran-israel-weapons.html
+
+**Corrections: April 14, 2024**\
+`Corrections that appeared in print on Sunday, April 14, 2024.`\
+https://nytimes.com/2024/04/14/pageoneplus/corrections-april-14-2024.html
+
 **Here’s the latest on Iran’s attack and Israel’s response.**\
 `By Mike Ives and Isabel Kershner`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/heres-the-latest-on-irans-attack-and-israels-response
