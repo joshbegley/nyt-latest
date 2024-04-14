@@ -1,3 +1,11 @@
+**Israel Faced a Sophisticated Attack From Iran**\
+`The weapons Iran used on Saturday travel farther and are more precise than those Hamas and other allies have used against Israel in the past six months.`\
+https://nytimes.com/2024/04/14/world/middleeast/iran-israel-weapons.html
+
+**Corrections: April 14, 2024**\
+`Corrections that appeared in print on Sunday, April 14, 2024.`\
+https://nytimes.com/2024/04/14/pageoneplus/corrections-april-14-2024.html
+
 **Here’s the latest on Iran’s attack and Israel’s response.**\
 `By Mike Ives and Isabel Kershner`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/heres-the-latest-on-irans-attack-and-israels-response
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/13/world/middleeast/united-states-iran-missiles.html
 **What Happened to Damages That O.J. Simpson Owed to the Victims’ Families?**\
 `In 1997, a jury in a civil trial awarded the families of Ronald Goldman and Nicole Brown Simpson $33 million. Today, the amount still owed has more than tripled.`\
 https://nytimes.com/2024/04/13/us/oj-simpson-damages.html
-
-**What is the Golan Heights?**\
-`By Alissa J. Rubin`\
-https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/what-are-the-golan-heights
-
-**Tensions Flare in West Bank After Israeli Teenager Is Found Dead**\
-`The killing, which Israel called a “terrorist attack,” prompted rioting by Israeli settlers that killed one Palestinian and raised fears of a broader escalation.`\
-https://nytimes.com/2024/04/13/world/middleeast/israel-palestine-teenager-west-bank.html
 
