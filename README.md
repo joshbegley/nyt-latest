@@ -1,3 +1,11 @@
+**Gazans attempting to return to homes in north say Israeli troops fired on them.**\
+`By Raja Abdulrahim and Ameera Harouda`\
+https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/gazans-attempting-to-return-to-homes-in-north-say-israeli-troops-fired-on-them
+
+**Brightly Colored Rock**\
+`Amanda Winters makes her New York Times debut.`\
+https://nytimes.com/2024/04/14/crosswords/daily-puzzle-2024-04-15.html
+
 **A 7-Year-Old Girl Is the Lone Serious Casualty of Iran’s Barrage**\
 `The girl, who lives in a Negev desert community that is home to Arab Bedouins, was clinging to life in a hospital after the attack.`\
 https://nytimes.com/2024/04/14/world/middleeast/7-year-old-girl-israel-iran-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/14/us/biden-trump-election/a-consultant-for-rfk
 **Robert F. Kennedy Jr. Says He Won’t Seek the Libertarian Nomination for President**\
 `Despite flirting with the idea, including by meeting with the party’s chair, Mr. Kennedy will continue to run as an independent against President Biden and former President Donald J. Trump.`\
 https://nytimes.com/live/2024/04/14/us/biden-trump-election/robert-f-kennedy-jr-libertarian-independent
-
-**For Israel, Revenge Should Be a Dish Served Cold**\
-`Israel has the right to retaliate against Iran’s missile barrage. It should bide its time.`\
-https://nytimes.com/2024/04/14/opinion/israel-iran-netanyahu-biden.html
-
-**Iran Just Made a Big Mistake. Israel Shouldn’t Follow.**\
-`There now needs to be a large, sustained, global initiative to isolate Iran.`\
-https://nytimes.com/2024/04/14/opinion/israel-iran-attack.html
 
