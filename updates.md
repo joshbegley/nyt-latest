@@ -1,3 +1,7 @@
+**Robert F. Kennedy Jr. Says He Won’t Seek the Libertarian Nomination for President**\
+`Despite flirting with the idea, including by meeting with the party’s chair, Mr. Kennedy will continue to run as an independent against President Biden and former President Donald J. Trump.`\
+https://nytimes.com/live/2024/04/14/us/biden-trump-election/robert-f-kennedy-jr-libertarian-independent
+
 **For Israel, Revenge Should Be a Dish Served Cold**\
 `Israel has the right to retaliate against Iran’s missile barrage. It should bide its time.`\
 https://nytimes.com/2024/04/14/opinion/israel-iran-netanyahu-biden.html
