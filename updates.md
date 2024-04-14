@@ -1,3 +1,7 @@
+**Review: Under Manfred Honeck, the Philharmonic Becomes One**\
+`In a program of Tchaikovsky and Rachmaninoff, a guest conductor coaxes a sumptuous sincerity from the orchestra’s musicians.`\
+https://nytimes.com/2024/04/14/arts/music/review-nyphil-manfred-honeck.html
+
 **Iran Attack Tests Netanyahu’s Political Staying Power**\
 `In a deeply polarized country that has again come under attack, Prime Minister Benjamin Netanyahu’s fate may depend on what happens next.`\
 https://nytimes.com/2024/04/14/world/middleeast/israel-netanyahu-iran-attack.html
