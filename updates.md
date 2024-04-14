@@ -1,3 +1,7 @@
+**Iran Just Made a Big Mistake. Israel Shouldn’t Follow.**\
+`There now needs to be a massive, sustained, global initiative to isolate Iran.`\
+https://nytimes.com/2024/04/14/opinion/israel-iran-attack.html
+
 **Sununu Says Trump ‘Contributed’ to Insurrection, but Still Has His Support**\
 `The New Hampshire governor, who has been critical of the former president and supported Nikki Haley in the primary, said he wanted a Republican in the White House.`\
 https://nytimes.com/2024/04/14/us/politics/sununu-trump-insurrection-2024.html
