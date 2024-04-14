@@ -1,3 +1,7 @@
+**Iran’s leaders say their retaliation is over, unless Israel strikes back.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/irans-leaders-say-their-retaliation-is-over-unless-israel-strikes-back
+
 **The Atmosphere of the ‘Manosphere’ Is Toxic**\
 `Struggling men need to leave the gurus behind.`\
 https://nytimes.com/2024/04/14/opinion/men-virtue-tate-peterson-rogan.html
