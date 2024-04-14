@@ -1,3 +1,7 @@
+**Johnson Says the House Will Vote on an Israel Bill in the Coming Days**\
+`Speaker Mike Johnson left unclear whether the vote on the security package, coming after Iranian attacks on Israel, would also include aid for Ukraine.`\
+https://nytimes.com/2024/04/14/us/politics/johnson-israel-ukraine-house.html
+
 **The Dystopian ‘Civil War’ Reaches No. 1 at the Box Office**\
 `Alex Garland’s movie, starring Kirsten Dunst, surpassed “Godzilla x Kong,” with an estimated $25.7 million in North American ticket sales on its first weekend.`\
 https://nytimes.com/2024/04/14/movies/civil-war-box-office.html

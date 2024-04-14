@@ -1,3 +1,7 @@
+**Johnson Says the House Will Vote on an Israel Bill in the Coming Days**\
+`Speaker Mike Johnson left unclear whether the vote on the security package, coming after Iranian attacks on Israel, would also include aid for Ukraine.`\
+https://nytimes.com/2024/04/14/us/politics/johnson-israel-ukraine-house.html
+
 **The Dystopian ‘Civil War’ Reaches No. 1 at the Box Office**\
 `Alex Garland’s movie, starring Kirsten Dunst, surpassed “Godzilla x Kong,” with an estimated $25.7 million in North American ticket sales on its first weekend.`\
 https://nytimes.com/2024/04/14/movies/civil-war-box-office.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/world/middleeast/iran-strikes-israel-analysis.htm
 **The Beautiful World of Birding**\
 `Readers discuss the hobby’s many benefits. Also: Friends in the court; politicians’ health; testing the candidates; banning plastic foam.`\
 https://nytimes.com/2024/04/14/opinion/birding.html
-
-**Spring Cleaning to Refresh; Bacon and Egg Don to Comfort**\
-`Eric Kim’s recipe combines soft scrambled eggs, crisped bacon and furikake-flecked rice for a fantastic breakfast-for-dinner dish.`\
-https://nytimes.com/2024/04/14/dining/spring-cleaning-to-refresh-bacon-and-egg-don-to-comfort.html
 
