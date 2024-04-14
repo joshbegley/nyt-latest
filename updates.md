@@ -1,3 +1,7 @@
+**Iran Attacks Israel**\
+`What we know about the assault — and what it means.`\
+https://nytimes.com/2024/04/14/briefing/iran-israel-attack.html
+
 **Biden Seeks to Head Off Escalation After Israel’s Successful Defense**\
 `The president told Israel that the interception of nearly all of the Iranian drones and missiles used to attack it constituted a major victory, and so further retaliation may not be necessary, U.S. officials said.`\
 https://nytimes.com/2024/04/14/world/middleeast/biden-netanyahu-israel-iran-strikes.html
