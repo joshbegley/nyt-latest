@@ -1,3 +1,11 @@
+**U.S. Intercepts Drones and Missiles Aimed at Israel, as Allies Pledge Support**\
+`Britain’s defense secretary said British jets were prepared to intercept Iranian attacks. France and Germany expressed support.`\
+https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/us-intercepts-drones-and-missiles-aimed-at-israel-as-allies-pledge-support
+
+**What is the Golan Heights?**\
+`By Alissa J. Rubin`\
+https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/what-are-the-golan-heights
+
 **What Happened to Damages That O.J. Simpson Owed to the Victims’ Families?**\
 `In 1997, a jury in a civil trial awarded the families of Ronald Goldman and Nicole Brown Simpson $33 million. Today, the amount still owed has more than tripled.`\
 https://nytimes.com/2024/04/13/us/oj-simpson-damages.html
