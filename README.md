@@ -1,3 +1,7 @@
+**What Weapons Did Israel Use to Block Iran’s Attack?**\
+`Israel’s Iron Dome defense system intercepts rockets that fly in high arcs, while its Arrow 3 system can stop ballistic missiles outside the atmosphere.`\
+https://nytimes.com/2024/04/14/world/europe/israel-iron-dome-defense.html
+
 **The Most Famous Golfer at the Masters Is Black. Why Aren’t There More Players Like Him?**\
 `Tiger Woods said he owes his career to Charlie Sifford, the first Black member of the P.G.A. But the golf world has done far too little to promote Black players.`\
 https://nytimes.com/2024/04/14/opinion/masters-tiger-woods-black-golfers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/us/politics/trump-vice-president-pick.html
 **Lincoln’s Murder Is Often Re-enacted, but Not at Ford’s Theater**\
 `The theater says that allowing the assassination to be recreated there would undermine the gravity and significance of Abraham Lincoln’s death.`\
 https://nytimes.com/2024/04/14/theater/fords-theater-lincoln-murder-re-enactment.html
-
-**Undergarments for the Ultrawealthy**\
-`Cadolle, a maker of corsets favored by designers like John Galliano and labels like Dior, is known for custom underpinnings that can cost thousands of dollars.`\
-https://nytimes.com/2024/04/14/style/corsets-cadolle-designer.html
 
