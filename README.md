@@ -1,3 +1,7 @@
+**News Outlets Urge Trump and Biden to Commit to Presidential Debates**\
+`In an unusual statement, the news organizations said “there is simply no substitute” for a face-to-face debate, a campaign staple since 1976.`\
+https://nytimes.com/2024/04/14/business/media/networks-presidential-debates.html
+
 **An Unexpected Player in Israel’s Defense: Jordan, Home to Many Palestinians**\
 `The Arab kingdom said it took military action to defend its territory against Iranian drone and missile strikes. Critics assailed the country as having helped defend Israel.`\
 https://nytimes.com/2024/04/14/world/middleeast/jordan-israel-iran-drones.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/world/middleeast/iran-israel-drones-attack.html
 **Iran’s Strikes on Israel Open a Dangerous New Chapter for Old Rivals**\
 `Experts say Tehran does not want a broader war. But it is far from clear whether Iran or Israel will choose to escalate a conflict that has become more direct and out of the shadows.`\
 https://nytimes.com/2024/04/14/world/middleeast/israel-response-iran-attack.html
-
-**What’s Going On in This Picture? | April 15, 2024**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/04/14/learning/whats-going-on-in-this-picture-april-15-2024.html
 
