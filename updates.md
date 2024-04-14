@@ -1,3 +1,7 @@
+**Biden Seeks to Head Off Escalation After Israel’s Successful Defense**\
+`The president told Israel that the interception of nearly all of the Iranian drones and missiles used to attack it constituted a major victory, and so further retaliation may not be necessary, U.S. officials said.`\
+https://nytimes.com/2024/04/14/world/middleeast/biden-netanyahu-israel-iran-strikes.html
+
 **What Weapons Did Israel Use to Block Iran’s Attack?**\
 `Israel’s Iron Dome defense system intercepts rockets that fly in high arcs, while its Arrow 3 system can stop ballistic missiles outside the atmosphere.`\
 https://nytimes.com/2024/04/14/world/europe/israel-iron-dome-defense.html
