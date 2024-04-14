@@ -1,3 +1,7 @@
+**Iranians are split over the attack. Some fear upheaval, others vow to fight.**\
+`By Farnaz Fassihi and Leily Nikounazar`\
+https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/iranians-are-split-over-the-attack-some-fear-upheaval-others-vow-to-fight
+
 **Israelis begin a return to calm, anxious about how their government will respond.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/israelis-begin-a-return-to-calm-anxious-about-how-its-government-will-respond

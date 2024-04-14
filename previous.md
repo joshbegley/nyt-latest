@@ -1,3 +1,7 @@
+**Iranians are split over the attack. Some fear upheaval, others vow to fight.**\
+`By Farnaz Fassihi and Leily Nikounazar`\
+https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/iranians-are-split-over-the-attack-some-fear-upheaval-others-vow-to-fight
+
 **Israelis begin a return to calm, anxious about how their government will respond.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/israelis-begin-a-return-to-calm-anxious-about-how-its-government-will-respond
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/movies/civil-war-box-office.html
 **Prince Harry Hits the Polo Field in Front of Netflix Cameras**\
 `The Duke of Sussex competed in a match in South Florida on Friday, a day after the announcement that he will be working on a new polo-related Netflix project.`\
 https://nytimes.com/2024/04/14/style/prince-harry-polo-netflix-meghan-markle.html
-
-**Review: Under Manfred Honeck, the Philharmonic Becomes One**\
-`In a program of Tchaikovsky and Rachmaninoff, a guest conductor coaxes a sumptuous sincerity from the orchestra’s musicians.`\
-https://nytimes.com/2024/04/14/arts/music/review-nyphil-manfred-honeck.html
 
