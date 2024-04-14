@@ -1,3 +1,7 @@
+**What Weapons Did Israel Use to Block Iran’s Attack?**\
+`Israel’s Iron Dome defense system intercepts rockets that fly in high arcs, while its Arrow 3 system can stop ballistic missiles outside the atmosphere.`\
+https://nytimes.com/2024/04/14/world/europe/israel-iron-dome-defense.html
+
 **The Most Famous Golfer at the Masters Is Black. Why Aren’t There More Players Like Him?**\
 `Tiger Woods said he owes his career to Charlie Sifford, the first Black member of the P.G.A. But the golf world has done far too little to promote Black players.`\
 https://nytimes.com/2024/04/14/opinion/masters-tiger-woods-black-golfers.html
