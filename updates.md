@@ -1,3 +1,7 @@
+**‘Sunset Boulevard,’ Heading to Broadway, Wins Big at Olivier Awards**\
+`The musical, which stars Nicole Scherzinger, won seven awards at Britain’s version of the Tonys. And Sarah Snook won best actress for “The Picture of Dorian Gray.”`\
+https://nytimes.com/2024/04/14/theater/olivier-award-winners-sunset-boulevard.html
+
 **Iranians are split over the attack. Some fear upheaval, others vow to fight.**\
 `By Farnaz Fassihi and Leily Nikounazar`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/iranians-are-split-over-the-attack-some-fear-upheaval-others-vow-to-fight
