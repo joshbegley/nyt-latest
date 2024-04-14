@@ -1,3 +1,7 @@
+**The Dystopian ‘Civil War’ Reaches No. 1 at the Box Office**\
+`Alex Garland’s movie, starring Kirsten Dunst, surpassed “Godzilla x Kong,” with an estimated $25.7 million in North American ticket sales on its first weekend.`\
+https://nytimes.com/2024/04/14/movies/civil-war-box-office.html
+
 **Prince Harry Hits the Polo Field in Front of Netflix Cameras**\
 `The Duke of Sussex competed in a match in South Florida on Friday, a day after the announcement that he will be working on a new polo-related Netflix project.`\
 https://nytimes.com/2024/04/14/style/prince-harry-polo-netflix-meghan-markle.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/opinion/birding.html
 **Spring Cleaning to Refresh; Bacon and Egg Don to Comfort**\
 `Eric Kim’s recipe combines soft scrambled eggs, crisped bacon and furikake-flecked rice for a fantastic breakfast-for-dinner dish.`\
 https://nytimes.com/2024/04/14/dining/spring-cleaning-to-refresh-bacon-and-egg-don-to-comfort.html
-
-**News Outlets Urge Trump and Biden to Commit to Presidential Debates**\
-`In an unusual statement, the news organizations said “there is simply no substitute” for a face-to-face debate, a campaign staple since 1976.`\
-https://nytimes.com/2024/04/14/business/media/networks-presidential-debates.html
 
