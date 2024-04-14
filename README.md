@@ -1,3 +1,7 @@
+**Israelis begin a return to calm, anxious about how their government will respond.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/israelis-begin-a-return-to-calm-anxious-about-how-its-government-will-respond
+
 **A consultant for R.F.K. Jr. attacked a Black ally of Trump in a homophobic post.**\
 `The post by Angela Stanton-King targeting Diante Johnson, founder of the Black Conservative Federation, was removed from social media.`\
 https://nytimes.com/live/2024/04/14/us/biden-trump-election/a-consultant-for-rfk-jr-attacked-a-black-ally-of-trump-in-a-homophobic-post
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/style/prince-harry-polo-netflix-meghan-markle.htm
 **Review: Under Manfred Honeck, the Philharmonic Becomes One**\
 `In a program of Tchaikovsky and Rachmaninoff, a guest conductor coaxes a sumptuous sincerity from the orchestra’s musicians.`\
 https://nytimes.com/2024/04/14/arts/music/review-nyphil-manfred-honeck.html
-
-**Iran Attack Tests Netanyahu’s Political Staying Power**\
-`In a deeply polarized country that has again come under attack, Prime Minister Benjamin Netanyahu’s fate may depend on what happens next.`\
-https://nytimes.com/2024/04/14/world/middleeast/israel-netanyahu-iran-attack.html
 
