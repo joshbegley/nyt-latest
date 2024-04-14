@@ -3,7 +3,7 @@
 https://nytimes.com/2024/04/14/opinion/israel-iran-netanyahu-biden.html
 
 **Iran Just Made a Big Mistake. Israel Shouldn’t Follow.**\
-`There now needs to be a massive, sustained, global initiative to isolate Iran.`\
+`There now needs to be a large, sustained, global initiative to isolate Iran.`\
 https://nytimes.com/2024/04/14/opinion/israel-iran-attack.html
 
 **Sununu Says Trump ‘Contributed’ to Insurrection, but Still Has His Support**\
