@@ -1,3 +1,7 @@
+**Quotation of the Day: Thousands Try to Run, or Swim Across ‘Death River,’ to Dodge the Draft**\
+`Quotation of the Day for Sunday, April 14, 2024.`\
+https://nytimes.com/2024/04/14/pageoneplus/quotation-of-the-day-thousands-try-to-run-or-swim-across-death-river-to-dodge-the-draft.html
+
 **In Final Rally Before New York Trial, Trump Again Casts Himself as Political Victim**\
 `Campaigning in Pennsylvania on Saturday, Donald J. Trump once more falsely asserted that his criminal charges were an attempt by Democrats to keep him from the White House.`\
 https://nytimes.com/2024/04/13/us/politics/trump-rally-pennsylvania.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/13/crosswords/daily-puzzle-2024-04-14.html
 **Stacks of Cash at Menendez Home Were Not From His Bank, Prosecutors Say**\
 `The senator has said that money found in his house was from his own savings account. But prosecutors said that at least some of it came from “another person.”`\
 https://nytimes.com/2024/04/13/nyregion/menendez-cash-bank.html
-
-**Representing the U.S. and Critiquing It in a Psychedelic Rainbow**\
-`Jeffrey Gibson’s history-making turn at the Venice Biennale brings the gay and Native American artist center stage with works of struggle and freedom.`\
-https://nytimes.com/2024/04/13/arts/design/jeffrey-gibson-venice-biennale.html
 
