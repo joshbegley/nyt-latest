@@ -1,6 +1,6 @@
-**Iran’s attacks bring a yearslong clandestine war with Israel into the open.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/irans-attacks-bring-a-yearslong-clandestine-war-with-israel-into-the-open
+**Iran’s Attacks Bring Long Shadow War With Israel Into the Open**\
+`The volley of drones and missiles was the first time that Tehran directly attacked Israel from its own territory, one expert said.`\
+https://nytimes.com/2024/04/14/world/middleeast/iran-attacks-israel-history.html
 
 **How Women at One Arizona Clinic Are Grappling With the Abortion Ruling**\
 `Inside Acacia Women’s Center, patients described a mix of fear, anger and anxiety after the State Supreme Court’s decision to reinstate a law that bans nearly all abortions.`\
