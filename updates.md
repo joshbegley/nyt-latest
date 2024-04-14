@@ -1,3 +1,7 @@
+**Four Years Out, Some Voters Look Back at Trump’s Presidency More Positively**\
+`A new poll by The New York Times and Siena College finds that voters think highly of the former president’s record on the economy, but memories of his divisiveness largely remain intact.`\
+https://nytimes.com/2024/04/14/us/politics/poll-trump-views.html
+
 **Iran’s Attacks Bring Long Shadow War With Israel Into the Open**\
 `The volley of drones and missiles was the first time that Tehran directly attacked Israel from its own territory, one expert said.`\
 https://nytimes.com/2024/04/14/world/middleeast/iran-attacks-israel-history.html

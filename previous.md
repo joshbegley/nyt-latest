@@ -1,3 +1,7 @@
+**Four Years Out, Some Voters Look Back at Trump’s Presidency More Positively**\
+`A new poll by The New York Times and Siena College finds that voters think highly of the former president’s record on the economy, but memories of his divisiveness largely remain intact.`\
+https://nytimes.com/2024/04/14/us/politics/poll-trump-views.html
+
 **Iran’s Attacks Bring Long Shadow War With Israel Into the Open**\
 `The volley of drones and missiles was the first time that Tehran directly attacked Israel from its own territory, one expert said.`\
 https://nytimes.com/2024/04/14/world/middleeast/iran-attacks-israel-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/arts/design/milan-design-week-tables.html
 **This Prosecutor Pledged to Change George Floyd’s City. Her Critics Are Circling.**\
 `Mary Moriarty, a former chief public defender, became the top prosecutor in Minneapolis, promising an overhaul. Now she faces criticism, including from fellow Democrats.`\
 https://nytimes.com/2024/04/14/us/minneapolis-prosecutor-george-floyd-moriarty.html
-
-**Netflix’s New Film Strategy: More About the Audience, Less About Auteurs**\
-`Dan Lin, the streaming service’s new film chief, wants to produce a more varied slate of movies to better appeal to the array of interests among subscribers.`\
-https://nytimes.com/2024/04/14/business/media/netflix-movies-dan-lin.html
 
