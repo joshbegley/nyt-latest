@@ -1,3 +1,11 @@
+**Some Israeli officials call for a tough response, while others urge restraint.**\
+`By Adam Sella`\
+https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/some-israeli-officials-call-for-a-tough-response-while-others-urge-restraint
+
+**Iran’s Strikes on Israel Open a Dangerous New Chapter for Old Rivals**\
+`Experts say Tehran does not want a broader war. But it is far from clear whether Iran or Israel will choose to escalate a conflict that has become more direct and out of the shadows.`\
+https://nytimes.com/2024/04/14/world/middleeast/israel-response-iran-attack.html
+
 **Do You Have a Family Story That Defines Who You Are?**\
 `History isn’t just learned through textbooks; everybody has a story, big or small, that tells us about America.`\
 https://nytimes.com/2024/04/14/opinion/family-stories-history-generations.html
