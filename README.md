@@ -1,3 +1,7 @@
+**Iran’s attacks bring a yearslong clandestine war with Israel into the open.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/irans-attacks-bring-a-yearslong-clandestine-war-with-israel-into-the-open
+
 **How Women at One Arizona Clinic Are Grappling With the Abortion Ruling**\
 `Inside Acacia Women’s Center, patients described a mix of fear, anger and anxiety after the State Supreme Court’s decision to reinstate a law that bans nearly all abortions.`\
 https://nytimes.com/2024/04/14/us/arizona-abortion-women.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/us/minneapolis-prosecutor-george-floyd-moriarty.h
 **Netflix’s New Film Strategy: More About the Audience, Less About Auteurs**\
 `Dan Lin, the streaming service’s new film chief, wants to produce a more varied slate of movies to better appeal to the array of interests among subscribers.`\
 https://nytimes.com/2024/04/14/business/media/netflix-movies-dan-lin.html
-
-**Dana White, Donald Trump and the Rise of Cage-Match Politics**\
-`White, chief executive of the bloody and beloved Ultimate Fighting Championship, has shot to the peak of Trump-era culture and political influence. What does he want?`\
-https://nytimes.com/2024/04/14/business/dana-white-ufc-trump.html
 
