@@ -1,3 +1,7 @@
+**Here’s the latest on Iran’s attack and Israel’s response.**\
+`By Mike Ives and Isabel Kershner`\
+https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/heres-the-latest-on-irans-attack-and-israels-response
+
 **‘Saturday Night Live’ Can’t Keep it Together**\
 `Ryan Gosling hosted an episode that included appearances by Caitlin Clark, Emily Blunt and Kate McKinnon, another Ken song and multiple sketches full of people laughing at their own jokes.`\
 https://nytimes.com/2024/04/14/arts/television/saturday-night-live-ryan-gosling-kate-mckinnon.html
