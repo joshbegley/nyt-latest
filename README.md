@@ -1,3 +1,7 @@
+**Iran Attack Tests Netanyahu’s Political Staying Power**\
+`In a deeply polarized country that has again come under attack, Prime Minister Benjamin Netanyahu’s fate may depend on what happens next.`\
+https://nytimes.com/2024/04/14/world/middleeast/israel-netanyahu-iran-attack.html
+
 **At Carnegie Hall, Weimar Is Irresistible but Vaguely Defined**\
 `Carnegie’s intermittently illuminating festival “Fall of the Weimar Republic” has suffered from interjections of too much standard repertory.`\
 https://nytimes.com/2024/04/14/arts/music/weimar-festival-carnegie-hall.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/world/middleeast/jordan-israel-iran-drones.html
 **Rico Wade, an Architect of Atlanta Hip-Hop, Dies at 52**\
 `As one-third of the production team Organized Noize, Wade nurtured the careers of Outkast, Goodie Mob and Future from the confines of his mother’s basement, known as the Dungeon.`\
 https://nytimes.com/2024/04/14/arts/music/rico-wade-dead.html
-
-**Some Israeli officials call for a tough response, while others urge restraint.**\
-`By Adam Sella`\
-https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/some-israeli-officials-call-for-a-tough-response-while-others-urge-restraint
 
