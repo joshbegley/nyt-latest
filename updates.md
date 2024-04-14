@@ -1,3 +1,7 @@
+**A consultant for R.F.K. Jr. attacked a Black ally of Trump in a homophobic post.**\
+`The post by Angela Stanton-King targeting Diante Johnson, founder of the Black Conservative Federation, was removed from social media.`\
+https://nytimes.com/live/2024/04/14/us/biden-trump-election/a-consultant-for-rfk-jr-attacked-a-black-ally-of-trump-in-a-homophobic-post
+
 **Robert F. Kennedy Jr. Says He Won’t Seek the Libertarian Nomination for President**\
 `Despite flirting with the idea, including by meeting with the party’s chair, Mr. Kennedy will continue to run as an independent against President Biden and former President Donald J. Trump.`\
 https://nytimes.com/live/2024/04/14/us/biden-trump-election/robert-f-kennedy-jr-libertarian-independent
