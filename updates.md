@@ -1,3 +1,7 @@
+**Iran’s attacks bring a yearslong clandestine war with Israel into the open.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/irans-attacks-bring-a-yearslong-clandestine-war-with-israel-into-the-open
+
 **How Women at One Arizona Clinic Are Grappling With the Abortion Ruling**\
 `Inside Acacia Women’s Center, patients described a mix of fear, anger and anxiety after the State Supreme Court’s decision to reinstate a law that bans nearly all abortions.`\
 https://nytimes.com/2024/04/14/us/arizona-abortion-women.html
