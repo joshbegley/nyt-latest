@@ -1,3 +1,7 @@
+**The Atmosphere of the ‘Manosphere’ Is Toxic**\
+`Struggling men need to leave the gurus behind.`\
+https://nytimes.com/2024/04/14/opinion/men-virtue-tate-peterson-rogan.html
+
 **Leaders in Europe and the Middle East call for restraint after the attack.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/leaders-in-europe-and-the-middle-east-call-for-restraint-after-the-attack

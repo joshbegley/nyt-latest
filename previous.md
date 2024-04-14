@@ -1,3 +1,7 @@
+**The Atmosphere of the ‘Manosphere’ Is Toxic**\
+`Struggling men need to leave the gurus behind.`\
+https://nytimes.com/2024/04/14/opinion/men-virtue-tate-peterson-rogan.html
+
 **Leaders in Europe and the Middle East call for restraint after the attack.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/leaders-in-europe-and-the-middle-east-call-for-restraint-after-the-attack
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/opinion/masters-tiger-woods-black-golfers.html
 **The Sunday Read: ‘What I Saw Working at The National Enquirer During Donald Trump’s Rise’**\
 `Inside the notorious “catch and kill” campaign that now stands at the heart of the former president’s legal trial.`\
 https://nytimes.com/2024/04/14/podcasts/the-daily/national-enquirer-donald-trump.html
-
-**Immigrant Detention Should Have No Place in Our Society**\
-`The nation’s detention and prison systems have grown side by side, buttressed by the same logic and practice.`\
-https://nytimes.com/2024/04/14/opinion/immigration-detention-prison.html
 
