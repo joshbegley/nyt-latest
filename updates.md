@@ -1,3 +1,7 @@
+**What Happened to Damages That O.J. Simpson Owed to the Victims’ Families?**\
+`In 1997, a jury in a civil trial awarded the families of Ronald Goldman and Nicole Brown Simpson $33 million. Today, the amount still owed has more than tripled.`\
+https://nytimes.com/2024/04/13/us/oj-simpson-damages.html
+
 **What are the Golan Heights?**\
 `By Alissa J. Rubin`\
 https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/what-are-the-golan-heights
