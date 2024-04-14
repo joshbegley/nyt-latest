@@ -1,3 +1,7 @@
+**The Beautiful World of Birding**\
+`Readers discuss the hobby’s many benefits. Also: Friends in the court; politicians’ health; testing the candidates; banning plastic foam.`\
+https://nytimes.com/2024/04/14/opinion/birding.html
+
 **Spring Cleaning to Refresh; Bacon and Egg Don to Comfort**\
 `Eric Kim’s recipe combines soft scrambled eggs, crisped bacon and furikake-flecked rice for a fantastic breakfast-for-dinner dish.`\
 https://nytimes.com/2024/04/14/dining/spring-cleaning-to-refresh-bacon-and-egg-don-to-comfort.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/opinion/men-virtue-tate-peterson-rogan.html
 **Leaders in Europe and the Middle East call for restraint after the attack.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/leaders-in-europe-and-the-middle-east-call-for-restraint-after-the-attack
-
-**What We Know About Iran’s Attack on Israel**\
-`Tehran fired hundreds of drones and missiles in what was believed to be its first direct assault on Israel after years of a shadow war.`\
-https://nytimes.com/2024/04/14/world/middleeast/iran-israel-drones-attack.html
 
