@@ -1,3 +1,7 @@
+**Monday Briefing: Israel Weighs a Response to Iran**\
+`Also, the Australian authorities are searching for a motive in the deadly stabbing attack.`\
+https://nytimes.com/2024/04/14/world/asia/israel-iran-attack-australia-asia.html
+
 **‘Sunset Boulevard,’ Heading to Broadway, Wins Big at Olivier Awards**\
 `The musical, which stars Nicole Scherzinger, won seven awards at Britain’s version of the Tonys. And Sarah Snook won best actress for “The Picture of Dorian Gray.”`\
 https://nytimes.com/2024/04/14/theater/olivier-award-winners-sunset-boulevard.html

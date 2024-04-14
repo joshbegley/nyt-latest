@@ -1,3 +1,7 @@
+**Monday Briefing: Israel Weighs a Response to Iran**\
+`Also, the Australian authorities are searching for a motive in the deadly stabbing attack.`\
+https://nytimes.com/2024/04/14/world/asia/israel-iran-attack-australia-asia.html
+
 **‘Sunset Boulevard,’ Heading to Broadway, Wins Big at Olivier Awards**\
 `The musical, which stars Nicole Scherzinger, won seven awards at Britain’s version of the Tonys. And Sarah Snook won best actress for “The Picture of Dorian Gray.”`\
 https://nytimes.com/2024/04/14/theater/olivier-award-winners-sunset-boulevard.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/us/politics/sununu-trump-insurrection-2024.html
 **Johnson Says the House Will Vote on an Israel Bill in the Coming Days**\
 `Speaker Mike Johnson left unclear whether the vote on the security package, coming after Iranian attacks on Israel, would also include aid for Ukraine.`\
 https://nytimes.com/2024/04/14/us/politics/johnson-israel-ukraine-house.html
-
-**The Dystopian ‘Civil War’ Reaches No. 1 at the Box Office**\
-`Alex Garland’s movie, starring Kirsten Dunst, surpassed “Godzilla x Kong,” with an estimated $25.7 million in North American ticket sales on its first weekend.`\
-https://nytimes.com/2024/04/14/movies/civil-war-box-office.html
 
