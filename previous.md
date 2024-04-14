@@ -1,3 +1,11 @@
+**What We Know About Iran’s Attack on Israel**\
+`Tehran fired hundreds of drones and missiles in what was believed to be its first direct assault on Israel after years of a shadow war.`\
+https://nytimes.com/2024/04/14/world/middleeast/iran-israel-drones-attack.html
+
+**Strikes on Israel Open a Dangerous New Chapter for Old Rivals**\
+`Key questions remained after Iran’s attack, including whether Tehran will feel it must strike again and whether Israel will choose to escalate further, analysts said.`\
+https://nytimes.com/2024/04/14/world/europe/israel-response-iran-attack.html
+
 **What’s Going On in This Picture? | April 15, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/04/14/learning/whats-going-on-in-this-picture-april-15-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/14/opinion/immigration-detention-prison.html
 **Stormy Daniels and the Comeuppance of Donald Trump**\
 `Trump has long treated women as objects, targets, supplicants. I suspect he never thought they would be the ones to hold him accountable.`\
 https://nytimes.com/2024/04/14/opinion/trump-trial-stormy-daniels.html
-
-**Four Years Out, Some Voters Look Back at Trump’s Presidency More Positively**\
-`A new poll by The New York Times and Siena College finds that voters think highly of the former president’s record on the economy, but memories of his divisiveness largely remain intact.`\
-https://nytimes.com/2024/04/14/us/politics/poll-trump-views.html
-
-**Iran’s Attacks Bring Long Shadow War With Israel Into the Open**\
-`The volley of drones and missiles was the first time that Tehran directly attacked Israel from its own territory, one expert said.`\
-https://nytimes.com/2024/04/14/world/middleeast/iran-attacks-israel-history.html
 

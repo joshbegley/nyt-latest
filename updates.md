@@ -1,3 +1,11 @@
+**What We Know About Iran’s Attack on Israel**\
+`Tehran fired hundreds of drones and missiles in what was believed to be its first direct assault on Israel after years of a shadow war.`\
+https://nytimes.com/2024/04/14/world/middleeast/iran-israel-drones-attack.html
+
+**Strikes on Israel Open a Dangerous New Chapter for Old Rivals**\
+`Key questions remained after Iran’s attack, including whether Tehran will feel it must strike again and whether Israel will choose to escalate further, analysts said.`\
+https://nytimes.com/2024/04/14/world/europe/israel-response-iran-attack.html
+
 **What’s Going On in This Picture? | April 15, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/04/14/learning/whats-going-on-in-this-picture-april-15-2024.html
