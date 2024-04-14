@@ -1,3 +1,7 @@
+**‘Sunset Boulevard,’ Heading to Broadway, Wins Big at Olivier Awards**\
+`The musical, which stars Nicole Scherzinger, won seven awards at Britain’s version of the Tonys. And Sarah Snook won best actress for “The Picture of Dorian Gray.”`\
+https://nytimes.com/2024/04/14/theater/olivier-award-winners-sunset-boulevard.html
+
 **Iranians are split over the attack. Some fear upheaval, others vow to fight.**\
 `By Farnaz Fassihi and Leily Nikounazar`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/iranians-are-split-over-the-attack-some-fear-upheaval-others-vow-to-fight
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/us/politics/johnson-israel-ukraine-house.html
 **The Dystopian ‘Civil War’ Reaches No. 1 at the Box Office**\
 `Alex Garland’s movie, starring Kirsten Dunst, surpassed “Godzilla x Kong,” with an estimated $25.7 million in North American ticket sales on its first weekend.`\
 https://nytimes.com/2024/04/14/movies/civil-war-box-office.html
-
-**Prince Harry Hits the Polo Field in Front of Netflix Cameras**\
-`The Duke of Sussex competed in a match in South Florida on Friday, a day after the announcement that he will be working on a new polo-related Netflix project.`\
-https://nytimes.com/2024/04/14/style/prince-harry-polo-netflix-meghan-markle.html
 
