@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | April 15, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/04/14/learning/whats-going-on-in-this-picture-april-15-2024.html
+
 **Iran Attacks Israel**\
 `What we know about the assault — and what it means.`\
 https://nytimes.com/2024/04/14/briefing/iran-israel-attack.html
