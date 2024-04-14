@@ -1,3 +1,7 @@
+**What are the Golan Heights?**\
+`By Alissa J. Rubin`\
+https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/what-are-the-golan-heights
+
 **Here are the latest developments.**\
 `By Aaron Boxerman, Ronen Bergman, Farnaz Fassihi and Eric Schmitt`\
 https://nytimes.com/live/2024/04/13/world/israel-iran-gaza-war-news/iran-israel-attack
