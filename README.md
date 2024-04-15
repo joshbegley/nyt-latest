@@ -1,3 +1,7 @@
+**Word of the Day: foolhardy**\
+`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/15/learning/word-of-the-day-foolhardy.html
+
 **With Iran’s Strikes, Arab Countries Fear an Expanding Conflict**\
 `The Iranian attack on Israeli territory made the Middle East’s new reality undeniable: Clashes are getting harder and harder to contain.`\
 https://nytimes.com/2024/04/15/world/middleeast/iran-israel-mideast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/pageoneplus/quotation-of-the-day-kidnapped-with-2
 **U.N. Security Council holds emergency meeting, with diplomats calling for restraint by all parties.**\
 `By Farnaz Fassihi and Gaya Gupta`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/un-security-council-holds-emergency-meeting-with-diplomats-calling-for-restraint-by-all-parties
-
-**He Was Blinded in One Eye, but Salman Rushdie’s Vision Is Undiminished**\
-`The author’s new memoir, “Knife,” addresses the attack that maimed him in 2022, and pays tribute to the wife who saw him through. “I wanted to write a book which was about both love and hatred — one overcoming the other,” he says.`\
-https://nytimes.com/2024/04/14/books/salman-rushdie-knife-interview.html
 
