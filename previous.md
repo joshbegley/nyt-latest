@@ -1,3 +1,15 @@
+**Politics Are Always Personal. In This Novel They’re Ruinous.**\
+`“The Spoiled Heart,” by Sunjeev Sahota, contrasts race and class struggles in the story of a man’s downfall.`\
+https://nytimes.com/2024/04/15/books/review/sunjeev-sahota-spoiled-heart.html
+
+**The Widest-Ever Global Coral Crisis Will Hit Within Weeks, Scientists Say**\
+`Rising sea temperatures around the planet have caused a bleaching event that is expected to be the most extensive on record.`\
+https://nytimes.com/2024/04/15/climate/coral-reefs-bleaching.html
+
+**One-Pot Tortellini With Prosciutto and Peas Is for Friends**\
+`Whether in the eating or in the making of Ali Slagle’s springtime supper.`\
+https://nytimes.com/2024/04/15/dining/one-pot-tortellini-with-prosciutto-and-peas-is-for-friends.html
+
 **A Beyoncé Album Repeats at No. 1 for the First Time in 11 Years**\
 `“Cowboy Carter” tops the Billboard 200 for a second week, boosted by physical sales of her album on CD and vinyl.`\
 https://nytimes.com/2024/04/15/arts/music/beyonce-cowboy-carter-billboard-chart.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/15/theater/olivier-awards-conversation.html
 **Judge in Trump’s Criminal Trial Declines to Recuse Himself**\
 `Donald J. Trump’s lawyers had called on Justice Juan M. Merchan to remove himself from the case, citing his daughter’s work as a Democratic consultant. Ethics experts had dismissed the idea that the judge was compromised.`\
 https://nytimes.com/2024/04/15/nyregion/judge-merchan-recusal-trump-trial.html
-
-**Biden and His Allies Are Likely to Stay Quiet on Trump’s Manhattan Trial**\
-`The president’s campaign and other Democrats believe that the court proceedings will do their work for them and that messaging should focus on Mr. Biden’s record.`\
-https://nytimes.com/2024/04/15/us/politics/biden-trump-court-case.html
-
-**A Slimmer Goldman Sachs Posts Hefty Jump in Profit**\
-`The Wall Street bank recorded nearly $4 billion in profit, beating analyst expectations in a tough quarter for big banks.`\
-https://nytimes.com/2024/04/15/business/goldman-sachs-profit.html
-
-**Tesla Will Lay Off More Than 10% of Workers**\
-`Elon Musk’s electric car company reported a drop in sales in the first three months of the year, and its profit margin has been falling for months.`\
-https://nytimes.com/2024/04/15/business/tesla-layoff-elon-musk.html
 

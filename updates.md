@@ -1,3 +1,15 @@
+**Politics Are Always Personal. In This Novel They’re Ruinous.**\
+`“The Spoiled Heart,” by Sunjeev Sahota, contrasts race and class struggles in the story of a man’s downfall.`\
+https://nytimes.com/2024/04/15/books/review/sunjeev-sahota-spoiled-heart.html
+
+**The Widest-Ever Global Coral Crisis Will Hit Within Weeks, Scientists Say**\
+`Rising sea temperatures around the planet have caused a bleaching event that is expected to be the most extensive on record.`\
+https://nytimes.com/2024/04/15/climate/coral-reefs-bleaching.html
+
+**One-Pot Tortellini With Prosciutto and Peas Is for Friends**\
+`Whether in the eating or in the making of Ali Slagle’s springtime supper.`\
+https://nytimes.com/2024/04/15/dining/one-pot-tortellini-with-prosciutto-and-peas-is-for-friends.html
+
 **A Beyoncé Album Repeats at No. 1 for the First Time in 11 Years**\
 `“Cowboy Carter” tops the Billboard 200 for a second week, boosted by physical sales of her album on CD and vinyl.`\
 https://nytimes.com/2024/04/15/arts/music/beyonce-cowboy-carter-billboard-chart.html
