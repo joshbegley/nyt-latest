@@ -1,3 +1,7 @@
+**Iran’s assault raises fears of a cycle of reprisals, like those after the U.S. killing of a top general.**\
+`By John Ismay`\
+https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/irans-assault-raises-fears-of-a-cycle-of-reprisals-like-those-after-the-us-killing-of-a-top-general
+
 **Trump’s Nostalgia Bump**\
 `Like other former presidents, time has improved Trump’s standing among voters.`\
 https://nytimes.com/2024/04/15/briefing/donald-trump-polls.html
