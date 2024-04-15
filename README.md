@@ -1,3 +1,7 @@
+**These Gay Novels Offer a ‘More Interesting Conversation’ About Faith**\
+`Recent books by Allen Bratton, Daniel Lefferts and Garrard Conley depict gay Christian characters not usually seen in queer literature.`\
+https://nytimes.com/2024/04/15/books/queer-literature-catholicism.html
+
 **‘A Different World’ Hits the Road to Help Historically Black Colleges**\
 `The beloved series was set at a fictional historically Black university. Now, cast members have reunited to visit and support real-life schools.`\
 https://nytimes.com/2024/04/15/arts/television/a-different-world-tour.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/world/australia/higgins-lehrmann-verdict-defamati
 **A.I. Has a Measurement Problem**\
 `Which A.I. system writes the best computer code or generates the most realistic image? Right now, there’s no easy way to answer those questions.`\
 https://nytimes.com/2024/04/15/technology/ai-models-measurement.html
-
-**Politics Are Always Personal. In This Novel They’re Ruinous.**\
-`“The Spoiled Heart,” by Sunjeev Sahota, contrasts race and class struggles in the story of a man’s downfall.`\
-https://nytimes.com/2024/04/15/books/review/sunjeev-sahota-spoiled-heart.html
 
