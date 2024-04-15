@@ -1,3 +1,7 @@
+**Straws That Don’t Cause Wrinkles. Wait — Straws Cause Wrinkles?**\
+`Another solution to a problem we didn’t know we had.`\
+https://nytimes.com/2024/04/15/style/self-care/anti-wrinkle-straws-tiktok.html
+
 **A Beloved Copenhagen Cafe Gets Serious About Dinner**\
 `The chef Frederik Bille Brahe has transformed the Apollo Bar & Kantine into his version of a fine dining restaurant, and celebrated with a meal for his family and collaborators.`\
 https://nytimes.com/2024/04/15/t-magazine/frederik-bille-brahe-copenhagen-cafe-apollo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/books/queer-literature-catholicism.html
 **‘A Different World’ Hits the Road to Help Historically Black Colleges**\
 `The beloved series was set at a fictional historically Black university. Now, cast members have reunited to visit and support real-life schools.`\
 https://nytimes.com/2024/04/15/arts/television/a-different-world-tour.html
-
-**Israel’s Choices on Response to Iran’s Attack All Come With Risks**\
-`Its options range from striking Iran openly and forcefully to doing nothing at all. One factor to weigh is that the huge aerial attack did little damage.`\
-https://nytimes.com/2024/04/15/world/middleeast/biden-netanyahu-iran-attack.html
 

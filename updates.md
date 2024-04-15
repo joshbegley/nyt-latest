@@ -1,3 +1,7 @@
+**Straws That Don’t Cause Wrinkles. Wait — Straws Cause Wrinkles?**\
+`Another solution to a problem we didn’t know we had.`\
+https://nytimes.com/2024/04/15/style/self-care/anti-wrinkle-straws-tiktok.html
+
 **A Beloved Copenhagen Cafe Gets Serious About Dinner**\
 `The chef Frederik Bille Brahe has transformed the Apollo Bar & Kantine into his version of a fine dining restaurant, and celebrated with a meal for his family and collaborators.`\
 https://nytimes.com/2024/04/15/t-magazine/frederik-bille-brahe-copenhagen-cafe-apollo.html
