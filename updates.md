@@ -1,3 +1,7 @@
+**The judge faces the glare of a trial that has made his daughter a target.**\
+`By Ben Protess, Jesse McKinley, Kate Christobek and William K. Rashbaum`\
+https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/the-judge-faces-the-glare-of-a-trial-that-has-made-his-daughter-a-target
+
 **Why Your Big Sister Resents You**\
 `“Eldest daughter syndrome” assumes that birth order shapes who we are and how we interact. Does it?`\
 https://nytimes.com/2024/04/15/well/family/birth-order-siblings.html

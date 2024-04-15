@@ -1,3 +1,7 @@
+**The judge faces the glare of a trial that has made his daughter a target.**\
+`By Ben Protess, Jesse McKinley, Kate Christobek and William K. Rashbaum`\
+https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/the-judge-faces-the-glare-of-a-trial-that-has-made-his-daughter-a-target
+
 **Why Your Big Sister Resents You**\
 `“Eldest daughter syndrome” assumes that birth order shapes who we are and how we interact. Does it?`\
 https://nytimes.com/2024/04/15/well/family/birth-order-siblings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/business/tesla-layoff-elon-musk.html
 **At This Hockey Game, the Biggest Save Might Have Kept a Boy Alive**\
 `A man deflected a puck heading straight for a boy’s head at a game in Ohio. With the help of TikTok, his mother was reunited with her son’s protector.`\
 https://nytimes.com/2024/04/15/sports/man-saves-boy-flying-hockey-puck.html
-
-**The split-screen campaign: Trump on trial, and Biden on the trail.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/04/15/us/election-news-biden-trump/the-split-screen-campaign-trump-on-trial-and-biden-on-the-trail
 
