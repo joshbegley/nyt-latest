@@ -1,3 +1,7 @@
+**Markets Brace for Israel’s Next Move**\
+`Global equities and oil prices were stable following Iran’s missile and drone attack on Israel, but analysts warn that the calm may not last.`\
+https://nytimes.com/2024/04/15/business/dealbook/markets-israel-iran-attack.html
+
 **Want to Win at Solitaire? Players Share Their Best Tips**\
 `Nine strategies that will improve your odds of winning.`\
 https://nytimes.com/2024/04/15/crosswords/solitaire-tips-tricks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/podcasts/the-daily/iran-israel-attack.html
 **Picking a Jury to Try Trump, and What’s Next for Iran and Israel**\
 `Plus, the mortgages keeping people stuck in their homes.`\
 https://nytimes.com/2024/04/15/podcasts/trump-trial-mortgage.html
-
-**Severe Storms Expected in the Plains and Midwest**\
-`Large hail, damaging winds, heavy rain and isolated tornadoes are expected on Monday in the Plains before moving into the Midwest on Tuesday.`\
-https://nytimes.com/2024/04/15/us/weather-storms-midwest-plains.html
 
