@@ -1,3 +1,7 @@
+**These Gay Novels Offer a ‘More Interesting Conversation’ About Faith**\
+`Recent books by Allen Bratton, Daniel Lefferts and Garrard Conley depict gay Christian characters not usually seen in queer literature.`\
+https://nytimes.com/2024/04/15/books/queer-literature-catholicism.html
+
 **‘A Different World’ Hits the Road to Help Historically Black Colleges**\
 `The beloved series was set at a fictional historically Black university. Now, cast members have reunited to visit and support real-life schools.`\
 https://nytimes.com/2024/04/15/arts/television/a-different-world-tour.html
