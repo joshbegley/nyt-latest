@@ -1,3 +1,11 @@
+**Why Your Big Sister Resents You**\
+`“Eldest daughter syndrome” assumes that birth order shapes who we are and how we interact. Does it?`\
+https://nytimes.com/2024/04/15/well/family/birth-order-siblings.html
+
+**Can You Find the 15 Book Titles Hidden in This Text?**\
+`This month’s Title Search puzzle challenges you to uncover novels written for middle-grade readers.`\
+https://nytimes.com/interactive/2024/04/15/books/review/chapter-books-quiz.html
+
 **Flying With Dogs or Cats? These Are Airlines’ Pet Policies**\
 `American recently relaxed its rules for pets traveling inside the cabin with their owners. Here’s what the major U.S. airlines require to travel with a pet.`\
 https://nytimes.com/article/pets-airlines-requirements.html

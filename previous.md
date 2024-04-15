@@ -1,3 +1,11 @@
+**Why Your Big Sister Resents You**\
+`“Eldest daughter syndrome” assumes that birth order shapes who we are and how we interact. Does it?`\
+https://nytimes.com/2024/04/15/well/family/birth-order-siblings.html
+
+**Can You Find the 15 Book Titles Hidden in This Text?**\
+`This month’s Title Search puzzle challenges you to uncover novels written for middle-grade readers.`\
+https://nytimes.com/interactive/2024/04/15/books/review/chapter-books-quiz.html
+
 **Flying With Dogs or Cats? These Are Airlines’ Pet Policies**\
 `American recently relaxed its rules for pets traveling inside the cabin with their owners. Here’s what the major U.S. airlines require to travel with a pet.`\
 https://nytimes.com/article/pets-airlines-requirements.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/15/sports/man-saves-boy-flying-hockey-puck.html
 **The split-screen campaign: Trump on trial, and Biden on the trail.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/04/15/us/election-news-biden-trump/the-split-screen-campaign-trump-on-trial-and-biden-on-the-trail
-
-**As History Is Made, Trump Can Only Glare in Silent Fury**\
-`His claim that the first criminal trial of a president is really just political won’t play inside the courtroom.`\
-https://nytimes.com/live/2024/04/09/opinion/thepoint/trump-criminal-trial-opens
-
-**Supporters, protesters and journalists assembled outside the Manhattan courthouse.**\
-`By Jesse McKinley, Olivia Bensimon, Anusha Bayya and Kaja Andric`\
-https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/supporters-protesters-and-journalists-assembled-outside-the-manhattan-courthouse
 
