@@ -1,3 +1,7 @@
+**NASA Searching for New Ideas for Its Mars Rocks Return Mission**\
+`The agency will seek new ideas for its Mars Sample Return program, expected to be billions of dollars over budget and years behind schedule.`\
+https://nytimes.com/2024/04/15/science/nasa-mars-sample-return-mission.html
+
 **Hochul Announces $237 Billion Budget, Including a Housing Deal**\
 `The spending plan, which still needs to be approved by the full State Legislature, includes measures on criminal justice, education and illegal cannabis shops.`\
 https://nytimes.com/2024/04/15/nyregion/state-budget-housing-ny.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/briefing/trump-jury-selection-israel-iran-respons
 **Trump Beats Biden on the Economy, Voters Say. Are They Right?**\
 `There are some likely voters whose opinions and actions don’t line up.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/trump-biden-economy-poll
-
-**Owners of Funeral Home With Decaying Bodies Are Charged With Covid Relief Fraud**\
-`Originally charged after 190 decomposing bodies were found at their Colorado funeral home, the couple now face federal charges that they fraudulently obtained $880,000 in relief funds.`\
-https://nytimes.com/2024/04/15/us/colorado-funeral-home-fraud-owners-arrested.html
 
