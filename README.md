@@ -1,7 +1,3 @@
-**Judge Merchan Starts to Hold Trump Accountable**\
-`Slumping in his seat, the former president began listening to a debate on some extremely personal accusations.`\
-https://nytimes.com/live/2024/04/09/opinion/thepoint/trump-trial-accountable
-
 **Here’s what each side is looking for in a juror.**\
 `By Jesse McKinley, Kate Christobek and Maggie Haberman`\
 https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/heres-what-the-two-sides-are-looking-for-in-a-juror
@@ -37,4 +33,8 @@ https://nytimes.com/2024/04/15/world/middleeast/iran-israel-strike-diplomacy.htm
 **A Weary Trump Appears to Doze Off in Courtroom Ahead of Criminal Trial**\
 `The former president flashed signs of irritation at times, but also seemed to fall asleep, before jolting back awake.`\
 https://nytimes.com/2024/04/15/nyregion/trump-asleep-criminal-trial.html
+
+**Trump Media Stock Plunges, Extending Recent Losses**\
+`Funds that bet on a fall were set to profit as the parent of Truth Social came under renewed pressure after it registered new shares for a potential sale.`\
+https://nytimes.com/2024/04/15/business/trump-media-stock.html
 
