@@ -1,3 +1,11 @@
+**Supreme Court Poised to Cut Back Scope of Anti-Corruption Law**\
+`The question for the justices was whether a federal law prohibits not only before-the-fact bribes but also after-the-fact rewards.`\
+https://nytimes.com/2024/04/15/us/supreme-court-anti-corruption-law.html
+
+**Expert Panel Calls on Germany to Legalize Abortion in First 12 Weeks**\
+`For decades, Germany allowed early abortions even while keeping them illegal. A government-appointed commission says the system is “untenable.”`\
+https://nytimes.com/2024/04/15/world/europe/germany-abortion.html
+
 **Protesters Block Roads Across the U.S. to Support Those in Gaza**\
 `The coordinated protests across the United States and around the globe were planned in part to coincide with Tax Day in the United States.`\
 https://nytimes.com/2024/04/15/world/middleeast/ceasefire-palestine-gaza-protest.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/15/us/politics/veterans-transgender-lawsuit.html
 **Britain’s Leaders Condemn Iran’s Attacks but Urge Israel to Show Restraint**\
 `Rishi Sunak said the government in Tehran was “intent on sowing chaos” in the region, but he also called for restraint from “all sides.”`\
 https://nytimes.com/2024/04/15/world/middleeast/britains-leaders-condemn-irans-attacks-but-urge-israel-to-show-restraint.html
-
-**To Fight Climate Change, We Need New ‘Political Technologies’**\
-`Our institutions are bad at solving “long problems,” but they don’t need to be.`\
-https://nytimes.com/2024/04/15/opinion/climate-change-long-problems.html
-
-**Judge Merchan Starts to Hold Trump Accountable**\
-`Slumping in his seat, the former president began listening to a debate on some extremely personal accusations.`\
-https://nytimes.com/live/2024/04/09/opinion/thepoint/trump-trial-accountable
 
