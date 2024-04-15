@@ -1,3 +1,7 @@
+**A Weary Trump Appears to Doze Off in Courtroom Ahead of Criminal Trial**\
+`The former president flashed signs of irritation at times, but also seemed to fall asleep, before jolting back awake.`\
+https://nytimes.com/2024/04/15/nyregion/trump-asleep-criminal-trial.html
+
 **Trump Media Stock Plunges, Extending Recent Losses**\
 `Funds that bet on a fall were set to profit as the parent of Truth Social came under renewed pressure after it registered new shares for a potential sale.`\
 https://nytimes.com/2024/04/15/business/trump-media-stock.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/t-magazine/radicchio-salad-recipe.html
 **Putting U.S. Power Behind Israel Will Keep Iran at Bay**\
 `The best way for Washington to limit the expansion of the Israel-Iran conflict is to clearly signal its intention to support an Israeli counterattack.`\
 https://nytimes.com/2024/04/15/opinion/israel-iran-united-states-war-gaza.html
-
-**‘Access Hollywood’ Tape Won’t Be Played for Jurors in Trump Trial**\
-`But the judge overseeing Donald J. Trump’s hush-money trial said the jury can be told what he said in the clip, where he bragged about grabbing women’s genitals.`\
-https://nytimes.com/2024/04/15/nyregion/access-hollywood-tape-trump.html
 
