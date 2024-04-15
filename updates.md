@@ -1,3 +1,7 @@
+**A.I. Has a Measurement Problem**\
+`Which A.I. system writes the best computer code or generates the most realistic image? Right now, there’s no easy way to answer those questions.`\
+https://nytimes.com/2024/04/15/technology/ai-models-measurement.html
+
 **Politics Are Always Personal. In This Novel They’re Ruinous.**\
 `“The Spoiled Heart,” by Sunjeev Sahota, contrasts race and class struggles in the story of a man’s downfall.`\
 https://nytimes.com/2024/04/15/books/review/sunjeev-sahota-spoiled-heart.html
