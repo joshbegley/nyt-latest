@@ -1,3 +1,7 @@
+**Prospective jurors head for the exits, saying they can’t be fair to Trump.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/trump-criminal-hush-money-trial-witnesses
+
 **Robert Beerbohm, Pioneering Comic Book Retailer and Historian, Dies at 71**\
 `A professed archaeologist of the industry, he opened his own stores and partnered with other experts and vendors in the nascent comics business.`\
 https://nytimes.com/2024/04/15/arts/robert-beerbohm-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/world/middleeast/ukraine-aid-israel-iran-war.html
 **David Egilman, Doctor Who Took On Drug Companies, Dies at 71**\
 `His testimony as an expert witness in some 600 trials helped plaintiffs win billions of dollars in cases involving malfeasance by pharmaceutical makers.`\
 https://nytimes.com/2024/04/15/health/david-egilman-dead.html
-
-**How to Make Frozen Shrimp Even Faster (and More Delicious)**\
-`You’re 20 minutes and a few simple steps from a fresh spring stir-fry built from a freezer staple.`\
-https://nytimes.com/2024/04/15/dining/how-to-cook-frozen-shrimp.html
 
