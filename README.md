@@ -1,3 +1,7 @@
+**A.I. Has a Measurement Problem**\
+`Which A.I. system writes the best computer code or generates the most realistic image? Right now, there’s no easy way to answer those questions.`\
+https://nytimes.com/2024/04/15/technology/ai-models-measurement.html
+
 **Politics Are Always Personal. In This Novel They’re Ruinous.**\
 `“The Spoiled Heart,” by Sunjeev Sahota, contrasts race and class struggles in the story of a man’s downfall.`\
 https://nytimes.com/2024/04/15/books/review/sunjeev-sahota-spoiled-heart.html
@@ -33,8 +37,4 @@ https://nytimes.com/article/pets-airlines-requirements.html
 **The Snubs and Surprises of the 2024 Olivier Awards**\
 `Our theater critics and a reporter discuss the big winner — “Sunset Boulevard” — and the rest of the honorees at Britain’s equivalent of the Tonys.`\
 https://nytimes.com/2024/04/15/theater/olivier-awards-conversation.html
-
-**Judge in Trump’s Criminal Trial Declines to Recuse Himself**\
-`Donald J. Trump’s lawyers had called on Justice Juan M. Merchan to remove himself from the case, citing his daughter’s work as a Democratic consultant. Ethics experts had dismissed the idea that the judge was compromised.`\
-https://nytimes.com/2024/04/15/nyregion/judge-merchan-recusal-trump-trial.html
 
