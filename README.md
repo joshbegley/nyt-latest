@@ -1,3 +1,11 @@
+**Protesters Block Roads Across the U.S. to Support Those in Gaza**\
+`The coordinated protests across the United States and around the globe were planned in part to coincide with Tax Day in the United States.`\
+https://nytimes.com/2024/04/15/world/middleeast/ceasefire-palestine-gaza-protest.html
+
+**New Migrants Get Work Permits. Other Undocumented Immigrants Want Them, Too.**\
+`Long-term undocumented immigrants — and their employers — are feeling left out by Biden administration policies allowing most who just crossed the border to work legally.`\
+https://nytimes.com/2024/04/15/us/migrants-work-permits-undocumented.html
+
 **What Do You Want to Know About Trump’s Trial in New York?**\
 `We’ll help answer your questions.`\
 https://nytimes.com/2024/04/15/briefing/what-do-you-want-to-know-about-trumps-trial-in-new-york.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/15/opinion/climate-change-long-problems.html
 **Judge Merchan Starts to Hold Trump Accountable**\
 `Slumping in his seat, the former president began listening to a debate on some extremely personal accusations.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/trump-trial-accountable
-
-**Here’s what each side is looking for in a juror.**\
-`By Jesse McKinley, Kate Christobek and Maggie Haberman`\
-https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/heres-what-the-two-sides-are-looking-for-in-a-juror
-
-**Ukraine Sees ‘Hypocrisy’ in Western Allies’ Defense of Israel**\
-`The U.S., British and French militaries helped intercept Iranian missiles and drones, but Ukrainians say they haven’t provided the same help against Russian air attacks.`\
-https://nytimes.com/2024/04/15/world/middleeast/ukraine-aid-israel-iran-war.html
 
