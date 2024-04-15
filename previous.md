@@ -1,3 +1,11 @@
+**At This Hockey Game, the Biggest Save Might Have Kept a Boy Alive**\
+`A man deflected a puck heading straight for a boy’s head at a game in Ohio. With the help of TikTok, his mother was reunited with her son’s protector.`\
+https://nytimes.com/2024/04/15/sports/man-saves-boy-flying-hockey-puck.html
+
+**The split-screen campaign: Trump on trial, and Biden on the trail.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/04/15/us/election-news-biden-trump/the-split-screen-campaign-trump-on-trial-and-biden-on-the-trail
+
 **As History Is Made, Trump Can Only Glare in Silent Fury**\
 `His claim that the first criminal trial of a president is really just political won’t play inside the courtroom.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/trump-criminal-trial-opens
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/15/arts/harold-halibut-slow-bros.html
 **We’re Adding to Our California Movie List**\
 `“Harold and Maude,” “The Grapes of Wrath” and more.`\
 https://nytimes.com/2024/04/15/us/california-movie-list.html
-
-**Reeling From Mass Stabbing, Australians Ask: Was It About Hatred of Women?**\
-`All but three of the 18 people killed or injured Saturday were women. While the attacker’s motive may never be known, many said the incident spoke to a larger problem.`\
-https://nytimes.com/2024/04/15/world/asia/sydney-stabbing-women-misogyny.html
-
-**Markets Brace for Israel’s Next Move**\
-`Global equities and oil prices were stable following Iran’s missile and drone attack on Israel, but analysts warn that the calm may not last.`\
-https://nytimes.com/2024/04/15/business/dealbook/markets-israel-iran-attack.html
 

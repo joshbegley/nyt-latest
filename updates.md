@@ -1,3 +1,11 @@
+**At This Hockey Game, the Biggest Save Might Have Kept a Boy Alive**\
+`A man deflected a puck heading straight for a boy’s head at a game in Ohio. With the help of TikTok, his mother was reunited with her son’s protector.`\
+https://nytimes.com/2024/04/15/sports/man-saves-boy-flying-hockey-puck.html
+
+**The split-screen campaign: Trump on trial, and Biden on the trail.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/04/15/us/election-news-biden-trump/the-split-screen-campaign-trump-on-trial-and-biden-on-the-trail
+
 **As History Is Made, Trump Can Only Glare in Silent Fury**\
 `His claim that the first criminal trial of a president is really just political won’t play inside the courtroom.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/trump-criminal-trial-opens
