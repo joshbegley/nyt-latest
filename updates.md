@@ -1,3 +1,7 @@
+**2 Police Officers Are Killed in Shootout Near Syracuse, N.Y.**\
+`A suspect fired at the officers as they investigated a stolen vehicle in the upstate town of Salina, the authorities said. The suspect died in the shootout.`\
+https://nytimes.com/2024/04/15/nyregion/police-officers-salina-shooting.html
+
 **Here are the latest developments.**\
 `By Mike Ives`\
 https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/here-are-the-latest-developments

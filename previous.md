@@ -1,3 +1,7 @@
+**2 Police Officers Are Killed in Shootout Near Syracuse, N.Y.**\
+`A suspect fired at the officers as they investigated a stolen vehicle in the upstate town of Salina, the authorities said. The suspect died in the shootout.`\
+https://nytimes.com/2024/04/15/nyregion/police-officers-salina-shooting.html
+
 **Here are the latest developments.**\
 `By Mike Ives`\
 https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/nyregion/trump-trial-jury-selection-ny.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/04/15/crosswords/spelling-bee-forum.html
-
-**Word of the Day: foolhardy**\
-`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/04/15/learning/word-of-the-day-foolhardy.html
 
