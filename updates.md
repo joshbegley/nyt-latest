@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/here-are-the-latest-developments
+
 **Trump’s Criminal Trial to Begin in Manhattan With Jury Selection**\
 `Hundreds of Manhattanites have been summoned to court so that prosecutors and defense lawyers can choose 12 who will decide the fate of Donald J. Trump.`\
 https://nytimes.com/2024/04/15/nyregion/trump-trial-hush-money.html
