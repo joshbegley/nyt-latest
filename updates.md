@@ -1,4 +1,8 @@
 **With Iran’s Strikes, Arab Countries Fear an Expanding Conflict**\
+`The Iranian attack on Israeli territory made the Middle East’s new reality undeniable: Clashes are getting harder and harder to contain.`\
+https://nytimes.com/2024/04/15/world/middleeast/iran-israel-mideast.html
+
+**With Iran’s Strikes, Arab Countries Fear an Expanding Conflict**\
 `The Iranian attack on Israeli territory made the Mideast’s new reality undeniable: Clashes are getting harder and harder to contain.`\
 https://nytimes.com/2024/04/15/world/middleeast/iran-israel-mideast.html
 
