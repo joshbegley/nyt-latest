@@ -11,7 +11,7 @@ https://nytimes.com/2024/04/15/arts/harold-halibut-slow-bros.html
 https://nytimes.com/2024/04/15/us/california-movie-list.html
 
 **15trump-trial**\
-`Live Updates: Trump Trial Poised to Begin, a Criminal Case Without Precedent`\
+``\
 https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial
 
 **Reeling From Mass Stabbing, Australians Ask: Was It About Hatred of Women?**\
