@@ -1,3 +1,7 @@
+**Judge in Trump’s Criminal Trial Declines to Recuse Himself**\
+`Donald J. Trump’s lawyers had called on Justice Juan M. Merchan to remove himself from the case, citing his daughter’s work as a Democratic consultant. Ethics experts had dismissed the idea that the judge was compromised.`\
+https://nytimes.com/2024/04/15/nyregion/judge-merchan-recusal-trump-trial.html
+
 **Biden and His Allies Are Likely to Stay Quiet on Trump’s Manhattan Trial**\
 `The president’s campaign and other Democrats believe that the court proceedings will do their work for them and that messaging should focus on Mr. Biden’s record.`\
 https://nytimes.com/2024/04/15/us/politics/biden-trump-court-case.html
