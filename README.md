@@ -12,7 +12,7 @@ https://nytimes.com/2024/04/15/briefing/what-do-you-want-to-know-about-trumps-tr
 
 **Prospective jurors head for the exits, saying they can’t be fair to Trump.**\
 `By Alan Feuer`\
-https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/trump-criminal-hush-money-trial-witnesses
+https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/trump-criminal-hush-money-trial-jury
 
 **Robert Beerbohm, Pioneering Comic Book Retailer and Historian, Dies at 71**\
 `A professed archaeologist of the industry, he opened his own stores and partnered with other experts and vendors in the nascent comics business.`\
