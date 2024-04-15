@@ -1,3 +1,7 @@
+**Review: It’s No Sunday in the Park With ‘Lempicka’**\
+`A musical about the groundbreaking Art Deco painter is vocally thrilling but historically a blur.`\
+https://nytimes.com/2024/04/14/theater/lempicka-review-chavkin-espinosa.html
+
 **Quotation of the Day: Kidnapped With 275 Girls, She Finally Escaped**\
 `Quotation of the Day for Monday, April 15, 2024.`\
 https://nytimes.com/2024/04/14/pageoneplus/quotation-of-the-day-kidnapped-with-275-girls-she-finally-escaped.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/world/asia/israel-iran-attack-australia-asia.html
 **‘Sunset Boulevard,’ Heading to Broadway, Wins Big at Olivier Awards**\
 `The musical, which stars Nicole Scherzinger, won seven awards at Britain’s version of the Tonys. And Sarah Snook won best actress for “The Picture of Dorian Gray.”`\
 https://nytimes.com/2024/04/14/theater/olivier-award-winners-sunset-boulevard.html
-
-**Iranians are split over the attack. Some fear upheaval, others vow to fight.**\
-`By Farnaz Fassihi and Leily Nikounazar`\
-https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/iranians-are-split-over-the-attack-some-fear-upheaval-others-vow-to-fight
 
