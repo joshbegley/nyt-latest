@@ -1,3 +1,7 @@
+**‘Rust’ Armorer Is Sentenced to 18 Months for Involuntary Manslaughter**\
+`The armorer, Hannah Gutierrez-Reed, was the first person to be held criminally responsible in a jury trial for the death of Halyna Hutchins, the movie’s cinematographer.`\
+https://nytimes.com/2024/04/15/arts/rust-sentencing-hannah-gutierrez-reed.html
+
 **New York Nears a Housing Deal to Confront Affordability Crisis**\
 `The agreement could clear the way for the construction of hundreds of thousands of homes and make it more difficult for landlords to evict renters.`\
 https://nytimes.com/2024/04/15/nyregion/ny-housing-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/style/biden-tailor-mens-wear.html
 **Rico Wade and Organized Noize’s 10 Essential Songs**\
 `The producer helped shape and boost the sound of Atlanta rap starting in the mid-1990s. His death at 52 was announced last Saturday.`\
 https://nytimes.com/2024/04/15/arts/music/rico-wade-organized-noize-playlist.html
-
-**Straws That Don’t Cause Wrinkles. Wait — Straws Cause Wrinkles?**\
-`Another solution to a problem we didn’t know we had.`\
-https://nytimes.com/2024/04/15/style/self-care/anti-wrinkle-straws-tiktok.html
 
