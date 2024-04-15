@@ -1,3 +1,7 @@
+**James Dean, Founding Director of NASA Art Program, Dies at 92**\
+`He arranged for artists to have access to astronauts, launchpads and more. “Their imaginations enable them to venture beyond a scientific explanation,” he once said.`\
+https://nytimes.com/2024/04/15/science/space/james-dean-dead.html
+
 **E.V. Sales Are Slowing. Tesla’s Are Slumping.**\
 `More competition and flagging demand for electric vehicles has led to declining sales at Tesla.`\
 https://nytimes.com/2024/04/15/business/ev-car-sales-tesla.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/us/supreme-court-anti-corruption-law.html
 **Expert Panel Calls on Germany to Legalize Abortion in First 12 Weeks**\
 `For decades, Germany allowed early abortions even while keeping them illegal. A government-appointed commission says the system is “untenable.”`\
 https://nytimes.com/2024/04/15/world/europe/germany-abortion.html
-
-**Protesters Block Roads Across the U.S. to Support Those in Gaza**\
-`The coordinated protests across the United States and around the globe were planned in part to coincide with Tax Day in the United States.`\
-https://nytimes.com/2024/04/15/world/middleeast/ceasefire-palestine-gaza-protest.html
 
