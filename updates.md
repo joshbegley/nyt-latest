@@ -1,3 +1,7 @@
+**In City Ballet’s Coming Season, New Works and Earlier Curtain Times**\
+`New York City Ballet will present a mix of old and new works, including premieres by Justin Peck, Alexei Ratmansky and Caili Quan, and introduce fewer intermissions.`\
+https://nytimes.com/2024/04/15/arts/dance/new-york-city-ballet-2024-25-season.html
+
 **Have Voters Really Forgotten Trump’s Presidency?**\
 `A new poll raises questions about the national memory.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/have-voters-really-forgotten-trumps-presidency

@@ -1,3 +1,7 @@
+**In City Ballet’s Coming Season, New Works and Earlier Curtain Times**\
+`New York City Ballet will present a mix of old and new works, including premieres by Justin Peck, Alexei Ratmansky and Caili Quan, and introduce fewer intermissions.`\
+https://nytimes.com/2024/04/15/arts/dance/new-york-city-ballet-2024-25-season.html
+
 **Have Voters Really Forgotten Trump’s Presidency?**\
 `A new poll raises questions about the national memory.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/have-voters-really-forgotten-trumps-presidency
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/arts/music/beyonce-cowboy-carter-billboard-chart.
 **The judge faces the glare of a trial that has made his daughter a target.**\
 `By Ben Protess, Jesse McKinley, Kate Christobek and William K. Rashbaum`\
 https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/the-judge-faces-the-glare-of-a-trial-that-has-made-his-daughter-a-target
-
-**Why Your Big Sister Resents You**\
-`“Eldest daughter syndrome” assumes that birth order shapes who we are and how we interact. Does it?`\
-https://nytimes.com/2024/04/15/well/family/birth-order-siblings.html
 
