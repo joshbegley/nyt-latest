@@ -1,3 +1,7 @@
+**Want to Win at Solitaire? Players Share Their Best Tips**\
+`Nine strategies that will improve your odds of winning.`\
+https://nytimes.com/2024/04/15/crosswords/solitaire-tips-tricks.html
+
 **Israel’s Allies Make a Full-Court Press to Urge Restraint**\
 `Some far-right members of the Israeli government called for a strong response to an Iranian attack, but the U.S., the E.U. and others cautioned against further escalation.`\
 https://nytimes.com/2024/04/15/world/middleeast/israels-allies-make-a-full-court-press-to-urge-restraint.html

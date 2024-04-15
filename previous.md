@@ -1,3 +1,7 @@
+**Want to Win at Solitaire? Players Share Their Best Tips**\
+`Nine strategies that will improve your odds of winning.`\
+https://nytimes.com/2024/04/15/crosswords/solitaire-tips-tricks.html
+
 **Israel’s Allies Make a Full-Court Press to Urge Restraint**\
 `Some far-right members of the Israeli government called for a strong response to an Iranian attack, but the U.S., the E.U. and others cautioned against further escalation.`\
 https://nytimes.com/2024/04/15/world/middleeast/israels-allies-make-a-full-court-press-to-urge-restraint.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/podcasts/trump-trial-mortgage.html
 **Severe Storms Expected in the Plains and Midwest**\
 `Large hail, damaging winds, heavy rain and isolated tornadoes are expected on Monday in the Plains before moving into the Midwest on Tuesday.`\
 https://nytimes.com/2024/04/15/us/weather-storms-midwest-plains.html
-
-**Online Dating After 50 Can Be Miserable. But It’s Also Liberating.**\
-`You know so much more about yourself and your desires when you’re older that dating apps — even with all their frustrations — can bring unanticipated pleasure.`\
-https://nytimes.com/2024/04/15/magazine/dating-after-50.html
 
