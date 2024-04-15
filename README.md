@@ -1,3 +1,7 @@
+**Trump’s Nostalgia Bump**\
+`Like other former presidents, time has improved Trump’s standing among voters.`\
+https://nytimes.com/2024/04/15/briefing/donald-trump-polls.html
+
 **Iran’s Unprecedented Attack on Israel**\
 `A yearslong shadow war between the countries burst into the open after Tehran fired hundreds of drones and missiles.`\
 https://nytimes.com/2024/04/15/podcasts/the-daily/iran-israel-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/arts/design/milan-design-week-seating.html
 **Could These Two Twists Change the 2024 Race?**\
 `Donald Trump’s cover-up trial and his abortion position have weakened his formerly strong position.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/could-these-two-twists-change-the-2024-race
-
-**A Show of Might in the Skies Over Israel**\
-`Iran’s retaliation for Israel’s killing of senior military leaders was a highly choreographed spectacle. But fears of a wider war still loom.`\
-https://nytimes.com/2024/04/15/us/politics/iran-aerial-display-israel.html
 
