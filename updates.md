@@ -1,3 +1,7 @@
+**A Beyoncé Album Repeats at No. 1 for the First Time in 11 Years**\
+`“Cowboy Carter” tops the Billboard 200 for a second week, boosted by physical sales of her album on CD and vinyl.`\
+https://nytimes.com/2024/04/15/arts/music/beyonce-cowboy-carter-billboard-chart.html
+
 **The judge faces the glare of a trial that has made his daughter a target.**\
 `By Ben Protess, Jesse McKinley, Kate Christobek and William K. Rashbaum`\
 https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/the-judge-faces-the-glare-of-a-trial-that-has-made-his-daughter-a-target
