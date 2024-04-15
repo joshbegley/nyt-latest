@@ -1,3 +1,11 @@
+**Supporters, protesters and journalists assembled outside the Manhattan courthouse.**\
+`By Jesse McKinley, Olivia Bensimon, Anusha Bayya and Kaja Andric`\
+https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/supporters-protesters-and-journalists-assembled-outside-the-manhattan-courthouse
+
+**Families of Manchester Bombing Victims File Lawsuit Against MI5**\
+`The suit comes after an independent public inquiry said the 2017 bombing at an Ariana Grande concert was a “significant missed opportunity” for the U.K. spy agency.`\
+https://nytimes.com/2024/04/15/world/europe/manchester-bombing-mi5-lawsuit.html
+
 **Bishop Is Stabbed During Live Streamed Service in Sydney**\
 `Nobody was critically injured, the police said. The attack came two days after a deadly stabbing rampage at a mall in an eastern suburb of Sydney.`\
 https://nytimes.com/2024/04/15/world/australia/stabbing-mass-wakeley-australia.html
