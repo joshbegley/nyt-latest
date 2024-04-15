@@ -1,3 +1,7 @@
+**Iran’s Strike on Israel Creates Military Uncertainty, Diplomatic Opportunity**\
+`Analysts feared Iran’s strikes might set off a wider war. But with Israel still weighing its response, the attack’s military and diplomatic consequences have yet to be determined.`\
+https://nytimes.com/2024/04/15/world/middleeast/iran-israel-strike-diplomacy.html
+
 **A Weary Trump Appears to Doze Off in Courtroom Ahead of Criminal Trial**\
 `The former president flashed signs of irritation at times, but also seemed to fall asleep, before jolting back awake.`\
 https://nytimes.com/2024/04/15/nyregion/trump-asleep-criminal-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/t-magazine/frederik-bille-brahe-copenhagen-cafe-a
 **A Radicchio Salad for People Who Don’t Think They Like Radicchio**\
 `The Danish chef Frederik Bille Brahe shares the recipe for the star dish at his newly reopened Copenhagen cafe Apollo Bar & Kantine.`\
 https://nytimes.com/2024/04/15/t-magazine/radicchio-salad-recipe.html
-
-**Putting U.S. Power Behind Israel Will Keep Iran at Bay**\
-`The best way for Washington to limit the expansion of the Israel-Iran conflict is to clearly signal its intention to support an Israeli counterattack.`\
-https://nytimes.com/2024/04/15/opinion/israel-iran-united-states-war-gaza.html
 

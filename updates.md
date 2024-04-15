@@ -1,3 +1,7 @@
+**Iran’s Strike on Israel Creates Military Uncertainty, Diplomatic Opportunity**\
+`Analysts feared Iran’s strikes might set off a wider war. But with Israel still weighing its response, the attack’s military and diplomatic consequences have yet to be determined.`\
+https://nytimes.com/2024/04/15/world/middleeast/iran-israel-strike-diplomacy.html
+
 **A Weary Trump Appears to Doze Off in Courtroom Ahead of Criminal Trial**\
 `The former president flashed signs of irritation at times, but also seemed to fall asleep, before jolting back awake.`\
 https://nytimes.com/2024/04/15/nyregion/trump-asleep-criminal-trial.html
