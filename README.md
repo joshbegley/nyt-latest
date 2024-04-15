@@ -1,3 +1,7 @@
+**Robert Beerbohm, Pioneering Comic Book Retailer and Historian, Dies at 71**\
+`He helped start the f`\
+https://nytimes.com/2024/04/15/arts/robert-beerbohm-dead.html
+
 **A Surprising Shadow Was Created by the Total Solar Eclipse**\
 `An ascending jet’s contrail over Montreal added to the wonder of last Monday’s eclipse.`\
 https://nytimes.com/2024/04/15/science/eclipse-shadow-plane-halo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/health/david-egilman-dead.html
 **How to Make Frozen Shrimp Even Faster (and More Delicious)**\
 `You’re 20 minutes and a few simple steps from a fresh spring stir-fry built from a freezer staple.`\
 https://nytimes.com/2024/04/15/dining/how-to-cook-frozen-shrimp.html
-
-**‘Rust’ Armorer Is Sentenced to 18 Months for Involuntary Manslaughter**\
-`The armorer, Hannah Gutierrez-Reed, got the maximum sentence for loading a live round into a gun on a film set, leading to the death of Halyna Hutchins, the movie’s cinematographer.`\
-https://nytimes.com/2024/04/15/arts/hannah-gutierrez-reed-rust.html
 
