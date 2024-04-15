@@ -1,3 +1,11 @@
+**A Historic Day**\
+`Trump arrived this morning at Criminal Court in Lower Manhattan, as jury selection began in the first criminal trial of a former president.`\
+https://nytimes.com/2024/04/15/us/politics/trump-trial-manhattan-first-day.html
+
+**‘The Stranger’ Review: Somewhere Over the Freeway**\
+`In this tense thriller on Hulu, Maika Monroe plays Clare, a Kansas transplant in Los Angeles who parallels Dorothy in Oz.`\
+https://nytimes.com/2024/04/15/movies/the-stranger-review.html
+
 **James Dean, Founding Director of NASA Art Program, Dies at 92**\
 `He arranged for artists to have access to astronauts, launchpads and more. “Their imaginations enable them to venture beyond a scientific explanation,” he once said.`\
 https://nytimes.com/2024/04/15/science/space/james-dean-dead.html
