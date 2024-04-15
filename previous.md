@@ -1,3 +1,7 @@
+**Israeli civilians kill two Palestinians in the West Bank, officials say.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/israeli-civilians-kill-two-palestinians-in-the-west-bank-officials-say
+
 **Johnson Says House Will Vote on Stalled Aid to Israel and Ukraine**\
 `The speaker, who has delayed for months amid G.O.P. opposition to funding for Kyiv, said he would bring up foreign aid legislation along with a bill aimed at appeasing Republican skeptics.`\
 https://nytimes.com/2024/04/15/world/europe/johnson-israel-ukraine-aid-house-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/us/politics/trump-trial-campaign.html
 **Iran pushes propaganda campaign to Arab nations, but not everyone is impressed.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/iran-pushes-propaganda-campaign-to-arab-nations-but-not-everyone-is-impressed
-
-**Federal Officials to Shut Women’s Prison After Years of Sexual Abuse**\
-`About 600 inmates housed at the troubled facility in the San Francisco Bay Area will be transferred to other federal institutions.`\
-https://nytimes.com/2024/04/15/us/dublin-womens-prison-close.html
 

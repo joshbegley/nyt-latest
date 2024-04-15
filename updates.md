@@ -1,3 +1,7 @@
+**Israeli civilians kill two Palestinians in the West Bank, officials say.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/israeli-civilians-kill-two-palestinians-in-the-west-bank-officials-say
+
 **Johnson Says House Will Vote on Stalled Aid to Israel and Ukraine**\
 `The speaker, who has delayed for months amid G.O.P. opposition to funding for Kyiv, said he would bring up foreign aid legislation along with a bill aimed at appeasing Republican skeptics.`\
 https://nytimes.com/2024/04/15/world/europe/johnson-israel-ukraine-aid-house-vote.html
