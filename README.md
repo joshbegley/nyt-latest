@@ -1,3 +1,7 @@
+**Trump Media Stock Plunges, Extending Recent Losses**\
+`Funds that bet on a fall were set to profit as the parent of Truth Social came under renewed pressure after it registered new shares for a potential sale.`\
+https://nytimes.com/2024/04/15/business/trump-media-stock.html
+
 **Donald Trump on Trial: What to Expect**\
 `Readers discuss what’s at stake, the jurors and the possibility of Donald Trump’s testifying. Also: Aid to Ukraine; originalism; thinking rationally.`\
 https://nytimes.com/2024/04/15/opinion/donald-trump-hush-money-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/opinion/israel-iran-united-states-war-gaza.html
 **‘Access Hollywood’ Tape Won’t Be Played for Jurors in Trump Trial**\
 `But the judge overseeing Donald J. Trump’s hush-money trial said the jury can be told what he said in the clip, where he bragged about grabbing women’s genitals.`\
 https://nytimes.com/2024/04/15/nyregion/access-hollywood-tape-trump.html
-
-**Al Gore Thinks Trump Will Lose and Climate Activists Will Triumph**\
-`Mr. Gore spoke at a climate leadership conference hosted by his nonprofit organization.`\
-https://nytimes.com/2024/04/15/climate/al-gore-climate-activism.html
 
