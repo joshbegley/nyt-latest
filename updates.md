@@ -1,3 +1,7 @@
+**This is what the mood is like in Israel after Iran’s attack.**\
+`By Liam Stack and Sheera Frenkel`\
+https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/israel-mood
+
 **The Biden Guide to Dressing Younger**\
 `Though much has been made of the president’s age, his tailoring tells another story. There are lessons to be learned here.`\
 https://nytimes.com/2024/04/15/style/biden-tailor-mens-wear.html
