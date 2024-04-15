@@ -1,3 +1,7 @@
+**15trump-trial**\
+`Live Updates: Trump Trial Poised to Begin, a Criminal Case Without Precedent`\
+https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial
+
 **Reeling From Mass Stabbing, Australians Ask: Was It About Hatred of Women?**\
 `All but three of the 18 people killed or injured Saturday were women. While the attacker’s motive may never be known, many said the incident spoke to a larger problem.`\
 https://nytimes.com/2024/04/15/world/asia/sydney-stabbing-women-misogyny.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/irans-assaul
 **Trump’s Nostalgia Bump**\
 `Like other former presidents, time has improved Trump’s standing among voters.`\
 https://nytimes.com/2024/04/15/briefing/donald-trump-polls.html
-
-**Iran’s Unprecedented Attack on Israel**\
-`A yearslong shadow war between the countries burst into the open after Tehran fired hundreds of drones and missiles.`\
-https://nytimes.com/2024/04/15/podcasts/the-daily/iran-israel-attack.html
 

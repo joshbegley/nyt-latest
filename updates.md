@@ -1,3 +1,7 @@
+**15trump-trial**\
+`Live Updates: Trump Trial Poised to Begin, a Criminal Case Without Precedent`\
+https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial
+
 **Reeling From Mass Stabbing, Australians Ask: Was It About Hatred of Women?**\
 `All but three of the 18 people killed or injured Saturday were women. While the attacker’s motive may never be known, many said the incident spoke to a larger problem.`\
 https://nytimes.com/2024/04/15/world/asia/sydney-stabbing-women-misogyny.html
