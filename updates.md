@@ -1,3 +1,7 @@
+**Word of the Day: foolhardy**\
+`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/15/learning/word-of-the-day-foolhardy.html
+
 **With Iran’s Strikes, Arab Countries Fear an Expanding Conflict**\
 `The Iranian attack on Israeli territory made the Middle East’s new reality undeniable: Clashes are getting harder and harder to contain.`\
 https://nytimes.com/2024/04/15/world/middleeast/iran-israel-mideast.html
