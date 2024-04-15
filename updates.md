@@ -1,3 +1,11 @@
+**Transgender Veterans Sue V.A. Over Gender-Affirming Surgeries**\
+`The lawsuit, brought by the Transgender American Veterans Association, said the Veteran Affairs department’s decision not to offer the procedures was discriminatory.`\
+https://nytimes.com/2024/04/15/us/politics/veterans-transgender-lawsuit.html
+
+**Britain’s Leaders Condemn Iran’s Attacks but Urge Israel to Show Restraint**\
+`Rishi Sunak said the government in Tehran was “intent on sowing chaos” in the region, but he also called for restraint from “all sides.”`\
+https://nytimes.com/2024/04/15/world/middleeast/britains-leaders-condemn-irans-attacks-but-urge-israel-to-show-restraint.html
+
 **To Fight Climate Change, We Need New ‘Political Technologies’**\
 `Our institutions are bad at solving “long problems,” but they don’t need to be.`\
 https://nytimes.com/2024/04/15/opinion/climate-change-long-problems.html
