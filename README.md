@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/here-are-the-latest-developments
+
 **Trump’s Criminal Trial to Begin in Manhattan With Jury Selection**\
 `Hundreds of Manhattanites have been summoned to court so that prosecutors and defense lawyers can choose 12 who will decide the fate of Donald J. Trump.`\
 https://nytimes.com/2024/04/15/nyregion/trump-trial-hush-money.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/crosswords/spelling-bee-forum.html
 **Word of the Day: foolhardy**\
 `This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/15/learning/word-of-the-day-foolhardy.html
-
-**With Iran’s Strikes, Arab Countries Fear an Expanding Conflict**\
-`The Iranian attack on Israeli territory made the Middle East’s new reality undeniable: Clashes are getting harder and harder to contain.`\
-https://nytimes.com/2024/04/15/world/middleeast/iran-israel-mideast.html
 
