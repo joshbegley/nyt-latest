@@ -1,3 +1,7 @@
+**Tesla Will Lay Off More Than 10% of Workers**\
+`Elon Musk’s electric car company reported a drop in sales in the first three months of the year, and its profit margin has been falling for months.`\
+https://nytimes.com/2024/04/15/business/tesla-layoff-elon-musk.html
+
 **At This Hockey Game, the Biggest Save Might Have Kept a Boy Alive**\
 `A man deflected a puck heading straight for a boy’s head at a game in Ohio. With the help of TikTok, his mother was reunited with her son’s protector.`\
 https://nytimes.com/2024/04/15/sports/man-saves-boy-flying-hockey-puck.html

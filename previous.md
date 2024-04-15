@@ -1,3 +1,7 @@
+**Tesla Will Lay Off More Than 10% of Workers**\
+`Elon Musk’s electric car company reported a drop in sales in the first three months of the year, and its profit margin has been falling for months.`\
+https://nytimes.com/2024/04/15/business/tesla-layoff-elon-musk.html
+
 **At This Hockey Game, the Biggest Save Might Have Kept a Boy Alive**\
 `A man deflected a puck heading straight for a boy’s head at a game in Ohio. With the help of TikTok, his mother was reunited with her son’s protector.`\
 https://nytimes.com/2024/04/15/sports/man-saves-boy-flying-hockey-puck.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/business/media/the-daily-beast-ben-sherwood-joann
 **A Video Game Made Out of Brick, Clay and Tenacity**\
 `The handcrafted Harold Halibut, about a hapless janitor stuck in an undersea city, was more than a decade in the making.`\
 https://nytimes.com/2024/04/15/arts/harold-halibut-slow-bros.html
-
-**We’re Adding to Our California Movie List**\
-`“Harold and Maude,” “The Grapes of Wrath” and more.`\
-https://nytimes.com/2024/04/15/us/california-movie-list.html
 
