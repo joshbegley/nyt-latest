@@ -1,3 +1,7 @@
+**E.V. Sales Are Slowing. Tesla’s Are Slumping.**\
+`More competition and flagging demand for electric vehicles has led to declining sales at Tesla.`\
+https://nytimes.com/2024/04/15/business/ev-car-sales-tesla.html
+
 **Tuesday Briefing: Donald Trump’s Trial Begins**\
 `Also, Israel weighs a response to Iran and Sudan marks a year of war.`\
 https://nytimes.com/2024/04/15/world/asia/trump-jury-israel-iran-asia.html
