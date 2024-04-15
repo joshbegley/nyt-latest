@@ -1,3 +1,19 @@
+**Barry Diller Bets on Media Veterans to Turn Around The Daily Beast**\
+`The former Disney executive Ben Sherwood and Joanna Coles, the former Hearst content chief, are being given a minority stake in the digital tabloid.`\
+https://nytimes.com/2024/04/15/business/media/the-daily-beast-ben-sherwood-joanna-coles.html
+
+**A Video Game Made Out of Brick, Clay and Tenacity**\
+`The handcrafted Harold Halibut, about a hapless janitor stuck in an undersea city, was more than a decade in the making.`\
+https://nytimes.com/2024/04/15/arts/harold-halibut-slow-bros.html
+
+**We’re Adding to Our California Movie List**\
+`“Harold and Maude,” “The Grapes of Wrath” and more.`\
+https://nytimes.com/2024/04/15/us/california-movie-list.html
+
+**15trump-trial**\
+``\
+https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial
+
 **15trump-trial**\
 `Live Updates: Trump Trial Poised to Begin, a Criminal Case Without Precedent`\
 https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial

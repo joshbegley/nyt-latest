@@ -1,5 +1,17 @@
+**Barry Diller Bets on Media Veterans to Turn Around The Daily Beast**\
+`The former Disney executive Ben Sherwood and Joanna Coles, the former Hearst content chief, are being given a minority stake in the digital tabloid.`\
+https://nytimes.com/2024/04/15/business/media/the-daily-beast-ben-sherwood-joanna-coles.html
+
+**A Video Game Made Out of Brick, Clay and Tenacity**\
+`The handcrafted Harold Halibut, about a hapless janitor stuck in an undersea city, was more than a decade in the making.`\
+https://nytimes.com/2024/04/15/arts/harold-halibut-slow-bros.html
+
+**We’re Adding to Our California Movie List**\
+`“Harold and Maude,” “The Grapes of Wrath” and more.`\
+https://nytimes.com/2024/04/15/us/california-movie-list.html
+
 **15trump-trial**\
-`Live Updates: Trump Trial Poised to Begin, a Criminal Case Without Precedent`\
+``\
 https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial
 
 **Reeling From Mass Stabbing, Australians Ask: Was It About Hatred of Women?**\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/15/books/review/salman-rushdie-knife.html
 **Pentagon Reviews Events Before Attack That Killed 13 U.S. Troops in Kabul**\
 `A team conducted new interviews to address lingering questions about the bombing in the final days of U.S. military involvement in Afghanistan.`\
 https://nytimes.com/2024/04/15/us/politics/us-troops-kabul-airport-bombing.html
-
-**Oil Markets Shrug Off Iran’s Attack on Israel**\
-`Investors are taking a wait-and-see approach after the much-anticipated aerial assault had little effect on oil supplies.`\
-https://nytimes.com/2024/04/15/world/middleeast/iran-israel-oil-prices.html
-
-**Iran’s assault raises fears of a cycle of reprisals, like those after the U.S. killing of a top general.**\
-`By John Ismay`\
-https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/irans-assault-raises-fears-of-a-cycle-of-reprisals-like-those-after-the-us-killing-of-a-top-general
-
-**Trump’s Nostalgia Bump**\
-`Like other former presidents, time has improved Trump’s standing among voters.`\
-https://nytimes.com/2024/04/15/briefing/donald-trump-polls.html
 
