@@ -1,3 +1,11 @@
+**A Historic Day**\
+`Trump arrived this morning at Criminal Court in Lower Manhattan, as jury selection began in the first criminal trial of a former president.`\
+https://nytimes.com/2024/04/15/us/politics/trump-trial-manhattan-first-day.html
+
+**‘The Stranger’ Review: Somewhere Over the Freeway**\
+`In this tense thriller on Hulu, Maika Monroe plays Clare, a Kansas transplant in Los Angeles who parallels Dorothy in Oz.`\
+https://nytimes.com/2024/04/15/movies/the-stranger-review.html
+
 **James Dean, Founding Director of NASA Art Program, Dies at 92**\
 `He arranged for artists to have access to astronauts, launchpads and more. “Their imaginations enable them to venture beyond a scientific explanation,” he once said.`\
 https://nytimes.com/2024/04/15/science/space/james-dean-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/activists-an
 **NPR C.E.O. Faces Criticism Over Tweets Supporting Progressive Causes**\
 `Katherine Maher, who took over the public network last month, posted years ago on Twitter that “Donald Trump is a racist.”`\
 https://nytimes.com/2024/04/15/business/media/npr-chief-executive-criticized-over-tweets.html
-
-**Supreme Court Poised to Cut Back Scope of Anti-Corruption Law**\
-`The question for the justices was whether a federal law prohibits not only before-the-fact bribes but also after-the-fact rewards.`\
-https://nytimes.com/2024/04/15/us/supreme-court-anti-corruption-law.html
-
-**Expert Panel Calls on Germany to Legalize Abortion in First 12 Weeks**\
-`For decades, Germany allowed early abortions even while keeping them illegal. A government-appointed commission says the system is “untenable.”`\
-https://nytimes.com/2024/04/15/world/europe/germany-abortion.html
 
