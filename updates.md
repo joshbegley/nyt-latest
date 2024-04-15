@@ -1,3 +1,7 @@
+**A Slimmer Goldman Sachs Posts Hefty Jump in Profit**\
+`The Wall Street bank recorded nearly $4 billion in profit, beating analyst expectations in a tough quarter for big banks.`\
+https://nytimes.com/2024/04/15/business/goldman-sachs-profit.html
+
 **Tesla Will Lay Off More Than 10% of Workers**\
 `Elon Musk’s electric car company reported a drop in sales in the first three months of the year, and its profit margin has been falling for months.`\
 https://nytimes.com/2024/04/15/business/tesla-layoff-elon-musk.html
