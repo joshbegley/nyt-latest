@@ -1,3 +1,7 @@
+**Johnson Says House Will Vote on Stalled Aid to Israel and Ukraine**\
+`The speaker, who has delayed for months amid G.O.P. opposition to funding for Kyiv, said he would bring up foreign aid legislation along with a bill aimed at appeasing Republican skeptics.`\
+https://nytimes.com/2024/04/15/world/europe/johnson-israel-ukraine-aid-house-vote.html
+
 **Atlantic City Mayor Accused of Beating and Punching His Teenage Daughter**\
 `Marty Small Sr. and his wife, La’Quetta Small, were both charged with endangering the welfare of a child, prosecutors said.`\
 https://nytimes.com/2024/04/15/nyregion/atlantic-city-mayor-marty-small-daughter-abuse.html
