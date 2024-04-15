@@ -1,3 +1,11 @@
+**Federal Officials to Shut Women’s Prison After Years of Sexual Abuse**\
+`About 600 inmates housed at the troubled facility in the San Francisco Bay Area will be transferred to other federal institutions.`\
+https://nytimes.com/2024/04/15/us/dublin-womens-prison-close.html
+
+**Day 1 of Trump’s Criminal Trial: Five Takeaways**\
+`The former president faces felony charges of falsifying business records to cover up a sexual scandal involving a porn star.`\
+https://nytimes.com/2024/04/15/nyregion/trump-criminal-hush-money-trial-takeaways.html
+
 **Trump’s Criminal Trial Begins With a Bumpy Jury Selection**\
 `Also, Israel weighs retaliation against Iran. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/04/15/briefing/trump-jury-selection-israel-iran-response.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/15/style/coachella-fashion-photos.html
 **A Historic Day**\
 `Trump arrived this morning at Criminal Court in Lower Manhattan, as jury selection began in the first criminal trial of a former president.`\
 https://nytimes.com/2024/04/15/us/politics/trump-trial-manhattan-first-day.html
-
-**‘The Stranger’ Review: Somewhere Over the Freeway**\
-`In this tense thriller on Hulu, Maika Monroe plays Clare, a Kansas transplant in Los Angeles who parallels Dorothy in Oz.`\
-https://nytimes.com/2024/04/15/movies/the-stranger-review.html
-
-**James Dean, Founding Director of NASA Art Program, Dies at 92**\
-`He arranged for artists to have access to astronauts, launchpads and more. “Their imaginations enable them to venture beyond a scientific explanation,” he once said.`\
-https://nytimes.com/2024/04/15/science/space/james-dean-dead.html
 
