@@ -1,3 +1,11 @@
+**Salman Rushdie Reflects on His Stabbing in a New Memoir**\
+`“Knife” is an account of the writer’s brush with death in 2022, and the long recovery that followed.`\
+https://nytimes.com/2024/04/15/books/review/salman-rushdie-knife.html
+
+**Pentagon Reviews Events Before Attack That Killed 13 U.S. Troops in Kabul**\
+`A team conducted new interviews to address lingering questions about the bombing in the final days of U.S. military involvement in Afghanistan.`\
+https://nytimes.com/2024/04/15/us/politics/us-troops-kabul-airport-bombing.html
+
 **Oil Markets Shrug Off Iran’s Attack on Israel**\
 `Investors are taking a wait-and-see approach after the much-anticipated aerial assault had little effect on oil supplies.`\
 https://nytimes.com/2024/04/15/world/middleeast/iran-israel-oil-prices.html

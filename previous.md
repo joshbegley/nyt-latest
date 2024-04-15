@@ -1,3 +1,11 @@
+**Salman Rushdie Reflects on His Stabbing in a New Memoir**\
+`“Knife” is an account of the writer’s brush with death in 2022, and the long recovery that followed.`\
+https://nytimes.com/2024/04/15/books/review/salman-rushdie-knife.html
+
+**Pentagon Reviews Events Before Attack That Killed 13 U.S. Troops in Kabul**\
+`A team conducted new interviews to address lingering questions about the bombing in the final days of U.S. military involvement in Afghanistan.`\
+https://nytimes.com/2024/04/15/us/politics/us-troops-kabul-airport-bombing.html
+
 **Oil Markets Shrug Off Iran’s Attack on Israel**\
 `Investors are taking a wait-and-see approach after the much-anticipated aerial assault had little effect on oil supplies.`\
 https://nytimes.com/2024/04/15/world/middleeast/iran-israel-oil-prices.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/15/magazine/dating-after-50.html
 **At Milan Design Week, the Power Is Often in the Collection**\
 `The annual festival of furnishings and household objects allows for expressing ideas through design.`\
 https://nytimes.com/2024/04/15/arts/design/milan-design-week-designers.html
-
-**A Huge Number of Homeowners Have Mortgage Rates Too Good to Give Up**\
-`On a scale not seen in decades, many Americans are stuck in homes they would rather leave.`\
-https://nytimes.com/2024/04/15/upshot/mortgage-rates-homes-stuck.html
-
-**Making Art From the Unexpected at Milan Design Week**\
-`Designers are showing off some of their latest works at the annual festival of furnishings and household objects.`\
-https://nytimes.com/2024/04/15/arts/design/milan-design-week-furniture.html
 
