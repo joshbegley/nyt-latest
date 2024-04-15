@@ -1,3 +1,7 @@
+**The Fever Dream of Landing an Apartment**\
+`A woman with a young son started looking for a place before her lease expired, but even her most far-fetched solutions — Buy an RV? — haven’t panned out.`\
+https://nytimes.com/2024/04/15/realestate/renters-queens-new-hyde-park.html
+
 **Barry Diller Bets on Media Veterans to Turn Around The Daily Beast**\
 `The former Disney executive Ben Sherwood and Joanna Coles, the former Hearst content chief, are being given a minority stake in the digital tabloid.`\
 https://nytimes.com/2024/04/15/business/media/the-daily-beast-ben-sherwood-joanna-coles.html
