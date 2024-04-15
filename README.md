@@ -1,3 +1,7 @@
+**How to Make Frozen Shrimp Even Faster (and More Delicious)**\
+`You’re 20 minutes and a few simple steps from a fresh spring stir-fry built from a freezer staple.`\
+https://nytimes.com/2024/04/15/dining/how-to-cook-frozen-shrimp.html
+
 **‘Rust’ Armorer Is Sentenced to 18 Months for Involuntary Manslaughter**\
 `The armorer, Hannah Gutierrez-Reed, was the first person to be held criminally responsible in a jury trial for the death of Halyna Hutchins, the movie’s cinematographer.`\
 https://nytimes.com/2024/04/15/arts/rust-sentencing-hannah-gutierrez-reed.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/israel-mood
 **The Biden Guide to Dressing Younger**\
 `Though much has been made of the president’s age, his tailoring tells another story. There are lessons to be learned here.`\
 https://nytimes.com/2024/04/15/style/biden-tailor-mens-wear.html
-
-**Rico Wade and Organized Noize’s 10 Essential Songs**\
-`The producer helped shape and boost the sound of Atlanta rap starting in the mid-1990s. His death at 52 was announced last Saturday.`\
-https://nytimes.com/2024/04/15/arts/music/rico-wade-organized-noize-playlist.html
 
