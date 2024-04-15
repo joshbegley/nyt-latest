@@ -1,3 +1,7 @@
+**As History Is Made, Trump Can Only Glare in Silent Fury**\
+`His claim that the first criminal trial of a president is really just political won’t play inside the courtroom.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/trump-criminal-trial-opens
+
 **Supporters, protesters and journalists assembled outside the Manhattan courthouse.**\
 `By Jesse McKinley, Olivia Bensimon, Anusha Bayya and Kaja Andric`\
 https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/supporters-protesters-and-journalists-assembled-outside-the-manhattan-courthouse
