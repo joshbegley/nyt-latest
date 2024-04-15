@@ -1,3 +1,7 @@
+**Quotation of the Day: Kidnapped With 275 Girls, She Finally Escaped**\
+`Quotation of the Day for Monday, April 15, 2024.`\
+https://nytimes.com/2024/04/14/pageoneplus/quotation-of-the-day-kidnapped-with-275-girls-she-finally-escaped.html
+
 **U.N. Security Council holds emergency meeting, with diplomats calling for restraint by all parties.**\
 `By Farnaz Fassihi and Gaya Gupta`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/un-security-council-holds-emergency-meeting-with-diplomats-calling-for-restraint-by-all-parties
