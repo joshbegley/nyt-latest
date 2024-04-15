@@ -1,3 +1,11 @@
+**Atlantic City Mayor Accused of Beating and Punching His Teenage Daughter**\
+`Marty Small Sr. and his wife, La’Quetta Small, were both charged with endangering the welfare of a child, prosecutors said.`\
+https://nytimes.com/2024/04/15/nyregion/atlantic-city-mayor-marty-small-daughter-abuse.html
+
+**Bidens Report Earning $620,000 and Paying $181,000 in Taxes in 2023**\
+`The couple’s tax return showed a 7 percent jump in income from 2022, a result of higher taxable interest income this year.`\
+https://nytimes.com/2024/04/15/us/politics/biden-tax-returns.html
+
 **NASA Searching for New Ideas for Its Mars Rocks Return Mission**\
 `The agency will seek new ideas for its Mars Sample Return program, expected to be billions of dollars over budget and years behind schedule.`\
 https://nytimes.com/2024/04/15/science/nasa-mars-sample-return-mission.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/15/us/dublin-womens-prison-close.html
 **Day 1 of Trump’s Criminal Trial: Five Takeaways**\
 `The former president faces felony charges of falsifying business records to cover up a sexual scandal involving a porn star.`\
 https://nytimes.com/2024/04/15/nyregion/trump-criminal-hush-money-trial-takeaways.html
-
-**Trump’s Criminal Trial Begins With a Bumpy Jury Selection**\
-`Also, Israel weighs retaliation against Iran. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/04/15/briefing/trump-jury-selection-israel-iran-response.html
-
-**Trump Beats Biden on the Economy, Voters Say. Are They Right?**\
-`There are some likely voters whose opinions and actions don’t line up.`\
-https://nytimes.com/live/2024/04/09/opinion/thepoint/trump-biden-economy-poll
 
