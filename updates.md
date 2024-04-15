@@ -1,3 +1,19 @@
+**On Himalayan Hillsides Grows Japan’s Cold, Hard Cash**\
+`A shrub in impoverished Nepal now supplies the raw material for the bank notes used in Asia’s most sophisticated financial system.`\
+https://nytimes.com/2024/04/15/world/asia/nepal-japan-yen-argeli.html
+
+**After Iran’s Barrage, Israel Questions What Might Be Next for the Gaza War**\
+`Military analysts are divided on whether a more direct confrontation with Iran might alter the war or affect a decision to invade the southern city of Rafah.`\
+https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/israel-iran-gaza
+
+**Four Wild Ways to Save the Koala (That Just Might Work)**\
+`To protect Australia’s iconic animals, scientists are experimenting with vaccine implants, probiotics, tree-planting drones and solar-powered tracking tags.`\
+https://nytimes.com/2024/04/15/science/australia-wildlife-koalas.html
+
+**Far Right’s Ties to Russia Sow Rising Alarm in Germany**\
+`As cases proliferate, opponents fear the Alternative for Germany party is becoming a tool of Russian influence operations to undermine support for Ukraine.`\
+https://nytimes.com/2024/04/15/world/europe/germany-afd-russia.html
+
 **Review: It’s No Sunday in the Park With ‘Lempicka’**\
 `A musical about the groundbreaking Art Deco painter is vocally thrilling but historically a blur.`\
 https://nytimes.com/2024/04/14/theater/lempicka-review-chavkin-espinosa.html
