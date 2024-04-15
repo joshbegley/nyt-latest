@@ -1,3 +1,7 @@
+**What’s Your Dinner Party Style? Choose One.**\
+`Two editors make the case for keeping an at-home event simple or going all-out, with menus to match.`\
+https://nytimes.com/interactive/2024/04/15/dining/dinner-party-menu.html
+
 **Activists and antics punctuate the scene outside the courthouse.**\
 `By Jesse McKinley, Olivia Bensimon and Anusha Bayya`\
 https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/activists-and-antics-punctuate-the-scene-outside-the-courthouse
