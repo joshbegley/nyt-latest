@@ -1,3 +1,7 @@
+**What Do You Want to Know About Trump’s Trial in New York?**\
+`We’ll help answer your questions.`\
+https://nytimes.com/2024/04/15/briefing/what-do-you-want-to-know-about-trumps-trial-in-new-york.html
+
 **Prospective jurors head for the exits, saying they can’t be fair to Trump.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/trump-criminal-hush-money-trial-witnesses
