@@ -1,3 +1,7 @@
+**Reeling From Mass Stabbing, Australians Ask: Was It About Hatred of Women?**\
+`All but three of the 18 people killed or injured Saturday were women. While the attacker’s motive may never be known, many said the incident spoke to a larger problem.`\
+https://nytimes.com/2024/04/15/world/asia/sydney-stabbing-women-misogyny.html
+
 **Markets Brace for Israel’s Next Move**\
 `Global equities and oil prices were stable following Iran’s missile and drone attack on Israel, but analysts warn that the calm may not last.`\
 https://nytimes.com/2024/04/15/business/dealbook/markets-israel-iran-attack.html

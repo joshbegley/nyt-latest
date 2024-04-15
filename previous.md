@@ -1,3 +1,7 @@
+**Reeling From Mass Stabbing, Australians Ask: Was It About Hatred of Women?**\
+`All but three of the 18 people killed or injured Saturday were women. While the attacker’s motive may never be known, many said the incident spoke to a larger problem.`\
+https://nytimes.com/2024/04/15/world/asia/sydney-stabbing-women-misogyny.html
+
 **Markets Brace for Israel’s Next Move**\
 `Global equities and oil prices were stable following Iran’s missile and drone attack on Israel, but analysts warn that the calm may not last.`\
 https://nytimes.com/2024/04/15/business/dealbook/markets-israel-iran-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/briefing/donald-trump-polls.html
 **Iran’s Unprecedented Attack on Israel**\
 `A yearslong shadow war between the countries burst into the open after Tehran fired hundreds of drones and missiles.`\
 https://nytimes.com/2024/04/15/podcasts/the-daily/iran-israel-attack.html
-
-**Picking a Jury to Try Trump, and What’s Next for Iran and Israel**\
-`Plus, the mortgages keeping people stuck in their homes.`\
-https://nytimes.com/2024/04/15/podcasts/trump-trial-mortgage.html
 
