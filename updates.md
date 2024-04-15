@@ -1,3 +1,7 @@
+**Iran pushes propaganda campaign to Arab nations, but not everyone is impressed.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/iran-pushes-propaganda-campaign-to-arab-nations-but-not-everyone-is-impressed
+
 **Federal Officials to Shut Women’s Prison After Years of Sexual Abuse**\
 `About 600 inmates housed at the troubled facility in the San Francisco Bay Area will be transferred to other federal institutions.`\
 https://nytimes.com/2024/04/15/us/dublin-womens-prison-close.html

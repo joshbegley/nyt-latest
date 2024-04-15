@@ -1,3 +1,7 @@
+**Iran pushes propaganda campaign to Arab nations, but not everyone is impressed.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/iran-pushes-propaganda-campaign-to-arab-nations-but-not-everyone-is-impressed
+
 **Federal Officials to Shut Women’s Prison After Years of Sexual Abuse**\
 `About 600 inmates housed at the troubled facility in the San Francisco Bay Area will be transferred to other federal institutions.`\
 https://nytimes.com/2024/04/15/us/dublin-womens-prison-close.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/us/politics/supreme-court-idaho-transgender.html
 **15 Looks That Did the Most at Coachella**\
 `The music festival had plenty of memorable fashion. Most (but not all) of it was ostentatious.`\
 https://nytimes.com/2024/04/15/style/coachella-fashion-photos.html
-
-**A Historic Day**\
-`Trump arrived this morning at Criminal Court in Lower Manhattan, as jury selection began in the first criminal trial of a former president.`\
-https://nytimes.com/2024/04/15/us/politics/trump-trial-manhattan-first-day.html
 
