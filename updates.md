@@ -1,3 +1,7 @@
+**Severe Storms Expected in the Plains and Midwest**\
+`Large hail, damaging winds, heavy rain and isolated tornadoes are expected on Monday in the Plains before moving into the Midwest on Tuesday.`\
+https://nytimes.com/2024/04/15/us/weather-storms-midwest-plains.html
+
 **Online Dating After 50 Can Be Miserable. But It’s Also Liberating.**\
 `You know so much more about yourself and your desires when you’re older that dating apps — even with all their frustrations — can bring unanticipated pleasure.`\
 https://nytimes.com/2024/04/15/magazine/dating-after-50.html

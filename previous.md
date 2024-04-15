@@ -1,3 +1,7 @@
+**Severe Storms Expected in the Plains and Midwest**\
+`Large hail, damaging winds, heavy rain and isolated tornadoes are expected on Monday in the Plains before moving into the Midwest on Tuesday.`\
+https://nytimes.com/2024/04/15/us/weather-storms-midwest-plains.html
+
 **Online Dating After 50 Can Be Miserable. But It’s Also Liberating.**\
 `You know so much more about yourself and your desires when you’re older that dating apps — even with all their frustrations — can bring unanticipated pleasure.`\
 https://nytimes.com/2024/04/15/magazine/dating-after-50.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/us/politics/samsung-biden-administration-award-ta
 **Questions About Assassinations Test the Limits of Trump’s Immunity Claim**\
 `Three Supreme Court briefs from former military leaders and intelligence officials explore whether presidents may be prosecuted for ordering unlawful killings.`\
 https://nytimes.com/2024/04/15/us/trump-supreme-court-immunity-assassinations.html
-
-**Inside the MAGAverse on the Eve of Trump’s Trial**\
-`Rallying the faithful in the political battleground of eastern Pennsylvania, the former president made everyone else the bad guy.`\
-https://nytimes.com/2024/04/15/opinion/trump-voters-trial.html
 
