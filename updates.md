@@ -1,3 +1,15 @@
+**NPR C.E.O. Faces Criticism Over Tweets Supporting Progressive Causes**\
+`Katherine Maher, who took over the public network last month, posted years ago on Twitter that “Donald Trump is a racist.”`\
+https://nytimes.com/2024/04/15/business/media/npr-chief-executive-criticized-over-tweets.html
+
+**Supreme Court Poised to Cut Back Scope of Anti-Corruption Law**\
+`The question for the justices was whether a federal law prohibits not only before-the-fact bribes but also after-the-fact rewards.`\
+https://nytimes.com/2024/04/15/us/supreme-court-anti-corruption-law.html
+
+**Expert Panel Calls on Germany to Legalize Abortion in First 12 Weeks**\
+`For decades, Germany allowed early abortions even while keeping them illegal. A government-appointed commission says the system is “untenable.”`\
+https://nytimes.com/2024/04/15/world/europe/germany-abortion.html
+
 **Prospective jurors head for the exits, saying they can’t be fair to Trump.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/trump-criminal-hush-money-trial-jury
