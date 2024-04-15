@@ -1,3 +1,7 @@
+**Have Voters Really Forgotten Trump’s Presidency?**\
+`A new poll raises questions about the national memory.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/have-voters-really-forgotten-trumps-presidency
+
 **With Nuclear Deal Dead, Containing Iran Grows More Fraught**\
 `The U.S., Europe, Russia and China worked together on a 2015 deal to limit Iran’s nuclear program. The arrangement’s unraveling and the spike in superpower tensions make this a dangerous moment.`\
 https://nytimes.com/2024/04/15/us/politics/iran-israel-nuclear-deal-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/the-judge-fa
 **Why Your Big Sister Resents You**\
 `“Eldest daughter syndrome” assumes that birth order shapes who we are and how we interact. Does it?`\
 https://nytimes.com/2024/04/15/well/family/birth-order-siblings.html
-
-**Can You Find the 15 Book Titles Hidden in This Text?**\
-`This month’s Title Search puzzle challenges you to uncover novels written for middle-grade readers.`\
-https://nytimes.com/interactive/2024/04/15/books/review/chapter-books-quiz.html
 
