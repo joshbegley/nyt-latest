@@ -1,3 +1,7 @@
+**NASA Searching for New Ideas for Its Mars Rocks Return Mission**\
+`The agency will seek new ideas for its Mars Sample Return program, expected to be billions of dollars over budget and years behind schedule.`\
+https://nytimes.com/2024/04/15/science/nasa-mars-sample-return-mission.html
+
 **Hochul Announces $237 Billion Budget, Including a Housing Deal**\
 `The spending plan, which still needs to be approved by the full State Legislature, includes measures on criminal justice, education and illegal cannabis shops.`\
 https://nytimes.com/2024/04/15/nyregion/state-budget-housing-ny.html
