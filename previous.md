@@ -1,3 +1,11 @@
+**Hochul Announces $237 Billion Budget, Including a Housing Deal**\
+`The spending plan, which still needs to be approved by the full State Legislature, includes measures on criminal justice, education and illegal cannabis shops.`\
+https://nytimes.com/2024/04/15/nyregion/state-budget-housing-ny.html
+
+**Maurice El Medioni, Jewish Algerian Pianist, Dies at 95**\
+`He fused the music of his Sephardic roots with Arab traditions, incorporating boogie-woogie and other influences, to create a singular style.`\
+https://nytimes.com/2024/04/15/arts/music/maurice-el-medioni-dead.html
+
 **Philharmonic Sidelines 2 Players It Tried to Fire for Misconduct**\
 `The New York Philharmonic said the musicians would not perform for now, after a magazine article brought new attention to allegations of misconduct. They have denied wrongdoing.`\
 https://nytimes.com/2024/04/15/arts/music/new-york-philharmonic-misconduct.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/09/opinion/thepoint/trump-biden-economy-poll
 **Owners of Funeral Home With Decaying Bodies Are Charged With Covid Relief Fraud**\
 `Originally charged after 190 decomposing bodies were found at their Colorado funeral home, the couple now face federal charges that they fraudulently obtained $880,000 in relief funds.`\
 https://nytimes.com/2024/04/15/us/colorado-funeral-home-fraud-owners-arrested.html
-
-**Prospective Jurors Are Dismissed in Dozens as Trump’s Trial Begins**\
-`Jury selection began in the Manhattan criminal case, but many who might weigh Donald J. Trump’s fate told a judge that they could not be impartial.`\
-https://nytimes.com/2024/04/15/nyregion/trump-hush-money-trial-jury.html
-
-**Patti Astor, Doyenne of New York’s Avant-Garde Scene, Dies at 74**\
-`She was a founder of the Fun Gallery, which staged early shows by Keith Haring and other artists who defined the city’s downtown scene in the 1980s.`\
-https://nytimes.com/2024/04/15/arts/patti-astor-dead.html
 
