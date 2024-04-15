@@ -1,3 +1,7 @@
+**E.V. Sales Are Slowing. Tesla’s Are Slumping.**\
+`More competition and flagging demand for electric vehicles has led to declining sales at Tesla.`\
+https://nytimes.com/2024/04/15/business/ev-car-sales-tesla.html
+
 **Tuesday Briefing: Donald Trump’s Trial Begins**\
 `Also, Israel weighs a response to Iran and Sudan marks a year of war.`\
 https://nytimes.com/2024/04/15/world/asia/trump-jury-israel-iran-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/world/europe/germany-abortion.html
 **Protesters Block Roads Across the U.S. to Support Those in Gaza**\
 `The coordinated protests across the United States and around the globe were planned in part to coincide with Tax Day in the United States.`\
 https://nytimes.com/2024/04/15/world/middleeast/ceasefire-palestine-gaza-protest.html
-
-**New Migrants Get Work Permits. Other Undocumented Immigrants Want Them, Too.**\
-`Long-term undocumented immigrants — and their employers — are feeling left out by Biden administration policies allowing most who just crossed the border to work legally.`\
-https://nytimes.com/2024/04/15/us/migrants-work-permits-undocumented.html
 
