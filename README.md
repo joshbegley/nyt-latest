@@ -1,3 +1,7 @@
+**NPR C.E.O. Faces Criticism Over Tweets Supporting Progressive Causes**\
+`Katherine Maher, who took over the public network last month, posted years ago on Twitter that “Donald Trump is a racist.”`\
+https://nytimes.com/2024/04/15/business/media/npr-chief-executive-criticized-over-tweets.html
+
 **Supreme Court Poised to Cut Back Scope of Anti-Corruption Law**\
 `The question for the justices was whether a federal law prohibits not only before-the-fact bribes but also after-the-fact rewards.`\
 https://nytimes.com/2024/04/15/us/supreme-court-anti-corruption-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/science/eclipse-shadow-plane-halo.html
 **Transgender Veterans Sue V.A. Over Gender-Affirming Surgeries**\
 `The lawsuit, brought by the Transgender American Veterans Association, said the Veteran Affairs department’s decision not to offer the procedures was discriminatory.`\
 https://nytimes.com/2024/04/15/us/politics/veterans-transgender-lawsuit.html
-
-**Britain’s Leaders Condemn Iran’s Attacks but Urge Israel to Show Restraint**\
-`Rishi Sunak said the government in Tehran was “intent on sowing chaos” in the region, but he also called for restraint from “all sides.”`\
-https://nytimes.com/2024/04/15/world/middleeast/britains-leaders-condemn-irans-attacks-but-urge-israel-to-show-restraint.html
 
