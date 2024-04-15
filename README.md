@@ -1,5 +1,5 @@
 **Robert Beerbohm, Pioneering Comic Book Retailer and Historian, Dies at 71**\
-`A self professed archaeologist of the industry, he opened his own comic book stores and partnered with other experts and vendors in the nascent business.`\
+`A professed archaeologist of the industry, he opened his own stores and partnered with other experts and vendors in the nascent comics business.`\
 https://nytimes.com/2024/04/15/arts/robert-beerbohm-dead.html
 
 **A Surprising Shadow Was Created by the Total Solar Eclipse**\
