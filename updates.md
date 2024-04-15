@@ -1,3 +1,7 @@
+**Israel’s Allies Make a Full-Court Press to Urge Restraint**\
+`Some far-right members of the Israeli government called for a strong response to an Iranian attack, but the U.S., the E.U. and others cautioned against further escalation.`\
+https://nytimes.com/2024/04/15/world/middleeast/israels-allies-make-a-full-court-press-to-urge-restraint.html
+
 **Salman Rushdie Reflects on His Stabbing in a New Memoir**\
 `“Knife” is an account of the writer’s brush with death in 2022, and the long recovery that followed.`\
 https://nytimes.com/2024/04/15/books/review/salman-rushdie-knife.html
