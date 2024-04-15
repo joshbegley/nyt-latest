@@ -1,3 +1,7 @@
+**Activists and antics punctuate the scene outside the courthouse.**\
+`By Jesse McKinley, Olivia Bensimon and Anusha Bayya`\
+https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/activists-and-antics-punctuate-the-scene-outside-the-courthouse
+
 **NPR C.E.O. Faces Criticism Over Tweets Supporting Progressive Causes**\
 `Katherine Maher, who took over the public network last month, posted years ago on Twitter that “Donald Trump is a racist.”`\
 https://nytimes.com/2024/04/15/business/media/npr-chief-executive-criticized-over-tweets.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/arts/robert-beerbohm-dead.html
 **A Surprising Shadow Was Created by the Total Solar Eclipse**\
 `An ascending jet’s contrail over Montreal added to the wonder of last Monday’s eclipse.`\
 https://nytimes.com/2024/04/15/science/eclipse-shadow-plane-halo.html
-
-**Transgender Veterans Sue V.A. Over Gender-Affirming Surgeries**\
-`The lawsuit, brought by the Transgender American Veterans Association, said the Veteran Affairs department’s decision not to offer the procedures was discriminatory.`\
-https://nytimes.com/2024/04/15/us/politics/veterans-transgender-lawsuit.html
 
