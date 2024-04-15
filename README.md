@@ -1,3 +1,7 @@
+**The Biden Guide to Dressing Younger**\
+`Though much has been made of the president’s age, his tailoring tells another story. There are lessons to be learned here.`\
+https://nytimes.com/2024/04/15/style/biden-tailor-mens-wear.html
+
 **Rico Wade and Organized Noize’s 10 Essential Songs**\
 `The producer helped shape and boost the sound of Atlanta rap starting in the mid-1990s. His death at 52 was announced last Saturday.`\
 https://nytimes.com/2024/04/15/arts/music/rico-wade-organized-noize-playlist.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/technology/instagram-influencers-chatbots.html
 **Ushio Amagatsu, Japanese Dancer Who Popularized Butoh, Dies at 74**\
 `He brought worldwide attention to a radical yet elemental form of contemporary dance that emerged in the wake of wartime destruction.`\
 https://nytimes.com/2024/04/15/arts/dance/ushio-amagatsu-dead.html
-
-**These Gay Novels Offer a ‘More Interesting Conversation’ About Faith**\
-`Recent books by Allen Bratton, Daniel Lefferts and Garrard Conley depict gay Christian characters not usually seen in queer literature.`\
-https://nytimes.com/2024/04/15/books/queer-literature-catholicism.html
 
