@@ -1,3 +1,7 @@
+**Tuesday Briefing: Donald Trump’s Trial Begins**\
+`Also, Israel weighs a response to Iran and Sudan marks a year of war.`\
+https://nytimes.com/2024/04/15/world/asia/trump-jury-israel-iran-asia.html
+
 **A Lebanese official blames Israel’s spy agency for a killing near Beirut.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/a-lebanese-official-blames-israels-spy-agency-for-a-killing-near-beirut
