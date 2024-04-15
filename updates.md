@@ -1,3 +1,7 @@
+**There’s Been an Airplane Emergency. Here’s What Flight Attendants Do Next.**\
+`Flight attendants do much more than provide customer service. They train for the worst, a part of their job most of us may never see. `\
+https://nytimes.com/card/2024/04/15/travel/flight-attendant-safety-emergency-training
+
 **In City Ballet’s Coming Season, New Works and Earlier Curtain Times**\
 `New York City Ballet will present a mix of old and new works, including premieres by Justin Peck, Alexei Ratmansky and Caili Quan, and introduce fewer intermissions.`\
 https://nytimes.com/2024/04/15/arts/dance/new-york-city-ballet-2024-25-season.html
