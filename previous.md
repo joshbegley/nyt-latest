@@ -1,3 +1,7 @@
+**Donald Trump on Trial: What to Expect**\
+`Readers discuss what’s at stake, the jurors and the possibility of Donald Trump’s testifying. Also: Aid to Ukraine; originalism; thinking rationally.`\
+https://nytimes.com/2024/04/15/opinion/donald-trump-hush-money-trial.html
+
 **This is what the mood is like in Israel after Iran’s attack.**\
 `By Liam Stack and Sheera Frenkel`\
 https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/israel-mood
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/nyregion/access-hollywood-tape-trump.html
 **Al Gore Thinks Trump Will Lose and Climate Activists Will Triumph**\
 `Mr. Gore spoke at a climate leadership conference hosted by his nonprofit organization.`\
 https://nytimes.com/2024/04/15/climate/al-gore-climate-activism.html
-
-**Ready for a Chatbot Version of Your Favorite Instagram Influencers?**\
-`Instagram is testing a program that offers its top influencers the ability to interact with their followers over direct messages using a chatbot.`\
-https://nytimes.com/2024/04/15/technology/instagram-influencers-chatbots.html
 
