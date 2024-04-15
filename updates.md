@@ -1,3 +1,7 @@
+**The Biden Guide to Dressing Younger**\
+`Though much has been made of the president’s age, his tailoring tells another story. There are lessons to be learned here.`\
+https://nytimes.com/2024/04/15/style/biden-tailor-mens-wear.html
+
 **Rico Wade and Organized Noize’s 10 Essential Songs**\
 `The producer helped shape and boost the sound of Atlanta rap starting in the mid-1990s. His death at 52 was announced last Saturday.`\
 https://nytimes.com/2024/04/15/arts/music/rico-wade-organized-noize-playlist.html
