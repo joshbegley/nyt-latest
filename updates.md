@@ -1,3 +1,7 @@
+**Donald Trump, the Defendant**\
+`Trump has tried to project strength and confidence around his New York trial, but it might not be easy.`\
+https://nytimes.com/2024/04/15/us/politics/trump-trial-campaign.html
+
 **Iran pushes propaganda campaign to Arab nations, but not everyone is impressed.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/iran-pushes-propaganda-campaign-to-arab-nations-but-not-everyone-is-impressed

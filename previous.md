@@ -1,3 +1,7 @@
+**Donald Trump, the Defendant**\
+`Trump has tried to project strength and confidence around his New York trial, but it might not be easy.`\
+https://nytimes.com/2024/04/15/us/politics/trump-trial-campaign.html
+
 **Iran pushes propaganda campaign to Arab nations, but not everyone is impressed.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/iran-pushes-propaganda-campaign-to-arab-nations-but-not-everyone-is-impressed
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/arts/patti-astor-dead.html
 **Supreme Court Clears Way, for Now, for Idaho to Ban Transgender Treatment for Minors**\
 `The Idaho attorney general had asked the justices to move swiftly to let the state law, which would ban gender-affirming medical care for minors, go into effect.`\
 https://nytimes.com/2024/04/15/us/politics/supreme-court-idaho-transgender.html
-
-**15 Looks That Did the Most at Coachella**\
-`The music festival had plenty of memorable fashion. Most (but not all) of it was ostentatious.`\
-https://nytimes.com/2024/04/15/style/coachella-fashion-photos.html
 
