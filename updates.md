@@ -1,3 +1,11 @@
+**Judge Merchan Starts to Hold Trump Accountable**\
+`Slumping in his seat, the former president began listening to a debate on some extremely personal accusations.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/trump-trial-accountable
+
+**‘Rust’ Armorer Is Sentenced to 18 Months for Involuntary Manslaughter**\
+`The armorer, Hannah Gutierrez-Reed, got the maximum sentence for loading a live round into a gun on a film set, leading to the death of Halyna Hutchins, the movie’s cinematographer.`\
+https://nytimes.com/2024/04/15/arts/hannah-gutierrez-reed-rust.html
+
 **Here’s what each side is looking for in a juror.**\
 `By Jesse McKinley, Kate Christobek and Maggie Haberman`\
 https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/heres-what-the-two-sides-are-looking-for-in-a-juror
