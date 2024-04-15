@@ -1,3 +1,7 @@
+**Ukraine Sees ‘Hypocrisy’ in Western Allies’ Defense of Israel**\
+`The U.S., British and French militaries helped intercept Iranian missiles and drones, but Ukrainians say they haven’t provided the same help against Russian air attacks.`\
+https://nytimes.com/2024/04/15/world/middleeast/ukraine-aid-israel-iran-war.html
+
 **David Egilman, Doctor Who Took On Drug Companies, Dies at 71**\
 `His testimony as an expert witness in some 600 trials helped plaintiffs win billions of dollars in cases involving malfeasance by pharmaceutical makers.`\
 https://nytimes.com/2024/04/15/health/david-egilman-dead.html
