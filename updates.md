@@ -1,3 +1,7 @@
+**‘A Different World’ Hits the Road to Help Historically Black Colleges**\
+`The beloved series was set at a fictional historically Black university. Now, cast members have reunited to visit and support real-life schools.`\
+https://nytimes.com/2024/04/15/arts/television/a-different-world-tour.html
+
 **Israel’s Choices on Response to Iran’s Attack All Come With Risks**\
 `Its options range from striking Iran openly and forcefully to doing nothing at all. One factor to weigh is that the huge aerial attack did little damage.`\
 https://nytimes.com/2024/04/15/world/middleeast/biden-netanyahu-iran-attack.html
