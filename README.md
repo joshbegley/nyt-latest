@@ -1,3 +1,7 @@
+**‘A Different World’ Hits the Road to Help Historically Black Colleges**\
+`The beloved series was set at a fictional historically Black university. Now, cast members have reunited to visit and support real-life schools.`\
+https://nytimes.com/2024/04/15/arts/television/a-different-world-tour.html
+
 **Israel’s Choices on Response to Iran’s Attack All Come With Risks**\
 `Its options range from striking Iran openly and forcefully to doing nothing at all. One factor to weigh is that the huge aerial attack did little damage.`\
 https://nytimes.com/2024/04/15/world/middleeast/biden-netanyahu-iran-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/technology/ai-models-measurement.html
 **Politics Are Always Personal. In This Novel They’re Ruinous.**\
 `“The Spoiled Heart,” by Sunjeev Sahota, contrasts race and class struggles in the story of a man’s downfall.`\
 https://nytimes.com/2024/04/15/books/review/sunjeev-sahota-spoiled-heart.html
-
-**The Widest-Ever Global Coral Crisis Will Hit Within Weeks, Scientists Say**\
-`Rising sea temperatures around the planet have caused a bleaching event that is expected to be the most extensive on record.`\
-https://nytimes.com/2024/04/15/climate/coral-reefs-bleaching.html
 
