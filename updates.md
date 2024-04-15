@@ -1,3 +1,11 @@
+**How to Make Frozen Shrimp Even Faster (and More Delicious)**\
+`You’re 20 minutes and a few simple steps from a fresh spring stir-fry built from a freezer staple.`\
+https://nytimes.com/2024/04/15/dining/how-to-cook-frozen-shrimp.html
+
+**‘Rust’ Armorer Is Sentenced to 18 Months for Involuntary Manslaughter**\
+`The armorer, Hannah Gutierrez-Reed, was the first person to be held criminally responsible in a jury trial for the death of Halyna Hutchins, the movie’s cinematographer.`\
+https://nytimes.com/2024/04/15/arts/rust-sentencing-hannah-gutierrez-reed.html
+
 **New York Nears a Housing Deal to Confront Affordability Crisis**\
 `The agreement could clear the way for the construction of hundreds of thousands of homes and make it more difficult for landlords to evict renters.`\
 https://nytimes.com/2024/04/15/nyregion/ny-housing-deal.html
