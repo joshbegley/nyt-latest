@@ -1,40 +1,40 @@
-**2 Police Officers Are Killed in Shootout Near Syracuse, N.Y.**\
-`A suspect fired at the officers as they investigated a stolen vehicle in the upstate town of Salina, the authorities said. The suspect died in the shootout.`\
-https://nytimes.com/2024/04/15/nyregion/police-officers-salina-shooting.html
+**Online Dating After 50 Can Be Miserable. But It’s Also Liberating.**\
+`You know so much more about yourself and your desires when you’re older that dating apps — even with all their frustrations — can bring unanticipated pleasure.`\
+https://nytimes.com/2024/04/15/magazine/dating-after-50.html
 
-**Here are the latest developments.**\
-`By Mike Ives`\
-https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/here-are-the-latest-developments
+**At Milan Design Week, the Power Is Often in the Collection**\
+`The annual festival of furnishings and household objects allows for expressing ideas through design.`\
+https://nytimes.com/2024/04/15/arts/design/milan-design-week-designers.html
 
-**Trump’s Criminal Trial to Begin in Manhattan With Jury Selection**\
-`Hundreds of Manhattanites have been summoned to court so that prosecutors and defense lawyers can choose 12 who will decide the fate of Donald J. Trump.`\
-https://nytimes.com/2024/04/15/nyregion/trump-trial-hush-money.html
+**A Huge Number of Homeowners Have Mortgage Rates Too Good to Give Up**\
+`On a scale not seen in decades, many Americans are stuck in homes they would rather leave.`\
+https://nytimes.com/2024/04/15/upshot/mortgage-rates-homes-stuck.html
 
-**Who Are Key Players in the Trump Manhattan Criminal Trial?**\
-`The first criminal trial of former President Donald J. Trump is set to begin Monday. Take a closer look at central figures related to the case.`\
-https://nytimes.com/interactive/2024/nyregion/trump-manhattan-criminal-trial-witnesses.html
+**Making Art From the Unexpected at Milan Design Week**\
+`Designers are showing off some of their latest works at the annual festival of furnishings and household objects.`\
+https://nytimes.com/2024/04/15/arts/design/milan-design-week-furniture.html
 
-**The Connections Companion No. 309**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/15/crosswords/connections-companion.html
+**Taking a Moment to Lounge at Milan Design Week**\
+`You can always see where you would like to sit at the annual festival of furnishings and household objects.`\
+https://nytimes.com/2024/04/15/arts/design/milan-design-week-seating.html
 
-**✔️**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/15/crosswords/wordle-review.html
+**Could These Two Twists Change the 2024 Race?**\
+`Donald Trump’s cover-up trial and his abortion position have weakened his formerly strong position.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/could-these-two-twists-change-the-2024-race
 
-**Roses Are Red, Love Is True. Here’s Why This Bouquet Costs $72.**\
-`A dozen red roses is timeless. But its price tag is not. At Ditmars Flower Shop in Queens, where costs have soared in recent years, a bouquet is $72, up from $60 in 2019.`\
-https://nytimes.com/2024/04/15/nyregion/flowers-cost-roses-nyc.html
+**A Show of Might in the Skies Over Israel**\
+`Iran’s retaliation for Israel’s killing of senior military leaders was a highly choreographed spectacle. But fears of a wider war still loom.`\
+https://nytimes.com/2024/04/15/us/politics/iran-aerial-display-israel.html
 
-**Prosecutors’ Error Exposes Potential Scope of Disgraced Detective’s Harm**\
-`The Brooklyn district attorney’s office didn’t mean to send opposing lawyers an unredacted file about Louis Scarcella, a former N.Y.P.D. detective whose overturned cases have cost New York millions.`\
-https://nytimes.com/2024/04/15/nyregion/louis-scarcella-detective-overturned-conviction.html
+**U.S. Awards Samsung $6.4 Billion to Bolster Semiconductor Production**\
+`The federal grants will support Samsung’s new chip manufacturing hub in Taylor, Texas, along with the expansion of an existing site in Austin.`\
+https://nytimes.com/2024/04/15/us/politics/samsung-biden-administration-award-taylor-texas.html
 
-**What to Know About Jury Selection in Trump’s Manhattan Criminal Case**\
-`As Donald J. Trump’s prosecution begins, lawyers must winnow a pool of hundreds to 12 jurors who will decide his fate.`\
-https://nytimes.com/2024/04/15/nyregion/trump-trial-jury-selection-ny.html
+**Questions About Assassinations Test the Limits of Trump’s Immunity Claim**\
+`Three Supreme Court briefs from former military leaders and intelligence officials explore whether presidents may be prosecuted for ordering unlawful killings.`\
+https://nytimes.com/2024/04/15/us/trump-supreme-court-immunity-assassinations.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/15/crosswords/spelling-bee-forum.html
+**Inside the MAGAverse on the Eve of Trump’s Trial**\
+`Rallying the faithful in the political battleground of eastern Pennsylvania, the former president made everyone else the bad guy.`\
+https://nytimes.com/2024/04/15/opinion/trump-voters-trial.html
 
