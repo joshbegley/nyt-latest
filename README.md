@@ -1,3 +1,7 @@
+**This is what the mood is like in Israel after Iran’s attack.**\
+`By Liam Stack and Sheera Frenkel`\
+https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/israel-mood
+
 **The Biden Guide to Dressing Younger**\
 `Though much has been made of the president’s age, his tailoring tells another story. There are lessons to be learned here.`\
 https://nytimes.com/2024/04/15/style/biden-tailor-mens-wear.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/climate/al-gore-climate-activism.html
 **Ready for a Chatbot Version of Your Favorite Instagram Influencers?**\
 `Instagram is testing a program that offers its top influencers the ability to interact with their followers over direct messages using a chatbot.`\
 https://nytimes.com/2024/04/15/technology/instagram-influencers-chatbots.html
-
-**Ushio Amagatsu, Japanese Dancer Who Popularized Butoh, Dies at 74**\
-`He brought worldwide attention to a radical yet elemental form of contemporary dance that emerged in the wake of wartime destruction.`\
-https://nytimes.com/2024/04/15/arts/dance/ushio-amagatsu-dead.html
 
