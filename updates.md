@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`After Iran’s attack, Israel weighs its options.`\
+https://nytimes.com/2024/04/15/briefing/israel-iran-attack-trump-trial.html
+
 **On Himalayan Hillsides Grows Japan’s Cold, Hard Cash**\
 `A shrub in impoverished Nepal now supplies the raw material for the bank notes used in Asia’s most sophisticated financial system.`\
 https://nytimes.com/2024/04/15/world/asia/nepal-japan-yen-argeli.html

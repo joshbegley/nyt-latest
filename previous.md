@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`After Iran’s attack, Israel weighs its options.`\
+https://nytimes.com/2024/04/15/briefing/israel-iran-attack-trump-trial.html
+
 **On Himalayan Hillsides Grows Japan’s Cold, Hard Cash**\
 `A shrub in impoverished Nepal now supplies the raw material for the bank notes used in Asia’s most sophisticated financial system.`\
 https://nytimes.com/2024/04/15/world/asia/nepal-japan-yen-argeli.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/14/books/salman-rushdie-knife-interview.html
 **Gazans attempting to return to homes in north say Israeli troops fired on them.**\
 `By Raja Abdulrahim and Ameera Harouda`\
 https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/gazans-attempting-to-return-to-homes-in-north-say-israeli-troops-fired-on-them
-
-**Brightly Colored Rock**\
-`Amanda Winters makes her New York Times debut.`\
-https://nytimes.com/2024/04/14/crosswords/daily-puzzle-2024-04-15.html
 
