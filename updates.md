@@ -1,3 +1,11 @@
+**‘Access Hollywood’ Tape Won’t Be Played for Jurors in Trump Trial**\
+`But the judge overseeing Donald J. Trump’s hush-money trial in Manhattan said the jury can be told what he said in a clip bragging about grabbing women’s genitals.`\
+https://nytimes.com/2024/04/15/nyregion/access-hollywood-tape-trump.html
+
+**Al Gore Thinks Trump Will Lose and Climate Activists Will Triumph**\
+`Mr. Gore spoke at a climate leadership conference hosted by his nonprofit organization.`\
+https://nytimes.com/2024/04/15/climate/al-gore-climate-activism.html
+
 **Ready for a Chatbot Version of Your Favorite Instagram Influencers?**\
 `Instagram is testing a program that offers its top influencers the ability to interact with their followers over direct messages using a chatbot.`\
 https://nytimes.com/2024/04/15/technology/instagram-influencers-chatbots.html

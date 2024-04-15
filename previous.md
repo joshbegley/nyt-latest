@@ -1,3 +1,11 @@
+**‘Access Hollywood’ Tape Won’t Be Played for Jurors in Trump Trial**\
+`But the judge overseeing Donald J. Trump’s hush-money trial in Manhattan said the jury can be told what he said in a clip bragging about grabbing women’s genitals.`\
+https://nytimes.com/2024/04/15/nyregion/access-hollywood-tape-trump.html
+
+**Al Gore Thinks Trump Will Lose and Climate Activists Will Triumph**\
+`Mr. Gore spoke at a climate leadership conference hosted by his nonprofit organization.`\
+https://nytimes.com/2024/04/15/climate/al-gore-climate-activism.html
+
 **Ready for a Chatbot Version of Your Favorite Instagram Influencers?**\
 `Instagram is testing a program that offers its top influencers the ability to interact with their followers over direct messages using a chatbot.`\
 https://nytimes.com/2024/04/15/technology/instagram-influencers-chatbots.html
@@ -29,12 +37,4 @@ https://nytimes.com/card/2024/04/15/travel/flight-attendant-safety-emergency-tra
 **In City Ballet’s Coming Season, New Works and Earlier Curtain Times**\
 `New York City Ballet will present a mix of old and new works, including premieres by Justin Peck, Alexei Ratmansky and Caili Quan, and introduce fewer intermissions.`\
 https://nytimes.com/2024/04/15/arts/dance/new-york-city-ballet-2024-25-season.html
-
-**Have Voters Really Forgotten Trump’s Presidency?**\
-`A new poll raises questions about the national memory.`\
-https://nytimes.com/live/2024/04/09/opinion/thepoint/have-voters-really-forgotten-trumps-presidency
-
-**With Nuclear Deal Dead, Containing Iran Grows More Fraught**\
-`The U.S., Europe, Russia and China worked together on a 2015 deal to limit Iran’s nuclear program. The arrangement’s unraveling and the spike in superpower tensions make this a dangerous moment.`\
-https://nytimes.com/2024/04/15/us/politics/iran-israel-nuclear-deal-biden.html
 
