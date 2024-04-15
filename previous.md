@@ -1,3 +1,7 @@
+**Faith Ringgold Perfectly Captured the Pitch of America’s Madness**\
+`Ringgold’s landmark career was long ignored by the art establishment. But she kept going, mixing the personal and political, and a late surge of attention rightly put her smack in the middle of MoMA.`\
+https://nytimes.com/2024/04/15/arts/design/faith-ringgold-art-politics-legacy.html
+
 **There’s Been an Airplane Emergency. Here’s What Flight Attendants Do Next.**\
 `Flight attendants do much more than provide customer service. They train for the worst, a part of their job most of us may never see. `\
 https://nytimes.com/card/2024/04/15/travel/flight-attendant-safety-emergency-training
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/climate/coral-reefs-bleaching.html
 **One-Pot Tortellini With Prosciutto and Peas Is for Friends**\
 `Whether in the eating or in the making of Ali Slagle’s springtime supper.`\
 https://nytimes.com/2024/04/15/dining/one-pot-tortellini-with-prosciutto-and-peas-is-for-friends.html
-
-**A Beyoncé Album Repeats at No. 1 for the First Time in 11 Years**\
-`“Cowboy Carter” tops the Billboard 200 for a second week, boosted by physical sales of her album on CD and vinyl.`\
-https://nytimes.com/2024/04/15/arts/music/beyonce-cowboy-carter-billboard-chart.html
 

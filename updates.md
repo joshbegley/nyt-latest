@@ -1,3 +1,7 @@
+**Faith Ringgold Perfectly Captured the Pitch of America’s Madness**\
+`Ringgold’s landmark career was long ignored by the art establishment. But she kept going, mixing the personal and political, and a late surge of attention rightly put her smack in the middle of MoMA.`\
+https://nytimes.com/2024/04/15/arts/design/faith-ringgold-art-politics-legacy.html
+
 **There’s Been an Airplane Emergency. Here’s What Flight Attendants Do Next.**\
 `Flight attendants do much more than provide customer service. They train for the worst, a part of their job most of us may never see. `\
 https://nytimes.com/card/2024/04/15/travel/flight-attendant-safety-emergency-training
