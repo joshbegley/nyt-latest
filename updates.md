@@ -1,3 +1,11 @@
+**Markets Brace for Israel’s Next Move**\
+`Global equities and oil prices were stable following Iran’s missile and drone attack on Israel, but analysts warn that the calm may not last.`\
+https://nytimes.com/2024/04/15/business/dealbook/markets-israel-iran-attack.html
+
+**Israel’s Allies Make a Full-Court Press to Urge Restraint**\
+`Some far-right members of the Israeli government called for a strong response to an Iranian attack, but the U.S., the E.U. and others cautioned against further escalation.`\
+https://nytimes.com/2024/04/15/world/middleeast/israels-allies-retaliation.html
+
 **Want to Win at Solitaire? Players Share Their Best Tips**\
 `Nine strategies that will improve your odds of winning.`\
 https://nytimes.com/2024/04/15/crosswords/solitaire-tips-tricks.html
