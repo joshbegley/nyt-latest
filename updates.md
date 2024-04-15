@@ -1,3 +1,7 @@
+**Flying With Dogs or Cats? These Are Airlines’ Pet Policies**\
+`American recently relaxed its rules for pets traveling inside the cabin with their owners. Here’s what the major U.S. airlines require to travel with a pet.`\
+https://nytimes.com/article/pets-airlines-requirements.html
+
 **The Snubs and Surprises of the 2024 Olivier Awards**\
 `Our theater critics and a reporter discuss the big winner — “Sunset Boulevard” — and the rest of the honorees at Britain’s equivalent of the Tonys.`\
 https://nytimes.com/2024/04/15/theater/olivier-awards-conversation.html
