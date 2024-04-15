@@ -1,3 +1,7 @@
+**A Surprising Shadow Was Created by the Total Solar Eclipse**\
+`An ascending jet’s contrail over Montreal added to the wonder of last Monday’s eclipse.`\
+https://nytimes.com/2024/04/15/science/eclipse-shadow-plane-halo.html
+
 **Transgender Veterans Sue V.A. Over Gender-Affirming Surgeries**\
 `The lawsuit, brought by the Transgender American Veterans Association, said the Veteran Affairs department’s decision not to offer the procedures was discriminatory.`\
 https://nytimes.com/2024/04/15/us/politics/veterans-transgender-lawsuit.html
