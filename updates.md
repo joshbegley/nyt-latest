@@ -1,3 +1,7 @@
+**Activists and antics punctuate the scene outside the courthouse.**\
+`By Jesse McKinley, Olivia Bensimon and Anusha Bayya`\
+https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/activists-and-antics-punctuate-the-scene-outside-the-courthouse
+
 **NPR C.E.O. Faces Criticism Over Tweets Supporting Progressive Causes**\
 `Katherine Maher, who took over the public network last month, posted years ago on Twitter that “Donald Trump is a racist.”`\
 https://nytimes.com/2024/04/15/business/media/npr-chief-executive-criticized-over-tweets.html
