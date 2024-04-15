@@ -1,3 +1,7 @@
+**Prospective jurors head for the exits, saying they can’t be fair to Trump.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/trump-criminal-hush-money-trial-jury
+
 **Protesters Block Roads Across the U.S. to Support Those in Gaza**\
 `The coordinated protests across the United States and around the globe were planned in part to coincide with Tax Day in the United States.`\
 https://nytimes.com/2024/04/15/world/middleeast/ceasefire-palestine-gaza-protest.html
