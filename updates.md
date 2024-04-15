@@ -1,3 +1,7 @@
+**15 Looks That Did the Most at Coachella**\
+`The music festival had plenty of memorable fashion. Most (but not all) of it was ostentatious.`\
+https://nytimes.com/2024/04/15/style/coachella-fashion-photos.html
+
 **A Historic Day**\
 `Trump arrived this morning at Criminal Court in Lower Manhattan, as jury selection began in the first criminal trial of a former president.`\
 https://nytimes.com/2024/04/15/us/politics/trump-trial-manhattan-first-day.html
