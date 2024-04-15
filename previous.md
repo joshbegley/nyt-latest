@@ -1,3 +1,7 @@
+**The Snubs and Surprises of the 2024 Olivier Awards**\
+`Our theater critics and a reporter discuss the big winner — “Sunset Boulevard” — and the rest of the honorees at Britain’s equivalent of the Tonys.`\
+https://nytimes.com/2024/04/15/theater/olivier-awards-conversation.html
+
 **Judge in Trump’s Criminal Trial Declines to Recuse Himself**\
 `Donald J. Trump’s lawyers had called on Justice Juan M. Merchan to remove himself from the case, citing his daughter’s work as a Democratic consultant. Ethics experts had dismissed the idea that the judge was compromised.`\
 https://nytimes.com/2024/04/15/nyregion/judge-merchan-recusal-trump-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/supporters-p
 **Families of Manchester Bombing Victims File Lawsuit Against MI5**\
 `The suit comes after an independent public inquiry said the 2017 bombing at an Ariana Grande concert was a “significant missed opportunity” for the U.K. spy agency.`\
 https://nytimes.com/2024/04/15/world/europe/manchester-bombing-mi5-lawsuit.html
-
-**Bishop Is Stabbed During Live Streamed Service in Sydney**\
-`Nobody was critically injured, the police said. The attack came two days after a deadly stabbing rampage at a mall in an eastern suburb of Sydney.`\
-https://nytimes.com/2024/04/15/world/australia/stabbing-mass-wakeley-australia.html
 
