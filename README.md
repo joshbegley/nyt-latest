@@ -1,3 +1,7 @@
+**Israel’s Choices on Response to Iran’s Attack All Come With Risks**\
+`Its options range from striking Iran openly and forcefully to doing nothing at all. One factor to weigh is that the huge aerial attack did little damage.`\
+https://nytimes.com/2024/04/15/world/middleeast/biden-netanyahu-iran-attack.html
+
 **Faith Ringgold Perfectly Captured the Pitch of America’s Madness**\
 `Ringgold’s landmark career was long ignored by the art establishment. But she kept going, mixing the personal and political, and a late surge of attention rightly put her smack in the middle of MoMA.`\
 https://nytimes.com/2024/04/15/arts/design/faith-ringgold-art-politics-legacy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/books/review/sunjeev-sahota-spoiled-heart.html
 **The Widest-Ever Global Coral Crisis Will Hit Within Weeks, Scientists Say**\
 `Rising sea temperatures around the planet have caused a bleaching event that is expected to be the most extensive on record.`\
 https://nytimes.com/2024/04/15/climate/coral-reefs-bleaching.html
-
-**One-Pot Tortellini With Prosciutto and Peas Is for Friends**\
-`Whether in the eating or in the making of Ali Slagle’s springtime supper.`\
-https://nytimes.com/2024/04/15/dining/one-pot-tortellini-with-prosciutto-and-peas-is-for-friends.html
 
