@@ -1,9 +1,13 @@
+**David Egilman, Doctor Who Took On Drug Companies, Dies at 71**\
+`His testimony as an expert witness in some 600 trials helped plaintiffs win billions of dollars in cases involving malfeasance by pharmaceutical makers.`\
+https://nytimes.com/2024/04/15/health/david-egilman-dead.html
+
 **How to Make Frozen Shrimp Even Faster (and More Delicious)**\
 `You’re 20 minutes and a few simple steps from a fresh spring stir-fry built from a freezer staple.`\
 https://nytimes.com/2024/04/15/dining/how-to-cook-frozen-shrimp.html
 
 **‘Rust’ Armorer Is Sentenced to 18 Months for Involuntary Manslaughter**\
-`The armorer, Hannah Gutierrez-Reed, was the first person to be held criminally responsible in a jury trial for the death of Halyna Hutchins, the movie’s cinematographer.`\
+`The armorer, Hannah Gutierrez-Reed, got the maximum sentence for loading a live round into a gun on a film set, leading to the death of Halyna Hutchins, the movie’s cinematographer.`\
 https://nytimes.com/2024/04/15/arts/rust-sentencing-hannah-gutierrez-reed.html
 
 **New York Nears a Housing Deal to Confront Affordability Crisis**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/opinion/donald-trump-hush-money-trial.html
 **This is what the mood is like in Israel after Iran’s attack.**\
 `By Liam Stack and Sheera Frenkel`\
 https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/israel-mood
-
-**The Biden Guide to Dressing Younger**\
-`Though much has been made of the president’s age, his tailoring tells another story. There are lessons to be learned here.`\
-https://nytimes.com/2024/04/15/style/biden-tailor-mens-wear.html
 

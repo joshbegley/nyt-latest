@@ -1,3 +1,11 @@
+**David Egilman, Doctor Who Took On Drug Companies, Dies at 71**\
+`His testimony as an expert witness in some 600 trials helped plaintiffs win billions of dollars in cases involving malfeasance by pharmaceutical makers.`\
+https://nytimes.com/2024/04/15/health/david-egilman-dead.html
+
+**‘Rust’ Armorer Is Sentenced to 18 Months for Involuntary Manslaughter**\
+`The armorer, Hannah Gutierrez-Reed, got the maximum sentence for loading a live round into a gun on a film set, leading to the death of Halyna Hutchins, the movie’s cinematographer.`\
+https://nytimes.com/2024/04/15/arts/rust-sentencing-hannah-gutierrez-reed.html
+
 **How to Make Frozen Shrimp Even Faster (and More Delicious)**\
 `You’re 20 minutes and a few simple steps from a fresh spring stir-fry built from a freezer staple.`\
 https://nytimes.com/2024/04/15/dining/how-to-cook-frozen-shrimp.html
