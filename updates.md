@@ -1,3 +1,19 @@
+**A Beloved Copenhagen Cafe Gets Serious About Dinner**\
+`The chef Frederik Bille Brahe has transformed the Apollo Bar & Kantine into his version of a fine dining restaurant, and celebrated with a meal for his family and collaborators.`\
+https://nytimes.com/2024/04/15/t-magazine/frederik-bille-brahe-copenhagen-cafe-apollo.html
+
+**A Radicchio Salad for People Who Don’t Think They Like Radicchio**\
+`The Danish chef Frederik Bille Brahe shares the recipe for the star dish at his newly reopened Copenhagen cafe Apollo Bar & Kantine.`\
+https://nytimes.com/2024/04/15/t-magazine/radicchio-salad-recipe.html
+
+**Putting U.S. Power Behind Israel Will Keep Iran at Bay**\
+`The best way for Washington to limit the expansion of the Israel-Iran conflict is to clearly signal its intention to support an Israeli counterattack.`\
+https://nytimes.com/2024/04/15/opinion/israel-iran-united-states-war-gaza.html
+
+**‘Access Hollywood’ Tape Won’t Be Played for Jurors in Trump Trial**\
+`But the judge overseeing Donald J. Trump’s hush-money trial said the jury can be told what he said in the clip, where he bragged about grabbing women’s genitals.`\
+https://nytimes.com/2024/04/15/nyregion/access-hollywood-tape-trump.html
+
 **‘Access Hollywood’ Tape Won’t Be Played for Jurors in Trump Trial**\
 `But the judge overseeing Donald J. Trump’s hush-money trial in Manhattan said the jury can be told what he said in a clip bragging about grabbing women’s genitals.`\
 https://nytimes.com/2024/04/15/nyregion/access-hollywood-tape-trump.html
