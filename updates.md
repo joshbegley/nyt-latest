@@ -1,3 +1,7 @@
+**Biden and His Allies Are Likely to Stay Quiet on Trump’s Manhattan Trial**\
+`The president’s campaign and other Democrats believe that the court proceedings will do their work for them and that messaging should focus on Mr. Biden’s record.`\
+https://nytimes.com/2024/04/15/us/politics/biden-trump-court-case.html
+
 **A Slimmer Goldman Sachs Posts Hefty Jump in Profit**\
 `The Wall Street bank recorded nearly $4 billion in profit, beating analyst expectations in a tough quarter for big banks.`\
 https://nytimes.com/2024/04/15/business/goldman-sachs-profit.html
