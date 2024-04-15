@@ -1,3 +1,7 @@
+**Here’s what each side is looking for in a juror.**\
+`By Jesse McKinley, Kate Christobek and Maggie Haberman`\
+https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/heres-what-the-two-sides-are-looking-for-in-a-juror
+
 **Ukraine Sees ‘Hypocrisy’ in Western Allies’ Defense of Israel**\
 `The U.S., British and French militaries helped intercept Iranian missiles and drones, but Ukrainians say they haven’t provided the same help against Russian air attacks.`\
 https://nytimes.com/2024/04/15/world/middleeast/ukraine-aid-israel-iran-war.html
