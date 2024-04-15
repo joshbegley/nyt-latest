@@ -1,3 +1,7 @@
+**Oil Markets Shrug Off Iran’s Attack on Israel**\
+`Investors are taking a wait-and-see approach after the much-anticipated aerial assault had little effect on oil supplies.`\
+https://nytimes.com/2024/04/15/world/middleeast/iran-israel-oil-prices.html
+
 **Iran’s assault raises fears of a cycle of reprisals, like those after the U.S. killing of a top general.**\
 `By John Ismay`\
 https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/irans-assault-raises-fears-of-a-cycle-of-reprisals-like-those-after-the-us-killing-of-a-top-general
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/upshot/mortgage-rates-homes-stuck.html
 **Making Art From the Unexpected at Milan Design Week**\
 `Designers are showing off some of their latest works at the annual festival of furnishings and household objects.`\
 https://nytimes.com/2024/04/15/arts/design/milan-design-week-furniture.html
-
-**Taking a Moment to Lounge at Milan Design Week**\
-`You can always see where you would like to sit at the annual festival of furnishings and household objects.`\
-https://nytimes.com/2024/04/15/arts/design/milan-design-week-seating.html
 
