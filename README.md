@@ -1,3 +1,7 @@
+**To Fight Climate Change, We Need New ‘Political Technologies’**\
+`Our institutions are bad at solving “long problems,” but they don’t need to be.`\
+https://nytimes.com/2024/04/15/opinion/climate-change-long-problems.html
+
 **Judge Merchan Starts to Hold Trump Accountable**\
 `Slumping in his seat, the former president began listening to a debate on some extremely personal accusations.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/trump-trial-accountable
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/obituaries/roberta-karmel-dead.html
 **Iran’s Strike on Israel Creates Military Uncertainty, Diplomatic Opportunity**\
 `Analysts feared Iran’s strikes might set off a wider war. But with Israel still weighing its response, the attack’s military and diplomatic consequences have yet to be determined.`\
 https://nytimes.com/2024/04/15/world/middleeast/iran-israel-strike-diplomacy.html
-
-**A Weary Trump Appears to Doze Off in Courtroom Ahead of Criminal Trial**\
-`The former president flashed signs of irritation at times, but also seemed to fall asleep, before jolting back awake.`\
-https://nytimes.com/2024/04/15/nyregion/trump-asleep-criminal-trial.html
 
