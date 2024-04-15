@@ -1,3 +1,11 @@
+**A Lebanese official blames Israel’s spy agency for a killing near Beirut.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/a-lebanese-official-blames-israels-spy-agency-for-a-killing-near-beirut
+
+**Lessons From a 20-Person Polycule**\
+`How they set boundaries, navigate jealousy, wingman their spouses and foster community.`\
+https://nytimes.com/interactive/2024/04/15/magazine/polycule-polyamory-boston.html
+
 **What’s Your Dinner Party Style? Choose One.**\
 `Two editors make the case for keeping an at-home event simple or going all-out, with menus to match.`\
 https://nytimes.com/interactive/2024/04/15/dining/dinner-party-menu.html

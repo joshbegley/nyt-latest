@@ -1,3 +1,11 @@
+**A Lebanese official blames Israel’s spy agency for a killing near Beirut.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/a-lebanese-official-blames-israels-spy-agency-for-a-killing-near-beirut
+
+**Lessons From a 20-Person Polycule**\
+`How they set boundaries, navigate jealousy, wingman their spouses and foster community.`\
+https://nytimes.com/interactive/2024/04/15/magazine/polycule-polyamory-boston.html
+
 **What’s Your Dinner Party Style? Choose One.**\
 `Two editors make the case for keeping an at-home event simple or going all-out, with menus to match.`\
 https://nytimes.com/interactive/2024/04/15/dining/dinner-party-menu.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/15/us/migrants-work-permits-undocumented.html
 **What Do You Want to Know About Trump’s Trial in New York?**\
 `We’ll help answer your questions.`\
 https://nytimes.com/2024/04/15/briefing/what-do-you-want-to-know-about-trumps-trial-in-new-york.html
-
-**Prospective jurors head for the exits, saying they can’t be fair to Trump.**\
-`By Alan Feuer`\
-https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/trump-criminal-hush-money-trial-jury
-
-**Robert Beerbohm, Pioneering Comic Book Retailer and Historian, Dies at 71**\
-`A professed archaeologist of the industry, he opened his own stores and partnered with other experts and vendors in the nascent comics business.`\
-https://nytimes.com/2024/04/15/arts/robert-beerbohm-dead.html
 

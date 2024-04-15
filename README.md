@@ -1,3 +1,7 @@
+**Tuesday Briefing: Donald Trump’s Trial Begins**\
+`Also, Israel weighs a response to Iran and Sudan marks a year of war.`\
+https://nytimes.com/2024/04/15/world/asia/trump-jury-israel-iran-asia.html
+
 **A Lebanese official blames Israel’s spy agency for a killing near Beirut.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/a-lebanese-official-blames-israels-spy-agency-for-a-killing-near-beirut
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/world/middleeast/ceasefire-palestine-gaza-protest
 **New Migrants Get Work Permits. Other Undocumented Immigrants Want Them, Too.**\
 `Long-term undocumented immigrants — and their employers — are feeling left out by Biden administration policies allowing most who just crossed the border to work legally.`\
 https://nytimes.com/2024/04/15/us/migrants-work-permits-undocumented.html
-
-**What Do You Want to Know About Trump’s Trial in New York?**\
-`We’ll help answer your questions.`\
-https://nytimes.com/2024/04/15/briefing/what-do-you-want-to-know-about-trumps-trial-in-new-york.html
 
