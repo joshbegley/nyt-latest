@@ -1,3 +1,7 @@
+**15 Looks That Did the Most at Coachella**\
+`The music festival had plenty of memorable fashion. Most (but not all) of it was ostentatious.`\
+https://nytimes.com/2024/04/15/style/coachella-fashion-photos.html
+
 **A Historic Day**\
 `Trump arrived this morning at Criminal Court in Lower Manhattan, as jury selection began in the first criminal trial of a former president.`\
 https://nytimes.com/2024/04/15/us/politics/trump-trial-manhattan-first-day.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/15/dining/dinner-party-menu.html
 **Activists and antics punctuate the scene outside the courthouse.**\
 `By Jesse McKinley, Olivia Bensimon and Anusha Bayya`\
 https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/activists-and-antics-punctuate-the-scene-outside-the-courthouse
-
-**NPR C.E.O. Faces Criticism Over Tweets Supporting Progressive Causes**\
-`Katherine Maher, who took over the public network last month, posted years ago on Twitter that “Donald Trump is a racist.”`\
-https://nytimes.com/2024/04/15/business/media/npr-chief-executive-criticized-over-tweets.html
 
