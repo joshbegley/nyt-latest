@@ -1,3 +1,11 @@
+**Supporters, protesters and journalists assembled outside the Manhattan courthouse.**\
+`By Jesse McKinley, Olivia Bensimon, Anusha Bayya and Kaja Andric`\
+https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/supporters-protesters-and-journalists-assembled-outside-the-manhattan-courthouse
+
+**Families of Manchester Bombing Victims File Lawsuit Against MI5**\
+`The suit comes after an independent public inquiry said the 2017 bombing at an Ariana Grande concert was a “significant missed opportunity” for the U.K. spy agency.`\
+https://nytimes.com/2024/04/15/world/europe/manchester-bombing-mi5-lawsuit.html
+
 **Bishop Is Stabbed During Live Streamed Service in Sydney**\
 `Nobody was critically injured, the police said. The attack came two days after a deadly stabbing rampage at a mall in an eastern suburb of Sydney.`\
 https://nytimes.com/2024/04/15/world/australia/stabbing-mass-wakeley-australia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/15/business/dealbook/markets-israel-iran-attack.html
 **Want to Win at Solitaire? Players Share Their Best Tips**\
 `Nine strategies that will improve your odds of winning.`\
 https://nytimes.com/2024/04/15/crosswords/solitaire-tips-tricks.html
-
-**Israel’s Allies Make a Full-Court Press to Urge Restraint**\
-`Some far-right members of the Israeli government called for a strong response to an Iranian attack, but the U.S., the E.U. and others cautioned against further escalation.`\
-https://nytimes.com/2024/04/15/world/middleeast/israels-allies-retaliation.html
-
-**Salman Rushdie Reflects on His Stabbing in a New Memoir**\
-`“Knife” is an account of the writer’s brush with death in 2022, and the long recovery that followed.`\
-https://nytimes.com/2024/04/15/books/review/salman-rushdie-knife.html
 
