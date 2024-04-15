@@ -1,3 +1,15 @@
+**Prospective Jurors Are Dismissed in Dozens as Trump’s Trial Begins**\
+`Jury selection began in the Manhattan criminal case, but many who might weigh Donald J. Trump’s fate told a judge that they could not be impartial.`\
+https://nytimes.com/2024/04/15/nyregion/trump-hush-money-trial-jury.html
+
+**Patti Astor, Doyenne of New York’s Avant-Garde Scene, Dies at 74**\
+`She was a founder of the Fun Gallery, which staged early shows by Keith Haring and other artists who defined the city’s downtown scene in the 1980s.`\
+https://nytimes.com/2024/04/15/arts/patti-astor-dead.html
+
+**Supreme Court Clears Way, for Now, for Idaho to Ban Transgender Treatment for Minors**\
+`The Idaho attorney general had asked the justices to move swiftly to let the state law, which would ban gender-affirming medical care for minors, go into effect.`\
+https://nytimes.com/2024/04/15/us/politics/supreme-court-idaho-transgender.html
+
 **15 Looks That Did the Most at Coachella**\
 `The music festival had plenty of memorable fashion. Most (but not all) of it was ostentatious.`\
 https://nytimes.com/2024/04/15/style/coachella-fashion-photos.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/15/world/asia/trump-jury-israel-iran-asia.html
 **A Lebanese official blames Israel’s spy agency for a killing near Beirut.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/a-lebanese-official-blames-israels-spy-agency-for-a-killing-near-beirut
-
-**Lessons From a 20-Person Polycule**\
-`How they set boundaries, navigate jealousy, wingman their spouses and foster community.`\
-https://nytimes.com/interactive/2024/04/15/magazine/polycule-polyamory-boston.html
-
-**What’s Your Dinner Party Style? Choose One.**\
-`Two editors make the case for keeping an at-home event simple or going all-out, with menus to match.`\
-https://nytimes.com/interactive/2024/04/15/dining/dinner-party-menu.html
-
-**Activists and antics punctuate the scene outside the courthouse.**\
-`By Jesse McKinley, Olivia Bensimon and Anusha Bayya`\
-https://nytimes.com/live/2024/04/15/nyregion/trump-hush-money-trial/activists-and-antics-punctuate-the-scene-outside-the-courthouse
 
