@@ -1,3 +1,11 @@
+**Iran’s Unprecedented Attack on Israel**\
+`A yearslong shadow war between the countries burst into the open after Tehran fired hundreds of drones and missiles.`\
+https://nytimes.com/2024/04/15/podcasts/the-daily/iran-israel-attack.html
+
+**Picking a Jury to Try Trump, and What’s Next for Iran and Israel**\
+`Plus, the mortgages keeping people stuck in their homes.`\
+https://nytimes.com/2024/04/15/podcasts/trump-trial-mortgage.html
+
 **Severe Storms Expected in the Plains and Midwest**\
 `Large hail, damaging winds, heavy rain and isolated tornadoes are expected on Monday in the Plains before moving into the Midwest on Tuesday.`\
 https://nytimes.com/2024/04/15/us/weather-storms-midwest-plains.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/09/opinion/thepoint/could-these-two-twists-chan
 **A Show of Might in the Skies Over Israel**\
 `Iran’s retaliation for Israel’s killing of senior military leaders was a highly choreographed spectacle. But fears of a wider war still loom.`\
 https://nytimes.com/2024/04/15/us/politics/iran-aerial-display-israel.html
-
-**U.S. Awards Samsung $6.4 Billion to Bolster Semiconductor Production**\
-`The federal grants will support Samsung’s new chip manufacturing hub in Taylor, Texas, along with the expansion of an existing site in Austin.`\
-https://nytimes.com/2024/04/15/us/politics/samsung-biden-administration-award-taylor-texas.html
-
-**Questions About Assassinations Test the Limits of Trump’s Immunity Claim**\
-`Three Supreme Court briefs from former military leaders and intelligence officials explore whether presidents may be prosecuted for ordering unlawful killings.`\
-https://nytimes.com/2024/04/15/us/trump-supreme-court-immunity-assassinations.html
 
