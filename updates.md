@@ -1,3 +1,11 @@
+**Ready for a Chatbot Version of Your Favorite Instagram Influencers?**\
+`Instagram is testing a program that offers its top influencers the ability to interact with their followers over direct messages using a chatbot.`\
+https://nytimes.com/2024/04/15/technology/instagram-influencers-chatbots.html
+
+**Ushio Amagatsu, Japanese Dancer Who Popularized Butoh, Dies at 74**\
+`He brought worldwide attention to a radical yet elemental form of contemporary dance that emerged in the wake of wartime destruction.`\
+https://nytimes.com/2024/04/15/arts/dance/ushio-amagatsu-dead.html
+
 **These Gay Novels Offer a ‘More Interesting Conversation’ About Faith**\
 `Recent books by Allen Bratton, Daniel Lefferts and Garrard Conley depict gay Christian characters not usually seen in queer literature.`\
 https://nytimes.com/2024/04/15/books/queer-literature-catholicism.html
