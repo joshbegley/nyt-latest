@@ -1,3 +1,7 @@
+**Trump’s Nostalgia Bump**\
+`Like other former presidents, time has improved Trump’s standing among voters.`\
+https://nytimes.com/2024/04/15/briefing/donald-trump-polls.html
+
 **Iran’s Unprecedented Attack on Israel**\
 `A yearslong shadow war between the countries burst into the open after Tehran fired hundreds of drones and missiles.`\
 https://nytimes.com/2024/04/15/podcasts/the-daily/iran-israel-attack.html
