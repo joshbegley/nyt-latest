@@ -1,3 +1,7 @@
+**Park Rangers Search for 2 Vandals Who Toppled Ancient Rocks at Lake Mead**\
+`After a video was widely shared online of two men pushing over a rock formation at Lake Mead National Recreation Area in Nevada, the authorities are asking for the public’s help to identify them.`\
+https://nytimes.com/2024/04/15/us/lake-mead-rock-formations-damage.html
+
 **Israeli civilians kill two Palestinians in the West Bank, officials say.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/04/15/world/iran-israel-gaza-war-news/israeli-civilians-kill-two-palestinians-in-the-west-bank-officials-say
