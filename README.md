@@ -1,3 +1,7 @@
+**A Slimmer Goldman Sachs Posts Hefty Jump in Profit**\
+`The Wall Street bank recorded nearly $4 billion in profit, beating analyst expectations in a tough quarter for big banks.`\
+https://nytimes.com/2024/04/15/business/goldman-sachs-profit.html
+
 **Tesla Will Lay Off More Than 10% of Workers**\
 `Elon Musk’s electric car company reported a drop in sales in the first three months of the year, and its profit margin has been falling for months.`\
 https://nytimes.com/2024/04/15/business/tesla-layoff-elon-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/realestate/renters-queens-new-hyde-park.html
 **Barry Diller Bets on Media Veterans to Turn Around The Daily Beast**\
 `The former Disney executive Ben Sherwood and Joanna Coles, the former Hearst content chief, are being given a minority stake in the digital tabloid.`\
 https://nytimes.com/2024/04/15/business/media/the-daily-beast-ben-sherwood-joanna-coles.html
-
-**A Video Game Made Out of Brick, Clay and Tenacity**\
-`The handcrafted Harold Halibut, about a hapless janitor stuck in an undersea city, was more than a decade in the making.`\
-https://nytimes.com/2024/04/15/arts/harold-halibut-slow-bros.html
 
