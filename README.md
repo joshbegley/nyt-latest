@@ -1,3 +1,11 @@
+**Transgender Veterans Sue V.A. Over Gender-Affirming Surgeries**\
+`The lawsuit, brought by the Transgender American Veterans Association, said the Veteran Affairs department’s decision not to offer the procedures was discriminatory.`\
+https://nytimes.com/2024/04/15/us/politics/veterans-transgender-lawsuit.html
+
+**Britain’s Leaders Condemn Iran’s Attacks but Urge Israel to Show Restraint**\
+`Rishi Sunak said the government in Tehran was “intent on sowing chaos” in the region, but he also called for restraint from “all sides.”`\
+https://nytimes.com/2024/04/15/world/middleeast/britains-leaders-condemn-irans-attacks-but-urge-israel-to-show-restraint.html
+
 **To Fight Climate Change, We Need New ‘Political Technologies’**\
 `Our institutions are bad at solving “long problems,” but they don’t need to be.`\
 https://nytimes.com/2024/04/15/opinion/climate-change-long-problems.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/15/arts/hannah-gutierrez-reed-rust.html
 **New York Nears a Housing Deal to Confront Affordability Crisis**\
 `The agreement could clear the way for the construction of hundreds of thousands of homes and make it more difficult for landlords to evict renters.`\
 https://nytimes.com/2024/04/15/nyregion/ny-housing-deal.html
-
-**Roberta Karmel, First Woman Named to the S.E.C., Dies at 86**\
-`She got her training as a young lawyer for the Securities and Exchange Commission, but once she became a commissioner, she accused colleagues of arrogance and insularity.`\
-https://nytimes.com/2024/04/15/obituaries/roberta-karmel-dead.html
-
-**Iran’s Strike on Israel Creates Military Uncertainty, Diplomatic Opportunity**\
-`Analysts feared Iran’s strikes might set off a wider war. But with Israel still weighing its response, the attack’s military and diplomatic consequences have yet to be determined.`\
-https://nytimes.com/2024/04/15/world/middleeast/iran-israel-strike-diplomacy.html
 
