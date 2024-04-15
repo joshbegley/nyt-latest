@@ -1,3 +1,7 @@
+**Review: It’s No Sunday in the Park With ‘Lempicka’**\
+`A musical about the groundbreaking Art Deco painter is vocally thrilling but historically a blur.`\
+https://nytimes.com/2024/04/14/theater/lempicka-review-chavkin-espinosa.html
+
 **Quotation of the Day: Kidnapped With 275 Girls, She Finally Escaped**\
 `Quotation of the Day for Monday, April 15, 2024.`\
 https://nytimes.com/2024/04/14/pageoneplus/quotation-of-the-day-kidnapped-with-275-girls-she-finally-escaped.html
