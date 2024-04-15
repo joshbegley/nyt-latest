@@ -1,3 +1,7 @@
+**Bishop Is Stabbed During Live Streamed Service in Sydney**\
+`Nobody was critically injured, the police said. The attack came two days after a deadly stabbing rampage at a mall in an eastern suburb of Sydney.`\
+https://nytimes.com/2024/04/15/world/australia/stabbing-mass-wakeley-australia.html
+
 **The Fever Dream of Landing an Apartment**\
 `A woman with a young son started looking for a place before her lease expired, but even her most far-fetched solutions — Buy an RV? — haven’t panned out.`\
 https://nytimes.com/2024/04/15/realestate/renters-queens-new-hyde-park.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/world/middleeast/israels-allies-retaliation.html
 **Salman Rushdie Reflects on His Stabbing in a New Memoir**\
 `“Knife” is an account of the writer’s brush with death in 2022, and the long recovery that followed.`\
 https://nytimes.com/2024/04/15/books/review/salman-rushdie-knife.html
-
-**Pentagon Reviews Events Before Attack That Killed 13 U.S. Troops in Kabul**\
-`A team conducted new interviews to address lingering questions about the bombing in the final days of U.S. military involvement in Afghanistan.`\
-https://nytimes.com/2024/04/15/us/politics/us-troops-kabul-airport-bombing.html
 

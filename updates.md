@@ -1,3 +1,7 @@
+**Bishop Is Stabbed During Live Streamed Service in Sydney**\
+`Nobody was critically injured, the police said. The attack came two days after a deadly stabbing rampage at a mall in an eastern suburb of Sydney.`\
+https://nytimes.com/2024/04/15/world/australia/stabbing-mass-wakeley-australia.html
+
 **The Fever Dream of Landing an Apartment**\
 `A woman with a young son started looking for a place before her lease expired, but even her most far-fetched solutions — Buy an RV? — haven’t panned out.`\
 https://nytimes.com/2024/04/15/realestate/renters-queens-new-hyde-park.html
