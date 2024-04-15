@@ -1,3 +1,7 @@
+**Philharmonic Sidelines 2 Players It Tried to Fire for Misconduct**\
+`The New York Philharmonic said the musicians would not perform for now, after a magazine article brought new attention to allegations of misconduct. They have denied wrongdoing.`\
+https://nytimes.com/2024/04/15/arts/music/new-york-philharmonic-misconduct.html
+
 **Donald Trump, the Defendant**\
 `Trump has tried to project strength and confidence around his New York trial, but it might not be easy.`\
 https://nytimes.com/2024/04/15/us/politics/trump-trial-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/nyregion/trump-hush-money-trial-jury.html
 **Patti Astor, Doyenne of New York’s Avant-Garde Scene, Dies at 74**\
 `She was a founder of the Fun Gallery, which staged early shows by Keith Haring and other artists who defined the city’s downtown scene in the 1980s.`\
 https://nytimes.com/2024/04/15/arts/patti-astor-dead.html
-
-**Supreme Court Clears Way, for Now, for Idaho to Ban Transgender Treatment for Minors**\
-`The Idaho attorney general had asked the justices to move swiftly to let the state law, which would ban gender-affirming medical care for minors, go into effect.`\
-https://nytimes.com/2024/04/15/us/politics/supreme-court-idaho-transgender.html
 

@@ -1,3 +1,7 @@
+**Philharmonic Sidelines 2 Players It Tried to Fire for Misconduct**\
+`The New York Philharmonic said the musicians would not perform for now, after a magazine article brought new attention to allegations of misconduct. They have denied wrongdoing.`\
+https://nytimes.com/2024/04/15/arts/music/new-york-philharmonic-misconduct.html
+
 **Donald Trump, the Defendant**\
 `Trump has tried to project strength and confidence around his New York trial, but it might not be easy.`\
 https://nytimes.com/2024/04/15/us/politics/trump-trial-campaign.html
