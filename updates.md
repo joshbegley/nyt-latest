@@ -1,3 +1,7 @@
+**To Fight Climate Change, We Need New ‘Political Technologies’**\
+`Our institutions are bad at solving “long problems,” but they don’t need to be.`\
+https://nytimes.com/2024/04/15/opinion/climate-change-long-problems.html
+
 **Judge Merchan Starts to Hold Trump Accountable**\
 `Slumping in his seat, the former president began listening to a debate on some extremely personal accusations.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/trump-trial-accountable
