@@ -1,3 +1,11 @@
+**With Nuclear Deal Dead, Containing Iran Grows More Fraught**\
+`The U.S., Europe, Russia and China worked together on a 2015 deal to limit Iran’s nuclear program. The arrangement’s unraveling and the spike in superpower tensions make this a dangerous moment.`\
+https://nytimes.com/2024/04/15/us/politics/iran-israel-nuclear-deal-biden.html
+
+**Validation for Woman Who Said She Was Raped in Australia’s Parliament**\
+`More than three years after Brittany Higgins went public with her claim of rape, her case reached a conclusion of sorts.`\
+https://nytimes.com/2024/04/15/world/australia/higgins-lehrmann-verdict-defamation.html
+
 **A.I. Has a Measurement Problem**\
 `Which A.I. system writes the best computer code or generates the most realistic image? Right now, there’s no easy way to answer those questions.`\
 https://nytimes.com/2024/04/15/technology/ai-models-measurement.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/15/well/family/birth-order-siblings.html
 **Can You Find the 15 Book Titles Hidden in This Text?**\
 `This month’s Title Search puzzle challenges you to uncover novels written for middle-grade readers.`\
 https://nytimes.com/interactive/2024/04/15/books/review/chapter-books-quiz.html
-
-**Flying With Dogs or Cats? These Are Airlines’ Pet Policies**\
-`American recently relaxed its rules for pets traveling inside the cabin with their owners. Here’s what the major U.S. airlines require to travel with a pet.`\
-https://nytimes.com/article/pets-airlines-requirements.html
-
-**The Snubs and Surprises of the 2024 Olivier Awards**\
-`Our theater critics and a reporter discuss the big winner — “Sunset Boulevard” — and the rest of the honorees at Britain’s equivalent of the Tonys.`\
-https://nytimes.com/2024/04/15/theater/olivier-awards-conversation.html
 
