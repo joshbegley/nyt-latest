@@ -1,3 +1,7 @@
+**Rico Wade and Organized Noize’s 10 Essential Songs**\
+`The producer helped shape and boost the sound of Atlanta rap starting in the mid-1990s. His death at 52 was announced last Saturday.`\
+https://nytimes.com/2024/04/15/arts/music/rico-wade-organized-noize-playlist.html
+
 **Straws That Don’t Cause Wrinkles. Wait — Straws Cause Wrinkles?**\
 `Another solution to a problem we didn’t know we had.`\
 https://nytimes.com/2024/04/15/style/self-care/anti-wrinkle-straws-tiktok.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/arts/dance/ushio-amagatsu-dead.html
 **These Gay Novels Offer a ‘More Interesting Conversation’ About Faith**\
 `Recent books by Allen Bratton, Daniel Lefferts and Garrard Conley depict gay Christian characters not usually seen in queer literature.`\
 https://nytimes.com/2024/04/15/books/queer-literature-catholicism.html
-
-**‘A Different World’ Hits the Road to Help Historically Black Colleges**\
-`The beloved series was set at a fictional historically Black university. Now, cast members have reunited to visit and support real-life schools.`\
-https://nytimes.com/2024/04/15/arts/television/a-different-world-tour.html
 
