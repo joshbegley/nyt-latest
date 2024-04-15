@@ -1,3 +1,7 @@
+**Trump Media Stock Plunges, Extending Recent Losses**\
+`Funds that bet on a fall were set to profit as the parent of Truth Social came under renewed pressure after it registered new shares for a potential sale.`\
+https://nytimes.com/2024/04/15/business/trump-media-stock.html
+
 **Donald Trump on Trial: What to Expect**\
 `Readers discuss what’s at stake, the jurors and the possibility of Donald Trump’s testifying. Also: Aid to Ukraine; originalism; thinking rationally.`\
 https://nytimes.com/2024/04/15/opinion/donald-trump-hush-money-trial.html
