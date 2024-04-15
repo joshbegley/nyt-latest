@@ -1,3 +1,7 @@
+**With Iran’s Strikes, Arab Countries Fear an Expanding Conflict**\
+`The Iranian attack on Israeli territory made the Mideast’s new reality undeniable: Clashes are getting harder and harder to contain.`\
+https://nytimes.com/2024/04/15/world/middleeast/iran-israel-mideast.html
+
 **Monday Briefing**\
 `After Iran’s attack, Israel weighs its options.`\
 https://nytimes.com/2024/04/15/briefing/israel-iran-attack-trump-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/un-security-
 **He Was Blinded in One Eye, but Salman Rushdie’s Vision Is Undiminished**\
 `The author’s new memoir, “Knife,” addresses the attack that maimed him in 2022, and pays tribute to the wife who saw him through. “I wanted to write a book which was about both love and hatred — one overcoming the other,” he says.`\
 https://nytimes.com/2024/04/14/books/salman-rushdie-knife-interview.html
-
-**Gazans attempting to return to homes in north say Israeli troops fired on them.**\
-`By Raja Abdulrahim and Ameera Harouda`\
-https://nytimes.com/live/2024/04/14/world/iran-israel-gaza-war-news/gazans-attempting-to-return-to-homes-in-north-say-israeli-troops-fired-on-them
 
