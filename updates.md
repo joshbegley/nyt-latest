@@ -1,3 +1,7 @@
+**The U.N.’s atomic watchdog expresses worry that Israel could strike at Iran’s nuclear sites.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/the-uns-atomic-watchdog-expresses-worry-that-israel-could-strike-at-irans-nuclear-sites
+
 **Weekly Student News Quiz: Israel, Abortion Law, Trial of the Century**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/04/16/learning/16StudentNewsQuiz.html
