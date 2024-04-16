@@ -1,3 +1,15 @@
+**In Australia, ‘Cats are Just Catastrophic’**\
+`Feral cats take a heavy toll on the world’s wildlife, especially Down Under. The solution? Smarter traps, survival training for prey species, and the “Felixer.”`\
+https://nytimes.com/2024/04/16/science/australia-wildlife-cats.html
+
+**A Diplomatic Victory of Uncertain Staying Power**\
+`President Biden successfully assembled a coalition to defend Israel against Iran’s aerial attack, but the cycle of retaliation could continue, challenging the White House’s efforts to avert a sustained conflict.`\
+https://nytimes.com/2024/04/16/us/politics/biden-diplomatic-victory-israel-iran.html
+
+**Microsoft Makes High-Stakes Play in Tech Cold War With Emirati A.I. Deal**\
+`Microsoft plans to invest $1.5 billion in G42, an Emirati company with ties to China, as Washington and Beijing maneuver to secure tech influence in the Gulf.`\
+https://nytimes.com/2024/04/16/technology/microsoft-g42-uae-ai.html
+
 **Trump, Trailing Biden in Cash, Relies on Big Donors to Try to Catch Up**\
 `Major Republican donors have begun to open their checkbooks for Donald Trump now that he is the presumptive nominee, as he struggles to keep pace with President Biden.`\
 https://nytimes.com/2024/04/15/us/politics/trump-biden-fundraising.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/15/nyregion/donald-trump-trial-courtroom.html
 **Audit Questions Purchase of $19,000 Lectern by Arkansas Governor’s Office**\
 `The legislative audit found several ways that the heavily scrutinized purchase potentially violated state law. Gov. Sarah Huckabee Sanders criticized the findings.`\
 https://nytimes.com/2024/04/15/us/arkansas-sanders-lectern-audit.html
-
-**Israel Weighs Response to Iran’s Attack as Allies Push for Restraint**\
-`The Israeli war cabinet met again on Monday to discuss the strike, with some hawkish members of the prime minister’s government calling for a swift and forceful retaliation.`\
-https://nytimes.com/2024/04/15/world/middleeast/israel-iran-attack-response.html
-
-**Park Rangers Search for 2 Vandals Who Toppled Ancient Rocks at Lake Mead**\
-`After a video was widely shared online of two men pushing over a rock formation at Lake Mead National Recreation Area in Nevada, the authorities are asking for the public’s help to identify them.`\
-https://nytimes.com/2024/04/15/us/lake-mead-rock-formations-damage.html
-
-**Israeli Civilians Kill Two Palestinian Men in the West Bank, Officials Say**\
-`The Israeli military said the men were killed during a “violent exchange” that followed a report of a Palestinian attacking an Israeli shepherd.`\
-https://nytimes.com/2024/04/15/world/middleeast/palestinian-men-killed-israel-west-bank.html
 
