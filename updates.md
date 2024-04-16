@@ -1,3 +1,7 @@
+**The Supreme Court May Side With Jan. 6 Rioters, and Their Leader**\
+`The decision could affect the number of federal charges against Trump.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/supreme-court-rioters-trump
+
 **Trump Holds Series of Meetings With Foreign Leaders**\
 `The former president has had several private interactions with foreign heads of state and their emissaries. He plans to meet Wednesday with Poland’s president.`\
 https://nytimes.com/2024/04/16/us/politics/trump-foreign-leaders.html
