@@ -1,3 +1,7 @@
+**U.S. to Limit Deadly Mining Dust as Black Lung Resurges**\
+`Federal regulation capping toxic airborne silica has been decades in the making. The delay has cost miners dearly.`\
+https://nytimes.com/2024/04/16/us/coal-miners-black-lung-dust.html
+
 **Here’s what happened on Day 1 of the trial.**\
 `By Kate Christobek`\
 https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/heres-what-happened-on-day-1-of-the-trial
