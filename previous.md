@@ -1,3 +1,11 @@
+**China’s Economy, Propelled by Its Factories, Grew at Start of Year**\
+`China’s big bet on exports has helped to counteract its housing slowdown, but other countries are worried about a flood of Chinese goods.`\
+https://nytimes.com/2024/04/15/business/china-gdp-q1.html
+
+**One Under a Birdie**\
+`Adam Vincent keeps us young at heart.`\
+https://nytimes.com/2024/04/15/crosswords/daily-puzzle-2024-04-16.html
+
 **Under Pressure From Trump, Arizona Republicans Weigh Response to 1864 Abortion Ban**\
 `Liberal activists are proposing a ballot measure that would enshrine the right to an abortion in the state Constitution. Republicans in the State Legislature are considering plans to undermine it.`\
 https://nytimes.com/2024/04/15/us/politics/arizona-republicans-abortion-ban.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/15/world/middleeast/palestinian-men-killed-israel-we
 **Johnson Says House Will Vote on Stalled Aid to Israel and Ukraine**\
 `The speaker, who has delayed for months amid G.O.P. opposition to funding for Kyiv, said he would bring up foreign aid legislation along with a bill aimed at appeasing Republican skeptics.`\
 https://nytimes.com/2024/04/15/world/europe/johnson-israel-ukraine-aid-house-vote.html
-
-**Atlantic City Mayor Accused of Beating and Punching His Teenage Daughter**\
-`Marty Small Sr. and his wife, La’Quetta Small, were both charged with endangering the welfare of a child, prosecutors said.`\
-https://nytimes.com/2024/04/15/nyregion/atlantic-city-mayor-marty-small-daughter-abuse.html
-
-**Bidens Report Earning $620,000 and Paying $181,000 in Taxes in 2023**\
-`The couple’s tax return showed a 7 percent jump in income from 2022, a result of higher taxable interest income this year.`\
-https://nytimes.com/2024/04/15/us/politics/biden-tax-returns.html
 
