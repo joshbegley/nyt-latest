@@ -1,3 +1,7 @@
+**What Modern Love Really Looks Like**\
+`Cupid’s arrow follows a new path.`\
+https://nytimes.com/interactive/2024/04/16/magazine/modern-love-cupids-arrow.html
+
 **How to Be Pro-Palestinian, Pro-Israeli and Pro-Iranian**\
 `Support leadership change in Iran, Israel and the Palestinian Authority. Without that, there’s zero chance for resolution.`\
 https://nytimes.com/2024/04/16/opinion/israel-iran-gaza.html
