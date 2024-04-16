@@ -1,3 +1,7 @@
+**Johnson Says House Will Vote on Stalled Aid to Israel and Ukraine**\
+`The speaker, who has delayed for months amid G.O.P. opposition to funding for Kyiv, said he would bring up foreign aid legislation along with a bill aimed at appeasing Republican skeptics.`\
+https://nytimes.com/2024/04/15/us/politics/johnson-israel-ukraine-aid-house-vote.html
+
 **China’s Economy, Propelled by Its Factories, Grew at Start of Year**\
 `China’s big bet on exports has helped to counteract its housing slowdown, but other countries are worried about a flood of Chinese goods.`\
 https://nytimes.com/2024/04/15/business/china-gdp-q1.html
