@@ -1,3 +1,7 @@
+**Ken Holtzman, Who Pitched Two No-Hitters, Is Dead at 78**\
+`A left-hander, he was part of the Oakland A’s dynasty in the ’70s. He was also the winningest Jewish pitcher in Major League Baseball, with more victories than Sandy Koufax.`\
+https://nytimes.com/2024/04/16/sports/baseball/ken-holtzman-dead.html
+
 **The Met, Amid an Audit of its Holdings, Returns an Ancient Statue to Iraq**\
 `The museum said its enhanced effort to study the provenance of items in its collection had turned up evidence that the statue of a Sumerian man was the property of Iraq.`\
 https://nytimes.com/2024/04/16/arts/met-returns-iraq-statue.html
