@@ -1,3 +1,7 @@
+**Americans Are More Vulnerable to Foreign Propaganda, Senator Warns**\
+`Senator Mark Warner, the chairman of the Intelligence Committee, said the United States was more susceptible to Russian influence operations than it was during the 2020 elections.`\
+https://nytimes.com/2024/04/16/us/politics/election-interference-russia-warner.html
+
 **Trump’s Jan. 6 Case Could Go On Even if Court Limits Use of Obstruction Law**\
 `The federal indictment of Donald Trump for plotting to overturn the 2020 election relies in part on the law that the Supreme Court weighed on Tuesday, but was built to survive without it.`\
 https://nytimes.com/2024/04/16/us/politics/trump-jan-6-case-obstruction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/style/tiny-love-modern-love-stories-the-one-liner
 **Carl Erskine, a Star Pitcher of the Dodgers’ Glory Years, Is Dead at 97**\
 `The record-setting pitcher known as Oisk in Brooklyn was the last surviving member of “The Boys of Summer.”`\
 https://nytimes.com/2024/04/16/obituaries/carl-erskine-dead.html
-
-**House Delivers Impeachment Articles Against Mayorkas, Calling for a Trial**\
-`Republicans are demanding a full trial of the homeland security secretary, but Democrats have made it clear they will try to dismiss the charges quickly and with little fanfare.`\
-https://nytimes.com/2024/04/16/us/politics/mayorkas-impeachment-house-senate.html
 

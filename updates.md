@@ -1,3 +1,7 @@
+**Americans Are More Vulnerable to Foreign Propaganda, Senator Warns**\
+`Senator Mark Warner, the chairman of the Intelligence Committee, said the United States was more susceptible to Russian influence operations than it was during the 2020 elections.`\
+https://nytimes.com/2024/04/16/us/politics/election-interference-russia-warner.html
+
 **Trump’s Jan. 6 Case Could Go On Even if Court Limits Use of Obstruction Law**\
 `The federal indictment of Donald Trump for plotting to overturn the 2020 election relies in part on the law that the Supreme Court weighed on Tuesday, but was built to survive without it.`\
 https://nytimes.com/2024/04/16/us/politics/trump-jan-6-case-obstruction.html
