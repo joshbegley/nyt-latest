@@ -1,3 +1,11 @@
+**Will the French Olympic Team Be Best Dressed at the Opening Ceremony?**\
+`Carine Roitfeld teamed up with Berluti to sprinkle some fashion fairy dust on the designs. Here’s the verdict.`\
+https://nytimes.com/2024/04/16/style/lvmh-berluti-french-olympic-opening-ceremony-outfits.html
+
+**Prosecutors and Defense Lawyers Begin to Seat Jurors for Trump Trial**\
+`The prospective jurors questioned on Tuesday mirrored their city: diverse, opinionated and with strong views about the former president.`\
+https://nytimes.com/2024/04/16/nyregion/trump-hush-money-case-jurors.html
+
 **‘Canceled’ for Protesting Cancel Culture, Europe’s Right-Wingers Rejoice**\
 `A mayor in Brussels gave no explanation of why he thought it necessary to try to stop the gathering from taking place, other than saying he wanted to “guarantee public safety.”`\
 https://nytimes.com/2024/04/16/world/europe/brussels-conversative-conference-emir-kir.html
