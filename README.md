@@ -1,3 +1,11 @@
+**The accusations against Trump: salacious details and mundane paperwork.**\
+`By Ben Protess, Kate Christobek and Jonah E. Bromwich`\
+https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/the-accusations-against-trump-salacious-details-and-mundane-paperwork
+
+**Has Tesla Peaked?**\
+`And what would that mean for the climate?`\
+https://nytimes.com/2024/04/16/climate/has-tesla-peaked.html
+
 **These Are the 42 Questions Prospective Trump Jurors Are Being Asked**\
 `Once they are chosen, jurors will be asked to decide whether Donald J. Trump falsified business records to cover up a sex scandal. But first they must answer these questions.`\
 https://nytimes.com/2024/04/16/nyregion/trump-hush-money-jury-questions.html
@@ -11,7 +19,7 @@ https://nytimes.com/2024/04/16/business/media/participant-jeff-skoll.html
 https://nytimes.com/2024/04/16/arts/music/anthony-davis-edith-wharton-the-reef.html
 
 **U.S.C. Cancels Valedictorian’s Speech After Jewish Groups Object**\
-`The university cited security concerns at the graduation. But the student said the school was “succumbing to a campaign of hate meant to silence my voice.”`\
+`The university cited security concerns at the graduation. But the student, who is Muslim, said the school was “succumbing to a campaign of hate meant to silence my voice.”`\
 https://nytimes.com/2024/04/16/us/usc-valedictorian-speech-gaza-war.html
 
 **As prospective jurors answer questions, they struggle to remain anonymous.**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/the-us-is-al
 **Comet Pons-Brooks Is Having Its Last Hurrah**\
 `Soon, this devil-horned comet won’t be visible for another seven decades.`\
 https://nytimes.com/2024/04/16/science/comet-pons-brooks.html
-
-**Protesters Disrupt Mayor Adams’s Speech to Business Leaders**\
-`The mayor’s speech at a “power breakfast” was interrupted by demonstrators who stormed the stage and accused him of abandoning the working class.`\
-https://nytimes.com/2024/04/16/nyregion/protesters-mayor-adams-speech.html
-
-**Speech by N.Y.C. Mayor Eric Adams Is Disrupted by Protesters**\
-`Protesters accused Mayor Eric Adams of failing working-class New Yorkers before being escorted off the stage at an event for business leaders.`\
-https://nytimes.com/video/nyregion/100000009416962/eric-adams-protesters-nyc.html
 
