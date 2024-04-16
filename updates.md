@@ -1,3 +1,19 @@
+**Restaurant Review: Hamburger America Is Deliriously Messy**\
+`Oklahoma-style onion burgers are the rage this year. At George Motz’s new SoHo restaurant, they reach their drippy peak.`\
+https://nytimes.com/2024/04/16/dining/hamburger-america.html
+
+**4 People Are Charged in the Disappearance of 2 Kansas Women**\
+`The four people arrested on murder and kidnapping charges on Saturday were from Oklahoma and were members of an anti-government group called God’s Misfits.`\
+https://nytimes.com/2024/04/16/us/kansas-women-killed-oklahoma.html
+
+**U.S. Lays Out Protections for Assange if He Is Extradited**\
+`American officials sought to reassure the U.K. about Julian Assange’s treatment should the former WikiLeaks founder, who has been indicted by the U.S., be sent there.`\
+https://nytimes.com/2024/04/16/world/europe/julian-assange-extradition-us-uk.html
+
+**‘We Are So Back’ Is So Back**\
+`The phrase has become ubiquitous online as a way to celebrate life’s small pleasures — at least until “we’re so over.”`\
+https://nytimes.com/2024/04/16/style/we-are-so-back-meme.html
+
 **‘We Are So Back’ Is So Back**\
 `The phrase has become ubiquitous online as a way to celebrate life’s small pleasures — at least until “we’re so over.”`\
 https://nytimes.com/2024/04/16/style/we-are-so-back-meme.html
