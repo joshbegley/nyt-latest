@@ -1,3 +1,7 @@
+**Biden Digs at Trump During His Pennsylvania Hometown Visit**\
+`In a speech about his tax plan, President Biden compared Scranton, Pa., to Trump’s Mar-a-Lago to highlight the different economic and social values between America’s middle class and its wealthy.`\
+https://nytimes.com/video/us/politics/100000009417913/biden-trump-scranton-taxes.html
+
 **In the Hamptons, a Grim Paradox Revealed**\
 `On Long Island’s East End, where many residents retreat to lavish second homes, some day laborers who can’t afford a bed are living in outdoor encampments.`\
 https://nytimes.com/2024/04/16/insider/in-the-hamptons-a-grim-paradox-revealed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/t-magazine/salone-del-mobile-party-tour-ramdane-t
 **Interior Said to Reject Industrial Road Through Alaskan Wilderness**\
 `A mining company wants to build a 211-mile industrial road through Alaskan wilderness to reach a large copper deposit. The Interior Department says it would harm wildlife and communities.`\
 https://nytimes.com/2024/04/16/climate/ambler-road-alaska-interior.html
-
-**Wednesday Briefing: China’s Economy Grew Faster Than Expected**\
-`Plus, Australia’s feral cat problem.`\
-https://nytimes.com/2024/04/16/briefing/china-economic-growth-iran-sanctions-trump-trial.html
 
