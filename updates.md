@@ -1,3 +1,7 @@
+**NASA Seeks ‘Hail Mary’ for Its Mars Rocks Return Mission**\
+`The agency will seek new ideas for its Mars Sample Return program, expected to be billions of dollars over budget and years behind schedule.`\
+https://nytimes.com/2024/04/15/science/nasa-mars-sample-return-mission.html
+
 **Inside the Manhattan Courtroom at the Center of American Politics**\
 `Protesters railed outside, media and security swarmed the area, and inside the courtroom, Donald J. Trump appeared to nod off.`\
 https://nytimes.com/2024/04/15/nyregion/donald-trump-trial-courtroom.html
