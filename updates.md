@@ -1,3 +1,7 @@
+**Whitey Herzog, Hall of Fame Cardinals Manager, Dies at 92**\
+`He won three pennants and a World Series as the St. Louis skipper, promoting what was called “Whiteyball,” combining speed, defense and pitching.`\
+https://nytimes.com/2024/04/16/sports/whitey-herzog-dead.html
+
 **Gains and Losses: Dr. Bob and the Realities of Aging**\
 `Responses to a front-page story about an aging doctor. Also: Donald Trump’s snooze in court; women vs. Trump; free speech’s limits; the gun show`\
 https://nytimes.com/2024/04/16/opinion/dr-bob-aging-biden-trump.html
