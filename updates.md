@@ -1,3 +1,11 @@
+**A U.N. panel says Israel is obstructing its investigation of the Oct. 7 attack.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/a-un-panel-says-israel-is-obstructing-its-investigation-of-the-oct-7-attack
+
+**A key precedent ruled that a fish is not a tangible object.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/a-key-precedent-ruled-that-a-fish-is-not-a-tangible-object
+
 **A key question in the case: the meaning of ‘otherwise’**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/a-key-question-in-the-case-the-meaning-of-otherwise
