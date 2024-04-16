@@ -1,3 +1,15 @@
+**NPR Suspends Editor Whose Essay Criticized the Broadcaster**\
+`Uri Berliner, a senior business editor at NPR, said that the public radio network’s liberal bias had tainted its coverage of important stories.`\
+https://nytimes.com/2024/04/16/business/media/npr-suspends-business-editor.html
+
+**Transcript: Ezra Klein Interviews Jerusalem Demsas**\
+`The April 16, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/04/16/podcasts/transcript-ezra-klein-interviews-jerusalem-demsas.html
+
+**Trump allies are using this case to try to reframe the Jan. 6 attack.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/trump-allies-are-using-this-case-to-try-to-reframe-the-jan-6-attack
+
 **Israeli forces carry out raids and arrests in northern Gaza, residents say.**\
 `By Hiba Yazbek and Iyad Abuheweila`\
 https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/israeli-forces-carry-out-raids-and-arrests-in-northern-gaza-residents-say
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/16/arts/dance/fka-twigs-martha-graham.html
 **Taylor Swift and Beyoncé Avoided a Collision on the Charts. (Again.)**\
 `Pop’s two reigning queens are often cast as rivals, but they have continually supported each other — and spaced out their album releases.`\
 https://nytimes.com/2024/04/16/arts/music/taylor-swift-beyonce-album-release-dates.html
-
-**‘Pasta Nada’ and More Ultrafast, Flexible Dinners**\
-`Few ingredients and very versatile: creamy garlic pasta with greens, soy-glazed chicken breasts, kimchi fried rice.`\
-https://nytimes.com/2024/04/16/dining/pasta-nada-and-more-ultrafast-flexible-dinners.html
-
-**The British (Fashion Brands) Are Coming!**\
-`Three beloved London brands are making their way across the Atlantic to stake a bricks and mortar presence in the United States.`\
-https://nytimes.com/2024/04/16/style/london-fashion-america-hunza-g-rixo.html
-
-**What does it mean to act ‘corruptly’?**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/what-does-it-mean-to-act-corruptly
 
