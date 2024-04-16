@@ -1,3 +1,7 @@
+**Copenhagen’s Old Stock Exchange Building Partly Collapses in Fire**\
+`The 17th-century building, one of the city’s best-known structures, was once the financial center of Denmark.`\
+https://nytimes.com/2024/04/16/world/europe/copenhagen-fire-stock-exchange-building.html
+
 **Why Germany Can’t Break Up With China**\
 `China remains one of the most important markets for Germany’s export-driven economy, prompting a three-day visit by the German chancellor, who has stressed the importance of open markets.`\
 https://nytimes.com/2024/04/16/business/germany-china-tariffs.html
