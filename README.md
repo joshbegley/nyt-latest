@@ -1,3 +1,7 @@
+**Heavy Rainfall Kills 18 in Oman as Dubai Airport Floods**\
+`The United Arab Emirates had its largest rainfall event in 75 years as a year’s worth of rain fell in Dubai alone, temporarily halting flights. More rain is expected into Wednesday.`\
+https://nytimes.com/2024/04/16/world/middleeast/dubai-flooding-rain-oman.html
+
 **Trump’s Plan to Expose the Secret Bias of Jurors Isn’t Working**\
 `The court managed to seat six jurors Tuesday, but the Trump team didn’t make it easy.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-jury-selection
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/t-magazine/salone-del-mobile-20th-anniversary-par
 **Guests at T Magazine’s Salone del Mobile Party**\
 `On their way into T’s 20th anniversary celebration in Milan, attendees posed at a colorful installation.`\
 https://nytimes.com/slideshow/2024/04/16/t-magazine/guests-at-t-magazines-salone-del-mobile-party.html
-
-**Take a Tour of T’s Salone del Mobile Party With Ramdane Touhami**\
-`The designer shows off the mirrored installation and T-shaped desserts he dreamed up for the annual celebration.`\
-https://nytimes.com/2024/04/16/t-magazine/salone-del-mobile-party-tour-ramdane-touhami.html
 
