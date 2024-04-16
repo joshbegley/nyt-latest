@@ -1,8 +1,16 @@
+**These Are the 42 Questions Prospective Trump Jurors Are Being Asked**\
+`Would-be jurors will be asked to decide whether Donald J. Trump falsified business records to cover up a sex scandal. First they must answer these questions.`\
+https://nytimes.com/2024/04/16/nyregion/trump-hush-money-jury-questions.html
+
+**Participant, Maker of Films With Social Conscience, Calls It Quits**\
+`The company has had critical and commercial hits over two decades but has never made money consistently and faced a challenging entertainment landscape.`\
+https://nytimes.com/2024/04/16/business/media/participant-jeff-skoll.html
+
 **A Pulitzer-Winning Composer Puts His Operatic Spin on Edith Wharton**\
 `Anthony Davis has written operas based on recent history. But now he is adapting, and dramatically changing, Wharton’s 1912 novel “The Reef.”`\
 https://nytimes.com/2024/04/16/arts/music/anthony-davis-edith-wharton-the-reef.html
 
-**U.S.C. Cancels Valedictorian’s Speech After Claims of Antisemitism**\
+**U.S.C. Cancels Valedictorian’s Speech After Jewish Groups Object**\
 `The university cited security concerns at the graduation. But the student said the school was “succumbing to a campaign of hate meant to silence my voice.”`\
 https://nytimes.com/2024/04/16/us/usc-valedictorian-speech-gaza-war.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/16/nyregion/protesters-mayor-adams-speech.html
 **Speech by N.Y.C. Mayor Eric Adams Is Disrupted by Protesters**\
 `Protesters accused Mayor Eric Adams of failing working-class New Yorkers before being escorted off the stage at an event for business leaders.`\
 https://nytimes.com/video/nyregion/100000009416962/eric-adams-protesters-nyc.html
-
-**Cotton Urges Citizens to Forcibly Confront Pro-Palestinian Protesters**\
-`The Republican senator from Arkansas said citizens should “take matters into your own hands” against demonstrators who have stepped up their civil disobedience to protest Israel’s offensive in Gaza.`\
-https://nytimes.com/2024/04/16/us/politics/tom-cotton-protesters.html
-
-**Whitey Herzog, Hall of Fame Cardinals Manager, Dies at 92**\
-`He won three pennants and a World Series as the St. Louis skipper, promoting what was called “Whiteyball,” combining speed, defense and pitching.`\
-https://nytimes.com/2024/04/16/sports/whitey-herzog-dead.html
 
