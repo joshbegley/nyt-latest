@@ -1,3 +1,15 @@
+**Did Three African Runners Let a Chinese Runner Win a Race in Beijing?**\
+`Organizers are investigating the results of the Beijing Half Marathon, after three runners from Kenya and Ethiopia appeared to wave a Chinese competitor past them before the finish.`\
+https://nytimes.com/2024/04/16/sports/beijing-half-marathon-controversy-he-jie.html
+
+**La Scala Opera Taps an Italian to Be Its Next Leader**\
+`Fortunato Ortombina, the general director of Teatro La Fenice, Venice’s opera house, will succeed Dominique Meyer, a respected French impresario.`\
+https://nytimes.com/2024/04/16/arts/music/la-scala-opera-italian-leader.html
+
+**The Assault on American Jews Is Getting Worse**\
+`A new survey shows a significant jump in antisemitic incidents.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/antisemitism-usa-statistics
+
 **FKA twigs Dances Martha Graham: ‘This Is Art in Its Truest Form’**\
 `Once a young bunhead, the acclaimed musical artist is taking the stage with the Martha Graham Dance Company. For her, it’s holy grail territory.`\
 https://nytimes.com/2024/04/16/arts/dance/fka-twigs-martha-graham.html
