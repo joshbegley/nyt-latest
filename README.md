@@ -1,3 +1,7 @@
+**‘Man’s Castle’: Free Love, Hard Times**\
+`Restored to its original length and screening at the Museum of Modern Art, this 1933 movie starring Spencer Tracy feels at once surprisingly frank and disquietingly coy.`\
+https://nytimes.com/2024/04/16/movies/mans-castle-free-love-hard-times.html
+
 **The Popularity of Marathons**\
 `Participation is up — as are finish times.`\
 https://nytimes.com/2024/04/16/briefing/boston-marathon-finish-times.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/opinion/arizona-abortion-supreme-court.html
 **Justices to Hear Obstruction Case That Could Bar Charges Against Trump**\
 `The question for the Supreme Court is whether a 2002 law prompted by white-collar fraud applies to the obstruction of the congressional proceeding on Jan. 6, 2021.`\
 https://nytimes.com/2024/04/16/us/supreme-court-jan-6-trump.html
-
-**Trump Courts the Chaos He Promises to Tame**\
-`At rallies, he does alt-universe loops in which he suggests that if the election hadn’t been taken from him, nothing bad would have befallen the world.`\
-https://nytimes.com/2024/04/16/opinion/trump-chaos-foreign-policy.html
 
