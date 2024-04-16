@@ -1,3 +1,11 @@
+**Under Pressure From Trump, Arizona Republicans Weigh Response to 1864 Abortion Ban**\
+`Liberal activists are proposing a ballot measure that would enshrine the right to an abortion in the state Constitution. Republicans in the State Legislature are considering plans to undermine it.`\
+https://nytimes.com/2024/04/15/us/politics/arizona-republicans-abortion-ban.html
+
+**Boeing Defends Safety of 787 Dreamliner After Whistle-Blower’s Claims**\
+`After a Boeing engineer went public with safety concerns, the company invited reporters to its South Carolina factory and top engineers vouched for the plane.`\
+https://nytimes.com/2024/04/15/business/boeing-787-dreamliner-safety-whistle-blower.html
+
 **NASA Seeks ‘Hail Mary’ for Its Mars Rocks Return Mission**\
 `The agency will seek new ideas for its Mars Sample Return program, expected to be billions of dollars over budget and years behind schedule.`\
 https://nytimes.com/2024/04/15/science/nasa-mars-sample-return-mission.html
