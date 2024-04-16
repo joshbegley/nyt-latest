@@ -1,3 +1,11 @@
+**Israeli strikes in southern Lebanon kill two Hezbollah commanders.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/israeli-strikes-in-southern-lebanon-kill-two-hezbollah-commanders
+
+**Mayor Adams Pushes to Hire Ex-Giuliani Deputy as New York’s Top Lawyer**\
+`Mayor Eric Adams, who is facing a cluster of legal challenges, is moving to hire Randy Mastro, known for his aggressive tactics.`\
+https://nytimes.com/2024/04/16/nyregion/randy-mastro-adams-lawyer.html
+
 **Flash Floods Swamp Dubai**\
 `The desert city was overwhelmed by a torrential downpour that dumped a year’s worth of rain in less than a day.`\
 https://nytimes.com/video/world/middleeast/100000009417819/dubai-flash-floods.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/16/insider/in-the-hamptons-a-grim-paradox-revealed.h
 **A Quiet Sunday Night in Syracuse, and Then a Deadly Ambush**\
 `A routine traffic stop led to the deaths of a police officer and a sheriff’s deputy in a shooting outside a suburban home. The gunman was also killed.`\
 https://nytimes.com/2024/04/16/nyregion/syracuse-police-shooting-ny.html
-
-**Senator Menendez, Charged in Bribery Scheme, May Blame His Wife**\
-`According to newly unsealed documents, Senator Robert Menendez may testify that Nadine Menendez hid information from him, leading him to believe that “nothing unlawful was taking place.”`\
-https://nytimes.com/2024/04/16/nyregion/robert-menendez-bribery-trial.html
-
-**What Modern Love Really Looks Like**\
-`Cupid’s arrow follows a new path.`\
-https://nytimes.com/interactive/2024/04/16/magazine/modern-love-cupids-arrow.html
 

@@ -1,3 +1,11 @@
+**Israeli strikes in southern Lebanon kill two Hezbollah commanders.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/israeli-strikes-in-southern-lebanon-kill-two-hezbollah-commanders
+
+**Mayor Adams Pushes to Hire Ex-Giuliani Deputy as New York’s Top Lawyer**\
+`Mayor Eric Adams, who is facing a cluster of legal challenges, is moving to hire Randy Mastro, known for his aggressive tactics.`\
+https://nytimes.com/2024/04/16/nyregion/randy-mastro-adams-lawyer.html
+
 **Flash Floods Swamp Dubai**\
 `The desert city was overwhelmed by a torrential downpour that dumped a year’s worth of rain in less than a day.`\
 https://nytimes.com/video/world/middleeast/100000009417819/dubai-flash-floods.html
