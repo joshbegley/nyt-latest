@@ -1,3 +1,23 @@
+**FKA twigs Dances Martha Graham: ‘This Is Art in Its Truest Form’**\
+`Once a young bunhead, the acclaimed musical artist is taking the stage with the Martha Graham Dance Company. For her, this is holy grail territory.`\
+https://nytimes.com/2024/04/16/arts/dance/fka-twigs-martha-graham.html
+
+**Taylor Swift and Beyoncé Avoided a Collision on the Charts. (Again.)**\
+`Pop’s two reigning queens are often cast as rivals, but they have continually supported each other — and spaced out their album releases.`\
+https://nytimes.com/2024/04/16/arts/music/taylor-swift-beyonce-album-release-dates.html
+
+**‘Pasta Nada’ and More Ultrafast, Flexible Dinners**\
+`Few ingredients and very versatile: creamy garlic pasta with greens, soy-glazed chicken breasts, kimchi fried rice.`\
+https://nytimes.com/2024/04/16/dining/pasta-nada-and-more-ultrafast-flexible-dinners.html
+
+**As Trump Runs in 2024, His 2016 Tactics Are on Trial**\
+`Prosecutors in Donald J. Trump’s criminal trial secured permission from the judge to admit evidence connected to his overall political strategy in 2016, bolstering their case.`\
+https://nytimes.com/2024/04/16/nyregion/trump-trial-tactics.html
+
+**A U.N. panel says Israel is obstructing its investigation of the Oct. 7 attack.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/2024/04/16/world/middleeast/israel-un-oct-7-attack.html
+
 **The British (Fashion Brands) Are Coming!**\
 `Three beloved London brands are making their way across the Atlantic to stake a bricks and mortar presence in the United States.`\
 https://nytimes.com/2024/04/16/style/london-fashion-america-hunza-g-rixo.html
