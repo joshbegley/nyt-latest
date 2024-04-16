@@ -1,3 +1,7 @@
+**Trump’s Jan. 6 Case Could Go On Even if Court Limits Use of Obstruction Law**\
+`The federal indictment of Donald Trump for plotting to overturn the 2020 election relies in part on the law that the Supreme Court weighed on Tuesday, but was built to survive without it.`\
+https://nytimes.com/2024/04/16/us/politics/trump-jan-6-case-obstruction.html
+
 **Restaurant Review: Hamburger America Is Deliriously Messy**\
 `Oklahoma-style onion burgers are the rage this year. At George Motz’s new SoHo restaurant, they reach their drippy peak.`\
 https://nytimes.com/2024/04/16/dining/hamburger-america.html
