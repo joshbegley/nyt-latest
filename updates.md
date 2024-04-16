@@ -1,3 +1,7 @@
+**Why Germany Can’t Break Up With China**\
+`China remains one of the most important markets for Germany’s export-driven economy, prompting a three-day visit by the German chancellor, who has stressed the importance of open markets.`\
+https://nytimes.com/2024/04/16/business/germany-china-tariffs.html
+
 **The Smothering of Abortion Rights Reveals Something Else About Republicans**\
 `Both the federal and the Arizona Supreme Courts have conjured a past that rejects the right to bodily autonomy.`\
 https://nytimes.com/2024/04/16/opinion/arizona-abortion-supreme-court.html

@@ -1,3 +1,7 @@
+**Why Germany Can’t Break Up With China**\
+`China remains one of the most important markets for Germany’s export-driven economy, prompting a three-day visit by the German chancellor, who has stressed the importance of open markets.`\
+https://nytimes.com/2024/04/16/business/germany-china-tariffs.html
+
 **The Smothering of Abortion Rights Reveals Something Else About Republicans**\
 `Both the federal and the Arizona Supreme Courts have conjured a past that rejects the right to bodily autonomy.`\
 https://nytimes.com/2024/04/16/opinion/arizona-abortion-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/16/opinion/electoral-map-outlook.html
 **Ukraine’s Big Vulnerabilities: Ammunition, Soldiers and Air Defense**\
 `The shortages add up to a dire situation for Ukraine in the third year of the war, presenting commanders with near impossible choices on how to deploy limited resources.`\
 https://nytimes.com/2024/04/16/world/europe/ukraine-war-weapons.html
-
-**Biden Heads to Pennsylvania to Talk Taxes and Hit Trump**\
-`In Scranton, his hometown, the president is expected to discuss the tax code in terms of economic fairness, arguing that Donald Trump’s tax cuts benefited billionaires.`\
-https://nytimes.com/2024/04/16/us/politics/biden-pennsylvania-trump.html
 
