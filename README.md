@@ -1,3 +1,19 @@
+**Restaurant Review: Hamburger America Is Deliriously Messy**\
+`Oklahoma-style onion burgers are the rage this year. At George Motz’s new SoHo restaurant, they reach their drippy peak.`\
+https://nytimes.com/2024/04/16/dining/hamburger-america.html
+
+**4 People Are Charged in the Disappearance of 2 Kansas Women**\
+`The four people arrested on murder and kidnapping charges on Saturday were from Oklahoma and were members of an anti-government group called God’s Misfits.`\
+https://nytimes.com/2024/04/16/us/kansas-women-killed-oklahoma.html
+
+**U.S. Lays Out Protections for Assange if He Is Extradited**\
+`American officials sought to reassure the U.K. about Julian Assange’s treatment should the former WikiLeaks founder, who has been indicted by the U.S., be sent there.`\
+https://nytimes.com/2024/04/16/world/europe/julian-assange-extradition-us-uk.html
+
+**‘We Are So Back’ Is So Back**\
+`The phrase has become ubiquitous online as a way to celebrate life’s small pleasures — at least until “we’re so over.”`\
+https://nytimes.com/2024/04/16/style/we-are-so-back-meme.html
+
 **Mayor in Brussels Tries to Shut Down Conservative Conference**\
 `Mayor Emir Kir gave no explanation of why he thought it necessary to try to stop the gathering from taking place, other than saying he wanted to “guarantee public safety.”`\
 https://nytimes.com/2024/04/16/world/europe/brussels-conversative-conference-emir-kir.html
@@ -22,8 +38,3 @@ https://nytimes.com/2024/04/16/us/politics/mayorkas-impeachment-house-senate.htm
 `Smartmatic, an elections technology company, had accused the conservative broadcaster of amplifying baseless claims about election fraud.`\
 https://nytimes.com/2024/04/16/business/media/smartmatic-oan-settle-defamation-suit.html
 
-**Fairness, a Trump Obsession, Is Central to Jury Selection in His Trial**\
-`The laborious process of selecting the people who will decide Donald J. Trump’s fate hinges on whether they can judge him impartially.`\
-https://nytimes.com/2024/04/16/nyregion/trump-jury-selection-fairness.html
-
-**Martha Stewart Has ‘Never-Ending Curiosity’ (And a Few Regrets.)**\
