@@ -1,3 +1,7 @@
+**Copenhagen’s Old Stock Exchange Building Partly Collapses in Fire**\
+`The 17th-century building, one of the city’s best-known structures, was once the financial center of Denmark.`\
+https://nytimes.com/2024/04/16/world/europe/copenhagen-fire-stock-exchange-building.html
+
 **Why Germany Can’t Break Up With China**\
 `China remains one of the most important markets for Germany’s export-driven economy, prompting a three-day visit by the German chancellor, who has stressed the importance of open markets.`\
 https://nytimes.com/2024/04/16/business/germany-china-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/opinion/ezra-klein-podcast-jerusalem-demsas.html
 **Why Biden Has a Narrower Path to the Presidency Than Trump, in 11 Maps**\
 `How the 2024 Electoral College map favors Donald Trump.`\
 https://nytimes.com/interactive/2024/04/16/opinion/electoral-map-outlook.html
-
-**Ukraine’s Big Vulnerabilities: Ammunition, Soldiers and Air Defense**\
-`The shortages add up to a dire situation for Ukraine in the third year of the war, presenting commanders with near impossible choices on how to deploy limited resources.`\
-https://nytimes.com/2024/04/16/world/europe/ukraine-war-weapons.html
 
