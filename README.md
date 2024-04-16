@@ -1,3 +1,19 @@
+**Salt**\
+`Are you consuming too much?`\
+https://nytimes.com/2024/04/16/learning/salt.html
+
+**Columbia President Is Next to Be Grilled About Antisemitism by Congress**\
+`Columbia University’s president, Nemat Shafik, will speak to the same congressional committee before which the Harvard and University of Pennsylvania presidents stumbled.`\
+https://nytimes.com/2024/04/16/nyregion/columbia-university-congress-antisemitism-hearing.html
+
+**The Connections Companion No. 310**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/16/crosswords/connections-companion.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/16/crosswords/spelling-bee-forum.html
+
 **Israeli Artist Shuts Venice Biennale Exhibit, Calls for Cease-Fire in Gaza**\
 `Ruth Patir, Israel’s representative at the event, says she won’t open her show in the national pavilion until Israel and Hamas reach “a cease-fire and hostage release agreement.”`\
 https://nytimes.com/2024/04/16/arts/design/israel-pavilion-venice-biennale.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/16/pageoneplus/corrections-april-16-2024.html
 **Tuesday Briefing**\
 `A chance for U.S. aid to Ukraine and Israel.`\
 https://nytimes.com/2024/04/16/briefing/aid-israel-ukraine-trump-trial.html
-
-**Quotation of the Day: Deal’s Demise Gave Tehran Opportunity**\
-`Quotation of the Day for Tuesday, April 16, 2024.`\
-https://nytimes.com/2024/04/16/pageoneplus/quotation-of-the-day-deals-demise-gave-tehran-opportunity.html
-
-**In Australia, ‘Cats Are Just Catastrophic’**\
-`Feral cats take a heavy toll on the world’s wildlife, especially Down Under. The solution? Smarter traps, survival training for prey species, and the “Felixer.”`\
-https://nytimes.com/2024/04/16/science/australia-wildlife-cats.html
-
-**A Diplomatic Victory of Uncertain Staying Power**\
-`President Biden successfully assembled a coalition to defend Israel against Iran’s aerial attack, but the cycle of retaliation could continue, challenging the White House’s efforts to avert a sustained conflict.`\
-https://nytimes.com/2024/04/16/us/politics/biden-diplomatic-victory-israel-iran.html
-
-**Microsoft Makes High-Stakes Play in Tech Cold War With Emirati A.I. Deal**\
-`Microsoft said it would invest $1.5 billion in G42, an Emirati company with ties to China, as Washington and Beijing maneuver to secure tech influence in the Gulf.`\
-https://nytimes.com/2024/04/16/technology/microsoft-g42-uae-ai.html
 
