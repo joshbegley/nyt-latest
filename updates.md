@@ -1,3 +1,11 @@
+**Trump Holds Series of Meetings With Foreign Leaders**\
+`The former president has had several private interactions with foreign heads of state and their emissaries. He plans to meet Wednesday with Poland’s president.`\
+https://nytimes.com/2024/04/16/us/politics/trump-foreign-leaders.html
+
+**Israel Weighs Response to Iran Attack, With Each Choice a Risk**\
+`In debating how to respond to last weekend’s Iranian airstrike, Israel’s war cabinet is choosing between options that could deter future attacks or de-escalate hostilities, but all carry drawbacks.`\
+https://nytimes.com/2024/04/16/world/middleeast/israel-iran-response-options.html
+
 **Israeli strikes in southern Lebanon kill two Hezbollah commanders.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/israeli-strikes-in-southern-lebanon-kill-two-hezbollah-commanders

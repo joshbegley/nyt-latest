@@ -1,3 +1,11 @@
+**Trump Holds Series of Meetings With Foreign Leaders**\
+`The former president has had several private interactions with foreign heads of state and their emissaries. He plans to meet Wednesday with Poland’s president.`\
+https://nytimes.com/2024/04/16/us/politics/trump-foreign-leaders.html
+
+**Israel Weighs Response to Iran Attack, With Each Choice a Risk**\
+`In debating how to respond to last weekend’s Iranian airstrike, Israel’s war cabinet is choosing between options that could deter future attacks or de-escalate hostilities, but all carry drawbacks.`\
+https://nytimes.com/2024/04/16/world/middleeast/israel-iran-response-options.html
+
 **Israeli strikes in southern Lebanon kill two Hezbollah commanders.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/israeli-strikes-in-southern-lebanon-kill-two-hezbollah-commanders
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-jury-selection
 **Biden Digs at Trump During His Pennsylvania Hometown Visit**\
 `In a speech about his tax plan, President Biden compared Scranton, Pa., to Trump’s Mar-a-Lago to highlight the different economic and social values between America’s middle class and its wealthy.`\
 https://nytimes.com/video/us/politics/100000009417913/biden-trump-scranton-taxes.html
-
-**In the Hamptons, a Grim Paradox Revealed**\
-`On Long Island’s East End, where many residents retreat to lavish second homes, some day laborers who can’t afford a bed are living in outdoor encampments.`\
-https://nytimes.com/2024/04/16/insider/in-the-hamptons-a-grim-paradox-revealed.html
-
-**A Quiet Sunday Night in Syracuse, and Then a Deadly Ambush**\
-`A routine traffic stop led to the deaths of a police officer and a sheriff’s deputy in a shooting outside a suburban home. The gunman was also killed.`\
-https://nytimes.com/2024/04/16/nyregion/syracuse-police-shooting-ny.html
 
