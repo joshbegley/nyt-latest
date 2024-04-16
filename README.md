@@ -1,11 +1,3 @@
-**The prosecution of a police officer, Joseph Fischer, led to this hearing.**\
-`By Alan Feuer`\
-https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/the-prosecution-of-a-police-officer-joseph-fischer-led-to-this-hearing
-
-**The Paris Olympics’ One Sure Thing: Cyberattacks**\
-`“We will be attacked,” the official responsible for fending off cyberthreats said. To prepare, organizers have been hosting war games and paying “bug bounties” to hackers.`\
-https://nytimes.com/2024/04/16/world/europe/paris-olympics-cyberattacks.html
-
 **Secret Rift Over Data Center Fueled Push to Expand Reach of Surveillance Program**\
 `Privacy advocates are raising alarms about a mysterious provision the House added to a surveillance bill last week. The Senate is likely to vote on the bill later this week.`\
 https://nytimes.com/2024/04/16/us/fisa-surveillance-bill-program.html
@@ -37,4 +29,12 @@ https://nytimes.com/2024/04/16/us/coal-miners-black-lung-dust.html
 **Today’s Wordle Review**\
 `In case you need some puzzle help.`\
 https://nytimes.com/2024/04/16/crosswords/wordle-review.html
+
+**Here’s what to know as Trump’s criminal trial continues.**\
+`By Ben Protess and Jonah E. Bromwich`\
+https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/heres-what-to-know-as-trumps-criminal-trial-continues
+
+**16trump-trial**\
+`Live Updates: Trump’s Criminal Trial to Resume With More Jury Selection`\
+https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial
 
