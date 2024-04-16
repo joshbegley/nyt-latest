@@ -1,3 +1,7 @@
+**Gains and Losses: Dr. Bob and the Realities of Aging**\
+`Responses to a front-page story about an aging doctor. Also: Donald Trump’s snooze in court; women vs. Trump; free speech’s limits; the gun show`\
+https://nytimes.com/2024/04/16/opinion/dr-bob-aging-biden-trump.html
+
 **NPR Suspends Editor Whose Essay Criticized the Broadcaster**\
 `Uri Berliner, a senior business editor at NPR, said that the public radio network’s liberal bias had tainted its coverage of important stories.`\
 https://nytimes.com/2024/04/16/business/media/npr-suspends-business-editor.html
