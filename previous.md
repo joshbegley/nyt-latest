@@ -1,3 +1,7 @@
+**Man Sentenced to 35 Years in Prison for Kidnapping F.B.I. Worker**\
+`Juan Alvarez-Sorto and two other people were on a drug trafficking trip in 2022 when they carjacked an S.U.V. belonging to a crime victim specialist, federal prosecutors said.`\
+https://nytimes.com/2024/04/16/us/fbi-worker-kidnapped-sentencing.html
+
 **Ken Holtzman, Who Pitched Two No-Hitters, Is Dead at 78**\
 `A left-hander, he was part of the Oakland A’s dynasty in the ’70s. He was also the winningest Jewish pitcher in Major League Baseball, with more victories than Sandy Koufax.`\
 https://nytimes.com/2024/04/16/sports/baseball/ken-holtzman-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009417819/dubai-flash-floods.ht
 **Day 2 of Trump’s Criminal Trial: Five Takeaways**\
 `Lawyers chose seven jurors to help decide the case against the former president, who is accused of falsifying business records to cover up a sexual scandal involving a porn star.`\
 https://nytimes.com/2024/04/16/nyregion/trump-trial-day-2-takeaways.html
-
-**Justices Questioned a Law Used to Charge Jan. 6 Rioters**\
-`Also, the U.S. is planning new sanctions on Iran. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/04/16/briefing/supreme-court-jan-6-charges-us-iran-sanctions.html
 

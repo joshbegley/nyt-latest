@@ -1,3 +1,7 @@
+**Man Sentenced to 35 Years in Prison for Kidnapping F.B.I. Worker**\
+`Juan Alvarez-Sorto and two other people were on a drug trafficking trip in 2022 when they carjacked an S.U.V. belonging to a crime victim specialist, federal prosecutors said.`\
+https://nytimes.com/2024/04/16/us/fbi-worker-kidnapped-sentencing.html
+
 **Ken Holtzman, Who Pitched Two No-Hitters, Is Dead at 78**\
 `A left-hander, he was part of the Oakland A’s dynasty in the ’70s. He was also the winningest Jewish pitcher in Major League Baseball, with more victories than Sandy Koufax.`\
 https://nytimes.com/2024/04/16/sports/baseball/ken-holtzman-dead.html
