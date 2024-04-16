@@ -1,3 +1,11 @@
+**U.S.C. Cancels Valedictorian’s Speech After Claims of Antisemitism**\
+`The university cited security concerns at the graduation. But the student said the school was “succumbing to a campaign of hate meant to silence my voice.”`\
+https://nytimes.com/2024/04/16/us/usc-valedictorian-speech-gaza-war.html
+
+**As prospective jurors answer questions, they struggle to remain anonymous.**\
+`By Kate Christobek`\
+https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/as-prospective-jurors-answer-questions-they-struggle-to-remain-anonymous
+
 **Read the Jury Questionnaire for Trump’s Criminal Trial in Manhattan**\
 `Here are the 42 questions prospective jurors are being asked to eventually identify a group of 12 to sit on the jury.`\
 https://nytimes.com/interactive/2024/04/16/nyregion/Trump-Jury-Questions.html

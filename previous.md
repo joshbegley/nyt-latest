@@ -1,3 +1,11 @@
+**U.S.C. Cancels Valedictorian’s Speech After Claims of Antisemitism**\
+`The university cited security concerns at the graduation. But the student said the school was “succumbing to a campaign of hate meant to silence my voice.”`\
+https://nytimes.com/2024/04/16/us/usc-valedictorian-speech-gaza-war.html
+
+**As prospective jurors answer questions, they struggle to remain anonymous.**\
+`By Kate Christobek`\
+https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/as-prospective-jurors-answer-questions-they-struggle-to-remain-anonymous
+
 **Read the Jury Questionnaire for Trump’s Criminal Trial in Manhattan**\
 `Here are the 42 questions prospective jurors are being asked to eventually identify a group of 12 to sit on the jury.`\
 https://nytimes.com/interactive/2024/04/16/nyregion/Trump-Jury-Questions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/16/sports/whitey-herzog-dead.html
 **Gains and Losses: Dr. Bob and the Realities of Aging**\
 `Responses to a front-page story about an aging doctor. Also: Donald Trump’s snooze in court; women vs. Trump; free speech’s limits; the gun show`\
 https://nytimes.com/2024/04/16/opinion/dr-bob-aging-biden-trump.html
-
-**NPR Suspends Editor Whose Essay Criticized the Broadcaster**\
-`Uri Berliner, a senior business editor at NPR, said that the public radio network’s liberal bias had tainted its coverage of important stories.`\
-https://nytimes.com/2024/04/16/business/media/npr-suspends-business-editor.html
-
-**Transcript: Ezra Klein Interviews Jerusalem Demsas**\
-`The April 16, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/04/16/podcasts/transcript-ezra-klein-interviews-jerusalem-demsas.html
 
