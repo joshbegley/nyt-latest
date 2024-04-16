@@ -1,4 +1,8 @@
 **These Are the 42 Questions Prospective Trump Jurors Are Being Asked**\
+`Once they are chosen, jurors will be asked to decide whether Donald J. Trump falsified business records to cover up a sex scandal. But first they must answer these questions.`\
+https://nytimes.com/2024/04/16/nyregion/trump-hush-money-jury-questions.html
+
+**These Are the 42 Questions Prospective Trump Jurors Are Being Asked**\
 `Would-be jurors will be asked to decide whether Donald J. Trump falsified business records to cover up a sex scandal. First they must answer these questions.`\
 https://nytimes.com/2024/04/16/nyregion/trump-hush-money-jury-questions.html
 
