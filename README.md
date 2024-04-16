@@ -1,3 +1,7 @@
+**Trump’s Plan to Expose the Secret Bias of Jurors Isn’t Working**\
+`The court managed to seat six jurors Tuesday, but the Trump team didn’t make it easy.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-jury-selection
+
 **Biden Digs at Trump During His Pennsylvania Hometown Visit**\
 `In a speech about his tax plan, President Biden compared Scranton, Pa., to Trump’s Mar-a-Lago to highlight the different economic and social values between America’s middle class and its wealthy.`\
 https://nytimes.com/video/us/politics/100000009417913/biden-trump-scranton-taxes.html
@@ -33,8 +37,4 @@ https://nytimes.com/slideshow/2024/04/16/t-magazine/guests-at-t-magazines-salone
 **Take a Tour of T’s Salone del Mobile Party With Ramdane Touhami**\
 `The designer shows off the mirrored installation and T-shaped desserts he dreamed up for the annual celebration.`\
 https://nytimes.com/2024/04/16/t-magazine/salone-del-mobile-party-tour-ramdane-touhami.html
-
-**Interior Said to Reject Industrial Road Through Alaskan Wilderness**\
-`A mining company wants to build a 211-mile industrial road through Alaskan wilderness to reach a large copper deposit. The Interior Department says it would harm wildlife and communities.`\
-https://nytimes.com/2024/04/16/climate/ambler-road-alaska-interior.html
 
