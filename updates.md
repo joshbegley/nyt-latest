@@ -1,3 +1,7 @@
+**The Smothering of Abortion Rights Reveals Something Else About Republicans**\
+`Both the federal and the Arizona Supreme Courts have conjured a past that rejects the right to bodily autonomy.`\
+https://nytimes.com/2024/04/16/opinion/arizona-abortion-supreme-court.html
+
 **The U.N.’s atomic watchdog expresses worry that Israel could strike at Iran’s nuclear sites.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/the-uns-atomic-watchdog-expresses-worry-that-israel-could-strike-at-irans-nuclear-sites
