@@ -1,3 +1,7 @@
+**A Wealthy Democratic Representative Is Among Top Self-Funders in Senate Primary History**\
+`Representative David Trone of Maryland was spending millions from his personal fortune even before his recent use of a racial slur drew criticism.`\
+https://nytimes.com/2024/04/16/us/politics/david-trone-maryland-senate-money.html
+
 **Tiny Love Stories: ‘The One-Liners Kept Coming’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/04/16/style/tiny-love-modern-love-stories-the-one-liners-kept-coming.html
