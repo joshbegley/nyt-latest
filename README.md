@@ -1,3 +1,7 @@
+**After 5,631 Yankees Games, John Sterling Calls His Own Walk-Off**\
+`The WFAN announcer was known for his catchphrase, “It is high! It is far! It is gone!” His last game was on Monday.`\
+https://nytimes.com/2024/04/16/nyregion/john-sterling-yankees-announcer.html
+
 **Man Sentenced to 35 Years in Prison for Kidnapping F.B.I. Worker**\
 `Juan Alvarez-Sorto and two other people were on a drug trafficking trip in 2022 when they carjacked an S.U.V. belonging to a crime victim specialist, federal prosecutors said.`\
 https://nytimes.com/2024/04/16/us/fbi-worker-kidnapped-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/nyregion/randy-mastro-adams-lawyer.html
 **Flash Floods Swamp Dubai**\
 `The desert city was overwhelmed by a torrential downpour that dumped a year’s worth of rain in less than a day.`\
 https://nytimes.com/video/world/middleeast/100000009417819/dubai-flash-floods.html
-
-**Day 2 of Trump’s Criminal Trial: Five Takeaways**\
-`Lawyers chose seven jurors to help decide the case against the former president, who is accused of falsifying business records to cover up a sexual scandal involving a porn star.`\
-https://nytimes.com/2024/04/16/nyregion/trump-trial-day-2-takeaways.html
 
