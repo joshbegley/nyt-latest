@@ -1,3 +1,7 @@
+**Israeli forces carry out raids and arrests in northern Gaza, residents say.**\
+`By Hiba Yazbek and Iyad Abuheweila`\
+https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/israeli-forces-carry-out-raids-and-arrests-in-northern-gaza-residents-say
+
 **For Postpartum and Pregnancy Care, One Brand Turns to a Porn Star**\
 `The mother and baby care brand Frida is working with Asa Akira, a well-known porn actress, to create educational videos about its products.`\
 https://nytimes.com/2024/04/16/well/live/frida-asa-akira-baby-brand.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/style/london-fashion-america-hunza-g-rixo.html
 **What does it mean to act ‘corruptly’?**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/what-does-it-mean-to-act-corruptly
-
-**Kisa Brings South Korean Roadside Fare to the Lower East Side**\
-`Rosemary’s offers pizza and a family-style meal in Midtown, the owners of Oxalis open Laurel Bakery in the Columbia Street waterfront district, Brooklyn, and more restaurant news.`\
-https://nytimes.com/2024/04/16/dining/nyc-restaurant-news.html
 
