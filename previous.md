@@ -1,3 +1,7 @@
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/16/crosswords/wordle-review.html
+
 **Here’s what to know as Trump’s criminal trial continues.**\
 `By Ben Protess and Jonah E. Bromwich`\
 https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/heres-what-to-know-as-trumps-criminal-trial-continues
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/podcasts/the-daily/ai-data.html
 **Supreme Court to Hear Jan. 6 Case, and Trump’s Criminal Trial Gets Underway**\
 `Plus, NASA’s “Hail Mary.”`\
 https://nytimes.com/2024/04/16/podcasts/january-6-trump-trial.html
-
-**As Israel weighs its options against Iran, diplomats push to ease tensions.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/as-israel-weighs-its-options-against-iran-diplomats-push-to-ease-tensions
 

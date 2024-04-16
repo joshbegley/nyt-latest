@@ -1,3 +1,7 @@
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/16/crosswords/wordle-review.html
+
 **Here’s what to know as Trump’s criminal trial continues.**\
 `By Ben Protess and Jonah E. Bromwich`\
 https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/heres-what-to-know-as-trumps-criminal-trial-continues
