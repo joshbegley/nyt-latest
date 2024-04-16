@@ -1,5 +1,5 @@
 **FKA twigs Dances Martha Graham: ‘This Is Art in Its Truest Form’**\
-`Once a young bunhead, the acclaimed musical artist is taking the stage with the Martha Graham Dance Company. For her, this is holy grail territory.`\
+`Once a young bunhead, the acclaimed musical artist is taking the stage with the Martha Graham Dance Company. For her, it’s holy grail territory.`\
 https://nytimes.com/2024/04/16/arts/dance/fka-twigs-martha-graham.html
 
 **Taylor Swift and Beyoncé Avoided a Collision on the Charts. (Again.)**\

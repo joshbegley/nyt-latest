@@ -1,3 +1,7 @@
+**FKA twigs Dances Martha Graham: ‘This Is Art in Its Truest Form’**\
+`Once a young bunhead, the acclaimed musical artist is taking the stage with the Martha Graham Dance Company. For her, it’s holy grail territory.`\
+https://nytimes.com/2024/04/16/arts/dance/fka-twigs-martha-graham.html
+
 **U.N. Panel Says Israel Is Obstructing Its Investigation of the Oct. 7 Attack**\
 `The commission, which is looking at possible human rights violations by Hamas and Israel, said it had still amassed large amounts of evidence. Israel has accused the commission of bias.`\
 https://nytimes.com/2024/04/16/world/middleeast/israel-un-oct-7-attack.html
