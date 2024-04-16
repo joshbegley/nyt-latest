@@ -1,3 +1,7 @@
+**Secret Rift Over Data Center Fueled Push to Expand Reach of Surveillance Program**\
+`Privacy advocates are raising alarms about a mysterious provision the House added to a surveillance bill last week. The Senate is likely to vote on the bill later this week.`\
+https://nytimes.com/2024/04/16/us/fisa-surveillance-bill-program.html
+
 **Caitlin Clark and the Best-Dressed at the W.N.B.A. Draft**\
 `The next class of basketball stars are ready for their close-ups. Finally, fashion is paying attention.`\
 https://nytimes.com/2024/04/16/style/caitlin-clark-best-dressed-wnba-draft.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/heres-what-t
 **16trump-trial**\
 `Live Updates: Trump’s Criminal Trial to Resume With More Jury Selection`\
 https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial
-
-**Book Bans Continue to Surge in Public Schools**\
-`More books were removed during the first half of this academic year than in the entire previous one.`\
-https://nytimes.com/2024/04/16/books/book-bans-public-schools.html
 
