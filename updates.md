@@ -1,3 +1,7 @@
+**Word of the Day: thoroughfare**\
+`This word has appeared in 104 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/16/learning/word-of-the-day-thoroughfare.html
+
 **Germany’s Leader Walks a Fine Line in China**\
 `Chancellor Olaf Scholz tried to promote German business interests while delivering warnings from Europe about trade and geopolitical tensions.`\
 https://nytimes.com/2024/04/16/world/asia/olaf-scholz-germany-china.html
