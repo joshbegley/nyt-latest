@@ -1,3 +1,7 @@
+**Germany’s Leader Walks a Fine Line in China**\
+`Chancellor Olaf Scholz tried to promote German business interests while delivering warnings from Europe about trade and geopolitical tensions.`\
+https://nytimes.com/2024/04/16/world/asia/olaf-scholz-germany-china.html
+
 **Corrections: April 16, 2024**\
 `Corrections that appeared in print on Tuesday, April 16, 2024.`\
 https://nytimes.com/2024/04/16/pageoneplus/corrections-april-16-2024.html
