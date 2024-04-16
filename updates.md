@@ -1,3 +1,15 @@
+**The court’s decision could have a direct impact on Donald Trump.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/the-courts-decision-could-have-a-direct-impact-on-donald-trump
+
+**After a chaotic day, a courthouse approximates its usual placidity.**\
+`By Olivia Bensimon and Kaja Andric`\
+https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/after-a-chaotic-day-a-courthouse-approximates-its-usual-placidity
+
+**Caitlin Clark and the Best-Dressed at the W.N.B.A. Draft**\
+`The next class of basketball stars are ready for their close-ups. Finally, fashion is paying attention.`\
+https://nytimes.com/2024/04/16/style/wnba-draft-caitlin-clark-angel-reese.html
+
 **Capitol Attack Prosecutions Have Ensnared Over 1,380 People**\
 `Prosecutors have suggested that a total of 2,000 or 2,500 people could ultimately face indictment for their roles in the attack.`\
 https://nytimes.com/2024/04/16/us/politics/jan-6-supreme-court-prosecutions.html
