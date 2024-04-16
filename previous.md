@@ -1,3 +1,7 @@
+**The Met, Amid an Audit of its Holdings, Returns an Ancient Statue to Iraq**\
+`The museum said its enhanced effort to study the provenance of items in its collection had turned up evidence that the statue of a Sumerian man was the property of Iraq.`\
+https://nytimes.com/2024/04/16/arts/met-returns-iraq-statue.html
+
 **The Supreme Court May Side With Jan. 6 Rioters, and Their Leader**\
 `The decision could affect the number of federal charges against Trump.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/supreme-court-rioters-trump
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/briefing/supreme-court-jan-6-charges-us-iran-sanc
 **Heavy Rainfall Kills 18 in Oman as Dubai Airport Floods**\
 `The United Arab Emirates had its largest rainfall event in 75 years as a year’s worth of rain fell in Dubai alone, temporarily halting flights. More rain is expected into Wednesday.`\
 https://nytimes.com/2024/04/16/world/middleeast/dubai-flooding-rain-oman.html
-
-**Trump’s Plan to Expose the Secret Bias of Jurors Isn’t Working**\
-`The court managed to seat six jurors Tuesday, but the Trump team didn’t make it easy.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-jury-selection
 
