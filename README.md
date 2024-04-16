@@ -30,8 +30,8 @@ https://nytimes.com/2024/04/16/nyregion/trump-trial-tactics.html
 `Melania Trump has long referred to the hush-money case involving Stormy Daniels as her husband’s problem, not hers. But she has privately called the trial a “disgrace” that could threaten his campaign.`\
 https://nytimes.com/2024/04/16/us/politics/melania-trump-trial-hush-money.html
 
-**A U.N. panel says Israel is obstructing its investigation of the Oct. 7 attack.**\
-`By Nick Cumming-Bruce`\
+**U.N. Panel Says Israel Is Obstructing Its Investigation of the Oct. 7 Attack**\
+`The commission, which is looking at possible human rights violations by Hamas and Israel, said it had still amassed large amounts of evidence. Israel has accused the commission of bias.`\
 https://nytimes.com/2024/04/16/world/middleeast/israel-un-oct-7-attack.html
 
 **A key precedent ruled that a fish is not a tangible object.**\
