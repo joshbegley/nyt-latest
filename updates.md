@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Israel, Abortion Law, Trial of the Century**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/04/16/learning/16StudentNewsQuiz.html
+
 **‘Man’s Castle’: Free Love, Hard Times**\
 `Restored to its original length and screening at the Museum of Modern Art, this 1933 movie starring Spencer Tracy feels at once surprisingly frank and disquietingly coy.`\
 https://nytimes.com/2024/04/16/movies/mans-castle-free-love-hard-times.html
