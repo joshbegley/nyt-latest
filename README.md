@@ -1,7 +1,3 @@
-**The U.N.’s atomic watchdog expresses worry that Israel could strike at Iran’s nuclear sites.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/the-uns-atomic-watchdog-expresses-worry-that-israel-could-strike-at-irans-nuclear-sites
-
 **Weekly Student News Quiz: Israel, Abortion Law, Trial of the Century**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/04/16/learning/16StudentNewsQuiz.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/04/16/world/europe/copenhagen-fire-stock-exchange-build
 **Why Germany Can’t Break Up With China**\
 `China remains one of the most important markets for Germany’s export-driven economy, prompting a three-day visit by the German chancellor, who has stressed the importance of open markets.`\
 https://nytimes.com/2024/04/16/business/germany-china-tariffs.html
+
+**The Smothering of Abortion Rights Reveals Something Else About Republicans**\
+`Both the federal and the Arizona Supreme Courts have conjured a past that rejects the right to bodily autonomy.`\
+https://nytimes.com/2024/04/16/opinion/arizona-abortion-supreme-court.html
 
