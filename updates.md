@@ -1,3 +1,7 @@
+**4 in ‘God’s Misfits’ Group Charged in Disappearance of 2 Kansas Women**\
+`The four arrested on murder and kidnapping charges were from Oklahoma and, according to a relative, were members of an anti-government group by that name, the authorities said.`\
+https://nytimes.com/2024/04/16/us/kansas-women-killed-oklahoma.html
+
 **Biden Bashes Trump as a Pawn of Billionaires as He Lays Out His Tax Plan**\
 `Speaking in Scranton, Pa., his hometown, the president used a speech about economic fairness as a new avenue of attack against his Republican rival, who was in a courtroom two hours away.`\
 https://nytimes.com/2024/04/16/us/politics/biden-trump-tax-scranton-pa.html
