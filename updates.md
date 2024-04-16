@@ -1,3 +1,7 @@
+**‘Canceled’ for Protesting Cancel Culture, Europe’s Right-Wingers Rejoice**\
+`A mayor in Brussels gave no explanation of why he thought it necessary to try to stop the gathering from taking place, other than saying he wanted to “guarantee public safety.”`\
+https://nytimes.com/2024/04/16/world/europe/brussels-conversative-conference-emir-kir.html
+
 **‘We Are So Back’ Is So Back**\
 `The phrase has become ubiquitous online as a way to celebrate life’s small pleasures — at least until “it’s so over.”`\
 https://nytimes.com/2024/04/16/style/we-are-so-back-meme.html
