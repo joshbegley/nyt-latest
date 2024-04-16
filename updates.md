@@ -1,3 +1,19 @@
+**In the Hamptons, a Grim Paradox Revealed**\
+`On Long Island’s East End, where many residents retreat to lavish second homes, some day laborers who can’t afford a bed are living in outdoor encampments.`\
+https://nytimes.com/2024/04/16/insider/in-the-hamptons-a-grim-paradox-revealed.html
+
+**How a Quiet Sunday Night in Syracuse Descended Into Carnage**\
+`A routine traffic stop led to the deaths of a police officer and a sheriff’s deputy in a shooting outside a suburban home. The gunman was also killed.`\
+https://nytimes.com/2024/04/16/nyregion/syracuse-police-shooting-ny.html
+
+**Senator Menendez, Charged in Bribery Scheme, May Blame His Wife**\
+`According to newly unsealed documents, Senator Robert Menendez may testify that Nadine Menendez hid information from him, leading him to believe that “nothing unlawful was taking place.”`\
+https://nytimes.com/2024/04/16/nyregion/robert-menendez-bribery-trial.html
+
+**Guests at T Magazine’s Salone del Mobile Party**\
+`On their way into T’s 20th anniversary celebration in Milan, attendees posed at a colorful installation.`\
+https://nytimes.com/slideshow/2024/04/16/t-magazine/guests-at-t-magazines-salone-del-mobile-party.html
+
 **What Modern Love Really Looks Like**\
 `Cupid’s arrow follows a new path.`\
 https://nytimes.com/interactive/2024/04/16/magazine/modern-love-cupids-arrow.html
