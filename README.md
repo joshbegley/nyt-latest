@@ -23,7 +23,7 @@ https://nytimes.com/2024/04/16/opinion/israel-iran-gaza.html
 https://nytimes.com/2024/04/16/t-magazine/salone-del-mobile-20th-anniversary-party-milan.html
 
 **Guests at T Magazine’s Salone del Mobile Party**\
-`On their way into T’s 20th anniversary party in Milan, attendees posed at a colorful installation.`\
+`On their way into T’s 20th anniversary celebration in Milan, attendees posed at a colorful installation.`\
 https://nytimes.com/slideshow/2024/04/16/t-magazine/guests-at-t-magazines-salone-del-mobile-party.html
 
 **Take a Tour of T’s Salone del Mobile Party With Ramdane Touhami**\
