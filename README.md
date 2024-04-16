@@ -1,11 +1,3 @@
-**How A.I.’s Insatiable Appetite for Data Became a Problem**\
-`A Times investigation found that tech giants altered their own rules to train their newest artificial intelligence systems.`\
-https://nytimes.com/2024/04/16/podcasts/the-daily/ai-data.html
-
-**Supreme Court to Hear Jan. 6 Case, and Trump’s Criminal Trial Gets Underway**\
-`Plus, NASA’s “Hail Mary.”`\
-https://nytimes.com/2024/04/16/podcasts/january-6-trump-trial.html
-
 **As Israel weighs its options against Iran, diplomats push to ease tensions.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/as-israel-weighs-its-options-against-iran-diplomats-push-to-ease-tensions
@@ -37,4 +29,12 @@ https://nytimes.com/2024/04/16/opinion/trump-chaos-foreign-policy.html
 **For Israel’s Allies, Iranian Missile Strike Scrambles Debate Over Gaza**\
 `Israel’s restless allies have voiced anger over the death toll in Gaza, but when their archnemesis launched a missile barrage, they set it aside. At least for the moment.`\
 https://nytimes.com/2024/04/16/world/middleeast/israel-iran-allies.html
+
+**In ‘Knife,’ Salman Rushdie Recounts His Brush With Death**\
+`Our reporter on the author’s new memoir.`\
+https://nytimes.com/2024/04/16/podcasts/in-knife-salman-rushdie-recounts-his-brush-with-death.html
+
+**New York’s Flawed Housing Deal Still Deserves Approval**\
+`By Mara Gay`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/new-yorks-flawed-housing-deal-still-deserves-approval
 
