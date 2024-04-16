@@ -1,5 +1,5 @@
-**China’s Economy, Propelled by Its Factories, Grew at Start of Year**\
-`China’s big bet on exports has helped to counteract its housing slowdown, but other countries are worried about a flood of Chinese goods.`\
+**China’s Economy, Propelled by Its Factories, Grew More Than Expected**\
+`China’s big bet on manufacturing helped to counteract its housing slowdown in the first three months of the year, but other countries are worried about a flood of Chinese goods.`\
 https://nytimes.com/2024/04/15/business/china-gdp-q1.html
 
 **One Under a Birdie**\
