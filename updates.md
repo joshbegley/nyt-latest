@@ -1,3 +1,11 @@
+**Inside the Manhattan Courtroom at the Center of American Politics**\
+`Protesters railed outside, media and security swarmed the area, and inside the courtroom, Donald J. Trump appeared to nod off.`\
+https://nytimes.com/2024/04/15/nyregion/donald-trump-trial-courtroom.html
+
+**Israeli Civilians Kill Two Palestinian Men in the West Bank, Officials Say**\
+`The Israeli military said the men were killed during a “violent exchange” that followed a report of a Palestinian attacking an Israeli shepherd.`\
+https://nytimes.com/2024/04/15/world/middleeast/palestinian-men-killed-israel-west-bank.html
+
 **Audit Questions Purchase of $19,000 Lectern by Arkansas Governor’s Office**\
 `The legislative audit found several ways that the heavily scrutinized purchase potentially violated state law. Gov. Sarah Huckabee Sanders criticized the findings.`\
 https://nytimes.com/2024/04/15/us/arkansas-sanders-lectern-audit.html

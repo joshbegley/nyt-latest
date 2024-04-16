@@ -1,3 +1,7 @@
+**Inside the Manhattan Courtroom at the Center of American Politics**\
+`Protesters railed outside, media and security swarmed the area, and inside the courtroom, Donald J. Trump appeared to nod off.`\
+https://nytimes.com/2024/04/15/nyregion/donald-trump-trial-courtroom.html
+
 **Audit Questions Purchase of $19,000 Lectern by Arkansas Governor’s Office**\
 `The legislative audit found several ways that the heavily scrutinized purchase potentially violated state law. Gov. Sarah Huckabee Sanders criticized the findings.`\
 https://nytimes.com/2024/04/15/us/arkansas-sanders-lectern-audit.html
@@ -10,8 +14,8 @@ https://nytimes.com/2024/04/15/world/middleeast/israel-iran-attack-response.html
 `After a video was widely shared online of two men pushing over a rock formation at Lake Mead National Recreation Area in Nevada, the authorities are asking for the public’s help to identify them.`\
 https://nytimes.com/2024/04/15/us/lake-mead-rock-formations-damage.html
 
-**Israeli civilians kill two Palestinians in the West Bank, officials say.**\
-`By Aaron Boxerman`\
+**Israeli Civilians Kill Two Palestinian Men in the West Bank, Officials Say**\
+`The Israeli military said the men were killed during a “violent exchange” that followed a report of a Palestinian attacking an Israeli shepherd.`\
 https://nytimes.com/2024/04/15/world/middleeast/palestinian-men-killed-israel-west-bank.html
 
 **Johnson Says House Will Vote on Stalled Aid to Israel and Ukraine**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/science/nasa-mars-sample-return-mission.html
 **Hochul Announces $237 Billion Budget, Including a Housing Deal**\
 `The spending plan, which still needs to be approved by the full State Legislature, includes measures on criminal justice, education and illegal cannabis shops.`\
 https://nytimes.com/2024/04/15/nyregion/state-budget-housing-ny.html
-
-**Maurice El Medioni, Jewish Algerian Pianist, Dies at 95**\
-`He fused the music of his Sephardic roots with Arab traditions, incorporating boogie-woogie and other influences, to create a singular style.`\
-https://nytimes.com/2024/04/15/arts/music/maurice-el-medioni-dead.html
 
