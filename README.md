@@ -1,3 +1,11 @@
+**Wednesday Briefing: China’s Economy Grew Faster Than Expected**\
+`Plus, Australia’s feral cat problem.`\
+https://nytimes.com/2024/04/16/briefing/china-economic-growth-iran-sanctions-trump-trial.html
+
+**Johnson’s Plan for Ukraine Aid Meets Republican Pushback, Muddying Its Path**\
+`The Republican speaker’s strategy for moving foreign aid measures for Israel and Ukraine through the House has outraged many in his own party, increasing calls for his ouster.`\
+https://nytimes.com/2024/04/16/us/politics/house-ukraine-israel-johnson.html
+
 **Will the French Olympic Team Be Best Dressed at the Opening Ceremony?**\
 `Carine Roitfeld teamed up with Berluti to sprinkle some fashion fairy dust on the designs. Here’s the verdict.`\
 https://nytimes.com/2024/04/16/style/lvmh-berluti-french-olympic-opening-ceremony-outfits.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/16/us/politics/trump-jan-6-case-obstruction.html
 **Restaurant Review: Hamburger America Is Deliriously Messy**\
 `Oklahoma-style onion burgers are the rage this year. At George Motz’s new SoHo restaurant, they reach their drippy peak.`\
 https://nytimes.com/2024/04/16/dining/hamburger-america.html
-
-**4 in ‘God’s Misfits’ Group Charged in Disappearance of 2 Kansas Women**\
-`The four arrested on murder and kidnapping charges were from Oklahoma and, according to a relative, were members of an anti-government group by that name, the authorities said.`\
-https://nytimes.com/2024/04/16/us/kansas-women-killed-oklahoma.html
-
-**U.S. Lays Out Protections for Assange if He Is Extradited**\
-`American officials sought to reassure the U.K. about Julian Assange’s treatment should the former WikiLeaks founder, who has been indicted by the U.S., be sent there.`\
-https://nytimes.com/2024/04/16/world/europe/julian-assange-extradition-us-uk.html
 
