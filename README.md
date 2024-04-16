@@ -1,3 +1,7 @@
+**Mayor in Brussels Tries to Shut Down Conservative Conference**\
+`Mayor Emir Kir gave no explanation of why he thought it necessary to try to stop the gathering from taking place, other than saying he wanted to “guarantee public safety.”`\
+https://nytimes.com/2024/04/16/world/europe/brussels-conversative-conference-emir-kir.html
+
 **A Wealthy Democratic Representative Is Among Top Self-Funders in Senate Primary History**\
 `Representative David Trone of Maryland was spending millions from his personal fortune even before his recent use of a racial slur drew criticism.`\
 https://nytimes.com/2024/04/16/us/politics/david-trone-maryland-senate-money.html
