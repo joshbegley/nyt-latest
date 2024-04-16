@@ -1,3 +1,11 @@
+**Day 2 of Trump’s Criminal Trial: Five Takeaways**\
+`Lawyers chose seven jurors to help decide the case against the former president, who is accused of falsifying business records to cover up a sexual scandal involving a porn star.`\
+https://nytimes.com/2024/04/16/nyregion/trump-trial-day-2-takeaways.html
+
+**Justices Questioned a Law Used to Charge Jan. 6 Rioters**\
+`Also, the U.S. is planning new sanctions on Iran. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/04/16/briefing/supreme-court-jan-6-charges-us-iran-sanctions.html
+
 **Heavy Rainfall Kills 18 in Oman as Dubai Airport Floods**\
 `The United Arab Emirates had its largest rainfall event in 75 years as a year’s worth of rain fell in Dubai alone, temporarily halting flights. More rain is expected into Wednesday.`\
 https://nytimes.com/2024/04/16/world/middleeast/dubai-flooding-rain-oman.html
