@@ -1,3 +1,7 @@
+**Comet Pons-Brooks Is Having Its Last Hurrah**\
+`Soon, this devil-horned comet won’t be visible for another seven decades.`\
+https://nytimes.com/2024/04/16/science/comet-pons-brooks.html
+
 **Protesters Disrupt Mayor Adams’s Speech to Business Leaders**\
 `The mayor’s speech at a “power breakfast” was interrupted by demonstrators who stormed the stage and accused him of abandoning the working class.`\
 https://nytimes.com/2024/04/16/nyregion/protesters-mayor-adams-speech.html
