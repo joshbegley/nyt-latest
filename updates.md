@@ -1,3 +1,7 @@
+**Heavy Rainfall Kills 18 in Oman as Dubai Airport Floods**\
+`The United Arab Emirates had its largest rainfall event in 75 years as a year’s worth of rain fell in Dubai alone, temporarily halting flights. More rain is expected into Wednesday.`\
+https://nytimes.com/2024/04/16/world/middleeast/dubai-flooding-rain-oman.html
+
 **Trump’s Plan to Expose the Secret Bias of Jurors Isn’t Working**\
 `The court managed to seat six jurors Tuesday, but the Trump team didn’t make it easy.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-jury-selection
