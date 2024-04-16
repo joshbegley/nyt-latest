@@ -1,3 +1,7 @@
+**Israeli Artist Shuts Venice Biennale Exhibit, Calls for Cease-Fire in Gaza**\
+`Ruth Patir, Israel’s representative at the event, says she won’t open her show in the national pavilion until Israel and Hamas reach “a cease-fire and hostage release agreement.”`\
+https://nytimes.com/2024/04/16/arts/design/israel-pavilion-venice-biennale.html
+
 **Late Night Savors Day One of the Trump Trial**\
 `After the ex-president seemed to fall asleep in court, Jimmy Kimmel said it was “nice to see even Donald Trump is exhausted by Donald Trump.”`\
 https://nytimes.com/2024/04/16/arts/television/jimmy-kimmel-trump-manhattan-trial.html
