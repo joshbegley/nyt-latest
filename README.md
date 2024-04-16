@@ -1,4 +1,4 @@
-**In Australia, ‘Cats are Just Catastrophic’**\
+**In Australia, ‘Cats Are Just Catastrophic’**\
 `Feral cats take a heavy toll on the world’s wildlife, especially Down Under. The solution? Smarter traps, survival training for prey species, and the “Felixer.”`\
 https://nytimes.com/2024/04/16/science/australia-wildlife-cats.html
 
