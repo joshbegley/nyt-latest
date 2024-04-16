@@ -1,3 +1,7 @@
+**Cotton Urges Citizens to Forcibly Confront Pro-Palestinian Protesters**\
+`The Republican senator from Arkansas said citizens should “take matters into your own hands” against demonstrators who have stepped up their civil disobedience to protest Israel’s offensive in Gaza.`\
+https://nytimes.com/2024/04/16/us/politics/tom-cotton-protesters.html
+
 **Whitey Herzog, Hall of Fame Cardinals Manager, Dies at 92**\
 `He won three pennants and a World Series as the St. Louis skipper, promoting what was called “Whiteyball,” combining speed, defense and pitching.`\
 https://nytimes.com/2024/04/16/sports/whitey-herzog-dead.html
