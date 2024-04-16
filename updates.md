@@ -1,3 +1,7 @@
+**‘Man’s Castle’: Free Love, Hard Times**\
+`Restored to its original length and screening at the Museum of Modern Art, this 1933 movie starring Spencer Tracy feels at once surprisingly frank and disquietingly coy.`\
+https://nytimes.com/2024/04/16/movies/mans-castle-free-love-hard-times.html
+
 **The Popularity of Marathons**\
 `Participation is up — as are finish times.`\
 https://nytimes.com/2024/04/16/briefing/boston-marathon-finish-times.html
