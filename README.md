@@ -1,3 +1,7 @@
+**Here’s what to know as Trump’s criminal trial continues.**\
+`By Ben Protess and Jonah E. Bromwich`\
+https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/heres-what-to-know-as-trumps-criminal-trial-continues
+
 **Book Bans Continue to Surge in Public Schools**\
 `More books were removed during the first half of this academic year than in the entire previous one.`\
 https://nytimes.com/2024/04/16/books/book-bans-public-schools.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/podcasts/january-6-trump-trial.html
 **As Israel weighs its options against Iran, diplomats push to ease tensions.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/as-israel-weighs-its-options-against-iran-diplomats-push-to-ease-tensions
-
-**16mideast-crisis**\
-`Global Leaders Press Iran and Israel to Avoid Escalation`\
-https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news
 
