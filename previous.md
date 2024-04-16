@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘The One-Liners Kept Coming’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/04/16/style/tiny-love-modern-love-stories-the-one-liners-kept-coming.html
+
 **Carl Erskine, a Star Pitcher of the Dodgers’ Glory Years, Is Dead at 97**\
 `The record-setting pitcher known as Oisk in Brooklyn was the last surviving member of “The Boys of Summer.”`\
 https://nytimes.com/2024/04/16/obituaries/carl-erskine-dead.html
