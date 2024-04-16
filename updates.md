@@ -1,3 +1,11 @@
+**Audit Questions Purchase of $19,000 Lectern by Arkansas Governor’s Office**\
+`The legislative audit found several ways that the heavily scrutinized purchase potentially violated state law. Gov. Sarah Huckabee Sanders criticized the findings.`\
+https://nytimes.com/2024/04/15/us/arkansas-sanders-lectern-audit.html
+
+**Israeli civilians kill two Palestinians in the West Bank, officials say.**\
+`By Aaron Boxerman`\
+https://nytimes.com/2024/04/15/world/middleeast/palestinian-men-killed-israel-west-bank.html
+
 **Israel Weighs Response to Iran’s Attack as Allies Push for Restraint**\
 `The Israeli war cabinet met again on Monday to discuss the strike, with some hawkish members of the prime minister’s government calling for a swift and forceful retaliation.`\
 https://nytimes.com/2024/04/15/world/middleeast/israel-iran-attack-response.html
