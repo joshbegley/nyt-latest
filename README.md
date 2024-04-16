@@ -1,3 +1,7 @@
+**Melania Trump Avoids the Courtroom, but Is Said to Share Her Husband’s Anger**\
+`Melania Trump has long referred to the hush-money case involving Stormy Daniels as her husband’s problem, not hers. But she has privately called the trial a “disgrace” that could threaten his campaign.`\
+https://nytimes.com/2024/04/16/us/politics/melania-trump-trial-hush-money.html
+
 **A U.N. panel says Israel is obstructing its investigation of the Oct. 7 attack.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/a-un-panel-says-israel-is-obstructing-its-investigation-of-the-oct-7-attack
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/us/politics/jan-6-supreme-court-prosecutions.html
 **This is what happened on Day 1 of the trial.**\
 `By Kate Christobek`\
 https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/heres-what-happened-on-day-1-of-the-trial
-
-**I.M.F. Sees Steady Growth but Warns of Rising Protectionism**\
-`The International Monetary Fund offered an upbeat economic outlook but said that new trade barriers and escalating wars could worsen inflation.`\
-https://nytimes.com/2024/04/16/business/imf-global-economic-growth.html
 
