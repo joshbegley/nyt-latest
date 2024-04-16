@@ -23,7 +23,7 @@ https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/what-does-it-mean-to-
 https://nytimes.com/2024/04/16/dining/nyc-restaurant-news.html
 
 **As Trump Runs in 2024, His 2016 Tactics Are on Trial**\
-`Prosecutors in his criminal trial secured permission from the judge to admit evidence connected to Donald J. Trump’s overall political strategy in 2016, bolstering their case.`\
+`Prosecutors in Donald J. Trump’s criminal trial secured permission from the judge to admit evidence connected to his overall political strategy in 2016, bolstering their case.`\
 https://nytimes.com/2024/04/16/nyregion/trump-trial-tactics.html
 
 **Melania Trump Avoids the Courtroom, but Is Said to Share Her Husband’s Anger**\
@@ -32,7 +32,7 @@ https://nytimes.com/2024/04/16/us/politics/melania-trump-trial-hush-money.html
 
 **A U.N. panel says Israel is obstructing its investigation of the Oct. 7 attack.**\
 `By Nick Cumming-Bruce`\
-https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/a-un-panel-says-israel-is-obstructing-its-investigation-of-the-oct-7-attack
+https://nytimes.com/2024/04/16/world/middleeast/israel-un-oct-7-attack.html
 
 **A key precedent ruled that a fish is not a tangible object.**\
 `By Adam Liptak`\
