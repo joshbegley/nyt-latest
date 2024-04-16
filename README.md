@@ -1,3 +1,15 @@
+**Did Three African Runners Let a Chinese Runner Win a Race in Beijing?**\
+`Organizers are investigating the results of the Beijing Half Marathon, after three runners from Kenya and Ethiopia appeared to wave a Chinese competitor past them before the finish.`\
+https://nytimes.com/2024/04/16/sports/beijing-half-marathon-controversy-he-jie.html
+
+**La Scala Opera Taps an Italian to Be Its Next Leader**\
+`Fortunato Ortombina, the general director of Teatro La Fenice, Venice’s opera house, will succeed Dominique Meyer, a respected French impresario.`\
+https://nytimes.com/2024/04/16/arts/music/la-scala-opera-italian-leader.html
+
+**The Assault on American Jews Is Getting Worse**\
+`A new survey shows a significant jump in antisemitic incidents.`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/antisemitism-usa-statistics
+
 **FKA twigs Dances Martha Graham: ‘This Is Art in Its Truest Form’**\
 `Once a young bunhead, the acclaimed musical artist is taking the stage with the Martha Graham Dance Company. For her, it’s holy grail territory.`\
 https://nytimes.com/2024/04/16/arts/dance/fka-twigs-martha-graham.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/16/dining/nyc-restaurant-news.html
 **As Trump Runs in 2024, His 2016 Tactics Are on Trial**\
 `Prosecutors in Donald J. Trump’s criminal trial secured permission from the judge to admit evidence connected to his overall political strategy in 2016, bolstering their case.`\
 https://nytimes.com/2024/04/16/nyregion/trump-trial-tactics.html
-
-**Melania Trump Avoids the Courtroom, but Is Said to Share Her Husband’s Anger**\
-`Melania Trump has long referred to the hush-money case involving Stormy Daniels as her husband’s problem, not hers. But she has privately called the trial a “disgrace” that could threaten his campaign.`\
-https://nytimes.com/2024/04/16/us/politics/melania-trump-trial-hush-money.html
-
-**U.N. Panel Says Israel Is Obstructing Its Investigation of the Oct. 7 Attack**\
-`The commission, which is looking at possible human rights violations by Hamas and Israel, said it had still amassed large amounts of evidence. Israel has accused the commission of bias.`\
-https://nytimes.com/2024/04/16/world/middleeast/israel-un-oct-7-attack.html
-
-**A key precedent ruled that a fish is not a tangible object.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/a-key-precedent-ruled-that-a-fish-is-not-a-tangible-object
 
