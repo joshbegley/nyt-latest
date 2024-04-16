@@ -1,3 +1,7 @@
+**Corrections: April 16, 2024**\
+`Corrections that appeared in print on Tuesday, April 16, 2024.`\
+https://nytimes.com/2024/04/16/pageoneplus/corrections-april-16-2024.html
+
 **Tuesday Briefing**\
 `A chance for U.S. aid to Ukraine and Israel.`\
 https://nytimes.com/2024/04/16/briefing/aid-israel-ukraine-trump-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/crosswords/daily-puzzle-2024-04-16.html
 **Under Pressure From Trump, Arizona Republicans Weigh Response to 1864 Abortion Ban**\
 `Liberal activists are proposing a ballot measure that would enshrine the right to an abortion in the state Constitution. Republicans in the State Legislature are considering plans to undermine it.`\
 https://nytimes.com/2024/04/15/us/politics/arizona-republicans-abortion-ban.html
-
-**Boeing Defends Safety of 787 Dreamliner After Whistle-Blower’s Claims**\
-`After a Boeing engineer went public with safety concerns, the company invited reporters to its South Carolina factory and top engineers vouched for the plane.`\
-https://nytimes.com/2024/04/15/business/boeing-787-dreamliner-safety-whistle-blower.html
 

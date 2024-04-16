@@ -1,3 +1,7 @@
+**Corrections: April 16, 2024**\
+`Corrections that appeared in print on Tuesday, April 16, 2024.`\
+https://nytimes.com/2024/04/16/pageoneplus/corrections-april-16-2024.html
+
 **Tuesday Briefing**\
 `A chance for U.S. aid to Ukraine and Israel.`\
 https://nytimes.com/2024/04/16/briefing/aid-israel-ukraine-trump-trial.html
