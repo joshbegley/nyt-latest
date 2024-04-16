@@ -1,3 +1,7 @@
+**Germany’s Leader Walks a Fine Line in China**\
+`Chancellor Olaf Scholz tried to promote German business interests while delivering warnings from Europe about trade and geopolitical tensions.`\
+https://nytimes.com/2024/04/16/world/asia/olaf-scholz-germany-china.html
+
 **Corrections: April 16, 2024**\
 `Corrections that appeared in print on Tuesday, April 16, 2024.`\
 https://nytimes.com/2024/04/16/pageoneplus/corrections-april-16-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/business/china-gdp-q1.html
 **One Under a Birdie**\
 `Adam Vincent keeps us young at heart.`\
 https://nytimes.com/2024/04/15/crosswords/daily-puzzle-2024-04-16.html
-
-**Under Pressure From Trump, Arizona Republicans Weigh Response to 1864 Abortion Ban**\
-`Liberal activists are proposing a ballot measure that would enshrine the right to an abortion in the state Constitution. Republicans in the State Legislature are considering plans to undermine it.`\
-https://nytimes.com/2024/04/15/us/politics/arizona-republicans-abortion-ban.html
 
