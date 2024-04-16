@@ -1,3 +1,11 @@
+**Under Pressure From Trump, Arizona Republicans Weigh Response to 1864 Abortion Ban**\
+`Liberal activists are proposing a ballot measure that would enshrine the right to an abortion in the state Constitution. Republicans in the State Legislature are considering plans to undermine it.`\
+https://nytimes.com/2024/04/15/us/politics/arizona-republicans-abortion-ban.html
+
+**Boeing Defends Safety of 787 Dreamliner After Whistle-Blower’s Claims**\
+`After a Boeing engineer went public with safety concerns, the company invited reporters to its South Carolina factory and top engineers vouched for the plane.`\
+https://nytimes.com/2024/04/15/business/boeing-787-dreamliner-safety-whistle-blower.html
+
 **Inside the Manhattan Courtroom at the Center of American Politics**\
 `Protesters railed outside, media and security swarmed the area, and inside the courtroom, Donald J. Trump appeared to nod off.`\
 https://nytimes.com/2024/04/15/nyregion/donald-trump-trial-courtroom.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/15/nyregion/atlantic-city-mayor-marty-small-daughter
 **Bidens Report Earning $620,000 and Paying $181,000 in Taxes in 2023**\
 `The couple’s tax return showed a 7 percent jump in income from 2022, a result of higher taxable interest income this year.`\
 https://nytimes.com/2024/04/15/us/politics/biden-tax-returns.html
-
-**NASA Seeks ‘Hail Mary’ for Its Mars Rocks Return Mission**\
-`The agency will seek new ideas for its Mars Sample Return program, expected to be billions of dollars over budget and years behind schedule.`\
-https://nytimes.com/2024/04/15/science/nasa-mars-sample-return-mission.html
-
-**Hochul Announces $237 Billion Budget, Including a Housing Deal**\
-`The spending plan, which still needs to be approved by the full State Legislature, includes measures on criminal justice, education and illegal cannabis shops.`\
-https://nytimes.com/2024/04/15/nyregion/state-budget-housing-ny.html
 
