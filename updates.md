@@ -1,3 +1,11 @@
+**As Israel weighs its options against Iran, diplomats push to ease tensions.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/as-israel-weighs-its-options-against-iran-diplomats-push-to-ease-tensions
+
+**16mideast-crisis**\
+`Global Leaders Press Iran and Israel to Avoid Escalation`\
+https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news
+
 **Copenhagen’s Old Stock Exchange Building Partly Collapses in Fire**\
 `The 17th-century building, one of the city’s best-known structures, was once the financial center of Denmark.`\
 https://nytimes.com/2024/04/16/world/europe/copenhagen-fire-stock-exchange-building.html
