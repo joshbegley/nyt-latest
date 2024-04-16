@@ -1,3 +1,7 @@
+**Flash Floods Swamp Dubai**\
+`The desert city was overwhelmed by a torrential downpour that dumped a year’s worth of rain in less than a day.`\
+https://nytimes.com/video/world/middleeast/100000009417819/dubai-flash-floods.html
+
 **Day 2 of Trump’s Criminal Trial: Five Takeaways**\
 `Lawyers chose seven jurors to help decide the case against the former president, who is accused of falsifying business records to cover up a sexual scandal involving a porn star.`\
 https://nytimes.com/2024/04/16/nyregion/trump-trial-day-2-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/nyregion/robert-menendez-bribery-trial.html
 **What Modern Love Really Looks Like**\
 `Cupid’s arrow follows a new path.`\
 https://nytimes.com/interactive/2024/04/16/magazine/modern-love-cupids-arrow.html
-
-**How to Be Pro-Palestinian, Pro-Israeli and Pro-Iranian**\
-`Support leadership change in Iran, Israel and the Palestinian Authority. Without that, there’s zero chance for resolution.`\
-https://nytimes.com/2024/04/16/opinion/israel-iran-gaza.html
 
