@@ -1,3 +1,7 @@
+**Ken Holtzman, Who Pitched Two No-Hitters, Is Dead at 78**\
+`A left-hander, he was part of the Oakland A’s dynasty in the ’70s. He was also the winningest Jewish pitcher in Major League Baseball, with more victories than Sandy Koufax.`\
+https://nytimes.com/2024/04/16/sports/baseball/ken-holtzman-dead.html
+
 **The Met, Amid an Audit of its Holdings, Returns an Ancient Statue to Iraq**\
 `The museum said its enhanced effort to study the provenance of items in its collection had turned up evidence that the statue of a Sumerian man was the property of Iraq.`\
 https://nytimes.com/2024/04/16/arts/met-returns-iraq-statue.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/nyregion/trump-trial-day-2-takeaways.html
 **Justices Questioned a Law Used to Charge Jan. 6 Rioters**\
 `Also, the U.S. is planning new sanctions on Iran. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/04/16/briefing/supreme-court-jan-6-charges-us-iran-sanctions.html
-
-**Heavy Rainfall Kills 18 in Oman as Dubai Airport Floods**\
-`The United Arab Emirates had its largest rainfall event in 75 years as a year’s worth of rain fell in Dubai alone, temporarily halting flights. More rain is expected into Wednesday.`\
-https://nytimes.com/2024/04/16/world/middleeast/dubai-flooding-rain-oman.html
 
