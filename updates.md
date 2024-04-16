@@ -1,3 +1,19 @@
+**Here’s what happened on Day 1 of the trial.**\
+`By Kate Christobek`\
+https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/heres-what-happened-on-day-1-of-the-trial
+
+**I.M.F. Sees Steady Growth but Warns of Rising Protectionism**\
+`The International Monetary Fund offered an upbeat economic outlook but said that new trade barriers and escalating wars could worsen inflation.`\
+https://nytimes.com/2024/04/16/business/imf-global-economic-growth.html
+
+**The prosecution of a police officer, Joseph Fischer, led to this hearing.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/the-prosecution-of-a-police-officer-joseph-fischer-led-to-this-hearing
+
+**The Paris Olympics’ One Sure Thing: Cyberattacks**\
+`“We will be attacked,” the official responsible for fending off cyberthreats said. To prepare, organizers have been hosting war games and paying “bug bounties” to hackers.`\
+https://nytimes.com/2024/04/16/world/europe/paris-olympics-cyberattacks.html
+
 **Secret Rift Over Data Center Fueled Push to Expand Reach of Surveillance Program**\
 `Privacy advocates are raising alarms about a mysterious provision the House added to a surveillance bill last week. The Senate is likely to vote on the bill later this week.`\
 https://nytimes.com/2024/04/16/us/fisa-surveillance-bill-program.html
