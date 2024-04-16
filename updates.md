@@ -1,3 +1,7 @@
+**U.S. to Limit Deadly Mining Dust as Black Lung Resurges**\
+`Federal regulation capping toxic airborne silica has been decades in the making. The delay has cost miners dearly.`\
+https://nytimes.com/2024/04/16/us/coal-miners-black-lung-dust.html
+
 **Today’s Wordle Review**\
 `In case you need some puzzle help.`\
 https://nytimes.com/2024/04/16/crosswords/wordle-review.html
