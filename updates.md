@@ -1,3 +1,11 @@
+**A key question in the case: the meaning of ‘otherwise’**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/a-key-question-in-the-case-the-meaning-of-otherwise
+
+**At Passover, the Only Constant Is Changing Recipes**\
+`Joan Nathan, a doyenne of Jewish American cuisine, has long treasured the holiday and witnessed its evolution through food.`\
+https://nytimes.com/2024/04/16/dining/passover-memories-recipes.html
+
 **What does the law at issue in the case actually say?**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/what-does-the-law-at-issue-in-the-case-actually-say
