@@ -1,3 +1,7 @@
+**What does the law at issue in the case actually say?**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/what-does-the-law-at-issue-in-the-case-actually-say
+
 **The court’s decision could have a direct impact on Donald Trump.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/the-courts-decision-could-have-a-direct-impact-on-donald-trump
