@@ -1,3 +1,7 @@
+**Word of the Day: thoroughfare**\
+`This word has appeared in 104 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/16/learning/word-of-the-day-thoroughfare.html
+
 **Germany’s Leader Walks a Fine Line in China**\
 `Chancellor Olaf Scholz tried to promote German business interests while delivering warnings from Europe about trade and geopolitical tensions.`\
 https://nytimes.com/2024/04/16/world/asia/olaf-scholz-germany-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/us/politics/trump-biden-fundraising.html
 **China’s Economy, Propelled by Its Factories, Grew More Than Expected**\
 `China’s big bet on manufacturing helped to counteract its housing slowdown in the first three months of the year, but other countries are worried about a flood of Chinese goods.`\
 https://nytimes.com/2024/04/15/business/china-gdp-q1.html
-
-**One Under a Birdie**\
-`Adam Vincent keeps us young at heart.`\
-https://nytimes.com/2024/04/15/crosswords/daily-puzzle-2024-04-16.html
 
