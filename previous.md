@@ -1,3 +1,7 @@
+**Quotation of the Day: Deal’s Demise Gave Tehran Opportunity**\
+`Quotation of the Day for Tuesday, April 16, 2024.`\
+https://nytimes.com/2024/04/16/pageoneplus/quotation-of-the-day-deals-demise-gave-tehran-opportunity.html
+
 **In Australia, ‘Cats Are Just Catastrophic’**\
 `Feral cats take a heavy toll on the world’s wildlife, especially Down Under. The solution? Smarter traps, survival training for prey species, and the “Felixer.”`\
 https://nytimes.com/2024/04/16/science/australia-wildlife-cats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/business/boeing-787-dreamliner-safety-whistle-blo
 **Inside the Manhattan Courtroom at the Center of American Politics**\
 `Protesters railed outside, media and security swarmed the area, and inside the courtroom, Donald J. Trump appeared to nod off.`\
 https://nytimes.com/2024/04/15/nyregion/donald-trump-trial-courtroom.html
-
-**Audit Questions Purchase of $19,000 Lectern by Arkansas Governor’s Office**\
-`The legislative audit found several ways that the heavily scrutinized purchase potentially violated state law. Gov. Sarah Huckabee Sanders criticized the findings.`\
-https://nytimes.com/2024/04/15/us/arkansas-sanders-lectern-audit.html
 

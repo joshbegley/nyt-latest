@@ -1,3 +1,7 @@
+**Quotation of the Day: Deal’s Demise Gave Tehran Opportunity**\
+`Quotation of the Day for Tuesday, April 16, 2024.`\
+https://nytimes.com/2024/04/16/pageoneplus/quotation-of-the-day-deals-demise-gave-tehran-opportunity.html
+
 **In Australia, ‘Cats Are Just Catastrophic’**\
 `Feral cats take a heavy toll on the world’s wildlife, especially Down Under. The solution? Smarter traps, survival training for prey species, and the “Felixer.”`\
 https://nytimes.com/2024/04/16/science/australia-wildlife-cats.html
