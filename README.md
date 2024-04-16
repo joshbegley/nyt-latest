@@ -1,3 +1,7 @@
+**Whitey Herzog, Hall of Fame Cardinals Manager, Dies at 92**\
+`He won three pennants and a World Series as the St. Louis skipper, promoting what was called “Whiteyball,” combining speed, defense and pitching.`\
+https://nytimes.com/2024/04/16/sports/whitey-herzog-dead.html
+
 **Gains and Losses: Dr. Bob and the Realities of Aging**\
 `Responses to a front-page story about an aging doctor. Also: Donald Trump’s snooze in court; women vs. Trump; free speech’s limits; the gun show`\
 https://nytimes.com/2024/04/16/opinion/dr-bob-aging-biden-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/arts/music/la-scala-opera-italian-leader.html
 **The Assault on American Jews Is Getting Worse**\
 `A new survey shows a significant jump in antisemitic incidents.`\
 https://nytimes.com/live/2024/04/09/opinion/thepoint/antisemitism-usa-statistics
-
-**FKA twigs Dances Martha Graham: ‘This Is Art in Its Truest Form’**\
-`Once a young bunhead, the acclaimed musical artist is taking the stage with the Martha Graham Dance Company. For her, it’s holy grail territory.`\
-https://nytimes.com/2024/04/16/arts/dance/fka-twigs-martha-graham.html
 
