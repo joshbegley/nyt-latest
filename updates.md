@@ -1,3 +1,11 @@
+**Wednesday Briefing: China’s Economy Grew Faster Than Expected**\
+`Plus, Australia’s feral cat problem.`\
+https://nytimes.com/2024/04/16/briefing/china-economic-growth-iran-sanctions-trump-trial.html
+
+**Johnson’s Plan for Ukraine Aid Meets Republican Pushback, Muddying Its Path**\
+`The Republican speaker’s strategy for moving foreign aid measures for Israel and Ukraine through the House has outraged many in his own party, increasing calls for his ouster.`\
+https://nytimes.com/2024/04/16/us/politics/house-ukraine-israel-johnson.html
+
 **Will the French Olympic Team Be Best Dressed at the Opening Ceremony?**\
 `Carine Roitfeld teamed up with Berluti to sprinkle some fashion fairy dust on the designs. Here’s the verdict.`\
 https://nytimes.com/2024/04/16/style/lvmh-berluti-french-olympic-opening-ceremony-outfits.html
