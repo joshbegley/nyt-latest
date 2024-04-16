@@ -1,3 +1,7 @@
+**Trump, Trailing Biden in Cash, Relies on Big Donors to Try to Catch Up**\
+`Major Republican donors have begun to open their checkbooks for Donald Trump now that he is the presumptive nominee, as he struggles to keep pace with President Biden.`\
+https://nytimes.com/2024/04/15/us/politics/trump-biden-fundraising.html
+
 **China’s Economy, Propelled by Its Factories, Grew More Than Expected**\
 `China’s big bet on manufacturing helped to counteract its housing slowdown in the first three months of the year, but other countries are worried about a flood of Chinese goods.`\
 https://nytimes.com/2024/04/15/business/china-gdp-q1.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/us/lake-mead-rock-formations-damage.html
 **Israeli Civilians Kill Two Palestinian Men in the West Bank, Officials Say**\
 `The Israeli military said the men were killed during a “violent exchange” that followed a report of a Palestinian attacking an Israeli shepherd.`\
 https://nytimes.com/2024/04/15/world/middleeast/palestinian-men-killed-israel-west-bank.html
-
-**Johnson Says House Will Vote on Stalled Aid to Israel and Ukraine**\
-`The speaker, who has delayed for months amid G.O.P. opposition to funding for Kyiv, said he would bring up foreign aid legislation along with a bill aimed at appeasing Republican skeptics.`\
-https://nytimes.com/2024/04/15/us/politics/johnson-israel-ukraine-aid-house-vote.html
 
