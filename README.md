@@ -1,3 +1,11 @@
+**Day 2 of Trump’s Criminal Trial: Five Takeaways**\
+`Lawyers chose seven jurors to help decide the case against the former president, who is accused of falsifying business records to cover up a sexual scandal involving a porn star.`\
+https://nytimes.com/2024/04/16/nyregion/trump-trial-day-2-takeaways.html
+
+**Justices Questioned a Law Used to Charge Jan. 6 Rioters**\
+`Also, the U.S. is planning new sanctions on Iran. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/04/16/briefing/supreme-court-jan-6-charges-us-iran-sanctions.html
+
 **Heavy Rainfall Kills 18 in Oman as Dubai Airport Floods**\
 `The United Arab Emirates had its largest rainfall event in 75 years as a year’s worth of rain fell in Dubai alone, temporarily halting flights. More rain is expected into Wednesday.`\
 https://nytimes.com/2024/04/16/world/middleeast/dubai-flooding-rain-oman.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/04/16/magazine/modern-love-cupids-arrow.htm
 **How to Be Pro-Palestinian, Pro-Israeli and Pro-Iranian**\
 `Support leadership change in Iran, Israel and the Palestinian Authority. Without that, there’s zero chance for resolution.`\
 https://nytimes.com/2024/04/16/opinion/israel-iran-gaza.html
-
-**In Milan, a Party With T-Shaped Ice Cubes, Balloons and Pasta**\
-`To toast the Salone del Mobile and the 20th anniversary of T Magazine, the designer Ramdane Touhami transformed the Villa Necchi Campiglio into an ode to the letter T.`\
-https://nytimes.com/2024/04/16/t-magazine/salone-del-mobile-20th-anniversary-party-milan.html
-
-**Guests at T Magazine’s Salone del Mobile Party**\
-`On their way into T’s 20th anniversary celebration in Milan, attendees posed at a colorful installation.`\
-https://nytimes.com/slideshow/2024/04/16/t-magazine/guests-at-t-magazines-salone-del-mobile-party.html
 
