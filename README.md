@@ -1,40 +1,40 @@
+**What No One Seems to Know About Honking in New York**\
+`Honking takes its toll on New Yorkers, and it doesn’t have to be this way.`\
+https://nytimes.com/2024/04/16/nyregion/what-no-one-seems-to-know-about-honking-in-new-york.html
+
+**What Sign, Symbol or Emoji Best Represents Your Generation?**\
+`And what does it say about you and your peers — your experiences, your interests, your hopes and your worries?`\
+https://nytimes.com/2024/04/16/learning/what-sign-symbol-or-emoji-best-represents-your-generation.html
+
+**Supreme Court’s Review of Jan. 6 Charge Has Already Freed Some Rioters**\
+`Federal judges have agreed to release about 10 defendants who were serving prison terms because of their convictions under an obstruction law.`\
+https://nytimes.com/2024/04/16/us/politics/supreme-court-jan-6-obstruction.html
+
+**Criminalizing Homelessness Won’t Make It Go Away**\
+`Hundreds of thousands of people are homeless. This filmmaker wants you to see them.`\
+https://nytimes.com/2024/04/16/opinion/supreme-court-johnson-case.html
+
+**‘Shogun’ Episode 9 Recap: an Army of One**\
+`Lady Mariko is bound to her orders, which force the hand of Lord Ishido of Lady Ochiba.`\
+https://nytimes.com/2024/04/16/arts/television/shogun-episode-9-recap-crimson-sky.html
+
+**When a Family’s Dysfunction Mirrors a Nation’s**\
+`“Crooked Seeds,” by Karen Jennings, is set in a drought-stricken South Africa where its fraught history is ever-present.`\
+https://nytimes.com/2024/04/16/books/review/karen-jennings-crooked-seeds.html
+
+**A Tale of Four Troubled and Talented Sisters, Told With Irish Flair**\
+`There’s more than blarney in Caoilinn Hughes’s riotous, ambitiously structured new novel.`\
+https://nytimes.com/2024/04/16/books/review/the-alternatives-caoilinn-hughes.html
+
+**Parenting in a Pandemic, and Other Tales of Woe**\
+`Gillian Linden’s slim debut novel, “Negative Space,” explores the being and nothingness of modern motherhood.`\
+https://nytimes.com/2024/04/16/books/review/negative-space-gillian-linden.html
+
+**How to Turn a Bike Ride Into a Bike Workout**\
+`Cycling isn’t just fun. It can also deliver big fitness gains with the right gear and strategy.`\
+https://nytimes.com/2024/04/16/well/move/outdoor-cycling-workout.html
+
 **Criminalizing Homelessness Won’t Make It Go Away**\
 `Hundreds of thousands of people are homeless. This filmmaker wants you to see them.`\
 https://nytimes.com/video/opinion/100000009396791/supreme-court-grants-pass-johnson-case.html
-
-**Salt**\
-`Are you consuming too much?`\
-https://nytimes.com/2024/04/16/learning/salt.html
-
-**Columbia President Is Next to Be Grilled About Antisemitism by Congress**\
-`Columbia University’s president, Nemat Shafik, will speak to the same congressional committee before which the Harvard and University of Pennsylvania presidents stumbled.`\
-https://nytimes.com/2024/04/16/nyregion/columbia-university-congress-antisemitism-hearing.html
-
-**The Connections Companion No. 310**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/16/crosswords/connections-companion.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/16/crosswords/spelling-bee-forum.html
-
-**Israeli Artist Shuts Venice Biennale Exhibit, Calls for Cease-Fire in Gaza**\
-`Ruth Patir, Israel’s representative at the event, says she won’t open her show in the national pavilion until Israel and Hamas reach “a cease-fire and hostage release agreement.”`\
-https://nytimes.com/2024/04/16/arts/design/israel-pavilion-venice-biennale.html
-
-**Late Night Savors Day One of the Trump Trial**\
-`After the ex-president seemed to fall asleep in court, Jimmy Kimmel said it was “nice to see even Donald Trump is exhausted by Donald Trump.”`\
-https://nytimes.com/2024/04/16/arts/television/jimmy-kimmel-trump-manhattan-trial.html
-
-**Word of the Day: thoroughfare**\
-`This word has appeared in 104 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/04/16/learning/word-of-the-day-thoroughfare.html
-
-**Germany’s Leader Walks a Fine Line in China**\
-`Chancellor Olaf Scholz tried to promote German business interests while delivering warnings from Europe about trade and geopolitical tensions.`\
-https://nytimes.com/2024/04/16/world/asia/olaf-scholz-germany-china.html
-
-**Corrections: April 16, 2024**\
-`Corrections that appeared in print on Tuesday, April 16, 2024.`\
-https://nytimes.com/2024/04/16/pageoneplus/corrections-april-16-2024.html
 
