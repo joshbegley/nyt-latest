@@ -1,3 +1,7 @@
+**What does the law at issue in the case actually say?**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/what-does-the-law-at-issue-in-the-case-actually-say
+
 **The court’s decision could have a direct impact on Donald Trump.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/the-courts-decision-could-have-a-direct-impact-on-donald-trump
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/us/fisa-surveillance-bill-program.html
 **Caitlin Clark and the Best-Dressed at the W.N.B.A. Draft**\
 `The next class of basketball stars are ready for their close-ups. Finally, fashion is paying attention.`\
 https://nytimes.com/2024/04/16/style/wnba-draft-caitlin-clark-angel-reese.html
-
-**Long Dismissed, the Beatles’ ‘Let It Be’ Film Returns After 54 Years**\
-`Michael Lindsay-Hogg’s unloved — or misinterpreted? — 1970 documentary, the source for Peter Jackson’s “Get Back,” will stream on Disney+.`\
-https://nytimes.com/2024/04/16/movies/disney-beatles-let-it-be-movie.html
 
