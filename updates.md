@@ -1,3 +1,11 @@
+**How A.I.’s Insatiable Appetite for Data Became a Problem**\
+`A Times investigation found that tech giants altered their own rules to train their newest artificial intelligence systems.`\
+https://nytimes.com/2024/04/16/podcasts/the-daily/ai-data.html
+
+**Supreme Court to Hear Jan. 6 Case, and Trump’s Criminal Trial**\
+`Plus, NASA’s “Hail Mary.”`\
+https://nytimes.com/2024/04/16/podcasts/january-6-trump-trial.html
+
 **As Israel weighs its options against Iran, diplomats push to ease tensions.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/as-israel-weighs-its-options-against-iran-diplomats-push-to-ease-tensions
