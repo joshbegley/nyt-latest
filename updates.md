@@ -1,3 +1,11 @@
+**Carl Erskine, a Star Pitcher of the Dodgers’ Glory Years, Is Dead at 97**\
+`The record-setting pitcher known as Oisk in Brooklyn was the last surviving member of “The Boys of Summer.”`\
+https://nytimes.com/2024/04/16/obituaries/carl-erskine-dead.html
+
+**House Delivers Impeachment Articles Against Mayorkas, Calling for a Trial**\
+`Republicans are demanding a full trial of the homeland security secretary, but Democrats have made it clear they will try to dismiss the charges quickly and with little fanfare.`\
+https://nytimes.com/2024/04/16/us/politics/mayorkas-impeachment-house-senate.html
+
 **Fairness, a Trump Obsession, Is Central to Jury Selection in His Trial**\
 `The laborious process of selecting the people who will decide Donald J. Trump’s fate hinges on whether they can judge him impartially.`\
 https://nytimes.com/2024/04/16/nyregion/trump-jury-selection-fairness.html
