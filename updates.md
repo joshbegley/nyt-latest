@@ -1,3 +1,15 @@
+**Biden Bashes Trump as a Pawn of Billionaires as He Lays Out His Tax Plan**\
+`Speaking in Scranton, Pa., his hometown, the president used a speech about economic fairness as a new avenue of attack against his Republican rival, who was in a courtroom two hours away.`\
+https://nytimes.com/2024/04/16/us/politics/biden-trump-tax-scranton-pa.html
+
+**High Winds Scuttle Burning of Snowman in Zurich, Disappointing the Swiss**\
+`The burning of the effigy known as the Böögg is the finale of Sechseläuten, an annual spring festival akin to Groundhog Day. The normally stoic Swiss wallowed in disappointment.`\
+https://nytimes.com/2024/04/16/world/europe/zurich-snowman-switzerland.html
+
+**E.U. ministers discuss expanding sanctions against Iran’s weapons program.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/eu-ministers-discuss-expanding-sanctions-against-irans-weapons-program
+
 **Americans Are More Vulnerable to Foreign Propaganda, Senator Warns**\
 `Senator Mark Warner, the chairman of the Intelligence Committee, said the United States was more susceptible to Russian influence operations than it was during the 2020 elections.`\
 https://nytimes.com/2024/04/16/us/politics/election-interference-russia-warner.html

@@ -1,3 +1,15 @@
+**Biden Bashes Trump as a Pawn of Billionaires as He Lays Out His Tax Plan**\
+`Speaking in Scranton, Pa., his hometown, the president used a speech about economic fairness as a new avenue of attack against his Republican rival, who was in a courtroom two hours away.`\
+https://nytimes.com/2024/04/16/us/politics/biden-trump-tax-scranton-pa.html
+
+**High Winds Scuttle Burning of Snowman in Zurich, Disappointing the Swiss**\
+`The burning of the effigy known as the Böögg is the finale of Sechseläuten, an annual spring festival akin to Groundhog Day. The normally stoic Swiss wallowed in disappointment.`\
+https://nytimes.com/2024/04/16/world/europe/zurich-snowman-switzerland.html
+
+**E.U. ministers discuss expanding sanctions against Iran’s weapons program.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/eu-ministers-discuss-expanding-sanctions-against-irans-weapons-program
+
 **Americans Are More Vulnerable to Foreign Propaganda, Senator Warns**\
 `Senator Mark Warner, the chairman of the Intelligence Committee, said the United States was more susceptible to Russian influence operations than it was during the 2020 elections.`\
 https://nytimes.com/2024/04/16/us/politics/election-interference-russia-warner.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/16/style/we-are-so-back-meme.html
 **Mayor in Brussels Tries to Shut Down Conservative Conference**\
 `Mayor Emir Kir gave no explanation of why he thought it necessary to try to stop the gathering from taking place, other than saying he wanted to “guarantee public safety.”`\
 https://nytimes.com/2024/04/16/world/europe/brussels-conversative-conference-emir-kir.html
-
-**A Wealthy Democratic Representative Is Among Top Self-Funders in Senate Primary History**\
-`Representative David Trone of Maryland was spending millions from his personal fortune even before his recent use of a racial slur drew criticism.`\
-https://nytimes.com/2024/04/16/us/politics/david-trone-maryland-senate-money.html
-
-**Tiny Love Stories: ‘The One-Liners Kept Coming’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/04/16/style/tiny-love-modern-love-stories-the-one-liners-kept-coming.html
-
-**Carl Erskine, a Star Pitcher of the Dodgers’ Glory Years, Is Dead at 97**\
-`The record-setting pitcher known as Oisk in Brooklyn was the last surviving member of “The Boys of Summer.”`\
-https://nytimes.com/2024/04/16/obituaries/carl-erskine-dead.html
 
