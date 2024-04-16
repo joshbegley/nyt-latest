@@ -1,3 +1,7 @@
+**Here’s what happened on Day 1 of the trial.**\
+`By Kate Christobek`\
+https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/heres-what-happened-on-day-1-of-the-trial
+
 **I.M.F. Sees Steady Growth but Warns of Rising Protectionism**\
 `The International Monetary Fund offered an upbeat economic outlook but said that new trade barriers and escalating wars could worsen inflation.`\
 https://nytimes.com/2024/04/16/business/imf-global-economic-growth.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/an-accounting-scandal
 **16scotus-obstruction**\
 `Live Updates: Justices to Hear Obstruction Case That Could Bar Charges Against Trump`\
 https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6
-
-**U.S. to Limit Deadly Mining Dust as Black Lung Resurges**\
-`Federal regulation capping toxic airborne silica has been decades in the making. The delay has cost miners dearly.`\
-https://nytimes.com/2024/04/16/us/coal-miners-black-lung-dust.html
 
