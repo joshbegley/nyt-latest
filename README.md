@@ -1,6 +1,6 @@
-**The Jury Questionnaire for Trump’s Criminal Trial in Manhattan**\
+**Read the Jury Questionnaire for Trump’s Criminal Trial in Manhattan**\
 `Here are the 42 questions prospective jurors are being asked to eventually identify a group of 12 to sit on the jury.`\
-https://nytimes.com/interactive/2024/04/16/nyregion/trump-hush-money-jury-questions.html
+https://nytimes.com/interactive/2024/04/16/nyregion/Trump-Jury-Questions.html
 
 **The U.S. is also looking to cut off Iran’s access to military components.**\
 `The U.S. treasury secretary, Janet Yellen, said that sanctions could be announced ‘in the coming days’ and would likely focus on oil exports and imports of military hardware.`\
