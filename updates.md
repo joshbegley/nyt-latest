@@ -1,3 +1,15 @@
+**The accusations against Trump: salacious details and mundane paperwork.**\
+`By Ben Protess, Kate Christobek and Jonah E. Bromwich`\
+https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/the-accusations-against-trump-salacious-details-and-mundane-paperwork
+
+**Has Tesla Peaked?**\
+`And what would that mean for the climate?`\
+https://nytimes.com/2024/04/16/climate/has-tesla-peaked.html
+
+**U.S.C. Cancels Valedictorian’s Speech After Jewish Groups Object**\
+`The university cited security concerns at the graduation. But the student, who is Muslim, said the school was “succumbing to a campaign of hate meant to silence my voice.”`\
+https://nytimes.com/2024/04/16/us/usc-valedictorian-speech-gaza-war.html
+
 **These Are the 42 Questions Prospective Trump Jurors Are Being Asked**\
 `Once they are chosen, jurors will be asked to decide whether Donald J. Trump falsified business records to cover up a sex scandal. But first they must answer these questions.`\
 https://nytimes.com/2024/04/16/nyregion/trump-hush-money-jury-questions.html
