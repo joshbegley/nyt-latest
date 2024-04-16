@@ -1,3 +1,11 @@
+**Trump’s Plan to Expose the Secret Bias of Jurors Isn’t Working**\
+`The court managed to seat six jurors Tuesday, but the Trump team didn’t make it easy.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-jury-selection
+
+**Biden Digs at Trump During His Pennsylvania Hometown Visit**\
+`In a speech about his tax plan, President Biden compared Scranton, Pa., to Trump’s Mar-a-Lago to highlight the different economic and social values between America’s middle class and its wealthy.`\
+https://nytimes.com/video/us/politics/100000009417913/biden-trump-scranton-taxes.html
+
 **A Quiet Sunday Night in Syracuse, and Then a Deadly Ambush**\
 `A routine traffic stop led to the deaths of a police officer and a sheriff’s deputy in a shooting outside a suburban home. The gunman was also killed.`\
 https://nytimes.com/2024/04/16/nyregion/syracuse-police-shooting-ny.html
