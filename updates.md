@@ -1,3 +1,7 @@
+**Buttigieg Teams Up With State Attorneys General to Investigate Airline Complaints**\
+`Transportation Secretary Pete Buttigieg announced a new partnership with more than a dozen state attorneys general that aims to improve protections for air travelers.`\
+https://nytimes.com/2024/04/16/us/politics/buttigieg-airline-complaints.html
+
 **After 5,631 Yankees Games, John Sterling Calls His Own Walk-Off**\
 `The WFAN announcer was known for his catchphrase, “It is high! It is far! It is gone!” His last game was on Monday.`\
 https://nytimes.com/2024/04/16/nyregion/john-sterling-yankees-announcer.html

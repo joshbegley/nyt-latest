@@ -1,3 +1,7 @@
+**Buttigieg Teams Up With State Attorneys General to Investigate Airline Complaints**\
+`Transportation Secretary Pete Buttigieg announced a new partnership with more than a dozen state attorneys general that aims to improve protections for air travelers.`\
+https://nytimes.com/2024/04/16/us/politics/buttigieg-airline-complaints.html
+
 **After 5,631 Yankees Games, John Sterling Calls His Own Walk-Off**\
 `The WFAN announcer was known for his catchphrase, “It is high! It is far! It is gone!” His last game was on Monday.`\
 https://nytimes.com/2024/04/16/nyregion/john-sterling-yankees-announcer.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/israeli-stri
 **Mayor Adams Pushes to Hire Ex-Giuliani Deputy as New York’s Top Lawyer**\
 `Mayor Eric Adams, who is facing a cluster of legal challenges, is moving to hire Randy Mastro, known for his aggressive tactics.`\
 https://nytimes.com/2024/04/16/nyregion/randy-mastro-adams-lawyer.html
-
-**Flash Floods Swamp Dubai**\
-`The desert city was overwhelmed by a torrential downpour that dumped a year’s worth of rain in less than a day.`\
-https://nytimes.com/video/world/middleeast/100000009417819/dubai-flash-floods.html
 
