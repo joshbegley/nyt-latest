@@ -1,3 +1,5 @@
+**Martha Stewart Has ‘Never-Ending Curiosity’ (And a Few Regrets.)**\
+
 **Will a Housing Deal Make New York More Affordable?**\
 `New York leaders agreed to a framework designed to help the state build more housing and keep prices down. Here is how it could work.`\
 https://nytimes.com/2024/04/16/nyregion/housing-deal-affordability-hochul-legislature.html
