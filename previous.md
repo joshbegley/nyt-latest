@@ -1,4 +1,4 @@
-**How A.I.’s Insatiable Appetite for Data Became a Problem**\
+**A.I.’s Original Sin**\
 `A Times investigation found that tech giants altered their own rules to train their newest artificial intelligence systems.`\
 https://nytimes.com/2024/04/16/podcasts/the-daily/ai-data.html
 
