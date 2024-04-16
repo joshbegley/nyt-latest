@@ -1,3 +1,11 @@
+**Read the Jury Questionnaire for Trump’s Criminal Trial in Manhattan**\
+`Here are the 42 questions prospective jurors are being asked to eventually identify a group of 12 to sit on the jury.`\
+https://nytimes.com/interactive/2024/04/16/nyregion/Trump-Jury-Questions.html
+
+**The U.S. is also looking to cut off Iran’s access to military components.**\
+`The U.S. treasury secretary, Janet Yellen, said that sanctions could be announced ‘in the coming days’ and would likely focus on oil exports and imports of military hardware.`\
+https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/the-us-is-also-looking-to-cut-off-irans-access-to-military-components
+
 **Comet Pons-Brooks Is Having Its Last Hurrah**\
 `Soon, this devil-horned comet won’t be visible for another seven decades.`\
 https://nytimes.com/2024/04/16/science/comet-pons-brooks.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/16/business/media/npr-suspends-business-editor.html
 **Transcript: Ezra Klein Interviews Jerusalem Demsas**\
 `The April 16, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/04/16/podcasts/transcript-ezra-klein-interviews-jerusalem-demsas.html
-
-**Trump allies are using this case to try to reframe the Jan. 6 attack.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/trump-allies-are-using-this-case-to-try-to-reframe-the-jan-6-attack
-
-**Israeli forces carry out raids and arrests in northern Gaza, residents say.**\
-`By Hiba Yazbek and Iyad Abuheweila`\
-https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/israeli-forces-carry-out-raids-and-arrests-in-northern-gaza-residents-say
 
