@@ -2,7 +2,7 @@
 `On Long Island’s East End, where many residents retreat to lavish second homes, some day laborers who can’t afford a bed are living in outdoor encampments.`\
 https://nytimes.com/2024/04/16/insider/in-the-hamptons-a-grim-paradox-revealed.html
 
-**How a Quiet Sunday Night in Syracuse Descended Into Carnage**\
+**A Quiet Sunday Night in Syracuse, and Then a Deadly Ambush**\
 `A routine traffic stop led to the deaths of a police officer and a sheriff’s deputy in a shooting outside a suburban home. The gunman was also killed.`\
 https://nytimes.com/2024/04/16/nyregion/syracuse-police-shooting-ny.html
 
