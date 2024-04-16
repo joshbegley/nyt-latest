@@ -1,3 +1,11 @@
+**Carl Erskine, a Star Pitcher of the Dodgers’ Glory Years, Is Dead at 97**\
+`The record-setting pitcher known as Oisk in Brooklyn was the last surviving member of “The Boys of Summer.”`\
+https://nytimes.com/2024/04/16/obituaries/carl-erskine-dead.html
+
+**House Delivers Impeachment Articles Against Mayorkas, Calling for a Trial**\
+`Republicans are demanding a full trial of the homeland security secretary, but Democrats have made it clear they will try to dismiss the charges quickly and with little fanfare.`\
+https://nytimes.com/2024/04/16/us/politics/mayorkas-impeachment-house-senate.html
+
 **Smartmatic and OAN Settle Defamation Suit**\
 `Smartmatic, an elections technology company, had accused the conservative broadcaster of amplifying baseless claims about election fraud.`\
 https://nytimes.com/2024/04/16/business/media/smartmatic-oan-settle-defamation-suit.html
