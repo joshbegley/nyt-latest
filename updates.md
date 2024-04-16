@@ -1,3 +1,7 @@
+**Caitlin Clark and the Best-Dressed at the W.N.B.A. Draft**\
+`The next class of basketball stars are ready for their close-ups. Finally, fashion is paying attention.`\
+https://nytimes.com/2024/04/16/style/caitlin-clark-best-dressed-wnba-draft.html
+
 **16trump-trial**\
 `Live Updates: Trump’s Criminal Trial to Resume With More Jury Selection`\
 https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial
