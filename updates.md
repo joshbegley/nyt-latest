@@ -1,3 +1,7 @@
+**Supreme Court to Hear Jan. 6 Case, and Trump’s Criminal Trial Gets Underway**\
+`Plus, NASA’s “Hail Mary.”`\
+https://nytimes.com/2024/04/16/podcasts/january-6-trump-trial.html
+
 **How A.I.’s Insatiable Appetite for Data Became a Problem**\
 `A Times investigation found that tech giants altered their own rules to train their newest artificial intelligence systems.`\
 https://nytimes.com/2024/04/16/podcasts/the-daily/ai-data.html
