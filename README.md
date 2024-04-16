@@ -22,8 +22,8 @@ https://nytimes.com/2024/04/16/us/politics/trump-jan-6-case-obstruction.html
 `Oklahoma-style onion burgers are the rage this year. At George Motz’s new SoHo restaurant, they reach their drippy peak.`\
 https://nytimes.com/2024/04/16/dining/hamburger-america.html
 
-**4 People Are Charged in the Disappearance of 2 Kansas Women**\
-`The four people arrested on murder and kidnapping charges on Saturday were from Oklahoma and were members of an anti-government group called God’s Misfits.`\
+**4 in ‘God’s Misfits’ Group Charged in Disappearance of 2 Kansas Women**\
+`The four arrested on murder and kidnapping charges were from Oklahoma and, according to a relative, were members of an anti-government group by that name, the authorities said.`\
 https://nytimes.com/2024/04/16/us/kansas-women-killed-oklahoma.html
 
 **U.S. Lays Out Protections for Assange if He Is Extradited**\
