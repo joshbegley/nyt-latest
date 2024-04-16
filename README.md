@@ -1,3 +1,7 @@
+**What Modern Love Really Looks Like**\
+`Cupid’s arrow follows a new path.`\
+https://nytimes.com/interactive/2024/04/16/magazine/modern-love-cupids-arrow.html
+
 **How to Be Pro-Palestinian, Pro-Israeli and Pro-Iranian**\
 `Support leadership change in Iran, Israel and the Palestinian Authority. Without that, there’s zero chance for resolution.`\
 https://nytimes.com/2024/04/16/opinion/israel-iran-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/nyregion/trump-hush-money-case-jurors.html
 **Biden Bashes Trump as a Pawn of Billionaires as He Lays Out His Tax Plan**\
 `Speaking in Scranton, Pa., his hometown, the president used a speech about economic fairness as a new avenue of attack against his Republican rival, who was in a courtroom two hours away.`\
 https://nytimes.com/2024/04/16/us/politics/biden-trump-tax-scranton-pa.html
-
-**High Winds Scuttle Burning of Snowman in Zurich, Disappointing the Swiss**\
-`The burning of the effigy known as the Böögg is the finale of Sechseläuten, an annual spring festival akin to Groundhog Day. The normally stoic Swiss wallowed in disappointment.`\
-https://nytimes.com/2024/04/16/world/europe/zurich-snowman-switzerland.html
 
