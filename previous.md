@@ -1,40 +1,40 @@
-**What No One Seems to Know About Honking in New York**\
-`Honking takes its toll on New Yorkers, and it doesn’t have to be this way.`\
-https://nytimes.com/2024/04/16/nyregion/what-no-one-seems-to-know-about-honking-in-new-york.html
+**The Smothering of Abortion Rights Reveals Something Else About Republicans**\
+`Both the federal and the Arizona Supreme Courts have conjured a past that rejects the right to bodily autonomy.`\
+https://nytimes.com/2024/04/16/opinion/arizona-abortion-supreme-court.html
 
-**What Sign, Symbol or Emoji Best Represents Your Generation?**\
-`And what does it say about you and your peers — your experiences, your interests, your hopes and your worries?`\
-https://nytimes.com/2024/04/16/learning/what-sign-symbol-or-emoji-best-represents-your-generation.html
+**Justices to Hear Obstruction Case That Could Bar Charges Against Trump**\
+`The question for the Supreme Court is whether a 2002 law prompted by white-collar fraud applies to the obstruction of the congressional proceeding on Jan. 6, 2021.`\
+https://nytimes.com/2024/04/16/us/supreme-court-jan-6-trump.html
 
-**Supreme Court’s Review of Jan. 6 Charge Has Already Freed Some Rioters**\
-`Federal judges have agreed to release about 10 defendants who were serving prison terms because of their convictions under an obstruction law.`\
-https://nytimes.com/2024/04/16/us/politics/supreme-court-jan-6-obstruction.html
+**Trump Courts the Chaos He Promises to Tame**\
+`At rallies, he does alt-universe loops in which he suggests that if the election hadn’t been taken from him, nothing bad would have befallen the world.`\
+https://nytimes.com/2024/04/16/opinion/trump-chaos-foreign-policy.html
 
-**Criminalizing Homelessness Won’t Make It Go Away**\
-`Hundreds of thousands of people are homeless. This filmmaker wants you to see them.`\
-https://nytimes.com/2024/04/16/opinion/supreme-court-johnson-case.html
+**For Israel’s Allies, Iranian Missile Strike Scrambles Debate Over Gaza**\
+`Israel’s restless allies have voiced anger over the death toll in Gaza, but when their archnemesis launched a missile barrage, they set it aside. At least for the moment.`\
+https://nytimes.com/2024/04/16/world/middleeast/israel-iran-allies.html
 
-**‘Shogun’ Episode 9 Recap: an Army of One**\
-`Lady Mariko is bound to her orders, which force the hand of Lord Ishido of Lady Ochiba.`\
-https://nytimes.com/2024/04/16/arts/television/shogun-episode-9-recap-crimson-sky.html
+**In ‘Knife,’ Salman Rushdie Recounts His Brush With Death**\
+`Our reporter on the author’s new memoir.`\
+https://nytimes.com/2024/04/16/podcasts/in-knife-salman-rushdie-recounts-his-brush-with-death.html
 
-**When a Family’s Dysfunction Mirrors a Nation’s**\
-`“Crooked Seeds,” by Karen Jennings, is set in a drought-stricken South Africa where its fraught history is ever-present.`\
-https://nytimes.com/2024/04/16/books/review/karen-jennings-crooked-seeds.html
+**New York’s Flawed Housing Deal Still Deserves Approval**\
+`By Mara Gay`\
+https://nytimes.com/live/2024/04/09/opinion/thepoint/new-yorks-flawed-housing-deal-still-deserves-approval
 
-**A Tale of Four Troubled and Talented Sisters, Told With Irish Flair**\
-`There’s more than blarney in Caoilinn Hughes’s riotous, ambitiously structured new novel.`\
-https://nytimes.com/2024/04/16/books/review/the-alternatives-caoilinn-hughes.html
+**Why It’s So Hard to Build in Liberal States**\
+`Jerusalem Demsas discusses the red tape that makes it difficult for blue states to achieve ambitious infrastructure and policy goals.`\
+https://nytimes.com/2024/04/16/opinion/ezra-klein-podcast-jerusalem-demsas.html
 
-**Parenting in a Pandemic, and Other Tales of Woe**\
-`Gillian Linden’s slim debut novel, “Negative Space,” explores the being and nothingness of modern motherhood.`\
-https://nytimes.com/2024/04/16/books/review/negative-space-gillian-linden.html
+**Why Biden Has a Narrower Path to the Presidency Than Trump, in 11 Maps**\
+`How the 2024 Electoral College map favors Donald Trump.`\
+https://nytimes.com/interactive/2024/04/16/opinion/electoral-map-outlook.html
 
-**How to Turn a Bike Ride Into a Bike Workout**\
-`Cycling isn’t just fun. It can also deliver big fitness gains with the right gear and strategy.`\
-https://nytimes.com/2024/04/16/well/move/outdoor-cycling-workout.html
+**Ukraine’s Big Vulnerabilities: Ammunition, Soldiers and Air Defense**\
+`The shortages add up to a dire situation for Ukraine in the third year of the war, presenting commanders with near impossible choices on how to deploy limited resources.`\
+https://nytimes.com/2024/04/16/world/europe/ukraine-war-weapons.html
 
-**Criminalizing Homelessness Won’t Make It Go Away**\
-`Hundreds of thousands of people are homeless. This filmmaker wants you to see them.`\
-https://nytimes.com/video/opinion/100000009396791/supreme-court-grants-pass-johnson-case.html
+**Biden Heads to Pennsylvania to Talk Taxes and Hit Trump**\
+`In Scranton, his hometown, the president is expected to discuss the tax code in terms of economic fairness, arguing that Donald Trump’s tax cuts benefited billionaires.`\
+https://nytimes.com/2024/04/16/us/politics/biden-pennsylvania-trump.html
 
