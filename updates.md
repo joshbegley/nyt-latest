@@ -1,3 +1,7 @@
+**For Postpartum and Pregnancy Care, One Brand Turns to a Porn Star**\
+`The mother and baby care brand Frida is working with Asa Akira, a well-known porn actress, to create educational videos about its products.`\
+https://nytimes.com/2024/04/16/well/live/frida-asa-akira-baby-brand.html
+
 **Did Three African Runners Let a Chinese Runner Win a Race in Beijing?**\
 `Organizers are investigating the results of the Beijing Half Marathon, after three runners from Kenya and Ethiopia appeared to wave a Chinese competitor past them before the finish.`\
 https://nytimes.com/2024/04/16/sports/beijing-half-marathon-controversy-he-jie.html

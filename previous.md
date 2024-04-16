@@ -1,3 +1,7 @@
+**For Postpartum and Pregnancy Care, One Brand Turns to a Porn Star**\
+`The mother and baby care brand Frida is working with Asa Akira, a well-known porn actress, to create educational videos about its products.`\
+https://nytimes.com/2024/04/16/well/live/frida-asa-akira-baby-brand.html
+
 **Did Three African Runners Let a Chinese Runner Win a Race in Beijing?**\
 `Organizers are investigating the results of the Beijing Half Marathon, after three runners from Kenya and Ethiopia appeared to wave a Chinese competitor past them before the finish.`\
 https://nytimes.com/2024/04/16/sports/beijing-half-marathon-controversy-he-jie.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/what-does-it-mean-to-
 **Kisa Brings South Korean Roadside Fare to the Lower East Side**\
 `Rosemary’s offers pizza and a family-style meal in Midtown, the owners of Oxalis open Laurel Bakery in the Columbia Street waterfront district, Brooklyn, and more restaurant news.`\
 https://nytimes.com/2024/04/16/dining/nyc-restaurant-news.html
-
-**As Trump Runs in 2024, His 2016 Tactics Are on Trial**\
-`Prosecutors in Donald J. Trump’s criminal trial secured permission from the judge to admit evidence connected to his overall political strategy in 2016, bolstering their case.`\
-https://nytimes.com/2024/04/16/nyregion/trump-trial-tactics.html
 
