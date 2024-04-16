@@ -1,3 +1,11 @@
+**Capitol Attack Prosecutions Have Ensnared Over 1,380 People**\
+`Prosecutors have suggested that a total of 2,000 or 2,500 people could ultimately face indictment for their roles in the attack.`\
+https://nytimes.com/2024/04/16/us/politics/jan-6-supreme-court-prosecutions.html
+
+**This is what happened on Day 1 of the trial.**\
+`By Kate Christobek`\
+https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/heres-what-happened-on-day-1-of-the-trial
+
 **U.S. to Limit Deadly Mining Dust as Black Lung Resurges**\
 `Federal regulation capping toxic airborne silica has been decades in the making. The delay has cost miners dearly.`\
 https://nytimes.com/2024/04/16/us/coal-miners-black-lung-dust.html
