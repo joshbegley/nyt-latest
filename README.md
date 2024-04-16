@@ -1,7 +1,3 @@
-**Interior Said to Reject Industrial Road Through Alaskan Wilderness**\
-`A mining company wants to build a 211-mile industrial road through Alaskan wilderness to reach a large copper deposit. The Interior Department says it would harm wildlife and communities.`\
-https://nytimes.com/2024/04/16/climate/ambler-road-alaska-interior.html
-
 **Wednesday Briefing: China’s Economy Grew Faster Than Expected**\
 `Plus, Australia’s feral cat problem.`\
 https://nytimes.com/2024/04/16/briefing/china-economic-growth-iran-sanctions-trump-trial.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/04/16/us/politics/election-interference-russia-warner.h
 **Trump’s Jan. 6 Case Could Go On Even if Court Limits Use of Obstruction Law**\
 `The federal indictment of Donald Trump for plotting to overturn the 2020 election relies in part on the law that the Supreme Court weighed on Tuesday, but was built to survive without it.`\
 https://nytimes.com/2024/04/16/us/politics/trump-jan-6-case-obstruction.html
+
+**Restaurant Review: Hamburger America Is Deliriously Messy**\
+`Oklahoma-style onion burgers are the rage this year. At George Motz’s new SoHo restaurant, they reach their drippy peak.`\
+https://nytimes.com/2024/04/16/dining/hamburger-america.html
 
