@@ -1,3 +1,11 @@
+**Book Bans Continue to Surge in Public Schools**\
+`More books were removed during the first half of this academic year than in the entire previous one.`\
+https://nytimes.com/2024/04/16/books/book-bans-public-schools.html
+
+**How Washington Played A.I. Matchmaker**\
+`The White House laid the ground work for Microsoft’s $1.5 billion investment in an Emirati artificial intelligence start-up, a deal meant to box out Beijing.`\
+https://nytimes.com/2024/04/16/business/dealbook/washington-microsoft-ai-deal.html
+
 **The U.N.’s atomic watchdog expresses worry that Israel could strike at Iran’s nuclear sites.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/the-uns-atomic-watchdog-expresses-worry-that-israel-could-strike-at-irans-nuclear-sites
