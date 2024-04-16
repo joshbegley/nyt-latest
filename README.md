@@ -1,3 +1,7 @@
+**The Popularity of Marathons**\
+`Participation is up — as are finish times.`\
+https://nytimes.com/2024/04/16/briefing/boston-marathon-finish-times.html
+
 **A.I.’s Original Sin**\
 `A Times investigation found that tech giants altered their own rules to train their newest artificial intelligence systems.`\
 https://nytimes.com/2024/04/16/podcasts/the-daily/ai-data.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/us/supreme-court-jan-6-trump.html
 **Trump Courts the Chaos He Promises to Tame**\
 `At rallies, he does alt-universe loops in which he suggests that if the election hadn’t been taken from him, nothing bad would have befallen the world.`\
 https://nytimes.com/2024/04/16/opinion/trump-chaos-foreign-policy.html
-
-**For Israel’s Allies, Iranian Missile Strike Scrambles Debate Over Gaza**\
-`Israel’s restless allies have voiced anger over the death toll in Gaza, but when their archnemesis launched a missile barrage, they set it aside. At least for the moment.`\
-https://nytimes.com/2024/04/16/world/middleeast/israel-iran-allies.html
 
