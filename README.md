@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`A chance for U.S. aid to Ukraine and Israel.`\
+https://nytimes.com/2024/04/16/briefing/aid-israel-ukraine-trump-trial.html
+
 **Quotation of the Day: Deal’s Demise Gave Tehran Opportunity**\
 `Quotation of the Day for Tuesday, April 16, 2024.`\
 https://nytimes.com/2024/04/16/pageoneplus/quotation-of-the-day-deals-demise-gave-tehran-opportunity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/15/us/politics/arizona-republicans-abortion-ban.html
 **Boeing Defends Safety of 787 Dreamliner After Whistle-Blower’s Claims**\
 `After a Boeing engineer went public with safety concerns, the company invited reporters to its South Carolina factory and top engineers vouched for the plane.`\
 https://nytimes.com/2024/04/15/business/boeing-787-dreamliner-safety-whistle-blower.html
-
-**Inside the Manhattan Courtroom at the Center of American Politics**\
-`Protesters railed outside, media and security swarmed the area, and inside the courtroom, Donald J. Trump appeared to nod off.`\
-https://nytimes.com/2024/04/15/nyregion/donald-trump-trial-courtroom.html
 
