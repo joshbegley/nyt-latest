@@ -1,3 +1,19 @@
+**Salt**\
+`Are you consuming too much?`\
+https://nytimes.com/2024/04/16/learning/salt.html
+
+**Columbia President Is Next to Be Grilled About Antisemitism by Congress**\
+`Columbia University’s president, Nemat Shafik, will speak to the same congressional committee before which the Harvard and University of Pennsylvania presidents stumbled.`\
+https://nytimes.com/2024/04/16/nyregion/columbia-university-congress-antisemitism-hearing.html
+
+**The Connections Companion No. 310**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/16/crosswords/connections-companion.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/16/crosswords/spelling-bee-forum.html
+
 **Israeli Artist Shuts Venice Biennale Exhibit, Calls for Cease-Fire in Gaza**\
 `Ruth Patir, Israel’s representative at the event, says she won’t open her show in the national pavilion until Israel and Hamas reach “a cease-fire and hostage release agreement.”`\
 https://nytimes.com/2024/04/16/arts/design/israel-pavilion-venice-biennale.html
