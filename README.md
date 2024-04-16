@@ -32,7 +32,7 @@ https://nytimes.com/2024/04/16/us/fisa-surveillance-bill-program.html
 
 **Caitlin Clark and the Best-Dressed at the W.N.B.A. Draft**\
 `The next class of basketball stars are ready for their close-ups. Finally, fashion is paying attention.`\
-https://nytimes.com/2024/04/16/style/caitlin-clark-best-dressed-wnba-draft.html
+https://nytimes.com/2024/04/16/style/wnba-draft-caitlin-clark-angel-reese.html
 
 **Long Dismissed, the Beatles’ ‘Let It Be’ Film Returns After 54 Years**\
 `Michael Lindsay-Hogg’s unloved — or misinterpreted? — 1970 documentary, the source for Peter Jackson’s “Get Back,” will stream on Disney+.`\
