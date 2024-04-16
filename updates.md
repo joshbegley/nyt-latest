@@ -1,3 +1,23 @@
+**How to Be Pro-Palestinian, Pro-Israeli and Pro-Iranian**\
+`Support leadership change in Iran, Israel and the Palestinian Authority. Without that, there’s zero chance for resolution.`\
+https://nytimes.com/2024/04/16/opinion/israel-iran-gaza.html
+
+**In Milan, a Party With T-Shaped Ice Cubes, Balloons and Pasta**\
+`To toast the Salone del Mobile and the 20th anniversary of T Magazine, the designer Ramdane Touhami transformed the Villa Necchi Campiglio into an ode to the letter T.`\
+https://nytimes.com/2024/04/16/t-magazine/salone-del-mobile-20th-anniversary-party-milan.html
+
+**Take a Tour of T’s Salone del Mobile Party With Ramdane Touhami**\
+`The designer shows off the mirrored installation and T-shaped desserts he dreamed up for the annual celebration.`\
+https://nytimes.com/2024/04/16/t-magazine/salone-del-mobile-party-tour-ramdane-touhami.html
+
+**Interior Said to Reject Industrial Road Through Alaskan Wilderness**\
+`A mining company wants to build a 211-mile industrial road through Alaskan wilderness to reach a large copper deposit. The Interior Department says it would harm wildlife and communities.`\
+https://nytimes.com/2024/04/16/climate/ambler-road-alaska-interior.html
+
+**Will the French Olympic Team Be Best Dressed at the Opening Ceremony?**\
+`Carine Roitfeld teamed up with Berluti to sprinkle some fashion fairy dust on the designs. Here’s the verdict.`\
+https://nytimes.com/2024/04/16/style/lvmh-2024-french-olympic-opening-ceremony-outfits.html
+
 **Wednesday Briefing: China’s Economy Grew Faster Than Expected**\
 `Plus, Australia’s feral cat problem.`\
 https://nytimes.com/2024/04/16/briefing/china-economic-growth-iran-sanctions-trump-trial.html
