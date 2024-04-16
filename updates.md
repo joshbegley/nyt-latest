@@ -1,3 +1,7 @@
+**The Popularity of Marathons**\
+`Participation is up — as are finish times.`\
+https://nytimes.com/2024/04/16/briefing/boston-marathon-finish-times.html
+
 **A.I.’s Original Sin**\
 `A Times investigation found that tech giants altered their own rules to train their newest artificial intelligence systems.`\
 https://nytimes.com/2024/04/16/podcasts/the-daily/ai-data.html
