@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`A chance for U.S. aid to Ukraine and Israel.`\
+https://nytimes.com/2024/04/16/briefing/aid-israel-ukraine-trump-trial.html
+
 **Quotation of the Day: Deal’s Demise Gave Tehran Opportunity**\
 `Quotation of the Day for Tuesday, April 16, 2024.`\
 https://nytimes.com/2024/04/16/pageoneplus/quotation-of-the-day-deals-demise-gave-tehran-opportunity.html
