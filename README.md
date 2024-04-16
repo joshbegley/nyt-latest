@@ -1,3 +1,7 @@
+**Participant, Maker of Films With Social Conscience, Calls It Quits**\
+`The company has had critical and commercial hits over two decades but has never made money consistently and faced a challenging entertainment landscape.`\
+https://nytimes.com/2024/04/16/business/media/participant-jeff-skoll.html
+
 **A Pulitzer-Winning Composer Puts His Operatic Spin on Edith Wharton**\
 `Anthony Davis has written operas based on recent history. But now he is adapting, and dramatically changing, Wharton’s 1912 novel “The Reef.”`\
 https://nytimes.com/2024/04/16/arts/music/anthony-davis-edith-wharton-the-reef.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000009416962/eric-adams-protesters-nyc.htm
 **Cotton Urges Citizens to Forcibly Confront Pro-Palestinian Protesters**\
 `The Republican senator from Arkansas said citizens should “take matters into your own hands” against demonstrators who have stepped up their civil disobedience to protest Israel’s offensive in Gaza.`\
 https://nytimes.com/2024/04/16/us/politics/tom-cotton-protesters.html
-
-**Whitey Herzog, Hall of Fame Cardinals Manager, Dies at 92**\
-`He won three pennants and a World Series as the St. Louis skipper, promoting what was called “Whiteyball,” combining speed, defense and pitching.`\
-https://nytimes.com/2024/04/16/sports/whitey-herzog-dead.html
 
