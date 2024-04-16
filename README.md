@@ -1,11 +1,3 @@
-**The British (Fashion Brands) Are Coming!**\
-`Three beloved London brands are making their way across the Atlantic to stake a bricks and mortar presence in the United States.`\
-https://nytimes.com/2024/04/16/style/london-fashion-america-hunza-g-rixo.html
-
-**What does it mean to act ‘corruptly’?**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/what-does-it-mean-to-act-corruptly
-
 **Kisa Brings South Korean Roadside Fare to the Lower East Side**\
 `Rosemary’s offers pizza and a family-style meal in Midtown, the owners of Oxalis open Laurel Bakery in the Columbia Street waterfront district, Brooklyn, and more restaurant news.`\
 https://nytimes.com/2024/04/16/dining/nyc-restaurant-news.html
@@ -37,4 +29,12 @@ https://nytimes.com/2024/04/16/dining/passover-memories-recipes.html
 **What does the law at issue in the case actually say?**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/what-does-the-law-at-issue-in-the-case-actually-say
+
+**The court’s decision could have a direct impact on Donald Trump.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/the-courts-decision-could-have-a-direct-impact-on-donald-trump
+
+**After a chaotic day, a courthouse approximates its usual placidity.**\
+`By Olivia Bensimon and Kaja Andric`\
+https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/after-a-chaotic-day-a-courthouse-approximates-its-usual-placidity
 

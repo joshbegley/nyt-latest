@@ -1,3 +1,15 @@
+**The British (Fashion Brands) Are Coming!**\
+`Three beloved London brands are making their way across the Atlantic to stake a bricks and mortar presence in the United States.`\
+https://nytimes.com/2024/04/16/style/london-fashion-america-hunza-g-rixo.html
+
+**What does it mean to act ‘corruptly’?**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/what-does-it-mean-to-act-corruptly
+
+**As Trump Runs in 2024, His 2016 Tactics Are on Trial**\
+`By Jonah E. Bromwich, Maggie Haberman and Ben Protess`\
+https://nytimes.com/2024/04/16/nyregion/as-trump-runs-in-2024-his-2016-tactics-are-on-trial.html
+
 **Kisa Brings South Korean Roadside Fare to the Lower East Side**\
 `Rosemary’s offers pizza and a family-style meal in Midtown, the owners of Oxalis open Laurel Bakery in the Columbia Street waterfront district, Brooklyn, and more restaurant news.`\
 https://nytimes.com/2024/04/16/dining/nyc-restaurant-news.html
