@@ -30,7 +30,7 @@ https://nytimes.com/2024/04/15/nyregion/atlantic-city-mayor-marty-small-daughter
 `The couple’s tax return showed a 7 percent jump in income from 2022, a result of higher taxable interest income this year.`\
 https://nytimes.com/2024/04/15/us/politics/biden-tax-returns.html
 
-**NASA Searching for New Ideas for Its Mars Rocks Return Mission**\
+**NASA Seeks ‘Hail Mary’ for Its Mars Rocks Return Mission**\
 `The agency will seek new ideas for its Mars Sample Return program, expected to be billions of dollars over budget and years behind schedule.`\
 https://nytimes.com/2024/04/15/science/nasa-mars-sample-return-mission.html
 
