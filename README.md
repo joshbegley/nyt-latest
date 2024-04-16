@@ -1,3 +1,11 @@
+**A U.N. panel says Israel is obstructing its investigation of the Oct. 7 attack.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/a-un-panel-says-israel-is-obstructing-its-investigation-of-the-oct-7-attack
+
+**A key precedent ruled that a fish is not a tangible object.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/a-key-precedent-ruled-that-a-fish-is-not-a-tangible-object
+
 **A key question in the case: the meaning of ‘otherwise’**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/a-key-question-in-the-case-the-meaning-of-otherwise
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/heres-what-h
 **I.M.F. Sees Steady Growth but Warns of Rising Protectionism**\
 `The International Monetary Fund offered an upbeat economic outlook but said that new trade barriers and escalating wars could worsen inflation.`\
 https://nytimes.com/2024/04/16/business/imf-global-economic-growth.html
-
-**The prosecution of a police officer, Joseph Fischer, led to this hearing.**\
-`By Alan Feuer`\
-https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/the-prosecution-of-a-police-officer-joseph-fischer-led-to-this-hearing
-
-**The Paris Olympics’ One Sure Thing: Cyberattacks**\
-`“We will be attacked,” the official responsible for fending off cyberthreats said. To prepare, organizers have been hosting war games and paying “bug bounties” to hackers.`\
-https://nytimes.com/2024/04/16/world/europe/paris-olympics-cyberattacks.html
 
