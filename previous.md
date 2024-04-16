@@ -1,3 +1,19 @@
+**Long Dismissed, the Beatles’ ‘Let It Be’ Film Returns After 54 Years**\
+`Michael Lindsay-Hogg’s unloved — or misinterpreted? — 1970 documentary, the source for Peter Jackson’s “Get Back,” will stream on Disney+.`\
+https://nytimes.com/2024/04/16/movies/disney-beatles-let-it-be-movie.html
+
+**Why Is California Called California?**\
+`Probably because of a griffin-riding warrior queen.`\
+https://nytimes.com/2024/04/16/us/why-is-california-called-california.html
+
+**An accounting scandal spurred the law used to prosecute Jan. 6 defendants.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/an-accounting-scandal-spurred-the-law-used-to-prosecute-jan-6-defendants
+
+**16scotus-obstruction**\
+`Live Updates: Justices to Hear Obstruction Case That Could Bar Charges Against Trump`\
+https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6
+
 **U.S. to Limit Deadly Mining Dust as Black Lung Resurges**\
 `Federal regulation capping toxic airborne silica has been decades in the making. The delay has cost miners dearly.`\
 https://nytimes.com/2024/04/16/us/coal-miners-black-lung-dust.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/16/business/dealbook/washington-microsoft-ai-deal.ht
 **The U.N.’s atomic watchdog expresses worry that Israel could strike at Iran’s nuclear sites.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/the-uns-atomic-watchdog-expresses-worry-that-israel-could-strike-at-irans-nuclear-sites
-
-**Weekly Student News Quiz: Israel, Abortion Law, Trial of the Century**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2024/04/16/learning/16StudentNewsQuiz.html
-
-**‘Man’s Castle’: Free Love, Hard Times**\
-`Restored to its original length and screening at the Museum of Modern Art, this 1933 movie starring Spencer Tracy feels at once surprisingly frank and disquietingly coy.`\
-https://nytimes.com/2024/04/16/movies/mans-castle-free-love-hard-times.html
-
-**The Popularity of Marathons**\
-`Participation is up — as are finish times.`\
-https://nytimes.com/2024/04/16/briefing/boston-marathon-finish-times.html
-
-**A.I.’s Original Sin**\
-`A Times investigation found that tech giants altered their own rules to train their newest artificial intelligence systems.`\
-https://nytimes.com/2024/04/16/podcasts/the-daily/ai-data.html
 

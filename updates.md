@@ -1,3 +1,19 @@
+**Long Dismissed, the Beatles’ ‘Let It Be’ Film Returns After 54 Years**\
+`Michael Lindsay-Hogg’s unloved — or misinterpreted? — 1970 documentary, the source for Peter Jackson’s “Get Back,” will stream on Disney+.`\
+https://nytimes.com/2024/04/16/movies/disney-beatles-let-it-be-movie.html
+
+**Why Is California Called California?**\
+`Probably because of a griffin-riding warrior queen.`\
+https://nytimes.com/2024/04/16/us/why-is-california-called-california.html
+
+**An accounting scandal spurred the law used to prosecute Jan. 6 defendants.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/an-accounting-scandal-spurred-the-law-used-to-prosecute-jan-6-defendants
+
+**16scotus-obstruction**\
+`Live Updates: Justices to Hear Obstruction Case That Could Bar Charges Against Trump`\
+https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6
+
 **U.S. to Limit Deadly Mining Dust as Black Lung Resurges**\
 `Federal regulation capping toxic airborne silica has been decades in the making. The delay has cost miners dearly.`\
 https://nytimes.com/2024/04/16/us/coal-miners-black-lung-dust.html
