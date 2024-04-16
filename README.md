@@ -1,3 +1,15 @@
+**Powell Suggests Interest Rates Could Stay High for a Longer Period**\
+`The Fed chair, along with the central bank’s No. 2 policymaker, stressed uncertainties over job growth and the persistence of elevated inflation.`\
+https://nytimes.com/2024/04/16/business/powell-interest-rates-inflation.html
+
+**6 New Songs You Should Hear Now**\
+`Hear tracks from Tyla, Chappell Roan, Young Miko and more.`\
+https://nytimes.com/2024/04/16/arts/music/amplifier-newsletter-new-songs.html
+
+**California Man Gets 9 Years in Firebombing of Planned Parenthood Clinic**\
+`The clinic, which provided abortion, birth control and other health services in Costa Mesa, Calif., was the target of a “brazen attack” in 2022, a prosecutor said.`\
+https://nytimes.com/2024/04/16/us/planned-parenthood-firebomber-sentenced.html
+
 **The accusations against Trump: salacious details and mundane paperwork.**\
 `By Ben Protess, Kate Christobek and Jonah E. Bromwich`\
 https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/the-accusations-against-trump-salacious-details-and-mundane-paperwork
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/16/us/usc-valedictorian-speech-gaza-war.html
 **As prospective jurors answer questions, they struggle to remain anonymous.**\
 `By Kate Christobek`\
 https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/as-prospective-jurors-answer-questions-they-struggle-to-remain-anonymous
-
-**Read the Jury Questionnaire for Trump’s Criminal Trial in Manhattan**\
-`Here are the 42 questions prospective jurors are being asked to eventually identify a group of 12 to sit on the jury.`\
-https://nytimes.com/interactive/2024/04/16/nyregion/Trump-Jury-Questions.html
-
-**The U.S. is also looking to cut off Iran’s access to military components.**\
-`The U.S. treasury secretary, Janet Yellen, said that sanctions could be announced ‘in the coming days’ and would likely focus on oil exports and imports of military hardware.`\
-https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/the-us-is-also-looking-to-cut-off-irans-access-to-military-components
-
-**Comet Pons-Brooks Is Having Its Last Hurrah**\
-`Soon, this devil-horned comet won’t be visible for another seven decades.`\
-https://nytimes.com/2024/04/16/science/comet-pons-brooks.html
 
