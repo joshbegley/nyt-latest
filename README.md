@@ -1,3 +1,7 @@
+**Criminalizing Homelessness Won’t Make It Go Away**\
+`Hundreds of thousands of people are homeless. This filmmaker wants you to see them.`\
+https://nytimes.com/video/opinion/100000009396791/supreme-court-grants-pass-johnson-case.html
+
 **Salt**\
 `Are you consuming too much?`\
 https://nytimes.com/2024/04/16/learning/salt.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/world/asia/olaf-scholz-germany-china.html
 **Corrections: April 16, 2024**\
 `Corrections that appeared in print on Tuesday, April 16, 2024.`\
 https://nytimes.com/2024/04/16/pageoneplus/corrections-april-16-2024.html
-
-**Tuesday Briefing**\
-`A chance for U.S. aid to Ukraine and Israel.`\
-https://nytimes.com/2024/04/16/briefing/aid-israel-ukraine-trump-trial.html
 
