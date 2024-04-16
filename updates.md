@@ -1,3 +1,7 @@
+**Microsoft Makes High-Stakes Play in Tech Cold War With Emirati A.I. Deal**\
+`Microsoft said it would invest $1.5 billion in G42, an Emirati company with ties to China, as Washington and Beijing maneuver to secure tech influence in the Gulf.`\
+https://nytimes.com/2024/04/16/technology/microsoft-g42-uae-ai.html
+
 **Word of the Day: thoroughfare**\
 `This word has appeared in 104 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/16/learning/word-of-the-day-thoroughfare.html

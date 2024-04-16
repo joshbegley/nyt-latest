@@ -27,7 +27,7 @@ https://nytimes.com/2024/04/16/science/australia-wildlife-cats.html
 https://nytimes.com/2024/04/16/us/politics/biden-diplomatic-victory-israel-iran.html
 
 **Microsoft Makes High-Stakes Play in Tech Cold War With Emirati A.I. Deal**\
-`Microsoft plans to invest $1.5 billion in G42, an Emirati company with ties to China, as Washington and Beijing maneuver to secure tech influence in the Gulf.`\
+`Microsoft said it would invest $1.5 billion in G42, an Emirati company with ties to China, as Washington and Beijing maneuver to secure tech influence in the Gulf.`\
 https://nytimes.com/2024/04/16/technology/microsoft-g42-uae-ai.html
 
 **Trump, Trailing Biden in Cash, Relies on Big Donors to Try to Catch Up**\
