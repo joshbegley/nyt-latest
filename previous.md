@@ -1,3 +1,7 @@
+**Will a Housing Deal Make New York More Affordable?**\
+`New York leaders agreed to a framework designed to help the state build more housing and keep prices down. Here is how it could work.`\
+https://nytimes.com/2024/04/16/nyregion/housing-deal-affordability-hochul-legislature.html
+
 **Powell Suggests Interest Rates Could Stay High for a Longer Period**\
 `The Fed chair, along with the central bank’s No. 2 policymaker, stressed uncertainties over job growth and the persistence of elevated inflation.`\
 https://nytimes.com/2024/04/16/business/powell-interest-rates-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/arts/music/anthony-davis-edith-wharton-the-reef.h
 **U.S.C. Cancels Valedictorian’s Speech After Jewish Groups Object**\
 `The university cited security concerns at the graduation. But the student, who is Muslim, said the school was “succumbing to a campaign of hate meant to silence my voice.”`\
 https://nytimes.com/2024/04/16/us/usc-valedictorian-speech-gaza-war.html
-
-**As prospective jurors answer questions, they struggle to remain anonymous.**\
-`By Kate Christobek`\
-https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/as-prospective-jurors-answer-questions-they-struggle-to-remain-anonymous
 
