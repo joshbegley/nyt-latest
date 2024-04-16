@@ -1,3 +1,7 @@
+**The Supreme Court May Side With Jan. 6 Rioters, and Their Leader**\
+`The decision could affect the number of federal charges against Trump.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/supreme-court-rioters-trump
+
 **Trump Holds Series of Meetings With Foreign Leaders**\
 `The former president has had several private interactions with foreign heads of state and their emissaries. He plans to meet Wednesday with Poland’s president.`\
 https://nytimes.com/2024/04/16/us/politics/trump-foreign-leaders.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/world/middleeast/dubai-flooding-rain-oman.html
 **Trump’s Plan to Expose the Secret Bias of Jurors Isn’t Working**\
 `The court managed to seat six jurors Tuesday, but the Trump team didn’t make it easy.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-jury-selection
-
-**Biden Digs at Trump During His Pennsylvania Hometown Visit**\
-`In a speech about his tax plan, President Biden compared Scranton, Pa., to Trump’s Mar-a-Lago to highlight the different economic and social values between America’s middle class and its wealthy.`\
-https://nytimes.com/video/us/politics/100000009417913/biden-trump-scranton-taxes.html
 
