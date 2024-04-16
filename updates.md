@@ -1,3 +1,7 @@
+**Criminalizing Homelessness Won’t Make It Go Away**\
+`Hundreds of thousands of people are homeless. This filmmaker wants you to see them.`\
+https://nytimes.com/video/opinion/100000009396791/supreme-court-grants-pass-johnson-case.html
+
 **Salt**\
 `Are you consuming too much?`\
 https://nytimes.com/2024/04/16/learning/salt.html
