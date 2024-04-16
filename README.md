@@ -1,3 +1,7 @@
+**E.U. ministers discuss expanding sanctions against Iran’s weapons program.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/eu-ministers-discuss-expanding-sanctions-against-irans-weapons-program
+
 **Americans Are More Vulnerable to Foreign Propaganda, Senator Warns**\
 `Senator Mark Warner, the chairman of the Intelligence Committee, said the United States was more susceptible to Russian influence operations than it was during the 2020 elections.`\
 https://nytimes.com/2024/04/16/us/politics/election-interference-russia-warner.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/us/politics/david-trone-maryland-senate-money.htm
 **Tiny Love Stories: ‘The One-Liners Kept Coming’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/04/16/style/tiny-love-modern-love-stories-the-one-liners-kept-coming.html
-
-**Carl Erskine, a Star Pitcher of the Dodgers’ Glory Years, Is Dead at 97**\
-`The record-setting pitcher known as Oisk in Brooklyn was the last surviving member of “The Boys of Summer.”`\
-https://nytimes.com/2024/04/16/obituaries/carl-erskine-dead.html
 
