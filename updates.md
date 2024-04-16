@@ -1,3 +1,15 @@
+**Powell Suggests Interest Rates Could Stay High for a Longer Period**\
+`The Fed chair, along with the central bank’s No. 2 policymaker, stressed uncertainties over job growth and the persistence of elevated inflation.`\
+https://nytimes.com/2024/04/16/business/powell-interest-rates-inflation.html
+
+**6 New Songs You Should Hear Now**\
+`Hear tracks from Tyla, Chappell Roan, Young Miko and more.`\
+https://nytimes.com/2024/04/16/arts/music/amplifier-newsletter-new-songs.html
+
+**California Man Gets 9 Years in Firebombing of Planned Parenthood Clinic**\
+`The clinic, which provided abortion, birth control and other health services in Costa Mesa, Calif., was the target of a “brazen attack” in 2022, a prosecutor said.`\
+https://nytimes.com/2024/04/16/us/planned-parenthood-firebomber-sentenced.html
+
 **The accusations against Trump: salacious details and mundane paperwork.**\
 `By Ben Protess, Kate Christobek and Jonah E. Bromwich`\
 https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial/the-accusations-against-trump-salacious-details-and-mundane-paperwork
