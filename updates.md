@@ -1,3 +1,7 @@
+**A Pulitzer-Winning Composer Puts His Operatic Spin on Edith Wharton**\
+`Anthony Davis has written operas based on recent history. But now he is adapting, and dramatically changing, Wharton’s 1912 novel “The Reef.”`\
+https://nytimes.com/2024/04/16/arts/music/anthony-davis-edith-wharton-the-reef.html
+
 **U.S.C. Cancels Valedictorian’s Speech After Claims of Antisemitism**\
 `The university cited security concerns at the graduation. But the student said the school was “succumbing to a campaign of hate meant to silence my voice.”`\
 https://nytimes.com/2024/04/16/us/usc-valedictorian-speech-gaza-war.html
