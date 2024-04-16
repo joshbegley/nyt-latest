@@ -1,3 +1,7 @@
+**‘We Are So Back’ Is So Back**\
+`The phrase has become ubiquitous online as a way to celebrate life’s small pleasures — at least until “it’s so over.”`\
+https://nytimes.com/2024/04/16/style/we-are-so-back-meme.html
+
 **4 in ‘God’s Misfits’ Group Charged in Disappearance of 2 Kansas Women**\
 `The four arrested on murder and kidnapping charges were from Oklahoma and, according to a relative, were members of an anti-government group by that name, the authorities said.`\
 https://nytimes.com/2024/04/16/us/kansas-women-killed-oklahoma.html
