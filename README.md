@@ -31,7 +31,7 @@ https://nytimes.com/2024/04/16/us/kansas-women-killed-oklahoma.html
 https://nytimes.com/2024/04/16/world/europe/julian-assange-extradition-us-uk.html
 
 **‘We Are So Back’ Is So Back**\
-`The phrase has become ubiquitous online as a way to celebrate life’s small pleasures — at least until “we’re so over.”`\
+`The phrase has become ubiquitous online as a way to celebrate life’s small pleasures — at least until “it’s so over.”`\
 https://nytimes.com/2024/04/16/style/we-are-so-back-meme.html
 
 **Mayor in Brussels Tries to Shut Down Conservative Conference**\
