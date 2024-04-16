@@ -1,3 +1,7 @@
+**Comet Pons-Brooks Is Having Its Last Hurrah**\
+`Soon, this devil-horned comet won’t be visible for another seven decades.`\
+https://nytimes.com/2024/04/16/science/comet-pons-brooks.html
+
 **Protesters Disrupt Mayor Adams’s Speech to Business Leaders**\
 `The mayor’s speech at a “power breakfast” was interrupted by demonstrators who stormed the stage and accused him of abandoning the working class.`\
 https://nytimes.com/2024/04/16/nyregion/protesters-mayor-adams-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/16/us/supreme-court-jan-6/trump-allies-are-usin
 **Israeli forces carry out raids and arrests in northern Gaza, residents say.**\
 `By Hiba Yazbek and Iyad Abuheweila`\
 https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/israeli-forces-carry-out-raids-and-arrests-in-northern-gaza-residents-say
-
-**For Postpartum and Pregnancy Care, One Brand Turns to a Porn Star**\
-`The mother and baby care brand Frida is working with Asa Akira, a well-known porn actress, to create educational videos about its products.`\
-https://nytimes.com/2024/04/16/well/live/frida-asa-akira-baby-brand.html
 

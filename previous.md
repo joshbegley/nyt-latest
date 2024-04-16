@@ -1,3 +1,11 @@
+**Protesters Disrupt Mayor Adams’s Speech to Business Leaders**\
+`The mayor’s speech at a “power breakfast” was interrupted by demonstrators who stormed the stage and accused him of abandoning the working class.`\
+https://nytimes.com/2024/04/16/nyregion/protesters-mayor-adams-speech.html
+
+**Speech by N.Y.C. Mayor Eric Adams Is Disrupted by Protesters**\
+`Protesters accused Mayor Eric Adams of failing working-class New Yorkers before being escorted off the stage at an event for business leaders.`\
+https://nytimes.com/video/nyregion/100000009416962/eric-adams-protesters-nyc.html
+
 **Cotton Urges Citizens to Forcibly Confront Pro-Palestinian Protesters**\
 `The Republican senator from Arkansas said citizens should “take matters into your own hands” against demonstrators who have stepped up their civil disobedience to protest Israel’s offensive in Gaza.`\
 https://nytimes.com/2024/04/16/us/politics/tom-cotton-protesters.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/israeli-forc
 **For Postpartum and Pregnancy Care, One Brand Turns to a Porn Star**\
 `The mother and baby care brand Frida is working with Asa Akira, a well-known porn actress, to create educational videos about its products.`\
 https://nytimes.com/2024/04/16/well/live/frida-asa-akira-baby-brand.html
-
-**Did Three African Runners Let a Chinese Runner Win a Race in Beijing?**\
-`Organizers are investigating the results of the Beijing Half Marathon, after three runners from Kenya and Ethiopia appeared to wave a Chinese competitor past them before the finish.`\
-https://nytimes.com/2024/04/16/sports/beijing-half-marathon-controversy-he-jie.html
-
-**La Scala Opera Taps an Italian to Be Its Next Leader**\
-`Fortunato Ortombina, the general director of Teatro La Fenice, Venice’s opera house, will succeed Dominique Meyer, a respected French impresario.`\
-https://nytimes.com/2024/04/16/arts/music/la-scala-opera-italian-leader.html
 

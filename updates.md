@@ -1,3 +1,11 @@
+**Protesters Disrupt Mayor Adams’s Speech to Business Leaders**\
+`The mayor’s speech at a “power breakfast” was interrupted by demonstrators who stormed the stage and accused him of abandoning the working class.`\
+https://nytimes.com/2024/04/16/nyregion/protesters-mayor-adams-speech.html
+
+**Speech by N.Y.C. Mayor Eric Adams Is Disrupted by Protesters**\
+`Protesters accused Mayor Eric Adams of failing working-class New Yorkers before being escorted off the stage at an event for business leaders.`\
+https://nytimes.com/video/nyregion/100000009416962/eric-adams-protesters-nyc.html
+
 **Cotton Urges Citizens to Forcibly Confront Pro-Palestinian Protesters**\
 `The Republican senator from Arkansas said citizens should “take matters into your own hands” against demonstrators who have stepped up their civil disobedience to protest Israel’s offensive in Gaza.`\
 https://nytimes.com/2024/04/16/us/politics/tom-cotton-protesters.html
