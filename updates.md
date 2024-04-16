@@ -1,3 +1,7 @@
+**16trump-trial**\
+`Live Updates: Trump’s Criminal Trial to Resume With More Jury Selection`\
+https://nytimes.com/live/2024/04/16/nyregion/trump-hush-money-trial
+
 **Long Dismissed, the Beatles’ ‘Let It Be’ Film Returns After 54 Years**\
 `Michael Lindsay-Hogg’s unloved — or misinterpreted? — 1970 documentary, the source for Peter Jackson’s “Get Back,” will stream on Disney+.`\
 https://nytimes.com/2024/04/16/movies/disney-beatles-let-it-be-movie.html
