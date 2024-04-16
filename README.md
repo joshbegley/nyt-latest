@@ -1,3 +1,19 @@
+**How to Be Pro-Palestinian, Pro-Israeli and Pro-Iranian**\
+`Support leadership change in Iran, Israel and the Palestinian Authority. Without that, there’s zero chance for resolution.`\
+https://nytimes.com/2024/04/16/opinion/israel-iran-gaza.html
+
+**In Milan, a Party With T-Shaped Ice Cubes, Balloons and Pasta**\
+`To toast the Salone del Mobile and the 20th anniversary of T Magazine, the designer Ramdane Touhami transformed the Villa Necchi Campiglio into an ode to the letter T.`\
+https://nytimes.com/2024/04/16/t-magazine/salone-del-mobile-20th-anniversary-party-milan.html
+
+**Take a Tour of T’s Salone del Mobile Party With Ramdane Touhami**\
+`The designer shows off the mirrored installation and T-shaped desserts he dreamed up for the annual celebration.`\
+https://nytimes.com/2024/04/16/t-magazine/salone-del-mobile-party-tour-ramdane-touhami.html
+
+**Interior Said to Reject Industrial Road Through Alaskan Wilderness**\
+`A mining company wants to build a 211-mile industrial road through Alaskan wilderness to reach a large copper deposit. The Interior Department says it would harm wildlife and communities.`\
+https://nytimes.com/2024/04/16/climate/ambler-road-alaska-interior.html
+
 **Wednesday Briefing: China’s Economy Grew Faster Than Expected**\
 `Plus, Australia’s feral cat problem.`\
 https://nytimes.com/2024/04/16/briefing/china-economic-growth-iran-sanctions-trump-trial.html
@@ -8,7 +24,7 @@ https://nytimes.com/2024/04/16/us/politics/house-ukraine-israel-johnson.html
 
 **Will the French Olympic Team Be Best Dressed at the Opening Ceremony?**\
 `Carine Roitfeld teamed up with Berluti to sprinkle some fashion fairy dust on the designs. Here’s the verdict.`\
-https://nytimes.com/2024/04/16/style/lvmh-berluti-french-olympic-opening-ceremony-outfits.html
+https://nytimes.com/2024/04/16/style/lvmh-2024-french-olympic-opening-ceremony-outfits.html
 
 **Prosecutors and Defense Lawyers Begin to Seat Jurors for Trump Trial**\
 `The prospective jurors questioned on Tuesday mirrored their city: diverse, opinionated and with strong views about the former president.`\
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/16/us/politics/biden-trump-tax-scranton-pa.html
 **High Winds Scuttle Burning of Snowman in Zurich, Disappointing the Swiss**\
 `The burning of the effigy known as the Böögg is the finale of Sechseläuten, an annual spring festival akin to Groundhog Day. The normally stoic Swiss wallowed in disappointment.`\
 https://nytimes.com/2024/04/16/world/europe/zurich-snowman-switzerland.html
-
-**E.U. ministers discuss expanding sanctions against Iran’s weapons program.**\
-`By Lara Jakes`\
-https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/eu-ministers-discuss-expanding-sanctions-against-irans-weapons-program
-
-**Americans Are More Vulnerable to Foreign Propaganda, Senator Warns**\
-`Senator Mark Warner, the chairman of the Intelligence Committee, said the United States was more susceptible to Russian influence operations than it was during the 2020 elections.`\
-https://nytimes.com/2024/04/16/us/politics/election-interference-russia-warner.html
-
-**Trump’s Jan. 6 Case Could Go On Even if Court Limits Use of Obstruction Law**\
-`The federal indictment of Donald Trump for plotting to overturn the 2020 election relies in part on the law that the Supreme Court weighed on Tuesday, but was built to survive without it.`\
-https://nytimes.com/2024/04/16/us/politics/trump-jan-6-case-obstruction.html
-
-**Restaurant Review: Hamburger America Is Deliriously Messy**\
-`Oklahoma-style onion burgers are the rage this year. At George Motz’s new SoHo restaurant, they reach their drippy peak.`\
-https://nytimes.com/2024/04/16/dining/hamburger-america.html
 
