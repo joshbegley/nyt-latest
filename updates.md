@@ -1,3 +1,7 @@
+**Late Night Savors Day One of the Trump Trial**\
+`After the ex-president seemed to fall asleep in court, Jimmy Kimmel said it was “nice to see even Donald Trump is exhausted by Donald Trump.”`\
+https://nytimes.com/2024/04/16/arts/television/jimmy-kimmel-trump-manhattan-trial.html
+
 **Microsoft Makes High-Stakes Play in Tech Cold War With Emirati A.I. Deal**\
 `Microsoft said it would invest $1.5 billion in G42, an Emirati company with ties to China, as Washington and Beijing maneuver to secure tech influence in the Gulf.`\
 https://nytimes.com/2024/04/16/technology/microsoft-g42-uae-ai.html
