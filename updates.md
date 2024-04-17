@@ -1,3 +1,7 @@
+**Miscalculation Leads to Escalation as Israel and Iran Clash**\
+`Israeli officials say they didn’t see a strike on a high-level Iranian target in Syria as a provocation, and did not give Washington a heads-up about it until right before it happened.`\
+https://nytimes.com/2024/04/17/world/middleeast/iran-israel-attack.html
+
 **The Kamala Harris Moment Has Arrived**\
 `With the issue of abortion rights, the vice president has hit her stride.`\
 https://nytimes.com/2024/04/17/opinion/kamala-harris-reproductive-rights.html

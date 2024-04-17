@@ -28,7 +28,7 @@ https://nytimes.com/2024/04/17/us/barbara-joans-dead.html
 
 **Miscalculation Leads to Escalation as Israel and Iran Clash**\
 `Israeli officials say they didn’t see a strike on a high-level Iranian target in Syria as a provocation, and did not give Washington a heads-up about it until right before it happened.`\
-https://nytimes.com/2024/04/17/world/middleeast/israel-iran-attack.html
+https://nytimes.com/2024/04/17/world/middleeast/iran-israel-attack.html
 
 **Is Trump’s Trial Really About ‘Hush Money’?**\
 `Both the prosecutors and defense are trying to frame it differently.`\
