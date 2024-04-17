@@ -1,3 +1,7 @@
+**Abe Koogler’s New Play Is an Ode to Intense Culinary Experiences**\
+`In “Staff Meal,” in previews at Playwrights Horizons, a restaurant becomes a refuge as the world ends.`\
+https://nytimes.com/2024/04/17/theater/abe-koogler-staff-meal-play.html
+
 **The Split Screen Democrats Have Been Dreaming About**\
 `While Trump glowers in a courtroom, Biden tells voters about making billionaires pay more.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/biden-trump-split-screen
