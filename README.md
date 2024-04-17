@@ -1,3 +1,7 @@
+**Abortion Is Remaking Our Political Landscape. Why Aren’t Guns?**\
+`Is it possible for us to get to the same place on gun safety that we’re getting to on abortion — where the people who make the policy feel pressure to be sensible?`\
+https://nytimes.com/2024/04/17/opinion/guns-abortion-kari-lake.html
+
 **The New Age of D.I.Y. Medicine**\
 `A new vaccine for preventing cavities doesn’t have F.D.A. approval or promising clinical trials, but it does have customers.`\
 https://nytimes.com/2024/04/17/opinion/lumina-cavity-vaccine-covid-diy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/nyregion/kathy-hochul-new-york-budget-cyberattack
 **A New Home for Sundance? Festival Organizers Say It’s Possible.**\
 `A 13-year contract with Park City, Utah, is set to expire in 2026 and the film festival is beginning a review process to see if it should move.`\
 https://nytimes.com/2024/04/17/business/media/sundance-film-festival-park-city.html
-
-**Sons of Paul McCartney and John Lennon Release New Song**\
-`James McCartney teamed with Sean Ono Lennon for “Primrose Hill,” a ballad with echoes of the Beatles aesthetic.`\
-https://nytimes.com/2024/04/17/arts/music/james-mccartney-sean-ono-lennon-new-song.html
 
