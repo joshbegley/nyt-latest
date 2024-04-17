@@ -1,3 +1,7 @@
+**Word of the Day: sparse**\
+`This word has appeared in 194 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/17/learning/word-of-the-day-sparse.html
+
 **Venezuelans Are Suffering, but More Sanctions Won’t Help**\
 `The Biden administration wants to lift damaging oil sanctions but is caught in a political bind with Venezuela’s dictator.`\
 https://nytimes.com/2024/04/17/opinion/venezuela-oil-sanctions.html
