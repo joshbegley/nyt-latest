@@ -1,3 +1,7 @@
+**Bob Graham, Former Florida Governor and Senator, Dies at 87**\
+`After the 9/11 attacks, Mr. Graham became an outspoken critic of President George W. Bush’s response and voted against invading Iraq.`\
+https://nytimes.com/2024/04/16/us/bob-graham-dead.html
+
 **The Global Turn Away From Free-Market Policies Worries Economists**\
 `More countries are embracing measures meant to encourage their own security and independence, a trend that some say could slow global growth.`\
 https://nytimes.com/2024/04/17/business/economy/industrial-policies-global-economy.html

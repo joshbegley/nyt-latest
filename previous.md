@@ -15,7 +15,7 @@ https://nytimes.com/2024/04/17/world/asia/india-elections-long-explainer.html
 https://nytimes.com/2024/04/17/arts/immanuel-kant-300-anniversary.html
 
 **Bob Graham, Former Florida Governor and Senator, Dies at 87**\
-`After the 9/11 attacks, Mr. Graham became an outspoken critic of President George W. Bush and his administration’s response to terrorism and its involvement in wars in Iraq and Afghanistan.`\
+`After the 9/11 attacks, Mr. Graham became an outspoken critic of President George W. Bush’s response and voted against invading Iraq.`\
 https://nytimes.com/2024/04/16/us/bob-graham-dead.html
 
 **Alabama Runoff Elections Set Field in Newly Competitive House District**\
