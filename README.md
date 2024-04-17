@@ -1,3 +1,7 @@
+**Biden, Competing With Trump to Be Tough on China, Calls for Steel Tariffs**\
+`Speaking to the United Steelworkers union in Pittsburgh, the president urged major increases to some tariffs on steel and aluminum products from China.`\
+https://nytimes.com/2024/04/17/us/politics/biden-trump-china-tariffs.html
+
 **A Cyberattack Could Make N.Y. State’s Late Budget Even Later**\
 `Days after lawmakers in Albany reached agreement on the framework of a $237 billion state budget, a digital security breach threatened to delay proceedings.`\
 https://nytimes.com/2024/04/17/nyregion/cyberattack-budget-ny.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/us/politics/caitlin-clark-salary-biden.html
 **The Real Reasons Trump Set Foot in a Bodega**\
 `There’s nothing he won’t exploit for a moment of political theater.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-bodega
-
-**What’s in Our Queue? ‘Anatomy of a Fall’ and More**\
-`Natasha Frost shares five things she's recently heard, seen, and watched.`\
-https://nytimes.com/interactive/2024/04/17/arts/editors-recommendations-anatomy.html
 
