@@ -1,4 +1,4 @@
-**Tesla’s Board Backs a Pay Package for Elon Musk Struck Down by Judge**\
+**Tesla’s Board Backs a Pay Package for Elon Musk Struck Down by a Judge**\
 `The company’s directors are asking shareholders to again approve the multibillion-dollar compensation plan and to move the company’s registration to Texas, from Delaware.`\
 https://nytimes.com/2024/04/17/business/tesla-elon-musk-pay.html
 
