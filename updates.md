@@ -1,3 +1,11 @@
+**Columbia has been host to charged protests over Gaza in recent months.**\
+`By Sharon Otterman`\
+https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/columbia-has-been-host-to-charged-protests-over-gaza-in-recent-months
+
+**Stefanik Has Taken Aim at Elite College Presidents**\
+`Representative Elise Stefanik was already a rising star within her party, but her grilling of the presidents of Harvard, Penn and M.I.T. at a December hearing became a defining moment.`\
+https://nytimes.com/2024/04/17/nyregion/stefanik-college-presidents.html
+
 **My Boyfriend Said He’d Save Our Cat but Not a Stranger if Both Were Drowning**\
 `The magazine’s Ethicist columnist on whether there is inherent value in human life more than any other kind of life.`\
 https://nytimes.com/2024/04/17/magazine/human-pet-life-ethics.html
