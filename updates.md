@@ -1,3 +1,15 @@
+**Aung San Suu Kyi Moved to Unknown Location From Prison by Myanmar Junta**\
+`The unexpected relocation was attributed to a heat wave, and came as the military government is facing increasingly emboldened rebel forces.`\
+https://nytimes.com/2024/04/17/world/asia/suu-kyi-moved-junta-myanmar.html
+
+**Has Your Birth Order Shaped Who You Are?**\
+`Does it matter if you’re the firstborn, the middle child, the youngest or somewhere in between?`\
+https://nytimes.com/2024/04/17/learning/has-your-birth-order-shaped-who-you-are.html
+
+**A Timeline of Britain’s Troubled Plan to Send Asylum Seekers to Rwanda**\
+`The U.K. government hopes to pass a bill this week, two years after the plan was first unveiled, in an effort to override a ruling by Britain’s highest court that Rwanda is not safe for refugees.`\
+https://nytimes.com/2024/04/17/world/europe/uk-bill-asylum-rwanda.html
+
 **Sleep Apnea Reduced in People Who Took Weight-Loss Drug, Eli Lilly Reports**\
 `The company reported results of clinical trials involving Zepbound, an obesity drug in the same class as Novo Nordisk’s Wegovy.`\
 https://nytimes.com/2024/04/17/health/sleep-apnea-obesity-zepbound.html
