@@ -1,3 +1,7 @@
+**Elise Stefanik has taken aim at college presidents on elite campuses.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/elise-stefanik-has-taken-aim-at-college-presidents-on-elite-campuses
+
 **NPR Editor Who Accused Broadcaster of Liberal Bias Resigns**\
 `Uri Berliner, who has worked at NPR for 25 years, said in an essay last week that the nonprofit had allowed progressive bias to taint its coverage.`\
 https://nytimes.com/2024/04/17/business/media/uri-berliner-npr-resigns.html
