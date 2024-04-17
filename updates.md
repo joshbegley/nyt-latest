@@ -1,3 +1,7 @@
+**‘Shogun’: Anna Sawai on Her Character’s Final Transformation**\
+`In an interview, the actor discusses the most recent episode of the FX drama and how her Lady Mariko “wants to fulfill her purpose.”`\
+https://nytimes.com/2024/04/17/arts/television/shogun-anna-sawai-mariko.html
+
 **Russian Missile Strikes North of Kyiv Kill at Least 14, Ukraine Says**\
 `President Volodymyr Zelensky said the death toll might rise and blamed lack of air defenses for the loss of life. At least 61 people were reported wounded.`\
 https://nytimes.com/2024/04/17/world/europe/ukraine-chernihiv-strike.html
