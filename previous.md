@@ -1,3 +1,11 @@
+**Review: In ‘Sally & Tom,’ Plantation Scandal Meets Backstage Farce**\
+`The 30-year relationship between Sally Hemings and Thomas Jefferson is the basis for Suzan-Lori Parks’s hilarious and harrowing nesting doll of a play.`\
+https://nytimes.com/2024/04/16/theater/sally-and-tom-review-suzan-lori-parks.html
+
+**Kari Lake Urges Supporters to Arm Themselves Ahead of Election**\
+`“We are going to put on the armor of God,” the Arizona Republican candidate for Senate said to cheering supporters. “And maybe strap on a Glock on the side of us just in case.”`\
+https://nytimes.com/2024/04/16/us/politics/kari-lake-glock.html
+
 **Buttigieg Teams Up With State Attorneys General to Investigate Airline Complaints**\
 `Transportation Secretary Pete Buttigieg announced a new partnership with more than a dozen state attorneys general that aims to improve protections for air travelers.`\
 https://nytimes.com/2024/04/16/us/politics/buttigieg-airline-complaints.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/16/us/politics/trump-foreign-leaders.html
 **Israel Weighs Response to Iran Attack, With Each Choice a Risk**\
 `In debating how to respond to last weekend’s Iranian airstrike, Israel’s war cabinet is choosing between options that could deter future attacks or de-escalate hostilities, but all carry drawbacks.`\
 https://nytimes.com/2024/04/16/world/middleeast/israel-iran-response-options.html
-
-**Israeli strikes in southern Lebanon kill two Hezbollah commanders.**\
-`By Euan Ward`\
-https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/israeli-strikes-in-southern-lebanon-kill-two-hezbollah-commanders
-
-**Mayor Adams Pushes to Hire Ex-Giuliani Deputy as New York’s Top Lawyer**\
-`Mayor Eric Adams, who is facing a cluster of legal challenges, is moving to hire Randy Mastro, known for his aggressive tactics.`\
-https://nytimes.com/2024/04/16/nyregion/randy-mastro-adams-lawyer.html
 

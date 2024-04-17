@@ -1,3 +1,11 @@
+**Review: In ‘Sally & Tom,’ Plantation Scandal Meets Backstage Farce**\
+`The 30-year relationship between Sally Hemings and Thomas Jefferson is the basis for Suzan-Lori Parks’s hilarious and harrowing nesting doll of a play.`\
+https://nytimes.com/2024/04/16/theater/sally-and-tom-review-suzan-lori-parks.html
+
+**Kari Lake Urges Supporters to Arm Themselves Ahead of Election**\
+`“We are going to put on the armor of God,” the Arizona Republican candidate for Senate said to cheering supporters. “And maybe strap on a Glock on the side of us just in case.”`\
+https://nytimes.com/2024/04/16/us/politics/kari-lake-glock.html
+
 **Buttigieg Teams Up With State Attorneys General to Investigate Airline Complaints**\
 `Transportation Secretary Pete Buttigieg announced a new partnership with more than a dozen state attorneys general that aims to improve protections for air travelers.`\
 https://nytimes.com/2024/04/16/us/politics/buttigieg-airline-complaints.html
