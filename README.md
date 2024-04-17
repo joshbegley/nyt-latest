@@ -1,3 +1,11 @@
+**What’s in Our Queue? ‘Anatomy of a Fall’ and More**\
+`Natasha Frost shares five things she's recently heard, seen, and watched.`\
+https://nytimes.com/interactive/2024/04/17/arts/editors-recommendations-anatomy.html
+
+**Mount Ruang Erupts in Indonesia, Spewing Lava Thousands of Feet Into the Sky**\
+`Hundreds of earthquakes were detected in the weeks preceding the eruption of the volcano in North Sulawesi province. Hundreds of people were evacuated.`\
+https://nytimes.com/2024/04/17/world/asia/indonesia-volcano-eruption-ruang.html
+
 **This Lava Tube in Saudi Arabia Has Been a Human Refuge for 7,000 Years**\
 `Ancient humans left behind numerous archaeological traces in the cavern, and scientists say there may be thousands more like it on the Arabian Peninsula to study.`\
 https://nytimes.com/2024/04/17/science/saudi-arabia-lava-tube.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/here-
 **Keith Haring’s Legacy Is Not Found at the Museum**\
 `Three decades after his death, his work is still sold on products and in stores. But his concept of public art is most powerfully preserved on the street.`\
 https://nytimes.com/2024/04/17/arts/design/keith-haring-brad-gooch.html
-
-**The Split Screen Democrats Have Been Dreaming About**\
-`While Trump glowers in a courtroom, Biden tells voters about making billionaires pay more.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/biden-trump-split-screen
-
-**Boeing Whistle-Blower Details His Concerns to Congressional Panel**\
-`Sam Salehpour, an engineer at Boeing for over a decade, testified that the company introduced production shortcuts in an attempt to address bottlenecks.`\
-https://nytimes.com/2024/04/17/us/politics/boeing-787-dreamliner-whistle-blower.html
 
