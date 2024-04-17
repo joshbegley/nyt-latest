@@ -1,3 +1,7 @@
+**Tesla Sets Up a New Showdown Over Elon Musk’s Pay**\
+`The electric vehicle maker will ask shareholders to vote again on a multibillion-dollar compensation package that was voided by a judge in January.`\
+https://nytimes.com/2024/04/17/business/elon-musk-pay-tesla.html
+
 **Aung San Suu Kyi Moved to Unknown Location From Prison by Myanmar Junta**\
 `The unexpected relocation was attributed to a heat wave, and came as the military government is facing increasingly emboldened rebel forces.`\
 https://nytimes.com/2024/04/17/world/asia/suu-kyi-moved-junta-myanmar.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/us/lahaina-maui-fire-report.html
 **Arizona Legislature Expects New Efforts to Repeal 1864 Abortion Ban**\
 `The state has been in turmoil since its Supreme Court upheld a near-total abortion ban dating back to the Civil War.`\
 https://nytimes.com/2024/04/17/us/arizona-abortion-ban-repeal.html
-
-**Biden to Call for Tripling Tariffs on Chinese Steel Products**\
-`In a speech to union steelworkers in Pittsburgh, the president will announce several new measures meant to raise new barriers against floods of Chinese imports.`\
-https://nytimes.com/2024/04/17/us/politics/biden-tariffs-china-steel.html
 

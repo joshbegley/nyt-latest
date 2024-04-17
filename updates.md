@@ -1,3 +1,7 @@
+**Tesla Sets Up a New Showdown Over Elon Musk’s Pay**\
+`The electric vehicle maker will ask shareholders to vote again on a multibillion-dollar compensation package that was voided by a judge in January.`\
+https://nytimes.com/2024/04/17/business/elon-musk-pay-tesla.html
+
 **Aung San Suu Kyi Moved to Unknown Location From Prison by Myanmar Junta**\
 `The unexpected relocation was attributed to a heat wave, and came as the military government is facing increasingly emboldened rebel forces.`\
 https://nytimes.com/2024/04/17/world/asia/suu-kyi-moved-junta-myanmar.html
