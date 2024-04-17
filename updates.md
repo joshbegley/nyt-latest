@@ -1,3 +1,11 @@
+**Israeli Response to Iran Attack Seems Inevitable, Despite Allies’ Pleas**\
+`“We will make our own decisions,” said Prime Minister Benjamin Netanyahu, rebuffing European diplomats’ requests to stand down.`\
+https://nytimes.com/2024/04/17/world/middleeast/israel-iran-diplomatic-pressure.html
+
+**China Could Threaten Critical Infrastructure in a Conflict, N.S.A. Chief Says**\
+`Gen. Timothy Haugh, who is also the head of the U.S. military’s Cyber Command, said Beijing was “sending a pretty clear signal.”`\
+https://nytimes.com/2024/04/17/us/politics/china-cyber-us-infrastructure.html
+
 **The 15 Messages That Led to Love**\
 `Readers of the Modern Love column share the banter, emojis and wit that made them fall for each other.`\
 https://nytimes.com/interactive/2024/04/17/magazine/first-messsages-love.html
