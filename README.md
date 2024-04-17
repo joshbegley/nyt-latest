@@ -1,3 +1,7 @@
+**Keith Haring’s Legacy Is Not Found at the Museum**\
+`Three decades after his death, his work is still sold on products and in stores. But his concept of public art is most powerfully preserved on the street.`\
+https://nytimes.com/2024/04/17/arts/design/keith-haring-brad-gooch.html
+
 **The Split Screen Democrats Have Been Dreaming About**\
 `While Trump glowers in a courtroom, Biden tells voters about making billionaires pay more.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/biden-trump-split-screen
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/books/sophie-kinsella-brain-cancer.html
 **Nine People, Including an Airline Worker, Are Arrested in $14.5 Million Gold Heist**\
 `The stolen gold was partly used to buy guns that were bound for Canada, the police said.`\
 https://nytimes.com/2024/04/17/canada-gold-heist-pearson-airport.html
-
-**Review: Limbs Hook Onto Limbs as Bodies Endlessly Intertwine**\
-`The Sydney Dance Company’s “ab [intra]” at the Joyce Theater is impressive but chilly.`\
-https://nytimes.com/2024/04/17/arts/dance/review-sydney-dance-company-ab-intra-joyce-theater.html
 
