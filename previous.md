@@ -1,3 +1,7 @@
+**Colorado Bill Aims to Protect Consumer Brain Data**\
+`In a first, the legislation extends privacy rights to the neural data increasingly coveted by technology companies.`\
+https://nytimes.com/2024/04/17/science/colorado-brain-data-privacy.html
+
 **U.S. Restores Oil Sanctions on Venezuela as Hopes Dim for Free Election**\
 `The Biden administration had temporarily lifted sanctions after President Nicolás Maduro agreed to make free elections possible. Now Mr. Maduro has put up barriers to a credible vote.`\
 https://nytimes.com/2024/04/17/world/americas/us-oil-sanctions-venezuela-maduro.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/opinion/biden-economy-second-term.html
 **How London Became a ‘Hot Spot’ for Threats Against Iranian Journalists**\
 `Iranian reporters and broadcasters in Britain have suffered physical attacks, threats and surveillance, a report by Reporters Without Borders said, weeks after a newscaster was stabbed in London.`\
 https://nytimes.com/2024/04/17/world/europe/uk-london-iranian-journalists-repression.html
-
-**4 Takeaways From the Hearing on Antisemitism at Columbia University**\
-`The closely watched hearing included several tense exchanges between members of Congress and Columbia representatives.`\
-https://nytimes.com/2024/04/17/nyregion/columbia-university-antisemitism-hearing-takeaways.html
 

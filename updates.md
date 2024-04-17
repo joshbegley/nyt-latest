@@ -1,3 +1,7 @@
+**Colorado Bill Aims to Protect Consumer Brain Data**\
+`In a first, the legislation extends privacy rights to the neural data increasingly coveted by technology companies.`\
+https://nytimes.com/2024/04/17/science/colorado-brain-data-privacy.html
+
 **U.S. Restores Oil Sanctions on Venezuela as Hopes Dim for Free Election**\
 `The Biden administration had temporarily lifted sanctions after President Nicolás Maduro agreed to make free elections possible. Now Mr. Maduro has put up barriers to a credible vote.`\
 https://nytimes.com/2024/04/17/world/americas/us-oil-sanctions-venezuela-maduro.html
