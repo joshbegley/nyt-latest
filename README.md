@@ -1,3 +1,7 @@
+**How to define the term ‘antisemitism’ is the subject of bitter debate.**\
+`By Vimal Patel`\
+https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/how-to-define-the-term-antisemitism-is-the-subject-of-a-bitter-debate
+
 **U.N. Report Describes Physical Abuse and Dire Conditions in Israeli Detention**\
 `Some Palestinians recounted being beaten with metal bars or the butts of guns, according to the report. Israeli officials have said that the rights of detainees are respected.`\
 https://nytimes.com/2024/04/17/world/middleeast/un-report-israel-detainees-abuse.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/style/family-reconciliation-grudges.html
 **F.T.C. Said to Consider Blocking Major Fashion Merger**\
 `Regulators are expected to meet next week to discuss the $8.5 billion deal between Coach’s owner, Tapestry, and Michael Kors’ parent company, Capri Holdings, which would create a U.S. luxury conglomerate.`\
 https://nytimes.com/2024/04/17/business/dealbook/ftc-tapestry-capri-coach-michael-kors-versace.html
-
-**‘Shogun’: Anna Sawai on Her Character’s Final Transformation**\
-`In an interview, the actor discusses the most recent episode of the FX drama and how her Lady Mariko “wants to fulfill her purpose.”`\
-https://nytimes.com/2024/04/17/arts/television/shogun-anna-sawai-mariko.html
 
