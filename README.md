@@ -1,3 +1,7 @@
+**Britain’s foreign secretary signals that Israel will not let Iran’s assault go unanswered.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/britains-foreign-secretary-signals-that-israel-will-not-let-irans-assault-go-unanswered
+
 **Prosecutions of Fake Electors for Trump Gain Ground in Swing States**\
 `Georgia, Michigan and Nevada have already brought charges against people who posed as electors for Donald Trump, and Arizona and Wisconsin have active investigations.`\
 https://nytimes.com/2024/04/17/us/trump-fake-electors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/podcasts/the-daily/forever-chemicals-epa.html
 **Israel Weighs Response to Iran, and U.S. Speaker Tries to Pass Ukraine Aid**\
 `Plus, the French Olympic team reveals its outfits.`\
 https://nytimes.com/2024/04/17/podcasts/israel-weighs-response-to-iran-and-us-speaker-tries-to-pass-ukraine-aid.html
-
-**Women Talk Through Their Abortions on TikTok**\
-`At a time of heightened confusion and legal battles over access to abortion, women are looking to social media for answers.`\
-https://nytimes.com/2024/04/17/us/politics/abortion-tiktok-videos.html
 
