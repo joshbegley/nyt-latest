@@ -1,3 +1,7 @@
+**Long-Acting Drugs May Revolutionize H.I.V. Prevention and Treatment**\
+`New regimens in development, including once-weekly pills and semiannual shots, could help control the virus in hard-to-reach populations.`\
+https://nytimes.com/2024/04/17/health/hiv-long-acting-shots-pills.html
+
 **Marian Zazeela, an Artist of Light and Design, Dies at 83**\
 `She pivoted from painting to lighting exhibitions, performance art, graphic design and minimalist music, performed with her husband, the composer La Monte Young.`\
 https://nytimes.com/2024/04/17/arts/design/marian-zazeela-dead.html

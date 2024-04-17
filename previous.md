@@ -1,3 +1,7 @@
+**Long-Acting Drugs May Revolutionize H.I.V. Prevention and Treatment**\
+`New regimens in development, including once-weekly pills and semiannual shots, could help control the virus in hard-to-reach populations.`\
+https://nytimes.com/2024/04/17/health/hiv-long-acting-shots-pills.html
+
 **Marian Zazeela, an Artist of Light and Design, Dies at 83**\
 `She pivoted from painting to lighting exhibitions, performance art, graphic design and minimalist music, performed with her husband, the composer La Monte Young.`\
 https://nytimes.com/2024/04/17/arts/design/marian-zazeela-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/theater/abe-koogler-staff-meal-play.html
 **Johnson Pushes Ahead on Foreign Aid Bill, Teeing Up a Weekend Vote**\
 `The Republican speaker, with his job on the line, said he expected Saturday evening votes on the long-stalled package of aid to Ukraine, Israel and other American allies.`\
 https://nytimes.com/2024/04/17/us/politics/johnson-ukraine-israel-aid-house.html
-
-**What a TikTok Ban Would Mean for the U.S. Defense of an Open Internet**\
-`Global digital rights advocates are watching to see if Congress acts, worried that other countries could follow suit with app bans of their own.`\
-https://nytimes.com/2024/04/17/technology/tiktok-ban-internet-freedom.html
 
