@@ -1,3 +1,15 @@
+**Here’s where Israel’s military offensive in Gaza stands.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/heres-where-israels-military-offensive-in-gaza-stands
+
+**Israel weighs response to Iran attack, with each choice a risk.**\
+`In debating how to respond to last weekend’s Iranian airstrike, Israel’s war cabinet is choosing between options that could deter future attacks or de-escalate hostilities.`\
+https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/israel-weighs-response-to-iran-attack-with-each-choice-a-risk
+
+**17mideast-crisis**\
+`Israel’s Conflict With Iran Overshadows Fighting in Gaza`\
+https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news
+
 **Word of the Day: sparse**\
 `This word has appeared in 194 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/17/learning/word-of-the-day-sparse.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/17/business/economy/industrial-policies-global-econo
 **Why Does It Take India Six Weeks to Vote?**\
 `The election is a giant undertaking that requires millions of poll workers, voting machines and security forces to cover deserts, mountains, forests and megacities.`\
 https://nytimes.com/2024/04/17/world/asia/india-elections-long-explainer.html
-
-**Looking for a Fight**\
-`Our photographer spent four days at a remote Ukrainian trench outpost manned by soldiers who signed up from abroad.`\
-https://nytimes.com/2024/04/17/world/europe/ukraine-volunteer-soldier-photos.html
-
-**Why the World Still Needs Immanuel Kant**\
-`Unlike in Europe, few in the United States will be celebrating the philosopher’s 300th birthday. But Kant’s writing shows that a free, just and moral life is possible — and that’s relevant everywhere.`\
-https://nytimes.com/2024/04/17/arts/immanuel-kant-300-anniversary.html
-
-**Bob Graham, Former Florida Governor and Senator, Dies at 87**\
-`After the 9/11 attacks, Mr. Graham became an outspoken critic of President George W. Bush’s response and voted against invading Iraq.`\
-https://nytimes.com/2024/04/16/us/bob-graham-dead.html
 
