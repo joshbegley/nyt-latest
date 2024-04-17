@@ -1,3 +1,7 @@
+**Two bakeries reopen in hunger-stricken Gaza City, but the question is for how long?**\
+`By Liam Stack and Adam Rasgon`\
+https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/two-bakeries-reopen-in-hunger-stricken-gaza-city-but-the-question-is-for-how-long
+
 **Elise Stefanik has taken aim at college presidents on elite campuses.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/elise-stefanik-has-taken-aim-at-college-presidents-on-elite-campuses
