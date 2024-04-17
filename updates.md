@@ -1,3 +1,19 @@
+**Israel Signaled That It Would Retaliate Against Iran**\
+`Also, the House is set to vote on aid for Ukraine and Israel. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/04/17/briefing/israel-iran-response-house-foreign-aid-vote.html
+
+**The Ugly State of Shoe Collaborations**\
+`Blingy Crocs, punk Uggs and spangled sneakers, oh my.`\
+https://nytimes.com/2024/04/17/style/ugly-shoes-collaborations-crocs-bode-nike.html
+
+**Applications Open! The New York Times Illustration Portfolio Review**\
+`We’re inviting illustrators from around the world to share their work with art directors from The New York Times. Apply by June 21, 2024.`\
+https://nytimes.com/2024/04/17/arts/illustration-portfolio-review.html
+
+**Biden’s Steel Tariffs Are Merely Symbolic**\
+`Last year, just 2 percent of U.S. imported steel came from China.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/biden-steel-tarriff
+
 **Thursday Briefing: Israel Seems Poised to Retaliate**\
 `Also, a deadly Russian missile strike in Ukraine and “green Islam” in Indonesia.`\
 https://nytimes.com/2024/04/17/world/asia/israel-iran-britain-ukraine-aid-asia.html
