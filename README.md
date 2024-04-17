@@ -1,3 +1,11 @@
+**‘Bone Valley’ Podcast Subject Is Granted Parole 37 Years After Wife’s Murder**\
+`Leo Schofield has maintained innocence all along in his wife’s murder in 1987, and another man has since confessed to the killing.`\
+https://nytimes.com/2024/04/17/us/bone-valley-leo-schofield-parole.html
+
+**Who are the Columbia professors mentioned in the hearing?**\
+`By Stephanie Saul`\
+https://nytimes.com/2024/04/17/nyregion/who-are-the-columbia-professors-mentioned-in-the-hearing.html
+
 **Long-Acting Drugs May Revolutionize H.I.V. Prevention and Treatment**\
 `New regimens in development, including once-weekly pills and semiannual shots, could help control the virus in hard-to-reach populations.`\
 https://nytimes.com/2024/04/17/health/hiv-long-acting-shots-pills.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/17/us/politics/supreme-court-police-officer-workplac
 **Before She Became Music’s Greatest Teacher, She Wrote an Opera**\
 `Nadia Boulanger’s “La Ville Morte” was repeatedly thwarted by death and World War I, then nearly lost. Finally, it is having its American premiere.`\
 https://nytimes.com/2024/04/17/arts/music/nadia-boulanger-la-ville-morte.html
-
-**Abe Koogler’s New Play Is an Ode to Intense Culinary Experiences**\
-`In “Staff Meal,” in previews at Playwrights Horizons, a restaurant becomes a refuge as the world ends.`\
-https://nytimes.com/2024/04/17/theater/abe-koogler-staff-meal-play.html
-
-**Johnson Pushes Ahead on Foreign Aid Bill, Teeing Up a Weekend Vote**\
-`The Republican speaker, with his job on the line, said he expected Saturday evening votes on the long-stalled package of aid to Ukraine, Israel and other American allies.`\
-https://nytimes.com/2024/04/17/us/politics/johnson-ukraine-israel-aid-house.html
 
