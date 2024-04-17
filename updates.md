@@ -1,3 +1,15 @@
+**NPR Editor Who Accused Broadcaster of Liberal Bias Resigns**\
+`Uri Berliner, who has worked at NPR for 25 years, said in an essay last week that the nonprofit had allowed progressive bias to taint its coverage.`\
+https://nytimes.com/2024/04/17/business/media/uri-berliner-npr-resigns.html
+
+**Trains, Trucks and Tractors: The Race to Reroute Goods From Baltimore**\
+`Since the collapse of the Key Bridge, other East Coast ports have absorbed the cargo previously handled in Baltimore, but some parts of the supply chain like trucking are struggling.`\
+https://nytimes.com/2024/04/17/business/ports-truckers-baltimore-bridge.html
+
+**Tribeca Festival to Feature Brat Pack and Lily Gladstone Films**\
+`Organizers released the event lineup for the annual New York event, set for June. It includes films that trace the lives of Linda Perry and Avicii.`\
+https://nytimes.com/2024/04/17/movies/tribeca-festival-lineup.html
+
 **Shafik emphasizes that Columbia has ramped up disciplinary proceedings.**\
 `By Anemona Hartocollis`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/shafik-emphasizes-that-columbia-has-ramped-up-disciplinary-proceedings
