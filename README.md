@@ -1,3 +1,7 @@
+**Barbara Joans, Anthropologist Who Studied Biker Culture, Dies at 89**\
+`In her 60s, she hit the open road on a hulking Harley-Davidson and found a new area of academic research: bikers, and in particular, women bikers.`\
+https://nytimes.com/2024/04/17/us/barbara-joans-dead.html
+
 **Miscalculation Leads to Escalation as Israel and Iran Clash**\
 `Israeli officials say they didn’t see a strike on a high-level Iranian target in Syria as a provocation, and did not give Washington a heads-up about it until right before it happened.`\
 https://nytimes.com/2024/04/17/world/middleeast/israel-iran-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/16/opinion/thepoint/biden-steel-tarriff
 **Thursday Briefing: Israel Seems Poised to Retaliate**\
 `Also, a deadly Russian missile strike in Ukraine and “green Islam” in Indonesia.`\
 https://nytimes.com/2024/04/17/world/asia/israel-iran-britain-ukraine-aid-asia.html
-
-**Atlas, a Humanoid Robot From Boston Dynamics, Is Leaping Into Retirement**\
-`It has been replaced by a new model, which will be used in automotive manufacturing. A farewell video featured the old machine running outdoors, performing back flips and awkwardly shimmying.`\
-https://nytimes.com/2024/04/17/technology/boston-dynamics-atlas-robot-retires.html
 
