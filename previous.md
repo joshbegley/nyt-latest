@@ -1,3 +1,11 @@
+**U.S. Restores Oil Sanctions on Venezuela as Hopes Dim for Free Election**\
+`The Biden administration had temporarily lifted sanctions after President Nicolás Maduro agreed to make free elections possible. Now Mr. Maduro has put up barriers to a credible vote.`\
+https://nytimes.com/2024/04/17/world/americas/us-oil-sanctions-venezuela-maduro.html
+
+**Senate Dismisses First of Two Impeachment Charges Against Mayorkas**\
+`Democrats moved quickly to sweep aside the article of impeachment accusing the homeland security secretary of refusing to enforce immigration laws, calling it unconstitutional.`\
+https://nytimes.com/2024/04/17/us/politics/senate-impeachment-charge-mayorkas.html
+
 **U.N. seeks $2.8 billion in donations for response to Gaza crisis.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/un-seeks-2-8-billion-in-donations-for-response-to-gaza-crisis
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/17/world/europe/uk-london-iranian-journalists-repres
 **4 Takeaways From the Hearing on Antisemitism at Columbia University**\
 `The closely watched hearing included several tense exchanges between members of Congress and Columbia representatives.`\
 https://nytimes.com/2024/04/17/nyregion/columbia-university-antisemitism-hearing-takeaways.html
-
-**Tesla Seeks to Revive Musk’s $47 Billion Pay Deal After Judge Says No**\
-`The company’s directors are asking shareholders to again approve the multibillion-dollar compensation plan and to move the company’s registration to Texas, from Delaware.`\
-https://nytimes.com/2024/04/17/business/tesla-elon-musk-pay.html
-
-**Biden Weighs in on Caitlin Clark Salary Debate After W.N.B.A. Draft**\
-`President Biden’s remarks on the issue came shortly after Caitlin Clark, the University of Iowa basketball star, was selected first in the W.N.B.A. draft.`\
-https://nytimes.com/2024/04/17/us/politics/caitlin-clark-salary-biden.html
 

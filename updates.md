@@ -1,3 +1,11 @@
+**U.S. Restores Oil Sanctions on Venezuela as Hopes Dim for Free Election**\
+`The Biden administration had temporarily lifted sanctions after President Nicolás Maduro agreed to make free elections possible. Now Mr. Maduro has put up barriers to a credible vote.`\
+https://nytimes.com/2024/04/17/world/americas/us-oil-sanctions-venezuela-maduro.html
+
+**Senate Dismisses First of Two Impeachment Charges Against Mayorkas**\
+`Democrats moved quickly to sweep aside the article of impeachment accusing the homeland security secretary of refusing to enforce immigration laws, calling it unconstitutional.`\
+https://nytimes.com/2024/04/17/us/politics/senate-impeachment-charge-mayorkas.html
+
 **U.N. seeks $2.8 billion in donations for response to Gaza crisis.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/un-seeks-2-8-billion-in-donations-for-response-to-gaza-crisis
