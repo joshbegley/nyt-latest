@@ -1,3 +1,7 @@
+**Israel ponders a response to Iran’s attack, with each choice a risk.**\
+`In debating how to respond to last weekend’s Iranian airstrike, Israel’s war cabinet is choosing between options that could deter future attacks or de-escalate hostilities.`\
+https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/israel-weighs-response-to-iran-attack-with-each-choice-a-risk
+
 **Here’s where Israel’s military offensive in Gaza stands.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/heres-where-israels-military-offensive-in-gaza-stands
