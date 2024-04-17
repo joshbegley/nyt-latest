@@ -1,4 +1,4 @@
-**Atlas, a Humanoid Robot Used for Research, Is Leaping Into Retirement**\
+**Atlas, a Humanoid Robot From Boston Dynamics, Is Leaping Into Retirement**\
 `It has been replaced by a new model, which will be used in automotive manufacturing. A farewell video featured the old machine running outdoors, performing back flips and awkwardly shimmying.`\
 https://nytimes.com/2024/04/17/technology/boston-dynamics-atlas-robot-retires.html
 

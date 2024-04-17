@@ -1,3 +1,7 @@
+**Thursday Briefing: Israel Seems Poised to Retaliate**\
+`Also, explosions in Crimea and “green Islam” in Indonesia.`\
+https://nytimes.com/2024/04/17/world/asia/israel-iran-britain-ukraine-aid-asia.html
+
 **Atlas, a Humanoid Robot From Boston Dynamics, Is Leaping Into Retirement**\
 `It has been replaced by a new model, which will be used in automotive manufacturing. A farewell video featured the old machine running outdoors, performing back flips and awkwardly shimmying.`\
 https://nytimes.com/2024/04/17/technology/boston-dynamics-atlas-robot-retires.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/opinion/guns-abortion-kari-lake.html
 **The New Age of D.I.Y. Medicine**\
 `A new vaccine for preventing cavities doesn’t have F.D.A. approval or promising clinical trials, but it does have customers.`\
 https://nytimes.com/2024/04/17/opinion/lumina-cavity-vaccine-covid-diy.html
-
-**Hezbollah Launches Attack on Northern Israeli Border Village**\
-`Hezbollah said its attack on the village of Arab al-Aramashe was in response to Israeli airstrikes a day earlier.`\
-https://nytimes.com/video/world/middleeast/100000009419521/hezbollah-drone-attack-israel.html
 
