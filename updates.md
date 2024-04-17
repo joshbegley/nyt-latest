@@ -1,3 +1,7 @@
+**U.N. seeks $2.8 billion in donations for response to Gaza crisis.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/un-seeks-2-8-billion-in-donations-for-response-to-gaza-crisis
+
 **Biden, Competing With Trump to Be Tough on China, Calls for Steel Tariffs**\
 `Speaking to the United Steelworkers union in Pittsburgh, the president urged major increases to some tariffs on steel and aluminum products from China.`\
 https://nytimes.com/2024/04/17/us/politics/biden-trump-china-tariffs.html
