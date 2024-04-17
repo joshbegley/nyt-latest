@@ -1,3 +1,11 @@
+**What’s in Our Queue? ‘Anatomy of a Fall’ and More**\
+`Natasha Frost shares five things she's recently heard, seen, and watched.`\
+https://nytimes.com/interactive/2024/04/17/arts/editors-recommendations-anatomy.html
+
+**Mount Ruang Erupts in Indonesia, Spewing Lava Thousands of Feet Into the Sky**\
+`Hundreds of earthquakes were detected in the weeks preceding the eruption of the volcano in North Sulawesi province. Hundreds of people were evacuated.`\
+https://nytimes.com/2024/04/17/world/asia/indonesia-volcano-eruption-ruang.html
+
 **This Lava Tube in Saudi Arabia Has Been a Human Refuge for 7,000 Years**\
 `Ancient humans left behind numerous archaeological traces in the cavern, and scientists say there may be thousands more like it on the Arabian Peninsula to study.`\
 https://nytimes.com/2024/04/17/science/saudi-arabia-lava-tube.html
