@@ -1,3 +1,7 @@
+**F.T.C. Said to Consider Blocking Major Fashion Merger**\
+`Regulators are expected to meet next week to discuss the $8.5 billion deal between Coach’s owner, Tapestry, and Michael Kors’ parent company, Capri Holdings, which would create a U.S. luxury conglomerate.`\
+https://nytimes.com/2024/04/17/business/dealbook/ftc-tapestry-capri-coach-michael-kors-versace.html
+
 **‘Shogun’: Anna Sawai on Her Character’s Final Transformation**\
 `In an interview, the actor discusses the most recent episode of the FX drama and how her Lady Mariko “wants to fulfill her purpose.”`\
 https://nytimes.com/2024/04/17/arts/television/shogun-anna-sawai-mariko.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/learning/has-your-birth-order-shaped-who-you-are.
 **A Timeline of Britain’s Troubled Plan to Send Asylum Seekers to Rwanda**\
 `The U.K. government hopes to pass a bill this week, two years after the plan was first unveiled, in an effort to override a ruling by Britain’s highest court that Rwanda is not safe for refugees.`\
 https://nytimes.com/2024/04/17/world/europe/uk-bill-asylum-rwanda.html
-
-**Sleep Apnea Reduced in People Who Took Weight-Loss Drug, Eli Lilly Reports**\
-`The company reported results of clinical trials involving Zepbound, an obesity drug in the same class as Novo Nordisk’s Wegovy.`\
-https://nytimes.com/2024/04/17/health/sleep-apnea-obesity-zepbound.html
 
