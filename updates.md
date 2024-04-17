@@ -1,3 +1,7 @@
+**Abortion Is Remaking Our Political Landscape. Why Aren’t Guns?**\
+`Is it possible for us to get to the same place on gun safety that we’re getting to on abortion — where the people who make the policy feel pressure to be sensible?`\
+https://nytimes.com/2024/04/17/opinion/guns-abortion-kari-lake.html
+
 **The New Age of D.I.Y. Medicine**\
 `A new vaccine for preventing cavities doesn’t have F.D.A. approval or promising clinical trials, but it does have customers.`\
 https://nytimes.com/2024/04/17/opinion/lumina-cavity-vaccine-covid-diy.html
