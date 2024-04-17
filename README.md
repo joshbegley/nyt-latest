@@ -1,3 +1,7 @@
+**Business and a Second Trump Term**\
+`Times reporters discuss the relationship between major C.E.O.s and Donald Trump.`\
+https://nytimes.com/2024/04/17/briefing/trump-election-ceos-business.html
+
 **Tesla Sets Up a New Showdown Over Elon Musk’s Pay**\
 `The electric vehicle maker will ask shareholders to vote again on a multibillion-dollar compensation package that was voided by a judge in January.`\
 https://nytimes.com/2024/04/17/business/elon-musk-pay-tesla.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/us/politics/abortion-tiktok-videos.html
 **As Lahaina Burned, Fire Crews Waited an Hour for Equipment**\
 `A new analysis of the August inferno on the island of Maui in Hawaii described heroic efforts by firefighters. But it also found many ways the town could have been better prepared.`\
 https://nytimes.com/2024/04/17/us/lahaina-maui-fire-report.html
-
-**Arizona Legislature Expects New Efforts to Repeal 1864 Abortion Ban**\
-`The state has been in turmoil since its Supreme Court upheld a near-total abortion ban dating back to the Civil War.`\
-https://nytimes.com/2024/04/17/us/arizona-abortion-ban-repeal.html
 
