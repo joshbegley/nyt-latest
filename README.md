@@ -1,40 +1,40 @@
-**Jimmy Kimmel Notes ‘Another Stormy Day’ in ‘The Orange People’s Court’**\
-`Kimmel said that former president Donald J. Trump is starring “as the defendant in his first of many criminal trials to come.”`\
-https://nytimes.com/2024/04/17/arts/television/jimmy-kimmel-trump-jury-selection.html
+**As Lahaina Burned, Fire Crews Waited an Hour for Equipment**\
+`A new analysis of the August inferno on the island of Maui in Hawaii described heroic efforts by firefighters. But it also found many ways the town could have been better prepared.`\
+https://nytimes.com/2024/04/17/us/lahaina-maui-fire-report.html
 
-**Inflation in U.K. Slows to 3.2%, Lowest in More Than 2 Years**\
-`As the economy cools, pressure is building on the Bank of England to cut interest rates.`\
-https://nytimes.com/2024/04/17/business/uk-inflation-economy-interest-rates.html
+**Arizona Legislature Expects New Efforts to Repeal 1864 Abortion Ban**\
+`The state has been in turmoil since its Supreme Court upheld a near-total abortion ban dating back to the Civil War.`\
+https://nytimes.com/2024/04/17/us/arizona-abortion-ban-repeal.html
 
-**2,000 Bags**\
-`What’s your favorite bag? Can you ever have too many?`\
-https://nytimes.com/2024/04/17/learning/2000-bags.html
+**Biden to Call for Tripling Tariffs on Chinese Steel Products**\
+`In a speech to union steelworkers in Pittsburgh, the president will announce several new measures meant to raise new barriers against floods of Chinese imports.`\
+https://nytimes.com/2024/04/17/us/politics/biden-tariffs-china-steel.html
 
-**Columbia’s President to Testify in Closely Watched Antisemitism Hearing**\
-`Nemat Shafik, Columbia University’s president, will address the congressional committee that questioned the presidents of Harvard, M.I.T. and the University of Pennsylvania last year.`\
-https://nytimes.com/2024/04/17/nyregion/columbia-university-nemat-shafik-congress-antisemitism-hearing.html
+**Johnson Needs Democrats on Ukraine, Handing Them Power to Shape Aid Plan**\
+`The Republican speaker’s elaborate strategy for passing a foreign aid package over his party’s objections will require the cooperation of Democrats to pass it — and possibly save his job.`\
+https://nytimes.com/2024/04/17/us/politics/johnson-democrats-ukraine-aid-plan.html
 
-**The Connections Companion No. 311**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/17/crosswords/connections-companion.html
+**Blinken Heads to G7 Meeting for Talks on Israel and Ukraine**\
+`The U.S. secretary of state and his counterparts will gather in Italy as world leaders try to contain the fallout from the Israel-Hamas war.`\
+https://nytimes.com/2024/04/17/us/politics/blinken-g7-israel-ukraine.html
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/17/crosswords/wordle-review.html
+**Hundreds of Small Presses Just Lost Their Distributor. Now What?**\
+`A nonprofit that distributed books for many of the country’s small presses has closed, and the fallout could affect the publishing industry in ways both big and small.`\
+https://nytimes.com/2024/04/17/books/small-press-distribution-closure.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/17/crosswords/spelling-bee-forum.html
+**Have Faith in the Trump Trial Jurors**\
+`Jesse Wegman on why “the system is operating as intended.”`\
+https://nytimes.com/2024/04/17/opinion/trump-trial-jurors.html
 
-**Here’s where Israel’s military offensive in Gaza stands.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/heres-where-israels-military-offensive-in-gaza-stands
+**Who Wants to Be a Traitor?**\
+`Reality stars and other people with some degree of fame are making no secret of their hopes to join the next cast of the hit show “The Traitors.”`\
+https://nytimes.com/2024/04/17/style/traitors-peacock-cast.html
 
-**Israel ponders a response to Iran’s attack, with each choice a risk.**\
-`In debating how to respond to last weekend’s Iranian airstrike, Israel’s war cabinet is choosing between options that could deter future attacks or de-escalate hostilities.`\
-https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/israel-weighs-response-to-iran-attack-with-each-choice-a-risk
+**Denis Villeneuve Answers All Your Questions About ‘Dune: Part Two’**\
+`He explains why Lady Jessica’s face is so heavily tattooed, whether Paul considers himself the Messiah and what he thinks of those Javier Bardem memes.`\
+https://nytimes.com/2024/04/17/movies/denis-villeneuve-dune-part-two.html
 
-**17mideast-crisis**\
-`Israel’s Conflict With Iran Overshadows Fighting in Gaza`\
-https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news
+**VW Workers in Tennessee Start Vote on U.A.W., Testing Union Ambitions**\
+`The United Automobile Workers hopes contract gains at the Big Three carmakers will provide momentum in a broad effort to organize nonunion plants.`\
+https://nytimes.com/2024/04/17/business/economy/volkswagen-united-auto-workers-union.html
 
