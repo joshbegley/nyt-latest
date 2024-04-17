@@ -1,3 +1,7 @@
+**Women Talk Through Their Abortions on TikTok**\
+`At a time of heightened confusion and legal battles over access to abortion, women are looking to social media for answers.`\
+https://nytimes.com/2024/04/17/us/politics/abortion-tiktok-videos.html
+
 **As Lahaina Burned, Fire Crews Waited an Hour for Equipment**\
 `A new analysis of the August inferno on the island of Maui in Hawaii described heroic efforts by firefighters. But it also found many ways the town could have been better prepared.`\
 https://nytimes.com/2024/04/17/us/lahaina-maui-fire-report.html
