@@ -23,7 +23,7 @@ https://nytimes.com/2024/04/17/world/middleeast/un-report-israel-detainees-abuse
 https://nytimes.com/2024/04/17/world/middleeast/hezbollah-drone-attack-israel.html
 
 **17columbia-antisemitism**\
-`Live Updates: Columbia’s President to Testify in Antisemitism Hearing`\
+`Watch Live: Columbia’s President Testifying in Antisemitism Hearing`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing
 
 **Testifying in Congress can be a minefield. So why do it?**\
