@@ -1,3 +1,7 @@
+**Word of the Day: sparse**\
+`This word has appeared in 194 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/17/learning/word-of-the-day-sparse.html
+
 **Venezuelans Are Suffering, but More Sanctions Won’t Help**\
 `The Biden administration wants to lift damaging oil sanctions but is caught in a political bind with Venezuela’s dictator.`\
 https://nytimes.com/2024/04/17/opinion/venezuela-oil-sanctions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/arts/immanuel-kant-300-anniversary.html
 **Bob Graham, Former Florida Governor and Senator, Dies at 87**\
 `After the 9/11 attacks, Mr. Graham became an outspoken critic of President George W. Bush’s response and voted against invading Iraq.`\
 https://nytimes.com/2024/04/16/us/bob-graham-dead.html
-
-**Alabama Runoff Elections Set Field in Newly Competitive House District**\
-`Shomari Figures, a Democrat who worked in the Justice Department, and Caroleene Dobson, a Republican newcomer, advanced in the state’s Second Congressional District.`\
-https://nytimes.com/2024/04/16/us/politics/alabama-second-district.html
 
