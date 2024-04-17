@@ -1,3 +1,7 @@
+**Spot to Park**\
+`Joseph Gangi makes our eyes play tricks on us.`\
+https://nytimes.com/2024/04/16/crosswords/spot-to-park.html
+
 **Michigan Democrats Reclaim Full Control of Statehouse With Special Election Wins**\
 `The departure of two Democratic representatives who won suburban mayoral posts last fall evenly split the Michigan House.`\
 https://nytimes.com/2024/04/16/us/michigan-democrats-trifecta.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/sports/baseball/ken-holtzman-dead.html
 **The Met, Amid an Audit of its Holdings, Returns an Ancient Statue to Iraq**\
 `The museum said its enhanced effort to study the provenance of items in its collection had turned up evidence that the statue of a Sumerian man was the property of Iraq.`\
 https://nytimes.com/2024/04/16/arts/met-returns-iraq-statue.html
-
-**The Supreme Court May Side With Jan. 6 Rioters, and Their Leader**\
-`The decision could affect the number of federal charges against Trump.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/supreme-court-rioters-trump
 
