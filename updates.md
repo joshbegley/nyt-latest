@@ -1,3 +1,15 @@
+**What a TikTok Ban Would Mean for the U.S. Defense of an Open Internet**\
+`Global digital rights advocates are watching to see if Congress acts, worried that other countries could follow suit with app bans of their own.`\
+https://nytimes.com/2024/04/17/technology/tiktok-ban-internet-freedom.html
+
+**Sophie Kinsella, ‘Shopaholic’ Author, Says She Has Brain Cancer**\
+`The author of the best-selling book series said she had been undergoing treatment for glioblastoma, an aggressive brain tumor, after a diagnosis in 2022.`\
+https://nytimes.com/2024/04/17/books/sophie-kinsella-brain-cancer.html
+
+**Nine People, Including an Airline Worker, Are Arrested in $14.5 Million Gold Heist**\
+`The stolen gold was partly used to buy guns that were bound for Canada, the police said.`\
+https://nytimes.com/2024/04/17/canada-gold-heist-pearson-airport.html
+
 **Review: Limbs Hook Onto Limbs as Bodies Endlessly Intertwine**\
 `The Sydney Dance Company’s “ab [intra]” at the Joyce Theater is impressive but chilly.`\
 https://nytimes.com/2024/04/17/arts/dance/review-sydney-dance-company-ab-intra-joyce-theater.html

@@ -1,3 +1,15 @@
+**What a TikTok Ban Would Mean for the U.S. Defense of an Open Internet**\
+`Global digital rights advocates are watching to see if Congress acts, worried that other countries could follow suit with app bans of their own.`\
+https://nytimes.com/2024/04/17/technology/tiktok-ban-internet-freedom.html
+
+**Sophie Kinsella, ‘Shopaholic’ Author, Says She Has Brain Cancer**\
+`The author of the best-selling book series said she had been undergoing treatment for glioblastoma, an aggressive brain tumor, after a diagnosis in 2022.`\
+https://nytimes.com/2024/04/17/books/sophie-kinsella-brain-cancer.html
+
+**Nine People, Including an Airline Worker, Are Arrested in $14.5 Million Gold Heist**\
+`The stolen gold was partly used to buy guns that were bound for Canada, the police said.`\
+https://nytimes.com/2024/04/17/canada-gold-heist-pearson-airport.html
+
 **Review: Limbs Hook Onto Limbs as Bodies Endlessly Intertwine**\
 `The Sydney Dance Company’s “ab [intra]” at the Joyce Theater is impressive but chilly.`\
 https://nytimes.com/2024/04/17/arts/dance/review-sydney-dance-company-ab-intra-joyce-theater.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/17/arts/music/lincoln-center-summer-for-the-city.htm
 **Two bakeries reopen in hunger-stricken Gaza City, but the question is for how long?**\
 `By Liam Stack and Adam Rasgon`\
 https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/two-bakeries-reopen-in-hunger-stricken-gaza-city-but-the-question-is-for-how-long
-
-**Stefanik Has Taken Aim at Elite College Presidents**\
-`Representative Elise Stefanik was already a rising star within her party, but her grilling of the presidents of Harvard, Penn and M.I.T. at a December hearing became a defining moment.`\
-https://nytimes.com/2024/04/17/nyregion/stefanik-college-presidents.html
-
-**NPR Editor Who Accused Broadcaster of Liberal Bias Resigns**\
-`Uri Berliner, who has worked at NPR for 25 years, said in an essay last week that the nonprofit had allowed progressive bias to taint its coverage.`\
-https://nytimes.com/2024/04/17/business/media/uri-berliner-npr-resigns.html
-
-**Trains, Trucks and Tractors: The Race to Reroute Goods From Baltimore**\
-`Since the collapse of the Key Bridge, other East Coast ports have absorbed the cargo previously handled in Baltimore, but some parts of the supply chain like trucking are struggling.`\
-https://nytimes.com/2024/04/17/business/ports-truckers-baltimore-bridge.html
 
