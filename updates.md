@@ -1,3 +1,11 @@
+**Trump Demands a Cut of Donations From Campaigns That Use His Name**\
+`The Trump campaign said that candidates using his brand should turn over at least 5 percent of donations and encouraged them to send more than the minimum.`\
+https://nytimes.com/2024/04/17/us/politics/trump-fundraising-republicans.html
+
+**Vampire Weekend’s New Album Goes Underground and All Over**\
+`Digging into “Only God Was Above Us,” an LP that’s both catchy and complex.`\
+https://nytimes.com/2024/04/17/arts/music/popcast-vampire-weekend.html
+
 **Guantánamo Bay Opens an Extra Courtroom**\
 `Planners added the national security courtroom for pretrial hearings and to prepare for the possibility of a Sept. 11 trial.`\
 https://nytimes.com/2024/04/17/us/politics/guantanamo-second-courtroom.html
