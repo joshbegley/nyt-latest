@@ -1,3 +1,7 @@
+**Nemat Shafik is new to Columbia, but not to high-profile settings.**\
+`By Sharon Otterman`\
+https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/nemat-shafik-is-new-to-columbia-but-not-to-high-profile-settings
+
 **Buildings Destroyed by Russian Missile Attack in Northern Ukraine**\
 `Several buildings, including a hospital, were damaged by a deadly Russian missile attack in Chernihiv in northern Ukraine.`\
 https://nytimes.com/video/world/europe/100000009418577/russia-missile-attack-chernihiv-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/17/us/biden-trump-election-news
 **How to define the term ‘antisemitism’ is the subject of bitter debate.**\
 `By Vimal Patel`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/how-to-define-the-term-antisemitism-is-the-subject-of-a-bitter-debate
-
-**U.N. Report Describes Physical Abuse and Dire Conditions in Israeli Detention**\
-`Some Palestinians recounted being beaten with metal bars or the butts of guns, according to the report. Israeli officials have said that the rights of detainees are respected.`\
-https://nytimes.com/2024/04/17/world/middleeast/un-report-israel-detainees-abuse.html
 

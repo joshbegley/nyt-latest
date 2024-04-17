@@ -1,3 +1,7 @@
+**Read Nemat Shafik’s Opening Remarks**\
+`In her prepared opening statement, Nemat Shafik, the president of Columbia University, laid out ways the university has been responding to antisemitism on campus.`\
+https://nytimes.com/interactive/2024/04/17/us/shafik-statement-document.html
+
 **Nemat Shafik is new to Columbia, but not to high-profile settings.**\
 `By Sharon Otterman`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/nemat-shafik-is-new-to-columbia-but-not-to-high-profile-settings
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/17/us/biden-trump-election-news/biden-in-pennsy
 **17pol-swiper**\
 `Election Updates: Biden campaigns again in Pennsylvania, a swing state crucial to his re-election hopes.`\
 https://nytimes.com/live/2024/04/17/us/biden-trump-election-news
-
-**How to define the term ‘antisemitism’ is the subject of bitter debate.**\
-`By Vimal Patel`\
-https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/how-to-define-the-term-antisemitism-is-the-subject-of-a-bitter-debate
 

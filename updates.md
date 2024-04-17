@@ -1,3 +1,7 @@
+**Nemat Shafik is new to Columbia, but not to high-profile settings.**\
+`By Sharon Otterman`\
+https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/nemat-shafik-is-new-to-columbia-but-not-to-high-profile-settings
+
 **Buildings Destroyed by Russian Missile Attack in Northern Ukraine**\
 `Several buildings, including a hospital, were damaged by a deadly Russian missile attack in Chernihiv in northern Ukraine.`\
 https://nytimes.com/video/world/europe/100000009418577/russia-missile-attack-chernihiv-ukraine.html
