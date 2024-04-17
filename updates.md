@@ -1,3 +1,23 @@
+**2,000 Bags**\
+`What’s your favorite bag? Can you ever have too many?`\
+https://nytimes.com/2024/04/17/learning/2000-bags.html
+
+**Columbia’s President to Testify in Closely Watched Antisemitism Hearing**\
+`Nemat Shafik, Columbia University’s president, will address the congressional committee that questioned the presidents of Harvard, M.I.T. and the University of Pennsylvania last year.`\
+https://nytimes.com/2024/04/17/nyregion/columbia-university-nemat-shafik-congress-antisemitism-hearing.html
+
+**The Connections Companion No. 311**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/17/crosswords/connections-companion.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/17/crosswords/wordle-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/17/crosswords/spelling-bee-forum.html
+
 **Israel ponders a response to Iran’s attack, with each choice a risk.**\
 `In debating how to respond to last weekend’s Iranian airstrike, Israel’s war cabinet is choosing between options that could deter future attacks or de-escalate hostilities.`\
 https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/israel-weighs-response-to-iran-attack-with-each-choice-a-risk
