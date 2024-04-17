@@ -1,3 +1,7 @@
+**A witness describes losing four nieces and nephews in an attack that killed several children playing in the street.**\
+`By Anushka Patil and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/a-witness-describes-losing-four-nieces-and-nephews-in-an-attack-that-killed-several-children-playing-in-the-street
+
 **The Kamala Harris Moment Has Arrived**\
 `With the issue of abortion rights, the vice president has hit her stride.`\
 https://nytimes.com/2024/04/17/opinion/kamala-harris-reproductive-rights.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/world/middleeast/iran-israel-attack.html
 **Is Trump’s Trial Really About ‘Hush Money’?**\
 `Both the prosecutors and defense are trying to frame it differently.`\
 https://nytimes.com/2024/04/17/us/politics/trump-trial-hush-money.html
-
-**N.R.A. to Overhaul Charity It’s Accused of Using as a ‘Piggy Bank’**\
-`The gun group settled with the District of Columbia’s attorney general, who said it had misused tax-deductible donations. The N.R.A. denies all wrongdoing in the case.`\
-https://nytimes.com/2024/04/17/us/nra-settlement.html
 
