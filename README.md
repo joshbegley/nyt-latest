@@ -1,3 +1,7 @@
+**Columbia has been host to charged protests over Gaza in recent months.**\
+`By Sharon Otterman`\
+https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/columbia-has-been-host-to-charged-protests-over-gaza-in-recent-months
+
 **My Boyfriend Said He’d Save Our Cat but Not a Stranger if Both Were Drowning**\
 `The magazine’s Ethicist columnist on whether there is inherent value in human life more than any other kind of life.`\
 https://nytimes.com/2024/04/17/magazine/human-pet-life-ethics.html
@@ -18,9 +22,9 @@ https://nytimes.com/2024/04/17/arts/music/lincoln-center-summer-for-the-city.htm
 `By Liam Stack and Adam Rasgon`\
 https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/two-bakeries-reopen-in-hunger-stricken-gaza-city-but-the-question-is-for-how-long
 
-**Elise Stefanik has taken aim at college presidents on elite campuses.**\
-`By Nicholas Fandos`\
-https://nytimes.com/2024/04/17/nyregion/elise-stefanik-has-taken-aim-at-college-presidents-on-elite-campuses.html
+**Stefanik Has Taken Aim at Elite College Presidents**\
+`Representative Elise Stefanik was already a rising star within her party, but her grilling of the presidents of Harvard, Penn and M.I.T. at a December hearing became a defining moment.`\
+https://nytimes.com/2024/04/17/nyregion/stefanik-college-presidents.html
 
 **NPR Editor Who Accused Broadcaster of Liberal Bias Resigns**\
 `Uri Berliner, who has worked at NPR for 25 years, said in an essay last week that the nonprofit had allowed progressive bias to taint its coverage.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/business/ports-truckers-baltimore-bridge.html
 **Shafik emphasizes that Columbia has ramped up disciplinary proceedings.**\
 `By Anemona Hartocollis`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/shafik-emphasizes-that-columbia-has-ramped-up-disciplinary-proceedings
-
-**Easy Spring Dishes With Time-Saving Shortcuts**\
-`Sautéed salmon with tomatoes and leeks, chilaquiles verdes and one-pan orzo with spinach and feta welcome a little kitchen cheating.`\
-https://nytimes.com/2024/04/17/dining/easy-spring-dishes.html
 
