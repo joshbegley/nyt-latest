@@ -1,3 +1,7 @@
+**Women Talk Through Their Abortions on TikTok**\
+`At a time of heightened confusion and legal battles over access to abortion, women are looking to social media for answers.`\
+https://nytimes.com/2024/04/17/us/politics/abortion-tiktok-videos.html
+
 **As Lahaina Burned, Fire Crews Waited an Hour for Equipment**\
 `A new analysis of the August inferno on the island of Maui in Hawaii described heroic efforts by firefighters. But it also found many ways the town could have been better prepared.`\
 https://nytimes.com/2024/04/17/us/lahaina-maui-fire-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/style/traitors-peacock-cast.html
 **Denis Villeneuve Answers All Your Questions About ‘Dune: Part Two’**\
 `He explains why Lady Jessica’s face is so heavily tattooed, whether Paul considers himself the Messiah and what he thinks of those Javier Bardem memes.`\
 https://nytimes.com/2024/04/17/movies/denis-villeneuve-dune-part-two.html
-
-**VW Workers in Tennessee Start Vote on U.A.W., Testing Union Ambitions**\
-`The United Automobile Workers hopes contract gains at the Big Three carmakers will provide momentum in a broad effort to organize nonunion plants.`\
-https://nytimes.com/2024/04/17/business/economy/volkswagen-united-auto-workers-union.html
 
