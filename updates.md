@@ -1,3 +1,7 @@
+**Tesla’s Board Backs a Pay Package for Elon Musk Struck Down by Judge**\
+`The company’s directors are asking shareholders to again approve the multibillion-dollar compensation plan and to move the company’s registration to Texas, from Delaware.`\
+https://nytimes.com/2024/04/17/business/tesla-elon-musk-pay.html
+
 **Biden Weighs in on Caitlin Clark Salary Debate After W.N.B.A. Draft**\
 `President Biden’s remarks on the issue came shortly after Caitlin Clark, the University of Iowa basketball star, was selected first in the W.N.B.A. draft.`\
 https://nytimes.com/2024/04/17/us/politics/caitlin-clark-salary-biden.html
