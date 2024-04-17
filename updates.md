@@ -1,3 +1,11 @@
+**Michigan Democrats Reclaim Full Control of Statehouse With Special Election Wins**\
+`The departure of two Democratic representatives who won suburban mayoral posts last fall evenly split the Michigan House.`\
+https://nytimes.com/2024/04/16/us/michigan-democrats-trifecta.html
+
+**Trump Leaves His Trial to Rail Against Crime and Jab at Prosecutor**\
+`After a day in court, Donald Trump visited a bodega in Harlem where a clerk stabbed a man in 2022 and was charged by Alvin Bragg, who also leveled felony charges against the former president.`\
+https://nytimes.com/2024/04/16/us/politics/trump-harlem-bragg-crime.html
+
 **Review: In ‘Sally & Tom,’ Plantation Scandal Meets Backstage Farce**\
 `The 30-year relationship between Sally Hemings and Thomas Jefferson is the basis for Suzan-Lori Parks’s hilarious and harrowing nesting doll of a play.`\
 https://nytimes.com/2024/04/16/theater/sally-and-tom-review-suzan-lori-parks.html
