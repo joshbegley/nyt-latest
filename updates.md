@@ -1,3 +1,7 @@
+**Jimmy Kimmel Notes ‘Another Stormy Day’ in ‘The Orange People’s Court’**\
+`Kimmel said that former president Donald J. Trump is starring “as the defendant in his first of many criminal trials to come.”`\
+https://nytimes.com/2024/04/17/arts/television/jimmy-kimmel-trump-jury-selection.html
+
 **Inflation in U.K. Slows to 3.2%, Lowest in More Than 2 Years**\
 `As the economy cools, pressure is building on the Bank of England to cut interest rates.`\
 https://nytimes.com/2024/04/17/business/uk-inflation-economy-interest-rates.html
