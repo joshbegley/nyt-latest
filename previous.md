@@ -1,10 +1,26 @@
+**My Boyfriend Said He’d Save Our Cat but Not a Stranger if Both Were Drowning**\
+`The magazine’s Ethicist columnist on whether there is inherent value in human life more than any other kind of life.`\
+https://nytimes.com/2024/04/17/magazine/human-pet-life-ethics.html
+
+**The Language of Gender Identity**\
+`Readers discuss an essay that criticized wording like “sex assigned at birth.” Also: Power over principle; the electric grid; Shakespeare’s insights.`\
+https://nytimes.com/2024/04/17/opinion/gender-identity.html
+
+**On the Ground at the Venice Biennale**\
+`Scenes from the pre-opening at the pivotal art event.`\
+https://nytimes.com/article/venice-biennale-2024.html
+
+**Lincoln Center’s Summer Festival to Focus on Civic Bonds**\
+`The third edition of Summer for the City will feature hip-hop, comedy, classical music and more, under the motto “life, liberty and happiness.”`\
+https://nytimes.com/2024/04/17/arts/music/lincoln-center-summer-for-the-city.html
+
 **Two bakeries reopen in hunger-stricken Gaza City, but the question is for how long?**\
 `By Liam Stack and Adam Rasgon`\
 https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/two-bakeries-reopen-in-hunger-stricken-gaza-city-but-the-question-is-for-how-long
 
 **Elise Stefanik has taken aim at college presidents on elite campuses.**\
 `By Nicholas Fandos`\
-https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/elise-stefanik-has-taken-aim-at-college-presidents-on-elite-campuses
+https://nytimes.com/2024/04/17/nyregion/elise-stefanik-has-taken-aim-at-college-presidents-on-elite-campuses.html
 
 **NPR Editor Who Accused Broadcaster of Liberal Bias Resigns**\
 `Uri Berliner, who has worked at NPR for 25 years, said in an essay last week that the nonprofit had allowed progressive bias to taint its coverage.`\
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/shafi
 **Easy Spring Dishes With Time-Saving Shortcuts**\
 `Sautéed salmon with tomatoes and leeks, chilaquiles verdes and one-pan orzo with spinach and feta welcome a little kitchen cheating.`\
 https://nytimes.com/2024/04/17/dining/easy-spring-dishes.html
-
-**Tribeca Festival to Feature Brat Pack and Lily Gladstone Films**\
-`Organizers released the event lineup for the annual New York event, set for June. It includes films that trace the lives of Linda Perry and Avicii.`\
-https://nytimes.com/2024/04/17/movies/tribeca-festival-lineup.html
-
-**From a Tiny Island in Maine, He Serves Up Fresh Media Gossip**\
-`Rusty Foster could never live in New York. But his hit newsletter, Today in Tabs, is an enduring obsession of the city’s media class.`\
-https://nytimes.com/2024/04/17/style/today-in-tabs-rusty-foster-media-gossip-maine.html
-
-**At Venice Biennale, Israel’s Show Is Halted, but Protests Go On**\
-`The country’s exhibition was already closed after its artist refused to exhibit her work until there was a cease-fire and hostage deal in Gaza. But that didn’t calm the discontent.`\
-https://nytimes.com/2024/04/17/arts/design/israel-gaza-protest-venice-biennale.html
-
-**A Little Bit of Dirt Is Good for You**\
-`Go on, grab a handful of soil or hike a muddy trail: It can benefit everything from your mood to your microbiome.`\
-https://nytimes.com/2024/04/17/well/live/dirt-health-benefits.html
 
