@@ -1,3 +1,7 @@
+**The Kamala Harris Moment Has Arrived**\
+`With the issue of abortion rights, the vice president has hit her stride.`\
+https://nytimes.com/2024/04/17/opinion/kamala-harris-reproductive-rights.html
+
 **Deluge Batters U.A.E. and Oman, Killing at Least 19**\
 `The heavy rains also flooded parts of Dubai International Airport, causing scores of flight delays and cancellations, and brought other cities in the U.A.E. to a standstill.`\
 https://nytimes.com/2024/04/17/homepage/dubai-airport-oman-flooding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/us/politics/trump-trial-hush-money.html
 **N.R.A. to Overhaul Charity It’s Accused of Using as a ‘Piggy Bank’**\
 `The gun group settled with the District of Columbia’s attorney general, who said it had misused tax-deductible donations. The N.R.A. denies all wrongdoing in the case.`\
 https://nytimes.com/2024/04/17/us/nra-settlement.html
-
-**As Civil Rights Era Fades From Memory, Generation Gap Divides Black Voters**\
-`Many older Black voters see moral and political reasons to vote. Younger Black voters feel far less motivated to cast a ballot for Democrats or even at all.`\
-https://nytimes.com/2024/04/17/us/politics/black-democrats-age-gap.html
 
