@@ -1,3 +1,7 @@
+**Two bakeries reopen in hunger-stricken Gaza City, but the question is for how long?**\
+`By Liam Stack and Adam Rasgon`\
+https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/two-bakeries-reopen-in-hunger-stricken-gaza-city-but-the-question-is-for-how-long
+
 **Elise Stefanik has taken aim at college presidents on elite campuses.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/elise-stefanik-has-taken-aim-at-college-presidents-on-elite-campuses
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/arts/design/israel-gaza-protest-venice-biennale.h
 **A Little Bit of Dirt Is Good for You**\
 `Go on, grab a handful of soil or hike a muddy trail: It can benefit everything from your mood to your microbiome.`\
 https://nytimes.com/2024/04/17/well/live/dirt-health-benefits.html
-
-**Who are Claire Shipman and David Greenwald?**\
-`By Sharon Otterman`\
-https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/who-are-claire-shipman-and-david-greenwald
 
