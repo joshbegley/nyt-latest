@@ -1,3 +1,7 @@
+**Review: Limbs Hook Onto Limbs as Bodies Endlessly Intertwine**\
+`The Sydney Dance Company’s “ab [intra]” at the Joyce Theater is impressive but chilly.`\
+https://nytimes.com/2024/04/17/arts/dance/review-sydney-dance-company-ab-intra-joyce-theater.html
+
 **Columbia has been host to charged protests over Gaza in recent months.**\
 `By Sharon Otterman`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/columbia-has-been-host-to-charged-protests-over-gaza-in-recent-months
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/business/media/uri-berliner-npr-resigns.html
 **Trains, Trucks and Tractors: The Race to Reroute Goods From Baltimore**\
 `Since the collapse of the Key Bridge, other East Coast ports have absorbed the cargo previously handled in Baltimore, but some parts of the supply chain like trucking are struggling.`\
 https://nytimes.com/2024/04/17/business/ports-truckers-baltimore-bridge.html
-
-**Shafik emphasizes that Columbia has ramped up disciplinary proceedings.**\
-`By Anemona Hartocollis`\
-https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/shafik-emphasizes-that-columbia-has-ramped-up-disciplinary-proceedings
 
