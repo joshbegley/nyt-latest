@@ -1,3 +1,7 @@
+**Heavy Rainfall in Oman, Which Killed 18, Expected to Continue on Wednesday**\
+`The neighboring United Arab Emirates also experienced its largest rainfall in 75 years, with a year’s worth of rain falling on Dubai alone.`\
+https://nytimes.com/2024/04/17/us/oman-flood-rain-emirates-deaths.html
+
 **What Can ‘Green Islam’ Achieve in the World’s Largest Muslim Country?**\
 `Clerics in Indonesia are issuing fatwas, retrofitting mosques and imploring congregants to help turn the tide against climate change.`\
 https://nytimes.com/2024/04/17/world/asia/green-islam-indonesia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/16/crosswords/daily-puzzle-2024-04-17.html
 **Michigan Democrats Reclaim Full Control of Statehouse With Special Election Wins**\
 `The departure of two Democratic representatives who won suburban mayoral posts last fall evenly split the Michigan House.`\
 https://nytimes.com/2024/04/16/us/michigan-democrats-trifecta.html
-
-**Trump Leaves His Trial to Rail Against Crime and Jab at Prosecutor**\
-`After a day in court, Donald Trump visited a bodega in Harlem where a clerk stabbed a man in 2022 and was charged by Alvin Bragg, who also leveled felony charges against the former president.`\
-https://nytimes.com/2024/04/16/us/politics/trump-harlem-bragg-crime.html
 
