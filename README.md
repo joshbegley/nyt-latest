@@ -1,3 +1,11 @@
+**Miscalculation Leads to Escalation as Israel and Iran Clash**\
+`Israeli officials say they didn’t see a strike on a high-level Iranian target in Syria as a provocation, and did not give Washington a heads-up about it until right before it happened.`\
+https://nytimes.com/2024/04/17/world/middleeast/israel-iran-attack.html
+
+**Is Trump’s Trial Really About ‘Hush Money’?**\
+`Both the prosecutors and defense are trying to frame it differently.`\
+https://nytimes.com/2024/04/17/us/politics/trump-trial-hush-money.html
+
 **N.R.A. to Overhaul Charity It’s Accused of Using as a ‘Piggy Bank’**\
 `The gun group settled with the District of Columbia’s attorney general, who said it had misused tax-deductible donations. The N.R.A. denies all wrongdoing in the case.`\
 https://nytimes.com/2024/04/17/us/nra-settlement.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/17/world/asia/israel-iran-britain-ukraine-aid-asia.h
 **Atlas, a Humanoid Robot From Boston Dynamics, Is Leaping Into Retirement**\
 `It has been replaced by a new model, which will be used in automotive manufacturing. A farewell video featured the old machine running outdoors, performing back flips and awkwardly shimmying.`\
 https://nytimes.com/2024/04/17/technology/boston-dynamics-atlas-robot-retires.html
-
-**An Absurd Impeachment Reaches a Satisfying End**\
-`The Senate did the country a favor by sparing the public a farcical trial.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/mayorkas-impeachment-ends
-
-**Popcast (Deluxe): It’s Drake vs. Everybody … Who’s Winning?**\
-`Breaking down the convoluted recent beef between Drake and Kendrick Lamar (and Future, Metro Boomin, the Weeknd, ASAP Rocky, Rick Ross and more).`\
-https://nytimes.com/2024/04/17/arts/music/drake-kendrick-beef-popcast-deluxe.html
 
