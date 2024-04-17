@@ -1,3 +1,11 @@
+**‘Bone Valley’ Podcast Subject Is Granted Parole 37 Years After Wife’s Murder**\
+`Leo Schofield has maintained innocence all along in his wife’s murder in 1987, and another man has since confessed to the killing.`\
+https://nytimes.com/2024/04/17/us/bone-valley-leo-schofield-parole.html
+
+**Who are the Columbia professors mentioned in the hearing?**\
+`By Stephanie Saul`\
+https://nytimes.com/2024/04/17/nyregion/who-are-the-columbia-professors-mentioned-in-the-hearing.html
+
 **Long-Acting Drugs May Revolutionize H.I.V. Prevention and Treatment**\
 `New regimens in development, including once-weekly pills and semiannual shots, could help control the virus in hard-to-reach populations.`\
 https://nytimes.com/2024/04/17/health/hiv-long-acting-shots-pills.html
