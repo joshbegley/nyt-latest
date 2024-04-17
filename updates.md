@@ -1,3 +1,7 @@
+**Guantánamo Bay Opens an Extra Courtroom**\
+`Planners added the national security courtroom for pretrial hearings and to prepare for the possibility of a Sept. 11 trial.`\
+https://nytimes.com/2024/04/17/us/politics/guantanamo-second-courtroom.html
+
 **Barbara Joans, Anthropologist Who Studied Biker Culture, Dies at 89**\
 `In her 60s, she hit the open road on a hulking Harley-Davidson and found a new area of academic research: bikers, and in particular, women bikers.`\
 https://nytimes.com/2024/04/17/us/barbara-joans-dead.html
