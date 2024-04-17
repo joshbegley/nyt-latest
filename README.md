@@ -1,3 +1,11 @@
+**A Little Bit of Dirt Is Good for You**\
+`Go on, grab a handful of soil or hike a muddy trail: It can benefit everything from your mood to your microbiome.`\
+https://nytimes.com/2024/04/17/well/live/dirt-health-benefits.html
+
+**Who are Claire Shipman and David Greenwald?**\
+`By Sharon Otterman`\
+https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/who-are-claire-shipman-and-david-greenwald
+
 **Read Nemat Shafik’s Opening Remarks**\
 `In her prepared opening statement, Nemat Shafik, the president of Columbia University, laid out ways the university has been responding to antisemitism on campus.`\
 https://nytimes.com/interactive/2024/04/17/us/shafik-statement-document.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/17/theater/agreement-philadelphia-here-i-come-irish.
 **When a Mob Gets to Veto a Valedictorian’s Speech**\
 `A threat of violence shouldn’t cancel the right to free expression.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/usc-valedictorian-speech-canceled
-
-**Biden, in Pennsylvania, will speak to the United Steelworkers.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/04/17/us/biden-trump-election-news/biden-in-pennsylvania-will-speak-to-the-united-steelworkers
-
-**17pol-swiper**\
-`Election Updates: Biden campaigns again in Pennsylvania, a swing state crucial to his re-election hopes.`\
-https://nytimes.com/live/2024/04/17/us/biden-trump-election-news
 
