@@ -1,3 +1,7 @@
+**Here are some of the recent antisemitism allegations against Columbia.**\
+`By Sharon Otterman`\
+https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/here-are-some-of-the-recent-antisemitism-allegations-against-columbia
+
 **Keith Haring’s Legacy Is Not Found at the Museum**\
 `Three decades after his death, his work is still sold on products and in stores. But his concept of public art is most powerfully preserved on the street.`\
 https://nytimes.com/2024/04/17/arts/design/keith-haring-brad-gooch.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/technology/tiktok-ban-internet-freedom.html
 **Sophie Kinsella, ‘Shopaholic’ Author, Says She Has Brain Cancer**\
 `The author of the best-selling book series said she had been undergoing treatment for glioblastoma, an aggressive brain tumor, after a diagnosis in 2022.`\
 https://nytimes.com/2024/04/17/books/sophie-kinsella-brain-cancer.html
-
-**Nine People, Including an Airline Worker, Are Arrested in $14.5 Million Gold Heist**\
-`The stolen gold was partly used to buy guns that were bound for Canada, the police said.`\
-https://nytimes.com/2024/04/17/canada-gold-heist-pearson-airport.html
 
