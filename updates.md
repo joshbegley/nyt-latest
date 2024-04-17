@@ -1,3 +1,7 @@
+**Shafik emphasizes that Columbia has ramped up disciplinary proceedings.**\
+`By Anemona Hartocollis`\
+https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/shafik-emphasizes-that-columbia-has-ramped-up-disciplinary-proceedings
+
 **Easy Spring Dishes With Time-Saving Shortcuts**\
 `Sautéed salmon with tomatoes and leeks, chilaquiles verdes and one-pan orzo with spinach and feta welcome a little kitchen cheating.`\
 https://nytimes.com/2024/04/17/dining/easy-spring-dishes.html

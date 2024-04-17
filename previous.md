@@ -1,3 +1,7 @@
+**Shafik emphasizes that Columbia has ramped up disciplinary proceedings.**\
+`By Anemona Hartocollis`\
+https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/shafik-emphasizes-that-columbia-has-ramped-up-disciplinary-proceedings
+
 **Easy Spring Dishes With Time-Saving Shortcuts**\
 `Sautéed salmon with tomatoes and leeks, chilaquiles verdes and one-pan orzo with spinach and feta welcome a little kitchen cheating.`\
 https://nytimes.com/2024/04/17/dining/easy-spring-dishes.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/nemat
 **Buildings Destroyed by Russian Missile Attack in Northern Ukraine**\
 `Several buildings, including a hospital, were damaged by a deadly Russian missile attack in Chernihiv in northern Ukraine.`\
 https://nytimes.com/video/world/europe/100000009418577/russia-missile-attack-chernihiv-ukraine.html
-
-**Read Virginia Foxx’s Opening Remarks**\
-`Representative Virginia Foxx, who chairs the House Education and the Workforce Committee, listed the reasons for calling Wednesday’s hearing on campus antisemitism in her prepared opening remarks.`\
-https://nytimes.com/interactive/2024/04/17/us/foxx-statement-document.html
 
