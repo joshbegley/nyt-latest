@@ -1,3 +1,15 @@
+**This Lava Tube in Saudi Arabia Has Been a Human Refuge for 7,000 Years**\
+`Ancient humans left behind numerous archaeological traces in the cavern, and scientists say there may be thousands more like it on the Arabian Peninsula to study.`\
+https://nytimes.com/2024/04/17/science/saudi-arabia-lava-tube.html
+
+**An 11-Year-Old Girl’s Fossil Find Is the Largest Known Ocean Reptile**\
+`When Ruby Reynolds and her father found a fossil on an English beach, they didn’t know it belonged to an 82-foot ichthyosaur that swam during the days of the dinosaurs.`\
+https://nytimes.com/2024/04/17/science/an-11-year-old-girls-fossil-find-is-the-largest-known-ocean-reptile.html
+
+**Who Are the Columbia Professors Mentioned in the House Hearing?**\
+`Lawmakers grilled officials over comments the faculty members Joseph Andoni Massad, Katherine Franke and Mohamed Abdou made after the Hamas-led attack on Israel.`\
+https://nytimes.com/2024/04/17/nyregion/jospeh-massad-katherine-franke-mohamed-abdou-columbia-university.html
+
 **‘Bone Valley’ Podcast Subject Is Granted Parole 37 Years After Wife’s Murder**\
 `Leo Schofield has maintained innocence all along in his wife’s murder in 1987, and another man has since confessed to the killing.`\
 https://nytimes.com/2024/04/17/us/bone-valley-leo-schofield-parole.html
