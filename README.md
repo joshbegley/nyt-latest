@@ -1,3 +1,11 @@
+**Michigan Democrats Reclaim Full Control of Statehouse With Special Election Wins**\
+`The departure of two Democratic representatives who won suburban mayoral posts last fall evenly split the Michigan House.`\
+https://nytimes.com/2024/04/16/us/michigan-democrats-trifecta.html
+
+**Trump Leaves His Trial to Rail Against Crime and Jab at Prosecutor**\
+`After a day in court, Donald Trump visited a bodega in Harlem where a clerk stabbed a man in 2022 and was charged by Alvin Bragg, who also leveled felony charges against the former president.`\
+https://nytimes.com/2024/04/16/us/politics/trump-harlem-bragg-crime.html
+
 **Review: In ‘Sally & Tom,’ Plantation Scandal Meets Backstage Farce**\
 `The 30-year relationship between Sally Hemings and Thomas Jefferson is the basis for Suzan-Lori Parks’s hilarious and harrowing nesting doll of a play.`\
 https://nytimes.com/2024/04/16/theater/sally-and-tom-review-suzan-lori-parks.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/16/arts/met-returns-iraq-statue.html
 **The Supreme Court May Side With Jan. 6 Rioters, and Their Leader**\
 `The decision could affect the number of federal charges against Trump.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/supreme-court-rioters-trump
-
-**Trump Holds Series of Meetings With Foreign Leaders**\
-`The former president has had several private interactions with foreign heads of state and their emissaries. He plans to meet Wednesday with Poland’s president.`\
-https://nytimes.com/2024/04/16/us/politics/trump-foreign-leaders.html
-
-**Israel Weighs Response to Iran Attack, With Each Choice a Risk**\
-`In debating how to respond to last weekend’s Iranian airstrike, Israel’s war cabinet is choosing between options that could deter future attacks or de-escalate hostilities, but all carry drawbacks.`\
-https://nytimes.com/2024/04/16/world/middleeast/israel-iran-response-options.html
 
