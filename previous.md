@@ -4,7 +4,7 @@ https://nytimes.com/2024/04/16/us/politics/alabama-second-district.html
 
 **Spot to Park**\
 `Joseph Gangi makes our eyes play tricks on us.`\
-https://nytimes.com/2024/04/16/crosswords/spot-to-park.html
+https://nytimes.com/2024/04/16/crosswords/daily-puzzle-2024-04-17.html
 
 **Michigan Democrats Reclaim Full Control of Statehouse With Special Election Wins**\
 `The departure of two Democratic representatives who won suburban mayoral posts last fall evenly split the Michigan House.`\
