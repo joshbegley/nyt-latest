@@ -1,3 +1,7 @@
+**Heavy Rainfall in Oman, Which Killed 18, Expected to Continue on Wednesday**\
+`The neighboring United Arab Emirates also experienced its largest rainfall in 75 years, with a year’s worth of rain falling on Dubai alone.`\
+https://nytimes.com/2024/04/17/us/oman-flood-rain-emirates-deaths.html
+
 **What Can ‘Green Islam’ Achieve in the World’s Largest Muslim Country?**\
 `Clerics in Indonesia are issuing fatwas, retrofitting mosques and imploring congregants to help turn the tide against climate change.`\
 https://nytimes.com/2024/04/17/world/asia/green-islam-indonesia.html
