@@ -1,3 +1,7 @@
+**Guantánamo Bay Opens an Extra Courtroom**\
+`Planners added the national security courtroom for pretrial hearings and to prepare for the possibility of a Sept. 11 trial.`\
+https://nytimes.com/2024/04/17/us/politics/guantanamo-second-courtroom.html
+
 **Barbara Joans, Anthropologist Who Studied Biker Culture, Dies at 89**\
 `In her 60s, she hit the open road on a hulking Harley-Davidson and found a new area of academic research: bikers, and in particular, women bikers.`\
 https://nytimes.com/2024/04/17/us/barbara-joans-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/arts/illustration-portfolio-review.html
 **Biden’s Steel Tariffs Are Merely Symbolic**\
 `Last year, just 2 percent of U.S. imported steel came from China.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/biden-steel-tarriff
-
-**Thursday Briefing: Israel Seems Poised to Retaliate**\
-`Also, a deadly Russian missile strike in Ukraine and “green Islam” in Indonesia.`\
-https://nytimes.com/2024/04/17/world/asia/israel-iran-britain-ukraine-aid-asia.html
 
