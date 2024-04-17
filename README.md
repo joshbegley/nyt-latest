@@ -1,3 +1,11 @@
+**Abe Koogler’s New Play Is an Ode to Intense Culinary Experiences**\
+`In “Staff Meal,” in previews at Playwrights Horizons, a restaurant becomes a refuge as the world ends.`\
+https://nytimes.com/2024/04/17/theater/abe-kooglers-new-play-is-an-ode-to-intense-culinary-experiences.html
+
+**Johnson Pushes Ahead on Foreign Aid Bill, Teeing Up a Weekend Vote**\
+`The Republican speaker, with his job on the line, said he expected Saturday evening votes on the long-stalled package of aid to Ukraine, Israel and other American allies.`\
+https://nytimes.com/2024/04/17/us/politics/johnson-ukraine-israel-aid-house.html
+
 **What a TikTok Ban Would Mean for the U.S. Defense of an Open Internet**\
 `Global digital rights advocates are watching to see if Congress acts, worried that other countries could follow suit with app bans of their own.`\
 https://nytimes.com/2024/04/17/technology/tiktok-ban-internet-freedom.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/17/opinion/gender-identity.html
 **On the Ground at the Venice Biennale**\
 `Scenes from the pre-opening at the pivotal art event.`\
 https://nytimes.com/article/venice-biennale-2024.html
-
-**Lincoln Center’s Summer Festival to Focus on Civic Bonds**\
-`The third edition of Summer for the City will feature hip-hop, comedy, classical music and more, under the motto “life, liberty and happiness.”`\
-https://nytimes.com/2024/04/17/arts/music/lincoln-center-summer-for-the-city.html
-
-**Two bakeries reopen in hunger-stricken Gaza City, but the question is for how long?**\
-`By Liam Stack and Adam Rasgon`\
-https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/two-bakeries-reopen-in-hunger-stricken-gaza-city-but-the-question-is-for-how-long
 
