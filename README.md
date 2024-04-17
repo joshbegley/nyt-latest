@@ -1,3 +1,7 @@
+**Tesla’s Board Backs a Pay Package for Elon Musk Struck Down by Judge**\
+`The company’s directors are asking shareholders to again approve the multibillion-dollar compensation plan and to move the company’s registration to Texas, from Delaware.`\
+https://nytimes.com/2024/04/17/business/tesla-elon-musk-pay.html
+
 **Biden Weighs in on Caitlin Clark Salary Debate After W.N.B.A. Draft**\
 `President Biden’s remarks on the issue came shortly after Caitlin Clark, the University of Iowa basketball star, was selected first in the W.N.B.A. draft.`\
 https://nytimes.com/2024/04/17/us/politics/caitlin-clark-salary-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/nyregion/jospeh-massad-katherine-franke-mohamed-a
 **Long-Acting Drugs May Revolutionize H.I.V. Prevention and Treatment**\
 `New regimens in development, including once-weekly pills and semiannual shots, could help control the virus in hard-to-reach populations.`\
 https://nytimes.com/2024/04/17/health/hiv-long-acting-shots-pills.html
-
-**Marian Zazeela, an Artist of Light and Design, Dies at 83**\
-`She pivoted from painting to lighting exhibitions, performance art, graphic design and minimalist music, performed with her husband, the composer La Monte Young.`\
-https://nytimes.com/2024/04/17/arts/design/marian-zazeela-dead.html
 
