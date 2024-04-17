@@ -1,3 +1,7 @@
+**Popcast (Deluxe): It’s Drake vs. Everybody … Who’s Winning?**\
+`Breaking down the convoluted recent beef between Drake and Kendrick Lamar (and Future, Metro Boomin, the Weeknd, ASAP Rocky, Rick Ross and more).`\
+https://nytimes.com/2024/04/17/arts/music/drake-kendrick-beef-popcast-deluxe.html
+
 **Israeli Response to Iran Attack Seems Inevitable, Despite Allies’ Pleas**\
 `“We will make our own decisions,” said Prime Minister Benjamin Netanyahu, rebuffing European diplomats’ requests to stand down.`\
 https://nytimes.com/2024/04/17/world/middleeast/israel-iran-diplomatic-pressure.html
