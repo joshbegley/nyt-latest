@@ -1,3 +1,7 @@
+**Popcast (Deluxe): It’s Drake vs. Everybody … Who’s Winning?**\
+`Breaking down the convoluted recent beef between Drake and Kendrick Lamar (and Future, Metro Boomin, the Weeknd, ASAP Rocky, Rick Ross and more).`\
+https://nytimes.com/2024/04/17/arts/music/drake-kendrick-beef-popcast-deluxe.html
+
 **Israeli Response to Iran Attack Seems Inevitable, Despite Allies’ Pleas**\
 `“We will make our own decisions,” said Prime Minister Benjamin Netanyahu, rebuffing European diplomats’ requests to stand down.`\
 https://nytimes.com/2024/04/17/world/middleeast/israel-iran-diplomatic-pressure.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/science/colorado-brain-data-privacy.html
 **U.S. Restores Oil Sanctions on Venezuela as Hopes Dim for Free Election**\
 `The Biden administration had temporarily lifted sanctions after President Nicolás Maduro agreed to make free elections possible. Now Mr. Maduro has put up barriers to a credible vote.`\
 https://nytimes.com/2024/04/17/world/americas/us-oil-sanctions-venezuela-maduro.html
-
-**Senate Dismisses Impeachment Charges Against Mayorkas Without a Trial**\
-`Democrats quickly swept aside the articles of impeachment accusing the homeland security secretary of refusing to enforce immigration laws and breach of public trust, calling them unconstitutional.`\
-https://nytimes.com/2024/04/17/us/politics/senate-alejandro-mayorkas-impeachment-charge.html
 
