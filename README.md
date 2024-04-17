@@ -1,6 +1,6 @@
 **Deluge Batters U.A.E. and Oman, Killing at Least 19**\
 `The heavy rains also flooded parts of Dubai International Airport, causing scores of flight delays and cancellations, and brought other cities in the U.A.E. to a standstill.`\
-https://nytimes.com/2024/04/17/homepage/deluge-batters-uae-and-oman-killing-at-least-19.html
+https://nytimes.com/2024/04/17/homepage/dubai-airport-oman-flooding.html
 
 **Justice Dept. Nears Settlement Over F.B.I.’s Failure to Investigate Larry Nassar**\
 `The deal, which could be announced in coming weeks, would bring an end to one of the last major cases stemming from a horrific sports scandal.`\
