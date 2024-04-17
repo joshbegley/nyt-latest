@@ -1,3 +1,7 @@
+**Anne Innis Dagg, Who Studied Giraffes in the Wild, Dies at 91**\
+`She was believed to be the first Western scientist to study the animals in their natural habitat, but she struggled to overcome sexism in academia.`\
+https://nytimes.com/2024/04/17/science/anne-innis-dagg-dead.html
+
 **Abortion Is Remaking Our Political Landscape. Why Aren’t Guns?**\
 `Is it possible for us to get to the same place on gun safety that we’re getting to on abortion — where the people who make the policy feel pressure to be sensible?`\
 https://nytimes.com/2024/04/17/opinion/guns-abortion-kari-lake.html
