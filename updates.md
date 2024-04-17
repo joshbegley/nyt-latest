@@ -1,3 +1,7 @@
+**The New Age of D.I.Y. Medicine**\
+`A new vaccine for preventing cavities doesn’t have F.D.A. approval or promising clinical trials, but it does have customers.`\
+https://nytimes.com/2024/04/17/opinion/lumina-cavity-vaccine-covid-diy.html
+
 **A Cyberattack Could Make N.Y. State’s Late Budget Even Later**\
 `Days after lawmakers in Albany reached agreement on the framework of a $237 billion state budget, a digital security breach threatened to delay proceedings.`\
 https://nytimes.com/2024/04/17/nyregion/kathy-hochul-new-york-budget-cyberattack.html

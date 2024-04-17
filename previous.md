@@ -1,3 +1,7 @@
+**The New Age of D.I.Y. Medicine**\
+`A new vaccine for preventing cavities doesn’t have F.D.A. approval or promising clinical trials, but it does have customers.`\
+https://nytimes.com/2024/04/17/opinion/lumina-cavity-vaccine-covid-diy.html
+
 **Hezbollah Launches Attack on Northern Israeli Border Village**\
 `Hezbollah said its attack on the village of Arab al-Aramashe was in response to Israeli airstrikes a day earlier.`\
 https://nytimes.com/video/world/middleeast/100000009419521/hezbollah-drone-attack-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/business/media/sundance-film-festival-park-city.h
 **Sons of Paul McCartney and John Lennon Release New Song**\
 `James McCartney teamed with Sean Ono Lennon for “Primrose Hill,” a ballad with echoes of the Beatles aesthetic.`\
 https://nytimes.com/2024/04/17/arts/music/james-mccartney-sean-ono-lennon-new-song.html
-
-**What Would the Economy Look Like Under a Second Biden Term?**\
-`In all likelihood, it would amount to more of the same. We could do worse.`\
-https://nytimes.com/2024/04/17/opinion/biden-economy-second-term.html
 
