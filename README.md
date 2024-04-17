@@ -1,6 +1,6 @@
 **Easy Spring Dishes With Time-Saving Shortcuts**\
 `Sautéed salmon with tomatoes and leeks, chilaquiles verdes and one-pan orzo with spinach and feta welcome a little kitchen cheating.`\
-https://nytimes.com/2024/04/17/dining/easy-spring-dishes-with-time-saving-shortcuts.html
+https://nytimes.com/2024/04/17/dining/easy-spring-dishes.html
 
 **Tribeca Festival to Feature Brat Pack and Lily Gladstone Films**\
 `Organizers released the event lineup for the annual New York event, set for June. It includes films that trace the lives of Linda Perry and Avicii.`\
