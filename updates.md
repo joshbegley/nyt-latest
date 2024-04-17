@@ -1,3 +1,11 @@
+**Attack by Hezbollah Injures at Least 13 in Israeli Border Village**\
+`The Lebanese militant group said the drone and missile attack was in response to Israeli airstrikes that killed two Hezbollah commanders.`\
+https://nytimes.com/2024/04/17/world/middleeast/hezbollah-drone-attack-israel.html
+
+**Biden to Run Ads Across Pennsylvania Attacking Trump on the Economy**\
+`Winning the state, where he narrowly defeated Donald J. Trump in 2020, is crucial to his re-election strategy.`\
+https://nytimes.com/2024/04/17/us/politics/biden-pennsylvania-ads.html
+
 **17columbia-antisemitism**\
 `Live Updates: Columbia’s President to Testify in Antisemitism Hearing`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing
