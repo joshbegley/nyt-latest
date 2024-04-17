@@ -1,5 +1,5 @@
 **Thursday Briefing: Israel Seems Poised to Retaliate**\
-`Also, explosions in Crimea and “green Islam” in Indonesia.`\
+`Also, a deadly Russian missile strike in Ukraine and “green Islam” in Indonesia.`\
 https://nytimes.com/2024/04/17/world/asia/israel-iran-britain-ukraine-aid-asia.html
 
 **Atlas, a Humanoid Robot From Boston Dynamics, Is Leaping Into Retirement**\
