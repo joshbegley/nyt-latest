@@ -1,3 +1,7 @@
+**N.R.A. to Overhaul Charity It’s Accused of Using as a ‘Piggy Bank’**\
+`The gun group settled with the District of Columbia’s attorney general, who said it had misused tax-deductible donations. The N.R.A. denies all wrongdoing in the case.`\
+https://nytimes.com/2024/04/17/us/nra-settlement.html
+
 **As Civil Rights Era Fades From Memory, Generation Gap Divides Black Voters**\
 `Many older Black voters see moral and political reasons to vote. Younger Black voters feel far less motivated to cast a ballot for Democrats or even at all.`\
 https://nytimes.com/2024/04/17/us/politics/black-democrats-age-gap.html
