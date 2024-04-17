@@ -1,3 +1,7 @@
+**The Kamala Harris Moment Has Arrived**\
+`With the issue of abortion rights, the vice president has hit her stride.`\
+https://nytimes.com/2024/04/17/opinion/kamala-harris-reproductive-rights.html
+
 **Deluge Batters U.A.E. and Oman, Killing at Least 19**\
 `The heavy rains also flooded parts of Dubai International Airport, causing scores of flight delays and cancellations, and brought other cities in the U.A.E. to a standstill.`\
 https://nytimes.com/2024/04/17/homepage/dubai-airport-oman-flooding.html
