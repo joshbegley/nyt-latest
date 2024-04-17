@@ -1,3 +1,11 @@
+**The 15 Messages That Led to Love**\
+`Readers of the Modern Love column share the banter, emojis and wit that made them fall for each other.`\
+https://nytimes.com/interactive/2024/04/17/magazine/first-messsages-love.html
+
+**Senate Dismisses Impeachment Charges Against Mayorkas Without a Trial**\
+`Democrats quickly swept aside the articles of impeachment accusing the homeland security secretary of refusing to enforce immigration laws and breach of public trust, calling them unconstitutional.`\
+https://nytimes.com/2024/04/17/us/politics/senate-alejandro-mayorkas-impeachment-charge.html
+
 **Anne Innis Dagg, Who Studied Giraffes in the Wild, Dies at 91**\
 `She was believed to be the first Western scientist to study the animals in their natural habitat, but she struggled to overcome sexism in academia.`\
 https://nytimes.com/2024/04/17/science/anne-innis-dagg-dead.html
