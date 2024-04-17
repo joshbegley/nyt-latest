@@ -1,3 +1,7 @@
+**Woman Admits Killing Pregnant Teenager for Her Baby**\
+`Clarisa Figueroa, 51, of Chicago, pleaded guilty and was sentenced to 50 years in prison. Prosecutors say she strangled the young mother and tried to pass the baby off as her own.`\
+https://nytimes.com/2024/04/17/us/pregnant-teen-womb-murder-chicago.html
+
 **In Belfast and Ballybeg, Forging a Bolder Future**\
 `“Agreement,” at Irish Arts Center, and “Philadelphia, Here I Come!,” at Irish Repertory Theater, have a timeless feel, rooted in their eras and resonant in ours.`\
 https://nytimes.com/2024/04/17/theater/agreement-philadelphia-here-i-come-irish.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing
 **Testifying in Congress can be a minefield. So why do it?**\
 `Columbia University’s president declined a congressional call to testify about her handling of antisemitism on campus — and dodged a firestorm that cost one of her colleagues her job.`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/testifying-in-congress-can-be-a-minefield-so-why-do-it
-
-**Most Teachers Know They’re Playing With Fire When They Use Tech in the Classroom**\
-`But many of them know how not to get burned.`\
-https://nytimes.com/2024/04/17/opinion/educational-technology.html
 

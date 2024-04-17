@@ -1,3 +1,7 @@
+**In Belfast and Ballybeg, Forging a Bolder Future**\
+`“Agreement,” at Irish Arts Center, and “Philadelphia, Here I Come!,” at Irish Repertory Theater, have a timeless feel, rooted in their eras and resonant in ours.`\
+https://nytimes.com/2024/04/17/theater/agreement-philadelphia-here-i-come-irish.html
+
 **When a Mob Gets to Veto a Valedictorian’s Speech**\
 `A threat of violence shouldn’t cancel the right to free expression.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/usc-valedictorian-speech-canceled
@@ -23,7 +27,7 @@ https://nytimes.com/2024/04/17/world/middleeast/un-report-israel-detainees-abuse
 https://nytimes.com/2024/04/17/world/middleeast/hezbollah-drone-attack-israel.html
 
 **17columbia-antisemitism**\
-`Live Updates: Columbia’s President to Testify in Antisemitism Hearing`\
+`Watch Live: Columbia’s President Testifying in Antisemitism Hearing`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing
 
 **Testifying in Congress can be a minefield. So why do it?**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/testi
 **Most Teachers Know They’re Playing With Fire When They Use Tech in the Classroom**\
 `But many of them know how not to get burned.`\
 https://nytimes.com/2024/04/17/opinion/educational-technology.html
-
-**Californians Share Their Pandemic Silver Linings, Four Years After Lockdowns**\
-`Readers submitted small ways that the pandemic shifted their thinking for the better, or introduced a new joy into their life.`\
-https://nytimes.com/2024/04/17/us/california-readers-pandemic.html
 

@@ -1,3 +1,11 @@
+**In Belfast and Ballybeg, Forging a Bolder Future**\
+`“Agreement,” at Irish Arts Center, and “Philadelphia, Here I Come!,” at Irish Repertory Theater, have a timeless feel, rooted in their eras and resonant in ours.`\
+https://nytimes.com/2024/04/17/theater/agreement-philadelphia-here-i-come-irish.html
+
+**17columbia-antisemitism**\
+`Watch Live: Columbia’s President Testifying in Antisemitism Hearing`\
+https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing
+
 **When a Mob Gets to Veto a Valedictorian’s Speech**\
 `A threat of violence shouldn’t cancel the right to free expression.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/usc-valedictorian-speech-canceled
