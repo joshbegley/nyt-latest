@@ -1,4 +1,8 @@
-**Britain’s foreign secretary signals that Israel will not let Iran’s assault go unanswered.**\
+**Russian Missile Strikes North of Kyiv Kill at Least 14, Ukraine Says**\
+`President Volodymyr Zelensky said the death toll might rise and blamed lack of air defenses for the loss of life. At least 61 people were reported wounded.`\
+https://nytimes.com/2024/04/17/world/europe/ukraine-chernihiv-strike.html
+
+**Britain’s foreign secretary says Israel will not let Iran’s assault go unanswered.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/britains-foreign-secretary-signals-that-israel-will-not-let-irans-assault-go-unanswered
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/health/sleep-apnea-obesity-zepbound.html
 **Are ‘Forever Chemicals’ a Forever Problem?**\
 `The Environmental Protection Agency says “forever chemicals” must be removed from tap water. But they lurk in much more of what we eat, drink and use.`\
 https://nytimes.com/2024/04/17/podcasts/the-daily/forever-chemicals-epa.html
-
-**Israel Weighs Response to Iran, and U.S. Speaker Tries to Pass Ukraine Aid**\
-`Plus, the French Olympic team reveals its outfits.`\
-https://nytimes.com/2024/04/17/podcasts/israel-weighs-response-to-iran-and-us-speaker-tries-to-pass-ukraine-aid.html
 

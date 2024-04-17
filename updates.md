@@ -1,3 +1,11 @@
+**Russian Missile Strikes North of Kyiv Kill at Least 14, Ukraine Says**\
+`President Volodymyr Zelensky said the death toll might rise and blamed lack of air defenses for the loss of life. At least 61 people were reported wounded.`\
+https://nytimes.com/2024/04/17/world/europe/ukraine-chernihiv-strike.html
+
+**Britain’s foreign secretary says Israel will not let Iran’s assault go unanswered.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/britains-foreign-secretary-signals-that-israel-will-not-let-irans-assault-go-unanswered
+
 **Britain’s foreign secretary signals that Israel will not let Iran’s assault go unanswered.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/britains-foreign-secretary-signals-that-israel-will-not-let-irans-assault-go-unanswered
