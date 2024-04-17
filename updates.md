@@ -1,3 +1,7 @@
+**Prosecutions of Fake Electors for Trump Gain Ground in Swing States**\
+`Georgia, Michigan and Nevada have already brought charges against people who posed as electors for Donald Trump, and Arizona and Wisconsin have active investigations.`\
+https://nytimes.com/2024/04/17/us/trump-fake-electors.html
+
 **Business and a Second Trump Term**\
 `Times reporters discuss the relationship between major C.E.O.s and Donald Trump.`\
 https://nytimes.com/2024/04/17/briefing/trump-election-ceos-business.html

@@ -1,3 +1,7 @@
+**Prosecutions of Fake Electors for Trump Gain Ground in Swing States**\
+`Georgia, Michigan and Nevada have already brought charges against people who posed as electors for Donald Trump, and Arizona and Wisconsin have active investigations.`\
+https://nytimes.com/2024/04/17/us/trump-fake-electors.html
+
 **Business and a Second Trump Term**\
 `Times reporters discuss the relationship between major C.E.O.s and Donald Trump.`\
 https://nytimes.com/2024/04/17/briefing/trump-election-ceos-business.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/podcasts/israel-weighs-response-to-iran-and-us-sp
 **Women Talk Through Their Abortions on TikTok**\
 `At a time of heightened confusion and legal battles over access to abortion, women are looking to social media for answers.`\
 https://nytimes.com/2024/04/17/us/politics/abortion-tiktok-videos.html
-
-**As Lahaina Burned, Fire Crews Waited an Hour for Equipment**\
-`A new analysis of the August inferno on the island of Maui in Hawaii described heroic efforts by firefighters. But it also found many ways the town could have been better prepared.`\
-https://nytimes.com/2024/04/17/us/lahaina-maui-fire-report.html
 
