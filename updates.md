@@ -1,3 +1,11 @@
+**Are ‘Forever Chemicals’ a Forever Problem?**\
+`The Environmental Protection Agency says “forever chemicals” must be removed from tap water. But they lurk in much more of what we eat, drink and use.`\
+https://nytimes.com/2024/04/17/podcasts/the-daily/forever-chemicals-epa.html
+
+**Israel Weighs Response to Iran, and U.S. Speaker Tries to Pass Ukraine Aid**\
+`Plus, the French Olympic team reveals its outfits.`\
+https://nytimes.com/2024/04/17/podcasts/israel-weighs-response-to-iran-and-us-speaker-tries-to-pass-ukraine-aid.html
+
 **Women Talk Through Their Abortions on TikTok**\
 `At a time of heightened confusion and legal battles over access to abortion, women are looking to social media for answers.`\
 https://nytimes.com/2024/04/17/us/politics/abortion-tiktok-videos.html
