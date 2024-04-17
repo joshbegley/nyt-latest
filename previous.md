@@ -1,3 +1,15 @@
+**Easy Spring Dishes With Time-Saving Shortcuts**\
+`Sautéed salmon with tomatoes and leeks, chilaquiles verdes and one-pan orzo with spinach and feta welcome a little kitchen cheating.`\
+https://nytimes.com/2024/04/17/dining/easy-spring-dishes.html
+
+**Tribeca Festival to Feature Brat Pack and Lily Gladstone Films**\
+`Organizers released the event lineup for the annual New York event, set for June. It includes films that trace the lives of Linda Perry and Avicii.`\
+https://nytimes.com/2024/04/17/movies/tribeca-festival-to-feature-brat-pack-and-lily-gladstone-films.html
+
+**From a Tiny Island in Maine, He Serves Up Fresh Media Gossip**\
+`Rusty Foster could never live in New York. But his hit newsletter, Today in Tabs, is an enduring obsession of the city’s media class.`\
+https://nytimes.com/2024/04/17/style/today-in-tabs-rusty-foster-media-gossip-maine.html
+
 **At Venice Biennale, Israel’s Show Is Halted, but Protests Go On**\
 `The country’s exhibition was already closed after its artist refused to exhibit her work until there was a cease-fire and hostage deal in Gaza. But that didn’t calm the discontent.`\
 https://nytimes.com/2024/04/17/arts/design/israel-gaza-protest-venice-biennale.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/europe/100000009418577/russia-missile-attack-che
 **Read Virginia Foxx’s Opening Remarks**\
 `Representative Virginia Foxx, who chairs the House Education and the Workforce Committee, listed the reasons for calling Wednesday’s hearing on campus antisemitism in her prepared opening remarks.`\
 https://nytimes.com/interactive/2024/04/17/us/foxx-statement-document.html
-
-**Who is Virginia Foxx?**\
-`By Anemona Hartocollis`\
-https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/who-is-virginia-foxx
-
-**Woman Admits Killing Pregnant Teenager for Her Baby**\
-`Clarisa Figueroa, 51, of Chicago, pleaded guilty and was sentenced to 50 years in prison. Prosecutors say she strangled the young mother and tried to pass the baby off as her own.`\
-https://nytimes.com/2024/04/17/us/pregnant-teen-womb-murder-chicago.html
-
-**In Belfast and Ballybeg, Forging a Bolder Future**\
-`“Agreement,” at Irish Arts Center, and “Philadelphia, Here I Come!,” at Irish Repertory Theater, have a timeless feel, rooted in their eras and resonant in ours.`\
-https://nytimes.com/2024/04/17/theater/agreement-philadelphia-here-i-come-irish.html
 

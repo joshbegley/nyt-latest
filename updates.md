@@ -1,3 +1,15 @@
+**Easy Spring Dishes With Time-Saving Shortcuts**\
+`Sautéed salmon with tomatoes and leeks, chilaquiles verdes and one-pan orzo with spinach and feta welcome a little kitchen cheating.`\
+https://nytimes.com/2024/04/17/dining/easy-spring-dishes.html
+
+**Tribeca Festival to Feature Brat Pack and Lily Gladstone Films**\
+`Organizers released the event lineup for the annual New York event, set for June. It includes films that trace the lives of Linda Perry and Avicii.`\
+https://nytimes.com/2024/04/17/movies/tribeca-festival-to-feature-brat-pack-and-lily-gladstone-films.html
+
+**From a Tiny Island in Maine, He Serves Up Fresh Media Gossip**\
+`Rusty Foster could never live in New York. But his hit newsletter, Today in Tabs, is an enduring obsession of the city’s media class.`\
+https://nytimes.com/2024/04/17/style/today-in-tabs-rusty-foster-media-gossip-maine.html
+
 **At Venice Biennale, Israel’s Show Is Halted, but Protests Go On**\
 `The country’s exhibition was already closed after its artist refused to exhibit her work until there was a cease-fire and hostage deal in Gaza. But that didn’t calm the discontent.`\
 https://nytimes.com/2024/04/17/arts/design/israel-gaza-protest-venice-biennale.html
