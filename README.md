@@ -1,3 +1,11 @@
+**Atlas, a Humanoid Robot Used for Research, Is Leaping Into Retirement**\
+`It has been replaced by a new model, which will be used in automotive manufacturing. A farewell video featured the old machine running outdoors, performing back flips and awkwardly shimmying.`\
+https://nytimes.com/2024/04/17/technology/boston-dynamics-atlas-robot-retires.html
+
+**An Absurd Impeachment Reaches a Satisfying End**\
+`The Senate did the country a favor by sparing the public a farcical trial.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/mayorkas-impeachment-ends
+
 **Popcast (Deluxe): It’s Drake vs. Everybody … Who’s Winning?**\
 `Breaking down the convoluted recent beef between Drake and Kendrick Lamar (and Future, Metro Boomin, the Weeknd, ASAP Rocky, Rick Ross and more).`\
 https://nytimes.com/2024/04/17/arts/music/drake-kendrick-beef-popcast-deluxe.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/17/opinion/lumina-cavity-vaccine-covid-diy.html
 **Hezbollah Launches Attack on Northern Israeli Border Village**\
 `Hezbollah said its attack on the village of Arab al-Aramashe was in response to Israeli airstrikes a day earlier.`\
 https://nytimes.com/video/world/middleeast/100000009419521/hezbollah-drone-attack-israel.html
-
-**Colorado Bill Aims to Protect Consumer Brain Data**\
-`In a first, the legislation extends privacy rights to the neural data increasingly coveted by technology companies.`\
-https://nytimes.com/2024/04/17/science/colorado-brain-data-privacy.html
-
-**U.S. Restores Oil Sanctions on Venezuela as Hopes Dim for Free Election**\
-`The Biden administration had temporarily lifted sanctions after President Nicolás Maduro agreed to make free elections possible. Now Mr. Maduro has put up barriers to a credible vote.`\
-https://nytimes.com/2024/04/17/world/americas/us-oil-sanctions-venezuela-maduro.html
 
