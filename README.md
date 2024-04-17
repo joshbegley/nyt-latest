@@ -1,3 +1,7 @@
+**Elise Stefanik has taken aim at college presidents on elite campuses.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/elise-stefanik-has-taken-aim-at-college-presidents-on-elite-campuses
+
 **NPR Editor Who Accused Broadcaster of Liberal Bias Resigns**\
 `Uri Berliner, who has worked at NPR for 25 years, said in an essay last week that the nonprofit had allowed progressive bias to taint its coverage.`\
 https://nytimes.com/2024/04/17/business/media/uri-berliner-npr-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/well/live/dirt-health-benefits.html
 **Who are Claire Shipman and David Greenwald?**\
 `By Sharon Otterman`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/who-are-claire-shipman-and-david-greenwald
-
-**Read Nemat Shafik’s Opening Remarks**\
-`In her prepared opening statement, Nemat Shafik, the president of Columbia University, laid out ways the university has been responding to antisemitism on campus.`\
-https://nytimes.com/interactive/2024/04/17/us/shafik-statement-document.html
 
