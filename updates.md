@@ -1,3 +1,7 @@
+**Here are some of the recent antisemitism allegations against Columbia.**\
+`By Sharon Otterman`\
+https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/here-are-some-of-the-recent-antisemitism-allegations-against-columbia
+
 **Keith Haring’s Legacy Is Not Found at the Museum**\
 `Three decades after his death, his work is still sold on products and in stores. But his concept of public art is most powerfully preserved on the street.`\
 https://nytimes.com/2024/04/17/arts/design/keith-haring-brad-gooch.html
