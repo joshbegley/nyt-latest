@@ -1,3 +1,7 @@
+**Britain’s foreign secretary signals that Israel will not let Iran’s assault go unanswered.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/britains-foreign-secretary-signals-that-israel-will-not-let-irans-assault-go-unanswered
+
 **Prosecutions of Fake Electors for Trump Gain Ground in Swing States**\
 `Georgia, Michigan and Nevada have already brought charges against people who posed as electors for Donald Trump, and Arizona and Wisconsin have active investigations.`\
 https://nytimes.com/2024/04/17/us/trump-fake-electors.html
