@@ -1,3 +1,15 @@
+**When a Mob Gets to Veto a Valedictorian’s Speech**\
+`A threat of violence shouldn’t cancel the right to free expression.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/usc-valedictorian-speech-canceled
+
+**Biden, in Pennsylvania, will speak to the United Steelworkers.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/04/17/us/biden-trump-election-news/biden-in-pennsylvania-will-speak-to-the-united-steelworkers
+
+**17pol-swiper**\
+`Election Updates: Biden campaigns again in Pennsylvania, a swing state crucial to his re-election hopes.`\
+https://nytimes.com/live/2024/04/17/us/biden-trump-election-news
+
 **How to define the term ‘antisemitism’ is the subject of bitter debate.**\
 `By Vimal Patel`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/how-to-define-the-term-antisemitism-is-the-subject-of-a-bitter-debate
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/17/opinion/educational-technology.html
 **Californians Share Their Pandemic Silver Linings, Four Years After Lockdowns**\
 `Readers submitted small ways that the pandemic shifted their thinking for the better, or introduced a new joy into their life.`\
 https://nytimes.com/2024/04/17/us/california-readers-pandemic.html
-
-**Biden to Run Ads Across Pennsylvania Attacking Trump on the Economy**\
-`Winning the state, where he narrowly defeated Donald J. Trump in 2020, is crucial to his re-election strategy.`\
-https://nytimes.com/2024/04/17/us/politics/biden-pennsylvania-ads.html
-
-**Should I Be Loyal to My Father or My Dying Uncle?**\
-`A reader is torn between attending a final dinner with his uncle, who has terminal cancer, and supporting his father, who wasn’t invited because of an old grudge.`\
-https://nytimes.com/2024/04/17/style/family-reconciliation-grudges.html
-
-**F.T.C. Said to Consider Blocking Major Fashion Merger**\
-`Regulators are expected to meet next week to discuss the $8.5 billion deal between Coach’s owner, Tapestry, and Michael Kors’ parent company, Capri Holdings, which would create a U.S. luxury conglomerate.`\
-https://nytimes.com/2024/04/17/business/dealbook/ftc-tapestry-capri-coach-michael-kors-versace.html
 
