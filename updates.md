@@ -1,3 +1,7 @@
+**What Can ‘Green Islam’ Achieve in the World’s Largest Muslim Country?**\
+`Clerics in Indonesia are issuing fatwas, retrofitting mosques and imploring congregants to help turn the tide against climate change.`\
+https://nytimes.com/2024/04/17/world/asia/green-islam-indonesia.html
+
 **Bob Graham, Former Florida Governor and Senator, Dies at 87**\
 `After the 9/11 attacks, Mr. Graham became an outspoken critic of President George W. Bush’s response and voted against invading Iraq.`\
 https://nytimes.com/2024/04/16/us/bob-graham-dead.html
