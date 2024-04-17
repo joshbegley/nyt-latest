@@ -1,3 +1,7 @@
+**Sleep Apnea Reduced in People Who Took Weight-Loss Drug, Eli Lilly Reports**\
+`The company reported results of clinical trials involving Zepbound, an obesity drug in the same class as Novo Nordisk’s Wegovy.`\
+https://nytimes.com/2024/04/17/health/sleep-apnea-obesity-zepbound.html
+
 **Are ‘Forever Chemicals’ a Forever Problem?**\
 `The Environmental Protection Agency says “forever chemicals” must be removed from tap water. But they lurk in much more of what we eat, drink and use.`\
 https://nytimes.com/2024/04/17/podcasts/the-daily/forever-chemicals-epa.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/us/politics/blinken-g7-israel-ukraine.html
 **Hundreds of Small Presses Just Lost Their Distributor. Now What?**\
 `A nonprofit that distributed books for many of the country’s small presses has closed, and the fallout could affect the publishing industry in ways both big and small.`\
 https://nytimes.com/2024/04/17/books/small-press-distribution-closure.html
-
-**Have Faith in the Trump Trial Jurors**\
-`Jesse Wegman on why “the system is operating as intended.”`\
-https://nytimes.com/2024/04/17/opinion/trump-trial-jurors.html
 
