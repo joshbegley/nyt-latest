@@ -16,7 +16,7 @@ https://nytimes.com/2024/04/17/arts/music/nadia-boulanger-la-ville-morte.html
 
 **Abe Koogler’s New Play Is an Ode to Intense Culinary Experiences**\
 `In “Staff Meal,” in previews at Playwrights Horizons, a restaurant becomes a refuge as the world ends.`\
-https://nytimes.com/2024/04/17/theater/abe-kooglers-new-play-is-an-ode-to-intense-culinary-experiences.html
+https://nytimes.com/2024/04/17/theater/abe-koogler-staff-meal-play.html
 
 **Johnson Pushes Ahead on Foreign Aid Bill, Teeing Up a Weekend Vote**\
 `The Republican speaker, with his job on the line, said he expected Saturday evening votes on the long-stalled package of aid to Ukraine, Israel and other American allies.`\
