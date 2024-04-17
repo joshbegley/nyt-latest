@@ -1,3 +1,7 @@
+**U.N. seeks $2.8 billion in donations for response to Gaza crisis.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/un-seeks-2-8-billion-in-donations-for-response-to-gaza-crisis
+
 **Biden, Competing With Trump to Be Tough on China, Calls for Steel Tariffs**\
 `Speaking to the United Steelworkers union in Pittsburgh, the president urged major increases to some tariffs on steel and aluminum products from China.`\
 https://nytimes.com/2024/04/17/us/politics/biden-trump-china-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/business/tesla-elon-musk-pay.html
 **Biden Weighs in on Caitlin Clark Salary Debate After W.N.B.A. Draft**\
 `President Biden’s remarks on the issue came shortly after Caitlin Clark, the University of Iowa basketball star, was selected first in the W.N.B.A. draft.`\
 https://nytimes.com/2024/04/17/us/politics/caitlin-clark-salary-biden.html
-
-**The Real Reasons Trump Set Foot in a Bodega**\
-`There’s nothing he won’t exploit for a moment of political theater.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-bodega
 
