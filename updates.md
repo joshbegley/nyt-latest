@@ -1,3 +1,7 @@
+**Read Nemat Shafik’s Opening Remarks**\
+`In her prepared opening statement, Nemat Shafik, the president of Columbia University, laid out ways the university has been responding to antisemitism on campus.`\
+https://nytimes.com/interactive/2024/04/17/us/shafik-statement-document.html
+
 **Nemat Shafik is new to Columbia, but not to high-profile settings.**\
 `By Sharon Otterman`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/nemat-shafik-is-new-to-columbia-but-not-to-high-profile-settings
