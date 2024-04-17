@@ -1,3 +1,11 @@
+**Are ‘Forever Chemicals’ a Forever Problem?**\
+`The Environmental Protection Agency says “forever chemicals” must be removed from tap water. But they lurk in much more of what we eat, drink and use.`\
+https://nytimes.com/2024/04/17/podcasts/the-daily/forever-chemicals-epa.html
+
+**Israel Weighs Response to Iran, and U.S. Speaker Tries to Pass Ukraine Aid**\
+`Plus, the French Olympic team reveals its outfits.`\
+https://nytimes.com/2024/04/17/podcasts/israel-weighs-response-to-iran-and-us-speaker-tries-to-pass-ukraine-aid.html
+
 **Women Talk Through Their Abortions on TikTok**\
 `At a time of heightened confusion and legal battles over access to abortion, women are looking to social media for answers.`\
 https://nytimes.com/2024/04/17/us/politics/abortion-tiktok-videos.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/17/books/small-press-distribution-closure.html
 **Have Faith in the Trump Trial Jurors**\
 `Jesse Wegman on why “the system is operating as intended.”`\
 https://nytimes.com/2024/04/17/opinion/trump-trial-jurors.html
-
-**Who Wants to Be a Traitor?**\
-`Reality stars and other people with some degree of fame are making no secret of their hopes to join the next cast of the hit show “The Traitors.”`\
-https://nytimes.com/2024/04/17/style/traitors-peacock-cast.html
-
-**Denis Villeneuve Answers All Your Questions About ‘Dune: Part Two’**\
-`He explains why Lady Jessica’s face is so heavily tattooed, whether Paul considers himself the Messiah and what he thinks of those Javier Bardem memes.`\
-https://nytimes.com/2024/04/17/movies/denis-villeneuve-dune-part-two.html
 
