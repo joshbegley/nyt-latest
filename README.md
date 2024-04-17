@@ -1,3 +1,11 @@
+**Israeli Response to Iran Attack Seems Inevitable, Despite Allies’ Pleas**\
+`“We will make our own decisions,” said Prime Minister Benjamin Netanyahu, rebuffing European diplomats’ requests to stand down.`\
+https://nytimes.com/2024/04/17/world/middleeast/israel-iran-diplomatic-pressure.html
+
+**China Could Threaten Critical Infrastructure in a Conflict, N.S.A. Chief Says**\
+`Gen. Timothy Haugh, who is also the head of the U.S. military’s Cyber Command, said Beijing was “sending a pretty clear signal.”`\
+https://nytimes.com/2024/04/17/us/politics/china-cyber-us-infrastructure.html
+
 **The 15 Messages That Led to Love**\
 `Readers of the Modern Love column share the banter, emojis and wit that made them fall for each other.`\
 https://nytimes.com/interactive/2024/04/17/magazine/first-messsages-love.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/17/world/americas/us-oil-sanctions-venezuela-maduro.
 **Senate Dismisses Impeachment Charges Against Mayorkas Without a Trial**\
 `Democrats quickly swept aside the articles of impeachment accusing the homeland security secretary of refusing to enforce immigration laws and breach of public trust, calling them unconstitutional.`\
 https://nytimes.com/2024/04/17/us/politics/senate-alejandro-mayorkas-impeachment-charge.html
-
-**U.N. seeks $2.8 billion in donations for response to Gaza crisis.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/un-seeks-2-8-billion-in-donations-for-response-to-gaza-crisis
-
-**Biden, Competing With Trump to Be Tough on China, Calls for Steel Tariffs**\
-`Speaking to the United Steelworkers union in Pittsburgh, the president urged major increases to some tariffs on steel and aluminum products from China.`\
-https://nytimes.com/2024/04/17/us/politics/biden-trump-china-tariffs.html
 
