@@ -1,3 +1,11 @@
+**Hezbollah Launches Attack on Northern Israeli Border Village**\
+`Hezbollah said its attack on the village of Arab al-Aramashe was in response to Israeli airstrikes a day earlier.`\
+https://nytimes.com/video/world/middleeast/100000009419521/hezbollah-drone-attack-israel.html
+
+**Senate Dismisses First of Two Impeachment Charges Against Mayorkas**\
+`Democrats moved quickly to sweep aside the article of impeachment accusing the homeland security secretary of refusing to enforce immigration laws, calling it unconstitutional.`\
+https://nytimes.com/2024/04/17/us/politics/senate-alejandro-mayorkas-impeachment-charge.html
+
 **Colorado Bill Aims to Protect Consumer Brain Data**\
 `In a first, the legislation extends privacy rights to the neural data increasingly coveted by technology companies.`\
 https://nytimes.com/2024/04/17/science/colorado-brain-data-privacy.html

@@ -1,3 +1,7 @@
+**Hezbollah Launches Attack on Northern Israeli Border Village**\
+`Hezbollah said its attack on the village of Arab al-Aramashe was in response to Israeli airstrikes a day earlier.`\
+https://nytimes.com/video/world/middleeast/100000009419521/hezbollah-drone-attack-israel.html
+
 **Colorado Bill Aims to Protect Consumer Brain Data**\
 `In a first, the legislation extends privacy rights to the neural data increasingly coveted by technology companies.`\
 https://nytimes.com/2024/04/17/science/colorado-brain-data-privacy.html
@@ -8,7 +12,7 @@ https://nytimes.com/2024/04/17/world/americas/us-oil-sanctions-venezuela-maduro.
 
 **Senate Dismisses First of Two Impeachment Charges Against Mayorkas**\
 `Democrats moved quickly to sweep aside the article of impeachment accusing the homeland security secretary of refusing to enforce immigration laws, calling it unconstitutional.`\
-https://nytimes.com/2024/04/17/us/politics/senate-impeachment-charge-mayorkas.html
+https://nytimes.com/2024/04/17/us/politics/senate-alejandro-mayorkas-impeachment-charge.html
 
 **U.N. seeks $2.8 billion in donations for response to Gaza crisis.**\
 `By Liam Stack`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/arts/music/james-mccartney-sean-ono-lennon-new-so
 **What Would the Economy Look Like Under a Second Biden Term?**\
 `In all likelihood, it would amount to more of the same. We could do worse.`\
 https://nytimes.com/2024/04/17/opinion/biden-economy-second-term.html
-
-**How London Became a ‘Hot Spot’ for Threats Against Iranian Journalists**\
-`Iranian reporters and broadcasters in Britain have suffered physical attacks, threats and surveillance, a report by Reporters Without Borders said, weeks after a newscaster was stabbed in London.`\
-https://nytimes.com/2024/04/17/world/europe/uk-london-iranian-journalists-repression.html
 
