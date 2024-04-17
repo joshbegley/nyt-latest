@@ -1,3 +1,7 @@
+**N.R.A. to Overhaul Charity It’s Accused of Using as a ‘Piggy Bank’**\
+`The gun group settled with the District of Columbia’s attorney general, who said it had misused tax-deductible donations. The N.R.A. denies all wrongdoing in the case.`\
+https://nytimes.com/2024/04/17/us/nra-settlement.html
+
 **As Civil Rights Era Fades From Memory, Generation Gap Divides Black Voters**\
 `Many older Black voters see moral and political reasons to vote. Younger Black voters feel far less motivated to cast a ballot for Democrats or even at all.`\
 https://nytimes.com/2024/04/17/us/politics/black-democrats-age-gap.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/16/opinion/thepoint/mayorkas-impeachment-ends
 **Popcast (Deluxe): It’s Drake vs. Everybody … Who’s Winning?**\
 `Breaking down the convoluted recent beef between Drake and Kendrick Lamar (and Future, Metro Boomin, the Weeknd, ASAP Rocky, Rick Ross and more).`\
 https://nytimes.com/2024/04/17/arts/music/drake-kendrick-beef-popcast-deluxe.html
-
-**Israeli Response to Iran Attack Seems Inevitable, Despite Allies’ Pleas**\
-`“We will make our own decisions,” said Prime Minister Benjamin Netanyahu, rebuffing European diplomats’ requests to stand down.`\
-https://nytimes.com/2024/04/17/world/middleeast/israel-iran-diplomatic-pressure.html
 
