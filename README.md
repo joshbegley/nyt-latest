@@ -1,3 +1,7 @@
+**The 15 Messages That Led to Love**\
+`Readers of the Modern Love column share the banter, emojis and wit that made them fall for each other.`\
+https://nytimes.com/interactive/2024/04/17/magazine/first-messsages-love.html
+
 **Anne Innis Dagg, Who Studied Giraffes in the Wild, Dies at 91**\
 `She was believed to be the first Western scientist to study the animals in their natural habitat, but she struggled to overcome sexism in academia.`\
 https://nytimes.com/2024/04/17/science/anne-innis-dagg-dead.html
@@ -22,8 +26,8 @@ https://nytimes.com/2024/04/17/science/colorado-brain-data-privacy.html
 `The Biden administration had temporarily lifted sanctions after President Nicolás Maduro agreed to make free elections possible. Now Mr. Maduro has put up barriers to a credible vote.`\
 https://nytimes.com/2024/04/17/world/americas/us-oil-sanctions-venezuela-maduro.html
 
-**Senate Dismisses First of Two Impeachment Charges Against Mayorkas**\
-`Democrats moved quickly to sweep aside the article of impeachment accusing the homeland security secretary of refusing to enforce immigration laws, calling it unconstitutional.`\
+**Senate Dismisses Impeachment Charges Against Mayorkas Without a Trial**\
+`Democrats quickly swept aside the articles of impeachment accusing the homeland security secretary of refusing to enforce immigration laws and breach of public trust, calling them unconstitutional.`\
 https://nytimes.com/2024/04/17/us/politics/senate-alejandro-mayorkas-impeachment-charge.html
 
 **U.N. seeks $2.8 billion in donations for response to Gaza crisis.**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/un-seeks-2-8
 **Biden, Competing With Trump to Be Tough on China, Calls for Steel Tariffs**\
 `Speaking to the United Steelworkers union in Pittsburgh, the president urged major increases to some tariffs on steel and aluminum products from China.`\
 https://nytimes.com/2024/04/17/us/politics/biden-trump-china-tariffs.html
-
-**A Cyberattack Could Make N.Y. State’s Late Budget Even Later**\
-`Days after lawmakers in Albany reached agreement on the framework of a $237 billion state budget, a digital security breach threatened to delay proceedings.`\
-https://nytimes.com/2024/04/17/nyregion/kathy-hochul-new-york-budget-cyberattack.html
 
