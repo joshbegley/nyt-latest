@@ -1,3 +1,7 @@
+**Justice Dept. Nears Settlement Over F.B.I.’s Failure to Investigate Larry Nassar**\
+`The deal, which could be announced in coming weeks, would bring an end to one of the last major cases stemming from a horrific sports scandal.`\
+https://nytimes.com/2024/04/17/us/politics/larry-nassar-victims-fbi-doj-settlement.html
+
 **Trump Demands a Cut of Donations From Campaigns That Use His Name**\
 `The Trump campaign said that candidates using his brand should turn over at least 5 percent of donations and encouraged them to send more than the minimum.`\
 https://nytimes.com/2024/04/17/us/politics/trump-fundraising-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/us/politics/black-democrats-age-gap.html
 **Israel Signaled That It Would Retaliate Against Iran**\
 `Also, the House is set to vote on aid for Ukraine and Israel. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/04/17/briefing/israel-iran-response-house-foreign-aid-vote.html
-
-**The Ugly State of Shoe Collaborations**\
-`Blingy Crocs, punk Uggs and spangled sneakers, oh my.`\
-https://nytimes.com/2024/04/17/style/ugly-shoes-collaborations-crocs-bode-nike.html
 
