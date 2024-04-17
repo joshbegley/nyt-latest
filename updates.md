@@ -1,3 +1,7 @@
+**Inflation in U.K. Slows to 3.2%, Lowest in More Than 2 Years**\
+`As the economy cools, pressure is building on the Bank of England to cut interest rates.`\
+https://nytimes.com/2024/04/17/business/uk-inflation-economy-interest-rates.html
+
 **2,000 Bags**\
 `What’s your favorite bag? Can you ever have too many?`\
 https://nytimes.com/2024/04/17/learning/2000-bags.html
