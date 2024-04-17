@@ -1,3 +1,7 @@
+**U.N. Report Describes Physical Abuse and Dire Conditions in Israeli Detention**\
+`Some Palestinians recounted being beaten with metal bars or the butts of guns, according to the report. Israeli officials have said that the rights of detainees are respected.`\
+https://nytimes.com/2024/04/17/world/middleeast/un-report-israel-detainees-abuse.html
+
 **Attack by Hezbollah Injures at Least 13 in Israeli Border Village**\
 `The Lebanese militant group said the drone and missile attack was in response to Israeli airstrikes that killed two Hezbollah commanders.`\
 https://nytimes.com/2024/04/17/world/middleeast/hezbollah-drone-attack-israel.html
