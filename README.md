@@ -1,3 +1,7 @@
+**Deluge Batters U.A.E. and Oman, Killing at Least 19**\
+`The heavy rains also flooded parts of Dubai International Airport, causing scores of flight delays and cancellations, and brought other cities in the U.A.E. to a standstill.`\
+https://nytimes.com/2024/04/17/homepage/deluge-batters-uae-and-oman-killing-at-least-19.html
+
 **Justice Dept. Nears Settlement Over F.B.I.’s Failure to Investigate Larry Nassar**\
 `The deal, which could be announced in coming weeks, would bring an end to one of the last major cases stemming from a horrific sports scandal.`\
 https://nytimes.com/2024/04/17/us/politics/larry-nassar-victims-fbi-doj-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/us/nra-settlement.html
 **As Civil Rights Era Fades From Memory, Generation Gap Divides Black Voters**\
 `Many older Black voters see moral and political reasons to vote. Younger Black voters feel far less motivated to cast a ballot for Democrats or even at all.`\
 https://nytimes.com/2024/04/17/us/politics/black-democrats-age-gap.html
-
-**Israel Signaled That It Would Retaliate Against Iran**\
-`Also, the House is set to vote on aid for Ukraine and Israel. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/04/17/briefing/israel-iran-response-house-foreign-aid-vote.html
 
