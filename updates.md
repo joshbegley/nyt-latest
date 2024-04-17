@@ -1,3 +1,7 @@
+**Marian Zazeela, an Artist of Light and Design, Dies at 83**\
+`She pivoted from painting to lighting exhibitions, performance art, graphic design and minimalist music, performed with her husband, the composer La Monte Young.`\
+https://nytimes.com/2024/04/17/arts/design/marian-zazeela-dead.html
+
 **Here are some of the recent antisemitism allegations against Columbia.**\
 `By Sharon Otterman`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/here-are-some-of-the-recent-antisemitism-allegations-against-columbia

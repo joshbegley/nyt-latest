@@ -1,3 +1,7 @@
+**Marian Zazeela, an Artist of Light and Design, Dies at 83**\
+`She pivoted from painting to lighting exhibitions, performance art, graphic design and minimalist music, performed with her husband, the composer La Monte Young.`\
+https://nytimes.com/2024/04/17/arts/design/marian-zazeela-dead.html
+
 **Here are some of the recent antisemitism allegations against Columbia.**\
 `By Sharon Otterman`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/here-are-some-of-the-recent-antisemitism-allegations-against-columbia
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/us/politics/johnson-ukraine-israel-aid-house.html
 **What a TikTok Ban Would Mean for the U.S. Defense of an Open Internet**\
 `Global digital rights advocates are watching to see if Congress acts, worried that other countries could follow suit with app bans of their own.`\
 https://nytimes.com/2024/04/17/technology/tiktok-ban-internet-freedom.html
-
-**Sophie Kinsella, ‘Shopaholic’ Author, Says She Has Brain Cancer**\
-`The author of the best-selling book series said she had been undergoing treatment for glioblastoma, an aggressive brain tumor, after a diagnosis in 2022.`\
-https://nytimes.com/2024/04/17/books/sophie-kinsella-brain-cancer.html
 
