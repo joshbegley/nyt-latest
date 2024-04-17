@@ -1,3 +1,7 @@
+**In Congress, Columbia’s Leaders Try to Please. At Home, They Face Anger.**\
+`For Columbia’s president, Nemat Shafik, a hearing on antisemitism went relatively well. But on campus, intense protests suggest a difficult road ahead for the university.`\
+https://nytimes.com/2024/04/17/nyregion/columbia-president-university-protest.html
+
 **A witness describes losing four nieces and nephews in an attack that killed several children playing in the street.**\
 `By Anushka Patil and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/a-witness-describes-losing-four-nieces-and-nephews-in-an-attack-that-killed-several-children-playing-in-the-street
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/us/barbara-joans-dead.html
 **Miscalculation Leads to Escalation as Israel and Iran Clash**\
 `Israeli officials say they didn’t see a strike on a high-level Iranian target in Syria as a provocation, and did not give Washington a heads-up about it until right before it happened.`\
 https://nytimes.com/2024/04/17/world/middleeast/iran-israel-attack.html
-
-**Is Trump’s Trial Really About ‘Hush Money’?**\
-`Both the prosecutors and defense are trying to frame it differently.`\
-https://nytimes.com/2024/04/17/us/politics/trump-trial-hush-money.html
 

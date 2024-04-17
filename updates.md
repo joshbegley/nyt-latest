@@ -1,3 +1,7 @@
+**In Congress, Columbia’s Leaders Try to Please. At Home, They Face Anger.**\
+`For Columbia’s president, Nemat Shafik, a hearing on antisemitism went relatively well. But on campus, intense protests suggest a difficult road ahead for the university.`\
+https://nytimes.com/2024/04/17/nyregion/columbia-president-university-protest.html
+
 **A witness describes losing four nieces and nephews in an attack that killed several children playing in the street.**\
 `By Anushka Patil and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/a-witness-describes-losing-four-nieces-and-nephews-in-an-attack-that-killed-several-children-playing-in-the-street
