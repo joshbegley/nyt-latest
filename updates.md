@@ -1,3 +1,11 @@
+**Venezuelans Are Suffering, but More Sanctions Won’t Help**\
+`The Biden administration wants to lift damaging oil sanctions but is caught in a political bind with Venezuela’s dictator.`\
+https://nytimes.com/2024/04/17/opinion/venezuela-oil-sanctions.html
+
+**Wednesday Briefing**\
+`Israel’s difficult choices on Iran.`\
+https://nytimes.com/2024/04/17/briefing/wednesday-briefing.html
+
 **Heavy Rainfall in Oman, Which Killed 18, Expected to Continue on Wednesday**\
 `The neighboring United Arab Emirates also experienced its largest rainfall in 75 years, with a year’s worth of rain falling on Dubai alone.`\
 https://nytimes.com/2024/04/17/us/oman-flood-rain-emirates-deaths.html
