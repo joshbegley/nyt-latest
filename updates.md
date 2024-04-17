@@ -1,3 +1,15 @@
+**The Split Screen Democrats Have Been Dreaming About**\
+`While Trump glowers in a courtroom, Biden tells voters about making billionaires pay more.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/biden-trump-split-screen
+
+**Boeing Whistle-Blower Details His Concerns to Congressional Panel**\
+`Sam Salehpour, an engineer at Boeing for over a decade, testified that the company introduced production shortcuts in an attempt to address bottlenecks.`\
+https://nytimes.com/2024/04/17/us/politics/boeing-787-dreamliner-whistle-blower.html
+
+**Supreme Court Backs Police Officer in Job Bias Case**\
+`The officer, Jatonya Muldrow, said she had been transferred to a less desirable position based on her sex. Lower courts ruled that she had failed to show concrete harm.`\
+https://nytimes.com/2024/04/17/us/politics/supreme-court-police-officer-workplace-discrimination.html
+
 **Before She Became Music’s Greatest Teacher, She Wrote an Opera**\
 `Nadia Boulanger’s “La Ville Morte” was repeatedly thwarted by death and World War I, then nearly lost. Finally, it is having its American premiere.`\
 https://nytimes.com/2024/04/17/arts/music/nadia-boulanger-la-ville-morte.html

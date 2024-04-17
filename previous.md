@@ -1,3 +1,15 @@
+**The Split Screen Democrats Have Been Dreaming About**\
+`While Trump glowers in a courtroom, Biden tells voters about making billionaires pay more.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/biden-trump-split-screen
+
+**Boeing Whistle-Blower Details His Concerns to Congressional Panel**\
+`Sam Salehpour, an engineer at Boeing for over a decade, testified that the company introduced production shortcuts in an attempt to address bottlenecks.`\
+https://nytimes.com/2024/04/17/us/politics/boeing-787-dreamliner-whistle-blower.html
+
+**Supreme Court Backs Police Officer in Job Bias Case**\
+`The officer, Jatonya Muldrow, said she had been transferred to a less desirable position based on her sex. Lower courts ruled that she had failed to show concrete harm.`\
+https://nytimes.com/2024/04/17/us/politics/supreme-court-police-officer-workplace-discrimination.html
+
 **Before She Became Music’s Greatest Teacher, She Wrote an Opera**\
 `Nadia Boulanger’s “La Ville Morte” was repeatedly thwarted by death and World War I, then nearly lost. Finally, it is having its American premiere.`\
 https://nytimes.com/2024/04/17/arts/music/nadia-boulanger-la-ville-morte.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/17/canada-gold-heist-pearson-airport.html
 **Review: Limbs Hook Onto Limbs as Bodies Endlessly Intertwine**\
 `The Sydney Dance Company’s “ab [intra]” at the Joyce Theater is impressive but chilly.`\
 https://nytimes.com/2024/04/17/arts/dance/review-sydney-dance-company-ab-intra-joyce-theater.html
-
-**Columbia has been host to charged protests over Gaza in recent months.**\
-`By Sharon Otterman`\
-https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/columbia-has-been-host-to-charged-protests-over-gaza-in-recent-months
-
-**My Boyfriend Said He’d Save Our Cat but Not a Stranger if Both Were Drowning**\
-`The magazine’s Ethicist columnist on whether there is inherent value in human life more than any other kind of life.`\
-https://nytimes.com/2024/04/17/magazine/human-pet-life-ethics.html
-
-**The Language of Gender Identity**\
-`Readers discuss an essay that criticized wording like “sex assigned at birth.” Also: Power over principle; the electric grid; Shakespeare’s insights.`\
-https://nytimes.com/2024/04/17/opinion/gender-identity.html
 
