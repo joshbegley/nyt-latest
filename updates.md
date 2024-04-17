@@ -1,3 +1,19 @@
+**The Global Turn Away From Free-Market Policies Worries Economists**\
+`More countries are embracing measures meant to encourage their own security and independence, a trend that some say could slow global growth.`\
+https://nytimes.com/2024/04/17/business/economy/industrial-policies-global-economy.html
+
+**Looking for a Fight**\
+`Our photographer spent four days at a remote Ukrainian trench outpost manned by soldiers who signed up from abroad.`\
+https://nytimes.com/2024/04/17/world/europe/ukraine-volunteer-soldier-photos.html
+
+**Why Does It Take India Six Weeks to Vote?**\
+`The election is a giant undertaking that requires millions of poll workers, voting machines and security forces to cover deserts, mountains, forests and megacities.`\
+https://nytimes.com/2024/04/17/world/asia/india-elections-long-explainer.html
+
+**Why the World Still Needs Immanuel Kant**\
+`Unlike in Europe, few in the United States will be celebrating the philosopher’s 300th birthday. But Kant’s writing shows that a free, just and moral life is possible — and that’s relevant everywhere.`\
+https://nytimes.com/2024/04/17/arts/immanuel-kant-300-anniversary.html
+
 **Bob Graham, Former Florida Governor and Senator, Dies at 87**\
 `After the 9/11 attacks, Mr. Graham became an outspoken critic of President George W. Bush and his administration’s response to terrorism and its involvement in wars in Iraq and Afghanistan.`\
 https://nytimes.com/2024/04/16/us/bob-graham-dead.html
