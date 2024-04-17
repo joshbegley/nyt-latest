@@ -1,3 +1,7 @@
+**Attack by Hezbollah Injures at Least 13 in Israeli Border Village**\
+`The Lebanese militant group said the drone and missile attack was in response to Israeli airstrikes that killed two Hezbollah commanders.`\
+https://nytimes.com/2024/04/17/world/middleeast/hezbollah-drone-attack-israel.html
+
 **17columbia-antisemitism**\
 `Live Updates: Columbia’s President to Testify in Antisemitism Hearing`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing
@@ -16,7 +20,7 @@ https://nytimes.com/2024/04/17/us/california-readers-pandemic.html
 
 **Biden to Run Ads Across Pennsylvania Attacking Trump on the Economy**\
 `Winning the state, where he narrowly defeated Donald J. Trump in 2020, is crucial to his re-election strategy.`\
-https://nytimes.com/2024/04/17/us/politics/biden-to-run-ads-across-pennsylvania-attacking-trump-on-the-economy.html
+https://nytimes.com/2024/04/17/us/politics/biden-pennsylvania-ads.html
 
 **Should I Be Loyal to My Father or My Dying Uncle?**\
 `A reader is torn between attending a final dinner with his uncle, who has terminal cancer, and supporting his father, who wasn’t invited because of an old grudge.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/arts/television/shogun-anna-sawai-mariko.html
 **Russian Missile Strikes North of Kyiv Kill at Least 14, Ukraine Says**\
 `President Volodymyr Zelensky said the death toll might rise and blamed lack of air defenses for the loss of life. At least 61 people were reported wounded.`\
 https://nytimes.com/2024/04/17/world/europe/ukraine-chernihiv-strike.html
-
-**Britain’s foreign secretary says Israel will not let Iran’s assault go unanswered.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/britains-foreign-secretary-signals-that-israel-will-not-let-irans-assault-go-unanswered
 
