@@ -8,7 +8,7 @@ https://nytimes.com/2024/04/17/world/americas/us-oil-sanctions-venezuela-maduro.
 
 **Senate Dismisses First of Two Impeachment Charges Against Mayorkas**\
 `Democrats moved quickly to sweep aside the article of impeachment accusing the homeland security secretary of refusing to enforce immigration laws, calling it unconstitutional.`\
-https://nytimes.com/2024/04/17/us/politics/senate-impeachment-charge-mayorkas.html
+https://nytimes.com/2024/04/17/us/politics/senate-alejandro-mayorkas-impeachment-charge.html
 
 **U.N. seeks $2.8 billion in donations for response to Gaza crisis.**\
 `By Liam Stack`\
