@@ -32,7 +32,7 @@ https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/heres-where-
 
 **Israel ponders a response to Iran’s attack, with each choice a risk.**\
 `In debating how to respond to last weekend’s Iranian airstrike, Israel’s war cabinet is choosing between options that could deter future attacks or de-escalate hostilities.`\
-https://nytimes.com/live/2024/04/16/world/iran-israel-gaza-war-news/israel-weighs-response-to-iran-attack-with-each-choice-a-risk
+https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/israel-weighs-response-to-iran-attack-with-each-choice-a-risk
 
 **17mideast-crisis**\
 `Israel’s Conflict With Iran Overshadows Fighting in Gaza`\

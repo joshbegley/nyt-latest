@@ -1,3 +1,7 @@
+**Israel ponders a response to Iran’s attack, with each choice a risk.**\
+`In debating how to respond to last weekend’s Iranian airstrike, Israel’s war cabinet is choosing between options that could deter future attacks or de-escalate hostilities.`\
+https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/israel-weighs-response-to-iran-attack-with-each-choice-a-risk
+
 **Jimmy Kimmel Notes ‘Another Stormy Day’ in ‘The Orange People’s Court’**\
 `Kimmel said that former president Donald J. Trump is starring “as the defendant in his first of many criminal trials to come.”`\
 https://nytimes.com/2024/04/17/arts/television/jimmy-kimmel-trump-jury-selection.html
