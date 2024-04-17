@@ -1,3 +1,19 @@
+**Israel Signaled That It Would Retaliate Against Iran**\
+`Also, the House is set to vote on aid for Ukraine and Israel. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/04/17/briefing/israel-iran-response-house-foreign-aid-vote.html
+
+**The Ugly State of Shoe Collaborations**\
+`Blingy Crocs, punk Uggs and spangled sneakers, oh my.`\
+https://nytimes.com/2024/04/17/style/ugly-shoes-collaborations-crocs-bode-nike.html
+
+**Applications Open! The New York Times Illustration Portfolio Review**\
+`We’re inviting illustrators from around the world to share their work with art directors from The New York Times. Apply by June 21, 2024.`\
+https://nytimes.com/2024/04/17/arts/illustration-portfolio-review.html
+
+**Biden’s Steel Tariffs Are Merely Symbolic**\
+`Last year, just 2 percent of U.S. imported steel came from China.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/biden-steel-tarriff
+
 **Thursday Briefing: Israel Seems Poised to Retaliate**\
 `Also, a deadly Russian missile strike in Ukraine and “green Islam” in Indonesia.`\
 https://nytimes.com/2024/04/17/world/asia/israel-iran-britain-ukraine-aid-asia.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/17/world/middleeast/israel-iran-diplomatic-pressure.
 **China Could Threaten Critical Infrastructure in a Conflict, N.S.A. Chief Says**\
 `Gen. Timothy Haugh, who is also the head of the U.S. military’s Cyber Command, said Beijing was “sending a pretty clear signal.”`\
 https://nytimes.com/2024/04/17/us/politics/china-cyber-us-infrastructure.html
-
-**The 16 Messages That Led to Love**\
-`Readers of the Modern Love column share the banter, emojis and wit that made them fall for each other.`\
-https://nytimes.com/interactive/2024/04/17/magazine/first-messsages-love.html
-
-**Anne Innis Dagg, Who Studied Giraffes in the Wild, Dies at 91**\
-`She was believed to be the first Western scientist to study the animals in their natural habitat, but she struggled to overcome sexism in academia.`\
-https://nytimes.com/2024/04/17/science/anne-innis-dagg-dead.html
-
-**Abortion Is Remaking Our Political Landscape. Why Aren’t Guns?**\
-`Is it possible for us to get to the same place on gun safety that we’re getting to on abortion — where the people who make the policy feel pressure to be sensible?`\
-https://nytimes.com/2024/04/17/opinion/guns-abortion-kari-lake.html
-
-**The New Age of D.I.Y. Medicine**\
-`A new vaccine for preventing cavities doesn’t have F.D.A. approval or promising clinical trials, but it does have customers.`\
-https://nytimes.com/2024/04/17/opinion/lumina-cavity-vaccine-covid-diy.html
 
