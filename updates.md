@@ -1,3 +1,11 @@
+**Atlas, a Humanoid Robot Used for Research, Is Leaping Into Retirement**\
+`It has been replaced by a new model, which will be used in automotive manufacturing. A farewell video featured the old machine running outdoors, performing back flips and awkwardly shimmying.`\
+https://nytimes.com/2024/04/17/technology/boston-dynamics-atlas-robot-retires.html
+
+**An Absurd Impeachment Reaches a Satisfying End**\
+`The Senate did the country a favor by sparing the public a farcical trial.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/mayorkas-impeachment-ends
+
 **Popcast (Deluxe): It’s Drake vs. Everybody … Who’s Winning?**\
 `Breaking down the convoluted recent beef between Drake and Kendrick Lamar (and Future, Metro Boomin, the Weeknd, ASAP Rocky, Rick Ross and more).`\
 https://nytimes.com/2024/04/17/arts/music/drake-kendrick-beef-popcast-deluxe.html
