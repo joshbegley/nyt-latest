@@ -1,3 +1,7 @@
+**Vampire Weekend’s New Album Goes Underground and All Over**\
+`Digging into “Only God Was Above Us,” an LP that’s both catchy and complex.`\
+https://nytimes.com/2024/04/17/arts/music/popcast-vampire-weekend.html
+
 **Guantánamo Bay Opens an Extra Courtroom**\
 `Planners added the national security courtroom for pretrial hearings and to prepare for the possibility of a Sept. 11 trial.`\
 https://nytimes.com/2024/04/17/us/politics/guantanamo-second-courtroom.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/style/ugly-shoes-collaborations-crocs-bode-nike.h
 **Applications Open! The New York Times Illustration Portfolio Review**\
 `We’re inviting illustrators from around the world to share their work with art directors from The New York Times. Apply by June 21, 2024.`\
 https://nytimes.com/2024/04/17/arts/illustration-portfolio-review.html
-
-**Biden’s Steel Tariffs Are Merely Symbolic**\
-`Last year, just 2 percent of U.S. imported steel came from China.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/biden-steel-tarriff
 
