@@ -1,3 +1,11 @@
+**Venezuelans Are Suffering, but More Sanctions Won’t Help**\
+`The Biden administration wants to lift damaging oil sanctions but is caught in a political bind with Venezuela’s dictator.`\
+https://nytimes.com/2024/04/17/opinion/venezuela-oil-sanctions.html
+
+**Wednesday Briefing**\
+`Israel’s difficult choices on Iran.`\
+https://nytimes.com/2024/04/17/briefing/wednesday-briefing.html
+
 **Heavy Rainfall in Oman, Which Killed 18, Expected to Continue on Wednesday**\
 `The neighboring United Arab Emirates also experienced its largest rainfall in 75 years, with a year’s worth of rain falling on Dubai alone.`\
 https://nytimes.com/2024/04/17/us/oman-flood-rain-emirates-deaths.html
@@ -10,13 +18,13 @@ https://nytimes.com/2024/04/17/world/asia/green-islam-indonesia.html
 `More countries are embracing measures meant to encourage their own security and independence, a trend that some say could slow global growth.`\
 https://nytimes.com/2024/04/17/business/economy/industrial-policies-global-economy.html
 
-**Looking for a Fight**\
-`Our photographer spent four days at a remote Ukrainian trench outpost manned by soldiers who signed up from abroad.`\
-https://nytimes.com/2024/04/17/world/europe/ukraine-volunteer-soldier-photos.html
-
 **Why Does It Take India Six Weeks to Vote?**\
 `The election is a giant undertaking that requires millions of poll workers, voting machines and security forces to cover deserts, mountains, forests and megacities.`\
 https://nytimes.com/2024/04/17/world/asia/india-elections-long-explainer.html
+
+**Looking for a Fight**\
+`Our photographer spent four days at a remote Ukrainian trench outpost manned by soldiers who signed up from abroad.`\
+https://nytimes.com/2024/04/17/world/europe/ukraine-volunteer-soldier-photos.html
 
 **Why the World Still Needs Immanuel Kant**\
 `Unlike in Europe, few in the United States will be celebrating the philosopher’s 300th birthday. But Kant’s writing shows that a free, just and moral life is possible — and that’s relevant everywhere.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/16/us/bob-graham-dead.html
 **Alabama Runoff Elections Set Field in Newly Competitive House District**\
 `Shomari Figures, a Democrat who worked in the Justice Department, and Caroleene Dobson, a Republican newcomer, advanced in the state’s Second Congressional District.`\
 https://nytimes.com/2024/04/16/us/politics/alabama-second-district.html
-
-**Spot to Park**\
-`Joseph Gangi makes our eyes play tricks on us.`\
-https://nytimes.com/2024/04/16/crosswords/daily-puzzle-2024-04-17.html
-
-**Michigan Democrats Reclaim Full Control of Statehouse With Special Election Wins**\
-`The departure of two Democratic representatives who won suburban mayoral posts last fall evenly split the Michigan House.`\
-https://nytimes.com/2024/04/16/us/michigan-democrats-trifecta.html
 
