@@ -1,5 +1,5 @@
 **What Can ‘Green Islam’ Achieve in the World’s Largest Muslim Country?**\
-`Clerics are issuing fatwas, retrofitting mosques and imploring congregants to help turn the tide against climate change.`\
+`Clerics in Indonesia are issuing fatwas, retrofitting mosques and imploring congregants to help turn the tide against climate change.`\
 https://nytimes.com/2024/04/17/world/asia/green-islam-indonesia.html
 
 **The Global Turn Away From Free-Market Policies Worries Economists**\
