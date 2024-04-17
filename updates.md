@@ -1,3 +1,7 @@
+**Top Adviser to Mayor Adams Is Hit With a Second Harassment Lawsuit**\
+`The aide, Timothy Pearson, was accused of harassing and retaliating against a second police sergeant under his watch.`\
+https://nytimes.com/2024/04/17/nyregion/timothy-pearson-lawsuit.html
+
 **In Congress, Columbia’s Leaders Try to Please. At Home, They Face Anger.**\
 `For Columbia’s president, Nemat Shafik, a hearing on antisemitism went relatively well. But on campus, intense protests suggest a difficult road ahead for the university.`\
 https://nytimes.com/2024/04/17/nyregion/columbia-president-university-protest.html
