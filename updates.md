@@ -1,3 +1,7 @@
+**Alabama Runoff Elections Set Field in Newly Competitive House District**\
+`Shomari Figures, a Democrat who worked in the Justice Department, and Caroleene Dobson, a Republican newcomer, advanced in the state’s Second Congressional District.`\
+https://nytimes.com/2024/04/16/us/politics/alabama-second-district.html
+
 **Spot to Park**\
 `Joseph Gangi makes our eyes play tricks on us.`\
 https://nytimes.com/2024/04/16/crosswords/spot-to-park.html
