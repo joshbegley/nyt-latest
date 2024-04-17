@@ -1,3 +1,7 @@
+**As Civil Rights Era Fades From Memory, Generation Gap Divides Black Voters**\
+`Many older Black voters see moral and political reasons to vote. Younger Black voters feel far less motivated to cast a ballot for Democrats or even at all.`\
+https://nytimes.com/2024/04/17/us/politics/black-democrats-age-gap.html
+
 **Israel Signaled That It Would Retaliate Against Iran**\
 `Also, the House is set to vote on aid for Ukraine and Israel. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/04/17/briefing/israel-iran-response-house-foreign-aid-vote.html
