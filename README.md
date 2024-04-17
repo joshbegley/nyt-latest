@@ -1,3 +1,7 @@
+**Before She Became Music’s Greatest Teacher, She Wrote an Opera**\
+`Nadia Boulanger’s “La Ville Morte” was repeatedly thwarted by death and World War I, then nearly lost. Finally, it is having its American premiere.`\
+https://nytimes.com/2024/04/17/arts/music/nadia-boulanger-la-ville-morte.html
+
 **Abe Koogler’s New Play Is an Ode to Intense Culinary Experiences**\
 `In “Staff Meal,” in previews at Playwrights Horizons, a restaurant becomes a refuge as the world ends.`\
 https://nytimes.com/2024/04/17/theater/abe-kooglers-new-play-is-an-ode-to-intense-culinary-experiences.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/magazine/human-pet-life-ethics.html
 **The Language of Gender Identity**\
 `Readers discuss an essay that criticized wording like “sex assigned at birth.” Also: Power over principle; the electric grid; Shakespeare’s insights.`\
 https://nytimes.com/2024/04/17/opinion/gender-identity.html
-
-**On the Ground at the Venice Biennale**\
-`Scenes from the pre-opening at the pivotal art event.`\
-https://nytimes.com/article/venice-biennale-2024.html
 
