@@ -1,3 +1,15 @@
+**When a Mob Gets to Veto a Valedictorian’s Speech**\
+`A threat of violence shouldn’t cancel the right to free expression.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/usc-valedictorian-speech-canceled
+
+**Biden, in Pennsylvania, will speak to the United Steelworkers.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/04/17/us/biden-trump-election-news/biden-in-pennsylvania-will-speak-to-the-united-steelworkers
+
+**17pol-swiper**\
+`Election Updates: Biden campaigns again in Pennsylvania, a swing state crucial to his re-election hopes.`\
+https://nytimes.com/live/2024/04/17/us/biden-trump-election-news
+
 **How to define the term ‘antisemitism’ is the subject of bitter debate.**\
 `By Vimal Patel`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/how-to-define-the-term-antisemitism-is-the-subject-of-a-bitter-debate
