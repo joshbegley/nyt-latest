@@ -1,3 +1,7 @@
+**Sleep Apnea Reduced in People Who Took Weight-Loss Drug, Eli Lilly Reports**\
+`The company reported results of clinical trials involving Zepbound, an obesity drug in the same class as Novo Nordisk’s Wegovy.`\
+https://nytimes.com/2024/04/17/health/sleep-apnea-obesity-zepbound.html
+
 **Are ‘Forever Chemicals’ a Forever Problem?**\
 `The Environmental Protection Agency says “forever chemicals” must be removed from tap water. But they lurk in much more of what we eat, drink and use.`\
 https://nytimes.com/2024/04/17/podcasts/the-daily/forever-chemicals-epa.html
