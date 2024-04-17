@@ -1,3 +1,7 @@
+**Bob Graham, Former Florida Governor and Senator, Dies at 87**\
+`After the 9/11 attacks, Mr. Graham became an outspoken critic of President George W. Bush and his administration’s response to terrorism and its involvement in wars in Iraq and Afghanistan.`\
+https://nytimes.com/2024/04/16/us/bob-graham-dead.html
+
 **Spot to Park**\
 `Joseph Gangi makes our eyes play tricks on us.`\
 https://nytimes.com/2024/04/16/crosswords/daily-puzzle-2024-04-17.html
