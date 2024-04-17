@@ -1,3 +1,19 @@
+**At Venice Biennale, Israel’s Show Is Halted, but Protests Go On**\
+`The country’s exhibition was already closed after its artist refused to exhibit her work until there was a cease-fire and hostage deal in Gaza. But that didn’t calm the discontent.`\
+https://nytimes.com/2024/04/17/arts/design/israel-gaza-protest-venice-biennale.html
+
+**A Little Bit of Dirt Is Good for You**\
+`Go on, grab a handful of soil or hike a muddy trail: It can benefit everything from your mood to your microbiome.`\
+https://nytimes.com/2024/04/17/well/live/dirt-health-benefits.html
+
+**Who are Claire Shipman and David Greenwald?**\
+`By Sharon Otterman`\
+https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/who-are-claire-shipman-and-david-greenwald
+
+**Read Virginia Foxx’s Opening Remarks**\
+`Representative Virginia Foxx, who chairs the House Education and the Workforce Committee, listed the reasons for calling Wednesday’s hearing on campus antisemitism in her prepared opening remarks.`\
+https://nytimes.com/interactive/2024/04/17/us/foxx-statement-document.html
+
 **Read Nemat Shafik’s Opening Remarks**\
 `In her prepared opening statement, Nemat Shafik, the president of Columbia University, laid out ways the university has been responding to antisemitism on campus.`\
 https://nytimes.com/interactive/2024/04/17/us/shafik-statement-document.html
