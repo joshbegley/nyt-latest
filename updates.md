@@ -1,3 +1,7 @@
+**Biden, Competing With Trump to Be Tough on China, Calls for Steel Tariffs**\
+`Speaking to the United Steelworkers union in Pittsburgh, the president urged major increases to some tariffs on steel and aluminum products from China.`\
+https://nytimes.com/2024/04/17/us/politics/biden-trump-china-tariffs.html
+
 **A Cyberattack Could Make N.Y. State’s Late Budget Even Later**\
 `Days after lawmakers in Albany reached agreement on the framework of a $237 billion state budget, a digital security breach threatened to delay proceedings.`\
 https://nytimes.com/2024/04/17/nyregion/cyberattack-budget-ny.html
