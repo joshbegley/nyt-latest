@@ -1,3 +1,11 @@
+**The Real Reasons Trump Set Foot in a Bodega**\
+`There’s nothing he won’t exploit for a moment of political theater.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-bodega
+
+**‘Bone Valley’ Podcast Subject Is Granted Parole 37 Years After Wife’s Murder**\
+`Leo Schofield has maintained innocence all along in his wife’s murder in 1987, and another man has since confessed to the killing.`\
+https://nytimes.com/2024/04/17/us/leo-schofield-bone-valley-parole.html
+
 **What’s in Our Queue? ‘Anatomy of a Fall’ and More**\
 `Natasha Frost shares five things she's recently heard, seen, and watched.`\
 https://nytimes.com/interactive/2024/04/17/arts/editors-recommendations-anatomy.html

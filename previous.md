@@ -1,3 +1,7 @@
+**The Real Reasons Trump Set Foot in a Bodega**\
+`There’s nothing he won’t exploit for a moment of political theater.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-bodega
+
 **What’s in Our Queue? ‘Anatomy of a Fall’ and More**\
 `Natasha Frost shares five things she's recently heard, seen, and watched.`\
 https://nytimes.com/interactive/2024/04/17/arts/editors-recommendations-anatomy.html
@@ -16,7 +20,7 @@ https://nytimes.com/2024/04/17/science/an-11-year-old-girls-fossil-find-is-the-l
 
 **‘Bone Valley’ Podcast Subject Is Granted Parole 37 Years After Wife’s Murder**\
 `Leo Schofield has maintained innocence all along in his wife’s murder in 1987, and another man has since confessed to the killing.`\
-https://nytimes.com/2024/04/17/us/bone-valley-leo-schofield-parole.html
+https://nytimes.com/2024/04/17/us/leo-schofield-bone-valley-parole.html
 
 **Who Are the Columbia Professors Mentioned in the House Hearing?**\
 `Lawmakers grilled officials over comments the faculty members Joseph Andoni Massad, Katherine Franke and Mohamed Abdou made after the Hamas-led attack on Israel.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/arts/design/marian-zazeela-dead.html
 **Here are some of the recent antisemitism allegations against Columbia.**\
 `By Sharon Otterman`\
 https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/here-are-some-of-the-recent-antisemitism-allegations-against-columbia
-
-**Keith Haring’s Legacy Is Not Found at the Museum**\
-`Three decades after his death, his work is still sold on products and in stores. But his concept of public art is most powerfully preserved on the street.`\
-https://nytimes.com/2024/04/17/arts/design/keith-haring-brad-gooch.html
 
