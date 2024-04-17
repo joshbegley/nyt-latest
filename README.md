@@ -1,3 +1,7 @@
+**‘Shogun’: Anna Sawai on Her Character’s Final Transformation**\
+`In an interview, the actor discusses the most recent episode of the FX drama and how her Lady Mariko “wants to fulfill her purpose.”`\
+https://nytimes.com/2024/04/17/arts/television/shogun-anna-sawai-mariko.html
+
 **Russian Missile Strikes North of Kyiv Kill at Least 14, Ukraine Says**\
 `President Volodymyr Zelensky said the death toll might rise and blamed lack of air defenses for the loss of life. At least 61 people were reported wounded.`\
 https://nytimes.com/2024/04/17/world/europe/ukraine-chernihiv-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/world/europe/uk-bill-asylum-rwanda.html
 **Sleep Apnea Reduced in People Who Took Weight-Loss Drug, Eli Lilly Reports**\
 `The company reported results of clinical trials involving Zepbound, an obesity drug in the same class as Novo Nordisk’s Wegovy.`\
 https://nytimes.com/2024/04/17/health/sleep-apnea-obesity-zepbound.html
-
-**Are ‘Forever Chemicals’ a Forever Problem?**\
-`The Environmental Protection Agency says “forever chemicals” must be removed from tap water. But they lurk in much more of what we eat, drink and use.`\
-https://nytimes.com/2024/04/17/podcasts/the-daily/forever-chemicals-epa.html
 
