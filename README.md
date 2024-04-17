@@ -1,3 +1,7 @@
+**My Boyfriend Said He’d Save Our Cat but Not a Stranger if Both Were Drowning**\
+`The magazine’s Ethicist columnist on whether there is inherent value in human life more than any other kind of life.`\
+https://nytimes.com/2024/04/17/magazine/human-pet-life-ethics.html
+
 **The Language of Gender Identity**\
 `Readers discuss an essay that criticized wording like “sex assigned at birth.” Also: Power over principle; the electric grid; Shakespeare’s insights.`\
 https://nytimes.com/2024/04/17/opinion/gender-identity.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/17/nyregion/columbia-antisemitism-hearing/shafi
 **Easy Spring Dishes With Time-Saving Shortcuts**\
 `Sautéed salmon with tomatoes and leeks, chilaquiles verdes and one-pan orzo with spinach and feta welcome a little kitchen cheating.`\
 https://nytimes.com/2024/04/17/dining/easy-spring-dishes.html
-
-**Tribeca Festival to Feature Brat Pack and Lily Gladstone Films**\
-`Organizers released the event lineup for the annual New York event, set for June. It includes films that trace the lives of Linda Perry and Avicii.`\
-https://nytimes.com/2024/04/17/movies/tribeca-festival-lineup.html
 
