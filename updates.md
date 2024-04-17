@@ -1,3 +1,7 @@
+**A Cyberattack Could Make N.Y. State’s Late Budget Even Later**\
+`Days after lawmakers in Albany reached agreement on the framework of a $237 billion state budget, a digital security breach threatened to delay proceedings.`\
+https://nytimes.com/2024/04/17/nyregion/kathy-hochul-new-york-budget-cyberattack.html
+
 **Hezbollah Launches Attack on Northern Israeli Border Village**\
 `Hezbollah said its attack on the village of Arab al-Aramashe was in response to Israeli airstrikes a day earlier.`\
 https://nytimes.com/video/world/middleeast/100000009419521/hezbollah-drone-attack-israel.html

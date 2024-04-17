@@ -24,7 +24,7 @@ https://nytimes.com/2024/04/17/us/politics/biden-trump-china-tariffs.html
 
 **A Cyberattack Could Make N.Y. State’s Late Budget Even Later**\
 `Days after lawmakers in Albany reached agreement on the framework of a $237 billion state budget, a digital security breach threatened to delay proceedings.`\
-https://nytimes.com/2024/04/17/nyregion/cyberattack-budget-ny.html
+https://nytimes.com/2024/04/17/nyregion/kathy-hochul-new-york-budget-cyberattack.html
 
 **A New Home for Sundance? Festival Organizers Say It’s Possible.**\
 `A 13-year contract with Park City, Utah, is set to expire in 2026 and the film festival is beginning a review process to see if it should move.`\
