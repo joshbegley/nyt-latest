@@ -1,3 +1,15 @@
+**Aung San Suu Kyi Moved to Unknown Location From Prison by Myanmar Junta**\
+`The unexpected relocation was attributed to a heat wave, and came as the military government is facing increasingly emboldened rebel forces.`\
+https://nytimes.com/2024/04/17/world/asia/suu-kyi-moved-junta-myanmar.html
+
+**Has Your Birth Order Shaped Who You Are?**\
+`Does it matter if you’re the firstborn, the middle child, the youngest or somewhere in between?`\
+https://nytimes.com/2024/04/17/learning/has-your-birth-order-shaped-who-you-are.html
+
+**A Timeline of Britain’s Troubled Plan to Send Asylum Seekers to Rwanda**\
+`The U.K. government hopes to pass a bill this week, two years after the plan was first unveiled, in an effort to override a ruling by Britain’s highest court that Rwanda is not safe for refugees.`\
+https://nytimes.com/2024/04/17/world/europe/uk-bill-asylum-rwanda.html
+
 **Sleep Apnea Reduced in People Who Took Weight-Loss Drug, Eli Lilly Reports**\
 `The company reported results of clinical trials involving Zepbound, an obesity drug in the same class as Novo Nordisk’s Wegovy.`\
 https://nytimes.com/2024/04/17/health/sleep-apnea-obesity-zepbound.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/17/us/arizona-abortion-ban-repeal.html
 **Biden to Call for Tripling Tariffs on Chinese Steel Products**\
 `In a speech to union steelworkers in Pittsburgh, the president will announce several new measures meant to raise new barriers against floods of Chinese imports.`\
 https://nytimes.com/2024/04/17/us/politics/biden-tariffs-china-steel.html
-
-**Johnson Needs Democrats on Ukraine, Handing Them Power to Shape Aid Plan**\
-`The Republican speaker’s elaborate strategy for passing a foreign aid package over his party’s objections will require the cooperation of Democrats to pass it — and possibly save his job.`\
-https://nytimes.com/2024/04/17/us/politics/johnson-democrats-ukraine-aid-plan.html
-
-**Blinken Heads to G7 Meeting for Talks on Israel and Ukraine**\
-`The U.S. secretary of state and his counterparts will gather in Italy as world leaders try to contain the fallout from the Israel-Hamas war.`\
-https://nytimes.com/2024/04/17/us/politics/blinken-g7-israel-ukraine.html
-
-**Hundreds of Small Presses Just Lost Their Distributor. Now What?**\
-`A nonprofit that distributed books for many of the country’s small presses has closed, and the fallout could affect the publishing industry in ways both big and small.`\
-https://nytimes.com/2024/04/17/books/small-press-distribution-closure.html
 
