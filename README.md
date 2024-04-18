@@ -1,3 +1,7 @@
+**Millions of Girls in Africa Will Miss HPV Shots After Merck Production Problem**\
+`The company has told countries that it can supply only 18.8 million of the 29.6 million doses it was contracted to deliver this year.`\
+https://nytimes.com/2024/04/18/health/hpv-vaccine-africa-merck.html
+
 **A Far-Right Party Emerges as a Possible Kingmaker in Croatia**\
 `The Homeland Movement came third in parliamentary elections, setting itself up as a possible partner for the ruling conservatives, who failed to achieve a majority.`\
 https://nytimes.com/2024/04/18/world/europe/croatia-election-far-right.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/business/dealbook/congress-tiktok-divest.html
 **After Months of Cocaine Washing Ashore, Australian Police Make an Arrest**\
 `Drug parcels kept showing up on beaches along Australia’s shoreline. Now, the police say they found the man behind the botched shipment.`\
 https://nytimes.com/2024/04/18/world/australia/sydney-cocaine-beaches-arrest.html
-
-**‘Stress Positions’ Review: It’s Giving Pandemonium**\
-`The writer-director Theda Hammel’s biting, delirious quarantine comedy skewers white gay men in a world where fact, fiction and authentic experiences collide.`\
-https://nytimes.com/2024/04/18/movies/stress-positions-review.html
 

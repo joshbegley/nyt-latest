@@ -1,3 +1,7 @@
+**A Far-Right Party Emerges as a Possible Kingmaker in Croatia**\
+`The Homeland Movement came third in parliamentary elections, setting itself up as a possible partner for the ruling conservatives, who failed to achieve a majority.`\
+https://nytimes.com/2024/04/18/world/europe/croatia-election-far-right.html
+
 **Germany Arrests 2 in Spying and Sabotage Case Linked to Russia**\
 `The two men, dual citizens of both countries, were accused of being part of a plot to undermine aid to Ukraine by trying to blow up military infrastructure.`\
 https://nytimes.com/2024/04/18/world/europe/germany-russia-spying-arrests.html
