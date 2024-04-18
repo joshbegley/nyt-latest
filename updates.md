@@ -1,3 +1,7 @@
+**Rethinking the Ethics of Tax Deductions**\
+`Responses to an essay that suggested that the affluent forgo some deductions. Also: Aid to Ukraine; gun safety on the set; plastics and pollutants.`\
+https://nytimes.com/2024/04/18/opinion/tax-deductions.html
+
 **Meta, in Its Biggest A.I. Push, Places Smart Assistants Across Its Apps**\
 `Users of Instagram, Facebook, WhatsApp and Messenger will be able to turn to the new technology, powered by Meta’s latest artificial intelligence model, to obtain information and complete tasks.`\
 https://nytimes.com/2024/04/18/technology/meta-ai-assistant-push.html
