@@ -1,3 +1,19 @@
+**What to Watch This Weekend: ‘The Jinx’ Is Back**\
+`HBO’s “The Jinx — Part Two” offers six more episodes detailing the stranger-than-fiction saga of Robert Durst.`\
+https://nytimes.com/2024/04/18/arts/television/the-jinx.html
+
+**Netflix Added More Than 9 Million Subscribers in First Quarter**\
+`The company’s revenue was 15 percent higher compared with last year, and it solidified its standing as the entertainment company’s dominant streaming service.`\
+https://nytimes.com/2024/04/18/business/media/netflix-earnings.html
+
+**7 Rapid-Fire Restaurant Questions from Readers**\
+`Looking for the best Caesar salad? Frog legs? A restaurant near Carnegie Hall?`\
+https://nytimes.com/2024/04/18/dining/7-rapid-fire-restaurant-questions-from-readers.html
+
+**Johnson Has a Tough Job. McCarthy’s Concessions Are Making It Tougher.**\
+`The Republican speaker’s problems spring from his predecessor’s efforts to placate the far right as he grasped for the gavel. Now they are seeking to use the leverage they won then to get their way on the foreign aid bill.`\
+https://nytimes.com/2024/04/18/us/politics/mike-johnson-foreign-aid-package.html
+
 **U.S. Restarts Deportation Flights to Haiti**\
 `The Biden administration had paused deportations of Haitian migrants in recent months as their home country was wracked by violence.`\
 https://nytimes.com/2024/04/18/us/politics/us-restarts-deportation-flights-to-haiti.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/18/climate/climate-change-imf-world-bank.html
 **Trump Violated Gag Order Seven More Times, Prosecutors Say**\
 `Manhattan prosecutors again asked the judge in Donald J. Trump’s criminal case to hold him in contempt of court. The judge said he would consider the matter next week.`\
 https://nytimes.com/2024/04/18/nyregion/gag-order-trump-prosecution.html
-
-**Why Israel Might Want to Retaliate Against Iran**\
-`What if Iran’s next missile attack is more effective?`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/israel-retaliate-iran
-
-**What if O.J.’s Trial Happened Now?**\
-`It’s a different world, much more so than people want to acknowledge.`\
-https://nytimes.com/2024/04/18/opinion/oj-simpson-murder-trial.html
-
-**Biden, Eyeing Threat From R.F.K. Jr., Turns to His Famous Family for Help**\
-`The rollout of endorsements from the Kennedys signaled the urgency the Biden campaign feels toward Robert F. Kennedy Jr.’s independent bid, and its desire to discredit him.`\
-https://nytimes.com/2024/04/18/us/politics/biden-rfk-jr-kennedy-family.html
-
-**Ivy Getty Files for Divorce**\
-`After three years of marriage and a lavish wedding attended by Anya Taylor-Joy, Nancy Pelosi and Olivia Rodrigo, the oil heiress is seeking a divorce from her husband, Tobias Engel.`\
-https://nytimes.com/2024/04/18/style/ivy-getty-divorce-tobias-engel.html
 
