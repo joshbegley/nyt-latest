@@ -1,3 +1,11 @@
+**New U.S. sanctions target Iran’s drone manufacturers and steel industry.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/new-us-sanctions-target-irans-drone-manufacturers-and-steel-industry
+
+**Music Catalog Giant Hipgnosis Agrees to $1.4 Billion Sale to Concord**\
+`Hipgnosis, which owns the rights to songs by Justin Bieber and Neil Young, helped kick-start a rush on catalog sales. But its future has been in doubt.`\
+https://nytimes.com/2024/04/18/arts/music/hipgnosis-songs-fund-sell-concord.html
+
 **Millions of Girls in Africa Will Miss HPV Shots After Merck Production Problem**\
 `The company has told countries that it can supply only 18.8 million of the 29.6 million doses it was contracted to deliver this year.`\
 https://nytimes.com/2024/04/18/health/hpv-vaccine-africa-merck.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/18/nyregion/trump-hush-money-trial
 **In ‘Franklin,’ Michael Douglas Uses His Charm to Bankroll America**\
 `A new Apple TV+ series dramatizes the years Benjamin Franklin spent in France, leveraging diplomacy and guile to secure his nascent country’s future.`\
 https://nytimes.com/2024/04/18/arts/television/franklin-michael-douglas.html
-
-**Congress Ramps Up the Pressure on TikTok**\
-`A legislative maneuver in the House may help an effort to force the divestment of the video platform by its Chinese owner, which would squeeze U.S. investors.`\
-https://nytimes.com/2024/04/18/business/dealbook/congress-tiktok-divest.html
-
-**After Months of Cocaine Washing Ashore, Australian Police Make an Arrest**\
-`Drug parcels kept showing up on beaches along Australia’s shoreline. Now, the police say they found the man behind the botched shipment.`\
-https://nytimes.com/2024/04/18/world/australia/sydney-cocaine-beaches-arrest.html
 
