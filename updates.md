@@ -1,3 +1,11 @@
+**Quotation of the Day: ‘Not Just Some Wee Fragile Kickers’**\
+`Quotation of the Day for Thursday, April 18, 2024.`\
+https://nytimes.com/2024/04/18/pageoneplus/quotation-of-the-day-not-just-some-wee-fragile-kickers.html
+
+**Corrections: April 18, 2024**\
+`Corrections that appeared in print on Thursday, April 18, 2024.`\
+https://nytimes.com/2024/04/18/pageoneplus/corrections-april-18-2024.html
+
 **German Far-Right Leader Goes on Trial for Nazi Slogans**\
 `Björn Höcke, one of the most prominent far-right figures in Germany, has called the trial an attempt to suppress patriotism.`\
 https://nytimes.com/2024/04/18/world/europe/german-far-right-hocke-trial.html
