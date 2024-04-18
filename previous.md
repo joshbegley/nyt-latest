@@ -1,3 +1,11 @@
+**Three Vegetarian Dinner Party Ideas for Every Effort Level**\
+`Keep it easy with an asparagus tart and blueberry crisp, or go all-out with tapas and tangerine flan.`\
+https://nytimes.com/2024/04/18/dining/three-vegetarian-dinner-party-ideas-for-every-effort-level.html
+
+**‘The Ministry of Ungentlemanly Warfare’ Review: War, Undemanding**\
+`Guy Ritchie’s latest is the platonic ideal of an airplane movie, which is not exactly a good thing.`\
+https://nytimes.com/2024/04/18/movies/the-ministry-of-ungentlemanly-warfare-review.html
+
 **Dickey Betts, Fiery Guitarist With Allman Brothers Band, Dies at 80**\
 `He traded licks with Duane Allman and proved to be a worthy sparring partner. He also wrote, and sang, the band’s biggest hit, “Ramblin’ Man.”`\
 https://nytimes.com/2024/04/18/arts/music/dickey-betts-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/18/technology/binance-crypto-compliance-officer-nige
 **Rethinking the Ethics of Tax Deductions**\
 `Responses to an essay that suggested that the affluent forgo some deductions. Also: Aid to Ukraine; gun safety on the set; plastics and pollutants.`\
 https://nytimes.com/2024/04/18/opinion/tax-deductions.html
-
-**Meta, in Its Biggest A.I. Push, Places Smart Assistants Across Its Apps**\
-`Users of Instagram, Facebook, WhatsApp and Messenger will be able to turn to the new technology, powered by Meta’s latest artificial intelligence model, to obtain information and complete tasks.`\
-https://nytimes.com/2024/04/18/technology/meta-ai-assistant-push.html
-
-**The Unsolvable Mysteries of Donald’s and Melania’s Marriage**\
-`Trump’s trial brings more questions than answers to the fore.`\
-https://nytimes.com/2024/04/18/opinion/donald-melania-trump-trial.html
 
