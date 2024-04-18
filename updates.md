@@ -1,3 +1,7 @@
+**School Board Cancels Gay Actor’s Anti-Bullying Talk Over His ‘Lifestyle’**\
+`Maulik Pancholy was scheduled to give a talk on anti-bullying at a Pennsylvania school next month. School board members scrapped it, citing concerns about his activism and “lifestyle.”`\
+https://nytimes.com/2024/04/17/us/maulik-pancholy-pennsylvania-school.html
+
 **Review: ‘The Wiz’ Eases Back to Broadway**\
 `Almost 50 years after it debuted, this classic Black take on “The Wizard of Oz” tries to update its original formula.`\
 https://nytimes.com/2024/04/17/theater/the-wiz-review-broadway.html
