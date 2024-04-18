@@ -1,3 +1,11 @@
+**Republicans Wanted a Crackdown on Israel’s Critics. Columbia Obliged.**\
+`The latest campus antisemitism hearing was a travesty.`\
+https://nytimes.com/2024/04/18/opinion/columbia-antisemitism-hearing.html
+
+**Trump’s Jury Was Chosen. Opening Statements Could Start Monday.**\
+`Also, the U.S. and Britain imposed new sanctions on Iran. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/04/18/briefing/trump-jury-trial-iran-us-sanctions.html
+
 **The conflict with protesters has been brewing for months. Here’s what led to the school’s decision.**\
 `By Stephanie Saul`\
 https://nytimes.com/live/2024/04/18/nyregion/columbia-university-protests/the-conflict-with-protesters-has-been-brewing-for-months-heres-what-led-to-the-schools-decision
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/18/nyregion/trump-jurors-social-media.html
 **‘We Have Our Jury’**\
 `After a rocky morning in which two jurors were dismissed, a full panel of 12 was seated. Opening statements could start Monday.`\
 https://nytimes.com/2024/04/18/us/politics/trump-trial-jury-newyork.html
-
-**Philharmonic Opens Inquiry After Misconduct Allegations Are Revived**\
-`The New York Philharmonic commissioned an outside investigation into its culture after a magazine article explored how it handled an accusation of sexual assault in 2010.`\
-https://nytimes.com/2024/04/18/arts/music/new-york-philharmonic-investigation.html
-
-**Rosamund Pike Sways to Alt-Rock and Robert De Niro Takes in Some Jazz**\
-`This week, the musician Kim Gordon performed after a star-studded Dior runway show in Brooklyn. And, luminaries honored Tony Bennett during Jazz at Lincoln Center’s annual gala.`\
-https://nytimes.com/2024/04/18/style/kim-gordon-christian-dior-lincoln-center-gala.html
 
