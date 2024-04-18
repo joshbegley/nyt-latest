@@ -1,3 +1,7 @@
+**Amsterdam’s Latest Effort to Fight Excessive Tourism: No New Hotels**\
+`The city wants no more than 20 million hotel stays annually. The measure is one of multiple efforts to control the flow of visitors.`\
+https://nytimes.com/2024/04/18/world/europe/amsterdam-tourism-hotel-stop.html
+
 **Countdown Is On for the Bitcoin ‘Halving’**\
 `Bitcoin aficionados are hoping that a scheduled reduction in the number of new coins going into circulation will cause the price of the cryptocurrency to skyrocket.`\
 https://nytimes.com/2024/04/18/technology/bitcoin-halving-countdown.html
