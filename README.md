@@ -10,9 +10,9 @@ https://nytimes.com/video/world/middleeast/100000009421037/gaza-united-nations-s
 `The Natural Law Party, which has ballot access in Michigan, nominated Mr. Kennedy. President Biden’s campaign is worried that he could tip the election to former President Donald J. Trump.`\
 https://nytimes.com/2024/04/18/us/politics/robert-f-kennedy-jr-ballot-michigan.html
 
-**U.S. says it will vote against a U.N. resolution recognizing Palestinian statehood.**\
+**The U.S. says it will vote against a U.N. resolution recognizing Palestinian statehood.**\
 `By Anushka Patil and Farnaz Fassihi`\
-https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/us-says-it-will-vote-against-a-un-resolution-recognizing-palestinian-statehood
+https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/us-un-palestinian-statehood
 
 **Colleges Warn Student Demonstrators: Enough**\
 `After years of tolerating unruly protests, some schools are starting to suspend and expel students, raising questions about where they should draw the line.`\
