@@ -1,3 +1,7 @@
+**Word of the Day: erudition**\
+`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/18/learning/word-of-the-day-erudition.html
+
 **Modi’s Temple of Lies**\
 `India’s many problems can’t be solved by his radical Hindu nationalism.`\
 https://nytimes.com/2024/04/18/opinion/india-election-modi-religion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/us/maulik-pancholy-pennsylvania-school.html
 **Review: ‘The Wiz’ Eases Back to Broadway**\
 `Almost 50 years after it debuted, this classic Black take on “The Wizard of Oz” tries to update its original formula.`\
 https://nytimes.com/2024/04/17/theater/the-wiz-review-broadway.html
-
-**One Way to Run**\
-`David Kwong makes magic again.`\
-https://nytimes.com/2024/04/17/crosswords/daily-puzzle-2024-04-18.html
 
