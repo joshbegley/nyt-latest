@@ -1,3 +1,11 @@
+**Republicans Wanted a Crackdown on Israel’s Critics. Columbia Obliged.**\
+`The latest campus antisemitism hearing was a travesty.`\
+https://nytimes.com/2024/04/18/opinion/columbia-antisemitism-hearing.html
+
+**Trump’s Jury Was Chosen. Opening Statements Could Start Monday.**\
+`Also, the U.S. and Britain imposed new sanctions on Iran. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/04/18/briefing/trump-jury-trial-iran-us-sanctions.html
+
 **The conflict with protesters has been brewing for months. Here’s what led to the school’s decision.**\
 `By Stephanie Saul`\
 https://nytimes.com/live/2024/04/18/nyregion/columbia-university-protests/the-conflict-with-protesters-has-been-brewing-for-months-heres-what-led-to-the-schools-decision
