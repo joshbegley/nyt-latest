@@ -1,3 +1,11 @@
+**R.F.K. Jr. Received $2 Million From His Running Mate, Nicole Shanahan**\
+`The infusion of cash into his presidential campaign came a day after he announced Ms. Shanahan, a wealthy Silicon Valley lawyer, as his No. 2.`\
+https://nytimes.com/2024/04/18/us/politics/rfk-jr-fec-report.html
+
+**The U.S. says it will vote against a U.N. resolution recognizing Palestinian statehood.**\
+`By Anushka Patil and Farnaz Fassihi`\
+https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/us-un-palestinian-statehood
+
 **Video Captures Aftermath of Strike on U.N. School in Gaza**\
 `Hundreds of people were taking shelter inside inside a prep school in northern Gaza when it came under fire on Wednesday, according to the U.N. refugee agency, UNRWA.`\
 https://nytimes.com/video/world/middleeast/100000009421037/gaza-united-nations-school-airstrike.html
