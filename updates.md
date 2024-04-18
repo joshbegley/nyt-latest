@@ -1,3 +1,7 @@
+**In Congress, Columbia’s Leaders Try to Please. At Home, They Face Anger.**\
+`For Columbia’s president, Nemat Shafik, a hearing on antisemitism went relatively well. But on campus, intense protests suggest a difficult road ahead for the university.`\
+https://nytimes.com/2024/04/17/nyregion/antisemitism-columbia-president-university-protest.html
+
 **House Moves Toward Bundling TikTok Bill With Aid to Ukraine and Israel**\
 `A new measure attempts to force the Senate’s hand on passing legislation to ban TikTok or mandate the app’s sale.`\
 https://nytimes.com/2024/04/17/technology/tiktok-ban-ukraine-israel-aid.html
