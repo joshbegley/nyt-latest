@@ -1,3 +1,11 @@
+**Countdown Is On for the Bitcoin ‘Halving’**\
+`Bitcoin aficionados are hoping that a scheduled reduction in the number of new coins going into circulation will cause the price of the cryptocurrency to skyrocket.`\
+https://nytimes.com/2024/04/18/technology/bitcoin-halving-countdown.html
+
+**How a Crypto Compliance Officer Ended Up in a Nigerian Prison**\
+`Tigran Gambaryan, an American compliance official for the giant cryptocurrency exchange Binance, flew to Nigeria in February for a planned two-day business trip. He hasn’t returned.`\
+https://nytimes.com/2024/04/18/technology/binance-crypto-compliance-officer-nigerian-prison.html
+
 **Rethinking the Ethics of Tax Deductions**\
 `Responses to an essay that suggested that the affluent forgo some deductions. Also: Aid to Ukraine; gun safety on the set; plastics and pollutants.`\
 https://nytimes.com/2024/04/18/opinion/tax-deductions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/18/world/middleeast/israel-war-gaza-iran-hezbollah.h
 **Prince Harry Now Officially Resident in U.S., Documents Show**\
 `For years, Harry and his wife, Meghan, have considered California home. This week, he updated his residency in a corporate filing.`\
 https://nytimes.com/2024/04/18/world/europe/prince-harry-us-residence.html
-
-**The Scent of a Struggling Campaign Is Emerging From Trump’s Courtroom**\
-`The trial is becoming his campaign trail.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-campaign-struggling
-
-**Our 15th Annual Summer Reading Contest**\
-`Students are invited to tell us what they’re reading in The Times and why, this year in writing OR via a 90-second video. Contest dates: June 7 to Aug. 16.`\
-https://nytimes.com/2024/04/18/learning/our-15th-annual-summer-reading-contest.html
 

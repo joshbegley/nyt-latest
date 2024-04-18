@@ -1,3 +1,11 @@
+**Countdown Is On for the Bitcoin ‘Halving’**\
+`Bitcoin aficionados are hoping that a scheduled reduction in the number of new coins going into circulation will cause the price of the cryptocurrency to skyrocket.`\
+https://nytimes.com/2024/04/18/technology/bitcoin-halving-countdown.html
+
+**How a Crypto Compliance Officer Ended Up in a Nigerian Prison**\
+`Tigran Gambaryan, an American compliance official for the giant cryptocurrency exchange Binance, flew to Nigeria in February for a planned two-day business trip. He hasn’t returned.`\
+https://nytimes.com/2024/04/18/technology/binance-crypto-compliance-officer-nigerian-prison.html
+
 **Rethinking the Ethics of Tax Deductions**\
 `Responses to an essay that suggested that the affluent forgo some deductions. Also: Aid to Ukraine; gun safety on the set; plastics and pollutants.`\
 https://nytimes.com/2024/04/18/opinion/tax-deductions.html
