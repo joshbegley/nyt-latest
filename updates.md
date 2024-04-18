@@ -1,3 +1,7 @@
+**Millions of Girls in Africa Will Miss HPV Shots After Merck Production Problem**\
+`The company has told countries that it can supply only 18.8 million of the 29.6 million doses it was contracted to deliver this year.`\
+https://nytimes.com/2024/04/18/health/hpv-vaccine-africa-merck.html
+
 **A Far-Right Party Emerges as a Possible Kingmaker in Croatia**\
 `The Homeland Movement came third in parliamentary elections, setting itself up as a possible partner for the ruling conservatives, who failed to achieve a majority.`\
 https://nytimes.com/2024/04/18/world/europe/croatia-election-far-right.html
