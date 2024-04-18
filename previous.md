@@ -1,3 +1,7 @@
+**Day 3 of Trump’s Criminal Trial: Five Takeaways**\
+`A jury of 12 people was chosen, and alternate members will be picked Friday. They will help write American history.`\
+https://nytimes.com/live/2024/04/18/nyregion/trump-hush-money-trial/trump-criminal-trial-takeaways
+
 **Two Jurors Dislike Trump. One Will Judge Him.**\
 `It’s not easy deciding who can set aside personal feelings and act in fairness.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-jurors
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/briefing/trump-jury-trial-iran-us-sanctions.html
 **The conflict with protesters has been brewing for months. Here’s what led to the school’s decision.**\
 `By Stephanie Saul`\
 https://nytimes.com/live/2024/04/18/nyregion/columbia-university-protests/the-conflict-with-protesters-has-been-brewing-for-months-heres-what-led-to-the-schools-decision
-
-**Sony in Talks to Join a Bid to Buy Paramount**\
-`The company and Apollo Global Management are discussing a joint effort, even as Paramount conducts exclusive merger negotiations with Skydance.`\
-https://nytimes.com/2024/04/18/business/paramount-sony-apollo-bid.html
 
