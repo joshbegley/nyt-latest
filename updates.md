@@ -1,3 +1,7 @@
+**Here’s How Johnson’s Jigsaw Puzzle of a Foreign Aid Plan Would Work**\
+`The speaker, facing resistance from fellow Republicans, has devised a strategy for steering aid to Ukraine and Israel through the House. The key vote will take place before any of it hits the floor.`\
+https://nytimes.com/2024/04/18/us/politics/house-israel-ukraine-aid-package-explainer.html
+
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/04/18/books/review/new-books-recommendations.html
