@@ -1,3 +1,7 @@
+**After Months of Cocaine Washing Ashore, Australian Police Make an Arrest**\
+`Drug parcels kept showing up on beaches along Australia’s shoreline. Now, the police say they found the man behind the botched shipment.`\
+https://nytimes.com/2024/04/18/world/australia/sydney-cocaine-beaches-arrest.html
+
 **‘Stress Positions’ Review: It’s Giving Pandemonium**\
 `The writer-director Theda Hammel’s biting, delirious quarantine comedy skewers white gay men in a world where fact, fiction and authentic experiences collide.`\
 https://nytimes.com/2024/04/18/movies/stress-positions-review.html
