@@ -1,3 +1,7 @@
+**Congress Ramps Up the Pressure on TikTok**\
+`A legislative maneuver in the House may help an effort to force the divestment of the video platform by its Chinese owner, which would squeeze U.S. investors.`\
+https://nytimes.com/2024/04/18/business/dealbook/congress-tiktok-divest.html
+
 **After Months of Cocaine Washing Ashore, Australian Police Make an Arrest**\
 `Drug parcels kept showing up on beaches along Australia’s shoreline. Now, the police say they found the man behind the botched shipment.`\
 https://nytimes.com/2024/04/18/world/australia/sydney-cocaine-beaches-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/health/who-airborne-covid.html
 **Drought Pushes Millions Into ‘Acute Hunger’ in Southern Africa**\
 `The disaster, intensified by El Niño, is devastating communities across several countries, killing crops and livestock and sending food prices soaring.`\
 https://nytimes.com/2024/04/18/climate/drought-southern-africa.html
-
-**Kennedy Clan to Endorse Biden, in a Show of Force Against R.F.K. Jr.**\
-`More than a dozen members of the storied political family will endorse the president in Philadelphia, rejecting one of their own as he worries Democrats with an independent bid.`\
-https://nytimes.com/2024/04/18/us/politics/biden-kennedys-rfk-jr.html
 
