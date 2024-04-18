@@ -1,3 +1,19 @@
+**The Connections Companion No. 312**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/18/crosswords/connections-companion.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/18/crosswords/spelling-bee-forum.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/18/crosswords/wordle-review.html
+
+**Late Night Skewers Trump’s Review of Jimmy Kimmel’s Oscar Hosting**\
+`“Ranta Claus got up bright and early to post 165 venomous words about yours truly,” Kimmel said on Donald Trump’s day off from his criminal trial on Wednesday.`\
+https://nytimes.com/2024/04/18/arts/television/jimmy-kimmel-trump-oscars.html
+
 **Widespread 911 Outages Are Reported in Four States**\
 `Residents in parts of South Dakota, Nebraska, Texas and Nevada were unable to call the emergency number, officials said. Service was later restored in Las Vegas, Nebraska and South Dakota.`\
 https://nytimes.com/2024/04/17/us/911-outage-vegas-south-dakota-nebraska.html
