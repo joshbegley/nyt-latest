@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Europe asks Israel for restraint on Iran.`\
+https://nytimes.com/2024/04/18/briefing/israel-iran-ukraine-missile-russia.html
+
 **Widespread 911 Outages Are Reported in Four States**\
 `Residents in parts of South Dakota, Nebraska, Texas and Nevada were unable to call the emergency number, officials said.`\
 https://nytimes.com/2024/04/17/us/911-outage-vegas-south-dakota-nebraska.html
