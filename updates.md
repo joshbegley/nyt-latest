@@ -1,3 +1,7 @@
+**The U.N. vote is part of a long-running effort to secure recognition for a Palestinian state.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/the-un-vote-is-part-of-a-long-running-effort-to-secure-recognition-for-a-palestinian-state
+
 **Kennedy Family Endorses Biden**\
 `At a campaign rally in Philadelphia, members of the Kennedy family endorsed President Biden, rejecting one of their own, Robert F. Kennedy Jr., an independent candidate.`\
 https://nytimes.com/video/us/politics/100000009421977/kennedy-biden-endorsement.html

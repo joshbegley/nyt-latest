@@ -1,3 +1,7 @@
+**The U.N. vote is part of a long-running effort to secure recognition for a Palestinian state.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/the-un-vote-is-part-of-a-long-running-effort-to-secure-recognition-for-a-palestinian-state
+
 **Kennedy Family Endorses Biden**\
 `At a campaign rally in Philadelphia, members of the Kennedy family endorsed President Biden, rejecting one of their own, Robert F. Kennedy Jr., an independent candidate.`\
 https://nytimes.com/video/us/politics/100000009421977/kennedy-biden-endorsement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/business/mortgage-rates.html
 **Heat-Related E.R. Visits Rose in 2023, C.D.C. Study Finds**\
 `As record heat enveloped the nation, the rate of emergency room visits increased compared with the previous five years, a sign of the major health risks of high temperatures.`\
 https://nytimes.com/2024/04/18/us/politics/extreme-heat-hospital-visits-climate.html
-
-**Frustration for a Judge as Trump Jury Selection Stumbles Ahead**\
-`Two seated jurors were sent home, and Justice Juan M. Merchan warned against identifying people who might judge a former president who attacks the justice system regularly.`\
-https://nytimes.com/2024/04/18/nyregion/trump-trial-hush-money-manhattan.html
 
