@@ -1,3 +1,15 @@
+**The Opening Days of Trump’s First Criminal Trial**\
+`Here’s what has happened so far in the unprecedented proceedings against a former U.S. president.`\
+https://nytimes.com/2024/04/18/podcasts/the-daily/trump-trial.html
+
+**The House Pushes for a TikTok ban, and Southern Africa Faces a Food Crisis**\
+`Plus, a brazen gold heist.`\
+https://nytimes.com/2024/04/18/podcasts/tiktok-mayorkas-drought.html
+
+**W.H.O. Broadens Definition of Airborne Diseases**\
+`After a drawn-out global controversy over the coronavirus, the W.H.O. has updated its classification of how pathogens spread through the air.`\
+https://nytimes.com/2024/04/18/health/who-airborne-covid.html
+
 **Drought Pushes Millions Into ‘Acute Hunger’ in Southern Africa**\
 `The disaster, intensified by El Niño, is devastating communities across several countries, killing crops and livestock and sending food prices soaring.`\
 https://nytimes.com/2024/04/18/climate/drought-southern-africa.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/18/podcasts/youngest-voters-oldest-president.html
 **The Latest Impeachment Is History, but the Political Repercussions Will Live On**\
 `Republicans say the quick dismissal of charges against Alejandro Mayorkas sets a dangerous precedent. Democrats say the mistake would have been to treat the case seriously.`\
 https://nytimes.com/2024/04/18/us/politics/mayorkas-impeachment-precedent.html
-
-**How Joe Biden Can Win Pennsylvania, His Rosebud**\
-`Biden needs to find a narrative for his candidacy, then work like hell to push it out. But it’s hard to argue people out of their feelings.`\
-https://nytimes.com/2024/04/18/opinion/joe-biden-pennsylvania.html
-
-**Maggie Haberman on the Question of Fairness in the Trump Trial**\
-`In a historic case against a polarizing former president, jury selection in Donald J. Trump’s Manhattan criminal trial has so far focused on whether anyone can judge him fairly.`\
-https://nytimes.com/video/us/politics/100000009418800/donald-trump-stormy-daniels-trial-fairness.html
-
-**What Happens if a Powerful Surveillance Law Expires This Week?**\
-`Senators are under pressure to reject amendments to a House-passed bill so it can become law before a statute expires Friday night. But the program would continue after any such lapse — with some caveats.`\
-https://nytimes.com/2024/04/18/us/politics/fisa-surveillance-warrantless-deadline-senate.html
 
