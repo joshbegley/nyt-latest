@@ -1,3 +1,19 @@
+**A Far-Right Party Emerges as a Possible Kingmaker in Croatia**\
+`The Homeland Movement came third in parliamentary elections, setting itself up as a possible partner for the ruling conservatives, who failed to achieve a majority.`\
+https://nytimes.com/2024/04/18/world/europe/croatia-election-far-right.html
+
+**Germany Arrests 2 in Spying and Sabotage Case Linked to Russia**\
+`The two men, dual citizens of both countries, were accused of being part of a plot to undermine aid to Ukraine by trying to blow up military infrastructure.`\
+https://nytimes.com/2024/04/18/world/europe/germany-russia-spying-arrests.html
+
+**Biden returns to Pennsylvania, and Trump returns to court in New York.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/04/18/us/trump-biden-election/biden-campaign-pennsylvania-trump-court-new-york
+
+**Rainstorms Kill More Than 130 Across Afghanistan and Pakistan**\
+`Pakistani officials warned of more flooding and heavy rainfall next week, stoking fears of a particularly brutal monsoon season to come.`\
+https://nytimes.com/2024/04/18/world/asia/afghanistan-pakistan-rain-flooding.html
+
 **Anaheim Approves Biggest Redesign of Disneyland in 30 Years**\
 `Disney plans to spend at least $1.9 billion to develop and reimagine the park over the next decade.`\
 https://nytimes.com/2024/04/18/us/disneyland-anaheim-redesign.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/18/world/australia/sydney-cocaine-beaches-arrest.htm
 **‘Stress Positions’ Review: It’s Giving Pandemonium**\
 `The writer-director Theda Hammel’s biting, delirious quarantine comedy skewers white gay men in a world where fact, fiction and authentic experiences collide.`\
 https://nytimes.com/2024/04/18/movies/stress-positions-review.html
-
-**‘Blood for Dust’ Review: Dire Straits**\
-`This drug-run thriller, starring Scoot McNairy, traffics in grim ponderousness.`\
-https://nytimes.com/2024/04/18/movies/blood-for-dust-review.html
-
-**Emily Henry Is Proud to Be Called a Romance Writer**\
-`“I don’t want other people to miss out on the wisdom and joy this genre has to offer, the way I did for so long,” says the best-selling novelist. “Funny Story,” about a heartsore librarian and the new man in her life, is out next week.`\
-https://nytimes.com/2024/04/18/books/review/emily-henry-funny-story.html
-
-**An Uneasy Arab-Israeli Alliance**\
-`Many Arab leaders see Iran as a bigger problem than Israel, even if they don’t say so publicly.`\
-https://nytimes.com/2024/04/18/briefing/israel-iran-middle-east.html
-
-**The Opening Days of Trump’s First Criminal Trial**\
-`Here’s what has happened so far in the unprecedented proceedings against a former U.S. president.`\
-https://nytimes.com/2024/04/18/podcasts/the-daily/trump-trial.html
 
