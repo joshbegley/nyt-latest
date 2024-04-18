@@ -1,3 +1,7 @@
+**Why Israel Might Want to Retaliate Against Iran**\
+`What if Iran’s next missile attack is more effective?`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/israel-retaliate-iran
+
 **What if O.J.’s Trial Happened Now?**\
 `It’s a different world, much more so than people want to acknowledge.`\
 https://nytimes.com/2024/04/18/opinion/oj-simpson-murder-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009421037/gaza-united-nations-s
 **Robert F. Kennedy Jr. Will Be on the Ballot in Michigan**\
 `The Natural Law Party, which has ballot access in Michigan, nominated Mr. Kennedy. President Biden’s campaign is worried that he could tip the election to former President Donald J. Trump.`\
 https://nytimes.com/2024/04/18/us/politics/robert-f-kennedy-jr-ballot-michigan.html
-
-**The U.S. says it will vote against a U.N. resolution recognizing Palestinian statehood.**\
-`By Anushka Patil and Farnaz Fassihi`\
-https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/us-un-palestinian-statehood
 

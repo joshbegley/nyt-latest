@@ -1,3 +1,7 @@
+**Why Israel Might Want to Retaliate Against Iran**\
+`What if Iran’s next missile attack is more effective?`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/israel-retaliate-iran
+
 **What if O.J.’s Trial Happened Now?**\
 `It’s a different world, much more so than people want to acknowledge.`\
 https://nytimes.com/2024/04/18/opinion/oj-simpson-murder-trial.html
