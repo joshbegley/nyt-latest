@@ -1,3 +1,7 @@
+**Biden Seeking to Appeal to Key Constituencies With Targeted Policies**\
+`The president’s campaign has featured initiatives aimed at young people, union workers and environmentalists, but it is not clear that they will be sufficient to rekindle support in those groups.`\
+https://nytimes.com/2024/04/18/us/politics/biden-policies-key-voters.html
+
 **Surveillance Bill Clears Key Hurdle in Senate Ahead of Friday Expiration**\
 `Republicans and Democrats voted to advance a measure to extend a warrantless surveillance law, but skeptics in both parties were still pushing to make substantial changes before a final vote.`\
 https://nytimes.com/2024/04/18/us/politics/senate-fisa-surveillance-bill.html
