@@ -1,3 +1,11 @@
+**How to Use That Bag of Frozen Peas and Carrots**\
+`Ali Slagle’s new sheet-pan chicken recipe turns the freezer staple into a tangy, ranch-inflected one-dish dinner.`\
+https://nytimes.com/2024/04/18/dining/how-to-use-that-bag-of-frozen-peas-and-carrots.html
+
+**After Unthinkable Loss, Biking Helped Me Embrace Life Again**\
+`A grieving mother finds a new beginning on two wheels.`\
+https://nytimes.com/2024/04/18/well/mind/biking-cycling-grief-movement.html
+
 **A Lakeside Restaurant Reopens in Paris’s Bois de Boulogne**\
 `Plus: a Pennsylvania wellness retreat, whimsical wallpaper and more recommendations from T Magazine.`\
 https://nytimes.com/2024/04/18/t-magazine/chalet-des-iles-paris-restaurant.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/18/world/europe/croatia-election-far-right.html
 **Germany Arrests 2 in Spying and Sabotage Case Linked to Russia**\
 `The two men, dual citizens of both countries, were accused of being part of a plot to undermine aid to Ukraine by trying to blow up military infrastructure.`\
 https://nytimes.com/2024/04/18/world/europe/germany-russia-spying-arrests.html
-
-**Biden returns to Pennsylvania, and Trump returns to court in New York.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/04/18/us/trump-biden-election/biden-campaign-pennsylvania-trump-court-new-york
-
-**Rainstorms Kill More Than 130 Across Afghanistan and Pakistan**\
-`Pakistani officials warned of more flooding and heavy rainfall next week, stoking fears of a particularly brutal monsoon season to come.`\
-https://nytimes.com/2024/04/18/world/asia/afghanistan-pakistan-rain-flooding.html
 
