@@ -1,3 +1,7 @@
+**U.S. Mortgage Rates Jump Above 7% for the First Time This Year**\
+`Rates on 30-year mortgages — the most common kind among U.S. homeowners — surpassed the 7 percent mark on Thursday, a troublesome sign for an already tight housing market.`\
+https://nytimes.com/2024/04/18/business/mortgage-rates.html
+
 **Heat-Related E.R. Visits Rose in 2023, C.D.C. Study Finds**\
 `As record heat enveloped the nation, the rate of emergency room visits increased compared with the previous five years, a sign of the major health risks of high temperatures.`\
 https://nytimes.com/2024/04/18/us/politics/extreme-heat-hospital-visits-climate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/style/ivy-getty-divorce-tobias-engel.html
 **No, John Mellencamp Did Not Promote Biden Onstage**\
 `Hecklers disrupted a concert in Ohio — and online critics pounced to say, falsely, that it started because the liberal singer had expressed support for the president.`\
 https://nytimes.com/2024/04/18/us/politics/john-mellencamp-biden.html
-
-**What’s This Image Saying? Teens Weigh In.**\
-`Every week in our Picture Prompts, we post a mystery image and ask students what they think the message is. Here are their responses to three recent prompts.`\
-https://nytimes.com/2024/04/18/learning/whats-this-image-saying-teens-weigh-in.html
 
