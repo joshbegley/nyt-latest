@@ -1,3 +1,11 @@
+**German Far-Right Leader Goes on Trial for Nazi Slogans**\
+`Björn Höcke, one of the most prominent far-right figures in Germany, has called the trial an attempt to suppress patriotism.`\
+https://nytimes.com/2024/04/18/world/europe/german-far-right-hocke-trial.html
+
+**How A.I. Tools Could Change India’s Elections**\
+`Avatars are addressing voters by name, in whichever of India’s many languages they speak. Experts see potential for misuse in a country already rife with disinformation.`\
+https://nytimes.com/2024/04/18/world/asia/india-election-ai.html
+
 **Widespread 911 Outages Are Reported in Four States and Las Vegas**\
 `Residents in parts of South Dakota, Nebraska, Texas and Nevada were unable to call the emergency number, officials said.`\
 https://nytimes.com/2024/04/17/us/911-outage-vegas-south-dakota-nebraska.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/17/nyregion/antisemitism-columbia-president-universi
 **A witness describes losing four nieces and nephews in an attack that killed several children playing in the street.**\
 `By Anushka Patil and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/a-witness-describes-losing-four-nieces-and-nephews-in-an-attack-that-killed-several-children-playing-in-the-street
-
-**The Kamala Harris Moment Has Arrived**\
-`With the issue of abortion rights, the vice president has hit her stride.`\
-https://nytimes.com/2024/04/17/opinion/kamala-harris-reproductive-rights.html
-
-**Deluge Batters U.A.E. and Oman, Killing at Least 20**\
-`The heavy rains also flooded parts of Dubai International Airport, causing scores of flight delays and cancellations, and brought other cities in the U.A.E. to a standstill.`\
-https://nytimes.com/2024/04/17/homepage/dubai-airport-oman-flooding.html
 

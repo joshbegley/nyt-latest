@@ -1,3 +1,11 @@
+**German Far-Right Leader Goes on Trial for Nazi Slogans**\
+`Björn Höcke, one of the most prominent far-right figures in Germany, has called the trial an attempt to suppress patriotism.`\
+https://nytimes.com/2024/04/18/world/europe/german-far-right-hocke-trial.html
+
+**How A.I. Tools Could Change India’s Elections**\
+`Avatars are addressing voters by name, in whichever of India’s many languages they speak. Experts see potential for misuse in a country already rife with disinformation.`\
+https://nytimes.com/2024/04/18/world/asia/india-election-ai.html
+
 **Widespread 911 Outages Are Reported in Four States and Las Vegas**\
 `Residents in parts of South Dakota, Nebraska, Texas and Nevada were unable to call the emergency number, officials said.`\
 https://nytimes.com/2024/04/17/us/911-outage-vegas-south-dakota-nebraska.html
