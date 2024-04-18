@@ -1,3 +1,7 @@
+**U.S. Restarts Deportation Flights to Haiti**\
+`The Biden administration had paused deportations of Haitian migrants in recent months as their home country was wracked by violence.`\
+https://nytimes.com/2024/04/18/us/politics/us-restarts-deportation-flights-to-haiti.html
+
 **U.S. Mortgage Rates Jump Above 7% for the First Time This Year**\
 `Rates on 30-year mortgages — the most common kind among U.S. homeowners — surpassed the 7 percent mark on Thursday, a troublesome sign for an already tight housing market.`\
 https://nytimes.com/2024/04/18/business/mortgage-rates.html
