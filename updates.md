@@ -1,3 +1,11 @@
+**Meta, in Its Biggest A.I. Push, Places Smart Assistants Across Its Apps**\
+`Users of Instagram, Facebook, WhatsApp and Messenger will be able to turn to the new technology, powered by Meta’s latest artificial intelligence model, to obtain information and complete tasks.`\
+https://nytimes.com/2024/04/18/technology/meta-ai-assistant-push.html
+
+**The Unsolvable Mysteries of Donald’s and Melania’s Marriage**\
+`Trump’s trial brings more questions than answers to the fore.`\
+https://nytimes.com/2024/04/18/opinion/donald-melania-trump-trial.html
+
 **Protests Intensify at Columbia, Forcing Difficult Choices for Leaders**\
 `A university with a proud history of protest told student demonstrators camping on the lawn that they had to leave. The students have vowed to stay, no matter the consequences.`\
 https://nytimes.com/2024/04/18/nyregion/columbia-university-protests-antisemitism.html
