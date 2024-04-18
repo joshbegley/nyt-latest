@@ -1,3 +1,7 @@
+**Major Delays at Sacramento Airport After AT&T Cable Is Slashed**\
+`The authorities said the cable had been cut intentionally, halting check-in services for at least two major airlines for several hours.`\
+https://nytimes.com/2024/04/18/us/att-cable-cut-sacramento-airport.html
+
 **U.S. officials express ‘concerns’ to Israeli officials about any major assault on Rafah.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/us-israel-rafah-offensive
