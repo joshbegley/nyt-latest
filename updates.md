@@ -1,3 +1,7 @@
+**The Scent of a Struggling Campaign Is Emerging From Trump’s Courtroom**\
+`The trial is becoming his campaign trail.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-campaign-struggling
+
 **Our 15th Annual Summer Reading Contest**\
 `Students are invited to tell us what they’re reading in The Times and why, this year in writing OR via a 90-second video. Contest dates: June 7 to Aug. 16.`\
 https://nytimes.com/2024/04/18/learning/our-15th-annual-summer-reading-contest.html
