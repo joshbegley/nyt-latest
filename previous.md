@@ -1,3 +1,11 @@
+**At Columbia, the Grown-Ups in the Room Take a Stand**\
+`Protesters seem unaware of the pain they are causing Jewish students.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/columbia-protests-gaza
+
+**U.S. Vetoes Palestinian Bid for Full Member State Recognition at U.N.**\
+`The move blocked a resolution to support a status that Palestinians have long sought at the United Nations, where it is considered a “nonmember observer state.”`\
+https://nytimes.com/2024/04/18/world/middleeast/palestinian-statehood-un-veto.html
+
 **Here’s How Johnson’s Jigsaw Puzzle of a Foreign Aid Plan Would Work**\
 `The speaker, facing resistance from fellow Republicans, has devised a strategy for steering aid to Ukraine and Israel through the House. The key vote will take place before any of it hits the floor.`\
 https://nytimes.com/2024/04/18/us/politics/house-israel-ukraine-aid-package-explainer.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/18/nyregion/columbia-protest-1968-vietnam.html
 **C.I.A. Director Blames Hamas for Stalled Peace Talks**\
 `The group’s rejection of a recent proposal “is standing in the way of innocent civilians in Gaza getting humanitarian relief,” the director said.`\
 https://nytimes.com/2024/04/18/world/middleeast/cia-hamas-israel-cease-fire.html
-
-**Judge Rejects Trump’s Effort to Delay Jan. 6 Civil Cases**\
-`The former president had sought to have lawsuits against him put on hold until after his federal criminal trial on charges of plotting to overturn the 2020 election.`\
-https://nytimes.com/2024/04/18/us/politics/trump-delay-jan-6-civil-cases.html
-
-**Film Club: ‘Criminalizing Homelessness Won’t Make It Go Away’**\
-`There is a public and political push to criminalize homelessness. Is it the wrong approach to deal with the problem?`\
-https://nytimes.com/2024/04/18/learning/film-club-criminalizing-homelessness-wont-make-it-go-away.html
 

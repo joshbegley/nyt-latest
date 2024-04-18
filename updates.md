@@ -1,3 +1,11 @@
+**At Columbia, the Grown-Ups in the Room Take a Stand**\
+`Protesters seem unaware of the pain they are causing Jewish students.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/columbia-protests-gaza
+
+**U.S. Vetoes Palestinian Bid for Full Member State Recognition at U.N.**\
+`The move blocked a resolution to support a status that Palestinians have long sought at the United Nations, where it is considered a “nonmember observer state.”`\
+https://nytimes.com/2024/04/18/world/middleeast/palestinian-statehood-un-veto.html
+
 **Here’s How Johnson’s Jigsaw Puzzle of a Foreign Aid Plan Would Work**\
 `The speaker, facing resistance from fellow Republicans, has devised a strategy for steering aid to Ukraine and Israel through the House. The key vote will take place before any of it hits the floor.`\
 https://nytimes.com/2024/04/18/us/politics/house-israel-ukraine-aid-package-explainer.html
