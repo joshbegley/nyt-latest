@@ -1,3 +1,11 @@
+**A Lakeside Restaurant Reopens in Paris’s Bois de Boulogne**\
+`Plus: a Pennsylvania wellness retreat, whimsical wallpaper and more recommendations from T Magazine.`\
+https://nytimes.com/2024/04/18/t-magazine/chalet-des-iles-paris-restaurant.html
+
+**After Reports About Trump Jurors, Judge Demands Restraint From the Press**\
+`Some news reports have included details about jurors that had been aired in open court. One was excused after she developed concerns about being identified.`\
+https://nytimes.com/2024/04/18/nyregion/trump-trial-juror-information-judge.html
+
 **Qatar Says It Is Reviewing Its Mediator Role as Israel-Hamas Talks Stall**\
 `U.S. and Israeli officials have urged the Gulf state to exert more pressure on the Palestinian armed group to reach a deal.`\
 https://nytimes.com/2024/04/18/world/middleeast/qatar-ceasefire-talks-israel-hamas.html
