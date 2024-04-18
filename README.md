@@ -1,3 +1,7 @@
+**Dickey Betts, Fiery Guitarist With Allman Brothers Band, Dies at 80**\
+`He traded licks with Duane Allman and proved to be a worthy sparring partner. He also wrote, and sang, the band’s biggest hit, “Ramblin’ Man.”`\
+https://nytimes.com/2024/04/18/arts/music/dickey-betts-dead.html
+
 **Robert F. Kennedy Jr. brushes off his relatives endorsing Biden.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/04/18/us/trump-biden-election/robert-f-kennedy-jr-family-endorsement-biden
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/technology/meta-ai-assistant-push.html
 **The Unsolvable Mysteries of Donald’s and Melania’s Marriage**\
 `Trump’s trial brings more questions than answers to the fore.`\
 https://nytimes.com/2024/04/18/opinion/donald-melania-trump-trial.html
-
-**Protests Intensify at Columbia, Forcing Difficult Choices for Leaders**\
-`A university with a proud history of protest told student demonstrators camping on the lawn that they had to leave. The students have vowed to stay, no matter the consequences.`\
-https://nytimes.com/2024/04/18/nyregion/columbia-university-protests-antisemitism.html
 
