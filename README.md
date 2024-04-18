@@ -1,3 +1,7 @@
+**Two Jurors Dislike Trump. One Will Judge Him.**\
+`It’s not easy deciding who can set aside personal feelings and act in fairness.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-jurors
+
 **Judge in Documents Case Rejects Dismissal Motions by Trump Co-Defendants**\
 `Judge Aileen M. Cannon denied requests by Walt Nauta and Carlos De Oliveira to have the charges against them dropped.`\
 https://nytimes.com/2024/04/18/us/politics/trump-documents-case-dismissal-co-defendants.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/18/nyregion/columbia-university-protests/the-co
 **Sony in Talks to Join a Bid to Buy Paramount**\
 `The company and Apollo Global Management are discussing a joint effort, even as Paramount conducts exclusive merger negotiations with Skydance.`\
 https://nytimes.com/2024/04/18/business/paramount-sony-apollo-bid.html
-
-**Major Delays at Sacramento Airport After AT&T Cable Is Slashed**\
-`The authorities said the cable had been cut intentionally, halting check-in services for at least two major airlines for several hours.`\
-https://nytimes.com/2024/04/18/us/att-cable-cut-sacramento-airport.html
 
