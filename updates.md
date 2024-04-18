@@ -1,3 +1,11 @@
+**Israeli forces appear to conclude a raid in central Gaza.**\
+`By Hiba Yazbek and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/israeli-forces-appear-to-conclude-a-raid-in-central-gaza
+
+**Biden Administration Announces Rule to Strengthen Protection of Public Lands**\
+`The measure elevates conservation in a number of ways, including by creating new leases for the restoration of degraded areas.`\
+https://nytimes.com/2024/04/18/climate/blm-public-lands-conservation.html
+
 **Scotland Pauses Gender Medications for Minors**\
 `The change followed a sweeping review by England’s National Health Service that found “remarkably weak” evidence for youth gender treatments.`\
 https://nytimes.com/2024/04/18/health/scotland-pauses-hormones-puberty-blockers-transgender.html
