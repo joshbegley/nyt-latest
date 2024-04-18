@@ -1,3 +1,7 @@
+**What’s the Best Way to Treat I.B.S.?**\
+`A new study suggests that certain dietary changes may be more effective than medication.`\
+https://nytimes.com/2024/04/18/well/eat/ibs-symptoms-diet-treatments.html
+
 **Republicans Wanted a Crackdown on Israel’s Critics. Columbia Obliged.**\
 `The latest campus antisemitism hearing was a travesty.`\
 https://nytimes.com/2024/04/18/opinion/columbia-antisemitism-hearing.html
