@@ -1,3 +1,11 @@
+**The Missing $1 Trillion**\
+`It’s still unclear how the world will pay for developing nations to fight climate change.`\
+https://nytimes.com/2024/04/18/climate/climate-change-imf-world-bank.html
+
+**Trump Violated Gag Order Seven More Times, Prosecutors Say**\
+`Manhattan prosecutors again asked the judge in Donald J. Trump’s criminal case to hold him in contempt of court. The judge said he would consider the matter next week.`\
+https://nytimes.com/2024/04/18/nyregion/gag-order-trump-prosecution.html
+
 **Why Israel Might Want to Retaliate Against Iran**\
 `What if Iran’s next missile attack is more effective?`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/israel-retaliate-iran
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/18/world/africa/south-africa-national-election.html
 **R.F.K. Jr. Received $2 Million From His Running Mate, Nicole Shanahan**\
 `The infusion of cash into his presidential campaign came a day after he announced Ms. Shanahan, a wealthy Silicon Valley lawyer, as his No. 2.`\
 https://nytimes.com/2024/04/18/us/politics/rfk-jr-fec-report.html
-
-**Video Captures Aftermath of Strike on U.N. School in Gaza**\
-`Hundreds of people were taking shelter inside inside a prep school in northern Gaza when it came under fire on Wednesday, according to the U.N. refugee agency, UNRWA.`\
-https://nytimes.com/video/world/middleeast/100000009421037/gaza-united-nations-school-airstrike.html
-
-**Robert F. Kennedy Jr. Will Be on the Ballot in Michigan**\
-`The Natural Law Party, which has ballot access in Michigan, nominated Mr. Kennedy. President Biden’s campaign is worried that he could tip the election to former President Donald J. Trump.`\
-https://nytimes.com/2024/04/18/us/politics/robert-f-kennedy-jr-ballot-michigan.html
 

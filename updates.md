@@ -1,3 +1,11 @@
+**The Missing $1 Trillion**\
+`It’s still unclear how the world will pay for developing nations to fight climate change.`\
+https://nytimes.com/2024/04/18/climate/climate-change-imf-world-bank.html
+
+**Trump Violated Gag Order Seven More Times, Prosecutors Say**\
+`Manhattan prosecutors again asked the judge in Donald J. Trump’s criminal case to hold him in contempt of court. The judge said he would consider the matter next week.`\
+https://nytimes.com/2024/04/18/nyregion/gag-order-trump-prosecution.html
+
 **Why Israel Might Want to Retaliate Against Iran**\
 `What if Iran’s next missile attack is more effective?`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/israel-retaliate-iran
