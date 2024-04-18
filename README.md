@@ -1,3 +1,15 @@
+**No, John Mellencamp Did Not Promote Biden Onstage**\
+`Hecklers disrupted a concert in Ohio — and online critics pounced to say, falsely, that it started because the liberal singer had expressed support for the president.`\
+https://nytimes.com/2024/04/18/us/politics/john-mellencamp-biden.html
+
+**What’s This Image Saying? Teens Weigh In.**\
+`Every week in our Picture Prompts, we post a mystery image and ask students what they think the message is. Here are their responses to three recent prompts.`\
+https://nytimes.com/2024/04/18/learning/whats-this-image-saying-teens-weigh-in.html
+
+**South Africa’s 2024 National Election: What to Know**\
+`The ruling African National Congress party could lose its parliamentary majority for the first time since the fall of apartheid 30 years ago.`\
+https://nytimes.com/2024/04/18/world/africa/south-africa-national-election.html
+
 **R.F.K. Jr. Received $2 Million From His Running Mate, Nicole Shanahan**\
 `The infusion of cash into his presidential campaign came a day after he announced Ms. Shanahan, a wealthy Silicon Valley lawyer, as his No. 2.`\
 https://nytimes.com/2024/04/18/us/politics/rfk-jr-fec-report.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/18/us/fake-priest-arrested-california.html
 **Biden Seeking to Appeal to Key Constituencies With Targeted Policies**\
 `The president’s campaign has featured initiatives aimed at young people, union workers and environmentalists, but it is not clear that they will be sufficient to rekindle support in those groups.`\
 https://nytimes.com/2024/04/18/us/politics/biden-policies-key-voters.html
-
-**Surveillance Bill Clears Key Hurdle in Senate Ahead of Friday Expiration**\
-`Republicans and Democrats voted to advance a measure to extend a warrantless surveillance law, but skeptics in both parties were still pushing to make substantial changes before a final vote.`\
-https://nytimes.com/2024/04/18/us/politics/senate-fisa-surveillance-bill.html
-
-**Rep. Ilhan Omar’s Daughter Suspended for Involvement in Columbia Protest**\
-`Isra Hirsi, the Democratic congresswoman’s daughter, was part of a tent-encampment, organized to protest the war in Gaza, that has escalated tensions on campus.`\
-https://nytimes.com/2024/04/18/nyregion/ilhan-omar-daughter-columbia-suspended.html
-
-**Dubai’s Extraordinary Flooding: Here’s What to Know**\
-`Images of a saturated desert metropolis startled the world, prompting talk of cloud seeding, climate change and designing cities for intensified weather.`\
-https://nytimes.com/2024/04/18/climate/dubai-floods-what-we-know.html
 
