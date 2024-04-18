@@ -1,3 +1,7 @@
+**An Uneasy Arab-Israeli Alliance**\
+`Many Arab leaders see Iran as a bigger problem than Israel, even if they don’t say so publicly.`\
+https://nytimes.com/2024/04/18/briefing/israel-iran-middle-east.html
+
 **The Opening Days of Trump’s First Criminal Trial**\
 `Here’s what has happened so far in the unprecedented proceedings against a former U.S. president.`\
 https://nytimes.com/2024/04/18/podcasts/the-daily/trump-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/learning/whats-the-greatest-gift-your-parents-hav
 **The Youngest Voters and the Oldest President**\
 `A look at new polling that shows Joe Biden may be struggling with the Gen Z voters he needs to win.`\
 https://nytimes.com/2024/04/18/podcasts/youngest-voters-oldest-president.html
-
-**The Latest Impeachment Is History, but the Political Repercussions Will Live On**\
-`Republicans say the quick dismissal of charges against Alejandro Mayorkas sets a dangerous precedent. Democrats say the mistake would have been to treat the case seriously.`\
-https://nytimes.com/2024/04/18/us/politics/mayorkas-impeachment-precedent.html
 
