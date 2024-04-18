@@ -1,3 +1,7 @@
+**U.S. and Allies Penalize Iran for Striking Israel, and Try to Avert War**\
+`While imposing sanctions on Iran, U.S. and European governments are urging restraint amid fears of a cycle of escalation as Israel weighs retaliation for an Iranian attack.`\
+https://nytimes.com/2024/04/18/world/middleeast/israel-iran-sanctions.html
+
 **Day 3 of Trump’s Criminal Trial: Five Takeaways**\
 `A jury of 12 people was chosen, and alternate members will be picked Friday. They will help write American history.`\
 https://nytimes.com/2024/04/18/nyregion/trump-criminal-trial-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/opinion/columbia-antisemitism-hearing.html
 **Trump’s Jury Was Chosen. Opening Statements Could Start Monday.**\
 `Also, the U.S. and Britain imposed new sanctions on Iran. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/04/18/briefing/trump-jury-trial-iran-us-sanctions.html
-
-**The conflict with protesters has been brewing for months. Here’s what led to the school’s decision.**\
-`By Stephanie Saul`\
-https://nytimes.com/live/2024/04/18/nyregion/columbia-university-protests/the-conflict-with-protesters-has-been-brewing-for-months-heres-what-led-to-the-schools-decision
 
