@@ -1,3 +1,7 @@
+**Here’s How Johnson’s Jigsaw Puzzle of a Foreign Aid Plan Would Work**\
+`The speaker, facing resistance from fellow Republicans, has devised a strategy for steering aid to Ukraine and Israel through the House. The key vote will take place before any of it hits the floor.`\
+https://nytimes.com/2024/04/18/us/politics/house-israel-ukraine-aid-package-explainer.html
+
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/04/18/books/review/new-books-recommendations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/us/politics/trump-delay-jan-6-civil-cases.html
 **Film Club: ‘Criminalizing Homelessness Won’t Make It Go Away’**\
 `There is a public and political push to criminalize homelessness. Is it the wrong approach to deal with the problem?`\
 https://nytimes.com/2024/04/18/learning/film-club-criminalizing-homelessness-wont-make-it-go-away.html
-
-**Dinh Q. Le, Artist Who Weighed War and Memory, Dies at 56**\
-`His most famous work — collages of Vietnam War photographs, popular film stills and Western imagery — focused on a history of his homeland that he feared was being lost.`\
-https://nytimes.com/2024/04/18/arts/dinh-q-le-dead.html
 
