@@ -1,3 +1,11 @@
+**Trump’s Trial Enters Third Day With 7 Jurors Chosen**\
+`Jury selection in the trial of former President Donald Trump accelerated on Day 2. He is accused of falsifying business records to conceal hush money to a porn star.`\
+https://nytimes.com/2024/04/18/nyregion/trump-trial-third-day.html
+
+**Taking Account of Rising Health Care Costs**\
+`Have your out-of-network insurance bills skyrocketed? Chris Hamby, an investigative reporter for The Times, may have an explanation.`\
+https://nytimes.com/2024/04/18/insider/medical-insurance-costs.html
+
 **The Connections Companion No. 312**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/04/18/crosswords/connections-companion.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/18/opinion/india-election-modi-religion.html
 **Thursday Briefing**\
 `Europe asks Israel for restraint on Iran.`\
 https://nytimes.com/2024/04/18/briefing/israel-iran-ukraine-missile-russia.html
-
-**Quotation of the Day: ‘Not Just Some Wee Fragile Kickers’**\
-`Quotation of the Day for Thursday, April 18, 2024.`\
-https://nytimes.com/2024/04/18/pageoneplus/quotation-of-the-day-not-just-some-wee-fragile-kickers.html
-
-**Corrections: April 18, 2024**\
-`Corrections that appeared in print on Thursday, April 18, 2024.`\
-https://nytimes.com/2024/04/18/pageoneplus/corrections-april-18-2024.html
 

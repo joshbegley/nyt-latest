@@ -1,3 +1,11 @@
+**Trump’s Trial Enters Third Day With 7 Jurors Chosen**\
+`Jury selection in the trial of former President Donald Trump accelerated on Day 2. He is accused of falsifying business records to conceal hush money to a porn star.`\
+https://nytimes.com/2024/04/18/nyregion/trump-trial-third-day.html
+
+**Taking Account of Rising Health Care Costs**\
+`Have your out-of-network insurance bills skyrocketed? Chris Hamby, an investigative reporter for The Times, may have an explanation.`\
+https://nytimes.com/2024/04/18/insider/medical-insurance-costs.html
+
 **The Connections Companion No. 312**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/04/18/crosswords/connections-companion.html
