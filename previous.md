@@ -1,3 +1,7 @@
+**A statement from the president of Columbia University.**\
+`By Stephanie Saul`\
+https://nytimes.com/live/2024/04/18/nyregion/columbia-university-protests/a-statement-from-the-president-of-columbia-university
+
 **‘Gun & Powder’ Review: Twin Vigilantes Stake Claim to the American West**\
 `The musical traces the story of Black twin sisters who pass as white, and exact their own form of justice for the crime of slavery, in the 19th-century Texas.`\
 https://nytimes.com/2024/04/18/theater/gun-powder-review.html
@@ -5,6 +9,10 @@ https://nytimes.com/2024/04/18/theater/gun-powder-review.html
 **Even Clarkenomics Can’t Solve Sexism in Sports**\
 `The outrage is refreshing.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/caitlin-clark-salary
+
+**18columbia**\
+`Live Updates: Police Arresting Pro-Palestinian Protesters at Columbia`\
+https://nytimes.com/live/2024/04/18/nyregion/columbia-university-protests
 
 **Israeli forces appear to conclude a raid in central Gaza.**\
 `By Hiba Yazbek and Abu Bakr Bashir`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/18/movies/the-ministry-of-ungentlemanly-warfare-revi
 **Dickey Betts, Fiery Guitarist With Allman Brothers Band, Dies at 80**\
 `He traded licks with Duane Allman and proved to be a worthy sparring partner. He also wrote, and sang, the band’s biggest hit, “Ramblin’ Man.”`\
 https://nytimes.com/2024/04/18/arts/music/dickey-betts-dead.html
-
-**Robert F. Kennedy Jr. brushes off his relatives endorsing Biden.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/04/18/us/trump-biden-election/robert-f-kennedy-jr-family-endorsement-biden
-
-**Jorie Graham’s Poetry of the Earth and Humanity, Set to Music**\
-`The composer Matthew Aucoin, Graham’s former student, and the director Peter Sellars have adapted her poems into the operatic “Music for New Bodies.”`\
-https://nytimes.com/2024/04/18/arts/music/music-for-new-bodies-aucoin-graham-sellars.html
 
