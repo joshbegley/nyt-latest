@@ -1,3 +1,7 @@
+**Widespread 911 Outages Are Reported in Four States**\
+`Residents in parts of South Dakota, Nebraska, Texas and Nevada were unable to call the emergency number, officials said. Service was later restored in Las Vegas, Nebraska and South Dakota.`\
+https://nytimes.com/2024/04/17/us/911-outage-vegas-south-dakota-nebraska.html
+
 **Google Fires 28 Employees Involved in Protest of Israeli Cloud Contract**\
 `The dismissals escalated longstanding tensions between company leaders and activist employees opposed to supplying technology to Israel’s government.`\
 https://nytimes.com/2024/04/18/technology/google-firing-israeli-cloud-contract.html

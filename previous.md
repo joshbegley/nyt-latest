@@ -31,7 +31,7 @@ https://nytimes.com/2024/04/18/world/europe/german-far-right-hocke-trial.html
 https://nytimes.com/2024/04/18/world/asia/india-election-ai.html
 
 **Widespread 911 Outages Are Reported in Four States**\
-`Residents in parts of South Dakota, Nebraska, Texas and Nevada were unable to call the emergency number, officials said. Service was later restored in Las Vegas and South Dakota.`\
+`Residents in parts of South Dakota, Nebraska, Texas and Nevada were unable to call the emergency number, officials said. Service was later restored in Las Vegas, Nebraska and South Dakota.`\
 https://nytimes.com/2024/04/17/us/911-outage-vegas-south-dakota-nebraska.html
 
 **School Board Cancels Gay Actor’s Anti-Bullying Talk Over His ‘Lifestyle’**\
