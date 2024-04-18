@@ -1,3 +1,7 @@
+**Rosamund Pike Sways to Alt-Rock and Robert De Niro Takes in Some Jazz**\
+`This week, the musician Kim Gordon performed after a star-studded Dior runway show in Brooklyn. And, luminaries honored Tony Bennett during Jazz at Lincoln Center’s annual gala.`\
+https://nytimes.com/2024/04/18/style/kim-gordon-christian-dior-lincoln-center-gala.html
+
 **At Columbia, the Grown-Ups in the Room Take a Stand**\
 `Protesters seem unaware of the pain they are causing Jewish students.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/columbia-protests-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/style/ashanti-nelly-baby-engaged.html
 **A protest 56 years ago became an important part of Columbia’s culture.**\
 `During the Vietnam War, students seized campus buildings for a week until university officials and the police cracked down.`\
 https://nytimes.com/2024/04/18/nyregion/columbia-protest-1968-vietnam.html
-
-**C.I.A. Director Blames Hamas for Stalled Peace Talks**\
-`The group’s rejection of a recent proposal “is standing in the way of innocent civilians in Gaza getting humanitarian relief,” the director said.`\
-https://nytimes.com/2024/04/18/world/middleeast/cia-hamas-israel-cease-fire.html
 
