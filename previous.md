@@ -1,3 +1,7 @@
+**‘Gun & Powder’ Review: Twin Vigilantes Stake Claim to the American West**\
+`The musical traces the story of Black twin sisters who pass as white, and exact their own form of justice for the crime of slavery, in the 19th-century Texas.`\
+https://nytimes.com/2024/04/18/theater/gun-powder-review.html
+
 **Even Clarkenomics Can’t Solve Sexism in Sports**\
 `The outrage is refreshing.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/caitlin-clark-salary
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/18/us/trump-biden-election/robert-f-kennedy-jr-
 **Jorie Graham’s Poetry of the Earth and Humanity, Set to Music**\
 `The composer Matthew Aucoin, Graham’s former student, and the director Peter Sellars have adapted her poems into the operatic “Music for New Bodies.”`\
 https://nytimes.com/2024/04/18/arts/music/music-for-new-bodies-aucoin-graham-sellars.html
-
-**What We Know About Why Two Trump Jurors Were Dismissed**\
-`One seated juror said she had developed concerns her identity could be revealed. The second was dismissed after prosecutors raised concerns about his credibility.`\
-https://nytimes.com/2024/04/18/nyregion/jurors-dismissed-trump-trial.html
 
