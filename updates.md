@@ -1,3 +1,7 @@
+**Modi’s Temple of Lies**\
+`India’s many problems can’t be solved by his radical Hindu nationalism.`\
+https://nytimes.com/2024/04/18/opinion/india-election-modi-religion.html
+
 **Thursday Briefing**\
 `Europe asks Israel for restraint on Iran.`\
 https://nytimes.com/2024/04/18/briefing/israel-iran-ukraine-missile-russia.html

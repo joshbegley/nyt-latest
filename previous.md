@@ -1,3 +1,7 @@
+**Modi’s Temple of Lies**\
+`India’s many problems can’t be solved by his radical Hindu nationalism.`\
+https://nytimes.com/2024/04/18/opinion/india-election-modi-religion.html
+
 **Thursday Briefing**\
 `Europe asks Israel for restraint on Iran.`\
 https://nytimes.com/2024/04/18/briefing/israel-iran-ukraine-missile-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/theater/the-wiz-review-broadway.html
 **One Way to Run**\
 `David Kwong makes magic again.`\
 https://nytimes.com/2024/04/17/crosswords/daily-puzzle-2024-04-18.html
-
-**House Moves Toward Bundling TikTok Bill With Aid to Ukraine and Israel**\
-`A new measure attempts to force the Senate’s hand on passing legislation to ban TikTok or mandate the app’s sale.`\
-https://nytimes.com/2024/04/17/technology/tiktok-ban-ukraine-israel-aid.html
 
