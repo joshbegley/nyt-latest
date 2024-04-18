@@ -1,3 +1,7 @@
+**Surveillance Bill Clears Key Hurdle in Senate Ahead of Friday Expiration**\
+`Republicans and Democrats voted to advance a measure to extend a warrantless surveillance law, but skeptics in both parties were still pushing to make substantial changes before a final vote.`\
+https://nytimes.com/2024/04/18/us/politics/senate-fisa-surveillance-bill.html
+
 **Rep. Ilhan Omar’s Daughter Suspended for Involvement in Columbia Protest**\
 `Isra Hirsi, the Democratic congresswoman’s daughter, was part of a tent-encampment, organized to protest the war in Gaza, that has escalated tensions on campus.`\
 https://nytimes.com/2024/04/18/nyregion/ilhan-omar-daughter-columbia-suspended.html
