@@ -7,7 +7,7 @@ https://nytimes.com/2024/04/18/world/asia/afghanistan-pakistan-rain-flooding.htm
 https://nytimes.com/2024/04/18/us/disneyland-anaheim-redesign.html
 
 **18trump-trial**\
-`Live Updates: Trump’s Trial Enters Third Day With 7 Jurors Chosen`\
+`Live Updates: Juror Is Dismissed as Trump’s Trial Begins Third Day`\
 https://nytimes.com/live/2024/04/18/nyregion/trump-hush-money-trial
 
 **In ‘Franklin,’ Michael Douglas Uses His Charm to Bankroll America**\

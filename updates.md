@@ -1,3 +1,7 @@
+**18trump-trial**\
+`Live Updates: Juror Is Dismissed as Trump’s Trial Begins Third Day`\
+https://nytimes.com/live/2024/04/18/nyregion/trump-hush-money-trial
+
 **Rainstorms Kill More Than 130 Across Afghanistan and Pakistan**\
 `Pakistani officials warned of more flooding and heavy rainfall next week, stoking fears of a particularly brutal monsoon season to come.`\
 https://nytimes.com/2024/04/18/world/asia/afghanistan-pakistan-rain-flooding.html
