@@ -1,7 +1,3 @@
-**Micron Will Receive $6.1 Billion to Build Semiconductor Plants**\
-`The grant to the memory chipmaker is the latest federal award aimed at boosting U.S. chip manufacturing.`\
-https://nytimes.com/2024/04/18/technology/micron-semiconductor-award-chips-act.html
-
 **A statement from the president of Columbia University.**\
 `By Stephanie Saul`\
 https://nytimes.com/live/2024/04/18/nyregion/columbia-university-protests/a-statement-from-the-president-of-columbia-university
@@ -37,4 +33,8 @@ https://nytimes.com/2024/04/18/dining/three-vegetarian-dinner-party-ideas-for-ev
 **‘The Ministry of Ungentlemanly Warfare’ Review: War, Undemanding**\
 `Guy Ritchie’s latest is the platonic ideal of an airplane movie, which is not exactly a good thing.`\
 https://nytimes.com/2024/04/18/movies/the-ministry-of-ungentlemanly-warfare-review.html
+
+**Dickey Betts, Fiery Guitarist With Allman Brothers Band, Dies at 80**\
+`He traded licks with Duane Allman and proved to be a worthy sparring partner. He also wrote, and sang, the band’s biggest hit, “Ramblin’ Man.”`\
+https://nytimes.com/2024/04/18/arts/music/dickey-betts-dead.html
 
