@@ -1,3 +1,7 @@
+**Chinese Exports Are Threatening Biden’s Industrial Agenda**\
+`The president is increasingly hitting back with tariffs and other measures meant to restrict imports, raising tensions with Beijing.`\
+https://nytimes.com/2024/04/18/us/politics/china-exports-biden-industrial-agenda.html
+
 **How Israel’s Conflicts Could Escalate**\
 `Israel’s military is dealing with clashes with Hezbollah in Lebanon and with Iran, as well as the continuing war in Gaza.`\
 https://nytimes.com/2024/04/18/world/middleeast/israel-war-gaza-iran-hezbollah.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/nyregion/trump-trial-juror-information-judge.html
 **Qatar Says It Is Reviewing Its Mediator Role as Israel-Hamas Talks Stall**\
 `U.S. and Israeli officials have urged the Gulf state to exert more pressure on the Palestinian armed group to reach a deal.`\
 https://nytimes.com/2024/04/18/world/middleeast/qatar-ceasefire-talks-israel-hamas.html
-
-**New U.S. sanctions target Iran’s drone manufacturers and steel industry.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/new-us-sanctions-target-irans-drone-manufacturers-and-steel-industry
 
