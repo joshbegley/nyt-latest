@@ -1,3 +1,7 @@
+**18trump-trial**\
+`Live Updates: Trump’s Trial Enters Third Day With 7 Jurors Chosen`\
+https://nytimes.com/live/2024/04/18/nyregion/trump-hush-money-trial
+
 **In ‘Franklin,’ Michael Douglas Uses His Charm to Bankroll America**\
 `A new Apple TV+ series dramatizes the years Benjamin Franklin spent in France, leveraging diplomacy and guile to secure his nascent country’s future.`\
 https://nytimes.com/2024/04/18/arts/television/franklin-michael-douglas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/podcasts/the-daily/trump-trial.html
 **The House Pushes for a TikTok ban, and Southern Africa Faces a Food Crisis**\
 `Plus, a brazen gold heist.`\
 https://nytimes.com/2024/04/18/podcasts/tiktok-mayorkas-drought.html
-
-**W.H.O. Broadens Definition of Airborne Diseases**\
-`After a drawn-out global controversy over the coronavirus, the W.H.O. has updated its classification of how pathogens spread through the air.`\
-https://nytimes.com/2024/04/18/health/who-airborne-covid.html
 
