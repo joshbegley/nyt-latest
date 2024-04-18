@@ -1,3 +1,7 @@
+**Protests Intensify at Columbia, Forcing Difficult Choices for Leaders**\
+`A university with a proud history of protest told student demonstrators camping on the lawn that they had to leave. The students have vowed to stay, no matter the consequences.`\
+https://nytimes.com/2024/04/18/nyregion/columbia-university-protests-antisemitism.html
+
 **Why Electro’s Exacting Duo Justice Wanted to Break Its Own Rules**\
 `For “Hyperdrama,” Gaspard Augé and Xavier de Rosnay’s first album in eight years, the duo added genre experiments and guests to its arsenal of bangers.`\
 https://nytimes.com/2024/04/18/arts/music/justice-hyperdrama.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/well/mind/biking-cycling-grief-movement.html
 **A Lakeside Restaurant Reopens in Paris’s Bois de Boulogne**\
 `Plus: a Pennsylvania wellness retreat, whimsical wallpaper and more recommendations from T Magazine.`\
 https://nytimes.com/2024/04/18/t-magazine/chalet-des-iles-paris-restaurant.html
-
-**After Reports About Trump Jurors, Judge Demands Restraint From the Press**\
-`Some news reports have included details about jurors that had been aired in open court. One was excused after she developed concerns about being identified.`\
-https://nytimes.com/2024/04/18/nyregion/trump-trial-juror-information-judge.html
 
