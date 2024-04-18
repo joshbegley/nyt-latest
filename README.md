@@ -1,3 +1,11 @@
+**Judge Rejects Trump’s Effort to Delay Jan. 6 Civil Cases**\
+`The former president had sought to have lawsuits against him put on hold until after his federal criminal trial on charges of plotting to overturn the 2020 election.`\
+https://nytimes.com/2024/04/18/us/politics/trump-delay-jan-6-civil-cases.html
+
+**Film Club: ‘Criminalizing Homelessness Won’t Make It Go Away’**\
+`There is a public and political push to criminalize homelessness. Is it the wrong approach to deal with the problem?`\
+https://nytimes.com/2024/04/18/learning/film-club-criminalizing-homelessness-wont-make-it-go-away.html
+
 **Dinh Q. Le, Artist Who Weighed War and Memory, Dies at 56**\
 `His most famous work — collages of Vietnam War photographs, popular film stills and Western imagery — focused on a history of his homeland that he feared was being lost.`\
 https://nytimes.com/2024/04/18/arts/dinh-q-le-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/18/dining/7-rapid-fire-restaurant-questions-from-rea
 **Johnson Has a Tough Job. McCarthy’s Concessions Are Making It Tougher.**\
 `The Republican speaker’s problems spring from his predecessor’s efforts to placate the far right as he grasped for the gavel. Now they are seeking to use the leverage they won then to get their way on the foreign aid bill.`\
 https://nytimes.com/2024/04/18/us/politics/mike-johnson-foreign-aid-package.html
-
-**U.S. Restarts Deportation Flights to Haiti**\
-`The Biden administration had paused deportations of Haitian migrants in recent months as their home country was wracked by violence.`\
-https://nytimes.com/2024/04/18/us/politics/us-restarts-deportation-flights-to-haiti.html
-
-**U.S. Mortgage Rates Jump Above 7% for the First Time This Year**\
-`Rates on 30-year mortgages — the most common kind among U.S. homeowners — surpassed the 7 percent mark on Thursday, a troublesome sign for an already tight housing market.`\
-https://nytimes.com/2024/04/18/business/mortgage-rates.html
 
