@@ -1,40 +1,40 @@
-**18mideast-crisis**\
-`E.U. Will Impose New Sanctions on Iran for Attacking Israel`\
-https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news
+**The Wild, the Weird and the Controversial: the 2024 Venice Biennale**\
+`As visitors pour in, parallel art displays are cropping up around the city, including lesser-known de Kooning works and an installation that has incensed locals.`\
+https://nytimes.com/2024/04/18/arts/design/venice-biennale-2024.html
 
-**The E.U. says it will impose new sanctions on Iran’s drone and missile programs.**\
-`By Lara Jakes`\
-https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/the-eu-says-it-will-impose-new-sanctions-on-irans-drone-and-missile-programs
+**The Artists Who Stopped What They’d Started**\
+`From Ralph Ellison to Harper Lee, those who made great work in one field — before their creative lives went in a different direction.`\
+https://nytimes.com/interactive/2024/04/18/t-magazine/ralph-ellison-harper-lee-beginning-end.html
 
-**The Poems That Taught Me How to Love**\
-`Lessons from the Chilean poet’s mind-bending verse.`\
-https://nytimes.com/2024/04/18/magazine/pablo-neruda-love-poems.html
+**Behind Each of Mary Kubica’s Novels Is a Bevy of Feisty Felines**\
+`The author of nine suspense books also finds time to foster kittens from a Chicago-area shelter.`\
+https://nytimes.com/2024/04/18/books/review/shes-not-sorry-mary-kubica.html
 
-**Trump’s Trial Enters Third Day With 7 Jurors Chosen**\
-`Jury selection in the trial of former President Donald Trump accelerated on Day 2. He is accused of falsifying business records to conceal hush money to a porn star.`\
-https://nytimes.com/2024/04/18/nyregion/trump-trial-third-day.html
+**A Nigerian Chess Master in Times Square**\
+`Tunde Onakoya is trying to break a record for the longest chess marathon. And he’s playing his games in the open air in Manhattan.`\
+https://nytimes.com/2024/04/18/nyregion/nigerian-chess-master-tunde-onakoya.html
 
-**Taking Account of Rising Health Care Costs**\
-`Have your out-of-network insurance bills skyrocketed? Chris Hamby, an investigative reporter for The Times, may have an explanation.`\
-https://nytimes.com/2024/04/18/insider/medical-insurance-costs.html
+**After 70 Years, Si Lewen’s Wrenching ‘Parade’ Marches On**\
+`This sequence of 63 bravura antiwar drawings hasn’t been shown in nearly seven decades but they’re up again now, thanks to Art Spiegelman.`\
+https://nytimes.com/2024/04/18/arts/design/si-lewen-parade-james-cohan.html
 
-**The Connections Companion No. 312**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/18/crosswords/connections-companion.html
+**What Jon Bon Jovi Did After Losing His Voice**\
+`Seven artists on the challenges and joys of starting over, sometimes in a totally new field.`\
+https://nytimes.com/interactive/2024/04/18/t-magazine/humberto-leon-bon-jovi-beginnings-rebirth.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/18/crosswords/spelling-bee-forum.html
+**They Graduated Into Gaza’s War. What Happened to Them?**\
+`A class of freshly minted dentistry graduates in Gaza had big plans. Now they are counting the dead and trying not to join them.`\
+https://nytimes.com/interactive/2024/04/18/world/middleeast/gaza-university-class.html
 
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/18/crosswords/wordle-review.html
+**Homes for Sale in Manhattan and Queens**\
+`This week’s properties are on the Upper West Side, in Gramercy Park and in Long Island City.`\
+https://nytimes.com/2024/04/18/realestate/housing-market-nyc.html
 
-**Late Night Skewers Trump’s Review of Jimmy Kimmel’s Oscar Hosting**\
-`“Ranta Claus got up bright and early to post 165 venomous words about yours truly,” Kimmel said on Donald Trump’s day off from his criminal trial on Wednesday.`\
-https://nytimes.com/2024/04/18/arts/television/jimmy-kimmel-trump-oscars.html
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are a four-bedroom in Mount Kisco, N.Y., and a five-bedroom in Glen Ridge, N.J.`\
+https://nytimes.com/2024/04/18/realestate/housing-market-near-nyc.html
 
-**Google Fires 28 Employees Involved in Protest of Israeli Cloud Contract**\
-`The dismissals escalated longstanding tensions between company leaders and activist employees opposed to supplying technology to Israel’s government.`\
-https://nytimes.com/2024/04/18/technology/google-firing-israeli-cloud-contract.html
+**36 Hours in Munich**\
+`Shedding its conservative reputation, the Bavarian capital is finding unusual ways to balance tradition and innovation.`\
+https://nytimes.com/interactive/2024/04/18/travel/things-to-do-munich.html
 
