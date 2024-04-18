@@ -1,3 +1,11 @@
+**Israeli forces appear to conclude a raid in central Gaza.**\
+`By Hiba Yazbek and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/israeli-forces-appear-to-conclude-a-raid-in-central-gaza
+
+**Biden Administration Announces Rule to Strengthen Protection of Public Lands**\
+`The measure elevates conservation in a number of ways, including by creating new leases for the restoration of degraded areas.`\
+https://nytimes.com/2024/04/18/climate/blm-public-lands-conservation.html
+
 **Scotland Pauses Gender Medications for Minors**\
 `The change followed a sweeping review by England’s National Health Service that found “remarkably weak” evidence for youth gender treatments.`\
 https://nytimes.com/2024/04/18/health/scotland-pauses-hormones-puberty-blockers-transgender.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/18/nyregion/jurors-dismissed-trump-trial.html
 **Amsterdam’s Latest Effort to Fight Excessive Tourism: No New Hotels**\
 `The city wants no more than 20 million hotel stays annually. The measure is one of multiple efforts to control the flow of visitors.`\
 https://nytimes.com/2024/04/18/world/europe/amsterdam-tourism-hotel-stop.html
-
-**Countdown Is On for the Bitcoin ‘Halving’**\
-`Bitcoin aficionados are hoping that a scheduled reduction in the number of new coins going into circulation will cause the price of the cryptocurrency to skyrocket.`\
-https://nytimes.com/2024/04/18/technology/bitcoin-halving-countdown.html
-
-**How a Crypto Compliance Officer Ended Up in a Nigerian Prison**\
-`Tigran Gambaryan, an American compliance official for the giant cryptocurrency exchange Binance, flew to Nigeria in February for a planned two-day business trip. He hasn’t returned.`\
-https://nytimes.com/2024/04/18/technology/binance-crypto-compliance-officer-nigerian-prison.html
 
