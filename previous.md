@@ -1,3 +1,15 @@
+**Ashanti and Nelly Rekindled Their Y2K Romance With a Ring**\
+`More than two decades after they first met, the R&B singer announced her pregnancy and engagement to the rapper. Fans rejoiced.`\
+https://nytimes.com/2024/04/18/style/ashanti-nelly-baby-engaged.html
+
+**A protest 56 years ago became an important part of Columbia’s culture.**\
+`During the Vietnam War, students seized campus buildings for a week until university officials and the police cracked down.`\
+https://nytimes.com/2024/04/18/nyregion/columbia-protest-1968-vietnam.html
+
+**C.I.A. Director Blames Hamas for Stalled Peace Talks**\
+`The group’s rejection of a recent proposal “is standing in the way of innocent civilians in Gaza getting humanitarian relief,” the director said.`\
+https://nytimes.com/2024/04/18/world/middleeast/cia-hamas-israel-cease-fire.html
+
 **Judge Rejects Trump’s Effort to Delay Jan. 6 Civil Cases**\
 `The former president had sought to have lawsuits against him put on hold until after his federal criminal trial on charges of plotting to overturn the 2020 election.`\
 https://nytimes.com/2024/04/18/us/politics/trump-delay-jan-6-civil-cases.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/18/world/europe/nicola-sturgeon-husband-embezzlement
 **What to Watch This Weekend: ‘The Jinx’ Is Back**\
 `HBO’s “The Jinx — Part Two” offers six more episodes detailing the stranger-than-fiction saga of Robert Durst.`\
 https://nytimes.com/2024/04/18/arts/television/the-jinx.html
-
-**Netflix Added More Than 9 Million Subscribers in First Quarter**\
-`The company’s revenue was 15 percent higher compared with last year, and it solidified its standing as the entertainment company’s dominant streaming service.`\
-https://nytimes.com/2024/04/18/business/media/netflix-earnings.html
-
-**7 Rapid-Fire Restaurant Questions from Readers**\
-`Looking for the best Caesar salad? Frog legs? A restaurant near Carnegie Hall?`\
-https://nytimes.com/2024/04/18/dining/7-rapid-fire-restaurant-questions-from-readers.html
-
-**Johnson Has a Tough Job. McCarthy’s Concessions Are Making It Tougher.**\
-`The Republican speaker’s problems spring from his predecessor’s efforts to placate the far right as he grasped for the gavel. Now they are seeking to use the leverage they won then to get their way on the foreign aid bill.`\
-https://nytimes.com/2024/04/18/us/politics/mike-johnson-foreign-aid-package.html
 
