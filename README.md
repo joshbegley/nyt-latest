@@ -1,6 +1,6 @@
 **Day 3 of Trump’s Criminal Trial: Five Takeaways**\
 `A jury of 12 people was chosen, and alternate members will be picked Friday. They will help write American history.`\
-https://nytimes.com/live/2024/04/18/nyregion/trump-hush-money-trial/trump-criminal-trial-takeaways
+https://nytimes.com/2024/04/18/nyregion/trump-criminal-trial-takeaways.html
 
 **Two Jurors Dislike Trump. One Will Judge Him.**\
 `It’s not easy deciding who can set aside personal feelings and act in fairness.`\
