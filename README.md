@@ -1,6 +1,6 @@
 **What if O.J.’s Trial Happened Now?**\
 `It’s a different world, much more so than people want to acknowledge.`\
-https://nytimes.com/2024/04/18/opinion/what-if-ojs-trial-happened-now.html
+https://nytimes.com/2024/04/18/opinion/oj-simpson-murder-trial.html
 
 **Biden, Worried About R.F.K. Jr., Turns to His Famous Family for Help**\
 `The rollout of endorsements from the Kennedys signaled the urgency the Biden campaign feels toward Robert F. Kennedy Jr.’s independent bid, and its desire to discredit him.`\
