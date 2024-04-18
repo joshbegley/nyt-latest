@@ -1,3 +1,7 @@
+**Judge in Documents Case Rejects Dismissal Motions by Trump Co-Defendants**\
+`Judge Aileen M. Cannon denied requests by Walt Nauta and Carlos De Oliveira to have the charges against them dropped.`\
+https://nytimes.com/2024/04/18/us/politics/trump-documents-case-dismissal-co-defendants.html
+
 **Columbia Sends In the N.Y.P.D. to Arrest Protesters in Tent City**\
 `The university president broke with a decades-long tradition and called in the police to quell the pro-Palestinian protest. The encampment was then dismantled.`\
 https://nytimes.com/2024/04/18/nyregion/columbia-university-tent-city-palestinian-protest.html
