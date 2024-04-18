@@ -1,3 +1,7 @@
+**Rethinking the Ethics of Tax Deductions**\
+`Responses to an essay that suggested that the affluent forgo some deductions. Also: Aid to Ukraine; gun safety on the set; plastics and pollutants.`\
+https://nytimes.com/2024/04/18/opinion/tax-deductions.html
+
 **Meta, in Its Biggest A.I. Push, Places Smart Assistants Across Its Apps**\
 `Users of Instagram, Facebook, WhatsApp and Messenger will be able to turn to the new technology, powered by Meta’s latest artificial intelligence model, to obtain information and complete tasks.`\
 https://nytimes.com/2024/04/18/technology/meta-ai-assistant-push.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-campaign-strugg
 **Our 15th Annual Summer Reading Contest**\
 `Students are invited to tell us what they’re reading in The Times and why, this year in writing OR via a 90-second video. Contest dates: June 7 to Aug. 16.`\
 https://nytimes.com/2024/04/18/learning/our-15th-annual-summer-reading-contest.html
-
-**How to Use That Bag of Frozen Peas and Carrots**\
-`Ali Slagle’s new sheet-pan chicken recipe turns the freezer staple into a tangy, ranch-inflected one-dish dinner.`\
-https://nytimes.com/2024/04/18/dining/how-to-use-that-bag-of-frozen-peas-and-carrots.html
 
