@@ -1,3 +1,11 @@
+**The conflict with protesters has been brewing for months. Here’s what led to the school’s decision.**\
+`By Stephanie Saul`\
+https://nytimes.com/live/2024/04/18/nyregion/columbia-university-protests/the-conflict-with-protesters-has-been-brewing-for-months-heres-what-led-to-the-schools-decision
+
+**Sony in Talks to Join a Bid to Buy Paramount**\
+`The company and Apollo Global Management are discussing a joint effort, even as Paramount conducts exclusive merger negotiations with Skydance.`\
+https://nytimes.com/2024/04/18/business/paramount-sony-apollo-bid.html
+
 **Major Delays at Sacramento Airport After AT&T Cable Is Slashed**\
 `The authorities said the cable had been cut intentionally, halting check-in services for at least two major airlines for several hours.`\
 https://nytimes.com/2024/04/18/us/att-cable-cut-sacramento-airport.html
