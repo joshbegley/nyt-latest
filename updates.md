@@ -1,3 +1,11 @@
+**House Moves Toward Bundling TikTok Bill With Aid to Ukraine and Israel**\
+`A new measure attempts to force the Senate’s hand on passing legislation to ban TikTok or mandate the app’s sale.`\
+https://nytimes.com/2024/04/17/technology/tiktok-ban-ukraine-israel-aid.html
+
+**Deluge Batters U.A.E. and Oman, Killing at Least 20**\
+`The heavy rains also flooded parts of Dubai International Airport, causing scores of flight delays and cancellations, and brought other cities in the U.A.E. to a standstill.`\
+https://nytimes.com/2024/04/17/homepage/dubai-airport-oman-flooding.html
+
 **TikTok Bill Is Bundled With Aid to Ukraine and Israel**\
 `A new House measure attempts to force the Senate’s hand on passing legislation to ban TikTok or mandate the app’s sale.`\
 https://nytimes.com/2024/04/17/technology/tiktok-ban-ukraine-israel-aid.html
