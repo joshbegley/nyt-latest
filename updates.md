@@ -1,3 +1,7 @@
+**The Courage to Follow the Evidence on Transgender Care**\
+`Dr. Hilary Cass’s thoughtful medical review is a model for how we should address difficult issues.`\
+https://nytimes.com/2024/04/18/opinion/transgender-care-cass-report.html
+
 **Meet the 12 Manhattan Jurors Who Will Decide Donald J. Trump’s Fate**\
 `The cross section of New Yorkers emerged after three days of questioning. These are the citizens who will judge their former president.`\
 https://nytimes.com/2024/04/18/nyregion/trump-trial-jury-hush-money.html

@@ -1,3 +1,7 @@
+**The Courage to Follow the Evidence on Transgender Care**\
+`Dr. Hilary Cass’s thoughtful medical review is a model for how we should address difficult issues.`\
+https://nytimes.com/2024/04/18/opinion/transgender-care-cass-report.html
+
 **Meet the 12 Manhattan Jurors Who Will Decide Donald J. Trump’s Fate**\
 `The cross section of New Yorkers emerged after three days of questioning. These are the citizens who will judge their former president.`\
 https://nytimes.com/2024/04/18/nyregion/trump-trial-jury-hush-money.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/us-israel-ra
 **Ex-St. Louis Police Officer Beaten by Then-Colleagues Is Awarded $23 Million**\
 `Luther Hall won the judgment against a former colleague in connection with a beating that took place during a 2017 protest where he was undercover.`\
 https://nytimes.com/2024/04/18/us/st-louis-officer-beating-settlement.html
-
-**What Got Your Attention in the News Recently?**\
-`All summer long we’ll be asking a similar question for our Summer Reading Contest. Practice here by posting a comment or a short video about a story that has interested you lately.`\
-https://nytimes.com/2024/04/18/learning/what-got-your-attention-in-the-news-recently.html
 
