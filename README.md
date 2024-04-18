@@ -1,3 +1,7 @@
+**Widespread 911 Outages Are Reported in Four States and Las Vegas**\
+`Residents in parts of South Dakota, Nebraska, Texas and Nevada were unable to call the emergency number, officials said.`\
+https://nytimes.com/2024/04/17/us/911-outage-vegas-south-dakota-nebraska.html
+
 **School Board Cancels Gay Actor’s Anti-Bullying Talk Over His ‘Lifestyle’**\
 `Maulik Pancholy was scheduled to give a talk on anti-bullying at a Pennsylvania school next month. School board members scrapped it, citing concerns about his activism and “lifestyle.”`\
 https://nytimes.com/2024/04/17/us/maulik-pancholy-pennsylvania-school.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/opinion/kamala-harris-reproductive-rights.html
 **Deluge Batters U.A.E. and Oman, Killing at Least 20**\
 `The heavy rains also flooded parts of Dubai International Airport, causing scores of flight delays and cancellations, and brought other cities in the U.A.E. to a standstill.`\
 https://nytimes.com/2024/04/17/homepage/dubai-airport-oman-flooding.html
-
-**Justice Dept. Nears Settlement Over F.B.I.’s Failure to Investigate Larry Nassar**\
-`The deal, which could be announced in coming weeks, would bring an end to one of the last major cases stemming from a horrific sports scandal.`\
-https://nytimes.com/2024/04/17/us/politics/larry-nassar-victims-fbi-doj-settlement.html
 
