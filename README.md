@@ -1,3 +1,7 @@
+**The Scent of a Struggling Campaign Is Emerging From Trump’s Courtroom**\
+`The trial is becoming his campaign trail.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-campaign-struggling
+
 **Our 15th Annual Summer Reading Contest**\
 `Students are invited to tell us what they’re reading in The Times and why, this year in writing OR via a 90-second video. Contest dates: June 7 to Aug. 16.`\
 https://nytimes.com/2024/04/18/learning/our-15th-annual-summer-reading-contest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/arts/music/hipgnosis-songs-fund-sell-concord.html
 **Millions of Girls in Africa Will Miss HPV Shots After Merck Production Problem**\
 `The company has told countries that it can supply only 18.8 million of the 29.6 million doses it was contracted to deliver this year.`\
 https://nytimes.com/2024/04/18/health/hpv-vaccine-africa-merck.html
-
-**A Far-Right Party Emerges as a Possible Kingmaker in Croatia**\
-`The Homeland Movement came third in parliamentary elections, setting itself up as a possible partner for the ruling conservatives, who failed to achieve a majority.`\
-https://nytimes.com/2024/04/18/world/europe/croatia-election-far-right.html
 
