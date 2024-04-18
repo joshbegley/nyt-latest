@@ -1,3 +1,11 @@
+**What if O.J.’s Trial Happened Now?**\
+`It’s a different world, much more so than people want to acknowledge.`\
+https://nytimes.com/2024/04/18/opinion/oj-simpson-murder-trial.html
+
+**Biden, Worried About R.F.K. Jr., Turns to His Famous Family for Help**\
+`The rollout of endorsements from the Kennedys signaled the urgency the Biden campaign feels toward Robert F. Kennedy Jr.’s independent bid, and its desire to discredit him.`\
+https://nytimes.com/2024/04/18/us/politics/biden-rfk-jr-kennedy-family.html
+
 **Ivy Getty Files for Divorce**\
 `After three years of marriage and a lavish wedding attended by Anya Taylor-Joy, Nancy Pelosi and Olivia Rodrigo, the oil heiress is seeking a divorce from her husband, Tobias Engel.`\
 https://nytimes.com/2024/04/18/style/ivy-getty-divorce-tobias-engel.html
