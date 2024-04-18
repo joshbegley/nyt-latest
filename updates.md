@@ -1,3 +1,7 @@
+**Word of the Day: erudition**\
+`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/18/learning/word-of-the-day-erudition.html
+
 **Widespread 911 Outages Are Reported in Four States**\
 `Residents in parts of South Dakota, Nebraska, Texas and Nevada were unable to call the emergency number, officials said. Service was later restored in Las Vegas and South Dakota.`\
 https://nytimes.com/2024/04/17/us/911-outage-vegas-south-dakota-nebraska.html
