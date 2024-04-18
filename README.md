@@ -1,13 +1,9 @@
-**Rainstorms Kill More Than 130 Across Afghanistan and Pakistan**\
-`Pakistani officials warned of more flooding and heavy rainfall next week, stoking fears of a particularly brutal monsoon season to come.`\
-https://nytimes.com/2024/04/18/world/asia/afghanistan-pakistan-rain-flooding.html
-
 **Anaheim Approves Biggest Redesign of Disneyland in 30 Years**\
 `Disney plans to spend at least $1.9 billion to develop and reimagine the park over the next decade.`\
 https://nytimes.com/2024/04/18/us/disneyland-anaheim-redesign.html
 
 **18trump-trial**\
-`Live Updates: Trump’s Trial Enters Third Day With 7 Jurors Chosen`\
+`Live Updates: Juror Is Dismissed as Trump’s Trial Begins Third Day`\
 https://nytimes.com/live/2024/04/18/nyregion/trump-hush-money-trial
 
 **In ‘Franklin,’ Michael Douglas Uses His Charm to Bankroll America**\
@@ -37,4 +33,8 @@ https://nytimes.com/2024/04/18/books/review/emily-henry-funny-story.html
 **An Uneasy Arab-Israeli Alliance**\
 `Many Arab leaders see Iran as a bigger problem than Israel, even if they don’t say so publicly.`\
 https://nytimes.com/2024/04/18/briefing/israel-iran-middle-east.html
+
+**The Opening Days of Trump’s First Criminal Trial**\
+`Here’s what has happened so far in the unprecedented proceedings against a former U.S. president.`\
+https://nytimes.com/2024/04/18/podcasts/the-daily/trump-trial.html
 

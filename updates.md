@@ -1,3 +1,7 @@
+**Rainstorms Kill More Than 130 Across Afghanistan and Pakistan**\
+`Pakistani officials warned of more flooding and heavy rainfall next week, stoking fears of a particularly brutal monsoon season to come.`\
+https://nytimes.com/2024/04/18/world/asia/afghanistan-pakistan-rain-flooding.html
+
 **Anaheim Approves Biggest Redesign of Disneyland in 30 Years**\
 `Disney plans to spend at least $1.9 billion to develop and reimagine the park over the next decade.`\
 https://nytimes.com/2024/04/18/us/disneyland-anaheim-redesign.html
