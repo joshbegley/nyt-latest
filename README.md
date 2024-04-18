@@ -1,3 +1,7 @@
+**Review: ‘The Wiz’ Eases Back to Broadway**\
+`Almost 50 years after it debuted, this classic Black take on “The Wizard of Oz” tries to update its original formula.`\
+https://nytimes.com/2024/04/17/theater/the-wiz-review-broadway.html
+
 **One Way to Run**\
 `David Kwong makes magic again.`\
 https://nytimes.com/2024/04/17/crosswords/daily-puzzle-2024-04-18.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/us/politics/larry-nassar-victims-fbi-doj-settleme
 **Trump Demands a Cut of Donations From Campaigns That Use His Name**\
 `The Trump campaign said that candidates using his brand should turn over at least 5 percent of donations and encouraged them to send more than the minimum.`\
 https://nytimes.com/2024/04/17/us/politics/trump-fundraising-republicans.html
-
-**Vampire Weekend’s New Album Goes Underground and All Over**\
-`Digging into “Only God Was Above Us,” an LP that’s both catchy and complex.`\
-https://nytimes.com/2024/04/17/arts/music/popcast-vampire-weekend.html
 
