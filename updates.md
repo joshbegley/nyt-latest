@@ -1,3 +1,7 @@
+**Review: ‘The Wiz’ Eases Back to Broadway**\
+`Almost 50 years after it debuted, this classic Black take on “The Wizard of Oz” tries to update its original formula.`\
+https://nytimes.com/2024/04/17/theater/the-wiz-review-broadway.html
+
 **One Way to Run**\
 `David Kwong makes magic again.`\
 https://nytimes.com/2024/04/17/crosswords/daily-puzzle-2024-04-18.html
