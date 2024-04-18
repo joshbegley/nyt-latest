@@ -1,3 +1,11 @@
+**Meta, in Its Biggest A.I. Push, Places Smart Assistants Across Its Apps**\
+`Users of Instagram, Facebook, WhatsApp and Messenger will be able to turn to the new technology, powered by Meta’s latest artificial intelligence model, to obtain information and complete tasks.`\
+https://nytimes.com/2024/04/18/technology/meta-ai-assistant-push.html
+
+**The Unsolvable Mysteries of Donald’s and Melania’s Marriage**\
+`Trump’s trial brings more questions than answers to the fore.`\
+https://nytimes.com/2024/04/18/opinion/donald-melania-trump-trial.html
+
 **Protests Intensify at Columbia, Forcing Difficult Choices for Leaders**\
 `A university with a proud history of protest told student demonstrators camping on the lawn that they had to leave. The students have vowed to stay, no matter the consequences.`\
 https://nytimes.com/2024/04/18/nyregion/columbia-university-protests-antisemitism.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/18/learning/our-15th-annual-summer-reading-contest.h
 **How to Use That Bag of Frozen Peas and Carrots**\
 `Ali Slagle’s new sheet-pan chicken recipe turns the freezer staple into a tangy, ranch-inflected one-dish dinner.`\
 https://nytimes.com/2024/04/18/dining/how-to-use-that-bag-of-frozen-peas-and-carrots.html
-
-**After Unthinkable Loss, Biking Helped Me Embrace Life Again**\
-`A grieving mother finds a new beginning on two wheels.`\
-https://nytimes.com/2024/04/18/well/mind/biking-cycling-grief-movement.html
-
-**A Lakeside Restaurant Reopens in Paris’s Bois de Boulogne**\
-`Plus: a Pennsylvania wellness retreat, whimsical wallpaper and more recommendations from T Magazine.`\
-https://nytimes.com/2024/04/18/t-magazine/chalet-des-iles-paris-restaurant.html
 
