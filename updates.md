@@ -1,3 +1,15 @@
+**18mideast-crisis**\
+`E.U. Will Impose New Sanctions on Iran for Attacking Israel`\
+https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news
+
+**The E.U. says it will impose new sanctions on Iran’s drone and missile programs.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/the-eu-says-it-will-impose-new-sanctions-on-irans-drone-and-missile-programs
+
+**The Poems That Taught Me How to Love**\
+`Lessons from the Chilean poet’s mind-bending verse.`\
+https://nytimes.com/2024/04/18/magazine/pablo-neruda-love-poems.html
+
 **Trump’s Trial Enters Third Day With 7 Jurors Chosen**\
 `Jury selection in the trial of former President Donald Trump accelerated on Day 2. He is accused of falsifying business records to conceal hush money to a porn star.`\
 https://nytimes.com/2024/04/18/nyregion/trump-trial-third-day.html

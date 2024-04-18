@@ -1,3 +1,15 @@
+**18mideast-crisis**\
+`E.U. Will Impose New Sanctions on Iran for Attacking Israel`\
+https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news
+
+**The E.U. says it will impose new sanctions on Iran’s drone and missile programs.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/the-eu-says-it-will-impose-new-sanctions-on-irans-drone-and-missile-programs
+
+**The Poems That Taught Me How to Love**\
+`Lessons from the Chilean poet’s mind-bending verse.`\
+https://nytimes.com/2024/04/18/magazine/pablo-neruda-love-poems.html
+
 **Trump’s Trial Enters Third Day With 7 Jurors Chosen**\
 `Jury selection in the trial of former President Donald Trump accelerated on Day 2. He is accused of falsifying business records to conceal hush money to a porn star.`\
 https://nytimes.com/2024/04/18/nyregion/trump-trial-third-day.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/18/arts/television/jimmy-kimmel-trump-oscars.html
 **Google Fires 28 Employees Involved in Protest of Israeli Cloud Contract**\
 `The dismissals escalated longstanding tensions between company leaders and activist employees opposed to supplying technology to Israel’s government.`\
 https://nytimes.com/2024/04/18/technology/google-firing-israeli-cloud-contract.html
-
-**Word of the Day: erudition**\
-`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/04/18/learning/word-of-the-day-erudition.html
-
-**Modi’s Temple of Lies**\
-`India’s many problems can’t be solved by his radical Hindu nationalism.`\
-https://nytimes.com/2024/04/18/opinion/india-election-modi-religion.html
-
-**Thursday Briefing**\
-`Europe asks Israel for restraint on Iran.`\
-https://nytimes.com/2024/04/18/briefing/israel-iran-ukraine-missile-russia.html
 
