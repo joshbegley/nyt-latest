@@ -1,3 +1,7 @@
+**One Way to Run**\
+`David Kwong makes magic again.`\
+https://nytimes.com/2024/04/17/crosswords/daily-puzzle-2024-04-18.html
+
 **House Moves Toward Bundling TikTok Bill With Aid to Ukraine and Israel**\
 `A new measure attempts to force the Senate’s hand on passing legislation to ban TikTok or mandate the app’s sale.`\
 https://nytimes.com/2024/04/17/technology/tiktok-ban-ukraine-israel-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/us/politics/trump-fundraising-republicans.html
 **Vampire Weekend’s New Album Goes Underground and All Over**\
 `Digging into “Only God Was Above Us,” an LP that’s both catchy and complex.`\
 https://nytimes.com/2024/04/17/arts/music/popcast-vampire-weekend.html
-
-**Guantánamo Bay Opens an Extra Courtroom**\
-`Planners added the national security courtroom for pretrial hearings and to prepare for the possibility of a Sept. 11 trial.`\
-https://nytimes.com/2024/04/17/us/politics/guantanamo-second-courtroom.html
 
