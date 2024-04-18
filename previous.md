@@ -1,3 +1,11 @@
+**Robert F. Kennedy Jr. brushes off his relatives endorsing Biden.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/04/18/us/trump-biden-election/robert-f-kennedy-jr-family-endorsement-biden
+
+**Jorie Graham’s Poetry of the Earth and Humanity, Set to Music**\
+`The composer Matthew Aucoin, Graham’s former student, and the director Peter Sellars have adapted her poems into the operatic “Music for New Bodies.”`\
+https://nytimes.com/2024/04/18/arts/music/music-for-new-bodies-aucoin-graham-sellars.html
+
 **What We Know About Why Two Trump Jurors Were Dismissed**\
 `One seated juror said she had developed concerns her identity could be revealed. The second was dismissed after prosecutors raised concerns about his credibility.`\
 https://nytimes.com/2024/04/18/nyregion/jurors-dismissed-trump-trial.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/18/opinion/donald-melania-trump-trial.html
 **Protests Intensify at Columbia, Forcing Difficult Choices for Leaders**\
 `A university with a proud history of protest told student demonstrators camping on the lawn that they had to leave. The students have vowed to stay, no matter the consequences.`\
 https://nytimes.com/2024/04/18/nyregion/columbia-university-protests-antisemitism.html
-
-**Why Electro’s Exacting Duo Justice Wanted to Break Its Own Rules**\
-`For “Hyperdrama,” Gaspard Augé and Xavier de Rosnay’s first album in eight years, the duo added genre experiments and guests to its arsenal of bangers.`\
-https://nytimes.com/2024/04/18/arts/music/justice-hyperdrama.html
-
-**Chinese Exports Are Threatening Biden’s Industrial Agenda**\
-`The president is increasingly hitting back with tariffs and other measures meant to restrict imports, raising tensions with Beijing.`\
-https://nytimes.com/2024/04/18/us/politics/china-exports-biden-industrial-agenda.html
 
