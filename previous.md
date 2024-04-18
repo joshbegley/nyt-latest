@@ -1,3 +1,11 @@
+**How Israel’s Conflicts Could Escalate**\
+`Israel’s military is dealing with clashes with Hezbollah in Lebanon and with Iran, as well as the continuing war in Gaza.`\
+https://nytimes.com/2024/04/18/world/middleeast/israel-war-gaza-iran-hezbollah.html
+
+**Prince Harry Now Officially Resident in U.S., Documents Show**\
+`For years, Harry and his wife, Meghan, have considered California home. This week, he updated his residency in a corporate filing.`\
+https://nytimes.com/2024/04/18/world/europe/prince-harry-us-residence.html
+
 **The Scent of a Struggling Campaign Is Emerging From Trump’s Courtroom**\
 `The trial is becoming his campaign trail.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-campaign-struggling
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/18/world/middleeast/qatar-ceasefire-talks-israel-ham
 **New U.S. sanctions target Iran’s drone manufacturers and steel industry.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/new-us-sanctions-target-irans-drone-manufacturers-and-steel-industry
-
-**Music Catalog Giant Hipgnosis Agrees to $1.4 Billion Sale to Concord**\
-`Hipgnosis, which owns the rights to songs by Justin Bieber and Neil Young, helped kick-start a rush on catalog sales. But its future has been in doubt.`\
-https://nytimes.com/2024/04/18/arts/music/hipgnosis-songs-fund-sell-concord.html
-
-**Millions of Girls in Africa Will Miss HPV Shots After Merck Production Problem**\
-`The company has told countries that it can supply only 18.8 million of the 29.6 million doses it was contracted to deliver this year.`\
-https://nytimes.com/2024/04/18/health/hpv-vaccine-africa-merck.html
 

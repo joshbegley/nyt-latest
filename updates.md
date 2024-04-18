@@ -1,3 +1,11 @@
+**How Israel’s Conflicts Could Escalate**\
+`Israel’s military is dealing with clashes with Hezbollah in Lebanon and with Iran, as well as the continuing war in Gaza.`\
+https://nytimes.com/2024/04/18/world/middleeast/israel-war-gaza-iran-hezbollah.html
+
+**Prince Harry Now Officially Resident in U.S., Documents Show**\
+`For years, Harry and his wife, Meghan, have considered California home. This week, he updated his residency in a corporate filing.`\
+https://nytimes.com/2024/04/18/world/europe/prince-harry-us-residence.html
+
 **The Scent of a Struggling Campaign Is Emerging From Trump’s Courtroom**\
 `The trial is becoming his campaign trail.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-campaign-struggling
