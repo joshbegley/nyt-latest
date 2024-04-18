@@ -1,3 +1,11 @@
+**Documenting a Pop Artist’s World With Google Pixel**\
+`Katia Temkin documents pop artist Amelia Moore’s world during festival season. With Pixel 8 Pro and Google AI-powered features, it just takes a few taps to bring her unique vision to life.`\
+https://nytimes.com/paidpost/google-pixel/documenting-a-pop-artists-world-with-google-pixel.html
+
+**Video captures the aftermath of a strike on a U.N. school in northern Gaza.**\
+`By Nader Ibrahim`\
+https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/video-captures-the-aftermath-of-a-strike-on-a-un-school-in-northern-gaza
+
 **Ashanti and Nelly Rekindled Their Y2K Romance With a Ring**\
 `More than two decades after they first met, the R&B singer announced her pregnancy and engagement to the rapper. Fans rejoiced.`\
 https://nytimes.com/2024/04/18/style/ashanti-nelly-baby-engaged.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/the-un-vote-
 **Kennedy Family Endorses Biden**\
 `At a campaign rally in Philadelphia, members of the Kennedy family endorsed President Biden, rejecting one of their own, Robert F. Kennedy Jr., an independent candidate.`\
 https://nytimes.com/video/us/politics/100000009421977/kennedy-biden-endorsement.html
-
-**Nicola Sturgeon’s Husband Is Charged in Party Finance Inquiry**\
-`Peter Murrell was charged in connection with embezzlement of funds from the Scottish National Party, which his wife once led and where he held a senior role.`\
-https://nytimes.com/2024/04/18/world/europe/nicola-sturgeon-husband-embezzlement-scotland.html
-
-**What to Watch This Weekend: ‘The Jinx’ Is Back**\
-`HBO’s “The Jinx — Part Two” offers six more episodes detailing the stranger-than-fiction saga of Robert Durst.`\
-https://nytimes.com/2024/04/18/arts/television/the-jinx.html
 

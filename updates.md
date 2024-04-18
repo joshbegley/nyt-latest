@@ -1,3 +1,11 @@
+**Documenting a Pop Artist’s World With Google Pixel**\
+`Katia Temkin documents pop artist Amelia Moore’s world during festival season. With Pixel 8 Pro and Google AI-powered features, it just takes a few taps to bring her unique vision to life.`\
+https://nytimes.com/paidpost/google-pixel/documenting-a-pop-artists-world-with-google-pixel.html
+
+**Video captures the aftermath of a strike on a U.N. school in northern Gaza.**\
+`By Nader Ibrahim`\
+https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/video-captures-the-aftermath-of-a-strike-on-a-un-school-in-northern-gaza
+
 **Ashanti and Nelly Rekindled Their Y2K Romance With a Ring**\
 `More than two decades after they first met, the R&B singer announced her pregnancy and engagement to the rapper. Fans rejoiced.`\
 https://nytimes.com/2024/04/18/style/ashanti-nelly-baby-engaged.html
