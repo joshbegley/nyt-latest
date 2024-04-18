@@ -1,40 +1,40 @@
-**The Wild, the Weird and the Controversial: the 2024 Venice Biennale**\
-`As visitors pour in, parallel art displays are cropping up around the city, including lesser-known de Kooning works and an installation that has incensed locals.`\
-https://nytimes.com/2024/04/18/arts/design/venice-biennale-2024.html
+**Drought Pushes Millions Into ‘Acute Hunger’ in Southern Africa**\
+`The disaster, intensified by El Niño, is devastating communities across several countries, killing crops and livestock and sending food prices soaring.`\
+https://nytimes.com/2024/04/18/climate/drought-southern-africa.html
 
-**The Artists Who Stopped What They’d Started**\
-`From Ralph Ellison to Harper Lee, those who made great work in one field — before their creative lives went in a different direction.`\
-https://nytimes.com/interactive/2024/04/18/t-magazine/ralph-ellison-harper-lee-beginning-end.html
+**Kennedy Clan to Endorse Biden, in a Show of Force Against R.F.K. Jr.**\
+`More than a dozen members of the storied political family will endorse the president in Philadelphia, rejecting one of their own as he worries Democrats with an independent bid.`\
+https://nytimes.com/2024/04/18/us/politics/biden-kennedys-rfk-jr.html
 
-**Behind Each of Mary Kubica’s Novels Is a Bevy of Feisty Felines**\
-`The author of nine suspense books also finds time to foster kittens from a Chicago-area shelter.`\
-https://nytimes.com/2024/04/18/books/review/shes-not-sorry-mary-kubica.html
+**‘No One Retires to California,’ They Thought. But Their Grandchildren Beckoned Them to the Bay Area.**\
+`After decades in Arizona, a couple relocated to the San Francisco Peninsula, where they hoped to find a single-level home with no stairs and plenty of room to host family.`\
+https://nytimes.com/interactive/2024/04/18/realestate/18hunt-weiss.html
 
-**A Nigerian Chess Master in Times Square**\
-`Tunde Onakoya is trying to break a record for the longest chess marathon. And he’s playing his games in the open air in Manhattan.`\
-https://nytimes.com/2024/04/18/nyregion/nigerian-chess-master-tunde-onakoya.html
+**Our Carbon-Hungry World Has Already Cost Us**\
+`Because we are still emitting — indeed, doing so at record rates — there is more warming to come.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/climate-change-cost-estimate
 
-**After 70 Years, Si Lewen’s Wrenching ‘Parade’ Marches On**\
-`This sequence of 63 bravura antiwar drawings hasn’t been shown in nearly seven decades but they’re up again now, thanks to Art Spiegelman.`\
-https://nytimes.com/2024/04/18/arts/design/si-lewen-parade-james-cohan.html
+**What’s the Greatest Gift Your Parents Have Given You?**\
+`A Times Opinion essay argues that giving joy to their children is the one thing parents can control in a challenging world. Do you agree?`\
+https://nytimes.com/2024/04/18/learning/whats-the-greatest-gift-your-parents-have-given-you.html
 
-**What Jon Bon Jovi Did After Losing His Voice**\
-`Seven artists on the challenges and joys of starting over, sometimes in a totally new field.`\
-https://nytimes.com/interactive/2024/04/18/t-magazine/humberto-leon-bon-jovi-beginnings-rebirth.html
+**The Youngest Voters and the Oldest President**\
+`A look at new polling that shows Joe Biden may be struggling with the Gen Z voters he needs to win.`\
+https://nytimes.com/2024/04/18/podcasts/youngest-voters-oldest-president.html
 
-**They Graduated Into Gaza’s War. What Happened to Them?**\
-`A class of freshly minted dentistry graduates in Gaza had big plans. Now they are counting the dead and trying not to join them.`\
-https://nytimes.com/interactive/2024/04/18/world/middleeast/gaza-university-class.html
+**The Latest Impeachment Is History, but the Political Repercussions Will Live On**\
+`Republicans say the quick dismissal of charges against Alejandro Mayorkas sets a dangerous precedent. Democrats say the mistake would have been to treat the case seriously.`\
+https://nytimes.com/2024/04/18/us/politics/mayorkas-impeachment-precedent.html
 
-**Homes for Sale in Manhattan and Queens**\
-`This week’s properties are on the Upper West Side, in Gramercy Park and in Long Island City.`\
-https://nytimes.com/2024/04/18/realestate/housing-market-nyc.html
+**How Joe Biden Can Win Pennsylvania, His Rosebud**\
+`Biden needs to find a narrative for his candidacy, then work like hell to push it out. But it’s hard to argue people out of their feelings.`\
+https://nytimes.com/2024/04/18/opinion/joe-biden-pennsylvania.html
 
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are a four-bedroom in Mount Kisco, N.Y., and a five-bedroom in Glen Ridge, N.J.`\
-https://nytimes.com/2024/04/18/realestate/housing-market-near-nyc.html
+**Maggie Haberman on the Question of Fairness in the Trump Trial**\
+`In a historic case against a polarizing former president, jury selection in Donald J. Trump’s Manhattan criminal trial has so far focused on whether anyone can judge him fairly.`\
+https://nytimes.com/video/us/politics/100000009418800/donald-trump-stormy-daniels-trial-fairness.html
 
-**36 Hours in Munich**\
-`Shedding its conservative reputation, the Bavarian capital is finding unusual ways to balance tradition and innovation.`\
-https://nytimes.com/interactive/2024/04/18/travel/things-to-do-munich.html
+**What Happens if a Powerful Surveillance Law Expires This Week?**\
+`Senators are under pressure to reject amendments to a House-passed bill so it can become law before a statute expires Friday night. But the program would continue after any such lapse — with some caveats.`\
+https://nytimes.com/2024/04/18/us/politics/fisa-surveillance-warrantless-deadline-senate.html
 
