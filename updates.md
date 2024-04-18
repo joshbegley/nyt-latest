@@ -1,3 +1,7 @@
+**Columbia Sends In the N.Y.P.D. to Arrest Protesters in Tent City**\
+`The university president broke with a decades-long tradition and called in the police to quell the pro-Palestinian protest. The encampment was then dismantled.`\
+https://nytimes.com/2024/04/18/nyregion/columbia-university-tent-city-palestinian-protest.html
+
 **The Courage to Follow the Evidence on Transgender Care**\
 `Dr. Hilary Cass’s thoughtful medical review is a model for how we should address difficult issues.`\
 https://nytimes.com/2024/04/18/opinion/transgender-care-cass-report.html
