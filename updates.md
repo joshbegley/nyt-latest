@@ -1,3 +1,15 @@
+**U.S. officials express ‘concerns’ to Israeli officials about any major assault on Rafah.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/us-israel-rafah-offensive
+
+**Ex-St. Louis Police Officer Beaten by Then-Colleagues Is Awarded $23 Million**\
+`Luther Hall won the judgment against a former colleague in connection with a beating that took place during a 2017 protest where he was undercover.`\
+https://nytimes.com/2024/04/18/us/st-louis-officer-beating-settlement.html
+
+**What Got Your Attention in the News Recently?**\
+`All summer long we’ll be asking a similar question for our Summer Reading Contest. Practice here by posting a comment or a short video about a story that has interested you lately.`\
+https://nytimes.com/2024/04/18/learning/what-got-your-attention-in-the-news-recently.html
+
 **Lawyers Use Social Media Posts to Strike Prospective Trump Jurors**\
 `“Oops, that sounds bad”: One prospective juror read aloud one of her old posts and apologized.`\
 https://nytimes.com/2024/04/18/nyregion/trump-jurors-social-media.html
