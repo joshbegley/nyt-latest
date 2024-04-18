@@ -1,3 +1,11 @@
+**Kennedy Family Endorses Biden**\
+`At a campaign rally in Philadelphia, members of the Kennedy family endorsed President Biden, rejecting one of their own, Robert F. Kennedy Jr., an independent candidate.`\
+https://nytimes.com/video/us/politics/100000009421977/kennedy-biden-endorsement.html
+
+**Nicola Sturgeon’s Husband Is Charged in Party Finance Inquiry**\
+`Peter Murrell was charged in connection with embezzlement of funds from the Scottish National Party, which his wife once led and where he held a senior role.`\
+https://nytimes.com/2024/04/18/world/europe/nicola-sturgeon-husband-embezzlement-scotland.html
+
 **What to Watch This Weekend: ‘The Jinx’ Is Back**\
 `HBO’s “The Jinx — Part Two” offers six more episodes detailing the stranger-than-fiction saga of Robert Durst.`\
 https://nytimes.com/2024/04/18/arts/television/the-jinx.html
