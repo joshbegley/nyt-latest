@@ -1,3 +1,7 @@
+**Widespread 911 Outages Are Reported in Four States**\
+`Residents in parts of South Dakota, Nebraska, Texas and Nevada were unable to call the emergency number, officials said. Service was later restored in Las Vegas and South Dakota.`\
+https://nytimes.com/2024/04/17/us/911-outage-vegas-south-dakota-nebraska.html
+
 **Modi’s Temple of Lies**\
 `India’s many problems can’t be solved by his radical Hindu nationalism.`\
 https://nytimes.com/2024/04/18/opinion/india-election-modi-religion.html
