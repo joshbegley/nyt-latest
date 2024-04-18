@@ -1,3 +1,7 @@
+**Meet the 12 Manhattan Jurors Who Will Decide Donald J. Trump’s Fate**\
+`The cross section of New Yorkers emerged after three days of questioning. These are the citizens who will judge their former president.`\
+https://nytimes.com/2024/04/18/nyregion/trump-trial-jury-hush-money.html
+
 **What’s the Best Way to Treat I.B.S.?**\
 `A new study suggests that certain dietary changes may be more effective than medication.`\
 https://nytimes.com/2024/04/18/well/eat/ibs-symptoms-diet-treatments.html
