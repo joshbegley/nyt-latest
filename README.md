@@ -1,3 +1,7 @@
+**In ‘Franklin,’ Michael Douglas Uses His Charm to Bankroll America**\
+`A new Apple TV+ series dramatizes the years Benjamin Franklin spent in France, leveraging diplomacy and guile to secure his nascent country’s future.`\
+https://nytimes.com/2024/04/18/arts/television/franklin-michael-douglas.html
+
 **Congress Ramps Up the Pressure on TikTok**\
 `A legislative maneuver in the House may help an effort to force the divestment of the video platform by its Chinese owner, which would squeeze U.S. investors.`\
 https://nytimes.com/2024/04/18/business/dealbook/congress-tiktok-divest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/podcasts/tiktok-mayorkas-drought.html
 **W.H.O. Broadens Definition of Airborne Diseases**\
 `After a drawn-out global controversy over the coronavirus, the W.H.O. has updated its classification of how pathogens spread through the air.`\
 https://nytimes.com/2024/04/18/health/who-airborne-covid.html
-
-**Drought Pushes Millions Into ‘Acute Hunger’ in Southern Africa**\
-`The disaster, intensified by El Niño, is devastating communities across several countries, killing crops and livestock and sending food prices soaring.`\
-https://nytimes.com/2024/04/18/climate/drought-southern-africa.html
 
