@@ -1,3 +1,7 @@
+**Qatar Says It Is Reviewing Its Mediator Role as Israel-Hamas Talks Stall**\
+`U.S. and Israeli officials have urged the Gulf state to exert more pressure on the Palestinian armed group to reach a deal.`\
+https://nytimes.com/2024/04/18/world/middleeast/qatar-ceasefire-talks-israel-hamas.html
+
 **New U.S. sanctions target Iran’s drone manufacturers and steel industry.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/new-us-sanctions-target-irans-drone-manufacturers-and-steel-industry
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/us/disneyland-anaheim-redesign.html
 **18trump-trial**\
 `Live Updates: Juror Is Dismissed as Trump’s Trial Begins Third Day`\
 https://nytimes.com/live/2024/04/18/nyregion/trump-hush-money-trial
-
-**In ‘Franklin,’ Michael Douglas Uses His Charm to Bankroll America**\
-`A new Apple TV+ series dramatizes the years Benjamin Franklin spent in France, leveraging diplomacy and guile to secure his nascent country’s future.`\
-https://nytimes.com/2024/04/18/arts/television/franklin-michael-douglas.html
 
