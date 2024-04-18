@@ -1,3 +1,7 @@
+**An Uneasy Arab-Israeli Alliance**\
+`Many Arab leaders see Iran as a bigger problem than Israel, even if they don’t say so publicly.`\
+https://nytimes.com/2024/04/18/briefing/israel-iran-middle-east.html
+
 **The Opening Days of Trump’s First Criminal Trial**\
 `Here’s what has happened so far in the unprecedented proceedings against a former U.S. president.`\
 https://nytimes.com/2024/04/18/podcasts/the-daily/trump-trial.html
