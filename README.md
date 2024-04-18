@@ -1,3 +1,7 @@
+**Anaheim Approves Biggest Redesign of Disneyland in 30 Years**\
+`Disney plans to spend at least $1.9 billion to develop and reimagine the park over the next decade.`\
+https://nytimes.com/2024/04/18/us/disneyland-anaheim-redesign.html
+
 **18trump-trial**\
 `Live Updates: Trump’s Trial Enters Third Day With 7 Jurors Chosen`\
 https://nytimes.com/live/2024/04/18/nyregion/trump-hush-money-trial
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/briefing/israel-iran-middle-east.html
 **The Opening Days of Trump’s First Criminal Trial**\
 `Here’s what has happened so far in the unprecedented proceedings against a former U.S. president.`\
 https://nytimes.com/2024/04/18/podcasts/the-daily/trump-trial.html
-
-**The House Pushes for a TikTok ban, and Southern Africa Faces a Food Crisis**\
-`Plus, a brazen gold heist.`\
-https://nytimes.com/2024/04/18/podcasts/tiktok-mayorkas-drought.html
 
