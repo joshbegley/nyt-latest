@@ -1,3 +1,7 @@
+**Why Electro’s Exacting Duo Justice Wanted to Break Its Own Rules**\
+`For “Hyperdrama,” Gaspard Augé and Xavier de Rosnay’s first album in eight years, the duo added genre experiments and guests to its arsenal of bangers.`\
+https://nytimes.com/2024/04/18/arts/music/justice-hyperdrama.html
+
 **Chinese Exports Are Threatening Biden’s Industrial Agenda**\
 `The president is increasingly hitting back with tariffs and other measures meant to restrict imports, raising tensions with Beijing.`\
 https://nytimes.com/2024/04/18/us/politics/china-exports-biden-industrial-agenda.html
