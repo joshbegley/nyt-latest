@@ -1,3 +1,7 @@
+**Rosamund Pike Sways to Alt-Rock and Robert De Niro Takes in Some Jazz**\
+`This week, the musician Kim Gordon performed after a star-studded Dior runway show in Brooklyn. And, luminaries honored Tony Bennett during Jazz at Lincoln Center’s annual gala.`\
+https://nytimes.com/2024/04/18/style/kim-gordon-christian-dior-lincoln-center-gala.html
+
 **At Columbia, the Grown-Ups in the Room Take a Stand**\
 `Protesters seem unaware of the pain they are causing Jewish students.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/columbia-protests-gaza
