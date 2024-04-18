@@ -1,3 +1,7 @@
+**Anaheim Approves Biggest Redesign of Disneyland in 30 Years**\
+`Disney plans to spend at least $1.9 billion to develop and reimagine the park over the next decade.`\
+https://nytimes.com/2024/04/18/us/disneyland-anaheim-redesign.html
+
 **18trump-trial**\
 `Live Updates: Trump’s Trial Enters Third Day With 7 Jurors Chosen`\
 https://nytimes.com/live/2024/04/18/nyregion/trump-hush-money-trial
