@@ -1,3 +1,7 @@
+**TikTok Bill Is Bundled With Aid to Ukraine and Israel**\
+`A House measure unveiled Wednesday attempts to force the Senate’s hand on passing legislation to ban TikTok or mandate the app’s sale.`\
+https://nytimes.com/2024/04/17/technology/tiktok-ban-ukraine-israel-aid.html
+
 **Top Adviser to Mayor Adams Is Hit With a Second Harassment Lawsuit**\
 `The aide, Timothy Pearson, was accused of harassing and retaliating against a second police sergeant under his watch.`\
 https://nytimes.com/2024/04/17/nyregion/timothy-pearson-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/arts/music/popcast-vampire-weekend.html
 **Guantánamo Bay Opens an Extra Courtroom**\
 `Planners added the national security courtroom for pretrial hearings and to prepare for the possibility of a Sept. 11 trial.`\
 https://nytimes.com/2024/04/17/us/politics/guantanamo-second-courtroom.html
-
-**Barbara Joans, Anthropologist Who Studied Biker Culture, Dies at 89**\
-`In her 60s, she hit the open road on a hulking Harley-Davidson and found a new area of academic research: bikers, and in particular, women bikers.`\
-https://nytimes.com/2024/04/17/us/barbara-joans-dead.html
 
