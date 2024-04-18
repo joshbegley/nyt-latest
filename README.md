@@ -1,3 +1,11 @@
+**Colleges Warn Student Demonstrators: Enough**\
+`After years of tolerating unruly protests, some schools are starting to suspend and expel students, raising questions about where they should draw the line.`\
+https://nytimes.com/2024/04/18/us/politics/colleges-protests-israel-war.html
+
+**Fake Priest Who Targeted Churches Across U.S. Is Arrested, Sheriff Says**\
+`Law enforcement agencies had been on the lookout for a serial burglar who was posing as a priest and called himself Father Martin, the sheriff’s office in Riverside, Calif., said.`\
+https://nytimes.com/2024/04/18/us/fake-priest-arrested-california.html
+
 **Biden Seeking to Appeal to Key Constituencies With Targeted Policies**\
 `The president’s campaign has featured initiatives aimed at young people, union workers and environmentalists, but it is not clear that they will be sufficient to rekindle support in those groups.`\
 https://nytimes.com/2024/04/18/us/politics/biden-policies-key-voters.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/18/nyregion/columbia-university-protests/a-stat
 **‘Gun & Powder’ Review: Twin Vigilantes Stake Claim to the American West**\
 `The musical traces the story of Black twin sisters who pass as white, and exact their own form of justice for the crime of slavery, in 19th-century Texas.`\
 https://nytimes.com/2024/04/18/theater/gun-powder-review.html
-
-**Even Clarkenomics Can’t Solve Sexism in Sports**\
-`The outrage is refreshing.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/caitlin-clark-salary
-
-**18columbia**\
-`Live Updates: Police Arresting Pro-Palestinian Protesters at Columbia`\
-https://nytimes.com/live/2024/04/18/nyregion/columbia-university-protests
 
