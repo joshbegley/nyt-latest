@@ -1,3 +1,7 @@
+**Columbia Sends In the N.Y.P.D. to Arrest Protesters in Tent City**\
+`The university president broke with a decades-long tradition and called in the police to quell the pro-Palestinian protest. The encampment was then dismantled.`\
+https://nytimes.com/2024/04/18/nyregion/columbia-university-tent-city-palestinian-protest.html
+
 **The Courage to Follow the Evidence on Transgender Care**\
 `Dr. Hilary Cass’s thoughtful medical review is a model for how we should address difficult issues.`\
 https://nytimes.com/2024/04/18/opinion/transgender-care-cass-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/us/att-cable-cut-sacramento-airport.html
 **U.S. officials express ‘concerns’ to Israeli officials about any major assault on Rafah.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/us-israel-rafah-offensive
-
-**Ex-St. Louis Police Officer Beaten by Then-Colleagues Is Awarded $23 Million**\
-`Luther Hall won the judgment against a former colleague in connection with a beating that took place during a 2017 protest where he was undercover.`\
-https://nytimes.com/2024/04/18/us/st-louis-officer-beating-settlement.html
 
