@@ -1,3 +1,7 @@
+**Surveillance Bill Clears Key Hurdle in Senate Ahead of Friday Expiration**\
+`Republicans and Democrats voted to advance a measure to extend a warrantless surveillance law, but skeptics in both parties were still pushing to make substantial changes before a final vote.`\
+https://nytimes.com/2024/04/18/us/politics/senate-fisa-surveillance-bill.html
+
 **Rep. Ilhan Omar’s Daughter Suspended for Involvement in Columbia Protest**\
 `Isra Hirsi, the Democratic congresswoman’s daughter, was part of a tent-encampment, organized to protest the war in Gaza, that has escalated tensions on campus.`\
 https://nytimes.com/2024/04/18/nyregion/ilhan-omar-daughter-columbia-suspended.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/18/nyregion/columbia-university-protests
 **Israeli forces appear to conclude a raid in central Gaza.**\
 `By Hiba Yazbek and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/israeli-forces-appear-to-conclude-a-raid-in-central-gaza
-
-**Biden Administration Announces Rule to Strengthen Protection of Public Lands**\
-`The measure elevates conservation in a number of ways, including by creating new leases for the restoration of degraded areas.`\
-https://nytimes.com/2024/04/18/climate/blm-public-lands-conservation.html
 
