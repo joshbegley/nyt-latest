@@ -1,3 +1,7 @@
+**Two Jurors Dislike Trump. One Will Judge Him.**\
+`It’s not easy deciding who can set aside personal feelings and act in fairness.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-jurors
+
 **Judge in Documents Case Rejects Dismissal Motions by Trump Co-Defendants**\
 `Judge Aileen M. Cannon denied requests by Walt Nauta and Carlos De Oliveira to have the charges against them dropped.`\
 https://nytimes.com/2024/04/18/us/politics/trump-documents-case-dismissal-co-defendants.html
