@@ -1,3 +1,7 @@
+**School Board Cancels Gay Actor’s Anti-Bullying Talk Over His ‘Lifestyle’**\
+`Maulik Pancholy was scheduled to give a talk on anti-bullying at a Pennsylvania school next month. School board members scrapped it, citing concerns about his activism and “lifestyle.”`\
+https://nytimes.com/2024/04/17/us/maulik-pancholy-pennsylvania-school.html
+
 **Review: ‘The Wiz’ Eases Back to Broadway**\
 `Almost 50 years after it debuted, this classic Black take on “The Wizard of Oz” tries to update its original formula.`\
 https://nytimes.com/2024/04/17/theater/the-wiz-review-broadway.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/homepage/dubai-airport-oman-flooding.html
 **Justice Dept. Nears Settlement Over F.B.I.’s Failure to Investigate Larry Nassar**\
 `The deal, which could be announced in coming weeks, would bring an end to one of the last major cases stemming from a horrific sports scandal.`\
 https://nytimes.com/2024/04/17/us/politics/larry-nassar-victims-fbi-doj-settlement.html
-
-**Trump Demands a Cut of Donations From Campaigns That Use His Name**\
-`The Trump campaign said that candidates using his brand should turn over at least 5 percent of donations and encouraged them to send more than the minimum.`\
-https://nytimes.com/2024/04/17/us/politics/trump-fundraising-republicans.html
 
