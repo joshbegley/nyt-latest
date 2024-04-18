@@ -10,7 +10,7 @@ https://nytimes.com/2024/04/18/business/mortgage-rates.html
 `As record heat enveloped the nation, the rate of emergency room visits increased compared with the previous five years, a sign of the major health risks of high temperatures.`\
 https://nytimes.com/2024/04/18/us/politics/extreme-heat-hospital-visits-climate.html
 
-**Frustration for a Judge as Trump Jury Selection Flounders Forward**\
+**Frustration for a Judge as Trump Jury Selection Stumbles Ahead**\
 `Two seated jurors were sent home, and Justice Juan M. Merchan warned against identifying people who might judge a former president who attacks the justice system regularly.`\
 https://nytimes.com/2024/04/18/nyregion/trump-trial-hush-money-manhattan.html
 

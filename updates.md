@@ -1,3 +1,7 @@
+**Frustration for a Judge as Trump Jury Selection Stumbles Ahead**\
+`Two seated jurors were sent home, and Justice Juan M. Merchan warned against identifying people who might judge a former president who attacks the justice system regularly.`\
+https://nytimes.com/2024/04/18/nyregion/trump-trial-hush-money-manhattan.html
+
 **U.S. Restarts Deportation Flights to Haiti**\
 `The Biden administration had paused deportations of Haitian migrants in recent months as their home country was wracked by violence.`\
 https://nytimes.com/2024/04/18/us/politics/us-restarts-deportation-flights-to-haiti.html
