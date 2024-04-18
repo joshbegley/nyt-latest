@@ -1,3 +1,11 @@
+**Quotation of the Day: ‘Not Just Some Wee Fragile Kickers’**\
+`Quotation of the Day for Thursday, April 18, 2024.`\
+https://nytimes.com/2024/04/18/pageoneplus/quotation-of-the-day-not-just-some-wee-fragile-kickers.html
+
+**Corrections: April 18, 2024**\
+`Corrections that appeared in print on Thursday, April 18, 2024.`\
+https://nytimes.com/2024/04/18/pageoneplus/corrections-april-18-2024.html
+
 **German Far-Right Leader Goes on Trial for Nazi Slogans**\
 `Björn Höcke, one of the most prominent far-right figures in Germany, has called the trial an attempt to suppress patriotism.`\
 https://nytimes.com/2024/04/18/world/europe/german-far-right-hocke-trial.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/17/technology/tiktok-ban-ukraine-israel-aid.html
 **Top Adviser to Mayor Adams Is Hit With a Second Harassment Lawsuit**\
 `The aide, Timothy Pearson, was accused of harassing and retaliating against a second police sergeant under his watch.`\
 https://nytimes.com/2024/04/17/nyregion/timothy-pearson-lawsuit.html
-
-**In Congress, Columbia’s Leaders Try to Please. At Home, They Face Anger.**\
-`For Columbia’s president, Nemat Shafik, a hearing on antisemitism went relatively well. But on campus, intense protests suggest a difficult road ahead for the university.`\
-https://nytimes.com/2024/04/17/nyregion/antisemitism-columbia-president-university-protest.html
-
-**A witness describes losing four nieces and nephews in an attack that killed several children playing in the street.**\
-`By Anushka Patil and Abu Bakr Bashir`\
-https://nytimes.com/live/2024/04/17/world/iran-israel-gaza-war-news/a-witness-describes-losing-four-nieces-and-nephews-in-an-attack-that-killed-several-children-playing-in-the-street
 
