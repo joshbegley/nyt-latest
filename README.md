@@ -1,3 +1,7 @@
+**U.S. Restarts Deportation Flights to Haiti**\
+`The Biden administration had paused deportations of Haitian migrants in recent months as their home country was wracked by violence.`\
+https://nytimes.com/2024/04/18/us/politics/us-restarts-deportation-flights-to-haiti.html
+
 **U.S. Mortgage Rates Jump Above 7% for the First Time This Year**\
 `Rates on 30-year mortgages — the most common kind among U.S. homeowners — surpassed the 7 percent mark on Thursday, a troublesome sign for an already tight housing market.`\
 https://nytimes.com/2024/04/18/business/mortgage-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/us/politics/biden-rfk-jr-kennedy-family.html
 **Ivy Getty Files for Divorce**\
 `After three years of marriage and a lavish wedding attended by Anya Taylor-Joy, Nancy Pelosi and Olivia Rodrigo, the oil heiress is seeking a divorce from her husband, Tobias Engel.`\
 https://nytimes.com/2024/04/18/style/ivy-getty-divorce-tobias-engel.html
-
-**No, John Mellencamp Did Not Promote Biden Onstage**\
-`Hecklers disrupted a concert in Ohio — and online critics pounced to say, falsely, that it started because the liberal singer had expressed support for the president.`\
-https://nytimes.com/2024/04/18/us/politics/john-mellencamp-biden.html
 
