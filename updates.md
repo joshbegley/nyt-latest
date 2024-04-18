@@ -1,3 +1,7 @@
+**Congress Ramps Up the Pressure on TikTok**\
+`A legislative maneuver in the House may help an effort to force the divestment of the video platform by its Chinese owner, which would squeeze U.S. investors.`\
+https://nytimes.com/2024/04/18/business/dealbook/congress-tiktok-divest.html
+
 **After Months of Cocaine Washing Ashore, Australian Police Make an Arrest**\
 `Drug parcels kept showing up on beaches along Australia’s shoreline. Now, the police say they found the man behind the botched shipment.`\
 https://nytimes.com/2024/04/18/world/australia/sydney-cocaine-beaches-arrest.html
