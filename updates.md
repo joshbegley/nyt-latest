@@ -1,3 +1,7 @@
+**Even Clarkenomics Can’t Solve Sexism in Sports**\
+`The outrage is refreshing.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/caitlin-clark-salary
+
 **Israeli forces appear to conclude a raid in central Gaza.**\
 `By Hiba Yazbek and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/israeli-forces-appear-to-conclude-a-raid-in-central-gaza

@@ -1,3 +1,7 @@
+**Even Clarkenomics Can’t Solve Sexism in Sports**\
+`The outrage is refreshing.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/caitlin-clark-salary
+
 **Israeli forces appear to conclude a raid in central Gaza.**\
 `By Hiba Yazbek and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/israeli-forces-appear-to-conclude-a-raid-in-central-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/arts/music/music-for-new-bodies-aucoin-graham-sel
 **What We Know About Why Two Trump Jurors Were Dismissed**\
 `One seated juror said she had developed concerns her identity could be revealed. The second was dismissed after prosecutors raised concerns about his credibility.`\
 https://nytimes.com/2024/04/18/nyregion/jurors-dismissed-trump-trial.html
-
-**Amsterdam’s Latest Effort to Fight Excessive Tourism: No New Hotels**\
-`The city wants no more than 20 million hotel stays annually. The measure is one of multiple efforts to control the flow of visitors.`\
-https://nytimes.com/2024/04/18/world/europe/amsterdam-tourism-hotel-stop.html
 
