@@ -1,3 +1,15 @@
+**‘Stress Positions’ Review: It’s Giving Pandemonium**\
+`The writer-director Theda Hammel’s biting, delirious quarantine comedy skewers white gay men in a world where fact, fiction and authentic experiences collide.`\
+https://nytimes.com/2024/04/18/movies/stress-positions-review.html
+
+**‘Blood for Dust’ Review: Dire Straits**\
+`This drug-run thriller, starring Scoot McNairy, traffics in grim ponderousness.`\
+https://nytimes.com/2024/04/18/movies/blood-for-dust-review.html
+
+**Emily Henry Is Proud to Be Called a Romance Writer**\
+`“I don’t want other people to miss out on the wisdom and joy this genre has to offer, the way I did for so long,” says the best-selling novelist. “Funny Story,” about a heartsore librarian and the new man in her life, is out next week.`\
+https://nytimes.com/2024/04/18/books/review/emily-henry-funny-story.html
+
 **An Uneasy Arab-Israeli Alliance**\
 `Many Arab leaders see Iran as a bigger problem than Israel, even if they don’t say so publicly.`\
 https://nytimes.com/2024/04/18/briefing/israel-iran-middle-east.html
