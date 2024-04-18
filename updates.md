@@ -1,3 +1,7 @@
+**Widespread 911 Outages Are Reported in Four States**\
+`Residents in parts of South Dakota, Nebraska, Texas and Nevada were unable to call the emergency number, officials said.`\
+https://nytimes.com/2024/04/17/us/911-outage-vegas-south-dakota-nebraska.html
+
 **Quotation of the Day: ‘Not Just Some Wee Fragile Kickers’**\
 `Quotation of the Day for Thursday, April 18, 2024.`\
 https://nytimes.com/2024/04/18/pageoneplus/quotation-of-the-day-not-just-some-wee-fragile-kickers.html

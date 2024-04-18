@@ -14,7 +14,7 @@ https://nytimes.com/2024/04/18/world/europe/german-far-right-hocke-trial.html
 `Avatars are addressing voters by name, in whichever of India’s many languages they speak. Experts see potential for misuse in a country already rife with disinformation.`\
 https://nytimes.com/2024/04/18/world/asia/india-election-ai.html
 
-**Widespread 911 Outages Are Reported in Four States and Las Vegas**\
+**Widespread 911 Outages Are Reported in Four States**\
 `Residents in parts of South Dakota, Nebraska, Texas and Nevada were unable to call the emergency number, officials said.`\
 https://nytimes.com/2024/04/17/us/911-outage-vegas-south-dakota-nebraska.html
 

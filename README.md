@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Europe asks Israel for restraint on Iran.`\
+https://nytimes.com/2024/04/18/briefing/israel-iran-ukraine-missile-russia.html
+
 **Quotation of the Day: ‘Not Just Some Wee Fragile Kickers’**\
 `Quotation of the Day for Thursday, April 18, 2024.`\
 https://nytimes.com/2024/04/18/pageoneplus/quotation-of-the-day-not-just-some-wee-fragile-kickers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/crosswords/daily-puzzle-2024-04-18.html
 **House Moves Toward Bundling TikTok Bill With Aid to Ukraine and Israel**\
 `A new measure attempts to force the Senate’s hand on passing legislation to ban TikTok or mandate the app’s sale.`\
 https://nytimes.com/2024/04/17/technology/tiktok-ban-ukraine-israel-aid.html
-
-**Top Adviser to Mayor Adams Is Hit With a Second Harassment Lawsuit**\
-`The aide, Timothy Pearson, was accused of harassing and retaliating against a second police sergeant under his watch.`\
-https://nytimes.com/2024/04/17/nyregion/timothy-pearson-lawsuit.html
 
