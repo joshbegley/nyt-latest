@@ -1,3 +1,7 @@
+**Google Fires 28 Employees Involved in Protest of Israeli Cloud Contract**\
+`The dismissals escalated longstanding tensions between company leaders and activist employees opposed to supplying technology to Israel’s government.`\
+https://nytimes.com/2024/04/18/technology/google-firing-israeli-cloud-contract.html
+
 **Word of the Day: erudition**\
 `This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/18/learning/word-of-the-day-erudition.html

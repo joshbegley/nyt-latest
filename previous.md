@@ -1,3 +1,7 @@
+**Google Fires 28 Employees Involved in Protest of Israeli Cloud Contract**\
+`The dismissals escalated longstanding tensions between company leaders and activist employees opposed to supplying technology to Israel’s government.`\
+https://nytimes.com/2024/04/18/technology/google-firing-israeli-cloud-contract.html
+
 **Word of the Day: erudition**\
 `This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/18/learning/word-of-the-day-erudition.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/17/us/911-outage-vegas-south-dakota-nebraska.html
 **School Board Cancels Gay Actor’s Anti-Bullying Talk Over His ‘Lifestyle’**\
 `Maulik Pancholy was scheduled to give a talk on anti-bullying at a Pennsylvania school next month. School board members scrapped it, citing concerns about his activism and “lifestyle.”`\
 https://nytimes.com/2024/04/17/us/maulik-pancholy-pennsylvania-school.html
-
-**Review: ‘The Wiz’ Eases Back to Broadway**\
-`Almost 50 years after it debuted, this classic Black take on “The Wizard of Oz” tries to update its original formula.`\
-https://nytimes.com/2024/04/17/theater/the-wiz-review-broadway.html
 
