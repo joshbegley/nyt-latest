@@ -1,3 +1,7 @@
+**Ivy Getty Files for Divorce**\
+`After three years of marriage and a lavish wedding attended by Anya Taylor-Joy, Nancy Pelosi and Olivia Rodrigo, the oil heiress is seeking a divorce from her husband, Tobias Engel.`\
+https://nytimes.com/2024/04/18/style/ivy-getty-divorce-tobias-engel.html
+
 **No, John Mellencamp Did Not Promote Biden Onstage**\
 `Hecklers disrupted a concert in Ohio — and online critics pounced to say, falsely, that it started because the liberal singer had expressed support for the president.`\
 https://nytimes.com/2024/04/18/us/politics/john-mellencamp-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/us/politics/colleges-protests-israel-war.html
 **Fake Priest Who Targeted Churches Across U.S. Is Arrested, Sheriff Says**\
 `Law enforcement agencies had been on the lookout for a serial burglar who was posing as a priest and called himself Father Martin, the sheriff’s office in Riverside, Calif., said.`\
 https://nytimes.com/2024/04/18/us/fake-priest-arrested-california.html
-
-**Biden Seeking to Appeal to Key Constituencies With Targeted Policies**\
-`The president’s campaign has featured initiatives aimed at young people, union workers and environmentalists, but it is not clear that they will be sufficient to rekindle support in those groups.`\
-https://nytimes.com/2024/04/18/us/politics/biden-policies-key-voters.html
 

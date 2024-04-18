@@ -1,3 +1,7 @@
+**Ivy Getty Files for Divorce**\
+`After three years of marriage and a lavish wedding attended by Anya Taylor-Joy, Nancy Pelosi and Olivia Rodrigo, the oil heiress is seeking a divorce from her husband, Tobias Engel.`\
+https://nytimes.com/2024/04/18/style/ivy-getty-divorce-tobias-engel.html
+
 **No, John Mellencamp Did Not Promote Biden Onstage**\
 `Hecklers disrupted a concert in Ohio — and online critics pounced to say, falsely, that it started because the liberal singer had expressed support for the president.`\
 https://nytimes.com/2024/04/18/us/politics/john-mellencamp-biden.html
