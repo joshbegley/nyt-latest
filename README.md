@@ -1,3 +1,7 @@
+**What’s the Best Way to Treat I.B.S.?**\
+`A new study suggests that certain dietary changes may be more effective than medication.`\
+https://nytimes.com/2024/04/18/well/eat/ibs-symptoms-diet-treatments.html
+
 **Republicans Wanted a Crackdown on Israel’s Critics. Columbia Obliged.**\
 `The latest campus antisemitism hearing was a travesty.`\
 https://nytimes.com/2024/04/18/opinion/columbia-antisemitism-hearing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/learning/what-got-your-attention-in-the-news-rece
 **Lawyers Use Social Media Posts to Strike Prospective Trump Jurors**\
 `“Oops, that sounds bad”: One prospective juror read aloud one of her old posts and apologized.`\
 https://nytimes.com/2024/04/18/nyregion/trump-jurors-social-media.html
-
-**‘We Have Our Jury’**\
-`After a rocky morning in which two jurors were dismissed, a full panel of 12 was seated. Opening statements could start Monday.`\
-https://nytimes.com/2024/04/18/us/politics/trump-trial-jury-newyork.html
 
