@@ -1,3 +1,11 @@
+**The conflict with protesters has been brewing for months. Here’s what led to the school’s decision.**\
+`By Stephanie Saul`\
+https://nytimes.com/live/2024/04/18/nyregion/columbia-university-protests/the-conflict-with-protesters-has-been-brewing-for-months-heres-what-led-to-the-schools-decision
+
+**Sony in Talks to Join a Bid to Buy Paramount**\
+`The company and Apollo Global Management are discussing a joint effort, even as Paramount conducts exclusive merger negotiations with Skydance.`\
+https://nytimes.com/2024/04/18/business/paramount-sony-apollo-bid.html
+
 **Major Delays at Sacramento Airport After AT&T Cable Is Slashed**\
 `The authorities said the cable had been cut intentionally, halting check-in services for at least two major airlines for several hours.`\
 https://nytimes.com/2024/04/18/us/att-cable-cut-sacramento-airport.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/18/arts/music/new-york-philharmonic-investigation.ht
 **Rosamund Pike Sways to Alt-Rock and Robert De Niro Takes in Some Jazz**\
 `This week, the musician Kim Gordon performed after a star-studded Dior runway show in Brooklyn. And, luminaries honored Tony Bennett during Jazz at Lincoln Center’s annual gala.`\
 https://nytimes.com/2024/04/18/style/kim-gordon-christian-dior-lincoln-center-gala.html
-
-**At Columbia, the Grown-Ups in the Room Take a Stand**\
-`Protesters seem unaware of the pain they are causing Jewish students.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/columbia-protests-gaza
-
-**U.S. Vetoes Palestinian Bid for Recognition as Full U.N. Member State**\
-`The move blocked a resolution to support a status that Palestinians had long sought at the United Nations, where it is considered a “nonmember observer state.”`\
-https://nytimes.com/2024/04/18/world/middleeast/palestinian-statehood-un-veto.html
 
