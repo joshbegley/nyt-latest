@@ -1,3 +1,15 @@
+**The Opening Days of Trump’s First Criminal Trial**\
+`Here’s what has happened so far in the unprecedented proceedings against a former U.S. president.`\
+https://nytimes.com/2024/04/18/podcasts/the-daily/trump-trial.html
+
+**The House Pushes for a TikTok ban, and Southern Africa Faces a Food Crisis**\
+`Plus, a brazen gold heist.`\
+https://nytimes.com/2024/04/18/podcasts/tiktok-mayorkas-drought.html
+
+**W.H.O. Broadens Definition of Airborne Diseases**\
+`After a drawn-out global controversy over the coronavirus, the W.H.O. has updated its classification of how pathogens spread through the air.`\
+https://nytimes.com/2024/04/18/health/who-airborne-covid.html
+
 **Drought Pushes Millions Into ‘Acute Hunger’ in Southern Africa**\
 `The disaster, intensified by El Niño, is devastating communities across several countries, killing crops and livestock and sending food prices soaring.`\
 https://nytimes.com/2024/04/18/climate/drought-southern-africa.html
