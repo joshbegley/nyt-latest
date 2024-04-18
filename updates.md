@@ -1,3 +1,7 @@
+**U.S. Mortgage Rates Jump Above 7% for the First Time This Year**\
+`Rates on 30-year mortgages — the most common kind among U.S. homeowners — surpassed the 7 percent mark on Thursday, a troublesome sign for an already tight housing market.`\
+https://nytimes.com/2024/04/18/business/mortgage-rates.html
+
 **Heat-Related E.R. Visits Rose in 2023, C.D.C. Study Finds**\
 `As record heat enveloped the nation, the rate of emergency room visits increased compared with the previous five years, a sign of the major health risks of high temperatures.`\
 https://nytimes.com/2024/04/18/us/politics/extreme-heat-hospital-visits-climate.html
