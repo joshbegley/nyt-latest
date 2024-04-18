@@ -1,3 +1,7 @@
+**Chinese Exports Are Threatening Biden’s Industrial Agenda**\
+`The president is increasingly hitting back with tariffs and other measures meant to restrict imports, raising tensions with Beijing.`\
+https://nytimes.com/2024/04/18/us/politics/china-exports-biden-industrial-agenda.html
+
 **How Israel’s Conflicts Could Escalate**\
 `Israel’s military is dealing with clashes with Hezbollah in Lebanon and with Iran, as well as the continuing war in Gaza.`\
 https://nytimes.com/2024/04/18/world/middleeast/israel-war-gaza-iran-hezbollah.html
