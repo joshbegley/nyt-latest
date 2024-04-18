@@ -1,3 +1,7 @@
+**9 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/04/18/books/review/new-books-recommendations.html
+
 **Friday Briefing: India’s Election Begins**\
 `Also, new Western sanctions on Iran, and China’s sinking cities.`\
 https://nytimes.com/2024/04/18/world/asia/india-elections-iran-sanctions-trump-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/learning/film-club-criminalizing-homelessness-won
 **Dinh Q. Le, Artist Who Weighed War and Memory, Dies at 56**\
 `His most famous work — collages of Vietnam War photographs, popular film stills and Western imagery — focused on a history of his homeland that he feared was being lost.`\
 https://nytimes.com/2024/04/18/arts/dinh-q-le-dead.html
-
-**The U.N. vote is part of a long-running effort to secure recognition for a Palestinian state.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/the-un-vote-is-part-of-a-long-running-effort-to-secure-recognition-for-a-palestinian-state
 

@@ -1,3 +1,7 @@
+**9 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/04/18/books/review/new-books-recommendations.html
+
 **Friday Briefing: India’s Election Begins**\
 `Also, new Western sanctions on Iran, and China’s sinking cities.`\
 https://nytimes.com/2024/04/18/world/asia/india-elections-iran-sanctions-trump-asia.html
