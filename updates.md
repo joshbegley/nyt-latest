@@ -1,4 +1,8 @@
 **TikTok Bill Is Bundled With Aid to Ukraine and Israel**\
+`A new House measure attempts to force the Senate’s hand on passing legislation to ban TikTok or mandate the app’s sale.`\
+https://nytimes.com/2024/04/17/technology/tiktok-ban-ukraine-israel-aid.html
+
+**TikTok Bill Is Bundled With Aid to Ukraine and Israel**\
 `A House measure unveiled Wednesday attempts to force the Senate’s hand on passing legislation to ban TikTok or mandate the app’s sale.`\
 https://nytimes.com/2024/04/17/technology/tiktok-ban-ukraine-israel-aid.html
 
