@@ -1,3 +1,15 @@
+**‘Stress Positions’ Review: It’s Giving Pandemonium**\
+`The writer-director Theda Hammel’s biting, delirious quarantine comedy skewers white gay men in a world where fact, fiction and authentic experiences collide.`\
+https://nytimes.com/2024/04/18/movies/stress-positions-review.html
+
+**‘Blood for Dust’ Review: Dire Straits**\
+`This drug-run thriller, starring Scoot McNairy, traffics in grim ponderousness.`\
+https://nytimes.com/2024/04/18/movies/blood-for-dust-review.html
+
+**Emily Henry Is Proud to Be Called a Romance Writer**\
+`“I don’t want other people to miss out on the wisdom and joy this genre has to offer, the way I did for so long,” says the best-selling novelist. “Funny Story,” about a heartsore librarian and the new man in her life, is out next week.`\
+https://nytimes.com/2024/04/18/books/review/emily-henry-funny-story.html
+
 **An Uneasy Arab-Israeli Alliance**\
 `Many Arab leaders see Iran as a bigger problem than Israel, even if they don’t say so publicly.`\
 https://nytimes.com/2024/04/18/briefing/israel-iran-middle-east.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/18/us/politics/biden-kennedys-rfk-jr.html
 **‘No One Retires to California,’ They Thought. But Their Grandchildren Beckoned Them to the Bay Area.**\
 `After decades in Arizona, a couple relocated to the San Francisco Peninsula, where they hoped to find a single-level home with no stairs and plenty of room to host family.`\
 https://nytimes.com/interactive/2024/04/18/realestate/18hunt-weiss.html
-
-**Our Carbon-Hungry World Has Already Cost Us**\
-`Because we are still emitting — indeed, doing so at record rates — there is more warming to come.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/climate-change-cost-estimate
-
-**What’s the Greatest Gift Your Parents Have Given You?**\
-`A Times Opinion essay argues that giving joy to their children is the one thing parents can control in a challenging world. Do you agree?`\
-https://nytimes.com/2024/04/18/learning/whats-the-greatest-gift-your-parents-have-given-you.html
-
-**The Youngest Voters and the Oldest President**\
-`A look at new polling that shows Joe Biden may be struggling with the Gen Z voters he needs to win.`\
-https://nytimes.com/2024/04/18/podcasts/youngest-voters-oldest-president.html
 
