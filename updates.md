@@ -1,3 +1,11 @@
+**Heat-Related E.R. Visits Rose in 2023, C.D.C. Study Finds**\
+`As record heat enveloped the nation, the rate of emergency room visits increased compared with the previous five years, a sign of the major health risks of high temperatures.`\
+https://nytimes.com/2024/04/18/us/politics/extreme-heat-hospital-visits-climate.html
+
+**Frustration for a Judge as Trump Jury Selection Flounders Forward**\
+`Two seated jurors were sent home, and Justice Juan M. Merchan warned against identifying people who might judge a former president who attacks the justice system regularly.`\
+https://nytimes.com/2024/04/18/nyregion/trump-trial-hush-money-manhattan.html
+
 **Biden, Eyeing Threat From R.F.K. Jr., Turns to His Famous Family for Help**\
 `The rollout of endorsements from the Kennedys signaled the urgency the Biden campaign feels toward Robert F. Kennedy Jr.’s independent bid, and its desire to discredit him.`\
 https://nytimes.com/2024/04/18/us/politics/biden-rfk-jr-kennedy-family.html

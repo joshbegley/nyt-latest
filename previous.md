@@ -1,3 +1,11 @@
+**Heat-Related E.R. Visits Rose in 2023, C.D.C. Study Finds**\
+`As record heat enveloped the nation, the rate of emergency room visits increased compared with the previous five years, a sign of the major health risks of high temperatures.`\
+https://nytimes.com/2024/04/18/us/politics/extreme-heat-hospital-visits-climate.html
+
+**Frustration for a Judge as Trump Jury Selection Flounders Forward**\
+`Two seated jurors were sent home, and Justice Juan M. Merchan warned against identifying people who might judge a former president who attacks the justice system regularly.`\
+https://nytimes.com/2024/04/18/nyregion/trump-trial-hush-money-manhattan.html
+
 **The Missing $1 Trillion**\
 `It’s still unclear how the world will pay for developing nations to fight climate change.`\
 https://nytimes.com/2024/04/18/climate/climate-change-imf-world-bank.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/18/us/politics/john-mellencamp-biden.html
 **What’s This Image Saying? Teens Weigh In.**\
 `Every week in our Picture Prompts, we post a mystery image and ask students what they think the message is. Here are their responses to three recent prompts.`\
 https://nytimes.com/2024/04/18/learning/whats-this-image-saying-teens-weigh-in.html
-
-**South Africa’s 2024 National Election: What to Know**\
-`The ruling African National Congress party could lose its parliamentary majority for the first time since the fall of apartheid 30 years ago.`\
-https://nytimes.com/2024/04/18/world/africa/south-africa-national-election.html
-
-**R.F.K. Jr. Received $2 Million From His Running Mate, Nicole Shanahan**\
-`The infusion of cash into his presidential campaign came a day after he announced Ms. Shanahan, a wealthy Silicon Valley lawyer, as his No. 2.`\
-https://nytimes.com/2024/04/18/us/politics/rfk-jr-fec-report.html
 
