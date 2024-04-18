@@ -1,3 +1,7 @@
+**Scotland Pauses Gender Medications for Minors**\
+`The change followed a sweeping review by England’s National Health Service that found “remarkably weak” evidence for youth gender treatments.`\
+https://nytimes.com/2024/04/18/health/scotland-pauses-hormones-puberty-blockers-transgender.html
+
 **Three Vegetarian Dinner Party Ideas for Every Effort Level**\
 `Keep it easy with an asparagus tart and blueberry crisp, or go all-out with tapas and tangerine flan.`\
 https://nytimes.com/2024/04/18/dining/three-vegetarian-dinner-party-ideas-for-every-effort-level.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/technology/bitcoin-halving-countdown.html
 **How a Crypto Compliance Officer Ended Up in a Nigerian Prison**\
 `Tigran Gambaryan, an American compliance official for the giant cryptocurrency exchange Binance, flew to Nigeria in February for a planned two-day business trip. He hasn’t returned.`\
 https://nytimes.com/2024/04/18/technology/binance-crypto-compliance-officer-nigerian-prison.html
-
-**Rethinking the Ethics of Tax Deductions**\
-`Responses to an essay that suggested that the affluent forgo some deductions. Also: Aid to Ukraine; gun safety on the set; plastics and pollutants.`\
-https://nytimes.com/2024/04/18/opinion/tax-deductions.html
 

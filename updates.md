@@ -1,3 +1,7 @@
+**Scotland Pauses Gender Medications for Minors**\
+`The change followed a sweeping review by England’s National Health Service that found “remarkably weak” evidence for youth gender treatments.`\
+https://nytimes.com/2024/04/18/health/scotland-pauses-hormones-puberty-blockers-transgender.html
+
 **Three Vegetarian Dinner Party Ideas for Every Effort Level**\
 `Keep it easy with an asparagus tart and blueberry crisp, or go all-out with tapas and tangerine flan.`\
 https://nytimes.com/2024/04/18/dining/three-vegetarian-dinner-party-ideas-for-every-effort-level.html
