@@ -1,3 +1,7 @@
+**Dickey Betts, Fiery Guitarist With Allman Brothers Band, Dies at 80**\
+`He traded licks with Duane Allman and proved to be a worthy sparring partner. He also wrote, and sang, the band’s biggest hit, “Ramblin’ Man.”`\
+https://nytimes.com/2024/04/18/arts/music/dickey-betts-dead.html
+
 **Robert F. Kennedy Jr. brushes off his relatives endorsing Biden.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/04/18/us/trump-biden-election/robert-f-kennedy-jr-family-endorsement-biden
