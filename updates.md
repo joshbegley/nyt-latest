@@ -1,3 +1,7 @@
+**Our 15th Annual Summer Reading Contest**\
+`Students are invited to tell us what they’re reading in The Times and why, this year in writing OR via a 90-second video. Contest dates: June 7 to Aug. 16.`\
+https://nytimes.com/2024/04/18/learning/our-15th-annual-summer-reading-contest.html
+
 **How to Use That Bag of Frozen Peas and Carrots**\
 `Ali Slagle’s new sheet-pan chicken recipe turns the freezer staple into a tangy, ranch-inflected one-dish dinner.`\
 https://nytimes.com/2024/04/18/dining/how-to-use-that-bag-of-frozen-peas-and-carrots.html

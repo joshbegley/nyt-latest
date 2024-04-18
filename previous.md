@@ -1,3 +1,7 @@
+**Our 15th Annual Summer Reading Contest**\
+`Students are invited to tell us what they’re reading in The Times and why, this year in writing OR via a 90-second video. Contest dates: June 7 to Aug. 16.`\
+https://nytimes.com/2024/04/18/learning/our-15th-annual-summer-reading-contest.html
+
 **How to Use That Bag of Frozen Peas and Carrots**\
 `Ali Slagle’s new sheet-pan chicken recipe turns the freezer staple into a tangy, ranch-inflected one-dish dinner.`\
 https://nytimes.com/2024/04/18/dining/how-to-use-that-bag-of-frozen-peas-and-carrots.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/health/hpv-vaccine-africa-merck.html
 **A Far-Right Party Emerges as a Possible Kingmaker in Croatia**\
 `The Homeland Movement came third in parliamentary elections, setting itself up as a possible partner for the ruling conservatives, who failed to achieve a majority.`\
 https://nytimes.com/2024/04/18/world/europe/croatia-election-far-right.html
-
-**Germany Arrests 2 in Spying and Sabotage Case Linked to Russia**\
-`The two men, dual citizens of both countries, were accused of being part of a plot to undermine aid to Ukraine by trying to blow up military infrastructure.`\
-https://nytimes.com/2024/04/18/world/europe/germany-russia-spying-arrests.html
 
