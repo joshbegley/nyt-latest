@@ -1,3 +1,7 @@
+**R.F.K. Jr. Received $2 Million From His Running Mate, Nicole Shanahan**\
+`The infusion of cash into his presidential campaign came a day after he announced Ms. Shanahan, a wealthy Silicon Valley lawyer, as his No. 2.`\
+https://nytimes.com/2024/04/18/us/politics/rfk-jr-fec-report.html
+
 **Video Captures Aftermath of Strike on U.N. School in Gaza**\
 `Hundreds of people were taking shelter inside inside a prep school in northern Gaza when it came under fire on Wednesday, according to the U.N. refugee agency, UNRWA.`\
 https://nytimes.com/video/world/middleeast/100000009421037/gaza-united-nations-school-airstrike.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/nyregion/ilhan-omar-daughter-columbia-suspended.h
 **Dubai’s Extraordinary Flooding: Here’s What to Know**\
 `Images of a saturated desert metropolis startled the world, prompting talk of cloud seeding, climate change and designing cities for intensified weather.`\
 https://nytimes.com/2024/04/18/climate/dubai-floods-what-we-know.html
-
-**China’s Cities Are Sinking Below Sea Level, Study Finds**\
-`Development and groundwater pumping are causing land subsidence and heightening the risks of sea level rise.`\
-https://nytimes.com/2024/04/18/climate/china-sinking-sea-level.html
 
