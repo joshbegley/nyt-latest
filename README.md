@@ -1,3 +1,7 @@
+**Major Delays at Sacramento Airport After AT&T Cable Is Slashed**\
+`The authorities said the cable had been cut intentionally, halting check-in services for at least two major airlines for several hours.`\
+https://nytimes.com/2024/04/18/us/att-cable-cut-sacramento-airport.html
+
 **U.S. officials express ‘concerns’ to Israeli officials about any major assault on Rafah.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/us-israel-rafah-offensive
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/16/opinion/thepoint/columbia-protests-gaza
 **U.S. Vetoes Palestinian Bid for Recognition as Full U.N. Member State**\
 `The move blocked a resolution to support a status that Palestinians had long sought at the United Nations, where it is considered a “nonmember observer state.”`\
 https://nytimes.com/2024/04/18/world/middleeast/palestinian-statehood-un-veto.html
-
-**Here’s How Johnson’s Jigsaw Puzzle of a Foreign Aid Plan Would Work**\
-`The speaker, facing resistance from fellow Republicans, has devised a strategy for steering aid to Ukraine and Israel through the House. The key vote will take place before any of it hits the floor.`\
-https://nytimes.com/2024/04/18/us/politics/house-israel-ukraine-aid-package-explainer.html
 
