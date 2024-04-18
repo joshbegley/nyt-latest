@@ -1,3 +1,23 @@
+**Video Captures Aftermath of Strike on U.N. School in Gaza**\
+`Hundreds of people were taking shelter inside inside a prep school in northern Gaza when it came under fire on Wednesday, according to the U.N. refugee agency, UNRWA.`\
+https://nytimes.com/video/world/middleeast/100000009421037/gaza-united-nations-school-airstrike.html
+
+**Robert F. Kennedy Jr. Will Be on the Ballot in Michigan**\
+`The Natural Law Party, which has ballot access in Michigan, nominated Mr. Kennedy. President Biden’s campaign is worried that he could tip the election to former President Donald J. Trump.`\
+https://nytimes.com/2024/04/18/us/politics/robert-f-kennedy-jr-ballot-michigan.html
+
+**U.S. says it will vote against a U.N. resolution recognizing Palestinian statehood.**\
+`By Anushka Patil and Farnaz Fassihi`\
+https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/us-says-it-will-vote-against-a-un-resolution-recognizing-palestinian-statehood
+
+**Colleges Warn Student Demonstrators: Enough**\
+`After years of tolerating unruly protests, some schools are starting to suspend and expel students, raising questions about where they should draw the line.`\
+https://nytimes.com/2024/04/18/us/politics/colleges-protests-israel-war.html
+
+**Fake Priest Who Targeted Churches Across U.S. Is Arrested, Sheriff Says**\
+`Law enforcement agencies had been on the lookout for a serial burglar who was posing as a priest and called himself Father Martin, the sheriff’s office in Riverside, Calif., said.`\
+https://nytimes.com/2024/04/18/us/fake-priest-arrested-california.html
+
 **Biden Seeking to Appeal to Key Constituencies With Targeted Policies**\
 `The president’s campaign has featured initiatives aimed at young people, union workers and environmentalists, but it is not clear that they will be sufficient to rekindle support in those groups.`\
 https://nytimes.com/2024/04/18/us/politics/biden-policies-key-voters.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/04/18/climate/dubai-floods-what-we-know.html
 **China’s Cities Are Sinking Below Sea Level, Study Finds**\
 `Development and groundwater pumping are causing land subsidence and heightening the risks of sea level rise.`\
 https://nytimes.com/2024/04/18/climate/china-sinking-sea-level.html
-
-**Micron Will Receive $6.1 Billion to Build Semiconductor Plants**\
-`The grant to the memory chipmaker is the latest federal award aimed at boosting U.S. chip manufacturing.`\
-https://nytimes.com/2024/04/18/technology/micron-semiconductor-award-chips-act.html
-
-**A statement from the president of Columbia University.**\
-`By Stephanie Saul`\
-https://nytimes.com/live/2024/04/18/nyregion/columbia-university-protests/a-statement-from-the-president-of-columbia-university
-
-**‘Gun & Powder’ Review: Twin Vigilantes Stake Claim to the American West**\
-`The musical traces the story of Black twin sisters who pass as white, and exact their own form of justice for the crime of slavery, in 19th-century Texas.`\
-https://nytimes.com/2024/04/18/theater/gun-powder-review.html
-
-**Even Clarkenomics Can’t Solve Sexism in Sports**\
-`The outrage is refreshing.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/caitlin-clark-salary
-
-**18columbia**\
-`Live Updates: Police Arresting Pro-Palestinian Protesters at Columbia`\
-https://nytimes.com/live/2024/04/18/nyregion/columbia-university-protests
 
