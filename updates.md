@@ -1,3 +1,7 @@
+**Biden, Eyeing Threat From R.F.K. Jr., Turns to His Famous Family for Help**\
+`The rollout of endorsements from the Kennedys signaled the urgency the Biden campaign feels toward Robert F. Kennedy Jr.’s independent bid, and its desire to discredit him.`\
+https://nytimes.com/2024/04/18/us/politics/biden-rfk-jr-kennedy-family.html
+
 **The Missing $1 Trillion**\
 `It’s still unclear how the world will pay for developing nations to fight climate change.`\
 https://nytimes.com/2024/04/18/climate/climate-change-imf-world-bank.html
