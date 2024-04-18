@@ -1,3 +1,11 @@
+**Kennedy Family Endorses Biden**\
+`At a campaign rally in Philadelphia, members of the Kennedy family endorsed President Biden, rejecting one of their own, Robert F. Kennedy Jr., an independent candidate.`\
+https://nytimes.com/video/us/politics/100000009421977/kennedy-biden-endorsement.html
+
+**Nicola Sturgeon’s Husband Is Charged in Party Finance Inquiry**\
+`Peter Murrell was charged in connection with embezzlement of funds from the Scottish National Party, which his wife once led and where he held a senior role.`\
+https://nytimes.com/2024/04/18/world/europe/nicola-sturgeon-husband-embezzlement-scotland.html
+
 **What to Watch This Weekend: ‘The Jinx’ Is Back**\
 `HBO’s “The Jinx — Part Two” offers six more episodes detailing the stranger-than-fiction saga of Robert Durst.`\
 https://nytimes.com/2024/04/18/arts/television/the-jinx.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/18/us/politics/extreme-heat-hospital-visits-climate.
 **Frustration for a Judge as Trump Jury Selection Stumbles Ahead**\
 `Two seated jurors were sent home, and Justice Juan M. Merchan warned against identifying people who might judge a former president who attacks the justice system regularly.`\
 https://nytimes.com/2024/04/18/nyregion/trump-trial-hush-money-manhattan.html
-
-**The Missing $1 Trillion**\
-`It’s still unclear how the world will pay for developing nations to fight climate change.`\
-https://nytimes.com/2024/04/18/climate/climate-change-imf-world-bank.html
-
-**Trump Violated Gag Order Seven More Times, Prosecutors Say**\
-`Manhattan prosecutors again asked the judge in Donald J. Trump’s criminal case to hold him in contempt of court. The judge said he would consider the matter next week.`\
-https://nytimes.com/2024/04/18/nyregion/gag-order-trump-prosecution.html
 
