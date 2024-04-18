@@ -1,3 +1,7 @@
+**Qatar Says It Is Reviewing Its Mediator Role as Israel-Hamas Talks Stall**\
+`U.S. and Israeli officials have urged the Gulf state to exert more pressure on the Palestinian armed group to reach a deal.`\
+https://nytimes.com/2024/04/18/world/middleeast/qatar-ceasefire-talks-israel-hamas.html
+
 **New U.S. sanctions target Iran’s drone manufacturers and steel industry.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/new-us-sanctions-target-irans-drone-manufacturers-and-steel-industry
