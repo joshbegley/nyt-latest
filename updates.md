@@ -1,3 +1,11 @@
+**Germany Arrests 2 in Spying and Sabotage Case Linked to Russia**\
+`The two men, dual citizens of both countries, were accused of being part of a plot to undermine aid to Ukraine by trying to blow up military infrastructure.`\
+https://nytimes.com/2024/04/18/world/europe/germany-russia-spying-arrests.html
+
+**Biden returns to Pennsylvania, and Trump returns to court in New York.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/04/18/us/trump-biden-election/biden-campaign-pennsylvania-trump-court-new-york
+
 **18trump-trial**\
 `Live Updates: Juror Is Dismissed as Trump’s Trial Begins Third Day`\
 https://nytimes.com/live/2024/04/18/nyregion/trump-hush-money-trial
