@@ -1,3 +1,7 @@
+**Friday Briefing: India’s Election Begins**\
+`Also, new Western sanctions on Iran, and China’s sinking cities.`\
+https://nytimes.com/2024/04/18/world/asia/india-elections-iran-sanctions-trump-asia.html
+
 **Documenting a Pop Artist’s World With Google Pixel**\
 `Katia Temkin documents pop artist Amelia Moore’s world during festival season. With Pixel 8 Pro and Google AI-powered features, it just takes a few taps to bring her unique vision to life.`\
 https://nytimes.com/paidpost/google-pixel/documenting-a-pop-artists-world-with-google-pixel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/arts/dinh-q-le-dead.html
 **The U.N. vote is part of a long-running effort to secure recognition for a Palestinian state.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/04/18/world/iran-israel-gaza-war-news/the-un-vote-is-part-of-a-long-running-effort-to-secure-recognition-for-a-palestinian-state
-
-**Kennedy Family Endorses President Biden**\
-`At a campaign rally in Philadelphia, members of the Kennedy family endorsed President Biden, rejecting one of their own, Robert F. Kennedy Jr., an independent candidate.`\
-https://nytimes.com/video/us/politics/100000009421977/kennedy-biden-endorsement.html
 

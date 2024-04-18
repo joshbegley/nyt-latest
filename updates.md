@@ -1,3 +1,7 @@
+**Kennedy Family Endorses President Biden**\
+`At a campaign rally in Philadelphia, members of the Kennedy family endorsed President Biden, rejecting one of their own, Robert F. Kennedy Jr., an independent candidate.`\
+https://nytimes.com/video/us/politics/100000009421977/kennedy-biden-endorsement.html
+
 **Documenting a Pop Artist’s World With Google Pixel**\
 `Katia Temkin documents pop artist Amelia Moore’s world during festival season. With Pixel 8 Pro and Google AI-powered features, it just takes a few taps to bring her unique vision to life.`\
 https://nytimes.com/paidpost/google-pixel/documenting-a-pop-artists-world-with-google-pixel.html
