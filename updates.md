@@ -1,3 +1,7 @@
+**One Way to Run**\
+`David Kwong makes magic again.`\
+https://nytimes.com/2024/04/17/crosswords/daily-puzzle-2024-04-18.html
+
 **In Congress, Columbia’s Leaders Try to Please. At Home, They Face Anger.**\
 `For Columbia’s president, Nemat Shafik, a hearing on antisemitism went relatively well. But on campus, intense protests suggest a difficult road ahead for the university.`\
 https://nytimes.com/2024/04/17/nyregion/antisemitism-columbia-president-university-protest.html
