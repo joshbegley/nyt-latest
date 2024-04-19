@@ -1,7 +1,3 @@
-**On ‘The Tortured Poets Department,’ Taylor Swift Could Use an Editor**\
-`Over 16 songs (and a second LP), the pop superstar litigates her recent romances. But the themes, and familiar sonic backdrops, generate diminishing returns.`\
-https://nytimes.com/2024/04/19/arts/music/taylor-swift-album-tortured-poets-department-review.html
-
 **Where to Buy Plants Online**\
 `We tested several options to find the best.`\
 https://nytimes.com/interactive/2024/04/19/smarter-living/wirecutter/best-plants-online.html
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/us-israel-ir
 **Tesla Will Recall Cybertruck in Latest Setback**\
 `A federal auto safety agency said the accelerator pedal on the pickup truck, sales of which began in late 2023, could become stuck, increasing the risk of accidents.`\
 https://nytimes.com/2024/04/19/business/tesla-cybertruck-recall.html
+
+**19pol-swiper**\
+`Election Updates: Biden courts labor unions, with a speech to electrical workers planned today.`\
+https://nytimes.com/live/2024/04/19/us/biden-trump-election
 
