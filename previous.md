@@ -1,3 +1,7 @@
+**Mariinsky Dancers Barred From Youth Ballet Gala in New York**\
+`Two dancers from the Russian company were set to perform at a benefit for a prestigious competition for young dancers, but they were sidelined after protests by pro-Ukrainian activists.`\
+https://nytimes.com/2024/04/19/arts/dance/mariinsky-dancers-barred-youth-america-grand-prix.html
+
 **Prosecutors signal they will ask Trump about attacks on women if he testifies.**\
 `By Jonah E. Bromwich and Matthew Haag`\
 https://nytimes.com/live/2024/04/19/nyregion/trump-trial-hush-money/prosecutors-signal-they-will-ask-trump-about-attacks-on-women-if-he-testifies
@@ -34,8 +38,4 @@ https://nytimes.com/paidpost/paramount-and-national-parks-foundation/national-pa
 **Israel reportedly strikes an air defense site in Syria.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/israel-reportedly-strikes-an-air-defense-site-in-syria
-
-**7 Songs That Reference Tortured Poets**\
-`Taylor Swift said she channeled them; Patti Smith, Lana Del Rey, the Smiths and others cited them.`\
-https://nytimes.com/2024/04/19/arts/music/amplifier-newsletter-tortured-poets.html
 
