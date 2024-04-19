@@ -1,3 +1,15 @@
+**Review: Thomas Adès Meets the Profound Beauty of Schubert**\
+`The Danish String Quartet returned to Carnegie Hall with its Doppelgänger project, pairing Schubert’s String Quintet and a premiere by Adès.`\
+https://nytimes.com/2024/04/19/arts/music/danish-string-quartet-doppelganger-review.html
+
+**Beverly LaHaye, Soldier of the Christian Right, Dies at 94**\
+`A pastor’s wife, she formed Concerned Women for America to oppose the Equal Rights Amendment. Roland Reagan called her “one of the powerhouses on the political scene.”`\
+https://nytimes.com/2024/04/19/us/politics/beverly-lahaye-dead.html
+
+**Outside Court, Trump is the Center of Attention. Inside, He Has a Rival.**\
+`Fame creates its own gravity and Donald J. Trump is usually the center of it. But in his courtroom, Justice Juan M. Merchan also has pull.`\
+https://nytimes.com/2024/04/19/nyregion/trump-trial-courtroom.html
+
 **Chinese Export Surge Clouds U.S. Hopes of a Domestic Solar Boom**\
 `The decision by a Massachusetts solar company to abandon plans to build a $1.4 billion U.S. factory highlights the risks amid a flood of Chinese clean energy exports.`\
 https://nytimes.com/2024/04/19/business/chinese-export-surge-solar-boom.html

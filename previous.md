@@ -1,3 +1,11 @@
+**Review: Thomas Adès Meets the Profound Beauty of Schubert**\
+`The Danish String Quartet returned to Carnegie Hall with its Doppelgänger project, pairing Schubert’s String Quintet and a premiere by Adès.`\
+https://nytimes.com/2024/04/19/arts/music/danish-string-quartet-doppelganger-review.html
+
+**Beverly LaHaye, Soldier of the Christian Right, Dies at 94**\
+`A pastor’s wife, she formed Concerned Women for America to oppose the Equal Rights Amendment. Roland Reagan called her “one of the powerhouses on the political scene.”`\
+https://nytimes.com/2024/04/19/us/politics/beverly-lahaye-dead.html
+
 **Chinese Export Surge Clouds U.S. Hopes of a Domestic Solar Boom**\
 `The decision by a Massachusetts solar company to abandon plans to build a $1.4 billion U.S. factory highlights the risks amid a flood of Chinese clean energy exports.`\
 https://nytimes.com/2024/04/19/business/chinese-export-surge-solar-boom.html
@@ -14,9 +22,9 @@ https://nytimes.com/2024/04/19/us/politics/congress-vote-ukraine-bill-house.html
 `Out of the Champions League but on top of the Premier League, Manchester City shows that it takes more than trophies to make a villain.`\
 https://nytimes.com/2024/04/19/world/europe/premier-league-man-city.html
 
-**Outside the courtroom, Trump is the center of attention. Inside, he has a rival.**\
-`By Jonah E. Bromwich`\
-https://nytimes.com/2024/04/19/nyregion/outside-the-courtroom-trump-is-the-center-of-attention-inside-he-has-a-rival.html
+**Outside Court, Trump is the Center of Attention. Inside, He Has a Rival.**\
+`Fame creates its own gravity and Donald J. Trump is usually the center of it. But in his courtroom, Justice Juan M. Merchan also has pull.`\
+https://nytimes.com/2024/04/19/nyregion/trump-trial-courtroom.html
 
 **Shadow War Between Iran and Israel: A Timeline**\
 `A recent round of strikes has brought the conflict more clearly into the open and raised fears of a broader war.`\
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/04/19/realestate/st-francis-college-brookly
 **Bring on the Brisket**\
 `And the chicken with artichokes and lemon, the whole cauliflower roasted with pistachio pesto and the matzo ball soup.`\
 https://nytimes.com/2024/04/19/dining/bring-on-the-brisket.html
-
-**Mental Health and Substance Use Disorders Often Go Untreated for Parents on Medicaid**\
-`Among those with substance use disorders who have been referred to child welfare, less than half received medication or counseling.`\
-https://nytimes.com/2024/04/19/health/parent-drugs-mental-illness-treatment-medicaid.html
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include competing assassins, a mysterious hitchhiker, a stoic bricklayer and more.`\
-https://nytimes.com/2024/04/19/movies/five-action-movies-to-stream-now.html
 
