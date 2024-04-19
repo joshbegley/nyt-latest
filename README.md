@@ -1,3 +1,7 @@
+**What I Learned From an Act of Violence in Sydney That Hit Too Close to Home**\
+`Amid early tidbits of misinformation came lessons about dodging falsities and allowing facts to build a story.`\
+https://nytimes.com/2024/04/19/world/australia/sydney-stabbing-westfield-bondi.html
+
 **Word of the Day: mediocre**\
 `This word has appeared in 96 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/19/learning/word-of-the-day-mediocre.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/pageoneplus/corrections-april-19-2024.html
 **When the Cute Guy on Your Flight Turns Out to be Your Seatmate**\
 `Alex Zhou and Eddie Kay met on a plane heading to Los Angeles. After going their separate ways, the two reconnected on social media.`\
 https://nytimes.com/2024/04/19/style/alex-zhou-eddie-kay-wedding.html
-
-**Under Construction: A Remodeled House and Requited Love**\
-`Caroline Franklin, a teacher, and Kevin Wilkes, an architect, dated in high school, and then again 49 years later.`\
-https://nytimes.com/2024/04/19/style/caroline-franklin-kevin-wilkes-wedding.html
 
