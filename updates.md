@@ -1,3 +1,15 @@
+**Residents of Isfahan describe their fears of an escalated war.**\
+`By Leily Nikounazar and Gaya Gupta`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/residents-of-isfahan-describe-their-fears-of-an-escalated-war
+
+**This G.O.P. Senate Candidate Says He Grew Up on a Family Farm. Not Exactly.**\
+`David McCormick has often spoken about his modest upbringing on a farm in Pennsylvania. A close look at his past tells a different story.`\
+https://nytimes.com/2024/04/19/us/politics/dave-mccormick-farm-pennsylvania.html
+
+**Columbia, Free Speech and the Coddling of the American Right**\
+`If Columbia can’t protect free speech, what hope is there for America’s institutions?`\
+https://nytimes.com/2024/04/19/opinion/columbia-protests-israel-gaza-crackdown.html
+
 **Taylor Swift and Post Malone’s Regretful Duet, and 9 More New Songs**\
 `Hear tracks by Arooj Aftab, Cigarettes After Sex, Claire Rousay and others.`\
 https://nytimes.com/2024/04/19/arts/music/playlist-taylor-swift-arooj-aftab-claire-rousay.html

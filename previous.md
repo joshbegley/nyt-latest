@@ -1,3 +1,15 @@
+**Residents of Isfahan describe their fears of an escalated war.**\
+`By Leily Nikounazar and Gaya Gupta`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/residents-of-isfahan-describe-their-fears-of-an-escalated-war
+
+**This G.O.P. Senate Candidate Says He Grew Up on a Family Farm. Not Exactly.**\
+`David McCormick has often spoken about his modest upbringing on a farm in Pennsylvania. A close look at his past tells a different story.`\
+https://nytimes.com/2024/04/19/us/politics/dave-mccormick-farm-pennsylvania.html
+
+**Columbia, Free Speech and the Coddling of the American Right**\
+`If Columbia can’t protect free speech, what hope is there for America’s institutions?`\
+https://nytimes.com/2024/04/19/opinion/columbia-protests-israel-gaza-crackdown.html
+
 **Taylor Swift and Post Malone’s Regretful Duet, and 9 More New Songs**\
 `Hear tracks by Arooj Aftab, Cigarettes After Sex, Claire Rousay and others.`\
 https://nytimes.com/2024/04/19/arts/music/playlist-taylor-swift-arooj-aftab-claire-rousay.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/19/world/europe/ukraine-aid-congress.html
 **The Ingredient Your Chocolate Chip Cookies Are Missing**\
 `Rich piloncillo, used in place of brown sugar, adds unparalleled depth to baked goods and even savory dishes.`\
 https://nytimes.com/2024/04/19/dining/piloncillo-chocolate-chip-cookies.html
-
-**The Vatican Transforms a Prison Into a Gallery**\
-`For its offering at this year’s Venice Biennale, the Holy See chose an unusual venue: the Giudecca women’s prison.`\
-https://nytimes.com/2024/04/19/arts/design/vatican-pavilion-womens-prison.html
-
-**Behind the Scenes of the 2024 Venice Biennale**\
-`The Venice Biennale, a historic and influential exhibition, is underway this week, showcasing works from hundreds of artists in an attempt to track the direction of where art is going.`\
-https://nytimes.com/video/arts/100000009421307/on-the-ground-venice-biennale.html
-
-**The Big Number: $76,535**\
-`A look at why Caitlin Clark, the star women's basketball player, will be paid so little as a player for the Indiana Fever.`\
-https://nytimes.com/interactive/2024/04/19/business/caitlin-clark-salary.html
 
