@@ -1,3 +1,7 @@
+**Campus Turmoil: The Gaza Protests at Columbia**\
+`Readers discuss the arrests of demonstrators and the university president’s congressional testimony. Also: The Israel-Iran airstrikes; the Mayorkas impeachment.`\
+https://nytimes.com/2024/04/19/opinion/columbia-university-gaza-protests.html
+
 **A Photographer in Search of Forgotten Burial Sites**\
 `An African American burial ground project in South Carolina is just one subject in Caroline Gutman’s search for a history hiding in plain sight.`\
 https://nytimes.com/2024/04/19/insider/african-american-burial-ground-photos.html

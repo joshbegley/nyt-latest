@@ -1,3 +1,7 @@
+**Campus Turmoil: The Gaza Protests at Columbia**\
+`Readers discuss the arrests of demonstrators and the university president’s congressional testimony. Also: The Israel-Iran airstrikes; the Mayorkas impeachment.`\
+https://nytimes.com/2024/04/19/opinion/columbia-university-gaza-protests.html
+
 **A Photographer in Search of Forgotten Burial Sites**\
 `An African American burial ground project in South Carolina is just one subject in Caroline Gutman’s search for a history hiding in plain sight.`\
 https://nytimes.com/2024/04/19/insider/african-american-burial-ground-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/19/business/caitlin-clark-salary.html
 **Review: Thomas Adès Meets the Profound Beauty of Schubert**\
 `The Danish String Quartet returned to Carnegie Hall with its Doppelgänger project, pairing Schubert’s String Quintet and a premiere by Adès.`\
 https://nytimes.com/2024/04/19/arts/music/danish-string-quartet-doppelganger-review.html
-
-**Beverly LaHaye, Soldier of the Christian Right, Dies at 94**\
-`A pastor’s wife, she formed Concerned Women for America to oppose the Equal Rights Amendment. Ronald Reagan called her “one of the powerhouses on the political scene.”`\
-https://nytimes.com/2024/04/19/us/politics/beverly-lahaye-dead.html
 
