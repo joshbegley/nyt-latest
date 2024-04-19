@@ -1,3 +1,7 @@
+**Columbia, Free Speech and the Coddling of the American Right**\
+`If Columbia can’t protect free speech, what hope is there for America’s institutions?`\
+https://nytimes.com/2024/04/19/opinion/columbia-protests-israel-gaza-crackdown.html
+
 **Taylor Swift and Post Malone’s Regretful Duet, and 9 More New Songs**\
 `Hear tracks by Arooj Aftab, Cigarettes After Sex, Claire Rousay and others.`\
 https://nytimes.com/2024/04/19/arts/music/playlist-taylor-swift-arooj-aftab-claire-rousay.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/arts/design/vatican-pavilion-womens-prison.html
 **Behind the Scenes of the 2024 Venice Biennale**\
 `The Venice Biennale, a historic and influential exhibition, is underway this week, showcasing works from hundreds of artists in an attempt to track the direction of where art is going.`\
 https://nytimes.com/video/arts/100000009421307/on-the-ground-venice-biennale.html
-
-**The Big Number: $76,535**\
-`A look at why Caitlin Clark, the star women's basketball player, will be paid so little as a player for the Indiana Fever.`\
-https://nytimes.com/interactive/2024/04/19/business/caitlin-clark-salary.html
 
