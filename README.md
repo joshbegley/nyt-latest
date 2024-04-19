@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`Israel strikes Iran.`\
+https://nytimes.com/2024/04/19/briefing/israel-iran-strike-trump-jury.html
+
 **Taylor Swift’s ‘Tortured Poets’ Arrives With a Promotional Blitz**\
 `The pop superstar’s latest album was preceded by a satellite radio channel, a word game, a return to TikTok and an actual library. For her fans, more is always welcome.`\
 https://nytimes.com/2024/04/19/arts/music/taylor-swift-tortured-poets-department.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/style/modern-love-after-the-affair-the-reckoning.
 **In Unusual Vote, Democrats Rescue Measure to Allow Vote on Ukraine Bill**\
 `A resolution to pave the way for the foreign aid package was on track to die in committee amid Republican opposition when Democrats stepped in to save it.`\
 https://nytimes.com/2024/04/18/us/politics/democrats-vote-ukraine-bill.html
-
-**Apple Says It Was Ordered to Pull WhatsApp From China App Store**\
-`Apple said it removed WhatsApp and Threads in its China app offerings Friday on Beijing’s orders, amid technological tensions between the U.S. and China.`\
-https://nytimes.com/2024/04/18/technology/apple-whatsapp-china-app-store.html
 
