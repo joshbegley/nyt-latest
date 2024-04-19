@@ -1,3 +1,7 @@
+**Ukrainians Wait, Nervously, to See if U.S. Will Provide Critical Aid**\
+`From the battlefield to battered cities, soldiers and civilians are counting on Congress to approve $60 billion in military support. Without it, Ukrainian officials say, its prospects in the war are grim.`\
+https://nytimes.com/2024/04/19/world/europe/ukraine-aid-congress.html
+
 **The Ingredient Your Chocolate Chip Cookies Are Missing**\
 `Rich piloncillo, used in place of brown sugar, adds unparalleled depth to baked goods and even savory dishes.`\
 https://nytimes.com/2024/04/19/dining/piloncillo-chocolate-chip-cookies.html
@@ -19,7 +23,7 @@ https://nytimes.com/interactive/2024/04/19/business/caitlin-clark-salary.html
 https://nytimes.com/2024/04/19/arts/music/danish-string-quartet-doppelganger-review.html
 
 **Beverly LaHaye, Soldier of the Christian Right, Dies at 94**\
-`A pastor’s wife, she formed Concerned Women for America to oppose the Equal Rights Amendment. Roland Reagan called her “one of the powerhouses on the political scene.”`\
+`A pastor’s wife, she formed Concerned Women for America to oppose the Equal Rights Amendment. Ronald Reagan called her “one of the powerhouses on the political scene.”`\
 https://nytimes.com/2024/04/19/us/politics/beverly-lahaye-dead.html
 
 **Chinese Export Surge Clouds U.S. Hopes of a Domestic Solar Boom**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/business/china-exports.html
 **Ukraine Aid Bill Clears Critical Hurdle in the House as Democrats Supply the Votes**\
 `Democrats stepped in to support bringing the aid package to the floor, in a remarkable breach of custom on a key vote that paved the way for its passage.`\
 https://nytimes.com/2024/04/19/us/politics/congress-vote-ukraine-bill-house.html
-
-**Why Don’t More People Resent Manchester City?**\
-`Out of the Champions League but on top of the Premier League, Manchester City shows that it takes more than trophies to make a villain.`\
-https://nytimes.com/2024/04/19/world/europe/premier-league-man-city.html
 
