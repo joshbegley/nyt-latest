@@ -1,3 +1,7 @@
+**Outside the courtroom, Trump is the center of attention. Inside, he has a rival.**\
+`By Jonah E. Bromwich`\
+https://nytimes.com/2024/04/19/nyregion/outside-the-courtroom-trump-is-the-center-of-attention-inside-he-has-a-rival.html
+
 **Shadow War Between Iran and Israel: A Timeline**\
 `A recent round of strikes has brought the conflict more clearly into the open and raised fears of a broader war.`\
 https://nytimes.com/2024/04/19/world/middleeast/iran-israel-shadow-war-history.html
