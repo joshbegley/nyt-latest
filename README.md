@@ -1,3 +1,11 @@
+**As Press Reports Some Juror Details, Polarized Reactions Take Over**\
+`Journalists covering the trial face a tricky balancing act: inform the public while keeping its participants out of harm’s way.`\
+https://nytimes.com/2024/04/19/business/media/trump-trial-jurors-press-reports.html
+
+**Is the Violence Over Between Iran and Israel? It’s Never That Simple.**\
+`Hatred and political maneuvering will probably keep the tension high.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/iran-israel-violence
+
 **The Ex-Bernie Sanders Pollster Raising Alarms About R.F.K. Jr.’s Appeal Among Latinos and Young Voters**\
 `A Democrat warns that the independent could siphon crucial support from Biden.`\
 https://nytimes.com/2024/04/19/us/politics/rfk-jr-young-voters-latinos.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/19/style/suffs-broadway-hillary-clinton-malala-yousa
 **The 10 Best Things We Saw at Salone del Mobile**\
 `From an exhibition in a 1940s-era Modernist house to a blood-red sofa, the highlights of Milan’s annual design fair.`\
 https://nytimes.com/2024/04/19/t-magazine/salone-del-mobile-highlights.html
-
-**Good Luck Getting Your Hands on Buldak Carbonara Ramen**\
-`With its bright pink packaging and spicy contents, these Korean-made instant ramen packs are going viral online and flying off shelves.`\
-https://nytimes.com/2024/04/19/dining/buldak-carbonara-ramen-tiktok.html
-
-**Police Update After Man Sets Himself on Fire Outside Courthouse**\
-`A 37-year-old man set himself on fire in a park outside of Manhattan Criminal Courthouse where Donald Trump is on trial.`\
-https://nytimes.com/video/nyregion/100000009424122/man-fire-trump.html
 
