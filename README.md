@@ -1,3 +1,7 @@
+**Neo-Nazi Who Threatened Journalist With Death Is Sentenced to Prison**\
+`Nicholas Welker admitted posting the death threat, which was meant to to silence coverage of the extremist group he led, prosecutors said.`\
+https://nytimes.com/2024/04/19/nyregion/nicholas-welker-sentenced-journalist-death-threats.html
+
 **Harvard’s Taylor Swift Scholars Have Thoughts on ‘Tortured Poets’**\
 `The students taking Harvard University’s class on the singer are studying up. Their final papers are due at the end of the month.`\
 https://nytimes.com/2024/04/19/style/taylor-swift-harvard-class-tortured-poets.html
@@ -15,7 +19,7 @@ https://nytimes.com/2024/04/19/technology/manish-lachwani-headspin-fraud.html
 https://nytimes.com/2024/04/19/arts/dance/mariinsky-dancers-barred-youth-america-grand-prix.html
 
 **Prosecutors Want to Ask Trump About Attacks on Women**\
-`Prosecutors are seeking permission to cross-examine the former president should he take the stand about recent lawsuits he has lost, including a civil jury’s finding last year that he was liable for sexually abusing the writer E. Jean Carroll.`\
+`Prosecutors are seeking to cross-examine the former president, should he take the stand, about lawsuits he has lost, including a civil jury’s finding last year that he was liable for sexually abusing the writer E. Jean Carroll.`\
 https://nytimes.com/2024/04/19/nyregion/trump-trial-manhattan-sandoval-hearing.html
 
 **Like Moths to a Flame? We May Need a New Phrase.**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/16/opinion/thepoint/johnson-ukraine-aid-democra
 **The Best of Late Night This Week**\
 `This week, there was one topic top of mind for the hosts, and one topic only: the start of former President Trump’s criminal hush-money trial in Manhattan.`\
 https://nytimes.com/interactive/2024/04/19/arts/television/best-of-late-night-trump-trial.html
-
-**Scotland Made Big Climate Pledges. Now They’re ‘Out of Reach.’**\
-`Despite significant progress, Scotland was falling short on cutting vehicle emissions, switching to heat pumps and even restoring peatland, the government said.`\
-https://nytimes.com/2024/04/19/climate/scotland-climate-target-scrapped.html
 
