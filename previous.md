@@ -1,3 +1,7 @@
+**Isfahan Is Home to Iranian Weapon Facilities**\
+`Missiles are produced near the city, which also has nuclear research centers.`\
+https://nytimes.com/2024/04/19/world/middleeast/iran-isfahan-nuclear-missiles.html
+
 **8 Hits of the Venice Biennale**\
 `These highlights drew the big crowds in the early days, from a sonorous symphony made by fruit, to an underwater spectacle to a modern day Tintoretto.`\
 https://nytimes.com/2024/04/19/arts/design/8-hits-of-the-venice-biennale.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/crosswords/connections-companion.html
 **Aaron Rodgers Has More on His Mind Than Football. A Lot More.**\
 `The N.F.L. great was supposed to be the Jets’ savior. But since arriving in New York, he has spent more time voicing conspiracy theories than playing quarterback.`\
 https://nytimes.com/2024/04/19/nyregion/aaron-rodgers-jets-podcasts.html
-
-**Today’s Wordle Review**\
-`In case you need some puzzle help.`\
-https://nytimes.com/2024/04/19/crosswords/wordle-review.html
 
