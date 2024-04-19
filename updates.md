@@ -1,3 +1,7 @@
+**The U.S. defense secretary spoke with Israel’s top defense official on Thursday afternoon, the Pentagon says.**\
+`By Eric Schmitt`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/the-us-defense-secretary-spoke-with-israels-top-defense-official-on-thursday-afternoon-the-pentagon-says
+
 **19mideast-crisis**\
 `Live Updates: Iran State-Run Media Reports Explosions`\
 https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news
