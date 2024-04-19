@@ -1,3 +1,7 @@
+**The House Is Set to Approve Ukraine Aid This Weekend**\
+`Also, the Israeli military struck Iran. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/04/19/briefing/ukraine-israel-house-aid-taylor-swift-music.html
+
 **Hillary Clinton and Malala Yousafzai Toast Their New Broadway Show**\
 `Dozens of theater, film and media stars turned out for the opening of the new musical “Suffs” on Thursday night.`\
 https://nytimes.com/2024/04/19/style/suffs-broadway-hillary-clinton-malala-yousafzai.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/world/europe/g7-blinken-israel-iran-ukraine.html
 **Daniel C. Dennett, Widely Read and Fiercely Debated Philosopher, Dies at 82**\
 `Espousing his ideas in best sellers, he insisted that religion was an illusion, free will was a fantasy and evolution could only be explained by natural selection.`\
 https://nytimes.com/2024/04/19/books/daniel-dennett-dead.html
-
-**Israel Launched Missiles as Well as Drones at Iran, Officials Say**\
-`Though it was not immediately clear if the missiles struck targets inside Iran, their use would mean more sophisticated firepower was involved in the attack than first reported.`\
-https://nytimes.com/2024/04/19/world/middleeast/israel-iran-jets-missiles-strikes.html
 

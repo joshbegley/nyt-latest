@@ -1,3 +1,7 @@
+**The House Is Set to Approve Ukraine Aid This Weekend**\
+`Also, the Israeli military struck Iran. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/04/19/briefing/ukraine-israel-house-aid-taylor-swift-music.html
+
 **Hillary Clinton and Malala Yousafzai Toast Their New Broadway Show**\
 `Dozens of theater, film and media stars turned out for the opening of the new musical “Suffs” on Thursday night.`\
 https://nytimes.com/2024/04/19/style/suffs-broadway-hillary-clinton-malala-yousafzai.html
