@@ -1,3 +1,7 @@
+**The Supreme Court Takes Up Homelessness**\
+`Can cities make it illegal to live on the streets?`\
+https://nytimes.com/2024/04/19/podcasts/the-daily/supreme-court-homelessness.html
+
 **With a Fresh Look and Recipes, Manischewitz Courts a New Generation**\
 `The 136-year-old company’s products have been staples in American Jewish households for generations. After a major rebranding, the matzo ball soup comes with merch.`\
 https://nytimes.com/2024/04/19/business/manischewitz-passover-rebrand.html

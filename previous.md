@@ -1,3 +1,7 @@
+**The Supreme Court Takes Up Homelessness**\
+`Can cities make it illegal to live on the streets?`\
+https://nytimes.com/2024/04/19/podcasts/the-daily/supreme-court-homelessness.html
+
 **With a Fresh Look and Recipes, Manischewitz Courts a New Generation**\
 `The 136-year-old company’s products have been staples in American Jewish households for generations. After a major rebranding, the matzo ball soup comes with merch.`\
 https://nytimes.com/2024/04/19/business/manischewitz-passover-rebrand.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/movies/new-movies-this-week-critics.html
 **The Humble Item That’s Become a Restaurant Status Symbol**\
 `Why is every server wearing a chore coat?`\
 https://nytimes.com/2024/04/19/dining/restaurants-chore-coats.html
-
-**One Potential Key to Knicks’ Season: Friendship**\
-`Jalen Brunson, Josh Hart and Donte DiVincenzo have been buddies since college, a situation that those who study the workplace say can foster success.`\
-https://nytimes.com/2024/04/19/business/knick-brunson-hart-divincenzo-friends.html
 
