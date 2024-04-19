@@ -1,3 +1,15 @@
+**U.S. Military to Withdraw Troops From Niger**\
+`The status of a $110 million air base in the desert remains unclear as the West African country deepens its ties with Russia.`\
+https://nytimes.com/2024/04/19/us/politics/us-niger-military-withdrawal.html
+
+**Scientists Fault Federal Response to Bird Flu Outbreaks on Dairy Farms**\
+`Testing for H5N1 infection has been limited, and the outbreak was thought to be confined. But asymptomatic cows in North Carolina may have changed all that.`\
+https://nytimes.com/2024/04/19/health/bird-flu-usda-cattle.html
+
+**Saddling Up and Feeling Spry at Martha Graham**\
+`Under the banner “American Legacies,” the Martha Graham Dance Company dusted off a classic, “Rodeo,” premiered a companion piece and welcomed FKA twigs for a guest solo at City Center.`\
+https://nytimes.com/2024/04/19/arts/dance/martha-graham-100-years-season.html
+
 **Israel’s Strike on Iran: A Limited Attack but a Potentially Big Signal**\
 `Israel hit a strategic city with carefully measured force, but made the point that it could strike at a center of Iran’s nuclear program.`\
 https://nytimes.com/2024/04/19/us/politics/israel-iran-analysis.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/04/16/opinion/thepoint/iran-israel-violence
 **The Ex-Bernie Sanders Pollster Raising Alarms About R.F.K. Jr.’s Appeal Among Latinos and Young Voters**\
 `A Democrat warns that the independent could siphon crucial support from Biden.`\
 https://nytimes.com/2024/04/19/us/politics/rfk-jr-young-voters-latinos.html
-
-**Liberal Democrats Urge ‘No’ Vote on Israel Aid to Pressure Biden on Gaza**\
-`Progressives in the House who oppose unfettered military aid to Israel are pressing their colleagues to vote against the $26 billion bill, which is likely to pass, to send a message to President Biden.`\
-https://nytimes.com/2024/04/19/us/politics/democrats-israel-aid-gaza.html
-
-**William F. Pepper, 86, Dies; Claimed the Government Killed Dr. King**\
-`He represented James Earl Ray in his unsuccessful legal efforts to prove that the civil rights leader was the victim of a vast conspiracy.`\
-https://nytimes.com/2024/04/19/us/william-f-pepper-dead.html
-
-**Denny Walsh, Reporter Who Tussled With Mayors and Editors, Dies at 88**\
-`Mr. Walsh won a Pulitzer Prize for investigative reporting in 1969 and later joined The New York Times, which eventually fired him.`\
-https://nytimes.com/2024/04/19/business/media/denny-walsh-dead.html
 
