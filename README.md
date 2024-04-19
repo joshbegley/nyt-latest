@@ -1,3 +1,7 @@
+**Good Luck Getting Your Hands on Buldak Carbonara Ramen**\
+`With its bright pink packaging and spicy contents, these Korean-made instant ramen packs are going viral online and flying off shelves.`\
+https://nytimes.com/2024/04/19/dining/buldak-carbonara-ramen-tiktok.html
+
 **Police Update After Man Sets Himself on Fire Outside Courthouse**\
 `A 37-year-old man set himself on fire in a park outside of Manhattan Criminal Courthouse where Donald Trump is on trial.`\
 https://nytimes.com/video/nyregion/100000009424122/man-fire-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/nyregion/trump-trial-jurors-tweets-facebook.html
 **I’m Pregnant, and My Husband Says We Can’t Tell Anyone About the Donor Egg**\
 `The magazine’s Ethicist columnist on whether to honor a spouse’s seemingly irrational request about privacy and assisted reproduction.`\
 https://nytimes.com/2024/04/19/magazine/donor-egg-secrecy-ethics.html
-
-**Frederick Celani, Who Made a Career as a Con Man, Dies at 75**\
-`His frauds included a waterfront development in Buffalo, a civil rights law firm in California and a package delivery company in Springfield, Ill.`\
-https://nytimes.com/2024/04/19/nyregion/frederick-celani-dead.html
 
