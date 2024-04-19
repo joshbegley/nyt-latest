@@ -1,3 +1,11 @@
+**Final Members of Trump Jury Chosen as Trial Races Ahead**\
+`Just after the last selections of alternate jurors were made, a man set himself on fire outside the courthouse, horrifying onlookers. But the case was not delayed.`\
+https://nytimes.com/2024/04/19/nyregion/trump-jury-immolation.html
+
+**Rough Seas for Blinken and Co. as Israel, Iran and Ukraine Cloud G7 Meeting**\
+`Secretary of State Antony J. Blinken and his counterparts, who met on the Italian island of Capri, welcomed signs that tensions between Iran and Israel might not worsen.`\
+https://nytimes.com/2024/04/19/world/europe/g7-blinken-israel-iran-ukraine.html
+
 **Daniel C. Dennett, Widely Read and Fiercely Debated Philosopher, Dies at 82**\
 `Espousing his ideas in best sellers, he insisted that religion was an illusion, free will was a fantasy and evolution could only be explained by natural selection.`\
 https://nytimes.com/2024/04/19/books/daniel-dennett-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/19/style/taylor-swift-harvard-class-tortured-poets.h
 **Greece Announces New Plan to Protect Some of Its Pristine Beaches**\
 `The government has pledged to crack down on rapid development, and on seaside businesses seeking to take advantage of a tourist boom. But some residents and conservationists are unimpressed.`\
 https://nytimes.com/2024/04/19/world/europe/greece-beaches-tourists.html
-
-**Start-Up Founder Sentenced to 18 Months in Prison for Fraud**\
-`Manish Lachwani, who founded the software start-up HeadSpin, is the latest tech entrepreneur to face time in prison in recent years.`\
-https://nytimes.com/2024/04/19/technology/manish-lachwani-headspin-fraud.html
-
-**Mariinsky Dancers Barred From Youth Ballet Gala in New York**\
-`Two dancers from the Russian company were set to perform at a benefit for a prestigious competition for young dancers, but they were sidelined after protests by pro-Ukrainian activists.`\
-https://nytimes.com/2024/04/19/arts/dance/mariinsky-dancers-barred-youth-america-grand-prix.html
 
