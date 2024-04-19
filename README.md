@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Farnaz Fassihi, Ronen Bergman and Patrick Kingsley`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/here-are-the-latest-developments
+
 **Fearing for Ukraine if Trump Returns, Some in Europe Try Outreach Now**\
 `A gathering of officials from Lithuania and Ukraine and supporters of Donald J. Trump highlights growing efforts to get on the good side of the former U.S. president in case he is elected again.`\
 https://nytimes.com/2024/04/19/world/europe/trump-ukraine-eastern-europe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/business/knick-brunson-hart-divincenzo-friends.ht
 **Ken Loach: Championing the Strugglers and Stragglers**\
 `A retrospective of the director’s work at Film Forum shows how his movies have kept a focus on working-class solidarity.`\
 https://nytimes.com/2024/04/19/movies/ken-loach-movies.html
-
-**Can a Brewery Make Good Wine? These Beer Makers Say Yes.**\
-`In an effort to reach an increasingly diverse customer base, brewers are turning over some of their equipment to producing wine.`\
-https://nytimes.com/2024/04/19/dining/drinks/brewery-wine.html
 
