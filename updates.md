@@ -1,3 +1,7 @@
+**What We Know About Israel’s Strike in Iran**\
+`Israel struck Iran early Friday, according to officials from both countries, in what appeared to be its first military response to the Iranian attack on Israel last weekend.`\
+https://nytimes.com/2024/04/19/world/middleeast/israel-strikes-iran-why.html
+
 **Isfahan Is Home to Iranian Weapon Facilities**\
 `Missiles are produced near the city, which also has nuclear research centers.`\
 https://nytimes.com/2024/04/19/world/middleeast/iran-isfahan-nuclear-missiles.html
