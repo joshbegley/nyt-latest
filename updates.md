@@ -1,3 +1,7 @@
+**Harvard’s Taylor Swift Scholars Have Thoughts on ‘Tortured Poets’**\
+`The students taking Harvard University’s class on the singer are studying up. Their final papers are due at the end of the month.`\
+https://nytimes.com/2024/04/19/style/taylor-swift-harvard-class-tortured-poets.html
+
 **Greece Announces New Plan to Protect Some of Its Pristine Beaches**\
 `The government has pledged to crack down on rapid development, and on seaside businesses seeking to take advantage of a tourist boom. But some residents and conservationists are unimpressed.`\
 https://nytimes.com/2024/04/19/world/europe/greece-beaches-tourists.html

@@ -14,9 +14,9 @@ https://nytimes.com/2024/04/19/technology/manish-lachwani-headspin-fraud.html
 `Two dancers from the Russian company were set to perform at a benefit for a prestigious competition for young dancers, but they were sidelined after protests by pro-Ukrainian activists.`\
 https://nytimes.com/2024/04/19/arts/dance/mariinsky-dancers-barred-youth-america-grand-prix.html
 
-**Prosecutors signal they will ask Trump about attacks on women if he testifies.**\
-`By Jonah E. Bromwich and Matthew Haag`\
-https://nytimes.com/live/2024/04/19/nyregion/trump-trial-hush-money/prosecutors-signal-they-will-ask-trump-about-attacks-on-women-if-he-testifies
+**Prosecutors Want to Ask Trump About Attacks on Women**\
+`Prosecutors are seeking permission to cross-examine the former president should he take the stand about recent lawsuits he has lost, including a civil jury’s finding last year that he was liable for sexually abusing the writer E. Jean Carroll.`\
+https://nytimes.com/2024/04/19/nyregion/trump-trial-manhattan-sandoval-hearing.html
 
 **Like Moths to a Flame? We May Need a New Phrase.**\
 `Over time researchers have found fewer of the insects turning up in light traps, suggesting they may be less attracted to some kinds of light than they once were.`\

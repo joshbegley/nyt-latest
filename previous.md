@@ -1,3 +1,7 @@
+**Harvard’s Taylor Swift Scholars Have Thoughts on ‘Tortured Poets’**\
+`The students taking Harvard University’s class on the singer are studying up. Their final papers are due at the end of the month.`\
+https://nytimes.com/2024/04/19/style/taylor-swift-harvard-class-tortured-poets.html
+
 **Greece Announces New Plan to Protect Some of Its Pristine Beaches**\
 `The government has pledged to crack down on rapid development, and on seaside businesses seeking to take advantage of a tourist boom. But some residents and conservationists are unimpressed.`\
 https://nytimes.com/2024/04/19/world/europe/greece-beaches-tourists.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/19/arts/television/best-of-late-night-tr
 **Scotland Made Big Climate Pledges. Now They’re ‘Out of Reach.’**\
 `Despite significant progress, Scotland was falling short on cutting vehicle emissions, switching to heat pumps and even restoring peatland, the government said.`\
 https://nytimes.com/2024/04/19/climate/scotland-climate-target-scrapped.html
-
-**Lawmaker Accused of Forging Voters’ Names Resigns From Turning Point Action**\
-`Austin Smith, a Republican in the Arizona House, also withdrew from his re-election bid on Thursday as his candidate petitions drew scrutiny in a constituent’s court complaint.`\
-https://nytimes.com/2024/04/19/us/politics/austin-smith-resigns-turning-point-arizona.html
 
