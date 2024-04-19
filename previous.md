@@ -1,5 +1,9 @@
+**William F. Pepper, 86, Dies; Claimed the Government Killed Dr. King**\
+`He represented James Earl Ray in his unsuccessful legal efforts to prove that the civil rights leader was the victim of a vast conspiracy.`\
+https://nytimes.com/2024/04/19/us/william-f-pepper-dead.html
+
 **Denny Walsh, Reporter Who Tussled With Mayors and Editors, Dies at 88**\
-`Mr. Walsh won a Pulitzer Prize for investigative reporting in 1969 and later joined The New York Times. The newspaper eventually fired him.`\
+`Mr. Walsh won a Pulitzer Prize for investigative reporting in 1969 and later joined The New York Times, which eventually fired him.`\
 https://nytimes.com/2024/04/19/business/media/denny-walsh-dead.html
 
 **R.F.K. Jr. Raises New Uncertainty for Biden in Michigan**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/world/europe/russia-zelensky-navalny-poland-arres
 **F.A.A. Will Require More Rest for Air Traffic Controllers**\
 `The agency announced new rules to address the dangers of exhaustion for controllers, who often work grueling round-the-clock schedules.`\
 https://nytimes.com/2024/04/19/business/faa-air-traffic-controllers-close-calls.html
-
-**Final Members of Trump Jury Chosen as Trial Races Ahead**\
-`Just after the last selections of alternate jurors were made, a man set himself on fire outside the courthouse, horrifying onlookers. But the case was not delayed.`\
-https://nytimes.com/2024/04/19/nyregion/trump-jury-immolation.html
 
