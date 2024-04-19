@@ -1,3 +1,11 @@
+**Chinese Export Surge Clouds U.S. Hopes of a Domestic Solar Boom**\
+`The decision by a Massachusetts solar company to abandon plans to build a $1.4 billion U.S. factory highlights the risks amid a flood of Chinese clean energy exports.`\
+https://nytimes.com/2024/04/19/business/chinese-export-surge-solar-boom.html
+
+**What to Know About China’s Export Dominance**\
+`From cars to solar panels to furniture, China is using lavish bank lending and enormous investments in robotics to cement its global leadership in manufacturing.`\
+https://nytimes.com/2024/04/19/business/china-exports.html
+
 **Ukraine Aid Bill Clears Critical Hurdle in the House as Democrats Supply the Votes**\
 `Democrats stepped in to support bringing the aid package to the floor, in a remarkable breach of custom on a key vote that paved the way for its passage.`\
 https://nytimes.com/2024/04/19/us/politics/congress-vote-ukraine-bill-house.html
