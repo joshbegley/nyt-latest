@@ -1,3 +1,7 @@
+**Judge John Hodgman on the Strange First Date Choice**\
+`3 years later, a couple is still at odds about his move at the end of the night.`\
+https://nytimes.com/2024/04/19/magazine/first-date-bathroom.html
+
 **When It’s Time for an Aging Driver to Hit the Brakes**\
 `The “car key conversation” can be painful for families to navigate. Experts say there are ways to have it with empathy and care.`\
 https://nytimes.com/2024/04/19/well/family/seniors-driving.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/19/us/biden-trump-election/biden-trade-union-co
 **‘It’s Clearly Bleak’: Stocks Set for Longest Losing Streak in Months**\
 `A rally at the start of the year has given way to worries about economics and geopolitics on Wall Street.`\
 https://nytimes.com/2024/04/19/business/stock-bond-market.html
-
-**E.P.A. Will Make Polluters Pay to Clean Up Two ‘Forever Chemicals’**\
-`The step follows an extraordinary move that requires utilities to reduce the levels of carcinogenic PFAS compounds in drinking water to near-zero.`\
-https://nytimes.com/2024/04/19/climate/epa-pfas-superfund-cleanup.html
 
