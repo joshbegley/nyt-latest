@@ -1,3 +1,11 @@
+**19mideast-crisis**\
+`Live Updates: Iran State-Run Media Reports Explosions`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news
+
+**Blasts are reported near the Iranian city of Isfahan.**\
+`By Farnaz Fassihi and Patrick Kingsley`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/blasts-are-reported-near-the-iranian-city-of-isfahan
+
 **Variety: Acrostic**\
 `David Balton and Jane Stewart present a puzzle that plays out beautifully.`\
 https://nytimes.com/2024/04/18/crosswords/variety-acrostic.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/18/nyregion/trump-criminal-trial-takeaways.html
 **Two Jurors Dislike Trump. One Will Judge Him.**\
 `It’s not easy deciding who can set aside personal feelings and act in fairness.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-jurors
-
-**Judge in Documents Case Rejects Dismissal Motions by Trump Co-Defendants**\
-`Judge Aileen M. Cannon denied requests by Walt Nauta and Carlos De Oliveira to have the charges against them dropped.`\
-https://nytimes.com/2024/04/18/us/politics/trump-documents-case-dismissal-co-defendants.html
-
-**Columbia Sends In the N.Y.P.D. to Arrest Protesters in Tent City**\
-`The university president broke with a decades-long tradition and called in the police to quell the pro-Palestinian protest. The encampment was then dismantled.`\
-https://nytimes.com/2024/04/18/nyregion/columbia-university-tent-city-palestinian-protest.html
 
