@@ -1,40 +1,40 @@
+**Biden Shields Millions of Acres of Alaskan Wilderness From Drilling and Mining**\
+`The administration has blocked a proposed industrial road needed to mine copper in the middle of the state, and has banned oil drilling on 13 million acres in the North Slope.`\
+https://nytimes.com/2024/04/19/climate/biden-alaska-drilling-mining-nrpa.html
+
+**Spooks, Sleuths and the Nazi Origins of the War on Drugs**\
+`Three books describe the work of government investigators who want to uncover or bury the truth.`\
+https://nytimes.com/2024/04/19/books/review/four-shots-in-the-night-henry-hemming-tripped-norman-ohler-hell-put-to-shame-earl-swift.html
+
+**A Quite Contrary Alphabet Book Asks, How Did Our Gardens Grow?**\
+`Jamaica Kincaid and Kara Walker unearth botany’s buried history.`\
+https://nytimes.com/2024/04/19/books/review/jamaica-kincaid-kara-walker-encyclopedia-of-gardening-for-colored-children.html
+
+**A Stunning Visual Celebration of Black Rodeo**\
+`A new photo book reorients dusty notions of a classic American pastime.`\
+https://nytimes.com/2024/04/19/books/review/black-rodeo-culture-ivan-mcclellan.html
+
+**Forbidden to Watch Films as a Child, He Now Directs Somalia’s Top Shows**\
+`Abshir Rageh had to sneak out from home to see bootleg Indian films and “Rambo” at a makeshift cinema. Now, he’s creating dramas that draw millions of online views in a country inching toward stability.`\
+https://nytimes.com/2024/04/19/world/africa/somalia-director-abshir-rageh.html
+
+**The Maya Train Will Get You to All of Yucatán’s Best Spots. But Not Yet.**\
+`In December, the train began running on its first route through Mexico’s Yucatán Peninsula. On a five-day journey a few months later, the author encountered enthusiasm, and scheduling hiccups.`\
+https://nytimes.com/2024/04/19/travel/mexico-maya-train.html
+
+**Can You Build a House Out of Paper? Shigeru Ban Says Yes.**\
+`A new version of the Pritzker Prize-winning architect’s Paper Log House is on display at the Glass House in New Canaan, Conn.`\
+https://nytimes.com/2024/04/19/realestate/shigeru-ban-glass-house-connecticut.html
+
+**Lord Byron Was Hard to Pin Down. That’s What Made Him Great.**\
+`Two hundred years after his death, this Romantic poet is still worth reading.`\
+https://nytimes.com/2024/04/19/books/review/lord-byron-200-years-death.html
+
+**Biden Administration Releases Revised Title IX Rules**\
+`The new regulations extended legal protections to L.G.B.T.Q. students and rolled back several policies set under the Trump administration.`\
+https://nytimes.com/2024/04/19/us/politics/biden-title-ix-rules.html
+
 **What We Know About Israel’s Strike in Iran**\
 `Israel struck Iran early Friday, according to officials from both countries, in what appeared to be its first military response to the Iranian attack on Israel last weekend.`\
 https://nytimes.com/2024/04/19/world/middleeast/israel-strikes-iran-why.html
-
-**Isfahan Is Home to Iranian Weapon Facilities**\
-`Missiles are produced near the city, which also has nuclear research centers.`\
-https://nytimes.com/2024/04/19/world/middleeast/iran-isfahan-nuclear-missiles.html
-
-**8 Hits of the Venice Biennale**\
-`These highlights drew the big crowds in the early days, from a sonorous symphony made by fruit, to an underwater spectacle to a modern-day Tintoretto.`\
-https://nytimes.com/2024/04/19/arts/design/8-hits-of-the-venice-biennale.html
-
-**India Kicks Off 44 Days of Voting**\
-`More than 960 million Indians are eligible to vote as the world’s most populous country elects a new Parliament in this general election.`\
-https://nytimes.com/video/world/asia/100000009422795/india-election-modi-parliament.html
-
-**Trump’s Trial Reaches What Could Be Final Day of Jury Selection**\
-`Twelve jurors have already been chosen. Jury selection could wrap up on Friday as the lawyers seek to add five alternates — substitutes in case any of the first dozen must leave — to the panel.`\
-https://nytimes.com/2024/04/19/nyregion/trump-hush-money-trial-jury.html
-
-**A Deadly Dog Attack Upends an Elite Westchester Farm**\
-`At a farm tied to Blue Hill at Stone Barns, where a meal costs around $400, two dogs killed a poodle and seriously injured its owner. Now the dogs face a possible death sentence.`\
-https://nytimes.com/2024/04/19/nyregion/dog-attack-blue-hill-stone-barns.html
-
-**Fishing in a Stream**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2024/04/19/learning/fishing-in-a-stream.html
-
-**New York’s Newest Hockey Team Has Everything but a Name and Home Ice**\
-`The fledgling Professional Women’s Hockey League is booming — except in New York, where the team is in last place. But the players haven’t given up.`\
-https://nytimes.com/2024/04/19/nyregion/new-york-pro-womens-hockey-team.html
-
-**‘Rebel Moon — Part Two: The Scargiver’ Review: Of Stars and Wars**\
-`A delirious, pulpy mishmash of knockoffs, Zack Snyder’s film isn’t good, but it sure is something.`\
-https://nytimes.com/2024/04/19/movies/rebel-moon-part-two-the-scargiver-review.html
-
-**The Connections Companion No. 313**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/19/crosswords/connections-companion.html
 
