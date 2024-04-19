@@ -1,3 +1,7 @@
+**Israel’s Strike on Iran: A Limited Attack but a Potentially Big Signal**\
+`Israel hit a strategic city with carefully measured force, but made the point that it could strike at a center of Iran’s nuclear program.`\
+https://nytimes.com/2024/04/19/us/politics/israel-iran-analysis.html
+
 **Inside the Courtroom, Trump Is Trapped With His Past**\
 `He was forced to listen to much of the damage he has caused.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-trapped-courtroom

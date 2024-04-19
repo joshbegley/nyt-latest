@@ -1,3 +1,7 @@
+**Israel’s Strike on Iran: A Limited Attack but a Potentially Big Signal**\
+`Israel hit a strategic city with carefully measured force, but made the point that it could strike at a center of Iran’s nuclear program.`\
+https://nytimes.com/2024/04/19/us/politics/israel-iran-analysis.html
+
 **Inside the Courtroom, Trump Is Trapped With His Past**\
 `He was forced to listen to much of the damage he has caused.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-trapped-courtroom
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/us/william-f-pepper-dead.html
 **Denny Walsh, Reporter Who Tussled With Mayors and Editors, Dies at 88**\
 `Mr. Walsh won a Pulitzer Prize for investigative reporting in 1969 and later joined The New York Times, which eventually fired him.`\
 https://nytimes.com/2024/04/19/business/media/denny-walsh-dead.html
-
-**R.F.K. Jr. Raises New Uncertainty for Biden in Michigan**\
-`Mr. Kennedy’s success in landing on the battleground state’s ballot guarantees that he will shape the race this November. Both parties are racing to define him.`\
-https://nytimes.com/2024/04/19/us/politics/rfk-biden-trump-michigan.html
 
