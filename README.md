@@ -1,3 +1,7 @@
+**The Ex-Bernie Sanders Pollster Raising Alarms About R.F.K. Jr.’s Appeal Among Latinos and Young Voters**\
+`A Democrat warns that the independent could siphon crucial support from Biden.`\
+https://nytimes.com/2024/04/19/us/politics/rfk-jr-young-voters-latinos.html
+
 **Liberal Democrats Urge ‘No’ Vote on Israel Aid to Pressure Biden on Gaza**\
 `Progressives in the House who oppose unfettered military aid to Israel are pressing their colleagues to vote against the $26 billion bill, which is likely to pass, to send a message to President Biden.`\
 https://nytimes.com/2024/04/19/us/politics/democrats-israel-aid-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/dining/buldak-carbonara-ramen-tiktok.html
 **Police Update After Man Sets Himself on Fire Outside Courthouse**\
 `A 37-year-old man set himself on fire in a park outside of Manhattan Criminal Courthouse where Donald Trump is on trial.`\
 https://nytimes.com/video/nyregion/100000009424122/man-fire-trump.html
-
-**Arrests of Europeans for Aiding Russia Raise Fears of Kremlin’s Reach**\
-`A string of arrests, including two Poles accused of attacking a Navalny aide and a third for ties to a possible plot against Ukraine’s president, have amplified worries of Russian infiltration.`\
-https://nytimes.com/2024/04/19/world/europe/russia-zelensky-navalny-poland-arrests.html
 
