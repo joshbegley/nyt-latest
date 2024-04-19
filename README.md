@@ -1,3 +1,7 @@
+**Day 4 of Trump’s Criminal Trial: Five Takeaways**\
+`A full jury is seated, a horrifying incident shocks the court and opening statements are set to begin on Monday.`\
+https://nytimes.com/2024/04/19/nyregion/trump-trial-man-fire-takeaways.html
+
 **Where Jurors in Trump Hush-Money Trial Say They Get Their News**\
 `Prosecutors and defense lawyers tried to divine the political leanings of prospective jurors in the former president’s Manhattan criminal trial from their answers to questions about what media they consume.`\
 https://nytimes.com/2024/04/19/nyregion/trump-trial-jury-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/us/politics/rfk-biden-trump-michigan.html
 **The House Is Set to Approve Ukraine Aid This Weekend**\
 `Also, the Israeli military struck Iran. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/04/19/briefing/ukraine-israel-house-aid-taylor-swift-music.html
-
-**Hillary Clinton and Malala Yousafzai Toast Their New Broadway Show**\
-`Dozens of theater, film and media stars turned out on Thursday night for the opening of “Suffs,” a new musical about women’s suffrage.`\
-https://nytimes.com/2024/04/19/style/suffs-broadway-hillary-clinton-malala-yousafzai.html
 
