@@ -1,3 +1,11 @@
+**A Photographer in Search of Forgotten Burial Sites**\
+`An African American burial ground project in South Carolina is just one subject in Caroline Gutman’s search for a history hiding in plain sight.`\
+https://nytimes.com/2024/04/19/insider/african-american-burial-ground-photos.html
+
+**A Brief Guide to Who’s Who on Taylor Swift’s ‘Tortured Poets’**\
+`Ex-boyfriends may be alluded to. Travis Kelce, too, fans believe. And some actual poets.`\
+https://nytimes.com/2024/04/19/style/taylor-swift-lyrics-tortured-poets-department.html
+
 **Watch the Lyrid Meteor Shower Reach Its Peak**\
 `A nearly full moon could interfere with the shower during its peak. It is forecast to be active until near the end of the month.`\
 https://nytimes.com/2024/04/19/science/lyrid-meteor-shower-time-peak.html
