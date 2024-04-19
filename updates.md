@@ -1,3 +1,7 @@
+**What I Learned From an Act of Violence in Sydney That Hit Too Close to Home**\
+`Amid early tidbits of misinformation came lessons about dodging falsities and allowing facts to build a story.`\
+https://nytimes.com/2024/04/19/world/australia/sydney-stabbing-westfield-bondi.html
+
 **Word of the Day: mediocre**\
 `This word has appeared in 96 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/19/learning/word-of-the-day-mediocre.html
