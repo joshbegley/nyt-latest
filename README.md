@@ -1,3 +1,7 @@
+**Will Trump Go to Prison if He Is Convicted?**\
+`The former president faces dozens of felony charges stemming from hush-money payments to a porn star. He would undoubtedly appeal any conviction, and the presiding judge has leeway on sentencing.`\
+https://nytimes.com/2024/04/19/nyregion/what-happens-if-trump-is-convicted-hush-money-trial.html
+
 **Blinken says the U.S. has not been involved in ‘offensive operations’ in Iran.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/us-israel-iran-strikes-israel-blinken
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/your-money/tax-filing-refunds-2020.html
 **Some Older Women Need Extra Breast Scans. Why Won’t Medicare Pay?**\
 `Mammography can miss tumors in women with dense breasts, so their doctors often include ultrasound or M.R.I. scans. Patients often wind up paying the bill.`\
 https://nytimes.com/2024/04/19/health/dense-breast-mammograms-medicare.html
-
-**How a New Reparations Effort Changed an Expert’s Understanding of History**\
-`Don Tamaki was integral to getting redress for Japanese Americans. He says serving on a California task force transformed his view on racism in America.`\
-https://nytimes.com/2024/04/19/us/california-reparations-effort.html
 
