@@ -1,3 +1,11 @@
+**Neo-Nazi Who Threatened Journalist With Death Is Sentenced to Prison**\
+`Nicholas Welker admitted posting the death threat, which was meant to to silence coverage of the extremist group he led, prosecutors said.`\
+https://nytimes.com/2024/04/19/nyregion/nicholas-welker-sentenced-journalist-death-threats.html
+
+**Prosecutors Want to Ask Trump About Attacks on Women**\
+`Prosecutors are seeking to cross-examine the former president, should he take the stand, about lawsuits he has lost, including a civil jury’s finding last year that he was liable for sexually abusing the writer E. Jean Carroll.`\
+https://nytimes.com/2024/04/19/nyregion/trump-trial-manhattan-sandoval-hearing.html
+
 **Harvard’s Taylor Swift Scholars Have Thoughts on ‘Tortured Poets’**\
 `The students taking Harvard University’s class on the singer are studying up. Their final papers are due at the end of the month.`\
 https://nytimes.com/2024/04/19/style/taylor-swift-harvard-class-tortured-poets.html
