@@ -1,3 +1,11 @@
+**Scotland Made Big Climate Pledges. Now They’re ‘Out of Reach.’**\
+`Despite significant progress, Scotland was falling short on cutting vehicle emissions, switching to heat pumps and even restoring peatland, the government said.`\
+https://nytimes.com/2024/04/19/climate/scotland-climate-target-scrapped.html
+
+**Lawmaker Accused of Forging Voters’ Names Resigns From Turning Point Action**\
+`Austin Smith, a Republican in the Arizona House, also withdrew from his re-election bid on Thursday as his candidate petitions drew scrutiny in a constituent’s court complaint.`\
+https://nytimes.com/2024/04/19/us/politics/austin-smith-resigns-turning-point-arizona.html
+
 **The Big and Small of America’s National Parks**\
 `There are the parks you just can’t miss. And then there are the ones that open up a world
 without expectations. Both experiences will transform you`\
@@ -30,12 +38,4 @@ https://nytimes.com/2024/04/19/nyregion/menendez-bribery-trial-delay.html
 **Mandisa Hundley, ‘American Idol’ Singer and Grammy Winner, Dies at 47**\
 `She performed and produced music with Christian themes and won a Grammy Award in 2013.`\
 https://nytimes.com/2024/04/19/arts/music/mandisa-hundley-dead.html
-
-**Is the Internet the Enemy of Progress?**\
-`Revisiting Michael Crichton’s prophecy of cultural stagnation.`\
-https://nytimes.com/2024/04/19/opinion/internet-culture.html
-
-**Voice of America Will Get a New Director**\
-`Michael Abramowitz, a former Washington Post journalist who is currently the president of the nonprofit Freedom House, is expected to start in the role this summer.`\
-https://nytimes.com/2024/04/19/business/media/voice-of-america-director.html
 

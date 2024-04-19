@@ -1,3 +1,11 @@
+**Scotland Made Big Climate Pledges. Now They’re ‘Out of Reach.’**\
+`Despite significant progress, Scotland was falling short on cutting vehicle emissions, switching to heat pumps and even restoring peatland, the government said.`\
+https://nytimes.com/2024/04/19/climate/scotland-climate-target-scrapped.html
+
+**Lawmaker Accused of Forging Voters’ Names Resigns From Turning Point Action**\
+`Austin Smith, a Republican in the Arizona House, also withdrew from his re-election bid on Thursday as his candidate petitions drew scrutiny in a constituent’s court complaint.`\
+https://nytimes.com/2024/04/19/us/politics/austin-smith-resigns-turning-point-arizona.html
+
 **The Big and Small of America’s National Parks**\
 `There are the parks you just can’t miss. And then there are the ones that open up a world
 without expectations. Both experiences will transform you`\
