@@ -1,3 +1,7 @@
+**It was an intense day for some potential jurors as they answered personal questions.**\
+`By Maggie Haberman, Jesse McKinley and Wesley Parnell`\
+https://nytimes.com/live/2024/04/19/nyregion/trump-trial-hush-money/it-was-an-intense-day-for-some-potential-jurors-as-they-answered-personal-questions
+
 **To Fight ‘Shrinkflation,’ France Will Force Retailers to Warn Shoppers**\
 `Merchants will be required to put signs in front of all products that have been reduced in size without a corresponding price cut.`\
 https://nytimes.com/2024/04/19/business/france-economy-food-prices-shrinkflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/style/taylor-swift-lyrics-tortured-poets-departme
 **Watch the Lyrid Meteor Shower Reach Its Peak**\
 `A nearly full moon could interfere with the shower during its peak. It is forecast to be active until near the end of the month.`\
 https://nytimes.com/2024/04/19/science/lyrid-meteor-shower-time-peak.html
-
-**Ukrainians Wait, Nervously, to See if U.S. Will Provide Critical Aid**\
-`From the battlefield to battered cities, soldiers and civilians are counting on Congress to approve $60 billion in military support. Without it, Ukrainian officials say, its prospects in the war are grim.`\
-https://nytimes.com/2024/04/19/world/europe/ukraine-aid-congress.html
 
