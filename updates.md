@@ -1,3 +1,7 @@
+**Start-Up Founder Sentenced to 18 Months in Prison for Fraud**\
+`Manish Lachwani, who founded the software start-up HeadSpin, is the latest tech entrepreneur to face time in prison in recent years.`\
+https://nytimes.com/2024/04/19/technology/start-up-founder-sentenced-to-18-months-in-prison-for-fraud.html
+
 **Mariinsky Dancers Barred From Youth Ballet Gala in New York**\
 `Two dancers from the Russian company were set to perform at a benefit for a prestigious competition for young dancers, but they were sidelined after protests by pro-Ukrainian activists.`\
 https://nytimes.com/2024/04/19/arts/dance/mariinsky-dancers-barred-youth-america-grand-prix.html
