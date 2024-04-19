@@ -1,3 +1,11 @@
+**What We Know About Columbia University’s President, Nemat Shafik**\
+`Dr. Shafik, who also goes by Minouche, is facing criticism from multiple sides over how she is handling protests over the war in Gaza on her campus.`\
+https://nytimes.com/2024/04/19/nyregion/nemat-shafik-columbia-university-president.html
+
+**Man Sets Himself on Fire Near Courthouse Where Trump Is on Trial**\
+`Onlookers screamed as fire engulfed the young man, who had thrown pamphlets in the air before he set himself aflame. A police officer tried to extinguish the flames before the man was taken away in an ambulance.`\
+https://nytimes.com/2024/04/19/nyregion/man-on-fire-trump.html
+
 **Student Protesters at Columbia Remain Defiant**\
 `The encampment is gone, but some activists spent the night on the university lawn, with what seemed like light enforcement, at least for the moment.`\
 https://nytimes.com/2024/04/19/nyregion/columbia-campus-protest-gaza-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/19/nyregion/trump-trial-hush-money/it-was-an-in
 **To Fight ‘Shrinkflation,’ France Will Force Retailers to Warn Shoppers**\
 `Merchants will be required to put signs in front of all products that have been reduced in size without a corresponding price cut.`\
 https://nytimes.com/2024/04/19/business/france-economy-food-prices-shrinkflation.html
-
-**Residents of Isfahan describe their fears of an escalated war.**\
-`By Leily Nikounazar and Gaya Gupta`\
-https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/residents-of-isfahan-describe-their-fears-of-an-escalated-war
-
-**This G.O.P. Senate Candidate Says He Grew Up on a Family Farm. Not Exactly.**\
-`David McCormick has often spoken about his modest upbringing on a farm in Pennsylvania. A close look at his past tells a different story.`\
-https://nytimes.com/2024/04/19/us/politics/dave-mccormick-farm-pennsylvania.html
 
