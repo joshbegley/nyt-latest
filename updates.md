@@ -1,3 +1,7 @@
+**Liberal Democrats Urge ‘No’ Vote on Israel Aid to Pressure Biden on Gaza**\
+`Progressives in the House who oppose unfettered military aid to Israel are pressing their colleagues to vote against the $26 billion bill, which is likely to pass, to send a message to President Biden.`\
+https://nytimes.com/2024/04/19/us/politics/democrats-israel-aid-gaza.html
+
 **William F. Pepper, 86, Dies; Claimed the Government Killed Dr. King**\
 `He represented James Earl Ray in his unsuccessful legal efforts to prove that the civil rights leader was the victim of a vast conspiracy.`\
 https://nytimes.com/2024/04/19/us/william-f-pepper-dead.html
