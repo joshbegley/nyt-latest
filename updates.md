@@ -1,3 +1,7 @@
+**Xi Thinks China Can Slow Climate Change. What if He’s Right?**\
+`He wants China to win the race to provide climate solutions and assume the global leadership that would come with it.`\
+https://nytimes.com/2024/04/19/opinion/china-climate-xi-jinping.html
+
 **Friday Briefing**\
 `Israel strikes Iran.`\
 https://nytimes.com/2024/04/19/briefing/israel-iran-strike-trump-jury.html

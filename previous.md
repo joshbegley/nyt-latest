@@ -1,3 +1,7 @@
+**Xi Thinks China Can Slow Climate Change. What if He’s Right?**\
+`He wants China to win the race to provide climate solutions and assume the global leadership that would come with it.`\
+https://nytimes.com/2024/04/19/opinion/china-climate-xi-jinping.html
+
 **Friday Briefing**\
 `Israel strikes Iran.`\
 https://nytimes.com/2024/04/19/briefing/israel-iran-strike-trump-jury.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/style/francis-marley-ashlee-miller-wedding.html
 **After the Affair, the Reckoning**\
 `While I was with our new baby, my husband was with another woman.`\
 https://nytimes.com/2024/04/19/style/modern-love-after-the-affair-the-reckoning.html
-
-**In Unusual Vote, Democrats Rescue Measure to Allow Vote on Ukraine Bill**\
-`A resolution to pave the way for the foreign aid package was on track to die in committee amid Republican opposition when Democrats stepped in to save it.`\
-https://nytimes.com/2024/04/18/us/politics/democrats-vote-ukraine-bill.html
 
