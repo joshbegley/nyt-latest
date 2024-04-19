@@ -1,3 +1,7 @@
+**The Best of Late Night This Week**\
+`This week, there was one topic top of mind for the hosts, and one topic only: the start of former President Trump’s criminal hush-money trial in Manhattan.`\
+https://nytimes.com/interactive/2024/04/19/arts/television/best-of-late-night-trump-trial.html
+
 **Scotland Made Big Climate Pledges. Now They’re ‘Out of Reach.’**\
 `Despite significant progress, Scotland was falling short on cutting vehicle emissions, switching to heat pumps and even restoring peatland, the government said.`\
 https://nytimes.com/2024/04/19/climate/scotland-climate-target-scrapped.html
@@ -24,7 +28,7 @@ https://nytimes.com/2024/04/19/arts/music/amplifier-newsletter-tortured-poets.ht
 https://nytimes.com/2024/04/19/nyregion/nemat-shafik-columbia-university-president.html
 
 **Man Sets Himself on Fire Near Courthouse Where Trump Is on Trial**\
-`Onlookers screamed as fire engulfed the young man, who had thrown pamphlets in the air before he set himself aflame. A police officer tried to extinguish the flames before the man was taken away in an ambulance.`\
+`Onlookers screamed as fire engulfed the man, who had thrown pamphlets in the air before he set himself aflame. A police officer tried to extinguish the flames before the man was taken away in an ambulance.`\
 https://nytimes.com/2024/04/19/nyregion/man-on-fire-trump.html
 
 **Student Protesters at Columbia Remain Defiant**\
@@ -34,8 +38,4 @@ https://nytimes.com/2024/04/19/nyregion/columbia-campus-protest-gaza-war.html
 **Menendez Corruption Trial Delayed for One Week**\
 `The senator’s trial will start May 13, a week later than planned, to give defense lawyers more time to prepare.`\
 https://nytimes.com/2024/04/19/nyregion/menendez-bribery-trial-delay.html
-
-**Mandisa Hundley, ‘American Idol’ Singer and Grammy Winner, Dies at 47**\
-`She performed and produced music with Christian themes and won a Grammy Award in 2013.`\
-https://nytimes.com/2024/04/19/arts/music/mandisa-hundley-dead.html
 
