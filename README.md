@@ -1,5 +1,5 @@
 **19 Ways TikTok Changed America**\
-`Nineteen ways the app rewired our culture`\
+`Nineteen ways the app rewired our culture.`\
 https://nytimes.com/interactive/2024/04/18/business/media/tiktok-ban-american-culture.html
 
 **Review: In ‘Suffs,’ the Thrill of the Vote and How She Got It**\
