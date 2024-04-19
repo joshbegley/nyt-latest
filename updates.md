@@ -1,3 +1,7 @@
+**Student Protesters at Columbia Remain Defiant**\
+`The encampment is gone, but some activists spent the night on the university lawn, with what seemed like light enforcement, at least for the moment.`\
+https://nytimes.com/2024/04/19/nyregion/columbia-campus-protest-gaza-war.html
+
 **Menendez Corruption Trial Delayed for One Week**\
 `The senator’s trial will start May 13, a week later than planned, to give defense lawyers more time to prepare.`\
 https://nytimes.com/2024/04/19/nyregion/menendez-bribery-trial-delay.html
