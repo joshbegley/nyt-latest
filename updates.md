@@ -1,3 +1,7 @@
+**It was an intense day for some potential jurors as they answered personal questions.**\
+`By Maggie Haberman, Jesse McKinley and Wesley Parnell`\
+https://nytimes.com/live/2024/04/19/nyregion/trump-trial-hush-money/it-was-an-intense-day-for-some-potential-jurors-as-they-answered-personal-questions
+
 **To Fight ‘Shrinkflation,’ France Will Force Retailers to Warn Shoppers**\
 `Merchants will be required to put signs in front of all products that have been reduced in size without a corresponding price cut.`\
 https://nytimes.com/2024/04/19/business/france-economy-food-prices-shrinkflation.html
