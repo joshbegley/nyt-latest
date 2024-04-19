@@ -1,3 +1,7 @@
+**Police Update After Man Sets Himself on Fire Outside Courthouse**\
+`A 37-year-old man set himself on fire in a park outside of Manhattan Criminal Courthouse where Donald Trump is on trial.`\
+https://nytimes.com/video/nyregion/100000009424122/man-fire-trump.html
+
 **Arrests of Europeans for Aiding Russia Raise Fears of Kremlin’s Reach**\
 `A string of arrests, including two Poles accused of attacking a Navalny aide and a third for ties to a possible plot against Ukraine’s president, have amplified worries of Russian infiltration.`\
 https://nytimes.com/2024/04/19/world/europe/russia-zelensky-navalny-poland-arrests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/magazine/donor-egg-secrecy-ethics.html
 **Frederick Celani, Who Made a Career as a Con Man, Dies at 75**\
 `His frauds included a waterfront development in Buffalo, a civil rights law firm in California and a package delivery company in Springfield, Ill.`\
 https://nytimes.com/2024/04/19/nyregion/frederick-celani-dead.html
-
-**Neo-Nazi Who Threatened Journalist With Death Is Sentenced to Prison**\
-`Nicholas Welker admitted posting the death threat, which was meant to to silence coverage of the extremist group he led, prosecutors said.`\
-https://nytimes.com/2024/04/19/nyregion/nicholas-welker-sentenced-journalist-death-threats.html
 
