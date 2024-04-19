@@ -1,3 +1,7 @@
+**Columbia University Arrests Student Pro-Palestinian Protesters**\
+`The police arrested more than 100 students demonstrators at a tent encampment set up on the campus of Columbia University in New York City.`\
+https://nytimes.com/video/us/100000009422988/columbia-arrests-palestinian-protesters-students.html
+
 **Judge John Hodgman on the Strange First Date Choice**\
 `3 years later, a couple is still at odds about his move at the end of the night.`\
 https://nytimes.com/2024/04/19/magazine/first-date-bathroom.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/19/us/biden-trump-election
 **Biden will speak at a trade union conference, while Trump is on trial in New York.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/19/us/biden-trump-election/biden-trade-union-conference-trump-trial
-
-**‘It’s Clearly Bleak’: Stocks Set for Longest Losing Streak in Months**\
-`A rally at the start of the year has given way to worries about economics and geopolitics on Wall Street.`\
-https://nytimes.com/2024/04/19/business/stock-bond-market.html
 
