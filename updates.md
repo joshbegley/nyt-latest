@@ -1,3 +1,7 @@
+**Arrests of Europeans for Aiding Russia Raise Fears of Kremlin’s Reach**\
+`A string of arrests, including two Poles accused of attacking a Navalny aide and a third for ties to a possible plot against Ukraine’s president, have amplified worries of Russian infiltration.`\
+https://nytimes.com/2024/04/19/world/europe/russia-zelensky-navalny-poland-arrests.html
+
 **F.A.A. Will Require More Rest for Air Traffic Controllers**\
 `The agency announced new rules to address the dangers of exhaustion for controllers, who often work grueling round-the-clock schedules.`\
 https://nytimes.com/2024/04/19/business/faa-air-traffic-controllers-close-calls.html

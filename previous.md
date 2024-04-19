@@ -1,3 +1,7 @@
+**Arrests of Europeans for Aiding Russia Raise Fears of Kremlin’s Reach**\
+`A string of arrests, including two Poles accused of attacking a Navalny aide and a third for ties to a possible plot against Ukraine’s president, have amplified worries of Russian infiltration.`\
+https://nytimes.com/2024/04/19/world/europe/russia-zelensky-navalny-poland-arrests.html
+
 **F.A.A. Will Require More Rest for Air Traffic Controllers**\
 `The agency announced new rules to address the dangers of exhaustion for controllers, who often work grueling round-the-clock schedules.`\
 https://nytimes.com/2024/04/19/business/faa-air-traffic-controllers-close-calls.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/nyregion/frederick-celani-dead.html
 **Neo-Nazi Who Threatened Journalist With Death Is Sentenced to Prison**\
 `Nicholas Welker admitted posting the death threat, which was meant to to silence coverage of the extremist group he led, prosecutors said.`\
 https://nytimes.com/2024/04/19/nyregion/nicholas-welker-sentenced-journalist-death-threats.html
-
-**Harvard’s Taylor Swift Scholars Have Thoughts on ‘Tortured Poets’**\
-`The students taking Harvard University’s class on the singer are studying up. Their final papers are due at the end of the month.`\
-https://nytimes.com/2024/04/19/style/taylor-swift-harvard-class-tortured-poets.html
 
