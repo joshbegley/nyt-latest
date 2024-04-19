@@ -1,3 +1,7 @@
+**Fearing for Ukraine if Trump Returns, Some in Europe Try Outreach Now**\
+`A gathering of officials from Lithuania and Ukraine and supporters of Donald J. Trump highlights growing efforts to get on the good side of the former U.S. president in case he is elected again.`\
+https://nytimes.com/2024/04/19/world/europe/trump-ukraine-eastern-europe.html
+
 **At Columbia, the Protests Continued, With Dancing and Pizza**\
 `Will more stringent tactics subdue protests? Or fuel them?`\
 https://nytimes.com/2024/04/19/us/at-columbia-the-protests-continued-with-dancing-and-pizza.html
