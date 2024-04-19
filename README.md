@@ -1,3 +1,7 @@
+**Inside the Courtroom, Trump Is Trapped With His Past**\
+`He was forced to listen to much of the damage he has caused.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-trapped-courtroom
+
 **Day 4 of Trump’s Criminal Trial: Five Takeaways**\
 `A full jury is seated, a horrifying incident shocks the court and opening statements are set to begin on Monday.`\
 https://nytimes.com/2024/04/19/nyregion/trump-trial-man-fire-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/business/media/denny-walsh-dead.html
 **R.F.K. Jr. Raises New Uncertainty for Biden in Michigan**\
 `Mr. Kennedy’s success in landing on the battleground state’s ballot guarantees that he will shape the race this November. Both parties are racing to define him.`\
 https://nytimes.com/2024/04/19/us/politics/rfk-biden-trump-michigan.html
-
-**The House Is Set to Approve Ukraine Aid This Weekend**\
-`Also, the Israeli military struck Iran. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/04/19/briefing/ukraine-israel-house-aid-taylor-swift-music.html
 
