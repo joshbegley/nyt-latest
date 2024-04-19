@@ -1,3 +1,11 @@
+**As Press Reports Some Juror Details, Polarized Reactions Take Over**\
+`Journalists covering the trial face a tricky balancing act: inform the public while keeping its participants out of harm’s way.`\
+https://nytimes.com/2024/04/19/business/media/trump-trial-jurors-press-reports.html
+
+**Is the Violence Over Between Iran and Israel? It’s Never That Simple.**\
+`Hatred and political maneuvering will probably keep the tension high.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/iran-israel-violence
+
 **The Ex-Bernie Sanders Pollster Raising Alarms About R.F.K. Jr.’s Appeal Among Latinos and Young Voters**\
 `A Democrat warns that the independent could siphon crucial support from Biden.`\
 https://nytimes.com/2024/04/19/us/politics/rfk-jr-young-voters-latinos.html
