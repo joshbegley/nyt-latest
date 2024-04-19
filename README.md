@@ -1,4 +1,4 @@
-**19 Ways TikTok Changed America**\
+**Love, Hate or Fear It: TikTok Has Changed America**\
 `Nineteen ways the app rewired our culture.`\
 https://nytimes.com/interactive/2024/04/18/business/media/tiktok-ban-american-culture.html
 
