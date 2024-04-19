@@ -1,3 +1,11 @@
+**Ukraine Aid Bill Clears Critical Hurdle in the House as Democrats Supply the Votes**\
+`Democrats stepped in to support bringing the aid package to the floor, in a remarkable breach of custom on a key vote that paved the way for its passage.`\
+https://nytimes.com/2024/04/19/us/politics/congress-vote-ukraine-bill-house.html
+
+**Why Don’t More People Resent Manchester City?**\
+`Out of the Champions League but on top of the Premier League, Manchester City shows that it takes more than trophies to make a villain.`\
+https://nytimes.com/2024/04/19/world/europe/premier-league-man-city.html
+
 **Outside the courtroom, Trump is the center of attention. Inside, he has a rival.**\
 `By Jonah E. Bromwich`\
 https://nytimes.com/2024/04/19/nyregion/outside-the-courtroom-trump-is-the-center-of-attention-inside-he-has-a-rival.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/19/arts/music/taylor-swift-album-tortured-poets-depa
 **Where to Buy Plants Online**\
 `We tested several options to find the best.`\
 https://nytimes.com/interactive/2024/04/19/smarter-living/wirecutter/best-plants-online.html
-
-**Columbia University Arrests Student Pro-Palestinian Protesters**\
-`The police arrested more than 100 students demonstrators at a tent encampment set up on the campus of Columbia University in New York City.`\
-https://nytimes.com/video/us/100000009422988/columbia-arrests-palestinian-protesters-students.html
-
-**Judge John Hodgman on the Strange First Date Choice**\
-`3 years later, a couple is still at odds about his move at the end of the night.`\
-https://nytimes.com/2024/04/19/magazine/first-date-bathroom.html
 
