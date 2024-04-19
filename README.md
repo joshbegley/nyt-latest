@@ -1,3 +1,15 @@
+**In Trump Trial, Old Social Posts Haunt the Proceedings**\
+`Over the past week, some potential jurors who were confronted with their old posts seemed sheepish, if not outright embarrassed.`\
+https://nytimes.com/2024/04/19/nyregion/trump-trial-jurors-tweets-facebook.html
+
+**I’m Pregnant, and My Husband Says We Can’t Tell Anyone About the Donor Egg**\
+`The magazine’s Ethicist columnist on whether to honor a spouse’s seemingly irrational request about privacy and assisted reproduction.`\
+https://nytimes.com/2024/04/19/magazine/donor-egg-secrecy-ethics.html
+
+**Frederick Celani, Who Made a Career as a Con Man, Dies at 75**\
+`His frauds included a waterfront development in Buffalo, a civil rights law firm in California and a package delivery company in Springfield, Ill.`\
+https://nytimes.com/2024/04/19/nyregion/frederick-celani-dead.html
+
 **Neo-Nazi Who Threatened Journalist With Death Is Sentenced to Prison**\
 `Nicholas Welker admitted posting the death threat, which was meant to to silence coverage of the extremist group he led, prosecutors said.`\
 https://nytimes.com/2024/04/19/nyregion/nicholas-welker-sentenced-journalist-death-threats.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/19/nyregion/trump-trial-manhattan-sandoval-hearing.h
 **Like Moths to a Flame? We May Need a New Phrase.**\
 `Over time researchers have found fewer of the insects turning up in light traps, suggesting they may be less attracted to some kinds of light than they once were.`\
 https://nytimes.com/2024/04/19/science/moths-light-attracted.html
-
-**What Would the Economy Look Like Under a Second Trump Term?**\
-`Much would depend on Congress and the cabinet, but financial forecasters aren’t optimistic.`\
-https://nytimes.com/2024/04/19/opinion/trump-second-term-economy.html
-
-**Mike Johnson Deserves to Keep His Job**\
-`By joining with Democrats to approve aid to Ukraine, he has defied low expectations.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/johnson-ukraine-aid-democrats
-
-**The Best of Late Night This Week**\
-`This week, there was one topic top of mind for the hosts, and one topic only: the start of former President Trump’s criminal hush-money trial in Manhattan.`\
-https://nytimes.com/interactive/2024/04/19/arts/television/best-of-late-night-trump-trial.html
 
