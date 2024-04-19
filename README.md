@@ -1,3 +1,11 @@
+**A Photographer in Search of Forgotten Burial Sites**\
+`An African American burial ground project in South Carolina is just one subject in Caroline Gutman’s search for a history hiding in plain sight.`\
+https://nytimes.com/2024/04/19/insider/african-american-burial-ground-photos.html
+
+**A Brief Guide to Who’s Who on Taylor Swift’s ‘Tortured Poets’**\
+`Ex-boyfriends may be alluded to. Travis Kelce, too, fans believe. And some actual poets.`\
+https://nytimes.com/2024/04/19/style/taylor-swift-lyrics-tortured-poets-department.html
+
 **Watch the Lyrid Meteor Shower Reach Its Peak**\
 `A nearly full moon could interfere with the shower during its peak. It is forecast to be active until near the end of the month.`\
 https://nytimes.com/2024/04/19/science/lyrid-meteor-shower-time-peak.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/19/arts/music/danish-string-quartet-doppelganger-rev
 **Beverly LaHaye, Soldier of the Christian Right, Dies at 94**\
 `A pastor’s wife, she formed Concerned Women for America to oppose the Equal Rights Amendment. Ronald Reagan called her “one of the powerhouses on the political scene.”`\
 https://nytimes.com/2024/04/19/us/politics/beverly-lahaye-dead.html
-
-**Chinese Export Surge Clouds U.S. Hopes of a Domestic Solar Boom**\
-`The decision by a Massachusetts solar company to abandon plans to build a $1.4 billion U.S. factory highlights the risks amid a flood of Chinese clean energy exports.`\
-https://nytimes.com/2024/04/19/business/chinese-export-surge-solar-boom.html
-
-**What to Know About China’s Export Dominance**\
-`From cars to solar panels to furniture, China is using lavish bank lending and enormous investments in robotics to cement its global leadership in manufacturing.`\
-https://nytimes.com/2024/04/19/business/china-exports.html
 
