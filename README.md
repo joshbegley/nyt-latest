@@ -1,3 +1,19 @@
+**Prosecutors signal they will ask Trump about attacks on women if he testifies.**\
+`By Jonah E. Bromwich and Matthew Haag`\
+https://nytimes.com/live/2024/04/19/nyregion/trump-trial-hush-money/prosecutors-signal-they-will-ask-trump-about-attacks-on-women-if-he-testifies
+
+**Like Moths to a Flame? We May Need a New Phrase.**\
+`Over time researchers have found fewer of the insects turning up in light traps, suggesting they may be less attracted to some kinds of light than they once were.`\
+https://nytimes.com/2024/04/19/science/moths-light-attracted.html
+
+**What Would the Economy Look Like Under a Second Trump Term?**\
+`Much would depend on Congress and the cabinet, but financial forecasters aren’t optimistic.`\
+https://nytimes.com/2024/04/19/opinion/trump-second-term-economy.html
+
+**Mike Johnson Deserves to Keep His Job**\
+`By joining with Democrats to approve aid to Ukraine, he has defied low expectations.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/johnson-ukraine-aid-democrats
+
 **The Best of Late Night This Week**\
 `This week, there was one topic top of mind for the hosts, and one topic only: the start of former President Trump’s criminal hush-money trial in Manhattan.`\
 https://nytimes.com/interactive/2024/04/19/arts/television/best-of-late-night-trump-trial.html
@@ -22,20 +38,4 @@ https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/israel-repor
 **7 Songs That Reference Tortured Poets**\
 `Taylor Swift said she channeled them; Patti Smith, Lana Del Rey, the Smiths and others cited them.`\
 https://nytimes.com/2024/04/19/arts/music/amplifier-newsletter-tortured-poets.html
-
-**What We Know About Columbia University’s President, Nemat Shafik**\
-`Dr. Shafik, who also goes by Minouche, is facing criticism from multiple sides over how she is handling protests over the war in Gaza on her campus.`\
-https://nytimes.com/2024/04/19/nyregion/nemat-shafik-columbia-university-president.html
-
-**Man Sets Himself on Fire Near Courthouse Where Trump Is on Trial**\
-`Onlookers screamed as fire engulfed the man, who had thrown pamphlets in the air before he set himself aflame. A police officer tried to extinguish the flames before the man was taken away in an ambulance.`\
-https://nytimes.com/2024/04/19/nyregion/man-on-fire-trump.html
-
-**Student Protesters at Columbia Remain Defiant**\
-`The encampment is gone, but some activists spent the night on the university lawn, with what seemed like light enforcement, at least for the moment.`\
-https://nytimes.com/2024/04/19/nyregion/columbia-campus-protest-gaza-war.html
-
-**Menendez Corruption Trial Delayed for One Week**\
-`The senator’s trial will start May 13, a week later than planned, to give defense lawyers more time to prepare.`\
-https://nytimes.com/2024/04/19/nyregion/menendez-bribery-trial-delay.html
 
