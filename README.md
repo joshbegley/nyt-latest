@@ -1,3 +1,11 @@
+**19pol-swiper**\
+`Election Updates: Biden courts labor unions, with a speech to electrical workers planned today.`\
+https://nytimes.com/live/2024/04/19/us/biden-trump-election
+
+**Biden will speak at a trade union conference, while Trump is on trial in New York.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/04/19/us/biden-trump-election/biden-trade-union-conference-trump-trial
+
 **‘It’s Clearly Bleak’: Stocks Set for Longest Losing Streak in Months**\
 `A rally at the start of the year has given way to worries about economics and geopolitics on Wall Street.`\
 https://nytimes.com/2024/04/19/business/stock-bond-market.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/19/business/inflation-interest-rates-oil-prices-mark
 **19trump-trial**\
 `Live Updates: Trump Trial Enters Fourth Day With Opening Arguments Next Week`\
 https://nytimes.com/live/2024/04/19/nyregion/trump-trial-hush-money
-
-**World leaders call for de-escalation after Israel’s strike in Iran.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/world-leaders-call-for-de-escalation-after-israels-strike-in-iran
-
-**Zaslav Receives $50 Million for Leading Struggling Warner Bros. Discovery**\
-`The chief executive’s 2023 pay package rose 26 percent from the year before, while the company’s losses totaled $3 billion.`\
-https://nytimes.com/2024/04/19/business/media/david-zaslav-pay-package.html
 
