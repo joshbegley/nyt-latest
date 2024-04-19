@@ -1,3 +1,11 @@
+**World leaders call for de-escalation after Israel’s strike in Iran.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/world-leaders-call-for-de-escalation-after-israels-strike-in-iran
+
+**Zaslav Receives $50 Million for Leading Struggling Warner Bros. Discovery**\
+`The chief executive’s 2023 pay package rose 26 percent from the year before, while the company’s losses totaled $3 billion.`\
+https://nytimes.com/2024/04/19/business/media/david-zaslav-pay-package.html
+
 **A Union Vote at Volkswagen Is a Big Test for Organized Labor**\
 `If workers at a plant in Tennessee agree to unionize, it would reflect the growing power of groups like the U.A.W. at a crucial political moment.`\
 https://nytimes.com/2024/04/19/business/dealbook/union-volkswagen-biden.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/19/podcasts/the-daily/supreme-court-homelessness.htm
 **With a Fresh Look and Recipes, Manischewitz Courts a New Generation**\
 `The 136-year-old company’s products have been staples in American Jewish households for generations. After a major rebranding, the matzo ball soup comes with merch.`\
 https://nytimes.com/2024/04/19/business/manischewitz-passover-rebrand.html
-
-**Here are the latest developments.**\
-`By Farnaz Fassihi, Ronen Bergman and Patrick Kingsley`\
-https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/here-are-the-latest-developments
-
-**Fearing for Ukraine if Trump Returns, Some in Europe Try Outreach Now**\
-`A gathering of officials from Lithuania and Ukraine and supporters of Donald J. Trump highlights growing efforts to get on the good side of the former U.S. president in case he is elected again.`\
-https://nytimes.com/2024/04/19/world/europe/trump-ukraine-eastern-europe.html
 
