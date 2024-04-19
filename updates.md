@@ -1,3 +1,11 @@
+**Greece Announces New Plan to Protect Some of Its Pristine Beaches**\
+`The government has pledged to crack down on rapid development, and on seaside businesses seeking to take advantage of a tourist boom. But some residents and conservationists are unimpressed.`\
+https://nytimes.com/2024/04/19/world/europe/greece-beaches-tourists.html
+
+**Start-Up Founder Sentenced to 18 Months in Prison for Fraud**\
+`Manish Lachwani, who founded the software start-up HeadSpin, is the latest tech entrepreneur to face time in prison in recent years.`\
+https://nytimes.com/2024/04/19/technology/manish-lachwani-headspin-fraud.html
+
 **Start-Up Founder Sentenced to 18 Months in Prison for Fraud**\
 `Manish Lachwani, who founded the software start-up HeadSpin, is the latest tech entrepreneur to face time in prison in recent years.`\
 https://nytimes.com/2024/04/19/technology/start-up-founder-sentenced-to-18-months-in-prison-for-fraud.html
