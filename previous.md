@@ -3,7 +3,7 @@
 https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/the-us-defense-secretary-spoke-with-israels-top-defense-official-on-thursday-afternoon-the-pentagon-says
 
 **19mideast-crisis**\
-`Live Updates: Iran State-Run Media Reports Explosions`\
+`Live Updates: Israeli Officials Claim Strikes on Iran`\
 https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news
 
 **Here are the latest developments.**\

@@ -1,3 +1,7 @@
+**19mideast-crisis**\
+`Live Updates: Israeli Officials Claim Strikes on Iran`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news
+
 **Here are the latest developments.**\
 `By Farnaz Fassihi, Ronen Bergman and Patrick Kingsley`\
 https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/blasts-are-reported-near-the-iranian-city-of-isfahan
