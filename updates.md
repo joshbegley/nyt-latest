@@ -1,3 +1,7 @@
+**Where to Buy Plants Online**\
+`We tested several options to find the best.`\
+https://nytimes.com/interactive/2024/04/19/smarter-living/wirecutter/best-plants-online.html
+
 **Columbia University Arrests Student Pro-Palestinian Protesters**\
 `The police arrested more than 100 students demonstrators at a tent encampment set up on the campus of Columbia University in New York City.`\
 https://nytimes.com/video/us/100000009422988/columbia-arrests-palestinian-protesters-students.html

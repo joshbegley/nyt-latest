@@ -1,3 +1,7 @@
+**Where to Buy Plants Online**\
+`We tested several options to find the best.`\
+https://nytimes.com/interactive/2024/04/19/smarter-living/wirecutter/best-plants-online.html
+
 **Columbia University Arrests Student Pro-Palestinian Protesters**\
 `The police arrested more than 100 students demonstrators at a tent encampment set up on the campus of Columbia University in New York City.`\
 https://nytimes.com/video/us/100000009422988/columbia-arrests-palestinian-protesters-students.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/business/tesla-cybertruck-recall.html
 **19pol-swiper**\
 `Election Updates: Biden courts labor unions, with a speech to electrical workers planned today.`\
 https://nytimes.com/live/2024/04/19/us/biden-trump-election
-
-**Biden will speak at a trade union conference, while Trump is on trial in New York.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/04/19/us/biden-trump-election/biden-trade-union-conference-trump-trial
 
