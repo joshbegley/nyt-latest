@@ -1,3 +1,7 @@
+**Taylor Swift and Post Malone’s Regretful Duet, and 9 More New Songs**\
+`Hear tracks by Arooj Aftab, Cigarettes After Sex, Claire Rousay and others.`\
+https://nytimes.com/2024/04/19/arts/music/playlist-taylor-swift-arooj-aftab-claire-rousay.html
+
 **Campus Turmoil: The Gaza Protests at Columbia**\
 `Readers discuss the arrests of demonstrators and the university president’s congressional testimony. Also: The Israel-Iran airstrikes; the Mayorkas impeachment.`\
 https://nytimes.com/2024/04/19/opinion/columbia-university-gaza-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/arts/100000009421307/on-the-ground-venice-biennale.htm
 **The Big Number: $76,535**\
 `A look at why Caitlin Clark, the star women's basketball player, will be paid so little as a player for the Indiana Fever.`\
 https://nytimes.com/interactive/2024/04/19/business/caitlin-clark-salary.html
-
-**Review: Thomas Adès Meets the Profound Beauty of Schubert**\
-`The Danish String Quartet returned to Carnegie Hall with its Doppelgänger project, pairing Schubert’s String Quintet and a premiere by Adès.`\
-https://nytimes.com/2024/04/19/arts/music/danish-string-quartet-doppelganger-review.html
 

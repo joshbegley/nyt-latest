@@ -1,3 +1,7 @@
+**Taylor Swift and Post Malone’s Regretful Duet, and 9 More New Songs**\
+`Hear tracks by Arooj Aftab, Cigarettes After Sex, Claire Rousay and others.`\
+https://nytimes.com/2024/04/19/arts/music/playlist-taylor-swift-arooj-aftab-claire-rousay.html
+
 **Campus Turmoil: The Gaza Protests at Columbia**\
 `Readers discuss the arrests of demonstrators and the university president’s congressional testimony. Also: The Israel-Iran airstrikes; the Mayorkas impeachment.`\
 https://nytimes.com/2024/04/19/opinion/columbia-university-gaza-protests.html
