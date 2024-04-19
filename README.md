@@ -1,3 +1,7 @@
+**Outside the courtroom, Trump is the center of attention. Inside, he has a rival.**\
+`By Jonah E. Bromwich`\
+https://nytimes.com/2024/04/19/nyregion/outside-the-courtroom-trump-is-the-center-of-attention-inside-he-has-a-rival.html
+
 **Shadow War Between Iran and Israel: A Timeline**\
 `A recent round of strikes has brought the conflict more clearly into the open and raised fears of a broader war.`\
 https://nytimes.com/2024/04/19/world/middleeast/iran-israel-shadow-war-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009422988/columbia-arrests-palestinian-protes
 **Judge John Hodgman on the Strange First Date Choice**\
 `3 years later, a couple is still at odds about his move at the end of the night.`\
 https://nytimes.com/2024/04/19/magazine/first-date-bathroom.html
-
-**When It’s Time for an Aging Driver to Hit the Brakes**\
-`The “car key conversation” can be painful for families to navigate. Experts say there are ways to have it with empathy and care.`\
-https://nytimes.com/2024/04/19/well/family/seniors-driving.html
 
