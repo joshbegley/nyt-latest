@@ -1,3 +1,11 @@
+**19 Ways TikTok Changed America**\
+`Nineteen ways the app rewired our culture`\
+https://nytimes.com/interactive/2024/04/18/business/media/tiktok-ban-american-culture.html
+
+**Review: In ‘Suffs,’ the Thrill of the Vote and How She Got It**\
+`Shaina Taub’s new Broadway musical about Alice Paul and the fight for women’s suffrage is smart and noble and a bit like a rally.`\
+https://nytimes.com/2024/04/18/theater/suffs-review-broadway-shaina-taub.html
+
 **No Bias Found in F.B.I. Report on Catholic Extremists**\
 `Republicans claimed the bureau’s memo was evidence of an anti-conservative strain among F.B.I. ranks, but an internal investigation failed to uncover any “malicious intent.”`\
 https://nytimes.com/2024/04/18/us/politics/catholic-extremists-fbi.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/18/opinion/transgender-care-cass-report.html
 **Meet the 12 Manhattan Jurors Who Will Decide Donald J. Trump’s Fate**\
 `The cross section of New Yorkers emerged after three days of questioning. These are the citizens who will judge their former president.`\
 https://nytimes.com/2024/04/18/nyregion/trump-trial-jury-hush-money.html
-
-**What’s the Best Way to Treat I.B.S.?**\
-`A new study suggests that certain dietary changes may be more effective than medication.`\
-https://nytimes.com/2024/04/18/well/eat/ibs-symptoms-diet-treatments.html
-
-**Republicans Wanted a Crackdown on Israel’s Critics. Columbia Obliged.**\
-`The latest campus antisemitism hearing was a travesty.`\
-https://nytimes.com/2024/04/18/opinion/columbia-antisemitism-hearing.html
 
