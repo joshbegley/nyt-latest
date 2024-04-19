@@ -1,3 +1,7 @@
+**Israel’s Strike Was Smaller Than Expected, and So Was Iran’s Reaction**\
+`The relatively limited scope of the attack, as well as a muted response from Iranian officials, may have lowered the chances of an immediate escalation, analysts said.`\
+https://nytimes.com/2024/04/19/world/middleeast/iran-response-israel-strikes.html
+
 **How TikTok Changed Us**\
 `The app’s videos have become a fixture in the lives of tens of millions of Americans.`\
 https://nytimes.com/2024/04/19/briefing/tiktok-congress.html

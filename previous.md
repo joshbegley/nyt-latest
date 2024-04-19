@@ -1,3 +1,7 @@
+**Israel’s Strike Was Smaller Than Expected, and So Was Iran’s Reaction**\
+`The relatively limited scope of the attack, as well as a muted response from Iranian officials, may have lowered the chances of an immediate escalation, analysts said.`\
+https://nytimes.com/2024/04/19/world/middleeast/iran-response-israel-strikes.html
+
 **How TikTok Changed Us**\
 `The app’s videos have become a fixture in the lives of tens of millions of Americans.`\
 https://nytimes.com/2024/04/19/briefing/tiktok-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/us/at-columbia-the-protests-continued-with-dancin
 **Was Trump Benefiting From Being Out of the News?**\
 `His liabilities weren’t dominating the conversation the way they once did, perhaps helping his polling, but the trial could change things.`\
 https://nytimes.com/2024/04/19/upshot/trump-polling-trial.html
-
-**5 Things to Do This Weekend**\
-`A selection of entertainment highlights this weekend, including Taylor Swift’s new album, “The Tortured Poets Department.”`\
-https://nytimes.com/interactive/2024/04/19/arts/weekend-editors-picks-Taylor-Swift.html
 
