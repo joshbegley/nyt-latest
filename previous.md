@@ -1,3 +1,7 @@
+**No Bias Found in F.B.I. Report on Catholic Extremists**\
+`Republicans claimed the bureau’s memo was evidence of an anti-conservative strain among F.B.I. ranks, but an internal investigation failed to uncover any “malicious intent.”`\
+https://nytimes.com/2024/04/18/us/politics/catholic-extremists-fbi.html
+
 **U.S. and Allies Penalize Iran for Striking Israel, and Try to Avert War**\
 `While imposing sanctions on Iran, U.S. and European governments are urging restraint amid fears of a cycle of escalation as Israel weighs retaliation for an Iranian attack.`\
 https://nytimes.com/2024/04/18/world/middleeast/israel-iran-sanctions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/well/eat/ibs-symptoms-diet-treatments.html
 **Republicans Wanted a Crackdown on Israel’s Critics. Columbia Obliged.**\
 `The latest campus antisemitism hearing was a travesty.`\
 https://nytimes.com/2024/04/18/opinion/columbia-antisemitism-hearing.html
-
-**Trump’s Jury Was Chosen. Opening Statements Could Start Monday.**\
-`Also, the U.S. and Britain imposed new sanctions on Iran. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/04/18/briefing/trump-jury-trial-iran-us-sanctions.html
 

@@ -1,3 +1,7 @@
+**No Bias Found in F.B.I. Report on Catholic Extremists**\
+`Republicans claimed the bureau’s memo was evidence of an anti-conservative strain among F.B.I. ranks, but an internal investigation failed to uncover any “malicious intent.”`\
+https://nytimes.com/2024/04/18/us/politics/catholic-extremists-fbi.html
+
 **U.S. and Allies Penalize Iran for Striking Israel, and Try to Avert War**\
 `While imposing sanctions on Iran, U.S. and European governments are urging restraint amid fears of a cycle of escalation as Israel weighs retaliation for an Iranian attack.`\
 https://nytimes.com/2024/04/18/world/middleeast/israel-iran-sanctions.html
