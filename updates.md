@@ -1,3 +1,11 @@
+**Mandisa Hundley, ‘American Idol’ Singer and Grammy Winner, Dies at 47**\
+`She performed and produced music with Christian themes and won a Grammy Award in 2013.`\
+https://nytimes.com/2024/04/19/arts/music/mandisa-hundley-dead.html
+
+**Is the Internet the Enemy of Progress?**\
+`Revisiting Michael Crichton’s prophecy of cultural stagnation.`\
+https://nytimes.com/2024/04/19/opinion/internet-culture.html
+
 **Voice of America Will Get a New Director**\
 `Michael Abramowitz, a former Washington Post journalist who is currently the president of the nonprofit Freedom House, is expected to start in the role this summer.`\
 https://nytimes.com/2024/04/19/business/media/voice-of-america-director.html
