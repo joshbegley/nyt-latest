@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Farnaz Fassihi, Ronen Bergman and Patrick Kingsley`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/blasts-are-reported-near-the-iranian-city-of-isfahan
+
 **The U.S. defense secretary spoke with Israel’s top defense official on Thursday afternoon, the Pentagon says.**\
 `By Eric Schmitt`\
 https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/the-us-defense-secretary-spoke-with-israels-top-defense-official-on-thursday-afternoon-the-pentagon-says
