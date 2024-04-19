@@ -1,3 +1,7 @@
+**Will Trump Go to Prison if He Is Convicted?**\
+`The former president faces dozens of felony charges stemming from hush-money payments to a porn star. He would undoubtedly appeal any conviction, and the presiding judge has leeway on sentencing.`\
+https://nytimes.com/2024/04/19/nyregion/what-happens-if-trump-is-convicted-hush-money-trial.html
+
 **Blinken says the U.S. has not been involved in ‘offensive operations’ in Iran.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/us-israel-iran-strikes-israel-blinken
