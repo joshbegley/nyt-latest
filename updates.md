@@ -1,3 +1,7 @@
+**Voice of America Will Get a New Director**\
+`Michael Abramowitz, a former Washington Post journalist who is currently the president of the nonprofit Freedom House, is expected to start in the role this summer.`\
+https://nytimes.com/2024/04/19/business/media/voice-of-america-director.html
+
 **4 Disqualified from Beijing Race After 3 Let Chinese Runner Pass**\
 `A strange finish at the Beijing Half Marathon on Sunday led to an investigation and penalties.`\
 https://nytimes.com/2024/04/19/sports/beijing-half-marathon-runners-disqualified.html
