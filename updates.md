@@ -1,3 +1,7 @@
+**Satellite imagery shows that a precision attack damaged an air defense system at an Iranian base.**\
+`By Christoph Koettl and Christiaan Triebert`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/satellite-imagery-shows-that-a-precision-attack-damaged-an-air-defense-system-at-an-iranian-base
+
 **U.S. Military to Withdraw Troops From Niger**\
 `The status of a $110 million air base in the desert remains unclear as the West African country deepens its ties with Russia.`\
 https://nytimes.com/2024/04/19/us/politics/us-niger-military-withdrawal.html
