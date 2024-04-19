@@ -3,7 +3,7 @@
 https://nytimes.com/2024/04/19/us/william-f-pepper-dead.html
 
 **Denny Walsh, Reporter Who Tussled With Mayors and Editors, Dies at 88**\
-`Mr. Walsh won a Pulitzer Prize for investigative reporting in 1969 and later joined The New York Times. The newspaper eventually fired him.`\
+`Mr. Walsh won a Pulitzer Prize for investigative reporting in 1969 and later joined The New York Times, which eventually fired him.`\
 https://nytimes.com/2024/04/19/business/media/denny-walsh-dead.html
 
 **R.F.K. Jr. Raises New Uncertainty for Biden in Michigan**\
