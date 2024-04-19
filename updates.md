@@ -1,3 +1,7 @@
+**8 Hits of the Venice Biennale**\
+`These highlights drew the big crowds in the early days, from a sonorous symphony made by fruit, to an underwater spectacle to a modern-day Tintoretto.`\
+https://nytimes.com/2024/04/19/arts/design/8-hits-of-the-venice-biennale.html
+
 **What We Know About Israel’s Strike in Iran**\
 `Israel struck Iran early Friday, according to officials from both countries, in what appeared to be its first military response to the Iranian attack on Israel last weekend.`\
 https://nytimes.com/2024/04/19/world/middleeast/israel-strikes-iran-why.html
