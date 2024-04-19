@@ -1,3 +1,11 @@
+**Ukrainians Wait, Nervously, to See if U.S. Will Provide Critical Aid**\
+`From the battlefield to battered cities, soldiers and civilians are counting on Congress to approve $60 billion in military support. Without it, Ukrainian officials say, its prospects in the war are grim.`\
+https://nytimes.com/2024/04/19/world/europe/ukraine-aid-congress.html
+
+**Beverly LaHaye, Soldier of the Christian Right, Dies at 94**\
+`A pastor’s wife, she formed Concerned Women for America to oppose the Equal Rights Amendment. Ronald Reagan called her “one of the powerhouses on the political scene.”`\
+https://nytimes.com/2024/04/19/us/politics/beverly-lahaye-dead.html
+
 **The Ingredient Your Chocolate Chip Cookies Are Missing**\
 `Rich piloncillo, used in place of brown sugar, adds unparalleled depth to baked goods and even savory dishes.`\
 https://nytimes.com/2024/04/19/dining/piloncillo-chocolate-chip-cookies.html
