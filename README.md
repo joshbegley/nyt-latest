@@ -32,7 +32,7 @@ https://nytimes.com/2024/04/19/world/europe/trump-ukraine-eastern-europe.html
 
 **At Columbia, the Protests Continued, With Dancing and Pizza**\
 `Will more stringent tactics subdue protests? Or fuel them?`\
-https://nytimes.com/2024/04/19/us/at-columbia-the-protests-continued-with-dancing-and-pizza.html
+https://nytimes.com/2024/04/19/us/columbia-protests-israel-hamas-war.html
 
 **Was Trump Benefiting From Being Out of the News?**\
 `His liabilities weren’t dominating the conversation the way they once did, perhaps helping his polling, but the trial could change things.`\
