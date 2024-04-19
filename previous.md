@@ -1,3 +1,7 @@
+**In an Unusual Vote, Democrats Rescue Measure to Allow Vote on Ukraine Bill**\
+`A resolution to pave the way for the foreign aid package was on track to die in committee amid Republican opposition when Democrats stepped in to save it.`\
+https://nytimes.com/2024/04/18/us/politics/democrats-vote-ukraine-bill.html
+
 **Apple Says It Was Ordered to Pull WhatsApp From China App Store**\
 `Apple said it removed WhatsApp and Threads in its China app offerings Friday on Beijing’s orders, amid technological tensions between the U.S. and China.`\
 https://nytimes.com/2024/04/18/technology/apple-whatsapp-china-app-store.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/theater/suffs-review-broadway-shaina-taub.html
 **No Bias Found in F.B.I. Report on Catholic Extremists**\
 `Republicans claimed the bureau’s memo was evidence of an anti-conservative strain among F.B.I. ranks, but an internal investigation failed to uncover any “malicious intent.”`\
 https://nytimes.com/2024/04/18/us/politics/catholic-extremists-fbi.html
-
-**U.S. and Allies Penalize Iran for Striking Israel, and Try to Avert War**\
-`While imposing sanctions on Iran, U.S. and European governments are urging restraint amid fears of a cycle of escalation as Israel weighs retaliation for an Iranian attack.`\
-https://nytimes.com/2024/04/18/world/middleeast/israel-iran-sanctions.html
 
