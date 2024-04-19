@@ -1,3 +1,7 @@
+**Blinken says the U.S. has not been involved in ‘offensive operations’ in Iran.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/us-israel-iran-strikes-israel-blinken
+
 **Tesla Will Recall Cybertruck in Latest Setback**\
 `A federal auto safety agency said the accelerator pedal on the pickup truck, sales of which began in late 2023, could become stuck, increasing the risk of accidents.`\
 https://nytimes.com/2024/04/19/business/tesla-cybertruck-recall.html
