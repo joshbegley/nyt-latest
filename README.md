@@ -1,3 +1,7 @@
+**Liberal Democrats Urge ‘No’ Vote on Israel Aid to Pressure Biden on Gaza**\
+`Progressives in the House who oppose unfettered military aid to Israel are pressing their colleagues to vote against the $26 billion bill, which is likely to pass, to send a message to President Biden.`\
+https://nytimes.com/2024/04/19/us/politics/democrats-israel-aid-gaza.html
+
 **William F. Pepper, 86, Dies; Claimed the Government Killed Dr. King**\
 `He represented James Earl Ray in his unsuccessful legal efforts to prove that the civil rights leader was the victim of a vast conspiracy.`\
 https://nytimes.com/2024/04/19/us/william-f-pepper-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000009424122/man-fire-trump.html
 **Arrests of Europeans for Aiding Russia Raise Fears of Kremlin’s Reach**\
 `A string of arrests, including two Poles accused of attacking a Navalny aide and a third for ties to a possible plot against Ukraine’s president, have amplified worries of Russian infiltration.`\
 https://nytimes.com/2024/04/19/world/europe/russia-zelensky-navalny-poland-arrests.html
-
-**F.A.A. Will Require More Rest for Air Traffic Controllers**\
-`The agency announced new rules to address the dangers of exhaustion for controllers, who often work grueling round-the-clock schedules.`\
-https://nytimes.com/2024/04/19/business/faa-air-traffic-controllers-close-calls.html
 
