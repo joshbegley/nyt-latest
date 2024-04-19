@@ -1,3 +1,7 @@
+**Late Night Hosts Razz Republicans Trying to Oust Mike Johnson**\
+`“Being the speaker of the House nowadays is like being Leonardo DiCaprio’s girlfriend — you hang on as long as you can,” Jimmy Kimmel said.`\
+https://nytimes.com/2024/04/19/arts/television/late-night-mike-johnson-jimmy-kimmel-trump.html
+
 **Xi Thinks China Can Slow Climate Change. What if He’s Right?**\
 `He wants China to win the race to provide climate solutions and assume the global leadership that would come with it.`\
 https://nytimes.com/2024/04/19/opinion/china-climate-xi-jinping.html
