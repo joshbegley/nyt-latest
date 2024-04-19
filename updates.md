@@ -1,3 +1,7 @@
+**4 Disqualified from Beijing Race After 3 Let Chinese Runner Pass**\
+`A strange finish at the Beijing Half Marathon on Sunday led to an investigation and penalties.`\
+https://nytimes.com/2024/04/19/sports/beijing-half-marathon-runners-disqualified.html
+
 **It was an intense day for some potential jurors as they answered personal questions.**\
 `By Maggie Haberman, Jesse McKinley and Wesley Parnell`\
 https://nytimes.com/live/2024/04/19/nyregion/trump-trial-hush-money/it-was-an-intense-day-for-some-potential-jurors-as-they-answered-personal-questions
