@@ -1,3 +1,11 @@
+**What We Know About Columbia University’s President, Nemat Shafik**\
+`Dr. Shafik, who also goes by Minouche, is facing criticism from multiple sides over how she is handling protests over the war in Gaza on her campus.`\
+https://nytimes.com/2024/04/19/nyregion/nemat-shafik-columbia-university-president.html
+
+**Man Sets Himself on Fire Near Courthouse Where Trump Is on Trial**\
+`Onlookers screamed as fire engulfed the young man, who had thrown pamphlets in the air before he set himself aflame. A police officer tried to extinguish the flames before the man was taken away in an ambulance.`\
+https://nytimes.com/2024/04/19/nyregion/man-on-fire-trump.html
+
 **Student Protesters at Columbia Remain Defiant**\
 `The encampment is gone, but some activists spent the night on the university lawn, with what seemed like light enforcement, at least for the moment.`\
 https://nytimes.com/2024/04/19/nyregion/columbia-campus-protest-gaza-war.html
