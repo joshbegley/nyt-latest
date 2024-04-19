@@ -1,3 +1,8 @@
+**The Big and Small of America’s National Parks**\
+`There are the parks you just can’t miss. And then there are the ones that open up a world
+without expectations. Both experiences will transform you`\
+https://nytimes.com/paidpost/paramount-and-national-parks-foundation/national-parks/the-big-and-small-of-americas-national-parks.html
+
 **Israel reportedly strikes an air defense site in Syria.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/israel-reportedly-strikes-an-air-defense-site-in-syria

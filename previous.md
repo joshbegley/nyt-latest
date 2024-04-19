@@ -1,3 +1,8 @@
+**The Big and Small of America’s National Parks**\
+`There are the parks you just can’t miss. And then there are the ones that open up a world
+without expectations. Both experiences will transform you`\
+https://nytimes.com/paidpost/paramount-and-national-parks-foundation/national-parks/the-big-and-small-of-americas-national-parks.html
+
 **Israel reportedly strikes an air defense site in Syria.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/israel-reportedly-strikes-an-air-defense-site-in-syria
@@ -33,8 +38,4 @@ https://nytimes.com/2024/04/19/opinion/internet-culture.html
 **Voice of America Will Get a New Director**\
 `Michael Abramowitz, a former Washington Post journalist who is currently the president of the nonprofit Freedom House, is expected to start in the role this summer.`\
 https://nytimes.com/2024/04/19/business/media/voice-of-america-director.html
-
-**4 Disqualified from Beijing Race After 3 Let Chinese Runner Pass**\
-`A strange finish at the Beijing Half Marathon on Sunday led to an investigation and penalties.`\
-https://nytimes.com/2024/04/19/sports/beijing-half-marathon-runners-disqualified.html
 
