@@ -1,3 +1,7 @@
+**Taylor Swift’s ‘Tortured Poets’ Arrives With a Promotional Blitz**\
+`The pop superstar’s latest album was preceded by a satellite radio channel, a word game, a return to TikTok and an actual library. For her fans, more is always welcome.`\
+https://nytimes.com/2024/04/19/arts/music/taylor-swift-tortured-poets-department.html
+
 **Modi’s Power Keeps Growing, and India Looks Sure to Give Him More**\
 `Few doubt the popular prime minister will win a third term in voting that starts Friday. His strong hand is just what many Indians seem to want.`\
 https://nytimes.com/2024/04/19/world/asia/modi-india-election.html

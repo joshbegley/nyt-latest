@@ -1,3 +1,7 @@
+**Taylor Swift’s ‘Tortured Poets’ Arrives With a Promotional Blitz**\
+`The pop superstar’s latest album was preceded by a satellite radio channel, a word game, a return to TikTok and an actual library. For her fans, more is always welcome.`\
+https://nytimes.com/2024/04/19/arts/music/taylor-swift-tortured-poets-department.html
+
 **Modi’s Power Keeps Growing, and India Looks Sure to Give Him More**\
 `Few doubt the popular prime minister will win a third term in voting that starts Friday. His strong hand is just what many Indians seem to want.`\
 https://nytimes.com/2024/04/19/world/asia/modi-india-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/us/politics/democrats-vote-ukraine-bill.html
 **Apple Says It Was Ordered to Pull WhatsApp From China App Store**\
 `Apple said it removed WhatsApp and Threads in its China app offerings Friday on Beijing’s orders, amid technological tensions between the U.S. and China.`\
 https://nytimes.com/2024/04/18/technology/apple-whatsapp-china-app-store.html
-
-**The U.S. defense secretary spoke with Israel’s top defense official on Thursday afternoon, the Pentagon says.**\
-`By Eric Schmitt`\
-https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/the-us-defense-secretary-spoke-with-israels-top-defense-official-on-thursday-afternoon-the-pentagon-says
 
