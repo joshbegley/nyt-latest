@@ -1,3 +1,7 @@
+**Israel reportedly strikes an air defense site in Syria.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/israel-reportedly-strikes-an-air-defense-site-in-syria
+
 **7 Songs That Reference Tortured Poets**\
 `Taylor Swift said she channeled them; Patti Smith, Lana Del Rey, the Smiths and others cited them.`\
 https://nytimes.com/2024/04/19/arts/music/amplifier-newsletter-tortured-poets.html
