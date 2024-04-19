@@ -1,3 +1,7 @@
+**Iran Appears to Play Down Down Significance of Israeli Strike**\
+`In Israel, officials described the strike as a limited response designed to avoid escalating tensions. Iran state television said military and nuclear facilities were safe.`\
+https://nytimes.com/2024/04/19/world/middleeast/israel-iran-reaction.html
+
 **What I Learned From an Act of Violence in Sydney That Hit Too Close to Home**\
 `Amid early tidbits of misinformation came lessons about dodging falsities and allowing facts to build a story.`\
 https://nytimes.com/2024/04/19/world/australia/sydney-stabbing-westfield-bondi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/style/deborah-yarchun-benjamin-parr-wedding.html
 **Corrections: April 19, 2024**\
 `Corrections that appeared in print on Friday, April 19, 2024.`\
 https://nytimes.com/2024/04/19/pageoneplus/corrections-april-19-2024.html
-
-**When the Cute Guy on Your Flight Turns Out to be Your Seatmate**\
-`Alex Zhou and Eddie Kay met on a plane heading to Los Angeles. After going their separate ways, the two reconnected on social media.`\
-https://nytimes.com/2024/04/19/style/alex-zhou-eddie-kay-wedding.html
 
