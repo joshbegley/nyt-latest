@@ -1,3 +1,7 @@
+**To Fight ‘Shrinkflation,’ France Will Force Retailers to Warn Shoppers**\
+`Merchants will be required to put signs in front of all products that have been reduced in size without a corresponding price cut.`\
+https://nytimes.com/2024/04/19/business/france-economy-food-prices-shrinkflation.html
+
 **Residents of Isfahan describe their fears of an escalated war.**\
 `By Leily Nikounazar and Gaya Gupta`\
 https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/residents-of-isfahan-describe-their-fears-of-an-escalated-war
