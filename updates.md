@@ -1,3 +1,11 @@
+**Inside the Courtroom, Trump Is Trapped With His Past**\
+`He was forced to listen to much of the damage he has caused.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-trapped-courtroom
+
+**Day 4 of Trump’s Criminal Trial: Five Takeaways**\
+`A full jury is seated, a horrifying incident shocks the court and opening statements are set to begin on Monday.`\
+https://nytimes.com/2024/04/19/nyregion/trump-trial-man-fire-takeaways.html
+
 **Where Jurors in Trump Hush-Money Trial Say They Get Their News**\
 `Prosecutors and defense lawyers tried to divine the political leanings of prospective jurors in the former president’s Manhattan criminal trial from their answers to questions about what media they consume.`\
 https://nytimes.com/2024/04/19/nyregion/trump-trial-jury-news.html
