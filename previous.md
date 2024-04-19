@@ -1,3 +1,7 @@
+**7 Songs That Reference Tortured Poets**\
+`Taylor Swift said she channeled them; Patti Smith, Lana Del Rey, the Smiths and others cited them.`\
+https://nytimes.com/2024/04/19/arts/music/amplifier-newsletter-tortured-poets.html
+
 **What We Know About Columbia University’s President, Nemat Shafik**\
 `Dr. Shafik, who also goes by Minouche, is facing criticism from multiple sides over how she is handling protests over the war in Gaza on her campus.`\
 https://nytimes.com/2024/04/19/nyregion/nemat-shafik-columbia-university-president.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/sports/beijing-half-marathon-runners-disqualified
 **It was an intense day for some potential jurors as they answered personal questions.**\
 `By Maggie Haberman, Jesse McKinley and Wesley Parnell`\
 https://nytimes.com/live/2024/04/19/nyregion/trump-trial-hush-money/it-was-an-intense-day-for-some-potential-jurors-as-they-answered-personal-questions
-
-**To Fight ‘Shrinkflation,’ France Will Force Retailers to Warn Shoppers**\
-`Merchants will be required to put signs in front of all products that have been reduced in size without a corresponding price cut.`\
-https://nytimes.com/2024/04/19/business/france-economy-food-prices-shrinkflation.html
 
