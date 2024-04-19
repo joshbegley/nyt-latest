@@ -1,3 +1,11 @@
+**19pol-swiper**\
+`Election Updates: Biden courts labor unions, with a speech to electrical workers planned today.`\
+https://nytimes.com/live/2024/04/19/us/biden-trump-election
+
+**Biden will speak at a trade union conference, while Trump is on trial in New York.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/04/19/us/biden-trump-election/biden-trade-union-conference-trump-trial
+
 **‘It’s Clearly Bleak’: Stocks Set for Longest Losing Streak in Months**\
 `A rally at the start of the year has given way to worries about economics and geopolitics on Wall Street.`\
 https://nytimes.com/2024/04/19/business/stock-bond-market.html
