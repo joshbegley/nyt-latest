@@ -1,3 +1,7 @@
+**A Union Vote at Volkswagen Is a Big Test for Organized Labor**\
+`If workers at a plant in Tennessee agree to unionize, it would reflect the growing power of groups like the U.A.W. at a crucial political moment.`\
+https://nytimes.com/2024/04/19/business/dealbook/union-volkswagen-biden.html
+
 **Israel informed the U.S. shortly before it struck Iran, an American official says.**\
 `By Eric Schmitt`\
 https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/israel-informed-the-us-shortly-before-it-struck-iran-an-american-official-says
