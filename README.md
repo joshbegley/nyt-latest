@@ -1,3 +1,7 @@
+**India Kicks Off 44 Days of Voting**\
+`More than 960 million Indians are eligible to vote as the world’s most populous country elects a new Parliament in this general election.`\
+https://nytimes.com/video/world/asia/100000009422795/india-election-modi-parliament.html
+
 **Trump’s Trial Reaches What Could Be Final Day of Jury Selection**\
 `Twelve jurors have already been chosen. Jury selection could wrap up on Friday as the lawyers seek to add five alternates — substitutes in case any of the first dozen must leave — to the panel.`\
 https://nytimes.com/2024/04/19/nyregion/trump-hush-money-trial-jury.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/crosswords/wordle-review.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/04/19/crosswords/spelling-bee-forum.html
-
-**The Unlikely Force Behind a Push to Legalize ‘Shrooms’ in New York**\
-`A lobbying effort led in part by religious groups has state lawmakers considering two different measures that would legalize psilocybin, a drug known as “magic mushrooms.”`\
-https://nytimes.com/2024/04/19/nyregion/mushrooms-psychedelics-religion-jews.html
 
