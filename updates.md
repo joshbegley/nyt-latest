@@ -1,3 +1,15 @@
+**In Trump Trial, Old Social Posts Haunt the Proceedings**\
+`Over the past week, some potential jurors who were confronted with their old posts seemed sheepish, if not outright embarrassed.`\
+https://nytimes.com/2024/04/19/nyregion/trump-trial-jurors-tweets-facebook.html
+
+**I’m Pregnant, and My Husband Says We Can’t Tell Anyone About the Donor Egg**\
+`The magazine’s Ethicist columnist on whether to honor a spouse’s seemingly irrational request about privacy and assisted reproduction.`\
+https://nytimes.com/2024/04/19/magazine/donor-egg-secrecy-ethics.html
+
+**Frederick Celani, Who Made a Career as a Con Man, Dies at 75**\
+`His frauds included a waterfront development in Buffalo, a civil rights law firm in California and a package delivery company in Springfield, Ill.`\
+https://nytimes.com/2024/04/19/nyregion/frederick-celani-dead.html
+
 **Neo-Nazi Who Threatened Journalist With Death Is Sentenced to Prison**\
 `Nicholas Welker admitted posting the death threat, which was meant to to silence coverage of the extremist group he led, prosecutors said.`\
 https://nytimes.com/2024/04/19/nyregion/nicholas-welker-sentenced-journalist-death-threats.html
