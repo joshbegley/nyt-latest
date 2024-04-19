@@ -1,3 +1,7 @@
+**Israel informed the U.S. shortly before it struck Iran, an American official says.**\
+`By Eric Schmitt`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/israel-informed-the-us-shortly-before-it-struck-iran-an-american-official-says
+
 **Israel’s Strike Was Smaller Than Expected, and So Was Iran’s Reaction**\
 `The relatively limited scope of the attack, as well as a muted response from Iranian officials, may have lowered the chances of an immediate escalation, analysts said.`\
 https://nytimes.com/2024/04/19/world/middleeast/iran-response-israel-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/world/europe/trump-ukraine-eastern-europe.html
 **At Columbia, the Protests Continued, With Dancing and Pizza**\
 `Will more stringent tactics subdue protests? Or fuel them?`\
 https://nytimes.com/2024/04/19/us/columbia-protests-israel-hamas-war.html
-
-**Was Trump Benefiting From Being Out of the News?**\
-`His liabilities weren’t dominating the conversation the way they once did, perhaps helping his polling, but the trial could change things.`\
-https://nytimes.com/2024/04/19/upshot/trump-polling-trial.html
 

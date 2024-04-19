@@ -1,3 +1,7 @@
+**Israel informed the U.S. shortly before it struck Iran, an American official says.**\
+`By Eric Schmitt`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/israel-informed-the-us-shortly-before-it-struck-iran-an-american-official-says
+
 **At Columbia, the Protests Continued, With Dancing and Pizza**\
 `Will more stringent tactics subdue protests? Or fuel them?`\
 https://nytimes.com/2024/04/19/us/columbia-protests-israel-hamas-war.html
