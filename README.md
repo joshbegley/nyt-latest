@@ -1,3 +1,7 @@
+**To Fight ‘Shrinkflation,’ France Will Force Retailers to Warn Shoppers**\
+`Merchants will be required to put signs in front of all products that have been reduced in size without a corresponding price cut.`\
+https://nytimes.com/2024/04/19/business/france-economy-food-prices-shrinkflation.html
+
 **Residents of Isfahan describe their fears of an escalated war.**\
 `By Leily Nikounazar and Gaya Gupta`\
 https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/residents-of-isfahan-describe-their-fears-of-an-escalated-war
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/science/lyrid-meteor-shower-time-peak.html
 **Ukrainians Wait, Nervously, to See if U.S. Will Provide Critical Aid**\
 `From the battlefield to battered cities, soldiers and civilians are counting on Congress to approve $60 billion in military support. Without it, Ukrainian officials say, its prospects in the war are grim.`\
 https://nytimes.com/2024/04/19/world/europe/ukraine-aid-congress.html
-
-**The Ingredient Your Chocolate Chip Cookies Are Missing**\
-`Rich piloncillo, used in place of brown sugar, adds unparalleled depth to baked goods and even savory dishes.`\
-https://nytimes.com/2024/04/19/dining/piloncillo-chocolate-chip-cookies.html
 
