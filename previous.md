@@ -1,3 +1,35 @@
+**Trump’s Trial Reaches What Could Be Final Day of Jury Selection**\
+`Twelve jurors have already been chosen. Jury selection could wrap up on Friday as the lawyers seek to add five alternates — substitutes in case any of the first dozen must leave — to the panel.`\
+https://nytimes.com/2024/04/19/nyregion/trump-hush-money-trial-jury.html
+
+**A Deadly Dog Attack Upends an Elite Westchester Farm**\
+`At a farm tied to Blue Hill at Stone Barns, where a meal costs around $400, two dogs killed a poodle and seriously injured its owner. Now the dogs face a possible death sentence.`\
+https://nytimes.com/2024/04/19/nyregion/dog-attack-blue-hill-stone-barns.html
+
+**Fishing in a Stream**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/04/19/learning/fishing-in-a-stream.html
+
+**New York’s Newest Hockey Team Has Everything but a Name and Home Ice**\
+`The fledgling Professional Women’s Hockey League is booming — except in New York, where the team is in last place. But the players haven’t given up.`\
+https://nytimes.com/2024/04/19/nyregion/new-york-pro-womens-hockey-team.html
+
+**‘Rebel Moon — Part Two: The Scargiver’ Review: Of Stars and Wars**\
+`A delirious, pulpy mishmash of knockoffs, Zack Snyder’s film isn’t good, but it sure is something.`\
+https://nytimes.com/2024/04/19/movies/rebel-moon-part-two-the-scargiver-review.html
+
+**The Connections Companion No. 313**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/19/crosswords/connections-companion.html
+
+**Aaron Rodgers Has More on His Mind Than Football. A Lot More.**\
+`The N.F.L. great was supposed to be the Jets’ savior. But since arriving in New York, he has spent more time voicing conspiracy theories than playing quarterback.`\
+https://nytimes.com/2024/04/19/nyregion/aaron-rodgers-jets-podcasts.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/19/crosswords/wordle-review.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/04/19/crosswords/spelling-bee-forum.html
@@ -5,36 +37,4 @@ https://nytimes.com/2024/04/19/crosswords/spelling-bee-forum.html
 **The Unlikely Force Behind a Push to Legalize ‘Shrooms’ in New York**\
 `A lobbying effort led in part by religious groups has state lawmakers considering two different measures that would legalize psilocybin, a drug known as “magic mushrooms.”`\
 https://nytimes.com/2024/04/19/nyregion/mushrooms-psychedelics-religion-jews.html
-
-**The Dusty Magnets ofthe Milky Way**\
-`A new map of the center of the Milky Way galaxy reveals details of its magnetic fields`\
-https://nytimes.com/2024/04/19/science/space/astronomy-milky-way.html
-
-**Why India’s Opposition Can’t Get It Together**\
-`Prime Minister Narendra Modi’s party has never had the support of most voters. But his rivals are too fractured and dysfunctional to capitalize on that.`\
-https://nytimes.com/2024/04/19/world/asia/india-election-opposition.html
-
-**Iran Appears to Play Down Down Significance of Israeli Strike**\
-`In Israel, officials described the strike as a limited response designed to avoid escalating tensions. Iran state television said military and nuclear facilities were safe.`\
-https://nytimes.com/2024/04/19/world/middleeast/israel-iran-reaction.html
-
-**What I Learned From an Act of Violence in Sydney That Hit Too Close to Home**\
-`Amid early tidbits of misinformation came lessons about dodging falsities and allowing facts to build a story.`\
-https://nytimes.com/2024/04/19/world/australia/sydney-stabbing-westfield-bondi.html
-
-**Word of the Day: mediocre**\
-`This word has appeared in 96 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/04/19/learning/word-of-the-day-mediocre.html
-
-**Late Night Hosts Razz Republicans Trying to Oust Mike Johnson**\
-`“Being the speaker of the House nowadays is like being Leonardo DiCaprio’s girlfriend — you hang on as long as you can,” Jimmy Kimmel said.`\
-https://nytimes.com/2024/04/19/arts/television/late-night-mike-johnson-jimmy-kimmel-trump.html
-
-**Xi Thinks China Can Slow Climate Change. What if He’s Right?**\
-`He wants China to win the race to provide climate solutions and assume the global leadership that would come with it.`\
-https://nytimes.com/2024/04/19/opinion/china-climate-xi-jinping.html
-
-**Friday Briefing**\
-`Israel strikes Iran.`\
-https://nytimes.com/2024/04/19/briefing/israel-iran-strike-trump-jury.html
 
