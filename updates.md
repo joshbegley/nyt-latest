@@ -1,3 +1,7 @@
+**In Unusual Vote, Democrats Rescue Measure to Allow Vote on Ukraine Bill**\
+`A resolution to pave the way for the foreign aid package was on track to die in committee amid Republican opposition when Democrats stepped in to save it.`\
+https://nytimes.com/2024/04/18/us/politics/democrats-vote-ukraine-bill.html
+
 **Taylor Swift’s ‘Tortured Poets’ Arrives With a Promotional Blitz**\
 `The pop superstar’s latest album was preceded by a satellite radio channel, a word game, a return to TikTok and an actual library. For her fans, more is always welcome.`\
 https://nytimes.com/2024/04/19/arts/music/taylor-swift-tortured-poets-department.html

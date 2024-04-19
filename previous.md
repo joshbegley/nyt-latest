@@ -30,7 +30,7 @@ https://nytimes.com/2024/04/19/style/francis-marley-ashlee-miller-wedding.html
 `While I was with our new baby, my husband was with another woman.`\
 https://nytimes.com/2024/04/19/style/modern-love-after-the-affair-the-reckoning.html
 
-**In an Unusual Vote, Democrats Rescue Measure to Allow Vote on Ukraine Bill**\
+**In Unusual Vote, Democrats Rescue Measure to Allow Vote on Ukraine Bill**\
 `A resolution to pave the way for the foreign aid package was on track to die in committee amid Republican opposition when Democrats stepped in to save it.`\
 https://nytimes.com/2024/04/18/us/politics/democrats-vote-ukraine-bill.html
 
