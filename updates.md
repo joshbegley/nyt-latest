@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Farnaz Fassihi, Ronen Bergman and Patrick Kingsley`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/here-are-the-latest-developments
+
 **Fearing for Ukraine if Trump Returns, Some in Europe Try Outreach Now**\
 `A gathering of officials from Lithuania and Ukraine and supporters of Donald J. Trump highlights growing efforts to get on the good side of the former U.S. president in case he is elected again.`\
 https://nytimes.com/2024/04/19/world/europe/trump-ukraine-eastern-europe.html
