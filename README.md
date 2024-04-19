@@ -14,7 +14,7 @@ https://nytimes.com/2024/04/19/science/space/astronomy-milky-way.html
 `Prime Minister Narendra Modi’s party has never had the support of most voters. But his rivals are too fractured and dysfunctional to capitalize on that.`\
 https://nytimes.com/2024/04/19/world/asia/india-election-opposition.html
 
-**Iran Appears to Play Down Down Significance of Israeli Strike**\
+**Iran Appears to Play Down Significance of Israeli Strike**\
 `In Israel, officials described the strike as a limited response designed to avoid escalating tensions. Iran state television said military and nuclear facilities were safe.`\
 https://nytimes.com/2024/04/19/world/middleeast/israel-iran-reaction.html
 

@@ -1,3 +1,19 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/19/crosswords/spelling-bee-forum.html
+
+**The Unlikely Force Behind a Push to Legalize ‘Shrooms’ in New York**\
+`A lobbying effort led in part by religious groups has state lawmakers considering two different measures that would legalize psilocybin, a drug known as “magic mushrooms.”`\
+https://nytimes.com/2024/04/19/nyregion/mushrooms-psychedelics-religion-jews.html
+
+**The Dusty Magnets ofthe Milky Way**\
+`A new map of the center of the Milky Way galaxy reveals details of its magnetic fields`\
+https://nytimes.com/2024/04/19/science/space/astronomy-milky-way.html
+
+**Why India’s Opposition Can’t Get It Together**\
+`Prime Minister Narendra Modi’s party has never had the support of most voters. But his rivals are too fractured and dysfunctional to capitalize on that.`\
+https://nytimes.com/2024/04/19/world/asia/india-election-opposition.html
+
 **Iran Appears to Play Down Down Significance of Israeli Strike**\
 `In Israel, officials described the strike as a limited response designed to avoid escalating tensions. Iran state television said military and nuclear facilities were safe.`\
 https://nytimes.com/2024/04/19/world/middleeast/israel-iran-reaction.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/19/opinion/china-climate-xi-jinping.html
 **Friday Briefing**\
 `Israel strikes Iran.`\
 https://nytimes.com/2024/04/19/briefing/israel-iran-strike-trump-jury.html
-
-**Taylor Swift’s ‘Tortured Poets’ Arrives With a Promotional Blitz**\
-`The pop superstar’s latest album was preceded by a satellite radio channel, a word game, a return to TikTok and an actual library. For her fans, more is always welcome.`\
-https://nytimes.com/2024/04/19/arts/music/taylor-swift-tortured-poets-department.html
-
-**Modi’s Power Keeps Growing, and India Looks Sure to Give Him More**\
-`Few doubt the popular prime minister will win a third term in voting that starts Friday. His strong hand is just what many Indians seem to want.`\
-https://nytimes.com/2024/04/19/world/asia/modi-india-election.html
-
-**A Steady Stream of Road Trips Made Falling in Love Easy**\
-`As Deborah Yarchun and Benjamin Parr traveled across the country during the pandemic, their bond became stronger at each stop.`\
-https://nytimes.com/2024/04/19/style/deborah-yarchun-benjamin-parr-wedding.html
-
-**Corrections: April 19, 2024**\
-`Corrections that appeared in print on Friday, April 19, 2024.`\
-https://nytimes.com/2024/04/19/pageoneplus/corrections-april-19-2024.html
 
