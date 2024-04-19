@@ -1,3 +1,11 @@
+**In Venice, a Conservative Painter Stages an Unpopular Rebellion**\
+`Poland’s right-wing government tapped the artist Ignacy Czwartos for the Venice Biennale before it was voted out of office. The new government canceled his show, but he is staging it anyway.`\
+https://nytimes.com/2024/04/19/arts/design/venice-biennale-poland.html
+
+**Israel Strikes Iran, and the Trump Trial Gets a Jury**\
+`Plus, a “tortured” Taylor Swift.`\
+https://nytimes.com/2024/04/19/podcasts/israel-iran-taylor-swift.html
+
 **The Supreme Court Takes Up Homelessness**\
 `Can cities make it illegal to live on the streets?`\
 https://nytimes.com/2024/04/19/podcasts/the-daily/supreme-court-homelessness.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/04/19/arts/weekend-editors-picks-Taylor-Swi
 **The New York Times News Quiz, April 19, 2024**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2024/04/19/briefing/news-quiz-taylor-swift-trump-trial-wnba.html
-
-**8 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about even if you’re not planning to see them.`\
-https://nytimes.com/2024/04/19/movies/new-movies-this-week-critics.html
-
-**The Humble Item That’s Become a Restaurant Status Symbol**\
-`Why is every server wearing a chore coat?`\
-https://nytimes.com/2024/04/19/dining/restaurants-chore-coats.html
 

@@ -1,3 +1,11 @@
+**In Venice, a Conservative Painter Stages an Unpopular Rebellion**\
+`Poland’s right-wing government tapped the artist Ignacy Czwartos for the Venice Biennale before it was voted out of office. The new government canceled his show, but he is staging it anyway.`\
+https://nytimes.com/2024/04/19/arts/design/venice-biennale-poland.html
+
+**Israel Strikes Iran, and the Trump Trial Gets a Jury**\
+`Plus, a “tortured” Taylor Swift.`\
+https://nytimes.com/2024/04/19/podcasts/israel-iran-taylor-swift.html
+
 **The Supreme Court Takes Up Homelessness**\
 `Can cities make it illegal to live on the streets?`\
 https://nytimes.com/2024/04/19/podcasts/the-daily/supreme-court-homelessness.html
