@@ -1,3 +1,7 @@
+**Where Jurors in Trump Hush-Money Trial Say They Get Their News**\
+`Prosecutors and defense lawyers tried to divine the political leanings of prospective jurors in the former president’s Manhattan criminal trial from their answers to questions about what media they consume.`\
+https://nytimes.com/2024/04/19/nyregion/trump-trial-jury-news.html
+
 **As Press Reports Some Juror Details, Polarized Reactions Take Over**\
 `Journalists covering the trial face a tricky balancing act: inform the public while keeping its participants out of harm’s way.`\
 https://nytimes.com/2024/04/19/business/media/trump-trial-jurors-press-reports.html

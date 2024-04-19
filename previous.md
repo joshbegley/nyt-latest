@@ -1,3 +1,7 @@
+**Where Jurors in Trump Hush-Money Trial Say They Get Their News**\
+`Prosecutors and defense lawyers tried to divine the political leanings of prospective jurors in the former president’s Manhattan criminal trial from their answers to questions about what media they consume.`\
+https://nytimes.com/2024/04/19/nyregion/trump-trial-jury-news.html
+
 **As Press Reports Some Juror Details, Polarized Reactions Take Over**\
 `Journalists covering the trial face a tricky balancing act: inform the public while keeping its participants out of harm’s way.`\
 https://nytimes.com/2024/04/19/business/media/trump-trial-jurors-press-reports.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/briefing/ukraine-israel-house-aid-taylor-swift-mu
 **Hillary Clinton and Malala Yousafzai Toast Their New Broadway Show**\
 `Dozens of theater, film and media stars turned out on Thursday night for the opening of “Suffs,” a new musical about women’s suffrage.`\
 https://nytimes.com/2024/04/19/style/suffs-broadway-hillary-clinton-malala-yousafzai.html
-
-**The 10 Best Things We Saw at Salone del Mobile**\
-`From an exhibition in a 1940s-era Modernist house to a blood-red sofa, the highlights of Milan’s annual design fair.`\
-https://nytimes.com/2024/04/19/t-magazine/salone-del-mobile-highlights.html
 
