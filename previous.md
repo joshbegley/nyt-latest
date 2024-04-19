@@ -1,3 +1,7 @@
+**Word of the Day: mediocre**\
+`This word has appeared in 96 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/19/learning/word-of-the-day-mediocre.html
+
 **Late Night Hosts Razz Republicans Trying to Oust Mike Johnson**\
 `“Being the speaker of the House nowadays is like being Leonardo DiCaprio’s girlfriend — you hang on as long as you can,” Jimmy Kimmel said.`\
 https://nytimes.com/2024/04/19/arts/television/late-night-mike-johnson-jimmy-kimmel-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/style/alex-zhou-eddie-kay-wedding.html
 **Under Construction: A Remodeled House and Requited Love**\
 `Caroline Franklin, a teacher, and Kevin Wilkes, an architect, dated in high school, and then again 49 years later.`\
 https://nytimes.com/2024/04/19/style/caroline-franklin-kevin-wilkes-wedding.html
-
-**He Had Her at the Baby Moose**\
-`Ashleé Miller, a musician, expanded her dating profile to upstate New York and Massachusetts. She didn’t expect to end up in Alaska with Francis Marley, a search and rescue operator.`\
-https://nytimes.com/2024/04/19/style/francis-marley-ashlee-miller-wedding.html
 

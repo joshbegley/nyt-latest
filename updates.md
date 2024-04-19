@@ -1,3 +1,7 @@
+**Word of the Day: mediocre**\
+`This word has appeared in 96 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/19/learning/word-of-the-day-mediocre.html
+
 **Late Night Hosts Razz Republicans Trying to Oust Mike Johnson**\
 `“Being the speaker of the House nowadays is like being Leonardo DiCaprio’s girlfriend — you hang on as long as you can,” Jimmy Kimmel said.`\
 https://nytimes.com/2024/04/19/arts/television/late-night-mike-johnson-jimmy-kimmel-trump.html
