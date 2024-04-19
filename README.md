@@ -1,3 +1,7 @@
+**Hillary Clinton and Malala Yousafzai Toast Their New Broadway Show**\
+`Dozens of theater, film and media stars turned out for the opening of the new musical “Suffs” on Thursday night.`\
+https://nytimes.com/2024/04/19/style/suffs-broadway-hillary-clinton-malala-yousafzai.html
+
 **The 10 Best Things We Saw at Salone del Mobile**\
 `From an exhibition in a 1940s-era Modernist house to a blood-red sofa, the highlights of Milan’s annual design fair.`\
 https://nytimes.com/2024/04/19/t-magazine/salone-del-mobile-highlights.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/books/daniel-dennett-dead.html
 **Israel Launched Missiles as Well as Drones at Iran, Officials Say**\
 `Though it was not immediately clear if the missiles struck targets inside Iran, their use would mean more sophisticated firepower was involved in the attack than first reported.`\
 https://nytimes.com/2024/04/19/world/middleeast/israel-iran-jets-missiles-strikes.html
-
-**In Trump Trial, Old Social Posts Haunt the Proceedings**\
-`Over the past week, some potential jurors who were confronted with their old posts seemed sheepish, if not outright embarrassed.`\
-https://nytimes.com/2024/04/19/nyregion/trump-trial-jurors-tweets-facebook.html
 
