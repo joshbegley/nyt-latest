@@ -1,3 +1,7 @@
+**F.A.A. Will Require More Rest for Air Traffic Controllers**\
+`The agency announced new rules to address the dangers of exhaustion for controllers, who often work grueling round-the-clock schedules.`\
+https://nytimes.com/2024/04/19/business/faa-air-traffic-controllers-close-calls.html
+
 **Final Members of Trump Jury Chosen as Trial Races Ahead**\
 `Just after the last selections of alternate jurors were made, a man set himself on fire outside the courthouse, horrifying onlookers. But the case was not delayed.`\
 https://nytimes.com/2024/04/19/nyregion/trump-jury-immolation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/nyregion/nicholas-welker-sentenced-journalist-dea
 **Harvard’s Taylor Swift Scholars Have Thoughts on ‘Tortured Poets’**\
 `The students taking Harvard University’s class on the singer are studying up. Their final papers are due at the end of the month.`\
 https://nytimes.com/2024/04/19/style/taylor-swift-harvard-class-tortured-poets.html
-
-**Greece Announces New Plan to Protect Some of Its Pristine Beaches**\
-`The government has pledged to crack down on rapid development, and on seaside businesses seeking to take advantage of a tourist boom. But some residents and conservationists are unimpressed.`\
-https://nytimes.com/2024/04/19/world/europe/greece-beaches-tourists.html
 

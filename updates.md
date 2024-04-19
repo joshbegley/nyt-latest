@@ -1,3 +1,7 @@
+**F.A.A. Will Require More Rest for Air Traffic Controllers**\
+`The agency announced new rules to address the dangers of exhaustion for controllers, who often work grueling round-the-clock schedules.`\
+https://nytimes.com/2024/04/19/business/faa-air-traffic-controllers-close-calls.html
+
 **Final Members of Trump Jury Chosen as Trial Races Ahead**\
 `Just after the last selections of alternate jurors were made, a man set himself on fire outside the courthouse, horrifying onlookers. But the case was not delayed.`\
 https://nytimes.com/2024/04/19/nyregion/trump-jury-immolation.html
