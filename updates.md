@@ -1,3 +1,19 @@
+**Prosecutors signal they will ask Trump about attacks on women if he testifies.**\
+`By Jonah E. Bromwich and Matthew Haag`\
+https://nytimes.com/live/2024/04/19/nyregion/trump-trial-hush-money/prosecutors-signal-they-will-ask-trump-about-attacks-on-women-if-he-testifies
+
+**Like Moths to a Flame? We May Need a New Phrase.**\
+`Over time researchers have found fewer of the insects turning up in light traps, suggesting they may be less attracted to some kinds of light than they once were.`\
+https://nytimes.com/2024/04/19/science/moths-light-attracted.html
+
+**What Would the Economy Look Like Under a Second Trump Term?**\
+`Much would depend on Congress and the cabinet, but financial forecasters aren’t optimistic.`\
+https://nytimes.com/2024/04/19/opinion/trump-second-term-economy.html
+
+**Mike Johnson Deserves to Keep His Job**\
+`By joining with Democrats to approve aid to Ukraine, he has defied low expectations.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/johnson-ukraine-aid-democrats
+
 **The Best of Late Night This Week**\
 `This week, there was one topic top of mind for the hosts, and one topic only: the start of former President Trump’s criminal hush-money trial in Manhattan.`\
 https://nytimes.com/interactive/2024/04/19/arts/television/best-of-late-night-trump-trial.html
