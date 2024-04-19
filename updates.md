@@ -1,3 +1,11 @@
+**19mideast-crisis**\
+`Live Updates: Iran State-Run Media Reports Explosions`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news
+
+**Blasts are reported near the Iranian city of Isfahan.**\
+`By Farnaz Fassihi and Patrick Kingsley`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/blasts-are-reported-near-the-iranian-city-of-isfahan
+
 **Variety: Acrostic**\
 `David Balton and Jane Stewart present a puzzle that plays out beautifully.`\
 https://nytimes.com/2024/04/18/crosswords/variety-acrostic.html
