@@ -1,3 +1,7 @@
+**The Ex-Bernie Sanders Pollster Raising Alarms About R.F.K. Jr.’s Appeal Among Latinos and Young Voters**\
+`A Democrat warns that the independent could siphon crucial support from Biden.`\
+https://nytimes.com/2024/04/19/us/politics/rfk-jr-young-voters-latinos.html
+
 **Liberal Democrats Urge ‘No’ Vote on Israel Aid to Pressure Biden on Gaza**\
 `Progressives in the House who oppose unfettered military aid to Israel are pressing their colleagues to vote against the $26 billion bill, which is likely to pass, to send a message to President Biden.`\
 https://nytimes.com/2024/04/19/us/politics/democrats-israel-aid-gaza.html
