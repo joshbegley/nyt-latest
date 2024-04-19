@@ -1,3 +1,7 @@
+**4 Disqualified from Beijing Race After 3 Let Chinese Runner Pass**\
+`A strange finish at the Beijing Half Marathon on Sunday led to an investigation and penalties.`\
+https://nytimes.com/2024/04/19/sports/beijing-half-marathon-runners-disqualified.html
+
 **It was an intense day for some potential jurors as they answered personal questions.**\
 `By Maggie Haberman, Jesse McKinley and Wesley Parnell`\
 https://nytimes.com/live/2024/04/19/nyregion/trump-trial-hush-money/it-was-an-intense-day-for-some-potential-jurors-as-they-answered-personal-questions
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/insider/african-american-burial-ground-photos.htm
 **A Brief Guide to Who’s Who on Taylor Swift’s ‘Tortured Poets’**\
 `Ex-boyfriends may be alluded to. Travis Kelce, too, fans believe. And some actual poets.`\
 https://nytimes.com/2024/04/19/style/taylor-swift-lyrics-tortured-poets-department.html
-
-**Watch the Lyrid Meteor Shower Reach Its Peak**\
-`A nearly full moon could interfere with the shower during its peak. It is forecast to be active until near the end of the month.`\
-https://nytimes.com/2024/04/19/science/lyrid-meteor-shower-time-peak.html
 
