@@ -1,3 +1,7 @@
+**How TikTok Changed Us**\
+`The app’s videos have become a fixture in the lives of tens of millions of Americans.`\
+https://nytimes.com/2024/04/19/briefing/tiktok-congress.html
+
 **In Venice, a Conservative Painter Stages an Unpopular Rebellion**\
 `Poland’s right-wing government tapped the artist Ignacy Czwartos for the Venice Biennale before it was voted out of office. The new government canceled his show, but he is staging it anyway.`\
 https://nytimes.com/2024/04/19/arts/design/venice-biennale-poland.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/upshot/trump-polling-trial.html
 **5 Things to Do This Weekend**\
 `A selection of entertainment highlights this weekend, including Taylor Swift’s new album, “The Tortured Poets Department.”`\
 https://nytimes.com/interactive/2024/04/19/arts/weekend-editors-picks-Taylor-Swift.html
-
-**The New York Times News Quiz, April 19, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/04/19/briefing/news-quiz-taylor-swift-trump-trial-wnba.html
 
