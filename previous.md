@@ -26,8 +26,8 @@ https://nytimes.com/2024/04/19/world/europe/trump-ukraine-eastern-europe.html
 `Will more stringent tactics subdue protests? Or fuel them?`\
 https://nytimes.com/2024/04/19/us/at-columbia-the-protests-continued-with-dancing-and-pizza.html
 
-**As Trial Begins, Was Trump Benefiting From Being Out of the News?**\
-`His liabilities weren’t dominating the conversation the way they once did, perhaps helping his polling.`\
+**Was Trump Benefiting From Being Out of the News?**\
+`His liabilities weren’t dominating the conversation the way they once did, perhaps helping his polling, but the trial could change things.`\
 https://nytimes.com/2024/04/19/upshot/trump-polling-trial.html
 
 **5 Things to Do This Weekend**\

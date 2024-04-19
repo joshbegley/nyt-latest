@@ -1,3 +1,7 @@
+**Was Trump Benefiting From Being Out of the News?**\
+`His liabilities weren’t dominating the conversation the way they once did, perhaps helping his polling, but the trial could change things.`\
+https://nytimes.com/2024/04/19/upshot/trump-polling-trial.html
+
 **In Venice, a Conservative Painter Stages an Unpopular Rebellion**\
 `Poland’s right-wing government tapped the artist Ignacy Czwartos for the Venice Biennale before it was voted out of office. The new government canceled his show, but he is staging it anyway.`\
 https://nytimes.com/2024/04/19/arts/design/venice-biennale-poland.html
