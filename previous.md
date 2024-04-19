@@ -1,3 +1,7 @@
+**Apple Says It Was Ordered to Pull WhatsApp From China App Store**\
+`Apple said it removed WhatsApp and Threads in its China app offerings Friday on Beijing’s orders, amid technological tensions between the U.S. and China.`\
+https://nytimes.com/2024/04/18/technology/apple-whatsapp-china-app-store.html
+
 **The U.S. defense secretary spoke with Israel’s top defense official on Thursday afternoon, the Pentagon says.**\
 `By Eric Schmitt`\
 https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/the-us-defense-secretary-spoke-with-israels-top-defense-official-on-thursday-afternoon-the-pentagon-says
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/us/politics/catholic-extremists-fbi.html
 **U.S. and Allies Penalize Iran for Striking Israel, and Try to Avert War**\
 `While imposing sanctions on Iran, U.S. and European governments are urging restraint amid fears of a cycle of escalation as Israel weighs retaliation for an Iranian attack.`\
 https://nytimes.com/2024/04/18/world/middleeast/israel-iran-sanctions.html
-
-**Day 3 of Trump’s Criminal Trial: Five Takeaways**\
-`A jury of 12 people was chosen, and alternate members will be picked Friday. They will help write American history.`\
-https://nytimes.com/2024/04/18/nyregion/trump-criminal-trial-takeaways.html
 
