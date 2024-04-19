@@ -1,3 +1,7 @@
+**R.F.K. Jr. Raises New Uncertainty for Biden in Michigan**\
+`Mr. Kennedy’s success in landing on the battleground state’s ballot guarantees that he will shape the race this November. Both parties are racing to define him.`\
+https://nytimes.com/2024/04/19/us/politics/rfk-biden-trump-michigan.html
+
 **Hillary Clinton and Malala Yousafzai Toast Their New Broadway Show**\
 `Dozens of theater, film and media stars turned out on Thursday night for the opening of “Suffs,” a new musical about women’s suffrage.`\
 https://nytimes.com/2024/04/19/style/suffs-broadway-hillary-clinton-malala-yousafzai.html

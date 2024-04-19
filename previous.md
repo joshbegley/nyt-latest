@@ -1,3 +1,7 @@
+**R.F.K. Jr. Raises New Uncertainty for Biden in Michigan**\
+`Mr. Kennedy’s success in landing on the battleground state’s ballot guarantees that he will shape the race this November. Both parties are racing to define him.`\
+https://nytimes.com/2024/04/19/us/politics/rfk-biden-trump-michigan.html
+
 **The House Is Set to Approve Ukraine Aid This Weekend**\
 `Also, the Israeli military struck Iran. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/04/19/briefing/ukraine-israel-house-aid-taylor-swift-music.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/nyregion/trump-jury-immolation.html
 **Rough Seas for Blinken and Co. as Israel, Iran and Ukraine Cloud G7 Meeting**\
 `Secretary of State Antony J. Blinken and his counterparts, who met on the Italian island of Capri, welcomed signs that tensions between Iran and Israel might not worsen.`\
 https://nytimes.com/2024/04/19/world/europe/g7-blinken-israel-iran-ukraine.html
-
-**Daniel C. Dennett, Widely Read and Fiercely Debated Philosopher, Dies at 82**\
-`Espousing his ideas in best sellers, he insisted that religion was an illusion, free will was a fantasy and evolution could only be explained by natural selection.`\
-https://nytimes.com/2024/04/19/books/daniel-dennett-dead.html
 
