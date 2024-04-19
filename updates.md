@@ -1,3 +1,7 @@
+**8 Hits of the Venice Biennale**\
+`These highlights drew the big crowds in the early days, from a sonorous symphony made by fruit, to an underwater spectacle to a modern day Tintoretto.`\
+https://nytimes.com/2024/04/19/arts/design/8-hits-of-the-venice-biennale.html
+
 **India Kicks Off 44 Days of Voting**\
 `More than 960 million Indians are eligible to vote as the world’s most populous country elects a new Parliament in this general election.`\
 https://nytimes.com/video/world/asia/100000009422795/india-election-modi-parliament.html
