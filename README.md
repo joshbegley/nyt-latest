@@ -1,3 +1,7 @@
+**Shadow War Between Iran and Israel: A Timeline**\
+`A recent round of strikes has brought the conflict more clearly into the open and raised fears of a broader war.`\
+https://nytimes.com/2024/04/19/world/middleeast/iran-israel-shadow-war-history.html
+
 **How Eight Feet Jolted A $180 Million Real Estate Deal**\
 `A landowner named Hezekiah Beers Pierrepont started selling plots of his Brooklyn land in the 1820s restricted by eight-foot setbacks still in effect today, rankling modern developers.`\
 https://nytimes.com/interactive/2024/04/19/realestate/st-francis-college-brooklyn.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/magazine/first-date-bathroom.html
 **When It’s Time for an Aging Driver to Hit the Brakes**\
 `The “car key conversation” can be painful for families to navigate. Experts say there are ways to have it with empathy and care.`\
 https://nytimes.com/2024/04/19/well/family/seniors-driving.html
-
-**Israel Has Used Exploding Drones in Previous Attacks on Iran**\
-`Iranian officials said that an attack Friday used small drones possibly launched from inside Iran, and that radar systems had not detected unidentified aircraft entering Iranian airspace.`\
-https://nytimes.com/2024/04/19/world/middleeast/israel-drone-attacks-iran.html
 
