@@ -1,3 +1,7 @@
+**Iran Appears to Play Down Down Significance of Israeli Strike**\
+`In Israel, officials described the strike as a limited response designed to avoid escalating tensions. Iran state television said military and nuclear facilities were safe.`\
+https://nytimes.com/2024/04/19/world/middleeast/israel-iran-reaction.html
+
 **What I Learned From an Act of Violence in Sydney That Hit Too Close to Home**\
 `Amid early tidbits of misinformation came lessons about dodging falsities and allowing facts to build a story.`\
 https://nytimes.com/2024/04/19/world/australia/sydney-stabbing-westfield-bondi.html
