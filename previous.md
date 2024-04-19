@@ -1,3 +1,7 @@
+**Variety: Acrostic**\
+`David Balton and Jane Stewart present a puzzle that plays out beautifully.`\
+https://nytimes.com/2024/04/18/crosswords/variety-acrostic.html
+
 **Shell Company**\
 `Kate Hawkins opens our solving weekend.`\
 https://nytimes.com/2024/04/18/crosswords/daily-puzzle-2024-04-19.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/18/us/politics/trump-documents-case-dismissal-co-def
 **Columbia Sends In the N.Y.P.D. to Arrest Protesters in Tent City**\
 `The university president broke with a decades-long tradition and called in the police to quell the pro-Palestinian protest. The encampment was then dismantled.`\
 https://nytimes.com/2024/04/18/nyregion/columbia-university-tent-city-palestinian-protest.html
-
-**The Courage to Follow the Evidence on Transgender Care**\
-`Dr. Hilary Cass’s thoughtful medical review is a model for how we should address difficult issues.`\
-https://nytimes.com/2024/04/18/opinion/transgender-care-cass-report.html
 
