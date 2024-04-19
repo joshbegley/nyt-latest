@@ -1,3 +1,11 @@
+**Daniel C. Dennett, Widely Read and Fiercely Debated Philosopher, Dies at 82**\
+`Espousing his ideas in best sellers, he insisted that religion was an illusion, free will was a fantasy and evolution could only be explained by natural selection.`\
+https://nytimes.com/2024/04/19/books/daniel-dennett-dead.html
+
+**Israel Launched Missiles as Well as Drones at Iran, Officials Say**\
+`Though it was not immediately clear if the missiles struck targets inside Iran, their use would mean more sophisticated firepower was involved in the attack than first reported.`\
+https://nytimes.com/2024/04/19/world/middleeast/israel-iran-jets-missiles-strikes.html
+
 **In Trump Trial, Old Social Posts Haunt the Proceedings**\
 `Over the past week, some potential jurors who were confronted with their old posts seemed sheepish, if not outright embarrassed.`\
 https://nytimes.com/2024/04/19/nyregion/trump-trial-jurors-tweets-facebook.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/19/technology/manish-lachwani-headspin-fraud.html
 **Mariinsky Dancers Barred From Youth Ballet Gala in New York**\
 `Two dancers from the Russian company were set to perform at a benefit for a prestigious competition for young dancers, but they were sidelined after protests by pro-Ukrainian activists.`\
 https://nytimes.com/2024/04/19/arts/dance/mariinsky-dancers-barred-youth-america-grand-prix.html
-
-**Prosecutors Want to Ask Trump About Attacks on Women**\
-`Prosecutors are seeking to cross-examine the former president, should he take the stand, about lawsuits he has lost, including a civil jury’s finding last year that he was liable for sexually abusing the writer E. Jean Carroll.`\
-https://nytimes.com/2024/04/19/nyregion/trump-trial-manhattan-sandoval-hearing.html
-
-**Like Moths to a Flame? We May Need a New Phrase.**\
-`Over time researchers have found fewer of the insects turning up in light traps, suggesting they may be less attracted to some kinds of light than they once were.`\
-https://nytimes.com/2024/04/19/science/moths-light-attracted.html
 

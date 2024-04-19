@@ -1,3 +1,11 @@
+**Daniel C. Dennett, Widely Read and Fiercely Debated Philosopher, Dies at 82**\
+`Espousing his ideas in best sellers, he insisted that religion was an illusion, free will was a fantasy and evolution could only be explained by natural selection.`\
+https://nytimes.com/2024/04/19/books/daniel-dennett-dead.html
+
+**Israel Launched Missiles as Well as Drones at Iran, Officials Say**\
+`Though it was not immediately clear if the missiles struck targets inside Iran, their use would mean more sophisticated firepower was involved in the attack than first reported.`\
+https://nytimes.com/2024/04/19/world/middleeast/israel-iran-jets-missiles-strikes.html
+
 **In Trump Trial, Old Social Posts Haunt the Proceedings**\
 `Over the past week, some potential jurors who were confronted with their old posts seemed sheepish, if not outright embarrassed.`\
 https://nytimes.com/2024/04/19/nyregion/trump-trial-jurors-tweets-facebook.html
