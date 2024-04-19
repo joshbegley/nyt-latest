@@ -1,3 +1,7 @@
+**How TikTok Changed Us**\
+`The app’s videos have become a fixture in the lives of tens of millions of Americans.`\
+https://nytimes.com/2024/04/19/briefing/tiktok-congress.html
+
 **Was Trump Benefiting From Being Out of the News?**\
 `His liabilities weren’t dominating the conversation the way they once did, perhaps helping his polling, but the trial could change things.`\
 https://nytimes.com/2024/04/19/upshot/trump-polling-trial.html
