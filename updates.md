@@ -1,3 +1,7 @@
+**Columbia University Arrests Student Pro-Palestinian Protesters**\
+`The police arrested more than 100 students demonstrators at a tent encampment set up on the campus of Columbia University in New York City.`\
+https://nytimes.com/video/us/100000009422988/columbia-arrests-palestinian-protesters-students.html
+
 **Judge John Hodgman on the Strange First Date Choice**\
 `3 years later, a couple is still at odds about his move at the end of the night.`\
 https://nytimes.com/2024/04/19/magazine/first-date-bathroom.html
