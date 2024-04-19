@@ -1,3 +1,7 @@
+**Menendez Corruption Trial Delayed for One Week**\
+`The senator’s trial will start May 13, a week later than planned, to give defense lawyers more time to prepare.`\
+https://nytimes.com/2024/04/19/nyregion/menendez-bribery-trial-delay.html
+
 **Mandisa Hundley, ‘American Idol’ Singer and Grammy Winner, Dies at 47**\
 `She performed and produced music with Christian themes and won a Grammy Award in 2013.`\
 https://nytimes.com/2024/04/19/arts/music/mandisa-hundley-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/us/politics/dave-mccormick-farm-pennsylvania.html
 **Columbia, Free Speech and the Coddling of the American Right**\
 `If Columbia can’t protect free speech, what hope is there for America’s institutions?`\
 https://nytimes.com/2024/04/19/opinion/columbia-protests-israel-gaza-crackdown.html
-
-**Taylor Swift and Post Malone’s Regretful Duet, and 9 More New Songs**\
-`Hear tracks by Arooj Aftab, Cigarettes After Sex, Claire Rousay and others.`\
-https://nytimes.com/2024/04/19/arts/music/playlist-taylor-swift-arooj-aftab-claire-rousay.html
 
