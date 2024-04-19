@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`Israel strikes Iran.`\
+https://nytimes.com/2024/04/19/briefing/israel-iran-strike-trump-jury.html
+
 **In Unusual Vote, Democrats Rescue Measure to Allow Vote on Ukraine Bill**\
 `A resolution to pave the way for the foreign aid package was on track to die in committee amid Republican opposition when Democrats stepped in to save it.`\
 https://nytimes.com/2024/04/18/us/politics/democrats-vote-ukraine-bill.html
