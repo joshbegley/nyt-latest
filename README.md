@@ -1,3 +1,7 @@
+**The 10 Best Things We Saw at Salone del Mobile**\
+`From an exhibition in a 1940s-era Modernist house to a blood-red sofa, the highlights of Milan’s annual design fair.`\
+https://nytimes.com/2024/04/19/t-magazine/salone-del-mobile-highlights.html
+
 **Good Luck Getting Your Hands on Buldak Carbonara Ramen**\
 `With its bright pink packaging and spicy contents, these Korean-made instant ramen packs are going viral online and flying off shelves.`\
 https://nytimes.com/2024/04/19/dining/buldak-carbonara-ramen-tiktok.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/world/middleeast/israel-iran-jets-missiles-strike
 **In Trump Trial, Old Social Posts Haunt the Proceedings**\
 `Over the past week, some potential jurors who were confronted with their old posts seemed sheepish, if not outright embarrassed.`\
 https://nytimes.com/2024/04/19/nyregion/trump-trial-jurors-tweets-facebook.html
-
-**I’m Pregnant, and My Husband Says We Can’t Tell Anyone About the Donor Egg**\
-`The magazine’s Ethicist columnist on whether to honor a spouse’s seemingly irrational request about privacy and assisted reproduction.`\
-https://nytimes.com/2024/04/19/magazine/donor-egg-secrecy-ethics.html
 
