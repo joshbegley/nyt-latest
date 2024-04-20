@@ -1,3 +1,7 @@
+**Columbia Students Arrested Over Campus Rally May Face Other Consequences**\
+`Students who occupied a tent encampment to protest the war in Gaza say they may not be allowed to complete the semester. That did not dampen their commitment.`\
+https://nytimes.com/2024/04/20/nyregion/arrested-columbia-students-suspended.html
+
 **Lawsuit Puts Fresh Focus on Eric Hovde’s Comments About Older Voters**\
 `Pressed on his claims of 2020 election irregularities, the Republican candidate for Senate in Wisconsin has questioned the mental capacity of nursing home residents to vote.`\
 https://nytimes.com/2024/04/20/us/politics/california-lawsuit-wisconsin-senate-race.html
