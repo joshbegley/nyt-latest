@@ -1,3 +1,7 @@
+**U.S. Military Aid for Ukraine Could Soon Flow Again**\
+`What would $60 billion buy? Lots of air-defense missiles and artillery ammunition, according to the Pentagon.`\
+https://nytimes.com/2024/04/20/us/politics/weapons-aid-ukraine-military.html
+
 **David H. Pryor, Arkansas Senator and Clinton Ally, Dies at 88**\
 `During his 34 years as an elected official, Mr. Pryor was sometimes said to be more liberal, especially on racial issues, than the people who elected him.`\
 https://nytimes.com/2024/04/20/us/politics/david-h-pryor-dead.html
