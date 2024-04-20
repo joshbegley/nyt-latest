@@ -10,7 +10,7 @@ https://nytimes.com/2024/04/20/us/politics/weapons-aid-ukraine-military.html
 `During his 34 years as an elected official, Mr. Pryor was sometimes said to be more liberal, especially on racial issues, than the people who elected him.`\
 https://nytimes.com/2024/04/20/us/politics/david-h-pryor-dead.html
 
-**A Holiday for Weed Fans, Complete With Corporate Sponsors**\
+**A Holiday for Weed Fans, Complete With Sponsors**\
 `With the legalization of marijuana in New York, celebrations of “4/20” have gone mainstream.`\
 https://nytimes.com/2024/04/20/nyregion/420-weed-celebration-sponsor.html
 
