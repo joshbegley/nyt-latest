@@ -1,3 +1,7 @@
+**VW Workers in Tennessee Vote for Union, a Labor Milestone**\
+`The Volkswagen plant in Chattanooga is set to become the first unionized auto factory in the South not owned by one of Detroit’s Big Three.`\
+https://nytimes.com/2024/04/19/business/economy/volkswagen-united-automobile-workers-union.html
+
 **Sentimental Feelings**\
 `Garrett Chalfin and Andrew Kingsley’s puzzle is inviting without being too forward.`\
 https://nytimes.com/2024/04/19/crosswords/daily-puzzle-2024-04-20.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/satellite-im
 **U.S. Military to Withdraw Troops From Niger**\
 `The status of a $110 million air base in the desert remains unclear as the West African country deepens its ties with Russia.`\
 https://nytimes.com/2024/04/19/us/politics/us-niger-military-withdrawal.html
-
-**Scientists Fault Federal Response to Bird Flu Outbreaks on Dairy Farms**\
-`Testing for H5N1 infection has been limited, and the outbreak was never confined. But asymptomatic cows in North Carolina may require a reassessment.`\
-https://nytimes.com/2024/04/19/health/bird-flu-usda-cattle.html
 
