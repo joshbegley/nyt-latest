@@ -1,3 +1,7 @@
+**Get Cracking**\
+`Looking for an intricate diversion? Pick this puzzle by Michael Schlossberg — what’s inside pays off.`\
+https://nytimes.com/2024/04/20/crosswords/daily-puzzle-2024-04-21.html
+
 **The Palestinian Authority’s president threatens to reconsider relations with the United States.**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/the-palestinian-authoritys-president-threatens-to-reconsider-relations-with-the-united-states
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/israeli-raid
 **Martin Wygod, a Winner on Wall Street and the Racetrack, Dies at 84**\
 `After he made a fortune selling prescription drugs and providing medical information online, he and his wife became leading breeders of thoroughbred horses.`\
 https://nytimes.com/2024/04/20/business/martin-wygod-dead.html
-
-**U.S. Military Aid for Ukraine Could Soon Flow Again**\
-`What would $60 billion buy? Lots of air-defense missiles and artillery ammunition, according to the Pentagon.`\
-https://nytimes.com/2024/04/20/us/politics/weapons-aid-ukraine-military.html
 
