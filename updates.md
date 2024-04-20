@@ -1,3 +1,11 @@
+**Strike was meant to show Iran that Israel could paralyze its defenses, Western officials say.**\
+`The strike, two Western officials said, was calculated to deliver a message to Iran that Israel could bypass Iran’s defense systems undetected and paralyze them.`\
+https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/strike-was-meant-to-show-iran-that-israel-could-paralyze-its-defenses-western-officials-say
+
+**20mideast-crisis**\
+`Israeli Weapon Damaged Iranian Air Defenses Without Being Detected, Officials Say`\
+https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news
+
 **House Set to Vote on Foreign Aid Bills for Ukraine, Israel and Taiwan**\
 `After clearing a critical hurdle on Friday, the pieces of the $95 billion package was expected to pass in a series of votes, putting the legislation on track for enactment after a tortured journey through Congress.`\
 https://nytimes.com/2024/04/20/world/europe/house-vote-aid-ukraine-israel.html
