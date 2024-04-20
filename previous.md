@@ -1,3 +1,7 @@
+**Donald Trump will hold a campaign rally in North Carolina, his first since his criminal trial began.**\
+`By Chris Cameron`\
+https://nytimes.com/2024/04/20/us/politics/donald-trump-will-hold-a-campaign-rally-in-north-carolina-his-first-since-his-criminal-trial-began.html
+
 **Nevada G.O.P. Senate primary heats up as the long shot goes after the front-runner.**\
 `The Army veteran Sam Brown remains the favorite, but the wealthy former ambassador Jeff Gunter, with a pro-Trump message, is trying to shake up the race.`\
 https://nytimes.com/2024/04/19/us/politics/nevada-gop-senate-primary-gunter.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/podcasts/this-american-life-seemed-like-a-good-id
 **Takeaways From Our Chinese Swimming Investigation**\
 `A doping case involving Olympic swimmers has left unanswered questions and raised new concerns about the actions of a global antidoping regulator.`\
 https://nytimes.com/2024/04/20/world/asia/china-swimming-doping-takeaways.html
-
-**2 Books That Capture New York**\
-`A stroll around the city with a great stylist; a comic novel of love and real estate.`\
-https://nytimes.com/2024/04/20/books/read-like-wind-recommendations.html
 
