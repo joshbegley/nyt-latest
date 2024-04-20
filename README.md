@@ -1,40 +1,40 @@
-**Behind Our Investigation Into a Chinese Doping Case**\
-`Months before the Tokyo 2021 Olympics, 23 Chinese swimmers tested positive for the same powerful banned substance. Michael Schmidt, an investigative reporter at The New York Times, explains.`\
-https://nytimes.com/video/us/100000009424384/chinese-swimmers-olympics.html
+**Hamas’s political leader is in Turkey for a meeting with Erdogan.**\
+`By Liam Stack and Safak Timur`\
+https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/hamass-political-leader-is-in-turkey-for-a-meeting-with-erdogan
 
-**Bedtime Stories for Grown-Ups**\
-`For those past the age of a parental tuck-in, audiobooks might provide a soothing analogue.`\
-https://nytimes.com/2024/04/20/briefing/falling-asleep-to-audiobooks.html
+**Melania’s Trials**\
+`The former first lady is swept back into the Stormy cyclone.`\
+https://nytimes.com/2024/04/20/opinion/melania-trump.html
 
-**A Bill to Limit Canada’s Trade Negotiators on Farm Goods Edges Nearer to Law**\
-`The measure from a member of the Bloc Québécois would ban changes to the supply management system for dairy, poultry and eggs.`\
-https://nytimes.com/2024/04/20/world/canada/canada-trade-farm-goods-parliament.html
+**Mike Pence: Donald Trump Has Betrayed the Pro-Life Movement**\
+`Here’s how America should build on the end of Roe v. Wade`\
+https://nytimes.com/2024/04/20/opinion/donald-trump-abortion.html
 
-**Strike was meant to show Iran that Israel could paralyze its defenses, Western officials say.**\
-`The strike, two Western officials said, was calculated to deliver a message to Iran that Israel could bypass Iran’s defense systems undetected and paralyze them.`\
-https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/strike-was-meant-to-show-iran-that-israel-could-paralyze-its-defenses-western-officials-say
+**How New Wars Have Brought Back Old American Divisions**\
+`Both parties experience echoes of decades past.`\
+https://nytimes.com/2024/04/20/opinion/republicans-democrats-ukraine-israel.html
 
-**20mideast-crisis**\
-`Israeli Weapon Damaged Iranian Air Defenses Without Being Detected, Officials Say`\
-https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news
+**The Most Important Thing I Teach My Students Isn’t on the Syllabus**\
+`Humility can be a bulwark against arrogance, absolutism, purity and zeal, and an antidote in our age of grievance.`\
+https://nytimes.com/2024/04/20/opinion/students-humility-american-politics.html
 
-**House Set to Vote on Foreign Aid Bills for Ukraine, Israel and Taiwan**\
-`After clearing a critical hurdle on Friday, the pieces of the $95 billion package was expected to pass in a series of votes, putting the legislation on track for enactment after a tortured journey through Congress.`\
-https://nytimes.com/2024/04/20/world/europe/house-vote-aid-ukraine-israel.html
+**A Visual Guide to the Middle East’s Tangled Network of Friends and Enemies**\
+`As the conflict between Israel and Hamas spills over, we sketched out a social network of the alliances and enmities at play.`\
+https://nytimes.com/interactive/2024/04/20/opinion/a-visual-guide-to-the-middle-east.html
 
-**How R.F.K. Jr. Got on the Michigan Ballot, With Only Two Votes**\
-`The independent candidate persuaded a tiny party to give him its line on the ballot in a key 2024 battleground state, sparing him a costly, arduous organizing effort.`\
-https://nytimes.com/2024/04/20/us/politics/rfk-jr-michigan-ballot.html
+**Say Hello to Your Addiction Risk Score — Courtesy of the Tech Industry**\
+`A number of new tech companies want to solve the opioid crisis with algorithms. It’s a flawed and potentially harmful proposition.`\
+https://nytimes.com/2024/04/20/opinion/addiction-risk-score-avertd-narxcare.html
 
-**G.O.P. Intensifies Scrutiny of Voting: ‘We’re Keeping a Close Eye on You’**\
-`The Trump campaign and the Republican Party plan to dispatch over 100,000 volunteers and lawyers to monitor elections in battleground states — and work in concert with conservative activists.`\
-https://nytimes.com/2024/04/20/us/politics/trump-rnc-voting-election.html
+**Should Kidney Donors Be Paid?**\
+`A guest essay argued in favor of payments. Readers, including donors, offer divergent views.`\
+https://nytimes.com/2024/04/20/opinion/kidney-donors-payment.html
 
-**You Finished I.V.F. and Want to Donate Embryos. Is There a Tax Benefit?**\
-`Some people may consider donating embryos to researchers in light of Alabama’s I.V.F. ruling and in advance of other state actions. Would it be considered a charitable gift?`\
-https://nytimes.com/2024/04/20/your-money/ivf-embryos-donation-taxes.html
+**A Planetary Crisis Awaits the Next President**\
+`The return of Trump to the White House would be disastrous for the planet.`\
+https://nytimes.com/2024/04/20/opinion/trump-biden-climate-election.html
 
-**Bucking Trump, Anti-Abortion Movement Shows Deep Roots in Arizona**\
-`Even as abortion rights ballot issues have had some striking successes, anti-abortion forces have stood firm in state legislatures like Arizona’s where they have deep convictions and positions of power.`\
-https://nytimes.com/2024/04/20/us/arizona-abortion-trump.html
+**What Began as a War on Theater Won’t End There**\
+`The current politically-driven suppression of theater productions in high schools has a grim historical precedent.`\
+https://nytimes.com/2024/04/20/opinion/high-school-theater-banned.html
 
