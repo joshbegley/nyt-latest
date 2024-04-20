@@ -1,4 +1,4 @@
-**An explosion at a military base in Iraq wounds three people.**\
+**An explosion damages a military base in Iraq used by an Iran-backed armed group.**\
 `It was unclear who carried out the attack in Iraq’s Babylon province, south of Baghdad.`\
 https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/an-explosion-at-a-military-base-in-iraq-wounds-three-people
 
