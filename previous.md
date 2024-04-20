@@ -1,3 +1,7 @@
+**Israel Strikes an Iranian Military Base, but Damage Appears Limited**\
+`The drone attack may have been launched from inside Iran, once again demonstrating Israel’s ability to carry out clandestine operations there.`\
+https://nytimes.com/2024/04/18/world/middleeast/strike-isfahan.html
+
 **Taylor Swift’s New Album Reviewed**\
 `Our pop music critic on “The Tortured Poets Department.”`\
 https://nytimes.com/2024/04/19/podcasts/taylor-swifts-new-album-reviewed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/arts/dance/martha-graham-100-years-season.html
 **Israel’s Strike on Iran: A Limited Attack but a Potentially Big Signal**\
 `Israel hit a strategic city with carefully measured force, but made the point that it could strike at a center of Iran’s nuclear program.`\
 https://nytimes.com/2024/04/19/us/politics/israel-iran-analysis.html
-
-**Inside the Courtroom, Trump Is Trapped With His Past**\
-`He was forced to listen to much of the damage he has caused.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-trapped-courtroom
 

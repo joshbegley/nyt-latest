@@ -1,3 +1,7 @@
+**Israel Strikes an Iranian Military Base, but Damage Appears Limited**\
+`The drone attack may have been launched from inside Iran, once again demonstrating Israel’s ability to carry out clandestine operations there.`\
+https://nytimes.com/2024/04/18/world/middleeast/strike-isfahan.html
+
 **Taylor Swift’s New Album Reviewed**\
 `Our pop music critic on “The Tortured Poets Department.”`\
 https://nytimes.com/2024/04/19/podcasts/taylor-swifts-new-album-reviewed.html
