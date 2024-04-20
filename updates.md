@@ -1,3 +1,7 @@
+**Top Chinese Swimmers Tested Positive for Banned Drug, Then Won Olympic Gold**\
+`The case, involving multiple swimmers who seven months later won medals at the 2021 Games, prompted accusations of a cover-up and concerns over why antidoping regulators chose not to intervene.`\
+https://nytimes.com/2024/04/20/world/asia/chinese-swimmers-doping-olympics.html
+
 **Senate Passes Two-Year Extension of Surveillance Law Just After It Expired**\
 `The law lapsed only briefly after a late-night deal that allowed votes on privacy advocates’ proposed changes, all of which were defeated.`\
 https://nytimes.com/2024/04/20/us/politics/senate-passes-surveillance-law-extension.html

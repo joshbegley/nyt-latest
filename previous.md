@@ -1,3 +1,7 @@
+**Top Chinese Swimmers Tested Positive for Banned Drug, Then Won Olympic Gold**\
+`The case, involving multiple swimmers who seven months later won medals at the 2021 Games, prompted accusations of a cover-up and concerns over why antidoping regulators chose not to intervene.`\
+https://nytimes.com/2024/04/20/world/asia/chinese-swimmers-doping-olympics.html
+
 **Senate Passes Two-Year Extension of Surveillance Law Just After It Expired**\
 `The law lapsed only briefly after a late-night deal that allowed votes on privacy advocates’ proposed changes, all of which were defeated.`\
 https://nytimes.com/2024/04/20/us/politics/senate-passes-surveillance-law-extension.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/business/ozempic-denmark-novo-nordisk.html
 **A Ragtag Resistance Sees the Tide Turning in a Forgotten War**\
 `Rebel fighters have handed Myanmar’s army defeat after defeat, for the first time raising the possibility that the military junta could be at risk of collapse.`\
 https://nytimes.com/2024/04/20/world/asia/myanmar-war-rebels.html
-
-**It Introduced Ozempic to the World. Now It Must Remake Itself.**\
-`Novo Nordisk’s factories work nonstop turning out Ozempic and Wegovy, its blockbuster weight-loss drugs, but the Danish company has far bigger ambitions.`\
-https://nytimes.com/2024/04/20/business/ozempic-novo-nordisk-wegovy.html
 
