@@ -1,3 +1,7 @@
+**A Holiday for Weed Fans, Complete With Sponsors**\
+`With the legalization of marijuana in New York, celebrations of “4/20” have gone mainstream.`\
+https://nytimes.com/2024/04/20/nyregion/420-weed-celebration-sponsor.html
+
 **Martin Wygod, a Winner on Wall Street and the Racetrack, Dies at 84**\
 `After he made a fortune selling prescription drugs and providing medical information online, he and his wife became leading breeders of thoroughbred horses.`\
 https://nytimes.com/2024/04/20/business/martin-wygod-dead.html
