@@ -1,5 +1,9 @@
 **Donald Trump will hold a campaign rally in North Carolina, his first since his criminal trial began.**\
 `By Chris Cameron`\
+https://nytimes.com/live/2024/04/20/us/biden-trump-election-2024/donald-trump-will-hold-a-campaign-rally-in-north-carolina-his-first-since-his-criminal-trial-began
+
+**Donald Trump will hold a campaign rally in North Carolina, his first since his criminal trial began.**\
+`By Chris Cameron`\
 https://nytimes.com/2024/04/20/us/politics/donald-trump-will-hold-a-campaign-rally-in-north-carolina-his-first-since-his-criminal-trial-began.html
 
 **Nevada G.O.P. Senate primary heats up as the long shot goes after the front-runner.**\
