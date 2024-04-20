@@ -1,3 +1,7 @@
+**Roman Gabriel, Star Quarterback of the 1960s and ’70s, Dies at 84**\
+`In 16 seasons with the Los Angeles Rams and the Philadelphia Eagles, he played in four Pro Bowl games and reached the postseason twice.`\
+https://nytimes.com/2024/04/20/sports/football/roman-gabriel-dead.html
+
 **The House, with a bipartisan vote, approves an aid package for Israel.**\
 `By Catie Edmondson`\
 https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/the-house-with-a-bipartisan-vote-approves-an-aid-package-for-israel

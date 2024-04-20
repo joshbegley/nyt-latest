@@ -8,7 +8,7 @@ https://nytimes.com/2024/04/20/nyregion/new-york-state-budget.html
 
 **Roman Gabriel, Star Quarterback of the 1960s and ’70s, Dies at 84**\
 `In 16 seasons with the Los Angeles Rams and the Philadelphia Eagles, he played in four Pro Bowl games and reached the postseason twice.`\
-https://nytimes.com/2024/04/20/sports/football/roman-gabriel-star-quarterback-of-the-1960s-and-70s-dies-at-84.html
+https://nytimes.com/2024/04/20/sports/football/roman-gabriel-dead.html
 
 **Johnson, Like Pence, Does What Passes for Brave in Today’s G.O.P.: His Job**\
 `In the Republican Party of 2024, styled in the image of former President Donald J. Trump, a norm-preserving, consensus-driven act can be a career-ending offense.`\
