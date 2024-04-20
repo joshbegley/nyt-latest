@@ -1,3 +1,7 @@
+**Senate Passes Two-Year Extension of Surveillance Law Just After It Expired**\
+`The law lapsed only briefly after a late-night deal that allowed votes on privacy advocates’ proposed changes, all of which were defeated.`\
+https://nytimes.com/2024/04/20/us/politics/senate-passes-surveillance-law-extension.html
+
 **What’s Happening In Myanmar’s Civil War?**\
 `Questions you may have about the ongoing war in Myanmar, explained with graphics.`\
 https://nytimes.com/interactive/2024/04/20/world/asia/myanmar-civil-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/world/asia/myanmar-war-rebels.html
 **It Introduced Ozempic to the World. Now It Must Remake Itself.**\
 `Novo Nordisk’s factories work nonstop turning out Ozempic and Wegovy, its blockbuster weight-loss drugs, but the Danish company has far bigger ambitions.`\
 https://nytimes.com/2024/04/20/business/ozempic-novo-nordisk-wegovy.html
-
-**‘Stereophonic’ Review: Hitmakers Rendered in Sublime Detail**\
-`In David Adjmi’s new play, with songs by Will Butler, a ’70s band’s success breeds tension, and punches up the volume on Broadway.`\
-https://nytimes.com/2024/04/19/theater/stereophonic-review.html
 
