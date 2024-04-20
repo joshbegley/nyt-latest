@@ -1,3 +1,7 @@
+**An explosion at a military base in Iraq wounds three people.**\
+`It was unclear who carried out the attack in Iraq’s Babylon province, south of Baghdad.`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/an-explosion-at-a-military-base-in-iraq-wounds-three-people
+
 **Ex-Police Officer Pleads Guilty to Murder in Shooting of 12-Year-Old Boy**\
 `Edsaul Mendoza, a former Philadelphia police officer, could face up to 40 years in prison after pleading guilty to third-degree murder.`\
 https://nytimes.com/2024/04/19/us/saul-mendoza-thomas-sidario-shooting-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-trapped-courtro
 **Day 4 of Trump’s Criminal Trial: Five Takeaways**\
 `A full jury is seated, a horrifying incident shocks the court and opening statements are set to begin on Monday.`\
 https://nytimes.com/2024/04/19/nyregion/trump-trial-man-fire-takeaways.html
-
-**Where Jurors in Trump Hush-Money Trial Say They Get Their News**\
-`Prosecutors and defense lawyers tried to divine the political leanings of prospective jurors in the former president’s Manhattan criminal trial from their answers to questions about what media they consume.`\
-https://nytimes.com/2024/04/19/nyregion/trump-trial-jury-news.html
 
