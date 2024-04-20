@@ -1,3 +1,7 @@
+**CNN’s Coverage of Man Who Set Himself on Fire Shows Challenges of Live News**\
+`There was both praise and criticism of the legal analyst and anchor, Laura Coates, and the network’s split-second decision to show the graphic footage.`\
+https://nytimes.com/2024/04/20/business/media/man-fire-cnn-coverage.html
+
 **Ellen Ash Peters, Pioneer on the Connecticut Bench, Dies at 94**\
 `The first woman on the faculty of Yale Law School, she was named to the State Supreme Court in 1978 and became its first female chief justice six years later.`\
 https://nytimes.com/2024/04/20/nyregion/ellen-ash-peters-dead.html
