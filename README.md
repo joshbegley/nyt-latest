@@ -36,5 +36,5 @@ https://nytimes.com/2024/04/20/us/politics/johnson-pence-republicans-ukraine-aid
 
 **How the House Voted on Foreign Aid to Ukraine, Israel and Taiwan**\
 `Here’s how each member of the House voted on the foreign aid bills.`\
-https://nytimes.com/interactive/2024/04/20/us/politics/2024-04-18-ukraine-israel-foreign-aid-vote.html
+https://nytimes.com/interactive/2024/04/20/us/politics/ukraine-israel-foreign-aid-vote.html
 
