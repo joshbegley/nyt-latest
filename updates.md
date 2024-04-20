@@ -1,3 +1,7 @@
+**3 Officers Face Charges in Death of California Man Who Was Pinned Down**\
+`The officers, all with the Alameda Police Department at the time, were charged with involuntary manslaughter after the district attorney reopened the case.`\
+https://nytimes.com/2024/04/20/us/california-police-officer-charges-gonzalez.html
+
 **Roman Gabriel, Star Quarterback of the 1960s and ’70s, Dies at 84**\
 `In 16 seasons with the Los Angeles Rams and the Philadelphia Eagles, he played in four Pro Bowl games and reached the postseason twice.`\
 https://nytimes.com/2024/04/20/sports/football/roman-gabriel-dead.html

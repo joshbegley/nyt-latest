@@ -1,3 +1,7 @@
+**3 Officers Face Charges in Death of California Man Who Was Pinned Down**\
+`The officers, all with the Alameda Police Department at the time, were charged with involuntary manslaughter after the district attorney reopened the case.`\
+https://nytimes.com/2024/04/20/us/california-police-officer-charges-gonzalez.html
+
 **The House, with a bipartisan vote, approves an aid package for Israel.**\
 `By Catie Edmondson`\
 https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/the-house-with-a-bipartisan-vote-approves-an-aid-package-for-israel
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/us/politics/weapons-aid-ukraine-military.html
 **David H. Pryor, Arkansas Senator and Clinton Ally, Dies at 88**\
 `During his 34 years as an elected official, Mr. Pryor was sometimes said to be more liberal, especially on racial issues, than the people who elected him.`\
 https://nytimes.com/2024/04/20/us/politics/david-h-pryor-dead.html
-
-**A Holiday for Weed Fans, Complete With Sponsors**\
-`With the legalization of marijuana in New York, celebrations of “4/20” have gone mainstream.`\
-https://nytimes.com/2024/04/20/nyregion/420-weed-celebration-sponsor.html
 
