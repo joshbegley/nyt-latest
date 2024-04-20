@@ -1,3 +1,7 @@
+**Ex-Police Officer Pleads Guilty to Murder in Shooting of 12-Year-Old Boy**\
+`Edsaul Mendoza, a former Philadelphia police officer, could face up to 40 years in prison after pleading guilty to third-degree murder.`\
+https://nytimes.com/2024/04/19/us/saul-mendoza-thomas-sidario-shooting-sentencing.html
+
 **U.S.C. Cut the Valedictorian’s Graduation Speech. Now, the Celebrities Are Out, Too.**\
 `Jon M. Chu, the director of “Crazy Rich Asians,” and Billie Jean King were set to be among the featured guests.`\
 https://nytimes.com/2024/04/19/us/usc-graduation-commencement-guests.html
