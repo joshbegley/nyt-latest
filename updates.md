@@ -1,3 +1,11 @@
+**The Palestinian Authority’s president threatens to reconsider relations with the United States.**\
+`By Gaya Gupta`\
+https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/the-palestinian-authoritys-president-threatens-to-reconsider-relations-with-the-united-states
+
+**Johnson, Like Pence, Draws Praise for Defying His Party and Doing His Job**\
+`In the Republican Party of 2024, styled in the image of former President Donald J. Trump, a norm-preserving, consensus-driven act — even a basic one — can be a career-ending offense.`\
+https://nytimes.com/2024/04/20/us/politics/johnson-pence-republicans-ukraine-aid.html
+
 **Johnson, Like Pence, Does His Job, Drawing Republican Outrage**\
 `In the Republican Party of 2024, styled in the image of former President Donald J. Trump, a norm-preserving, consensus-driven act can be a career-ending offense.`\
 https://nytimes.com/2024/04/20/us/politics/johnson-pence-republicans-ukraine-aid.html
