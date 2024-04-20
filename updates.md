@@ -1,3 +1,7 @@
+**Nevada G.O.P. Senate primary heats up as the long shot goes after the front-runner.**\
+`The Army veteran Sam Brown remains the favorite, but the wealthy former ambassador Jeff Gunter, with a pro-Trump message, is trying to shake up the race.`\
+https://nytimes.com/2024/04/19/us/politics/nevada-gop-senate-primary-gunter.html
+
 **Columbia Students Arrested Over Campus Rally May Face Other Consequences**\
 `Students who occupied a tent encampment to protest the war in Gaza say they may not be allowed to complete the semester. That did not dampen their commitment.`\
 https://nytimes.com/2024/04/20/nyregion/arrested-columbia-students-suspended.html
