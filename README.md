@@ -7,7 +7,7 @@ https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/satellite-im
 https://nytimes.com/2024/04/19/us/politics/us-niger-military-withdrawal.html
 
 **Scientists Fault Federal Response to Bird Flu Outbreaks on Dairy Farms**\
-`Testing for H5N1 infection has been limited, and the outbreak was never confined. But asymptomatic cows in North Carolina may have changed all that.`\
+`Testing for H5N1 infection has been limited, and the outbreak was never confined. But asymptomatic cows in North Carolina may require a reassessment.`\
 https://nytimes.com/2024/04/19/health/bird-flu-usda-cattle.html
 
 **Saddling Up and Feeling Spry at Martha Graham**\
