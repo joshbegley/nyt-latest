@@ -1,3 +1,7 @@
+**A Bill to Limit Canada’s Trade Negotiators on Farm Goods Edges Nearer to Law**\
+`The measure from a member of the Bloc Québécois would ban changes to the supply management system for dairy, poultry and eggs.`\
+https://nytimes.com/2024/04/20/world/canada/canada-trade-farm-goods-parliament.html
+
 **Strike was meant to show Iran that Israel could paralyze its defenses, Western officials say.**\
 `The strike, two Western officials said, was calculated to deliver a message to Iran that Israel could bypass Iran’s defense systems undetected and paralyze them.`\
 https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/strike-was-meant-to-show-iran-that-israel-could-paralyze-its-defenses-western-officials-say
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/dining/420-food.html
 **No, Your Spaghetti Doesn’t Have to Be al Dente: 5 Pasta Myths, Debunked**\
 `A veteran food journalist settles some long-simmering disputes on a slippery subject.`\
 https://nytimes.com/2024/04/20/dining/how-to-cook-pasta-questions.html
-
-**Americans’ New TV Habit: Subscribe. Watch. Cancel. Repeat.**\
-`Many more people are jumping from one streaming subscription to another, a behavior that could have big implications for the entertainment industry.`\
-https://nytimes.com/2024/04/20/business/media/streaming-subscription-jumping.html
 
