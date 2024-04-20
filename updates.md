@@ -1,3 +1,11 @@
+**Lawsuit Puts Fresh Focus on Eric Hovde’s Comments About Older Voters**\
+`Pressed on his claims of 2020 election irregularities, the Republican candidate for Senate in Wisconsin has questioned the mental capacity of nursing home residents to vote.`\
+https://nytimes.com/2024/04/20/us/politics/california-lawsuit-wisconsin-senate-race.html
+
+**Could the Union Victory at VW Set Off a Wave?**\
+`Some experts say the outcome at a plant in Chattanooga, Tenn., may be organized labor’s most significant advance in decades. But the road could get rockier.`\
+https://nytimes.com/2024/04/20/business/economy/uaw-union-future.html
+
 **The Town at the Center of a Supreme Court Battle Over Homelessness**\
 `A lawsuit by a group of homeless residents of a small Oregon town could reshape the way cities across the country deal with homelessness.`\
 https://nytimes.com/2024/04/20/us/supreme-court-homelessness-oregon.html
