@@ -1,3 +1,23 @@
+**This Therapy Helps Victims of Violent Crime. Who Will Pay for It?**\
+`“Trauma recovery centers” are favored by law-and-order officials and progressive activists alike for one big reason: They work. But to stay open in New York, they need more funding.`\
+https://nytimes.com/2024/04/20/nyregion/trauma-recovery-center-nyc-funding.html
+
+**The Connections Companion No. 314**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/20/crosswords/connections-companion.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/20/crosswords/wordle-review.html
+
+**How a Dating Show Host Spends Her Sundays**\
+`Stef Dag, host of “Hot & Single,” goes cafe-hopping with friends, boxes in the park and gets ready for a comedy set at The Stand.`\
+https://nytimes.com/2024/04/20/nyregion/stef-dag-hot-and-single-show.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/20/crosswords/spelling-bee-forum.html
+
 **Top Chinese Swimmers Tested Positive for Banned Drug, Then Won Olympic Gold**\
 `The case, involving multiple swimmers who seven months later won medals at the 2021 Games, prompted accusations of a cover-up and concerns over why antidoping regulators chose not to intervene.`\
 https://nytimes.com/2024/04/20/world/asia/chinese-swimmers-doping-olympics.html
@@ -14,27 +34,7 @@ https://nytimes.com/interactive/2024/04/20/world/asia/myanmar-civil-war.html
 `But in this year’s elections, the scion of India’s most storied political family is still trying to unseat Modi — and change the nation’s course.`\
 https://nytimes.com/2024/04/20/magazine/rahul-gandhi-india-election-bjp.html
 
-**Why Myanmar’s War Matters, Even if the World Isn’t Watching**\
-`A devastating, yearslong civil war is heating up, but it still hasn’t attracted broad international notice.`\
-https://nytimes.com/2024/04/20/world/asia/myanmar-civil-war-consequences.html
-
 **Do Tanks Have a Place in 21st-Century Warfare?**\
 `As explosive drones gain battlefield prominence, even the mighty U.S. Abrams tank is increasingly vulnerable.`\
 https://nytimes.com/2024/04/20/world/europe/tanks-ukraine-drones-abrams.html
-
-**A Trip to the Front Lines of a Forgotten War**\
-`A new generation of democracy fighters has taken up arms in Myanmar.`\
-https://nytimes.com/video/world/asia/100000009411449/myanmar-democracy-fighters.html
-
-**A Turbocharged Croissant Delights (and Disturbs) Paris**\
-`Stéphane Louvard married one of his signature croissants with a chocolate chip cookie to come up with the “crookie.” After a slow start, his creation took off after it became a TikTok phenomenon.`\
-https://nytimes.com/2024/04/20/world/europe/france-crookie-croissant-cookie.html
-
-**How Ozempic Is Transforming a Small Danish Town**\
-`In Kalundborg, population under 17,000, Novo Nordisk is making huge investments to increase production of its popular diabetes and weight-loss drugs, Ozempic and Wegovy.`\
-https://nytimes.com/2024/04/20/business/ozempic-denmark-novo-nordisk.html
-
-**A Ragtag Resistance Sees the Tide Turning in a Forgotten War**\
-`Rebel fighters have handed Myanmar’s army defeat after defeat, for the first time raising the possibility that the military junta could be at risk of collapse.`\
-https://nytimes.com/2024/04/20/world/asia/myanmar-war-rebels.html
 
