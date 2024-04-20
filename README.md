@@ -1,3 +1,7 @@
+**Can the W.N.B.A. Make Money?**\
+`A wave of star power has lifted hopes that viewership will pick up for the women’s league.`\
+https://nytimes.com/2024/04/20/business/dealbook/can-the-wnba-make-money.html
+
 **Seemed Like a Good Idea at the Time**\
 `Stories that begin full of hope — then take a turn.`\
 https://nytimes.com/2024/04/20/podcasts/this-american-life-seemed-like-a-good-idea-nyt-audio.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/opinion/republicans-democrats-ukraine-israel.html
 **The Most Important Thing I Teach My Students Isn’t on the Syllabus**\
 `Humility can be a bulwark against arrogance, absolutism, purity and zeal, and an antidote in our age of grievance.`\
 https://nytimes.com/2024/04/20/opinion/students-humility-american-politics.html
-
-**A Visual Guide to the Middle East’s Tangled Network of Friends and Enemies**\
-`As the conflict between Israel and Hamas spills over, we sketched out a social network of the alliances and enmities at play.`\
-https://nytimes.com/interactive/2024/04/20/opinion/a-visual-guide-to-the-middle-east.html
 
