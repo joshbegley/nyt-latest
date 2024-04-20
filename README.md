@@ -1,3 +1,7 @@
+**In Late-Stage Budget Talks, Hochul Wins Concessions From N.Y. Lawmakers**\
+`Gov. Kathy Hochul used the $237 billion budget to wedge in contentious issues like extending Mayor Eric Adams’s control over New York City schools.`\
+https://nytimes.com/2024/04/20/nyregion/new-york-state-budget.html
+
 **Roman Gabriel, Star Quarterback of the 1960s and ’70s, Dies at 84**\
 `In 16 seasons with the Los Angeles Rams and the Philadelphia Eagles, he played in four Pro Bowl games and reached the postseason twice.`\
 https://nytimes.com/2024/04/20/sports/football/roman-gabriel-star-quarterback-of-the-1960s-and-70s-dies-at-84.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/nyregion/420-weed-celebration-sponsor.html
 **Original U.S.S. Enterprise Model From ‘Star Trek’ Is Returned to Creator’s Son**\
 `The 33-inch model surfaced on eBay after disappearing decades ago. An auction house is giving it to the son of Gene Roddenberry, the creator of “Star Trek.”`\
 https://nytimes.com/2024/04/20/arts/television/star-trek-enterprise-model-found.html
-
-**CNN’s Coverage of Man Who Set Himself on Fire Shows Challenges of Live News**\
-`There was both praise and criticism of the legal analyst and anchor, Laura Coates, and the network’s split-second decision to show the graphic footage.`\
-https://nytimes.com/2024/04/20/business/media/trump-trial-man-fire-cnn.html
 
