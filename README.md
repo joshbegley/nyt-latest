@@ -11,7 +11,7 @@ https://nytimes.com/live/2024/04/20/us/biden-trump-election-2024/donald-trump-wi
 https://nytimes.com/2024/04/19/us/politics/nevada-gop-senate-primary-gunter.html
 
 **Columbia Students Arrested Over Campus Rally May Face Other Consequences**\
-`Students who occupied a tent encampment to protest the war in Gaza say they may not be allowed to complete the semester. That did not dampen their commitment.`\
+`Students who camped in tents to protest the war in Gaza, including the daughter of Representative Ilhan Omar, may be barred from finishing the semester, but they remain committed.`\
 https://nytimes.com/2024/04/20/nyregion/arrested-columbia-students-suspended.html
 
 **Lawsuit Puts Fresh Focus on Eric Hovde’s Comments About Older Voters**\
