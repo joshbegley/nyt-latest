@@ -1,3 +1,7 @@
+**The House, with a bipartisan vote, approves an aid package for Israel.**\
+`By Catie Edmondson`\
+https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/the-house-with-a-bipartisan-vote-approves-an-aid-package-for-israel
+
 **In Late-Stage Budget Talks, Hochul Wins Concessions From N.Y. Lawmakers**\
 `Gov. Kathy Hochul used the $237 billion budget to wedge in contentious issues like extending Mayor Eric Adams’s control over New York City schools.`\
 https://nytimes.com/2024/04/20/nyregion/new-york-state-budget.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/us/politics/david-h-pryor-dead.html
 **A Holiday for Weed Fans, Complete With Sponsors**\
 `With the legalization of marijuana in New York, celebrations of “4/20” have gone mainstream.`\
 https://nytimes.com/2024/04/20/nyregion/420-weed-celebration-sponsor.html
-
-**Original U.S.S. Enterprise Model From ‘Star Trek’ Is Returned to Creator’s Son**\
-`The 33-inch model surfaced on eBay after disappearing decades ago. An auction house is giving it to the son of Gene Roddenberry, the creator of “Star Trek.”`\
-https://nytimes.com/2024/04/20/arts/television/star-trek-enterprise-model-found.html
 

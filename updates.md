@@ -1,3 +1,7 @@
+**The House, with a bipartisan vote, approves an aid package for Israel.**\
+`By Catie Edmondson`\
+https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/the-house-with-a-bipartisan-vote-approves-an-aid-package-for-israel
+
 **In Late-Stage Budget Talks, Hochul Wins Concessions From N.Y. Lawmakers**\
 `Gov. Kathy Hochul used the $237 billion budget to wedge in contentious issues like extending Mayor Eric Adams’s control over New York City schools.`\
 https://nytimes.com/2024/04/20/nyregion/new-york-state-budget.html
