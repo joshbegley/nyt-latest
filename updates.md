@@ -1,3 +1,7 @@
+**Several People Are Stabbed on a Party Boat in Brooklyn**\
+`Three people were hospitalized, and about 3,000 passengers were evacuated, the authorities said.`\
+https://nytimes.com/2024/04/20/nyregion/brooklyn-boat-stabbings-ship.html
+
 **How the House Voted on Foreign Aid to Ukraine, Israel and Taiwan**\
 `Here’s how each member of the House voted on the foreign aid bills.`\
 https://nytimes.com/interactive/2024/04/20/us/politics/ukraine-israel-foreign-aid-vote.html
