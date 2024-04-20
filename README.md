@@ -1,3 +1,7 @@
+**David H. Pryor, Arkansas Senator and Clinton Ally, Dies at 88**\
+`During his 34 years as an elected official, Mr. Pryor was sometimes said to be more liberal, especially on racial issues, than the people who elected him.`\
+https://nytimes.com/2024/04/20/us/politics/david-h-pryor-dead.html
+
 **A Holiday for Weed Fans, Complete With Corporate Sponsors**\
 `With the legalization of marijuana in New York, celebrations of “4/20” have gone mainstream.`\
 https://nytimes.com/2024/04/20/nyregion/420-weed-celebration-sponsor.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/deadly-israe
 **20pol-swiper**\
 `Trump holds a rally in North Carolina, capping off the first week of his trial.`\
 https://nytimes.com/live/2024/04/20/us/biden-trump-election-2024
-
-**Donald Trump will hold a campaign rally in North Carolina, his first since his criminal trial began.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/04/20/us/biden-trump-election-2024/donald-trump-will-hold-a-campaign-rally-in-north-carolina-his-first-since-his-criminal-trial-began
 
