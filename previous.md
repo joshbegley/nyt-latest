@@ -1,3 +1,7 @@
+**Sentimental Feelings**\
+`Garrett Chalfin and Andrew Kingsley’s puzzle is inviting without being too forward.`\
+https://nytimes.com/2024/04/19/crosswords/daily-puzzle-2024-04-20.html
+
 **A Life Overtaken by Conspiracy Theories Explodes in Flames as the Public Looks On**\
 `Friends of Max Azzarello, who set himself on fire outside Donald J. Trump’s trial, said he was a caring person whose paranoia had led him down a dark path.`\
 https://nytimes.com/2024/04/19/nyregion/max-azzarello-man-fire-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/us/politics/us-niger-military-withdrawal.html
 **Scientists Fault Federal Response to Bird Flu Outbreaks on Dairy Farms**\
 `Testing for H5N1 infection has been limited, and the outbreak was never confined. But asymptomatic cows in North Carolina may require a reassessment.`\
 https://nytimes.com/2024/04/19/health/bird-flu-usda-cattle.html
-
-**Saddling Up and Feeling Spry at Martha Graham**\
-`Under the banner “American Legacies,” the Martha Graham Dance Company dusted off a classic, “Rodeo,” premiered a companion piece and welcomed FKA twigs for a guest solo at City Center.`\
-https://nytimes.com/2024/04/19/arts/dance/martha-graham-100-years-season.html
 

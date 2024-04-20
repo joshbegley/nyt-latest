@@ -1,3 +1,7 @@
+**Sentimental Feelings**\
+`Garrett Chalfin and Andrew Kingsley’s puzzle is inviting without being too forward.`\
+https://nytimes.com/2024/04/19/crosswords/daily-puzzle-2024-04-20.html
+
 **A Life Overtaken by Conspiracy Theories Explodes in Flames as the Public Looks On**\
 `Friends of Max Azzarello, who set himself on fire outside Donald J. Trump’s trial, said he was a caring person whose paranoia had led him down a dark path.`\
 https://nytimes.com/2024/04/19/nyregion/max-azzarello-man-fire-trump.html
