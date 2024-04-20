@@ -1,3 +1,7 @@
+**Senate Passes Two-Year Extension of Surveillance Law Just After It Expired**\
+`The law lapsed only briefly after a late-night deal that allowed votes on privacy advocates’ proposed changes, all of which were defeated.`\
+https://nytimes.com/2024/04/20/us/politics/senate-passes-surveillance-law-extension.html
+
 **Why Myanmar’s War Matters, Even if the World Isn’t Watching**\
 `A devastating, yearslong civil war is heating up, but it still hasn’t attracted broad international notice.`\
 https://nytimes.com/2024/04/20/world/asia/myanmar-civil-war-consequences.html
