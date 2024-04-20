@@ -1,3 +1,7 @@
+**Johnson, Like Pence, Does What Passes for Brave in Today’s G.O.P.: His Job**\
+`In the Republican Party of 2024, styled in the image of former President Donald J. Trump, a norm-preserving, consensus-driven act can be a career-ending offense.`\
+https://nytimes.com/2024/04/20/us/politics/johnson-pence-republicans-ukraine-aid.html
+
 **How the House Voted on Foreign Aid to Ukraine, Israel and Taiwan**\
 `Here’s how each member of the House voted on the foreign aid bills.`\
 https://nytimes.com/interactive/2024/04/20/us/politics/2024-04-18-ukraine-israel-foreign-aid-vote.html
