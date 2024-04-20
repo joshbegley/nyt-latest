@@ -1,3 +1,7 @@
+**A Bill to Limit Canada’s Trade Negotiators on Farm Goods Edges Nearer to Law**\
+`The measure from a member of the Bloc Québécois would ban changes to the supply management system for dairy, poultry and eggs.`\
+https://nytimes.com/2024/04/20/world/canada/canada-trade-farm-goods-parliament.html
+
 **Strike was meant to show Iran that Israel could paralyze its defenses, Western officials say.**\
 `The strike, two Western officials said, was calculated to deliver a message to Iran that Israel could bypass Iran’s defense systems undetected and paralyze them.`\
 https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/strike-was-meant-to-show-iran-that-israel-could-paralyze-its-defenses-western-officials-say
