@@ -1,3 +1,7 @@
+**How the House Voted on Foreign Aid to Ukraine, Israel and Taiwan**\
+`Here’s how each member of the House voted on the foreign aid bills.`\
+https://nytimes.com/interactive/2024/04/20/us/politics/ukraine-israel-foreign-aid-vote.html
+
 **Ukraine Aid Divides Republicans, After Trump Tones Down His Resistance**\
 `His most vocal allies in the House, however, were loudly against providing assistance as Ukraine fights Russia’s invasion.`\
 https://nytimes.com/2024/04/20/us/politics/trump-ukraine-house-vote.html
