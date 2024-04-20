@@ -1,3 +1,7 @@
+**Ukraine Aid Divides Republicans, After Trump Tones Down His Resistance**\
+`His most vocal allies in the House, however, were loudly against providing assistance as Ukraine fights Russia’s invasion.`\
+https://nytimes.com/2024/04/20/us/politics/trump-ukraine-house-vote.html
+
 **Israel’s Strike on Iran Highlights Its Ability to Evade Tehran’s Air Defenses**\
 `The retaliatory attack damaged a defense system near Natanz, a city in central Iran that is critical to the country’s nuclear weapons program.`\
 https://nytimes.com/2024/04/20/world/middleeast/israel-strikes-iran.html
