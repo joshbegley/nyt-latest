@@ -1,3 +1,7 @@
+**Bedtime Stories for Grown-ups**\
+`For those past the age of a parental tuck-in, audiobooks might provide a soothing analogue.`\
+https://nytimes.com/2024/04/20/briefing/falling-asleep-to-audiobooks.html
+
 **A Bill to Limit Canada’s Trade Negotiators on Farm Goods Edges Nearer to Law**\
 `The measure from a member of the Bloc Québécois would ban changes to the supply management system for dairy, poultry and eggs.`\
 https://nytimes.com/2024/04/20/world/canada/canada-trade-farm-goods-parliament.html

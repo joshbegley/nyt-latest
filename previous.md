@@ -1,3 +1,7 @@
+**Bedtime Stories for Grown-ups**\
+`For those past the age of a parental tuck-in, audiobooks might provide a soothing analogue.`\
+https://nytimes.com/2024/04/20/briefing/falling-asleep-to-audiobooks.html
+
 **A Bill to Limit Canada’s Trade Negotiators on Farm Goods Edges Nearer to Law**\
 `The measure from a member of the Bloc Québécois would ban changes to the supply management system for dairy, poultry and eggs.`\
 https://nytimes.com/2024/04/20/world/canada/canada-trade-farm-goods-parliament.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/us/arizona-abortion-trump.html
 **It’s 4/20. These Restaurants Know You Have the Munchies.**\
 `The stoner celebration is becoming a national food holiday, thanks in part to marketing initiatives from Jimmy John’s, KFC, Wingstop and others.`\
 https://nytimes.com/2024/04/20/dining/420-food.html
-
-**No, Your Spaghetti Doesn’t Have to Be al Dente: 5 Pasta Myths, Debunked**\
-`A veteran food journalist settles some long-simmering disputes on a slippery subject.`\
-https://nytimes.com/2024/04/20/dining/how-to-cook-pasta-questions.html
 
