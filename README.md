@@ -1,4 +1,4 @@
-**Israeli raid on a refugee camp in the West Bank kills 10 people.**\
+**Israeli raid on a refugee camp in the West Bank kills at least 10 people.**\
 `By Gaya Gupta and Aaron Boxerman`\
 https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/israeli-raid-on-a-refugee-camp-in-the-west-bank-kills-10-people
 
