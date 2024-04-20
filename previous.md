@@ -10,7 +10,7 @@ https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/the-house-wi
 `Gov. Kathy Hochul used the $237 billion budget to wedge in contentious issues like extending Mayor Eric Adams’s control over New York City schools.`\
 https://nytimes.com/2024/04/20/nyregion/new-york-state-budget.html
 
-**Roman Gabriel, Star Quarterback of the 1960s and ’70s, Dies at 84**\
+**Roman Gabriel, Star Quarterback of the 1960s and ’70s, Dies at 83**\
 `In 16 seasons with the Los Angeles Rams and the Philadelphia Eagles, he played in four Pro Bowl games and reached the postseason twice.`\
 https://nytimes.com/2024/04/20/sports/football/roman-gabriel-dead.html
 
