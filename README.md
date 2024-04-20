@@ -1,3 +1,7 @@
+**When Pregnant Patients ‘Become Radioactive to Emergency Departments’**\
+`Exceptions to abortion bans aren’t worth the paper they’re printed on.`\
+https://nytimes.com/2024/04/20/opinion/abortion-ban-pregnancy-emergency.html
+
 **Fears Over Iran Buoy Netanyahu at Home. For Now.**\
 `Benjamin Netanyahu, the Israeli prime minister, lost considerable support after the Hamas-led Oct. 7 attacks on Israel. Tensions with Iran have helped him claw some of it back.`\
 https://nytimes.com/2024/04/20/world/middleeast/israel-netanyahu-gaza-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/us/politics/california-lawsuit-wisconsin-senate-r
 **Could the Union Victory at VW Set Off a Wave?**\
 `Some experts say the outcome at a plant in Chattanooga, Tenn., may be organized labor’s most significant advance in decades. But the road could get rockier.`\
 https://nytimes.com/2024/04/20/business/economy/uaw-union-future.html
-
-**The Town at the Center of a Supreme Court Battle Over Homelessness**\
-`A lawsuit by a group of homeless residents of a small Oregon town could reshape the way cities across the country deal with homelessness.`\
-https://nytimes.com/2024/04/20/us/supreme-court-homelessness-oregon.html
 
