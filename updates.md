@@ -1,3 +1,7 @@
+**Israel’s Strike on Iran Highlights Its Ability to Evade Tehran’s Air Defenses**\
+`The retaliatory attack damaged a defense system near Natanz, a city in central Iran that is critical to the country’s nuclear weapons program.`\
+https://nytimes.com/2024/04/20/world/middleeast/israel-strikes-iran.html
+
 **Get Cracking**\
 `Looking for an intricate diversion? Pick this puzzle by Michael Schlossberg — what’s inside pays off.`\
 https://nytimes.com/2024/04/20/crosswords/daily-puzzle-2024-04-21.html

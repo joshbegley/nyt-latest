@@ -1,3 +1,7 @@
+**Israel’s Strike on Iran Highlights Its Ability to Evade Tehran’s Air Defenses**\
+`The retaliatory attack damaged a defense system near Natanz, a city in central Iran that is critical to the country’s nuclear weapons program.`\
+https://nytimes.com/2024/04/20/world/middleeast/israel-strikes-iran.html
+
 **Get Cracking**\
 `Looking for an intricate diversion? Pick this puzzle by Michael Schlossberg — what’s inside pays off.`\
 https://nytimes.com/2024/04/20/crosswords/daily-puzzle-2024-04-21.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/20/us/politics/2024-04-18-ukraine-israel
 **Israeli raid on a refugee camp in the West Bank kills at least 10 people.**\
 `By Gaya Gupta and Aaron Boxerman`\
 https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/israeli-raid-on-a-refugee-camp-in-the-west-bank-kills-10-people
-
-**Martin Wygod, a Winner on Wall Street and the Racetrack, Dies at 84**\
-`After he made a fortune selling prescription drugs and providing medical information online, he and his wife became leading breeders of thoroughbred horses.`\
-https://nytimes.com/2024/04/20/business/martin-wygod-dead.html
 
