@@ -1,3 +1,7 @@
+**Martin Wygod, a Winner on Wall Street and the Racetrack, Dies at 84**\
+`After he made a fortune selling prescription drugs and providing medical information online, he and his wife became leading breeders of thoroughbred horses.`\
+https://nytimes.com/2024/04/20/business/martin-wygod-dead.html
+
 **CNN’s Coverage of Man Who Set Himself on Fire Shows Challenges of Live News**\
 `There was both praise and criticism of the legal analyst and anchor, Laura Coates, and the network’s split-second decision to show the graphic footage.`\
 https://nytimes.com/2024/04/20/business/media/trump-trial-man-fire-cnn.html
