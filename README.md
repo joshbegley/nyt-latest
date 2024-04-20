@@ -1,3 +1,7 @@
+**Johnson, Like Pence, Does What Passes for Brave in Today’s G.O.P.: His Job**\
+`In the Republican Party of 2024, styled in the image of former President Donald J. Trump, a norm-preserving, consensus-driven act can be a career-ending offense.`\
+https://nytimes.com/2024/04/20/us/politics/johnson-pence-republicans-ukraine-aid.html
+
 **How the House Voted on Foreign Aid to Ukraine, Israel and Taiwan**\
 `Here’s how each member of the House voted on the foreign aid bills.`\
 https://nytimes.com/interactive/2024/04/20/us/politics/2024-04-18-ukraine-israel-foreign-aid-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/business/media/trump-trial-man-fire-cnn.html
 **Ellen Ash Peters, Pioneer on the Connecticut Bench, Dies at 94**\
 `The first woman on the faculty of Yale Law School, she was named to the State Supreme Court in 1978 and became its first female chief justice six years later.`\
 https://nytimes.com/2024/04/20/nyregion/ellen-ash-peters-dead.html
-
-**When Pregnant Patients ‘Become Radioactive to Emergency Departments’**\
-`Exceptions to abortion bans aren’t worth the paper they’re printed on.`\
-https://nytimes.com/2024/04/20/opinion/abortion-ban-pregnancy-emergency.html
 
