@@ -1,3 +1,7 @@
+**Get Cracking**\
+`Looking for an intricate diversion? Pick this puzzle by Michael Schlossberg — what’s inside pays off.`\
+https://nytimes.com/2024/04/20/crosswords/daily-puzzle-2024-04-21.html
+
 **The Palestinian Authority’s president threatens to reconsider relations with the United States.**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/the-palestinian-authoritys-president-threatens-to-reconsider-relations-with-the-united-states
