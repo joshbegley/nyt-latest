@@ -1,3 +1,7 @@
+**VW Workers in Tennessee Vote for Union, a Labor Milestone**\
+`The Volkswagen plant in Chattanooga is set to become the first unionized auto factory in the South not owned by one of Detroit’s Big Three.`\
+https://nytimes.com/2024/04/19/business/economy/volkswagen-united-automobile-workers-union.html
+
 **Sentimental Feelings**\
 `Garrett Chalfin and Andrew Kingsley’s puzzle is inviting without being too forward.`\
 https://nytimes.com/2024/04/19/crosswords/daily-puzzle-2024-04-20.html
