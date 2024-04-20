@@ -1,3 +1,23 @@
+**This Therapy Helps Victims of Violent Crime. Who Will Pay for It?**\
+`“Trauma recovery centers” are favored by law-and-order officials and progressive activists alike for one big reason: They work. But to stay open in New York, they need more funding.`\
+https://nytimes.com/2024/04/20/nyregion/trauma-recovery-center-nyc-funding.html
+
+**The Connections Companion No. 314**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/20/crosswords/connections-companion.html
+
+**Today’s Wordle Review**\
+`In case you need some puzzle help.`\
+https://nytimes.com/2024/04/20/crosswords/wordle-review.html
+
+**How a Dating Show Host Spends Her Sundays**\
+`Stef Dag, host of “Hot & Single,” goes cafe-hopping with friends, boxes in the park and gets ready for a comedy set at The Stand.`\
+https://nytimes.com/2024/04/20/nyregion/stef-dag-hot-and-single-show.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/20/crosswords/spelling-bee-forum.html
+
 **Top Chinese Swimmers Tested Positive for Banned Drug, Then Won Olympic Gold**\
 `The case, involving multiple swimmers who seven months later won medals at the 2021 Games, prompted accusations of a cover-up and concerns over why antidoping regulators chose not to intervene.`\
 https://nytimes.com/2024/04/20/world/asia/chinese-swimmers-doping-olympics.html
