@@ -1,3 +1,7 @@
+**Ukraine Aid Divides Republicans, After Trump Tones Down His Resistance**\
+`His most vocal allies in the House, however, were loudly against providing assistance as Ukraine fights Russia’s invasion.`\
+https://nytimes.com/2024/04/20/us/politics/trump-ukraine-house-vote.html
+
 **Israel’s Strike on Iran Highlights Its Ability to Evade Tehran’s Air Defenses**\
 `The retaliatory attack damaged a defense system near Natanz, a city in central Iran that is critical to the country’s nuclear weapons program.`\
 https://nytimes.com/2024/04/20/world/middleeast/israel-strikes-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/us/politics/johnson-pence-republicans-ukraine-aid
 **How the House Voted on Foreign Aid to Ukraine, Israel and Taiwan**\
 `Here’s how each member of the House voted on the foreign aid bills.`\
 https://nytimes.com/interactive/2024/04/20/us/politics/2024-04-18-ukraine-israel-foreign-aid-vote.html
-
-**Israeli raid on a refugee camp in the West Bank kills at least 10 people.**\
-`By Gaya Gupta and Aaron Boxerman`\
-https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/israeli-raid-on-a-refugee-camp-in-the-west-bank-kills-10-people
 
