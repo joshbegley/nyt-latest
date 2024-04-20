@@ -1,3 +1,7 @@
+**Deadly Israeli airstrikes again hit Rafah.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/deadly-israeli-airstrikes-again-hit-rafah
+
 **20pol-swiper**\
 `Trump holds a rally in North Carolina, capping off the first week of his trial.`\
 https://nytimes.com/live/2024/04/20/us/biden-trump-election-2024
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/arts/design/venice-biennale-golden-lion-australia
 **Can the W.N.B.A. Make Money?**\
 `A wave of star power has lifted hopes that viewership will pick up for the women’s league.`\
 https://nytimes.com/2024/04/20/business/dealbook/can-the-wnba-make-money.html
-
-**Seemed Like a Good Idea at the Time**\
-`Stories that begin full of hope — then take a turn.`\
-https://nytimes.com/2024/04/20/podcasts/this-american-life-seemed-like-a-good-idea-nyt-audio.html
 
