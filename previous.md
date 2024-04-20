@@ -1,3 +1,7 @@
+**U.S.C. Cut the Valedictorian’s Graduation Speech. Now, the Celebrities Are Out, Too.**\
+`Jon M. Chu, the director of “Crazy Rich Asians,” and Billie Jean King were set to be among the featured guests.`\
+https://nytimes.com/2024/04/19/us/usc-graduation-commencement-guests.html
+
 **Satellite imagery shows that a precision attack damaged an air defense system at an Iranian base.**\
 `By Christoph Koettl and Christiaan Triebert`\
 https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/satellite-imagery-shows-that-a-precision-attack-damaged-an-air-defense-system-at-an-iranian-base
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/nyregion/trump-trial-jury-news.html
 **As Press Reports Some Juror Details, Polarized Reactions Take Over**\
 `Journalists covering the trial face a tricky balancing act: inform the public while keeping its participants out of harm’s way.`\
 https://nytimes.com/2024/04/19/business/media/trump-trial-jurors-press-reports.html
-
-**Is the Violence Over Between Iran and Israel? It’s Never That Simple.**\
-`Hatred and political maneuvering will probably keep the tension high.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/iran-israel-violence
 

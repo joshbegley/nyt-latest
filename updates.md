@@ -1,3 +1,7 @@
+**U.S.C. Cut the Valedictorian’s Graduation Speech. Now, the Celebrities Are Out, Too.**\
+`Jon M. Chu, the director of “Crazy Rich Asians,” and Billie Jean King were set to be among the featured guests.`\
+https://nytimes.com/2024/04/19/us/usc-graduation-commencement-guests.html
+
 **Scientists Fault Federal Response to Bird Flu Outbreaks on Dairy Farms**\
 `Testing for H5N1 infection has been limited, and the outbreak was never confined. But asymptomatic cows in North Carolina may require a reassessment.`\
 https://nytimes.com/2024/04/19/health/bird-flu-usda-cattle.html
