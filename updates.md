@@ -1,3 +1,7 @@
+**Fears Over Iran Boost Netanyahu at Home. For Now.**\
+`Benjamin Netanyahu, the Israeli prime minister, lost considerable support after the Hamas-led Oct. 7 attacks on Israel. Tensions with Iran have helped him claw some of it back.`\
+https://nytimes.com/2024/04/20/world/middleeast/israel-netanyahu-gaza-iran.html
+
 **April Showers Bring Sopa de Fideos**\
 `Rick Martínez’s fast recipe for sopa de fideos y frijoles con chorizo (fideo and bean soup with chorizo) is the dinner to tuck into when skies are gray.`\
 https://nytimes.com/2024/04/20/dining/april-showers-bring-sopa-de-fideos.html
