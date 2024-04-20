@@ -1,3 +1,7 @@
+**When Pregnant Patients ‘Become Radioactive to Emergency Departments’**\
+`Exceptions to abortion bans aren’t worth the paper they’re printed on.`\
+https://nytimes.com/2024/04/20/opinion/abortion-ban-pregnancy-emergency.html
+
 **Fears Over Iran Buoy Netanyahu at Home. For Now.**\
 `Benjamin Netanyahu, the Israeli prime minister, lost considerable support after the Hamas-led Oct. 7 attacks on Israel. Tensions with Iran have helped him claw some of it back.`\
 https://nytimes.com/2024/04/20/world/middleeast/israel-netanyahu-gaza-iran.html
