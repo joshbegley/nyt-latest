@@ -1,3 +1,19 @@
+**House Set to Vote on Foreign Aid Bills for Ukraine, Israel and Taiwan**\
+`After clearing a critical hurdle on Friday, the pieces of the $95 billion package was expected to pass in a series of votes, putting the legislation on track for enactment after a tortured journey through Congress.`\
+https://nytimes.com/2024/04/20/world/europe/house-vote-aid-ukraine-israel.html
+
+**How R.F.K. Jr. Got on the Michigan Ballot, With Only Two Votes**\
+`The independent candidate persuaded a tiny party to give him its line on the ballot in a key 2024 battleground state, sparing him a costly, arduous organizing effort.`\
+https://nytimes.com/2024/04/20/us/politics/rfk-jr-michigan-ballot.html
+
+**G.O.P. Intensifies Scrutiny of Voting: ‘We’re Keeping a Close Eye on You’**\
+`The Trump campaign and the Republican Party plan to dispatch over 100,000 volunteers and lawyers to monitor elections in battleground states — and work in concert with conservative activists.`\
+https://nytimes.com/2024/04/20/us/politics/trump-rnc-voting-election.html
+
+**You Finished I.V.F. and Want to Donate Embryos. Is There a Tax Benefit?**\
+`Some people may consider donating embryos to researchers in light of Alabama’s I.V.F. ruling and in advance of other state actions. Would it be considered a charitable gift?`\
+https://nytimes.com/2024/04/20/your-money/ivf-embryos-donation-taxes.html
+
 **Bucking Trump, Anti-Abortion Movement Shows Deep Roots in Arizona**\
 `Even as abortion rights ballot issues have had some striking successes, anti-abortion forces have stood firm in state legislatures like Arizona’s where they have deep convictions and positions of power.`\
 https://nytimes.com/2024/04/20/us/arizona-abortion-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2024/04/20/upshot/carbon-dioxide-growth.html
 **‘Aging in Place, or Stuck in Place?’**\
 `Homeownership is not the boon to older Americans that it once was.`\
 https://nytimes.com/2024/04/20/health/seniors-home-equity-mortgages.html
-
-**Lily Gladstone and Riley Keough Investigate a Chilling Murder**\
-`In a joint interview, the actors discuss “Under the Bridge,” their new true-crime series based on a teenager’s brutal killing in British Columbia.`\
-https://nytimes.com/2024/04/20/arts/television/under-the-bridge-lily-gladstone-riley-keough.html
-
-**A Man Hailed as Cindy Birdsong’s Rescuer Is Accused of Exploiting Her**\
-`The son of the former Supreme says in court papers that the man who sought to help his mother after she became incapacitated also took advantage of her financially.`\
-https://nytimes.com/2024/04/20/arts/music/supremes-cindy-birdsong-brad-herman-petition.html
-
-**Judith Hill Sang With Pop Royalty. Now She Is Composing Her Own Story.**\
-`The singer, songwriter and multi-instrumentalist was close to Michael Jackson and Prince. After their deaths, her world crumbled and she had to rebuild on her own.`\
-https://nytimes.com/2024/04/20/arts/music/judith-hill-letters-from-a-black-widow.html
-
-**Co-op Assessments: Do You Have to Pay What They Say?**\
-`Courts allow co-op boards significant power over building finances, including assessments — if the fees are in ‘good faith.’`\
-https://nytimes.com/2024/04/20/realestate/co-op-assessments.html
 
