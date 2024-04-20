@@ -1,3 +1,7 @@
+**What’s Happening In Myanmar’s Civil War?**\
+`Questions you may have about the ongoing war in Myanmar, explained with graphics.`\
+https://nytimes.com/interactive/2024/04/20/world/asia/myanmar-civil-war.html
+
 **Time Is Running Out for Rahul Gandhi’s Vision for India**\
 `But in this year’s elections, the scion of India’s most storied political family is still trying to unseat Modi — and change the nation’s course.`\
 https://nytimes.com/2024/04/20/magazine/rahul-gandhi-india-election-bjp.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/business/ozempic-novo-nordisk-wegovy.html
 **‘Stereophonic’ Review: Hitmakers Rendered in Sublime Detail**\
 `In David Adjmi’s new play, with songs by Will Butler, a ’70s band’s success breeds tension, and punches up the volume on Broadway.`\
 https://nytimes.com/2024/04/19/theater/stereophonic-review.html
-
-**VW Workers in Tennessee Vote for Union, a Labor Milestone**\
-`The Volkswagen plant in Chattanooga is set to become the first unionized auto factory in the South not owned by one of Detroit’s Big Three.`\
-https://nytimes.com/2024/04/19/business/economy/volkswagen-united-automobile-workers-union.html
 
