@@ -1,3 +1,7 @@
+**Most Major Crimes Are Down. Why Are Assaults Up?**\
+`Homicides, rapes and shootings in New York City have decreased, but the number of assaults has remained stubbornly high.`\
+https://nytimes.com/2024/04/20/nyregion/assault-rates-new-york-city.html
+
 **Hamas’s political leader is in Turkey for a meeting with Erdogan.**\
 `By Liam Stack and Safak Timur`\
 https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/hamass-political-leader-is-in-turkey-for-a-meeting-with-erdogan
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/opinion/kidney-donors-payment.html
 **A Planetary Crisis Awaits the Next President**\
 `The return of Trump to the White House would be disastrous for the planet.`\
 https://nytimes.com/2024/04/20/opinion/trump-biden-climate-election.html
-
-**What Began as a War on Theater Won’t End There**\
-`The current politically-driven suppression of theater productions in high schools has a grim historical precedent.`\
-https://nytimes.com/2024/04/20/opinion/high-school-theater-banned.html
 
