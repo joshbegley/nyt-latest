@@ -1,3 +1,7 @@
+**How the House Voted on Foreign Aid to Ukraine, Israel and Taiwan**\
+`Here’s how each member of the House voted on the foreign aid bills.`\
+https://nytimes.com/interactive/2024/04/20/us/politics/2024-04-18-ukraine-israel-foreign-aid-vote.html
+
 **Israeli raid on a refugee camp in the West Bank kills at least 10 people.**\
 `By Gaya Gupta and Aaron Boxerman`\
 https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/israeli-raid-on-a-refugee-camp-in-the-west-bank-kills-10-people
