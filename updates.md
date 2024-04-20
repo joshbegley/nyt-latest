@@ -1,3 +1,7 @@
+**Columbia Students Arrested Over Campus Rally May Face Other Consequences**\
+`Students who camped in tents to protest the war in Gaza, including the daughter of Representative Ilhan Omar, may be barred from finishing the semester.`\
+https://nytimes.com/2024/04/20/nyregion/arrested-columbia-students-suspended.html
+
 **Deadly Israeli airstrikes again hit Rafah.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/deadly-israeli-airstrikes-again-hit-rafah
