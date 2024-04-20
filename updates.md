@@ -1,3 +1,11 @@
+**Behind Our Investigation Into a Chinese Doping Case**\
+`Months before the Tokyo 2021 Olympics, 23 Chinese swimmers tested positive for the same powerful banned substance. Michael Schmidt, an investigative reporter at The New York Times, explains.`\
+https://nytimes.com/video/us/100000009424384/chinese-swimmers-olympics.html
+
+**Bedtime Stories for Grown-Ups**\
+`For those past the age of a parental tuck-in, audiobooks might provide a soothing analogue.`\
+https://nytimes.com/2024/04/20/briefing/falling-asleep-to-audiobooks.html
+
 **Bedtime Stories for Grown-ups**\
 `For those past the age of a parental tuck-in, audiobooks might provide a soothing analogue.`\
 https://nytimes.com/2024/04/20/briefing/falling-asleep-to-audiobooks.html

@@ -1,4 +1,8 @@
-**Bedtime Stories for Grown-ups**\
+**Behind Our Investigation Into a Chinese Doping Case**\
+`Months before the Tokyo 2021 Olympics, 23 Chinese swimmers tested positive for the same powerful banned substance. Michael Schmidt, an investigative reporter at The New York Times, explains.`\
+https://nytimes.com/video/us/100000009424384/chinese-swimmers-olympics.html
+
+**Bedtime Stories for Grown-Ups**\
 `For those past the age of a parental tuck-in, audiobooks might provide a soothing analogue.`\
 https://nytimes.com/2024/04/20/briefing/falling-asleep-to-audiobooks.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/your-money/ivf-embryos-donation-taxes.html
 **Bucking Trump, Anti-Abortion Movement Shows Deep Roots in Arizona**\
 `Even as abortion rights ballot issues have had some striking successes, anti-abortion forces have stood firm in state legislatures like Arizona’s where they have deep convictions and positions of power.`\
 https://nytimes.com/2024/04/20/us/arizona-abortion-trump.html
-
-**It’s 4/20. These Restaurants Know You Have the Munchies.**\
-`The stoner celebration is becoming a national food holiday, thanks in part to marketing initiatives from Jimmy John’s, KFC, Wingstop and others.`\
-https://nytimes.com/2024/04/20/dining/420-food.html
 
