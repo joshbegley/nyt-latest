@@ -1,3 +1,7 @@
+**Why Myanmar’s War Matters, Even if the World Isn’t Watching**\
+`A devastating, yearslong civil war is heating up, but it still hasn’t attracted broad international notice.`\
+https://nytimes.com/2024/04/20/world/asia/myanmar-civil-war-consequences.html
+
 **This Therapy Helps Victims of Violent Crime. Who Will Pay for It?**\
 `“Trauma recovery centers” are favored by law-and-order officials and progressive activists alike for one big reason: They work. But to stay open in New York, they need more funding.`\
 https://nytimes.com/2024/04/20/nyregion/trauma-recovery-center-nyc-funding.html
