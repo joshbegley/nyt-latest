@@ -1,3 +1,7 @@
+**Roman Gabriel, Star Quarterback of the 1960s and ’70s, Dies at 84**\
+`In 16 seasons with the Los Angeles Rams and the Philadelphia Eagles, he played in four Pro Bowl games and reached the postseason twice.`\
+https://nytimes.com/2024/04/20/sports/football/roman-gabriel-star-quarterback-of-the-1960s-and-70s-dies-at-84.html
+
 **Johnson, Like Pence, Does What Passes for Brave in Today’s G.O.P.: His Job**\
 `In the Republican Party of 2024, styled in the image of former President Donald J. Trump, a norm-preserving, consensus-driven act can be a career-ending offense.`\
 https://nytimes.com/2024/04/20/us/politics/johnson-pence-republicans-ukraine-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/arts/television/star-trek-enterprise-model-found.
 **CNN’s Coverage of Man Who Set Himself on Fire Shows Challenges of Live News**\
 `There was both praise and criticism of the legal analyst and anchor, Laura Coates, and the network’s split-second decision to show the graphic footage.`\
 https://nytimes.com/2024/04/20/business/media/trump-trial-man-fire-cnn.html
-
-**Ellen Ash Peters, Pioneer on the Connecticut Bench, Dies at 94**\
-`The first woman on the faculty of Yale Law School, she was named to the State Supreme Court in 1978 and became its first female chief justice six years later.`\
-https://nytimes.com/2024/04/20/nyregion/ellen-ash-peters-dead.html
 
