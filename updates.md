@@ -1,3 +1,7 @@
+**David H. Pryor, Arkansas Senator and Clinton Ally, Dies at 89**\
+`During his 34 years as an elected official, Mr. Pryor was sometimes said to be more liberal, especially on racial issues, than the people who elected him.`\
+https://nytimes.com/2024/04/20/us/politics/david-h-pryor-dead.html
+
 **Roman Gabriel, Star Quarterback of the 1960s and ’70s, Dies at 83**\
 `In 16 seasons with the Los Angeles Rams and the Philadelphia Eagles, he played in four Pro Bowl games and reached the postseason twice.`\
 https://nytimes.com/2024/04/20/sports/football/roman-gabriel-dead.html
