@@ -1,3 +1,7 @@
+**20pol-swiper**\
+`Trump holds a rally in North Carolina, capping off the first week of his trial.`\
+https://nytimes.com/live/2024/04/20/us/biden-trump-election-2024
+
 **Donald Trump will hold a campaign rally in North Carolina, his first since his criminal trial began.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/20/us/biden-trump-election-2024/donald-trump-will-hold-a-campaign-rally-in-north-carolina-his-first-since-his-criminal-trial-began
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/business/dealbook/can-the-wnba-make-money.html
 **Seemed Like a Good Idea at the Time**\
 `Stories that begin full of hope — then take a turn.`\
 https://nytimes.com/2024/04/20/podcasts/this-american-life-seemed-like-a-good-idea-nyt-audio.html
-
-**Takeaways From Our Chinese Swimming Investigation**\
-`A doping case involving Olympic swimmers has left unanswered questions and raised new concerns about the actions of a global antidoping regulator.`\
-https://nytimes.com/2024/04/20/world/asia/china-swimming-doping-takeaways.html
 

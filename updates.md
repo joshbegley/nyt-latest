@@ -1,3 +1,7 @@
+**20pol-swiper**\
+`Trump holds a rally in North Carolina, capping off the first week of his trial.`\
+https://nytimes.com/live/2024/04/20/us/biden-trump-election-2024
+
 **Donald Trump will hold a campaign rally in North Carolina, his first since his criminal trial began.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/20/us/biden-trump-election-2024/donald-trump-will-hold-a-campaign-rally-in-north-carolina-his-first-since-his-criminal-trial-began
