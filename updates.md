@@ -1,3 +1,7 @@
+**Archie Moore, Australian Artist, Wins Top Prize at Venice Biennale**\
+`Moore, an Indigenous Australian artist, won the Golden Lion for “kith and kin,” which draws on what he says is 65,000 years of family history.`\
+https://nytimes.com/2024/04/20/arts/design/venice-biennale-golden-lion-australia-archie-moore.html
+
 **Can the W.N.B.A. Make Money?**\
 `A wave of star power has lifted hopes that viewership will pick up for the women’s league.`\
 https://nytimes.com/2024/04/20/business/dealbook/can-the-wnba-make-money.html
