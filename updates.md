@@ -1,3 +1,11 @@
+**A Holiday for Weed Fans, Complete With Corporate Sponsors**\
+`With the legalization of marijuana in New York, celebrations of “4/20” have gone mainstream.`\
+https://nytimes.com/2024/04/20/nyregion/420-weed-celebration-sponsor.html
+
+**Original U.S.S. Enterprise Model From ‘Star Trek’ Is Returned to Creator’s Son**\
+`The 33-inch model surfaced on eBay after disappearing decades ago. An auction house is giving it to the son of Gene Roddenberry, the creator of “Star Trek.”`\
+https://nytimes.com/2024/04/20/arts/television/star-trek-enterprise-model-found.html
+
 **CNN’s Coverage of Man Who Set Himself on Fire Shows Challenges of Live News**\
 `There was both praise and criticism of the legal analyst and anchor, Laura Coates, and the network’s split-second decision to show the graphic footage.`\
 https://nytimes.com/2024/04/20/business/media/man-fire-cnn-coverage.html

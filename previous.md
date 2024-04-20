@@ -1,3 +1,11 @@
+**A Holiday for Weed Fans, Complete With Corporate Sponsors**\
+`With the legalization of marijuana in New York, celebrations of “4/20” have gone mainstream.`\
+https://nytimes.com/2024/04/20/nyregion/420-weed-celebration-sponsor.html
+
+**Original U.S.S. Enterprise Model From ‘Star Trek’ Is Returned to Creator’s Son**\
+`The 33-inch model surfaced on eBay after disappearing decades ago. An auction house is giving it to the son of Gene Roddenberry, the creator of “Star Trek.”`\
+https://nytimes.com/2024/04/20/arts/television/star-trek-enterprise-model-found.html
+
 **CNN’s Coverage of Man Who Set Himself on Fire Shows Challenges of Live News**\
 `There was both praise and criticism of the legal analyst and anchor, Laura Coates, and the network’s split-second decision to show the graphic footage.`\
 https://nytimes.com/2024/04/20/business/media/man-fire-cnn-coverage.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/20/us/biden-trump-election-2024
 **Donald Trump will hold a campaign rally in North Carolina, his first since his criminal trial began.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/20/us/biden-trump-election-2024/donald-trump-will-hold-a-campaign-rally-in-north-carolina-his-first-since-his-criminal-trial-began
-
-**Nevada G.O.P. Senate primary heats up as the long shot goes after the front-runner.**\
-`The Army veteran Sam Brown remains the favorite, but the wealthy former ambassador Jeff Gunter, with a pro-Trump message, is trying to shake up the race.`\
-https://nytimes.com/2024/04/19/us/politics/nevada-gop-senate-primary-gunter.html
-
-**Columbia Students Arrested Over Campus Rally May Face Other Consequences**\
-`Students who camped in tents to protest the war in Gaza, including the daughter of Representative Ilhan Omar, may be barred from finishing the semester.`\
-https://nytimes.com/2024/04/20/nyregion/arrested-columbia-students-suspended.html
 
