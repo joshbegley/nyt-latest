@@ -1,3 +1,15 @@
+**Seemed Like a Good Idea at the Time**\
+`Stories that begin full of hope — then take a turn.`\
+https://nytimes.com/2024/04/20/podcasts/this-american-life-seemed-like-a-good-idea-nyt-audio.html
+
+**Takeaways From Our Chinese Swimming Investigation**\
+`A doping case involving Olympic swimmers has left unanswered questions and raised new concerns about the actions of a global antidoping regulator.`\
+https://nytimes.com/2024/04/20/world/asia/china-swimming-doping-takeaways.html
+
+**2 Books That Capture New York**\
+`A stroll around the city with a great stylist; a comic novel of love and real estate.`\
+https://nytimes.com/2024/04/20/books/read-like-wind-recommendations.html
+
 **Most Major Crimes Are Down. Why Are Assaults Up?**\
 `Homicides, rapes and shootings in New York City have decreased, but the number of assaults has remained stubbornly high.`\
 https://nytimes.com/2024/04/20/nyregion/assault-rates-new-york-city.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/20/opinion/students-humility-american-politics.html
 **A Visual Guide to the Middle East’s Tangled Network of Friends and Enemies**\
 `As the conflict between Israel and Hamas spills over, we sketched out a social network of the alliances and enmities at play.`\
 https://nytimes.com/interactive/2024/04/20/opinion/a-visual-guide-to-the-middle-east.html
-
-**Say Hello to Your Addiction Risk Score — Courtesy of the Tech Industry**\
-`A number of new tech companies want to solve the opioid crisis with algorithms. It’s a flawed and potentially harmful proposition.`\
-https://nytimes.com/2024/04/20/opinion/addiction-risk-score-avertd-narxcare.html
-
-**Should Kidney Donors Be Paid?**\
-`A guest essay argued in favor of payments. Readers, including donors, offer divergent views.`\
-https://nytimes.com/2024/04/20/opinion/kidney-donors-payment.html
-
-**A Planetary Crisis Awaits the Next President**\
-`The return of Trump to the White House would be disastrous for the planet.`\
-https://nytimes.com/2024/04/20/opinion/trump-biden-climate-election.html
 

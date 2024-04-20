@@ -1,3 +1,15 @@
+**Seemed Like a Good Idea at the Time**\
+`Stories that begin full of hope — then take a turn.`\
+https://nytimes.com/2024/04/20/podcasts/this-american-life-seemed-like-a-good-idea-nyt-audio.html
+
+**Takeaways From Our Chinese Swimming Investigation**\
+`A doping case involving Olympic swimmers has left unanswered questions and raised new concerns about the actions of a global antidoping regulator.`\
+https://nytimes.com/2024/04/20/world/asia/china-swimming-doping-takeaways.html
+
+**2 Books That Capture New York**\
+`A stroll around the city with a great stylist; a comic novel of love and real estate.`\
+https://nytimes.com/2024/04/20/books/read-like-wind-recommendations.html
+
 **Most Major Crimes Are Down. Why Are Assaults Up?**\
 `Homicides, rapes and shootings in New York City have decreased, but the number of assaults has remained stubbornly high.`\
 https://nytimes.com/2024/04/20/nyregion/assault-rates-new-york-city.html
