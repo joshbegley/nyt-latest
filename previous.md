@@ -1,3 +1,7 @@
+**April Showers Bring Sopa de Fideos**\
+`Rick Martínez’s fast recipe for sopa de fideos y frijoles con chorizo (fideo and bean soup with chorizo) is the dinner to tuck into when skies are gray.`\
+https://nytimes.com/2024/04/20/dining/april-showers-bring-sopa-de-fideos.html
+
 **Deadly Israeli airstrikes again hit Rafah.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/deadly-israeli-airstrikes-again-hit-rafah
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/us/supreme-court-homelessness-oregon.html
 **Archie Moore, Australian Artist, Wins Top Prize at Venice Biennale**\
 `Moore, an Indigenous Australian artist, won the Golden Lion for “kith and kin,” which draws on what he says is 65,000 years of family history.`\
 https://nytimes.com/2024/04/20/arts/design/venice-biennale-golden-lion-australia-archie-moore.html
-
-**Can the W.N.B.A. Make Money?**\
-`A wave of star power has lifted hopes that viewership will pick up for the women’s league.`\
-https://nytimes.com/2024/04/20/business/dealbook/can-the-wnba-make-money.html
 

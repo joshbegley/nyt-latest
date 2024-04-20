@@ -1,3 +1,7 @@
+**April Showers Bring Sopa de Fideos**\
+`Rick Martínez’s fast recipe for sopa de fideos y frijoles con chorizo (fideo and bean soup with chorizo) is the dinner to tuck into when skies are gray.`\
+https://nytimes.com/2024/04/20/dining/april-showers-bring-sopa-de-fideos.html
+
 **Columbia Students Arrested Over Campus Rally May Face Other Consequences**\
 `Students who camped in tents to protest the war in Gaza, including the daughter of Representative Ilhan Omar, may be barred from finishing the semester.`\
 https://nytimes.com/2024/04/20/nyregion/arrested-columbia-students-suspended.html
