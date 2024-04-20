@@ -1,3 +1,7 @@
+**Ellen Ash Peters, Pioneer on the Connecticut Bench, Dies at 94**\
+`The first woman on the faculty of Yale Law School, she was named to the State Supreme Court in 1978 and became its first female chief justice six years later.`\
+https://nytimes.com/2024/04/20/nyregion/ellen-ash-peters-dead.html
+
 **When Pregnant Patients ‘Become Radioactive to Emergency Departments’**\
 `Exceptions to abortion bans aren’t worth the paper they’re printed on.`\
 https://nytimes.com/2024/04/20/opinion/abortion-ban-pregnancy-emergency.html

@@ -1,3 +1,7 @@
+**Ellen Ash Peters, Pioneer on the Connecticut Bench, Dies at 94**\
+`The first woman on the faculty of Yale Law School, she was named to the State Supreme Court in 1978 and became its first female chief justice six years later.`\
+https://nytimes.com/2024/04/20/nyregion/ellen-ash-peters-dead.html
+
 **When Pregnant Patients ‘Become Radioactive to Emergency Departments’**\
 `Exceptions to abortion bans aren’t worth the paper they’re printed on.`\
 https://nytimes.com/2024/04/20/opinion/abortion-ban-pregnancy-emergency.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/nyregion/arrested-columbia-students-suspended.htm
 **Lawsuit Puts Fresh Focus on Eric Hovde’s Comments About Older Voters**\
 `Pressed on his claims of 2020 election irregularities, the Republican candidate for Senate in Wisconsin has questioned the mental capacity of nursing home residents to vote.`\
 https://nytimes.com/2024/04/20/us/politics/california-lawsuit-wisconsin-senate-race.html
-
-**Could the Union Victory at VW Set Off a Wave?**\
-`Some experts say the outcome at a plant in Chattanooga, Tenn., may be organized labor’s most significant advance in decades. But the road could get rockier.`\
-https://nytimes.com/2024/04/20/business/economy/uaw-union-future.html
 
