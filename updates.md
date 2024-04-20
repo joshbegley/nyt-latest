@@ -1,3 +1,7 @@
+**Fears Over Iran Buoys Netanyahu at Home. For Now.**\
+`Benjamin Netanyahu, the Israeli prime minister, lost considerable support after the Hamas-led Oct. 7 attacks on Israel. Tensions with Iran have helped him claw some of it back.`\
+https://nytimes.com/2024/04/20/world/middleeast/israel-netanyahu-gaza-iran.html
+
 **Fears Over Iran Boost Netanyahu at Home. For Now.**\
 `Benjamin Netanyahu, the Israeli prime minister, lost considerable support after the Hamas-led Oct. 7 attacks on Israel. Tensions with Iran have helped him claw some of it back.`\
 https://nytimes.com/2024/04/20/world/middleeast/israel-netanyahu-gaza-iran.html
