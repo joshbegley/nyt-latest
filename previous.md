@@ -1,3 +1,7 @@
+**A Life Overtaken by Conspiracy Theories Explodes in Flames as the Public Looks On**\
+`Friends of Max Azzarello, who set himself on fire outside Donald J. Trump’s trial, said he was a caring person whose paranoia had led him down a dark path.`\
+https://nytimes.com/2024/04/19/nyregion/max-azzarello-man-fire-trump.html
+
 **Israel Strikes an Iranian Military Base, but Damage Appears Limited**\
 `The drone attack may have been launched from inside Iran, once again demonstrating Israel’s ability to carry out clandestine operations there.`\
 https://nytimes.com/2024/04/18/world/middleeast/strike-isfahan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/health/bird-flu-usda-cattle.html
 **Saddling Up and Feeling Spry at Martha Graham**\
 `Under the banner “American Legacies,” the Martha Graham Dance Company dusted off a classic, “Rodeo,” premiered a companion piece and welcomed FKA twigs for a guest solo at City Center.`\
 https://nytimes.com/2024/04/19/arts/dance/martha-graham-100-years-season.html
-
-**Israel’s Strike on Iran: A Limited Attack but a Potentially Big Signal**\
-`Israel hit a strategic city with carefully measured force, but made the point that it could strike at a center of Iran’s nuclear program.`\
-https://nytimes.com/2024/04/19/us/politics/israel-iran-analysis.html
 
