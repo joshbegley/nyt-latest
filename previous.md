@@ -14,7 +14,7 @@ https://nytimes.com/2024/04/20/nyregion/new-york-state-budget.html
 `In 16 seasons with the Los Angeles Rams and the Philadelphia Eagles, he played in four Pro Bowl games and reached the postseason twice.`\
 https://nytimes.com/2024/04/20/sports/football/roman-gabriel-dead.html
 
-**Johnson Like Pence, Does His Job, Drawing Republican Outrage**\
+**Johnson, Like Pence, Does His Job, Drawing Republican Outrage**\
 `In the Republican Party of 2024, styled in the image of former President Donald J. Trump, a norm-preserving, consensus-driven act can be a career-ending offense.`\
 https://nytimes.com/2024/04/20/us/politics/johnson-pence-republicans-ukraine-aid.html
 

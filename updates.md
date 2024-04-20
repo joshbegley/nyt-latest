@@ -1,3 +1,7 @@
+**Johnson, Like Pence, Does His Job, Drawing Republican Outrage**\
+`In the Republican Party of 2024, styled in the image of former President Donald J. Trump, a norm-preserving, consensus-driven act can be a career-ending offense.`\
+https://nytimes.com/2024/04/20/us/politics/johnson-pence-republicans-ukraine-aid.html
+
 **David H. Pryor, Arkansas Senator and Clinton Ally, Dies at 89**\
 `During his 34 years as an elected official, Mr. Pryor was sometimes said to be more liberal, especially on racial issues, than the people who elected him.`\
 https://nytimes.com/2024/04/20/us/politics/david-h-pryor-dead.html
