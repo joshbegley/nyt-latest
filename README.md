@@ -1,3 +1,7 @@
+**Martin Wygod, a Winner on Wall Street and the Racetrack, Dies at 84**\
+`After he made a fortune selling prescription drugs and providing medical information online, he and his wife became leading breeders of thoroughbred horses.`\
+https://nytimes.com/2024/04/20/business/martin-wygod-dead.html
+
 **U.S. Military Aid for Ukraine Could Soon Flow Again**\
 `What would $60 billion buy? Lots of air-defense missiles and artillery ammunition, according to the Pentagon.`\
 https://nytimes.com/2024/04/20/us/politics/weapons-aid-ukraine-military.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/world/middleeast/israel-netanyahu-gaza-iran.html
 **April Showers Bring Sopa de Fideos**\
 `Rick Martínez’s fast recipe for sopa de fideos y frijoles con chorizo (fideo and bean soup with chorizo) is the dinner to tuck into when skies are gray.`\
 https://nytimes.com/2024/04/20/dining/april-showers-bring-sopa-de-fideos.html
-
-**Deadly Israeli airstrikes again hit Rafah.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/deadly-israeli-airstrikes-again-hit-rafah
 
