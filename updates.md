@@ -1,3 +1,7 @@
+**An explosion at a military base in Iraq wounds three people.**\
+`It was unclear who carried out the attack in Iraq’s Babylon province, south of Baghdad.`\
+https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/an-explosion-at-a-military-base-in-iraq-wounds-three-people
+
 **Ex-Police Officer Pleads Guilty to Murder in Shooting of 12-Year-Old Boy**\
 `Edsaul Mendoza, a former Philadelphia police officer, could face up to 40 years in prison after pleading guilty to third-degree murder.`\
 https://nytimes.com/2024/04/19/us/saul-mendoza-thomas-sidario-shooting-sentencing.html
