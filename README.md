@@ -1,3 +1,7 @@
+**Several People Are Stabbed on a Party Boat in Brooklyn**\
+`Three people were hospitalized, and about 3,000 passengers were evacuated, the authorities said.`\
+https://nytimes.com/2024/04/20/nyregion/brooklyn-boat-stabbings-ship.html
+
 **Ukraine Aid Divides Republicans, After Trump Tones Down His Resistance**\
 `His most vocal allies in the House, however, were loudly against providing assistance as Ukraine fights Russia’s invasion.`\
 https://nytimes.com/2024/04/20/us/politics/trump-ukraine-house-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/sports/football/roman-gabriel-dead.html
 **Johnson, Like Pence, Draws Praise for Defying His Party and Doing His Job**\
 `In the Republican Party of 2024, styled in the image of former President Donald J. Trump, a norm-preserving, consensus-driven act — even a basic one — can be a career-ending offense.`\
 https://nytimes.com/2024/04/20/us/politics/johnson-pence-republicans-ukraine-aid.html
-
-**How the House Voted on Foreign Aid to Ukraine, Israel and Taiwan**\
-`Here’s how each member of the House voted on the foreign aid bills.`\
-https://nytimes.com/interactive/2024/04/20/us/politics/ukraine-israel-foreign-aid-vote.html
 
