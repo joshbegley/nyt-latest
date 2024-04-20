@@ -1,3 +1,7 @@
+**Taylor Swift’s New Album Reviewed**\
+`Our pop music critic on “The Tortured Poets Department.”`\
+https://nytimes.com/2024/04/19/podcasts/taylor-swifts-new-album-reviewed.html
+
 **An explosion damages a military base in Iraq used by an Iran-backed armed group.**\
 `It was unclear who carried out the attack in Iraq’s Babylon province, south of Baghdad.`\
 https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/an-explosion-at-a-military-base-in-iraq-wounds-three-people

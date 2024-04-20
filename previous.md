@@ -1,3 +1,7 @@
+**Taylor Swift’s New Album Reviewed**\
+`Our pop music critic on “The Tortured Poets Department.”`\
+https://nytimes.com/2024/04/19/podcasts/taylor-swifts-new-album-reviewed.html
+
 **An explosion damages a military base in Iraq used by an Iran-backed armed group.**\
 `It was unclear who carried out the attack in Iraq’s Babylon province, south of Baghdad.`\
 https://nytimes.com/live/2024/04/18/world/israel-iran-gaza-war-news/an-explosion-at-a-military-base-in-iraq-wounds-three-people
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/19/us/politics/israel-iran-analysis.html
 **Inside the Courtroom, Trump Is Trapped With His Past**\
 `He was forced to listen to much of the damage he has caused.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-trapped-courtroom
-
-**Day 4 of Trump’s Criminal Trial: Five Takeaways**\
-`A full jury is seated, a horrifying incident shocks the court and opening statements are set to begin on Monday.`\
-https://nytimes.com/2024/04/19/nyregion/trump-trial-man-fire-takeaways.html
 
