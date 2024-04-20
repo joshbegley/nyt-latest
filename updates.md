@@ -1,3 +1,7 @@
+**Johnson Like Pence, Does His Job, Drawing Republican Outrage**\
+`In the Republican Party of 2024, styled in the image of former President Donald J. Trump, a norm-preserving, consensus-driven act can be a career-ending offense.`\
+https://nytimes.com/2024/04/20/us/politics/johnson-pence-republicans-ukraine-aid.html
+
 **3 Officers Face Charges in Death of California Man Who Was Pinned Down**\
 `The officers, all with the Alameda Police Department at the time, were charged with involuntary manslaughter after the district attorney reopened the case.`\
 https://nytimes.com/2024/04/20/us/california-police-officer-charges-gonzalez.html
