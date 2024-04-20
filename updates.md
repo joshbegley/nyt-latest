@@ -1,3 +1,7 @@
+**The Town at the Center of a Supreme Court Battle Over Homelessness**\
+`A lawsuit by a group of homeless residents of a small Oregon town could reshape the way cities across the country deal with homelessness.`\
+https://nytimes.com/2024/04/20/us/supreme-court-homelessness-oregon.html
+
 **Archie Moore, Australian Artist, Wins Top Prize at Venice Biennale**\
 `Moore, an Indigenous Australian artist, won the Golden Lion for “kith and kin,” which draws on what he says is 65,000 years of family history.`\
 https://nytimes.com/2024/04/20/arts/design/venice-biennale-golden-lion-australia-archie-moore.html

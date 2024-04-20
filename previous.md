@@ -1,3 +1,7 @@
+**The Town at the Center of a Supreme Court Battle Over Homelessness**\
+`A lawsuit by a group of homeless residents of a small Oregon town could reshape the way cities across the country deal with homelessness.`\
+https://nytimes.com/2024/04/20/us/supreme-court-homelessness-oregon.html
+
 **Archie Moore, Australian Artist, Wins Top Prize at Venice Biennale**\
 `Moore, an Indigenous Australian artist, won the Golden Lion for “kith and kin,” which draws on what he says is 65,000 years of family history.`\
 https://nytimes.com/2024/04/20/arts/design/venice-biennale-golden-lion-australia-archie-moore.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/opinion/melania-trump.html
 **Mike Pence: Donald Trump Has Betrayed the Pro-Life Movement**\
 `Here’s how America should build on the end of Roe v. Wade`\
 https://nytimes.com/2024/04/20/opinion/donald-trump-abortion.html
-
-**How New Wars Have Brought Back Old American Divisions**\
-`Both parties experience echoes of decades past.`\
-https://nytimes.com/2024/04/20/opinion/republicans-democrats-ukraine-israel.html
 
