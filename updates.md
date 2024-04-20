@@ -1,3 +1,7 @@
+**CNN’s Coverage of Man Who Set Himself on Fire Shows Challenges of Live News**\
+`There was both praise and criticism of the legal analyst and anchor, Laura Coates, and the network’s split-second decision to show the graphic footage.`\
+https://nytimes.com/2024/04/20/business/media/trump-trial-man-fire-cnn.html
+
 **U.S. Military Aid for Ukraine Could Soon Flow Again**\
 `What would $60 billion buy? Lots of air-defense missiles and artillery ammunition, according to the Pentagon.`\
 https://nytimes.com/2024/04/20/us/politics/weapons-aid-ukraine-military.html
