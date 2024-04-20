@@ -1,3 +1,7 @@
+**Israeli raid on a refugee camp in the West Bank kills 10 people.**\
+`By Gaya Gupta and Aaron Boxerman`\
+https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/israeli-raid-on-a-refugee-camp-in-the-west-bank-kills-10-people
+
 **A Holiday for Weed Fans, Complete With Sponsors**\
 `With the legalization of marijuana in New York, celebrations of “4/20” have gone mainstream.`\
 https://nytimes.com/2024/04/20/nyregion/420-weed-celebration-sponsor.html
