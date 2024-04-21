@@ -1,3 +1,7 @@
+**Trump Rally, a Return to the Campaign Trail, Is Called Off Because of Storms**\
+`After a week stuck in a courtroom, Donald Trump was planning to speak to thousands of supporters in North Carolina, until the weather turned dangerous.`\
+https://nytimes.com/2024/04/20/us/politics/trump-rally-canceled.html
+
 **Trump Slows Campaign Spending as He Tries to Close Cash Gap With Biden**\
 `President Biden’s campaign had $85.5 million on hand at the end of March, filings show, and Donald Trump had $45 million, but the president is spending far more freely on the race.`\
 https://nytimes.com/2024/04/20/us/politics/trump-biden-spending-money.html
