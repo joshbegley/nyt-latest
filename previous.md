@@ -1,3 +1,15 @@
+**Russian Attacks Crush Factories and Way of Life in Ukrainian Villages**\
+`The assaults have all but destroyed the factories and plants that were the economic lifeblood of the towns and cities in Ukraine’s east.`\
+https://nytimes.com/2024/04/21/world/europe/ukraine-industry-donbas-russia.html
+
+**Crackdowns, Attacks and Threat of War Put Iranians on Edge**\
+`Facing deep economic troubles and a restive population, the government seems to have adopted a policy of declaring victory over Israel and cracking down at home, analysts say.`\
+https://nytimes.com/2024/04/21/world/middleeast/iran-economy-israel-war.html
+
+**‘Hell’s Kitchen’ Review: Alicia Keys’s Musical Finds Its Groove on Broadway**\
+`The retooled jukebox musical, with its top-notch performances and exciting choreography, “stands out as one of the rare must-sees” in a crowded season.`\
+https://nytimes.com/2024/04/20/theater/hells-kitchen-review-alicia-keys.html
+
 **Trump Slows Campaign Spending as He Tries to Close Cash Gap With Biden**\
 `President Biden’s campaign had $85.5 million on hand at the end of March, filings show, and Donald Trump had $45 million, but the president is spending far more freely on the race.`\
 https://nytimes.com/2024/04/20/us/politics/trump-biden-spending-money.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/20/crosswords/daily-puzzle-2024-04-21.html
 **The Palestinian Authority’s president threatens to reconsider relations with the United States.**\
 `By Gaya Gupta`\
 https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/the-palestinian-authoritys-president-threatens-to-reconsider-relations-with-the-united-states
-
-**3 Officers Face Charges in Death of California Man Who Was Pinned Down**\
-`The officers, all with the Alameda Police Department at the time, were charged with involuntary manslaughter after the district attorney reopened the case.`\
-https://nytimes.com/2024/04/20/us/california-police-officer-charges-gonzalez.html
-
-**The House, with a bipartisan vote, approves an aid package for Israel.**\
-`By Catie Edmondson`\
-https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/the-house-with-a-bipartisan-vote-approves-an-aid-package-for-israel
-
-**In Late-Stage Budget Talks, Hochul Wins Concessions From N.Y. Lawmakers**\
-`Gov. Kathy Hochul used the $237 billion budget to wedge in contentious issues like extending Mayor Eric Adams’s control over New York City schools.`\
-https://nytimes.com/2024/04/20/nyregion/new-york-state-budget.html
 

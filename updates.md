@@ -1,3 +1,15 @@
+**Russian Attacks Crush Factories and Way of Life in Ukrainian Villages**\
+`The assaults have all but destroyed the factories and plants that were the economic lifeblood of the towns and cities in Ukraine’s east.`\
+https://nytimes.com/2024/04/21/world/europe/ukraine-industry-donbas-russia.html
+
+**Crackdowns, Attacks and Threat of War Put Iranians on Edge**\
+`Facing deep economic troubles and a restive population, the government seems to have adopted a policy of declaring victory over Israel and cracking down at home, analysts say.`\
+https://nytimes.com/2024/04/21/world/middleeast/iran-economy-israel-war.html
+
+**‘Hell’s Kitchen’ Review: Alicia Keys’s Musical Finds Its Groove on Broadway**\
+`The retooled jukebox musical, with its top-notch performances and exciting choreography, “stands out as one of the rare must-sees” in a crowded season.`\
+https://nytimes.com/2024/04/20/theater/hells-kitchen-review-alicia-keys.html
+
 **Trump Rally, a Return to the Campaign Trail, Is Called Off Because of Storms**\
 `After a week stuck in a courtroom, Donald Trump was planning to speak to thousands of supporters in North Carolina, until the weather turned dangerous.`\
 https://nytimes.com/2024/04/20/us/politics/trump-rally-canceled.html
