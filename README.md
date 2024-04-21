@@ -20,7 +20,7 @@ https://nytimes.com/2024/04/21/nyregion/trump-trial-jurors.html
 
 **Netanyahu says sanctions against a unit of Israel’s military would be a ‘moral low.’**\
 `The battalion, which has been accused of violent incidents against Palestinians, was established for ultra-Orthodox Jewish males.`\
-https://nytimes.com/2024/04/21/world/middleeast/netanyahu-sanctions-israel.html
+https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/netanyahu-sanctions-israel
 
 **Do Not Make Survival Even More Difficult for People on the Streets**\
 `A ban on camping in public places faces a Supreme Court test.`\
