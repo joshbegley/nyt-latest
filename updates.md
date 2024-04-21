@@ -1,3 +1,7 @@
+**What to Watch as Trump’s Hush-Money Trial Begins**\
+`A jury has been selected and opening arguments are set to begin in Donald Trump’s hush-money trial in Manhattan. Kate Christobek, a court reporter for The New York Times, breaks down what to watch.`\
+https://nytimes.com/video/nyregion/100000009423971/trump-hush-money-what-to-watch.html
+
 **Monday Briefing: U.S. Poised to Resume Aid to Ukraine**\
 `Also, Iran appears to stand down after Israel’s strike and Myanmar’s conflict may be shifting.`\
 https://nytimes.com/2024/04/21/world/asia/us-ukraine-aid-iran-israel-asia.html
