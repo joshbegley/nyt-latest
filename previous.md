@@ -1,3 +1,11 @@
+**Do Not Make Survival Even More Difficult for People on the Streets**\
+`A ban on camping in public places faces a Supreme Court test.`\
+https://nytimes.com/2024/04/21/opinion/homeless-camping-supreme-court.html
+
+**‘Team USA Was Cheated’: Chinese Doping Case Roils Swimming**\
+`An American who won silver in Tokyo calls for an investigation. A British gold medalist demands bans. But the most bitter fight was between antidoping leaders.`\
+https://nytimes.com/2024/04/21/world/asia/chinese-swimmers-doping.html
+
 **Welcome to Scam World**\
 `To own a computer or smartphone — indeed, to engage with the digital world to any degree — is to be a mark. You can try to block, encrypt and unsubscribe your way out of it, but you may not succeed.`\
 https://nytimes.com/2024/04/21/style/scams-identity-theft.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/21/learning/whats-going-on-in-this-picture-april-22-
 **E-Commerce and the Influencer Economy**\
 `How internet shopping became choked with junk.`\
 https://nytimes.com/2024/04/21/briefing/e-commerce-influencers-wirecutter.html
-
-**Violence in the West Bank has sharply escalated in recent months.**\
-`By Vivek Shankar and Isabel Kershner`\
-https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/the-israeli-raid-which-killed-at-least-10-people-comes-amid-escalating-violence-in-the-west-bank
-
-**Heavy Rains Hit Southern China as Hong Kong Spots a Waterspout**\
-`Bad weather in Guangdong Province forced evacuations as forecasters warned of more rain and potential flooding.`\
-https://nytimes.com/2024/04/21/world/asia/china-rain-hong-kong-waterspout.html
 

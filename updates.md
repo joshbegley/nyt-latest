@@ -1,3 +1,11 @@
+**Do Not Make Survival Even More Difficult for People on the Streets**\
+`A ban on camping in public places faces a Supreme Court test.`\
+https://nytimes.com/2024/04/21/opinion/homeless-camping-supreme-court.html
+
+**‘Team USA Was Cheated’: Chinese Doping Case Roils Swimming**\
+`An American who won silver in Tokyo calls for an investigation. A British gold medalist demands bans. But the most bitter fight was between antidoping leaders.`\
+https://nytimes.com/2024/04/21/world/asia/chinese-swimmers-doping.html
+
 **Welcome to Scam World**\
 `To own a computer or smartphone — indeed, to engage with the digital world to any degree — is to be a mark. You can try to block, encrypt and unsubscribe your way out of it, but you may not succeed.`\
 https://nytimes.com/2024/04/21/style/scams-identity-theft.html
