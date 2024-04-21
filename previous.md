@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | April 22, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/04/21/learning/whats-going-on-in-this-picture-april-22-2024.html
+
 **E-Commerce and the Influencer Economy**\
 `How internet shopping became choked with junk.`\
 https://nytimes.com/2024/04/21/briefing/e-commerce-influencers-wirecutter.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/21/us/israel-gaza-democrats.html
 **Necessity Gives Rise to Bipartisanship — for Now**\
 `The far right finds itself marginalized in the House as Speaker Johnson pushes through aid to Ukraine and Israel by relying on Democrats.`\
 https://nytimes.com/2024/04/21/us/politics/coalition-governance-congress.html
-
-**In Latest Gambling Scandal, Some See Glimpse of Sports’ Future**\
-`The N.B.A. banned a player for life for betting on games, a practice some worry could become more prevalent with the rise of wagering on sports.`\
-https://nytimes.com/2024/04/21/business/sports-gambling-jontay-porter.html
 
