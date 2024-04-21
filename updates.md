@@ -1,3 +1,7 @@
+**The Israeli raid, which killed at least 10 people, comes amid escalating violence in the West Bank.**\
+`By Vivek Shankar and Isabel Kershner`\
+https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/the-israeli-raid-which-killed-at-least-10-people-comes-amid-escalating-violence-in-the-west-bank
+
 **Heavy Rains Hit Southern China as Hong Kong Spots a Waterspout**\
 `Bad weather in Guangdong Province forced evacuations as forecasters warned of more rain and potential flooding.`\
 https://nytimes.com/2024/04/21/world/asia/china-rain-hong-kong-waterspout.html
