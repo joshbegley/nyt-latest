@@ -1,3 +1,7 @@
+**Quotation of the Day: Ragtag Resistance Sees the Tide Turning**\
+`Quotation of the Day for Sunday, April 21, 2024.`\
+https://nytimes.com/2024/04/21/pageoneplus/quotation-of-the-day-ragtag-resistance-sees-the-tide-turning.html
+
 **Corrections: April 21, 2024**\
 `Corrections that appeared in print on Sunday, April 21, 2024.`\
 https://nytimes.com/2024/04/21/pageoneplus/corrections-april-21-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/21/world/middleeast/iran-economy-israel-war.html
 **‘Hell’s Kitchen’ Review: Alicia Keys’s Musical Finds Its Groove on Broadway**\
 `The retooled jukebox musical, with its top-notch performances and exciting choreography, “stands out as one of the rare must-sees” in a crowded season.`\
 https://nytimes.com/2024/04/20/theater/hells-kitchen-review-alicia-keys.html
-
-**Trump Slows Campaign Spending as He Tries to Close Cash Gap With Biden**\
-`President Biden’s campaign had $85.5 million on hand at the end of March, filings show, and Donald Trump had $45 million, but the president is spending far more freely on the race.`\
-https://nytimes.com/2024/04/20/us/politics/trump-biden-spending-money.html
 
