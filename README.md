@@ -1,3 +1,7 @@
+**Welcome to Scam World**\
+`To own a computer or smartphone — indeed, to engage with the digital world to any degree — is to be a mark. You can try to block, encrypt and unsubscribe your way out of it, but you may not succeed.`\
+https://nytimes.com/2024/04/21/style/scams-identity-theft.html
+
 **Biden’s Small Win — and Bigger Failure — in the Middle East**\
 `President Biden’s win last week in the Middle East is part of a bigger failure.`\
 https://nytimes.com/2024/04/21/opinion/international-world/bidens-win-failure-middle-east.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/the-israeli-
 **Heavy Rains Hit Southern China as Hong Kong Spots a Waterspout**\
 `Bad weather in Guangdong Province forced evacuations as forecasters warned of more rain and potential flooding.`\
 https://nytimes.com/2024/04/21/world/asia/china-rain-hong-kong-waterspout.html
-
-**Vote to Resume U.S. Military Aid Is Met With Relief in Ukraine**\
-`Much-needed munitions like artillery shells could start arriving relatively quickly, but experts say it could take weeks before U.S. assistance has a direct impact on the war.`\
-https://nytimes.com/2024/04/21/world/europe/ukraine-military-aid-bill.html
 
