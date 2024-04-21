@@ -7,7 +7,7 @@ https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/the-israeli-
 https://nytimes.com/2024/04/21/world/asia/china-rain-hong-kong-waterspout.html
 
 **Vote to Resume U.S. Military Aid Is Met With Relief in Ukraine**\
-`Much-needed items like artillery shells could start arriving relatively quickly, but experts say it could take weeks before U.S. assistance has a direct impact on the war.`\
+`Much-needed munitions like artillery shells could start arriving relatively quickly, but experts say it could take weeks before U.S. assistance has a direct impact on the war.`\
 https://nytimes.com/2024/04/21/world/europe/ukraine-military-aid-bill.html
 
 **Trump’s Trial Challenge: Being Stripped of Control**\

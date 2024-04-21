@@ -1,3 +1,7 @@
+**Vote to Resume U.S. Military Aid Is Met With Relief in Ukraine**\
+`Much-needed munitions like artillery shells could start arriving relatively quickly, but experts say it could take weeks before U.S. assistance has a direct impact on the war.`\
+https://nytimes.com/2024/04/21/world/europe/ukraine-military-aid-bill.html
+
 **Violence in the West Bank has sharply escalated in recent months.**\
 `By Vivek Shankar and Isabel Kershner`\
 https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/the-israeli-raid-which-killed-at-least-10-people-comes-amid-escalating-violence-in-the-west-bank
