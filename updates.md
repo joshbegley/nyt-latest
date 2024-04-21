@@ -1,3 +1,19 @@
+**Biden’s Small Win — and Bigger Failure — in the Middle East**\
+`President Biden’s win last week in the Middle East is part of a bigger failure.`\
+https://nytimes.com/2024/04/21/opinion/international-world/bidens-win-failure-middle-east.html
+
+**Government Surveillance Keeps Us Safe**\
+`A surveillance law referred to as Section 702 is needed to protect us from foreign threats.`\
+https://nytimes.com/2024/04/21/opinion/fisa-section-702-fbi-privacy.html
+
+**We Regulate a Tiny Fraction of the 12,000 ‘Forever Chemicals.’ There’s a Better Way.**\
+`To reduce the risk PFAS post, we need far more comprehensive mandates that test, monitor and limit the entire class of chemicals.`\
+https://nytimes.com/2024/04/21/opinion/pfas-cancer-forever-chemicals.html
+
+**The Line Between Good and Evil Cuts Through Evangelical America**\
+`Evangelicals, fundamentalists and Pentecostals are taking the church in very different directions.`\
+https://nytimes.com/2024/04/21/opinion/christianity-fundamentalist-evangelical-pentacostal.html
+
 **India to Redo Voting at Polling Stations Hit by Violence**\
 `The attacks occurred in Manipur, a northeastern state that has been troubled by ethnic unrest. Witnesses reported that voting booths were captured and bogus ballots cast.`\
 https://nytimes.com/2024/04/21/world/asia/india-voting-violence-manipur.html

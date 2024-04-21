@@ -1,3 +1,19 @@
+**Biden’s Small Win — and Bigger Failure — in the Middle East**\
+`President Biden’s win last week in the Middle East is part of a bigger failure.`\
+https://nytimes.com/2024/04/21/opinion/international-world/bidens-win-failure-middle-east.html
+
+**Government Surveillance Keeps Us Safe**\
+`A surveillance law referred to as Section 702 is needed to protect us from foreign threats.`\
+https://nytimes.com/2024/04/21/opinion/fisa-section-702-fbi-privacy.html
+
+**We Regulate a Tiny Fraction of the 12,000 ‘Forever Chemicals.’ There’s a Better Way.**\
+`To reduce the risk PFAS post, we need far more comprehensive mandates that test, monitor and limit the entire class of chemicals.`\
+https://nytimes.com/2024/04/21/opinion/pfas-cancer-forever-chemicals.html
+
+**The Line Between Good and Evil Cuts Through Evangelical America**\
+`Evangelicals, fundamentalists and Pentecostals are taking the church in very different directions.`\
+https://nytimes.com/2024/04/21/opinion/christianity-fundamentalist-evangelical-pentacostal.html
+
 **India to Redo Voting at Polling Stations Hit by Violence**\
 `The attacks occurred in Manipur, a northeastern state that has been troubled by ethnic unrest. Witnesses reported that voting booths were captured and bogus ballots cast.`\
 https://nytimes.com/2024/04/21/world/asia/india-voting-violence-manipur.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/21/world/asia/china-rain-hong-kong-waterspout.html
 **Vote to Resume U.S. Military Aid Is Met With Relief in Ukraine**\
 `Much-needed munitions like artillery shells could start arriving relatively quickly, but experts say it could take weeks before U.S. assistance has a direct impact on the war.`\
 https://nytimes.com/2024/04/21/world/europe/ukraine-military-aid-bill.html
-
-**Trump’s Trial Challenge: Being Stripped of Control**\
-`The mundanity of the courtroom has all but swallowed Donald Trump, who for decades has sought to project an image of bigness and a sense of power.`\
-https://nytimes.com/2024/04/21/us/politics/trump-trial-analysis.html
-
-**How Mike Johnson Got to ‘Yes’ on Aid to Ukraine**\
-`Intelligence, politics and personal considerations converted the Republican speaker, who had largely opposed aid to Ukraine as a rank-and-file member, into the key figure pushing it through Congress.`\
-https://nytimes.com/2024/04/21/us/politics/mike-johnson-turnaround.html
-
-**‘History Will Judge It Well,’ Speaker Johnson Says of Aid to Ukraine**\
-`Speaker Mike Johnson successfully defied the anti-interventionalist wing of the Republican Party and got the House to approve a $95 billion foreign aid package for Ukraine, Israel and Taiwan.`\
-https://nytimes.com/video/us/politics/100000009425082/mike-johnson-aid-bill-ukraine.html
-
-**How the Israel-Gaza Protests Could Hurt the Democratic Party**\
-`In 1968, the Democratic National Convention was overshadowed by clashes between police and demonstrators.`\
-https://nytimes.com/2024/04/21/us/israel-gaza-democrats.html
 
