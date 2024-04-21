@@ -1,3 +1,11 @@
+**Jawbone in Child’s Rock Collection Linked to Marine Who Died in 1951**\
+`A mother found the bone in her son’s rock collection in 2002. In 2024, researchers finally identified who it had belonged to.`\
+https://nytimes.com/2024/04/21/us/jawbone-rock-collection-marine.html
+
+**How the Movie ‘Civil War’ Echoes Real Political Anxieties**\
+`“Civil War” has tapped into a dark set of national angst. In polls and in interviews, a segment of voters say they fear the country’s divides may lead to actual, not just rhetorical, battles.`\
+https://nytimes.com/2024/04/21/us/politics/civil-war-american-anxieties.html
+
 **Netanyahu says sanctions against a unit of Israel’s military would be a ‘moral low.’**\
 `The battalion, which has been accused of violent incidents against Palestinians, was established for ultra-Orthodox Jewish males.`\
 https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/netanyahu-sanctions-israel
