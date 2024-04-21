@@ -1,3 +1,7 @@
+**India to Redo Voting at Polling Stations Hit by Violence**\
+`The attacks occurred in Manipur, a northeastern state that has been troubled by ethnic unrest. Witnesses reported that voting booths were captured and bogus ballots cast.`\
+https://nytimes.com/2024/04/21/world/asia/india-voting-violence-manipur.html
+
 **What’s Going On in This Picture? | April 22, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/04/21/learning/whats-going-on-in-this-picture-april-22-2024.html
