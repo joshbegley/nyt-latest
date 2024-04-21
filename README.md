@@ -1,3 +1,7 @@
+**Trump Slows Campaign Spending as He Tries to Close Cash Gap With Biden**\
+`President Biden’s campaign had $85.5 million on hand at the end of March, filings show, and Donald Trump had $45 million, but the president is spending far more freely on the race.`\
+https://nytimes.com/2024/04/20/us/politics/trump-biden-spending-money.html
+
 **Trump Rally, a Return to the Campaign Trail, Is Called Off Because of Storms**\
 `After a week stuck in a courtroom, Donald Trump was planning to speak to hundreds of supporters in North Carolina, until the weather turned dangerous.`\
 https://nytimes.com/2024/04/20/us/politics/trump-rally-canceled.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/the-house-wi
 **In Late-Stage Budget Talks, Hochul Wins Concessions From N.Y. Lawmakers**\
 `Gov. Kathy Hochul used the $237 billion budget to wedge in contentious issues like extending Mayor Eric Adams’s control over New York City schools.`\
 https://nytimes.com/2024/04/20/nyregion/new-york-state-budget.html
-
-**Roman Gabriel, Star Quarterback of the 1960s and ’70s, Dies at 83**\
-`In 16 seasons with the Los Angeles Rams and the Philadelphia Eagles, he played in four Pro Bowl games and reached the postseason twice.`\
-https://nytimes.com/2024/04/20/sports/football/roman-gabriel-dead.html
 
