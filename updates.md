@@ -1,3 +1,7 @@
+**Welcome to Scam World**\
+`To own a computer or smartphone — indeed, to engage with the digital world to any degree — is to be a mark. You can try to block, encrypt and unsubscribe your way out of it, but you may not succeed.`\
+https://nytimes.com/2024/04/21/style/scams-identity-theft.html
+
 **Biden’s Small Win — and Bigger Failure — in the Middle East**\
 `President Biden’s win last week in the Middle East is part of a bigger failure.`\
 https://nytimes.com/2024/04/21/opinion/international-world/bidens-win-failure-middle-east.html
