@@ -1,3 +1,11 @@
+**Should Alcohol Labels Warn of Cancer Risks?**\
+`Readers discuss whether the U.S. should follow the lead of Ireland and other countries. Also: Travel-related illnesses; affordable housing for immigrants.`\
+https://nytimes.com/2024/04/21/opinion/alcohol-labels-cancer.html
+
+**A Classic Chicken Dish That Makes You Feel Like a Grown-Up**\
+`Roasted chicken Provençal, with five stars and over 10,000 reviews, is effortlessly elegant.`\
+https://nytimes.com/2024/04/21/dining/a-classic-chicken-dish-that-makes-you-feel-like-a-grown-up.html
+
 **Dismissed Trump Jurors Describe Intense Days in a Glaring Spotlight**\
 `Two prospective jurors who were excused contacted The New York Times to describe their experience in the fraught environment of an unprecedented trial.`\
 https://nytimes.com/2024/04/21/nyregion/trump-trial-jurors.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/21/opinion/fisa-section-702-fbi-privacy.html
 **We Regulate a Tiny Fraction of the 12,000 ‘Forever Chemicals.’ There’s a Better Way.**\
 `To reduce the risk PFAS post, we need far more comprehensive mandates that test, monitor and limit the entire class of chemicals.`\
 https://nytimes.com/2024/04/21/opinion/pfas-cancer-forever-chemicals.html
-
-**The Line Between Good and Evil Cuts Through Evangelical America**\
-`Evangelicals, fundamentalists and Pentecostals are taking the church in very different directions.`\
-https://nytimes.com/2024/04/21/opinion/christianity-fundamentalist-evangelical-pentacostal.html
-
-**India to Redo Voting at Polling Stations Hit by Violence**\
-`The attacks occurred in Manipur, a northeastern state that has been troubled by ethnic unrest. Witnesses reported that voting booths were captured and bogus ballots cast.`\
-https://nytimes.com/2024/04/21/world/asia/india-voting-violence-manipur.html
 
