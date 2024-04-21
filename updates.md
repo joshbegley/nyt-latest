@@ -1,3 +1,7 @@
+**A Friend of Obama Who Could Soon Share the World Stage With Trump**\
+`After Britain’s next election, David Lammy is likely to be foreign secretary. He’s setting out a “progressive realist” policy — and forging ties on the U.S. right, just in case.`\
+https://nytimes.com/2024/04/21/world/europe/david-lammy-interview-obama-trump.html
+
 **Will a Mountain of Evidence Be Enough to Convict Trump?**\
 `Monday will see opening statements in the People of the State of New York v. Donald J. Trump. The state’s case seems strong, but a conviction is far from assured.`\
 https://nytimes.com/2024/04/21/nyregion/trump-trial-hush-money-evidence.html
