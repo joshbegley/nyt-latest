@@ -1,3 +1,7 @@
+**Coming to Alabama: Newsom’s Abortion-Access Ad, Depicting an Arrest**\
+`The ad portrays a woman trying to leave the state to have an abortion. The Campaign for Democracy, a political action committee started by Mr. Newsom, the California governor, created it.`\
+https://nytimes.com/2024/04/21/us/politics/coming-to-alabama-newsoms-abortion-access-ad-depicting-an-arrest.html
+
 **Lawmakers reiterate support for Johnson on heels of approval of foreign aid package**\
 `By Minho Kim`\
 https://nytimes.com/live/2024/04/21/us/trump-trial-biden-election/lawmakers-support-johnson-foreign-aid-package
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/21/nyregion/trump-trial-jurors.html
 **Netanyahu says sanctions against a unit of Israel’s military would be a ‘moral low.’**\
 `The battalion, which has been accused of violent incidents against Palestinians, was established for ultra-Orthodox Jewish males.`\
 https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/netanyahu-sanctions-israel
-
-**Do Not Make Survival Even More Difficult for People on the Streets**\
-`A ban on camping in public places faces a Supreme Court test.`\
-https://nytimes.com/2024/04/21/opinion/homeless-camping-supreme-court.html
 
