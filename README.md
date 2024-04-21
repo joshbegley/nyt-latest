@@ -1,3 +1,7 @@
+**Heavy Rains Hit Southern China as Hong Kong Spots a Waterspout**\
+`Bad weather in Guangdong Province forced evacuations as forecasters warned of more rain and potential flooding.`\
+https://nytimes.com/2024/04/21/world/asia/china-rain-hong-kong-waterspout.html
+
 **Vote to Resume U.S. Military Aid Is Met With Relief in Ukraine**\
 `Much-needed items like artillery shells could start arriving relatively quickly, but experts say it could take weeks before U.S. assistance has a direct impact on the war.`\
 https://nytimes.com/2024/04/21/world/europe/ukraine-military-aid-bill.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/21/world/americas/ecuador-referendum-vote-noboa.html
 **Pro-Israel Groups Promised to Be Active in Democratic Primaries. They Haven’t Done Much Yet.**\
 `The groups have raised millions to challenge candidates they see as not sufficiently pro-Israel, but have spent little as public opinion has shifted.`\
 https://nytimes.com/2024/04/21/us/politics/aipac-israel-democrat-primaries.html
-
-**Golden Visa Programs, Once a Boon, Lose Their Luster**\
-`Spain is the latest European country to end its program, which brought in billions of euros from real estate investors seeking residency status but worsened a housing crisis for locals.`\
-https://nytimes.com/2024/04/21/business/golden-visa-spain-europe-housing-crisis.html
 
