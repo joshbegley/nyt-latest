@@ -1,3 +1,7 @@
+**Review: Children Sing of Resistance at the Philharmonic**\
+`Olga Neuwirth’s “Keyframes for a Hippogriff,” a chaotic explosion of postmodernism, had its American premiere, conducted by Thomas Sondergard.`\
+https://nytimes.com/2024/04/21/arts/music/review-philharmonic-neuwirth-sondegard.html
+
 **Coming to Alabama: Newsom’s Abortion-Access Ad, Depicting an Arrest**\
 `The ad portrays a woman trying to leave the state to have an abortion. The Campaign for Democracy, a political action committee started by Mr. Newsom, the California governor, created it.`\
 https://nytimes.com/2024/04/21/us/politics/gavin-newsom-abortion-alabama.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/21/dining/a-classic-chicken-dish-that-makes-you-feel
 **Dismissed Trump Jurors Describe Intense Days in a Glaring Spotlight**\
 `Two prospective jurors who were excused contacted The New York Times to describe their experience in the fraught environment of an unprecedented trial.`\
 https://nytimes.com/2024/04/21/nyregion/trump-trial-jurors.html
-
-**Netanyahu says sanctions against Israel’s military would be a ‘moral low.’**\
-`The battalion, which has been accused of violent incidents against Palestinians, was established for ultra-Orthodox Jewish males whose strict religious observance demands full gender separation.`\
-https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/netanyahu-sanctions-israel
 
