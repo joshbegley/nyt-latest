@@ -1,3 +1,7 @@
+**E-Commerce and the Influencer Economy**\
+`How internet shopping became choked with junk.`\
+https://nytimes.com/2024/04/21/briefing/e-commerce-influencers-wirecutter.html
+
 **Violence in the West Bank has sharply escalated in recent months.**\
 `By Vivek Shankar and Isabel Kershner`\
 https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/the-israeli-raid-which-killed-at-least-10-people-comes-amid-escalating-violence-in-the-west-bank
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/21/us/politics/coalition-governance-congress.html
 **In Latest Gambling Scandal, Some See Glimpse of Sports’ Future**\
 `The N.B.A. banned a player for life for betting on games, a practice some worry could become more prevalent with the rise of wagering on sports.`\
 https://nytimes.com/2024/04/21/business/sports-gambling-jontay-porter.html
-
-**In a Country Awash in Violence, a Vote Will Test Its Leader’s Hard-Line Stance**\
-`Less than six months after Daniel Noboa became the president of Ecuador, voters will decide on a referendum that could gauge how he would do in his bid for re-election next year.`\
-https://nytimes.com/2024/04/21/world/americas/ecuador-referendum-vote-noboa.html
 
