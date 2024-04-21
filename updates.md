@@ -1,3 +1,11 @@
+**Dismissed Trump Jurors Describe Intense Days in a Glaring Spotlight**\
+`Two prospective jurors who were excused contacted The New York Times to describe their experience in the fraught environment of an unprecedented trial.`\
+https://nytimes.com/2024/04/21/nyregion/trump-trial-jurors.html
+
+**Netanyahu says sanctions against Israel’s military would be a ‘moral low.’**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/netanyahu-says-sanctions-against-israels-military-would-be-a-moral-low
+
 **Do Not Make Survival Even More Difficult for People on the Streets**\
 `A ban on camping in public places faces a Supreme Court test.`\
 https://nytimes.com/2024/04/21/opinion/homeless-camping-supreme-court.html

@@ -1,3 +1,11 @@
+**Dismissed Trump Jurors Describe Intense Days in a Glaring Spotlight**\
+`Two prospective jurors who were excused contacted The New York Times to describe their experience in the fraught environment of an unprecedented trial.`\
+https://nytimes.com/2024/04/21/nyregion/trump-trial-jurors.html
+
+**Netanyahu says sanctions against Israel’s military would be a ‘moral low.’**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/netanyahu-says-sanctions-against-israels-military-would-be-a-moral-low
+
 **Do Not Make Survival Even More Difficult for People on the Streets**\
 `A ban on camping in public places faces a Supreme Court test.`\
 https://nytimes.com/2024/04/21/opinion/homeless-camping-supreme-court.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/21/opinion/christianity-fundamentalist-evangelical-p
 **India to Redo Voting at Polling Stations Hit by Violence**\
 `The attacks occurred in Manipur, a northeastern state that has been troubled by ethnic unrest. Witnesses reported that voting booths were captured and bogus ballots cast.`\
 https://nytimes.com/2024/04/21/world/asia/india-voting-violence-manipur.html
-
-**What’s Going On in This Picture? | April 22, 2024**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/04/21/learning/whats-going-on-in-this-picture-april-22-2024.html
-
-**E-Commerce and the Influencer Economy**\
-`How internet shopping became choked with junk.`\
-https://nytimes.com/2024/04/21/briefing/e-commerce-influencers-wirecutter.html
 
