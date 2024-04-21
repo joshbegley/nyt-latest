@@ -1,3 +1,15 @@
+**Give Me Liberty or Give Me … What?**\
+`Alex Garland’s “Civil War” is not a vision of what might happen in America but a collage of what already has happened, some here and much elsewhere.`\
+https://nytimes.com/2024/04/21/opinion/civil-war-liberty-america.html
+
+**Corrections: April 20, 2024**\
+`Corrections that appeared in print on Saturday, April 20, 2024.`\
+https://nytimes.com/2024/04/21/pageoneplus/corrections-april-20-2024.html
+
+**Passover’s Radical Message Is More Vital Than Ever**\
+`The Bible insists we turn our pain into understanding, love and empathy.`\
+https://nytimes.com/2024/04/21/opinion/passover-empathy-bible-suffering.html
+
 **Driver Plows Into Michigan Birthday Party, Killing 2 Children**\
 `An 8-year-old girl and her 5-year-old brother were killed, and 15 others were injured, when the driver drove through a wall at a boat club, the police said.`\
 https://nytimes.com/2024/04/21/us/children-birthday-party-crash-michigan.html

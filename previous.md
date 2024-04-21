@@ -1,3 +1,15 @@
+**Give Me Liberty or Give Me … What?**\
+`Alex Garland’s “Civil War” is not a vision of what might happen in America but a collage of what already has happened, some here and much elsewhere.`\
+https://nytimes.com/2024/04/21/opinion/civil-war-liberty-america.html
+
+**Corrections: April 20, 2024**\
+`Corrections that appeared in print on Saturday, April 20, 2024.`\
+https://nytimes.com/2024/04/21/pageoneplus/corrections-april-20-2024.html
+
+**Passover’s Radical Message Is More Vital Than Ever**\
+`The Bible insists we turn our pain into understanding, love and empathy.`\
+https://nytimes.com/2024/04/21/opinion/passover-empathy-bible-suffering.html
+
 **Driver Plows Into Michigan Birthday Party, Killing 2 Children**\
 `An 8-year-old girl and her 5-year-old brother were killed, and 15 others were injured, when the driver drove through a wall at a boat club, the police said.`\
 https://nytimes.com/2024/04/21/us/children-birthday-party-crash-michigan.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/20/us/politics/trump-biden-spending-money.html
 **Trump Rally, a Return to the Campaign Trail, Is Called Off Because of Storms**\
 `After a week stuck in a courtroom, Donald Trump was planning to speak to thousands of supporters in North Carolina, until the weather turned dangerous.`\
 https://nytimes.com/2024/04/20/us/politics/trump-rally-canceled.html
-
-**At Least 2 Are Stabbed on a Party Boat in Brooklyn**\
-`Three people were hospitalized, including a man who was struck in the head with a bottle, and more than 1,000 passengers were evacuated, the authorities said.`\
-https://nytimes.com/2024/04/20/nyregion/brooklyn-boat-stabbings-ship.html
-
-**Ukraine Aid Divides Republicans, After Trump Tones Down His Resistance**\
-`His most vocal allies in the House, however, were loudly against providing assistance as Ukraine fights Russia’s invasion.`\
-https://nytimes.com/2024/04/20/us/politics/trump-ukraine-house-vote.html
-
-**Israel’s Strike on Iran Highlights Its Ability to Evade Tehran’s Air Defenses**\
-`The retaliatory attack damaged a defense system near Natanz, a city in central Iran that is critical to the country’s nuclear weapons program.`\
-https://nytimes.com/2024/04/20/world/middleeast/israel-strikes-iran.html
 
