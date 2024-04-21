@@ -1,3 +1,7 @@
+**Trump Rally, a Return to the Campaign Trail, Is Called Off Because of Storms**\
+`After a week stuck in a courtroom, Donald Trump was planning to speak to hundreds of supporters in North Carolina, until the weather turned dangerous.`\
+https://nytimes.com/2024/04/20/us/politics/trump-rally-canceled.html
+
 **At Least 2 Are Stabbed on a Party Boat in Brooklyn**\
 `Three people were hospitalized, including a man who was struck in the head with a bottle, and more than 1,000 passengers were evacuated, the authorities said.`\
 https://nytimes.com/2024/04/20/nyregion/brooklyn-boat-stabbings-ship.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/nyregion/new-york-state-budget.html
 **Roman Gabriel, Star Quarterback of the 1960s and ’70s, Dies at 83**\
 `In 16 seasons with the Los Angeles Rams and the Philadelphia Eagles, he played in four Pro Bowl games and reached the postseason twice.`\
 https://nytimes.com/2024/04/20/sports/football/roman-gabriel-dead.html
-
-**Johnson, Like Pence, Draws Praise for Defying His Party and Doing His Job**\
-`In the Republican Party of 2024, styled in the image of former President Donald J. Trump, a norm-preserving, consensus-driven act — even a basic one — can be a career-ending offense.`\
-https://nytimes.com/2024/04/20/us/politics/johnson-pence-republicans-ukraine-aid.html
 
