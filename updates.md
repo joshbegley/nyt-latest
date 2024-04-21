@@ -1,3 +1,7 @@
+**At Least 2 Are Stabbed on a Party Boat in Brooklyn**\
+`Three people were hospitalized, including a man who was struck in the head with a bottle, and more than 1,000 passengers were evacuated, the authorities said.`\
+https://nytimes.com/2024/04/20/nyregion/brooklyn-boat-stabbings-ship.html
+
 **Multiple People Are Stabbed on a Party Boat in Brooklyn**\
 `Three people were hospitalized and more than 1,000 passengers were evacuated, the authorities said.`\
 https://nytimes.com/2024/04/20/nyregion/brooklyn-boat-stabbings-ship.html
