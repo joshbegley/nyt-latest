@@ -1,3 +1,7 @@
+**China’s Swimmers Tested Positive. What Happens to Their Medals?**\
+`The short answer may be nothing. The world’s top doping regulator said there was “no credible evidence” to take further action.`\
+https://nytimes.com/2024/04/21/world/asia/china-swimmers-doping-olympics-medals.html
+
 **Russian Attacks Crush Factories and Way of Life in Ukrainian Villages**\
 `The assaults have all but destroyed the factories and plants that were the economic lifeblood of the towns and cities in Ukraine’s east.`\
 https://nytimes.com/2024/04/21/world/europe/ukraine-industry-donbas-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/world/middleeast/israel-strikes-iran.html
 **Get Cracking**\
 `Looking for an intricate diversion? Pick this puzzle by Michael Schlossberg — what’s inside pays off.`\
 https://nytimes.com/2024/04/20/crosswords/daily-puzzle-2024-04-21.html
-
-**The Palestinian Authority’s president threatens to reconsider relations with the United States.**\
-`By Gaya Gupta`\
-https://nytimes.com/live/2024/04/20/world/israel-iran-gaza-war-news/the-palestinian-authoritys-president-threatens-to-reconsider-relations-with-the-united-states
 
