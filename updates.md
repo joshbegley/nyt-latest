@@ -1,3 +1,7 @@
+**Vote to Resume U.S. Military Aid Is Met With Relief in Ukraine**\
+`Much-needed items like artillery shells could start arriving relatively quickly, but experts say it could take weeks before U.S. assistance has a direct impact on the war.`\
+https://nytimes.com/2024/04/21/world/europe/ukraine-military-aid-bill.html
+
 **Trump’s Trial Challenge: Being Stripped of Control**\
 `The mundanity of the courtroom has all but swallowed Donald Trump, who for decades has sought to project an image of bigness and a sense of power.`\
 https://nytimes.com/2024/04/21/us/politics/trump-trial-analysis.html
