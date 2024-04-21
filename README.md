@@ -1,3 +1,7 @@
+**The Israeli raid, which killed at least 10 people, comes amid escalating violence in the West Bank.**\
+`By Vivek Shankar and Isabel Kershner`\
+https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/the-israeli-raid-which-killed-at-least-10-people-comes-amid-escalating-violence-in-the-west-bank
+
 **Heavy Rains Hit Southern China as Hong Kong Spots a Waterspout**\
 `Bad weather in Guangdong Province forced evacuations as forecasters warned of more rain and potential flooding.`\
 https://nytimes.com/2024/04/21/world/asia/china-rain-hong-kong-waterspout.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/21/business/sports-gambling-jontay-porter.html
 **In a Country Awash in Violence, a Vote Will Test Its Leader’s Hard-Line Stance**\
 `Less than six months after Daniel Noboa became the president of Ecuador, voters will decide on a referendum that could gauge how he would do in his bid for re-election next year.`\
 https://nytimes.com/2024/04/21/world/americas/ecuador-referendum-vote-noboa.html
-
-**Pro-Israel Groups Promised to Be Active in Democratic Primaries. They Haven’t Done Much Yet.**\
-`The groups have raised millions to challenge candidates they see as not sufficiently pro-Israel, but have spent little as public opinion has shifted.`\
-https://nytimes.com/2024/04/21/us/politics/aipac-israel-democrat-primaries.html
 
