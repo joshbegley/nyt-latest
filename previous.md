@@ -1,6 +1,6 @@
 **Coming to Alabama: Newsom’s Abortion-Access Ad, Depicting an Arrest**\
 `The ad portrays a woman trying to leave the state to have an abortion. The Campaign for Democracy, a political action committee started by Mr. Newsom, the California governor, created it.`\
-https://nytimes.com/2024/04/21/us/politics/coming-to-alabama-newsoms-abortion-access-ad-depicting-an-arrest.html
+https://nytimes.com/2024/04/21/us/politics/gavin-newsom-abortion-alabama.html
 
 **Lawmakers reiterate support for Johnson on heels of approval of foreign aid package**\
 `By Minho Kim`\
