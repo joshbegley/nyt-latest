@@ -1,3 +1,11 @@
+**Kristi Noem refuses to say whether she would have certified the election on Jan. 6.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/04/21/us/trump-trial-biden-election/kristi-noem-jan6-abortion
+
+**‘Team USA Was Cheated’: Chinese Doping Case Exposes Rift in Swimming**\
+`An American who won silver in Tokyo calls for an investigation. A British gold medalist demands bans. But the most bitter fight was between antidoping leaders.`\
+https://nytimes.com/2024/04/21/world/asia/chinese-swimmers-doping.html
+
 **Should Alcohol Labels Warn of Cancer Risks?**\
 `Readers discuss whether the U.S. should follow the lead of Ireland and other countries. Also: Travel-related illnesses; affordable housing for immigrants.`\
 https://nytimes.com/2024/04/21/opinion/alcohol-labels-cancer.html

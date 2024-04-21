@@ -1,3 +1,7 @@
+**Kristi Noem refuses to say whether she would have certified the election on Jan. 6.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/04/21/us/trump-trial-biden-election/kristi-noem-jan6-abortion
+
 **Should Alcohol Labels Warn of Cancer Risks?**\
 `Readers discuss whether the U.S. should follow the lead of Ireland and other countries. Also: Travel-related illnesses; affordable housing for immigrants.`\
 https://nytimes.com/2024/04/21/opinion/alcohol-labels-cancer.html
@@ -18,7 +22,7 @@ https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/netanyahu-sa
 `A ban on camping in public places faces a Supreme Court test.`\
 https://nytimes.com/2024/04/21/opinion/homeless-camping-supreme-court.html
 
-**‘Team USA Was Cheated’: Chinese Doping Case Roils Swimming**\
+**‘Team USA Was Cheated’: Chinese Doping Case Exposes Rift in Swimming**\
 `An American who won silver in Tokyo calls for an investigation. A British gold medalist demands bans. But the most bitter fight was between antidoping leaders.`\
 https://nytimes.com/2024/04/21/world/asia/chinese-swimmers-doping.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/21/opinion/international-world/bidens-win-failure-mi
 **Government Surveillance Keeps Us Safe**\
 `A surveillance law referred to as Section 702 is needed to protect us from foreign threats.`\
 https://nytimes.com/2024/04/21/opinion/fisa-section-702-fbi-privacy.html
-
-**We Regulate a Tiny Fraction of the 12,000 ‘Forever Chemicals.’ There’s a Better Way.**\
-`To reduce the risk PFAS post, we need far more comprehensive mandates that test, monitor and limit the entire class of chemicals.`\
-https://nytimes.com/2024/04/21/opinion/pfas-cancer-forever-chemicals.html
 
