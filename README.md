@@ -1,40 +1,40 @@
-**Climate Doom Is Out. ‘Apocalyptic Optimism’ Is In.**\
-`Focusing on disaster hasn’t changed the planet’s trajectory. Will a more upbeat approach show a way forward?`\
-https://nytimes.com/2024/04/21/arts/television/climate-change-apocalypse-optimism.html
+**Trump’s Trial Challenge: Being Stripped of Control**\
+`The mundanity of the courtroom has all but swallowed Donald Trump, who for decades has sought to project an image of bigness and a sense of power.`\
+https://nytimes.com/2024/04/21/us/politics/trump-trial-analysis.html
 
-**Saturday Mornings With the ‘Voice of Problem Gambling’**\
-`Craig Carton, the bombastic sports broadcaster, shows a different side on a weekly show that focuses on the stories of gambling addicts like himself.`\
-https://nytimes.com/2024/04/21/business/craig-carton-sports-gambling.html
+**How Mike Johnson Got to ‘Yes’ on Aid to Ukraine**\
+`Intelligence, politics and personal considerations converted the Republican speaker, who had largely opposed aid to Ukraine as a rank-and-file member, into the key figure pushing it through Congress.`\
+https://nytimes.com/2024/04/21/us/politics/mike-johnson-turnaround.html
 
-**Anne Lamott Has Written Classics. This Is Not One of Them.**\
-`Slim and precious, “Somehow: Thoughts on Love” doesn’t measure up to her best nonfiction.`\
-https://nytimes.com/2024/04/21/books/review/anne-lamott-somehow.html
+**‘History Will Judge It Well,’ Speaker Johnson Says of Aid to Ukraine**\
+`Speaker Mike Johnson successfully defied the anti-interventionalist wing of the Republican Party and got the House to approve a $95 billion foreign aid package for Ukraine, Israel and Taiwan.`\
+https://nytimes.com/video/us/politics/100000009425082/mike-johnson-aid-bill-ukraine.html
 
-**Let Them Eat … Everything**\
-`In the age of Ozempic, the “fat activist” Virginia Sole-Smith is inspiring and infuriating her followers.`\
-https://nytimes.com/2024/04/21/well/eat/fat-activist-virginia-sole-smith.html
+**How the Israel-Gaza Protests Could Hurt the Democratic Party**\
+`In 1968, the Democratic National Convention was overshadowed by clashes between police and demonstrators.`\
+https://nytimes.com/2024/04/21/us/israel-gaza-democrats.html
 
-**How Did Fan Culture Take Over? And Why Is It So Scary?**\
-`Justin Taylor’s novel “Reboot” examines the convergence of entertainment, online arcana and conspiracy theory.`\
-https://nytimes.com/2024/04/21/books/review/justin-taylor-reboot.html
+**Necessity Gives Rise to Bipartisanship — for Now**\
+`The far right finds itself marginalized in the House as Speaker Johnson pushes through aid to Ukraine and Israel by relying on Democrats.`\
+https://nytimes.com/2024/04/21/us/politics/coalition-governance-congress.html
 
-**A Friend of Obama Who Could Soon Share the World Stage With Trump**\
-`After Britain’s next election, David Lammy is likely to be foreign secretary. He’s setting out a “progressive realist” policy — and forging ties on the U.S. right, just in case.`\
-https://nytimes.com/2024/04/21/world/europe/david-lammy-interview-obama-trump.html
+**In Latest Gambling Scandal, Some See Glimpse of Sports’ Future**\
+`The N.B.A. banned a player for life for betting on games, a practice some worry could become more prevalent with the rise of wagering on sports.`\
+https://nytimes.com/2024/04/21/business/sports-gambling-jontay-porter.html
 
-**Will a Mountain of Evidence Be Enough to Convict Trump?**\
-`Monday will see opening statements in the People of the State of New York v. Donald J. Trump. The state’s case seems strong, but a conviction is far from assured.`\
-https://nytimes.com/2024/04/21/nyregion/trump-trial-hush-money-evidence.html
+**In a Country Awash in Violence, a Vote Will Test Its Leader’s Hard-Line Stance**\
+`Less than six months after Daniel Noboa became the president of Ecuador, voters will decide on a referendum that could gauge how he would do in his bid for re-election next year.`\
+https://nytimes.com/2024/04/21/world/americas/ecuador-referendum-vote-noboa.html
 
-**New York Has a $237 Billion Budget. Here Are 5 Things to Know.**\
-`Gov. Kathy Hochul and New York City emerged as two of the winners from a budget process that blew past the April 1 deadline.`\
-https://nytimes.com/2024/04/21/nyregion/budget-takeaways-new-york.html
+**Pro-Israel Groups Promised to Be Active in Democratic Primaries. They Haven’t Done Much Yet.**\
+`The groups have raised millions to challenge candidates they see as not sufficiently pro-Israel, but have spent little as public opinion has shifted.`\
+https://nytimes.com/2024/04/21/us/politics/aipac-israel-democrat-primaries.html
 
-**Tracing the Trail of Hush-Money Deals That Led to Trump’s Prosecution**\
-`Before Stormy Daniels, Donald J. Trump and his allies paid to keep other stories buried as he ran for the presidency.`\
-https://nytimes.com/2024/04/21/nyregion/trump-hush-money-stormy-daniels-deals.html
+**Golden Visa Programs, Once a Boon, Lose Their Luster**\
+`Spain is the latest European country to end its program, which brought in billions of euros from real estate investors seeking residency status but worsened a housing crisis for locals.`\
+https://nytimes.com/2024/04/21/business/golden-visa-spain-europe-housing-crisis.html
 
-**The History of ‘Stereotype,’ Written on Metal Plates**\
-`Stereotype printing is pressed into the story of The New York Times.`\
-https://nytimes.com/2024/04/21/insider/the-history-of-stereotype-written-on-metal-plates.html
+**Lots of Italy, on Many Collectible Plates**\
+`Buon Ricordo plates were introduced 60 years ago at restaurants in Italy. The hand-painted ceramics can now be found at design trade shows and fancy décor stores.`\
+https://nytimes.com/2024/04/21/style/buon-ricardo-collectible-plates-italy.html
 
