@@ -3,7 +3,7 @@
 https://nytimes.com/2024/04/20/us/politics/trump-biden-spending-money.html
 
 **Trump Rally, a Return to the Campaign Trail, Is Called Off Because of Storms**\
-`After a week stuck in a courtroom, Donald Trump was planning to speak to hundreds of supporters in North Carolina, until the weather turned dangerous.`\
+`After a week stuck in a courtroom, Donald Trump was planning to speak to thousands of supporters in North Carolina, until the weather turned dangerous.`\
 https://nytimes.com/2024/04/20/us/politics/trump-rally-canceled.html
 
 **At Least 2 Are Stabbed on a Party Boat in Brooklyn**\
