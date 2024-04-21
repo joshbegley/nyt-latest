@@ -1,3 +1,7 @@
+**Terry Anderson, Reporter Held Hostage for Six Years, Dies at 76**\
+`The Beirut bureau chief for The Associated Press, he was kidnapped in 1985 by Islamic militants.`\
+https://nytimes.com/2024/04/21/us/terry-anderson-dead.html
+
 **Barking Orders**\
 `David Kahn makes progress step by step.`\
 https://nytimes.com/2024/04/21/crosswords/daily-puzzle-2024-04-22.html
