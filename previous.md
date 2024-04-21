@@ -34,7 +34,7 @@ https://nytimes.com/2024/04/21/dining/a-classic-chicken-dish-that-makes-you-feel
 `Two prospective jurors who were excused contacted The New York Times to describe their experience in the fraught environment of an unprecedented trial.`\
 https://nytimes.com/2024/04/21/nyregion/trump-trial-jurors.html
 
-**Netanyahu says sanctions against a unit of Israel’s military would be a ‘moral low.’**\
-`The battalion, which has been accused of violent incidents against Palestinians, was established for ultra-Orthodox Jewish males.`\
+**Netanyahu says sanctions against Israel’s military would be a ‘moral low.’**\
+`The battalion, which has been accused of violent incidents against Palestinians, was established for ultra-Orthodox Jewish males whose strict religious observance demands full gender separation.`\
 https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/netanyahu-sanctions-israel
 

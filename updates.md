@@ -1,3 +1,7 @@
+**Netanyahu says sanctions against Israel’s military would be a ‘moral low.’**\
+`The battalion, which has been accused of violent incidents against Palestinians, was established for ultra-Orthodox Jewish males whose strict religious observance demands full gender separation.`\
+https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/netanyahu-sanctions-israel
+
 **Coming to Alabama: Newsom’s Abortion-Access Ad, Depicting an Arrest**\
 `The ad portrays a woman trying to leave the state to have an abortion. The Campaign for Democracy, a political action committee started by Mr. Newsom, the California governor, created it.`\
 https://nytimes.com/2024/04/21/us/politics/gavin-newsom-abortion-alabama.html
