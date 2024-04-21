@@ -1,3 +1,7 @@
+**U.S. Considers Imposing Sanctions on Israeli Military Unit**\
+`Israeli leaders expressed alarm about the possible action by the Biden administration over rights violations in the West Bank.`\
+https://nytimes.com/2024/04/21/world/middleeast/us-sanctions-israel-gaza.html
+
 **Terry Anderson, Reporter Held Hostage for Six Years, Dies at 76**\
 `The Beirut bureau chief for The Associated Press, he was kidnapped in 1985 by Islamic militants.`\
 https://nytimes.com/2024/04/21/us/terry-anderson-dead.html
