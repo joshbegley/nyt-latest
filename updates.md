@@ -1,3 +1,11 @@
+**Barking Orders**\
+`David Kahn makes progress step by step.`\
+https://nytimes.com/2024/04/21/crosswords/daily-puzzle-2024-04-22.html
+
+**Terry Anderson, Reporter Held Hostage for Six Years, Dies at 76**\
+`The Beirut bureau chief for The Associated Press, he was kidnapped in 1985 by Islamic militants. He was the last of 18 hostages to be released.`\
+https://nytimes.com/2024/04/21/obituaries/terry-anderson-dead.html
+
 **What to Watch as Trump’s Hush-Money Trial Begins**\
 `A jury has been selected and opening arguments are set to begin in Donald Trump’s hush-money trial in Manhattan. Kate Christobek, a court reporter for The New York Times, breaks down what to watch.`\
 https://nytimes.com/video/nyregion/100000009423971/trump-hush-money-what-to-watch.html

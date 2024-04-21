@@ -1,3 +1,11 @@
+**Barking Orders**\
+`David Kahn makes progress step by step.`\
+https://nytimes.com/2024/04/21/crosswords/daily-puzzle-2024-04-22.html
+
+**Terry Anderson, Reporter Held Hostage for Six Years, Dies at 76**\
+`The Beirut bureau chief for The Associated Press, he was kidnapped in 1985 by Islamic militants. He was the last of 18 hostages to be released.`\
+https://nytimes.com/2024/04/21/obituaries/terry-anderson-dead.html
+
 **What to Watch as Trump’s Hush-Money Trial Begins**\
 `A jury has been selected and opening arguments are set to begin in Donald Trump’s hush-money trial in Manhattan. Kate Christobek, a court reporter for The New York Times, breaks down what to watch.`\
 https://nytimes.com/video/nyregion/100000009423971/trump-hush-money-what-to-watch.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/21/us/politics/civil-war-movie-politics.html
 **What to Know About State Laws That Limit or Ban D.E.I. Efforts at Colleges**\
 `Diversity, equity and inclusion initiatives have become a target of conservatives across the nation, with several states passing laws against them.`\
 https://nytimes.com/2024/04/21/us/dei-education-state-laws.html
-
-**Kristi Noem refuses to say whether she would have certified the election on Jan. 6.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/04/21/us/trump-trial-biden-election/kristi-noem-jan6-abortion
-
-**Should Alcohol Labels Warn of Cancer Risks?**\
-`Readers discuss whether the U.S. should follow the lead of Ireland and other countries. Also: Travel-related illnesses; affordable housing for immigrants.`\
-https://nytimes.com/2024/04/21/opinion/alcohol-labels-cancer.html
 
