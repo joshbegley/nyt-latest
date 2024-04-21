@@ -12,7 +12,7 @@ https://nytimes.com/2024/04/21/us/jawbone-rock-collection-marine.html
 
 **How the Movie ‘Civil War’ Echoes Real Political Anxieties**\
 `“Civil War” has tapped into a dark set of national angst. In polls and in interviews, a segment of voters say they fear the country’s divides may lead to actual, not just rhetorical, battles.`\
-https://nytimes.com/2024/04/21/us/politics/civil-war-american-anxieties.html
+https://nytimes.com/2024/04/21/us/politics/civil-war-movie-politics.html
 
 **What to Know About State Laws That Limit or Ban D.E.I. Efforts at Colleges**\
 `Diversity, equity and inclusion initiatives have become a target of conservatives across the nation, with several states passing laws against them.`\

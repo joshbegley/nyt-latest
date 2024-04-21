@@ -1,3 +1,7 @@
+**How the Movie ‘Civil War’ Echoes Real Political Anxieties**\
+`“Civil War” has tapped into a dark set of national angst. In polls and in interviews, a segment of voters say they fear the country’s divides may lead to actual, not just rhetorical, battles.`\
+https://nytimes.com/2024/04/21/us/politics/civil-war-movie-politics.html
+
 **Coming to Alabama: Newsom’s Abortion-Access Ad, Depicting an Arrest**\
 `The ad portrays a woman trying to leave the state to have an abortion. The Campaign for Democracy, a political action committee started by Mr. Newsom, the California governor, created it.`\
 https://nytimes.com/2024/04/21/us/politics/coming-to-alabama-newsoms-abortion-access-ad-depicting-an-arrest.html
