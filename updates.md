@@ -1,3 +1,7 @@
+**Heavy Rains Hit Southern China as Hong Kong Spots a Waterspout**\
+`Bad weather in Guangdong Province forced evacuations as forecasters warned of more rain and potential flooding.`\
+https://nytimes.com/2024/04/21/world/asia/china-rain-hong-kong-waterspout.html
+
 **Vote to Resume U.S. Military Aid Is Met With Relief in Ukraine**\
 `Much-needed items like artillery shells could start arriving relatively quickly, but experts say it could take weeks before U.S. assistance has a direct impact on the war.`\
 https://nytimes.com/2024/04/21/world/europe/ukraine-military-aid-bill.html
