@@ -1,3 +1,7 @@
+**Quotation of the Day: Ragtag Resistance Sees the Tide Turning**\
+`Quotation of the Day for Sunday, April 21, 2024.`\
+https://nytimes.com/2024/04/21/pageoneplus/quotation-of-the-day-ragtag-resistance-sees-the-tide-turning.html
+
 **Corrections: April 21, 2024**\
 `Corrections that appeared in print on Sunday, April 21, 2024.`\
 https://nytimes.com/2024/04/21/pageoneplus/corrections-april-21-2024.html
