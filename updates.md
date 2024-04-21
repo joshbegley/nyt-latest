@@ -1,3 +1,11 @@
+**Lawmakers reiterate support for Johnson on heels of approval of foreign aid package**\
+`By Minho Kim`\
+https://nytimes.com/live/2024/04/21/us/trump-trial-biden-election/lawmakers-support-johnson-foreign-aid-package
+
+**Jawbone in Child’s Rock Collection Linked to Marine Who Died in 1951**\
+`A mother found the bone in her son’s rock collection in 2002. In 2024, researchers finally identified the person’s remains.`\
+https://nytimes.com/2024/04/21/us/jawbone-rock-collection-marine.html
+
 **Jawbone in Child’s Rock Collection Linked to Marine Who Died in 1951**\
 `A mother found the bone in her son’s rock collection in 2002. In 2024, researchers finally identified who it had belonged to.`\
 https://nytimes.com/2024/04/21/us/jawbone-rock-collection-marine.html
