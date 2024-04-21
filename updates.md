@@ -1,3 +1,7 @@
+**Review: Children Sing of Resistance at the Philharmonic**\
+`Olga Neuwirth’s “Keyframes for a Hippogriff,” a chaotic explosion of postmodernism, had its American premiere, conducted by Thomas Sondergard.`\
+https://nytimes.com/2024/04/21/arts/music/review-philharmonic-neuwirth-sondegard.html
+
 **Netanyahu says sanctions against Israel’s military would be a ‘moral low.’**\
 `The battalion, which has been accused of violent incidents against Palestinians, was established for ultra-Orthodox Jewish males whose strict religious observance demands full gender separation.`\
 https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/netanyahu-sanctions-israel
