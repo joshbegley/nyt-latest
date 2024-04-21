@@ -1,3 +1,7 @@
+**Lawmakers reiterate support for Johnson on heels of approval of foreign aid package**\
+`By Minho Kim`\
+https://nytimes.com/live/2024/04/21/us/trump-trial-biden-election/lawmakers-support-johnson-foreign-aid-package
+
 **Jawbone in Child’s Rock Collection Linked to Marine Who Died in 1951**\
 `A mother found the bone in her son’s rock collection in 2002. In 2024, researchers finally identified the person’s remains.`\
 https://nytimes.com/2024/04/21/us/jawbone-rock-collection-marine.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/netanyahu-sa
 **Do Not Make Survival Even More Difficult for People on the Streets**\
 `A ban on camping in public places faces a Supreme Court test.`\
 https://nytimes.com/2024/04/21/opinion/homeless-camping-supreme-court.html
-
-**‘Team USA Was Cheated’: Chinese Doping Case Exposes Rift in Swimming**\
-`An American who won silver in Tokyo calls for an investigation. A British gold medalist demands bans. But the most bitter fight was between antidoping leaders.`\
-https://nytimes.com/2024/04/21/world/asia/chinese-swimmers-doping.html
 
