@@ -1,3 +1,7 @@
+**India to Redo Voting at Polling Stations Hit by Violence**\
+`The attacks occurred in Manipur, a northeastern state that has been troubled by ethnic unrest. Witnesses reported that voting booths were captured and bogus ballots cast.`\
+https://nytimes.com/2024/04/21/world/asia/india-voting-violence-manipur.html
+
 **What’s Going On in This Picture? | April 22, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/04/21/learning/whats-going-on-in-this-picture-april-22-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009425082/mike-johnson-aid-bill-ukra
 **How the Israel-Gaza Protests Could Hurt the Democratic Party**\
 `In 1968, the Democratic National Convention was overshadowed by clashes between police and demonstrators.`\
 https://nytimes.com/2024/04/21/us/israel-gaza-democrats.html
-
-**Necessity Gives Rise to Bipartisanship — for Now**\
-`The far right finds itself marginalized in the House as Speaker Johnson pushes through aid to Ukraine and Israel by relying on Democrats.`\
-https://nytimes.com/2024/04/21/us/politics/coalition-governance-congress.html
 
