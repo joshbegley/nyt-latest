@@ -1,3 +1,7 @@
+**Driver Plows Into Michigan Birthday Party, Killing 2 Children**\
+`An 8-year-old girl and her 5-year-old brother were killed, and 15 others were injured, when the driver drove through a wall at a boat club, the police said.`\
+https://nytimes.com/2024/04/21/us/children-birthday-party-crash-michigan.html
+
 **China’s Swimmers Tested Positive. What Happens to Their Medals?**\
 `The short answer may be nothing. The world’s top doping regulator said there was “no credible evidence” to take further action.`\
 https://nytimes.com/2024/04/21/world/asia/china-swimmers-doping-olympics-medals.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/us/politics/trump-ukraine-house-vote.html
 **Israel’s Strike on Iran Highlights Its Ability to Evade Tehran’s Air Defenses**\
 `The retaliatory attack damaged a defense system near Natanz, a city in central Iran that is critical to the country’s nuclear weapons program.`\
 https://nytimes.com/2024/04/20/world/middleeast/israel-strikes-iran.html
-
-**Get Cracking**\
-`Looking for an intricate diversion? Pick this puzzle by Michael Schlossberg — what’s inside pays off.`\
-https://nytimes.com/2024/04/20/crosswords/daily-puzzle-2024-04-21.html
 

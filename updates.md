@@ -1,3 +1,7 @@
+**Driver Plows Into Michigan Birthday Party, Killing 2 Children**\
+`An 8-year-old girl and her 5-year-old brother were killed, and 15 others were injured, when the driver drove through a wall at a boat club, the police said.`\
+https://nytimes.com/2024/04/21/us/children-birthday-party-crash-michigan.html
+
 **China’s Swimmers Tested Positive. What Happens to Their Medals?**\
 `The short answer may be nothing. The world’s top doping regulator said there was “no credible evidence” to take further action.`\
 https://nytimes.com/2024/04/21/world/asia/china-swimmers-doping-olympics-medals.html
