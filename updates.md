@@ -1,3 +1,7 @@
+**Netanyahu says sanctions against a unit of Israel’s military would be a ‘moral low.’**\
+`The battalion, which has been accused of violent incidents against Palestinians, was established for ultra-Orthodox Jewish males.`\
+https://nytimes.com/live/2024/04/21/world/israel-iran-gaza-war-news/netanyahu-sanctions-israel
+
 **What to Know About State Laws That Limit or Ban D.E.I. Efforts at Colleges**\
 `Diversity, equity and inclusion initiatives have become a target of conservatives across the nation, with several states passing laws against them.`\
 https://nytimes.com/2024/04/21/us/dei-education-state-laws.html
