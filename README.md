@@ -1,3 +1,7 @@
+**Corrections: April 21, 2024**\
+`Corrections that appeared in print on Sunday, April 21, 2024.`\
+https://nytimes.com/2024/04/21/pageoneplus/corrections-april-21-2024.html
+
 **Give Me Liberty or Give Me … What?**\
 `Alex Garland’s “Civil War” is not a vision of what might happen in America but a collage of what already has happened, some here and much elsewhere.`\
 https://nytimes.com/2024/04/21/opinion/civil-war-liberty-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/20/theater/hells-kitchen-review-alicia-keys.html
 **Trump Slows Campaign Spending as He Tries to Close Cash Gap With Biden**\
 `President Biden’s campaign had $85.5 million on hand at the end of March, filings show, and Donald Trump had $45 million, but the president is spending far more freely on the race.`\
 https://nytimes.com/2024/04/20/us/politics/trump-biden-spending-money.html
-
-**Trump Rally, a Return to the Campaign Trail, Is Called Off Because of Storms**\
-`After a week stuck in a courtroom, Donald Trump was planning to speak to thousands of supporters in North Carolina, until the weather turned dangerous.`\
-https://nytimes.com/2024/04/20/us/politics/trump-rally-canceled.html
 
