@@ -1,3 +1,7 @@
+**Corrections: April 21, 2024**\
+`Corrections that appeared in print on Sunday, April 21, 2024.`\
+https://nytimes.com/2024/04/21/pageoneplus/corrections-april-21-2024.html
+
 **Give Me Liberty or Give Me … What?**\
 `Alex Garland’s “Civil War” is not a vision of what might happen in America but a collage of what already has happened, some here and much elsewhere.`\
 https://nytimes.com/2024/04/21/opinion/civil-war-liberty-america.html
