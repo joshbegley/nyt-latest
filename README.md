@@ -1,3 +1,7 @@
+**Vote to Resume U.S. Military Aid Is Met With Relief in Ukraine**\
+`Much-needed items like artillery shells could start arriving relatively quickly, but experts say it could take weeks before U.S. assistance has a direct impact on the war.`\
+https://nytimes.com/2024/04/21/world/europe/ukraine-military-aid-bill.html
+
 **Trump’s Trial Challenge: Being Stripped of Control**\
 `The mundanity of the courtroom has all but swallowed Donald Trump, who for decades has sought to project an image of bigness and a sense of power.`\
 https://nytimes.com/2024/04/21/us/politics/trump-trial-analysis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/21/us/politics/aipac-israel-democrat-primaries.html
 **Golden Visa Programs, Once a Boon, Lose Their Luster**\
 `Spain is the latest European country to end its program, which brought in billions of euros from real estate investors seeking residency status but worsened a housing crisis for locals.`\
 https://nytimes.com/2024/04/21/business/golden-visa-spain-europe-housing-crisis.html
-
-**Lots of Italy, on Many Collectible Plates**\
-`Buon Ricordo plates were introduced 60 years ago at restaurants in Italy. The hand-painted ceramics can now be found at design trade shows and fancy décor stores.`\
-https://nytimes.com/2024/04/21/style/buon-ricardo-collectible-plates-italy.html
 
