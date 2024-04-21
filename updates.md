@@ -1,3 +1,7 @@
+**What to Know About State Laws That Limit or Ban D.E.I. Efforts at Colleges**\
+`Diversity, equity and inclusion initiatives have become a target of conservatives across the nation, with several states passing laws against them.`\
+https://nytimes.com/2024/04/21/us/dei-education-state-laws.html
+
 **Kristi Noem refuses to say whether she would have certified the election on Jan. 6.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/04/21/us/trump-trial-biden-election/kristi-noem-jan6-abortion

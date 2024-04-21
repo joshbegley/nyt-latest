@@ -1,3 +1,7 @@
+**What to Know About State Laws That Limit or Ban D.E.I. Efforts at Colleges**\
+`Diversity, equity and inclusion initiatives have become a target of conservatives across the nation, with several states passing laws against them.`\
+https://nytimes.com/2024/04/21/us/dei-education-state-laws.html
+
 **Kristi Noem refuses to say whether she would have certified the election on Jan. 6.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/04/21/us/trump-trial-biden-election/kristi-noem-jan6-abortion
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/21/style/scams-identity-theft.html
 **Biden’s Small Win — and Bigger Failure — in the Middle East**\
 `President Biden’s win last week in the Middle East is part of a bigger failure.`\
 https://nytimes.com/2024/04/21/opinion/international-world/bidens-win-failure-middle-east.html
-
-**Government Surveillance Keeps Us Safe**\
-`A surveillance law referred to as Section 702 is needed to protect us from foreign threats.`\
-https://nytimes.com/2024/04/21/opinion/fisa-section-702-fbi-privacy.html
 
