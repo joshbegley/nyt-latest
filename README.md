@@ -1,3 +1,7 @@
+**What to Watch as Trump’s Hush-Money Trial Begins**\
+`A jury has been selected and opening arguments are set to begin in Donald Trump’s hush-money trial in Manhattan. Kate Christobek, a court reporter for The New York Times, breaks down what to watch.`\
+https://nytimes.com/video/nyregion/100000009423971/trump-hush-money-what-to-watch.html
+
 **Monday Briefing: U.S. Poised to Resume Aid to Ukraine**\
 `Also, Iran appears to stand down after Israel’s strike and Myanmar’s conflict may be shifting.`\
 https://nytimes.com/2024/04/21/world/asia/us-ukraine-aid-iran-israel-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/21/us/trump-trial-biden-election/kristi-noem-ja
 **Should Alcohol Labels Warn of Cancer Risks?**\
 `Readers discuss whether the U.S. should follow the lead of Ireland and other countries. Also: Travel-related illnesses; affordable housing for immigrants.`\
 https://nytimes.com/2024/04/21/opinion/alcohol-labels-cancer.html
-
-**A Classic Chicken Dish That Makes You Feel Like a Grown-Up**\
-`Roasted chicken Provençal, with five stars and over 10,000 reviews, is effortlessly elegant.`\
-https://nytimes.com/2024/04/21/dining/a-classic-chicken-dish-that-makes-you-feel-like-a-grown-up.html
 
