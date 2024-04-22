@@ -1,3 +1,7 @@
+**Haliva has said he bore ‘full responsibility’ for the intelligence failure.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/04/22/world/israel-gaza-war-hamas/haliva-has-said-he-bore-full-responsibility-for-the-intelligence-failure
+
 **Opening Statements in Trump’s Criminal Trial to Begin Monday**\
 `Prosecutors for the Manhattan district attorney’s office will go first, giving a preview of the evidence and seeking to persuade and charm the 12 jurors.`\
 https://nytimes.com/2024/04/22/nyregion/donald-trump-hush-money-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/learning/word-of-the-day-regale.html
 **Quotation of the Day: Overflowing, Amsterdam Adopts a Ban of New Hotels**\
 `Quotation of the Day for Monday, April 22, 2024.`\
 https://nytimes.com/2024/04/22/pageoneplus/quotation-of-the-dayoverflowing-amsterdam-adopts-a-ban-of-new-hotels.html
-
-**What’s on TV This Week: N.F.L. Draft and ‘Bridget Jones’ Marathon**\
-`Football players get their chance to play in the national league. HBO airs all three movies staring Renée Zellweger.`\
-https://nytimes.com/2024/04/22/arts/television/whats-on-tv-this-week-nfl-draft-and-bridget-jones-marathon.html
 
