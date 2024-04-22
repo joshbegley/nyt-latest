@@ -1,3 +1,7 @@
+**1974: Leftists Threaten to Kill Official in Genoa Kidnap**\
+`A man claiming to represent members of a group called the Red Brigades said that they would kill the Italian city’s deputy public prosecutor unless an imprisoned bank robber was released.`\
+https://nytimes.com/2024/04/22/world/leftists-kidnap-genoa.html
+
 **How Can Elon Musk Reassure Tesla Investors?**\
 `The electric vehicle maker has announced price cuts and a Cybertruck recall ahead of Tuesday’s pivotal earnings report.`\
 https://nytimes.com/2024/04/22/business/dealbook/tesla-earnings-price-cuts-recall.html
