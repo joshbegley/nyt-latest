@@ -1,3 +1,7 @@
+**Summer Lee Has Been a Vocal Israel Critic. Will It Matter in Her Primary?**\
+`The race in Pennsylvania once seemed primed to become a major test of Democratic attitudes about the Middle East. But in much of the district, an expected ideological battle has not arrived.`\
+https://nytimes.com/2024/04/22/us/politics/summer-lee-pennsylvania-gaza.html
+
 **The Stark Reality of Israel’s Fight in Gaza**\
 `Israel has failed to achieve its two primary goals of the war, while the suffering of Palestinians erodes support even among its allies.`\
 https://nytimes.com/2024/04/22/us/politics/israel-gaza-hamas-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/world/middleeast/unrwa-israel-hamas-report.html
 **Ukraine War Helped Push World Military Spending to 35-Year High, Study Says**\
 `The outlay reached $2.4 trillion last year, a research group found, 6.8 percent up on 2022. Tensions in Asia and the Middle East also contributed.`\
 https://nytimes.com/2024/04/22/us/politics/ukraine-global-military-spending.html
-
-**TikTok Faces E.U. Inquiry Over ‘Addictive’ Features**\
-`European officials threatened to fine TikTok and force it to remove some features, the latest regulatory challenge for the Chinese-owned social media app.`\
-https://nytimes.com/2024/04/22/technology/tiktok-eu-inquriy-addictive-features.html
 

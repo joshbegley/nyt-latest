@@ -1,3 +1,7 @@
+**Summer Lee Has Been a Vocal Israel Critic. Will It Matter in Her Primary?**\
+`The race in Pennsylvania once seemed primed to become a major test of Democratic attitudes about the Middle East. But in much of the district, an expected ideological battle has not arrived.`\
+https://nytimes.com/2024/04/22/us/politics/summer-lee-pennsylvania-gaza.html
+
 **The Stark Reality of Israel’s Fight in Gaza**\
 `Israel has failed to achieve its two primary goals of the war, while the suffering of Palestinians erodes support even among its allies.`\
 https://nytimes.com/2024/04/22/us/politics/israel-gaza-hamas-war.html
