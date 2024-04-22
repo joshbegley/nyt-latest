@@ -1,3 +1,19 @@
+**What’s on TV This Week: N.F.L. Draft and ‘Bridget Jones’ Marathon**\
+`Football players get their chance to play in the national league. HBO airs all three movies staring Renée Zellweger.`\
+https://nytimes.com/2024/04/22/arts/television/whats-on-tv-this-week-nfl-draft-and-bridget-jones-marathon.html
+
+**Liz Truss Is Coming for America**\
+`She has seen the deep state up close and knows what needs to be done.`\
+https://nytimes.com/2024/04/22/opinion/liz-truss-britain-united-states.html
+
+**The Far Right Wants to Take Over Europe, and She’s Leading the Way**\
+`Giorgia Meloni is the model for the continent’s far right.`\
+https://nytimes.com/2024/04/22/opinion/meloni-europe-elections.html
+
+**Monday Briefing**\
+`The implications of Israel’s attack on Iran.`\
+https://nytimes.com/2024/04/22/briefing/iran-israel-congress-aid-myanmar.html
+
 **Israel Planned Bigger Attack on Iran, but Scaled It Back to Avoid War**\
 `The strike on Iran on Friday was originally intended to be much broader in scope, but after intense pressure from allies, Israeli leaders agreed to ratchet it down.`\
 https://nytimes.com/2024/04/22/world/middleeast/israel-iran-war-strike.html
