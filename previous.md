@@ -1,5 +1,5 @@
 **Maps: Earthquakes Shake Eastern Taiwan**\
-`View the location of the quakes’ epicenter and shake area.`\
+`View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/04/22/world/taiwan-earthquake-hualien.html
 
 **How to Age Fingernails, and Other Tips From a Movie Makeup Book**\
@@ -34,7 +34,7 @@ https://nytimes.com/2024/04/22/dining/passover-matzo-pizza.html
 `Posh Spice had a party involving tequila, Tom Cruise, Salma Hayek — and a rare performance by all five Spice Girls.`\
 https://nytimes.com/2024/04/22/fashion/what-to-know-about-victoria-beckhams-50th-birthday.html
 
-**The opening arguments gave a preview of how the two sides will present the case.**\
+**The opening statements gave a preview of how the two sides will present the case.**\
 `By Jonah E. Bromwich and Kate Christobek`\
 https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/the-opening-arguments-gave-a-preview-of-how-the-two-sides-will-present-the-case
 

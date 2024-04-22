@@ -1,4 +1,12 @@
 **Maps: Earthquakes Shake Eastern Taiwan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/04/22/world/taiwan-earthquake-hualien.html
+
+**The opening statements gave a preview of how the two sides will present the case.**\
+`By Jonah E. Bromwich and Kate Christobek`\
+https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/the-opening-arguments-gave-a-preview-of-how-the-two-sides-will-present-the-case
+
+**Maps: Earthquakes Shake Eastern Taiwan**\
 `View the location of the quakes’ epicenter and shake area.`\
 https://nytimes.com/interactive/2024/04/22/world/taiwan-earthquake-hualien.html
 
