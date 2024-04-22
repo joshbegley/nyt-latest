@@ -1,3 +1,7 @@
+**‘Cabaret’ Review: What Good Is Screaming Alone in Your Room?**\
+`Eddie Redmayne and Gayle Rankin star in a buzzy Broadway revival that rips the skin off the 1966 musical.`\
+https://nytimes.com/2024/04/21/theater/cabaret-review-eddie-redmayne.html
+
 **Intruder Breaks Into Los Angeles Mayor’s Residence**\
 `The Getty House was broken into early Sunday through a smashed window, the police said. Mayor Karen Bass said she and her family were safe.`\
 https://nytimes.com/2024/04/21/us/los-angeles-bass-intrusion.html

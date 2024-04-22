@@ -1,3 +1,7 @@
+**‘Cabaret’ Review: What Good Is Screaming Alone in Your Room?**\
+`Eddie Redmayne and Gayle Rankin star in a buzzy Broadway revival that rips the skin off the 1966 musical.`\
+https://nytimes.com/2024/04/21/theater/cabaret-review-eddie-redmayne.html
+
 **Intruder Breaks Into Los Angeles Mayor’s Residence**\
 `The Getty House was broken into early Sunday through a smashed window, the police said. Mayor Karen Bass said she and her family were safe.`\
 https://nytimes.com/2024/04/21/us/los-angeles-bass-intrusion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/21/world/asia/us-ukraine-aid-iran-israel-asia.html
 **Review: Children Sing of Resistance at the Philharmonic**\
 `Olga Neuwirth’s “Keyframes for a Hippogriff,” a chaotic explosion of postmodernism, had its American premiere, conducted by Thomas Sondergard.`\
 https://nytimes.com/2024/04/21/arts/music/review-philharmonic-neuwirth-sondegard.html
-
-**Coming to Alabama: Newsom’s Abortion-Access Ad, Depicting an Arrest**\
-`The ad portrays a woman trying to leave the state to have an abortion. The Campaign for Democracy, a political action committee started by Mr. Newsom, the California governor, created it.`\
-https://nytimes.com/2024/04/21/us/politics/gavin-newsom-abortion-alabama.html
 
