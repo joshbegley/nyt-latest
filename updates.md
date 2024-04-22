@@ -1,3 +1,11 @@
+**Top Biden Official Calls for Inquiry Into Chinese Doping Case**\
+`The administration’s top drug official, Rahul Gupta, said he would bring up the handling of Chinese swimmers’ positive tests at a meeting of sports officials this week.`\
+https://nytimes.com/2024/04/22/world/asia/doping-china-swimmers-olympics.html
+
+**How to Age Fingernails, and Other Tips From a Movie Makeup Book**\
+`Emily Schubert has done makeup and prosthetics on movies like “The Sweet East” and “Good Time.” She shares her tricks in a new book with A24.`\
+https://nytimes.com/2024/04/22/style/a24-book-emily-schubert.html
+
 **As Floods Beckoned, Many of New York’s Catch-Basin Trucks Were Offline**\
 `A report by the New York City comptroller’s office found “big gaps” in how the administration of Mayor Eric Adams handles emergency preparations.`\
 https://nytimes.com/2024/04/22/nyregion/storm-response-nyc-adams.html
