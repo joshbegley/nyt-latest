@@ -1,3 +1,7 @@
+**Trump and Attorney General Agree on Minor Changes to $175 Million Bond**\
+`Letitia James had asked a court to reject the bond that Donald J. Trump posted in his civil fraud case. A deal on Monday will keep the terms of the bond largely unchanged.`\
+https://nytimes.com/2024/04/22/nyregion/attorney-general-trump-175-million-bond.html
+
 **Summer Lee Has Been a Vocal Israel Critic. Will It Matter in Her Primary?**\
 `The race in Pennsylvania once seemed primed to become a major test of Democratic attitudes about the Middle East. But in much of the district, an expected ideological battle has not arrived.`\
 https://nytimes.com/2024/04/22/us/politics/summer-lee-pennsylvania-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/world/europe/huw-edwards-bbc-resign.html
 **Israel Hasn’t Offered Evidence Tying U.N. Workers to Hamas, Review Says**\
 `The review did not address whether some employees of a U.N. agency, UNRWA, took part in the Oct. 7 attack, but it said no evidence had emerged that many UNRWA workers belonged to militant groups.`\
 https://nytimes.com/2024/04/22/world/middleeast/unrwa-israel-hamas-report.html
-
-**Ukraine War Helped Push World Military Spending to 35-Year High, Study Says**\
-`The outlay reached $2.4 trillion last year, a research group found, 6.8 percent up on 2022. Tensions in Asia and the Middle East also contributed.`\
-https://nytimes.com/2024/04/22/us/politics/ukraine-global-military-spending.html
 
