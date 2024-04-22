@@ -1,3 +1,7 @@
+**Cher, Dave Matthews Band and A Tribe Called Quest Join Rock Hall of Fame**\
+`Mary J. Blige and Ozzy Osbourne were also voted in, but Sinead O’Connor, who died last year at 56, did not make the cut.`\
+https://nytimes.com/2024/04/21/arts/music/rock-roll-hall-fame-inductees-cher-dave-matthews.html
+
 **As Protests Continue at Columbia, Some Jewish Students Feel Targeted**\
 `After reports of harassment by demonstrators outside the university’s gates, some Jewish students said they felt unsafe. Others rejected that view, while condemning antisemitism.`\
 https://nytimes.com/2024/04/21/nyregion/columbia-protests-antisemitism.html
