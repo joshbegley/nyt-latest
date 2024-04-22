@@ -1,3 +1,7 @@
+**Can Biden make Trump seem like Mitt Romney?**\
+`The president may be making a similar case against his wealthy rival that Obama made against the G.O.P. nominee in 2012.`\
+https://nytimes.com/2024/04/22/us/politics/biden-trump-mitt-romney.html
+
 **Everything You Need to Know About the 2024 Met Gala**\
 `What’s the dress code, who’s hosting, who’s going and how to watch.`\
 https://nytimes.com/article/met-gala-theme-hosts-watch.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/theater/patriots-review-putin-peter-morgan.html
 **Columbia’s President May Face a Censure Resolution**\
 `The university senate is expected to vote as early as Wednesday on a resolution censuring Nemat Shafik, a reaction to her testimony before Congress and the arrests of student protesters.`\
 https://nytimes.com/2024/04/22/us/politics/columbia-nemat-shafik-censure.html
-
-**Phyllis Pressman, Luxury Superstore Matriarch, Is Dead at 95**\
-`She started working at Barneys to be closer to her husband. Then, she became the architect of the Chelsea Passage, the home goods bazaar that helped make it an enticing destination.`\
-https://nytimes.com/2024/04/22/business/phyllis-pressman-dead.html
 

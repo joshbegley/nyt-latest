@@ -1,3 +1,7 @@
+**Can Biden make Trump seem like Mitt Romney?**\
+`The president may be making a similar case against his wealthy rival that Obama made against the G.O.P. nominee in 2012.`\
+https://nytimes.com/2024/04/22/us/politics/biden-trump-mitt-romney.html
+
 **Everything You Need to Know About the 2024 Met Gala**\
 `What’s the dress code, who’s hosting, who’s going and how to watch.`\
 https://nytimes.com/article/met-gala-theme-hosts-watch.html
