@@ -1,3 +1,11 @@
+**Inside Trump’s Complicated Relationship With Law Enforcement**\
+`The former president has put forth a law-and-order candidacy while also criticizing the legal system when it comes to himself and making exceptions for his supporters.`\
+https://nytimes.com/2024/04/22/us/politics/trump-police-trial.html
+
+**Ukraine War Helped Push World Military Spending to 35-Year High, Study Says**\
+`The outlay reached $2.4 trillion last year, a research group found, 6.8 percent up on 2022. Tensions in Asia and the Middle East also contributed.`\
+https://nytimes.com/2024/04/22/us/politics/ukraine-global-military-spending.html
+
 **TikTok Faces E.U. Inquiry Over ‘Addictive’ Features**\
 `European officials threatened to fine TikTok and force it to remove some features, the latest regulatory challenge for the Chinese-owned social media app.`\
 https://nytimes.com/2024/04/22/technology/tiktok-eu-inquriy-addictive-features.html
