@@ -1,3 +1,7 @@
+**Tuesday Briefing: The Trump Trial Opens**\
+`Also, a top Israeli general resigned.`\
+https://nytimes.com/2024/04/22/world/asia/trump-trial-israel-campus-modi-asia.html
+
 **Clashing Visions of Trump**\
 `The prosecution and the defense presented their opening statements.`\
 https://nytimes.com/2024/04/22/us/politics/trump-trial-newyork-hushmoney-opening-statements.html

@@ -1,3 +1,7 @@
+**Tuesday Briefing: The Trump Trial Opens**\
+`Also, a top Israeli general resigned.`\
+https://nytimes.com/2024/04/22/world/asia/trump-trial-israel-campus-modi-asia.html
+
 **Clashing Visions of Trump**\
 `The prosecution and the defense presented their opening statements.`\
 https://nytimes.com/2024/04/22/us/politics/trump-trial-newyork-hushmoney-opening-statements.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/world/asia/doping-china-swimmers-olympics.html
 **As Floods Beckoned, Many of New York’s Catch-Basin Trucks Were Offline**\
 `A report by the New York City comptroller’s office found “big gaps” in how the administration of Mayor Eric Adams handles emergency preparations.`\
 https://nytimes.com/2024/04/22/nyregion/storm-response-nyc-adams.html
-
-**An Unprecedented Trial Opens With Two Visions of Trump**\
-`The prosecution’s opening statement sketched a seamy scheme meant to further the election of Donald J. Trump. His lawyer said the government’s case is merely “34 pieces of paper.”`\
-https://nytimes.com/2024/04/22/nyregion/trump-hush-money-trial-prosecution.html
 
