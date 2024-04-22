@@ -1,3 +1,7 @@
+**The First Prosecution of a President Was Laid Out in Court**\
+`Also, pro-Palestinian protests disrupt top college campuses. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/04/22/briefing/trump-trial-opening-statements-college-campus-protests.html
+
 **‘Patriots’ Review: What Happened to the Man Who Made Putin?**\
 `Michael Stuhlbarg and Will Keen shine as a kingmaker and his creature. But in Peter Morgan’s cheesy-fun play, it’s not always clear which is which.`\
 https://nytimes.com/2024/04/22/theater/patriots-review-putin-peter-morgan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/business/ftc-tapestry-capri-coach-michael-kors.ht
 **Tuesday Briefing: The Trump Trial Opens**\
 `Also, a top Israeli general resigned.`\
 https://nytimes.com/2024/04/22/world/asia/trump-trial-israel-campus-modi-asia.html
-
-**Clashing Visions of Trump**\
-`The prosecution and the defense presented their opening statements.`\
-https://nytimes.com/2024/04/22/us/politics/trump-trial-newyork-hushmoney-opening-statements.html
 
