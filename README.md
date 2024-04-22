@@ -1,3 +1,7 @@
+**Dozens of Yale Students Arrested as Campus Protests Spread**\
+`The police arrested students at a pro-Palestinian protest encampment at Yale University, days after more than 100 student demonstrators were arrested on the campus of Columbia University.`\
+https://nytimes.com/video/us/100000009427159/yale-protest-arrests-gaza-palestinians-israel.html
+
 **Can Biden make Trump seem like Mitt Romney?**\
 `The president may be making a similar case against his wealthy rival that Obama made against the G.O.P. nominee in 2012.`\
 https://nytimes.com/2024/04/22/us/politics/biden-trump-mitt-romney.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/briefing/trump-trial-opening-statements-college-c
 **‘Patriots’ Review: What Happened to the Man Who Made Putin?**\
 `Michael Stuhlbarg and Will Keen shine as a kingmaker and his creature. But in Peter Morgan’s cheesy-fun play, it’s not always clear which is which.`\
 https://nytimes.com/2024/04/22/theater/patriots-review-putin-peter-morgan.html
-
-**Columbia’s President May Face a Censure Resolution**\
-`The university senate is expected to vote as early as Wednesday on a resolution censuring Nemat Shafik, a reaction to her testimony before Congress and the arrests of student protesters.`\
-https://nytimes.com/2024/04/22/us/politics/columbia-nemat-shafik-censure.html
 
