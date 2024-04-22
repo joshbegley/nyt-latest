@@ -1,3 +1,11 @@
+**Everything You Need to Know About the 2024 Met Gala**\
+`What’s the dress code, who’s hosting, who’s going and how to watch.`\
+https://nytimes.com/article/met-gala-theme-hosts-watch.html
+
+**Man Charged With Hate Crime After Destructive Break-In at Islamic Center**\
+`Jacob Beacher is accused of stealing a Palestinian flag and causing $40,000 in damage to religious artifacts at Rutgers University during the Eid-al-Fitr holiday.`\
+https://nytimes.com/2024/04/22/nyregion/rutgers-islamic-center-hate-crime.html
+
 **Beloved Ostrich Dies at Kansas Zoo After Swallowing Worker’s Keys**\
 `Karen, a 5-year-old known for her playful antics, reached beyond her enclosure, grabbed a staff member’s keys and swallowed them, the zoo said. Attempts to save her were unsuccessful.`\
 https://nytimes.com/2024/04/22/us/ostrich-kansas-zoo-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/22/us/politics/columbia-nemat-shafik-censure.html
 **Phyllis Pressman, Luxury Superstore Matriarch, Is Dead at 95**\
 `She started working at Barneys to be closer to her husband. Then, she became the architect of the Chelsea Passage, the home goods bazaar that helped make it an enticing destination.`\
 https://nytimes.com/2024/04/22/business/phyllis-pressman-dead.html
-
-**A City Tries to Measure the Violence It’s Preventing**\
-`In Baton Rouge, a public safety experiment could help to answer a critical question: Do community efforts to reduce street violence work?`\
-https://nytimes.com/interactive/2024/04/22/headway/gun-violence-intervention-baton-rouge.html
-
-**New Group Joins the Political Fight Over Disinformation Online**\
-`The group intends to fight what its leader, Nina Jankowicz, and others have described as a coordinated campaign by conservatives and their allies to undermine researchers who study disinformation.`\
-https://nytimes.com/2024/04/22/business/media/american-sunlight-project-fight-disinformation.html
 
