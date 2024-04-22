@@ -1,3 +1,7 @@
+**Cleveland to Pay $4.8 Million to Family of Teenager Killed in Police Pursuit**\
+`Tamia Chappman, 13, died in 2019 when she was struck by a stolen car driven by a youth who was trying to evade officers.`\
+https://nytimes.com/2024/04/22/us/tamia-chappman-cleveland-settlement.html
+
 **Overriding Lords and Judges, U.K. Pushes Through Rwanda Migrant Law**\
 `Britain’s Parliament passed contentious legislation to allow the deportation of asylum seekers to the African country, a political victory for Prime Minister Rishi Sunak.`\
 https://nytimes.com/2024/04/22/world/europe/uk-rwanda-deportation-bill-migrants.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/style/cabaret-opening-broadway.html
 **Trump Was Warned to Return Records to Archives, Unsealed Documents Say**\
 `“Don’t give them a noble reason to indict you, because they will,” an unnamed associate told Donald J. Trump, according to an interview the person gave the F.B.I. in the classified documents case.`\
 https://nytimes.com/2024/04/22/us/politics/trump-warning-classified-documents-case.html
-
-**Protests continue at Yale after dozens of students were arrested.**\
-`By Eliza Fawcett and Andy Newman`\
-https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/yale-protests-arrests
 
