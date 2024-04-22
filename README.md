@@ -1,3 +1,7 @@
+**Ukraine’s Race to Hold the Line**\
+`The days of lightning battlefield breakthroughs may be over. With Russia preparing to make a big push, the Ukrainians can do little but dig in.`\
+https://nytimes.com/interactive/2024/04/22/world/europe/ukraine-war-defense.html
+
 **Haliva has said he bore ‘full responsibility’ for the intelligence failure.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/04/22/world/israel-gaza-war-hamas/haliva-has-said-he-bore-full-responsibility-for-the-intelligence-failure
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/crosswords/wordle-review.html
 **Word of the Day: regale**\
 `This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/22/learning/word-of-the-day-regale.html
-
-**Quotation of the Day: Overflowing, Amsterdam Adopts a Ban of New Hotels**\
-`Quotation of the Day for Monday, April 22, 2024.`\
-https://nytimes.com/2024/04/22/pageoneplus/quotation-of-the-dayoverflowing-amsterdam-adopts-a-ban-of-new-hotels.html
 
