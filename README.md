@@ -1,3 +1,31 @@
+**Do You Spend Enough Time in the Dirt?**\
+`Scientists say that feeling the earth can be good for our bodies and minds. When was the last time you got your hands dirty?`\
+https://nytimes.com/2024/04/22/learning/do-you-spend-enough-time-in-the-dirt.html
+
+**Mike Johnson Steps Into His Power Even As He Might Lose It**\
+`Mike Johnson is overseeing an uneasy, unusual coalition that’s getting critical matters done. The Freedom Caucus helped make it possible.`\
+https://nytimes.com/2024/04/22/opinion/mike-johnson-ukraine-mtg.html
+
+**What Toll Will the Trial Take on Trump?**\
+`His brash demeanor has already been replaced by fatigue and frustration.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-toll
+
+**How Can I Dress to Look More Grown-Up?**\
+`A reader is tired of being mistaken for someone in her early 20s. Our fashion critic offers tips for dressing with sophistication.`\
+https://nytimes.com/2024/04/22/style/fashion-mature-adults.html
+
+**$4.2 Million Homes in California**\
+`A three-bedroom home in La Jolla, a renovated retreat in Palm Springs and an Edwardian house in San Francisco.`\
+https://nytimes.com/2024/04/22/realestate/4-million-dollar-homes-california.html
+
+**Why Aren’t We Saving the Urban Forests?**\
+`We have become so separate from the natural world that we don’t feel safe in the presence of well maintained trees.`\
+https://nytimes.com/2024/04/22/opinion/trees-cities-earth-day.html
+
+**A Culture Warrior Takes a Late Swing**\
+`The editor and essayist Joseph Epstein looks back on his life and career in two new books.`\
+https://nytimes.com/2024/04/22/books/review/joseph-epstein-never-say-youve-had-a-lucky-life.html
+
 **Paychecks, Drafts and Firings: The Possible Future of College Sports**\
 `National Labor Relations Board testimony, now in the hands of a judge, could have wide-ranging consequences — positive and negative — for athletes and their institutions.`\
 https://nytimes.com/2024/04/22/us/college-athletes-employees-nlrb.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/04/22/crosswords/rube-goldberg-machine-contest.html
 **Introducing ‘The Interview’**\
 `Listen to the trailer for the new weekly podcast from The New York Times.`\
 https://nytimes.com/2024/04/22/magazine/the-interview-podcast-trailer.html
-
-**For Sale: A Rare Klimt Portrait, Valued at $32 Million. But of Whom?**\
-`The painting’s re-emergence after decades has come with a swirl of questions about its subject, one of three related teenage girls.`\
-https://nytimes.com/2024/04/22/arts/design/klimt-sale-vienna.html
-
-**‘The Jinx Part Two’ Review: Filmmaking a Murderer**\
-`A new installment of HBO’s landmark true-crime documentary continues the strange, sad story of Robert Durst, in which the show is a major player.`\
-https://nytimes.com/2024/04/22/arts/television/jinx-part-two-review.html
-
-**The 25 Best Restaurants in Austin Right Now**\
-`There’s plenty of barbecue and Mexican — as you’d expect — but also world-class Japanese, Korean and more. Comments welcome, as always.`\
-https://nytimes.com/article/best-restaurants-austin.html
-
-**‘James,’ ‘Demon Copperhead’ and the Triumph of Literary Fan Fiction**\
-`How Percival Everett and Barbara Kingsolver reimagined classic works by Mark Twain and Charles Dickens.`\
-https://nytimes.com/2024/04/22/books/review/james-percival-everett-demon-copperhead-barbara-kingsolver-dickens-twain.html
-
-**Tutu, Bloody Tutu: Another Dangerous Ballerina Hits the Screen**\
-`The vampire ballerina in the new movie “Abigail” has a long pop culture lineage. She and her sisters are obsessed, tormented and likely to cause harm.`\
-https://nytimes.com/2024/04/22/arts/abigail-vampire-ballerina.html
-
-**Taking Multiple Medications? You May Need to Scale Back.**\
-`Many people in the United States are taking five or more prescription drugs. That can lead to serious complications.`\
-https://nytimes.com/2024/04/22/well/live/medication-prescription-drug-use.html
-
-**Pickleball Gets a Permanent Spot at Wollman Rink**\
-`The courts are being resurfaced as the rapidly growing sport of pickleball becomes the off-season replacement for skating in Central Park.`\
-https://nytimes.com/2024/04/22/nyregion/pickleball-wollman-rink.html
 
