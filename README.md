@@ -19,7 +19,7 @@ https://nytimes.com/2024/04/21/us/los-angeles-bass-intrusion.html
 https://nytimes.com/2024/04/21/arts/music/rock-roll-hall-fame-inductees-cher-dave-matthews.html
 
 **As Protests Continue at Columbia, Some Jewish Students Feel Targeted**\
-`After reports of harassment by demonstrators outside the university’s gates, some Jewish students said they felt unsafe. Others rejected that view, while condemning antisemitism.`\
+`After reports of harassment by demonstrators, some Jewish students said they felt unsafe. Others rejected that view, while condemning antisemitism.`\
 https://nytimes.com/2024/04/21/nyregion/columbia-protests-antisemitism.html
 
 **U.S. Considers Imposing Sanctions on Israeli Military Unit**\
