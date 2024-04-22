@@ -1,3 +1,11 @@
+**Dozens of Yale Students Arrested During Campus Protests**\
+`Demonstrators were arrested on Monday morning after setting up an encampment that they said was in support of Columbia University protesters.`\
+https://nytimes.com/2024/04/22/us/yale-students-arrests-protests.html
+
+**Supreme Court to Hear Challenge to Biden’s Limits on ‘Ghost Guns’**\
+`The Supreme Court temporarily revived the regulations in August by a 5-to-4 vote after lower courts blocked them.`\
+https://nytimes.com/2024/04/22/us/supreme-court-ghost-guns.html
+
 **The outcome of the case could have reverberations not just in the West, but also across the country.**\
 `By Abbie VanSickle`\
 https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/the-outcome-of-the-case-could-have-reverberations-not-just-in-the-west-but-also-across-the-country
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/the-case-cente
 **22scotus-homeless**\
 `Live Updates: Supreme Court to Consider How Far Cities Can Police Homelessness`\
 https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness
-
-**A.I.-Generated Child Sexual Abuse Material May Overwhelm Tip Line**\
-`A report by Stanford researchers cautions that the National Center for Missing and Exploited Children doesn’t have the resources to help fight the new epidemic.`\
-https://nytimes.com/2024/04/22/technology/ai-csam-cybertipline.html
-
-**San Francisco Celebrates Its New Public Toilet**\
-`The town threw a party for the opening of a $1.7 million public restroom.`\
-https://nytimes.com/2024/04/22/us/san-francisco-public-toilet.html
 
