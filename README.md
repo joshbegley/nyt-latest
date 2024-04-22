@@ -8,7 +8,7 @@ https://nytimes.com/interactive/2024/04/22/books/review/biography-adaptations-qu
 
 **A New Gochujang Pasta Has Entered the Chat**\
 `Alexa Weibel’s gochujang pasta balances the red chile paste’s pungency with sweet shrimp and juicy cherry tomatoes.`\
-https://nytimes.com/2024/04/22/dining/a-new-gochujang-pasta-has-entered-the-chat.html
+https://nytimes.com/2024/04/22/dining/gochujang-pasta.html
 
 **Here’s what to know about the campus protests.**\
 `By Alan Blinder`\
