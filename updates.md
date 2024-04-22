@@ -1,3 +1,7 @@
+**Israel Hasn’t Offered Evidence Tying U.N. Workers to Terrorism, Review Says**\
+`Israel has said that one in ten employees in Gaza of a U.N. relief agency, UNRWA, belong to Hamas or Palestinian Islamic Jihad, and that a dozen took part in the Oct. 7 attack.`\
+https://nytimes.com/2024/04/22/world/middleeast/unrwa-israel-hamas-report.html
+
 **Inside Trump’s Complicated Relationship With Law Enforcement**\
 `The former president has put forth a law-and-order candidacy while also criticizing the legal system when it comes to himself and making exceptions for his supporters.`\
 https://nytimes.com/2024/04/22/us/politics/trump-police-trial.html

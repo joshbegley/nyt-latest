@@ -1,3 +1,7 @@
+**Israel Hasn’t Offered Evidence Tying U.N. Workers to Terrorism, Review Says**\
+`Israel has said that one in ten employees in Gaza of a U.N. relief agency, UNRWA, belong to Hamas or Palestinian Islamic Jihad, and that a dozen took part in the Oct. 7 attack.`\
+https://nytimes.com/2024/04/22/world/middleeast/unrwa-israel-hamas-report.html
+
 **Inside Trump’s Complicated Relationship With Law Enforcement**\
 `The former president has put forth a law-and-order candidacy while also criticizing the legal system when it comes to himself and making exceptions for his supporters.`\
 https://nytimes.com/2024/04/22/us/politics/trump-police-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/business/fifa-apple-tv-deal.html
 **‘Mike Johnson Did the Right Thing’ on Ukraine Aid**\
 `Readers praise the House speaker over the passage of the aid bill. Also: A juror’s duty; banning guns; poverty and health; anxious parents and kids.`\
 https://nytimes.com/2024/04/22/opinion/mike-johnson-ukraine-aid.html
-
-**Papua New Guinea Leader Criticizes Biden’s ‘Cannibals’ Comment**\
-`Twice last week, President Biden suggested without evidence that his uncle had been eaten by cannibals there after his plane went down off the New Guinea coast during World War II.`\
-https://nytimes.com/2024/04/22/us/politics/biden-cannibals-papua-new-guinea.html
 
