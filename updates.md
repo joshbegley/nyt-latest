@@ -1,3 +1,7 @@
+**Lori and George Schappell, Long-Surviving Conjoined Twins, Die at 62**\
+`They were distinct people who pursued different lives. “Get past this already, everybody,” Lori said, “get past it and learn to know the individual person.”`\
+https://nytimes.com/2024/04/22/health/lori-george-schappell-dead.html
+
 **Israel Hasn’t Offered Evidence Tying U.N. Workers to Terrorism, Review Says**\
 `Israel has said that one in ten employees in Gaza of a U.N. relief agency, UNRWA, belong to Hamas or Palestinian Islamic Jihad, and that the agency should be disbanded.`\
 https://nytimes.com/2024/04/22/world/middleeast/unrwa-israel-hamas-report.html
