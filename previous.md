@@ -1,40 +1,40 @@
-**Israelis Prepare to Mark Passover, a Festival of Freedom, With Hostages Still in Gaza**\
-`Many Jews say they will adapt their Passover rituals around the Seder table this year to fit the somber mood of a country at war.`\
-https://nytimes.com/2024/04/22/world/middleeast/israel-passover-hostages-gaza.html
+**Paychecks, Drafts and Firings: The Possible Future of College Sports**\
+`National Labor Relations Board testimony, now in the hands of a judge, could have wide-ranging consequences — positive and negative — for athletes and their institutions.`\
+https://nytimes.com/2024/04/22/us/college-athletes-employees-nlrb.html
 
-**Ukraine’s Race to Hold the Line**\
-`The days of lightning battlefield breakthroughs may be over. With Russia preparing to make a big push, the Ukrainians can do little but dig in.`\
-https://nytimes.com/interactive/2024/04/22/world/europe/ukraine-war-defense.html
+**Rube Goldberg’s Greatest Machine Is His Legacy**\
+`Decades after Mr. Goldberg, a cartoonist, died, artists and engineers have found creative inspiration in his outlandish inventions.`\
+https://nytimes.com/2024/04/22/crosswords/rube-goldberg-machine-contest.html
 
-**Haliva has said he bore ‘full responsibility’ for the intelligence failure.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/04/22/world/israel-gaza-war-hamas/haliva-has-said-he-bore-full-responsibility-for-the-intelligence-failure
+**Introducing ‘The Interview’**\
+`Listen to the trailer for the new weekly podcast from The New York Times.`\
+https://nytimes.com/2024/04/22/magazine/the-interview-podcast-trailer.html
 
-**Opening Statements in Trump’s Criminal Trial to Begin Monday**\
-`Prosecutors for the Manhattan district attorney’s office will go first, giving a preview of the evidence and seeking to persuade and charm the 12 jurors.`\
-https://nytimes.com/2024/04/22/nyregion/donald-trump-hush-money-trial.html
+**For Sale: A Rare Klimt Portrait, Valued at $32 Million. But of Whom?**\
+`The painting’s re-emergence after decades has come with a swirl of questions about its subject, one of three related teenage girls.`\
+https://nytimes.com/2024/04/22/arts/design/klimt-sale-vienna.html
 
-**How Donald J. Trump’s Criminal Trial Will Unfold**\
-`The defendant is unique, but the basic structure and rhythms of the trial resemble every American prosecution.`\
-https://nytimes.com/2024/04/22/nyregion/donald-trump-trial-procedures.html
+**‘The Jinx Part Two’ Review: Filmmaking a Murderer**\
+`A new installment of HBO’s landmark true-crime documentary continues the strange, sad story of Robert Durst, in which the show is a major player.`\
+https://nytimes.com/2024/04/22/arts/television/jinx-part-two-review.html
 
-**Bird Flu Is Infecting More Mammals. What Does That Mean for Us?**\
-`H5N1, an avian flu virus, has killed tens of thousands of marine mammals, and infiltrated American livestock for the first time. Scientists are working quickly to assess how it is evolving and how much of a risk it poses to humans.`\
-https://nytimes.com/2024/04/22/health/birdflu-marine-mammals.html
+**The 25 Best Restaurants in Austin Right Now**\
+`There’s plenty of barbecue and Mexican — as you’d expect — but also world-class Japanese, Korean and more. Comments welcome, as always.`\
+https://nytimes.com/article/best-restaurants-austin.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/22/crosswords/spelling-bee-forum.html
+**‘James,’ ‘Demon Copperhead’ and the Triumph of Literary Fan Fiction**\
+`How Percival Everett and Barbara Kingsolver reimagined classic works by Mark Twain and Charles Dickens.`\
+https://nytimes.com/2024/04/22/books/review/james-percival-everett-demon-copperhead-barbara-kingsolver-dickens-twain.html
 
-**How Hudson Yards Went From Ghost Town to Office Success Story**\
-`The vacancy rate at Hudson Yards’ office towers is considerably lower than in the rest of Manhattan, though its luxury housing and retail offerings have been less successful.`\
-https://nytimes.com/2024/04/22/nyregion/hudson-yards-office-space.html
+**Tutu, Bloody Tutu: Another Dangerous Ballerina Hits the Screen**\
+`The vampire ballerina in the new movie “Abigail” has a long pop culture lineage. She and her sisters are obsessed, tormented and likely to cause harm.`\
+https://nytimes.com/2024/04/22/arts/abigail-vampire-ballerina.html
 
-**The Connections Companion No. 316**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/22/crosswords/connections-companion.html
+**Taking Multiple Medications? You May Need to Scale Back.**\
+`Many people in the United States are taking five or more prescription drugs. That can lead to serious complications.`\
+https://nytimes.com/2024/04/22/well/live/medication-prescription-drug-use.html
 
-**Today’s Wordle Review No. 1,038**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/22/crosswords/wordle-review.html
+**Pickleball Gets a Permanent Spot at Wollman Rink**\
+`The courts are being resurfaced as the rapidly growing sport of pickleball becomes the off-season replacement for skating in Central Park.`\
+https://nytimes.com/2024/04/22/nyregion/pickleball-wollman-rink.html
 
