@@ -1,3 +1,7 @@
+**Crafting Shoes Never Meant to Be Walked In**\
+`In Venice, a coterie of craftspeople reinterpret Tod’s driving shoes.`\
+https://nytimes.com/2024/04/22/style/tods-shoes-venice-biennale.html
+
 **A Passover Pleasure: Matzo Pizza**\
 `While matzo takes many forms during the holiday, some say it is most delightful when pizza-fied.`\
 https://nytimes.com/2024/04/22/dining/passover-matzo-pizza.html
