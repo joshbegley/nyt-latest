@@ -1,3 +1,7 @@
+**Taylor Swift Has Given Fans a Lot. Is It Finally Too Much?**\
+`Swift has been inescapable over the last year. With the release of “The Tortured Poets Department,” her latest (very long) album, some seem to finally be feeling fatigued.`\
+https://nytimes.com/2024/04/22/arts/music/taylor-swift-fatigue.html
+
 **Game Reviews: Vibrant African Myths and an Undersea Satire**\
 `Precision is necessary in Tales of Kenzera: Zau, which brims with Bantu traditions. Through repetition, Harold Halibut demonstrates a subtle mastery of human nature.`\
 https://nytimes.com/2024/04/22/arts/tales-of-kenzera-zau-harold-halibut-review.html
