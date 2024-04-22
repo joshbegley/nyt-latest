@@ -1,3 +1,7 @@
+**Ukraine’s New Hope**\
+`How an aid package from the U.S. could affect the war.`\
+https://nytimes.com/2024/04/22/briefing/ukraine-russia-war-us-aid-package.html
+
 **The Trump Trial Ramps Up, and the Supreme Court Considers A Homelessness Case**\
 `Plus, a swimming scandal.`\
 https://nytimes.com/2024/04/22/podcasts/trump-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/style/fashion-mature-adults.html
 **$4.2 Million Homes in California**\
 `A three-bedroom home in La Jolla, a renovated retreat in Palm Springs and an Edwardian house in San Francisco.`\
 https://nytimes.com/2024/04/22/realestate/4-million-dollar-homes-california.html
-
-**Why Aren’t We Saving the Urban Forests?**\
-`We have become so separate from the natural world that we don’t feel safe in the presence of well maintained trees.`\
-https://nytimes.com/2024/04/22/opinion/trees-cities-earth-day.html
 
