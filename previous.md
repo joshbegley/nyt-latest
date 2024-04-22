@@ -1,3 +1,7 @@
+**Game Reviews: Vibrant African Myths and an Undersea Satire**\
+`Precision is necessary in Tales of Kenzera: Zau, which brims with Bantu traditions. Through repetition, Harold Halibut demonstrates a subtle mastery of human nature.`\
+https://nytimes.com/2024/04/22/arts/tales-of-kenzera-zau-harold-halibut-review.html
+
 **What We Know About the Protests at Columbia University**\
 `Demonstrations outside the school gates have added to the upheaval, with protesters who appear unconnected to the university targeting Jewish students.`\
 https://nytimes.com/2024/04/22/us/columbia-university-protests.html
@@ -29,10 +33,6 @@ https://nytimes.com/2024/04/22/nyregion/trump-trial-tv-livestream.html
 **In a rare alliance, California Democrats side with conservatives on encampments.**\
 `By Shawn Hubler`\
 https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/in-a-rare-alliance-california-democrats-side-with-conservatives-on-encampments
-
-**How one town’s fight over homelessness could shape a national crisis.**\
-`By Abbie VanSickle`\
-https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/homelessness-grants-pass-national-crisis
 
 **The case centers on an unusual use of the Eighth Amendment.**\
 `A group of homeless plaintiffs argue that local laws aimed at banning sleeping outside violated their constitutional rights. The city claims that’s not what the Eighth Amendment means.`\
