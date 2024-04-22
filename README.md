@@ -1,3 +1,7 @@
+**‘Blair Witch Project’ Actors Push for Retroactive Royalties**\
+`The cast behind the 1999 horror classic was paid mere thousands for a movie that grossed almost $250 million. Now, it’s being rebooted, which was news to the actors.`\
+https://nytimes.com/2024/04/22/arts/blair-witch-project-actors-royalties.html
+
 **Some have labeled the protests antisemitic, but the term has been contested.**\
 `By Sharon Otterman`\
 https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/some-have-labeled-the-protests-antisemitic-but-the-term-has-been-contested
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/us/colleges-protests-columbia.html
 **Jurors Begin to Understand the ‘Trump Tower Conspiracy’**\
 `The opening statements gave a preview of the strengths and weaknesses of each side’s arguments.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-conspiracy-opening
-
-**Generative A.I. Arrives in the Gene Editing World of CRISPR**\
-`Much as ChatGPT generates poetry, a new A.I. system devises blueprints for microscopic mechanisms that can edit your DNA.`\
-https://nytimes.com/2024/04/22/technology/generative-ai-gene-editing-crispr.html
 
