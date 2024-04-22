@@ -1,3 +1,7 @@
+**Quotation of the Day: Overflowing, Amsterdam Adopts a Ban of New Hotels**\
+`Quotation of the Day for Monday, April 22, 2024.`\
+https://nytimes.com/2024/04/22/pageoneplus/quotation-of-the-dayoverflowing-amsterdam-adopts-a-ban-of-new-hotels.html
+
 **Quotation of the Day:Overflowing, Amsterdam Adopts a Ban of New Hotels**\
 `Quotation of the Day for Monday, April 22, 2024.`\
 https://nytimes.com/2024/04/22/pageoneplus/quotation-of-the-dayoverflowing-amsterdam-adopts-a-ban-of-new-hotels.html
