@@ -1,3 +1,15 @@
+**Israel Planned Bigger Attack on Iran, but Scaled It Back to Avoid War**\
+`The strike on Iran on Friday was originally intended to be much broader in scope, but after intense pressure from allies, Israeli leaders agreed to ratchet it down.`\
+https://nytimes.com/2024/04/22/world/middleeast/israel-iran-war-strike.html
+
+**The Chinese Site That Rewired Online Shopping**\
+`Pinduoduo appeals to people seeking deals and “downgraded spending,” as consumer purchasing in China has slowed recently amid economic rockiness.`\
+https://nytimes.com/2024/04/22/business/china-pinduoduo-temu.html
+
+**Liz Cheney: The Supreme Court Should Rule Swiftly on Trump’s Immunity Claim**\
+`If delay prevents this Trump case from being tried this year, our system may never hold the man most responsible for Jan. 6 to account.`\
+https://nytimes.com/2024/04/22/opinion/trump-immunity-supreme-court.html
+
 **Lourdes Portillo, Oscar-Nominated Documentary Filmmaker, Dies at 80**\
 `Her films centered on Latin American experiences and received wide acclaim.`\
 https://nytimes.com/2024/04/21/arts/television/lourdes-portillo-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/21/nyregion/columbia-protests-antisemitism.html
 **U.S. Considers Imposing Sanctions on Israeli Military Unit**\
 `Israeli leaders expressed alarm about the possible action by the Biden administration over rights violations in the West Bank.`\
 https://nytimes.com/2024/04/21/world/middleeast/us-sanctions-israel-gaza.html
-
-**Barking Orders**\
-`David Kahn makes progress step by step.`\
-https://nytimes.com/2024/04/21/crosswords/daily-puzzle-2024-04-22.html
-
-**Terry Anderson, Reporter Held Hostage for Six Years, Dies at 76**\
-`The Beirut bureau chief for The Associated Press, he was kidnapped in 1985 by Islamic militants.`\
-https://nytimes.com/2024/04/21/us/terry-anderson-dead.html
-
-**What to Watch as Donald Trump’s Hush-Money Trial Begins**\
-`A jury has been selected and opening arguments are set to begin in Donald Trump’s hush-money trial in Manhattan. Kate Christobek, a court reporter for The New York Times, breaks down what to watch.`\
-https://nytimes.com/video/nyregion/100000009423971/trump-hush-money-what-to-watch.html
 
