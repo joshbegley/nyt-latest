@@ -1,3 +1,7 @@
+**Lori and George Schappell, Long-Surviving Conjoined Twins, Die at 62**\
+`They were distinct people who pursued different lives. “Get past this already, everybody,” Lori said, “get past it and learn to know the individual person.”`\
+https://nytimes.com/2024/04/22/health/lori-george-schappell-dead.html
+
 **The Impossible Matzo Ball**\
 `It’s the quest — and the love — that counts.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/matzo-ball-vegan
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/arts/design/queen-elizabeth-statues.html
 **David Pecker Is the First Witness of Trump’s Criminal Trial**\
 `Mr. Pecker, the longtime publisher of The National Enquirer, is first on the stand at the former president’s trial.`\
 https://nytimes.com/2024/04/22/nyregion/david-pecker-trump-trial.html
-
-**Palestinian Baby Delivered After Mother Killed in Israeli Strike**\
-`The baby was born 10 weeks premature and weighed three pounds, a doctor said. Her father and sister also died.`\
-https://nytimes.com/2024/04/22/world/middleeast/palestinian-baby-delivered-mother-killed.html
 
