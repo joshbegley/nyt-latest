@@ -1,3 +1,15 @@
+**The outcome of the case could have reverberations not just in the West, but also across the country.**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/the-outcome-of-the-case-could-have-reverberations-not-just-in-the-west-but-also-across-the-country
+
+**Trump will once again be in a courtroom while Biden campaigns.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/04/22/us/biden-trump-election/trump-will-once-again-be-in-a-courtroom-while-biden-campaigns
+
+**Everton Is Back on Market as Deal With 777 Partners Falters**\
+`With a proposed sale stalled seven months after it was announced, a financially strapped Premier League team is seeking a backup plan.`\
+https://nytimes.com/2024/04/22/business/everton-sale-777-partners.html
+
 **22trump-trial**\
 `Live Updates: Opening Statements to Begin in Trump’s Criminal Trial`\
 https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial

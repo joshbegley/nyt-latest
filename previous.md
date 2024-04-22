@@ -1,3 +1,15 @@
+**The outcome of the case could have reverberations not just in the West, but also across the country.**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/the-outcome-of-the-case-could-have-reverberations-not-just-in-the-west-but-also-across-the-country
+
+**Trump will once again be in a courtroom while Biden campaigns.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/04/22/us/biden-trump-election/trump-will-once-again-be-in-a-courtroom-while-biden-campaigns
+
+**Everton Is Back on Market as Deal With 777 Partners Falters**\
+`With a proposed sale stalled seven months after it was announced, a financially strapped Premier League team is seeking a backup plan.`\
+https://nytimes.com/2024/04/22/business/everton-sale-777-partners.html
+
 **Trump’s Manhattan Criminal Trial Will Not Be Televised**\
 `New York courts generally do not permit video to be broadcast from courtrooms, although a feed is being transmitted into an overflow room for the reporters covering the trial.`\
 https://nytimes.com/2024/04/22/nyregion/trump-trial-tv-livestream.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/22/technology/ai-csam-cybertipline.html
 **San Francisco Celebrates Its New Public Toilet**\
 `The town threw a party for the opening of a $1.7 million public restroom.`\
 https://nytimes.com/2024/04/22/us/san-francisco-public-toilet.html
-
-**Bob Heil, Whose Innovations Enhanced the Sound of Rock, Dies at 83**\
-`A groundbreaking audio engineer, he provided the large-scale systems that brought tours by the Who and the Grateful Dead to life.`\
-https://nytimes.com/2024/04/22/arts/music/bob-heil-deadd.html
-
-**Modi Calls Muslims ‘Infiltrators’ Who Would Take India’s Wealth**\
-`The direct language used against the country’s largest minority was a contrast to the image Prime Minister Narendra Modi presents on the world stage.`\
-https://nytimes.com/2024/04/22/world/asia/modi-speech-muslims.html
-
-**22trump-trial**\
-`Live Updates: Opening Statements to Begin in Trump’s Criminal Trial`\
-https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial
 
