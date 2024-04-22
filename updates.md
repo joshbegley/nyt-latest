@@ -1,3 +1,11 @@
+**Palestinian Baby Delivered After Mother Killed in Israeli Strike**\
+`The baby was born 10 weeks premature and weighed three pounds, a doctor said. Her father and sister also died.`\
+https://nytimes.com/2024/04/22/world/middleeast/palestinian-baby-delivered-mother-killed.html
+
+**Todd Blanche Leads the Team Defending Trump in His Criminal Hush-Money Trial**\
+`Mr. Blanche is also representing the former president in his federal classified documents case in Florida and his federal election interference case in Washington.`\
+https://nytimes.com/2024/04/22/nyregion/trump-blanche-defense-hush-money-trial.html
+
 **FIFA Said to Be Close to TV Deal With Apple for New Tournament**\
 `The agreement would give the tech company worldwide rights for a monthlong World Cup-style competition between top teams set to take place next year.`\
 https://nytimes.com/2024/04/22/business/fifa-apple-tv-deal.html

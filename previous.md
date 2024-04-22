@@ -1,3 +1,7 @@
+**Palestinian Baby Delivered After Mother Killed in Israeli Strike**\
+`The baby was born 10 weeks premature and weighed three pounds, a doctor said. Her father and sister also died.`\
+https://nytimes.com/2024/04/22/world/middleeast/palestinian-baby-delivered-mother-killed.html
+
 **FIFA Said to Be Close to TV Deal With Apple for New Tournament**\
 `The agreement would give the tech company worldwide rights for a monthlong World Cup-style competition between top teams set to take place next year.`\
 https://nytimes.com/2024/04/22/business/fifa-apple-tv-deal.html
@@ -18,9 +22,9 @@ https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/idaho-case-set
 `Protests continued at Yale University following the arrests of dozens of students at a pro-Palestinian encampment on the campus.`\
 https://nytimes.com/video/us/100000009426363/yale-campus-protest-gaza-israel-palestinians.html
 
-**Meet the team defending Donald J. Trump in his criminal trial.**\
-`By Kate Christobek`\
-https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/meet-the-team-defending-donald-j-trump-in-his-criminal-trial
+**Todd Blanche Leads the Team Defending Trump in His Criminal Hush-Money Trial**\
+`Mr. Blanche is also representing the former president in his federal classified documents case in Florida and his federal election interference case in Washington.`\
+https://nytimes.com/2024/04/22/nyregion/trump-blanche-defense-hush-money-trial.html
 
 **Review: ‘Grenfell’ Listens to the Survivors of a Towering Inferno**\
 `At St. Ann’s Warehouse, this documentary play about a London fire is blood-boiling and aggrieved.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/arts/music/future-metro-boomin-billboard-chart.ht
 **How an Ex-N.B.A. Player Is Diversifying Wine One Sip at a Time**\
 `As corporate diversity efforts fade out, Channing Frye and his Chosen Family Wines have taken an unpretentious grass roots approach, bringing wine to communities of color.`\
 https://nytimes.com/2024/04/22/dining/drinks/channing-frye-wine.html
-
-**Mdou Moctar’s Guitar Is a Screaming Siren Against Africa’s Colonial Legacy**\
-`“Funeral for Justice,” the musician from Niger’s album due next month, amps up the urgency in his work: “I want you to know how serious this is.”`\
-https://nytimes.com/2024/04/22/arts/music/mdou-moctar-funeral-for-justice.html
 
