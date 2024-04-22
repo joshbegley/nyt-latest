@@ -1,3 +1,7 @@
+**Trying to Stop Violence, One Conversation at a Time**\
+`In Baton Rouge, a public safety experiment could help to answer a critical question: Do community efforts to reduce street violence work?`\
+https://nytimes.com/interactive/2024/04/22/headway/gun-violence-intervention-baton-rouge.html
+
 **New Group Joins the Political Fight Over Disinformation Online**\
 `The group intends to fight what its leader, Nina Jankowicz, and others have described as a coordinated campaign by conservatives and their allies to undermine researchers who study disinformation.`\
 https://nytimes.com/2024/04/22/business/media/american-sunlight-project-fight-disinformation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/arts/pen-america-literary-awards.html
 **Joel Breman, Who Helped Stop an Ebola Outbreak in Africa, Dies at 87**\
 `Part of a team flown in to fight the deadly virus in 1976, Dr. Breman also worked to stamp out tropical diseases like smallpox, malaria and Guinea worm.`\
 https://nytimes.com/2024/04/22/health/joel-breman-dead.html
-
-**Here’s What Is Happening on Some Other Campuses Across the Country**\
-`Demonstrations appeared to be unfolding mainly at universities in the Northeast, although protests spread to some other campuses.`\
-https://nytimes.com/2024/04/22/us/colleges-protests-columbia.html
 
