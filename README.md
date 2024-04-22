@@ -1,3 +1,23 @@
+**Bird Flu Is Infecting More Mammals. What Does That Mean for Us?**\
+`H5N1, an avian flu virus, has killed tens of thousands of marine mammals, and infiltrated American livestock for the first time. Scientists are working quickly to assess how it is evolving and how much of a risk it poses to humans.`\
+https://nytimes.com/2024/04/22/health/birdflu-marine-mammals.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/22/crosswords/spelling-bee-forum.html
+
+**How Hudson Yards Went From Ghost Town to Office Success Story**\
+`The vacancy rate at Hudson Yards’ office towers is considerably lower than in the rest of Manhattan, though its luxury housing and retail offerings have been less successful.`\
+https://nytimes.com/2024/04/22/nyregion/hudson-yards-office-space.html
+
+**The Connections Companion No. 316**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/22/crosswords/connections-companion.html
+
+**Today’s Wordle Review No. 1,038**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/22/crosswords/wordle-review.html
+
 **Word of the Day: regale**\
 `This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/22/learning/word-of-the-day-regale.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/04/22/opinion/liz-truss-britain-united-states.html
 **The Far Right Wants to Take Over Europe, and She’s Leading the Way**\
 `Giorgia Meloni is the model for the continent’s far right.`\
 https://nytimes.com/2024/04/22/opinion/meloni-europe-elections.html
-
-**Monday Briefing**\
-`The implications of Israel’s attack on Iran.`\
-https://nytimes.com/2024/04/22/briefing/iran-israel-congress-aid-myanmar.html
-
-**Israel Planned Bigger Attack on Iran, but Scaled It Back to Avoid War**\
-`The strike on Iran on Friday was originally intended to be much broader in scope, but after intense pressure from allies, Israeli leaders agreed to ratchet it down.`\
-https://nytimes.com/2024/04/22/world/middleeast/israel-iran-war-strike.html
-
-**The Chinese Site That Rewired Online Shopping**\
-`Pinduoduo appeals to people seeking deals and “downgraded spending,” as consumer purchasing in China has slowed recently amid economic rockiness.`\
-https://nytimes.com/2024/04/22/business/china-pinduoduo-temu.html
-
-**Liz Cheney: The Supreme Court Should Rule Swiftly on Trump’s Immunity Claim**\
-`If delay prevents this Trump case from being tried this year, our system may never hold the man most responsible for Jan. 6 to account.`\
-https://nytimes.com/2024/04/22/opinion/trump-immunity-supreme-court.html
-
-**Lourdes Portillo, Oscar-Nominated Documentary Filmmaker, Dies at 80**\
-`Her films centered on Latin American experiences and received wide acclaim.`\
-https://nytimes.com/2024/04/21/arts/television/lourdes-portillo-dead.html
 
