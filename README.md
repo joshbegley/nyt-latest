@@ -1,3 +1,7 @@
+**Progressive Allies Rally With Pittsburgh Congresswoman as Primary Looms**\
+`Summer Lee, the first Black woman to represent Pennsylvania in the House, got help from Alexandria Ocasio-Cortez and Justin Jones as she faced criticism over her stance on Gaza.`\
+https://nytimes.com/2024/04/21/us/politics/summer-lee-aoc-rally.html
+
 **‘Cabaret’ Review: What Good Is Screaming Alone in Your Room?**\
 `Eddie Redmayne and Gayle Rankin star in a buzzy Broadway revival that rips the skin off the 1966 musical.`\
 https://nytimes.com/2024/04/21/theater/cabaret-review-eddie-redmayne.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000009423971/trump-hush-money-what-to-watc
 **Monday Briefing: U.S. Poised to Resume Aid to Ukraine**\
 `Also, Iran appears to stand down after Israel’s strike and Myanmar’s conflict may be shifting.`\
 https://nytimes.com/2024/04/21/world/asia/us-ukraine-aid-iran-israel-asia.html
-
-**Review: Children Sing of Resistance at the Philharmonic**\
-`Olga Neuwirth’s “Keyframes for a Hippogriff,” a chaotic explosion of postmodernism, had its American premiere, conducted by Thomas Sondergard.`\
-https://nytimes.com/2024/04/21/arts/music/review-philharmonic-neuwirth-sondegard.html
 
