@@ -1,3 +1,11 @@
+**The opening arguments gave a preview of how the two sides will present the case.**\
+`By Jonah E. Bromwich and Kate Christobek`\
+https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/the-opening-arguments-gave-a-preview-of-how-the-two-sides-will-present-the-case
+
+**Three Places Changing Quickly to Fight Climate Change**\
+`Paris is becoming a city of bikes. Across China, people are snapping up $5,000 electric cars. On Earth Day, a look at a few bright spots for emission reductions.`\
+https://nytimes.com/2024/04/22/climate/climate-change-earth-day.html
+
 **Trump and Attorney General Agree on Minor Changes to $175 Million Bond**\
 `Letitia James had asked a court to reject the bond that Donald J. Trump posted in his civil fraud case. A deal on Monday will keep the terms of the bond largely unchanged.`\
 https://nytimes.com/2024/04/22/nyregion/attorney-general-trump-175-million-bond.html
