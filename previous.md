@@ -1,3 +1,11 @@
+**Inside Trump’s Complicated Relationship With Law Enforcement**\
+`The former president has put forth a law-and-order candidacy while also criticizing the legal system when it comes to himself and making exceptions for his supporters.`\
+https://nytimes.com/2024/04/22/us/politics/trump-police-trial.html
+
+**What’s next: A decision will most likely land in late June.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/whats-next-a-decision-will-most-likely-land-in-late-june
+
 **A courthouse park becomes a stage, and a sideshow, outside Trump’s trial.**\
 `At Collect Pond Park, New Yorkers engaged in well worn updates.`\
 https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/a-courthouse-park-becomes-a-stage-and-a-sideshow-outside-trumps-trial
@@ -18,10 +26,6 @@ https://nytimes.com/2024/04/22/world/europe/huw-edwards-bbc-resign.html
 `Israel has said that one in ten employees in Gaza of a U.N. relief agency, UNRWA, belong to Hamas or Palestinian Islamic Jihad, and that the agency should be disbanded.`\
 https://nytimes.com/2024/04/22/world/middleeast/unrwa-israel-hamas-report.html
 
-**Inside Trump’s Complicated Relationship With Law Enforcement**\
-`The former president has put forth a law-and-order candidacy while also criticizing the legal system when it comes to himself and making exceptions for his supporters.`\
-https://nytimes.com/2024/04/22/us/politics/trump-police-trial.html
-
 **Ukraine War Helped Push World Military Spending to 35-Year High, Study Says**\
 `The outlay reached $2.4 trillion last year, a research group found, 6.8 percent up on 2022. Tensions in Asia and the Middle East also contributed.`\
 https://nytimes.com/2024/04/22/us/politics/ukraine-global-military-spending.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/technology/tiktok-eu-inquriy-addictive-features.h
 **How Tabloids Used ‘Catch-and-Kill’ to Trade on Secrets of Celebrities**\
 `The term was coined by tabloid editors for buying the rights to stories for the purpose of ensuring the information never becomes public. Donald J. Trump was a beneficiary.`\
 https://nytimes.com/2024/04/22/nyregion/trump-catch-and-kill.html
-
-**Britain Memorializes a Queen, With Smiles and Bronze Corgis**\
-`Sculptors have immortalized past British monarchs with imposing, stern-faced statues. For Queen Elizabeth II, they’re taking a different approach.`\
-https://nytimes.com/2024/04/22/arts/design/queen-elizabeth-statues.html
 

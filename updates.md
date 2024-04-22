@@ -1,3 +1,7 @@
+**What’s next: A decision will most likely land in late June.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/whats-next-a-decision-will-most-likely-land-in-late-june
+
 **A courthouse park becomes a stage, and a sideshow, outside Trump’s trial.**\
 `At Collect Pond Park, New Yorkers engaged in well worn updates.`\
 https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/a-courthouse-park-becomes-a-stage-and-a-sideshow-outside-trumps-trial
