@@ -1,3 +1,7 @@
+**Overriding Lords and Judges, U.K. Pushes Through Rwanda Migrant Law**\
+`Britain’s Parliament passed contentious legislation to allow the deportation of asylum seekers to the African country, a political victory for Prime Minister Rishi Sunak.`\
+https://nytimes.com/2024/04/22/world/europe/uk-rwanda-deportation-bill-migrants.html
+
 **Trump Criminal Trial Day 6: Opening Statements and a Brisk Pace**\
 `Jonah Bromwich, a criminal justice reporter at The New York Times, gives the major takeaways from the opening statements and the first witness of Trump’s criminal trial in Manhattan.`\
 https://nytimes.com/video/nyregion/100000009427516/trump-criminal-trial-opening-statements.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/us/politics/trump-warning-classified-documents-ca
 **Protests continue at Yale after dozens of students were arrested.**\
 `By Eliza Fawcett and Andy Newman`\
 https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/yale-protests-arrests
-
-**The First Prosecution of a President Was Laid Out in Court**\
-`Also, pro-Palestinian protests disrupt top college campuses. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/04/22/briefing/trump-trial-opening-statements-college-campus-protests.html
 
