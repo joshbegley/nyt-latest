@@ -1,3 +1,11 @@
+**Jurors Begin to Understand the ‘Trump Tower Conspiracy’**\
+`The opening statements gave a preview of the strengths and weaknesses of each side’s arguments.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-conspiracy-opening
+
+**Generative A.I. Arrives in the Gene Editing World of CRISPR**\
+`Much as ChatGPT generates poetry, a new A.I. system devises blueprints for microscopic mechanisms that can edit your DNA.`\
+https://nytimes.com/2024/04/22/technology/generative-ai-gene-editing-crispr.html
+
 **Maps: Earthquakes Shake Eastern Taiwan**\
 `View the location of each quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/04/22/world/taiwan-earthquake-hualien.html

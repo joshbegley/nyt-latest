@@ -1,3 +1,11 @@
+**Jurors Begin to Understand the ‘Trump Tower Conspiracy’**\
+`The opening statements gave a preview of the strengths and weaknesses of each side’s arguments.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-conspiracy-opening
+
+**Generative A.I. Arrives in the Gene Editing World of CRISPR**\
+`Much as ChatGPT generates poetry, a new A.I. system devises blueprints for microscopic mechanisms that can edit your DNA.`\
+https://nytimes.com/2024/04/22/technology/generative-ai-gene-editing-crispr.html
+
 **Top Biden Official Calls for Inquiry Into Chinese Doping Case**\
 `The administration’s top drug official, Rahul Gupta, said he would bring up the handling of Chinese swimmers’ positive tests at a meeting of sports officials this week.`\
 https://nytimes.com/2024/04/22/world/asia/doping-china-swimmers-olympics.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/22/nyregion/trump-trial-opening-statements-takeaways
 **Elon Musk Wouldn’t Be the First Car Company Founder to Flame Out**\
 `The world is not always kind to visionaries with self-control issues.`\
 https://nytimes.com/2024/04/22/opinion/elon-musk-william-durant.html
-
-**Networks Covering Trump’s Trial Are Forced to Get Creative**\
-`TV networks began the challenging assignment on Monday of covering former President Trump’s trial without the luxury of cameras inside the courtroom.`\
-https://nytimes.com/2024/04/22/business/media/trump-trial-news-coverage.html
-
-**Crafting Shoes Never Meant to Be Walked In**\
-`In Venice, a coterie of craftspeople reinterpret Tod’s driving shoes.`\
-https://nytimes.com/2024/04/22/style/tods-shoes-venice-biennale.html
 
