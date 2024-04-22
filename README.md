@@ -1,3 +1,11 @@
+**Beloved Ostrich Dies at Kansas Zoo After Swallowing Worker’s Keys**\
+`Karen, a 5-year-old known for her playful antics, reached beyond her enclosure, grabbed a staff member’s keys and swallowed them, the zoo said. Attempts to save her were unsuccessful.`\
+https://nytimes.com/2024/04/22/us/ostrich-kansas-zoo-dead.html
+
+**Eddie Redmayne and Angela Bassett Journey to Berlin at ‘Cabaret’ Opening**\
+`A party for the buzzy revival of the Broadway musical was held at a theater that has been transformed to look like a 1930s-era nightclub.`\
+https://nytimes.com/2024/04/22/style/cabaret-opening-broadway.html
+
 **Trump Was Warned to Return Records to Archives, Unsealed Documents Say**\
 `Filings made public in the case charging the former president with illegally retaining classified material after leaving office show an associate told him that he could face indictment if he failed to give them back.`\
 https://nytimes.com/2024/04/22/us/politics/trump-warning-classified-documents-case.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/04/22/headway/gun-violence-intervention-bat
 **New Group Joins the Political Fight Over Disinformation Online**\
 `The group intends to fight what its leader, Nina Jankowicz, and others have described as a coordinated campaign by conservatives and their allies to undermine researchers who study disinformation.`\
 https://nytimes.com/2024/04/22/business/media/american-sunlight-project-fight-disinformation.html
-
-**‘Blair Witch Project’ Actors Push for Retroactive Royalties**\
-`The cast behind the 1999 horror classic was paid mere thousands for a movie that grossed almost $250 million. Now, it’s being rebooted, which was news to the actors.`\
-https://nytimes.com/2024/04/22/arts/blair-witch-project-actors-royalties.html
-
-**Some have labeled the protests antisemitic, but the term has been contested.**\
-`By Sharon Otterman`\
-https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/some-have-labeled-the-protests-antisemitic-but-the-term-has-been-contested
 
