@@ -1,3 +1,7 @@
+**Quotation of the Day:Overflowing, Amsterdam Adopts a Ban of New Hotels**\
+`Quotation of the Day for Monday, April 22, 2024.`\
+https://nytimes.com/2024/04/22/pageoneplus/quotation-of-the-dayoverflowing-amsterdam-adopts-a-ban-of-new-hotels.html
+
 **What’s on TV This Week: N.F.L. Draft and ‘Bridget Jones’ Marathon**\
 `Football players get their chance to play in the national league. HBO airs all three movies staring Renée Zellweger.`\
 https://nytimes.com/2024/04/22/arts/television/whats-on-tv-this-week-nfl-draft-and-bridget-jones-marathon.html

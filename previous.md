@@ -1,3 +1,7 @@
+**Quotation of the Day:Overflowing, Amsterdam Adopts a Ban of New Hotels**\
+`Quotation of the Day for Monday, April 22, 2024.`\
+https://nytimes.com/2024/04/22/pageoneplus/quotation-of-the-dayoverflowing-amsterdam-adopts-a-ban-of-new-hotels.html
+
 **What’s on TV This Week: N.F.L. Draft and ‘Bridget Jones’ Marathon**\
 `Football players get their chance to play in the national league. HBO airs all three movies staring Renée Zellweger.`\
 https://nytimes.com/2024/04/22/arts/television/whats-on-tv-this-week-nfl-draft-and-bridget-jones-marathon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/21/arts/television/lourdes-portillo-dead.html
 **Progressive Allies Rally With Pittsburgh Congresswoman as Primary Looms**\
 `Summer Lee, the first Black woman to represent Pennsylvania in the House, got help from Alexandria Ocasio-Cortez and Justin Jones as she faced criticism over her stance on Gaza.`\
 https://nytimes.com/2024/04/21/us/politics/summer-lee-aoc-rally.html
-
-**‘Cabaret’ Review: What Good Is Screaming Alone in Your Room?**\
-`Eddie Redmayne and Gayle Rankin star in a buzzy Broadway revival that rips the skin off the 1966 musical.`\
-https://nytimes.com/2024/04/21/theater/cabaret-review-eddie-redmayne.html
 
