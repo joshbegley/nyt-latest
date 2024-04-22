@@ -1,3 +1,7 @@
+**How Tabloids Used ‘Catch-and-Kill’ to Trade on Secrets of Celebrities**\
+`The term was coined by tabloid editors for buying the rights to stories for the purpose of ensuring the information never becomes public. Donald J. Trump was a beneficiary.`\
+https://nytimes.com/2024/04/22/nyregion/trump-catch-and-kill.html
+
 **Britain Memorializes a Queen, With Smiles and Bronze Corgis**\
 `Sculptors have immortalized past British monarchs with imposing, stern-faced statues. For Queen Elizabeth II, they’re taking a different approach.`\
 https://nytimes.com/2024/04/22/arts/design/queen-elizabeth-statues.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009426363/yale-campus-protest-gaza-israel-pal
 **Todd Blanche Leads the Team Defending Trump in His Criminal Hush-Money Trial**\
 `Mr. Blanche is also representing the former president in his federal classified documents case in Florida and his federal election interference case in Washington.`\
 https://nytimes.com/2024/04/22/nyregion/trump-blanche-defense-hush-money-trial.html
-
-**Review: ‘Grenfell’ Listens to the Survivors of a Towering Inferno**\
-`At St. Ann’s Warehouse, this documentary play about a London fire is blood-boiling and aggrieved.`\
-https://nytimes.com/2024/04/22/theater/grenfell-review.html
 

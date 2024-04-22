@@ -1,3 +1,7 @@
+**How Tabloids Used ‘Catch-and-Kill’ to Trade on Secrets of Celebrities**\
+`The term was coined by tabloid editors for buying the rights to stories for the purpose of ensuring the information never becomes public. Donald J. Trump was a beneficiary.`\
+https://nytimes.com/2024/04/22/nyregion/trump-catch-and-kill.html
+
 **Britain Memorializes a Queen, With Smiles and Bronze Corgis**\
 `Sculptors have immortalized past British monarchs with imposing, stern-faced statues. For Queen Elizabeth II, they’re taking a different approach.`\
 https://nytimes.com/2024/04/22/arts/design/queen-elizabeth-statues.html
