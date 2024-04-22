@@ -1,3 +1,7 @@
+**As Floods Beckoned, Many of New York’s Catch-Basin Trucks Were Offline**\
+`A report by the New York City comptroller’s office found “big gaps” in how the administration of Mayor Eric Adams handles emergency preparations.`\
+https://nytimes.com/2024/04/22/nyregion/storm-response-nyc-adams.html
+
 **As Floods Beckoned, Much of New York’s Catch-Basin Trucks Were Offline**\
 `A report by the New York City comptroller’s office found “big gaps” in how the administration of Mayor Eric Adams handles emergency preparations.`\
 https://nytimes.com/2024/04/22/nyregion/storm-response-nyc-adams.html
