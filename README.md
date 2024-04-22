@@ -1,3 +1,7 @@
+**How Can Elon Musk Reassure Tesla Investors?**\
+`The electric vehicle maker has announced price cuts and a Cybertruck recall ahead of Tuesday’s pivotal earnings report.`\
+https://nytimes.com/2024/04/22/business/dealbook/tesla-earnings-price-cuts-recall.html
+
 **Columbia University to Hold Classes Remotely After Weekend Protests**\
 `The campus has been shaken by pro-Palestinian demonstrations that have left some Jewish students fearing for their safety.`\
 https://nytimes.com/2024/04/22/us/columbia-university-protests-classes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/learning/do-you-spend-enough-time-in-the-dirt.htm
 **Mike Johnson Steps Into His Power Even As He Might Lose It**\
 `Mike Johnson is overseeing an uneasy, unusual coalition that’s getting critical matters done. The Freedom Caucus helped make it possible.`\
 https://nytimes.com/2024/04/22/opinion/mike-johnson-ukraine-mtg.html
-
-**What Toll Will the Trial Take on Trump?**\
-`His brash demeanor has already been replaced by fatigue and frustration.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-toll
 
