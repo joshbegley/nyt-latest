@@ -1,3 +1,7 @@
+**‘Blair Witch Project’ Actors Push for Retroactive Royalties**\
+`The cast behind the 1999 horror classic was paid mere thousands for a movie that grossed almost $250 million. Now, it’s being rebooted, which was news to the actors.`\
+https://nytimes.com/2024/04/22/arts/blair-witch-project-actors-royalties.html
+
 **Some have labeled the protests antisemitic, but the term has been contested.**\
 `By Sharon Otterman`\
 https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/some-have-labeled-the-protests-antisemitic-but-the-term-has-been-contested
