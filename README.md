@@ -1,4 +1,4 @@
-**The Stark Reality of Israel’s Campaign in Gaza**\
+**The Stark Reality of Israel’s Fight in Gaza**\
 `Israel has failed to achieve its two primary goals of the war, while the suffering of Palestinians erodes support even among its allies.`\
 https://nytimes.com/2024/04/22/us/politics/israel-gaza-hamas-war.html
 
