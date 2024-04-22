@@ -7,7 +7,7 @@ https://nytimes.com/live/2024/04/16/opinion/thepoint/matzo-ball-vegan
 https://nytimes.com/2024/04/22/world/europe/huw-edwards-bbc-resign.html
 
 **Israel Hasn’t Offered Evidence Tying U.N. Workers to Terrorism, Review Says**\
-`Israel has said that one in ten employees in Gaza of a U.N. relief agency, UNRWA, belong to Hamas or Palestinian Islamic Jihad, and that a dozen took part in the Oct. 7 attack.`\
+`Israel has said that one in ten employees in Gaza of a U.N. relief agency, UNRWA, belong to Hamas or Palestinian Islamic Jihad, and that the agency should be disbanded.`\
 https://nytimes.com/2024/04/22/world/middleeast/unrwa-israel-hamas-report.html
 
 **Inside Trump’s Complicated Relationship With Law Enforcement**\
