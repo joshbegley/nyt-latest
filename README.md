@@ -1,3 +1,7 @@
+**The outcome of the case could have reverberations not just in the West, but also across the country.**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/the-outcome-of-the-case-could-have-reverberations-not-just-in-the-west-but-also-across-the-country
+
 **Trump will once again be in a courtroom while Biden campaigns.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/04/22/us/biden-trump-election/trump-will-once-again-be-in-a-courtroom-while-biden-campaigns
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/technology/ai-csam-cybertipline.html
 **San Francisco Celebrates Its New Public Toilet**\
 `The town threw a party for the opening of a $1.7 million public restroom.`\
 https://nytimes.com/2024/04/22/us/san-francisco-public-toilet.html
-
-**Bob Heil, Whose Innovations Enhanced the Sound of Rock, Dies at 83**\
-`A groundbreaking audio engineer, he provided the large-scale systems that brought tours by the Who and the Grateful Dead to life.`\
-https://nytimes.com/2024/04/22/arts/music/bob-heil-deadd.html
 
