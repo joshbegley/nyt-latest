@@ -1,3 +1,7 @@
+**A U.S. official says the military destroyed a rocket launcher in Iraq after rockets were fired toward a U.S. base.**\
+`By Alissa J. Rubin and Julian E. Barnes`\
+https://nytimes.com/live/2024/04/22/world/israel-gaza-war-hamas/a-us-official-says-the-military-destroyed-a-rocket-launcher-in-iraq-after-rockets-were-fired-toward-a-us-base
+
 **Ukraine’s New Hope**\
 `How an aid package from the U.S. could affect the war.`\
 https://nytimes.com/2024/04/22/briefing/ukraine-russia-war-us-aid-package.html
