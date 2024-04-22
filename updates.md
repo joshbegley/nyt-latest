@@ -1,3 +1,11 @@
+**The Trump Trial Ramps Up, and the Supreme Court Considers A Homelessness Case**\
+`Plus, a swimming scandal.`\
+https://nytimes.com/2024/04/22/podcasts/trump-trial.html
+
+**The Evolving Danger of the New Bird Flu**\
+`An unusual outbreak of the disease has spread to dairy herds in multiple U.S. states.`\
+https://nytimes.com/2024/04/22/podcasts/the-daily/bird-flu.html
+
 **3 People Injured After Vehicle Attack in Jerusalem**\
 `The police arrested two men who fled the area after a car rammed into pedestrians. The Israeli authorities said the attack was an act of terrorism.`\
 https://nytimes.com/2024/04/22/world/middleeast/israel-jerusalem-car-attack.html

@@ -1,3 +1,11 @@
+**The Trump Trial Ramps Up, and the Supreme Court Considers A Homelessness Case**\
+`Plus, a swimming scandal.`\
+https://nytimes.com/2024/04/22/podcasts/trump-trial.html
+
+**The Evolving Danger of the New Bird Flu**\
+`An unusual outbreak of the disease has spread to dairy herds in multiple U.S. states.`\
+https://nytimes.com/2024/04/22/podcasts/the-daily/bird-flu.html
+
 **3 People Injured After Vehicle Attack in Jerusalem**\
 `The police arrested two men who fled the area after a car rammed into pedestrians. The Israeli authorities said the attack was an act of terrorism.`\
 https://nytimes.com/2024/04/22/world/middleeast/israel-jerusalem-car-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/22/realestate/4-million-dollar-homes-california.html
 **Why Aren’t We Saving the Urban Forests?**\
 `We have become so separate from the natural world that we don’t feel safe in the presence of well maintained trees.`\
 https://nytimes.com/2024/04/22/opinion/trees-cities-earth-day.html
-
-**A Culture Warrior Takes a Late Swing**\
-`The editor and essayist Joseph Epstein looks back on his life and career in two new books.`\
-https://nytimes.com/2024/04/22/books/review/joseph-epstein-never-say-youve-had-a-lucky-life.html
-
-**Paychecks, Drafts and Firings: The Possible Future of College Sports**\
-`National Labor Relations Board testimony, now in the hands of a judge, could have wide-ranging consequences — positive and negative — for athletes and their institutions.`\
-https://nytimes.com/2024/04/22/us/college-athletes-employees-nlrb.html
 
