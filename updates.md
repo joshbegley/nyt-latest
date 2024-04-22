@@ -1,3 +1,7 @@
+**Dozens of Yale Students Arrested as Campus Protests Spread**\
+`The police arrested students at a pro-Palestinian protest encampment at Yale University, days after more than 100 student demonstrators were arrested on the campus of Columbia University.`\
+https://nytimes.com/video/us/100000009427159/yale-protest-arrests-gaza-palestinians-israel.html
+
 **Can Biden make Trump seem like Mitt Romney?**\
 `The president may be making a similar case against his wealthy rival that Obama made against the G.O.P. nominee in 2012.`\
 https://nytimes.com/2024/04/22/us/politics/biden-trump-mitt-romney.html
