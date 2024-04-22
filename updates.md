@@ -1,3 +1,7 @@
+**Maps: Earthquakes Shake Eastern Taiwan**\
+`View the location of the quakes’ epicenter and shake area.`\
+https://nytimes.com/interactive/2024/04/22/world/taiwan-earthquake-hualien.html
+
 **How to Age Fingernails, and Other Tips From a Movie Makeup Book**\
 `Emily Schubert has done makeup and prosthetics on movies like “Uncut Gems” and “Good Time.” She shares her tricks in a new book with A24.`\
 https://nytimes.com/2024/04/22/style/a24-book-emily-schubert.html

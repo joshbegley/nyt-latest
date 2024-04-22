@@ -1,3 +1,7 @@
+**Maps: Earthquakes Shake Eastern Taiwan**\
+`View the location of the quakes’ epicenter and shake area.`\
+https://nytimes.com/interactive/2024/04/22/world/taiwan-earthquake-hualien.html
+
 **How to Age Fingernails, and Other Tips From a Movie Makeup Book**\
 `Emily Schubert has done makeup and prosthetics on movies like “Uncut Gems” and “Good Time.” She shares her tricks in a new book with A24.`\
 https://nytimes.com/2024/04/22/style/a24-book-emily-schubert.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/fashion/what-to-know-about-victoria-beckhams-50th
 **The opening arguments gave a preview of how the two sides will present the case.**\
 `By Jonah E. Bromwich and Kate Christobek`\
 https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/the-opening-arguments-gave-a-preview-of-how-the-two-sides-will-present-the-case
-
-**Three Places Changing Quickly to Fight Climate Change**\
-`Paris is becoming a city of bikes. Across China, people are snapping up $5,000 electric cars. On Earth Day, a look at a few bright spots for emission reductions.`\
-https://nytimes.com/2024/04/22/climate/earth-day-climate-change.html
 
