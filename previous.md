@@ -1,3 +1,7 @@
+**TikTok Faces E.U. Inquiry Over ‘Addictive’ Features**\
+`European officials threatened to fine TikTok and force it to remove some features, the latest regulatory challenge for the Chinese-owned social media app.`\
+https://nytimes.com/2024/04/22/technology/tiktok-eu-inquriy-addictive-features.html
+
 **How Tabloids Used ‘Catch-and-Kill’ to Trade on Secrets of Celebrities**\
 `The term was coined by tabloid editors for buying the rights to stories for the purpose of ensuring the information never becomes public. Donald J. Trump was a beneficiary.`\
 https://nytimes.com/2024/04/22/nyregion/trump-catch-and-kill.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/idaho-case-set
 **Pro-Palestinian Protesters Block Intersection at Yale University**\
 `Protests continued at Yale University following the arrests of dozens of students at a pro-Palestinian encampment on the campus.`\
 https://nytimes.com/video/us/100000009426363/yale-campus-protest-gaza-israel-palestinians.html
-
-**Todd Blanche Leads the Team Defending Trump in His Criminal Hush-Money Trial**\
-`Mr. Blanche is also representing the former president in his federal classified documents case in Florida and his federal election interference case in Washington.`\
-https://nytimes.com/2024/04/22/nyregion/trump-blanche-defense-hush-money-trial.html
 

@@ -1,3 +1,7 @@
+**TikTok Faces E.U. Inquiry Over ‘Addictive’ Features**\
+`European officials threatened to fine TikTok and force it to remove some features, the latest regulatory challenge for the Chinese-owned social media app.`\
+https://nytimes.com/2024/04/22/technology/tiktok-eu-inquriy-addictive-features.html
+
 **How Tabloids Used ‘Catch-and-Kill’ to Trade on Secrets of Celebrities**\
 `The term was coined by tabloid editors for buying the rights to stories for the purpose of ensuring the information never becomes public. Donald J. Trump was a beneficiary.`\
 https://nytimes.com/2024/04/22/nyregion/trump-catch-and-kill.html
