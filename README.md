@@ -1,3 +1,11 @@
+**Trump’s Manhattan Criminal Trial Will Not Be Televised**\
+`New York courts generally do not permit video to be broadcast from courtrooms, although a feed is being transmitted into an overflow room for the reporters covering the trial.`\
+https://nytimes.com/2024/04/22/nyregion/trump-trial-tv-livestream.html
+
+**In a rare alliance, California Democrats side with conservatives on encampments.**\
+`By Shawn Hubler`\
+https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/in-a-rare-alliance-california-democrats-side-with-conservatives-on-encampments
+
 **How one town’s fight over homelessness could shape a national crisis.**\
 `By Abbie VanSickle`\
 https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/homelessness-grants-pass-national-crisis
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/22/world/asia/modi-speech-muslims.html
 **22trump-trial**\
 `Live Updates: Opening Statements to Begin in Trump’s Criminal Trial`\
 https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial
-
-**Germany Arrests 3 Suspected of Passing Secrets to China**\
-`Sensitive naval data, along with a high-powered laser, were obtained for China by three German citizens, according to prosecutors.`\
-https://nytimes.com/2024/04/22/world/europe/germany-china-spying-arrests.html
-
-**Melania Trump Reappears, in Black**\
-`At the Log Cabin Republicans’ fund-raiser, the former first lady stepped into the campaign spotlight, just as her husband’s hush-money trial begins.`\
-https://nytimes.com/2024/04/22/style/melania-trump-log-cabin-republicans.html
 
