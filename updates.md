@@ -1,3 +1,7 @@
+**Networks Covering Trump’s Trial: No Courtroom Scenes, but Look at the Text on Our Screen**\
+`TV networks began the challenging assignment on Monday of covering former President Trump’s trial without the luxury of cameras inside the courtroom.`\
+https://nytimes.com/2024/04/22/business/media/trump-trial-news-coverage.html
+
 **Crafting Shoes Never Meant to Be Walked In**\
 `In Venice, a coterie of craftspeople reinterpret Tod’s driving shoes.`\
 https://nytimes.com/2024/04/22/style/tods-shoes-venice-biennale.html
