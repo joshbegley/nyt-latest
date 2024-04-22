@@ -1,3 +1,7 @@
+**As Protests Continue at Columbia, Some Jewish Students Feel Targeted**\
+`After reports of harassment by demonstrators, some Jewish students said they felt unsafe. Others rejected that view, while condemning antisemitism.`\
+https://nytimes.com/2024/04/21/nyregion/columbia-protests-antisemitism.html
+
 **Lourdes Portillo, Oscar-Nominated Documentary Filmmaker, Dies at 80**\
 `Her films centered on Latin American experiences and received wide acclaim.`\
 https://nytimes.com/2024/04/21/arts/television/lourdes-portillo-dead.html
