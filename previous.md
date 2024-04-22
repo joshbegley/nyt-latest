@@ -1,3 +1,7 @@
+**This 2018 Idaho case set the stage for the one before the Supreme Court today.**\
+`A lawsuit by a group of`\
+https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/idaho-case-set-stage-supreme-court
+
 **Pro-Palestinian Protesters Block Intersection at Yale University**\
 `Protests continued at Yale University following the arrest dozens of students at a pro-Palestinian encampment on the campus.`\
 https://nytimes.com/video/us/100000009426363/yale-campus-protest-gaza-israel-palestinians.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/22/books/review/biography-adaptations-qu
 **A New Gochujang Pasta Has Entered the Chat**\
 `Alexa Weibel’s gochujang pasta balances the red chile paste’s pungency with sweet shrimp and juicy cherry tomatoes.`\
 https://nytimes.com/2024/04/22/dining/gochujang-pasta.html
-
-**Here’s what to know about the campus protests.**\
-`By Alan Blinder`\
-https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/heres-what-to-know-about-the-campus-protests
 
