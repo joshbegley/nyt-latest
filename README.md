@@ -1,3 +1,7 @@
+**Columbia University to Hold Classes Remotely After Weekend Protests**\
+`The campus has been shaken by pro-Palestinian demonstrations that have left some Jewish students fearing for their safety.`\
+https://nytimes.com/2024/04/22/us/columbia-university-protests-classes.html
+
 **A U.S. official says the military destroyed a rocket launcher in Iraq after rockets were fired toward a U.S. base.**\
 `By Alissa J. Rubin and Julian E. Barnes`\
 https://nytimes.com/live/2024/04/22/world/israel-gaza-war-hamas/a-us-official-says-the-military-destroyed-a-rocket-launcher-in-iraq-after-rockets-were-fired-toward-a-us-base
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/opinion/mike-johnson-ukraine-mtg.html
 **What Toll Will the Trial Take on Trump?**\
 `His brash demeanor has already been replaced by fatigue and frustration.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-toll
-
-**How Can I Dress to Look More Grown-Up?**\
-`A reader is tired of being mistaken for someone in her early 20s. Our fashion critic offers tips for dressing with sophistication.`\
-https://nytimes.com/2024/04/22/style/fashion-mature-adults.html
 
