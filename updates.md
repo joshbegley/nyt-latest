@@ -1,3 +1,11 @@
+**Trump Criminal Trial Day 6: Opening Statements and a Brisk Pace**\
+`Jonah Bromwich, a criminal justice reporter at The New York Times, gives the major takeaways from the opening statements and the first witness of Trump’s criminal trial in Manhattan.`\
+https://nytimes.com/video/nyregion/100000009427516/trump-criminal-trial-opening-statements.html
+
+**Trump Was Warned to Return Records to Archives, Unsealed Documents Say**\
+`“Don’t give them a noble reason to indict you, because they will,” an unnamed associate told Donald J. Trump, according to an interview the person gave the F.B.I. in the classified documents case.`\
+https://nytimes.com/2024/04/22/us/politics/trump-warning-classified-documents-case.html
+
 **Dozens of Yale Students Arrested as Campus Protests Spread**\
 `The police arrested students at a pro-Palestinian protest encampment at Yale University, days after more than 100 student demonstrators were arrested on the campus of Columbia University.`\
 https://nytimes.com/video/us/100000009427159/yale-protest-arrests-gaza-palestinians-israel.html

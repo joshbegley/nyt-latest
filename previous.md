@@ -1,3 +1,7 @@
+**Trump Criminal Trial Day 6: Opening Statements and a Brisk Pace**\
+`Jonah Bromwich, a criminal justice reporter at The New York Times, gives the major takeaways from the opening statements and the first witness of Trump’s criminal trial in Manhattan.`\
+https://nytimes.com/video/nyregion/100000009427516/trump-criminal-trial-opening-statements.html
+
 **Dozens of Yale Students Arrested as Campus Protests Spread**\
 `The police arrested students at a pro-Palestinian protest encampment at Yale University, days after more than 100 student demonstrators were arrested on the campus of Columbia University.`\
 https://nytimes.com/video/us/100000009427159/yale-protest-arrests-gaza-palestinians-israel.html
@@ -23,7 +27,7 @@ https://nytimes.com/2024/04/22/us/ostrich-kansas-zoo-dead.html
 https://nytimes.com/2024/04/22/style/cabaret-opening-broadway.html
 
 **Trump Was Warned to Return Records to Archives, Unsealed Documents Say**\
-`Filings made public in the case charging the former president with illegally retaining classified material after leaving office show an associate told him that he could face indictment if he failed to give them back.`\
+`“Don’t give them a noble reason to indict you, because they will,” an unnamed associate told Donald J. Trump, according to an interview the person gave the F.B.I. in the classified documents case.`\
 https://nytimes.com/2024/04/22/us/politics/trump-warning-classified-documents-case.html
 
 **Protests continue at Yale after dozens of students were arrested.**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/yale-protes
 **The First Prosecution of a President Was Laid Out in Court**\
 `Also, pro-Palestinian protests disrupt top college campuses. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/04/22/briefing/trump-trial-opening-statements-college-campus-protests.html
-
-**‘Patriots’ Review: What Happened to the Man Who Made Putin?**\
-`Michael Stuhlbarg and Will Keen shine as a kingmaker and his creature. But in Peter Morgan’s cheesy-fun play, it’s not always clear which is which.`\
-https://nytimes.com/2024/04/22/theater/patriots-review-putin-peter-morgan.html
 
