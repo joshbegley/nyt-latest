@@ -2,9 +2,9 @@
 `Emily Schubert has done makeup and prosthetics on movies like “Uncut Gems” and “Good Time.” She shares her tricks in a new book with A24.`\
 https://nytimes.com/2024/04/22/style/a24-book-emily-schubert.html
 
-**Scenes of Protests at Columbia, Yale, M.I.T and N.Y.U.**\
+**Scenes of Protests at Columbia, Yale, M.I.T. and N.Y.U.**\
 `After the arrests of more than 100 protesters at Columbia last week, demonstrations spread across other elite campuses.`\
-https://nytimes.com/2024/04/22/homepage/college-campus-protests-photos-yale-columbia.html
+https://nytimes.com/2024/04/22/nyregion/college-campus-protests-photos-yale-columbia.html
 
 **Opening Statements in Trump’s Criminal Trial: Five Takeaways**\
 `Prosecutors signaled a sweeping case and Donald J. Trump’s lawyers began their assault on witnesses’ credibility. The judge seems intent on expediting the first trial of an American president.`\
