@@ -1,3 +1,7 @@
+**Huw Edwards, a Top BBC Anchor, Resigns After 40 Years**\
+`Mr. Edwards had been off the air since July, when he was accused of paying for sexually explicit images, and he cited medical reasons for his decision to quit.`\
+https://nytimes.com/2024/04/22/world/europe/huw-edwards-bbc-resign.html
+
 **Israel Hasn’t Offered Evidence Tying U.N. Workers to Terrorism, Review Says**\
 `Israel has said that one in ten employees in Gaza of a U.N. relief agency, UNRWA, belong to Hamas or Palestinian Islamic Jihad, and that a dozen took part in the Oct. 7 attack.`\
 https://nytimes.com/2024/04/22/world/middleeast/unrwa-israel-hamas-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/world/middleeast/palestinian-baby-delivered-mothe
 **FIFA Said to Be Close to TV Deal With Apple for New Tournament**\
 `The agreement would give the tech company worldwide rights for a monthlong World Cup-style competition between top teams set to take place next year.`\
 https://nytimes.com/2024/04/22/business/fifa-apple-tv-deal.html
-
-**‘Mike Johnson Did the Right Thing’ on Ukraine Aid**\
-`Readers praise the House speaker over the passage of the aid bill. Also: A juror’s duty; banning guns; poverty and health; anxious parents and kids.`\
-https://nytimes.com/2024/04/22/opinion/mike-johnson-ukraine-aid.html
 
