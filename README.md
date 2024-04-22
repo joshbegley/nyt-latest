@@ -1,3 +1,7 @@
+**Joel Breman, Who Helped Stop Ebola Outbreak in Africa, Dies at 87**\
+`A member of the original team flown in to fight the deadly virus in 1976, he also worked to stamp out tropical diseases like smallpox, malaria and Guinea worm.`\
+https://nytimes.com/2024/04/22/health/joel-breman-dead.html
+
 **Here’s What Is Happening on Some Other Campuses Across the Country**\
 `Demonstrations appeared to be unfolding mainly at universities in the Northeast, although protests spread to some other campuses.`\
 https://nytimes.com/2024/04/22/us/colleges-protests-columbia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/style/a24-book-emily-schubert.html
 **Scenes of Protests at Columbia, Yale, M.I.T. and N.Y.U.**\
 `After the arrests of more than 100 protesters at Columbia last week, demonstrations spread across other elite campuses.`\
 https://nytimes.com/2024/04/22/nyregion/college-campus-protests-photos-yale-columbia.html
-
-**Opening Statements in Trump’s Criminal Trial: Five Takeaways**\
-`Prosecutors signaled a sweeping case and Donald J. Trump’s lawyers began their assault on witnesses’ credibility. The judge seems intent on expediting the first trial of an American president.`\
-https://nytimes.com/2024/04/22/nyregion/trump-trial-opening-statements-takeaways.html
 
