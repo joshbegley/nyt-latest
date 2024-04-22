@@ -1,3 +1,11 @@
+**Papua New Guinea Leader Criticizes Biden’s ‘Cannibals’ Comment**\
+`Twice last week, President Biden suggested without evidence that his uncle had been eaten by cannibals there after his plane went down off the New Guinea coast during World War II.`\
+https://nytimes.com/2024/04/22/us/politics/biden-cannibals-papua-new-guinea.html
+
+**Pro-Palestinian Protesters Block Intersection at Yale University**\
+`Protests continued at Yale University following the arrests of dozens of students at a pro-Palestinian encampment on the campus.`\
+https://nytimes.com/video/us/100000009426363/yale-campus-protest-gaza-israel-palestinians.html
+
 **This 2018 Idaho case set the stage for the one before the Supreme Court today.**\
 `A lawsuit by a group of`\
 https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/idaho-case-set-stage-supreme-court
