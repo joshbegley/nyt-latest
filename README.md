@@ -1,3 +1,7 @@
+**Intruder Breaks Into Los Angeles Mayor’s Residence**\
+`The Getty House was broken into early Sunday through a smashed window, the police said. Mayor Karen Bass said she and her family were safe.`\
+https://nytimes.com/2024/04/21/us/los-angeles-bass-intrusion.html
+
 **Cher, Dave Matthews Band and A Tribe Called Quest Join Rock Hall of Fame**\
 `Mary J. Blige and Ozzy Osbourne were also voted in, but Sinead O’Connor, who died last year at 56, did not make the cut.`\
 https://nytimes.com/2024/04/21/arts/music/rock-roll-hall-fame-inductees-cher-dave-matthews.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/21/arts/music/review-philharmonic-neuwirth-sondegard
 **Coming to Alabama: Newsom’s Abortion-Access Ad, Depicting an Arrest**\
 `The ad portrays a woman trying to leave the state to have an abortion. The Campaign for Democracy, a political action committee started by Mr. Newsom, the California governor, created it.`\
 https://nytimes.com/2024/04/21/us/politics/gavin-newsom-abortion-alabama.html
-
-**Lawmakers reiterate support for Johnson on heels of approval of foreign aid package**\
-`By Minho Kim`\
-https://nytimes.com/live/2024/04/21/us/trump-trial-biden-election/lawmakers-support-johnson-foreign-aid-package
 
