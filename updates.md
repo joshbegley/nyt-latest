@@ -1,3 +1,7 @@
+**The Impossible Matzo Ball**\
+`It’s the quest — and the love — that counts.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/matzo-ball-vegan
+
 **Huw Edwards, a Top BBC Anchor, Resigns After 40 Years**\
 `Mr. Edwards had been off the air since July, when he was accused of paying for sexually explicit images, and he cited medical reasons for his decision to quit.`\
 https://nytimes.com/2024/04/22/world/europe/huw-edwards-bbc-resign.html
