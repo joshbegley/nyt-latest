@@ -1,3 +1,7 @@
+**Protests continue at Yale after dozens of students were arrested.**\
+`By Eliza Fawcett and Andy Newman`\
+https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/yale-protests-arrests
+
 **The First Prosecution of a President Was Laid Out in Court**\
 `Also, pro-Palestinian protests disrupt top college campuses. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/04/22/briefing/trump-trial-opening-statements-college-campus-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/some-have-l
 **F.T.C. Sues to Block $8.5 Billion Fashion Merger**\
 `The deal between Coach’s owner, Tapestry, and the parent of Michael Kors, Capri Holdings, is intended to create a U.S. luxury group to compete with the European industry giants.`\
 https://nytimes.com/2024/04/22/business/ftc-tapestry-capri-coach-michael-kors.html
-
-**Tuesday Briefing: The Trump Trial Opens**\
-`Also, a top Israeli general resigned.`\
-https://nytimes.com/2024/04/22/world/asia/trump-trial-israel-campus-modi-asia.html
 

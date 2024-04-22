@@ -1,3 +1,7 @@
+**Protests continue at Yale after dozens of students were arrested.**\
+`By Eliza Fawcett and Andy Newman`\
+https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/yale-protests-arrests
+
 **The First Prosecution of a President Was Laid Out in Court**\
 `Also, pro-Palestinian protests disrupt top college campuses. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/04/22/briefing/trump-trial-opening-statements-college-campus-protests.html
