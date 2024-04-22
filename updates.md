@@ -1,3 +1,7 @@
+**Modi Calls Muslims ‘Infiltrators’ Who Would Take India’s Wealth**\
+`The direct language used against the country’s largest minority was a contrast to the image Prime Minister Narendra Modi presents on the world stage.`\
+https://nytimes.com/2024/04/22/world/asia/modi-speech-muslims.html
+
 **22trump-trial**\
 `Live Updates: Opening Statements to Begin in Trump’s Criminal Trial`\
 https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial

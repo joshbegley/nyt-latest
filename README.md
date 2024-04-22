@@ -1,7 +1,3 @@
-**Modi Calls Muslims ‘Infiltrators’ Who Would Take India’s Wealth**\
-`The direct language used against the country’s largest minority was a contrast to the image Prime Minister Narendra Modi presents on the world stage.`\
-https://nytimes.com/2024/04/22/world/asia/modi-speech-muslims.html
-
 **22trump-trial**\
 `Live Updates: Opening Statements to Begin in Trump’s Criminal Trial`\
 https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial
@@ -37,4 +33,8 @@ https://nytimes.com/2024/04/22/briefing/ukraine-russia-war-us-aid-package.html
 **The Trump Trial Ramps Up, and the Supreme Court Considers A Homelessness Case**\
 `Plus, a swimming scandal.`\
 https://nytimes.com/2024/04/22/podcasts/trump-trial.html
+
+**The Evolving Danger of the New Bird Flu**\
+`An unusual outbreak of the disease has spread to dairy herds in multiple U.S. states.`\
+https://nytimes.com/2024/04/22/podcasts/the-daily/bird-flu.html
 
