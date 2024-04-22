@@ -1,3 +1,7 @@
+**3 People Injured After Vehicle Attack in Jerusalem**\
+`Police arrested two men who fled the area after a car rammed into pedestrians. Israeli authorities said the attack was an act of terrorism.`\
+https://nytimes.com/2024/04/22/world/middleeast/israel-jerusalem-car-attack.html
+
 **‘Discomfort May Increase’: Asia’s Heat Wave Scorches Hundreds of Millions**\
 `April is typically hot in South and Southeast Asia, but temperatures this month have been unusually high.`\
 https://nytimes.com/2024/04/22/world/asia/heatwave-india-bangladesh.html

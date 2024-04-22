@@ -1,3 +1,7 @@
+**3 People Injured After Vehicle Attack in Jerusalem**\
+`Police arrested two men who fled the area after a car rammed into pedestrians. Israeli authorities said the attack was an act of terrorism.`\
+https://nytimes.com/2024/04/22/world/middleeast/israel-jerusalem-car-attack.html
+
 **‘Discomfort May Increase’: Asia’s Heat Wave Scorches Hundreds of Millions**\
 `April is typically hot in South and Southeast Asia, but temperatures this month have been unusually high.`\
 https://nytimes.com/2024/04/22/world/asia/heatwave-india-bangladesh.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/books/review/joseph-epstein-never-say-youve-had-a
 **Paychecks, Drafts and Firings: The Possible Future of College Sports**\
 `National Labor Relations Board testimony, now in the hands of a judge, could have wide-ranging consequences — positive and negative — for athletes and their institutions.`\
 https://nytimes.com/2024/04/22/us/college-athletes-employees-nlrb.html
-
-**Rube Goldberg’s Greatest Machine Is His Legacy**\
-`Decades after Mr. Goldberg, a cartoonist, died, artists and engineers have found creative inspiration in his outlandish inventions.`\
-https://nytimes.com/2024/04/22/crosswords/rube-goldberg-machine-contest.html
 
