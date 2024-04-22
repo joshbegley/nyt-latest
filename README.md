@@ -1,3 +1,7 @@
+**A courthouse park becomes a stage, and a sideshow, outside Trump’s trial.**\
+`At Collect Pond Park, New Yorkers engaged in well worn updates.`\
+https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/a-courthouse-park-becomes-a-stage-and-a-sideshow-outside-trumps-trial
+
 **Lori and George Schappell, Long-Surviving Conjoined Twins, Die at 62**\
 `They were distinct people who pursued different lives. “Get past this already, everybody,” Lori said, “get past it and learn to know the individual person.”`\
 https://nytimes.com/2024/04/22/health/lori-george-schappell-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/nyregion/trump-catch-and-kill.html
 **Britain Memorializes a Queen, With Smiles and Bronze Corgis**\
 `Sculptors have immortalized past British monarchs with imposing, stern-faced statues. For Queen Elizabeth II, they’re taking a different approach.`\
 https://nytimes.com/2024/04/22/arts/design/queen-elizabeth-statues.html
-
-**David Pecker Is the First Witness of Trump’s Criminal Trial**\
-`Mr. Pecker, the longtime publisher of The National Enquirer, is first on the stand at the former president’s trial.`\
-https://nytimes.com/2024/04/22/nyregion/david-pecker-trump-trial.html
 
