@@ -1,3 +1,11 @@
+**A Passover Pleasure: Matzo Pizza**\
+`While matzo takes many forms during the holiday, some say it is most delightful when pizza-fied.`\
+https://nytimes.com/2024/04/22/dining/passover-matzo-pizza.html
+
+**What to Know About Victoria Beckham’s 50th Birthday**\
+`Posh Spice had a party involving tequila, Tom Cruise, Salma Hayek — and a rare performance by all five Spice Girls.`\
+https://nytimes.com/2024/04/22/fashion/what-to-know-about-victoria-beckhams-50th-birthday.html
+
 **The opening arguments gave a preview of how the two sides will present the case.**\
 `By Jonah E. Bromwich and Kate Christobek`\
 https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/the-opening-arguments-gave-a-preview-of-how-the-two-sides-will-present-the-case

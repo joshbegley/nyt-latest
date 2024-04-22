@@ -1,3 +1,11 @@
+**A Passover Pleasure: Matzo Pizza**\
+`While matzo takes many forms during the holiday, some say it is most delightful when pizza-fied.`\
+https://nytimes.com/2024/04/22/dining/passover-matzo-pizza.html
+
+**What to Know About Victoria Beckham’s 50th Birthday**\
+`Posh Spice had a party involving tequila, Tom Cruise, Salma Hayek — and a rare performance by all five Spice Girls.`\
+https://nytimes.com/2024/04/22/fashion/what-to-know-about-victoria-beckhams-50th-birthday.html
+
 **The opening arguments gave a preview of how the two sides will present the case.**\
 `By Jonah E. Bromwich and Kate Christobek`\
 https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/the-opening-arguments-gave-a-preview-of-how-the-two-sides-will-present-the-case
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/whats-next-a-d
 **A courthouse park becomes a stage, and a sideshow, outside Trump’s trial.**\
 `At Collect Pond Park, New Yorkers engaged in well worn updates.`\
 https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/a-courthouse-park-becomes-a-stage-and-a-sideshow-outside-trumps-trial
-
-**Lori and George Schappell, Long-Surviving Conjoined Twins, Die at 62**\
-`They were distinct people who pursued different lives. “Get past this already, everybody,” Lori said, “get past it and learn to know the individual person.”`\
-https://nytimes.com/2024/04/22/health/lori-george-schappell-dead.html
-
-**The Impossible Matzo Ball**\
-`It’s the quest — and the love — that counts.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/matzo-ball-vegan
 
