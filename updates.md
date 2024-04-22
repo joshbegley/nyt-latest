@@ -1,4 +1,8 @@
 **3 People Injured After Vehicle Attack in Jerusalem**\
+`The police arrested two men who fled the area after a car rammed into pedestrians. The Israeli authorities said the attack was an act of terrorism.`\
+https://nytimes.com/2024/04/22/world/middleeast/israel-jerusalem-car-attack.html
+
+**3 People Injured After Vehicle Attack in Jerusalem**\
 `Police arrested two men who fled the area after a car rammed into pedestrians. Israeli authorities said the attack was an act of terrorism.`\
 https://nytimes.com/2024/04/22/world/middleeast/israel-jerusalem-car-attack.html
 
