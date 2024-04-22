@@ -1,3 +1,7 @@
+**The Impossible Matzo Ball**\
+`It’s the quest — and the love — that counts.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/matzo-ball-vegan
+
 **Huw Edwards, a Top BBC Anchor, Resigns After 40 Years**\
 `Mr. Edwards had been off the air since July, when he was accused of paying for sexually explicit images, and he cited medical reasons for his decision to quit.`\
 https://nytimes.com/2024/04/22/world/europe/huw-edwards-bbc-resign.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/nyregion/david-pecker-trump-trial.html
 **Palestinian Baby Delivered After Mother Killed in Israeli Strike**\
 `The baby was born 10 weeks premature and weighed three pounds, a doctor said. Her father and sister also died.`\
 https://nytimes.com/2024/04/22/world/middleeast/palestinian-baby-delivered-mother-killed.html
-
-**FIFA Said to Be Close to TV Deal With Apple for New Tournament**\
-`The agreement would give the tech company worldwide rights for a monthlong World Cup-style competition between top teams set to take place next year.`\
-https://nytimes.com/2024/04/22/business/fifa-apple-tv-deal.html
 
