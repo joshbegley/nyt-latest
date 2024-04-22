@@ -1,3 +1,7 @@
+**Trump and Attorney General Agree on Minor Changes to $175 Million Bond**\
+`Letitia James had asked a court to reject the bond that Donald J. Trump posted in his civil fraud case. A deal on Monday will keep the terms of the bond largely unchanged.`\
+https://nytimes.com/2024/04/22/nyregion/attorney-general-trump-175-million-bond.html
+
 **Israel Hasn’t Offered Evidence Tying U.N. Workers to Hamas, Review Says**\
 `The review did not address whether some employees of a U.N. agency, UNRWA, took part in the Oct. 7 attack, but it said no evidence had emerged that many UNRWA workers belonged to militant groups.`\
 https://nytimes.com/2024/04/22/world/middleeast/unrwa-israel-hamas-report.html
