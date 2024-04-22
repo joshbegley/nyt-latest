@@ -1,3 +1,7 @@
+**‘Mike Johnson Did the Right Thing’ on Ukraine Aid**\
+`Readers praise the House speaker over the passage of the aid bill. Also: A juror’s duty; banning guns; poverty and health; anxious parents and kids.`\
+https://nytimes.com/2024/04/22/opinion/mike-johnson-ukraine-aid.html
+
 **Papua New Guinea Leader Criticizes Biden’s ‘Cannibals’ Comment**\
 `Twice last week, President Biden suggested without evidence that his uncle had been eaten by cannibals there after his plane went down off the New Guinea coast during World War II.`\
 https://nytimes.com/2024/04/22/us/politics/biden-cannibals-papua-new-guinea.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/arts/music/mdou-moctar-funeral-for-justice.html
 **The Biden administration has sought a middle path.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/the-biden-administration-has-sought-a-middle-path
-
-**Do You Know These Films Based on Great Biographies?**\
-`Try this short quiz to test your knowledge of books and their memorable movie adaptations.`\
-https://nytimes.com/interactive/2024/04/22/books/review/biography-adaptations-quiz.html
 
