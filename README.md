@@ -1,3 +1,7 @@
+**What We Know About the Protests at Columbia University**\
+`Demonstrations outside the school gates have added to the upheaval, with protesters who appear unconnected to the university targeting Jewish students.`\
+https://nytimes.com/2024/04/22/us/columbia-university-protests.html
+
 **Dozens of Yale Students Arrested During Campus Protests**\
 `Demonstrators were arrested on Monday morning after setting up an encampment that they said was in support of Columbia University protesters.`\
 https://nytimes.com/2024/04/22/us/yale-students-arrests-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/homelessness-g
 **The case centers on an unusual use of the Eighth Amendment.**\
 `A group of homeless plaintiffs argue that local laws aimed at banning sleeping outside violated their constitutional rights. The city claims that’s not what the Eighth Amendment means.`\
 https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/the-case-centers-on-an-unusual-use-of-the-eighth-amendment
-
-**22scotus-homeless**\
-`Live Updates: Supreme Court to Consider How Far Cities Can Police Homelessness`\
-https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness
 
