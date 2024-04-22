@@ -1,3 +1,27 @@
+**Pro-Palestinian Protesters Block Intersection at Yale University**\
+`Protests continued at Yale University following the arrest dozens of students at a pro-Palestinian protest encampment on the campus.`\
+https://nytimes.com/video/us/100000009426363/yale-campus-protest-gaza-israel-palestinians.html
+
+**Meet the team defending Donald J. Trump in his criminal trial.**\
+`By Kate Christobek`\
+https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/meet-the-team-defending-donald-j-trump-in-his-criminal-trial
+
+**Review: ‘Grenfell’ Listens to the Survivors of a Towering Inferno**\
+`At St. Ann’s Warehouse, this documentary play about a London fire is blood-boiling and aggrieved.`\
+https://nytimes.com/2024/04/22/theater/grenfell-review.html
+
+**Future and Metro Boomin’s Second Joint LP Opens at No. 1**\
+`The Atlanta rapper and producer’s “We Still Don’t Trust You” reached the top of the Billboard 200 before the expected arrival of monster numbers from Taylor Swift next week.`\
+https://nytimes.com/2024/04/22/arts/music/future-metro-boomin-billboard-chart.html
+
+**How an Ex-N.B.A. Player Is Diversifying Wine One Sip at a Time**\
+`As corporate diversity efforts fade out, Channing Frye and his Chosen Family Wines have taken an unpretentious grass roots approach, bringing wine to communities of color.`\
+https://nytimes.com/2024/04/22/dining/drinks/channing-frye-wine.html
+
+**Mdou Moctar’s Guitar Is a Screaming Siren Against Africa’s Colonial Legacy**\
+`“Funeral for Justice,” the musician from Niger’s album due next month, amps up the urgency in his work: “I want you to know how serious this is.”`\
+https://nytimes.com/2024/04/22/arts/music/mdou-moctar-funeral-for-justice.html
+
 **The Biden administration has sought a middle path.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/the-biden-administration-has-sought-a-middle-path
@@ -13,28 +37,4 @@ https://nytimes.com/2024/04/22/dining/gochujang-pasta.html
 **Here’s what to know about the campus protests.**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/heres-what-to-know-about-the-campus-protests
-
-**Trump Can Be Grilled About Cases He Lost and Gag Order Violations**\
-`The judge’s ruling could play into Donald J. Trump’s decision on whether to testify in his own defense.`\
-https://nytimes.com/2024/04/22/nyregion/trump-testimony-sandoval.html
-
-**Meet the team prosecuting Donald J. Trump.**\
-`By Kate Christobek`\
-https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/meet-the-team-prosecuting-donald-j-trump
-
-**The N.I.H.’s Words Matter, Especially to Long Covid Patients**\
-`A recent statement rattled researchers and shocked communities of long Covid patients.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/long-covid-nih-research
-
-**Is homelessness an involuntary state of being?**\
-`A group of homeless plaintiffs is expected to rely on a Supreme Court case from 1962 to argue that the answer is yes.`\
-https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/is-homelessness-an-involuntary-state-of-being
-
-**Taylor Swift Has Given Fans a Lot. Is It Finally Too Much?**\
-`Swift has been inescapable over the last year. With the release of “The Tortured Poets Department,” her latest (very long) album, some seem to finally be feeling fatigued.`\
-https://nytimes.com/2024/04/22/arts/music/taylor-swift-album-fatigue.html
-
-**Game Reviews: Vibrant African Myths and an Undersea Satire**\
-`Precision is necessary in Tales of Kenzera: Zau, which brims with Bantu traditions. Through repetition, Harold Halibut demonstrates a subtle mastery of human nature.`\
-https://nytimes.com/2024/04/22/arts/tales-of-kenzera-zau-harold-halibut-review.html
 
