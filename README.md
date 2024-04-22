@@ -1,3 +1,19 @@
+**Clashing Visions of Trump**\
+`The prosecution and the defense presented their opening statements.`\
+https://nytimes.com/2024/04/22/us/politics/trump-trial-newyork-hushmoney-opening-statements.html
+
+**The Circus Trump Wanted Outside His Trial Hasn’t Arrived**\
+`With support from demonstrators in Lower Manhattan spotty so far, Donald Trump issued a call to “rally behind MAGA,” and suggested the poor turnout was a result of a plot against his supporters.`\
+https://nytimes.com/2024/04/22/us/politics/trump-trial-protests.html
+
+**PEN America Cancels Literary Awards Ceremony Amid Gaza War Fallout**\
+`The event had been set for April 29, but weeks of escalating criticism of the organization’s response to the war had led nearly half of the prize nominees to withdraw.`\
+https://nytimes.com/2024/04/22/arts/pen-america-literary-awards.html
+
+**Joel Breman, Who Helped Stop an Ebola Outbreak in Africa, Dies at 87**\
+`Part of a team flown in to fight the deadly virus in 1976, Dr. Breman also worked to stamp out tropical diseases like smallpox, malaria and Guinea worm.`\
+https://nytimes.com/2024/04/22/health/joel-breman-dead.html
+
 **Here’s What Is Happening on Some Other Campuses Across the Country**\
 `Demonstrations appeared to be unfolding mainly at universities in the Northeast, although protests spread to some other campuses.`\
 https://nytimes.com/2024/04/22/us/colleges-protests-columbia.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/22/nyregion/storm-response-nyc-adams.html
 **An Unprecedented Trial Opens With Two Visions of Trump**\
 `The prosecution’s opening statement sketched a seamy scheme meant to further the election of Donald J. Trump. His lawyer said the government’s case is merely “34 pieces of paper.”`\
 https://nytimes.com/2024/04/22/nyregion/trump-hush-money-trial-prosecution.html
-
-**Maps: Earthquakes Shake Eastern Taiwan**\
-`View the location of each quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2024/04/22/world/taiwan-earthquake-hualien.html
-
-**How to Age Fingernails, and Other Tips From a Movie Makeup Book**\
-`Emily Schubert has done makeup and prosthetics on movies like “The Sweet East” and “Good Time.” She shares her tricks in a new book with A24.`\
-https://nytimes.com/2024/04/22/style/a24-book-emily-schubert.html
-
-**Scenes of Protests at Columbia, Yale, M.I.T. and N.Y.U.**\
-`After the arrests of more than 100 protesters at Columbia last week, demonstrations spread across other elite campuses.`\
-https://nytimes.com/2024/04/22/nyregion/college-campus-protests-photos-yale-columbia.html
-
-**Opening Statements in Trump’s Criminal Trial: Five Takeaways**\
-`Prosecutors signaled a sweeping case and Donald J. Trump’s lawyers began their assault on witnesses’ credibility. The judge seems intent on expediting the first trial of an American president.`\
-https://nytimes.com/2024/04/22/nyregion/trump-trial-opening-statements-takeaways.html
 
