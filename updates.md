@@ -1,3 +1,15 @@
+**22trump-trial**\
+`Live Updates: Opening Statements to Begin in Trump’s Criminal Trial`\
+https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial
+
+**Germany Arrests 3 Suspected of Passing Secrets to China**\
+`Sensitive naval data, along with a high-powered laser, were obtained for China by three German citizens, according to prosecutors.`\
+https://nytimes.com/2024/04/22/world/europe/germany-china-spying-arrests.html
+
+**Melania Trump Reappears, in Black**\
+`At the Log Cabin Republicans’ fund-raiser, the former first lady stepped into the campaign spotlight, just as her husband’s hush-money trial begins.`\
+https://nytimes.com/2024/04/22/style/melania-trump-log-cabin-republicans.html
+
 **1974: Leftists Threaten to Kill Official in Genoa Kidnap**\
 `A man claiming to represent members of a group called the Red Brigades said that they would kill the Italian city’s deputy public prosecutor unless an imprisoned bank robber was released.`\
 https://nytimes.com/2024/04/22/world/leftists-kidnap-genoa.html
