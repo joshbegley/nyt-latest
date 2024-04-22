@@ -1,3 +1,7 @@
+**Meet the team prosecuting Donald J. Trump.**\
+`By Kate Christobek`\
+https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/meet-the-team-prosecuting-donald-j-trump
+
 **The N.I.H.’s Words Matter, Especially to Long Covid Patients**\
 `A recent statement rattled researchers and shocked communities of long Covid patients.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/long-covid-nih-research
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/the-outcome-of
 **Trump will once again be in a courtroom while Biden campaigns.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/04/22/us/biden-trump-election/trump-will-once-again-be-in-a-courtroom-while-biden-campaigns
-
-**Everton Is Back on Market as Deal With 777 Partners Falters**\
-`With a proposed sale stalled seven months after it was announced, a financially strapped Premier League team is seeking a backup plan.`\
-https://nytimes.com/2024/04/22/business/everton-sale-777-partners.html
 

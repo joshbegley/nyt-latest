@@ -1,3 +1,7 @@
+**Meet the team prosecuting Donald J. Trump.**\
+`By Kate Christobek`\
+https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/meet-the-team-prosecuting-donald-j-trump
+
 **Taylor Swift Has Given Fans a Lot. Is It Finally Too Much?**\
 `Swift has been inescapable over the last year. With the release of “The Tortured Poets Department,” her latest (very long) album, some seem to finally be feeling fatigued.`\
 https://nytimes.com/2024/04/22/arts/music/taylor-swift-album-fatigue.html
