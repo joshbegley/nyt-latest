@@ -1,3 +1,7 @@
+**Ukraine’s New Hope**\
+`How an aid package from the U.S. could affect the war.`\
+https://nytimes.com/2024/04/22/briefing/ukraine-russia-war-us-aid-package.html
+
 **The Trump Trial Ramps Up, and the Supreme Court Considers A Homelessness Case**\
 `Plus, a swimming scandal.`\
 https://nytimes.com/2024/04/22/podcasts/trump-trial.html
