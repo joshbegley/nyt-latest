@@ -1,3 +1,7 @@
+**Bob Heil, Whose Innovations Enhanced the Sound of Rock, Dies at 83**\
+`A groundbreaking audio engineer, he provided the large-scale systems that brought tours by the Who and the Grateful Dead to life.`\
+https://nytimes.com/2024/04/22/arts/music/bob-heil-deadd.html
+
 **Modi Calls Muslims ‘Infiltrators’ Who Would Take India’s Wealth**\
 `The direct language used against the country’s largest minority was a contrast to the image Prime Minister Narendra Modi presents on the world stage.`\
 https://nytimes.com/2024/04/22/world/asia/modi-speech-muslims.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/22/world/israel-gaza-war-hamas/a-us-official-sa
 **Ukraine’s New Hope**\
 `How an aid package from the U.S. could affect the war.`\
 https://nytimes.com/2024/04/22/briefing/ukraine-russia-war-us-aid-package.html
-
-**The Trump Trial Ramps Up, and the Supreme Court Considers A Homelessness Case**\
-`Plus, a swimming scandal.`\
-https://nytimes.com/2024/04/22/podcasts/trump-trial.html
 
