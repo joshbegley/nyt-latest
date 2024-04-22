@@ -30,8 +30,8 @@ https://nytimes.com/live/2024/04/16/opinion/thepoint/matzo-ball-vegan
 `Mr. Edwards had been off the air since July, when he was accused of paying for sexually explicit images, and he cited medical reasons for his decision to quit.`\
 https://nytimes.com/2024/04/22/world/europe/huw-edwards-bbc-resign.html
 
-**Israel Hasn’t Offered Evidence Tying U.N. Workers to Terrorism, Review Says**\
-`Israel has said that one in ten employees in Gaza of a U.N. relief agency, UNRWA, belong to Hamas or Palestinian Islamic Jihad, and that the agency should be disbanded.`\
+**Israel Hasn’t Offered Evidence Tying U.N. Workers to Hamas, Review Says**\
+`The review did not address whether some employees of a U.N. agency, UNRWA, took part in the Oct. 7 attack, but it said no evidence had emerged that many UNRWA workers belonged to militant groups.`\
 https://nytimes.com/2024/04/22/world/middleeast/unrwa-israel-hamas-report.html
 
 **Ukraine War Helped Push World Military Spending to 35-Year High, Study Says**\

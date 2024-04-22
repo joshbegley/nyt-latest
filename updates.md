@@ -1,3 +1,7 @@
+**Israel Hasn’t Offered Evidence Tying U.N. Workers to Hamas, Review Says**\
+`The review did not address whether some employees of a U.N. agency, UNRWA, took part in the Oct. 7 attack, but it said no evidence had emerged that many UNRWA workers belonged to militant groups.`\
+https://nytimes.com/2024/04/22/world/middleeast/unrwa-israel-hamas-report.html
+
 **Summer Lee Has Been a Vocal Israel Critic. Will It Matter in Her Primary?**\
 `The race in Pennsylvania once seemed primed to become a major test of Democratic attitudes about the Middle East. But in much of the district, an expected ideological battle has not arrived.`\
 https://nytimes.com/2024/04/22/us/politics/summer-lee-pennsylvania-gaza.html
