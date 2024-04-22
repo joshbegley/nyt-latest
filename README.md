@@ -1,5 +1,5 @@
 **Maps: Earthquakes Shake Eastern Taiwan**\
-`View the location of the quakes’ epicenter and shake area.`\
+`View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/04/22/world/taiwan-earthquake-hualien.html
 
 **How to Age Fingernails, and Other Tips From a Movie Makeup Book**\
