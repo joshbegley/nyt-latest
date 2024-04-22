@@ -2,8 +2,8 @@
 `By Alan Blinder`\
 https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/heres-what-to-know-about-the-campus-protests
 
-**If Trump testifies, he can be grilled about cases he lost and gag order violations.**\
-`By Jesse McKinley`\
+**Trump Can Be Grilled About Cases He Lost and Gag Order Violations**\
+`The judge’s ruling could play into Donald J. Trump’s decision on whether to testify in his own defense.`\
 https://nytimes.com/2024/04/22/nyregion/trump-testimony-sandoval.html
 
 **Meet the team prosecuting Donald J. Trump.**\
