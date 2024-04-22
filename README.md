@@ -1,3 +1,7 @@
+**Papua New Guinea Leader Criticizes Biden’s ‘Cannibals’ Comment**\
+`Twice last week, President Biden suggested without evidence that his uncle had been eaten by cannibals there after his plane went down off the New Guinea coast during World War II.`\
+https://nytimes.com/2024/04/22/us/politics/biden-cannibals-papua-new-guinea.html
+
 **This 2018 Idaho case set the stage for the one before the Supreme Court today.**\
 `A lawsuit by a group of`\
 https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/idaho-case-set-stage-supreme-court
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/the-biden-admi
 **Do You Know These Films Based on Great Biographies?**\
 `Try this short quiz to test your knowledge of books and their memorable movie adaptations.`\
 https://nytimes.com/interactive/2024/04/22/books/review/biography-adaptations-quiz.html
-
-**A New Gochujang Pasta Has Entered the Chat**\
-`Alexa Weibel’s gochujang pasta balances the red chile paste’s pungency with sweet shrimp and juicy cherry tomatoes.`\
-https://nytimes.com/2024/04/22/dining/gochujang-pasta.html
 
