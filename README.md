@@ -1,3 +1,7 @@
+**Crafting Shoes Never Meant to Be Walked In**\
+`In Venice, a coterie of craftspeople reinterpret Tod’s driving shoes.`\
+https://nytimes.com/2024/04/22/style/tods-shoes-venice-biennale.html
+
 **A Passover Pleasure: Matzo Pizza**\
 `While matzo takes many forms during the holiday, some say it is most delightful when pizza-fied.`\
 https://nytimes.com/2024/04/22/dining/passover-matzo-pizza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/us/politics/trump-police-trial.html
 **What’s next: A decision will most likely land in late June.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/whats-next-a-decision-will-most-likely-land-in-late-june
-
-**A courthouse park becomes a stage, and a sideshow, outside Trump’s trial.**\
-`At Collect Pond Park, New Yorkers engaged in well worn updates.`\
-https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/a-courthouse-park-becomes-a-stage-and-a-sideshow-outside-trumps-trial
 
