@@ -1,3 +1,7 @@
+**How Can Elon Musk Reassure Tesla Investors?**\
+`The electric vehicle maker has announced price cuts and a Cybertruck recall ahead of Tuesday’s pivotal earnings report.`\
+https://nytimes.com/2024/04/22/business/dealbook/tesla-earnings-price-cuts-recall.html
+
 **Columbia University to Hold Classes Remotely After Weekend Protests**\
 `The campus has been shaken by pro-Palestinian demonstrations that have left some Jewish students fearing for their safety.`\
 https://nytimes.com/2024/04/22/us/columbia-university-protests-classes.html
