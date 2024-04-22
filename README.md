@@ -1,3 +1,7 @@
+**Phyllis Pressman, Luxury Superstore Matriarch, Is Dead at 95**\
+`She started working at Barneys to be closer to her husband. Then, she became the architect of the Chelsea Passage, the home goods bazaar that helped make it an enticing destination.`\
+https://nytimes.com/2024/04/22/business/phyllis-pressman-dead.html
+
 **Trying to Stop Violence, One Conversation at a Time**\
 `In Baton Rouge, a public safety experiment could help to answer a critical question: Do community efforts to reduce street violence work?`\
 https://nytimes.com/interactive/2024/04/22/headway/gun-violence-intervention-baton-rouge.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/us/politics/trump-trial-protests.html
 **PEN America Cancels Literary Awards Ceremony Amid Gaza War Fallout**\
 `The event had been set for April 29, but weeks of escalating criticism of the organization’s response to the war had led nearly half of the prize nominees to withdraw.`\
 https://nytimes.com/2024/04/22/arts/pen-america-literary-awards.html
-
-**Joel Breman, Who Helped Stop an Ebola Outbreak in Africa, Dies at 87**\
-`Part of a team flown in to fight the deadly virus in 1976, Dr. Breman also worked to stamp out tropical diseases like smallpox, malaria and Guinea worm.`\
-https://nytimes.com/2024/04/22/health/joel-breman-dead.html
 
