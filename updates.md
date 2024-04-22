@@ -1,3 +1,7 @@
+**For Biden, Aid Package Provides a Welcome Boost on the World Stage**\
+`The congressional breakthrough on security assistance to Ukraine and Israel will let the president finally deliver arms to match his words. But it could be only a temporary respite.`\
+https://nytimes.com/2024/04/22/us/politics/biden-ukraine-aid.html
+
 **U.K. Approves Bill That Would Send Asylum Seekers to Rwanda**\
 `Britain’s Parliament passed contentious legislation to allow the deportation of asylum seekers to the African country, a political victory for Prime Minister Rishi Sunak.`\
 https://nytimes.com/2024/04/22/world/europe/uk-rwanda-deportation-bill-migrants.html
