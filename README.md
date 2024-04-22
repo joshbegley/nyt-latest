@@ -7,7 +7,7 @@ https://nytimes.com/2024/04/22/us/politics/biden-cannibals-papua-new-guinea.html
 https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/idaho-case-set-stage-supreme-court
 
 **Pro-Palestinian Protesters Block Intersection at Yale University**\
-`Protests continued at Yale University following the arrest dozens of students at a pro-Palestinian encampment on the campus.`\
+`Protests continued at Yale University following the arrests of dozens of students at a pro-Palestinian encampment on the campus.`\
 https://nytimes.com/video/us/100000009426363/yale-campus-protest-gaza-israel-palestinians.html
 
 **Meet the team defending Donald J. Trump in his criminal trial.**\
