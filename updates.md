@@ -1,3 +1,7 @@
+**‘Discomfort May Increase’: Asia’s Heat Wave Scorches Hundreds of Millions**\
+`April is typically hot in South and Southeast Asia, but temperatures this month have been unusually high.`\
+https://nytimes.com/2024/04/22/world/asia/heatwave-india-bangladesh.html
+
 **Do You Spend Enough Time in the Dirt?**\
 `Scientists say that feeling the earth can be good for our bodies and minds. When was the last time you got your hands dirty?`\
 https://nytimes.com/2024/04/22/learning/do-you-spend-enough-time-in-the-dirt.html
