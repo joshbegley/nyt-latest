@@ -1,3 +1,7 @@
+**As Protests Continue at Columbia, Some Jewish Students Feel Targeted**\
+`After reports of harassment by demonstrators outside the university’s gates, some Jewish students said they felt unsafe. Others rejected that view, while condemning antisemitism.`\
+https://nytimes.com/2024/04/21/nyregion/columbia-protests-antisemitism.html
+
 **U.S. Considers Imposing Sanctions on Israeli Military Unit**\
 `Israeli leaders expressed alarm about the possible action by the Biden administration over rights violations in the West Bank.`\
 https://nytimes.com/2024/04/21/world/middleeast/us-sanctions-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/21/us/trump-trial-biden-election/lawmakers-supp
 **Jawbone in Child’s Rock Collection Linked to Marine Who Died in 1951**\
 `A mother found the bone in her son’s rock collection in 2002. In 2024, researchers finally identified the person’s remains.`\
 https://nytimes.com/2024/04/21/us/jawbone-rock-collection-marine.html
-
-**How the Movie ‘Civil War’ Echoes Real Political Anxieties**\
-`“Civil War” has tapped into a dark set of national angst. In polls and in interviews, a segment of voters say they fear the country’s divides may lead to actual, not just rhetorical, battles.`\
-https://nytimes.com/2024/04/21/us/politics/civil-war-movie-politics.html
 

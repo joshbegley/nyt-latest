@@ -1,3 +1,7 @@
+**As Protests Continue at Columbia, Some Jewish Students Feel Targeted**\
+`After reports of harassment by demonstrators outside the university’s gates, some Jewish students said they felt unsafe. Others rejected that view, while condemning antisemitism.`\
+https://nytimes.com/2024/04/21/nyregion/columbia-protests-antisemitism.html
+
 **U.S. Considers Imposing Sanctions on Israeli Military Unit**\
 `Israeli leaders expressed alarm about the possible action by the Biden administration over rights violations in the West Bank.`\
 https://nytimes.com/2024/04/21/world/middleeast/us-sanctions-israel-gaza.html
