@@ -1,3 +1,7 @@
+**Haliva has said he bore ‘full responsibility’ for the intelligence failure.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/04/22/world/israel-gaza-war-hamas/haliva-has-said-he-bore-full-responsibility-for-the-intelligence-failure
+
 **Opening Statements in Trump’s Criminal Trial to Begin Monday**\
 `Prosecutors for the Manhattan district attorney’s office will go first, giving a preview of the evidence and seeking to persuade and charm the 12 jurors.`\
 https://nytimes.com/2024/04/22/nyregion/donald-trump-hush-money-trial.html
