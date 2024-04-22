@@ -1,3 +1,7 @@
+**On Columbia’s Campus, a Protest Encampment Grows and Tensions Flare**\
+`On a day the university president asked students to stay home, a tent city on a campus lawn kept growing, protesters met in tense confrontations and police and politicians converged to weigh in.`\
+https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/columbia-protests-encampment
+
 **For Biden, Aid Package Provides a Welcome Boost on the World Stage**\
 `The congressional breakthrough on security assistance to Ukraine and Israel will let the president finally deliver arms to match his words. But it could be only a temporary respite.`\
 https://nytimes.com/2024/04/22/us/politics/biden-ukraine-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/nyregion/rutgers-islamic-center-hate-crime.html
 **Beloved Ostrich Dies at Kansas Zoo After Swallowing Worker’s Keys**\
 `Karen, a 5-year-old known for her playful antics, reached beyond her enclosure, grabbed a staff member’s keys and swallowed them, the zoo said. Attempts to save her were unsuccessful.`\
 https://nytimes.com/2024/04/22/us/ostrich-kansas-zoo-dead.html
-
-**Eddie Redmayne and Angela Bassett Journey to Berlin at ‘Cabaret’ Opening**\
-`A party for the buzzy revival of the Broadway musical was held at a theater that has been transformed to look like a 1930s-era nightclub.`\
-https://nytimes.com/2024/04/22/style/cabaret-opening-broadway.html
 
