@@ -1,3 +1,11 @@
+**Beloved Ostrich Dies at Kansas Zoo After Swallowing Worker’s Keys**\
+`Karen, a 5-year-old known for her playful antics, reached beyond her enclosure, grabbed a staff member’s keys and swallowed them, the zoo said. Attempts to save her were unsuccessful.`\
+https://nytimes.com/2024/04/22/us/ostrich-kansas-zoo-dead.html
+
+**Eddie Redmayne and Angela Bassett Journey to Berlin at ‘Cabaret’ Opening**\
+`A party for the buzzy revival of the Broadway musical was held at a theater that has been transformed to look like a 1930s-era nightclub.`\
+https://nytimes.com/2024/04/22/style/cabaret-opening-broadway.html
+
 **Trump Was Warned to Return Records to Archives, Unsealed Documents Say**\
 `Filings made public in the case charging the former president with illegally retaining classified material after leaving office show an associate told him that he could face indictment if he failed to give them back.`\
 https://nytimes.com/2024/04/22/us/politics/trump-warning-classified-documents-case.html
