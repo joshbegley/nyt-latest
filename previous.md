@@ -1,3 +1,11 @@
+**Trying to Stop Violence, One Conversation at a Time**\
+`In Baton Rouge, a public safety experiment could help to answer a critical question: Do community efforts to reduce street violence work?`\
+https://nytimes.com/interactive/2024/04/22/headway/gun-violence-intervention-baton-rouge.html
+
+**New Group Joins the Political Fight Over Disinformation Online**\
+`The group intends to fight what its leader, Nina Jankowicz, and others have described as a coordinated campaign by conservatives and their allies to undermine researchers who study disinformation.`\
+https://nytimes.com/2024/04/22/business/media/american-sunlight-project-fight-disinformation.html
+
 **‘Blair Witch Project’ Actors Push for Retroactive Royalties**\
 `The cast behind the 1999 horror classic was paid mere thousands for a movie that grossed almost $250 million. Now, it’s being rebooted, which was news to the actors.`\
 https://nytimes.com/2024/04/22/arts/blair-witch-project-actors-royalties.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/22/arts/pen-america-literary-awards.html
 **Joel Breman, Who Helped Stop an Ebola Outbreak in Africa, Dies at 87**\
 `Part of a team flown in to fight the deadly virus in 1976, Dr. Breman also worked to stamp out tropical diseases like smallpox, malaria and Guinea worm.`\
 https://nytimes.com/2024/04/22/health/joel-breman-dead.html
-
-**Here’s What Is Happening on Some Other Campuses Across the Country**\
-`Demonstrations appeared to be unfolding mainly at universities in the Northeast, although protests spread to some other campuses.`\
-https://nytimes.com/2024/04/22/us/colleges-protests-columbia.html
-
-**Jurors Begin to Understand the ‘Trump Tower Conspiracy’**\
-`The opening statements gave a preview of the strengths and weaknesses of each side’s arguments.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-conspiracy-opening
 

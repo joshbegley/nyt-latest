@@ -1,3 +1,11 @@
+**Trying to Stop Violence, One Conversation at a Time**\
+`In Baton Rouge, a public safety experiment could help to answer a critical question: Do community efforts to reduce street violence work?`\
+https://nytimes.com/interactive/2024/04/22/headway/gun-violence-intervention-baton-rouge.html
+
+**New Group Joins the Political Fight Over Disinformation Online**\
+`The group intends to fight what its leader, Nina Jankowicz, and others have described as a coordinated campaign by conservatives and their allies to undermine researchers who study disinformation.`\
+https://nytimes.com/2024/04/22/business/media/american-sunlight-project-fight-disinformation.html
+
 **‘Blair Witch Project’ Actors Push for Retroactive Royalties**\
 `The cast behind the 1999 horror classic was paid mere thousands for a movie that grossed almost $250 million. Now, it’s being rebooted, which was news to the actors.`\
 https://nytimes.com/2024/04/22/arts/blair-witch-project-actors-royalties.html
