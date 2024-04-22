@@ -1,3 +1,7 @@
+**FIFA Said to Be Close to TV Deal With Apple for New Tournament**\
+`The agreement would give the tech company worldwide rights for a monthlong World Cup-style competition between top teams set to take place next year.`\
+https://nytimes.com/2024/04/22/business/fifa-apple-tv-deal.html
+
 **‘Mike Johnson Did the Right Thing’ on Ukraine Aid**\
 `Readers praise the House speaker over the passage of the aid bill. Also: A juror’s duty; banning guns; poverty and health; anxious parents and kids.`\
 https://nytimes.com/2024/04/22/opinion/mike-johnson-ukraine-aid.html
