@@ -1,3 +1,7 @@
+**Israelis Prepare to Mark Passover, a Festival of Freedom, With Hostages Still in Gaza**\
+`Many Jews say they will adapt their Passover rituals around the Seder table this year to fit the somber mood of a country at war.`\
+https://nytimes.com/2024/04/22/world/middleeast/israel-passover-hostages-gaza.html
+
 **Ukraine’s Race to Hold the Line**\
 `The days of lightning battlefield breakthroughs may be over. With Russia preparing to make a big push, the Ukrainians can do little but dig in.`\
 https://nytimes.com/interactive/2024/04/22/world/europe/ukraine-war-defense.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/crosswords/connections-companion.html
 **Today’s Wordle Review No. 1,038**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/04/22/crosswords/wordle-review.html
-
-**Word of the Day: regale**\
-`This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/04/22/learning/word-of-the-day-regale.html
 
