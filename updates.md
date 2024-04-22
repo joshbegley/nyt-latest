@@ -1,3 +1,11 @@
+**Opening Statements in Trump’s Criminal Trial to Begin Monday**\
+`Prosecutors for the Manhattan district attorney’s office will go first, giving a preview of the evidence and seeking to persuade and charm the 12 jurors.`\
+https://nytimes.com/2024/04/22/nyregion/donald-trump-hush-money-trial.html
+
+**How Donald J. Trump’s Criminal Trial Will Unfold**\
+`The defendant is unique, but the basic structure and rhythms of the trial resemble every American prosecution.`\
+https://nytimes.com/2024/04/22/nyregion/donald-trump-trial-procedures.html
+
 **Bird Flu Is Infecting More Mammals. What Does That Mean for Us?**\
 `H5N1, an avian flu virus, has killed tens of thousands of marine mammals, and infiltrated American livestock for the first time. Scientists are working quickly to assess how it is evolving and how much of a risk it poses to humans.`\
 https://nytimes.com/2024/04/22/health/birdflu-marine-mammals.html

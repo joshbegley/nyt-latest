@@ -1,3 +1,11 @@
+**Opening Statements in Trump’s Criminal Trial to Begin Monday**\
+`Prosecutors for the Manhattan district attorney’s office will go first, giving a preview of the evidence and seeking to persuade and charm the 12 jurors.`\
+https://nytimes.com/2024/04/22/nyregion/donald-trump-hush-money-trial.html
+
+**How Donald J. Trump’s Criminal Trial Will Unfold**\
+`The defendant is unique, but the basic structure and rhythms of the trial resemble every American prosecution.`\
+https://nytimes.com/2024/04/22/nyregion/donald-trump-trial-procedures.html
+
 **Bird Flu Is Infecting More Mammals. What Does That Mean for Us?**\
 `H5N1, an avian flu virus, has killed tens of thousands of marine mammals, and infiltrated American livestock for the first time. Scientists are working quickly to assess how it is evolving and how much of a risk it poses to humans.`\
 https://nytimes.com/2024/04/22/health/birdflu-marine-mammals.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/22/pageoneplus/quotation-of-the-dayoverflowing-amste
 **What’s on TV This Week: N.F.L. Draft and ‘Bridget Jones’ Marathon**\
 `Football players get their chance to play in the national league. HBO airs all three movies staring Renée Zellweger.`\
 https://nytimes.com/2024/04/22/arts/television/whats-on-tv-this-week-nfl-draft-and-bridget-jones-marathon.html
-
-**Liz Truss Is Coming for America**\
-`She has seen the deep state up close and knows what needs to be done.`\
-https://nytimes.com/2024/04/22/opinion/liz-truss-britain-united-states.html
-
-**The Far Right Wants to Take Over Europe, and She’s Leading the Way**\
-`Giorgia Meloni is the model for the continent’s far right.`\
-https://nytimes.com/2024/04/22/opinion/meloni-europe-elections.html
 
