@@ -1,3 +1,7 @@
+**Everton Is Back on Market as Deal With 777 Partners Falters**\
+`With a proposed sale stalled seven months after it was announced, a financially strapped Premier League team is seeking a backup plan.`\
+https://nytimes.com/2024/04/22/business/everton-sale-777-partners.html
+
 **Trump’s Manhattan Criminal Trial Will Not Be Televised**\
 `New York courts generally do not permit video to be broadcast from courtrooms, although a feed is being transmitted into an overflow room for the reporters covering the trial.`\
 https://nytimes.com/2024/04/22/nyregion/trump-trial-tv-livestream.html

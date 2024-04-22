@@ -1,3 +1,7 @@
+**Everton Is Back on Market as Deal With 777 Partners Falters**\
+`With a proposed sale stalled seven months after it was announced, a financially strapped Premier League team is seeking a backup plan.`\
+https://nytimes.com/2024/04/22/business/everton-sale-777-partners.html
+
 **Trump’s Manhattan Criminal Trial Will Not Be Televised**\
 `New York courts generally do not permit video to be broadcast from courtrooms, although a feed is being transmitted into an overflow room for the reporters covering the trial.`\
 https://nytimes.com/2024/04/22/nyregion/trump-trial-tv-livestream.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/arts/music/bob-heil-deadd.html
 **Modi Calls Muslims ‘Infiltrators’ Who Would Take India’s Wealth**\
 `The direct language used against the country’s largest minority was a contrast to the image Prime Minister Narendra Modi presents on the world stage.`\
 https://nytimes.com/2024/04/22/world/asia/modi-speech-muslims.html
-
-**22trump-trial**\
-`Live Updates: Opening Statements to Begin in Trump’s Criminal Trial`\
-https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial
 
