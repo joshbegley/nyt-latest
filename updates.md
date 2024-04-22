@@ -1,3 +1,7 @@
+**Maps: Earthquakes Shake Eastern Taiwan**\
+`View the location of each quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/04/22/world/taiwan-earthquake-hualien.html
+
 **Top Biden Official Calls for Inquiry Into Chinese Doping Case**\
 `The administration’s top drug official, Rahul Gupta, said he would bring up the handling of Chinese swimmers’ positive tests at a meeting of sports officials this week.`\
 https://nytimes.com/2024/04/22/world/asia/doping-china-swimmers-olympics.html

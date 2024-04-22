@@ -11,7 +11,7 @@ https://nytimes.com/2024/04/22/nyregion/storm-response-nyc-adams.html
 https://nytimes.com/2024/04/22/nyregion/trump-hush-money-trial-prosecution.html
 
 **Maps: Earthquakes Shake Eastern Taiwan**\
-`View the location of the quakes’ epicenter and shake area.`\
+`View the location of each quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/04/22/world/taiwan-earthquake-hualien.html
 
 **How to Age Fingernails, and Other Tips From a Movie Makeup Book**\
