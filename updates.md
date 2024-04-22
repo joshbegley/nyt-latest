@@ -1,3 +1,7 @@
+**On Columbia’s Campus, a Protest Encampment Grows and Tensions Flare**\
+`On a day the university president asked students to stay home, a tent city on a campus lawn kept growing, protesters met in tense confrontations and police and politicians converged to weigh in.`\
+https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/columbia-protests-encampment
+
 **For Biden, Aid Package Provides a Welcome Boost on the World Stage**\
 `The congressional breakthrough on security assistance to Ukraine and Israel will let the president finally deliver arms to match his words. But it could be only a temporary respite.`\
 https://nytimes.com/2024/04/22/us/politics/biden-ukraine-aid.html
