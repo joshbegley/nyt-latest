@@ -1,3 +1,7 @@
+**FIFA Said to Be Close to TV Deal With Apple for New Tournament**\
+`The agreement would give the tech company worldwide rights for a monthlong World Cup-style competition between top teams set to take place next year.`\
+https://nytimes.com/2024/04/22/business/fifa-apple-tv-deal.html
+
 **‘Mike Johnson Did the Right Thing’ on Ukraine Aid**\
 `Readers praise the House speaker over the passage of the aid bill. Also: A juror’s duty; banning guns; poverty and health; anxious parents and kids.`\
 https://nytimes.com/2024/04/22/opinion/mike-johnson-ukraine-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/dining/drinks/channing-frye-wine.html
 **Mdou Moctar’s Guitar Is a Screaming Siren Against Africa’s Colonial Legacy**\
 `“Funeral for Justice,” the musician from Niger’s album due next month, amps up the urgency in his work: “I want you to know how serious this is.”`\
 https://nytimes.com/2024/04/22/arts/music/mdou-moctar-funeral-for-justice.html
-
-**The Biden administration has sought a middle path.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/the-biden-administration-has-sought-a-middle-path
 
