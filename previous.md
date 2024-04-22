@@ -2,7 +2,7 @@
 `The world is not always kind to visionaries with self-control issues.`\
 https://nytimes.com/2024/04/22/opinion/elon-musk-william-durant.html
 
-**Networks Covering Trump’s Trial: No Courtroom Scenes, but Look at the Text on Our Screen**\
+**Networks Covering Trump’s Trial Are Forced to Get Creative**\
 `TV networks began the challenging assignment on Monday of covering former President Trump’s trial without the luxury of cameras inside the courtroom.`\
 https://nytimes.com/2024/04/22/business/media/trump-trial-news-coverage.html
 

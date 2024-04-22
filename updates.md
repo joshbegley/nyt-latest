@@ -1,3 +1,7 @@
+**Networks Covering Trump’s Trial Are Forced to Get Creative**\
+`TV networks began the challenging assignment on Monday of covering former President Trump’s trial without the luxury of cameras inside the courtroom.`\
+https://nytimes.com/2024/04/22/business/media/trump-trial-news-coverage.html
+
 **Elon Musk Wouldn’t Be the First Car Company Founder to Flame Out**\
 `The world is not always kind to visionaries with self-control issues.`\
 https://nytimes.com/2024/04/22/opinion/elon-musk-william-durant.html
