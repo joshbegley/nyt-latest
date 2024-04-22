@@ -34,7 +34,7 @@ https://nytimes.com/2024/04/22/nyregion/trump-trial-tv-livestream.html
 `By Shawn Hubler`\
 https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/in-a-rare-alliance-california-democrats-side-with-conservatives-on-encampments
 
-**How one town’s fight over homelessness could shape a national crisis.**\
-`By Abbie VanSickle`\
-https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/homelessness-grants-pass-national-crisis
+**The case centers on an unusual use of the Eighth Amendment.**\
+`A group of homeless plaintiffs argue that local laws aimed at banning sleeping outside violated their constitutional rights. The city claims that’s not what the Eighth Amendment means.`\
+https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/the-case-centers-on-an-unusual-use-of-the-eighth-amendment
 
