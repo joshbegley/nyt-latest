@@ -1,3 +1,7 @@
+**Is homelessness an involuntary state of being?**\
+`A group of homeless plaintiffs is expected to rely on a Supreme Court case from 1962 to argue that the answer is yes.`\
+https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/is-homelessness-an-involuntary-state-of-being
+
 **Taylor Swift Has Given Fans a Lot. Is It Finally Too Much?**\
 `Swift has been inescapable over the last year. With the release of “The Tortured Poets Department,” her latest (very long) album, some seem to finally be feeling fatigued.`\
 https://nytimes.com/2024/04/22/arts/music/taylor-swift-fatigue.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/business/everton-sale-777-partners.html
 **Trump’s Manhattan Criminal Trial Will Not Be Televised**\
 `New York courts generally do not permit video to be broadcast from courtrooms, although a feed is being transmitted into an overflow room for the reporters covering the trial.`\
 https://nytimes.com/2024/04/22/nyregion/trump-trial-tv-livestream.html
-
-**In a rare alliance, California Democrats side with conservatives on encampments.**\
-`By Shawn Hubler`\
-https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/in-a-rare-alliance-california-democrats-side-with-conservatives-on-encampments
 
