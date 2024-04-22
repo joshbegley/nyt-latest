@@ -1,3 +1,7 @@
+**Some have labeled the protests antisemitic, but the term has been contested.**\
+`By Sharon Otterman`\
+https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/some-have-labeled-the-protests-antisemitic-but-the-term-has-been-contested
+
 **F.T.C. Sues to Block $8.5 Billion Fashion Merger**\
 `The deal between Coach’s owner, Tapestry, and the parent of Michael Kors, Capri Holdings, is intended to create a U.S. luxury group to compete with the European industry giants.`\
 https://nytimes.com/2024/04/22/business/ftc-sues-block-fashion-merger-capri-tapestry-michael-kors-coach.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-conspiracy-open
 **Generative A.I. Arrives in the Gene Editing World of CRISPR**\
 `Much as ChatGPT generates poetry, a new A.I. system devises blueprints for microscopic mechanisms that can edit your DNA.`\
 https://nytimes.com/2024/04/22/technology/generative-ai-gene-editing-crispr.html
-
-**Top Biden Official Calls for Inquiry Into Chinese Doping Case**\
-`The administration’s top drug official, Rahul Gupta, said he would bring up the handling of Chinese swimmers’ positive tests at a meeting of sports officials this week.`\
-https://nytimes.com/2024/04/22/world/asia/doping-china-swimmers-olympics.html
 
