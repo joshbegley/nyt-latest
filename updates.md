@@ -1,3 +1,7 @@
+**Here’s What Is Happening on Some Other Campuses Across the Country**\
+`Demonstrations appeared to be unfolding mainly at universities in the Northeast, although protests spread to some other campuses.`\
+https://nytimes.com/2024/04/22/us/colleges-protests-columbia.html
+
 **Jurors Begin to Understand the ‘Trump Tower Conspiracy’**\
 `The opening statements gave a preview of the strengths and weaknesses of each side’s arguments.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-conspiracy-opening

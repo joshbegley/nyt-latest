@@ -1,3 +1,7 @@
+**Here’s What Is Happening on Some Other Campuses Across the Country**\
+`Demonstrations appeared to be unfolding mainly at universities in the Northeast, although protests spread to some other campuses.`\
+https://nytimes.com/2024/04/22/us/colleges-protests-columbia.html
+
 **Jurors Begin to Understand the ‘Trump Tower Conspiracy’**\
 `The opening statements gave a preview of the strengths and weaknesses of each side’s arguments.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-conspiracy-opening
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/nyregion/college-campus-protests-photos-yale-colu
 **Opening Statements in Trump’s Criminal Trial: Five Takeaways**\
 `Prosecutors signaled a sweeping case and Donald J. Trump’s lawyers began their assault on witnesses’ credibility. The judge seems intent on expediting the first trial of an American president.`\
 https://nytimes.com/2024/04/22/nyregion/trump-trial-opening-statements-takeaways.html
-
-**Elon Musk Wouldn’t Be the First Car Company Founder to Flame Out**\
-`The world is not always kind to visionaries with self-control issues.`\
-https://nytimes.com/2024/04/22/opinion/elon-musk-william-durant.html
 
