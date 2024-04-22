@@ -1,3 +1,7 @@
+**Word of the Day: regale**\
+`This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/22/learning/word-of-the-day-regale.html
+
 **Quotation of the Day: Overflowing, Amsterdam Adopts a Ban of New Hotels**\
 `Quotation of the Day for Monday, April 22, 2024.`\
 https://nytimes.com/2024/04/22/pageoneplus/quotation-of-the-dayoverflowing-amsterdam-adopts-a-ban-of-new-hotels.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/opinion/trump-immunity-supreme-court.html
 **Lourdes Portillo, Oscar-Nominated Documentary Filmmaker, Dies at 80**\
 `Her films centered on Latin American experiences and received wide acclaim.`\
 https://nytimes.com/2024/04/21/arts/television/lourdes-portillo-dead.html
-
-**Progressive Allies Rally With Pittsburgh Congresswoman as Primary Looms**\
-`Summer Lee, the first Black woman to represent Pennsylvania in the House, got help from Alexandria Ocasio-Cortez and Justin Jones as she faced criticism over her stance on Gaza.`\
-https://nytimes.com/2024/04/21/us/politics/summer-lee-aoc-rally.html
 
