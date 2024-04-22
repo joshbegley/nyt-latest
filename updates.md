@@ -1,3 +1,7 @@
+**Ukraine’s Race to Hold the Line**\
+`The days of lightning battlefield breakthroughs may be over. With Russia preparing to make a big push, the Ukrainians can do little but dig in.`\
+https://nytimes.com/interactive/2024/04/22/world/europe/ukraine-war-defense.html
+
 **Haliva has said he bore ‘full responsibility’ for the intelligence failure.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/04/22/world/israel-gaza-war-hamas/haliva-has-said-he-bore-full-responsibility-for-the-intelligence-failure
