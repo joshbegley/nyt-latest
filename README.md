@@ -1,3 +1,11 @@
+**Here’s what to know about the campus protests.**\
+`By Alan Blinder`\
+https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/heres-what-to-know-about-the-campus-protests
+
+**If Trump testifies, he can be grilled about cases he lost and gag order violations.**\
+`By Jesse McKinley`\
+https://nytimes.com/2024/04/22/nyregion/trump-testimony-sandoval.html
+
 **Meet the team prosecuting Donald J. Trump.**\
 `By Kate Christobek`\
 https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/meet-the-team-prosecuting-donald-j-trump
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/22/us/yale-students-arrests-protests.html
 **Supreme Court to Hear Challenge to Biden’s Limits on ‘Ghost Guns’**\
 `The Supreme Court temporarily revived the regulations in August by a 5-to-4 vote after lower courts blocked them.`\
 https://nytimes.com/2024/04/22/us/supreme-court-ghost-guns.html
-
-**The outcome of the case could have reverberations not just in the West, but also across the country.**\
-`By Abbie VanSickle`\
-https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/the-outcome-of-the-case-could-have-reverberations-not-just-in-the-west-but-also-across-the-country
-
-**Trump will once again be in a courtroom while Biden campaigns.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/04/22/us/biden-trump-election/trump-will-once-again-be-in-a-courtroom-while-biden-campaigns
 
