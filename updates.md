@@ -1,3 +1,7 @@
+**The Stark Reality of Israel’s Campaign in Gaza**\
+`Israel has failed to achieve its two primary goals of the war, while the suffering of Palestinians erodes support even among its allies.`\
+https://nytimes.com/2024/04/22/us/politics/israel-gaza-hamas-war.html
+
 **What’s next: A decision will most likely land in late June.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/whats-next-a-decision-will-most-likely-land-in-late-june

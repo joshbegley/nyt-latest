@@ -1,3 +1,7 @@
+**The Stark Reality of Israel’s Campaign in Gaza**\
+`Israel has failed to achieve its two primary goals of the war, while the suffering of Palestinians erodes support even among its allies.`\
+https://nytimes.com/2024/04/22/us/politics/israel-gaza-hamas-war.html
+
 **Inside Trump’s Complicated Relationship With Law Enforcement**\
 `The former president has put forth a law-and-order candidacy while also criticizing the legal system when it comes to himself and making exceptions for his supporters.`\
 https://nytimes.com/2024/04/22/us/politics/trump-police-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/us/politics/ukraine-global-military-spending.html
 **TikTok Faces E.U. Inquiry Over ‘Addictive’ Features**\
 `European officials threatened to fine TikTok and force it to remove some features, the latest regulatory challenge for the Chinese-owned social media app.`\
 https://nytimes.com/2024/04/22/technology/tiktok-eu-inquriy-addictive-features.html
-
-**How Tabloids Used ‘Catch-and-Kill’ to Trade on Secrets of Celebrities**\
-`The term was coined by tabloid editors for buying the rights to stories for the purpose of ensuring the information never becomes public. Donald J. Trump was a beneficiary.`\
-https://nytimes.com/2024/04/22/nyregion/trump-catch-and-kill.html
 
