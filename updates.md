@@ -1,3 +1,7 @@
+**Progressive Allies Rally With Pittsburgh Congresswoman as Primary Looms**\
+`Summer Lee, the first Black woman to represent Pennsylvania in the House, got help from Alexandria Ocasio-Cortez and Justin Jones as she faced criticism over her stance on Gaza.`\
+https://nytimes.com/2024/04/21/us/politics/summer-lee-aoc-rally.html
+
 **What to Watch as Donald Trump’s Hush-Money Trial Begins**\
 `A jury has been selected and opening arguments are set to begin in Donald Trump’s hush-money trial in Manhattan. Kate Christobek, a court reporter for The New York Times, breaks down what to watch.`\
 https://nytimes.com/video/nyregion/100000009423971/trump-hush-money-what-to-watch.html
