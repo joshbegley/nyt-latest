@@ -1,3 +1,7 @@
+**The N.I.H.’s Words Matter, Especially to Long Covid Patients**\
+`A recent statement rattled researchers and shocked communities of long Covid patients.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/long-covid-nih-research
+
 **Is homelessness an involuntary state of being?**\
 `A group of homeless plaintiffs is expected to rely on a Supreme Court case from 1962 to argue that the answer is yes.`\
 https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/is-homelessness-an-involuntary-state-of-being
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/22/us/biden-trump-election/trump-will-once-agai
 **Everton Is Back on Market as Deal With 777 Partners Falters**\
 `With a proposed sale stalled seven months after it was announced, a financially strapped Premier League team is seeking a backup plan.`\
 https://nytimes.com/2024/04/22/business/everton-sale-777-partners.html
-
-**Trump’s Manhattan Criminal Trial Will Not Be Televised**\
-`New York courts generally do not permit video to be broadcast from courtrooms, although a feed is being transmitted into an overflow room for the reporters covering the trial.`\
-https://nytimes.com/2024/04/22/nyregion/trump-trial-tv-livestream.html
 

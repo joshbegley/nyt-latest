@@ -1,3 +1,7 @@
+**The N.I.H.’s Words Matter, Especially to Long Covid Patients**\
+`A recent statement rattled researchers and shocked communities of long Covid patients.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/long-covid-nih-research
+
 **Is homelessness an involuntary state of being?**\
 `A group of homeless plaintiffs is expected to rely on a Supreme Court case from 1962 to argue that the answer is yes.`\
 https://nytimes.com/live/2024/04/22/us/supreme-court-homelessness/is-homelessness-an-involuntary-state-of-being
