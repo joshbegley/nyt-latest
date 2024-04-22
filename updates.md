@@ -1,3 +1,7 @@
+**Israelis Prepare to Mark Passover, a Festival of Freedom, With Hostages Still in Gaza**\
+`Many Jews say they will adapt their Passover rituals around the Seder table this year to fit the somber mood of a country at war.`\
+https://nytimes.com/2024/04/22/world/middleeast/israel-passover-hostages-gaza.html
+
 **Ukraine’s Race to Hold the Line**\
 `The days of lightning battlefield breakthroughs may be over. With Russia preparing to make a big push, the Ukrainians can do little but dig in.`\
 https://nytimes.com/interactive/2024/04/22/world/europe/ukraine-war-defense.html
