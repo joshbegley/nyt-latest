@@ -1,3 +1,7 @@
+**Trump Was Warned to Return Records to Archives, Unsealed Documents Say**\
+`Filings made public in the case charging the former president with illegally retaining classified material after leaving office show an associate told him that he could face indictment if he failed to give them back.`\
+https://nytimes.com/2024/04/22/us/politics/trump-warning-classified-documents-case.html
+
 **Protests continue at Yale after dozens of students were arrested.**\
 `By Eliza Fawcett and Andy Newman`\
 https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/yale-protests-arrests
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/arts/blair-witch-project-actors-royalties.html
 **Some have labeled the protests antisemitic, but the term has been contested.**\
 `By Sharon Otterman`\
 https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/some-have-labeled-the-protests-antisemitic-but-the-term-has-been-contested
-
-**F.T.C. Sues to Block $8.5 Billion Fashion Merger**\
-`The deal between Coach’s owner, Tapestry, and the parent of Michael Kors, Capri Holdings, is intended to create a U.S. luxury group to compete with the European industry giants.`\
-https://nytimes.com/2024/04/22/business/ftc-tapestry-capri-coach-michael-kors.html
 

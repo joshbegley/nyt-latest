@@ -1,3 +1,7 @@
+**Trump Was Warned to Return Records to Archives, Unsealed Documents Say**\
+`Filings made public in the case charging the former president with illegally retaining classified material after leaving office show an associate told him that he could face indictment if he failed to give them back.`\
+https://nytimes.com/2024/04/22/us/politics/trump-warning-classified-documents-case.html
+
 **Protests continue at Yale after dozens of students were arrested.**\
 `By Eliza Fawcett and Andy Newman`\
 https://nytimes.com/live/2024/04/22/us/campus-protests-columbia-yale/yale-protests-arrests
