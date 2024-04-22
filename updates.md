@@ -1,3 +1,7 @@
+**A courthouse park becomes a stage, and a sideshow, outside Trump’s trial.**\
+`At Collect Pond Park, New Yorkers engaged in well worn updates.`\
+https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/a-courthouse-park-becomes-a-stage-and-a-sideshow-outside-trumps-trial
+
 **Lori and George Schappell, Long-Surviving Conjoined Twins, Die at 62**\
 `They were distinct people who pursued different lives. “Get past this already, everybody,” Lori said, “get past it and learn to know the individual person.”`\
 https://nytimes.com/2024/04/22/health/lori-george-schappell-dead.html
