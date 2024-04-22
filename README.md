@@ -1,3 +1,11 @@
+**Britain Memorializes a Queen, With Smiles and Bronze Corgis**\
+`Sculptors have immortalized past British monarchs with imposing, stern-faced statues. For Queen Elizabeth II, they’re taking a different approach.`\
+https://nytimes.com/2024/04/22/arts/design/queen-elizabeth-statues.html
+
+**David Pecker Is the First Witness of Trump’s Criminal Trial**\
+`Mr. Pecker, the longtime publisher of The National Enquirer, is first on the stand at the former president’s trial.`\
+https://nytimes.com/2024/04/22/nyregion/david-pecker-trump-trial.html
+
 **Palestinian Baby Delivered After Mother Killed in Israeli Strike**\
 `The baby was born 10 weeks premature and weighed three pounds, a doctor said. Her father and sister also died.`\
 https://nytimes.com/2024/04/22/world/middleeast/palestinian-baby-delivered-mother-killed.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/22/nyregion/trump-blanche-defense-hush-money-trial.h
 **Review: ‘Grenfell’ Listens to the Survivors of a Towering Inferno**\
 `At St. Ann’s Warehouse, this documentary play about a London fire is blood-boiling and aggrieved.`\
 https://nytimes.com/2024/04/22/theater/grenfell-review.html
-
-**Future and Metro Boomin’s Second Joint LP Opens at No. 1**\
-`The Atlanta rapper and producer’s “We Still Don’t Trust You” reached the top of the Billboard 200 before the expected arrival of monster numbers from Taylor Swift next week.`\
-https://nytimes.com/2024/04/22/arts/music/future-metro-boomin-billboard-chart.html
-
-**How an Ex-N.B.A. Player Is Diversifying Wine One Sip at a Time**\
-`As corporate diversity efforts fade out, Channing Frye and his Chosen Family Wines have taken an unpretentious grass roots approach, bringing wine to communities of color.`\
-https://nytimes.com/2024/04/22/dining/drinks/channing-frye-wine.html
 
