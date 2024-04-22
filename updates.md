@@ -1,3 +1,7 @@
+**What to Watch as Donald Trump’s Hush-Money Trial Begins**\
+`A jury has been selected and opening arguments are set to begin in Donald Trump’s hush-money trial in Manhattan. Kate Christobek, a court reporter for The New York Times, breaks down what to watch.`\
+https://nytimes.com/video/nyregion/100000009423971/trump-hush-money-what-to-watch.html
+
 **‘Cabaret’ Review: What Good Is Screaming Alone in Your Room?**\
 `Eddie Redmayne and Gayle Rankin star in a buzzy Broadway revival that rips the skin off the 1966 musical.`\
 https://nytimes.com/2024/04/21/theater/cabaret-review-eddie-redmayne.html
