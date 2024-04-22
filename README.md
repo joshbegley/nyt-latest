@@ -1,3 +1,7 @@
+**F.T.C. Sues to Block $8.5 Billion Fashion Merger**\
+`The deal between Coach’s owner, Tapestry, and the parent of Michael Kors, Capri Holdings, is intended to create a U.S. luxury group to compete with the European industry giants.`\
+https://nytimes.com/2024/04/22/business/ftc-sues-block-fashion-merger-capri-tapestry-michael-kors-coach.html
+
 **Tuesday Briefing: The Trump Trial Opens**\
 `Also, a top Israeli general resigned.`\
 https://nytimes.com/2024/04/22/world/asia/trump-trial-israel-campus-modi-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/technology/generative-ai-gene-editing-crispr.html
 **Top Biden Official Calls for Inquiry Into Chinese Doping Case**\
 `The administration’s top drug official, Rahul Gupta, said he would bring up the handling of Chinese swimmers’ positive tests at a meeting of sports officials this week.`\
 https://nytimes.com/2024/04/22/world/asia/doping-china-swimmers-olympics.html
-
-**As Floods Beckoned, Many of New York’s Catch-Basin Trucks Were Offline**\
-`A report by the New York City comptroller’s office found “big gaps” in how the administration of Mayor Eric Adams handles emergency preparations.`\
-https://nytimes.com/2024/04/22/nyregion/storm-response-nyc-adams.html
 
