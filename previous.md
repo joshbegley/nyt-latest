@@ -2,7 +2,7 @@
 `Tamia Chappman, 13, died in 2019 when she was struck by a stolen car driven by a youth who was trying to evade officers.`\
 https://nytimes.com/2024/04/22/us/tamia-chappman-cleveland-settlement.html
 
-**Overriding Lords and Judges, U.K. Pushes Through Rwanda Migrant Law**\
+**U.K. Approves Bill That Would Send Asylum Seekers to Rwanda**\
 `Britain’s Parliament passed contentious legislation to allow the deportation of asylum seekers to the African country, a political victory for Prime Minister Rishi Sunak.`\
 https://nytimes.com/2024/04/22/world/europe/uk-rwanda-deportation-bill-migrants.html
 
