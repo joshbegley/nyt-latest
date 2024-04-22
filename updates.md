@@ -1,3 +1,19 @@
+**Clashing Visions of Trump**\
+`The prosecution and the defense presented their opening statements.`\
+https://nytimes.com/2024/04/22/us/politics/trump-trial-newyork-hushmoney-opening-statements.html
+
+**The Circus Trump Wanted Outside His Trial Hasn’t Arrived**\
+`With support from demonstrators in Lower Manhattan spotty so far, Donald Trump issued a call to “rally behind MAGA,” and suggested the poor turnout was a result of a plot against his supporters.`\
+https://nytimes.com/2024/04/22/us/politics/trump-trial-protests.html
+
+**PEN America Cancels Literary Awards Ceremony Amid Gaza War Fallout**\
+`The event had been set for April 29, but weeks of escalating criticism of the organization’s response to the war had led nearly half of the prize nominees to withdraw.`\
+https://nytimes.com/2024/04/22/arts/pen-america-literary-awards.html
+
+**Joel Breman, Who Helped Stop an Ebola Outbreak in Africa, Dies at 87**\
+`Part of a team flown in to fight the deadly virus in 1976, Dr. Breman also worked to stamp out tropical diseases like smallpox, malaria and Guinea worm.`\
+https://nytimes.com/2024/04/22/health/joel-breman-dead.html
+
 **Here’s What Is Happening on Some Other Campuses Across the Country**\
 `Demonstrations appeared to be unfolding mainly at universities in the Northeast, although protests spread to some other campuses.`\
 https://nytimes.com/2024/04/22/us/colleges-protests-columbia.html
