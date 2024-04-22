@@ -1,3 +1,11 @@
+**Britain Memorializes a Queen, With Smiles and Bronze Corgis**\
+`Sculptors have immortalized past British monarchs with imposing, stern-faced statues. For Queen Elizabeth II, they’re taking a different approach.`\
+https://nytimes.com/2024/04/22/arts/design/queen-elizabeth-statues.html
+
+**David Pecker Is the First Witness of Trump’s Criminal Trial**\
+`Mr. Pecker, the longtime publisher of The National Enquirer, is first on the stand at the former president’s trial.`\
+https://nytimes.com/2024/04/22/nyregion/david-pecker-trump-trial.html
+
 **Palestinian Baby Delivered After Mother Killed in Israeli Strike**\
 `The baby was born 10 weeks premature and weighed three pounds, a doctor said. Her father and sister also died.`\
 https://nytimes.com/2024/04/22/world/middleeast/palestinian-baby-delivered-mother-killed.html
