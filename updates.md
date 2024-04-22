@@ -1,3 +1,7 @@
+**F.T.C. Sues to Block $8.5 Billion Fashion Merger**\
+`The deal between Coach’s owner, Tapestry, and the parent of Michael Kors, Capri Holdings, is intended to create a U.S. luxury group to compete with the European industry giants.`\
+https://nytimes.com/2024/04/22/business/ftc-sues-block-fashion-merger-capri-tapestry-michael-kors-coach.html
+
 **Tuesday Briefing: The Trump Trial Opens**\
 `Also, a top Israeli general resigned.`\
 https://nytimes.com/2024/04/22/world/asia/trump-trial-israel-campus-modi-asia.html
