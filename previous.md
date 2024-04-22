@@ -1,3 +1,11 @@
+**How to Age Fingernails, and Other Tips From a Movie Makeup Book**\
+`Emily Schubert has done makeup and prosthetics on movies like “Uncut Gems” and “Good Time.” She shares her tricks in a new book with A24.`\
+https://nytimes.com/2024/04/22/style/a24-book-emily-schubert.html
+
+**Scenes of Protests at Columbia, Yale, M.I.T. and N.Y.U.**\
+`After the arrests of more than 100 protesters at Columbia last week, demonstrations spread across other elite campuses.`\
+https://nytimes.com/2024/04/22/nyregion/college-campus-protests-photos-yale-columbia.html
+
 **Opening Statements in Trump’s Criminal Trial: Five Takeaways**\
 `Prosecutors signaled a sweeping case and Donald J. Trump’s lawyers began their assault on witnesses’ credibility. The judge seems intent on expediting the first trial of an American president.`\
 https://nytimes.com/2024/04/22/nyregion/trump-trial-opening-statements-takeaways.html
@@ -28,13 +36,5 @@ https://nytimes.com/live/2024/04/22/nyregion/trump-hush-money-trial/the-opening-
 
 **Three Places Changing Quickly to Fight Climate Change**\
 `Paris is becoming a city of bikes. Across China, people are snapping up $5,000 electric cars. On Earth Day, a look at a few bright spots for emission reductions.`\
-https://nytimes.com/2024/04/22/climate/climate-change-earth-day.html
-
-**Trump and Attorney General Agree on Minor Changes to $175 Million Bond**\
-`Letitia James had asked a court to reject the bond that Donald J. Trump posted in his civil fraud case. A deal on Monday will keep the terms of the bond largely unchanged.`\
-https://nytimes.com/2024/04/22/nyregion/attorney-general-trump-175-million-bond.html
-
-**Summer Lee Has Been a Vocal Israel Critic. Will It Matter in Her Primary?**\
-`The race in Pennsylvania once seemed primed to become a major test of Democratic attitudes about the Middle East. But in much of the district, an expected ideological battle has not arrived.`\
-https://nytimes.com/2024/04/22/us/politics/summer-lee-pennsylvania-gaza.html
+https://nytimes.com/2024/04/22/climate/earth-day-climate-change.html
 

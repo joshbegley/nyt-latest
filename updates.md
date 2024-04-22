@@ -1,3 +1,15 @@
+**How to Age Fingernails, and Other Tips From a Movie Makeup Book**\
+`Emily Schubert has done makeup and prosthetics on movies like “Uncut Gems” and “Good Time.” She shares her tricks in a new book with A24.`\
+https://nytimes.com/2024/04/22/style/a24-book-emily-schubert.html
+
+**Scenes of Protests at Columbia, Yale, M.I.T. and N.Y.U.**\
+`After the arrests of more than 100 protesters at Columbia last week, demonstrations spread across other elite campuses.`\
+https://nytimes.com/2024/04/22/nyregion/college-campus-protests-photos-yale-columbia.html
+
+**Three Places Changing Quickly to Fight Climate Change**\
+`Paris is becoming a city of bikes. Across China, people are snapping up $5,000 electric cars. On Earth Day, a look at a few bright spots for emission reductions.`\
+https://nytimes.com/2024/04/22/climate/earth-day-climate-change.html
+
 **Opening Statements in Trump’s Criminal Trial: Five Takeaways**\
 `Prosecutors signaled a sweeping case and Donald J. Trump’s lawyers began their assault on witnesses’ credibility. The judge seems intent on expediting the first trial of an American president.`\
 https://nytimes.com/2024/04/22/nyregion/trump-trial-opening-statements-takeaways.html
