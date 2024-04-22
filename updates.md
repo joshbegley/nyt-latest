@@ -1,3 +1,7 @@
+**Phyllis Pressman, Luxury Superstore Matriarch, Is Dead at 95**\
+`She started working at Barneys to be closer to her husband. Then, she became the architect of the Chelsea Passage, the home goods bazaar that helped make it an enticing destination.`\
+https://nytimes.com/2024/04/22/business/phyllis-pressman-dead.html
+
 **Trying to Stop Violence, One Conversation at a Time**\
 `In Baton Rouge, a public safety experiment could help to answer a critical question: Do community efforts to reduce street violence work?`\
 https://nytimes.com/interactive/2024/04/22/headway/gun-violence-intervention-baton-rouge.html
