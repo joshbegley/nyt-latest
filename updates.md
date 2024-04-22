@@ -1,3 +1,7 @@
+**Opening Statements in Trump’s Criminal Trial: Five Takeaways**\
+`Prosecutors signaled a sweeping case and Donald J. Trump’s lawyers began their assault on witnesses’ credibility. The judge seems intent on expediting the first trial of an American president.`\
+https://nytimes.com/2024/04/22/nyregion/trump-trial-opening-statements-takeaways.html
+
 **Networks Covering Trump’s Trial Are Forced to Get Creative**\
 `TV networks began the challenging assignment on Monday of covering former President Trump’s trial without the luxury of cameras inside the courtroom.`\
 https://nytimes.com/2024/04/22/business/media/trump-trial-news-coverage.html

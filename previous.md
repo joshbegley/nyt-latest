@@ -1,3 +1,7 @@
+**Opening Statements in Trump’s Criminal Trial: Five Takeaways**\
+`Prosecutors signaled a sweeping case and Donald J. Trump’s lawyers began their assault on witnesses’ credibility. The judge seems intent on expediting the first trial of an American president.`\
+https://nytimes.com/2024/04/22/nyregion/trump-trial-opening-statements-takeaways.html
+
 **Elon Musk Wouldn’t Be the First Car Company Founder to Flame Out**\
 `The world is not always kind to visionaries with self-control issues.`\
 https://nytimes.com/2024/04/22/opinion/elon-musk-william-durant.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/nyregion/attorney-general-trump-175-million-bond.
 **Summer Lee Has Been a Vocal Israel Critic. Will It Matter in Her Primary?**\
 `The race in Pennsylvania once seemed primed to become a major test of Democratic attitudes about the Middle East. But in much of the district, an expected ideological battle has not arrived.`\
 https://nytimes.com/2024/04/22/us/politics/summer-lee-pennsylvania-gaza.html
-
-**The Stark Reality of Israel’s Fight in Gaza**\
-`Israel has failed to achieve its two primary goals of the war, while the suffering of Palestinians erodes support even among its allies.`\
-https://nytimes.com/2024/04/22/us/politics/israel-gaza-hamas-war.html
 
