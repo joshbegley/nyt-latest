@@ -1,3 +1,7 @@
+**‘Mike Johnson Did the Right Thing’ on Ukraine Aid**\
+`Readers praise the House speaker over the passage of the aid bill. Also: A juror’s duty; banning guns; poverty and health; anxious parents and kids.`\
+https://nytimes.com/2024/04/22/opinion/mike-johnson-ukraine-aid.html
+
 **Papua New Guinea Leader Criticizes Biden’s ‘Cannibals’ Comment**\
 `Twice last week, President Biden suggested without evidence that his uncle had been eaten by cannibals there after his plane went down off the New Guinea coast during World War II.`\
 https://nytimes.com/2024/04/22/us/politics/biden-cannibals-papua-new-guinea.html
