@@ -1,3 +1,15 @@
+**Israel Planned Bigger Attack on Iran, but Scaled It Back to Avoid War**\
+`The strike on Iran on Friday was originally intended to be much broader in scope, but after intense pressure from allies, Israeli leaders agreed to ratchet it down.`\
+https://nytimes.com/2024/04/22/world/middleeast/israel-iran-war-strike.html
+
+**The Chinese Site That Rewired Online Shopping**\
+`Pinduoduo appeals to people seeking deals and “downgraded spending,” as consumer purchasing in China has slowed recently amid economic rockiness.`\
+https://nytimes.com/2024/04/22/business/china-pinduoduo-temu.html
+
+**Liz Cheney: The Supreme Court Should Rule Swiftly on Trump’s Immunity Claim**\
+`If delay prevents this Trump case from being tried this year, our system may never hold the man most responsible for Jan. 6 to account.`\
+https://nytimes.com/2024/04/22/opinion/trump-immunity-supreme-court.html
+
 **Lourdes Portillo, Oscar-Nominated Documentary Filmmaker, Dies at 80**\
 `Her films centered on Latin American experiences and received wide acclaim.`\
 https://nytimes.com/2024/04/21/arts/television/lourdes-portillo-dead.html
