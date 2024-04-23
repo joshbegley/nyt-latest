@@ -1,3 +1,7 @@
+**Microsoft Makes a New Push Into Smaller A.I. Systems**\
+`The company that has invested billions in generative A.I. pioneers like OpenAI says giant systems aren’t necessarily what everyone needs.`\
+https://nytimes.com/2024/04/23/technology/microsoft-ai.html
+
 **My Country Knows What Happens When You Do a Deal With Russia**\
 `Moldova is a cautionary tale for Ukraine.`\
 https://nytimes.com/2024/04/23/opinion/moldova-russia-ukraine-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/pageoneplus/corrections-april-23-2024.html
 **Universities Struggle as Pro-Palestinian Demonstrations Grow**\
 `Dozens were arrested Monday at N.Y.U. and Yale, but officials there and at campuses across the country are running out of options to corral protests that are expected to last the rest of the school year.`\
 https://nytimes.com/2024/04/22/us/campus-protests-arrests.html
-
-**Voices Below Sopranos**\
-`Judy Bowers makes her New York Times debut.`\
-https://nytimes.com/2024/04/22/crosswords/daily-puzzle-2024-04-23.html
 

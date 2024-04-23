@@ -1,3 +1,7 @@
+**Microsoft Makes a New Push Into Smaller A.I. Systems**\
+`The company that has invested billions in generative A.I. pioneers like OpenAI says giant systems aren’t necessarily what everyone needs.`\
+https://nytimes.com/2024/04/23/technology/microsoft-ai.html
+
 **My Country Knows What Happens When You Do a Deal With Russia**\
 `Moldova is a cautionary tale for Ukraine.`\
 https://nytimes.com/2024/04/23/opinion/moldova-russia-ukraine-war.html
