@@ -1,3 +1,7 @@
+**Russian Deputy Defense Minister Is Detained on Bribery Charges**\
+`Timur Ivanov, who has long been in charge of major military construction projects and known for leading a lavish lifestyle, was held Tuesday on charges of “large scale” corruption.`\
+https://nytimes.com/2024/04/23/world/europe/russia-deputy-defense-minister-bribery.html
+
 **In Coral Fossils, Searching for the First Glow of Bioluminescence**\
 `A new study resets the timing for the emergence of bioluminescence back to millions of years earlier than previously thought.`\
 https://nytimes.com/2024/04/23/science/bioluminescence-evolution-sea-creatures.html
