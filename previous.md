@@ -1,3 +1,11 @@
+**Quotation of the Day: Asia Heat Wave Bakes Millions, Disrupting Work and Agriculture**\
+`Quotation of the Day for Tuesday, April 23, 2024.`\
+https://nytimes.com/2024/04/22/pageoneplus/quotation-of-the-day-asia-heat-wave-bakes-millions-disrupting-work-and-agriculture.html
+
+**Corrections: April, 23, 2024**\
+`Corrections that appeared in print on Tuesday, April 23, 2024.`\
+https://nytimes.com/2024/04/22/pageoneplus/corrections-april-23-2024.html
+
 **Using Police to Clear Protesters, Universities Struggle to Calm Campuses**\
 `Students were arrested at N.Y.U. and Yale on Monday. But at Columbia, that approach led to a new encampment and demonstrations outside its gates.`\
 https://nytimes.com/2024/04/22/us/campus-protests-arrests.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/22/us/arizona-rancher-migrant-death-verdict.html
 **Review: It’s All Right to Groove to Huey in ‘The Heart of Rock and Roll’**\
 `The new musical doesn’t take itself too seriously and has many winning moments — almost enough to eclipse the weaknesses of its story.`\
 https://nytimes.com/2024/04/22/theater/heart-of-rock-and-roll-review.html
-
-**On Columbia’s Campus, a Protest Encampment Grows and Tensions Flare**\
-`On a day the university president asked students to stay home, a tent city on a campus lawn kept growing, protesters met in tense confrontations and police and politicians converged to weigh in.`\
-https://nytimes.com/2024/04/22/us/columbia-protests-encampment.html
-
-**For Biden, Aid Package Provides a Welcome Boost on the World Stage**\
-`The congressional breakthrough on security assistance to Ukraine and Israel will let the president finally deliver arms to match his words. But it could be only a temporary respite.`\
-https://nytimes.com/2024/04/22/us/politics/biden-ukraine-aid.html
 

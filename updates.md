@@ -1,3 +1,11 @@
+**Quotation of the Day: Asia Heat Wave Bakes Millions, Disrupting Work and Agriculture**\
+`Quotation of the Day for Tuesday, April 23, 2024.`\
+https://nytimes.com/2024/04/22/pageoneplus/quotation-of-the-day-asia-heat-wave-bakes-millions-disrupting-work-and-agriculture.html
+
+**Corrections: April, 23, 2024**\
+`Corrections that appeared in print on Tuesday, April 23, 2024.`\
+https://nytimes.com/2024/04/22/pageoneplus/corrections-april-23-2024.html
+
 **Using Police to Clear Protesters, Universities Struggle to Calm Campuses**\
 `Students were arrested at N.Y.U. and Yale on Monday. But at Columbia, that approach led to a new encampment and demonstrations outside its gates.`\
 https://nytimes.com/2024/04/22/us/campus-protests-arrests.html
