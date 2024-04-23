@@ -1,3 +1,11 @@
+**Will Justice Merchan Find Trump in Contempt of Court?**\
+`Chances are high.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-contempt-ruling
+
+**How G.M. Tricked Millions of Drivers Into Being Spied On (Including Me)**\
+`This privacy reporter and her husband bought a Chevrolet Bolt in December. Two risk-profiling companies had been getting detailed data about their driving ever since.`\
+https://nytimes.com/2024/04/23/technology/general-motors-spying-driver-data-consent.html
+
 **Why Are Younger Adults Developing This Common Heart Condition?**\
 `New research suggests that A-fib may be more prevalent, and more dangerous, in people under 65 than previously thought.`\
 https://nytimes.com/2024/04/23/well/live/afib-atrial-fibrillation.html
