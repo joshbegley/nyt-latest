@@ -1,3 +1,15 @@
+**A Gen Z Resistance, Cut Off From Data Plans**\
+`Even through the Myanmar army’s communications blackout, residents of a conflict zone find moments of grace, and occasional connectivity, away from the battlefield.`\
+https://nytimes.com/2024/04/23/world/asia/myanmar-rebels-internet.html
+
+**Slide Over, Auntie: Young Chinese Find Tasty Meals in Senior Canteens**\
+`The community canteens, offering huge plates for a dollar or two, have become popular among penny-pinching young professionals.`\
+https://nytimes.com/2024/04/23/business/shanghai-tongxinhui-community-canteen.html
+
+**Trapped and Starving, 2 Families in Gaza Try to Keep Their Children Alive**\
+`The United Nations says famine is likely to set in by May. For those living under Israel’s attacks and a crippling blockade, every day is a race against time.`\
+https://nytimes.com/2024/04/23/world/middleeast/gaza-famine-starvation-children.html
+
 **Earthquakes in Taiwan Damage Buildings**\
 `A series of earthquakes in the city of Hualien on Monday were aftershocks from a deadly quake in early April, the authorities said.`\
 https://nytimes.com/video/world/asia/100000009428187/taiwan-earthquake-hualien.html
