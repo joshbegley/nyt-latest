@@ -1,3 +1,11 @@
+**In Coral Fossils, Searching for the First Glow of Bioluminescence**\
+`A new study resets the timing for the emergence of bioluminescence back to millions of years earlier than previously thought.`\
+https://nytimes.com/2024/04/23/science/bioluminescence-evolution-sea-creatures.html
+
+**Israel Plans to Expand ‘Humanitarian Zone’ if It Invades Rafah**\
+`An oceanside area currently crowded with displaced Gazans is among the sites being eyed for a larger safe zone for evacuees, a military official said.`\
+https://nytimes.com/2024/04/23/world/middleeast/israel-gaza-rafah-evacuation-plans.html
+
 **Israel carries out airstrikes and orders new evacuations in parts of Beit Lahia, in northern Gaza.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/04/23/world/israel-hamas-war-gaza/israel-carries-out-airstrikes-and-orders-new-evacuations-in-parts-of-beit-lahia-in-northern-gaza

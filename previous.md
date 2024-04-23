@@ -1,3 +1,11 @@
+**In Coral Fossils, Searching for the First Glow of Bioluminescence**\
+`A new study resets the timing for the emergence of bioluminescence back to millions of years earlier than previously thought.`\
+https://nytimes.com/2024/04/23/science/bioluminescence-evolution-sea-creatures.html
+
+**Israel Plans to Expand ‘Humanitarian Zone’ if It Invades Rafah**\
+`An oceanside area currently crowded with displaced Gazans is among the sites being eyed for a larger safe zone for evacuees, a military official said.`\
+https://nytimes.com/2024/04/23/world/middleeast/israel-gaza-rafah-evacuation-plans.html
+
 **Israel carries out airstrikes and orders new evacuations in parts of Beit Lahia, in northern Gaza.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/04/23/world/israel-hamas-war-gaza/israel-carries-out-airstrikes-and-orders-new-evacuations-in-parts-of-beit-lahia-in-northern-gaza
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/16/opinion/thepoint/biden-abortion-speech
 **Howie Schwab, ESPN Researcher and Trivia Star, Dies at 63**\
 `He stepped out of his behind-the-scenes role in 2004 when he was cast as the ultimate sports know-it-all on the game show “Stump the Schwab.”`\
 https://nytimes.com/2024/04/23/sports/howie-schwab-dead.html
-
-**‘It Is Desolate’: China’s Glut of Unused Car Factories**\
-`Manufacturers like BYD, Tesla and Li Auto are cutting prices to move their electric cars. For gasoline-powered vehicles, the surplus of factories is even worse.`\
-https://nytimes.com/2024/04/23/business/china-auto-factories-price-cuts.html
-
-**Beyoncé Showed Her Hair Being Washed. Here’s Why It Matters.**\
-`In a video on Instagram, the singer provided fans a rare glimpse of her routine.`\
-https://nytimes.com/2024/04/23/style/beyonce-real-hair-cecred-products.html
 

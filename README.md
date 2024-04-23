@@ -1,3 +1,7 @@
+**Russian Deputy Defense Minister Is Detained on Bribery Charges**\
+`Timur Ivanov, who has long been in charge of major military construction projects and known for leading a lavish lifestyle, was held Tuesday on charges of “large scale” corruption.`\
+https://nytimes.com/2024/04/23/world/europe/russia-deputy-defense-minister-bribery.html
+
 **In Coral Fossils, Searching for the First Glow of Bioluminescence**\
 `A new study resets the timing for the emergence of bioluminescence back to millions of years earlier than previously thought.`\
 https://nytimes.com/2024/04/23/science/bioluminescence-evolution-sea-creatures.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/us/politics/trump-trial-new-york-tabloid-witness.
 **Joe Biden, Abortion Warrior?**\
 `Tuesday’s speech was an impressive call to arms.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/biden-abortion-speech
-
-**Howie Schwab, ESPN Researcher and Trivia Star, Dies at 63**\
-`He stepped out of his behind-the-scenes role in 2004 when he was cast as the ultimate sports know-it-all on the game show “Stump the Schwab.”`\
-https://nytimes.com/2024/04/23/sports/howie-schwab-dead.html
 
