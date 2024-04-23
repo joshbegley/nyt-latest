@@ -1,3 +1,11 @@
+**Columbia Offers Remote Classes for the Last Days of the Semester**\
+`Tensions have rippled out to other schools. Protesters were arrested at Yale and New York University. And new protest encampments popped up on several campuses.`\
+https://nytimes.com/2024/04/23/us/columbia-university-remote-classes-protests.html
+
+**G.M. Reports Big Jump in Profit on Gasoline Car Sales**\
+`General Motors has struggled with electric vehicles and in foreign markets but it is selling lots of combustion engine cars and trucks in North America.`\
+https://nytimes.com/2024/04/23/business/general-motors-earnings.html
+
 **23trump-trial**\
 `Live Updates: Judge Considers Holding Trump in Contempt for Verbal Attacks`\
 https://nytimes.com/live/2024/04/23/nyregion/trump-hush-money-trial-news
