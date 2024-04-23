@@ -1,4 +1,8 @@
 **Universities Struggle as Pro-Palestinian Demonstrations Grow**\
+`Dozens were arrested Monday at N.Y.U. and Yale, but officials there and at campuses across the country are running out of options to corral protests that are expected to last the rest of the school year.`\
+https://nytimes.com/2024/04/22/us/campus-protests-arrests.html
+
+**Universities Struggle as Pro-Palestinian Demonstrations Grow**\
 `Dozens were arrested at N.Y.U. and Yale, but officials there and at campuses across the countryare running out of`\
 https://nytimes.com/2024/04/22/us/campus-protests-arrests.html
 
