@@ -1,3 +1,7 @@
+**Judge Approves $418 Million Settlement That Will Change Real Estate Commissions**\
+`Home sellers will no longer be required to offer commission to a buyer’s agent when they sell their property, under an agreement with the National Association of Realtors`\
+https://nytimes.com/2024/04/23/realestate/nar-settlement-realtors-commission.html
+
 **Planned Parenthood Plans $10 Million Boost for Democrats in North Carolina**\
 `The party is banking on abortion access as an issue to animate the state’s competitive race for governor and, they hope, galvanize voters for President Biden.`\
 https://nytimes.com/2024/04/23/us/politics/planned-parenthood-north-carolina.html
@@ -33,8 +37,4 @@ https://nytimes.com/series/opdocs-encore
 **What is the Rwanda Policy? U.K.’s Plan for Asylum Seekers Explained**\
 `The plan has been in the works for years, but the passage of a contentious bill by Britain’s Parliament puts the country closer to sending asylum seekers to the African nation.`\
 https://nytimes.com/2024/04/23/world/europe/uk-rwanda-policy-explained.html
-
-**23trump-trial**\
-`Live Updates: Prosecutors Say Trump’s Attacks Are Threat to Trial`\
-https://nytimes.com/live/2024/04/23/nyregion/trump-hush-money-trial-news
 
