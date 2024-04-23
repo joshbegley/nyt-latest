@@ -1,3 +1,7 @@
+**23trump-trial**\
+`Live Updates: Judge Considers Holding Trump in Contempt for Verbal Attacks`\
+https://nytimes.com/live/2024/04/23/nyregion/trump-hush-money-trial-news
+
 **New York Court System to Publish Daily Transcripts of Trump’s Trial**\
 `A government website will also contain relevant documents for the landmark trial, which is not televised.`\
 https://nytimes.com/2024/04/23/nyregion/trump-transcripts-hush-money-trial-court.html
