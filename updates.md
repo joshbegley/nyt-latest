@@ -1,3 +1,7 @@
+**An official offers a hint of Israel’s plans for civilians if it invades Rafah.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/04/23/world/israel-gaza-war-hamas/an-official-offers-a-hint-of-israels-plans-for-civilians-if-it-invades-rafah
+
 **Will Justice Merchan Find Trump in Contempt of Court?**\
 `Chances are high.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-contempt-ruling
