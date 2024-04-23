@@ -1,3 +1,7 @@
+**Howie Schwab, ESPN Researcher and Trivia Star, Dies at 63**\
+`He stepped out of his behind-the-scenes role in 2004 when he was cast as the ultimate sports know-it-all on the game show “Stump the Schwab.”`\
+https://nytimes.com/2024/04/23/sports/howie-schwab-dead.html
+
 **‘It Is Desolate’: China’s Glut of Unused Car Factories**\
 `Manufacturers like BYD, Tesla and Li Auto are cutting prices to move their electric cars. For gasoline-powered vehicles, the surplus of factories is even worse.`\
 https://nytimes.com/2024/04/23/business/china-auto-factories-price-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/opinion/university-jewish-antisemitism-ivy.html
 **The Legal Limits of Trump’s Contempt Defense**\
 `By Jesse Wegman`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-contempt
-
-**Transcript: Ezra Klein Interviews Adam Moss**\
-`The April 23, 2023, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/04/23/podcasts/transcript-ezra-klein-interviews-adam-moss.html
 
