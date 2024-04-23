@@ -1,3 +1,7 @@
+**Israel carries out airstrikes and orders new evacuations in parts of Beit Lahia, in northern Gaza.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/04/23/world/israel-hamas-war-gaza/israel-carries-out-airstrikes-and-orders-new-evacuations-in-parts-of-beit-lahia-in-northern-gaza
+
 **David Pecker and ‘The Trump Tower Conspiracy’**\
 `Even the worm turns.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/pecker-testimony-trump-trial
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/business/china-auto-factories-price-cuts.html
 **Beyoncé Showed Her Hair Being Washed. Here’s Why It Matters.**\
 `In a video on Instagram, the singer provided fans a rare glimpse of her routine.`\
 https://nytimes.com/2024/04/23/style/beyonce-real-hair-cecred-products.html
-
-**Biden Says Trump Is Responsible for ‘Nightmare’ State Abortion Laws**\
-`President Biden tied a six-week abortion ban that will soon take place in Florida to former President Donald J. Trump and Republican efforts to ban abortion nationwide.`\
-https://nytimes.com/video/us/politics/100000009429934/biden-abortion-reproductive-rights.html
 
