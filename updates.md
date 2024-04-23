@@ -1,3 +1,7 @@
+**8 Songs From the Rock & Roll Hall of Fame’s Class of 2024**\
+`Listen to soon-to-be inductees Cher, Foreigner, A Tribe Called Quest and more.`\
+https://nytimes.com/2024/04/23/arts/music/amplifier-newsletter-rock-hall-of-fame.html
+
 **National Enquirer’s ex-publisher details how he helped Trump’s campaign.**\
 `By Matthew Haag`\
 https://nytimes.com/live/2024/04/23/nyregion/trump-hush-money-trial-news/national-enquirers-ex-publisher-details-how-he-helped-trumps-campaign
