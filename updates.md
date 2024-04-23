@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Dubai, College Protests, Caitlin Clark**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/04/23/learning/23StudentNewsQuizLN.html
+
 **At Least 5 Die Trying to Cross English Channel, Including a Young Girl**\
 `The British and French authorities have struggled to find ways to deter people from making the perilous journey.`\
 https://nytimes.com/2024/04/23/world/europe/france-uk-migrant-deaths-english-channel.html
