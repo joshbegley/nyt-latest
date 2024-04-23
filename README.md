@@ -1,3 +1,7 @@
+**A Salacious Conspiracy or Just 34 Pieces of Paper?**\
+`Inside the criminal trial of former President Donald J. Trump.`\
+https://nytimes.com/2024/04/23/podcasts/the-daily/trump-opening-statements.html
+
 **The U.S. says it is reviewing the report and has not decided whether to resume funding for the U.N. agency.**\
 `By Patrick Kingsley and Matt Surman`\
 https://nytimes.com/live/2024/04/23/world/israel-gaza-war-hamas/the-us-says-it-is-reviewing-the-report-and-has-not-decided-whether-to-resume-funding-for-the-un-agency
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/style/cait-bailey-align-pr.html
 **The Small-Business Tyrant Has a Favorite Political Party**\
 `It has never been more obvious that the Republican Party is the party of the boss.`\
 https://nytimes.com/2024/04/23/opinion/the-small-business-tyrant-has-a-favorite-political-party.html
-
-**In Ukraine, New American Technology Won the Day. Until It Got Overwhelmed.**\
-`Project Maven was meant to revolutionize modern warfare. But the conflict in Ukraine has underscored how difficult it is to get 21st-century data into 19th-century trenches.`\
-https://nytimes.com/2024/04/23/us/politics/ukraine-new-american-technology.html
 
