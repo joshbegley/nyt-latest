@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘The Problem Was He Smelled Really Good’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/04/23/style/tiny-modern-love-stories-the-problem-was-he-smelled-really-good.html
+
 **Your most pressing climate questions**\
 `Introducing Ask NYT Climate, where we’ll explore how climate intersects with your everyday life.`\
 https://nytimes.com/2024/04/23/climate/your-most-pressing-climate-questions.html
