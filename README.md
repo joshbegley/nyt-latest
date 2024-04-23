@@ -1,3 +1,7 @@
+**Donors Stay Largely Silent Amid New Wave of Campus Protests**\
+`Robert Kraft, an alumnus of Columbia, suggested he would withhold donations to the school. Other alumni are keeping quiet.`\
+https://nytimes.com/2024/04/23/business/dealbook/donors-protests-columbia-kraft.html
+
 **Donald Trump on Trial**\
 `Highlights from the first big day of the former president’s New York criminal case.`\
 https://nytimes.com/2024/04/23/briefing/trump-manhattan-trial-stormy-daniels.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/world/europe/senate-aid-package-ukraine-israel-ta
 **Biden to Give Abortion-Focused Speech in Florida, Tying State Ban to Trump**\
 `The Biden campaign has made abortion one of its top issues, as polling shows it is one of the few subjects in which voters place more trust in President Biden than Donald Trump.`\
 https://nytimes.com/2024/04/23/us/politics/biden-abortion-florida-trump.html
-
-**Rural Voters Are More Progressive Than the Democratic Party Thinks**\
-`But many Democrats have written them off.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/rural-voters-progresive-survey
 
