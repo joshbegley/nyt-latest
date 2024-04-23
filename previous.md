@@ -1,3 +1,7 @@
+**National Enquirer’s Help for Trump Broke Norms Even in the Tabloid World**\
+`The tabloid’s parent company was fined for breaking federal election laws after spending money to buy and bury stories that could harmed Donald J. Trump’s campaign.`\
+https://nytimes.com/2024/04/23/nyregion/national-enquirer-trump-trial-david-pecker.html
+
 **Inside the Week That Shook Columbia University**\
 `In a Washington war room, Columbia’s president, Nemat Shafik, decided to call police officers to arrest protesting students. The backlash now threatens her leadership.`\
 https://nytimes.com/2024/04/23/nyregion/columbia-university-campus-protests.html
@@ -34,4 +38,3 @@ https://nytimes.com/video/world/middleeast/100000009407019/our-reporter-on-the-f
 `More investment professionals will be required to act in their customers’ best interest when providing advice about their retirement money.`\
 https://nytimes.com/2024/04/23/business/fiduciary-rules-retirement-money.html
 
-**A Complete Guide to Allergy Treatments**\
