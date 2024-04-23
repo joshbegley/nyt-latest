@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘The Problem Was He Smelled Really Good’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/04/23/style/tiny-modern-love-stories-the-problem-was-he-smelled-really-good.html
+
 **Your most pressing climate questions**\
 `Introducing Ask NYT Climate, where we’ll explore how climate intersects with your everyday life.`\
 https://nytimes.com/2024/04/23/climate/your-most-pressing-climate-questions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/nyregion/national-enquirer-trump-trial-david-peck
 **Inside the Week That Shook Columbia University**\
 `In a Washington war room, Columbia’s president, Nemat Shafik, decided to call police officers to arrest protesting students. The backlash now threatens her leadership.`\
 https://nytimes.com/2024/04/23/nyregion/columbia-university-campus-protests.html
-
-**8 Songs From the Rock & Roll Hall of Fame’s Class of 2024**\
-`Listen to soon-to-be inductees Cher, Foreigner, A Tribe Called Quest and more.`\
-https://nytimes.com/2024/04/23/arts/music/amplifier-newsletter-rock-hall-of-fame.html
 
