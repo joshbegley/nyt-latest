@@ -1,3 +1,7 @@
+**Donors Stay Largely Silent Amid New Wave of Campus Protests**\
+`Robert Kraft, an alumnus of Columbia, suggested he would withhold donations to the school. Other alumni are keeping quiet.`\
+https://nytimes.com/2024/04/23/business/dealbook/donors-protests-columbia-kraft.html
+
 **Donald Trump on Trial**\
 `Highlights from the first big day of the former president’s New York criminal case.`\
 https://nytimes.com/2024/04/23/briefing/trump-manhattan-trial-stormy-daniels.html
