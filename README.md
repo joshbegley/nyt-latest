@@ -1,3 +1,7 @@
+**Joe Biden, Abortion Warrior?**\
+`Tuesday’s speech was an impressive call to arms.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/biden-abortion-speech
+
 **Howie Schwab, ESPN Researcher and Trivia Star, Dies at 63**\
 `He stepped out of his behind-the-scenes role in 2004 when he was cast as the ultimate sports know-it-all on the game show “Stump the Schwab.”`\
 https://nytimes.com/2024/04/23/sports/howie-schwab-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/us/college-protest-editorial-voices.html
 **To Be (Visibly) Jewish in the Ivy League**\
 `Behavior that would be scandalous if aimed at other minorities are treated as understandable or even commendable when directed at Jews.`\
 https://nytimes.com/2024/04/23/opinion/university-jewish-antisemitism-ivy.html
-
-**The Legal Limits of Trump’s Contempt Defense**\
-`By Jesse Wegman`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-contempt
 
