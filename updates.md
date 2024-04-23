@@ -1,3 +1,7 @@
+**Trump Endures a Rugged Day in Court as Witness Details ‘Catch and Kill’**\
+`The judge questioned the credibility of Donald J. Trump’s defense lawyer, and a key witness told of a plan to buy and bury stories that might have harmed the candidate.`\
+https://nytimes.com/2024/04/23/nyregion/trump-hush-money-trial-pecker-testimony.html
+
 **Student Editorial Boards Rebuke College Officials for Protest Decisions**\
 `Around the nation, editorial boards at college newspapers have defended free speech and pro-Palestinian protesters in recent weeks.`\
 https://nytimes.com/2024/04/23/us/college-protest-editorial-voices.html
