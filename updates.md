@@ -1,3 +1,7 @@
+**Roaches’ Lullaby**\
+`In the 1970s, the filmmakers Claudia Weill and Eli Noyes interviewed New Yorkers across the city about their unwanted roommates: roaches.`\
+https://nytimes.com/video/opinion/100000009295568/roaches-lullaby.html
+
 **Baltimore Says Owner of Ship that Hit Key Bridge Was Negligent**\
 `The owner and manager of the cargo ship that downed the Francis Scott Key Bridge asked a judge to exonerate them from liability. The city argued otherwise.`\
 https://nytimes.com/2024/04/23/us/baltimore-key-bridge-collapse-ship.html
