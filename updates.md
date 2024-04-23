@@ -1,3 +1,15 @@
+**New York Court System to Publish Daily Transcripts of Trump’s Trial**\
+`A government website will also contain relevant documents for the landmark trial, which is not televised.`\
+https://nytimes.com/2024/04/23/nyregion/trump-transcripts-hush-money-trial-court.html
+
+**Why an Oregon Case Before the Supreme Court Matters So Much to California**\
+`A challenge to a small Oregon city’s law that imposes fines on homeless people for sleeping outdoors could have big implications for the Golden State.`\
+https://nytimes.com/2024/04/23/us/oregon-homelessness-case-supreme-court-california.html
+
+**Encore**\
+`A collection of short documentaries from public and private archives, unearthed and published by Op-Docs at The New York Times.`\
+https://nytimes.com/series/opdocs-encore
+
 **What is the Rwanda Policy? U.K.’s Plan for Asylum Seekers Explained**\
 `The plan has been in the works for years, but the passage of a contentious bill by Britain’s Parliament puts the country closer to sending asylum seekers to the African nation.`\
 https://nytimes.com/2024/04/23/world/europe/uk-rwanda-policy-explained.html
