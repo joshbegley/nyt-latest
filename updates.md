@@ -1,3 +1,7 @@
+**Universities Struggle as Pro-Palestinian Demonstrations Grow**\
+`Dozens were arrested at N.Y.U. and Yale, but officials there and at campuses across the countryare running out of`\
+https://nytimes.com/2024/04/22/us/campus-protests-arrests.html
+
 **Earthquakes in Taiwan Damage Buildings**\
 `A series of earthquakes in the city of Hualien on Monday were aftershocks from a deadly quake in early April, the authorities said.`\
 https://nytimes.com/video/world/asia/100000009428187/taiwan-earthquake-hualien.html
