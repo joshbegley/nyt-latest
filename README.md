@@ -1,3 +1,7 @@
+**Malaysian Navy Helicopters Collide Midair, Killing All 10 People Aboard**\
+`The two helicopters were rehearsing for a parade to celebrate the navy’s 90th anniversary.`\
+https://nytimes.com/2024/04/23/world/asia/malaysia-navy-helicopters-crash.html
+
 **Modi Calls Muslims ‘Infiltrators’ in Speech During India Elections**\
 `Prime Minister Narendra Modi of India was criticized by the opposition for remarks he made during a speech to voters in Rajasthan state.`\
 https://nytimes.com/video/world/asia/100000009428303/modi-muslims-india-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/crosswords/connections-companion.html
 **Today’s Wordle Review No. 1,039**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/04/23/crosswords/wordle-review.html
-
-**Jon Stewart Slams How the News Media Is Covering Trump’s Trial**\
-`“Are you trying to make this O.J.? It’s not a chase — he’s commuting,” Stewart said on Monday’s “Daily Show.”`\
-https://nytimes.com/2024/04/23/arts/television/jon-stewart-trump-trial-coverage.html
 
