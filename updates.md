@@ -1,3 +1,11 @@
+**I’m a Columbia Professor. The Protests on My Campus Are Not Justice.**\
+`I do not believe that the Columbia demonstrators are driven by antisemitism, but their actions have gone way too far.`\
+https://nytimes.com/2024/04/23/opinion/columbia-protests-israel.html
+
+**F.T.C. Issues Ban on Worker Noncompete Clauses**\
+`The rule would prohibit companies from limiting their employees’ ability to work for rivals, a change that could increase competition and boost wages.`\
+https://nytimes.com/2024/04/23/business/noncompete-clause-ban.html
+
 **New Study Bolsters Idea of Athletic Differences Between Men and Trans Women**\
 `Research financed by the International Olympic Committee introduced new data to the unsettled and fractious debate about bans on transgender athletes.`\
 https://nytimes.com/2024/04/23/world/europe/paris-olympics-transgender-athletes.html

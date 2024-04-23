@@ -1,3 +1,11 @@
+**I’m a Columbia Professor. The Protests on My Campus Are Not Justice.**\
+`I do not believe that the Columbia demonstrators are driven by antisemitism, but their actions have gone way too far.`\
+https://nytimes.com/2024/04/23/opinion/columbia-protests-israel.html
+
+**F.T.C. Issues Ban on Worker Noncompete Clauses**\
+`The rule would prohibit companies from limiting their employees’ ability to work for rivals, a change that could increase competition and boost wages.`\
+https://nytimes.com/2024/04/23/business/noncompete-clause-ban.html
+
 **New Study Bolsters Idea of Athletic Differences Between Men and Trans Women**\
 `Research financed by the International Olympic Committee introduced new data to the unsettled and fractious debate about bans on transgender athletes.`\
 https://nytimes.com/2024/04/23/world/europe/paris-olympics-transgender-athletes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/23/nyregion/randy-mastro-lawyer-nyc.html
 **Trump’s Trial Features Fierce Debate Over What He Can Say: 5 Takeaways**\
 `Donald J. Trump’s lawyer was harshly questioned as he tried to avoid a contempt citation. And a publisher testified about how he put The National Enquirer to work for Mr. Trump’s campaign.`\
 https://nytimes.com/2024/04/23/nyregion/trump-trial-takeaways-pecker-gag-order.html
-
-**These Voters Haven’t Missed an Election in at Least 50 Years**\
-`A relatively small share of voters participate in off-year elections, and even fewer make a habit of it. Counties in Pennsylvania honor voters who show up every time.`\
-https://nytimes.com/2024/04/23/us/elections/pennsylvania-montgomery-voter-hall-of-fame.html
-
-**National Enquirer’s Help for Trump Broke Norms Even in the Tabloid World**\
-`The tabloid’s parent company was fined for breaking federal election laws after spending money to buy and bury stories that could have harmed Donald J. Trump’s campaign.`\
-https://nytimes.com/2024/04/23/nyregion/national-enquirer-trump-trial-david-pecker.html
 
