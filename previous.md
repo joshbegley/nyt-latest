@@ -1,3 +1,11 @@
+**To Be (Visibly) Jewish in the Ivy League**\
+`Behavior that would be scandalous if aimed at other minorities are treated as understandable or even commendable when directed at Jews.`\
+https://nytimes.com/2024/04/23/opinion/university-jewish-antisemitism-ivy.html
+
+**The Legal Limits of Trump’s Contempt Defense**\
+`By Jesse Wegman`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-contempt
+
 **Transcript: Ezra Klein Interviews Adam Moss**\
 `The April 23, 2023, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/04/23/podcasts/transcript-ezra-klein-interviews-adam-moss.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/23/climate/your-most-pressing-climate-questions.html
 **Publisher Describes Quashing Doorman’s Claim Trump Had Child Out of Wedlock**\
 `The former publisher of The National Enquirer testified at Donald J. Trump’s criminal trial that he used a so-called catch-and-kill deal to silence the doorman.`\
 https://nytimes.com/2024/04/23/nyregion/trump-child-tip-doorman-national-enquirer.html
-
-**Ukraine Aid in the Light of History**\
-`Lessons of Lend-Lease for the current crisis.`\
-https://nytimes.com/2024/04/23/opinion/ukraine-aid-military.html
-
-**Russian Court Orders American Journalist to Stay in Prison**\
-`Evan Gershkovich, a Wall Street Journal reporter, has been held for more than a year, awaiting trial on spying charges that he, his publisher and the United States vehemently reject.`\
-https://nytimes.com/2024/04/23/world/europe/russia-evan-gershkovich-appeal.html
 

@@ -1,3 +1,11 @@
+**To Be (Visibly) Jewish in the Ivy League**\
+`Behavior that would be scandalous if aimed at other minorities are treated as understandable or even commendable when directed at Jews.`\
+https://nytimes.com/2024/04/23/opinion/university-jewish-antisemitism-ivy.html
+
+**The Legal Limits of Trump’s Contempt Defense**\
+`By Jesse Wegman`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-contempt
+
 **Transcript: Ezra Klein Interviews Adam Moss**\
 `The April 23, 2023, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/04/23/podcasts/transcript-ezra-klein-interviews-adam-moss.html
