@@ -1,3 +1,7 @@
+**Tesla Earnings Report Could Add to Concerns About Its Strategy**\
+`Analysts expect first-quarter results to show a decline in profits, fueling worries that competitors will grab a bigger slice of slowing electric car sales.`\
+https://nytimes.com/2024/04/23/business/tesla-earnings-first-quarter-elon-musk.html
+
 **‘Tortured Poets’ Has Shifted the Taylor Swift Debate. Let’s Discuss.**\
 `The superstar’s 11th album is a 31-song excavation of her recent relationships that is not universally loved. Our pop team dissects its sound, themes and reception.`\
 https://nytimes.com/2024/04/23/arts/music/taylor-swift-tortured-poets-department-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/realestate/nar-settlement-realtors-commission.htm
 **Planned Parenthood Plans $10 Million Boost for Democrats in North Carolina**\
 `The party is banking on abortion access as an issue to animate the state’s competitive race for governor and, they hope, galvanize voters for President Biden.`\
 https://nytimes.com/2024/04/23/us/politics/planned-parenthood-north-carolina.html
-
-**Pennsylvania Holds Its Primaries Today. Here’s What to Watch.**\
-`The Democratic primary for Representative Summer Lee, a vocal Israel critic, is the contest getting the most attention on Tuesday.`\
-https://nytimes.com/2024/04/23/us/politics/pennsylvania-primaries-house-races.html
 

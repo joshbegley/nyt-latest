@@ -1,3 +1,7 @@
+**Tesla Earnings Report Could Add to Concerns About Its Strategy**\
+`Analysts expect first-quarter results to show a decline in profits, fueling worries that competitors will grab a bigger slice of slowing electric car sales.`\
+https://nytimes.com/2024/04/23/business/tesla-earnings-first-quarter-elon-musk.html
+
 **‘Tortured Poets’ Has Shifted the Taylor Swift Debate. Let’s Discuss.**\
 `The superstar’s 11th album is a 31-song excavation of her recent relationships that is not universally loved. Our pop team dissects its sound, themes and reception.`\
 https://nytimes.com/2024/04/23/arts/music/taylor-swift-tortured-poets-department-debate.html
