@@ -1,3 +1,7 @@
+**Wednesday Briefing: Senate Votes on Ukraine Aid**\
+`Also, a former tabloid publisher testifies against Donald Trump.`\
+https://nytimes.com/2024/04/23/world/asia/senate-ukraine-trump-trial-asia.html
+
 **Trump Endures a Rugged Day in Court as Witness Details ‘Catch and Kill’**\
 `The judge questioned the credibility of Donald J. Trump’s defense lawyer, and a key witness told of a plan to buy and bury stories that might have harmed the candidate.`\
 https://nytimes.com/2024/04/23/nyregion/trump-hush-money-trial-pecker-testimony.html

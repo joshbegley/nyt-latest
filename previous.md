@@ -1,3 +1,7 @@
+**Wednesday Briefing: Senate Votes on Ukraine Aid**\
+`Also, a former tabloid publisher testifies against Donald Trump.`\
+https://nytimes.com/2024/04/23/world/asia/senate-ukraine-trump-trial-asia.html
+
 **Trump Endures a Rugged Day in Court as Witness Details ‘Catch and Kill’**\
 `The judge questioned the credibility of Donald J. Trump’s defense lawyer, and a key witness told of a plan to buy and bury stories that might have harmed the candidate.`\
 https://nytimes.com/2024/04/23/nyregion/trump-hush-money-trial-pecker-testimony.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/business/noncompete-clause-ban.html
 **New Study Bolsters Idea of Athletic Differences Between Men and Trans Women**\
 `Research financed by the International Olympic Committee introduced new data to the unsettled and fractious debate about bans on transgender athletes.`\
 https://nytimes.com/2024/04/23/world/europe/paris-olympics-transgender-athletes.html
-
-**Tiny Love Stories: ‘The Problem Was He Smelled Really Good’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/04/23/style/tiny-modern-love-stories-the-problem-was-he-smelled-really-good.html
 
