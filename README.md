@@ -1,3 +1,7 @@
+**Inside the Week That Shook Columbia University**\
+`In a Washington war room, Columbia’s president, Nemat Shafik, decided to call police officers to arrest protesting students. The backlash now threatens her leadership.`\
+https://nytimes.com/2024/04/23/nyregion/columbia-university-campus-protests.html
+
 **8 Songs From the Rock & Roll Hall of Fame’s Class of 2024**\
 `Listen to soon-to-be inductees Cher, Foreigner, A Tribe Called Quest and more.`\
 https://nytimes.com/2024/04/23/arts/music/amplifier-newsletter-rock-hall-of-fame.html
