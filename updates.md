@@ -1,3 +1,7 @@
+**Word of the Day: blithely**\
+`This word has appeared in 72 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/23/learning/word-of-the-day-blithely.html
+
 **Microsoft Makes a New Push Into Smaller A.I. Systems**\
 `The company that has invested billions in generative A.I. pioneers like OpenAI says giant systems aren’t necessarily what everyone needs.`\
 https://nytimes.com/2024/04/23/technology/microsoft-ai.html

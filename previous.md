@@ -1,3 +1,7 @@
+**Word of the Day: blithely**\
+`This word has appeared in 72 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/23/learning/word-of-the-day-blithely.html
+
 **Microsoft Makes a New Push Into Smaller A.I. Systems**\
 `The company that has invested billions in generative A.I. pioneers like OpenAI says giant systems aren’t necessarily what everyone needs.`\
 https://nytimes.com/2024/04/23/technology/microsoft-ai.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/pageoneplus/quotation-of-the-day-asia-heat-wave-b
 **Corrections: April, 23, 2024**\
 `Corrections that appeared in print on Tuesday, April 23, 2024.`\
 https://nytimes.com/2024/04/22/pageoneplus/corrections-april-23-2024.html
-
-**Universities Struggle as Pro-Palestinian Demonstrations Grow**\
-`Dozens were arrested Monday at N.Y.U. and Yale, but officials there and at campuses across the country are running out of options to corral protests that are expected to last the rest of the school year.`\
-https://nytimes.com/2024/04/22/us/campus-protests-arrests.html
 
