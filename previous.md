@@ -1,3 +1,7 @@
+**Voices Below Sopranos**\
+`Judy Bowers makes her New York Times debut.`\
+https://nytimes.com/2024/04/22/crosswords/daily-puzzle-2024-04-23.html
+
 **A Night Different From Others as Campus Protests Break for Seder**\
 `Pro-Palestinian protesters, many of whom are Jewish, prepared Seder dinners at college protest encampments, even as other Jewish students sought community in more traditional settings.`\
 https://nytimes.com/2024/04/22/us/campus-protest-seders.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/us/politics/biden-ukraine-aid.html
 **Cleveland to Pay $4.8 Million to Family of Teenager Killed in Police Pursuit**\
 `Tamia Chappman, 13, died in 2019 when she was struck by a stolen car driven by a youth who was trying to evade officers.`\
 https://nytimes.com/2024/04/22/us/tamia-chappman-cleveland-settlement.html
-
-**U.K. Approves Bill That Would Send Asylum Seekers to Rwanda**\
-`Britain’s Parliament passed contentious legislation to allow the deportation of asylum seekers to the African country, a political victory for Prime Minister Rishi Sunak.`\
-https://nytimes.com/2024/04/22/world/europe/uk-rwanda-deportation-bill-migrants.html
 
