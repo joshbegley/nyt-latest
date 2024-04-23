@@ -1,3 +1,7 @@
+**A Salacious Conspiracy or Just 34 Pieces of Paper?**\
+`Inside the criminal trial of former President Donald J. Trump.`\
+https://nytimes.com/2024/04/23/podcasts/the-daily/trump-opening-statements.html
+
 **The U.S. says it is reviewing the report and has not decided whether to resume funding for the U.N. agency.**\
 `By Patrick Kingsley and Matt Surman`\
 https://nytimes.com/live/2024/04/23/world/israel-gaza-war-hamas/the-us-says-it-is-reviewing-the-report-and-has-not-decided-whether-to-resume-funding-for-the-un-agency
