@@ -1,3 +1,7 @@
+**Malaysian Navy Helicopters Collide Midair, Killing All 10 People Aboard**\
+`The two helicopters were rehearsing for a parade to celebrate the navy’s 90th anniversary.`\
+https://nytimes.com/2024/04/23/world/asia/malaysia-navy-helicopters-crash.html
+
 **Modi Calls Muslims ‘Infiltrators’ in Speech During India Elections**\
 `Prime Minister Narendra Modi of India was criticized by the opposition for remarks he made during a speech to voters in Rajasthan state.`\
 https://nytimes.com/video/world/asia/100000009428303/modi-muslims-india-election.html
