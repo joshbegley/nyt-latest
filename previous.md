@@ -1,3 +1,7 @@
+**Strong Aftershocks From Deadly Quake Rattle Taiwan**\
+`No injuries or deaths were immediately reported, but two buildings partially collapsed in the tremors, which followed a powerful April 3 quake that killed 17 people.`\
+https://nytimes.com/2024/04/22/world/asia/taiwan-earthquake.html
+
 **As College Students Protest, Harris Keeps Her Focus on Abortion**\
 `“When we think about what is at stake, it is absolutely about freedom,” Vice President Kamala Harris said during a visit to Wisconsin.`\
 https://nytimes.com/2024/04/22/us/politics/kamala-harris-wisconsin-abortion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/world/europe/uk-rwanda-deportation-bill-migrants.
 **Trump Criminal Trial Day 5: Opening Statements and a Brisk Pace**\
 `Jonah Bromwich, a criminal justice reporter at The New York Times, gives the major takeaways from the opening statements and the first witness of Trump’s criminal trial in Manhattan. An earlier version of this video misstated that it’s the sixth day of the Trump hush-money trial. It is Day 5.`\
 https://nytimes.com/video/nyregion/100000009427516/trump-criminal-trial-opening-statements.html
-
-**Dozens of Yale Students Arrested as Campus Protests Spread**\
-`The police arrested students at a pro-Palestinian protest encampment at Yale University, days after more than 100 student demonstrators were arrested on the campus of Columbia University.`\
-https://nytimes.com/video/us/100000009427159/yale-protest-arrests-gaza-palestinians-israel.html
 

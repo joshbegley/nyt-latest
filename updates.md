@@ -1,3 +1,7 @@
+**Strong Aftershocks From Deadly Quake Rattle Taiwan**\
+`No injuries or deaths were immediately reported, but two buildings partially collapsed in the tremors, which followed a powerful April 3 quake that killed 17 people.`\
+https://nytimes.com/2024/04/22/world/asia/taiwan-earthquake.html
+
 **As College Students Protest, Harris Keeps Her Focus on Abortion**\
 `“When we think about what is at stake, it is absolutely about freedom,” Vice President Kamala Harris said during a visit to Wisconsin.`\
 https://nytimes.com/2024/04/22/us/politics/kamala-harris-wisconsin-abortion.html
