@@ -1,3 +1,7 @@
+**Hezbollah Claims Drone Attack 10 Miles Inside Israel**\
+`The Israeli military said that it had intercepted two aerial attacks off its northern coast, but did not comment on Hezbollah’s claim that it had hit a military barracks. The extent of any damage was not clear.`\
+https://nytimes.com/2024/04/23/world/middleeast/hezbollah-strike-israel-lebanon.html
+
 **Tesla Earnings Report Could Add to Concerns About Its Strategy**\
 `Analysts expect first-quarter results to show a decline in profits, fueling worries that competitors will grab a bigger slice of slowing electric car sales.`\
 https://nytimes.com/2024/04/23/business/tesla-earnings-first-quarter-elon-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/arts/television/baby-reindeer-netflix.html
 **Judge Approves $418 Million Settlement That Will Change Real Estate Commissions**\
 `Home sellers will no longer be required to offer commission to a buyer’s agent when they sell their property, under an agreement with the National Association of Realtors.`\
 https://nytimes.com/2024/04/23/realestate/nar-settlement-realtors-commission.html
-
-**Planned Parenthood Plans $10 Million Boost for Democrats in North Carolina**\
-`The party is banking on abortion access as an issue to animate the state’s competitive race for governor and, they hope, galvanize voters for President Biden.`\
-https://nytimes.com/2024/04/23/us/politics/planned-parenthood-north-carolina.html
 

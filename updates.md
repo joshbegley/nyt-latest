@@ -1,3 +1,7 @@
+**Hezbollah Claims Drone Attack 10 Miles Inside Israel**\
+`The Israeli military said that it had intercepted two aerial attacks off its northern coast, but did not comment on Hezbollah’s claim that it had hit a military barracks. The extent of any damage was not clear.`\
+https://nytimes.com/2024/04/23/world/middleeast/hezbollah-strike-israel-lebanon.html
+
 **Tesla Earnings Report Could Add to Concerns About Its Strategy**\
 `Analysts expect first-quarter results to show a decline in profits, fueling worries that competitors will grab a bigger slice of slowing electric car sales.`\
 https://nytimes.com/2024/04/23/business/tesla-earnings-first-quarter-elon-musk.html
