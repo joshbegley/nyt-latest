@@ -1,3 +1,11 @@
+**Biden Says Trump Is Responsible for ‘Nightmare’ State Abortion Laws**\
+`Biden tied a six-week abortion ban that will soon take place in Florida to former President Donald J. Trump and Republican efforts to ban abortion nationwide.`\
+https://nytimes.com/video/us/politics/100000009429934/biden-abortion-reproductive-rights.html
+
+**Biden Will Speak at Morehouse and West Point Graduations**\
+`President Biden will deliver the commencement addresses in May as U.S. support for Israel fuels protests on other campuses.`\
+https://nytimes.com/2024/04/23/us/politics/biden-morehouse-west-point-commencement.html
+
 **Wednesday Briefing: Senate Votes on Ukraine Aid**\
 `Also, a former tabloid publisher testifies against Donald Trump.`\
 https://nytimes.com/2024/04/23/world/asia/senate-ukraine-trump-trial-asia.html
