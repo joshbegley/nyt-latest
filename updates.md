@@ -1,3 +1,7 @@
+**My Country Knows What Happens When You Do a Deal With Russia**\
+`Moldova is a cautionary tale for Ukraine.`\
+https://nytimes.com/2024/04/23/opinion/moldova-russia-ukraine-war.html
+
 **Tuesday Briefing**\
 `The opening of Donald Trump’s Manhattan trial.`\
 https://nytimes.com/2024/04/23/briefing/trump-trial-israel-intelligence-resign.html

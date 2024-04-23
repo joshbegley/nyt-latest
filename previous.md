@@ -1,3 +1,7 @@
+**My Country Knows What Happens When You Do a Deal With Russia**\
+`Moldova is a cautionary tale for Ukraine.`\
+https://nytimes.com/2024/04/23/opinion/moldova-russia-ukraine-war.html
+
 **Tuesday Briefing**\
 `The opening of Donald Trump’s Manhattan trial.`\
 https://nytimes.com/2024/04/23/briefing/trump-trial-israel-intelligence-resign.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/us/campus-protests-arrests.html
 **Voices Below Sopranos**\
 `Judy Bowers makes her New York Times debut.`\
 https://nytimes.com/2024/04/22/crosswords/daily-puzzle-2024-04-23.html
-
-**A Night Different From Others as Campus Protests Break for Seder**\
-`Pro-Palestinian protesters, many of whom are Jewish, prepared Seder dinners at college protest encampments, even as other Jewish students sought community in more traditional settings.`\
-https://nytimes.com/2024/04/22/us/campus-protest-seders.html
 
