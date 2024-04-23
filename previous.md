@@ -1,3 +1,11 @@
+**‘Tortured Poets’ Has Shifted the Taylor Swift Debate. Let’s Discuss.**\
+`The superstar’s 11th album is a 31-song excavation of her recent relationships that is not universally loved. Our pop team dissects its sound, themes and reception.`\
+https://nytimes.com/2024/04/23/arts/music/taylor-swift-tortured-poets-department-debate.html
+
+**In a Pair of ‘Macbeth’ Productions, Only One Does Right by the Lady**\
+`One of Shakespeare’s most coveted roles for women gets different interpretations onstage in New York and Washington.`\
+https://nytimes.com/2024/04/23/theater/macbeth-undone-shakespeare-theater.html
+
 **Did the Israel-Hamas War Affect Your Seder? Tell Us.**\
 `We want to know if the war influenced your Seder rituals.`\
 https://nytimes.com/2024/04/23/nyregion/seder-callout-israel-hamas-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/23/us/politics/planned-parenthood-north-carolina.htm
 **Pennsylvania Holds Its Primaries Today. Here’s What to Watch.**\
 `The Democratic primary for Representative Summer Lee, a vocal Israel critic, is the contest getting the most attention on Tuesday.`\
 https://nytimes.com/2024/04/23/us/politics/pennsylvania-primaries-house-races.html
-
-**Supreme Court to Hear Starbucks Challenge to Labor Ruling**\
-`The case, which stems from the firing of seven Starbucks workers in Memphis, seeks to limit the National Labor Relations Board’s ability to obtain a court intervention in labor cases.`\
-https://nytimes.com/2024/04/23/business/supreme-court-starbucks-labor.html
-
-**Columbia Offers Remote Classes for the Last Days of the Semester**\
-`Tensions have rippled out to other schools. Protesters were arrested at Yale and New York University. And new protest encampments popped up on several campuses.`\
-https://nytimes.com/2024/04/23/us/columbia-university-remote-classes-protests.html
 

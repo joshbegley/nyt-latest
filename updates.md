@@ -1,3 +1,11 @@
+**‘Tortured Poets’ Has Shifted the Taylor Swift Debate. Let’s Discuss.**\
+`The superstar’s 11th album is a 31-song excavation of her recent relationships that is not universally loved. Our pop team dissects its sound, themes and reception.`\
+https://nytimes.com/2024/04/23/arts/music/taylor-swift-tortured-poets-department-debate.html
+
+**In a Pair of ‘Macbeth’ Productions, Only One Does Right by the Lady**\
+`One of Shakespeare’s most coveted roles for women gets different interpretations onstage in New York and Washington.`\
+https://nytimes.com/2024/04/23/theater/macbeth-undone-shakespeare-theater.html
+
 **Did the Israel-Hamas War Affect Your Seder? Tell Us.**\
 `We want to know if the war influenced your Seder rituals.`\
 https://nytimes.com/2024/04/23/nyregion/seder-callout-israel-hamas-war.html
