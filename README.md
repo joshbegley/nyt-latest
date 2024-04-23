@@ -1,11 +1,3 @@
-**Columbia Offers Remote Classes for the Last Days of the Semester**\
-`Tensions have rippled out to other schools. Protesters were arrested at Yale and New York University. And new protest encampments popped up on several campuses.`\
-https://nytimes.com/2024/04/23/us/columbia-university-remote-classes-protests.html
-
-**G.M. Reports Big Jump in Profit on Gasoline Car Sales**\
-`General Motors has struggled with electric vehicles and in foreign markets but it is selling lots of combustion engine cars and trucks in North America.`\
-https://nytimes.com/2024/04/23/business/general-motors-earnings.html
-
 **New York Court System to Publish Daily Transcripts of Trump’s Trial**\
 `A government website will also contain relevant documents for the landmark trial, which is not televised.`\
 https://nytimes.com/2024/04/23/nyregion/trump-transcripts-hush-money-trial-court.html
@@ -37,4 +29,12 @@ https://nytimes.com/interactive/2024/04/23/learning/23StudentNewsQuizLN.html
 **At Least 5 Die Trying to Cross English Channel, Including a Young Girl**\
 `The British and French authorities have struggled to find ways to deter people from making the perilous journey.`\
 https://nytimes.com/2024/04/23/world/europe/france-uk-migrant-deaths-english-channel.html
+
+**Donors Stay Largely Silent Amid New Wave of Campus Protests**\
+`Robert Kraft, an alumnus of Columbia, suggested he would withhold donations to the school. Other alumni are keeping quiet.`\
+https://nytimes.com/2024/04/23/business/dealbook/donors-protests-columbia-kraft.html
+
+**Donald Trump on Trial**\
+`Highlights from the first big day of the former president’s New York criminal case.`\
+https://nytimes.com/2024/04/23/briefing/trump-manhattan-trial-stormy-daniels.html
 
