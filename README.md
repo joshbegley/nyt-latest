@@ -1,3 +1,7 @@
+**As College Students Protest, Harris Keeps Her Focus on Abortion**\
+`“When we think about what is at stake, it is absolutely about freedom,” Vice President Kamala Harris said during a visit to Wisconsin.`\
+https://nytimes.com/2024/04/22/us/politics/kamala-harris-wisconsin-abortion.html
+
 **San Francisco Mayor Gives Panda Diplomacy a Try**\
 `In a city still struggling to recover from the pandemic, Mayor London Breed hopes giant pandas will lift the spirits — and the economy — of San Francisco.`\
 https://nytimes.com/2024/04/22/us/san-francisco-mayor-gives-panda-diplomacy-a-try.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000009427516/trump-criminal-trial-opening-
 **Dozens of Yale Students Arrested as Campus Protests Spread**\
 `The police arrested students at a pro-Palestinian protest encampment at Yale University, days after more than 100 student demonstrators were arrested on the campus of Columbia University.`\
 https://nytimes.com/video/us/100000009427159/yale-protest-arrests-gaza-palestinians-israel.html
-
-**Can Biden make Trump seem like Mitt Romney?**\
-`The president may be making a similar case against his wealthy rival that Obama made against the G.O.P. nominee in 2012.`\
-https://nytimes.com/2024/04/22/us/politics/biden-trump-mitt-romney.html
 
