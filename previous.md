@@ -1,3 +1,7 @@
+**Why David Beckham Is Suing Mark Wahlberg and F45 for Millions**\
+`The former soccer star entered into a promotional agreement with the gym franchise that is co-owned by the actor, but things quickly soured.`\
+https://nytimes.com/2024/04/23/us/david-beckham-mark-wahlberg-lawsuit-f45.html
+
 **Weekly Student News Quiz: Dubai, College Protests, Caitlin Clark**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/04/23/learning/23StudentNewsQuizLN.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/23/world/israel-gaza-war-hamas/the-us-says-it-i
 **23mideast-crisis**\
 `Review of U.N. Agency Prompts New Calls to Restore Its Funding`\
 https://nytimes.com/live/2024/04/23/world/israel-gaza-war-hamas
-
-**Trump Is Owed an Extra $1 Billion Stake in Truth Social**\
-`The former president is in line for a windfall after the stock price of Trump Media hit performance targets in its first few weeks of trading, raising the value of his already sizable stake.`\
-https://nytimes.com/2024/04/23/business/trump-media-stake.html
 

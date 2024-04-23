@@ -1,3 +1,7 @@
+**Why David Beckham Is Suing Mark Wahlberg and F45 for Millions**\
+`The former soccer star entered into a promotional agreement with the gym franchise that is co-owned by the actor, but things quickly soured.`\
+https://nytimes.com/2024/04/23/us/david-beckham-mark-wahlberg-lawsuit-f45.html
+
 **Weekly Student News Quiz: Dubai, College Protests, Caitlin Clark**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/04/23/learning/23StudentNewsQuizLN.html
