@@ -1,3 +1,7 @@
+**Modi Calls Muslims ‘Infiltrators’ in Speech During India Elections**\
+`Prime Minister Narendra Modi of India was criticized by the opposition for remarks he made during a speech to voters in Rajasthan state.`\
+https://nytimes.com/video/world/asia/100000009428303/modi-muslims-india-election.html
+
 **Trump Will Fight Attempts to Silence Him Before Key Witness Testifies**\
 `Justice Juan M. Merchan will hear arguments over whether the former president violated his gag order before The National Enquirer’s former publisher takes the stand.`\
 https://nytimes.com/2024/04/23/nyregion/trump-trial-testimony-gag-order.html

@@ -1,3 +1,7 @@
+**Modi Calls Muslims ‘Infiltrators’ in Speech During India Elections**\
+`Prime Minister Narendra Modi of India was criticized by the opposition for remarks he made during a speech to voters in Rajasthan state.`\
+https://nytimes.com/video/world/asia/100000009428303/modi-muslims-india-election.html
+
 **Trump Will Fight Attempts to Silence Him Before Key Witness Testifies**\
 `Justice Juan M. Merchan will hear arguments over whether the former president violated his gag order before The National Enquirer’s former publisher takes the stand.`\
 https://nytimes.com/2024/04/23/nyregion/trump-trial-testimony-gag-order.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/crosswords/wordle-review.html
 **Jon Stewart Slams How the News Media Is Covering Trump’s Trial**\
 `“Are you trying to make this O.J.? It’s not a chase — he’s commuting,” Stewart said on Monday’s “Daily Show.”`\
 https://nytimes.com/2024/04/23/arts/television/jon-stewart-trump-trial-coverage.html
-
-**Word of the Day: blithely**\
-`This word has appeared in 72 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/04/23/learning/word-of-the-day-blithely.html
 
