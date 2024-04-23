@@ -1,3 +1,7 @@
+**A Night Different From Others as Campus Protests Break for Seder**\
+`Pro-Palestinian protesters, many of whom are Jewish, prepared Seder dinners at college protest encampments, even as other Jewish students sought community in more traditional settings.`\
+https://nytimes.com/2024/04/22/us/campus-protest-seders.html
+
 **Strong Aftershocks From Deadly Quake Rattle Taiwan**\
 `No injuries or deaths were immediately reported, but two buildings partially collapsed in the tremors, which followed a powerful April 3 quake that killed 17 people.`\
 https://nytimes.com/2024/04/22/world/asia/taiwan-earthquake.html

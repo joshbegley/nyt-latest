@@ -1,3 +1,7 @@
+**A Night Different From Others as Campus Protests Break for Seder**\
+`Pro-Palestinian protesters, many of whom are Jewish, prepared Seder dinners at college protest encampments, even as other Jewish students sought community in more traditional settings.`\
+https://nytimes.com/2024/04/22/us/campus-protest-seders.html
+
 **Strong Aftershocks From Deadly Quake Rattle Taiwan**\
 `No injuries or deaths were immediately reported, but two buildings partially collapsed in the tremors, which followed a powerful April 3 quake that killed 17 people.`\
 https://nytimes.com/2024/04/22/world/asia/taiwan-earthquake.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/us/tamia-chappman-cleveland-settlement.html
 **U.K. Approves Bill That Would Send Asylum Seekers to Rwanda**\
 `Britain’s Parliament passed contentious legislation to allow the deportation of asylum seekers to the African country, a political victory for Prime Minister Rishi Sunak.`\
 https://nytimes.com/2024/04/22/world/europe/uk-rwanda-deportation-bill-migrants.html
-
-**Trump Criminal Trial Day 5: Opening Statements and a Brisk Pace**\
-`Jonah Bromwich, a criminal justice reporter at The New York Times, gives the major takeaways from the opening statements and the first witness of Trump’s criminal trial in Manhattan. An earlier version of this video misstated that it’s the sixth day of the Trump hush-money trial. It is Day 5.`\
-https://nytimes.com/video/nyregion/100000009427516/trump-criminal-trial-opening-statements.html
 
