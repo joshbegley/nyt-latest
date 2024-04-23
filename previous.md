@@ -1,40 +1,40 @@
-**Roaches’ Lullaby**\
-`In the 1970s, the filmmakers Claudia Weill and Eli Noyes interviewed New Yorkers across the city about their unwanted roommates: roaches.`\
-https://nytimes.com/video/opinion/100000009295568/roaches-lullaby.html
+**Sydney Sweeney and Glen Powell on How ‘Anyone but You’ Beat the Rom-Com Odds**\
+`Here are their takeaways after the film, debuting on Netflix, went from box office miss to runaway hit.`\
+https://nytimes.com/2024/04/23/movies/anyone-but-you-sydney-sweeney-glen-powell.html
 
-**Baltimore Says Owner of Ship that Hit Key Bridge Was Negligent**\
-`The owner and manager of the cargo ship that downed the Francis Scott Key Bridge asked a judge to exonerate them from liability. The city argued otherwise.`\
-https://nytimes.com/2024/04/23/us/baltimore-key-bridge-collapse-ship.html
+**How Do We Know What Animals Are Really Feeling?**\
+`Animal-welfare science tries to get inside the minds of a huge range of species — in order to help improve their lives.`\
+https://nytimes.com/2024/04/23/magazine/animals-welfare-science.html
 
-**Malaysian Navy Helicopters Collide Midair, Killing All 10 People Aboard**\
-`The two helicopters were rehearsing for a parade to celebrate the navy’s 90th anniversary.`\
-https://nytimes.com/2024/04/23/world/asia/malaysia-navy-helicopters-crash.html
+**The Best Fish Is Also the Most Local. Why Is It So Hard to Find?**\
+`Seafood caught in nearby waters has long been left out of the farm-to-table movement. But these people have set out to get it into stores and restaurants.`\
+https://nytimes.com/2024/04/23/dining/local-sustainable-fish-seafood.html
 
-**Modi Calls Muslims ‘Infiltrators’ in Speech During India Elections**\
-`Prime Minister Narendra Modi of India was criticized by the opposition for remarks he made during a speech to voters in Rajasthan state.`\
-https://nytimes.com/video/world/asia/100000009428303/modi-muslims-india-election.html
+**In San Francisco, a Home Renovation Can Become a Battle Royale**\
+`Neighbors have multiple opportunities to raise objections, and some disputes can only be resolved by the city’s top governing body.`\
+https://nytimes.com/2024/04/23/us/san-francisco-home-renovation.html
 
-**Trump Will Fight Attempts to Silence Him Before Key Witness Testifies**\
-`Justice Juan M. Merchan will hear arguments over whether the former president violated his gag order before The National Enquirer’s former publisher takes the stand.`\
-https://nytimes.com/2024/04/23/nyregion/trump-trial-testimony-gag-order.html
+**Cha Cha Tang Will Serve Its Take on Hong Kong Diner Food Starting Mother’s Day**\
+`Onion Tree Pizza offers chicken tikka masala and saag paneer  pies, Burmese Bites opens in Midtown East and more restaurant news.`\
+https://nytimes.com/2024/04/23/dining/nyc-restaurant-news.html
 
-**Old and Young**\
-`How many intergenerational relationships do you have? What do you get from them?`\
-https://nytimes.com/2024/04/23/learning/old-and-young.html
+**Searching for the Real ‘Anna O.’**\
+`As described by Gabriel Brownstein, the basis for one of Freud’s most famous cases posed as many questions as it answered.`\
+https://nytimes.com/2024/04/23/books/review/the-secret-mind-of-bertha-pappenheim-by-gabriel-brownstein.html
 
-**Could Trump Go to Prison? If He Does, the Secret Service Goes, Too**\
-`Officials have had preliminary discussions about how to protect the former president in the unlikely event that he is jailed for contempt during the trial.`\
-https://nytimes.com/2024/04/23/nyregion/trump-trial-hush-money-prison.html
+**‘Pay Later’ Lenders Have an Issue With Credit Bureaus**\
+`Firms like Experian and TransUnion say it is time for “buy now, pay later” loans to appear on consumer credit reports. The lenders aren’t ready to sign on.`\
+https://nytimes.com/2024/04/23/business/economy/buy-now-pay-later-credit.html
 
-**Yellowstone’s Wolves: A Debate Over Their Role in the Park’s Ecosystem**\
-`New research questions the long-held theory that reintroduction of such a predator caused a trophic cascade, spawning renewal of vegetation and spurring biodiversity.`\
-https://nytimes.com/2024/04/23/science/yellowstone-wolves-elk-bison-climate-change.html
+**He’s Music’s Mr. Adjacent, Connecting Minimalism to Disco**\
+`Peter Gordon, who studied with Terry Riley, has always made music that is surprising but accessible. Now he’s starting his own record label.`\
+https://nytimes.com/2024/04/23/arts/music/peter-gordon-adjacent-records-downtown-minimalism.html
 
-**A Restaurant Critic’s Full Plate Encroaches on His Palate**\
-`Pete Wells’s first guide to New York’s restaurants was based on a decade of eating. To write a second, did he bite off more than he could chew?`\
-https://nytimes.com/2024/04/23/insider/pete-wells-new-york.html
+**This Conversation Made Me a Sharper Editor**\
+`The venerated editor Adam Moss walks through how to make good work great.`\
+https://nytimes.com/2024/04/23/opinion/ezra-klein-podcast-adam-moss.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/23/crosswords/spelling-bee-forum.html
+**When Edgar Allan Poe Lived, and Loved, in the Bronx**\
+`The manuscript of Poe’s poem “For Annie,” written while he was living in a Bronx cottage after his wife’s death, is up for auction.`\
+https://nytimes.com/2024/04/23/nyregion/edgar-allan-poe-bronx-manuscript.html
 
