@@ -1,3 +1,7 @@
+**Jon Stewart Slams How the News Media Is Covering Trump’s Trial**\
+`“Are you trying to make this O.J.? It’s not a chase — he’s commuting,” Stewart said on Monday’s “Daily Show.”`\
+https://nytimes.com/2024/04/23/arts/television/jon-stewart-trump-trial-coverage.html
+
 **Word of the Day: blithely**\
 `This word has appeared in 72 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/23/learning/word-of-the-day-blithely.html
