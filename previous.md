@@ -1,3 +1,7 @@
+**New Study Bolsters Idea of Athletic Differences Between Men and Trans Women**\
+`Research financed by the International Olympic Committee introduced new data to the unsettled and fractious debate about bans on transgender athletes.`\
+https://nytimes.com/2024/04/23/world/europe/paris-olympics-transgender-athletes.html
+
 **Tiny Love Stories: ‘The Problem Was He Smelled Really Good’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/04/23/style/tiny-modern-love-stories-the-problem-was-he-smelled-really-good.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/us/elections/pennsylvania-montgomery-voter-hall-o
 **National Enquirer’s Help for Trump Broke Norms Even in the Tabloid World**\
 `The tabloid’s parent company was fined for breaking federal election laws after spending money to buy and bury stories that could have harmed Donald J. Trump’s campaign.`\
 https://nytimes.com/2024/04/23/nyregion/national-enquirer-trump-trial-david-pecker.html
-
-**Inside the Week That Shook Columbia University**\
-`In a Washington war room, Columbia’s president, Nemat Shafik, decided to call police officers to arrest protesting students. The backlash now threatens her leadership.`\
-https://nytimes.com/2024/04/23/nyregion/columbia-university-campus-protests.html
 
