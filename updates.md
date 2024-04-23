@@ -1,3 +1,7 @@
+**Using Police to Clear Protesters, Universities Struggle to Calm Campuses**\
+`Students were arrested at N.Y.U. and Yale on Monday. But at Columbia, that approach led to a new encampment and demonstrations outside its gates.`\
+https://nytimes.com/2024/04/22/us/campus-protests-arrests.html
+
 **Voices Below Sopranos**\
 `Judy Bowers makes her New York Times debut.`\
 https://nytimes.com/2024/04/22/crosswords/daily-puzzle-2024-04-23.html
