@@ -1,3 +1,15 @@
+**Why Are Younger Adults Developing This Common Heart Condition?**\
+`New research suggests that A-fib may be more prevalent, and more dangerous, in people under 65 than previously thought.`\
+https://nytimes.com/2024/04/23/well/live/afib-atrial-fibrillation.html
+
+**Prosecutors Call Trump’s Echo of Fox News Host Remarks ‘Troubling’**\
+`Donald J. Trump amplified a false assertion by the commentator Jesse Watters that activists were infiltrating the jury in his criminal trial.`\
+https://nytimes.com/2024/04/23/nyregion/trump-truth-social-fox-post-trial.html
+
+**How G.M. Tricked Millions of Drivers Into Being Spied On (Including Me)**\
+`This privacy reporter and her husband bought a Chevrolet Bolt in December. Two risk-profiling companies had been getting detailed data about their driving ever since.`\
+https://nytimes.com/2024/04/23/technology/gm-driver-data-consent.html
+
 **To Justify His Immunity Defense, Trump Flips the Prosecution Script**\
 `The former president’s claim ahead of a pivotal Supreme Court hearing that he was protecting the election system rather than subverting it is part of a pattern of shaping his own reality.`\
 https://nytimes.com/2024/04/23/us/politics/immunity-trump-election-court.html

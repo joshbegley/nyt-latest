@@ -1,3 +1,15 @@
+**Why Are Younger Adults Developing This Common Heart Condition?**\
+`New research suggests that A-fib may be more prevalent, and more dangerous, in people under 65 than previously thought.`\
+https://nytimes.com/2024/04/23/well/live/afib-atrial-fibrillation.html
+
+**Prosecutors Call Trump’s Echo of Fox News Host Remarks ‘Troubling’**\
+`Donald J. Trump amplified a false assertion by the commentator Jesse Watters that activists were infiltrating the jury in his criminal trial.`\
+https://nytimes.com/2024/04/23/nyregion/trump-truth-social-fox-post-trial.html
+
+**How G.M. Tricked Millions of Drivers Into Being Spied On (Including Me)**\
+`This privacy reporter and her husband bought a Chevrolet Bolt in December. Two risk-profiling companies had been getting detailed data about their driving ever since.`\
+https://nytimes.com/2024/04/23/technology/gm-driver-data-consent.html
+
 **To Justify His Immunity Defense, Trump Flips the Prosecution Script**\
 `The former president’s claim ahead of a pivotal Supreme Court hearing that he was protecting the election system rather than subverting it is part of a pattern of shaping his own reality.`\
 https://nytimes.com/2024/04/23/us/politics/immunity-trump-election-court.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/23/business/tesla-earnings-first-quarter-elon-musk.h
 **‘Tortured Poets’ Has Shifted the Taylor Swift Debate. Let’s Discuss.**\
 `The superstar’s 11th album is a 31-song excavation of her recent relationships that is not universally loved. Our pop team dissects its sound, themes and reception.`\
 https://nytimes.com/2024/04/23/arts/music/taylor-swift-tortured-poets-department-debate.html
-
-**In a Pair of ‘Macbeth’ Productions, Only One Does Right by the Lady**\
-`One of Shakespeare’s most coveted roles for women gets different interpretations onstage in New York and Washington.`\
-https://nytimes.com/2024/04/23/theater/macbeth-undone-shakespeare-theater.html
-
-**Did the Israel-Hamas War Influence Your Seder Rituals? Tell Us.**\
-`We want to know if the war changed the rituals or the tenor of your Seder.`\
-https://nytimes.com/2024/04/23/nyregion/seder-callout-israel-hamas-war.html
-
-**Celebrity Bag Designer Sentenced to Jail for Smuggling Exotic Skins**\
-`Nancy Gonzalez, whose clients included Britney Spears and Sofia Vergara, smuggled purses from her native Colombia to the United States using couriers. She will serve 18 months.`\
-https://nytimes.com/2024/04/23/fashion/nancy-gonzalez-smuggling-wildlife.html
 
