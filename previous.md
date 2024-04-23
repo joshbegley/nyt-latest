@@ -1,3 +1,7 @@
+**Your most pressing climate questions**\
+`Introducing Ask NYT Climate, where we’ll explore how climate intersects with your everyday life.`\
+https://nytimes.com/2024/04/23/climate/your-most-pressing-climate-questions.html
+
 **Publisher Describes Quashing Doorman’s Claim Trump Had Child Out of Wedlock**\
 `The former publisher of The National Enquirer testified at Donald J. Trump’s criminal trial that he used a so-called catch-and-kill deal to silence the doorman.`\
 https://nytimes.com/2024/04/23/nyregion/trump-child-tip-doorman-national-enquirer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/nyregion/columbia-university-campus-protests.html
 **8 Songs From the Rock & Roll Hall of Fame’s Class of 2024**\
 `Listen to soon-to-be inductees Cher, Foreigner, A Tribe Called Quest and more.`\
 https://nytimes.com/2024/04/23/arts/music/amplifier-newsletter-rock-hall-of-fame.html
-
-**Former tabloid publisher details how he helped Trump’s campaign.**\
-`By Matthew Haag`\
-https://nytimes.com/live/2024/04/23/nyregion/trump-hush-money-trial-news/national-enquirers-ex-publisher-details-how-he-helped-trumps-campaign
 

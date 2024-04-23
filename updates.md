@@ -1,3 +1,7 @@
+**Your most pressing climate questions**\
+`Introducing Ask NYT Climate, where we’ll explore how climate intersects with your everyday life.`\
+https://nytimes.com/2024/04/23/climate/your-most-pressing-climate-questions.html
+
 **Publisher Describes Quashing Doorman’s Claim Trump Had Child Out of Wedlock**\
 `The former publisher of The National Enquirer testified at Donald J. Trump’s criminal trial that he used a so-called catch-and-kill deal to silence the doorman.`\
 https://nytimes.com/2024/04/23/nyregion/trump-child-tip-doorman-national-enquirer.html
