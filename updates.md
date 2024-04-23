@@ -1,3 +1,7 @@
+**National Enquirer’s ex-publisher details how he helped Trump’s campaign.**\
+`By Matthew Haag`\
+https://nytimes.com/live/2024/04/23/nyregion/trump-hush-money-trial-news/national-enquirers-ex-publisher-details-how-he-helped-trumps-campaign
+
 **Woman Charged With Murder After Driving Into a Party, Killing 2 Children**\
 `The driver, Marshella Chidester, 66, was also charged with operating a vehicle while intoxicated. The crash injured 15 other people on Saturday.`\
 https://nytimes.com/2024/04/23/us/michigan-swan-boat-crash-charges.html
