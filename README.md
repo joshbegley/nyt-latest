@@ -1,3 +1,15 @@
+**Kathleen Hanna’s Music Says a Lot. There’s More in the Book.**\
+`In “Rebel Girl,” the punk frontwoman reveals the story of her life — the men who tried to stop her, the women who kept her going and the boy who made her a mother.`\
+https://nytimes.com/2024/04/23/arts/music/kathleen-hanna-rebel-girl-memoir.html
+
+**Winner, Winner, Hot Honey Chicken Dinner**\
+`Vallery Lomas’s new recipe for hot honey chicken is easy, delicious and already earning rave reviews.`\
+https://nytimes.com/2024/04/23/dining/winner-winner-hot-honey-chicken-dinner.html
+
+**What to Watch: ‘Baby Reindeer,’ an Astonishing Stalker Drama**\
+`The Netflix series is based on the real-life experience of its creator, Richard Gadd, who also stars in the show.`\
+https://nytimes.com/2024/04/23/arts/television/baby-reindeer-netflix.html
+
 **Judge Approves $418 Million Settlement That Will Change Real Estate Commissions**\
 `Home sellers will no longer be required to offer commission to a buyer’s agent when they sell their property, under an agreement with the National Association of Realtors`\
 https://nytimes.com/2024/04/23/realestate/nar-settlement-realtors-commission.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/23/business/general-motors-earnings.html
 **New York Court System to Publish Daily Transcripts of Trump’s Trial**\
 `A government website will also contain relevant documents for the landmark trial, which is not televised.`\
 https://nytimes.com/2024/04/23/nyregion/trump-transcripts-hush-money-trial-court.html
-
-**Why an Oregon Case Before the Supreme Court Matters So Much to California**\
-`A challenge to a small Oregon city’s law that imposes fines on homeless people for sleeping outdoors could have big implications for the Golden State.`\
-https://nytimes.com/2024/04/23/us/oregon-homelessness-case-supreme-court-california.html
-
-**Encore**\
-`A collection of short documentaries from public and private archives, unearthed and published by Op-Docs at The New York Times.`\
-https://nytimes.com/series/opdocs-encore
-
-**What is the Rwanda Policy? U.K.’s Plan for Asylum Seekers Explained**\
-`The plan has been in the works for years, but the passage of a contentious bill by Britain’s Parliament puts the country closer to sending asylum seekers to the African nation.`\
-https://nytimes.com/2024/04/23/world/europe/uk-rwanda-policy-explained.html
 
