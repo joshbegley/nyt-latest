@@ -1,3 +1,15 @@
+**Adams Defends His Pick for Top Lawyer Despite City Council Opposition**\
+`Mayor Eric Adams praised Randy Mastro’s “impressive” career as he moves to hire him as New York City’s top lawyer. A majority of the Council opposes his nomination.`\
+https://nytimes.com/2024/04/23/nyregion/randy-mastro-lawyer-nyc.html
+
+**Trump’s Trial Features Fierce Debate Over What He Can Say: 5 Takeaways**\
+`Donald J. Trump’s lawyer was harshly questioned as he tried to avoid a contempt citation. And a publisher testified about how he put The National Enquirer to work for Mr. Trump’s campaign.`\
+https://nytimes.com/2024/04/23/nyregion/trump-trial-takeaways-pecker-gag-order.html
+
+**These Voters Haven’t Missed an Election in at Least 50 Years**\
+`A relatively small share of voters participate in off-year elections, and even fewer make a habit of it. Counties in Pennsylvania honor voters who show up every time.`\
+https://nytimes.com/2024/04/23/us/elections/pennsylvania-montgomery-voter-hall-of-fame.html
+
 **National Enquirer’s Help for Trump Broke Norms Even in the Tabloid World**\
 `The tabloid’s parent company was fined for breaking federal election laws after spending money to buy and bury stories that could have harmed Donald J. Trump’s campaign.`\
 https://nytimes.com/2024/04/23/nyregion/national-enquirer-trump-trial-david-pecker.html
