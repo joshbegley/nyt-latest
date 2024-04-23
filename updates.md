@@ -1,3 +1,7 @@
+**Judge Approves $418 Million Settlement That Will Change Real Estate Commissions**\
+`Home sellers will no longer be required to offer commission to a buyer’s agent when they sell their property, under an agreement with the National Association of Realtors`\
+https://nytimes.com/2024/04/23/realestate/nar-settlement-realtors-commission.html
+
 **Planned Parenthood Plans $10 Million Boost for Democrats in North Carolina**\
 `The party is banking on abortion access as an issue to animate the state’s competitive race for governor and, they hope, galvanize voters for President Biden.`\
 https://nytimes.com/2024/04/23/us/politics/planned-parenthood-north-carolina.html
