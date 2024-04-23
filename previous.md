@@ -1,3 +1,11 @@
+**What is the Rwanda Policy? U.K.’s Plan for Asylum Seekers Explained**\
+`The plan has been in the works for years, but the passage of a contentious bill by Britain’s Parliament puts the country closer to sending asylum seekers to the African nation.`\
+https://nytimes.com/2024/04/23/world/europe/uk-rwanda-policy-explained.html
+
+**23trump-trial**\
+`Live Updates: Judge to Consider Holding Trump in Contempt for Verbal Attacks`\
+https://nytimes.com/live/2024/04/23/nyregion/trump-hush-money-trial-news
+
 **Why David Beckham Is Suing Mark Wahlberg and F45 for Millions**\
 `The former soccer star entered into a promotional agreement with the gym franchise that is co-owned by the actor, but things quickly soured.`\
 https://nytimes.com/2024/04/23/us/david-beckham-mark-wahlberg-lawsuit-f45.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/23/world/asia/india-modi-muslims.html
 **A Salacious Conspiracy or Just 34 Pieces of Paper?**\
 `Inside the criminal trial of former President Donald J. Trump.`\
 https://nytimes.com/2024/04/23/podcasts/the-daily/trump-opening-statements.html
-
-**The U.S. says it is reviewing the report and has not decided whether to resume funding for the U.N. agency.**\
-`By Patrick Kingsley and Matt Surman`\
-https://nytimes.com/live/2024/04/23/world/israel-gaza-war-hamas/the-us-says-it-is-reviewing-the-report-and-has-not-decided-whether-to-resume-funding-for-the-un-agency
-
-**23mideast-crisis**\
-`Review of U.N. Agency Prompts New Calls to Restore Its Funding`\
-https://nytimes.com/live/2024/04/23/world/israel-gaza-war-hamas
 

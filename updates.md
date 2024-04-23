@@ -1,3 +1,11 @@
+**What is the Rwanda Policy? U.K.’s Plan for Asylum Seekers Explained**\
+`The plan has been in the works for years, but the passage of a contentious bill by Britain’s Parliament puts the country closer to sending asylum seekers to the African nation.`\
+https://nytimes.com/2024/04/23/world/europe/uk-rwanda-policy-explained.html
+
+**23trump-trial**\
+`Live Updates: Judge to Consider Holding Trump in Contempt for Verbal Attacks`\
+https://nytimes.com/live/2024/04/23/nyregion/trump-hush-money-trial-news
+
 **Why David Beckham Is Suing Mark Wahlberg and F45 for Millions**\
 `The former soccer star entered into a promotional agreement with the gym franchise that is co-owned by the actor, but things quickly soured.`\
 https://nytimes.com/2024/04/23/us/david-beckham-mark-wahlberg-lawsuit-f45.html
