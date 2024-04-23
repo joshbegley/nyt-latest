@@ -1,4 +1,8 @@
 **National Enquirer’s Help for Trump Broke Norms Even in the Tabloid World**\
+`The tabloid’s parent company was fined for breaking federal election laws after spending money to buy and bury stories that could have harmed Donald J. Trump’s campaign.`\
+https://nytimes.com/2024/04/23/nyregion/national-enquirer-trump-trial-david-pecker.html
+
+**National Enquirer’s Help for Trump Broke Norms Even in the Tabloid World**\
 `The tabloid’s parent company was fined for breaking federal election laws after spending money to buy and bury stories that could harmed Donald J. Trump’s campaign.`\
 https://nytimes.com/2024/04/23/nyregion/national-enquirer-trump-trial-david-pecker.html
 
