@@ -1,3 +1,7 @@
+**To Be (Visibly) Jewish in the Ivy League**\
+`Behavior that would be scandalous if aimed at other minorities are treated as understandable or even commendable when directed at Jews.`\
+https://nytimes.com/2024/04/23/opinion/university-jewish-antisemitism-ivy.html
+
 **Trump’s ‘eyes and ears’ for scandal**\
 `A tabloid publisher testified how he helped Trump’s 2016 campaign.`\
 https://nytimes.com/2024/04/23/us/politics/trump-trial-new-york-tabloid-witness.html
