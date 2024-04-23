@@ -1,3 +1,7 @@
+**Russian Court Orders American Journalist to Stay in Prison**\
+`Evan Gershkovich, a Wall Street Journal reporter, has been held for more than a year, awaiting trial on spying charges that he, his publisher and the United States vehemently reject.`\
+https://nytimes.com/2024/04/23/world/europe/russia-evan-gershkovich-appeal.html
+
 **Adams Defends His Pick for Top Lawyer Despite City Council Opposition**\
 `Mayor Eric Adams praised Randy Mastro’s “impressive” career as he moves to hire him as New York City’s top lawyer. A majority of the Council opposes his nomination.`\
 https://nytimes.com/2024/04/23/nyregion/randy-mastro-lawyer-nyc.html
