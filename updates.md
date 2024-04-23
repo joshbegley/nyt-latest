@@ -1,3 +1,15 @@
+**Howie Schwab, ESPN Researcher and Trivia Star, Dies at 63**\
+`He stepped out of his behind-the-scenes role in 2004 when he was cast as the ultimate sports know-it-all on the game show “Stump the Schwab.”`\
+https://nytimes.com/2024/04/23/sports/howie-schwab-dead.html
+
+**‘It Is Desolate’: China’s Glut of Unused Car Factories**\
+`Manufacturers like BYD, Tesla and Li Auto are cutting prices to move their electric cars. For gasoline-powered vehicles, the surplus of factories is even worse.`\
+https://nytimes.com/2024/04/23/business/china-auto-factories-price-cuts.html
+
+**Beyoncé Showed Her Hair Being Washed. Here’s Why It Matters.**\
+`In a video on Instagram, the singer provided fans a rare glimpse of her routine.`\
+https://nytimes.com/2024/04/23/style/beyonce-real-hair-cecred-products.html
+
 **Biden Says Trump Is Responsible for ‘Nightmare’ State Abortion Laws**\
 `Biden tied a six-week abortion ban that will soon take place in Florida to former President Donald J. Trump and Republican efforts to ban abortion nationwide.`\
 https://nytimes.com/video/us/politics/100000009429934/biden-abortion-reproductive-rights.html
