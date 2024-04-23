@@ -1,3 +1,11 @@
+**Planned Parenthood Plans $10 Million Boost for Democrats in North Carolina**\
+`The party is banking on abortion access as an issue to animate the state’s competitive race for governor and, they hope, galvanize voters for President Biden.`\
+https://nytimes.com/2024/04/23/us/politics/planned-parenthood-north-carolina.html
+
+**Pennsylvania Holds Its Primaries Today. Here’s What to Watch.**\
+`The Democratic primary for Representative Summer Lee, a vocal Israel critic, is the contest getting the most attention on Tuesday.`\
+https://nytimes.com/2024/04/23/us/politics/pennsylvania-primaries-house-races.html
+
 **Supreme Court to Hear Starbucks Challenge to Labor Ruling**\
 `The case, which stems from the firing of seven Starbucks workers in Memphis, seeks to limit the National Labor Relations Board’s ability to obtain a court intervention in labor cases.`\
 https://nytimes.com/2024/04/23/business/supreme-court-starbucks-labor.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/23/world/europe/uk-rwanda-policy-explained.html
 **23trump-trial**\
 `Live Updates: Prosecutors Say Trump’s Attacks Are Threat to Trial`\
 https://nytimes.com/live/2024/04/23/nyregion/trump-hush-money-trial-news
-
-**Why David Beckham Is Suing Mark Wahlberg and F45 for Millions**\
-`The former soccer star entered into a promotional agreement with the gym franchise that is co-owned by the actor, but things quickly soured.`\
-https://nytimes.com/2024/04/23/us/david-beckham-mark-wahlberg-lawsuit-f45.html
-
-**Weekly Student News Quiz: Dubai, College Protests, Caitlin Clark**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2024/04/23/learning/23StudentNewsQuizLN.html
 

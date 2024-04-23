@@ -1,3 +1,11 @@
+**Planned Parenthood Plans $10 Million Boost for Democrats in North Carolina**\
+`The party is banking on abortion access as an issue to animate the state’s competitive race for governor and, they hope, galvanize voters for President Biden.`\
+https://nytimes.com/2024/04/23/us/politics/planned-parenthood-north-carolina.html
+
+**Pennsylvania Holds Its Primaries Today. Here’s What to Watch.**\
+`The Democratic primary for Representative Summer Lee, a vocal Israel critic, is the contest getting the most attention on Tuesday.`\
+https://nytimes.com/2024/04/23/us/politics/pennsylvania-primaries-house-races.html
+
 **23trump-trial**\
 `Live Updates: Prosecutors Say Trump’s Attacks Are Threat to Trial`\
 https://nytimes.com/live/2024/04/23/nyregion/trump-hush-money-trial-news
