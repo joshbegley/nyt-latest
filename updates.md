@@ -1,3 +1,7 @@
+**Israel carries out airstrikes and orders new evacuations in parts of Beit Lahia, in northern Gaza.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/04/23/world/israel-hamas-war-gaza/israel-carries-out-airstrikes-and-orders-new-evacuations-in-parts-of-beit-lahia-in-northern-gaza
+
 **David Pecker and ‘The Trump Tower Conspiracy’**\
 `Even the worm turns.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/pecker-testimony-trump-trial
