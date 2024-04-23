@@ -1,3 +1,7 @@
+**At Least 5 Die Trying to Cross English Channel, Including a Young Girl**\
+`The British and French authorities have struggled to find ways to deter people from making the perilous journey.`\
+https://nytimes.com/2024/04/23/world/europe/france-uk-migrant-deaths-english-channel.html
+
 **Donors Stay Largely Silent Amid New Wave of Campus Protests**\
 `Robert Kraft, an alumnus of Columbia, suggested he would withhold donations to the school. Other alumni are keeping quiet.`\
 https://nytimes.com/2024/04/23/business/dealbook/donors-protests-columbia-kraft.html
