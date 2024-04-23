@@ -1,3 +1,11 @@
+**Trump’s ‘eyes and ears’ for scandal**\
+`A tabloid publisher testified how he helped Trump’s 2016 campaign.`\
+https://nytimes.com/2024/04/23/us/politics/trump-trial-new-york-tabloid-witness.html
+
+**Joe Biden, Abortion Warrior?**\
+`Tuesday’s speech was an impressive call to arms.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/biden-abortion-speech
+
 **Howie Schwab, ESPN Researcher and Trivia Star, Dies at 63**\
 `He stepped out of his behind-the-scenes role in 2004 when he was cast as the ultimate sports know-it-all on the game show “Stump the Schwab.”`\
 https://nytimes.com/2024/04/23/sports/howie-schwab-dead.html
