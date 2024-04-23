@@ -1,3 +1,11 @@
+**To Justify His Immunity Defense, Trump Flips the Prosecution Script**\
+`The former president’s claim ahead of a pivotal Supreme Court hearing that he was protecting the election system rather than subverting it is part of a pattern of shaping his own reality.`\
+https://nytimes.com/2024/04/23/us/politics/immunity-trump-election-court.html
+
+**A Brewery Worker’s Drunken Driving Defense: His Stomach Made the Alcohol**\
+`A 40-year-old man was acquitted of a drunken driving offense after doctors confirmed he had a rare condition: auto-brewery syndrome.`\
+https://nytimes.com/2024/04/23/world/europe/belgian-man-drunk-driving-alcohol.html
+
 **A Hearing Turns Heated as Judge Considers Citing Trump for Contempt**\
 `Justice Juan M. Merchan, overseeing Donald J. Trump’s criminal trial, warned the former president’s lawyer that he was losing credibility.`\
 https://nytimes.com/2024/04/23/nyregion/trump-hush-money-gag-order-hearing-contempt.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/23/nyregion/seder-callout-israel-hamas-war.html
 **Celebrity Bag Designer Sentenced to Jail for Smuggling Exotic Skins**\
 `Nancy Gonzalez, whose clients included Britney Spears and Sofia Vergara, smuggled purses from her native Colombia to the United States using couriers. She will serve 18 months.`\
 https://nytimes.com/2024/04/23/fashion/nancy-gonzalez-smuggling-wildlife.html
-
-**Kathleen Hanna’s Music Says a Lot. There’s More in the Book.**\
-`In “Rebel Girl,” the punk frontwoman reveals the story of her life — the men who tried to stop her, the women who kept her going and the boy who made her a mother.`\
-https://nytimes.com/2024/04/23/arts/music/kathleen-hanna-rebel-girl-memoir.html
-
-**Winner, Winner, Hot Honey Chicken Dinner**\
-`Vallery Lomas’s new recipe for hot honey chicken is easy, delicious and already earning rave reviews.`\
-https://nytimes.com/2024/04/23/dining/winner-winner-hot-honey-chicken-dinner.html
 
