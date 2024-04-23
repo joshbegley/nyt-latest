@@ -1,3 +1,11 @@
+**Justice Dept. Reaches $138.7 Million Settlement Over F.B.I.’s Failures in Nassar Case**\
+`The settlement likely marks the end of a yearslong effort by U.S. Olympic gymnasts to seek justice for early failures by the F.B.I. to investigate Lawrence G. Nassar, the team’s doctor.`\
+https://nytimes.com/2024/04/23/us/politics/us-dlarry-nassar-fbi-settlement.html
+
+**Who Can Be Trusted for Retirement Advice? New Rules Strengthen Protections.**\
+`More investment professionals will be required to act in their customers’ best interest when providing advice about their retirement money.`\
+https://nytimes.com/2024/04/23/business/fiduciary-rules-retirement-money.html
+
 **Justice Dept. Reaches $138.7 Million Settlement Over F.B.I.’s Early Failures to Investigate Nassar**\
 `The settlement likely marks the end of a yearslong effort by U.S. Olympic gymnasts to achieve a measure of justice that the institutions entrusted to protect young female athletes failed to protect them.`\
 https://nytimes.com/2024/04/23/us/politics/larry-nassar-fbi-gymnasts.html
