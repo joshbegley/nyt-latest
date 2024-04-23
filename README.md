@@ -1,3 +1,7 @@
+**At Least 5 Die Trying to Cross English Channel, Including a Young Girl**\
+`The British and French authorities have struggled to find ways to deter people from making the perilous journey.`\
+https://nytimes.com/2024/04/23/world/europe/france-uk-migrant-deaths-english-channel.html
+
 **Donors Stay Largely Silent Amid New Wave of Campus Protests**\
 `Robert Kraft, an alumnus of Columbia, suggested he would withhold donations to the school. Other alumni are keeping quiet.`\
 https://nytimes.com/2024/04/23/business/dealbook/donors-protests-columbia-kraft.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/business/trump-media-stake.html
 **Senate Moves Toward Approving Aid to Ukraine, Israel and Taiwan**\
 `Support for the package in the Senate is expected to be overwhelming and bipartisan, and President Biden has urged lawmakers to quickly take it up so he can sign it into law.`\
 https://nytimes.com/2024/04/23/world/europe/senate-aid-package-ukraine-israel-taiwan.html
-
-**Biden to Give Abortion-Focused Speech in Florida, Tying State Ban to Trump**\
-`The Biden campaign has made abortion one of its top issues, as polling shows it is one of the few subjects in which voters place more trust in President Biden than Donald Trump.`\
-https://nytimes.com/2024/04/23/us/politics/biden-abortion-florida-trump.html
 
