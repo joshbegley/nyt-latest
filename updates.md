@@ -1,3 +1,7 @@
+**San Francisco Mayor Gives Panda Diplomacy a Try**\
+`In a city still struggling to recover from the pandemic, Mayor London Breed hopes giant pandas will lift the spirits — and the economy — of San Francisco.`\
+https://nytimes.com/2024/04/22/us/san-francisco-mayor-gives-panda-diplomacy-a-try.html
+
 **Trump Criminal Trial Day 5: Opening Statements and a Brisk Pace**\
 `Jonah Bromwich, a criminal justice reporter at The New York Times, gives the major takeaways from the opening statements and the first witness of Trump’s criminal trial in Manhattan. An earlier version of this video misstated that it’s the sixth day of the Trump hush-money trial. It is Day 5.`\
 https://nytimes.com/video/nyregion/100000009427516/trump-criminal-trial-opening-statements.html
