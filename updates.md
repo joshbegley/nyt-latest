@@ -1,3 +1,7 @@
+**As College Students Protest, Harris Keeps Her Focus on Abortion**\
+`“When we think about what is at stake, it is absolutely about freedom,” Vice President Kamala Harris said during a visit to Wisconsin.`\
+https://nytimes.com/2024/04/22/us/politics/kamala-harris-wisconsin-abortion.html
+
 **San Francisco Mayor Gives Panda Diplomacy a Try**\
 `In a city still struggling to recover from the pandemic, Mayor London Breed hopes giant pandas will lift the spirits — and the economy — of San Francisco.`\
 https://nytimes.com/2024/04/22/us/san-francisco-mayor-gives-panda-diplomacy-a-try.html
