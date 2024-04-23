@@ -1,3 +1,7 @@
+**Baltimore Says Owner of Ship that Hit Key Bridge Was Negligent**\
+`The owner and manager of the cargo ship that downed the Francis Scott Key Bridge asked a judge to exonerate them from liability. The city argued otherwise.`\
+https://nytimes.com/2024/04/23/us/baltimore-key-bridge-collapse-ship.html
+
 **Malaysian Navy Helicopters Collide Midair, Killing All 10 People Aboard**\
 `The two helicopters were rehearsing for a parade to celebrate the navy’s 90th anniversary.`\
 https://nytimes.com/2024/04/23/world/asia/malaysia-navy-helicopters-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/crosswords/spelling-bee-forum.html
 **The Connections Companion No. 317**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/04/23/crosswords/connections-companion.html
-
-**Today’s Wordle Review No. 1,039**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/23/crosswords/wordle-review.html
 
