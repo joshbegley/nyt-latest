@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`The opening of Donald Trump’s Manhattan trial.`\
+https://nytimes.com/2024/04/23/briefing/trump-trial-israel-intelligence-resign.html
+
 **A Gen Z Resistance, Cut Off From Data Plans**\
 `Even through the Myanmar army’s communications blackout, residents of a conflict zone find moments of grace, and occasional connectivity, away from the battlefield.`\
 https://nytimes.com/2024/04/23/world/asia/myanmar-rebels-internet.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/crosswords/daily-puzzle-2024-04-23.html
 **A Night Different From Others as Campus Protests Break for Seder**\
 `Pro-Palestinian protesters, many of whom are Jewish, prepared Seder dinners at college protest encampments, even as other Jewish students sought community in more traditional settings.`\
 https://nytimes.com/2024/04/22/us/campus-protest-seders.html
-
-**Strong Aftershocks From Deadly Quake Rattle Taiwan**\
-`No injuries or deaths were immediately reported, but two buildings partially collapsed in the tremors, which followed a powerful April 3 quake that killed 17 people.`\
-https://nytimes.com/2024/04/22/world/asia/taiwan-earthquake.html
 

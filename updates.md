@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`The opening of Donald Trump’s Manhattan trial.`\
+https://nytimes.com/2024/04/23/briefing/trump-trial-israel-intelligence-resign.html
+
 **A Gen Z Resistance, Cut Off From Data Plans**\
 `Even through the Myanmar army’s communications blackout, residents of a conflict zone find moments of grace, and occasional connectivity, away from the battlefield.`\
 https://nytimes.com/2024/04/23/world/asia/myanmar-rebels-internet.html
