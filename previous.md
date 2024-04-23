@@ -1,3 +1,7 @@
+**Woman Charged With Murder After Driving Into a Party, Killing 2 Children**\
+`The driver, Marshella Chidester, 66, was also charged with operating a vehicle while intoxicated. The crash injured 15 other people on Saturday.`\
+https://nytimes.com/2024/04/23/us/michigan-swan-boat-crash-charges.html
+
 **Italy’s New Abortion Law Is a Lesson in How Meloni Governs**\
 `The measure, largely restating existing law, shows the prime minister’s skill at reassuring her right-wing base without sacrificing her increasingly mainstream image.`\
 https://nytimes.com/2024/04/23/world/europe/italy-abortion-law-meloni.html

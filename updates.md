@@ -1,3 +1,7 @@
+**Woman Charged With Murder After Driving Into a Party, Killing 2 Children**\
+`The driver, Marshella Chidester, 66, was also charged with operating a vehicle while intoxicated. The crash injured 15 other people on Saturday.`\
+https://nytimes.com/2024/04/23/us/michigan-swan-boat-crash-charges.html
+
 **Justice Dept. Reaches $138.7 Million Settlement Over F.B.I.’s Failures in Nassar Case**\
 `The settlement likely signifies the end of a yearslong effort by U.S. Olympic gymnasts to seek justice for early failures by the F.B.I. to investigate Lawrence G. Nassar, the team’s doctor.`\
 https://nytimes.com/2024/04/23/us/politics/us-doj-larry-nassar-fbi-settlement.html
