@@ -1,3 +1,15 @@
+**Ukraine Could Receive Some U.S. Aid ‘Within Days’**\
+`Also, the F.T.C. banned noncompete clauses. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/04/23/briefing/ukraine-aid-senate-trump-trial-testimony.html
+
+**Fragments of Bird Flu Virus Discovered in Milk**\
+`The milk poses virtually no risk to consumers, experts said. But the finding suggests that the outbreak in dairy cows is wider than has been known.`\
+https://nytimes.com/2024/04/23/health/bird-flu-milk.html
+
+**Here’s What’s in the Foreign Aid Package That Is Headed Toward Becoming Law**\
+`Assistance for Ukraine, Israel and Taiwan is paired with legislation to impose fresh rounds of sanctions on Iran and Russia and a measure that could lead to a ban on TikTok in the United States.`\
+https://nytimes.com/2024/04/23/us/politics/aid-bill-ukraine-israel-taiwan.html
+
 **Trump’s ‘eyes and ears’ for scandal**\
 `A tabloid publisher testified how he helped Trump’s 2016 campaign.`\
 https://nytimes.com/2024/04/23/us/politics/trump-trial-new-york-tabloid-witness.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/politics/100000009429934/biden-abortion-reproductiv
 **Biden Will Speak at Morehouse and West Point Graduations**\
 `President Biden will deliver the commencement addresses in May as U.S. support for Israel fuels protests on other campuses.`\
 https://nytimes.com/2024/04/23/us/politics/biden-morehouse-west-point-commencement.html
-
-**Wednesday Briefing: Senate Votes on Ukraine Aid**\
-`Also, a former tabloid publisher testifies against Donald Trump.`\
-https://nytimes.com/2024/04/23/world/asia/senate-ukraine-trump-trial-asia.html
-
-**Trump Endures a Rugged Day in Court as Witness Details ‘Catch and Kill’**\
-`The judge questioned the credibility of Donald J. Trump’s defense lawyer, and a key witness told of a plan to buy and bury stories that might have harmed the candidate.`\
-https://nytimes.com/2024/04/23/nyregion/trump-hush-money-trial-pecker-testimony.html
-
-**Student Editorial Boards Rebuke College Officials for Protest Decisions**\
-`Around the nation, editorial boards at college newspapers have defended free speech and pro-Palestinian protesters in recent weeks.`\
-https://nytimes.com/2024/04/23/us/college-protest-editorial-voices.html
 

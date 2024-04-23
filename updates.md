@@ -1,3 +1,15 @@
+**Ukraine Could Receive Some U.S. Aid ‘Within Days’**\
+`Also, the F.T.C. banned noncompete clauses. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/04/23/briefing/ukraine-aid-senate-trump-trial-testimony.html
+
+**Fragments of Bird Flu Virus Discovered in Milk**\
+`The milk poses virtually no risk to consumers, experts said. But the finding suggests that the outbreak in dairy cows is wider than has been known.`\
+https://nytimes.com/2024/04/23/health/bird-flu-milk.html
+
+**Here’s What’s in the Foreign Aid Package That Is Headed Toward Becoming Law**\
+`Assistance for Ukraine, Israel and Taiwan is paired with legislation to impose fresh rounds of sanctions on Iran and Russia and a measure that could lead to a ban on TikTok in the United States.`\
+https://nytimes.com/2024/04/23/us/politics/aid-bill-ukraine-israel-taiwan.html
+
 **Biden Says Trump Is Responsible for ‘Nightmare’ State Abortion Laws**\
 `President Biden tied a six-week abortion ban that will soon take place in Florida to former President Donald J. Trump and Republican efforts to ban abortion nationwide.`\
 https://nytimes.com/video/us/politics/100000009429934/biden-abortion-reproductive-rights.html
