@@ -8,7 +8,7 @@ https://nytimes.com/2024/04/23/health/bird-flu-milk.html
 
 **Here’s What’s in the Foreign Aid Package That Is Headed Toward Becoming Law**\
 `Assistance for Ukraine, Israel and Taiwan is paired with legislation to impose fresh rounds of sanctions on Iran and Russia and a measure that could lead to a ban on TikTok in the United States.`\
-https://nytimes.com/2024/04/23/us/politics/foreign-aid-explainer.html
+https://nytimes.com/2024/04/23/us/politics/aid-bill-ukraine-israel-taiwan.html
 
 **Trump’s ‘eyes and ears’ for scandal**\
 `A tabloid publisher testified how he helped Trump’s 2016 campaign.`\
