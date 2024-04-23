@@ -1,3 +1,7 @@
+**Judge Approves $418 Million Settlement That Will Change Real Estate Commissions**\
+`Home sellers will no longer be required to offer commission to a buyer’s agent when they sell their property, under an agreement with the National Association of Realtors.`\
+https://nytimes.com/2024/04/23/realestate/nar-settlement-realtors-commission.html
+
 **Celebrity Bag Designer Sentenced to Jail for Smuggling Exotic Skins**\
 `Nancy Gonzalez, whose clients included Britney Spears and Sofia Vergara, smuggled purses from her native Colombia to the United States using couriers. She will serve 18 months.`\
 https://nytimes.com/2024/04/23/fashion/nancy-gonzalez-smuggling-wildlife.html
