@@ -1,3 +1,7 @@
+**Roaches’ Lullaby**\
+`In the 1970s, the filmmakers Claudia Weill and Eli Noyes interviewed New Yorkers across the city about their unwanted roommates: roaches.`\
+https://nytimes.com/video/opinion/100000009295568/roaches-lullaby.html
+
 **Baltimore Says Owner of Ship that Hit Key Bridge Was Negligent**\
 `The owner and manager of the cargo ship that downed the Francis Scott Key Bridge asked a judge to exonerate them from liability. The city argued otherwise.`\
 https://nytimes.com/2024/04/23/us/baltimore-key-bridge-collapse-ship.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/insider/pete-wells-new-york.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/04/23/crosswords/spelling-bee-forum.html
-
-**The Connections Companion No. 317**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/23/crosswords/connections-companion.html
 
