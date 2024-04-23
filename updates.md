@@ -1,3 +1,7 @@
+**Mistrial Declared in Case of Arizona Rancher Accused of Murdering Migrant**\
+`George Alan Kelly is accused of fatally shooting Gabriel Cuen-Buitimea, an unarmed migrant from Mexico, on his 170-acre ranch in Kino Springs, Ariz., last year.`\
+https://nytimes.com/2024/04/22/us/arizona-rancher-migrant-death-verdict.html
+
 **Review: It’s All Right to Groove to Huey in ‘The Heart of Rock and Roll’**\
 `The new musical doesn’t take itself too seriously and has many winning moments — almost enough to eclipse the weaknesses of its story.`\
 https://nytimes.com/2024/04/22/theater/heart-of-rock-and-roll-review.html
