@@ -1,3 +1,11 @@
+**Supreme Court to Hear Starbucks Challenge to Labor Ruling**\
+`The case, which stems from the firing of seven Starbucks workers in Memphis, seeks to limit the National Labor Relations Board’s ability to obtain a court intervention in labor cases.`\
+https://nytimes.com/2024/04/23/business/supreme-court-starbucks-labor.html
+
+**23trump-trial**\
+`Live Updates: Prosecutors Say Trump’s Attacks Are a Threat to Trial`\
+https://nytimes.com/live/2024/04/23/nyregion/trump-hush-money-trial-news
+
 **Columbia Offers Remote Classes for the Last Days of the Semester**\
 `Tensions have rippled out to other schools. Protesters were arrested at Yale and New York University. And new protest encampments popped up on several campuses.`\
 https://nytimes.com/2024/04/23/us/columbia-university-remote-classes-protests.html

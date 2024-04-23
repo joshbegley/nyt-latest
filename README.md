@@ -27,7 +27,7 @@ https://nytimes.com/series/opdocs-encore
 https://nytimes.com/2024/04/23/world/europe/uk-rwanda-policy-explained.html
 
 **23trump-trial**\
-`Live Updates: Prosecutors Say Trump’s Attacks Are a Threat to Trial`\
+`Live Updates: Prosecutors Say Trump’s Attacks Are Threat to Trial`\
 https://nytimes.com/live/2024/04/23/nyregion/trump-hush-money-trial-news
 
 **Why David Beckham Is Suing Mark Wahlberg and F45 for Millions**\
