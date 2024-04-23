@@ -1,6 +1,6 @@
 **Justice Dept. Reaches $138.7 Million Settlement Over F.B.I.’s Failures in Nassar Case**\
 `The settlement likely marks the end of a yearslong effort by U.S. Olympic gymnasts to seek justice for early failures by the F.B.I. to investigate Lawrence G. Nassar, the team’s doctor.`\
-https://nytimes.com/2024/04/23/us/politics/larry-nassar-fbi-gymnasts.html
+https://nytimes.com/2024/04/23/us/politics/us-dlarry-nassar-fbi-settlement.html
 
 **Terry Carter, Barrier-Breaking Actor and Documentarian, Dies at 95**\
 `He was the only Black actor on “Combat!” and “The Phil Silvers Show,” then made well regarded documentaries on luminaries like Duke Ellington and Katherine Dunham.`\
