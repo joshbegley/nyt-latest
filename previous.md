@@ -1,3 +1,11 @@
+**Transcript: Ezra Klein Interviews Adam Moss**\
+`The April 23, 2023, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/04/23/podcasts/transcript-ezra-klein-interviews-adam-moss.html
+
+**20 Years Later, a Jury Weighs Claims of Abuse at Abu Ghraib**\
+`Three men who were detained at the notorious prison in Iraq are suing a defense contractor, saying its interrogators told U.S. soldiers to “soften up” prisoners.`\
+https://nytimes.com/2024/04/23/us/abu-ghraib-abuse-lawsuit-iraq-prison.html
+
 **I’m a Columbia Professor. The Protests on My Campus Are Not Justice.**\
 `I do not believe that the Columbia demonstrators are driven by antisemitism, but their actions have gone way too far.`\
 https://nytimes.com/2024/04/23/opinion/columbia-protests-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/23/opinion/ukraine-aid-military.html
 **Russian Court Orders American Journalist to Stay in Prison**\
 `Evan Gershkovich, a Wall Street Journal reporter, has been held for more than a year, awaiting trial on spying charges that he, his publisher and the United States vehemently reject.`\
 https://nytimes.com/2024/04/23/world/europe/russia-evan-gershkovich-appeal.html
-
-**Adams Defends His Pick for Top Lawyer Despite City Council Opposition**\
-`Mayor Eric Adams praised Randy Mastro’s “impressive” career as he moves to hire him as New York City’s top lawyer. A majority of the Council opposes his nomination.`\
-https://nytimes.com/2024/04/23/nyregion/randy-mastro-lawyer-nyc.html
-
-**Trump’s Trial Features Fierce Debate Over What He Can Say: 5 Takeaways**\
-`Donald J. Trump’s lawyer was harshly questioned as he tried to avoid a contempt citation. And a publisher testified about how he put The National Enquirer to work for Mr. Trump’s campaign.`\
-https://nytimes.com/2024/04/23/nyregion/trump-trial-takeaways-pecker-gag-order.html
 

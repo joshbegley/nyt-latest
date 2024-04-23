@@ -1,3 +1,11 @@
+**Transcript: Ezra Klein Interviews Adam Moss**\
+`The April 23, 2023, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/04/23/podcasts/transcript-ezra-klein-interviews-adam-moss.html
+
+**20 Years Later, a Jury Weighs Claims of Abuse at Abu Ghraib**\
+`Three men who were detained at the notorious prison in Iraq are suing a defense contractor, saying its interrogators told U.S. soldiers to “soften up” prisoners.`\
+https://nytimes.com/2024/04/23/us/abu-ghraib-abuse-lawsuit-iraq-prison.html
+
 **I’m a Columbia Professor. The Protests on My Campus Are Not Justice.**\
 `I do not believe that the Columbia demonstrators are driven by antisemitism, but their actions have gone way too far.`\
 https://nytimes.com/2024/04/23/opinion/columbia-protests-israel.html
