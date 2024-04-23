@@ -1,3 +1,7 @@
+**David Pecker and ‘The Trump Tower Conspiracy’**\
+`Even the worm turns.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/pecker-testimony-trump-trial
+
 **Ukraine Could Receive Some U.S. Aid ‘Within Days’**\
 `Also, the F.T.C. banned noncompete clauses. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/04/23/briefing/ukraine-aid-senate-trump-trial-testimony.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/style/beyonce-real-hair-cecred-products.html
 **Biden Says Trump Is Responsible for ‘Nightmare’ State Abortion Laws**\
 `President Biden tied a six-week abortion ban that will soon take place in Florida to former President Donald J. Trump and Republican efforts to ban abortion nationwide.`\
 https://nytimes.com/video/us/politics/100000009429934/biden-abortion-reproductive-rights.html
-
-**Biden Will Speak at Morehouse and West Point Graduations**\
-`President Biden will deliver the commencement addresses in May as U.S. support for Israel fuels protests on other campuses.`\
-https://nytimes.com/2024/04/23/us/politics/biden-morehouse-west-point-commencement.html
 
