@@ -1,3 +1,7 @@
+**Trump Criminal Trial Day 5: Opening Statements and a Brisk Pace**\
+`Jonah Bromwich, a criminal justice reporter at The New York Times, gives the major takeaways from the opening statements and the first witness of Trump’s criminal trial in Manhattan. An earlier version of this video misstated that it’s the sixth day of the Trump hush-money trial. It is Day 5.`\
+https://nytimes.com/video/nyregion/100000009427516/trump-criminal-trial-opening-statements.html
+
 **Mistrial Declared in Case of Arizona Rancher Accused of Murdering Migrant**\
 `George Alan Kelly is accused of fatally shooting Gabriel Cuen-Buitimea, an unarmed migrant from Mexico, on his 170-acre ranch in Kino Springs, Ariz., last year.`\
 https://nytimes.com/2024/04/22/us/arizona-rancher-migrant-death-verdict.html
