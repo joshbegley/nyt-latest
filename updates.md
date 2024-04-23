@@ -1,3 +1,11 @@
+**To Justify His Immunity Defense, Trump Flips the Prosecution Script**\
+`The former president’s claim ahead of a pivotal Supreme Court hearing that he was protecting the election system rather than subverting it is part of a pattern of shaping his own reality.`\
+https://nytimes.com/2024/04/23/us/politics/immunity-trump-election-court.html
+
+**A Brewery Worker’s Drunken Driving Defense: His Stomach Made the Alcohol**\
+`A 40-year-old man was acquitted of a drunken driving offense after doctors confirmed he had a rare condition: auto-brewery syndrome.`\
+https://nytimes.com/2024/04/23/world/europe/belgian-man-drunk-driving-alcohol.html
+
 **A Hearing Turns Heated as Judge Considers Citing Trump for Contempt**\
 `Justice Juan M. Merchan, overseeing Donald J. Trump’s criminal trial, warned the former president’s lawyer that he was losing credibility.`\
 https://nytimes.com/2024/04/23/nyregion/trump-hush-money-gag-order-hearing-contempt.html
