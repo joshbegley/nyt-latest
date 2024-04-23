@@ -1,3 +1,11 @@
+**Earthquakes in Taiwan Damage Buildings**\
+`A series of earthquakes in the city of Hualien on Monday were aftershocks from a deadly quake in early April, the authorities said.`\
+https://nytimes.com/video/world/asia/100000009428187/taiwan-earthquake-hualien.html
+
+**Universities Struggle as Pro-Palestinian Demonstrations Grow**\
+`Students were arrested at N.Y.U. and Yale on Monday. But at Columbia, that approach led to a new encampment and demonstrations outside its gates.`\
+https://nytimes.com/2024/04/22/us/campus-protests-arrests.html
+
 **Quotation of the Day: Asia Heat Wave Bakes Millions, Disrupting Work and Agriculture**\
 `Quotation of the Day for Tuesday, April 23, 2024.`\
 https://nytimes.com/2024/04/22/pageoneplus/quotation-of-the-day-asia-heat-wave-bakes-millions-disrupting-work-and-agriculture.html
