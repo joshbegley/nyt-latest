@@ -1,3 +1,7 @@
+**23trump-trial**\
+`Live Updates: Prosecutors Say Trump’s Attacks Are Threat to Trial`\
+https://nytimes.com/live/2024/04/23/nyregion/trump-hush-money-trial-news
+
 **Supreme Court to Hear Starbucks Challenge to Labor Ruling**\
 `The case, which stems from the firing of seven Starbucks workers in Memphis, seeks to limit the National Labor Relations Board’s ability to obtain a court intervention in labor cases.`\
 https://nytimes.com/2024/04/23/business/supreme-court-starbucks-labor.html
