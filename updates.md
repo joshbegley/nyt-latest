@@ -1,3 +1,7 @@
+**David Pecker and ‘The Trump Tower Conspiracy’**\
+`Even the worm turns.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/pecker-testimony-trump-trial
+
 **Ukraine Could Receive Some U.S. Aid ‘Within Days’**\
 `Also, the F.T.C. banned noncompete clauses. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/04/23/briefing/ukraine-aid-senate-trump-trial-testimony.html
