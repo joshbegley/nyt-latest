@@ -1,3 +1,11 @@
+**Italy’s New Abortion Law Is a Lesson in How Meloni Governs**\
+`The measure, largely restating existing law, shows the prime minister’s skill at reassuring her right-wing base without sacrificing her increasingly mainstream image.`\
+https://nytimes.com/2024/04/23/world/europe/italy-abortion-law-meloni.html
+
+**Justice Dept. Reaches $138.7 Million Settlement Over F.B.I.’s Failures in Nassar Case**\
+`The settlement likely marks the end of a yearslong effort by U.S. Olympic gymnasts to seek justice for early failures by the F.B.I. to investigate Lawrence G. Nassar, the team’s doctor.`\
+https://nytimes.com/2024/04/23/us/politics/us-doj-larry-nassar-fbi-settlement.html
+
 **Justice Dept. Reaches $138.7 Million Settlement Over F.B.I.’s Failures in Nassar Case**\
 `The settlement likely marks the end of a yearslong effort by U.S. Olympic gymnasts to seek justice for early failures by the F.B.I. to investigate Lawrence G. Nassar, the team’s doctor.`\
 https://nytimes.com/2024/04/23/us/politics/us-dlarry-nassar-fbi-settlement.html
