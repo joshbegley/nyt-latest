@@ -1,3 +1,11 @@
+**‘It Is Desolate’: China’s Glut of Unused Car Factories**\
+`Manufacturers like BYD, Tesla and Li Auto are cutting prices to move their electric cars. For gasoline-powered vehicles, the surplus of factories is even worse.`\
+https://nytimes.com/2024/04/23/business/china-auto-factories-price-cuts.html
+
+**Beyoncé Showed Her Hair Being Washed. Here’s Why It Matters.**\
+`In a video on Instagram, the singer provided fans a rare glimpse of her routine.`\
+https://nytimes.com/2024/04/23/style/beyonce-real-hair-cecred-products.html
+
 **Biden Says Trump Is Responsible for ‘Nightmare’ State Abortion Laws**\
 `Biden tied a six-week abortion ban that will soon take place in Florida to former President Donald J. Trump and Republican efforts to ban abortion nationwide.`\
 https://nytimes.com/video/us/politics/100000009429934/biden-abortion-reproductive-rights.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/16/opinion/thepoint/trump-trial-contempt
 **Transcript: Ezra Klein Interviews Adam Moss**\
 `The April 23, 2023, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/04/23/podcasts/transcript-ezra-klein-interviews-adam-moss.html
-
-**20 Years Later, a Jury Weighs Claims of Abuse at Abu Ghraib**\
-`Three men who were detained at the notorious prison in Iraq are suing a defense contractor, saying its interrogators told U.S. soldiers to “soften up” prisoners.`\
-https://nytimes.com/2024/04/23/us/abu-ghraib-abuse-lawsuit-iraq-prison.html
-
-**I’m a Columbia Professor. The Protests on My Campus Are Not Justice.**\
-`I do not believe that the Columbia demonstrators are driven by antisemitism, but their actions have gone way too far.`\
-https://nytimes.com/2024/04/23/opinion/columbia-protests-israel.html
 
