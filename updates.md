@@ -1,3 +1,7 @@
+**Baltimore Says Owner of Ship that Hit Key Bridge Was Negligent**\
+`The owner and manager of the cargo ship that downed the Francis Scott Key Bridge asked a judge to exonerate them from liability. The city argued otherwise.`\
+https://nytimes.com/2024/04/23/us/baltimore-key-bridge-collapse-ship.html
+
 **Malaysian Navy Helicopters Collide Midair, Killing All 10 People Aboard**\
 `The two helicopters were rehearsing for a parade to celebrate the navy’s 90th anniversary.`\
 https://nytimes.com/2024/04/23/world/asia/malaysia-navy-helicopters-crash.html
