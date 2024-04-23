@@ -1,3 +1,11 @@
+**Biden Says Trump Is Responsible for ‘Nightmare’ State Abortion Laws**\
+`Biden tied a six-week abortion ban that will soon take place in Florida to former President Donald J. Trump and Republican efforts to ban abortion nationwide.`\
+https://nytimes.com/video/us/politics/100000009429934/biden-abortion-reproductive-rights.html
+
+**Biden Will Speak at Morehouse and West Point Graduations**\
+`President Biden will deliver the commencement addresses in May as U.S. support for Israel fuels protests on other campuses.`\
+https://nytimes.com/2024/04/23/us/politics/biden-morehouse-west-point-commencement.html
+
 **Wednesday Briefing: Senate Votes on Ukraine Aid**\
 `Also, a former tabloid publisher testifies against Donald Trump.`\
 https://nytimes.com/2024/04/23/world/asia/senate-ukraine-trump-trial-asia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/23/us/abu-ghraib-abuse-lawsuit-iraq-prison.html
 **I’m a Columbia Professor. The Protests on My Campus Are Not Justice.**\
 `I do not believe that the Columbia demonstrators are driven by antisemitism, but their actions have gone way too far.`\
 https://nytimes.com/2024/04/23/opinion/columbia-protests-israel.html
-
-**F.T.C. Issues Ban on Worker Noncompete Clauses**\
-`The rule would prohibit companies from limiting their employees’ ability to work for rivals, a change that could increase competition and boost wages.`\
-https://nytimes.com/2024/04/23/business/noncompete-clause-ban.html
-
-**New Study Bolsters Idea of Athletic Differences Between Men and Trans Women**\
-`Research financed by the International Olympic Committee introduced new data to the unsettled and fractious debate about bans on transgender athletes.`\
-https://nytimes.com/2024/04/23/world/europe/paris-olympics-transgender-athletes.html
 
