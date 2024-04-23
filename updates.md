@@ -1,3 +1,7 @@
+**U.N. Calls for Inquiry Into Mass Graves at 2 Gaza Hospitals**\
+`Palestinian officials said scores of bodies had been found, some shot in the head, at one hospital after Israeli forces withdrew. Israel said it had dug up and reburied some bodies in a search for hostages.`\
+https://nytimes.com/2024/04/23/world/middleeast/gaza-mass-grave.html
+
 **An official offers a hint of Israel’s plans for civilians if it invades Rafah.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/04/23/world/israel-gaza-war-hamas/an-official-offers-a-hint-of-israels-plans-for-civilians-if-it-invades-rafah

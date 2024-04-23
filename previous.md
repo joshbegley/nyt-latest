@@ -1,3 +1,7 @@
+**U.N. Calls for Inquiry Into Mass Graves at 2 Gaza Hospitals**\
+`Palestinian officials said scores of bodies had been found, some shot in the head, at one hospital after Israeli forces withdrew. Israel said it had dug up and reburied some bodies in a search for hostages.`\
+https://nytimes.com/2024/04/23/world/middleeast/gaza-mass-grave.html
+
 **An official offers a hint of Israel’s plans for civilians if it invades Rafah.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/04/23/world/israel-gaza-war-hamas/an-official-offers-a-hint-of-israels-plans-for-civilians-if-it-invades-rafah
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/nyregion/trump-hush-money-gag-order-hearing-conte
 **The Gaza Protests Engulfing Columbia and Other Campuses**\
 `Readers, including parents of suspended students, discuss the unrest. Also: Responses to Liz Cheney on the Supreme Court and Donald Trump’s immunity claim.`\
 https://nytimes.com/2024/04/23/opinion/columbia-gaza-campus-protests.html
-
-**Hezbollah Claims Drone Attack 10 Miles Inside Israel**\
-`The Israeli military said that it had intercepted two aerial attacks off its northern coast, but did not comment on Hezbollah’s claim that it had hit a military barracks. The extent of any damage was not clear.`\
-https://nytimes.com/2024/04/23/world/middleeast/hezbollah-strike-israel-lebanon.html
 
