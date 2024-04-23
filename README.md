@@ -14,8 +14,8 @@ https://nytimes.com/2024/04/23/arts/music/taylor-swift-tortured-poets-department
 `One of Shakespeare’s most coveted roles for women gets different interpretations onstage in New York and Washington.`\
 https://nytimes.com/2024/04/23/theater/macbeth-undone-shakespeare-theater.html
 
-**Did the Israel-Hamas War Affect Your Seder? Tell Us.**\
-`We want to know if the war influenced your Seder rituals.`\
+**Did the Israel-Hamas War Influence Your Seder Rituals? Tell Us.**\
+`We want to know if the war changed the rituals or the tenor of your Seder.`\
 https://nytimes.com/2024/04/23/nyregion/seder-callout-israel-hamas-war.html
 
 **Celebrity Bag Designer Sentenced to Jail for Smuggling Exotic Skins**\
