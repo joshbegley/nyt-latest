@@ -1,3 +1,7 @@
+**Review: It’s All Right to Groove to Huey in ‘The Heart of Rock and Roll’**\
+`The new musical doesn’t take itself too seriously and has many winning moments — almost enough to eclipse the weaknesses of its story.`\
+https://nytimes.com/2024/04/22/theater/heart-of-rock-and-roll-review.html
+
 **On Columbia’s Campus, a Protest Encampment Grows and Tensions Flare**\
 `On a day the university president asked students to stay home, a tent city on a campus lawn kept growing, protesters met in tense confrontations and police and politicians converged to weigh in.`\
 https://nytimes.com/2024/04/22/us/columbia-protests-encampment.html
