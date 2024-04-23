@@ -1,3 +1,11 @@
+**The U.S. says it is reviewing the report and has not decided whether to resume funding for the U.N. agency.**\
+`By Patrick Kingsley and Matt Surman`\
+https://nytimes.com/live/2024/04/23/world/israel-gaza-war-hamas/the-us-says-it-is-reviewing-the-report-and-has-not-decided-whether-to-resume-funding-for-the-un-agency
+
+**23mideast-crisis**\
+`Review of U.N. Agency Prompts New Calls to Restore Its Funding`\
+https://nytimes.com/live/2024/04/23/world/israel-gaza-war-hamas
+
 **Trump Is Owed an Extra $1 Billion Stake in Truth Social**\
 `The former president is in line for a windfall after the stock price of Trump Media hit performance targets in its first few weeks of trading, raising the value of his already sizable stake.`\
 https://nytimes.com/2024/04/23/business/trump-media-stake.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/23/opinion/the-small-business-tyrant-has-a-favorite-
 **In Ukraine, New American Technology Won the Day. Until It Got Overwhelmed.**\
 `Project Maven was meant to revolutionize modern warfare. But the conflict in Ukraine has underscored how difficult it is to get 21st-century data into 19th-century trenches.`\
 https://nytimes.com/2024/04/23/us/politics/ukraine-new-american-technology.html
-
-**A Very Famous Model Stars in a Very Pixelated Book of Wigs**\
-`With the model Kaia Gerber, the hairstylist Guido Palau created a “low-fi” project about the transformative power of hair.`\
-https://nytimes.com/2024/04/23/style/kaia-gerber-guido-palau-hair-book.html
-
-**Are You Too Critical of Yourself?**\
-`Do you feel pressure to be the best or to never make mistakes?`\
-https://nytimes.com/2024/04/23/learning/are-you-too-critical-of-yourself.html
 

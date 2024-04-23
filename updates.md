@@ -1,3 +1,11 @@
+**The U.S. says it is reviewing the report and has not decided whether to resume funding for the U.N. agency.**\
+`By Patrick Kingsley and Matt Surman`\
+https://nytimes.com/live/2024/04/23/world/israel-gaza-war-hamas/the-us-says-it-is-reviewing-the-report-and-has-not-decided-whether-to-resume-funding-for-the-un-agency
+
+**23mideast-crisis**\
+`Review of U.N. Agency Prompts New Calls to Restore Its Funding`\
+https://nytimes.com/live/2024/04/23/world/israel-gaza-war-hamas
+
 **Trump Is Owed an Extra $1 Billion Stake in Truth Social**\
 `The former president is in line for a windfall after the stock price of Trump Media hit performance targets in its first few weeks of trading, raising the value of his already sizable stake.`\
 https://nytimes.com/2024/04/23/business/trump-media-stake.html
