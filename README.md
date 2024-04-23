@@ -1,3 +1,7 @@
+**Supreme Court to Hear Starbucks Challenge to Labor Ruling**\
+`The case, which stems from the firing of seven Starbucks workers in Memphis, seeks to limit the National Labor Relations Board’s ability to obtain a court intervention in labor cases.`\
+https://nytimes.com/2024/04/23/business/supreme-court-starbucks-labor.html
+
 **Columbia Offers Remote Classes for the Last Days of the Semester**\
 `Tensions have rippled out to other schools. Protesters were arrested at Yale and New York University. And new protest encampments popped up on several campuses.`\
 https://nytimes.com/2024/04/23/us/columbia-university-remote-classes-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/us/david-beckham-mark-wahlberg-lawsuit-f45.html
 **Weekly Student News Quiz: Dubai, College Protests, Caitlin Clark**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/04/23/learning/23StudentNewsQuizLN.html
-
-**At Least 5 Die Trying to Cross English Channel, Including a Young Girl**\
-`The British and French authorities have struggled to find ways to deter people from making the perilous journey.`\
-https://nytimes.com/2024/04/23/world/europe/france-uk-migrant-deaths-english-channel.html
 
