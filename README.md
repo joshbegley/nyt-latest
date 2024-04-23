@@ -1,3 +1,11 @@
+**A Hearing Turns Heated as Judge Considers Citing Trump for Contempt**\
+`Justice Juan M. Merchan, overseeing Donald J. Trump’s criminal trial, warned the former president’s lawyer that he was losing credibility.`\
+https://nytimes.com/2024/04/23/nyregion/trump-hush-money-gag-order-hearing-contempt.html
+
+**The Gaza Protests Engulfing Columbia and Other Campuses**\
+`Readers, including parents of suspended students, discuss the unrest. Also: Responses to Liz Cheney on the Supreme Court and Donald Trump’s immunity claim.`\
+https://nytimes.com/2024/04/23/opinion/columbia-gaza-campus-protests.html
+
 **Hezbollah Claims Drone Attack 10 Miles Inside Israel**\
 `The Israeli military said that it had intercepted two aerial attacks off its northern coast, but did not comment on Hezbollah’s claim that it had hit a military barracks. The extent of any damage was not clear.`\
 https://nytimes.com/2024/04/23/world/middleeast/hezbollah-strike-israel-lebanon.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/23/arts/music/kathleen-hanna-rebel-girl-memoir.html
 **Winner, Winner, Hot Honey Chicken Dinner**\
 `Vallery Lomas’s new recipe for hot honey chicken is easy, delicious and already earning rave reviews.`\
 https://nytimes.com/2024/04/23/dining/winner-winner-hot-honey-chicken-dinner.html
-
-**What to Watch: ‘Baby Reindeer,’ an Astonishing Stalker Drama**\
-`The Netflix series is based on the real-life experience of its creator, Richard Gadd, who also stars in the show.`\
-https://nytimes.com/2024/04/23/arts/television/baby-reindeer-netflix.html
-
-**Judge Approves $418 Million Settlement That Will Change Real Estate Commissions**\
-`Home sellers will no longer be required to offer commission to a buyer’s agent when they sell their property, under an agreement with the National Association of Realtors.`\
-https://nytimes.com/2024/04/23/realestate/nar-settlement-realtors-commission.html
 
