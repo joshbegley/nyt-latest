@@ -1,3 +1,7 @@
+**Jon Stewart Slams How the News Media Is Covering Trump’s Trial**\
+`“Are you trying to make this O.J.? It’s not a chase — he’s commuting,” Stewart said on Monday’s “Daily Show.”`\
+https://nytimes.com/2024/04/23/arts/television/jon-stewart-trump-trial-coverage.html
+
 **Word of the Day: blithely**\
 `This word has appeared in 72 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/23/learning/word-of-the-day-blithely.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000009428187/taiwan-earthquake-hualien.h
 **Quotation of the Day: Asia Heat Wave Bakes Millions, Disrupting Work and Agriculture**\
 `Quotation of the Day for Tuesday, April 23, 2024.`\
 https://nytimes.com/2024/04/22/pageoneplus/quotation-of-the-day-asia-heat-wave-bakes-millions-disrupting-work-and-agriculture.html
-
-**Corrections: April, 23, 2024**\
-`Corrections that appeared in print on Tuesday, April 23, 2024.`\
-https://nytimes.com/2024/04/22/pageoneplus/corrections-april-23-2024.html
 
