@@ -1,3 +1,7 @@
+**Did the Israel-Hamas War Affect Your Seder? Tell Us.**\
+`We want to know if the war influenced your Seder rituals.`\
+https://nytimes.com/2024/04/23/nyregion/seder-callout-israel-hamas-war.html
+
 **Celebrity Bag Designer Sentenced to Jail for Smuggling Exotic Skins**\
 `Nancy Gonzalez, whose clients included Britney Spears and Sofia Vergara, smuggled purses from her native Colombia to the United States using couriers. She will serve 18 months.`\
 https://nytimes.com/2024/04/23/fashion/nancy-gonzalez-smuggling-wildlife.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/business/supreme-court-starbucks-labor.html
 **Columbia Offers Remote Classes for the Last Days of the Semester**\
 `Tensions have rippled out to other schools. Protesters were arrested at Yale and New York University. And new protest encampments popped up on several campuses.`\
 https://nytimes.com/2024/04/23/us/columbia-university-remote-classes-protests.html
-
-**G.M. Reports Big Jump in Profit on Gasoline Car Sales**\
-`General Motors has struggled with electric vehicles and in foreign markets but it is selling lots of combustion engine cars and trucks in North America.`\
-https://nytimes.com/2024/04/23/business/general-motors-earnings.html
 

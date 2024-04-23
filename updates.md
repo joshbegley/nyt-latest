@@ -1,3 +1,7 @@
+**Did the Israel-Hamas War Affect Your Seder? Tell Us.**\
+`We want to know if the war influenced your Seder rituals.`\
+https://nytimes.com/2024/04/23/nyregion/seder-callout-israel-hamas-war.html
+
 **Judge Approves $418 Million Settlement That Will Change Real Estate Commissions**\
 `Home sellers will no longer be required to offer commission to a buyer’s agent when they sell their property, under an agreement with the National Association of Realtors.`\
 https://nytimes.com/2024/04/23/realestate/nar-settlement-realtors-commission.html
