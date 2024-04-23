@@ -11,7 +11,7 @@ https://nytimes.com/2024/04/22/pageoneplus/quotation-of-the-day-asia-heat-wave-b
 https://nytimes.com/2024/04/22/pageoneplus/corrections-april-23-2024.html
 
 **Universities Struggle as Pro-Palestinian Demonstrations Grow**\
-`Students were arrested at N.Y.U. and Yale on Monday. But at Columbia, that approach led to a new encampment and demonstrations outside its gates.`\
+`Dozens were arrested at N.Y.U. and Yale, but officials there and at campuses across the countryare running out of`\
 https://nytimes.com/2024/04/22/us/campus-protests-arrests.html
 
 **Voices Below Sopranos**\
