@@ -1,3 +1,11 @@
+**Why an Oregon Case Before the Supreme Court Matters So Much to California**\
+`A challenge to a small Oregon city’s law that imposes fines on homeless people for sleeping outdoors could have big implications for the Golden State.`\
+https://nytimes.com/2024/04/23/us/oregon-homelessness-case-supreme-court-california.html
+
+**Encore**\
+`A collection of short documentaries from public and private archives, unearthed and published by Op-Docs at The New York Times.`\
+https://nytimes.com/series/opdocs-encore
+
 **What is the Rwanda Policy? U.K.’s Plan for Asylum Seekers Explained**\
 `The plan has been in the works for years, but the passage of a contentious bill by Britain’s Parliament puts the country closer to sending asylum seekers to the African nation.`\
 https://nytimes.com/2024/04/23/world/europe/uk-rwanda-policy-explained.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/23/briefing/trump-manhattan-trial-stormy-daniels.htm
 **Germany Arrests Lawmaker’s Aide on Suspicion of Spying for China**\
 `The move came just hours after the authorities detained three other people suspected of passing secrets to Beijing.`\
 https://nytimes.com/2024/04/23/world/europe/germany-china-spying.html
-
-**Why Did Modi Call India’s Muslims ‘Infiltrators’? Because He Could.**\
-`The brazenness of Prime Minister Narendra Modi’s vilification of India’s largest minority group made clear he sees few checks at home or abroad on his power.`\
-https://nytimes.com/2024/04/23/world/asia/india-modi-muslims.html
-
-**A Salacious Conspiracy or Just 34 Pieces of Paper?**\
-`Inside the criminal trial of former President Donald J. Trump.`\
-https://nytimes.com/2024/04/23/podcasts/the-daily/trump-opening-statements.html
 
