@@ -1,3 +1,7 @@
+**At Brooklyn Seder Protest, Jewish New Yorkers Target Schumer Over Aid**\
+`Pro-Palestinian Jewish groups rallied near Chuck Schumer’s home on the second night of Passover, as the Senate seemed poised to pass legislation authorizing billions of dollars in aid to Israel.`\
+https://nytimes.com/2024/04/23/nyregion/schumer-seder-protest-brooklyn.html
+
 **George Santos Said He Was Running for Congress Again. (He’s Not.)**\
 `Less than two weeks after announcing a surprise long-shot bid for a House seat on Eastern Long Island, Mr. Santos said he was no longer pursuing the seat.`\
 https://nytimes.com/2024/04/23/nyregion/george-santos-dropping-out.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/health/bird-flu-milk.html
 **Here’s What’s in the Foreign Aid Package That Is Headed Toward Becoming Law**\
 `Assistance for Ukraine, Israel and Taiwan is paired with legislation to impose fresh rounds of sanctions on Iran and Russia and a measure that could lead to a ban on TikTok in the United States.`\
 https://nytimes.com/2024/04/23/us/politics/aid-bill-ukraine-israel-taiwan.html
-
-**Trump’s ‘eyes and ears’ for scandal**\
-`A tabloid publisher testified how he helped Trump’s 2016 campaign.`\
-https://nytimes.com/2024/04/23/us/politics/trump-trial-new-york-tabloid-witness.html
 
