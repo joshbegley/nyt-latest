@@ -1,3 +1,11 @@
+**Donald Trump on Trial**\
+`Highlights from the first big day of the former president’s New York criminal case.`\
+https://nytimes.com/2024/04/23/briefing/trump-manhattan-trial-stormy-daniels.html
+
+**Germany Arrests Lawmaker’s Aide on Suspicion of Spying for China**\
+`The move came just hours after the authorities detained three other people suspected of passing secrets to Beijing.`\
+https://nytimes.com/2024/04/23/world/europe/germany-china-spying.html
+
 **Why Did Modi Call India’s Muslims ‘Infiltrators’? Because He Could.**\
 `The brazenness of Prime Minister Narendra Modi’s vilification of India’s largest minority group made clear he sees few checks at home or abroad on his power.`\
 https://nytimes.com/2024/04/23/world/asia/india-modi-muslims.html

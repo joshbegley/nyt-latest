@@ -1,3 +1,11 @@
+**Donald Trump on Trial**\
+`Highlights from the first big day of the former president’s New York criminal case.`\
+https://nytimes.com/2024/04/23/briefing/trump-manhattan-trial-stormy-daniels.html
+
+**Germany Arrests Lawmaker’s Aide on Suspicion of Spying for China**\
+`The move came just hours after the authorities detained three other people suspected of passing secrets to Beijing.`\
+https://nytimes.com/2024/04/23/world/europe/germany-china-spying.html
+
 **Why Did Modi Call India’s Muslims ‘Infiltrators’? Because He Could.**\
 `The brazenness of Prime Minister Narendra Modi’s vilification of India’s largest minority group made clear he sees few checks at home or abroad on his power.`\
 https://nytimes.com/2024/04/23/world/asia/india-modi-muslims.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/23/us/politics/biden-abortion-florida-trump.html
 **Rural Voters Are More Progressive Than the Democratic Party Thinks**\
 `But many Democrats have written them off.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/rural-voters-progresive-survey
-
-**New York Is Turning 400. We Should Celebrate. But How?**\
-`We need history to support our foundations. But it can only do that with integrity if it exposes the failings.`\
-https://nytimes.com/2024/04/23/opinion/new-york-dutch-lenape-slavery.html
-
-**Cait Bailey Can’t Avoid the Spotlight**\
-`The publicist is by the side of famous people like Zayn Malik, Alex Cooper and Alix Earle. She’s dating a famous chef. But she’d prefer to keep a low profile.`\
-https://nytimes.com/2024/04/23/style/cait-bailey-align-pr.html
 
