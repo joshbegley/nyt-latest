@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Dubai, College Protests, Caitlin Clark**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/04/23/learning/23StudentNewsQuizLN.html
+
 **At Least 5 Die Trying to Cross English Channel, Including a Young Girl**\
 `The British and French authorities have struggled to find ways to deter people from making the perilous journey.`\
 https://nytimes.com/2024/04/23/world/europe/france-uk-migrant-deaths-english-channel.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/23/world/israel-gaza-war-hamas
 **Trump Is Owed an Extra $1 Billion Stake in Truth Social**\
 `The former president is in line for a windfall after the stock price of Trump Media hit performance targets in its first few weeks of trading, raising the value of his already sizable stake.`\
 https://nytimes.com/2024/04/23/business/trump-media-stake.html
-
-**Senate Moves Toward Approving Aid to Ukraine, Israel and Taiwan**\
-`Support for the package in the Senate is expected to be overwhelming and bipartisan, and President Biden has urged lawmakers to quickly take it up so he can sign it into law.`\
-https://nytimes.com/2024/04/23/world/europe/senate-aid-package-ukraine-israel-taiwan.html
 
