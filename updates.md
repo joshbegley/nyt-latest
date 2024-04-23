@@ -1,3 +1,7 @@
+**Former tabloid publisher details how he helped Trump’s campaign.**\
+`By Matthew Haag`\
+https://nytimes.com/live/2024/04/23/nyregion/trump-hush-money-trial-news/national-enquirers-ex-publisher-details-how-he-helped-trumps-campaign
+
 **Russian Court Orders American Journalist to Stay in Prison**\
 `Evan Gershkovich, a Wall Street Journal reporter, has been held for more than a year, awaiting trial on spying charges that he, his publisher and the United States vehemently reject.`\
 https://nytimes.com/2024/04/23/world/europe/russia-evan-gershkovich-appeal.html
