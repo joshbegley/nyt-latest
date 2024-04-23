@@ -1,3 +1,7 @@
+**Biden Says Trump Is Responsible for ‘Nightmare’ State Abortion Laws**\
+`President Biden tied a six-week abortion ban that will soon take place in Florida to former President Donald J. Trump and Republican efforts to ban abortion nationwide.`\
+https://nytimes.com/video/us/politics/100000009429934/biden-abortion-reproductive-rights.html
+
 **Trump’s ‘eyes and ears’ for scandal**\
 `A tabloid publisher testified how he helped Trump’s 2016 campaign.`\
 https://nytimes.com/2024/04/23/us/politics/trump-trial-new-york-tabloid-witness.html

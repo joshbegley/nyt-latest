@@ -19,7 +19,7 @@ https://nytimes.com/2024/04/23/business/china-auto-factories-price-cuts.html
 https://nytimes.com/2024/04/23/style/beyonce-real-hair-cecred-products.html
 
 **Biden Says Trump Is Responsible for ‘Nightmare’ State Abortion Laws**\
-`Biden tied a six-week abortion ban that will soon take place in Florida to former President Donald J. Trump and Republican efforts to ban abortion nationwide.`\
+`President Biden tied a six-week abortion ban that will soon take place in Florida to former President Donald J. Trump and Republican efforts to ban abortion nationwide.`\
 https://nytimes.com/video/us/politics/100000009429934/biden-abortion-reproductive-rights.html
 
 **Biden Will Speak at Morehouse and West Point Graduations**\
