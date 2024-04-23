@@ -1,3 +1,7 @@
+**George Santos Said He Was Running for Congress Again. (He’s Not.)**\
+`Less than two weeks after announcing a surprise long-shot bid for a House seat on Eastern Long Island, Mr. Santos said he was no longer pursuing the seat.`\
+https://nytimes.com/2024/04/23/nyregion/george-santos-dropping-out.html
+
 **Russian Deputy Defense Minister Is Detained on Bribery Charges**\
 `Timur Ivanov, who has long been in charge of major military construction projects and known for leading a lavish lifestyle, was held Tuesday on charges of “large scale” corruption.`\
 https://nytimes.com/2024/04/23/world/europe/russia-deputy-defense-minister-bribery.html
