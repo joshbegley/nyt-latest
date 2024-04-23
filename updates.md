@@ -1,3 +1,7 @@
+**Why Did Modi Call India’s Muslims ‘Infiltrators’? Because He Could.**\
+`The brazenness of Prime Minister Narendra Modi’s vilification of India’s largest minority group made clear he sees few checks at home or abroad on his power.`\
+https://nytimes.com/2024/04/23/world/asia/india-modi-muslims.html
+
 **A Salacious Conspiracy or Just 34 Pieces of Paper?**\
 `Inside the criminal trial of former President Donald J. Trump.`\
 https://nytimes.com/2024/04/23/podcasts/the-daily/trump-opening-statements.html
