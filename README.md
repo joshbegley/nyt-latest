@@ -1,3 +1,7 @@
+**Using Police to Clear Protesters, Universities Struggle to Calm Campuses**\
+`Students were arrested at N.Y.U. and Yale on Monday. But at Columbia, that approach led to a new encampment and demonstrations outside its gates.`\
+https://nytimes.com/2024/04/22/us/campus-protests-arrests.html
+
 **Voices Below Sopranos**\
 `Judy Bowers makes her New York Times debut.`\
 https://nytimes.com/2024/04/22/crosswords/daily-puzzle-2024-04-23.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/22/us/columbia-protests-encampment.html
 **For Biden, Aid Package Provides a Welcome Boost on the World Stage**\
 `The congressional breakthrough on security assistance to Ukraine and Israel will let the president finally deliver arms to match his words. But it could be only a temporary respite.`\
 https://nytimes.com/2024/04/22/us/politics/biden-ukraine-aid.html
-
-**Cleveland to Pay $4.8 Million to Family of Teenager Killed in Police Pursuit**\
-`Tamia Chappman, 13, died in 2019 when she was struck by a stolen car driven by a youth who was trying to evade officers.`\
-https://nytimes.com/2024/04/22/us/tamia-chappman-cleveland-settlement.html
 
