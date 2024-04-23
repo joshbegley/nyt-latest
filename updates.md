@@ -1,3 +1,11 @@
+**Publisher Describes Quashing Doorman’s Claim Trump Had Child Out of Wedlock**\
+`The former publisher of The National Enquirer testified at Donald J. Trump’s criminal trial that he used a so-called catch-and-kill deal to silence the doorman.`\
+https://nytimes.com/2024/04/23/nyregion/trump-child-tip-doorman-national-enquirer.html
+
+**Ukraine Aid in the Light of History**\
+`Lessons of Lend-Lease for the current crisis.`\
+https://nytimes.com/2024/04/23/opinion/ukraine-aid-military.html
+
 **Former tabloid publisher details how he helped Trump’s campaign.**\
 `By Matthew Haag`\
 https://nytimes.com/live/2024/04/23/nyregion/trump-hush-money-trial-news/national-enquirers-ex-publisher-details-how-he-helped-trumps-campaign
