@@ -1,3 +1,7 @@
+**Columbia’s president, Nemat Shafik, has been at the center of the unrest.**\
+`By Troy Closson and Stephanie Saul`\
+https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/columbias-president-nemat-shafik-has-been-at-the-center-of-the-unrest
+
 **Review: Noche Flamenca, Raising the Dead With Goya**\
 `In “Searching for Goya,” at the Joyce Theater, the troupe uses the painter’s images as frames for flamenco dances.`\
 https://nytimes.com/2024/04/24/arts/dance/review-noche-flamenca-soledad-barrio.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/arts/design/gustav-klimt-painting-auction.html
 **Is New York Improv Back? I Went on a One-Week Binge to Find Out.**\
 `The pandemic dealt a major blow to the once-thriving comedy form, but a new energy can be seen in performances throughout the city.`\
 https://nytimes.com/2024/04/24/arts/improv-comedy-new-york-return.html
-
-**Steak From Dairy Cows? It Could Be a Lifeline for American Farmers.**\
-`Letting milk cows graze longer can produce superior beef — a largely  European practice that is now gaining ground in America.`\
-https://nytimes.com/2024/04/24/dining/beef-dairy-cows.html
 
