@@ -1,3 +1,7 @@
+**The Venice Biennale and the Art of Turning Backward**\
+`Every art institution now speaks of progress, justice, transformation. What if all those words hide a more old-fashioned aim?`\
+https://nytimes.com/2024/04/24/arts/design/venice-biennale-review-art-israel.html
+
 **Binance Founder Should Get Three Years in Prison, Prosecutors Say**\
 `Defense lawyers for Changpeng Zhao, the founder of the crypto exchange Binance, countered that he should receive no prison time.`\
 https://nytimes.com/2024/04/24/technology/binance-changpeng-zhao.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/business/lawsuit-ftc-noncompete-ban.html
 **Is It Wrong for Public School Principals to Send Their Kids to Private School?**\
 `The magazine’s Ethicist columnist on double standards — and possible hypocrisy — among educators.`\
 https://nytimes.com/2024/04/24/magazine/public-school-principals-private-ethics.html
-
-**What to Make of the ‘Zombie Vote’ Against Donald Trump**\
-`Votes for dropout candidates, such as Nikki Haley, have been features of past election cycles, too.`\
-https://nytimes.com/interactive/2024/04/24/us/elections/nikki-haley-trump-zombie-votes.html
 
