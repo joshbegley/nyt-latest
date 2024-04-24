@@ -1,3 +1,7 @@
+**Who Stands to Gain from a TikTok Ban**\
+`The Senate has finally passed a law that could bar the  video-sharing app in the U.S., leaving some tech giants in pole position to profit — or pounce.`\
+https://nytimes.com/2024/04/24/business/dealbook/bytedance-tiktok-congress-ban.html
+
 **Myanmar’s Junta Recaptures Town That Was a Significant Gain for Rebels**\
 `Resistance soldiers were forced to leave Myawaddy, a key trading center on the border with Thailand, weeks after capturing it.`\
 https://nytimes.com/2024/04/24/world/asia/myanmar-junta-rebels-myawaddy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/world/europe/horses-loose-london.html
 **What a TikTok Ban Could Actually Mean, and More**\
 `Plus, clashes over Donald Trump’s gag order.`\
 https://nytimes.com/2024/04/24/podcasts/tiktok-bill-idaho-abortion.html
-
-**Is $60 Billion Enough to Save Ukraine?**\
-`Congress approved a new aid package after months of delay, potentially throwing the country a lifeline in its war with Russia.`\
-https://nytimes.com/2024/04/24/podcasts/the-daily/is-60-billion-enough-to-save-ukraine.html
 
