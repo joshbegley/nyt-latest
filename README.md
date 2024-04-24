@@ -1,3 +1,7 @@
+**How Much Do You Know About Tonga?**\
+`Can you find Tonga on a map? What else do you know about this Pacific island nation with about 106,000 people?`\
+https://nytimes.com/interactive/2024/04/24/learning/TongaGeographyQuiz.html
+
 **Meta’s A.I. Assistant Is Fun to Use, but It Can’t Be Trusted**\
 `Despite Mark Zuckerberg’s hope for the chatbot to be the smartest, it struggles with facts, numbers and web search.`\
 https://nytimes.com/2024/04/24/technology/personaltech/meta-ai-facebook-instagram-chatbot.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/movies/nicole-kidman-roles.html
 **Supreme Court to Examine Clash Between Idaho Abortion Ban and Federal Law**\
 `The case, which could reverberate beyond Idaho to other states with abortion bans, is the second time in less than a month that the justices have heard an abortion case.`\
 https://nytimes.com/2024/04/24/us/politics/supreme-court-idaho-abortion-ban-case.html
-
-**How Should Colleges Handle Student Protests?**\
-`Where is the line between protecting students’ right to freedom of expression and ensuring their safety and ability to get an education?`\
-https://nytimes.com/2024/04/24/learning/how-should-colleges-handle-student-protests.html
 
