@@ -1,3 +1,11 @@
+**Johnson Calls to End Pro-Palestinian Protests, Including by Military Means**\
+`The Republican speaker appeared on the campus of Columbia University to condemn protesters as antisemitic, and said the school’s president and President Biden should take stronger action against them.`\
+https://nytimes.com/2024/04/24/us/politics/johnson-columbia-university-president-protests.html
+
+**Trump Didn’t Really Do That Well in Pennsylvania**\
+`A surprising number of Republicans refused to vote for him in Tuesday’s primary.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-pennsylvania-primary
+
 **Thursday Briefing: Israel Seems Poised to Invade Rafah**\
 `Also, details of the U.S. aid package to Ukraine and Taylor Swift’s new album.`\
 https://nytimes.com/2024/04/24/world/asia/israel-rafah-us-ukraine-asia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/24/theater/carrie-robbins-dead.html
 **Spain’s Leader Says He’s Considering Resigning as Wife Faces Investigation**\
 `Prime Minister Pedro Sánchez suspended all public duties until Monday, after a judge ordered an inquiry into alleged influence peddling by Mr. Sánchez’s wife.`\
 https://nytimes.com/2024/04/24/world/europe/spain-pedro-sanchez-wife.html
-
-**A Megaraptor Emerges From Footprint Fossils**\
-`A series of foot tracks in southeastern China points to the discovery of a giant velociraptor, paleontologists suggest in a new study.`\
-https://nytimes.com/2024/04/24/science/velociraptor-fossil-china.html
-
-**This May Be Our Last Chance to Halt Bird Flu in Humans and We Are Blowing It**\
-`“There’s a fine line between one person and 10 people with H5N1.”`\
-https://nytimes.com/2024/04/24/opinion/bird-flu-cow-outbreak.html
 
