@@ -1,3 +1,7 @@
+**Maternity care suffers as abortion laws drive obstetricians from red states.**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/maternity-care-suffers-as-abortion-laws-drive-obstetricians-from-red-states
+
 **The Venice Biennale and the Art of Turning Backward**\
 `Every art institution now speaks of progress, justice, transformation. What if all those words hide a more old-fashioned aim?`\
 https://nytimes.com/2024/04/24/arts/design/venice-biennale-review-art-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/opinion/joe-biden-israel-gaza-war.html
 **Business Groups Sue to Stop F.T.C. From Banning Noncompete Clauses**\
 `The suit was filed the day after the agency announced a rule that prohibits companies from limiting their employees’ ability to work for rivals. It argues that the F.T.C. does not have the authority.`\
 https://nytimes.com/2024/04/24/business/lawsuit-ftc-noncompete-ban.html
-
-**Is It Wrong for Public School Principals to Send Their Kids to Private School?**\
-`The magazine’s Ethicist columnist on double standards — and possible hypocrisy — among educators.`\
-https://nytimes.com/2024/04/24/magazine/public-school-principals-private-ethics.html
 
