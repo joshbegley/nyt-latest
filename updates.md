@@ -1,3 +1,15 @@
+**Binance Founder Should Get Three Years in Prison, Prosecutors Say**\
+`Defense lawyers for Changpeng Zhao, the founder of the crypto exchange Binance, countered that he should receive no prison time.`\
+https://nytimes.com/2024/04/24/technology/binance-changpeng-zhao.html
+
+**The Biden administration considers the federal EMTALA law key to preserving abortion access.**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/the-biden-administration-considers-the-federal-emtala-law-key-to-preserving-abortion-access
+
+**What’s the Best Way to Salt Scrambled Eggs?**\
+`Paying close attention to timing can help you avoid watery eggs. Kenji López-Alt explains why.`\
+https://nytimes.com/2024/04/24/dining/best-way-to-salt-scrambled-eggs.html
+
 **Senate Committee Investigates Ozempic and Wegovy Costs**\
 `Senator Bernie Sanders is pressing the drugmaker Novo Nordisk for details on its pricing of the popular diabetes and weight loss medications.`\
 https://nytimes.com/2024/04/24/well/live/ozempic-cost-senate.html
