@@ -1,3 +1,7 @@
+**College Protesters Make Divestment From Israel a Rallying Cry**\
+`The campaign is likely to have a negligible impact on the companies or Israel, but activists see divestment as a clear way to force colleges to take action on the issue.`\
+https://nytimes.com/2024/04/24/business/college-protesters-divestment-israel.html
+
 **Enduring Mayhem: Images From Year 3 of the War in Ukraine**\
 `A photographic chronicle of the third year of Russia’s invasion of Ukraine.`\
 https://nytimes.com/2024/04/24/world/europe/images-ukraine-war-third-year.html

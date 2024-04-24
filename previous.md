@@ -11,7 +11,7 @@ https://nytimes.com/2024/04/24/health/fda-urinary-tract-infection-antibiotic.htm
 https://nytimes.com/2024/04/24/technology/metas-profits-nearly-double-while-spending-on-ai-rises.html
 
 **College Protesters Make Divestment From Israel a Rallying Cry**\
-`The campaign is likely to have a negligible impact on the companies or Israel, but activists see divestment as a clear and achievable way to force colleges to take action on the issue.`\
+`The campaign is likely to have a negligible impact on the companies or Israel, but activists see divestment as a clear way to force colleges to take action on the issue.`\
 https://nytimes.com/2024/04/24/business/college-protesters-divestment-israel.html
 
 **Carrie Robbins, Costume Designer for Dozens of Broadway Shows, Dies at 81**\
