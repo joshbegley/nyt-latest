@@ -1,3 +1,11 @@
+**Summer Lee, ‘Squad’ Member, Wins Democratic House Primary in Pennsylvania**\
+`A first-term representative, Ms. Lee defeated a centrist Democrat in a race that centered on her opposition to the war in Gaza.`\
+https://nytimes.com/2024/04/23/us/politics/lee-pennsylvania-primary.html
+
+**‘Mary Jane’ Review: When Parenting Means Intensive Care**\
+`Amy Herzog’s heartbreaker arrives on Broadway with Rachel McAdams as the alarmingly upbeat mother of a fearfully sick child.`\
+https://nytimes.com/2024/04/23/theater/mary-jane-review-rachel-mcadams.html
+
 **Clashes Over Gag Order and Tabloid Testimony in the Trump Criminal Trial**\
 `Tuesday’s session of Donald J.`\
 https://nytimes.com/video/nyregion/100000009430318/trump-criminal-trial-gag-order-tabloid-testimony.html
