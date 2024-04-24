@@ -1,3 +1,7 @@
+**New Nutrition Guidelines Put Less Sugar and Salt on the Menu for School Meals**\
+`The Agriculture Department finalized a new rule to bring the meals more in line with federal dietary standards.`\
+https://nytimes.com/2024/04/24/us/politics/school-meals-nutrition.html
+
 **Horses Run Loose Through Central London in Surreal Spectacle**\
 `A number of runaway army horses galloped through London on Wednesday morning, causing alarm and injuring pedestrians. All of the animals were eventually recovered.`\
 https://nytimes.com/2024/04/24/world/europe/horses-loose-london.html
