@@ -1,3 +1,11 @@
+**U.S. Secretly Shipped New Long-Range Missiles to Ukraine**\
+`Ukrainian forces for the first time used a longer-range version of weapons known as ATACMS, striking an airfield in Crimea and Russian troops in southeastern Ukraine.`\
+https://nytimes.com/2024/04/24/us/us-ukraine-russia-missiles.html
+
+**Hersh Goldberg-Polin, an Israeli American Hostage, Is Seen in Hamas Video**\
+`The video appeared to be the first time that Mr. Goldberg-Polin, who was grievously injured in the Hamas-led Oct. 7 attack, has been seen alive since he was taken captive.`\
+https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/hamas-hostage-video-hersh-goldberg-polin
+
 **What’s Going On in This Graph? | May 1, 2024**\
 `How involved are parents in their young adult children’s lives?`\
 https://nytimes.com/2024/04/24/learning/whats-going-on-in-this-graph-may-1-2024.html
