@@ -1,3 +1,7 @@
+**Mayor Adams Walks Back Budget Cuts Many Saw as Unnecessary**\
+`The mayor released a revised $111.6 billion budget, which included $2.3 billion that would restore some funding for schools and cultural institutions.`\
+https://nytimes.com/2024/04/24/nyregion/budget-cuts-adams-nyc.html
+
 **In response to protests, Brandeis invited Jewish students to transfer to its campus.**\
 `The university’s president, Ronald D. Liebowitz, promised in an open letter that Brandeis would provide an environment “free of harassment and Jew-hatred.”`\
 https://nytimes.com/2024/04/24/us/brandeis-protests-jewish-students.html

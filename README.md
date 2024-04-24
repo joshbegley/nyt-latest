@@ -1,3 +1,7 @@
+**A Megaraptor Emerges From Footprint Fossils**\
+`A series of foot tracks in southeastern China points to the discovery of a giant velociraptor, paleontologists suggest in a new study.`\
+https://nytimes.com/2024/04/24/science/vellociraptor-fossil-china.html
+
 **This May Be Our Last Chance to Halt Bird Flu in Humans and We Are Blowing It**\
 `“There’s a fine line between one person and 10 people with H5N1.”`\
 https://nytimes.com/2024/04/24/opinion/bird-flu-cow-outbreak.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/opinion/volkswagen-union-labor-republicans.html
 **Rotting Fruit, an Animatronic Mouse and Other Highlights of the Venice Biennale**\
 `A tour of the international exhibition, which opened last week and runs through November.`\
 https://nytimes.com/2024/04/24/t-magazine/venice-biennale-highlights.html
-
-**Protesters on both sides of the abortion debate clash outside the Supreme Court.**\
-`By Aishvarya Kavi`\
-https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/protesters-on-both-sides-of-the-abortion-debate-clash-outside-the-supreme-court
 
