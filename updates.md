@@ -1,3 +1,7 @@
+**After U.N. Report, Germany Says It Will Resume Funding for UNRWA**\
+`The announcement was likely to further strain Germany’s longstanding ties with Israel, which have deteriorated because of differences over the war in Gaza.`\
+https://nytimes.com/2024/04/24/world/middleeast/germany-un-aid-unrwa-gaza.html
+
 **TikTok’s Pro-China Tilt**\
 `A bill that will force the app’s Chinese owners to sell will soon become law.`\
 https://nytimes.com/2024/04/24/briefing/tiktok-bill-congress.html
