@@ -1,3 +1,7 @@
+**Three Takeaways From the Pennsylvania Primaries**\
+`A liberal Pittsburgh-area congresswoman turned away a centrist challenger, Nikki Haley kept ringing up votes against Donald Trump, and a Senate race began in earnest.`\
+https://nytimes.com/2024/04/23/us/politics/pennsylvania-primary-takeaways.html
+
 **Seder Is About Family, Food, Freedom. And Now, It’s Also About the War.**\
 `At Passover Seders, many families addressed the war in Gaza. In some cases, generations clashed and tensions arose. “That’s the Jewish way,” said one host.`\
 https://nytimes.com/2024/04/23/nyregion/seder-israel-gaza-war.html
