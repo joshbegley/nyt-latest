@@ -1,3 +1,7 @@
+**Starbucks and Union Set to Restart Contract Talks After Bitter Standoff**\
+`The company and Workers United, which represents more than 10,000 of the chain’s employees, broke off negotiation nearly a year ago.`\
+https://nytimes.com/2024/04/24/business/starbucks-union-workers-negotiate.html
+
 **Cicadas Are Emerging Now. How Do They Know When to Come Out?**\
 `Scientists are making computer models to better understand how the mysterious insects emerge collectively after more than a decade underground.`\
 https://nytimes.com/2024/04/24/science/why-do-cicadas-emerge.html
