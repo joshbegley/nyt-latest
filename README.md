@@ -1,3 +1,7 @@
+**Australian Journalist Says She Was Pushed Out of India**\
+`Avani Dias said that she had been denied a visa renewal for weeks because of her reporting on the Sikh separatist movement. Indian officials disputed her account.`\
+https://nytimes.com/2024/04/24/world/asia/india-australia-journalist-avani-dias.html
+
 **21 states have restricted or banned abortion since Roe v. Wade was overturned.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/21-states-have-restricted-or-banned-abortion-since-roe-v-wade-was-overturned
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/business/starbucks-union-workers-negotiate.html
 **Cicadas Are Emerging Now. How Do They Know When to Come Out?**\
 `Scientists are making computer models to better understand how the mysterious insects emerge collectively after more than a decade underground.`\
 https://nytimes.com/2024/04/24/science/why-do-cicadas-emerge.html
-
-**New Nutrition Guidelines Put Less Sugar and Salt on the Menu for School Meals**\
-`The Agriculture Department finalized a new rule to bring the meals more in line with federal dietary standards.`\
-https://nytimes.com/2024/04/24/us/politics/school-meals-nutrition.html
 

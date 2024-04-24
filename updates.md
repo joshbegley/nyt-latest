@@ -1,3 +1,19 @@
+**21 states have restricted or banned abortion since Roe v. Wade was overturned.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/21-states-have-restricted-or-banned-abortion-since-roe-v-wade-was-overturned
+
+**What is EMTALA and what does it do?**\
+`The federal Emergency Medical Treatment and Labor Act, known as EMTALA, requires hospitals to provide medically necessary care to stabilize patients in emergency situations.`\
+https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/what-is-emtala-and-what-does-it-do
+
+**24scotus-abortion**\
+`Live Updates: Supreme Court to Consider Access to Emergency Abortions`\
+https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho
+
+**Biden to Sign Aid Package for Ukraine and Israel**\
+`The $95.3 billion legislation comes after months of gridlock in Congress put the centerpiece of President Biden’s foreign policy in jeopardy.`\
+https://nytimes.com/2024/04/24/us/politics/biden-ukraine-israel-aid.html
+
 **Every Tech Tool in the Classroom Should Be Ruthlessly Evaluated**\
 `Screens in K-12 schools need ‘a hard reset.’`\
 https://nytimes.com/2024/04/24/opinion/ed-tech-classroom.html

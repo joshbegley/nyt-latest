@@ -1,3 +1,19 @@
+**21 states have restricted or banned abortion since Roe v. Wade was overturned.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/21-states-have-restricted-or-banned-abortion-since-roe-v-wade-was-overturned
+
+**What is EMTALA and what does it do?**\
+`The federal Emergency Medical Treatment and Labor Act, known as EMTALA, requires hospitals to provide medically necessary care to stabilize patients in emergency situations.`\
+https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/what-is-emtala-and-what-does-it-do
+
+**24scotus-abortion**\
+`Live Updates: Supreme Court to Consider Access to Emergency Abortions`\
+https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho
+
+**Biden to Sign Aid Package for Ukraine and Israel**\
+`The $95.3 billion legislation comes after months of gridlock in Congress put the centerpiece of President Biden’s foreign policy in jeopardy.`\
+https://nytimes.com/2024/04/24/us/politics/biden-ukraine-israel-aid.html
+
 **Every Tech Tool in the Classroom Should Be Ruthlessly Evaluated**\
 `Screens in K-12 schools need ‘a hard reset.’`\
 https://nytimes.com/2024/04/24/opinion/ed-tech-classroom.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/24/science/why-do-cicadas-emerge.html
 **New Nutrition Guidelines Put Less Sugar and Salt on the Menu for School Meals**\
 `The Agriculture Department finalized a new rule to bring the meals more in line with federal dietary standards.`\
 https://nytimes.com/2024/04/24/us/politics/school-meals-nutrition.html
-
-**Boeing Loses $355 Million in Latest Quarter**\
-`The manufacturer has had to slow production of its popular 737 Max planes after a hole blew open on a jet during an Alaska Airlines flight in January.`\
-https://nytimes.com/2024/04/24/business/boeing-first-quarter-earnings.html
-
-**Who Stands to Gain from a TikTok Ban**\
-`The Senate has finally passed a law that could bar the  video-sharing app in the U.S., leaving some tech giants in pole position to profit — or pounce.`\
-https://nytimes.com/2024/04/24/business/dealbook/bytedance-tiktok-congress-ban.html
-
-**Myanmar’s Junta Recaptures Town That Was a Significant Gain for Rebels**\
-`Resistance soldiers were forced to leave Myawaddy, a key trading center on the border with Thailand, weeks after capturing it.`\
-https://nytimes.com/2024/04/24/world/asia/myanmar-junta-rebels-myawaddy.html
-
-**Bird Flu Outbreak in Cattle May Have Begun Months Earlier Than Thought**\
-`A single spillover, from a bird to a cow, led to the infections, a review of genetic data has found.`\
-https://nytimes.com/2024/04/24/health/bird-flu-cows-genetic.html
 
