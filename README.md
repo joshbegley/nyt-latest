@@ -1,3 +1,7 @@
+**Why I’m Getting More Pessimistic About Biden’s Chances This Fall**\
+`The reasons aren’t rocket science.`\
+https://nytimes.com/live/2024/04/16/opinion/thepoint/biden-poll-young-voters
+
 **7 Books on Navigating Grief**\
 `Psychologists, counselors and other experts share the titles they recommend most.`\
 https://nytimes.com/2024/04/24/well/mind/death-grief-bereavement-books.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/business/robert-kraft-donation-columbia-protests.
 **Turner Prize Shortlist Leans In to Artists’ Identities**\
 `This year’s four nominees are Claudette Johnson, Jasleen Kaur, Pio Abad and Delaine Le Bas, whose works draw on personal history and cultural interpretations.`\
 https://nytimes.com/2024/04/24/arts/design/turner-prize-shortlist.html
-
-**The Supreme Court said it was done with abortion. Its docket says otherwise.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/the-supreme-court-said-it-was-done-with-abortion-its-docket-says-otherwise
 

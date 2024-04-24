@@ -1,3 +1,11 @@
+**7 Books on Navigating Grief**\
+`Psychologists, counselors and other experts share the titles they recommend most.`\
+https://nytimes.com/2024/04/24/well/mind/death-grief-bereavement-books.html
+
+**A Classy (but not Fussy) Clam Dinner**\
+`Lidey Heuck’s one-pot recipe for littleneck clams with cherry tomatoes and pearl couscous feels restaurant-fancy but is weeknight-easy.`\
+https://nytimes.com/2024/04/24/dining/a-classy-but-not-fussy-clam-dinner.html
+
 **Inside the Crisis at NPR**\
 `Listeners are tuning out. Sponsorship revenue has dipped. A diversity push has generated internal turmoil. Can America’s public radio network turn things around?`\
 https://nytimes.com/2024/04/24/business/media/inside-the-crisis-at-npr.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/24/arts/design/turner-prize-shortlist.html
 **The Supreme Court said it was done with abortion. Its docket says otherwise.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/the-supreme-court-said-it-was-done-with-abortion-its-docket-says-otherwise
-
-**The consequences of the court’s decision could reverberate beyond Idaho.**\
-`The case is the first time the justices have examined a state law criminalizing abortion since they overruled Roe v. Wade.`\
-https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/the-consequences-of-the-courts-decision-could-reverberate-beyond-idaho
-
-**‘So Far From Ukraine’: A Princely Dancer Finds a Home in Miami**\
-`Stanislav Olshanskyi has had to battle homesickness and adjust to Miami City Ballet’s style: quick, light, constantly in motion. He’s also the prince in “Swan Lake.”`\
-https://nytimes.com/2024/04/24/arts/dance/olshanskyi-miami-ballet-ukraine.html
 

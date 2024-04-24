@@ -1,3 +1,11 @@
+**7 Books on Navigating Grief**\
+`Psychologists, counselors and other experts share the titles they recommend most.`\
+https://nytimes.com/2024/04/24/well/mind/death-grief-bereavement-books.html
+
+**A Classy (but not Fussy) Clam Dinner**\
+`Lidey Heuck’s one-pot recipe for littleneck clams with cherry tomatoes and pearl couscous feels restaurant-fancy but is weeknight-easy.`\
+https://nytimes.com/2024/04/24/dining/a-classy-but-not-fussy-clam-dinner.html
+
 **Inside the Crisis at NPR**\
 `Listeners are tuning out. Sponsorship revenue has dipped. A diversity push has generated internal turmoil. Can America’s public radio network turn things around?`\
 https://nytimes.com/2024/04/24/business/media/inside-the-crisis-at-npr.html
