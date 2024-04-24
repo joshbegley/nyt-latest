@@ -1,3 +1,11 @@
+**Israel’s foreign minister thanks the Senate for passing a hard-fought aid bill.**\
+`By Matt Surman`\
+https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/israels-foreign-minister-thanks-the-senate-for-passing-a-hard-fought-aid-bill
+
+**24mideast-crisis**\
+`Israel Welcomes Senate Passage of Aid Bill`\
+https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas
+
 **How Much Do You Know About Tonga?**\
 `Can you find Tonga on a map? What else do you know about this Pacific island nation with about 106,000 people?`\
 https://nytimes.com/interactive/2024/04/24/learning/TongaGeographyQuiz.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/24/opinion/marjorie-taylor-greene-mike-johnson.html
 **High Borrowing Costs Have Some Democrats Urging Biden to Pressure the Fed**\
 `Polls show voters are angry about costs, like mortgages, and worried they will stay high if the president wins re-election.`\
 https://nytimes.com/2024/04/24/us/politics/borrowing-costs-biden-federal-reserve.html
-
-**What Directors Love About Nicole Kidman**\
-`As the actress receives a life achievement award from the American Film Institute this week, five filmmakers discuss what makes her work so singular.`\
-https://nytimes.com/2024/04/24/movies/nicole-kidman-roles.html
-
-**Supreme Court to Examine Clash Between Idaho Abortion Ban and Federal Law**\
-`The case, which could reverberate beyond Idaho to other states with abortion bans, is the second time in less than a month that the justices have heard an abortion case.`\
-https://nytimes.com/2024/04/24/us/politics/supreme-court-idaho-abortion-ban-case.html
 

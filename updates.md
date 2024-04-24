@@ -1,3 +1,11 @@
+**Israel’s foreign minister thanks the Senate for passing a hard-fought aid bill.**\
+`By Matt Surman`\
+https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/israels-foreign-minister-thanks-the-senate-for-passing-a-hard-fought-aid-bill
+
+**24mideast-crisis**\
+`Israel Welcomes Senate Passage of Aid Bill`\
+https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas
+
 **How Much Do You Know About Tonga?**\
 `Can you find Tonga on a map? What else do you know about this Pacific island nation with about 106,000 people?`\
 https://nytimes.com/interactive/2024/04/24/learning/TongaGeographyQuiz.html
