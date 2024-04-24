@@ -1,4 +1,8 @@
 **Seder Is About Family, Food, Freedom. And Now, It’s Also About the War.**\
+`At Passover Seders, many families addressed the war in Gaza. In some cases, generations clashed and tensions arose. “That’s the Jewish way,” said one host.`\
+https://nytimes.com/2024/04/23/nyregion/seder-israel-gaza-war.html
+
+**Seder Is About Family, Food, Freedom. And Now, It’s Also About the War.**\
 `At Passover seders, many families addressed the war in Gaza. In some cases, generations clashed and tensions arose. “That’s the Jewish way,” said one host.`\
 https://nytimes.com/2024/04/23/nyregion/seder-israel-gaza-war.html
 
