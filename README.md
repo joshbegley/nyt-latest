@@ -1,3 +1,7 @@
+**Quotation of the Day: Trapped and Starving, 2 Families Try to Keep Their Children Alive**\
+`Quotation of the Day for Wednesday, April 24, 2024.`\
+https://nytimes.com/2024/04/24/pageoneplus/quotation-of-the-day-trapped-and-starving-2-families-try-to-keep-their-children-alive.html
+
 **Blinken Goes to China With Potential Trouble on Horizon**\
 `The secretary of state’s visit comes as Democrats and Republicans are vying to appear tougher on China.`\
 https://nytimes.com/2024/04/24/world/asia/blinken-arrives-in-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/23/us/politics/senate-vote-aid-israel-ti
 **Congress Passed a Bill That Could Ban TikTok. Now Comes the Hard Part.**\
 `After President Biden signs the bill to force a sale of the video app or ban it, the legislation will face court challenges, a shortage of qualified buyers and Beijing’s hostility.`\
 https://nytimes.com/2024/04/23/technology/tiktok-ban-bill-congress.html
-
-**Summer Lee, ‘Squad’ Member, Wins Democratic House Primary in Pennsylvania**\
-`A first-term representative, Ms. Lee defeated a centrist Democrat in a race that centered on her opposition to the war in Gaza.`\
-https://nytimes.com/2024/04/23/us/politics/lee-pennsylvania-primary.html
 
