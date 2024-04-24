@@ -1,3 +1,7 @@
+**Columbia Sets Deadline For Talks to End Encampment**\
+`The university, which asked the police to arrest protesters last week, will consider “alternative options” for clearing the lawn if an agreement is not reached.`\
+https://nytimes.com/2024/04/23/us/columbia-protests-encampment.html
+
 **Blinken Goes to China With Potential Trouble on Horizon**\
 `The secretary of state’s visit comes as Democrats and Republicans are vying to appear tougher on China.`\
 https://nytimes.com/2024/04/24/world/asia/blinken-arrives-in-china.html
