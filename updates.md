@@ -1,4 +1,8 @@
 **Undercover Sex Sting Leads to Charges Against School Crossing Guard**\
+`Jared Jeridore, who worked near a Queens school, was arrested after complaints about him led the police to have an officer pose as a teenage girl, officials said.`\
+https://nytimes.com/2024/04/24/nyregion/jeridore-katz-school-crossing-guard-charges.html
+
+**Undercover Sex Sting Leads to Charges Against School Crossing Guard**\
 `Jared Jeridore, who worked near a Queens school, was arrested after complaints about him led the police to have an officer pose as a teenage girl.`\
 https://nytimes.com/2024/04/24/nyregion/jeridore-katz-school-crossing-guard-charges.html
 
