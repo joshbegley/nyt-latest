@@ -14,7 +14,7 @@ https://nytimes.com/2024/04/24/us/politics/takeaways-supreme-court-idaho-abortio
 `The dolphin, a juvenile found on a Louisiana beach, had injuries “consistent with being shot with a firearm,” marine officials said.`\
 https://nytimes.com/2024/04/24/us/louisiana-dolphin-shot-dead.html
 
-**Mayor Adams Walks Back Budget Cuts, but No Reprieve for Libraries**\
+**Mayor Adams Walks Back Budget Cuts Many Saw as Unnecessary**\
 `The mayor released a revised $111.6 billion budget, which included $2.3 billion that would restore some funding for schools and cultural institutions.`\
 https://nytimes.com/2024/04/24/nyregion/budget-cuts-adams-nyc.html
 
