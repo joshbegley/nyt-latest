@@ -1,3 +1,7 @@
+**Who Stands to Gain from a TikTok Ban**\
+`The Senate has finally passed a law that could bar the  video-sharing app in the U.S., leaving some tech giants in pole position to profit — or pounce.`\
+https://nytimes.com/2024/04/24/business/dealbook/bytedance-tiktok-congress-ban.html
+
 **Myanmar’s Junta Recaptures Town That Was a Significant Gain for Rebels**\
 `Resistance soldiers were forced to leave Myawaddy, a key trading center on the border with Thailand, weeks after capturing it.`\
 https://nytimes.com/2024/04/24/world/asia/myanmar-junta-rebels-myawaddy.html
