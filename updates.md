@@ -1,3 +1,7 @@
+**Undercover Sex Sting Leads to Charges Against School Crossing Guard**\
+`Jared Jeridore, who worked near a Queens school, was arrested after complaints about him led the police to have an officer pose as a teenage girl.`\
+https://nytimes.com/2024/04/24/nyregion/jeridore-katz-school-crossing-guard-charges.html
+
 **Arizona Charges Giuliani and Other Trump Allies in Election Interference Case**\
 `Those charged included Mark Meadows, the former White House chief of staff, and the fake electors who acted on Mr. Trump’s behalf in Arizona after the 2020 election.`\
 https://nytimes.com/2024/04/24/us/arizona-fake-electors-trump.html
