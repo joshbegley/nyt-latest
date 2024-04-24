@@ -1,3 +1,7 @@
+**Man Who Struck Officer With Pole on Jan. 6 Sentenced to 6 Years in Prison**\
+`The man, David Joseph Gietzen, was found guilty of committing five felonies during the January 2021 attack on the Capitol. He failed to show up in court.`\
+https://nytimes.com/2024/04/23/us/jan-6-sentencing-david-gietzen.html
+
 **Columbia Sets Midnight Deadline For Talks to End Encampment**\
 `The university, which asked the police to arrest protesters last week, will consider “alternative options” for clearing the lawn if an agreement is not reached.`\
 https://nytimes.com/2024/04/23/us/columbia-protests-encampment.html
