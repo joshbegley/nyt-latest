@@ -1,3 +1,11 @@
+**Myanmar’s Junta Recaptures Town That Was a Significant Gain for Rebels**\
+`Resistance soldiers were forced to leave Myawaddy, a key trading center on the border with Thailand, weeks after capturing it.`\
+https://nytimes.com/2024/04/24/world/asia/myanmar-junta-rebels-myawaddy.html
+
+**Bird Flu Outbreak in Cattle May Have Begun Months Earlier Than Thought**\
+`A single spillover, from a bird to a cow, led to the infections, a review of genetic data has found.`\
+https://nytimes.com/2024/04/24/health/bird-flu-cows-genetic.html
+
 **Athens Turns Orange Under a Saharan Dust Cloud**\
 `In Photos`\
 https://nytimes.com/2024/04/24/world/europe/athens-orange-sky-sahara-dust-storm.html
