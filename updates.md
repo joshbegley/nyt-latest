@@ -1,3 +1,11 @@
+**Alfonso Chardy, Who Helped Expose Iran-Contra Scandal, Dies at 72**\
+`A Miami Herald correspondent, he powered a team that won a Pulitzer Prize for investigative reporting and helped snare three other Pulitzers for the paper.`\
+https://nytimes.com/2024/04/24/obituaries/alfonso-chardy-dead.html
+
+**Trump Respects Women, Most Men Say**\
+`Women do not see it that way, and that could matter this fall.`\
+https://nytimes.com/2024/04/24/us/politics/trump-respects-women-most-men-say.html
+
 **Chicago Museum Says Investigators Have No Evidence Art Was Looted**\
 `In a court filing, the Art Institute of Chicago fought Manhattan prosecutors’ efforts to seize an important Egon Schiele drawing, denying that the Nazis had stolen it.`\
 https://nytimes.com/2024/04/24/arts/chicago-museum-schiele-court.html
