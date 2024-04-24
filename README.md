@@ -1,3 +1,7 @@
+**Myanmar’s Junta Recaptures Town That Was a Significant Gain for Rebels**\
+`Resistance soldiers were forced to leave Myawaddy, a key trading center on the border with Thailand, weeks after capturing it.`\
+https://nytimes.com/2024/04/24/world/asia/myanmar-junta-rebels-myawaddy.html
+
 **Bird Flu Outbreak in Cattle May Have Begun Months Earlier Than Thought**\
 `A single spillover, from a bird to a cow, led to the infections, a review of genetic data has found.`\
 https://nytimes.com/2024/04/24/health/bird-flu-cows-genetic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/podcasts/tiktok-bill-idaho-abortion.html
 **Is $60 Billion Enough to Save Ukraine?**\
 `Congress approved a new aid package after months of delay, potentially throwing the country a lifeline in its war with Russia.`\
 https://nytimes.com/2024/04/24/podcasts/the-daily/is-60-billion-enough-to-save-ukraine.html
-
-**Israel’s foreign minister thanks the Senate for passing a hard-fought aid bill.**\
-`By Matt Surman`\
-https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/israels-foreign-minister-thanks-the-senate-for-passing-a-hard-fought-aid-bill
 
