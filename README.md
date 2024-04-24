@@ -1,3 +1,7 @@
+**Vehicle Crash That Injured Film Crew Was Caught on Video**\
+`The collision on the set of “The Pickup” is under investigation. Video shows an armored truck and an S.U.V. veering off a road before the truck flips onto the smaller vehicle.`\
+https://nytimes.com/2024/04/24/arts/the-pickup-accident-video.html
+
 **White House says it won’t interfere in decision over Israeli battalion accused of abuse.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/white-house-says-it-wont-interfere-in-decision-over-israeli-battalion-accused-of-abuse
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/world/asia/israel-rafah-us-ukraine-asia.html
 **Prosecutor Says Sept. 11 Suspects Can Be Held Past War Crimes Sentence**\
 `The argument, in a pretrial hearing, dealt with the unresolved question of whether a prisoner who completes such a sentence is entitled to release from military detention.`\
 https://nytimes.com/2024/04/24/us/politics/sept-11-suspects-war-crimes-sentence.html
-
-**Enduring Mayhem: Images From Year 3 of the War in Ukraine**\
-`A photographic chronicle of the third year of Russia’s invasion of Ukraine.`\
-https://nytimes.com/2024/04/24/world/europe/images-ukraine-war-third-year.html
 
