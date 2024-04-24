@@ -1,3 +1,11 @@
+**Spain’s Leader Says He’s Considering Resigning as Wife Faces Investigation**\
+`Prime Minister Pedro Sánchez suspended all public duties until Monday, after a judge ordered an inquiry into alleged influence peddling by Mr. Sánchez’s wife.`\
+https://nytimes.com/2024/04/24/world/europe/spain-pedro-sanchez-wife.html
+
+**A Megaraptor Emerges From Footprint Fossils**\
+`A series of foot tracks in southeastern China points to the discovery of a giant velociraptor, paleontologists suggest in a new study.`\
+https://nytimes.com/2024/04/24/science/velociraptor-fossil-china.html
+
 **A Megaraptor Emerges From Footprint Fossils**\
 `A series of foot tracks in southeastern China points to the discovery of a giant velociraptor, paleontologists suggest in a new study.`\
 https://nytimes.com/2024/04/24/science/vellociraptor-fossil-china.html
