@@ -1,3 +1,11 @@
+**Justices Seemed Split on Emergency Abortion Access**\
+`Also, U.S. weapons are headed to Ukraine. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/04/24/briefing/supreme-court-abortion-ukraine-us-aid.html
+
+**‘Don’t Inject Bleach’: Biden Mocks Trump on Anniversary of Covid Comments**\
+`President Biden has homed in on the infamous moment, which crystallized the chaos of the Trump presidency, as he trolls his political opponent.`\
+https://nytimes.com/2024/04/24/us/politics/biden-trump-covid-bleach.html
+
 **‘Everyone was ready to act.’ At Brown, students are galvanized by nationwide protests.**\
 `By Jenna Russell`\
 https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/brown-university-protests
