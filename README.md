@@ -1,3 +1,7 @@
+**Let This Breakfast Change Your Life**\
+`A simple miso-roasted salmon, part of a traditional Japanese way to start the day, is both sustenance and self-care.`\
+https://nytimes.com/2024/04/24/magazine/japanese-breakfast-miso-salmon-recipe.html
+
 **After U.N. Report, Germany Says It Will Resume Funding for UNRWA**\
 `The announcement was likely to further strain Germany’s longstanding ties with Israel, which have deteriorated because of differences over the war in Gaza.`\
 https://nytimes.com/2024/04/24/world/middleeast/germany-un-aid-unrwa-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/24/learning/TongaGeographyQuiz.html
 **Meta’s A.I. Assistant Is Fun to Use, but It Can’t Be Trusted**\
 `Despite Mark Zuckerberg’s hope for the chatbot to be the smartest, it struggles with facts, numbers and web search.`\
 https://nytimes.com/2024/04/24/technology/personaltech/meta-ai-facebook-instagram-chatbot.html
-
-**Arizona Democrats Consider 3rd Attempt to Repeal 1864 Abortion Law**\
-`The almost-complete ban on abortions in the state could go into effect as early as June 8, the state’s attorney general said.`\
-https://nytimes.com/2024/04/24/us/abortion-ban-arizona.html
 
