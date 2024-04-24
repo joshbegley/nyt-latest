@@ -1,3 +1,7 @@
+**Late Night Tackles Trump’s Gag Order Hearing**\
+`“Has Trump ever considered paying himself hush money?” Jordan Klepper asked on Tuesday’s “Daily Show.”`\
+https://nytimes.com/2024/04/24/arts/television/late-night-trump-gag-order.html
+
 **Corrections: April 24, 2024**\
 `Corrections that appeared in print on Weekday, Month Date, Year.`\
 https://nytimes.com/2024/04/24/pageoneplus/corrections-april-24-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/nyregion/seder-israel-gaza-war.html
 **Bread Spread**\
 `Step into the house of mirrors with Jeffrey Martinovic.`\
 https://nytimes.com/2024/04/23/crosswords/daily-puzzle-2024-04-24.html
-
-**How the Senate Voted on Foreign Aid to Ukraine, Israel and Taiwan**\
-`The measure, which includes a provision on the sale or ban of TikTok, had wide bipartisan support.`\
-https://nytimes.com/interactive/2024/04/23/us/politics/senate-vote-aid-israel-tiktok.html
 
