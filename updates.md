@@ -1,3 +1,11 @@
+**Hundreds at Harvard Protest Suspension of Pro-Palestinian Group**\
+`Students flooded Harvard Yard, the oldest part of the university’s campus, which officials recently closed to the public. The students set up tents for an “emergency rally.”`\
+https://nytimes.com/2024/04/24/us/harvard-campus-protests.html
+
+**Johnson Calls to End Pro-Palestinian Protests, Including by Military Means**\
+`The Republican speaker appeared on Columbia University’s campus to condemn protesters as antisemitic and urge stronger action by the school’s president and President Biden.`\
+https://nytimes.com/2024/04/24/us/politics/johnson-columbia-university-president-protests.html
+
 **Biden signs aid bill, reaffirming his commitment to Israel.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/biden-signs-aid-bill-reaffirming-his-commitment-to-israel
