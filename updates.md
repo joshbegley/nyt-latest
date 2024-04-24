@@ -1,3 +1,7 @@
+**Athens Turns Orange Under a Saharan Dust Cloud**\
+`In Photos`\
+https://nytimes.com/2024/04/24/world/europe/athens-orange-sky-sahara-dust-storm.html
+
 **Israel says it is deploying two more brigades to Gaza.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/israel-says-it-is-deploying-two-more-brigades-to-gaza

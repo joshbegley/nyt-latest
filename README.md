@@ -1,3 +1,7 @@
+**Bird Flu Outbreak in Cattle May Have Begun Months Earlier Than Thought**\
+`A single spillover, from a bird to a cow, led to the infections, a review of genetic data has found.`\
+https://nytimes.com/2024/04/24/health/bird-flu-cows-genetic.html
+
 **Israel says it is deploying two more brigades to Gaza.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/israel-says-it-is-deploying-two-more-brigades-to-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/podcasts/the-daily/is-60-billion-enough-to-save-u
 **Israel’s foreign minister thanks the Senate for passing a hard-fought aid bill.**\
 `By Matt Surman`\
 https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/israels-foreign-minister-thanks-the-senate-for-passing-a-hard-fought-aid-bill
-
-**24mideast-crisis**\
-`Israel Welcomes Senate Passage of Aid Bill`\
-https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas
 
