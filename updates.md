@@ -1,3 +1,27 @@
+**What’s Going On in This Graph? | May 1, 2024**\
+`How involved are parents in their young adult children’s lives?`\
+https://nytimes.com/2024/04/24/learning/whats-going-on-in-this-graph-may-1-2024.html
+
+**Hersh Goldberg-Polin, an Israeli American Hostage, Is Seen in Hamas Video**\
+`The video appeared to be the first time that Mr. Goldberg-Polin, who was grievously injured in the Hamas-led Oct. 7 attack, has been seen alive since he was taken captive.`\
+https://nytimes.com/2024/04/24/world/middleeast/hamas-hostage-video-hersh-goldberg-polin.html
+
+**Queens Park Ladies Joined a Boys’ League. Then They Went Undefeated.**\
+`The under-12 soccer team in Bournemouth, England, hopes to inspire younger girls to get into the sport after a dominant season against the boys.`\
+https://nytimes.com/2024/04/24/world/europe/uk-women-girls-soccer-team-bournemouth.html
+
+**The Columbia president’s congressional testimony last week promised ‘consequences.’**\
+`By Lola Fadulu`\
+https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/the-columbia-presidents-congressional-testimony-last-week-promised-consequences
+
+**24columbia-protests**\
+`Live Updates: Columbia Negotiates With Campus Protesters Ahead of House Speaker’s Visit`\
+https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson
+
+**With Temperatures Soaring, Gazans Swelter in Makeshift Tents**\
+`The tents that failed to keep out the cold when many Gazans first fled their homes have now become suffocating as highs surpass 100 degrees Fahrenheit.`\
+https://nytimes.com/2024/04/24/world/middleeast/gaza-heat-israel-war.html
+
 **Maternity care suffers as abortion laws drive obstetricians from red states.**\
 `By Sheryl Gay Stolberg`\
 https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/maternity-care-suffers-as-abortion-laws-drive-obstetricians-from-red-states

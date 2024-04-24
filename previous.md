@@ -1,3 +1,27 @@
+**What’s Going On in This Graph? | May 1, 2024**\
+`How involved are parents in their young adult children’s lives?`\
+https://nytimes.com/2024/04/24/learning/whats-going-on-in-this-graph-may-1-2024.html
+
+**Hersh Goldberg-Polin, an Israeli American Hostage, Is Seen in Hamas Video**\
+`The video appeared to be the first time that Mr. Goldberg-Polin, who was grievously injured in the Hamas-led Oct. 7 attack, has been seen alive since he was taken captive.`\
+https://nytimes.com/2024/04/24/world/middleeast/hamas-hostage-video-hersh-goldberg-polin.html
+
+**Queens Park Ladies Joined a Boys’ League. Then They Went Undefeated.**\
+`The under-12 soccer team in Bournemouth, England, hopes to inspire younger girls to get into the sport after a dominant season against the boys.`\
+https://nytimes.com/2024/04/24/world/europe/uk-women-girls-soccer-team-bournemouth.html
+
+**The Columbia president’s congressional testimony last week promised ‘consequences.’**\
+`By Lola Fadulu`\
+https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/the-columbia-presidents-congressional-testimony-last-week-promised-consequences
+
+**24columbia-protests**\
+`Live Updates: Columbia Negotiates With Campus Protesters Ahead of House Speaker’s Visit`\
+https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson
+
+**With Temperatures Soaring, Gazans Swelter in Makeshift Tents**\
+`The tents that failed to keep out the cold when many Gazans first fled their homes have now become suffocating as highs surpass 100 degrees Fahrenheit.`\
+https://nytimes.com/2024/04/24/world/middleeast/gaza-heat-israel-war.html
+
 **Maternity care suffers as abortion laws drive obstetricians from red states.**\
 `By Sheryl Gay Stolberg`\
 https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/maternity-care-suffers-as-abortion-laws-drive-obstetricians-from-red-states
@@ -13,28 +37,4 @@ https://nytimes.com/2024/04/24/technology/binance-changpeng-zhao.html
 **The Biden administration considers the federal EMTALA law key to preserving abortion access.**\
 `By Zolan Kanno-Youngs`\
 https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/the-biden-administration-considers-the-federal-emtala-law-key-to-preserving-abortion-access
-
-**What’s the Best Way to Salt Scrambled Eggs?**\
-`Paying close attention to timing can help you avoid watery eggs. Kenji López-Alt explains why.`\
-https://nytimes.com/2024/04/24/dining/best-way-to-salt-scrambled-eggs.html
-
-**Senate Committee Investigates Ozempic and Wegovy Costs**\
-`Senator Bernie Sanders is pressing the drugmaker Novo Nordisk for details on its pricing of the popular diabetes and weight loss medications.`\
-https://nytimes.com/2024/04/24/well/live/ozempic-cost-senate.html
-
-**RZA of Wu-Tang Clan Has Beef With Meat**\
-`The rapper, producer, actor and vegan talks about the connections between meat and masculinity, animal welfare and the environment.`\
-https://nytimes.com/2024/04/24/climate/wu-tang-clan-rza-vegan.html
-
-**Elon Musk Clashes With Australian Court Over Violent Videos on X**\
-`Mr. Musk’s defiance over removing content is testing the boundaries of international legal systems.`\
-https://nytimes.com/2024/04/24/technology/elon-musk-videos-x-australia-court.html
-
-**Joe Biden and the Israel-Gaza War**\
-`Readers discuss a column by Nicholas Kristof. Also: Donald Trump, “unprecedented”; tech in school; how sorrow changes us; California’s property taxes.`\
-https://nytimes.com/2024/04/24/opinion/joe-biden-israel-gaza-war.html
-
-**Business Groups Sue to Stop F.T.C. From Banning Noncompete Clauses**\
-`The suit was filed the day after the agency announced a rule that prohibits companies from limiting their employees’ ability to work for rivals. It argues that the F.T.C. does not have the authority.`\
-https://nytimes.com/2024/04/24/business/lawsuit-ftc-noncompete-ban.html
 
