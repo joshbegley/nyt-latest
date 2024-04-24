@@ -1,3 +1,11 @@
+**Blinken Goes to China With Potential Trouble on Horizon**\
+`The secretary of state’s visit comes as Democrats and Republicans are vying to appear tougher on China.`\
+https://nytimes.com/2024/04/24/world/asia/blinken-arrives-in-china.html
+
+**Wednesday Briefing**\
+`U.S. Senate approves long-stalled foreign aid.`\
+https://nytimes.com/2024/04/24/briefing/senate-aid-ukraine-trump-trial.html
+
 **Man Who Struck Officer With Pole on Jan. 6 Sentenced to 6 Years in Prison**\
 `The man, David Joseph Gietzen, was found guilty of committing five felonies during the January 2021 attack on the Capitol. He failed to show up in court.`\
 https://nytimes.com/2024/04/23/us/jan-6-sentencing-david-gietzen.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/23/technology/tiktok-ban-bill-congress.html
 **Summer Lee, ‘Squad’ Member, Wins Democratic House Primary in Pennsylvania**\
 `A first-term representative, Ms. Lee defeated a centrist Democrat in a race that centered on her opposition to the war in Gaza.`\
 https://nytimes.com/2024/04/23/us/politics/lee-pennsylvania-primary.html
-
-**‘Mary Jane’ Review: When Parenting Means Intensive Care**\
-`Amy Herzog’s heartbreaker arrives on Broadway with Rachel McAdams as the alarmingly upbeat mother of a fearfully sick child.`\
-https://nytimes.com/2024/04/23/theater/mary-jane-review-rachel-mcadams.html
-
-**Clashes Over Gag Order and Tabloid Testimony in the Trump Criminal Trial**\
-`Tuesday’s session of Donald J.`\
-https://nytimes.com/video/nyregion/100000009430318/trump-criminal-trial-gag-order-tabloid-testimony.html
 
