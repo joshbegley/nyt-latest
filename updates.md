@@ -1,3 +1,7 @@
+**Horses Run Loose Through Central London in Surreal Spectacle**\
+`A number of runaway army horses galloped through London on Wednesday morning, causing alarm and injuring pedestrians. All of the animals were eventually recovered.`\
+https://nytimes.com/2024/04/24/world/europe/horses-loose-london.html
+
 **Boeing Loses $355 Million in Latest Quarter**\
 `The manufacturer has had to slow production of its popular 737 Max planes after a hole blew open on a jet during an Alaska Airlines flight in January.`\
 https://nytimes.com/2024/04/24/business/boeing-first-quarter-earnings.html
