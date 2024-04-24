@@ -1,3 +1,7 @@
+**‘Unborn Child’ or ‘Fetus’: Parsing Word Choices on Abortion at the Supreme Court**\
+`The word choice is not merely a question of semantics but gets to the heart of the ultimate goal of the anti-abortion movement: fetal personhood, and prohibiting abortion entirely.`\
+https://nytimes.com/2024/04/24/us/politics/fetus-unborn-child-abortion-idaho.html
+
 **On TikTok, Resignation and Frustration After Potential Ban of App**\
 `While Congress says the social app is a security threat, critics of the law targeting it say it shows how out of step lawmakers are with young people.`\
 https://nytimes.com/2024/04/24/technology/tiktok-frustration-ban.html
