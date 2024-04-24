@@ -12,7 +12,7 @@ https://nytimes.com/2024/04/24/opinion/ozempic-wegovy-weight-glp1.html
 
 **Why I’m Getting More Pessimistic About Biden’s Chances This Fall**\
 `The reasons aren’t rocket science.`\
-https://nytimes.com/live/2024/04/16/opinion/thepoint/biden-poll-young-voters
+https://nytimes.com/live/2024/04/24/opinion/thepoint/biden-poll-young-voters
 
 **7 Books on Navigating Grief**\
 `Psychologists, counselors and other experts share the titles they recommend most.`\
