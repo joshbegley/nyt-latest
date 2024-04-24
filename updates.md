@@ -1,3 +1,15 @@
+**The Volkswagen Union Win Shows That Labor Is Becoming a Bigger Tent**\
+`Republicans tried to quash the union drive with partisanship. It didn’t work.`\
+https://nytimes.com/2024/04/24/opinion/volkswagen-union-labor-republicans.html
+
+**Rotting Fruit, an Animatronic Mouse and Other Highlights of the Venice Biennale**\
+`A tour of the international exhibition, which opened last week and runs through November.`\
+https://nytimes.com/2024/04/24/t-magazine/venice-biennale-highlights.html
+
+**Protesters on both sides of the abortion debate clash outside the Supreme Court.**\
+`By Aishvarya Kavi`\
+https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/protesters-on-both-sides-of-the-abortion-debate-clash-outside-the-supreme-court
+
 **Columbia’s president, Nemat Shafik, has been at the center of the unrest.**\
 `By Troy Closson and Stephanie Saul`\
 https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/columbias-president-nemat-shafik-has-been-at-the-center-of-the-unrest
