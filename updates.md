@@ -1,3 +1,7 @@
+**Quotation of the Day: Trapped and Starving, 2 Families Try to Keep Their Children Alive**\
+`Quotation of the Day for Wednesday, April 24, 2024.`\
+https://nytimes.com/2024/04/24/pageoneplus/quotation-of-the-day-trapped-and-starving-2-families-try-to-keep-their-children-alive.html
+
 **Columbia Sets Deadline For Talks to End Encampment**\
 `The university, which asked the police to arrest protesters last week, will consider “alternative options” for clearing the lawn if an agreement is not reached.`\
 https://nytimes.com/2024/04/23/us/columbia-protests-encampment.html
