@@ -1,3 +1,15 @@
+**This Is What a Miracle Drug Looks Like. And It Only Costs $5 to Make.**\
+`The effects of semaglutide drugs won’t just be cosmetic`\
+https://nytimes.com/2024/04/24/opinion/ozempic-wegovy-weight-glp1.html
+
+**24biden-ukraine**\
+`Live Updates: Biden Praises Aid Package for Ukraine and Israel as a ‘Good Day for World Peace’`\
+https://nytimes.com/live/2024/04/24/us/biden-israel-ukraine-aid
+
+**Inside the Crisis at NPR**\
+`Listeners are tuning out. Sponsorship revenue has dipped. A diversity push has generated internal turmoil. Can America’s public radio network turn things around?`\
+https://nytimes.com/2024/04/24/business/media/npr-uri-berliner-diversity.html
+
 **Why I’m Getting More Pessimistic About Biden’s Chances This Fall**\
 `The reasons aren’t rocket science.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/biden-poll-young-voters

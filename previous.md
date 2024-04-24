@@ -1,3 +1,7 @@
+**This Is What a Miracle Drug Looks Like. And It Only Costs $5 to Make.**\
+`The effects of semaglutide drugs won’t just be cosmetic`\
+https://nytimes.com/2024/04/24/opinion/ozempic-wegovy-weight-glp1.html
+
 **Why I’m Getting More Pessimistic About Biden’s Chances This Fall**\
 `The reasons aren’t rocket science.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/biden-poll-young-voters
@@ -10,9 +14,13 @@ https://nytimes.com/2024/04/24/well/mind/death-grief-bereavement-books.html
 `Lidey Heuck’s one-pot recipe for littleneck clams with cherry tomatoes and pearl couscous feels restaurant-fancy but is weeknight-easy.`\
 https://nytimes.com/2024/04/24/dining/a-classy-but-not-fussy-clam-dinner.html
 
+**24biden-ukraine**\
+`Live Updates: Biden Praises Aid Package for Ukraine and Israel as a ‘Good Day for World Peace’`\
+https://nytimes.com/live/2024/04/24/us/biden-israel-ukraine-aid
+
 **Inside the Crisis at NPR**\
 `Listeners are tuning out. Sponsorship revenue has dipped. A diversity push has generated internal turmoil. Can America’s public radio network turn things around?`\
-https://nytimes.com/2024/04/24/business/media/inside-the-crisis-at-npr.html
+https://nytimes.com/2024/04/24/business/media/npr-uri-berliner-diversity.html
 
 **Living in New Jersey, Grieving for Over 100 Relatives Killed in Gaza**\
 `Adam and Ola Abo Sheriah absorb a loss few of their friends and neighbors can imagine, and scramble to help surviving family members in Gaza while trying to get their kids to school on time.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/24/us/politics/georgia-voting-bill-homeless.html
 **Why Is This Seder Unlike All Other Seders?**\
 `The dinner parties held by Shtick, a pop-up series celebrating Jewish culture, draw out New York’s influencers, artists, designers and celebrities.`\
 https://nytimes.com/2024/04/24/style/passover-seder-shtick.html
-
-**Robert Kraft’s Fight Against Antisemitism Began Long Before Oct. 7**\
-`The New England Patriots owner said this week that he was “no longer comfortable supporting” Columbia University, his alma mater, which has been disrupted by protests.`\
-https://nytimes.com/2024/04/24/business/robert-kraft-donation-columbia-protests.html
-
-**Turner Prize Shortlist Leans In to Artists’ Identities**\
-`This year’s four nominees are Claudette Johnson, Jasleen Kaur, Pio Abad and Delaine Le Bas, whose works draw on personal history and cultural interpretations.`\
-https://nytimes.com/2024/04/24/arts/design/turner-prize-shortlist.html
 
