@@ -1,3 +1,7 @@
+**Arizona Charges Giuliani and Other Trump Allies in Election Interference Case**\
+`Those charged included Mark Meadows, the former White House chief of staff, and the fake electors who acted on Mr. Trump’s behalf in Arizona after the 2020 election.`\
+https://nytimes.com/2024/04/24/us/arizona-fake-electors-trump.html
+
 **Campus Protests Over Gaza Intensify Amid Pushback by Universities and Police**\
 `There were nearly two dozen new arrests, mostly in Texas, as universities moved to prevent pro-Palestinian encampments from taking hold as they have at Columbia University.`\
 https://nytimes.com/2024/04/24/us/college-protests-spread-austin-dallas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/arts/getty-museum-agrees-to-return-ancient-bronze
 **The Ghost of the 1968 Antiwar Movement Has Returned**\
 `The suffering in the war in Gaza is unacceptable. Young people will make that point clear this summer in Chicago.`\
 https://nytimes.com/2024/04/24/opinion/chicago-dnc-antiwar-protests.html
-
-**U.K. Publisher Redacts Passage of Rebel Wilson’s Memoir**\
-`The Australian actress and comedian accused Sacha Baron Cohen of inappropriate behavior during filming of a 2016 movie, which he has denied.`\
-https://nytimes.com/2024/04/24/us/rebel-wilson-memoir-sacha-baron-cohen.html
 

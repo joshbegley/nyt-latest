@@ -1,3 +1,7 @@
+**Arizona Charges Giuliani and Other Trump Allies in Election Interference Case**\
+`Those charged included Mark Meadows, the former White House chief of staff, and the fake electors who acted on Mr. Trump’s behalf in Arizona after the 2020 election.`\
+https://nytimes.com/2024/04/24/us/arizona-fake-electors-trump.html
+
 **Campus Protests Over Gaza Intensify Amid Pushback by Universities and Police**\
 `There were nearly two dozen new arrests, mostly in Texas, as universities moved to prevent pro-Palestinian encampments from taking hold as they have at Columbia University.`\
 https://nytimes.com/2024/04/24/us/college-protests-spread-austin-dallas.html
