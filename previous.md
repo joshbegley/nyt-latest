@@ -1,3 +1,11 @@
+**Review: John Adams’s ‘El Niño’ Arrives at the Met in Lush Glory**\
+`The opera-oratorio, an alternate Nativity story, featured a flurry of Met debuts, including the director Lileana Blain-Cruz and the conductor Marin Alsop.`\
+https://nytimes.com/2024/04/24/arts/music/review-john-adams-el-nino-met-opera.html
+
+**Famine could begin in Gaza within weeks if more aid doesn’t get in, the W.F.P. warns.**\
+`By Nick Cumming-Bruce and Shashank Bengali`\
+https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/famine-could-begin-in-gaza-within-weeks-if-more-aid-doesnt-get-in-the-wfp-warns
+
 **Bucking G.O.P. Isolationists, McConnell Was Linchpin in Winning Ukraine Aid**\
 `The leader said he often “felt like I was the only Reagan Republican left” as he pushed back on rising forces in his party arguing against American intervention in foreign affairs.`\
 https://nytimes.com/2024/04/24/us/politics/mitch-mcconnell-ukraine-aid-republicans.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/24/business/solar-us-tariffs-asian-imports.html
 **Helen Vendler, ‘Colossus’ of Poetry Criticism, Dies at 90**\
 `In the poetry marketplace, her praise had reputation-making power, while her disapproval could be withering.`\
 https://nytimes.com/2024/04/24/books/helen-vendler-dead.html
-
-**What’s in Our Queue? ‘The X-Files’ and More**\
-`I’m an editor that works primarily with breaking and trending news. Here are a few things I have been enjoying.`\
-https://nytimes.com/interactive/2024/04/24/arts/editors-recommendations-xfiles.html
-
-**NATO Puts on a Show of Force in the Shadow of Russia’s War**\
-`The alliance’s largest exercises offer a preview of what the opening of a Great Power conflict could look like. How it ends is a different story.`\
-https://nytimes.com/2024/04/24/us/politics/nato-exercise-russia-ukraine.html
 
