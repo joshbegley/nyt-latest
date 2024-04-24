@@ -1,3 +1,7 @@
+**In response to protests, Brandeis invited Jewish students to transfer to its campus.**\
+`The university’s president, Ronald D. Liebowitz, promised in an open letter that Brandeis would provide an environment “free of harassment and Jew-hatred.”`\
+https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/brandeis-protests-jewish-students
+
 **Could Justice Barrett Limit Her Own Damage on Abortion?**\
 `She may yet play a significant role in determining the new landscape of abortion rights`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/barrett-abortion-rights-scotus
