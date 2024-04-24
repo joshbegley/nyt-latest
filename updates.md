@@ -1,3 +1,15 @@
+**Helen Vendler, ‘Colossus’ of Poetry Criticism, Dies at 90**\
+`In the poetry marketplace, her praise had reputation-making power, while her disapproval could be withering.`\
+https://nytimes.com/2024/04/24/books/helen-vendler-dead.html
+
+**What’s in Our Queue? ‘The X-Files’ and More**\
+`I’m an editor that works primarily with breaking and trending news. Here are a few things I have been enjoying.`\
+https://nytimes.com/interactive/2024/04/24/arts/editors-recommendations-xfiles.html
+
+**NATO Puts on a Show of Force in the Shadow of Russia’s War**\
+`The alliance’s largest exercises offer a preview of what the opening of a Great Power conflict could look like. How it ends is a different story.`\
+https://nytimes.com/2024/04/24/us/politics/nato-exercise-russia-ukraine.html
+
 **U.S. Secretly Shipped New Long-Range Missiles to Ukraine**\
 `Ukrainian forces for the first time used a longer-range version of weapons known as ATACMS, striking an airfield in Crimea and Russian troops in southeastern Ukraine.`\
 https://nytimes.com/2024/04/24/us/us-ukraine-russia-missiles.html

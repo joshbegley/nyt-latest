@@ -1,3 +1,15 @@
+**Helen Vendler, ‘Colossus’ of Poetry Criticism, Dies at 90**\
+`In the poetry marketplace, her praise had reputation-making power, while her disapproval could be withering.`\
+https://nytimes.com/2024/04/24/books/helen-vendler-dead.html
+
+**What’s in Our Queue? ‘The X-Files’ and More**\
+`I’m an editor that works primarily with breaking and trending news. Here are a few things I have been enjoying.`\
+https://nytimes.com/interactive/2024/04/24/arts/editors-recommendations-xfiles.html
+
+**NATO Puts on a Show of Force in the Shadow of Russia’s War**\
+`The alliance’s largest exercises offer a preview of what the opening of a Great Power conflict could look like. How it ends is a different story.`\
+https://nytimes.com/2024/04/24/us/politics/nato-exercise-russia-ukraine.html
+
 **U.S. Secretly Shipped New Long-Range Missiles to Ukraine**\
 `Ukrainian forces for the first time used a longer-range version of weapons known as ATACMS, striking an airfield in Crimea and Russian troops in southeastern Ukraine.`\
 https://nytimes.com/2024/04/24/us/us-ukraine-russia-missiles.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson
 **With Temperatures Soaring, Gazans Swelter in Makeshift Tents**\
 `The tents that failed to keep out the cold when many Gazans first fled their homes have now become suffocating as highs surpass 100 degrees Fahrenheit.`\
 https://nytimes.com/2024/04/24/world/middleeast/gaza-heat-israel-war.html
-
-**Maternity care suffers as abortion laws drive obstetricians from red states.**\
-`By Sheryl Gay Stolberg`\
-https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/maternity-care-suffers-as-abortion-laws-drive-obstetricians-from-red-states
-
-**The Venice Biennale and the Art of Turning Backward**\
-`Every art institution now speaks of progress, justice, transformation. What if all those words hide a more old-fashioned aim?`\
-https://nytimes.com/2024/04/24/arts/design/venice-biennale-review-art-israel.html
-
-**Binance Founder Should Get Three Years in Prison, Prosecutors Say**\
-`Defense lawyers for Changpeng Zhao, the founder of the crypto exchange Binance, countered that he should receive no prison time.`\
-https://nytimes.com/2024/04/24/technology/binance-changpeng-zhao.html
 
