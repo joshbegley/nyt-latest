@@ -1,3 +1,7 @@
+**Word of the Day: hardscrabble**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/24/learning/word-of-the-day-hardscrabble.html
+
 **Late Night Tackles Trump’s Gag Order Hearing**\
 `“Has Trump ever considered paying himself hush money?” Jordan Klepper asked on Tuesday’s “Daily Show.”`\
 https://nytimes.com/2024/04/24/arts/television/late-night-trump-gag-order.html
