@@ -18,8 +18,8 @@ https://nytimes.com/2024/04/24/briefing/senate-aid-ukraine-trump-trial.html
 `The man, David Joseph Gietzen, was found guilty of committing five felonies during the January 2021 attack on the Capitol. He failed to show up in court.`\
 https://nytimes.com/2024/04/23/us/jan-6-sentencing-david-gietzen.html
 
-**Columbia Sets Deadline For Talks to End Encampment**\
-`The university, which asked the police to arrest protesters last week, will consider “alternative options” for clearing the lawn if an agreement is not reached.`\
+**Deadline to End Columbia Encampment Passes With No Sign of Police on Campus**\
+`The university, which asked the police to arrest protesters last week, had said it would consider “alternative options” for clearing the lawn if an agreement was not reached.`\
 https://nytimes.com/2024/04/23/us/columbia-protests-encampment.html
 
 **Three Takeaways From the Pennsylvania Primaries**\
