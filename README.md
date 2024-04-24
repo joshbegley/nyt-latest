@@ -1,3 +1,7 @@
+**Thursday Briefing: Israel Seems Poised to Invade Rafah**\
+`Also, details of the U.S. aid package to Ukraine and Taylor Swift’s new album.`\
+https://nytimes.com/2024/04/24/world/asia/israel-rafah-us-ukraine-asia.html
+
 **Prosecutor Says Sept. 11 Suspects Can Be Held Past War Crimes Sentence**\
 `The argument, in a pretrial hearing, dealt with the unresolved question of whether a prisoner who completes such a sentence is entitled to release from military detention.`\
 https://nytimes.com/2024/04/24/us/politics/sept-11-suspects-war-crimes-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/science/velociraptor-fossil-china.html
 **This May Be Our Last Chance to Halt Bird Flu in Humans and We Are Blowing It**\
 `“There’s a fine line between one person and 10 people with H5N1.”`\
 https://nytimes.com/2024/04/24/opinion/bird-flu-cow-outbreak.html
-
-**Could Justice Barrett Limit Her Own Damage on Abortion?**\
-`She may yet play a significant role in determining the new landscape of abortion rights`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/barrett-abortion-rights-scotus
 
