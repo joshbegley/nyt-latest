@@ -1,3 +1,7 @@
+**White House says it won’t interfere in decision over Israeli battalion accused of abuse.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/white-house-says-it-wont-interfere-in-decision-over-israeli-battalion-accused-of-abuse
+
 **Justices Seemed Split on Emergency Abortion Access**\
 `Also, U.S. weapons are headed to Ukraine. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/04/24/briefing/supreme-court-abortion-ukraine-us-aid.html

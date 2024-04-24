@@ -1,3 +1,7 @@
+**White House says it won’t interfere in decision over Israeli battalion accused of abuse.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/white-house-says-it-wont-interfere-in-decision-over-israeli-battalion-accused-of-abuse
+
 **Justices Seemed Split on Emergency Abortion Access**\
 `Also, U.S. weapons are headed to Ukraine. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/04/24/briefing/supreme-court-abortion-ukraine-us-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/us/politics/sept-11-suspects-war-crimes-sentence.
 **Enduring Mayhem: Images From Year 3 of the War in Ukraine**\
 `A photographic chronicle of the third year of Russia’s invasion of Ukraine.`\
 https://nytimes.com/2024/04/24/world/europe/images-ukraine-war-third-year.html
-
-**F.D.A. Approves Antibiotic for Increasingly Hard-to-Treat Urinary Tract Infections**\
-`Pivmecillinam, which has been used in Europe for decades, will become available next year to women 18 and older.`\
-https://nytimes.com/2024/04/24/health/fda-urinary-tract-infection-antibiotic.html
 
