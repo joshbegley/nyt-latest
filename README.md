@@ -1,3 +1,7 @@
+**Inside the Crisis at NPR**\
+`Listeners are tuning out. Sponsorship revenue has dipped. A diversity push has generated internal turmoil. Can America’s public radio network turn things around?`\
+https://nytimes.com/2024/04/24/business/media/inside-the-crisis-at-npr.html
+
 **Living in New Jersey, Grieving for Over 100 Relatives Killed in Gaza**\
 `Adam and Ola Abo Sheriah absorb a loss few of their friends and neighbors can imagine, and scramble to help surviving family members in Gaza while trying to get their kids to school on time.`\
 https://nytimes.com/2024/04/24/us/palestinian-family-gaza-war-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/the-conseque
 **‘So Far From Ukraine’: A Princely Dancer Finds a Home in Miami**\
 `Stanislav Olshanskyi has had to battle homesickness and adjust to Miami City Ballet’s style: quick, light, constantly in motion. He’s also the prince in “Swan Lake.”`\
 https://nytimes.com/2024/04/24/arts/dance/olshanskyi-miami-ballet-ukraine.html
-
-**‘Oh, Mary!,’ a Surprise Downtown Hit, Will Play Broadway This Summer**\
-`Cole Escola’s madcap comedy about the former first lady Mary Todd Lincoln will begin performances in June.`\
-https://nytimes.com/2024/04/24/theater/oh-mary-broadway.html
 
