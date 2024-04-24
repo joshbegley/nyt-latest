@@ -1,4 +1,8 @@
 **Bucking G.O.P. Isolationists, McConnell Was Linchpin in Winning Ukraine Aid**\
+`The leader said he often “felt like I was the only Reagan Republican left” as he pushed back on rising forces in his party arguing against American intervention in foreign affairs.`\
+https://nytimes.com/2024/04/24/us/politics/mitch-mcconnell-ukraine-aid-republicans.html
+
+**Bucking G.O.P. Isolationists, McConnell Was Linchpin in Winning Ukraine Aid**\
 `The leader said he often felt like “I was the only Reagan Republican left” as he pushed back on rising forces in his party arguing against American intervention in foreign affairs.`\
 https://nytimes.com/2024/04/24/us/politics/mitch-mcconnell-ukraine-aid-republicans.html
 
