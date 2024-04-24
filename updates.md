@@ -1,3 +1,7 @@
+**Johnson Condemns Pro-Palestinian Protests at Columbia University**\
+`House Speaker Mike Johnson delivered brief remarks at Columbia University on Wednesday, demanding White House action and invoking the possibility of bringing in the National Guard to quell the pro-Palestinian protests. Students interrupted his speech with jeers.`\
+https://nytimes.com/video/us/politics/100000009432319/mike-johnson-columbia-university.html
+
 **McKinsey Is Under Criminal Investigation for Its Opioid Work**\
 `Federal prosecutors are examining the consulting company’s role in helping “turbocharge” the sale of painkillers like OxyContin.`\
 https://nytimes.com/2024/04/24/business/mckinsey-criminal-investigation.html
