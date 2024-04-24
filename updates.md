@@ -1,3 +1,11 @@
+**Blinken Goes to China With Potential Trouble on Horizon**\
+`The secretary of state’s visit comes as Democrats and Republicans are vying to appear tougher on China.`\
+https://nytimes.com/2024/04/24/world/asia/blinken-arrives-in-china.html
+
+**Wednesday Briefing**\
+`U.S. Senate approves long-stalled foreign aid.`\
+https://nytimes.com/2024/04/24/briefing/senate-aid-ukraine-trump-trial.html
+
 **Man Who Struck Officer With Pole on Jan. 6 Sentenced to 6 Years in Prison**\
 `The man, David Joseph Gietzen, was found guilty of committing five felonies during the January 2021 attack on the Capitol. He failed to show up in court.`\
 https://nytimes.com/2024/04/23/us/jan-6-sentencing-david-gietzen.html
