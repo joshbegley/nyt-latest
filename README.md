@@ -1,3 +1,7 @@
+**NATO Puts on a Show of Force in the Shadow of Russia’s War**\
+`The alliance’s largest exercises offer a preview of what the opening of a Great Power conflict could look like. How it ends is a different story.`\
+https://nytimes.com/2024/04/24/us/politics/nato-exercise-russia-ukraine.html
+
 **U.S. Secretly Shipped New Long-Range Missiles to Ukraine**\
 `Ukrainian forces for the first time used a longer-range version of weapons known as ATACMS, striking an airfield in Crimea and Russian troops in southeastern Ukraine.`\
 https://nytimes.com/2024/04/24/us/us-ukraine-russia-missiles.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/maternity-ca
 **The Venice Biennale and the Art of Turning Backward**\
 `Every art institution now speaks of progress, justice, transformation. What if all those words hide a more old-fashioned aim?`\
 https://nytimes.com/2024/04/24/arts/design/venice-biennale-review-art-israel.html
-
-**Binance Founder Should Get Three Years in Prison, Prosecutors Say**\
-`Defense lawyers for Changpeng Zhao, the founder of the crypto exchange Binance, countered that he should receive no prison time.`\
-https://nytimes.com/2024/04/24/technology/binance-changpeng-zhao.html
 
