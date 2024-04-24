@@ -1,3 +1,7 @@
+**Solar Companies Seek New U.S. Tariffs on Asian Imports**\
+`Firms warn that China uses its neighbors to skirt existing levies, depressing prices and threatening U.S. investments.`\
+https://nytimes.com/2024/04/24/business/solar-us-tariffs-asian-imports.html
+
 **Helen Vendler, ‘Colossus’ of Poetry Criticism, Dies at 90**\
 `In the poetry marketplace, her praise had reputation-making power, while her disapproval could be withering.`\
 https://nytimes.com/2024/04/24/books/helen-vendler-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/the-columb
 **24columbia-protests**\
 `Live Updates: Columbia Negotiates With Campus Protesters Ahead of House Speaker’s Visit`\
 https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson
-
-**With Temperatures Soaring, Gazans Swelter in Makeshift Tents**\
-`The tents that failed to keep out the cold when many Gazans first fled their homes have now become suffocating as highs surpass 100 degrees Fahrenheit.`\
-https://nytimes.com/2024/04/24/world/middleeast/gaza-heat-israel-war.html
 

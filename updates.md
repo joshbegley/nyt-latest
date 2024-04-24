@@ -1,3 +1,7 @@
+**Solar Companies Seek New U.S. Tariffs on Asian Imports**\
+`Firms warn that China uses its neighbors to skirt existing levies, depressing prices and threatening U.S. investments.`\
+https://nytimes.com/2024/04/24/business/solar-us-tariffs-asian-imports.html
+
 **Helen Vendler, ‘Colossus’ of Poetry Criticism, Dies at 90**\
 `In the poetry marketplace, her praise had reputation-making power, while her disapproval could be withering.`\
 https://nytimes.com/2024/04/24/books/helen-vendler-dead.html
