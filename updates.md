@@ -1,3 +1,11 @@
+**In response to protests, Brandeis invited Jewish students to transfer.**\
+`By Dana Goldstein`\
+https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/in-response-to-protests-brandeis-invited-jewish-students-to-transfer
+
+**Five Moments That Have Defined Donald Trump’s Trial So Far**\
+`Trials are wars of words. These are some of the most memorable that have been spoken as a jury hears the criminal case against Donald J. Trump.`\
+https://nytimes.com/2024/04/24/nyregion/trump-trial-moments.html
+
 **On TikTok, Resignation and Frustration After Potential Ban of App**\
 `While Congress says the social app is a security threat, critics of the law targeting it say it shows how out of step lawmakers are with young people.`\
 https://nytimes.com/2024/04/24/technology/tiktok-ban-bill-frustration.html

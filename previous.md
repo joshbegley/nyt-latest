@@ -1,3 +1,11 @@
+**In response to protests, Brandeis invited Jewish students to transfer.**\
+`By Dana Goldstein`\
+https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/in-response-to-protests-brandeis-invited-jewish-students-to-transfer
+
+**Five Moments That Have Defined Donald Trump’s Trial So Far**\
+`Trials are wars of words. These are some of the most memorable that have been spoken as a jury hears the criminal case against Donald J. Trump.`\
+https://nytimes.com/2024/04/24/nyregion/trump-trial-moments.html
+
 **The Volkswagen Union Win Shows That Labor Is Becoming a Bigger Tent**\
 `Republicans tried to quash the union drive with partisanship. It didn’t work.`\
 https://nytimes.com/2024/04/24/opinion/volkswagen-union-labor-republicans.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/24/technology/tiktok-ban-bill-frustration.html
 **Pro-Palestinian Encampments Surface at Campuses Nationwide**\
 `Many students have been demanding that their schools end financial ties to Israel and weapons manufacturers.`\
 https://nytimes.com/2024/04/24/us/pro-palestinian-encampments-protests.html
-
-**Dairy Cows Transported Between States Must Now Be Tested for Bird Flu**\
-`Since a new form of bird flu arrived in 2022, federal officials have sought to reassure Americans that the threat to the public remained low.`\
-https://nytimes.com/2024/04/24/health/bird-flu-dairy-cows-testing-usda.html
-
-**How a Broadway Theater Was Remade Into a Queer Cabaret**\
-`The set and costume designer Tom Scutt has conjured a surreal, New York-inspired version of the fictional Kit Kat Club for the latest revival of the 1966 musical “Cabaret.”`\
-https://nytimes.com/interactive/2024/04/24/multimedia/cabaret-broadway-set.html
 
