@@ -1,3 +1,7 @@
+**RZA of Wu-Tang Clan Has Beef With Meat**\
+`The rapper, producer, actor and vegan talks about the connections between meat and masculinity, animal welfare and the environment.`\
+https://nytimes.com/2024/04/24/climate/wu-tang-clan-rza-vegan.html
+
 **Elon Musk Clashes With Australian Court Over Violent Videos on X**\
 `Mr. Musk’s defiance over removing content is testing the boundaries of international legal systems.`\
 https://nytimes.com/2024/04/24/technology/elon-musk-videos-x-australia-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/24/opinion/thepoint/biden-poll-young-voters
 **7 Books on Navigating Grief**\
 `Psychologists, counselors and other experts share the titles they recommend most.`\
 https://nytimes.com/2024/04/24/well/mind/death-grief-bereavement-books.html
-
-**A Classy (but not Fussy) Clam Dinner**\
-`Lidey Heuck’s one-pot recipe for littleneck clams with cherry tomatoes and pearl couscous feels restaurant-fancy but is weeknight-easy.`\
-https://nytimes.com/2024/04/24/dining/a-classy-but-not-fussy-clam-dinner.html
 

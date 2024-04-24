@@ -1,3 +1,7 @@
+**RZA of Wu-Tang Clan Has Beef With Meat**\
+`The rapper, producer, actor and vegan talks about the connections between meat and masculinity, animal welfare and the environment.`\
+https://nytimes.com/2024/04/24/climate/wu-tang-clan-rza-vegan.html
+
 **Elon Musk Clashes With Australian Court Over Violent Videos on X**\
 `Mr. Musk’s defiance over removing content is testing the boundaries of international legal systems.`\
 https://nytimes.com/2024/04/24/technology/elon-musk-videos-x-australia-court.html

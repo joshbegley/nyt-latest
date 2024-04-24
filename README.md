@@ -1,3 +1,7 @@
+**Senate Committee Investigates Ozempic and Wegovy Costs**\
+`Senator Bernie Sanders is pressing the drugmaker Novo Nordisk for details on its pricing of the popular diabetes and weight loss medications.`\
+https://nytimes.com/2024/04/24/well/live/ozempic-cost-senate.html
+
 **RZA of Wu-Tang Clan Has Beef With Meat**\
 `The rapper, producer, actor and vegan talks about the connections between meat and masculinity, animal welfare and the environment.`\
 https://nytimes.com/2024/04/24/climate/wu-tang-clan-rza-vegan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/opinion/ozempic-wegovy-weight-glp1.html
 **Why I’m Getting More Pessimistic About Biden’s Chances This Fall**\
 `The reasons aren’t rocket science.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/biden-poll-young-voters
-
-**7 Books on Navigating Grief**\
-`Psychologists, counselors and other experts share the titles they recommend most.`\
-https://nytimes.com/2024/04/24/well/mind/death-grief-bereavement-books.html
 
