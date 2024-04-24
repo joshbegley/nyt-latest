@@ -1,3 +1,7 @@
+**Trump Wins Pennsylvania Primary, but Remains Haunted by Haley**\
+`Nikki Haley, who dropped out of the race more than a month ago, won more than 155,000 votes, an indication of Donald J. Trump’s difficulties in winning over her supporters.`\
+https://nytimes.com/2024/04/23/us/politics/pennsylvania-primary-takeaways.html
+
 **Trump Wins Pennsylvania Primary, But Remains Haunted by Haley**\
 `Nikki Haley, who dropped out of the race more than a month ago, won more than 155,000 votes, an indication of Donald J. Trump’s difficulties in winning over her supporters.`\
 https://nytimes.com/2024/04/23/us/politics/pennsylvania-primary-takeaways.html

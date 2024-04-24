@@ -30,7 +30,7 @@ https://nytimes.com/2024/04/23/us/jan-6-sentencing-david-gietzen.html
 `The university, which asked the police to arrest protesters last week, had said it would consider “alternative options” for clearing the lawn if an agreement was not reached.`\
 https://nytimes.com/2024/04/23/us/columbia-protests-encampment.html
 
-**Trump Wins Pennsylvania Primary, But Remains Haunted by Haley**\
+**Trump Wins Pennsylvania Primary, but Remains Haunted by Haley**\
 `Nikki Haley, who dropped out of the race more than a month ago, won more than 155,000 votes, an indication of Donald J. Trump’s difficulties in winning over her supporters.`\
 https://nytimes.com/2024/04/23/us/politics/pennsylvania-primary-takeaways.html
 
