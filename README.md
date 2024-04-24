@@ -1,3 +1,7 @@
+**Mayor Adams Pushes Out Chairwoman of Police Oversight Board**\
+`Arva Rice was asked to resign after she criticized police handling of a fatal shooting investigation and requested more money and power to investigate misconduct.`\
+https://nytimes.com/2024/04/23/nyregion/adams-ccrb-chairwoman.html
+
 **McCormick and Casey Win Senate Primaries, Setting Up Battle in Pennsylvania**\
 `Senator Bob Casey, the Democratic incumbent, will face David McCormick, a wealthy businessman whose first run for Senate was torpedoed by former President Donald J. Trump.`\
 https://nytimes.com/2024/04/23/us/politics/mccormick-casey-pennsylvania-senate.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/23/world/israel-hamas-war-gaza/israel-carries-o
 **David Pecker and ‘The Trump Tower Conspiracy’**\
 `Even the worm turns.`\
 https://nytimes.com/live/2024/04/16/opinion/thepoint/pecker-testimony-trump-trial
-
-**Ukraine Could Receive Some U.S. Aid ‘Within Days’**\
-`Also, the F.T.C. banned noncompete clauses. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/04/23/briefing/ukraine-aid-senate-trump-trial-testimony.html
 
