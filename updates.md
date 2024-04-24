@@ -1,3 +1,7 @@
+**24biden-ukraine**\
+`Biden Praises Aid Package for Ukraine and Israel as a ‘Good Day for World Peace’`\
+https://nytimes.com/live/2024/04/24/us/biden-israel-ukraine-aid
+
 **Business Groups Sue to Stop F.T.C. From Banning Noncompete Clauses**\
 `The suit was filed the day after the agency announced a rule that prohibits companies from limiting their employees’ ability to work for rivals. It argues that the F.T.C. does not have the authority.`\
 https://nytimes.com/2024/04/24/business/lawsuit-ftc-noncompete-ban.html
