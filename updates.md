@@ -1,3 +1,11 @@
+**Turner Prize Shortlist Leans In to Artists’ Identities**\
+`This year’s four nominees are Claudette Johnson, Jasleen Kaur, Pio Abad and Delaine Le Bas, whose works draw on personal history and cultural interpretations.`\
+https://nytimes.com/2024/04/24/arts/design/turner-prize-shortlist.html
+
+**The Supreme Court said it was done with abortion. Its docket says otherwise.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/the-supreme-court-said-it-was-done-with-abortion-its-docket-says-otherwise
+
 **The consequences of the court’s decision could reverberate beyond Idaho.**\
 `The case is the first time the justices have examined a state law criminalizing abortion since they overruled Roe v. Wade.`\
 https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/the-consequences-of-the-courts-decision-could-reverberate-beyond-idaho
