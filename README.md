@@ -1,3 +1,11 @@
+**Living in New Jersey, Grieving for Over 100 Relatives Killed in Gaza**\
+`Adam and Ola Abo Sheriah absorb a loss few of their friends and neighbors can imagine, and scramble to help surviving family members in Gaza while trying to get their kids to school on time.`\
+https://nytimes.com/2024/04/24/us/palestinian-family-gaza-war-death.html
+
+**Abortion restrictions have changed the medical care in emergency rooms, too.**\
+`By Kate Zernike`\
+https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/abortion-restrictions-have-changed-the-medical-care-in-emergency-rooms-too
+
 **Homeless Georgians Could Face Hurdles to Voting Under New Legislation**\
 `A provision in an election bill would bar homeless voters from receiving mail-in ballots and election information at shelters or other temporary addresses.`\
 https://nytimes.com/2024/04/24/us/politics/georgia-voting-bill-homeless.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/24/arts/dance/olshanskyi-miami-ballet-ukraine.html
 **‘Oh, Mary!,’ a Surprise Downtown Hit, Will Play Broadway This Summer**\
 `Cole Escola’s madcap comedy about the former first lady Mary Todd Lincoln will begin performances in June.`\
 https://nytimes.com/2024/04/24/theater/oh-mary-broadway.html
-
-**‘Thunder Run’: Behind Lawmakers’ Secretive Push to Pass the TikTok Bill**\
-`A tiny group of lawmakers huddled in private about a year ago, aiming to keep the discussions away from TikTok lobbyists while bulletproofing a bill that could ban the app.`\
-https://nytimes.com/2024/04/24/technology/tiktok-ban-congress.html
-
-**Understanding the Transportation Department’s New Rules for Airline Refunds and ‘Junk’ Fees**\
-`The Biden administration will require airlines to automatically refund fares when flights are canceled or delayed and to reveal more about extra fees before booking. Here’s what passengers can expect.`\
-https://nytimes.com/2024/04/24/travel/airline-refunds-fees.html
 
