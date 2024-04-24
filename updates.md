@@ -1,3 +1,11 @@
+**Israel says it is deploying two more brigades to Gaza.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/israel-says-it-is-deploying-two-more-brigades-to-gaza
+
+**Athens Turns Orange Under a Saharan Dust Cloud**\
+`In Photos`\
+https://nytimes.com/2024/04/24/world/europe/athens-orange-sahara-dust-photos.html
+
 **Let This Breakfast Change Your Life**\
 `A simple miso-roasted salmon, part of a traditional Japanese way to start the day, is both sustenance and self-care.`\
 https://nytimes.com/2024/04/24/magazine/japanese-breakfast-miso-salmon-recipe.html

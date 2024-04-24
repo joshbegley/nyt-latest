@@ -1,3 +1,11 @@
+**Israel says it is deploying two more brigades to Gaza.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/israel-says-it-is-deploying-two-more-brigades-to-gaza
+
+**Athens Turns Orange Under a Saharan Dust Cloud**\
+`In Photos`\
+https://nytimes.com/2024/04/24/world/europe/athens-orange-sahara-dust-photos.html
+
 **Let This Breakfast Change Your Life**\
 `A simple miso-roasted salmon, part of a traditional Japanese way to start the day, is both sustenance and self-care.`\
 https://nytimes.com/2024/04/24/magazine/japanese-breakfast-miso-salmon-recipe.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/israels-foreign-
 **24mideast-crisis**\
 `Israel Welcomes Senate Passage of Aid Bill`\
 https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas
-
-**How Much Do You Know About Tonga?**\
-`Can you find Tonga on a map? What else do you know about this Pacific island nation with about 106,000 people?`\
-https://nytimes.com/interactive/2024/04/24/learning/TongaGeographyQuiz.html
-
-**Meta’s A.I. Assistant Is Fun to Use, but It Can’t Be Trusted**\
-`Despite Mark Zuckerberg’s hope for the chatbot to be the smartest, it struggles with facts, numbers and web search.`\
-https://nytimes.com/2024/04/24/technology/personaltech/meta-ai-facebook-instagram-chatbot.html
 
