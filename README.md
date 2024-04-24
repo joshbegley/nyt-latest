@@ -31,7 +31,7 @@ https://nytimes.com/2024/04/24/well/mind/death-grief-bereavement-books.html
 https://nytimes.com/2024/04/24/dining/a-classy-but-not-fussy-clam-dinner.html
 
 **24biden-ukraine**\
-`Live Updates: Biden Praises Aid Package for Ukraine and Israel as a ‘Good Day for World Peace’`\
+`Biden Praises Aid Package for Ukraine and Israel as a ‘Good Day for World Peace’`\
 https://nytimes.com/live/2024/04/24/us/biden-israel-ukraine-aid
 
 **Inside the Crisis at NPR**\
