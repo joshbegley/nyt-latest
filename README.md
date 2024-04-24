@@ -1,6 +1,10 @@
+**Spain’s Leader Says He’s Considering Resigning as Wife Faces Investigation**\
+`Prime Minister Pedro Sánchez suspended all public duties until Monday, after a judge ordered an inquiry into alleged influence peddling by Mr. Sánchez’s wife.`\
+https://nytimes.com/2024/04/24/world/europe/spain-pedro-sanchez-wife.html
+
 **A Megaraptor Emerges From Footprint Fossils**\
 `A series of foot tracks in southeastern China points to the discovery of a giant velociraptor, paleontologists suggest in a new study.`\
-https://nytimes.com/2024/04/24/science/vellociraptor-fossil-china.html
+https://nytimes.com/2024/04/24/science/velociraptor-fossil-china.html
 
 **This May Be Our Last Chance to Halt Bird Flu in Humans and We Are Blowing It**\
 `“There’s a fine line between one person and 10 people with H5N1.”`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/nyregion/trump-trial-moments.html
 **The Volkswagen Union Win Shows That Labor Is Becoming a Bigger Tent**\
 `Republicans tried to quash the union drive with partisanship. It didn’t work.`\
 https://nytimes.com/2024/04/24/opinion/volkswagen-union-labor-republicans.html
-
-**Rotting Fruit, an Animatronic Mouse and Other Highlights of the Venice Biennale**\
-`A tour of the international exhibition, which opened last week and runs through November.`\
-https://nytimes.com/2024/04/24/t-magazine/venice-biennale-highlights.html
 
