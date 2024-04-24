@@ -1,3 +1,7 @@
+**Meta’s Profits More Than Double, While Spending on A.I. Rises**\
+`The owner of Facebook, Instagram and WhatsApp continued to grow, even as it said it would spend billions of dollars more on artificial intelligence.`\
+https://nytimes.com/2024/04/24/technology/metas-profits-nearly-double-while-spending-on-ai-rises.html
+
 **College Protesters Make Divestment From Israel a Rallying Cry**\
 `The campaign is likely to have a negligible impact on the companies or Israel, but activists see divestment as a clear and achievable way to force colleges to take action on the issue.`\
 https://nytimes.com/2024/04/24/business/college-protesters-divestment-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/us/louisiana-dolphin-shot-dead.html
 **Mayor Adams Walks Back Budget Cuts Many Saw as Unnecessary**\
 `The mayor released a revised $111.6 billion budget, which included $2.3 billion that would restore some funding for schools and cultural institutions.`\
 https://nytimes.com/2024/04/24/nyregion/budget-cuts-adams-nyc.html
-
-**In response to protests, Brandeis invited Jewish students to transfer to its campus.**\
-`The university’s president, Ronald D. Liebowitz, promised in an open letter that Brandeis would provide an environment “free of harassment and Jew-hatred.”`\
-https://nytimes.com/2024/04/24/us/brandeis-protests-jewish-students.html
 
