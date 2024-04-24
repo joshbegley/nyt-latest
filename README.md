@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/04/24/opinion/thepoint/barrett-abortion-rights-sco
 
 **5 Takeaways From the Supreme Court Arguments on Idaho’s Abortion Ban**\
 `The court’s ruling could extend to at least half a dozen other states that have similarly restrictive bans, and the implications of the case could stretch beyond abortion.`\
-https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/takeaways-supreme-court-idaho-abortion-ban
+https://nytimes.com/2024/04/24/us/politics/takeaways-supreme-court-idaho-abortion-ban.html
 
 **Authorities Offer $20,000 to Find Person Who Fatally Shot Dolphin**\
 `The dolphin, a juvenile found on a Louisiana beach, had injuries “consistent with being shot with a firearm,” marine officials said.`\
