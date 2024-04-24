@@ -1,3 +1,7 @@
+**Donald M. Payne Jr., Five-Term New Jersey Representative, Dies at 65**\
+`A Newark Democrat, he succeeded his father, who was the first Black member of New Jersey’s congressional delegation.`\
+https://nytimes.com/2024/04/24/nyregion/rep-donald-m-payne-jr-dead.html
+
 **Johnson Calls to End Pro-Palestinian Protests, Including by Military Means**\
 `The Republican speaker appeared on the campus of Columbia University to condemn protesters as antisemitic, and said the school’s president and President Biden should take stronger action against them.`\
 https://nytimes.com/2024/04/24/us/politics/johnson-columbia-university-president-protests.html
