@@ -1,40 +1,40 @@
-**New York City’s Everlasting Scaffolding**\
-`Why the protective barriers over sidewalks stay up for so long.`\
-https://nytimes.com/2024/04/24/nyregion/nyc-scaffolding.html
+**Inside MAGA’s Plan to Take Over America**\
+`“Finish What We Started,” by the journalist Isaac Arnsdorf, reports from the front lines of the right-wing movement’s strategy to gain power, from the local level on up.`\
+https://nytimes.com/2024/04/24/books/review/finish-what-we-started-isaac-arnsdorf.html
 
-**Tech in the Classroom**\
-`Is there a problem with screens in schools?`\
-https://nytimes.com/2024/04/24/learning/tech-in-the-classroom.html
+**Wanted: An Executive to Repair Boeing**\
+`The plane maker, which is searching for a new chief executive, is likely to consider a small number of people, including several former Boeing executives.`\
+https://nytimes.com/2024/04/24/business/boeing-chief-executive-search.html
 
-**Breaking Down New Rules About ‘Forever Chemicals’**\
-`Lisa Friedman, who covers climate change, discussed the fight to regulate toxic chemicals found in nearly half of America’s tap water.`\
-https://nytimes.com/2024/04/24/insider/pfas-water.html
+**The Supreme Court Has Already Botched the Trump Immunity Case**\
+`The court’s delay may have stripped citizens of the criminal justice system’s most effective mechanism for determining disputed facts: a trial.`\
+https://nytimes.com/2024/04/24/opinion/supreme-court-trump-immunity.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/24/crosswords/spelling-bee-forum.html
+**Two Lawsuits, in Texas and Idaho, Highlight Fight Over Emergency Medicine Law**\
+`Federal trial judges in Texas and Idaho came to opposite conclusions in a battle between conservative states and the U.S. government over limits on abortion access.`\
+https://nytimes.com/2024/04/24/us/politics/emergency-abortion-lawsuits-idaho-texas.html
 
-**The Connections Companion No. 318**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/24/crosswords/connections-companion.html
+**A ‘Wonderland’ Adventure in the Bronx**\
+`A show at the New York Botanical Garden, inspired by Lewis Carroll’s books, will explore his fictional and real worlds through plants, art and artifacts.`\
+https://nytimes.com/2024/04/24/arts/design/new-york-botanical-garden-wonderland.html
 
-**Today’s Wordle Review No. 1,040**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/24/crosswords/wordle-review.html
+**How a Virtual Assistant Taught Me to Appreciate Busywork**\
+`A new category of apps promises to relieve parents of drudgery, with an assist from A.I. But a family’s grunt work is more human, and valuable, than it seems.`\
+https://nytimes.com/2024/04/24/arts/artificial-intelligence-assistants-parents.html
 
-**Word of the Day: hardscrabble**\
-`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/04/24/learning/word-of-the-day-hardscrabble.html
+**A Breakout Spanish Novel About Class and Trans Identity Comes to the U.S.**\
+`Alana S. Portero’s debut, “Bad Habit,” follows one woman’s coming-of-age in a blue-collar Madrid neighborhood.`\
+https://nytimes.com/2024/04/24/books/review/bad-habit-alana-s-portero.html
 
-**Late Night Tackles Trump’s Gag Order Hearing**\
-`“Has Trump ever considered paying himself hush money?” Jordan Klepper asked on Tuesday’s “Daily Show.”`\
-https://nytimes.com/2024/04/24/arts/television/late-night-trump-gag-order.html
+**Former Boeing Manager Says Workers Mishandled Parts to Meet Deadlines**\
+`Merle Meyers, who left Boeing last year after a 30-year career, said he was speaking publicly about his experience because he loved the company “fiercely.”`\
+https://nytimes.com/2024/04/24/business/boeing-airlines-plane-issues.html
 
-**Corrections: April 24, 2024**\
-`Corrections that appeared in print on Weekday, Month Date, Year.`\
-https://nytimes.com/2024/04/24/pageoneplus/corrections-april-24-2024.html
+**If You Read One Romance This Spring, Make It This One**\
+`Our romance columnist recommends three terrific new books, but the one she loves most is Cat Sebastian’s “You Should Be So Lucky.”`\
+https://nytimes.com/2024/04/24/books/review/new-romance-novels.html
 
-**Quotation of the Day: Trapped and Starving, 2 Families Try to Keep Their Children Alive**\
-`Quotation of the Day for Wednesday, April 24, 2024.`\
-https://nytimes.com/2024/04/24/pageoneplus/quotation-of-the-day-trapped-and-starving-2-families-try-to-keep-their-children-alive.html
+**Art Seeks Enlightenment in Darkness**\
+`Many artists are dimming the lights of their museum shows, for a mix of symbolic and spiritual reasons.`\
+https://nytimes.com/2024/04/24/arts/design/museum-lighting-darkness.html
 
