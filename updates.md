@@ -1,3 +1,7 @@
+**Deadline to End Columbia Encampment Passes With No Sign of Police on Campus**\
+`The university, which asked the police to arrest protesters last week, had said it would consider “alternative options” for clearing the lawn if an agreement was not reached.`\
+https://nytimes.com/2024/04/23/us/columbia-protests-encampment.html
+
 **Corrections: April 24, 2024**\
 `Corrections that appeared in print on Weekday, Month Date, Year.`\
 https://nytimes.com/2024/04/24/pageoneplus/corrections-april-24-2024.html
