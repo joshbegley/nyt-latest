@@ -1,3 +1,15 @@
+**Every Tech Tool in the Classroom Should Be Ruthlessly Evaluated**\
+`Screens in K-12 schools need ‘a hard reset.’`\
+https://nytimes.com/2024/04/24/opinion/ed-tech-classroom.html
+
+**We’re Adding New Songs to Our California Soundtrack**\
+`Our playlist reflects the breadth and diversity of the Golden State.`\
+https://nytimes.com/2024/04/24/us/california-soundtrack.html
+
+**Can I Ask My Mother-in-Law Who My Wife’s Biological Father Is?**\
+`Although his wife has long maintained that she doesn’t want to know the identity of her birth father, a reader is tempted to find out on her behalf.`\
+https://nytimes.com/2024/04/24/style/spouse-biological-parents.html
+
 **Starbucks and Union Set to Restart Contract Talks After Bitter Standoff**\
 `The company and Workers United, which represents more than 10,000 of the chain’s employees, broke off negotiation nearly a year ago.`\
 https://nytimes.com/2024/04/24/business/starbucks-union-workers-negotiate.html
