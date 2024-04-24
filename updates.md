@@ -1,3 +1,7 @@
+**Late Night Tackles Trump’s Gag Order Hearing**\
+`“Has Trump ever considered paying himself hush money?” Jordan Klepper asked on Tuesday’s “Daily Show.”`\
+https://nytimes.com/2024/04/24/arts/television/late-night-trump-gag-order.html
+
 **Deadline to End Columbia Encampment Passes With No Sign of Police on Campus**\
 `The university, which asked the police to arrest protesters last week, had said it would consider “alternative options” for clearing the lawn if an agreement was not reached.`\
 https://nytimes.com/2024/04/23/us/columbia-protests-encampment.html
