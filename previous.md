@@ -1,3 +1,7 @@
+**Joe Biden and the Israel-Gaza War**\
+`Readers discuss a column by Nicholas Kristof. Also: Donald Trump, “unprecedented”; tech in school; how sorrow changes us; California’s property taxes.`\
+https://nytimes.com/2024/04/24/opinion/joe-biden-israel-gaza-war.html
+
 **Business Groups Sue to Stop F.T.C. From Banning Noncompete Clauses**\
 `The suit was filed the day after the agency announced a rule that prohibits companies from limiting their employees’ ability to work for rivals. It argues that the F.T.C. does not have the authority.`\
 https://nytimes.com/2024/04/24/business/lawsuit-ftc-noncompete-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/dining/a-classy-but-not-fussy-clam-dinner.html
 **24biden-ukraine**\
 `Biden Praises Aid Package for Ukraine and Israel as a ‘Good Day for World Peace’`\
 https://nytimes.com/live/2024/04/24/us/biden-israel-ukraine-aid
-
-**Inside the Crisis at NPR**\
-`Listeners are tuning out. Sponsorship revenue has dipped. A diversity push has generated internal turmoil. Can America’s public radio network turn things around?`\
-https://nytimes.com/2024/04/24/business/media/npr-uri-berliner-diversity.html
 

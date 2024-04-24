@@ -1,3 +1,7 @@
+**Joe Biden and the Israel-Gaza War**\
+`Readers discuss a column by Nicholas Kristof. Also: Donald Trump, “unprecedented”; tech in school; how sorrow changes us; California’s property taxes.`\
+https://nytimes.com/2024/04/24/opinion/joe-biden-israel-gaza-war.html
+
 **24biden-ukraine**\
 `Biden Praises Aid Package for Ukraine and Israel as a ‘Good Day for World Peace’`\
 https://nytimes.com/live/2024/04/24/us/biden-israel-ukraine-aid

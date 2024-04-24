@@ -1,3 +1,7 @@
+**Elon Musk Clashes With Australian Court Over Violent Videos on X**\
+`Mr. Musk’s defiance over removing content is testing the boundaries of international legal systems.`\
+https://nytimes.com/2024/04/24/technology/elon-musk-videos-x-australia-court.html
+
 **Joe Biden and the Israel-Gaza War**\
 `Readers discuss a column by Nicholas Kristof. Also: Donald Trump, “unprecedented”; tech in school; how sorrow changes us; California’s property taxes.`\
 https://nytimes.com/2024/04/24/opinion/joe-biden-israel-gaza-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/well/mind/death-grief-bereavement-books.html
 **A Classy (but not Fussy) Clam Dinner**\
 `Lidey Heuck’s one-pot recipe for littleneck clams with cherry tomatoes and pearl couscous feels restaurant-fancy but is weeknight-easy.`\
 https://nytimes.com/2024/04/24/dining/a-classy-but-not-fussy-clam-dinner.html
-
-**24biden-ukraine**\
-`Biden Praises Aid Package for Ukraine and Israel as a ‘Good Day for World Peace’`\
-https://nytimes.com/live/2024/04/24/us/biden-israel-ukraine-aid
 
