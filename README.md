@@ -1,3 +1,15 @@
+**The Volkswagen Union Win Shows That Labor Is Becoming a Bigger Tent**\
+`Republicans tried to quash the union drive with partisanship. It didn’t work.`\
+https://nytimes.com/2024/04/24/opinion/volkswagen-union-labor-republicans.html
+
+**Rotting Fruit, an Animatronic Mouse and Other Highlights of the Venice Biennale**\
+`A tour of the international exhibition, which opened last week and runs through November.`\
+https://nytimes.com/2024/04/24/t-magazine/venice-biennale-highlights.html
+
+**Protesters on both sides of the abortion debate clash outside the Supreme Court.**\
+`By Aishvarya Kavi`\
+https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/protesters-on-both-sides-of-the-abortion-debate-clash-outside-the-supreme-court
+
 **Columbia’s president, Nemat Shafik, has been at the center of the unrest.**\
 `By Troy Closson and Stephanie Saul`\
 https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/columbias-president-nemat-shafik-has-been-at-the-center-of-the-unrest
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/24/health/bird-flu-dairy-cows-testing-usda.html
 **How a Broadway Theater Was Remade Into a Queer Cabaret**\
 `The set and costume designer Tom Scutt has conjured a surreal, New York-inspired version of the fictional Kit Kat Club for the latest revival of the 1966 musical “Cabaret.”`\
 https://nytimes.com/interactive/2024/04/24/multimedia/cabaret-broadway-set.html
-
-**Trump Named as Unindicted Conspirator in Michigan Election Interference Case**\
-`An investigator said in court that former President Donald J. Trump and some of his aides conspired with fake electors to overturn his 2020 defeat in Michigan.`\
-https://nytimes.com/2024/04/24/us/trump-michigan-election-interference.html
-
-**Long-Lost Klimt Painting Sells for $37 Million at Auction**\
-`The portrait was left unfinished in the painter’s studio when he died, and questions persist over the identity of the subject and what happened to the painting during Nazi rule in Austria.`\
-https://nytimes.com/2024/04/24/arts/design/gustav-klimt-painting-auction.html
-
-**Is New York Improv Back? I Went on a One-Week Binge to Find Out.**\
-`The pandemic dealt a major blow to the once-thriving comedy form, but a new energy can be seen in performances throughout the city.`\
-https://nytimes.com/2024/04/24/arts/improv-comedy-new-york-return.html
 
