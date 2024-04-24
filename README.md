@@ -1,3 +1,11 @@
+**U.S. Secretly Shipped New Long-Range Missiles to Ukraine**\
+`Ukrainian forces for the first time used a longer-range version of weapons known as ATACMS, striking an airfield in Crimea and Russian troops in southeastern Ukraine.`\
+https://nytimes.com/2024/04/24/us/us-ukraine-russia-missiles.html
+
+**What’s Going On in This Graph? | May 1, 2024**\
+`How involved are parents in their young adult children’s lives?`\
+https://nytimes.com/2024/04/24/learning/whats-going-on-in-this-graph-may-1-2024.html
+
 **Hersh Goldberg-Polin, an Israeli American Hostage, Is Seen in Hamas Video**\
 `The video appeared to be the first time that Mr. Goldberg-Polin, who was grievously injured in the Hamas-led Oct. 7 attack, has been seen alive since he was taken captive.`\
 https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/hamas-hostage-video-hersh-goldberg-polin
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/24/arts/design/venice-biennale-review-art-israel.htm
 **Binance Founder Should Get Three Years in Prison, Prosecutors Say**\
 `Defense lawyers for Changpeng Zhao, the founder of the crypto exchange Binance, countered that he should receive no prison time.`\
 https://nytimes.com/2024/04/24/technology/binance-changpeng-zhao.html
-
-**The Biden administration considers the federal EMTALA law key to preserving abortion access.**\
-`By Zolan Kanno-Youngs`\
-https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/the-biden-administration-considers-the-federal-emtala-law-key-to-preserving-abortion-access
-
-**What’s the Best Way to Salt Scrambled Eggs?**\
-`Paying close attention to timing can help you avoid watery eggs. Kenji López-Alt explains why.`\
-https://nytimes.com/2024/04/24/dining/best-way-to-salt-scrambled-eggs.html
 
