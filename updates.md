@@ -1,3 +1,27 @@
+**New York City’s Everlasting Scaffolding**\
+`Why the protective barriers over sidewalks stay up for so long.`\
+https://nytimes.com/2024/04/24/nyregion/nyc-scaffolding.html
+
+**Tech in the Classroom**\
+`Is there a problem with screens in schools?`\
+https://nytimes.com/2024/04/24/learning/tech-in-the-classroom.html
+
+**Breaking Down New Rules About ‘Forever Chemicals’**\
+`Lisa Friedman, who covers climate change, discussed the fight to regulate toxic chemicals found in nearly half of America’s tap water.`\
+https://nytimes.com/2024/04/24/insider/pfas-water.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/24/crosswords/spelling-bee-forum.html
+
+**The Connections Companion No. 318**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/24/crosswords/connections-companion.html
+
+**Today’s Wordle Review No. 1,040**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/24/crosswords/wordle-review.html
+
 **Trump Wins Pennsylvania Primary, but Remains Haunted by Haley**\
 `Nikki Haley, who dropped out of the race more than a month ago, won more than 155,000 votes, an indication of Donald J. Trump’s difficulties in winning over her supporters.`\
 https://nytimes.com/2024/04/23/us/politics/pennsylvania-primary-takeaways.html
