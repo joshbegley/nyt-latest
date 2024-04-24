@@ -1,3 +1,11 @@
+**Johnson Calls to End Pro-Palestinian Protests, Including by Military Means**\
+`The Republican speaker appeared on the campus of Columbia University to condemn protesters as antisemitic, and said the school’s president and President Biden should take stronger action against them.`\
+https://nytimes.com/2024/04/24/us/politics/johnson-columbia-university-president-protests.html
+
+**Trump Didn’t Really Do That Well in Pennsylvania**\
+`A surprising number of Republicans refused to vote for him in Tuesday’s primary.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-pennsylvania-primary
+
 **Thursday Briefing: Israel Seems Poised to Invade Rafah**\
 `Also, details of the U.S. aid package to Ukraine and Taylor Swift’s new album.`\
 https://nytimes.com/2024/04/24/world/asia/israel-rafah-us-ukraine-asia.html
