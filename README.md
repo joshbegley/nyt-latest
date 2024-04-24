@@ -1,3 +1,7 @@
+**Three Takeaways From the Pennsylvania Primaries**\
+`A liberal Pittsburgh-area congresswoman turned away a centrist challenger, Nikki Haley kept ringing up votes against Donald Trump, and a Senate race began in earnest.`\
+https://nytimes.com/2024/04/23/us/politics/pennsylvania-primary-takeaways.html
+
 **Seder Is About Family, Food, Freedom. And Now, It’s Also About the War.**\
 `At Passover Seders, many families addressed the war in Gaza. In some cases, generations clashed and tensions arose. “That’s the Jewish way,” said one host.`\
 https://nytimes.com/2024/04/23/nyregion/seder-israel-gaza-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/nyregion/adams-ccrb-chairwoman.html
 **McCormick and Casey Win Senate Primaries, Setting Up Battle in Pennsylvania**\
 `Senator Bob Casey, the Democratic incumbent, will face David McCormick, a wealthy businessman whose first run for Senate was torpedoed by former President Donald J. Trump.`\
 https://nytimes.com/2024/04/23/us/politics/mccormick-casey-pennsylvania-senate.html
-
-**Tennessee Passes Bill to Allow Teachers to Carry Concealed Handguns**\
-`The move came about a year after the state’s deadliest school shooting and was opposed by some of the families whose children survived the attack.`\
-https://nytimes.com/2024/04/23/us/politics/tennessee-teachers-guns.html
 
