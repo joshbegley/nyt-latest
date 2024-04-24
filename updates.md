@@ -1,3 +1,7 @@
+**Thursday Briefing: Israel Seems Poised to Invade Rafah**\
+`Also, details of the U.S. aid package to Ukraine and Taylor Swift’s new album.`\
+https://nytimes.com/2024/04/24/world/asia/israel-rafah-us-ukraine-asia.html
+
 **Prosecutor Says Sept. 11 Suspects Can Be Held Past War Crimes Sentence**\
 `The argument, in a pretrial hearing, dealt with the unresolved question of whether a prisoner who completes such a sentence is entitled to release from military detention.`\
 https://nytimes.com/2024/04/24/us/politics/sept-11-suspects-war-crimes-sentence.html
