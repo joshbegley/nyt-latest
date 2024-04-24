@@ -1,3 +1,7 @@
+**Corrections: April 24, 2024**\
+`Corrections that appeared in print on Weekday, Month Date, Year.`\
+https://nytimes.com/2024/04/24/pageoneplus/corrections-april-24-2024.html
+
 **Quotation of the Day: Trapped and Starving, 2 Families Try to Keep Their Children Alive**\
 `Quotation of the Day for Wednesday, April 24, 2024.`\
 https://nytimes.com/2024/04/24/pageoneplus/quotation-of-the-day-trapped-and-starving-2-families-try-to-keep-their-children-alive.html
