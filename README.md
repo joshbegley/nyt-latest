@@ -15,8 +15,8 @@ https://nytimes.com/2024/04/24/us/louisiana-dolphin-shot-dead.html
 https://nytimes.com/2024/04/24/nyregion/budget-cuts-adams-nyc.html
 
 **In response to protests, Brandeis invited Jewish students to transfer to its campus.**\
-`By Dana Goldstein`\
-https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/college-protests-brandeis-transfer
+`The university’s president, Ronald D. Liebowitz, promised in an open letter that Brandeis would provide an environment “free of harassment and Jew-hatred.”`\
+https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/brandeis-protests-jewish-students
 
 **Five Moments That Have Defined Donald Trump’s Trial So Far**\
 `Trials are wars of words. These are some of the most memorable that have been spoken as a jury hears the criminal case against Donald J. Trump.`\
