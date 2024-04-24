@@ -1,3 +1,11 @@
+**How the Senate Voted on Foreign Aid to Ukraine, Israel and Taiwan**\
+`The measure, which includes a provision on the sale or ban of TikTok, had wide bipartisan support.`\
+https://nytimes.com/interactive/2024/04/23/us/politics/senate-vote-aid-israel-tiktok.html
+
+**Congress Passed a Bill That Could Ban TikTok. Now Comes the Hard Part.**\
+`After President Biden signs the bill to force a sale of the video app or ban it, the legislation will face court challenges, a shortage of qualified buyers and Beijing’s hostility.`\
+https://nytimes.com/2024/04/23/technology/tiktok-ban-bill-congress.html
+
 **At Brooklyn Seder Protest, Jewish New Yorkers Target Schumer Over Aid**\
 `It appeared that at least 100 were arrested after pro-Palestinian Jewish groups rallied near Chuck Schumer’s home, as the Senate seemed poised to authorize billions of dollars in aid to Israel.`\
 https://nytimes.com/2024/04/23/nyregion/schumer-seder-protest-brooklyn.html
