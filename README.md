@@ -1,3 +1,11 @@
+**Summer Lee, ‘Squad’ Member, Wins Democratic House Primary in Pennsylvania**\
+`A first-term representative, Ms. Lee defeated a centrist Democrat in a race that centered on her opposition to the war in Gaza.`\
+https://nytimes.com/2024/04/23/us/politics/lee-pennsylvania-primary.html
+
+**‘Mary Jane’ Review: When Parenting Means Intensive Care**\
+`Amy Herzog’s heartbreaker arrives on Broadway with Rachel McAdams as the alarmingly upbeat mother of a fearfully sick child.`\
+https://nytimes.com/2024/04/23/theater/mary-jane-review-rachel-mcadams.html
+
 **Clashes Over Gag Order and Tabloid Testimony in the Trump Criminal Trial**\
 `Tuesday’s session of Donald J.`\
 https://nytimes.com/video/nyregion/100000009430318/trump-criminal-trial-gag-order-tabloid-testimony.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/23/world/europe/russia-deputy-defense-minister-bribe
 **In Coral Fossils, Searching for the First Glow of Bioluminescence**\
 `A new study resets the timing for the emergence of bioluminescence back to millions of years earlier than previously thought.`\
 https://nytimes.com/2024/04/23/science/bioluminescence-evolution-sea-creatures.html
-
-**Israel Plans to Expand ‘Humanitarian Zone’ if It Invades Rafah**\
-`An oceanside area currently crowded with displaced Gazans is among the sites being eyed for a larger safe zone for evacuees, a military official said.`\
-https://nytimes.com/2024/04/23/world/middleeast/israel-gaza-rafah-evacuation-plans.html
-
-**Israel carries out airstrikes and orders new evacuations in parts of Beit Lahia, in northern Gaza.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2024/04/23/world/israel-hamas-war-gaza/israel-carries-out-airstrikes-and-orders-new-evacuations-in-parts-of-beit-lahia-in-northern-gaza
 
