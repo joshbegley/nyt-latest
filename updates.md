@@ -1,3 +1,7 @@
+**Columbia’s president, Nemat Shafik, has been at the center of the unrest.**\
+`By Troy Closson and Stephanie Saul`\
+https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/columbias-president-nemat-shafik-has-been-at-the-center-of-the-unrest
+
 **Review: Noche Flamenca, Raising the Dead With Goya**\
 `In “Searching for Goya,” at the Joyce Theater, the troupe uses the painter’s images as frames for flamenco dances.`\
 https://nytimes.com/2024/04/24/arts/dance/review-noche-flamenca-soledad-barrio.html
