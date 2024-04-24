@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/biden-signs-aid-
 
 **Hundreds at Harvard Protest Suspension of Pro-Palestinian Group**\
 `Students flooded Harvard Yard, the oldest part of the university’s campus, which officials recently closed to the public. The students set up tents for an “emergency rally.”`\
-https://nytimes.com/2024/04/24/us/harvard-pro-palestinian-protests.html
+https://nytimes.com/2024/04/24/us/harvard-campus-protests.html
 
 **Vehicle Crash That Injured Film Crew Was Caught on Video**\
 `The collision on the set of “The Pickup” is under investigation. Video shows an armored truck and an S.U.V. veering off a road before the truck flips onto the smaller vehicle.`\
@@ -31,7 +31,7 @@ https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/brown-univ
 https://nytimes.com/2024/04/24/nyregion/rep-donald-m-payne-jr-dead.html
 
 **Johnson Calls to End Pro-Palestinian Protests, Including by Military Means**\
-`The Republican speaker appeared on the campus of Columbia University to condemn protesters as antisemitic, and said the school’s president and President Biden should take stronger action against them.`\
+`The Republican speaker appeared on Columbia University’s campus to condemn protesters as antisemitic and urge stronger action by the school’s president and President Biden.`\
 https://nytimes.com/2024/04/24/us/politics/johnson-columbia-university-president-protests.html
 
 **Trump Didn’t Really Do That Well in Pennsylvania**\
