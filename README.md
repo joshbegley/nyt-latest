@@ -1,3 +1,7 @@
+**Columbia Sets Midnight Deadline For Talks to End Encampment**\
+`The university, which asked the police to arrest protesters last week, will consider “alternative options” for clearing the lawn if an agreement is not reached.`\
+https://nytimes.com/2024/04/23/us/columbia-protests-encampment.html
+
 **Three Takeaways From the Pennsylvania Primaries**\
 `A liberal Pittsburgh-area congresswoman turned away a centrist challenger, Nikki Haley kept ringing up votes against Donald Trump, and a Senate race began in earnest.`\
 https://nytimes.com/2024/04/23/us/politics/pennsylvania-primary-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000009430318/trump-criminal-trial-gag-orde
 **Mayor Adams Pushes Out Chairwoman of Police Oversight Board**\
 `Arva Rice was asked to resign after she criticized police handling of a fatal shooting investigation and requested more money and power to investigate misconduct.`\
 https://nytimes.com/2024/04/23/nyregion/adams-ccrb-chairwoman.html
-
-**McCormick and Casey Win Senate Primaries, Setting Up Battle in Pennsylvania**\
-`Senator Bob Casey, the Democratic incumbent, will face David McCormick, a wealthy businessman whose first run for Senate was torpedoed by former President Donald J. Trump.`\
-https://nytimes.com/2024/04/23/us/politics/mccormick-casey-pennsylvania-senate.html
 
