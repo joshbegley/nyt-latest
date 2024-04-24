@@ -1,3 +1,11 @@
+**Living in New Jersey, Grieving for Over 100 Relatives Killed in Gaza**\
+`Adam and Ola Abo Sheriah absorb a loss few of their friends and neighbors can imagine, and scramble to help surviving family members in Gaza while trying to get their kids to school on time.`\
+https://nytimes.com/2024/04/24/us/palestinian-family-gaza-war-death.html
+
+**Abortion restrictions have changed the medical care in emergency rooms, too.**\
+`By Kate Zernike`\
+https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/abortion-restrictions-have-changed-the-medical-care-in-emergency-rooms-too
+
 **Homeless Georgians Could Face Hurdles to Voting Under New Legislation**\
 `A provision in an election bill would bar homeless voters from receiving mail-in ballots and election information at shelters or other temporary addresses.`\
 https://nytimes.com/2024/04/24/us/politics/georgia-voting-bill-homeless.html
