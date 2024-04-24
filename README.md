@@ -1,3 +1,7 @@
+**Seder Is About Family, Food, Freedom. And Now, It’s Also About the War.**\
+`At Passover seders, many families addressed the war in Gaza. In some cases, generations clashed and tensions arose. “That’s the Jewish way,” said one host.`\
+https://nytimes.com/2024/04/23/nyregion/seder-israel-gaza-war.html
+
 **Bread Spread**\
 `Step into the house of mirrors with Jeffrey Martinovic.`\
 https://nytimes.com/2024/04/23/crosswords/daily-puzzle-2024-04-24.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/us/politics/mccormick-casey-pennsylvania-senate.h
 **Tennessee Passes Bill to Allow Teachers to Carry Concealed Handguns**\
 `The move came about a year after the state’s deadliest school shooting and was opposed by some of the families whose children survived the attack.`\
 https://nytimes.com/2024/04/23/us/politics/tennessee-teachers-guns.html
-
-**At Brooklyn Seder Protest, Jewish New Yorkers Target Schumer Over Aid**\
-`It appeared that at least 100 were arrested after pro-Palestinian Jewish groups rallied near Chuck Schumer’s home, as the Senate seemed poised to authorize billions of dollars in aid to Israel.`\
-https://nytimes.com/2024/04/23/nyregion/schumer-seder-protest-brooklyn.html
 
