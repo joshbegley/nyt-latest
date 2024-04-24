@@ -1,3 +1,7 @@
+**Why I’m Getting More Pessimistic About Biden’s Chances This Fall**\
+`The reasons aren’t rocket science.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/biden-poll-young-voters
+
 **What to Make of the ‘Zombie Vote’ Against Donald Trump**\
 `Votes for dropout candidates, such as Nikki Haley, have been features of past election cycles, too.`\
 https://nytimes.com/interactive/2024/04/24/us/elections/nikki-haley-trump-zombie-votes.html
