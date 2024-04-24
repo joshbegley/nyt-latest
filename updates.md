@@ -1,3 +1,7 @@
+**Australian Journalist Says She Was Pushed Out of India**\
+`Avani Dias said that she had been denied a visa renewal for weeks because of her reporting on the Sikh separatist movement. Indian officials disputed her account.`\
+https://nytimes.com/2024/04/24/world/asia/india-australia-journalist-avani-dias.html
+
 **21 states have restricted or banned abortion since Roe v. Wade was overturned.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/21-states-have-restricted-or-banned-abortion-since-roe-v-wade-was-overturned
