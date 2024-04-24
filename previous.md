@@ -1,3 +1,7 @@
+**Dairy Cows Transported Between States Must Now Be Tested for Bird Flu**\
+`Since a new form of bird flu arrived in 2022, federal officials have sought to reassure Americans that the threat to the public remained low.`\
+https://nytimes.com/2024/04/24/health/bird-flu-dairy-cows-testing-usda.html
+
 **How a Broadway Theater Was Remade Into a Queer Cabaret**\
 `The set and costume designer Tom Scutt has conjured a surreal, New York-inspired version of the fictional Kit Kat Club for the latest revival of the 1966 musical “Cabaret.”`\
 https://nytimes.com/interactive/2024/04/24/multimedia/24tmag-cabaret.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/whats-next-a
 **Review: John Adams’s ‘El Niño’ Arrives at the Met in Lush Glory**\
 `The opera-oratorio, an alternate Nativity story, featured a flurry of Met debuts, including the director Lileana Blain-Cruz and the conductor Marin Alsop.`\
 https://nytimes.com/2024/04/24/arts/music/review-john-adams-el-nino-met-opera.html
-
-**Famine could begin in Gaza within weeks if more aid doesn’t get in, the W.F.P. warns.**\
-`By Nick Cumming-Bruce and Shashank Bengali`\
-https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/famine-could-begin-in-gaza-within-weeks-if-more-aid-doesnt-get-in-the-wfp-warns
 
