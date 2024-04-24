@@ -1,3 +1,11 @@
+**After $15 Billion in Military Aid, Israel Calls Alliance With U.S. ‘Ironclad’**\
+`The money from Washington, which includes $5 billion to replenish Israel’s defenses and $1 billion for Gazan civilians, comes as Israel readies to invade Rafah.`\
+https://nytimes.com/2024/04/24/world/middleeast/israel-us-aid.html
+
+**On Columbia’s Lawn, the Curtain Rises on a Day of Political Theater**\
+`At Columbia University, protesters were undeterred, and even relaxed, as a phalanx of congressional leaders showed up and told them to “stop the nonsense.”`\
+https://nytimes.com/2024/04/24/nyregion/gaza-campus-protests-columbia-university.html
+
 **The Next Winner of the World Chess Championship Could Be the Youngest Ever**\
 `Dommaraju Gukesh, a 17-year-old grandmaster from India, is the youngest player ever to win the Candidates Tournament.`\
 https://nytimes.com/2024/04/24/crosswords/chess/gukesh-candidates-winner.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/24/us/politics/trump-respects-women-most-men-say.htm
 **Chicago Museum Says Investigators Have No Evidence Art Was Looted**\
 `In a court filing, the Art Institute of Chicago fought Manhattan prosecutors’ efforts to seize an important Egon Schiele drawing, denying that the Nazis had stolen it.`\
 https://nytimes.com/2024/04/24/arts/chicago-museum-schiele-court.html
-
-**Biden signs aid bill, reaffirming his commitment to Israel.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/biden-signs-aid-bill-reaffirming-his-commitment-to-israel
-
-**Hundreds at Harvard Protest Suspension of Pro-Palestinian Group**\
-`Students flooded Harvard Yard, the oldest part of the university’s campus, which officials recently closed to the public. The students set up tents for an “emergency rally.”`\
-https://nytimes.com/2024/04/24/us/harvard-campus-protests.html
 
