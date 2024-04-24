@@ -1,3 +1,7 @@
+**Bread Spread**\
+`Step into the house of mirrors with Jeffrey Martinovic.`\
+https://nytimes.com/2024/04/23/crosswords/daily-puzzle-2024-04-24.html
+
 **How the Senate Voted on Foreign Aid to Ukraine, Israel and Taiwan**\
 `The measure, which includes a provision on the sale or ban of TikTok, had wide bipartisan support.`\
 https://nytimes.com/interactive/2024/04/23/us/politics/senate-vote-aid-israel-tiktok.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/us/politics/tennessee-teachers-guns.html
 **At Brooklyn Seder Protest, Jewish New Yorkers Target Schumer Over Aid**\
 `It appeared that at least 100 were arrested after pro-Palestinian Jewish groups rallied near Chuck Schumer’s home, as the Senate seemed poised to authorize billions of dollars in aid to Israel.`\
 https://nytimes.com/2024/04/23/nyregion/schumer-seder-protest-brooklyn.html
-
-**George Santos Said He Was Running for Congress Again. (He’s Not.)**\
-`Less than two weeks after announcing a surprise long-shot bid for a House seat on Eastern Long Island, Mr. Santos said he was no longer pursuing the seat.`\
-https://nytimes.com/2024/04/23/nyregion/george-santos-dropping-out.html
 
