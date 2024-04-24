@@ -1,3 +1,7 @@
+**Binance Founder Should Get Three Years in Prison, Prosecutors Say**\
+`Defense lawyers for Changpeng Zhao, the founder of the crypto exchange Binance, countered that he should receive no prison time.`\
+https://nytimes.com/2024/04/24/technology/binance-changpeng-zhao.html
+
 **The Biden administration considers the federal EMTALA law key to preserving abortion access.**\
 `By Zolan Kanno-Youngs`\
 https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/the-biden-administration-considers-the-federal-emtala-law-key-to-preserving-abortion-access
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/magazine/public-school-principals-private-ethics.
 **What to Make of the ‘Zombie Vote’ Against Donald Trump**\
 `Votes for dropout candidates, such as Nikki Haley, have been features of past election cycles, too.`\
 https://nytimes.com/interactive/2024/04/24/us/elections/nikki-haley-trump-zombie-votes.html
-
-**The International Date Line Is ‘Pretty Arbitrary.’ Here’s Why.**\
-`That squiggly line through the Pacific where days begin and end has no legal authority and technically doesn’t exist.`\
-https://nytimes.com/2024/04/24/world/asia/international-date-line-pacific-ocean.html
 
