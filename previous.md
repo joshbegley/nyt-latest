@@ -1,3 +1,7 @@
+**The consequences of the court’s decision could reverberate beyond Idaho.**\
+`The case is the first time the justices have examined a state law criminalizing abortion since they overruled Roe v. Wade.`\
+https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/the-consequences-of-the-courts-decision-could-reverberate-beyond-idaho
+
 **‘So Far From Ukraine’: A Princely Dancer Finds a Home in Miami**\
 `Stanislav Olshanskyi has had to battle homesickness and adjust to Miami City Ballet’s style: quick, light, constantly in motion. He’s also the prince in “Swan Lake.”`\
 https://nytimes.com/2024/04/24/arts/dance/olshanskyi-miami-ballet-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/what-is-emta
 **24scotus-abortion**\
 `Live Updates: Supreme Court to Consider Access to Emergency Abortions`\
 https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho
-
-**Biden to Sign Aid Package for Ukraine and Israel**\
-`The $95.3 billion legislation comes after months of gridlock in Congress put the centerpiece of President Biden’s foreign policy in jeopardy.`\
-https://nytimes.com/2024/04/24/us/politics/biden-ukraine-israel-aid.html
 
