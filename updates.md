@@ -1,3 +1,7 @@
+**In response to protests, Brandeis invited Jewish students to transfer to its campus.**\
+`The university’s president, Ronald D. Liebowitz, promised in an open letter that Brandeis would provide an environment “free of harassment and Jew-hatred.”`\
+https://nytimes.com/2024/04/24/us/brandeis-protests-jewish-students.html
+
 **This May Be Our Last Chance to Halt Bird Flu in Humans and We Are Blowing It**\
 `“There’s a fine line between one person and 10 people with H5N1.”`\
 https://nytimes.com/2024/04/24/opinion/bird-flu-cow-outbreak.html
