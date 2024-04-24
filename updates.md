@@ -1,3 +1,11 @@
+**McCormick and Casey Win Senate Primaries, Setting Up Battle in Pennsylvania**\
+`Senator Bob Casey, the Democratic incumbent, will face David McCormick, a wealthy businessman whose first run for Senate was torpedoed by former President Donald J. Trump.`\
+https://nytimes.com/2024/04/23/us/politics/mccormick-casey-pennsylvania-senate.html
+
+**Tennessee Passes Bill to Allow Teachers to Carry Concealed Handguns**\
+`The move came about a year after the state’s deadliest school shooting and was opposed by some of the families whose children survived the attack.`\
+https://nytimes.com/2024/04/23/us/politics/tennessee-teachers-guns.html
+
 **At Brooklyn Seder Protest, Jewish New Yorkers Target Schumer Over Aid**\
 `Pro-Palestinian Jewish groups rallied near Chuck Schumer’s home on the second night of Passover, as the Senate seemed poised to pass legislation authorizing billions of dollars in aid to Israel.`\
 https://nytimes.com/2024/04/23/nyregion/schumer-seder-protest-brooklyn.html

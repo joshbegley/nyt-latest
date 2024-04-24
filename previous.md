@@ -1,3 +1,11 @@
+**McCormick and Casey Win Senate Primaries, Setting Up Battle in Pennsylvania**\
+`Senator Bob Casey, the Democratic incumbent, will face David McCormick, a wealthy businessman whose first run for Senate was torpedoed by former President Donald J. Trump.`\
+https://nytimes.com/2024/04/23/us/politics/mccormick-casey-pennsylvania-senate.html
+
+**Tennessee Passes Bill to Allow Teachers to Carry Concealed Handguns**\
+`The move came about a year after the state’s deadliest school shooting and was opposed by some of the families whose children survived the attack.`\
+https://nytimes.com/2024/04/23/us/politics/tennessee-teachers-guns.html
+
 **At Brooklyn Seder Protest, Jewish New Yorkers Target Schumer Over Aid**\
 `Pro-Palestinian Jewish groups rallied near Chuck Schumer’s home on the second night of Passover, as the Senate seemed poised to pass legislation authorizing billions of dollars in aid to Israel.`\
 https://nytimes.com/2024/04/23/nyregion/schumer-seder-protest-brooklyn.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/16/opinion/thepoint/pecker-testimony-trump-tria
 **Ukraine Could Receive Some U.S. Aid ‘Within Days’**\
 `Also, the F.T.C. banned noncompete clauses. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/04/23/briefing/ukraine-aid-senate-trump-trial-testimony.html
-
-**Fragments of Bird Flu Virus Discovered in Milk**\
-`The milk poses virtually no risk to consumers, experts said. But the finding suggests that the outbreak in dairy cows is wider than has been known.`\
-https://nytimes.com/2024/04/23/health/bird-flu-milk.html
-
-**Here’s What’s in the Foreign Aid Package That Is Headed Toward Becoming Law**\
-`Assistance for Ukraine, Israel and Taiwan is paired with legislation to impose fresh rounds of sanctions on Iran and Russia and a measure that could lead to a ban on TikTok in the United States.`\
-https://nytimes.com/2024/04/23/us/politics/aid-bill-ukraine-israel-taiwan.html
 
