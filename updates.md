@@ -1,3 +1,7 @@
+**Is $60 Billion Enough to Save Ukraine?**\
+`Congress approved a new aid package after months of delay, potentially throwing the country a lifeline in its war with Russia.`\
+https://nytimes.com/2024/04/24/podcasts/the-daily/is-60-billion-enough-to-save-ukraine.html
+
 **Israel’s foreign minister thanks the Senate for passing a hard-fought aid bill.**\
 `By Matt Surman`\
 https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/israels-foreign-minister-thanks-the-senate-for-passing-a-hard-fought-aid-bill
