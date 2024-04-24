@@ -1,3 +1,7 @@
+**Cicadas Are Emerging Now. How Do They Know When to Come Out?**\
+`Scientists are making computer models to better understand how the mysterious insects emerge collectively after more than a decade underground.`\
+https://nytimes.com/2024/04/24/science/why-do-cicadas-emerge.html
+
 **New Nutrition Guidelines Put Less Sugar and Salt on the Menu for School Meals**\
 `The Agriculture Department finalized a new rule to bring the meals more in line with federal dietary standards.`\
 https://nytimes.com/2024/04/24/us/politics/school-meals-nutrition.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/magazine/japanese-breakfast-miso-salmon-recipe.ht
 **After U.N. Report, Germany Says It Will Resume Funding for UNRWA**\
 `The announcement was likely to further strain Germany’s longstanding ties with Israel, which have deteriorated because of differences over the war in Gaza.`\
 https://nytimes.com/2024/04/24/world/middleeast/germany-un-aid-unrwa-gaza.html
-
-**TikTok’s Pro-China Tilt**\
-`A bill that will force the app’s Chinese owners to sell will soon become law.`\
-https://nytimes.com/2024/04/24/briefing/tiktok-bill-congress.html
 
