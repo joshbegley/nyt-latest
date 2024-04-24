@@ -1,3 +1,11 @@
+**Biden Says Aid Bill for Ukraine and Israel Will ‘Make the World Safer’**\
+`President Biden signed an aid package for Ukraine, Israel and Taiwan after it received bipartisan support in Congress.`\
+https://nytimes.com/video/us/politics/100000009431377/biden-ukraine-israel-gaza.html
+
+**Solar Companies Seek New U.S. Tariffs on Asian Imports**\
+`Firms warn that China uses its neighbors to skirt existing levies, depressing prices and threatening U.S. investments.`\
+https://nytimes.com/2024/04/24/business/solar-us-tariffs-asian-imports.html
+
 **Helen Vendler, ‘Colossus’ of Poetry Criticism, Dies at 90**\
 `In the poetry marketplace, her praise had reputation-making power, while her disapproval could be withering.`\
 https://nytimes.com/2024/04/24/books/helen-vendler-dead.html
@@ -18,7 +26,7 @@ https://nytimes.com/2024/04/24/us/us-ukraine-russia-missiles.html
 `How involved are parents in their young adult children’s lives?`\
 https://nytimes.com/2024/04/24/learning/whats-going-on-in-this-graph-may-1-2024.html
 
-**Hersh Goldberg-Polin, an Israeli American Hostage, Is Seen in Hamas Video**\
+**Hersh Goldberg-Polin, an Israeli American hostage, is seen in a Hamas video**\
 `The video appeared to be the first time that Mr. Goldberg-Polin, who was grievously injured in the Hamas-led Oct. 7 attack, has been seen alive since he was taken captive.`\
 https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/hamas-hostage-video-hersh-goldberg-polin
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/24/world/europe/uk-women-girls-soccer-team-bournemou
 **The Columbia president’s congressional testimony last week promised ‘consequences.’**\
 `By Lola Fadulu`\
 https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/the-columbia-presidents-congressional-testimony-last-week-promised-consequences
-
-**24columbia-protests**\
-`Live Updates: Columbia Negotiates With Campus Protesters Ahead of House Speaker’s Visit`\
-https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson
-
-**With Temperatures Soaring, Gazans Swelter in Makeshift Tents**\
-`The tents that failed to keep out the cold when many Gazans first fled their homes have now become suffocating as highs surpass 100 degrees Fahrenheit.`\
-https://nytimes.com/2024/04/24/world/middleeast/gaza-heat-israel-war.html
 
