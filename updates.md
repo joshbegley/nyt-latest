@@ -1,3 +1,7 @@
+**A Megaraptor Emerges From Footprint Fossils**\
+`A series of foot tracks in southeastern China points to the discovery of a giant velociraptor, paleontologists suggest in a new study.`\
+https://nytimes.com/2024/04/24/science/vellociraptor-fossil-china.html
+
 **Mayor Adams Walks Back Budget Cuts Many Saw as Unnecessary**\
 `The mayor released a revised $111.6 billion budget, which included $2.3 billion that would restore some funding for schools and cultural institutions.`\
 https://nytimes.com/2024/04/24/nyregion/budget-cuts-adams-nyc.html
