@@ -1,3 +1,11 @@
+**Enduring Mayhem: Images From Year 3 of the War in Ukraine**\
+`A photographic chronicle of the third year of Russia’s invasion of Ukraine.`\
+https://nytimes.com/2024/04/24/world/europe/images-ukraine-war-third-year.html
+
+**F.D.A. Approves Antibiotic for Increasingly Hard-to-Treat Urinary Tract Infections**\
+`Pivmecillinam, which has been used in Europe for decades, will become available next year to women 18 and older.`\
+https://nytimes.com/2024/04/24/health/fda-urinary-tract-infection-antibiotic.html
+
 **Meta’s Profits More Than Double, While Spending on A.I. Rises**\
 `The owner of Facebook, Instagram and WhatsApp continued to grow, even as it said it would spend billions of dollars more on artificial intelligence.`\
 https://nytimes.com/2024/04/24/technology/metas-profits-nearly-double-while-spending-on-ai-rises.html
