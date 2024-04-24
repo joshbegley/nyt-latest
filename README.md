@@ -1,3 +1,7 @@
+**Boeing Loses $355 Million in Latest Quarter**\
+`The manufacturer has had to slow production of its popular 737 Max planes after a hole blew open on a jet during an Alaska Airlines flight in January.`\
+https://nytimes.com/2024/04/24/business/boeing-first-quarter-earnings.html
+
 **Who Stands to Gain from a TikTok Ban**\
 `The Senate has finally passed a law that could bar the  video-sharing app in the U.S., leaving some tech giants in pole position to profit — or pounce.`\
 https://nytimes.com/2024/04/24/business/dealbook/bytedance-tiktok-congress-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/briefing/tiktok-bill-congress.html
 **Horses Run Loose Through Central London in Surreal Spectacle**\
 `A number of runaway army horses galloped through London on Wednesday morning, causing alarm and injuring pedestrians. All were eventually recovered.`\
 https://nytimes.com/2024/04/24/world/europe/horses-loose-london.html
-
-**What a TikTok Ban Could Actually Mean, and More**\
-`Plus, clashes over Donald Trump’s gag order.`\
-https://nytimes.com/2024/04/24/podcasts/tiktok-bill-idaho-abortion.html
 
