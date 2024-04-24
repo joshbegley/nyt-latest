@@ -1,3 +1,7 @@
+**‘Everyone was ready to act.’ At Brown, students are galvanized by nationwide protests.**\
+`By Jenna Russell`\
+https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/brown-university-protests
+
 **Donald M. Payne Jr., Five-Term New Jersey Representative, Dies at 65**\
 `A Newark Democrat, he succeeded his father, who was the first Black member of New Jersey’s congressional delegation.`\
 https://nytimes.com/2024/04/24/nyregion/rep-donald-m-payne-jr-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/technology/meta-profit-stock-ai.html
 **College Protesters Make Divestment From Israel a Rallying Cry**\
 `The campaign is likely to have a negligible impact on the companies or Israel, but activists see divestment as a clear way to force colleges to take action on the issue.`\
 https://nytimes.com/2024/04/24/business/college-protesters-divestment-israel.html
-
-**Carrie Robbins, Costume Designer for Dozens of Broadway Shows, Dies at 81**\
-`She made a classic wig and poodle skirt for “Grease” (using a bath mat and a toilet cover) and turned actors into Spanish inquisitors, British highwaymen and more.`\
-https://nytimes.com/2024/04/24/theater/carrie-robbins-dead.html
 
