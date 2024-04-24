@@ -1,3 +1,7 @@
+**Vehicle Crash That Injured Film Crew Was Caught on Video**\
+`The collision on the set of “The Pickup” is under investigation. Video shows an armored truck and an S.U.V. veering off a road before the truck flips onto the smaller vehicle.`\
+https://nytimes.com/2024/04/24/arts/the-pickup-accident-video.html
+
 **White House says it won’t interfere in decision over Israeli battalion accused of abuse.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/white-house-says-it-wont-interfere-in-decision-over-israeli-battalion-accused-of-abuse
