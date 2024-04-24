@@ -1,3 +1,15 @@
+**‘So Far From Ukraine’: A Princely Dancer Finds a Home in Miami**\
+`Stanislav Olshanskyi has had to battle homesickness and adjust to Miami City Ballet’s style: quick, light, constantly in motion. He’s also the prince in “Swan Lake.”`\
+https://nytimes.com/2024/04/24/arts/dance/olshanskyi-miami-ballet-ukraine.html
+
+**‘Oh, Mary!,’ a Surprise Downtown Hit, Will Play Broadway This Summer**\
+`Cole Escola’s madcap comedy about the former first lady Mary Todd Lincoln will begin performances in June.`\
+https://nytimes.com/2024/04/24/theater/oh-mary-broadway.html
+
+**‘Thunder Run’: Behind Lawmakers’ Secretive Push to Pass the TikTok Bill**\
+`A tiny group of lawmakers huddled in private about a year ago, aiming to keep the discussions away from TikTok lobbyists while bulletproofing a bill that could ban the app.`\
+https://nytimes.com/2024/04/24/technology/tiktok-ban-congress.html
+
 **Understanding the Transportation Department’s New Rules for Airline Refunds and ‘Junk’ Fees**\
 `The Biden administration will require airlines to automatically refund fares when flights are canceled or delayed and to reveal more about extra fees before booking. Here’s what passengers can expect.`\
 https://nytimes.com/2024/04/24/travel/airline-refunds-fees.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho
 **Biden to Sign Aid Package for Ukraine and Israel**\
 `The $95.3 billion legislation comes after months of gridlock in Congress put the centerpiece of President Biden’s foreign policy in jeopardy.`\
 https://nytimes.com/2024/04/24/us/politics/biden-ukraine-israel-aid.html
-
-**Every Tech Tool in the Classroom Should Be Ruthlessly Evaluated**\
-`Screens in K-12 schools need ‘a hard reset.’`\
-https://nytimes.com/2024/04/24/opinion/ed-tech-classroom.html
-
-**We’re Adding New Songs to Our California Soundtrack**\
-`Our playlist reflects the breadth and diversity of the Golden State.`\
-https://nytimes.com/2024/04/24/us/california-soundtrack.html
-
-**Can I Ask My Mother-in-Law Who My Wife’s Biological Father Is?**\
-`Although his wife has long maintained that she doesn’t want to know the identity of her birth father, a reader is tempted to find out on her behalf.`\
-https://nytimes.com/2024/04/24/style/spouse-biological-parents.html
 
