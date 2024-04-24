@@ -1,3 +1,7 @@
+**Hundreds at Harvard Protest Suspension of Pro-Palestinian Group**\
+`Students flooded Harvard Yard, the oldest part of the university’s campus, which officials recently closed to the public. The students set up tents for an “emergency rally.”`\
+https://nytimes.com/2024/04/24/us/harvard-pro-palestinian-protests.html
+
 **Vehicle Crash That Injured Film Crew Was Caught on Video**\
 `The collision on the set of “The Pickup” is under investigation. Video shows an armored truck and an S.U.V. veering off a road before the truck flips onto the smaller vehicle.`\
 https://nytimes.com/2024/04/24/arts/the-pickup-accident-video.html

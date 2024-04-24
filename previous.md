@@ -1,3 +1,7 @@
+**Hundreds at Harvard Protest Suspension of Pro-Palestinian Group**\
+`Students flooded Harvard Yard, the oldest part of the university’s campus, which officials recently closed to the public. The students set up tents for an “emergency rally.”`\
+https://nytimes.com/2024/04/24/us/harvard-pro-palestinian-protests.html
+
 **Vehicle Crash That Injured Film Crew Was Caught on Video**\
 `The collision on the set of “The Pickup” is under investigation. Video shows an armored truck and an S.U.V. veering off a road before the truck flips onto the smaller vehicle.`\
 https://nytimes.com/2024/04/24/arts/the-pickup-accident-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-pennsylvania-primary
 **Thursday Briefing: Israel Seems Poised to Invade Rafah**\
 `Also, details of the U.S. aid package to Ukraine and Taylor Swift’s new album.`\
 https://nytimes.com/2024/04/24/world/asia/israel-rafah-us-ukraine-asia.html
-
-**Prosecutor Says Sept. 11 Suspects Can Be Held Past War Crimes Sentence**\
-`The argument, in a pretrial hearing, dealt with the unresolved question of whether a prisoner who completes such a sentence is entitled to release from military detention.`\
-https://nytimes.com/2024/04/24/us/politics/sept-11-suspects-war-crimes-sentence.html
 
