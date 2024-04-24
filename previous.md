@@ -1,3 +1,7 @@
+**Biden signs aid bill, reaffirming his commitment to Israel.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/biden-signs-aid-bill-reaffirming-his-commitment-to-israel
+
 **Hundreds at Harvard Protest Suspension of Pro-Palestinian Group**\
 `Students flooded Harvard Yard, the oldest part of the university’s campus, which officials recently closed to the public. The students set up tents for an “emergency rally.”`\
 https://nytimes.com/2024/04/24/us/harvard-pro-palestinian-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/us/politics/johnson-columbia-university-president
 **Trump Didn’t Really Do That Well in Pennsylvania**\
 `A surprising number of Republicans refused to vote for him in Tuesday’s primary.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-pennsylvania-primary
-
-**Thursday Briefing: Israel Seems Poised to Invade Rafah**\
-`Also, details of the U.S. aid package to Ukraine and Taylor Swift’s new album.`\
-https://nytimes.com/2024/04/24/world/asia/israel-rafah-us-ukraine-asia.html
 

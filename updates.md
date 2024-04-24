@@ -1,3 +1,7 @@
+**Biden signs aid bill, reaffirming his commitment to Israel.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/biden-signs-aid-bill-reaffirming-his-commitment-to-israel
+
 **Hundreds at Harvard Protest Suspension of Pro-Palestinian Group**\
 `Students flooded Harvard Yard, the oldest part of the university’s campus, which officials recently closed to the public. The students set up tents for an “emergency rally.”`\
 https://nytimes.com/2024/04/24/us/harvard-pro-palestinian-protests.html
