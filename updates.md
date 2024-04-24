@@ -1,3 +1,11 @@
+**Seder Is About Family, Food, Freedom. And Now, It’s Also About the War.**\
+`At Passover seders, many families addressed the war in Gaza. In some cases, generations clashed and tensions arose. “That’s the Jewish way,” said one host.`\
+https://nytimes.com/2024/04/23/nyregion/seder-israel-gaza-war.html
+
+**Bread Spread**\
+`Step into the house of mirrors with Jeffrey Martinovic.`\
+https://nytimes.com/2024/04/23/crosswords/daily-puzzle-2024-04-24.html
+
 **How the Senate Voted on Foreign Aid to Ukraine, Israel and Taiwan**\
 `The measure, which includes a provision on the sale or ban of TikTok, had wide bipartisan support.`\
 https://nytimes.com/interactive/2024/04/23/us/politics/senate-vote-aid-israel-tiktok.html
