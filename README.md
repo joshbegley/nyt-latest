@@ -1,4 +1,8 @@
-**The Queens Park Ladies Joined a Boys’ League. Then They Went Undefeated.**\
+**Hersh Goldberg-Polin, an Israeli American Hostage, Is Seen in Hamas Video**\
+`The video appeared to be the first time that Mr. Goldberg-Polin, who was grievously injured in the Hamas-led Oct. 7 attack, has been seen alive since he was taken captive.`\
+https://nytimes.com/2024/04/24/world/middleeast/hamas-hostage-video-hersh-goldberg-polin.html
+
+**Queens Park Ladies Joined a Boys’ League. Then They Went Undefeated.**\
 `The under-12 soccer team in Bournemouth, England, hopes to inspire younger girls to get into the sport after a dominant season against the boys.`\
 https://nytimes.com/2024/04/24/world/europe/uk-women-girls-soccer-team-bournemouth.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/the-biden-ad
 **What’s the Best Way to Salt Scrambled Eggs?**\
 `Paying close attention to timing can help you avoid watery eggs. Kenji López-Alt explains why.`\
 https://nytimes.com/2024/04/24/dining/best-way-to-salt-scrambled-eggs.html
-
-**Senate Committee Investigates Ozempic and Wegovy Costs**\
-`Senator Bernie Sanders is pressing the drugmaker Novo Nordisk for details on its pricing of the popular diabetes and weight loss medications.`\
-https://nytimes.com/2024/04/24/well/live/ozempic-cost-senate.html
 
