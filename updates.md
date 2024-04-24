@@ -1,3 +1,7 @@
+**Trump Named as Unindicted Conspirator in Michigan Election Interference Case**\
+`An investigator said in court that former President Donald J. Trump and some of his aides conspired with fake electors to overturn his 2020 defeat in Michigan.`\
+https://nytimes.com/2024/04/24/us/trump-michigan-election-interference.html
+
 **Long-Lost Klimt Painting Sells for $37 Million at Auction**\
 `The portrait was left unfinished in the painter’s studio when he died, and questions persist over the identity of the subject and what happened to the painting during Nazi rule in Austria.`\
 https://nytimes.com/2024/04/24/arts/design/gustav-klimt-painting-auction.html
