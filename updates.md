@@ -1,3 +1,7 @@
+**Trump Wins Pennsylvania Primary, But Remains Haunted by Haley**\
+`Nikki Haley, who dropped out of the race more than a month ago, won more than 155,000 votes, an indication of Donald J. Trump’s difficulties in winning over her supporters.`\
+https://nytimes.com/2024/04/23/us/politics/pennsylvania-primary-takeaways.html
+
 **Word of the Day: hardscrabble**\
 `This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/24/learning/word-of-the-day-hardscrabble.html

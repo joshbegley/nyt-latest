@@ -30,8 +30,8 @@ https://nytimes.com/2024/04/23/us/jan-6-sentencing-david-gietzen.html
 `The university, which asked the police to arrest protesters last week, had said it would consider “alternative options” for clearing the lawn if an agreement was not reached.`\
 https://nytimes.com/2024/04/23/us/columbia-protests-encampment.html
 
-**Three Takeaways From the Pennsylvania Primaries**\
-`A liberal Pittsburgh-area congresswoman turned away a centrist challenger, Nikki Haley kept ringing up votes against Donald Trump, and a Senate race began in earnest.`\
+**Trump Wins Pennsylvania Primary, But Remains Haunted by Haley**\
+`Nikki Haley, who dropped out of the race more than a month ago, won more than 155,000 votes, an indication of Donald J. Trump’s difficulties in winning over her supporters.`\
 https://nytimes.com/2024/04/23/us/politics/pennsylvania-primary-takeaways.html
 
 **Seder Is About Family, Food, Freedom. And Now, It’s Also About the War.**\
