@@ -1,6 +1,22 @@
-**In response to protests, Brandeis invited Jewish students to transfer.**\
+**Could Justice Barrett Limit Her Own Damage on Abortion?**\
+`She may yet play a significant role in determining the new landscape of abortion rights`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/barrett-abortion-rights-scotus
+
+**5 Takeaways From the Supreme Court Arguments on Idaho’s Abortion Ban**\
+`The court’s ruling could extend to at least half a dozen other states that have similarly restrictive bans, and the implications of the case could stretch beyond abortion.`\
+https://nytimes.com/2024/04/24/us/politics/takeaways-supreme-court-idaho-abortion-ban.html
+
+**Authorities Offer $20,000 to Find Person Who Fatally Shot Dolphin**\
+`The dolphin, a juvenile found on a Louisiana beach, had injuries “consistent with being shot with a firearm,” marine officials said.`\
+https://nytimes.com/2024/04/24/us/louisiana-dolphin-shot-dead.html
+
+**Mayor Adams Walks Back Budget Cuts, but No Reprieve for Libraries**\
+`The mayor released a revised $111.6 billion budget, which included $2.3 billion that would restore some funding for schools and cultural institutions.`\
+https://nytimes.com/2024/04/24/nyregion/budget-cuts-adams-nyc.html
+
+**In response to protests, Brandeis invited Jewish students to transfer to its campus.**\
 `By Dana Goldstein`\
-https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/in-response-to-protests-brandeis-invited-jewish-students-to-transfer
+https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/college-protests-brandeis-transfer
 
 **Five Moments That Have Defined Donald Trump’s Trial So Far**\
 `Trials are wars of words. These are some of the most memorable that have been spoken as a jury hears the criminal case against Donald J. Trump.`\
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/protesters-o
 **Columbia’s president, Nemat Shafik, has been at the center of the unrest.**\
 `By Troy Closson and Stephanie Saul`\
 https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/columbias-president-nemat-shafik-has-been-at-the-center-of-the-unrest
-
-**Review: Noche Flamenca, Raising the Dead With Goya**\
-`In “Searching for Goya,” at the Joyce Theater, the troupe uses the painter’s images as frames for flamenco dances.`\
-https://nytimes.com/2024/04/24/arts/dance/review-noche-flamenca-soledad-barrio.html
-
-**‘Unborn Child’ or ‘Fetus’: Parsing Word Choices on Abortion at the Supreme Court**\
-`The word choice is not merely a question of semantics but gets to the heart of the ultimate goal of the anti-abortion movement: fetal personhood, and prohibiting abortion entirely.`\
-https://nytimes.com/2024/04/24/us/politics/fetus-unborn-child-abortion-idaho.html
-
-**On TikTok, Resignation and Frustration After Potential Ban of App**\
-`While Congress says the social app is a security threat, critics of the law targeting it say it shows how out of step lawmakers are with young people.`\
-https://nytimes.com/2024/04/24/technology/tiktok-ban-bill-frustration.html
-
-**Pro-Palestinian Encampments Surface at Campuses Nationwide**\
-`Many students have been demanding that their schools end financial ties to Israel and weapons manufacturers.`\
-https://nytimes.com/2024/04/24/us/pro-palestinian-encampments-protests.html
 

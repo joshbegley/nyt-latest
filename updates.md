@@ -1,3 +1,23 @@
+**Could Justice Barrett Limit Her Own Damage on Abortion?**\
+`She may yet play a significant role in determining the new landscape of abortion rights`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/barrett-abortion-rights-scotus
+
+**5 Takeaways From the Supreme Court Arguments on Idaho’s Abortion Ban**\
+`The court’s ruling could extend to at least half a dozen other states that have similarly restrictive bans, and the implications of the case could stretch beyond abortion.`\
+https://nytimes.com/2024/04/24/us/politics/takeaways-supreme-court-idaho-abortion-ban.html
+
+**Authorities Offer $20,000 to Find Person Who Fatally Shot Dolphin**\
+`The dolphin, a juvenile found on a Louisiana beach, had injuries “consistent with being shot with a firearm,” marine officials said.`\
+https://nytimes.com/2024/04/24/us/louisiana-dolphin-shot-dead.html
+
+**Mayor Adams Walks Back Budget Cuts, but No Reprieve for Libraries**\
+`The mayor released a revised $111.6 billion budget, which included $2.3 billion that would restore some funding for schools and cultural institutions.`\
+https://nytimes.com/2024/04/24/nyregion/budget-cuts-adams-nyc.html
+
+**In response to protests, Brandeis invited Jewish students to transfer to its campus.**\
+`By Dana Goldstein`\
+https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/college-protests-brandeis-transfer
+
 **In response to protests, Brandeis invited Jewish students to transfer.**\
 `By Dana Goldstein`\
 https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/in-response-to-protests-brandeis-invited-jewish-students-to-transfer
