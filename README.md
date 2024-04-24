@@ -1,3 +1,7 @@
+**After U.N. Report, Germany Says It Will Resume Funding for UNRWA**\
+`The announcement was likely to further strain Germany’s longstanding ties with Israel, which have deteriorated because of differences over the war in Gaza.`\
+https://nytimes.com/2024/04/24/world/middleeast/germany-un-aid-unrwa-gaza.html
+
 **TikTok’s Pro-China Tilt**\
 `A bill that will force the app’s Chinese owners to sell will soon become law.`\
 https://nytimes.com/2024/04/24/briefing/tiktok-bill-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/technology/personaltech/meta-ai-facebook-instagra
 **Arizona Democrats Consider 3rd Attempt to Repeal 1864 Abortion Law**\
 `The almost-complete ban on abortions in the state could go into effect as early as June 8, the state’s attorney general said.`\
 https://nytimes.com/2024/04/24/us/abortion-ban-arizona.html
-
-**Patients Are Losing Trust in Doctors. Medicine Suffers.**\
-`Skepticism and distrust of health practitioners is on the rise. How are doctors supposed to restore patient trust?`\
-https://nytimes.com/2024/04/24/opinion/medical-skepticism-doctors-trust.html
 
