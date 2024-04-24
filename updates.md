@@ -1,3 +1,11 @@
+**Business Groups Sue to Stop F.T.C. From Banning Noncompete Clauses**\
+`The suit was filed the day after the agency announced a rule that prohibits companies from limiting their employees’ ability to work for rivals. It argues that the F.T.C. does not have the authority.`\
+https://nytimes.com/2024/04/24/business/lawsuit-ftc-noncompete-ban.html
+
+**Is It Wrong for Public School Principals to Send Their Kids to Private School?**\
+`The magazine’s Ethicist columnist on double standards — and possible hypocrisy — among educators.`\
+https://nytimes.com/2024/04/24/magazine/public-school-principals-private-ethics.html
+
 **Why I’m Getting More Pessimistic About Biden’s Chances This Fall**\
 `The reasons aren’t rocket science.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/biden-poll-young-voters
