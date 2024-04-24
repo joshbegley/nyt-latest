@@ -1,3 +1,7 @@
+**Corrections: April 24, 2024**\
+`Corrections that appeared in print on Weekday, Month Date, Year.`\
+https://nytimes.com/2024/04/24/pageoneplus/corrections-april-24-2024.html
+
 **Quotation of the Day: Trapped and Starving, 2 Families Try to Keep Their Children Alive**\
 `Quotation of the Day for Wednesday, April 24, 2024.`\
 https://nytimes.com/2024/04/24/pageoneplus/quotation-of-the-day-trapped-and-starving-2-families-try-to-keep-their-children-alive.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/crosswords/daily-puzzle-2024-04-24.html
 **How the Senate Voted on Foreign Aid to Ukraine, Israel and Taiwan**\
 `The measure, which includes a provision on the sale or ban of TikTok, had wide bipartisan support.`\
 https://nytimes.com/interactive/2024/04/23/us/politics/senate-vote-aid-israel-tiktok.html
-
-**Congress Passed a Bill That Could Ban TikTok. Now Comes the Hard Part.**\
-`After President Biden signs the bill to force a sale of the video app or ban it, the legislation will face court challenges, a shortage of qualified buyers and Beijing’s hostility.`\
-https://nytimes.com/2024/04/23/technology/tiktok-ban-bill-congress.html
 
