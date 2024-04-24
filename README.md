@@ -1,3 +1,11 @@
+**Why Is This Seder Unlike All Other Seders?**\
+`The dinner parties held by Shtick, a pop-up series celebrating Jewish culture, draw out New York’s influencers, artists, designers and celebrities.`\
+https://nytimes.com/2024/04/24/style/passover-seder-shtick.html
+
+**Robert Kraft’s Fight Against Antisemitism Began Long Before Oct. 7**\
+`The New England Patriots owner said this week that he was “no longer comfortable supporting” Columbia University, his alma mater, which has been roiled by protests.`\
+https://nytimes.com/2024/04/24/business/robert-kraft-donation-columbia-protests.html
+
 **Turner Prize Shortlist Leans In to Artists’ Identities**\
 `This year’s four nominees are Claudette Johnson, Jasleen Kaur, Pio Abad and Delaine Le Bas, whose works draw on personal history and cultural interpretations.`\
 https://nytimes.com/2024/04/24/arts/design/turner-prize-shortlist.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/24/travel/airline-refunds-fees.html
 **The federal law came about in part because of how pregnant women were treated in emergency rooms.**\
 `By Pam Belluck`\
 https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/the-federal-law-came-about-in-part-because-of-how-pregnant-women-were-treated-in-emergency-rooms
-
-**Australian Journalist Says She Was Pushed Out of India**\
-`Avani Dias said that she had been denied a visa renewal for weeks because of her reporting on the Sikh separatist movement. Indian officials disputed her account.`\
-https://nytimes.com/2024/04/24/world/asia/india-australia-journalist-avani-dias.html
-
-**21 states have restricted or banned abortion since Roe v. Wade was overturned.**\
-`By The New York Times`\
-https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/21-states-have-restricted-or-banned-abortion-since-roe-v-wade-was-overturned
 
