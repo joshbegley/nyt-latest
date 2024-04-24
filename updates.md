@@ -1,3 +1,7 @@
+**Campus Protests Over Gaza Intensify Amid Pushback by Universities and Police**\
+`There were nearly two dozen new arrests, mostly in Texas, as universities moved to prevent pro-Palestinian encampments from taking hold as they have at Columbia University.`\
+https://nytimes.com/2024/04/24/us/college-protests-spread-austin-dallas.html
+
 **Johnson Condemns Pro-Palestinian Protests at Columbia University**\
 `House Speaker Mike Johnson delivered brief remarks at Columbia University on Wednesday, demanding White House action and invoking the possibility of bringing in the National Guard to quell the pro-Palestinian protests. Students interrupted his speech with jeers.`\
 https://nytimes.com/video/us/politics/100000009432319/mike-johnson-columbia-university.html
