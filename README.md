@@ -1,3 +1,7 @@
+**Bucking G.O.P. Isolationists, McConnell Was Linchpin in Winning Ukraine Aid**\
+`The leader said he often felt like “I was the only Reagan Republican left” as he pushed back on rising forces in his party arguing against American intervention in foreign affairs.`\
+https://nytimes.com/2024/04/24/us/politics/mitch-mcconnell-ukraine-aid-republicans.html
+
 **Cristian Macelaru, Decorated Maestro, to Lead Cincinnati Symphony**\
 `He will begin a four-year term as the orchestra’s music director in the 2025-26 season, succeeding Louis Langrée.`\
 https://nytimes.com/2024/04/24/arts/music/cristian-macelaru-to-lead-cincinnati-symphony.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/24/arts/editors-recommendations-xfiles.h
 **NATO Puts on a Show of Force in the Shadow of Russia’s War**\
 `The alliance’s largest exercises offer a preview of what the opening of a Great Power conflict could look like. How it ends is a different story.`\
 https://nytimes.com/2024/04/24/us/politics/nato-exercise-russia-ukraine.html
-
-**U.S. Secretly Shipped New Long-Range Missiles to Ukraine**\
-`Ukrainian forces for the first time used a longer-range version of weapons known as ATACMS, striking an airfield in Crimea and Russian troops in southeastern Ukraine.`\
-https://nytimes.com/2024/04/24/us/us-ukraine-russia-missiles.html
 
