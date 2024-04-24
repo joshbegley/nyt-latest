@@ -1,3 +1,7 @@
+**Prosecutor Says Sept. 11 Suspects Can Be Held Past War Crimes Sentence**\
+`The argument, in a pretrial hearing, dealt with the unresolved question of whether a prisoner who completes such a sentence is entitled to release from military detention.`\
+https://nytimes.com/2024/04/24/us/politics/sept-11-suspects-war-crimes-sentence.html
+
 **Enduring Mayhem: Images From Year 3 of the War in Ukraine**\
 `A photographic chronicle of the third year of Russia’s invasion of Ukraine.`\
 https://nytimes.com/2024/04/24/world/europe/images-ukraine-war-third-year.html
@@ -8,7 +12,7 @@ https://nytimes.com/2024/04/24/health/fda-urinary-tract-infection-antibiotic.htm
 
 **Meta’s Profits More Than Double, While Spending on A.I. Rises**\
 `The owner of Facebook, Instagram and WhatsApp continued to grow, even as it said it would spend billions of dollars more on artificial intelligence.`\
-https://nytimes.com/2024/04/24/technology/metas-profits-nearly-double-while-spending-on-ai-rises.html
+https://nytimes.com/2024/04/24/technology/meta-profit-stock-ai.html
 
 **College Protesters Make Divestment From Israel a Rallying Cry**\
 `The campaign is likely to have a negligible impact on the companies or Israel, but activists see divestment as a clear way to force colleges to take action on the issue.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/opinion/bird-flu-cow-outbreak.html
 **Could Justice Barrett Limit Her Own Damage on Abortion?**\
 `She may yet play a significant role in determining the new landscape of abortion rights`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/barrett-abortion-rights-scotus
-
-**5 Takeaways From the Supreme Court Arguments on Idaho’s Abortion Ban**\
-`The court’s ruling could extend to at least half a dozen other states that have similarly restrictive bans, and the implications of the case could stretch beyond abortion.`\
-https://nytimes.com/2024/04/24/us/politics/takeaways-supreme-court-idaho-abortion-ban.html
 

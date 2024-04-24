@@ -1,3 +1,11 @@
+**Prosecutor Says Sept. 11 Suspects Can Be Held Past War Crimes Sentence**\
+`The argument, in a pretrial hearing, dealt with the unresolved question of whether a prisoner who completes such a sentence is entitled to release from military detention.`\
+https://nytimes.com/2024/04/24/us/politics/sept-11-suspects-war-crimes-sentence.html
+
+**Meta’s Profits More Than Double, While Spending on A.I. Rises**\
+`The owner of Facebook, Instagram and WhatsApp continued to grow, even as it said it would spend billions of dollars more on artificial intelligence.`\
+https://nytimes.com/2024/04/24/technology/meta-profit-stock-ai.html
+
 **College Protesters Make Divestment From Israel a Rallying Cry**\
 `The campaign is likely to have a negligible impact on the companies or Israel, but activists see divestment as a clear way to force colleges to take action on the issue.`\
 https://nytimes.com/2024/04/24/business/college-protesters-divestment-israel.html
