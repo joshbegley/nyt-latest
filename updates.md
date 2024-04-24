@@ -1,3 +1,7 @@
+**At Brooklyn Seder Protest, Jewish New Yorkers Target Schumer Over Aid**\
+`It appeared that at least 100 were arrested after pro-Palestinian Jewish groups rallied near Chuck Schumer’s home, as the Senate seemed poised to authorize billions of dollars in aid to Israel.`\
+https://nytimes.com/2024/04/23/nyregion/schumer-seder-protest-brooklyn.html
+
 **Summer Lee, ‘Squad’ Member, Wins Democratic House Primary in Pennsylvania**\
 `A first-term representative, Ms. Lee defeated a centrist Democrat in a race that centered on her opposition to the war in Gaza.`\
 https://nytimes.com/2024/04/23/us/politics/lee-pennsylvania-primary.html
