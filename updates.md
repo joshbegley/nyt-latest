@@ -1,3 +1,7 @@
+**Review: John Adams’s ‘El Niño’ Arrives at the Met in Lush Glory**\
+`The opera-oratorio, an alternate Nativity story, featured a flurry of Met debuts, including the director Lileana Blain-Cruz and the conductor Marin Alsop.`\
+https://nytimes.com/2024/04/24/arts/music/review-john-adams-el-nino-met-opera.html
+
 **Pro-Palestinian Encampments Surface at Campuses Nationwide**\
 `Many students have been demanding that their schools end financial ties to Israel and weapons manufacturers.`\
 https://nytimes.com/2024/04/24/us/pro-palestinian-encampments-surface-at-campuses-nationwide.html
