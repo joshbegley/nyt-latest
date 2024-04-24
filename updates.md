@@ -1,3 +1,11 @@
+**Pro-Palestinian Encampments Surface at Campuses Nationwide**\
+`Many students have been demanding that their schools end financial ties to Israel and weapons manufacturers.`\
+https://nytimes.com/2024/04/24/us/pro-palestinian-encampments-surface-at-campuses-nationwide.html
+
+**How a Broadway Theater Was Remade Into a Queer Cabaret**\
+`The set and costume designer Tom Scutt has conjured a surreal, New York-inspired version of the fictional Kit Kat Club for the latest revival of the 1966 musical “Cabaret.”`\
+https://nytimes.com/interactive/2024/04/24/multimedia/cabaret-broadway-set.html
+
 **Dairy Cows Transported Between States Must Now Be Tested for Bird Flu**\
 `Since a new form of bird flu arrived in 2022, federal officials have sought to reassure Americans that the threat to the public remained low.`\
 https://nytimes.com/2024/04/24/health/bird-flu-dairy-cows-testing-usda.html
