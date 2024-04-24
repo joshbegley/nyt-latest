@@ -1,3 +1,11 @@
+**Understanding the Transportation Department’s New Rules for Airline Refunds and ‘Junk’ Fees**\
+`The Biden administration will require airlines to automatically refund fares when flights are canceled or delayed and to reveal more about extra fees before booking. Here’s what passengers can expect.`\
+https://nytimes.com/2024/04/24/travel/airline-refunds-fees.html
+
+**The federal law came about in part because of how pregnant women were treated in emergency rooms.**\
+`By Pam Belluck`\
+https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/the-federal-law-came-about-in-part-because-of-how-pregnant-women-were-treated-in-emergency-rooms
+
 **Australian Journalist Says She Was Pushed Out of India**\
 `Avani Dias said that she had been denied a visa renewal for weeks because of her reporting on the Sikh separatist movement. Indian officials disputed her account.`\
 https://nytimes.com/2024/04/24/world/asia/india-australia-journalist-avani-dias.html
