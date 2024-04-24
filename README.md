@@ -1,3 +1,11 @@
+**Justices Seemed Split on Emergency Abortion Access**\
+`Also, U.S. weapons are headed to Ukraine. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/04/24/briefing/supreme-court-abortion-ukraine-us-aid.html
+
+**‘Don’t Inject Bleach’: Biden Mocks Trump on Anniversary of Covid Comments**\
+`President Biden has homed in on the infamous moment, which crystallized the chaos of the Trump presidency, as he trolls his political opponent.`\
+https://nytimes.com/2024/04/24/us/politics/biden-trump-covid-bleach.html
+
 **‘Everyone was ready to act.’ At Brown, students are galvanized by nationwide protests.**\
 `By Jenna Russell`\
 https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/brown-university-protests
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/24/world/europe/images-ukraine-war-third-year.html
 **F.D.A. Approves Antibiotic for Increasingly Hard-to-Treat Urinary Tract Infections**\
 `Pivmecillinam, which has been used in Europe for decades, will become available next year to women 18 and older.`\
 https://nytimes.com/2024/04/24/health/fda-urinary-tract-infection-antibiotic.html
-
-**Meta’s Profits More Than Double, While Spending on A.I. Rises**\
-`The owner of Facebook, Instagram and WhatsApp continued to grow, even as it said it would spend billions of dollars more on artificial intelligence.`\
-https://nytimes.com/2024/04/24/technology/meta-profit-stock-ai.html
-
-**College Protesters Make Divestment From Israel a Rallying Cry**\
-`The campaign is likely to have a negligible impact on the companies or Israel, but activists see divestment as a clear way to force colleges to take action on the issue.`\
-https://nytimes.com/2024/04/24/business/college-protesters-divestment-israel.html
 
