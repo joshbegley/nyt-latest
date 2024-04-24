@@ -1,3 +1,7 @@
+**Could Justice Barrett Limit Her Own Damage on Abortion?**\
+`She may yet play a significant role in determining the new landscape of abortion rights`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/barrett-abortion-rights-scotus
+
 **5 Takeaways From the Supreme Court Arguments on Idaho’s Abortion Ban**\
 `The court’s ruling could extend to at least half a dozen other states that have similarly restrictive bans, and the implications of the case could stretch beyond abortion.`\
 https://nytimes.com/2024/04/24/us/politics/takeaways-supreme-court-idaho-abortion-ban.html
@@ -10,9 +14,9 @@ https://nytimes.com/2024/04/24/us/louisiana-dolphin-shot-dead.html
 `The mayor released a revised $111.6 billion budget, which included $2.3 billion that would restore some funding for schools and cultural institutions.`\
 https://nytimes.com/2024/04/24/nyregion/budget-cuts-adams-nyc.html
 
-**In response to protests, Brandeis invited Jewish students to transfer.**\
+**In response to protests, Brandeis invited Jewish students to transfer to its campus.**\
 `By Dana Goldstein`\
-https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/in-response-to-protests-brandeis-invited-jewish-students-to-transfer
+https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/college-protests-brandeis-transfer
 
 **Five Moments That Have Defined Donald Trump’s Trial So Far**\
 `Trials are wars of words. These are some of the most memorable that have been spoken as a jury hears the criminal case against Donald J. Trump.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/protesters-o
 **Columbia’s president, Nemat Shafik, has been at the center of the unrest.**\
 `By Troy Closson and Stephanie Saul`\
 https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/columbias-president-nemat-shafik-has-been-at-the-center-of-the-unrest
-
-**Review: Noche Flamenca, Raising the Dead With Goya**\
-`In “Searching for Goya,” at the Joyce Theater, the troupe uses the painter’s images as frames for flamenco dances.`\
-https://nytimes.com/2024/04/24/arts/dance/review-noche-flamenca-soledad-barrio.html
 
