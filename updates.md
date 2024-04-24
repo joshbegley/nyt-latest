@@ -1,3 +1,7 @@
+**Boeing Loses $355 Million in Latest Quarter**\
+`The manufacturer has had to slow production of its popular 737 Max planes after a hole blew open on a jet during an Alaska Airlines flight in January.`\
+https://nytimes.com/2024/04/24/business/boeing-first-quarter-earnings.html
+
 **Who Stands to Gain from a TikTok Ban**\
 `The Senate has finally passed a law that could bar the  video-sharing app in the U.S., leaving some tech giants in pole position to profit — or pounce.`\
 https://nytimes.com/2024/04/24/business/dealbook/bytedance-tiktok-congress-ban.html
