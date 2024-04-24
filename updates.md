@@ -1,3 +1,7 @@
+**‘Everyone was ready to act.’ At Brown, students are galvanized by nationwide protests.**\
+`By Jenna Russell`\
+https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/brown-university-protests
+
 **Donald M. Payne Jr., Five-Term New Jersey Representative, Dies at 65**\
 `A Newark Democrat, he succeeded his father, who was the first Black member of New Jersey’s congressional delegation.`\
 https://nytimes.com/2024/04/24/nyregion/rep-donald-m-payne-jr-dead.html
