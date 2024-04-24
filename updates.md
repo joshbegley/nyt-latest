@@ -1,3 +1,11 @@
+**After $15 Billion in Military Aid, Israel Calls Alliance With U.S. ‘Ironclad’**\
+`The money from Washington, which includes $5 billion to replenish Israel’s defenses and $1 billion for Gazan civilians, comes as Israel readies to invade Rafah.`\
+https://nytimes.com/2024/04/24/world/middleeast/israel-us-aid.html
+
+**On Columbia’s Lawn, the Curtain Rises on a Day of Political Theater**\
+`At Columbia University, protesters were undeterred, and even relaxed, as a phalanx of congressional leaders showed up and told them to “stop the nonsense.”`\
+https://nytimes.com/2024/04/24/nyregion/gaza-campus-protests-columbia-university.html
+
 **The Next Winner of the World Chess Championship Could Be the Youngest Ever**\
 `Dommaraju Gukesh, a 17-year-old grandmaster from India, is the youngest player ever to win the Candidates Tournament.`\
 https://nytimes.com/2024/04/24/crosswords/chess/gukesh-candidates-winner.html
