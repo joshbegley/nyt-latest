@@ -1,3 +1,15 @@
+**The Next Winner of the World Chess Championship Could Be the Youngest Ever**\
+`Dommaraju Gukesh, a 17-year-old grandmaster from India, is the youngest player ever to win the Candidates Tournament.`\
+https://nytimes.com/2024/04/24/crosswords/chess/gukesh-candidates-winner.html
+
+**Getty Museum Agrees to Return Ancient Bronze Head to Turkey**\
+`The museum did not detail its exact reasoning but said it had received information from New York investigators who consider the artifact to have been looted.`\
+https://nytimes.com/2024/04/24/arts/getty-museum-agrees-to-return-ancient-bronze-head-to-turkey.html
+
+**The Ghost of the 1968 Antiwar Movement Has Returned**\
+`The suffering in the war in Gaza is unacceptable. Young people will make that point clear this summer in Chicago.`\
+https://nytimes.com/2024/04/24/opinion/chicago-dnc-antiwar-protests.html
+
 **U.K. Publisher Redacts Passage of Rebel Wilson’s Memoir**\
 `The Australian actress and comedian accused Sacha Baron Cohen of inappropriate behavior during filming of a 2016 movie, which he has denied.`\
 https://nytimes.com/2024/04/24/us/rebel-wilson-memoir-sacha-baron-cohen.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/biden-signs-aid-
 **Hundreds at Harvard Protest Suspension of Pro-Palestinian Group**\
 `Students flooded Harvard Yard, the oldest part of the university’s campus, which officials recently closed to the public. The students set up tents for an “emergency rally.”`\
 https://nytimes.com/2024/04/24/us/harvard-campus-protests.html
-
-**Vehicle Crash That Injured Film Crew Was Caught on Video**\
-`The collision on the set of “The Pickup” is under investigation. Video shows an armored truck and an S.U.V. veering off a road before the truck flips onto the smaller vehicle.`\
-https://nytimes.com/2024/04/24/arts/the-pickup-accident-video.html
-
-**White House says it won’t interfere in decision over Israeli battalion accused of abuse.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/white-house-says-it-wont-interfere-in-decision-over-israeli-battalion-accused-of-abuse
-
-**Justices Seemed Split on Emergency Abortion Access**\
-`Also, U.S. weapons are headed to Ukraine. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/04/24/briefing/supreme-court-abortion-ukraine-us-aid.html
 
