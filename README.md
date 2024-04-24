@@ -1,3 +1,11 @@
+**The Biden administration considers the federal EMTALA law key to preserving abortion access.**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/the-biden-administration-considers-the-federal-emtala-law-key-to-preserving-abortion-access
+
+**What’s the Best Way to Salt Scrambled Eggs?**\
+`Paying close attention to timing can help you avoid watery eggs. Kenji López-Alt explains why.`\
+https://nytimes.com/2024/04/24/dining/best-way-to-salt-scrambled-eggs.html
+
 **Senate Committee Investigates Ozempic and Wegovy Costs**\
 `Senator Bernie Sanders is pressing the drugmaker Novo Nordisk for details on its pricing of the popular diabetes and weight loss medications.`\
 https://nytimes.com/2024/04/24/well/live/ozempic-cost-senate.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/04/24/us/elections/nikki-haley-trump-zombie
 **The International Date Line Is ‘Pretty Arbitrary.’ Here’s Why.**\
 `That squiggly line through the Pacific where days begin and end has no legal authority and technically doesn’t exist.`\
 https://nytimes.com/2024/04/24/world/asia/international-date-line-pacific-ocean.html
-
-**This Is What a Miracle Drug Looks Like. And It Only Costs $5 to Make.**\
-`The effects of semaglutide drugs won’t just be cosmetic`\
-https://nytimes.com/2024/04/24/opinion/ozempic-wegovy-weight-glp1.html
-
-**Why I’m Getting More Pessimistic About Biden’s Chances This Fall**\
-`The reasons aren’t rocket science.`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/biden-poll-young-voters
 
