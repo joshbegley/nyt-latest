@@ -20,7 +20,7 @@ https://nytimes.com/live/2024/04/24/us/biden-israel-ukraine-aid
 
 **Inside the Crisis at NPR**\
 `Listeners are tuning out. Sponsorship revenue has dipped. A diversity push has generated internal turmoil. Can America’s public radio network turn things around?`\
-https://nytimes.com/2024/04/24/business/media/inside-the-crisis-at-npr.html
+https://nytimes.com/2024/04/24/business/media/npr-uri-berliner-diversity.html
 
 **Living in New Jersey, Grieving for Over 100 Relatives Killed in Gaza**\
 `Adam and Ola Abo Sheriah absorb a loss few of their friends and neighbors can imagine, and scramble to help surviving family members in Gaza while trying to get their kids to school on time.`\
