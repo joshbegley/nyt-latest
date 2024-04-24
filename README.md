@@ -1,3 +1,11 @@
+**How the Senate Voted on Foreign Aid to Ukraine, Israel and Taiwan**\
+`The measure, which includes a provision on the sale or ban of TikTok, had wide bipartisan support.`\
+https://nytimes.com/interactive/2024/04/23/us/politics/senate-vote-aid-israel-tiktok.html
+
+**Congress Passed a Bill That Could Ban TikTok. Now Comes the Hard Part.**\
+`After President Biden signs the bill to force a sale of the video app or ban it, the legislation will face court challenges, a shortage of qualified buyers and Beijing’s hostility.`\
+https://nytimes.com/2024/04/23/technology/tiktok-ban-bill-congress.html
+
 **Summer Lee, ‘Squad’ Member, Wins Democratic House Primary in Pennsylvania**\
 `A first-term representative, Ms. Lee defeated a centrist Democrat in a race that centered on her opposition to the war in Gaza.`\
 https://nytimes.com/2024/04/23/us/politics/lee-pennsylvania-primary.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/23/nyregion/schumer-seder-protest-brooklyn.html
 **George Santos Said He Was Running for Congress Again. (He’s Not.)**\
 `Less than two weeks after announcing a surprise long-shot bid for a House seat on Eastern Long Island, Mr. Santos said he was no longer pursuing the seat.`\
 https://nytimes.com/2024/04/23/nyregion/george-santos-dropping-out.html
-
-**Russian Deputy Defense Minister Is Detained on Bribery Charges**\
-`Timur Ivanov, who has long been in charge of major military construction projects and known for leading a lavish lifestyle, was held Tuesday on charges of “large scale” corruption.`\
-https://nytimes.com/2024/04/23/world/europe/russia-deputy-defense-minister-bribery.html
-
-**In Coral Fossils, Searching for the First Glow of Bioluminescence**\
-`A new study resets the timing for the emergence of bioluminescence back to millions of years earlier than previously thought.`\
-https://nytimes.com/2024/04/23/science/bioluminescence-evolution-sea-creatures.html
 
