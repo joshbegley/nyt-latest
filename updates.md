@@ -1,3 +1,7 @@
+**On TikTok, Resignation and Frustration After Potential Ban of App**\
+`While Congress says the social app is a security threat, critics of the law targeting it say it shows how out of step lawmakers are with young people.`\
+https://nytimes.com/2024/04/24/technology/tiktok-ban-bill-frustration.html
+
 **The Volkswagen Union Win Shows That Labor Is Becoming a Bigger Tent**\
 `Republicans tried to quash the union drive with partisanship. It didn’t work.`\
 https://nytimes.com/2024/04/24/opinion/volkswagen-union-labor-republicans.html

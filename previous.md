@@ -24,7 +24,7 @@ https://nytimes.com/2024/04/24/us/politics/fetus-unborn-child-abortion-idaho.htm
 
 **On TikTok, Resignation and Frustration After Potential Ban of App**\
 `While Congress says the social app is a security threat, critics of the law targeting it say it shows how out of step lawmakers are with young people.`\
-https://nytimes.com/2024/04/24/technology/tiktok-frustration-ban.html
+https://nytimes.com/2024/04/24/technology/tiktok-ban-bill-frustration.html
 
 **Pro-Palestinian Encampments Surface at Campuses Nationwide**\
 `Many students have been demanding that their schools end financial ties to Israel and weapons manufacturers.`\
