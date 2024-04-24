@@ -1,3 +1,7 @@
+**Chicago Museum Says Investigators Have No Evidence Art Was Looted**\
+`In a court filing, the Art Institute of Chicago fought Manhattan prosecutors’ efforts to seize an important Egon Schiele drawing, denying that the Nazis had stolen it.`\
+https://nytimes.com/2024/04/24/arts/chicago-museum-schiele-court.html
+
 **Biden signs aid bill, reaffirming his commitment to Israel.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/biden-signs-aid-bill-reaffirming-his-commitment-to-israel
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/nyregion/rep-donald-m-payne-jr-dead.html
 **Johnson Calls to End Pro-Palestinian Protests, Including by Military Means**\
 `The Republican speaker appeared on Columbia University’s campus to condemn protesters as antisemitic and urge stronger action by the school’s president and President Biden.`\
 https://nytimes.com/2024/04/24/us/politics/johnson-columbia-university-president-protests.html
-
-**Trump Didn’t Really Do That Well in Pennsylvania**\
-`A surprising number of Republicans refused to vote for him in Tuesday’s primary.`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-pennsylvania-primary
 
