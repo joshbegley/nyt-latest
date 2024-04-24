@@ -1,3 +1,7 @@
+**Mayor Adams Pushes Out Chairwoman of Police Oversight Board**\
+`Arva Rice was asked to resign after she criticized police handling of a fatal shooting investigation and requested more money and power to investigate misconduct.`\
+https://nytimes.com/2024/04/23/nyregion/adams-ccrb-chairwoman.html
+
 **McCormick and Casey Win Senate Primaries, Setting Up Battle in Pennsylvania**\
 `Senator Bob Casey, the Democratic incumbent, will face David McCormick, a wealthy businessman whose first run for Senate was torpedoed by former President Donald J. Trump.`\
 https://nytimes.com/2024/04/23/us/politics/mccormick-casey-pennsylvania-senate.html
