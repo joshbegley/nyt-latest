@@ -1,3 +1,7 @@
+**How a Broadway Theater Was Remade Into a Queer Cabaret**\
+`The set and costume designer Tom Scutt has conjured a surreal, New York-inspired version of the fictional Kit Kat Club for the latest revival of the 1966 musical “Cabaret.”`\
+https://nytimes.com/interactive/2024/04/24/multimedia/24tmag-cabaret.html
+
 **Trump Named as Unindicted Conspirator in Michigan Election Interference Case**\
 `An investigator said in court that former President Donald J. Trump and some of his aides conspired with fake electors to overturn his 2020 defeat in Michigan.`\
 https://nytimes.com/2024/04/24/us/trump-michigan-election-interference.html

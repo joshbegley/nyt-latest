@@ -1,3 +1,7 @@
+**How a Broadway Theater Was Remade Into a Queer Cabaret**\
+`The set and costume designer Tom Scutt has conjured a surreal, New York-inspired version of the fictional Kit Kat Club for the latest revival of the 1966 musical “Cabaret.”`\
+https://nytimes.com/interactive/2024/04/24/multimedia/24tmag-cabaret.html
+
 **Trump Named as Unindicted Conspirator in Michigan Election Interference Case**\
 `An investigator said in court that former President Donald J. Trump and some of his aides conspired with fake electors to overturn his 2020 defeat in Michigan.`\
 https://nytimes.com/2024/04/24/us/trump-michigan-election-interference.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/arts/music/review-john-adams-el-nino-met-opera.ht
 **Famine could begin in Gaza within weeks if more aid doesn’t get in, the W.F.P. warns.**\
 `By Nick Cumming-Bruce and Shashank Bengali`\
 https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/famine-could-begin-in-gaza-within-weeks-if-more-aid-doesnt-get-in-the-wfp-warns
-
-**Bucking G.O.P. Isolationists, McConnell Was Linchpin in Winning Ukraine Aid**\
-`The leader said he often “felt like I was the only Reagan Republican left” as he pushed back on rising forces in his party arguing against American intervention in foreign affairs.`\
-https://nytimes.com/2024/04/24/us/politics/mitch-mcconnell-ukraine-aid-republicans.html
 
