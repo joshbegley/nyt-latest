@@ -1,3 +1,11 @@
+**What to Make of the ‘Zombie Vote’ Against Donald Trump**\
+`Votes for dropout candidates, such as Nikki Haley, have been features of past election cycles, too.`\
+https://nytimes.com/interactive/2024/04/24/us/elections/nikki-haley-trump-zombie-votes.html
+
+**The International Date Line Is ‘Pretty Arbitrary.’ Here’s Why.**\
+`That squiggly line through the Pacific where days begin and end has no legal authority and technically doesn’t exist.`\
+https://nytimes.com/2024/04/24/world/asia/international-date-line-pacific-ocean.html
+
 **This Is What a Miracle Drug Looks Like. And It Only Costs $5 to Make.**\
 `The effects of semaglutide drugs won’t just be cosmetic`\
 https://nytimes.com/2024/04/24/opinion/ozempic-wegovy-weight-glp1.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/24/us/palestinian-family-gaza-war-death.html
 **Abortion restrictions have changed the medical care in emergency rooms, too.**\
 `By Kate Zernike`\
 https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/abortion-restrictions-have-changed-the-medical-care-in-emergency-rooms-too
-
-**Homeless Georgians Could Face Hurdles to Voting Under New Legislation**\
-`A provision in an election bill would bar homeless voters from receiving mail-in ballots and election information at shelters or other temporary addresses.`\
-https://nytimes.com/2024/04/24/us/politics/georgia-voting-bill-homeless.html
-
-**Why Is This Seder Unlike All Other Seders?**\
-`The dinner parties held by Shtick, a pop-up series celebrating Jewish culture, draw out New York’s influencers, artists, designers and celebrities.`\
-https://nytimes.com/2024/04/24/style/passover-seder-shtick.html
 
