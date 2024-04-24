@@ -23,7 +23,7 @@ https://nytimes.com/2024/04/23/us/politics/mccormick-casey-pennsylvania-senate.h
 https://nytimes.com/2024/04/23/us/politics/tennessee-teachers-guns.html
 
 **At Brooklyn Seder Protest, Jewish New Yorkers Target Schumer Over Aid**\
-`Dozens were arrested after pro-Palestinian Jewish groups rallied near Chuck Schumer’s home on the second night of Passover, as the Senate seemed poised to authorize billions of dollars in aid to Israel.`\
+`It appeared that at least 100 were arrested after pro-Palestinian Jewish groups rallied near Chuck Schumer’s home, as the Senate seemed poised to authorize billions of dollars in aid to Israel.`\
 https://nytimes.com/2024/04/23/nyregion/schumer-seder-protest-brooklyn.html
 
 **George Santos Said He Was Running for Congress Again. (He’s Not.)**\
