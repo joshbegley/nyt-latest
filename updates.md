@@ -1,3 +1,7 @@
+**Cicadas Are Emerging Now. How Do They Know When to Come Out?**\
+`Scientists are making computer models to better understand how the mysterious insects emerge collectively after more than a decade underground.`\
+https://nytimes.com/2024/04/24/science/why-do-cicadas-emerge.html
+
 **New Nutrition Guidelines Put Less Sugar and Salt on the Menu for School Meals**\
 `The Agriculture Department finalized a new rule to bring the meals more in line with federal dietary standards.`\
 https://nytimes.com/2024/04/24/us/politics/school-meals-nutrition.html
