@@ -1,3 +1,7 @@
+**Carrie Robbins, Costume Designer for Dozens of Broadway Shows, Dies at 81**\
+`She made a classic wig and poodle skirt for “Grease” (using a bath mat and a toilet cover) and turned actors into Spanish inquisitors, British highwaymen and more.`\
+https://nytimes.com/2024/04/24/theater/carrie-robbins-dead.html
+
 **Spain’s Leader Says He’s Considering Resigning as Wife Faces Investigation**\
 `Prime Minister Pedro Sánchez suspended all public duties until Monday, after a judge ordered an inquiry into alleged influence peddling by Mr. Sánchez’s wife.`\
 https://nytimes.com/2024/04/24/world/europe/spain-pedro-sanchez-wife.html
