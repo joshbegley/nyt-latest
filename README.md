@@ -1,3 +1,7 @@
+**Trump Named as Unindicted Conspirator in Michigan Election Interference Case**\
+`An investigator said in court that former President Donald J. Trump and some of his aides conspired with fake electors to overturn his 2020 defeat in Michigan.`\
+https://nytimes.com/2024/04/24/us/trump-michigan-election-interference.html
+
 **Long-Lost Klimt Painting Sells for $37 Million at Auction**\
 `The portrait was left unfinished in the painter’s studio when he died, and questions persist over the identity of the subject and what happened to the painting during Nazi rule in Austria.`\
 https://nytimes.com/2024/04/24/arts/design/gustav-klimt-painting-auction.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/famine-could-beg
 **Bucking G.O.P. Isolationists, McConnell Was Linchpin in Winning Ukraine Aid**\
 `The leader said he often “felt like I was the only Reagan Republican left” as he pushed back on rising forces in his party arguing against American intervention in foreign affairs.`\
 https://nytimes.com/2024/04/24/us/politics/mitch-mcconnell-ukraine-aid-republicans.html
-
-**Cristian Macelaru, Decorated Maestro, to Lead Cincinnati Symphony**\
-`He will begin a four-year term as the orchestra’s music director in the 2025-26 season, succeeding Louis Langrée.`\
-https://nytimes.com/2024/04/24/arts/music/cristian-macelaru-to-lead-cincinnati-symphony.html
 
