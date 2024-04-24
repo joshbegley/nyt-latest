@@ -1,3 +1,11 @@
+**Long-Lost Klimt Painting Sells for $37 Million at Auction**\
+`The portrait was left unfinished in the painter’s studio when he died, and questions persist over the identity of the subject and what happened to the painting during Nazi rule in Austria.`\
+https://nytimes.com/2024/04/24/arts/design/gustav-klimt-painting-auction.html
+
+**Is New York Improv Back? I Went on a One-Week Binge to Find Out.**\
+`The pandemic dealt a major blow to the once-thriving comedy form, but a new energy can be seen in performances throughout the city.`\
+https://nytimes.com/2024/04/24/arts/improv-comedy-new-york-return.html
+
 **Steak From Dairy Cows? It Could Be a Lifeline for American Farmers.**\
 `Letting milk cows graze longer can produce superior beef — a largely  European practice that is now gaining ground in America.`\
 https://nytimes.com/2024/04/24/dining/beef-dairy-cows.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/24/us/politics/mitch-mcconnell-ukraine-aid-republica
 **Cristian Macelaru, Decorated Maestro, to Lead Cincinnati Symphony**\
 `He will begin a four-year term as the orchestra’s music director in the 2025-26 season, succeeding Louis Langrée.`\
 https://nytimes.com/2024/04/24/arts/music/cristian-macelaru-to-lead-cincinnati-symphony.html
-
-**Trump’s Immunity Claim Joins His Plans to Increase Executive Power**\
-`The former president is asking the Supreme Court to put the presidency above criminal law as he pursues a broader agenda of expanding the office’s power should he win the election.`\
-https://nytimes.com/2024/04/24/us/trump-immunity-president-supreme-court.html
-
-**In Immunity Case, Trump Can Lose in Ways That Amount to a Win**\
-`After the justices hear arguments on Thursday, how they decide may be just as important as what they decide.`\
-https://nytimes.com/2024/04/24/us/trump-immunity-case-supreme-court.html
 
