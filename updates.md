@@ -1,3 +1,7 @@
+**Review: Noche Flamenca, Raising the Dead With Goya**\
+`In “Searching for Goya,” at the Joyce Theater, the troupe uses the painter’s images as frames for flamenco dances.`\
+https://nytimes.com/2024/04/24/arts/dance/review-noche-flamenca-soledad-barrio.html
+
 **‘Unborn Child’ or ‘Fetus’: Parsing Word Choices on Abortion at the Supreme Court**\
 `The word choice is not merely a question of semantics but gets to the heart of the ultimate goal of the anti-abortion movement: fetal personhood, and prohibiting abortion entirely.`\
 https://nytimes.com/2024/04/24/us/politics/fetus-unborn-child-abortion-idaho.html

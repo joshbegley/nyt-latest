@@ -1,3 +1,7 @@
+**Review: Noche Flamenca, Raising the Dead With Goya**\
+`In “Searching for Goya,” at the Joyce Theater, the troupe uses the painter’s images as frames for flamenco dances.`\
+https://nytimes.com/2024/04/24/arts/dance/review-noche-flamenca-soledad-barrio.html
+
 **‘Unborn Child’ or ‘Fetus’: Parsing Word Choices on Abortion at the Supreme Court**\
 `The word choice is not merely a question of semantics but gets to the heart of the ultimate goal of the anti-abortion movement: fetal personhood, and prohibiting abortion entirely.`\
 https://nytimes.com/2024/04/24/us/politics/fetus-unborn-child-abortion-idaho.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/arts/improv-comedy-new-york-return.html
 **Steak From Dairy Cows? It Could Be a Lifeline for American Farmers.**\
 `Letting milk cows graze longer can produce superior beef — a largely  European practice that is now gaining ground in America.`\
 https://nytimes.com/2024/04/24/dining/beef-dairy-cows.html
-
-**Inside the week that shook Columbia’s campus and reverberated across the nation.**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/inside-the-week-that-shook-columbias-campus-and-reverberated-across-the-nation
 
