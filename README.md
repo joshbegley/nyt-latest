@@ -1,3 +1,7 @@
+**Word of the Day: hardscrabble**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/24/learning/word-of-the-day-hardscrabble.html
+
 **Late Night Tackles Trump’s Gag Order Hearing**\
 `“Has Trump ever considered paying himself hush money?” Jordan Klepper asked on Tuesday’s “Daily Show.”`\
 https://nytimes.com/2024/04/24/arts/television/late-night-trump-gag-order.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/23/us/politics/pennsylvania-primary-takeaways.html
 **Seder Is About Family, Food, Freedom. And Now, It’s Also About the War.**\
 `At Passover Seders, many families addressed the war in Gaza. In some cases, generations clashed and tensions arose. “That’s the Jewish way,” said one host.`\
 https://nytimes.com/2024/04/23/nyregion/seder-israel-gaza-war.html
-
-**Bread Spread**\
-`Step into the house of mirrors with Jeffrey Martinovic.`\
-https://nytimes.com/2024/04/23/crosswords/daily-puzzle-2024-04-24.html
 
