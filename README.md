@@ -12,7 +12,7 @@ https://nytimes.com/2024/04/24/health/fda-urinary-tract-infection-antibiotic.htm
 
 **Meta’s Profits More Than Double, While Spending on A.I. Rises**\
 `The owner of Facebook, Instagram and WhatsApp continued to grow, even as it said it would spend billions of dollars more on artificial intelligence.`\
-https://nytimes.com/2024/04/24/technology/metas-profits-nearly-double-while-spending-on-ai-rises.html
+https://nytimes.com/2024/04/24/technology/meta-profit-stock-ai.html
 
 **College Protesters Make Divestment From Israel a Rallying Cry**\
 `The campaign is likely to have a negligible impact on the companies or Israel, but activists see divestment as a clear way to force colleges to take action on the issue.`\
