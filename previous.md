@@ -1,3 +1,11 @@
+**On TikTok, Resignation and Frustration After Potential Ban of App**\
+`While Congress says the social app is a security threat, critics of the law targeting it say it shows how out of step lawmakers are with young people.`\
+https://nytimes.com/2024/04/24/technology/tiktok-frustration-ban.html
+
+**Pro-Palestinian Encampments Surface at Campuses Nationwide**\
+`Many students have been demanding that their schools end financial ties to Israel and weapons manufacturers.`\
+https://nytimes.com/2024/04/24/us/pro-palestinian-encampments-protests.html
+
 **Dairy Cows Transported Between States Must Now Be Tested for Bird Flu**\
 `Since a new form of bird flu arrived in 2022, federal officials have sought to reassure Americans that the threat to the public remained low.`\
 https://nytimes.com/2024/04/24/health/bird-flu-dairy-cows-testing-usda.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/inside-the
 **Grandmother Becomes Second Patient to Receive Kidney From Gene-Edited Pig**\
 `NYU Langone Health surgeons performed the transplant after implanting a mechanical heart pump in the severely ill patient.`\
 https://nytimes.com/2024/04/24/health/kidney-transplant-pig.html
-
-**What’s next: A decision will probably land in late June.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/whats-next-a-decision-will-probably-land-in-late-june
-
-**Review: John Adams’s ‘El Niño’ Arrives at the Met in Lush Glory**\
-`The opera-oratorio, an alternate Nativity story, featured a flurry of Met debuts, including the director Lileana Blain-Cruz and the conductor Marin Alsop.`\
-https://nytimes.com/2024/04/24/arts/music/review-john-adams-el-nino-met-opera.html
 
