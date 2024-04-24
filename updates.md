@@ -1,3 +1,11 @@
+**U.K. Publisher Redacts Passage of Rebel Wilson’s Memoir**\
+`The Australian actress and comedian accused Sacha Baron Cohen of inappropriate behavior during filming of a 2016 movie, which he has denied.`\
+https://nytimes.com/2024/04/24/us/rebel-wilson-memoir-sacha-baron-cohen.html
+
+**Netanyahu Calls Student Protests Antisemitic and Says They Must Be Quelled**\
+`“What’s happening in America’s college campuses is horrific,” the Israeli prime minister said in a televised statement. “Antisemitic mobs have taken over leading universities.”`\
+https://nytimes.com/2024/04/24/us/netanyahu-israel-us-college-protests.html
+
 **Alfonso Chardy, Who Helped Expose Iran-Contra Scandal, Dies at 72**\
 `A Miami Herald correspondent, he powered a team that won a Pulitzer Prize for investigative reporting and helped snare three other Pulitzers for the paper.`\
 https://nytimes.com/2024/04/24/obituaries/alfonso-chardy-dead.html

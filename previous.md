@@ -1,3 +1,11 @@
+**U.K. Publisher Redacts Passage of Rebel Wilson’s Memoir**\
+`The Australian actress and comedian accused Sacha Baron Cohen of inappropriate behavior during filming of a 2016 movie, which he has denied.`\
+https://nytimes.com/2024/04/24/us/rebel-wilson-memoir-sacha-baron-cohen.html
+
+**Netanyahu Calls Student Protests Antisemitic and Says They Must Be Quelled**\
+`“What’s happening in America’s college campuses is horrific,” the Israeli prime minister said in a televised statement. “Antisemitic mobs have taken over leading universities.”`\
+https://nytimes.com/2024/04/24/us/netanyahu-israel-us-college-protests.html
+
 **Alfonso Chardy, Who Helped Expose Iran-Contra Scandal, Dies at 72**\
 `A Miami Herald correspondent, he powered a team that won a Pulitzer Prize for investigative reporting and helped snare three other Pulitzers for the paper.`\
 https://nytimes.com/2024/04/24/obituaries/alfonso-chardy-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/24/world/israel-gaza-war-hamas/white-house-says
 **Justices Seemed Split on Emergency Abortion Access**\
 `Also, U.S. weapons are headed to Ukraine. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/04/24/briefing/supreme-court-abortion-ukraine-us-aid.html
-
-**‘Don’t Inject Bleach’: Biden Mocks Trump on Anniversary of Covid Comments**\
-`President Biden has homed in on the infamous moment, which crystallized the chaos of the Trump presidency, as he trolls his political opponent.`\
-https://nytimes.com/2024/04/24/us/politics/biden-trump-covid-bleach.html
-
-**‘Everyone was ready to act.’ At Brown, students are galvanized by nationwide protests.**\
-`By Jenna Russell`\
-https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/brown-university-protests
 
