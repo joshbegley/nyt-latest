@@ -1,3 +1,7 @@
+**Campus Protests Over Gaza Intensify Amid Pushback by Universities and Police**\
+`There were nearly two dozen new arrests, mostly in Texas, as universities moved to prevent pro-Palestinian encampments from taking hold as they have at Columbia University.`\
+https://nytimes.com/2024/04/24/us/college-protests-spread-austin-dallas.html
+
 **Johnson Condemns Pro-Palestinian Protests at Columbia University**\
 `House Speaker Mike Johnson delivered brief remarks at Columbia University on Wednesday, demanding White House action and invoking the possibility of bringing in the National Guard to quell the pro-Palestinian protests. Students interrupted his speech with jeers.`\
 https://nytimes.com/video/us/politics/100000009432319/mike-johnson-columbia-university.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/opinion/chicago-dnc-antiwar-protests.html
 **U.K. Publisher Redacts Passage of Rebel Wilson’s Memoir**\
 `The Australian actress and comedian accused Sacha Baron Cohen of inappropriate behavior during filming of a 2016 movie, which he has denied.`\
 https://nytimes.com/2024/04/24/us/rebel-wilson-memoir-sacha-baron-cohen.html
-
-**Netanyahu Calls Student Protests Antisemitic and Says They Must Be Quelled**\
-`“What’s happening in America’s college campuses is horrific,” the Israeli prime minister said in a televised statement. “Antisemitic mobs have taken over leading universities.”`\
-https://nytimes.com/2024/04/24/us/netanyahu-israel-us-college-protests.html
 
