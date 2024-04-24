@@ -1,3 +1,7 @@
+**TikTok’s Pro-China Tilt**\
+`A bill that will force the app’s Chinese owners to sell will soon become law.`\
+https://nytimes.com/2024/04/24/briefing/tiktok-bill-congress.html
+
 **Horses Run Loose Through Central London in Surreal Spectacle**\
 `A number of runaway army horses galloped through London on Wednesday morning, causing alarm and injuring pedestrians. All were eventually recovered.`\
 https://nytimes.com/2024/04/24/world/europe/horses-loose-london.html

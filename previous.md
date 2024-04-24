@@ -1,3 +1,7 @@
+**TikTok’s Pro-China Tilt**\
+`A bill that will force the app’s Chinese owners to sell will soon become law.`\
+https://nytimes.com/2024/04/24/briefing/tiktok-bill-congress.html
+
 **Horses Run Loose Through Central London in Surreal Spectacle**\
 `A number of runaway army horses galloped through London on Wednesday morning, causing alarm and injuring pedestrians. All were eventually recovered.`\
 https://nytimes.com/2024/04/24/world/europe/horses-loose-london.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/us/abortion-ban-arizona.html
 **Patients Are Losing Trust in Doctors. Medicine Suffers.**\
 `Skepticism and distrust of health practitioners is on the rise. How are doctors supposed to restore patient trust?`\
 https://nytimes.com/2024/04/24/opinion/medical-skepticism-doctors-trust.html
-
-**Aid to Ukraine Is on the Way. Here’s How It Might Help.**\
-`Weapons from the aid package, considered “a lifeline” for Ukraine’s military, could be arriving on the battlefield within days.`\
-https://nytimes.com/2024/04/24/world/europe/ukraine-aid-senate.html
 
