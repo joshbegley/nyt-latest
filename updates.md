@@ -1,3 +1,15 @@
+**Homeless Georgians Could Face Hurdles to Voting Under New Legislation**\
+`A provision in an election bill would bar homeless voters from receiving mail-in ballots and election information at shelters or other temporary addresses.`\
+https://nytimes.com/2024/04/24/us/politics/georgia-voting-bill-homeless.html
+
+**Why Is This Seder Unlike All Other Seders?**\
+`The dinner parties held by Shtick, a pop-up series celebrating Jewish culture, draw out New York’s influencers, artists, designers and celebrities.`\
+https://nytimes.com/2024/04/24/style/passover-seder-shtick.html
+
+**Robert Kraft’s Fight Against Antisemitism Began Long Before Oct. 7**\
+`The New England Patriots owner said this week that he was “no longer comfortable supporting” Columbia University, his alma mater, which has been disrupted by protests.`\
+https://nytimes.com/2024/04/24/business/robert-kraft-donation-columbia-protests.html
+
 **Turner Prize Shortlist Leans In to Artists’ Identities**\
 `This year’s four nominees are Claudette Johnson, Jasleen Kaur, Pio Abad and Delaine Le Bas, whose works draw on personal history and cultural interpretations.`\
 https://nytimes.com/2024/04/24/arts/design/turner-prize-shortlist.html
