@@ -1,3 +1,19 @@
+**Steak From Dairy Cows? It Could Be a Lifeline for American Farmers.**\
+`Letting milk cows graze longer can produce superior beef — a largely  European practice that is now gaining ground in America.`\
+https://nytimes.com/2024/04/24/dining/beef-dairy-cows.html
+
+**Inside the week that shook Columbia’s campus and reverberated across the nation.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/inside-the-week-that-shook-columbias-campus-and-reverberated-across-the-nation
+
+**Grandmother Becomes Second Patient to Receive Kidney From Gene-Edited Pig**\
+`NYU Langone Health surgeons performed the transplant after implanting a mechanical heart pump in the severely ill patient.`\
+https://nytimes.com/2024/04/24/health/kidney-transplant-pig.html
+
+**What’s next: A decision will probably land in late June.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/24/us/abortion-supreme-court-idaho/whats-next-a-decision-will-probably-land-in-late-june
+
 **Review: John Adams’s ‘El Niño’ Arrives at the Met in Lush Glory**\
 `The opera-oratorio, an alternate Nativity story, featured a flurry of Met debuts, including the director Lileana Blain-Cruz and the conductor Marin Alsop.`\
 https://nytimes.com/2024/04/24/arts/music/review-john-adams-el-nino-met-opera.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/24/us/trump-immunity-president-supreme-court.html
 **In Immunity Case, Trump Can Lose in Ways That Amount to a Win**\
 `After the justices hear arguments on Thursday, how they decide may be just as important as what they decide.`\
 https://nytimes.com/2024/04/24/us/trump-immunity-case-supreme-court.html
-
-**Here are the latest developments.**\
-`By Alan Blinder, Stephanie Saul and Lola Fadulu`\
-https://nytimes.com/live/2024/04/24/us/columbia-protests-mike-johnson/here-are-the-latest-developments
-
-**Biden Says Aid Bill for Ukraine and Israel Will ‘Make the World Safer’**\
-`President Biden signed an aid package for Ukraine, Israel and Taiwan after it received bipartisan support in Congress.`\
-https://nytimes.com/video/us/politics/100000009431377/biden-ukraine-israel-gaza.html
-
-**Solar Companies Seek New U.S. Tariffs on Asian Imports**\
-`Firms warn that China uses its neighbors to skirt existing levies, depressing prices and threatening U.S. investments.`\
-https://nytimes.com/2024/04/24/business/solar-us-tariffs-asian-imports.html
-
-**Helen Vendler, ‘Colossus’ of Poetry Criticism, Dies at 90**\
-`In the poetry marketplace, her praise had reputation-making power, while her disapproval could be withering.`\
-https://nytimes.com/2024/04/24/books/helen-vendler-dead.html
 
