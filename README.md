@@ -1,3 +1,7 @@
+**Mass Whale Stranding in Western Australia**\
+`Four pods of 160 pilot whales were stranded across a wide swath of beach at the Toby Inlet near the town of Dunsborough in Western Australia, wildlife officials said.`\
+https://nytimes.com/video/world/asia/100000009433656/whale-stranded-australia.html
+
 **José Andrés, founder of the World Central Kitchen, eulogizes 7 aid workers killed in Gaza.**\
 `By Kim Severson`\
 https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/jose-andres-founder-of-the-world-central-kitchen-eulogizes-7-aid-workers-killed-in-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/supreme-cour
 **Welcome to Venice. That’ll Be 5 Euros, Please.**\
 `Venice’s first day implementing a fee to enter the historic center went mostly smoothly, but there were some protests and polemics, as well.`\
 https://nytimes.com/2024/04/25/world/europe/venice-entry-fee-protests.html
-
-**Trump Trial Witness Says President-Elect Praised Him for Keeping Secrets**\
-`The publisher of the The National Enquirer said he was called upstairs at Trump Tower to a postelection meeting where Donald J. Trump introduced him to future White House figures.`\
-https://nytimes.com/2024/04/25/nyregion/david-pecker-trump-tower-meeting.html
 
