@@ -1,3 +1,7 @@
+**If Arizona Repeals its Abortion Ban, the Far Right Won’t Blame Trump**\
+`He’s the only one allowed to be wobbly on abortion.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/if-arizona-repeals-its-abortion-ban-the-far-right-wont-blame-trump
+
 **Review: Steve Carell as the 50-Year-Old Loser in a Comic ‘Uncle Vanya’**\
 `Sleek, lucid, amusing, often beautiful, it’s Chekhov with everything, except the main thing.`\
 https://nytimes.com/2024/04/24/theater/uncle-vanya-review-steve-carell.html
