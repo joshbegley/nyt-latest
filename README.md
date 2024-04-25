@@ -1,3 +1,15 @@
+**Greenpoint, Brooklyn, Is the Place to Go for Inventive Pastries and Fresh Bread**\
+`Plus: a vase designed by Alice Waters, sculptures made from recycled CDs and more recommendations from T Magazine.`\
+https://nytimes.com/2024/04/25/t-magazine/bakeries-greenpoint-brooklyn.html
+
+**What Will Happen to West Cliff Drive in Santa Cruz?**\
+`Mayor Fred Keely likened trying to shore up the erosion-threatened West Cliff Drive to changing a tire while the car is still moving.`\
+https://nytimes.com/2024/04/25/us/west-cliff-drive-santa-cruz.html
+
+**TikTok Broke the Tech Law Logjam. Can That Success Be Repeated?**\
+`For years, federal lawmakers have tried to pass legislation to rein in the tech giants. The TikTok law was their first success.`\
+https://nytimes.com/2024/04/25/technology/tiktok-ban-bill-tech-law.html
+
 **U.S. Economy Grew at 1.6% Rate in First Quarter Slowdown**\
 `Consumers ensured that growth continued, but the latest data showed signs of vulnerability elsewhere.`\
 https://nytimes.com/2024/04/25/business/us-economy-gdp-growth.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/25/movies/infested-review.html
 **Chaos and Oppression**\
 `The central question for universities responding to protests is whether to prioritize the preservation of order or the desire of students to denounce oppression.`\
 https://nytimes.com/2024/04/25/briefing/college-protests.html
-
-**Moulin Rouge’s Windmill Blades Fall Off in Paris**\
-`Firefighters were called overnight after the blades crashed to the ground. Nobody was hurt, and the famed cabaret venue will stay open.`\
-https://nytimes.com/2024/04/25/world/europe/moulin-rouge-windmill-paris.html
-
-**The Crackdown on Student Protesters**\
-`Columbia University is at the center of a growing showdown over the war in Gaza and the limits of free speech.`\
-https://nytimes.com/2024/04/25/podcasts/the-daily/the-crackdown-on-student-protesters.html
-
-**A U.N. aid chief says ‘every day counts’ in efforts to relieve the suffering in Gaza.**\
-`By Matt Surman`\
-https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/a-un-aid-chief-says-every-day-counts-in-efforts-to-relieve-the-suffering-in-gaza
 
