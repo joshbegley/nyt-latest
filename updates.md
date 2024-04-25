@@ -1,3 +1,7 @@
+**Peter Schey, Tenacious Lawyer Who Defended Migrant Rights, Dies at 77**\
+`He won the right to services like school and health care for people illegally crossing the border into the U.S. He also fought the Trump administration’s family separation policy.`\
+https://nytimes.com/2024/04/25/us/politics/peter-schey-dead.html
+
 **5 Takeaways From David Pecker’s Testimony in Trump’s Criminal Trial**\
 `David Pecker told jurors of a universe in which favors for celebrities were demanded and dispensed. His cross-examination will continue Friday.`\
 https://nytimes.com/2024/04/25/nyregion/pecker-mdcougal-daniels-testimony-takeaways.html
