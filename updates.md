@@ -1,3 +1,15 @@
+**Army Begins Building Floating Aid Pier Off Gaza’s Coast, Pentagon Says**\
+`The structure is meant to allow humanitarian assistance to enter Gaza via the Mediterranean Sea, bypassing Israeli restrictions on land convoys.`\
+https://nytimes.com/2024/04/25/us/politics/gaza-aid-pier.html
+
+**Four, Including a Pregnant Teen, Die in Fiery Crash During Police Chase**\
+`The state police in Pennsylvania were pursuing the car in connection with thefts in the area.`\
+https://nytimes.com/2024/04/25/us/crash-pennsylvania-pregnant-teen.html
+
+**Justices Seemed Ready to Limit Election Case Against Trump**\
+`Also, Harvey Weinstein’s New York conviction was overturned.`\
+https://nytimes.com/2024/04/25/briefing/supreme-court-trump-immunity-weinstein-new-york.html
+
 **Penny Simkin, ‘Mother of the Doula Movement,’ Dies at 85**\
 `As a childbirth educator and maternal advocate, she promoted a profession that provides comfort to women giving birth and offers postpartum care as well.`\
 https://nytimes.com/2024/04/25/health/penny-simkin-dead.html

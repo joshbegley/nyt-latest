@@ -1,3 +1,15 @@
+**Army Begins Building Floating Aid Pier Off Gaza’s Coast, Pentagon Says**\
+`The structure is meant to allow humanitarian assistance to enter Gaza via the Mediterranean Sea, bypassing Israeli restrictions on land convoys.`\
+https://nytimes.com/2024/04/25/us/politics/gaza-aid-pier.html
+
+**Four, Including a Pregnant Teen, Die in Fiery Crash During Police Chase**\
+`The state police in Pennsylvania were pursuing the car in connection with thefts in the area.`\
+https://nytimes.com/2024/04/25/us/crash-pennsylvania-pregnant-teen.html
+
+**Justices Seemed Ready to Limit Election Case Against Trump**\
+`Also, Harvey Weinstein’s New York conviction was overturned.`\
+https://nytimes.com/2024/04/25/briefing/supreme-court-trump-immunity-weinstein-new-york.html
+
 **Penny Simkin, ‘Mother of the Doula Movement,’ Dies at 85**\
 `As a childbirth educator and maternal advocate, she promoted a profession that provides comfort to women giving birth and offers postpartum care as well.`\
 https://nytimes.com/2024/04/25/health/penny-simkin-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/25/nyregion/weinstein-conviction-overturned-takeaway
 **What to Watch This Weekend: An Experiment from Comedy Weirdos**\
 `Perhaps you would enjoy “Knuckles,” a Sonic the Hedgehog spinoff that outpaces its origin story.`\
 https://nytimes.com/2024/04/25/arts/television/knuckles.html
-
-**Friday Briefing: Supreme Court Hears Trump Immunity Case**\
-`Also, more bodies were found in a Gazan mass grave.`\
-https://nytimes.com/2024/04/25/world/asia/trump-immunity-gaza-grave-asia.html
-
-**Alphabet’s Revenue Jumps 15% to $80.5 Billion**\
-`Google’s parent company topped revenue and profit estimates and said that it would offer a stock dividend for the first time.`\
-https://nytimes.com/2024/04/25/technology/alphabet-earnings.html
-
-**U.S.C. Cancels Its Main Graduation Ceremony, Citing Security Concerns**\
-`There have been student protests and arrests, as well as controversy over the school’s decision to cancel the speech of its valedictorian.`\
-https://nytimes.com/2024/04/25/us/usc-cancels-graduation-campus-protests.html
 
