@@ -1,3 +1,7 @@
+**What to Watch This Weekend: An Experiment from Comedy Weirdos**\
+`Perhaps you would enjoy “Knuckles,” a Sonic the Hedgehog spinoff that outpaces its origin story.`\
+https://nytimes.com/2024/04/25/arts/television/knuckles.html
+
 **Friday Briefing: Supreme Court Hears Trump Immunity Case**\
 `Also, more bodies were found in a Gazan mass grave.`\
 https://nytimes.com/2024/04/25/world/asia/trump-immunity-gaza-grave-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/world/middleeast/hezbollah-commanders-south-leban
 **Three Gluten-Free Friendly Restaurants**\
 `Go for Japanese at Nami Nori, Mexican at Claro and Indian American fast casual at Inday.`\
 https://nytimes.com/2024/04/25/dining/three-gluten-free-friendly-restaurants.html
-
-**Mass Whale Stranding in Western Australia**\
-`Four pods of 160 pilot whales were stranded across a wide swath of beach at the Toby Inlet near the town of Dunsborough in Western Australia, wildlife officials said.`\
-https://nytimes.com/video/world/asia/100000009433656/whale-stranded-australia.html
 
