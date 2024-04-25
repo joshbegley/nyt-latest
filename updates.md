@@ -1,3 +1,11 @@
+**Weinstein’s Conviction Is Overturned: 5 Takeaways**\
+`The Court of Appeals overturned Harvey Weinstein’s 2020 conviction on sex crimes charges in New York, but he is not a free man. Here’s what to know.`\
+https://nytimes.com/2024/04/25/nyregion/weinstein-conviction-overturned-takeaways.html
+
+**In Trump Tower, the President-Elect Praised the Man Who Kept His Secrets**\
+`David Pecker, former publisher of The National Enquirer, said he found himself at a meeting of the future administration. He testified that Donald J. Trump thanked him for burying stories.`\
+https://nytimes.com/2024/04/25/nyregion/trump-david-pecker-hush-money-trial.html
+
 **What to Watch This Weekend: An Experiment from Comedy Weirdos**\
 `Perhaps you would enjoy “Knuckles,” a Sonic the Hedgehog spinoff that outpaces its origin story.`\
 https://nytimes.com/2024/04/25/arts/television/knuckles.html
