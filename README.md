@@ -35,6 +35,6 @@ https://nytimes.com/live/2024/04/24/opinion/thepoint/weinstein-overturned-charge
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/supreme-court-trump-immunity-takeaways
 
 **Welcome to Venice. That’ll Be 5 Euros, Please.**\
-`Venice’s first day implementing a fee to enter the historic center went mostly smoothly, but there were some protests and polemics, as well.`\
+`Venice’s first day of charging a fee to enter the historic center went mostly smoothly, but there were some protests and polemics.`\
 https://nytimes.com/2024/04/25/world/europe/venice-entry-fee-protests.html
 
