@@ -1,3 +1,7 @@
+**WADA Appoints Special Prosecutor in Chinese Doping Case**\
+`The decision to review the handling of positive tests collected from 23 swimmers came after an outcry from athletes and antidoping regulators.`\
+https://nytimes.com/2024/04/25/world/asia/wada-china-special-prosecutor-swimming.html
+
 **Stormy Daniels’s Attempt to Sell Her Story Began the Road to Trial**\
 `After a tape emerged of Donald J. Trump discussing how he groped women, she quickly struck a deal.`\
 https://nytimes.com/2024/04/25/nyregion/stormy-daniels-trump-trial.html
