@@ -1,3 +1,11 @@
+**‘Infested’ Review: Bugging Out**\
+`An apartment building in Paris is overrun by murderous arachnids and unsubtle allegory in this fleet and efficient debut feature.`\
+https://nytimes.com/2024/04/25/movies/infested-review.html
+
+**Chaos and Oppression**\
+`The central question for universities responding to protests is whether to prioritize the preservation of order or the desire of students to denounce oppression.`\
+https://nytimes.com/2024/04/25/briefing/college-protests.html
+
 **All four lower court judges who weighed Trump’s immunity argument rejected it.**\
 `By Charlie Savage`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/all-four-lower-court-judges-who-weighed-trumps-immunity-argument-rejected-it
