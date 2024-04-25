@@ -1,3 +1,11 @@
+**Disney Scrapped Their Show. An Unlikely Champion Saved It.**\
+`Canceled by Disney before it even aired, “The Spiderwick Chronicles” found a new home at Roku and has so far “delivered results beyond expectations,” its creator said.`\
+https://nytimes.com/2024/04/25/arts/television/the-spiderwick-chronicles-roku.html
+
+**All In on Aloo Chicken**\
+`This shortcut version of a traditional Punjabi chicken and potato stew uses boneless chicken pieces and cashew butter for a brilliant dinner.`\
+https://nytimes.com/2024/04/25/dining/all-in-on-aloo-chicken.html
+
 **Biden and 17 other world leaders turn up heat on Hamas to free hostages.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/biden-and-17-other-world-leaders-turn-up-heat-on-hamas-to-free-hostages

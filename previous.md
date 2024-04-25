@@ -1,3 +1,11 @@
+**Disney Scrapped Their Show. An Unlikely Champion Saved It.**\
+`Canceled by Disney before it even aired, “The Spiderwick Chronicles” found a new home at Roku and has so far “delivered results beyond expectations,” its creator said.`\
+https://nytimes.com/2024/04/25/arts/television/the-spiderwick-chronicles-roku.html
+
+**All In on Aloo Chicken**\
+`This shortcut version of a traditional Punjabi chicken and potato stew uses boneless chicken pieces and cashew butter for a brilliant dinner.`\
+https://nytimes.com/2024/04/25/dining/all-in-on-aloo-chicken.html
+
 **Biden and 17 other world leaders turn up heat on Hamas to free hostages.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/biden-and-17-other-world-leaders-turn-up-heat-on-hamas-to-free-hostages
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/the-justice-
 **Court in Iran Sentences Prominent Rapper to Death, His Lawyer Says**\
 `The rapper, Toomaj Salehi, was initially arrested after releasing music in support of the 2022 protests over the death of a young woman in police custody.`\
 https://nytimes.com/2024/04/25/world/middleeast/iran-rapper-toomaj-salehi-death-sentence.html
-
-**A Not-So-Great Economic Report**\
-`Growth could be better, but we’re still on track for a soft landing.`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/krugman-growth-inflation-report
-
-**Southwest Quits Four Airports in Cost-Cutting Drive**\
-`The airline expects fewer deliveries of Boeing planes than before, and cited “significant challenges” in achieving growth plans because of it.`\
-https://nytimes.com/2024/04/25/business/southwest-airlines-boeing-airports.html
 
