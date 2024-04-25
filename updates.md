@@ -1,3 +1,11 @@
+**Southwest Quits Four Airports in Cost-Cutting Drive**\
+`The airline expects fewer deliveries of Boeing planes than before, and cited “significant challenges” in achieving growth plans because of it.`\
+https://nytimes.com/2024/04/25/business/southwest-airlines-boeing-airports.html
+
+**Is there such a thing as executive immunity?**\
+`By Alan Feuer and Charlie Savage`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/is-there-such-a-thing-as-executive-immunity
+
 **A Timeline of Weinstein’s New York Case**\
 `New York’s highest court tossed out the 2020 sex crime convictions of Harvey Weinstein in a reversal of a case that ignited the #MeToo movement.`\
 https://nytimes.com/2024/04/25/nyregion/weinstein-new-york-case-timeline-metoo.html
