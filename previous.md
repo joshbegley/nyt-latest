@@ -1,3 +1,7 @@
+**‘That’s the Spot!’**\
+`Hanh Huynh carves out a place for himself.`\
+https://nytimes.com/2024/04/24/crosswords/daily-puzzle-2024-04-25.html
+
 **Read the Arizona Election Indictment**\
 `Arizona on Wednesday indicted Rudolph W. Giuliani, Mark Meadows and a number of others who advised Donald J. Trump during the 2020 election, as well as the fake electors who acted on Mr. Trump’s behalf to try to keep him in power despite his loss in the state. Here is the indictment.`\
 https://nytimes.com/interactive/2024/04/25/us/8060c776-7afa-4400-ba06-ecf8b7cd1549.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/business/mckinsey-criminal-investigation.html
 **Flooding Inundates Kenya, Killing at Least 32 and Displacing Thousands**\
 `The rain also killed farm animals and destroyed thousands of acres of crops.`\
 https://nytimes.com/2024/04/24/world/africa/kenya-flooding-nairobi-photos.html
-
-**After $15 Billion in Military Aid, Israel Calls Alliance With U.S. ‘Ironclad’**\
-`The money from Washington, which includes $5 billion to replenish Israel’s defenses and $1 billion for Gazan civilians, comes as Israel readies to invade Rafah.`\
-https://nytimes.com/2024/04/24/world/middleeast/israel-us-aid.html
 
