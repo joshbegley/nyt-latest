@@ -1,3 +1,15 @@
+**Greenpoint, Brooklyn, Is the Place to Go for Inventive Pastries and Fresh Bread**\
+`Plus: a vase designed by Alice Waters, sculptures made from recycled CDs and more recommendations from T Magazine.`\
+https://nytimes.com/2024/04/25/t-magazine/bakeries-greenpoint-brooklyn.html
+
+**What Will Happen to West Cliff Drive in Santa Cruz?**\
+`Mayor Fred Keely likened trying to shore up the erosion-threatened West Cliff Drive to changing a tire while the car is still moving.`\
+https://nytimes.com/2024/04/25/us/west-cliff-drive-santa-cruz.html
+
+**TikTok Broke the Tech Law Logjam. Can That Success Be Repeated?**\
+`For years, federal lawmakers have tried to pass legislation to rein in the tech giants. The TikTok law was their first success.`\
+https://nytimes.com/2024/04/25/technology/tiktok-ban-bill-tech-law.html
+
 **U.S. Economy Grew at 1.6% Rate in First Quarter Slowdown**\
 `Consumers ensured that growth continued, but the latest data showed signs of vulnerability elsewhere.`\
 https://nytimes.com/2024/04/25/business/us-economy-gdp-growth.html

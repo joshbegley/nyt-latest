@@ -1,3 +1,11 @@
+**All four lower court judges who weighed Trump’s immunity argument rejected it.**\
+`By Charlie Savage`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/all-four-lower-court-judges-who-weighed-trumps-immunity-argument-rejected-it
+
+**Harvey Weinstein’s Conviction Is Overturned by New York’s Top Court**\
+`In a stunning 4-3 decision, the state’s highest court overturned the conviction of the disgraced movie producer, who in 2020 was found guilty of two felony sex crimes.`\
+https://nytimes.com/2024/04/25/nyregion/harvey-weinstein-conviction-appeal.html
+
 **Greenpoint, Brooklyn, Is the Place to Go for Inventive Pastries and Fresh Bread**\
 `Plus: a vase designed by Alice Waters, sculptures made from recycled CDs and more recommendations from T Magazine.`\
 https://nytimes.com/2024/04/25/t-magazine/bakeries-greenpoint-brooklyn.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/25/business/dealbook/meta-artificial-intelligence-sp
 **‘Nowhere Special’ Review: Old Bonds, New Family**\
 `This understated tear-jerker sees a dying single father making future family plans for his toddler son.`\
 https://nytimes.com/2024/04/25/movies/nowhere-special-review.html
-
-**‘Infested’ Review: Bugging Out**\
-`An apartment building in Paris is overrun by murderous arachnids and unsubtle allegory in this fleet and efficient debut feature.`\
-https://nytimes.com/2024/04/25/movies/infested-review.html
-
-**Chaos and Oppression**\
-`The central question for universities responding to protests is whether to prioritize the preservation of order or the desire of students to denounce oppression.`\
-https://nytimes.com/2024/04/25/briefing/college-protests.html
 
