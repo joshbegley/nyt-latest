@@ -1,3 +1,7 @@
+**Far-Right Greek Party Is Banned From E.U. Parliament Elections**\
+`The Supreme Court in Greece found that Spartans had “offered their party as a cloak” for the former spokesman of the banned neo-Nazi party Golden Dawn`\
+https://nytimes.com/2024/04/25/world/europe/greece-far-right-european-parliament.html
+
 **Gaza Authorities Say More Bodies Discovered in Mass Grave**\
 `An analysis of satellite imagery and videos by the The Times found that two of three graves had been dug on a hospital’s grounds before an Israeli raid.`\
 https://nytimes.com/2024/04/25/world/middleeast/gaza-mass-grave-nasser-hospital.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/climate/plastics-pollution-regulation-treaty.html
 **José Andrés Eulogizes 7 Aid Workers Killed in Gaza**\
 `The chef voiced “regret, sorrow and anger” at a Washington memorial for the workers slain while delivering food for his World Central Kitchen.`\
 https://nytimes.com/2024/04/25/dining/jose-andres-wck-workers-gaza.html
-
-**Agent Removed From Harris’s Detail After ‘Distressing’ Behavior**\
-`The Secret Service agent was removed during an incident on Monday morning shortly before Vice President Kamala Harris left for a campaign event in Wisconsin.`\
-https://nytimes.com/2024/04/25/us/politics/kamala-harris-secret-service.html
 
