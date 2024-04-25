@@ -1,3 +1,7 @@
+**Review: Steve Carell as the 50-Year-Old Loser in a Comic ‘Uncle Vanya’**\
+`Sleek, lucid, amusing, often beautiful, it’s Chekhov with everything, except the main thing.`\
+https://nytimes.com/2024/04/24/theater/uncle-vanya-review-steve-carell.html
+
 **Arizona Charges Giuliani and Other Trump Allies in Election Interference Case**\
 `Those charged included Boris Epshteyn, a top legal strategist for Donald Trump, and fake electors who acted on Mr. Trump’s behalf in Arizona after the 2020 election.`\
 https://nytimes.com/2024/04/24/us/arizona-fake-electors-trump.html

@@ -1,3 +1,7 @@
+**Review: Steve Carell as the 50-Year-Old Loser in a Comic ‘Uncle Vanya’**\
+`Sleek, lucid, amusing, often beautiful, it’s Chekhov with everything, except the main thing.`\
+https://nytimes.com/2024/04/24/theater/uncle-vanya-review-steve-carell.html
+
 **Undercover Sex Sting Leads to Charges Against School Crossing Guard**\
 `Jared Jeridore, who worked near a Queens school, was arrested after complaints about him led the police to have an officer pose as a teenage girl, officials said.`\
 https://nytimes.com/2024/04/24/nyregion/jeridore-katz-school-crossing-guard-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/nyregion/gaza-campus-protests-columbia-university
 **The Next Winner of the World Chess Championship Could Be the Youngest Ever**\
 `Dommaraju Gukesh, a 17-year-old grandmaster from India, is the youngest player ever to win the Candidates Tournament.`\
 https://nytimes.com/2024/04/24/crosswords/chess/gukesh-candidates-winner.html
-
-**Getty Museum Agrees to Return Ancient Bronze Head to Turkey**\
-`The museum did not detail its exact reasoning but said it had received information from New York investigators who consider the artifact to have been looted.`\
-https://nytimes.com/2024/04/24/arts/getty-museum-agrees-to-return-ancient-bronze-head-to-turkey.html
 
