@@ -1,3 +1,11 @@
+**U.S. Economy Grew at 1.6% Rate in First Quarter**\
+`Consumers ensured that growth continued, but the latest data showed signs of vulnerability elsewhere.`\
+https://nytimes.com/2024/04/25/business/us-economy-gdp-growth.html
+
+**25trump-trial**\
+`Live Updates: Tabloid Publisher to Resume Testimony in Trump Trial`\
+https://nytimes.com/live/2024/04/25/nyregion/trump-hush-money-trial-news
+
 **‘Challengers’: Normcore Clothes on Sweaty Bodies**\
 `Zendaya breaks hearts in a stylish tennis love triangle.`\
 https://nytimes.com/2024/04/25/style/challengers-fashion-zendaya-anderson-guadagnino.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/25/podcasts/the-daily/the-crackdown-on-student-prote
 **A U.N. aid chief says ‘every day counts’ in efforts to relieve the suffering in Gaza.**\
 `By Matt Surman`\
 https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/a-un-aid-chief-says-every-day-counts-in-efforts-to-relieve-the-suffering-in-gaza
-
-**These Playing Cards Have an Extra Motive. Flushing Out Suspects.**\
-`The 2,500 decks being issued to correctional facilities in southern Mississippi seek clues on missing persons and unsolved murders. Cold case cards sometimes bring useful tips to dormant investigations.`\
-https://nytimes.com/2024/04/25/us/project-cold-case-cards.html
-
-**Five Things to Know About Biden’s New Power Plant Rules**\
-`The Biden administration released a major climate regulation aimed at virtually eliminating carbon emissions from coal, the dirtiest of the fossil fuels and a driver of global warming.`\
-https://nytimes.com/2024/04/25/climate/joe-biden-climate-global-warming.html
 
