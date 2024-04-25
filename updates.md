@@ -1,3 +1,15 @@
+**The fight over the future of plastics**\
+`As countries negotiate a landmark agreement to reduce plastic pollution, the industry is fighting a battle over regulations and over its image.`\
+https://nytimes.com/2024/04/25/climate/plastics-pollution-regulation-treaty.html
+
+**José Andrés Eulogizes 7 Aid Workers Killed in Gaza**\
+`The chef voiced “regret, sorrow and anger” at a Washington memorial for the workers slain while delivering food for his World Central Kitchen.`\
+https://nytimes.com/2024/04/25/dining/jose-andres-wck-workers-gaza.html
+
+**Agent Removed From Harris’s Detail After ‘Distressing’ Behavior**\
+`The Secret Service agent was removed during an incident on Monday morning shortly before Vice President Kamala Harris left for a campaign event in Wisconsin.`\
+https://nytimes.com/2024/04/25/us/politics/kamala-harris-secret-service.html
+
 **Harvey Weinstein and the Limits of ‘He Said, She Said’**\
 `She said, she said, she said, she said can be ruled inadmissible.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/weinstein-overturned-charges
