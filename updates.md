@@ -1,3 +1,7 @@
+**In their dissents, three judges offer sharp critiques of the majority’s decision.**\
+`By Maria Cramer`\
+https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/in-their-dissents-three-judges-express-fury-at-the-majoritys-decision
+
 **Ukraine Could Use New Weapons to Hit Russian Targets in Crimea, Pentagon Says**\
 `The goal for a recent delivery of the coveted long-range missile system is to put more pressure on Russian forces in eastern parts of occupied Ukraine.`\
 https://nytimes.com/2024/04/25/us/politics/ukraine-aid-atacms.html
