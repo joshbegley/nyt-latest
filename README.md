@@ -1,3 +1,7 @@
+**The Crackdown on Student Protesters**\
+`Columbia University is at the center of a growing showdown over the war in Gaza and the limits of free speech.`\
+https://nytimes.com/2024/04/25/podcasts/the-daily/the-crackdown-on-student-protesters.html
+
 **A U.N. aid chief says ‘every day counts’ in efforts to relieve the suffering in Gaza.**\
 `By Matt Surman`\
 https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/a-un-aid-chief-says-every-day-counts-in-efforts-to-relieve-the-suffering-in-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/arts/design/expat-artists-paris-grey-museum.html
 **Homes for Sale in New York and Connecticut**\
 `This week’s properties are a five-bedroom in New Canaan, Conn., and a four-bedroom in Chappaqua, N.Y.`\
 https://nytimes.com/2024/04/25/realestate/housing-market-near-nyc.html
-
-**Tennessee Parents Question Whether Arming Teachers Is the Answer**\
-`Supporters of new legislation to allow some teachers to carry firearms say it will make the state’s schools safer. Many parents and educators are not convinced.`\
-https://nytimes.com/2024/04/25/us/tennessee-bill-teachers-guns.html
 
