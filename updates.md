@@ -1,3 +1,7 @@
+**100 Pilot Whales Are Rescued After Mass Stranding in Australia**\
+`Of the 160 whales stranded near the town of Dunsborough on Thursday morning, more than 100 were returned to the ocean. Twenty-nine others, however, died on the beach.`\
+https://nytimes.com/2024/04/25/world/australia/pilot-whales-stranded-australia.html
+
 **Teenagers on the Greatest Gifts Their Parents Have Given Them**\
 `We invited students to tell us about the most meaningful values and life lessons they have learned from the adults in their lives.`\
 https://nytimes.com/2024/04/25/learning/teenagers-on-the-greatest-gifts-their-parents-have-given-them.html
