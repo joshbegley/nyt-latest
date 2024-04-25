@@ -1,3 +1,11 @@
+**Protest Materializes as Trump Has Cases Heard in Two Courts**\
+`Marchers closed down a street calling for the former president to face justice.`\
+https://nytimes.com/2024/04/25/nyregion/trump-trial-protest.html
+
+**Read the Harvey Weinstein Appeal Ruling**\
+`The New York Court of Appeals found Thursday that the trial judge who presided over Harvey Weinstein’s case had made a crucial mistake, allowing prosecutors to call as witnesses a series of women who said Mr.`\
+https://nytimes.com/interactive/2024/04/25/nyregion/read-harvey-weinstein-appeal-ruling.html
+
 **Biden heads to Syracuse as Trump’s trial continues in Manhattan.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/25/us/biden-trump-election/biden-heads-to-syracuse-as-trumps-trial-continues-in-manhattan
