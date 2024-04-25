@@ -1,3 +1,7 @@
+**How to Claim Your Part of a $5.6 Million Ring Settlement**\
+`The Federal Trade Commission is sending payments to customers who had certain Ring home security cameras and accounts during a particular time period, the agency said.`\
+https://nytimes.com/2024/04/25/technology/ring-settlement-claim.html
+
 **Why Are We Gambling With America’s Future?**\
 `Don’t bet the house on a rosy future.`\
 https://nytimes.com/2024/04/25/opinion/us-federal-debt.html
