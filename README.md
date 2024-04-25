@@ -1,3 +1,7 @@
+**‘Challengers’ Review: A Love Match**\
+`Zendaya, Josh O’Connor and Mike Faist play friends, lovers and foes on and off the tennis court in Luca Guadagnino’s latest.`\
+https://nytimes.com/2024/04/25/movies/challengers-review-zendaya-mike-faist-josh-oconnor.html
+
 **Now We’re (Barely) Cooking**\
 `Capital-E easy vegetarian dinners: miso-mascarpone pasta, sheet-pan japchae and everyday dal.`\
 https://nytimes.com/2024/04/25/dining/now-were-barely-cooking.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/the-supreme-
 **For the Sake of Democracy, Celebrate Mike Johnson**\
 `In this one instance, at least, he stood on principle.`\
 https://nytimes.com/2024/04/25/opinion/mike-johnson-ukraine-aid.html
-
-**F.C.C. Votes to Restore Net Neutrality Rules**\
-`Commissioners voted along party lines to revive the rules that declare broadband as a utility-like service that could be regulated like phones and water.`\
-https://nytimes.com/2024/04/25/technology/fcc-net-neutrality-open-internet.html
 
