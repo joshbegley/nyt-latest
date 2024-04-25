@@ -30,8 +30,8 @@ https://nytimes.com/2024/04/25/nyregion/national-enquirer-pecker-trump.html
 `He appears willing to allow Trump and future presidents to escape criminal prosecution for their acts.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/alito-trump-presidential-immunity
 
-**29 Pilot Whales Die After Mass Stranding on Australian Beach**\
-`Of the 160 whales stranded near the town of Dunsborough on Thursday morning, more than 100 were saved and returned to the ocean.`\
+**100 Pilot Whales Are Rescued After Mass Stranding in Australia**\
+`Of the 160 whales stranded near the town of Dunsborough on Thursday morning, more than 100 were returned to the ocean. Twenty-nine others, however, died on the beach.`\
 https://nytimes.com/2024/04/25/world/australia/pilot-whales-stranded-australia.html
 
 **A spectacle outside the Supreme Court for Trump’s defenders and detractors.**\
