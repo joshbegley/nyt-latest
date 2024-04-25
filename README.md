@@ -1,3 +1,7 @@
+**Wall Street’s Patience for a Costly A.I. Arms Race Is Waning**\
+`A sell-off in Meta’s stock after the company disclosed huge investments in the technology may be a sign of investor fears about tech giants’ spending.`\
+https://nytimes.com/2024/04/25/business/dealbook/meta-artificial-intelligence-spending.html
+
 **‘Nowhere Special’ Review: Old Bonds, New Family**\
 `This understated tear-jerker sees a dying single father making future family plans for his toddler son.`\
 https://nytimes.com/2024/04/25/movies/nowhere-special-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/climate/joe-biden-climate-global-warming.html
 **Juggling Campaign and Foreign Policy, Biden Sends Complicated Messages**\
 `The president signed a bill that could ban TikTok even as his re-election team uses it to reach young voters. It was hardly the first internal disparity on matters around the globe.`\
 https://nytimes.com/2024/04/25/us/politics/biden-campaign-foreign-policy.html
-
-**Biden, Seeking to Build on Fruitful Week, Will Announce Billions in Chip Grants**\
-`The $6.1 billion for Micron, to shore up the domestic supply of semiconductors, comes after a key union endorsement and passage of an aid bill central to the president’s foreign policy agenda.`\
-https://nytimes.com/2024/04/25/us/politics/biden-micron-chip-grants.html
 
