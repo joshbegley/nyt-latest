@@ -1,40 +1,40 @@
-**Mining Giant BHP Makes $39 Billion Bid for Rival Anglo American**\
-`The deal would create one of the largest copper miners at a time when demand is soaring for the metal used for many green technologies.`\
-https://nytimes.com/2024/04/25/business/bhp-anglo-american-takeover-copper.html
+**Five Things to Know About Biden’s New Power Plant Rules**\
+`The Biden administration released a major climate regulation aimed at virtually eliminating carbon emissions from coal, the dirtiest of the fossil fuels and a driver of global warming.`\
+https://nytimes.com/2024/04/25/climate/joe-biden-climate-global-warming.html
 
-**Trump Case Testimony Expected to Turn to Hush-Money Deal With Porn Star**\
-`David Pecker, the former publisher of The National Enquirer, will be back on the stand and is likely to discuss the publication’s contact with Stormy Daniels.`\
-https://nytimes.com/2024/04/25/nyregion/david-pecker-trump-trial-testimony.html
+**Juggling Campaign and Foreign Policy, Biden Sends Complicated Messages**\
+`The president signed a bill that could ban TikTok even as his re-election team uses it to reach young voters. It was hardly the first internal disparity on matters around the globe.`\
+https://nytimes.com/2024/04/25/us/politics/biden-campaign-foreign-policy.html
 
-**Help**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2024/04/25/learning/help.html
+**Biden, Seeking to Build on Fruitful Week, Will Announce Billions in Chip Grants**\
+`The $6.1 billion for Micron, to shore up the domestic supply of semiconductors, comes after a key union endorsement and passage of an aid bill central to the president’s foreign policy agenda.`\
+https://nytimes.com/2024/04/25/us/politics/biden-micron-chip-grants.html
 
-**The Links Between Trump and 3 Hush-Money Deals**\
-`Here’s how key figures involved in making hush-money payoffs on behalf of Donald J. Trump are connected.`\
-https://nytimes.com/interactive/2024/04/25/nyregion/trump-trial-hush-money-payments.html
+**Outside Atlanta, a Mother-Daughter Duo Wanted a House to Share (With Enough Room for Some Privacy)**\
+`Having poured thousands into an older house with maintenance issues, a single mother aimed her $450,000 budget at something newer and nicer for herself and her teenager. Here’s what she found.`\
+https://nytimes.com/interactive/2024/04/25/realestate/atlanta-georgia-house-sale.html
 
-**N.F.L. Draft Is Like Super Bowl for City of Detroit**\
-`Places that are not usual sites for the league’s marquee game are jumping at the chance to be the host of its three-day draft.`\
-https://nytimes.com/2024/04/25/business/nfl-draft-detroit.html
+**What Everyday Object Deserves More Love?**\
+`An Instagram account devoted to sticks (yes, sticks!) is gaining an enthusiastic following. What overlooked object do you think merits more appreciation — and even a hashtag?`\
+https://nytimes.com/2024/04/25/learning/what-everyday-object-deserves-more-love.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/25/crosswords/spelling-bee-forum.html
+**How Paris Changed the Expat Artists**\
+`An exhibition at the Grey Art Museum explores the fervid postwar scene in Paris, where Ellsworth Kelly, Joan Mitchell and others learned lessons America couldn’t teach them.`\
+https://nytimes.com/2024/04/25/arts/design/expat-artists-paris-grey-museum.html
 
-**The Connections Companion No. 319**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/25/crosswords/connections-companion.html
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are a five-bedroom in New Canaan, Conn., and a four-bedroom in Chappaqua, N.Y.`\
+https://nytimes.com/2024/04/25/realestate/housing-market-near-nyc.html
 
-**Today’s Wordle Review No. 1,041**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/25/crosswords/wordle-review.html
+**Tennessee Parents Question Whether Arming Teachers Is the Answer**\
+`Supporters of new legislation to allow some teachers to carry firearms say it will make the state’s schools safer. Many parents and educators are not convinced.`\
+https://nytimes.com/2024/04/25/us/tennessee-bill-teachers-guns.html
 
-**25mideast-crisis**\
-`Biden Reaffirms Commitment to Israel as He Signs Aid Bill`\
-https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas
+**Supreme Court to Hear Trump’s Claim to ‘Absolute Immunity’**\
+`The justices will consider on Thursday whether the former president must face trial on charges that he tried to subvert the 2020 election.`\
+https://nytimes.com/2024/04/25/us/politics/trump-supreme-court-immunity-case.html
 
-**Word of the Day: propound**\
-`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/04/25/learning/word-of-the-day-propound.html
+**The Comedian Roy Wood Jr. on What’s Funny About 2024**\
+`A conversation about the power of Trump’s punchlines — and the jokes President Biden should be telling.`\
+https://nytimes.com/2024/04/25/podcasts/roy-wood-jr-trump-biden-political-comedy.html
 
