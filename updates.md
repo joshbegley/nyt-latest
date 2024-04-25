@@ -1,3 +1,11 @@
+**Mass Whale Stranding in Western Australia**\
+`Four pods of 160 pilot whales were stranded across a wide swath of beach at the Toby Inlet near the town of Dunsborough in Western Australia, wildlife officials said.`\
+https://nytimes.com/video/world/asia/100000009433656/whale-stranded-australia.html
+
+**José Andrés, founder of the World Central Kitchen, eulogizes 7 aid workers killed in Gaza.**\
+`By Kim Severson`\
+https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/jose-andres-founder-of-the-world-central-kitchen-eulogizes-7-aid-workers-killed-in-gaza
+
 **Ex-F.B.I. Lawyer Who Criticized Trump Says Bureau Failed to Warn Her About Stalker**\
 `A man who pleaded guilty to stalking the lawyer, Lisa Page, had been discharged from the Marines after expressing an obsession with her as well as mass shootings, information that was shared with the F.B.I.`\
 https://nytimes.com/2024/04/25/us/politics/lisa-page-john-perez-stalker.html
