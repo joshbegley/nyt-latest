@@ -1,3 +1,7 @@
+**José Andrés, founder of the World Central Kitchen, eulogizes 7 aid workers killed in Gaza.**\
+`By Kim Severson`\
+https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/jose-andres-founder-of-the-world-central-kitchen-eulogizes-7-aid-workers-killed-in-gaza
+
 **Ex-F.B.I. Lawyer Who Criticized Trump Says Bureau Failed to Warn Her About Stalker**\
 `A man who pleaded guilty to stalking the lawyer, Lisa Page, had been discharged from the Marines after expressing an obsession with her as well as mass shootings, information that was shared with the F.B.I.`\
 https://nytimes.com/2024/04/25/us/politics/lisa-page-john-perez-stalker.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/world/europe/venice-entry-fee-protests.html
 **Trump Trial Witness Says President-Elect Praised Him for Keeping Secrets**\
 `The publisher of the The National Enquirer said he was called upstairs at Trump Tower to a postelection meeting where Donald J. Trump introduced him to future White House figures.`\
 https://nytimes.com/2024/04/25/nyregion/david-pecker-trump-tower-meeting.html
-
-**Teenagers on the Greatest Gifts Their Parents Have Given Them**\
-`We invited students to tell us about the most meaningful values and life lessons they have learned from the adults in their lives.`\
-https://nytimes.com/2024/04/25/learning/teenagers-on-the-greatest-gifts-their-parents-have-given-them.html
 
