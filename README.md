@@ -1,4 +1,4 @@
-**Trump Compares Campus Protests to Violent White Supremacist March at Charlottesville**\
+**Trump Compares Campus Protests to Violent White Supremacist Rally in Charlottesville**\
 `The former president portrayed largely peaceful pro-Palestinian protests on college campuses as “riots,” saying that “Charlottesville is like a ‘peanut’” in comparison.`\
 https://nytimes.com/2024/04/24/us/politics/trump-charlottesville-campus-protests.html
 
