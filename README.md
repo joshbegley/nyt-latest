@@ -6,8 +6,8 @@ https://nytimes.com/live/2024/04/25/us/biden-trump-election/biden-heads-to-syrac
 `By scheduling a hearing for late April on the former president’s assertion that he cannot be prosecuted for his actions in office, the justices increased the chances that he will not face trial by Election Day.`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/in-taking-up-trumps-immunity-claim-the-supreme-court-bolstered-his-delay-strategy
 
-**Read the Ruling**\
-`In a 4-3 decision, the New York Court of Appeals found that the trial judge who presided over Mr.`\
+**Read the Harvey Weinstein Appeal Ruling**\
+`In a 4-3 decision on Thursday, the New York Court of Appeals found that the trial judge who presided over Harvey Weinstein’s case had made a crucial mistake, allowing prosecutors to call as witnesses a series of women who said Mr.`\
 https://nytimes.com/interactive/2024/04/25/nyregion/read-harvey-weinstein-appeal-ruling.html
 
 **Trump Visits a Construction Site in Manhattan Before His Trial Resumes**\
