@@ -1,3 +1,7 @@
+**Blinken Tours China to Promote Some Ties, While the U.S. Severs Others**\
+`Tensions over economic ties are running high, threatening to disrupt a fragile cooperation between the U.S. and China.`\
+https://nytimes.com/2024/04/25/business/economy/blinken-china-trade.html
+
 **Thursday Briefing**\
 `Signs suggest that Israel will likely invade Rafah.`\
 https://nytimes.com/2024/04/25/briefing/israel-rafah-attack-ukraine-aid.html
