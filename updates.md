@@ -1,3 +1,11 @@
+**All four lower court judges who weighed Trump’s immunity argument rejected it.**\
+`By Charlie Savage`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/all-four-lower-court-judges-who-weighed-trumps-immunity-argument-rejected-it
+
+**Harvey Weinstein’s Conviction Is Overturned by New York’s Top Court**\
+`In a stunning 4-3 decision, the state’s highest court overturned the conviction of the disgraced movie producer, who in 2020 was found guilty of two felony sex crimes.`\
+https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/harvey-weinstein-conviction-appeal
+
 **Greenpoint, Brooklyn, Is the Place to Go for Inventive Pastries and Fresh Bread**\
 `Plus: a vase designed by Alice Waters, sculptures made from recycled CDs and more recommendations from T Magazine.`\
 https://nytimes.com/2024/04/25/t-magazine/bakeries-greenpoint-brooklyn.html

@@ -2,7 +2,7 @@
 `By Charlie Savage`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/all-four-lower-court-judges-who-weighed-trumps-immunity-argument-rejected-it
 
-**Harvey Weinstein’s Conviction Is Overturned by New York’s Top Court**\
+**Here’s what to know.**\
 `In a stunning 4-3 decision, the state’s highest court overturned the conviction of the disgraced movie producer, who in 2020 was found guilty of two felony sex crimes.`\
 https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/harvey-weinstein-conviction-appeal
 
