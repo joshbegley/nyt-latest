@@ -11,7 +11,7 @@ https://nytimes.com/live/2024/04/25/us/biden-trump-election/biden-heads-to-syrac
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/in-taking-up-trumps-immunity-claim-the-supreme-court-bolstered-his-delay-strategy
 
 **Read the Harvey Weinstein Appeal Ruling**\
-`In a 4-3 decision on Thursday, the New York Court of Appeals found that the trial judge who presided over Harvey Weinstein’s case had made a crucial mistake, allowing prosecutors to call as witnesses a series of women who said Mr.`\
+`The New York Court of Appeals found Thursday that the trial judge who presided over Harvey Weinstein’s case had made a crucial mistake, allowing prosecutors to call as witnesses a series of women who said Mr.`\
 https://nytimes.com/interactive/2024/04/25/nyregion/read-harvey-weinstein-appeal-ruling.html
 
 **Trump Visits a Construction Site in Manhattan Before His Trial Resumes**\
