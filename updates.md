@@ -1,3 +1,15 @@
+**There’s History in These Cheese Pulls**\
+`Queso fundido is a gooey thrill, with a back story rooted in the Mexican Revolution.`\
+https://nytimes.com/2024/04/25/dining/queso-fundido.html
+
+**Heavy Rains and Floods Sweep Cities Across East Africa**\
+`Torrential downpours have submerged homes and farms in Tanzania, Kenya and Burundi, and more rain is expected.`\
+https://nytimes.com/2024/04/25/world/africa/heavy-rains-and-floods-sweep-cities-across-east-africa.html
+
+**‘Challengers’ Review: Game, Set, Love Matches**\
+`Zendaya, Josh O’Connor and Mike Faist play friends, lovers and foes on and off the tennis court in Luca Guadagnino’s latest.`\
+https://nytimes.com/2024/04/25/movies/challengers-review-zendaya-mike-faist-josh-oconnor.html
+
 **In their dissents, three judges offer sharp critiques of the majority’s decision.**\
 `By Maria Cramer`\
 https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/in-their-dissents-three-judges-express-fury-at-the-majoritys-decision

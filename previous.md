@@ -1,3 +1,11 @@
+**There’s History in These Cheese Pulls**\
+`Queso fundido is a gooey thrill, with a back story rooted in the Mexican Revolution.`\
+https://nytimes.com/2024/04/25/dining/queso-fundido.html
+
+**Heavy Rains and Floods Sweep Cities Across East Africa**\
+`Torrential downpours have submerged homes and farms in Tanzania, Kenya and Burundi, and more rain is expected.`\
+https://nytimes.com/2024/04/25/world/africa/heavy-rains-and-floods-sweep-cities-across-east-africa.html
+
 **Ukraine Could Use New Weapons to Hit Russian Targets in Crimea, Pentagon Says**\
 `The goal for a recent delivery of the coveted long-range missile system is to put more pressure on Russian forces in eastern parts of occupied Ukraine.`\
 https://nytimes.com/2024/04/25/us/politics/ukraine-aid-atacms.html
@@ -14,7 +22,7 @@ https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/trump-suprem
 `By Maria Cramer`\
 https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/in-their-dissents-three-judges-express-fury-at-the-majoritys-decision
 
-**‘Challengers’ Review: A Love Match**\
+**‘Challengers’ Review: Game, Set, Love Matches**\
 `Zendaya, Josh O’Connor and Mike Faist play friends, lovers and foes on and off the tennis court in Luca Guadagnino’s latest.`\
 https://nytimes.com/2024/04/25/movies/challengers-review-zendaya-mike-faist-josh-oconnor.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/25/well/live/counterfeit-botox-risks.html
 **Weinstein’s accusers express fury and disappointment over the court’s ruling.**\
 `By Maia Coleman`\
 https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/weinsteins-accusers-express-fury-and-disappointment-over-the-courts-ruling
-
-**The Harvey Weinstein Appeal Ruling, Annotated**\
-`Read the ruling from New York’s top court that overturned the 2020 conviction of Harvey Weinstein on felony sex crime charges in Manhattan, with context and explanation by New York Times journalists.`\
-https://nytimes.com/interactive/2024/04/25/nyregion/weinstein-appeal-ruling-overturned-ny.html
-
-**Emory in Atlanta Is Latest University to Crack Down on Protests**\
-`More than 400 demonstrators across the country have been taken into police custody since arrests at Columbia University in New York set off a wave of student activism nationwide.`\
-https://nytimes.com/2024/04/25/us/emory-atlanta-university-protests-israel.html
 
