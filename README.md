@@ -1,3 +1,7 @@
+**Teenagers on the Greatest Gifts Their Parents Have Given Them**\
+`We invited students to tell us about the most meaningful values and life lessons they have learned from the adults in their lives.`\
+https://nytimes.com/2024/04/25/learning/teenagers-on-the-greatest-gifts-their-parents-have-given-them.html
+
 **Film Club: ‘A Day With a Dishwasher at a Top NYC Restaurant’**\
 `What are the unsung jobs that make the world a better — and tastier — place?`\
 https://nytimes.com/2024/04/25/learning/film-club-a-day-with-a-dishwasher-at-a-top-nyc-restaurant.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/world/australia/pilot-whales-stranded-australia.h
 **A spectacle outside the Supreme Court for Trump’s defenders and detractors.**\
 `By Aishvarya Kavi`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/a-spectacle-outside-the-supreme-court-for-trumps-defenders-and-detractors
-
-**Sheppie Abramowitz, Who Advocated Relief for Refugees, Dies at 88**\
-`She helped people fleeing conflicts in Vietnam, China, Kosovo and elsewhere around the world, and established the Washington office of the International Rescue Committee.`\
-https://nytimes.com/2024/04/25/world/asia/sheppie-abramowitz-dead.html
 
