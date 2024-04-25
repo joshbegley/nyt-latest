@@ -1,5 +1,9 @@
 **Gaza Authorities Say More Bodies Discovered in Mass Grave**\
 `An analysis of satellite imagery and videos by the The Times found that two of three graves had been dug on a hospital’s grounds before an Israeli raid.`\
+https://nytimes.com/2024/04/25/world/middleeast/gaza-mass-grave-nasser-hospital.html
+
+**Gaza Authorities Say More Bodies Discovered in Mass Grave**\
+`An analysis of satellite imagery and videos by the The Times found that two of three graves had been dug on a hospital’s grounds before an Israeli raid.`\
 https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/gaza-mass-grave-nasser-hospital
 
 **Israel’s Claim of Killing ‘Half’ of Hezbollah Commanders in Southern Lebanon Draws Skepticism**\
