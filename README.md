@@ -1,3 +1,7 @@
+**In their dissents, three judges express fury at the majority’s decision.**\
+`By Maria Cramer`\
+https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/in-their-dissents-three-judges-express-fury-at-the-majoritys-decision
+
 **‘Challengers’ Review: A Love Match**\
 `Zendaya, Josh O’Connor and Mike Faist play friends, lovers and foes on and off the tennis court in Luca Guadagnino’s latest.`\
 https://nytimes.com/2024/04/25/movies/challengers-review-zendaya-mike-faist-josh-oconnor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/nyregion/stormy-daniels-trump-trial.html
 **The Supreme Court rejected Bill Clinton’s claim of immunity.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/the-supreme-court-rejected-bill-clintons-claim-of-immunity
-
-**For the Sake of Democracy, Celebrate Mike Johnson**\
-`In this one instance, at least, he stood on principle.`\
-https://nytimes.com/2024/04/25/opinion/mike-johnson-ukraine-aid.html
 
