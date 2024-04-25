@@ -1,3 +1,15 @@
+**5 Takeaways From David Pecker’s Testimony in Trump’s Criminal Trial**\
+`David Pecker told jurors of a universe in which favors for celebrities were demanded and dispensed. His cross-examination will continue Friday.`\
+https://nytimes.com/2024/04/25/nyregion/pecker-mdcougal-daniels-testimony-takeaways.html
+
+**The Onion Sold by G/O Media**\
+`The satirical news website was bought by a new firm in Chicago that took inspiration for its name, Global Tetrahedron, from a book written by The Onion’s staff.`\
+https://nytimes.com/2024/04/25/business/media/the-onion-sold.html
+
+**School Employee Arrested After Racist Deepfake Recording of Principal Spreads**\
+`A high school athletic director in the Baltimore area was arrested after the police said he used A.I. to make a racist and antisemitic audio clip.`\
+https://nytimes.com/2024/04/25/business/deepfake-recording-principal-arrest.html
+
 **Army Begins Building Floating Aid Pier Off Gaza’s Coast, Pentagon Says**\
 `The structure is meant to allow humanitarian assistance to enter Gaza via the Mediterranean Sea, bypassing Israeli restrictions on land convoys.`\
 https://nytimes.com/2024/04/25/us/politics/gaza-aid-pier.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-pecker-mcdougal-testi
 **The Supreme Court Hints at a Break for Trump**\
 `The justices could issue a ruling that would make a trial in the Jan. 6 case unlikely before the election.`\
 https://nytimes.com/2024/04/25/us/politics/trump-trial-supreme-court-immunity.html
-
-**University of Southern California Confronts an Unfamiliar Era of Protest**\
-`The 144-year-old Los Angeles institution has not had a reputation for campus activism, but it now finds itself embroiled in controversies over the war in Gaza.`\
-https://nytimes.com/2024/04/25/us/usc-southern-california-protest.html
-
-**Weinstein’s Conviction Is Overturned: 5 Takeaways**\
-`The Court of Appeals overturned Harvey Weinstein’s 2020 conviction on sex crimes charges in New York, but he is not a free man. Here’s what to know.`\
-https://nytimes.com/2024/04/25/nyregion/weinstein-conviction-overturned-takeaways.html
-
-**What to Watch This Weekend: An Experiment from Comedy Weirdos**\
-`Perhaps you would enjoy “Knuckles,” a Sonic the Hedgehog spinoff that outpaces its origin story.`\
-https://nytimes.com/2024/04/25/arts/television/knuckles.html
 
