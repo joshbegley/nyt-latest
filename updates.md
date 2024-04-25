@@ -1,3 +1,7 @@
+**The U.S. Is Flooded with Fake Botox. Here’s What to Watch Out For.**\
+`Counterfeit doses and unlicensed providers are harming patients, experts said.`\
+https://nytimes.com/2024/04/25/well/live/counterfeit-botox-risks.html
+
 **Now We’re (Barely) Cooking**\
 `Capital-E easy vegetarian dinners: miso-mascarpone pasta, sheet-pan japchae and everyday dal.`\
 https://nytimes.com/2024/04/25/dining/now-were-barely-cooking.html
