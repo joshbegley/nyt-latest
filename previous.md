@@ -1,3 +1,19 @@
+**There Is No TikTok in China, but There Is Douyin. Here’s What It Is.**\
+`ByteDance owns both TikTok and Douyin, and although TikTok has more users around the world, Douyin is the company’s cash cow and a China mainstay.`\
+https://nytimes.com/2024/04/25/business/china-tiktok-douyin.html
+
+**‘To the Future’: Saudi Arabia Spends Big to Become an A.I. Superpower**\
+`The oil-rich kingdom is plowing money into glitzy events, computing power and artificial intelligence research, putting it in the middle of an escalating U.S.-China struggle for technological influence.`\
+https://nytimes.com/2024/04/25/technology/to-the-future-saudi-arabia-spends-big-to-become-an-ai-superpower.html
+
+**What to Know About Venice’s Fees for Day Trips**\
+`Venice is trying to mitigate overtourism with a small fee on busy days. City leaders hope it will make visitors more aware of the city’s fragility.`\
+https://nytimes.com/2024/04/25/world/europe/venice-access-fee.html
+
+**Europe’s Policymakers Get Ready to Lower Rates, Regardless of the Fed**\
+`European Central Bank governors are highlighting cooler inflation as a sign the bank could cut interest rates before the Federal Reserve.`\
+https://nytimes.com/2024/04/25/business/ecb-federal-reserve-interest-rates.html
+
 **Pennsylvania School Board Reinstates Gay Author’s Speech Amid Backlash**\
 `The Cumberland Valley School Board reversed its decision to cancel Maulik Pancholy’s speech at a middle school next month after many community members said the actor had been discriminated against because of his sexuality.`\
 https://nytimes.com/2024/04/24/us/maulik-pancholy-pennsylvania-school-decision.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/04/24/opinion/thepoint/if-arizona-repeals-its-abor
 **Review: Steve Carell as the 50-Year-Old Loser in a Comic ‘Uncle Vanya’**\
 `Sleek, lucid, amusing, often beautiful, it’s Chekhov with everything, except the main thing.`\
 https://nytimes.com/2024/04/24/theater/uncle-vanya-review-steve-carell.html
-
-**Undercover Sex Sting Leads to Charges Against School Crossing Guard**\
-`Jared Jeridore, who worked near a Queens school, was arrested after complaints about him led the police to have an officer pose as a teenage girl, officials said.`\
-https://nytimes.com/2024/04/24/nyregion/jeridore-katz-school-crossing-guard-charges.html
-
-**Arizona Charges Giuliani and Other Trump Allies in Election Interference Case**\
-`Those charged included Boris Epshteyn, a top legal strategist for Donald Trump, and fake electors who acted on Mr. Trump’s behalf in Arizona after the 2020 election.`\
-https://nytimes.com/2024/04/24/us/arizona-fake-electors-trump.html
-
-**Campus Protests Over Gaza Intensify Amid Pushback by Universities and Police**\
-`There were dozens of new arrests as universities moved to prevent pro-Palestinian encampments from taking hold as they have at Columbia University.`\
-https://nytimes.com/2024/04/24/us/college-protests-spread-austin-dallas.html
-
-**Johnson Condemns Pro-Palestinian Protests at Columbia University**\
-`House Speaker Mike Johnson delivered brief remarks at Columbia University on Wednesday, demanding White House action and invoking the possibility of bringing in the National Guard to quell the pro-Palestinian protests. Students interrupted his speech with jeers.`\
-https://nytimes.com/video/us/politics/100000009432319/mike-johnson-columbia-university.html
 
