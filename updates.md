@@ -1,3 +1,19 @@
+**Biden and 17 other world leaders turn up heat on Hamas to free hostages.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/biden-and-17-other-world-leaders-turn-up-heat-on-hamas-to-free-hostages
+
+**Popcast (Deluxe): Taylor Swift’s ‘Tortured’ Era**\
+`A discussion about the singer’s new album, “The Tortured Poets Department,” her “imperial era,” rumored relationships and production choices.`\
+https://nytimes.com/2024/04/25/arts/music/taylor-swift-tortured-poets-popcast-deluxe.html
+
+**Testimony by these witnesses was a key part of Weinstein’s appeal argument.**\
+`By Maria Cramer`\
+https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/testimony-by-these-witnesses-was-a-key-part-of-weinsteins-appeal-argument
+
+**The precedent most helpful to Trump: Nixon v. Fitzgerald.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/the-precedent-most-helpful-to-trump-nixon-v-fitzgerald
+
 **Court in Iran Sentences Prominent Rapper to Death, His Lawyer Says**\
 `The rapper, Toomaj Salehi, was initially arrested after releasing music in support of the 2022 protests over the death of a young woman in police custody.`\
 https://nytimes.com/2024/04/25/world/middleeast/iran-rapper-toomaj-salehi-death-sentence.html

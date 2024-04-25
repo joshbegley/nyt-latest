@@ -1,3 +1,19 @@
+**Biden and 17 other world leaders turn up heat on Hamas to free hostages.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/biden-and-17-other-world-leaders-turn-up-heat-on-hamas-to-free-hostages
+
+**Popcast (Deluxe): Taylor Swift’s ‘Tortured’ Era**\
+`A discussion about the singer’s new album, “The Tortured Poets Department,” her “imperial era,” rumored relationships and production choices.`\
+https://nytimes.com/2024/04/25/arts/music/taylor-swift-tortured-poets-popcast-deluxe.html
+
+**Testimony by these witnesses was a key part of Weinstein’s appeal argument.**\
+`By Maria Cramer`\
+https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/testimony-by-these-witnesses-was-a-key-part-of-weinsteins-appeal-argument
+
+**The precedent most helpful to Trump: Nixon v. Fitzgerald.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/the-precedent-most-helpful-to-trump-nixon-v-fitzgerald
+
 **A Chinese Firm Is America’s Favorite Drone Maker — Except in Washington**\
 `U.S. authorities consider DJI a security threat. Congress is weighing legislation to ban it, prompting a lobbying campaign from the company, which dominates the commercial and consumer drone markets.`\
 https://nytimes.com/2024/04/25/us/politics/us-china-drones-dji.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/04/24/opinion/thepoint/krugman-growth-inflation-re
 **Southwest Quits Four Airports in Cost-Cutting Drive**\
 `The airline expects fewer deliveries of Boeing planes than before, and cited “significant challenges” in achieving growth plans because of it.`\
 https://nytimes.com/2024/04/25/business/southwest-airlines-boeing-airports.html
-
-**Is there such a thing as executive immunity?**\
-`By Alan Feuer and Charlie Savage`\
-https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/is-there-such-a-thing-as-executive-immunity
-
-**A New Battery Warns Parents if Their Child Has Swallowed It**\
-`The new battery by Energizer, with “color alert technology,” comes nearly two years after a report warned that more children were swallowing batteries.`\
-https://nytimes.com/2024/04/25/business/energizer-battery-child-safety.html
-
-**Helen Vendler Believed Poetry Matters**\
-`She devoted her life to showing us how and why.`\
-https://nytimes.com/2024/04/25/books/review/helen-vendler-appraisal.html
-
-**Hypothetical questions test the limits of Trump’s immunity claim.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/hypothetical-questions-test-the-limits-of-trumps-immunity-claim
 
