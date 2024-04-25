@@ -1,3 +1,7 @@
+**WADA Appoints Special Prosecutor in Chinese Doping Case**\
+`The decision to review the handling of positive tests collected from 23 swimmers came after an outcry from athletes and antidoping regulators.`\
+https://nytimes.com/2024/04/25/world/asia/wada-china-special-prosecutor-swimming.html
+
 **Stormy Daniels’s Attempt to Sell Her Story Began the Road to Trial**\
 `After a tape emerged of Donald J. Trump discussing how he groped women, she quickly struck a deal.`\
 https://nytimes.com/2024/04/25/nyregion/stormy-daniels-trump-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/arts/music/anthony-roth-costanzo-director-opera-p
 **Problems with the I.D.F.’s deconfliction system existed before the strike on the W.C.K. convoy.**\
 `By Haley Willis, Robin Stein, Ainara Tiefenthäler, Natalie Reneau, Aaron Byrd and Anushka Patil`\
 https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/problems-with-the-idfs-deconfliction-system-existed-before-the-strike-on-the-wck-convoy
-
-**A Wanderer, Ravel and Suzanne Farrell: Life Is Good at City Ballet**\
-`The spring season at New York City Ballet opened with an all-Balanchine program and a vintage miniature from 1975: “Errante,” staged for a new generation.`\
-https://nytimes.com/2024/04/25/arts/dance/errante-new-york-city-ballet-mira-nadon-suzanne-farrell.html
 
