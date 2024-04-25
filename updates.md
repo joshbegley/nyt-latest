@@ -1,3 +1,7 @@
+**Mining Giant BHP Makes $39 Billion Bid for Rival Anglo American**\
+`The deal would create one of the largest copper miners at a time when demand is soaring for the metal used for many green technologies.`\
+https://nytimes.com/2024/04/25/business/bhp-anglo-american-takeover-copper.html
+
 **Trump Case Testimony Expected to Turn to Hush-Money Deal With Porn Star**\
 `David Pecker, the former publisher of The National Enquirer, will be back on the stand and is likely to discuss the publication’s contact with Stormy Daniels.`\
 https://nytimes.com/2024/04/25/nyregion/david-pecker-trump-trial-testimony.html
