@@ -1,3 +1,11 @@
+**A spectacle outside the Supreme Court for Trump’s defenders and detractors.**\
+`By Aishvarya Kavi`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/a-spectacle-outside-the-supreme-court-for-trumps-defenders-and-detractors
+
+**Sheppie Abramowitz, Who Advocated Relief for Refugees, Dies at 88**\
+`She helped people fleeing conflicts in Vietnam, China, Kosovo and elsewhere around the world, and established the Washington office of the International Rescue Committee.`\
+https://nytimes.com/2024/04/25/world/asia/sheppie-abramowitz-dead.html
+
 **There’s History in These Cheese Pulls**\
 `Queso fundido is a gooey thrill, with a back story rooted in the Mexican Revolution.`\
 https://nytimes.com/2024/04/25/dining/queso-fundido.html

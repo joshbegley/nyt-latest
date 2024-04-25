@@ -1,3 +1,11 @@
+**A spectacle outside the Supreme Court for Trump’s defenders and detractors.**\
+`By Aishvarya Kavi`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/a-spectacle-outside-the-supreme-court-for-trumps-defenders-and-detractors
+
+**Sheppie Abramowitz, Who Advocated Relief for Refugees, Dies at 88**\
+`She helped people fleeing conflicts in Vietnam, China, Kosovo and elsewhere around the world, and established the Washington office of the International Rescue Committee.`\
+https://nytimes.com/2024/04/25/world/asia/sheppie-abramowitz-dead.html
+
 **There’s History in These Cheese Pulls**\
 `Queso fundido is a gooey thrill, with a back story rooted in the Mexican Revolution.`\
 https://nytimes.com/2024/04/25/dining/queso-fundido.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/25/movies/challengers-review-zendaya-mike-faist-josh
 **Now We’re (Barely) Cooking**\
 `Capital-E easy vegetarian dinners: miso-mascarpone pasta, sheet-pan japchae and everyday dal.`\
 https://nytimes.com/2024/04/25/dining/now-were-barely-cooking.html
-
-**The U.S. Is Flooded with Fake Botox. Here’s What to Watch Out For.**\
-`Counterfeit doses and unlicensed providers are harming patients, experts said.`\
-https://nytimes.com/2024/04/25/well/live/counterfeit-botox-risks.html
-
-**Weinstein’s accusers express fury and disappointment over the court’s ruling.**\
-`By Maia Coleman`\
-https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/weinsteins-accusers-express-fury-and-disappointment-over-the-courts-ruling
 
