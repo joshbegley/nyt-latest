@@ -1,3 +1,7 @@
+**Word of the Day: propound**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/25/learning/word-of-the-day-propound.html
+
 **Jimmy Kimmel Dunks on Trump’s Billion-Dollar Stock Bonus**\
 `“Donald Trump somehow made a lot of money from a company that makes none,” Kimmel said.`\
 https://nytimes.com/2024/04/25/arts/television/jimmy-kimmel-trump-stock-bonus.html

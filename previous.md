@@ -1,3 +1,7 @@
+**Word of the Day: propound**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/25/learning/word-of-the-day-propound.html
+
 **Jimmy Kimmel Dunks on Trump’s Billion-Dollar Stock Bonus**\
 `“Donald Trump somehow made a lot of money from a company that makes none,” Kimmel said.`\
 https://nytimes.com/2024/04/25/arts/television/jimmy-kimmel-trump-stock-bonus.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/world/europe/venice-access-fee.html
 **Europe’s Policymakers Get Ready to Lower Rates, Regardless of the Fed**\
 `European Central Bank governors are highlighting cooler inflation as a sign the bank could cut interest rates before the Federal Reserve.`\
 https://nytimes.com/2024/04/25/business/ecb-federal-reserve-interest-rates.html
-
-**Pennsylvania School Board Reinstates Gay Author’s Speech Amid Backlash**\
-`The Cumberland Valley School Board reversed its decision to cancel Maulik Pancholy’s speech at a middle school next month after many community members said the actor had been discriminated against because of his sexuality.`\
-https://nytimes.com/2024/04/24/us/maulik-pancholy-pennsylvania-school-decision.html
 
