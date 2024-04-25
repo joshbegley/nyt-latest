@@ -1,3 +1,7 @@
+**Welcome to Venice. That’ll Be 5 Euros, Please.**\
+`Venice’s first day of charging a fee to enter the historic center went mostly smoothly, but there were some protests and polemics.`\
+https://nytimes.com/2024/04/25/world/europe/venice-entry-fee-protests.html
+
 **Mass Whale Stranding in Western Australia**\
 `Four pods of 160 pilot whales were stranded across a wide swath of beach at the Toby Inlet near the town of Dunsborough in Western Australia, wildlife officials said.`\
 https://nytimes.com/video/world/asia/100000009433656/whale-stranded-australia.html
