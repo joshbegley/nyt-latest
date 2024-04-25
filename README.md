@@ -1,3 +1,11 @@
+**Why Are We Gambling With America’s Future?**\
+`Don’t bet the house on a rosy future.`\
+https://nytimes.com/2024/04/25/opinion/us-federal-debt.html
+
+**Can Biden Revive the Fortunes of American Workers?**\
+`He’s the most pro-labor president since Harry Truman. Is that enough?`\
+https://nytimes.com/2024/04/25/opinion/biden-unions-uaw.html
+
 **One in Five Milk Samples Nationwide Shows Genetic Traces of Bird Flu**\
 `There is no evidence that the milk is unsafe to drink, scientists say. But the survey result strongly hints that the outbreak may be widespread.`\
 https://nytimes.com/2024/04/25/health/bird-flu-milk-fda.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/25/us/crash-pennsylvania-pregnant-teen.html
 **Justices Seemed Ready to Limit Election Case Against Trump**\
 `Also, Harvey Weinstein’s New York conviction was overturned.`\
 https://nytimes.com/2024/04/25/briefing/supreme-court-trump-immunity-weinstein-new-york.html
-
-**Penny Simkin, ‘Mother of the Doula Movement,’ Dies at 85**\
-`As a childbirth educator and maternal advocate, she promoted a profession that provides comfort to women giving birth and offers postpartum care as well.`\
-https://nytimes.com/2024/04/25/health/penny-simkin-dead.html
-
-**9 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/04/25/books/review/new-books-recommendations.html
 
