@@ -12,7 +12,7 @@ https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/hypothetical
 
 **Here’s a timeline of Weinstein’s New York case.**\
 `New York’s highest court tossed out the 2020 sex crime convictions of Harvey Weinstein in a reversal of a case that ignited the #MeToo movement.`\
-https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/heres-a-timeline-of-weinsteins-new-york-case
+https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/weinstein-new-york-case-timeline-metoo
 
 **What counts as an official act as president?**\
 `By Alan Feuer and Charlie Savage`\
