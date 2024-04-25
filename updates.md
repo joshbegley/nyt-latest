@@ -1,3 +1,11 @@
+**Hypothetical questions test the limits of Trump’s immunity claim.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/hypothetical-questions-test-the-limits-of-trumps-immunity-claim
+
+**Here’s a timeline of Weinstein’s New York case.**\
+`New York’s highest court tossed out the 2020 sex crime convictions of Harvey Weinstein in a reversal of a case that ignited the #MeToo movement.`\
+https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/heres-a-timeline-of-weinsteins-new-york-case
+
 **What counts as an official act as president?**\
 `By Alan Feuer and Charlie Savage`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/what-counts-as-an-official-act-as-president
