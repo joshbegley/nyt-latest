@@ -1,3 +1,7 @@
+**Problems with the I.D.F.’s deconfliction system existed before the strike on the W.C.K. convoy.**\
+`By Haley Willis, Robin Stein, Ainara Tiefenthäler, Natalie Reneau, Aaron Byrd and Anushka Patil`\
+https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/problems-with-the-idfs-deconfliction-system-existed-before-the-strike-on-the-wck-convoy
+
 **A Wanderer, Ravel and Suzanne Farrell: Life Is Good at City Ballet**\
 `The spring season at New York City Ballet opened with an all-Balanchine program and a vintage miniature from 1975: “Errante,” staged for a new generation.`\
 https://nytimes.com/2024/04/25/arts/dance/errante-new-york-city-ballet-mira-nadon-suzanne-farrell.html
