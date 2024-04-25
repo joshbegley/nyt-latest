@@ -8,7 +8,7 @@ https://nytimes.com/2024/04/25/technology/alphabet-earnings.html
 
 **U.S.C. Cancels Its Main Graduation Ceremony, Citing Security Concerns**\
 `There have been student protests and arrests, as well as controversy over the school’s decision to cancel the speech of its valedictorian.`\
-https://nytimes.com/2024/04/25/us/usc-cancels-graduation.html
+https://nytimes.com/2024/04/25/us/usc-cancels-graduation-campus-protests.html
 
 **Microsoft Reports Rising Revenues as A.I. Investments Bear Fruit**\
 `The tech giant’s quarterly results included strong growth in cloud computing, fueled by its services in generative artificial intelligence.`\
