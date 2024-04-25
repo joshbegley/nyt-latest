@@ -1,3 +1,11 @@
+**U.S.C. Cancels Its Main Graduation Ceremony, Citing Security Concerns**\
+`There have been student protests and arrests, as well as controversy over the school’s decision to cancel the speech of its valedictorian.`\
+https://nytimes.com/2024/04/25/us/usc-cancels-graduation.html
+
+**Microsoft Reports Rising Revenues as A.I. Investments Bear Fruit**\
+`The tech giant’s quarterly results included strong growth in cloud computing, fueled by its services in generative artificial intelligence.`\
+https://nytimes.com/2024/04/25/technology/microsoft-earnings.html
+
 **In Trump Tower, the President-Elect Praised the Man Who Kept His Secrets**\
 `David Pecker, former publisher of The National Enquirer, found himself at a meeting of the future administration. Donald J. Trump thanked him for burying stories.`\
 https://nytimes.com/2024/04/25/nyregion/trump-david-pecker-hush-money-trial.html
