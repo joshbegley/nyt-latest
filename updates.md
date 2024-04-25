@@ -1,3 +1,7 @@
+**Arizona Republicans Who Supported Repealing an Abortion Ban Face Blowback**\
+`On social media, Arizona lawmakers are accused of being baby killers, cowards and traitors.`\
+https://nytimes.com/2024/04/25/us/abortion-ban-arizona.html
+
 **Columbia University Senate Is Said to Be Redrafting Resolution Admonishing Its President**\
 `Worried that a censure vote could result in President Nemat Shafik’s removal at a time of crisis, the official university body plans to vote on a watered-down proposal, some members said.`\
 https://nytimes.com/2024/04/25/us/columbia-senate-nemat-shafik.html
