@@ -1,3 +1,7 @@
+**Alphabet’s Revenue Jumps 15% to $80.5 Billion**\
+`Google’s parent company topped revenue and profit estimates and said that it would offer a stock dividend for the first time.`\
+https://nytimes.com/2024/04/25/technology/alphabet-earnings.html
+
 **U.S.C. Cancels Its Main Graduation Ceremony, Citing Security Concerns**\
 `There have been student protests and arrests, as well as controversy over the school’s decision to cancel the speech of its valedictorian.`\
 https://nytimes.com/2024/04/25/us/usc-cancels-graduation.html
