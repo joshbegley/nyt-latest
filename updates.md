@@ -1,3 +1,7 @@
+**Jimmy Kimmel Dunks on Trump’s Billion-Dollar Stock Bonus**\
+`“Donald Trump somehow made a lot of money from a company that makes none,” Kimmel said.`\
+https://nytimes.com/2024/04/25/arts/television/jimmy-kimmel-trump-stock-bonus.html
+
 **Speaking Russian in America**\
 `A visit to Ukraine and Russia would allow my son to see that his mother’s native language wasn’t a quirk of hers but something normal for millions of people.`\
 https://nytimes.com/2024/04/25/opinion/russia-ukraine-war-mother.html
