@@ -1,3 +1,7 @@
+**‘Challengers’: Normcore Clothes on Sweaty Bodies**\
+`Zendaya breaks hearts in a stylish tennis love triangle.`\
+https://nytimes.com/2024/04/25/style/challengers-fashion-zendaya-anderson-guadagnino.html
+
 **Wall Street’s Patience for a Costly A.I. Arms Race Is Waning**\
 `A sell-off in Meta’s stock after the company disclosed huge investments in the technology may be a sign of investor fears about tech giants’ spending.`\
 https://nytimes.com/2024/04/25/business/dealbook/meta-artificial-intelligence-spending.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/us/project-cold-case-cards.html
 **Five Things to Know About Biden’s New Power Plant Rules**\
 `The Biden administration released a major climate regulation aimed at virtually eliminating carbon emissions from coal, the dirtiest of the fossil fuels and a driver of global warming.`\
 https://nytimes.com/2024/04/25/climate/joe-biden-climate-global-warming.html
-
-**Juggling Campaign and Foreign Policy, Biden Sends Complicated Messages**\
-`The president signed a bill that could ban TikTok even as his re-election team uses it to reach young voters. It was hardly the first internal disparity on matters around the globe.`\
-https://nytimes.com/2024/04/25/us/politics/biden-campaign-foreign-policy.html
 
