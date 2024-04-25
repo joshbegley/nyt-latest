@@ -1,3 +1,11 @@
+**‘Nowhere Special’ Review: Old Bonds, New Family**\
+`This understated tear-jerker sees a dying single father making future family plans for his toddler son.`\
+https://nytimes.com/2024/04/25/movies/nowhere-special-review.html
+
+**‘Infested’ Review: Bugging Out**\
+`An apartment building in Paris is overrun by murderous arachnids and unsubtle allegory in this fleet and efficient debut feature.`\
+https://nytimes.com/2024/04/25/movies/infested-review.html
+
 **Chaos and Oppression**\
 `The central question for universities responding to protests is whether to prioritize the preservation of order or the desire of students to denounce oppression.`\
 https://nytimes.com/2024/04/25/briefing/college-protests.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/25/us/politics/biden-campaign-foreign-policy.html
 **Biden, Seeking to Build on Fruitful Week, Will Announce Billions in Chip Grants**\
 `The $6.1 billion for Micron, to shore up the domestic supply of semiconductors, comes after a key union endorsement and passage of an aid bill central to the president’s foreign policy agenda.`\
 https://nytimes.com/2024/04/25/us/politics/biden-micron-chip-grants.html
-
-**Outside Atlanta, a Mother-Daughter Duo Wanted a House to Share (With Enough Room for Some Privacy)**\
-`Having poured thousands into an older house with maintenance issues, a single mother aimed her $450,000 budget at something newer and nicer for herself and her teenager. Here’s what she found.`\
-https://nytimes.com/interactive/2024/04/25/realestate/atlanta-georgia-house-sale.html
-
-**What Everyday Object Deserves More Love?**\
-`An Instagram account devoted to sticks (yes, sticks!) is gaining an enthusiastic following. What overlooked object do you think merits more appreciation — and even a hashtag?`\
-https://nytimes.com/2024/04/25/learning/what-everyday-object-deserves-more-love.html
 

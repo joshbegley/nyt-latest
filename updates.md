@@ -1,3 +1,11 @@
+**‘Nowhere Special’ Review: Old Bonds, New Family**\
+`This understated tear-jerker sees a dying single father making future family plans for his toddler son.`\
+https://nytimes.com/2024/04/25/movies/nowhere-special-review.html
+
+**‘Infested’ Review: Bugging Out**\
+`An apartment building in Paris is overrun by murderous arachnids and unsubtle allegory in this fleet and efficient debut feature.`\
+https://nytimes.com/2024/04/25/movies/infested-review.html
+
 **Chaos and Oppression**\
 `The central question for universities responding to protests is whether to prioritize the preservation of order or the desire of students to denounce oppression.`\
 https://nytimes.com/2024/04/25/briefing/college-protests.html
