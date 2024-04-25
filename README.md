@@ -1,3 +1,7 @@
+**Alphabet’s Revenue Jumps 15% to $80.5 Billion**\
+`Google’s parent company topped revenue and profit estimates and said that it would offer a stock dividend for the first time.`\
+https://nytimes.com/2024/04/25/technology/alphabet-earnings.html
+
 **U.S.C. Cancels Its Main Graduation Ceremony, Citing Security Concerns**\
 `There have been student protests and arrests, as well as controversy over the school’s decision to cancel the speech of its valedictorian.`\
 https://nytimes.com/2024/04/25/us/usc-cancels-graduation.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000009433656/whale-stranded-australia.ht
 **José Andrés, founder of the World Central Kitchen, eulogizes 7 aid workers killed in Gaza.**\
 `By Kim Severson`\
 https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/jose-andres-founder-of-the-world-central-kitchen-eulogizes-7-aid-workers-killed-in-gaza
-
-**Ex-F.B.I. Lawyer Who Criticized Trump Says Bureau Failed to Warn Her About Stalker**\
-`A man who pleaded guilty to stalking the lawyer, Lisa Page, had been discharged from the Marines after expressing an obsession with her as well as mass shootings, information that was shared with the F.B.I.`\
-https://nytimes.com/2024/04/25/us/politics/lisa-page-john-perez-stalker.html
 
