@@ -1,3 +1,7 @@
+**These Playing Cards Have an Extra Motive. Flushing Out Suspects.**\
+`The 2,500 decks being issued to correctional facilities in southern Mississippi seek clues on missing persons and unsolved murders. Cold case cards sometimes bring useful tips to dormant investigations.`\
+https://nytimes.com/2024/04/25/us/project-cold-case-cards.html
+
 **Five Things to Know About Biden’s New Power Plant Rules**\
 `The Biden administration released a major climate regulation aimed at virtually eliminating carbon emissions from coal, the dirtiest of the fossil fuels and a driver of global warming.`\
 https://nytimes.com/2024/04/25/climate/joe-biden-climate-global-warming.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/us/tennessee-bill-teachers-guns.html
 **Supreme Court to Hear Trump’s Claim to ‘Absolute Immunity’**\
 `The justices will consider on Thursday whether the former president must face trial on charges that he tried to subvert the 2020 election.`\
 https://nytimes.com/2024/04/25/us/politics/trump-supreme-court-immunity-case.html
-
-**The Comedian Roy Wood Jr. on What’s Funny About 2024**\
-`A conversation about the power of Trump’s punchlines — and the jokes President Biden should be telling.`\
-https://nytimes.com/2024/04/25/podcasts/roy-wood-jr-trump-biden-political-comedy.html
 
