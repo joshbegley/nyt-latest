@@ -1,3 +1,19 @@
+**Donald J. Trump’s main argument: presidential immunity is required by the Constitution.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/donald-j-trumps-main-argument-presidential-immunity-is-required-by-the-constitution
+
+**Jack Smith’s main argument: No person is above the law.**\
+`In a Supreme Court brief, Jack Smith, the special counsel prosecuting the former president urged the justices to reject his claim of absolute immunity.`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/jack-smiths-main-argument-no-person-is-above-the-law
+
+**All four lower court judges who weighed Trump’s immunity argument rejected it.**\
+`By Charlie Savage`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/all-four-lower-court-judges-who-weighed-trumps-immunity-argument-rejected-it
+
+**Here’s what to know.**\
+`In a stunning 4-3 decision, the state’s highest court overturned the conviction of the disgraced movie producer, who in 2020 was found guilty of two felony sex crimes.`\
+https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/harvey-weinstein-conviction-appeal
+
 **‘Infested’ Review: Bugging Out**\
 `An apartment building in Paris is overrun by murderous arachnids and unsubtle allegory in this fleet and efficient debut feature.`\
 https://nytimes.com/2024/04/25/movies/infested-review.html
