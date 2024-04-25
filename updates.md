@@ -1,3 +1,7 @@
+**Honda Commits to E.V.s With Big Investment in Canada**\
+`The Japanese automaker, which has been slow to sell electric vehicles, said it would invest $11 billion to make batteries and cars in Ontario.`\
+https://nytimes.com/2024/04/25/business/honda-electric-vehicles-canada.html
+
 **Disney Scrapped Their Show. An Unlikely Champion Saved It.**\
 `Canceled by Disney before it even aired, “The Spiderwick Chronicles” found a new home at Roku and has so far “delivered results beyond expectations,” its creator said.`\
 https://nytimes.com/2024/04/25/arts/television/the-spiderwick-chronicles-roku.html

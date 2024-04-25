@@ -1,3 +1,7 @@
+**Honda Commits to E.V.s With Big Investment in Canada**\
+`The Japanese automaker, which has been slow to sell electric vehicles, said it would invest $11 billion to make batteries and cars in Ontario.`\
+https://nytimes.com/2024/04/25/business/honda-electric-vehicles-canada.html
+
 **Disney Scrapped Their Show. An Unlikely Champion Saved It.**\
 `Canceled by Disney before it even aired, “The Spiderwick Chronicles” found a new home at Roku and has so far “delivered results beyond expectations,” its creator said.`\
 https://nytimes.com/2024/04/25/arts/television/the-spiderwick-chronicles-roku.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/nyregion/trump-gag-order-violations.html
 **The Justice Department has already granted sitting presidents immunity while they are in office.**\
 `By Charlie Savage`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/the-justice-department-has-already-granted-sitting-presidents-immunity-while-they-are-in-office
-
-**Court in Iran Sentences Prominent Rapper to Death, His Lawyer Says**\
-`The rapper, Toomaj Salehi, was initially arrested after releasing music in support of the 2022 protests over the death of a young woman in police custody.`\
-https://nytimes.com/2024/04/25/world/middleeast/iran-rapper-toomaj-salehi-death-sentence.html
 
