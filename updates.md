@@ -1,3 +1,7 @@
+**Stormy Daniels’s Attempt to Sell Her Story Began the Road to Trial**\
+`After a tape emerged of Donald J. Trump discussing how he groped women, she quickly struck a deal.`\
+https://nytimes.com/2024/04/25/nyregion/stormy-daniels-trump-trial.html
+
 **The Supreme Court rejected Bill Clinton’s claim of immunity.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/the-supreme-court-rejected-bill-clintons-claim-of-immunity
