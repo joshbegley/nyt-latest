@@ -1,3 +1,19 @@
+**To the Sound of Gunshots, Haiti Installs a New Ruling Council**\
+`With that body in place, Prime Minister Ariel Henry resigned and the new leaders turned to the task of establishing order in a gang-ridden country.`\
+https://nytimes.com/2024/04/25/world/americas/haiti-council-gangs-henry.html
+
+**Mr. Weinstein’s criminal convictions in California still stand.**\
+`By Jan Ransom`\
+https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/mr-weinsteins-criminal-convictions-in-california-still-stand
+
+**Ex-Enquirer Publisher Says He and Others Around Trump Feared His Anger**\
+`They called Donald J. Trump “the boss.” The desire to avoid his fury drove many decisions made by those around him.`\
+https://nytimes.com/2024/04/25/nyregion/national-enquirer-pecker-trump.html
+
+**For Justice Alito, Presidents Stand Above the Law**\
+`He appears willing to allow Trump and future presidents to escape criminal prosecution for their acts.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/alito-trump-presidential-immunity
+
 **Heavy Rains and Floods Sweep Cities Across East Africa**\
 `Torrential downpours have submerged homes and farms in Tanzania, Kenya and Burundi, and more rain is expected.`\
 https://nytimes.com/2024/04/25/world/africa/kenya-flooding-rain-tanzania.html
