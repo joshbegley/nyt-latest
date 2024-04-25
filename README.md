@@ -1,3 +1,7 @@
+**To the Sound of Gunshots, Haiti Installs a New Ruling Council**\
+`With that body in place, Prime Minister Ariel Henry resigned and the new leaders turned to the task of establishing order in a gang-ridden country.`\
+https://nytimes.com/2024/04/25/world/americas/haiti-council-gangs-henry.html
+
 **Mr. Weinstein’s criminal convictions in California still stand.**\
 `By Jan Ransom`\
 https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/mr-weinsteins-criminal-convictions-in-california-still-stand
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/world/africa/kenya-flooding-rain-tanzania.html
 **Ukraine Could Use New Weapons to Hit Russian Targets in Crimea, Pentagon Says**\
 `The goal for a recent delivery of the coveted long-range missile system is to put more pressure on Russian forces in eastern parts of occupied Ukraine.`\
 https://nytimes.com/2024/04/25/us/politics/ukraine-aid-atacms.html
-
-**Severe Weather, Including a Tornado Risk, Is Forecast for the Central U.S.**\
-`Areas from Southern Texas to Michigan’s Upper Peninsula could see storms through the weekend.`\
-https://nytimes.com/2024/04/25/us/tornado-storms-plains.html
 
