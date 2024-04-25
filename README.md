@@ -1,3 +1,11 @@
+**The Supreme Court rejected Bill Clinton’s claim of immunity.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/the-supreme-court-rejected-bill-clintons-claim-of-immunity
+
+**For the Sake of Democracy, Celebrate Mike Johnson**\
+`In this one instance, at least, he stood on principle.`\
+https://nytimes.com/2024/04/25/opinion/mike-johnson-ukraine-aid.html
+
 **F.C.C. Votes to Restore Net Neutrality Rules**\
 `Commissioners voted along party lines to revive the rules that declare broadband as a utility-like service that could be regulated like phones and water.`\
 https://nytimes.com/2024/04/25/technology/fcc-net-neutrality-open-internet.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/25/arts/dance/errante-new-york-city-ballet-mira-nado
 **What Columbia Should Have Learned From the Protests of 1968**\
 `Sending in the police to arrest students only inflamed tensions on campus then. Why would this time be different?`\
 https://nytimes.com/2024/04/25/nyregion/columbia-protests-college-campus.html
-
-**Key Solar Panel Ingredient Is Made in the U.S.A. Again**\
-`REC Silicon says it will soon start shipping polysilicon, which has come mostly from China, reviving a Washington State factory that shut down in 2019.`\
-https://nytimes.com/2024/04/25/business/energy-environment/solar-panels-polysilicon-domestic.html
-
-**Honda Commits to E.V.s With Big Investment in Canada**\
-`The Japanese automaker, which has been slow to sell electric vehicles, said it would invest $11 billion to make batteries and cars in Ontario.`\
-https://nytimes.com/2024/04/25/business/honda-electric-vehicles-canada.html
 
