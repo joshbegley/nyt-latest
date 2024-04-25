@@ -26,9 +26,9 @@ https://nytimes.com/2024/04/25/us/politics/ukraine-aid-atacms.html
 `Areas from Southern Texas to Michigan’s Upper Peninsula could see storms through the weekend.`\
 https://nytimes.com/2024/04/25/us/tornado-storms-plains.html
 
-**What’s next: Much will turn on how quickly the court acts.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/trump-supreme-court-whats-next
+**What’s Next in Trump’s Immunity Case**\
+`Arguments heard in late April almost always yield decisions near the end of the court’s term, in late June or early July.`\
+https://nytimes.com/2024/04/25/us/politics/trump-supreme-court-whats-next.html
 
 **In their dissents, three judges offer sharp critiques of the majority’s decision.**\
 `By Maria Cramer`\
