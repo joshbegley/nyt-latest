@@ -1,3 +1,7 @@
+**Here’s the latest on the reversal of Weinstein’s conviction.**\
+`In a stunning 4-3 decision, the state’s highest court overturned the conviction of the disgraced movie producer, who in 2020 was found guilty of two felony sex crimes.`\
+https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/harvey-weinstein-conviction-appeal
+
 **Donald J. Trump’s main argument: presidential immunity is required by the Constitution.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/donald-j-trumps-main-argument-presidential-immunity-is-required-by-the-constitution
