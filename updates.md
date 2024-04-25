@@ -1,3 +1,7 @@
+**25mideast-crisis**\
+`Biden Reaffirms Commitment to Israel as He Signs Aid Bill`\
+https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas
+
 **Word of the Day: propound**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/25/learning/word-of-the-day-propound.html

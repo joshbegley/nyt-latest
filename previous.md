@@ -1,3 +1,7 @@
+**25mideast-crisis**\
+`Biden Reaffirms Commitment to Israel as He Signs Aid Bill`\
+https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas
+
 **Word of the Day: propound**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/25/learning/word-of-the-day-propound.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/technology/to-the-future-saudi-arabia-spends-big-
 **What to Know About Venice’s Fees for Day Trips**\
 `Venice is trying to mitigate overtourism with a small fee on busy days. City leaders hope it will make visitors more aware of the city’s fragility.`\
 https://nytimes.com/2024/04/25/world/europe/venice-access-fee.html
-
-**Europe’s Policymakers Get Ready to Lower Rates, Regardless of the Fed**\
-`European Central Bank governors are highlighting cooler inflation as a sign the bank could cut interest rates before the Federal Reserve.`\
-https://nytimes.com/2024/04/25/business/ecb-federal-reserve-interest-rates.html
 
