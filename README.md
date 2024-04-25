@@ -1,3 +1,7 @@
+**Trump Again Downplays White Supremacist March at Charlottesville**\
+`The former president portrayed largely peaceful pro-Palestinian protests on college campuses as “riots,” saying that “Charlottesville is like a ‘peanut’” in comparison.`\
+https://nytimes.com/2024/04/24/us/politics/trump-charlottesville-campus-protests.html
+
 **‘That’s the Spot!’**\
 `Hanh Huynh carves out a place for himself.`\
 https://nytimes.com/2024/04/24/crosswords/daily-puzzle-2024-04-25.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009432319/mike-johnson-columbia-univ
 **McKinsey Is Under Criminal Investigation for Its Opioid Work**\
 `Federal prosecutors are examining the consulting company’s role in helping “turbocharge” the sale of painkillers like OxyContin.`\
 https://nytimes.com/2024/04/24/business/mckinsey-criminal-investigation.html
-
-**Flooding Inundates Kenya, Killing at Least 32 and Displacing Thousands**\
-`The rain also killed farm animals and destroyed thousands of acres of crops.`\
-https://nytimes.com/2024/04/24/world/africa/kenya-flooding-nairobi-photos.html
 
