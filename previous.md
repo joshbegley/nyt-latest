@@ -1,3 +1,15 @@
+**Film Club: ‘A Day With a Dishwasher at a Top NYC Restaurant’**\
+`What are the unsung jobs that make the world a better — and tastier — place?`\
+https://nytimes.com/2024/04/25/learning/film-club-a-day-with-a-dishwasher-at-a-top-nyc-restaurant.html
+
+**Michael Cuscuna, Who Unearthed Hidden Jazz Gems, Dies at 75**\
+`Possibly the most prolific archival record producer in history, he was a founder of the Mosaic label, which became the gold standard of jazz reissues.`\
+https://nytimes.com/2024/04/25/arts/music/michael-cuscuna-dead.html
+
+**What is the Court of Appeals, and how does it work?**\
+`By Benjamin Weiser`\
+https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/what-is-the-court-of-appeals-and-how-does-it-work
+
 **To the Sound of Gunshots, Haiti Installs a New Ruling Council**\
 `With that body in place, Prime Minister Ariel Henry resigned and the new leaders turned to the task of establishing order in a gang-ridden country.`\
 https://nytimes.com/2024/04/25/world/americas/haiti-council-gangs-henry.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/a-spectacle-
 **Sheppie Abramowitz, Who Advocated Relief for Refugees, Dies at 88**\
 `She helped people fleeing conflicts in Vietnam, China, Kosovo and elsewhere around the world, and established the Washington office of the International Rescue Committee.`\
 https://nytimes.com/2024/04/25/world/asia/sheppie-abramowitz-dead.html
-
-**There’s History in These Cheese Pulls**\
-`Queso fundido is a gooey thrill, with a back story rooted in the Mexican Revolution.`\
-https://nytimes.com/2024/04/25/dining/queso-fundido.html
-
-**Heavy Rains and Floods Sweep Cities Across East Africa**\
-`Torrential downpours have submerged homes and farms in Tanzania, Kenya and Burundi, and more rain is expected.`\
-https://nytimes.com/2024/04/25/world/africa/kenya-flooding-rain-tanzania.html
-
-**Ukraine Could Use New Weapons to Hit Russian Targets in Crimea, Pentagon Says**\
-`The goal for a recent delivery of the coveted long-range missile system is to put more pressure on Russian forces in eastern parts of occupied Ukraine.`\
-https://nytimes.com/2024/04/25/us/politics/ukraine-aid-atacms.html
 
