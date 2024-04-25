@@ -1,3 +1,7 @@
+**In Trump Tower, a Secret-Keeper Is Praised Before the Inauguration**\
+`The publisher of the The National Enquirer was called upstairs and thanked for burying stories about Donald J. Trump, the president-elect.`\
+https://nytimes.com/2024/04/25/nyregion/david-pecker-trump-tower-meeting.html
+
 **Teenagers on the Greatest Gifts Their Parents Have Given Them**\
 `We invited students to tell us about the most meaningful values and life lessons they have learned from the adults in their lives.`\
 https://nytimes.com/2024/04/25/learning/teenagers-on-the-greatest-gifts-their-parents-have-given-them.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/24/opinion/thepoint/alito-trump-presidential-im
 **100 Pilot Whales Are Rescued After Mass Stranding in Australia**\
 `Of the 160 whales stranded near the town of Dunsborough on Thursday morning, more than 100 were returned to the ocean. Twenty-nine others, however, died on the beach.`\
 https://nytimes.com/2024/04/25/world/australia/pilot-whales-stranded-australia.html
-
-**A spectacle outside the Supreme Court for Trump’s defenders and detractors.**\
-`By Aishvarya Kavi`\
-https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/a-spectacle-outside-the-supreme-court-for-trumps-defenders-and-detractors
 
