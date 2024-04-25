@@ -1,3 +1,11 @@
+**A Chinese Firm Is America’s Favorite Drone Maker — Except in Washington**\
+`U.S. authorities consider DJI a security threat. Congress is weighing legislation to ban it, prompting a lobbying campaign from the company, which dominates the commercial and consumer drone markets.`\
+https://nytimes.com/2024/04/25/us/politics/us-china-drones-dji.html
+
+**Prosecutors Say Trump Keeps Breaking Gag Order, With Four New Violations**\
+`The judge in his criminal case is already considering whether to punish the former president for statements about jurors and witnesses in the case.`\
+https://nytimes.com/2024/04/25/nyregion/trump-gag-order-violations.html
+
 **The Justice Department has already granted sitting presidents immunity while they are in office.**\
 `By Charlie Savage`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/the-justice-department-has-already-granted-sitting-presidents-immunity-while-they-are-in-office
