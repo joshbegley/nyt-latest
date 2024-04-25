@@ -1,3 +1,11 @@
+**What’s next: Much will turn on how quickly the court acts.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/trump-supreme-court-whats-next
+
+**Emory in Atlanta Is Latest University to Crack Down on Protests**\
+`More than 400 demonstrators across the country have been taken into police custody since arrests at Columbia University in New York set off a wave of student activism nationwide.`\
+https://nytimes.com/2024/04/25/us/emory-atlanta-university-protests-israel.html
+
 **In their dissents, three judges express fury at the majority’s decision.**\
 `By Maria Cramer`\
 https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/in-their-dissents-three-judges-express-fury-at-the-majoritys-decision

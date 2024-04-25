@@ -1,3 +1,7 @@
+**What’s next: Much will turn on how quickly the court acts.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/trump-supreme-court-whats-next
+
 **In their dissents, three judges express fury at the majority’s decision.**\
 `By Maria Cramer`\
 https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/in-their-dissents-three-judges-express-fury-at-the-majoritys-decision
@@ -23,7 +27,7 @@ https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/weinsteins-
 https://nytimes.com/interactive/2024/04/25/nyregion/weinstein-appeal-ruling-overturned-ny.html
 
 **Emory in Atlanta Is Latest University to Crack Down on Protests**\
-`More than 400 demonstrators across the country have been taken into police custody since last Thursday, when arrests at Columbia University in New York set off a wave of student activism nationwide.`\
+`More than 400 demonstrators across the country have been taken into police custody since arrests at Columbia University in New York set off a wave of student activism nationwide.`\
 https://nytimes.com/2024/04/25/us/emory-atlanta-university-protests-israel.html
 
 **WADA Appoints Special Prosecutor in Chinese Doping Case**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/world/asia/wada-china-special-prosecutor-swimming
 **Stormy Daniels’s Attempt to Sell Her Story Began the Road to Trial**\
 `After a tape emerged of Donald J. Trump discussing how he groped women, she quickly struck a deal.`\
 https://nytimes.com/2024/04/25/nyregion/stormy-daniels-trump-trial.html
-
-**The Supreme Court rejected Bill Clinton’s claim of immunity.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/the-supreme-court-rejected-bill-clintons-claim-of-immunity
 
