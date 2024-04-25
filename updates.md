@@ -1,3 +1,11 @@
+**Ukraine Could Use New Weapons to Hit Russian Targets in Crimea, Pentagon Says**\
+`The goal for a recent delivery of the coveted long-range missile system is to put more pressure on Russian forces in eastern parts of occupied Ukraine.`\
+https://nytimes.com/2024/04/25/us/politics/ukraine-aid-atacms.html
+
+**Severe Weather, Including a Tornado Risk, Is Forecast for the Central U.S.**\
+`Areas from Southern Texas to Michigan’s Upper Peninsula could see storms through the weekend.`\
+https://nytimes.com/2024/04/25/us/tornado-storms-plains.html
+
 **What’s next: Much will turn on how quickly the court acts.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/trump-supreme-court-whats-next

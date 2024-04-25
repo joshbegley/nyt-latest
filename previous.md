@@ -1,3 +1,11 @@
+**Ukraine Could Use New Weapons to Hit Russian Targets in Crimea, Pentagon Says**\
+`The goal for a recent delivery of the coveted long-range missile system is to put more pressure on Russian forces in eastern parts of occupied Ukraine.`\
+https://nytimes.com/2024/04/25/us/politics/ukraine-aid-atacms.html
+
+**Severe Weather, Including a Tornado Risk, Is Forecast for the Central U.S.**\
+`Areas from Southern Texas to Michigan’s Upper Peninsula could see storms through the weekend.`\
+https://nytimes.com/2024/04/25/us/tornado-storms-plains.html
+
 **What’s next: Much will turn on how quickly the court acts.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/trump-supreme-court-whats-next
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/04/25/nyregion/weinstein-appeal-ruling-over
 **Emory in Atlanta Is Latest University to Crack Down on Protests**\
 `More than 400 demonstrators across the country have been taken into police custody since arrests at Columbia University in New York set off a wave of student activism nationwide.`\
 https://nytimes.com/2024/04/25/us/emory-atlanta-university-protests-israel.html
-
-**WADA Appoints Special Prosecutor in Chinese Doping Case**\
-`The decision to review the handling of positive tests collected from 23 swimmers came after an outcry from athletes and antidoping regulators.`\
-https://nytimes.com/2024/04/25/world/asia/wada-china-special-prosecutor-swimming.html
-
-**Stormy Daniels’s Attempt to Sell Her Story Began the Road to Trial**\
-`After a tape emerged of Donald J. Trump discussing how he groped women, she quickly struck a deal.`\
-https://nytimes.com/2024/04/25/nyregion/stormy-daniels-trump-trial.html
 
