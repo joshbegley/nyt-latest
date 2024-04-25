@@ -1,10 +1,14 @@
+**Friday Briefing: Supreme Court Hears Trump Immunity Case**\
+`Also, more bodies were found in a Gazan mass grave.`\
+https://nytimes.com/2024/04/25/world/asia/trump-immunity-gaza-grave-asia.html
+
 **Alphabet’s Revenue Jumps 15% to $80.5 Billion**\
 `Google’s parent company topped revenue and profit estimates and said that it would offer a stock dividend for the first time.`\
 https://nytimes.com/2024/04/25/technology/alphabet-earnings.html
 
 **U.S.C. Cancels Its Main Graduation Ceremony, Citing Security Concerns**\
 `There have been student protests and arrests, as well as controversy over the school’s decision to cancel the speech of its valedictorian.`\
-https://nytimes.com/2024/04/25/us/usc-cancels-graduation.html
+https://nytimes.com/2024/04/25/us/usc-cancels-graduation-campus-protests.html
 
 **Microsoft Reports Rising Revenues as A.I. Investments Bear Fruit**\
 `The tech giant’s quarterly results included strong growth in cloud computing, fueled by its services in generative artificial intelligence.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/dining/three-gluten-free-friendly-restaurants.htm
 **Mass Whale Stranding in Western Australia**\
 `Four pods of 160 pilot whales were stranded across a wide swath of beach at the Toby Inlet near the town of Dunsborough in Western Australia, wildlife officials said.`\
 https://nytimes.com/video/world/asia/100000009433656/whale-stranded-australia.html
-
-**José Andrés, founder of the World Central Kitchen, eulogizes 7 aid workers killed in Gaza.**\
-`By Kim Severson`\
-https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/jose-andres-founder-of-the-world-central-kitchen-eulogizes-7-aid-workers-killed-in-gaza
 
