@@ -1,3 +1,7 @@
+**Teenagers on the Greatest Gifts Their Parents Have Given Them**\
+`We invited students to tell us about the most meaningful values and life lessons they have learned from the adults in their lives.`\
+https://nytimes.com/2024/04/25/learning/teenagers-on-the-greatest-gifts-their-parents-have-given-them.html
+
 **Film Club: ‘A Day With a Dishwasher at a Top NYC Restaurant’**\
 `What are the unsung jobs that make the world a better — and tastier — place?`\
 https://nytimes.com/2024/04/25/learning/film-club-a-day-with-a-dishwasher-at-a-top-nyc-restaurant.html
