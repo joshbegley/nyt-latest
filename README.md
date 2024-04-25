@@ -1,3 +1,7 @@
+**What Columbia Should Have Learned From the Protests of 1968**\
+`Sending in the police to arrest students only inflamed tensions on campus then. Why would this time be different?`\
+https://nytimes.com/2024/04/25/nyregion/columbia-protests-college-campus.html
+
 **Key Solar Panel Ingredient Is Made in the U.S.A. Again**\
 `REC Silicon says it will soon start shipping polysilicon, which has come mostly from China, reviving a Washington State factory that shut down in 2019.`\
 https://nytimes.com/2024/04/25/business/energy-environment/solar-panels-polysilicon-domestic.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/the-preceden
 **A Chinese Firm Is America’s Favorite Drone Maker — Except in Washington**\
 `U.S. authorities consider DJI a security threat. Congress is weighing legislation to ban it, prompting a lobbying campaign from the company, which dominates the commercial and consumer drone markets.`\
 https://nytimes.com/2024/04/25/us/politics/us-china-drones-dji.html
-
-**Prosecutors Say Trump Keeps Breaking Gag Order, With Four New Violations**\
-`The judge in his criminal case is already considering whether to punish the former president for statements about jurors and witnesses in the case.`\
-https://nytimes.com/2024/04/25/nyregion/trump-gag-order-violations.html
 
