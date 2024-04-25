@@ -1,3 +1,7 @@
+**Weinstein’s Conviction Is Overturned: 5 Takeaways**\
+`The Court of Appeals overturned Harvey Weinstein’s 2020 conviction on sex crimes charges in New York, but he is not a free man. Here’s what to know.`\
+https://nytimes.com/2024/04/25/nyregion/weinstein-conviction-overturned-takeaways.html
+
 **What to Watch This Weekend: An Experiment from Comedy Weirdos**\
 `Perhaps you would enjoy “Knuckles,” a Sonic the Hedgehog spinoff that outpaces its origin story.`\
 https://nytimes.com/2024/04/25/arts/television/knuckles.html
@@ -19,7 +23,7 @@ https://nytimes.com/2024/04/25/us/usc-cancels-graduation-campus-protests.html
 https://nytimes.com/2024/04/25/technology/microsoft-earnings.html
 
 **In Trump Tower, the President-Elect Praised the Man Who Kept His Secrets**\
-`David Pecker, former publisher of The National Enquirer, found himself at a meeting of the future administration. Donald J. Trump thanked him for burying stories.`\
+`David Pecker, former publisher of The National Enquirer, said he found himself at a meeting of the future administration. He testified that Donald J. Trump thanked him for burying stories.`\
 https://nytimes.com/2024/04/25/nyregion/trump-david-pecker-hush-money-trial.html
 
 **Far-Right Greek Party Is Banned From E.U. Parliament Elections**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/world/middleeast/gaza-mass-grave-nasser-hospital.
 **Israel’s Claim of Killing ‘Half’ of Hezbollah Commanders in Southern Lebanon Draws Skepticism**\
 `The assertion is just “psychological warfare,” says one Lebanese expert on the militant group.`\
 https://nytimes.com/2024/04/25/world/middleeast/hezbollah-commanders-south-lebanon.html
-
-**Three Gluten-Free Friendly Restaurants**\
-`Go for Japanese at Nami Nori, Mexican at Claro and Indian American fast casual at Inday.`\
-https://nytimes.com/2024/04/25/dining/three-gluten-free-friendly-restaurants.html
 
