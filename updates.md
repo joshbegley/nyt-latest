@@ -1,3 +1,7 @@
+**One in Five Milk Samples Nationwide Shows Genetic Traces of Bird Flu**\
+`There is no evidence that the milk is unsafe to drink, scientists say. But the survey result strongly hints that the outbreak may be widespread.`\
+https://nytimes.com/2024/04/25/health/bird-flu-milk-fda.html
+
 **The Onion Is Sold by G/O Media**\
 `The satirical news website was bought by a new firm in Chicago that took inspiration for its name, Global Tetrahedron, from a book written by The Onion’s staff.`\
 https://nytimes.com/2024/04/25/business/media/the-onion-sold.html

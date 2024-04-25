@@ -1,3 +1,7 @@
+**One in Five Milk Samples Nationwide Shows Genetic Traces of Bird Flu**\
+`There is no evidence that the milk is unsafe to drink, scientists say. But the survey result strongly hints that the outbreak may be widespread.`\
+https://nytimes.com/2024/04/25/health/bird-flu-milk-fda.html
+
 **Peter Schey, Tenacious Lawyer Who Defended Migrant Rights, Dies at 77**\
 `He won the right to services like school and health care for people illegally crossing the border into the U.S. He also fought the Trump administration’s family separation policy.`\
 https://nytimes.com/2024/04/25/us/politics/peter-schey-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/health/penny-simkin-dead.html
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/04/25/books/review/new-books-recommendations.html
-
-**David Pecker, Trump’s Trash Collector, Got Cold Feet**\
-`He grew wary of his role suppressing bad stories about Trump.`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-pecker-mcdougal-testimony
 
