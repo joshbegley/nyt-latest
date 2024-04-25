@@ -1,4 +1,4 @@
-**U.S. Economy Grew at 1.6% Rate in First Quarter**\
+**U.S. Economy Grew at 1.6% Rate in First Quarter Slowdown**\
 `Consumers ensured that growth continued, but the latest data showed signs of vulnerability elsewhere.`\
 https://nytimes.com/2024/04/25/business/us-economy-gdp-growth.html
 
