@@ -1,3 +1,7 @@
+**What to Know About the Breakup of Scotland’s Coalition Government**\
+`The power-sharing agreement between the Scottish National Party and the Scottish Green Party ended abruptly on Thursday, marking a fresh period of turmoil for the S.N.P.`\
+https://nytimes.com/2024/04/25/world/europe/scotland-snp-green-government-coalition.html
+
 **U.S. to Withdraw Troops From Chad, Dealing Another Blow to Africa Policy**\
 `The departure of U.S. military personnel in Chad and Niger comes as both countries are turning away from years of cooperation with the United States and forming partnerships with Russia.`\
 https://nytimes.com/2024/04/25/us/politics/chad-us-troop-withdrawal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/business/honda-electric-vehicles-canada.html
 **Disney Scrapped Their Show. An Unlikely Champion Saved It.**\
 `Canceled by Disney before it even aired, “The Spiderwick Chronicles” found a new home at Roku and has so far “delivered results beyond expectations,” its creator said.`\
 https://nytimes.com/2024/04/25/arts/television/the-spiderwick-chronicles-roku.html
-
-**All In on Aloo Chicken**\
-`This shortcut version of a traditional Punjabi chicken and potato stew uses boneless chicken pieces and cashew butter for a brilliant dinner.`\
-https://nytimes.com/2024/04/25/dining/all-in-on-aloo-chicken.html
 

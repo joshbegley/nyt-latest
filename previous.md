@@ -1,3 +1,15 @@
+**U.S. to Withdraw Troops From Chad, Dealing Another Blow to Africa Policy**\
+`The departure of U.S. military personnel in Chad and Niger comes as both countries are turning away from years of cooperation with the United States and forming partnerships with Russia.`\
+https://nytimes.com/2024/04/25/us/politics/chad-us-troop-withdrawal.html
+
+**The Teen Trend of Sexual Choking**\
+`Responses to an essay about risks of choking during sex. Also: Abortion and the Supreme Court; Columbia unrest; hiring discrimination; Trump’s “fake news.”`\
+https://nytimes.com/2024/04/25/opinion/teen-sex-choking.html
+
+**Anthony Roth Costanzo, Star Countertenor, to Lead Opera Philadelphia**\
+`Costanzo will be a rare figure in classical music: an artist in his prime who is also working as an administrator.`\
+https://nytimes.com/2024/04/25/arts/music/anthony-roth-costanzo-director-opera-philadelphia.html
+
 **Problems with the I.D.F.’s deconfliction system existed before the strike on the W.C.K. convoy.**\
 `By Haley Willis, Robin Stein, Ainara Tiefenthäler, Natalie Reneau, Aaron Byrd and Anushka Patil`\
 https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/problems-with-the-idfs-deconfliction-system-existed-before-the-strike-on-the-wck-convoy
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/25/arts/television/the-spiderwick-chronicles-roku.ht
 **All In on Aloo Chicken**\
 `This shortcut version of a traditional Punjabi chicken and potato stew uses boneless chicken pieces and cashew butter for a brilliant dinner.`\
 https://nytimes.com/2024/04/25/dining/all-in-on-aloo-chicken.html
-
-**Biden and 17 other world leaders turn up heat on Hamas to free hostages.**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/biden-and-17-other-world-leaders-turn-up-heat-on-hamas-to-free-hostages
-
-**Popcast (Deluxe): Taylor Swift’s ‘Tortured’ Era**\
-`A discussion about the singer’s new album, “The Tortured Poets Department,” her “imperial era,” rumored relationships and production choices.`\
-https://nytimes.com/2024/04/25/arts/music/taylor-swift-tortured-poets-popcast-deluxe.html
-
-**Testimony by these witnesses was a key part of Weinstein’s appeal argument.**\
-`By Maria Cramer`\
-https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/testimony-by-these-witnesses-was-a-key-part-of-weinsteins-appeal-argument
 
