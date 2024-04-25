@@ -1,3 +1,7 @@
+**‘Challengers’ Review: A Love Match**\
+`Zendaya, Josh O’Connor and Mike Faist play friends, lovers and foes on and off the tennis court in Luca Guadagnino’s latest.`\
+https://nytimes.com/2024/04/25/movies/challengers-review-zendaya-mike-faist-josh-oconnor.html
+
 **The U.S. Is Flooded with Fake Botox. Here’s What to Watch Out For.**\
 `Counterfeit doses and unlicensed providers are harming patients, experts said.`\
 https://nytimes.com/2024/04/25/well/live/counterfeit-botox-risks.html
