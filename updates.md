@@ -1,3 +1,7 @@
+**The Crackdown on Student Protesters**\
+`Columbia University is at the center of a growing showdown over the war in Gaza and the limits of free speech.`\
+https://nytimes.com/2024/04/25/podcasts/the-daily/the-crackdown-on-student-protesters.html
+
 **A U.N. aid chief says ‘every day counts’ in efforts to relieve the suffering in Gaza.**\
 `By Matt Surman`\
 https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/a-un-aid-chief-says-every-day-counts-in-efforts-to-relieve-the-suffering-in-gaza
