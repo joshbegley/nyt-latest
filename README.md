@@ -1,3 +1,11 @@
+**U.S.C. Cancels Its Main Graduation Ceremony, Citing Security Concerns**\
+`There have been student protests and arrests, as well as controversy over the school’s decision to cancel the speech of its valedictorian.`\
+https://nytimes.com/2024/04/25/us/usc-cancels-graduation.html
+
+**Microsoft Reports Rising Revenues as A.I. Investments Bear Fruit**\
+`The tech giant’s quarterly results included strong growth in cloud computing, fueled by its services in generative artificial intelligence.`\
+https://nytimes.com/2024/04/25/technology/microsoft-earnings.html
+
 **In Trump Tower, the President-Elect Praised the Man Who Kept His Secrets**\
 `David Pecker, former publisher of The National Enquirer, found himself at a meeting of the future administration. Donald J. Trump thanked him for burying stories.`\
 https://nytimes.com/2024/04/25/nyregion/trump-david-pecker-hush-money-trial.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/jose-andres-foun
 **Ex-F.B.I. Lawyer Who Criticized Trump Says Bureau Failed to Warn Her About Stalker**\
 `A man who pleaded guilty to stalking the lawyer, Lisa Page, had been discharged from the Marines after expressing an obsession with her as well as mass shootings, information that was shared with the F.B.I.`\
 https://nytimes.com/2024/04/25/us/politics/lisa-page-john-perez-stalker.html
-
-**A Puzzling Move by a Political Survivor Grips Spain**\
-`Despite insisting that allegations of influence peddling against his wife are false, Prime Minister Pedro Sánchez says he is considering stepping down, bewildering Spain.`\
-https://nytimes.com/2024/04/25/world/europe/spain-pedro-sanchez.html
-
-**The fight over the future of plastics**\
-`As countries negotiate a landmark agreement to reduce plastic pollution, the industry is fighting a battle over regulations and over its image.`\
-https://nytimes.com/2024/04/25/climate/plastics-pollution-regulation-treaty.html
 
