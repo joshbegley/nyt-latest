@@ -10,7 +10,7 @@ https://nytimes.com/2024/04/25/us/tornado-storms-plains.html
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/trump-supreme-court-whats-next
 
-**In their dissents, three judges express fury at the majority’s decision.**\
+**In their dissents, three judges offer sharp critiques of the majority’s decision.**\
 `By Maria Cramer`\
 https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/in-their-dissents-three-judges-express-fury-at-the-majoritys-decision
 
