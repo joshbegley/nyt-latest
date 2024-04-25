@@ -1,3 +1,7 @@
+**What to Watch This Weekend: An Experiment from Comedy Weirdos**\
+`Perhaps you would enjoy “Knuckles,” a Sonic the Hedgehog spinoff that outpaces its origin story.`\
+https://nytimes.com/2024/04/25/arts/television/knuckles.html
+
 **Friday Briefing: Supreme Court Hears Trump Immunity Case**\
 `Also, more bodies were found in a Gazan mass grave.`\
 https://nytimes.com/2024/04/25/world/asia/trump-immunity-gaza-grave-asia.html
