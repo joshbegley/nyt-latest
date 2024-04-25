@@ -1,3 +1,7 @@
+**Campus Protests Over Gaza Intensify Amid Pushback by Universities and Police**\
+`There were dozens of new arrests, mostly in Texas, as universities moved to prevent pro-Palestinian encampments from taking hold as they have at Columbia University.`\
+https://nytimes.com/2024/04/24/us/college-protests-spread-austin-dallas.html
+
 **If Arizona Repeals Its Abortion Ban, the Far Right Won’t Blame Trump**\
 `He’s the only one allowed to be wobbly on abortion.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/if-arizona-repeals-its-abortion-ban-the-far-right-wont-blame-trump

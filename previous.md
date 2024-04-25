@@ -23,7 +23,7 @@ https://nytimes.com/2024/04/24/nyregion/jeridore-katz-school-crossing-guard-char
 https://nytimes.com/2024/04/24/us/arizona-fake-electors-trump.html
 
 **Campus Protests Over Gaza Intensify Amid Pushback by Universities and Police**\
-`There were nearly two dozen new arrests, mostly in Texas, as universities moved to prevent pro-Palestinian encampments from taking hold as they have at Columbia University.`\
+`There were dozens of new arrests, mostly in Texas, as universities moved to prevent pro-Palestinian encampments from taking hold as they have at Columbia University.`\
 https://nytimes.com/2024/04/24/us/college-protests-spread-austin-dallas.html
 
 **Johnson Condemns Pro-Palestinian Protests at Columbia University**\
