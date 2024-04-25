@@ -1,3 +1,7 @@
+**A U.N. aid chief says ‘every day counts’ in efforts to relieve the suffering in Gaza.**\
+`By Matt Surman`\
+https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/a-un-aid-chief-says-every-day-counts-in-efforts-to-relieve-the-suffering-in-gaza
+
 **These Playing Cards Have an Extra Motive. Flushing Out Suspects.**\
 `The 2,500 decks being issued to correctional facilities in southern Mississippi seek clues on missing persons and unsolved murders. Cold case cards sometimes bring useful tips to dormant investigations.`\
 https://nytimes.com/2024/04/25/us/project-cold-case-cards.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/realestate/housing-market-near-nyc.html
 **Tennessee Parents Question Whether Arming Teachers Is the Answer**\
 `Supporters of new legislation to allow some teachers to carry firearms say it will make the state’s schools safer. Many parents and educators are not convinced.`\
 https://nytimes.com/2024/04/25/us/tennessee-bill-teachers-guns.html
-
-**Supreme Court to Hear Trump’s Claim to ‘Absolute Immunity’**\
-`The justices will consider on Thursday whether the former president must face trial on charges that he tried to subvert the 2020 election.`\
-https://nytimes.com/2024/04/25/us/politics/trump-supreme-court-immunity-case.html
 
