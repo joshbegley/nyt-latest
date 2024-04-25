@@ -1,3 +1,11 @@
+**What counts as an official act as president?**\
+`By Alan Feuer and Charlie Savage`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/what-counts-as-an-official-act-as-president
+
+**Harvey Weinstein’s Conviction Was Fragile From the Start**\
+`New York’s highest court overturned a conviction on Thursday that tested how #MeToo cases could be tried.`\
+https://nytimes.com/2024/04/25/nyregion/harvey-weinstein-ny-conviction-metoo.html
+
 **Here are the lawyers arguing before the Supreme Court.**\
 `By Noah Weiland and Alan Feuer`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/here-are-the-lawyers-arguing-before-the-supreme-court

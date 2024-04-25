@@ -1,3 +1,11 @@
+**Hypothetical questions test the limits of Trump’s immunity claim.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/hypothetical-questions-test-the-limits-of-trumps-immunity-claim
+
+**Here’s a timeline of Weinstein’s New York case.**\
+`New York’s highest court tossed out the 2020 sex crime convictions of Harvey Weinstein in a reversal of a case that ignited the #MeToo movement.`\
+https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/heres-a-timeline-of-weinsteins-new-york-case
+
 **What counts as an official act as president?**\
 `By Alan Feuer and Charlie Savage`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/what-counts-as-an-official-act-as-president
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/25/nyregion/trump-trial-protest.html
 **Biden heads to Syracuse as Trump’s trial continues in Manhattan.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/25/us/biden-trump-election/biden-heads-to-syracuse-as-trumps-trial-continues-in-manhattan
-
-**In taking up Trump’s immunity claim, the Supreme Court bolstered his delay strategy.**\
-`By scheduling a hearing for late April on the former president’s assertion that he cannot be prosecuted for his actions in office, the justices increased the chances that he will not face trial by Election Day.`\
-https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/in-taking-up-trumps-immunity-claim-the-supreme-court-bolstered-his-delay-strategy
-
-**Read the Harvey Weinstein Appeal Ruling**\
-`The New York Court of Appeals found Thursday that the trial judge who presided over Harvey Weinstein’s case had made a crucial mistake, allowing prosecutors to call as witnesses a series of women who said Mr.`\
-https://nytimes.com/interactive/2024/04/25/nyregion/read-harvey-weinstein-appeal-ruling.html
 

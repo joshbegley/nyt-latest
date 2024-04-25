@@ -1,3 +1,11 @@
+**What counts as an official act as president?**\
+`By Alan Feuer and Charlie Savage`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/what-counts-as-an-official-act-as-president
+
+**Harvey Weinstein’s Conviction Was Fragile From the Start**\
+`New York’s highest court overturned a conviction on Thursday that tested how #MeToo cases could be tried.`\
+https://nytimes.com/2024/04/25/nyregion/harvey-weinstein-ny-conviction-metoo.html
+
 **Here are the lawyers arguing before the Supreme Court.**\
 `By Noah Weiland and Alan Feuer`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/here-are-the-lawyers-arguing-before-the-supreme-court
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/in-taking-up
 **Read the Harvey Weinstein Appeal Ruling**\
 `The New York Court of Appeals found Thursday that the trial judge who presided over Harvey Weinstein’s case had made a crucial mistake, allowing prosecutors to call as witnesses a series of women who said Mr.`\
 https://nytimes.com/interactive/2024/04/25/nyregion/read-harvey-weinstein-appeal-ruling.html
-
-**Trump Visits a Construction Site in Manhattan Before His Trial Resumes**\
-`The early morning campaign stop exemplifies the balancing act required for a candidate who is also a criminal defendant.`\
-https://nytimes.com/2024/04/25/us/politics/trump-construction-site-manhattan-trial.html
-
-**Donald J. Trump’s main argument: presidential immunity is required by the Constitution.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/donald-j-trumps-main-argument-presidential-immunity-is-required-by-the-constitution
 
