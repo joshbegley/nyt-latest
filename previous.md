@@ -1,3 +1,7 @@
+**Pennsylvania School Board Reinstates Gay Author’s Speech Amid Backlash**\
+`The Cumberland Valley School Board reversed its decision to cancel Maulik Pancholy’s speech at a middle school next month after many community members said the actor had been discriminated against because of his sexuality.`\
+https://nytimes.com/2024/04/24/us/maulik-pancholy-pennsylvania-school-decision.html
+
 **Trump Compares Campus Protests to Violent White Supremacist Rally in Charlottesville**\
 `The former president portrayed largely peaceful pro-Palestinian protests on college campuses as “riots,” saying that “Charlottesville is like a ‘peanut’” in comparison.`\
 https://nytimes.com/2024/04/24/us/politics/trump-charlottesville-campus-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/us/college-protests-spread-austin-dallas.html
 **Johnson Condemns Pro-Palestinian Protests at Columbia University**\
 `House Speaker Mike Johnson delivered brief remarks at Columbia University on Wednesday, demanding White House action and invoking the possibility of bringing in the National Guard to quell the pro-Palestinian protests. Students interrupted his speech with jeers.`\
 https://nytimes.com/video/us/politics/100000009432319/mike-johnson-columbia-university.html
-
-**McKinsey Is Under Criminal Investigation for Its Opioid Work**\
-`Federal prosecutors are examining the consulting company’s role in helping “turbocharge” the sale of painkillers like OxyContin.`\
-https://nytimes.com/2024/04/24/business/mckinsey-criminal-investigation.html
 

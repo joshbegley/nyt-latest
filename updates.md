@@ -1,3 +1,7 @@
+**Pennsylvania School Board Reinstates Gay Author’s Speech Amid Backlash**\
+`The Cumberland Valley School Board reversed its decision to cancel Maulik Pancholy’s speech at a middle school next month after many community members said the actor had been discriminated against because of his sexuality.`\
+https://nytimes.com/2024/04/24/us/maulik-pancholy-pennsylvania-school-decision.html
+
 **Trump Compares Campus Protests to Violent White Supremacist Rally in Charlottesville**\
 `The former president portrayed largely peaceful pro-Palestinian protests on college campuses as “riots,” saying that “Charlottesville is like a ‘peanut’” in comparison.`\
 https://nytimes.com/2024/04/24/us/politics/trump-charlottesville-campus-protests.html
