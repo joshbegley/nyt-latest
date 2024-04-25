@@ -1,3 +1,7 @@
+**Key Solar Panel Ingredient Is Made in the U.S.A. Again**\
+`REC Silicon says it will soon start shipping polysilicon, which has come mostly from China, reviving a Washington State factory that shut down in 2019.`\
+https://nytimes.com/2024/04/25/business/energy-environment/solar-panels-polysilicon-domestic.html
+
 **Honda Commits to E.V.s With Big Investment in Canada**\
 `The Japanese automaker, which has been slow to sell electric vehicles, said it would invest $11 billion to make batteries and cars in Ontario.`\
 https://nytimes.com/2024/04/25/business/honda-electric-vehicles-canada.html
