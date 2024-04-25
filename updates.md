@@ -1,3 +1,11 @@
+**F.C.C. Votes to Restore Net Neutrality Rules**\
+`Commissioners voted along party lines to revive the rules that declare broadband as a utility-like service that could be regulated like phones and water.`\
+https://nytimes.com/2024/04/25/technology/fcc-net-neutrality-open-internet.html
+
+**What to Know About the Breakup of Scotland’s Coalition Government**\
+`The power-sharing agreement between the Scottish National Party and the Scottish Green Party ended abruptly on Thursday, marking a fresh period of turmoil for the S.N.P.`\
+https://nytimes.com/2024/04/25/world/europe/scotland-snp-green-government-coalition.html
+
 **U.S. to Withdraw Troops From Chad, Dealing Another Blow to Africa Policy**\
 `The departure of U.S. military personnel in Chad and Niger comes as both countries are turning away from years of cooperation with the United States and forming partnerships with Russia.`\
 https://nytimes.com/2024/04/25/us/politics/chad-us-troop-withdrawal.html
