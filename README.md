@@ -1,3 +1,7 @@
+**Stormy Daniels’s Attempt to Sell Her Story Began the Road to Trial**\
+`After a tape emerged of Donald J. Trump discussing how he groped women, she quickly struck a deal.`\
+https://nytimes.com/2024/04/25/nyregion/stormy-daniels-trump-trial.html
+
 **The Supreme Court rejected Bill Clinton’s claim of immunity.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/the-supreme-court-rejected-bill-clintons-claim-of-immunity
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/problems-with-th
 **A Wanderer, Ravel and Suzanne Farrell: Life Is Good at City Ballet**\
 `The spring season at New York City Ballet opened with an all-Balanchine program and a vintage miniature from 1975: “Errante,” staged for a new generation.`\
 https://nytimes.com/2024/04/25/arts/dance/errante-new-york-city-ballet-mira-nadon-suzanne-farrell.html
-
-**What Columbia Should Have Learned From the Protests of 1968**\
-`Sending in the police to arrest students only inflamed tensions on campus then. Why would this time be different?`\
-https://nytimes.com/2024/04/25/nyregion/columbia-protests-college-campus.html
 
