@@ -1,6 +1,6 @@
 **Protest Materializes as Trump Has Cases Heard in Two Courts**\
 `Marchers closed down a street calling for the former president to face justice.`\
-https://nytimes.com/2024/04/25/nyregion/trump-trial-protest-manh.html
+https://nytimes.com/2024/04/25/nyregion/trump-trial-protest.html
 
 **Biden heads to Syracuse as Trump’s trial continues in Manhattan.**\
 `By Chris Cameron`\
