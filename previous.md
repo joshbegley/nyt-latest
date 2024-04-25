@@ -1,3 +1,11 @@
+**9 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/04/25/books/review/new-books-recommendations.html
+
+**David Pecker, Trump’s Trash Collector, Got Cold Feet**\
+`He grew wary of his role suppressing bad stories about Trump.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-pecker-mcdougal-testimony
+
 **The Supreme Court Hints at a Break for Trump**\
 `The justices could issue a ruling that would make a trial in the Jan. 6 case unlikely before the election.`\
 https://nytimes.com/2024/04/25/us/politics/trump-trial-supreme-court-immunity.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/25/us/usc-cancels-graduation-campus-protests.html
 **Microsoft Reports Rising Revenues as A.I. Investments Bear Fruit**\
 `The tech giant’s quarterly results included strong growth in cloud computing, fueled by its services in generative artificial intelligence.`\
 https://nytimes.com/2024/04/25/technology/microsoft-earnings.html
-
-**In Trump Tower, the President-Elect Praised the Man Who Kept His Secrets**\
-`David Pecker, former publisher of The National Enquirer, said he found himself at a meeting of the future administration. He testified that Donald J. Trump thanked him for burying stories.`\
-https://nytimes.com/2024/04/25/nyregion/trump-david-pecker-hush-money-trial.html
-
-**Far-Right Greek Party Is Banned From E.U. Parliament Elections**\
-`The Supreme Court in Greece found that Spartans had “offered their party as a cloak” for the former spokesman of the banned neo-Nazi party Golden Dawn.`\
-https://nytimes.com/2024/04/25/world/europe/greece-far-right-european-parliament.html
 
