@@ -1,3 +1,7 @@
+**Trump Again Downplays White Supremacist March at Charlottesville**\
+`The former president portrayed largely peaceful pro-Palestinian protests on college campuses as “riots,” saying that “Charlottesville is like a ‘peanut’” in comparison.`\
+https://nytimes.com/2024/04/24/us/politics/trump-charlottesville-campus-protests.html
+
 **Campus Protests Over Gaza Intensify Amid Pushback by Universities and Police**\
 `There were dozens of new arrests, mostly in Texas, as universities moved to prevent pro-Palestinian encampments from taking hold as they have at Columbia University.`\
 https://nytimes.com/2024/04/24/us/college-protests-spread-austin-dallas.html
