@@ -1,3 +1,7 @@
+**The Onion Is Sold by G/O Media**\
+`The satirical news website was bought by a new firm in Chicago that took inspiration for its name, Global Tetrahedron, from a book written by The Onion’s staff.`\
+https://nytimes.com/2024/04/25/business/media/the-onion-sold.html
+
 **Peter Schey, Tenacious Lawyer Who Defended Migrant Rights, Dies at 77**\
 `He won the right to services like school and health care for people illegally crossing the border into the U.S. He also fought the Trump administration’s family separation policy.`\
 https://nytimes.com/2024/04/25/us/politics/peter-schey-dead.html

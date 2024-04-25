@@ -6,7 +6,7 @@ https://nytimes.com/2024/04/25/us/politics/peter-schey-dead.html
 `David Pecker told jurors of a universe in which favors for celebrities were demanded and dispensed. His cross-examination will continue Friday.`\
 https://nytimes.com/2024/04/25/nyregion/pecker-mdcougal-daniels-testimony-takeaways.html
 
-**The Onion Sold by G/O Media**\
+**The Onion Is Sold by G/O Media**\
 `The satirical news website was bought by a new firm in Chicago that took inspiration for its name, Global Tetrahedron, from a book written by The Onion’s staff.`\
 https://nytimes.com/2024/04/25/business/media/the-onion-sold.html
 
