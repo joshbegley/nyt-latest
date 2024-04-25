@@ -1,3 +1,7 @@
+**A Wanderer, Ravel and Suzanne Farrell: Life Is Good at City Ballet**\
+`The spring season at New York City Ballet opened with an all-Balanchine program and a vintage miniature from 1975: “Errante,” staged for a new generation.`\
+https://nytimes.com/2024/04/25/arts/dance/errante-new-york-city-ballet-mira-nadon-suzanne-farrell.html
+
 **What Columbia Should Have Learned From the Protests of 1968**\
 `Sending in the police to arrest students only inflamed tensions on campus then. Why would this time be different?`\
 https://nytimes.com/2024/04/25/nyregion/columbia-protests-college-campus.html
