@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Signs suggest that Israel will likely invade Rafah.`\
+https://nytimes.com/2024/04/25/briefing/israel-rafah-attack-ukraine-aid.html
+
 **There Is No TikTok in China, but There Is Douyin. Here’s What It Is.**\
 `ByteDance owns both TikTok and Douyin, and although TikTok has more users around the world, Douyin is the company’s cash cow and a China mainstay.`\
 https://nytimes.com/2024/04/25/business/china-tiktok-douyin.html
