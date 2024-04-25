@@ -1,3 +1,7 @@
+**The Supreme Court Hints at a Break for Trump**\
+`The justices could issue a ruling that would make a trial in the Jan. 6 case unlikely before the election.`\
+https://nytimes.com/2024/04/25/us/politics/trump-trial-supreme-court-immunity.html
+
 **University of Southern California Confronts an Unfamiliar Era of Protest**\
 `The 144-year-old Los Angeles institution has not had a reputation for campus activism, but it now finds itself embroiled in controversies over the war in Gaza.`\
 https://nytimes.com/2024/04/25/us/usc-southern-california-protest.html

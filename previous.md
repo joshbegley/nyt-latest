@@ -1,3 +1,7 @@
+**The Supreme Court Hints at a Break for Trump**\
+`The justices could issue a ruling that would make a trial in the Jan. 6 case unlikely before the election.`\
+https://nytimes.com/2024/04/25/us/politics/trump-trial-supreme-court-immunity.html
+
 **University of Southern California Confronts an Unfamiliar Era of Protest**\
 `The 144-year-old Los Angeles institution has not had a reputation for campus activism, but it now finds itself embroiled in controversies over the war in Gaza.`\
 https://nytimes.com/2024/04/25/us/usc-southern-california-protest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/nyregion/trump-david-pecker-hush-money-trial.html
 **Far-Right Greek Party Is Banned From E.U. Parliament Elections**\
 `The Supreme Court in Greece found that Spartans had “offered their party as a cloak” for the former spokesman of the banned neo-Nazi party Golden Dawn.`\
 https://nytimes.com/2024/04/25/world/europe/greece-far-right-european-parliament.html
-
-**Gaza Authorities Say More Bodies Were Discovered in Mass Grave**\
-`An analysis of satellite imagery and videos by the The Times found that two of three graves had been dug on a hospital’s grounds before an Israeli raid.`\
-https://nytimes.com/2024/04/25/world/middleeast/gaza-mass-grave-nasser-hospital.html
 
