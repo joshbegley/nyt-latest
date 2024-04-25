@@ -1,3 +1,7 @@
+**Speaking Russian in America**\
+`A visit to Ukraine and Russia would allow my son to see that his mother’s native language wasn’t a quirk of hers but something normal for millions of people.`\
+https://nytimes.com/2024/04/25/opinion/russia-ukraine-war-mother.html
+
 **These Issues Are Testing the U.S.-China Thaw**\
 `Secretary of State Antony J. Blinken is in China this week as tensions have risen over trade, security, Russia’s war on Ukraine and the Middle East crisis.`\
 https://nytimes.com/2024/04/25/world/asia/blinken-china-united-states-thaw.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/us/maulik-pancholy-pennsylvania-school-decision.h
 **Trump Compares Campus Protests to Violent White Supremacist Rally in Charlottesville**\
 `The former president portrayed largely peaceful pro-Palestinian protests on college campuses as “riots,” saying that “Charlottesville is like a ‘peanut’” in comparison.`\
 https://nytimes.com/2024/04/24/us/politics/trump-charlottesville-campus-protests.html
-
-**‘That’s the Spot!’**\
-`Hanh Huynh carves out a place for himself.`\
-https://nytimes.com/2024/04/24/crosswords/daily-puzzle-2024-04-25.html
 

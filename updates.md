@@ -1,3 +1,7 @@
+**Speaking Russian in America**\
+`A visit to Ukraine and Russia would allow my son to see that his mother’s native language wasn’t a quirk of hers but something normal for millions of people.`\
+https://nytimes.com/2024/04/25/opinion/russia-ukraine-war-mother.html
+
 **These Issues Are Testing the U.S.-China Thaw**\
 `Secretary of State Antony J. Blinken is in China this week as tensions have risen over trade, security, Russia’s war on Ukraine and the Middle East crisis.`\
 https://nytimes.com/2024/04/25/world/asia/blinken-china-united-states-thaw.html
