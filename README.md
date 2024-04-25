@@ -1,19 +1,3 @@
-**Biden heads to Syracuse as Trump’s trial continues in Manhattan.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/04/25/us/biden-trump-election/biden-heads-to-syracuse-as-trumps-trial-continues-in-manhattan
-
-**In taking up Trump’s immunity claim, the Supreme Court bolstered his delay strategy.**\
-`By scheduling a hearing for late April on the former president’s assertion that he cannot be prosecuted for his actions in office, the justices increased the chances that he will not face trial by Election Day.`\
-https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/in-taking-up-trumps-immunity-claim-the-supreme-court-bolstered-his-delay-strategy
-
-**Read the Ruling**\
-`In a 4-3 decision, the New York Court of Appeals found that the trial judge who presided over Mr.`\
-https://nytimes.com/interactive/2024/04/25/nyregion/read-harvey-weinstein-appeal-ruling.html
-
-**Trump Visits a Construction Site in Manhattan Before His Trial Resumes**\
-`The early morning campaign stop exemplifies the balancing act required for a candidate who is also a criminal defendant.`\
-https://nytimes.com/2024/04/25/us/politics/trump-construction-site-manhattan-trial.html
-
 **Donald J. Trump’s main argument: presidential immunity is required by the Constitution.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/donald-j-trumps-main-argument-presidential-immunity-is-required-by-the-constitution
@@ -37,4 +21,20 @@ https://nytimes.com/2024/04/25/t-magazine/bakeries-greenpoint-brooklyn.html
 **What Will Happen to West Cliff Drive in Santa Cruz?**\
 `Mayor Fred Keely likened trying to shore up the erosion-threatened West Cliff Drive to changing a tire while the car is still moving.`\
 https://nytimes.com/2024/04/25/us/west-cliff-drive-santa-cruz.html
+
+**TikTok Broke the Tech Law Logjam. Can That Success Be Repeated?**\
+`For years, federal lawmakers have tried to pass legislation to rein in the tech giants. The TikTok law was their first success.`\
+https://nytimes.com/2024/04/25/technology/tiktok-ban-bill-tech-law.html
+
+**U.S. Economy Grew at 1.6% Rate in First Quarter Slowdown**\
+`Consumers ensured that growth continued, but the latest data showed signs of vulnerability elsewhere.`\
+https://nytimes.com/2024/04/25/business/us-economy-gdp-growth.html
+
+**25trump-trial**\
+`Live Updates: Tabloid Publisher to Resume Testimony in Trump Trial`\
+https://nytimes.com/live/2024/04/25/nyregion/trump-hush-money-trial-news
+
+**‘Challengers’: Normcore Clothes on Sweaty Bodies**\
+`Zendaya breaks hearts in a stylish tennis love triangle.`\
+https://nytimes.com/2024/04/25/style/challengers-fashion-zendaya-anderson-guadagnino.html
 
