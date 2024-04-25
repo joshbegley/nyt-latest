@@ -1,3 +1,7 @@
+**A Wanderer, Ravel and Suzanne Farrell: Life Is Good at City Ballet**\
+`The spring season at New York City Ballet opened with an all-Balanchine program and a vintage miniature from 1975: “Errante,” staged for a new generation.`\
+https://nytimes.com/2024/04/25/arts/dance/errante-new-york-city-ballet-mira-nadon-suzanne-farrell.html
+
 **What Columbia Should Have Learned From the Protests of 1968**\
 `Sending in the police to arrest students only inflamed tensions on campus then. Why would this time be different?`\
 https://nytimes.com/2024/04/25/nyregion/columbia-protests-college-campus.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/testimony-b
 **The precedent most helpful to Trump: Nixon v. Fitzgerald.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/the-precedent-most-helpful-to-trump-nixon-v-fitzgerald
-
-**A Chinese Firm Is America’s Favorite Drone Maker — Except in Washington**\
-`U.S. authorities consider DJI a security threat. Congress is weighing legislation to ban it, prompting a lobbying campaign from the company, which dominates the commercial and consumer drone markets.`\
-https://nytimes.com/2024/04/25/us/politics/us-china-drones-dji.html
 
