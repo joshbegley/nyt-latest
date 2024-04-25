@@ -1,3 +1,11 @@
+**Heavy Rains and Floods Sweep Cities Across East Africa**\
+`Torrential downpours have submerged homes and farms in Tanzania, Kenya and Burundi, and more rain is expected.`\
+https://nytimes.com/2024/04/25/world/africa/kenya-flooding-rain-tanzania.html
+
+**What’s Next in Trump’s Immunity Case**\
+`Arguments heard in late April almost always yield decisions near the end of the court’s term, in late June or early July.`\
+https://nytimes.com/2024/04/25/us/politics/trump-supreme-court-whats-next.html
+
 **29 Pilot Whales Die After Mass Stranding on Australian Beach**\
 `Of the 160 whales stranded near the town of Dunsborough on Thursday morning, more than 100 were saved and returned to the ocean.`\
 https://nytimes.com/2024/04/25/world/australia/pilot-whales-stranded-australia.html
