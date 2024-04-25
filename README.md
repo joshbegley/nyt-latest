@@ -1,3 +1,11 @@
+**Harvey Weinstein and the Limits of ‘He Said, She Said’**\
+`She said, she said, she said, she said can be ruled inadmissible.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/weinstein-overturned-charges
+
+**Here are four takeaways from the Supreme Court hearing on Trump’s claim to immunity.**\
+`Several justices signaled interest in some protections for official acts, which could impede a swift trial in the federal election subversion case.`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/supreme-court-trump-immunity-takeaways
+
 **Welcome to Venice. That’ll Be 5 Euros, Please.**\
 `Venice’s first day implementing a fee to enter the historic center went mostly smoothly, but there were some protests and polemics, as well.`\
 https://nytimes.com/2024/04/25/world/europe/venice-entry-fee-protests.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/25/world/americas/haiti-council-gangs-henry.html
 **Mr. Weinstein’s criminal convictions in California still stand.**\
 `By Jan Ransom`\
 https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/mr-weinsteins-criminal-convictions-in-california-still-stand
-
-**Ex-Enquirer Publisher Says He and Others Around Trump Feared His Anger**\
-`They called Donald J. Trump “the boss.” The desire to avoid his fury drove many decisions made by those around him.`\
-https://nytimes.com/2024/04/25/nyregion/national-enquirer-pecker-trump.html
-
-**For Justice Alito, Presidents Stand Above the Law**\
-`He appears willing to allow Trump and future presidents to escape criminal prosecution for their acts.`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/alito-trump-presidential-immunity
 
