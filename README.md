@@ -16,7 +16,7 @@ https://nytimes.com/2024/04/25/dining/queso-fundido.html
 
 **Heavy Rains and Floods Sweep Cities Across East Africa**\
 `Torrential downpours have submerged homes and farms in Tanzania, Kenya and Burundi, and more rain is expected.`\
-https://nytimes.com/2024/04/25/world/africa/heavy-rains-and-floods-sweep-cities-across-east-africa.html
+https://nytimes.com/2024/04/25/world/africa/kenya-flooding-rain-tanzania.html
 
 **Ukraine Could Use New Weapons to Hit Russian Targets in Crimea, Pentagon Says**\
 `The goal for a recent delivery of the coveted long-range missile system is to put more pressure on Russian forces in eastern parts of occupied Ukraine.`\
