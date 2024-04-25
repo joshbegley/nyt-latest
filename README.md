@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/04/24/opinion/thepoint/weinstein-overturned-charge
 
 **Here are four takeaways from the Supreme Court hearing on Trump’s claim to immunity.**\
 `Several justices signaled interest in some protections for official acts, which could impede a swift trial in the federal election subversion case.`\
-https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/supreme-court-trump-immunity-takeaways
+https://nytimes.com/2024/04/25/us/politics/supreme-court-trump-immunity-takeaways.html
 
 **Welcome to Venice. That’ll Be 5 Euros, Please.**\
 `Venice’s first day implementing a fee to enter the historic center went mostly smoothly, but there were some protests and polemics, as well.`\
