@@ -1,3 +1,7 @@
+**If Arizona Repeals Its Abortion Ban, the Far Right Won’t Blame Trump**\
+`He’s the only one allowed to be wobbly on abortion.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/if-arizona-repeals-its-abortion-ban-the-far-right-wont-blame-trump
+
 **‘That’s the Spot!’**\
 `Hanh Huynh carves out a place for himself.`\
 https://nytimes.com/2024/04/24/crosswords/daily-puzzle-2024-04-25.html

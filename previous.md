@@ -6,7 +6,7 @@ https://nytimes.com/2024/04/24/crosswords/daily-puzzle-2024-04-25.html
 `Arizona on Wednesday indicted Rudolph W. Giuliani, Mark Meadows and a number of others who advised Donald J. Trump during the 2020 election, as well as the fake electors who acted on Mr. Trump’s behalf to try to keep him in power despite his loss in the state. Here is the indictment.`\
 https://nytimes.com/interactive/2024/04/25/us/8060c776-7afa-4400-ba06-ecf8b7cd1549.html
 
-**If Arizona Repeals its Abortion Ban, the Far Right Won’t Blame Trump**\
+**If Arizona Repeals Its Abortion Ban, the Far Right Won’t Blame Trump**\
 `He’s the only one allowed to be wobbly on abortion.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/if-arizona-repeals-its-abortion-ban-the-far-right-wont-blame-trump
 
