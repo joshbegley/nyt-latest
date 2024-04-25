@@ -1,3 +1,7 @@
+**Protest Materializes as Trump Has Cases Heard in Two Courts**\
+`Marchers closed down a street calling for the former president to face justice.`\
+https://nytimes.com/2024/04/25/nyregion/trump-trial-protest-manh.html
+
 **Biden heads to Syracuse as Trump’s trial continues in Manhattan.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/25/us/biden-trump-election/biden-heads-to-syracuse-as-trumps-trial-continues-in-manhattan
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/harvey-wein
 **Greenpoint, Brooklyn, Is the Place to Go for Inventive Pastries and Fresh Bread**\
 `Plus: a vase designed by Alice Waters, sculptures made from recycled CDs and more recommendations from T Magazine.`\
 https://nytimes.com/2024/04/25/t-magazine/bakeries-greenpoint-brooklyn.html
-
-**What Will Happen to West Cliff Drive in Santa Cruz?**\
-`Mayor Fred Keely likened trying to shore up the erosion-threatened West Cliff Drive to changing a tire while the car is still moving.`\
-https://nytimes.com/2024/04/25/us/west-cliff-drive-santa-cruz.html
 
