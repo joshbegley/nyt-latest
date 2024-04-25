@@ -22,7 +22,7 @@ https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/trump-suprem
 `By Maria Cramer`\
 https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/in-their-dissents-three-judges-express-fury-at-the-majoritys-decision
 
-**‘Challengers’ Review: A Love Match**\
+**‘Challengers’ Review: Game, Set, Love Matches**\
 `Zendaya, Josh O’Connor and Mike Faist play friends, lovers and foes on and off the tennis court in Luca Guadagnino’s latest.`\
 https://nytimes.com/2024/04/25/movies/challengers-review-zendaya-mike-faist-josh-oconnor.html
 
