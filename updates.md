@@ -1,3 +1,11 @@
+**Welcome to Venice. That’ll Be 5 Euros, Please.**\
+`Venice’s first day implementing a fee to enter the historic center went mostly smoothly, but there were some protests and polemics, as well.`\
+https://nytimes.com/2024/04/25/world/europe/venice-entry-fee-protests.html
+
+**Trump Trial Witness Says President-Elect Praised Him for Keeping Secrets**\
+`The publisher of the The National Enquirer said he was called upstairs at Trump Tower to a postelection meeting where Donald J. Trump introduced him to future White House figures.`\
+https://nytimes.com/2024/04/25/nyregion/david-pecker-trump-tower-meeting.html
+
 **In Trump Tower, a Secret-Keeper Is Praised Before the Inauguration**\
 `The publisher of the The National Enquirer was called upstairs and thanked for burying stories about Donald J. Trump, the president-elect.`\
 https://nytimes.com/2024/04/25/nyregion/david-pecker-trump-tower-meeting.html
