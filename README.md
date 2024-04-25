@@ -1,3 +1,7 @@
+**How to Claim Your Part of a $5.6 Million Ring Settlement**\
+`The Federal Trade Commission is sending payments to customers who had certain Ring home security cameras and accounts during a particular time period, the agency said.`\
+https://nytimes.com/2024/04/25/technology/ring-settlement-claim.html
+
 **Why Are We Gambling With America’s Future?**\
 `Don’t bet the house on a rosy future.`\
 https://nytimes.com/2024/04/25/opinion/us-federal-debt.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/us/politics/gaza-aid-pier.html
 **Four, Including a Pregnant Teen, Die in Fiery Crash During Police Chase**\
 `The state police in Pennsylvania were pursuing the car in connection with thefts in the area.`\
 https://nytimes.com/2024/04/25/us/crash-pennsylvania-pregnant-teen.html
-
-**Justices Seemed Ready to Limit Election Case Against Trump**\
-`Also, Harvey Weinstein’s New York conviction was overturned.`\
-https://nytimes.com/2024/04/25/briefing/supreme-court-trump-immunity-weinstein-new-york.html
 
