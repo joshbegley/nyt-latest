@@ -1,3 +1,15 @@
+**The Justice Department has already granted sitting presidents immunity while they are in office.**\
+`By Charlie Savage`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/the-justice-department-has-already-granted-sitting-presidents-immunity-while-they-are-in-office
+
+**Court in Iran Sentences Prominent Rapper to Death, His Lawyer Says**\
+`The rapper, Toomaj Salehi, was initially arrested after releasing music in support of the protests that roiled the country in 2022 over the death of a young woman in police custody.`\
+https://nytimes.com/2024/04/25/world/middleeast/iran-rapper-toomaj-salehi-death-sentence.html
+
+**A Not-So-Great Economic Report**\
+`Growth could be better, but we’re still on track for a soft landing.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/krugman-growth-inflation-report
+
 **Southwest Quits Four Airports in Cost-Cutting Drive**\
 `The airline expects fewer deliveries of Boeing planes than before, and cited “significant challenges” in achieving growth plans because of it.`\
 https://nytimes.com/2024/04/25/business/southwest-airlines-boeing-airports.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/25/nyregion/weinstein-new-york-case-timeline-metoo.h
 **What counts as an official act as president?**\
 `By Alan Feuer and Charlie Savage`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/what-counts-as-an-official-act-as-president
-
-**Harvey Weinstein’s Conviction Was Fragile From the Start**\
-`New York’s highest court overturned a conviction on Thursday that tested how #MeToo cases could be tried.`\
-https://nytimes.com/2024/04/25/nyregion/harvey-weinstein-ny-conviction-metoo.html
-
-**Here are the lawyers arguing before the Supreme Court.**\
-`By Noah Weiland and Alan Feuer`\
-https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/here-are-the-lawyers-arguing-before-the-supreme-court
-
-**Macron, Battling the Far Right at Home, Pushes for a Stronger Europe**\
-`In a major speech, France’s president returned to a familiar theme, warning that “Our Europe is mortal” if it does not become more self-sufficient.`\
-https://nytimes.com/2024/04/25/world/europe/france-macron-far-right-eu.html
 

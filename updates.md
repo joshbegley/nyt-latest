@@ -1,3 +1,15 @@
+**The Justice Department has already granted sitting presidents immunity while they are in office.**\
+`By Charlie Savage`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/the-justice-department-has-already-granted-sitting-presidents-immunity-while-they-are-in-office
+
+**Court in Iran Sentences Prominent Rapper to Death, His Lawyer Says**\
+`The rapper, Toomaj Salehi, was initially arrested after releasing music in support of the protests that roiled the country in 2022 over the death of a young woman in police custody.`\
+https://nytimes.com/2024/04/25/world/middleeast/iran-rapper-toomaj-salehi-death-sentence.html
+
+**A Not-So-Great Economic Report**\
+`Growth could be better, but we’re still on track for a soft landing.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/krugman-growth-inflation-report
+
 **Southwest Quits Four Airports in Cost-Cutting Drive**\
 `The airline expects fewer deliveries of Boeing planes than before, and cited “significant challenges” in achieving growth plans because of it.`\
 https://nytimes.com/2024/04/25/business/southwest-airlines-boeing-airports.html
