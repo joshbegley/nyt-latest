@@ -1,3 +1,7 @@
+**Penny Simkin, ‘Mother of the Doula Movement,’ Dies at 85**\
+`As a childbirth educator and maternal advocate, she promoted a profession that provides comfort to women giving birth and offers postpartum care as well.`\
+https://nytimes.com/2024/04/25/health/penny-simkin-dead.html
+
 **9 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/04/25/books/review/new-books-recommendations.html
