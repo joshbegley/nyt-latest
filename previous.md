@@ -1,3 +1,7 @@
+**University of Southern California Confronts an Unfamiliar Era of Protest**\
+`The 144-year-old Los Angeles institution has not had a reputation for campus activism, but it now finds itself embroiled in controversies over the war in Gaza.`\
+https://nytimes.com/2024/04/25/us/usc-southern-california-protest.html
+
 **Weinstein’s Conviction Is Overturned: 5 Takeaways**\
 `The Court of Appeals overturned Harvey Weinstein’s 2020 conviction on sex crimes charges in New York, but he is not a free man. Here’s what to know.`\
 https://nytimes.com/2024/04/25/nyregion/weinstein-conviction-overturned-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/world/europe/greece-far-right-european-parliament
 **Gaza Authorities Say More Bodies Were Discovered in Mass Grave**\
 `An analysis of satellite imagery and videos by the The Times found that two of three graves had been dug on a hospital’s grounds before an Israeli raid.`\
 https://nytimes.com/2024/04/25/world/middleeast/gaza-mass-grave-nasser-hospital.html
-
-**Israel’s Claim of Killing ‘Half’ of Hezbollah Commanders in Southern Lebanon Draws Skepticism**\
-`The assertion is just “psychological warfare,” says one Lebanese expert on the militant group.`\
-https://nytimes.com/2024/04/25/world/middleeast/hezbollah-commanders-south-lebanon.html
 
