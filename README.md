@@ -1,5 +1,9 @@
-**In Trump Tower, a Secret-Keeper Is Praised Before the Inauguration**\
-`The publisher of the The National Enquirer was called upstairs and thanked for burying stories about Donald J. Trump, the president-elect.`\
+**Welcome to Venice. That’ll Be 5 Euros, Please.**\
+`Venice’s first day implementing a fee to enter the historic center went mostly smoothly, but there were some protests and polemics, as well.`\
+https://nytimes.com/2024/04/25/world/europe/venice-entry-fee-protests.html
+
+**Trump Trial Witness Says President-Elect Praised Him for Keeping Secrets**\
+`The publisher of the The National Enquirer said he was called upstairs at Trump Tower to a postelection meeting where Donald J. Trump introduced him to future White House figures.`\
 https://nytimes.com/2024/04/25/nyregion/david-pecker-trump-tower-meeting.html
 
 **Teenagers on the Greatest Gifts Their Parents Have Given Them**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/nyregion/national-enquirer-pecker-trump.html
 **For Justice Alito, Presidents Stand Above the Law**\
 `He appears willing to allow Trump and future presidents to escape criminal prosecution for their acts.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/alito-trump-presidential-immunity
-
-**100 Pilot Whales Are Rescued After Mass Stranding in Australia**\
-`Of the 160 whales stranded near the town of Dunsborough on Thursday morning, more than 100 were returned to the ocean. Twenty-nine others, however, died on the beach.`\
-https://nytimes.com/2024/04/25/world/australia/pilot-whales-stranded-australia.html
 
