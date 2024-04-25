@@ -10,9 +10,9 @@ https://nytimes.com/2024/04/25/books/review/helen-vendler-appraisal.html
 `By Adam Liptak`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/hypothetical-questions-test-the-limits-of-trumps-immunity-claim
 
-**Here’s a timeline of Weinstein’s New York case.**\
+**A Timeline of Weinstein’s New York Case**\
 `New York’s highest court tossed out the 2020 sex crime convictions of Harvey Weinstein in a reversal of a case that ignited the #MeToo movement.`\
-https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/weinstein-new-york-case-timeline-metoo
+https://nytimes.com/2024/04/25/nyregion/weinstein-new-york-case-timeline-metoo.html
 
 **What counts as an official act as president?**\
 `By Alan Feuer and Charlie Savage`\

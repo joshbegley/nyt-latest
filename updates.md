@@ -1,3 +1,7 @@
+**A Timeline of Weinstein’s New York Case**\
+`New York’s highest court tossed out the 2020 sex crime convictions of Harvey Weinstein in a reversal of a case that ignited the #MeToo movement.`\
+https://nytimes.com/2024/04/25/nyregion/weinstein-new-york-case-timeline-metoo.html
+
 **A New Battery Warns Parents if Their Child Has Swallowed It**\
 `The new battery by Energizer, with “color alert technology,” comes nearly two years after a report warned that more children were swallowing batteries.`\
 https://nytimes.com/2024/04/25/business/energizer-battery-child-safety.html
