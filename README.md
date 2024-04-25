@@ -1,3 +1,15 @@
+**Mr. Weinstein’s criminal convictions in California still stand.**\
+`By Jan Ransom`\
+https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/mr-weinsteins-criminal-convictions-in-california-still-stand
+
+**Ex-Enquirer Publisher Says He and Others Around Trump Feared His Anger**\
+`They called Donald J. Trump “the boss.” The desire to avoid his fury drove many decisions made by those around him.`\
+https://nytimes.com/2024/04/25/nyregion/national-enquirer-pecker-trump.html
+
+**For Justice Alito, Presidents Stand Above the Law**\
+`He appears willing to allow Trump and future presidents to escape criminal prosecution for their acts.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/alito-trump-presidential-immunity
+
 **29 Pilot Whales Die After Mass Stranding on Australian Beach**\
 `Of the 160 whales stranded near the town of Dunsborough on Thursday morning, more than 100 were saved and returned to the ocean.`\
 https://nytimes.com/2024/04/25/world/australia/pilot-whales-stranded-australia.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/25/us/politics/ukraine-aid-atacms.html
 **Severe Weather, Including a Tornado Risk, Is Forecast for the Central U.S.**\
 `Areas from Southern Texas to Michigan’s Upper Peninsula could see storms through the weekend.`\
 https://nytimes.com/2024/04/25/us/tornado-storms-plains.html
-
-**What’s Next in Trump’s Immunity Case**\
-`Arguments heard in late April almost always yield decisions near the end of the court’s term, in late June or early July.`\
-https://nytimes.com/2024/04/25/us/politics/trump-supreme-court-whats-next.html
-
-**In their dissents, three judges offer sharp critiques of the majority’s decision.**\
-`By Maria Cramer`\
-https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/in-their-dissents-three-judges-express-fury-at-the-majoritys-decision
-
-**‘Challengers’ Review: Game, Set, Love Matches**\
-`Zendaya, Josh O’Connor and Mike Faist play friends, lovers and foes on and off the tennis court in Luca Guadagnino’s latest.`\
-https://nytimes.com/2024/04/25/movies/challengers-review-zendaya-mike-faist-josh-oconnor.html
 
