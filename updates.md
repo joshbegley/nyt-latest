@@ -1,3 +1,7 @@
+**Emory in Atlanta Is Latest University to Crack Down on Protests**\
+`More than 400 demonstrators across the country have been taken into police custody since last Thursday, when arrests at Columbia University in New York set off a wave of student activism nationwide.`\
+https://nytimes.com/2024/04/25/us/emory-atlanta-university-protests-israel.html
+
 **WADA Appoints Special Prosecutor in Chinese Doping Case**\
 `The decision to review the handling of positive tests collected from 23 swimmers came after an outcry from athletes and antidoping regulators.`\
 https://nytimes.com/2024/04/25/world/asia/wada-china-special-prosecutor-swimming.html

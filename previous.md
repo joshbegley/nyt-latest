@@ -1,3 +1,7 @@
+**Emory in Atlanta Is Latest University to Crack Down on Protests**\
+`More than 400 demonstrators across the country have been taken into police custody since last Thursday, when arrests at Columbia University in New York set off a wave of student activism nationwide.`\
+https://nytimes.com/2024/04/25/us/emory-atlanta-university-protests-israel.html
+
 **WADA Appoints Special Prosecutor in Chinese Doping Case**\
 `The decision to review the handling of positive tests collected from 23 swimmers came after an outcry from athletes and antidoping regulators.`\
 https://nytimes.com/2024/04/25/world/asia/wada-china-special-prosecutor-swimming.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/opinion/teen-sex-choking.html
 **Anthony Roth Costanzo, Star Countertenor, to Lead Opera Philadelphia**\
 `Costanzo will be a rare figure in classical music: an artist in his prime who is also working as an administrator.`\
 https://nytimes.com/2024/04/25/arts/music/anthony-roth-costanzo-director-opera-philadelphia.html
-
-**Problems with the I.D.F.’s deconfliction system existed before the strike on the W.C.K. convoy.**\
-`By Haley Willis, Robin Stein, Ainara Tiefenthäler, Natalie Reneau, Aaron Byrd and Anushka Patil`\
-https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/problems-with-the-idfs-deconfliction-system-existed-before-the-strike-on-the-wck-convoy
 
