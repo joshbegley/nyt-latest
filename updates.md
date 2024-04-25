@@ -1,3 +1,7 @@
+**What Columbia Should Have Learned From the Protests of 1968**\
+`Sending in the police to arrest students only inflamed tensions on campus then. Why would this time be different?`\
+https://nytimes.com/2024/04/25/nyregion/columbia-protests-college-campus.html
+
 **Key Solar Panel Ingredient Is Made in the U.S.A. Again**\
 `REC Silicon says it will soon start shipping polysilicon, which has come mostly from China, reviving a Washington State factory that shut down in 2019.`\
 https://nytimes.com/2024/04/25/business/energy-environment/solar-panels-polysilicon-domestic.html
