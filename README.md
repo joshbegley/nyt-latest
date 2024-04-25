@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Signs suggest that Israel will likely invade Rafah.`\
+https://nytimes.com/2024/04/25/briefing/israel-rafah-attack-ukraine-aid.html
+
 **There Is No TikTok in China, but There Is Douyin. Here’s What It Is.**\
 `ByteDance owns both TikTok and Douyin, and although TikTok has more users around the world, Douyin is the company’s cash cow and a China mainstay.`\
 https://nytimes.com/2024/04/25/business/china-tiktok-douyin.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/25/us/8060c776-7afa-4400-ba06-ecf8b7cd15
 **If Arizona Repeals Its Abortion Ban, the Far Right Won’t Blame Trump**\
 `He’s the only one allowed to be wobbly on abortion.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/if-arizona-repeals-its-abortion-ban-the-far-right-wont-blame-trump
-
-**Review: Steve Carell as the 50-Year-Old Loser in a Comic ‘Uncle Vanya’**\
-`Sleek, lucid, amusing, often beautiful, it’s Chekhov with everything, except the main thing.`\
-https://nytimes.com/2024/04/24/theater/uncle-vanya-review-steve-carell.html
 
