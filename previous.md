@@ -1,3 +1,11 @@
+**Chaos and Oppression**\
+`The central question for universities responding to protests is whether to prioritize the preservation of order or the desire of students to denounce oppression.`\
+https://nytimes.com/2024/04/25/briefing/college-protests.html
+
+**Moulin Rouge’s Windmill Blades Fall Off in Paris**\
+`Firefighters were called overnight after the blades crashed to the ground. Nobody was hurt, and the famed cabaret venue will stay open.`\
+https://nytimes.com/2024/04/25/world/europe/moulin-rouge-windmill-paris.html
+
 **The Crackdown on Student Protesters**\
 `Columbia University is at the center of a growing showdown over the war in Gaza and the limits of free speech.`\
 https://nytimes.com/2024/04/25/podcasts/the-daily/the-crackdown-on-student-protesters.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/04/25/realestate/atlanta-georgia-house-sale
 **What Everyday Object Deserves More Love?**\
 `An Instagram account devoted to sticks (yes, sticks!) is gaining an enthusiastic following. What overlooked object do you think merits more appreciation — and even a hashtag?`\
 https://nytimes.com/2024/04/25/learning/what-everyday-object-deserves-more-love.html
-
-**How Paris Changed the Expat Artists**\
-`An exhibition at the Grey Art Museum explores the fervid postwar scene in Paris, where Ellsworth Kelly, Joan Mitchell and others learned lessons America couldn’t teach them.`\
-https://nytimes.com/2024/04/25/arts/design/expat-artists-paris-grey-museum.html
-
-**Homes for Sale in New York and Connecticut**\
-`This week’s properties are a five-bedroom in New Canaan, Conn., and a four-bedroom in Chappaqua, N.Y.`\
-https://nytimes.com/2024/04/25/realestate/housing-market-near-nyc.html
 

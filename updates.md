@@ -1,3 +1,11 @@
+**Chaos and Oppression**\
+`The central question for universities responding to protests is whether to prioritize the preservation of order or the desire of students to denounce oppression.`\
+https://nytimes.com/2024/04/25/briefing/college-protests.html
+
+**Moulin Rouge’s Windmill Blades Fall Off in Paris**\
+`Firefighters were called overnight after the blades crashed to the ground. Nobody was hurt, and the famed cabaret venue will stay open.`\
+https://nytimes.com/2024/04/25/world/europe/moulin-rouge-windmill-paris.html
+
 **The Crackdown on Student Protesters**\
 `Columbia University is at the center of a growing showdown over the war in Gaza and the limits of free speech.`\
 https://nytimes.com/2024/04/25/podcasts/the-daily/the-crackdown-on-student-protesters.html
