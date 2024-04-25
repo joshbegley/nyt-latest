@@ -1,3 +1,7 @@
+**Court in Iran Sentences Prominent Rapper to Death, His Lawyer Says**\
+`The rapper, Toomaj Salehi, was initially arrested after releasing music in support of the 2022 protests over the death of a young woman in police custody.`\
+https://nytimes.com/2024/04/25/world/middleeast/iran-rapper-toomaj-salehi-death-sentence.html
+
 **A Chinese Firm Is America’s Favorite Drone Maker — Except in Washington**\
 `U.S. authorities consider DJI a security threat. Congress is weighing legislation to ban it, prompting a lobbying campaign from the company, which dominates the commercial and consumer drone markets.`\
 https://nytimes.com/2024/04/25/us/politics/us-china-drones-dji.html
