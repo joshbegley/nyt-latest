@@ -1,3 +1,11 @@
+**Now We’re (Barely) Cooking**\
+`Capital-E easy vegetarian dinners: miso-mascarpone pasta, sheet-pan japchae and everyday dal.`\
+https://nytimes.com/2024/04/25/dining/now-were-barely-cooking.html
+
+**The U.S. is Flooded with Fake Botox. Here’s What to Watch Out For.**\
+`Counterfeit doses and unlicensed providers are harming patients, experts said.`\
+https://nytimes.com/2024/04/25/well/live/counterfeit-botox-risks.html
+
 **Weinstein’s accusers express fury and disappointment over the court’s ruling.**\
 `By Maia Coleman`\
 https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/weinsteins-accusers-express-fury-and-disappointment-over-the-courts-ruling
