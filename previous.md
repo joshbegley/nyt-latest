@@ -1,3 +1,15 @@
+**Gaza Authorities Say More Bodies Discovered in Mass Grave**\
+`An analysis of satellite imagery and videos by the The Times found that two of three graves had been dug on a hospital’s grounds before an Israeli raid.`\
+https://nytimes.com/live/2024/04/25/world/israel-gaza-war-hamas/gaza-mass-grave-nasser-hospital
+
+**Israel’s Claim of Killing ‘Half’ of Hezbollah Commanders in Southern Lebanon Draws Skepticism**\
+`The assertion is just “psychological warfare,” says one Lebanese expert on the militant group.`\
+https://nytimes.com/2024/04/25/world/middleeast/hezbollah-commanders-south-lebanon.html
+
+**Three Gluten-Free Friendly Restaurants**\
+`Go for Japanese at Nami Nori, Mexican at Claro and Indian American fast casual at Inday.`\
+https://nytimes.com/2024/04/25/dining/three-gluten-free-friendly-restaurants.html
+
 **Mass Whale Stranding in Western Australia**\
 `Four pods of 160 pilot whales were stranded across a wide swath of beach at the Toby Inlet near the town of Dunsborough in Western Australia, wildlife officials said.`\
 https://nytimes.com/video/world/asia/100000009433656/whale-stranded-australia.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/25/dining/jose-andres-wck-workers-gaza.html
 **Agent Removed From Harris’s Detail After ‘Distressing’ Behavior**\
 `The Secret Service agent was removed during an incident on Monday morning shortly before Vice President Kamala Harris left for a campaign event in Wisconsin.`\
 https://nytimes.com/2024/04/25/us/politics/kamala-harris-secret-service.html
-
-**Harvey Weinstein and the Limits of ‘He Said, She Said’**\
-`She said, she said, she said, she said can be ruled inadmissible.`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/weinstein-overturned-charges
-
-**Here are four takeaways from the Supreme Court hearing on Trump’s claim to immunity.**\
-`Several justices signaled interest in some protections for official acts, which could impede a swift trial in the federal election subversion case.`\
-https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/supreme-court-trump-immunity-takeaways
-
-**Welcome to Venice. That’ll Be 5 Euros, Please.**\
-`Venice’s first day of charging a fee to enter the historic center went mostly smoothly, but there were some protests and polemics.`\
-https://nytimes.com/2024/04/25/world/europe/venice-entry-fee-protests.html
 
