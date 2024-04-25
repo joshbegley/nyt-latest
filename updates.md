@@ -1,3 +1,7 @@
+**These Playing Cards Have an Extra Motive. Flushing Out Suspects.**\
+`The 2,500 decks being issued to correctional facilities in southern Mississippi seek clues on missing persons and unsolved murders. Cold case cards sometimes bring useful tips to dormant investigations.`\
+https://nytimes.com/2024/04/25/us/project-cold-case-cards.html
+
 **Five Things to Know About Biden’s New Power Plant Rules**\
 `The Biden administration released a major climate regulation aimed at virtually eliminating carbon emissions from coal, the dirtiest of the fossil fuels and a driver of global warming.`\
 https://nytimes.com/2024/04/25/climate/joe-biden-climate-global-warming.html
