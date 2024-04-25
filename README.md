@@ -1,3 +1,7 @@
+**Peter Schey, Tenacious Lawyer Who Defended Migrant Rights, Dies at 77**\
+`He won the right to services like school and health care for people illegally crossing the border into the U.S. He also fought the Trump administration’s family separation policy.`\
+https://nytimes.com/2024/04/25/us/politics/peter-schey-dead.html
+
 **5 Takeaways From David Pecker’s Testimony in Trump’s Criminal Trial**\
 `David Pecker told jurors of a universe in which favors for celebrities were demanded and dispensed. His cross-examination will continue Friday.`\
 https://nytimes.com/2024/04/25/nyregion/pecker-mdcougal-daniels-testimony-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/books/review/new-books-recommendations.html
 **David Pecker, Trump’s Trash Collector, Got Cold Feet**\
 `He grew wary of his role suppressing bad stories about Trump.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-pecker-mcdougal-testimony
-
-**The Supreme Court Hints at a Break for Trump**\
-`The justices could issue a ruling that would make a trial in the Jan. 6 case unlikely before the election.`\
-https://nytimes.com/2024/04/25/us/politics/trump-trial-supreme-court-immunity.html
 
