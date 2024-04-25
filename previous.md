@@ -1,3 +1,7 @@
+**These Issues Are Testing the U.S.-China Thaw**\
+`Secretary of State Antony J. Blinken is in China this week as tensions have risen over trade, security, Russia’s war on Ukraine and the Middle East crisis.`\
+https://nytimes.com/2024/04/25/world/asia/blinken-china-united-states-thaw.html
+
 **Blinken Tours China to Promote Some Ties, While the U.S. Severs Others**\
 `Tensions over economic ties are running high, threatening to disrupt a fragile cooperation between the U.S. and China.`\
 https://nytimes.com/2024/04/25/business/economy/blinken-china-trade.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/24/us/politics/trump-charlottesville-campus-protests
 **‘That’s the Spot!’**\
 `Hanh Huynh carves out a place for himself.`\
 https://nytimes.com/2024/04/24/crosswords/daily-puzzle-2024-04-25.html
-
-**Read the Arizona Election Indictment**\
-`Arizona on Wednesday indicted Rudolph W. Giuliani, Mark Meadows and a number of others who advised Donald J. Trump during the 2020 election, as well as the fake electors who acted on Mr. Trump’s behalf to try to keep him in power despite his loss in the state. Here is the indictment.`\
-https://nytimes.com/interactive/2024/04/25/us/8060c776-7afa-4400-ba06-ecf8b7cd1549.html
 

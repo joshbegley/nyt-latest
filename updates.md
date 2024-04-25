@@ -1,3 +1,7 @@
+**These Issues Are Testing the U.S.-China Thaw**\
+`Secretary of State Antony J. Blinken is in China this week as tensions have risen over trade, security, Russia’s war on Ukraine and the Middle East crisis.`\
+https://nytimes.com/2024/04/25/world/asia/blinken-china-united-states-thaw.html
+
 **Blinken Tours China to Promote Some Ties, While the U.S. Severs Others**\
 `Tensions over economic ties are running high, threatening to disrupt a fragile cooperation between the U.S. and China.`\
 https://nytimes.com/2024/04/25/business/economy/blinken-china-trade.html
