@@ -1,3 +1,7 @@
+**Ex-F.B.I. Lawyer Who Criticized Trump Says Bureau Failed to Warn Her About Stalker**\
+`A man who pleaded guilty to stalking the lawyer, Lisa Page, had been discharged from the Marines after expressing an obsession with her as well as mass shootings, information that was shared with the F.B.I.`\
+https://nytimes.com/2024/04/25/us/politics/lisa-page-john-perez-stalker.html
+
 **A Puzzling Move by a Political Survivor Grips Spain**\
 `Despite insisting that allegations of influence peddling against his wife are false, Prime Minister Pedro Sánchez says he is considering stepping down, bewildering Spain.`\
 https://nytimes.com/2024/04/25/world/europe/spain-pedro-sanchez.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/nyregion/david-pecker-trump-tower-meeting.html
 **Teenagers on the Greatest Gifts Their Parents Have Given Them**\
 `We invited students to tell us about the most meaningful values and life lessons they have learned from the adults in their lives.`\
 https://nytimes.com/2024/04/25/learning/teenagers-on-the-greatest-gifts-their-parents-have-given-them.html
-
-**Film Club: ‘A Day With a Dishwasher at a Top NYC Restaurant’**\
-`What are the unsung jobs that make the world a better — and tastier — place?`\
-https://nytimes.com/2024/04/25/learning/film-club-a-day-with-a-dishwasher-at-a-top-nyc-restaurant.html
 
