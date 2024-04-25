@@ -1,3 +1,7 @@
+**29 Pilot Whales Die After Mass Stranding on Australian Beach**\
+`Of the 160 whales stranded near the town of Dunsborough on Thursday morning, more than 100 were saved and returned to the ocean.`\
+https://nytimes.com/2024/04/25/world/australia/pilot-whales-stranded-australia.html
+
 **A spectacle outside the Supreme Court for Trump’s defenders and detractors.**\
 `By Aishvarya Kavi`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/a-spectacle-outside-the-supreme-court-for-trumps-defenders-and-detractors

@@ -1,3 +1,7 @@
+**29 Pilot Whales Die After Mass Stranding on Australian Beach**\
+`Of the 160 whales stranded near the town of Dunsborough on Thursday morning, more than 100 were saved and returned to the ocean.`\
+https://nytimes.com/2024/04/25/world/australia/pilot-whales-stranded-australia.html
+
 **A spectacle outside the Supreme Court for Trump’s defenders and detractors.**\
 `By Aishvarya Kavi`\
 https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/a-spectacle-outside-the-supreme-court-for-trumps-defenders-and-detractors
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/in-their-di
 **‘Challengers’ Review: Game, Set, Love Matches**\
 `Zendaya, Josh O’Connor and Mike Faist play friends, lovers and foes on and off the tennis court in Luca Guadagnino’s latest.`\
 https://nytimes.com/2024/04/25/movies/challengers-review-zendaya-mike-faist-josh-oconnor.html
-
-**Now We’re (Barely) Cooking**\
-`Capital-E easy vegetarian dinners: miso-mascarpone pasta, sheet-pan japchae and everyday dal.`\
-https://nytimes.com/2024/04/25/dining/now-were-barely-cooking.html
 
