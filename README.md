@@ -3,7 +3,7 @@
 https://nytimes.com/2024/04/25/nyregion/trump-david-pecker-hush-money-trial.html
 
 **Far-Right Greek Party Is Banned From E.U. Parliament Elections**\
-`The Supreme Court in Greece found that Spartans had “offered their party as a cloak” for the former spokesman of the banned neo-Nazi party Golden Dawn`\
+`The Supreme Court in Greece found that Spartans had “offered their party as a cloak” for the former spokesman of the banned neo-Nazi party Golden Dawn.`\
 https://nytimes.com/2024/04/25/world/europe/greece-far-right-european-parliament.html
 
 **Gaza Authorities Say More Bodies Discovered in Mass Grave**\
