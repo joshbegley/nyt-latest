@@ -1,3 +1,11 @@
+**Weinstein’s accusers express fury and disappointment over the court’s ruling.**\
+`By Maia Coleman`\
+https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/weinsteins-accusers-express-fury-and-disappointment-over-the-courts-ruling
+
+**The Harvey Weinstein Appeal Ruling, Annotated**\
+`Read the ruling from New York’s top court that overturned the 2020 conviction of Harvey Weinstein on felony sex crime charges in Manhattan, with context and explanation by New York Times journalists.`\
+https://nytimes.com/interactive/2024/04/25/nyregion/weinstein-appeal-ruling-overturned-ny.html
+
 **Emory in Atlanta Is Latest University to Crack Down on Protests**\
 `More than 400 demonstrators across the country have been taken into police custody since last Thursday, when arrests at Columbia University in New York set off a wave of student activism nationwide.`\
 https://nytimes.com/2024/04/25/us/emory-atlanta-university-protests-israel.html

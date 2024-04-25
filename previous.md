@@ -1,3 +1,11 @@
+**Weinstein’s accusers express fury and disappointment over the court’s ruling.**\
+`By Maia Coleman`\
+https://nytimes.com/live/2024/04/25/nyregion/harvey-weinstein-appeal/weinsteins-accusers-express-fury-and-disappointment-over-the-courts-ruling
+
+**The Harvey Weinstein Appeal Ruling, Annotated**\
+`Read the ruling from New York’s top court that overturned the 2020 conviction of Harvey Weinstein on felony sex crime charges in Manhattan, with context and explanation by New York Times journalists.`\
+https://nytimes.com/interactive/2024/04/25/nyregion/weinstein-appeal-ruling-overturned-ny.html
+
 **Emory in Atlanta Is Latest University to Crack Down on Protests**\
 `More than 400 demonstrators across the country have been taken into police custody since last Thursday, when arrests at Columbia University in New York set off a wave of student activism nationwide.`\
 https://nytimes.com/2024/04/25/us/emory-atlanta-university-protests-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/25/world/europe/scotland-snp-green-government-coalit
 **U.S. to Withdraw Troops From Chad, Dealing Another Blow to Africa Policy**\
 `The departure of U.S. military personnel in Chad and Niger comes as both countries are turning away from years of cooperation with the United States and forming partnerships with Russia.`\
 https://nytimes.com/2024/04/25/us/politics/chad-us-troop-withdrawal.html
-
-**The Teen Trend of Sexual Choking**\
-`Responses to an essay about risks of choking during sex. Also: Abortion and the Supreme Court; Columbia unrest; hiring discrimination; Trump’s “fake news.”`\
-https://nytimes.com/2024/04/25/opinion/teen-sex-choking.html
-
-**Anthony Roth Costanzo, Star Countertenor, to Lead Opera Philadelphia**\
-`Costanzo will be a rare figure in classical music: an artist in his prime who is also working as an administrator.`\
-https://nytimes.com/2024/04/25/arts/music/anthony-roth-costanzo-director-opera-philadelphia.html
 
