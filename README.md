@@ -1,3 +1,7 @@
+**A Puzzling Move by a Political Survivor Grips Spain**\
+`Despite insisting that allegations of influence peddling against his wife are false, Prime Minister Pedro Sánchez says he is considering stepping down, bewildering Spain.`\
+https://nytimes.com/2024/04/25/world/europe/spain-pedro-sanchez.html
+
 **The fight over the future of plastics**\
 `As countries negotiate a landmark agreement to reduce plastic pollution, the industry is fighting a battle over regulations and over its image.`\
 https://nytimes.com/2024/04/25/climate/plastics-pollution-regulation-treaty.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/learning/teenagers-on-the-greatest-gifts-their-pa
 **Film Club: ‘A Day With a Dishwasher at a Top NYC Restaurant’**\
 `What are the unsung jobs that make the world a better — and tastier — place?`\
 https://nytimes.com/2024/04/25/learning/film-club-a-day-with-a-dishwasher-at-a-top-nyc-restaurant.html
-
-**Michael Cuscuna, Who Unearthed Hidden Jazz Gems, Dies at 75**\
-`Possibly the most prolific archival record producer in history, he was a founder of the Mosaic label, which became the gold standard of jazz reissues.`\
-https://nytimes.com/2024/04/25/arts/music/michael-cuscuna-dead.html
 
