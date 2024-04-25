@@ -1,3 +1,11 @@
+**The Supreme Court rejected Bill Clinton’s claim of immunity.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/04/25/us/trump-immunity-supreme-court/the-supreme-court-rejected-bill-clintons-claim-of-immunity
+
+**For the Sake of Democracy, Celebrate Mike Johnson**\
+`In this one instance, at least, he stood on principle.`\
+https://nytimes.com/2024/04/25/opinion/mike-johnson-ukraine-aid.html
+
 **F.C.C. Votes to Restore Net Neutrality Rules**\
 `Commissioners voted along party lines to revive the rules that declare broadband as a utility-like service that could be regulated like phones and water.`\
 https://nytimes.com/2024/04/25/technology/fcc-net-neutrality-open-internet.html
