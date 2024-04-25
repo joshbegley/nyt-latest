@@ -1,3 +1,7 @@
+**Wall Street’s Patience for a Costly A.I. Arms Race Is Waning**\
+`A sell-off in Meta’s stock after the company disclosed huge investments in the technology may be a sign of investor fears about tech giants’ spending.`\
+https://nytimes.com/2024/04/25/business/dealbook/meta-artificial-intelligence-spending.html
+
 **‘Nowhere Special’ Review: Old Bonds, New Family**\
 `This understated tear-jerker sees a dying single father making future family plans for his toddler son.`\
 https://nytimes.com/2024/04/25/movies/nowhere-special-review.html
