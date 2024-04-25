@@ -1,3 +1,7 @@
+**A Puzzling Move by a Political Survivor Grips Spain**\
+`Despite insisting that allegations of influence peddling against his wife are false, Prime Minister Pedro Sánchez says he is considering stepping down, bewildering Spain.`\
+https://nytimes.com/2024/04/25/world/europe/spain-pedro-sanchez.html
+
 **The fight over the future of plastics**\
 `As countries negotiate a landmark agreement to reduce plastic pollution, the industry is fighting a battle over regulations and over its image.`\
 https://nytimes.com/2024/04/25/climate/plastics-pollution-regulation-treaty.html
