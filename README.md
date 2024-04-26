@@ -1,3 +1,7 @@
+**Word of the Day: interloper**\
+`This word has appeared in 33 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/26/learning/word-of-the-day-interloper.html
+
 **The Harley Riders With a Taste for Tea and Apple Strudel**\
 `The Harley Owners Group in Alice Springs is what’s known as a social motorcycle club, with the emphasis on social.`\
 https://nytimes.com/2024/04/26/world/australia/harley-club.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/style/modern-love-selfishness-dog-custody.html
 **The State Department Kept His Proposal on Course**\
 `Ben Krauss flew to Athens to propose to Shana Mansbach, with the help of her State Department colleagues, on the last stop of a European tour.`\
 https://nytimes.com/2024/04/26/style/the-state-department-kept-his-proposal-on-course.html
-
-**Pecker Testifies About ‘Catch-and-Kill’ Payments**\
-`David Pecker, former publisher of The National Enquirer, testified that Donald J. Trump thanked him for burying stories during the 2016 campaign. Jonah Bromwich, a criminal justice reporter at The New York Times, gives takeaways from Pecker’s testimony.`\
-https://nytimes.com/video/nyregion/100000009434846/donald-trump-trial-david-pecker.html
 
