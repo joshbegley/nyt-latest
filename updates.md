@@ -1,3 +1,11 @@
+**After 2 Winsome Ori Games, a Pivot Into Dark Fantasy**\
+`Moon Studios’ newest project, the action role-playing game No Rest for the Wicked, was inspired by Dark Souls, Diablo and “Game of Thrones.”`\
+https://nytimes.com/2024/04/26/arts/no-rest-for-the-wicked-moon-studios-ori.html
+
+**From Majesty to Frailty: Why Are So Many Horses Breaking Down?**\
+`Our new documentary explores the underbelly of horse racing — and the systemic issues that have thrown one of America’s oldest sports into crisis.`\
+https://nytimes.com/2024/04/26/NYT-Presents/broken-horses-documentary.html
+
 **An Essential Set of Cold War Era Treaties Is Falling Apart**\
 `A space nukes ban fails at the U.N.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/russia-veto-space-nukes
