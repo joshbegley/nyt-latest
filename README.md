@@ -1,3 +1,7 @@
+**Congestion Pricing Will Start on June 30 in New York City, M.T.A. Says**\
+`Transit officials announced the start of the program, which they have said will ease some of the nation’s worst traffic.`\
+https://nytimes.com/2024/04/26/nyregion/congestion-pricing-nyc-june-30.html
+
 **The Best of Late Night This Week**\
 `The hosts spent much of the week discussing former President Donald Trump’s criminal trial in Manhattan, including the opening arguments and the testimony of David Pecker, the former publisher of the National Enquirer. Here’s what they had to say.`\
 https://nytimes.com/interactive/2024/04/26/arts/television/best-of-late-night-trump-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/arts/louvre-olympics-exhibition.html
 **Bets on Rate Cuts This Year Are Fading Away**\
 `Stubborn inflation has led traders to forecast far fewer rate cuts by the Federal Reserve than just a few months ago.`\
 https://nytimes.com/2024/04/26/business/economy/fed-rate-cut-forecast.html
-
-**Denied a Second Chance at a Normal Senior Year**\
-`After Covid ruined high school graduation for the class of 2020, the response to campus protests might upend their college commencements.`\
-https://nytimes.com/2024/04/26/style/campus-protests-college-graduation.html
 
