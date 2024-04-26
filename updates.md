@@ -1,3 +1,7 @@
+**How a Supreme Court Immunity Ruling Could Affect Trump’s Election Case**\
+`In arguments on Thursday, the justices appeared to signal two ways they could help Donald Trump as he fights charges that he plotted to overturn the 2020 election.`\
+https://nytimes.com/2024/04/26/us/politics/trump-supreme-court-immunity.html
+
 **‘Forbidden Broadway’ Scraps Summer Broadway Run, Citing Crowded Season**\
 `The parody show was scheduled to begin performances in July at the Helen Hayes Theater.`\
 https://nytimes.com/2024/04/26/theater/forbidden-broadway.html
