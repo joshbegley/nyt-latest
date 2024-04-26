@@ -19,7 +19,7 @@ https://nytimes.com/2024/04/26/briefing/strike-north-carolina-biden-trump-debate
 https://nytimes.com/2024/04/26/nyregion/trump-trial-hush-money-takeaways.html
 
 **Peter Meijer, Who Voted to Impeach Trump, Withdraws From G.O.P. Senate Primary**\
-`The Secretary of State’s office in Michigan confirmed that Mr. Meijer, a former House member, would not appear on the primary ballot on Aug. 6.`\
+`Mr. Meijer, a former House member, said he did not have a “strong pathway to victory” in the Michigan primary race.`\
 https://nytimes.com/2024/04/26/us/politics/peter-meijer-drops-out-senate-michigan.html
 
 **Pentagon Announces Additional $6 Billion in Military Aid for Ukraine**\
