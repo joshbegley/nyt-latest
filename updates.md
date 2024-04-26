@@ -1,3 +1,11 @@
+**Police Arrest Rabbis Near Gaza-Israel Border at a Rally to Highlight Starvation**\
+`A group of about 30 rabbis and peace activists from Israel and the United States were trying to take food supplies into the territory.`\
+https://nytimes.com/2024/04/26/world/middleeast/rabbis-arrested-gaza-israel-border-starvation.html
+
+**Resignation of Vietnam’s Parliament Chief Stirs Fresh Political Chaos**\
+`Vuong Dinh Hue’s departure comes amid a growing anticorruption push and weeks after Vietnam’s president resigned.`\
+https://nytimes.com/2024/04/26/world/asia/vietnam-parliament-resignation.html
+
 **Would Trump Move to Control the Fed?**\
 `Allies of the former president are said to be devising plans to reduce the central bank’s independence if he is re-elected, a move that would have big consequences for monetary policy.`\
 https://nytimes.com/2024/04/26/business/dealbook/trump-fed-independence.html
