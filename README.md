@@ -1,3 +1,11 @@
+**Leader of Federal Student Aid Office Steps Down After College Admissions Crisis**\
+`During his tenure, the botched rollout of the new FAFSA upended the college admissions process.`\
+https://nytimes.com/2024/04/26/us/politics/federal-student-aid-fafsa-cordray.html
+
+**Israel Has a Choice to Make: Rafah or Riyadh**\
+`Israel is facing one of the most fateful choices it has ever had to make.`\
+https://nytimes.com/2024/04/26/opinion/israel-war-rafah-riyadh.html
+
 **‘Where’s Cricket?’ Don’t Ask. Kristi Noem Defends Killing Her Dog. And a Goat.**\
 `The South Dakota governor, seen as a potential vice-presidential pick, recounted the story of shooting her hunting dog, named Cricket, in a forthcoming book.`\
 https://nytimes.com/2024/04/26/us/politics/kristi-noem-dog-killing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/26/us/cecil-williams-dead.html
 **Tabloid Publisher Defiant as Trump Lawyer Tries to Shake His Confidence**\
 `David Pecker, who was the keeper of Donald J. Trump’s secrets, insisted he had testified truthfully about his dealings with the former president.`\
 https://nytimes.com/2024/04/26/nyregion/trump-pecker-hush-money-trial.html
-
-**Bronx Woman Charged With Murder in Death of Her 6-Year-Old Daughter**\
-`Lynija Eason Kumar also faces manslaughter charges in the killing of Jalayah Eason, who was found bruised and unconscious in her family’s apartment last May.`\
-https://nytimes.com/2024/04/26/nyregion/bronx-mother-charged-chid-death.html
-
-**Biden Revisits His Past in Interview With Howard Stern**\
-`The appearance allowed President Biden to tell the stories of love and loss that have defined his public image.`\
-https://nytimes.com/2024/04/26/us/politics/biden-howard-stern-trump.html
 
