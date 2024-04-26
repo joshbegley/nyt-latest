@@ -1,3 +1,7 @@
+**PEN America Cancels World Voices Festival Amid Israel-Gaza Criticism**\
+`The decision by the free expression group came after intense criticism of its response to the war in Gaza. A wave of participants had pulled out of the festival in protest.`\
+https://nytimes.com/2024/04/26/arts/pen-america-cancels-world-voices-festival.html
+
 **‘Harlequin, Refined by Love’ Review: A French Showman’s First Steps**\
 `The revival of a 2006 work by Thomas Jolly, the director masterminding the opening ceremony at the Paris Olympics, shows his gift for visual flamboyance.`\
 https://nytimes.com/2024/04/26/theater/arlequin-poli-par-lamour-thomas-jolly.html
