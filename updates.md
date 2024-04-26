@@ -1,3 +1,7 @@
+**At Least Three Women Were Infected With H.I.V. After ‘Vampire Facials’**\
+`The women underwent the cosmetic procedure at an unlicensed spa in New Mexico.`\
+https://nytimes.com/2024/04/26/health/hiv-vampire-facial.html
+
 **Biden departs New York for Washington, as Trump returns to a Manhattan courtroom.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/04/26/us/biden-trump-election/biden-departs-new-york-for-washington-as-trump-returns-to-a-manhattan-courtroom
