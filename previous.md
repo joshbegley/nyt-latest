@@ -1,5 +1,5 @@
-**On stand, Pecker fires back after Trump lawyer implies he was untruthful.**\
-`By Matthew Haag`\
+**On Stand, Pecker Fires Back After Trump Lawyer Implies He Was Untruthful**\
+`The confrontational strategy adopted by the lawyer, Emil Bove, did not seem to work with David Pecker, the former publisher of The National Enquirer.`\
 https://nytimes.com/2024/04/26/nyregion/david-pecker-trump-lawyer.html
 
 **The Essential Joan Didion**\
