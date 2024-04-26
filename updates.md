@@ -1,3 +1,7 @@
+**The Mostly Persuasive Logic Behind the New Ban on Noncompetes**\
+`The F.T.C. argued that noncompetes don’t just harm workers. They also harm society.`\
+https://nytimes.com/2024/04/26/opinion/ftc-noncompetes-ban.html
+
 **Who is Rhona Graff, Trump’s Former Assistant Who Is Testifying Against Him?**\
 `Few people knew Donald J. Trump like Rhona Graff, a Queens native who made a career serving the defendant.`\
 https://nytimes.com/2024/04/26/nyregion/rhona-graff-testify-trump-assistant.html
