@@ -1,3 +1,7 @@
+**9 New Shows Our Theater Critics Are Talking About**\
+`This past week has been jam-packed with openings. Our reviewers think these new shows are worth knowing about even if you’re not planning to see them.`\
+https://nytimes.com/2024/04/26/theater/theater-new-shows-cabaret-mary-jane.html
+
 **After 2 Winsome Ori Games, a Pivot Into Dark Fantasy**\
 `Moon Studios’ newest project, the action role-playing game No Rest for the Wicked, was inspired by Dark Souls, Diablo and “Game of Thrones.”`\
 https://nytimes.com/2024/04/26/arts/no-rest-for-the-wicked-moon-studios-ori.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/world/europe/fc-porto-election-da-costa-villas-bo
 **Talk of an Immigrant ‘Invasion’ Grows in Republican Ads and Speech**\
 `Once relegated to the margins of the national debate, the word is now part of the party’s mainstream message on immigration.`\
 https://nytimes.com/2024/04/26/us/politics/republicans-immigration-ads-election.html
-
-**Auto Safety Regulator Investigating Tesla Recall of Autopilot**\
-`The National Highway Safety Administration said it had concerns about how Tesla handled the recall based on recent crashes and testing of cars that had been updated.`\
-https://nytimes.com/2024/04/26/business/tesla-autopilot-recall-nhtsa-investigation.html
 
