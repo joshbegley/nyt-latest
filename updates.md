@@ -1,3 +1,11 @@
+**Biden, Asked if He’s Planning to Debate Trump, Says ‘I Am’**\
+`The president’s announcement came after months in which he and his campaign declined to say whether he would debate his predecessor.`\
+https://nytimes.com/2024/04/26/us/politics/biden-debate-trump.html
+
+**Conservative Justices Take Argument Over Trump’s Immunity in Unexpected Direction**\
+`Thursday’s Supreme Court hearing was memorable for its discussion of coups, assassinations and internments — but very little about the former president’s conduct.`\
+https://nytimes.com/2024/04/26/us/politics/supreme-court-trump-immunity-election.html
+
 **Did Richard III Kill the Princes in the Tower?**\
 `Philippa Langley devoted years to the search for Richard III’s remains. Now, she’s trying to crack a 15th-century cold case: Did he really assassinate his nephews?`\
 https://nytimes.com/2024/04/26/books/philippa-langley-richard-iii-princes-in-the-tower.html
