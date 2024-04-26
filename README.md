@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`The Supreme Court considers presidential immunity.`\
+https://nytimes.com/2024/04/26/briefing/supreme-court-immunity-gaza-pier.html
+
 **What Is a ‘Decent Wage’? France’s Michelin Raises a Debate.**\
 `The tire maker vowed to ensure that none of its workers would struggle to make ends meet.`\
 https://nytimes.com/2024/04/26/business/france-michelin-wages.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000009434846/donald-trump-trial-david-peck
 **Review: A New ‘Great Gatsby’ Leads With Comedy and Romance**\
 `This musical adaptation, now on Broadway, is a lot of Jazz Age fun. But it forgot that Fitzgerald’s 1925 novel endures because it is a tragedy.`\
 https://nytimes.com/2024/04/25/theater/the-great-gatsby-review-noblezada-jordan.html
-
-**One for the Record Books**\
-`David Leonhardt and his wife, Laura, take on a puzzle by Matthew Stock and Christina Iverson.`\
-https://nytimes.com/2024/04/25/crosswords/daily-puzzle-2024-04-26.html
 
