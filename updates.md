@@ -1,3 +1,7 @@
+**‘Forbidden Broadway’ Scraps Summer Broadway Run, Citing Crowded Season**\
+`The parody show was scheduled to begin performances in July at the Helen Hayes Theater.`\
+https://nytimes.com/2024/04/26/theater/forbidden-broadway.html
+
 **Congestion Pricing Will Start on June 30 in New York City, M.T.A. Says**\
 `Legal and political disagreements still threaten to dilute or halt the program, which transit officials have said will ease some of the nation’s worst traffic.`\
 https://nytimes.com/2024/04/26/nyregion/congestion-pricing-nyc-june-30.html
