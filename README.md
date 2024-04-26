@@ -1,3 +1,11 @@
+**Paramount’s Chief Executive Bob Bakish Could Be Out Next Week**\
+`Once a staunch ally of Paramount’s biggest owner, Shari Redstone, Mr. Bakish’s relationship with her soured in recent months.`\
+https://nytimes.com/2024/04/26/business/paramount-ceo-bob-bakish.html
+
+**Judge John Hodgman on Uncle Impermanence**\
+`Should a divorce get them removed from the family tree?`\
+https://nytimes.com/2024/04/26/magazine/judge-john-hodgman-on-uncle-impermanence.html
+
 **Columbia’s Leadership Is Rebuked in a Vote by the University Senate**\
 `The senators said Nemat Shafik’s administration had violated university norms, including the hiring of private investigators who tried to enter dorm rooms without consent.`\
 https://nytimes.com/2024/04/26/us/columbia-university-nemat-shafik-vote.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/26/briefing/strike-north-carolina-biden-trump-debate
 **5 Takeaways From the Second Week of Donald J. Trump’s Criminal Trial**\
 `A tabloid publisher’s testimony dominated a week that began with opening statements setting the stage for the first prosecution of a president.`\
 https://nytimes.com/2024/04/26/nyregion/trump-trial-hush-money-takeaways.html
-
-**Peter Meijer, Who Voted to Impeach Trump, Withdraws From G.O.P. Senate Primary**\
-`Mr. Meijer, a former House member, said he did not have a “strong pathway to victory” in the Michigan primary race.`\
-https://nytimes.com/2024/04/26/us/politics/peter-meijer-drops-out-senate-michigan.html
-
-**Pentagon Announces Additional $6 Billion in Military Aid for Ukraine**\
-`The funds will allow Kyiv to purchase weapons directly from American defense companies.`\
-https://nytimes.com/2024/04/26/us/politics/ukraine-military-aid.html
 
