@@ -1,3 +1,7 @@
+**Paramedic Is Spared Prison in Death of Elijah McClain**\
+`The sentencing marked the final chapter of a case that stretched over nearly five years and helped usher in sweeping public safety reforms.`\
+https://nytimes.com/2024/04/26/us/paramedic-sentenced-elijah-mcclain.html
+
 **The Schemes to Squelch Trump’s Scandals Were Hardly Commonplace**\
 `Trump’s defense lawyers tried but failed to prove David Pecker was a liar.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-trial-pecker-bove
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/opinion/israel-war-rafah-riyadh.html
 **‘Where’s Cricket?’ Don’t Ask. Kristi Noem Defends Killing Her Dog.**\
 `In a forthcoming book, the South Dakota governor, seen as a potential vice-presidential pick, tells of shooting her hunting dog. And a goat.`\
 https://nytimes.com/2024/04/26/us/politics/kristi-noem-dog-killing.html
-
-**For Fox News, Student Protests Are a Familiar Target**\
-`On Fox and in other conservative outlets, the protests have given new lease to a long-running argument that students at elite universities are intolerant of conservative views.`\
-https://nytimes.com/2024/04/26/business/fox-news-campus-protests.html
 
