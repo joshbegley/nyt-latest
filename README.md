@@ -1,3 +1,7 @@
+**Has South Africa Truly Defeated Apartheid?**\
+`We looked at how far South Africa has come in meeting its goals after 30 years of freedom.`\
+https://nytimes.com/interactive/2024/04/26/world/africa/south-africa-apartheid-freedom.html
+
 **A New Pacific Arsenal to Counter China**\
 `With missiles, submarines and alliances, the Biden administration has built a presence in the region to rein in Beijing’s expansionist goals.`\
 https://nytimes.com/interactive/2024/04/26/us/politics/us-china-military-bases-weapons.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/crosswords/connections-companion.html
 **Today’s Wordle Review No. 1,042**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/04/26/crosswords/wordle-review.html
-
-**Save the Children Says Its Guatemala Offices Were Searched Over Abuse Claims**\
-`Prosecutors in Guatemala, which has a history of targeting nonprofit groups, said they were probing claims of child abuse, which the charity denied.`\
-https://nytimes.com/2024/04/26/world/americas/guatemala-save-the-children-raid.html
 
