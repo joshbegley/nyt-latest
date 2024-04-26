@@ -6,8 +6,8 @@ https://nytimes.com/2024/04/26/business/paramount-ceo-bob-bakish.html
 `Should a divorce get them removed from the family tree?`\
 https://nytimes.com/2024/04/26/magazine/judge-john-hodgman-on-uncle-impermanence.html
 
-**Columbia’s Leadership Is Rebuked in a Vote by the University Senate**\
-`The senators said Nemat Shafik’s administration had violated university norms, including the hiring of private investigators who tried to enter dorm rooms without consent.`\
+**Columbia’s University Senate Calls for an Investigation Into the Administration**\
+`The senators voted for a resolution that accused the administration of  breaching the due-process rights of students and professors.`\
 https://nytimes.com/2024/04/26/us/columbia-university-nemat-shafik-vote.html
 
 **The Student-Led Protests Aren’t Perfect. That Doesn’t Mean They’re Not Right.**\
