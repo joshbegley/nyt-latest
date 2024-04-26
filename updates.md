@@ -1,3 +1,7 @@
+**‘Where’s Cricket?’ Don’t Ask. Kristi Noem Defends Killing Her Dog. And a Goat.**\
+`The South Dakota governor, seen as a potential vice-presidential pick, recounted the story of shooting her hunting dog, named Cricket, in a forthcoming book.`\
+https://nytimes.com/2024/04/26/us/politics/kristi-noem-dog-killing.html
+
 **For Fox News, Student Protests Are a Familiar Target**\
 `On Fox and in other conservative outlets, the protests have given new lease to a long-running argument that students at elite universities are intolerant of conservative views.`\
 https://nytimes.com/2024/04/26/business/fox-news-campus-protests.html
