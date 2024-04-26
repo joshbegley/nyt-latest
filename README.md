@@ -1,3 +1,7 @@
+**Review: In ‘Mother Play,’ Paula Vogel Unboxes a Family Story**\
+`Jessica Lange stars as a ferocious matriarch alongside Celia Keenan-Bolger and Jim Parsons in Vogel’s latest family drama.`\
+https://nytimes.com/2024/04/25/theater/mother-play-review-jessica-lange-paula-vogel.html
+
 **Mike Pinder, Founding Keyboardist of the Moody Blues, Dies at 82**\
 `His expertise on the electromechanical Mellotron helped define the band’s progressive sound in the 1960s and ’70s on albums like “Days of Future Passed.”`\
 https://nytimes.com/2024/04/25/arts/music/mike-pinder-moody-blues-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/health/bird-flu-milk-fda.html
 **Peter Schey, Tenacious Lawyer Who Defended Migrant Rights, Dies at 77**\
 `He won the right to services like school and health care for people illegally crossing the border into the U.S. He also fought the Trump administration’s family separation policy.`\
 https://nytimes.com/2024/04/25/us/politics/peter-schey-dead.html
-
-**5 Takeaways From David Pecker’s Testimony in Trump’s Criminal Trial**\
-`David Pecker told jurors of a universe in which favors for celebrities were demanded and dispensed. His cross-examination will continue Friday.`\
-https://nytimes.com/2024/04/25/nyregion/pecker-mdcougal-daniels-testimony-takeaways.html
 
