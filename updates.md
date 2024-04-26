@@ -1,3 +1,7 @@
+**Congestion Pricing Will Start on June 30 in New York City, M.T.A. Says**\
+`Transit officials announced the start of the program, which they have said will ease some of the nation’s worst traffic.`\
+https://nytimes.com/2024/04/26/nyregion/congestion-pricing-nyc-june-30.html
+
 **The Best of Late Night This Week**\
 `The hosts spent much of the week discussing former President Donald Trump’s criminal trial in Manhattan, including the opening arguments and the testimony of David Pecker, the former publisher of the National Enquirer. Here’s what they had to say.`\
 https://nytimes.com/interactive/2024/04/26/arts/television/best-of-late-night-trump-trial.html
