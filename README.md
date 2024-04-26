@@ -1,3 +1,7 @@
+**A New Pacific Arsenal to Counter China**\
+`With missiles, submarines and alliances, the Biden administration has built a presence in the region to rein in Beijing’s expansionist goals.`\
+https://nytimes.com/interactive/2024/04/26/us/politics/us-china-military-bases-weapons.html
+
 **When U.S. Diplomats Visit China, Meal Choices Are About More Than Taste Buds**\
 `Visits to China by American officials like Secretary of State Antony J. Blinken can bring fame to local restaurants, as well as scrutiny to the dignitaries.`\
 https://nytimes.com/2024/04/26/world/asia/us-china-visits-blinken-food.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/crosswords/wordle-review.html
 **Save the Children Says Its Guatemala Offices Were Searched Over Abuse Claims**\
 `Prosecutors in Guatemala, which has a history of targeting nonprofit groups, said they were probing claims of child abuse, which the charity denied.`\
 https://nytimes.com/2024/04/26/world/americas/guatemala-save-the-children-raid.html
-
-**26mideast-crisis**\
-`Army Begins Work on Floating Pier Meant to Get More Aid to Gaza, U.S. Says`\
-https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas
 
