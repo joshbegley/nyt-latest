@@ -1,3 +1,7 @@
+**Biden departs New York for Washington, as Trump returns to a Manhattan courtroom.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/04/26/us/biden-trump-election/biden-departs-new-york-for-washington-as-trump-returns-to-a-manhattan-courtroom
+
 **ExxonMobil and Chevron Report Lower Earnings**\
 `Profits for the two oil giants, which are locked in a standoff over drilling off the coast of Guyana, were squeezed by lower profitability for refining crude and falling natural gas prices.`\
 https://nytimes.com/2024/04/26/business/chevron-exxonmobil-oil-earnings-prices.html
