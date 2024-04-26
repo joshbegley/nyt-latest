@@ -1,3 +1,7 @@
+**Mike Pinder, Founding Keyboardist of the Moody Blues, Dies at 82**\
+`His expertise on the electromechanical Mellotron helped define the band’s progressive sound in the 1960s and ’70s on albums like “Days of Future Passed.”`\
+https://nytimes.com/2024/04/25/arts/music/mike-pinder-moody-blues-dead.html
+
 **Watchdog Group Accuses Trump Campaign of Violating Finance Law**\
 `The Campaign Legal Center said in a complaint that Trump political committees had used an intermediary firm “as a conduit to conceal payments” totaling $7.2 million.`\
 https://nytimes.com/2024/04/25/us/politics/trump-campaign-finance-complaint.html
