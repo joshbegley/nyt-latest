@@ -1,3 +1,7 @@
+**Review: Turning a Dance Spotlight on the Painter Juan de Pareja**\
+`Eduardo Vilaro celebrates his 15th year as artistic director of Ballet Hispánico with a premiere exploring the life of the Afro-Hispanic artist.`\
+https://nytimes.com/2024/04/26/arts/dance/review-ballet-hispanico-buscando-a-juan.html
+
 **9 New Shows Our Theater Critics Are Talking About**\
 `This past week has been jam-packed with openings. Our reviewers think these new shows are worth knowing about even if you’re not planning to see them.`\
 https://nytimes.com/2024/04/26/theater/theater-new-shows-cabaret-mary-jane.html
