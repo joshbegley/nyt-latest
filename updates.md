@@ -1,3 +1,19 @@
+**Biden Revisits His Past in Interview With Howard Stern**\
+`The appearance allowed President Biden to tell the stories of love and loss that have defined his public image.`\
+https://nytimes.com/2024/04/26/us/politics/biden-howard-stern-trump.html
+
+**Blinken to Return to Israel to Discuss Hostages and Planned Rafah Incursion**\
+`The visit next week will come as talks on a cease-fire deal have stalled and tensions have risen over the treatment of civilians in the war.`\
+https://nytimes.com/2024/04/26/world/middleeast/israel-gaza-blinken-rafah.html
+
+**Michael C. Jensen, Who Helped Reshape Modern Capitalism, Dies at 84**\
+`He heralded stock options and golden parachutes as a professor at Harvard Business School, influencing a generation of Wall Street executives.`\
+https://nytimes.com/2024/04/26/business/michael-c-jensen-dead.html
+
+**Biden Embraces Trump-Style Taunts, Calling Trump a ‘Loser’**\
+`President Biden has been trying to hit his opponent where it hurts, critiquing everything from his hairstyle to his energy levels in court.`\
+https://nytimes.com/2024/04/26/us/politics/biden-trump-taunts.html
+
 **I’m Horrified by My Kid’s Obsession With Toy Guns. What to Do?**\
 `The magazine’s Ethicist columnist on the concerns posed by a child’s hobby.`\
 https://nytimes.com/2024/04/26/magazine/toy-guns-kid-ethics.html
