@@ -1,3 +1,11 @@
+**The Essential Joan Didion**\
+`Her distinctive prose and sharp eye were tuned to an outsider’s frequency, telling us about ourselves in essays are almost reflexively skeptical. Here’s where to start.`\
+https://nytimes.com/article/joan-didion-best-books.html
+
+**King Charles to Return to Public Duties, Reassuring Anxious Royal Watchers**\
+`The king’s cancer treatment will continue but doctors are “pleased with the progress made so far,” a palace spokesman said.`\
+https://nytimes.com/2024/04/26/world/europe/king-charles-iii-royal-duties.html
+
 **How a Supreme Court Immunity Ruling Could Affect Trump’s Election Case**\
 `In arguments on Thursday, the justices appeared to signal two ways they could help Donald Trump as he fights charges that he plotted to overturn the 2020 election.`\
 https://nytimes.com/2024/04/26/us/politics/trump-supreme-court-immunity.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/26/arts/music/playlist-johnny-cash-normani-thom-york
 **The Supreme Court and Presidential Immunity**\
 `Readers express concern about how the justices will rule on Donald Trump’s immunity claim. Also: An environmental decision for Alaska; Ralph Nader, on third parties.`\
 https://nytimes.com/2024/04/26/opinion/supreme-court-trump-immunity.html
-
-**Tremaine Emory Doubles Down**\
-`Streetwear’s Black history raconteur survived Kanye, Supreme and a near-death experience. But can he survive the internet?`\
-https://nytimes.com/2024/04/26/style/tremaine-emory-denim-tears-supreme.html
-
-**The U.S. will not suspend aid, for now, to Israeli military units accused of abusing Palestinians in the West Bank.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/us-israel-military-aid
 

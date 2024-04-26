@@ -1,3 +1,7 @@
+**On stand, Pecker fires back after Trump lawyer implies he was untruthful.**\
+`By Matthew Haag`\
+https://nytimes.com/live/2024/04/26/nyregion/trump-hush-money-trial/on-stand-pecker-fires-back-after-trump-lawyer-implies-he-was-untruthful
+
 **The Essential Joan Didion**\
 `Her distinctive prose and sharp eye were tuned to an outsider’s frequency, telling us about ourselves in essays are almost reflexively skeptical. Here’s where to start.`\
 https://nytimes.com/article/joan-didion-best-books.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/nyregion/columbia-student-protest-zionism.html
 **An Unearthed Johnny Cash Recording, and 11 More New Songs**\
 `Hear tracks by Normani, Nilüfer Yanya, Thom Yorke and others.`\
 https://nytimes.com/2024/04/26/arts/music/playlist-johnny-cash-normani-thom-yorke.html
-
-**The Supreme Court and Presidential Immunity**\
-`Readers express concern about how the justices will rule on Donald Trump’s immunity claim. Also: An environmental decision for Alaska; Ralph Nader, on third parties.`\
-https://nytimes.com/2024/04/26/opinion/supreme-court-trump-immunity.html
 
