@@ -1,3 +1,11 @@
+**Review: A New ‘Great Gatsby’ Leads With Comedy and Romance**\
+`This musical adaptation, now on Broadway, is a lot of Jazz Age fun. But it forgot that Fitzgerald’s 1925 novel endures because it is a tragedy.`\
+https://nytimes.com/2024/04/25/theater/the-great-gatsby-review-noblezada-jordan.html
+
+**One for the Record Books**\
+`David Leonhardt and his wife, Laura, take on a puzzle by Matthew Stock and Christina Iverson.`\
+https://nytimes.com/2024/04/25/crosswords/daily-puzzle-2024-04-26.html
+
 **Think Critically, Build Community: 7 New York Times Games to Play in the Classroom**\
 `Wordle? Spelling Bee? Flashback? Connections? Teachers across subject areas and levels say Times games have become part of their routines.`\
 https://nytimes.com/2024/04/25/learning/think-critically-build-community-7-new-york-times-games-to-play-in-the-classroom.html

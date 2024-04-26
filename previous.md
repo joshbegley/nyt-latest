@@ -1,3 +1,11 @@
+**Review: A New ‘Great Gatsby’ Leads With Comedy and Romance**\
+`This musical adaptation, now on Broadway, is a lot of Jazz Age fun. But it forgot that Fitzgerald’s 1925 novel endures because it is a tragedy.`\
+https://nytimes.com/2024/04/25/theater/the-great-gatsby-review-noblezada-jordan.html
+
+**One for the Record Books**\
+`David Leonhardt and his wife, Laura, take on a puzzle by Matthew Stock and Christina Iverson.`\
+https://nytimes.com/2024/04/25/crosswords/daily-puzzle-2024-04-26.html
+
 **Think Critically, Build Community: 7 New York Times Games to Play in the Classroom**\
 `Wordle? Spelling Bee? Flashback? Connections? Teachers across subject areas and levels say Times games have become part of their routines.`\
 https://nytimes.com/2024/04/25/learning/think-critically-build-community-7-new-york-times-games-to-play-in-the-classroom.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/25/us/columbia-senate-nemat-shafik.html
 **How to Claim Your Part of a $5.6 Million Ring Settlement**\
 `The Federal Trade Commission is sending payments to customers who had certain Ring home security cameras and accounts during a particular time period, the agency said.`\
 https://nytimes.com/2024/04/25/technology/ring-settlement-claim.html
-
-**Why Are We Gambling With America’s Future?**\
-`Don’t bet the house on a rosy future.`\
-https://nytimes.com/2024/04/25/opinion/us-federal-debt.html
-
-**Can Biden Revive the Fortunes of American Workers?**\
-`He’s the most pro-labor president since Harry Truman. Is that enough?`\
-https://nytimes.com/2024/04/25/opinion/biden-unions-uaw.html
 
