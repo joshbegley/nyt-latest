@@ -1,3 +1,7 @@
+**Why Gaza Protests on U.S. College Campuses Have Become So Contagious**\
+`Experts say the partisan political context in Washington is a driver behind the spread of protests at American universities even as overseas campuses have stayed relatively calm.`\
+https://nytimes.com/2024/04/26/world/europe/interpreter-gaza-college-protests.html
+
 **Who Is Gary Farro, the Banker Testifying in Trump’s Trial?**\
 `Donald J. Trump’s lawyer has said he arranged a hush-money payment through First Republic Bank, where Gary Farro worked.`\
 https://nytimes.com/2024/04/26/nyregion/gary-farro-trump-trial.html
