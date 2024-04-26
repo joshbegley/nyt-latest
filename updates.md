@@ -1,3 +1,11 @@
+**Would Trump Move to Control the Fed?**\
+`Allies of the former president are said to be devising plans to reduce the central bank’s independence if he is re-elected, a move that would have big consequences for monetary policy.`\
+https://nytimes.com/2024/04/26/business/dealbook/trump-fed-independence.html
+
+**An Enduring Race Tax**\
+`Black Americans remain the only racial group with a homeownership rate below 50 percent.`\
+https://nytimes.com/2024/04/26/us/black-americans-homeownership.html
+
 **Baby Born in Gaza After Her Mother Was Killed Has Died**\
 `The birth of the girl, captured on video, brought a glimmer of hope to war-torn Gaza, but she died of respiratory problems after five days, her uncle said.`\
 https://nytimes.com/2024/04/26/world/middleeast/gaza-baby-dies-palestinian-mother-israel-strike.html
