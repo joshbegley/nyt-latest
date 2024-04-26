@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2024/04/26/business/meta-spending-ai.html
 
 **Student Leader of Columbia Protests: ‘Zionists Don’t Deserve to Live’**\
-`Khymani James, a junior, apologized for his statements — made before he joined the demonstration.`\
+`Khymani James, a junior, apologized for his statements — made before he joined the demonstration — after video surfaced on social media.`\
 https://nytimes.com/2024/04/26/nyregion/columbia-student-protest-zionism.html
 
 **An Unearthed Johnny Cash Recording, and 11 More New Songs**\
