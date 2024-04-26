@@ -1,3 +1,7 @@
+**Warren Buffett’s Real Estate Brokerage Agrees to $250 Million Settlement**\
+`HomeServices of America, the largest residential real estate brokerage in the United States, will settle the claims brought by home sellers who said they were forced to pay inflated commissions, pending court approval.`\
+https://nytimes.com/2024/04/26/realestate/warren-buffett-homeservices-lawsuit-settlement.html
+
 **26trump-trial**\
 `Live Updates: Defense Continues Grilling Tabloid Publisher at Trump Trial`\
 https://nytimes.com/live/2024/04/26/nyregion/trump-hush-money-trial

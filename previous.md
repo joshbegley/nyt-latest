@@ -1,3 +1,7 @@
+**Warren Buffett’s Real Estate Brokerage Agrees to $250 Million Settlement**\
+`HomeServices of America, the largest residential real estate brokerage in the United States, will settle the claims brought by home sellers who said they were forced to pay inflated commissions, pending court approval.`\
+https://nytimes.com/2024/04/26/realestate/warren-buffett-homeservices-lawsuit-settlement.html
+
 **At Least Three Women Were Infected With H.I.V. After ‘Vampire Facials’**\
 `The women underwent the cosmetic procedure at an unlicensed spa in New Mexico.`\
 https://nytimes.com/2024/04/26/health/hiv-vampire-facial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/style/nfl-draft-football-caleb-williams.html
 **Blinken will make another wartime trip to Israel.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/us-israel-blinken-visit
-
-**26trump-trial**\
-`Live Updates: Defense Continues Grilling Tabloid Publisher at Trump Trial`\
-https://nytimes.com/live/2024/04/26/nyregion/trump-hush-money-trial
 
