@@ -1,3 +1,15 @@
+**An Unearthed Johnny Cash Recording, and 11 More New Songs**\
+`Hear tracks by Normani, Nilüfer Yanya, Thom Yorke and others.`\
+https://nytimes.com/2024/04/26/arts/music/playlist-johnny-cash-normani-thom-yorke.html
+
+**The Supreme Court and Presidential Immunity**\
+`Readers express concern about how the justices will rule on Donald Trump’s immunity claim. Also: An environmental decision for Alaska; Ralph Nader, on third parties.`\
+https://nytimes.com/2024/04/26/opinion/supreme-court-trump-immunity.html
+
+**Tremaine Emory Doubles Down**\
+`Streetwear’s Black history raconteur survived Kanye, Supreme and a near-death experience. But can he survive the internet?`\
+https://nytimes.com/2024/04/26/style/tremaine-emory-denim-tears-supreme.html
+
 **The U.S. will not suspend aid, for now, to Israeli military units accused of abusing Palestinians in the West Bank.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/us-israel-military-aid
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/26/us/politics/biden-debate-trump.html
 **Conservative Justices Take Argument Over Trump’s Immunity in Unexpected Direction**\
 `Thursday’s Supreme Court hearing was memorable for its discussion of coups, assassinations and internments — but very little about the former president’s conduct.`\
 https://nytimes.com/2024/04/26/us/politics/supreme-court-trump-immunity-election.html
-
-**Did Richard III Kill the Princes in the Tower?**\
-`Philippa Langley devoted years to the search for Richard III’s remains. Now, she’s trying to crack a 15th-century cold case: Did he really assassinate his nephews?`\
-https://nytimes.com/2024/04/26/books/philippa-langley-richard-iii-princes-in-the-tower.html
-
-**Review: Turning a Dance Spotlight on the Painter Juan de Pareja**\
-`Eduardo Vilaro celebrates his 15th year as artistic director of Ballet Hispánico with a premiere exploring the life of the Afro-Hispanic artist.`\
-https://nytimes.com/2024/04/26/arts/dance/review-ballet-hispanico-buscando-a-juan.html
-
-**9 New Shows Our Theater Critics Are Talking About**\
-`This past week has been jam-packed with openings. Our reviewers think these new shows are worth knowing about even if you’re not planning to see them.`\
-https://nytimes.com/2024/04/26/theater/theater-new-shows-cabaret-mary-jane.html
 
