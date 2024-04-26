@@ -1,3 +1,11 @@
+**Paramount’s Chief Executive Bob Bakish Could Be Out Next Week**\
+`Once a staunch ally of Paramount’s biggest owner, Shari Redstone, Mr. Bakish’s relationship with her soured in recent months.`\
+https://nytimes.com/2024/04/26/business/paramount-ceo-bob-bakish.html
+
+**Judge John Hodgman on Uncle Impermanence**\
+`Should a divorce get them removed from the family tree?`\
+https://nytimes.com/2024/04/26/magazine/judge-john-hodgman-on-uncle-impermanence.html
+
 **Columbia’s Leadership Is Rebuked in a Vote by the University Senate**\
 `The senators said Nemat Shafik’s administration had violated university norms, including the hiring of private investigators who tried to enter dorm rooms without consent.`\
 https://nytimes.com/2024/04/26/us/columbia-university-nemat-shafik-vote.html
