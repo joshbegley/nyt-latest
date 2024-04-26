@@ -1,3 +1,7 @@
+**‘Challengers’ | Anatomy of a Scene**\
+`The director Luca Guadagnino narrates a sequence from his film, featuring Josh O’Connor and Mike Faist.`\
+https://nytimes.com/video/movies/100000009434686/challengers-scene.html
+
 **Blinken meets Xi, and Supreme Court Considers Presidential Immunity**\
 `Plus, Haiti gets a new government.`\
 https://nytimes.com/2024/04/26/podcasts/us-china-weinstein.html

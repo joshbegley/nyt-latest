@@ -1,3 +1,7 @@
+**‘Challengers’ | Anatomy of a Scene**\
+`The director Luca Guadagnino narrates a sequence from his film, featuring Josh O’Connor and Mike Faist.`\
+https://nytimes.com/video/movies/100000009434686/challengers-scene.html
+
 **Blinken meets Xi, and Supreme Court Considers Presidential Immunity**\
 `Plus, Haiti gets a new government.`\
 https://nytimes.com/2024/04/26/podcasts/us-china-weinstein.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/us/nemat-shafik-columbia-timeline.html
 **What Does Weinstein Reversal Mean for #MeToo?**\
 `The decision by the New York Court of Appeals is linked to legal weaknesses in the case, our reporter says.`\
 https://nytimes.com/2024/04/26/nyregion/what-does-weinstein-reversal-mean-for-metoo.html
-
-**The Constitution Won’t Save Us From Trump**\
-`Turning the page on the man — and on the politics he has fostered — will require fundamentally changing the text of our founding document.`\
-https://nytimes.com/2024/04/26/opinion/constitution-trump.html
 
