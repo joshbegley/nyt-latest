@@ -1,3 +1,11 @@
+**Biden, Asked if He’s Planning to Debate Trump, Says ‘I Am’**\
+`The president’s announcement came after months in which he and his campaign declined to say whether he would debate his predecessor.`\
+https://nytimes.com/2024/04/26/us/politics/biden-debate-trump.html
+
+**Conservative Justices Take Argument Over Trump’s Immunity in Unexpected Direction**\
+`Thursday’s Supreme Court hearing was memorable for its discussion of coups, assassinations and internments — but very little about the former president’s conduct.`\
+https://nytimes.com/2024/04/26/us/politics/supreme-court-trump-immunity-election.html
+
 **Did Richard III Kill the Princes in the Tower?**\
 `Philippa Langley devoted years to the search for Richard III’s remains. Now, she’s trying to crack a 15th-century cold case: Did he really assassinate his nephews?`\
 https://nytimes.com/2024/04/26/books/philippa-langley-richard-iii-princes-in-the-tower.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/26/dining/sesame-noodles-buttered-biscuits-charred-c
 **Five Horror Movies to Stream Now**\
 `This month’s picks include demonic forces from Mexico, Mongolia, small-town America and hell itself.`\
 https://nytimes.com/2024/04/26/movies/horror-movies-streaming.html
-
-**Schumer Says Foreign Aid Victory Shows Congress Isn’t Broken**\
-`The majority leader says the measure to help Ukraine and other recent bipartisan efforts show there is a path to success on Capitol Hill. But deep partisan differences and institutional problems remain.`\
-https://nytimes.com/2024/04/26/us/politics/schumer-israel-ukraine-aid-congress.html
-
-**On View: A Modern, Tragic Portrait of the Sea**\
-`At Fraenkel Gallery in New York, Wardell Milan’s works — which blend drawing, painting and collage — depict scenes of both comfort and chaos.`\
-https://nytimes.com/interactive/2024/04/26/t-magazine/wardell-milan-fraenkel-gallery.html
 
