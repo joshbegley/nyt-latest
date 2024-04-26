@@ -1,3 +1,11 @@
+**I’m Horrified by My Kid’s Obsession With Toy Guns. What to Do?**\
+`The magazine’s Ethicist columnist on the concerns posed by a child’s hobby.`\
+https://nytimes.com/2024/04/26/magazine/toy-guns-kid-ethics.html
+
+**A Guide to Antwerp, a City of Avant-Garde Fashion and Art Nouveau Architecture**\
+`Five locals — including three of Belgium’s most influential designers — share their favorite stores, museums, restaurants and more.`\
+https://nytimes.com/2024/04/26/t-magazine/antwerp-belgium-guide-local.html
+
 **The Mostly Persuasive Logic Behind the New Ban on Noncompetes**\
 `The F.T.C. argued that noncompetes don’t just harm workers. They also harm society.`\
 https://nytimes.com/2024/04/26/opinion/ftc-noncompetes-ban.html
