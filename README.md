@@ -1,3 +1,7 @@
+**Watchdog Group Accuses Trump Campaign of Violating Finance Law**\
+`The Campaign Legal Center said in a complaint that Trump political committees had used an intermediary firm “as a conduit to conceal payments” totaling $7.2 million.`\
+https://nytimes.com/2024/04/25/us/politics/trump-campaign-finance-complaint.html
+
 **Arizona Republicans Who Supported Repealing an Abortion Ban Face Blowback**\
 `On social media, Arizona lawmakers are accused of being baby killers, cowards and traitors.`\
 https://nytimes.com/2024/04/25/us/abortion-ban-arizona.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/nyregion/pecker-mdcougal-daniels-testimony-takeaw
 **The Onion Is Sold by G/O Media**\
 `The satirical news website was bought by a new firm in Chicago that took inspiration for its name, Global Tetrahedron, from a book written by The Onion’s staff.`\
 https://nytimes.com/2024/04/25/business/media/the-onion-sold.html
-
-**School Employee Arrested After Racist Deepfake Recording of Principal Spreads**\
-`A high school athletic director in the Baltimore area was arrested after the police said he used A.I. to make a racist and antisemitic audio clip.`\
-https://nytimes.com/2024/04/25/business/deepfake-recording-principal-arrest.html
 
