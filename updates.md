@@ -1,3 +1,7 @@
+**Biden Taunts Trump, Calling Him a ‘Loser,’ Trying to Get Under His Skin**\
+`President Biden has been trying to hit his opponent where it hurts, critiquing everything from his hairstyle to his energy levels in court.`\
+https://nytimes.com/2024/04/26/us/politics/biden-trump-taunts.html
+
 **Biden Revisits His Past in Interview With Howard Stern**\
 `The appearance allowed President Biden to tell the stories of love and loss that have defined his public image.`\
 https://nytimes.com/2024/04/26/us/politics/biden-howard-stern-trump.html

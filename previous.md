@@ -10,7 +10,7 @@ https://nytimes.com/2024/04/26/world/middleeast/israel-gaza-blinken-rafah.html
 `He heralded stock options and golden parachutes as a professor at Harvard Business School, influencing a generation of Wall Street executives.`\
 https://nytimes.com/2024/04/26/business/michael-c-jensen-dead.html
 
-**Biden Embraces Trump-Style Taunts, Calling Trump a ‘Loser’**\
+**Biden Taunts Trump, Calling Him a ‘Loser,’ Trying to Get Under His Skin**\
 `President Biden has been trying to hit his opponent where it hurts, critiquing everything from his hairstyle to his energy levels in court.`\
 https://nytimes.com/2024/04/26/us/politics/biden-trump-taunts.html
 
