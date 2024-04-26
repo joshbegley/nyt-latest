@@ -1,3 +1,7 @@
+**When U.S. Diplomats Visit China, Meal Choices Are About More Than Taste Buds**\
+`Visits to China by American officials like Secretary of State Antony J. Blinken can bring fame to local restaurants, as well as scrutiny to the dignitaries.`\
+https://nytimes.com/2024/04/26/world/asia/us-diplomats-chinese-food.html
+
 **Xi Is Meeting Blinken With Tough Issues on the Agenda**\
 `The direct meeting with China’s leader is a sign of continued effort to ease tensions, but officials expect little progress on core issues like Taiwan, trade and Chinese support of Russia.`\
 https://nytimes.com/2024/04/26/world/asia/blinken-xi-jinping-china.html
