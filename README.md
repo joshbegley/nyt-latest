@@ -1,3 +1,7 @@
+**How a Supreme Court Immunity Ruling Could Affect Trump’s Election Case**\
+`In arguments on Thursday, the justices appeared to signal two ways they could help Donald Trump as he fights charges that he plotted to overturn the 2020 election.`\
+https://nytimes.com/2024/04/26/us/politics/trump-supreme-court-immunity.html
+
 **‘Forbidden Broadway’ Scraps Summer Broadway Run, Citing Crowded Season**\
 `The parody show was scheduled to begin performances in July at the Helen Hayes Theater.`\
 https://nytimes.com/2024/04/26/theater/forbidden-broadway.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/style/tremaine-emory-denim-tears-supreme.html
 **The U.S. will not suspend aid, for now, to Israeli military units accused of abusing Palestinians in the West Bank.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/us-israel-military-aid
-
-**At the Louvre, the Olympics Are More French Than You Might Think**\
-`The Games were revived from an ancient Greek spectacle, but an exhibition timed for the Paris Olympics argues that France’s fascination with the ancient world played an outsized role.`\
-https://nytimes.com/2024/04/26/arts/louvre-olympics-exhibition.html
 
