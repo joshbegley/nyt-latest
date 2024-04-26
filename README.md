@@ -18,8 +18,8 @@ https://nytimes.com/2024/04/26/us/politics/politics-campus-protests.html
 `The early results suggest that pasteurization is killing the H5N1 virus in milk, something that regulators were not certain of.`\
 https://nytimes.com/2024/04/26/health/bird-flu-milk-fda.html
 
-**Paramount’s Chief Executive Bob Bakish Could Be Out Next Week**\
-`Once a staunch ally of Paramount’s biggest owner, Shari Redstone, Mr. Bakish’s relationship with her soured in recent months.`\
+**Paramount Chief Executive Bob Bakish Could Be Out Next Week**\
+`He was once a staunch ally of the company’s biggest owner, Shari Redstone, but the relationship soured in recent months.`\
 https://nytimes.com/2024/04/26/business/paramount-ceo-bob-bakish.html
 
 **Judge John Hodgman on Uncle Impermanence**\
