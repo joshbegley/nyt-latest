@@ -1,3 +1,7 @@
+**Russia Strikes Ukraine’s Railways and Vows to Slow Arrival of U.S. Aid**\
+`The attacks killed at least six civilians and injured dozens of others, the Ukrainian military and local officials said.`\
+https://nytimes.com/2024/04/26/world/europe/russia-strikes-ukraine-aid-railway.html
+
 **Warren Buffett’s Real Estate Brokerage Agrees to $250 Million Settlement**\
 `HomeServices of America, the largest residential real estate brokerage in the United States, will settle the claims brought by home sellers who said they were forced to pay inflated commissions, pending court approval.`\
 https://nytimes.com/2024/04/26/realestate/warren-buffett-homeservices-lawsuit-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/us/the-best-california-books-for-children.html
 **N.F.L. Draft Had Some Style Winners**\
 `The next class of football stars has done some fashion homework, but the evening was pretty tame compared with the N.B.A. draft.`\
 https://nytimes.com/2024/04/26/style/nfl-draft-football-caleb-williams.html
-
-**Blinken will make another wartime trip to Israel.**\
-`By Patrick Kingsley`\
-https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/us-israel-blinken-visit
 
