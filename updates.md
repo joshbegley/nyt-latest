@@ -1,3 +1,7 @@
+**Cecil Williams, Whose San Francisco Church Became a Haven, Dies at 94**\
+`As the well-connected pastor of the Glide Memorial Church in the blighted Tenderloin district, he preached a “radically inclusive” gospel in serving people in need.`\
+https://nytimes.com/2024/04/26/us/cecil-williams-dead.html
+
 **Tabloid Publisher Defiant as Trump Lawyer Tries to Shake His Confidence**\
 `David Pecker, who was the keeper of Donald J. Trump’s secrets, insisted he had testified truthfully about his dealings with the former president.`\
 https://nytimes.com/2024/04/26/nyregion/trump-pecker-hush-money-trial.html

@@ -1,3 +1,7 @@
+**Cecil Williams, Whose San Francisco Church Became a Haven, Dies at 94**\
+`As the well-connected pastor of the Glide Memorial Church in the blighted Tenderloin district, he preached a “radically inclusive” gospel in serving people in need.`\
+https://nytimes.com/2024/04/26/us/cecil-williams-dead.html
+
 **Tabloid Publisher Defiant as Trump Lawyer Tries to Shake His Confidence**\
 `David Pecker, who was the keeper of Donald J. Trump’s secrets, insisted he had testified truthfully about his dealings with the former president.`\
 https://nytimes.com/2024/04/26/nyregion/trump-pecker-hush-money-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/t-magazine/antwerp-belgium-guide-local.html
 **The Mostly Persuasive Logic Behind the New Ban on Noncompetes**\
 `The F.T.C. argued that noncompetes don’t just harm workers. They also harm society.`\
 https://nytimes.com/2024/04/26/opinion/ftc-noncompetes-ban.html
-
-**Who is Rhona Graff, Trump’s Former Assistant Who Is Testifying Against Him?**\
-`Few people knew Donald J. Trump like Ms. Graff, a Queens native who made a career serving the defendant.`\
-https://nytimes.com/2024/04/26/nyregion/rhona-graff-testify-trump-assistant.html
 
