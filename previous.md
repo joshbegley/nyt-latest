@@ -1,3 +1,31 @@
+**With YouTube Booming, Podcast Creators Get Camera-Ready**\
+`To some, “video podcasts” are a contradiction in terms. That hasn’t made them any less popular.`\
+https://nytimes.com/2024/04/26/arts/podcasts-video-youtube-audio.html
+
+**Americans Went All-In on Self-Storage. That Demand Is Suddenly Cooling.**\
+`Many developers, spurred by the pandemic to invest money in new self-storage facilities, have been caught short by this drop in demand.`\
+https://nytimes.com/2024/04/26/business/self-storage-business.html
+
+**A Portrait of a Saint Is Reincarnated in Milwaukee**\
+`The painting “Saint Francis of Assisi in His Tomb” became one of the inspirations for Idris Khan in his first solo museum show in the United States.`\
+https://nytimes.com/2024/04/26/arts/design/milwaukee-museum-idris-kahn-saint-francis.html
+
+**Mickalene Thomas Takes Los Angeles**\
+`The Broad Museum kicks off a touring exhibition of the artist’s work over the last 20 years.`\
+https://nytimes.com/2024/04/26/arts/design/mickalene-thomas-broad-museum-los-angeles.html
+
+**Rebuilding After a Fire. Are Things Really Just Things?**\
+`A writer reflects on what it means to lose nearly everything in a disaster, as she moves into a new home.`\
+https://nytimes.com/2024/04/26/realestate/house-fire-rebuilding.html
+
+**Can the Best Fossils Ever Found Answer the Biggest Dinosaur Question?**\
+`Two creatures unearthed in 2006, and finally on display in North Carolina, might hold the key to a major debate over a certain animal’s identity.`\
+https://nytimes.com/2024/04/26/arts/design/north-carolina-museum-dinosaur-question.html
+
+**Putting Sexual Assault on Trial, in a Fraught One-Woman Case**\
+`The actress Jodie Comer recasts her Tony-winning turn in Suzie Miller’s hit play “Prima Facie” for a new novelization.`\
+https://nytimes.com/2024/04/26/books/review/prima-facie-audiobook-jodie-comer-suzie-miller.html
+
 **Has South Africa Truly Defeated Apartheid?**\
 `We looked at how far South Africa has come in meeting its goals after 30 years of freedom.`\
 https://nytimes.com/interactive/2024/04/26/world/africa/south-africa-apartheid-freedom.html
@@ -9,32 +37,4 @@ https://nytimes.com/interactive/2024/04/26/us/politics/us-china-military-bases-w
 **When U.S. Diplomats Visit China, Meal Choices Are About More Than Taste Buds**\
 `Visits to China by American officials like Secretary of State Antony J. Blinken can bring fame to local restaurants, as well as scrutiny to the dignitaries.`\
 https://nytimes.com/2024/04/26/world/asia/us-china-visits-blinken-food.html
-
-**Xi Meets Blinken With Tough Issues on the Agenda**\
-`The direct meeting with China’s leader is a sign of continued effort to ease tensions, but officials expect little progress on core issues like Taiwan, trade and Chinese support of Russia.`\
-https://nytimes.com/2024/04/26/world/asia/blinken-xi-jinping-china.html
-
-**In Trump Case, the Defense Will Try to Knock Down the Allegation of a Plot**\
-`David Pecker, the former publisher of The National Enquirer, will be back on the stand for continued cross-examination.`\
-https://nytimes.com/2024/04/26/nyregion/trump-trial-pecker-cross-examination.html
-
-**Putting the Spotlight on Spot Illustrations**\
-`Small sketches that appear on the top of Page A3 of the newspaper provide a daily dose of delight.`\
-https://nytimes.com/2024/04/26/insider/putting-the-spotlight-on-spot-illustrations.html
-
-**New York Vowed to Shut Down Illegal Weed Shops. It Just Licensed One.**\
-`New York officials had said that those who jumped the line to cash in on cannabis would not be rewarded over those who played by the rules.`\
-https://nytimes.com/2024/04/26/nyregion/weed-shop-new-york.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/26/crosswords/spelling-bee-forum.html
-
-**The Connections Companion No. 320**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/26/crosswords/connections-companion.html
-
-**Today’s Wordle Review No. 1,042**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/26/crosswords/wordle-review.html
 
