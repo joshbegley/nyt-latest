@@ -1,3 +1,15 @@
+**Who Is Gary Farro, the Banker Testifying in Trump’s Trial?**\
+`Donald J. Trump’s lawyer has said he arranged a hush-money payment through First Republic Bank, where Gary Farro worked.`\
+https://nytimes.com/2024/04/26/nyregion/gary-farro-trump-trial.html
+
+**Book Club: Let’s Talk About ‘Good Material,’ by Dolly Alderton**\
+`The writer Dolly Alderton has long had an avid following in her native England, but with her best-selling comic novel “Good Material” she’s become a trans-Atlantic success.`\
+https://nytimes.com/2024/04/26/books/review/podcast-good-material-dolly-alderton.html
+
+**Why Gaza Protests on U.S. College Campuses Have Become So Contagious**\
+`Experts say the partisan political context in Washington are a driver.`\
+https://nytimes.com/2024/04/26/world/europe/interpreter-gaza-college-protests.html
+
 **Cecil Williams, Whose San Francisco Church Became a Haven, Dies at 94**\
 `As the well-connected pastor of the Glide Memorial Church in the blighted Tenderloin district, he preached a “radically inclusive” gospel in serving people in need.`\
 https://nytimes.com/2024/04/26/us/cecil-williams-dead.html
