@@ -1,3 +1,7 @@
+**Taylor Swift: The ‘Tortured’ Mailbag**\
+`Answering your questions about the sound and substance of the pop superstar’s double album, and the way fans and critics have responded to it.`\
+https://nytimes.com/2024/04/26/arts/music/popcast-taylor-swift-tortured-poets-department.html
+
 **Taylor Swift Needs to Become Other People**\
 `If commerce demands constant songwriting, she needs new characters to play.`\
 https://nytimes.com/2024/04/26/opinion/taylor-swift.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/world/europe/king-charles-iii-royal-duties.html
 **How a Supreme Court Immunity Ruling Could Affect Trump’s Election Case**\
 `In arguments on Thursday, the justices appeared to signal two ways they could help Donald Trump as he fights charges that he plotted to overturn the 2020 election.`\
 https://nytimes.com/2024/04/26/us/politics/trump-supreme-court-immunity.html
-
-**‘Forbidden Broadway’ Scraps Summer Broadway Run, Citing Crowded Season**\
-`The parody show was scheduled to begin performances in July at the Helen Hayes Theater.`\
-https://nytimes.com/2024/04/26/theater/forbidden-broadway.html
 

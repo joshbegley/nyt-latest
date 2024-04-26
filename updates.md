@@ -1,3 +1,7 @@
+**Taylor Swift: The ‘Tortured’ Mailbag**\
+`Answering your questions about the sound and substance of the pop superstar’s double album, and the way fans and critics have responded to it.`\
+https://nytimes.com/2024/04/26/arts/music/popcast-taylor-swift-tortured-poets-department.html
+
 **Taylor Swift Needs to Become Other People**\
 `If commerce demands constant songwriting, she needs new characters to play.`\
 https://nytimes.com/2024/04/26/opinion/taylor-swift.html
