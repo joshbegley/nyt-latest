@@ -1,3 +1,7 @@
+**Watch Mike Faist and Josh O’Connor Spar Over Churros in ‘Challengers’**\
+`The director Luca Guadagnino narrates a tense scene between the two characters.`\
+https://nytimes.com/2024/04/26/movies/challengers-clip.html
+
 **After Apartheid**\
 `Thirty years after apartheid ended, South Africa will vote again.`\
 https://nytimes.com/2024/04/26/briefing/after-apartheid.html

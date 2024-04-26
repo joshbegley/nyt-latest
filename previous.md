@@ -1,3 +1,7 @@
+**Watch Mike Faist and Josh O’Connor Spar Over Churros in ‘Challengers’**\
+`The director Luca Guadagnino narrates a tense scene between the two characters.`\
+https://nytimes.com/2024/04/26/movies/challengers-clip.html
+
 **After Apartheid**\
 `Thirty years after apartheid ended, South Africa will vote again.`\
 https://nytimes.com/2024/04/26/briefing/after-apartheid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/movies/uncropped-documentary.html
 **With Inflation This High, Nobody Knows What a Dollar Is Worth**\
 `Strong reactions to rising prices and misunderstandings about the value of money are rampant, our columnist says.`\
 https://nytimes.com/2024/04/26/business/inflation-money-dollar-value.html
-
-**A Timeline of Nemat Shafik’s Tenure as Columbia President**\
-`Dr. Shafik, who began her role in July, has faced increasing pressure over her congressional testimony and her handling of pro-Palestinian protests on campus.`\
-https://nytimes.com/2024/04/26/us/nemat-shafik-columbia-timeline.html
 
