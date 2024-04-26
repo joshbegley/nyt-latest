@@ -1,3 +1,15 @@
+**Who Is Gary Farro, the Banker Testifying in Trump’s Trial?**\
+`Donald J. Trump’s lawyer has said he arranged a hush-money payment through First Republic Bank, where Gary Farro worked.`\
+https://nytimes.com/2024/04/26/nyregion/gary-farro-trump-trial.html
+
+**Book Club: Let’s Talk About ‘Good Material,’ by Dolly Alderton**\
+`The writer Dolly Alderton has long had an avid following in her native England, but with her best-selling comic novel “Good Material” she’s become a trans-Atlantic success.`\
+https://nytimes.com/2024/04/26/books/review/podcast-good-material-dolly-alderton.html
+
+**Why Gaza Protests on U.S. College Campuses Have Become So Contagious**\
+`Experts say the partisan political context in Washington are a driver.`\
+https://nytimes.com/2024/04/26/world/europe/interpreter-gaza-college-protests.html
+
 **Cecil Williams, Whose San Francisco Church Became a Haven, Dies at 94**\
 `As the well-connected pastor of the Glide Memorial Church in the blighted Tenderloin district, he preached a “radically inclusive” gospel in serving people in need.`\
 https://nytimes.com/2024/04/26/us/cecil-williams-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/26/business/michael-c-jensen-dead.html
 **Biden Taunts Trump, Calling Him a ‘Loser,’ Trying to Get Under His Skin**\
 `President Biden has been trying to hit his opponent where it hurts, critiquing everything from his hairstyle to his energy levels in court.`\
 https://nytimes.com/2024/04/26/us/politics/biden-trump-taunts.html
-
-**I’m Horrified by My Kid’s Obsession With Toy Guns. What to Do?**\
-`The magazine’s Ethicist columnist on the concerns posed by a child’s hobby.`\
-https://nytimes.com/2024/04/26/magazine/toy-guns-kid-ethics.html
-
-**A Guide to Antwerp, a City of Avant-Garde Fashion and Art Nouveau Architecture**\
-`Five locals — including three of Belgium’s most influential designers — share their favorite stores, museums, restaurants and more.`\
-https://nytimes.com/2024/04/26/t-magazine/antwerp-belgium-guide-local.html
-
-**The Mostly Persuasive Logic Behind the New Ban on Noncompetes**\
-`The F.T.C. argued that noncompetes don’t just harm workers. They also harm society.`\
-https://nytimes.com/2024/04/26/opinion/ftc-noncompetes-ban.html
 
