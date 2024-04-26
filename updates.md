@@ -1,3 +1,7 @@
+**Did Richard III Kill the Princes in the Tower?**\
+`Philippa Langley devoted years to the search for Richard III’s remains. Now, she’s trying to crack a 15th-century cold case: Did he really assassinate his nephews?`\
+https://nytimes.com/2024/04/26/books/philippa-langley-richard-iii-princes-in-the-tower.html
+
 **Review: Turning a Dance Spotlight on the Painter Juan de Pareja**\
 `Eduardo Vilaro celebrates his 15th year as artistic director of Ballet Hispánico with a premiere exploring the life of the Afro-Hispanic artist.`\
 https://nytimes.com/2024/04/26/arts/dance/review-ballet-hispanico-buscando-a-juan.html
