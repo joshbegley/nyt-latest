@@ -1,3 +1,7 @@
+**Pecker Testifies About ‘Catch-and-Kill’ Payments**\
+`David Pecker, former publisher of The National Enquirer, testified that Donald J. Trump thanked him for burying stories during the 2016 campaign. Jonah Bromwich, a criminal justice reporter at The New York Times, gives takeaways from Pecker’s testimony.`\
+https://nytimes.com/video/nyregion/100000009434846/donald-trump-trial-david-pecker.html
+
 **Review: A New ‘Great Gatsby’ Leads With Comedy and Romance**\
 `This musical adaptation, now on Broadway, is a lot of Jazz Age fun. But it forgot that Fitzgerald’s 1925 novel endures because it is a tragedy.`\
 https://nytimes.com/2024/04/25/theater/the-great-gatsby-review-noblezada-jordan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/25/us/abortion-ban-arizona.html
 **Columbia University Senate Is Said to Be Redrafting Resolution Admonishing Its President**\
 `Worried that a censure vote could result in President Nemat Shafik’s removal at a time of crisis, the official university body plans to vote on a watered-down proposal, some members said.`\
 https://nytimes.com/2024/04/25/us/columbia-senate-nemat-shafik.html
-
-**How to Claim Your Part of a $5.6 Million Ring Settlement**\
-`The Federal Trade Commission is sending payments to customers who had certain Ring home security cameras and accounts during a particular time period, the agency said.`\
-https://nytimes.com/2024/04/25/technology/ring-settlement-claim.html
 
