@@ -1,3 +1,7 @@
+**Paramount Chief Executive Bob Bakish Could Be Out Next Week**\
+`He was once a staunch ally of the company’s biggest owner, Shari Redstone, but the relationship soured in recent months.`\
+https://nytimes.com/2024/04/26/business/paramount-ceo-bob-bakish.html
+
 **What Weinstein’s Overturned Conviction Means for His California Case**\
 `Harvey Weinstein faced similar sex crimes charges in New York and California, but the arguments used to overturn one case may not help in the other.`\
 https://nytimes.com/2024/04/26/nyregion/weinstein-conviction-appeal-california.html
