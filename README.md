@@ -1,3 +1,11 @@
+**Trump’s trial is the latest chapter in the rich history of Lower Manhattan’s courts.**\
+`A cluster of downtown buildings has served as the borough’s “epicenter of criminal justice in New York since the 1830s,” said a lawyer who has led walking tours of Manhattan courthouses.`\
+https://nytimes.com/2024/04/26/nyregion/manhattan-courts-trump-trial.html
+
+**The Best Ways to Cook Asparagus**\
+`You don’t just have to roast those stalks. These three easy techniques can bring out the delicious best from the spring favorite.`\
+https://nytimes.com/2024/04/26/dining/best-ways-to-cook-asparagus.html
+
 **On Stand, Pecker Fires Back After Trump Lawyer Implies He Was Untruthful**\
 `The confrontational strategy adopted by the lawyer, Emil Bove, did not seem to work with David Pecker, the former publisher of The National Enquirer.`\
 https://nytimes.com/2024/04/26/nyregion/david-pecker-trump-lawyer.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/04/26/arts/television/best-of-late-night-tr
 **The Big Number: $40 Billion**\
 `Meta has already spent billions on developing artificial intelligence, and it plans to spend billions more.`\
 https://nytimes.com/interactive/2024/04/26/business/meta-spending-ai.html
-
-**Student Leader of Columbia Protests: ‘Zionists Don’t Deserve to Live’**\
-`After video surfaced on social media, the student, Khymani James, said on Friday that his comments were wrong.`\
-https://nytimes.com/2024/04/26/nyregion/columbia-student-protest-zionism.html
-
-**An Unearthed Johnny Cash Recording, and 11 More New Songs**\
-`Hear tracks by Normani, Nilüfer Yanya, Thom Yorke and others.`\
-https://nytimes.com/2024/04/26/arts/music/playlist-johnny-cash-normani-thom-yorke.html
 
