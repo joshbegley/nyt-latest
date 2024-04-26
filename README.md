@@ -1,3 +1,11 @@
+**Would Trump Move to Control the Fed?**\
+`Allies of the former president are said to be devising plans to reduce the central bank’s independence if he is re-elected, a move that would have big consequences for monetary policy.`\
+https://nytimes.com/2024/04/26/business/dealbook/trump-fed-independence.html
+
+**An Enduring Race Tax**\
+`Black Americans remain the only racial group with a homeownership rate below 50 percent.`\
+https://nytimes.com/2024/04/26/us/black-americans-homeownership.html
+
 **Baby Born in Gaza After Her Mother Was Killed Has Died**\
 `The birth of the girl, captured on video, brought a glimmer of hope to war-torn Gaza, but she died of respiratory problems after five days, her uncle said.`\
 https://nytimes.com/2024/04/26/world/middleeast/gaza-baby-dies-palestinian-mother-israel-strike.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/26/podcasts/the-daily/harvey-weinstein-overturned.ht
 **Titanic’s Treasures Captivate Collectors, but They’ll Need Deep Pockets**\
 `Numerous artifacts from the Titanic, including a violin case, are up for auction this weekend in England. Collectors are ready to pounce.`\
 https://nytimes.com/2024/04/26/world/europe/titanic-auction-memorabilia.html
-
-**This Whole King Trump Thing Is Getting Awfully Literal**\
-`The former president’s claim that he has absolute immunity for criminal acts taken in office as president is an insult to reason.`\
-https://nytimes.com/2024/04/26/opinion/trump-immunity-supreme-court.html
-
-**Daimler Truck Workers in North Carolina Are Poised to Strike**\
-`A walkout by employees who make Freightliner trucks and Thomas Built buses would expand the U.A.W.’s campaigns in the South.`\
-https://nytimes.com/2024/04/26/business/daimler-truck-uaw-strike.html
 
