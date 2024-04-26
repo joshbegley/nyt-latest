@@ -1,3 +1,7 @@
+**Pentagon Announces Additional $6 Billion in Military Aid for Ukraine**\
+`The funds will allow Kyiv to purchase weapons directly from American defense companies.`\
+https://nytimes.com/2024/04/26/us/politics/ukraine-military-aid.html
+
 **Leader of Federal Student Aid Office Steps Down After College Admissions Crisis**\
 `During Richard Cordray’s tenure at the agency, the botched rollout of the new FAFSA upended the college admissions process.`\
 https://nytimes.com/2024/04/26/us/politics/federal-student-aid-fafsa-cordray.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/world/europe/interpreter-gaza-college-protests.ht
 **Cecil Williams, Whose San Francisco Church Became a Haven, Dies at 94**\
 `As the well-connected pastor of the Glide Memorial Church in the blighted Tenderloin district, he preached a “radically inclusive” gospel in serving people in need.`\
 https://nytimes.com/2024/04/26/us/cecil-williams-dead.html
-
-**Tabloid Publisher Defiant as Trump Lawyer Tries to Shake His Confidence**\
-`David Pecker, who was the keeper of Donald J. Trump’s secrets, insisted he had testified truthfully about his dealings with the former president.`\
-https://nytimes.com/2024/04/26/nyregion/trump-pecker-hush-money-trial.html
 

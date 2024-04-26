@@ -1,4 +1,8 @@
 **Leader of Federal Student Aid Office Steps Down After College Admissions Crisis**\
+`During Richard Cordray’s tenure at the agency, the botched rollout of the new FAFSA upended the college admissions process.`\
+https://nytimes.com/2024/04/26/us/politics/federal-student-aid-fafsa-cordray.html
+
+**Leader of Federal Student Aid Office Steps Down After College Admissions Crisis**\
 `During his tenure, the botched rollout of the new FAFSA upended the college admissions process.`\
 https://nytimes.com/2024/04/26/us/politics/federal-student-aid-fafsa-cordray.html
 
