@@ -11,7 +11,7 @@ https://nytimes.com/2024/04/26/opinion/taylor-swift.html
 https://nytimes.com/2024/04/26/arts/music/amplifier-newsletter-st-vincent-songs.html
 
 **Four More Years, Pause**\
-`There’s no use in hiding presidential slipups.`\
+`There’s no use in hiding presidential slip-ups.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/biden-speech-pause
 
 **Trump’s trial is the latest chapter in the rich history of Lower Manhattan’s courts.**\
