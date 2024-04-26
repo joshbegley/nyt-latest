@@ -1,3 +1,7 @@
+**Review: In ‘Mother Play,’ Paula Vogel Unboxes a Family Story**\
+`Jessica Lange stars as a ferocious matriarch alongside Celia Keenan-Bolger and Jim Parsons in Vogel’s latest family drama.`\
+https://nytimes.com/2024/04/25/theater/mother-play-review-jessica-lange-paula-vogel.html
+
 **Mike Pinder, Founding Keyboardist of the Moody Blues, Dies at 82**\
 `His expertise on the electromechanical Mellotron helped define the band’s progressive sound in the 1960s and ’70s on albums like “Days of Future Passed.”`\
 https://nytimes.com/2024/04/25/arts/music/mike-pinder-moody-blues-dead.html
