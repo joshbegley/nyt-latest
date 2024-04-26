@@ -1,4 +1,8 @@
 **The Schemes to Squelch Trump’s Scandals Were Hardly Commonplace**\
+`Trump’s defense lawyers tried but failed to prove David Pecker was a liar.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-trial-pecker-bove
+
+**The Schemes to Squelch Trump’s Scandals Were Hardly Commonplace**\
 `Trump’s defense lawyers tried and failed to prove David Pecker was a liar.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-trial-pecker-bove
 
