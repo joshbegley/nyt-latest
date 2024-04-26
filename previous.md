@@ -1,3 +1,7 @@
+**Hezbollah missiles kill an Israeli civilian in the disputed Har Dov border area.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/hezbollah-missiles-kill-an-israeli-civilian-in-the-disputed-har-dov-border-area
+
 **Watch Mike Faist and Josh O’Connor Spar Over Churros in ‘Challengers’**\
 `The director Luca Guadagnino narrates a tense scene between the two characters.`\
 https://nytimes.com/2024/04/26/movies/challengers-clip.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/business/daimler-truck-uaw-strike.html
 **‘Uncropped’: Images That Make You Want to Pause the Movie**\
 `A documentary celebrates the work of the revered photographer James Hamilton.`\
 https://nytimes.com/2024/04/26/movies/uncropped-documentary.html
-
-**With Inflation This High, Nobody Knows What a Dollar Is Worth**\
-`Strong reactions to rising prices and misunderstandings about the value of money are rampant, our columnist says.`\
-https://nytimes.com/2024/04/26/business/inflation-money-dollar-value.html
 

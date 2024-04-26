@@ -1,3 +1,7 @@
+**Hezbollah missiles kill an Israeli civilian in the disputed Har Dov border area.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/hezbollah-missiles-kill-an-israeli-civilian-in-the-disputed-har-dov-border-area
+
 **Watch Mike Faist and Josh O’Connor Spar Over Churros in ‘Challengers’**\
 `The director Luca Guadagnino narrates a tense scene between the two characters.`\
 https://nytimes.com/2024/04/26/movies/challengers-clip.html
