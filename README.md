@@ -1,3 +1,7 @@
+**Review: Turning a Dance Spotlight on the Painter Juan de Pareja**\
+`Eduardo Vilaro celebrates his 15th year as artistic director of Ballet Hispánico with a premiere exploring the life of the Afro-Hispanic artist.`\
+https://nytimes.com/2024/04/26/arts/dance/review-ballet-hispanico-buscando-a-juan.html
+
 **9 New Shows Our Theater Critics Are Talking About**\
 `This past week has been jam-packed with openings. Our reviewers think these new shows are worth knowing about even if you’re not planning to see them.`\
 https://nytimes.com/2024/04/26/theater/theater-new-shows-cabaret-mary-jane.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/26/t-magazine/wardell-milan-fraenkel-gal
 **Lessons in Democracy From F.C. Porto**\
 `A powerful president and a popular rival highlight an election that has already featured fights, arrests and accusations of intimidation.`\
 https://nytimes.com/2024/04/26/world/europe/fc-porto-election-da-costa-villas-boas.html
-
-**Talk of an Immigrant ‘Invasion’ Grows in Republican Ads and Speech**\
-`Once relegated to the margins of the national debate, the word is now part of the party’s mainstream message on immigration.`\
-https://nytimes.com/2024/04/26/us/politics/republicans-immigration-ads-election.html
 
