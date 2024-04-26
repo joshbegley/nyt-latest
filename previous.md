@@ -1,3 +1,7 @@
+**Auto Safety Regulator Investigating Tesla Recall of Autopilot**\
+`The National Highway Safety Administration said it had concerns about how Tesla handled the recall based on recent crashes and testing of cars that had been updated.`\
+https://nytimes.com/2024/04/26/business/tesla-autopilot-recall-nhtsa-investigation.html
+
 **Russia Strikes Ukraine’s Railways and Vows to Slow Arrival of U.S. Aid**\
 `The attacks killed at least six civilians and injured dozens of others, the Ukrainian military and local officials said.`\
 https://nytimes.com/2024/04/26/world/europe/russia-strikes-ukraine-aid-railway.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/your-money/fafsa-financial-aid-louisiana.html
 **The Best California Books for Children**\
 `We’ve added six books for young readers to our growing list of titles that reflect life in the Golden State.`\
 https://nytimes.com/2024/04/26/us/the-best-california-books-for-children.html
-
-**N.F.L. Draft Had Some Style Winners**\
-`The next class of football stars has done some fashion homework, but the evening was pretty tame compared with the N.B.A. draft.`\
-https://nytimes.com/2024/04/26/style/nfl-draft-football-caleb-williams.html
 

@@ -1,3 +1,7 @@
+**Auto Safety Regulator Investigating Tesla Recall of Autopilot**\
+`The National Highway Safety Administration said it had concerns about how Tesla handled the recall based on recent crashes and testing of cars that had been updated.`\
+https://nytimes.com/2024/04/26/business/tesla-autopilot-recall-nhtsa-investigation.html
+
 **Russia Strikes Ukraine’s Railways and Vows to Slow Arrival of U.S. Aid**\
 `The attacks killed at least six civilians and injured dozens of others, the Ukrainian military and local officials said.`\
 https://nytimes.com/2024/04/26/world/europe/russia-strikes-ukraine-aid-railway.html
