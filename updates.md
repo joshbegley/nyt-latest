@@ -1,3 +1,15 @@
+**Leader of Federal Student Aid Office Steps Down After College Admissions Crisis**\
+`During his tenure, the botched rollout of the new FAFSA upended the college admissions process.`\
+https://nytimes.com/2024/04/26/us/politics/federal-student-aid-fafsa-cordray.html
+
+**Israel Has a Choice to Make: Rafah or Riyadh**\
+`Israel is facing one of the most fateful choices it has ever had to make.`\
+https://nytimes.com/2024/04/26/opinion/israel-war-rafah-riyadh.html
+
+**‘Where’s Cricket?’ Don’t Ask. Kristi Noem Defends Killing Her Dog.**\
+`In a forthcoming book, the South Dakota governor, seen as a potential vice-presidential pick, tells of shooting her hunting dog. And a goat.`\
+https://nytimes.com/2024/04/26/us/politics/kristi-noem-dog-killing.html
+
 **‘Where’s Cricket?’ Don’t Ask. Kristi Noem Defends Killing Her Dog. And a Goat.**\
 `The South Dakota governor, seen as a potential vice-presidential pick, recounted the story of shooting her hunting dog, named Cricket, in a forthcoming book.`\
 https://nytimes.com/2024/04/26/us/politics/kristi-noem-dog-killing.html
