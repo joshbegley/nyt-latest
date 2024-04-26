@@ -1,3 +1,11 @@
+**Schumer Says Foreign Aid Victory Shows Congress Isn’t Broken**\
+`The majority leader says the measure to help Ukraine and other recent bipartisan efforts show there is a path to success on Capitol Hill. But deep partisan differences and institutional problems remain.`\
+https://nytimes.com/2024/04/26/us/politics/schumer-israel-ukraine-aid-congress.html
+
+**On View: A Modern, Tragic Portrait of the Sea**\
+`At Fraenkel Gallery in New York, Wardell Milan’s works — which blend drawing, painting and collage — depict scenes of both comfort and chaos.`\
+https://nytimes.com/interactive/2024/04/26/t-magazine/wardell-milan-fraenkel-gallery.html
+
 **Lessons in Democracy From F.C. Porto**\
 `A powerful president and a popular rival highlight an election that has already featured fights, arrests and accusations of intimidation.`\
 https://nytimes.com/2024/04/26/world/europe/fc-porto-election-da-costa-villas-boas.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/26/us/biden-trump-election/biden-departs-new-yo
 **ExxonMobil and Chevron Report Lower Earnings**\
 `Profits for the two oil giants, which are locked in a standoff over drilling off the coast of Guyana, were squeezed by lower profitability for refining crude and falling natural gas prices.`\
 https://nytimes.com/2024/04/26/business/chevron-exxonmobil-oil-earnings-prices.html
-
-**Number of Trump Allies Facing Election Interference Charges Keeps Growing**\
-`Prosecutors are sending a warning as Donald Trump and his supporters continue to spread conspiracy theories: that disrupting elections can bear a heavy legal cost.`\
-https://nytimes.com/2024/04/26/us/politics/number-of-trump-allies-facing-election-interference-charges-keeps-growing.html
-
-**He Paid $13 for $13,000 Cartier Earrings, and Then the Jeweler Noticed**\
-`When Rogelio Villarreal bought rose-gold earrings for a price that the luxury retailer said was a mistake, he looked to a Mexican consumer protection law.`\
-https://nytimes.com/2024/04/26/world/americas/mexico-cartier-sale-consumer-protection.html
 
