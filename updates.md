@@ -1,3 +1,11 @@
+**Taylor Swift Needs to Become Other People**\
+`If commerce demands constant songwriting, she needs new characters to play.`\
+https://nytimes.com/2024/04/26/opinion/taylor-swift.html
+
+**St. Vincent’s 10 (or, Actually 11) Essential Songs**\
+`Sample her seven daring and eclectic albums as her latest, “All Born Screaming,” arrives.`\
+https://nytimes.com/2024/04/26/arts/music/amplifier-newsletter-st-vincent-songs.html
+
 **Four More Years, Pause**\
 `There’s no use in hiding presidential slipups.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/biden-speech-pause

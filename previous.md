@@ -1,3 +1,11 @@
+**Taylor Swift Needs to Become Other People**\
+`If commerce demands constant songwriting, she needs new characters to play.`\
+https://nytimes.com/2024/04/26/opinion/taylor-swift.html
+
+**St. Vincent’s 10 (or, Actually 11) Essential Songs**\
+`Sample her seven daring and eclectic albums as her latest, “All Born Screaming,” arrives.`\
+https://nytimes.com/2024/04/26/arts/music/amplifier-newsletter-st-vincent-songs.html
+
 **Four More Years, Pause**\
 `There’s no use in hiding presidential slipups.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/biden-speech-pause
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/26/us/politics/trump-supreme-court-immunity.html
 **‘Forbidden Broadway’ Scraps Summer Broadway Run, Citing Crowded Season**\
 `The parody show was scheduled to begin performances in July at the Helen Hayes Theater.`\
 https://nytimes.com/2024/04/26/theater/forbidden-broadway.html
-
-**Congestion Pricing Will Start on June 30 in New York City, M.T.A. Says**\
-`Transit officials announced the start of the program, which they have said will ease some of the nation’s worst traffic.`\
-https://nytimes.com/2024/04/26/nyregion/congestion-pricing-nyc-june-30.html
-
-**The Best of Late Night This Week**\
-`The hosts spent much of the week discussing former President Donald Trump’s criminal trial in Manhattan, including the opening arguments and the testimony of David Pecker, the former publisher of the National Enquirer. Here’s what they had to say.`\
-https://nytimes.com/interactive/2024/04/26/arts/television/best-of-late-night-trump-trial.html
 
