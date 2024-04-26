@@ -1,3 +1,7 @@
+**Xi Meets Blinken With Tough Issues on the Agenda**\
+`The direct meeting with China’s leader was a sign of continued effort to ease tensions, but officials expect little progress on core issues like Taiwan, trade and Chinese support of Russia.`\
+https://nytimes.com/2024/04/26/world/asia/blinken-xi-jinping-china.html
+
 **In Trump Case, the Defense Will Try to Knock Down the Allegation of a Plot**\
 `David Pecker, the former publisher of The National Enquirer, will be back on the stand for continued cross-examination.`\
 https://nytimes.com/2024/04/26/nyregion/trump-trial-pecker-cross-examination.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas
 **Word of the Day: interloper**\
 `This word has appeared in 33 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/26/learning/word-of-the-day-interloper.html
-
-**The Harley Riders With a Taste for Tea and Apple Strudel**\
-`The Harley Owners Group in Alice Springs is what’s known as a social motorcycle club, with the emphasis on social.`\
-https://nytimes.com/2024/04/26/world/australia/harley-club.html
 
