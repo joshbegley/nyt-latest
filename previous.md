@@ -1,3 +1,7 @@
+**On stand, Pecker fires back after Trump lawyer implies he was untruthful.**\
+`By Matthew Haag`\
+https://nytimes.com/2024/04/26/nyregion/david-pecker-trump-lawyer.html
+
 **The Essential Joan Didion**\
 `Her distinctive prose and sharp eye were tuned to an outsider’s frequency, telling us about ourselves in essays are almost reflexively skeptical. Here’s where to start.`\
 https://nytimes.com/article/joan-didion-best-books.html
@@ -27,14 +31,10 @@ https://nytimes.com/interactive/2024/04/26/arts/television/best-of-late-night-tr
 https://nytimes.com/interactive/2024/04/26/business/meta-spending-ai.html
 
 **Student Leader of Columbia Protests: ‘Zionists Don’t Deserve to Live’**\
-`Khymani James, a junior, apologized for his statements — made before he joined the demonstration — after video surfaced on social media.`\
+`After video surfaced on social media, the student, Khymani James, said on Friday that his comments were wrong.`\
 https://nytimes.com/2024/04/26/nyregion/columbia-student-protest-zionism.html
 
 **An Unearthed Johnny Cash Recording, and 11 More New Songs**\
 `Hear tracks by Normani, Nilüfer Yanya, Thom Yorke and others.`\
 https://nytimes.com/2024/04/26/arts/music/playlist-johnny-cash-normani-thom-yorke.html
-
-**The Supreme Court and Presidential Immunity**\
-`Readers express concern about how the justices will rule on Donald Trump’s immunity claim. Also: An environmental decision for Alaska; Ralph Nader, on third parties.`\
-https://nytimes.com/2024/04/26/opinion/supreme-court-trump-immunity.html
 

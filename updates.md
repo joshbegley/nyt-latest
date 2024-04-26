@@ -1,3 +1,11 @@
+**On stand, Pecker fires back after Trump lawyer implies he was untruthful.**\
+`By Matthew Haag`\
+https://nytimes.com/2024/04/26/nyregion/david-pecker-trump-lawyer.html
+
+**Student Leader of Columbia Protests: ‘Zionists Don’t Deserve to Live’**\
+`After video surfaced on social media, the student, Khymani James, said on Friday that his comments were wrong.`\
+https://nytimes.com/2024/04/26/nyregion/columbia-student-protest-zionism.html
+
 **The Essential Joan Didion**\
 `Her distinctive prose and sharp eye were tuned to an outsider’s frequency, telling us about ourselves in essays are almost reflexively skeptical. Here’s where to start.`\
 https://nytimes.com/article/joan-didion-best-books.html
