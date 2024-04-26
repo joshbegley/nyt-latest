@@ -1,3 +1,15 @@
+**An Essential Set of Cold War Era Treaties Is Falling Apart**\
+`A space nukes ban fails at the U.N.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/russia-veto-space-nukes
+
+**Sesame Noodles, Buttered Biscuits, Charred Cabbage, Huevos Rancheros**\
+`The weekend is here. Let’s eat.`\
+https://nytimes.com/2024/04/26/dining/sesame-noodles-buttered-biscuits-charred-cabbage-huevos-rancheros.html
+
+**Five Horror Movies to Stream Now**\
+`This month’s picks include demonic forces from Mexico, Mongolia, small-town America and hell itself.`\
+https://nytimes.com/2024/04/26/movies/horror-movies-streaming.html
+
 **Schumer Says Foreign Aid Victory Shows Congress Isn’t Broken**\
 `The majority leader says the measure to help Ukraine and other recent bipartisan efforts show there is a path to success on Capitol Hill. But deep partisan differences and institutional problems remain.`\
 https://nytimes.com/2024/04/26/us/politics/schumer-israel-ukraine-aid-congress.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/26/world/europe/russia-strikes-ukraine-aid-railway.h
 **Warren Buffett’s Real Estate Brokerage Agrees to $250 Million Settlement**\
 `HomeServices of America, the largest residential real estate brokerage in the United States, will settle the claims brought by home sellers who said they were forced to pay inflated commissions, pending court approval.`\
 https://nytimes.com/2024/04/26/realestate/warren-buffett-homeservices-lawsuit-settlement.html
-
-**At Least Three Women Were Infected With H.I.V. After ‘Vampire Facials’**\
-`The women underwent the cosmetic procedure at an unlicensed spa in New Mexico.`\
-https://nytimes.com/2024/04/26/health/hiv-vampire-facial.html
-
-**Biden departs New York for Washington, as Trump returns to a Manhattan courtroom.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/04/26/us/biden-trump-election/biden-departs-new-york-for-washington-as-trump-returns-to-a-manhattan-courtroom
-
-**ExxonMobil and Chevron Report Lower Earnings**\
-`Profits for the two oil giants, which are locked in a standoff over drilling off the coast of Guyana, were squeezed by lower profitability for refining crude and falling natural gas prices.`\
-https://nytimes.com/2024/04/26/business/chevron-exxonmobil-oil-earnings-prices.html
 
