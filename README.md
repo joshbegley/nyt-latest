@@ -1,3 +1,7 @@
+**Talk of an Immigrant ‘Invasion’ Grows in Republican Ads and Speech**\
+`Once relegated to the margins of the national debate, the word is now part of the party’s mainstream message on immigration.`\
+https://nytimes.com/2024/04/26/us/politics/republicans-immigration-ads-election.html
+
 **Auto Safety Regulator Investigating Tesla Recall of Autopilot**\
 `The National Highway Safety Administration said it had concerns about how Tesla handled the recall based on recent crashes and testing of cars that had been updated.`\
 https://nytimes.com/2024/04/26/business/tesla-autopilot-recall-nhtsa-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/world/americas/mexico-cartier-sale-consumer-prote
 **Louisiana Will No Longer Require Students to Fill Out FAFSA to Graduate**\
 `Experts say high school seniors are more likely to go to college if they complete the financial aid form, but the state sees privacy issues with mandating it.`\
 https://nytimes.com/2024/04/26/your-money/fafsa-financial-aid-louisiana.html
-
-**The Best California Books for Children**\
-`We’ve added six books for young readers to our growing list of titles that reflect life in the Golden State.`\
-https://nytimes.com/2024/04/26/us/the-best-california-books-for-children.html
 
