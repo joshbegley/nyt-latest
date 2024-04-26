@@ -1,3 +1,11 @@
+**Think Critically, Build Community: 7 New York Times Games to Play in the Classroom**\
+`Wordle? Spelling Bee? Flashback? Connections? Teachers across subject areas and levels say Times games have become part of their routines.`\
+https://nytimes.com/2024/04/25/learning/think-critically-build-community-7-new-york-times-games-to-play-in-the-classroom.html
+
+**What Do You Like About Playing Games?**\
+`What games do you love? Which ones do you like playing alone, and which do you prefer to play with others? What do you get from gaming?`\
+https://nytimes.com/2024/04/25/learning/what-do-you-like-about-playing-games.html
+
 **Review: In ‘Mother Play,’ Paula Vogel Unboxes a Family Story**\
 `Jessica Lange stars as a ferocious matriarch alongside Celia Keenan-Bolger and Jim Parsons in Vogel’s latest family drama.`\
 https://nytimes.com/2024/04/25/theater/mother-play-review-jessica-lange-paula-vogel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/25/opinion/us-federal-debt.html
 **Can Biden Revive the Fortunes of American Workers?**\
 `He’s the most pro-labor president since Harry Truman. Is that enough?`\
 https://nytimes.com/2024/04/25/opinion/biden-unions-uaw.html
-
-**One in Five Milk Samples Nationwide Shows Genetic Traces of Bird Flu**\
-`There is no evidence that the milk is unsafe to drink, scientists say. But the survey result strongly hints that the outbreak may be widespread.`\
-https://nytimes.com/2024/04/25/health/bird-flu-milk-fda.html
-
-**Peter Schey, Tenacious Lawyer Who Defended Migrant Rights, Dies at 77**\
-`He won the right to services like school and health care for people illegally crossing the border into the U.S. He also fought the Trump administration’s family separation policy.`\
-https://nytimes.com/2024/04/25/us/politics/peter-schey-dead.html
 
