@@ -1,3 +1,15 @@
+**Blinken will make another wartime trip to Israel.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/us-israel-blinken-visit
+
+**26trump-trial**\
+`Live Updates: Defense to Continue Grilling Tabloid Publisher at Trump Trial`\
+https://nytimes.com/live/2024/04/26/nyregion/trump-hush-money-trial
+
+**The Fed’s Favorite Inflation Index Remained Stubborn in March**\
+`Hopes for substantial cuts in interest rates are fading as inflation shows more staying power than expected.`\
+https://nytimes.com/2024/04/26/business/inflation-fed-rates.html
+
 **Police Arrest Rabbis Near Gaza-Israel Border at a Rally to Highlight Starvation**\
 `A group of about 30 rabbis and peace activists from Israel and the United States were trying to take food supplies into the territory.`\
 https://nytimes.com/2024/04/26/world/middleeast/rabbis-arrested-gaza-israel-border-starvation.html
