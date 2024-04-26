@@ -1,3 +1,7 @@
+**N.F.L. Draft Had Some Style Winners**\
+`The next class of football stars has done some fashion homework, but the evening was pretty tame compared with the N.B.A. draft.`\
+https://nytimes.com/2024/04/26/style/nfl-draft-football-caleb-williams.html
+
 **Blinken will make another wartime trip to Israel.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/us-israel-blinken-visit
