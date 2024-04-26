@@ -1,3 +1,11 @@
+**Think Critically, Build Community: 7 New York Times Games to Play in the Classroom**\
+`Wordle? Spelling Bee? Flashback? Connections? Teachers across subject areas and levels say Times games have become part of their routines.`\
+https://nytimes.com/2024/04/25/learning/think-critically-build-community-7-new-york-times-games-to-play-in-the-classroom.html
+
+**What Do You Like About Playing Games?**\
+`What games do you love? Which ones do you like playing alone, and which do you prefer to play with others? What do you get from gaming?`\
+https://nytimes.com/2024/04/25/learning/what-do-you-like-about-playing-games.html
+
 **Review: In ‘Mother Play,’ Paula Vogel Unboxes a Family Story**\
 `Jessica Lange stars as a ferocious matriarch alongside Celia Keenan-Bolger and Jim Parsons in Vogel’s latest family drama.`\
 https://nytimes.com/2024/04/25/theater/mother-play-review-jessica-lange-paula-vogel.html
