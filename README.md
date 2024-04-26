@@ -1,3 +1,7 @@
+**PEN America Cancels World Voices Festival Amid Israel-Gaza Criticism**\
+`The decision by the free expression group came after intense criticism of its response to the war in Gaza. A wave of participants had pulled out of the festival in protest.`\
+https://nytimes.com/2024/04/26/arts/pen-america-cancels-world-voices-festival.html
+
 **‘Harlequin, Refined by Love’ Review: A French Showman’s First Steps**\
 `The revival of a 2006 work by Thomas Jolly, the director masterminding the opening ceremony at the Paris Olympics, shows his gift for visual flamboyance.`\
 https://nytimes.com/2024/04/26/theater/arlequin-poli-par-lamour-thomas-jolly.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/nyregion/david-pecker-trump-lawyer.html
 **The Essential Joan Didion**\
 `Her distinctive prose and sharp eye were tuned to an outsider’s frequency, telling us about ourselves in essays are almost reflexively skeptical. Here’s where to start.`\
 https://nytimes.com/article/joan-didion-best-books.html
-
-**King Charles to Return to Public Duties, Reassuring Anxious Royal Watchers**\
-`The king’s cancer treatment will continue but doctors are “pleased with the progress made so far,” a palace spokesman said.`\
-https://nytimes.com/2024/04/26/world/europe/king-charles-iii-royal-duties.html
 
