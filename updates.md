@@ -1,3 +1,7 @@
+**The Harley Riders With a Taste for Tea and Apple Strudel**\
+`The Harley Owners Group in Alice Springs is what’s known as a social motorcycle club, with the emphasis on social.`\
+https://nytimes.com/2024/04/26/world/australia/harley-club.html
+
 **Friday Briefing**\
 `The Supreme Court considers presidential immunity.`\
 https://nytimes.com/2024/04/26/briefing/supreme-court-immunity-gaza-pier.html
