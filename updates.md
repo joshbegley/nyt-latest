@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`The Supreme Court considers presidential immunity.`\
+https://nytimes.com/2024/04/26/briefing/supreme-court-immunity-gaza-pier.html
+
 **What Is a ‘Decent Wage’? France’s Michelin Raises a Debate.**\
 `The tire maker vowed to ensure that none of its workers would struggle to make ends meet.`\
 https://nytimes.com/2024/04/26/business/france-michelin-wages.html
