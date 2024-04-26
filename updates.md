@@ -1,3 +1,7 @@
+**Biden Delays Ban on Menthol Cigarettes**\
+`The proposal had been years in the making, in an effort to curb death rates of Black smokers targeted by Big Tobacco. In an election year, the president’s weak support among Black voters may have influenced the postponement.`\
+https://nytimes.com/2024/04/26/health/menthol-cigarettes-ban-biden-fda.html
+
 **PEN America Cancels World Voices Festival Amid Israel-Gaza Criticism**\
 `The decision by the free expression group came after intense criticism of its response to the war in Gaza. A wave of participants had pulled out of the festival in protest.`\
 https://nytimes.com/2024/04/26/arts/pen-america-cancels-world-voices-festival.html

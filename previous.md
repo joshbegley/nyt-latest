@@ -1,3 +1,7 @@
+**Biden Delays Ban on Menthol Cigarettes**\
+`The proposal had been years in the making, in an effort to curb death rates of Black smokers targeted by Big Tobacco. In an election year, the president’s weak support among Black voters may have influenced the postponement.`\
+https://nytimes.com/2024/04/26/health/menthol-cigarettes-ban-biden-fda.html
+
 **PEN America Cancels World Voices Festival Amid Israel-Gaza Criticism**\
 `The decision by the free expression group came after intense criticism of its response to the war in Gaza. A wave of participants had pulled out of the festival in protest.`\
 https://nytimes.com/2024/04/26/arts/pen-america-cancels-world-voices-festival.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/dining/best-ways-to-cook-asparagus.html
 **On Stand, Pecker Fires Back After Trump Lawyer Implies He Was Untruthful**\
 `The confrontational strategy adopted by the lawyer, Emil Bove, did not seem to work with David Pecker, the former publisher of The National Enquirer.`\
 https://nytimes.com/2024/04/26/nyregion/david-pecker-trump-lawyer.html
-
-**The Essential Joan Didion**\
-`Her distinctive prose and sharp eye were tuned to an outsider’s frequency, telling us about ourselves in essays are almost reflexively skeptical. Here’s where to start.`\
-https://nytimes.com/article/joan-didion-best-books.html
 
