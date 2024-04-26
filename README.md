@@ -1,3 +1,7 @@
+**Baby Born in Gaza After Her Mother Was Killed Has Died**\
+`The birth of the girl, captured on video, brought a glimmer of hope to war-torn Gaza, but she died of respiratory problems after five days, her uncle said.`\
+https://nytimes.com/2024/04/26/world/middleeast/gaza-baby-dies-palestinian-mother-israel-strike.html
+
 **Hezbollah missiles kill an Israeli civilian in the disputed Har Dov border area.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/hezbollah-missiles-kill-an-israeli-civilian-in-the-disputed-har-dov-border-area
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/opinion/trump-immunity-supreme-court.html
 **Daimler Truck Workers in North Carolina Are Poised to Strike**\
 `A walkout by employees who make Freightliner trucks and Thomas Built buses would expand the U.A.W.’s campaigns in the South.`\
 https://nytimes.com/2024/04/26/business/daimler-truck-uaw-strike.html
-
-**‘Uncropped’: Images That Make You Want to Pause the Movie**\
-`A documentary celebrates the work of the revered photographer James Hamilton.`\
-https://nytimes.com/2024/04/26/movies/uncropped-documentary.html
 
