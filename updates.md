@@ -1,3 +1,7 @@
+**Lessons in Democracy From F.C. Porto**\
+`A powerful president and a popular rival highlight an election that has already featured fights, arrests and accusations of intimidation.`\
+https://nytimes.com/2024/04/26/world/europe/fc-porto-election-da-costa-villas-boas.html
+
 **Talk of an Immigrant ‘Invasion’ Grows in Republican Ads and Speech**\
 `Once relegated to the margins of the national debate, the word is now part of the party’s mainstream message on immigration.`\
 https://nytimes.com/2024/04/26/us/politics/republicans-immigration-ads-election.html
