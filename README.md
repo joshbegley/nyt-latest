@@ -1,3 +1,11 @@
+**I’m Horrified by My Kid’s Obsession With Toy Guns. What to Do?**\
+`The magazine’s Ethicist columnist on the concerns posed by a child’s hobby.`\
+https://nytimes.com/2024/04/26/magazine/toy-guns-kid-ethics.html
+
+**A Guide to Antwerp, a City of Avant-Garde Fashion and Art Nouveau Architecture**\
+`Five locals — including three of Belgium’s most influential designers — share their favorite stores, museums, restaurants and more.`\
+https://nytimes.com/2024/04/26/t-magazine/antwerp-belgium-guide-local.html
+
 **The Mostly Persuasive Logic Behind the New Ban on Noncompetes**\
 `The F.T.C. argued that noncompetes don’t just harm workers. They also harm society.`\
 https://nytimes.com/2024/04/26/opinion/ftc-noncompetes-ban.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/26/opinion/taylor-swift.html
 **St. Vincent’s 10 (or, Actually 11) Essential Songs**\
 `Sample her seven daring and eclectic albums as her latest, “All Born Screaming,” arrives.`\
 https://nytimes.com/2024/04/26/arts/music/amplifier-newsletter-st-vincent-songs.html
-
-**Four More Years, Pause**\
-`There’s no use in hiding presidential slip-ups.`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/biden-speech-pause
-
-**Trump’s trial is the latest chapter in the rich history of Lower Manhattan’s courts.**\
-`A cluster of downtown buildings has served as the borough’s “epicenter of criminal justice in New York since the 1830s,” said a lawyer who has led walking tours of Manhattan courthouses.`\
-https://nytimes.com/2024/04/26/nyregion/manhattan-courts-trump-trial.html
 
