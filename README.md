@@ -35,6 +35,6 @@ https://nytimes.com/2024/04/26/style/nfl-draft-football-caleb-williams.html
 https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/us-israel-blinken-visit
 
 **26trump-trial**\
-`Live Updates: Defense to Continue Grilling Tabloid Publisher at Trump Trial`\
+`Live Updates: Defense Continues Grilling Tabloid Publisher at Trump Trial`\
 https://nytimes.com/live/2024/04/26/nyregion/trump-hush-money-trial
 
