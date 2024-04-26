@@ -1,3 +1,11 @@
+**ExxonMobil and Chevron Report Lower Earnings**\
+`Profits for the two oil giants, which are locked in a standoff over drilling off the coast of Guyana, were squeezed by lower profitability for refining crude and falling natural gas prices.`\
+https://nytimes.com/2024/04/26/business/chevron-exxonmobil-oil-earnings-prices.html
+
+**Stubborn Inflation Could Prod Fed to Keep Rates High for Longer**\
+`Hopes for substantial cuts in interest rates are fading as inflation shows more staying power than expected.`\
+https://nytimes.com/2024/04/26/business/inflation-fed-rates.html
+
 **Number of Trump Allies Facing Election Interference Charges Keeps Growing**\
 `Prosecutors are sending a warning as Donald Trump and his supporters continue to spread conspiracy theories: that disrupting elections can bear a heavy legal cost.`\
 https://nytimes.com/2024/04/26/us/politics/number-of-trump-allies-facing-election-interference-charges-keeps-growing.html

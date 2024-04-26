@@ -1,3 +1,7 @@
+**Biden departs New York for Washington, as Trump returns to a Manhattan courtroom.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/04/26/us/biden-trump-election/biden-departs-new-york-for-washington-as-trump-returns-to-a-manhattan-courtroom
+
 **ExxonMobil and Chevron Report Lower Earnings**\
 `Profits for the two oil giants, which are locked in a standoff over drilling off the coast of Guyana, were squeezed by lower profitability for refining crude and falling natural gas prices.`\
 https://nytimes.com/2024/04/26/business/chevron-exxonmobil-oil-earnings-prices.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/26/nyregion/trump-hush-money-trial
 **Stubborn Inflation Could Prod Fed to Keep Rates High for Longer**\
 `Hopes for substantial cuts in interest rates are fading as inflation shows more staying power than expected.`\
 https://nytimes.com/2024/04/26/business/inflation-fed-rates.html
-
-**Police Arrest Rabbis Near Gaza-Israel Border at a Rally to Highlight Starvation**\
-`A group of about 30 rabbis and peace activists from Israel and the United States were trying to take food supplies into the territory.`\
-https://nytimes.com/2024/04/26/world/middleeast/rabbis-arrested-gaza-israel-border-starvation.html
 
