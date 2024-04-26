@@ -1,3 +1,7 @@
+**26trump-trial**\
+`Live Updates: Defense Continues Grilling Tabloid Publisher at Trump Trial`\
+https://nytimes.com/live/2024/04/26/nyregion/trump-hush-money-trial
+
 **At Least Three Women Were Infected With H.I.V. After ‘Vampire Facials’**\
 `The women underwent the cosmetic procedure at an unlicensed spa in New Mexico.`\
 https://nytimes.com/2024/04/26/health/hiv-vampire-facial.html
