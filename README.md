@@ -1,3 +1,11 @@
+**For Fox News, Student Protests Are a Familiar Target**\
+`On Fox and in other conservative outlets, the protests have given new lease to a long-running argument that students at elite universities are intolerant of conservative views.`\
+https://nytimes.com/2024/04/26/business/fox-news-campus-protests.html
+
+**Our Favorite Socks for Spring**\
+`Bare ankles are out.`\
+https://nytimes.com/interactive/2024/04/26/smarter-living/wirecutter/spring-socks.html
+
 **Who Is Gary Farro, the Banker Testifying in Trump’s Trial?**\
 `Donald J. Trump’s lawyer has said he arranged a hush-money payment through First Republic Bank, where Gary Farro worked.`\
 https://nytimes.com/2024/04/26/nyregion/gary-farro-trump-trial.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/26/us/politics/biden-howard-stern-trump.html
 **Blinken to Return to Israel to Discuss Hostages and Planned Rafah Incursion**\
 `The visit next week will come as talks on a cease-fire deal have stalled and tensions have risen over the treatment of civilians in the war.`\
 https://nytimes.com/2024/04/26/world/middleeast/israel-gaza-blinken-rafah.html
-
-**Michael C. Jensen, 84, Who Helped Reshape Modern Capitalism, Dies**\
-`He heralded stock options and golden parachutes as a professor at Harvard Business School, influencing a generation of Wall Street executives.`\
-https://nytimes.com/2024/04/26/business/michael-c-jensen-dead.html
-
-**Biden Taunts Trump, Calling Him a ‘Loser,’ Trying to Get Under His Skin**\
-`President Biden has been trying to hit his opponent where it hurts, critiquing everything from his hairstyle to his energy levels in court.`\
-https://nytimes.com/2024/04/26/us/politics/biden-trump-taunts.html
 
