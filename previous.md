@@ -1,3 +1,7 @@
+**A Strike Looms in a Battleground State**\
+`Also, Biden said he would be “happy to debate” Trump. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/04/26/briefing/strike-north-carolina-biden-trump-debate.html
+
 **5 Takeaways From the Second Week of Donald J. Trump’s Criminal Trial**\
 `A tabloid publisher’s testimony dominated a week that began with opening statements setting the stage for the first prosecution of a president.`\
 https://nytimes.com/2024/04/26/nyregion/trump-trial-hush-money-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/26/smarter-living/wirecutter/spring-sock
 **Who Is Gary Farro, the Banker Testifying in Trump’s Trial?**\
 `Donald J. Trump’s lawyer has said he arranged a hush-money payment through First Republic Bank, where Gary Farro worked.`\
 https://nytimes.com/2024/04/26/nyregion/gary-farro-trump-trial.html
-
-**Book Club: Let’s Talk About ‘Good Material,’ by Dolly Alderton**\
-`The writer Dolly Alderton has long had an avid following in her native England, but with her best-selling comic novel “Good Material” she’s become a trans-Atlantic success.`\
-https://nytimes.com/2024/04/26/books/review/podcast-good-material-dolly-alderton.html
 

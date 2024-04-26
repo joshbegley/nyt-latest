@@ -1,3 +1,7 @@
+**A Strike Looms in a Battleground State**\
+`Also, Biden said he would be “happy to debate” Trump. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/04/26/briefing/strike-north-carolina-biden-trump-debate.html
+
 **5 Takeaways From the Second Week of Donald J. Trump’s Criminal Trial**\
 `A tabloid publisher’s testimony dominated a week that began with opening statements setting the stage for the first prosecution of a president.`\
 https://nytimes.com/2024/04/26/nyregion/trump-trial-hush-money-takeaways.html
