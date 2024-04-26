@@ -1,3 +1,7 @@
+**Four More Years, Pause**\
+`There’s no use in hiding presidential slipups.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/biden-speech-pause
+
 **Trump’s trial is the latest chapter in the rich history of Lower Manhattan’s courts.**\
 `A cluster of downtown buildings has served as the borough’s “epicenter of criminal justice in New York since the 1830s,” said a lawyer who has led walking tours of Manhattan courthouses.`\
 https://nytimes.com/2024/04/26/nyregion/manhattan-courts-trump-trial.html
