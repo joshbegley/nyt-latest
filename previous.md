@@ -1,5 +1,5 @@
-**Xi Meets Blinken With Tough Issues on the Agenda**\
-`The direct meeting with China’s leader was a sign of continued effort to ease tensions, but officials expect little progress on core issues like Taiwan, trade and Chinese support of Russia.`\
+**Xi Is Meeting Blinken With Tough Issues on the Agenda**\
+`The direct meeting with China’s leader is a sign of continued effort to ease tensions, but officials expect little progress on core issues like Taiwan, trade and Chinese support of Russia.`\
 https://nytimes.com/2024/04/26/world/asia/blinken-xi-jinping-china.html
 
 **In Trump Case, the Defense Will Try to Knock Down the Allegation of a Plot**\
