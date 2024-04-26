@@ -1,3 +1,7 @@
+**Save the Children Says Its Guatemala Offices Were Searched Over Abuse Claims**\
+`Prosecutors in Guatemala, which has a history of targeting nonprofit groups, said they were probing claims of child abuse, which the charity denied.`\
+https://nytimes.com/2024/04/26/world/americas/guatemala-save-the-children-raid.html
+
 **26mideast-crisis**\
 `Army Begins Work on Floating Pier Meant to Get More Aid to Gaza, U.S. Says`\
 https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/pageoneplus/corrections-april-26-2024.html
 **When the V.I.P. Wedding Guests are Mandy Moore and a Hissing Goose**\
 `Evan Ross Katz, a writer and podcaster, and Billy Jacobson, an engineer, exchanged vows on 4/20, complete with a weed-infused reception, pop culture references and fashionable guests.`\
 https://nytimes.com/2024/04/26/style/evan-ross-katz-billy-jacobson-wedding.html
-
-**When Love Means Being Selfish**\
-`I knew I had to hold onto what I needed — even if that meant using a lawyer to get custody (of a dog).`\
-https://nytimes.com/2024/04/26/style/modern-love-selfishness-dog-custody.html
 
