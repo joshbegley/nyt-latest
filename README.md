@@ -1,3 +1,7 @@
+**5 Takeaways From the Second Week of Donald J. Trump’s Criminal Trial**\
+`A tabloid publisher’s testimony dominated a week that began with opening statements setting the stage for the first prosecution of a president.`\
+https://nytimes.com/2024/04/26/nyregion/trump-trial-hush-money-takeaways.html
+
 **Peter Meijer, Who Voted to Impeach Trump, Withdraws From G.O.P. Senate Primary**\
 `The Secretary of State’s office in Michigan confirmed that Mr. Meijer, a former House member, would not appear on the primary ballot on Aug. 6.`\
 https://nytimes.com/2024/04/26/us/politics/peter-meijer-drops-out-senate-michigan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/nyregion/gary-farro-trump-trial.html
 **Book Club: Let’s Talk About ‘Good Material,’ by Dolly Alderton**\
 `The writer Dolly Alderton has long had an avid following in her native England, but with her best-selling comic novel “Good Material” she’s become a trans-Atlantic success.`\
 https://nytimes.com/2024/04/26/books/review/podcast-good-material-dolly-alderton.html
-
-**Why Gaza Protests on U.S. College Campuses Have Become So Contagious**\
-`Experts say the partisan political context in Washington is a driver behind the spread of protests at American universities even as overseas campuses have stayed relatively calm.`\
-https://nytimes.com/2024/04/26/world/europe/interpreter-gaza-college-protests.html
 
