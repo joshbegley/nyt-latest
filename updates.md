@@ -1,3 +1,7 @@
+**Drone attack kills 4 workers in an Iraqi gas field, but no one claims responsibility.**\
+`By Alissa J. Rubin`\
+https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/drone-attack-kills-4-workers-in-an-iraqi-gas-field-but-no-one-claims-responsibility
+
 **A Strike Looms in a Battleground State**\
 `Also, Biden said he would be “happy to debate” Trump. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/04/26/briefing/strike-north-carolina-biden-trump-debate.html

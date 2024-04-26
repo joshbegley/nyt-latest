@@ -1,3 +1,7 @@
+**Drone attack kills 4 workers in an Iraqi gas field, but no one claims responsibility.**\
+`By Alissa J. Rubin`\
+https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/drone-attack-kills-4-workers-in-an-iraqi-gas-field-but-no-one-claims-responsibility
+
 **A Strike Looms in a Battleground State**\
 `Also, Biden said he would be “happy to debate” Trump. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/04/26/briefing/strike-north-carolina-biden-trump-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/business/fox-news-campus-protests.html
 **Our Favorite Socks for Spring**\
 `Bare ankles are out.`\
 https://nytimes.com/interactive/2024/04/26/smarter-living/wirecutter/spring-socks.html
-
-**Who Is Gary Farro, the Banker Testifying in Trump’s Trial?**\
-`Donald J. Trump’s lawyer has said he arranged a hush-money payment through First Republic Bank, where Gary Farro worked.`\
-https://nytimes.com/2024/04/26/nyregion/gary-farro-trump-trial.html
 
