@@ -1,3 +1,11 @@
+**Three Questions About Politics and the Campus Protests**\
+`The encampments present a new wrinkle in a year already knotted by war abroad and domestic discord.`\
+https://nytimes.com/2024/04/26/us/politics/politics-campus-protests.html
+
+**Federal Officials Find No Live Bird Flu Virus in Initial Milk Tests**\
+`The early results suggest that pasteurization is killing the H5N1 virus in milk, something that regulators were not certain of.`\
+https://nytimes.com/2024/04/26/health/bird-flu-milk-fda.html
+
 **Paramount’s Chief Executive Bob Bakish Could Be Out Next Week**\
 `Once a staunch ally of Paramount’s biggest owner, Shari Redstone, Mr. Bakish’s relationship with her soured in recent months.`\
 https://nytimes.com/2024/04/26/business/paramount-ceo-bob-bakish.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-trial-pecker-bove
 **Drone attack kills 4 workers in an Iraqi gas field, but no one claims responsibility.**\
 `By Alissa J. Rubin`\
 https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/drone-attack-kills-4-workers-in-an-iraqi-gas-field-but-no-one-claims-responsibility
-
-**A Strike Looms in a Battleground State**\
-`Also, Biden said he would be “happy to debate” Trump. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/04/26/briefing/strike-north-carolina-biden-trump-debate.html
-
-**5 Takeaways From the Second Week of Donald J. Trump’s Criminal Trial**\
-`A tabloid publisher’s testimony dominated a week that began with opening statements setting the stage for the first prosecution of a president.`\
-https://nytimes.com/2024/04/26/nyregion/trump-trial-hush-money-takeaways.html
 

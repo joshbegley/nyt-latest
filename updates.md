@@ -1,3 +1,11 @@
+**Three Questions About Politics and the Campus Protests**\
+`The encampments present a new wrinkle in a year already knotted by war abroad and domestic discord.`\
+https://nytimes.com/2024/04/26/us/politics/politics-campus-protests.html
+
+**Federal Officials Find No Live Bird Flu Virus in Initial Milk Tests**\
+`The early results suggest that pasteurization is killing the H5N1 virus in milk, something that regulators were not certain of.`\
+https://nytimes.com/2024/04/26/health/bird-flu-milk-fda.html
+
 **Columbia’s University Senate Calls for an Investigation Into the Administration**\
 `The senators voted for a resolution that accused the administration of  breaching the due-process rights of students and professors.`\
 https://nytimes.com/2024/04/26/us/columbia-university-nemat-shafik-vote.html
