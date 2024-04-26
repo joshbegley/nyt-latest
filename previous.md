@@ -1,3 +1,7 @@
+**Bronx Woman Charged With Murder in Death of Her 6-Year-Old Daughter**\
+`Lynija Eason Kumar also faces manslaughter charges in the killing of Jalayah Eason, who was found bruised and unconscious in her family’s apartment last May.`\
+https://nytimes.com/2024/04/26/nyregion/bronx-mother-charged-chid-death.html
+
 **Biden Revisits His Past in Interview With Howard Stern**\
 `The appearance allowed President Biden to tell the stories of love and loss that have defined his public image.`\
 https://nytimes.com/2024/04/26/us/politics/biden-howard-stern-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/nyregion/rhona-graff-testify-trump-assistant.html
 **Biden Delays Ban on Menthol Cigarettes**\
 `The proposal had been years in the making, in an effort to curb death rates of Black smokers targeted by Big Tobacco. In an election year, the president’s weak support among Black voters may have influenced the postponement.`\
 https://nytimes.com/2024/04/26/health/menthol-cigarettes-ban-biden-fda.html
-
-**PEN America Cancels World Voices Festival Amid Israel-Gaza Criticism**\
-`The decision by the free expression group came after intense criticism of its response to the war in Gaza. A wave of participants had pulled out of the festival in protest.`\
-https://nytimes.com/2024/04/26/arts/pen-america-cancels-world-voices-festival.html
 

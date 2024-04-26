@@ -1,3 +1,7 @@
+**Bronx Woman Charged With Murder in Death of Her 6-Year-Old Daughter**\
+`Lynija Eason Kumar also faces manslaughter charges in the killing of Jalayah Eason, who was found bruised and unconscious in her family’s apartment last May.`\
+https://nytimes.com/2024/04/26/nyregion/bronx-mother-charged-chid-death.html
+
 **Who is Rhona Graff, Trump’s Former Assistant Who Is Testifying Against Him?**\
 `Few people knew Donald J. Trump like Ms. Graff, a Queens native who made a career serving the defendant.`\
 https://nytimes.com/2024/04/26/nyregion/rhona-graff-testify-trump-assistant.html
