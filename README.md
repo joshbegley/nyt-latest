@@ -1,3 +1,7 @@
+**Lessons in Democracy From F.C. Porto**\
+`A powerful president and a popular rival highlight an election that has already featured fights, arrests and accusations of intimidation.`\
+https://nytimes.com/2024/04/26/world/europe/fc-porto-election-da-costa-villas-boas.html
+
 **Talk of an Immigrant ‘Invasion’ Grows in Republican Ads and Speech**\
 `Once relegated to the margins of the national debate, the word is now part of the party’s mainstream message on immigration.`\
 https://nytimes.com/2024/04/26/us/politics/republicans-immigration-ads-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/us/politics/number-of-trump-allies-facing-electio
 **He Paid $13 for $13,000 Cartier Earrings, and Then the Jeweler Noticed**\
 `When Rogelio Villarreal bought rose-gold earrings for a price that the luxury retailer said was a mistake, he looked to a Mexican consumer protection law.`\
 https://nytimes.com/2024/04/26/world/americas/mexico-cartier-sale-consumer-protection.html
-
-**Louisiana Will No Longer Require Students to Fill Out FAFSA to Graduate**\
-`Experts say high school seniors are more likely to go to college if they complete the financial aid form, but the state sees privacy issues with mandating it.`\
-https://nytimes.com/2024/04/26/your-money/fafsa-financial-aid-louisiana.html
 
