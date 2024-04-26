@@ -1,3 +1,11 @@
+**What Weinstein’s Overturned Conviction Means for His California Case**\
+`Harvey Weinstein faced similar sex crimes charges in New York and California, but the arguments used to overturn one case may not help in the other.`\
+https://nytimes.com/2024/04/26/nyregion/weinstein-conviction-appeal-california.html
+
+**Judge in Sept. 11 Case Visits Former C.I.A. Black Site**\
+`Col. Matthew McCall toured the part of the prison at Guantánamo Bay where, in 2007, federal agents obtained now-disputed confessions from terrorism suspects.`\
+https://nytimes.com/2024/04/26/us/politics/guantanamo-judge-black-site-prison.html
+
 **Jury Deadlocks on Murder Count Against Ex-Deputy in Killing of Colorado Man**\
 `A jury convicted the former deputy of reckless endangerment in the fatal shooting of a man who called 911 for help, but said it was unable to reach a verdict on charges of murder and official misconduct.`\
 https://nytimes.com/2024/04/26/us/christian-glass-colorado-police-shooting.html

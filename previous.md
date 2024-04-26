@@ -1,3 +1,11 @@
+**What Weinstein’s Overturned Conviction Means for His California Case**\
+`Harvey Weinstein faced similar sex crimes charges in New York and California, but the arguments used to overturn one case may not help in the other.`\
+https://nytimes.com/2024/04/26/nyregion/weinstein-conviction-appeal-california.html
+
+**Judge in Sept. 11 Case Visits Former C.I.A. Black Site**\
+`Col. Matthew McCall toured the part of the prison at Guantánamo Bay where, in 2007, federal agents obtained now-disputed confessions from terrorism suspects.`\
+https://nytimes.com/2024/04/26/us/politics/guantanamo-judge-black-site-prison.html
+
 **Jury Deadlocks on Murder Count Against Ex-Deputy in Killing of Colorado Man**\
 `A jury convicted the former deputy of reckless endangerment in the fatal shooting of a man who called 911 for help, but said it was unable to reach a verdict on charges of murder and official misconduct.`\
 https://nytimes.com/2024/04/26/us/christian-glass-colorado-police-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/26/opinion/columbia-student-protests-israel.html
 **Britney Spears and Her Father Settle Legal Dispute Over Conservatorship**\
 `Terms were not disclosed. The parties had been arguing over the payment of legal fees and James P. Spears’s financial oversight as his daughter’s conservator.`\
 https://nytimes.com/2024/04/26/arts/music/britney-spears-jamie-spears-legal-fees-conservatorship.html
-
-**Paramedic Avoids Prison in Death of Elijah McClain**\
-`The sentencing marked the final chapter of a case that stretched over nearly five years and helped usher in sweeping public safety reforms.`\
-https://nytimes.com/2024/04/26/us/paramedic-sentenced-elijah-mcclain.html
-
-**The Schemes to Squelch Trump’s Scandals Were Hardly Commonplace**\
-`Trump’s defense lawyers tried but failed to prove David Pecker was a liar.`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-trial-pecker-bove
 
