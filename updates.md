@@ -1,3 +1,15 @@
+**An Unearthed Johnny Cash Recording, and 11 More New Songs**\
+`Hear tracks by Normani, Nilüfer Yanya, Thom Yorke and others.`\
+https://nytimes.com/2024/04/26/arts/music/playlist-johnny-cash-normani-thom-yorke.html
+
+**The Supreme Court and Presidential Immunity**\
+`Readers express concern about how the justices will rule on Donald Trump’s immunity claim. Also: An environmental decision for Alaska; Ralph Nader, on third parties.`\
+https://nytimes.com/2024/04/26/opinion/supreme-court-trump-immunity.html
+
+**Bets on Rate Cuts This Year Are Fading Away**\
+`Stubborn inflation has led traders to forecast far fewer rate cuts by the Federal Reserve than just a few months ago.`\
+https://nytimes.com/2024/04/26/business/economy/fed-rate-cut-forecast.html
+
 **Tremaine Emory Doubles Down**\
 `Streetwear’s Black history raconteur survived Kanye, Supreme and a near-death experience. But can he survive the internet?`\
 https://nytimes.com/2024/04/26/style/tremaine-emory-denim-tears-supreme.html

@@ -1,3 +1,11 @@
+**An Unearthed Johnny Cash Recording, and 11 More New Songs**\
+`Hear tracks by Normani, Nilüfer Yanya, Thom Yorke and others.`\
+https://nytimes.com/2024/04/26/arts/music/playlist-johnny-cash-normani-thom-yorke.html
+
+**The Supreme Court and Presidential Immunity**\
+`Readers express concern about how the justices will rule on Donald Trump’s immunity claim. Also: An environmental decision for Alaska; Ralph Nader, on third parties.`\
+https://nytimes.com/2024/04/26/opinion/supreme-court-trump-immunity.html
+
 **Tremaine Emory Doubles Down**\
 `Streetwear’s Black history raconteur survived Kanye, Supreme and a near-death experience. But can he survive the internet?`\
 https://nytimes.com/2024/04/26/style/tremaine-emory-denim-tears-supreme.html
@@ -12,7 +20,7 @@ https://nytimes.com/2024/04/26/arts/louvre-olympics-exhibition.html
 
 **Bets on Rate Cuts This Year Are Fading Away**\
 `Stubborn inflation has led traders to forecast far fewer rate cuts by the Federal Reserve than just a few months ago.`\
-https://nytimes.com/2024/04/26/business/fed-rate-cut-forecast.html
+https://nytimes.com/2024/04/26/business/economy/fed-rate-cut-forecast.html
 
 **Denied a Second Chance at a Normal Senior Year**\
 `After Covid ruined high school graduation for the class of 2020, the response to campus protests might upend their college commencements.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/26/us/politics/biden-debate-trump.html
 **Conservative Justices Take Argument Over Trump’s Immunity in Unexpected Direction**\
 `Thursday’s Supreme Court hearing was memorable for its discussion of coups, assassinations and internments — but very little about the former president’s conduct.`\
 https://nytimes.com/2024/04/26/us/politics/supreme-court-trump-immunity-election.html
-
-**Did Richard III Kill the Princes in the Tower?**\
-`Philippa Langley devoted years to the search for Richard III’s remains. Now, she’s trying to crack a 15th-century cold case: Did he really assassinate his nephews?`\
-https://nytimes.com/2024/04/26/books/philippa-langley-richard-iii-princes-in-the-tower.html
-
-**Review: Turning a Dance Spotlight on the Painter Juan de Pareja**\
-`Eduardo Vilaro celebrates his 15th year as artistic director of Ballet Hispánico with a premiere exploring the life of the Afro-Hispanic artist.`\
-https://nytimes.com/2024/04/26/arts/dance/review-ballet-hispanico-buscando-a-juan.html
 
