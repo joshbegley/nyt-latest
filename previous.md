@@ -27,7 +27,7 @@ https://nytimes.com/2024/04/26/t-magazine/antwerp-belgium-guide-local.html
 https://nytimes.com/2024/04/26/opinion/ftc-noncompetes-ban.html
 
 **Who is Rhona Graff, Trump’s Former Assistant Who Is Testifying Against Him?**\
-`Few people knew Donald J. Trump like Rhona Graff, a Queens native who made a career serving the defendant.`\
+`Few people knew Donald J. Trump like Ms. Graff, a Queens native who made a career serving the defendant.`\
 https://nytimes.com/2024/04/26/nyregion/rhona-graff-testify-trump-assistant.html
 
 **Biden Delays Ban on Menthol Cigarettes**\

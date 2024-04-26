@@ -1,3 +1,7 @@
+**Who is Rhona Graff, Trump’s Former Assistant Who Is Testifying Against Him?**\
+`Few people knew Donald J. Trump like Ms. Graff, a Queens native who made a career serving the defendant.`\
+https://nytimes.com/2024/04/26/nyregion/rhona-graff-testify-trump-assistant.html
+
 **Biden Taunts Trump, Calling Him a ‘Loser,’ Trying to Get Under His Skin**\
 `President Biden has been trying to hit his opponent where it hurts, critiquing everything from his hairstyle to his energy levels in court.`\
 https://nytimes.com/2024/04/26/us/politics/biden-trump-taunts.html
