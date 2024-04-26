@@ -1,4 +1,8 @@
 **Congestion Pricing Will Start on June 30 in New York City, M.T.A. Says**\
+`Legal and political disagreements still threaten to dilute or halt the program, which transit officials have said will ease some of the nation’s worst traffic.`\
+https://nytimes.com/2024/04/26/nyregion/congestion-pricing-nyc-june-30.html
+
+**Congestion Pricing Will Start on June 30 in New York City, M.T.A. Says**\
 `Transit officials announced the start of the program, which they have said will ease some of the nation’s worst traffic.`\
 https://nytimes.com/2024/04/26/nyregion/congestion-pricing-nyc-june-30.html
 
