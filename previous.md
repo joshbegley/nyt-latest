@@ -1,3 +1,7 @@
+**26mideast-crisis**\
+`Army Begins Work on Floating Pier Meant to Get More Aid to Gaza, U.S. Says`\
+https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas
+
 **Word of the Day: interloper**\
 `This word has appeared in 33 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/26/learning/word-of-the-day-interloper.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/style/evan-ross-katz-billy-jacobson-wedding.html
 **When Love Means Being Selfish**\
 `I knew I had to hold onto what I needed — even if that meant using a lawyer to get custody (of a dog).`\
 https://nytimes.com/2024/04/26/style/modern-love-selfishness-dog-custody.html
-
-**The State Department Kept His Proposal on Course**\
-`Ben Krauss flew to Athens to propose to Shana Mansbach, with the help of her State Department colleagues, on the last stop of a European tour.`\
-https://nytimes.com/2024/04/26/style/the-state-department-kept-his-proposal-on-course.html
 

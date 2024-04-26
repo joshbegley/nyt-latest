@@ -1,3 +1,7 @@
+**26mideast-crisis**\
+`Army Begins Work on Floating Pier Meant to Get More Aid to Gaza, U.S. Says`\
+https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas
+
 **Word of the Day: interloper**\
 `This word has appeared in 33 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/26/learning/word-of-the-day-interloper.html
