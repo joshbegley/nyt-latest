@@ -1,3 +1,7 @@
+**A New Pacific Arsenal to Counter China**\
+`With missiles, submarines and alliances, the Biden administration has built a presence in the region to rein in Beijing’s expansionist goals.`\
+https://nytimes.com/interactive/2024/04/26/us/politics/us-china-military-bases-weapons.html
+
 **When U.S. Diplomats Visit China, Meal Choices Are About More Than Taste Buds**\
 `Visits to China by American officials like Secretary of State Antony J. Blinken can bring fame to local restaurants, as well as scrutiny to the dignitaries.`\
 https://nytimes.com/2024/04/26/world/asia/us-china-visits-blinken-food.html
