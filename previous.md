@@ -1,3 +1,11 @@
+**The Big Number: $40 Billion**\
+`Meta has already spent billions on developing artificial intelligence, and it plans to spend billions more.`\
+https://nytimes.com/interactive/2024/04/26/business/meta-spending-ai.html
+
+**Student Leader of Columbia Protests: ‘Zionists Don’t Deserve to Live’**\
+`Khymani James, a junior, apologized for his statements — made before he joined the demonstration.`\
+https://nytimes.com/2024/04/26/nyregion/columbia-student-protest-zionism.html
+
 **An Unearthed Johnny Cash Recording, and 11 More New Songs**\
 `Hear tracks by Normani, Nilüfer Yanya, Thom Yorke and others.`\
 https://nytimes.com/2024/04/26/arts/music/playlist-johnny-cash-normani-thom-yorke.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/26/style/campus-protests-college-graduation.html
 **At the Time 100 Gala, Glamour Meets Influence**\
 `Dua Lipa and Patrick Mahomes are red carpet stars at an event that brought together Oscar winners and thought leaders.`\
 https://nytimes.com/2024/04/26/style/time-100-gala-dua-lipa-taraji-p-henson.html
-
-**Biden, Asked if He’s Planning to Debate Trump, Says ‘I Am’**\
-`The president’s announcement came after months in which he and his campaign declined to say whether he would debate his predecessor.`\
-https://nytimes.com/2024/04/26/us/politics/biden-debate-trump.html
-
-**Conservative Justices Take Argument Over Trump’s Immunity in Unexpected Direction**\
-`Thursday’s Supreme Court hearing was memorable for its discussion of coups, assassinations and internments — but very little about the former president’s conduct.`\
-https://nytimes.com/2024/04/26/us/politics/supreme-court-trump-immunity-election.html
 

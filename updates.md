@@ -1,3 +1,11 @@
+**The Big Number: $40 Billion**\
+`Meta has already spent billions on developing artificial intelligence, and it plans to spend billions more.`\
+https://nytimes.com/interactive/2024/04/26/business/meta-spending-ai.html
+
+**Student Leader of Columbia Protests: ‘Zionists Don’t Deserve to Live’**\
+`Khymani James, a junior, apologized for his statements — made before he joined the demonstration.`\
+https://nytimes.com/2024/04/26/nyregion/columbia-student-protest-zionism.html
+
 **An Unearthed Johnny Cash Recording, and 11 More New Songs**\
 `Hear tracks by Normani, Nilüfer Yanya, Thom Yorke and others.`\
 https://nytimes.com/2024/04/26/arts/music/playlist-johnny-cash-normani-thom-yorke.html
