@@ -1,3 +1,7 @@
+**Tabloid Publisher Defiant as Trump Lawyer Tries to Shake His Confidence**\
+`David Pecker, who was the keeper of Donald J. Trump’s secrets, insisted he had testified truthfully about his dealings with the former president.`\
+https://nytimes.com/2024/04/26/nyregion/trump-pecker-hush-money-trial.html
+
 **Bronx Woman Charged With Murder in Death of Her 6-Year-Old Daughter**\
 `Lynija Eason Kumar also faces manslaughter charges in the killing of Jalayah Eason, who was found bruised and unconscious in her family’s apartment last May.`\
 https://nytimes.com/2024/04/26/nyregion/bronx-mother-charged-chid-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/opinion/ftc-noncompetes-ban.html
 **Who is Rhona Graff, Trump’s Former Assistant Who Is Testifying Against Him?**\
 `Few people knew Donald J. Trump like Ms. Graff, a Queens native who made a career serving the defendant.`\
 https://nytimes.com/2024/04/26/nyregion/rhona-graff-testify-trump-assistant.html
-
-**Biden Delays Ban on Menthol Cigarettes**\
-`The proposal had been years in the making, in an effort to curb death rates of Black smokers targeted by Big Tobacco. In an election year, the president’s weak support among Black voters may have influenced the postponement.`\
-https://nytimes.com/2024/04/26/health/menthol-cigarettes-ban-biden-fda.html
 

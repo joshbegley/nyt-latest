@@ -1,3 +1,7 @@
+**Tabloid Publisher Defiant as Trump Lawyer Tries to Shake His Confidence**\
+`David Pecker, who was the keeper of Donald J. Trump’s secrets, insisted he had testified truthfully about his dealings with the former president.`\
+https://nytimes.com/2024/04/26/nyregion/trump-pecker-hush-money-trial.html
+
 **Bronx Woman Charged With Murder in Death of Her 6-Year-Old Daughter**\
 `Lynija Eason Kumar also faces manslaughter charges in the killing of Jalayah Eason, who was found bruised and unconscious in her family’s apartment last May.`\
 https://nytimes.com/2024/04/26/nyregion/bronx-mother-charged-chid-death.html
