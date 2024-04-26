@@ -1,3 +1,11 @@
+**Police Arrest Rabbis Near Gaza-Israel Border at a Rally to Highlight Starvation**\
+`A group of about 30 rabbis and peace activists from Israel and the United States were trying to take food supplies into the territory.`\
+https://nytimes.com/2024/04/26/world/middleeast/rabbis-arrested-gaza-israel-border-starvation.html
+
+**Resignation of Vietnam’s Parliament Chief Stirs Fresh Political Chaos**\
+`Vuong Dinh Hue’s departure comes amid a growing anticorruption push and weeks after Vietnam’s president resigned.`\
+https://nytimes.com/2024/04/26/world/asia/vietnam-parliament-resignation.html
+
 **Would Trump Move to Control the Fed?**\
 `Allies of the former president are said to be devising plans to reduce the central bank’s independence if he is re-elected, a move that would have big consequences for monetary policy.`\
 https://nytimes.com/2024/04/26/business/dealbook/trump-fed-independence.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/movies/100000009434686/challengers-scene.html
 **Blinken meets Xi, and Supreme Court Considers Presidential Immunity**\
 `Plus, Haiti gets a new government.`\
 https://nytimes.com/2024/04/26/podcasts/us-china-weinstein.html
-
-**Harvey Weinstein Conviction Thrown Out**\
-`New York’s highest appeals court has overturned the movie producer’s 2020 conviction for sex crimes, which was a landmark in the #MeToo movement.`\
-https://nytimes.com/2024/04/26/podcasts/the-daily/harvey-weinstein-overturned.html
-
-**Titanic’s Treasures Captivate Collectors, but They’ll Need Deep Pockets**\
-`Numerous artifacts from the Titanic, including a violin case, are up for auction this weekend in England. Collectors are ready to pounce.`\
-https://nytimes.com/2024/04/26/world/europe/titanic-auction-memorabilia.html
 
