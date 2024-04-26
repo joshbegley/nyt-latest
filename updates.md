@@ -1,3 +1,7 @@
+**Columbia’s University Senate Calls for an Investigation Into the Administration**\
+`The senators voted for a resolution that accused the administration of  breaching the due-process rights of students and professors.`\
+https://nytimes.com/2024/04/26/us/columbia-university-nemat-shafik-vote.html
+
 **Paramount’s Chief Executive Bob Bakish Could Be Out Next Week**\
 `Once a staunch ally of Paramount’s biggest owner, Shari Redstone, Mr. Bakish’s relationship with her soured in recent months.`\
 https://nytimes.com/2024/04/26/business/paramount-ceo-bob-bakish.html
