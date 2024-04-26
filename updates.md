@@ -1,3 +1,7 @@
+**Watchdog Group Accuses Trump Campaign of Violating Finance Law**\
+`The Campaign Legal Center said in a complaint that Trump political committees had used an intermediary firm “as a conduit to conceal payments” totaling $7.2 million.`\
+https://nytimes.com/2024/04/25/us/politics/trump-campaign-finance-complaint.html
+
 **Arizona Republicans Who Supported Repealing an Abortion Ban Face Blowback**\
 `On social media, Arizona lawmakers are accused of being baby killers, cowards and traitors.`\
 https://nytimes.com/2024/04/25/us/abortion-ban-arizona.html
