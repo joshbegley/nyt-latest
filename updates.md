@@ -1,3 +1,7 @@
+**Paramedic Is Spared Prison in Death of Elijah McClain**\
+`The sentencing marked the final chapter of a case that stretched over nearly five years and helped usher in sweeping public safety reforms.`\
+https://nytimes.com/2024/04/26/us/paramedic-sentenced-elijah-mcclain.html
+
 **The Schemes to Squelch Trump’s Scandals Were Hardly Commonplace**\
 `Trump’s defense lawyers tried but failed to prove David Pecker was a liar.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-trial-pecker-bove
