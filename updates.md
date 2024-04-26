@@ -1,3 +1,7 @@
+**Talk of an Immigrant ‘Invasion’ Grows in Republican Ads and Speech**\
+`Once relegated to the margins of the national debate, the word is now part of the party’s mainstream message on immigration.`\
+https://nytimes.com/2024/04/26/us/politics/republicans-immigration-ads-election.html
+
 **Auto Safety Regulator Investigating Tesla Recall of Autopilot**\
 `The National Highway Safety Administration said it had concerns about how Tesla handled the recall based on recent crashes and testing of cars that had been updated.`\
 https://nytimes.com/2024/04/26/business/tesla-autopilot-recall-nhtsa-investigation.html
