@@ -1,3 +1,11 @@
+**For Fox News, Student Protests Are a Familiar Target**\
+`On Fox and in other conservative outlets, the protests have given new lease to a long-running argument that students at elite universities are intolerant of conservative views.`\
+https://nytimes.com/2024/04/26/business/fox-news-campus-protests.html
+
+**Our Favorite Socks for Spring**\
+`Bare ankles are out.`\
+https://nytimes.com/interactive/2024/04/26/smarter-living/wirecutter/spring-socks.html
+
 **Why Gaza Protests on U.S. College Campuses Have Become So Contagious**\
 `Experts say the partisan political context in Washington is a driver behind the spread of protests at American universities even as overseas campuses have stayed relatively calm.`\
 https://nytimes.com/2024/04/26/world/europe/interpreter-gaza-college-protests.html
