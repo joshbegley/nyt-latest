@@ -1,7 +1,3 @@
-**Tremaine Emory Doubles Down**\
-`Streetwear’s Black history raconteur survived Kanye, Supreme and a near-death experience. But can he survive the internet?`\
-https://nytimes.com/2024/04/26/style/tremaine-emory-denim-tears-supreme.html
-
 **The U.S. will not suspend aid, for now, to Israeli military units accused of abusing Palestinians in the West Bank.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/us-israel-military-aid
@@ -12,7 +8,7 @@ https://nytimes.com/2024/04/26/arts/louvre-olympics-exhibition.html
 
 **Bets on Rate Cuts This Year Are Fading Away**\
 `Stubborn inflation has led traders to forecast far fewer rate cuts by the Federal Reserve than just a few months ago.`\
-https://nytimes.com/2024/04/26/business/fed-rate-cut-forecast.html
+https://nytimes.com/2024/04/26/business/economy/fed-rate-cut-forecast.html
 
 **Denied a Second Chance at a Normal Senior Year**\
 `After Covid ruined high school graduation for the class of 2020, the response to campus protests might upend their college commencements.`\
@@ -37,4 +33,8 @@ https://nytimes.com/2024/04/26/books/philippa-langley-richard-iii-princes-in-the
 **Review: Turning a Dance Spotlight on the Painter Juan de Pareja**\
 `Eduardo Vilaro celebrates his 15th year as artistic director of Ballet Hispánico with a premiere exploring the life of the Afro-Hispanic artist.`\
 https://nytimes.com/2024/04/26/arts/dance/review-ballet-hispanico-buscando-a-juan.html
+
+**9 New Shows Our Theater Critics Are Talking About**\
+`This past week has been jam-packed with openings. Our reviewers think these new shows are worth knowing about even if you’re not planning to see them.`\
+https://nytimes.com/2024/04/26/theater/theater-new-shows-cabaret-mary-jane.html
 

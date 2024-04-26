@@ -1,3 +1,7 @@
+**Tremaine Emory Doubles Down**\
+`Streetwear’s Black history raconteur survived Kanye, Supreme and a near-death experience. But can he survive the internet?`\
+https://nytimes.com/2024/04/26/style/tremaine-emory-denim-tears-supreme.html
+
 **The U.S. will not suspend aid, for now, to Israeli military units accused of abusing Palestinians in the West Bank.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/us-israel-military-aid
