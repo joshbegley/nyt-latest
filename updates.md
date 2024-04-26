@@ -1,3 +1,7 @@
+**Who is Rhona Graff, Trump’s Former Assistant Who Is Testifying Against Him?**\
+`Few people knew Donald J. Trump like Rhona Graff, a Queens native who made a career serving the defendant.`\
+https://nytimes.com/2024/04/26/nyregion/rhona-graff-testify-trump-assistant.html
+
 **Biden Delays Ban on Menthol Cigarettes**\
 `The proposal had been years in the making, in an effort to curb death rates of Black smokers targeted by Big Tobacco. In an election year, the president’s weak support among Black voters may have influenced the postponement.`\
 https://nytimes.com/2024/04/26/health/menthol-cigarettes-ban-biden-fda.html
