@@ -1,3 +1,23 @@
+**The U.S. will not suspend aid, for now, to Israeli military units accused of abusing Palestinians in the West Bank.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/us-israel-military-aid
+
+**At the Louvre, the Olympics Are More French Than You Might Think**\
+`The Games were revived from an ancient Greek spectacle, but an exhibition timed for the Paris Olympics argues that France’s fascination with the ancient world played an outsized role.`\
+https://nytimes.com/2024/04/26/arts/louvre-olympics-exhibition.html
+
+**Bets on Rate Cuts This Year Are Fading Away**\
+`Stubborn inflation has led traders to forecast far fewer rate cuts by the Federal Reserve than just a few months ago.`\
+https://nytimes.com/2024/04/26/business/fed-rate-cut-forecast.html
+
+**Denied a Second Chance at a Normal Senior Year**\
+`After Covid ruined high school graduation for the class of 2020, the response to campus protests might upend their college commencements.`\
+https://nytimes.com/2024/04/26/style/campus-protests-college-graduation.html
+
+**At the Time 100 Gala, Glamour Meets Influence**\
+`Dua Lipa and Patrick Mahomes are red carpet stars at an event that brought together Oscar winners and thought leaders.`\
+https://nytimes.com/2024/04/26/style/time-100-gala-dua-lipa-taraji-p-henson.html
+
 **Biden, Asked if He’s Planning to Debate Trump, Says ‘I Am’**\
 `The president’s announcement came after months in which he and his campaign declined to say whether he would debate his predecessor.`\
 https://nytimes.com/2024/04/26/us/politics/biden-debate-trump.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/04/26/arts/dance/review-ballet-hispanico-buscando-a-jua
 **9 New Shows Our Theater Critics Are Talking About**\
 `This past week has been jam-packed with openings. Our reviewers think these new shows are worth knowing about even if you’re not planning to see them.`\
 https://nytimes.com/2024/04/26/theater/theater-new-shows-cabaret-mary-jane.html
-
-**After 2 Winsome Ori Games, a Pivot Into Dark Fantasy**\
-`Moon Studios’ newest project, the action role-playing game No Rest for the Wicked, was inspired by Dark Souls, Diablo and “Game of Thrones.”`\
-https://nytimes.com/2024/04/26/arts/no-rest-for-the-wicked-moon-studios-ori.html
-
-**From Majesty to Frailty: Why Are So Many Horses Breaking Down?**\
-`Our new documentary explores the underbelly of horse racing — and the systemic issues that have thrown one of America’s oldest sports into crisis.`\
-https://nytimes.com/2024/04/26/NYT-Presents/broken-horses-documentary.html
-
-**An Essential Set of Cold War Era Treaties Is Falling Apart**\
-`A space nukes ban fails at the U.N.`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/russia-veto-space-nukes
-
-**Sesame Noodles, Buttered Biscuits, Charred Cabbage, Huevos Rancheros**\
-`The weekend is here. Let’s eat.`\
-https://nytimes.com/2024/04/26/dining/sesame-noodles-buttered-biscuits-charred-cabbage-huevos-rancheros.html
-
-**Five Horror Movies to Stream Now**\
-`This month’s picks include demonic forces from Mexico, Mongolia, small-town America and hell itself.`\
-https://nytimes.com/2024/04/26/movies/horror-movies-streaming.html
 
