@@ -1,3 +1,7 @@
+**Who is Rhona Graff, Trump’s Former Assistant Who Is Testifying Against Him?**\
+`Few people knew Donald J. Trump like Rhona Graff, a Queens native who made a career serving the defendant.`\
+https://nytimes.com/2024/04/26/nyregion/rhona-graff-testify-trump-assistant.html
+
 **Biden Delays Ban on Menthol Cigarettes**\
 `The proposal had been years in the making, in an effort to curb death rates of Black smokers targeted by Big Tobacco. In an election year, the president’s weak support among Black voters may have influenced the postponement.`\
 https://nytimes.com/2024/04/26/health/menthol-cigarettes-ban-biden-fda.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/nyregion/manhattan-courts-trump-trial.html
 **The Best Ways to Cook Asparagus**\
 `You don’t just have to roast those stalks. These three easy techniques can bring out the delicious best from the spring favorite.`\
 https://nytimes.com/2024/04/26/dining/best-ways-to-cook-asparagus.html
-
-**On Stand, Pecker Fires Back After Trump Lawyer Implies He Was Untruthful**\
-`The confrontational strategy adopted by the lawyer, Emil Bove, did not seem to work with David Pecker, the former publisher of The National Enquirer.`\
-https://nytimes.com/2024/04/26/nyregion/david-pecker-trump-lawyer.html
 
