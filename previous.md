@@ -1,3 +1,11 @@
+**Blinken meets Xi, and Supreme Court Considers Presidential Immunity**\
+`Plus, Haiti gets a new government.`\
+https://nytimes.com/2024/04/26/podcasts/us-china-weinstein.html
+
+**Harvey Weinstein Conviction Thrown Out**\
+`New York’s highest appeals court has overturned the movie producer’s 2020 conviction for sex crimes, which was a landmark in the #MeToo movement.`\
+https://nytimes.com/2024/04/26/podcasts/the-daily/harvey-weinstein-overturned.html
+
 **Titanic’s Treasures Captivate Collectors, but They’ll Need Deep Pockets**\
 `Numerous artifacts from the Titanic, including a violin case, are up for auction this weekend in England. Collectors are ready to pounce.`\
 https://nytimes.com/2024/04/26/world/europe/titanic-auction-memorabilia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/26/nyregion/what-does-weinstein-reversal-mean-for-me
 **The Constitution Won’t Save Us From Trump**\
 `Turning the page on the man — and on the politics he has fostered — will require fundamentally changing the text of our founding document.`\
 https://nytimes.com/2024/04/26/opinion/constitution-trump.html
-
-**How Does Trump’s Violent Rhetoric End?**\
-`Jamelle Bouie on what America’s history tells us about this moment.`\
-https://nytimes.com/2024/04/26/opinion/trump-political-violence-civil-war.html
-
-**TikTok on the Clock, Tesla’s Flop Era and How NASA Fixed a ’70s-Era Space Computer**\
-`“A clock is ticking on one of America’s most famous apps.”`\
-https://nytimes.com/2024/04/26/podcasts/hard-fork-tiktok-tesla-voyager.html
 

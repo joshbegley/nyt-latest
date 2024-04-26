@@ -1,3 +1,11 @@
+**Blinken meets Xi, and Supreme Court Considers Presidential Immunity**\
+`Plus, Haiti gets a new government.`\
+https://nytimes.com/2024/04/26/podcasts/us-china-weinstein.html
+
+**Harvey Weinstein Conviction Thrown Out**\
+`New York’s highest appeals court has overturned the movie producer’s 2020 conviction for sex crimes, which was a landmark in the #MeToo movement.`\
+https://nytimes.com/2024/04/26/podcasts/the-daily/harvey-weinstein-overturned.html
+
 **Titanic’s Treasures Captivate Collectors, but They’ll Need Deep Pockets**\
 `Numerous artifacts from the Titanic, including a violin case, are up for auction this weekend in England. Collectors are ready to pounce.`\
 https://nytimes.com/2024/04/26/world/europe/titanic-auction-memorabilia.html
