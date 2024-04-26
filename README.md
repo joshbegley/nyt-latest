@@ -6,8 +6,8 @@ https://nytimes.com/2024/04/26/us/politics/federal-student-aid-fafsa-cordray.htm
 `Israel is facing one of the most fateful choices it has ever had to make.`\
 https://nytimes.com/2024/04/26/opinion/israel-war-rafah-riyadh.html
 
-**‘Where’s Cricket?’ Don’t Ask. Kristi Noem Defends Killing Her Dog. And a Goat.**\
-`The South Dakota governor, seen as a potential vice-presidential pick, recounted the story of shooting her hunting dog, named Cricket, in a forthcoming book.`\
+**‘Where’s Cricket?’ Don’t Ask. Kristi Noem Defends Killing Her Dog.**\
+`In a forthcoming book, the South Dakota governor, seen as a potential vice-presidential pick, tells of shooting her hunting dog. And a goat.`\
 https://nytimes.com/2024/04/26/us/politics/kristi-noem-dog-killing.html
 
 **For Fox News, Student Protests Are a Familiar Target**\
