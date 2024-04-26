@@ -1,3 +1,7 @@
+**The Schemes to Squelch Trump’s Scandals Were Hardly Commonplace**\
+`Trump’s defense lawyers tried and failed to prove David Pecker was a liar.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-trial-pecker-bove
+
 **Drone attack kills 4 workers in an Iraqi gas field, but no one claims responsibility.**\
 `By Alissa J. Rubin`\
 https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/drone-attack-kills-4-workers-in-an-iraqi-gas-field-but-no-one-claims-responsibility
