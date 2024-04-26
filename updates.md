@@ -1,3 +1,7 @@
+**Has South Africa Truly Defeated Apartheid?**\
+`We looked at how far South Africa has come in meeting its goals after 30 years of freedom.`\
+https://nytimes.com/interactive/2024/04/26/world/africa/south-africa-apartheid-freedom.html
+
 **A New Pacific Arsenal to Counter China**\
 `With missiles, submarines and alliances, the Biden administration has built a presence in the region to rein in Beijing’s expansionist goals.`\
 https://nytimes.com/interactive/2024/04/26/us/politics/us-china-military-bases-weapons.html
