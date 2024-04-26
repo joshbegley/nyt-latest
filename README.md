@@ -1,3 +1,7 @@
+**Jury Deadlocks on Murder Count Against Ex-Deputy in Killing of Colorado Man**\
+`A jury convicted the former deputy of reckless endangerment in the fatal shooting of a man who called 911 for help, but said it was unable to reach a verdict on charges of murder and official misconduct.`\
+https://nytimes.com/2024/04/26/us/christian-glass-colorado-police-shooting.html
+
 **Three Questions About Politics and the Campus Protests**\
 `The encampments present a new wrinkle in a year already knotted by war abroad and domestic discord.`\
 https://nytimes.com/2024/04/26/us/politics/politics-campus-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/us/paramedic-sentenced-elijah-mcclain.html
 **The Schemes to Squelch Trump’s Scandals Were Hardly Commonplace**\
 `Trump’s defense lawyers tried but failed to prove David Pecker was a liar.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-trial-pecker-bove
-
-**Drone attack kills 4 workers in an Iraqi gas field, but no one claims responsibility.**\
-`By Alissa J. Rubin`\
-https://nytimes.com/live/2024/04/26/world/israel-gaza-war-hamas/drone-attack-kills-4-workers-in-an-iraqi-gas-field-but-no-one-claims-responsibility
 
