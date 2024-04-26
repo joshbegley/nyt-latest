@@ -1,3 +1,11 @@
+**Trump’s trial is the latest chapter in the rich history of Lower Manhattan’s courts.**\
+`A cluster of downtown buildings has served as the borough’s “epicenter of criminal justice in New York since the 1830s,” said a lawyer who has led walking tours of Manhattan courthouses.`\
+https://nytimes.com/2024/04/26/nyregion/manhattan-courts-trump-trial.html
+
+**The Best Ways to Cook Asparagus**\
+`You don’t just have to roast those stalks. These three easy techniques can bring out the delicious best from the spring favorite.`\
+https://nytimes.com/2024/04/26/dining/best-ways-to-cook-asparagus.html
+
 **Congestion Pricing Will Start on June 30 in New York City, M.T.A. Says**\
 `Transit officials announced the start of the program, which they have said will ease some of the nation’s worst traffic.`\
 https://nytimes.com/2024/04/26/nyregion/congestion-pricing-nyc-june-30.html
