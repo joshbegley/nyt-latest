@@ -1,3 +1,7 @@
+**Word of the Day: interloper**\
+`This word has appeared in 33 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/26/learning/word-of-the-day-interloper.html
+
 **The Harley Riders With a Taste for Tea and Apple Strudel**\
 `The Harley Owners Group in Alice Springs is what’s known as a social motorcycle club, with the emphasis on social.`\
 https://nytimes.com/2024/04/26/world/australia/harley-club.html
