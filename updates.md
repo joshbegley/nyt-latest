@@ -1,3 +1,7 @@
+**The Best of Late Night This Week**\
+`The hosts spent much of the week discussing former President Donald Trump’s criminal trial in Manhattan, including the opening arguments and the testimony of David Pecker, the former publisher of the National Enquirer. Here’s what they had to say.`\
+https://nytimes.com/interactive/2024/04/26/arts/television/best-of-late-night-trump-trial.html
+
 **Student Leader of Columbia Protests: ‘Zionists Don’t Deserve to Live’**\
 `Khymani James, a junior, apologized for his statements — made before he joined the demonstration — after video surfaced on social media.`\
 https://nytimes.com/2024/04/26/nyregion/columbia-student-protest-zionism.html

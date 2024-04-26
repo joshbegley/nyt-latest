@@ -1,3 +1,7 @@
+**The Best of Late Night This Week**\
+`The hosts spent much of the week discussing former President Donald Trump’s criminal trial in Manhattan, including the opening arguments and the testimony of David Pecker, the former publisher of the National Enquirer. Here’s what they had to say.`\
+https://nytimes.com/interactive/2024/04/26/arts/television/best-of-late-night-trump-trial.html
+
 **The Big Number: $40 Billion**\
 `Meta has already spent billions on developing artificial intelligence, and it plans to spend billions more.`\
 https://nytimes.com/interactive/2024/04/26/business/meta-spending-ai.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/business/economy/fed-rate-cut-forecast.html
 **Denied a Second Chance at a Normal Senior Year**\
 `After Covid ruined high school graduation for the class of 2020, the response to campus protests might upend their college commencements.`\
 https://nytimes.com/2024/04/26/style/campus-protests-college-graduation.html
-
-**At the Time 100 Gala, Glamour Meets Influence**\
-`Dua Lipa and Patrick Mahomes are red carpet stars at an event that brought together Oscar winners and thought leaders.`\
-https://nytimes.com/2024/04/26/style/time-100-gala-dua-lipa-taraji-p-henson.html
 
