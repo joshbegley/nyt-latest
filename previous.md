@@ -1,3 +1,7 @@
+**‘Harlequin, Refined by Love’ Review: A French Showman’s First Steps**\
+`The revival of a 2006 work by Thomas Jolly, the director masterminding the opening ceremony at the Paris Olympics, shows his gift for visual flamboyance.`\
+https://nytimes.com/2024/04/26/theater/arlequin-poli-par-lamour-thomas-jolly.html
+
 **Taylor Swift: The ‘Tortured’ Mailbag**\
 `Answering your questions about the sound and substance of the pop superstar’s double album, and the way fans and critics have responded to it.`\
 https://nytimes.com/2024/04/26/arts/music/popcast-taylor-swift-tortured-poets-department.html
@@ -33,8 +37,4 @@ https://nytimes.com/article/joan-didion-best-books.html
 **King Charles to Return to Public Duties, Reassuring Anxious Royal Watchers**\
 `The king’s cancer treatment will continue but doctors are “pleased with the progress made so far,” a palace spokesman said.`\
 https://nytimes.com/2024/04/26/world/europe/king-charles-iii-royal-duties.html
-
-**How a Supreme Court Immunity Ruling Could Affect Trump’s Election Case**\
-`In arguments on Thursday, the justices appeared to signal two ways they could help Donald Trump as he fights charges that he plotted to overturn the 2020 election.`\
-https://nytimes.com/2024/04/26/us/politics/trump-supreme-court-immunity.html
 

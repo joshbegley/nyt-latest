@@ -1,3 +1,7 @@
+**‘Harlequin, Refined by Love’ Review: A French Showman’s First Steps**\
+`The revival of a 2006 work by Thomas Jolly, the director masterminding the opening ceremony at the Paris Olympics, shows his gift for visual flamboyance.`\
+https://nytimes.com/2024/04/26/theater/arlequin-poli-par-lamour-thomas-jolly.html
+
 **Four More Years, Pause**\
 `There’s no use in hiding presidential slip-ups.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/biden-speech-pause
