@@ -1,3 +1,7 @@
+**Deep Beneath London, Onetime Bomb Shelters Will Become a Tourist Attraction**\
+`Used for spying, a phone exchange and more over the years, a semi-secret web of tunnels in central London could open to the public in 2027.`\
+https://nytimes.com/2024/04/27/world/europe/london-tunnels-tourism.html
+
 **Biden Warms Up for a Media Roast on Saturday**\
 `At the annual White House Correspondents’ Association dinner, hosted by Colin Jost, President Biden and members of the news media will (hopefully) share some laughs.`\
 https://nytimes.com/2024/04/27/us/politics/biden-white-house-correspondents-dinner.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009424205/trump-wall-street.html
 **Donald Trump Has Never Sounded Like This**\
 `No major American presidential candidate has talked like he now does at his rallies — not Richard Nixon, not George Wallace, not even Donald Trump himself.`\
 https://nytimes.com/2024/04/27/magazine/trump-rallies-rhetoric.html
-
-**A City Scarred by Terrorism Prepares an Olympic Opening Without Walls**\
-`The opening ceremony for this summer’s Paris Games will be held outside a stadium — an Olympics first. Making it safe is complicated.`\
-https://nytimes.com/2024/04/27/world/europe/paris-olympics-2024-security-opening-ceremony.html
 
