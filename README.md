@@ -26,7 +26,7 @@ https://nytimes.com/2024/04/27/business/delta-boeing-plane-emergency-slide.html
 `The testimony of David Pecker, the former publisher of The National Enquirer, included stories of celebrity encounters and his own wild journalistic tactics.`\
 https://nytimes.com/2024/04/27/nyregion/david-pecker-trump-tabloids.html
 
-**Climber Is Killed in Fall at Denali Peak**\
+**Climber Is Killed in Fall at Denali National Park**\
 `Climbers were navigating rock, snow and ice on Mount Johnson when they fell about 1,000 feet, killing one and injuring another, the National Park Service said.`\
 https://nytimes.com/2024/04/27/us/climbers-fall-denali-park-alaska.html
 
