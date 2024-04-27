@@ -1,3 +1,7 @@
+**Alberta Draws Academia Into Its Fight With Justin Trudeau**\
+`Alberta is seeking powers to veto funding agreements between the federal government and provincial entities, including postsecondary institutions.`\
+https://nytimes.com/2024/04/27/world/canada/alberta-canada-danielle-smith-trudeau.html
+
 **Deep Beneath London, Onetime Bomb Shelters Will Become a Tourist Attraction**\
 `Used for spying, a phone exchange and more over the years, a semi-secret web of tunnels in central London could open to the public in 2027.`\
 https://nytimes.com/2024/04/27/world/europe/london-tunnels-tourism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/arts/podcasts-anxiety-mental-health.html
 **Why Donald Trump Feels Betrayed by Corporate America**\
 `Donald J. Trump’s relationship with Wall Street has changed dramatically since 2016. He was closely aligned with business leaders during his first term in office, until a series of events exposed their divisions.`\
 https://nytimes.com/video/us/politics/100000009424205/trump-wall-street.html
-
-**Donald Trump Has Never Sounded Like This**\
-`No major American presidential candidate has talked like he now does at his rallies — not Richard Nixon, not George Wallace, not even Donald Trump himself.`\
-https://nytimes.com/2024/04/27/magazine/trump-rallies-rhetoric.html
 

@@ -1,3 +1,7 @@
+**Alberta Draws Academia Into Its Fight With Justin Trudeau**\
+`Alberta is seeking powers to veto funding agreements between the federal government and provincial entities, including postsecondary institutions.`\
+https://nytimes.com/2024/04/27/world/canada/alberta-canada-danielle-smith-trudeau.html
+
 **Deep Beneath London, Onetime Bomb Shelters Will Become a Tourist Attraction**\
 `Used for spying, a phone exchange and more over the years, a semi-secret web of tunnels in central London could open to the public in 2027.`\
 https://nytimes.com/2024/04/27/world/europe/london-tunnels-tourism.html
