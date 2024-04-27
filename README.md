@@ -1,3 +1,7 @@
+**At Trump’s Trial, a Window Into the Golden Era of Tabloids**\
+`The testimony of David Pecker, the former publisher of the National Enquirer, included stories of celebrity encounters and his own wild journalistic tactics.`\
+https://nytimes.com/2024/04/27/nyregion/david-pecker-trump-tabloids.html
+
 **Climber Is Killed in Fall at Denali Peak**\
 `Climbers were navigating rock, snow and ice on Mount Johnson when they fell about 1,000 feet, killing one and injuring another, the National Park Service said.`\
 https://nytimes.com/2024/04/27/us/climbers-fall-denali-park-alaska.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/world/middleeast/hamas-israel-cease-fire-proposal
 **Daniel Ek’s Next Act: Full-Body Scans for the People**\
 `The Spotify chief has co-founded a new start-up, Neko Health, that aims to make head-to-toe health scans part of the annual health checkup routine.`\
 https://nytimes.com/2024/04/27/business/dealbook/daniel-ek-neko-health.html
-
-**Beyond Pulling Donations**\
-`Business executives who are concerned about antisemitism on college campuses have other options for influencing the schools’ actions, Andrew Ross Sorkin writes.`\
-https://nytimes.com/2024/04/27/business/dealbook/campus-protests-donations-antisemitism.html
 
