@@ -1,3 +1,7 @@
+**Barnard Ends Suspensions for Most Student Protesters Who Were Arrested**\
+`The students had been among more than 100 who were suspended for participating in an encampment at Columbia University.`\
+https://nytimes.com/2024/04/26/nyregion/barnard-student-suspensions-campus-protests.html
+
 **Marked Up**\
 `Rich Norris’s puzzle guards its treasures.`\
 https://nytimes.com/2024/04/26/crosswords/daily-puzzle-2024-04-27.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/health/bird-flu-milk-fda.html
 **Paramount Chief Executive Bob Bakish Could Be Out Next Week**\
 `He was once a staunch ally of the company’s biggest owner, Shari Redstone, but the relationship soured in recent months.`\
 https://nytimes.com/2024/04/26/business/paramount-ceo-bob-bakish.html
-
-**Judge John Hodgman on Uncle Impermanence**\
-`Should a divorce get them removed from the family tree?`\
-https://nytimes.com/2024/04/26/magazine/judge-john-hodgman-on-uncle-impermanence.html
 
