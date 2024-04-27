@@ -1,3 +1,7 @@
+**Hamas Says It Is Reviewing Israeli Proposal on Cease-Fire Deal**\
+`The statement came as anticipation was growing of an Israeli invasion of Rafah, where more than a million Gazans have been displaced.`\
+https://nytimes.com/2024/04/27/world/middleeast/hamas-israel-cease-fire-proposal-talks.html
+
 **A seemingly looser Biden takes his act to the White House Correspondents’ dinner.**\
 `the press at the White House Correspondents’ dinner.`\
 https://nytimes.com/2024/04/27/us/politics/a-seemingly-looser-biden-takes-his-act-to-the-white-house-correspondents-dinner.html
