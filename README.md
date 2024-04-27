@@ -1,3 +1,7 @@
+**Hamas says it is reviewing an Israeli proposal on a cease-fire deal.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/hamas-says-it-is-reviewing-an-israeli-proposal-on-a-cease-fire-deal
+
 **Daniel Ek’s Next Act: Full-Body Scans for the People**\
 `The Spotify chief has co-founded a new start-up, Neko Health, that aims to make head-to-toe health scans part of the annual health checkup routine.`\
 https://nytimes.com/2024/04/27/business/dealbook/daniel-ek-neko-health.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/opinion/climate-change-conservatives-gen-z-voters
 **Left and Right on the Happiness Scale**\
 `Readers largely take issue with a column by Ross Douthat about the left’s supposed unhappiness.`\
 https://nytimes.com/2024/04/27/opinion/left-right-happiness.html
-
-**Why Does the U.S. Arm Ukraine With Fanfare and Israel in Secret?**\
-`The Biden administration should be more transparent about weapons sent to Israel.`\
-https://nytimes.com/interactive/2024/04/27/opinion/us-arms-disclosure-ukraine-israel.html
 
