@@ -1,3 +1,11 @@
+**The Sounds of Music**\
+`Mike Ellison’s debut puzzle brings music back into the house — lots of it!`\
+https://nytimes.com/2024/04/27/crosswords/daily-puzzle-2024-04-28.html
+
+**It is the second video of hostages released by Hamas in the last few days.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/hamas-israel-hostages-video
+
 **How a New Trial for Harvey Weinstein Could Again Test the Legal System**\
 `A new jury would hear from only one or both of the women whom he was convicted of assaulting, in what analysts say will be a much narrower and weaker case.`\
 https://nytimes.com/2024/04/27/nyregion/harvey-weinstein-trial.html
