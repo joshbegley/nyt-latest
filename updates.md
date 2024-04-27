@@ -1,3 +1,7 @@
+**Andrew Davis, 80, Dies; Renowned Conductor Who Championed Britain’s Music**\
+`Celebrated for his long tenure with Lyric Opera of Chicago, he led this and other orchestras with force and a notably energetic podium presence.`\
+https://nytimes.com/2024/04/27/arts/music/andrew-davis-dead.html
+
 **More Tornadoes Are Likely in the Great Plains**\
 `A rare “particularly dangerous situation” tornado watch was issued on Saturday afternoon for western Oklahoma and parts of northern Texas.`\
 https://nytimes.com/2024/04/27/us/tornado-storms-weather-forecast-oklahoma-texas.html
