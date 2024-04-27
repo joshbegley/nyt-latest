@@ -1,3 +1,7 @@
+**Justice Alito Is Holding Trump to a Different Standard**\
+`On what planet were Trump’s actions a normal response to political defeat?`\
+https://nytimes.com/2024/04/27/opinion/alito-trump-insurrection.html
+
 **Aid Flows to Gaza Are Rising, U.N. says, but More Is Needed**\
 `Israel says the number of trucks entering the enclave has doubled to an average of 400 a day. The U.N. disputes that, but agrees that the pace of deliveries has quickened.`\
 https://nytimes.com/2024/04/27/world/middleeast/israel-gaza-war-humanitarian-aid.html
