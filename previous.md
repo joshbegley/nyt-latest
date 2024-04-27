@@ -1,3 +1,7 @@
+**Your New Chocolate Chip Cookie Recipe**\
+`Leave it to Rick Martínez to take everyone’s favorite cookie and make it even better with butterscotch-y, brown-buttery piloncillo.`\
+https://nytimes.com/2024/04/27/dining/your-new-chocolate-chip-cookie-recipe.html
+
 **A seemingly looser Biden takes his act to the White House Correspondents’ dinner.**\
 `the press at the White House Correspondents’ dinner.`\
 https://nytimes.com/live/2024/04/27/us/biden-trump-election/a-seemingly-looser-biden-takes-his-act-to-the-white-house-correspondents-dinner
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/the-un-says-it-f
 **Russia Bombs Power Plants and Ukraine Targets Refineries in Dueling Attacks**\
 `As missiles caused extensive damage to Ukraine’s power grid, Kyiv continued drone assaults inside Russia that have drawn criticism from Washington.`\
 https://nytimes.com/2024/04/27/world/europe/russia-ukraine-missiles-drones.html
-
-**Harvey Weinstein and the Limits of ‘She Said, She Said, She Said’**\
-`A chorus of voices is what made #MeToo so powerful. Why did it backfire in court?`\
-https://nytimes.com/2024/04/27/opinion/harvey-weinstein-conviction-me-too.html
 

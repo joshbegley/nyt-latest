@@ -1,3 +1,7 @@
+**Your New Chocolate Chip Cookie Recipe**\
+`Leave it to Rick Martínez to take everyone’s favorite cookie and make it even better with butterscotch-y, brown-buttery piloncillo.`\
+https://nytimes.com/2024/04/27/dining/your-new-chocolate-chip-cookie-recipe.html
+
 **A seemingly looser Biden takes his act to the White House Correspondents’ dinner.**\
 `the press at the White House Correspondents’ dinner.`\
 https://nytimes.com/live/2024/04/27/us/biden-trump-election/a-seemingly-looser-biden-takes-his-act-to-the-white-house-correspondents-dinner
