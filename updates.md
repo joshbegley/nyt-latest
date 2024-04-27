@@ -1,3 +1,11 @@
+**The Best Red Carpet Looks at the White House Correspondents’ Association Dinner**\
+`Molly Ringwald, Keri Russell and Chris Pine, made their entrances at the annual celebration in Washington.`\
+https://nytimes.com/2024/04/27/style/white-house-correspondents-dinner-red-carpet-photos.html
+
+**Filmmakers accuse Gavin Newsom’s PAC of plagiarism in abortion-access ad.**\
+`Two producers said the PAC’s ‘Fugitive’ ad, which depicts a woman being forced to take a pregnancy test during a traffic stop, copied their 2023 short film, ‘Roed.’`\
+https://nytimes.com/live/2024/04/27/us/biden-trump-election/gavin-newsom-abortion-ad-plagiarism
+
 **The Sounds of Music**\
 `Mike Ellison’s debut puzzle brings music back into the house — lots of it!`\
 https://nytimes.com/2024/04/27/crosswords/daily-puzzle-2024-04-28.html

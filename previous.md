@@ -1,3 +1,11 @@
+**The Best Red Carpet Looks at the White House Correspondents’ Association Dinner**\
+`Molly Ringwald, Keri Russell and Chris Pine, made their entrances at the annual celebration in Washington.`\
+https://nytimes.com/2024/04/27/style/white-house-correspondents-dinner-red-carpet-photos.html
+
+**Filmmakers accuse Gavin Newsom’s PAC of plagiarism in abortion-access ad.**\
+`Two producers said the PAC’s ‘Fugitive’ ad, which depicts a woman being forced to take a pregnancy test during a traffic stop, copied their 2023 short film, ‘Roed.’`\
+https://nytimes.com/live/2024/04/27/us/biden-trump-election/gavin-newsom-abortion-ad-plagiarism
+
 **The Sounds of Music**\
 `Mike Ellison’s debut puzzle brings music back into the house — lots of it!`\
 https://nytimes.com/2024/04/27/crosswords/daily-puzzle-2024-04-28.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/27/arts/music/andrew-davis-dead.html
 **‘Particularly Dangerous Situation’ Tornado Watch Is Issued in Oklahoma**\
 `Forecasters on Saturday said that “dangerous supercell thunderstorms” were possible that could produce strong tornadoes.`\
 https://nytimes.com/2024/04/27/us/tornado-storms-weather-forecast-oklahoma-texas.html
-
-**Colin Jost and Scarlett Johansson Lead ‘D.C.-Palooza’**\
-`In Washington, celebrities mixed with journalists and government officials at glittery parties before the annual White House Correspondents’ Association dinner.`\
-https://nytimes.com/2024/04/27/style/white-house-correspondents-dinner-parties.html
-
-**Delta Air Lines Flight Loses Emergency Slide After Takeoff, Officials Say**\
-`The plane had taken off from Kennedy International Airport when crew members noticed problems near its right wing, Delta said. What became of the slide is unknown.`\
-https://nytimes.com/2024/04/27/business/delta-boeing-plane-emergency-slide.html
 
