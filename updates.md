@@ -1,3 +1,7 @@
+**Beyond Pulling Donations**\
+`Business executives who are concerned about antisemitism on college campuses have other options for influencing the schools’ actions, Andrew Ross Sorkin writes.`\
+https://nytimes.com/2024/04/27/business/dealbook/campus-protests-donations-antisemitism.html
+
 **Climber Is Killed in Fall at Denali Peak**\
 `Climbers were navigating rock, snow and ice on Mount Johnson when they fell about 1,000 feet, killing one and injuring another, the National Park Service said.`\
 https://nytimes.com/2024/04/27/us/climbers-fall-denali-park-alaska.html
