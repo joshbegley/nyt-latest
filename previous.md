@@ -1,3 +1,7 @@
+**Russia Bombs Power Plants and Ukraine Targets Refineries in Dueling Attacks**\
+`As missiles caused extensive damage to Ukraine’s power grid, Kyiv continued drone assaults inside Russia that have drawn criticism from Washington.`\
+https://nytimes.com/2024/04/27/world/europe/russia-ukraine-missiles-drones.html
+
 **Harvey Weinstein and the Limits of ‘She Said, She Said, She Said’**\
 `A chorus of voices is what made #MeToo so powerful. Why did it backfire in court?`\
 https://nytimes.com/2024/04/27/opinion/harvey-weinstein-conviction-me-too.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/world/canada/alberta-canada-danielle-smith-trudea
 **Deep Beneath London, Onetime Bomb Shelters Will Become a Tourist Attraction**\
 `Used for spying, a phone exchange and more over the years, a semi-secret web of tunnels in central London could open to the public in 2027.`\
 https://nytimes.com/2024/04/27/world/europe/london-tunnels-tourism.html
-
-**Biden Warms Up for a Media Roast on Saturday**\
-`At the annual White House Correspondents’ Association dinner, hosted by Colin Jost, President Biden and members of the news media will (hopefully) share some laughs.`\
-https://nytimes.com/2024/04/27/us/politics/biden-white-house-correspondents-dinner.html
 

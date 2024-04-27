@@ -1,3 +1,7 @@
+**Russia Bombs Power Plants and Ukraine Targets Refineries in Dueling Attacks**\
+`As missiles caused extensive damage to Ukraine’s power grid, Kyiv continued drone assaults inside Russia that have drawn criticism from Washington.`\
+https://nytimes.com/2024/04/27/world/europe/russia-ukraine-missiles-drones.html
+
 **Harvey Weinstein and the Limits of ‘She Said, She Said, She Said’**\
 `A chorus of voices is what made #MeToo so powerful. Why did it backfire in court?`\
 https://nytimes.com/2024/04/27/opinion/harvey-weinstein-conviction-me-too.html
