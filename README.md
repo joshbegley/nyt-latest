@@ -1,3 +1,7 @@
+**Heat Wave Strains Pharmacist’s Ability to Get Crucial Medicine to Gazans**\
+`High temperatures this week have left people sweltering and challenged businesses that need to keep their products cool.`\
+https://nytimes.com/2024/04/27/world/middleeast/gaza-heat-wave-medicine.html
+
 **The Offense That Harvey Weinstein Can Never Be Convicted Of**\
 `The movie producer won his appeal in New York on Thursday. But his story, at its core, is about work, and it can’t be measured by a criminal court.`\
 https://nytimes.com/2024/04/27/us/harvey-weinstein-workplace-metoo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/opinion/harvey-weinstein-conviction-me-too.html
 **What Students Read Before They Protest**\
 `How Israel became the focus of so much of contemporary protest politics.`\
 https://nytimes.com/2024/04/27/opinion/columbia-university-protests.html
-
-**I’m a Young Conservative, and I Want My Party to Lead the Fight Against Climate Change**\
-`Instead of continuing the environmental legacy they were once known for, Republicans have ceded the fight against climate change to Democrats.`\
-https://nytimes.com/2024/04/27/opinion/climate-change-conservatives-gen-z-voters.html
 
