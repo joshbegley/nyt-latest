@@ -1,3 +1,7 @@
+**Marked Up**\
+`Rich Norris’s puzzle guards its treasures.`\
+https://nytimes.com/2024/04/26/crosswords/daily-puzzle-2024-04-27.html
+
 **G.O.P. Asks Secret Service to Move Protesters Away From Convention Venue**\
 `The Republican National Committee said moving protesters farther away from the venue in Milwaukee would reduce the risk of confrontations.`\
 https://nytimes.com/2024/04/26/us/politics/republican-convention-protest-milwaukee.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/business/paramount-ceo-bob-bakish.html
 **Judge John Hodgman on Uncle Impermanence**\
 `Should a divorce get them removed from the family tree?`\
 https://nytimes.com/2024/04/26/magazine/judge-john-hodgman-on-uncle-impermanence.html
-
-**Columbia’s University Senate Calls for an Investigation Into the Administration**\
-`The senators voted for a resolution that accused the administration of  breaching the due-process rights of students and professors.`\
-https://nytimes.com/2024/04/26/us/columbia-university-nemat-shafik-vote.html
 
