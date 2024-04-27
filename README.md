@@ -1,3 +1,7 @@
+**Justice Alito Is Holding Trump to a Different Standard**\
+`On what planet were Trump’s actions a normal response to political defeat?`\
+https://nytimes.com/2024/04/27/opinion/alito-trump-insurrection.html
+
 **Aid Flows to Gaza Are Rising, U.N. says, but More Is Needed**\
 `Israel says the number of trucks entering the enclave has doubled to an average of 400 a day. The U.N. disputes that, but agrees that the pace of deliveries has quickened.`\
 https://nytimes.com/2024/04/27/world/middleeast/israel-gaza-war-humanitarian-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/business/dealbook/beyond-pulling-donations.html
 **2 Memoirs by Poets**\
 `Carl Sandburg’s boyhood; Carolyn Forché’s political awakening.`\
 https://nytimes.com/2024/04/27/books/read-like-wind-recommendations.html
-
-**The U.N. says it received no evidence against one of the UNRWA workers Israel accused of aiding the Oct. 7 attacks.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/the-un-says-it-found-no-evidence-against-one-of-the-unrwa-workers-israel-accused-of-aiding-the-oct-7-attacks
 
