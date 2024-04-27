@@ -1,3 +1,7 @@
+**A seemingly looser Biden takes his act to the White House Correspondents’ dinner.**\
+`the press at the White House Correspondents’ dinner.`\
+https://nytimes.com/2024/04/27/us/politics/a-seemingly-looser-biden-takes-his-act-to-the-white-house-correspondents-dinner.html
+
 **Heat Wave Strains Pharmacist’s Ability to Get Crucial Medicine to Gazans**\
 `High temperatures this week have left people sweltering and challenged businesses that need to keep their products cool.`\
 https://nytimes.com/2024/04/27/world/middleeast/gaza-heat-wave-medicine.html
@@ -8,7 +12,7 @@ https://nytimes.com/2024/04/27/us/harvey-weinstein-workplace-metoo.html
 
 **Hamas says it is reviewing an Israeli proposal on a cease-fire deal.**\
 `By Adam Rasgon`\
-https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/hamas-says-it-is-reviewing-an-israeli-proposal-on-a-cease-fire-deal
+https://nytimes.com/2024/04/27/world/middleeast/hamas-israel-cease-fire-proposal-talks.html
 
 **Daniel Ek’s Next Act: Full-Body Scans for the People**\
 `The Spotify chief has co-founded a new start-up, Neko Health, that aims to make head-to-toe health scans part of the annual health checkup routine.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/world/europe/russia-ukraine-missiles-drones.html
 **Harvey Weinstein and the Limits of ‘She Said, She Said, She Said’**\
 `A chorus of voices is what made #MeToo so powerful. Why did it backfire in court?`\
 https://nytimes.com/2024/04/27/opinion/harvey-weinstein-conviction-me-too.html
-
-**What Students Read Before They Protest**\
-`How Israel became the focus of so much of contemporary protest politics.`\
-https://nytimes.com/2024/04/27/opinion/columbia-university-protests.html
 
