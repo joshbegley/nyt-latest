@@ -1,3 +1,7 @@
+**Regulators Seize Republic First, a Troubled Philadelphia Bank**\
+`The relatively small bank, the first to fail this year, will have its deposits assumed by another Pennsylvania lender, Fulton Bank.`\
+https://nytimes.com/2024/04/26/business/republic-first-bank-failure.html
+
 **Paramount Chief Executive Bob Bakish Could Be Out Next Week**\
 `He was once a staunch ally of the company’s biggest owner, Shari Redstone, but the relationship soured in recent months.`\
 https://nytimes.com/2024/04/26/business/paramount-ceo-bob-bakish.html

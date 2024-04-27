@@ -1,3 +1,7 @@
+**Regulators Seize Republic First, a Troubled Philadelphia Bank**\
+`The relatively small bank, the first to fail this year, will have its deposits assumed by another Pennsylvania lender, Fulton Bank.`\
+https://nytimes.com/2024/04/26/business/republic-first-bank-failure.html
+
 **What Weinstein’s Overturned Conviction Means for His California Case**\
 `Harvey Weinstein faced similar sex crimes charges in New York and California, but the arguments used to overturn one case may not help in the other.`\
 https://nytimes.com/2024/04/26/nyregion/weinstein-conviction-appeal-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/us/columbia-university-nemat-shafik-vote.html
 **The Student-Led Protests Aren’t Perfect. That Doesn’t Mean They’re Not Right.**\
 `There might be problems in the student protest movement for Gaza, but they are not misguided in their goals.`\
 https://nytimes.com/2024/04/26/opinion/columbia-student-protests-israel.html
-
-**Britney Spears and Her Father Settle Legal Dispute Over Conservatorship**\
-`Terms were not disclosed. The parties had been arguing over the payment of legal fees and James P. Spears’s financial oversight as his daughter’s conservator.`\
-https://nytimes.com/2024/04/26/arts/music/britney-spears-jamie-spears-legal-fees-conservatorship.html
 
