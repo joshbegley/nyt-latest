@@ -1,3 +1,7 @@
+**Heat Wave Strains Pharmacist’s Ability to Get Crucial Medicine to Gazans**\
+`High temperatures this week have left people sweltering and challenged businesses that need to keep their products cool.`\
+https://nytimes.com/2024/04/27/world/middleeast/gaza-heat-wave-medicine.html
+
 **The Offense That Harvey Weinstein Can Never Be Convicted Of**\
 `The movie producer won his appeal in New York on Thursday. But his story, at its core, is about work, and it can’t be measured by a criminal court.`\
 https://nytimes.com/2024/04/27/us/harvey-weinstein-workplace-metoo.html
