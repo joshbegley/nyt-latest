@@ -1,3 +1,7 @@
+**Hamas releases video of two more hostages.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/hamas-israel-hostages-video
+
 **Crackdowns at Three College Protests Lead to Nearly 200 Arrests**\
 `The police made arrests at Northeastern University, Arizona State and Indiana University on Saturday, as more schools move in on encampments protesting the war in Gaza.`\
 https://nytimes.com/2024/04/27/us/northeastern-arizona-state-university-protests-arrests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/nyregion/david-pecker-trump-tabloids.html
 **Climber Is Killed in Fall at Denali National Park**\
 `Climbers were navigating rock, snow and ice on Mount Johnson when they fell about 1,000 feet, killing one and injuring another, the National Park Service said.`\
 https://nytimes.com/2024/04/27/us/climbers-fall-denali-park-alaska.html
-
-**Justice Alito Is Holding Trump to a Different Standard**\
-`On what planet were Trump’s actions a normal response to political defeat?`\
-https://nytimes.com/2024/04/27/opinion/alito-trump-insurrection.html
 
