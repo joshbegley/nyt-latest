@@ -1,6 +1,6 @@
 **A seemingly looser Biden takes his act to the White House Correspondents’ dinner.**\
 `the press at the White House Correspondents’ dinner.`\
-https://nytimes.com/2024/04/27/us/politics/a-seemingly-looser-biden-takes-his-act-to-the-white-house-correspondents-dinner.html
+https://nytimes.com/live/2024/04/27/us/biden-trump-election/a-seemingly-looser-biden-takes-his-act-to-the-white-house-correspondents-dinner
 
 **Heat Wave Strains Pharmacist’s Ability to Get Crucial Medicine to Gazans**\
 `High temperatures this week have left people sweltering and challenged businesses that need to keep their products cool.`\
