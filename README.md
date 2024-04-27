@@ -1,3 +1,7 @@
+**Aid Flows to Gaza Are Rising, U.N. says, but More Is Needed**\
+`Israel says the number of trucks entering the enclave has doubled to an average of 400 a day. The U.N. disputes that, but agrees that the pace of deliveries has quickened.`\
+https://nytimes.com/2024/04/27/world/middleeast/israel-gaza-war-humanitarian-aid.html
+
 **Your New Chocolate Chip Cookie Recipe**\
 `Leave it to Rick Martínez to take everyone’s favorite cookie and make it even better with butterscotch-y, brown-buttery piloncillo.`\
 https://nytimes.com/2024/04/27/dining/your-new-chocolate-chip-cookie-recipe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/books/read-like-wind-recommendations.html
 **The U.N. says it received no evidence against one of the UNRWA workers Israel accused of aiding the Oct. 7 attacks.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/the-un-says-it-found-no-evidence-against-one-of-the-unrwa-workers-israel-accused-of-aiding-the-oct-7-attacks
-
-**Russia Bombs Power Plants and Ukraine Targets Refineries in Dueling Attacks**\
-`As missiles caused extensive damage to Ukraine’s power grid, Kyiv continued drone assaults inside Russia that have drawn criticism from Washington.`\
-https://nytimes.com/2024/04/27/world/europe/russia-ukraine-missiles-drones.html
 
