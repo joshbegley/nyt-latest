@@ -1,3 +1,23 @@
+**Biden Warms Up for a Media Roast on Saturday**\
+`At the annual White House Correspondents’ Association dinner, hosted by Colin Jost, President Biden and members of the news media will (hopefully) share some laughs.`\
+https://nytimes.com/2024/04/27/us/politics/biden-white-house-correspondents-dinner.html
+
+**How the U.S. Humanitarian Pier in Gaza Will Work**\
+`A pier operation being assembled by U.S. service members will involve an elaborate process to provide Gazans with just a portion of the aid they need.`\
+https://nytimes.com/interactive/2024/04/27/world/middleeast/gaza-pier-israel-hamas-war.html
+
+**In Race to Build A.I., Tech Plans a Big Plumbing Upgrade**\
+`The spending that the industry’s giants expect artificial intelligence to require is starting to come into focus — and it is jarringly large.`\
+https://nytimes.com/2024/04/27/technology/ai-big-tech-spending.html
+
+**‘Decisions Under Fire’: Campuses Try a Mix of Tactics as Protests Grow**\
+`Some colleges that initiated police crackdowns on pro-Palestinian protests have since taken a different tack. Others have defended the move. Hundreds have been arrested.`\
+https://nytimes.com/2024/04/27/us/college-protests-police-response.html
+
+**‘Challengers’ Is Sexy … but Is It Good Tennis?**\
+`A sports journalist on what the film got right and wrong.`\
+https://nytimes.com/2024/04/27/podcasts/challengers-is-sexy-but-is-it-good-tennis.html
+
 **10 Years, 100 Stories: The Work That Defines the Upshot**\
 `The Upshot is 10 years old this week. Here’s a collection of our most distinctive work from the last decade.`\
 https://nytimes.com/interactive/2024/04/27/upshot/upshot-ten-years.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/04/27/magazine/trump-rallies-rhetoric.html
 **A City Scarred by Terrorism Prepares an Olympic Opening Without Walls**\
 `The opening ceremony for this summer’s Paris Games will be held outside a stadium — an Olympics first. Making it safe is complicated.`\
 https://nytimes.com/2024/04/27/world/europe/paris-olympics-2024-security-opening-ceremony.html
-
-**Widowed Before 40 and Coping With the Financial Consequences**\
-`People who suddenly lose a spouse while young can feel unprepared for what their future looks like.`\
-https://nytimes.com/2024/04/27/business/young-widows-debt-insurance.html
-
-**My Landlord Says I Can’t Sublet My Apartment. What if I Do Anyway?**\
-`Rent-stabilized tenants can request to sublet their apartments in most cases, and landlords cannot unreasonably withhold consent. But what is ‘reasonable?’`\
-https://nytimes.com/2024/04/27/realestate/sublet-rent-stabilized-apartment.html
-
-**After Israel Aid Vote, Pocan Seeks to Show Biden Liberal Dismay on Gaza**\
-`The progressive Democrat from a rural, mostly white Wisconsin district is highlighting that it is not just young people of color who are concerned about the war.`\
-https://nytimes.com/2024/04/27/us/politics/mark-pocan-wisconsin-gaza.html
-
-**New Orleans Likes to Drink. They Spotted a Huge Recycling Opportunity**\
-`College students started a venture that has diverted glass bottles from landfills and crushed them into sand for coastal restoration efforts.`\
-https://nytimes.com/2024/04/27/climate/new-orleans-glass-recycling.html
-
-**Fact-Checking Trump’s Remarks in the Hush Money Trial**\
-`Each day before and after court proceedings, the former president stepped out in front of the cameras and offered his version of the case.`\
-https://nytimes.com/2024/04/27/us/politics/trump-trial-fact-check.html
 
