@@ -1,3 +1,11 @@
+**Crackdowns at Three College Protests Lead to Nearly 200 Arrests**\
+`The police made arrests at Northeastern University, Arizona State and Indiana University on Saturday, as more schools move in on encampments protesting the war in Gaza.`\
+https://nytimes.com/2024/04/27/us/northeastern-arizona-state-university-protests-arrests.html
+
+**The ship heading toward Gaza is carrying 400 tons of food aid.**\
+`By Adam Rasgon and Gaya Gupta`\
+https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/aid-ship-departs-from-cyprus-for-gaza-the-first-sea-shipment-since-world-central-kitchen-workers-were-killed
+
 **Climber Is Killed in Fall at Denali National Park**\
 `Climbers were navigating rock, snow and ice on Mount Johnson when they fell about 1,000 feet, killing one and injuring another, the National Park Service said.`\
 https://nytimes.com/2024/04/27/us/climbers-fall-denali-park-alaska.html
