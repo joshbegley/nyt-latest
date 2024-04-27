@@ -1,8 +1,12 @@
+**The Sounds of Music**\
+`Mike Ellison’s debut puzzle brings music back into the house — lots of it!`\
+https://nytimes.com/2024/04/27/crosswords/daily-puzzle-2024-04-28.html
+
 **How a New Trial for Harvey Weinstein Could Again Test the Legal System**\
 `A new jury would hear from only one or both of the women whom he was convicted of assaulting, in what analysts say will be a much narrower and weaker case.`\
 https://nytimes.com/2024/04/27/nyregion/harvey-weinstein-trial.html
 
-**Hamas releases video of two more hostages.**\
+**It is the second video of hostages released by Hamas in the last few days.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/hamas-israel-hostages-video
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/style/white-house-correspondents-dinner-parties.h
 **Delta Air Lines Flight Loses Emergency Slide After Takeoff, Officials Say**\
 `The plane had taken off from Kennedy International Airport when crew members noticed problems near its right wing, Delta said. What became of the slide is unknown.`\
 https://nytimes.com/2024/04/27/business/delta-boeing-plane-emergency-slide.html
-
-**At Trump’s Trial, a Window Into the Golden Era of Tabloids**\
-`The testimony of David Pecker, the former publisher of The National Enquirer, included stories of celebrity encounters and his own wild journalistic tactics.`\
-https://nytimes.com/2024/04/27/nyregion/david-pecker-trump-tabloids.html
 
