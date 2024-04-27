@@ -1,3 +1,7 @@
+**At Trump’s Trial, a Window Into the Golden Era of Tabloids**\
+`The testimony of David Pecker, the former publisher of The National Enquirer, included stories of celebrity encounters and his own wild journalistic tactics.`\
+https://nytimes.com/2024/04/27/nyregion/david-pecker-trump-tabloids.html
+
 **Colin Jost and Scarlett Johansson Lead ‘D.C.-Palooza’**\
 `In Washington, celebrities mixed with journalists and government officials at glittery parties before the annual White House Correspondents’ Association dinner.`\
 https://nytimes.com/2024/04/27/style/white-house-correspondents-dinner-parties.html
