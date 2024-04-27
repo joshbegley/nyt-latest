@@ -1,3 +1,7 @@
+**2 Memoirs by Poets**\
+`Carl Sandburg’s boyhood; Carolyn Forché’s political awakening.`\
+https://nytimes.com/2024/04/27/books/read-like-wind-recommendations.html
+
 **The U.N. says it found no evidence against one of the UNRWA workers Israel accused of aiding the Oct. 7 attacks.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/the-un-says-it-found-no-evidence-against-one-of-the-unrwa-workers-israel-accused-of-aiding-the-oct-7-attacks
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/podcasts/this-american-life-human-spectacle-nyt-a
 **Saving Time**\
 `The advice to live each day to its fullest can seem like a cliché, but figuring out how to actually do that can be pretty challenging.`\
 https://nytimes.com/2024/04/27/briefing/saving-time.html
-
-**Alberta Draws Academia Into Its Fight With Justin Trudeau**\
-`Alberta is seeking powers to veto funding agreements between the federal government and provincial entities, including postsecondary institutions.`\
-https://nytimes.com/2024/04/27/world/canada/alberta-canada-danielle-smith-trudeau.html
 
