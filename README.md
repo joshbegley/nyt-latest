@@ -1,3 +1,7 @@
+**More Tornadoes Are Likely in the Great Plains**\
+`Forecasters said that tornadoes, large hail and flash flooding were expected across several states, including Kansas, Oklahoma, northern Texas and parts of Missouri.`\
+https://nytimes.com/2024/04/27/us/tornado-storms-weather-forecast-oklahoma-texas.html
+
 **Colin Jost and Scarlett Johansson Lead ‘D.C.-Palooza’**\
 `In Washington, celebrities mixed with journalists and government officials at glittery parties before the annual White House Correspondents’ Association dinner.`\
 https://nytimes.com/2024/04/27/style/white-house-correspondents-dinner-parties.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/27/us/biden-trump-election/a-seemingly-looser-b
 **Heat Wave Strains Pharmacist’s Ability to Get Crucial Medicine to Gazans**\
 `High temperatures this week have left people sweltering and challenged businesses that need to keep their products cool.`\
 https://nytimes.com/2024/04/27/world/middleeast/gaza-heat-wave-medicine.html
-
-**The Offense That Harvey Weinstein Can Never Be Convicted Of**\
-`The movie producer won his appeal in New York on Thursday. But his story, at its core, is about work, and it can’t be measured by a criminal court.`\
-https://nytimes.com/2024/04/27/us/harvey-weinstein-workplace-metoo.html
 
