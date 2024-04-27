@@ -1,3 +1,7 @@
+**Saving Time**\
+`The advice to live each day to its fullest can seem like a cliché, but figuring out how to actually do that can be pretty challenging.`\
+https://nytimes.com/2024/04/27/briefing/saving-time.html
+
 **Alberta Draws Academia Into Its Fight With Justin Trudeau**\
 `Alberta is seeking powers to veto funding agreements between the federal government and provincial entities, including postsecondary institutions.`\
 https://nytimes.com/2024/04/27/world/canada/alberta-canada-danielle-smith-trudeau.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/27/upshot/upshot-ten-years.html
 **6 Podcasts to Soothe an Anxious Mind**\
 `At a time of unsettling news at home and abroad, these shows offer tips and first-person accounts to alleviate a spiraling sense of unease.`\
 https://nytimes.com/2024/04/27/arts/podcasts-anxiety-mental-health.html
-
-**Why Donald Trump Feels Betrayed by Corporate America**\
-`Donald J. Trump’s relationship with Wall Street has changed dramatically since 2016. He was closely aligned with business leaders during his first term in office, until a series of events exposed their divisions.`\
-https://nytimes.com/video/us/politics/100000009424205/trump-wall-street.html
 
