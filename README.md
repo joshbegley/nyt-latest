@@ -10,8 +10,8 @@ https://nytimes.com/2024/04/27/world/middleeast/gaza-heat-wave-medicine.html
 `The movie producer won his appeal in New York on Thursday. But his story, at its core, is about work, and it can’t be measured by a criminal court.`\
 https://nytimes.com/2024/04/27/us/harvey-weinstein-workplace-metoo.html
 
-**Hamas says it is reviewing an Israeli proposal on a cease-fire deal.**\
-`By Adam Rasgon`\
+**Hamas Says It Is Reviewing Israeli Proposal on Cease-Fire Deal**\
+`The statement came as anticipation was growing of an Israeli invasion of Rafah, where more than a million Gazans have been displaced.`\
 https://nytimes.com/2024/04/27/world/middleeast/hamas-israel-cease-fire-proposal-talks.html
 
 **Daniel Ek’s Next Act: Full-Body Scans for the People**\
