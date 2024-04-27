@@ -1,3 +1,11 @@
+**Daniel Ek’s Next Act: Full-Body Scans for the People**\
+`The Spotify chief has co-founded a new start-up, Neko Health, that aims to make head-to-toe health scans part of the annual health checkup routine.`\
+https://nytimes.com/2024/04/27/business/dealbook/daniel-ek-neko-health.html
+
+**Beyond Pulling Donations**\
+`Business executives who are concerned about antisemitism on college campuses have other options for influencing the schools’ actions, Andrew Ross Sorkin writes.`\
+https://nytimes.com/2024/04/27/business/dealbook/beyond-pulling-donations.html
+
 **2 Memoirs by Poets**\
 `Carl Sandburg’s boyhood; Carolyn Forché’s political awakening.`\
 https://nytimes.com/2024/04/27/books/read-like-wind-recommendations.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/27/opinion/left-right-happiness.html
 **Why Does the U.S. Arm Ukraine With Fanfare and Israel in Secret?**\
 `The Biden administration should be more transparent about weapons sent to Israel.`\
 https://nytimes.com/interactive/2024/04/27/opinion/us-arms-disclosure-ukraine-israel.html
-
-**Human Spectacle**\
-`What’s it like when all eyes are on you?`\
-https://nytimes.com/2024/04/27/podcasts/this-american-life-human-spectacle-nyt-audio.html
-
-**Saving Time**\
-`The advice to live each day to its fullest can seem like a cliché, but figuring out how to actually do that can be pretty challenging.`\
-https://nytimes.com/2024/04/27/briefing/saving-time.html
 

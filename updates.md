@@ -1,3 +1,11 @@
+**Daniel Ek’s Next Act: Full-Body Scans for the People**\
+`The Spotify chief has co-founded a new start-up, Neko Health, that aims to make head-to-toe health scans part of the annual health checkup routine.`\
+https://nytimes.com/2024/04/27/business/dealbook/daniel-ek-neko-health.html
+
+**Beyond Pulling Donations**\
+`Business executives who are concerned about antisemitism on college campuses have other options for influencing the schools’ actions, Andrew Ross Sorkin writes.`\
+https://nytimes.com/2024/04/27/business/dealbook/beyond-pulling-donations.html
+
 **2 Memoirs by Poets**\
 `Carl Sandburg’s boyhood; Carolyn Forché’s political awakening.`\
 https://nytimes.com/2024/04/27/books/read-like-wind-recommendations.html
