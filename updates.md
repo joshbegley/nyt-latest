@@ -1,3 +1,7 @@
+**Trump Turns on R.F.K. Jr. Amid Concerns He Could Attract Republican Voters**\
+`The former president called Robert F. Kennedy Jr. a ‘Democrat plant’ and attacked his running mate, Nicole Shanahan, who gave $2 million to the Kennedy campaign.`\
+https://nytimes.com/2024/04/27/us/politics/trump-rfk-jr-republicans.html
+
 **Trump turns on R.F.K. Jr. as he appears to be winning Republican voters.**\
 `The former president called Robert F. Kennedy Jr. a ‘Democrat plant’ and attacked his running mate, Nicole Shanahan, who gave $2 million to the Kennedy campaign.`\
 https://nytimes.com/2024/04/27/us/politics/trump-rfk-jr-republicans.html
