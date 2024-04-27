@@ -1,3 +1,7 @@
+**5 Exercises for a Better Sex Life**\
+`Any physical activity can improve your sexual health. But a few exercises are especially beneficial.`\
+https://nytimes.com/2024/04/27/well/move/sex-exercises-improve-performance.html
+
 **Israel has improved the flow of aid into Gaza, but there is still a risk of famine, an aid official says.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/israel-has-improved-the-flow-of-aid-into-gaza-but-there-is-still-a-risk-of-famine-an-aid-official-says
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/crosswords/wordle-review.html
 **Nobody Saw Andy Kim Coming. That’s What He Was Counting On.**\
 `Mr. Kim, the New Jersey congressman, has become the odds-on favorite to win Robert Menendez’s Senate seat. His strategy? Don’t ask anyone for permission.`\
 https://nytimes.com/2024/04/27/nyregion/andy-kim-new-jersey-senate.html
-
-**Corrections: April 27, 2024**\
-`Corrections that appeared in print on Saturday, April 27, 2024.`\
-https://nytimes.com/2024/04/27/pageoneplus/corrections-april-27-2024.html
 
