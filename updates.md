@@ -1,3 +1,7 @@
+**Delta Air Lines Flight Loses Emergency Slide After Takeoff, Officials Say**\
+`The plane had taken off from Kennedy International Airport when crew members noticed problems near its right wing, Delta said. What became of the slide is unknown.`\
+https://nytimes.com/2024/04/27/business/delta-boeing-plane-emergency-slide.html
+
 **At Trump’s Trial, a Window Into the Golden Era of Tabloids**\
 `The testimony of David Pecker, the former publisher of the National Enquirer, included stories of celebrity encounters and his own wild journalistic tactics.`\
 https://nytimes.com/2024/04/27/nyregion/david-pecker-trump-tabloids.html
