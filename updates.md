@@ -1,3 +1,7 @@
+**Hamas says it is reviewing an Israeli proposal on a cease-fire deal.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/hamas-says-it-is-reviewing-an-israeli-proposal-on-a-cease-fire-deal
+
 **The U.N. says it received no evidence against one of the UNRWA workers Israel accused of aiding the Oct. 7 attacks.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/the-un-says-it-found-no-evidence-against-one-of-the-unrwa-workers-israel-accused-of-aiding-the-oct-7-attacks
