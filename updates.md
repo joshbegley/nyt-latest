@@ -1,3 +1,7 @@
+**Human Spectacle**\
+`What’s it like when all eyes are on you?`\
+https://nytimes.com/2024/04/27/podcasts/this-american-life-human-spectacle-nyt-audio.html
+
 **Saving Time**\
 `The advice to live each day to its fullest can seem like a cliché, but figuring out how to actually do that can be pretty challenging.`\
 https://nytimes.com/2024/04/27/briefing/saving-time.html

@@ -1,3 +1,7 @@
+**Human Spectacle**\
+`What’s it like when all eyes are on you?`\
+https://nytimes.com/2024/04/27/podcasts/this-american-life-human-spectacle-nyt-audio.html
+
 **Saving Time**\
 `The advice to live each day to its fullest can seem like a cliché, but figuring out how to actually do that can be pretty challenging.`\
 https://nytimes.com/2024/04/27/briefing/saving-time.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/podcasts/challengers-is-sexy-but-is-it-good-tenni
 **10 Years, 100 Stories: The Work That Defines the Upshot**\
 `The Upshot is 10 years old this week. Here’s a collection of our most distinctive work from the last decade.`\
 https://nytimes.com/interactive/2024/04/27/upshot/upshot-ten-years.html
-
-**6 Podcasts to Soothe an Anxious Mind**\
-`At a time of unsettling news at home and abroad, these shows offer tips and first-person accounts to alleviate a spiraling sense of unease.`\
-https://nytimes.com/2024/04/27/arts/podcasts-anxiety-mental-health.html
 
