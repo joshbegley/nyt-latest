@@ -1,6 +1,6 @@
 **Trump turns on R.F.K. Jr. as he appears to be winning Republican voters.**\
 `The former president called Robert F. Kennedy Jr. a ‘Democrat plant’ and attacked his running mate, Nicole Shanahan, who gave $2 million to the Kennedy campaign.`\
-https://nytimes.com/live/2024/04/27/us/biden-trump-election/trump-rfk-jr-republicans
+https://nytimes.com/2024/04/27/us/politics/trump-rfk-jr-republicans.html
 
 **Andrew Davis, 80, Dies; Renowned Conductor Who Championed Britain’s Music**\
 `Celebrated for his long tenure with Lyric Opera of Chicago, he led this and other orchestras with force and a notably energetic podium presence.`\
