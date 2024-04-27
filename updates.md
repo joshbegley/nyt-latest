@@ -1,3 +1,7 @@
+**5 Exercises for a Better Sex Life**\
+`Any physical activity can improve your sexual health. But a few exercises are especially beneficial.`\
+https://nytimes.com/2024/04/27/well/move/sex-exercises-improve-performance.html
+
 **Israel has improved the flow of aid into Gaza, but there is still a risk of famine, an aid official says.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/israel-has-improved-the-flow-of-aid-into-gaza-but-there-is-still-a-risk-of-famine-an-aid-official-says
