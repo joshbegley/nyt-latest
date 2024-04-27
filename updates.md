@@ -1,3 +1,7 @@
+**The U.N. says it found no evidence against one of the UNRWA workers Israel accused of aiding the Oct. 7 attacks.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/the-un-says-it-found-no-evidence-against-one-of-the-unrwa-workers-israel-accused-of-aiding-the-oct-7-attacks
+
 **Russia Bombs Power Plants and Ukraine Targets Refineries in Dueling Attacks**\
 `As missiles caused extensive damage to Ukraine’s power grid, Kyiv continued drone assaults inside Russia that have drawn criticism from Washington.`\
 https://nytimes.com/2024/04/27/world/europe/russia-ukraine-missiles-drones.html
