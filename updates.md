@@ -1,3 +1,7 @@
+**Israel has improved the flow of aid into Gaza, but there is still a risk of famine, an aid official says.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/israel-has-improved-the-flow-of-aid-into-gaza-but-there-is-still-a-risk-of-famine-an-aid-official-says
+
 **Echoing Their Client, Trump’s Lawyers Pursue an Absolutist Defense**\
 `Donald J. Trump demands praise and insists on total innocence, robbing his lawyers of time-honored defense tactics.`\
 https://nytimes.com/2024/04/27/nyregion/trump-trial-defense-lawyers.html
