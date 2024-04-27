@@ -1,3 +1,23 @@
+**Harvey Weinstein and the Limits of ‘She Said, She Said, She Said’**\
+`A chorus of voices is what made #MeToo so powerful. Why did it backfire in court?`\
+https://nytimes.com/2024/04/27/opinion/harvey-weinstein-conviction-me-too.html
+
+**What Students Read Before They Protest**\
+`How Israel became the focus of so much of contemporary protest politics.`\
+https://nytimes.com/2024/04/27/opinion/columbia-university-protests.html
+
+**I’m a Young Conservative, and I Want My Party to Lead the Fight Against Climate Change**\
+`Instead of continuing the environmental legacy they were once known for, Republicans have ceded the fight against climate change to Democrats.`\
+https://nytimes.com/2024/04/27/opinion/climate-change-conservatives-gen-z-voters.html
+
+**Left and Right on the Happiness Scale**\
+`Readers largely take issue with a column by Ross Douthat about the left’s supposed unhappiness.`\
+https://nytimes.com/2024/04/27/opinion/left-right-happiness.html
+
+**Why Does the U.S. Arm Ukraine With Fanfare and Israel in Secret?**\
+`The Biden administration should be more transparent about weapons sent to Israel.`\
+https://nytimes.com/interactive/2024/04/27/opinion/us-arms-disclosure-ukraine-israel.html
+
 **Human Spectacle**\
 `What’s it like when all eyes are on you?`\
 https://nytimes.com/2024/04/27/podcasts/this-american-life-human-spectacle-nyt-audio.html

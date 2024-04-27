@@ -1,3 +1,23 @@
+**Harvey Weinstein and the Limits of ‘She Said, She Said, She Said’**\
+`A chorus of voices is what made #MeToo so powerful. Why did it backfire in court?`\
+https://nytimes.com/2024/04/27/opinion/harvey-weinstein-conviction-me-too.html
+
+**What Students Read Before They Protest**\
+`How Israel became the focus of so much of contemporary protest politics.`\
+https://nytimes.com/2024/04/27/opinion/columbia-university-protests.html
+
+**I’m a Young Conservative, and I Want My Party to Lead the Fight Against Climate Change**\
+`Instead of continuing the environmental legacy they were once known for, Republicans have ceded the fight against climate change to Democrats.`\
+https://nytimes.com/2024/04/27/opinion/climate-change-conservatives-gen-z-voters.html
+
+**Left and Right on the Happiness Scale**\
+`Readers largely take issue with a column by Ross Douthat about the left’s supposed unhappiness.`\
+https://nytimes.com/2024/04/27/opinion/left-right-happiness.html
+
+**Why Does the U.S. Arm Ukraine With Fanfare and Israel in Secret?**\
+`The Biden administration should be more transparent about weapons sent to Israel.`\
+https://nytimes.com/interactive/2024/04/27/opinion/us-arms-disclosure-ukraine-israel.html
+
 **Human Spectacle**\
 `What’s it like when all eyes are on you?`\
 https://nytimes.com/2024/04/27/podcasts/this-american-life-human-spectacle-nyt-audio.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/04/27/world/europe/london-tunnels-tourism.html
 **Biden Warms Up for a Media Roast on Saturday**\
 `At the annual White House Correspondents’ Association dinner, hosted by Colin Jost, President Biden and members of the news media will (hopefully) share some laughs.`\
 https://nytimes.com/2024/04/27/us/politics/biden-white-house-correspondents-dinner.html
-
-**How the U.S. Humanitarian Pier in Gaza Will Work**\
-`A pier operation being assembled by U.S. service members will involve an elaborate process to provide Gazans with just a portion of the aid they need.`\
-https://nytimes.com/interactive/2024/04/27/world/middleeast/gaza-pier-israel-hamas-war.html
-
-**In Race to Build A.I., Tech Plans a Big Plumbing Upgrade**\
-`The spending that the industry’s giants expect artificial intelligence to require is starting to come into focus — and it is jarringly large.`\
-https://nytimes.com/2024/04/27/technology/ai-big-tech-spending.html
-
-**‘Decisions Under Fire’: Campuses Try a Mix of Tactics as Protests Grow**\
-`Some colleges that initiated police crackdowns on pro-Palestinian protests have since taken a different tack. Others have defended the move. Hundreds have been arrested.`\
-https://nytimes.com/2024/04/27/us/college-protests-police-response.html
-
-**‘Challengers’ Is Sexy … but Is It Good Tennis?**\
-`A sports journalist on what the film got right and wrong.`\
-https://nytimes.com/2024/04/27/podcasts/challengers-is-sexy-but-is-it-good-tennis.html
-
-**10 Years, 100 Stories: The Work That Defines the Upshot**\
-`The Upshot is 10 years old this week. Here’s a collection of our most distinctive work from the last decade.`\
-https://nytimes.com/interactive/2024/04/27/upshot/upshot-ten-years.html
 
