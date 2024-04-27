@@ -1,4 +1,8 @@
 **More Tornadoes Are Likely in the Great Plains**\
+`A rare “particularly dangerous situation” tornado watch was issued on Saturday afternoon for western Oklahoma and parts of northern Texas.`\
+https://nytimes.com/2024/04/27/us/tornado-storms-weather-forecast-oklahoma-texas.html
+
+**More Tornadoes Are Likely in the Great Plains**\
 `Forecasters said that tornadoes, large hail and flash flooding were expected across several states, including Kansas, Oklahoma, northern Texas and parts of Missouri.`\
 https://nytimes.com/2024/04/27/us/tornado-storms-weather-forecast-oklahoma-texas.html
 
