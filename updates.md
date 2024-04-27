@@ -1,3 +1,7 @@
+**Climber Is Killed in Fall at Denali Peak**\
+`Climbers were navigating rock, snow and ice on Mount Johnson when they fell about 1,000 feet, killing one and injuring another, the National Park Service said.`\
+https://nytimes.com/2024/04/27/us/climbers-fall-denali-park-alaska.html
+
 **Justice Alito Is Holding Trump to a Different Standard**\
 `On what planet were Trump’s actions a normal response to political defeat?`\
 https://nytimes.com/2024/04/27/opinion/alito-trump-insurrection.html
