@@ -1,3 +1,7 @@
+**The Offense That Harvey Weinstein Can Never Be Convicted Of**\
+`The movie producer won his appeal in New York on Thursday. But his story, at its core, is about work, and it can’t be measured by a criminal court.`\
+https://nytimes.com/2024/04/27/us/harvey-weinstein-workplace-metoo.html
+
 **Hamas says it is reviewing an Israeli proposal on a cease-fire deal.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/hamas-says-it-is-reviewing-an-israeli-proposal-on-a-cease-fire-deal
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/opinion/columbia-university-protests.html
 **I’m a Young Conservative, and I Want My Party to Lead the Fight Against Climate Change**\
 `Instead of continuing the environmental legacy they were once known for, Republicans have ceded the fight against climate change to Democrats.`\
 https://nytimes.com/2024/04/27/opinion/climate-change-conservatives-gen-z-voters.html
-
-**Left and Right on the Happiness Scale**\
-`Readers largely take issue with a column by Ross Douthat about the left’s supposed unhappiness.`\
-https://nytimes.com/2024/04/27/opinion/left-right-happiness.html
 
