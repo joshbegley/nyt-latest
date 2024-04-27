@@ -1,3 +1,7 @@
+**Climber Is Killed in Fall at Denali National Park**\
+`Climbers were navigating rock, snow and ice on Mount Johnson when they fell about 1,000 feet, killing one and injuring another, the National Park Service said.`\
+https://nytimes.com/2024/04/27/us/climbers-fall-denali-park-alaska.html
+
 **Aid ship departs from Cyprus for Gaza, the first sea shipment since World Central Kitchen workers were killed.**\
 `By Adam Rasgon and Gaya Gupta`\
 https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/aid-ship-departs-from-cyprus-for-gaza-the-first-sea-shipment-since-world-central-kitchen-workers-were-killed
