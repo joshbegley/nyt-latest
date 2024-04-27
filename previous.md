@@ -18,8 +18,8 @@ https://nytimes.com/2024/04/27/us/politics/trump-rfk-jr-republicans.html
 `Celebrated for his long tenure with Lyric Opera of Chicago, he led this and other orchestras with force and a notably energetic podium presence.`\
 https://nytimes.com/2024/04/27/arts/music/andrew-davis-dead.html
 
-**More Tornadoes Are Likely in the Great Plains**\
-`A rare “particularly dangerous situation” tornado watch was issued on Saturday afternoon for western Oklahoma and parts of northern Texas.`\
+**‘Particularly Dangerous Situation’ Tornado Watch Is Issued in Oklahoma**\
+`Forecasters on Saturday said that “dangerous supercell thunderstorms” were possible that could produce strong tornadoes.`\
 https://nytimes.com/2024/04/27/us/tornado-storms-weather-forecast-oklahoma-texas.html
 
 **Colin Jost and Scarlett Johansson Lead ‘D.C.-Palooza’**\

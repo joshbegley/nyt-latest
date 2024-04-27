@@ -1,3 +1,7 @@
+**‘Particularly Dangerous Situation’ Tornado Watch Is Issued in Oklahoma**\
+`Forecasters on Saturday said that “dangerous supercell thunderstorms” were possible that could produce strong tornadoes.`\
+https://nytimes.com/2024/04/27/us/tornado-storms-weather-forecast-oklahoma-texas.html
+
 **Hamas releases video of two more hostages.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/hamas-israel-hostages-video
