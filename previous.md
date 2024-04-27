@@ -1,5 +1,5 @@
 **The Best Red Carpet Looks at the White House Correspondents’ Association Dinner**\
-`Molly Ringwald, Keri Russell and Chris Pine, made their entrances at the annual celebration in Washington.`\
+`Molly Ringwald, Keri Russell and Chris Pine made their entrances at the annual celebration in Washington.`\
 https://nytimes.com/2024/04/27/style/white-house-correspondents-dinner-red-carpet-photos.html
 
 **Filmmakers accuse Gavin Newsom’s PAC of plagiarism in abortion-access ad.**\
