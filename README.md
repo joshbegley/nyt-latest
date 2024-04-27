@@ -1,4 +1,4 @@
-**Republican Party asks the Secret Service to move protesters away from its convention venue.**\
+**G.O.P. Asks Secret Service to Move Protesters Away From Convention Venue**\
 `The Republican National Committee said moving protesters farther away from the venue in Milwaukee would reduce the risk of confrontations.`\
 https://nytimes.com/2024/04/26/us/politics/republican-convention-protest-milwaukee.html
 
