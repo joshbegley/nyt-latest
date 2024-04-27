@@ -10,7 +10,7 @@ https://nytimes.com/2024/04/27/business/dealbook/beyond-pulling-donations.html
 `Carl Sandburg’s boyhood; Carolyn Forché’s political awakening.`\
 https://nytimes.com/2024/04/27/books/read-like-wind-recommendations.html
 
-**The U.N. says it found no evidence against one of the UNRWA workers Israel accused of aiding the Oct. 7 attacks.**\
+**The U.N. says it received no evidence against one of the UNRWA workers Israel accused of aiding the Oct. 7 attacks.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/the-un-says-it-found-no-evidence-against-one-of-the-unrwa-workers-israel-accused-of-aiding-the-oct-7-attacks
 

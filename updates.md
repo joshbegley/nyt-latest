@@ -1,3 +1,7 @@
+**The U.N. says it received no evidence against one of the UNRWA workers Israel accused of aiding the Oct. 7 attacks.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/the-un-says-it-found-no-evidence-against-one-of-the-unrwa-workers-israel-accused-of-aiding-the-oct-7-attacks
+
 **Daniel Ek’s Next Act: Full-Body Scans for the People**\
 `The Spotify chief has co-founded a new start-up, Neko Health, that aims to make head-to-toe health scans part of the annual health checkup routine.`\
 https://nytimes.com/2024/04/27/business/dealbook/daniel-ek-neko-health.html
