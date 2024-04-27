@@ -1,3 +1,7 @@
+**Republican Party asks the Secret Service to move protesters away from its convention venue.**\
+`The Republican National Committee said moving protesters farther away from the venue in Milwaukee would reduce the risk of confrontations.`\
+https://nytimes.com/2024/04/26/us/politics/republican-convention-protest-milwaukee.html
+
 **Regulators Seize Republic First, a Troubled Philadelphia Bank**\
 `The relatively small bank, the first to fail this year, will have its deposits assumed by another Pennsylvania lender, Fulton Bank.`\
 https://nytimes.com/2024/04/26/business/republic-first-bank-failure.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/magazine/judge-john-hodgman-on-uncle-impermanence
 **Columbia’s University Senate Calls for an Investigation Into the Administration**\
 `The senators voted for a resolution that accused the administration of  breaching the due-process rights of students and professors.`\
 https://nytimes.com/2024/04/26/us/columbia-university-nemat-shafik-vote.html
-
-**The Student-Led Protests Aren’t Perfect. That Doesn’t Mean They’re Not Right.**\
-`There might be problems in the student protest movement for Gaza, but they are not misguided in their goals.`\
-https://nytimes.com/2024/04/26/opinion/columbia-student-protests-israel.html
 
