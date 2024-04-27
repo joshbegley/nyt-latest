@@ -1,40 +1,40 @@
-**5 Exercises for a Better Sex Life**\
-`Any physical activity can improve your sexual health. But a few exercises are especially beneficial.`\
-https://nytimes.com/2024/04/27/well/move/sex-exercises-improve-performance.html
+**Biden Warms Up for a Media Roast on Saturday**\
+`At the annual White House Correspondents’ Association dinner, hosted by Colin Jost, President Biden and members of the news media will (hopefully) share some laughs.`\
+https://nytimes.com/2024/04/27/us/politics/biden-white-house-correspondents-dinner.html
 
-**Israel has improved the flow of aid into Gaza, but there is still a risk of famine, an aid official says.**\
-`By Isabel Kershner`\
-https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/israel-has-improved-the-flow-of-aid-into-gaza-but-there-is-still-a-risk-of-famine-an-aid-official-says
+**How the U.S. Humanitarian Pier in Gaza Will Work**\
+`A pier operation being assembled by U.S. service members will involve an elaborate process to provide Gazans with just a portion of the aid they need.`\
+https://nytimes.com/interactive/2024/04/27/world/middleeast/gaza-pier-israel-hamas-war.html
 
-**Echoing Their Client, Trump’s Lawyers Pursue an Absolutist Defense**\
-`Donald J. Trump demands praise and insists on total innocence, robbing his lawyers of time-honored defense tactics.`\
-https://nytimes.com/2024/04/27/nyregion/trump-trial-defense-lawyers.html
+**In Race to Build A.I., Tech Plans a Big Plumbing Upgrade**\
+`The spending that the industry’s giants expect artificial intelligence to require is starting to come into focus — and it is jarringly large.`\
+https://nytimes.com/2024/04/27/technology/ai-big-tech-spending.html
 
-**The Hardest Letter to the Editor**\
-`During President Bill Clinton’s impeachment, a reader sent the letters desk a brick inscribed with a message. No damage was reported.`\
-https://nytimes.com/2024/04/27/insider/the-hardest-letter-to-the-editor.html
+**‘Decisions Under Fire’: Campuses Try a Mix of Tactics as Protests Grow**\
+`Some colleges that initiated police crackdowns on pro-Palestinian protests have since taken a different tack. Others have defended the move. Hundreds have been arrested.`\
+https://nytimes.com/2024/04/27/us/college-protests-police-response.html
 
-**‘The Interview,’ a ‘Full-Course Dinner’ With the World’s Most Interesting People**\
-`The New York Times’s newest podcast, hosted by David Marchese and Lulu Garcia-Navarro, offers wide-ranging conversations with notable guests.`\
-https://nytimes.com/2024/04/27/insider/the-interview-a-full-course-dinner-with-the-worlds-most-interesting-people.html
+**‘Challengers’ Is Sexy … but Is It Good Tennis?**\
+`A sports journalist on what the film got right and wrong.`\
+https://nytimes.com/2024/04/27/podcasts/challengers-is-sexy-but-is-it-good-tennis.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/27/crosswords/spelling-bee-forum.html
+**10 Years, 100 Stories: The Work That Defines the Upshot**\
+`The Upshot is 10 years old this week. Here’s a collection of our most distinctive work from the last decade.`\
+https://nytimes.com/interactive/2024/04/27/upshot/upshot-ten-years.html
 
-**The Connections Companion No. 321**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/27/crosswords/connections-companion.html
+**6 Podcasts to Soothe an Anxious Mind**\
+`At a time of unsettling news at home and abroad, these shows offer tips and first-person accounts to alleviate a spiraling sense of unease.`\
+https://nytimes.com/2024/04/27/arts/podcasts-anxiety-mental-health.html
 
-**How Louis Cato, Bandleader for ‘The Late Show,’ Spends His Sundays**\
-`Before Mr. Cato gets ready for his week with Stephen Colbert, he’s playing games with his daughter, hiding in hoodies and making music of his own.`\
-https://nytimes.com/2024/04/27/nyregion/louis-cato-late-show-stephen-colbert-band.html
+**Why Donald Trump Feels Betrayed by Corporate America**\
+`Donald J. Trump’s relationship with Wall Street has changed dramatically since 2016. He was closely aligned with business leaders during his first term in office, until a series of events exposed their divisions.`\
+https://nytimes.com/video/us/politics/100000009424205/trump-wall-street.html
 
-**Today’s Wordle Review No. 1,043**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/27/crosswords/wordle-review.html
+**Donald Trump Has Never Sounded Like This**\
+`No major American presidential candidate has talked like he now does at his rallies — not Richard Nixon, not George Wallace, not even Donald Trump himself.`\
+https://nytimes.com/2024/04/27/magazine/trump-rallies-rhetoric.html
 
-**Nobody Saw Andy Kim Coming. That’s What He Was Counting On.**\
-`Mr. Kim, the New Jersey congressman, has become the odds-on favorite to win Robert Menendez’s Senate seat. His strategy? Don’t ask anyone for permission.`\
-https://nytimes.com/2024/04/27/nyregion/andy-kim-new-jersey-senate.html
+**A City Scarred by Terrorism Prepares an Olympic Opening Without Walls**\
+`The opening ceremony for this summer’s Paris Games will be held outside a stadium — an Olympics first. Making it safe is complicated.`\
+https://nytimes.com/2024/04/27/world/europe/paris-olympics-2024-security-opening-ceremony.html
 
