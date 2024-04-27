@@ -1,3 +1,7 @@
+**G.O.P. Asks Secret Service to Move Protesters Away From Convention Venue**\
+`The Republican National Committee said moving protesters farther away from the venue in Milwaukee would reduce the risk of confrontations.`\
+https://nytimes.com/2024/04/26/us/politics/republican-convention-protest-milwaukee.html
+
 **Regulators Seize Republic First, a Troubled Philadelphia Bank**\
 `The relatively small bank, the first to fail this year, will have its deposits assumed by another Pennsylvania lender, Fulton Bank.`\
 https://nytimes.com/2024/04/26/business/republic-first-bank-failure.html
