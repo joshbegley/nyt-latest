@@ -1,3 +1,7 @@
+**Colin Jost and Scarlett Johansson Lead ‘D.C.-Palooza’**\
+`In Washington, celebrities mixed with journalists and government officials at glittery parties before the annual White House Correspondents’ Association dinner.`\
+https://nytimes.com/2024/04/27/style/white-house-correspondents-dinner-parties.html
+
 **Delta Air Lines Flight Loses Emergency Slide After Takeoff, Officials Say**\
 `The plane had taken off from Kennedy International Airport when crew members noticed problems near its right wing, Delta said. What became of the slide is unknown.`\
 https://nytimes.com/2024/04/27/business/delta-boeing-plane-emergency-slide.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/world/middleeast/gaza-heat-wave-medicine.html
 **The Offense That Harvey Weinstein Can Never Be Convicted Of**\
 `The movie producer won his appeal in New York on Thursday. But his story, at its core, is about work, and it can’t be measured by a criminal court.`\
 https://nytimes.com/2024/04/27/us/harvey-weinstein-workplace-metoo.html
-
-**Hamas Says It Is Reviewing Israeli Proposal on Cease-Fire Deal**\
-`The statement came as anticipation was growing of an Israeli invasion of Rafah, where more than a million Gazans have been displaced.`\
-https://nytimes.com/2024/04/27/world/middleeast/hamas-israel-cease-fire-proposal-talks.html
 

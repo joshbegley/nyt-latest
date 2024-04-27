@@ -1,3 +1,7 @@
+**Colin Jost and Scarlett Johansson Lead ‘D.C.-Palooza’**\
+`In Washington, celebrities mixed with journalists and government officials at glittery parties before the annual White House Correspondents’ Association dinner.`\
+https://nytimes.com/2024/04/27/style/white-house-correspondents-dinner-parties.html
+
 **Delta Air Lines Flight Loses Emergency Slide After Takeoff, Officials Say**\
 `The plane had taken off from Kennedy International Airport when crew members noticed problems near its right wing, Delta said. What became of the slide is unknown.`\
 https://nytimes.com/2024/04/27/business/delta-boeing-plane-emergency-slide.html

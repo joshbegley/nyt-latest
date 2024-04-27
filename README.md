@@ -7,7 +7,7 @@ https://nytimes.com/2024/04/27/style/white-house-correspondents-dinner-parties.h
 https://nytimes.com/2024/04/27/business/delta-boeing-plane-emergency-slide.html
 
 **At Trump’s Trial, a Window Into the Golden Era of Tabloids**\
-`The testimony of David Pecker, the former publisher of the National Enquirer, included stories of celebrity encounters and his own wild journalistic tactics.`\
+`The testimony of David Pecker, the former publisher of The National Enquirer, included stories of celebrity encounters and his own wild journalistic tactics.`\
 https://nytimes.com/2024/04/27/nyregion/david-pecker-trump-tabloids.html
 
 **Climber Is Killed in Fall at Denali Peak**\
