@@ -1,3 +1,7 @@
+**The Best Red Carpet Looks at the White House Correspondents’ Association Dinner**\
+`Scarlett Johansson, Colin Jost and Molly Ringwald made their entrances at the annual celebration in Washington.`\
+https://nytimes.com/2024/04/27/style/white-house-correspondents-dinner-red-carpet-photos.html
+
 **Blinken to Meet With Arab Officials in Saudi Arabia About Israel-Gaza War**\
 `The U.S. secretary of state plans to raise the issues of hostages held by Hamas, a potential cease-fire, humanitarian aid and a long-term political solution to the Israeli-Palestinian conflict.`\
 https://nytimes.com/2024/04/27/us/politics/blinken-saudi-arabia-israel-gaza.html
