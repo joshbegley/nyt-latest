@@ -1,3 +1,7 @@
+**What We Learned From The First Witnesses**\
+`The first week of testimony has ended in Donald J. Trump’s criminal trial. Jonah Bromwich, a criminal justice reporter at The New York Times, gives his takeaways.`\
+https://nytimes.com/video/nyregion/100000009436078/what-we-learned-from-the-first-witnesses.html
+
 **Barnard Ends Suspensions for Most Student Protesters Who Were Arrested**\
 `The students had been among more than 100 who were suspended for participating in an encampment at Columbia University.`\
 https://nytimes.com/2024/04/26/nyregion/barnard-student-suspensions-campus-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/26/us/politics/politics-campus-protests.html
 **Federal Officials Find No Live Bird Flu Virus in Initial Milk Tests**\
 `The early results suggest that pasteurization is killing the H5N1 virus in milk, something that regulators were not certain of.`\
 https://nytimes.com/2024/04/26/health/bird-flu-milk-fda.html
-
-**Paramount Chief Executive Bob Bakish Could Be Out Next Week**\
-`He was once a staunch ally of the company’s biggest owner, Shari Redstone, but the relationship soured in recent months.`\
-https://nytimes.com/2024/04/26/business/paramount-ceo-bob-bakish.html
 
