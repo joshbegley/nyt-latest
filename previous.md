@@ -1,3 +1,7 @@
+**Aid ship departs from Cyprus for Gaza, the first sea shipment since World Central Kitchen workers were killed.**\
+`By Adam Rasgon and Gaya Gupta`\
+https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/aid-ship-departs-from-cyprus-for-gaza-the-first-sea-shipment-since-world-central-kitchen-workers-were-killed
+
 **Trump Turns on R.F.K. Jr. Amid Concerns He Could Attract Republican Voters**\
 `The former president called Robert F. Kennedy Jr. a ‘Democrat plant’ and attacked his running mate, Nicole Shanahan, who gave $2 million to the Kennedy campaign.`\
 https://nytimes.com/2024/04/27/us/politics/trump-rfk-jr-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/opinion/alito-trump-insurrection.html
 **Aid Flows to Gaza Are Rising, U.N. says, but More Is Needed**\
 `Israel says the number of trucks entering the enclave has doubled to an average of 400 a day. The U.N. disputes that, but agrees that the pace of deliveries has quickened.`\
 https://nytimes.com/2024/04/27/world/middleeast/israel-gaza-war-humanitarian-aid.html
-
-**Your New Chocolate Chip Cookie Recipe**\
-`Leave it to Rick Martínez to take everyone’s favorite cookie and make it even better with butterscotch-y, brown-buttery piloncillo.`\
-https://nytimes.com/2024/04/27/dining/your-new-chocolate-chip-cookie-recipe.html
 

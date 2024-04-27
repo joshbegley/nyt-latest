@@ -1,3 +1,7 @@
+**Aid ship departs from Cyprus for Gaza, the first sea shipment since World Central Kitchen workers were killed.**\
+`By Adam Rasgon and Gaya Gupta`\
+https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/aid-ship-departs-from-cyprus-for-gaza-the-first-sea-shipment-since-world-central-kitchen-workers-were-killed
+
 **Trump Turns on R.F.K. Jr. Amid Concerns He Could Attract Republican Voters**\
 `The former president called Robert F. Kennedy Jr. a ‘Democrat plant’ and attacked his running mate, Nicole Shanahan, who gave $2 million to the Kennedy campaign.`\
 https://nytimes.com/2024/04/27/us/politics/trump-rfk-jr-republicans.html
