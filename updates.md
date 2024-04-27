@@ -1,3 +1,7 @@
+**Saving Time**\
+`The advice to live each day to its fullest can seem like a cliché, but figuring out how to actually do that can be pretty challenging.`\
+https://nytimes.com/2024/04/27/briefing/saving-time.html
+
 **Alberta Draws Academia Into Its Fight With Justin Trudeau**\
 `Alberta is seeking powers to veto funding agreements between the federal government and provincial entities, including postsecondary institutions.`\
 https://nytimes.com/2024/04/27/world/canada/alberta-canada-danielle-smith-trudeau.html
