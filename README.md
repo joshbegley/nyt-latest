@@ -36,5 +36,5 @@ https://nytimes.com/2024/04/27/business/dealbook/daniel-ek-neko-health.html
 
 **Beyond Pulling Donations**\
 `Business executives who are concerned about antisemitism on college campuses have other options for influencing the schools’ actions, Andrew Ross Sorkin writes.`\
-https://nytimes.com/2024/04/27/business/dealbook/beyond-pulling-donations.html
+https://nytimes.com/2024/04/27/business/dealbook/campus-protests-donations-antisemitism.html
 
