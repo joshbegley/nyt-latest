@@ -1,3 +1,7 @@
+**Corrections: April 27, 2024**\
+`Corrections that appeared in print on Saturday, April 27, 2024.`\
+https://nytimes.com/2024/04/27/pageoneplus/corrections-april-27-2024.html
+
 **Suddenly, Chinese Spies Seem to Be Popping Up All Over Europe**\
 `A flurry of arrests this week reflect the continent’s newly toughened response to Beijing’s espionage activities and political meddling.`\
 https://nytimes.com/2024/04/27/world/europe/china-spies.html
