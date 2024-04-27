@@ -1,3 +1,7 @@
+**How a New Trial for Harvey Weinstein Could Again Test the Legal System**\
+`A new jury would hear from only one or both of the women whom he was convicted of assaulting, in what analysts say will be a much narrower and weaker case.`\
+https://nytimes.com/2024/04/27/nyregion/harvey-weinstein-trial.html
+
 **‘Particularly Dangerous Situation’ Tornado Watch Is Issued in Oklahoma**\
 `Forecasters on Saturday said that “dangerous supercell thunderstorms” were possible that could produce strong tornadoes.`\
 https://nytimes.com/2024/04/27/us/tornado-storms-weather-forecast-oklahoma-texas.html
