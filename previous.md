@@ -1,3 +1,7 @@
+**Blinken to Meet With Arab Officials in Saudi Arabia About Israel-Gaza War**\
+`The U.S. secretary of state plans to raise the issues of hostages held by Hamas, a potential cease-fire, humanitarian aid and a long-term political solution to the Israeli-Palestinian conflict.`\
+https://nytimes.com/2024/04/27/us/politics/blinken-saudi-arabia-israel-gaza.html
+
 **The Best Red Carpet Looks at the White House Correspondents’ Association Dinner**\
 `Molly Ringwald, Keri Russell and Chris Pine made their entrances at the annual celebration in Washington.`\
 https://nytimes.com/2024/04/27/style/white-house-correspondents-dinner-red-carpet-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/us/politics/trump-rfk-jr-republicans.html
 **Andrew Davis, 80, Dies; Renowned Conductor Who Championed Britain’s Music**\
 `Celebrated for his long tenure with Lyric Opera of Chicago, he led this and other orchestras with force and a notably energetic podium presence.`\
 https://nytimes.com/2024/04/27/arts/music/andrew-davis-dead.html
-
-**‘Particularly Dangerous Situation’ Tornado Watch Is Issued in Oklahoma**\
-`Forecasters on Saturday said that “dangerous supercell thunderstorms” were possible that could produce strong tornadoes.`\
-https://nytimes.com/2024/04/27/us/tornado-storms-weather-forecast-oklahoma-texas.html
 
