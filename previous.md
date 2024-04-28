@@ -1,4 +1,4 @@
-**Pope’s Visit to Art Exhibition in Prison is a First for Venice Biennale**\
+**Pope’s Visit to Art Exhibition in Prison Is a First for Venice Biennale**\
 `Incarcerated women serve as guides to the show, which reflects Pope Francis’ longtime commitment to society’s marginalized people.`\
 https://nytimes.com/2024/04/28/world/europe/venice-biennale-prison-vatican-pope.html
 
