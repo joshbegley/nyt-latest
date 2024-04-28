@@ -26,8 +26,8 @@ https://nytimes.com/2024/04/27/nyregion/harvey-weinstein-trial.html
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/hamas-israel-hostages-video
 
-**Crackdowns at Three College Protests Lead to Nearly 200 Arrests**\
-`The police made arrests at Northeastern University, Arizona State and Indiana University on Saturday, as more schools move in on encampments protesting the war in Gaza.`\
+**Crackdowns at 4 College Protests Lead to Nearly 200 Arrests**\
+`The police made arrests at Washington University in St. Louis, Northeastern, Arizona State and Indiana, as more schools move in on encampments. The presidential candidate Jill Stein was among the arrests.`\
 https://nytimes.com/2024/04/27/us/northeastern-arizona-state-university-protests-arrests.html
 
 **The ship heading toward Gaza is carrying 400 tons of food aid.**\
