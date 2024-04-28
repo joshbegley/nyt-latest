@@ -1,3 +1,7 @@
+**Biden Pokes Fun at Trump During Annual Roast**\
+`President Biden joked about former President Donald J. Trump’s age — and his own — among other topics at the White House Correspondents’ Association dinner. Outside the event, outrage over Mr. Biden’s support for Israel in the war in Gaza was evident.`\
+https://nytimes.com/video/us/politics/100000009437536/white-house-correspondents-dinner-biden-colin.html
+
 **In Northern Israel, Clashes With Hezbollah Drive a Hospital Underground**\
 `Subterranean operations at Galilee Medical Center are a striking example of how life in northern Israel has been upended since Hezbollah began launching near-daily attacks.`\
 https://nytimes.com/2024/04/28/world/middleeast/israel-hospital-lebanon-hezbollah-nahariya.html
