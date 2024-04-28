@@ -1,3 +1,7 @@
+**World Central Kitchen Will Resume Operations in Gaza**\
+`The organization halted aid efforts in the enclave after seven of its workers were killed in an Israeli attack. It said it would resume operations with a local team of Palestinian aid workers.`\
+https://nytimes.com/2024/04/28/world/middleeast/world-central-kitchen-gaza-aid.html
+
 **As Colleges Weigh Crackdowns on Protests, Questions About Outsiders Linger**\
 `With pro-Palestinian protests spreading across campuses nationwide, university leaders have had to confront a central question: When does a demonstration cross the line?`\
 https://nytimes.com/2024/04/28/us/college-campus-protests.html

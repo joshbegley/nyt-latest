@@ -1,3 +1,7 @@
+**World Central Kitchen Will Resume Operations in Gaza**\
+`The organization halted aid efforts in the enclave after seven of its workers were killed in an Israeli attack. It said it would resume operations with a local team of Palestinian aid workers.`\
+https://nytimes.com/2024/04/28/world/middleeast/world-central-kitchen-gaza-aid.html
+
 **As Colleges Weigh Crackdowns on Protests, Questions About Outsiders Linger**\
 `With pro-Palestinian protests spreading across campuses nationwide, university leaders have had to confront a central question: When does a demonstration cross the line?`\
 https://nytimes.com/2024/04/28/us/college-campus-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/28/arts/music/asmik-grigorian-madama-butterfly-revie
 **Review: Gustavo Dudamel Saves the Day at the Philharmonic**\
 `Dudamel, the New York Philharmonic’s incoming music and artistic director, stepped in after a guest conductor fell ill.`\
 https://nytimes.com/2024/04/28/arts/music/gustavo-dudamel-nyphil-review.html
-
-**On the Met Roof, Skywriting His Way to Freedom**\
-`Petrit Halilaj of Kosovo began drawing as a refugee child in the Balkans during a violent decade and invented a calligraphic world of memory.`\
-https://nytimes.com/2024/04/28/arts/design/petrit-kalilaj-art-met-museum-roof.html
 
