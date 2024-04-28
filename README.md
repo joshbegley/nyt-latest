@@ -1,9 +1,21 @@
+**On the Met Roof, Skywriting His Way to Freedom**\
+`Petrit Halilaj of Kosovo began drawing as a refugee child in the Balkans during a violent decade and invented a calligraphic world of memory.`\
+https://nytimes.com/2024/04/28/arts/design/petrit-kalilaj-art-met-museum-roof.html
+
+**A Taste of Now**\
+`Go big on asparagus while it’s in season: Slather it with miso-chile sauce, toss it in a creamy pasta with peas and mint or pair seared stalks with cashews and coconut.`\
+https://nytimes.com/2024/04/28/dining/a-taste-of-now.html
+
+**Maximizing Profits at the Patients’ Expense**\
+`Readers discuss an article about insurers sending large bills for out-of-network care. Also: Brave Trump jurors; Black voters; better than debates.`\
+https://nytimes.com/2024/04/28/opinion/insurance-patients-profits.html
+
 **Israel faces a stark dilemma as it weighs whether to invade Rafah.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/israel-faces-a-stark-dilemma-as-it-weighs-whether-to-invade-rafah
 
 **On This Saturday Night, Colin Jost’s Jokes Fell Flat**\
-`The White House Correspondents Association dinner has occasionally featured some great stand-up comedy. This “S.N.L.” veteran’s set will not join that list.`\
+`The White House Correspondents’ Association dinner has occasionally featured some great stand-up comedy. This “S.N.L.” veteran’s set will not join that list.`\
 https://nytimes.com/2024/04/28/arts/television/colin-jost-white-house-correspondents-dinner.html
 
 **A ship carrying 400 tons of aid for Gaza has docked in Israel’s port of Ashdod.**\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/28/opinion/san-francisco-public-toilet.html
 **Justin Trudeau Is No Match for a Polarized World**\
 `Prime Minister Justin Trudeau of Canada and his Liberal Party are facing increasing unpopularity in an era of right-wing ascendancy.`\
 https://nytimes.com/2024/04/28/opinion/justin-trudeau-right-wing-canada.html
-
-**Art Isn’t Supposed to Make You Comfortable**\
-`We live in a complex world. We can’t afford to make art that serves up only simple moral lessons.`\
-https://nytimes.com/2024/04/28/opinion/art-morality-discomfort.html
-
-**28mideast-crisis**\
-`Diplomats Head to Saudi Arabia for New Talks About War in Gaza`\
-https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas
-
-**Thousands rallied in Tel Aviv in support of hostages.**\
-`By The New York Times`\
-https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/thousands-rally-in-tel-aviv-in-support-of-hostages
 
