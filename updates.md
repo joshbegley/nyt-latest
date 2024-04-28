@@ -1,3 +1,11 @@
+**On This Saturday Night, Colin Jost’s Jokes Fell Flat**\
+`The White House Correspondents Association dinner has occasionally featured some great stand-up comedy. This “S.N.L.” veteran’s set will not join that list.`\
+https://nytimes.com/2024/04/28/arts/television/colin-jost-white-house-correspondents-dinner.html
+
+**Thousands rallied in Tel Aviv in support of hostages.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/thousands-rally-in-tel-aviv-in-support-of-hostages
+
 **Israel faces a stark dilemma as it weighs whether to invade Rafah.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/israel-faces-a-stark-dilemma-as-it-weighs-whether-to-invade-rafah
