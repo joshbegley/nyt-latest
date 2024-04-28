@@ -1,3 +1,7 @@
+**Asylum Seekers Already in U.K. Say Rwanda Law Creates New Anxiety**\
+`For the tens of thousands of asylum seekers in Britain, a new law brings the possibility of deportation to central Africa closer. We asked how it was affecting them.`\
+https://nytimes.com/2024/04/28/world/africa/uk-rwanda-asylum-seekers.html
+
 **Colleges Have Gone Off the Deep End. There Is a Way Out.**\
 `How do we find our way to a campus culture in which everyone can be heard?`\
 https://nytimes.com/2024/04/28/opinion/protests-college-free-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/style/white-house-correspondents-dinner-red-carpe
 **Filmmakers accuse Gavin Newsom’s PAC of plagiarism in abortion-access ad.**\
 `Two producers said the PAC’s ‘Fugitive’ ad, which depicts a woman being forced to take a pregnancy test during a traffic stop, copied their 2023 short film, ‘Roed.’`\
 https://nytimes.com/live/2024/04/27/us/biden-trump-election/gavin-newsom-abortion-ad-plagiarism
-
-**The Sounds of Music**\
-`Mike Ellison’s debut puzzle brings music back into the house — lots of it!`\
-https://nytimes.com/2024/04/27/crosswords/daily-puzzle-2024-04-28.html
 

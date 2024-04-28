@@ -1,3 +1,7 @@
+**Asylum Seekers Already in U.K. Say Rwanda Law Creates New Anxiety**\
+`For the tens of thousands of asylum seekers in Britain, a new law brings the possibility of deportation to central Africa closer. We asked how it was affecting them.`\
+https://nytimes.com/2024/04/28/world/africa/uk-rwanda-asylum-seekers.html
+
 **Colleges Have Gone Off the Deep End. There Is a Way Out.**\
 `How do we find our way to a campus culture in which everyone can be heard?`\
 https://nytimes.com/2024/04/28/opinion/protests-college-free-speech.html
