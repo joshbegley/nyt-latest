@@ -1,3 +1,7 @@
+**Biden Vows to Bring Home Detained U.S. Journalists**\
+`President Biden took a more somber tone to acknowledge journalists who were wrongfully detained overseas. “We’re not going to give up until we get them home,” he said.`\
+https://nytimes.com/video/us/politics/100000009437277/white-house-correspondents-dinner-biden.html
+
 **Biden Delivers a Message to Journalists Detained Overseas**\
 `While speaking at the White House Correspondents’ Association Dinner in Washington, President Biden acknowledged journalists who were wrongfully detained overseas. “We’re not going to give up until we get them home,” he said.`\
 https://nytimes.com/video/us/politics/100000009437277/white-house-correspondents-dinner-biden.html
