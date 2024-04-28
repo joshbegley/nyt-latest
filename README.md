@@ -1,3 +1,7 @@
+**Biden Delivers a Message to Journalists Detained Overseas**\
+`While speaking at the White House Correspondents’ Association Dinner in Washington, President Biden acknowledged journalists who were wrongfully detained overseas. “We’re not going to give up until we get them home,” he said.`\
+https://nytimes.com/video/us/politics/100000009437277/white-house-correspondents-dinner-biden.html
+
 **Tornado Kills 5 in Guangzhou, a Chinese City Battered by Recent Rains**\
 `Videos shared by Chinese official media showed transmission towers and power lines igniting and debris swirling in the air in the city, a manufacturing and technology hub by the Pearl River.`\
 https://nytimes.com/2024/04/27/world/asia/guangzhou-china-tornado.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/us/northeastern-arizona-state-university-protests
 **The ship heading toward Gaza is carrying 400 tons of food aid.**\
 `By Adam Rasgon and Gaya Gupta`\
 https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/aid-ship-departs-from-cyprus-for-gaza-the-first-sea-shipment-since-world-central-kitchen-workers-were-killed
-
-**Trump Turns on R.F.K. Jr. Amid Concerns He Could Attract Republican Voters**\
-`The former president called Robert F. Kennedy Jr. a ‘Democrat plant’ and attacked his running mate, Nicole Shanahan, who gave $2 million to the Kennedy campaign.`\
-https://nytimes.com/2024/04/27/us/politics/trump-rfk-jr-republicans.html
 
