@@ -1,3 +1,11 @@
+**Colleges Have Gone Off the Deep End. There Is a Way Out.**\
+`How do we find our way to a campus culture in which everyone can be heard?`\
+https://nytimes.com/2024/04/28/opinion/protests-college-free-speech.html
+
+**A Small Group in South Korea Has a Big Homophobic Agenda**\
+`Radical Christians are working to erase L.G.B.T.Q. visibility from schools and ultimately, South Korean society.`\
+https://nytimes.com/2024/04/28/opinion/south-korea-homophobia-christians.html
+
 **Corrections: April 28, 2024**\
 `Corrections that appeared in print on Sunday, April 28, 2024.`\
 https://nytimes.com/2024/04/28/pageoneplus/corrections-april-28-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/27/us/biden-trump-election/gavin-newsom-abortio
 **The Sounds of Music**\
 `Mike Ellison’s debut puzzle brings music back into the house — lots of it!`\
 https://nytimes.com/2024/04/27/crosswords/daily-puzzle-2024-04-28.html
-
-**How a New Trial for Harvey Weinstein Could Again Test the Legal System**\
-`A new jury would hear from only one or both of the women whom he was convicted of assaulting, in what analysts say will be a much narrower and weaker case.`\
-https://nytimes.com/2024/04/27/nyregion/harvey-weinstein-trial.html
-
-**It is the second video of hostages released by Hamas in the last few days.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/hamas-israel-hostages-video
 
