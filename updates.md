@@ -1,3 +1,11 @@
+**Colleges Have Gone Off the Deep End. There Is a Way Out.**\
+`How do we find our way to a campus culture in which everyone can be heard?`\
+https://nytimes.com/2024/04/28/opinion/protests-college-free-speech.html
+
+**A Small Group in South Korea Has a Big Homophobic Agenda**\
+`Radical Christians are working to erase L.G.B.T.Q. visibility from schools and ultimately, South Korean society.`\
+https://nytimes.com/2024/04/28/opinion/south-korea-homophobia-christians.html
+
 **Corrections: April 28, 2024**\
 `Corrections that appeared in print on Sunday, April 28, 2024.`\
 https://nytimes.com/2024/04/28/pageoneplus/corrections-april-28-2024.html
