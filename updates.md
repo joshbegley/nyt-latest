@@ -1,3 +1,7 @@
+**With Israel Poised to Invade Rafah, Negotiators Try Again for Cease-Fire Deal**\
+`Secretary of State Antony J. Blinken was headed to Saudi Arabia in search of an agreement that would pause the fighting and free hostages held by Hamas.`\
+https://nytimes.com/2024/04/28/world/middleeast/rafah-israel-gaza-war.html
+
 **Robert F. Kennedy Jr. Says Americans Are ‘Voting Out of Fear’**\
 `At a rally outside New York City, he questioned the nation’s Covid response and returned to a favorite issue: vaccine skepticism.`\
 https://nytimes.com/2024/04/28/us/politics/rfk-jr-long-island-rally.html

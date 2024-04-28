@@ -1,3 +1,7 @@
+**With Israel Poised to Invade Rafah, Negotiators Try Again for Cease-Fire Deal**\
+`Secretary of State Antony J. Blinken was headed to Saudi Arabia in search of an agreement that would pause the fighting and free hostages held by Hamas.`\
+https://nytimes.com/2024/04/28/world/middleeast/rafah-israel-gaza-war.html
+
 **Robert F. Kennedy Jr. Says Americans Are ‘Voting Out of Fear’**\
 `At a rally outside New York City, he questioned the nation’s Covid response and returned to a favorite issue: vaccine skepticism.`\
 https://nytimes.com/2024/04/28/us/politics/rfk-jr-long-island-rally.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/28/world/asia/israel-gaza-china-spies-asia.html
 **Biden Pokes Fun at Trump During Annual Roast**\
 `President Biden joked about former President Donald J. Trump’s age — and his own — among other topics at the White House Correspondents’ Association dinner. Outside the event, outrage over Mr. Biden’s support for Israel in the war in Gaza was evident.`\
 https://nytimes.com/video/us/politics/100000009437536/white-house-correspondents-dinner-biden-colin.html
-
-**In Northern Israel, Clashes With Hezbollah Drive a Hospital Underground**\
-`Subterranean operations at Galilee Medical Center are a striking example of how life in northern Israel has been upended since Hezbollah began launching near-daily attacks.`\
-https://nytimes.com/2024/04/28/world/middleeast/israel-hospital-lebanon-hezbollah-nahariya.html
 
