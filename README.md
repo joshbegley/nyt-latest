@@ -1,3 +1,7 @@
+**Biden to Confer With Netanyahu on a Possible Cease-Fire and Hostage Deal**\
+`The president plans to speak with the Israeli prime minister on Sunday, the same day Secretary of State Antony J. Blinken left for his latest trip to the Middle East.`\
+https://nytimes.com/2024/04/28/us/politics/biden-netanyahu-israel-cease-fire.html
+
 **A new poll shows Trump ahead, and rosy recollections of his presidency.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/04/28/us/biden-trump-election/biden-trump-cnn-poll
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/28/arts/television/colin-jost-white-house-correspond
 **A ship carrying 400 tons of aid for Gaza has docked in Israel’s port of Ashdod.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/a-ship-carrying-400-tons-of-aid-for-gaza-has-docked-in-israels-port-of-ashdod
-
-**What’s Going On in This Picture? | April 29, 2024**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/04/28/learning/whats-going-on-in-this-picture-april-29-2024.html
 
