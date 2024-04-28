@@ -1,3 +1,7 @@
+**Monday Briefing: Plans for Gaza’s Future**\
+`Plus, European countries crack down on China’s influence.`\
+https://nytimes.com/2024/04/28/world/asia/israel-gaza-china-spies-asia.html
+
 **Biden Pokes Fun at Trump During Annual Roast**\
 `President Biden joked about former President Donald J. Trump’s age — and his own — among other topics at the White House Correspondents’ Association dinner. Outside the event, outrage over Mr. Biden’s support for Israel in the war in Gaza was evident.`\
 https://nytimes.com/video/us/politics/100000009437536/white-house-correspondents-dinner-biden-colin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/28/arts/design/petrit-kalilaj-art-met-museum-roof.ht
 **A Taste of Now**\
 `Go big on asparagus while it’s in season: Slather it with miso-chile sauce, toss it in a creamy pasta with peas and mint or pair seared stalks with cashews and coconut.`\
 https://nytimes.com/2024/04/28/dining/a-taste-of-now.html
-
-**Maximizing Profits at the Patients’ Expense**\
-`Readers discuss an article about insurers sending large bills for out-of-network care. Also: Brave Trump jurors; Black voters; better than debates.`\
-https://nytimes.com/2024/04/28/opinion/insurance-patients-profits.html
 
