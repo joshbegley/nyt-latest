@@ -1,3 +1,15 @@
+**A Close Examination of the Most Infamous Public Toilet in America**\
+`We think of adding regulation as something liberals do and removing regulation as something conservatives do. But that is only part of the story.`\
+https://nytimes.com/2024/04/28/opinion/san-francisco-public-toilet.html
+
+**Justin Trudeau Is No Match for a Polarized World**\
+`Prime Minister Justin Trudeau of Canada and his Liberal Party are facing increasing unpopularity in an era of right-wing ascendancy.`\
+https://nytimes.com/2024/04/28/opinion/justin-trudeau-right-wing-canada.html
+
+**Art Isn’t Supposed to Make You Comfortable**\
+`We live in a complex world. We can’t afford to make art that serves up only simple moral lessons.`\
+https://nytimes.com/2024/04/28/opinion/art-morality-discomfort.html
+
 **28mideast-crisis**\
 `Diplomats Head to Saudi Arabia for New Talks About War in Gaza`\
 https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/28/style/blade-hamptons-bus.html
 **‘Guilt’ Review: When the Lights Go Out in Edinburgh**\
 `The final season of Scotland’s most notable TV drama, on PBS’s “Masterpiece,” is a suitably twisty and sardonic send-off for the battling McCall brothers.`\
 https://nytimes.com/2024/04/28/arts/television/guilt-review-pbs-masterpiece-season-three.html
-
-**As He Exits Congress, Blumenauer Wants His Party to Embrace Pot Legalization**\
-`The long-serving congressman from Portland, who has become the top marijuana advocate on Capitol Hill, believes the issue could boost President Biden’s support with young voters.`\
-https://nytimes.com/2024/04/28/us/politics/as-he-exits-congress-blumenauer-wants-his-party-to-embrace-pot-legalization.html
-
-**After Period of Chastity, Hollywood Movies Embrace Sex Again**\
-`Studios obsessively focused on PG-13 franchises and animation in recent years, but movies like “Challengers” and “Saltburn” show eroticism has returned.`\
-https://nytimes.com/2024/04/28/business/media/hollywood-movies-sex-challengers.html
-
-**Kushner's Investments Could Be a Conflict of Interest for Trump**\
-`Jared Kushner’s Affinity Partners has invested more than $1.`\
-https://nytimes.com/video/us/politics/100000009426425/kushners-investments-could-be-a-conflict-of-interest-for-trump.html
 
