@@ -1,3 +1,7 @@
+**Corrections: April 28, 2024**\
+`Corrections that appeared in print on Sunday, April 28, 2024.`\
+https://nytimes.com/2024/04/28/pageoneplus/corrections-april-28-2024.html
+
 **Quotation of the Day: An Under-12 Girls’ Team Didn’t Just Beat the Boys. They Destroyed Them.**\
 `Quotation of the Day for Sunday, April 28, 2024.`\
 https://nytimes.com/2024/04/28/pageoneplus/quotation-of-the-day-an-under-12-girls-team-didnt-just-beat-the-boys-they-destroyed-them.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/27/nyregion/harvey-weinstein-trial.html
 **It is the second video of hostages released by Hamas in the last few days.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/hamas-israel-hostages-video
-
-**Crackdowns at 4 College Protests Lead to More Than 200 Arrests**\
-`The police made arrests at Washington University in St. Louis, Northeastern, Arizona State and Indiana, as more schools move in on encampments. The presidential candidate Jill Stein was among the arrests.`\
-https://nytimes.com/2024/04/27/us/northeastern-arizona-state-university-protests-arrests.html
 
