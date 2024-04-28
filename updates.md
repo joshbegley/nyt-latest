@@ -1,3 +1,7 @@
+**As Colleges Weigh Crackdowns on Protests, Questions About Outsiders Linger**\
+`With pro-Palestinian protests spreading across campuses nationwide, university leaders have had to confront a central question: When does a demonstration cross the line?`\
+https://nytimes.com/2024/04/28/us/college-campus-protests.html
+
 **Monday Briefing: Plans for Gaza’s Future**\
 `Plus, European countries crack down on China’s influence.`\
 https://nytimes.com/2024/04/28/world/asia/israel-gaza-china-spies-asia.html
