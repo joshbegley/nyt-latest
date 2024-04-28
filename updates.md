@@ -1,3 +1,7 @@
+**Israeli Officials Believe I.C.C. Is Preparing Arrest Warrants Over War**\
+`Israeli and foreign officials say it appears the International Criminal Court is preparing to move against top Israeli and Hamas officials. The prosecutors’ office of the court declined to comment.`\
+https://nytimes.com/2024/04/28/world/middleeast/icc-arrest-warrants-israel-hamas.html
+
 **Trump and DeSantis Meet for First Time Since Bruising Primary**\
 `The former president and his vanquished rival met in Florida, months after Ron DeSantis dropped out after a contentious Republican contest.`\
 https://nytimes.com/2024/04/28/us/politics/trump-desantis-meeting.html

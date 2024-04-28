@@ -1,3 +1,7 @@
+**Israeli Officials Believe I.C.C. Is Preparing Arrest Warrants Over War**\
+`Israeli and foreign officials say it appears the International Criminal Court is preparing to move against top Israeli and Hamas officials. The prosecutors’ office of the court declined to comment.`\
+https://nytimes.com/2024/04/28/world/middleeast/icc-arrest-warrants-israel-hamas.html
+
 **Trump and DeSantis Meet for First Time Since Bruising Primary**\
 `The former president and his vanquished rival met in Florida, months after Ron DeSantis dropped out after a contentious Republican contest.`\
 https://nytimes.com/2024/04/28/us/politics/trump-desantis-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/28/sports/football/archie-cooley-death.html
 **Biden Confers With Netanyahu on a Possible Cease-Fire and Hostage Deal**\
 `The president spoke with the Israeli prime minister on Sunday, the same day Secretary of State Antony J. Blinken left for his latest trip to the Middle East.`\
 https://nytimes.com/2024/04/28/us/politics/biden-netanyahu-israel-cease-fire.html
-
-**A new poll shows Trump ahead, and rosy recollections of his presidency.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/04/28/us/biden-trump-election/biden-trump-cnn-poll
 
