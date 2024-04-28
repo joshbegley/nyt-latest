@@ -1,3 +1,7 @@
+**Review: Gustavo Dudamel Saves the Day at the Philharmonic**\
+`Dudamel, the New York Philharmonic’s incoming music and artistic director, stepped in after a guest conductor fell ill.`\
+https://nytimes.com/2024/04/28/arts/music/gustavo-dudamel-nyphil-review.html
+
 **On the Met Roof, Skywriting His Way to Freedom**\
 `Petrit Halilaj of Kosovo began drawing as a refugee child in the Balkans during a violent decade and invented a calligraphic world of memory.`\
 https://nytimes.com/2024/04/28/arts/design/petrit-kalilaj-art-met-museum-roof.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/28/briefing/celebrity-real-estate-agents-selling-sun
 **A Close Examination of the Most Infamous Public Toilet in America**\
 `We think of adding regulation as something liberals do and removing regulation as something conservatives do. But that is only part of the story.`\
 https://nytimes.com/2024/04/28/opinion/san-francisco-public-toilet.html
-
-**Justin Trudeau Is No Match for a Polarized World**\
-`Prime Minister Justin Trudeau of Canada and his Liberal Party are facing increasing unpopularity in an era of right-wing ascendancy.`\
-https://nytimes.com/2024/04/28/opinion/justin-trudeau-right-wing-canada.html
 
