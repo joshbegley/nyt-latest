@@ -1,3 +1,7 @@
+**A ship carrying 400 tons of aid for Gaza has docked in Israel’s port of Ashdod.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/a-ship-carrying-400-tons-of-aid-for-gaza-has-docked-in-israels-port-of-ashdod
+
 **What’s Going On in This Picture? | April 29, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/04/28/learning/whats-going-on-in-this-picture-april-29-2024.html
