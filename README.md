@@ -7,7 +7,7 @@ https://nytimes.com/2024/04/27/world/asia/guangzhou-china-tornado.html
 https://nytimes.com/2024/04/27/us/politics/blinken-saudi-arabia-israel-gaza.html
 
 **The Best Red Carpet Looks at the White House Correspondents’ Association Dinner**\
-`Scarlett Johansson, Colin Jost and Senator John Fetterman made their entrances at the annual celebration in Washington.`\
+`Scarlett Johansson, Colin Jost and Senator John Fetterman made their entrances at the annual journalism celebration in Washington.`\
 https://nytimes.com/2024/04/27/style/white-house-correspondents-dinner-red-carpet-photos.html
 
 **Filmmakers accuse Gavin Newsom’s PAC of plagiarism in abortion-access ad.**\
