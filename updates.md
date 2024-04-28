@@ -1,3 +1,7 @@
+**Review: A Fierce Soprano Arrives at the Met in ‘Madama Butterfly’**\
+`Asmik Grigorian, a star singer abroad, made her Metropolitan Opera debut by lending lyricism, complexity and spontaneity to a classic role.`\
+https://nytimes.com/2024/04/28/arts/music/asmik-grigorian-madama-butterfly-review.html
+
 **Review: Gustavo Dudamel Saves the Day at the Philharmonic**\
 `Dudamel, the New York Philharmonic’s incoming music and artistic director, stepped in after a guest conductor fell ill.`\
 https://nytimes.com/2024/04/28/arts/music/gustavo-dudamel-nyphil-review.html
