@@ -1,3 +1,7 @@
+**As Colleges Weigh Crackdowns on Protests, Questions About Outsiders Linger**\
+`With pro-Palestinian protests spreading across campuses nationwide, university leaders have had to confront a central question: When does a demonstration cross the line?`\
+https://nytimes.com/2024/04/28/us/college-campus-protests.html
+
 **Monday Briefing: Plans for Gaza’s Future**\
 `Plus, European countries crack down on China’s influence.`\
 https://nytimes.com/2024/04/28/world/asia/israel-gaza-china-spies-asia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/28/arts/music/gustavo-dudamel-nyphil-review.html
 **On the Met Roof, Skywriting His Way to Freedom**\
 `Petrit Halilaj of Kosovo began drawing as a refugee child in the Balkans during a violent decade and invented a calligraphic world of memory.`\
 https://nytimes.com/2024/04/28/arts/design/petrit-kalilaj-art-met-museum-roof.html
-
-**A Taste of Now**\
-`Go big on asparagus while it’s in season: Slather it with miso-chile sauce, toss it in a creamy pasta with peas and mint or pair seared stalks with cashews and coconut.`\
-https://nytimes.com/2024/04/28/dining/a-taste-of-now.html
 

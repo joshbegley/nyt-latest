@@ -1,3 +1,7 @@
+**Monday Briefing: Plans for Gaza’s Future**\
+`Plus, European countries crack down on China’s influence.`\
+https://nytimes.com/2024/04/28/world/asia/israel-gaza-china-spies-asia.html
+
 **Biden Confers With Netanyahu on a Possible Cease-Fire and Hostage Deal**\
 `The president spoke with the Israeli prime minister on Sunday, the same day Secretary of State Antony J. Blinken left for his latest trip to the Middle East.`\
 https://nytimes.com/2024/04/28/us/politics/biden-netanyahu-israel-cease-fire.html
