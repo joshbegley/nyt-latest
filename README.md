@@ -1,3 +1,7 @@
+**Robbi Mecus, Who Helped Foster L.G.B.T.Q. Climbing Community, Dies at 52**\
+`Ms. Mecus, a New York State forest ranger who worked in the Adirondacks, died after falling about 1,000 feet from a peak at Denali National Park and Preserve in Alaska.`\
+https://nytimes.com/2024/04/28/nyregion/robbi-mecus-dead-alaska-denali-park.html
+
 **With Israel Poised to Invade Rafah, Negotiators Try Again for Cease-Fire Deal**\
 `Secretary of State Antony J. Blinken was headed to Saudi Arabia in search of an agreement that would pause the fighting and free hostages held by Hamas.`\
 https://nytimes.com/2024/04/28/world/middleeast/rafah-israel-gaza-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/28/us/college-campus-protests.html
 **Monday Briefing: Plans for Gaza’s Future**\
 `Plus, European countries crack down on China’s influence.`\
 https://nytimes.com/2024/04/28/world/asia/israel-gaza-china-spies-asia.html
-
-**Biden Pokes Fun at Trump During Annual Roast**\
-`President Biden joked about former President Donald J. Trump’s age — and his own — among other topics at the White House Correspondents’ Association dinner. Outside the event, outrage over Mr. Biden’s support for Israel in the war in Gaza was evident.`\
-https://nytimes.com/video/us/politics/100000009437536/white-house-correspondents-dinner-biden-colin.html
 
