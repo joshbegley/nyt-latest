@@ -1,3 +1,11 @@
+**28mideast-crisis**\
+`Diplomats Head to Saudi Arabia for New Talks About War in Gaza`\
+https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas
+
+**Thousands rally in Tel Aviv in support of hostages.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/thousands-rally-in-tel-aviv-in-support-of-hostages
+
 **France’s foreign minister is in Lebanon first to discuss tensions between Hezbollah and Israel.**\
 `By Vivek Shankar`\
 https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/frances-foreign-minister-is-in-lebanon-first-to-discuss-tensions-between-hezbollah-and-israel
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/28/business/media/hollywood-movies-sex-challengers.h
 **Kushner's Investments Could Be a Conflict of Interest for Trump**\
 `Jared Kushner’s Affinity Partners has invested more than $1.`\
 https://nytimes.com/video/us/politics/100000009426425/kushners-investments-could-be-a-conflict-of-interest-for-trump.html
-
-**A New Fitness Craze With Big Drama**\
-`Hyrox, a sporting event founded in Germany, has earned a large following for its dazzling, high-profile races.`\
-https://nytimes.com/2024/04/28/style/hyrox-workout-anaheim-germany.html
-
-**Many Ukrainian Prisoners of War Show Signs of Trauma and Sexual Violence**\
-`As they return with physical and psychological wounds stemming from torture by their Russian captors, soldiers are being sent back to active duty — often without adequate treatment.`\
-https://nytimes.com/2024/04/28/world/europe/russia-ukraine-prisoners-of-war-trauma-violence.html
 

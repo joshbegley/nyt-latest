@@ -1,3 +1,11 @@
+**28mideast-crisis**\
+`Diplomats Head to Saudi Arabia for New Talks About War in Gaza`\
+https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas
+
+**Thousands rally in Tel Aviv in support of hostages.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/thousands-rally-in-tel-aviv-in-support-of-hostages
+
 **France’s foreign minister is in Lebanon first to discuss tensions between Hezbollah and Israel.**\
 `By Vivek Shankar`\
 https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/frances-foreign-minister-is-in-lebanon-first-to-discuss-tensions-between-hezbollah-and-israel
