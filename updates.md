@@ -1,3 +1,7 @@
+**Tornado Kills 5 in Guangzhou, a Chinese City Battered by Recent Rains**\
+`Videos shared by Chinese official media showed transmission towers and power lines igniting and debris swirling in the air in the city, a manufacturing and technology hub by the Pearl River.`\
+https://nytimes.com/2024/04/27/world/asia/guangzhou-china-tornado.html
+
 **The Best Red Carpet Looks at the White House Correspondents’ Association Dinner**\
 `Scarlett Johansson, Colin Jost and Senator John Fetterman made their entrances at the annual celebration in Washington.`\
 https://nytimes.com/2024/04/27/style/white-house-correspondents-dinner-red-carpet-photos.html

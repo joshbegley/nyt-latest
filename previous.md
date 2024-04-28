@@ -1,3 +1,7 @@
+**Tornado Kills 5 in Guangzhou, a Chinese City Battered by Recent Rains**\
+`Videos shared by Chinese official media showed transmission towers and power lines igniting and debris swirling in the air in the city, a manufacturing and technology hub by the Pearl River.`\
+https://nytimes.com/2024/04/27/world/asia/guangzhou-china-tornado.html
+
 **Blinken to Meet With Arab Officials in Saudi Arabia About Israel-Gaza War**\
 `The U.S. secretary of state plans to raise the issues of hostages held by Hamas, a potential cease-fire, humanitarian aid and a long-term political solution to the Israeli-Palestinian conflict.`\
 https://nytimes.com/2024/04/27/us/politics/blinken-saudi-arabia-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/aid-ship-departs
 **Trump Turns on R.F.K. Jr. Amid Concerns He Could Attract Republican Voters**\
 `The former president called Robert F. Kennedy Jr. a ‘Democrat plant’ and attacked his running mate, Nicole Shanahan, who gave $2 million to the Kennedy campaign.`\
 https://nytimes.com/2024/04/27/us/politics/trump-rfk-jr-republicans.html
-
-**Andrew Davis, 80, Dies; Renowned Conductor Who Championed Britain’s Music**\
-`Celebrated for his long tenure with Lyric Opera of Chicago, he led this and other orchestras with force and a notably energetic podium presence.`\
-https://nytimes.com/2024/04/27/arts/music/andrew-davis-dead.html
 
