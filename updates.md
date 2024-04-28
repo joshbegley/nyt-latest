@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | April 29, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/04/28/learning/whats-going-on-in-this-picture-april-29-2024.html
+
 **Real Estate Fantasies**\
 `Celebrity agents are selling a dream, as real homes get more out of reach.`\
 https://nytimes.com/2024/04/28/briefing/celebrity-real-estate-agents-selling-sunset.html
