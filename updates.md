@@ -1,3 +1,7 @@
+**Real Estate Fantasies**\
+`Celebrity agents are selling a dream, as real homes get more out of reach.`\
+https://nytimes.com/2024/04/28/briefing/celebrity-real-estate-agents-selling-sunset.html
+
 **A Close Examination of the Most Infamous Public Toilet in America**\
 `We think of adding regulation as something liberals do and removing regulation as something conservatives do. But that is only part of the story.`\
 https://nytimes.com/2024/04/28/opinion/san-francisco-public-toilet.html
