@@ -1,3 +1,19 @@
+**On the Met Roof, Skywriting His Way to Freedom**\
+`Petrit Halilaj of Kosovo began drawing as a refugee child in the Balkans during a violent decade and invented a calligraphic world of memory.`\
+https://nytimes.com/2024/04/28/arts/design/petrit-kalilaj-art-met-museum-roof.html
+
+**A Taste of Now**\
+`Go big on asparagus while it’s in season: Slather it with miso-chile sauce, toss it in a creamy pasta with peas and mint or pair seared stalks with cashews and coconut.`\
+https://nytimes.com/2024/04/28/dining/a-taste-of-now.html
+
+**Maximizing Profits at the Patients’ Expense**\
+`Readers discuss an article about insurers sending large bills for out-of-network care. Also: Brave Trump jurors; Black voters; better than debates.`\
+https://nytimes.com/2024/04/28/opinion/insurance-patients-profits.html
+
+**On This Saturday Night, Colin Jost’s Jokes Fell Flat**\
+`The White House Correspondents’ Association dinner has occasionally featured some great stand-up comedy. This “S.N.L.” veteran’s set will not join that list.`\
+https://nytimes.com/2024/04/28/arts/television/colin-jost-white-house-correspondents-dinner.html
+
 **On This Saturday Night, Colin Jost’s Jokes Fell Flat**\
 `The White House Correspondents Association dinner has occasionally featured some great stand-up comedy. This “S.N.L.” veteran’s set will not join that list.`\
 https://nytimes.com/2024/04/28/arts/television/colin-jost-white-house-correspondents-dinner.html
