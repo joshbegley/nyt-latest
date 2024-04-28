@@ -1,3 +1,7 @@
+**Pope’s Visit to Art Exhibition in Prison is a First for Venice Biennale**\
+`Incarcerated women serve as guides to the show, which reflects Pope Francis’ longtime commitment to society’s marginalized people.`\
+https://nytimes.com/2024/04/28/world/europe/venice-biennale-prison-vatican-pope.html
+
 **This Ship Is Sinking. Can I Jump to a Client’s?**\
 `In the workplace, saving yourself is also your job.`\
 https://nytimes.com/2024/04/28/business/this-ship-is-sinking-can-i-jump-to-a-clients.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/28/nyregion/kenny-deforest-comedy-grief.html
 **Asylum Seekers Already in U.K. Say Rwanda Law Creates New Anxiety**\
 `For the tens of thousands of asylum seekers in Britain, a new law brings the possibility of deportation to central Africa closer. We asked how it was affecting them.`\
 https://nytimes.com/2024/04/28/world/africa/uk-rwanda-asylum-seekers.html
-
-**Colleges Have Gone Off the Deep End. There Is a Way Out.**\
-`How do we find our way to a campus culture in which everyone can be heard?`\
-https://nytimes.com/2024/04/28/opinion/protests-college-free-speech.html
 
