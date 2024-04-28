@@ -1,3 +1,7 @@
+**College Protests Over Gaza Deepen Democratic Rifts**\
+`Scenes of chaos unfolding on campuses across the country are stoking internal divisions and carry political risk as a major election year unfolds.`\
+https://nytimes.com/2024/04/28/us/politics/college-protests-israel-democrats.html
+
 **World Central Kitchen Will Resume Operations in Gaza**\
 `The organization halted aid efforts in the enclave after seven of its workers were killed in an Israeli attack. It said it would resume operations with a local team of Palestinian aid workers.`\
 https://nytimes.com/2024/04/28/world/middleeast/world-central-kitchen-gaza-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/28/us/biden-trump-election/biden-trump-cnn-poll
 **Review: A Fierce Soprano Arrives at the Met in ‘Madama Butterfly’**\
 `Asmik Grigorian, a star singer abroad, made her Metropolitan Opera debut by lending lyricism, complexity and spontaneity to a classic role.`\
 https://nytimes.com/2024/04/28/arts/music/asmik-grigorian-madama-butterfly-review.html
-
-**Review: Gustavo Dudamel Saves the Day at the Philharmonic**\
-`Dudamel, the New York Philharmonic’s incoming music and artistic director, stepped in after a guest conductor fell ill.`\
-https://nytimes.com/2024/04/28/arts/music/gustavo-dudamel-nyphil-review.html
 
