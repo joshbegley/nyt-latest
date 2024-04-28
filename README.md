@@ -1,3 +1,7 @@
+**On this Saturday Night, Colin Jost’s Jokes Fell Flat**\
+`The White House Correspondents Association dinner has occasionally featured some great stand-up comedy. This “S.N.L.” veteran’s set will not join that list.`\
+https://nytimes.com/2024/04/28/arts/television/colin-jost-correspondents-dinner.html
+
 **A ship carrying 400 tons of aid for Gaza has docked in Israel’s port of Ashdod.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/a-ship-carrying-400-tons-of-aid-for-gaza-has-docked-in-israels-port-of-ashdod
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/thousands-rally-
 **France’s foreign minister is in Lebanon to discuss tensions between Hezbollah and Israel.**\
 `By Vivek Shankar`\
 https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/frances-foreign-minister-is-in-lebanon-first-to-discuss-tensions-between-hezbollah-and-israel
-
-**Trump’s Trial Could Bring a Rarity: Consequences for His Words**\
-`The former president has spent decades spewing thousands and thousands of words, sometimes contradicting himself. That tendency is now working against him in his Manhattan criminal case.`\
-https://nytimes.com/2024/04/28/us/politics/trump-trial-words.html
 
