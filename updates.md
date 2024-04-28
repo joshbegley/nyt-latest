@@ -1,3 +1,7 @@
+**Review: Gustavo Dudamel Saves the Day at the Philharmonic**\
+`Dudamel, the New York Philharmonic’s incoming music and artistic director, stepped in after a guest conductor fell ill.`\
+https://nytimes.com/2024/04/28/arts/music/gustavo-dudamel-nyphil-review.html
+
 **On the Met Roof, Skywriting His Way to Freedom**\
 `Petrit Halilaj of Kosovo began drawing as a refugee child in the Balkans during a violent decade and invented a calligraphic world of memory.`\
 https://nytimes.com/2024/04/28/arts/design/petrit-kalilaj-art-met-museum-roof.html
