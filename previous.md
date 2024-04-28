@@ -1,3 +1,7 @@
+**Trump and DeSantis Meet for First Time Since Bruising Primary**\
+`The former president and his vanquished rival met in Florida, months after Ron DeSantis dropped out after a contentious Republican contest.`\
+https://nytimes.com/2024/04/28/us/politics/trump-desantis-meeting.html
+
 **College Protests Over Gaza Deepen Democratic Rifts**\
 `Scenes of chaos unfolding on campuses across the country are stoking internal divisions and carry political risk as a major election year unfolds.`\
 https://nytimes.com/2024/04/28/us/politics/college-protests-israel-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/28/us/politics/biden-netanyahu-israel-cease-fire.htm
 **A new poll shows Trump ahead, and rosy recollections of his presidency.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/04/28/us/biden-trump-election/biden-trump-cnn-poll
-
-**Review: A Fierce Soprano Arrives at the Met in ‘Madama Butterfly’**\
-`Asmik Grigorian, a star singer abroad, made her Metropolitan Opera debut by lending lyricism, complexity and spontaneity to a classic role.`\
-https://nytimes.com/2024/04/28/arts/music/asmik-grigorian-madama-butterfly-review.html
 

@@ -1,3 +1,7 @@
+**Trump and DeSantis Meet for First Time Since Bruising Primary**\
+`The former president and his vanquished rival met in Florida, months after Ron DeSantis dropped out after a contentious Republican contest.`\
+https://nytimes.com/2024/04/28/us/politics/trump-desantis-meeting.html
+
 **College Protests Over Gaza Deepen Democratic Rifts**\
 `Scenes of chaos unfolding on campuses across the country are stoking internal divisions and carry political risk as a major election year unfolds.`\
 https://nytimes.com/2024/04/28/us/politics/college-protests-israel-democrats.html
