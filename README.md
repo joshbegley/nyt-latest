@@ -1,4 +1,8 @@
-**On this Saturday Night, Colin Jost’s Jokes Fell Flat**\
+**Israel faces a stark dilemma as it weighs whether to invade Rafah.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/israel-faces-a-stark-dilemma-as-it-weighs-whether-to-invade-rafah
+
+**On This Saturday Night, Colin Jost’s Jokes Fell Flat**\
 `The White House Correspondents Association dinner has occasionally featured some great stand-up comedy. This “S.N.L.” veteran’s set will not join that list.`\
 https://nytimes.com/2024/04/28/arts/television/colin-jost-correspondents-dinner.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas
 **Thousands rally in Tel Aviv in support of hostages.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/thousands-rally-in-tel-aviv-in-support-of-hostages
-
-**France’s foreign minister is in Lebanon to discuss tensions between Hezbollah and Israel.**\
-`By Vivek Shankar`\
-https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/frances-foreign-minister-is-in-lebanon-first-to-discuss-tensions-between-hezbollah-and-israel
 
