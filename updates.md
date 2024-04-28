@@ -1,3 +1,7 @@
+**Crackdowns at 4 College Protests Lead to More Than 200 Arrests**\
+`The police made arrests at Washington University in St. Louis, Northeastern, Arizona State and Indiana, as more schools move in on encampments. The presidential candidate Jill Stein was among the arrests.`\
+https://nytimes.com/2024/04/27/us/northeastern-arizona-state-university-protests-arrests.html
+
 **Tornado Kills 5 in Guangzhou, a Chinese City Battered by Recent Rains**\
 `Videos shared by Chinese official media showed transmission towers and power lines igniting and debris swirling in the air in the city, a manufacturing and technology hub by the Pearl River.`\
 https://nytimes.com/2024/04/27/world/asia/guangzhou-china-tornado.html
