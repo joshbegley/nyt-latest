@@ -1,3 +1,7 @@
+**Quotation of the Day: An Under-12 Girls’ Team Didn’t Just Beat the Boys. They Destroyed Them.**\
+`Quotation of the Day for Sunday, April 28, 2024.`\
+https://nytimes.com/2024/04/28/pageoneplus/quotation-of-the-day-an-under-12-girls-team-didnt-just-beat-the-boys-they-destroyed-them.html
+
 **Biden Vows to Bring Home Detained U.S. Journalists**\
 `President Biden took a more somber tone to acknowledge journalists who were wrongfully detained overseas. “We’re not going to give up until we get them home,” he said.`\
 https://nytimes.com/video/us/politics/100000009437277/white-house-correspondents-dinner-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/hamas-israel-hos
 **Crackdowns at 4 College Protests Lead to More Than 200 Arrests**\
 `The police made arrests at Washington University in St. Louis, Northeastern, Arizona State and Indiana, as more schools move in on encampments. The presidential candidate Jill Stein was among the arrests.`\
 https://nytimes.com/2024/04/27/us/northeastern-arizona-state-university-protests-arrests.html
-
-**The ship heading toward Gaza is carrying 400 tons of food aid.**\
-`By Adam Rasgon and Gaya Gupta`\
-https://nytimes.com/live/2024/04/27/world/israel-gaza-war-hamas/aid-ship-departs-from-cyprus-for-gaza-the-first-sea-shipment-since-world-central-kitchen-workers-were-killed
 
