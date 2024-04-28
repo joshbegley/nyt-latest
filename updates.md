@@ -1,3 +1,7 @@
+**Biden Confers With Netanyahu on a Possible Cease-Fire and Hostage Deal**\
+`The president spoke with the Israeli prime minister on Sunday, the same day Secretary of State Antony J. Blinken left for his latest trip to the Middle East.`\
+https://nytimes.com/2024/04/28/us/politics/biden-netanyahu-israel-cease-fire.html
+
 **Biden Pokes Fun at Trump During Annual Roast**\
 `President Biden joked about former President Donald J. Trump’s age — and his own — among other topics at the White House Correspondents’ Association dinner. Outside the event, outrage over Mr. Biden’s support for Israel in the war in Gaza was evident.`\
 https://nytimes.com/video/us/politics/100000009437536/white-house-correspondents-dinner-biden-colin.html
