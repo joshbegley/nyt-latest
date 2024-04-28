@@ -1,3 +1,11 @@
+**Robert F. Kennedy Jr. Says Americans Are ‘Voting Out of Fear’**\
+`At a rally outside New York City, he questioned the nation’s Covid response and returned to a favorite issue: vaccine skepticism.`\
+https://nytimes.com/2024/04/28/us/politics/rfk-jr-long-island-rally.html
+
+**Boots From Office**\
+`Tom Locke makes his New York Times debut.`\
+https://nytimes.com/2024/04/28/crosswords/daily-puzzle-2024-04-29.html
+
 **Israeli Officials Believe I.C.C. Is Preparing Arrest Warrants Over War**\
 `Israeli and foreign officials say it appears the International Criminal Court is preparing to move against top Israeli and Hamas officials. The prosecutors’ office of the court declined to comment.`\
 https://nytimes.com/2024/04/28/world/middleeast/icc-arrest-warrants-israel-hamas.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009437536/white-house-correspondents
 **In Northern Israel, Clashes With Hezbollah Drive a Hospital Underground**\
 `Subterranean operations at Galilee Medical Center are a striking example of how life in northern Israel has been upended since Hezbollah began launching near-daily attacks.`\
 https://nytimes.com/2024/04/28/world/middleeast/israel-hospital-lebanon-hezbollah-nahariya.html
-
-**Archie Cooley, Football Coach Known as ‘the Gunslinger,’ Dies at 85**\
-`At Mississippi Valley State University, he unleashed a high-powered, pass-heavy offense that featured the future Pro Football Hall of Famer Jerry Rice.`\
-https://nytimes.com/2024/04/28/sports/football/archie-cooley-death.html
-
-**Biden Confers With Netanyahu on a Possible Cease-Fire and Hostage Deal**\
-`The president spoke with the Israeli prime minister on Sunday, the same day Secretary of State Antony J. Blinken left for his latest trip to the Middle East.`\
-https://nytimes.com/2024/04/28/us/politics/biden-netanyahu-israel-cease-fire.html
 
