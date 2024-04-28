@@ -1,3 +1,7 @@
+**Real Estate Fantasies**\
+`Celebrity agents are selling a dream, as real homes get more out of reach.`\
+https://nytimes.com/2024/04/28/briefing/celebrity-real-estate-agents-selling-sunset.html
+
 **A Close Examination of the Most Infamous Public Toilet in America**\
 `We think of adding regulation as something liberals do and removing regulation as something conservatives do. But that is only part of the story.`\
 https://nytimes.com/2024/04/28/opinion/san-francisco-public-toilet.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/28/us/louisiana-st-george.html
 **A $275 Bus Ticket to the Hamptons**\
 `Blade, after a decade of flying passengers to eastern Long Island on helicopters, is getting into the luxury coach business.`\
 https://nytimes.com/2024/04/28/style/blade-hamptons-bus.html
-
-**‘Guilt’ Review: When the Lights Go Out in Edinburgh**\
-`The final season of Scotland’s most notable TV drama, on PBS’s “Masterpiece,” is a suitably twisty and sardonic send-off for the battling McCall brothers.`\
-https://nytimes.com/2024/04/28/arts/television/guilt-review-pbs-masterpiece-season-three.html
 
