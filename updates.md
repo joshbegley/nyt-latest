@@ -1,3 +1,7 @@
+**Biden Delivers a Message to Journalists Detained Overseas**\
+`While speaking at the White House Correspondents’ Association Dinner in Washington, President Biden acknowledged journalists who were wrongfully detained overseas. “We’re not going to give up until we get them home,” he said.`\
+https://nytimes.com/video/us/politics/100000009437277/white-house-correspondents-dinner-biden.html
+
 **Crackdowns at 4 College Protests Lead to More Than 200 Arrests**\
 `The police made arrests at Washington University in St. Louis, Northeastern, Arizona State and Indiana, as more schools move in on encampments. The presidential candidate Jill Stein was among the arrests.`\
 https://nytimes.com/2024/04/27/us/northeastern-arizona-state-university-protests-arrests.html
