@@ -1,3 +1,11 @@
+**Robert F. Kennedy Jr. Says Americans Are ‘Voting Out of Fear’**\
+`At a rally outside New York City, he questioned the nation’s Covid response and returned to a favorite issue: vaccine skepticism.`\
+https://nytimes.com/2024/04/28/us/politics/rfk-jr-long-island-rally.html
+
+**Boots From Office**\
+`Tom Locke makes his New York Times debut.`\
+https://nytimes.com/2024/04/28/crosswords/daily-puzzle-2024-04-29.html
+
 **Israeli Officials Believe I.C.C. Is Preparing Arrest Warrants Over War**\
 `Israeli and foreign officials say it appears the International Criminal Court is preparing to move against top Israeli and Hamas officials. The prosecutors’ office of the court declined to comment.`\
 https://nytimes.com/2024/04/28/world/middleeast/icc-arrest-warrants-israel-hamas.html
