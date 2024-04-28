@@ -34,7 +34,7 @@ https://nytimes.com/2024/04/28/opinion/art-morality-discomfort.html
 `Diplomats Head to Saudi Arabia for New Talks About War in Gaza`\
 https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas
 
-**Thousands rally in Tel Aviv in support of hostages.**\
+**Thousands rallied in Tel Aviv in support of hostages.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/thousands-rally-in-tel-aviv-in-support-of-hostages
 
