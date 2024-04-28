@@ -1,3 +1,7 @@
+**The Best Red Carpet Looks at the White House Correspondents’ Association Dinner**\
+`Scarlett Johansson, Colin Jost and Senator John Fetterman made their entrances at the annual journalism celebration in Washington.`\
+https://nytimes.com/2024/04/27/style/white-house-correspondents-dinner-red-carpet-photos.html
+
 **Crackdowns at 4 College Protests Lead to Nearly 200 Arrests**\
 `The police made arrests at Washington University in St. Louis, Northeastern, Arizona State and Indiana, as more schools move in on encampments. The presidential candidate Jill Stein was among the arrests.`\
 https://nytimes.com/2024/04/27/us/northeastern-arizona-state-university-protests-arrests.html
