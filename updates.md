@@ -1,3 +1,7 @@
+**France’s foreign minister is in Lebanon first to discuss tensions between Hezbollah and Israel.**\
+`By Vivek Shankar`\
+https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/frances-foreign-minister-is-in-lebanon-first-to-discuss-tensions-between-hezbollah-and-israel
+
 **Trump’s Trial Could Bring a Rarity: Consequences for His Words**\
 `The former president has spent decades spewing thousands and thousands of words, sometimes contradicting himself. That tendency is now working against him in his Manhattan criminal case.`\
 https://nytimes.com/2024/04/28/us/politics/trump-trial-words.html

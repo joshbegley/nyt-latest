@@ -1,3 +1,7 @@
+**France’s foreign minister is in Lebanon first to discuss tensions between Hezbollah and Israel.**\
+`By Vivek Shankar`\
+https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/frances-foreign-minister-is-in-lebanon-first-to-discuss-tensions-between-hezbollah-and-israel
+
 **Trump’s Trial Could Bring a Rarity: Consequences for His Words**\
 `The former president has spent decades spewing thousands and thousands of words, sometimes contradicting himself. That tendency is now working against him in his Manhattan criminal case.`\
 https://nytimes.com/2024/04/28/us/politics/trump-trial-words.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/28/style/hyrox-workout-anaheim-germany.html
 **Many Ukrainian Prisoners of War Show Signs of Trauma and Sexual Violence**\
 `As they return with physical and psychological wounds stemming from torture by their Russian captors, soldiers are being sent back to active duty — often without adequate treatment.`\
 https://nytimes.com/2024/04/28/world/europe/russia-ukraine-prisoners-of-war-trauma-violence.html
-
-**Even With Gaza Under Siege, Some Are Imagining Its Reconstruction**\
-`International development agencies have been meeting with Middle East business interests and urban planners to map out an economic future for the territory.`\
-https://nytimes.com/2024/04/28/business/gaza-economy-rebuilding.html
 
