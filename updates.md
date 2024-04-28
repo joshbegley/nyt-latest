@@ -1,3 +1,15 @@
+**A Close Examination of the Most Infamous Public Toilet in America**\
+`We think of adding regulation as something liberals do and removing regulation as something conservatives do. But that is only part of the story.`\
+https://nytimes.com/2024/04/28/opinion/san-francisco-public-toilet.html
+
+**Justin Trudeau Is No Match for a Polarized World**\
+`Prime Minister Justin Trudeau of Canada and his Liberal Party are facing increasing unpopularity in an era of right-wing ascendancy.`\
+https://nytimes.com/2024/04/28/opinion/justin-trudeau-right-wing-canada.html
+
+**Art Isn’t Supposed to Make You Comfortable**\
+`We live in a complex world. We can’t afford to make art that serves up only simple moral lessons.`\
+https://nytimes.com/2024/04/28/opinion/art-morality-discomfort.html
+
 **28mideast-crisis**\
 `Diplomats Head to Saudi Arabia for New Talks About War in Gaza`\
 https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas
