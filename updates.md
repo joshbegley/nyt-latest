@@ -1,3 +1,7 @@
+**France’s foreign minister is in Lebanon to discuss tensions between Hezbollah and Israel.**\
+`By Vivek Shankar`\
+https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/frances-foreign-minister-is-in-lebanon-first-to-discuss-tensions-between-hezbollah-and-israel
+
 **A ship carrying 400 tons of aid for Gaza has docked in Israel’s port of Ashdod.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/a-ship-carrying-400-tons-of-aid-for-gaza-has-docked-in-israels-port-of-ashdod
