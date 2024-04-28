@@ -1,3 +1,7 @@
+**What’s Going On in This Picture? | April 29, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/04/28/learning/whats-going-on-in-this-picture-april-29-2024.html
+
 **Real Estate Fantasies**\
 `Celebrity agents are selling a dream, as real homes get more out of reach.`\
 https://nytimes.com/2024/04/28/briefing/celebrity-real-estate-agents-selling-sunset.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/28/us/politics/trump-trial-words.html
 **Louisiana Will Get a New City After a Yearslong Court Battle**\
 `The State Supreme Court cleared the way for a part of Baton Rouge to become the city of St. George. Critics say the white, wealthier enclave separating from the capital could have devastating consequences.`\
 https://nytimes.com/2024/04/28/us/louisiana-st-george.html
-
-**A $275 Bus Ticket to the Hamptons**\
-`Blade, after a decade of flying passengers to eastern Long Island on helicopters, is getting into the luxury coach business.`\
-https://nytimes.com/2024/04/28/style/blade-hamptons-bus.html
 
