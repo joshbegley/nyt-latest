@@ -1,3 +1,7 @@
+**A ship carrying 400 tons of aid for Gaza has docked in Israel’s port of Ashdod.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/a-ship-carrying-400-tons-of-aid-for-gaza-has-docked-in-israels-port-of-ashdod
+
 **What’s Going On in This Picture? | April 29, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/04/28/learning/whats-going-on-in-this-picture-april-29-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/frances-foreign-
 **Trump’s Trial Could Bring a Rarity: Consequences for His Words**\
 `The former president has spent decades spewing thousands and thousands of words, sometimes contradicting himself. That tendency is now working against him in his Manhattan criminal case.`\
 https://nytimes.com/2024/04/28/us/politics/trump-trial-words.html
-
-**Louisiana Will Get a New City After a Yearslong Court Battle**\
-`The State Supreme Court cleared the way for a part of Baton Rouge to become the city of St. George. Critics say the white, wealthier enclave separating from the capital could have devastating consequences.`\
-https://nytimes.com/2024/04/28/us/louisiana-st-george.html
 
