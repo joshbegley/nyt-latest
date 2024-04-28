@@ -1,3 +1,7 @@
+**Archie Cooley, Football Coach Known as ‘the Gunslinger,’ Dies at 85**\
+`At Mississippi Valley State University, he unleashed a high-powered, pass-heavy offense that featured the future Pro Football Hall of Famer Jerry Rice.`\
+https://nytimes.com/2024/04/28/sports/football/archie-cooley-death.html
+
 **Biden to Confer With Netanyahu on a Possible Cease-Fire and Hostage Deal**\
 `The president plans to speak with the Israeli prime minister on Sunday, the same day Secretary of State Antony J. Blinken left for his latest trip to the Middle East.`\
 https://nytimes.com/2024/04/28/us/politics/biden-netanyahu-israel-cease-fire.html
