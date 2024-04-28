@@ -1,3 +1,7 @@
+**In Northern Israel, Clashes With Hezbollah Drive a Hospital Underground**\
+`Subterranean operations at Galilee Medical Center are a striking example of how life in northern Israel has been upended since Hezbollah began launching near-daily attacks.`\
+https://nytimes.com/2024/04/28/world/middleeast/israel-hospital-lebanon-hezbollah-nahariya.html
+
 **Archie Cooley, Football Coach Known as ‘the Gunslinger,’ Dies at 85**\
 `At Mississippi Valley State University, he unleashed a high-powered, pass-heavy offense that featured the future Pro Football Hall of Famer Jerry Rice.`\
 https://nytimes.com/2024/04/28/sports/football/archie-cooley-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/28/opinion/insurance-patients-profits.html
 **Israel faces a stark dilemma as it weighs whether to invade Rafah.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/04/28/world/israel-gaza-war-hamas/israel-faces-a-stark-dilemma-as-it-weighs-whether-to-invade-rafah
-
-**On This Saturday Night, Colin Jost’s Jokes Fell Flat**\
-`The White House Correspondents’ Association dinner has occasionally featured some great stand-up comedy. This “S.N.L.” veteran’s set will not join that list.`\
-https://nytimes.com/2024/04/28/arts/television/colin-jost-white-house-correspondents-dinner.html
 

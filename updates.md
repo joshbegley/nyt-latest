@@ -1,3 +1,7 @@
+**In Northern Israel, Clashes With Hezbollah Drive a Hospital Underground**\
+`Subterranean operations at Galilee Medical Center are a striking example of how life in northern Israel has been upended since Hezbollah began launching near-daily attacks.`\
+https://nytimes.com/2024/04/28/world/middleeast/israel-hospital-lebanon-hezbollah-nahariya.html
+
 **Archie Cooley, Football Coach Known as ‘the Gunslinger,’ Dies at 85**\
 `At Mississippi Valley State University, he unleashed a high-powered, pass-heavy offense that featured the future Pro Football Hall of Famer Jerry Rice.`\
 https://nytimes.com/2024/04/28/sports/football/archie-cooley-death.html
