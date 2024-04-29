@@ -1,3 +1,7 @@
+**Dam Collapses in Western Kenya, Killing at Least 40**\
+`The country has been pummeled by heavy rains that have caused widespread flooding, part of a broader deluge that has devastated segments of East Africa.`\
+https://nytimes.com/2024/04/29/world/africa/dam-collapse-kenya-africa-floods.html
+
 **Israel will accept the release of 33 hostages at the start of a truce, officials say.**\
 `By Patrick Kingsley and Adam Rasgon`\
 https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/israel-will-accept-the-release-of-33-hostages-at-the-start-of-a-truce-officials-say
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/us/amazon-package-cat-utah-california.html
 **After Mulling Resignation, Spain’s Leader Says He’ll Stay On**\
 `Prime Minister Pedro Sánchez, a progressive with a reputation as a wily survivor, had considered stepping down over corruption accusations against his wife that he says are a smear.`\
 https://nytimes.com/2024/04/29/world/europe/spain-pedro-sanchez.html
-
-**For Trump, a Long Day and a Long Week Ahead**\
-`A political rally in the middle of his trial will be a test of his stamina and demeanor.`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-trial-polls-tipsheet
 
