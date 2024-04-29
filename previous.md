@@ -1,3 +1,7 @@
+**A Mother’s Advocacy Might Have Kept Her Hostage Son Alive**\
+`The world is aware of her campaign. Could Hamas be?`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/gaza-hostages-mother
+
 **Philips Settles CPAP Breathing Device Lawsuits for $1.1 Billion**\
 `Thousands of people with sleep apnea and other illnesses had sued the company, claiming flawed devices were harming them.`\
 https://nytimes.com/2024/04/29/health/cpap-breathing-devices-philips-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/us/politics/rfk-jr-ballot-access.html
 **Taylor Swift’s ‘Tortured Poets’ Breaks Records With Blockbuster Debut**\
 `Only the Beatles have more No. 1 LPs now: The pop superstar reigns atop the Billboard 200 for the 14th time with the equivalent of 2.6 million album sales.`\
 https://nytimes.com/2024/04/29/arts/music/taylor-swifts-tortured-poets-department-billboard-chart.html
-
-**Deadly Israeli strikes hit residential buildings in Rafah, Palestinian news media say.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/deadly-israeli-strikes-hit-residential-buildings-in-rafah-palestinian-news-media-say
 

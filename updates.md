@@ -1,3 +1,7 @@
+**A Mother’s Advocacy Might Have Kept Her Hostage Son Alive**\
+`The world is aware of her campaign. Could Hamas be?`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/gaza-hostages-mother
+
 **Philips Settles CPAP Breathing Device Lawsuits for $1.1 Billion**\
 `Thousands of people with sleep apnea and other illnesses had sued the company, claiming flawed devices were harming them.`\
 https://nytimes.com/2024/04/29/health/cpap-breathing-devices-philips-settlement.html
