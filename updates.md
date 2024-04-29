@@ -1,3 +1,7 @@
+**Israeli Officials Believe I.C.C. Is Preparing Arrest Warrants Over War**\
+`The Israeli officials said they believe that Prime Minister Benjamin Netanyahu may be included. It is not clear who might be charged from Hamas. The prosecutors’ office declined to comment.`\
+https://nytimes.com/2024/04/28/world/middleeast/icc-arrest-warrants-israel-hamas.html
+
 **Quotation of the Day: Covid Class Denied Second Chance at Normal Senior Year**\
 `Quotation of the Day for Monday, April 29, 2024.`\
 https://nytimes.com/2024/04/28/pageoneplus/quotation-of-the-day-covid-class-denied-second-chance-at-normal-senior-year.html
