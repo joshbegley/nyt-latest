@@ -3,8 +3,8 @@
 https://nytimes.com/2024/04/29/arts/television/whats-on-tv-this-week-catfish-and-welcome-to-wrexham.html
 
 **In High-Energy Shanghai, a New Mood: Malaise**\
-`Chinese pride and triumphalism have given way to malaise in the post-Covid era, and the government is blamed.`\
-https://nytimes.com/2024/04/29/opinion/in-high-energy-shanghai-a-new-mood-malaise.html
+`Chinese pride and triumphalism have given way to malaise in the post-Covid era.`\
+https://nytimes.com/2024/04/29/opinion/shanghai-china-covid-economy.html
 
 **Monday Briefing**\
 `The latest push for a cease-fire in Gaza.`\
