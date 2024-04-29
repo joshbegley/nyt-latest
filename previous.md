@@ -1,3 +1,7 @@
+**Quotation of the Day: Covid Class Denied Second Chance at Normal Senior Year**\
+`Quotation of the Day for Monday, April 29, 2024.`\
+https://nytimes.com/2024/04/28/pageoneplus/quotation-of-the-day-covid-class-denied-second-chance-at-normal-senior-year.html
+
 **TikTok Star Is Killed in Third Death of Social Media Influencer in Iraq**\
 `The shooting of Ghufran Mahdi Sawadi, known online as Um Fahad, comes amid tightening laws and increasingly conservative attitudes in the country.`\
 https://nytimes.com/2024/04/28/world/middleeast/tiktok-iraq-killing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/28/us/politics/trump-desantis-meeting.html
 **College Protests Over Gaza Deepen Democratic Rifts**\
 `Scenes of chaos unfolding on campuses across the country are stoking internal divisions and carry political risk as a major election year unfolds.`\
 https://nytimes.com/2024/04/28/us/politics/college-protests-israel-democrats.html
-
-**World Central Kitchen Will Resume Operations in Gaza**\
-`The organization halted aid efforts in the enclave after seven of its workers were killed in an Israeli attack. It said it would resume operations with a local team of Palestinian aid workers.`\
-https://nytimes.com/2024/04/28/world/middleeast/world-central-kitchen-gaza-aid.html
 

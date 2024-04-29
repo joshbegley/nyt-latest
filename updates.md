@@ -1,3 +1,7 @@
+**Quotation of the Day: Covid Class Denied Second Chance at Normal Senior Year**\
+`Quotation of the Day for Monday, April 29, 2024.`\
+https://nytimes.com/2024/04/28/pageoneplus/quotation-of-the-day-covid-class-denied-second-chance-at-normal-senior-year.html
+
 **Israeli Officials Believe I.C.C. Is Preparing Arrest Warrants Over War**\
 `Israeli and Western officials believe the International Criminal Court is preparing arrest warrants for top Israeli and Hamas officials. The prosecutors’ office of the court declined to comment.`\
 https://nytimes.com/2024/04/28/world/middleeast/icc-arrest-warrants-israel-hamas.html
