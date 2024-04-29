@@ -1,3 +1,7 @@
+**Biden reaches out to the leaders of Egypt and Qatar to press for Hamas’s agreement to a new cease-fire.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/biden-reaches-out-to-the-leaders-of-egypt-and-qatar-to-press-for-hamass-agreement-to-a-new-cease-fire
+
 **Israeli Strikes Hit Residential Buildings in Rafah**\
 `Several people were reportedly killed during Israeli airstrikes on the southern city of Rafah, Gaza, where more than a million displaced Gazans have fled.`\
 https://nytimes.com/video/world/middleeast/100000009438269/israeli-strikes-rafah-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/29/us/columbia-administrators-encampment
 **Federal Agencies to Restore Grizzly Bears in Washington State**\
 `Grizzly bears haven’t been seen in the North Cascades range, where they were once a vital part of the ecosystem, in nearly 30 years.`\
 https://nytimes.com/2024/04/29/us/washington-grizzly-bears-return.html
-
-**Universities Face an Urgent Question: What Makes a Protest Antisemitic?**\
-`Pro-Palestinian student activists, many of whom are Jewish, say their movement is anti-Zionist but not antisemitic. It is not a distinction that everyone buys.`\
-https://nytimes.com/2024/04/29/nyregion/college-protests-columbia-campus.html
 
