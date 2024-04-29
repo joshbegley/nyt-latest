@@ -1,3 +1,7 @@
+**Omar Draws Criticism for Suggesting Some Jewish Students Are ‘Pro-Genocide’**\
+`Representative Ilhan Omar made the comments at Columbia University, where her daughter was among the students arrested protesting against Israel’s actions in Gaza. The protests have drawn visits by leaders across the political spectrum.`\
+https://nytimes.com/2024/04/29/us/politics/omar-draws-criticism-for-suggesting-some-jewish-students-are-pro-genocide.html
+
 **Student Protester Is Suspended After Anti-Zionist Video**\
 `Khymani James, a Columbia University student, was barred from campus after his January video resurfaced online last week.`\
 https://nytimes.com/2024/04/29/nyregion/khymani-james-columbia-suspension.html
