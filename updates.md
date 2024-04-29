@@ -1,3 +1,7 @@
+**As Anger Grows Over Gaza, Arab Leaders Crack Down on Protests**\
+`Grief and rage over the war and Israel have led to demonstrations across the Arab world. Arrests suggest governments fear the outrage could boomerang.`\
+https://nytimes.com/2024/04/29/world/middleeast/gaza-arab-protests-crackdown.html
+
 **A Plot to Overthrow Germany’s Government Heads to Court**\
 `A group of conspiracy theorists and an obscure prince are accused of planning to attack Parliament and depose the chancellor. The first trial starts on Monday.`\
 https://nytimes.com/2024/04/29/world/europe/germany-far-right-plot-court.html
