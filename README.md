@@ -1,3 +1,7 @@
+**Tuesday Briefing: Hope Rises for New Cease-Fire Talks**\
+`Also, Russia advances in eastern Ukraine.`\
+https://nytimes.com/2024/04/29/world/asia/israel-hamas-talks-china-musk-asia.html
+
 **The Legacy of a Baseball Legend**\
 `Aguadilla, known as one of Puerto Rico’s best surfing spots, was also the last town where  Roberto Clemente held a youth baseball clinic.`\
 https://nytimes.com/paidpost/discover-puerto-rico/the-legacy-of-a-baseball-legend.html
