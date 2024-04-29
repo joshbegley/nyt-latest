@@ -1,3 +1,7 @@
+**Read the notice from Columbia administrators**\
+`Students in the encampment were told they would be suspended if they did not leave before the deadline.`\
+https://nytimes.com/interactive/2024/04/29/us/columbia-encampment-notice.html
+
 **Federal Agencies to Restore Grizzly Bears in Washington State**\
 `Grizzly bears haven’t been seen in the North Cascades range, where they were once a vital part of the ecosystem, in nearly 30 years.`\
 https://nytimes.com/2024/04/29/us/washington-grizzly-bears-return.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/nyregion/trump-hush-money-trial-witness-cohen.htm
 **A Smooth-Running Gallery Weekend Amid a Shaken Berlin Art Scene**\
 `The annual event brings art collectors to the city, but the spirit of freedom that draws artists there has been damaged by the fallout from the Oct. 7 attacks.`\
 https://nytimes.com/2024/04/29/arts/gallery-weekend-berlin.html
-
-**Environmental Prize Highlights Work to Keep Fossil Fuels at Bay**\
-`Around the world, grass-roots organizers and Indigenous communities are taking proposed coal, oil and gas projects to court — and winning.`\
-https://nytimes.com/2024/04/29/climate/goldman-environmental-prize-winners.html
 

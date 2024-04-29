@@ -1,3 +1,7 @@
+**Read the notice from Columbia administrators**\
+`Students in the encampment were told they would be suspended if they did not leave before the deadline.`\
+https://nytimes.com/interactive/2024/04/29/us/columbia-encampment-notice.html
+
 **Omar Draws Criticism for Suggesting Some Jewish Students Are ‘Pro-Genocide’**\
 `Representative Ilhan Omar made the comments at Columbia University, where her daughter was among the students arrested protesting against Israel’s actions in Gaza. The protests have drawn visits by leaders across the political spectrum.`\
 https://nytimes.com/2024/04/29/us/politics/ilhan-omar-campus-protests.html
