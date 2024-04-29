@@ -1,3 +1,7 @@
+**Omar Draws Criticism for Suggesting Some Jewish Students Are ‘Pro-Genocide’**\
+`Representative Ilhan Omar made the comments at Columbia University, where her daughter was among the students arrested protesting against Israel’s actions in Gaza. The protests have drawn visits by leaders across the political spectrum.`\
+https://nytimes.com/2024/04/29/us/politics/omar-draws-criticism-for-suggesting-some-jewish-students-are-pro-genocide.html
+
 **Student Protester Is Suspended After Anti-Zionist Video**\
 `Khymani James, a Columbia University student, was barred from campus after his January video resurfaced online last week.`\
 https://nytimes.com/2024/04/29/nyregion/khymani-james-columbia-suspension.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/theater/ashe-elfriede-jelinek-muenchner-kammerspi
 **The Campus Protests: Voices From Columbia, Barnard and Beyond**\
 `Sampling the outpouring of responses to the continuing protests on college campuses. Also: The Trump criminal cases; Trump, Pence and abortion.`\
 https://nytimes.com/2024/04/29/opinion/campus-protests-columbia-barnard.html
-
-**Inflation Is Stubborn. Is the Federal Budget Deficit Making It Worse?**\
-`Economists are divided over whether the growing amount of federal borrowing is fueling demand and driving up prices.`\
-https://nytimes.com/2024/04/29/us/politics/fed-inflation-deficit.html
 
