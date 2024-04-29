@@ -1,3 +1,7 @@
+**As Anger Grows Over Gaza, Arab Leaders Crack Down on Protests**\
+`Grief and rage over the war and Israel have led to demonstrations across the Arab world. Arrests suggest governments fear the outrage could boomerang.`\
+https://nytimes.com/2024/04/29/world/middleeast/gaza-arab-protests-crackdown.html
+
 **A Plot to Overthrow Germany’s Government Heads to Court**\
 `A group of conspiracy theorists and an obscure prince are accused of planning to attack Parliament and depose the chancellor. The first trial starts on Monday.`\
 https://nytimes.com/2024/04/29/world/europe/germany-far-right-plot-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/28/world/middleeast/rafah-israel-gaza-war.html
 **Robert F. Kennedy Jr. Says Americans Are ‘Voting Out of Fear’**\
 `At a rally outside New York City, he questioned the nation’s Covid response and returned to a favorite issue: vaccine skepticism.`\
 https://nytimes.com/2024/04/28/us/politics/rfk-jr-long-island-rally.html
-
-**Boots From Office**\
-`Tom Locke makes his New York Times debut.`\
-https://nytimes.com/2024/04/28/crosswords/daily-puzzle-2024-04-29.html
 
