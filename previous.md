@@ -1,3 +1,11 @@
+**What’s on TV This Week: ‘Catfish’ and ‘Welcome to Wrexham’**\
+`The show, hosted by Nev Schulman and Kamie Crawford, begins its ninth season on MTV. Ryan Reynolds and Rob McElhenney’s soccer series on FX is back for Season 3.`\
+https://nytimes.com/2024/04/29/arts/television/whats-on-tv-this-week-catfish-and-welcome-to-wrexham.html
+
+**In High-Energy Shanghai, a New Mood: Malaise**\
+`Chinese pride and triumphalism have given way to malaise in the post-Covid era.`\
+https://nytimes.com/2024/04/29/opinion/shanghai-china-covid-economy.html
+
 **Monday Briefing**\
 `The latest push for a cease-fire in Gaza.`\
 https://nytimes.com/2024/04/29/briefing/israel-hamas-cease-fire-ukraine.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/28/world/middleeast/tiktok-iraq-killing.html
 **PEN America Has Stood By Authors. They Should Stand By PEN.**\
 `PEN America needs to ensure more than one point of view is heard on even the most contentious issue.`\
 https://nytimes.com/2024/04/28/opinion/free-speech-pen-america.html
-
-**Robbi Mecus, Who Helped Foster L.G.B.T.Q. Climbing Community, Dies at 52**\
-`Ms. Mecus, a New York State forest ranger who worked in the Adirondacks, died after falling about 1,000 feet from a peak at Denali National Park and Preserve in Alaska.`\
-https://nytimes.com/2024/04/28/nyregion/robbi-mecus-dead-alaska-denali-park.html
-
-**With Israel Poised to Invade Rafah, Negotiators Try Again for Cease-Fire Deal**\
-`Secretary of State Antony J. Blinken was headed to Saudi Arabia in search of an agreement that would pause the fighting and free hostages held by Hamas.`\
-https://nytimes.com/2024/04/28/world/middleeast/rafah-israel-gaza-war.html
 
