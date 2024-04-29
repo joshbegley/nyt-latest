@@ -1,3 +1,11 @@
+**Hope Rises for New Talks on Gaza Cease-fire as Israel Scales Back Demands**\
+`Israel reduced the initial number of hostages it wants released to 33. If Hamas agrees to attend, negotiations on a cease-fire could resume in Cairo this week.`\
+https://nytimes.com/2024/04/29/world/middleeast/israel-gaza-cease-fire-hostages.html
+
+**New Round of Arrests at University of Texas as Protesters Defy Governor**\
+`Days after a crackdown on pro-Palestinian protesters, at least 50 people were arrested after new tents were erected on the Austin campus.`\
+https://nytimes.com/2024/04/29/us/university-texas-austin-protest-abbott.html
+
 **Biden Team Sees Narrow Window for Deal on Cease-Fire and Hostages in Gaza**\
 `A number of factors have converged to make this a moment when the president might be able to break through the stalemate, advisers say. But their optimism has been dashed before.`\
 https://nytimes.com/2024/04/29/us/politics/biden-israel-gaza-cease-fire.html

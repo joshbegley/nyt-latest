@@ -1,3 +1,7 @@
+**Hope Rises for New Talks on Gaza Cease-fire as Israel Scales Back Demands**\
+`Israel reduced the initial number of hostages it wants released to 33. If Hamas agrees to attend, negotiations on a cease-fire could resume in Cairo this week.`\
+https://nytimes.com/2024/04/29/world/middleeast/israel-gaza-cease-fire-hostages.html
+
 **Biden Team Sees Narrow Window for Deal on Cease-Fire and Hostages in Gaza**\
 `A number of factors have converged to make this a moment when the president might be able to break through the stalemate, advisers say. But their optimism has been dashed before.`\
 https://nytimes.com/2024/04/29/us/politics/biden-israel-gaza-cease-fire.html
@@ -27,14 +31,10 @@ https://nytimes.com/video/us/100000009439462/zebras-washington-highway.html
 https://nytimes.com/live/2024/04/24/opinion/thepoint/musk-tesla-self-driving-cars
 
 **New Round of Arrests at University of Texas as Protesters Defy Governor**\
-`Days after a crackdown on pro-Palestinian protesters, at least 40 people were arrested after erecting tents on the Austin campus.`\
+`Days after a crackdown on pro-Palestinian protesters, at least 50 people were arrested after new tents were erected on the Austin campus.`\
 https://nytimes.com/2024/04/29/us/university-texas-austin-protest-abbott.html
 
 **Tuesday Briefing: Hope Rises for New Cease-Fire Talks**\
 `Also, Russia advances in eastern Ukraine.`\
 https://nytimes.com/2024/04/29/world/asia/israel-hamas-talks-china-musk-asia.html
-
-**The Legacy of a Baseball Legend**\
-`Aguadilla, known as one of Puerto Rico’s best surfing spots, was also the last town where  Roberto Clemente held a youth baseball clinic.`\
-https://nytimes.com/paidpost/discover-puerto-rico/the-legacy-of-a-baseball-legend.html
 
