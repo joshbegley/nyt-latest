@@ -1,3 +1,7 @@
+**Museums to Visit in California This Year**\
+`A special section of The New York Times on museums highlights art across the state.`\
+https://nytimes.com/2024/04/29/us/museums-california.html
+
 **Dam Collapses in Western Kenya, Killing at Least 40**\
 `The country has been pummeled by heavy rains that have caused widespread flooding, part of a broader deluge that has devastated segments of East Africa.`\
 https://nytimes.com/2024/04/29/world/africa/dam-collapse-kenya-africa-floods.html

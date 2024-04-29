@@ -1,3 +1,7 @@
+**Museums to Visit in California This Year**\
+`A special section of The New York Times on museums highlights art across the state.`\
+https://nytimes.com/2024/04/29/us/museums-california.html
+
 **Dam Collapses in Western Kenya, Killing at Least 40**\
 `The country has been pummeled by heavy rains that have caused widespread flooding, part of a broader deluge that has devastated segments of East Africa.`\
 https://nytimes.com/2024/04/29/world/africa/dam-collapse-kenya-africa-floods.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/podcasts/cease-fire-college-protests.html
 **Stowaway Cat Gets From Utah to California in Amazon Returns Package**\
 `Galena, a 6-year-old shorthair, was found in an Amazon warehouse a week after she climbed into a 3-by-3-foot cardboard box at her owner’s home.`\
 https://nytimes.com/2024/04/29/us/amazon-package-cat-utah-california.html
-
-**After Mulling Resignation, Spain’s Leader Says He’ll Stay On**\
-`Prime Minister Pedro Sánchez, a progressive with a reputation as a wily survivor, had considered stepping down over corruption accusations against his wife that he says are a smear.`\
-https://nytimes.com/2024/04/29/world/europe/spain-pedro-sanchez.html
 
