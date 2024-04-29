@@ -8,7 +8,7 @@ https://nytimes.com/2024/04/29/dining/black-forest-cake.html
 
 **Read the Notice From Columbia Administrators**\
 `Students in the encampment were told they would be suspended if they did not leave before the deadline.`\
-https://nytimes.com/interactive/2024/04/29/us/25600615-b9ed-4a46-bfc9-d0b0c35848d0.html
+https://nytimes.com/interactive/2024/04/29/us/columbia-administrators-encampment.html
 
 **Federal Agencies to Restore Grizzly Bears in Washington State**\
 `Grizzly bears haven’t been seen in the North Cascades range, where they were once a vital part of the ecosystem, in nearly 30 years.`\
