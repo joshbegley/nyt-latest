@@ -1,3 +1,7 @@
+**N.Y.U. Says It Will Discipline Students Who Remain in Encampment**\
+`The university had set a noon deadline for an end to overnight stays at the site, but students remained there on Monday afternoon.`\
+https://nytimes.com/2024/04/29/nyregion/nyu-protest-encampment.html
+
 **Kamala Harris Leads Push to Shore Up Democratic Support From Black Voters**\
 `Speaking in Atlanta, the vice president began a national tour to highlight how the Biden administration is trying to help Black Americans economically.`\
 https://nytimes.com/2024/04/29/us/politics/kamala-harris-atlanta.html
