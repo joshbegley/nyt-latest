@@ -1,3 +1,11 @@
+**Dam Collapses in Western Kenya, Killing at Least 40**\
+`The country has been pummeled by heavy rains that have caused widespread flooding, part of a broader deluge that has devastated segments of East Africa.`\
+https://nytimes.com/2024/04/29/world/africa/dam-collapse-kenya-africa-floods.html
+
+**Ukraine Retreats From Villages on Eastern Front as It Awaits U.S. Aid**\
+`Ukraine’s top commander said his outgunned troops were facing a dire situation as Russia tried to push its advantage before the first batch of an American military package arrives.`\
+https://nytimes.com/2024/04/29/world/europe/ukraine-russia-war-latest.html
+
 **Humza Yousaf Resigns as Scotland’s First Minister**\
 `Mr. Yousaf, the leader of the Scottish National Party, announced that he was stepping down, days after the collapse of his coalition government.`\
 https://nytimes.com/2024/04/29/world/europe/scotland-humza-yousaf-resigns-snp.html
