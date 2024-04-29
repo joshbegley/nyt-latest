@@ -27,7 +27,7 @@ https://nytimes.com/2024/04/28/us/politics/rfk-jr-long-island-rally.html
 https://nytimes.com/2024/04/28/crosswords/daily-puzzle-2024-04-29.html
 
 **Israeli Officials Believe I.C.C. Is Preparing Arrest Warrants Over War**\
-`Israeli and Western officials believe the International Criminal Court is preparing arrest warrants for top Israeli and Hamas officials. The prosecutors’ office of the court declined to comment.`\
+`The Israeli officials said they believe that Prime Minister Benjamin Netanyahu may be included. It is not clear who might be charged from Hamas. The prosecutors’ office declined to comment.`\
 https://nytimes.com/2024/04/28/world/middleeast/icc-arrest-warrants-israel-hamas.html
 
 **Trump and DeSantis Meet for First Time Since Bruising Primary**\
