@@ -1,40 +1,40 @@
-**Philippines Closes Schools as Heat Soars to ‘Danger’ Level**\
-`Scorching temperatures coincided with a nationwide strike of jeepneys, the main mode of public transport in the country.`\
-https://nytimes.com/2024/04/29/world/asia/philippines-heat-schools-jeepney.html
+**Are We All Really Supposed to Wear Cargo Pants?**\
+`A reader tries to square the style’s enduring appeal with her own reluctance to wear them.`\
+https://nytimes.com/2024/04/29/style/cargo-pants.html
 
-**The Aggressive and Expensive Legal Team Defending Mayor Adams**\
-`With Mayor Eric Adams and his top aides facing several investigations, he is amassing a team of high-powered lawyers paid by his donors and city taxpayers.`\
-https://nytimes.com/2024/04/29/nyregion/eric-adams-lawyers.html
+**Where Third-Party and Independent Candidates Are On The Ballot**\
+`For presidential candidates who are not the Republican or Democratic Party nominee, getting on the ballot for the general election is a state-by-state, make-or-break scramble.`\
+https://nytimes.com/interactive/2024/04/29/us/politics/presidential-candidates-third-party-independent.html
 
-**Today’s Wordle Review No. 1,045**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/29/crosswords/wordle-review.html
+**Can Nonprofit News Save the South From Itself?**\
+`If old school public-service journalism can make it anywhere, it can make it here.`\
+https://nytimes.com/2024/04/29/opinion/nonprofit-media-journalism.html
 
-**The Connections Companion No. 323**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/29/crosswords/connections-companion.html
+**Student Protest Is an Essential Part of Education**\
+`Student protests at their core are really an extension of education by other means.`\
+https://nytimes.com/2024/04/29/opinion/student-protests-columbia-israel.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/29/crosswords/spelling-bee-forum.html
+**With Abortion and the Border, Arizona Becomes a 2024 Political Hothouse**\
+`A battle over abortion bans and criminal charges against allies of former President Donald J. Trump continue to raise the state’s election-year profile.`\
+https://nytimes.com/2024/04/29/us/abortion-border-arizona-2024-election.html
 
-**Word of the Day: grueling**\
-`This word has appeared in 380 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/04/29/learning/word-of-the-day-grueling.html
+**How ‘History and Tradition’ Rulings Are Changing American Law**\
+`A new legal standard is gaining traction among conservative judges — one that might turn back the clock on drag shows, gun restrictions and more.`\
+https://nytimes.com/2024/04/29/magazine/history-tradition-law-conservative-judges.html
 
-**Blinken will meet with Arab and European officials to discuss postwar plans for Gaza.**\
-`By Edward Wong`\
-https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/blinken-will-also-meet-with-european-officials-to-discuss-post-war-plans-for-gaza
+**A TikTok Divestiture Is Long Overdue**\
+`With its TikTok bill, Congress sent message to the world: You cannot disregard basic internet norms and expect to be treated like any other country.`\
+https://nytimes.com/2024/04/29/opinion/tiktok-divestiture.html
 
-**What’s on TV This Week: ‘Catfish’ and ‘Welcome to Wrexham’**\
-`The show, hosted by Nev Schulman and Kamie Crawford, begins its ninth season on MTV. Ryan Reynolds and Rob McElhenney’s soccer series on FX is back for Season 3.`\
-https://nytimes.com/2024/04/29/arts/television/whats-on-tv-this-week-catfish-and-welcome-to-wrexham.html
+**Young, Cool, Coddled and Raised on the Internet**\
+`The best stories in Honor Levy’s “My First Book” capture the quiet desperation of today’s smart set. But there is such a thing as publishing too soon.`\
+https://nytimes.com/2024/04/29/books/review/my-first-book-honor-levy.html
 
-**In High-Energy Shanghai, a New Mood: Malaise**\
-`Chinese pride and triumphalism have given way to malaise in the post-Covid era.`\
-https://nytimes.com/2024/04/29/opinion/shanghai-china-covid-economy.html
+**What Should Be Done About the Gender Pay Gap in Sports?**\
+`Caitlin Clark’s rookie salary in the W.N.B.A. is a fraction of the multimillion dollar contract that Victor Wembanyama signed last year.`\
+https://nytimes.com/2024/04/29/learning/what-should-be-done-about-the-gender-pay-gap-in-sports.html
 
-**Monday Briefing**\
-`The latest push for a cease-fire in Gaza.`\
-https://nytimes.com/2024/04/29/briefing/israel-hamas-cease-fire-ukraine.html
+**Florida Abortion Ban to Take Effect, Cutting Off Major Access Point**\
+`The state has dozens of clinics that serve tens of thousands of women a year, including from across the Southeast. The six-week ban will require most to travel much farther.`\
+https://nytimes.com/2024/04/29/us/florida-abortion-ban-to-take-effect-cutting-off-major-access-point.html
 
