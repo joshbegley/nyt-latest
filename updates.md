@@ -1,3 +1,7 @@
+**Ukraine Retreats From Villages on Eastern Front as It Awaits U.S. Aid**\
+`Kyiv’s top commander said his outgunned troops were facing a dire situation, while Russia tried to push its advantage before the first batch of an American military package arrives.`\
+https://nytimes.com/2024/04/29/world/europe/ukraine-russia-war-latest.html
+
 **After Mulling Resignation, Spain’s Leader Says He’ll Stay On**\
 `Prime Minister Pedro Sánchez, a progressive with a reputation as a wily survivor, had considered stepping down over corruption accusations against his wife that he says are a smear.`\
 https://nytimes.com/2024/04/29/world/europe/spain-pedro-sanchez.html
