@@ -1,3 +1,7 @@
+**After Looking for Love on TV, a ‘Bachelor’ Finds His Wife on Instagram**\
+`When Natalie Joy sent Nick Viall a direct message in 2019, she said she had no idea about his run on reality TV. About a year after meeting in person, their casual arrangement got serious.`\
+https://nytimes.com/2024/04/29/style/bachelor-nick-viall-natalie-joy-wedding.html
+
 **Inflation Is Stubborn. Is the Federal Budget Deficit Making It Worse?**\
 `Economists are divided over whether the growing amount of federal borrowing is fueling demand and driving up prices.`\
 https://nytimes.com/2024/04/29/us/politics/fed-inflation-deficit.html
