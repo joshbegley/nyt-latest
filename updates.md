@@ -1,3 +1,7 @@
+**Blinken will meet with Arab and European officials to discuss postwar plans for Gaza.**\
+`By Edward Wong`\
+https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/blinken-will-also-meet-with-european-officials-to-discuss-post-war-plans-for-gaza
+
 **Philippines Closes Schools as Heat Soars to ‘Danger’ Level**\
 `Scorching temperatures coincided with a nationwide strike of jeepneys, the main mode of public transport in the country.`\
 https://nytimes.com/2024/04/29/world/asia/philippines-heat-schools-jeepney.html
