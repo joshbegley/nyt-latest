@@ -1,3 +1,11 @@
+**Read the Notice From Columbia Administrators**\
+`Students in the encampment were told they would be suspended if they did not leave before the deadline.`\
+https://nytimes.com/interactive/2024/04/29/us/columbia-administrators-encampment.html
+
+**A Student Orchestra Shouts ‘Mambo!’ and Meets Gustavo Dudamel**\
+`Our photographer followed 95 young musicians for six days as they prepared to perform with Dudamel, the next music director of the New York Philharmonic.`\
+https://nytimes.com/2024/04/29/arts/music/student-orchestra-dudamel-philharmonic.html
+
 **Class of 2024, It’s Not in Your Head: The Job Market Is Tough.**\
 `College-level jobs still pay a lot more overall, but not every grad can get one.`\
 https://nytimes.com/2024/04/29/opinion/college-graduates-job-market.html
