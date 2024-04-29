@@ -1,3 +1,11 @@
+**The Biden-Trump face-off settles into an odd rhythm, with Trump largely off the campaign trail.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/04/29/us/biden-trump-campaign/the-biden-trump-face-off-settles-into-an-odd-rhythm-with-trump-largely-off-the-campaign-trail
+
+**Israel will accept the release of 33 hostages at the start of a truce, officials say.**\
+`By Patrick Kingsley and Adam Rasgon`\
+https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/israel-hostages-hamas-deal
+
 **Watch a Tap Dance That Transcends Time**\
 `By Gia Kourlas`\
 https://nytimes.com/card/2024/04/29/arts/dance/ayodele-casel-max-roach-tap

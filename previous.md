@@ -1,3 +1,7 @@
+**The Biden-Trump face-off settles into an odd rhythm, with Trump largely off the campaign trail.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/04/29/us/biden-trump-campaign/the-biden-trump-face-off-settles-into-an-odd-rhythm-with-trump-largely-off-the-campaign-trail
+
 **Watch a Tap Dance That Transcends Time**\
 `By Gia Kourlas`\
 https://nytimes.com/card/2024/04/29/arts/dance/ayodele-casel-max-roach-tap
@@ -12,7 +16,7 @@ https://nytimes.com/2024/04/29/world/africa/dam-collapse-kenya-africa-floods.htm
 
 **Israel will accept the release of 33 hostages at the start of a truce, officials say.**\
 `By Patrick Kingsley and Adam Rasgon`\
-https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/israel-will-accept-the-release-of-33-hostages-at-the-start-of-a-truce-officials-say
+https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/israel-hostages-hamas-deal
 
 **Who Gains From Elon Musk’s Visit to China?**\
 `Tesla’s C.E.O. appears to have landed a deal that moves the company closer to bringing fully autonomous driving to a giant market. But Beijing is keen to exploit the visit for its own purposes.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/briefing/trump-trial.html
 **Trump 2.0: What a Second Trump Presidency Would Bring**\
 `On the campaign trail, Donald Trump has signaled that a second term would be more radical and vindictive than his first one.`\
 https://nytimes.com/2024/04/29/podcasts/the-daily/second-trump-presidency.html
-
-**The Latest Push for a Gaza Pause, and Crackdowns on College Protests**\
-`Plus, a debate about killing owls.`\
-https://nytimes.com/2024/04/29/podcasts/cease-fire-college-protests.html
 
