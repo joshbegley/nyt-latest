@@ -1,3 +1,15 @@
+**A Smooth-Running Gallery Weekend Amid a Shaken Berlin Art Scene**\
+`The annual event brings art collectors to the city, but the spirit of freedom that draws artists there has been damaged by the fallout from the Oct. 7 attacks.`\
+https://nytimes.com/2024/04/29/arts/gallery-weekend-berlin.html
+
+**Environmental Prize Highlights Work to Keep Fossil Fuels at Bay**\
+`Around the world, grass-roots organizers and Indigenous communities are taking proposed coal, oil and gas projects to court — and winning.`\
+https://nytimes.com/2024/04/29/climate/goldman-environmental-prize-winners.html
+
+**A Peek Inside the Brains of ‘Super-Agers’**\
+`New research explores why some octogenarians have exceptional memories.`\
+https://nytimes.com/2024/04/29/well/mind/super-agers-study.html
+
 **After Looking for Love on TV, a ‘Bachelor’ Finds His Wife on Instagram**\
 `When Natalie Joy sent Nick Viall a direct message in 2019, she said she had no idea about his run on reality TV. About a year after meeting in person, their casual arrangement got serious.`\
 https://nytimes.com/2024/04/29/style/bachelor-nick-viall-natalie-joy-wedding.html
