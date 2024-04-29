@@ -1,3 +1,7 @@
+**Spain’s Leader Declares He Won’t Quit**\
+`Prime Minister Pedro Sánchez, a progressive with a reputation as a wily survivor, sought to end days of anxiety over corruption allegations against his wife that he says are a smear.`\
+https://nytimes.com/2024/04/29/world/europe/spain-pedro-sanchez.html
+
 **For Trump, a Long Day and a Long Week Ahead**\
 `A political rally in the middle of his trial will be a test of his stamina and demeanor.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-trial-polls-tipsheet
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/us/abortion-border-arizona-2024-election.html
 **How ‘History and Tradition’ Rulings Are Changing American Law**\
 `A new legal standard is gaining traction among conservative judges — one that might turn back the clock on drag shows, gun restrictions and more.`\
 https://nytimes.com/2024/04/29/magazine/history-tradition-law-conservative-judges.html
-
-**A TikTok Divestiture Is Long Overdue**\
-`With its TikTok bill, Congress sent message to the world: You cannot disregard basic internet norms and expect to be treated like any other country.`\
-https://nytimes.com/2024/04/29/opinion/tiktok-divestiture.html
 
