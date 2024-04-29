@@ -1,3 +1,7 @@
+**Humza Yousaf Resigns as Scotland’s First Minister, in Fresh Blow to S.N.P.**\
+`Mr. Yousaf, the leader of the Scottish National Party, announced that he was stepping down, days after the collapse of his coalition government.`\
+https://nytimes.com/2024/04/29/world/europe/scotland-humza-yousaf-resigns-snp.html
+
 **Delay, Delay, Delay**\
 `How Donald Trump has slowed the cases against him.`\
 https://nytimes.com/2024/04/29/briefing/trump-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/us/politics/libre-koch-biden-economy.html
 **Are We All Really Supposed to Wear Cargo Pants?**\
 `A reader tries to square the style’s enduring appeal with her own reluctance to wear them.`\
 https://nytimes.com/2024/04/29/style/cargo-pants.html
-
-**Where Third-Party and Independent Candidates Are On The Ballot**\
-`For presidential candidates who are not the Republican or Democratic Party nominee, getting on the ballot for the general election is a state-by-state, make-or-break scramble.`\
-https://nytimes.com/interactive/2024/04/29/us/politics/presidential-candidates-third-party-independent.html
 
