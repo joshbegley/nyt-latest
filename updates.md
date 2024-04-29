@@ -1,3 +1,7 @@
+**Stowaway Cat Gets From Utah to California in Amazon Returns Package**\
+`Galena, a 6-year-old shorthair, was found in an Amazon warehouse a week after she climbed into a 3-by-3-foot cardboard box at her owner’s home.`\
+https://nytimes.com/2024/04/29/us/amazon-package-cat-utah-california.html
+
 **Spain’s Leader Declares He Won’t Quit**\
 `Prime Minister Pedro Sánchez, a progressive with a reputation as a wily survivor, sought to end days of anxiety over corruption allegations against his wife that he says are a smear.`\
 https://nytimes.com/2024/04/29/world/europe/spain-pedro-sanchez.html
