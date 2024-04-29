@@ -1,3 +1,7 @@
+**N.Y.U. Says It Will Discipline Students Who Remain in Encampment**\
+`The university had set a noon deadline for an end to overnight stays at the site, but students remained there on Monday afternoon.`\
+https://nytimes.com/2024/04/29/nyregion/nyu-protest-encampment.html
+
 **Kamala Harris Leads Push to Shore Up Democratic Support From Black Voters**\
 `Speaking in Atlanta, the vice president began a national tour to highlight how the Biden administration is trying to help Black Americans economically.`\
 https://nytimes.com/2024/04/29/us/politics/kamala-harris-atlanta.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/29/books/review/western-novels-quiz.html
 **Biden and Mexico’s President Vow Combined Action on Illegal Immigration**\
 `President Biden is under intense political pressure, including from within his own party, to address migration before the election.`\
 https://nytimes.com/2024/04/29/us/politics/biden-mexico-illegal-immigration.html
-
-**Blue Ivy Carter to Join Beyoncé in ‘Mufasa: The Lion King’**\
-`Beyoncé’s 12-year-old daughter will make her feature film debut as Kiara, Nala and Simba’s daughter, in a prequel to the 2019 hit.`\
-https://nytimes.com/2024/04/29/movies/blue-ivy-beyonce-mufasa-lion-king.html
 
