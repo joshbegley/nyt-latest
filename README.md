@@ -1,3 +1,11 @@
+**4 Zebras Broke Free on a Highway. A Rodeo Clown Stepped In.**\
+`One zebra was still on the loose, after it and three others escaped a trailer in North Bend, Wash. Dozens of people scrambled to help and corralled some of the animals.`\
+https://nytimes.com/2024/04/29/us/zebras-washington-state-highway.html
+
+**Why an Immunity Ruling in Trump’s Favor Might Not Alter the Shape of His Trial**\
+`Prosecutors believe Donald J. Trump’s official acts in trying to overturn the election should be admissible evidence even if the Supreme Court rules they cannot be the basis of the charges.`\
+https://nytimes.com/2024/04/29/us/politics/immunity-trump-supreme-court.html
+
 **A D.A. Was Caught Speeding. Her Outburst Earned Her More Than a Ticket.**\
 `Sandra Doorley, the district attorney of Monroe County, N.Y., refused to pull over and responded angrily to the officer who confronted her, body camera footage showed. Now she faces calls to resign.`\
 https://nytimes.com/2024/04/29/nyregion/monroe-county-da-sandra-doorley.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/arab-ministers-p
 **A Strong U.S. Dollar Weighs on the World**\
 `Two-thirds of the roughly 150 currencies have weakened against the dollar, whose strength stems from high interest rates because of stubborn inflation.`\
 https://nytimes.com/2024/04/29/business/a-strong-us-dollar-weighs-on-the-world.html
-
-**A Student Orchestra Shouts ‘Mambo!’ and Meets Gustavo Dudamel**\
-`Our photographer followed 95 young musicians for six days as they prepared to perform with Dudamel, the next music director of the New York Philharmonic.`\
-https://nytimes.com/2024/04/29/arts/music/student-orchestra-dudamel-philharmonic.html
-
-**Omar Draws Criticism for Suggesting Some Jewish Students Are ‘Pro-Genocide’**\
-`Representative Ilhan Omar made the comments at Columbia University, where her daughter was among the students arrested protesting against Israel’s actions in Gaza. The protests have drawn visits by leaders across the political spectrum.`\
-https://nytimes.com/2024/04/29/us/politics/ilhan-omar-campus-protests.html
 
