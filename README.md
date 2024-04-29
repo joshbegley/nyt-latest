@@ -1,3 +1,7 @@
+**Deadly Israeli strikes hit residential buildings in Rafah, Palestinian news media say.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/deadly-israeli-strikes-hit-residential-buildings-in-rafah-palestinian-news-media-say
+
 **Hamas Fires Rockets Into Israel from Lebanon**\
 `The launches, nearly all of which Israel shot down, were an apparent attempt by the group to show it remains a threat even as the war has degraded its military capabilities in Gaza.`\
 https://nytimes.com/2024/04/29/world/middleeast/hamas-rockets-israel-lebanon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/business/dealbook/musk-tesla-china-visit.html
 **Ukraine Retreats From Villages on Eastern Front as It Awaits U.S. Aid**\
 `Ukraine’s top commander said his outgunned troops were facing a dire situation as Russia tried to push its advantage before the first batch of an American military package arrives.`\
 https://nytimes.com/2024/04/29/world/europe/ukraine-russia-war-latest.html
-
-**Humza Yousaf Resigns as Scotland’s First Minister**\
-`Mr. Yousaf, the leader of the Scottish National Party, announced that he was stepping down, days after the collapse of his coalition government.`\
-https://nytimes.com/2024/04/29/world/europe/scotland-humza-yousaf-resigns-snp.html
 
