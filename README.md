@@ -1,3 +1,11 @@
+**Student Protester Is Suspended After Anti-Zionist Video**\
+`Khymani James, a Columbia University student, was barred from campus after his January video resurfaced online last week.`\
+https://nytimes.com/2024/04/29/nyregion/khymani-james-columbia-suspension.html
+
+**Right-Wing Network Retracts False Story About Key Witness in Trump Trial**\
+`Michael D. Cohen’s lawyers took on OAN over the false story. The settlement came as right-wing news outlets face a barrage of defamation suits.`\
+https://nytimes.com/2024/04/29/nyregion/trump-hush-money-trial-witness-cohen.html
+
 **A Smooth-Running Gallery Weekend Amid a Shaken Berlin Art Scene**\
 `The annual event brings art collectors to the city, but the spirit of freedom that draws artists there has been damaged by the fallout from the Oct. 7 attacks.`\
 https://nytimes.com/2024/04/29/arts/gallery-weekend-berlin.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/29/opinion/campus-protests-columbia-barnard.html
 **Inflation Is Stubborn. Is the Federal Budget Deficit Making It Worse?**\
 `Economists are divided over whether the growing amount of federal borrowing is fueling demand and driving up prices.`\
 https://nytimes.com/2024/04/29/us/politics/fed-inflation-deficit.html
-
-**A Mother’s Advocacy Might Have Kept Her Hostage Son Alive**\
-`The world is aware of her campaign. Could Hamas be?`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/gaza-hostages-mother
-
-**Philips Settles CPAP Breathing Device Lawsuits for $1.1 Billion**\
-`Thousands of people with sleep apnea and other illnesses had sued the company, claiming flawed devices were harming them.`\
-https://nytimes.com/2024/04/29/health/cpap-breathing-devices-philips-settlement.html
 
