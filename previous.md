@@ -1,3 +1,7 @@
+**Federal Agencies to Restore Grizzly Bears in Washington State**\
+`Grizzly bears haven’t been seen in the North Cascades range, where they were once a vital part of the ecosystem, in nearly 30 years.`\
+https://nytimes.com/2024/04/29/us/washington-grizzly-bears-return.html
+
 **Universities Face an Urgent Question: What Makes a Protest Antisemitic?**\
 `Pro-Palestinian student activists, many of whom are Jewish, say their movement is anti-Zionist but not antisemitic. It is not a distinction that everyone buys.`\
 https://nytimes.com/2024/04/29/nyregion/college-protests-columbia-campus.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/arts/gallery-weekend-berlin.html
 **Environmental Prize Highlights Work to Keep Fossil Fuels at Bay**\
 `Around the world, grass-roots organizers and Indigenous communities are taking proposed coal, oil and gas projects to court — and winning.`\
 https://nytimes.com/2024/04/29/climate/goldman-environmental-prize-winners.html
-
-**A Peek Inside the Brains of ‘Super-Agers’**\
-`New research explores why some octogenarians have exceptional memories.`\
-https://nytimes.com/2024/04/29/well/mind/super-agers-study.html
 
