@@ -1,3 +1,15 @@
+**A Plot to Overthrow Germany’s Government Heads to Court**\
+`A group of conspiracy theorists and an obscure prince are accused of planning to attack Parliament and depose the chancellor. The first trial starts on Monday.`\
+https://nytimes.com/2024/04/29/world/europe/germany-far-right-plot-court.html
+
+**A.I. Start-Ups Face a Rough Financial Reality Check**\
+`The table stakes for small companies to compete with the likes of Microsoft and Google are in the billions of dollars. And even that may not be enough.`\
+https://nytimes.com/2024/04/29/technology/ai-startups-financial-reality.html
+
+**Friends From the Old Neighborhood Turn Rivals in Big Tech’s A.I. Race**\
+`Demis Hassabis and Mustafa Suleyman, who both grew up in London, feared a corporate rush to build artificial intelligence. Now they’re driving that competition at Google and Microsoft.`\
+https://nytimes.com/2024/04/29/technology/friends-from-the-old-neighborhood-turn-rivals-in-big-techs-ai-race.html
+
 **Quotation of the Day: Covid Class Denied Second Chance at Normal Senior Year**\
 `Quotation of the Day for Monday, April 29, 2024.`\
 https://nytimes.com/2024/04/28/pageoneplus/quotation-of-the-day-covid-class-denied-second-chance-at-normal-senior-year.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/28/us/politics/rfk-jr-long-island-rally.html
 **Boots From Office**\
 `Tom Locke makes his New York Times debut.`\
 https://nytimes.com/2024/04/28/crosswords/daily-puzzle-2024-04-29.html
-
-**Israeli Officials Believe I.C.C. Is Preparing Arrest Warrants Over War**\
-`The officials said they believed that Prime Minister Benjamin Netanyahu and other Israelis could be charged, and that the court was also considering warrants for Hamas leaders.`\
-https://nytimes.com/2024/04/28/world/middleeast/icc-arrest-warrants-israel-hamas.html
-
-**Trump and DeSantis Meet for First Time Since Bruising Primary**\
-`The former president and his vanquished rival met in Florida, months after Ron DeSantis dropped out after a contentious Republican contest.`\
-https://nytimes.com/2024/04/28/us/politics/trump-desantis-meeting.html
-
-**College Protests Over Gaza Deepen Democratic Rifts**\
-`Scenes of chaos unfolding on campuses across the country are stoking internal divisions and carry political risk as a major election year unfolds.`\
-https://nytimes.com/2024/04/28/us/politics/college-protests-israel-democrats.html
 
