@@ -1,4 +1,4 @@
-**Blinken will also meet with European officials to discuss post war plans for Gaza.**\
+**Blinken will meet with Arab and European officials to discuss post war plans for Gaza.**\
 `By Edward Wong`\
 https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/blinken-will-also-meet-with-european-officials-to-discuss-post-war-plans-for-gaza
 
