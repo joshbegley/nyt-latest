@@ -1,3 +1,7 @@
+**Israel is open to a truce involving an initial release of 33 hostages, officials say.**\
+`By Patrick Kingsley and Adam Rasgon`\
+https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/israel-hostages-hamas-deal
+
 **Tesla Reaches Deals in China on Self-Driving Cars**\
 `Elon Musk met with the country’s premier, a longtime Tesla ally, and secured regulatory nods and a necessary partnership with a Chinese tech company.`\
 https://nytimes.com/2024/04/29/business/elon-musk-tesla-china-full-self-driving.html
