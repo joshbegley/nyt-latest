@@ -1,3 +1,7 @@
+**Philips Settles CPAP Breathing Device Lawsuits for $1.1 Billion**\
+`Thousands of people with sleep apnea and other illnesses had sued the company, claiming flawed devices were harming them.`\
+https://nytimes.com/2024/04/29/health/cpap-breathing-devices-philips-settlement.html
+
 **Skydance Offers Paramount a Deal Sweetener: A $3 Billion Cash Infusion**\
 `The terms of the new deal would provide Paramount shareholders with an investment to pay down debt and buy back stock.`\
 https://nytimes.com/2024/04/29/business/media/skydance-paramount-deal.html
