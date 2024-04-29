@@ -14,7 +14,7 @@ https://nytimes.com/2024/04/29/podcasts/cease-fire-college-protests.html
 `Galena, a 6-year-old shorthair, was found in an Amazon warehouse a week after she climbed into a 3-by-3-foot cardboard box at her owner’s home.`\
 https://nytimes.com/2024/04/29/us/amazon-package-cat-utah-california.html
 
-**Spain’s Leader Declares He Won’t Quit**\
+**After Mulling Resignation, Spain’s Leader Says He’ll Stay On**\
 `Prime Minister Pedro Sánchez, a progressive with a reputation as a wily survivor, sought to end days of anxiety over corruption allegations against his wife that he says are a smear.`\
 https://nytimes.com/2024/04/29/world/europe/spain-pedro-sanchez.html
 

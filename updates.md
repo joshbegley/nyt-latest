@@ -1,3 +1,7 @@
+**After Mulling Resignation, Spain’s Leader Says He’ll Stay On**\
+`Prime Minister Pedro Sánchez, a progressive with a reputation as a wily survivor, sought to end days of anxiety over corruption allegations against his wife that he says are a smear.`\
+https://nytimes.com/2024/04/29/world/europe/spain-pedro-sanchez.html
+
 **Delay, Delay, Delay**\
 `How Donald Trump has slowed the cases against him.`\
 https://nytimes.com/2024/04/29/briefing/trump-trial.html
