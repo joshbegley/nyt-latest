@@ -10,7 +10,7 @@ https://nytimes.com/2024/04/29/business/dealbook/musk-tesla-china-visit.html
 `Kyiv’s top commander said his outgunned troops were facing a dire situation, while Russia tried to push its advantage before the first batch of an American military package arrives.`\
 https://nytimes.com/2024/04/29/world/europe/ukraine-russia-war-latest.html
 
-**Humza Yousaf Resigns as Scotland’s First Minister, in Fresh Blow to S.N.P.**\
+**Humza Yousaf Resigns as Scotland’s First Minister**\
 `Mr. Yousaf, the leader of the Scottish National Party, announced that he was stepping down, days after the collapse of his coalition government.`\
 https://nytimes.com/2024/04/29/world/europe/scotland-humza-yousaf-resigns-snp.html
 

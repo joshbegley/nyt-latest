@@ -1,3 +1,7 @@
+**Humza Yousaf Resigns as Scotland’s First Minister**\
+`Mr. Yousaf, the leader of the Scottish National Party, announced that he was stepping down, days after the collapse of his coalition government.`\
+https://nytimes.com/2024/04/29/world/europe/scotland-humza-yousaf-resigns-snp.html
+
 **Israel will accept the release of 33 hostages at the start of a truce, officials say.**\
 `By Patrick Kingsley and Adam Rasgon`\
 https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/israel-will-accept-the-release-of-33-hostages-at-the-start-of-a-truce-officials-say
