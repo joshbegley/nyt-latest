@@ -1,3 +1,15 @@
+**For Trump, a Long Day and a Long Week Ahead**\
+`A political rally in the middle of his trial will be a test of his stamina and demeanor.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-trial-polls-tipsheet
+
+**Amid Cases on Abortion and Trump, Roberts Reflects on Supreme Court’s Work**\
+`Oral arguments serve a crucial role at the Supreme Court, Chief Justice John Roberts said last week at Georgetown University. But they are not always what they seem.`\
+https://nytimes.com/2024/04/29/us/john-roberts-supreme-court-immunity-abortion.html
+
+**Koch Group Attacks Biden on the Economy, Hoping to Engage Latino Voters**\
+`Libre, an arm of the conservative network, is set to spend millions of dollars on outreach and advertising as Republicans seek to expand inroads with Hispanic voters.`\
+https://nytimes.com/2024/04/29/us/politics/libre-koch-biden-economy.html
+
 **Are We All Really Supposed to Wear Cargo Pants?**\
 `A reader tries to square the style’s enduring appeal with her own reluctance to wear them.`\
 https://nytimes.com/2024/04/29/style/cargo-pants.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/29/magazine/history-tradition-law-conservative-judge
 **A TikTok Divestiture Is Long Overdue**\
 `With its TikTok bill, Congress sent message to the world: You cannot disregard basic internet norms and expect to be treated like any other country.`\
 https://nytimes.com/2024/04/29/opinion/tiktok-divestiture.html
-
-**Young, Cool, Coddled and Raised on the Internet**\
-`The best stories in Honor Levy’s “My First Book” capture the quiet desperation of today’s smart set. But there is such a thing as publishing too soon.`\
-https://nytimes.com/2024/04/29/books/review/my-first-book-honor-levy.html
-
-**What Should Be Done About the Gender Pay Gap in Sports?**\
-`Caitlin Clark’s rookie salary in the W.N.B.A. is a fraction of the multimillion dollar contract that Victor Wembanyama signed last year.`\
-https://nytimes.com/2024/04/29/learning/what-should-be-done-about-the-gender-pay-gap-in-sports.html
-
-**Florida Abortion Ban to Take Effect, Cutting Off Major Access Point**\
-`The state has dozens of clinics that serve tens of thousands of women a year, including from across the Southeast. The six-week ban will require most to travel much farther.`\
-https://nytimes.com/2024/04/29/us/florida-abortion-ban-to-take-effect-cutting-off-major-access-point.html
 
