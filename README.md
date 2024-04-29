@@ -18,7 +18,7 @@ https://nytimes.com/2024/04/29/us/museums-california.html
 `The country has been pummeled by heavy rains that have caused widespread flooding, part of a broader deluge that has devastated segments of East Africa.`\
 https://nytimes.com/2024/04/29/world/africa/dam-collapse-kenya-africa-floods.html
 
-**Israel will accept the release of 33 hostages at the start of a truce, officials say.**\
+**Israel is open to a truce involving an initial release of 33 hostages, officials say.**\
 `By Patrick Kingsley and Adam Rasgon`\
 https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/israel-hostages-hamas-deal
 
