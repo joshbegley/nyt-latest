@@ -1,3 +1,7 @@
+**Israeli Officials Believe I.C.C. Is Preparing Arrest Warrants Over War**\
+`Israeli and Western officials believe the International Criminal Court is preparing arrest warrants for top Israeli and Hamas officials. The prosecutors’ office of the court declined to comment.`\
+https://nytimes.com/2024/04/28/world/middleeast/icc-arrest-warrants-israel-hamas.html
+
 **TikTok Star Is Killed in Third Death of Social Media Influencer in Iraq**\
 `The shooting of Ghufran Mahdi Sawadi, known online as Um Fahad, comes amid tightening laws and increasingly conservative attitudes in the country.`\
 https://nytimes.com/2024/04/28/world/middleeast/tiktok-iraq-killing.html
