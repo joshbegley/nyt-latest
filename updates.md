@@ -1,3 +1,7 @@
+**Surrounded by Fighters and Haunted by Famine, Sudan City Fears Worst**\
+`A powerful paramilitary group has encircled El Fasher, the last remaining obstacle to domination of the sprawling Darfur region, raising alarm about mass killings if the city is taken.`\
+https://nytimes.com/2024/04/29/world/africa/el-fasher-darfur-sudan.html
+
 **N.Y.U. Says It Will Discipline Students Who Remain in Encampment**\
 `The university had set a noon deadline for an end to overnight stays at the site, but students remained there on Monday afternoon.`\
 https://nytimes.com/2024/04/29/nyregion/nyu-protest-encampment.html
