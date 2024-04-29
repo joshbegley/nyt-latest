@@ -1,3 +1,7 @@
+**Hamas Fires Rockets Into Israel from Lebanon**\
+`The launches, nearly all of which Israel shot down, were an apparent attempt by the group to show it remains a threat even as the war has degraded its military capabilities in Gaza.`\
+https://nytimes.com/2024/04/29/world/middleeast/hamas-rockets-israel-lebanon.html
+
 **Israel is open to a truce involving an initial release of 33 hostages, officials say.**\
 `By Patrick Kingsley and Adam Rasgon`\
 https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/israel-hostages-hamas-deal

@@ -1,3 +1,7 @@
+**Hamas Fires Rockets Into Israel from Lebanon**\
+`The launches, nearly all of which Israel shot down, were an apparent attempt by the group to show it remains a threat even as the war has degraded its military capabilities in Gaza.`\
+https://nytimes.com/2024/04/29/world/middleeast/hamas-rockets-israel-lebanon.html
+
 **Tesla Reaches Deals in China on Self-Driving Cars**\
 `Elon Musk met with the country’s premier, a longtime Tesla ally, and secured regulatory nods and a necessary partnership with a Chinese tech company.`\
 https://nytimes.com/2024/04/29/business/elon-musk-tesla-china-full-self-driving.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/world/europe/ukraine-russia-war-latest.html
 **Humza Yousaf Resigns as Scotland’s First Minister**\
 `Mr. Yousaf, the leader of the Scottish National Party, announced that he was stepping down, days after the collapse of his coalition government.`\
 https://nytimes.com/2024/04/29/world/europe/scotland-humza-yousaf-resigns-snp.html
-
-**Delay, Delay, Delay**\
-`How Donald Trump has slowed the cases against him.`\
-https://nytimes.com/2024/04/29/briefing/trump-trial.html
 
