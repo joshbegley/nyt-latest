@@ -1,3 +1,7 @@
+**Israeli Strikes Hit Residential Buildings in Rafah**\
+`Several people were reportedly killed during Israeli airstrikes on the southern city of Rafah, Gaza, where more than a million displaced Gazans have fled.`\
+https://nytimes.com/video/world/middleeast/100000009438269/israeli-strikes-rafah-gaza.html
+
 **As the U.K. Tries Moving Asylum Seekers Offshore, Ireland Pushes Back**\
 `The Irish government said it was drafting emergency legislation to return asylum seekers to Britain, after seeing a surge of people leaving there for sanctuary in Ireland.`\
 https://nytimes.com/2024/04/29/world/europe/uk-ireland-asylum-seekers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/us/washington-grizzly-bears-return.html
 **Universities Face an Urgent Question: What Makes a Protest Antisemitic?**\
 `Pro-Palestinian student activists, many of whom are Jewish, say their movement is anti-Zionist but not antisemitic. It is not a distinction that everyone buys.`\
 https://nytimes.com/2024/04/29/nyregion/college-protests-columbia-campus.html
-
-**Arab ministers suggest ways to ‘force peace’ amid Israel’s refusal to recognize a Palestinian state.**\
-`By Vivian Nereim`\
-https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/arab-ministers-peace-israel-palestinian-state
 
