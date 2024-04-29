@@ -1,3 +1,7 @@
+**Delay, Delay, Delay**\
+`How Donald Trump has slowed the cases against him.`\
+https://nytimes.com/2024/04/29/briefing/trump-trial.html
+
 **Trump 2.0: What a Second Trump Presidency Would Bring**\
 `On the campaign trail, Donald Trump has signaled that a second term would be more radical and vindictive than his first one.`\
 https://nytimes.com/2024/04/29/podcasts/the-daily/second-trump-presidency.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/style/cargo-pants.html
 **Where Third-Party and Independent Candidates Are On The Ballot**\
 `For presidential candidates who are not the Republican or Democratic Party nominee, getting on the ballot for the general election is a state-by-state, make-or-break scramble.`\
 https://nytimes.com/interactive/2024/04/29/us/politics/presidential-candidates-third-party-independent.html
-
-**Can Nonprofit News Save the South From Itself?**\
-`If old school public-service journalism can make it anywhere, it can make it here.`\
-https://nytimes.com/2024/04/29/opinion/nonprofit-media-journalism.html
 

@@ -1,3 +1,7 @@
+**Delay, Delay, Delay**\
+`How Donald Trump has slowed the cases against him.`\
+https://nytimes.com/2024/04/29/briefing/trump-trial.html
+
 **Trump 2.0: What a Second Trump Presidency Would Bring**\
 `On the campaign trail, Donald Trump has signaled that a second term would be more radical and vindictive than his first one.`\
 https://nytimes.com/2024/04/29/podcasts/the-daily/second-trump-presidency.html
