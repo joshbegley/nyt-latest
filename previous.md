@@ -1,3 +1,11 @@
+**Skydance Offers Paramount a Deal Sweetener: A $3 Billion Cash Infusion**\
+`The terms of the new deal would provide Paramount shareholders with an investment to pay down debt and buy back stock.`\
+https://nytimes.com/2024/04/29/business/media/skydance-paramount-deal.html
+
+**Love, War and the Refugee Crisis, Set to the Music of Sting**\
+`In “Message in a Bottle,” a dance show opening at City Center, Sting’s songbook helps tell the story of a family fleeing conflict.`\
+https://nytimes.com/2024/04/29/arts/dance/sting-message-in-a-bottle-dance-refugees.html
+
 **Physical Fitness Linked to Better Mental Health in Young People**\
 `A new study bolsters existing research suggesting that exercise can protect against anxiety, depression and attention challenges.`\
 https://nytimes.com/2024/04/29/health/adolescents-exercise-mental-health.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/deadly-israeli-s
 **Hamas Fires Rockets Into Israel from Lebanon**\
 `The launches, nearly all of which Israel shot down, were an apparent attempt by the group to show it remains a threat even as the war has degraded its military capabilities in Gaza.`\
 https://nytimes.com/2024/04/29/world/middleeast/hamas-rockets-israel-lebanon.html
-
-**Tesla Reaches Deals in China on Self-Driving Cars**\
-`Elon Musk met with the country’s premier, a longtime Tesla ally, and secured regulatory nods and a necessary partnership with a Chinese tech company.`\
-https://nytimes.com/2024/04/29/business/elon-musk-tesla-china-full-self-driving.html
-
-**The Biden-Trump face-off settles into an odd rhythm, with Trump largely off the campaign trail.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/04/29/us/biden-trump-campaign/the-biden-trump-face-off-settles-into-an-odd-rhythm-with-trump-largely-off-the-campaign-trail
 

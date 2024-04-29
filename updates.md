@@ -1,3 +1,11 @@
+**Skydance Offers Paramount a Deal Sweetener: A $3 Billion Cash Infusion**\
+`The terms of the new deal would provide Paramount shareholders with an investment to pay down debt and buy back stock.`\
+https://nytimes.com/2024/04/29/business/media/skydance-paramount-deal.html
+
+**Love, War and the Refugee Crisis, Set to the Music of Sting**\
+`In “Message in a Bottle,” a dance show opening at City Center, Sting’s songbook helps tell the story of a family fleeing conflict.`\
+https://nytimes.com/2024/04/29/arts/dance/sting-message-in-a-bottle-dance-refugees.html
+
 **Physical Fitness Linked to Better Mental Health in Young People**\
 `A new study bolsters existing research suggesting that exercise can protect against anxiety, depression and attention challenges.`\
 https://nytimes.com/2024/04/29/health/adolescents-exercise-mental-health.html
