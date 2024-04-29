@@ -1,3 +1,7 @@
+**As the U.K. Tries Moving Asylum Seekers Offshore, Ireland Pushes Back**\
+`The Irish government said it was drafting emergency legislation to return asylum seekers to Britain, after seeing a surge of people leaving there for sanctuary in Ireland.`\
+https://nytimes.com/2024/04/29/world/europe/uk-ireland-asylum-seekers.html
+
 **4 Zebras Broke Free on a Highway. A Rodeo Clown Stepped In.**\
 `One zebra was still on the loose, after it and three others escaped a trailer in North Bend, Wash. Dozens of people scrambled to help and corralled some of the animals.`\
 https://nytimes.com/2024/04/29/us/zebras-washington-state-highway.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/nyregion/college-protests-columbia-campus.html
 **Arab ministers suggest ways to ‘force peace’ amid Israel’s refusal to recognize a Palestinian state.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/arab-ministers-peace-israel-palestinian-state
-
-**A Strong U.S. Dollar Weighs on the World**\
-`Two-thirds of the roughly 150 currencies have weakened against the dollar, whose strength stems from high interest rates because of stubborn inflation.`\
-https://nytimes.com/2024/04/29/business/a-strong-us-dollar-weighs-on-the-world.html
 
