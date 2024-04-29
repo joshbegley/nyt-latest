@@ -1,3 +1,11 @@
+**How Rachel Khong Conjures Worlds, in Her Books and Beyond**\
+`She wrote her much-anticipated second novel, “Real Americans,” while also creating the Ruby, a co-working collective for writers and other artists.`\
+https://nytimes.com/2024/04/29/books/booksupdate/rachel-khong-real-americans.html
+
+**‘Ash’ Review: A Nobel Prize-Winner Confronts Environmental Collapse**\
+`Elfriede Jelinek’s latest play deals with collective calamity and individual grief, but is let down by a chaotic production.`\
+https://nytimes.com/2024/04/29/theater/ashe-elfriede-jelinek-muenchner-kammerspiele.html
+
 **The Campus Protests: Voices From Columbia, Barnard and Beyond**\
 `Sampling the outpouring of responses to the continuing protests on college campuses. Also: The Trump criminal cases; Trump, Pence and abortion.`\
 https://nytimes.com/2024/04/29/opinion/campus-protests-columbia-barnard.html
