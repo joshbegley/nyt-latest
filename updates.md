@@ -1,3 +1,15 @@
+**Class of 2024, It’s Not in Your Head: The Job Market Is Tough.**\
+`College-level jobs still pay a lot more overall, but not every grad can get one.`\
+https://nytimes.com/2024/04/29/opinion/college-graduates-job-market.html
+
+**How Did Black Forest Cake Become the World’s Favorite Dessert?**\
+`Dessert lovers from Chile to Pakistan to Fiji claim it as a national treat. How did it get there from the woods of Germany?`\
+https://nytimes.com/2024/04/29/dining/black-forest-cake.html
+
+**Read the Notice From Columbia Administrators**\
+`Students in the encampment were told they would be suspended if they did not leave before the deadline.`\
+https://nytimes.com/interactive/2024/04/29/us/25600615-b9ed-4a46-bfc9-d0b0c35848d0.html
+
 **Read the notice from Columbia administrators**\
 `Students in the encampment were told they would be suspended if they did not leave before the deadline.`\
 https://nytimes.com/interactive/2024/04/29/us/columbia-encampment-notice.html

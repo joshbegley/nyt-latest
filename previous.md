@@ -1,6 +1,14 @@
-**Read the notice from Columbia administrators**\
+**Class of 2024, It’s Not in Your Head: The Job Market Is Tough.**\
+`College-level jobs still pay a lot more overall, but not every grad can get one.`\
+https://nytimes.com/2024/04/29/opinion/college-graduates-job-market.html
+
+**How Did Black Forest Cake Become the World’s Favorite Dessert?**\
+`Dessert lovers from Chile to Pakistan to Fiji claim it as a national treat. How did it get there from the woods of Germany?`\
+https://nytimes.com/2024/04/29/dining/black-forest-cake.html
+
+**Read the Notice From Columbia Administrators**\
 `Students in the encampment were told they would be suspended if they did not leave before the deadline.`\
-https://nytimes.com/interactive/2024/04/29/us/columbia-encampment-notice.html
+https://nytimes.com/interactive/2024/04/29/us/25600615-b9ed-4a46-bfc9-d0b0c35848d0.html
 
 **Federal Agencies to Restore Grizzly Bears in Washington State**\
 `Grizzly bears haven’t been seen in the North Cascades range, where they were once a vital part of the ecosystem, in nearly 30 years.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/29/us/politics/ilhan-omar-campus-protests.html
 **Student Protester Is Suspended After Anti-Zionist Video**\
 `Khymani James, a Columbia University student, was barred from campus after his January video resurfaced online last week.`\
 https://nytimes.com/2024/04/29/nyregion/khymani-james-columbia-suspension.html
-
-**Right-Wing Network Retracts False Story About Key Witness in Trump Trial**\
-`Michael D. Cohen’s lawyers took on OAN over the false story. The settlement came as right-wing news outlets face a barrage of defamation suits.`\
-https://nytimes.com/2024/04/29/nyregion/trump-hush-money-trial-witness-cohen.html
-
-**A Smooth-Running Gallery Weekend Amid a Shaken Berlin Art Scene**\
-`The annual event brings art collectors to the city, but the spirit of freedom that draws artists there has been damaged by the fallout from the Oct. 7 attacks.`\
-https://nytimes.com/2024/04/29/arts/gallery-weekend-berlin.html
 
