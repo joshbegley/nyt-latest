@@ -1,3 +1,7 @@
+**Universities Face an Urgent Question: What Makes a Protest Antisemitic?**\
+`Pro-Palestinian student activists, many of whom are Jewish, say their movement is anti-Zionist but not antisemitic. It is not a distinction that everyone buys.`\
+https://nytimes.com/2024/04/29/nyregion/college-protests-columbia-campus.html
+
 **Arab ministers suggest ways to ‘force peace’ amid Israel’s refusal to recognize a Palestinian state.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/arab-ministers-peace-israel-palestinian-state
