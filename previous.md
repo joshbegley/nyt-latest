@@ -1,3 +1,7 @@
+**Philippines Closes Schools as Heat Soars to ‘Danger’ Level**\
+`Scorching temperatures coincided with a nationwide strike of jeepneys, the main mode of public transport in the country.`\
+https://nytimes.com/2024/04/29/world/asia/philippines-heat-schools-jeepney.html
+
 **The Aggressive and Expensive Legal Team Defending Mayor Adams**\
 `With Mayor Eric Adams and his top aides facing several investigations, he is amassing a team of high-powered lawyers paid by his donors and city taxpayers.`\
 https://nytimes.com/2024/04/29/nyregion/eric-adams-lawyers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/opinion/shanghai-china-covid-economy.html
 **Monday Briefing**\
 `The latest push for a cease-fire in Gaza.`\
 https://nytimes.com/2024/04/29/briefing/israel-hamas-cease-fire-ukraine.html
-
-**As Anger Grows Over Gaza, Arab Leaders Crack Down on Protests**\
-`Grief and rage over the war and Israel have led to demonstrations across the Arab world. Arrests suggest governments fear the outrage could boomerang.`\
-https://nytimes.com/2024/04/29/world/middleeast/gaza-arab-protests-crackdown.html
 

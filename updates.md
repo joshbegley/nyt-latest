@@ -1,3 +1,7 @@
+**Philippines Closes Schools as Heat Soars to ‘Danger’ Level**\
+`Scorching temperatures coincided with a nationwide strike of jeepneys, the main mode of public transport in the country.`\
+https://nytimes.com/2024/04/29/world/asia/philippines-heat-schools-jeepney.html
+
 **The Aggressive and Expensive Legal Team Defending Mayor Adams**\
 `With Mayor Eric Adams and his top aides facing several investigations, he is amassing a team of high-powered lawyers paid by his donors and city taxpayers.`\
 https://nytimes.com/2024/04/29/nyregion/eric-adams-lawyers.html
