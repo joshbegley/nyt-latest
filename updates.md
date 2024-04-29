@@ -1,3 +1,7 @@
+**4 Escaped Zebras Spotted on Washington State Highway**\
+`Four escaped zebras were seen on a road in North Bend, Wash., on Sunday.`\
+https://nytimes.com/video/us/100000009439462/zebras-washington-highway.html
+
 **Tesla’s Dangerous Course**\
 `Who’s responsible when a car crashes?`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/musk-tesla-self-driving-cars

@@ -1,3 +1,7 @@
+**4 Escaped Zebras Spotted on Washington State Highway**\
+`Four escaped zebras were seen on a road in North Bend, Wash., on Sunday.`\
+https://nytimes.com/video/us/100000009439462/zebras-washington-highway.html
+
 **Tesla’s Dangerous Course**\
 `Who’s responsible when a car crashes?`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/musk-tesla-self-driving-cars
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/us/politics/hakeem-jeffries-mike-johnson-ukraine.
 **Paramount’s Chief Executive, Bob Bakish, Steps Down**\
 `Mr. Bakish was once a staunch ally of Shari Redstone, Paramount’s controlling shareholder. His departure comes as the company considers a major merger.`\
 https://nytimes.com/2024/04/29/business/media/paramount-bob-bakish-steps-down.html
-
-**Gérard Depardieu Ordered to Stand Trial in Sexual Assault Case**\
-`The actor, who has become a #MeToo flashpoint in France, will be tried in October over allegations that he sexually assaulted two women during a 2021 film shoot.`\
-https://nytimes.com/2024/04/29/world/europe/gerard-depardieu-trial-sexual-assault.html
 
