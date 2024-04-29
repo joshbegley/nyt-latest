@@ -1,3 +1,7 @@
+**Tesla’s Dangerous Course**\
+`Who’s responsible when a car crashes?`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/musk-tesla-self-driving-cars
+
 **New Round of Arrests at University of Texas as Protesters Defy Governor**\
 `Days after a crackdown on pro-Palestinian protesters, at least 40 people were arrested after erecting tents on the Austin campus.`\
 https://nytimes.com/2024/04/29/us/university-texas-austin-protest-abbott.html
