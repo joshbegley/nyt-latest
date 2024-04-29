@@ -1,3 +1,7 @@
+**Columbia Tells Protesters to Clear Out Encampment or Face Suspension**\
+`University officials have given students, who have occupied a central lawn on campus for nearly two weeks, until 2 p.m. to leave.`\
+https://nytimes.com/2024/04/29/nyregion/columbia-student-protest-encampment.html
+
 **A Quick Fish Recipe That Covers All the Bases**\
 `Made with mild white-fleshed fish, bacon and mushrooms, Melissa Clark’s new dish is fast, flavorful and good for the fishy-fish averse.`\
 https://nytimes.com/2024/04/29/dining/a-quick-fish-recipe-that-covers-all-the-bases.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2024/04/29/arts/dance/ayodele-casel-max-roach-tap
 **Museums to Visit in California This Year**\
 `A special section of The New York Times on museums highlights art across the state.`\
 https://nytimes.com/2024/04/29/us/museums-california.html
-
-**Dam Collapses in Western Kenya, Killing at Least 40**\
-`The country has been pummeled by heavy rains that have caused widespread flooding, part of a broader deluge that has devastated segments of East Africa.`\
-https://nytimes.com/2024/04/29/world/africa/dam-collapse-kenya-africa-floods.html
 
