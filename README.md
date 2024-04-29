@@ -1,3 +1,7 @@
+**Israel will accept the release of 33 hostages at the start of a truce, officials say.**\
+`By Patrick Kingsley and Adam Rasgon`\
+https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/israel-will-accept-the-release-of-33-hostages-at-the-start-of-a-truce-officials-say
+
 **Who Gains From Elon Musk’s Visit to China?**\
 `Tesla’s C.E.O. appears to have landed a deal that moves the company closer to bringing fully autonomous driving to a giant market. But Beijing is keen to exploit the visit for its own purposes.`\
 https://nytimes.com/2024/04/29/business/dealbook/musk-tesla-china-visit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/world/europe/spain-pedro-sanchez.html
 **For Trump, a Long Day and a Long Week Ahead**\
 `A political rally in the middle of his trial will be a test of his stamina and demeanor.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-trial-polls-tipsheet
-
-**Amid Cases on Abortion and Trump, Roberts Reflects on Supreme Court’s Work**\
-`Oral arguments serve a crucial role at the Supreme Court, Chief Justice John Roberts said last week at Georgetown University. But they are not always what they seem.`\
-https://nytimes.com/2024/04/29/us/john-roberts-supreme-court-immunity-abortion.html
 
