@@ -1,3 +1,11 @@
+**Trump 2.0: What a Second Trump Presidency Would Bring**\
+`On the campaign trail, Donald Trump has signaled that a second term would be more radical and vindictive than his first one.`\
+https://nytimes.com/2024/04/29/podcasts/the-daily/second-trump-presidency.html
+
+**The Latest Push for a Gaza Pause, and Crackdowns on College Protests**\
+`Plus, a debate about killing owls.`\
+https://nytimes.com/2024/04/29/podcasts/cease-fire-college-protests.html
+
 **Stowaway Cat Gets From Utah to California in Amazon Returns Package**\
 `Galena, a 6-year-old shorthair, was found in an Amazon warehouse a week after she climbed into a 3-by-3-foot cardboard box at her owner’s home.`\
 https://nytimes.com/2024/04/29/us/amazon-package-cat-utah-california.html
