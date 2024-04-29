@@ -1,3 +1,7 @@
+**After Looking for Love on TV, a ‘Bachelor’ Finds His Wife on Instagram**\
+`When Natalie Joy sent Nick Viall a direct message in 2019, she said she had no idea about his run on reality TV. About a year after meeting in person, their casual arrangement got serious.`\
+https://nytimes.com/2024/04/29/style/bachelor-nick-viall-natalie-joy-wedding.html
+
 **How Rachel Khong Conjures Worlds, in Her Books and Beyond**\
 `She wrote her much-anticipated second novel, “Real Americans,” while also creating the Ruby, a co-working collective for writers and other artists.`\
 https://nytimes.com/2024/04/29/books/booksupdate/rachel-khong-real-americans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/arts/dance/sting-message-in-a-bottle-dance-refuge
 **Physical Fitness Linked to Better Mental Health in Young People**\
 `A new study bolsters existing research suggesting that exercise can protect against anxiety, depression and attention challenges.`\
 https://nytimes.com/2024/04/29/health/adolescents-exercise-mental-health.html
-
-**Jazz Saved the Bassist Luke Stewart. Now He’s Working to Rescue Others.**\
-`Stewart’s many projects — Silt Trio, Irreversible Entanglements, Blacks’ Myths and others — make strong statements and foster community. A new LP is out Friday.`\
-https://nytimes.com/2024/04/29/arts/music/luke-stewart-silt-trio-irreversible-entanglements.html
 
