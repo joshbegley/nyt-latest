@@ -1,3 +1,7 @@
+**Word of the Day: grueling**\
+`This word has appeared in 380 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/29/learning/word-of-the-day-grueling.html
+
 **Blinken will meet with Arab and European officials to discuss post war plans for Gaza.**\
 `By Edward Wong`\
 https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/blinken-will-also-meet-with-european-officials-to-discuss-post-war-plans-for-gaza

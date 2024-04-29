@@ -1,3 +1,7 @@
+**Word of the Day: grueling**\
+`This word has appeared in 380 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/29/learning/word-of-the-day-grueling.html
+
 **Blinken will meet with Arab and European officials to discuss post war plans for Gaza.**\
 `By Edward Wong`\
 https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/blinken-will-also-meet-with-european-officials-to-discuss-post-war-plans-for-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/technology/friends-from-the-old-neighborhood-turn
 **Quotation of the Day: Covid Class Denied Second Chance at Normal Senior Year**\
 `Quotation of the Day for Monday, April 29, 2024.`\
 https://nytimes.com/2024/04/28/pageoneplus/quotation-of-the-day-covid-class-denied-second-chance-at-normal-senior-year.html
-
-**TikTok Star Is Killed in Third Death of Social Media Influencer in Iraq**\
-`The shooting of Ghufran Mahdi Sawadi, known online as Um Fahad, comes amid tightening laws and increasingly conservative attitudes in the country.`\
-https://nytimes.com/2024/04/28/world/middleeast/tiktok-iraq-killing.html
 
