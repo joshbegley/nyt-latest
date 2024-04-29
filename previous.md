@@ -1,3 +1,11 @@
+**Arab ministers suggest ways to ‘force peace’ amid Israel’s refusal to recognize a Palestinian state.**\
+`By Vivian Nereim`\
+https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/arab-ministers-peace-israel-palestinian-state
+
+**A Strong U.S. Dollar Weighs on the World**\
+`Two-thirds of the roughly 150 currencies have weakened against the dollar, whose strength stems from high interest rates because of stubborn inflation.`\
+https://nytimes.com/2024/04/29/business/a-strong-us-dollar-weighs-on-the-world.html
+
 **A Student Orchestra Shouts ‘Mambo!’ and Meets Its Idol**\
 `Our photographer followed 95 young musicians for six days as they prepared to perform with Gustavo Dudamel, the next music director of the New York Philharmonic.`\
 https://nytimes.com/2024/04/29/arts/music/student-orchestra-dudamel-philharmonic.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/29/well/mind/super-agers-study.html
 **After Looking for Love on TV, a ‘Bachelor’ Finds His Wife on Instagram**\
 `When Natalie Joy sent Nick Viall a direct message in 2019, she said she had no idea about his run on reality TV. About a year after meeting in person, their casual arrangement got serious.`\
 https://nytimes.com/2024/04/29/style/bachelor-nick-viall-natalie-joy-wedding.html
-
-**How Rachel Khong Conjures Worlds, in Her Books and Beyond**\
-`She wrote her much-anticipated second novel, “Real Americans,” while also creating the Ruby, a co-working collective for writers and other artists.`\
-https://nytimes.com/2024/04/29/books/booksupdate/rachel-khong-real-americans.html
-
-**‘Ash’ Review: A Nobel Prize-Winner Confronts Environmental Collapse**\
-`Elfriede Jelinek’s latest play deals with collective calamity and individual grief, but is let down by a chaotic production.`\
-https://nytimes.com/2024/04/29/theater/ashe-elfriede-jelinek-muenchner-kammerspiele.html
 
