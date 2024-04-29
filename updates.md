@@ -1,3 +1,7 @@
+**Israel will accept the release of 33 hostages at the start of a truce, officials say.**\
+`By Patrick Kingsley and Adam Rasgon`\
+https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/israel-will-accept-the-release-of-33-hostages-at-the-start-of-a-truce-officials-say
+
 **Who Gains From Elon Musk’s Visit to China?**\
 `Tesla’s C.E.O. appears to have landed a deal that moves the company closer to bringing fully autonomous driving to a giant market. But Beijing is keen to exploit the visit for its own purposes.`\
 https://nytimes.com/2024/04/29/business/dealbook/musk-tesla-china-visit.html
