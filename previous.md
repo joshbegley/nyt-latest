@@ -1,3 +1,7 @@
+**Biden Team Sees Narrow Window for Deal on Cease-Fire and Hostages in Gaza**\
+`A number of factors have converged to make this a moment when the president might be able to break through the stalemate, advisers say. But their optimism has been dashed before.`\
+https://nytimes.com/2024/04/29/us/politics/biden-israel-gaza-cease-fire.html
+
 **Surrounded by Fighters and Haunted by Famine, Sudan City Fears Worst**\
 `A powerful paramilitary group has encircled El Fasher, the last remaining obstacle to domination of the sprawling Darfur region, raising alarm about mass killings if the city is taken.`\
 https://nytimes.com/2024/04/29/world/africa/el-fasher-darfur-sudan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/world/asia/israel-hamas-talks-china-musk-asia.htm
 **The Legacy of a Baseball Legend**\
 `Aguadilla, known as one of Puerto Rico’s best surfing spots, was also the last town where  Roberto Clemente held a youth baseball clinic.`\
 https://nytimes.com/paidpost/discover-puerto-rico/the-legacy-of-a-baseball-legend.html
-
-**Where in the West Do These Books Take Place?**\
-`Try this short quiz on novels, geography and history of the American West.`\
-https://nytimes.com/interactive/2024/04/29/books/review/western-novels-quiz.html
 
