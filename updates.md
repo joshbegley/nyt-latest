@@ -1,3 +1,7 @@
+**After Mulling Resignation, Spain’s Leader Says He’ll Stay On**\
+`Prime Minister Pedro Sánchez, a progressive with a reputation as a wily survivor, had considered stepping down over corruption accusations against his wife that he says are a smear.`\
+https://nytimes.com/2024/04/29/world/europe/spain-pedro-sanchez.html
+
 **Humza Yousaf Resigns as Scotland’s First Minister, in Fresh Blow to S.N.P.**\
 `Mr. Yousaf, the leader of the Scottish National Party, announced that he was stepping down, days after the collapse of his coalition government.`\
 https://nytimes.com/2024/04/29/world/europe/scotland-humza-yousaf-resigns-snp.html
