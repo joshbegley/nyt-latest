@@ -1,3 +1,11 @@
+**4 Zebras Broke Free on a Highway. A Rodeo Clown Stepped In.**\
+`One zebra was still on the loose, after it and three others escaped a trailer in North Bend, Wash. Dozens of people scrambled to help and corralled some of the animals.`\
+https://nytimes.com/2024/04/29/us/zebras-washington-state-highway.html
+
+**Why an Immunity Ruling in Trump’s Favor Might Not Alter the Shape of His Trial**\
+`Prosecutors believe Donald J. Trump’s official acts in trying to overturn the election should be admissible evidence even if the Supreme Court rules they cannot be the basis of the charges.`\
+https://nytimes.com/2024/04/29/us/politics/immunity-trump-supreme-court.html
+
 **A D.A. Was Caught Speeding. Her Outburst Earned Her More Than a Ticket.**\
 `Sandra Doorley, the district attorney of Monroe County, N.Y., refused to pull over and responded angrily to the officer who confronted her, body camera footage showed. Now she faces calls to resign.`\
 https://nytimes.com/2024/04/29/nyregion/monroe-county-da-sandra-doorley.html
