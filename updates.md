@@ -1,3 +1,15 @@
+**For Trump, a Long Day and a Long Week Ahead**\
+`A political rally in the middle of his trial will be a test of his stamina and demeanor.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-trial-polls-tipsheet
+
+**Amid Cases on Abortion and Trump, Roberts Reflects on Supreme Court’s Work**\
+`Oral arguments serve a crucial role at the Supreme Court, Chief Justice John Roberts said last week at Georgetown University. But they are not always what they seem.`\
+https://nytimes.com/2024/04/29/us/john-roberts-supreme-court-immunity-abortion.html
+
+**Koch Group Attacks Biden on the Economy, Hoping to Engage Latino Voters**\
+`Libre, an arm of the conservative network, is set to spend millions of dollars on outreach and advertising as Republicans seek to expand inroads with Hispanic voters.`\
+https://nytimes.com/2024/04/29/us/politics/libre-koch-biden-economy.html
+
 **Are We All Really Supposed to Wear Cargo Pants?**\
 `A reader tries to square the style’s enduring appeal with her own reluctance to wear them.`\
 https://nytimes.com/2024/04/29/style/cargo-pants.html
