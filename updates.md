@@ -1,3 +1,19 @@
+**The Aggressive and Expensive Legal Team Defending Mayor Adams**\
+`With Mayor Eric Adams and his top aides facing several investigations, he is amassing a team of high-powered lawyers paid by his donors and city taxpayers.`\
+https://nytimes.com/2024/04/29/nyregion/eric-adams-lawyers.html
+
+**Today’s Wordle Review No. 1,045**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/29/crosswords/wordle-review.html
+
+**The Connections Companion No. 323**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/29/crosswords/connections-companion.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/29/crosswords/spelling-bee-forum.html
+
 **Word of the Day: grueling**\
 `This word has appeared in 380 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/29/learning/word-of-the-day-grueling.html
