@@ -1,3 +1,7 @@
+**Inflation Is Stubborn. Is the Federal Budget Deficit Making It Worse?**\
+`Economists are divided over whether the growing amount of federal borrowing is fueling demand and driving up prices.`\
+https://nytimes.com/2024/04/29/us/politics/inflation-stubborn-deficit.html
+
 **A Mother’s Advocacy Might Have Kept Her Hostage Son Alive**\
 `The world is aware of her campaign. Could Hamas be?`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/gaza-hostages-mother
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/dining/a-quick-fish-recipe-that-covers-all-the-ba
 **Surprise Tactics and Legal Threats: Inside R.F.K. Jr.’s Ballot Access Fight**\
 `Robert F. Kennedy Jr.’s effort to get on the ballot in 50 states has already cost millions, federal campaign finance records show.`\
 https://nytimes.com/2024/04/29/us/politics/rfk-jr-ballot-access.html
-
-**Taylor Swift’s ‘Tortured Poets’ Breaks Records With Blockbuster Debut**\
-`Only the Beatles have more No. 1 LPs now: The pop superstar reigns atop the Billboard 200 for the 14th time with the equivalent of 2.6 million album sales.`\
-https://nytimes.com/2024/04/29/arts/music/taylor-swifts-tortured-poets-department-billboard-chart.html
 
