@@ -1,3 +1,7 @@
+**The Campus Protests: Voices From Columbia, Barnard and Beyond**\
+`Sampling the outpouring of responses to the continuing protests on college campuses. Also: The Trump criminal cases; Trump, Pence and abortion.`\
+https://nytimes.com/2024/04/29/opinion/campus-protests-columbia-barnard.html
+
 **Inflation Is Stubborn. Is the Federal Budget Deficit Making It Worse?**\
 `Economists are divided over whether the growing amount of federal borrowing is fueling demand and driving up prices.`\
 https://nytimes.com/2024/04/29/us/politics/inflation-stubborn-deficit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/nyregion/columbia-student-protest-encampment.html
 **A Quick Fish Recipe That Covers All the Bases**\
 `Made with mild white-fleshed fish, bacon and mushrooms, Melissa Clark’s new dish is fast, flavorful and good for the fishy-fish averse.`\
 https://nytimes.com/2024/04/29/dining/a-quick-fish-recipe-that-covers-all-the-bases.html
-
-**Surprise Tactics and Legal Threats: Inside R.F.K. Jr.’s Ballot Access Fight**\
-`Robert F. Kennedy Jr.’s effort to get on the ballot in 50 states has already cost millions, federal campaign finance records show.`\
-https://nytimes.com/2024/04/29/us/politics/rfk-jr-ballot-access.html
 
