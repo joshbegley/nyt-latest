@@ -1,3 +1,7 @@
+**TikTok Star Is Killed in Third Death of Social Media Influencer in Iraq**\
+`The shooting of Ghufran Mahdi Sawadi, known online as Um Fahad, comes amid tightening laws and increasingly conservative attitudes in the country.`\
+https://nytimes.com/2024/04/28/world/middleeast/tiktok-iraq-killing.html
+
 **PEN America Has Stood By Authors. They Should Stand By PEN.**\
 `PEN America needs to ensure more than one point of view is heard on even the most contentious issue.`\
 https://nytimes.com/2024/04/28/opinion/free-speech-pen-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/28/us/politics/college-protests-israel-democrats.htm
 **World Central Kitchen Will Resume Operations in Gaza**\
 `The organization halted aid efforts in the enclave after seven of its workers were killed in an Israeli attack. It said it would resume operations with a local team of Palestinian aid workers.`\
 https://nytimes.com/2024/04/28/world/middleeast/world-central-kitchen-gaza-aid.html
-
-**As Colleges Weigh Crackdowns on Protests, Questions About Outsiders Linger**\
-`With pro-Palestinian protests spreading across campuses nationwide, university leaders have had to confront a central question: When does a demonstration cross the line?`\
-https://nytimes.com/2024/04/28/us/college-campus-protests.html
 
