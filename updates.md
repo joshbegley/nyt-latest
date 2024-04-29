@@ -1,3 +1,7 @@
+**Trump Is Flirting With Quack Economics**\
+`Beware strongmen who engage in magical thinking.`\
+https://nytimes.com/2024/04/29/opinion/trump-economics.html
+
 **Hope Rises for New Talks on Gaza Cease-fire as Israel Scales Back Demands**\
 `Israel reduced the initial number of hostages it wants released to 33. If Hamas agrees to attend, negotiations on a cease-fire could resume in Cairo this week.`\
 https://nytimes.com/2024/04/29/world/middleeast/israel-gaza-cease-fire-hostages.html
