@@ -1,3 +1,7 @@
+**New Round of Arrests at University of Texas as Protesters Defy Governor**\
+`Days after a crackdown on pro-Palestinian protesters, at least 40 people were arrested after erecting tents on the Austin campus.`\
+https://nytimes.com/2024/04/29/us/university-texas-austin-protest-abbott.html
+
 **Tuesday Briefing: Hope Rises for New Cease-Fire Talks**\
 `Also, Russia advances in eastern Ukraine.`\
 https://nytimes.com/2024/04/29/world/asia/israel-hamas-talks-china-musk-asia.html
