@@ -1,3 +1,11 @@
+**Taylor Swift’s ‘Tortured Poets’ Breaks Records With Blockbuster Debut**\
+`Only the Beatles have more No. 1 LPs now: The pop superstar reigns atop the Billboard 200 for the 14th time with the equivalent of 2.6 million album sales.`\
+https://nytimes.com/2024/04/29/arts/music/taylor-swifts-tortured-poets-department-billboard-chart.html
+
+**Deadly Israeli strikes hit residential buildings in Rafah, Palestinian news media say.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/deadly-israeli-strikes-hit-residential-buildings-in-rafah-palestinian-news-media-say
+
 **Hamas Fires Rockets Into Israel from Lebanon**\
 `The launches, nearly all of which Israel shot down, were an apparent attempt by the group to show it remains a threat even as the war has degraded its military capabilities in Gaza.`\
 https://nytimes.com/2024/04/29/world/middleeast/hamas-rockets-israel-lebanon.html
