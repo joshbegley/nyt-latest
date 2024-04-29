@@ -1,3 +1,7 @@
+**With Paramount in Chaos and Its Future Uncertain, Its Chief Steps Down**\
+`Bob Bakish was once a staunch ally of Shari Redstone, Paramount’s controlling shareholder. His departure comes as the company considers a major merger.`\
+https://nytimes.com/2024/04/29/business/media/paramount-bob-bakish-steps-down.html
+
 **4 Escaped Zebras Spotted on Washington State Highway**\
 `Four escaped zebras were seen on a road in North Bend, Wash., on Sunday.`\
 https://nytimes.com/video/us/100000009439462/zebras-washington-highway.html
