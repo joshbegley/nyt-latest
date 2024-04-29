@@ -1,3 +1,11 @@
+**Kamala Harris Leads Push to Shore Up Democratic Support From Black Voters**\
+`Speaking in Atlanta, the vice president began a national tour to highlight how the Biden administration is trying to help Black Americans economically.`\
+https://nytimes.com/2024/04/29/us/politics/kamala-harris-atlanta.html
+
+**Israel Softened Its Demands in Cease-Fire Negotiations**\
+`Also, Russian forces advance in Ukraine before U.S. aid arrives. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/04/29/briefing/israel-hamas-negotiations-russia-ukraine-war.html
+
 **With Paramount in Chaos and Its Future Uncertain, Its Chief Steps Down**\
 `Bob Bakish was once a staunch ally of Shari Redstone, Paramount’s controlling shareholder. His departure comes as the company considers a major merger.`\
 https://nytimes.com/2024/04/29/business/media/paramount-bob-bakish-steps-down.html
