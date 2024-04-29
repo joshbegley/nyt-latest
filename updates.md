@@ -1,3 +1,7 @@
+**A D.A. Was Caught Speeding. Her Outburst Earned Her More Than a Ticket.**\
+`Sandra Doorley, the district attorney of Monroe County, N.Y., refused to pull over and responded angrily to the officer who confronted her, body camera footage showed. Now she faces calls to resign.`\
+https://nytimes.com/2024/04/29/nyregion/monroe-county-da-sandra-doorley.html
+
 **Read the Notice From Columbia Administrators**\
 `Students in the encampment were told they would be suspended if they did not leave before the deadline.`\
 https://nytimes.com/interactive/2024/04/29/us/columbia-administrators-encampment.html
