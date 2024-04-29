@@ -1,3 +1,7 @@
+**Inflation Is Stubborn. Is the Federal Budget Deficit Making It Worse?**\
+`Economists are divided over whether the growing amount of federal borrowing is fueling demand and driving up prices.`\
+https://nytimes.com/2024/04/29/us/politics/fed-inflation-deficit.html
+
 **How Rachel Khong Conjures Worlds, in Her Books and Beyond**\
 `She wrote her much-anticipated second novel, “Real Americans,” while also creating the Ruby, a co-working collective for writers and other artists.`\
 https://nytimes.com/2024/04/29/books/booksupdate/rachel-khong-real-americans.html
