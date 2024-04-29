@@ -1,3 +1,7 @@
+**PEN America Has Stood By Authors. They Should Stand By PEN.**\
+`PEN America needs to ensure more than one point of view is heard on even the most contentious issue.`\
+https://nytimes.com/2024/04/28/opinion/free-speech-pen-america.html
+
 **Robbi Mecus, Who Helped Foster L.G.B.T.Q. Climbing Community, Dies at 52**\
 `Ms. Mecus, a New York State forest ranger who worked in the Adirondacks, died after falling about 1,000 feet from a peak at Denali National Park and Preserve in Alaska.`\
 https://nytimes.com/2024/04/28/nyregion/robbi-mecus-dead-alaska-denali-park.html

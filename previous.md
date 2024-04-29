@@ -1,3 +1,7 @@
+**PEN America Has Stood By Authors. They Should Stand By PEN.**\
+`PEN America needs to ensure more than one point of view is heard on even the most contentious issue.`\
+https://nytimes.com/2024/04/28/opinion/free-speech-pen-america.html
+
 **Robbi Mecus, Who Helped Foster L.G.B.T.Q. Climbing Community, Dies at 52**\
 `Ms. Mecus, a New York State forest ranger who worked in the Adirondacks, died after falling about 1,000 feet from a peak at Denali National Park and Preserve in Alaska.`\
 https://nytimes.com/2024/04/28/nyregion/robbi-mecus-dead-alaska-denali-park.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/28/world/middleeast/world-central-kitchen-gaza-aid.h
 **As Colleges Weigh Crackdowns on Protests, Questions About Outsiders Linger**\
 `With pro-Palestinian protests spreading across campuses nationwide, university leaders have had to confront a central question: When does a demonstration cross the line?`\
 https://nytimes.com/2024/04/28/us/college-campus-protests.html
-
-**Monday Briefing: Plans for Gaza’s Future**\
-`Plus, European countries crack down on China’s influence.`\
-https://nytimes.com/2024/04/28/world/asia/israel-gaza-china-spies-asia.html
 
