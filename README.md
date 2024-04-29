@@ -6,7 +6,7 @@ https://nytimes.com/2024/04/29/opinion/college-graduates-job-market.html
 `Dessert lovers from Chile to Pakistan to Fiji claim it as a national treat. How did it get there from the woods of Germany?`\
 https://nytimes.com/2024/04/29/dining/black-forest-cake.html
 
-**Read the Notice from Columbia Administrators**\
+**Read the Notice From Columbia Administrators**\
 `Students in the encampment were told they would be suspended if they did not leave before the deadline.`\
 https://nytimes.com/interactive/2024/04/29/us/25600615-b9ed-4a46-bfc9-d0b0c35848d0.html
 
