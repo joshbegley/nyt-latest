@@ -1,3 +1,7 @@
+**A Student Orchestra Shouts ‘Mambo!’ and Meets Its Idol**\
+`Our photographer followed 95 young musicians for six days as they prepared to perform with Gustavo Dudamel, the next music director of the New York Philharmonic.`\
+https://nytimes.com/2024/04/29/arts/music/student-orchestra-dudamel-philharmonic.html
+
 **Omar Draws Criticism for Suggesting Some Jewish Students Are ‘Pro-Genocide’**\
 `Representative Ilhan Omar made the comments at Columbia University, where her daughter was among the students arrested protesting against Israel’s actions in Gaza. The protests have drawn visits by leaders across the political spectrum.`\
 https://nytimes.com/2024/04/29/us/politics/omar-draws-criticism-for-suggesting-some-jewish-students-are-pro-genocide.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/books/booksupdate/rachel-khong-real-americans.htm
 **‘Ash’ Review: A Nobel Prize-Winner Confronts Environmental Collapse**\
 `Elfriede Jelinek’s latest play deals with collective calamity and individual grief, but is let down by a chaotic production.`\
 https://nytimes.com/2024/04/29/theater/ashe-elfriede-jelinek-muenchner-kammerspiele.html
-
-**The Campus Protests: Voices From Columbia, Barnard and Beyond**\
-`Sampling the outpouring of responses to the continuing protests on college campuses. Also: The Trump criminal cases; Trump, Pence and abortion.`\
-https://nytimes.com/2024/04/29/opinion/campus-protests-columbia-barnard.html
 
