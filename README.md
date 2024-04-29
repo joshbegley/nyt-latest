@@ -1,3 +1,7 @@
+**Surrounded by Fighters and Haunted by Famine, Sudan City Fears Worst**\
+`A powerful paramilitary group has encircled El Fasher, the last remaining obstacle to domination of the sprawling Darfur region, raising alarm about mass killings if the city is taken.`\
+https://nytimes.com/2024/04/29/world/africa/el-fasher-darfur-sudan.html
+
 **N.Y.U. Says It Will Discipline Students Who Remain in Encampment**\
 `The university had set a noon deadline for an end to overnight stays at the site, but students remained there on Monday afternoon.`\
 https://nytimes.com/2024/04/29/nyregion/nyu-protest-encampment.html
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/discover-puerto-rico/the-legacy-of-a-baseball-legen
 **Where in the West Do These Books Take Place?**\
 `Try this short quiz on novels, geography and history of the American West.`\
 https://nytimes.com/interactive/2024/04/29/books/review/western-novels-quiz.html
-
-**Biden and Mexico’s President Vow Combined Action on Illegal Immigration**\
-`President Biden is under intense political pressure, including from within his own party, to address migration before the election.`\
-https://nytimes.com/2024/04/29/us/politics/biden-mexico-illegal-immigration.html
 
