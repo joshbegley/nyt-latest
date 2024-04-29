@@ -1,6 +1,10 @@
+**Physical Fitness Linked to Better Mental Health in Young People**\
+`A new study bolsters existing research suggesting that exercise can protect against anxiety, depression and attention challenges.`\
+https://nytimes.com/2024/04/29/health/adolescents-exercise-mental-health.html
+
 **Jazz Saved the Bassist Luke Stewart. Now He’s Working to Rescue Others.**\
 `Stewart’s many projects — Silt Trio, Irreversible Entanglements, Blacks’ Myths and others — make strong statements and foster community. A new LP is out Friday.`\
-https://nytimes.com/2024/04/29/arts/music/jazz-saved-the-bassist-luke-stewart-now-hes-working-to-rescue-others.html
+https://nytimes.com/2024/04/29/arts/music/luke-stewart-silt-trio-irreversible-entanglements.html
 
 **Columbia Tells Protesters to Clear Out Encampment or Face Suspension**\
 `University officials have given students, who have occupied a central lawn on campus for nearly two weeks, until 2 p.m. to leave.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/business/elon-musk-tesla-china-full-self-driving.
 **The Biden-Trump face-off settles into an odd rhythm, with Trump largely off the campaign trail.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/04/29/us/biden-trump-campaign/the-biden-trump-face-off-settles-into-an-odd-rhythm-with-trump-largely-off-the-campaign-trail
-
-**Watch a Tap Dance That Transcends Time**\
-`By Gia Kourlas`\
-https://nytimes.com/card/2024/04/29/arts/dance/ayodele-casel-max-roach-tap
 

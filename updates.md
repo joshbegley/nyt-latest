@@ -1,3 +1,11 @@
+**Physical Fitness Linked to Better Mental Health in Young People**\
+`A new study bolsters existing research suggesting that exercise can protect against anxiety, depression and attention challenges.`\
+https://nytimes.com/2024/04/29/health/adolescents-exercise-mental-health.html
+
+**Jazz Saved the Bassist Luke Stewart. Now He’s Working to Rescue Others.**\
+`Stewart’s many projects — Silt Trio, Irreversible Entanglements, Blacks’ Myths and others — make strong statements and foster community. A new LP is out Friday.`\
+https://nytimes.com/2024/04/29/arts/music/luke-stewart-silt-trio-irreversible-entanglements.html
+
 **Jazz Saved the Bassist Luke Stewart. Now He’s Working to Rescue Others.**\
 `Stewart’s many projects — Silt Trio, Irreversible Entanglements, Blacks’ Myths and others — make strong statements and foster community. A new LP is out Friday.`\
 https://nytimes.com/2024/04/29/arts/music/jazz-saved-the-bassist-luke-stewart-now-hes-working-to-rescue-others.html
