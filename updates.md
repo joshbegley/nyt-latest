@@ -1,3 +1,7 @@
+**Jazz Saved the Bassist Luke Stewart. Now He’s Working to Rescue Others.**\
+`Stewart’s many projects — Silt Trio, Irreversible Entanglements, Blacks’ Myths and others — make strong statements and foster community. A new LP is out Friday.`\
+https://nytimes.com/2024/04/29/arts/music/jazz-saved-the-bassist-luke-stewart-now-hes-working-to-rescue-others.html
+
 **Columbia Tells Protesters to Clear Out Encampment or Face Suspension**\
 `University officials have given students, who have occupied a central lawn on campus for nearly two weeks, until 2 p.m. to leave.`\
 https://nytimes.com/2024/04/29/nyregion/columbia-student-protest-encampment.html
