@@ -1,3 +1,11 @@
+**Election Deniers Are Still Shaping Arizona Politics**\
+`There have been few political consequences for many Republicans accused of helping Trump try to overturn the 2020 election.`\
+https://nytimes.com/2024/04/29/us/politics/election-deniers-arizona-politics.html
+
+**Matt Gaetz Faces Last-Minute Challenger in Republican Primary**\
+`The Florida representative will face off against Aaron Dimmock, a retired Navy officer and aviator.`\
+https://nytimes.com/2024/04/29/us/politics/gaetz-primary-challenge.html
+
 **Trump Is Flirting With Quack Economics**\
 `Beware strongmen who engage in magical thinking.`\
 https://nytimes.com/2024/04/29/opinion/trump-economics.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/29/briefing/israel-hamas-negotiations-russia-ukraine
 **4 Escaped Zebras Spotted on Washington State Highway**\
 `Four escaped zebras were seen on a road in North Bend, Wash., on Sunday.`\
 https://nytimes.com/video/us/100000009439462/zebras-washington-highway.html
-
-**Tesla’s Dangerous Course**\
-`Who’s responsible when a car crashes?`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/musk-tesla-self-driving-cars
-
-**New Round of Arrests at University of Texas as Protesters Defy Governor**\
-`Days after a crackdown on pro-Palestinian protesters, at least 50 people were arrested after new tents were erected on the Austin campus.`\
-https://nytimes.com/2024/04/29/us/university-texas-austin-protest-abbott.html
 

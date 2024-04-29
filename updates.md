@@ -1,3 +1,11 @@
+**Election Deniers Are Still Shaping Arizona Politics**\
+`There have been few political consequences for many Republicans accused of helping Trump try to overturn the 2020 election.`\
+https://nytimes.com/2024/04/29/us/politics/election-deniers-arizona-politics.html
+
+**Matt Gaetz Faces Last-Minute Challenger in Republican Primary**\
+`The Florida representative will face off against Aaron Dimmock, a retired Navy officer and aviator.`\
+https://nytimes.com/2024/04/29/us/politics/gaetz-primary-challenge.html
+
 **Trump Is Flirting With Quack Economics**\
 `Beware strongmen who engage in magical thinking.`\
 https://nytimes.com/2024/04/29/opinion/trump-economics.html
