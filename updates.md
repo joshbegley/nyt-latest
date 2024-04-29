@@ -1,3 +1,7 @@
+**Blinken will also meet with European officials to discuss post war plans for Gaza.**\
+`By Edward Wong`\
+https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/blinken-will-also-meet-with-european-officials-to-discuss-post-war-plans-for-gaza
+
 **What’s on TV This Week: ‘Catfish’ and ‘Welcome to Wrexham’**\
 `The show, hosted by Nev Schulman and Kamie Crawford, begins its ninth season on MTV. Ryan Reynolds and Rob McElhenney’s soccer series on FX is back for Season 3.`\
 https://nytimes.com/2024/04/29/arts/television/whats-on-tv-this-week-catfish-and-welcome-to-wrexham.html
