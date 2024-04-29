@@ -1,3 +1,19 @@
+**The Aggressive and Expensive Legal Team Defending Mayor Adams**\
+`With Mayor Eric Adams and his top aides facing several investigations, he is amassing a team of high-powered lawyers paid by his donors and city taxpayers.`\
+https://nytimes.com/2024/04/29/nyregion/eric-adams-lawyers.html
+
+**Today’s Wordle Review No. 1,045**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/29/crosswords/wordle-review.html
+
+**The Connections Companion No. 323**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/04/29/crosswords/connections-companion.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/04/29/crosswords/spelling-bee-forum.html
+
 **Word of the Day: grueling**\
 `This word has appeared in 380 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/29/learning/word-of-the-day-grueling.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/29/briefing/israel-hamas-cease-fire-ukraine.html
 **As Anger Grows Over Gaza, Arab Leaders Crack Down on Protests**\
 `Grief and rage over the war and Israel have led to demonstrations across the Arab world. Arrests suggest governments fear the outrage could boomerang.`\
 https://nytimes.com/2024/04/29/world/middleeast/gaza-arab-protests-crackdown.html
-
-**A Plot to Overthrow Germany’s Government Heads to Court**\
-`A group of conspiracy theorists and an obscure prince are accused of planning to attack Parliament and depose the chancellor. The first trial starts on Monday.`\
-https://nytimes.com/2024/04/29/world/europe/germany-far-right-plot-court.html
-
-**A.I. Start-Ups Face a Rough Financial Reality Check**\
-`The table stakes for small companies to compete with the likes of Microsoft and Google are in the billions of dollars. And even that may not be enough.`\
-https://nytimes.com/2024/04/29/technology/ai-startups-financial-reality.html
-
-**Friends From the Old Neighborhood Turn Rivals in Big Tech’s A.I. Race**\
-`Demis Hassabis and Mustafa Suleyman, who both grew up in London, feared a corporate rush to build artificial intelligence. Now they’re driving that competition at Google and Microsoft.`\
-https://nytimes.com/2024/04/29/technology/friends-from-the-old-neighborhood-turn-rivals-in-big-techs-ai-race.html
-
-**Quotation of the Day: Covid Class Denied Second Chance at Normal Senior Year**\
-`Quotation of the Day for Monday, April 29, 2024.`\
-https://nytimes.com/2024/04/28/pageoneplus/quotation-of-the-day-covid-class-denied-second-chance-at-normal-senior-year.html
 
