@@ -1,3 +1,7 @@
+**The Legacy of a Baseball Legend**\
+`Aguadilla, known as one of Puerto Rico’s best surfing spots, was also the last town where  Roberto Clemente held a youth baseball clinic.`\
+https://nytimes.com/paidpost/discover-puerto-rico/the-legacy-of-a-baseball-legend.html
+
 **Where in the West Do These Books Take Place?**\
 `Try this short quiz on novels, geography and history of the American West.`\
 https://nytimes.com/interactive/2024/04/29/books/review/western-novels-quiz.html
