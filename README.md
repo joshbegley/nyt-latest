@@ -34,7 +34,7 @@ https://nytimes.com/2024/04/29/movies/blue-ivy-beyonce-mufasa-lion-king.html
 `The House Democratic leader has suggested his members would protect Speaker Mike Johnson if right-wing Republicans tried to oust him over Ukraine aid, strengthening the speaker’s hand.`\
 https://nytimes.com/2024/04/29/us/politics/hakeem-jeffries-mike-johnson-ukraine.html
 
-**Paramount’s Chief Executive, Bob Bakish, Steps Down**\
-`Mr. Bakish was once a staunch ally of Shari Redstone, Paramount’s controlling shareholder. His departure comes as the company considers a major merger.`\
+**With Paramount in Chaos and Its Future Uncertain, Its Chief Steps Down**\
+`Bob Bakish was once a staunch ally of Shari Redstone, Paramount’s controlling shareholder. His departure comes as the company considers a major merger.`\
 https://nytimes.com/2024/04/29/business/media/paramount-bob-bakish-steps-down.html
 
