@@ -1,3 +1,7 @@
+**Biden reaches out to the leaders of Egypt and Qatar to press for Hamas’s agreement to a new cease-fire.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/biden-reaches-out-to-the-leaders-of-egypt-and-qatar-to-press-for-hamass-agreement-to-a-new-cease-fire
+
 **Israeli Strikes Hit Residential Buildings in Rafah**\
 `Several people were reportedly killed during Israeli airstrikes on the southern city of Rafah, Gaza, where more than a million displaced Gazans have fled.`\
 https://nytimes.com/video/world/middleeast/100000009438269/israeli-strikes-rafah-gaza.html
