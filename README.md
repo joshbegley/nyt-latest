@@ -1,3 +1,7 @@
+**Tesla Reaches Deals in China on Self-Driving Cars**\
+`Elon Musk met with the country’s premier, a longtime Tesla ally, and secured regulatory nods and a necessary partnership with a Chinese tech company.`\
+https://nytimes.com/2024/04/29/business/elon-musk-tesla-china-full-self-driving.html
+
 **The Biden-Trump face-off settles into an odd rhythm, with Trump largely off the campaign trail.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/04/29/us/biden-trump-campaign/the-biden-trump-face-off-settles-into-an-odd-rhythm-with-trump-largely-off-the-campaign-trail
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/world/europe/scotland-humza-yousaf-resigns-snp.ht
 **Delay, Delay, Delay**\
 `How Donald Trump has slowed the cases against him.`\
 https://nytimes.com/2024/04/29/briefing/trump-trial.html
-
-**Trump 2.0: What a Second Trump Presidency Would Bring**\
-`On the campaign trail, Donald Trump has signaled that a second term would be more radical and vindictive than his first one.`\
-https://nytimes.com/2024/04/29/podcasts/the-daily/second-trump-presidency.html
 
