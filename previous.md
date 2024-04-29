@@ -1,3 +1,11 @@
+**A Quick Fish Recipe That Covers All the Bases**\
+`Made with mild white-fleshed fish, bacon and mushrooms, Melissa Clark’s new dish is fast, flavorful and good for the fishy-fish averse.`\
+https://nytimes.com/2024/04/29/dining/a-quick-fish-recipe-that-covers-all-the-bases.html
+
+**Surprise Tactics and Legal Threats: Inside R.F.K. Jr.’s Ballot Access Fight**\
+`Robert F. Kennedy Jr.’s effort to get on the ballot in 50 states has already cost millions, federal campaign finance records show.`\
+https://nytimes.com/2024/04/29/us/politics/rfk-jr-ballot-access.html
+
 **Taylor Swift’s ‘Tortured Poets’ Breaks Records With Blockbuster Debut**\
 `Only the Beatles have more No. 1 LPs now: The pop superstar reigns atop the Billboard 200 for the 14th time with the equivalent of 2.6 million album sales.`\
 https://nytimes.com/2024/04/29/arts/music/taylor-swifts-tortured-poets-department-billboard-chart.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/29/us/museums-california.html
 **Dam Collapses in Western Kenya, Killing at Least 40**\
 `The country has been pummeled by heavy rains that have caused widespread flooding, part of a broader deluge that has devastated segments of East Africa.`\
 https://nytimes.com/2024/04/29/world/africa/dam-collapse-kenya-africa-floods.html
-
-**Israel is open to a truce involving an initial release of 33 hostages, officials say.**\
-`By Patrick Kingsley and Adam Rasgon`\
-https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/israel-hostages-hamas-deal
-
-**Who Gains From Elon Musk’s Visit to China?**\
-`Tesla’s C.E.O. appears to have landed a deal that moves the company closer to bringing fully autonomous driving to a giant market. But Beijing is keen to exploit the visit for its own purposes.`\
-https://nytimes.com/2024/04/29/business/dealbook/musk-tesla-china-visit.html
 
