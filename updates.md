@@ -1,3 +1,7 @@
+**Columbia Tells Protesters to Clear Out Encampment or Face Suspension**\
+`University officials have given students, who have occupied a central lawn on campus for nearly two weeks, until 2 p.m. to leave.`\
+https://nytimes.com/2024/04/29/nyregion/columbia-student-protest-encampment.html
+
 **A Quick Fish Recipe That Covers All the Bases**\
 `Made with mild white-fleshed fish, bacon and mushrooms, Melissa Clark’s new dish is fast, flavorful and good for the fishy-fish averse.`\
 https://nytimes.com/2024/04/29/dining/a-quick-fish-recipe-that-covers-all-the-bases.html
