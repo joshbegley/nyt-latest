@@ -1,5 +1,5 @@
-**A D.A. Was Pulled Over Upstate. Her Reaction Got Her More Than a Ticket.**\
-`Sandra Doorley, the district attorney of Monroe County, N.Y., refused to pull over for speeding and responded angrily to the officer who caught her, body camera footage showed.`\
+**A D.A. Was Caught Speeding. Her Outburst Earned Her More Than a Ticket.**\
+`Sandra Doorley, the district attorney of Monroe County, N.Y., refused to pull over and responded angrily to the officer who confronted her, body camera footage showed. Now she faces calls to resign.`\
 https://nytimes.com/2024/04/29/nyregion/monroe-county-da-sandra-doorley.html
 
 **Class of 2024, It’s Not in Your Head: The Job Market Is Tough.**\
