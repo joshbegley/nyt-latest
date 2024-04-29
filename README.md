@@ -1,3 +1,7 @@
+**Philips Settles CPAP Breathing Device Lawsuits for $1.1 Billion**\
+`Thousands of people with sleep apnea and other illnesses had sued the company, claiming flawed devices were harming them.`\
+https://nytimes.com/2024/04/29/health/cpap-breathing-devices-philips-settlement.html
+
 **Skydance Offers Paramount a Deal Sweetener: A $3 Billion Cash Infusion**\
 `The terms of the new deal would provide Paramount shareholders with an investment to pay down debt and buy back stock.`\
 https://nytimes.com/2024/04/29/business/media/skydance-paramount-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/arts/music/taylor-swifts-tortured-poets-departmen
 **Deadly Israeli strikes hit residential buildings in Rafah, Palestinian news media say.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/04/29/world/israel-gaza-war-hamas/deadly-israeli-strikes-hit-residential-buildings-in-rafah-palestinian-news-media-say
-
-**Hamas Fires Rockets Into Israel from Lebanon**\
-`The launches, nearly all of which Israel shot down, were an apparent attempt by the group to show it remains a threat even as the war has degraded its military capabilities in Gaza.`\
-https://nytimes.com/2024/04/29/world/middleeast/hamas-rockets-israel-lebanon.html
 
