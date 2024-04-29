@@ -1,3 +1,11 @@
+**The Campus Protests: Voices From Columbia, Barnard and Beyond**\
+`Sampling the outpouring of responses to the continuing protests on college campuses. Also: The Trump criminal cases; Trump, Pence and abortion.`\
+https://nytimes.com/2024/04/29/opinion/campus-protests-columbia-barnard.html
+
+**Inflation Is Stubborn. Is the Federal Budget Deficit Making It Worse?**\
+`Economists are divided over whether the growing amount of federal borrowing is fueling demand and driving up prices.`\
+https://nytimes.com/2024/04/29/us/politics/inflation-stubborn-deficit.html
+
 **A Mother’s Advocacy Might Have Kept Her Hostage Son Alive**\
 `The world is aware of her campaign. Could Hamas be?`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/gaza-hostages-mother
