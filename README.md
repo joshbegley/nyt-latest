@@ -1,3 +1,11 @@
+**Trump 2.0: What a Second Trump Presidency Would Bring**\
+`On the campaign trail, Donald Trump has signaled that a second term would be more radical and vindictive than his first one.`\
+https://nytimes.com/2024/04/29/podcasts/the-daily/second-trump-presidency.html
+
+**The Latest Push for a Gaza Pause, and Crackdowns on College Protests**\
+`Plus, a debate about killing owls.`\
+https://nytimes.com/2024/04/29/podcasts/cease-fire-college-protests.html
+
 **Stowaway Cat Gets From Utah to California in Amazon Returns Package**\
 `Galena, a 6-year-old shorthair, was found in an Amazon warehouse a week after she climbed into a 3-by-3-foot cardboard box at her owner’s home.`\
 https://nytimes.com/2024/04/29/us/amazon-package-cat-utah-california.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/04/29/us/politics/presidential-candidates-t
 **Can Nonprofit News Save the South From Itself?**\
 `If old school public-service journalism can make it anywhere, it can make it here.`\
 https://nytimes.com/2024/04/29/opinion/nonprofit-media-journalism.html
-
-**Student Protest Is an Essential Part of Education**\
-`Student protests at their core are really an extension of education by other means.`\
-https://nytimes.com/2024/04/29/opinion/student-protests-columbia-israel.html
-
-**With Abortion and the Border, Arizona Becomes a 2024 Political Hothouse**\
-`A battle over abortion bans and criminal charges against allies of former President Donald J. Trump continue to raise the state’s election-year profile.`\
-https://nytimes.com/2024/04/29/us/abortion-border-arizona-2024-election.html
 
