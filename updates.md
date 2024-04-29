@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`The latest push for a cease-fire in Gaza.`\
+https://nytimes.com/2024/04/29/briefing/israel-hamas-cease-fire-ukraine.html
+
 **As Anger Grows Over Gaza, Arab Leaders Crack Down on Protests**\
 `Grief and rage over the war and Israel have led to demonstrations across the Arab world. Arrests suggest governments fear the outrage could boomerang.`\
 https://nytimes.com/2024/04/29/world/middleeast/gaza-arab-protests-crackdown.html
