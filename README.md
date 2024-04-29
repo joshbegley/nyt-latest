@@ -1,3 +1,7 @@
+**Who Gains from Elon Musk’s Visit to China?**\
+`Tesla’s C.E.O. appears to have landed a deal that moves the company closer to bringing fully autonomous driving to a giant market. But Beijing is keen to exploit the visit for its own purposes.`\
+https://nytimes.com/2024/04/29/business/dealbook/musk-tesla-china-visit.html
+
 **Ukraine Retreats From Villages on Eastern Front as It Awaits U.S. Aid**\
 `Kyiv’s top commander said his outgunned troops were facing a dire situation, while Russia tried to push its advantage before the first batch of an American military package arrives.`\
 https://nytimes.com/2024/04/29/world/europe/ukraine-russia-war-latest.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-trial-polls-tipsheet
 **Amid Cases on Abortion and Trump, Roberts Reflects on Supreme Court’s Work**\
 `Oral arguments serve a crucial role at the Supreme Court, Chief Justice John Roberts said last week at Georgetown University. But they are not always what they seem.`\
 https://nytimes.com/2024/04/29/us/john-roberts-supreme-court-immunity-abortion.html
-
-**Koch Group Attacks Biden on the Economy, Hoping to Engage Latino Voters**\
-`Libre, an arm of the conservative network, is set to spend millions of dollars on outreach and advertising as Republicans seek to expand inroads with Hispanic voters.`\
-https://nytimes.com/2024/04/29/us/politics/libre-koch-biden-economy.html
 
