@@ -24,7 +24,7 @@ https://nytimes.com/live/2024/04/30/theater/tony-nominations/broadway-upcoming
 
 **Alicia Keys on ‘Hell’s Kitchen’ nod: I’m in ‘a deep state of freaking out.’**\
 `By Michael Paulson`\
-https://nytimes.com/live/2024/04/30/theater/tony-nominations/alicia-keys-on-hells-kitchen-nod-im-in-a-deep-state-of-freaking-out
+https://nytimes.com/2024/04/30/theater/alicia-keys-on-hells-kitchen-nod-im-in-a-deep-state-of-freaking-out.html
 
 **Goodbye, Gas. The Future of New York City’s Pizza Is Electric.**\
 `And just in time for a new city ordinance regulating pollution emitted by wood- and coal-fired ovens.`\
