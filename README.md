@@ -16,7 +16,7 @@ https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/as-israel-plans-
 
 **Democrats Announce That They Will Rescue Johnson if He Faces Ouster Vote**\
 `Party leaders said their members would join an effort to table any attempt to remove the Republican speaker after he allowed House passage of military aid to Ukraine.`\
-https://nytimes.com/2024/04/30/us/politics/johnson-jeffries-democrats.html
+https://nytimes.com/2024/04/30/us/politics/johnson-greene-jeffries-democrats.html
 
 **Some Columbia faculty say administrators pushed the university to this crisis.**\
 `By Alan Blinder, Anemona Hartocollis and Ali Watkins`\
