@@ -1,3 +1,7 @@
+**We Watched Horses Die on the Track. Will Anything Change?**\
+`Last year, 12 horses died at Churchill Downs, and another 13 died at Saratoga. In a new documentary, two reporters examine the issues surrounding the sport.`\
+https://nytimes.com/2024/04/30/insider/we-watched-horses-die-on-the-track-will-anything-change.html
+
 **A Bystander to ’60s Protests, Biden Now Becomes a Target**\
 `For President Biden, the campus unrest over the Gaza war recalls peace protests of his youth. But this time he cannot easily bypass the turmoil.`\
 https://nytimes.com/2024/04/30/us/politics/biden-columbia-protests-israel-antisemitism.html
