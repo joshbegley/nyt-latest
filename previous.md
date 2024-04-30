@@ -1,3 +1,7 @@
+**Judge Who Brawled With Neighbors Will Remain on N.Y. Bench**\
+`A state panel voted to censure Mark J. Grisanti, a former Republican state senator, but said he would not be removed for the incident, in which he shoved a police officer.`\
+https://nytimes.com/2024/04/30/nyregion/grisanti-judge-censure-buffalo.html
+
 **Contempt Fines and Hush-Money Details: 5 Takeaways From Trump’s Trial**\
 `Donald J. Trump was fined for contempt and warned of jail time before a lawyer testified about how he struck deals to silence two women who said they had trysts with the former president.`\
 https://nytimes.com/2024/04/30/nyregion/trump-trial-takeaways-gag-order.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/climate/ethanol-jet-fuel-saf-tax-incentives.html
 **Tensions Rise at U.N.C. Chapel Hill After Dozens of Pro-Palestinian Demonstrators Are Detained**\
 `By Tuesday afternoon, protesters had broken through the barriers keeping them out of an encampment, and they replaced an American flag in the center of campus with a Palestinian one.`\
 https://nytimes.com/2024/04/30/nyregion/unc-chapel-hill-protests.html
-
-**Protesters at U.N.C. Break Through Barricade in the Center of Campus**\
-`Protesters at the University of North Carolina, Chapel Hill, clashed with police officers working to restore an American flag that the demonstrators had replaced with a Palestinian one.`\
-https://nytimes.com/video/us/politics/100000009441687/unc-protests-israel-gaza.html
 
