@@ -1,3 +1,7 @@
+**A Q&A About Latino Republicans**\
+`We explain why more Latino voters find Trump appealing.`\
+https://nytimes.com/2024/04/30/briefing/latino-republicans-2024.html
+
 **Man With Sword Stabs Several People in London, Police Say**\
 `Five people were hospitalized after the stabbing, and a suspect was arrested. Video of the incident showed a man wielding a large sword near several houses.`\
 https://nytimes.com/2024/04/30/world/europe/london-stabbing-hainault.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/the-uns-top-cour
 **Stream These 10 Movies Before They Leave Netflix in May**\
 `Magic Mike’s finale, M. Night Shyamalan’s patient with 23 personalities, Baz Luhrmann’s “Gatsby” and a copstravaganza with a serious coda after the belly laughs.`\
 https://nytimes.com/2024/04/30/movies/movies-leaving-netflix-may.html
-
-**What Should a Congress Member’s Salary Be?**\
-`Twelve departing lawmakers tell us what Congress is really like.`\
-https://nytimes.com/interactive/2024/04/30/opinion/congress-resignations-salary.html
 

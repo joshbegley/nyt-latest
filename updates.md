@@ -1,3 +1,7 @@
+**A Q&A About Latino Republicans**\
+`We explain why more Latino voters find Trump appealing.`\
+https://nytimes.com/2024/04/30/briefing/latino-republicans-2024.html
+
 **Man With Sword Stabs Several People in London, Police Say**\
 `Five people were hospitalized after the stabbing, and a suspect was arrested. Video of the incident showed a man wielding a large sword near several houses.`\
 https://nytimes.com/2024/04/30/world/europe/london-stabbing-hainault.html
