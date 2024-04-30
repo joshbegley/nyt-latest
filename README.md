@@ -1,3 +1,7 @@
+**Amazon Reports $143.3 Billion in Revenue for First Quarter of 2024**\
+`The company also reported that profit more than tripled, to $10.4 billion, topping Wall Street expectations.`\
+https://nytimes.com/2024/04/30/technology/amazon-first-quarter-revenue.html
+
 **Norman Kansfield, 83, Dies; Defrocked for His Daughter’s Same-Sex Wedding**\
 `His decision to officiate at the ceremony prompted a debate within the Reformed Church in America that led ultimately to a schism.`\
 https://nytimes.com/2024/04/30/us/norman-kansfield-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/us/politics/fafsa-education-department-cardona.ht
 **Werner Spitz, Forensic Expert in High-Profile Murders, Dies at 97**\
 `He figured in the examination of sensational cases involving President John F. Kennedy, Martin Luther King Jr., O.J. Simpson and others.`\
 https://nytimes.com/2024/04/30/us/werner-spitz-dead.html
-
-**What Charges Will the Protesters Occupying the Columbia Building Face?**\
-`The students who took over Hamilton Hall on Tuesday could be charged with a range of offenses, but they are unlikely to face jail time, according to a legal expert.`\
-https://nytimes.com/2024/04/30/nyregion/columbia-protests-hamilton-hall.html
 
