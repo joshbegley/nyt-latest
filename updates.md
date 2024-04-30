@@ -1,3 +1,7 @@
+**Meet the Men Who Eat Meat (and Only Meat)**\
+`With the help of Joe Rogan, a social media trend with staying power emerged from a 2018 book, “The Carnivore Diet.”`\
+https://nytimes.com/2024/04/30/style/meet-the-men-who-eat-meat-and-only-meat.html
+
 **Walmart Is Shutting Health Centers After Plan to Expand**\
 `The 51 locations, next to Supercenters, proved too costly to be profitable, the retailer said.`\
 https://nytimes.com/2024/04/30/business/walmart-health-centers.html
