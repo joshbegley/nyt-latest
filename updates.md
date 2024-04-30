@@ -1,3 +1,5 @@
+**The Tony nominations are underway.**\
+
 **Campus Police Arrest Protesters at Cal Poly Humboldt**\
 `Protesters had occupied a building for over a week, leading the university to shut down the campus.`\
 https://nytimes.com/2024/04/30/nyregion/california-poly-humboldt-protests-arrests.html
