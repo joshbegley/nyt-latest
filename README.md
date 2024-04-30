@@ -1,3 +1,7 @@
+**Women on Bumble No Longer Have to Make the First Move**\
+`As dissatisfaction with online dating grows, the app that put women in control is shifting course.`\
+https://nytimes.com/2024/04/30/style/bumble-dating-apps.html
+
 **Paramount Faces a Mountain of Questions**\
 `Bob Bakish, the media giant’s chief executive, is out, removing an obstacle to a deal with David Ellison's Skydance. But the company’s future is no clearer as a key deadline approaches.`\
 https://nytimes.com/2024/04/30/business/dealbook/paramount-bakish-redstone-questions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/briefing/latino-republicans-2024.html
 **Man With Sword Stabs Several People in London, Police Say**\
 `Five people were hospitalized after the stabbing, and a suspect was arrested. Video of the incident showed a man wielding a large sword near several houses.`\
 https://nytimes.com/2024/04/30/world/europe/london-stabbing-hainault.html
-
-**Blinken Arrives in Jordan to Discuss Aid for Gaza**\
-`The visit comes as the Biden administration is trying to increase pressure on Hamas to accept a deal that would result in a temporary cease-fire in the war in Gaza and the release of some hostages.`\
-https://nytimes.com/2024/04/30/world/middleeast/blinken-jordan-gaza-us-aid-israel-war.html
 
