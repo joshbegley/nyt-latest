@@ -1,3 +1,11 @@
+**Stormy Daniels Almost Went on ABC, but Then Trump’s Team Paid Her**\
+`Prosecutors begin to prepare the way for Michael Cohen’s crucial testimony.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/stormy-daniels-almost-went-on-abc-but-then-trumps-team-paid-her
+
+**At Brown, a Rare Agreement Between Administrators and Protesters**\
+`Brown students took down their tents on campus after the university in Rhode Island agreed to discuss their demands for divestment from support for the Israeli military.`\
+https://nytimes.com/2024/04/30/us/brown-divestment-deal.html
+
 **Judge Who Brawled With Neighbors Will Remain on N.Y. Bench**\
 `A state panel voted to censure Mark J. Grisanti, a former Republican state senator, but said he would not be removed for the incident, in which he shoved a police officer.`\
 https://nytimes.com/2024/04/30/nyregion/grisanti-judge-censure-buffalo.html
