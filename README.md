@@ -1,3 +1,7 @@
+**Meet the Men Who Eat Meat (and Only Meat)**\
+`With the help of Joe Rogan, a social media trend with staying power emerged from a 2018 book, “The Carnivore Diet.”`\
+https://nytimes.com/2024/04/30/style/meet-the-men-who-eat-meat-and-only-meat.html
+
 **Walmart Is Shutting Health Centers After Plan to Expand**\
 `The 51 locations, next to Supercenters, proved too costly to be profitable, the retailer said.`\
 https://nytimes.com/2024/04/30/business/walmart-health-centers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/nyregion/merchan-trump-contempt-gag-order.html
 **College Democrats Back Protests and Criticize Biden’s Israel Policy**\
 `The student organization of the Democratic Party condemned colleges’ crackdowns on pro-Palestinian protests and called on President Biden to support a permanent cease-fire in Gaza.`\
 https://nytimes.com/2024/04/30/us/politics/bidens-israel-college-democrats.html
-
-**Green Girl Glory: Three Former Elphabas Scored Tony Nominations**\
-`Shoshana Bean, Eden Espinosa and Lindsay Mendez received nominations for their roles in “Hell’s Kitchen,” “Lempicka” and “Merrily We Roll Along,” respectively.`\
-https://nytimes.com/2024/04/30/theater/wicked-elphabas-bean-espinosa-mendez.html
 
