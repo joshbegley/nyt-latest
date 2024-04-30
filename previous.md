@@ -1,3 +1,11 @@
+**Make a Great Taco Even Better With Jackfruit**\
+`Often amenable in flavor with a texture like pork, the fruit has become a recent favorite among vegetarians.`\
+https://nytimes.com/2024/04/30/magazine/jackfruit-taco-recipe.html
+
+**A Bystander to ’60s Protests, Biden Now Becomes a Target**\
+`For President Biden, the campus unrest over the Gaza war recalls peace protests of his youth. But this time he cannot easily bypass the turmoil.`\
+https://nytimes.com/2024/04/30/us/politics/biden-columbia-protests-israel-antisemitism.html
+
 **Wednesday Briefing: Clashes Escalate on U.S. Campuses**\
 `Also, a judge fined Donald Trump for breaking a gag owner.`\
 https://nytimes.com/2024/04/30/world/asia/columbia-explusion-trump-broadway-asia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/30/nyregion/cryptocurrency-terrorism-victoria-jacobs
 **Germany’s military support of Israel is being challenged, despite the I.C.J.’s decision.**\
 `A lawsuit was also filed in a Berlin court, which said it expects the government not to license more arms exports until it issues a ruling.`\
 https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/germanys-military-support-of-israel-is-being-challenged-despite-the-icjs-decision
-
-**Tesla Fires Many on Charger Team, Raising Doubts About Expansion**\
-`The carmaker dismissed hundreds of employees in a unit that was critical to its success and seen as important to the future of electric vehicle sales in the United States.`\
-https://nytimes.com/2024/04/30/business/tesla-layoffs-supercharger-team.html
-
-**We Watched Horses Die on the Track. Will Anything Change?**\
-`Last year, 12 horses died at Churchill Downs, and another 13 died at Saratoga. In a new documentary, two reporters examine the issues surrounding the sport.`\
-https://nytimes.com/2024/04/30/insider/we-watched-horses-die-on-the-track-will-anything-change.html
 
