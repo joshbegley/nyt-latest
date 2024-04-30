@@ -1,3 +1,15 @@
+**Weekly Student News Quiz: College Protests, School Lunch, Bird Flu**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/04/30/learning/30StudentNewsQuizLN.html
+
+**Here’s what it looked like when 12 Broadway shows opened in 9 days.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/heres-what-it-looked-like-when-12-broadway-shows-opened-in-9-days
+
+**Tony Awards Nominations 2024: Updating List**\
+`Nominations for the 77th Tony Awards will be announced Tuesday morning. See below for a live list of nominees.`\
+https://nytimes.com/2024/04/30/theater/tony-awards-nominations.html
+
 **Women on Bumble No Longer Have to Make the First Move**\
 `As dissatisfaction with online dating grows, the app that put women in control is shifting course.`\
 https://nytimes.com/2024/04/30/style/bumble-dating-apps.html
