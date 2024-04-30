@@ -1,3 +1,7 @@
+**Broadway still has not recovered to its prepandemic levels.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/broadway-box-office-grosses-attendance
+
 **Here’s a guide to the shows onstage now, and how to get tickets.**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/broadway-guide

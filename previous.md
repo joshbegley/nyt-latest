@@ -1,3 +1,7 @@
+**Broadway still has not recovered to its prepandemic levels.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/broadway-box-office-grosses-attendance
+
 **Here’s a guide to the shows onstage now, and how to get tickets.**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/broadway-guide
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/podcasts/the-daily/tiktok-ban.html
 **Columbia Protesters Occupy Building, and Trump Complains About His Lawyer**\
 `Plus, a deadly day for law enforcement.`\
 https://nytimes.com/2024/04/30/podcasts/trump-lawyers-ai.html
-
-**Walmart Introduces a New Store Brand for ‘Quality Food’**\
-`The Better Goods store brand will carry plant-based, gluten-free and higher-end food and could help the retailer attract more affluent shoppers.`\
-https://nytimes.com/2024/04/30/business/economy/walmart-better-goods-store-brand.html
 
