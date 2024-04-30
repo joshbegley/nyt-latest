@@ -1,3 +1,15 @@
+**‘Smartphones on Wheels’ Draw Attention From Regulators**\
+`Modern cars are internet-connected and have hundreds of sensors. Lawmakers and regulators have concerns about what’s happening with all that data.`\
+https://nytimes.com/2024/04/30/technology/regulators-investigate-carmakers-driver-tracking.html
+
+**Columbia Protesters Rename Hamilton Hall to ‘Hind’s Hall’**\
+`Demonstrators unfurled a banner with the name of a 6-year-old girl who died this year in Gaza during Israel’s war against Hamas.`\
+https://nytimes.com/2024/04/30/nyregion/columbia-protesters-hind-rajab-hamilton-hall.html
+
+**Read the Judge’s Contempt Ruling**\
+`Justice Juan M. Merchan determined that Donald J. Trump violated a gag order barring him from attacking witnesses and the jury.`\
+https://nytimes.com/interactive/2024/04/30/nyregion/trump-contempt-ruling-gag-order.html
+
 **Read the Judge’s Contempt Ruling**\
 `Justice Juan M. Merchan determined that Donald J. Trump broke a gag order by making public statements on social media and on his campaign website attacking witnesses and the jury.`\
 https://nytimes.com/interactive/2024/04/30/nyregion/trump-contempt-ruling-gag-order.html

@@ -14,7 +14,7 @@ https://nytimes.com/interactive/2024/04/30/nyregion/trump-contempt-ruling-gag-or
 `Donald J. Trump is under a gag order that bars him from attacking witnesses, prosecutors and jurors, among others.`\
 https://nytimes.com/2024/04/30/nyregion/merchan-trump-contempt-gag-order.html
 
-**College Democrats of America Back Protests and Criticize Biden’s Israel Policy**\
+**College Democrats Back Protests and Criticize Biden’s Israel Policy**\
 `The student organization of the Democratic Party condemned colleges’ crackdowns on pro-Palestinian protests and called on President Biden to support a permanent cease-fire in Gaza.`\
 https://nytimes.com/2024/04/30/us/politics/bidens-israel-college-democrats.html
 
