@@ -1,3 +1,7 @@
+**Here’s what we know about Gary Farro, who is testifying now.**\
+`By Michael Rothfeld`\
+https://nytimes.com/live/2024/04/30/nyregion/trump-hush-money-trial/heres-what-we-know-about-gary-farro-who-is-testifying-now
+
 **Meet the Men Who Eat Meat (and Only Meat)**\
 `With the help of Joe Rogan, a social media trend with staying power emerged from a 2018 book, “The Carnivore Diet.”`\
 https://nytimes.com/2024/04/30/style/meet-the-men-who-eat-meat-and-only-meat.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/04/30/nyregion/trump-contempt-ruling-gag-or
 **Judge Holds Trump in Contempt for Amplifying Attacks on Witnesses**\
 `Donald J. Trump is under a gag order that bars him from attacking witnesses, prosecutors and jurors, among others.`\
 https://nytimes.com/2024/04/30/nyregion/merchan-trump-contempt-gag-order.html
-
-**College Democrats Back Protests and Criticize Biden’s Israel Policy**\
-`The student organization of the Democratic Party condemned colleges’ crackdowns on pro-Palestinian protests and called on President Biden to support a permanent cease-fire in Gaza.`\
-https://nytimes.com/2024/04/30/us/politics/bidens-israel-college-democrats.html
 
