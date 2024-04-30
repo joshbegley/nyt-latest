@@ -35,6 +35,6 @@ https://nytimes.com/live/2024/04/30/theater/tony-nominations/leslie-odom-jr-tony
 https://nytimes.com/2024/04/30/us/politics/republicans-ukraine-aid-vote.html
 
 **How Trump Prosecutors Used C-SPAN to Inform Jurors of Sex Assault Claims**\
-`They played clips of Donald J. Trump attacking women who had accused him of assault.`\
+`They played clips of Donald J. Trump attacking women who had accused him of assault, a way to contend with a judge’s order barring direct testimony about the cases.`\
 https://nytimes.com/2024/04/30/nyregion/trump-trial-cspan-evidence.html
 
