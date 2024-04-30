@@ -1,3 +1,7 @@
+**A 2-Year-Old in Arizona Died When a Bounce House Blew Away. Can They Be Made Safer?**\
+`The death of a child involving a bounce house that was carried by the wind underscored the potential dangers of the attractions, but precautions can make them safer.`\
+https://nytimes.com/2024/04/30/us/bounce-house-accident-safety.html
+
 **So many shows only just opened. How did the nominations happen so quickly?**\
 `By Michael Paulson`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/so-many-shows-only-just-opened-how-did-the-nominations-happen-so-quickly
