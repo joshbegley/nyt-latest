@@ -1,40 +1,40 @@
-**Alien Terrors, Vampire Conspiracies and More in 4 New Horror Books**\
-`Our columnist reviews this month’s latest scary releases.`\
-https://nytimes.com/2024/04/30/books/review/new-horror-books.html
+**Hamilton Hall Has a Long History of Student Takeovers**\
+`The Columbia University building, which opened in 1907, has been occupied several times by student activists.`\
+https://nytimes.com/2024/04/30/nyregion/hamilton-hall-columbia-student-protests.html
 
-**Singing for the Dead, a Woman Finds Her Purpose**\
-`Wenyan Lu’s novel, “The Funeral Cryer,” explores a Chinese tradition through a modern, more personal lens.`\
-https://nytimes.com/2024/04/30/books/review/the-funeral-cryer-wenyan-lu.html
+**High Fed Rates Are Not Crushing Growth. Wealthier People Help Explain Why.**\
+`High rates usually pull down asset prices and hurt the housing market. Those channels are muted now, possibly making policy slower to work.`\
+https://nytimes.com/2024/04/30/business/economy/high-fed-rates-rich-people.html
 
-**A Gripping Family Saga Asks, What Makes for ‘Real Americans’?**\
-`Rachel Khong’s new novel follows three generations of Chinese Americans as they all fight for self-determination in their own way.`\
-https://nytimes.com/2024/04/30/books/review/real-americans-rachel-khong.html
+**Enrique Olvera Heads to Brooklyn With Esse Taco**\
+`Sammy’s Roumanian Steakhouse returns after an extended Covid closure, Mission Chinese pops up at Cha Kee and more restaurant news.`\
+https://nytimes.com/2024/04/30/dining/enrique-olvera-heads-to-brooklyn-with-esse-taco.html
 
-**Are Disposable Hotel Slippers the Next Plastic Straws?**\
-`Slippers supplied by hotels — flimsy models usually made of plastic and fabric — are the next single-use item in the cross hairs of sustainability activists.`\
-https://nytimes.com/2024/04/30/travel/disposable-hotel-slippers-sustainability.html
+**The House That Once Embarrassed Them Is Now a Showplace**\
+`“Their disdain for this house,” the designer said, “was a green light to give it a whole new life.”`\
+https://nytimes.com/2024/04/30/realestate/minnesota-ranch-house-renovation.html
 
-**A Proposed Law Targeting ‘Foreign Interests’ in Georgia Riles the Opposition**\
-`Opponents of the measure, which resembles a Russian law that Moscow has used to crack down on dissidents, say it could undermine efforts for Georgia to join the European Union.`\
-https://nytimes.com/2024/04/30/world/europe/georgia-foreign-agent-bill.html
+**Should College Freshmen Choose Their Roommates?**\
+`An Opinion columnist argues that students can benefit from living with people they don’t know. Do you agree?`\
+https://nytimes.com/2024/04/30/learning/should-college-freshmen-choose-their-roommates.html
 
-**The occupation of a building at Columbia is at least the second across the country.**\
-`By Eryn Davis, Sharon Otterman, Sarah Maslin Nir and Liset Cruz`\
-https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/the-occupation-of-a-building-at-columbia-is-at-least-the-second-across-the-country
+**Queen Snakes Are Back, and They’re in New Jersey**\
+`The reptiles, an endangered species, hadn’t been seen in the state since the 1970s.`\
+https://nytimes.com/2024/04/30/nyregion/queen-snakes-new-jersey.html
 
-**30campus-protests**\
-`Live Updates: Protesters Take Over Building on Columbia Campus`\
-https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college
+**How Michigan Ended Minority Rule**\
+`Though the notion would have been laughable a decade ago, Michigan is one promising national model for how state-level activists can retake power.`\
+https://nytimes.com/2024/04/30/opinion/michigan-democrats-majority.html
 
-**Graphs**\
-`The Times’s Upshot is a section devoted to visualizing data behind news stories. How good is your graph literacy?`\
-https://nytimes.com/2024/04/30/learning/graphs.html
+**Inside a Navy Submarine Navigating the Arctic**\
+`A Times photojournalist embarked on a nuclear-powered attack sub to see how the Pentagon is training for a potential war below the frozen sea.`\
+https://nytimes.com/2024/04/30/us/politics/inside-navy-submarine-arctic.html
 
-**Trump Faces Possible $10,000 Contempt Fine as Trial Resumes**\
-`As Donald J. Trump’s criminal trial enters its third week, new witnesses will appear and the judge will weigh a request to hold him in contempt for violating his gag order.`\
-https://nytimes.com/2024/04/30/nyregion/trump-hush-money-trial.html
+**The First Six Weeks of Pregnancy, Explained**\
+`Florida is set to ban abortions after six weeks. Experts explain how that can often be before a woman knows she is pregnant.`\
+https://nytimes.com/2024/04/30/well/live/pregnancy-abortion-six-weeks.html
 
-**Trump, Venting About Lawyer in His Criminal Trial, Seeks More Aggression**\
-`Todd Blanche upended his career to represent Donald J. Trump and has been the former president’s favorite. But Mr. Trump has made him a focus of his episodic wrath.`\
-https://nytimes.com/2024/04/30/us/politics/trump-trial-todd-blanche.html
+**Edward Dwight Aims for Orbit at Last**\
+`Six decades ago, Mr. Dwight’s shot at becoming the first Black astronaut in space was thwarted by racism and politics. Now, at 90, he’s finally going up.`\
+https://nytimes.com/2024/04/30/science/edward-dwight-astronauts.html
 
