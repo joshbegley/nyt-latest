@@ -1,3 +1,7 @@
+**Judge Holds Trump in Contempt for Amplifying Attacks on Witnesses**\
+`Donald J. Trump is under a gag order that bars him from attacking witnesses, prosecutors and jurors, among others.`\
+https://nytimes.com/2024/04/30/nyregion/merchan-trump-contempt-gag-order.html
+
 **Green Girl Glory: Three former Elphabas scored Tony nominations.**\
 `By Michael Paulson`\
 https://nytimes.com/2024/04/30/theater/broadway-elphabas-bean-espinosa-mendez.html
