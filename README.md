@@ -1,3 +1,7 @@
+**Sarah Paulson on her first Tony nomination, for ‘Appropriate.’**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/sarah-paulson-tony-nomination
+
 **Trump Again Vows Mass Deportations and Won’t Rule Out Political Violence**\
 `In an interview with Time magazine, the former president said he planned to use the military to deport migrants and would not dismiss the possibility of political violence after this year’s election.`\
 https://nytimes.com/2024/04/30/us/politics/trump-time-migrants-election.html
