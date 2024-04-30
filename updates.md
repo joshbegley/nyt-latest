@@ -1,3 +1,11 @@
+**PG&E Seeks Approval to Sell Stake in Its Power Operations**\
+`California’s largest utility said its proposed deal with the global investment firm KKR could reduce customer rates by $100 million over 20 years.`\
+https://nytimes.com/2024/04/30/business/pge-kkr-stake.html
+
+**In Charlotte, a City Mourns Its Officers, and Asks What Went Wrong**\
+`The killing of the four officers in a usually quiet suburb, where a running gun battle left neighbors scrambling for cover, stunned residents and brought anguish across the city.`\
+https://nytimes.com/2024/04/30/us/charlotte-officers-killed-aftermath.html
+
 **Education Secretary Calls Antisemitism on Campuses ‘Abhorrent’ and ‘Unacceptable’**\
 `Miguel A. Cardona told lawmakers that his department was continuing to investigate complaints of antisemitism at dozens of colleges since Oct. 7.`\
 https://nytimes.com/2024/04/30/us/politics/miguel-cardona-antisemitism-campus-protests.html

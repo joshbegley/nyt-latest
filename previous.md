@@ -1,3 +1,11 @@
+**PG&E Seeks Approval to Sell Stake in Its Power Operations**\
+`California’s largest utility said its proposed deal with the global investment firm KKR could reduce customer rates by $100 million over 20 years.`\
+https://nytimes.com/2024/04/30/business/pge-kkr-stake.html
+
+**In Charlotte, a City Mourns Its Officers, and Asks What Went Wrong**\
+`The killing of the four officers in a usually quiet suburb, where a running gun battle left neighbors scrambling for cover, stunned residents and brought anguish across the city.`\
+https://nytimes.com/2024/04/30/us/charlotte-officers-killed-aftermath.html
+
 **Stormy Daniels Almost Went on ABC, but Then Trump’s Team Paid Her**\
 `Prosecutors begin to prepare the way for Michael Cohen’s crucial testimony.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/stormy-daniels-trump-trial
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/30/world/sycamore-gap-tree-felling-charges.html
 **Scenes From the Student Protests Churning Across the Country**\
 `Despite hundreds of arrests and threats of disciplinary action, pro-Palestinian demonstrations have continued into a third week.`\
 https://nytimes.com/2024/04/30/us/campus-protests-colleges-columbia-photos.html
-
-**Columbia Said It Would Expel Students Occupying a Building**\
-`Also, a judge held Trump in contempt, and warned of jail time. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/04/30/briefing/campus-protests-columbia-donald-trump-contempt.html
-
-**Education Secretary Calls Antisemitism on Campuses ‘Abhorrent’ and ‘Unacceptable’**\
-`Miguel A. Cardona told lawmakers that his department was continuing to investigate complaints of antisemitism at dozens of colleges since Oct. 7.`\
-https://nytimes.com/2024/04/30/us/politics/miguel-cardona-antisemitism-campus-protests.html
 

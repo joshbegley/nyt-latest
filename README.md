@@ -6,7 +6,7 @@ https://nytimes.com/2024/04/30/business/pge-kkr-stake.html
 `The killing of the four officers in a usually quiet suburb, where a running gun battle left neighbors scrambling for cover, stunned residents and brought anguish across the city.`\
 https://nytimes.com/2024/04/30/us/charlotte-officers-killed-aftermath.html
 
-**Stormy Daniels Almost Went on ABC, but Then Trump’s Team Paid Her**\
+**Stormy Daniels Almost Went on ABC News, but Then Trump’s Team Paid Her**\
 `Prosecutors begin to prepare the way for Michael Cohen’s crucial testimony.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/stormy-daniels-trump-trial
 
