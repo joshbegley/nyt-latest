@@ -1,6 +1,10 @@
+**In Charlotte, a City Mourns Its Officers, and Asks What Went Wrong**\
+`The killing of the four officers in a usually quiet suburb, where a running gun battle left neighbors scrambling for cover, stunned residents and brought anguish across the city.`\
+https://nytimes.com/2024/04/30/us/charlotte-officers-killed-aftermath.html
+
 **Stormy Daniels Almost Went on ABC, but Then Trump’s Team Paid Her**\
 `Prosecutors begin to prepare the way for Michael Cohen’s crucial testimony.`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/stormy-daniels-almost-went-on-abc-but-then-trumps-team-paid-her
+https://nytimes.com/live/2024/04/24/opinion/thepoint/stormy-daniels-trump-trial
 
 **At Brown, a Rare Agreement Between Administrators and Protesters**\
 `Brown students took down their tents on campus after the university in Rhode Island agreed to discuss their demands for divestment from support for the Israeli military.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/us/campus-protests-colleges-columbia-photos.html
 **Columbia Said It Would Expel Students Occupying a Building**\
 `Also, a judge held Trump in contempt, and warned of jail time. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/04/30/briefing/campus-protests-columbia-donald-trump-contempt.html
-
-**Education Secretary Calls Antisemitism on Campuses ‘Abhorrent’ and ‘Unacceptable’**\
-`Miguel A. Cardona told lawmakers that his department was continuing to investigate complaints of antisemitism at dozens of colleges since Oct. 7.`\
-https://nytimes.com/2024/04/30/us/politics/miguel-cardona-antisemitism-campus-protests.html
 
