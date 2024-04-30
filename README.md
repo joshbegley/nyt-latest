@@ -1,3 +1,7 @@
+**Paramount Faces a Mountain of Questions**\
+`Bob Bakish, the media giant’s chief executive, is out, removing an obstacle to a deal with David Ellison's Skydance. But the company’s future is no clearer as a key deadline approaches.`\
+https://nytimes.com/2024/04/30/business/dealbook/paramount-bakish-redstone-questions.html
+
 **Broadway still has not recovered to its prepandemic levels.**\
 `By Michael Paulson`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/broadway-box-office-grosses-attendance
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/world/middleeast/blinken-jordan-gaza-us-aid-israe
 **The Secret Push That Could Ban TikTok**\
 `U.S. lawmakers have long worried that the Chinese government could use the app to spread propaganda.`\
 https://nytimes.com/2024/04/30/podcasts/the-daily/tiktok-ban.html
-
-**Columbia Protesters Occupy Building, and Trump Complains About His Lawyer**\
-`Plus, a deadly day for law enforcement.`\
-https://nytimes.com/2024/04/30/podcasts/trump-lawyers-ai.html
 
