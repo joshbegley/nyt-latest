@@ -1,3 +1,11 @@
+**Contempt Fines and Hush-Money Details: 5 Takeaways From Trump’s Trial**\
+`Donald J. Trump was fined for contempt and warned of jail time before a lawyer testified about how he struck deals to silence two women who said they had trysts with the former president.`\
+https://nytimes.com/live/2024/04/30/nyregion/trump-hush-money-trial/trump-trial-takeaways-gag-order
+
+**‘Fearless Girl’ Lawsuit Is Over but the Statue’s Fate Is Unsettled**\
+`The artist of the defiant bronze statue near Wall Street reached an agreement with the financial firm that commissioned it.`\
+https://nytimes.com/2024/04/30/arts/design/fearless-girl-statue-new-york-lawsuit.html
+
 **For Trump, a $9,000 rebuke and a stern warning**\
 `The judge made it clear that further gag-order violations could land the former president in jail.`\
 https://nytimes.com/2024/04/30/us/politics/trump-trial-gag-order-contempt-fine.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/30/nyregion/unc-chapel-hill-protests.html
 **Protesters at U.N.C. Break Through Barricade in the Center of Campus**\
 `Protesters at the University of North Carolina, Chapel Hill, clashed with police officers working to restore an American flag that the demonstrators had replaced with a Palestinian one.`\
 https://nytimes.com/video/us/politics/100000009441687/unc-protests-israel-gaza.html
-
-**Make a Great Taco Even Better With Jackfruit**\
-`Often amenable in flavor with a texture like pork, the fruit has become a recent favorite among vegetarians.`\
-https://nytimes.com/2024/04/30/magazine/jackfruit-taco-recipe.html
-
-**A Bystander to ’60s Protests, Biden Now Becomes a Target**\
-`For President Biden, the campus unrest over the Gaza war recalls peace protests of his youth. But this time he cannot easily bypass the turmoil.`\
-https://nytimes.com/2024/04/30/us/politics/biden-columbia-protests-israel-antisemitism.html
 
