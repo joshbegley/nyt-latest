@@ -1,3 +1,7 @@
+**New York Woman Gets 18 Years for Funding Terrorism With Cryptocurrency**\
+`Prosecutors said Victoria Jacobs sent funds to Bitcoin wallets controlled by a terrorist training group that operated in Syria.`\
+https://nytimes.com/2024/04/30/nyregion/cryptocurrency-terrorism-victoria-jacobs.html
+
 **Germany’s military support of Israel is being challenged, despite the I.C.J.’s decision.**\
 `A lawsuit was also filed in a Berlin court, which said it expects the government not to license more arms exports until it issues a ruling.`\
 https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/germanys-military-support-of-israel-is-being-challenged-despite-the-icjs-decision
