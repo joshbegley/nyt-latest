@@ -1,3 +1,11 @@
+**For Trump, a $9,000 rebuke and a stern warning**\
+`The judge made it clear that further gag-order violations could land the former president in jail.`\
+https://nytimes.com/2024/04/30/us/politics/trump-trial-gag-order-contempt-fine.html
+
+**Two Men Are Charged Over the Felling of the Sycamore Gap Tree**\
+`Seven months after the beloved tree in northern England was cut down, the police charged two men in their 30s with damaging the 200-year-old tree and part of Hadrian’s Wall.`\
+https://nytimes.com/2024/04/30/world/sycamore-gap-tree-felling-charges.html
+
 **Wednesday Briefing: Clashes Escalate on U.S. Campuses**\
 `Also, a judge fined Donald Trump for breaking a gag order.`\
 https://nytimes.com/2024/04/30/world/asia/columbia-explusion-trump-broadway-asia.html
