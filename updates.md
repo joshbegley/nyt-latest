@@ -1,3 +1,15 @@
+**U.S. Plan to Protect Oceans Has a Problem, Some Say: Too Much Fishing**\
+`An effort to protect 30 percent of land and waters would count some commercial fishing zones as conserved areas.`\
+https://nytimes.com/2024/04/30/climate/united-states-conservation-30x30.html
+
+**‘Smartphones on Wheels’ Draw Attention From Regulators**\
+`Modern cars are internet-connected and have hundreds of sensors. Lawmakers and regulators have concerns about what’s happening with all that data.`\
+https://nytimes.com/2024/04/30/technology/regulators-investigate-carmakers-driver-tracking.html
+
+**Columbia Protesters Rename Hamilton Hall to ‘Hind’s Hall’**\
+`Demonstrators unfurled a banner with the name of a 6-year-old girl who died this year in Gaza during Israel’s war against Hamas.`\
+https://nytimes.com/2024/04/30/nyregion/columbia-protesters-hind-rajab-hamilton-hall.html
+
 **College Democrats Back Protests and Criticize Biden’s Israel Policy**\
 `The student organization of the Democratic Party condemned colleges’ crackdowns on pro-Palestinian protests and called on President Biden to support a permanent cease-fire in Gaza.`\
 https://nytimes.com/2024/04/30/us/politics/bidens-israel-college-democrats.html
