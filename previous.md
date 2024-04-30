@@ -3,7 +3,7 @@
 https://nytimes.com/2024/04/30/business/europe-economy-inflation-growth.html
 
 **What to Know About the Police Shooting in Charlotte**\
-`A police officer and three members of a U.S. Marshals task force were shot while serving warrants to a suspect, who was also killed.`\
+`A police officer and three members of a U.S. Marshals task force were fatally shot while serving warrants to a suspect, who was also killed.`\
 https://nytimes.com/2024/04/30/us/police-shooting-charlotte-what-happened.html
 
 **The U.N.’s top court will issue an interim ruling in a case involving Germany’s weapons sales to Israel.**\
