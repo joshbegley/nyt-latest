@@ -1,3 +1,7 @@
+**How Locals Saved ‘the Yosemite of South America’**\
+`A decade-long battle between a wealthy industrialist and a band of activists led to a surprising $63 million transaction.`\
+https://nytimes.com/2024/04/30/climate/chile-cochamo-valley-puelo-patagonia.html
+
 **A 2-Year-Old in Arizona Died When a Bounce House Blew Away. Can They Be Made Safer?**\
 `The death of a child involving a bounce house that was carried by the wind underscored the potential dangers of the attractions, but precautions can make them safer.`\
 https://nytimes.com/2024/04/30/us/bounce-house-accident-safety.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/30/theater/tony-nominations/leslie-odom-jr-tony
 **After Ukraine Aid Vote, Republicans Braced for Backlash Find Little**\
 `Some Republicans who backed the aid encountered little resistance from voters, who were far more willing to embrace it — and less interested in ousting the speaker over it — than their right-wing colleagues.`\
 https://nytimes.com/2024/04/30/us/politics/republicans-ukraine-aid-vote.html
-
-**How Trump Prosecutors Used C-SPAN to Inform Jurors of Sex Assault Claims**\
-`They played clips of Donald J. Trump attacking women who had accused him of assault, a way to contend with a judge’s order barring direct testimony about the cases.`\
-https://nytimes.com/2024/04/30/nyregion/trump-trial-cspan-evidence.html
 
