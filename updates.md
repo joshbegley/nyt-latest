@@ -1,3 +1,11 @@
+**Ex-N.S.A. Employee Who Tried to Sell U.S. Secrets to Russia Gets 22 Years**\
+`The Colorado man, who held a top security clearance, told an undercover F.B.I. employee posing as a Russian agent that he needed to pay nearly $84,000 in student loan and credit card debt.`\
+https://nytimes.com/2024/04/30/us/nsa-espionage-colorado-sentence.html
+
+**Alicia Keys on ‘Hell’s Kitchen’ nod: I’m in ‘a deep state of freaking out.’**\
+`By Michael Paulson`\
+https://nytimes.com/2024/04/30/theater/alicia-keys-on-hells-kitchen-nod-im-in-a-deep-state-of-freaking-out.html
+
 **Are Bonds Gonna Party Like it’s 1999?**\
 `Reconsidering my views on interest rates.`\
 https://nytimes.com/2024/04/30/opinion/interest-rates-economy.html

@@ -1,3 +1,7 @@
+**Ex-N.S.A. Employee Who Tried to Sell U.S. Secrets to Russia Gets 22 Years**\
+`The Colorado man, who held a top security clearance, told an undercover F.B.I. employee posing as a Russian agent that he needed to pay nearly $84,000 in student loan and credit card debt.`\
+https://nytimes.com/2024/04/30/us/nsa-espionage-colorado-sentence.html
+
 **Are Bonds Gonna Party Like it’s 1999?**\
 `Reconsidering my views on interest rates.`\
 https://nytimes.com/2024/04/30/opinion/interest-rates-economy.html
@@ -18,9 +22,9 @@ https://nytimes.com/paidpost/nutrafol/can-supplements-really-help-thinning-hair.
 `By Michael Paulson`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/broadway-upcoming
 
-**Alicia Keys on ‘Hell’s Kitchen’ nod: I’m in ‘a deep state of freaking out’**\
+**Alicia Keys on ‘Hell’s Kitchen’ nod: I’m in ‘a deep state of freaking out.’**\
 `By Michael Paulson`\
-https://nytimes.com/live/2024/04/30/theater/tony-nominations/alicia-keys-on-hells-kitchen-nod-im-in-a-deep-state-of-freaking-out
+https://nytimes.com/2024/04/30/theater/alicia-keys-on-hells-kitchen-nod-im-in-a-deep-state-of-freaking-out.html
 
 **Goodbye, Gas. The Future of New York City’s Pizza Is Electric.**\
 `And just in time for a new city ordinance regulating pollution emitted by wood- and coal-fired ovens.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/heres-whe
 **I Let TikTok Tell Me Where to Eat. Here’s What I Learned.**\
 `A food editor documents the high, the low and the mid from a week’s worth of influencer restaurant suggestions.`\
 https://nytimes.com/2024/04/30/dining/tiktok-fyp-restaurant-recommendations.html
-
-**A Brief Tour of Pop Music’s Caffeine Addiction**\
-`Hear songs by Sabrina Carpenter, Squeeze, SZA and more.`\
-https://nytimes.com/2024/04/30/arts/music/amplifier-newsletter-caffeine-songs.html
 
