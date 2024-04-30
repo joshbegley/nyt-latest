@@ -1,3 +1,11 @@
+**Read the Judge’s Contempt Ruling**\
+`Justice Juan M. Merchan determined that Donald J. Trump broke a gag order by making public statements on social media and on his campaign website attacking witnesses and the jury.`\
+https://nytimes.com/interactive/2024/04/30/nyregion/trump-contempt-ruling-gag-order.html
+
+**Green Girl Glory: Three Former Elphabas Scored Tony Nominations**\
+`Shoshana Bean, Eden Espinosa and Lindsay Mendez received nominations for their roles in “Hell’s Kitchen,” “Lempicka” and “Merrily We Roll Along,” respectively.`\
+https://nytimes.com/2024/04/30/theater/wicked-elphabas-bean-espinosa-mendez.html
+
 **Judge Holds Trump in Contempt for Amplifying Attacks on Witnesses**\
 `Donald J. Trump is under a gag order that bars him from attacking witnesses, prosecutors and jurors, among others.`\
 https://nytimes.com/2024/04/30/nyregion/merchan-trump-contempt-gag-order.html

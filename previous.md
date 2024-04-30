@@ -1,3 +1,7 @@
+**Read the Judge’s Contempt Ruling**\
+`Justice Juan M. Merchan determined that Donald J. Trump broke a gag order by making public statements on social media and on his campaign website attacking witnesses and the jury.`\
+https://nytimes.com/interactive/2024/04/30/nyregion/trump-contempt-ruling-gag-order.html
+
 **Judge Holds Trump in Contempt for Amplifying Attacks on Witnesses**\
 `Donald J. Trump is under a gag order that bars him from attacking witnesses, prosecutors and jurors, among others.`\
 https://nytimes.com/2024/04/30/nyregion/merchan-trump-contempt-gag-order.html
@@ -6,9 +10,9 @@ https://nytimes.com/2024/04/30/nyregion/merchan-trump-contempt-gag-order.html
 `The student organization of the Democratic Party condemned colleges’ crackdowns on pro-Palestinian protests and called on President Biden to support a permanent cease-fire in Gaza.`\
 https://nytimes.com/2024/04/30/us/politics/bidens-israel-college-democrats.html
 
-**Green Girl Glory: Three former Elphabas scored Tony nominations.**\
-`By Michael Paulson`\
-https://nytimes.com/2024/04/30/theater/broadway-elphabas-bean-espinosa-mendez.html
+**Green Girl Glory: Three Former Elphabas Scored Tony Nominations**\
+`Shoshana Bean, Eden Espinosa and Lindsay Mendez received nominations for their roles in “Hell’s Kitchen,” “Lempicka” and “Merrily We Roll Along,” respectively.`\
+https://nytimes.com/2024/04/30/theater/wicked-elphabas-bean-espinosa-mendez.html
 
 **Gazans Flee Rafah Before a Widely Expected Israeli Attack**\
 `Many displaced Palestinians are uprooting themselves and their families again and moving to Deir al Balah, a city along Gaza’s coastline, as Israel plans for a possible invasion into Rafah.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/30/nyregion/trump-hush-money-trial/if-trump-is-
 **Killer Asteroid Hunters Spot 27,500 Overlooked Space Rocks**\
 `With the help of Google Cloud, scientists churned through hundreds of thousands of images of the night sky to reveal that the solar system is filled with unseen objects.`\
 https://nytimes.com/2024/04/30/science/killer-asteroids-algorithm.html
-
-**California’s Population Grows for the First Time Since 2020**\
-`State demographers are optimistic that the population will continue to grow for the foreseeable future.`\
-https://nytimes.com/2024/04/30/us/california-population-growth.html
 
