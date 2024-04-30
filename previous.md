@@ -1,6 +1,6 @@
 **Contempt Fines and Hush-Money Details: 5 Takeaways From Trump’s Trial**\
 `Donald J. Trump was fined for contempt and warned of jail time before a lawyer testified about how he struck deals to silence two women who said they had trysts with the former president.`\
-https://nytimes.com/live/2024/04/30/nyregion/trump-hush-money-trial/trump-trial-takeaways-gag-order
+https://nytimes.com/2024/04/30/nyregion/trump-trial-takeaways-gag-order.html
 
 **‘Fearless Girl’ Lawsuit Is Over but the Statue’s Fate Is Unsettled**\
 `The artist of the defiant bronze statue near Wall Street reached an agreement with the financial firm that commissioned it.`\
