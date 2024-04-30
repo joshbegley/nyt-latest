@@ -1,3 +1,7 @@
+**Stephen Colbert Scolds Kristi Noem for Killing Her Puppy**\
+`“No! Bad, psycho governor! No! Sit down!” Colbert said on Monday’s “Late Show,” spraying water from a bottle.`\
+https://nytimes.com/2024/04/30/arts/television/stephen-colbert-kristi-noem-puppy.html
+
 **Word of the Day: equilibrium**\
 `This word has appeared in 102 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/04/30/learning/word-of-the-day-equilibrium.html
