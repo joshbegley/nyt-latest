@@ -1,3 +1,15 @@
+**The Secret Push That Could Ban TikTok**\
+`U.S. lawmakers have long worried that the Chinese government could use the app to spread propaganda.`\
+https://nytimes.com/2024/04/30/podcasts/the-daily/tiktok-ban.html
+
+**Columbia Protesters Occupy Building, and Trump Complains About His Lawyer**\
+`Plus, a deadly day for law enforcement.`\
+https://nytimes.com/2024/04/30/podcasts/trump-lawyers-ai.html
+
+**Walmart Introduces a New Store Brand for ‘Quality Food’**\
+`The Better Goods store brand will carry plant-based, gluten-free and higher-end food and could help the retailer attract more affluent shoppers.`\
+https://nytimes.com/2024/04/30/business/economy/walmart-better-goods-store-brand.html
+
 **Europe’s Economic Laggards Have Become Its Leaders**\
 `More than a decade after painful austerity, Greece, Portugal and Spain have been growing faster than traditional powerhouses like Germany.`\
 https://nytimes.com/2024/04/30/business/europe-economy-inflation-growth.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/30/opinion/ezra-klein-podcast-hannah-ritchie.html
 **The Three Shows I’m Pulling for in the Tony Award Nominations**\
 `Three musicals bring the art of songw`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/tony-award-nominations-songwriting
-
-**Our Reporter on Broadway’s Big Week**\
-`Broadway is in the midst of a rolling celebration. In nine days, 12 shows opened. Michael Paulson, theater reporter for The New York Times, explains how and why all these shows are rolling out the red carpet.`\
-https://nytimes.com/video/theater/100000009439119/our-reporter-on-broadways-big-week.html
-
-**12 Departing Lawmakers Tell Us What Congress Is Really Like**\
-`These are their exit interviews.`\
-https://nytimes.com/interactive/2024/04/30/opinion/congress-resignations.html
-
-**Did You Make a Difference  in Congress?**\
-`Twelve departing lawmakers tell us what Congress is really like.`\
-https://nytimes.com/interactive/2024/04/30/opinion/congress-resignations-difference.html
 
