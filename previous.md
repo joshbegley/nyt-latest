@@ -1,3 +1,11 @@
+**I Let TikTok Tell Me Where to Eat. Here’s What I Learned.**\
+`A food editor documents the high, the low and the mid from a week’s worth of influencer restaurant suggestions.`\
+https://nytimes.com/2024/04/30/dining/tiktok-fyp-restaurant-recommendations.html
+
+**A Brief Tour of Pop Music’s Caffeine Addiction**\
+`Hear songs by Sabrina Carpenter, Squeeze, SZA and more.`\
+https://nytimes.com/2024/04/30/arts/music/amplifier-newsletter-caffeine-songs.html
+
 **How Locals Saved ‘the Yosemite of South America’**\
 `A decade-long battle between a wealthy industrialist and a band of activists led to a surprising $63 million transaction.`\
 https://nytimes.com/2024/04/30/climate/chile-cochamo-valley-puelo-patagonia.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-contempt-jail
 **‘Green Islam’ Drew a Reporter to Indonesia**\
 `An environmental movement is growing in the world’s most populous Muslim nation.`\
 https://nytimes.com/2024/04/30/world/asia/green-islam.html
-
-**Leslie Odom Jr. on his Tony nomination for ‘Purlie Victorious.’**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2024/04/30/theater/tony-nominations/leslie-odom-jr-tony-nomination
-
-**After Ukraine Aid Vote, Republicans Braced for Backlash Find Little**\
-`Some Republicans who backed the aid encountered little resistance from voters, who were far more willing to embrace it — and less interested in ousting the speaker over it — than their right-wing colleagues.`\
-https://nytimes.com/2024/04/30/us/politics/republicans-ukraine-aid-vote.html
 

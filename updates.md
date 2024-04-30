@@ -1,3 +1,11 @@
+**I Let TikTok Tell Me Where to Eat. Here’s What I Learned.**\
+`A food editor documents the high, the low and the mid from a week’s worth of influencer restaurant suggestions.`\
+https://nytimes.com/2024/04/30/dining/tiktok-fyp-restaurant-recommendations.html
+
+**A Brief Tour of Pop Music’s Caffeine Addiction**\
+`Hear songs by Sabrina Carpenter, Squeeze, SZA and more.`\
+https://nytimes.com/2024/04/30/arts/music/amplifier-newsletter-caffeine-songs.html
+
 **How Locals Saved ‘the Yosemite of South America’**\
 `A decade-long battle between a wealthy industrialist and a band of activists led to a surprising $63 million transaction.`\
 https://nytimes.com/2024/04/30/climate/chile-cochamo-valley-puelo-patagonia.html
