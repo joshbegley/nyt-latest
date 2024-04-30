@@ -1,3 +1,11 @@
+**Leslie Odom Jr. on his Tony nomination for ‘Purlie Victorious.’**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/leslie-odom-jr-tony-nomination
+
+**After Ukraine Aid Vote, Republicans Braced for Backlash Find Little**\
+`Some Republicans who backed the aid encountered little resistance from voters, who were far more willing to embrace it — and less interested in ousting the speaker over it — than their right-wing colleagues.`\
+https://nytimes.com/2024/04/30/us/politics/republicans-ukraine-aid-vote.html
+
 **How Trump Prosecutors Used C-SPAN to Inform Jurors of Sex Assault Claims**\
 `They played clips of Donald J. Trump attacking women who had accused him of assault, letting them skirt a judge’s order barring direct testimony about the cases.`\
 https://nytimes.com/2024/04/30/nyregion/trump-trial-cspan-evidence.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/30/us/politics/supreme-court-porn.html
 **Trump Wants to Prosecute Biden. He Also Thinks Presidents Deserve Immunity.**\
 `In arguing to the Supreme Court that he cannot be charged for acts while in office, Donald Trump has asked the justices to enforce a norm that he has long threatened to shatter.`\
 https://nytimes.com/2024/04/30/us/politics/trump-biden-president-immunity.html
-
-**As Israel plans to invade Rafah, a family makes the difficult choice to uproot itself again.**\
-`By Liam Stack and Bilal Shbair`\
-https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/as-israel-plans-to-invade-rafah-a-family-makes-the-difficult-choice-to-uproot-itself-again
-
-**Democrats Announce That They Will Rescue Johnson if He Faces Ouster Vote**\
-`Party leaders said their members would join an effort to table any attempt to remove the Republican speaker after he allowed House passage of military aid to Ukraine.`\
-https://nytimes.com/2024/04/30/us/politics/johnson-greene-jeffries-democrats.html
 
