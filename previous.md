@@ -1,3 +1,7 @@
+**If Trump is jailed for contempt, the Secret Service will go, too.**\
+`By William K. Rashbaum`\
+https://nytimes.com/live/2024/04/30/nyregion/trump-hush-money-trial/if-trump-is-jailed-for-contempt-the-secret-service-will-go-too
+
 **Killer Asteroid Hunters Spot 27,500 Overlooked Space Rocks**\
 `With the help of Google Cloud, scientists churned through hundreds of thousands of images of the night sky to reveal that the solar system is filled with unseen objects.`\
 https://nytimes.com/2024/04/30/science/killer-asteroids-algorithm.html
@@ -10,7 +14,7 @@ https://nytimes.com/2024/04/30/us/california-population-growth.html
 `The plaintiffs say they faced sexual and other physical abuse at juvenile detention centers and on Rikers Island.`\
 https://nytimes.com/2024/04/30/nyregion/juvenile-detention-center-lawsuits.html
 
-**Netanyahu reiterates his vow to invade Rafah, with or without a cease-fire deal.**\
+**Netanyahu reiterates his vow to invade Rafah, ‘with or without’ a cease-fire deal.**\
 `By Damien Cave`\
 https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/netanyahu-reiterates-his-vow-to-invade-rafah-with-or-without-a-cease-fire-deal
 
