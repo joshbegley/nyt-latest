@@ -1,3 +1,7 @@
+**Wednesday Briefing: Clashes Escalate on U.S. Campuses**\
+`Also, a judge fined Donald Trump for breaking a gag order.`\
+https://nytimes.com/2024/04/30/world/asia/columbia-explusion-trump-broadway-asia.html
+
 **Scenes From the Student Protests Churning Across the Country**\
 `Despite hundreds of arrests and threats of disciplinary action, pro-Palestinian demonstrations have continued into a third week.`\
 https://nytimes.com/2024/04/30/us/campus-protests-colleges-columbia-photos.html
