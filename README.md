@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: College Protests, School Lunch, Bird Flu**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/04/30/learning/30StudentNewsQuizLN.html
+
 **Here’s what it looked like when 12 Broadway shows opened in 9 days.**\
 `By Michael Paulson`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/heres-what-it-looked-like-when-12-broadway-shows-opened-in-9-days
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/nyregion/california-poly-humboldt-protests-arrest
 **Meta Faces E.U. Investigation Over Election Disinformation**\
 `The inquiry is intended to pressure the tech giant to more aggressively police Facebook and Instagram ahead of the European Union’s closely watched elections in June.`\
 https://nytimes.com/2024/04/30/business/meta-european-union-disinformation-investigation.html
-
-**What to watch for as this year’s nominations are announced.**\
-`By Michael Paulson`\
-https://nytimes.com/live/2024/04/30/theater/tony-nominations/what-to-watch-for-as-this-years-nominations-are-announced
 
