@@ -1,3 +1,15 @@
+**In the Battle of Drake vs. Kendrick Lamar, A.I. Is Playing Spoiler**\
+`A rap beef between hip-hop’s two dominant stars has left fans wondering whether new tracks are real or fakes.`\
+https://nytimes.com/2024/04/30/arts/music/drake-kendrick-lamar-rap-beef-ai-fakes.html
+
+**Jeremy Strong on his nomination and a role in ‘Enemy’ that felt ‘undeniable.’**\
+`By Alexis Soloski`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/jeremy-strong-tony-nomination
+
+**Biden and Democrats Seize on Trump’s Striking Interview**\
+`The president and other top Democrats moved quickly to capitalize politically on Donald J. Trump’s interview with Time magazine, particularly his comments on abortion.`\
+https://nytimes.com/2024/04/30/us/politics/biden-democrats-trump-interview.html
+
 **Democrats Announce That They Will Rescue Johnson if He Faces Ouster Vote**\
 `Party leaders said their members would join an effort to table any attempt to remove the Republican speaker after he allowed House passage of military aid to Ukraine.`\
 https://nytimes.com/2024/04/30/us/politics/johnson-greene-jeffries-democrats.html
