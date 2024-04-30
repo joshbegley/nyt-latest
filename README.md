@@ -1,3 +1,7 @@
+**Read the Judge’s Contempt Ruling**\
+`Justice Juan M. Merchan determined that Donald J. Trump broke a gag order by making public statements on social media and on his campaign website attacking witnesses and the jury.`\
+https://nytimes.com/interactive/2024/04/30/nyregion/trump-contempt-ruling-gag-order.html
+
 **Judge Holds Trump in Contempt for Amplifying Attacks on Witnesses**\
 `Donald J. Trump is under a gag order that bars him from attacking witnesses, prosecutors and jurors, among others.`\
 https://nytimes.com/2024/04/30/nyregion/merchan-trump-contempt-gag-order.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/30/nyregion/trump-hush-money-trial/if-trump-is-
 **Killer Asteroid Hunters Spot 27,500 Overlooked Space Rocks**\
 `With the help of Google Cloud, scientists churned through hundreds of thousands of images of the night sky to reveal that the solar system is filled with unseen objects.`\
 https://nytimes.com/2024/04/30/science/killer-asteroids-algorithm.html
-
-**California’s Population Grows for the First Time Since 2020**\
-`State demographers are optimistic that the population will continue to grow for the foreseeable future.`\
-https://nytimes.com/2024/04/30/us/california-population-growth.html
 
