@@ -1,3 +1,7 @@
+**A Proposed Law Targeting ‘Foreign Interests’ in Georgia Riles the Opposition**\
+`Opponents of the measure, which resembles a Russian law that Moscow has used to crack down on dissidents, say it could undermine efforts for Georgia to join the European Union.`\
+https://nytimes.com/2024/04/30/world/europe/georgia-foreign-agent-bill.html
+
 **The occupation of a building at Columbia is at least the second across the country.**\
 `By Eryn Davis, Sharon Otterman, Sarah Maslin Nir and Liset Cruz`\
 https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/the-occupation-of-a-building-at-columbia-is-at-least-the-second-across-the-country
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/crosswords/wordle-review.html
 **The Connections Companion No. 324**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/04/30/crosswords/connections-companion.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/04/30/crosswords/spelling-bee-forum.html
 
