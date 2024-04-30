@@ -1,15 +1,3 @@
-**Trump is keeping his lawyers from using some time-honored tactics.**\
-`By Ben Protess, Jonah E. Bromwich, Maggie Haberman and William K. Rashbaum`\
-https://nytimes.com/live/2024/04/30/nyregion/trump-hush-money-trial/trump-is-keeping-his-lawyers-from-using-some-time-honored-tactics
-
-**30trump-trial**\
-`Live Updates: Third Week of Trump Criminal Trial to Begin With More Testimony`\
-https://nytimes.com/live/2024/04/30/nyregion/trump-hush-money-trial
-
-**Getir, a Rapid Grocery-Delivery Service, Exits the U.S. and Europe**\
-`The company had expanded quickly to keep ahead of rivals, but like other pandemic darlings, its business lost steam after lockdowns were eased.`\
-https://nytimes.com/2024/04/30/business/getir-grocery-delivery-europe-us.html
-
 **Ralph Lauren Invites Everyone to Return to (His) Office**\
 `And he has some ideas about what we should wear.`\
 https://nytimes.com/2024/04/30/style/ralph-lauren-fall-review.html
@@ -37,4 +25,16 @@ https://nytimes.com/2024/04/30/business/dealbook/paramount-bakish-redstone-quest
 **Listen to these recent Broadway musicals at home.**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/listen-to-these-recent-broadway-musicals-at-home
+
+**Broadway still has not recovered to its prepandemic levels.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/broadway-box-office-grosses-attendance
+
+**Here’s a guide to the shows onstage now, and how to get tickets.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/broadway-guide
+
+**Campus Police Arrest Protesters at Cal Poly Humboldt**\
+`Protesters had occupied a building for over a week, leading the university to shut down the campus.`\
+https://nytimes.com/2024/04/30/nyregion/california-poly-humboldt-protests-arrests.html
 
