@@ -1,3 +1,15 @@
+**Jeff Zucker Abandons Telegraph Bid, Putting London Paper Back Into Play**\
+`RedBird IMI said it had withdrawn its attempt to acquire the storied newspaper after a revolt from Conservative Party leaders.`\
+https://nytimes.com/2024/04/30/business/media/jeff-zucker-telegraph-redbird.html
+
+**Columbia suspends a student negotiator representing the protest encampment.**\
+`By Sharon Otterman`\
+https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/columbia-suspends-a-student-negotiator-representing-the-protest-encampment
+
+**Trump Finally Pays a Cash Price for His Threats**\
+`If a few thousand dollars doesn’t rein in Trump, the judge said he had harsher penalties at his disposal.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-contempt-jail
+
 **‘Green Islam’ Drew a Reporter to Indonesia**\
 `An environmental movement is growing in the world’s most populous Muslim nation.`\
 https://nytimes.com/2024/04/30/world/asia/green-islam.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/30/arts/music/drake-kendrick-lamar-rap-beef-ai-fakes
 **Jeremy Strong on his nomination and a role in ‘Enemy’ that felt ‘undeniable.’**\
 `By Alexis Soloski`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/jeremy-strong-tony-nomination
-
-**Biden and Democrats Seize on Trump’s Striking Interview**\
-`The president and other top Democrats moved quickly to capitalize politically on Donald J. Trump’s interview with Time magazine, particularly his comments on abortion.`\
-https://nytimes.com/2024/04/30/us/politics/biden-democrats-trump-interview.html
-
-**Daniel Radcliffe on breaking the spell with his first Tony nomination.**\
-`Radcliffe earned his first nomination on Tuesday for “Me for his fifth role on Broadway since 2008.`\
-https://nytimes.com/live/2024/04/30/theater/tony-nominations/daniel-radcliffe-tony-nomination
-
-**Supreme Court Allows, for Now, Texas Law Restricting Access to Porn**\
-`The law, meant to shield minors from sexual materials on the internet by requiring adults to prove they are 18, was challenged on First Amendment grounds.`\
-https://nytimes.com/2024/04/30/us/politics/supreme-court-porn.html
 
