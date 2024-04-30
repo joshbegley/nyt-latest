@@ -1,3 +1,7 @@
+**Columbia Faculty Block Encampments, Protecting Student Protesters**\
+`On Monday, Columbia administrators issued an ultimatum to student protestors: leave their encampments or face suspension. In response, several faculty members created a human barrier.`\
+https://nytimes.com/video/nyregion/100000009439309/columbia-protests-faculty-students.html
+
 **Arizona Rancher Accused of Killing Migrant Won’t Be Retried After Mistrial**\
 `George Alan Kelly was accused of murdering Gabriel Cuen-Buitimea, an unarmed migrant from Mexico, on his 170-acre ranch in Kino Springs, Ariz., last year.`\
 https://nytimes.com/2024/04/29/us/arizona-rancher-migrant-death-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/nyregion/nyu-protest-encampment.html
 **Kamala Harris Leads Push to Shore Up Democratic Support From Black Voters**\
 `Speaking in Atlanta, the vice president began a national tour to highlight how the Biden administration is trying to help Black Americans economically.`\
 https://nytimes.com/2024/04/29/us/politics/kamala-harris-atlanta.html
-
-**Israel Softened Its Demands in Cease-Fire Negotiations**\
-`Also, Russian forces advance in Ukraine before U.S. aid arrives. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/04/29/briefing/israel-hamas-negotiations-russia-ukraine-war.html
 
