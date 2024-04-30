@@ -1,3 +1,7 @@
+**Jessica Pratt’s Timeless Folk Music Is Evolving. Slowly.**\
+`The singer and songwriter has a delicate, vintage aesthetic that matches her cautious approach to her work. Her fourth album, “Here in the Pitch,” is out Friday.`\
+https://nytimes.com/2024/04/30/arts/music/jessica-pratt-here-in-the-pitch.html
+
 **How to save a pristine valley**\
 `How a group of local activists saved the ‘Yosemite of South America’ in the unlikeliest of deals. `\
 https://nytimes.com/2024/04/30/climate/how-to-save-a-pristine-valley.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/world/europe/russia-ukraine-missile-airstrike.htm
 **Ex-N.S.A. Employee Who Tried to Sell U.S. Secrets to Russia Gets 22 Years**\
 `The Colorado man, who held a top security clearance, told an undercover F.B.I. employee posing as a Russian agent that he needed to pay nearly $84,000 in student loan and credit card debt.`\
 https://nytimes.com/2024/04/30/us/nsa-espionage-colorado-sentence.html
-
-**Are Bonds Gonna Party Like it’s 1999?**\
-`Reconsidering my views on interest rates.`\
-https://nytimes.com/2024/04/30/opinion/interest-rates-economy.html
 
