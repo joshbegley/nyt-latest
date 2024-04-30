@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`Hope for a cease-fire in Gaza.`\
+https://nytimes.com/2024/04/30/briefing/israel-hamas-ukraine-retreat.html
+
 **Hydrogen Offers Germany a Chance to Take a Lead in Green Energy**\
 `A subsidiary of ThyssenKrupp, Germany’s venerable steel producer, is landing major deals for a device that makes the clean-burning gas from water.`\
 https://nytimes.com/2024/04/30/business/hydrogen-clean-green-energy.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000009439309/columbia-protests-faculty-stu
 **Arizona Rancher Accused of Killing Migrant Won’t Be Retried After Mistrial**\
 `George Alan Kelly was accused of murdering Gabriel Cuen-Buitimea, an unarmed migrant from Mexico, on his 170-acre ranch in Kino Springs, Ariz., last year.`\
 https://nytimes.com/2024/04/29/us/arizona-rancher-migrant-death-trial.html
-
-**Election Deniers Are Still Shaping Arizona Politics**\
-`There have been few political consequences for many Republicans accused of helping Trump try to overturn the 2020 election.`\
-https://nytimes.com/2024/04/29/us/politics/election-deniers-arizona-politics.html
 
