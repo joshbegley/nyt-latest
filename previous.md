@@ -1,3 +1,19 @@
+**Are Bonds Gonna Party Like it’s 1999?**\
+`Reconsidering my views on interest rates.`\
+https://nytimes.com/2024/04/30/opinion/interest-rates-economy.html
+
+**The White House presses Hamas to accept the cease-fire deal on the table.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/the-white-house-presses-hamas-to-accept-the-cease-fire-deal-on-the-table
+
+**What happens next? Here’s what we know about the Tony Awards ceremony.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/what-happens-next-heres-what-we-know-about-the-tony-awards-ceremony
+
+**Can Supplements Really Help Thinning Hair?**\
+`Skeptics share their experience with a clinically tested supplement that helps with hair health and fullness — after trying an exhaustive list of fixes.`\
+https://nytimes.com/paidpost/nutrafol/can-supplements-really-help-thinning-hair.html
+
 **What’s up next on Broadway? Plenty.**\
 `By Michael Paulson`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/broadway-upcoming
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/30/dining/tiktok-fyp-restaurant-recommendations.html
 **A Brief Tour of Pop Music’s Caffeine Addiction**\
 `Hear songs by Sabrina Carpenter, Squeeze, SZA and more.`\
 https://nytimes.com/2024/04/30/arts/music/amplifier-newsletter-caffeine-songs.html
-
-**How Locals Saved ‘the Yosemite of South America’**\
-`A decade-long battle between a wealthy industrialist and a band of activists led to a surprising $63 million transaction.`\
-https://nytimes.com/2024/04/30/climate/chile-cochamo-valley-puelo-patagonia.html
-
-**A 2-Year-Old in Arizona Died When a Bounce House Blew Away. Can They Be Made Safer?**\
-`The death of a child involving a bounce house that was carried by the wind underscored the potential dangers of the attractions, but precautions can make them safer.`\
-https://nytimes.com/2024/04/30/us/bounce-house-accident-safety.html
-
-**So many shows only just opened. How did the nominations happen so quickly?**\
-`By Michael Paulson`\
-https://nytimes.com/live/2024/04/30/theater/tony-nominations/so-many-shows-only-just-opened-how-did-the-nominations-happen-so-quickly
-
-**Jessica Lange, nominated for ‘Mother Play,’ wanted to create a new role.**\
-`By Laura Collins-Hughes`\
-https://nytimes.com/live/2024/04/30/theater/tony-nominations/jessica-lange-mother-play-tony-nomination
 
