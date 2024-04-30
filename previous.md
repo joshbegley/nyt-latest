@@ -1,3 +1,7 @@
+**All New U.S. Cars Must Carry Automatic Brakes by 2029**\
+`The technology is already sold on most vehicles, but a new federal safety regulation raises the standards.`\
+https://nytimes.com/2024/04/29/business/abs-automatic-braking-nhtsa.html
+
 **Ilhan Omar Plunges Into Democrats’ Political Storm Over War in Gaza**\
 `Suggesting that some Jewish students are “pro-genocide,” the Minnesota congresswoman seemed to further polarize an already polarizing debate.`\
 https://nytimes.com/2024/04/29/us/politics/ilhan-omar-protests-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/opinion/trump-economics.html
 **Hope Rises for New Talks on Gaza Cease-fire as Israel Scales Back Demands**\
 `Israel reduced the initial number of hostages it wants released to 33. If Hamas agrees to attend, negotiations on a cease-fire could resume in Cairo this week.`\
 https://nytimes.com/2024/04/29/world/middleeast/israel-gaza-cease-fire-hostages.html
-
-**Biden Team Sees Narrow Window for Deal on Cease-Fire and Hostages in Gaza**\
-`A number of factors have converged to make this a moment when the president might be able to break through the stalemate, advisers say. But their optimism has been dashed before.`\
-https://nytimes.com/2024/04/29/us/politics/biden-israel-gaza-cease-fire.html
 

@@ -1,3 +1,7 @@
+**All New U.S. Cars Must Carry Automatic Brakes by 2029**\
+`The technology is already sold on most vehicles, but a new federal safety regulation raises the standards.`\
+https://nytimes.com/2024/04/29/business/abs-automatic-braking-nhtsa.html
+
 **Ilhan Omar Plunges Into Democrats’ Political Storm Over War in Gaza**\
 `Suggesting that some Jewish students are “pro-genocide,” the Minnesota congresswoman seemed to further polarize an already polarizing debate.`\
 https://nytimes.com/2024/04/29/us/politics/ilhan-omar-protests-gaza.html
