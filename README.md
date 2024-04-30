@@ -4,7 +4,7 @@ https://nytimes.com/2024/04/30/us/politics/bidens-israel-college-democrats.html
 
 **Green Girl Glory: Three former Elphabas scored Tony nominations.**\
 `By Michael Paulson`\
-https://nytimes.com/live/2024/04/30/theater/tony-nominations/broadway-elphabas-bean-espinosa-mendez
+https://nytimes.com/2024/04/30/theater/broadway-elphabas-bean-espinosa-mendez.html
 
 **Gazans Flee Rafah Before a Widely Expected Israeli Attack**\
 `Many displaced Palestinians are uprooting themselves and their families again and moving to Deir al Balah, a city along Gaza’s coastline, as Israel plans for a possible invasion into Rafah.`\
