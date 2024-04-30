@@ -6,9 +6,9 @@ https://nytimes.com/2024/04/30/nyregion/merchan-trump-contempt-gag-order.html
 `The student organization of the Democratic Party condemned colleges’ crackdowns on pro-Palestinian protests and called on President Biden to support a permanent cease-fire in Gaza.`\
 https://nytimes.com/2024/04/30/us/politics/bidens-israel-college-democrats.html
 
-**Green Girl Glory: Three former Elphabas scored Tony nominations.**\
-`By Michael Paulson`\
-https://nytimes.com/2024/04/30/theater/broadway-elphabas-bean-espinosa-mendez.html
+**Green Girl Glory: Three Former Elphabas Scored Tony Nominations**\
+`Shoshana Bean, Eden Espinosa and Lindsay Mendez received nominations for their roles in “Hell’s Kitchen,” “Lempicka” and “Merrily We Roll Along,” respectively.`\
+https://nytimes.com/2024/04/30/theater/wicked-elphabas-bean-espinosa-mendez.html
 
 **Gazans Flee Rafah Before a Widely Expected Israeli Attack**\
 `Many displaced Palestinians are uprooting themselves and their families again and moving to Deir al Balah, a city along Gaza’s coastline, as Israel plans for a possible invasion into Rafah.`\
