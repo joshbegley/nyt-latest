@@ -1,3 +1,19 @@
+**Here’s a guide to the shows onstage now, and how to get tickets.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/broadway-guide
+
+**Campus Police Arrest Protesters at Cal Poly Humboldt**\
+`Protesters had occupied a building for over a week, leading the university to shut down the campus.`\
+https://nytimes.com/2024/04/30/nyregion/california-poly-humboldt-protests-arrests.html
+
+**Meta Faces E.U. Investigation Over Election Disinformation**\
+`The inquiry is intended to pressure the tech giant to more aggressively police Facebook and Instagram ahead of the European Union’s closely watched elections in June.`\
+https://nytimes.com/2024/04/30/business/meta-european-union-disinformation-investigation.html
+
+**What to watch for as this year’s nominations are announced.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/what-to-watch-for-as-this-years-nominations-are-announced
+
 **A Q&A About Latino Republicans**\
 `We explain why more Latino voters find Trump appealing.`\
 https://nytimes.com/2024/04/30/briefing/latino-republicans-2024.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/30/podcasts/trump-lawyers-ai.html
 **Walmart Introduces a New Store Brand for ‘Quality Food’**\
 `The Better Goods store brand will carry plant-based, gluten-free and higher-end food and could help the retailer attract more affluent shoppers.`\
 https://nytimes.com/2024/04/30/business/economy/walmart-better-goods-store-brand.html
-
-**Europe’s Economic Laggards Have Become Its Leaders**\
-`More than a decade after painful austerity, Greece, Portugal and Spain have been growing faster than traditional powerhouses like Germany.`\
-https://nytimes.com/2024/04/30/business/europe-economy-inflation-growth.html
-
-**What to Know About the Police Shooting in Charlotte**\
-`A police officer and three members of a U.S. Marshals task force were fatally shot while serving warrants to a suspect, who was also killed.`\
-https://nytimes.com/2024/04/30/us/police-shooting-charlotte-what-happened.html
-
-**The U.N.’s top court will issue an interim ruling in a case involving Germany’s weapons sales to Israel.**\
-`By Marlise Simons`\
-https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/the-uns-top-court-will-issue-an-interim-ruling-in-a-case-involving-germanys-weapons-sales-to-israel
-
-**Stream These 10 Movies Before They Leave Netflix in May**\
-`Magic Mike’s finale, M. Night Shyamalan’s patient with 23 personalities, Baz Luhrmann’s “Gatsby” and a copstravaganza with a serious coda after the belly laughs.`\
-https://nytimes.com/2024/04/30/movies/movies-leaving-netflix-may.html
 
