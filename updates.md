@@ -1,3 +1,7 @@
+**R.F.K. Jr.’s Campaign Says He Will Be on California Ballot**\
+`The state is the fourth where Mr. Kennedy is all but assured a spot on the ballot in November against President Biden and former President Donald J. Trump.`\
+https://nytimes.com/2024/04/30/us/politics/rfk-jr-california-ballot.html
+
 **Mali Claims Death of Terrorist Who Helped Lead Deadly Ambush in Niger**\
 `The West African country said it killed Abu Huzeifa, a commander in an Islamic State affiliate who was involved in a 2017 attack in neighboring Niger that killed American Green Berets and Nigerien forces.`\
 https://nytimes.com/2024/04/30/world/africa/mali-isis-niger-attack.html
