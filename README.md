@@ -1,3 +1,7 @@
+**Jessica Lange, nominated for ‘Mother Play,’ wanted to create a new role.**\
+`By Laura Collins-Hughes`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/jessica-lange-mother-play-tony-nomination
+
 **Jeff Zucker Abandons Telegraph Bid, Putting London Paper Back Into Play**\
 `RedBird IMI said it had withdrawn its attempt to acquire the storied newspaper after a revolt from Conservative Party leaders.`\
 https://nytimes.com/2024/04/30/business/media/jeff-zucker-telegraph-redbird.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/us/politics/immigration-disinformation-campaign-b
 **In the Battle of Drake vs. Kendrick Lamar, A.I. Is Playing Spoiler**\
 `A rap beef between hip-hop’s two dominant stars has left fans wondering whether new tracks are real or fakes.`\
 https://nytimes.com/2024/04/30/arts/music/drake-kendrick-lamar-rap-beef-ai-fakes.html
-
-**Jeremy Strong on his nomination and a role in ‘Enemy’ that felt ‘undeniable.’**\
-`By Alexis Soloski`\
-https://nytimes.com/live/2024/04/30/theater/tony-nominations/jeremy-strong-tony-nomination
 
