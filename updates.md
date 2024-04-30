@@ -1,3 +1,7 @@
+**Democrats Announce That They Will Rescue Johnson if He Faces Ouster Vote**\
+`Party leaders said their members would join an effort to table any attempt to remove the Republican speaker after he allowed House passage of military aid to Ukraine.`\
+https://nytimes.com/2024/04/30/us/politics/johnson-greene-jeffries-democrats.html
+
 **Daniel Radcliffe on breaking the spell with his first Tony nomination.**\
 `Radcliffe earned his first nomination on Tuesday for “Me for his fifth role on Broadway since 2008.`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/daniel-radcliffe-tony-nomination
