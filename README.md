@@ -1,3 +1,11 @@
+**Europe’s Economic Laggards Have Become Its Leaders**\
+`More than a decade after painful austerity, Greece, Portugal and Spain have been growing faster than traditional powerhouses like Germany.`\
+https://nytimes.com/2024/04/30/business/europe-economy-inflation-growth.html
+
+**What to Know About the Police Shooting in Charlotte**\
+`A police officer and three members of a U.S. Marshals task force were shot while serving warrants to a suspect, who was also killed.`\
+https://nytimes.com/2024/04/30/us/police-shooting-charlotte-what-happened.html
+
 **The U.N.’s top court will issue an interim ruling in a case involving Germany’s weapons sales to Israel.**\
 `By Marlise Simons`\
 https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/the-uns-top-court-will-issue-an-interim-ruling-in-a-case-involving-germanys-weapons-sales-to-israel
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/04/30/opinion/congress-resignations.html
 **Did You Make a Difference  in Congress?**\
 `Twelve departing lawmakers tell us what Congress is really like.`\
 https://nytimes.com/interactive/2024/04/30/opinion/congress-resignations-difference.html
-
-**A Poem About You, for You**\
-`For National Poetry Month, A.O. Scott shares one of his favorite love poems.`\
-https://nytimes.com/2024/04/30/podcasts/a-poem-about-you-for-you.html
-
-**That Strange Piece of Metal Origami Embodies All Elon Musk’s Flaws**\
-`The Cybertruck looks edgy, that’s for sure, but it has serious problems.`\
-https://nytimes.com/2024/04/30/opinion/elon-musk-tesla-problems.html
 
