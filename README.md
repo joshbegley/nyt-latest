@@ -1,6 +1,6 @@
 **Tony Nominations Snubs and Surprises: Steve Carell and ‘The Wiz’ Miss Out**\
 `It was a strong year for female directors, a play featuring music and American productions.`\
-https://nytimes.com/live/2024/04/30/theater/tony-nominations/tony-nominations-snubs-surprises
+https://nytimes.com/2024/04/30/theater/tony-nominations-snubs-surprises.html
 
 **Sarah Paulson on her first Tony nomination, for ‘Appropriate.’**\
 `By Julia Jacobs`\
