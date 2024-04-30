@@ -1,3 +1,11 @@
+**Water Heaters Use Lots of Energy. The D.O.E. Wants to Change That.**\
+`The Biden administration is tightening efficiency rules for water heaters, stoves and other appliances, and conservative politicians are dialing up their criticisms.`\
+https://nytimes.com/2024/04/30/climate/appliance-efficiency-rules-dishwasher-stove-water-heater.html
+
+**Biden Tax Increases Won’t Hit Middle Class, Yellen Says**\
+`Republicans pressed the Treasury secretary on the fate of the Trump tax cuts that will expire in 2025.`\
+https://nytimes.com/2024/04/30/us/politics/biden-yellen-tax-increases.html
+
 **Justice Dept. Plans to Recommend Easing Restrictions on Marijuana**\
 `The move would kick off a lengthy rule-making process and would amount to a major change in federal policy.`\
 https://nytimes.com/2024/04/30/us/politics/justice-department-reclassify-marijuana.html
