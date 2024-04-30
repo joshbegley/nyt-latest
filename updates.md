@@ -1,3 +1,19 @@
+**Iran’s Frightening Message to Its Young People**\
+`The fate of a jailed rapper will say a great deal about the country’s atmosphere of repression.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/iran-jailed-rapper
+
+**Emergency Slide That Fell From Delta Flight Is Recovered From Queens Jetty**\
+`The flight, which took off from Kennedy International Airport on Friday, safely returned to the airport, where crews saw that the slide was missing, according to the airline.`\
+https://nytimes.com/2024/04/30/us/emergency-slide-delta-flight-found.html
+
+**Education Department Scrambles to Make Up for Lost Time After FAFSA Blunders**\
+`With applications down significantly from past years, officials announced a renewed effort to get students to apply for federal financial aid.`\
+https://nytimes.com/2024/04/30/us/politics/fafsa-education-department-cardona.html
+
+**Werner Spitz, Forensic Expert in High-Profile Murders, Dies at 97**\
+`He figured in the examination of sensational cases involving President John F. Kennedy, Martin Luther King Jr., O.J. Simpson and others.`\
+https://nytimes.com/2024/04/30/us/werner-spitz-dead.html
+
 **What Charges Will the Protesters Occupying the Columbia Building Face?**\
 `The students who took over Hamilton Hall on Tuesday could be charged with a range of offenses, but they are unlikely to face jail time, according to a legal expert.`\
 https://nytimes.com/2024/04/30/nyregion/columbia-protests-hamilton-hall.html
