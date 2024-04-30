@@ -1,3 +1,11 @@
+**A Small Campus in the Redwoods Has the Nation’s Most Entrenched Protest**\
+`Pro-Palestinian protesters have occupied the administration building at California State Polytechnic University, Humboldt for the past week and forced a campus closure until May 10.`\
+https://nytimes.com/2024/04/29/us/humboldt-protest-cal-poly.html
+
+**Contents of a Pizzeria Shaker**\
+`Michèle Govier has us dwelling on the details.`\
+https://nytimes.com/2024/04/29/crosswords/daily-puzzle-2024-04-30.html
+
 **Columbia Faculty Block Encampments, Protecting Student Protesters**\
 `On Monday, Columbia administrators issued an ultimatum to student protestors: leave their encampments or face suspension. In response, several faculty members created a human barrier.`\
 https://nytimes.com/video/nyregion/100000009439309/columbia-protests-faculty-students.html

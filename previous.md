@@ -1,3 +1,11 @@
+**A Small Campus in the Redwoods Has the Nation’s Most Entrenched Protest**\
+`Pro-Palestinian protesters have occupied the administration building at California State Polytechnic University, Humboldt for the past week and forced a campus closure until May 10.`\
+https://nytimes.com/2024/04/29/us/humboldt-protest-cal-poly.html
+
+**Contents of a Pizzeria Shaker**\
+`Michèle Govier has us dwelling on the details.`\
+https://nytimes.com/2024/04/29/crosswords/daily-puzzle-2024-04-30.html
+
 **Columbia Faculty Block Encampments, Protecting Student Protesters**\
 `On Monday, Columbia administrators issued an ultimatum to student protestors: leave their encampments or face suspension. In response, several faculty members created a human barrier.`\
 https://nytimes.com/video/nyregion/100000009439309/columbia-protests-faculty-students.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/29/us/politics/biden-israel-gaza-cease-fire.html
 **Surrounded by Fighters and Haunted by Famine, Sudan City Fears Worst**\
 `A powerful paramilitary group has encircled El Fasher, the last remaining obstacle to domination of the sprawling Darfur region, raising alarm about mass killings if the city is taken.`\
 https://nytimes.com/2024/04/29/world/africa/el-fasher-darfur-sudan.html
-
-**N.Y.U. Says It Will Discipline Students Who Remain in Encampment**\
-`The university had set a noon deadline for an end to overnight stays at the site, but students remained there on Monday afternoon.`\
-https://nytimes.com/2024/04/29/nyregion/nyu-protest-encampment.html
-
-**Kamala Harris Leads Push to Shore Up Democratic Support From Black Voters**\
-`Speaking in Atlanta, the vice president began a national tour to highlight how the Biden administration is trying to help Black Americans economically.`\
-https://nytimes.com/2024/04/29/us/politics/kamala-harris-atlanta.html
 
