@@ -1,3 +1,7 @@
+**On the same day, 56 years ago, students inside Hamilton Hall were protesting another war.**\
+`By Claire Fahy`\
+https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/on-the-same-day-56-years-ago-students-inside-hamilton-hall-were-protesting-another-war
+
 **R.F.K. Jr.’s Campaign Says He Will Be on California Ballot**\
 `The state is the fourth where Mr. Kennedy is all but assured a spot on the ballot in November against President Biden and former President Donald J. Trump.`\
 https://nytimes.com/2024/04/30/us/politics/rfk-jr-california-ballot.html
