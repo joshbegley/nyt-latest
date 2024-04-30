@@ -1,3 +1,11 @@
+**Netanyahu Vows to Invade Rafah ‘With or Without’ Cease-Fire Deal**\
+`As mediators pressed for a truce and Secretary of State Antony J. Blinken toured the region, a ground incursion into the southern Gazan city loomed.`\
+https://nytimes.com/2024/04/30/world/middleeast/netanyahu-invasion-rafah-cease-fire.html
+
+**Sheryl Sandberg Screams Back at the Silence**\
+`A powerful new documentary gives voice to the rape victims of Oct 7.`\
+https://nytimes.com/2024/04/30/opinion/screams-before-silence-sheryl-sandberg.html
+
 **PG&E Seeks Approval to Sell Stake in Its Power Operations**\
 `California’s largest utility said its proposed deal with the global investment firm KKR could reduce customer rates by $100 million over 20 years.`\
 https://nytimes.com/2024/04/30/business/pge-kkr-stake.html
@@ -6,7 +14,7 @@ https://nytimes.com/2024/04/30/business/pge-kkr-stake.html
 `The killing of the four officers in a usually quiet suburb, where a running gun battle left neighbors scrambling for cover, stunned residents and brought anguish across the city.`\
 https://nytimes.com/2024/04/30/us/charlotte-officers-killed-aftermath.html
 
-**Stormy Daniels Almost Went on ABC News, but Then Trump’s Team Paid Her**\
+**Karen McDougal Almost Went on ABC News, but Then Trump’s Team Paid Her**\
 `Prosecutors begin to prepare the way for Michael Cohen’s crucial testimony.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/stormy-daniels-trump-trial
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/30/arts/design/fearless-girl-statue-new-york-lawsuit
 **For Trump, a $9,000 rebuke and a stern warning**\
 `The judge made it clear that further gag-order violations could land the former president in jail.`\
 https://nytimes.com/2024/04/30/us/politics/trump-trial-gag-order-contempt-fine.html
-
-**Two Men Are Charged Over the Felling of the Sycamore Gap Tree**\
-`Seven months after the beloved tree in northern England was cut down, the police charged two men in their 30s with damaging the 200-year-old tree and part of Hadrian’s Wall.`\
-https://nytimes.com/2024/04/30/world/sycamore-gap-tree-felling-charges.html
-
-**Scenes From the Student Protests Churning Across the Country**\
-`Despite hundreds of arrests and threats of disciplinary action, pro-Palestinian demonstrations have continued into a third week.`\
-https://nytimes.com/2024/04/30/us/campus-protests-colleges-columbia-photos.html
 

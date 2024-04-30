@@ -1,3 +1,7 @@
+**Stormy Daniels Almost Went on ABC News, but Then Trump’s Team Paid Her**\
+`Prosecutors begin to prepare the way for Michael Cohen’s crucial testimony.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/stormy-daniels-trump-trial
+
 **PG&E Seeks Approval to Sell Stake in Its Power Operations**\
 `California’s largest utility said its proposed deal with the global investment firm KKR could reduce customer rates by $100 million over 20 years.`\
 https://nytimes.com/2024/04/30/business/pge-kkr-stake.html
