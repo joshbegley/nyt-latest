@@ -1,3 +1,7 @@
+**Jessica Pratt’s Timeless Folk Music Is Evolving. Slowly.**\
+`The singer and songwriter has a delicate, vintage aesthetic that matches her cautious approach to her work. Her fourth album, “Here in the Pitch,” is out Friday.`\
+https://nytimes.com/2024/04/30/arts/music/jessica-pratt-here-in-the-pitch.html
+
 **How to save a pristine valley**\
 `How a group of local activists saved the ‘Yosemite of South America’ in the unlikeliest of deals. `\
 https://nytimes.com/2024/04/30/climate/how-to-save-a-pristine-valley.html

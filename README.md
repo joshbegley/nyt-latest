@@ -11,7 +11,7 @@ https://nytimes.com/2024/04/30/climate/how-to-save-a-pristine-valley.html
 https://nytimes.com/2024/04/30/climate/appliance-efficiency-rules-dishwasher-stove-water-heater.html
 
 **Biden Tax Increases Won’t Hit Middle Class, Yellen Says**\
-`Republicans pressed the Treasury secretary on the fate of the Trump tax cuts that will expire in 2025.`\
+`Republicans pressed the Treasury secretary on President Biden’s tax proposals and the fate of the Trump tax cuts that will expire in 2025.`\
 https://nytimes.com/2024/04/30/us/politics/biden-yellen-tax-increases.html
 
 **Justice Dept. Plans to Recommend Easing Restrictions on Marijuana**\
