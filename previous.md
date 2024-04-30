@@ -1,3 +1,7 @@
+**Norman Kansfield, 83, Dies; Defrocked for His Daughter’s Same-Sex Wedding**\
+`His decision to officiate at the ceremony prompted a debate within the Reformed Church in America that led ultimately to a schism.`\
+https://nytimes.com/2024/04/30/us/norman-kansfield-dead.html
+
 **New York Woman Gets 18 Years for Funding Terrorism With Cryptocurrency**\
 `Prosecutors said Victoria Jacobs sent funds to Bitcoin wallets controlled by a terrorist training group that operated in Syria.`\
 https://nytimes.com/2024/04/30/nyregion/cryptocurrency-terrorism-victoria-jacobs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/us/werner-spitz-dead.html
 **What Charges Will the Protesters Occupying the Columbia Building Face?**\
 `The students who took over Hamilton Hall on Tuesday could be charged with a range of offenses, but they are unlikely to face jail time, according to a legal expert.`\
 https://nytimes.com/2024/04/30/nyregion/columbia-protests-hamilton-hall.html
-
-**House Republican Drafts Censure of Omar for ‘Pro-Genocide’ Remark**\
-`Representative Don Bacon accused Representative Ilhan Omar of antisemitism in suggesting some Jewish students were “pro-genocide.” Democratic leaders have said little about their colleague’s language.`\
-https://nytimes.com/2024/04/30/us/politics/ilhan-omar-genocide-jews-columbia.html
 

@@ -1,3 +1,7 @@
+**Norman Kansfield, 83, Dies; Defrocked for His Daughter’s Same-Sex Wedding**\
+`His decision to officiate at the ceremony prompted a debate within the Reformed Church in America that led ultimately to a schism.`\
+https://nytimes.com/2024/04/30/us/norman-kansfield-dead.html
+
 **New York Woman Gets 18 Years for Funding Terrorism With Cryptocurrency**\
 `Prosecutors said Victoria Jacobs sent funds to Bitcoin wallets controlled by a terrorist training group that operated in Syria.`\
 https://nytimes.com/2024/04/30/nyregion/cryptocurrency-terrorism-victoria-jacobs.html
