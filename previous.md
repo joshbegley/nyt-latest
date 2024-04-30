@@ -1,3 +1,15 @@
+**Corn to Power Airplanes? Biden Administration Sets a High Bar.**\
+`Producers of biofuels like ethanol, which could help create a new generation of jet fuel, would have to overhaul their practices to receive tax credits.`\
+https://nytimes.com/2024/04/30/climate/ethanol-jet-fuel-saf-tax-incentives.html
+
+**Tensions Rise at U.N.C. Chapel Hill After Dozens of Pro-Palestinian Demonstrators Are Detained**\
+`By Tuesday afternoon, protesters had broken through the barriers keeping them out of an encampment, and they replaced an American flag in the center of campus with a Palestinian one.`\
+https://nytimes.com/2024/04/30/nyregion/unc-chapel-hill-protests.html
+
+**Protesters at U.N.C. Break Through Barricade in the Center of Campus**\
+`Protesters at the University of North Carolina, Chapel Hill, clashed with police officers working to restore an American flag that the demonstrators had replaced with a Palestinian one.`\
+https://nytimes.com/video/us/politics/100000009441687/unc-protests-israel-gaza.html
+
 **Make a Great Taco Even Better With Jackfruit**\
 `Often amenable in flavor with a texture like pork, the fruit has become a recent favorite among vegetarians.`\
 https://nytimes.com/2024/04/30/magazine/jackfruit-taco-recipe.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/30/us/ted-nash-jennifer-fox-abuse-investigation.html
 **Amazon Reports $143.3 Billion in Revenue for First Quarter of 2024**\
 `The company also reported that profit more than tripled, to $10.4 billion, topping Wall Street expectations.`\
 https://nytimes.com/2024/04/30/technology/amazon-first-quarter-revenue.html
-
-**Norman Kansfield, 83, Dies; Defrocked for His Daughter’s Same-Sex Wedding**\
-`His decision to officiate at the ceremony prompted a debate within the Reformed Church in America that led ultimately to a schism.`\
-https://nytimes.com/2024/04/30/us/norman-kansfield-dead.html
-
-**New York Woman Gets 18 Years for Funding Terrorism With Cryptocurrency**\
-`Prosecutors said Victoria Jacobs sent funds to Bitcoin wallets controlled by a terrorist training group that operated in Syria.`\
-https://nytimes.com/2024/04/30/nyregion/cryptocurrency-terrorism-victoria-jacobs.html
-
-**Germany’s military support of Israel is being challenged, despite the I.C.J.’s decision.**\
-`A lawsuit was also filed in a Berlin court, which said it expects the government not to license more arms exports until it issues a ruling.`\
-https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/germanys-military-support-of-israel-is-being-challenged-despite-the-icjs-decision
 

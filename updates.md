@@ -1,3 +1,15 @@
+**Corn to Power Airplanes? Biden Administration Sets a High Bar.**\
+`Producers of biofuels like ethanol, which could help create a new generation of jet fuel, would have to overhaul their practices to receive tax credits.`\
+https://nytimes.com/2024/04/30/climate/ethanol-jet-fuel-saf-tax-incentives.html
+
+**Tensions Rise at U.N.C. Chapel Hill After Dozens of Pro-Palestinian Demonstrators Are Detained**\
+`By Tuesday afternoon, protesters had broken through the barriers keeping them out of an encampment, and they replaced an American flag in the center of campus with a Palestinian one.`\
+https://nytimes.com/2024/04/30/nyregion/unc-chapel-hill-protests.html
+
+**Protesters at U.N.C. Break Through Barricade in the Center of Campus**\
+`Protesters at the University of North Carolina, Chapel Hill, clashed with police officers working to restore an American flag that the demonstrators had replaced with a Palestinian one.`\
+https://nytimes.com/video/us/politics/100000009441687/unc-protests-israel-gaza.html
+
 **Make a Great Taco Even Better With Jackfruit**\
 `Often amenable in flavor with a texture like pork, the fruit has become a recent favorite among vegetarians.`\
 https://nytimes.com/2024/04/30/magazine/jackfruit-taco-recipe.html
