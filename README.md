@@ -1,3 +1,7 @@
+**The occupation of a building at Columbia is at least the second across the country.**\
+`By Eryn Davis, Sharon Otterman, Sarah Maslin Nir and Liset Cruz`\
+https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/the-occupation-of-a-building-at-columbia-is-at-least-the-second-across-the-country
+
 **30campus-protests**\
 `Live Updates: Protesters Take Over Building on Columbia Campus`\
 https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/crosswords/connections-companion.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/04/30/crosswords/spelling-bee-forum.html
-
-**From Baby Talk to Baby A.I.**\
-`Could a better understanding of how infants acquire language help us build smarter A.I. models?`\
-https://nytimes.com/2024/04/30/science/ai-infants-language-learning.html
 
