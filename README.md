@@ -1,3 +1,11 @@
+**Walmart Is Shutting Health Centers After Plan to Expand**\
+`The 51 locations, next to Supercenters, proved too costly to be profitable, the retailer said.`\
+https://nytimes.com/2024/04/30/business/walmart-health-centers.html
+
+**Trump Can Attend Son’s High School Graduation in Florida**\
+`Donald J. Trump had complained about the judge not immediately giving him permission to be away from court on May 17.`\
+https://nytimes.com/2024/04/30/nyregion/graduation-barron-trump-trial.html
+
 **A nonprofit theater group dominated the best play nominations.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/manhattan-theater-club-best-play-nominations
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/30/us/politics/bidens-israel-college-democrats.html
 **Green Girl Glory: Three Former Elphabas Scored Tony Nominations**\
 `Shoshana Bean, Eden Espinosa and Lindsay Mendez received nominations for their roles in “Hell’s Kitchen,” “Lempicka” and “Merrily We Roll Along,” respectively.`\
 https://nytimes.com/2024/04/30/theater/wicked-elphabas-bean-espinosa-mendez.html
-
-**Gazans Flee Rafah Before a Widely Expected Israeli Attack**\
-`Many displaced Palestinians are uprooting themselves and their families again and moving to Deir al Balah, a city along Gaza’s coastline, as Israel plans for a possible invasion into Rafah.`\
-https://nytimes.com/video/world/middleeast/100000009435248/gazans-flee-rafah-before-a-widely-expected-israeli-attack.html
-
-**Trump will be back in court, and Biden will campaign in Delaware.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/04/30/us/biden-trump-election-updates/trump-will-be-back-in-court-and-biden-will-campaign-in-delaware
 
