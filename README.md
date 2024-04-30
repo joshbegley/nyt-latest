@@ -1,3 +1,7 @@
+**As Israel plans to invade Rafah, a family makes the difficult choice to uproot itself again.**\
+`By Liam Stack and Bilal Shbair`\
+https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/as-israel-plans-to-invade-rafah-a-family-makes-the-difficult-choice-to-uproot-itself-again
+
 **Democrats Announce That They Will Rescue Johnson if He Faces Ouster Vote**\
 `Party leaders said their members would join an effort to table any attempt to remove the Republican speaker after he allowed House passage of military aid to Ukraine.`\
 https://nytimes.com/2024/04/30/us/politics/johnson-jeffries-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/us/politics/rfk-jr-california-ballot.html
 **Mali Claims Death of Terrorist Who Helped Lead Deadly Ambush in Niger**\
 `The West African country said it killed Abu Huzeifa, a commander in an Islamic State affiliate who was involved in a 2017 attack in neighboring Niger that killed American Green Berets and Nigerien forces.`\
 https://nytimes.com/2024/04/30/world/africa/mali-isis-niger-attack.html
-
-**Leslie Odom Jr. on his Tony nomination for ‘Purlie Victorious.’**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2024/04/30/theater/tony-nominations/leslie-odom-jr-tony-nomination
 
