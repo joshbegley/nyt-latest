@@ -1,10 +1,10 @@
-**Listen to these recent Broadway musicals at home.**\
-`By Sarah Bahr`\
-https://nytimes.com/live/2024/04/30/theater/tony-nominations/listen-to-these-recent-broadway-musicals-at-home
-
 **Paramount Faces a Mountain of Questions**\
 `Bob Bakish, the media giant’s chief executive, is out, removing an obstacle to a deal with David Ellison's Skydance. But the company’s future is no clearer as a key deadline approaches.`\
 https://nytimes.com/2024/04/30/business/dealbook/paramount-bakish-redstone-questions.html
+
+**Listen to these recent Broadway musicals at home.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/listen-to-these-recent-broadway-musicals-at-home
 
 **Broadway still has not recovered to its prepandemic levels.**\
 `By Michael Paulson`\
