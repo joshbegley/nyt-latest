@@ -22,8 +22,8 @@ https://nytimes.com/paidpost/nutrafol/can-supplements-really-help-thinning-hair.
 `By Michael Paulson`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/broadway-upcoming
 
-**Alicia Keys on ‘Hell’s Kitchen’ nod: I’m in ‘a deep state of freaking out.’**\
-`By Michael Paulson`\
+**Alicia Keys on ‘Hell’s Kitchen’ Nods: I’m in ‘a Deep State of Freaking Out’**\
+`She had been working on the semi-autobiographical musical for 13 years, and it earned 13 nominations.`\
 https://nytimes.com/2024/04/30/theater/alicia-keys-on-hells-kitchen-nod-im-in-a-deep-state-of-freaking-out.html
 
 **Goodbye, Gas. The Future of New York City’s Pizza Is Electric.**\
