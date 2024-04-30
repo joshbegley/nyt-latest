@@ -1,3 +1,11 @@
+**Gazans Flee Rafah Before a Widely Expected Israeli Attack**\
+`Many displaced Palestinians are uprooting themselves and their families again and moving to Deir al Balah, a city along Gaza’s coastline, as Israel plans for a possible invasion into Rafah.`\
+https://nytimes.com/video/world/middleeast/100000009435248/gazans-flee-rafah-before-a-widely-expected-israeli-attack.html
+
+**Trump will be back in court, and Biden will campaign in Delaware.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/04/30/us/biden-trump-election-updates/trump-will-be-back-in-court-and-biden-will-campaign-in-delaware
+
 **Daniel Radcliffe is nominated for his role in ‘Merrily We Roll Along.’**\
 `By Michael Paulson`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/daniel-radcliffe-tony-nominations
@@ -27,3 +35,6 @@ https://nytimes.com/2024/04/30/nyregion/juvenile-detention-center-lawsuits.html
 https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/netanyahu-reiterates-his-vow-to-invade-rafah-with-or-without-a-cease-fire-deal
 
 **Here’s what to know about the nominations.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/the-tony-nominations-are-underway-heres-what-we-know-so-far
+
