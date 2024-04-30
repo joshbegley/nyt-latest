@@ -1,3 +1,7 @@
+**Arizona Rancher Accused of Killing Migrant Won’t Be Retried After Mistrial**\
+`George Alan Kelly was accused of murdering Gabriel Cuen-Buitimea, an unarmed migrant from Mexico, on his 170-acre ranch in Kino Springs, Ariz., last year.`\
+https://nytimes.com/2024/04/29/us/arizona-rancher-migrant-death-trial.html
+
 **Election Deniers Are Still Shaping Arizona Politics**\
 `There have been few political consequences for many Republicans accused of helping Trump try to overturn the 2020 election.`\
 https://nytimes.com/2024/04/29/us/politics/election-deniers-arizona-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/us/politics/kamala-harris-atlanta.html
 **Israel Softened Its Demands in Cease-Fire Negotiations**\
 `Also, Russian forces advance in Ukraine before U.S. aid arrives. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/04/29/briefing/israel-hamas-negotiations-russia-ukraine-war.html
-
-**4 Escaped Zebras Spotted on Washington State Highway**\
-`Four escaped zebras were seen on a road in North Bend, Wash., on Sunday.`\
-https://nytimes.com/video/us/100000009439462/zebras-washington-highway.html
 
