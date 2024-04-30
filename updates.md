@@ -1,3 +1,7 @@
+**Amazon Reports $143.3 Billion in Revenue for First Quarter of 2024**\
+`The company also reported that profit more than tripled, to $10.4 billion, topping Wall Street expectations.`\
+https://nytimes.com/2024/04/30/technology/amazon-first-quarter-revenue.html
+
 **Norman Kansfield, 83, Dies; Defrocked for His Daughter’s Same-Sex Wedding**\
 `His decision to officiate at the ceremony prompted a debate within the Reformed Church in America that led ultimately to a schism.`\
 https://nytimes.com/2024/04/30/us/norman-kansfield-dead.html
