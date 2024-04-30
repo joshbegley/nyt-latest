@@ -1,3 +1,7 @@
+**Word of the Day: equilibrium**\
+`This word has appeared in 102 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/30/learning/word-of-the-day-equilibrium.html
+
 **Corrections: April 30, 2024**\
 `Corrections that appeared in print on Tuesday, April 30, 2024.`\
 https://nytimes.com/2024/04/30/pageoneplus/corrections-april-30-2024.html
