@@ -1,3 +1,7 @@
+**What’s up next on Broadway? Plenty.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/broadway-upcoming
+
 **Alicia Keys on ‘Hell’s Kitchen’ nod: I’m in ‘a deep state of freaking out’**\
 `By Michael Paulson`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/alicia-keys-on-hells-kitchen-nod-im-in-a-deep-state-of-freaking-out
