@@ -1,3 +1,15 @@
+**College Democrats Back Protests and Criticize Biden’s Israel Policy**\
+`The student organization of the Democratic Party condemned colleges’ crackdowns on pro-Palestinian protests and called on President Biden to support a permanent cease-fire in Gaza.`\
+https://nytimes.com/2024/04/30/us/politics/bidens-israel-college-democrats.html
+
+**If Trump is jailed for contempt, the Secret Service will go, too.**\
+`By William K. Rashbaum`\
+https://nytimes.com/live/2024/04/30/nyregion/trump-hush-money-trial/if-trump-is-jailed-for-contempt-the-secret-service-will-go-too
+
+**Killer Asteroid Hunters Spot 27,500 Overlooked Space Rocks**\
+`With the help of Google Cloud, scientists churned through hundreds of thousands of images of the night sky to reveal that the solar system is filled with unseen objects.`\
+https://nytimes.com/2024/04/30/science/killer-asteroids-algorithm.html
+
 **‘Smartphones on Wheels’ Draw Attention From Regulators**\
 `Modern cars are internet-connected and have hundreds of sensors. Lawmakers and regulators have concerns about what’s happening with all that data.`\
 https://nytimes.com/2024/04/30/technology/regulators-investigate-carmakers-driver-tracking.html
