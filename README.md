@@ -1,3 +1,7 @@
+**Hamas and Fatah Officials, Longtime Rivals, Met in China**\
+`The Chinese government did not say when the talks between the main Palestinian factions were held. Expectations for progress were low.`\
+https://nytimes.com/2024/04/30/world/middleeast/hamas-fatah-gaza-china-meeting.html
+
 **If Trump is jailed for contempt, the Secret Service will go, too.**\
 `By William K. Rashbaum`\
 https://nytimes.com/live/2024/04/30/nyregion/trump-hush-money-trial/if-trump-is-jailed-for-contempt-the-secret-service-will-go-too
@@ -18,4 +22,4 @@ https://nytimes.com/2024/04/30/nyregion/juvenile-detention-center-lawsuits.html
 `By Damien Cave`\
 https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/netanyahu-reiterates-his-vow-to-invade-rafah-with-or-without-a-cease-fire-deal
 
-**The Tony nominations are underway.**\
+**The musical ‘Hell’s Kitchen’ and the play ‘Stereophonic’ got 13 nominations each, leading the pack.**\
