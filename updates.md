@@ -1,3 +1,7 @@
+**We Watched Horses Die on the Track. Will Anything Change?**\
+`Last year, 12 horses died at Churchill Downs, and another 13 died at Saratoga. In a new documentary, two reporters examine the issues surrounding the sport.`\
+https://nytimes.com/2024/04/30/insider/we-watched-horses-die-on-the-track-will-anything-change.html
+
 **Iran’s Frightening Message to Its Young People**\
 `The fate of a jailed rapper will say a great deal about the country’s atmosphere of repression.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/iran-jailed-rapper
