@@ -1,3 +1,23 @@
+**‘Green Islam’ Drew a Reporter to Indonesia**\
+`An environmental movement is growing in the world’s most populous Muslim nation.`\
+https://nytimes.com/2024/04/30/world/asia/green-islam.html
+
+**Leslie Odom Jr. on his Tony nomination for ‘Purlie Victorious.’**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/leslie-odom-jr-tony-nomination
+
+**After Ukraine Aid Vote, Republicans Braced for Backlash Find Little**\
+`Some Republicans who backed the aid encountered little resistance from voters, who were far more willing to embrace it — and less interested in ousting the speaker over it — than their right-wing colleagues.`\
+https://nytimes.com/2024/04/30/us/politics/republicans-ukraine-aid-vote.html
+
+**How Trump Prosecutors Used C-SPAN to Inform Jurors of Sex Assault Claims**\
+`They played clips of Donald J. Trump attacking women who had accused him of assault, letting them skirt a judge’s order barring direct testimony about the cases.`\
+https://nytimes.com/2024/04/30/nyregion/trump-trial-cspan-evidence.html
+
+**A Mysterious Flier, a Tiny Charity and a Disinformation Campaign at the Border**\
+`A flier urging migrants to vote for President Biden rocketed around right-wing social media. But was it authentic?`\
+https://nytimes.com/2024/04/30/us/politics/immigration-disinformation-campaign-biden-trump.html
+
 **In the Battle of Drake vs. Kendrick Lamar, A.I. Is Playing Spoiler**\
 `A rap beef between hip-hop’s two dominant stars has left fans wondering whether new tracks are real or fakes.`\
 https://nytimes.com/2024/04/30/arts/music/drake-kendrick-lamar-rap-beef-ai-fakes.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/04/30/theater/tony-nominations/daniel-radcliffe-to
 **Supreme Court Allows, for Now, Texas Law Restricting Access to Porn**\
 `The law, meant to shield minors from sexual materials on the internet by requiring adults to prove they are 18, was challenged on First Amendment grounds.`\
 https://nytimes.com/2024/04/30/us/politics/supreme-court-porn.html
-
-**Trump Wants to Prosecute Biden. He Also Thinks Presidents Deserve Immunity.**\
-`In arguing to the Supreme Court that he cannot be charged for acts while in office, Donald Trump has asked the justices to enforce a norm that he has long threatened to shatter.`\
-https://nytimes.com/2024/04/30/us/politics/trump-biden-president-immunity.html
-
-**As Israel plans to invade Rafah, a family makes the difficult choice to uproot itself again.**\
-`By Liam Stack and Bilal Shbair`\
-https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/as-israel-plans-to-invade-rafah-a-family-makes-the-difficult-choice-to-uproot-itself-again
-
-**Democrats Announce That They Will Rescue Johnson if He Faces Ouster Vote**\
-`Party leaders said their members would join an effort to table any attempt to remove the Republican speaker after he allowed House passage of military aid to Ukraine.`\
-https://nytimes.com/2024/04/30/us/politics/johnson-greene-jeffries-democrats.html
-
-**Some Columbia faculty say administrators pushed the university to this crisis.**\
-`By Alan Blinder, Anemona Hartocollis and Ali Watkins`\
-https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/some-columbia-faculty-say-administrators-pushed-the-university-to-this-crisis
-
-**Keith Davidson, Who Represented Women From Trump’s Past, Testifies at Trial**\
-`Mr. Davidson represented a Playboy model who claimed she’d had an affair with Donald Trump, and the porn star whose account of a sexual encounter are at the center of the case.`\
-https://nytimes.com/2024/04/30/nyregion/keith-davidson-who-represented-women-from-trumps-past-testifies-at-trial.html
 
