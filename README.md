@@ -1,3 +1,7 @@
+**‘Green Islam’ Drew a Reporter to Indonesia**\
+`An environmental movement is growing in the world’s most populous Muslim nation.`\
+https://nytimes.com/2024/04/30/world/asia/green-islam.html
+
 **Leslie Odom Jr. on his Tony nomination for ‘Purlie Victorious.’**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/leslie-odom-jr-tony-nomination
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/30/theater/tony-nominations/daniel-radcliffe-to
 **Supreme Court Allows, for Now, Texas Law Restricting Access to Porn**\
 `The law, meant to shield minors from sexual materials on the internet by requiring adults to prove they are 18, was challenged on First Amendment grounds.`\
 https://nytimes.com/2024/04/30/us/politics/supreme-court-porn.html
-
-**Trump Wants to Prosecute Biden. He Also Thinks Presidents Deserve Immunity.**\
-`In arguing to the Supreme Court that he cannot be charged for acts while in office, Donald Trump has asked the justices to enforce a norm that he has long threatened to shatter.`\
-https://nytimes.com/2024/04/30/us/politics/trump-biden-president-immunity.html
 
