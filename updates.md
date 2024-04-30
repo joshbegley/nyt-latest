@@ -1,3 +1,11 @@
+**Walmart Is Shutting Health Centers After Plan to Expand**\
+`The 51 locations, next to Supercenters, proved too costly to be profitable, the retailer said.`\
+https://nytimes.com/2024/04/30/business/walmart-health-centers.html
+
+**Trump Can Attend Son’s High School Graduation in Florida**\
+`Donald J. Trump had complained about the judge not immediately giving him permission to be away from court on May 17.`\
+https://nytimes.com/2024/04/30/nyregion/graduation-barron-trump-trial.html
+
 **A nonprofit theater group dominated the best play nominations.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/manhattan-theater-club-best-play-nominations
