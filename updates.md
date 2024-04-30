@@ -1,3 +1,7 @@
+**A Bystander to ’60s Protests, Biden Now Becomes a Target**\
+`For President Biden, the campus unrest over the Gaza war recalls peace protests of his youth. But this time he cannot easily bypass the turmoil.`\
+https://nytimes.com/2024/04/30/us/politics/biden-columbia-protests-israel-antisemitism.html
+
 **Wednesday Briefing: Clashes Escalate on U.S. Campuses**\
 `Also, a judge fined Donald Trump for breaking a gag owner.`\
 https://nytimes.com/2024/04/30/world/asia/columbia-explusion-trump-broadway-asia.html
