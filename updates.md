@@ -1,3 +1,7 @@
+**Same-Store Sales at Starbucks Drop as Consumers Slow Purchases**\
+`After the chain’s quarterly earnings missed Wall Street’s estimates, its shares fell more than 12 percent in after-hours trading.`\
+https://nytimes.com/2024/04/30/business/starbucks-earnings-first-quarter.html
+
 **N.S.A. Disclosure of U.S. Identities in Surveillance Reports Nearly Tripled in 2023**\
 `The sharp increase of so-called unmaskings, to more than 31,300 times, arose from attempts by foreign hackers to infiltrate the computer systems of critical infrastructure.`\
 https://nytimes.com/2024/04/30/us/politics/nsa-warrantless-surveillance-americans.html

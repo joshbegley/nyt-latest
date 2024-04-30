@@ -1,3 +1,7 @@
+**Same-Store Sales at Starbucks Drop as Consumers Slow Purchases**\
+`After the chain’s quarterly earnings missed Wall Street’s estimates, its shares fell more than 12 percent in after-hours trading.`\
+https://nytimes.com/2024/04/30/business/starbucks-earnings-first-quarter.html
+
 **N.S.A. Disclosure of U.S. Identities in Surveillance Reports Nearly Tripled in 2023**\
 `The sharp increase of so-called unmaskings, to more than 31,300 times, arose from attempts by foreign hackers to infiltrate the computer systems of critical infrastructure.`\
 https://nytimes.com/2024/04/30/us/politics/nsa-warrantless-surveillance-americans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/us/brown-divestment-deal.html
 **Judge Who Brawled With Neighbors Will Remain on N.Y. Bench**\
 `A state panel voted to censure Mark J. Grisanti, a former Republican state senator, but said he would not be removed for the incident, in which he shoved a police officer.`\
 https://nytimes.com/2024/04/30/nyregion/grisanti-judge-censure-buffalo.html
-
-**Contempt Fines and Hush-Money Details: 5 Takeaways From Trump’s Trial**\
-`Donald J. Trump was fined for contempt and warned of jail time before a lawyer testified about how he struck deals to silence two women who said they had trysts with the former president.`\
-https://nytimes.com/2024/04/30/nyregion/trump-trial-takeaways-gag-order.html
 
