@@ -26,8 +26,8 @@ https://nytimes.com/2024/04/30/us/politics/biden-yellen-tax-increases.html
 `The move would kick off a lengthy rule-making process and would amount to a major change in federal policy.`\
 https://nytimes.com/2024/04/30/us/politics/justice-department-reclassify-marijuana.html
 
-**Binance Founder Sentenced to Four Months in Prison**\
-`Changpeng Zhao, the founder and former chief executive of the Binance cryptocurrency exchange, had pleaded guilty to a money-laundering violation.`\
+**Binance Founder Sentenced to 4 Months in Prison**\
+`Changpeng Zhao, the founder and former chief executive of the Binance cryptocurrency exchange, had pleaded guilty to money-laundering violations.`\
 https://nytimes.com/2024/04/30/technology/binance-founder-changpeng-zhao-sentenced.html
 
 **Nine Rescued in Atlantic After Days on Wreckage of Migrant Boat**\
