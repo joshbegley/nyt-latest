@@ -35,3 +35,6 @@ https://nytimes.com/2024/04/30/nyregion/juvenile-detention-center-lawsuits.html
 https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/netanyahu-reiterates-his-vow-to-invade-rafah-with-or-without-a-cease-fire-deal
 
 **Here’s what to know about the nominations.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/the-tony-nominations-are-underway-heres-what-we-know-so-far
+
