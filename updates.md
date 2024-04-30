@@ -1,3 +1,11 @@
+**So many shows only just opened. How did the nominations happen so quickly?**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/so-many-shows-only-just-opened-how-did-the-nominations-happen-so-quickly
+
+**How Trump Prosecutors Used C-SPAN to Inform Jurors of Sex Assault Claims**\
+`They played clips of Donald J. Trump attacking women who had accused him of assault.`\
+https://nytimes.com/2024/04/30/nyregion/trump-trial-cspan-evidence.html
+
 **Jessica Lange, nominated for ‘Mother Play,’ wanted to create a new role.**\
 `By Laura Collins-Hughes`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/jessica-lange-mother-play-tony-nomination
