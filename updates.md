@@ -1,3 +1,7 @@
+**A nonprofit theater group dominated the best play nominations.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/manhattan-theater-club-best-play-nominations
+
 **U.S. Plan to Protect Oceans Has a Problem, Some Say: Too Much Fishing**\
 `An effort to protect 30 percent of land and waters would count some commercial fishing zones as conserved areas.`\
 https://nytimes.com/2024/04/30/climate/united-states-conservation-30x30.html
