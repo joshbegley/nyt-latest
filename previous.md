@@ -1,3 +1,11 @@
+**Corrections: April 30, 2024**\
+`Corrections that appeared in print on Tuesday, April 30, 2024.`\
+https://nytimes.com/2024/04/30/pageoneplus/corrections-april-30-2024.html
+
+**Quotation of the Day: Communist Cuba Grasps a Lifeline: Capitalists**\
+`Quotation of the Day for Tuesday, April 30, 2024.`\
+https://nytimes.com/2024/04/30/pageoneplus/quotation-of-the-day-communist-cuba-grasps-a-lifeline-capitalists.html
+
 **Tuesday Briefing**\
 `Hope for a cease-fire in Gaza.`\
 https://nytimes.com/2024/04/30/briefing/israel-hamas-ukraine-retreat.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/29/us/humboldt-protest-cal-poly.html
 **Contents of a Pizzeria Shaker**\
 `Michèle Govier has us dwelling on the details.`\
 https://nytimes.com/2024/04/29/crosswords/daily-puzzle-2024-04-30.html
-
-**Columbia Faculty Block Encampments, Protecting Student Protesters**\
-`On Monday, Columbia administrators issued an ultimatum to student protestors: leave their encampments or face suspension. In response, several faculty members created a human barrier.`\
-https://nytimes.com/video/nyregion/100000009439309/columbia-protests-faculty-students.html
-
-**Arizona Rancher Accused of Killing Migrant Won’t Be Retried After Mistrial**\
-`George Alan Kelly was accused of murdering Gabriel Cuen-Buitimea, an unarmed migrant from Mexico, on his 170-acre ranch in Kino Springs, Ariz., last year.`\
-https://nytimes.com/2024/04/29/us/arizona-rancher-migrant-death-trial.html
 

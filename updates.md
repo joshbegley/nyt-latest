@@ -1,3 +1,11 @@
+**Corrections: April 30, 2024**\
+`Corrections that appeared in print on Tuesday, April 30, 2024.`\
+https://nytimes.com/2024/04/30/pageoneplus/corrections-april-30-2024.html
+
+**Quotation of the Day: Communist Cuba Grasps a Lifeline: Capitalists**\
+`Quotation of the Day for Tuesday, April 30, 2024.`\
+https://nytimes.com/2024/04/30/pageoneplus/quotation-of-the-day-communist-cuba-grasps-a-lifeline-capitalists.html
+
 **Tuesday Briefing**\
 `Hope for a cease-fire in Gaza.`\
 https://nytimes.com/2024/04/30/briefing/israel-hamas-ukraine-retreat.html
