@@ -1,3 +1,15 @@
+**N.S.A. Disclosure of U.S. Identities in Surveillance Reports Nearly Tripled in 2023**\
+`The sharp increase of so-called unmaskings, to more than 31,300 times, arose from attempts by foreign hackers to infiltrate the computer systems of critical infrastructure.`\
+https://nytimes.com/2024/04/30/us/politics/nsa-warrantless-surveillance-americans.html
+
+**‘Staff Meal’ Review: The Last Course for Doomsday Diners and Dates**\
+`Restaurant patrons and staff members are oblivious to the impending apocalypse in Abe Koogler’s new show at Playwrights Horizons.`\
+https://nytimes.com/2024/04/30/theater/staff-meal-review-abe-koogler.html
+
+**In Charlotte, a City Mourns Its Officers, and Asks What Went Wrong**\
+`The killing of the four officers in a usually quiet neighborhood, where a running gun battle left people scrambling for cover, stunned residents and brought anguish across the city.`\
+https://nytimes.com/2024/04/30/us/charlotte-officers-killed-aftermath.html
+
 **Netanyahu Vows to Invade Rafah ‘With or Without’ Cease-Fire Deal**\
 `As mediators pressed for a truce and Secretary of State Antony J. Blinken toured the region, a ground incursion into the southern Gazan city loomed.`\
 https://nytimes.com/2024/04/30/world/middleeast/netanyahu-invasion-rafah-cease-fire.html
