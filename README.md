@@ -1,3 +1,11 @@
+**Scenes From the Student Protests Churning Across the Country**\
+`Despite hundreds of arrests and threats of disciplinary action, pro-Palestinian demonstrations have continued into a third week.`\
+https://nytimes.com/2024/04/30/us/campus-protests-colleges-columbia-photos.html
+
+**Columbia Said It Would Expel Students Occupying a Building**\
+`Also, a judge held Trump in contempt, and warned of jail time. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/04/30/briefing/campus-protests-columbia-donald-trump-contempt.html
+
 **Education Secretary Calls Antisemitism on Campuses ‘Abhorrent’ and ‘Unacceptable’**\
 `Miguel A. Cardona told lawmakers that his department was continuing to investigate complaints of antisemitism at dozens of colleges since Oct. 7.`\
 https://nytimes.com/2024/04/30/us/politics/miguel-cardona-antisemitism-campus-protests.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/30/world/asia/columbia-explusion-trump-broadway-asia
 **House Republicans, Seeking Political Edge Amid College Protests, Spotlight Antisemitism**\
 `Republican leaders said they would hold additional hearings with top university administrators and potentially withhold millions of federal dollars from universities that fail to keep Jewish students safe.`\
 https://nytimes.com/2024/04/30/nyregion/antisemitism-republicans-johnson-college-protests.html
-
-**Mississippi Lawmakers Reach a Tentative Deal to Expand Medicaid**\
-`The expansion would extend largely free health coverage to 200,000 more low-income adults. But hurdles remain, including a likely veto by Gov. Tate Reeves.`\
-https://nytimes.com/2024/04/30/us/mississippi-medicaid-expansion.html
-
-**U.S. Rowing Rescinds Ted Nash’s Honors After Abuse Investigation**\
-`A law firm examining accusations that Ted Nash sexually abused Jennifer Fox — when she was 13 and he was her 40-year-old running coach — found that her claims were credible.`\
-https://nytimes.com/2024/04/30/us/ted-nash-jennifer-fox-abuse-investigation.html
 

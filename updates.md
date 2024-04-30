@@ -1,3 +1,11 @@
+**Education Secretary Calls Antisemitism on Campuses ‘Abhorrent’ and ‘Unacceptable’**\
+`Miguel A. Cardona told lawmakers that his department was continuing to investigate complaints of antisemitism at dozens of colleges since Oct. 7.`\
+https://nytimes.com/2024/04/30/us/politics/miguel-cardona-antisemitism-campus-protests.html
+
+**U.S. Rowing Rescinds Ted Nash’s Honors After Abuse Investigation**\
+`A law firm examining accusations that Ted Nash sexually abused Jennifer Fox — when she was 13 and he was her 40-year-old running coach — found that her claims were credible.`\
+https://nytimes.com/2024/04/30/us/ted-nash-jennifer-fox-abuse-investigation.html
+
 **Corn to Power Airplanes? Biden Administration Sets a High Bar.**\
 `Producers of biofuels like ethanol, which could help create a new generation of jet fuel, would have to overhaul their practices to receive tax credits.`\
 https://nytimes.com/2024/04/30/climate/ethanol-jet-fuel-saf-tax-incentives.html

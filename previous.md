@@ -1,3 +1,7 @@
+**Education Secretary Calls Antisemitism on Campuses ‘Abhorrent’ and ‘Unacceptable’**\
+`Miguel A. Cardona told lawmakers that his department was continuing to investigate complaints of antisemitism at dozens of colleges since Oct. 7.`\
+https://nytimes.com/2024/04/30/us/politics/miguel-cardona-antisemitism-campus-protests.html
+
 **Corn to Power Airplanes? Biden Administration Sets a High Bar.**\
 `Producers of biofuels like ethanol, which could help create a new generation of jet fuel, would have to overhaul their practices to receive tax credits.`\
 https://nytimes.com/2024/04/30/climate/ethanol-jet-fuel-saf-tax-incentives.html
@@ -30,11 +34,7 @@ https://nytimes.com/2024/04/30/nyregion/antisemitism-republicans-johnson-college
 `The expansion would extend largely free health coverage to 200,000 more low-income adults. But hurdles remain, including a likely veto by Gov. Tate Reeves.`\
 https://nytimes.com/2024/04/30/us/mississippi-medicaid-expansion.html
 
-**She Accused a Rowing Legend of Abuse. Now He Is Being Erased From the Sport.**\
+**U.S. Rowing Rescinds Ted Nash’s Honors After Abuse Investigation**\
 `A law firm examining accusations that Ted Nash sexually abused Jennifer Fox — when she was 13 and he was her 40-year-old running coach — found that her claims were credible.`\
 https://nytimes.com/2024/04/30/us/ted-nash-jennifer-fox-abuse-investigation.html
-
-**Amazon Reports $143.3 Billion in Revenue for First Quarter of 2024**\
-`The company also reported that profit more than tripled, to $10.4 billion, topping Wall Street expectations.`\
-https://nytimes.com/2024/04/30/technology/amazon-first-quarter-revenue.html
 
