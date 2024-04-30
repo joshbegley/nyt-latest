@@ -1,3 +1,11 @@
+**Mississippi Lawmakers Reach a Tentative Deal to Expand Medicaid**\
+`The expansion would extend largely free health coverage to 200,000 more low-income adults. But hurdles remain, including a likely veto by Gov. Tate Reeves.`\
+https://nytimes.com/2024/04/30/us/mississippi-medicaid-expansion.html
+
+**She Accused a Rowing Legend of Abuse. Now He Is Being Erased From the Sport.**\
+`A law firm examining accusations that Ted Nash sexually abused Jennifer Fox — when she was 13 and he was her 40-year-old running coach — found that her claims were credible.`\
+https://nytimes.com/2024/04/30/us/ted-nash-jennifer-fox-abuse-investigation.html
+
 **Amazon Reports $143.3 Billion in Revenue for First Quarter of 2024**\
 `The company also reported that profit more than tripled, to $10.4 billion, topping Wall Street expectations.`\
 https://nytimes.com/2024/04/30/technology/amazon-first-quarter-revenue.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/04/24/opinion/thepoint/iran-jailed-rapper
 **Emergency Slide That Fell From Delta Flight Is Recovered From Queens Jetty**\
 `The flight, which took off from Kennedy International Airport on Friday, safely returned to the airport, where crews saw that the slide was missing, according to the airline.`\
 https://nytimes.com/2024/04/30/us/emergency-slide-delta-flight-found.html
-
-**Education Department Scrambles to Make Up for Lost Time After FAFSA Blunders**\
-`With applications down significantly from past years, officials announced a renewed effort to get students to apply for federal financial aid.`\
-https://nytimes.com/2024/04/30/us/politics/fafsa-education-department-cardona.html
-
-**Werner Spitz, Forensic Expert in High-Profile Murders, Dies at 97**\
-`He figured in the examination of sensational cases involving President John F. Kennedy, Martin Luther King Jr., O.J. Simpson and others.`\
-https://nytimes.com/2024/04/30/us/werner-spitz-dead.html
 
