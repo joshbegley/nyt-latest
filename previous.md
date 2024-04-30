@@ -1,3 +1,11 @@
+**Man With Sword Stabs Several People in London, Police Say**\
+`Five people were hospitalized after the stabbing, and a suspect was arrested. Video of the incident showed a man wielding a large sword near several houses.`\
+https://nytimes.com/2024/04/30/world/europe/london-stabbing-hainault.html
+
+**Blinken Arrives in Jordan to Discuss Aid for Gaza**\
+`The visit comes as the Biden administration is trying to increase pressure on Hamas to accept a deal that would result in a temporary cease-fire in the war in Gaza and the release of some hostages.`\
+https://nytimes.com/2024/04/30/world/middleeast/blinken-jordan-gaza-us-aid-israel-war.html
+
 **The Secret Push That Could Ban TikTok**\
 `U.S. lawmakers have long worried that the Chinese government could use the app to spread propaganda.`\
 https://nytimes.com/2024/04/30/podcasts/the-daily/tiktok-ban.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/30/movies/movies-leaving-netflix-may.html
 **What Should a Congress Member’s Salary Be?**\
 `Twelve departing lawmakers tell us what Congress is really like.`\
 https://nytimes.com/interactive/2024/04/30/opinion/congress-resignations-salary.html
-
-**Is Green Growth Possible?**\
-`The environmental data scientist Hannah Ritchie argues that climate technology is increasingly catching up to the world’s enormous need for clean energy.`\
-https://nytimes.com/2024/04/30/opinion/ezra-klein-podcast-hannah-ritchie.html
-
-**The Three Shows I’m Pulling for in the Tony Award Nominations**\
-`Three musicals bring the art of songw`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/tony-award-nominations-songwriting
 
