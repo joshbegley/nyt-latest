@@ -1,3 +1,7 @@
+**Biden Tax Increases Won’t Hit Middle Class, Yellen Says**\
+`Republicans pressed the Treasury secretary on President Biden’s tax proposals and the fate of the Trump tax cuts that will expire in 2025.`\
+https://nytimes.com/2024/04/30/us/politics/biden-yellen-tax-increases.html
+
 **Jessica Pratt’s Timeless Folk Music Is Evolving. Slowly.**\
 `The singer and songwriter has a delicate, vintage aesthetic that matches her cautious approach to her work. Her fourth album, “Here in the Pitch,” is out Friday.`\
 https://nytimes.com/2024/04/30/arts/music/jessica-pratt-here-in-the-pitch.html

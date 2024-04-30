@@ -1,3 +1,11 @@
+**What Charges Will the Protesters Occupying the Columbia Building Face?**\
+`The students who took over Hamilton Hall on Tuesday could be charged with a range of offenses, but they are unlikely to face jail time, according to a legal expert.`\
+https://nytimes.com/2024/04/30/nyregion/columbia-protests-hamilton-hall.html
+
+**House Republican Drafts Censure of Omar for ‘Pro-Genocide’ Remark**\
+`Representative Don Bacon accused Representative Ilhan Omar of antisemitism in suggesting some Jewish students were “pro-genocide.” Democratic leaders have said little about their colleague’s language.`\
+https://nytimes.com/2024/04/30/us/politics/ilhan-omar-genocide-jews-columbia.html
+
 **Jessica Pratt’s Timeless Folk Music Is Evolving. Slowly.**\
 `The singer and songwriter has a delicate, vintage aesthetic that matches her cautious approach to her work. Her fourth album, “Here in the Pitch,” is out Friday.`\
 https://nytimes.com/2024/04/30/arts/music/jessica-pratt-here-in-the-pitch.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/30/world/europe/migrant-boat-rescue.html
 **Tiny Love Stories: ‘The Schoolhouse Taught Me What Marriage Didn’t’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/04/30/style/tiny-modern-love-stories-the-schoolhouse-taught-me-what-marriage-didnt.html
-
-**Russia Strikes Civilian Center in Odesa, Killing Five**\
-`Ukraine quickly accused Russia of using a deadly cluster weapon in a civilian area. Moscow has increasingly targeted urban centers in recent weeks.`\
-https://nytimes.com/2024/04/30/world/europe/russia-ukraine-missile-airstrike.html
-
-**Ex-N.S.A. Employee Who Tried to Sell U.S. Secrets to Russia Gets 22 Years**\
-`The Colorado man, who held a top security clearance, told an undercover F.B.I. employee posing as a Russian agent that he needed to pay nearly $84,000 in student loan and credit card debt.`\
-https://nytimes.com/2024/04/30/us/nsa-espionage-colorado-sentence.html
 
