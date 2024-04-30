@@ -1,3 +1,11 @@
+**Green Girl Glory: Three former Elphabas scored Tony nominations.**\
+`By Michael Paulson`\
+https://nytimes.com/2024/04/30/theater/broadway-elphabas-bean-espinosa-mendez.html
+
+**Daniel Radcliffe Is Nominated for ‘Merrily We Roll Along’**\
+`This was the first nomination for Radcliffe, who has had five roles on Broadway since 2008.`\
+https://nytimes.com/2024/04/30/theater/daniel-radcliffe-tony-nomination.html
+
 **College Democrats of America Back Protests and Criticize Biden’s Israel Policy**\
 `The student organization of the Democratic Party condemned colleges’ crackdowns on pro-Palestinian protests and called on President Biden to support a permanent cease-fire in Gaza.`\
 https://nytimes.com/2024/04/30/us/politics/bidens-israel-college-democrats.html

@@ -4,7 +4,7 @@ https://nytimes.com/2024/04/30/us/politics/bidens-israel-college-democrats.html
 
 **Green Girl Glory: Three former Elphabas scored Tony nominations.**\
 `By Michael Paulson`\
-https://nytimes.com/live/2024/04/30/theater/tony-nominations/broadway-elphabas-bean-espinosa-mendez
+https://nytimes.com/2024/04/30/theater/broadway-elphabas-bean-espinosa-mendez.html
 
 **Gazans Flee Rafah Before a Widely Expected Israeli Attack**\
 `Many displaced Palestinians are uprooting themselves and their families again and moving to Deir al Balah, a city along Gaza’s coastline, as Israel plans for a possible invasion into Rafah.`\
@@ -15,7 +15,7 @@ https://nytimes.com/video/world/middleeast/100000009435248/gazans-flee-rafah-bef
 https://nytimes.com/live/2024/04/30/us/biden-trump-election-updates/trump-will-be-back-in-court-and-biden-will-campaign-in-delaware
 
 **Daniel Radcliffe Is Nominated for ‘Merrily We Roll Along’**\
-`This was the first Tony nomination for Radcliffe, who as a child actor became globally recognizable by playing Harry Potter in the movies.`\
+`This was the first nomination for Radcliffe, who has had five roles on Broadway since 2008.`\
 https://nytimes.com/2024/04/30/theater/daniel-radcliffe-tony-nomination.html
 
 **Hamas and Fatah Officials, Longtime Rivals, Met in China**\
