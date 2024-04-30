@@ -1,3 +1,11 @@
+**Wednesday Briefing: Clashes Escalate on U.S. Campuses**\
+`Also, a judge fined Donald Trump for breaking a gag owner.`\
+https://nytimes.com/2024/04/30/world/asia/columbia-explusion-trump-broadway-asia.html
+
+**House Republicans, Seeking Political Edge Amid College Protests, Spotlight Antisemitism**\
+`Republican leaders said they would hold additional hearings with top university administrators and potentially withhold millions of federal dollars from universities that fail to keep Jewish students safe.`\
+https://nytimes.com/2024/04/30/nyregion/antisemitism-republicans-johnson-college-protests.html
+
 **Mississippi Lawmakers Reach a Tentative Deal to Expand Medicaid**\
 `The expansion would extend largely free health coverage to 200,000 more low-income adults. But hurdles remain, including a likely veto by Gov. Tate Reeves.`\
 https://nytimes.com/2024/04/30/us/mississippi-medicaid-expansion.html
