@@ -1,4 +1,4 @@
-**Same-Store Sales at Starbucks Drop as Consumers Slow Purchases**\
+**Same-Store Sales at Starbucks Drop, Pushing Revenue Down 1.8%**\
 `After the chain’s quarterly earnings missed Wall Street’s estimates, its shares fell more than 12 percent in after-hours trading.`\
 https://nytimes.com/2024/04/30/business/starbucks-earnings-first-quarter.html
 
