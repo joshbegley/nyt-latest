@@ -1,3 +1,11 @@
+**Alicia Keys on ‘Hell’s Kitchen’ nod: I’m in ‘a deep state of freaking out’**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/alicia-keys-on-hells-kitchen-nod-im-in-a-deep-state-of-freaking-out
+
+**Goodbye, Gas. The Future of New York City’s Pizza Is Electric.**\
+`And just in time for a new city ordinance regulating pollution emitted by wood- and coal-fired ovens.`\
+https://nytimes.com/2024/04/30/dining/new-york-pizza-electric-ovens.html
+
 **Here’s where campus protesters have been arrested over the past day.**\
 `Officers at Virginia Commonwealth University in Richmond used riot gear and pepper spray.`\
 https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/heres-where-campus-protesters-have-been-arrested-over-the-past-day
