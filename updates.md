@@ -1,3 +1,11 @@
+**Women on Bumble No Longer Have to Make the First Move**\
+`As dissatisfaction with online dating grows, the app that put women in control is shifting course.`\
+https://nytimes.com/2024/04/30/style/bumble-dating-apps.html
+
+**Child Killed in London Sword Attack, Police Say**\
+`A 13-year-old boy was killed and several others were hospitalized in a stabbing spree in northeast London, the police said. A 36-year-old man was arrested.`\
+https://nytimes.com/2024/04/30/world/europe/london-stabbing-hainault.html
+
 **Listen to these recent Broadway musicals at home.**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/listen-to-these-recent-broadway-musicals-at-home

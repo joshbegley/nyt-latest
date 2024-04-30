@@ -1,3 +1,11 @@
+**Here’s what it looked like when 12 Broadway shows opened in 9 days.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/heres-what-it-looked-like-when-12-broadway-shows-opened-in-9-days
+
+**Tony Awards Nominations 2024: Updating List**\
+`Nominations for the 77th Tony Awards will be announced Tuesday morning. See below for a live list of nominees.`\
+https://nytimes.com/2024/04/30/theater/tony-awards-nominations.html
+
 **Women on Bumble No Longer Have to Make the First Move**\
 `As dissatisfaction with online dating grows, the app that put women in control is shifting course.`\
 https://nytimes.com/2024/04/30/style/bumble-dating-apps.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/30/business/meta-european-union-disinformation-inves
 **What to watch for as this year’s nominations are announced.**\
 `By Michael Paulson`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/what-to-watch-for-as-this-years-nominations-are-announced
-
-**A Q&A About Latino Republicans**\
-`We explain why more Latino voters find Trump appealing.`\
-https://nytimes.com/2024/04/30/briefing/latino-republicans-2024.html
-
-**Child Killed in London Sword Attack, Police Say**\
-`A 13-year-old boy was killed and several others were hospitalized in a stabbing spree in northeast London, the police said. A 36-year-old man was arrested.`\
-https://nytimes.com/2024/04/30/world/europe/london-stabbing-hainault.html
 
