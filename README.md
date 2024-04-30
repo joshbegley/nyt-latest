@@ -2,8 +2,8 @@
 `Five people were hospitalized after the stabbing, and a suspect was arrested. Video of the incident showed a man wielding a large sword near several houses.`\
 https://nytimes.com/2024/04/30/world/europe/london-stabbing-hainault.html
 
-**Blinken’s Mideast tour continues in Jordan, where he is due to discuss humanitarian aid for Gaza.**\
-`By Edward Wong`\
+**Blinken Arrives in Jordan to Discuss Aid for Gaza**\
+`The visit comes as the Biden administration is trying to increase pressure on Hamas to accept a deal that would result in a temporary cease-fire in the war in Gaza and the release of some hostages.`\
 https://nytimes.com/2024/04/30/world/middleeast/blinken-jordan-gaza-us-aid-israel-war.html
 
 **The Secret Push That Could Ban TikTok**\
