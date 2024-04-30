@@ -1,3 +1,15 @@
+**Democrats Announce That They Will Rescue Johnson if He Faces Ouster Vote**\
+`Party leaders said their members would join an effort to table any attempt to remove the Republican speaker after he allowed House passage of military aid to Ukraine.`\
+https://nytimes.com/2024/04/30/us/politics/johnson-jeffries-democrats.html
+
+**Some Columbia faculty say administrators pushed the university to this crisis.**\
+`By Alan Blinder, Anemona Hartocollis and Ali Watkins`\
+https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/some-columbia-faculty-say-administrators-pushed-the-university-to-this-crisis
+
+**Keith Davidson, Who Represented Women From Trump’s Past, Testifies at Trial**\
+`Mr. Davidson represented a Playboy model who claimed she’d had an affair with Donald Trump, and the porn star whose account of a sexual encounter are at the center of the case.`\
+https://nytimes.com/2024/04/30/nyregion/keith-davidson-who-represented-women-from-trumps-past-testifies-at-trial.html
+
 **Tony Nominations Snubs and Surprises: Steve Carell and ‘The Wiz’ Miss Out**\
 `It was a strong year for female directors, a play featuring music and American productions.`\
 https://nytimes.com/2024/04/30/theater/tony-nominations-snubs-surprises.html
