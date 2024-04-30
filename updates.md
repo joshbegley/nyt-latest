@@ -1,3 +1,7 @@
+**Arizona Rancher Accused of Killing Migrant Won’t Be Retried After Mistrial**\
+`George Alan Kelly was accused of murdering Gabriel Cuen-Buitimea, an unarmed migrant from Mexico, on his 170-acre ranch in Kino Springs, Ariz., last year.`\
+https://nytimes.com/2024/04/29/us/arizona-rancher-migrant-death-trial.html
+
 **Election Deniers Are Still Shaping Arizona Politics**\
 `There have been few political consequences for many Republicans accused of helping Trump try to overturn the 2020 election.`\
 https://nytimes.com/2024/04/29/us/politics/election-deniers-arizona-politics.html
