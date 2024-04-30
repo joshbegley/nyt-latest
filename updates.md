@@ -1,3 +1,7 @@
+**Alicia Keys on ‘Hell’s Kitchen’ Nods: I’m in ‘a Deep State of Freaking Out’**\
+`She had been working on the semi-autobiographical musical for 13 years, and it earned 13 nominations.`\
+https://nytimes.com/2024/04/30/theater/alicia-keys-on-hells-kitchen-nod-im-in-a-deep-state-of-freaking-out.html
+
 **Ex-N.S.A. Employee Who Tried to Sell U.S. Secrets to Russia Gets 22 Years**\
 `The Colorado man, who held a top security clearance, told an undercover F.B.I. employee posing as a Russian agent that he needed to pay nearly $84,000 in student loan and credit card debt.`\
 https://nytimes.com/2024/04/30/us/nsa-espionage-colorado-sentence.html
