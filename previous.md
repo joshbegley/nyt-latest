@@ -1,3 +1,7 @@
+**Trump Again Vows Mass Deportations and Won’t Rule Out Political Violence**\
+`In an interview with Time magazine, the former president said he planned to use the military to deport migrants and would not dismiss the possibility of political violence after this year’s election.`\
+https://nytimes.com/2024/04/30/us/politics/trump-time-migrants-election.html
+
 **On the same day, 56 years ago, students inside Hamilton Hall were protesting another war.**\
 `By Claire Fahy`\
 https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/on-the-same-day-56-years-ago-students-inside-hamilton-hall-were-protesting-another-war
