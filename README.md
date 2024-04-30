@@ -1,3 +1,7 @@
+**N.S.A. Disclosure of U.S. Identities in Surveillance Reports Nearly Tripled in 2023**\
+`The sharp increase of so-called unmaskings, to more than 31,300 times, arose from attempts by foreign hackers to infiltrate the computer systems of critical infrastructure.`\
+https://nytimes.com/2024/04/30/us/politics/nsa-warrantless-surveillance-americans.html
+
 **‘Staff Meal’ Review: The Last Course for Doomsday Diners and Dates**\
 `Restaurant patrons and staff members are oblivious to the impending apocalypse in Abe Koogler’s new show at Playwrights Horizons.`\
 https://nytimes.com/2024/04/30/theater/staff-meal-review-abe-koogler.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/nyregion/grisanti-judge-censure-buffalo.html
 **Contempt Fines and Hush-Money Details: 5 Takeaways From Trump’s Trial**\
 `Donald J. Trump was fined for contempt and warned of jail time before a lawyer testified about how he struck deals to silence two women who said they had trysts with the former president.`\
 https://nytimes.com/2024/04/30/nyregion/trump-trial-takeaways-gag-order.html
-
-**‘Fearless Girl’ Lawsuit Is Over but the Statue’s Fate Is Unsettled**\
-`The artist of the defiant bronze statue near Wall Street reached an agreement with the financial firm that commissioned it.`\
-https://nytimes.com/2024/04/30/arts/design/fearless-girl-statue-new-york-lawsuit.html
 
