@@ -1,3 +1,11 @@
+**Getir, a Rapid Grocery-Delivery Service, Exits the U.S. and Europe**\
+`The company had expanded quickly to keep ahead of rivals, but like other pandemic darlings, its business lost steam after lockdowns were eased.`\
+https://nytimes.com/2024/04/30/business/getir-grocery-delivery-europe-us.html
+
+**Ralph Lauren Invites Everyone to Return to (His) Office**\
+`And he has some ideas about what we should wear.`\
+https://nytimes.com/2024/04/30/style/ralph-lauren-fall-review.html
+
 **Weekly Student News Quiz: College Protests, School Lunch, Bird Flu**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/04/30/learning/30StudentNewsQuizLN.html
