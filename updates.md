@@ -1,3 +1,7 @@
+**30campus-protests**\
+`Live Updates: Protesters Take Over Building on Columbia Campus`\
+https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college
+
 **Graphs**\
 `The Times’s Upshot is a section devoted to visualizing data behind news stories. How good is your graph literacy?`\
 https://nytimes.com/2024/04/30/learning/graphs.html
