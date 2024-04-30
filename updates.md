@@ -1,3 +1,7 @@
+**Paramount Faces a Mountain of Questions**\
+`Bob Bakish, the media giant’s chief executive, is out, removing an obstacle to a deal with David Ellison's Skydance. But the company’s future is no clearer as a key deadline approaches.`\
+https://nytimes.com/2024/04/30/business/dealbook/paramount-bakish-redstone-questions.html
+
 **Broadway still has not recovered to its prepandemic levels.**\
 `By Michael Paulson`\
 https://nytimes.com/live/2024/04/30/theater/tony-nominations/broadway-box-office-grosses-attendance
