@@ -1,3 +1,7 @@
+**How to save a pristine valley**\
+`How a group of local activists saved the ‘Yosemite of South America’ in the unlikeliest of deals. `\
+https://nytimes.com/2024/04/30/climate/how-to-save-a-pristine-valley.html
+
 **Water Heaters Use Lots of Energy. The D.O.E. Wants to Change That.**\
 `The Biden administration is tightening efficiency rules for water heaters, stoves and other appliances, and conservative politicians are dialing up their criticisms.`\
 https://nytimes.com/2024/04/30/climate/appliance-efficiency-rules-dishwasher-stove-water-heater.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/30/us/nsa-espionage-colorado-sentence.html
 **Are Bonds Gonna Party Like it’s 1999?**\
 `Reconsidering my views on interest rates.`\
 https://nytimes.com/2024/04/30/opinion/interest-rates-economy.html
-
-**The White House presses Hamas to accept the cease-fire deal on the table.**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/the-white-house-presses-hamas-to-accept-the-cease-fire-deal-on-the-table
 
