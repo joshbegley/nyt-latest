@@ -1,3 +1,9 @@
+**Daniel Radcliffe is nominated for his role in ‘Merrily We Roll Along.’**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/daniel-radcliffe-tony-nominations
+
+**Here’s what to know about the nominations.**\
+
 **Hamas and Fatah Officials, Longtime Rivals, Met in China**\
 `The Chinese government did not say when the talks between the main Palestinian factions were held. Expectations for progress were low.`\
 https://nytimes.com/2024/04/30/world/middleeast/hamas-fatah-gaza-china-meeting.html
