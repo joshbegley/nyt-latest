@@ -1,3 +1,19 @@
+**Alien Terrors, Vampire Conspiracies and More in 4 New Horror Books**\
+`Our columnist reviews this month’s latest scary releases.`\
+https://nytimes.com/2024/04/30/books/review/new-horror-books.html
+
+**Singing for the Dead, a Woman Finds Her Purpose**\
+`Wenyan Lu’s novel, “The Funeral Cryer,” explores a Chinese tradition through a modern, more personal lens.`\
+https://nytimes.com/2024/04/30/books/review/the-funeral-cryer-wenyan-lu.html
+
+**A Gripping Family Saga Asks, What Makes for ‘Real Americans’?**\
+`Rachel Khong’s new novel follows three generations of Chinese Americans as they all fight for self-determination in their own way.`\
+https://nytimes.com/2024/04/30/books/review/real-americans-rachel-khong.html
+
+**Are Disposable Hotel Slippers the Next Plastic Straws?**\
+`Slippers supplied by hotels — flimsy models usually made of plastic and fabric — are the next single-use item in the cross hairs of sustainability activists.`\
+https://nytimes.com/2024/04/30/travel/disposable-hotel-slippers-sustainability.html
+
 **A Proposed Law Targeting ‘Foreign Interests’ in Georgia Riles the Opposition**\
 `Opponents of the measure, which resembles a Russian law that Moscow has used to crack down on dissidents, say it could undermine efforts for Georgia to join the European Union.`\
 https://nytimes.com/2024/04/30/world/europe/georgia-foreign-agent-bill.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/04/30/nyregion/trump-hush-money-trial.html
 **Trump, Venting About Lawyer in His Criminal Trial, Seeks More Aggression**\
 `Todd Blanche upended his career to represent Donald J. Trump and has been the former president’s favorite. But Mr. Trump has made him a focus of his episodic wrath.`\
 https://nytimes.com/2024/04/30/us/politics/trump-trial-todd-blanche.html
-
-**N.Y. Criminal Justice Group to Push for More Scrutiny of Judges**\
-`The group, which led the fight against Gov. Kathy Hochul’s nominee to lead the state’s top court, argues that judges are routinely reappointed to the bench without sufficient evaluation.`\
-https://nytimes.com/2024/04/30/nyregion/ny-judges-hochul.html
-
-**An Intimate Look at Modern Love and Marriage**\
-`Amanda Montei, a contributing writer for The New York Times Magazine, spoke to more than 30 married people for whom sex is not essential.`\
-https://nytimes.com/2024/04/30/insider/sexless-marriage.html
-
-**Today’s Wordle Review No. 1,046**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/30/crosswords/wordle-review.html
-
-**The Connections Companion No. 324**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/04/30/crosswords/connections-companion.html
 
