@@ -1,3 +1,11 @@
+**Stormy Daniels Almost Went on ABC, but Then Trump’s Team Paid Her**\
+`Prosecutors begin to prepare the way for Michael Cohen’s crucial testimony.`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/stormy-daniels-almost-went-on-abc-but-then-trumps-team-paid-her
+
+**At Brown, a Rare Agreement Between Administrators and Protesters**\
+`Brown students took down their tents on campus after the university in Rhode Island agreed to discuss their demands for divestment from support for the Israeli military.`\
+https://nytimes.com/2024/04/30/us/brown-divestment-deal.html
+
 **Judge Who Brawled With Neighbors Will Remain on N.Y. Bench**\
 `A state panel voted to censure Mark J. Grisanti, a former Republican state senator, but said he would not be removed for the incident, in which he shoved a police officer.`\
 https://nytimes.com/2024/04/30/nyregion/grisanti-judge-censure-buffalo.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/30/briefing/campus-protests-columbia-donald-trump-co
 **Education Secretary Calls Antisemitism on Campuses ‘Abhorrent’ and ‘Unacceptable’**\
 `Miguel A. Cardona told lawmakers that his department was continuing to investigate complaints of antisemitism at dozens of colleges since Oct. 7.`\
 https://nytimes.com/2024/04/30/us/politics/miguel-cardona-antisemitism-campus-protests.html
-
-**Corn to Power Airplanes? Biden Administration Sets a High Bar.**\
-`Producers of biofuels like ethanol, which could help create a new generation of jet fuel, would have to overhaul their practices to receive tax credits.`\
-https://nytimes.com/2024/04/30/climate/ethanol-jet-fuel-saf-tax-incentives.html
-
-**Tensions Rise at U.N.C. Chapel Hill After Dozens of Pro-Palestinian Demonstrators Are Detained**\
-`By Tuesday afternoon, protesters had broken through the barriers keeping them out of an encampment, and they replaced an American flag in the center of campus with a Palestinian one.`\
-https://nytimes.com/2024/04/30/nyregion/unc-chapel-hill-protests.html
 
