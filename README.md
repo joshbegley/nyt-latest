@@ -1,3 +1,7 @@
+**Word of the Day: equilibrium**\
+`This word has appeared in 102 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/04/30/learning/word-of-the-day-equilibrium.html
+
 **Corrections: April 30, 2024**\
 `Corrections that appeared in print on Tuesday, April 30, 2024.`\
 https://nytimes.com/2024/04/30/pageoneplus/corrections-april-30-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/04/29/us/politics/ilhan-omar-protests-gaza.html
 **A Small Campus in the Redwoods Has the Nation’s Most Entrenched Protest**\
 `Pro-Palestinian protesters have occupied the administration building at California State Polytechnic University, Humboldt for the past week and forced a campus closure until May 10.`\
 https://nytimes.com/2024/04/29/us/humboldt-protest-cal-poly.html
-
-**Contents of a Pizzeria Shaker**\
-`Michèle Govier has us dwelling on the details.`\
-https://nytimes.com/2024/04/29/crosswords/daily-puzzle-2024-04-30.html
 
