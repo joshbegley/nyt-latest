@@ -1,3 +1,11 @@
+**Water Heaters Use Lots of Energy. The D.O.E. Wants to Change That.**\
+`The Biden administration is tightening efficiency rules for water heaters, stoves and other appliances, and conservative politicians are dialing up their criticisms.`\
+https://nytimes.com/2024/04/30/climate/appliance-efficiency-rules-dishwasher-stove-water-heater.html
+
+**Biden Tax Increases Won’t Hit Middle Class, Yellen Says**\
+`Republicans pressed the Treasury secretary on the fate of the Trump tax cuts that will expire in 2025.`\
+https://nytimes.com/2024/04/30/us/politics/biden-yellen-tax-increases.html
+
 **Justice Dept. Plans to Recommend Easing Restrictions on Marijuana**\
 `The move would kick off a lengthy rule-making process and would amount to a major change in federal policy.`\
 https://nytimes.com/2024/04/30/us/politics/justice-department-reclassify-marijuana.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/30/opinion/interest-rates-economy.html
 **The White House presses Hamas to accept the cease-fire deal on the table.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/the-white-house-presses-hamas-to-accept-the-cease-fire-deal-on-the-table
-
-**What happens next? Here’s what we know about the Tony Awards ceremony.**\
-`By Michael Paulson`\
-https://nytimes.com/live/2024/04/30/theater/tony-nominations/what-happens-next-heres-what-we-know-about-the-tony-awards-ceremony
-
-**Can Supplements Really Help Thinning Hair?**\
-`Skeptics share their experience with a clinically tested supplement that helps with hair health and fullness — after trying an exhaustive list of fixes.`\
-https://nytimes.com/paidpost/nutrafol/can-supplements-really-help-thinning-hair.html
 
