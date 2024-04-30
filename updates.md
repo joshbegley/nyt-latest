@@ -1,3 +1,15 @@
+**What Charges Will the Protesters Occupying the Columbia Building Face?**\
+`The students who took over Hamilton Hall on Tuesday could be charged with a range of offenses, but they are unlikely to face jail time, according to a legal expert.`\
+https://nytimes.com/2024/04/30/nyregion/columbia-protests-hamilton-hall.html
+
+**House Republican Drafts Censure of Omar for ‘Pro-Genocide’ Remark**\
+`Representative Don Bacon accused Representative Ilhan Omar of antisemitism in suggesting some Jewish students were “pro-genocide.” Democratic leaders have said little about their colleague’s language.`\
+https://nytimes.com/2024/04/30/us/politics/ilhan-omar-genocide-jews-columbia.html
+
+**Binance Founder Sentenced to 4 Months in Prison**\
+`Changpeng Zhao, the founder and former chief executive of the Binance cryptocurrency exchange, had pleaded guilty to money-laundering violations.`\
+https://nytimes.com/2024/04/30/technology/binance-founder-changpeng-zhao-sentenced.html
+
 **Biden Tax Increases Won’t Hit Middle Class, Yellen Says**\
 `Republicans pressed the Treasury secretary on President Biden’s tax proposals and the fate of the Trump tax cuts that will expire in 2025.`\
 https://nytimes.com/2024/04/30/us/politics/biden-yellen-tax-increases.html
