@@ -1,3 +1,15 @@
+**The Secret Push That Could Ban TikTok**\
+`U.S. lawmakers have long worried that the Chinese government could use the app to spread propaganda.`\
+https://nytimes.com/2024/04/30/podcasts/the-daily/tiktok-ban.html
+
+**Columbia Protesters Occupy Building, and Trump Complains About His Lawyer**\
+`Plus, a deadly day for law enforcement.`\
+https://nytimes.com/2024/04/30/podcasts/trump-lawyers-ai.html
+
+**Walmart Introduces a New Store Brand for ‘Quality Food’**\
+`The Better Goods store brand will carry plant-based, gluten-free and higher-end food and could help the retailer attract more affluent shoppers.`\
+https://nytimes.com/2024/04/30/business/economy/walmart-better-goods-store-brand.html
+
 **What to Know About the Police Shooting in Charlotte**\
 `A police officer and three members of a U.S. Marshals task force were fatally shot while serving warrants to a suspect, who was also killed.`\
 https://nytimes.com/2024/04/30/us/police-shooting-charlotte-what-happened.html
