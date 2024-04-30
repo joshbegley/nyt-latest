@@ -34,7 +34,7 @@ https://nytimes.com/live/2024/04/30/theater/tony-nominations/what-to-watch-for-a
 `We explain why more Latino voters find Trump appealing.`\
 https://nytimes.com/2024/04/30/briefing/latino-republicans-2024.html
 
-**Man With Sword Stabs Several People in London, Police Say**\
-`Five people were hospitalized after the stabbing, and a suspect was arrested. Video of the incident showed a man wielding a large sword near several houses.`\
+**Child Killed in London Sword Attack, Police Say**\
+`A 13-year-old boy was killed and several others were hospitalized in a stabbing spree in northeast London, the police said. A 36-year-old man was arrested.`\
 https://nytimes.com/2024/04/30/world/europe/london-stabbing-hainault.html
 
