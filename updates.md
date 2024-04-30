@@ -1,3 +1,7 @@
+**Tuesday Briefing**\
+`Hope for a cease-fire in Gaza.`\
+https://nytimes.com/2024/04/30/briefing/israel-hamas-ukraine-retreat.html
+
 **Hydrogen Offers Germany a Chance to Take a Lead in Green Energy**\
 `A subsidiary of ThyssenKrupp, Germany’s venerable steel producer, is landing major deals for a device that makes the clean-burning gas from water.`\
 https://nytimes.com/2024/04/30/business/hydrogen-clean-green-energy.html
