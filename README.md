@@ -1,3 +1,11 @@
+**Wednesday Briefing: Clashes Escalate on U.S. Campuses**\
+`Also, a judge fined Donald Trump for breaking a gag owner.`\
+https://nytimes.com/2024/04/30/world/asia/columbia-explusion-trump-broadway-asia.html
+
+**House Republicans, Seeking Political Edge Amid College Protests, Spotlight Antisemitism**\
+`Republican leaders said they would hold additional hearings with top university administrators and potentially withhold millions of federal dollars from universities that fail to keep Jewish students safe.`\
+https://nytimes.com/2024/04/30/nyregion/antisemitism-republicans-johnson-college-protests.html
+
 **Mississippi Lawmakers Reach a Tentative Deal to Expand Medicaid**\
 `The expansion would extend largely free health coverage to 200,000 more low-income adults. But hurdles remain, including a likely veto by Gov. Tate Reeves.`\
 https://nytimes.com/2024/04/30/us/mississippi-medicaid-expansion.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/30/business/tesla-layoffs-supercharger-team.html
 **We Watched Horses Die on the Track. Will Anything Change?**\
 `Last year, 12 horses died at Churchill Downs, and another 13 died at Saratoga. In a new documentary, two reporters examine the issues surrounding the sport.`\
 https://nytimes.com/2024/04/30/insider/we-watched-horses-die-on-the-track-will-anything-change.html
-
-**Iran’s Frightening Message to Its Young People**\
-`The fate of a jailed rapper will say a great deal about the country’s atmosphere of repression.`\
-https://nytimes.com/live/2024/04/24/opinion/thepoint/iran-jailed-rapper
-
-**Emergency Slide That Fell From Delta Flight Is Recovered From Queens Jetty**\
-`The flight, which took off from Kennedy International Airport on Friday, safely returned to the airport, where crews saw that the slide was missing, according to the airline.`\
-https://nytimes.com/2024/04/30/us/emergency-slide-delta-flight-found.html
 
