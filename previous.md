@@ -1,40 +1,40 @@
-**Hamilton Hall Has a Long History of Student Takeovers**\
-`The Columbia University building, which opened in 1907, has been occupied several times by student activists.`\
-https://nytimes.com/2024/04/30/nyregion/hamilton-hall-columbia-student-protests.html
+**Stream These 10 Movies Before They Leave Netflix in May**\
+`Magic Mike’s finale, M. Night Shyamalan’s patient with 23 personalities, Baz Luhrmann’s “Gatsby” and a copstravaganza with a serious coda after the belly laughs.`\
+https://nytimes.com/2024/04/30/movies/movies-leaving-netflix-may.html
 
-**High Fed Rates Are Not Crushing Growth. Wealthier People Help Explain Why.**\
-`High rates usually pull down asset prices and hurt the housing market. Those channels are muted now, possibly making policy slower to work.`\
-https://nytimes.com/2024/04/30/business/economy/high-fed-rates-rich-people.html
+**What Should a Congress Member’s Salary Be?**\
+`Twelve departing lawmakers tell us what Congress is really like.`\
+https://nytimes.com/interactive/2024/04/30/opinion/congress-resignations-salary.html
 
-**Enrique Olvera Heads to Brooklyn With Esse Taco**\
-`Sammy’s Roumanian Steakhouse returns after an extended Covid closure, Mission Chinese pops up at Cha Kee and more restaurant news.`\
-https://nytimes.com/2024/04/30/dining/enrique-olvera-heads-to-brooklyn-with-esse-taco.html
+**Is Green Growth Possible?**\
+`The environmental data scientist Hannah Ritchie argues that climate technology is increasingly catching up to the world’s enormous need for clean energy.`\
+https://nytimes.com/2024/04/30/opinion/ezra-klein-podcast-hannah-ritchie.html
 
-**The House That Once Embarrassed Them Is Now a Showplace**\
-`“Their disdain for this house,” the designer said, “was a green light to give it a whole new life.”`\
-https://nytimes.com/2024/04/30/realestate/minnesota-ranch-house-renovation.html
+**The Three Shows I’m Pulling for in the Tony Award Nominations**\
+`Three musicals bring the art of songw`\
+https://nytimes.com/live/2024/04/24/opinion/thepoint/tony-award-nominations-songwriting
 
-**Should College Freshmen Choose Their Roommates?**\
-`An Opinion columnist argues that students can benefit from living with people they don’t know. Do you agree?`\
-https://nytimes.com/2024/04/30/learning/should-college-freshmen-choose-their-roommates.html
+**Our Reporter on Broadway’s Big Week**\
+`Broadway is in the midst of a rolling celebration. In nine days, 12 shows opened. Michael Paulson, theater reporter for The New York Times, explains how and why all these shows are rolling out the red carpet.`\
+https://nytimes.com/video/theater/100000009439119/our-reporter-on-broadways-big-week.html
 
-**Queen Snakes Are Back, and They’re in New Jersey**\
-`The reptiles, an endangered species, hadn’t been seen in the state since the 1970s.`\
-https://nytimes.com/2024/04/30/nyregion/queen-snakes-new-jersey.html
+**12 Departing Lawmakers Tell Us What Congress Is Really Like**\
+`These are their exit interviews.`\
+https://nytimes.com/interactive/2024/04/30/opinion/congress-resignations.html
 
-**How Michigan Ended Minority Rule**\
-`Though the notion would have been laughable a decade ago, Michigan is one promising national model for how state-level activists can retake power.`\
-https://nytimes.com/2024/04/30/opinion/michigan-democrats-majority.html
+**Did You Make a Difference  in Congress?**\
+`Twelve departing lawmakers tell us what Congress is really like.`\
+https://nytimes.com/interactive/2024/04/30/opinion/congress-resignations-difference.html
 
-**Inside a Navy Submarine Navigating the Arctic**\
-`A Times photojournalist embarked on a nuclear-powered attack sub to see how the Pentagon is training for a potential war below the frozen sea.`\
-https://nytimes.com/2024/04/30/us/politics/inside-navy-submarine-arctic.html
+**A Poem About You, for You**\
+`For National Poetry Month, A.O. Scott shares one of his favorite love poems.`\
+https://nytimes.com/2024/04/30/podcasts/a-poem-about-you-for-you.html
 
-**The First Six Weeks of Pregnancy, Explained**\
-`Florida is set to ban abortions after six weeks. Experts explain how that can often be before a woman knows she is pregnant.`\
-https://nytimes.com/2024/04/30/well/live/pregnancy-abortion-six-weeks.html
+**That Strange Piece of Metal Origami Embodies All Elon Musk’s Flaws**\
+`The Cybertruck looks edgy, that’s for sure, but it has serious problems.`\
+https://nytimes.com/2024/04/30/opinion/elon-musk-tesla-problems.html
 
-**Edward Dwight Aims for Orbit at Last**\
-`Six decades ago, Mr. Dwight’s shot at becoming the first Black astronaut in space was thwarted by racism and politics. Now, at 90, he’s finally going up.`\
-https://nytimes.com/2024/04/30/science/edward-dwight-astronauts.html
+**Are You Screaming for a Free Streaming Choice? Try Shout! TV.**\
+`Among the free streaming services, few are as enjoyable and reliable as this one.`\
+https://nytimes.com/2024/04/30/movies/shout-tv-streaming-netflix-alternative.html
 
