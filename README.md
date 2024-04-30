@@ -1,3 +1,11 @@
+**Supreme Court Allows, for Now, Texas Law Restricting Access to Porn**\
+`The law, meant to shield minors from sexual materials on the internet by requiring adults to prove they are 18, was challenged on First Amendment grounds.`\
+https://nytimes.com/2024/04/30/us/politics/supreme-court-porn.html
+
+**Trump Wants to Prosecute Biden. He Also Thinks Presidents Deserve Immunity.**\
+`In arguing to the Supreme Court that he cannot be charged for acts while in office, Donald Trump has asked the justices to enforce a norm that he has long threatened to shatter.`\
+https://nytimes.com/2024/04/30/us/politics/trump-biden-president-immunity.html
+
 **As Israel plans to invade Rafah, a family makes the difficult choice to uproot itself again.**\
 `By Liam Stack and Bilal Shbair`\
 https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/as-israel-plans-to-invade-rafah-a-family-makes-the-difficult-choice-to-uproot-itself-again
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/30/us/politics/trump-time-migrants-election.html
 **On the same day, 56 years ago, students inside Hamilton Hall were protesting another war.**\
 `By Claire Fahy`\
 https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/on-the-same-day-56-years-ago-students-inside-hamilton-hall-were-protesting-another-war
-
-**R.F.K. Jr.’s Campaign Says He Will Be on California Ballot**\
-`The state is the fourth where Mr. Kennedy is all but assured a spot on the ballot in November against President Biden and former President Donald J. Trump.`\
-https://nytimes.com/2024/04/30/us/politics/rfk-jr-california-ballot.html
-
-**Mali Claims Death of Terrorist Who Helped Lead Deadly Ambush in Niger**\
-`The West African country said it killed Abu Huzeifa, a commander in an Islamic State affiliate who was involved in a 2017 attack in neighboring Niger that killed American Green Berets and Nigerien forces.`\
-https://nytimes.com/2024/04/30/world/africa/mali-isis-niger-attack.html
 
