@@ -1,3 +1,15 @@
+**College Democrats of America Back Protests and Criticize Biden’s Israel Policy**\
+`The student organization of the Democratic Party condemned colleges’ crackdowns on pro-Palestinian protests and called on President Biden to support a permanent cease-fire in Gaza.`\
+https://nytimes.com/2024/04/30/us/politics/bidens-israel-college-democrats.html
+
+**Green Girl Glory: Three former Elphabas scored Tony nominations.**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/broadway-elphabas-bean-espinosa-mendez
+
+**Daniel Radcliffe Is Nominated for ‘Merrily We Roll Along’**\
+`This was the first Tony nomination for Radcliffe, who as a child actor became globally recognizable by playing Harry Potter in the movies.`\
+https://nytimes.com/2024/04/30/theater/daniel-radcliffe-tony-nomination.html
+
 **Gazans Flee Rafah Before a Widely Expected Israeli Attack**\
 `Many displaced Palestinians are uprooting themselves and their families again and moving to Deir al Balah, a city along Gaza’s coastline, as Israel plans for a possible invasion into Rafah.`\
 https://nytimes.com/video/world/middleeast/100000009435248/gazans-flee-rafah-before-a-widely-expected-israeli-attack.html
