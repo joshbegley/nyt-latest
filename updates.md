@@ -1,3 +1,7 @@
+**Daniel Radcliffe on breaking the spell with his first Tony nomination.**\
+`Radcliffe earned his first nomination on Tuesday for “Me for his fifth role on Broadway since 2008.`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/daniel-radcliffe-tony-nomination
+
 **Supreme Court Allows, for Now, Texas Law Restricting Access to Porn**\
 `The law, meant to shield minors from sexual materials on the internet by requiring adults to prove they are 18, was challenged on First Amendment grounds.`\
 https://nytimes.com/2024/04/30/us/politics/supreme-court-porn.html

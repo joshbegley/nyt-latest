@@ -1,3 +1,7 @@
+**Daniel Radcliffe on breaking the spell with his first Tony nomination.**\
+`Radcliffe earned his first nomination on Tuesday for “Me for his fifth role on Broadway since 2008.`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/daniel-radcliffe-tony-nomination
+
 **Supreme Court Allows, for Now, Texas Law Restricting Access to Porn**\
 `The law, meant to shield minors from sexual materials on the internet by requiring adults to prove they are 18, was challenged on First Amendment grounds.`\
 https://nytimes.com/2024/04/30/us/politics/supreme-court-porn.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/30/theater/tony-nominations/sarah-paulson-tony-
 **Trump Again Vows Mass Deportations and Won’t Rule Out Political Violence**\
 `In an interview with Time magazine, the former president said he planned to use the military to deport migrants and would not dismiss the possibility of political violence after this year’s election.`\
 https://nytimes.com/2024/04/30/us/politics/trump-time-migrants-election.html
-
-**On the same day, 56 years ago, students inside Hamilton Hall were protesting another war.**\
-`By Claire Fahy`\
-https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/on-the-same-day-56-years-ago-students-inside-hamilton-hall-were-protesting-another-war
 
