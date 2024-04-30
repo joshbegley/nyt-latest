@@ -1,3 +1,15 @@
+**Hydrogen Offers Germany a Chance to Take a Lead in Green Energy**\
+`A subsidiary of ThyssenKrupp, Germany’s venerable steel producer, is landing major deals for a device that makes the clean-burning gas from water.`\
+https://nytimes.com/2024/04/30/business/hydrogen-clean-green-energy.html
+
+**Chad Election 2024: What You Need to Know**\
+`The Central African nation’s May 6 election appears to offer voters a choice. But it’s been masterminded, analysts say, to rubber-stamp the rule of the incumbent, Mahamat Idriss Déby. `\
+https://nytimes.com/2024/04/30/world/africa/chad-election-2024.html
+
+**Even as He Faces Prison Time, Binance’s Founder Plans a Comeback**\
+`Since pleading guilty to violating money-laundering rules, Changpeng Zhao, who ran the giant crypto exchange Binance, has networked across the United States to set up his next act.`\
+https://nytimes.com/2024/04/30/technology/changpeng-zhao-binance-crypto.html
+
 **All New U.S. Cars Must Carry Automatic Brakes by 2029**\
 `The technology is already sold on most vehicles, but a new federal safety regulation raises the standards.`\
 https://nytimes.com/2024/04/29/business/abs-automatic-braking-nhtsa.html

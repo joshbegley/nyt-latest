@@ -1,3 +1,15 @@
+**Hydrogen Offers Germany a Chance to Take a Lead in Green Energy**\
+`A subsidiary of ThyssenKrupp, Germany’s venerable steel producer, is landing major deals for a device that makes the clean-burning gas from water.`\
+https://nytimes.com/2024/04/30/business/hydrogen-clean-green-energy.html
+
+**Chad Election 2024: What You Need to Know**\
+`The Central African nation’s May 6 election appears to offer voters a choice. But it’s been masterminded, analysts say, to rubber-stamp the rule of the incumbent, Mahamat Idriss Déby. `\
+https://nytimes.com/2024/04/30/world/africa/chad-election-2024.html
+
+**Even as He Faces Prison Time, Binance’s Founder Plans a Comeback**\
+`Since pleading guilty to violating money-laundering rules, Changpeng Zhao, who ran the giant crypto exchange Binance, has networked across the United States to set up his next act.`\
+https://nytimes.com/2024/04/30/technology/changpeng-zhao-binance-crypto.html
+
 **All New U.S. Cars Must Carry Automatic Brakes by 2029**\
 `The technology is already sold on most vehicles, but a new federal safety regulation raises the standards.`\
 https://nytimes.com/2024/04/29/business/abs-automatic-braking-nhtsa.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/04/29/us/arizona-rancher-migrant-death-trial.html
 **Election Deniers Are Still Shaping Arizona Politics**\
 `There have been few political consequences for many Republicans accused of helping Trump try to overturn the 2020 election.`\
 https://nytimes.com/2024/04/29/us/politics/election-deniers-arizona-politics.html
-
-**Matt Gaetz Faces Last-Minute Challenger in Republican Primary**\
-`The Florida representative will face off against Aaron Dimmock, a retired Navy officer and aviator.`\
-https://nytimes.com/2024/04/29/us/politics/gaetz-primary-challenge.html
-
-**Trump Is Flirting With Quack Economics**\
-`Beware strongmen who engage in magical thinking.`\
-https://nytimes.com/2024/04/29/opinion/trump-economics.html
-
-**Hope Rises for New Talks on Gaza Cease-fire as Israel Scales Back Demands**\
-`Israel reduced the initial number of hostages it wants released to 33. If Hamas agrees to attend, negotiations on a cease-fire could resume in Cairo this week.`\
-https://nytimes.com/2024/04/29/world/middleeast/israel-gaza-cease-fire-hostages.html
 
