@@ -1,3 +1,7 @@
+**Daniel Radcliffe is nominated for his role in ‘Merrily We Roll Along.’**\
+`By Michael Paulson`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/daniel-radcliffe-tony-nominations
+
 **Hamas and Fatah Officials, Longtime Rivals, Met in China**\
 `The Chinese government did not say when the talks between the main Palestinian factions were held. Expectations for progress were low.`\
 https://nytimes.com/2024/04/30/world/middleeast/hamas-fatah-gaza-china-meeting.html
@@ -22,4 +26,4 @@ https://nytimes.com/2024/04/30/nyregion/juvenile-detention-center-lawsuits.html
 `By Damien Cave`\
 https://nytimes.com/live/2024/04/30/world/israel-gaza-war-hamas/netanyahu-reiterates-his-vow-to-invade-rafah-with-or-without-a-cease-fire-deal
 
-**The musical ‘Hell’s Kitchen’ and the play ‘Stereophonic’ got 13 nominations each, leading the pack.**\
+**Here’s what to know about the nominations.**\
