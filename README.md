@@ -1,3 +1,11 @@
+**For Trump, a $9,000 rebuke and a stern warning**\
+`The judge made it clear that further gag-order violations could land the former president in jail.`\
+https://nytimes.com/2024/04/30/us/politics/trump-trial-gag-order-contempt-fine.html
+
+**Two Men Are Charged Over the Felling of the Sycamore Gap Tree**\
+`Seven months after the beloved tree in northern England was cut down, the police charged two men in their 30s with damaging the 200-year-old tree and part of Hadrian’s Wall.`\
+https://nytimes.com/2024/04/30/world/sycamore-gap-tree-felling-charges.html
+
 **Scenes From the Student Protests Churning Across the Country**\
 `Despite hundreds of arrests and threats of disciplinary action, pro-Palestinian demonstrations have continued into a third week.`\
 https://nytimes.com/2024/04/30/us/campus-protests-colleges-columbia-photos.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/04/30/magazine/jackfruit-taco-recipe.html
 **A Bystander to ’60s Protests, Biden Now Becomes a Target**\
 `For President Biden, the campus unrest over the Gaza war recalls peace protests of his youth. But this time he cannot easily bypass the turmoil.`\
 https://nytimes.com/2024/04/30/us/politics/biden-columbia-protests-israel-antisemitism.html
-
-**Wednesday Briefing: Clashes Escalate on U.S. Campuses**\
-`Also, a judge fined Donald Trump for breaking a gag order.`\
-https://nytimes.com/2024/04/30/world/asia/columbia-explusion-trump-broadway-asia.html
-
-**House Republicans, Seeking Political Edge Amid College Protests, Spotlight Antisemitism**\
-`Republican leaders said they would hold additional hearings with top university administrators and potentially withhold millions of federal dollars from universities that fail to keep Jewish students safe.`\
-https://nytimes.com/2024/04/30/nyregion/antisemitism-republicans-johnson-college-protests.html
 
