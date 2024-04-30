@@ -1,3 +1,7 @@
+**Here’s where campus protesters have been arrested over the past day.**\
+`Officers at Virginia Commonwealth University in Richmond used riot gear and pepper spray.`\
+https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/heres-where-campus-protesters-have-been-arrested-over-the-past-day
+
 **I Let TikTok Tell Me Where to Eat. Here’s What I Learned.**\
 `A food editor documents the high, the low and the mid from a week’s worth of influencer restaurant suggestions.`\
 https://nytimes.com/2024/04/30/dining/tiktok-fyp-restaurant-recommendations.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/columbia-
 **Trump Finally Pays a Cash Price for His Threats**\
 `If a few thousand dollars doesn’t rein in Trump, the judge said he had harsher penalties at his disposal.`\
 https://nytimes.com/live/2024/04/24/opinion/thepoint/trump-contempt-jail
-
-**‘Green Islam’ Drew a Reporter to Indonesia**\
-`An environmental movement is growing in the world’s most populous Muslim nation.`\
-https://nytimes.com/2024/04/30/world/asia/green-islam.html
 

@@ -1,3 +1,7 @@
+**Here’s where campus protesters have been arrested over the past day.**\
+`Officers at Virginia Commonwealth University in Richmond used riot gear and pepper spray.`\
+https://nytimes.com/live/2024/04/30/nyregion/columbia-protests-college/heres-where-campus-protesters-have-been-arrested-over-the-past-day
+
 **I Let TikTok Tell Me Where to Eat. Here’s What I Learned.**\
 `A food editor documents the high, the low and the mid from a week’s worth of influencer restaurant suggestions.`\
 https://nytimes.com/2024/04/30/dining/tiktok-fyp-restaurant-recommendations.html
