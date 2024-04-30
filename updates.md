@@ -1,3 +1,7 @@
+**Jessica Lange, nominated for ‘Mother Play,’ wanted to create a new role.**\
+`By Laura Collins-Hughes`\
+https://nytimes.com/live/2024/04/30/theater/tony-nominations/jessica-lange-mother-play-tony-nomination
+
 **Jeff Zucker Abandons Telegraph Bid, Putting London Paper Back Into Play**\
 `RedBird IMI said it had withdrawn its attempt to acquire the storied newspaper after a revolt from Conservative Party leaders.`\
 https://nytimes.com/2024/04/30/business/media/jeff-zucker-telegraph-redbird.html
